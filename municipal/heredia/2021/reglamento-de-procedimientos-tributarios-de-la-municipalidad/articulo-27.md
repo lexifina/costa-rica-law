@@ -1,0 +1,1 @@
+Artículo 27 º -Estando una obligación en cobro judicial, no se podrá declarar la prescripción en sede administrativa, excepto que cancele los honorarios, gastos y formalice un arreglo de pago por el monto total o que el juez la declare en sede judicial ya sea de oficio o a solicitud de la persona contribuyente.

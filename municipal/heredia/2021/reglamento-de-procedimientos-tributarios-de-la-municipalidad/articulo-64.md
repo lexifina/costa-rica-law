@@ -1,0 +1,1 @@
+Artículo 64°- Establecimiento del costo de trámite de cobro: Para los efectos de la resolución de incobrabilidad (costo-beneficio), la Dirección de Servicios y Gestión Tributaria, establecerá el costo aproximado que tiene un proceso de notificación de cobro administrativo para la institución, el cual actualizará en el mes de enero de cada año.

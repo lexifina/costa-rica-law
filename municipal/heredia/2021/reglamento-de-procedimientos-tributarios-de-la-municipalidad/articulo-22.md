@@ -1,0 +1,1 @@
+Artículo 22º-La prescripción de la obligación tributaria extinguirá también el derecho al cobro de los intereses; Conforme lo establece el numeral 55 del Código de Normas y Procedimientos Tributarios.

@@ -1,0 +1,1 @@
+Artículo 14°- Calendarización. La Administración Tributaria Municipal, con la coordinación de la Dirección de Servicios y Gestión Tributaria, establecerá un calendario anual con las fechas en que se estará ejecutando cada una de las etapas contenidas en la estrategia de cobro.

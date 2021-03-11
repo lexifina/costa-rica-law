@@ -1,0 +1,1 @@
+Artículo 24º-Conforme lo establece el numeral 52 del Código de Normas y Procedimientos Tributarios, el término de prescripción se debe contar a partir del primer (1) día del mes siguiente a la fecha en que el tributo debe pagarse.

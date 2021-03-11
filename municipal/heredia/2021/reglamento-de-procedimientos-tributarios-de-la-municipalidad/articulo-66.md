@@ -1,0 +1,1 @@
+Artículo 66°- Comunicación de declaratoria de incobrabilidad: Las secciones municipales involucradas en el proceso Dirección Financiera Administrativa, Contabilidad, Dirección de Servicios y Gestión Tributaria, Servicios Tributarios y el Área Tecnología, deberán tener una comunicación constante en cuanto al registro para realizar los ajustes contables correspondientes.

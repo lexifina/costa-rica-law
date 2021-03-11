@@ -1,0 +1,12 @@
+Artículo 12º- Formas de extinción de la obligación tributaria municipal. La obligación tributaria municipal se extingue por cualquiera de los siguientes medios:
+a) Pago efectivo: El pago se hará por alguno de los siguientes medios, con los requisitos y condiciones que para cada uno de ellos se establecen:
+i) Moneda de curso legal.
+ii) Tarjetas de débito o crédito.
+iii) Mecanismos electrónicos definidos por la Administración (transferencias electrónicas, depósitos bancarios, pagos en línea).
+iv) Cheques. Cuando los pagos se efectúen mediante cheque, éstos deberán reunir, además de los requisitos legales exigidos por la legislación mercantil, los siguientes:
+(1) Girarse a favor de la Municipalidad de Heredia.
+(2) Expresar claramente el nombre o razón social de la persona contribuyente o responsable cuya deuda cancela, su número de identificación o cédula y número telefónico.
+(3) La entrega del cheque no liberará al deudor por el importe consignado sino hasta que éste se haga efectivo. La deuda tributaria no satisfecha por la emisión de un cheque cuyo pago se rechace, será generada nuevamente y continuará generando los intereses y sanciones de conformidad con la ley. Las constancias o certificaciones de tributos al día que hayan sido cubiertos mediante el pago de cheque podrán ser revocadas por la administración en caso de que no se haga efectivo el pago y tendrá la virtud de interrumpir el plazo de prescripción por reconocimiento expreso de la deuda. En los casos en que la persona contribuyente haya pagado con cheque y el mismo no se haya podido hacer efectivo, la Municipalidad incorporará en el sistema una marca que le impedirá al ciudadano volver a cancelar a través de este medio, únicamente podrá recibirle cheque que se encuentre certificado por la entidad bancaria.
+b) Condonación: Las deudas por obligaciones tributarias municipales solo podrán ser condonadas por ley. Las obligaciones accesorias, bien sea que se trate de intereses, recargos y multas, solo podrán ser condonadas por medio de una resolución administrativa y debe contar con toda la documentación que la justifica.
+c) Prescripción: La acción para que la Administración Tributaria determine la obligación cuenta en materia municipal con diferentes plazos, dependiendo del tributo de que se trate, por lo que dichos plazos, su interrupción y demás aspectos sustanciales se regirán conforme a la ley que rija para cada tributo.
+d) Créditos a favor: Saldo a favor del sujeto pasivo de la obligación.

@@ -1,0 +1,3 @@
+GENERALES RELACIONADAS CON EL PAGO
+Artículo 17°- Pago por terceros. Subrogación. El pago efectuado voluntariamente por un tercero extinguirá la obligación tributaria y quien pague se subrogará en el crédito, juntamente con sus garantías y privilegios, más no en aquellas potestades que se deriven de la naturaleza pública del acreedor inicial.
+Cuando el pago por el tercero se produzca por un error, habrá lugar a su reimportación, previa devolución y anulación del correspondiente recibo, siempre y cuando se haga de conocimiento de la Administración, que se ha cometido un error el mismo día en que se efectuó el pago erróneo, quedando así constando en la cuenta integral.

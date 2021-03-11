@@ -1,0 +1,4 @@
+Artículo 10°- Función de recaudación. Es el conjunto de actividades que realiza la Administración Tributaria Municipal destinadas a percibir de los contribuyentes la cancelación o el pago de todas las obligaciones tributarias municipales. La función recaudadora se realizará en etapas:
+a) Voluntaria: El sujeto pasivo de la obligación tributaria municipal cancelará sus obligaciones sin necesidad de actuación alguna por parte de la Sección de Servicios Tributarios.
+b) Administrativa: La Sección de Servicios Tributarios efectuará gestión de cobro administrativo a los sujetos pasivos morosos.
+c) Externo o Extrajudicial y Judicial: La recaudación se efectúa coercitivamente, utilizando los medios legales establecidos y recurriendo a los órganos jurisdiccionales respectivos. Esta etapa será ejecutada por los abogados y/o empresas privadas contratados para este fin, mediante coordinación de la Sección de Servicios Tributarios

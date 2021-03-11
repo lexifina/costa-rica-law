@@ -1,0 +1,3 @@
+Artículo 19°- Imputación de pagos. Al efectuarse el pago de cualquier tributo, la Administración Tributaria deberá tener por abonado en primer lugar a las deudas más antiguas, determinadas por la fecha de vencimiento del plazo para el pago de cada una.
+En los casos en que el sujeto pasivo no indique la imputación del pago o que se realice por depósito o transferencia bancaria, la Administración Tributaria deberá establecerla por orden de antigüedad de los débitos, determinados por la fecha de vencimiento del plazo para el pago de cada uno.
+En todos los casos, la imputación de pagos se hará primero a las sanciones, luego a los intereses y por último a la obligación principal. Esta regla será aplicable a todos los medios de extinción de las obligaciones tributarias.

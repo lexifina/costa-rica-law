@@ -1,0 +1,4 @@
+v) Sección de Servicios Tributarios: Sección municipal encargada de aplicar, percibir y fiscalizar los tributos mediante una serie de normas que regulan las relaciones.
+w) Sistema Integrado de administración Municipal (SIAM): Sistema informático que contiene información identificativa y tributaria exacta, confiable y oportuna de los contribuyentes, así como el detalle de sus obligaciones, integrando las diferentes áreas de gestión tributaria.
+x) Sujeto activo y pasivo en el cobro de tributos. La Municipalidad es el sujeto activo en el cobro de los tributos, mientras que la persona contribuyente u responsables serán los sujetos pasivos de la obligación.
+Artículo 4°- Alcance. Todas las gestiones de cobro que sobre sus cuentas lleve la Municipalidad se regirán por las disposiciones del presente reglamento.

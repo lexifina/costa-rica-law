@@ -1,0 +1,1 @@
+Artículo 16°- Seguimiento de la estrategia. La Dirección de Servicios y Gestión Tributaria será la responsable de fiscalizar que los departamentos que conforman la Administración Tributaria Municipal acaten la estrategia de cobro y de informar sus resultados a la Alcaldía Municipal.

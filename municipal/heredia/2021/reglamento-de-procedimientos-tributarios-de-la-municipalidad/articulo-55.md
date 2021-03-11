@@ -1,0 +1,4 @@
+Artículo 55°- Resolución del arreglo de pago. El convenio de pago se resolverá el pago total de la obligación vencida y preferiblemente los periodos que vencerán durante el plazo o incluso futuros que se incluyan en el mismo.
+Dicha resolución se hará dentro de los plazos establecidos para resolver de diez (10) días hábiles en los arreglos de pago y en los fraccionamientos Treinta (30) días naturales
+Una vez cancelado el convenio de pago, el deudor podrá solicita la devolución del contrato y pagaré en caso de que exista ante la Sección de Servicios Tributarios. Si en un periodo de Treinta (30) días naturales la persona contribuyente no realiza la solicitud se procederá con la destrucción de los documentos de garantía que respaldan la obligación.
+Cuando el deudor se haya retrasado una (1) o dos (2) cuotas en el cumplimiento de su obligación, se les realizara la gestión administrativa o judicial que corresponda.

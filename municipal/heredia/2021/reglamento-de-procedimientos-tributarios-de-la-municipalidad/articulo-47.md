@@ -1,0 +1,1 @@
+Artículo 47°- Informes internos. La Sección de Servicios Tributarios, deberá rendir informes a la Dirección de Servicios y Gestión Tributaria, sobre el estado de las cuentas morosas. A su vez, la Dirección de Servicios y Gestión Tributaria informará trimestralmente a la Alcaldía Municipal sobre la gestión de cobro que se realiza a las cuentas vencidas.

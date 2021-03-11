@@ -1,0 +1,1 @@
+Artículo 62°- Supuestos de incobrabilidad: Una deuda se tendrá por incobrable, previo a estudio, si se determina que cumple con alguno de los supuestos establecidos en la política de Estimación de Incobrabilidad.

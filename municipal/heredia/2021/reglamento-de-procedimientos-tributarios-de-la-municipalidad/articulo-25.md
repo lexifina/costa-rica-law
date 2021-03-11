@@ -1,0 +1,10 @@
+Artículo 25°- Interrupción de la prescripción. El cómputo del plazo de prescripción se aplicará con fundamento en el Artículo 52 del Código de Normas y Procedimientos Tributarios el cual indica que se debe contar a partir del primer (1) día del mes siguiente a la fecha en que el tributo debe pagarse. Las causas de interrupción serán las siguientes:
+a) La notificación del inicio de actuaciones de comprobación del cumplimiento material de las obligaciones tributarias. Se entenderá no producida la interrupción del curso de la prescripción, si las actuaciones no se inician en el plazo máximo de un mes, contado a partir de la fecha de notificación o si, una vez iniciadas, se suspenden por más de dos meses. En los casos de liquidación previa, a que se refiere el artículo 126 de este Código, la interrupción de la prescripción se hará con la notificación del acto administrativo determinativo de la obligación tributaria.
+b) La determinación del tributo efectuada por el sujeto pasivo.
+c) El reconocimiento expreso de la obligación, por parte del deudor.
+d) El pedido de aplazamientos y fraccionamientos de pago.
+e) La notificación de los actos administrativos o jurisdiccionales tendentes a ejecutar el cobro de la deuda.
+f) La interposición de toda petición o reclamo, en los términos dispuestos en el artículo 102 del presente Código.
+g) Se entenderá por no interrumpida la prescripción, si el Ministerio Publico no presenta formal acusación o se dicta sentencia de sobreseimiento a favor de la persona contribuyente, en un plazo máximo de cinco (5) años.
+Interrumpida la prescripción no se considera el tiempo transcurrido con anterioridad y el término comienza a computarse de nuevo a partir del 1 de enero del año calendario siguiente a aquel en el que se produjo la interrupción.
+El cómputo de la prescripción para determinar la obligación tributaria se suspende por la interposición de la denuncia por el presunto delito de fraude a la Hacienda Pública, establecido en el artículo 92 de este Código, hasta que dicho proceso se dé por terminado.

@@ -1,0 +1,1 @@
+Artículo 50°- Prohibiciones. No se permitirán convenios de pago por falta de pago de Alquiler de locales en el Mercado Municipal, por Licencias o Patentes que se esté explotando, ni por otros cobros que nacen de estos conceptos, tampoco por terceros que no cuente con ninguna autorización, poder o sentencia que le de las facultades para realizarlo.

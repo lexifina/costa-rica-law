@@ -1,0 +1,1 @@
+Artículo 28º-Emitida la resolución administrativa que declara la prescripción de lo adeudado, la Sección de Servicios Tributarios de la Municipalidad hará constar en el expediente que la prescripción procede y realizará los cambios respectivos en el Sistema de Información y Administración Municipal.
