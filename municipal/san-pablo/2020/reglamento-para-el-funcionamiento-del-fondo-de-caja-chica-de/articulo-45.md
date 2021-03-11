@@ -1,0 +1,1 @@
+Artículo 45 °- PROHIBICIONES. El fondo de Caja Chica no podrá ser utilizado para el cambio de cheques personales, ni para hacer préstamos a funcionarios (as), ni para efectuar pagos de planilla. Tampoco podrá disponerse de este fondo para actuaciones distintas a las autorizadas por este Reglamento y por la normativa vigente.

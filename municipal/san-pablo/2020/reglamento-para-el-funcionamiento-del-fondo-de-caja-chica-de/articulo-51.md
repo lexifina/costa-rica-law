@@ -1,0 +1,1 @@
+Artículo 51 º- RESPONSABLES POR EL DESTINO DE ADQUISICIONES. El destino de los bienes y servicios adquiridos mediante el fondo de caja chica es responsabilidad de la persona que solicita el vale y de la persona que lo autorizó (su superior jerárquico)

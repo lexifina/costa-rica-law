@@ -1,0 +1,1 @@
+Artículo 10º- MODIFICACIÓN DE LA CAJA CHICA. La Alcaldía Municipal en conjunto con la Dirección de Hacienda Municipal y la Sección de Tesorería Municipal cada dos años y en el mes de enero, revisarán si el fondo de la caja chica, requiere algún incremento, de conformidad con el aumento en el costo de la vida.

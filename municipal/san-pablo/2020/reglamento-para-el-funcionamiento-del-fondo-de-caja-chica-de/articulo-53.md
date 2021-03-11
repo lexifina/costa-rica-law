@@ -1,0 +1,1 @@
+Artículo 53 º - SANCIONES. Las sanciones que correspondan, según lo dispuesto en el artículo anterior, serán aplicadas conforme al procedimiento establecido en el Reglamento Autónomo de Organización y Servicio de la Municipalidad, así como lo regulado en el Código de Trabajo, Código Municipal y Ley General de la Administración Pública.

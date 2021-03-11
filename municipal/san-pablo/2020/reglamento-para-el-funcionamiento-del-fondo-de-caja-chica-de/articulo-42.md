@@ -1,0 +1,1 @@
+Artículo 42º- IMPOSIBILIDAD DE ADQUISICIÓN DE BIENES DECLARADOS COMO ACTIVOS. No se utilizarán fondos de caja chica para adquirir Bienes declarados como Activos según las características que se describen en la política municipal, cargados a la partida presupuestaria de maquinaria y equipo.

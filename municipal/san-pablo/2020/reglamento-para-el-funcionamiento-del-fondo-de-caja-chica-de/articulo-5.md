@@ -1,0 +1,1 @@
+Artículo 5°- RESGUARDO DE FONDOS DE CAJA CHICA. La Caja Chica mantendrá dinero en efectivo en la cuenta bancaria, para ser utilizado exclusivamente en la adquisición de bienes y servicios indispensables e imprevistos y que, en razón de su baja cuantía, el costo de adquirirlos por medio de otra modalidad de ·contratación no se justifique por el beneficio que esto representa.

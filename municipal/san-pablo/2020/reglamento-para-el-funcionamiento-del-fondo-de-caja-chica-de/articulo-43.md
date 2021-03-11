@@ -1,0 +1,1 @@
+Artículo 43º- USO ESPECÍFICO DE LA CAJA CHICA. Por ningún motivo de aceptará el fraccionamiento ilícito en las compras de caja chica, así como tampoco se permitirá variar el objetivo inicial de la compra para lo cual se solicitó el adelanto de caja chica.

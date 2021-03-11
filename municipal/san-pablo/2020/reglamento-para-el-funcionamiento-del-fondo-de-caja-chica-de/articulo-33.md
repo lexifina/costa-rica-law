@@ -1,0 +1,1 @@
+Artículo 33° - REINTEGRO DE FALTANTE A RAÍZ DE ARQUEO EFECTUADO. Si realizado el arqueo, resulta una diferencia, ésta debe ser justificada por la persona responsable de la Caja Chica, quien, además, deberá en forma inmediata depositar el sobrante o reintegrar el faltante, según corresponda de su propio peculio.

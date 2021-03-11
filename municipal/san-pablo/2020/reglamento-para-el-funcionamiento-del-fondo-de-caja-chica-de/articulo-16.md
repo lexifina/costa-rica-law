@@ -1,0 +1,2 @@
+Artículo 16º- EXCEPCIÓN. Excepcionalmente y con la debida justificación las personas encargadas de realizar la compra, podrían presentar el vale para trámite, considerando un solo posible oferente.
+Como excepción, se podrá prescindir de las cotizaciones en casos de erogaciones por fotocopias de documentos urgentes que se realizan por ejemplo en juzgados, Registro, compra de formularios de viabilidad ambiental, o en casos de cursos de capacitación que en el momento los imparta únicamente una casa proveedora.

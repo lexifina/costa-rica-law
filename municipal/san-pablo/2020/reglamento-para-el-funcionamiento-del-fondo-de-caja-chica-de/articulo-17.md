@@ -1,0 +1,2 @@
+Artículo 17 º- COMPROMISO DE ENTREGA A TIEMPO DE DOCUMENTACIÓN. No se permitirá la entrega de otro vale de caja chica a un funcionario que tenga pendiente la liquidación de un vale anterior.
+El responsable de velar por que sea liquidado el vale a los dos días será el Jefe inmediato del funcionario que solicita el vale, de no ser liquidado en el tiempo estipulado, no se entregará un vale a otro funcionario de la misma dependencia.

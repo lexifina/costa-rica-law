@@ -1,0 +1,1 @@
+Artículo 11 º- CUSTODIA DE LA CAJA CHICA. La custodia de la caja chica permanecerá en poder del Tesorero (a) Municipal, salvo ausencias de éste, y rendirá cuentas del mismo a su superior jerárquico. Ante una ausencia prolongada quedará a cargo de la Dirección de Hacienda Municipal.

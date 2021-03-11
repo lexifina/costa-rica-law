@@ -1,0 +1,1 @@
+Artículo 26°- REVISIÓN Y A VAL DE LIQUIDACIÓN. La liquidación del vale queda formalizada cuando el responsable de la Caja Chica revisa todos los comprobantes, dineros y sobrantes requisitos y estampa en ellos el sello de vale liquidado, tanto en el original como en la copia entregada al funcionario.

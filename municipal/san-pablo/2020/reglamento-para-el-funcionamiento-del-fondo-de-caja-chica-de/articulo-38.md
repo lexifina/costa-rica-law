@@ -1,0 +1,1 @@
+Artículo 38º-DEPÓSITO DEL REINTEGRO. El reintegro de caja chica se realizará por medio de transferencia a la cuenta bancaria habilitada para este propósito, que haga referencia a que es para reposición del fondo de caja chica.

@@ -1,0 +1,1 @@
+Artículo 20° - RESGUARDO DE DOCUMENTOS. La persona encargada de realizar la compra, deberá firmar el vale a la hora de recibir el dinero, el original se quedará en la Tesorería Municipal y la copia se entrega al interesado con el fin que lleve el control de los dineros entregados y pendientes de liquidar.

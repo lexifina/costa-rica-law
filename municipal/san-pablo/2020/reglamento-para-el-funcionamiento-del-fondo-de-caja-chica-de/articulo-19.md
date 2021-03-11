@@ -1,0 +1,2 @@
+Artículo 19 °- EXONERACIÓN DEL PAGO DEL IMPUESTO DE VALOR AGREGADO. Para los trámites de compra por medio de fondo fijo de Caja Chica, el funcionario que gestione la adquisición de bienes y servicios, deberá solicitar a la Tesorería Municipal, un comprobante de exoneración del pago del IV A.
+No se reconocerá el importe por concepto de este impuesto, cuando este sea cancelado por el usuario del vale ya que la Municipalidad de conformidad con el artículo 8 del Código Municipal está exenta.

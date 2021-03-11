@@ -1,0 +1,3 @@
+CAPITULO IV
+De los mecanismos de control
+Artículo 28 º- RESPONSABILIDADES DE LA ADMINISTRACIÓN LOCAL. Es responsabilidad de Administración Municipal velar por que se establezcan y mantengan adecuados procedimientos de control interno para el manejo del fondo fijo de caja chica en concordancia con las prácticas sanas de control interno, de acuerdo a la Ley General de Control interno y su reglamento, Código Municipal, Ley contra la corrupción y enriquecimiento ilícito en la función pública y su reglamento y demás normativa que rige el control, administración y fiscalización de los fondos públicos.

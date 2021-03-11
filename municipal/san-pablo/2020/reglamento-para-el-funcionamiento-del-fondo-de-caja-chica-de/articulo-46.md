@@ -1,0 +1,1 @@
+Artículo 46 ° - USO EXCLUSIVO DE FONDOS MUNICIPALES. El Tesorero Municipal no podrá guardar documentos, efectivo o cheques de su propiedad, en los lugares destinados para la custodia de dinero, y por ningún motivo podrá revolver dinero de su peculio con el fondo de caja chica.
