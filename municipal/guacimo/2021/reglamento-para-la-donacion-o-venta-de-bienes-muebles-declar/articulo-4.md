@@ -1,0 +1,1 @@
+Artículo 4º-Bienes no afectos a donación o venta. No podrán ser donados o vendidos aquellos bienes que tuvieren valor histórico; estos bienes deberán ser transferidos gratuitamente a una instancia especializada en su conservación
