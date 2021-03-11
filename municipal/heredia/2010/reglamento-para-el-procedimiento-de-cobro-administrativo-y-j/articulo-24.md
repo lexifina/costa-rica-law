@@ -1,1 +1,0 @@
-Artículo 24.—Los abogados no podrán aceptar casos de litigio en contra de la municipalidad; en forma simultánea a tener ligámenes activos con la municipalidad. El incumplimiento de esta disposición faculta a la Municipalidad para resolver el contrato.

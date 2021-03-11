@@ -1,1 +1,0 @@
-Artículo 28.—Aparte de los informes que de acuerdo a este reglamento deben rendir los abogados, la dirección jurídica podrá utilizar cualquier otro tipo de información adicional necesaria para fiscalizar la gestión de cobro.

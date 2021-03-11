@@ -1,1 +1,0 @@
-Artículo 11.—La empresa estará obligada acatar cualquier lineamiento, política o directriz que gire la Municipalidad en cuanto al trámite de gestión de cobro, sin perjuicio de las condiciones u obligaciones que se establezcan en el respectivo procedimiento de contratación y contrato.

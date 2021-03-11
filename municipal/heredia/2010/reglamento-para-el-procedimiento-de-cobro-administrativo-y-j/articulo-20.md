@@ -1,1 +1,0 @@
-Artículo 20.—Al ser nombrado como abogado del rol de cobro judicial, y una vez firmado el contrato correspondiente, el abogado ingresará a la lista alfabética la cual indicará los abogados que se encuentran al servicio de la Municipalidad y se le asignarán trabajos en el momento en que de acuerdo con su nombre le corresponda la asignación.

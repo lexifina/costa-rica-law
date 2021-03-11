@@ -1,1 +1,0 @@
-Artículo 23.—Todo pago de impuestos, multas e intereses lo realizará el contribuyente a la municipalidad del Cantón Central de Heredia, directamente en las cajas o los medios autorizados para su recaudación.

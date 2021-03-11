@@ -1,1 +1,0 @@
-Artículo 30.—En caso de incumplimiento de deberes, negligencia, impericia, falta de atención o de interés atribuible a los abogados contratados, dará justificante a la Municipalidad para la terminación del contrato, así como plantear las denuncias correspondientes ante la fiscalía del Colegio de Abogados de Costa Rica o ante las instancias judiciales competentes.

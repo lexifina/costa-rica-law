@@ -1,1 +1,0 @@
-Artículo 21.—El abogado contratado deberá excusarse de atender la dirección de cualquier proceso judicial, cuando tuviere vínculos de parentesco o prohibición por afinidad, consanguinidad o cualquier otra causa que le cree un conflicto de intereses con el sujeto pasivo de la obligación, situación que comunicará por escrito a la sección de cobro judicial de forma inmediata.
