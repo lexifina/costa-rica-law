@@ -1,1 +1,0 @@
-Artículo 2º—Supuestos. Sólo se permitirán arreglos de pago para cancelación de deudas por: a) Impuesto de Bienes Inmuebles. b) Servicio de Transporte, disposición final y tratamiento de los desechos sólidos. c) Servicio de Aseo de Vías y Sitios Públicos. d) los intereses por atrasos del principal de las deudas anteriores.

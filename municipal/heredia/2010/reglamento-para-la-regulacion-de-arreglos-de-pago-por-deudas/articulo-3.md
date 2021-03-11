@@ -1,1 +1,0 @@
-Artículo 3º—Procedimiento. Las personas interesadas en un arreglo, deberán presentar solicitud escrita en el formulario diseñado por la Municipalidad para tales efectos. En el caso de personas jurídicas, la solicitud deberá ser firmada por el representante legal, y aportar la certificación de la personería jurídica.

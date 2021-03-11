@@ -1,2 +1,0 @@
-Artículo 8º—Sobre la responsabilidad de la Unidad de Cobro Administrativo. La unidad de Cobro Administrativo será la responsable por el cumplimiento de este reglamento en cuanto al cobro se refiere. El responsable de llevar el control de los arreglos de pago, responderá personalmente de su propio peculio, cuando deje prescribir las deudas aquí reguladas.
-Lo anterior no exime de las responsabilidades propias de su cargo, a la persona responsable del Departamento de Rentas y Cobranzas.
