@@ -1,0 +1,2 @@
+Artículo 53.- Incumplimiento de la presentación de informes a la Municipalidad.
+En caso que la entidad beneficiaria no presente los informes o documentación solicitadas por la Municipalidad, según lo establecen los artículos 51 y 52, la Dirección de Hacienda Municipal procederá a informar a la Municipalidad a través de la Alcaldía Municipal mediante resolución razonada, los hechos e incumplimientos acaecidos para iniciar el proceso de reclamo de la totalidad de los recursos transferidos.

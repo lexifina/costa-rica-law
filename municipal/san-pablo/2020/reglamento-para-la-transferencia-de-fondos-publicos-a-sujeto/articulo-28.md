@@ -1,0 +1,3 @@
+Artículo 28.- Pronunciamiento del Concejo Municipal
+El dictamen que rinde la Alcaldía Municipal a través de resolución administrativa, es de recomendación, por lo tanto, no será vinculante para el Concejo Municipal, por lo que este podrá apartarse de dicha recomendación, para lo cual deberá contar con una mayoría simple de votos y realizarlo mediante acto administrativo técnico motivado.
+El pronunciamiento que realice el Concejo Municipal, ya sea de otorgamiento o denegatoria de la declaración de Idoneidad del sujeto privado, deberá ser por votación de mayoría simple y mediante acto administrativo motivado.

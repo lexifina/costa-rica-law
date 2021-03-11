@@ -1,0 +1,4 @@
+Artículo 42.- Verificación
+El Órgano Competente verificará el cumplimiento de los requisitos anteriores. Una vez cumplidos todos los requisitos y determinada la necesidad o conveniencia del programa o proyecto, la entidad u órgano público podrá asignar los fondos según las disponibilidades financieras.
+Si la solicitud no llenare los requisitos legales, el Órgano Competente le prevendrá al representante legal que los corrija y para ello, le puntualizará los requisitos omitidos o no llenados como es debido.
+En la resolución se prevendrá la corrección dentro del plazo improrrogable de 15 días hábiles, y si no se hiciere, se ordenará su archivo. La resolución en la que se ordene la corrección de la solicitud carecerá de recurso, sí lo tendrá en ambos efectos aquella en la que se declare el archivo de la solicitud.

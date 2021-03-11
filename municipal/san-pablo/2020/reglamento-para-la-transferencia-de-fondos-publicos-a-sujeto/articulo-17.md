@@ -1,0 +1,2 @@
+Artículo 17.- Verificación de requisitos.
+La Alcaldía Municipal remitirá a la Comisión Técnica de Idoneidad el expediente administrativo físico, para que esta proceda a realizar un análisis detallado del cumplimiento de todos y cada uno de los requisitos establecidos el presente reglamento, dicho cumplimiento deberá constar por escrito, debidamente sustentado y firmado por parte de los integrantes de la Comisión Técnica de Idoneidad.

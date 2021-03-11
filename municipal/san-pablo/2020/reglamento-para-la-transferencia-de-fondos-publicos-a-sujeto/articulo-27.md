@@ -1,0 +1,3 @@
+Artículo 27.- Estudio de los dictámenes de recomendación
+La resolución administrativa emitida por la Alcaldía Municipal mediante la cual se recomiende el otorgamiento o denegatoria de la calificación de idoneidad, será remitida al Concejo Municipal junto al expediente administrativo correspondiente.
+El Concejo Municipal contará con un plazo improrrogable de quince días contados a partir del recibo del dictamen de recomendación y el expediente administrativo, periodo durante el cual deberá realizar el análisis correspondiente y determinar el otorgamiento o denegatoria de la idoneidad del sujeto privado.

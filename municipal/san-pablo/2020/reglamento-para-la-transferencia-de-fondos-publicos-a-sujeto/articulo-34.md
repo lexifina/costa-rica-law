@@ -1,0 +1,3 @@
+Artículo 34.- Procedimiento de revocación
+El Concejo Municipal deberá dictar resolución razonada mediante la cual declare el efectivo incumplimiento del sujeto privado, en relación a los preceptos establecidos en el párrafo anterior, lo anterior previa oportunidad suficiente de audiencia y defensa en favor del sujeto privado de conformidad al Título V de la Ley General de Administración Pública.
+Mediante dicha resolución el Concejo Municipal acordará la revocatoria de la declaratoria de idoneidad, debiendo notificar dicha resolución al sujeto privado a través de los medios legales pertinentes y con las formalidades que establece el ordenamiento jurídico.

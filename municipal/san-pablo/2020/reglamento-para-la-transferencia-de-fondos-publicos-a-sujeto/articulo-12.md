@@ -1,0 +1,2 @@
+Artículo 12.- Expediente Administrativo.
+La Alcaldía Municipal deberá elaborar un expediente administrativo con toda la documentación presentada por el sujeto privado, el cual deberá custodiar, ordenar y foliar, dicho expediente contendrá toda la información que se genere y sustente dentro del proceso de trámite de cada sujeto privado que solicite la calificación de idoneidad, indistintamente de su resultado.
