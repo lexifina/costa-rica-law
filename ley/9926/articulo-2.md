@@ -6,3 +6,5 @@ Artículo 2°:Apruébense los siguientes Egresos Ordinarios y Extraordinarios de
 (Modificado por el artículo 1° del decreto ejecutivo N° 42864 del 15 de febrero del 2021)
 (Así reformado por el artículo 2° de la ley N° 9955 del 19 de febrero del 2021)
 (Así reformado por el artículo 3° de la ley N° 9955 del 19 de febrero del 2021)
+(Así reformado por el artículo 2° de la ley N° 9970 del 12 de marzo del 2021)
+(Así reformado por el artículo 3° de la ley N° 9970 del 12 de marzo del 2021)
