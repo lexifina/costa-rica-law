@@ -22,3 +22,4 @@ Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y 
 | 7 | 2020-09-23 | Reglamento 5769 (2020-09-23) |
 | 8 | 2020-10-14 | Reglamento 5775 (2020-10-14) |
 | 9 | 2021-01-27 | Reglamento 5799 (2021-01-27) |
+| 10 | 2021-03-15 | Reglamento 5812 (2021-03-15) |
