@@ -13,3 +13,4 @@ Procedimiento para disponer de los vehículos a la orden de los Juzgados Penales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-11 | la propia norma |
+| 2 | 2021-03-15 | Circular 56 (2021-03-15) |
