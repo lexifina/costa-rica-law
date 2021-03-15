@@ -15,3 +15,4 @@ Reglamento a la Ley N° 7555 "Ley de Patrimonio Histórico-Arquitectónico de Co
 | --- | --- | --- |
 | 1 | 2005-11-14 | la propia norma |
 | 2 | 2007-02-20 | Decreto Ejecutivo 33596 (2007-02-20) |
+| 3 | 2021-03-15 | Decreto Ejecutivo 42922 (2021-03-15) |
