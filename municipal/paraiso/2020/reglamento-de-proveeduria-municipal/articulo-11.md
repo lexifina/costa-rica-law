@@ -1,0 +1,2 @@
+Artículo 11.-Conformación del expediente. Una vez que se adopte la decisión de iniciar el procedimiento de contratación, se formará un expediente electrónico según corresponda, al cual se le incorporarán los estudios previos que motivaron el inicio de éstos cuando corresponda y todas las actuaciones internas o externas relacionadas con la contratación.
+Cuando haya motivos de fuerza mayor, caso fortuito o excepción legal comprobados se podrá realizar el procedimiento a través de expediente físico atendiendo de conformidad con la legislación vigente.

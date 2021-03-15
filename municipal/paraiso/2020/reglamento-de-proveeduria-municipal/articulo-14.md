@@ -1,0 +1,1 @@
+Artículo 14.-Actualización del registro. El Departamento de Proveeduría invitará, al menos una vez al año, mediante el Diario Oficial La Gaceta, a todos los potenciales oferentes interesados en contratar con la Municipalidad de Paraíso, a incorporarse en el sistema integrado de compras públicas

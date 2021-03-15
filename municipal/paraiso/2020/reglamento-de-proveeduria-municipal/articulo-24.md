@@ -1,0 +1,1 @@
+Artículo 24.-Comunicación. La Proveeduría Municipal será la encargada de comunicar a los oferentes a través del Sistema Integrado de Compras Públicas, los acuerdos o resoluciones de adjudicación, esto dentro de los plazos y parámetros previstos en la Ley de Contratación Administrativa y su Reglamento.

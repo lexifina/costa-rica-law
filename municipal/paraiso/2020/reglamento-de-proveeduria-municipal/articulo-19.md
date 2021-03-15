@@ -1,0 +1,1 @@
+Artículo 19.-Recepción y apertura de las ofertas. Las ofertas deberán presentarse en el Sistema de Compras Públicas, a más tardar en la fecha y hora señaladas en el cartel para la recepción y apertura de ofertas. La oferta deberá estar acompañada de todos los documentos y atestados solicitados en el cartel respectivo.
