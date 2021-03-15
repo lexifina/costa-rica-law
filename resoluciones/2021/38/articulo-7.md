@@ -1,0 +1,1 @@
+Artículo 7- Recibidos los documentos indicados en el artículo 5 de la presente resolución se procederá a emitir y notificar la resolución de otorgamiento de autorización de permanencia legal en el país bajo la categoría migratoria de residente permanente y se procederá con la entrega del documento de acreditación migratoria correspondiente.

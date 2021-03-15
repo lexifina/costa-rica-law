@@ -1,0 +1,6 @@
+SECCIÓN III
+CERTIFICACIONES PARA EL TRIBUNAL SUPREMO DE ELECCIONES
+Artículo 10- A efectos de realizar el proceso indicado en el párrafo segundo del artículo 03 de la presente resolución, se habilita a las Asociaciones detalladas en el inciso a) del artículo 5 de este documento, para que remitan a esta Dirección General, por los medios que se habilitaran para ello, el nombre de las personas indígenas que pretenden realizar proceso de naturalización ante el Tribunal Supremo de Elecciones al amparo de la ley 9710. Para ello se habilitan los siguientes períodos:
+a. Del 15 de marzo al 14 de mayo, ambos de 2021, para los listados de personas indígenas a las que se les otorgó un estatus migratorio antes del 10 de octubre de 2019, se encuentre vigente o no su documento de acreditación migratoria.
+b. Del 17 de mayo al 16 de julio, ambos de 2021, para los listados de personas que presentaron alguna gestión ante esta Dirección General para regularizar su situación migratoria antes de la citada fecha y que se encuentre pendiente de resolución.
+Con posterioridad a los períodos indicados no se recibirán listados de personas que pretendan optar por ese beneficio debiendo las personas optar por los procesos ordinarios establecidos para la obtención de certificaciones de estatus migratorio y expedientes ante esta Dirección General.
