@@ -1,0 +1,1 @@
+Artículo 2.- Objeto. El presente reglamento regula los términos, requisitos y condiciones para el otorgamiento de concesiones para comercializar productos de azar de la Junta de Protección Social por medio de la web, de acuerdo con las siguientes categorías: loterías electrónicas, apuestas y eventos y los Juegos Lotéricos.

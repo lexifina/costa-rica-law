@@ -1,0 +1,29 @@
+Artículo 9.- De las Obligaciones del concesionario. Serán obligaciones del concesionario las establecidas en el presente Reglamento, así como las estipuladas en el "Convenio Concesión para la comercialización de loterías y juegos de azar por medio de la web" y el "Modelo de Negocio Concesión para la comercialización de loterías y juegos de azar por medio de la Web"
+Para tales efectos se establecen como obligaciones:
+1. Crear una plataforma tecnológica, en su totalidad en el idioma de español, que permita comercializar loterías electrónicas, apuestas y eventos y los Juegos Lotéricos por medio de la Web, que esté interconectada en línea y tiempo real con LA JUNTA y que cumpla con los requerimientos tecnológicos establecidos en el "Modelo de Negocio Concesión para para la comercialización de lotería y juegos de azar por medio de la Web".
+2. Velar porque la plataforma de seguridad cuente con los certificados de ciberseguridad de dominio y SSL (Certificado Secure Socket Layer).
+3. Recaudar el dinero de las ventas realizadas y realizar su depósito de acuerdo con el modelo económico que se plantea en el presente convenio, en el artículo 13 del Reglamento, y demás disposiciones tributarias que se dispongan en el territorio costarricense.
+4. Cumplir con todas la normativa, disposiciones y obligaciones tributarias que se dispongan en el territorio costarricense.
+5. Comunicar LA JUNTA respecto de cambios del representante legal, así como recomposición accionaria de la responsabilidad del CONCESIONARIO.
+6. Garantizar el buen estado de operación, conservación y mantenimiento de los sistemas utilizados para comercializar loterías electrónicas, apuestas y eventos y los Juegos Lotéricos de la Junta de Protección Social por medio de la web.
+7. Brindar un servicio de calidad que satisfaga el interés público de LA JUNTA y el de los jugadores, el cual se evaluará para constatar su correcta operación por medio de revisiones
+8. Prestar sus servicios con relación a la Operación de la Plataforma de forma continua, en un horario de lunes a domingo 24/7, excepto que LA JUNTA expresamente le establezca otro horario.
+9. Poner a disposición de los jugadores un centro de llamadas que brinde servicios en el horario, los días y de acuerdo con las condiciones que defina LA JUNTA.
+10. Responder en el término máximo de tres días hábiles toda petición, queja o reclamo que se genere por jugadores o terceros interesados, en relación con la operación de los juegos.
+11. Pagar oportunamente los premios a los jugadores y depositar en un plazo máximo de dos días hábiles los montos correspondientes.
+12. Utilizar en forma debida la imagen institucional de LA JUNTA y sus productos, así como utilizar únicamente aquellos logos que le sean definidos por LA JUNTA, respetando el libro de marca de la Institución.
+13. Suministrar formalmente y en los plazos definidos toda la información y los reportes en línea que sean requeridos por LA JUNTA.
+14. Monitorear de manera mensual todos los procesos que se realicen para cumplir con los procedimientos establecidos y así verificar que se estén realizando acorde a lo estipulado, para lo cual emitirá el informe de resultados a la Gerencia de Producción y Comercialización.
+15. Remitir los estados financieros del CONCESIONARIO de forma semestral o cuando LA JUNTA así lo requiera.
+16. Permitir el ejercicio de las labores de fiscalización, vigilancia y control por parte de LA JUNTA, y de las demás autoridades competentes.
+17. Mantener indemne a LA JUNTA, de toda reclamación, demanda, acciones legales o similares, originados en reclamaciones de terceros y que se deriven de sus actuaciones u omisiones, o de las de sus subcontratistas, proveedores o dependientes.
+18. Asesorar a LA JUNTA sobre estrategias de mercadeo específicas para promover el registro de usuarios en las Plataformas Tecnológicas.
+19. Brindar informes de resultados trimestrales a la Gerencia de Producción y Comercialización acerca del correcto desarrollo y comercialización de los juegos vendidos por EL CONCESIONARIO.
+20. Capacitar al personal de LA JUNTA, o a quien está indique en el uso de las herramientas del sistema de control, supervisión, inspección y monitoreo de la Plataforma Tecnológica y entregar a LA JUNTA los manuales de usuario de cada una de las capacitaciones
+21. Diseñar una política de juego responsable e incorporar parámetros que permitan medirlo en la plataforma.
+22. Brindar informes trimestrales a la Gerencia de Producción y Comercialización con respecto a la información que requiera LA JUNTA con respecto al objeto de este convenio.
+23. Brindar informes mensuales a la Gerencia de Producción y Comercialización con respecto a resultados propios de los jugadores o de cualquier otra información relacionada con el objeto de este convenio que solicite LA JUNTA.
+24. Cumplir con cualquier otra disposición que le señale LA JUNTA y aceptar expresamente y sin condicionamientos dar aplicación al Reglamento para el otorgamiento de concesiones para la comercialización de loterías y juegos de azar por medio de web, al presente convenio y al "Modelo de Negocio Concesión para la comercialización de loterías y juegos de azar por medio de la Web" para ventas por Web" y sus modificaciones.
+25. Cumplir con la normativa vigente relativas a la protección del consumidor en el contexto del comercio electrónico.
+26. Contar con un Oficial de Cumplimiento que tenga la obligación de vigilar la adecuada implementación y funcionamiento del Sistema de Prevención del Lavado de Activos y Financiamiento del Terrorismo en las actividades llevadas a cabo por el concesionario.
+27. EL Concesionario debe utilizar diversos medios para identificar a los jugadores que se registren en la plataforma tecnológica e incorporar el compromiso de los jugadores garantizar y responder, en cualquier caso, por la veracidad, exactitud, vigencia y autenticidad de los datos ingresados.

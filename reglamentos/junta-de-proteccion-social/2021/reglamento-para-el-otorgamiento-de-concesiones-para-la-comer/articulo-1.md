@@ -1,0 +1,43 @@
+JUNTA DE PROTECCIÓN SOCIAL
+LA JUNTA DIRECTIVA DE LA JUNTA DE PROTECCIÓN SOCIAL
+En ejercicio de las facultades que le otorgan los artículos 2 y 3 de la Ley No. 8178 "Autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de la distribución de rentas de las loterías nacionales" y el artículo 8 del Reglamento Orgánico de la Junta de Protección Social,
+CONSIDERANDO:
+Primero: Que de conformidad con el artículo 2 de la Ley No. 8718, Autorización para el cambio de nombre de la JUNTA Protección Social y establecimiento de la distribución de rentas de las Loterías Nacionales, en lo que interesa se indica: "La Junta de Protección Social es un ente descentralizado del Sector Público; posee personalidad jurídica y patrimonio propios, así como autonomía administrativa y funcional para el desempeño de sus funciones. Tendrá a su cargo, en forma exclusiva, la creación, administración, venta y comercialización de todas las loterías, tanto las preimpresas como las electrónicas, las apuestas deportivas, los juegos, los video-loterías y otros productos de azar, en el territorio nacional, a excepción de los casinos; sin perjuicio de las concesiones o autorizaciones que otorgue para la administración o comercialización de estos productos, en cumplimiento de los fines públicos asignados, para la aprobación de la concesión o autorización respectiva, será necesario el voto de dos terceras partes de los miembros de la Junta Directiva".
+Segundo: La Junta de Protección Social para cumplir con la finalidad pública de generar recursos a través de la venta de sus productos, con fundamento en lo establecido en los artículos 4 y 113.2 de la Ley General de la Administración Pública, se ve en la necesidad de implementar nuevas formas de comercialización de las loterías electrónicas, apuestas y eventos y los Juegos Lotéricos en el territorio nacional dado que tiene el compromiso social de generar utilidades entre las organizaciones sociales.
+Tercero: En virtud de lo anterior siendo LA JUNTA la entidad exclusiva para administrar, crear, vender y comercializar diferentes modalidades de juego, visualiza una mejora y oportunidad de negocio en la incursión en diferentes estrategias de comercialización a través de concesionarios, que permitan que sin generar exclusividad alguna, se puedan brindar concesiones para una categoría y así comercializar el portafolio de productos que proponga el concesionario y avale LA JUNTA, dichas categorías serán previamente convenidas, logrando captar diferentes segmentos de mercado, en procura de generar mayores utilidades.
+Cuarto: Una de las principales ventajas es que LA JUNTA puede concesionar la comercialización de los productos, a las empresas que reúnan todos los requisitos establecidos para que ofrezca diferentes modalidades de juego en las categorías: loterías electrónicas, apuestas y eventos y los Juegos Lotéricos en el mercado costarricense y proveer de plataformas donde puedan ser jugados, esto permite obtener ganancias y buscar alternativas para ampliar sus segmentos de mercado, como parte del reto de innovación al que nos vemos inmersos en un mundo cambiante.
+Por tanto, emite el siguiente
+"Reglamento para el otorgamiento de concesiones para la comercialización de loterías
+y juegos de azar por medio de la web"
+CAPITULO I
+DEFINICIONES Y DISPOSICIONES GENERALES
+Artículo 1.- Definiciones. Para los efectos del presente reglamento, se establecen las siguientes definiciones:
+Apuestas: Disposición por parte del jugador de una cierta suma de dinero para participar en un sorteo específico, con la posibilidad por azar de obtener un premio.
+Bonos: Son aquellos premios entregados al jugador por parte del concesionario, buscando promocionar el juego o la plataforma tecnológica.
+Certificado Secure Socket Layer: conocido con las siglas SSL, es un protocolo de seguridad que utiliza para la transmisión de datos entre un servidor y un usuario o a través de Internet, con el fin de asegurar que esta transmisión sea segura. Este protocolo se basa en la utilización de un sistema de cifrado que emplea un algoritmo - clave pública y clave privada - con una clave de seguridad. Esta solo es conocida por la máquina del usuario conectado y el servidor al que se conecta.
+CIBELAE: Corporación Iberoamericana de Loterías y Apuestas de Estado.
+Concesión: Es un acto administrativo que implica el otorgamiento por parte de la administración de un derecho de explotación para la comercialización de loterías y juegos de azar, por un período determinado, a un tercero o empresa privada.
+Concesionario: Persona jurídica que cumple con las condiciones, requisitos y especificaciones para comercializar y realizar el cambio de premios de las loterías electrónicas, apuestas y eventos y los Juegos Lotéricos de la Junta de Protección Social por medio de la web y el cual está certificado por una entidad internacional autorizada.
+Derecho de Explotación: Monto anual pagado por el concesionario por el derecho de comercialización en cada una de las categorías comprendidas en loterías electrónicas, apuestas y eventos y los Juegos Lotéricos.
+Garantía de Cumplimiento: Garantía económica que rinde el concesionario con el objeto de garantizar el debido y correcto cumplimiento de todas las obligaciones y compromisos que asume con la concesión otorgada.
+Ingresos Netos: Es el resultado de las ventas realizadas menos el pago de premios efectuado de los productos adquiridos en la plataforma tecnológica.
+Jackpots: Premio adicional al plan de premios, que permite incentivar las ventas y obtener mayores opciones de ganar premios.
+Juegos Ilegales: Todos los juegos no autorizados por la Junta de Protección Social.
+Juegos Lotéricos: Son juegos cuyas apuestas y premios están determinados por la probabilidad estadística de acertar la combinación elegida; mientras menores sean las probabilidades de obtener la combinación correcta mayor es el premio.
+Juegos operados por internet: Aquellos en los que la compra del juego de azar y el pago de premios se realizan por medios que no requieren la presencia del jugador, previo su registro en el sitio o portal autorizado y cuya mecánica se soporta en la intervención de un generador de número aleatorio o en la ocurrencia de eventos reales cuyos resultados no son controlados por el concesionario.
+Jugador: Persona mayor de edad que adquiere loterías electrónicas, apuestas y eventos y los Juegos Lotéricos por medio de la Web.
+Junta: Junta de Protección Social.
+Junta Directiva: El máximo órgano jerárquico de LA JUNTA
+Libro de Marca: Documento que reúne las herramientas básicas para el uso correcto y aplicación gráfica del logotipo y la simbología de la marca de la Junta de Protección Social y los productos de azar autorizados.
+Loterías Electrónicas: Juego de lotería emitida por medio de sistemas electrónicos.
+Medios de pago: Medios habilitados para la adquisición de loterías electrónicas, apuestas y eventos y los Juegos Lotéricos por medio de la Web.
+Oficial de Cumplimiento: es la persona responsable de vigilar la adecuada implementación y funcionamiento del Sistema de Prevención del Lavado de Activos y Financiamiento del Terrorismo en las actividades llevadas a cabo por el concesionario.
+Plan de contingencia: Plan preventivo, predictivo y reactivo que presenta una estructura estratégica y operativa que ayudará a controlar una situación de emergencia y a minimizar sus consecuencias negativas.
+Plataforma tecnológica: Sistema que permite comercializar loterías electrónicas, apuestas y eventos y los Juegos Lotéricos en línea y tiempo real.
+Porcentaje sobre la utilidad bruta: Monto calculado sobre el ingreso de las ventas del concesionario y que deberá depositar a la Junta de Protección Social.
+Premio: Retribución económica que se otorga al jugador que resultó favorecido en un sorteo.
+Registro del Jugador: Registro único que se realiza en la plataforma tecnológica de un determinado concesionario y la cual permite al jugador acceder a las actividades o modalidades de juego disponibles.
+Sorteo: El proceso de selección al azar, debidamente fiscalizado por personal de LA JUNTA y por un funcionario judicial, que determina la combinación ganadora de un premio.
+Tarjetas prepago: Es una modalidad de pago en la cual el jugador adquiere una tarjeta recargable, en la cual efectúa una carga de dinero y puede realizar operaciones hasta consumir el total del importe cargado para las compras que realizará en la plataforma tecnológica.
+Web: Plataforma tecnológica por medio de la cual el Concesionario comercializa los productos de la categoría de juego concesionada.
+World Lottery Association: Asociación Mundial de Loterías

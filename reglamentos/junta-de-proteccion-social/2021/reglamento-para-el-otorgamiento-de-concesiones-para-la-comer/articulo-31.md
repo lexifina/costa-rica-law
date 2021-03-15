@@ -1,0 +1,2 @@
+Artículo 31.- Promoción. El concesionario se compromete a presentar para revisión de la Gerencia de Producción y Comercialización, quién por su parte remitirá a las áreas para que emitan el criterio técnico correspondiente las propuestas de estrategias, mejoras en los juegos y promociones que permitan que el jugador se interese en el producto y compre continuamente.
+La Gerencia de Producción y Comercialización por su parte gestionará las aprobaciones internas que correspondan sustentados en los criterios técnicos emitidos internamente.

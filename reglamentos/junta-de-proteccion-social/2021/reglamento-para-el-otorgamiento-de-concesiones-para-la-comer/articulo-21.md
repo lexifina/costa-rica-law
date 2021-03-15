@@ -1,0 +1,1 @@
+Artículo 21.- Exclusión de Responsabilidad. El registro que realice el jugador en la Plataforma del concesionario, no supone que se concierne contrato alguno entre los jugadores, ni entre éstos y LA JUNTA, quedando limitada la actividad de quienes participan a pagar el importe correspondiente y efectuar sus transacciones de compra en la forma establecida por estas normas.

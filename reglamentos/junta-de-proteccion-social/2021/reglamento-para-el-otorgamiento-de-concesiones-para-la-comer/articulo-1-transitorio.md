@@ -1,0 +1,6 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I
+LA JUNTA llevará a cabo un plan piloto que consiste en otorgamiento de concesiones para comercializar loterías y juegos de azar por medio de la web, por un plazo de un año, contado a partir de la primera transacción registrada por cada Concesionario, con el propósito de determinar las condiciones del mercado y valorar la oferta sobre la demanda.
+La invitación para participar como eventual concesionario se realizará mediante publicación en el Diario Oficial La Gaceta y también por medios digitales. La JUNTA se reserva la posibilidad de realizar la publicación de la invitación de la World Lottery Association y de Cibelae.
+Para este plan piloto, LA JUNTA otorgará un máximo de dos concesiones por cada categoría a saber lotería electrónica, apuestas y eventos y Juegos Lotéricos. Para seleccionar los Concesionarios, LA JUNTA aplicará el proceso de selección, definido en el "Modelo de Negocio Concesión para la comercialización de loterías y juegos de azar por medio de la Web".
+LA JUNTA definirá la cantidad de concesiones a otorgar de acuerdo al comportamiento del mercado identificado en el piloto y revisará las condiciones del mercado de forma semestral para valorar si se puede incrementar la cantidad de concesionarios.

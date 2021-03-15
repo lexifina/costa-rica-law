@@ -1,0 +1,2 @@
+Artículo 12.- Del Depósito de Garantía por Cumplimiento. El concesionario deberá rendir un depósito de garantía para asegurar el fiel cumplimiento de las obligaciones asumidas por comercializar los productos de la categoría concesionada, de acuerdo con los parámetros y condiciones definidos en el Convenio "Concesiones para la comercialización de loterías y juegos de azar por medio de la Web".
+Este monto de esta garantía será definido por la Gerencia de Producción y Comercialización y aprobado por la Junta Directiva de LA JUNTA.

@@ -1,0 +1,1 @@
+Artículo 3.- Ámbito de Aplicación. Este reglamento será de aplicación para las personas jurídicas que soliciten una concesión y se constituyan como concesionarios en una o varias de las siguientes categorías: loterías electrónicas, apuestas y eventos y los Juegos Lotéricos.

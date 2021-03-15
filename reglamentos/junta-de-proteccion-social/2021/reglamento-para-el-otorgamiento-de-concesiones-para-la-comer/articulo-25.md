@@ -1,0 +1,2 @@
+Artículo 25.- Término para Reclamos. En caso de que exista disconformidad por parte de algún jugador sobre el pago o no de un premio o sobre el monto que se haya pagado, se podrá presentar el respectivo reclamo ante la Unidad de Pago de Premios de LA JUNTA responsable de resolver los reclamos de premios, dentro de los 60 días naturales indicados en el artículo 24.
+La Unidad de Pago de Premios, atenderá, resolverá y comunicará al interesado su resolución, dentro del plazo de 10 días hábiles al recibido de la solicitud firmada por el reclamante.

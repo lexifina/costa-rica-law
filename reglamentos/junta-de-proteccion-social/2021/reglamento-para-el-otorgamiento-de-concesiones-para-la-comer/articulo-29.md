@@ -1,0 +1,1 @@
+Artículo 29.- Medios de Pago. Los medios de pago para adquirir los productos y pagar los premios que ofrezca la plataforma tecnológica a los jugadores, deberá ser previamente comunicados a la Gerencia de Producción y Comercialización de LA JUNTA para su aprobación.

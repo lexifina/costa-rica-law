@@ -1,0 +1,2 @@
+TRANSITORIO II
+LA JUNTA otorgará, bajo el plan piloto de un año, dos concesiones por cada categoría de juego a saber: Loterías electrónicas, apuestas y eventos y productos de azar. Compete a la Junta Directiva la aprobación de cada concesión, previo al análisis de las ofertas y recomendación técnica de la Gerencia de Producción y Comercialización, de acuerdo a los aspectos definidos en el Modelo de Negocio "Concesión para la comercialización de loterías y juegos de azar por medio de la Web".

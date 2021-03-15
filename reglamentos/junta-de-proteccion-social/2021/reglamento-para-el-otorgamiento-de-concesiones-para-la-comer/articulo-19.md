@@ -1,0 +1,2 @@
+Artículo 19.- De la Regulación de los juegos. El concesionario se compromete a redactar las propuestas de Reglamentos, Términos y Condiciones, Políticas de Seguridad de la Información, Privacidad y Protección de Datos Personales correspondientes, que regulen los juegos, su comercialización y el uso de la Plataforma Tecnológica.
+LA JUNTA ostenta la potestad exclusiva de otorgar la aprobación final de estas propuestas.

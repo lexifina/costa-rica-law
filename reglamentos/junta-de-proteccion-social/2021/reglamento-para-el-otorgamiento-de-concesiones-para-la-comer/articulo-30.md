@@ -1,0 +1,2 @@
+Artículo 30.- Publicidad. El concesionario se compromete a presentar para revisión de la Gerencia de Producción y Comercialización, quién por su parte remitirá a las áreas para que emitan el criterio técnico correspondiente, un plan de medios que detalle las estrategias comerciales que se van a utilizar para dar a conocer la plataforma tecnológica y los productos que en ésta se ofrezcan.
+La Gerencia de Producción y Comercialización por su parte gestionará las aprobaciones internas que correspondan sustentados en los criterios técnicos emitidos internamente.

@@ -1,0 +1,2 @@
+Artículo 17.- De los Requerimientos Tecnológicos. La plataforma tecnológica que utilice el concesionario, deberá cumplir con los requerimientos tecnológicos establecidos en Modelo de negocio "Concesión para la comercialización de loterías y juegos de azar por medio de la Web."
+Compete al Departamento de Tecnologías de la Información de LA JUNTA verificar y validar que la plataforma tecnológica cumple con los requerimientos tecnológicos establecidos.
