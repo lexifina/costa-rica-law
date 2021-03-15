@@ -1,0 +1,2 @@
+CAPÍTULO V
+Artículo 16 º - Disposiciones finales; En todo lo no previsto en este reglamento, aplicarán supletoriamente las disposiciones del Código Municipal, el Código de Normas y Procedimientos Tributarios, la Ley de Cobro Judicial, la Ley General de la Administración Pública, la Ley General de Caminos Públicos, la Ley General de Salud, la Ley de Aguas, la Ley de Construcciones y su reglamento, el Plan Regulador Municipal o en su defecto el Plan Regulador del Gran Área Metropolitana y cualquier otra ley o reglamento relacionado con el tema.

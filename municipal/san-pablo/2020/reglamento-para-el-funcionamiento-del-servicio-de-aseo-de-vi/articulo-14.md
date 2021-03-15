@@ -1,0 +1,2 @@
+Artículo 14º -Plazo: Con el fin de que los usuarios cumplan con los trabajos u obras cuya realización le fueron apercibidas, se establecerá un plazo entre tres y diez días hábiles.
+Cuando la magnitud de los trabajos a realizar, o los trámites que deba cumplir el administrado ante instancias externas así lo justifiquen, ese plazo podrá prorrogarse hasta por un mes a solicitud del interesado y ajuicio del proceso de Gestión Ambiental, quien deberá otorgar la prórroga por escrito.

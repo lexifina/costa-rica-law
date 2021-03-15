@@ -1,0 +1,1 @@
+Artículo 9° -Utilidad para el desarrollo: El diez por ciento de utilidad para el desarrollo que contempla la tarifa del servicio de aseo de vías y sitios públicos, se destinará prioritariamente a impulsar el mejoramiento en la prestación del servicio, tanto con recursos humanos, técnicos, herramientas y equipos entre otros.

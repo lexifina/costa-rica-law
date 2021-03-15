@@ -1,0 +1,1 @@
+Artículo 8° -Forma y periodicidad de cobro: El cobro se hará en forma mensual, pero su vencimiento será trimestral por período vencido y cubrirá el año del mes de enero al mes de diciembre de cada periodo.

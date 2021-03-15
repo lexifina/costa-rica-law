@@ -1,0 +1,1 @@
+Artículo 6°-.Obligados al pago de la tasa. La tasa por el servicio de aseo de vías y sitios públicos, deberán pagarla todos los propietarios o poseedores por cualquier título de bienes inmuebles ubicados en el Cantón de San Pablo de Heredia sin excepción.

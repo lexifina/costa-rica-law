@@ -1,0 +1,3 @@
+Artículo 13 º -Verificación: Corresponderá a la Sección de Gestión Ambiental y al Proceso de Inspectores Municipales, verificar el cumplimiento de las obligaciones y prohibiciones establecidas en este Reglamento.
+En caso de que se determine algún incumplimiento, se pondrá en conocimiento del gestor ambiental, el cual deberá cursar una notificación al propietario o poseedor por cualquier título del inmueble y en la que se indiquen los trabajos u obras que deberá realizar y el plazo con que cuenta para ejecutarlas.
+También podrá denunciar el caso a la asesoría legal municipal o a instituciones competentes, según corresponda.
