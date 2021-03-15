@@ -1,0 +1,4 @@
+Artículo 83- De la devolución de dinero a favor del usuario o del crédito a favor del servicio. El usuario podrá solicitar a AyA, devoluciones de dinero por saldos a favor, originados en la duplicación de pagos, modificaciones en los montos facturados que previamente se cancelaron y otros servicios que el AyA no ejecutó y fueron cancelados por el usuario.
+Si el servicio que va a ser objeto de una devolución de dinero presenta una deuda pendiente de pago, se aplicará la cancelación a la deuda y corresponderá la devolución, si existiere algún saldo a favor.
+Si el servicio que va a ser objeto de una devolución de dinero no presenta una deuda corresponderá la devolución al usuario, dentro de un plazo de veinte días.
+En caso de saldos a favor que no cuenten con solicitud expresa de devolución, se aplicará de oficio a los siguientes periodos de facturación hasta agotar el importe.

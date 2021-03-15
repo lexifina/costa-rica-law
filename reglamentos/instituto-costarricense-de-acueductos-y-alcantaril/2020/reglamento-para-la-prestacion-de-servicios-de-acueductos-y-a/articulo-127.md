@@ -1,0 +1,2 @@
+Artículo 127.- De la aprobación del suministro por parte de la Junta Directiva del AyA.
+La aprobación para el suministro de agua en gran volumen en los casos previstos del inciso a) al inciso e) del artículo 124 de este reglamento, corresponderá a la Junta Directiva del AyA como órgano responsable de fiscalizar las operaciones, acordar las inversiones y la política tarifaria institucional amparada en el marco regulatoria que fije la ARESEP, observando la satisfacción del interés público.

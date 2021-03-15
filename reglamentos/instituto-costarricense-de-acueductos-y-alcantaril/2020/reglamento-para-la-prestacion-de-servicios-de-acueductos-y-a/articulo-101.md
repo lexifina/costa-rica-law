@@ -1,0 +1,1 @@
+Artículo 101- De los medios de pago. El monto de la facturación deberá ser cancelado por cualquiera de los medios y en los lugares de recaudación que sean autorizados por AyA, antes y durante la fecha de vencimiento. Caso contrario, el servicio podrá ser suspendido y se cobrarán los recargos correspondientes.

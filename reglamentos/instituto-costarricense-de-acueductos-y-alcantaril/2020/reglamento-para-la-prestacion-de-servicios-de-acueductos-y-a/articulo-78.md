@@ -1,0 +1,9 @@
+SECCIÓN CUARTA
+De la información que emite AyA en materia de saneamiento.
+Artículo 78- De la solicitud de información para el trámite de exoneración del Reporte Operacional ante el Ministerio de Salud. Con el fin de tramitar “La Exoneración del Reporte Operacional de Vertido ante el Ministerio de Salud”, los interesados deberán presentar ante las Plataformas de Servicio de AyA, los siguientes requisitos:
+a) Formulario de solicitud, proporcionado por AyA, establecido en el Decreto N°36304-SMINAET, completo y firmado por el titular del inmueble o su representante legal.
+De acuerdo con la verificación y subsanación de condiciones necesarias para la aprobación de servicios establecidas de manera general en el artículo 15 de este Reglamento, AyA verificará a través de las plataformas virtuales oficiales y disponibles, las siguientes condiciones:
+I. Certificaciones registrales de Planos Catastrados.
+II. Certificaciones registrales o administrativas de personerías jurídicas vigentes, apoderados con facultades de representantes judiciales y extrajudiciales o facultados al efecto, albaceas, tutores, curadores.
+En caso de que para la propiedad no exista plano catastro, o para efectos de segregación o fraccionamientos, debe presentar un plano de agrimensura que cumpla con lo estipulado en el Artículo 2 inciso q) del Decreto Ejecutivo N°34331, Reglamento de la Ley de Catastro Nacional vigente con su respectiva minuta de presentación y el correspondiente sello del CFIA conforme a lo dispuesto en el Reglamento Especial del Administrador de Proyectos de Topografía (APT) del CFIA vigente y sus reformas o las normativas que los sustituya. De existir factibilidad tecnológica, AyA eximirá al solicitante de la presentación de este requisito.
+AyA emitirá la constancia la cual es gratuita y para tales efectos contará con un plazo de 15 días hábiles para resolver la solicitud.

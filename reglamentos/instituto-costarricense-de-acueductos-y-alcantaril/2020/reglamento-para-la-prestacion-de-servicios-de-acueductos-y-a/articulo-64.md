@@ -1,0 +1,3 @@
+Artículo 64- Del recibo de obras primarias. Para la emisión de la resolución de Recepción de Obras, el desarrollador o interesado deberá aportar el informe emitido por La Unidad de Ingeniería de Bomberos, con el único fin de verificar la definición, ubicación y tipo de hidrante conforme a la normativa vigente al momento de aprobar los planos constructivos.
+Asimismo, el desarrollador debe evidenciar que fueron restituidas a su estado anterior todas las áreas públicas intervenidas como consecuencia de las obras de interconexión.
+Cumplido lo anterior, el AyA emitirá la resolución de Recepción de Obra en un plazo máximo de 8 días hábiles.

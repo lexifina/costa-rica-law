@@ -1,0 +1,3 @@
+Artículo 82- De la solicitud de traslado de acometida. Para tales efectos deberá cumplir con el trámite de solicitud de conexión de servicio, aportando los requisitos definidos en el artículo 68 y siguientes de este reglamento, exceptuando; la constancia de disponibilidad de servicios y permiso municipal de construcción. AyA realizará los estudios correspondientes y determinará la factibilidad técnica del requerimiento, cuyo resultado será debidamente notificado al solicitante.
+En el caso de variación del diámetro, el solicitante deberá presentar una memoria de cálculo que justifique su solicitud.
+Cumplida la presentación de la totalidad de requisitos; el AyA contará con un plazo de 15 días hábiles para resolver la solicitud.

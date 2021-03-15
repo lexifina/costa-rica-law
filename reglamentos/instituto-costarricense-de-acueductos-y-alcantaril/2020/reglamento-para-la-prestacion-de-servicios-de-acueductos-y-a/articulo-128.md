@@ -1,0 +1,1 @@
+Artículo 128.- De la comisión interdisciplinaria permanente. La comisión interdisciplinaria tendrá carácter permanente, su objetivo, alcance, funciones, integración y roles será de conformidad con el protocolo aprobado por la Junta Directiva para tal efecto.
