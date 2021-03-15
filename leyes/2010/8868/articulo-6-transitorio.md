@@ -1,1 +1,2 @@
-TRANSITORIO VI- Durante el plazo de dos años el monto total del superávit libre del Servicio Fitosanitario del Estado se utilizará para la atención de los deberes del Estado para el fortalecimiento del fideicomiso y el sector palmero.
+Transitorio VI- El Servicio Fitosanitario del Estado deberá transferir, por una única vez, la suma de dos mil millones de colones (¢2000 000 000) del superávit libre acumulado al 2019, los cuales serán administrados por el fiduciario del fideicomiso y que se utilizarán para la atención de los deberes del Estado, a fin de fortalecer el fideicomiso y el sector palmero.
+(Así reformado por el artículo único de la ley N° 9938 del 1° de marzo del 2021)
