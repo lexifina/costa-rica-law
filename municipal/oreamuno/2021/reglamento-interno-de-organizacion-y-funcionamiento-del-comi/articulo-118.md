@@ -1,0 +1,1 @@
+Artículo 118º El Comité Cantonal podrá autorizar la colocación de rótulos o vallas publicitarias en las instalaciones deportivas municipales, siempre y cuando lo permita la normativa aplicable al caso.

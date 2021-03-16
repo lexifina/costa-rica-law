@@ -1,0 +1,1 @@
+Artículo 122º Los Comités Comunales o Comisión quedan facultados para gozar del usufructo de las instalaciones deportivas y recreativas municipales bajo su administración, y los recursos que se obtengan se destinarán al mantenimiento, mejoras y construcción de las mismas instalaciones, o en desarrollo de los programas deportivos y recreativos del comité.

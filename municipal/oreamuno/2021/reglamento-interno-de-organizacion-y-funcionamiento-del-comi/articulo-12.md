@@ -1,0 +1,1 @@
+Artículo 12º No podrán formar parte del Comité Cantonal ni de los Comités Comunales las siguientes personas: los regidores, el alcalde, los alcaldes suplentes y los síndicos(as), el(a) auditor(a), el(a) tesorero(a), el(a) contador(a) de esta Municipalidad, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive, sean estos propietarios o no.

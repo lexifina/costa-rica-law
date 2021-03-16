@@ -1,0 +1,1 @@
+Artículo 121º El mantenimiento de las instalaciones deportivas municipales en cada uno de las comunidades, está a cargo del respectivo Comité Comunal, con los ingresos de los alquileres o venta de vallas publicitarias que obtengan.

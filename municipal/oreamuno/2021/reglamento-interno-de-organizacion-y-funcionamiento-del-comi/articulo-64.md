@@ -1,0 +1,1 @@
+Artículo 64º Deberá publicarse al menos siete días antes de la asamblea, la invitación a la comunidad para que participen indicado los requisitos, lugar, fecha y lugar de la asamblea, en los medios oficiales del Comité Cantonal.

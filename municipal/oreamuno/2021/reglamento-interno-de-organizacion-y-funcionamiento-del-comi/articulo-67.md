@@ -1,0 +1,2 @@
+Artículo 67º El procedimiento de elección de los miembros del comité comunal en la Asamblea deberá definirlo el Comité Cantonal, en dicho proceso debe prevalecer que los mismos asambleístas propongan candidatos y que los mismos asambleístas por medio de votación definan a sus representantes, mediante una votación de la mitad más uno.
+En caso de empate y no haya posibilidad de desempatar por medio de votos se podrá definir por medio del azar, en última instancia. Se debe respetar el principio de paridad de género.

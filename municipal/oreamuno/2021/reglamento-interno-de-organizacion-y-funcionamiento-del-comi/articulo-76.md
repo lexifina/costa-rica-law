@@ -1,0 +1,1 @@
+Artículo 76º Todas las obligaciones de pago, producto de compras o contrataciones de bienes y servicios que no estén contempladas en el artículo anterior, serán tramitadas en las oficinas administrativas del Comité Cantonal de Deportes, quien trasladará lo procedente a cada Comité Comunal.

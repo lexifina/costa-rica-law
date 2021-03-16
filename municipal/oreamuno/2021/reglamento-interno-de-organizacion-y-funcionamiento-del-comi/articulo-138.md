@@ -1,0 +1,1 @@
+Artículo 138º Todos los miembros de las organizaciones deportivas adscritas son responsables por el buen uso de los implementos deportivos o bienes duraderos entregados y tendrán la obligación de denunciar el mal uso de los mismos.

@@ -1,0 +1,1 @@
+Artículo 91º Las Asociaciones Recreativas y Deportivas Adscritas al Comité Cantonal (que requieran de fondos públicos) deberán presentar informes, sobre la ejecución, programación, proyecto o actividad que realizan en conjunto con el CCDR a la Junta Directiva del CCDR y cumplir con el suministro de información sobre los estados financieros debidamente detallado y justificado.

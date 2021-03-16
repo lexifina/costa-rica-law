@@ -1,0 +1,1 @@
+Artículo 3º El domicilio legal del Comité Cantonal será el Cantón de Oreamuno, Distrito Primero, pudiendo variarse la sede en forma temporal para la realización de actividades especiales, previo acuerdo de la Junta Directiva.

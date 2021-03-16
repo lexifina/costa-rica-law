@@ -1,0 +1,1 @@
+Artículo 124º El Comité Cantonal o Comunal, se reserva el derecho ante una solicitud de alquiler de la instalación deportiva, solicitar al usuario que haga el depósito previamente en la cuenta bancaria del Comité, y presentar el comprobante respectivo el día de su uso para poder utilizarse.

@@ -1,0 +1,1 @@
+Artículo 9º El Concejo Municipal nombrará una comisión que realizará la convocatoria a todas las organizaciones de acuerdo al reglamento "REGLAMENTO DE NOMBRAMIENTO DEL COMITÉ CANTONAL DE DEPORTES Y RECREACIÓN DE OREAMUNO (CCDRO), Y COMITÉS COMUNALES DE DEPORTES Y RECREACIÓN." de la Municipalidad de Oreamuno.

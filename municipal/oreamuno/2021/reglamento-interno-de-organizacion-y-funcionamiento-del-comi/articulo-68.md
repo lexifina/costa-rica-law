@@ -1,0 +1,1 @@
+Artículo 68º La primera convocatoria será a la hora fijada, y debe haber al menos 10 personas mayores de 18 años, si no fuese así, se la segunda convocatoria se realizará 15 minutos después con las personas que estén presentes, siempre y cuando se cumpla con los requisitos mínimos de los siete miembros a elegir.

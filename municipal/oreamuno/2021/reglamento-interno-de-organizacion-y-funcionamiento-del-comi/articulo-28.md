@@ -1,0 +1,1 @@
+Artículo 28º Las audiencias en las sesiones ordinarias podrán ser de máximo 15 minutos cada uno, y recibir máximo dos audiencias en una sesión. En caso de extender el tiempo de la audiencia deberá ser por acuerdo de la mayoría simple de la junta directiva.

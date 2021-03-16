@@ -1,0 +1,1 @@
+Artículo 70º El comité comunal electo, deberá en la primera reunión que realicen designar entre ellos, el presidente, vicepresidente, tesorero, secretario(a) y vocal 1. Los representantes juveniles deberán asumir los puestos de vocal 2 y vocal 3.

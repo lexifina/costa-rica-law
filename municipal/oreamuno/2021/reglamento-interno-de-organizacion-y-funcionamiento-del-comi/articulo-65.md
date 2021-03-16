@@ -1,0 +1,1 @@
+Artículo 65º La asamblea general para la elección de comités comunales, estará integrado por dos representantes de cada una de las organizaciones deportivas, recreativas y de desarrollo comunal existentes en la comunidad (según artículo 175 del Código Municipal).

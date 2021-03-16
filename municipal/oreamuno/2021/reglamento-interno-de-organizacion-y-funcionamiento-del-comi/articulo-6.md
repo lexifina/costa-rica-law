@@ -1,0 +1,2 @@
+Artículo 6º El Comité Cantonal en el ejercicio de sus funciones y para el desempeño de las gestiones que deba efectuar, actuará de conformidad con las facultades que la ley y este Reglamento le señalen.
+Cada miembro desempeñará sus funciones de conformidad con las disposiciones de esa normativa y será responsable de cualquier actuación contraria a la misma, excepto en aquellos casos en que de manera expresa y manifiesta haya salvado su voto y así sea consignado en actas.

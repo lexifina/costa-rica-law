@@ -1,0 +1,1 @@
+Artículo 150º Los colores oficiales del deporte en el Cantón de Oreamuno son el celeste, azul oscuro y naranja pudiendo usar el negro y blanco sin perjuicio del diseño artístico y estético con los dos colores anteriores, como un complemento.

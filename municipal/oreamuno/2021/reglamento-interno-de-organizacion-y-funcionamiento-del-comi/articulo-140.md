@@ -1,0 +1,1 @@
+Artículo 140º Es obligación de la Dirección Administrativa, mantener un auxiliar de las requisiciones de bodega de las entregas que se le han hecho y presentar un informe a la Junta Directiva del Comité Cantonal cuando estos lo soliciten.

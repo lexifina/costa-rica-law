@@ -1,0 +1,1 @@
+Artículo 125º El Comité Cantonal o Comunal, se reserva el derecho en caso que las instalaciones deportivas se encuentre en mal estado por causa del clima o cualquier causa de fuerza mayor suspender la actividad y en coordinación con el usuario se reprogramará la actividad.

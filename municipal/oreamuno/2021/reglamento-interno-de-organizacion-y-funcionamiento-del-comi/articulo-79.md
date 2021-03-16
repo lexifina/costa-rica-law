@@ -1,0 +1,1 @@
+Artículo 79º Los comités comunales de deportes, podrán realizar convenios de patrocinios por medio del comité cantonal, solamente autorizados y normado por el Comité Cantonal, la cual si son por recursos económicos deberá ingresar a la cuenta del Comité Cantonal o Comité Comunal (si tienen cuenta propia), y este último destinarlos al fin del patrocinio.

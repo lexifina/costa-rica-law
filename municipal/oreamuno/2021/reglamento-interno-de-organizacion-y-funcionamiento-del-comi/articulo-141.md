@@ -1,0 +1,1 @@
+Artículo 141º El responsable directo del uso de implementos o bienes duraderos para entrenamientos o competencias dentro de las instalaciones deportivas donde está ubicada la bodega, será el entrenador o instructor del Comité Cantonal.

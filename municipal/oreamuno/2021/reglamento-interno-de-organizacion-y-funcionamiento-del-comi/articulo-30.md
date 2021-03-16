@@ -1,0 +1,1 @@
+Artículo 30º El quórum para sesionar válidamente estará integrado por la mitad más uno del total de los miembros del Comité. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si este Reglamento estableciera la necesidad de una votación calificada. En caso de empate en una votación, el presidente tendrá voto calificado.

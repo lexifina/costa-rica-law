@@ -1,0 +1,1 @@
+Artículo 80º Para la satisfacción de sus necesidades, los Comités Comunales pueden organizar actividades para recaudar fondos, pudiendo solicitar para ello la colaboración de la empresa privada y de las instituciones públicas. Esas actividades deben ser aprobadas por su junta directiva e informar en los informes al Comité Cantonal.

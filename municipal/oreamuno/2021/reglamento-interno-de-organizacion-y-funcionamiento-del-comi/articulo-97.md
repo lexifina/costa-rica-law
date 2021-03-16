@@ -1,0 +1,1 @@
+Artículo 97º El presupuesto del Comité Cantonal y de sus diversos órganos debe elaborarse reflejando los planes propuestos y los programas que se ejecutarán en el período que éste cubre; los gastos presupuestarios no pueden exceder los ingresos estimados.

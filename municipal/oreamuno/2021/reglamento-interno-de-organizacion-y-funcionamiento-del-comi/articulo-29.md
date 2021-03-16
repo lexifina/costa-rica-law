@@ -1,0 +1,1 @@
+Artículo 29º Las sesiones deberán iniciarse a más tardar quince minutos después de la hora señalada para que sean válidas. A falta de quórum se hará constar la asistencia de los presentes. Ninguna sesión podrá tener una duración mayor de tres horas.

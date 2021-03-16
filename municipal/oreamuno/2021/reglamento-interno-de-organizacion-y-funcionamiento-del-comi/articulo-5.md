@@ -1,0 +1,1 @@
+Artículo 5º El Comité Cantonal y los órganos que él designe, son los encargados del deporte y la recreación en el Cantón de Oreamuno, podrá realizar los planes que en esta materia dicte la Municipalidad o que la Municipalidad junto con el Instituto establezcan en la materia de su competencia.

@@ -1,0 +1,1 @@
+Artículo 25º En la primera sesión, mediante votación nominal o secreta se elegirán los cargos de la Junta Directiva, quienes desempeñarán el cargo en forma ad honorem, por un período de dos años, pudiendo ser reelectos.

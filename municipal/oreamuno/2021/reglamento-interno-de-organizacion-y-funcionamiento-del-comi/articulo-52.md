@@ -1,0 +1,1 @@
+Artículo 52º Todos los demás cargos deberán cumplir con el perfil del Manual Descriptivo de Clasificación y Valoración de Puestos elaborado por el Comité Cantonal de Deportes y Recreación de Oreamuno y serán escogidos por concurso interno o concurso público externo.

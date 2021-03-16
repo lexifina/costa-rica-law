@@ -1,0 +1,1 @@
+Artículo 113º Los grupos deportivos privados y las escuelas deportivas que no son del cantón y desean hacer uso de las instalaciones deportivas, deberá pagar por el uso y tiempo que lo desean, a acuerdo a disponibilidad de horario y el cuadro de costos de alquiler que haya estipulado el Comité Cantonal o Comunal.

@@ -1,0 +1,1 @@
+Artículo 86º Cada Comisión deberá elaborar un plan de trabajo y rendirá informe escrito mensual al órgano superior respectivo, acerca de las actividades realizadas y resultados obtenidos. El órgano superior deberá conocer dicho informe en la sesión ordinaria o extraordinaria, inmediata posterior a la fecha en que el mismo sea recibido.

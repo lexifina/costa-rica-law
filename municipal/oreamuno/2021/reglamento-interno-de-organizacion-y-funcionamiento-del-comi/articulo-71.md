@@ -1,0 +1,1 @@
+Artículo 71º Los comités comunales deberán llevar control de sus actas y sus estados contables, la cual deberán presentárselos al Comité Cantonal, cada vez que este los solicite. El Comité Cantonal debe proporcionarles los libros contables y libro de actas u hojas digitales debidamente firmadas y selladas.

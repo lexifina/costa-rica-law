@@ -1,0 +1,3 @@
+CAPÍTULO XII
+De las instalaciones deportivas
+Artículo 106º Las instalaciones deportivas municipales y administradas por el Comité Cantonal o cedidas en convenio al Comité Cantonal, tienen como prioridad promover el deporte, la recreación el ejercicio físico, por medio del uso balanceado entre los espacios de uso para la población principalmente del cantón como además de alquileres para poder darle el adecuado mantenimiento y mejoras a las mismas. Esto se realizará por medio de programas deportivos recreativos, de actividad física; como también de normas de uso y alquiler para los usuarios que desean utilizarlas de manera exclusiva.

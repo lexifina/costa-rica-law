@@ -1,0 +1,2 @@
+Artículo 105º El Comité Cantonal y sus comités comunales sólo podrán invertir sus recursos en áreas o instalaciones deportivas, que estén bajo su administración, debidamente cedidas mediante un convenio de administración de instalaciones deportivas, el cual, debe estar avalado por acuerdo de sus Juntas Directivas y firmado por los jerarcas de las organizaciones o instituciones involucradas.
+Esto deberá ser coordinado con el Concejo Municipal, de conformidad con lo establecido en el artículo 181 del Código Municipal.

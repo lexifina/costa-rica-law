@@ -1,0 +1,1 @@
+Artículo 103º Trimestralmente, los tesoreros de los Comités Comunales deberán presentar ante el Comité Cantonal, el Libro de Tesorería, adjuntando las facturas, comprobantes y recibos correspondientes para su respectiva auditoria. Si esta obligación no se cumpliese, el Comité Cantonal deberá suspender inmediatamente cualquier gestión económica.

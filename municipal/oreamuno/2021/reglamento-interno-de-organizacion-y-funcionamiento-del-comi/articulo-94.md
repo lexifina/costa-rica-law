@@ -1,0 +1,1 @@
+Artículo 94º Las asociaciones deportivas del cantón que son adscritas al Comité Cantonal, y sean beneficiadas por convenios de uso de instalaciones o ayudas con fondos públicos, deberán mostrar en su publicidad o uniformes deportivos, el logo y nombre del Comité como organización que les beneficia su trabajo.

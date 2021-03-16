@@ -1,0 +1,1 @@
+Artículo 73º Los comités comunales podrán realizar comisiones de apoyo, para asuntos específicos. La cual pueden ser nombrados por acuerdo de Junta Directiva del Comité Comunal y estipulado en el libro de actas del Comité Comunal.
