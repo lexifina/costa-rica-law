@@ -1,0 +1,28 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+La Junta Directiva Nacional en Sesión Ordinaria N° 5808 celebrara el 01 de marzo del 2021 mediante acuerdo N° 185, acuerda por unanimidad aprobar modificar los artículos 6, 9, 10 del Reglamento para la administracion y la venta de los bienes adjudicados o transferidos en pago de obligaciones del Banco Popular y de Desarrollo Comunal, para que se lea de la siguiente manera:
+"1. Modificar los artículos 6, 9, 10 del Reglamento para la administracion y la venta de los bienes adjudicados o transferidos en pago de obligaciones del Banco Popular y de Desarrollo Comunal, lo cual cuenta con el aval de la Dirección Jurídica mediante oficio DIRJ-0127-2021.
+Los artículos modificados se leerán de la siguiente manera:
+Artículo 6°-Gestión de Venta. El Banco debe disponer la venta de bienes de conformidad con los siguientes procedimientos:
+6.1. Venta en concurso público. Debe seguirse el procedimiento indicado en el artículo 8 de este Reglamento.
+6.2. Venta Directa. Debe seguirse el procedimiento indicado en el artículo 8 bis de este Reglamento.
+6.3. Venta en subasta pública y ferias. El Banco puede vender bienes por medio de subasta presencial, subasta por medios electrónicos y ferias. En estos casos, el Banco debe sumar un 5% adicional al último porcentaje de descuento publicado. El precio final de la base de remate se calculará sobre el valor del avalúo vigente. Todos los bienes publicados y que no recibieron oferta en el concurso o venta directa, son incluídos dentro de las propiedades a subastar y las ferias que se realicen.
+En ningún caso se podrá sacar a remate un bien con un descuento superior al 70 % del valor del avalúo, salvo lo dispuesto en el inciso 6.4.
+6.4 Ventas sin sujeción a base: Los bienes que no fueron adquiridos en subasta pública con el descuento máximo del 70%, y previamente aprobados por la Comisión de Bienes Adjudicados, se dispondrán para la venta sin sujeción a base conforme al Procedimiento definido por el Área de Bienes Adjudicados.
+La venta de estos bienes se realizará mediante concurso público o subasta.
+La venta sin sujeción a base requiere de un informe técnico, debidamente motivado, elaborado por la Subgerencia General de Negocio, que deberá ser aprobado por la Comisión de Bienes Adjudicados, y la resolución debe ser comunicada al Área de Bienes Adjudicados para su ejecución.
+6.5 Venta por medio de corredores y comisionistas de Bienes: El Banco podrá contratar corredores y comisionistas, personas físicas o jurídicas, nacionales o extranjeras, para realizar la venta de bienes adjudicados en todo el país, quienes devengarán una comisión de un 5% sobre el valor de la venta realizada, para lo cual debe cumplirse con las disposiciones emitidas por el Área de Bienes Adjudicados y demas normativa aplicable.
+Lo anterior no aplica para ventas en subastas, ferias, expos o ventas sin sujeción a base.
+El ligamen entre el Banco y las personas autorizadas para intermediar los bienes no origina relación de empleo y su remuneración se limita al pago de la comisión antes indicada.
+Los corredores y comisionistas inscritos en el registro del Banco estan autorizados a vender propiedades conforme a lo publicado en el respectivo cartel de venta de Bienes Adjudicados y lo indicado en el artículo 4 de este Reglamento, autorización que no aplica para vender propiedades en ferias en que el Banco participe u organice, ni en las ventas que realice el Banco por medio de subastas.
+Los corredores y comisionistas no pueden, en ninguna circunstancia, brindar sus servicios a personas que laboren para el Conglomerado Financiero Banco Popular, integren sus órganos colegiados o brinden servicio como comodatarios en el cuido de propiedades. El precio de venta de los bienes se fija con base en su avalúo, salvo las excepciones dispuestas en el presente Reglamento, avalúo que debe realizarse por un/una perito designado por el Banco. La vigencia del avalúo es de un año, sin perjuicio de que el Banco realice nuevos avalúos cuando lo considere conveniente.
+Artículo 9°-Recepción de ofertas. Las ofertas deben remitirse al correo electrónico indicado en la publicación o en sobre cerrado al Área de Bienes Adjudicados o Área que promueva la venta, por lo que se deberá dejar constancia de recibido.
+Las personas participantes deben presenter su oferta en el formulario que el Banco suministre, el cual puede obtenerse en las oficinas del Banco o en la página web.
+Dicho formulario debe ser completado en su totalidad y tener adjunta la documentación requerida.
+Solo pueden admitirse, en concurso público, venta directa, readquisiciones, ventas sin sujeción a base, ventas sin publicación, ferias o subastas, las ofertas que presenten:
+a) Los formularios de oferta que cumplen con todos los requisitos de admisibilidad.
+b) El comprobante del depósito del 1% del precio base publicado como garantía de participación.
+En caso de retiro o incumplimiento del pago pactado, el Banco ejecutará a su favor la garantía de participación.
+Los oferentes que remitieron la oferta por correo electrónico deben entregar la documentación original ante el Banco, durante el día hábil siguiente.
+Artículo 10.-Descuentos programados. El precio base del bien en la primera publicación es el valor consignado en el avalúo.
+A partir de la segunda publicación, el precio base tendrá un descuento del 15% sobre el precio consignado en el avalúo vigente. En la tercera y cuarta publicación se aplica un descuento del 15% adicional, hasta un descuento del 45%. En la quinta y sexta publicación se aplica un descuento del 10% adicional, hasta llegar a descontar un máximo del 65% del precio consignado en el avalúo vigente.
+(Ref.: Acuerdo CTAJ-03-Acd-14-2021-Art-6)
