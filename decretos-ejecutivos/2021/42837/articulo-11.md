@@ -1,0 +1,1 @@
+Artículo 11.-Seguimiento y Fiscalización de EDA. La SETENA verificará la ejecución del Plan de Cumplimiento por medio del responsable ambiental y la Bitácora Ambiental Digital habilitada para el EDA que cuente con el permiso ambiental.

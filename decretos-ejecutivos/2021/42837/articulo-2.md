@@ -1,0 +1,1 @@
+Artículo 2°-Objeto del EDA. El objeto del EDA es realizar un diagnóstico ambiental "in situ" de la actividad, obra o proyecto en operación, que identifica la situación ambiental para establecer medidas ambientales correctivas y dar seguimiento al cumplimiento de estas.

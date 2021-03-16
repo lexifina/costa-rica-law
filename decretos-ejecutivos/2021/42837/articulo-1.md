@@ -1,0 +1,22 @@
+N° 42837-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE AMBIENTE Y ENERGÍA
+Con fundamento en los artículos 50, 140 incisos 3) y 18) y 146 de la Constitución Política; artículos 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de la Administración Pública N° 6227 del 2 de mayo de 1978; y artículos 17 y 83 de la Ley Orgánica del Ambiente N° 7554 del 4 de octubre de 1995.
+Considerando:
+I.-Que es deber del Estado procurar, dotar y realizar las acciones necesarias para garantizar a los costarricenses un ambiente sano y ecológicamente equilibrado dentro del cual vivir, así como defender y preservar el bienestar de todos los habitantes de la Nación.
+II.-Que la Sala Constitucional en la Resolución 2004-04949 del seis de mayo del dos mil cuatro, señala que: "Por tanto: Se aclara la sentencia número 2003 - 006324 de las ocho horas treinta minutos del cuatro de julio del dos mil tres en el sentido de que lo que se ha ordenado en la misma es la realización de un Estudio de Diagnóstico Ambiental", "que es el instrumento técnico correcto en vista de que el proyecto está construido y operando"., "así las cosas deberá entenderse entonces que desde el punto de vista técnico lo que se está ordenando a la Secretaría Técnica Nacional Ambiental realizar es un Estudio de Diagnóstico Ambiental que permita identificar y cuantificar los daños ambientales que la actividad está ocasionando al medio ambiental y a la población así como también que permita definir y establecer las medidas necesarias para eliminar, prevenir, atenuar o compensar dichos daños y en este sentido deberá ser interpretada la sentencia".
+III.-Que es necesario establecer los requisitos y procedimientos técnicos para la aplicación del Estudio de Diagnóstico Ambiental (EDA) de proyectos en operación. El EDA deberá basarse en un diagnóstico ambiental, que identifique la situación ambiental actual del proyecto, determine no conformidades y establezca medidas ambientales correctivas y sus respectivos plazos de implementación. Así como la forma en que se aplicará el EDA a fin de que no genere confusiones en el sentido de que se plantea con un instrumento ex post que sustituya la Evaluación de Impacto Ambiental.
+IV.-Que es necesario modernizar y actualizar el procedimiento por medio del cual se realiza el Estudio de Diagnóstico Ambiental de actividades, obras o proyectos en ejecución que no cuentan con Viabilidad (licencia) Ambiental.
+V.-Que en aras de fortalecer la coordinación interinstitucional y hacer una protección más efectiva de las Áreas Silvestres Protegidas, Patrimonio Natural del Estado y Zona Marítimo-Terrestre, la SETENA y el SINAC coordinarán cuando se realicen obras o proyectos dentro de las zonas que posean algún régimen especial de acuerdo a nuestra legislación ambiental.
+VI.-Que, de conformidad con el Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045-MPMEIC y sus reformas, la presente propuesta cumple con los principios de mejora regulatoria según el informe positivo DMR-DAR-INF-106-2020 del 11 de diciembre de 2020, emitido por la Dirección de Mejora Regulatoria del MEIC. Por tanto,
+Decretan:
+"REGLAMENTO DE ESTUDIOS DE DIAGNÓSTICO
+AMBIENTAL (EDA) Y REFORMA AL ARTICULO 81
+DEL REGLAMENTO A LA LEY DE BIODIVERSIDAD,
+DECRETO EJECUTIVO N°34433-MINAE,
+DEL 11 DE MARZO DEL 2008"
+Artículo 1°-Ámbito de aplicación del EDA. El Estudio de Diagnóstico Ambiental es un instrumento de aplicación voluntaria. Podrá utilizarse para actividades en operación que soliciten un Permiso Ambiental, que reúnan las siguientes condiciones:
+a) Las actividades, obras o proyectos que iniciaron de previo al 17 de enero de 1997, fecha en que se promulgó el primer reglamento de evaluación de impacto ambiental conforme a los parámetros establecidos en la Ley Orgánica del Ambiente.
+b) Las actividades, obras o proyectos cuya ejecución se inició entre el 12 de febrero del 2002 hasta el 24 de junio del 2004 inclusive, periodo durante el cual el reglamento de evaluación de impacto ambiental estuvo parcialmente suspendido por la Sala Constitucional.
+c) Las actividades, obras o proyectos que no requirieron Evaluación de Impacto Ambiental, y que, por motivos de conveniencia, requieran voluntariamente someterse a un proceso de permiso ambiental.
+d) Las actividades, obras o proyectos que como resultado de un proceso sancionatorio administrativo o judicial, requieran obtener permiso ambiental.

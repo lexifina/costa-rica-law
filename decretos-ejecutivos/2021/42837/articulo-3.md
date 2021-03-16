@@ -1,0 +1,1 @@
+Artículo 3°-Procedimiento para elaboración del Diagnóstico Ambiental. El Diagnóstico Ambiental deberá realizarse directamente en el sitio de la actividad, obra o proyecto en operación; por medio del llenado de la Lista de Verificación de Normativa Ambiental (LIVENA), por parte del Consultor Ambiental Responsable del EDA.

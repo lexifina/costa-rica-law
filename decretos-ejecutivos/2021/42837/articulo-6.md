@@ -1,0 +1,2 @@
+Artículo 6°-Plan de Cumplimiento Ambiental. Una vez finalizado el diagnóstico ambiental "in situ", se procederá a elaborar un Plan de Cumplimiento Ambiental, que incluirá las acciones correctivas a aplicar en concordancia con los hallazgos detectados; dichas acciones correctivas serán establecidas en conjunto con el Responsable Legal del proyecto, obra o actividad en operación y serán presentadas por medio de un cuadro resumen de seguimiento, el cual deberá incluir:
+[imagen]

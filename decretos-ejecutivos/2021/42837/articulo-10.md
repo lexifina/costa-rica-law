@@ -1,0 +1,7 @@
+Artículo 10.-Resolución y Otorgamiento del Permiso Ambiental. La resolución de aprobación o rechazo del EDA para la actividad, obra o proyecto, la comunicará la SETENA al desarrollador por medio de una resolución administrativa; técnica y jurídicamente motivada.
+Estas resoluciones, de conformidad con el artículo 19 de la Ley Orgánica del Ambiente, son de acatamiento obligatorio. La SETENA rechazará aquellas solicitudes de EDA que se no enmarquen dentro de los supuestos establecidos en el artículo 1 del presente reglamento.
+La Resolución de aprobación del EDA, deberá indicar:
+1. Los lineamientos o directrices ambientales de compromiso que enmarcan el otorgamiento del permiso ambiental, y que estarán basados en las medidas de adaptación ambiental, que deben incluir los siguientes elementos:
+1.1. Nombramiento de un responsable ambiental, por el plazo que la SETENA establezca relacionado al cronograma de cumplimiento.
+1.2. Registro del proceso de gestión ambiental, por parte del responsable ambiental en bitácora ambiental digital, que la SETENA oficializará para la actividad, obra o proyecto, una vez otorgado el respectivo permiso ambiental. El registro de proceso deberá contemplar un plazo de seguimiento mayor a la ejecución de las acciones correctivas en materia ambiental, lo cual permitirá corroborar la efectividad de este. Este plazo extendido deberá ser proporcional a las acciones correctivas planteadas.
+Contra las resoluciones dictadas cabrán los recursos que dispone la Ley General de la Administración Pública.

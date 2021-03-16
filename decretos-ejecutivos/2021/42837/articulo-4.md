@@ -1,0 +1,2 @@
+Artículo 4°-Lista de Verificación. La lista de Verificación está conformada por los requisitos legales-ambientales con fundamento en la normativa ambiental vigente en el país. El formato de la LIVENA se presenta como Anexo 1 de este Decreto Ejecutivo. El Consultor
+Ambiental Responsable de la elaboración del EDA, deberá llenar todos los puntos de la lista de verificación. El Consultor Ambiental Responsable determinará en caso de requerirse, que información adicional adjuntar al Plan de Cumplimiento.
