@@ -1,0 +1,1 @@
+Artículo 16.-Reincidencia funcional. El incumplimiento de alguna de las disposiciones del presente reglamento por parte de algún funcionario de forma reincidente, será motivo para que en lo sucesivo el funcionario sea apartado de su cargo por falta de confianza de la jefatura inmediata y Alcaldía Municipal.

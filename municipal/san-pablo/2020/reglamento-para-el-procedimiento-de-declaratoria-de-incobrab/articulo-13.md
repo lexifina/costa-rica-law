@@ -1,0 +1,1 @@
+Artículo 13.-Seguimiento bianual. Cada dos años la Sección de Gestión de Cobros deberá realizar seguimiento de las cuentas declaradas incobrables, si se detecta que la deuda podrá ser recuperada por la Municipalidad, se podrá emitir una nueva resolución para reactivarla. Esta revisión será comunicada a la Jefatura inmediata.

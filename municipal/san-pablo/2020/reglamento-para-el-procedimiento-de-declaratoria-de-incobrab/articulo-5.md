@@ -1,0 +1,1 @@
+Artículo 5°-Trámites previos a la declaratoria de incobrabilidad. En todos los casos la administración deberá realizar la gestión de cobro administrativo o judicial, apegados a la normativa existente.

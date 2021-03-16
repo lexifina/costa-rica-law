@@ -1,0 +1,1 @@
+Artículo 17.-Normas complementarias. se aplicará supletoriamente a las normas de este Reglamento, las siguientes disposiciones legales: Código Municipal, la Ley N° 7509, Ley N° 7729, la Ley de la Administración Financiera de la República y demás normativa vigente.

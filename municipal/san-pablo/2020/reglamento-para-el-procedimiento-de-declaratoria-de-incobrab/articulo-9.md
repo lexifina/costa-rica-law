@@ -1,0 +1,2 @@
+Artículo 9°-Resolución que declara la deuda incobrable. con base al estudio técnico presentado por la Gestión de Cobro, se realizará una resolución administrativa de incobrabilidad, la cual deberá ser motivada, razonada y emitida por la Hacienda Municipal, la cual eleva para el visto bueno de la Alcaldía Municipal.
+Corresponde a la Alcaldía Municipal, como máximo jerarca administrativo, velar porque se cumplan con las condiciones establecidas en este reglamento, de previo a emitir su visto bueno.

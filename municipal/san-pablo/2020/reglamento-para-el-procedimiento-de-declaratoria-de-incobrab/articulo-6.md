@@ -1,0 +1,1 @@
+Artículo 6°-Sobre el edicto. En caso de no contar con la información necesaria para ubicar al contribuyente se deberá divulgar por edicto en diario oficial según el artículo 137 del Código de Normas y Procedimientos Tributarios.
