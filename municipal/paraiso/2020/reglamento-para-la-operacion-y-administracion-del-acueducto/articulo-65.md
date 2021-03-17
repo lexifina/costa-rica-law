@@ -1,0 +1,1 @@
+Artículo 65.-De la Política Cantonal para la Gestión del Recurso Hídrico. Forma parte del presente reglamento la Política Cantonal para la Gestión Integral de Recurso Hídrico, vigente; siendo la primera aprobación de dicha política mediante acuerdo de Concejo en Sesión N° 183, celebrada el jueves 05 de julio del año 2018.

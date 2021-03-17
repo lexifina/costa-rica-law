@@ -1,0 +1,2 @@
+Artículo 47.-De la fuente pública: La Municipalidad instalará una fuente pública, en el caso de servicios con tarifa domiciliar que sean suspendidos por morosidad en un radio máximo de 200 (doscientos) metros.
+Asimismo, y con base en el principio de acceso universal al agua potable, El Concejo Municipal podrá autorizar una única fuente pública a no menos de 100 metros para los casos que sean pertinentes, siempre que las condiciones del sistema de agua potable del Acueducto Municipal así lo permitan.

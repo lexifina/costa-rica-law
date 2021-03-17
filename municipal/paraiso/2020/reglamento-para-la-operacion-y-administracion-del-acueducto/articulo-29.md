@@ -1,0 +1,1 @@
+Artículo 29.-Del fin del ingreso tarifario. El ingreso percibido por la prestación del servicio de agua, se destinará únicamente para la administración, la operación, mantenimiento, desarrollo, inversión, servicio de la deuda, conservación del recurso hídrico, mejoramiento y modernización del sistema de abastecimiento de agua potable.

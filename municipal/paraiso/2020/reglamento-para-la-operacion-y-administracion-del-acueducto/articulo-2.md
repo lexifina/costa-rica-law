@@ -1,0 +1,1 @@
+Artículo 2º-Alcance del presente Reglamento. Este Reglamento regulará la organización y funcionamiento municipal en cuanto a la prestación, facturación, registro y cobro de agua potable a través de sus dependencias.

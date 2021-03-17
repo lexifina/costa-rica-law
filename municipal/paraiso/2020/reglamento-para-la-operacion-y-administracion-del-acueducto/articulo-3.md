@@ -1,0 +1,88 @@
+Artículo 3º-Del Glosario. Para los fines del presente Reglamento, los siguientes términos significan: Abonado: La persona física o jurídica propietaria de la finca, lote o edificación de cualquier naturaleza, a la que se presta el servicio de agua potable.
+Acometida de agua: Longitud de tubería y accesorios que se instalan desde la red de distribución hasta el punto de instalación de la conexión del servicio; llega hasta el límite de la propiedad.
+Acueducto: Es el conjunto de fuentes, plantas potabilizadoras, tanques de almacenamiento, redes de conducción, distribución y demás elementos necesarios para el suministro de agua a una población.
+Agua potable: Agua tratada que cumple con las disposiciones de valores recomendables o máximos admisibles estéticos, organolépticos, físicos, químicos, biológicos y microbiológicos, establecidos en el Reglamento de Calidad
+de Agua Potable vigente.
+Ajuste a la facturación: Modificación a los importes facturados previo estudio y visto bueno de analista cuando se presente un reclamo formal por parte del interesado.
+Alto Consumo: Consumo mensual que sobrepasa en 100% el consumo promedio.
+Arreglo de pago: Acuerdo entre partes en el que ambos convienen que la deuda sea cubierta en cuotas. Todo arreglo de pago debe seguir lo planteado en el Reglamento de Cobro Administrativo y Judicial de la Municipalidad de Paraíso,
+vigente.
+Calle o vía pública: Cualquier acceso de dominio de la colectividad para el libre tránsito de personas y/o vehículos.
+Capacidad hidráulica: Corresponde a la condición de la infraestructura instalada de los sistemas de abastecimiento y saneamiento para trasegar los caudales para la prestación de los servicios.
+Capacidad hídrica: Condición existente de factibilidad técnica y administrativa para la producción y explotación de agua potable para el abastecimiento por parte de la Municipalidad.
+Condominio: Inmueble susceptible de aprovechamiento independiente por parte de distintos propietarios, con elementos comunes de carácter indivisible. Los condominios podrán ser de tipo lotes, horizontal, vertical, combinado, mixto u otros.
+Constancia de servicios: Documento que emite la Dirección de Recurso Hídrico con la finalidad de hacer constar al interesado, la real existencia en un inmueble, de uno o más servicios de agua potable y/o saneamientos instalados y en funcionamiento.
+Constancia de capacidad hídrica: Documento que emite la Dirección de Recurso Hídrico ante una negativa de disponibilidad de servicios, en el cual se hace constar que el acueducto cuenta con capacidad hídrica real y la potencial disponibilidad del servicio de abastecimiento de agua al inmueble; supeditado a la construcción por parte del interesado, de la infraestructura indicada en este documento.
+Conexión: Paraíso del sistema público de abastecimiento de agua o de saneamiento sanitario con el sistema privado.
+Conexiones cruzadas: Interconexión de sistemas (agua, agua residual, agua de desagüe pluvial, agua industrial no potable u otros) que ponen en riesgo de contaminación el sistema de agua, la integridad del sistema de saneamiento y
+el sistema pluvial.
+Conexión fraudulenta: Conexión, que habiendo sido suspendida; se conecta a los sistemas de agua sin la autorización del operador del sistema; o que estando activa se detecta que utiliza un medio que permita no contabilizar el consumo real del servicio.
+Conexión no autorizada o ilícita: Conexión realizada por terceros a los sistemas de agua, sin la debida autorización de la Municipalidad.
+Consumo: Es el consumo mensual registrado por el medidor de agua donde no existan indicios de afectación por fugas no visibles en las conexiones internas o prevista.
+Consumo promedio: Es el promedio de los consumos normales registrados en los últimos 6 meses. Continuidad del servicio: Es una cualidad del servicio que indica el tiempo del servicio ininterrumpido durante un periodo determinado.
+Derecho de conexión: Monto o suma que el interesado debe pagar previamente a la Municipalidad para que se realice la instalación del nuevo servicio de agua. Derecho de reconexión: Término con el cual se califica al valor o suma que
+debe pagar previamente el abonado a la Municipalidad por la reconexión del servicio de agua potable que le fue suspendido por causas atribuibles al abonado o usuario.
+Dirección de Recurso Hídrico: Operador Municipal de Servicios de Agua Potable, Hidrantes y Saneamiento.
+Disponibilidad de servicio de agua: Documento que emite la Dirección de Recurso Hídrico con la finalidad de hacer constar al interesado, la real existencia en un inmueble, de la capacidad hídrica y de la capacidad hidráulica, así como de
+recolección y tratamiento, que le permita la eventual solicitud de los servicios de suministro de agua potable, la recolección y tratamiento de las aguas residuales; sin ocasionar menoscabo de los derechos de usuarios existentes.
+Extensión de ramal: Aumento de longitud de un segmento de la red del acueducto hasta un punto determinado; realizado en vía pública o en servidumbre a nombre de la Municipalidad de Paraíso.
+Factibilidad técnica: Estudio, evaluación y aprobación o no de la solicitud de disponibilidad de agua, con base en las condiciones existentes.
+Factura: Documento impreso o digital emitido en forma periódica por la Municipalidad, que muestra los conceptos, consumo, vencimiento, montos a cobrar por los servicios prestados. Constituye un medio de notificación al interesado.
+Facturación: Proceso mediante el cual se determina los conceptos, volúmenes y montos a cancelar por parte del usuario.
+Finca: Terreno o solar, con o sin su respectiva edificación, debidamente individualizado en el Registro Público de la Propiedad.
+Finca filial: Unidad privativa de propiedad dentro de un condominio, que constituye una porción autónoma acondicionada para el uso y goce independiente, comunicada directamente con la vía pública o con determinado espacio común que conduzca a ella.
+Finca matriz: Inmueble que da origen al condominio, constituido por dos o más fincas filiales y sus correspondientes áreas comunes.
+Finca filial matriz: Es toda finca filial que, por sus características propias en cuanto a tamaño, disponibilidad de accesos y servicios, permite constituir un nuevo condominio dentro del condominio inicial.
+Fraccionamiento: Es la división de cualquier inmueble con el fin de vender, traspasar, negociar, repartir, explotar o utilizar en forma separada, las parcelas resultantes; incluye tanto particiones de adjudicación judicial o extrajudicial, localizaciones de derechos indivisos y meras segregaciones en cabeza del mismo dueño, como las situadas en urbanizaciones o construcciones nuevas que interesen al control de la formación y uso urbano de los bienes inmuebles.
+Fuente pública: Instalación de una fuente de agua potable de 12mm de diámetro en un radio máximo de 200 metros a partir del punto que se desea abastecer.
+Fuente pública especial: instalación de una fuente pública al frente de la vivienda a la cual se le suspendió el servicio de agua por falta de pago, ligado al pago correspondiente consignado como Fuente Pública Especial, según el pliego
+tarifario vigente.
+Fuga: Escape de agua en las redes de distribución y/o conducción y/o infraestructura hidráulica de los sistemas de agua potable.
+Fuga no visible: Fuga que no pueda ser detectada a simple vista. Toda fuga no visible debe ser verificada por un Inspector del Acueducto Municipal ante la solicitud del interesado.
+Fuga de instalación interna: Escape de agua en las instalaciones internas de abastecimiento de agua potable.
+Independización: Es el acto mediante el cual, la Dirección de Recurso Hídrico a solicitud del Abonado, separa los servicios de agua de cada una de las unidades de consumo dentro de un solo inmueble.
+Inmueble: Terreno, debidamente individualizado que consigna uno o varios propietarios. Un Inmueble puede o no contener una o varias obras de infraestructura. Inspección de medidor de agua: Revisión que hace un funcionario de la Dirección de Recurso Hídrico en el medidor de agua que tiene instalado el usuario, para detectar anomalías y/o obtener información técnica del instrumento. Si la Inspección de medidor de agua es solicitada por el abonado, esta inspección está asociada a un costo adicional en la factura de acuerdo al pliego tarifario vigente.
+Inspección para detección de fugas: Revisión en el interior del inmueble que hace un funcionario de la Dirección de Recurso Hídrico, con el consentimiento del abonado y/o interesado, para detectar posibles fugas en las instalaciones internas. Esta inspección está asociada a al pago previo de un costo adicional en la factura de acuerdo al pliego tarifario vigente. Este servicio se podrá brindar fuera de la jurisdicción del cantón previo pago del costo respectivo en una cuenta municipal (N° de contribuyente) creada para ese fin.
+Inspección técnica: Revisión especializada que realiza la Dirección de Recurso Hídrico en cuanto al funcionamiento y uso de los sistemas de agua, saneamiento y medición, ubicados en vía pública, en servidumbres o en fincas y edificaciones privadas.
+Inspecciones técnicas por abastecimientos: Revisión que la Dirección de Recurso Hídrico realiza, a solicitud del usuario o de oficio para verificar el uso del servicio y datos básicos de éste.
+Instalación de conexión: Acción que se concreta cuando la conexión ubicada en una propiedad privada es integrada de manera física al sistema del operador.
+Instalaciones internas: Instalaciones mecánicas de abastecimiento de agua y saneamiento ubicadas dentro de la propiedad.
+Interconexión: Conexión de nuevos sistemas, infraestructura y desarrollos urbanísticos que cumplan con la normativa técnica vigente, a los sistemas de distribución y recolección operados por la Dirección de Recurso Hídrico para la habilitación de los servicios de agua y saneamiento.
+Límite de propiedad para el servicio de agua: Corresponde a la parte del lindero del predio o de la servidumbre de acceso a este predio, frente al punto donde se ubica el medidor de agua con el que brinda el servicio de agua. En el caso de propiedades ubicadas frente a vía pública o servidumbre de paso y tubería, constituida a favor de la Municipalidad de Paraíso, corresponde al lindero del predio o de la finca filial. En el caso de propiedades ubicadas frente a servidumbres de acceso corresponde al frente de esta servidumbre con vía pública.
+Manual de requisitos técnicos: Documento técnico emitido por la Dirección de Recurso Hídrico de la Municipalidad de Paraíso que contempla las especificaciones técnicas de material, controles y elementos hidráulicos, infraestructura y metodología de instalación.
+Medidor de Agua: Dispositivo o instrumento destinado a medir y registrar el volumen de agua.
+Municipalidad: Municipalidad de Paraíso.
+Multa: Sanción en dinero por faltas cometidas conforme al presente Reglamento y las leyes vigentes.
+Paja: Acometida de Agua.
+Poseedor: Persona que realiza actos de posesión estables y efectivos, en forma pacífica, pública e ininterrumpida, como dueño por más de 10 años en inmuebles no inscritos ante el Registro Público.
+Prevista agua: Longitud de tubería y accesorios instalados desde la red de distribución hasta el punto para la conexión del servicio; llega hasta el límite de la propiedad, que no ha sido conectada a las instalaciones internas del inmueble.
+Propietario: Persona física o jurídica que ejerce el dominio sobre bienes inmuebles mediante escritura pública, debidamente inscrita en el Registro Público.
+Proyecto de desarrollo urbanístico: Proyecto de infraestructura con fines urbanos, construida en apertura de espacios (urbanizaciones, condominios, centros comerciales, torres de viviendas y/u oficinas, entre otras infraestructuras).
+Prueba Volumétrica: Revisión que se realiza al medidor de agua con el fin de verificar el registro correcto de volumen de agua.
+Recepción de obras: Acción que resulta del aprobar y recibir o traspasar una obra o infraestructura de agua o saneamiento; construida por un particular y que pasa a ser patrimonio de la Municipalidad de Paraíso, una vez que se haya comprobado técnica y jurídicamente el cumplimiento de los requisitos solicitados.
+Redes: Sistema de tuberías para la distribución de agua y la recolección de aguas residuales.
+Red pública: Sistema de tuberías de agua o recolección de aguas residuales propiedad de la Municipalidad de Paraíso, ASADAS y/o del AYA.
+Servicio de Abastecimiento Municipal: Corresponde al suministro de agua para consumo humano que brinda la Dirección de Recurso Hídrico también denominado como servicio de Agua potable.
+Servicio de Agua Potable: Servicio de abastecimiento municipal.
+Servicio de Saneamiento: Corresponde a la recolección, tratamiento y disposición de las aguas residuales.
+Servicio de Hidrantes: Servicio ligado al mantenimiento, operación y desarrollo de los sistemas hidráulicos necesarios para la atención de incendios, al servicio del Cuerpo de Bomberos.
+Servicio provisional: Servicio que por la naturaleza de la actividad, se presta por un periodo determinado y que posteriormente pasará a ser un servicio permanente.
+Servicio temporal: Servicio que por la naturaleza de la actividad, se presta por un periodo determinado.
+Servidor municipal: Aquel individuo que presta servicios a la Municipalidad o a nombre y por cuenta de ésta, como parte de su organización, en virtud de un acto válido y eficaz de investidura.
+Servidumbre de acceso público: Derecho real de ingreso o tránsito de peatones y/o vehículos a favor de entes públicos y sobre un predio ajeno. Implica para su dueño una limitación al ejercicio pleno de los atributos del derecho de propiedad, sin que por ello la porción de terreno pierda su condición de propiedad privada.
+Servidumbre de hecho: Aquella establecida sobre un predio a fuerza del uso y la costumbre, tolerado por el propietario del bien, sin que medie imposición legal o acto formal de constitución mediante escritura pública.
+Servidumbre de paso privada: Derecho real de ingreso y tránsito de peatones y/o vehículos en beneficio de una finca o varias, y sobre un predio ajeno. Implica para su dueño una limitación al ejercicio pleno de los atributos del derecho de propiedad, sin que por ello la porción de terreno pierda su condición de propiedad privada.
+Servidumbre de paso y tubería: Derecho real de instalar tubería de agua y/o de alcantarillado sanitario sobre un predio ajeno, para la operación administración y mantenimiento por parte de la Dirección de Recurso Hídrico. Implica una utilidad
+permanente y continua del acceso para el cumplimiento de su fin público, así como un límite al ejercicio del derecho de propiedad por parte de su dueño.
+Servidumbre de paso y tubería inscrita: Servidumbre de paso y tubería que conste debidamente inscrita sobre uno o varios inmuebles en el Registro de la Propiedad.
+Sistema privado: Conjunto de instalaciones de agua y alcantarillado sanitario que no es administrado por la Dirección de Recurso Hídrico.
+Sistema Público Municipal: Conjunto de instalaciones de agua y alcantarillado sanitario administrados y operado por la Dirección de Recurso Hídrico.
+Solicitudes de conexión: Gestión que hace el interesado a fin de conseguir la instalación del servicio, posterior a aprobación de disponibilidad de agua potable, cumpliendo con los requisitos técnicos solicitados por la Dirección de Recurso Hídrico según Manual de Requisitos Técnicos y el pago asociado.
+Suspensión del servicio: Acción que permite interrumpir la prestación de los servicios de suministro de agua, por falta de pago o por razones propias de la operación del servicio. Tarifa: Lista o catálogo de precios que deben de pagarse por la prestación de un servicio.
+Tasa de urbanización: monto que debe pagar el desarrollador de urbanizaciones, residenciales y condominios horizontales o verticales, por cada paja de agua o unidad habitacional o comercial tramitada; la tasa será establecida según estudio previo realizado por la Dirección de Recurso Hídrico.
+Unidad de consumo: Cada una de las unidades de vivienda, comercio, industria u otras, que cuenta con instalaciones propias de agua potable al que se le asignará el uso del agua a que se refiere este Reglamento. Toda remodelación, alteración o ampliación que se realice a una estructura existente deberá ser valorada por la Municipalidad de Paraíso a efectos de determinar si origina una nueva unidad de consumo y/o variación en el uso de agua.
+Urbanización: Fraccionamiento y habilitación de un terreno para fines urbanos, mediante apertura de calles y provisión de servicios.
+Uso de agua: Destino que el usuario o la Municipalidad de Paraíso determine que se le da al servicio de agua. Se clasifica como: 1. Domiciliaria, 2. Ordinaria, 3. Reproductiva, 4. Preferencial, 5. Especial, 6. Diferenciada, 7. Provisional, 8. Agua en bloque.
+Usuario: Persona física y/o jurídica que utiliza en forma legítima el servicio de agua potable prestado por la Dirección de Recurso Hídrico.
+Venta de agua en bloque: Modalidad de venta de agua a otro prestador que operen legalmente en Costa Rica y vendedores de agua a terceros que operen legalmente.
+Venta de agua por pago anticipado: Corresponde a la venta de volúmenes de agua, previa y técnicamente definidos y cancelados, ante la solicitud de un usuario.

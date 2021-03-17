@@ -1,0 +1,1 @@
+Artículo 41.-De las fugas de medidor. Cuando se determine la existencia de fuga adelante del medidor debidamente comprobada mediante orden de trabajo u orden de inspección se le cobrará los recibos afectados de acuerdo con el promedio de consumo normal.
