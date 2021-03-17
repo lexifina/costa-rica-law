@@ -1,1 +1,0 @@
-Artículo 44.—Las tarifas que por concepto de alquiler de instalaciones deban pagar los usuarios, deberán ser depositadas en la o las cuentas bancarias que para esos efectos disponga el Comité Cantonal del Deporte y la Recreación.

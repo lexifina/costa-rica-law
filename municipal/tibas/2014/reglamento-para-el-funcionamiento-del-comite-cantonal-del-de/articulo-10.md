@@ -1,1 +1,0 @@
-Artículo 10.—Diez días después de ejecutado el nuevo nombramiento del Comité Cantonal de Deportes y Recreación, el Concejo Municipal hará una sesión extraordinaria donde juramentará a los miembros del Comité entrante para que puedan iniciar con sus funciones.

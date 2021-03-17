@@ -1,1 +1,0 @@
-Artículo 55.—El presupuesto del Comité Cantonal de Deportes y Recreación y de sus órganos subalternos jerárquicos debe formularse en forma objetiva donde se reflejen sus planes y programas que se van a ejecutar durante el periodo que cubre. En ningún caso los gastos presupuestados pueden exceder los ingresos corrientes probables.

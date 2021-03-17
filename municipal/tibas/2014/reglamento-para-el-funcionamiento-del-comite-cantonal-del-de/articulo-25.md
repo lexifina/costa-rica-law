@@ -1,1 +1,0 @@
-Artículo 25.—Los integrantes del Comité Cantonal de Deportes y Recreación, se reunirán en sesión ordinaria en el día, hora y frecuencia acordados en la sesión inaugural, acuerdo que deben comunicar al Concejo Municipal. No obstante por motivos especiales y a juicio de la mayoría, podrá variarse la fecha y hora, para una o varias sesiones.

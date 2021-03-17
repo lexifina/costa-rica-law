@@ -1,1 +1,0 @@
-Artículo 69.—Los designados como miembros del Comité Comunal de Deporte y Recreación se reunirán posteriormente y de su seno se integrará el Directorio con su respectivo cargo. Serán juramentados por el presidente del Comité Cantonal de Deportes y Recreación o en su defecto, por quien resulte delegado.

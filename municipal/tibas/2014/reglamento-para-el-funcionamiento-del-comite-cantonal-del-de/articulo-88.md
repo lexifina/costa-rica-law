@@ -1,1 +1,0 @@
-Artículo 88.—Toda organización deportiva y recreativa de la comunidad debe gestionar la adscripción del Comité Cantonal de Deportes y Recreación para gozar de todos los beneficios o patrocinios en proyectos y programas que el mismo ofrece.

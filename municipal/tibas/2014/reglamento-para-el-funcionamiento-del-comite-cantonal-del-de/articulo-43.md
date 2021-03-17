@@ -1,1 +1,0 @@
-Artículo 43.—Las tarifas por alquiler de instalaciones deportivas, serán reguladas y propuestas por el Comité Cantonal de Deportes y Recreación ante el Concejo Municipal, para su aprobación, previo estudio técnico que respalde y justifique dichas propuestas.

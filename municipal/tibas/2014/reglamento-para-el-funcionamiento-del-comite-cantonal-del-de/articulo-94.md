@@ -1,1 +1,0 @@
-Artículo 94.—En caso de reformas, modificaciones y enmiendas al presente reglamento, las mismas deben ser elevadas por el Comité Cantonal de Deportes y Recreación ante el Concejo Municipal para que este ente lo acoja y le brinde el trámite de aprobación y proceda a su publicación en el Diario Oficial La Gaceta.

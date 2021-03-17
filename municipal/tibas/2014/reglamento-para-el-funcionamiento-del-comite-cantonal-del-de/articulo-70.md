@@ -1,1 +1,0 @@
-Artículo 70.—El delegado del Comité Cantonal de Deportes y Recreación en esta Asamblea será el encargado de presidir, así como verificar el quórum y de levantar la lista de asistencia correspondiente.

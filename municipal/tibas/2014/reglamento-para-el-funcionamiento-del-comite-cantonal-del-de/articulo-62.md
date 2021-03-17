@@ -1,1 +1,0 @@
-Artículo 62.—El Comité Cantonal de Deportes y Recreación y sus órganos operativos, podrán invertir fondos en los terrenos y propiedades públicas que estén bajo su administración por convenio siempre que le pertenezcan a la Municipalidad.

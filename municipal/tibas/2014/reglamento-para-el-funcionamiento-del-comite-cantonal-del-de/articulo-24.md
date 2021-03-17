@@ -1,1 +1,0 @@
-Artículo 24.—En la primera sesión en el ejercicio de los cargos, mediante votación secreta, se designarán los cargos de Presidente, Vicepresidente, Secretario, Tesorero y Vocal; cargos que desempeñarán por espacio de dos años, en forma ad honoren pudiendo ser reelectos.

@@ -1,1 +1,0 @@
-Artículo 68.—El quórum de la misma debe estar constituido por un número no menor de treinta (30) personas presentes, a la hora de Primera Convocatoria. De lo contrario se darán sesenta (60) minutos de espera y se procederá con la segunda convocatoria con la asistencia que se cuente y que no podrá ser menor a los puestos de elección.

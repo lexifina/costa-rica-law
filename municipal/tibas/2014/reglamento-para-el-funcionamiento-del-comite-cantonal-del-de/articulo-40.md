@@ -1,1 +1,0 @@
-Artículo 40.—Una vez legalizados los libros por la Auditoría Interna Municipal, el Comité Cantonal de Deportes y Recreación los solicitará a esa Unidad para entregarlos debidamente sellados y foliados a cada Comité Comunal para su utilización.

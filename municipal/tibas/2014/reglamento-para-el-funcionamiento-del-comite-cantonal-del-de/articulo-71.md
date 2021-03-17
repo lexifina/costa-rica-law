@@ -1,1 +1,0 @@
-Artículo 71.—No podrá iniciar una Asamblea Publica de vecinos si no está presente el presidente del Comité o el delegado nombrado para tal acto por el Comité Cantonal de Deportes y Recreación. En caso de ausencia, los vecinos levantarán un acta notificando lo ocurrido y así lo informarán al Comité Cantonal de Deportes y Recreación con copia al Concejo Municipal de Tibás.

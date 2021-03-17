@@ -1,1 +1,0 @@
-Artículo 13.—El Comité Cantonal de Deportes y Recreación deberá presentar ante el Concejo Municipal, en el mes que corresponda de cada año, su programa anual de trabajo, con su respectivo presupuesto, (actividades, obras e inversión), Además deberán presentar un informe de los resultados de la gestión correspondiente al año anterior.

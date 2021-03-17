@@ -1,7 +1,0 @@
-Artículo 6°—Treinta días naturales antes del nombramiento, la Municipalidad informará a las organizaciones deportivas, recreativas y comunales de la convocatoria y apertura para recepción de propuestas y los nombramientos de los cinco miembros de la Junta Directiva del Comité Cantonal que se harán de la siguiente forma:
-a- Dos miembros de nombramiento directo del Concejo Municipal.
-b- Dos miembros de las organizaciones deportivas y recreativas del cantón.
-c- Un miembro de las organizaciones comunales restantes.
-Los miembros a que se refiere el inciso a), serán de nombramiento directo del Concejo Municipal.
-Los miembros del inciso b) serán elegidos por asamblea que deberá ser convocada por el Concejo Municipal a solicitud del Comité Cantonal, para tal fin, éste estará obligado a realizar la convocatoria con ocho días hábiles previos a la mencionada Asamblea. Tal asamblea la conformaran las organizaciones deportivas y recreativas del cantón y adscritas al citado Comité Cantonal, mínimo con treinta días naturales de antelación a la fecha del citado vencimiento, teniendo derecho a voto el presidente o vicepresidente de cada Asociación. Tal designación se realizará por la mayoría simple de los presentes.
-El miembro del inciso c) será elegido por Asamblea convocada por el Comité Cantonal, según el procedimiento establecido para los representantes del inciso b) anterior, y para tal fin la asamblea será conformada por las organizaciones comunales debidamente inscritas y reconocidas por la Municipalidad, según la reglamentación respectiva.

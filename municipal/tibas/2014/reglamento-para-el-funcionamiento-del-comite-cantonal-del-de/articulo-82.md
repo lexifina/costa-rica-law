@@ -1,1 +1,0 @@
-Artículo 82.—El sustituto ocupara el cargo dentro de la Junta Directiva del miembro saliente. Si a conveniencia del funcionamiento interno, quedan facultados los directivos para dictaminar si procede una reestructuración de nuevos cargos en el directorio.

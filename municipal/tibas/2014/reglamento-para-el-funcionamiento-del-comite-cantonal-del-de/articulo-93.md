@@ -1,1 +1,0 @@
-Artículo 93.—Toda modificación y ajuste que se deba realizar, que no se encuentre estipulado en el presente reglamento, quedará sujeto a aplicación de acuerdo a lo estipulado mediante el Código Municipal vigente y cualquier reforma que fuese implementada en el mismo.

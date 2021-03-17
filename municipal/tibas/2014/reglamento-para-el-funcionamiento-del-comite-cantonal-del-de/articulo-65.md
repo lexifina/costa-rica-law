@@ -1,1 +1,0 @@
-Artículo 65.—El nombramiento del Comité Comunal de Deporte y Recreación se llevará a cabo mediante Asamblea Publica de vecinos, convocada y presidida por el delegado o representante del Comité Cantonal de Deportes y Recreación.
