@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de la Comisión de Políticas para la Negociac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-10 | la propia norma |
+| 2 | 2021-03-17 | SINALEVI (sin norma nombrada) |
