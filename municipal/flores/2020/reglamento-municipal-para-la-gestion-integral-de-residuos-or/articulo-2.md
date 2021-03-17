@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Este reglamento es de acatamiento obligatorio para todas las personas, físicas y jurídicas, públicas y privadas, generadoras de residuos sólidos de competencia municipal que se encuentren localizados dentro del ámbito territorial del cantón.

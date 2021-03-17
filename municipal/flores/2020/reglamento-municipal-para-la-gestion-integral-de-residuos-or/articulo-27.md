@@ -1,0 +1,1 @@
+Artículo 27.-Tasas diferenciadas. La Municipalidad puede establecer tasas diferenciadas por la recolección, tratamiento y disposición final de los residuos generados en el cantón, según sean actividades comerciales o domiciliares. Los usuarios serán informados con mínimo 2 meses de anterioridad sobre los cambios antes de entrada en vigor.

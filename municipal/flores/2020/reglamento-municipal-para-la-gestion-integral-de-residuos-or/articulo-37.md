@@ -1,0 +1,1 @@
+Artículo 37.-Denuncias. En caso de que existan indicios sobre la comisión de una infracción o delito, los inspectores municipales presentarán la denuncia respectiva ante el Tribunal Ambiental Administrativo o en la Fiscalía correspondiente.

@@ -1,0 +1,1 @@
+Artículo 30.-En toda unidad habitacional en cuya localización exista una patente y se lleve a cabo una actividad comercial dentro de la misma vivienda de forma tal que genere basura, se le cobrará la tarifa residencial y la tarifa comercial de acuerdo a lo estipulado en el Reglamento de Patentes de la Municipalidad de Flores en su artículo 55.
