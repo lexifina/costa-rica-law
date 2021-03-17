@@ -1,1 +1,0 @@
-Artículo 10.—Derogatorias. Se deroga el anterior Manual para la asignación, uso y control de equipos de telefonía celular asignados a funcionarios de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.
