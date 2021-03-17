@@ -1,0 +1,1 @@
+ARTÍCULO 39.- COLABORACIÓN EN MATERIA DE GESTION DE PERSONAL SUBORDINADO DEL COMITÉ CANTONAL: En caso de tener consultas o inquietud en relación con la aplicación de la normativa general de empleo público municipal a su personal el Comité Cantonal contará con la asesoría del Departamento de Servicios Jurídicos y del Departamento de Recursos Humanos de la Municipalidad de Tibás.

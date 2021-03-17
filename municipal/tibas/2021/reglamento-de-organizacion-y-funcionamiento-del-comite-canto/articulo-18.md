@@ -1,0 +1,1 @@
+ARTÍCULO 18.- FUNCIONES DE LA VICEPRESIDENCIA: Son funciones de la Vicepresidencia sustituir a quien ocupe la Presidencia en ausencia temporales y ocasionales de esta persona, con sus mismos deberes y obligaciones. Tramitar los asuntos que para su estudio o ejecución se le encomienden por parte de la Junta Directiva.

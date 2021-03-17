@@ -1,0 +1,1 @@
+ARTÍCULO 43.- DE LAS PERSONAS FUNCIONARIAS ADMINISTRATIVAS: Las personas funcionarias administrativas del Comité Cantonal serán las encargadas de brindar los servicios operativos, técnicos o administrativos a la Junta Directiva y el Administrador General.

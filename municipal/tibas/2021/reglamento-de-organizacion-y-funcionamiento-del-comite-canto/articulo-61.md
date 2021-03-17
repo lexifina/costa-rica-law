@@ -1,0 +1,1 @@
+ARTÍCULO 61.- PROCEDIMIENTO EN CASO DE AUSENCIAS DEFINITIVAS: Ante la ausencia definitiva de uno de los miembros, este será sustituido por la persona que haya sido electa por el mismo mecanismo por el cual se eligió al miembro con ausencia definitiva, por el plazo restante del periodo en ejercicio, según los Registros que lleve al efecto la Secretaría del Concejo Municipal.

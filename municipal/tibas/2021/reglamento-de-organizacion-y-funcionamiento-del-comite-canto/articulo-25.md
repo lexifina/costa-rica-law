@@ -1,0 +1,1 @@
+ARTÍCULO 25.- TIEMPO MÁXIMO PARA INICIO DE LAS SESIONES: Para que sean válidas las sesiones deberán iniciarse a más tardar quince minutos después de la hora señalada para tal efecto. En caso de no lograr el quórum requerido, se hará constar la asistencia de las personas presentes por parte de la secretaria del Comité Cantonal.

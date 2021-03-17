@@ -1,0 +1,6 @@
+CAPÍTULO XI
+SOBRE LOS PROCEDIMIENTOS DE ELECCIÓN DE LAS PERSONAS
+INTEGRANTES COMITÉ CANTONAL
+ARTÍCULO 66.- REPRESENTANTES DEL CONCEJO: El Concejo Municipal debe designar por mayoría simple a las personas que lo representarán ante la Junta Directiva del Comité Cantonal, cada dos años en el mes de noviembre, para lo cual solicitará la postulación de candidatos en la primera quincena y tomará la decisión en la segunda quincena de dicho mes, respetando la alternancia y la paridad de género.
+En caso de empate en los votos obtenidos por dos o más postulantes, se votará nuevamente incluyendo únicamente los nombres de las personas que obtuvieron la mayor cantidad de votos.
+De persistir el empate quedará electo o electa en el puesto la persona de menor edad de los candidatos.

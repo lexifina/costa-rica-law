@@ -1,0 +1,2 @@
+ARTÍCULO 72.- SOBRE EL QUORUM ESTRUCTURAL Y FUNCIONAL DE LAS ASAMBLEAS: El quórum para iniciar la Asamblea a la hora convocada será de la mayoría absoluta de los delegados de conformidad con el padrón respectivo. En caso de no poder celebrarse la asamblea en primera convocatoria por falta de quorum, se tendrá por realizada en la segunda convocatoria treinta minutos después de la primera, realizándose la Asamblea con los miembros que estén presentes.
+Los acuerdos de las Asambleas serán tomados por la mayoría simple de votos de sus asistentes.

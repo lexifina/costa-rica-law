@@ -1,0 +1,1 @@
+ARTÍCULO 75.- PADRON PARA EL CORRECTO EJERCICIO DEL DERECHO AL VOTO EN LA ASAMBLEA DE ELECCIÓN DE LOS COMITÉS COMUNALES: Para ejercer el derecho al voto en la ASAMBLEA DE ELECCIÓN DE LOS COMITÉS COMUNALES, las organizaciones deberán estar debidamente registradas y con su información actualizada en los respectivos registros que lleva el Comité Cantonal de Deportes.

@@ -1,0 +1,3 @@
+ARTÍCULO 29.- GENERALIDADES SOBRE LAS MOCIONES: Las mociones que se presenten al pleno del órgano colegiado pueden ser de dos tipos mociones principales y mociones subsidiarias. Estas últimas a su vez se dividen según el orden de prelación en el que deben ser discutidas en tres tipos: privilegiadas, incidentales y secundarias.
+Toda moción se aprobará por mayoría absoluta, salvo regla en contrario dispuesta en este reglamento.
+La moción principal, la incidental para dividir un asunto y las de enmienda a la moción principal, deberán ser presentadas por escrito, todas las demás mociones e incidencias se reputan como de mero trámite y podrán ser presentadas de manera oral.

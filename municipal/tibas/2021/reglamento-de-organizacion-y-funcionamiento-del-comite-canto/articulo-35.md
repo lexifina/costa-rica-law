@@ -1,0 +1,2 @@
+ARTÍCULO 35.- DEBER DE LLEVAR LOS LIBROS DE ACTAS: El Comité Cantonal de Deportes deberá llevar un libro de actas debidamente legalizado por la Auditoría Municipal, donde consten en forma sucinta los acuerdos y demás incidencias que éstos traten en sus sesiones.
+Cuando una persona integrante del órgano colegiado haga constar su voto contrario al acuerdo adoptado, se deberán incluir los motivos que lo justifican.

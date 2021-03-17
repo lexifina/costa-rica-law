@@ -1,0 +1,1 @@
+ARTÍCULO 62.- REGIMEN SUPLETORIO APLICABLE A LAS SESIONES DE ESTOS COMITÉS: En lo no previsto, será aplicable para todas las sesiones de los comités comunales en lo compatible lo regulado para las sesiones de la Junta Directiva del Comité Cantonal.

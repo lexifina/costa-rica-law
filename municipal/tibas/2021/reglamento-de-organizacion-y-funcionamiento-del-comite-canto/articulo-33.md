@@ -1,0 +1,1 @@
+ARTÍCULO 33.- MOCION INCIDENTAL PARA DIVIDIR UN ASUNTO: Cuando una moción principal plantee varios asuntos, los integrantes de la Junta podrán mocionar para separar las proposiciones allí contenidas; el presidente de dará trámite a este tipo de mociones de previo a cualquier otra moción, excepto a la moción privilegiada de orden y las incidencias privilegiadas.

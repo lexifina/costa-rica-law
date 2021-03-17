@@ -1,0 +1,1 @@
+ARTÍCULO 51.- INCLUSIÓN DE RECURSOS PROVINIENTES DE PARTIDAS ESPECÍFICAS: La Junta Directiva deberá incluir en su presupuesto el dinero de partidas específicas que tengan disponible en sus cuentas corrientes, siempre y cuando se respete el destino de las mismas.

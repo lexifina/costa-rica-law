@@ -1,0 +1,1 @@
+ARTÍCULO 10.- JURAMENTACIÓN: Las personas integrantes de la Junta Directiva, serán juramentadas por el Concejo Municipal en la primera quincena del mes de febrero correspondiente a su año de entrada en funciones.

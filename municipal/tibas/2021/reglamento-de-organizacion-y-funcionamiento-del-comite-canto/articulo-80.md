@@ -1,0 +1,2 @@
+ARTÍCULO 80.- SOBRE EL QUÓRUM ESTRUCTURAL Y FUNCIONAL DE LAS ASAMBLEAS: El quórum para iniciar la Asamblea a la hora convocada será de la mitad más uno de los delegados de conformidad con el padrón respectivo. En caso de no poder celebrarse la asamblea en primera convocatoria por falta de quorum, se tendrá por realizada en la segunda convocatoria treinta minutos después de la primera, realizándose entonces la asamblea con los miembros que estén presentes.
+Los acuerdos de las Asambleas serán tomados por la mayoría simple de votos de sus asistentes.
