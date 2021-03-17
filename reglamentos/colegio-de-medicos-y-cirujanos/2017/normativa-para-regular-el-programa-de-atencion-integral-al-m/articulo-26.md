@@ -1,3 +1,2 @@
-Artículo 26.—En cualquiera de los casos descritos en los artículos 24 y 25, el profesional deberá entregar a la Comisión PAIME, un informe en el que se explicitará. el control y seguimiento posterior al alta. El cual deberá estar debidamente firmado por el paciente y por el profesional.
-Dicho informe lo conocerá la Comisión PAIME. lo incluirá en el expediente y procederá al archivo del mismo.
-(Así reformado en sesión ordinaria del 24 de junio del 2020)
+Artículo 26.-En caso de no poder presentarse a la cita, el paciente deberá comunicarlo al profesional en un plazo mínimo de 24 horas previas y presentar la justificación respectiva según lo establecido en la presente normativa.
+(Así reformado en sesión ordinaria del 17 de marzo del 2021)

@@ -1,2 +1,2 @@
-Artículo 28.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
-(Así adicionado en sesión ordinaria del 24 de junio del 2020)
+Artículo 28.-En cualquiera de los casos de escritos en los artículos 24 y 25, el profesional deberá entregar a la Comisión PAIME, un informe en el que se explicitará, el control y seguimiento posterior al alta. El cual deberá estar debidamente firmado por el profesional. Dicho informe lo conocerá la Comisión PAIME, lo incluirá en el expediente y procederá al archivo del mismo.
+(Así adicionado mediante sesión del 17 de marzo del 2021)
