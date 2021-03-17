@@ -1,0 +1,2 @@
+ARTÍCULO 9- Inclusión de recursos en el presupuesto ordinario y extraordinario de la República
+Siendo que los recursos del financiamiento N.º 4871/0C-CR son única y exclusivamente para la utilización en el marco del Programa de Seguridad Ciudadana y Prevención de Violencia, el Poder Ejecutivo deberá incluir dichos recursos en el presupuesto ordinario y extraordinario de la República, mediante autorización legislativa.
