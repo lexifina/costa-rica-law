@@ -2,3 +2,4 @@ Artículo 6°:Apruébense los siguientes Egresos Ordinarios y Extraordinarios de
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 318 a La Gaceta N° 284 del 2 de diciembre del 2020)
 (Modificado por el artículo 1° del decreto ejecutivo N° 42812 del 12 de enero del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 42864 del 15 de febrero del 2021)
+(Así reformado por el artículo 2° de la ley N° 9970 del 12 de marzo del 2021)
