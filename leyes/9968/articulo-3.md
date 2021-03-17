@@ -1,0 +1,2 @@
+ARTÍCULO 3- Estructura organizacional para la ejecución del Programa de Seguridad Ciudadana y Prevención de la Violencia
+El prestatario llevará a cabo el Programa bajo la gestión del Ministerio de Justicia y Paz, por medio de la Unidad Coordinadora del Programa (UCP). Aquellas actividades que se ejecuten con la participación de otros entes públicos serán gestionadas según los lineamientos establecidos en el Manual Operativo del Programa.

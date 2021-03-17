@@ -1,0 +1,2 @@
+ARTÍCULO 8- Otras fuentes de financiamiento
+En caso de que el Poder Ejecutivo logre concretar financiamiento adicional para el Programa de Seguridad Ciudadana y Prevención de la Violencia, proveniente de cooperación financiera internacional no reembolsable, los recursos que se liberen del endeudamiento del Contrato de Préstamo N.º 4871 /OC-CR podrán destinarse, previo acuerdo con el banco, a otras actividades de infraestructura consistentes con los objetivos del referido Programa y cumpliendo los indicadores dispuestos para estos fines en cada componente.

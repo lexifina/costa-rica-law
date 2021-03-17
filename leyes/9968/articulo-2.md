@@ -1,0 +1,2 @@
+ARTÍCULO 2- Objetivo del Programa de Seguridad Ciudadana y Prevención de la violencia.
+El Programa tiene como objetivo general contribuir a la disminución de los homicidios y asaltos en Costa Rica. Los objetivos específicos son: (i) mejorar la efectividad policial para prevenir el delito en los distritos priorizados; y (ii) reducir los comportamientos delictivos de adolescentes y jóvenes vulnerables a la violencia, en distritos con desventajas concentradas.
