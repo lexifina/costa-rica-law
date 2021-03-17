@@ -1,1 +1,0 @@
-Artículo 51.—El Comité deberá entregar un informe semestral a la Auditoria de la Municipalidad, en relación a las finanzas, uso y disposición de ingresos, asimismo de los balances relativos a egresos, debidamente respaldados con la documentación correspondiente. La Auditoria informará al Concejo Municipal de los alcances del informe.

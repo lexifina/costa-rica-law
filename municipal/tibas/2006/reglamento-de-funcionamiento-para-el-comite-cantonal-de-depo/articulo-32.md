@@ -1,1 +1,0 @@
-Artículo 32.—Para la satisfacción de sus necesidades, los Comités Comunales deben organizar actividades para recaudar fondos pudiendo solicitar para ello, la colaboración de la empresa privada y de las instituciones públicas, con el aval del Comité, a quien deberá informar de la gestión y resultado de dichas actividades.

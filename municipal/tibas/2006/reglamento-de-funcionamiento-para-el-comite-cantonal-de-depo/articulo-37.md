@@ -1,1 +1,0 @@
-Artículo 37.—El quórum mínimo para sesionar válidamente será de tres miembros. Los acuerdos se tomarán por mayoría simple de los presentes, salvo que la Ley o este Reglamento establezcan alguna mayoría diferente según el acuerdo a tomar. Caso de empate, el presidente ejercerá su derecho al doble voto.

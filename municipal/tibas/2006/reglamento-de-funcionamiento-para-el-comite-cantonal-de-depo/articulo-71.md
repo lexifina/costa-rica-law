@@ -1,1 +1,0 @@
-Artículo 71.—Como norma transitoria se establece que todo aquel nombramiento que estuviere vigente a la fecha de la aprobación del presente Reglamento deberá cumplir con el plazo que restare por cumplir hasta su vencimiento definitivo, al igual que cualquier contrato, o convenio suscrito con anterioridad a la aprobación dicha.

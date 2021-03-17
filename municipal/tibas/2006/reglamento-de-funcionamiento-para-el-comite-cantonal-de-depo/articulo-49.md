@@ -1,1 +1,0 @@
-Artículo 49.—El Comité deberá elaborar el Plan Anual Operativo y el Presupuesto anual de ingresos, el cual deberá reflejar los planes y programas del periodo conforme a los términos y condiciones que se consignan en le artículo 15 de este reglamento.

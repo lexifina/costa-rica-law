@@ -1,2 +1,0 @@
-Artículo 9º—Los miembros del Comité Cantonal de Deportes nombrados conforme a lo dispuesto en el artículo 3 del Reglamento, deberán elegir en la primera sesión después de su nombramiento, de su seno una Junta Directiva compuesta de un (a) Presidente (a), un (a) Vicepresidente (a), un (a) Secretario (a), un (a) Tesorero (a), un (a) Vocal; quienes durarán en sus cargos por dos años. No devengarán dietas ni remuneración alguna en el ejercicio de sus cargos y podrán ser reelegidos.
-(Así reformado mediante sesión Nº 202 del 9 de marzo de 2010)
