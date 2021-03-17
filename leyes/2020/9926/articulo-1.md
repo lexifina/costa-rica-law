@@ -11,3 +11,4 @@ INCISO B: DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBI
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 318 a La Gaceta N° 284 del 2 de diciembre del 2020)
 (Así reformado el inciso b) anterior por el artículo 1° de la ley N° 9955 del 19 de febrero del 2021)
 (Así reformado por el artículo 1° de la ley N° 9942 del 25 de enero del 2021)
+(Así reformado por el artículo 1° de la ley N° 9970 del 12 de marzo del 2021)
