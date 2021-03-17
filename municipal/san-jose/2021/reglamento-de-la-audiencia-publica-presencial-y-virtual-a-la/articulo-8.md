@@ -1,0 +1,2 @@
+Artículo 8º-Inscripción
+Para efectos de asistir a la sesión virtual, las personas deberán llenar un formulario donde indicarán sus datos personales (nombre, número de cédula, lugar de residencia, información de contacto), posterior al cual se les remitirá el enlace mediante el cual podrán acceder a ella. Cada persona que participe de la audiencia deberá cerciorarse de la coincidencia entre los datos indicados en el formulario de inscripción y el usuario de la plataforma.

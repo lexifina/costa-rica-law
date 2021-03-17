@@ -1,0 +1,2 @@
+Artículo 12.-Inscripción
+Para efectos de asistir de forma presencial, las personas deberán llamar al secretario de la Dirección Desarrollo Urbano al teléfono 2547-6115 indicando el interés de ser parte de la audiencia, brindando sus datos personales (nombre, número de cédula, lugar de residencia, información de contacto), posterior al cual se les llamará para confirmar o declinar su participación en el evento.
