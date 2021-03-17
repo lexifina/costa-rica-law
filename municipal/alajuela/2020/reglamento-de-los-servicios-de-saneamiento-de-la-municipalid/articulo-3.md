@@ -1,0 +1,1 @@
+Artículo 3.- Alcance. Este Reglamento es de aplicación a nivel cantonal para todos aquellos usuarios que se encuentren dentro de las zonas de cobertura de los servicios de saneamiento definidas por la Municipalidad de Alajuela y que disfruten efectivamente de tales servicios.

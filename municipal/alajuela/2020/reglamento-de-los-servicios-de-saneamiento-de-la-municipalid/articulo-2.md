@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. Este Reglamento es aplicable al servicio público de saneamiento brindado por la Municipalidad de Alajuela en sus etapas de disponibilidad; prestación efectiva del servicio; actividades de recolección, comercialización y operación; así como la venta de servicios complementarios.

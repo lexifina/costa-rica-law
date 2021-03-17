@@ -1,0 +1,1 @@
+Articulo 8.- Dependencia responsable. Corresponderá a la Actividad de Saneamiento de la Municipalidad de Alajuela, la prestación de los servicios descritos en este Reglamento, sin perjuicio de que en el cumplimiento de esas tareas requiera el concurso de otras dependencias institucionales.

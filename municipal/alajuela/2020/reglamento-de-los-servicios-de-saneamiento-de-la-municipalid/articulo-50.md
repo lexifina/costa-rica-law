@@ -1,0 +1,13 @@
+Artículo 50. -Recepción de plantas de tratamiento por parte de la Municipalidad. Las personas o empresas desarrolladoras que cedan plantas de tratamiento de aguas residuales a la Municipalidad deberán cumplir con los siguientes requisitos:
+a. Para entrega y recepción de las plantas de tratamiento de Aguas Residuales se aplicará supletoriamente los trámites, requisitos y procedimientos definidos por la Junta Directiva del Instituto Costarricense de Acueductos y Alcantarillados en la Sesión Extraordinaria 2008- 008 del 18 de febrero del 2008.
+b. Adjuntar el Manual de Operación y de Mantenimiento del sistema.
+c. Anexo a los planos constructivos que se presenten para efecto de permisos de construcción de todas las obras del sistema del alcantarillado sanitario, debe presentarse ante la Actividad de Saneamiento, copia de la Memoria de Cálculo y de la Memoria de Operación y de Mantenimiento.
+d. Llevar a cabo la operación y el mantenimiento de la planta de tratamiento hasta que la urbanización este construida en un 70% de las unidades habitacionales.
+e. Durante el periodo que recaiga la responsabilidad de la operación y mantenimiento de la Planta de Tratamiento de Aguas Residuales de una urbanización sobre la empresa constructora o encargados, ésta deberá presentar los reportes operacionales ante el Ministerio de Salud, en forma escrita con copia a la Municipalidad, que demuestre el funcionamiento de la planta de acuerdo al cumplimiento de los rangos de los parámetros exigidos por ley.
+f. Brindar capacitación al personal municipal que asumirá la operación y mantenimiento de la planta de tratamiento en caso de ser de orden público.
+g. La entrega de la planta de tratamiento a la Municipalidad debe de hacerse demostrando el perfecto estado de funcionamiento.
+h. En caso de requerirse equipo electromecánico debe entregarse con duplicado de todas las partes que sean necesario de sustituir en caso de desperfecto o emergencia.
+i. Todo equipo a instalar en las obras de alcantarillado sanitario y en la Planta de Tratamiento de Aguas Residuales debe contar con asesoría técnica y de suministro de repuestos.
+j. La vigencia de garantía de cualquier equipo utilizado debe ser de al menos un año, contado a partir de recibidas las obras por parte de la Municipalidad.
+k. En los manuales de operación y de mantenimiento de toda planta de tratamiento de aguas residuales se debe especificar todas las actividades de limpieza indicando el tiempo para realizar cada actividad, el día y la hora.
+l. Todas las actividades de operación y mantenimiento a realizar en una planta de tratamiento de aguas residuales deberán quedar registrada en el cuaderno de Bitácora.

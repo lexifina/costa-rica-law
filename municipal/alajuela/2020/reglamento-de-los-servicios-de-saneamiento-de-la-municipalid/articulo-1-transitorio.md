@@ -1,0 +1,4 @@
+Disposiciones Transitorias
+Transitorio I.- Cronograma de implementación: Los servicios contemplados en el presente Reglamento se implementarán de acuerdo con el siguiente cronograma:
+1. Servicio de saneamiento con recolección mediante alcantarillado sanitario y servicios complementarios: La prestación y cobro de estos servicios empezará a regir de forma inmediata a partir de la entrada en vigencia del presente Reglamento, pues corresponde a los servicios tradicionales que ya son brindados por la Municipalidad.
+2. Servicio de saneamiento con recolección in situ: La prestación y cobro de estos servicios a los nuevos beneficiarios iniciará a partir del año 2022. Las zonas de cobertura se incorporarán gradualmente de forma semestral, según la capacidad y disponibilidad de recursos de la Municipalidad. Previo a la aprobación del cronograma por el Concejo Municipal. (Segunda publicación).

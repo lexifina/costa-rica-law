@@ -1,0 +1,1 @@
+Artículo 46. -De la multa por facturaciones vencidas. Toda factura vencida podrá ser cancelada en cualquiera de los agentes recaudadores debidamente autorizados por la Municipalidad, con un recargo del 2% mensual sobre el monto facturado.

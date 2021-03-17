@@ -1,0 +1,3 @@
+Sección Sexta. - Del sistema de medición
+Artículo 32. -Del sistema de medición de los servicios. La facturación del servicio de saneamiento mediante alcantarillado sanitario se realizará con base en el volumen de agua residual vertida por el usuario al alcantarillado. Debido a la complejidad técnica y alto costo de realizar medición directa del volumen de aguas residuales a la salida de la propiedad, se utilizará medición indirecta a partir del consumo de agua potable.
+En caso de que no cuente con sistema de medición de agua potable, el usuario pagará la tarifa aprobada para servicios fijos. Los servicios de saneamiento mediante limpieza en situ de tanque séptico o sistema individualizado se facturarán por metro cúbico de agua residual recolectada.

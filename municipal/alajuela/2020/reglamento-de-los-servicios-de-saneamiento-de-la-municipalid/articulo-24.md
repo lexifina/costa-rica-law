@@ -1,0 +1,1 @@
+Artículo 24.- De la revocación de la constancia de disponibilidad. Cualquier modificación al uso o a las condiciones establecidas en el documento de disponibilidad, dejará sin efecto la constancia de la disponibilidad otorgada.

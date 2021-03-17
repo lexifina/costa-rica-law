@@ -1,0 +1,1 @@
+Artículo 9- Del pago de los servicios. Los servicios prestados por la Municipalidad a sus usuarios no podrán ser gratuitos, así se trate de entidades públicas nacionales, regionales, u otros operadores. Los usuarios deberán cancelar la tarifa que corresponda por el uso de los servicios.
