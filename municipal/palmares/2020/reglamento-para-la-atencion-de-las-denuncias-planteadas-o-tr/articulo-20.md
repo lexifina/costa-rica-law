@@ -1,0 +1,1 @@
+Artículo 20.-Priorización de las investigaciones. Todo proceso de investigación dará inicio en estricto orden de recibo, en caso de que se cuente con varias investigaciones sin iniciar, deben someterse a un proceso de valoración de riesgos para priorizar su atención.

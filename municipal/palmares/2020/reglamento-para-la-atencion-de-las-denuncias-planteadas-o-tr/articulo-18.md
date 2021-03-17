@@ -1,0 +1,3 @@
+Artículo 18.-De la comunicación al denunciante sobre la admisibilidad. Cuando la denuncia sea presentada con el nombre, calidades y dirección o cualquier otro medio para recibir notificaciones del denunciante, la Auditoría deberá comunicarle el resultado del estudio de admisibilidad en torno a la denuncia, sea ésta su admisibilidad, la desestimación, archivo o traslado de la misma a la administración activa u otras instancias.
+Esta comunicación no comprenderá la información, documentación u otras evidencias de las investigaciones, cuyos resultados puedan originar la apertura de un procedimiento administrativo o la interposición de un proceso judicial, no obstante,
+se indicará que el asunto se tramitó ante el competente para resolver.

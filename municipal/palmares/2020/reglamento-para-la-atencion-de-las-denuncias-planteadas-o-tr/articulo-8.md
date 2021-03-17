@@ -1,0 +1,1 @@
+Artículo 8º-Valoración de denuncias. El Auditor (a) Interno (a) de la Municipalidad de Palmares valorara la admisibilidad de las denuncias presentadas ante este órgano fiscalizador, conforme a lo establecido en este Reglamento.

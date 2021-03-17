@@ -1,0 +1,1 @@
+Artículo 12.-Denuncias trasladadas por la Contraloría General de la República y el Concejo Municipal a la Auditoría Interna. Se atenderán de acuerdo con el plan de trabajo las denuncias que le sean remitidas por el Órgano Contralor y por el Concejo Municipal. Sin embargo, de acuerdo con el contenido de éstas, se podrá dar prioridad a su atención en el menor tiempo posible.

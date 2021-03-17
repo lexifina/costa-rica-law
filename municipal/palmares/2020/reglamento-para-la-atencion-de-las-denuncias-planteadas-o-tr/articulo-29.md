@@ -1,0 +1,1 @@
+Artículo 29.-Participación de la Auditoria en los procesos. Cuando la Auditoría Interna elabore una relación de hechos o una denuncia penal, tiene el deber de colaborar en todas las etapas posteriores en que sea requerida, pero siempre circunscribiéndose al producto elaborado, a las acciones realizadas y a los criterios utilizados.
