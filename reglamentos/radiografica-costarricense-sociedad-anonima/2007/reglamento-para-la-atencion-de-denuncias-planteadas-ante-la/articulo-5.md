@@ -1,1 +1,0 @@
-Artículo 5º—Recibo de la denuncia. La Auditoría Interna recibirá las denuncias en las oficinas centrales de RACSA, las cuales deberán venir dirigidas directamente hacia la Auditoría Interna. El Auditor Interno valorará la admisibilidad de las denuncias presentadas.
