@@ -1,0 +1,1 @@
+Artículo 10.-De la aplicación de los intereses que se devenguen. Las sumas que por concepto de intereses se produzcan de cada inversión deben aplicarse a la partida que origina la inversión, sea recursos con destino específico u otra transferencia de Gobierno. En el caso de fondos libres se deben registrar en los reportes contables y presupuestarios de la Municipalidad.

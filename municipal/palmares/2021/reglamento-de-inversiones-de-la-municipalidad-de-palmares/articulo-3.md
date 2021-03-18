@@ -1,0 +1,6 @@
+CAPÍTULO III
+De la Comisión de Inversiones
+Artículo 3º-De la constitución. Se deberá establecer la Comisión Institucional de Inversiones, cuyas siglas serán CII, como un órgano de asesoría técnica financiera en materia de inversiones y que estará adscrito al Despacho del Alcalde Municipal. Este órgano deberá ser establecido por el Alcalde Municipal con carácter permanente en un término no mayor a un mes después de entrado en vigencia este Reglamento.
+Sus integrantes lo conforman en razón del puesto que ocupan, queda a discreción del Alcalde la selección de los funcionarios para la comisión, se deberá tomar en cuenta que la cantidad de integrantes deberá ser un número impar y podrá sustituir a alguno de sus miembros con una justificación razonada.
+Se debe tomar en cuenta que la comisión mínimo será conformada por un coordinador, un secretario y un fiscalizador. En caso de renuncia, separación forzosa o suplencia de alguno de sus miembros, quien sustituya al titular del cargo entrará a formar parte de la CII durante todo el tiempo que dure su nombramiento en el puesto.
+La participación de los miembros de la Comisión de Inversiones es obligatoria, actuando con voz y voto en el análisis y decisiones en materia de inversión.

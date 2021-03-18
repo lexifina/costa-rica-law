@@ -1,0 +1,2 @@
+Artículo 12.-De los informes. Debe presentarse mensualmente informe de los intereses devengados por las inversiones, que la Municipalidad posea, detallando tasa de interés, entidad donde se mantiene la inversión, origen de los fondos (municipales o recursos con destino específico), monto generado por intereses, registro contable.
+El informe en cuestión debe ser originado por la Coordinación de la Comisión, dentro de los diez días hábiles siguientes al cierre de mes.

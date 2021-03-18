@@ -1,0 +1,1 @@
+Artículo 4º-De la integración. La Comisión Institucional de Inversiones (CII) estará integrado por los funcionarios que el Alcalde designe, así como por al menos un miembro del Concejo Municipal, que será elegido por éste. Uno será el coordinador del equipo y entre los restantes miembros seleccionarán al tenedor de libros de actas, que a su vez será el secretario (a).

@@ -1,0 +1,3 @@
+Políticas administrativas
+Artículo 8º-De la autorización de invertir. Para invertir fondos municipales o recursos con destino específico debe contarse de previo con un detalle de las tasas de interés del mercado financiero costarricense a efecto de que el Alcalde autorice la inversión.
+Se autoriza invertir los fondos municipales en los distintos Instrumentos Financieros, que ofrezca las entidades financieras del Estado Costarricense. El Alcalde podrá delegar en otro funcionario la autorización para determinar las inversiones de los fondos municipales o recursos con destino específico, para lo cual debe dictar una resolución razonada y publicarla en el Diario Oficial La Gaceta.
