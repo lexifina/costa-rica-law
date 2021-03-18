@@ -1,0 +1,1 @@
+Artículo 2. Alcance: Este reglamento es aplicable a las personas colaboradoras de Colegio Universitario de Limón que realicen labores que la entidad determine como teletrabajables, según las necesidades institucionales, naturaleza de la dependencia y a realizar en el lugar donde existan las condiciones tecnológicas requeridas.

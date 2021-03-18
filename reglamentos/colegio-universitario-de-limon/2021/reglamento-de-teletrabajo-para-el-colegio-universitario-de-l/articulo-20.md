@@ -1,0 +1,1 @@
+Artículo 20. Jornada. La modalidad de teletrabajo se podrá realizar uno, dos o tres días por semana, mismos que se definirán mediante acuerdo mutuo entre la persona teletrabajadora y la Jefatura Inmediata. En los demás días la persona colaboradora deberá desempeñar sus funciones presencialmente en las instalaciones del Colegio Universitario de Limón o de sus órganos.

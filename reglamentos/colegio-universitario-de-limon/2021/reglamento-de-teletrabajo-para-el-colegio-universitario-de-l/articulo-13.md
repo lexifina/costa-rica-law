@@ -1,0 +1,1 @@
+Artículo 13. Domicilio del teletrabajador. El domicilio o lugar establecido previamente en el Contrato de Teletrabajo, debe reunir las condiciones mínimas establecidas para realizar teletrabajo. En caso de modificar el lugar indicado en el contrato o acuerdo inicial, el teletrabajador debe comunicarlo a su Supervisor o Jefatura Inmediata, con un mes de anticipación.
