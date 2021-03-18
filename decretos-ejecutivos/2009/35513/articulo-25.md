@@ -1,4 +1,4 @@
-Artículo 25.—Para organizar la prestación de los servicios de educación, la Provincia de Puntarenas contará con cinco Direcciones Regionales de Educación, cuya conformación geográfica se detalla a continuación:
+Artículo 25.-Para organizar la prestación de los servicios de educación, la Provincia de Puntarenas contará con cinco Direcciones Regionales de Educación, cuya conformación geográfica se detalla a continuación:
 a) Dirección Regional de Educación de Puntarenas, con sede en el Cantón de Puntarenas:
 Provincia | Cantón | Distrito Administrativo
 Puntarenas | Puntarenas | Puntarenas
@@ -27,7 +27,6 @@ Provincia | Cantón | Distritos
 Puntarenas | Puntarenas | Lepanto
 | | Paquera
 | | Cóbano
-(Así reformado el inciso b) anterior por el artículo 2° del decreto ejecutivo N° 36202 del 27 de setiembre de 2010)
 c) Dirección Regional de Educación de Aguirre, con sede en el Cantón de Aguirre:
 Provincia | Cantón | Distrito Administrativo
 Puntarenas | Aguirre | Quepos
@@ -59,6 +58,7 @@ Puntarenas | Osa | Cortés |
 | | Sierpe |
 | | Piedras Blancas |
 | | Bahía Ballena |
+(Así reformado el inciso d) anterior por el artículo 1° del decreto ejecutivo N° 42925 del 18 de marzo del 2021)
 e) Dirección Regional de Educación de Coto, con sede en el Cantón Corredores:
 Provincia | Cantón | Distrito Administrativo | Territorio Indígena
 Puntarenas | Corredores | Corredor |

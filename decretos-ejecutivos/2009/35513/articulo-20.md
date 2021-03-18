@@ -1,4 +1,4 @@
-Artículo 20.—Para organizar la prestación de los servicios de educación, la Provincia de San José contará con siete Direcciones Regionales de Educación, cuya conformación geográfica se detalla a continuación:
+Artículo 20.-Para organizar la prestación de los servicios de educación, la Provincia de San José contará con siete Direcciones Regionales de Educación, cuya conformación geográfica se detalla a continuación:
 a) Dirección Regional de Educación de San José-Central, con sede en el cantón de San José:
 Provincia | Cantón | Distritos
 San José | San José | Carmen
@@ -125,7 +125,7 @@ San José | Turrubares | San Pablo |
 | | San Juan de Mata |
 | | San Luis |
 | | Carara |
-f) Dirección Regional de Educación de Pérez Zeledón, con sede en el Cantón de Pérez Zeledón:
+g) Dirección Regional de Educación de Pérez Zeledón, con sede en el Cantón de Pérez Zeledón:
 Provincia | Cantón | Distrito Administrativo
 San José | Pérez Zeledón | San Isidro de El General
 | | General
@@ -138,3 +138,5 @@ San José | Pérez Zeledón | San Isidro de El General
 | | Barú
 | | Río Nuevo
 | | Páramo
+Puntarenas | Osa | Bahía Ballena
+(Así reformado el inciso g) anterior por el artíuclo 1° del decreto ejecutivo N° 42925 del 18 de marzo del 2021)
