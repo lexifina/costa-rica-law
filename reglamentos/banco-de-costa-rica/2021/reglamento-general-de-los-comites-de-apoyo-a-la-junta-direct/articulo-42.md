@@ -1,0 +1,3 @@
+Artículo 42. Comunicación de acuerdos. Los acuerdos ratificados son comunicados por las personas designadas por cada comité a los responsables de su atención y son depositados en carpetas públicas para conocimiento.
+Para la atención de los acuerdos se establece un plazo máximo de seis semanas. En caso de que se requiera mayor plazo debido a la complejidad del tema, el responsable de su atención debe justificar y tramitar la ampliación del plazo, con la persona encargada de dar seguimiento a los pendientes.
+En el caso de los acuerdos del Comité de Crédito del BCR, se procede conforme se establece en el Reglamento para el conocimiento de créditos.

@@ -1,0 +1,1 @@
+Artículo 9. De la periodicidad de las reuniones. Las reuniones se tienen programas para celebrarse mensualmente, el día y la hora que este Comité determine. Salvo que el presidente considere que no hay asuntos que tratar hasta la siguiente sesión.

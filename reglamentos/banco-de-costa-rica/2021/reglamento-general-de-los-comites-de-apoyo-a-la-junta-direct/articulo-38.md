@@ -1,0 +1,1 @@
+Artículo 38. Seguimiento de acuerdos y pendientes. Los comités deben contar con una secretaria o persona designada de brindar seguimiento a los acuerdos tomados en cada una de las reuniones, quien debe brindar una vez al mes, un informe detallado, sobre el seguimiento realizado y los resultados obtenidos.
