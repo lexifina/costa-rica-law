@@ -1,0 +1,5 @@
+ARTÍCULO 2- De conformidad con la autorización conferida en el artículo que antecede, se autoriza a la Junta Administrativa del Registro Nacional para que proceda a incorporar en su presupuesto la transferencia a realizar al Ministerio de Justicia y Paz mediante un presupuesto extraordinario, obtenidas las aprobaciones de los entes externos.
+Asimismo, el Ministerio de Hacienda deberá incluir en el presupuesto nacional la transferencia hacia el Ministerio de Justicia y Paz, por parte de la Junta Administrativa del Registro Nacional.
+El Ministerio de Justicia y Paz deberá entregar en un ano, a partir de la entrada en vigencia de la presente ley, un informe digital a la Comisión Permanente Especial para el Control del Ingreso y el Gasto Públicos de la Asamblea Legislativa, sobre la ejecución de los recursos que se le trasladan mediante la presente ley y su impacto en la infraestructura carcelaria.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veintitrés días del mes de febrero del año dos mil veintiuno.
