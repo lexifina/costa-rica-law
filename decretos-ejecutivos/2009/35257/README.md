@@ -26,3 +26,4 @@ Plan Nacional de Atribución de Frecuencias (PNAF)
 | 11 | 2017-02-27 | Decreto Ejecutivo 40370 (2017-02-27) |
 | 12 | 2018-11-06 | Decreto Ejecutivo 41458 (2018-11-06) |
 | 13 | 2019-12-05 | Decreto Ejecutivo 42205 (2019-12-05) |
+| 14 | 2021-03-18 | Decreto Ejecutivo 42924 (2021-03-18) |
