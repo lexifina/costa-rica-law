@@ -14,3 +14,4 @@ Perfil profesional de enfermería en la atención extra hospitalaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-28 | la propia norma |
+| 2 | 2021-03-18 | Reglamento 0 (2021-03-18) |

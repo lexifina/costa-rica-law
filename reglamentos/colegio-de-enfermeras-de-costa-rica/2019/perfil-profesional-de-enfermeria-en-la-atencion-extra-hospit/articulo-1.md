@@ -26,7 +26,7 @@ Holístico: Cuidar en sentido holístico significa entonces considerar a las per
 Ínter hospitalario: servicio que se da entre diferentes centros de salud.
 ITLS: (International trauma Life Support) Es un programa Internacional de capacitación para optimizar la atención pre hospitalaria al trauma.
 PALS: Soporte Vital Pediátrico Avanzado, de la AHA.
-PHTLS: Prehospital Trauma Life Support (PHTLS) – Soporte Vital en el Trauma Pre hospitalario.
+PHTLS: Prehospital Trauma Life Support (PHTLS) - Soporte Vital en el Trauma Pre hospitalario.
 SCI: Este curso proporciona conocimientos y habilidades para el uso del Sistema de Comando de Incidentes (SCI) en la escena de un incidente.
 Trauma: Lesión corporal a nivel orgánico, intencional o no, resultante de una exposición aguda a cantidades de energía que sobrepasan el umbral de tolerancia fisiológica.
 Justificación:
@@ -88,21 +88,20 @@ Puede ejercer la atención extra hospitalaria a nivel de servicios públicos, pr
 El trabajo requiere esfuerzo mental para atender y resolver problemas y tomar decisiones sobre asuntos de su competencia.
 Consecuencia del error:
 Debe observar gran cuidado en el trabajo, pues lo errores cometidos pueden ocasionar daños de consideración, algunos de carácter irreversible a los usuarios o clientes.
-Requisitos:
+(*) Requisitos:
 Lineamiento formativo mínimo para pertenecer al Perfil Profesional de Enfermería en la Atención Extra Hospitalaria:
-· Curso de Sistema de comando de incidentes básico.
-· Curso de Electrocardiografía aplicada.
-· Curso básico de control de sangrados B-Con.
-· Certificación en Soporte cardiaco vital avanzado ACLS.
-· Certificación en Soporte pediátrico vital avanzado PALS.
-· Certificación en Soporte vital ginecobstetricia avanzado.
-· Certificación en Soporte vital en trauma ITLS, PHTLS, FENIX III. (cualquiera de los tres)
-· Certificado Advanced Medical Life Support (AMLS o equivalente)
-· Tres años de incorporación
-· Contar con el aval de la Unidad de Desarrollo Profesional, del Colegio de Enfermeras de Costa Rica, en cada recertificación.
-· Todo curso o certificación debe apegarse a la Ley 7085.
-· Al ser aprobado su perfil podrá obtener la insignia y ser considerado un Especialista en la Atención Extra Hospitalaria en Costa Rica, modificando su condición en la licencia profesional.
-Una maestría en urgencias para enfermería, estaría sobre las capacitaciones antes descritas, siempre y cuando no se encuentre bajo normativa internacional de recertificación bianual.
+. Curso de Sistema de comando de incidentes básico.
+. Curso de Electrocardiografía aplicada.
+. Curso básico de control de sangrados B-Con.
+. Certificación en Soporte cardiaco vital avanzado ACLS.
+. Certificación en Soporte pediátrico vital avanzado PALS.
+. Certificación en Soporte vital ginecobstetricia avanzado.
+. Certificación en Soporte vital en trauma ITLS, PHTLS, FENIX III (cualquiera de los tres).
+. Certificado Advanced Medical Life Support (AMLS o equivalente).
+. Tres años de incorporación.
+. Contar con el aval de la Unidad de Desarrollo Profesional, del Colegio de Enfermeras de Costa Rica, en cada recertificación.
+. Al ser aprobado su perfil podrá obtener la insignia y ser considerado un Profesional Certificado en la Atención Extra Hospitalaria en Costa Rica, modificando su condición en la licencia profesional.
+(*)(Así reformado los requisitos anteriores mediante acuerdo Nº 48, acta Nº 2526, en sesión del 18 de marzo de 2021)
 Requisitos legales:
 · Grado mínimo de Licenciatura
 · Con licencia al día.
