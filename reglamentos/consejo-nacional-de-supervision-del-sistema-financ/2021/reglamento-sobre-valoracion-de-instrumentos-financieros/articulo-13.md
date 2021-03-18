@@ -1,0 +1,1 @@
+Artículo 13. Suministro de información. Las entidades autorizadas para el cálculo, determinación y suministro de precios deben suministrar a la SUGEVAL, la información que sea requerida para el cumplimiento de sus funciones, según se establezca en el Acuerdo SGV-A-75 Acuerdo para el suministro de Información periódica.

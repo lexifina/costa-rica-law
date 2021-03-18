@@ -1,0 +1,3 @@
+Artículo 14. Conservación de la información
+(1) Las entidades autorizadas para el cálculo, determinación y suministro de precios deben mantener la documentación de las metodologías, sus resultados y demás datos relacionados con la actividad por un plazo mínimo de cinco años.
+(2) Tratándose de documentación emitida por medios físicos, esta debe mantenerse en el domicilio fiscal o en el lugar de depósito que estime apropiado; pero ello no lo exime de su responsabilidad de custodia y, en consecuencia, de su obligación de velar por la integridad y seguridad de la documentación. En todo caso, esta información debe estar disponible cuando la SUGEVAL lo requiera en el domicilio fiscal de la entidad, en el plazo máximo de un día hábil.

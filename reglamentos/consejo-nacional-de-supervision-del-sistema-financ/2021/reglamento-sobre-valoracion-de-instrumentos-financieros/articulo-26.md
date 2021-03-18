@@ -1,0 +1,6 @@
+Artículo 26. Trámite de autorización
+(1) La SUGEVAL resolverá las solicitudes dentro del plazo de quince (15) días hábiles, como máximo, de conformidad con las facultades que establece la Ley General de la Administración Pública.
+(2) Si la documentación presentada estuviese incompleta, la SUGEVAL notificará por escrito al solicitante para que en el plazo máximo de diez días hábiles subsane las omisiones detectadas. Este plazo puede ser prorrogado por el Superintendente hasta por veinte (20) días hábiles, como máximo. Si el proveedor de precios no cumpliera en este plazo adicional, la solicitud se denegará.
+(3) La SUGEVAL puede requerir por una segunda vez correcciones sobre la documentación presentada, si el solicitante no cumplió en forma completa y correcta con lo notificado originalmente.
+(4) Si en esta segunda oportunidad el solicitante no cumple en un lapso máximo de diez (10) días hábiles, la solicitud se denegará. Los apercibimientos suspenderán el plazo de la Superintendencia para resolver.
+(5) Una vez que el proveedor de precios haya cumplido con los requisitos e incorporado las correcciones que se hayan indicado, y haya presentado los documentos finales en original mencionados en el artículo anterior, la SUGEVAL extenderá la resolución de autorización.

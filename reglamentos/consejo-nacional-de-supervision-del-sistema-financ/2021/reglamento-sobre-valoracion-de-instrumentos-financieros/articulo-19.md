@@ -1,0 +1,3 @@
+Artículo 19. Obligatoriedad de aplicación de la metodología
+(1) El proceso de determinación de precios para la valoración de los instrumentos financieros se llevará a cabo con estricto apego a la metodología y modelo de valoración registrados. Los precios finales generados serán definitivos y no podrán ser modificados con posterioridad.
+(2) Los proveedores de precios y entidades supervisadas que cuenten con metodologías y modelos propios registrados, deben establecer procedimientos que les permitan dar mantenimiento a las metodologías y modelos registrados, y,en el momento en que determine que éstas deben ser actualizadas o modificadas, deben proceder con lo dispuesto en esta norma.

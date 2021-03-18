@@ -1,0 +1,5 @@
+Artículo 29. Impugnación de precios
+(1) El proveedor de precios debe contar con un procedimiento para la recepción y resolución de las impugnaciones de precios que formulen sus usuarios a través de medios verificables, cuando existan argumentos técnicos que permitan suponer una incorrecta aplicación de la metodología o modelos de valoración o los precios no representen adecuadamente las condiciones de mercado.
+(2) El procedimiento para la impugnación de precios debe considerar al menos los horarios para las siguientes etapas: publicación preliminar de los precios, recepción de las impugnaciones, difusión de la resolución y publicación de los precios definitivos. La información para valoración debe suministrarse en un mismo momento para todos sus clientes.
+(3) El proveedor de precios debe comunicar a la SUGEVAL y a sus usuarios, la impugnación presentada, la decisión tomada y los fundamentos que la respaldan y debe ser resuelta por el Comité Técnico en la misma fecha que se recibe.
+(4) Posteriormente, debe comunicar a la SUGEVAL y sus usuarios los precios definitivos, de conformidad con los horarios establecidos en el procedimiento definido para estos efectos.

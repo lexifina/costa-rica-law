@@ -1,0 +1,3 @@
+Artículo 22. Exclusión forzosa de metodologías. Una vez que la entidad se encuentre en operación, procederá la exclusión del registro de la metodología cuando incurra en alguna de las siguientes causales:
+a) La metodología no es utilizada por ningún cliente, ni entidad supervisada para obtener los precios de valoración durante un plazo continuo de doce meses. Este plazo puede ser prorrogado hasta por la mitad del plazo original, siempre y cuando se solicite en tiempo la prórroga de forma justificada.
+b) Cuando haya un cambio reglamentario que conlleve la necesidad de modificar la metodología y se incumplan los plazos previstos en los transitorios establecidos en la modificación reglamentaria aprobada.

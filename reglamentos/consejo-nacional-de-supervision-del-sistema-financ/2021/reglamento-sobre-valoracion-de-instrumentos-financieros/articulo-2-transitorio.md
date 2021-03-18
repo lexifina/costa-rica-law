@@ -1,0 +1,1 @@
+Transitorio II. A partir del plazo de doce meses contados desde la entrada en vigencia del presente Reglamento, las entidades supervisadas que opten por el uso de metodologías y modelos propios de valoración para su Grupo o Conglomerado Financiero podrán iniciar los procesos de registro, según lo establecido en el presente Reglamento.

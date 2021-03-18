@@ -1,0 +1,1 @@
+Artículo 35. Responsabilidad de las entidades supervisadas ante nuevas emisiones. Las entidades supervisadas, previo a la adquisición de un nuevo instrumento financiero, deben asegurarse de estar en la capacidad de obtener precios para la valoración de este, ya sea mediante el proveedor de precios o mediante la aplicación de las metodologías y modelos propios de valoración.

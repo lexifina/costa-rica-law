@@ -1,0 +1,9 @@
+Artículo 18. Registro de metodologías y modelos de valoración
+(1) Los proveedores de precios y las entidades supervisadas que utilicen metodologías y modelos propios, deben registrarlos ante la SUGEVAL. Para el registro deben presentar lo siguiente:
+a) Solicitud suscrita por el representante legal de la entidad.
+b) Manual de funcionamiento que contenga la metodología y modelo de valoración.
+c) Copia de los resultados de la aplicación de la metodología y modelo de valoración propuesto, al menos para los últimos 20 días hábiles, previos a la presentación de la solicitud.
+(2) El registro de las metodologías y modelos de valoración está condicionado al cumplimiento de los lineamientos y disposiciones establecidas en este Reglamento.
+(3) La SUGEVAL podrá realizar objeciones a las metodologías y modelos de valoración o a sus modificaciones, en el momento que lo considere necesario. La objeción de una metodología de valoración, en ningún caso, tendrá efecto retroactivo respecto de los precios calculados o publicados con anterioridad al momento en que dicha objeción se resuelva.
+(4) La SUGEVAL resolverá las solicitudes dentro del plazo de quince (15) días hábiles, como máximo. Las observaciones a la metodología y modelos de valoración se trasladarán al solicitante por escrito para que, en el máximo de diez días hábiles, realice los cambios pertinentes o justifique su posición. En caso de que el solicitante no realice los cambios correspondientes o no se justifiquen a satisfacción, la solicitud de registro de la metodología se denegará. Las notificaciones suspenderán el plazo de la Superintendencia para resolver.
+(5) Las metodologías y modelos de valoración podrán ser utilizadas a partir de la comunicación de registro correspondiente, que emita el Superintendente General de Valores.

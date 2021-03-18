@@ -1,0 +1,3 @@
+Artículo 10. Gestión de conflictos de interés
+(1) La gestión y organización de las entidades autorizadas para el cálculo, determinación y suministro de precios debe estar orientada a prevenir los conflictos de interés.
+(2) Las entidades supervisadas que desarrollen metodologías y modelos propios de valoración deben asegurar que la función de valoración sea independiente de la gestión de cartera y que no responda a los intereses de ésta, y que la política de remuneración no propicie conflictos de interés originados por la influencia indebida de los empleados, así como de los miembros externos de los Comités, si los tuvieran.
