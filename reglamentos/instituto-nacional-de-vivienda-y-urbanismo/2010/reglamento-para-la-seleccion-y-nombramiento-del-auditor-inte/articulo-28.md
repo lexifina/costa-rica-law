@@ -1,1 +1,0 @@
-Artículo 28.—De los resultados obtenidos. La Comisión Especial analizará las evaluaciones realizadas a los oferentes y preparará el Informe correspondiente para ser presentado ante la Junta Directiva, que será la instancia resolutoria.

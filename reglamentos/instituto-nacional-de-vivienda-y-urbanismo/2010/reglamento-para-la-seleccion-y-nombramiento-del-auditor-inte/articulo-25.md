@@ -1,2 +1,0 @@
-Artículo 25.—Sobre los supuestos de exclusión de ofertas. Las ofertas que vencido el plazo a que se refiere el artículo 24 de este Reglamento, no hayan sido completadas o aclaradas según los requerimientos con las prevenciones realizadas por la unidad u órgano responsable del proceso, serán excluidos del concurso.
-(Corregido mediante Fe de Erratas, publicada en La Gaceta N° 46 del 7 de marzo del 2011)

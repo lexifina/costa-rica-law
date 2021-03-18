@@ -1,2 +1,0 @@
-Artículo 29.—Sobre la nota mínima para formar la lista de elegibles. Se considerarán elegibles quienes obtengan como mínimo una calificación final de 30% (treinta por ciento) o más, como resultado de la ponderación de las calificaciones obtenidas en los diferentes parámetros utilizados para la evaluación de candidatos.
-Con los candidatos que obtengan una calificación final de 30% (treinta por ciento) o más se conformará un registro, ordenado en forma descendente a partir de la calificación mayor hasta el 30% (treinta por ciento).

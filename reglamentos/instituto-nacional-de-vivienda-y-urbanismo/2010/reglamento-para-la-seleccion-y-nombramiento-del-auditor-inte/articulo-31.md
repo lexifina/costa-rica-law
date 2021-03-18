@@ -1,1 +1,0 @@
-Artículo 31.—Integración de la nomina. Se conformará una nomina con los participantes que hayan obtenido las calificaciones más altas de entre los elegibles, remitidos por el Proceso de Recursos Humanos a la Comisión.

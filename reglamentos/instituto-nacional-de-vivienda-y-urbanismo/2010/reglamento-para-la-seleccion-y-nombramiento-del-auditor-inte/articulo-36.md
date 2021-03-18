@@ -1,1 +1,0 @@
-Artículo 36.—Sobre la vigencia del registro de elegibles. En caso de que los cargos de Auditor quedaren vacantes por disconformidad con el desempeño del funcionario nombrado en el periodo de prueba, la nomina mantendrá su vigencia, de manera que expirará en el momento en que se consolide de forma permanente el nombramiento del auditor o si se agotaren los candidatos elegibles.

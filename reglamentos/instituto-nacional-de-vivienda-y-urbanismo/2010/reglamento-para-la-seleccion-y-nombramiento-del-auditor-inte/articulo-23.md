@@ -1,2 +1,0 @@
-Artículo 23.—Sobre la recepción de ofertas. Se recibirán las ofertas solamente a aquellos interesados que cumplan con los requisitos indispensables establecidos para el puesto.
-El Proceso de Recursos Humanos debe verificar el cumplimiento de los requisitos que debe cumplir el Auditor (a) Interno (a) de frente a los lineamientos de la Contraloría General de la República, del presente Reglamento y demás normativa que regula la materia; obteniendo así, transparencia, igualdad, eficiencia y legalidad en la recepción de las ofertas.
