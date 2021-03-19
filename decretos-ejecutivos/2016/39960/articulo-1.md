@@ -7,7 +7,7 @@ I.- Que el Consejo de Ministros de Integración Económica Centroamericana, medi
 II.- Que Costa Rica mediante el Decreto Ejecutivo Nº 36800-COMEX del 04 de octubre de 2011, publicó la Resolución Nº 263-2011 (COMIECO-LX) de fecha 27 de julio de 2011 y su Anexo, mediante la cual el Consejo de Ministros de Integración Económica Centroamericana aprobó las modificaciones al Arancel Centroamericano de Importación, que incorpora al Sistema Arancelario Centroamericano (SAC) los resultados de la Quinta Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías, por lo que, es necesario modificar el Decreto ejecutivo de cita, de conformidad con los numerales 1 y 5 de la parte dispositiva de la Resolución N° 372-2015 (COMIEVO-LXXIV).
 III.- Que las modificaciones al Arancel Centroamericano de Importación aprobadas por el Consejo de Ministros de Integración Económica (COMIECO) mediante la Resolución N° 264-2011 (COMIECO-LX) del 27 de julio de 2011, publicada mediante Decreto Ejecutivo N° 36761-COMEX del 18 de agosto de 2011, la Resolución N° 266-2011 (COMIECO-LX) de fecha 27 de julio de 2011, publicada mediante Decreto Ejecutivo N° 36760-COMEX del 18 de agosto de 2011; y demás resoluciones en materia de modificaciones al Arancel Centroamericano de Importación que ha aprobado dicho Consejo, se encuentren incorporadas en el Anexo de la Resolución N° 372-2015 (COMIECO-LXXIV) de fecha 04 de diciembre de 2015; por lo que no es necesario proceder a su modificación puntual.
 IV.- Que Costa Rica mediante el Decreto Ejecutivo N° 31565-COMEX de fecha 01 de diciembre de 2003, modificó los Derechos Arancelarios a la Importación (DAI) contemplados en el Arancel Centroamericano de Importación a los incisos que se detallan en dicha disposición, por lo que, es necesario adecuar algunos de los incisos arancelarios del Decreto Ejecutivo de cita, de conformidad con el numeral 1 de la parte dispositiva de la Resolución N° 372-2015 (COMIECO.LXXIV).
-V.- Que de conformidad con el numeral 2 de la parte dispositiva de la Resolución N° 372-2015 (COMIECO-LXXIV), “Los Derechos Arancelarios a la Importación de los incisos arancelarios que los Estados Partes hayan modificado unilateralmente y notificado al Consejo, conforme las disposiciones del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, continuarán en vigor hasta la fecha en que el COMIECO adopte una decisión sobre los mismos”, por lo que deben establecerse los casos en que Costa Rica haya modificado los Derechos arancelarios a la Importación.
+V.- Que de conformidad con el numeral 2 de la parte dispositiva de la Resolución N° 372-2015 (COMIECO-LXXIV), "Los Derechos Arancelarios a la Importación de los incisos arancelarios que los Estados Partes hayan modificado unilateralmente y notificado al Consejo, conforme las disposiciones del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, continuarán en vigor hasta la fecha en que el COMIECO adopte una decisión sobre los mismos", por lo que deben establecerse los casos en que Costa Rica haya modificado los Derechos arancelarios a la Importación.
 VI.- Que de conformidad con los numerales 3 y 5 de la parte dispositiva de la Resolución N° 372-2015 (COMIECO-LXXIV), se incorporan las modificaciones a los Derechos Arancelarios a la Importación de los incisos arancelarios consignados en el Anexo de la Resolución N° 183-2006 (COMIECO-XL) de fecha 29 de noviembre de 2006, publicada mediante Decreto ejecutivo N° 33599-COMEX del 08 de enero de 2007; el Anexo 2 de la Resolución N° 189-2006 (COMIECO-XLI) de fecha 15 de diciembre de 2006, publicada mediante Decreto Ejecutivo N° 33580-COMEX del 08 de enero de 2007; y el Anexo 2 de la Resolución N° 196-2007 (COMIECO-XLIV) de 24 de abril de 2007, publicada mediante Decreto Ejecutivo N° 33788-COMEX del 08 de mayo de 2007; que entrarán en vigencia a partir del 01 de enero de 2017, por lo que, deben considerarse modificadas en lo conducente para ajustarse a lo establecido en la Resolución N° 372-2015 (COMIECO-LXXIV) e incorporadas a su Anexo.
 VII.- Que la Resolución N° 200-2007 (COMIECO-EX) de fecha de 25 de junio de 2007; mencionada en el numeral 3 de la parte dispositiva de la Resolución N° 372-2015 (COMIECO-LXXIV), es sólo de aplicación para la República de El Salvador, por lo que no resulta procedente su inclusión en el presente Decreto Ejecutivo.
 VIII.- Que en cumplimiento de lo indicado en dicha Resolución, se procede a su publicación.
@@ -16,7 +16,7 @@ DECRETAN:
 Publicación de la Resolución N° 372-2015 (COMIECO-LXXIV) de fecha 04 de diciembre de
 2015 y su Anexo: Modificaciones al Arancel Centroamericano de Importación, que amplía lo
 Códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (SAC)
-Los resultados de la 6ª “Enmienda de la Nomenclatura del Sistema Armonizado de Designación y
+Los resultados de la 6ª "Enmienda de la Nomenclatura del Sistema Armonizado de Designación y
 Codificación de Mercancías.
 Artículo 1.- Publíquese la Resolución N° 372-2015 (COMIECO-LXXIV) del Consejo de Ministros de Integración Económica Centroamericana de fecha 04 de diciembre de 2015 y su Anexo: Modificaciones al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (SAC) los resultados a la 6ª Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías, que a continuación se transcribe:
 RESOLUCIÓN N° 372-2015 (COMIECO-LXXIV)
@@ -24,14 +24,14 @@ EL CONSEJO DE MINISTROS DE INTEGRACIÓN ECONÓMICA
 CONSIDERANDO:
 Que la Organización Mundial de Aduanas (OMA), con fecha 27 de junio de 2014, aprobó la 6ª Enmienda a la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías;
 Que con la finalidad de mantener un lenguaje común en materia de nomenclatura arancelaria que permita una mayor integración regional y facilite el intercambio comercial internacional, el Comité Iberoamericano de Nomenclatura (CIN), en el marco del Convenio Multilateral sobre Cooperación y Asistencia Mutua entre las Direcciones Nacionales de Aduanas de América Latina, España y Portugal (COMALEP), concluyó la adecuación de la Versión Única en Español de la 6ª Enmienda al Sistema Armonizado;
-Que de conformidad con los artículos 38 y 55 del Protocolo al Tratado General de Integración Económica Centroamericana –Protocolo de Guatemala-, modificado por la Enmienda del 27 de febrero de 2002; y 6 y 7 del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, es competencia del Consejo de Ministros de Integración Económica (COMIECO), aprobar los actos administrativos que requieran el funcionamiento del Régimen Arancelario y Aduanero Centroamericano;
+Que de conformidad con los artículos 38 y 55 del Protocolo al Tratado General de Integración Económica Centroamericana -Protocolo de Guatemala-, modificado por la Enmienda del 27 de febrero de 2002; y 6 y 7 del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, es competencia del Consejo de Ministros de Integración Económica (COMIECO), aprobar los actos administrativos que requieran el funcionamiento del Régimen Arancelario y Aduanero Centroamericano;
 Que lo Estados Parte determinaron la necesidad de ampliar a diez dígitos los códigos arancelarios del Sistema Arancelario Centroamericano (SAC), para efecto de la adecuación de la nomenclatura por enmiendas de la OMA; así como para incorporar las aperturas arancelarias por motivos estadísticos;
 Que para contar con una nomenclatura arancelaria actualizada, se concluyeron los trabajos necesarios para ampliar el SAC a diez dígitos y adecuarlo a la 6ª Enmienda del Sistema Armonizado de Designación y Codificación de Mercancías y a la Versión Única en Español;
 Que la Reunión de Viceministros de Integración Económica Centroamericana alcanzó consenso para elevar a la consideración de este Foro una propuesta para su conocimiento y aprobación, en su caso,
 POR TANTO:
 Con fundamento en los artículo 6,7, 9, 12, , 13, 14 y 15 del convenio sobre el Régimen Arancelario y Aduanero Centroamericano; y 37, 38, 46, 52 y 55 del Protocolo de Guatemala,
 RESUELVE:
-1. Aprobar las modificaciones, por sustitución total, al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano –SAC-, los resultados de la 6ª Enmienda de la nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías, en la forma que se consigna en el anexo a la presente Resolución, el cual constituye el Anexo “A” del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.
+1. Aprobar las modificaciones, por sustitución total, al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano -SAC-, los resultados de la 6ª Enmienda de la nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías, en la forma que se consigna en el anexo a la presente Resolución, el cual constituye el Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.
 2. Los Derechos Arancelarios a la Importación de los incisos arancelarios que los Estados Parte hayan modificado unilateralmente y notificado al Consejo, conforme las disposiciones del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, continuarán en vigor hasta la fecha en que el COMIECO adopte una decisión sobre los mismos.
 3. Se incorporan las modificaciones a los Derechos Arancelarios a la Importación de los incisos arancelarios consignados en el Anexo de la Resolución N° 183-2006 (COMIECO-XL) del 29 de noviembre de 2006; el Anexo 2 de la Resolución N° 189-2006 (COMIECO-XLI) del 15 de diciembre de 2006; el Anexo 2 de la Resolución N° 196-2007 (COMIECO-XLIV), del 24 de abril de 2007; y su Anexo 2 de la Resolución N° 200-2007 (COMIECO-EX), del 25 de junio de 2007, que entrarán en vigencia a partir del 1 de enero de 2017.
 4. La República de Panamá conservará la nomenclatura y los Derechos Arancelarios a la Importación consignados en su arancel nacional vigente, para aquellos incisos arancelarios contenidos en los Anexos 5.1 y 5.2 del Protocolo de Incorporación de Panamá al Subsistema de Integración Económica del Sistema de Integración Centroamericana. Para tales efectos, la República de Panamá realizará, con posterioridad a la firma de esta Resolución, la publicación de la versión del Arancel de Importación en el que se reflejarán todos los DAI y la nomenclatura armonizada, así como aquellos DAI nomenclatura no armonizados.
@@ -47,7 +47,7 @@ NOTAS GENERALES
 A. El Arancel Centroamericano de Importación está constituido por el SISTEMA ARANCELARIO CENTROAMERICANO (S.A.C) y los correspondientes Derechos Arancelarios a la Importación (D.A.I)
 B. El código numérico del S.A.C. está representado por diez dígitos que identifican: los dos primeros, al capítulo, los dos siguientes, a la partida; el tercer par, a la subpartida; y los cuatro últimos, a los incisos.
 La identificación de las mercancía se hará siempre con los diez dígitos de dicho código numérico.
-C. REGLAS GENERALES PARA LA INTERPRETACION DEL SISTEMA ARANCELARIO CENTROAMERICANO –SAC-
+C. REGLAS GENERALES PARA LA INTERPRETACION DEL SISTEMA ARANCELARIO CENTROAMERICANO -SAC-
 La clasificación de mercancías en la Nomenclatura del Sistema Arancelario Centroamericano se regirá por los principios siguientes:
 1. Los títulos de las Secciones, de los Capítulos o de los Subcapítulos solo tienen un valor indicativo, ya que la clasificación está determinada legalmente por los textos de las partidas y de las Notas de Sección o de Capítulo y, si no son controladas a los textos de dichas partidas y Notas, de acuerdo con las Reglas siguientes:
 2. a) Cualquier referencia a un artículo en una partida determinada alcanza al artículo incluso incompleto o sin terminar, siempre que éste presente las características esenciales del artículo completo o terminado. Alcanza también al artículo completo o terminado, o considerando como tal en virtud de las disposiciones precedentes, cuando se presente desmontado o sin montar todavía.
@@ -62,7 +62,7 @@ a) los estuches para cámara fotográfica, instrumentos musicales, armas, instru
 b) salvo lo dispuesto en la Regla 5 a) anterior, los envases que contengan mercancías se clasifican con ella cuando sean de los tipos normalmente utilizados para esa clase de mercancías. Sin embargo, esta disposición no es obligatoria cuando los envases sean susceptibles de ser utilizados razonablemente de manera repetida.
 6. La clasificación de mercancías en las subpartidas de una misma partida están determinada legalmente por los textos de estas subpartidas y de las Notas de subpartida así como , mutatis mutandis, por las Reglas anteriores, bien entendido que solo pueden compararse subpartidas del mismo nivel. A efectos de esta Regla también se aplican las Notas de Sección y de Capítulo, salvo disposición en contrario.
 D. El alcance, condiciones, limitaciones o exclusiones de una partida, deberán considerarse implícito en las subpartidas en que dicha partida se subdivide. El mismo criterio es aplicable a los incisos en relación a la subpartida a la que pertenecen.
-(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 41396 del 16 de julio del 2018 “Publica Resolución N° 397-2018 (COMIECO-LXXXIII) de fecha 28 de junio de 2018, que aprueba para Panamá "la incorporación de un grupo de incisos arancelarios exceptuados en el Anexo 5.2 del Protocolo de Incorporación”, se establece reformar la presente Resolución N° 372-2015 (COMIECOLX7X1V) de fecha 04 de diciembre de 2015 y su Anexo: "Modificaciones al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (MC) los resultados a la 60 Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías"; de conformidad con el párrafo cuarto de la parte considerativa y el numeral 1 de la parte dispositiva, todos de la Resolución N° 397-2018 (COIVIIECO-DOOCII) del 28 de junio de 2018. Por lo extenso de su contenido y tipo de formato el Listado de armonización de los derechos arancelarios a la importación (DAI) por Panamá debe ser consultado en el siguiente link)
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 41396 del 16 de julio del 2018 "Publica Resolución N° 397-2018 (COMIECO-LXXXIII) de fecha 28 de junio de 2018, que aprueba para Panamá "la incorporación de un grupo de incisos arancelarios exceptuados en el Anexo 5.2 del Protocolo de Incorporación", se establece reformar la presente Resolución N° 372-2015 (COMIECOLX7X1V) de fecha 04 de diciembre de 2015 y su Anexo: "Modificaciones al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (MC) los resultados a la 60 Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías"; de conformidad con el párrafo cuarto de la parte considerativa y el numeral 1 de la parte dispositiva, todos de la Resolución N° 397-2018 (COIVIIECO-DOOCII) del 28 de junio de 2018. Por lo extenso de su contenido y tipo de formato el Listado de armonización de los derechos arancelarios a la importación (DAI) por Panamá debe ser consultado en el siguiente link)
 INDICE DE MATERIAS
 Sección I
 ANIMALES VIVOS Y PRODUCTOS DEL REINO ANIMAL
@@ -80,10 +80,10 @@ Nota de Sección
 8 Frutas y frutos comestibles; cortezas de agrios (cítricos), melones o sandías
 9 Café, té, yerba mate y especias
 10 Cereales
-(Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 40482 del 16 de junio del 2017 “Publica la Resolución N° 389-2017 (COMIECO-LXXIX) del 5 de mayo de 2017 "Aprobar las modificaciones arancelarias para Guatemala y Honduras de los rubros incluidos en la Parte II del Arancel Centroamericano de Importación " se establece los siguiente: “Modifiquese el Decreto Ejecutivo N° 39960-COMEX de fecha 16 de septiembre de 2016, que publicó la Resolución N° 372-2015 (COMIECOLXXIV) de fecha 04 de diciembre de 2015 y su Anexo: "Modificaciones al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (SAC) los resultados a la 60 Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías"; de conformidad con el párrafo segundo de la parte considerativa y el numeral 1 de la parte dispositiva, todos de la Resolución N° 389-2017 (COMIECO-LX)UX) del 05 de mayo de 2017, estableciéndose lo siguiente: “
+(Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 40482 del 16 de junio del 2017 "Publica la Resolución N° 389-2017 (COMIECO-LXXIX) del 5 de mayo de 2017 "Aprobar las modificaciones arancelarias para Guatemala y Honduras de los rubros incluidos en la Parte II del Arancel Centroamericano de Importación " se establece los siguiente: "Modifiquese el Decreto Ejecutivo N° 39960-COMEX de fecha 16 de septiembre de 2016, que publicó la Resolución N° 372-2015 (COMIECOLXXIV) de fecha 04 de diciembre de 2015 y su Anexo: "Modificaciones al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (SAC) los resultados a la 60 Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías"; de conformidad con el párrafo segundo de la parte considerativa y el numeral 1 de la parte dispositiva, todos de la Resolución N° 389-2017 (COMIECO-LX)UX) del 05 de mayo de 2017, estableciéndose lo siguiente: "
 CÓDIGO | DESCRIPCION | DAI %
 1006.10.10.00 | - - Para siembra | 0
-“)
+")
 11 Productos de la molinería; malta; almidón y fécula; inulina; gluten de trigo
 12 Semillas y frutos oleaginosos; semillas y frutos diversos; plantas industriales o medicinales; paja y forraje
 13 Gomas, resinas y demás judos y extractos vegetales
@@ -133,13 +133,13 @@ CAUCHO Y SUS MANUFACTURAS
 Notas de Sección
 39 Plásticos y sus manufacturas
 40 Caucho y sus manufacturas
-(Nota de Sinalevi: Mediante el decreto ejecutivo N° 40480 del 16 de junio del 2017 “Publica Resolución N° 385-2017 (COMIECO-EX) del 27 de abril de 2017: Apertura arancelaria en el Arancel Centroamericano de Importación”, en su numeral 3°, se establece que de conformidad con los párrafos segundo y cuarto de la parte considerativa y los numerales 1 y 2 de la parte dispositiva, todos de la Resolución N° 385-2017 (COMIECOEX) del 27 de abril de 2017, se debe ajustar y modificar la Resolución N° 372-2015 (COMIECO-LXX1V) de fecha 04 de diciembre de 2015 y su Anexo: "Modificaciones al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (SA C) los resultados a la 60 Enmienda de la Nomenclatura del Sistema Armonizado de Designación y modificación de Mercancías", que fue publicada por Costa Rica mediante el Decreto Ejecutivo N° 39960-COMEX de fecha 16 de septiembre de 2016; por lo que, es necesario adecuar las disposiciones nacionales de conformidad con las normas regionales de la siguiente manera:
+(Nota de Sinalevi: Mediante el decreto ejecutivo N° 40480 del 16 de junio del 2017 "Publica Resolución N° 385-2017 (COMIECO-EX) del 27 de abril de 2017: Apertura arancelaria en el Arancel Centroamericano de Importación", en su numeral 3°, se establece que de conformidad con los párrafos segundo y cuarto de la parte considerativa y los numerales 1 y 2 de la parte dispositiva, todos de la Resolución N° 385-2017 (COMIECOEX) del 27 de abril de 2017, se debe ajustar y modificar la Resolución N° 372-2015 (COMIECO-LXX1V) de fecha 04 de diciembre de 2015 y su Anexo: "Modificaciones al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (SA C) los resultados a la 60 Enmienda de la Nomenclatura del Sistema Armonizado de Designación y modificación de Mercancías", que fue publicada por Costa Rica mediante el Decreto Ejecutivo N° 39960-COMEX de fecha 16 de septiembre de 2016; por lo que, es necesario adecuar las disposiciones nacionales de conformidad con las normas regionales de la siguiente manera:
 CÓDIGO | DESCRIPCIÓN | DAI %
 39.23 | ARTICULOS PARA EL TRANSPORTE O ENVASADO DE PLASTICO, TAPONES, TAPAS, CAPSULAS Y DEMAS DISPOSITICOS DE CIERRE, DE PLASTICO |
 3923.10.00.00 | ++SUPRIMIDA++ |
 3923.10 | -Cajas, cajones, jaulas y artículo similares: |
 3923.10.10.00 | --Cajas alveolares para el envase y transporte de huevos, de plástico | 5
-3923.10.90.00 | --Otros | 10”)
+3923.10.90.00 | --Otros | 10")
 Sección VIII
 PIELES, CUEROS, PELETERIA Y MANUFACTURAS DE ESTAS MATERIAS;
 ARTÍCULO DE TALABARTERÍA O GUARNICIONERIA;
@@ -231,7 +231,7 @@ MATERIAL DE TRANSPORTE
 Notas de Sección
 86 Vehículos y materiales para vías férreas o similares, y sus partes; aparatos mecánicos (incluso electromecánicos) de señalización para vías de comunicación
 87 Vehículos automóviles, tractores, velocípedos y demás vehículos terrestres; sus partes y accesorios
-(Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 40482 del 16 de junio del 2017 “Publica la Resolución N° 389-2017 (COMIECO-LXXIX) del 5 de mayo de 2017 "Aprobar las modificaciones arancelarias para Guatemala y Honduras de los rubros incluidos en la Parte II del Arancel Centroamericano de Importación " se establece los siguiente: “Modifiquese el Decreto Ejecutivo N° 39960-COMEX de fecha 16 de septiembre de 2016, que publicó la Resolución N° 372-2015 (COMIECOLXXIV) de fecha 04 de diciembre de 2015 y su Anexo: "Modificaciones al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (SAC) los resultados a la 60 Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías"; de conformidad con el párrafo segundo de la parte considerativa y el numeral 1 de la parte dispositiva, todos de la Resolución N° 389-2017 (COMIECO-LX)UX) del 05 de mayo de 2017, estableciéndose lo siguiente: “
+(Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 40482 del 16 de junio del 2017 "Publica la Resolución N° 389-2017 (COMIECO-LXXIX) del 5 de mayo de 2017 "Aprobar las modificaciones arancelarias para Guatemala y Honduras de los rubros incluidos en la Parte II del Arancel Centroamericano de Importación " se establece los siguiente: "Modifiquese el Decreto Ejecutivo N° 39960-COMEX de fecha 16 de septiembre de 2016, que publicó la Resolución N° 372-2015 (COMIECOLXXIV) de fecha 04 de diciembre de 2015 y su Anexo: "Modificaciones al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (SAC) los resultados a la 60 Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías"; de conformidad con el párrafo segundo de la parte considerativa y el numeral 1 de la parte dispositiva, todos de la Resolución N° 389-2017 (COMIECO-LX)UX) del 05 de mayo de 2017, estableciéndose lo siguiente: "
 CÓDIGO | DESCRIPCION | DAI %
 8713.10.00.00 | - Sin mecanismo de propulsión | 0
 8713.90.00.00 | - Los demás | 0
@@ -243,10 +243,10 @@ CÓDIGO | DESCRIPCION | DAI %
 8714.96.00.00 | - - Pedales y mecanismos de pedal, y sus partes | 0
 8714.99.20.00 | --- Puños (mangos) y parrillas portaequipaje (incluso O para herramientas), de plástico | 0
 8714.99.90.00 | --- Otros | 0
-8715.00.80.00 (Nota de Sinalevi: Mediante el artículo 2° del presente decreto ejecutivo se establece lo siguiente: “Aplíquese un arancel de 9% de Derechos Arancelarios a la Importación (DAT) al inciso arancelario 8715.00.80.00 que aparece en la Resolución N° 389-2017 (COMIECO-LXXIX) del 05 de mayo de 2017, con tarifas de 10% de DAI, de conformidad con la Resolución N° 48-94 (CONSEJOXII) de fecha 23 de febrero de 1994, la cual autoriza a Costa Rica para que las tarifas de 10% incluyan el gravamen del 1% de la Ley N° 6946 del 13 de enero de 1984”) | -Otros | 10
+8715.00.80.00 (Nota de Sinalevi: Mediante el artículo 2° del presente decreto ejecutivo se establece lo siguiente: "Aplíquese un arancel de 9% de Derechos Arancelarios a la Importación (DAT) al inciso arancelario 8715.00.80.00 que aparece en la Resolución N° 389-2017 (COMIECO-LXXIX) del 05 de mayo de 2017, con tarifas de 10% de DAI, de conformidad con la Resolución N° 48-94 (CONSEJOXII) de fecha 23 de febrero de 1994, la cual autoriza a Costa Rica para que las tarifas de 10% incluyan el gravamen del 1% de la Ley N° 6946 del 13 de enero de 1984") | -Otros | 10
 8715.00.90.00 | - Partes | 0
 8716.90.00.00 | - Partes | 0
-“)
+")
 88 aeronaves, vehículos espaciales, y sus partes
 89 Barcos y demás artefactos flotantes
 Sección XVIII
@@ -293,7 +293,7 @@ kN | Kilonewton (s)
 kPa | Kilopascal (es)
 kV | Kilovolt(io (s))
 kVA | Kilovolt(io (s))
-kvar | Kilovot(io (s)) – ampere (s) (amperio (s)) reactivo (s)
+kvar | Kilovot(io (s)) - ampere (s) (amperio (s)) reactivo (s)
 kW | Kilovaltio (s) (kilowatt (s))
 l | Litro (s)
 m | Metro (s)
@@ -554,7 +554,7 @@ CODIGO | DESCRIPCION | DAI %
 0301.11.00.00 | - - De agua dulce | 15
 0301.19.00.00 | - - Los demás | 15
 0301.9 | - Los demás peces o pescados, vivos: |
-0301.91 | - - Truchas (salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster): (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
+0301.91 | - - Truchas (salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster): (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") |
 0301.91.10.00 | - - - Larvas para repoblación | 0
 0301.91.90.00 | - - - Otras | 10
 0301.92 | - - Anguilas (Anguilla spp.): |
@@ -573,15 +573,15 @@ CODIGO | DESCRIPCION | DAI %
 0301.99.99.00 | - - - - Los demás | 10
 03.02 | PESCADO FRESCO O REFRIGERADO, EXCEPTO LOS FILETES Y DEMAS CARNE DE PESCADO DE LA PARTIDA 03.04 |
 0302.1 | - Salmónidos, excepto los despojos comestibles de pescado de las subpartidas 0302.91 a 0302.99: |
-0302.11.00.00 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
+0302.11.00.00 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 15
 0302.13.00.00 | - - Salmones del Pacífico (Oncorhynchus nerka, Oncorhynchus gorbuscha, Oncorhynchus keta, Oncorhynchus tschawytscha, Oncorhynchus kisutch, Oncorhynchus masou y Oncorhynchus rhodurus) | 10
 0302.14.00.00 | - - Salmones del Atlántico (Salmo salar) y salmones del Danubio (Hucho hucho) | 10
 0302.19.00.00 | - - Los demás | 10
 0302.2 | - Pescados planos (Pleuronectidae, Bothidae, Cynoglossidae, Soleidae, Scophthalmidae y Citharidae), excepto los despojos comestibles de pescado de las subpartidas 0302.91 a 0302.99: |
-0302.21.00.00 | - - Fletanes (“halibut”) (Reinhardtius hippoglossoides, hippoglossus hippoglossus, hippoglossus stenolepis) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
+0302.21.00.00 | - - Fletanes ("halibut") (Reinhardtius hippoglossoides, hippoglossus hippoglossus, hippoglossus stenolepis) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 10
 0302.22.00.00 | - - Sollas (Pleuronectes platessa) | 10
 0302.23.00.00 | - - Lenguados (Solea spp.) | 10
-0302.24.00.00 | - - Rodaballos (“turbots”) (Pseta maxima) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
+0302.24.00.00 | - - Rodaballos ("turbots") (Pseta maxima) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 10
 0302.29.00.00 | - - Los demás | 10
 0302.3 | - Atunes (del género Thunnus), listados o bonitos de vientre rayado (Euthynnus (Katsuwonus) pelamis), excepto los despojos comestibles de pescado de las subpartidas 0302.91 a 0302.99: |
 0302.31.00.00 | - - Albacoras o atunes blancos (thunnus alalunga) | 0
@@ -642,7 +642,7 @@ CODIGO | DESCRIPCION | DAI %
 0303.11.00.00 | - - Salmones rojos (Oncorhynchus nerka) | 10
 0303.12.00.00 | - - Los demás salmones del Pacífico (Oncorhynchus gorbuscha, Oncorhynchus keta, Oncorhynchus tschawytscha, Oncorhynchus kisutch, Oncorhynchus masou y Oncorhynchus rhodurus) | 10
 0303.13.00.00 | - - Salmones del Atlántico (Salmo salar) y salmones del Danubio (Hucho hucho) | 10
-0303.14.00.00 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
+0303.14.00.00 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 15
 0303.19.00.00 | - - Los demás | 10
 0303.2 | - Tilapias (Oreochromis spp.), bagres o peces gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.), carpas (Cyprinus spp., Carassius spp., Ctenopharyngodon idellus, Hypophthalmichthys spp., Cirrhinus spp., Mylopharyngodon piceus, Catla catla, Labeo spp., Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp.), anguilas (Anguilla spp.), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp.), excepto los despojos comestibles de pescado de las subpartidas 0303.91 a 0303.99: |
 0303.23.00.00 | - - Tilapias (Oreochromis spp.) | 10
@@ -651,10 +651,10 @@ CODIGO | DESCRIPCION | DAI %
 0303.26.00.00 | - - Anguilas (Anguilla spp.) | 10
 0303.29.00.00 | - - Los demás | 10
 0303.3 | - Pescados planos (Pleuronectidae, Bothidae, Cynoglossidae, Soleidae, Scophthalmidae y Citharidae), excepto los despojos comestibles de pescado de las subpartidas 0303.91 a 0303.99: |
-0303.31.00.00 | - - Fletanes (“halibut”) ( Reinhardtius, hippoglossoides, hippoglossus hippoglossus, hippoglossus stenolepis) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
+0303.31.00.00 | - - Fletanes ("halibut") ( Reinhardtius, hippoglossoides, hippoglossus hippoglossus, hippoglossus stenolepis) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 10
 0303.32.00.00 | - - Sollas (Pleuronectes platessa) | 10
 0303.33.00.00 | - - Lenguados (Solea spp.) | 10
-0303.34.00.00 | - - Rodaballos (“turbots”) (Psseta maxima) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
+0303.34.00.00 | - - Rodaballos ("turbots") (Psseta maxima) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 10
 0303.39.00.00 | - - Los demás | 10
 0303.4 | - Atunes (del género Thunnus), listados o bonitos de vientre rayado (Euthynnus (Katsuwonus) pelamis), excepto los despojos comestibles de pescado de las subpartidas 0303.91 a 0303.99: |
 0303.41.00.00 | - - Albacoras o atunes blancos (Thunnus alalunga) | 0
@@ -711,7 +711,7 @@ CODIGO | DESCRIPCION | DAI %
 0304.48.00.00 | - - Rayas (Rajidae) | 15
 0304.49.00.00 | - - Los demás | 15
 0304.5 | - Los demás, frescos o refrigerados: |
-0304.51.00.00 | - - Tilapias (Oreochromis spp) bagres o peces gato (pangasius spp, Silurus spp, Clarias spp, Ictalurus spp), carpas (Cyprinus spp, Carassius spp, Ctenopharyngodon idellus, Hupophthalmichthys spp, cinhinus spp, Mylopharyngodon piceus, Catla catla, Labeo spp, Osteochllus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguilas (Anguilla spp), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
+0304.51.00.00 | - - Tilapias (Oreochromis spp) bagres o peces gato (pangasius spp, Silurus spp, Clarias spp, Ictalurus spp), carpas (Cyprinus spp, Carassius spp, Ctenopharyngodon idellus, Hupophthalmichthys spp, cinhinus spp, Mylopharyngodon piceus, Catla catla, Labeo spp, Osteochllus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguilas (Anguilla spp), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 15
 0304.52.00.00 | - - Salmónidos | 15
 0304.53.00.00 | - - Pescados de las familias Bregmacerotidae, Euclichthyidae, Gadidae, Macrouridae, Melanonidae, Merlucciidae, Moridae y Muraenolepididae | 15
 0304.54.00.00 | - - Peces espada (Xiphias gladius) | 15
@@ -752,7 +752,7 @@ CODIGO | DESCRIPCION | DAI %
 0304.9 | - Los demás, congelados: |
 0304.91.00.00 | - - Peces espada (Xiphias gladius) | 15
 0304.92.00.00 | - - Austromerluzas antárticas y austromerluzas negras (merluzas negras, bacalaos de profundidad, nototenias negras) (Dissostichus spp.) | 15
-0304.93.00.00 | - - Tilapias (Oreochromis spp), bagres o peces gato (pangasius spp, Silurus spp, Clarias spp, Ictalurus spp), carpas (Cyprinus spp, carassius spp, Ctenopharyngodon idelius, Hypophthalmichthys spp, cirrhinus spp, Mylopharyngodos plceus, Catla catla, labeo spp, osteochilus hasselti, leptobarbus hoeveni, Melobrama spp), anguilas (Anguilla spp), percas del Nilo (Lates nilotlcus) y peces cabeza de serpiente (channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
+0304.93.00.00 | - - Tilapias (Oreochromis spp), bagres o peces gato (pangasius spp, Silurus spp, Clarias spp, Ictalurus spp), carpas (Cyprinus spp, carassius spp, Ctenopharyngodon idelius, Hypophthalmichthys spp, cirrhinus spp, Mylopharyngodos plceus, Catla catla, labeo spp, osteochilus hasselti, leptobarbus hoeveni, Melobrama spp), anguilas (Anguilla spp), percas del Nilo (Lates nilotlcus) y peces cabeza de serpiente (channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 15
 0304.94.00.00 | - - Abadejos de Alaska (Theragra chalcogramma) | 15
 0304.95.00.00 | - - Pescados de las familias Bregmacerotidae, Euclichthyidae, Gadidae, Macrouridae, Melanonidae, Merlucciidae, Moridae y Muraenolepididae, excepto el abadejos de Alaska (Theragra chalcogramma) | 15
 0304.96.00.00 | - - Cazones y demás escualos | 15
@@ -762,18 +762,18 @@ CODIGO | DESCRIPCION | DAI %
 0305.10.00.00 | - Harina, polvo y "pellets" de pescado, aptos para la alimentación humana | 0
 0305.20.00.00 | - Hígados, huevas y lechas de pescado, secos, ahumados, salados o en salmuera | 10
 0305.3 | - Filetes de pescado, secos, salados o en salmuera, sin ahumar: |
-0305.31.00.00 | - - Tilapias (Orechromis spp) bagres o peces dato (Pangasius spp, Sillurus spp, Clarias spp, Ictalurus spp), carpas (Cyprinus spp, Carassius spp, Ctenopharyngodon, edellus, Hypophthalmichthys spp, Cirrhinus spp, Mylopharyngodon íceus, Catla catla, Labeo spp, Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguilas (Anguilla spp), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
+0305.31.00.00 | - - Tilapias (Orechromis spp) bagres o peces dato (Pangasius spp, Sillurus spp, Clarias spp, Ictalurus spp), carpas (Cyprinus spp, Carassius spp, Ctenopharyngodon, edellus, Hypophthalmichthys spp, Cirrhinus spp, Mylopharyngodon íceus, Catla catla, Labeo spp, Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguilas (Anguilla spp), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 15
 0305.32.00.00 | - - Pescados de las familias Bregmacerotidae, Euclichthyidae, Gadidae, Macrouridae, Melanonidae, Merlucciidae, Moridae y Muraenolepididae | 15
 0305.39.00.00 | - - Los demás | 15
 0305.4 | - Pescado ahumado, incluidos los filetes, excepto los despojos comestibles de pescado: |
-0305.41.00.00 | - - Salmones del Pacífico (Oncorhynchus nerka, Oncorhynchus gorbuscha, Oncorhynchus keta, Oncorhynchus tschawytsch, Oncorhynchuskisutch, Oncorhynchus masou y Oncorhynchus rhodurus), salmones del Atlántico (salmon salar) y salmones del Danubio (Hucho hucho) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
+0305.41.00.00 | - - Salmones del Pacífico (Oncorhynchus nerka, Oncorhynchus gorbuscha, Oncorhynchus keta, Oncorhynchus tschawytsch, Oncorhynchuskisutch, Oncorhynchus masou y Oncorhynchus rhodurus), salmones del Atlántico (salmon salar) y salmones del Danubio (Hucho hucho) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 15
 0305.42.00.00 | - - Arenques (Clupea harengus, Clupea pallasii) | 15
 0305.43.00.00 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster) | 15
-0305.44.00.00 | - - Tilapias (Oreochromis spp), bagres o peces gato (Pangasius spp, Silurus spp, Clarias spp, Ictalurus spp), carpas (Cyprinus spp, Carssius spp, Clenopharyngofon idellus, Hypophthalmichthys spp, Cirrhinus spp, Mylopharyngodon piceus, Catla ctla, Labeo spp, Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguillas (Anguilla spp.), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
+0305.44.00.00 | - - Tilapias (Oreochromis spp), bagres o peces gato (Pangasius spp, Silurus spp, Clarias spp, Ictalurus spp), carpas (Cyprinus spp, Carssius spp, Clenopharyngofon idellus, Hypophthalmichthys spp, Cirrhinus spp, Mylopharyngodon piceus, Catla ctla, Labeo spp, Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguillas (Anguilla spp.), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 15
 0305.49.00.00 | - - Los demás | 15
 0305.5 | - Pescado seco, excepto los despojos comestibles, incluso salado, sin ahumar: |
 0305.51.00.00 | - - Bacalaos (Gadus morhua, Gadus ogac, Gadus macrocephalus) | 15
-0305.52.00.00 | - - Tilapias (Oreochromis spp.), bagres o peces gato (pangasius spp., Silurus spp, Clarias spp, Ictalurus spp.), carpas (cyprinus spp., Carassius spp., Ctenopharyngodon idellus, Hypophthalmichthys spp., cirrhinus spp., Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguillas (Anguilla spp), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
+0305.52.00.00 | - - Tilapias (Oreochromis spp.), bagres o peces gato (pangasius spp., Silurus spp, Clarias spp, Ictalurus spp.), carpas (cyprinus spp., Carassius spp., Ctenopharyngodon idellus, Hypophthalmichthys spp., cirrhinus spp., Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguillas (Anguilla spp), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 15
 0305.53.00.00 | - - Pescados de las familias Bregmacerotidae, Euclichthyidae, Gadidae, Macrouridae, Melanonidae, Merlucciidae, Moridae y Muraenolepididae, excepto los bacalaos (Gadus morhua, Gadus ogac, Gadus macrocephalus) | 15
 0305.54.00.00 | - - Arenques (Clupea harengus, Clupea pallasii), anchoas (Engraulis spp.), sardinas (Sardina pilchardus, Sardinops spp.), sardinelas (Sardinella spp.), espadines (Sprattus sprattus), caballas (macarelas) (Scomber scombrus, Scomber australasicus, Scomber japonicus), caballas de la India (Rastrelliger spp.), carites (Scomberomorus spp.), jureles (Trachurus spp.), pámpanos (Caranx spp.), cobias (Rachycentron canadum), palometones plateados (Pampus spp.), papardas del Pacífico (Cololabis saira), macarelas (Decapterus spp.), capelanes (Mallotus villosus), peces espada (Xiphias gladius), bacoretas orientales (Euthynnus affinis), bonitos (Sarda spp.), agujas, marlines, peces vela o picudos (Istiophoridae) | 15
 0305.59.00.00 | - - Los demás | 15
@@ -781,13 +781,13 @@ CODIGO | DESCRIPCION | DAI %
 0305.61.00.00 | - - Arenques (Clupea harengus, Clupea pallasii) | 15
 0305.62.00.00 | - - Bacalaos (Gadus morhua, Gadus ogac, Gadus macrocephalus) | 15
 0305.63.00.00 | - - Anchoas (Engraulis spp.) | 15
-0305.64.00.00 | - - Tilapia (Oreochromis spp), bagres o peces gato (Pangasius spp, Silurus spp, Clarias spp, Ictalurus spp) carpas (Cyprinus spp, Carassius spp, Ctenopharyngodon idellus, Hypophthalmichthys spp, Cirrhinus spp, Mylopharyngodon piceus, Catla catla, Labeo spp, Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguilas (Anguilla spp), perrcas del Nilo (Lates niloticus ) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
+0305.64.00.00 | - - Tilapia (Oreochromis spp), bagres o peces gato (Pangasius spp, Silurus spp, Clarias spp, Ictalurus spp) carpas (Cyprinus spp, Carassius spp, Ctenopharyngodon idellus, Hypophthalmichthys spp, Cirrhinus spp, Mylopharyngodon piceus, Catla catla, Labeo spp, Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguilas (Anguilla spp), perrcas del Nilo (Lates niloticus ) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 15
 0305.69.00.00 | - - Los demás | 15
 0305.7 | - Aletas, cabezas, colas, vejigas natatorias y demás despojos, comestibles de pescado: |
 0305.71.00.00 | - - Aletas de tiburón | 15
 0305.72.00.00 | - - Cabezas, colas y vejigas natatorias, de pescado | 15
 0305.79.00.00 | - - Los demás | 15
-03.06 | CRUTÁCEOS, INCLUSO PELADOS, VIVOS, FRESCOS, REFRIGERADOS, CONGELADOS, SECOS, SALDOS O EN SALMUERA; CRUSTÁCEOS, INCLUSO PELADOS, AHUMADOS INCLUSO COCIDOS ANTES O DURANTE EL AHUMADO; CRUSTÁCEOS SIN PELAR, COCIDOS EN AGUA O CAPOR, INCLUSO REFRIGERADOS, CONGELADOS, SECOS, SALDOS O EN SALMUERA; HARINA, POLVO Y “PELLETS” DE CRUSTÁCEOS, APTOS PARA LA ALIMENTACIÓN HUMANA. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
+03.06 | CRUTÁCEOS, INCLUSO PELADOS, VIVOS, FRESCOS, REFRIGERADOS, CONGELADOS, SECOS, SALDOS O EN SALMUERA; CRUSTÁCEOS, INCLUSO PELADOS, AHUMADOS INCLUSO COCIDOS ANTES O DURANTE EL AHUMADO; CRUSTÁCEOS SIN PELAR, COCIDOS EN AGUA O CAPOR, INCLUSO REFRIGERADOS, CONGELADOS, SECOS, SALDOS O EN SALMUERA; HARINA, POLVO Y "PELLETS" DE CRUSTÁCEOS, APTOS PARA LA ALIMENTACIÓN HUMANA. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") |
 0306.1 | - Congelados: |
 0306.11 | - - Langostas (Palinurus spp., Panulirus spp., Jasus spp.): |
 0306.11.1 | - - - Sin pelar: |
@@ -821,7 +821,7 @@ CODIGO | DESCRIPCION | DAI %
 0306.17.99.00 | - - - - Los demás | 10
 0306.19 | - - Los demás, incluidos la harina, polvo y "pellets" de crustáceos, aptos para la alimentación humana: |
 0306.19.10.00 | - - - Ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
-0306.19.90.00 | - - - Otros, incluidos la harina, polvo y “pellets” de crustáceos, aptos para la alimentación humana | 10
+0306.19.90.00 | - - - Otros, incluidos la harina, polvo y "pellets" de crustáceos, aptos para la alimentación humana | 10
 0306.2 | + + SUPRIMIDA + + |
 0306.21 | + + SUPRIMIDA + + |
 0306.21.10 | + + SUPRIMIDA + + |
@@ -869,8 +869,8 @@ CODIGO | DESCRIPCION | DAI %
 0306.36.9 | - - - Otros: |
 0306.36.91.00 | - - - - Ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
 0306.36.99.00 | - - - - Otros | 10
-0306.39 | - - Los demás, incluidos la harina, polvo y “pellets” de crustáceos, aptos para la alimentación humana: |
-0306.39.10.00 | - - - Harina, polvo y “pellets” | 10
+0306.39 | - - Los demás, incluidos la harina, polvo y "pellets" de crustáceos, aptos para la alimentación humana: |
+0306.39.10.00 | - - - Harina, polvo y "pellets" | 10
 0306.39.9 | - - - Otros: |
 0306.39.91.00 | - - - - Ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
 0306.39.99.00 | - - - - Otros | 10
@@ -890,12 +890,12 @@ CODIGO | DESCRIPCION | DAI %
 0306.95 | - - Los demás camarones, langostinos y demás decápodos Natantia: |
 0306.95.10.00 | - - - Ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
 0306.95.90.00 | - - - Otros | 10
-0306.99 | - - Los demás, incluidos la harina, polvo y “pellets” de crustáceos, aptos para la alimentación humana: |
-0306.99.10.00 | - - - Harina, polvo y “pellets” | 10
+0306.99 | - - Los demás, incluidos la harina, polvo y "pellets" de crustáceos, aptos para la alimentación humana: |
+0306.99.10.00 | - - - Harina, polvo y "pellets" | 10
 0306.99.9 | - - - Otros: |
 0306.99.91.00 | - - - - Ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
 0306.99.99.00 | - - - - Otros | 10
-03.07 | MOLUSCOS, INCLUSO SEPARADOS DE SUS VALVAS, VIVOS, FRESCOS, REFRIGERADOS, CONGELADOS, SECOS, SALADOS O EN SALMUERA; MOLUSCOS, INCLUSO PELADOS, AHUMADOS INCLUSO COCIDOS ANTES O DURANTE EL AHUMADO; HARINA, POLVO Y “PELLETS” DE MOLUSCOS, APTOS PARA LA ALIMENTACIÓN HUMANA. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
+03.07 | MOLUSCOS, INCLUSO SEPARADOS DE SUS VALVAS, VIVOS, FRESCOS, REFRIGERADOS, CONGELADOS, SECOS, SALADOS O EN SALMUERA; MOLUSCOS, INCLUSO PELADOS, AHUMADOS INCLUSO COCIDOS ANTES O DURANTE EL AHUMADO; HARINA, POLVO Y "PELLETS" DE MOLUSCOS, APTOS PARA LA ALIMENTACIÓN HUMANA. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") |
 0307.1 | - Ostras: |
 0307.11.00.00 | - - Vivas, frescas o refrigeradas | 10
 0307.12 | - - Congeladas: |
@@ -984,7 +984,7 @@ CODIGO | DESCRIPCION | DAI %
 0307.99 | - - Los demás: |
 0307.99.10.00 | - - - Ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
 0307.99.90.00 | - - - Otros | 10
-03.08 | INVERTEBRADOS ACUATICOS, EXCEPTO LOS CRUSTACEOS Y MOLUSCOS, VIVOS, FRESCOS, REFRIGERADOS, CONGELADOS, SECOS, SALADOS O EN SALMUERA; INVERTEBRADOS ACUATICOS, EXCEPTO LOS CRUSTACEOS Y MOLUSCOS, AHUMADOS, INCLUSO COCIDOS ANTES O DURANTE EL AHUMADO; HARINA, POLVO Y “PELLETS” DE INVERTEBRADOS ACUATICOS, EXCEPTO DE LOS CRUSTACEOS Y MOLUSCOS, APTOS PARA LA ALIMENTACIÓN HUMANA |
+03.08 | INVERTEBRADOS ACUATICOS, EXCEPTO LOS CRUSTACEOS Y MOLUSCOS, VIVOS, FRESCOS, REFRIGERADOS, CONGELADOS, SECOS, SALADOS O EN SALMUERA; INVERTEBRADOS ACUATICOS, EXCEPTO LOS CRUSTACEOS Y MOLUSCOS, AHUMADOS, INCLUSO COCIDOS ANTES O DURANTE EL AHUMADO; HARINA, POLVO Y "PELLETS" DE INVERTEBRADOS ACUATICOS, EXCEPTO DE LOS CRUSTACEOS Y MOLUSCOS, APTOS PARA LA ALIMENTACIÓN HUMANA |
 0308.1 | - Pepinos de mar (Stichopus japonicus, Holothuroidea): |
 0308.11.00.00 | - - Vivos, frescos o refrigerados | 10
 0308.12 | - - Congelados: |
@@ -1025,7 +1025,7 @@ c) moldeados o susceptibles de serlo.
 4. Este Capítulo no comprende:
 a) los productos obtenidos del lactosuero, con un contenido de lactosa superior al 95 % en peso, expresado en lactosa anhidra, calculado sobre materia seca (partida 17.02);
 b) los productos resultantes de la sustitución en la leche de uno o varios de sus componentes naturales (por ejemplo, materia grasa de tipo butírico) por otra sustancia (por ejemplo materia grasa de tipo oleico)(partidas 19.01 ó 21.06);
-(Así reformada la nota b) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota b) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 c) las albúminas (incluidos los concentrados de varias proteínas de lactosuero, con un contenido de proteínas de lactosuero superior al 80 % en peso, calculado sobre materia seca) (partida 35.02) ni las globulinas (partida 35.04).
 NOTAS DE SUBPARTIDA.
 1. En la subpartida 0404.10, se entiende por lactosuero modificado el producto constituido por componentes del lactosuero, es decir, lactosuero del que se haya extraído, total o parcialmente, lactosa, proteínas o sales minerales, o al que se haya añadido componentes naturales del lactosuero, así como los productos obtenidos por mezcla de componentes naturales del lactosuero.
@@ -1234,11 +1234,11 @@ CODIGO | DESCRIPCION | DAI %
 0703.10.20.00 | - - Chalotes | II
 0703.20.00.00 | - Ajos | 15
 0703.90.00.00 | - Puerros y demás hortalizas aliáceas | 15
-07.04 | COLES, INCLUIDOS LOS REPOLLO, COLIFLORES, COLES RIZADAS, COLINSBOD Y PRODUCTOS COMESTIBLES SIMILARES DEL GENERO BRASSICA, FRESCOS O REFRIGERADOS (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
+07.04 | COLES, INCLUIDOS LOS REPOLLO, COLIFLORES, COLES RIZADAS, COLINSBOD Y PRODUCTOS COMESTIBLES SIMILARES DEL GENERO BRASSICA, FRESCOS O REFRIGERADOS (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") |
 0704.10.00.00 | - Coliflores y brécoles ("broccoli") | 15
 0704.20.00.00 | - Coles (repollitos) de Bruselas | 15
 0704.90.00.00 | - Los demás | 15
-07.05 | LECHUGA (LACTUCA SATIVA) Y ACHICORIAS, COMPRENDIDAS LA ESCAROLA Y LA ENDIBIA (CICHORIUM SPP), FRESCAS Y REFRIGERADAS (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
+07.05 | LECHUGA (LACTUCA SATIVA) Y ACHICORIAS, COMPRENDIDAS LA ESCAROLA Y LA ENDIBIA (CICHORIUM SPP), FRESCAS Y REFRIGERADAS (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") |
 0705.1 | - Lechugas: |
 0705.11.00.00 | - - Repolladas | 15
 0705.19.00.00 | - - Las demás | 15
@@ -1392,8 +1392,8 @@ CODIGO | DESCRIPCION | DAI %
 0802.70.00.00 | - Nueces de cola (Cola spp.) | 15
 0802.80.00.00 | - Nueces de areca | 15
 0802.90.00.00 | - Los demás | 15
-08.03 | BANANAS, INCLUIDOS LOS PLATANOS “PLANTAINS”, FRESCOS O SECOS |
-0803.10.00.00 | - Plátanos “plantains” | 15
+08.03 | BANANAS, INCLUIDOS LOS PLATANOS "PLANTAINS", FRESCOS O SECOS |
+0803.10.00.00 | - Plátanos "plantains" | 15
 0803.90 | - Los demás: |
 0803.90.1 | - - Bananas (Musa balbisiaca acuminata, Musa paradisiaca o Musa fapientum): |
 0803.90.11.00 | - - - Frescas | 15
@@ -1410,7 +1410,7 @@ CODIGO | DESCRIPCION | DAI %
 08.05 | AGRIOS (CITRICOS) FRESCOS O SECOS |
 0805.10.00.00 | - Naranjas | 15
 0805.20.00 | + + SUPRIMIDA + + |
-0805.2 | - Mandarinas (incluidas las tangerinas y satsumas); clementinas, “wilkings” e híbridos similares de agrios (cítricos): |
+0805.2 | - Mandarinas (incluidas las tangerinas y satsumas); clementinas, "wilkings" e híbridos similares de agrios (cítricos): |
 0805.21.00.00 | - - Mandarinas (incluidas las tangerinas y satsumas) | 15
 0805.22.00.00 | - - Clementinas | 15
 0805.29.00.00 | - - Los demás | 15
@@ -2181,9 +2181,9 @@ CODIGO | DESCRIPCION | DAI %
 19.01 | EXTRACTO DE MALTA; PREPARACIONES ALIMENTICIAS DE HARINA, GRAÑONES, SEMOLA, ALMIDON, FECULA O EXTRACTO DE MALTA, QUE NO CONTENGAN CACAO O CON UN CONTENIDO DE CACAO INFERIOR AL 40 % EN PESO CALCULADO SOBRE UNA BASE TOTALMENTE DESGRASADA, NO EXPRESADAS NI COMPRENDIDAS EN OTRA PARTE; PREPARACIONES ALIMENTICIAS DE PRODUCTOS DE LAS PARTIDAS 04.01 A 04.04 QUE NO CONTENGAN CACAO O CON UN CONTENIDO DE CACAO INFERIOR AL 5 % EN PESO CALCULADO SOBRE UNA BASE TOTALMENTE DESGRASADA, NO EXPRESADAS NI COMPRENDIDAS EN OTRA PARTE |
 1901.10 | - Preparaciones para la alimentación de lactantes o niños de corta edad, acondicionadas para la venta al por menor: |
 1901.10.1 | - - Preparaciones de productos de las partidas 04.01 a 04.04, en los que algunos de sus componentes han sido sustituidos total o parcialmente por otras sustancias: |
-1901.10.11.00 | - - - Para la alimentación de lactantes (“fórmulas maternizadas”) | 0
+1901.10.11.00 | - - - Para la alimentación de lactantes ("fórmulas maternizadas") | 0
 1901.10.19.00 | - - - Las demás | 0
-1901.10.20.00 | - - Preparaciones para la alimentación de lactantes (“fórmulas maternizadas”), distintas de las comprendidas en el inciso arancelario 1901.10.11.00 | 0
+1901.10.20.00 | - - Preparaciones para la alimentación de lactantes ("fórmulas maternizadas"), distintas de las comprendidas en el inciso arancelario 1901.10.11.00 | 0
 1901.10.90.00 | - - Otras | 10
 1901.20.00.00 | - Mezclas y pastas para la preparación de productos de panadería, pastelería o galletería, de la partida 19.05 | 15
 1901.90 | - Los demás: |
@@ -2201,7 +2201,7 @@ CODIGO | DESCRIPCION | DAI %
 1903.00.00.00 | TAPIOCA Y SUS SUCEDANEOS PREPARADOS CON FECULA, EN COPOS, GRUMOS, GRANOS PERLADOS, CERNIDURAS O FORMAS SIMILARES | 15
 19.04 | PRODUCTOS A BASE DE CEREALES OBTENIDOS POR INFLADO O TOSTADO (POR EJEMPLO: HOJUELAS O COPOS DE MAIZ); CEREALES (EXCEPTO EL MAIZ) EN GRANO O EN FORMA DE COPOS U OTRO GRANO TRABAJADO (EXCEPTO LA HARINA , GRAÑONES Y SEMOLA), PRECOCIDOS O PREPARADOS DE OTRO MODO, NO EXPRESADOS NI COMPRENDIDOS EN OTRA PARTE |
 1904.10 | - Productos a base de cereales obtenidos por inflado o tostado: |
-1904.10.10.00 | - - “Pellets” de harina, de arroz | II
+1904.10.10.00 | - - "Pellets" de harina, de arroz | II
 1904.10.90.00 | - - Otros | 15
 1904.20.00.00 | - Preparaciones alimenticias obtenidas con copos de cereales sin tostar o con mezclas de copos de cereales sin tostar y copos de cereales tostados o cereales inflados | 15
 1904.30.00.00 | - Trigo bulgur | 15
@@ -2215,7 +2215,7 @@ CODIGO | DESCRIPCION | DAI %
 1905.31 | - - Galletas dulces (con adición de edulcorante): |
 1905.31.10.00 | - - - Con adición de cacao, para sandwich de helado | 15
 1905.31.90.00 | - - - Otras | 15
-1905.32.00.00 | - - Barquillos y obleas, incluso rellenos (“gaufrettes"," wafers") y " waffles" (“gaufres") | 15
+1905.32.00.00 | - - Barquillos y obleas, incluso rellenos ("gaufrettes"," wafers") y " waffles" ("gaufres") | 15
 1905.40.00.00 | - Pan tostado y productos similares tostados | 15
 1905.90.00.00 | - Los demás | 15
 CAPITULO 20
@@ -2405,7 +2405,7 @@ NOTAS.
 a) los productos de este Capítulo (excepto los de la partida 22.09) preparados para uso culinario de tal forma que resulten impropios para el consumo como bebida (generalmente, partida 21.03);
 b) el agua de mar (partida 25.01);
 c) el agua destilada de conductividad o del mismo grado de pureza (partida 28.53);
-(Así reformada la nota c) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota c) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 d) las disoluciones acuosas con un contenido de ácido acético superior al 10 % en peso (partida 29.15);
 e) los medicamentos de las partidas 30.03 ó 30.04;
 f) los productos de perfumería o de tocador (Capítulo 33).
@@ -2613,7 +2613,7 @@ CODIGO | DESCRIPCION | DAI %
 2512.00.00.00 | HARINAS SILICEAS FOSILES (POR EJEMPLO: "KIESELGUHR", TRIPOLITA, DIATOMITA) Y DEMAS TIERRAS SILICEAS ANALOGAS, DE DENSIDAD APARENTE INFERIOR O IGUAL A 1, INCLUSO CALCINADAS | 0
 25.13 | PIEDRA POMEZ; ESMERIL; CORINDON NATURAL, GRANATE NATURAL Y DEMAS ABRASIVOS NATURALES, INCLUSO TRATADOS TERMICAMENTE |
 2513.10 | - Piedra pómez: |
-2513.10.10.00 | - - En bruto o en trozos irregulares, incluida la quebrantada (grava de piedra pómez o “bimskies”) | 0
+2513.10.10.00 | - - En bruto o en trozos irregulares, incluida la quebrantada (grava de piedra pómez o "bimskies") | 0
 2513.10.90.00 | - - Otras | 0
 2513.20.00.00 | - Esmeril, corindón natural, granate natural y demás abrasivos naturales | 0
 2514.00.00.00 | PIZARRA, INCLUSO DESBASTADA O SIMPLEMENTE TROCEADA, POR ASERRADO O DE OTRO MODO, EN BLOQUES O EN PLACAS CUADRADAS O RECTANGULARES. | 0
@@ -2756,7 +2756,7 @@ CODIGO | DESCRIPCION | DAI %
 2620.40.00.00 | - Que contengan principalmente aluminio | 0
 2620.60.00.00 | - Que contengan arsénico, mercurio, talio o sus mezclas, de los tipos utilizados para la extracción de arsénico o de estos metales o para la elaboración de sus compuestos químicos | 0
 2620.9 | - Los demás: |
-2620.91.00.00 | - - que contenga antimonio, berilio, cadmio, cromo o sus mezclas. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
+2620.91.00.00 | - - que contenga antimonio, berilio, cadmio, cromo o sus mezclas. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 0
 2620.99.00.00 | - - Los demás | 0
 26.21 | LAS DEMAS ESCORIAS Y CENIZAS, INCLUIDAS LAS CENIZAS DE ALGAS; CENIZAS Y RESIDUOS PROCEDENTES DE LA INCINERACION DE DESECHOS Y DESPERDICIOS MUNICIPALES |
 2621.10.00.00 | - Cenizas y residuos procedentes de la incineración de desechos y desperdicios municipales | 0
@@ -2791,7 +2791,7 @@ c) Eter de petróleo
 el aceite ligero y las preparaciones que destilen, incluidas las pérdidas, una proporción superior o igual al 95 % a 120 ºC, según la Norma ISO 3405 (equivalente a la Norma ASTM D 86).
 d) Gasolina (incluida la gasolina de aviación)
 los aceites ligeros y las preparaciones de los tipos utilizados como combustible en motores de émbolo (pistón).
-e) Espíritu blanco (“White spirit”)
+e) Espíritu blanco ("White spirit")
 el aceite ligero y las preparaciones que no contienen antidetonantes ni es utilizado como gasolina para motores, cuya diferencia de temperatura entre los puntos de destilación, incluidas las pérdidas, en una proporción del 5 % y 90 %, es inferior o igual a 60 ºC, según la Norma ISO 3405 (equivalente a la Norma ASTM D 86), y cuyo punto de inflamación es superior a 21 ºC, según la Norma ASTM D 93.
 f) Otros aceites ligeros para uso industrial
 los aceites y las preparaciones (excepto el espíritu blanco) que no contienen antidetonantes ni son utilizados como gasolina para motores, cuya diferencia de temperatura entre los puntos que destilen, incluidas las pérdidas, una proporción del 5 % y 90 %, es inferior o igual a 70 ºC, según la Norma ISO 3405 (equivalente a la Norma ASTM D 86), y cuyo punto de inflamación es superior o igual a 7 ºC, según la Norma ASTM D 93.
@@ -2850,14 +2850,14 @@ CODIGO | DESCRIPCION | DAI %
 2710.12.10.00 | - - - Éter de petróleo | 0
 2710.12.20.00 | - - - Gasolina de aviación | 0
 2710.12.30.00 | - - - Las demás gasolinas | 0
-2710.12.40.00 | - - - Espíritu blanco (“White spirit”) | 5
+2710.12.40.00 | - - - Espíritu blanco ("White spirit") | 5
 2710.12.5 | - - - Otros aceites para uso industrial: |
 2710.12.51.00 | - - - - Nafta | 5
 2710.12.59.00 | - - - - Los demás | 5
 2710.12.90.00 | - - - Otros | 5
 2710.19 | - - Los demás: |
 2710.19.1 | - - - Aceites medios y preparaciones: |
-2710.19.11.00 | - - - - Keroseno para motores de reacción (“Avjet turbo fuel”) | 0
+2710.19.11.00 | - - - - Keroseno para motores de reacción ("Avjet turbo fuel") | 0
 2710.19.12.00 | - - - - Los demás kerosenos | 0
 2710.19.13.00 | - - - - Otros aceites para uso industrial | 0
 2710.19.19.00 | - - - - Los demás | 5
@@ -3170,7 +3170,7 @@ CODIGO | DESCRIPCION | DAI %
 2835.2 | - Fosfatos: |
 2835.22.00.00 | - - De monosodio o de disodio | 0
 2835.24.00.00 | - - De potasio | 0
-2835.25.00.00 | - - Hidrogenoortofosfato de calcio (“fosfato dicálcico”) | 0
+2835.25.00.00 | - - Hidrogenoortofosfato de calcio ("fosfato dicálcico") | 0
 2835.26.00.00 | - - Los demás fosfatos de calcio | 0
 2835.29 | - - Los demás: |
 2835.29.10.00 | - - - De trisodio | 0
@@ -3261,7 +3261,7 @@ CODIGO | DESCRIPCION | DAI %
 2852.10.00.00 | - De constitución química definida | 0
 2852.90.00.00 | - Los demás | 0
 28.53 | FOSFUROS, AUNQUE NO SEAN DE CONSTITUCIÓN QUÍMICA DEFINIDA, EXCEPTO LOS FERROFÓSFOROS; LOS DEMÁS COMPUESTOS INORGÁNICOS (INCLUIDA EL AGUA DESTILADA, DE CONDUCTIVIDAD O DEL MISMO GRADO DE PUREZA); AIRE LÍQUIDO, AUNQUE SE LE HAYAN ELIMINADO LOS GASES NOBLES; AIRE COMPRIMIDO; AMALGAMAS, EXCEPTO LAS DE METAL PRECIOSO. |
-2853.10.00.00 | - Cloruro de cianógeno (“chlorcyan”) (CAS 506-77-4) | 0
+2853.10.00.00 | - Cloruro de cianógeno ("chlorcyan") (CAS 506-77-4) | 0
 2853.90.00.00 | - Los demás | 0
 2853.00.10 | + + SUPRIMIDA + + |
 2853.00.90 | + + SUPRIMIDA + + |
@@ -3308,7 +3308,7 @@ Las disposiciones anteriores sólo se aplican cuando la estructura heterocíclic
 8. En la partida 29.37:
 a) el término hormonas comprende los factores liberadores o estimulantes de hormonas, los inhibidores de hormonas y los antagonistas de hormonas (antihormonas);
 b) la expresión utilizados principalmente como hormonas, se aplica no solamente a los derivados de hormonas y a sus análogos estructurales utilizados principalmente por su acción hormonal, sino también a los derivados y análogos estructurales de hormonas utilizados principalmente como intermedios en la síntesis de productos de esta partida.
-(Así reformada la nota b) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota b) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 NOTAS DE SUBPARTIDA.
 1. Dentro de una partida de este Capítulo, los derivados de un compuesto químico (o de un grupo de compuestos químicos) se clasifican en la misma subpartida que el compuesto (o grupo de compuestos), siempre que no estén comprendidos más específicamente en otra subpartida y que no exista una subpartida residual "Los/Las demás" en la serie de subpartidas involucradas.
 2. La Nota 3 del Capítulo 29 no se aplica a las subpartidas de este Capítulo.
@@ -3688,7 +3688,7 @@ CODIGO | DESCRIPCION | DAI %
 2918.19.90 | + + SUPRIMIDA + + |
 2918.2 | - Acidos carboxílicos con función fenol, pero sin otra función oxigenada, sus anhídridos, halogenuros, peróxidos, peroxiácidos y sus derivados: |
 2918.21.00.00 | - - Acido salicílico y sus sales | 0
-2918.22.00.00 | - - Acido o acetilsalicílico, sus sales y sus ésteres (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
+2918.22.00.00 | - - Acido o acetilsalicílico, sus sales y sus ésteres (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 0
 2918.23.00.00 | - - Los demás ésteres del ácido salicílico y sus sales | 0
 2918.29.00.00 | - - Los demás | 0
 2918.30.00.00 | - Acidos carboxílicos con función aldehído o cetona, pero sin otra función oxigenada, sus anhídridos, halogenuros, peróxidos, peroxiácidos y sus derivados | 0
@@ -3726,9 +3726,9 @@ CODIGO | DESCRIPCION | DAI %
 29.21 | COMPUESTOS CON FUNCION AMINA |
 2921.1 | - Monoaminas acíclicas y sus derivados; sales de estos productos: |
 2921.11.00.00 | - - Mono-, di- o trimetilamina y sus sales | 0
-2921.12.00.00 | - - Clorhidrato de 2- cloroetil (N,N-diisopropilamina)(CAS4261-68-1) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
-2921.13.00.00 | - - Clorhidrato de 2-cloroetil (N,N-dietilamina) (CAS 869-24-9) (CAS 869-24-9 (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
-2921.14.00.00 | - - Clorhidrato de 2-cloroetil (N,N-diisopropilamina (CAS 4261-68-1) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
+2921.12.00.00 | - - Clorhidrato de 2- cloroetil (N,N-diisopropilamina)(CAS4261-68-1) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 0
+2921.13.00.00 | - - Clorhidrato de 2-cloroetil (N,N-dietilamina) (CAS 869-24-9) (CAS 869-24-9 (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 0
+2921.14.00.00 | - - Clorhidrato de 2-cloroetil (N,N-diisopropilamina (CAS 4261-68-1) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 0
 2921.19 | - - Los demás: |
 2921.19.10.00 | - - - Dietilamina y sus sales | 0
 2921.19.2 | - - - Etilaminas, sus sales y sus derivados, distintos de los comprendidos en el inciso 2921.19.10.00: |
@@ -3959,7 +3959,7 @@ CODIGO | DESCRIPCION | DAI %
 2933.2 | - Compuestos cuya estructura contenga uno o más ciclos imidazol (incluso hidrogenado), sin condensar: |
 2933.21.00.00 | - - Hidantoína y sus derivados | 0
 2933.29.00.00 | - - Los demás | 0
-2933.3 | - Compuesto cuya estructura contenga uno o más ciclospiridina (incluso hidrogenado), sin condensar: (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
+2933.3 | - Compuesto cuya estructura contenga uno o más ciclospiridina (incluso hidrogenado), sin condensar: (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") |
 2933.31.00.00 | - - Piridina y sus sales | 0
 2933.32.00.00 | - - Piperidina y sus sales | 0
 2933.33.00.00 | - - Alfentanilo (DCI), anileridina (DCI), bezitramida (DCI), bromazepam (DCI), cetobemidona (DCI), difenoxilato (DCI), difenoxina (DCI), dipipanona (DCI), fenciclidina (DCI) (PCP), fenoperidina (DCI), fentanilo (DCI), metilfenidato (DCI), pentazocina (DCI), petidina (DCI), intermedio A de la petidina (DCI), pipradrol (DCI), piritramida (DCI), propiram (DCI) y trimeperidina (DCI); sales de estos productos | 0
@@ -4085,7 +4085,7 @@ NOTAS.
 1. Este Capítulo no comprende:
 a) los alimentos dietéticos, alimentos enriquecidos, alimentos para diabéticos, complementos alimenticios, bebidas tónicas y el agua mineral (Sección IV), excepto las preparaciones nutritivas para administración por vía intravenosa;
 b) Las preparaciones, tales como comprimidos, gomas de marcar o parches autoadhesivos (que se administran por vía transdérmica), diseñadas para ayuda a los fumadores que intentan dejar de fumar (partidas 21.06 ó 38.24);
-(Así reformada la nota b) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota b) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 c) el yeso fraguable especialmente calcinado o finamente molido para uso en odontología (partida 25.20);
 d) los destilados acuosos aromáticos y las disoluciones acuosas de aceites esenciales, medicinales (partida 33.01);
 e) las preparaciones de las partidas 33.03 a 33.07, incluso si tienen propiedades terapéuticas o profilácticas;
@@ -4266,7 +4266,7 @@ CODIGO | DESCRIPCION | DAI %
 3006.40.00.00 | - Cementos y demás productos de obturación dental; cementos para la refección de los huesos | 0
 3006.50.00.00 | - Botiquines equipados para primeros auxilios | II
 3006.60.00.00 | - Preparaciones químicas anticonceptivas a base de hormonas, de otros productos de la partida 29.37 o de espermicidas | 0
-3006.70.00.00 | - Preparaciones en forma de gel, concebidas para ser utilizadas en medicina o veterinaria como lubricante para ciertas partes del cuerpo, en operaciones quirúrgicas o exámenes médicos o como nexo entre el cuerpo y los instrumentos médicos. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
+3006.70.00.00 | - Preparaciones en forma de gel, concebidas para ser utilizadas en medicina o veterinaria como lubricante para ciertas partes del cuerpo, en operaciones quirúrgicas o exámenes médicos o como nexo entre el cuerpo y los instrumentos médicos. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 0
 3006.9 | - Los demás: |
 3006.91.00.00 | - - Dispositivos identificables para uso en estomas | 0
 3006.92.00.00 | - - Desechos farmacéuticos | 15
@@ -4505,7 +4505,7 @@ CODIGO | DESCRIPCION | DAI %
 3301.29.10.00 | - - - De geranio | 0
 3301.29.20.00 | - - - De jazmin | 0
 3301.29.30.00 | - - - De lavanda (espliego) o de lavandin | 0
-3301.29.40.00 | - - - De espicanardo (“vetiver”) | 0
+3301.29.40.00 | - - - De espicanardo ("vetiver") | 0
 3301.29.90.00 | - - - Otros | 0
 3301.30.00.00 | - Resinoides | 0
 3301.90.00.00 | - Los demás | 0
@@ -4655,7 +4655,7 @@ CODIGO | DESCRIPCION | DAI %
 3506.9 | - Los demás: |
 3506.91 | - - Adhesivos a base de polímeros de las partidas 39.01 a 39.13 o de caucho: |
 3506.91.10.00 | - - - Adhesivos termoplásticos preparados, a base de poliamidas o de poliésteres, con ámbito de fusión comprendido entre 180 °C y 240 °C | 5
-3506.91.20.00 | - - - Adhesivo termoplástico a base de copolímeros de estireno–butadieno y resinas hidrocarbonadas con temperatura de fusión superior a 75 °C. | 0
+3506.91.20.00 | - - - Adhesivo termoplástico a base de copolímeros de estireno-butadieno y resinas hidrocarbonadas con temperatura de fusión superior a 75 °C. | 0
 3506.91.30.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - - Adhesivos transparentes en película sin soporte y adhesivos líquidos transparentes endurecibles, de los tipos utilizados en la fabricación de dispositivos de visualización de pantalla plana o paneles de pantalla táctil (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 16 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
 3506.91.90.00 | - - - Otros | 15
 3506.99.00.00 | - - Los demás | 15
@@ -4798,7 +4798,7 @@ La subpartida 3808.59 comprende también las preparaciones en polvo que contenga
 2. Las subpartidas 3808.61 a 3808.69 comprenden únicamente productos de la partida 38.08, que contengan alfa-cipermetrina (ISO), bendiocarb (ISO), bifentrina (ISO), ciflutrina (ISO), clorfenapir (ISO), deltametrina (DCI, ISO), etofenprox (DCI), fenitrotión (ISO), lambda-cialotrina (ISO), malatión (ISO), pirimifos-metil (ISO) o propoxur (ISO).
 3. Las subpartidas 3824.81 a 3824.88 comprenden únicamente las mezclas y preparaciones que contengan una o más de las sustancias siguientes: oxirano (óxido de etileno), bifenilos polibromados (PBB), bifenilos policlorados (PCB), terfenilos policlorados (PCT), fosfato de tris(2,3-dibromopropilo), aldrina (ISO), canfecloro (ISO) (toxafeno), clordano (ISO), clordecona (ISO), DDT (ISO) (clofenotano (DCI), 1,1,1-tricloro-2,2-bis(p-clorofenil)etano), dieldrina (ISO, DCI), endosulfán (ISO), endrina (ISO), heptacloro (ISO), mirex (ISO), 1,2,3,4,5,6-hexaclorociclohexano (HCH (ISO)), incluido el lindano (ISO, DCI), pentaclorobenceno (ISO), hexaclorobenceno (ISO), ácido perfluorooctano sulfónico o sus sales, perfluorooctano sulfonamidas, fluoruro de perfluorooctano sulfonilo o éteres tetra-, penta-, hexa-, hepta- u octabromodifenílicos.
 4.En las subpartidas 3825.41 y 3825.49, se entiende por desechos de disolventes orgánicos, los desechos que contengan principalmente disolventes orgánicos impropios para su utilización inicial, aunque se destinen a la recuperación de éstos.
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 NOTAS COMPLEMENTARIAS CENTROAMERICANAS.
 A. El inciso arancelario 3823.11.00.00 comprende también el ácido esteárico comercial, constituido por las mezclas de ácidos grasos industriales, sólidos a la temperatura normal, con un contenido de ácido esteárico puro superior o igual al 30 % pero inferior al 90 % en peso, del producto anhidro.
 Las mezclas con un contenido de ácido esteárico puro superior o igual al 90 % en peso, se clasifican en el inciso arancelario 2915.70.00.00.
@@ -5006,7 +5006,7 @@ CODIGO | DESCRIPCION | DAI %
 3824.87.00.00 | - - Que contengan ácido perfluorooctano sulfónico o sus sales, perfluorooctano sulfonamidas o fluoruro de perfluorooctano sulfonilo | 10
 3824.88.00.00 | - - Que contengan éteres tetra-, penta-, hexa-, hepta- u octabromodifenílicos | 10
 3824.9 | - Los demás: |
-3824.91.00.00 | - - Mezclas y preparaciones constituidas esencialmente de metilfosfonato de (5-etil-2-metil-2-óxido-1,2,3-dioxafosfinan-5-il) metil metilo y metilfosfonato de bis ((5-etil-2-metil-2-óxido-1,2,3-dioxafosfinan-5-il)metilo) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
+3824.91.00.00 | - - Mezclas y preparaciones constituidas esencialmente de metilfosfonato de (5-etil-2-metil-2-óxido-1,2,3-dioxafosfinan-5-il) metil metilo y metilfosfonato de bis ((5-etil-2-metil-2-óxido-1,2,3-dioxafosfinan-5-il)metilo) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 10
 3824.99 | - - Los demás: |
 3824.99.10.00 | - - - Preparaciones para caucho o plástico, no expresadas ni comprendidas en otra parte | 0
 3824.99.20.00 | - - - Gelificantes, endurecedores, agentes antipiel y demás preparaciones, para pinturas y barnices, no expresados ni comprendidos en otra parte | 0
@@ -5049,7 +5049,7 @@ CODIGO | DESCRIPCION | DAI %
 3825.61.00.00 | - - Que contengan principalmente componentes orgánicos | 10
 3825.69.00.00 | - - Los demás | 10
 3825.90.00.00 | - Los demás | 10
-3826.00.00.00 | BIODIESEL Y SUS MEZCLAS, SIN ACEITES DE PETROLEO O DE MINERAL BITUMINOSO O CON UN CONTENIDO INFERIOR AL 70% EN PESO DE ESTOS ACEITES (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
+3826.00.00.00 | BIODIESEL Y SUS MEZCLAS, SIN ACEITES DE PETROLEO O DE MINERAL BITUMINOSO O CON UN CONTENIDO INFERIOR AL 70% EN PESO DE ESTOS ACEITES (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 10
 SECCION VII
 PLASTICO Y SUS MANUFACTURAS; CAUCHO Y SUS MANUFACTURAS
 NOTAS.
@@ -5342,6 +5342,12 @@ CODIGO | DESCRIPCION | DAI %
 3920.49.20.00 | - - - Flexibles, de espesor superior a 400 micras | 0
 3920.49.3 | - - - Flexibles, de espesor inferior o igual a 400 micras: |
 3920.49.31.00 | - - - - Estratificadas, reforzadas o combinadas con otros polímeros entre sí, sin impresión y sin metalizar | 5
+3920.49.31.1 (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021) | -----Estratificadas: (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021) |
+3920.49.31.11 (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021) | -----Con poli(cloruro de vinilideno) (PVDC) (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021) | 0 (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021)
+3920.49.31.12 (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021) | ------Con poli(clorotrietileno) (PCTFE) (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021) | 0 (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021)
+3920.49.31.13 (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021) | -----Con poli(cloruro de vinilideno) (PVDC) y polietileno (PE) (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021) | 0 (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021)
+3920.49.31.19 (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021) | -----Las demás (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021) | 5 (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021)
+3920.49.31.90 (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021) | ------Otras (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021) | 5 (Así aprobada la apertura anterior por el arate I) de la parte resolutiva de la Publica resolución N° 427-2020 (COMIECO-XCII) de 27/10/2010 aprueba las aperturas arancelarias y modificación de Derechos Arancelarios a la Importación para algunas placas, láminas, hojas y tiras plásticas, clasificadas en el inciso arancelario 3920.49.31, aprobada mediante decreto ejecutivo N° 42960 del 19 de marzo del 2021)
 3920.49.32.00 | - - - - Sin impresión, metalizadas | 5
 3920.49.33.00 | - - - - Con impresión, sin metalizar | 10
 3920.49.34.00 | - - - - Con impresión, metalizadas | 10
@@ -5418,7 +5424,7 @@ CODIGO | DESCRIPCION | DAI %
 39.23 | ARTICULOS PARA EL TRANSPORTE O ENVASADO, DE PLASTICO; TAPONES, TAPAS, CAPSULAS Y DEMAS DISPOSITIVOS DE CIERRE, DE PLASTICO |
 3923.10 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - Cajas, cajones, jaulas y artículos similares: (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) |
 3923.10.00.00 | - Cajas, cajones, jaulas y artículos similares | 10
-3923.10.20.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - De los tipos utilizados para el transporte o envasado de máscaras, retículas y obleas (“wafers”) semiconductores (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 10 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
+3923.10.20.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - De los tipos utilizados para el transporte o envasado de máscaras, retículas y obleas ("wafers") semiconductores (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 10 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
 3923.2 | - Sacos (bolsas), bolsitas y cucuruchos (conos): |
 3923.21 | - - De polímeros de etileno: |
 3923.21.10.00 | - - - Bolsas termoencogibles multilaminadas o extruidas (tipo "Cryo-vac") | 0
@@ -5637,7 +5643,7 @@ CODIGO | DESCRIPCION | DAI %
 4011.99.00 | + + SUPRIMIDA ++ |
 40.12 | NEUMATICOS (LLANTAS NEUMATICAS) RECAUCHUTADOS O USADOS, DE CAUCHO; BANDAJES (LLANTAS MACIZAS O HUECAS), BANDAS DE RODADURA PARA NEUMATICOS (LLANTAS NEUMATICAS) Y PROTECTORES ("FLAPS"), DE CAUCHO |
 4012.1 | - Neumáticos (llantas neumáticas) recauchutados: |
-4012.11.00.00 | - - De los tipos utilizados en automóviles de turismo (incluidos los del tipo familiar (“break” o “station wagon”) y los de carreras) | 15
+4012.11.00.00 | - - De los tipos utilizados en automóviles de turismo (incluidos los del tipo familiar ("break" o "station wagon") y los de carreras) | 15
 4012.12.00.00 | - - De los tipos utilizados en autobuses o camiones | 15
 4012.13.00.00 | - - De los tipos utilizados en aeronaves | 15
 4012.19.00.00 | - - Los demás | 15
@@ -5738,24 +5744,24 @@ CODIGO | DESCRIPCION | DAI %
 4103.90.91.00 | - - - De caprino | 0
 4103.90.92.00 | - - - De camello o dromedario | 15
 4103.90.99.00 | - - - Los demás | 0
-41.04 | CUEROS Y PIELES CURTIDOS O "CRUST”, DE BOVINO (INCLUIDO EL BUFALO) O DE EQUINO, DEPILADOS, INCLUSO DIVIDIDOS PERO SIN OTRA PREPARACION |
+41.04 | CUEROS Y PIELES CURTIDOS O "CRUST", DE BOVINO (INCLUIDO EL BUFALO) O DE EQUINO, DEPILADOS, INCLUSO DIVIDIDOS PERO SIN OTRA PREPARACION |
 4104.1 | - En estado húmedo (incluido el "wet blue"): |
 4104.11 | - - Plena flor sin dividir; divididos con la flor: |
 4104.11.1 | - - - De bovino enteros, con una superficie por unidad inferior o igual a 2.6 m2 (28 pies cuadrados): |
-4104.11.11.00 | - - - - De semicurtición mineral al cromo húmedo (“wet blue”) | 0
+4104.11.11.00 | - - - - De semicurtición mineral al cromo húmedo ("wet blue") | 0
 4104.11.19.00 | - - - - Los demás | 5
 4104.11.2 | - - - Los demás cueros y pieles de bovino (incluido el búfalo) y equino, curtidos o recurtidos, pero sin otra preparación posterior, incluso divididos: |
 4104.11.21.00 | - - - - De bovino con precurtido vegetal | 10
-4104.11.22.00 | - - - - De bovino, de semicurtición mineral al cromo húmedo (“wet blue”) | 0
+4104.11.22.00 | - - - - De bovino, de semicurtición mineral al cromo húmedo ("wet blue") | 0
 4104.11.23.00 | - - - - Otros de bovino | 5
 4104.11.24.00 | - - - - De equino | 10
 4104.19 | - - Los demás: |
 4104.19.1 | - - - De bovino enteros, con una superficie por unidad inferior o igual a 2.6 m2 (28 pies cuadrados): |
-4104.19.11.00 | - - - - De semicurtición mineral al cromo húmedo (“wet-blue”) | 0
+4104.19.11.00 | - - - - De semicurtición mineral al cromo húmedo ("wet-blue") | 0
 4104.19.19.00 | - - - - Los demás | 5
 4104.19.2 | - - - Los demás cueros y pieles de bovino y equino, curtidos o recurtidos, pero sin otra preparación posterior, incluso divididos: |
 4104.19.21.00 | - - - - De bovino con precurtido vegetal | 10
-4104.19.22.00 | - - - - De bovino, de semicurtición mineral al cromo húmedo (“wet blue”) | 0
+4104.19.22.00 | - - - - De bovino, de semicurtición mineral al cromo húmedo ("wet blue") | 0
 4104.19.23.00 | - - - - Otros de bovino | 5
 4104.19.24.00 | - - - - De equino | 10
 4104.4 | - En estado seco ("crust"): |
@@ -5765,7 +5771,7 @@ CODIGO | DESCRIPCION | DAI %
 4104.49 | - - Los demás: |
 4104.49.10.00 | - - - De bovino, con una superficie por unidad inferior o igual a 2.6 m2 (28 pies cuadrados) | 5
 4104.49.90.00 | - - - Otros | 10
-41.05 | PIELES CURTIDAS O "CRUST”, DE OVINO, DEPILADAS, INCLUSO DIVIDIDAS PERO SIN OTRA PREPARACION |
+41.05 | PIELES CURTIDAS O "CRUST", DE OVINO, DEPILADAS, INCLUSO DIVIDIDAS PERO SIN OTRA PREPARACION |
 4105.10.00.00 | - En estado húmedo (incluido el "wet blue") | 5
 4105.30.00.00 | - En estado seco ("crust") | 5
 41.06 | CUEROS Y PIELES DEPILADOS DE LOS DEMAS ANIMALES Y PIELES DE ANIMALES SIN PELO, CURTIDOS O "CRUST", INCLUSO DIVIDIDOS PERO SIN OTRA PREPARACION |
@@ -5774,7 +5780,7 @@ CODIGO | DESCRIPCION | DAI %
 4106.22.00.00 | - - En estado seco ("crust") | 5
 4106.3 | - De porcino: |
 4106.31 | - - En estado húmedo (incluido el "wet blue"): |
-4106.31.10.00 | - - - De semicurtición mineral al cromo húmedo (“wet blue”) | 0
+4106.31.10.00 | - - - De semicurtición mineral al cromo húmedo ("wet blue") | 0
 4106.31.90.00 | - - - Otros | 5
 4106.32.00.00 | - - En estado seco ("crust") | 5
 4106.40.00.00 | - De reptil | 5
@@ -5829,7 +5835,7 @@ m) los botones, botones de presión, formas para botones y demás partes de boto
 a) las bolsas de hojas de plástico, con asas, no concebidas para un uso prolongado, incluso impresas (partida 39.23);
 b) los artículos de materia trenzable (partida 46.02).
 B) Las manufacturas comprendidas en las partidas 42.02 y 42.03 con partes de metal precioso o de chapados de metal precioso (plaqué), de perlas finas (naturales) o cultivadas o de piedras preciosas o semipreciosas (naturales, sintéticas o reconstruidas) permanecen incluidas en estas partidas, incluso si dichas partes exceden la función de simples accesorios o adornos de mínima importancia, siempre que tales partes no confieran a las manufacturas su carácter esencial. Si, por el contrario, esas partes confieren a las manufacturas su carácter esencial, éstas deben clasificarse en el Capítulo 71.
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 4. En la partida 42.03 la expresión prendas y complementos (accesorios), de vestir se refiere, entre otros, a los guantes, mitones y manoplas (incluidos los de deporte y los de protección), a los delantales y demás equipos especiales de protección individual para cualquier oficio, a los tirantes (tiradores), cinturones, bandoleras, brazaletes y muñequeras, excepto las pulseras para relojes (partida 91.13).
 CODIGO | DESCRIPCION | DAI %
 4201.00.00.00 | ARTICULOS DE TALABARTERIA O GUARNICIONERIA PARA TODOS LOS ANIMALES (INCLUIDOS LOS TIROS, TRAILLAS, RODILLERAS, BOZALES, SUDADEROS, ALFORJAS, ABRIGOS PARA PERROS Y ARTICULOS SIMILARES), DE CUALQUIER MATERIA | 15
@@ -5884,7 +5890,7 @@ deportivos).
 3. Se clasifican en la partida 43.03, la peletería y partes de peletería, ensambladas con otras materias, y la peletería y partes de peletería, cosidas formando prendas, partes de prendas, complementos (accesorios), de vestir u otros artículos.
 4. Se clasifican en las partidas 43.03 ó 43.04, según los casos, las prendas y complementos (accesorios), de vestir, de cualquier clase (excepto los excluidos de este Capítulo por la Nota 2), forrados interiormente con peletería natural o con peletería facticia o artificial, así como las prendas y complementos (accesorios), de vestir, con partes exteriores de peletería natural o peletería facticia o artificial, cuando dichas partes no sean simples guarniciones.
 5. En la Nomenclatura, se consideran peletería facticia o artificial las imitaciones de peletería obtenidas con lana, pelo u otras fibras, aplicados por pegado o cosido, sobre cuero, tejido u otras materias, excepto las imitaciones obtenidas por tejido o por punto (partidas 58.01 ó 60.01, generalmente)
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 CODIGO | DESCRIPCION | DAI %
 43.01 | PELETERIA EN BRUTO (INCLUIDAS LAS CABEZAS, COLAS, PATAS Y DEMAS TROZOS UTILIZABLES EN PELETERIA), EXCEPTO LAS PIELES EN BRUTO DE LAS PARTIDAS 41.01, 41.02 ó 41.03 |
 4301.10.00.00 | - De visón, enteras, incluso sin la cabeza, cola o patas | 15
@@ -5933,9 +5939,9 @@ r) los artículos del Capítulo 97 (por ejemplo: objetos de arte).
 5. La partida 44.17 no comprende las herramientas cuya hoja, cuchilla, superficie u otra parte operante esté constituida por alguna de las materias mencionadas en la Nota 1 del Capítulo 82.
 6. Sin perjuicio de lo dispuesto en la Nota 1 anterior y salvo disposición en contrario, cualquier referencia a madera en un texto de partida de este Capítulo se aplica también al bambú y demás materias de naturaleza leñosa.
 NOTA DE SUBPARTIDA.
-1. En la subpartida 4401.31, se entiende por “pellets” de madera los subproductos, tales como virutas, aserrín o plaquitas, obtenidos a partir del proceso mecánico de industrialización de la madera, de la industria del mueble u otras actividades de transformación de la madera, aglomerados por simple presión o por adición de aglutinante en una proporción inferior o igual al 3 % en peso. Estos “pellets” son cilíndricos, con un diámetro inferior o igual a 25 mm y una longitud inferior o igual a 100 mm.
+1. En la subpartida 4401.31, se entiende por "pellets" de madera los subproductos, tales como virutas, aserrín o plaquitas, obtenidos a partir del proceso mecánico de industrialización de la madera, de la industria del mueble u otras actividades de transformación de la madera, aglomerados por simple presión o por adición de aglutinante en una proporción inferior o igual al 3 % en peso. Estos "pellets" son cilíndricos, con un diámetro inferior o igual a 25 mm y una longitud inferior o igual a 100 mm.
 CODIGO | DESCRIPCION | DAI %
-44.01 | LEÑA; MADERA EN PLAQUITAS O PARTICULAS; ASERRIN, DESPERDICIOS Y DESECHOS, DE MADERA, INCLUSO AGLOMERADOS EN LEÑOS, BRIQUETAS, “PELLETS” O FORMAS SIMILARES |
+44.01 | LEÑA; MADERA EN PLAQUITAS O PARTICULAS; ASERRIN, DESPERDICIOS Y DESECHOS, DE MADERA, INCLUSO AGLOMERADOS EN LEÑOS, BRIQUETAS, "PELLETS" O FORMAS SIMILARES |
 4401.10.00 | + + SUPRIMIDA ++ |
 4401.1 | - Leña: |
 4401.11.00.00 | - - De coníferas | 0
@@ -5943,8 +5949,8 @@ CODIGO | DESCRIPCION | DAI %
 4401.2 | - Madera en plaquitas o partículas: |
 4401.21.00.00 | - - De coníferas | 0
 4401.22.00.00 | - - Distinta de la de coníferas | 0
-4401.3 | - Aserrín, desperdicios y desechos, de madera, aglomerados en leños, briquetas, “pellets” o formas similares: |
-4401.31.00.00 | - - “Pellets” de madera | 0
+4401.3 | - Aserrín, desperdicios y desechos, de madera, aglomerados en leños, briquetas, "pellets" o formas similares: |
+4401.31.00.00 | - - "Pellets" de madera | 0
 4401.39.00.00 | - - Los demás | 0
 4401.40.00.00 | - Aserrín, desperdicios y desechos, de madera, sin aglomerar | 0
 44.02 | CARBÓN VEGETAL (COMPRENDIDO EL DE CÁSCARAS O DE HUESOS (CAROZOS) DE FRUTOS), INCLUSO AGLOMERADO |
@@ -6027,18 +6033,18 @@ CODIGO | DESCRIPCION | DAI %
 4409.21.00.00 | - - De bambú | 10
 4409.22.00.00 | - - De maderas tropicales | 10
 4409.29.00.00 | - - Las demás | 10
-44.10 | TABLEROS DE PARTÍCULAS, TABLEROS LLAMADOS “ORIENTED STRAND BOARD” (OSB) Y TABLEROS SIMILARES (POR EJEMPLO, “WAFERBOARD”), DE MADERA U OTRAS MATERIAS LEÑOSAS, INCLUSO AGLOMERADAS CON RESINAS O DEMÁS AGLUTINANTES ORGÁNICOS |
+44.10 | TABLEROS DE PARTÍCULAS, TABLEROS LLAMADOS "ORIENTED STRAND BOARD" (OSB) Y TABLEROS SIMILARES (POR EJEMPLO, "WAFERBOARD"), DE MADERA U OTRAS MATERIAS LEÑOSAS, INCLUSO AGLOMERADAS CON RESINAS O DEMÁS AGLUTINANTES ORGÁNICOS |
 4410.1 | - De madera: |
 4410.11 | - - Tableros de partículas: |
 4410.11.10.00 | - - - En bruto o simplemente lijados | II
 4410.11.20.00 | - - - Recubiertos en la superficie con papel impregnado con melamina | II
 4410.11.30.00 | - - - Recubiertos en la superficie con placas u hojas decorativas estratificadas de plástico | II
 4410.11.90.00 | - - - Otros | II
-4410.12 | - - Tableros llamados “oriented strand board” (OSB): |
+4410.12 | - - Tableros llamados "oriented strand board" (OSB): |
 4410.12.10.00 | - - - En bruto o simplemente lijados | 10
 4410.12.90.00 | - - - Otros | 10
 4410.19 | - - Los demás: |
-4410.19.1 | - - - Tableros “waferboard”, de madera: |
+4410.19.1 | - - - Tableros "waferboard", de madera: |
 4410.19.11.00 | - - - - En bruto o simplemente lijados | 10
 4410.19.19.00 | - - - - Los demás | 10
 4410.19.2 | - - - Otros, de madera: |
@@ -6048,7 +6054,7 @@ CODIGO | DESCRIPCION | DAI %
 4410.19.29.00 | - - - - Los demás | II
 4410.90.00.00 | - Los demás | 10
 44.11 | TABLEROS DE FIBRA DE MADERA U OTRAS MATERIAS LEÑOSAS, INCLUSO AGLOMERADAS CON RESINAS O DEMAS AGLUTINANTES ORGANICOS |
-4411.1 | - Tableros de fibra de densidad media (llamados “MDF”): |
+4411.1 | - Tableros de fibra de densidad media (llamados "MDF"): |
 4411.12 | - - De espesor inferior o igual a 5 mm: |
 4411.12.1 | - - - Tableros de fibra de densidad superior a 0.5 g/cm3 pero inferior o igual a 0.8 g/cm3: |
 4411.12.11.00 | - - - - Sin trabajo mecánico ni recubrimiento de superficie | 10
@@ -6101,11 +6107,11 @@ CODIGO | DESCRIPCION | DAI %
 4412.3 | - Las demás maderas contrachapadas, constituidas exclusivamente por hojas de madera (excepto de bambú) de espesor unitario inferior o igual a 6 mm: |
 4412.31.00.00 | - - Que tengan, por lo menos, una hoja externa de maderas tropicales | 10
 4412.32.00 | + + SUPRIMIDA ++ |
-4412.33.00.00 | - - Las demás, que tengan por lo menos, una hoja externa de madera distinta de la de coníferas, de las especies: aliso (Alnus spp), fresno (Fraxinus spp), haya )Fagus spp), abedul (Betula spp), cerezo (Prunus spp), castaño (Castanea spp), olmo (Ulmus spp), eucalipto (Eucalyptus spp), caria o pacana (Carya spp), castaño de Indias (Aesculus spp), tilo (Tilia spp), arce (Hacer spp), roble(Quercus spp), plátano (Platanus spp), álamo (Poputus spp), algarrobo negro (Robinia spp), árbol de tulipán (Liriodendron spp) o nogal (Juglans spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
+4412.33.00.00 | - - Las demás, que tengan por lo menos, una hoja externa de madera distinta de la de coníferas, de las especies: aliso (Alnus spp), fresno (Fraxinus spp), haya )Fagus spp), abedul (Betula spp), cerezo (Prunus spp), castaño (Castanea spp), olmo (Ulmus spp), eucalipto (Eucalyptus spp), caria o pacana (Carya spp), castaño de Indias (Aesculus spp), tilo (Tilia spp), arce (Hacer spp), roble(Quercus spp), plátano (Platanus spp), álamo (Poputus spp), algarrobo negro (Robinia spp), árbol de tulipán (Liriodendron spp) o nogal (Juglans spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 10
 4412.34.00.00 | - - Las demás, que tengan, por lo menos, una hoja externa de madera distinta de la de coníferas, no especificadas en la subpartida 4412.33 | 10
 4412.39.00.00 | - - Las demás, con las dos hojas externas de madera de coníferas | 10
 4412.9 | - Las demás: |
-4412.94 | - - Tableros denominados “blockboard”, “laminboard” y “battenboard”(de alma constituida por planchas, listones o tablillas): |
+4412.94 | - - Tableros denominados "blockboard", "laminboard" y "battenboard"(de alma constituida por planchas, listones o tablillas): |
 4412.94.1 | - - - Las demás, que tengan, por lo menos, una hoja externa de madera distinta de la de coníferas: |
 4412.94.11.00 | - - - - Que tengan, por lo menos, una hoja de maderas tropicales | 10
 4412.94.19.00 | - - - - Las demás | 10
@@ -6139,7 +6145,7 @@ CODIGO | DESCRIPCION | DAI %
 4418.50.00.00 | - Tablillas para cubierta de tejados o fachadas ("shingles" y "shakes") | 15
 4418.60.00.00 | - Postes y vigas | 15
 4418.7 | - Tableros ensamblados para revestimiento de suelo: |
-4418.73 | - - De bambú o que tengan por lo menos la capa superior de bambú: (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
+4418.73 | - - De bambú o que tengan por lo menos la capa superior de bambú: (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") |
 4418.73.10.00 | - - - Para suelos en mosaico | 15
 4418.73.20.00 | - - - Los demás, multicapas | 15
 4418.73.90.00 | - - - Otros | 15
@@ -6285,7 +6291,7 @@ d) el papel y la guata de celulosa impregnados, recubiertos o revestidos de jab�
 e) el papel y cartón sensibilizados de las partidas 37.01 a 37.04;
 f) el papel impregnado con reactivos de diagnóstico o de laboratorio (partida 38.22);
 g) el plástico estratificado con papel o cartón, los productos constituidos por una capa de papel o cartón recubiertos o revestidos de una capa de plástico cuando el espesor de esta última sea superior a la mitad del espesor total, y las manufacturas de estas materias, excepto los revestimientos para paredes de la partida 48.14 (capítulo 39
-(Así reformada la nota g) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota g) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 h) los artículos de la partida 42.02 (por ejemplo: artículos de viaje);
 ij) los artículos del Capítulo 46 (manufacturas de espartería o cestería);
 k) los hilados de papel y los artículos textiles de hilados de papel (Sección XI);
@@ -6351,10 +6357,10 @@ Dirección longitudinal de la máquina | Dirección longitudinal de la máquina 
 60 70 80 100 115 | 700 830 965 1,230 1,425 | 1,510 1,790 2,070 2,635 3,060 | 1.9 2.3 2.8 3.7 4.4 | 6.0 7.2 8.3 10.6 12.3
 3. En la subpartida 4805.11, se entiende por papel semiquímico para acanalar el papel presentado en bobinas (rollos), en el que el contenido de fibras crudas de madera de frondosas obtenidas por la combinación de procedimientos mecánico y químico sea superior o igual al 65 % en peso del contenido total de fibra y con una resistencia al aplastamiento según el método CMT 30 (Corrugated Medium Test con 30 minutos de acondicionamiento) superior a 1.8 newtons/g/m2 para una humedad relativa de 50 %, a una temperatura de 23 °C.
 4. La subpartida 4805.12 comprende el papel en bobinas (rollos), compuesto principalmente de pasta de paja obtenida por la combinación de procedimientos mecánico y químico, de peso superior o igual a 130 g/m2 y con una resistencia al aplastamiento según el método CMT 30 (Corrugated Medium Test con 30 minutos de acondicionamiento) superior a 1.4 newtons/g/m2 para una humedad relativa de 50 %, a una temperatura de 23 °C.
-5. Las subpartidas 4805.24 y 4805.25 comprenden el papel y cartón compuestos exclusiva o principalmente de pasta de papel o cartón reciclado (de desperdicios y desechos). El papel "Testliner” puede igualmente tener una capa superficial de papel coloreado o compuesto de pasta blanqueada o cruda, sin reciclar. Estos productos tienen un índice de estallido Mullen superior o igual a 2 kPa.m2 /g.
+5. Las subpartidas 4805.24 y 4805.25 comprenden el papel y cartón compuestos exclusiva o principalmente de pasta de papel o cartón reciclado (de desperdicios y desechos). El papel "Testliner" puede igualmente tener una capa superficial de papel coloreado o compuesto de pasta blanqueada o cruda, sin reciclar. Estos productos tienen un índice de estallido Mullen superior o igual a 2 kPa.m2 /g.
 6. En la subpartida 4805.30, se entiende por papel sulfito para envolver, el papel satinado en una cara en el que el contenido de fibras de madera obtenidas por el procedimiento químico al sulfito sea superior al 40 % en peso del contenido total de fibra, con un contenido de cenizas inferior o igual al 8 % y con un índice de estallido Mullen superior o igual a 1.47 kPa.m2/g.
-7. En la subpartida 4810.22, se entiende por papel estucado o cuché ligero (liviano)(“L.W.C)(“light-weight coated”), el papel estucado en las dos caras, de peso inferior o igual a 72g/m2, con un peso de la capa de estucado inferior o igual a 15 g/m2 de madera obtenidas por procedimiento mecánico, cuyo contenido sea superior o igual al 50% en peso del contenido total de fibra.
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+7. En la subpartida 4810.22, se entiende por papel estucado o cuché ligero (liviano)("L.W.C)("light-weight coated"), el papel estucado en las dos caras, de peso inferior o igual a 72g/m2, con un peso de la capa de estucado inferior o igual a 15 g/m2 de madera obtenidas por procedimiento mecánico, cuyo contenido sea superior o igual al 50% en peso del contenido total de fibra.
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 NOTA COMPLEMENTARIA CENTROAMERICANA.
 A. En los incisos arancelarios 4804.31.10.00 y 4804.39.10.00, se entiende por papel para cerillos el papel Kraft 100 % sin satinar, sin poros y sin grumos de pasta, de peso superior o igual a 50 g/m2, pero inferior o igual a 60 g/m2, rasgado en dirección paralela superior a 35 g/m2 y en dirección transversal a la fibra, superior a 60 g/m2, con alargamiento a la tracción longitudinal mínima del 2 %.
 CÓDIGO | DESCRIPCIÓN | DAI %
@@ -6375,12 +6381,12 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 4802.54.30.00 | - - - Papel soporte para papel carbón (carbónico) | 0
 4802.54.90.00 | - - - Otras | 10
 4802.55 | - - De peso superior o igual a 40 g/m2 pero inferior o igual a 150 g/m2, en bobinas (rollos): |
-4802.55.1 | - - - Papel “bond” registro de anchura superior a 150 mm: |
+4802.55.1 | - - - Papel "bond" registro de anchura superior a 150 mm: |
 4802.55.11.00 | - - - - De peso superior o igual a 40 g/m2 pero inferior o igual a 60 g/m2 | 0
 4802.55.12.00 | - - - - De peso superior a 60 g/m2 pero inferior o igual a 80 g/m2 y anchura superior o igual a 559 mm | 0
 4802.55.19.00 | - - - - Los demás | 0
-4802.55.20.00 | - - - Papel “bond” registro de anchura inferior o igual a 150 mm | 10
-4802.55.3 | - - - Papeles “bond” (excepto el “bond” registro) y “ledger”, incluso para mimeógrafo y fotocopia: |
+4802.55.20.00 | - - - Papel "bond" registro de anchura inferior o igual a 150 mm | 10
+4802.55.3 | - - - Papeles "bond" (excepto el "bond" registro) y "ledger", incluso para mimeógrafo y fotocopia: |
 4802.55.31.00 | - - - - De anchura superior a 150 mm pero inferior a 559 mm | 0
 4802.55.32.00 | - - - - De peso superior a 40 g/m2 pero inferior o igual a 80 g/m2 y de anchura superior o igual a 559 mm | 0
 4802.55.39.00 | - - - - Los demás | 10
@@ -6388,22 +6394,22 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 4802.55.91.00 | - - - - De anchura superior a 150 mm | 0
 4802.55.99.00 | - - - - Los demás | 10
 4802.56 | - - De peso superior o igual a 40 g/m² pero inferior o igual a 150 g/m², en hojas en las que un lado sea inferior o igual a 435 mm y el otro sea inferior o igual a 297 mm, medidos sin plegar: |
-4802.56.1 | - - - Papel “bond” registro en hojas en las que un lado sea superior a 360 mm y el otro sea superior a 150 mm: |
+4802.56.1 | - - - Papel "bond" registro en hojas en las que un lado sea superior a 360 mm y el otro sea superior a 150 mm: |
 4802.56.11.00 | - - - - De peso superior o igual a 40 g/m2 pero inferior o igual a 60 g/m2 | 0
 4802.56.19.00 | - - - - Los demás | 0
-4802.56.20.00 | - - - Papel “bond” registro en hojas en las que un lado sea inferior o igual a 360 mm y el otro sea inferior o igual a 150 mm | 0
-4802.56.3 | - - - Papeles “bond” (excepto el “bond” registro) y “ledger”, incluso para mimeógrafo y fotocopia: |
+4802.56.20.00 | - - - Papel "bond" registro en hojas en las que un lado sea inferior o igual a 360 mm y el otro sea inferior o igual a 150 mm | 0
+4802.56.3 | - - - Papeles "bond" (excepto el "bond" registro) y "ledger", incluso para mimeógrafo y fotocopia: |
 4802.56.31.00 | - - - - En hojas en las que un lado sea superior a 360 mm y el otro sea superior a 150 mm | 0
 4802.56.39.00 | - - - - Los demás | 10
 4802.56.9 | - - - Otros: |
 4802.56.91.00 | - - - - En hojas en las que un lado sea superior a 360 mm y el otro sea superior a 150 mm | 0
 4802.56.99.00 | - - - - Los demás | 10
 4802.57 | - - Los demás, de peso superior o igual a 40 g/m² pero inferior o igual a 150 g/m2: |
-4802.57.1 | - - - Papel “bond” registro: |
+4802.57.1 | - - - Papel "bond" registro: |
 4802.57.11.00 | - - - - En hojas en las que un lado sea superior a 435 mm y el otro sea superior a 297 mm o en tiras de anchura superior a 150 mm, de peso superior o igual a 40 g/m2 pero inferior o igual a 60 g/m2 | 0
 4802.57.12.00 | - - - - En tiras de anchura inferior o igual a 150 mm | 10
 4802.57.19.00 | - - - - Los demás | 0
-4802.57.2 | - - - Papeles “bond” (excepto el “bond” registro) y “ledger”, incluso para mimeógrafo y fotocopia: |
+4802.57.2 | - - - Papeles "bond" (excepto el "bond" registro) y "ledger", incluso para mimeógrafo y fotocopia: |
 4802.57.21.00 | - - - - En hojas en las que un lado sea superior a 435 mm y el otro sea superior a 297 mm o en tiras de anchura superior a 150 mm | 0
 4802.57.22.00 | - - - - En tiras de anchura inferior o igual a 150 mm | 10
 4802.57.29.00 | - - - - Los demás | 10
@@ -6464,7 +6470,7 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 4805.11.00.00 | - - Papel semiquímico para acanalar | 0
 4805.12.00.00 | - - Papel paja para acanalar | 0
 4805.19.00.00 | - - Los demás | 0
-4805.2 | - “Testliner” (de fibras recicladas): |
+4805.2 | - "Testliner" (de fibras recicladas): |
 4805.24.00.00 | - - De peso inferior o igual a 150 g/m2 | 0
 4805.25 | - - De peso superior a 150 g/m2: |
 4805.25.10.00 | - - - Cartón gris de peso superior a 300 g/m2 | 10
@@ -6488,7 +6494,7 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 4807.00.90.00 | - Otros | 0
 48.08 | PAPEL Y CARTON CORRUGADOS (INCLUSO REVESTIDOS POR ENCOLADO), RIZADOS ("CREPES"), PLISADOS, GOFRADOS, ESTAMPADOS O PERFORADOS, EN BOBINAS (ROLLOS) O EN HOJAS, EXCEPTO EL PAPEL DE LOS TIPOS DESCRITOS EN EL TEXTO DE LA PARTIDA 48.03 |
 4808.10.00.00 | - Papel y cartón corrugados, incluso perforados | 10
-4808.40 | - Papel Kraft rizado (“crepé”) o plisado, incluso gofrado, estampado o perforado: |
+4808.40 | - Papel Kraft rizado ("crepé") o plisado, incluso gofrado, estampado o perforado: |
 4808.40.10.00 | - - Papel Kraft para sacos (bolsas) | 10
 4808.40.90.00 | - - Otros | 10
 4808.90.00.00 | - Los demás | 0
@@ -6522,7 +6528,7 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 4810.14.22.00 | - - - - Con impresión, incluso estampado o perforado | 10
 4810.14.30.00 | - - - Papel diagrama para aparatos registradores | 0
 4810.14.9 | - - - Otros, incluso impresos, estampados o perforados: |
-4810.14.91.00 | - - - - Papeles denominados “continuos” | 15
+4810.14.91.00 | - - - - Papeles denominados "continuos" | 15
 4810.14.92.00 | - - - - Otros, en hojas en las que un lado sea superior a 360 mm y el otro sea superior a 150 mm | 0
 4810.14.93.00 | - - - - Otros, en hojas en las que un lado sea inferior o igual a 360 mm y el otro sea inferior o igual a 150 mm | 10
 4810.14.99.00 | - - - - Los demás | 10
@@ -6561,7 +6567,7 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 4810.29.21.00 | - - - - Papel metalizado, sin impresión | 5
 4810.29.22.00 | - - - - Papel metalizado, con impresión, incluso estampado o perforado | 10
 4810.29.23.00 | - - - - Papel diagrama para aparatos registradores | 0
-4810.29.24.00 | - - - - Papeles denominados “continuos” | 15
+4810.29.24.00 | - - - - Papeles denominados "continuos" | 15
 4810.29.29.00 | - - - - Los demás | 10
 4810.29.80.00 | - - - Otros | 10
 4810.3 | - Papel y cartón kraft, excepto los de los tipos utilizados para escribir, imprimir u otros fines gráficos: |
@@ -6642,8 +6648,8 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 4811.59.99.00 | - - - - Los demás | 10
 4811.60.00.00 | - Papel y cartón recubiertos, impregnados o revestidos de cera, parafina, estearina, aceite o glicerol | 10
 4811.90 | - Los demás papeles, cartones, guata de celulosa y napa de fibras de celulosa: |
-4811.90.30.00 | - - Papeles denominados “continuos” | 15
-4811.90.40.00 | - - Papel resistente a las grasas (“greaseproof”), impreso | 10
+4811.90.30.00 | - - Papeles denominados "continuos" | 15
+4811.90.40.00 | - - Papel resistente a las grasas ("greaseproof"), impreso | 10
 4811.90.50.00 | - - Cubresuelos con soporte de papel o cartón, incluso recortados | 10
 4811.90.9 | - - Otros: |
 4811.90.91.00 | - - - En tiras o bobinas (rollos) de anchura superior a 150 mm, o en hojas en las que un lado sea superior a 360 mm y el otro sea superior a 150 mm, medidos sin plegar | 0
@@ -6664,7 +6670,7 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 4816.20.00.00 | - Papel autocopia | 0
 4816.90 | - Los demás: |
 4816.90.10.00 | - - Papel carbón (carbónico) y papeles similares | 10
-4816.90.2 | - - Clisés de mimeógrafo (“stenciles”) completos: |
+4816.90.2 | - - Clisés de mimeógrafo ("stenciles") completos: |
 4816.90.21.00 | - - - De transferencia térmica | 0
 4816.90.29.00 | - - - Los demás | 10
 4816.90.90.00 | - - Otros | 0
@@ -6825,7 +6831,7 @@ a) a los hilados de lana, pelo o crin ni a los hilados de papel, sin reforzar co
 b) a los cables de filamentos sintéticos o artificiales del Capítulo 55 ni a los multifilamentos sin torsión o con una torsión inferior a 5 vueltas por metro del Capítulo 54;
 c) al pelo de Mesina de la partida 50.06 ni a los monofilamentos del Capítulo 54;
 d) a los hilados metálicos de la partida 56.05; los hilados textiles reforzados con hilos de metal se regirán por las disposiciones del apartado A) f) anterior;
-e) a los hilados de chenilla, a los entorchados ni a los “de cadeneta", de la partida 56.06.
+e) a los hilados de chenilla, a los entorchados ni a los "de cadeneta", de la partida 56.06.
 4. A) Sin perjuicio de las excepciones previstas en el apartado B) siguiente, en los Capítulos 50, 51, 52, 54 y 55, se entiende por hilados acondicionados para la venta al por menor, los hilados (sencillos, retorcidos o cableados) presentados:
 a) en cartulinas, bobinas, tubos o soportes similares, con un peso inferior o igual (incluido el soporte) a:
 1º) 85 g para los hilados de seda, de desperdicios de seda o de filamentos sintéticos o artificiales; o
@@ -7205,7 +7211,7 @@ CODIGO | DESCRIPCION | DAI %
 5301.21.00.00 | - - Agramado o espadado | 0
 5301.29.00.00 | - - Los demás | 0
 5301.30.00.00 | - Estopas y desperdicios de lino | 0
-53.02 | CAÑAMO (CANNABIS SATIVA L.) EN BRUTO O TRABAJADO, PERO SIN HILAR; ESTOPA Y DESPERDICIOS DE CAÑAMO (INCLUIDOS LOS DESPERDICIOS DE HILADOS Y LAS HILACHAS) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
+53.02 | CAÑAMO (CANNABIS SATIVA L.) EN BRUTO O TRABAJADO, PERO SIN HILAR; ESTOPA Y DESPERDICIOS DE CAÑAMO (INCLUIDOS LOS DESPERDICIOS DE HILADOS Y LAS HILACHAS) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") |
 5302.10.00.00 | - Cáñamo en bruto o enriado | 0
 5302.90.00.00 | - Los demás | 0
 53.03 | YUTE Y DEMAS FIBRAS TEXTILES DEL LIBER (EXCEPTO EL LINO, CAÑAMO Y RAMIO), EN BRUTO O TRABAJADOS, PERO SIN HILAR; ESTOPAS Y DESPERDICIOS DE ESTAS FIBRAS (INCLUIDOS LOS DESPERDICIOS DE HILADOS Y LAS HILACHAS) |
@@ -7213,7 +7219,7 @@ CODIGO | DESCRIPCION | DAI %
 5303.10.10.00 | - - Kenaf | 0
 5303.10.90.00 | - - Otras | 0
 5303.90.00.00 | - Los demás | 0
-53.05 | COCO, ABACA, (CAÑAMO DE MANILA (MUSA TEXTILIS NEE)), RAMIO Y DEMAS FIBRAS TEXTILES VEGETALES NO EXPRESADAS NI COMPRENDIDAS EN OTRA PARTE, EN BRUTO O TRABAJADAS, PERO SIN HILAR; ESTOPAS Y DESPERDICIOS DE ESTAS FIBRAS (INCLUIDOS LOS DESPERDICIOS DE HILADOS Y LAS HILACHAS) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
+53.05 | COCO, ABACA, (CAÑAMO DE MANILA (MUSA TEXTILIS NEE)), RAMIO Y DEMAS FIBRAS TEXTILES VEGETALES NO EXPRESADAS NI COMPRENDIDAS EN OTRA PARTE, EN BRUTO O TRABAJADAS, PERO SIN HILAR; ESTOPAS Y DESPERDICIOS DE ESTAS FIBRAS (INCLUIDOS LOS DESPERDICIOS DE HILADOS Y LAS HILACHAS) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") |
 5305.00.1 | - Sisal y demás fibras textiles del género agave, en bruto: |
 5305.00.11.00 | - - Cabuya y henequén | 0
 5305.00.19.00 | - - Las demás | 0
@@ -7284,7 +7290,7 @@ CODIGO | DESCRIPCION | DAI %
 5402.44.30.00 | - - - De los demás poliésteres | 5
 5402.44.90.00 | - - - Otros | 5
 5402.45.00.00 | - - Los demás, de nailon o demás poliamidas | 0
-5402.46.00.00 | - - Los demás, de poliésteres, parcialmente orientados (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
+5402.46.00.00 | - - Los demás, de poliésteres, parcialmente orientados (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 0
 5402.47.00.00 | - - Los demás, de poliésteres | 0
 5402.48.00.00 | - - Los demás, de polipropileno | 5
 5402.49.00.00 | - - Los demás | 5
@@ -7586,7 +7592,7 @@ e) las hojas y tiras delgadas de metal con soporte de fieltro o tela sin tejer (
 f) las compresas y los tampones higiénicos, pañales para bebés y artículos similares de la partida 96.19.
 2. El término fieltro comprende también el fieltro punzonado y los productos constituidos por una capa de fibra textil cuya cohesión se ha reforzado mediante costura por cadeneta con las fibras de la propia capa.
 3. Las partidas 56.02 y 56.03 comprenden, respectivamente, el fieltro y la tela sin tejer, impregnados, recubiertos, revestidos o estratificados con plástico o caucho, cualquiera que sea la naturaleza de estas materias (compacta o celular)
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 La partida 56.03 comprende, además, la tela sin tejer aglomerada con plástico o caucho.
 Las partidas 56.02 y 56.03 no comprenden, sin embargo:
 a) el fieltro impregnado, recubierto, revestido o estratificado, con plástico o caucho, con un contenido de materia textil inferior o igual al 50 % en peso, así como el fieltro inmerso totalmente en plástico o caucho (Capítulos 39 ó 40);
@@ -8008,7 +8014,7 @@ CODIGO | DESCRIPCION | DAI %
 6003.90.00.00 | - Los demás | 10
 60.04 | TEJIDOS DE PUNTO DE ANCHURA SUPERIOR A 30 cm, CON UN CONTENIDO DE HILADOS DE ELASTOMEROS O DE HILOS DE CAUCHO SUPERIOR O IGUAL AL 5 % EN PESO, EXCEPTO LOS DE LA PARTIDA 60.01 |
 6004.10 | - Con un contenido de hilados de elastómeros superior o igual al 5 % en peso, sin hilos de caucho: |
-6004.10.10.00 | - - Con poliuretano (“licra”) | 5
+6004.10.10.00 | - - Con poliuretano ("licra") | 5
 6004.10.90.00 | - - Otros | 10
 6004.90.00.00 | - Los demás | 10
 60.05 | TEJIDOS DE PUNTO POR URDIMBRE (INCLUIDOS LOS OBTENIDOS EN TELARES DE PASAMANERIA), EXCEPTO LOS DE LAS PARTIDAS 60.01 A 60.04 |
@@ -8067,7 +8073,7 @@ b) los artículos de prendería de la partida 63.09;
 c) los artículos de ortopedia, tales como bragueros para hernias, fajas medicoquirúrgicas (partida 90.21).
 3. En las partidas 61.03 y 61.04:
 a) Se entiende por trajes (ambos o temos) y trajes sastre los surtidos formados por dos o tres prendas de vestir confeccionadas en su superficie exterior con la misma tela y compuesto por:
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 - una sola chaqueta (saco) que cubra la parte superior del cuerpo, cuyo exterior, excepto las mangas, esté constituido por cuatro o más piezas, eventualmente acompañada de un solo chaleco sastre en el que su parte delantera esté confeccionada con la misma tela que la superficie exterior de los demás componentes del surtido y cuya espalda sea de la misma tela que el forro de la chaqueta (saco); y
 - una sola prenda que cubra la parte inferior del cuerpo y que consista en un pantalón largo, un pantalón corto (calzón), un short (excepto de baño), una falda o una falda pantalón, sin tirantes (tiradores) ni peto.
 Todos los componentes del traje (ambo o terno) o del traje sastre deberán confeccionarse con una tela de la misma estructura, color y composición; además, deberán ser del mismo estilo y de tallas correspondientes o compatibles. Sin embargo, estos componentes pueden presentar un vivo (tira de tela cosida a las costuras) de una tela diferente.
@@ -8077,7 +8083,7 @@ Aunque no cumplan todas las condiciones antes citadas, la expresión trajes (amb
 - el frac, hecho generalmente de tela negra, con una chaqueta (saco) relativamente corta por delante, que se mantiene abierta, con los faldones estrechos, escotados en las caderas y colgantes por detrás;
 - el esmoquin, en el que la chaqueta (saco), aunque quizás permita mayor visibilidad de la pechera, es de corte similar al de la chaqueta (saco) común y presenta la particularidad de llevar solapas brillantes de seda o de imitación de seda.
 b) Se extiende por conjunto un surtido de prendas de vestir (excepto los artículos de las partidas 61.07 , 61.08 ó 61.09) que comprenda varias prendas confeccionadas con una misma tela, acondicionado para la venta al por menor y compuesto por:
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 - una sola prenda que cubra la parte superior del cuerpo, excepto el "pullover" que puede constituir una segunda prenda exterior solamente en el caso de los "twinset" o un chaleco que puede constituir una segunda prenda en los demás casos; y
 - una o dos prendas diferentes que cubran la parte inferior del cuerpo y que consistan en un pantalón largo, un pantalón con peto, un pantalón corto (calzón), un short (excepto de baño), una falda o una falda pantalón.
 Todos los componentes del conjunto deben tener la misma estructura, estilo, color y composición; además, deben ser de tallas correspondientes o compatibles. El término conjunto no comprende los conjuntos de abrigo para entrenamiento o deporte ni los monos (overoles) y conjuntos de esquí, de la partida 61.12.
@@ -8273,7 +8279,7 @@ a) los artículos de prendería de la partida 63.09;
 b) los artículos de ortopedia, tales como bragueros para hernias, fajas medicoquirúrgicas (partida 90.21).
 3. En las partidas 62.03 y 62.04:
 a) Se entiende por trajes (ambos o temos) y trajes sastre los surtidos formados por dos o tres prendas de vestir confeccionadas en su superficie exterior con la misma tela y compuesto por:
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 - una sola chaqueta (saco) que cubra la parte superior del cuerpo, cuyo exterior, excepto las mangas, esté constituido por cuatro o más piezas, eventualmente acompañada de un solo chaleco sastre en el que su parte delantera esté confeccionada con la misma tela que la superficie exterior de los demás componentes del surtido y cuya espalda sea de la misma tela que el forro de la chaqueta (saco); y
 - una sola prenda que cubra la parte inferior del cuerpo y que consista en un pantalón largo, un pantalón corto (calzón), un short (excepto de baño), una falda o una falda pantalón, sin tirantes (tiradores) ni peto.
 Todos los componentes del traje (ambo o terno) o del traje sastre deberán confeccionarse con una tela de la misma estructura, color y composición; además, deberán ser del mismo estilo y de tallas correspondientes o compatibles. Sin embargo, estos componentes pueden presentar un vivo (tira de tela cosida a las costuras) de una tela diferente.
@@ -8283,7 +8289,7 @@ Aunque no cumplan todas las condiciones antes citadas, la expresión trajes (amb
 - el frac, hecho generalmente de tela negra, con una chaqueta (saco) relativamente corta por delante, que se mantiene abierta, con los faldones estrechos, escotados en las caderas y colgantes por detrás;
 - el esmoquin, en el que la chaqueta (saco), aunque quizás permita mayor visibilidad de la pechera, es de corte similar al de la chaqueta (saco) común y presenta la particularidad de llevar solapas brillantes de seda o de imitación de seda.
 b) Se entiende por conjunto un surtido de prendas de vestir (excepto los artículos de las partidas 62.07 ó 62.08) que comprenda varias prendas confeccionadas con una misma tela, acondicionado para la venta al por menor y compuesto por:
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 - una sola prenda que cubra la parte superior del cuerpo, excepto el chaleco que puede constituir una segunda prenda; y
 - una o dos prendas diferentes que cubran la parte inferior del cuerpo y que consistan en un pantalón largo, un pantalón con peto, un pantalón corto (calzón), un short (excepto de baño), una falda o una falda pantalón.
 Todos los componentes del conjunto deben tener la misma estructura, estilo, color y composición; además, deben ser de tallas correspondientes o compatibles. El término conjunto no comprende los conjuntos de abrigo para entrenamiento o deporte ni los monos (overoles) y conjuntos de esquí, de la partida 62.11.
@@ -8425,8 +8431,8 @@ CODIGO | DESCRIPCION | DAI %
 6210.10 | - Con productos de las partidas 56.02 ó 56.03: |
 6210.10.10.00 | - - Uniformes del tipo mono (overol) esterilizados, desechables | 0
 6210.10.90.00 | - - Otras | 15
-6210.20.00.00 | - las demás prendas de vestir de los tipos citados en las subpartidas 6201.11 6201.19 (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
-6210.30.00.00 | - Las demás prendas de vestir de los tipos citados en las subpartidas 6202.11 a 6202.19 (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
+6210.20.00.00 | - las demás prendas de vestir de los tipos citados en las subpartidas 6201.11 6201.19 (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 15
+6210.30.00.00 | - Las demás prendas de vestir de los tipos citados en las subpartidas 6202.11 a 6202.19 (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 15
 6210.40.00.00 | - Las demás prendas de vestir para hombres o niños | 15
 6210.50.00.00 | - Las demás prendas de vestir para mujeres o niñas | 15
 62.11 | CONJUNTOS DE ABRIGO PARA ENTRENAMIENTO O DEPORTE (CHANDALES), MONOS (OVEROLES) Y CONJUNTOS DE ESQUI Y BAÑADORES; LAS DEMAS PRENDAS DE VESTIR |
@@ -8624,7 +8630,7 @@ CODIGO | DESCRIPCION | DAI %
 6402.1 | - Calzado de deporte: |
 6402.12.00.00 | - - Calzado de esquí y calzado para la práctica de "snowboard" (tabla para nieve) | 15
 6402.19.00.00 | - - Los demás | 15
-6402.20.00.00 | - Calzado con la parte superior de tiras o bridas fijadas a la suela por tetones (espigas) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
+6402.20.00.00 | - Calzado con la parte superior de tiras o bridas fijadas a la suela por tetones (espigas) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 15
 6402.9 | - Los demás calzados: |
 6402.91 | - - Que cubran el tobillo: |
 6402.91.10.00 | - - - Calzado con puntera metálica de protección | 15
@@ -8796,15 +8802,15 @@ CODIGO | DESCRIPCION | DAI %
 68.05 | ABRASIVOS NATURALES O ARTIFICIALES EN POLVO O GRANULOS CON SOPORTE DE MATERIA TEXTIL, PAPEL, CARTON U OTRAS MATERIAS, INCLUSO RECORTADOS, COSIDOS O UNIDOS DE OTRA FORMA |
 6805.10 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - Con soporte constituido solamente por tejido de materia textil: (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) |
 6805.10.00.00 (Así suprimida la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | ++SUPRIMIDA++ (Así suprimida la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) |
-6805.10.10.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - Material de pulir autoadhesivo en soportes circulares de los tipos utilizados en la fabricación de semiconductores en forma de obleas (“wafers”) (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 10 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
+6805.10.10.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - Material de pulir autoadhesivo en soportes circulares de los tipos utilizados en la fabricación de semiconductores en forma de obleas ("wafers") (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 10 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
 6805.10.90.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - Otros (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 10 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
 6805.20 | - Con soporte constituido solamente por papel o cartón: |
 6805.20.10.00 | - - Lija para madera y lija "de agua", excepto en forma de disco | 10
-6805.20.20.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - Material de pulir autoadhesivo en soportes circulares de los tipos utilizados en la fabricación de semiconductores en forma de obleas (“wafers”) (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 10 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
+6805.20.20.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - Material de pulir autoadhesivo en soportes circulares de los tipos utilizados en la fabricación de semiconductores en forma de obleas ("wafers") (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 10 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
 6805.20.90.00 | - - Otros | 10
 6805.30 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - Con soporte de otras materias: (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) |
 6805.30.00.00 (Así suprimida la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | ++SUPRIMIDA++ (Así suprimida la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) |
-6805.30.10.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - Material de pulir autoadhesivo en soportes circulares de los tipos utilizados en la fabricación de semiconductores en forma de obleas (“wafers”) (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 5 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
+6805.30.10.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - Material de pulir autoadhesivo en soportes circulares de los tipos utilizados en la fabricación de semiconductores en forma de obleas ("wafers") (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 5 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
 6805.30.90.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | --Otros (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 5 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
 68.06 | LANA DE ESCORIA, DE ROCA Y LANAS MINERALES SIMILARES; VERMICULITA DILATADA, ARCILLA DILATADA, ESPUMA DE ESCORIA Y PRODUCTOS MINERALES SIMILARES DILATADOS; MEZCLAS Y MANUFACTURAS DE MATERIAS MINERALES PARA AISLAMIENTO TERMICO O ACUSTICO O PARA LA ABSORCION DEL SONIDO, EXCEPTO LAS DE LAS PARTIDAS 68.11, 68.12 O DEL CAPITULO 69 |
 6806.10.00.00 | - Lana de escoria, de roca y lanas minerales similares, incluso mezcladas entre sí, en masa, hojas o enrolladas | 0
@@ -8894,7 +8900,7 @@ CODIGO | DESCRIPCION | DAI %
 | I. PRODUCTOS DE HARINAS SILICEAS FOSILES O DE TIERRAS SILICEAS ANALOGAS Y PRODUCTOS REFRACTARIOS |
 6901.00.00.00 | LADRILLOS, PLACAS, BALDOSAS Y DEMAS PIEZAS CERAMICAS DE HARINAS SILICEAS FOSILES (POR EJEMPLO: "KIESELGUHR", TRIPOLITA, DIATOMITA) O DE TIERRAS SILICEAS ANALOGAS | 0
 69.02 | LADRILLOS, PLACAS, BALDOSAS Y PIEZAS CERAMICAS ANALOGAS DE CONSTRUCCION, REFRACTARIOS, EXCEPTO LOS DE HARINAS SILICEAS FOSILES O DE TIERRAS SILICEAS ANALOGAS |
-6902.10.00.00 | - Con un contenido de los elementos Mg (magnesio), Ca (calcio), o Cr (cromo), considerados aislada o conjuntamente, superior al 50% en peso, expresados en MgO (óxido de magnesio), CaO) (óxido de calcio) o Cr2O3 (óxido crómico) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
+6902.10.00.00 | - Con un contenido de los elementos Mg (magnesio), Ca (calcio), o Cr (cromo), considerados aislada o conjuntamente, superior al 50% en peso, expresados en MgO (óxido de magnesio), CaO) (óxido de calcio) o Cr2O3 (óxido crómico) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 0
 6902.20.00.00 | - Con un contenido de alúmina (Al2O3), de sílice (SiO2) o de una mezcla o combinación de estos productos, superior al 50 % en peso | 0
 6902.90.00.00 | - Los demás | 0
 69.03 | LOS DEMAS ARTICULOS CERAMICOS REFRACTARIOS (POR EJEMPLO: RETORTAS, CRISOLES, MUFLAS, TOBERAS, TAPONES, SOPORTES, COPELAS, TUBOS, FUNDAS, VARILLAS), EXCEPTO LOS DE HARINAS SILICEAS FOSILES O DE TIERRAS SILICEAS ANALOGAS |
@@ -8969,7 +8975,7 @@ c) se entiende por capa absorbente, reflectante o antirreflectante, la capa met�
 4. En la partida 70.19 se entiende por lana de vidrio:
 a) la lana mineral con un contenido de sílice (SiO2) superior o igual al 60 % en peso;
 b) la lana mineral con un contenido de sílice (SiO2) inferior al 60% en peso, pero con un contenido de óxidos alcalinos (K2O o Na2O) superior al 5% en peso o con un contenido de anhídrido bórico (B2O3) superior al 2% en peso.
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 Las lanas minerales que no cumplan estas condiciones se clasifican en la partida 68.06.
 5. En la Nomenclatura, el cuarzo y demás sílices, fundidos, se consideran vidrio.
 NOTA DE SUBPARTIDA.
@@ -9075,7 +9081,7 @@ CODIGO | DESCRIPCION | DAI %
 7018.90.00.00 | - Los demás | 15
 70.19 | FIBRA DE VIDRIO (INCLUIDA LA LANA DE VIDRIO) Y MANUFACTURAS DE ESTA MATERIA (POR EJEMPLO: HILADOS, TEJIDOS) |
 7019.1 | - Mechas, "rovings" e hilados, aunque estén cortados: |
-7019.11.00.00 | - - Hilados cortados (“chopped strands”), de longitud inferior o igual a 50 mm | 0
+7019.11.00.00 | - - Hilados cortados ("chopped strands"), de longitud inferior o igual a 50 mm | 0
 7019.12.00.00 | - - "Rovings" | 0
 7019.19.00.00 | - - Los demás | 0
 7019.3 | - Velos, napas, "mats", colchones, paneles y productos similares sin tejer: |
@@ -9122,11 +9128,11 @@ o) los artículos clasificados en el Capítulo 96 conforme la Nota 4 de dicho Ca
 p) las obras originales de estatuaria o escultura (partida 97.03), las piezas de colección (partida 97.05) y las antigüedades de más de cien años (partida 97.06). Sin embargo, las perlas finas (naturales) o cultivadas y las piedras preciosas o semipreciosas se clasifican en este Capítulo.
 4. A) Se consideran metal precioso la plata, el oro y el platino.
 B) El término platino abarca el platino, iridio, osmio, paladio, odio y rutenio.
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 C) La expresión piedras preciosas o semipreciosas no incluye las materias mencionadas en la Nota 2 b) del capítulo 96.
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 5. En este Capítulo, se consideran aleaciones de metal precioso, las aleaciones (incluidas las mezclas sinterizadas y los compuestos intemetálicos) que contengan uno o varios metales preciosos, siempre que el peso del metal precioso o de uno de los metales preciosos sea superior o igual al 2% del peso de la aleación.
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 Las aleaciones de metal precioso se clasifican como sigue:
 a) las aleaciones con un contenido de platino superior o igual al 2 % en peso, se clasifican como aleaciones de platino;
 b) las aleaciones con un contenido de oro superior o igual al 2 % en peso, pero sin platino o con un contenido de platino inferior al 2 % en peso, se clasifican como aleaciones de oro;
@@ -10716,13 +10722,13 @@ Las bolas de acero que no respondan a esta definición se clasifican en la parti
 En cualquier caso, las máquinas de cordelería o de cablería (por ejemplo: retorcedoras, trenzadoras, cableadoras) para cualquier materia, se clasifican en la partida 84.79.
 8. En la partida 84.70, la expresión de bolsillo se aplica únicamente a las máquinas con dimensiones inferiores o iguales a 170 mm x 100 mm x 45 mm.
 9. A) Las Notas 9 a) y 9 b) del Capítulo 85 también se aplican a las expresiones dispositivos semiconductores y circuitos electrónicos integrados, respectivamente, tal como se utilizan en esta Nota y en la partida 84.86. Sin embargo, para la aplicación de esta Nota y de la partida 84.86, la expresión dispositivos semiconductores también incluye los dispositivos semiconductores fotosensibles y los diodos emisores de luz (LED).
-B) Para la aplicación de esta Nota y de la partida 84.86, la expresión fabricación de dispositivos de visualización (“display”) de pantalla plana comprende la fabricación de los sustratos usados en dichos dispositivos. Esta expresión no comprende la fabricación del cristal o el montaje de las placas de circuitos impresos u otros componente electrónicos de la pantalla plana. Los dispositivos de visualización (“display”) de pantalla plana no comprenden la tecnología del tubo de rayos catódicos.
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+B) Para la aplicación de esta Nota y de la partida 84.86, la expresión fabricación de dispositivos de visualización ("display") de pantalla plana comprende la fabricación de los sustratos usados en dichos dispositivos. Esta expresión no comprende la fabricación del cristal o el montaje de las placas de circuitos impresos u otros componente electrónicos de la pantalla plana. Los dispositivos de visualización ("display") de pantalla plana no comprenden la tecnología del tubo de rayos catódicos.
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 C) La partida 84.86 también comprende las máquinas y aparatos de los tipos utilizados, exclusiva o principalmente, para:
 1°) la fabricación o reparación de máscaras y retículas,
 2°) el ensamblaje de dispositivos semiconductores o de circuitos electrónicos integrados,
-3°) el montaje, manipulación, carga o descarga de semiconductores en forma de monocristales periformes u obleas (“wafers”), dispositivos semiconductores, cicuitos electrónicos integrados y dispositivos de visualización (“display”) de pantalla plana.
-(Así reformado el punto 3°) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+3°) el montaje, manipulación, carga o descarga de semiconductores en forma de monocristales periformes u obleas ("wafers"), dispositivos semiconductores, cicuitos electrónicos integrados y dispositivos de visualización ("display") de pantalla plana.
+(Así reformado el punto 3°) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 D) Sin perjuicio de lo dispuesto en la Nota 1 de la Sección XVI y la Nota 1 del Capítulo 84, las máquinas y aparatos que cumplan las especificaciones de la partida 84.86, se clasifican en dicha partida y no en otra de la Nomenclatura.
 NOTAS DE SUBPARTIDA
 1. En la subpartida 8465.20, la expresión centros de mecanizado se aplica únicamente a las máquinas herramienta para trabajar madera, corcho, hueso, caucho endurecido, plástico rígido o materias duras similares, que pueden realizar diferentes tipos de operaciones de mecanizado por cambio automático de útiles procedentes de un almacén, de acuerdo con un programa de mecanizado.
@@ -10842,7 +10848,7 @@ CODIGO | DESCRIPCION | DAI %
 8414.90.19.00 | - - - Las demás | 5
 8414.90.90.00 | - - Otras | 0
 84.15 | MAQUINAS Y APARATOS PARA ACONDICIONAMIENTO DE AIRE QUE COMPRENDAN UN VENTILADOR CON MOTOR Y LOS DISPOSITIVOS ADECUADOS PARA MODIFICAR LA TEMPERATURA Y LA HUMEDAD, AUNQUE NO REGULEN SEPARADAMENTE EL GRADO HIGROMETRICO |
-8415.10.00.00 | - De los tipos concebidos para ser montados sobre una ventana, pared, techo o suelo, formando un solo cuerpo o del tipo sistema de elementos separados (“split-system”) | 15
+8415.10.00.00 | - De los tipos concebidos para ser montados sobre una ventana, pared, techo o suelo, formando un solo cuerpo o del tipo sistema de elementos separados ("split-system") | 15
 8415.20.00.00 | - De los tipos utilizados en vehículos automóviles para sus ocupantes | 15
 8415.8 | - Los demás: |
 8415.81.00.00 | - - Con equipo de enfriamiento y válvula de inversión del ciclo térmico (bombas de calor reversibles) | 15
@@ -10872,7 +10878,7 @@ CODIGO | DESCRIPCION | DAI %
 8418.29.90.00 | - - - Otros | 15
 8418.30.00.00 | - Congeladores horizontales del tipo arcón (cofre), de capacidad inferior o igual a 800 l | 15
 8418.40.00.00 | - Congeladores verticales del tipo armario, de capacidad inferior o igual a 900 l | 15
-8418.50.00.00 | - los demás muebles (armarios, arcones (cofres), vitrinas, mostradores y similares) para la conservación y exposición de los productos, que incorporen un equipo para producción de frío. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
+8418.50.00.00 | - los demás muebles (armarios, arcones (cofres), vitrinas, mostradores y similares) para la conservación y exposición de los productos, que incorporen un equipo para producción de frío. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") | 15
 8418.6 | - Los demás materiales, máquinas y aparatos para producción de frío; bombas de calor: |
 8418.61 | - - Bombas de calor, excepto las máquinas y aparatos para acondicionamiento de aire de la partida 84.15: |
 8418.61.10.00 | - - - Grupos frigoríficos de compresión en los que el condensador esté constituido por un intercambiador de calor | 0
@@ -11536,8 +11542,8 @@ CODIGO | DESCRIPCION | DAI %
 8484.10.00.00 | - Juntas metaloplásticas | 5
 8484.20.00.00 | - Juntas mecánicas de estanqueidad | 5
 8484.90.00.00 | - Los demás | 5
-84.86 | MAQUINAS Y APARATOS UTILIZADOS, EXCLUSIVA O PRINCIPALMENTE, PARA LA FABRICACIÓN DE SEMICONDUCTORES EN FORMA DE MONOCRISTALES PERIFORMES U OBLEAS (“WAFERS”), DISPOSITIVOS SEMICONDUCTORES, CIRCUITOS ELECTRONICOS INTEGRADOS O DISPOSITIVOS DE CISUALIZACION (“DISPALY”) DE PANTALLA PLANA, MAQUINAS Y APARATOS DESCRITOS EN LA NOTA 9 C) DE ESTE CAPITULO; PARTES Y ACCESORIOS. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
-8486.10.00.00 | - Máquinas y aparatos para la fabricación de semiconductores en forma de monocristales periformes u obleas (“wafers”) | 0
+84.86 | MAQUINAS Y APARATOS UTILIZADOS, EXCLUSIVA O PRINCIPALMENTE, PARA LA FABRICACIÓN DE SEMICONDUCTORES EN FORMA DE MONOCRISTALES PERIFORMES U OBLEAS ("WAFERS"), DISPOSITIVOS SEMICONDUCTORES, CIRCUITOS ELECTRONICOS INTEGRADOS O DISPOSITIVOS DE CISUALIZACION ("DISPALY") DE PANTALLA PLANA, MAQUINAS Y APARATOS DESCRITOS EN LA NOTA 9 C) DE ESTE CAPITULO; PARTES Y ACCESORIOS. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") |
+8486.10.00.00 | - Máquinas y aparatos para la fabricación de semiconductores en forma de monocristales periformes u obleas ("wafers") | 0
 8486.20 | - Máquinas y aparatos para la fabricación de dispositivos semiconductores o circuitos electrónicos integrados: |
 8486.20.10.00 | - - Que operen mediante láser u otros haces de luz o de fotones | 0
 8486.20.20.00 | - - Para grabar en seco esquemas (trazas) sobre material semiconductor | 0
@@ -11553,7 +11559,7 @@ CODIGO | DESCRIPCION | DAI %
 8486.20.93.00 | - - - Aparatos para trazado directo sobre obleas ("wafers") | 0
 8486.20.94.00 | - - - Fotorrepetidores | 0
 8486.20.99.00 | - - - Los demás | 0
-8486.30 | - Máquinas y aparatos para la fabricación de dispositivos de visualización (“display”) de pantalla plana: (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
+8486.30 | - Máquinas y aparatos para la fabricación de dispositivos de visualización ("display") de pantalla plana: (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") |
 8486.30.1 | - - Máquinas herramienta que trabajen por arranque de cualquier materia: |
 8486.30.11.00 | - - - Que operen mediante láser u otros haces de luz o de fotones | 0
 8486.30.12.00 | - - - Que operen por ultrasonido | 0
@@ -11591,8 +11597,8 @@ Sin embargo, los rectificadores de vapor de mercurio de cubeta metálica permane
 a) las enceradoras (lustradoras) de pisos, trituradoras y mezcladoras de alimentos y extractoras de jugo de frutos u hortalizas, de cualquier peso;
 b) los demás aparatos de peso inferior o igual a 20 kg, excepto los ventiladores y las campanas aspirantes para extracción o reciclado, con ventilador incorporado, incluso con filtro (partida 84.14), las secadoras centrífugas de ropa (partida 84.21), las máquinas para lavar vajilla (partida 84.22), las máquinas para lavar ropa (partida 84.50), las máquinas para planchar (partidas 84.20 u 84.51, según se trate de calandrias u otros tipos), las máquinas de coser (partida 84.52), las tijeras eléctricas (partida 84.67) y los aparatos electrotérmicos (partida 85.16).
 5. En la partida 85.23:
-a) se consideran dispositivos de almacenamiento permanente de datos a base de semiconductores (por ejemplo, “tarjetas de memoria flash” o “tarjetas de memoria electrónica flash”) los dispositivos de almacenamiento con un conector, que tienen, en la misma envoltura, una o más memorias flash (por ejemplo, “E2PROM FLASH”) en forma de circuitos integrados montados en una tarjeta de circuitos impresos. Pueden llevar un controlador en forma de circuito integrado y componentes pasivos discretos, tales como condensadores y resistencias;
-b) la expresión tarjetas inteligentes (“smart cards”) comprende las tarjetas que tienen incluidos uno o más circuitos electrónicos integrados (un microprocesador, una memoria de acceso aleatorio (RAM) o una memoria de solo lectura (ROM)), en forma de microplaquitas (chip). Estas tarjetas pueden llevar contactos, una banda magnética o una antena integrada, pero no tienen ningún otro elemento activo o pasivo, de circuito.
+a) se consideran dispositivos de almacenamiento permanente de datos a base de semiconductores (por ejemplo, "tarjetas de memoria flash" o "tarjetas de memoria electrónica flash") los dispositivos de almacenamiento con un conector, que tienen, en la misma envoltura, una o más memorias flash (por ejemplo, "E2PROM FLASH") en forma de circuitos integrados montados en una tarjeta de circuitos impresos. Pueden llevar un controlador en forma de circuito integrado y componentes pasivos discretos, tales como condensadores y resistencias;
+b) la expresión tarjetas inteligentes ("smart cards") comprende las tarjetas que tienen incluidos uno o más circuitos electrónicos integrados (un microprocesador, una memoria de acceso aleatorio (RAM) o una memoria de solo lectura (ROM)), en forma de microplaquitas (chip). Estas tarjetas pueden llevar contactos, una banda magnética o una antena integrada, pero no tienen ningún otro elemento activo o pasivo, de circuito.
 6. En la partida 85.34, se consideran circuitos impresos los obtenidos disponiendo sobre un soporte aislante, por cualquier procedimiento de impresión (por ejemplo, incrustación, deposición electrolítica, grabado) o por la técnica de los circuitos de capa, elementos conductores, contactos u otros componentes impresos (por ejemplo: inductancias, resistencias, capacitancias), solos o combinados entre sí según un esquema preestablecido, excepto cualquier elemento que pueda producir, rectificar, modular o amplificar una señal eléctrica (por ejemplo: elementos semiconductores).
 La expresión circuitos impresos no comprende los circuitos combinados con elementos que no hayan sido obtenidos durante el proceso de impresión ni las resistencias, condensadores o inductancias discretos. Sin embargo, los circuitos impresos pueden estar provistos con elementos de conexión no impresos.
 Los circuitos de capa (gruesa o delgada), con elementos pasivos y activos obtenidos durante el mismo proceso tecnológico, se clasificarán en la partida 85.42.
@@ -11612,7 +11618,7 @@ A los fines de esta definición:
 b) Los accionadores de silicio están constituidos por estructuras microelectrónicas y mecánicas, que se crean en la masa o en la superficie de un semiconductor y cuya función es convertir las señales eléctricas en movimiento físico.
 c) Los resonadores de silicio son componentes constituidos por estructuras microelectrónicas o mecánicas, que se crean en la masa o en la superficie de un semiconductor y cuya función es generar una oscilación mecánica o eléctrica de una frecuencia predefinida, que depende de la geometría física de estas estructuras en respuesta a una entrada externa.
 d) Los osciladores de silicio son componentes activos constituidos por estructura micorelectrónicas o mecánicas, que se crean en la masa o en la superficie de un semiconductor y cuya función es generar una oscilación mecánica o eléctrica de un frecuencia predefinida, que depende de la geometría física de estas estructuras.
-(Así reformado el punto anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformado el punto anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 Para los artículos definidos en esta Nota, las partidas 85.41 y 85.42 tienen prioridad sobre cualquier otra de la Nomenclatura que pudiera comprenderlos, especialmente en razón de su función, excepto en el caso de la partida 85.23.
 10. En la partida 85.48, se consideran pilas, baterías de pilas y acumuladores, eléctricos, inservibles, los que no son utilizables como tales a consecuencia de rotura, corte, desgaste o cualquier otro motivo o por no ser susceptibles de recarga.
 NOTA DE SUBPARTIDA.
@@ -11794,7 +11800,7 @@ CODIGO | DESCRIPCION | DAI %
 8517.61.21.00 | - - - - De radiotelefonía o radiotelegrafía | 0
 8517.61.22.00 | - - - - Con aparato receptor incorporado | 0
 8517.61.29.00 | - - - - Los demás | 0
-8517.62.00.00 | - - Aparatos para la recepción, conversión, emisión y transmisión o regeneración de voz, imagen u otros datos, incluidos los de conmutación y encaminamiento (“switching and routing apparatus”) | 0
+8517.62.00.00 | - - Aparatos para la recepción, conversión, emisión y transmisión o regeneración de voz, imagen u otros datos, incluidos los de conmutación y encaminamiento ("switching and routing apparatus") | 0
 8517.69 | - - Los demás: |
 8517.69.10.00 | - - - Aparatos receptores de radiotelefonía o radiotelegrafía | 0
 8517.69.90.00 | - - - Otros | 0
@@ -11815,7 +11821,7 @@ CODIGO | DESCRIPCION | DAI %
 8519.20.90.00 | - - Otros | 15
 8519.30 | - Giradiscos: |
 8519.30.1 | - - Con cambiador automático de discos: |
-8519.30.11.00 | - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 5
+8519.30.11.00 | - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 5
 8519.30.19.00 | - - - Los demás | 15
 8519.30.90.00 | - - Otros | 15
 8519.50.00.00 | - Contestadores telefónicos | 0
@@ -11823,25 +11829,25 @@ CODIGO | DESCRIPCION | DAI %
 8519.81 | - - Que utilizan un soporte magnético, óptico o semiconductor: |
 8519.81.10.00 | - - - Aparatos para reproducir dictados | 15
 8519.81.2 | - - - Reproductores de casetes (tocacasetes) de bolsillo: |
-8519.81.21.00 | - - - - Completamente desarmados (CKD), presentados en juegos o “kits” | 5
+8519.81.21.00 | - - - - Completamente desarmados (CKD), presentados en juegos o "kits" | 5
 8519.81.29.00 | - - - - Los demás | 15
 8519.81.3 | - - - Los demás reproductores de casetes (tocacasetes): |
-8519.81.31.00 | - - - - Completamente desarmados (CKD), presentados en juegos o “kits” | 5
+8519.81.31.00 | - - - - Completamente desarmados (CKD), presentados en juegos o "kits" | 5
 8519.81.39.00 | - - - - Los demás | 15
 8519.81.40.00 | - - - Aparatos para dictar que solo funcionen con fuente de energía exterior | 15
 8519.81.5 | - - - Aparatos digitales: |
-8519.81.51.00 | - - - - Completamente desarmados (CKD), presentados en juegos o “kits” | 5
+8519.81.51.00 | - - - - Completamente desarmados (CKD), presentados en juegos o "kits" | 5
 8519.81.59.00 | - - - - Los demás | 15
 8519.81.6 | - - - Los demás de casete (tocacasetes): |
-8519.81.61.00 | - - - - Completamente desarmados (CKD), presentados en juegos o “kits” | 5
+8519.81.61.00 | - - - - Completamente desarmados (CKD), presentados en juegos o "kits" | 5
 8519.81.69.00 | - - - - Los demás | 15
 8519.81.90.00 | - - - Otros | 15
 8519.89 | - - Los demás: |
 8519.89.1 | - - - Tocadiscos sin altavoces (altoparlantes): |
-8519.89.11.00 | - - - - Completamente desarmados (CKD), presentados en juegos o “kits” | 5
+8519.89.11.00 | - - - - Completamente desarmados (CKD), presentados en juegos o "kits" | 5
 8519.89.19.00 | - - - - Los demás | 15
 8519.89.2 | - - - Los demás tocadiscos: |
-8519.89.21.00 | - - - - Completamente desarmados (CKD), presentados en juegos o “kits” | 5
+8519.89.21.00 | - - - - Completamente desarmados (CKD), presentados en juegos o "kits" | 5
 8519.89.29.00 | - - - - Los demás | 15
 8519.89.30.00 | - - - Aparatos para reproducir dictados | 15
 8519.89.90.00 | - - - Otros | 15
@@ -11856,7 +11862,7 @@ CODIGO | DESCRIPCION | DAI %
 8522.90 | - Los demás: |
 8522.90.10.00 | - - Muebles y envolturas (gabinetes) de madera | 15
 8522.90.90.00 | - - Otros | 0
-85.23 | DISCOS, CINTAS, DISPOSITIVOS DE ALMACENAMIENTO PERMANENTE DE DATOS A BASE DE SEMICONDUCTORES, TARJETAS INTELIGENTES (“SMART CARDS”) Y DEMAS SOPORTES PARA GRABAR SONIDO O GRABACIONES ANALOGAS, GRABADOS O NO, INCLUSO LAS MATRICES Y MOLDES GALVANICOS PARA FABRICACION DE DISCOS, EXCEPTO LOS PRODUCTOS DEL CAPITULO 37 |
+85.23 | DISCOS, CINTAS, DISPOSITIVOS DE ALMACENAMIENTO PERMANENTE DE DATOS A BASE DE SEMICONDUCTORES, TARJETAS INTELIGENTES ("SMART CARDS") Y DEMAS SOPORTES PARA GRABAR SONIDO O GRABACIONES ANALOGAS, GRABADOS O NO, INCLUSO LAS MATRICES Y MOLDES GALVANICOS PARA FABRICACION DE DISCOS, EXCEPTO LOS PRODUCTOS DEL CAPITULO 37 |
 8523.2 | - Soportes magnéticos : |
 8523.21 | - - Tarjetas con banda magnética incorporada: |
 8523.21.10.00 | - - - Sin grabar | 0
@@ -11894,7 +11900,7 @@ CODIGO | DESCRIPCION | DAI %
 8523.51 | - - Dispositivos de almacenamiento permanente de datos a base de semiconductores: |
 8523.51.10.00 | - - - Sin grabar | 0
 8523.51.20.00 | - - - Grabados | 0
-8523.52 | - - Tarjetas inteligentes “smart cards”: |
+8523.52 | - - Tarjetas inteligentes "smart cards": |
 8523.52.10.00 | - - - Tarjetas provistas de un circuito integrado electrónico (tarjetas inteligentes ("smart cards")) | 0
 8523.52.90.00 | - - - Partes | 0
 8523.59 | - - Los demás: |
@@ -11945,69 +11951,69 @@ CODIGO | DESCRIPCION | DAI %
 8527.29.90.00 | - - - Otros | 15
 8527.9 | - Los demás: |
 8527.91 | - - Combinados con grabador o reproductor de sonido: |
-8527.91.10.00 | - - - Completamente desarmados (CKD), presentados en juegos o “kits” | 0
+8527.91.10.00 | - - - Completamente desarmados (CKD), presentados en juegos o "kits" | 0
 8527.91.90.00 | - - - Otros | 15
 8527.92 | - - Sin combinar con grabador o reproductor de sonido, pero combinados con reloj: |
-8527.92.10.00 | - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
+8527.92.10.00 | - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 0
 8527.92.90.00 | - - - Otros | 15
 8527.99 | - - Los demás: |
-8527.99.10.00 | - - - Completamente desarmados (CKD), presentados en juegos o “kits” | 0
+8527.99.10.00 | - - - Completamente desarmados (CKD), presentados en juegos o "kits" | 0
 8527.99.90.00 | - - - Otros | 15
 85.28 | MONITORES Y PROYECTORES, QUE NO INCORPOREN APARATO RECEPTOR DE TELEVISION; APARATOS RECEPTORES DE TELEVISION, INCLUSO CON APARATO RECEPTOR DE RADIODIFUSION O GRABACION O REPRODUCCION DE SONIDO O IMAGEN INCORPORADO. |
 8528.4 | - Monitores con tubo de rayos catódicos: |
 8528.41.00 | + + SUPRIMIDA + + |
 8528.42 | - - Aptos para ser conectados directamente y diseñados para ser utilizados con una máquina automática para tratamiento o procesamiento de datos de la partida 84.71: |
 8528.42.1 | - - - En colores: |
-8528.42.11.00 | - - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
+8528.42.11.00 | - - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 0
 8528.42.12.00 | - - - - De los tipos utilizados exclusivamente para ser conectados a una máquina automática para tratamiento o procesamiento de datos de la partida 84.71 | 0
 8528.42.19.00 | - - - - Los demás | 15
 8528.42.2 | - - - En blanco y negro o demás monocromos: |
-8528.42.21.00 | - - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
+8528.42.21.00 | - - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 0
 8528.42.22.00 | - - - - De los tipos utilizados exclusivamente para ser conectados a una máquina automática para tratamiento o procesamiento de datos de la partida 84.71 | 0
 8528.42.29.00 | - - - - Los demás | 15
 8528.49 | - - Los demás: |
 8528.49.1 | - - - En colores: |
-8528.49.11.00 | - - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
+8528.49.11.00 | - - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 0
 8528.49.19.00 | - - - - Los demás | 15
 8528.49.2 | - - - En blanco y negro o demás monocromos: |
-8528.49.21.00 | - - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
+8528.49.21.00 | - - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 0
 8528.49.29.00 | - - - - Los demás | 15
 8528.5 | - Los demás monitores: |
 8528.51.00 | + + SUPRIMIDA + + |
 8528.52 | - - Aptos para ser conectados directamente y diseñados para ser utilizados con una máquina automática para tratamiento o procesamiento de datos de la partida 84.71: |
 8528.52.1 | - - - En colores: |
-8528.52.11.00 | - - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
+8528.52.11.00 | - - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 0
 8528.52.12.00 | - - - - De los tipos utilizados exclusivamente para ser conectados a una máquina automática para tratamiento o procesamiento de datos de la partida 84.71 | 0
 8528.52.19.00 | - - - - Los demás | 15
 8528.52.2 | - - - En blanco y negro o demás monocromos: |
-8528.52.21.00 | - - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
+8528.52.21.00 | - - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 0
 8528.52.22.00 | - - - - De los tipos utilizados exclusivamente para ser conectados a una máquina automática para tratamiento o procesamiento de datos de la partida 84.71 | 0
 8528.52.29.00 | - - - - Los demás | 15
 8528.59 | - - Los demás: |
 8528.59.1 | - - - En colores: |
-8528.59.11.00 | - - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
+8528.59.11.00 | - - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 0
 8528.59.19.00 | - - - - Los demás | 15
 8528.59.2 | - - - En blanco y negro o demás monocromos: |
-8528.59.21.00 | - - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
+8528.59.21.00 | - - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 0
 8528.59.29.00 | - - - - Los demás | 15
 8528.6 | - Proyectores: |
 8528.61.00 | + + SUPRIMIDA + + |
 8528.62 | - - Aptos para ser conectados directamente y diseñados para ser utilizados con una máquina automática para tratamiento o procesamiento de datos de la partida 84.71: |
-8528.62.10.00 | - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
+8528.62.10.00 | - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 0
 8528.62.90.00 | - - - Otros | 0
 8528.69 | - - Los demás: |
-8528.69.10.00 | - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
+8528.69.10.00 | - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 0
 8528.69.90.00 | - - - Otros | 0
 8528.7 | - Aparatos receptores de televisión, incluso con aparato receptor de radiodifusión o grabación o reproducción de sonido o imagen incorporado: |
-8528.71 | - - No concebido para incorporar un dispositivo de visualización (“display”) p pantalla de video. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
-8528.71.10.00 | - - - Completamente desarmados (CKD) presentado en juegos o “kits” | 0
+8528.71 | - - No concebido para incorporar un dispositivo de visualización ("display") p pantalla de video. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo") |
+8528.71.10.00 | - - - Completamente desarmados (CKD) presentado en juegos o "kits" | 0
 8528.71.20.00 | - - - Convertidor de señales digitales de televisión (incluso de señales digitales de audio), únicamente en señales analógicas, para la recepción de señales digitales emitidas por televisión abierta, para los aparatos receptores de televisión que no tienen incorporado un dispositivo sintonizador de televisión digital | 0
 8528.71.90.00 | - - - Otros | 15
 8528.72 | - - Los demás en colores: |
-8528.72.10.00 | - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
+8528.72.10.00 | - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 0
 8528.72.90.00 | - - - Otros | 15
 8528.73 | - - Los demás, monocromos: |
-8528.73.10.00 | - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
+8528.73.10.00 | - - - Completamente desarmados (CKD) presentados en juegos o "kits" | 0
 8528.73.90.00 | - - - Otros | 15
 85.29 | PARTES IDENTIFICABLES COMO DESTINADAS, EXCLUSIVA O PRINCIPALMENTE, A LOS APARATOS DE LAS PARTIDAS 85.25 A 85.28 |
 8529.10.00.00 | - Antenas y reflectores de antena de cualquier tipo; partes apropiadas para su utilización con dichos artículos | 0
@@ -12115,7 +12121,7 @@ CODIGO | DESCRIPCION | DAI %
 8539.32.00.00 | - - Lámparas de vapor de mercurio o sodio; lámparas de halogenuro metálico | 5
 8539.39 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - Los demás (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) |
 8539.39.00.00 (Así suprimida la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | ++SUPRIMIDA++ (Así suprimida la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) |
-8539.39.10.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - - Fluorescentes de cátodo frío para la retroiluminación de dispositivos de visualización (“display”) de pantalla plana (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 5 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
+8539.39.10.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - - Fluorescentes de cátodo frío para la retroiluminación de dispositivos de visualización ("display") de pantalla plana (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 5 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
 8539.39.90.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - - Otros (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 5 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
 8539.4 | - Lámparas y tubos de rayos ultravioletas o infrarrojos; lámparas de arco: |
 8539.41.00.00 | - - Lámparas de arco | 0
@@ -13168,7 +13174,7 @@ SECCION XX
 MERCANCIAS Y PRODUCTOS DIVERSOS
 CAPITULO 94
 Muebles; mobiliario médico quirúrgico; artículos de cama y similares; aparatos de alumbrado no expresados no comprendidos en otra parte; anuncios, letreros y placas indicadoras, luminosos y artículos similares; construcciones prefabricadas.
-(Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)NOTAS.
+(Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")NOTAS.
 1. Este Capítulo no comprende:
 a) los colchones, almohadas y cojines, neumáticos o de agua, de los Capítulos 39, 40 ó 63;
 b) los espejos que se apoyen en el suelo (por ejemplo, espejos de vestir móviles) (partida 70.09);
@@ -13195,7 +13201,7 @@ CODIGO | DESCRIPCION | DAI %
 94.01 | ASIENTOS (EXCEPTO LOS DE LA PARTIDA 94.02), INCLUSO LOS TRANSFORMABLES EN CAMA, Y SUS PARTES |
 9401.10.00.00 | - Asientos de los tipos utilizados en aeronaves | 15
 9401.20 | - Asientos de los tipos utilizados en vehículos automóviles: |
-9401.20.10.00 | - - Para autobuses tipo “Pulman” | 10
+9401.20.10.00 | - - Para autobuses tipo "Pulman" | 10
 9401.20.90.00 | - - Otros | 15
 9401.30.00.00 | - Asientos giratorios de altura ajustable | 15
 9401.40.00.00 | - Asientos transformables en cama, excepto el material de acampar o de jardín | 15
@@ -13283,14 +13289,14 @@ b) los artículos de pirotecnia para diversión de la partida 36.04;
 c) los hilados, monofilamentos, cordones, cuerdas de tripa y similares para la pesca, incluso cortados en longitudes determinadas pero sin montar en sedal (tanza) con anzuelo, del Capítulo 39, partida 42.06 o Sección XI;
 d) las bolsas para artículos de deporte y demás continentes, de las partidas 42.02, 43.03 ó 43.04;
 e) Los disfraces de materia textil, de los Capítulos 61 ó 62; las prendas de vestir de deporte y prendas especiales de materia textil, de los Capítulo 61 ó 62, incluso las que incorporen accesoriamente elementos de protección, tales como placas protectoras o acolchado en las partes correspondientes a los codos, las rodillas o la ingle (por ejemplo: prendas para esgrima o suéteres (jersey) para porteros (arqueros de fútbol);
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 f) las banderas y cuerdas de gallardetes, de materia textil, así como las velas para embarcaciones, deslizadores o vehículos terrestres, del Capítulo 63;
 g) el calzado (excepto el fijado a patines para hielo o patines de ruedas) del Capítulo 64 y los tocados especiales para la práctica de deportes del Capítulo 65;
 h) los bastones, fustas, látigos y artículos similares (partida 66.02), así como sus partes (partida 66.03);
 ij) los ojos de vidrio sin montar para muñecas, muñecos u otros juguetes, de la partida 70.18;
 k) las partes y accesorios de uso general, tal como se definen en la Nota 2 de la Sección XV, de metal común (Sección XV) y los artículos similares de plástico (Capítulo 39);
 l) las campanas, campanillas, gongos y artículos similares, de la partida 83.06;
-m) las bombas para líquidos (partida 84.13), aparatos para filtrar o depurar líquidos o gases (partida 84.21), motores eléctricos (partida 85.01), transformadores eléctricos (partida 85.04) discos, cintas, dispositivos de almacenamiento permanente de datos a base de semiconductores, tarjetas inteligentes (“smart cards”) y demás soportes para grabar sonido o grabaciones análogas, grabados o no (partida 85.23), aparatos de radiotelemando (partida 85.26) y dispositivos inalámbricos de rayos infrarrojos para mando a distancia (partida 85.43);
+m) las bombas para líquidos (partida 84.13), aparatos para filtrar o depurar líquidos o gases (partida 84.21), motores eléctricos (partida 85.01), transformadores eléctricos (partida 85.04) discos, cintas, dispositivos de almacenamiento permanente de datos a base de semiconductores, tarjetas inteligentes ("smart cards") y demás soportes para grabar sonido o grabaciones análogas, grabados o no (partida 85.23), aparatos de radiotelemando (partida 85.26) y dispositivos inalámbricos de rayos infrarrojos para mando a distancia (partida 85.43);
 n) los vehículos de deporte de la Sección XVII, excepto los toboganes, "bobsleighs" y similares;
 o) las bicicletas para niños (partida 87.12);
 p) las embarcaciones de deporte, tales como canoas y esquifes (Capítulo 89), y sus medios de propulsión (Capítulo 44, si son de madera);
@@ -13333,11 +13339,11 @@ CODIGO | DESCRIPCION | DAI %
 9503.00.70.00 | - Los demás juguetes presentados en juegos o surtidos o en panoplias | 15
 9503.00.80.00 | - Los demás juguetes y modelos, con motor | 15
 9503.00.90.00 | - Otros | 15
-95.04 | VIDEOCONSOLAS Y MÁQUINAS DE VIDEOJUEGO, ARTÍCULOS PARA JUEGOS DE SOCIEDAD, INCLUIDOS LOS JUEGOS CON MOTOR O MECANISMO, BILLARES, MESAS ESPECIALES PARA JUEGOS DE CASINO Y JUEGOS DE BOLOS AUTOMATICOS (“BOWLINGS”) |
+95.04 | VIDEOCONSOLAS Y MÁQUINAS DE VIDEOJUEGO, ARTÍCULOS PARA JUEGOS DE SOCIEDAD, INCLUIDOS LOS JUEGOS CON MOTOR O MECANISMO, BILLARES, MESAS ESPECIALES PARA JUEGOS DE CASINO Y JUEGOS DE BOLOS AUTOMATICOS ("BOWLINGS") |
 9504.20 | - Billares de cualquier clase y sus accesorios: |
 9504.20.10.00 | - - Mesas para billar | 15
 9504.20.90.00 | - - Otros | 10
-9504.30 | - Los demás juegos activados con monedas, billetes de banco, tarjetas bancarias, fichas o por cualquier otro medio de pago, excepto los juegos de bolos automáticos (“bowlings”) |
+9504.30 | - Los demás juegos activados con monedas, billetes de banco, tarjetas bancarias, fichas o por cualquier otro medio de pago, excepto los juegos de bolos automáticos ("bowlings") |
 9504.30.00.00 (Así suprimida la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | ++SUPRIMIDA++ (Así suprimida la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) |
 9504.30.10.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - Juegos de azar en los que se obtienen premios monetarios de forma inmediata (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 15 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
 9504.30.90.00 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | - - Otros (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019) | 15 (Así aprobada la apertura anterior por el aparte 1) de la parte resolutiva de la Resolución N° 414-2019 (COMIECO-EX) de fecha 28 de agosto de 2019, que aprueba las aperturas y supresiones arancelarias del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, aprobada mediante decreto ejecutivo N° 42052 del 22 de octubre del 2019)
@@ -13403,7 +13409,7 @@ b) el ámbar (succino) y la espuma de mar, naturales o reconstituidos, así como
 3. En la partida 96.03, se consideran cabezas preparadas los mechones de pelo, fibra vegetal u otra materia, sin montar, listos para su uso en la fabricación de brochas, pinceles o artículos análogos, sin dividirlos o que sólo necesiten un complemento poco importante de mano de obra, tal como el igualado o acabado de puntas.
 4. Los artículos de este Capítulo, excepto los de las partidas 96.01 a 96.06 ó 96.15, constituidos total o parcialmente por metal precioso, chapado de metal precioso (plaqué), piedras preciosas o semipreciosas (naturales, sintéticas o reconstituidas), o que lleven perlas finas (naturales) o cultivadas, permanecen clasificados en este Capítulo. Sin embargo, también están comprendidos en este Capítulo los artículos de las partidas 96.01 a 96.06 ó 96.15 con simples guarniciones o accesorios de mínima importancia de metal precioso, chapado de metal precioso (plaqué), de perlas finas (naturales) o cultivadas o piedras preciosas o semipreciosas (naturales, sintéticas o reconstituidas).
 NOTA COMPLEMENTARIA CENTROAMERICANA
-A. (Eliminada esta nota complementaria por el punto 1 del resultanto de la resolución N° 392-2017 (COMIECO-LXXXI9 del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo ' A " del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017)
+A. (Eliminada esta nota complementaria por el punto 1 del resultanto de la resolución N° 392-2017 (COMIECO-LXXXI9 del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo ' A " del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017)
 CODIGO | DESCRIPCION | DAI %
 96.01 | MARFIL, HUESO, CONCHA (CAPARAZON) DE TORTUGA, CUERNO, ASTA, CORAL, NACAR Y DEMAS MATERIAS ANIMALES PARA TALLAR, TRABAJADAS, Y MANUFACTURAS DE ESTAS MATERIAS (INCLUSO LAS OBTENIDAS POR MOLDEO) |
 9601.10.00.00 | - Marfil trabajado y sus manufacturas | 15
@@ -13436,16 +13442,16 @@ CODIGO | DESCRIPCION | DAI %
 9606.22.00.00 | - - De metal común, sin forrar con materia textil | 5
 9606.29.00.00 | - - Los demás | 5
 9606.30.00.00 | - Formas para botones y demás partes de botones; esbozos de botones | 0
-96.07 (Nota de Sinalevi: Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo 'A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | CIERRES DE CREMALLERA (CIERRES RELAMPAGO) Y SUS PARTES (Nota de Sinalevi: Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo 'A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) |
+96.07 (Nota de Sinalevi: Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo 'A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | CIERRES DE CREMALLERA (CIERRES RELAMPAGO) Y SUS PARTES (Nota de Sinalevi: Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo 'A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) |
 9607.1 | - Cierres de cremallera (cierres relámpago): |
 9607.11.00.00 | - - Con dientes de metal común | 10
 9607.19.00.00 | - - Los demás | 15
-9607.20.00.00 | + +SUPRIMIDA++ (Modificada la descrpción anterior por resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) |
-9607.20 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | - Partes: (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) |
-9607.20.1 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | --Cintas textiles de cualquier longitud provistas de dientes: (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) |
-9607.20.11.00 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | ---Con dientes de metal común (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | 10 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior)
-9607.20.19.00 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | ---Las demás (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | 15 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior)
-9607.20.90.00 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | --Otras (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | 0 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, “Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo “A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince”, aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior)
+9607.20.00.00 | + +SUPRIMIDA++ (Modificada la descrpción anterior por resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) |
+9607.20 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | - Partes: (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) |
+9607.20.1 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | --Cintas textiles de cualquier longitud provistas de dientes: (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) |
+9607.20.11.00 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | ---Con dientes de metal común (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | 10 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior)
+9607.20.19.00 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | ---Las demás (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | 15 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior)
+9607.20.90.00 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | --Otras (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior) | 0 (Mediante resolución N° 392-2017 (COMIECO-LXXXI) del 20 de octubre de 2017, "Eliminar la Nota Complementaria Centroamericana del Capítulo 96 del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, adoptado por la Resolución Nº 372-2015 (COMIECO-LXXIV), de fecha cuatro de diciembre de dos mil quince", aprobada mediante decreto ejecutivo N° 40855 del 5 de diciembre de 2017, se acordó aprobar la apertura arancelaria anterior)
 96.08 | BOLIGRAFOS; ROTULADORES Y MARCADORES CON PUNTA DE FIELTRO U OTRA PUNTA POROSA; ESTILOGRAFICAS Y DEMAS PLUMAS; ESTILETES O PUNZONES PARA CLISES DE MIMEOGRAFO ("STENCILS"); PORTAMINAS; PORTAPLUMAS, PORTALAPICES Y ARTICULOS SIMILARES; PARTES DE ESTOS ARTICULOS (INCLUIDOS LOS CAPUCHONES Y SUJETADORES), EXCEPTO LAS DE LA PARTIDA 96.09 |
 9608.10.00.00 | - Bolígrafos | 15
 9608.20.00.00 | - Rotuladores y marcadores con punta de fieltro u otra punta porosa | 15
@@ -13527,7 +13533,7 @@ a) los sellos (estampillas) de correo, timbres fiscales, enteros postales, demá
 b) los lienzos pintados para decorados de teatro, fondos de estudio o usos análogos (partida 59.07), salvo que puedan clasificarse en la partida 97.06;
 c) las perlas finas (naturales) o cultivadas y las piedras preciosas o semipreciosas (partidas 71.01 a 71.03).
 2. En la partida 97.02, se consideran grabados, estampas y litografías, originales, las pruebas obtenidas directamente en negro o color de una o varias planchas totalmente realizadas a mano por el artista, cualquiera que sea la técnica o materia utilizada, excepto por cualquier procedimiento mecánico o fotomecánico.
-(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 "Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo")
 3. No se clasifican en la partida 97.03 las esculturas que presenten carácter comercial (por ejemplo: reproducciones en serie, vaciados, obras de artesanía), aunque hayan sido concebidas o creadas por artistas.
 4. A) Salvo lo dispuesto en las Notas 1, 2 y 3, los artículos susceptibles de clasificarse en este Capítulo y en otros de la Nomenclatura, se clasifican en este Capítulo.
 B) Los artículos susceptibles de clasificarse en la partida 97.06 y en las
