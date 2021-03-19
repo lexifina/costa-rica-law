@@ -1,1 +1,0 @@
-II. Tener como respuesta a los opositores que participaron en las audiencias públicas realizadas el 16 de agosto del 2012 y del 23 de octubre del 2012, lo señalado en el considerando III de esta resolución y agradecerles por su valiosa participación en este proceso.
