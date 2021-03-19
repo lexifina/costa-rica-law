@@ -1,0 +1,1 @@
+Artículo 84.-Cuando los miembros del Concejo Municipal o el Intendente, sean invitados a participar de alguna actividad, o por delegación del Concejo para representar a la institución, podrán otorgar la respectiva licencia con goce de dieta o salario, según sea el caso, para lo cual deberán solicitarlo al Concejo con ocho días de antelación.

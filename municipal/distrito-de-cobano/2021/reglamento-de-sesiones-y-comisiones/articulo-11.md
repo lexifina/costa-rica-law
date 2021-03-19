@@ -1,0 +1,1 @@
+Artículo 11.-El Concejo Municipal podrá sesionar extraordinariamente de acuerdo con el artículo 36 del Código Municipal, y el objeto de la sesión, se señalará mediante acuerdo municipal. Estas sesiones deberán celebrarse el día y la hora que se indique en la convocatoria y se conocerán solo los asuntos indicados en la convocatoria.

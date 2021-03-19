@@ -1,0 +1,1 @@
+Artículo 48.-El Concejo dará la audiencia solicitada y atenderá público en todas las sesiones que se celebren, con un máximo de dos audiencias por cesión, a partir inmediatamente después de ratificada el acta y según el orden de llegada.

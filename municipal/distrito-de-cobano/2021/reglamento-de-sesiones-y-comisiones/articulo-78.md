@@ -1,0 +1,1 @@
+Artículo 78.-Dicho recurso será sometido a votación para determinar si es admitido o no el recurso, deberá alcanzar la misma mayoría que obtuvo cuando fue aprobado o rechazado el asunto tratado, aceptada la revisión, el presidente (a) pondrá en discusión el asunto a que se refiere el acuerdo. De los acuerdos definitivamente aprobados no cabrá recurso de revisión.

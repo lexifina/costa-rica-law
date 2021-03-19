@@ -1,0 +1,1 @@
+Artículo 58.-Con la intervención de los munícipes, la (el) secretaria (o) del Concejo tomará nota de lo expuesto, quedando facultado el presidente (a) para trasladar el asunto en exposición a la comisión competente o a la Intendencia Municipal.

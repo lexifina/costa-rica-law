@@ -1,0 +1,2 @@
+Artículo 93.-Los dictámenes de comisión deberán ser presentados ante la secretaría (o) del Concejo Municipal por el secretario (a) de la comisión respectiva, los dictámenes deberán estar debidamente firmados por el secretario y el presidente de la comisión.
+Cuando no existiera acuerdo unánime sobre un dictamen o alguno esté en contra del dictamen o de algún asunto específico aprobado por la comisión, podrán emitir un dictamen de minoría ante el Concejo junto con el de mayoría.

@@ -1,0 +1,1 @@
+Artículo 110.-Toda iniciativa tendiente a reformar, suspender o derogar disposiciones de este reglamento, deberá ser presentada o acogida para su trámite por el Intendente Municipal o por alguno de los concejales.

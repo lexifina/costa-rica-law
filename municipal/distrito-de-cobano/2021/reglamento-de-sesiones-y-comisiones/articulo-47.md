@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Audiencias y correspondencia
+Artículo 47.-Solicitud de audiencia. Toda persona física o jurídica que tenga interés en presentar al Concejo algún asunto podrá solicitar una audiencia para ser escuchado, para tal efecto deberá previamente solicitar en forma escrita la audiencia con ocho días de antelación ante la secretaría municipal, indicando en forma clara, nombre completo de la persona física, jurídica o grupo organizado que solicita la audiencia, deberán indicar el nombre de las personas que harán uso de la palabra, con un máximo de tres voceros por solicitud, lugar de pertenencia, dirección, teléfono, lugar para ser notificado y motivo de la audiencia.

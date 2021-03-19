@@ -1,0 +1,1 @@
+Artículo 56.-Cuando otra persona diferente al que expuso, desee aclarar o adicionar algo a lo ya expuesto, deberá levantar su mano y pedir la palabra al presidente (a), para que éste defina si procede en razón del tema o del tiempo y si es atendible o no su solicitud.

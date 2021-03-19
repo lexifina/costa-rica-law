@@ -1,0 +1,1 @@
+Artículo 18.-El Concejal suplente que sustituye a un propietario, tendrá derecho a permanecer durante toda la sesión como miembro del Concejo con voz, voto y el derecho a devengar la dieta, derecho que también tendrá cuando el propietario no se presenta después de los quince minutos de la hora señalada para iniciar la sesión.

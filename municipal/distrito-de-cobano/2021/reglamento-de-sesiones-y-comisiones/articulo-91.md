@@ -1,0 +1,1 @@
+Artículo 91.-A las comisiones especiales el presidente les dará un plazo para rendir su dictamen, plazo que dependerá de la complejidad del asunto a revisar, y quedaran disueltas cuando fenezca la razón por la cual fue creada o serán reestructuradas cuando no rindan su informe en el plazo establecido o por falta de sesionar.
