@@ -32,3 +32,4 @@ Metodología para la Fijación Ordinaria de Tarifas para el Servicio Remunerado 
 | 17 | 2020-04-24 | Resolución 27 (2020-04-24) |
 | 18 | 2020-05-12 | Resolución 58 (2020-05-12) |
 | 19 | 2020-12-09 | Resolución 67 (2020-12-09) |
+| 20 | 2021-03-19 | Resolución 61 (2021-03-19) |
