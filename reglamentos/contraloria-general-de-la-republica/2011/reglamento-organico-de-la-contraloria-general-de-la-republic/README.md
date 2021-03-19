@@ -14,3 +14,4 @@ Reglamento Orgánico de la Contraloría General de la República R-1-2011-DC-GC
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-01 | la propia norma |
+| 2 | 2021-03-19 | Resolución 21 (2021-03-19) |
