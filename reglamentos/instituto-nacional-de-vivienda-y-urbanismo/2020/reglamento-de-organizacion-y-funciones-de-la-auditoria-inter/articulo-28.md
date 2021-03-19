@@ -1,0 +1,1 @@
+Artículo 28.-Prohibiciones. La persona encargada de la Auditoría Interna y el personal de esta dependencia, tendrán las prohibiciones establecidas en el artículo 34 de la Ley General de Control Interno así como también las establecidas en el Reglamento Autónomo de Organización y Servicio del INVU (RAOS).

@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de Aplicación. Este reglamento es de carácter general y de acatamiento obligatorio para las personas funcionarias de la Auditoría Interna, personas funcionarias de la administración activa y otros actores, en lo que les resulte aplicable.

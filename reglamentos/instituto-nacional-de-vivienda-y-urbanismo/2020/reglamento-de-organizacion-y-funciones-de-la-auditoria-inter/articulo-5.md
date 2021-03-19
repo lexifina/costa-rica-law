@@ -1,0 +1,1 @@
+Artículo 5°-Naturaleza y objetivo. La Auditoría Interna es un componente orgánico del sistema de control interno, cuya naturaleza es asesora. Su objetivo es fiscalizar el funcionamiento de las actividades administrativas en busca de la efectividad, eficiencia, economía y trasparencia en el uso de los fondos públicos.

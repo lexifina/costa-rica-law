@@ -1,0 +1,2 @@
+Artículo 21.-Apoyo Técnico. La Auditoría Interna podrá solicitar a las personas funcionarias del INVU o externas, la colaboración o asesoramiento en temas que demande el ejercicio de la auditoría interna. Además, podrá acudir a la contratación externa de conformidad con la normativa correspondiente, en caso de ser necesario o que la institución no cuente con los recursos.
+Las personas requeridas, deberán actuar con apego a las normas aplicables para las personas funcionarias de la Auditoría Interna.

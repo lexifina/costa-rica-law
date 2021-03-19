@@ -1,0 +1,1 @@
+Artículo 22.-Categoría Programática y Ejecución Presupuestaria. La Auditoría Interna, para efectos presupuestarios, contará con categoría programática; es decir, el jerarca de la Auditoría Interna o a quién este designe, deberá controlar la ejecución y las modificaciones de los recursos de la Auditoría Interna.

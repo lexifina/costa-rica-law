@@ -1,0 +1,1 @@
+Artículo 8°-Estructura Organizativa. La Auditoría Interna se organizará y funcionará según este Reglamento y las disposiciones de la persona Auditora Interna, de conformidad con las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República.

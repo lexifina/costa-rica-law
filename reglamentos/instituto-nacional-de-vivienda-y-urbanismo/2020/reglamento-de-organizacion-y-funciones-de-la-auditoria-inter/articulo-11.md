@@ -1,0 +1,1 @@
+Artículo 11.-Ética. El personal de la Auditoría Interna, deberá mantener y ajustar su comportamiento y conducta a las normas de la ética, la moral, principios, deberes, prohibiciones y la probidad reconocidas para el ejercicio de la función pública así como las disposiciones contenidas en la normativa interna institucional.

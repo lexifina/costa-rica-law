@@ -1,0 +1,1 @@
+Artículo 26.-Potestades. La persona encargada de la Auditoría Interna y el personal de esta dependencia, para el desempeño y desarrollo de sus competencias, tendrán las potestades establecidas en el artículo 33 de la Ley General de Control Interno y demás potestades referentes como servidores de la institución.

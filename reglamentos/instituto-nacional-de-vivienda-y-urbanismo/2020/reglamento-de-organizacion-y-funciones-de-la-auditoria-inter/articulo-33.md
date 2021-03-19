@@ -1,0 +1,1 @@
+Artículo 33.-Responsabilidades de la Administración Activa. Es responsabilidad del jerarca o titular subordinado coordinar la adopción de las medidas necesarias para la atención e implementación de las recomendaciones, advertencias, observaciones o disposiciones emitidas por la Auditoría Interna.

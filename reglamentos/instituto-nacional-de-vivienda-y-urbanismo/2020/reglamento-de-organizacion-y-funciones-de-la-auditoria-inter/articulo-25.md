@@ -1,0 +1,1 @@
+Artículo 25.-Deberes. La persona encargada de la Auditoría Interna y el personal de esta dependencia, para el ejercicio de sus competencias tendrán los deberes y obligaciones establecidos en el artículo 32 de la Ley General de Control Interno sin menos cabo de los deberes atinentes en su función de servidores de la institución.
