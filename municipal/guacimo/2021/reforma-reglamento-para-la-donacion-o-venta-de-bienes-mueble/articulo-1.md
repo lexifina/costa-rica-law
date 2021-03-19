@@ -1,0 +1,15 @@
+MUNICIPALIDAD DE GUÁCIMO
+ALCALDÍA
+SE PUBLICA MODIFICACIÓN AL ARTÍCULO 6 DEL
+REGLAMENTO PARA LA DONACIÓN O VENTA DE
+BIENES MUEBLES DECLARADOS EN MAL ESTADO
+O DESUSO DE LA MUNICIPALIDAD DE GUÁCIMO
+Artículo 6°-Procedimiento para la venta de bienes declarados en desuso y/o mal estado. Cuando por acuerdo del Concejo Municipal se disponga la venta de un bien mueble declarado en desuso o mal estado, se utilizará el procedimiento de venta directa (contratación directa), siendo la Proveeduría Municipal la encargada del procedimiento, según se detalla a continuación:
+a. Se cursará invitación por SICOP o de forma física a un mínimo de tres potenciales oferentes.
+b. Para presentación de ofertas se otorgará a los potenciales oferentes un plazo mínimo de tres y máximo de cinco días hábiles.
+c. El acto administrativo que declara la venta recaerá a favor del oferente que presente la mejor oferta económica, por tal motivo en el caso de realizar el procedimiento en físico, en aras de no generar ventajas indebidas y dar igualdad de competencia, será necesario que las ofertas se presenten en sobre cerrado, el cual no podrá ser abierto, sino hasta el acto de apertura y al mismo podrán asistir los oferentes interesados.
+d. En ningún caso podrán venderse bienes por debajo del valor fijado por el respectivo avalúo.
+e. En lo no regulado por este procedimiento se aplicarán las disposiciones de la Ley de Contratación Administrativa y su Reglamento.
+f. Una vez firme el acto administrativo que declara la venta el interesado contará con cinco días hábiles para hacer efectivo pago de los bienes, incluido el retiro de los mismos. En caso de que el beneficiario no retirara los bienes dentro del plazo indicado, sin que medie justificación amparada en caso fortuito, fuerza mayor, hechos atribuibles a la Administración o a un tercero, la Municipalidad podrá re-adjudicar la venta a la segunda mejor oferta, sin que le resulte atribuible responsabilidad alguna. Dicho plazo de cinco días hábiles podrá modificarse cuando el retiro de la chatarra o bienes en desuso deben coordinarse con otras instituciones, por corresponder a donaciones realizadas a favor de la municipalidad.
+g. La Proveeduría Municipal realizará el respectivo trámite para la eliminación de la placa de activos una vez que el proceso de contratación administrativo esté en firme, para efectos de ser entregados al adjudicatario.
+(Artículo aprobado en Acta N° 15-2021, mediante acuerdo N° tres de sesión extraordinaria N° 06-2021, celebrada el 03 de marzo del 2021).
