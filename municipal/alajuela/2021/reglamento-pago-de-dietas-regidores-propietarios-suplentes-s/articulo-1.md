@@ -1,0 +1,12 @@
+MUNICIPALIDAD DE ALAJUELA
+CONCEJO MUNICIPAL
+Para los fines legales correspondientes, le transcribo y notifico artículo Nº 2, capítulo IV de la Sesión Extraordinaria Nº 05-2021 del jueves 11 de febrero del 2021, aprobado por el Concejo Municipal de Alajuela.
+REGLAMENTO PAGO DE DIETAS REGIDORES
+PROPIETARIOS, SUPLENTES, SÍNDICOS
+PROPIETARIOS, SUPLENTES DEL
+CANTÓN CENTRAL DE ALAJUELA
+"El Concejo Municipal de la Municipalidad Cantón Central, en el ejercicio de las facultades que le confieren los artículos 169 y 170 de la Constitución Política, 4 inciso a) y 13 incisos c) y d) del Código Municipal, decreta el siguiente. A los miembros del Concejo Municipal les resulta de aplicación lo dispuesto en el numeral 42 de la Ley de Salarios de la Administración Pública n9635", establece:
+"Artículo 42.-Límite a las remuneraciones totales en la función pública. La remuneración total de aquellos servidores cuya designación sea por elección popular, así como los jerarcas, los titulares subordinados y cualquier otro funcionario del ámbito institucional de aplicación, contemplado en el artículo 26 de la presente ley, no podrá superar por mes el equivalente a veinte salarios base mensual de la categoría más baja de la escala de sueldos de la Administración Pública, salvo lo indicado en el artículo 41 sobre la remuneración del presidente. Se excluyen de esta norma los funcionarios de las instituciones y los órganos que operen en competencia, así como los que estén en servicio diplomático en el exterior.
+Para efectos de reconocimiento de dietas la Administración Municipal deberá revisar la retribución mensual reconocida a los integrantes de su Concejo Municipal, para determinar si se exceden o no los topes establecidos con la entrada en vigor de la Ley 9635.
+Artículo 1º-Pago de Dietas: Los Regidores (as) y Síndicos (as) y sus respectivas suplencias, tendrán derecho a devengar el pago de la dieta correspondiente, cuando asistan y permanezcan durante el desarrollo de cada Sesión Ordinaria semanal. De la misma forma, tendrán derecho al pago de la dieta por participar en cada una de las dos primeras Sesiones Extraordinarias del mes únicamente. Los Regidores(as), Síndicos(as), y sus respectivas suplencias, que llegasen después de transcurridos los quince minutos contados a partir de la hora señalada para iniciar la sesión, perderán el derecho de devengar la dieta, y el derecho a deliberar y a votar.
+Así mismo perderán la dieta los miembros del concejo que se retiran quince minutos antes de finalizar la sesión, sin autorización del presidente.
