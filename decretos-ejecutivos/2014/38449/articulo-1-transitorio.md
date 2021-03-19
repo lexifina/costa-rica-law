@@ -1,1 +1,0 @@
-Transitorio I.—El SENARA, AYA y DA en el plazo de un mes de la publicación del presente decreto, deberán ajustar los plazos de respuesta de sus reglamentos y procedimientos internos a lo dispuesto en el Reglamento de Perforación del Subsuelo para la Exploración y Aprovechamiento de Aguas Subterráneas.
