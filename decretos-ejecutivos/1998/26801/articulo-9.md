@@ -1,2 +1,2 @@
-Artículo 9°—Plazo del contrato.
-El plazo de los contratos de gestión interesada no podrá exceder de veinticinco años, el cual empezará a regir a partir de la fecha en que el acto de adjudicación adquiera firmeza. La Administración determinará en el cartel respectivo el plazo aplicable al proyecto de que se trate, tomando en consideración de acuerdo al estudio Financiero contemplado en el plan maestro.
+Artículo 9°-Plazo del contrato. El plazo de los contratos de gestión interesada no podrá exceder cincuenta años, el cual empezará a regir a partir de la fecha en que el acto de adjudicación adquiera firmeza. La Administración determinará en el cartel respectivo el plazo de cada contrato, el que no podrá 0ser ampliado más allá del plazo máximo establecido en este artículo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42928 del 19 de marzo del 2021)

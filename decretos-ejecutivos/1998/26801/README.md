@@ -14,3 +14,4 @@ Reglamento Contratos Gestión Interesada Servicios Aeroportuarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-31 | la propia norma |
+| 2 | 2021-03-19 | Decreto Ejecutivo 42928 (2021-03-19) |
