@@ -1,1 +1,2 @@
-Artículo 63. Empate en una segunda ronda. En caso de empate en una segunda ronda, queda electa la persona o las personas candidatas con la afiliación más antigua.
+Artículo 63. Segunda ronda: se llevará a cabo una segunda ronda electoral si dos o más personas candidatas obtuviesen la misma cantidad de votos para un mismo puesto, o en caso de que se resuelva afirmativamente algún recurso de apelación conforme lo establecido en el artículo 15 de este Reglamento.
+En caso de darse un nuevo empate en la segunda ronda, quedarán electas la persona o las personas candidatas con la afiliación más antigua.

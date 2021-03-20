@@ -1,1 +1,1 @@
-Artículo 29. El Tribunal, en la misma convocatoria a elecciones, invita a las personas colegiadas a inscribir sus candidaturas para los puestos elegibles de Junta Directiva y Fiscalía, siempre y cuando cumplan fielmente con todos los requisitos que se establecen en este Reglamento.
+Artículo 29. El Tribunal, en la misma convocatoria a elecciones, invitará a las personas colegiadas a inscribir sus candidaturas para los puestos elegibles de Junta Directiva y Fiscalía, siempre y cuando cumplan fielmente con todos los requisitos que se establecen en este Reglamento.

@@ -1,1 +1,1 @@
-Artículo 35. Las personas candidatas tienen derecho a realizar propaganda para la elección, de acuerdo con los cánones éticos definidos por el Código de Ética y Deontológico del Colegio y deben mantener el respeto hacia las otras personas postulantes a los distintos puestos.
+Artículo 35. Las personas candidatas tendrán derecho a realizar propaganda para la elección, de acuerdo con los cánones éticos definidos por el Código de Ética y Deontológico del Colegio y deben mantener el respeto hacia las otras personas postulantes a los distintos puestos.

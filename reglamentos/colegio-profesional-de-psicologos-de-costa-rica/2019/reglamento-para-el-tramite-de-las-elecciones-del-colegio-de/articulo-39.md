@@ -1,1 +1,2 @@
-Artículo 39. El uso y la orientación de la propaganda es responsabilidad de las personas candidatas. La propaganda debe ser dirigida a exaltar los méritos de las personas en contienda y a la exposición de programas e ideas que se propongan desarrollar en beneficio del gremio.
+Artículo 39. El uso y la orientación de la propaganda es responsabilidad de las personas candidatas. La propaganda debe dirigirse a exaltar los méritos de las personas en contienda y a la exposición de programas e ideas que se propongan desarrollar en beneficio del gremio.
+Queda prohibido incluir en la propaganda alusiones a grupos o personas candidatas con contenido discriminatorio o contrario a lo establecido en el Código de Ética del Colegio.

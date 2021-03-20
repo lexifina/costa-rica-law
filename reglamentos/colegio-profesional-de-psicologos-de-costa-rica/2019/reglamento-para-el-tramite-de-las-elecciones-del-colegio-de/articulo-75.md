@@ -1,1 +1,1 @@
-Artículo 75. Reposición de papeletas. En ningún caso se pueden reponer papeletas inutilizadas; estas se entregan al Tribunal junto con el resto de la documentación electoral y pasados tres (3) meses se destruyen y se envían a reciclaje.
+Artículo 75. Reposición de papeletas. En ningún caso podrán reponerse papeletas inutilizadas; estas se entregarán al Tribunal junto con el resto de la documentación electoral y, pasados tres (3) meses, se destruirán y enviarán para su reciclaje.

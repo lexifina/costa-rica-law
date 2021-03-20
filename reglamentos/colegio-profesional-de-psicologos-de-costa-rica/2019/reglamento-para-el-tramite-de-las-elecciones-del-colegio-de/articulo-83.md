@@ -1,1 +1,1 @@
-Artículo 83. Este Reglamento deroga las disposiciones normativas de rango similar sobre materia electoral del Colegio de Profesionales en Psicología de Costa Rica y rige a partir de la fecha de su publicación en el diario oficial La Gaceta.
+Artículo 83. Este Reglamento derogará las disposiciones normativas de rango similar sobre materia electoral del Colegio de Profesionales en Psicología de Costa Rica y regirá a partir de la fecha de su publicación en el diario oficial La Gaceta.

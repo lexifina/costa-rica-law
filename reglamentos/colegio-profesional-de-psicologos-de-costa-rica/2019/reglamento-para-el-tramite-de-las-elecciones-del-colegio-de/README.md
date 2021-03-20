@@ -14,3 +14,4 @@ Reglamento para el trámite de las elecciones del Colegio de Profesionales en Ps
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-06-13 | la propia norma |
+| 2 | 2021-03-20 | Reglamento 126 (2021-03-20) |

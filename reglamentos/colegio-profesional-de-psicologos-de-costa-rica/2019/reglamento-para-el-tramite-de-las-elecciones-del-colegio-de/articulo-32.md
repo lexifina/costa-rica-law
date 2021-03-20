@@ -1,2 +1,2 @@
-Artículo 32. Del examen y resolución de las candidaturas propuestas. Vencido el plazo para la inscripción de candidaturas, el Tribunal las examina y procede a rechazar las solicitudes que no cumplan con todos los requisitos; lo anterior en un plazo de tres (3) días hábiles.
+Artículo 32. Del examen y resolución de las candidaturas propuestas. Vencido el plazo para la inscripción de candidaturas, el Tribunal las examinará y procederá a rechazar las solicitudes que no cumplan con todos los requisitos en un plazo de tres (3) días hábiles.
 Las resoluciones que tome el Tribunal serán notificadas a las personas designadas en las fiscalías generales, en el lugar o medio señalado para recibir notificaciones.

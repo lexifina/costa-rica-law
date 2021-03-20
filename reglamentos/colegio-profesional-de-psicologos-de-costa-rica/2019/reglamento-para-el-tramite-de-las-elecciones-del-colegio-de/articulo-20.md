@@ -1,1 +1,1 @@
-Artículo 20. Tratándose de elecciones ordinarias: el acuerdo para la convocatoria a elecciones será coordinado con la Junta Directiva, a afecto de indicar la fecha de la Asamblea General en la que se dé a conocer el resultado de las elecciones y se juramente en ella a las personas elegidas.
+Artículo 20. Tratándose de elecciones ordinarias: el acuerdo para la convocatoria a elecciones coordinado con la Junta Directiva indicará la fecha de la Asamblea General en la que se dará a conocer el resultado de las elecciones y se juramentará a las personas elegidas.
