@@ -13,3 +13,4 @@ Cobro de horas extras se reconoce únicamente el tiempo efectivo de trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-05 | la propia norma |
+| 2 | 2021-03-22 | Circular 63 (2021-03-22) |
