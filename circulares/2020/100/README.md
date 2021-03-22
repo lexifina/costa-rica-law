@@ -21,3 +21,4 @@ Acuerdo de Corte Plena. Sesión N° 26-2020 del 13 de mayo del 2020, en atenció
 | 7 | 2020-09-30 | Circular 214 (2020-09-30) |
 | 8 | 2020-11-24 | Circular 265 (2020-11-24) |
 | 9 | 2021-01-11 | Circular 6 (2021-01-11) |
+| 10 | 2021-03-22 | Circular 60 (2021-03-22) |
