@@ -1,0 +1,5 @@
+Artículo 3°-Modifícase el párrafo final y agréguese un nuevo párrafo final del artículo 3 "Cobro final", de manera que se lea de la siguiente forma:
+"Artículo 3°-Cobro final
+(.)
+En el caso de la Superintendencia de Pensiones y de la Superintendencia General de Entidades Financieras, la administración podrá aplicar el saldo a favor del sujeto fiscalizado o efectuar un crédito, cuando se cuente con la autorización del Banco Central de Costa Rica.
+En caso de la Superintendencia General de Valores, cuando el cálculo del cobro final resulte en un saldo a favor del sujeto fiscalizado o emisor, éste se aplicará al pago del mes en que se determine la existencia de ese saldo y a los subsiguientes, en caso de que se mantenga el excedente, hasta su agotamiento o efectuar un crédito, cuando se cuente con la autorización del Banco Central de Costa Rica. Si un emisor tiene un saldo a favor pero se desinscribió durante el año y por ende no contribuye mediante pagos mensuales al momento del cálculo del cobro final, el monto correspondiente deberá ser depositado en la cuenta que la entidad indique."
