@@ -1,0 +1,1 @@
+Artículo 70° --Todos los demás cargos deberán llenar el perfil del Manual Descriptivo de Clasificación y Valoración de Puestos elaborado por el Comité Cantonal de Deportes y Recreación de Liberia con la aprobación del Concejo municipal, en caso de no existir se utilizará el de la Municipalidad de Liberia y serán escogidos por concurso público externo.

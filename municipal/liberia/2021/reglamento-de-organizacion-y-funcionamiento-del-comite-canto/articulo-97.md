@@ -1,0 +1,1 @@
+Artículo 97° --La Junta Directiva no autorizará entrega de implementos deportivos cuando no se cumpla con los requisitos establecidos en el presente Reglamento. La gestión ante dicha Junta debe ser presentada por escrito por el Director Deportivo con anterioridad.

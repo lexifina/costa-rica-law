@@ -1,0 +1,1 @@
+Artículo 77° --El Comité Cantonal presentará al Concejo Municipal para efectos de conocimiento, tanto el presupuesto ordinario como los extraordinarios, los que deberán sujetarse a las disposiciones que en tal sentido dicte la Contraloría General de la República y deberán elaborarse en forma acorde con los programas incluidos en el plan de trabajo anual.

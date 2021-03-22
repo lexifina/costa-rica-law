@@ -1,0 +1,4 @@
+CAPÍTULO III
+De las funciones del comité cantonal de deportes y recreación
+DE LA JUNTA DIRECTIVA
+Artículo 9º --La Junta Directiva del Comité Cantonal es la máxima autoridad de la institución y es la encargada de su gobierno, administración y dirección. Cada año, la Junta Directiva elaborará, aprobará y enviará al Concejo Municipal para su conocimiento, el Plan Operativo Anual y el Presupuesto Anual. Para lograr que estos documentos sean los óptimos, el Comité Cantonal deberá realizar un planeamiento estratégico que posibilite desarrollar integralmente el deporte y la recreación en el Cantón. Este Plan Operativo Anual, tomará en cuenta a los Concejos de Distrito y a los Comités Comunales del Cantón de Liberia, para que a partir del 1° mayo en un plazo perentorio de quince días naturales deben emitir sus observaciones y aportes a dicho plan.

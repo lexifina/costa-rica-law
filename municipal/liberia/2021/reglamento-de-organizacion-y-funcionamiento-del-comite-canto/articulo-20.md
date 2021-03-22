@@ -1,0 +1,9 @@
+Artículo 20° --Son funciones del Tesorero de la Junta Directiva, las que se detallan enseguida:
+1) Vigilar que los recursos económicos del Comité y el manejo de éstos, se ajuste en forma estricta a las más sanas prácticas financieras, contables y de control, de manera que se obtenga el mayor provecho de ellos.
+2) Fiscalizar que la recaudación de los ingresos económicos, ordinarios y extraordinarios del Comité, se realice siguiendo la normativa legal y de control vigente, de forma que los dineros ingresen a la cuenta corriente inmediatamente y se inviertan sanamente.
+3) Vigilar que la contabilidad se lleve siguiendo modernas prácticas, de forma que se asegure el correcto manejo del dinero.
+4) Fiscalizar que las cuotas, participaciones, donaciones, cánones y demás tipos de ingreso que entren a los fondos del Comité, sean inmediatamente depositados y se extiendan los respectivos recibos por el o los funcionarios autorizados.
+5) Vigilar que las recomendaciones de la Auditoria Municipal, en materia financiera y económica, se apliquen en forma estricta por parte de la administración y hacerlas recomendaciones, que considere convenientes y prudentes, a la Junta Directiva para que el manejo económico del Comité sea absolutamente sano y el presupuesto se emplee de la forma en que fue aprobado y de la mejor manera posible.
+6) Preparar y autorizar trimestralmente con su firma el informe económico que debe presentar la Junta Directiva del Comité Cantonal de Deportes y Recreación de Liberia al Concejo Municipal de Liberia.
+7) Vigilar que la caja chica sea manejada, cumpliendo en forma estricta las disposiciones que sean vigentes para esta modalidad de gastos y con estricto apego a la racionalidad en el gasto de dinero público conforme al Reglamento de Caja Chica de la Municipalidad de Liberia.
+8) Cualquier otra atinente al cargo.

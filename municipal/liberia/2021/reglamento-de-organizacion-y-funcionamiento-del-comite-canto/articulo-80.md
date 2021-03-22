@@ -1,0 +1,1 @@
+Artículo 80° --El Comité Cantonal y los Comités adscritos, cuando de construir, remodelar o de cualquier otra forma deba de invertir en obras de infraestructura deportiva y recreacional, sólo lo podrá hacer en obras que estén asentadas en terrenos y propiedades de la Municipalidad de Liberia.

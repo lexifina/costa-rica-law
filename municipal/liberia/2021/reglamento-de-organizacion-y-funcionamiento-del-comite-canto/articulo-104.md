@@ -1,0 +1,1 @@
+Artículo 104° --Las organizaciones que se encuentran inscritas no podrán solicitar implementos deportivos, en caso de que haya transcurrido un período menor de 6 meses desde la última entrega efectuada, exceptuándose para tal fin un documento razonado, que demuestra tal necesidad no podrá darse más de dos excepciones por año.

@@ -1,0 +1,1 @@
+Artículo 63° --El comité cantonal de la persona joven designará dos de los miembros de la Junta Directiva de los Comités comunales según lo establece el artículo 175 del código municipal, respetando el principio de paridad de género.

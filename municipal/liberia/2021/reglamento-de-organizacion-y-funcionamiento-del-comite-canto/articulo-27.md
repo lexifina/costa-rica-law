@@ -1,0 +1,1 @@
+Artículo 27° --Cuando un integrante de la Junta Directiva no asista a una sesión, deberá comunicar por escrito en la oficina del Comité Cantonal, o Presidencia de la Junta, la justificación de su inasistencia. Para hacerlo por escrito contará con un plazo máximo de veinticuatro horas siguientes de celebrada la sesión.

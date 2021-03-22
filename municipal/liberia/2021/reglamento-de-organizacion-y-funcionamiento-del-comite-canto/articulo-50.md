@@ -1,0 +1,1 @@
+Artículo 50° --De la juramentación del Comité Cantonal de Deportes. El Comité Cantonal de Deportes y Recreación, en pleno será juramentado por el Concejo Municipal, el primero de noviembre de cada dos años, o en la primera sesión ordinaria del mes de noviembre de cada dos años.

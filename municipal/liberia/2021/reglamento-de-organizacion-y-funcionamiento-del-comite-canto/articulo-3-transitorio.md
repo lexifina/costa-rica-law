@@ -1,0 +1,1 @@
+III. Solicitar a la Alcaldía Municipal, que en un plazo máximo de quince días naturales se envíe a publicar el presente proyecto de Reglamento, a fin de conocer las recomendaciones, si es que se emiten y volver a publicarlo conforme ordena la ley.

@@ -1,0 +1,7 @@
+Artículo 3º --El Comité Cantonal de Deportes y Recreación
+A) En cumplimiento de sus fines y dentro del marco de sus competencias legalmente establecidas, podrá realizar sus funciones individualmente o en coordinación con El Concejo Municipal de Liberia, entidad a la cual se encuentra adscrita y en ese sentido subordinada jerárquicamente.
+B) Para la función y cumplimiento de sus fines mantendrá relaciones con el Ministerio de Deporte, el Instituto Costarricense del Deporte y la Recreación, las asociaciones deportivas debidamente inscritas con personería jurídica propia, las asociaciones de desarrollo comunal integrales y específicas debidamente inscritas con personería jurídica propia, y a través de otros entes u órganos públicos competentes en la materia, la gestión y promoción del desarrollo del deporte y la recreación a nivel cantonal.
+C) De igual forma promoverá la creación y funcionamiento de los comités comunales y subcomités de barrios de deporte y recreación adscritos al Comité Cantonal.
+D) El Comité Cantonal, de conformidad con el artículo 179 del Código Municipal, podrá presupuestar y destinar recursos pecuniarios para la ejecución directa e indirecta, según proceda conforme a derecho, de los programas y proyectos que se gestionen y promuevan en el cantón.
+Estos deberán ajustarse al plan anual operativo de ese Comité avalado por el Concejo municipal de Liberia.
+E) En caso de no ser aprobado el presupuesto municipal del período, se mantendrá el presupuesto aprobado del año anterior para el CCDRL.

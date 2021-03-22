@@ -1,0 +1,1 @@
+Artículo 90° --El mantenimiento de canchas de fútbol, específicamente de su gramilla, deberá efectuarse de forma permanente durante todos los meses del año, debiendo permanecer totalmente cerradas al público en caso de inundación o sequía, mientras duren los trabajos de mantenimiento de dicha instalación.

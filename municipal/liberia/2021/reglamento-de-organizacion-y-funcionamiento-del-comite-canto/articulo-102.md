@@ -1,0 +1,1 @@
+Artículo 102° --Es obligación de la Dirección Deportiva, mantener un auxiliar de las requisiciones de bodega de las entregas que se han hecho y presentar un informe mensual para ser conocido por la Junta Directiva del Comité Cantonal.

@@ -1,0 +1,1 @@
+Artículo 89° --El mantenimiento y administración de las instalaciones deportivas en cada uno de los distritos conforme corresponda, estará a cargo del Comité Comunal respectivo o Junta Administradora. Para tal efecto, este Comité contará con la asesoría y cooperación técnica de los ingenieros municipales.

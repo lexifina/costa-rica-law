@@ -1,0 +1,1 @@
+Artículo 34° --Una vez concluida la sesión correspondiente, el Secretario del Comité y/o Junta preparará un proyecto de acta que deberá entregar a los miembros de la Junta y/o Comité, por lo menos con veinticuatro horas de anticipación, a la sesión en que serán discutidas y aprobadas.
