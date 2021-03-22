@@ -1,4 +1,5 @@
 CAPÍTULO IV
 SECCIÓN I
 Comité Corporativo
-Artículo 23.-Comité Corporativo. Es el mecanismo de articulación entre el ICE y sus empresas cuyo objetivo es fortalecer los procesos estratégicos y su implementación, la definición y seguimiento del portafolio de proyectos corporativos, así como la valoración de las inversiones corporativas del Grupo ICE.
+Artículo 23.-Comité Corporativo. Órgano de apoyo al Centro Corporativo en la coordinación y articulación de temas estratégicos que procuran la sostenibilidad, competitividad y evolución del ICE y sus empresas.
+(Así reformado mediante publicación en La Gaceta N° 66 del 7 de abril del 2021)
