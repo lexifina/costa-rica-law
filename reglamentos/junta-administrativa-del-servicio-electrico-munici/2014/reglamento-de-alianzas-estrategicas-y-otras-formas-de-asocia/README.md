@@ -14,3 +14,4 @@ Reglamento de alianzas estratégicas y otras formas de asociación y colaboraci�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-29 | la propia norma |
+| 2 | 2021-03-22 | Reglamento 23 (2021-03-22) |
