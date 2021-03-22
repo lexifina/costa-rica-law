@@ -1,0 +1,3 @@
+TRANSITORIO ÚNICO - El valor de venta de los inmuebles contenidos en los tres planos catastrados, cuyos números son dos-dos cero cinco seis seis cinco cinco-dos cero uno ocho (Nº 2-2056655-2018); dos-dos cero seis cero dos dos cero-dos cero uno ocho (Nº 2-2060220-2018) y dos-dos cero cinco seis seis cinco tres-dos cero uno ocho (Nº 2-2056653-2018), debe ser determinado por el Ministerio de Hacienda, quienes deben proceder con el avalúo respectivo a partir de la vigencia de esta ley en un plazo no mayor a seis meses y, posteriormente, notificarlo a las partes implicadas.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veintitrés días del mes de febrero del año dos mil veintiuno.
