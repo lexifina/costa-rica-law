@@ -19,3 +19,4 @@ Acuerdo de Corte Plena. Sesión N° 42-2020 del 20 de julio de 2020, en atenció
 | 5 | 2020-09-30 | Circular 214 (2020-09-30) |
 | 6 | 2020-11-24 | Circular 265 (2020-11-24) |
 | 7 | 2021-01-11 | Circular 6 (2021-01-11) |
+| 8 | 2021-03-22 | Circular 60 (2021-03-22) |
