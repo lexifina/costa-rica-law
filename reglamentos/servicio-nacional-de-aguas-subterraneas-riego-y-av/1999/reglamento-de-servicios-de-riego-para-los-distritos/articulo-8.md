@@ -1,1 +1,1 @@
-Artículo 8°—El SENARA cobrará el servicio de riego directamente en sus Oficinas. También podrá, previa comunicación a los usuarios, realizar la recaudación de las tarifas por medio de un tercero, con el cual suscriba un contrato para este fin.
+Artículo 8°-El SENARA cobrará el servicio de riego directamente en sus Oficinas. También podrá, previa comunicación a los usuarios, realizar la recaudación de las tarifas por medio de un tercero, con el cual suscriba un contrato para este fin.

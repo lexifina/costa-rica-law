@@ -1,6 +1,5 @@
-CAPITULO IV
-Prohibiciones
-Artículo 14.—Queda prohibido al usuario lo siguiente:
+CAPITULO IV: Prohibiciones
+Artículo 14. -Queda prohibido al usuario lo siguiente:
 14.1. Colocar cercas u obstáculos en canales de riego, drenaje y derechos de vía de SENARA.
 14.2. Usar los canales como paso de animales o maquinaria en sitios diferentes a los dispuestos para tal efecto por el SENARA.
 14.3. Apropiarse de un caudal superior al establecido en el Plan de Riego.
