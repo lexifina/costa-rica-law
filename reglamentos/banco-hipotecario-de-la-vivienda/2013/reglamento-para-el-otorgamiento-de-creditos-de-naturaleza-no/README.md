@@ -15,3 +15,4 @@ Reglamento para el otorgamiento de créditos de naturaleza no habitacional en la
 | --- | --- | --- |
 | 1 | 2013-08-03 | la propia norma |
 | 2 | 2020-01-13 | Reglamento 3 (2020-01-13) |
+| 3 | 2021-03-22 | Reglamento 23 (2021-03-22) |

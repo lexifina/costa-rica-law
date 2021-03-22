@@ -1,0 +1,2 @@
+Transitorio: Hasta tanto se emita la norma que vendrá a sustituir de manera definitiva el Acuerdo 1-05, Reglamento para la calificación de los deudores, las garantías diferentes a las reales que podrá incorporar la cartera de crédito de las Mutuales de Ahorro y Préstamo corresponderán a las que se encuentran establecidas en la propuesta del Reglamento sobre Cálculo de Estimaciones Crediticias, Acuerdo SUGEF 1-21."
+(Así adicionado mediante sesión N° 23-2021 del 22 de marzo de 2021)
