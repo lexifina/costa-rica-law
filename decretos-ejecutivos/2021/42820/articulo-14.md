@@ -1,0 +1,1 @@
+Artículo 14.-Incumplimiento. Si el sujeto obligado incumpliera el arreglo de pago, la Sugef procederá a realizar el trámite de cobro ante las instancias judiciales correspondientes. No se podrá autorizar un nuevo arreglo de pago, con base en la suma originada en el incumplimiento de uno anterior.

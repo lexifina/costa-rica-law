@@ -1,0 +1,3 @@
+Artículo 10.-Cobro a nuevos sujetos obligados que se inscriban durante el año. Las personas físicas o jurídicas que se inscriban a lo largo del año pagarán el monto del canon de acuerdo al tipo de sujeto obligado que resulte de su clasificación, en forma proporcional a los meses y fracción de mes que falten para completar el año.
+Dicho pago se debe realizar dentro de los quince días hábiles siguientes a la fecha en que la Sugef le notifique el tipo de sujeto obligado resultante y el monto proporcional a pagar.
+Por tener carácter de pago anual, no corresponderá realizar devolución alguna a las personas físicas o jurídicas que se desinscriban, a las que se les suspenda su inscripción o a las que se les revoque su inscripción a lo largo del año.

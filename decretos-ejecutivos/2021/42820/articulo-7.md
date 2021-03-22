@@ -1,0 +1,1 @@
+Artículo 7º-Publicación del canon anual. En marzo de cada año, el Conassif publicará en el Diario Oficial La Gaceta, el monto aprobado por concepto del canon de contribución por tipo de sujeto obligado.

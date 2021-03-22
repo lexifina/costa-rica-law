@@ -1,0 +1,4 @@
+Artículo 13.-Requisitos. Para el arreglo de pago se deberá cumplir con los siguientes requisitos:
+a) El deudor debe presentar la solicitud de arreglo de pago por los medios que disponga la Sugef. En caso de personas jurídicas la solicitud debe estar firmada por el representante legal, y en caso de personas físicas, por sí mismo.
+b) Con la solicitud el sujeto obligado debe asegurar que la cuenta registrada ante la Sugef y autorizada para ejecutar el débito, posee contenido económico suficiente para ejecutar el cobro de al menos la tercera parte del adeudo principal. De no ser posible realizar este cobro, se rechazará ad portas la solicitud de arreglo de pago. No se permite otro medio de pago diferente al rebajo del monto de la cuenta registrada.
+c) El monto adeudado debe ser superior al monto que deben pagar los sujetos obligados calificados como Tipo 3, en la fecha en que se publica el monto del canon del período en el que se origina el atraso.

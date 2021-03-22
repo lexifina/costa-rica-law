@@ -1,0 +1,6 @@
+CAPÍTULO III
+Procedimiento de cobro
+Artículo 6º-Cuantificación del canon anual. El Conassif fijará en febrero de cada año el canon con el que contribuirá cada sujeto obligado de acuerdo con la metodología vigente, para lo cual considerará la clasificación según el tipo de sujeto obligado vigente, la cantidad de sujetos inscritos, así como los costos ejecutados por la supervisión a estos sujetos obligados, al 31 de diciembre del año anterior.
+Dado su carácter de contraprestación anual, no está sujeta al tope del 2% de los ingresos brutos dispuesto en el artículo 175 de la Ley 7732 y no corresponderá realizar devolución alguna a las personas físicas o jurídicas que se desinscriban, a las que se les suspenda su inscripción o a las que se les revoque su inscripción en el transcurso del año.
+Para efectos de este Reglamento, se entenderá que el gasto de la Sugef incluye adicionalmente el gasto del Conassif que se le asigna anualmente a cada superintendencia de manera proporcional, de conformidad con sus respectivos presupuestos.
+Los gastos efectivamente incurridos de la Sugef serán financiados en un 50% con recursos provenientes del Banco Central de Costa Rica y el otro 50% se financiará por medio de las contribuciones de los sujetos obligados y sujetos fiscalizados.

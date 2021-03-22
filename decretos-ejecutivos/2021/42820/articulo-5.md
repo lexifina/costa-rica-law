@@ -1,0 +1,1 @@
+Artículo 5º-Reclasificación resultante de procesos de supervisión. Si como resultado de los procesos de supervisión se generan cambios en la clasificación del tipo de sujeto obligado, esto no implica un ajuste en el canon para el período en que se dio el cambio.

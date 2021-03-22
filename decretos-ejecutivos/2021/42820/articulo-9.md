@@ -1,0 +1,4 @@
+Artículo 9º-Gestión y plazo de cobro e incumplimiento. Durante mayo de cada año, la Sugef procederá a realizar el débito del canon, de las cuentas que el sujeto obligado registró como de uso exclusivo para la o las actividades inscritas y que autorizó para que se efectúe el débito directo contra la misma, conforme los procedimientos establecidos al efecto.
+En el caso de que el sujeto obligado registre y autorice una cuenta en dólares de los Estados Unidos de América, el canon será cobrado en colones al tipo de cambio de venta del dólar del Banco Central de Costa Rica, del día en que se aplique el cobro.
+El plazo para efectuar el pago del canon sin cargo de intereses moratorios vence el último día hábil del mes de mayo de cada año.
+El sujeto obligado debe asegurar contenido económico suficiente en las cuentas registradas, para que se pueda realizar el cobro.
