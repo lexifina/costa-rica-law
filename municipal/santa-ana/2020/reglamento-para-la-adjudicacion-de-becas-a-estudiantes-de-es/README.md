@@ -14,3 +14,4 @@ Reglamento para la adjudicación de becas a estudiantes de escasos recursos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-02 | la propia norma |
+| 2 | 2021-03-23 | Reglamento municipal 47 (2021-03-23) |
