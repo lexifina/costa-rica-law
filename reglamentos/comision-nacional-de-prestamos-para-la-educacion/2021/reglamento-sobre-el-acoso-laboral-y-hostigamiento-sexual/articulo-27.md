@@ -1,0 +1,1 @@
+Artículo N° 27.-Normativa complementaria: En todo aquello no previsto en el presente reglamento se aplicará lo establecido en la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia N° 7476 y el Código de Trabajo.

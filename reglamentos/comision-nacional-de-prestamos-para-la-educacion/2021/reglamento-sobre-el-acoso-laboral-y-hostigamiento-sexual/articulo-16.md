@@ -1,0 +1,1 @@
+Artículo N° 16.-Plazo para la sanción: El plazo de prescripción para disciplinar al colaborador que incurra en hostigamiento sexual es de un mes, contado a partir de la fecha en la que la CEA rinde el informe final ante la Secretaria Ejecutiva. Para los casos determinados en el artículo 14, el Consejo Directivo debe resolver en dicho plazo.

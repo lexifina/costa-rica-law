@@ -1,0 +1,15 @@
+Artículo N° 5-Modalidades de Acoso Laboral: El acoso laboral puede darse, entre otras, bajo las siguientes modalidades generales:
+1. Maltrato laboral. Todo acto de violencia contra la integridad física o moral, la libertad física o sexual y los bienes de quien se desempeñe como funcionario o funcionaria; toda expresión verbal injuriosa o ultrajante que lesione la integridad moral o los derechos a la intimidad y al buen nombre, todo comportamiento tendiente a menoscabar la autoestima y la dignidad de quien participe en una relación de trabajo de tipo laboral.
+2. Persecución laboral: toda conducta cuyas características de reiteración o evidente arbitrariedad permitan inferir el propósito de inducir la renuncia del funcionario o de la funcionaria, mediante la, amenaza o intimidación, la carga excesiva de trabajo y cambios permanentes de horario que puedan producir desmotivación laboral.
+3. Discriminación laboral: todo trato diferenciado por razones de raza, género, origen familiar o nacional, credo religioso, preferencia sexual, preferencia política o situación social o que carezca de toda razonabilidad desde el punto de vista laboral.
+4. Entorpecimiento laboral: toda acción tendiente a entorpecer el cumplimiento de la labor, hacerla más gravosa, retardarla con perjuicio para el funcionario o la funcionaria. Constituyen acciones de entorpecimiento laboral, entre otras, la privación, ocultación, inutilización de los insumos, documentos, instrumentos para la labor, el ocultamiento de correspondencia o mensajes electrónicos.
+5. Iniquidad laboral: Asignación de funciones ajenas al cargo o a sus atribuciones específicas en menosprecio del funcionario o de la funcionaria.
+6. Desprotección laboral: Toda conducta tendiente a poner en riesgo la integridad y la seguridad del funcionario o funcionaria mediante órdenes o asignación de funciones sin el cumplimiento de los requisitos mínimos de protección y seguridad.
+7. Agresión: Ataque provocado producto de la práctica o del hábito de ser agresivo. Es una conducta hostil o destructiva cuya finalidad es provocar un daño a otro.
+No constituye por ningún motivo acoso laboral, entre otras, lo que corresponde legalmente a la jefatura sobre sus colaboradores, entre ellas:
+a. las órdenes dadas por la jefatura para el fiel cumplimiento de las labores;
+b. los actos destinados a ejercer la potestad disciplinaria;
+c. la formulación de exigencias razonables para la elaboración de un trabajo, o cumplimiento de funciones;
+d. la formulación de circulares o memorandos encaminados a mejorar la eficiencia laboral, conforme a la normativa interna y ley aplicable al caso;
+e. las actuaciones administrativas o gestiones encaminadas a dar por terminado el contrato de trabajo, con base en una causa legal o una justa causa, prevista en la normativa interna, Código de Trabajo o leyes conexas;
+f. la solicitud que realice una jefatura del acatamiento de las prohibiciones y deberes establecidos en la normativa interna, Código de Trabajo y leyes conexas.

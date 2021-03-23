@@ -1,0 +1,7 @@
+Artículo N° 29.-Otras disposiciones: La Sección de Recursos Humanos tomará cualquier otra acción necesaria para restablecer un ambiente laboral adecuado.
+a. Podrán tomarse acciones preventivas o correctivas en caso de que la investigación resulte ser no concluyente o que se determine que no ha ocurrido discriminación, acoso, hostigamiento o agresión, en violación del presente reglamento, pero se revelare la existencia de alguna conducta que sea potencialmente problemática.
+b. Firme la resolución que concluya formalmente la investigación, la Sección de Recursos Humanos se reunirá con las partes de forma separada con el fin de:
+b.1 Corregir, coadyuvar y dar acompañamiento, sobre los hallazgos, conductas y suministrarles la información pertinente con relación a los resultados de la investigación.
+b.2 Brindar el apoyo necesario a la víctima y de seguimiento al denunciado a fin de evitar que se generen nuevas conductas.
+c. De ser necesario la Comisión o la Sección de Recursos Humanos puede solicitar contratar servicios profesionales en diferentes áreas para el apoyo a la víctima o bien para prevenir situaciones objeto del presente reglamento dentro de la institución. La administración deberá permitir la asignación de recursos como una prioridad en el tema, por lo que se deberá guardar una partida en el presupuesto institucional anualmente, para el apoyo y asesoría como contingencia.
+d. De requerir servicios de un especialista para la o las víctimas, se canalizará por medio del médico de empresa.
