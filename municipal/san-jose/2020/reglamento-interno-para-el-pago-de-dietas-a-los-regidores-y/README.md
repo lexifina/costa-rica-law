@@ -14,3 +14,4 @@ Reglamento interno para el pago de dietas a los regidores y síndicos propietari
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-19 | la propia norma |
+| 2 | 2021-03-23 | Reglamento municipal 46 (2021-03-23) |
