@@ -1,1 +1,1 @@
-Artículo 2º—Ofrecer una ventaja a los clientes, para realizar la tramitación de publicaciones y demás servicios que ofrece la institución, de forma rápida y expedita, tomando en consideración el sistema de pago centralizado que posee el sector gobierno, amparado a pronunciamiento Nº DAG-0608-2008, de fecha 15 de mayo del 2008, Oficio Nº 04362, de la División de Asesoría y Gestión Jurídica de la Contraloría General de la República.
+Artículo 2º-(Derogado en sesión N° 09 del 23 de marzo del 2021)

@@ -1,1 +1,2 @@
-Artículo 18.—Los clientes de crédito, pueden presentar las garantías de pago específicas o abiertas para más facilidad de tramitación, según los lineamientos estipulados en el artículo 46, de la Ley de Administración Pública y Presupuestos Públicos y demás normativa vigente.
+Artículo 18.-Los clientes de crédito, pueden presentar las garantías de pago específicas o abiertas para más facilidad de tramitación, según los lineamientos estipulados en el artículo 46, de la Ley de Administración Pública y Presupuestos Públicos y demás normativa vigente. (*)Cuando sean abiertas, deben registrarlas en SICOP una vez al año.
+(*) (Así adicionado el párrafo anterior en session N° 09 del 23 de marzo del 2021)

@@ -1,1 +1,1 @@
-Artículo 13.—En caso que lo considere necesario, el cliente acepta y autoriza que la Imprenta Nacional, investigue la información proporcionada en las solicitudes, Reservas Presupuestarias, Órdenes de Compra, Órdenes de Pedido y demás documentos presentados para trámites de servicios de crédito.
+Artículo 13.- (Derogado en sesión N° 09 del 23 de marzo del 2021)

@@ -1,1 +1,1 @@
-Artículo 21.—El firmante de cada certificación al dorso en la garantía de pago abierta, se responsabiliza por el respaldo económico presentado, garantizando el pago de la factura de crédito y exonera a la Imprenta Nacional, en caso de un mal uso de la garantía, a lo interno de su representada.
+Artículo 21.- (Derogado en sesión N° 09 del 23 de marzo del 2021)

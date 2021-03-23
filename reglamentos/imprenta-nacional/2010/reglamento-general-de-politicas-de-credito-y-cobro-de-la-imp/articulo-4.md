@@ -1,1 +1,2 @@
-Artículo 4º—Los plazos son definidos por la Junta Administrativa, autoridad facultada para ordenar cualquier cambio en los mismos.
+Artículo 4º- El plazo para el pago es de hasta 45 días naturales. Dichos plazos se contabilizan a partir de la fecha en la que el cliente recibe la factura que emita la Junta Administrativa. No obstante, dicho plazo se suspende cuando el cliente no puede pagar por razones imputables a la Administración, pero no cuando sea por causas atribuibles al deudor.
+(Así reformado en sesión N° 09 del 23 de marzo del 2021)

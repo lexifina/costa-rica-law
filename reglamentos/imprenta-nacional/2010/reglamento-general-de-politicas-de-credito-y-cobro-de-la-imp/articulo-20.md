@@ -1,1 +1,1 @@
-Artículo 20.—Posterior al cumplimiento del artículo Nº 19 de este Reglamento, cada servicio que el cliente solicite, deberá presentar una copia fotostática de la garantía de pago, certificada al dorso por el responsable de Presupuesto de cada Institución, donde autorice mediante su firma original el servicio solicitado e indique que la misma es copia fiel de la original y que posee el debido respaldo económico y el saldo con el que cuenta a esa fecha.
+Artículo 20.- (Derogado en sesión N° 09 del 23 de marzo del 2021)

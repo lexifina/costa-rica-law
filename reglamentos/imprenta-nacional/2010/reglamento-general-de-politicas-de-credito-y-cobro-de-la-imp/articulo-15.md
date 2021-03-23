@@ -1,1 +1,1 @@
-Artículo 15.—La Imprenta Nacional se reserva el derecho de otorgar, limitar o cancelar la solicitud de crédito solicitado, según lo estime conveniente y en cualquier tiempo sin previa aprobación del cliente.
+Artículo 15.- (Derogado en sesión N° 09 del 23 de marzo del 2021)

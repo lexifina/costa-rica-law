@@ -1,1 +1,1 @@
-Artículo 12.—Con la firma del formulario de “Inscripción de Cliente de Crédito”, el cliente acepta que conoce y respetará las Políticas y el Reglamento de Crédito y Cobro de la Imprenta Nacional y declara que la información proporcionada es veraz y confiable, además de que se encuentra en estado de solvencia y dispone de suficiente liquidez presupuestaria y financiera para responder a los compromisos adquiridos con esta Institución.
+Artículo 12.- (Derogado en sesión N° 09 del 23 de marzo del 2021)

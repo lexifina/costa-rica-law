@@ -1,1 +1,2 @@
-Artículo 10.—El crédito rige a partir de la fecha del acuerdo en firme donde se aprueba la solicitud realizada por el cliente.
+Artículo 10º-. El crédito en las condiciones indicadas en el artículo 3º, se obtiene con la sola formalización de la contratación a través del Sistema Unificado Electrónico de Compras Públicas. Este aplicará para compras de una sola vez o para contrataciones por demanda, por lo tanto, en cada orden de pedido o solicitud de servicios, el cliente debe indicar el número de contratación asignado por dicho Sistema.
+(Así reformado en sesión N° 09 del 23 de marzo del 2021)

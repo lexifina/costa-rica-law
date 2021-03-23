@@ -1,1 +1,1 @@
-Artículo 14.—La Imprenta Nacional se compromete a archivar toda la documentación obtenida en el expediente de crédito del cliente, como estrictamente confidencial y de uso exclusivo de la Imprenta Nacional, únicamente para fines de crédito.
+Artículo 14.- (Derogado en sesión N° 09 del 23 de marzo del 2021)

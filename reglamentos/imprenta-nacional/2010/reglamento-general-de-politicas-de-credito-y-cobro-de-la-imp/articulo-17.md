@@ -1,3 +1,3 @@
 CAPÍTULO IV
 Garantía de los créditos
-Artículo 17.—Todos los servicios solicitados bajo la modalidad de crédito deben poseer su respectivo respaldo económico como garantía de pago, mediante Orden de Compra, Orden de Pedido o Reserva Presupuestaria, cumpliendo con los requisitos de logo, fecha, monto, detalle, con sellos y firmas de los responsables y contar con los recursos presupuestarios suficientes para hacerle frente a la erogación del gasto, según el artículo Nº 8 de la Ley de Contratación Administrativa y su Reglamento, con el propósito de respaldar a la administración con una adecuadamente los fondos públicos.
+Artículo 17.- (Derogado en sesión N° 09 del 23 de marzo del 2021)
