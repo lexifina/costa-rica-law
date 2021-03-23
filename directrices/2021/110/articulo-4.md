@@ -1,0 +1,1 @@
+Artículo 4°.- Todos aquellos servidores públicos que sean requeridos por los Comités Municipales de Emergencia, deberán brindar la colaboración necesaria según lo que sea dispuesto por la Comisión Nacional de Emergencias y Prevención del Riesgo para la atención del estado de emergencia nacional ocasionado por el COVID-19.
