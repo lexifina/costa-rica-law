@@ -1,0 +1,1 @@
+ARTÍCULO 56. Informes del Asesor Jurídico del Concejo. En este apartado la asesoría jurídica expondrá los informes que previamente le haya instruido el Concejo municipal o cualquier otro que fuera relevante y pertinente.

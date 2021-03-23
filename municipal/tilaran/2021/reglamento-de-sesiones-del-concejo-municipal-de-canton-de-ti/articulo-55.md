@@ -1,0 +1,1 @@
+ARTÍCULO 55. Informes de las Comisiones y Concejos de Distritos. Las Comisiones y los Concejos de Distrito deben presentar sus informes, recomendaciones y dictámenes en el espacio correspondiente de la sesión.

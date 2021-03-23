@@ -1,0 +1,1 @@
+ARTÍCULO 90. Derogatorias. Deróguense el Reglamento de Sesiones Municipales de la Municipalidad de Tilarán publicado en La Gaceta No. 17 del 26 de enero de 1999 y el Reglamento sobre el Régimen de Puestos de Confianza para Fracciones Políticas, Presidencia y Vicepresidencia del Concejo Municipal de Tilarán, publicado en La Gaceta No. 41 del 27 de febrero del 2007.

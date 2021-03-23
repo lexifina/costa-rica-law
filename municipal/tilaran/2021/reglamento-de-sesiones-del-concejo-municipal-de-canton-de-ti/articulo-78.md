@@ -1,0 +1,1 @@
+ARTÍCULO 78. Comisiones Especiales. Estas comisiones se establecen por decisión del Concejo, la Presidencia determina sus miembros de entre los candidatos presentados por los participantes; procurando representatividad de los partidos políticos electos dentro del Concejo municipal y asegurándose la equidad y armonía.

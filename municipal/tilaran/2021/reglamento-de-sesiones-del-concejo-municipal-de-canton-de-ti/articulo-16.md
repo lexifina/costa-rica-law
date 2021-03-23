@@ -1,0 +1,1 @@
+ARTICULO 16. El Directorio Provisional realizará la juramentación de los Regidores, Síndicos, Alcalde y Vicealcaldes previa comprobación de asistencia con base en la nómina que remite el Tribunal Supremo de Elecciones.

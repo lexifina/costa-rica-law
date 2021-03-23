@@ -1,0 +1,1 @@
+ARTÍCULO 79. Comisiones Reguladas por Leyes Especiales. Se regulan y se conforman por las mismas leyes especiales que les dan origen. Entre ellas la creada por Ley N° 8261: Comité Cantonal de la Persona Joven y la Comisión de Seguimiento del Plan Regulador.

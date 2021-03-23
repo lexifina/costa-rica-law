@@ -1,0 +1,1 @@
+ARTÍCULO 64. Acuerdo Definitivamente Aprobado. Se podrá declarar el acuerdo definitivamente aprobado, y en consecuencia ejecutable, cuando el Concejo lo estime conveniente, por razones de oportunidad, mérito o conveniencia, por votación de las dos terceras partes o mayoría calificada; en este caso no procede el recurso de revisión.

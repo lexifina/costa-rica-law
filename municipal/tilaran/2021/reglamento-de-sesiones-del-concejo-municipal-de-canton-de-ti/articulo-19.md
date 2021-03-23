@@ -1,0 +1,3 @@
+CAPÍTULO IX.
+De la Presidencia del Concejo
+ARTICULO 19. El Presidente del Concejo durará en su cargo dos años y podrá ser reelegido. En sus ausencias temporales será sustituido por el Vicepresidente, designado también por el mismo periodo que el Presidente. Las ausencias temporales del Presidente y el Vicepresidente serán suplidas por el regidor presente de mayor edad.

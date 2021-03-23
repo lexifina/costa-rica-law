@@ -1,0 +1,1 @@
+ARTÍCULO 27. Los asuntos relacionados con vacaciones, permisos, licencias, tiempo extraordinario y cualquier otra de índole laboral por parte del Asesor Jurídico del Concejo Municipal serán atendidos por el Alcalde Municipal, previa autorización del Presidente del Concejo Municipal

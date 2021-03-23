@@ -1,0 +1,2 @@
+ARTÍCULO 8. De los Síndicos
+Los síndicos tendrán los mismos requisitos, impedimentos, prohibiciones, reposiciones, juramentaciones y toma de posesión que resulten aplicables con respecto a los regidores. Los síndicos no tendrán derecho a voto en las sesiones del Concejo Municipal, pero sí a voz en lo relativo a los asuntos que a su distrito conciernen. Los síndicos propietarios y suplentes podrán integrar comisiones especiales creadas por el Concejo Municipal, en ellas, tendrán voz y voto.

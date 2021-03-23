@@ -1,0 +1,1 @@
+ARTÍCULO 51. Remisión de solicitudes de audiencia competencia de la Alcaldía. Cuando el objeto y asunto de la solicitud de la Audiencia fuere de competencia de la Alcaldía, la Presidencia ordenará a la Secretaría remitir el memorial presentado a la Alcaldía, para que se le dé el trámite correspondiente. La Secretaría lo hará del conocimiento de las personas interesadas.

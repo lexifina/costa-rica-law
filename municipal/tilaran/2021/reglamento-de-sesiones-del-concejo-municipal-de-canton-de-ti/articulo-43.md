@@ -1,0 +1,1 @@
+ARTÍCULO 43. Ruptura de quórum. Si en el transcurso de una sesión, se rompiere el quórum, la Presidencia por medio de la Secretaría, instará a los regidores que se hubieren retirado, para que ocupen sus curules. Transcurridos cinco minutos sin que pueda restablecerse el quórum, se levantará la sesión. Los regidores ausentes perderán el derecho a la dieta correspondiente.

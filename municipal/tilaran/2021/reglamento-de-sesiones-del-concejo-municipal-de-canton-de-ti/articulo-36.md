@@ -1,0 +1,1 @@
+ARTÍCULO 36. Pago de dieta. Los asistentes según el Código Municipal, tendrán derecho a devengar el pago de la dieta correspondiente, cuando asistan y permanezcan durante el desarrollo de cada sesión.

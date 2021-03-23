@@ -1,0 +1,1 @@
+ARTÍCULO 83. Actas de las Comisiones. Cada Comisión deberá llevar actas que recojan de manera sucinta lo acontecido en sus reuniones, las cuales contendrán los siguientes elementos: encabezado, fecha, número de la reunión, asistentes, agenda, firmas, asuntos tratados y sus respectivos acuerdos. La Asesoría Jurídica conservará archivo y copias de los informes de comisión rendidos.

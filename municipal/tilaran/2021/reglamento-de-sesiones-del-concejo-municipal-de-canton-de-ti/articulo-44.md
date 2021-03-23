@@ -1,0 +1,1 @@
+ARTÍCULO 44. Sesiones extraordinarias. Las sesiones extraordinarias deberán convocarse con un mínimo de 24 horas de anticipación, y se señalará el o los asuntos exclusivos a conocer en la sesión, mediante el acuerdo municipal o la convocatoria del Alcalde. Las sesiones extraordinarias deberán celebrarse el día, a la hora y en el lugar que se indique en la convocatoria.

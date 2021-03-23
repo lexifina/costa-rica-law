@@ -1,0 +1,1 @@
+ARTICULO 68. Acuerdos por unanimidad, son los acuerdos que requieren el voto de todos los miembros presentes como es el caso, entre otros, de la alteración del orden del día en sesiones extraordinarias.

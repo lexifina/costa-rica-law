@@ -1,0 +1,1 @@
+ARTÍCULO 86. Dictamen a otra comisión. El Concejo podrá remitir los dictámenes de Comisión a conocimiento de otra Comisión o a alguna designada especialmente por la Presidencia, para que se pronuncie sobre un caso concreto.

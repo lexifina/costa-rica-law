@@ -1,0 +1,2 @@
+ARTÍCULO 80. Nombramiento de Comisiones. En la sesión del Concejo posterior inmediata a la instalación de sus miembros, la Presidencia nombrará a los integrantes de las Comisiones Permanentes, cuya conformación podrá variarse anualmente. Al integrarlas, se procurará que en ellas participen todos los partidos políticos representados en el Concejo.
+Los funcionarios municipales y los particulares podrán participar en las sesiones de las Comisiones con carácter de asesores.

@@ -1,0 +1,1 @@
+ARTÍCULO 63. Obligación y dispensa del trámite de comisión. Todo acuerdo, que así lo requiera, deberá contar con el dictamen de una comisión, y después de considerarse suficientemente discutido el asunto, se someterá a votación. El dictamen de comisión podrá dispensarse por medio de una votación de mayoría calificada.

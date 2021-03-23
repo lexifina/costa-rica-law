@@ -1,0 +1,1 @@
+ARTÍCULO 38. Sustitución de regidor(a). El o la regidora suplente que sustituye a un propietario, tendrá derecho a permanecer durante toda la sesión como miembro del Concejo con derecho a voz y voto, así como a devengar la dieta correspondiente.
