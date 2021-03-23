@@ -1,1 +1,2 @@
-ARTÍCULO 2- Se autoriza a la Municipalidad de Flores para que done el terreno indicado en el artículo anterior a la Asociación Pro Bienestar del Adulto Mayor de San Lorenzo de Flores, cédula jurídica número tres-cero cero dos- seis dos uno cero dos ocho (N.º 3-002-621028).
+Artículo 2- Se autoriza a la Municipalidad del cantón de Flores de la provincia de Heredia, cedula jurídica número tres-cero uno cuatro- cero cuatro dos cero nueve uno (N° 3-014-042091), para que segregue el terreno indicado en el artículo anterior y lo done a la Asociación Pro Bienestar del Adulto Mayor de San Lorenzo de Flores, cédula jurídica número tres-cero cero dos- seis dos uno cero dos ocho (N° 3-002-621028).
+(Así reformado por el artículo único de la ley N° 9933 del 25 de febrero del 2021)
