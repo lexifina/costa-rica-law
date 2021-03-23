@@ -1,0 +1,4 @@
+Artículo 18.-Fondo de garantía.
+Cuando se considere oportuno en todo contrato de construcción se pactará con el contratista una retención de un porcentaje sobre los adelantos para formar un fondo de garantía que se devolverá al concluir la obra, una vez transcurrido un plazo razonable a criterio del inspector de la obra y según se establezca en el pliego del concurso o en el contrato respectivo. Tal fondo protegerá a CORBANA de vicios ocultos o anomalías que eventualmente se presentaran y que el contratista se negara a aceptar y corregir.
+En los demás tipos de contrato y en la adquisición de bienes o servicios, los trabajadores u órganos competentes, podrán establecer un fondo de garantía sobre los desembolsos, cuando lo consideren oportuno, cuyo monto del porcentaje y plazo de devolución lo establecerán como parte de los requerimientos.
+Cuando se considere oportuno podrá solicitarse en lugar de esta retención una garantía de cumplimiento.

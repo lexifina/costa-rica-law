@@ -1,0 +1,2 @@
+Artículo 16.-Subcontratación.
+Excepcionalmente y cuando se trate de aspectos del contrato que requieran especialización, se podrá autorizar la subcontratación, siempre que el valor total de la suma de los diferentes convenios de subcontratación no exceda del 50% del monto total de contrato. En estos casos el contratista y el subcontratista adquirirán una obligación solidaria respecto de la materia subcontratada.

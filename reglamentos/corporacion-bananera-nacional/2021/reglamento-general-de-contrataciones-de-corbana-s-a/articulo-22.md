@@ -1,0 +1,2 @@
+Artículo 22.-Arrendamiento de activos a funcionarios.
+Se podrá tomar en arrendamiento servicios de transporte de los trabajadores con vehículo propio y otro tipo de servicios, como telefonía celular, que se vieren obligados a utilizar estos en el ejercicio de sus funciones, aplicando un sistema de control interno eficiente que garantice el uso racional e impida abusos y se emita una reglamentación que regule la materia, incluyendo las correspondientes tarifas o régimen remunerativo, de acuerdo con las tarifas establecidas por la Contraloría General de la República.

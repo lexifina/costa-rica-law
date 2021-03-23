@@ -1,0 +1,2 @@
+Artículo 30.-Registro de información contractual en el Sistema Integrado de Actividad Contractual de la Contraloría General de la República (SIAC).
+Toda contratación no ordinaria que realice CORBANA, deberá registrarse en el Sistema Integrado de la Actividad Contractual (SIAC). Quedan excluidas las contrataciones ordinarias y de caja chica, razón por la cual cada centro de compras deberá cerciorarse de registrar en forma correcta y oportuna, de lo contrario será causal de responsabilidad.

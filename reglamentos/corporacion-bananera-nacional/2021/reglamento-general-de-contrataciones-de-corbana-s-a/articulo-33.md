@@ -1,0 +1,2 @@
+Artículo 33.-Arbitraje.
+Para el caso de que con motivo de la ejecución de las contrataciones surgiera algún tipo de reclamo o contención, deberá tratarse de que en todos los procedimientos de contratación o en los contratos que se suscriban se contemple la vía arbitral, ya sea acudiendo a alguno de los centros de resolución alternativa de conflictos de carácter empresarial ya establecidos o a la conformación de un tribunal ad hoc, de conformidad con lo establecido en la legislación costarricense.

@@ -1,0 +1,6 @@
+Artículo 20.-Venta de bienes por remate privado o público.
+La Proveeduría General de Bienes y Servicios Administrativos en conjunto con la Sección de Compras, considerando las características de los bienes y servicios a vender, podrá recurrir también a su venta mediante el remate privado o público. Para la venta de activos, se fijará una base a partir de la cual los oferentes participantes podrán ofertar libremente.
+La fecha y hora del remate público deberá divulgarse por medio de prensa escrita de circulación nacional tratándose de activos con un valor superior a los USD 100 000,00.
+En el caso del remate privado, éste se hará por invitación y procederá cuando se trate de activos con un valor inferior a los USD 100 000,00 o cuando el grupo de oferentes sea limitado en función del tipo de activo del que se trata.
+Cuando lo disponga la Comisión de Contrataciones y se incluya en las condiciones del cartel, un concurso privado o público puede finalizar en un remate a la alta tratándose de venta de activos de la empresa, con el fin de obtener el máximo precio posible.
+Cuando un activo se ofrezca a la venta en remate y no se obtenga la base establecida, podrá ser vendido en forma directa con autorización de la Gerencia General.

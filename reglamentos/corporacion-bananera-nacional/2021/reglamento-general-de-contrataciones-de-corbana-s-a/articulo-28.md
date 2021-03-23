@@ -1,0 +1,2 @@
+Artículo 28.-Declaración de desierto o infructuoso de un concurso.
+Cualquier procedimiento de contratación, en el que no haya participación, se declarará desierto. Si habiendo oferentes, las ofertas formuladas contravienen el cartel o resultan inaceptables para la Administración el procedimiento se declarará infructuoso. También, podrá darse esta declaratoria cuando se desprenda de las ofertas que no se cuente con suficiente contenido presupuestario.
