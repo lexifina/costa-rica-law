@@ -14,3 +14,4 @@ Resolución N° 152 (COMIECO-XXXIII) Reglamentos Técnicos sobre Transporte Terr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-30 | la propia norma |
+| 2 | 2021-03-24 | Decreto Ejecutivo 42934 (2021-03-24) |
