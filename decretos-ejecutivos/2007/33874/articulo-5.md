@@ -1,4 +1,0 @@
-Artículo 5º—De los agentes de retención creado en el artículo 61 de de la Ley Nº 8343. Los agentes de retención del impuesto señalado en el artículo 61 de la Ley Nº 8343 deberán:
-a) Prestar la mayor colaboración a los funcionarios de la Administración Tributaria del IMAS, al realizarse la inspección del establecimiento. Los responsables deberán garantizar que la persona que atienda al funcionario de la Administración Tributaria del IMAS se encuentre capacitada para facilitar el proceso de inspección y suministre la información que se requiera para realizar tal actividad.
-b) Autorizar el ingreso al establecimiento a los Funcionarios de la Administración Tributaria del IMAS para la inspección del lugar.
-c) Acompañar al funcionario de la Administración Tributaria del IMAS en el recorrido de la inspección del establecimiento, en caso de no poder acompañarlo, deberá instruir a la persona que lo atienda para que le acompañe.
