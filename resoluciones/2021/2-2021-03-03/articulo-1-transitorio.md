@@ -1,0 +1,1 @@
+Transitorio Primero: Para las normas que no tengan transitorio conforme a las NICSP versión 2018, los entes contables deberán efectuar una declaración explícita y sin reservas en sus estados financieros de su cumplimiento al cierre del ejercicio del año 2023 o antes.
