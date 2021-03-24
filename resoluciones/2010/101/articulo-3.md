@@ -1,1 +1,0 @@
-III.—Asignar a la Gerencia de la DFOE para que, junto con la Unidad de Gestión Administrativa realice las acciones correspondientes para proveer o distribuir los espacios físicos, asignar el mobiliario y equipo que se requiera y el acondicionamiento técnico para el adecuado funcionamiento de las áreas de la DFOE.

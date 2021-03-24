@@ -1,1 +1,0 @@
-Transitorio II.—La redistribución de sectores de fiscalización entrará a regir a partir del 01 de enero de 2011 con la finalidad de que las áreas puedan contar un período razonable para adecuar su funcionamiento a los ajustes dispuestos en la presente resolución.

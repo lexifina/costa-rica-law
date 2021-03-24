@@ -1,1 +1,0 @@
-IV.—Requerir a la Gerencia de la DFOE la coordinación necesaria con la Unidad de Servicios de Información, para que considere lo establecido en la presente Resolución, de conformidad con las funciones a su cargo. Asimismo, con la Unidad de Gestión del Potencial Humano para la ejecución de los movimientos de personal y nombramientos que se requieran.
