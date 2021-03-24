@@ -1,0 +1,1 @@
+Artículo 2º-Modifíquese el Decreto Ejecutivo Nº 41627-COMEX-H de fecha 19 de diciembre de 2018, de conformidad con lo establecido en el numeral 1 de la parte dispositiva de la Resolución Nº 430-2020 (COMIECO-EX) de fecha 24 de noviembre de 2020, que modifica el Anexo I de la Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018.
