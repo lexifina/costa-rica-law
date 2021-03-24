@@ -14,3 +14,4 @@ Reglamento sobre la rendición de cauciones a favor de la Dirección Nacional de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-23 | la propia norma |
+| 2 | 2021-03-24 | Reglamento 7 (2021-03-24) |
