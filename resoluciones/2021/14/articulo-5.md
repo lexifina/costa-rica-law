@@ -1,0 +1,6 @@
+Artículo 5°-Denegatoria de la solicitud. Se consideran causales de denegatoria las siguientes:
+a) No suministrar la información requerida y según las condiciones establecidas en los artículos 2 y 3 de esta resolución, así como cualquier información adicional pertinente para determinar los precios de transferencia, en el plazo prevenido por la SAPPT.
+b) Cuando la Dirección General de Tributación determine durante la etapa de negociación que el contribuyente suministró información inexacta, errónea o falsa con orientación engañosa.
+c) Que la Dirección General de Tributación no coincida con los elementos, criterios o valoraciones que utilizó el contribuyente para fijar los rangos o precios de transferencia.
+d) Cuando la Dirección General de Tributación no notifique la ampliación del plazo de seis meses indicado en el artículo 4 anterior.
+En estos casos no se continuará con el trámite del APA, se denegará y se archivará la solicitud, procediendo a devolver al solicitante la información y documentación original presentada, pudiendo la SAPPT mantener en el expediente copia de la información y documentación que respalde la denegatoria de la solicitud. El contribuyente tiene diez días hábiles para retirar la documentación, en caso de no presentarse, la SAPPT procederá a la destrucción de la misma
