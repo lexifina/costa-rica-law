@@ -14,3 +14,4 @@ Código de ética profesional del Colegio de Profesionales en Nutrición de Cost
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-23 | la propia norma |
+| 2 | 2021-03-25 | Reglamento 25 (2021-03-25) |
