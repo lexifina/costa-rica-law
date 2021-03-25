@@ -1,0 +1,3 @@
+Artículo 32.-Bitácora. Al finalizar la audiencia, la persona técnica asistencial incorpora en el expediente electrónico, una copia de la grabación con las etiquetas correspondientes.
+Además, se descarga una copia de la bitácora de esa audiencia en la Plataforma Tecnológica con la finalidad de que quede consignada en el expediente, los detalles de lo ahí acontecido.
+Adicionalmente, en caso de ser necesario, en la plataforma tecnológica existe un respaldo donde se visualizan las personas que participaron en la audiencia. El mismo está disponible durante los noventa días siguientes al acto, previa solicitud por reporte al Administrador de la herramienta.

@@ -1,0 +1,1 @@
+Artículo 31.-Acta de la audiencia. De la audiencia se levanta un acta lacónica que contenga mención de los aspectos relevantes acontecidos durante su desarrollo y por la modalidad virtual de la audiencia se firma en los términos en los que lo autoriza el artículo 313 de la Ley General de la Administración Pública.

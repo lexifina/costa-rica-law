@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Consideraciones especiales en materia probatoria
+Artículo 27.-Prueba documental admisible en la audiencia. Cuando alguna de las partes desee utilizar en la audiencia virtual prueba documental que resulte legalmente admisible, debe ofrecerla en los momentos procesales dispuestos para ese efecto, para que pueda ser apreciada por el Órgano Director y se proceda a dar audiencia a las partes para garantizar el debido proceso y el contradictorio.
+Si se desea aportar documentación en la audiencia virtual en atención a lo dispuesto por los artículos 297 inciso 3) y 317 de la Ley General de la Administración Pública, estos deben ser documentos digitales según lo dispuesto por los numerales 3 y 4 de la Ley de certificados, firmas digitales y documentos electrónicos y se aportan al correo electrónico que al efecto señale el Órgano Director.

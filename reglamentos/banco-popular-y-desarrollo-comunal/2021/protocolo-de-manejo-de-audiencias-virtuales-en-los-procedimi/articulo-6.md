@@ -1,0 +1,1 @@
+Artículo 6º-Principios de especial aplicación en la audiencia virtual. La audiencia virtual se rige por los principios del debido proceso, oralidad, inmediatez, informalismo, celeridad, eficiencia, eficacia, concentración, libertad probatoria, lealtad procesal, accesibilidad, confidencialidad, probidad, respeto a las partes, transparencia y buena fe.

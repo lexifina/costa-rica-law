@@ -1,0 +1,5 @@
+CAPÍTULO II
+Reglas éticas de comportamiento en la audiencia
+virtual y aplicación del régimen disciplinario
+Artículo 7º-Obligatoriedad del comportamiento ético durante la audiencia virtual. Las partes y demás comparecientes en la audiencia virtual tienen la obligación de mantener en todo momento un comportamiento respetuoso, colaborador, de buena fe y lealtad procesal, en estricto cumplimiento a las disposiciones legales que orientan el curso de la audiencia oral, evitando todo comportamiento temerario, malicioso o dilatorio.
+El Órgano Director con fundamento en lo dispuesto en los artículos 314 y siguientes de la Ley General de Administración Pública, vela porque las y los profesionales en derecho que participan en la comparecencia adecúen su conducta de acuerdo con el Código de Deberes Jurídicos, Morales y Éticos del Profesional en Derecho, aprobado por el Colegio de Abogados y Abogadas de Costa Rica, permitiéndosele a dicho Tribunal realizar las advertencias y/o tomar las medidas que se consideren pertinentes en caso de que alguno de los representantes legales hagan caso omiso a dicho Código o cuando la situación lo amerite.

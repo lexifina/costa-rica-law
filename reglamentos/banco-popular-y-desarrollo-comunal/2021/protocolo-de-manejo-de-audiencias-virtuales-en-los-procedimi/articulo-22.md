@@ -1,0 +1,2 @@
+Artículo 22.-Tiempo de las actuaciones. Las audiencias orales a realizarse por medios tecnológicos deben iniciarse a la hora señalada, puede variarse la hora de inicio cuando motivos justificados técnicos lo ameriten.
+En caso de que solo una de las partes presente inconvenientes técnicos antes de su inicio o una vez iniciada la actividad procesal, si se acredita debidamente, puede suspenderse o reprogramarse de ser necesario.
