@@ -1,0 +1,1 @@
+Artículo 22.- Los ministerios, las entidades públicas y sus órganos desconcentrados, deberán implementar acciones para hacer más eficiente la ejecución, tanto física como financiera de los proyectos de inversión, tomando en consideración lo establecido en el marco de la planificación estratégica alineada con los objetivos establecidos.

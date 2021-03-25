@@ -1,0 +1,1 @@
+Artículo 27.- Las entidades públicas bajo el ámbito de la AP, salvo disposición legal en contrario, no podrán invertir, ni mantener recursos en ningún tipo de fondo de inversión, cuentas corrientes y cuentas de ahorro que se manejen como inversiones a la vista, cuentas con saldos pactados o en cualquier otra figura de depósito.

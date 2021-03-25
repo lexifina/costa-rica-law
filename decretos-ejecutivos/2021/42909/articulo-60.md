@@ -1,0 +1,1 @@
+Artículo 60.- No se permitirán las reasignaciones de puestos ocupados en propiedad y vacantes, para los ministerios, las entidades públicas y sus órganos desconcentrados; con excepción de aquellas reasignaciones que sean descendentes o bien aquellas reasignaciones que mantengan el mismo nivel salarial.
