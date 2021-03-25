@@ -1578,52 +1578,53 @@ B) Este Capítulo no comprende los granos mondados o trabajados de otra forma. S
 2. La partida 10.05 no comprende el maíz dulce (Capítulo 7).
 NOTA DE SUBPARTIDA.
 1. Se considera trigo duro el de la especie Triticum durum y los híbridos derivados del cruce interespecífico del Triticum durum que tengan 28 cromosomas como aquél.
-CODIGO | DESCRIPCION | DAI %
-10.01 | TRIGO Y MORCAJO (TRANQUILLON) |
-1001.1 | - Trigo duro: |
-1001.11.00.00 | - - Para siembra | 0
-1001.19.00.00 | - - Los demás | 0
-1001.9 | - Los demás: |
-1001.91.00.00 | - - Para siembra | 0
-1001.99.00.00 | - - Los demás | 0
-10.02 | CENTENO |
-1002.10.00.00 | - Para siembra | 0
-1002.90.00.00 | - Los demás | 0
-10.03 | CEBADA |
-1003.10.00.00 | - Para siembra | 0
-1003.90.00.00 | - Los demás | 0
-10.04 | AVENA |
-1004.10.00.00 | - Para siembra | 0
-1004.90.00.00 | - Los demás | 0
-10.05 | MAIZ |
-1005.10.00.00 | - Para siembra | 0
-1005.90 | - Los demás: |
-1005.90.10.00 | - - Maíz tipo "pop" (Zea mays everta) | 0
-1005.90.20.00 | - - Maíz amarillo | II
-1005.90.30.00 | - - Maíz blanco | II
-1005.90.90.00 | - - Otros | 15
-10.06 | ARROZ |
-1006.10 | - Arroz con cáscara (arroz "paddy"): |
-1006.10.10.00 | - - Para siembra | II
-1006.10.90.00 | - - Otros | II
-1006.20.00.00 | - Arroz descascarillado (arroz cargo o arroz pardo) | II
-1006.30 | - Arroz semiblanqueado o blanqueado, incluso pulido o glaseado: |
-1006.30.10.00 | - - Grano tamaño medio fraccionado en uno de sus extremos, con rango de contenido de grasa de 0.60 % a 0.75 % destinado al proceso de insuflado y envasado en sacos de 50 kg, debidamente identificados | II
-1006.30.90.00 | - - Otros | II
-1006.40.00.00 | - Arroz partido | II
-10.07 | SORGO DE GRANO (GRANIFERO) |
-1007.10.00.00 | - Para siembra | 0
-1007.90.00.00 | - Los demás | II
-10.08 | ALFORFON, MIJO Y ALPISTE; LOS DEMAS CEREALES |
-1008.10.00.00 | - Alforfón | 15
-1008.2 | - Mijo: |
-1008.21.00.00 | - - Para siembra | 0
-1008.29.00.00 | - - Los demás | 15
-1008.30.00.00 | - Alpiste | 0
-1008.40.00.00 | - Fonio (Digitaria spp.) | 15
-1008.50.00.00 | - Quinua (quinoa) (Chenopodium quinoa) | 0
-1008.60.00.00 | - Triticale | 15
-1008.90.00.00 | - Los demás cereales | 15
+CODIGO | DESCRIPCION | DAI % | Parte (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario") | GU (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario") | ES (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario") | HO (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario") | NI (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario") | CR (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario")
+10.01 | TRIGO Y MORCAJO (TRANQUILLON) | | | | | | |
+1001.1 | - Trigo duro: | | | | | | |
+1001.11.00.00 | - - Para siembra | 0 | | | | | |
+1001.19.00.00 | - - Los demás | 0 | | | | | |
+1001.9 | - Los demás: | | | | | | |
+1001.91.00.00 | - - Para siembra | 0 | | | | | |
+1001.99.00.00 | - - Los demás | 0 | | | | | |
+10.02 | CENTENO | | | | | | |
+1002.10.00.00 | - Para siembra | 0 | | | | | |
+1002.90.00.00 | - Los demás | 0 | | | | | |
+10.03 | CEBADA | | | | | | |
+1003.10.00.00 | - Para siembra | 0 | | | | | |
+1003.90.00.00 | - Los demás | 0 | | | | | |
+10.04 | AVENA | | | | | | |
+1004.10.00.00 | - Para siembra | 0 | | | | | |
+1004.90.00.00 | - Los demás | 0 | | | | | |
+10.05 | MAIZ | | | | | | |
+1005.10.00.00 | - Para siembra | 0 | | | | | |
+1005.90 | - Los demás: | | | | | | |
+1005.90.10.00 | - - Maíz tipo "pop" (Zea mays everta) | 0 | | | | | |
+1005.90.20.00 | - - Maíz amarillo | II | | | | | |
+1005.90.30.00 | - - Maíz blanco | II | | | | | |
+1005.90.90.00 | - - Otros | 15 | | | | | |
+10.06 | ARROZ | | | | | | |
+1006.10 | - Arroz con cáscara (arroz "paddy"): | | | | | | |
+1006.10.10.00 | - - Para siembra | II | | | | | |
+1006.10.90.00 | - - Otros | II | | | | | |
+1006.20.00.00 | - Arroz descascarillado (arroz cargo o arroz pardo) | II | | | | | |
+1006.30 | - Arroz semiblanqueado o blanqueado, incluso pulido o glaseado: | | | | | | |
+1006.30.20.00 (Así adicionado el código anterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario") | --Arroz escaldado ("arroz parbolizado o parborizado) (Así adicionado la descripciónanterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario") | | II (Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario") | 23.71 (Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario") | 40 (Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario") | 45 (Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario") | 60 (Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario") | 35 (Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 42933 del 25 de marzo de 2021, que aprobó la Publica Resolución N° 432-2020 (COMIECO-XCIII) de 10 diciembre de 2020, aprueba la apertura arancelaria del arroz escaldado ("arroz parbolizado o parborizado") en el Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario")
+1006.30.10.00 | - - Grano tamaño medio fraccionado en uno de sus extremos, con rango de contenido de grasa de 0.60 % a 0.75 % destinado al proceso de insuflado y envasado en sacos de 50 kg, debidamente identificados | II | | | | | |
+1006.30.90.00 | - - Otros | II | | | | | |
+1006.40.00.00 | - Arroz partido | II | | | | | |
+10.07 | SORGO DE GRANO (GRANIFERO) | | | | | | |
+1007.10.00.00 | - Para siembra | 0 | | | | | |
+1007.90.00.00 | - Los demás | II | | | | | |
+10.08 | ALFORFON, MIJO Y ALPISTE; LOS DEMAS CEREALES | | | | | | |
+1008.10.00.00 | - Alforfón | 15 | | | | | |
+1008.2 | - Mijo: | | | | | | |
+1008.21.00.00 | - - Para siembra | 0 | | | | | |
+1008.29.00.00 | - - Los demás | 15 | | | | | |
+1008.30.00.00 | - Alpiste | 0 | | | | | |
+1008.40.00.00 | - Fonio (Digitaria spp.) | 15 | | | | | |
+1008.50.00.00 | - Quinua (quinoa) (Chenopodium quinoa) | 0 | | | | | |
+1008.60.00.00 | - Triticale | 15 | | | | | |
+1008.90.00.00 | - Los demás cereales | 15 | | | | | |
 CAPITULO 11
 PRODUCTOS DE LA MOLINERIA; MALTA; ALMIDON Y FECULA; INULINA; GLUTEN DE TRIGO
 NOTAS.
