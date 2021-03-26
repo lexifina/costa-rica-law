@@ -1,2 +1,0 @@
-Artículo 7º—Libre acceso a los departamentos de la institución. La Contraloría tendrá libre acceso, en cualquier momento a todos los archivos y documentos electrónicos o escritos de la institución, así como a otras fuentes de información, y sobre ellos tendrá el deber de confidencialidad.
-La información a la que se refiere el presente artículo es aquella que tenga relación directa con la queja o inconformidades planteadas por los usuarios o público que utilice los servicios que presta PIMA.

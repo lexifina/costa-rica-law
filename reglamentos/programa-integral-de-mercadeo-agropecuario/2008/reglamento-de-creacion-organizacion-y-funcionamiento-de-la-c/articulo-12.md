@@ -1,1 +1,0 @@
-Artículo 12.—Declaración. Cualquier consulta o entrevista necesaria para la investigación de una denuncia, debe realizarse con especial consideración a las necesidades e integridad de las personas involucradas teniendo en cuenta el conocimiento técnico y jurídico del denunciante.

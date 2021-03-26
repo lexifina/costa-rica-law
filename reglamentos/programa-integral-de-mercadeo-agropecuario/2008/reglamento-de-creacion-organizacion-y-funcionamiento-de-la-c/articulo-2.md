@@ -1,1 +1,0 @@
-Artículo 2º—Obligación de colaboración. Todas las dependencias y funcionarios del Programa Integral de Mercadeo Agropecuario (PIMA) deberán prestar su colaboración a la Contraloría de Servicios, cuando esta lo requiera, como parte de las responsabilidades derivadas de su relación laboral.

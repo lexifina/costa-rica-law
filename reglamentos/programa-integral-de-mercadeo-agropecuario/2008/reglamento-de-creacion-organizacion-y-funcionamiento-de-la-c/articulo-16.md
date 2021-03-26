@@ -1,1 +1,0 @@
-Artículo 16.—Casos de Atención Colectiva. Si en relación con un mismo tema o problema se presentan quejas que por su cantidad sobrepasa las posibilidades reales de resolución y atención individualizada, la Contraloría de Servicios tratará el tema en forma colectiva, y de tal circunstancia y su resultado, se informará a los usuarios.

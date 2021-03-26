@@ -1,2 +1,0 @@
-Artículo 8º—Nombramiento del Contralor o Contralora. El contralor o contralora será nombrado por tiempo indefinido, no podrá recaer en un puesto de confianza, además desempeñará su puesto sin recargo de funciones y dependerá orgánicamente del Consejo Directivo.
-El nombramiento del Contralor(a) deberá hacerse mediante concurso interno y siguiendo lo que al efecto establece el Decreto Nº 34587-PLAN, en concordancia con el reglamento interior de Trabajo vigente al momento de los nuevos nombramientos de PIMA.

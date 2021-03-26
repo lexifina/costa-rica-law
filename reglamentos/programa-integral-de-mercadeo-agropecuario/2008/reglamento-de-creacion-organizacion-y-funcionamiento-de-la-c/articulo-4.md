@@ -1,1 +1,0 @@
-Artículo 4º—Estructura. Dentro de la estructura organizacional del PIMA la Contraloría de Servicios, depende directamente del Consejo Directivo y estará bajo la responsabilidad de un Contralor o Contralora. Además contará con el personal profesional y técnico necesario para garantizar la continuidad del servicio.
