@@ -1,1 +1,1 @@
-Artículo 6°- No se permitirá el ingreso de personas extranjeras que pretendan realizar un tránsito terrestre entre los puestos fronterizos de norte a sur o viceversa, excepto aquellos que por razones humanitarias sean autorizados por la Dirección General de Migración y Extranjería, previa coordinación que deberá realizar dicha Dirección con las autoridades correspondientes de la República de Panamá y República de Nicaragua.
+Artículo 6°- (Derogado por el artículo 7° del decreto ejecutivo N° 42916 del 26 de marzo del 2021)

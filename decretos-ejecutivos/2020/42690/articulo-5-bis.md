@@ -1,8 +1,7 @@
-Artículo 5° bis.- Se autoriza el ingreso de personas extranjeras al país vía terrestre bajo la categoría migratoria de No Residentes, Subcategoría Personal de Medios de Transporte internacional, a los conductores de medios de transporte internacional de personas, de conformidad con los siguientes requerimientos:
+Artículo 5° bis.- Las personas extranjeras que pretendan ingresar al país conforme el artículo 5 de este Decreto Ejeutivo, deberán cumplir con los siguientes requisitos:
 a) Acatar las medidas sanitarias dictadas por el Ministerio de Salud para la atención del COVID-19.
 b) Cumplir con los requisitos migratorios correspondientes.
 c) Completar el formulario denominado Pase de Salud, disponible en el link https://salud.go.cr.
 d) El plazo máximo de horas de permanencia a otorgar en el territorio nacional será la cantidad de horas establecidas vía resolución por la Dirección General de Migración y Extranjería.
-e) La autoridad migratoria que realiza el control correspondiente deberá emitir y notificar a las personas extranjeras que formen parte del personal de medios de transporte internacional terrestre de personas, una orden sanitaria de acatamiento obligatorio, la cual deberán cumplir a cabalidad durante su permanencia en el país. El contenido de esa orden sanitaria deberá ser coordinada con el Ministerio de Salud.
-Las personas a las que se les autorice el ingreso al país conforme a lo anterior, que incumplan las disposiciones referidas, podrán ser sancionadas conforme a la legislación sanitaria correspondiente, sin perjuicio de la interposición de las acciones penales que establece el ordenamiento jurídico nacional. Asimismo, de conformidad con el artículo 61 incisos 2) y 6) de la Ley General de Migración y Extranjería, la Dirección General de Migración y Extranjería podrá imponer un impedimento de ingreso al país, conforme a la valoración que realice el oficial competente de control migratorio.
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 42703 del 8 de noviembre del 2020)
+(Así reformado por el artículo 2° del decreto ejecutivo N° 42916 del 26 de marzo del 2021)
