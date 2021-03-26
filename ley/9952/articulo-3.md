@@ -1,0 +1,1 @@
+ARTÍCULO 3- El Consejo Superior de Educación (CSE) realizará campañas informativas alusivas a la celebración de este día, mediante exposiciones, ferias, concursos literarios, charlas, publicaciones en redes sociales y cualquier otro medio o mecanismo que permita que la población en general conozca la importancia de luchar contra la práctica del "grooming".

@@ -1,0 +1,1 @@
+ARTÍCULO 2- Corresponde al Consejo Superior de Educación (CSE) la realización de actos informativos, de capacitación y formación para los alumnos y padres de familia, a efectuarse en los centros educativos públicos y privados del país, en los niveles de educación básica y diversificada, que permitan técnicas y formas de cómo reconocer y evitar el "grooming".
