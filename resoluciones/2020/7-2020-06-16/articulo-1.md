@@ -1,9 +1,9 @@
 DIRECCIÓN GENERAL DE SERVICIO CIVIL
 AVISO
-DG-AV-007-2020.—16 de junio de 2020
+DG-AV-007-2020.-16 de junio de 2020
 La DGSC comunica la emisión de la siguiente resolución:
 I-DG-050-2020: Modifica el artículo 1 del anexo a la Resolución DG-330-2005 del 24 de noviembre del 2005, Retribución por Peligrosidad.
-II-DG-054-2020: Prórroga la variación de requisitos provisional dada mediante la Resolución DG-100-2019, de fecha 14 de mayo del 2019, de las clases de puesto de Técnico de Servicio Civil 2 (G. de E.) y Técnico de Servicio Civil 3 (G. de E.), Especialidad Operación Aeroportuaria.
+II-DG-054-2020: (Derogada mediante resolución N°DG-AV-003-2021 del 26 de marzo de 2021)
 III-DG-058-2020: Modifica el Manual Descriptivo de Especialidades Docentes, específicamente la especialidad Francés.
 IV-DG-059-2020: Delegar en la funcionaria Hellen Patricia Méndez Zeledón, cédula 1-0614-0481, quien ocupa la Jefatura de la Oficina de Gestión Institucional de Recursos Humanos en el Ministerio de Planificación Nacional y Política Económica, como responsable designada en esa Institución, y en tanto ocupe el cargo de Jefa de Recursos Humanos, para que suscriba los distintos trámites y actos que esta Dirección General debe aprobar en materiade Administración de Recursos Humanos, todo en concordancia con lo que dispone la Resolución No. DG-347-2011 del 1º de julio de 2011 y sus reformas, a excepción de lo dispuesto en la Resolución No. DG-201-2014 del 14 de noviembre de 2014, a lo señalado en el Oficio Circular No. GESTIÓN-010-2008 de fecha 12 de junio del 2008, referido a los estudios de análisis ocupacional de los puestos de las Oficinas de Recursos Humanos, así como la aprobación de nombramientos y ascensos interinos en plaza vacante, los cuales requerirán el aval de la instancia pertinente de esta Dirección General.
 IV-DG-062-2020: Declarar de confianza el puesto vacante número 401502, clasificado como Gerente de Servicio Civil 1, sin especialidad, cargo de Subdirector de Informática de Gestión del Ministerio de Educación Pública.
