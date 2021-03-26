@@ -1,0 +1,16 @@
+Artículo 3°-Definiciones.
+1. Comercialización: Conjunto de acciones y procedimientos para introducir eficazmente los productos en el sistema de distribución. Considera planear y organizar las actividades necesarias para posicionar una mercancía o servicio logrando que los consumidores lo conozcan y lo consuman.
+2. Contraloría Institucional de Servicios del PIMA: Instancia de participación ciudadana que facilita la comunicación entre las personas usuarias y la Institución, a fin de velar por la calidad de los servicios, la satisfacción de las personas usuarias y el uso racional de los recursos públicos enfocados en la prestación de servicios.
+3. Concesionario: Es toda aquella persona física o jurídica a quien se le otorga un espacio en concesión de un área de la central mayorista, a través de un contrato de concesión de derecho de uso.
+4. Confidencialidad: Garantía de que la información personal será protegida para que no sea divulgada sin consentimiento de la persona. Dicha garantía se lleva a cabo por medio de un grupo de reglas que limitan el acceso a ésta información
+5. Consultas: Gestión oral o escrita ante la Contraloría de Servicios mediante la cual, se solicita información y orientación sobre los asuntos y procedimientos relacionados con los servicios que presta esa instancia o sobre dudas en relación con la calidad, oportunidad y pertinencia de servicios recibidos de parte de cualquier otra dependencia el PIMA.
+6. Declaración: Cualquier consulta o entrevista necesaria para la investigación de una gestión, debe realizarse con especial consideración a las necesidades e integridad de las personas involucradas teniendo en cuenta el conocimiento técnico y jurídico del denunciante.
+7. Denuncias: Gestión formal de notificación ante la Contraloría de Servicios sobre el estado irregular, ilegal o inconveniente en la aplicación de procedimientos o en el comportamiento del personal del Instituto en la prestación de servicios, con el propósito que se realice una investigación y se tomen las medidas correctivas correspondientes.
+8. Expediente Administrativo: Documento donde se lleva el orden cronológico y seguimiento de las gestiones que se presentan ante la oficina de la Contraloría de Servicios del PIMA.
+9. Funcionario: Empleado de PIMA.
+10. Gestiones: Las gestiones planteadas por parte de las personas usuarias ante la Contraloría de Servicios, entre las cuales están las inconformidades, reclamos, consultas, denuncias, sugerencias, felicitaciones.
+11. Jerarca: Superior de máxima autoridad del PIMA.
+12. Usuarios: Las personas físicas o jurídicas o agrupaciones de ellas, destinatarias de los servicios que presta el PIMA.
+13. PIMA: Programa Integral de Mercadeo Agropecuario.
+14. Queja o reclamo: Gestión verbal o escrita ante la Contraloría de Servicios mediante la cual se manifiesta expresamente una inconformidad, respecto de la calidad, oportunidad o pertinencia de un trámite o de un servicio recibido de parte de la institución, con el propósito de que se subsane si se determina que es procedentes.
+15. Sugerencia o comentario: Gestión formal ante la Contraloría de Servicios para opinar o canalizar una propuesta de mejora o cambio sobre la efectividad o pertinencia de los procedimientos, servicios o productos institucionales.

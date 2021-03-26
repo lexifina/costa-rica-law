@@ -1,0 +1,1 @@
+Artículo 16.-Obligación de colaboración. Todas los procesos y funcionarios del Programa Integral de Mercadeo Agropecuario (PIMA), deberán prestar su colaboración a la Contraloría de Servicios, conforme a lo establecido en el presente reglamento, para el seguimiento y resolución de las gestiones, como parte de las responsabilidades derivadas de su relación laboral.

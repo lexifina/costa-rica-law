@@ -1,0 +1,1 @@
+Artículo 18.-Conflictos de competencia. Si entre la Contraloría de Servicios y la Gerencia General se presentaren divergencias en torno a un caso, serán elevadas ante el Consejo Directivo, quien se encargará de resolver la situación y conflictos de competencia entre esta y otras instancias administrativas.

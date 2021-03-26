@@ -1,0 +1,2 @@
+Artículo 17.-Reglas de coordinación. La Contraloría de Servicios y la Gerencia General del PIMA, trabajarán en forma coordinada en el ejercicio de sus funciones cuando se requiera.
+Si un funcionario se negare a brindarle información o auxilio a la Contraloría de Servicios, esta podrá solicitar el respaldo de la Gerencia General, quien le brindará auxilio de inmediato, sin perjuicio de que se presente el procedimiento correspondiente contra el funcionario, para efecto de la sanción respectiva.

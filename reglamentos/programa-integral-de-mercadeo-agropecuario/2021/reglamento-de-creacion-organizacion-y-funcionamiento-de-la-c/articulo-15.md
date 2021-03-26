@@ -1,0 +1,1 @@
+Artículo 15.-Asesoría. Para la presentación y seguimiento de las gestiones presentas en la oficina de la Contraloría de Servicios del PIMA, el contralor o contralora institucional podrá requerir la asesoría de funcionarios internos o externos que estime necesarios para dar apoyo a su labor.

@@ -1,0 +1,5 @@
+Artículo 22.-Derechos de las personas usuarias físicas o jurídicas, individuales o colectivas. Son derechos de los usuarios de los Servicios del PIMA, los siguientes:
+1. Recibir por parte de la Institución, los servicios de óptima calidad, de forma efectiva, continua e innovadora.
+2. Plantear gestiones respecto de los servicios que reciben de la Institución que los brindan y sobre las actuaciones de las personas funcionarias, empleadas o representantes en el ejercicio de sus labores, cuando se estime que afectan, directa o indirectamente, los servicios prestados o la imagen institucional.
+3. Recibir de los funcionarios, empleados, colaboradores o representantes de la institución, un trato respetuoso y una respuesta oportuna a su gestión.
+4. Para la protección de los derechos señalados en los incisos anteriores, las gestiones de la institución está sujeta a los principios fundamentales de continuidad y efectividad, adaptación a todo cambio en el régimen legal o necesidad social que satisfagan la igualdad en el trato de las personas usuarias, según lo establecido en el ordenamiento jurídico.

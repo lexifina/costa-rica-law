@@ -1,0 +1,2 @@
+Artículo 11.-Estándares de calidad de los servicios del PIMA. La Contraloría de Servicios del PIMA, velará por la aplicación de los estándares de calidad que les permitan apreciar las mejoras de gestión y la medición de los niveles de calidad existentes en los servicios, con el fin de contribuir a su mantenimiento, mejoramiento continuo e innovación.
+En este proceso, la contraloría de servicios participará como asesora del jerarca de la organización conforme a su naturaleza.

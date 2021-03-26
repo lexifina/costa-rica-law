@@ -1,0 +1,1 @@
+Artículo 24.-El presente reglamento deroga el Reglamento De Creación, Organización y Funcionamiento de la Contraloría de Servicios del Programa Integral de Mercadeo Agropecuario (PIMA), el cual fue publicado en el Diario Oficial La Gaceta N° 175, el día 10 de setiembre del 2008.

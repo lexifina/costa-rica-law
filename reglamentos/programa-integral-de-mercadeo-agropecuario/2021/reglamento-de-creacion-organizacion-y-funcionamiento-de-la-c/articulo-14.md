@@ -1,0 +1,2 @@
+Artículo 14.-Medios para la presentación de gestiones.
+La Contraloría de Servicios del PIMA, deberá contar con los medios físicos y tecnológicos necesarios para que los usuarios de los Servicios del PIMA, puedan presentar sus gestiones, de manera personal, verbal, escrita, vía telefónica o electrónica, correo convencional o cualquier otro medio necesario para a facilitación de su atención, garantizando la accesibilidad para la presentación de dichas gestiones a toda persona usuaria de las Centrales Mayoristas, que así lo requieran.

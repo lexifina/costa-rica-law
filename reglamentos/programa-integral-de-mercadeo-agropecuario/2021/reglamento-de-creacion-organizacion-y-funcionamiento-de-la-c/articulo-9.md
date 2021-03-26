@@ -1,0 +1,1 @@
+Artículo 9°-Horario de atención. Por la naturaleza de los servicios que brinda PIMA y las actividades que se realizan, la oficina de la Contraloría de Servicios del PIMA funcionará de acuerdo con el horario y calendario dispuesto por la Gerencia General.
