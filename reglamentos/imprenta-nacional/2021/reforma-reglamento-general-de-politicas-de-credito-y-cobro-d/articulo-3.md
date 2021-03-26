@@ -1,0 +1,2 @@
+Artículo 3º— Modifíquese el artículo 10 del Reglamento general de políticas de crédito y cobro de la Imprenta Nacional para que diga de la siguiente manera:
+Artículo 10º—. El crédito en las condiciones indicadas en el artículo 3º, se obtiene con la sola formalización de la contratación a través del Sistema Unificado Electrónico de Compras Públicas. Este aplicará para compras de una sola vez o para contrataciones por demanda, por lo tanto, en cada orden de pedido o solicitud de servicios, el cliente debe indicar el número de contratación asignado por dicho Sistema.

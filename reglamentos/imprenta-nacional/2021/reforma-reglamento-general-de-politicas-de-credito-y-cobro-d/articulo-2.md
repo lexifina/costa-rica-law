@@ -1,0 +1,2 @@
+Artículo 2º— Modifíquese el artículo 4º del Reglamento general de políticas de crédito y cobro de la Imprenta Nacional para que diga de la siguiente manera:
+Artículo 4º— El plazo para el pago es de hasta 45 días naturales. Dichos plazos se contabilizan a partir de la fecha en la que el cliente recibe la factura que emita la Junta Administrativa. No obstante, dicho plazo se suspende cuando el cliente no puede pagar por razones imputables a la Administración, pero no cuando sea por causas atribuibles al deudor.
