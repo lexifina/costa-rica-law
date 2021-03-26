@@ -1,1 +1,0 @@
-Transitorio Único.—Los obligados Tributarios que a la fecha de publicación de la presente resolución tengan autorizado un periodo fiscal especial distinto al establecido en el artículo 1°, y cumplan con los requisitos estipulados en el artículo 1° y 2° de la presente resolución, podrán continuar disfrutando el mismo, sin necesidad de realizar trámite alguno. Publíquese

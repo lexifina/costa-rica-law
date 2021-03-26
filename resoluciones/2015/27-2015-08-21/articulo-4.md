@@ -1,1 +1,0 @@
-Artículo 4º—De conformidad con el artículo 21 del Reglamento a la Ley del Impuesto sobre la Renta, los obligados tributarios acogidos a un periodo fiscal especial deberán presentar la declaración jurada de sus rentas y pagar el impuesto correspondiente dentro de los dos meses y quince días naturales posteriores a la finalización del periodo fiscal autorizado.

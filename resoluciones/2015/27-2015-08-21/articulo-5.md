@@ -1,2 +1,0 @@
-Artículo 5º—El cambio del periodo fiscal ordinario al período fiscal especial establecido en la presente resolución, regirá para el siguiente periodo fiscal posterior a la autorización del cambio.
-El obligado tributario deberá presentar la siguiente declaración jurada del Impuesto sobre la Renta, por el lapso que abarque desde el 1 de octubre del periodo inmediato anterior hasta el 31 de diciembre del siguiente año.
