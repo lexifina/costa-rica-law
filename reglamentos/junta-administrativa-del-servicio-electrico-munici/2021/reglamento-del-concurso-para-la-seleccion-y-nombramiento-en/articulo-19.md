@@ -1,0 +1,1 @@
+Artículo 19. El Departamento Talento Humano pondrá en conocimiento de los postulantes los resultados obtenidos mediante una notificación que incluya el desglose individual de los resultados y la conformación de la terna o nómina resultante del proceso relacionado con el concurso público para el puesto Auditor Interno de JASEC.

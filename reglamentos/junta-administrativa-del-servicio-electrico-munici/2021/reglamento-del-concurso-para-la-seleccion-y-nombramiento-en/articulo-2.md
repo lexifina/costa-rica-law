@@ -1,0 +1,1 @@
+Artículo 2. El Departamento Talento Humano será la instancia administrativa responsable de facilitar el proceso dispuesto en éste reglamento, por lo que de previo a ejecutar las diferentes actividades debe existir un acuerdo de Junta Directiva con el cual se instruye la realización del concurso público para nombramiento por tiempo indefinido en el puesto Auditor Interno de JASEC.

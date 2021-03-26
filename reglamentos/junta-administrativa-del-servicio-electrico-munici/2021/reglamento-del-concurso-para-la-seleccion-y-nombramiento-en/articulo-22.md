@@ -1,0 +1,1 @@
+Artículo 22. Los postulantes que conformen la terna o nómina serán convocados a realizar una prueba específica, relacionada con las funciones propias de la auditoria. La prueba será estructurada y aplicada mediante una colaboración externa a JASEC. La prueba tendrá una asignación porcentual que se detallará en el documento en donde se definen las bases del concurso.

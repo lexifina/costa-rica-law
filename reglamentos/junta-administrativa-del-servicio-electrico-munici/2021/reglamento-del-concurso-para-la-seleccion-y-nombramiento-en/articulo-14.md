@@ -1,0 +1,1 @@
+Artículo 14. Los postulantes cuya sumatoria de los diferentes aspectos que conforman la tabla de calificación obtengan un resultado igual o mayor al setenta y cinco por ciento (75%) serán considerados en el registro de postulantes elegibles para el puesto Auditor Interno de JASEC.

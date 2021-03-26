@@ -1,0 +1,2 @@
+Artículo 3. El Departamento Talento Humano será la instancia responsable de conformar el expediente administrativo debidamente foliado y en estricto orden cronológico, por lo que en el mismo se deberá incluir toda la información relacionada con la ejecución de las diferentes etapas del concurso público para el nombramiento indefinido en el puesto Auditor Interno de JASEC.
+En el expediente se deberá incorporar toda la documentación, evidencia y registros que se generen, así como el respaldo de los actos administrativos que se resuelvan sobre el proceso.

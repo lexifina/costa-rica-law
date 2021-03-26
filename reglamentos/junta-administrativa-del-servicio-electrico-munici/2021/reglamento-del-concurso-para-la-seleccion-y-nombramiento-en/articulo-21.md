@@ -1,0 +1,2 @@
+Artículo 21. El Departamento Talento Humano elaborará el respectivo informe técnico del concurso en el que se brindará el detalle suficiente para evidenciar las gestiones administrativas realizadas durante el proceso del concurso público para el nombramiento indefinido en el puesto Auditor Interno de JASEC.
+La Junta Directiva conocerá y analizará el informe técnico elaborado por Talento Humano a efectos de que se apruebe la conformación de la terma o nómina conforme a los resultados obtenidos por los postulantes.

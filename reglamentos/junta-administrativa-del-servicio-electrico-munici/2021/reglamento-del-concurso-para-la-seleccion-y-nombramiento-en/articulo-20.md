@@ -1,0 +1,1 @@
+Artículo 20. El Departamento Talento Humano recibirá y conocerá las solicitudes de aclaración, consultas o impugnaciones interpuestas por los postulantes en cada una de las etapas que se realicen durante el concurso público, por lo que procederá a resolver dentro de los plazos de ley.

@@ -1,0 +1,1 @@
+Artículo 26. Una vez notificado el acuerdo de Junta Directiva sobre el nombramiento por tiempo indefinido en el puesto Auditor Interno de JASEC, el Departamento Talento Humano procederá a realizar las gestiones respectivas para concretar el ingreso del postulante seleccionado conforme a los procedimientos internos establecidos.

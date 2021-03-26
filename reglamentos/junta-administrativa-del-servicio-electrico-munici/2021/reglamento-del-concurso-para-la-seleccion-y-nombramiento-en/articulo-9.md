@@ -1,0 +1,1 @@
+Artículo 9. Una vez finalizado el periodo de recepción de ofertas de servicio, el Departamento Talento Humano elaborará un acta de cierre, en la cual se incluirá el listado de los postulantes a quienes se les recibió los documentos en el plazo establecido.

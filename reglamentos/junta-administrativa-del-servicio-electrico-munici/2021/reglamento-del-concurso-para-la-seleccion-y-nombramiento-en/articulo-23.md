@@ -1,0 +1,2 @@
+Artículo 23. Los postulantes que conformen la terna o nómina serán convocados a realizar una entrevista conductual con la Junta Directiva de JASEC. La entrevista será estructurada según el criterio del Órgano Colegiado. La entrevista tendrá una asignación porcentual que se detallará en el documento en donde se definen las bases del concurso.
+La Junta Directiva establecerá los mecanismos y criterios necesarios y más adecuados para realizar el proceso de entrevistas de forma ordenada y en igualdad de condiciones para los postulantes que conformen la terna o nómina.

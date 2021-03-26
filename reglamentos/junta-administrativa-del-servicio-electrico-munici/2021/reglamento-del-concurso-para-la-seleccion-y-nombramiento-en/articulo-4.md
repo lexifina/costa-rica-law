@@ -1,0 +1,1 @@
+Artículo 4. Los requisitos para ocupar el puesto Auditor Interno de JASEC están establecidos en el perfil descriptivo vigente, en el cual se incluyen aspectos relacionados con la naturaleza del puesto, actividades y responsabilidades, así como condiciones especiales relacionadas con la formación académica, experiencia, competencias laborales y otros requisitos mínimos.

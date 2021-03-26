@@ -1,0 +1,2 @@
+Artículo 11. El Departamento Talento Humano realizará la convocatoria para la aplicación de las pruebas psicométricas a los postulantes que cumplen con los requisitos mínimos y legales establecidos en el puesto.
+Con fundamento en los principios de transparencia e igualdad de oportunidades, el Departamento Talento Humano definirá la forma más adecuada para aplicar las pruebas a los postulantes, por lo que con la debida antelación y oportunidad se notificará a los postulantes.
