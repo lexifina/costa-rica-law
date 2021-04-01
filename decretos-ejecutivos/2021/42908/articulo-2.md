@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el Decreto Ejecutivo número 42753-H del 07 de diciembre de 2020, publicado en el Alcance Número 334 del Diario Oficial La Gaceta Número 298 del 22 de diciembre de 2020, a partir de la vigencia del presente decreto.
