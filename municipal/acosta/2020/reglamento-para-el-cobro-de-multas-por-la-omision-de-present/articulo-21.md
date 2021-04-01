@@ -1,0 +1,1 @@
+Artículo 21- Principio de informalidad. Los ecursos no requieren una redacción un una pretendión especiales y bastará para su correcta formulación que se su texto se infiera claramente la petición de revisión.

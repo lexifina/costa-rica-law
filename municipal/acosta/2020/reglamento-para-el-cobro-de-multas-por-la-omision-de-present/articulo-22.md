@@ -1,0 +1,1 @@
+Artículo 22- Adición y aclaración. La Administración no podrá revocar ni modificar sus resoluciones pero si aclarar cualquier pronunciamiento confuso, o suplir cualquier omsión sobre algún punto discutido. Estas aclaraciones o adiciones solo procederán respecto de la parte dispositica y podrán solicitar dentro del plazo de tres días hábiles a partir de su notificación.

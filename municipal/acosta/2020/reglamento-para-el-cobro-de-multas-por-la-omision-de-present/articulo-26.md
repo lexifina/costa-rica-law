@@ -1,0 +1,2 @@
+Artículo 26- Integración del ordenamiento. Cualquier disposición oscura u omisa, se integrará acudiendo a los principios de legalidad, así como los generales del derecho municipal y administrativo, expresados en el código de Normas y Procedimientos Tributarios, Código municipal, Ley General de Administración Pública, código Procesal Contencioso Administrativo y Código Procesal Civil.
+Rige a partir de los 3 meses después de su publicación.
