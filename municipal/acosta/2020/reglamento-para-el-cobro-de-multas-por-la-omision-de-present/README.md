@@ -14,3 +14,4 @@ Reglamento para el cobro de multas por la omisión de presentar declaración de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-04-01 | la propia norma |
+| 2 | 2021-04-01 | Reglamento municipal 33 (2020-12-15) |
