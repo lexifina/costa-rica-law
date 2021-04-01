@@ -1,6 +1,6 @@
 # Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural
 
-Ley N° 9036 del 2012-05-11. SINALEVI, ficha 72582: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=72582&param2=123778&param3=1>.
+Ley N° 9036 del 2012-05-11. SINALEVI, ficha 72582: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=72582&param2=124959&param3=1>.
 
 Publicada en La Gaceta N° 103 del 2012-05-29.
 
@@ -41,3 +41,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 31 de 61 | 2020-07-01 | Resolución 827 (2020-06-04) | 2020-06-04 |
 | 32 de 61 | 2020-10-01 | Resolución 51 (2020-09-01) | 2020-09-01 |
 | 33 de 61 | 2021-02-01 | Resolución 1419 (2020-11-18) | 2020-11-18 |
+| 34 de 61 | 2021-04-01 | Resolución 15 (2021-03-03) | 2021-03-03 |
