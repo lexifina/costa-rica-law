@@ -1,0 +1,2 @@
+Artículo 5°- Refórmese el artículo 16° del Decreto Ejecutivo número 42690-MGP-S del 30 de octubre de 2020, para que en adelante se lea de la siguiente manera:
+"Artículo 16°- La Dirección General de Migración y Extranjería y la Comisión de Visas Restringidas y Refugio, según corresponda podrán otorgar visas de ingreso para personas solicitantes de regularización migratoria que requieran visa consular o restringida, de conformidad con los trámites ordinarios establecidos para ello en la legislación vigente."

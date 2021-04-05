@@ -1,0 +1,2 @@
+Artículo 4°- Refórmese el artículo 14° bis del Decreto Ejecutivo número 42690-MGP-S del 30 de octubre de 2020, para que en adelante lea de la siguiente manera:
+"ARTÍCULO 14° bis- Se autoriza el ingreso de personas extranjeras al país vía aérea y terrestre, bajo la categoría migratoria de No Residente, subcategoría Turismo, de acuerdo con la legislación migratoria vigente y lo establecido en el artículo 14° del presente Decreto Ejecutivo."
