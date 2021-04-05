@@ -14,3 +14,4 @@ Procedimiento de reservaciones del Parque Nacional Chirripó por motivo de ampli
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-11 | la propia norma |
+| 2 | 2021-04-05 | Resolución 152 (2021-04-05) |
