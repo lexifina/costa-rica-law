@@ -139,5 +139,42 @@ Si el usuario realizó el depósito del pago de admisión en línea desde su cue
 La declaración jurada exime de responsabilidad la Administración y sus colaboradores, ante cualquier reclamo del usuario. La misma será la herramienta que usará la Administración a través de sus colaboradores para agregar los nuevos participantes.
 3. Con la admisión paga y la declaración subida al sitio web indicado, el usuario deberá cancelar el monto correspondiente al hospedaje, a través de la pasarela de pagos del contratista de los servicios no esenciales, para lo cual tendrá cinco días naturales para realizar el pago.
 El usuario deberá adjuntar al sitio web, el comprobante de depósito, indicando en el detalle el número de reserva y la cantidad de personas, con sus respectivos nombres y números de cédula")
+(Nota de Sinalevi: Mediante resolución SINAC-ACLA-P-DR-152-2021 del 5 de abril del 2021 se autoriza la implementación del Procedimiento de Reservación del Parque Nacional Chirripó por motivo de ampliación del aforo de visitación únicamente para las reservaciones ya existentes duranto los meses de abril a Agosto del 2021 estableciéndose lo siguiente: " Que el procedimiento de reservaciones del Parque Nacional Chirripó comprende:
+a) La obligación del usuario de reservar y cancelar ante la Administración los derechos de admisión al Parque.
+b) La obligación del usuario de cancelar el monto correspondiente al alojamiento ante el contratista, siempre que esté vigente algún contrato de Servicios No Esenciales en el Parque.
+c) La obligación del turista de reportarse ante la Administración del Parque, antes del ingreso al área silvestre protegida.
+PRIMERO: La implementación del sistema auxiliar será de la siguiente manera:
+a) El usuario interesado en la compra de admisiones podrá hacerlo únicamente por llamada telefónica a través del número (905) 244-7747 para llamadas nacionales y (506) 2742-5348 para usuarios a nivel internacional. De lunes a viernes en horario de 8:00 a 12 :00 p.m. y de 1:00 p.m. a 4:00 p.m. No aplica para días feriados.
+b) Durante la llamada telefónica se le asignará un código de reservación, con el cual el usuario inicia el proceso de reserva.
+c) La Administración por medio de sus colaboradores, le solicitará al usuario sus datos personales (nombre completo, número de cédula, correo electrónico y teléfono), fecha específica de la visita, con la finalidad de verificar la disponibilidad de espacios.
+d) En caso de existir espacios, se le brindará al usuario 24 horas a partir de la llamada para realizar el depósito o transferencia del pago de admisión.
+e) El usuario solo podrá reservar una habitación de cuatro personas por llamada, es decir, no se podrán realizar reservaciones para una, dos, tres o más de cuatro personas.
+f) Una vez recibida la llamada la Administración por medio de sus colaboradores, ingresarán la información del usuario en el asistente de reservaciones, el cual generará un correo para el usuario, donde se le indicarán los pasos a seguir;
+. Pago de admisión: En ese primer correo se le brinda el número de reserva de la habitación pre-reservada, la fecha de ingreso, fecha de salida, números de cuenta del Fondo de Parque Nacionales para que realice el depósito o la transferencia. Se le indicará al usuario que en el detalle del depósito o transferencia debe colocar el número de reserva, así como se le solicitará al usuario aportar la declaración jurada completa y con las firmas respectivas.
+Posterior a realizar el pago de admisión, se le indicará al usuario que debe enviar un correo electrónico al Parque Nacional Chirripó reservaciones.chirripo@sinac. go.cr, adjuntando el comprobante de pago En el cuerpo del correo el usuario debe anotar la información de las personas que ocuparán la habitación (nombre completo, número de cédula o pasaporte). El usuario debe copiar el correo a CRC Chirripó info@chirripo.org.
+Solo se considerarán reservaciones en firme aquellas que hayan pagado la admisión de manera correcta. Si no se realiza de manera correcta se procederá a contactar al usuario para que corrija, con un plazo máximo de 6 horas próximas al ser contactado. De lo contrario se liberará la habitación. El usuario deberá asumir el costo de comisión en caso de que aplique.
+Las cuentas a las que se debe realizar este pago son:
+[imagen]
+. Envío de información a CRC Chirripó: en ese primer correo enviado por la Administración mediante sus colaboradores, se le colocará al usuario el enlace que lo redireccionará al portal de reservas de CRC Chirripó,
+donde se debe llenar la declaración jurada (cada declaración jurada será enviada al SINAC por CRC Chirripó) con los datos de las personas a agregar a la reserva, y pagar el monto establecido por concepto de hospedaje.
+g) El usuario contará con 24 horas para realizar el pago de admisión y con 10 días naturales para realizar el proceso de declaración jurada y pago de hospedaje a CRC Chirripó.
+h) Una vez recibido el pago del hospedaje, CRC Chirripó procederá a sistematizar la información y a realizar los procesos de facturación.
+i) Los usuarios no podrán realizar cambios de participantes en la reserva (as).
+j) El proceso para anular reservaciones es el mismo de la resolución de reservaciones N° SINAC-ACLAP-D-374-2020 publicada en La Gaceta.
+k) En caso que al día de cierre del SICORE 27 de marzo 2021, se evidenciaran admisiones disponibles por los sectores de ingreso de San Jerónimo y Herradura, los usuarios contarán con 8 espacios para reservar en los meses que no se hayan reservado a esta fecha, considerando las fechas establecidas en la resolución de reservaciones para cada sector, si los sectores de ingreso no utilizan los espacios para llenar la habitación o 2 habitaciones, se habilitarán los espacios para vender las habitaciones por San Gerardo de Rivas, un mes antes de la fecha.
+l) El auxiliar de reservaciones guardará los espacios administrativos de viernes a domingo de cada semana y se liberarán, un mes antes para vender por San Gerardo.
+SEGUNDO: El Sistema Auxiliar de Reservaciones se implementa bajo las siguientes condiciones generales:
+a) Aplica únicamente para el periodo comprendido entre abril hasta el 31 de agosto 2021 y para las fechas en las que se encuentran disponibles las habitaciones completas identificadas en el análisis de las reservaciones ya existentes.
+b) La Administración del Parque Nacional Chirripó, en conjunto con sus colaboradores estarán implementando este procedimiento a partir del 5 de abril 2021.
+c) Se implementará el sistema auxiliar de reservaciones, con la finalidad de ofrecerles la oportunidad de reservar habitaciones completas (4 visitantes), en el entendido de que no se podrán realizar reservaciones para una, dos, tres o más de cuatro personas, en fechas específicas, y por tiempo determinado (1-2-3 noches) según el histórico de habitaciones disponibles para el periodo establecido.
+d) Se tienen identificadas las habitaciones disponibles por fechas específicas entre los meses de abril a agosto 2021.
+e) No se atenderán usuarios en las oficinas del SINAC para reservar de forma presencial.
+f) El auxiliar de reservaciones no aplica para la venta de espacios para caminata de un día. Los espacios de un día se venderán, a través, de https://serviciosenlinea.sinac.go.cr/
+g) Las habitaciones disponibles para reservar por mes se colocarán a disposición de los usuarios, a través, del auxiliar de reservaciones con una distancia de 7 días:
+. Habitaciones disponibles abril 2021; se venderán, a través, del auxiliar de reservaciones a partir del 29 de marzo 2021.
+. Habitaciones disponibles mayo 2021; se venderán, a través del auxiliar de reservaciones a partir del 5 de abril 2021.
+. Habitaciones disponibles junio 2021; se venderán, a través, del auxiliar de reservaciones a partir del 12 de abril 2021.
+. Habitaciones disponibles julio 2021; se venderán, a través, del auxiliar de reservaciones a partir del 19 de abril 2021.
+. Habitaciones disponibles agosto 2021; se venderán, a través, del auxiliar de reservaciones a partir del 26 de abril 2021.)
 Rige a partir del 28 de septiembre del dos mil veinte.
 Publíquese.
