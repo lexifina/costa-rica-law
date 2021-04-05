@@ -14,3 +14,4 @@ Reglamento de Régimen de confianza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-09 | la propia norma |
+| 2 | 2021-04-05 | Reglamento 12521 (2021-04-05) |
