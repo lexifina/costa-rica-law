@@ -1,0 +1,2 @@
+Artículo 14.-Se reforma el artículo 51 del Reglamento de Elección, Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de Flores. El texto es el siguiente:
+Artículo 52.-Sede Electoral. Las Asambleas indicadas en los artículos 48 y 49 del presente reglamento, se llevarán a cabo en el Salón de Sesiones del Concejo Municipal de Flores con una hora de diferencia una de otra. Mientras que la Asamblea convocada por el Comité Cantonal de la Persona Joven se hará en el lugar indicado según la convocatoria que haga dicho comité.

@@ -1,0 +1,2 @@
+Artículo 19.-Se reforma el artículo 82 del Reglamento de Elección, Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de Flores. El texto es el siguiente:
+Artículo 83.-Junta Directiva de los Comités Comunales. Los Comités Comunales de Deportes los conformarán una Junta Directiva compuesta por siete miembros: Presidente(a), Vicepresidente(a), Secretario(a), Tesorero(a), un Fiscal y dos Vocales.
