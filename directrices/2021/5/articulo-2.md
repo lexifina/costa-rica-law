@@ -1,0 +1,1 @@
+Articulo 2º-Se instruye a la Dirección de Crédito Público y a la Tesorería Nacional, así como a los Comités de coordinación para la gestión de la deuda interna del Gobierno Central, a realizar las acciones necesarias en el marco de sus competencias en materia de emisión de la deuda interna utilizando como guía el Plan de Emisión de la Deuda Interna del Gobierno Central.
