@@ -1,0 +1,1 @@
+ARTICULO 3. El CCDR tendrá una participación activa en la elaboración de las políticas públicas cantonales atinentes al desarrollo y fomento de la actividad deportiva y recreativa cantonal. La Municipalidad y el Concejo, podrán requerir pronunciamientos del CCDR, en el trámite de iniciativas cantonales que tengan como fin la promoción del deporte y la recreación.

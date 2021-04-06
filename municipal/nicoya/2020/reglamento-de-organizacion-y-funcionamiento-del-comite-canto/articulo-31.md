@@ -1,0 +1,1 @@
+ARTICULO 31. Las mociones de orden se pueden usar sólo para lo siguiente alterar el orden del día, dispensar algún trámite en determinado asunto, dar por agotada la discusión de un determinado asunto que se esté conociendo, posponer el conocimiento de un asunto o pasarlo a conocimiento de una comisión.

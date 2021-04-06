@@ -1,0 +1,4 @@
+CAPITULO VI
+DE LA ORGANIZACIÓN ADMINISTRATIVA Y FUNCIONAMIENTO DEL COMITÉ
+CANTONAL DE DEPORTES Y RECREACIÓN DE NICOYA
+ARTICULO 35. El superior jerárquico de la administración será el Encargado Administrativo(a) de la Oficina, y de éste lo será la Junta Directiva del Comité Cantonal. El puesto de Encargado Administrativo(a) de la oficina, es un cargo de confianza, y será de nombramiento de la Junta Directiva, por mayoría simple de votos y será escogido de entre los candidatos que hayan respondido a un concurso interno, si no se llenará la plaza por concurso interno, se abrirá el concurso público externo, que en cada caso promoverá el Comité mediante una publicación en un medio de comunicación local únicamente para el cantón de Nicoya, previo acuerdo firme de La Junta Directiva del Comité Cantonal de Deportes y Recreación.

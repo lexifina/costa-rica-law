@@ -1,0 +1,1 @@
+ARTICULO 70. El mantenimiento de canchas de fútbol, específicamente de su gramilla, deberá efectuarse de forma permanente durante todos los meses del año, priorizando en los meses de la temporada lluviosa, preferiblemente setiembre, octubre y/o noviembre, debiendo permanecer totalmente cerradas al público mientras duren los trabajos de mantenimiento general.

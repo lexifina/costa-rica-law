@@ -1,0 +1,9 @@
+ARTÍCULO 9. La integración del CCDR respetará la paridad de género y estará conformado de la siguiente manera:
+El Comité Cantonal de Deportes y Recreación de Nicoya, estará integrado por cinco personas mayores de edad y dos menores de edad, costarricenses y residente del Cantón de Nicoya, guardando la equidad de género, será integrado de la siguiente manera:
+A. Dos personas representantes del Concejo Municipal.
+B. Dos personas representantes de las organizaciones deportivas y recreativas del cantón, escogida en la asamblea de representantes deportivos y recreativos.
+C. Una persona representante de las organizaciones comunales, escogido en asamblea organizada por la Unión Cantonal de Asociaciones de Desarrollo Comunal.
+D. Dos personas que tengan entre 15 y 18 años, quienes serán elegidos mediante una asamblea cantonal, convocada por el Consejo de la Persona Joven, conformada por todas las organizaciones juveniles del cantón, y los atletas activos del Programa de Juegos Deportivos Nacionales del cantón.
+Estos miembros, no podrán ostentar las representación judicial o extrajudicial del comité, ni podrán contraer obligaciones en nombre del comité.
+En las asambleas convocadas por las organizaciones descritas anteriormente, para escoger a quienes las representaran en el CCDR, se elegirá una persona suplente, quien, ante la renuncia o inhabilitación del miembro designado, reemplazará a este último por el tiempo restante del nombramiento. De todo lo actuado, se dejará constancia mediante un acta, la cual deberá contener, al menos, una indicación de las organizaciones participantes, la asistencia y una descripción pormenorizada de la elección de los representantes.
+De igual manera se procederá con la instalación de los Comité Comunales de Deporte, exceptuando la comunicación al Concejo Municipal.

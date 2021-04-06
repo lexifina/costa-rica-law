@@ -1,0 +1,1 @@
+ARTICULO 36. El cargo de Encargado Administrativo(a), debe ser ocupado por una persona que reúna las condiciones impuestas en el concurso, los requisitos para el puesto de Encargado Administrativo se fijarán en el Manual Descriptivo de Puestos de la Municipalidad de Nicoya.

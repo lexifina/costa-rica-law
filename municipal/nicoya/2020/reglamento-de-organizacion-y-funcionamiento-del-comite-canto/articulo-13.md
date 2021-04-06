@@ -1,0 +1,1 @@
+ARTÍCULO 13. No podrán formar parte de la Junta Directiva los regidores y síndicos, el alcalde, vice alcaldes, el auditor, el Director Financiero, el tesorero, el contador; sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive.

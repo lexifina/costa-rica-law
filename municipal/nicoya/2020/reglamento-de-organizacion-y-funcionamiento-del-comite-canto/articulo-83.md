@@ -1,0 +1,1 @@
+ARTICULO 83. Es obligación del Encargado Administrativo de la Oficina, mantener un auxiliar de las requisiciones de bodega de las entregas que se le han hecho, y presentar un informe semestral al Promotor Deportivo para ser conocido por la Junta Directiva del Comité Cantonal.

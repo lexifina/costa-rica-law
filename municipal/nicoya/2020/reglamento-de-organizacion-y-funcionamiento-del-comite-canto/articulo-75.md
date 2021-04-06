@@ -1,0 +1,1 @@
+ARTICULO 75. Toda aquella organización que desee ser beneficiaria de implementos deportivos, debe estar inscrita dentro del registro padrón indicado en este reglamento, y cumplir con todos los requisitos, de previo a recibir cualquier tipo de beneficio. Podrán ser beneficiarios de implementos deportivos sólo aquellas organizaciones y/o personas que residan en el Cantón de Nicoya.

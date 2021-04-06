@@ -1,0 +1,3 @@
+CAPÍTULO V
+DE LAS COMISIONES
+ARTICULO 34. El Comité Cantonal de deportes, a través de la Junta Directiva, y los Comités Comunales, podrán autorizar, mediante acuerdo, el funcionamiento de todas las comisiones de trabajo que sean necesarias para la consecución de sus objetivos, las que estarán integradas como mínimo por tres personas, al menos uno deberá ser directivo, los otros pueden ser particulares o funcionarios del comité comunal, no podrá ser menos de tres integrantes. Estas comisiones pueden ser permanentes o temporales, según la necesidad. La Comisión actuará con el cumplimiento de su objetivo, para cuyo efecto siempre tendrá un plazo que fijara la junta directiva.

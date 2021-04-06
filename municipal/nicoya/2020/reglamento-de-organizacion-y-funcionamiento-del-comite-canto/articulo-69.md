@@ -1,0 +1,1 @@
+ARTICULO 69. El mantenimiento y administración de las instalaciones deportivas en cada uno de los distritos conforme corresponda, estará a cargo del Comité Comunal respectivo. Para tal efecto, este Comité contará en lo posible con la asesoría y cooperación técnica de los ingenieros municipales.

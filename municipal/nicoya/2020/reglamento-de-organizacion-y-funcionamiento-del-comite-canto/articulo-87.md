@@ -1,0 +1,1 @@
+ARTICULO 87. Todos los miembros de las asociaciones inscritas en el registro de asociaciones deportivas del cantón, son responsables por el buen uso de los implementos deportivos entregados, y tendrán la obligación de denunciar el mal uso de los mismos.

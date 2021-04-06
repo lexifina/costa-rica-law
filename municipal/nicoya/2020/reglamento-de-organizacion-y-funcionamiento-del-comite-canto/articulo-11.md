@@ -1,0 +1,4 @@
+DE LA JUNTA DIRECTIVA
+ARTÍCULO 11. De entre los miembros del CCDR, en la primera sesión, se elegirá la Junta Directiva, al igual que los Comités de Comunales de Deportes. Ésta estará compuesta por un Presidente, Vicepresidente, Secretario, Tesorero, vocal 1, 2 y 3, Se deberá notificar al Concejo Municipal, la integración formal de la Junta Directiva.
+Los miembros de la Junta Directiva durarán en sus cargos dos años, podrán ser reelectos por un solo período igual consecutivo en el mismo cargo y por otro período igual en cargo distinto, y no devengarán dietas ni remuneración alguna, por su servicio voluntario a favor del desarrollo del deporte y la recreación.
+En caso de inasistencia del presidente y el vicepresidente de la Junta Directiva, la sesión será presidida por el directivo de mayor edad.

@@ -1,0 +1,1 @@
+ARTICULO 49. La Junta Directiva de los comités comunales de deportes y recreación, estarán integrados por siete miembros con voz y voto. Deberán reunir los mismos requisitos que se requieren para integrar la Junta Directiva del Comité Cantonal de Deportes y Recreación.

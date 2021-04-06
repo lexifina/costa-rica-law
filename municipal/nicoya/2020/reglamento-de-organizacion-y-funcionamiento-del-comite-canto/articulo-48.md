@@ -1,0 +1,1 @@
+ARTICULO 48. Una vez concluida la sesión correspondiente, el Secretario del Comité comunal deportivo, pasará un proyecto de acta que deberá entregar a los miembros del Comité comunal, por lo menos con veinticuatro horas de anticipación, a la sesión en que serán discutidas y aprobadas.

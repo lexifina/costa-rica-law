@@ -1,0 +1,1 @@
+ARTICULO 57. Las asambleas para elegir los comités comunales de deportes y recreación, se deben realizar dentro del mes anterior al vencimiento del período de la Junta Directiva saliente, o en su caso, al vencimiento de los cargos de la Junta Directiva del Comité Cantonal.
