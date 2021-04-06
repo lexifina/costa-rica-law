@@ -1,0 +1,1 @@
+Artículo 22.—Alta de bienes inmuebles de dominio privado. El alta de este tipo de bienes puede darse por compra, por fallo judicial, por donación, por expropiación, en cuyo caso se seguirán los procedimientos legales y administrativos que correspondan en cada caso.

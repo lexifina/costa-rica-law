@@ -1,0 +1,1 @@
+Artículo 21.—De las adiciones y mejoras en inmuebles. Todo centro funcional que realice adiciones y mejoras que se lleven a cabo en bienes inmuebles, estarán obligadas en informar al Departamento de Información Geográfica y Catastral, así como coordinar con la Oficina de Administración de Bienes para la actualización del valor y las nuevas características del bien.

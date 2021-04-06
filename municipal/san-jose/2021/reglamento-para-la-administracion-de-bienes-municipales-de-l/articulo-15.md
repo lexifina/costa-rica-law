@@ -1,0 +1,2 @@
+Artículo 15.-Procedimiento para bienes en desuso. Previa coordinación con la Oficina de Administración de Bienes, las jefaturas responsables deberán entregar los bienes en el lugar que les sea indicado, para que la Oficina de Administración de Bienes los cargue en el stock general de la bodega de bienes en desuso para su disposición final, según sea el caso.
+La Oficina de Administración de Bienes realizará una verificación periódica de los bienes en desuso y coordinará con las dependencias correspondientes su disposición final, sea reciclaje, donación, desecho, otros.

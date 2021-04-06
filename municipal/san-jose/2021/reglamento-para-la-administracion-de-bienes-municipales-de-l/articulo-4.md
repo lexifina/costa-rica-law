@@ -1,0 +1,14 @@
+Artículo 4º-De los deberes de la oficina de administración e bienes:
+La Oficina de Administración de Bienes es la competente para operar y supervisar el Sistema de Administración de Bienes y llevar los controles necesarios, de los bienes asignados a cada centro funcional, así como proponer las políticas y procedimientos a la Dirección Administrativa para la adecuada gestión de los mismos. De acuerdo con las políticas y procedimientos aprobados por la Dirección Administrativa, la Oficina deberá identificar, localizar y controlar los movimientos de los bienes municipales. Para cumplir con lo anterior, la Oficina deberá:
+a) Centralizar la administración de bienes de la Municipalidad del Cantón Central de San José, de conformidad con los alcances definidos en el presente reglamento, así como cumplir los procedimientos descritos en el mismo.
+b) Gestionar la realización de inventarios periódicos ante las unidades pertinentes, orientado a la actualización y control de los bienes muebles e inmuebles de conformidad con la normativa que rige la materia, sin perjuicio de la realización de inventarios selectivos y parciales.
+c) Actualizar el sistema de administración de bienes con la información resultado de los informes de inventario, corrigiendo las discrepancias detectadas entre sus registros y lo que reporta cada jefatura o usuario, conforme a lo establecido en el presente reglamento.
+d) Colocar los dispositivos de identificación a cada uno de los bienes previa coordinación con el Almacén Municipal. Al ingresar bienes directamente al centro funcional, este deberá informar y gestionar su registro ante el Almacén Municipal, para su posterior identificación por parte de la Oficina de Administración de bienes.
+e) Consolidar la información correspondiente sobre altas, bajas, y modificaciones, para el ingreso en el sistema de administración de bienes.
+g) Reasignar dispositivo de identificación a los bienes cuyos dispositivos hayan sido reportados por las jefaturas.
+h) Recibir en la bodega bienes en desuso los bienes en mal estado para su disposición final.
+j) Administrar la bodega de bienes en desuso de manera tal que periódicamente se dispongan los bienes para desecho, reciclaje, entre otros; previa coordinación por parte de la Dirección Administrativa y los órganos designados para este fin.
+l) Informar a las Jefaturas inmediatas sobre los incumplimientos de sus funcionarios o centros funcionales, al reglamento, procedimientos, y directrices de administración de bienes para que proceda como corresponda a la luz de la legislación vigente y el reglamento.
+m) Gestionar ante la Dirección Administrativa las capacitaciones y actualizaciones necesarias a nivel institucional, en materia de Administración de Bienes.
+n) Velar por la correcta divulgación de las directrices, formularios, instructivos y demás.
+ñ) Cualquier otra que se desprenda de este reglamento o normativa conexa.

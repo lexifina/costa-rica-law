@@ -1,0 +1,1 @@
+Artículo 8º-Del Software: Se deberá identificar y registrar en el registro de activos la licencia correspondiente y el plazo de la misma; y se asignará como responsable a la jefatura que corresponda en la Dirección de Tecnologías de Información y Comunicaciones.

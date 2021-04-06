@@ -1,0 +1,1 @@
+Artículo 18.—Préstamo y arrendamiento de bienes muebles. Para préstamos o arrendamientos de bienes muebles a otras entidades, la Dirección de Asuntos Jurídicos comunicará a la Oficina de Administración de Bienes lo convenido para su registro en el sistema de administración de bienes con base en las políticas. y disposiciones administrativas que se establezcan para estos efectos.
