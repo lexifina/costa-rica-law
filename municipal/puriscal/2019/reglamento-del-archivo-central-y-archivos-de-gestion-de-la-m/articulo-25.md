@@ -1,0 +1,1 @@
+Artículo 25.-Investigación de documentos. Los investigadores que realicen trabajos con información del Archivo, se les solicitar una copia del trabajo realizado para incorporarlo a la base de datos, si así se considera conveniente, al Patrimonio del Archivo Central.

@@ -1,0 +1,1 @@
+Artículo 20.-Solicitud de acceso. Cualquier ciudadano interesado en consultar documentos deberá de hacer una solicitud por escrito indicando claramente el objetivo de la investigación, llenar una boleta de préstamo de documentos y presentar la cédula de identidad, carnet de estudiante o pasaporte que lo acredite.

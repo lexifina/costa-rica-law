@@ -1,0 +1,1 @@
+Artículo 7º-Horario. El horario del Archivo Central, es jornada continua de lunes a viernes de 08:00 a.m. a 04:30 p.m., según lo establece el Reglamento Autónomo de Organización y Servicio de la Municipalidad de Puriscal.

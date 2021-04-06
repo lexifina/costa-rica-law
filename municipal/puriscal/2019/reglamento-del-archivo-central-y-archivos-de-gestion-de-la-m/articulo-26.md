@@ -1,0 +1,1 @@
+Artículo 26.-Reglas del usuario. Los usuarios deben hacer silencio en el local u oficina de consulta, no es permitido rayar los documentos, ni ingerir ningún tipo de alimentos, de igual manera se prohíbe fumar en cualquiera de los espacios físicos asignados al Archivo Central.

@@ -1,0 +1,1 @@
+Artículo 31.-Evaluación de los Archivos de Gestión. Los Archivos de Gestión serán evaluados una vez al año por el Archivo Central, con el fin de dar seguimiento a los lineamientos y directrices emitidas en temas archivísticos.

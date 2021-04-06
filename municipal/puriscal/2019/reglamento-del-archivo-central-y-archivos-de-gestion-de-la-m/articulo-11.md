@@ -1,0 +1,1 @@
+Artículo 11.-Tablas plazos. La actualización o ajustes que se realicen a las Tablas de Plazos, se deberá someter a consideración y aprobación del Comité Institucional de Selección y Eliminación de documentos (CISED).

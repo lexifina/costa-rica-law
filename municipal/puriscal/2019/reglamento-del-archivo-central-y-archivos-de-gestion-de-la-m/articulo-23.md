@@ -1,0 +1,1 @@
+Artículo 23.-Derecho posesión. No tendrá derecho de posesión sobre los documentos los funcionarios que pretendan secuestrar o conservar documentos que se consideren de riesgo o de interés Científico Cultural, toda vez que estos documentos deberán estar en custodia del Archivo Central.

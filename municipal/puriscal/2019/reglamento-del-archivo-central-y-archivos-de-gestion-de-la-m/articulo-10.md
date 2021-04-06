@@ -1,0 +1,1 @@
+Artículo 10.-Responsabilidades. El Comité Institucional de Selección y Eliminación de documentos (CISED) será el responsable de definir las políticas, normas, directrices y tomar las decisiones en los procesos administrativos y técnicos de la gestión documental de la institución.

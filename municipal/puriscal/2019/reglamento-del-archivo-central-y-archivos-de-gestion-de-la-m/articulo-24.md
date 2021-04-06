@@ -1,0 +1,1 @@
+Artículo 24.-Fotocopiado o reproducción. En el caso de requerirse el fotocopiado o reproducción de un expediente o documento, el solicitante corre con los gastos correspondientes y se hará acompañar por un funcionario municipal.

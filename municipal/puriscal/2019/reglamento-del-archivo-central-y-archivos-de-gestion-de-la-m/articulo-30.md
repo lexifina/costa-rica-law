@@ -1,0 +1,1 @@
+Artículo 30.-Informe Desarrollo Archivístico. Todos los 30 de marzo de cada año, el Archivo Central representará ante el Archivo Nacional el Informe de Desarrollo Archivístico, bajo los parámetros establecidos por el ente rector.

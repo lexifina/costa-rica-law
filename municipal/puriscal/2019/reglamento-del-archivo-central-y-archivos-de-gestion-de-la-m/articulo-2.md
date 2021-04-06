@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo. Definir las reglas generales al interior del Archivo Central y Archivo de Gestión, con el fin de establecer políticas que cumplan con las necesidades integrales del manejo de la información y del archivo de los documentos.

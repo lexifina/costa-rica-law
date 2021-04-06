@@ -1,0 +1,1 @@
+Artículo 6º-Definición. El Archivo Central es el órgano responsable de planificar, organizar, dirigir, normar, coordinar, ejecutar y controlar las actividades archivísticas a nivel Institucional, así como, de la administración, custodia y conservación de la documentación proveniente de los Archivos de Gestión de cada una de las oficinas productoras.

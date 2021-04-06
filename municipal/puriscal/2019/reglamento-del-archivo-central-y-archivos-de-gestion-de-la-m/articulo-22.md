@@ -1,0 +1,1 @@
+Artículo 22.-Salida de los documentos. La documentación no podrá salir de la institución, salvo en los casos de exposición, requerimiento de los Tribunales de Justicia, de la Contraloría General de la Republica y otras instancias públicas o bien con la autorización expresa del Jerarca Institucional.

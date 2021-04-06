@@ -1,0 +1,1 @@
+Artículo 18.-Recepción. El Archivo Central de la Municipalidad de Puriscal, recibirá en las fechas establecidas y debidamente organizados los documentos que le remitan los diferentes procesos y subprocesos, tomando en cuenta la vigencia administrativa establecida en la Tabla de Plazos de Conservación y Eliminación de Documentos.
