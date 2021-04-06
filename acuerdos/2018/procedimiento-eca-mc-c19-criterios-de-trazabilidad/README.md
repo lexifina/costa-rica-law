@@ -14,3 +14,4 @@ Procedimiento ECA-MC-C19: Criterios de trazabilidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-22 | la propia norma |
+| 2 | 2021-04-06 | Acuerdo 7 (2021-04-06) |
