@@ -1,2 +1,0 @@
-Artículo 16.—Procedimiento de inscripción. En cualquier tiempo, las personas físicas o jurídicas interesadas en formar parte del Registro de Proveedores podrán solicitar su incorporación.
-La Administración le proporcionará la documentación a completar mediante vía física (entrega personal), o por medio de los sistemas electrónicos disponibles. Debe presentar la documentación requerida completa, con todos los datos solicitados, en el Departamento de Suministros, Bienes y Servicios o las Unidades de Compra.

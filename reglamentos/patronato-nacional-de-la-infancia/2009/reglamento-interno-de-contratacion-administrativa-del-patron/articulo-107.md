@@ -1,1 +1,0 @@
-Artículo 107.—Finiquito del contrato. Una vez finalizada y liquidada la contratación, en el caso de las contrataciones a las que se les elaboró contrato, el Departamento de Suministros, Bienes y Servicios enviará el expediente administrativo de la contratación a la Asesoría Jurídica, a fin de que elabore el respectivo finiquito.

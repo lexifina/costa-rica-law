@@ -1,1 +1,0 @@
-Artículo 44.—Disponibilidad del cartel. El Departamento de Suministros, Bienes y Servicios deberá mantener a disposición de cualquier interesado para su adquisición o consulta, copia de los carteles de las licitaciones que se encuentren en trámite.

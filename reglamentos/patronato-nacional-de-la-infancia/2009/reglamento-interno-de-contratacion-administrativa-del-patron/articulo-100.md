@@ -1,1 +1,0 @@
-Artículo 100.—Fiscalización del contrato. La fiscalización del contrato tendrá por objeto tomar oportunamente las providencias necesarias para obligar al contratista al estricto cumplimiento de las condiciones específicas y plazos establecidos.

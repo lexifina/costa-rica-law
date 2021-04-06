@@ -1,1 +1,0 @@
-Artículo 82.—De la orden de compra. La Asesoría Jurídica notificará al Departamento de Suministros, Bienes y Servicios, el refrendo contralor o aprobación interna, según corresponda, para que gire la orden de compra del contrato, dentro de los 15 días hábiles siguientes a su notificación, en el caso del refrendo contralor, o de su emisión, en el caso de la aprobación interna..

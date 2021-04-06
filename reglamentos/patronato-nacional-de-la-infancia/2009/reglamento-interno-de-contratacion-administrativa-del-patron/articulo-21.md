@@ -1,2 +1,0 @@
-Artículo 21.—Registros Auxiliares. El Departamento de Suministros, Bienes y Servicios y las Unidades Regionales de Compra podrán tener un Registro de Proveedores Auxiliar, de los potenciales proveedores de bienes y servicios de la zona de su jurisdicción, si así lo autoriza la Contraloría General de la República.
-En caso de que disponga de éste Registro, cada Unidad Regional de Compra, deberá remitir la información contenida en los mismos al Departamento de Suministros, Bienes y Servicios, para su inclusión en el Registro de Proveedores Institucional.

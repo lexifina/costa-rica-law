@@ -1,2 +1,0 @@
-Artículo 50.—Monto y plazo de las garantías. El monto y plazo mínimo de las garantías de participación y de cumplimiento para cada contratación lo determinará el Departamento de Suministros, Bienes y Servicios, de acuerdo con lo establecido en la Ley y su Reglamento.
-Se considerará los siguientes parámetros: Monto estimado de la contratación, tipo de concurso, disponibilidad de oferentes en el Registro de Proveedores, monto de las multas y cláusulas penales que se cobrarán por incumplimiento de contrato, tiempo de ejecución y complejidad del contrato.

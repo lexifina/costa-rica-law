@@ -1,1 +1,0 @@
-Artículo 73.—Comunicación de adjudicación de licitaciones. Una vez adjudicada la licitación, se procederá a comunicar por los mismos medios por los que se comunicó la invitación, de conformidad con lo indicado en el artículo 88 del Reglamento a la Ley de Contratación Administrativa.

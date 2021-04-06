@@ -1,2 +1,0 @@
-Artículo 80.—Refrendo de contratos. Las contrataciones administrativas que requieran del refrendo por parte de la Contraloría General de la República, en razón de su cuantía y del estrato presupuestario en el cual se ubique el PANI, deberán someterse a las disposiciones contempladas en el Reglamento sobre Refrendos de las Contrataciones de la Administración Pública vigente, emitido por la Contraloría General de la República.
-El trámite y requisitos de dicho refrendo se regirá por lo establecido en el Capítulo IV del citado Reglamento.

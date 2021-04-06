@@ -1,1 +1,0 @@
-Artículo 85.—Recibo de obras. El recibo de obras se regirá por lo establecido en el artículo 151 del Reglamento a la Ley de la Contratación Administrativa, mientras que el de bienes y servicios se hará con arreglo en lo estipulado en los artículos 194 y 195 del mismo Reglamento.

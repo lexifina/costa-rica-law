@@ -1,1 +1,0 @@
-Artículo 23.—Vigencia de la inscripción. La inscripción en el Registro de Proveedores tendrá una vigencia de 24 meses. Es responsabilidad del proveedor mantener actualizada su información, se procederá a desactivar al proveedor una vez que transcurran los 24 meses y no actualice su información.

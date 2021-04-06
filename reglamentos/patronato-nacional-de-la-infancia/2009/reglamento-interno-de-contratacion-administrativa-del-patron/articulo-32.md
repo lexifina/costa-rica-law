@@ -1,2 +1,0 @@
-Artículo 32.—Subsanación de la Decisión Inicial. La Decisión Inicial presentada en forma incompleta o imprecisa, será comunicada para su corrección por el Departamento de Suministros, Bienes y Servicios a la Unidad Gestionante, para que realice el ajuste correspondiente, dentro de los tres días hábiles siguientes.
-Si la prevención no es atendida en forma oportuna se procederá a su archivo, relevándose de responsabilidad al Departamento de Suministros, Bienes y Servicios.

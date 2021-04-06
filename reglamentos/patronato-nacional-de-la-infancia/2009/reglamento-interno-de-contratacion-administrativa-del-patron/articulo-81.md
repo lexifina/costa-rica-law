@@ -1,2 +1,0 @@
-Artículo 81.—Aprobación interna. La actividad contractual que por su naturaleza o cuantía no requiera del refrendo de la Contraloría General de la República, deberán contar con la aprobación interna de la Asesoría Jurídica institucional o de aquella otra con especialidad jurídica designada por el jerarca para tales efectos.
-El trámite de aprobación interna se regirá por lo estipulado en el artículo 17 del Reglamento sobre Refrendos de las Contrataciones de la Administración Pública vigente.

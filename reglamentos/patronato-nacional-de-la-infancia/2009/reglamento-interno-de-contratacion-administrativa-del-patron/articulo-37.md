@@ -1,1 +1,0 @@
-Artículo 37.—Sistema Integrado de Actividad Contractual. Será responsabilidad del Departamento de Suministros, Bienes y Servicios el registro de toda la información sobre actividad contractual en el Sistema Integrado de Actividad Contractual (SIAC), conforme con las disposiciones que sobre dicho Sistema establece la Contraloría General de la República.

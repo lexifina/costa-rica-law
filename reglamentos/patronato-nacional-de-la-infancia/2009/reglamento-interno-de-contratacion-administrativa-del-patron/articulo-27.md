@@ -1,4 +1,0 @@
-CAPÍTULO IV
-Tipos de contratación
-Artículo 27.—Tipos de contratación. El PANI realizará los procedimientos de contratación administrativa, de conformidad con lo establecido en la Ley de Contratación Administrativa y su Reglamento, normativas que establecen los siguientes tipos de procedimientos: Licitación Pública, Licitación Abreviada y Materias excluidas de los procedimientos ordinarios de contratación.
-Los tipos de contratación regulados en este Reglamento no excluye la posibilidad de que mediante Reglamento se defina cualquier otro tipo contractual que contribuya a satisfacer el interés público dentro del marco general y previamente autorizado por la Contraloría General de la República. Se excluyen de los procedimientos ordinarios de contratación las materias que establecen los artículos 128 al 138 del Reglamento a la Ley de Contratación Administrativa.

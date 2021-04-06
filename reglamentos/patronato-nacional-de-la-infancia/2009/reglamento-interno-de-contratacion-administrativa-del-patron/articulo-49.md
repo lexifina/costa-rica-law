@@ -1,1 +1,0 @@
-Artículo 49.—Control y vigencia de las garantías. El control sobre la rendición efectiva, el monto y vigencia de las garantías de participación y de cumplimiento, será responsabilidad del Departamento de Suministros, Bienes y Servicios y su recepción y custodia será responsabilidad de la Oficina de Tesorería.

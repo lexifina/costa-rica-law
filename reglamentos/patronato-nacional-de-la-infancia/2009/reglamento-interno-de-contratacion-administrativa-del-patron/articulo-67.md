@@ -1,1 +1,0 @@
-Artículo 67.—Estudio de ofertas y solicitud de aclaraciones. Cuando las unidades o dependencias que tengan a cargo el estudio y valoración de ofertas, deban solicitar aclaraciones a las ofertas, el aporte de documentación adicional o subsanaciones, lo harán a través del Departamento de Suministros, Bienes y Servicios.

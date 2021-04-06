@@ -1,1 +1,0 @@
-Artículo 9º—Definición. El Registro de Proveedores es un instrumento donde se inscribirán todas las personas físicas y jurídicas que desean participar en los procesos de contratación administrativa que realiza el PANI.

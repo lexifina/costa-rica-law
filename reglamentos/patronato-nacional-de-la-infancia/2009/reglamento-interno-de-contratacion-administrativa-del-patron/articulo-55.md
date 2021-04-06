@@ -1,1 +1,0 @@
-Artículo 55.—Ejecución de garantías. En caso de que proceda la ejecución de la garantía de participación o cumplimiento, se seguirá el procedimiento establecido en los artículos 39 y 41 del Reglamento a la Ley de Contratación Administrativa.

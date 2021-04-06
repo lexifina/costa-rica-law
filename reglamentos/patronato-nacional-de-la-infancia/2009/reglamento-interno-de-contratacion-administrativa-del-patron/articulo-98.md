@@ -1,8 +1,0 @@
-SECCIÓN IV
-Reajuste de precios
-Artículo 98.—Derecho al equilibrio económico del contrato. En materia de arrendamientos de bienes inmuebles, para el reajuste de la renta o precio se aplicará lo dispuesto en el artículo 67 de la Ley General de Arrendamientos Urbanos y Suburbanos.
-En los demás casos, con fundamento en el artículo 31 de la Ley General de la Contratación Administrativa, todo contratista tendrá derecho al equilibrio económico del contrato. Cuando el reajuste de precios se efectúe a solicitud expresa del contratista se aplicará el siguiente procedimiento
-a. La solicitud se deberá presentar al Departamento de Suministros, Bienes y Servicios con al menos la siguiente información: el desarrollo de la fórmula matemática, copia de los documentos donde consten los índices utilizados (oficiales o certificados cuando corresponda), la estructura de costos, el número de contratación, la referencia de la Orden o contrato vigente y una breve descripción del objeto del contrato.
-b. El Departamento de Suministros, Bienes y Servicios analizará los documentos en los tres días hábiles siguientes a su presentación y los remitirá al Departamento Financiero Contable, para su revisión, durante los siete días hábiles siguientes.
-c. El Departamento Financiero Contable, informará al Departamento de Suministros, Bienes y Servicios, la procedencia o no de la solicitud planteada, para que esta dependencia lo comunique al contratista para que presente la factura correspondiente, en caso de ser aprobado.
-Todos los documentos que se generen deberán ser incorporados en forma oportuna al expediente administrativo de la contratación.

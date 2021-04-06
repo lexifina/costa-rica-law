@@ -1,3 +1,0 @@
-SECCIÓN V
-Control y fiscalización del contrato
-Artículo 99.—Derecho de Fiscalización. El contratista se encuentra obligado a ofrecer al PANI las facilidades necesarias para la adecuada fiscalización del contrato. Para el efectivo ejercicio de este derecho, al inicio de la contratación, en la decisión inicial, la unidad gestora indicará el funcionario u órgano, que asumirá la obligación de tomar oportunamente las previsiones necesarias para que el contratista se ajuste al estricto cumplimiento de las condiciones, especificaciones y plazos establecidos en el contrato y a las demás obligaciones implícitas en éste.

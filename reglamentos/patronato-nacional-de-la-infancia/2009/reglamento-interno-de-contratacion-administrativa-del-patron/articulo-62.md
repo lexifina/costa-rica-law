@@ -1,1 +1,0 @@
-Artículo 62.—Recepción de ofertas. Llegada la hora y fecha límites fijadas en las bases de la contratación, se tendrá por cerrado el plazo de recepción de ofertas. Para el control de la hora límite se utilizará el reloj marcador del Departamento de Suministros, Bienes y Servicios o la Unidad de Compra Regional, según corresponda.

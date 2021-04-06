@@ -1,4 +1,0 @@
-Artículo 68.—Exclusión de ofertas. Corresponderá al Departamento de Suministros, Bienes y Servicios prevenir la subsanación de los defectos formales advertidos a los oferentes, cuando sea jurídicamente procedente de conformidad con el artículo 81 del Reglamento a la Ley de Contratación Administrativa.
-Únicamente podrán excluirse del concurso las ofertas que infrinjan disposiciones legales sustanciales o que se aparten de las estipulaciones técnicas y financieras relevantes del cartel de licitación.
-También serán descalificadas las ofertas que, a pesar de ser formalmente prevenidos sus oferentes, no concurran en el tiempo concedido, a subsanar las deficiencias formales trascendentes, advertidas en sus ofertas.
-La garantía de participación se ejecutará en aquellos casos en que el oferente deje de contestar en tiempo, de manea injustificada, una prevención de la Administración sobre un aspecto trascendente.

@@ -1,1 +1,0 @@
-Artículo 54.—Prórrogas. En el caso de prórroga a la garantía, una vez prevenido el oferente o contratista sobre la misma por parte del Departamento de Suministros, Bienes y Servicios, si éste no atendiere oportunamente la prevención, dicho Departamento procederá a la ejecución de la caución a más tardar el día de su vencimiento.

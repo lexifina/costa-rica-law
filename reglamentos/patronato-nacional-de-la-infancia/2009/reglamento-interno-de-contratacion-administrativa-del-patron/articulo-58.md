@@ -1,1 +1,0 @@
-Artículo 58.—Prevención por vigencia menor a la establecida en el cartel. El Departamento de Suministros, Bienes y Servicios será el responsable de prevenir al oferente en caso de que la vigencia de su oferta sea inferior a la solicitada en el cartel, de conformidad con lo establecido en el artículo 67 del Reglamento a la Ley de Contratación Administrativa.

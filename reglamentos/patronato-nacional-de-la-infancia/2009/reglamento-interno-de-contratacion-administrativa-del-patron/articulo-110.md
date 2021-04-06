@@ -1,1 +1,0 @@
-Artículo 110.—Procedimiento administrativo. Los procedimientos que se tramiten por infracciones al régimen de contratación administrativa del PANI, se realizarán con arreglo a las reglas establecidas en la Ley General de la Administración Pública.

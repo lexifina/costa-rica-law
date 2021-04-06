@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. Las disposiciones del presente Reglamento serán aplicables todos los procedimientos de contratación administrativa que promueva el Patronato, a través del Departamento de Suministros, Bienes y Servicios y las Direcciones Regionales, últimas que para efectos del presente reglamento se denominaran Unidades de Compra Regionales.

@@ -1,5 +1,0 @@
-CAPÍTULO X
-La oferta
-Artículo 56.—Oferta. La oferta deberá presentarse por los medios autorizados en el cartel, sea por medios físicos o en forma electrónica y debidamente firmada por quien tenga poder para ello, de manera física o a través de algún mecanismo electrónico previamente aceptado por la Administración, siguiendo lo establecido en el Reglamento a la Ley de Contratación Administrativa, en cuanto a la utilización de los medios electrónicos.
-Para una mayor agilidad, la oferta podrá presentarse mediante formulario, cuando la Administración, así lo haya establecido en el cartel o el procedimiento utilizado así lo exija. Salvo que en el cartel se indique otra modalidad, las ofertas se presentarán en sobre cerrado, el cual deberá indicar la ubicación de la oficina que la recibe, el número y nombre del concurso que se trate.
-La no presentación de la oferta en sobre cerrado se entenderá bajo la exclusiva responsabilidad del proponente, no acarreará ningún vicio y tampoco relevará a los funcionarios de su deber de confidencialidad y custodia antes de la apertura.

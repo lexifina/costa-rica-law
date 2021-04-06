@@ -1,2 +1,0 @@
-Artículo 52.—Devolución de garantías. La devolución de las garantías de participación y cumplimiento se hará a petición de los interesados y previa autorización del Departamento de Suministros, Bienes y Servicios, en los plazos establecidos en el artículo 45 del Reglamento.
-Además, para las garantías de cumplimiento, la devolución se hará previa autorización del Fiscalizador del contrato. Se podrá realizar devoluciones parciales de la garantía de cumplimiento, de acuerdo a lo establecido en el artículo 45 del Reglamento a la Ley de Contratación Administrativa.

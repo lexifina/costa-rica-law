@@ -1,1 +1,0 @@
-Artículo 10.—Ámbito de aplicación. El Registro de Proveedores es un instrumento de consulta obligatoria, en el que se inscribirán las personas físicas y jurídicas que desean participar en los procesos de contratación administrativa que corresponda, de manera que se encuentren debidamente acreditados.
