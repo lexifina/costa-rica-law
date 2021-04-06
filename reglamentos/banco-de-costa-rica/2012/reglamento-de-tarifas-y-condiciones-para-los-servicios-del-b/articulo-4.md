@@ -6,8 +6,15 @@ Transferencia de fondos a terceros:
 (Así reformado el punto anterior mediante sesión 24-13 del 24 de junio del 2013)
 4.2.- Reemplazo de clave dinámica física por pérdida o robo
 $3.00
-4.3.- Plataforma de conectividades. La comisión obtenida por el Banco motivo de una conectividad, debe ubicarse entre un rango de 0,25% y 10%, según la normativa que contiene los rangos de negociación de acuerdo a la categoría de conectividad y el convenio que se acuerde entre el Banco y la empresa contratante posteriormente. Esta será establecida en el documento Reglas del Negocio que deben firmar ambas partes.
-(Así reformado el punto 4.3) anterior en sesión N° 44 del 14 de octubre de 2015)
+(*) 4.3. Plataforma de conectividades
+Las comisiones oscilan en un rango de 1% a un 12%.
+El porcentaje a negociar debe ser en función a la categorización de clientes definida por el Banco tomando en consideración las variables de cada negocio.
+Se exceptúan los siguientes casos:
+1. Interés social o actividad relacionada, aplica un porcentaje a partir de 0.5%.
+2. Clientes no interesados en la comisión porcentual se deben establecer en términos absolutos en un rango de ¢500 a ¢1,500 por transacción.
+Nota:
+Cualquier categoría o caso de excepción que no sea la establecida por el Banco, debe ser consultada con la Oficina de Canales Presenciales.
+(*)(Así reformado el punto 4.3) anterior mediante sesión N° 15-2021 del 6 de abril de 2021)
 4.4.- Tesorería electrónica. Comisión del 2% a las empresas e instituciones sobre los pagos que les hacen sus clientes mediante el uso de este servicio.
 (Así reformado el punto 4.4) anterior en sesión N° 44 del 14 de octubre de 2015)
 4.5.- Créditos directos salientes Sinpe cuentas clientes
@@ -28,7 +35,7 @@ Emisión $75.00 por certificado
 Solo lector $39.00
 Solo tarjeta $32.00
 Renovación $32.00
-Cambio PIN – Desbloqueo $10.00
+Cambio PIN - Desbloqueo $10.00
 (*)C- Costo Tarjeta Firma Digital con Medio de Pago Emisión $55.00
 Solo Lector $30.00
 Solo Tarjeta $25.00
@@ -37,7 +44,6 @@ Cambio de Pin-Desbloqueo $5.00
 (*)(Así adicionado el inciso c) anterior al punto 4.7) mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así reformado el punto 4.7) anterior en sesión N° 49-18 del 24 de setiembre de 2018)
 4.8.- Servicio Quick Pass
-[imagen]
 (Así reformado el punto 4.8) anterior en sesión N° 48-2020 del 24 de noviembre del 2020)
 4.9.- Transferencia por medio de web corporativo (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 (Así reformado el punto 4.9) anterior en sesión N° 44 del 14 de octubre de 2015)
