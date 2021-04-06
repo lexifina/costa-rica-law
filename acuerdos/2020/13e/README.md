@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MP-P02-I02 Documentos aplicables en los diferentes pro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-15 | la propia norma |
+| 2 | 2021-04-06 | Acuerdo 7 (2021-04-06) |
