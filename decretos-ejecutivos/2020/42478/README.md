@@ -14,3 +14,4 @@ Flexibilización reglamentaria para ayudar a patronos con deuda ante la DESAF co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-22 | la propia norma |
+| 2 | 2021-04-06 | Decreto Ejecutivo 42941 (2021-04-06) |
