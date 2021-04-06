@@ -1,0 +1,1 @@
+Artículo 4º-Ámbito de las gestiones de cobro: Abarca todas las gestiones de cobro establecidas en el presente Reglamento, que realice el Departamento de Gestión de Cobros y relacionados de la Municipalidad de Golfito a los contribuyentes.

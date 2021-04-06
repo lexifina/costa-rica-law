@@ -1,0 +1,1 @@
+Artículo 23.-Confección del Arreglo de Pago: El Departamento de Gestión de Cobro analizará y confeccionará los arreglos de pago; y será responsable de su seguimiento. Únicamente procederá el arreglo de pago, cuando el cobro se encuentre en la etapa administrativa y en caso de etapa judicial por razones debidamente motivadas.

@@ -1,0 +1,1 @@
+Artículo 12.-Identificación del personal de la Gestión de Cobros: Para el desempeño de su labor, todo el personal se acreditará su condición de funcionario mediante un carné de identificación o documento idóneo que le brinde la Municipalidad, el cual deberá ser exhibido de previo al inicio de las actuaciones de notificación inclusive.

@@ -1,0 +1,1 @@
+Artículo 14.-Informes de Morosidad: El Departamento de Gestión de Cobros deberá rendir informes trimestrales al Alcalde Municipal y/o cuando este lo solicite, sobre el estado de las cuentas morosas y sobre las acciones individuales de cada gestión a esa fecha así como el avance en la ejecución de las acciones tendientes a la recaudación de tributos.

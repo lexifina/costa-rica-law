@@ -1,0 +1,1 @@
+Artículo 41.-Ubicación y responsable de custodia del expediente: Los expedientes estarán ubicados en El Departamento asignada para el Cobro Judicial y estará bajo la responsabilidad la custodia de dicha oficina y en caso de que sean abogados externos, estos serán responsables de su custodia y resguardo.

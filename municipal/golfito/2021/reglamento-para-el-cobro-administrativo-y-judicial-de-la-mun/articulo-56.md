@@ -1,0 +1,4 @@
+Artículo 56.-Trámite de la declaratoria. Al declararse una Obligación Incobrable, la Administración deberá realizar el trámite siguiente:
+a. El abogado director del proceso de cobro emitirá al Departamento de gestión de Cobros un criterio técnico profesional o justificación administrativa sobre el expediente del sujeto pasivo donde se demuestre alguno de los supuestos previstos en el numeral 56 del presente reglamento. Dicho criterio será acompañado del expediente administrativo del proceso de cobro Judicial.
+b. El Departamento de Gestión de cobros emitirá a la Alcaldía un oficio donde se solicite al Concejo Municipal la declaratoria de Obligación en Incobrable.
+c. La Alcaldía pondrá en conocimiento al Concejo Municipal sobre tal solicitud y este último emitirá a través de un acuerdo municipal la declaración de incobrable.

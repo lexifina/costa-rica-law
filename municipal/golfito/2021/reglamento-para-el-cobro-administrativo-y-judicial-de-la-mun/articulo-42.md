@@ -1,0 +1,1 @@
+Artículo 42.-Pago de Honorarios de profesionales: En caso de contratación de Abogados externos de conformidad con las regulaciones de la Contratación Administrativa, Los honorarios que se pacten se regirán según lo dispuesto en el Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado determinado por el Colegio de Abogados y Abogadas de Costa Rica.

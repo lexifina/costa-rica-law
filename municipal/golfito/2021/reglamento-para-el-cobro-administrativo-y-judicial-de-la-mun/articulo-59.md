@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Disposiciones finales
+Artículo 59.-Fundamento Jurídico: A las materias que son objeto del presente Reglamento, resultan aplicables las disposiciones contenidas sobre las mismas en: el Código de Normas y Procedimientos Tributarios, el Código Municipal, la Reforma del Código Procesal Civil, la Ley General de Administración Pública, Código Procesal Contencioso Administrativo y Formas Conexas, Ley y Reglamento de Impuesto de Bienes Inmuebles, Ley de Notificaciones, y el Decreto de Aranceles Profesionales para Abogados, así como cualquier otra norma que sea de aplicación supletoria en relación con este Reglamento.

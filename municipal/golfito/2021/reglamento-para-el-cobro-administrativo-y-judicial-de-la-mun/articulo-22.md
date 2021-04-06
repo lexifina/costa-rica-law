@@ -1,0 +1,2 @@
+Arreglo de pago
+Artículo 22.-Definición de arreglos de pago. Como tal se entiende el compromiso que asume el sujeto pasivo con la Municipalidad, de cancelar la cuenta que adeuda en un tiempo a convenir con el Departamento Gestión de Cobros, de acuerdo con lo dispuesto en este Reglamento. De los arreglos de pago que se otorguen al deudor, deberán dejarse constancia en el expediente y en el sistema de cómputo respectivo.

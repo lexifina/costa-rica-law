@@ -1,0 +1,1 @@
+Artículo 57.-Ubicación y responsable de custodia del expediente: Los expedientes en trámite y declaratoria de obligaciones Incobrables estarán ubicados en el Departamento de Gestión de Cobros y estará bajo su responsabilidad la custodia de los mismos.

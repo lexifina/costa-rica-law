@@ -1,0 +1,5 @@
+Artículo 6º-Definición de obligaciones tributarias: Para los fines de este Reglamento se entiende por obligaciones tributarias documentadas y no documentadas:
+1) Aquellas que representen deudas por concepto de impuestos nacionales y municipales bajo administración del Municipio, que presenten atraso en el pago de las mismas o que se encuentren vencidas.
+2) Aquellas que representen deudas por concepto de tasas y contribuciones especiales creadas por la Municipalidad que presenten atraso en el pago o que se encuentren vencidas.
+3) Aquellas que representen deudas por concepto de arrendamientos, y cánones que se hayan otorgado a beneficiarios de programas municipales que presenten atraso en el pago o, que se encuentren vencidas o que exista algún tipo de incumplimiento que obligue a su vencimiento.
+4) Aquellas obligaciones que incumpla el contribuyente sobre alguna de las cláusulas pactadas del arreglo de pago entre la Municipalidad y el sujeto pasivo que faculten al municipio a darlas por vencidas, en forma anticipada o con el vencimiento del plazo de la obligación, que contemplen las leyes y reglamentos aplicables y vigentes.

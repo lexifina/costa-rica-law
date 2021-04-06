@@ -1,0 +1,7 @@
+CAPÍTULO VII
+De los Remates
+Artículo 47.-Los Remates: A fin de proteger al máximo los intereses de la Municipalidad, se fija el siguiente procedimiento para la acción:
+a. El encargado del proceso de Cobro Judicial junto con la Alcaldía, definirá un presupuesto anual para enfrentar casos de remate sin compradores. Las publicaciones de los edictos y los casos en que exista interés de la Municipalidad de adquirir el bien inmueble puesto a remate. El monto de dicho fondo deberá estar contemplado en el Plan Operativo Anual del Presupuesto Municipal.
+b. Cuando el avalúo sobrepasa el monto de la base del remate y hubiere postores, la Municipalidad ofrecerá el monto del avalúo, siempre y cuando este no sobrepase el monto del total adeudado a la Municipalidad.
+c. Cuando el avalúo fuere menor que la base de lo adeudado a la Municipalidad el abogado hará puja en el remate sujetos a lo que al efecto se haya presupuestado previo a directrices de la Alcaldía.
+d. En caso de que no se visualicen compradores potenciales en el remate de un bien y no se disponga de un fondo municipal suficiente para la compra del mismo, el encargado del proceso de cobro judicial junto con el Alcade, podrán decidir no ir a remate como medida de cautela, sin embargo, dictará las instrucciones correspondientes para que se publique en el Diario Oficial La Gaceta y se anote el gravamen sobre dicho bien en el Registro de la Propiedad.

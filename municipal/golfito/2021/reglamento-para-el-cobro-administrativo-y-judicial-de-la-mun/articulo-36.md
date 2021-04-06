@@ -1,0 +1,1 @@
+Artículo 36.-Abogados a cargo de proceso de Cobro Judicial: Los abogados designados por la Municipalidad se harán cargo y serán responsables de una cartera de saldos deudores. Datos que deben personalizar e individualizar hasta lograr el pago respectivo. Los resultados de estos procedimientos deben ser informados ante El Departamento de Gestión de Cobros.

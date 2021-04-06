@@ -1,0 +1,5 @@
+Artículo 26.-Requisitos de arreglos de pago. Las personas interesadas en un arreglo de pago deberán presentar los siguientes requisitos:
+1. Solicitud escrita en el formulario diseñado por la Municipalidad para tales efectos, el cual deberá estar firmado por el sujeto pasivo si es persona física y por el representante legal si es persona jurídica, el cual debe de estar debidamente acreditado y que se encuentra facultada la persona para realizar el acto. En caso de que la persona se encuentre fallecida, podrá solicitar el arreglo de pago el albacea designado judicialmente o notarialmente. Este último debe de acreditar su condición mediante certificación notarial correspondiente.
+2. La solicitud antes indicada deberá tener un timbre municipal de quinientos colones (?500,00).
+3. Presentar cédula de identidad en caso de persona física. En caso de personería jurídica, debe de presentar personería jurídica con no más de treinta días de expedida cuando se trate de sociedades.
+4. Cumplir con el pago de formalización indicado en el artículo 25 del presente Reglamento.

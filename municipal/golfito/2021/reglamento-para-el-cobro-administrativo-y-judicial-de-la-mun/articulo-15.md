@@ -1,0 +1,10 @@
+Artículo 15.-Funciones del Departamento de Gestión de Cobro: En cumplimiento de su función de recaudación, El Departamento de Gestión de Cobro realizará las siguientes acciones:
+a) Proponer e implementar estrategias y procedimientos de cobro anual de la Municipalidad.
+b) Gestiones de cobro: las acciones de cobro consistirán en avisos o mensajes vía telefónica o internet, notificación formal del aviso de cobro o medios tecnológicos debidamente señalados y la aprobación y elaboración de arreglos de pago u otros que el Departamento considere convenientes.
+c) Gestiones de cobro administrativo de las cuentas morosas: Las obligaciones tributarias municipales que se encuentren morosas, será notificada mediante dos avisos de cobro administrativo, otorgándosele al sujeto pasivo quince días (15) naturales con cada notificación para que se apersone al Municipio a cancelar la deuda. En caso contrario, si el sujeto pasivo no se hiciere presente a cancelar, o hacer arreglo de pago, y habiendo el Departamento de gestión de cobro realizado toda clase gestiones tendientes al cobro se remitirá el expediente para iniciar el cobro judicial.
+d) Ejercer las funciones de control y seguimiento por parte del gestor de cobros, sobre la actuación que realizan los abogados de los procesos de cobro judicial.
+e) Entregar por parte del gestor de cobros la documentación necesaria de las cuentas en estado de morosidad, para que procedan a su cobro por la vía judicial que corresponda, una vez agotada la última gestión de cobro administrativo. f) El Coordinador de Gestión de Cobros emitirá informes trimestrales y/o cuando se le solicite, sobre el estado de las obligaciones vencidas, su comportamiento y recuperación.
+g) Solicitar a su Superior Jerárquico el establecimiento de convenios o contratos con las siguientes instituciones:
+. Registro Nacional con la finalidad de proporcionar las certificaciones para el Cobro Judicial, personerías jurídicas, certificaciones de Bienes Muebles e Inmuebles.
+. Plataforma virtual de búsqueda y localización de personas.
+. Cualquier otro convenio que se considere necesario para el buen funcionamiento de los procesos.

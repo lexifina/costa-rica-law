@@ -1,0 +1,1 @@
+Artículo 53.-Suspensión de remate. La suspensión del remate podrá ser mediante resolución debidamente motivada por la Alcaldía Municipal, la cual será trasladada a los Tribunales para su efectiva suspensión.

@@ -1,0 +1,4 @@
+Artículo 11.-Atribuciones del Departamento de Gestión de Cobro. El Departamento de Gestión de Cobro tendrá como atribuciones el realizar el cobro en forma oportuna, crear y poner en práctica los mecanismos, diseñar o variar los procesos y establecer los controles necesarios para hacer efectivo el cobro de las cuentas morosas de la Municipalidad de Golfito.
+Para el cumplimiento de sus objetivos, el Departamento de Gestión de Cobro será encargada del cobro de las obligaciones tributarias de esta Municipalidad y deberá de:
+a. Realizar las gestiones de cobro administrativo de las cuentas atrasadas. Además, se encargará de realizar las notificaciones a los sujetos pasivos de las deudas.
+b. Preparar y remitir la documentación necesaria de las cuentas de los contribuyentes en estado de morosidad a los abogados designados formalmente por la Municipalidad para que tramiten los procesos de cobro en la vía judicial.

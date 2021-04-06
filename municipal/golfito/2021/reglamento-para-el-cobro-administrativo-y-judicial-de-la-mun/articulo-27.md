@@ -1,0 +1,1 @@
+Artículo 27.-Incumplimiento en el arreglo de pago. El incumplimiento de pago por dos o más de las cuotas del compromiso adquirido, será suficiente para que la Municipalidad considere vencido el plazo otorgado, y proceda a pasar la cuenta a cobro en la vía judicial.

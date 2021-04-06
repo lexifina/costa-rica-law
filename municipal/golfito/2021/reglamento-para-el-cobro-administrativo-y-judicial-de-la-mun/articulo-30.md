@@ -1,0 +1,1 @@
+Artículo 30.-Inclusión de los arreglos de pago en las certificaciones de pago de tributos municipales: Cuando un contribuyente solicite una certificación Municipal en la Plataforma de Servicios, y mantenga un arreglo de pago sobre su morosidad, deberá indicarse en la certificación la existencia de dicho arreglo y su actual condición de estar al día o moroso en el pago.
