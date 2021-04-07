@@ -14,3 +14,4 @@ Normativa para la autorización temporal del ejercicio profesional para médicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-26 | la propia norma |
+| 2 | 2021-04-07 | Reglamento 0 (2021-04-07) |
