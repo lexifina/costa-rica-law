@@ -1,0 +1,2 @@
+Artículo 5º-Deber de proveer información. Tiene el deber el agremiado de suministrar información veraz y exacta, así como de mantener actualizados sus datos personales y laborales, al mismo tiempo, informará al Colegio de Terapeutas de Costa Rica, cualquier cambio en su condición o estatus profesional.
+En caso de que el agremiado no actualice sus datos o que los mismos no sean veraces, exonera de todo tipo de responsabilidad al Colegio de Terapeutas de Costa Rica, si no pudiera ser contactado, para que ponga al día sus deudas pendientes.

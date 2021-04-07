@@ -1,0 +1,2 @@
+Artículo 3º-Mecanismos y controles. El Colegio de Terapeutas de Costa Rica, hará su mejor esfuerzo, por medio de los departamentos y/o unidades correspondientes, para cobrar las colegiaturas a sus agremiados.
+Habiéndose agotado dicha gestión administrativa, dejando constancia de este en el expediente del agremiado, se procederá entonces de conformidad con lo establecido en el artículo 8 de este Reglamento.
