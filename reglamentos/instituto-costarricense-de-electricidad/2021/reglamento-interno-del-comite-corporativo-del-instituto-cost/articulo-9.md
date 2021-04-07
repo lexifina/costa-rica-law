@@ -1,0 +1,2 @@
+Artículo 9°-Funciones de la Presidencia del Comité. La Presidencia del Comité Corporativo, será quien establezca el orden del día y dirigirá las sesiones, será el responsable de organizar el debate de los temas que se pongan a consideración del Comité, promoviendo la participación activa de los demás miembros y asistentes. Tendrá voto decisorio en caso de empate.
+Corresponderá a la Presidencia del Comité presentar ante el Consejo Directivo las recomendaciones del Comité sobre los asuntos y temas analizados por el mismo.

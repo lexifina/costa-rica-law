@@ -1,0 +1,4 @@
+Artículo 8°-Presidencia del Comité. El Presidente (a) Ejecutivo (a) del ICE será el Presidente (a) del Comité Corporativo durante toda su gestión y será el responsable de elaborar la agenda.
+El Presidente (a) del Comité Corporativo será el responsable de la definición de la programación anual, de la convocatoria a las reuniones del Comité y de la preparación del orden del día, para lo cual contará con la asistencia del Secretario (a) del Comité Corporativo.
+El Presidente (a) Ejecutivo (a) deberá participar en todas las sesiones del Comité Corporativo.
+En caso de ausencia temporal del Presidente (a) Ejecutivo (a) (por incapacidad, vacaciones, por encontrarse en representación oficial de la Institución, entre otras), este podrá designar a alguno de los miembros del Comité para que lo sustituya durante ese periodo.

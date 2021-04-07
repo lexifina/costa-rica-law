@@ -1,0 +1,2 @@
+Artículo 11.-Asistencia. Si lo estima necesario, el Comité Corporativo, por medio del Secretario (a), podrá convocar a sus reuniones a otros gerentes o a cualquier funcionario del ICE o de las empresas del ICE, para tratar temas de su competencia.
+El Comité Corporativo podrá acordar, a través de la figura del Ejecutivo Invitado, que algún funcionario o colaborador de alguna de las empresas asista a las reuniones del Comité cuando se requiera, sin ser miembro de pleno derecho (sin voto).

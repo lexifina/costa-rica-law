@@ -1,0 +1,1 @@
+Artículo 7°-Informes. El Comité Corporativo brindará un informe anual de sus actuaciones al Consejo Directivo, además podrá presentar informes particulares que se requieran para complementar el cumplimiento de las funciones establecidas en este Reglamento.
