@@ -1,1 +1,0 @@
-Artículo 3º—Plazos para resolver. Una vez recibida la solicitud, la Administración contará con el plazo de diez días hábiles establecido por Ley, para resolver la solicitud planteada. Dicho plazo podrá ser suspendido por falta o defecto de algún requisito, en cuyo caso deberá constar esa situación en la respuesta que se brinde al solicitante.
