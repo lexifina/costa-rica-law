@@ -13,8 +13,9 @@ Para dicha verificación se debe considerar que únicamente poseen connotación 
 2. OBJETIVO
 Brindar a los gobiernos municipales que no cuenten con la delimitación de sus áreas urbanas las variables mínimas para la determinación de éstas, contemplando los cuadrantes urbanos y las áreas de expansión de los cuadrantes urbanos.
 Lo anterior como medida provisoria, hasta que el INVU delimite los cuadrantes de los distritos urbanos, para lo que cuenta con un lapso de 2 años, según el Transitorio Segundo del Reglamento de Fraccionamiento y Urbanizaciones.
-3. AMBITO DE APLICACIÓN
-El presente Protocolo puede ser utilizado en todos los distritos urbanos del territorio nacional, por aquellos Gobiernos Municipales que no cuenten con Plan Regulador, y por tanto carezcan de una delimitación de sus áreas urbanas (cuadrantes urbanos y áreas de expansión).
+3. Ámbito de Aplicación
+El presente Protocolo puede ser utilizado en todos los distritos urbanos del territorio nacional, por aquellos Gobiernos Municipales que carezcan de una delimitación de sus áreas urbanas (cuadrantes urbanos y áreas de expansión).
+(Así reformado el punto anterior mediante sesión ordinaria Nº 6428 del 06 de febrero del año 2020)
 4. DEFINICIONES
 Para los efectos de interpretación y aplicación del presente Protocolo, los términos siguientes tienen el significado que se indica:
 4.1. Anillo de Contención de la Gran Área Metropolitana: Línea imaginaria que delimita las áreas urbanas y de extensión urbana dentro de la Gran Área Metropolitana, en contraposición de aquellas áreas no urbanas.
@@ -39,7 +40,7 @@ Para la aplicación del presente Protocolo se disponen los siguientes acrónimos
 5.5. INVU: Instituto Nacional de Vivienda y Urbanismo
 5.6. MIVAH: Ministerio de Vivienda y Asentamientos Humanos
 5.7. PNE: Patrimonio Natural del Estado
-6. DELIMITACIÓN DEL CUADRANTE URBANO
+(*)6. Delimitación del cuadrante urbano
 Para la delimitación de los cuadrantes urbanos, definidos en el numeral 4.5 del presente Protocolo, los Gobiernos Municipales pueden hacer uso de los siguientes insumos y condiciones:
 6.1. Metodología de Clasificación de Asentamientos Humanos según su Infraestructura Comunal y Servicios Básicos elaborada por el MIVAH:
 - Esta Metodología brinda una clasificación y delimitación de poblados a nivel nacional, considerando la infraestructura y servicios presentes en el sitio. Para efectos de la delimitación de los cuadrantes urbanos, los gobiernos municipales pueden utilizar como base la demarcación de las áreas de los poblados realizada por el MIVAH, siempre que estos posean las categorías 1,2,3 o 4 y se ubiquen dentro de un distrito urbano.
@@ -48,8 +49,11 @@ Para la delimitación de los cuadrantes urbanos, definidos en el numeral 4.5 del
 6.3. Porcentaje de pendiente
 - Adicionalmente, se debe contemplar la variable relacionada con la pendiente del terreno; aquellas áreas con pendientes superiores a 20%, se deben excluir de la delimitación del cuadrante urbano.
 Un distrito urbano puede contener uno o más cuadrantes urbanos, siempre que estos se ubiquen en las categorías señaladas en el numeral 6.1 de la Metodología de Clasificación de Asentamientos Humanos según su Infraestructura Comunal y Servicios Básicos.
-Los distritos de la GAM que se encuentren ubicados dentro del Anillo de Contención, son considerados distritos urbanos, y por tanto poseen en su totalidad condición de cuadrante urbano; de igual manera los Cuadrantes Urbanos en Zona Especial de Protección de la GAM, delimitados según lo establecido en la Reforma Plan Regional Desarrollo Urbano Gran Área Metropolitana, Decreto Ejecutivo N°25902-MIVAH-MP-MINAE, sus reformas o la normativa que lo sustituya.
+Los gobiernos municipales que cuenten con Plan Regulador parcial o total, y que dentro del ámbito de aplicación de dicho instrumento de planificación no dispongan con la delimitación de Cuadrantes Urbanos, pueden delimitar el ámbito urbano (Cuadrantes Urbanos) del respectivo Plan Regulador mediante el presente Protocolo, lo anterior con el fin de aplicar el artículo 40 de la Ley de Planificación Urbana, Ley N°4240.
+Son considerados Distritos Urbanos todos aquellos distritos ubicados dentro de la delimitación de la Gran Área Metropolitana.
+Los Distritos Urbanos ubicados en la Zona Especial de Protección de la Gran Área Metropolitana deben utilizar la delimitación de Cuadrantes Urbanos según lo establecido en la Reforma Plan Regional Desarrollo Urbano Gran Área Metropolitana, Decreto Ejecutivo N°25902-MIVAH-MP-MINAE, sus reformas o la normativa que lo sustituya.
 Quedan fuera de la delimitación de los cuadrantes urbanos las áreas con denominación de PNE y las ABRE, tales como áreas silvestres protegidas, territorios indígenas, zona marítimo terrestre, territorios del INDER.
+(*)(Así reformado el punto 6) anterior mediante sesión ordinaria Nº 6428 del 06 de febrero del año 2020 )
 7. DELIMITACIÓN DEL ÁREA DE EXPANSIÓN DEL CUADRANTE URBANO
 El área de expansión del cuadrante urbano se demarca a partir del límite del cuadrante urbano, hasta un máximo de 200 metros lineales de influencia, excluyendo las áreas con pendiente superior al 20% y las áreas de riesgo definidas en los Mapas de Amenazas y Peligros Naturales de la CNE.
 Quedan fuera de la delimitación del área de expansión de los cuadrantes urbanos, las áreas con denominación de PNE y las ABRE, tales como áreas silvestres protegidas, territorios indígenas, zona marítimo terrestre, territorios del INDER.

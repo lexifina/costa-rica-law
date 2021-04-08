@@ -14,3 +14,4 @@ Protocolo para la Delimitación de Cuadrantes Urbanos y sus Áreas de Expansión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-07 | la propia norma |
+| 2 | 2021-04-08 | Reglamento 6490 (2021-04-08) |
