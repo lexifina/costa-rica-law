@@ -1,0 +1,1 @@
+ARTÍCULO 87. Durante los días en que se discuta el Presupuesto Ordinario en el Concejo Municipal, no se realizarán sesiones de ninguna Comisión, con el fin de que los regidores y síndicos puedan estudiar y analizar el proyecto de presupuesto con detenimiento.

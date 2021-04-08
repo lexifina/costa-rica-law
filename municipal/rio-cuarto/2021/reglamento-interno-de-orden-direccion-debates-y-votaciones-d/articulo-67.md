@@ -1,0 +1,1 @@
+ARTÍCULO 67. La interposición del veto por parte del Alcalde Municipal tendrá prioridad en el orden del día del Concejo. El Presidente Municipal no podrá negarse a dar trámite a ese veto, ni posponer su conocimiento en el Concejo. La interposición del veto suspende la ejecución del acuerdo recurrido y será conocido inmediatamente después de la lectura del acta.

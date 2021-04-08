@@ -1,0 +1,2 @@
+ARTÍCULO 75: En la Sesión del Concejo Municipal, posterior inmediata a la instalación de sus miembros el presidente nombrará a los integrantes de las comisiones permanentes, cuya integración se podrá variar anualmente, si así lo decide la Presidencia.
+Al realizar esta conformación de comisiones permanentes, se procurará la participación de todos los partidos políticos representados en el concejo. Las Comisiones permanentes se integrarán con un mínimo de tres regidores propietarios

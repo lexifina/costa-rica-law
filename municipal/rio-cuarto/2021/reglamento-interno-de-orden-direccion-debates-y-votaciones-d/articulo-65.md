@@ -1,0 +1,1 @@
+ARTÍCULO 65. Los integrantes del Concejo, tienen derecho de hacer uso de la palabra para referirse a cualquier asunto en discusión en el Concejo, con los mismos derechos y facultades conferidos a los regidores propietarios, respecto al derecho de voz.

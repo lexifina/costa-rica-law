@@ -1,0 +1,2 @@
+CAPÍTULO XIII. DE LOS RECURSOS.
+ARTÍCULO 89. Los acuerdos del Concejo Municipal pueden ser objetados por la persona titular de la Alcaldía interponiendo el veto conforme lo establece el Código Municipal o por cualquier interesado mediante el Recurso de Revocatoria o el de Apelación, de conformidad con los plazos y requisitos establecidos por el Código Municipal. El interesado podrá optar por presentar solamente uno de los recursos.

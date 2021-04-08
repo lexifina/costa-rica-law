@@ -1,0 +1,1 @@
+ARTÍCULO 49. Se prohíbe variar aspectos relativos a quorum, horarios, recesos, formalidades de acuerdos, entre otros aspectos legales de forma y fondo, aplicables tanto a las sesiones, los acuerdos y normal actuar del órgano colegiado.

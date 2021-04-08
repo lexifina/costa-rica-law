@@ -1,0 +1,3 @@
+ARTÍCULO 23. Los asuntos que sean conocidos como de trámite urgente, son aquellos que sean así calificados por la Presidencia del Concejo. Las mociones presentadas por los regidores y la Alcaldía se presentarán por escrito, con letra clara y sin tachaduras o borrones.
+Cualquier modificación que se haga a una moción, debe hacerse escribiéndola mediante nota al pie de la moción, y, debe ser firmada por la persona proponente de la moción.
+Para que una iniciativa y/o moción de un(a) regidor(a) o de la Alcaldía, sea conocida en una determinada sesión, debe ser presentada a la Secretaria Municipal, por su proponente(s)

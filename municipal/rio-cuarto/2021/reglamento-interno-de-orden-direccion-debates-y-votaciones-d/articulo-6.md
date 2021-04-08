@@ -1,0 +1,1 @@
+ARTICULO 6. Para la sesión del segundo año y cuarto año del período constitucional se seguirá el mismo protocolo y procedimiento que se utilizó al inicio del período, contenidos en el artículo anterior, a excepción de la elección del directorio.

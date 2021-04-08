@@ -1,0 +1,1 @@
+ARTÍCULO 37. El sistema tecnológico al que se acuda deberá garantizar la identificación de las personas cuya presencia es virtual, la autenticidad e integridad de la voluntad y la conservación de lo actuado por los medios ópticos o magnéticos idóneos.

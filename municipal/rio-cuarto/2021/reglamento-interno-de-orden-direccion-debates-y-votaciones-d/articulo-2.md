@@ -1,0 +1,2 @@
+CAPÍTULO II.- DEL DIRECTORIO DEL CONCEJO MUNICIPAL.
+ARTÍCULO 2. El Directorio del Concejo Municipal estará integrado por un Presidente y un Vicepresidente, electos por el mismo cuerpo deliberativo en votación secreta e individual de sus regidores exclusivamente. En caso de ausencias temporales del presidente será sustituido por el Vicepresidente. En caso de ausencias temporales, se aplicará lo establecido en el Artículo 33 del Código Municipal.

@@ -1,0 +1,1 @@
+ARTÍCULO 20. Los funcionarios municipales que se requieran podrán ser convocados para que asistan a sesiones ordinarias o extraordinarias del Concejo Municipal las veces que sea necesario, lo harán cuando medie un acuerdo municipal. Así se dispondría con el fin de que informen sobre asuntos propios de su cargo y sin que por ello deba pagárseles remuneración adicional alguna.

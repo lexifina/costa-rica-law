@@ -1,0 +1,1 @@
+ARTÍCULO 84. Se procurará que las sesiones de una comisión no choquen con las de otras en las que también participen los mismos integrantes. Las sesiones se realizarán en el lugar designado por la Municipalidad para tales efectos o en un lugar oportuno conforme a lo acordado por sus miembros o también podrán realizarse en forma virtual.

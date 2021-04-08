@@ -1,0 +1,2 @@
+ARTÍCULO 39. La simultaneidad propia del órgano colegiado exige que durante la celebración de la sesión el miembro se dedique íntegramente a dicha sesión, por lo que incluso en las sesiones virtuales debe respetar la prohibición de superposición horaria.
+Los participantes no podrán realizar otra labor privada o pública y no podrán estar de forma simultánea durante el desarrollo de la sesión virtual, en cualquier otro tipo actividad pública o privada

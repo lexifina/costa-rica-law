@@ -1,0 +1,1 @@
+ARTÍCULO 46. Existirá sustitución temporal cuando el regidor propietario tuviere que desconectarse momentáneamente con el respectivo permiso de la Presidencia, el regidor propietario deberá integrarse en un tiempo máximo de 15 minutos, en caso contrario el suplente estaría asumiendo la propiedad por el tiempo restante de la sesión.

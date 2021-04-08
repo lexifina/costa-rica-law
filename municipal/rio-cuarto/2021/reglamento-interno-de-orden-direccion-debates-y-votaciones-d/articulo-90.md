@@ -1,0 +1,1 @@
+ARTÍCULO 90. En caso de que el Concejo Municipal no acoja el recurso en contra de un acuerdo, o un veto interpuesto por la Alcaldía, procederá a elevarlo a la autoridad jurisdiccional correspondiente.

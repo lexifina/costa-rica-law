@@ -1,0 +1,1 @@
+ARTÍCULO 25. Será responsabilidad única y exclusiva de la secretaria municipal fiscalizar estos detalles y el orden de presentación de las mociones y ponerlas en conocimiento de la Presidencia Municipal, así como de advertir cualquier alteración al orden de conocimiento de las mociones.

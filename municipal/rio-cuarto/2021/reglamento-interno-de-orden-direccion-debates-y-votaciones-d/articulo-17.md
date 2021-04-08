@@ -1,0 +1,1 @@
+ARTÍCULO 17. Las sesiones del Concejo Municipal son públicas. Los habitantes administrados, interesados y demás particulares, podrán observar su desarrollo desde el espacio habilitado para esos efectos, espacio que deberá procurarse sea el más idóneo para la comodidad y atención de los mismos.

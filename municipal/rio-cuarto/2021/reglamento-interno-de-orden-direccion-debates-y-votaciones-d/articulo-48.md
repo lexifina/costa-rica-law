@@ -1,0 +1,1 @@
+ARTÍCULO 48. Las disposiciones de este capítulo serán atendidas en las Comisiones del Concejo Municipal en lo que resultaren aplicables, e igualmente, a los órganos colegiados adscritos al este órgano. En todos los casos, esta será una vía de uso excepcional.

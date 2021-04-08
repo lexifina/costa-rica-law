@@ -1,0 +1,3 @@
+CAPÍTULO IV. DE LAS SESIONES MOCIONES.
+ARTICULO 22. Los acuerdos del Concejo Municipal se toman con base en mociones presentadas por escrito por los regidores o por la persona titular de la Alcaldía. Deben ser firmadas por quien las proponga.
+Las mociones o iniciativas antes de ser puestas a discusión y votación, deberán ser sometidas al análisis y al posterior dictamen no vinculante de una comisión de trabajo. Cuando amerite por criterios de legalidad, oportunidad, celeridad, u otros atendibles para la sana administración municipal, el Concejo Municipal por votación de mayoría calificada, conocerá del asunto en su pleno, dispensando la moción o iniciativa del requisito de ser conocida en comisión.

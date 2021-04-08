@@ -1,0 +1,1 @@
+ARTÍCULO 36. En las sesiones virtuales, es indispensable que exista deliberación y que el voto sea producto de esa deliberación. Este uso será posible si la telecomunicación permite una comunicación integral, simultánea que comprenda video, audio y datos.

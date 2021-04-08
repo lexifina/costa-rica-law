@@ -1,0 +1,1 @@
+ARTÍCULO 72. La Secretaría del Concejo debe abrir un expediente debidamente numerado y foliado a cada acuerdo adoptado por éste. En ese expediente deberán consignarse los antecedentes del acuerdo y cualquier documento relacionado con su trámite.

@@ -1,0 +1,1 @@
+ARTÍCULO 45. En caso de desconexión de alguno de los participantes de la sesión virtual, el Presidente Municipal podrá otorgar un permiso hasta por 15 minutos para la reconexión de la persona, esto sin detener el funcionamiento del Concejo Municipal.

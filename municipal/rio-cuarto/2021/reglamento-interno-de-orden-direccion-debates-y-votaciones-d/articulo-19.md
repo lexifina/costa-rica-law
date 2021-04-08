@@ -1,0 +1,1 @@
+ARTÍCULO 19. Durante el transcurso de una sesión municipal, por vía de excepción y por revestir el asunto de extrema urgencia, a juicio del Concejo Municipal y, mediante la presentación y aprobación de una moción de alteración del orden del día, el Concejo Municipal podrá conceder una audiencia a una persona sea física o jurídica.

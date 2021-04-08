@@ -1,0 +1,1 @@
+ARTÍCULO 33. Respecto a las mociones que no cuenten con dispensa de trámite de comisión solo podrá hacer uso de la palabra para referirse al fondo del asunto la persona proponente por un plazo no mayor de cinco minutos, luego la Presidencia remitirá la moción a la comisión correspondiente.

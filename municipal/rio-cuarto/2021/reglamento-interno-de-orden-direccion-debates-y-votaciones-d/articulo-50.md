@@ -1,0 +1,1 @@
+ARTÍCULO 50. Las sesiones que se celebren de manera virtual en lo que corresponda se regirán por los mismos artículos y principios que las sesiones que se lleven a cabo de manera presencial, independientemente de si se trata de sesiones ordinarias y extraordinarias.

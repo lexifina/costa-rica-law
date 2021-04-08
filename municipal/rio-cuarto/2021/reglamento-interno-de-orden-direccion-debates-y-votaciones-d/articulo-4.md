@@ -1,0 +1,1 @@
+ARTICULO 4 El primer y tercer año en el día primero de mayo se nombrará el directorio Municipal definitivo. Previo a ello en el inicio de sesión de solemne se integrará un Directorio Provisional compuesto por los regidores presentes y electos de mayor edad, quienes después de ser juramentados comprobarán el quórum presente.

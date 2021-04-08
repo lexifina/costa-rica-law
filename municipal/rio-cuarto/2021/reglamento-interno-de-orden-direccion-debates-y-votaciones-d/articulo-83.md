@@ -1,0 +1,1 @@
+ARTÍCULO 83. En caso de que la Comisión no pueda sesionar por falta de quórum de los regidores propietarios, el presidente de la Comisión, podrá sustituir a los regidores propietarios con regidores suplentes allí presentes siempre y cuando sean de la misma fracción política de los ausentes. Con el fin de poder llevar a cabo la sesión de la Comisión.

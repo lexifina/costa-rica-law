@@ -1,0 +1,1 @@
+ARTÍCULO 68. Para dar cumplimiento la Alcaldía debe coordinar con el directorio del Concejo Municipal, la presentación ante éste y la difusión pública de su programa de gobierno, a lo cual el Directorio no podrá negar el espacio necesario sea en una o varias sesiones municipales, según lo considere pertinente la Alcaldía.

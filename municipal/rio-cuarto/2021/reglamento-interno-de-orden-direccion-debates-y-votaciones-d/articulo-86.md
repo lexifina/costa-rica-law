@@ -1,0 +1,2 @@
+CAPÍTULO XII. DEL PRESUPUESTO MUNICIPAL
+ARTÍCULO 86. En el mismo acuerdo en que se apruebe el presupuesto, se ordenara su remisión a la Contraloría General de la República, para su trámite a más tardar el treinta de setiembre, junto con las actas de las sesiones en que fue discutido y aprobado, las cuales deben ser firmadas por el presidente municipal, la Secretaría del Concejo y la Alcaldía, a esa documentación se agregará el Plan Anual Operativo, el Plan de Desarrollo Municipal, y una certificación que hará constar el respaldo presupuestario al plan aprobado.

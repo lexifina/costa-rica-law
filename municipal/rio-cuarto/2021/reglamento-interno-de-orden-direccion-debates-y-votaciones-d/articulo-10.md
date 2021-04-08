@@ -1,0 +1,1 @@
+ARTÍCULO 10. Las sesiones del Concejo Municipales deben dar inicio dentro de los quince minutos siguientes a la hora señalada, y así publicada en el diario oficial, según la hora oficial que marque el reloj del lugar de sesiones; o en su defecto el reloj del Presidente Municipal.

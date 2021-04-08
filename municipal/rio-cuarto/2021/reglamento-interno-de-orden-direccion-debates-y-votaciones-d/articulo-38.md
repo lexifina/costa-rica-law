@@ -1,0 +1,1 @@
+ARTÍCULO 38. Se preferirá usar el dispositivo con la cámara abierta durante la totalidad de la sesión. Cuando la estabilidad de la conexión no lo permita, la Presidencia puede solicitar en forma aleatoria y sin previo aviso durante la sesión a los miembros del órgano colegiado que abran la opción de video.

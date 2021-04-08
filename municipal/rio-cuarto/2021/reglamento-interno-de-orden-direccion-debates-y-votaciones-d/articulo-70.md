@@ -1,0 +1,2 @@
+CAPÍTULO X. DE LA SECRETARÍA DEL CONCEJO MUNICIPAL.
+ARTÍCULO 70. Durante el desarrollo de cada sesión, en los artículos de iniciativas de los regidores y la Alcaldía, la Secretaría del Concejo estará obligada a coadyuvar con el presidente del Concejo Municipal, para que el tratamiento y análisis de las propuestas, mociones, discusiones y otros, se haga con apego absoluto al orden, a su presentación y en fin para el más destacado desarrollo de la sesión municipal.

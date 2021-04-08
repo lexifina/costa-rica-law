@@ -1,0 +1,2 @@
+ARTÍCULO 61. Las sesiones del Concejo Municipal transcurrirán y se desarrollarán dentro del área de curules así asignadas únicamente para sus miembros, a saber, los Regidores, Síndicos, la persona titular de la Alcaldía, los suplentes de ellos, la Secretaría del Concejo, el Auditor Municipal y los asesores del Concejo o las fracciones si estuvieran acreditados.
+El resto del espacio del Salón de Sesiones será acondicionado y utilizado para la atención y comodidad de los administrados que asistan a las mismas.

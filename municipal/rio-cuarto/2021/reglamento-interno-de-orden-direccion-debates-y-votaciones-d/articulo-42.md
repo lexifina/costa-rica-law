@@ -1,0 +1,1 @@
+ARTÍCULO 42. Al igual que en caso de sesiones presenciales, es indispensable que la sesión se haya celebrado sin interrupciones técnicas, de manera continua y que los miembros hayan estado presentes virtualmente en la totalidad de la reunión.

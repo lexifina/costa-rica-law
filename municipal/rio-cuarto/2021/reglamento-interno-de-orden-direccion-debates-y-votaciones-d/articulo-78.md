@@ -1,0 +1,1 @@
+ARTÍCULO 78. Si alguna comisión municipal solicita a la Presidencia el apoyo técnico para sus cometidos, la Presidencia procederá a transmitir dicha petición a la Alcaldía para que designe los funcionarios administrativos necesarios y funjan como asesores de la Comisión.

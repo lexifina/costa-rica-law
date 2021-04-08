@@ -1,0 +1,3 @@
+ARTÍCULO 76: Las comisiones Especiales serán aquellas que decida crear el Concejo, con el fin de estudiar un asunto específico, el Presidente será el encargado de su conformación.
+Dicha Comisión Especial deberá atender únicamente el asunto específico y elaborar el dictamen correspondiente en un plazo fijado.
+Luego de haberse constituido una Comisión Especial, se fijará el plazo en el cual se debe llevar a cabo el análisis y realización del dictamen correspondiente. Dicho plazo podrá ser prorrogado por una única vez por el Concejo Municipal. El plazo establecido no podrá superar el correspondiente al plazo restante en ejercicio del Directorio Político.

@@ -1,0 +1,1 @@
+ARTÍCULO 9. Las sesiones del Concejo Municipal se extenderán hasta que se dé por agotada la agenda en conocimiento, sin embargo, la sesión municipal no podrá extenderse más allá de las 10:00 p.m. del mismo día.

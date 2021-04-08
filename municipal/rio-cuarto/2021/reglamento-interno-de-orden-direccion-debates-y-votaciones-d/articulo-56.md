@@ -1,0 +1,1 @@
+ARTÍCULO 56.- Recibido y conocido en sesión un proyecto de presupuesto o de modificación presupuestaria, el Concejo Municipal contará con un máximo de un mes para su votación definitiva incluyendo las etapas de consultas y comisiones.
