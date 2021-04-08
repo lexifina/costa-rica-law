@@ -1,0 +1,1 @@
+Artículo 5° Solicitudes. Las solicitudes para integrar la lista deberán presentarse por correo electrónico firmado digitalmente a la cuenta de correo electrónico valuadoresexternosbn@bncr.fi.cr junto con todos los documentos y certificaciones indicadas en el artículo 3°.

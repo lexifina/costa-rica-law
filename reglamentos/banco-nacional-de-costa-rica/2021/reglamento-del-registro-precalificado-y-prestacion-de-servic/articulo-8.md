@@ -1,0 +1,1 @@
+Artículo 8° Responsabilidades. Los profesionales y empresas de peritaje serán responsables por los daños o perjuicios ocasionados por su cuenta o por sus colaboradores, al Banco o a sus clientes, derivados del incumplimiento de las obligaciones legales, contractuales y las dictadas por los Colegios Profesionales respectivos, que asume al incorporarse al Registro.
