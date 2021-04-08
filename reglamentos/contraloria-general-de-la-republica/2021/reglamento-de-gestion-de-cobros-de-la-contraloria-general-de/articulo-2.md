@@ -1,0 +1,1 @@
+Artículo 2.- Alcance. El presente Reglamento será de aplicación obligatoria para todo el personal institucional, así como para personas externas que eventualmente adquieran una obligación de pago con la Contraloría General de la República.

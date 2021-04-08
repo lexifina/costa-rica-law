@@ -1,0 +1,1 @@
+Artículo 20.- Cancelación total. Dentro de los diez días establecidos al efecto, una vez realizada la comunicación de la gestión de cobro, la persona que acepte la deuda podrá realizar su cancelación total, utilizando para ello cualquiera de las modalidades de pago habilitadas por la Unidad de Administración Financiera.

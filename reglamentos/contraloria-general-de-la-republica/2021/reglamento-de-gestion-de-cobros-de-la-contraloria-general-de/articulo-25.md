@@ -1,0 +1,1 @@
+Artículo 25.- Definición de competencias. En caso de que un proceso de cobro conlleve responsabilidad disciplinaria, el órgano decisor competente para ambos extremos será él que deba resolver la falta administrativa.

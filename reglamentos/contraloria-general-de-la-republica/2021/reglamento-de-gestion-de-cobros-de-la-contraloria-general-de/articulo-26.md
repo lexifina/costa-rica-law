@@ -1,0 +1,1 @@
+Artículo 26.- Título ejecutivo. La resolución que declare con lugar la existencia de una deuda líquida y exigible, se tendrá como título ejecutivo de conformidad con el artículo 149 de la Ley General de la Administración Pública.

@@ -1,0 +1,9 @@
+Artículo 3.- Glosario. Para los efectos del presente Reglamento, se establece el siguiente listado de definiciones:
+a. Cobro judicial: Gestión que se realiza ante los tribunales de justicia para la recuperación de deudas dejadas de cancelar por quienes tienen una obligación de pago con la institución. Para efectos internos, se entiende que una gestión de cobro se encuentra en esta etapa, desde el momento en que el caso es trasladado a la Unidad Jurídica Interna para su respectivo trámite por vía judicial.
+b. Compromiso de pago: Facilidad de pago que otorga la institución en condición de acreedor, a una persona física o jurídica, con el fin de satisfacer una deuda hasta su total cancelación.
+c. Gestión de cobro: Conjunto de actuaciones desarrolladas por la Contraloría General de la República, tendientes a la recuperación de sumas adeudadas a la institución en su condición de administración activa, independientemente de su origen o constitución.
+d. Incobrabilidad: Estado final de una deuda con la Administración, una vez que adquiere firmeza el acto administrativo que así lo declare, y que produce como efecto el cierre de la cuenta contable.
+e. Morosidad: Estado en que se coloca la persona deudora una vez que han transcurrido diez días hábiles desde la fecha en que debió realizar el pago correspondiente.
+f. Persona deudora / Persona responsable: Persona física o jurídica sobre la cual pesa una obligación de pago, reintegro o resarcimiento sobre un monto líquido y determinado por la institución.
+g. Suma líquida y exigible: Suma cuya cuantía se encuentra clara y precisamente determinada o puede determinarse, y que al mismo tiempo puede ser jurídicamente cobrada por quien tenga el derecho de hacerlo.
+h. Unidad de Desarrollo: Unidad de cuenta reajustable, cuyo valor se ve determinado por las variaciones del Índice de Precios al Consumidor (IPC), en los términos y condiciones establecidos en el Decreto Ejecutivo 22085 del 12 de marzo de 1993.

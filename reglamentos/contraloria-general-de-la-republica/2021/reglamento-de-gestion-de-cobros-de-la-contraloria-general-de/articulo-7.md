@@ -1,0 +1,1 @@
+Artículo 7.- Responsabilidades de las unidades técnicas. En los procesos de cobro, compromiso de pago y declaratorias de incobrabilidad de deudas, corresponderá a las unidades técnicas emitir criterio técnico sobre las características, estado y eventual valor de la solución alternativa ofrecida como medida para la compensación de los daños o perjuicios irrogados a la institución.

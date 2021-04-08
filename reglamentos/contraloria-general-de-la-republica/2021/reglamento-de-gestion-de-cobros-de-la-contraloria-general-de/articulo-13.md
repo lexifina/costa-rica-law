@@ -1,0 +1,5 @@
+Artículo 13.- Comunicación de la gestión de cobro a la Unidad de Administración Financiera. Corresponderá a las Unidades Gestoras comunicar oportunamente a la Unidad de Administración Financiera la información necesaria para dar inicio a las gestiones de cobro por menoscabos económicos causados a la Contraloría General de la República. Dicha información deberá contener, según corresponda:
+a. El nombre de la persona responsable o presuntamente responsable.
+b. La descripción o el número de bien o activo que debe repararse o restituirse; así como su valor, conforme con el procedimiento establecido por la Unidad de Administración Financiera al efecto.
+c. La naturaleza de la obligación incumplida, así como el monto de la misma.
+d. El costo de los daños causados a la institución, señalados mediante arreglos extrajudiciales, conciliaciones o medio donde se exprese la voluntad de la persona deudora de reconocer su obligación de pago. Así mismo, cuando exista una sentencia judicial o resolución administrativa, sea esta última dictada con ocasión de un procedimiento administrativo ordinario o sumario.

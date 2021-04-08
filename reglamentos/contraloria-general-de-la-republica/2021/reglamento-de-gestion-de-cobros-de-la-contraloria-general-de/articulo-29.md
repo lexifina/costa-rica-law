@@ -1,0 +1,1 @@
+Artículo 29.- Pagos en cualquier momento del proceso. La persona deudora podrá realizar pagos parciales, cancelar la totalidad de la deuda o reponer el bien, en cualquier momento del proceso aún cuando se haya iniciado un procedimiento administrativo de cobro.

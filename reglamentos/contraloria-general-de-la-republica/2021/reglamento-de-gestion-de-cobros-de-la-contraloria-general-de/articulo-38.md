@@ -1,0 +1,1 @@
+Artículo 38.- Derogatoria. Se deroga el Reglamento de cobro administrativo, arreglo de pago y declaratoria de incobrabilidad de deudas emitido mediante la Resolución de este Despacho, No. R-DC-05-2015, de las once horas del veintinueve de enero de dos mil quince.

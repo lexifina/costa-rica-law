@@ -1,0 +1,1 @@
+Artículo 18.- Incobrabilidad de la deuda. Una gestión de cobro podrá ser declarada incobrable en cualquier momento de su tramitación, conforme con las regulaciones que en el presente reglamento se señalan.

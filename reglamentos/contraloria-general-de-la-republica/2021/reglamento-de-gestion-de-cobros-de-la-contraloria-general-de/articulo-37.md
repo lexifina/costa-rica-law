@@ -1,0 +1,1 @@
+Artículo 37.- Aspectos no regulados. Cualquier aspecto relacionado con procesos de cobro, compromiso de pago y declaratorias de incobrabilidad de deudas, no regulado en el presente reglamento, será dirimido de forma motivada por la Gerencia de División de Gestión de Apoyo.
