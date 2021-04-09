@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE POÁS
+AVISA:
+REGLAMENTO PAGO DE DIETAS REGIDORES
+PROPIETARIOS, SUPLENTES, SÍNDICOS PROPIETARIOS,
+SUPLENTES DEL CANTÓN DE POÁS
+La suscrita Roxana Chinchilla Fallas, en calidad de Secretaria del Concejo Municipal de la Municipalidad de Poás, hago constar que: el Concejo Municipal del cantón de Poás, en su Sesión Ordinaria Nº 047-2021 celebrada el 23 de marzo del 2021, según consta en el Acuerdo Nº 639-03-2021, aprobó de forma unánime y definitivamente aprobado, el Reglamento Pago de Dietas Regidores propietarios, suplentes, Síndicos propietarios, suplentes del cantón de Poás, quedando de la siguiente manera: Reglamento pago de dietas regidores propietarios, suplentes, síndicos propietarios, suplentes del cantón de Poás.
+El Concejo Municipal de la Municipalidad cantón Poás, en el ejercicio de las facultades que le confieren los artículos 169 y 170 de la Constitución Política, 4 inciso a) y 13 incisos c) y d) del Código Municipal, acuerda lo siguiente:
+Artículo 1º-Pago de Dietas: Los Regidores (as) y Síndicos (as) y sus respectivas suplencias, tendrán derecho a devengar el pago de la dieta correspondiente, cuando asistan y permanezcan válidamente durante el desarrollo de cada Sesión Ordinaria semanal. De la misma forma, tendrán derecho al pago de la dieta por participar en cada una de las dos primeras Sesiones Extraordinarias de cada mes. Los Regidores(as), Síndicos(as), y sus respectivas suplencias, que llegasen después de transcurridos los quince minutos contados a partir de la hora señalada para iniciar la sesión, perderán el derecho de devengar la dieta, y el derecho a deliberar y a votar.
+Así mismo perderán la dieta los miembros del concejo que se retiran quince minutos antes de finalizar la sesión, sin autorización del presidente. Dicha disposición aplica tanto para sesiones presenciales como virtuales.
