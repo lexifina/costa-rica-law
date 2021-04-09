@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número RES-DGH-046-2020, del 07 de octubre del 2020, publicada en La Gaceta número 252 del 16 de octubre del 2020.
