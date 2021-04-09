@@ -1,0 +1,1 @@
+Artículo 2.- Principios y enfoques. Para el periodo 2021-2031, se ejecutará la Política Nacional de Cuidados, amparada en los principios de igualdad y universalidad; con enfoque de los derechos humanos, corresponsabilidad de los cuidados, igualdad de género, desarrollo sostenible e inclusivo, participación ciudadana y calidad.

@@ -1,0 +1,1 @@
+Artículo 7.- Implentación de la Política Nacional. El Poder Ejecutivo y sus instituciones incluirán, en sus planes operativos anuales, todas las acciones destinadas a la ejecución de las metas y los compromisos contemplados en los planes de acción de la Política Nacional de Cuidados 2021-2031, y, en lo inmediato a aquellas establecidas en el primer plan de acción 2021-2023.

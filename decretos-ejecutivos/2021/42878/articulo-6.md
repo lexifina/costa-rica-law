@@ -1,0 +1,1 @@
+Artículo 6.- Articulación territorial. Para la coordinación e implementación de la Política en el ámbito regional, los Consejos Regionales de Desarrollo -COREDES- por medio de sus Comi tés Intersectoriales Regionales Sociales, serán las instancias encargadas de articular lús planes y acciones regionales y locales vinculados con la implementación de la Política Nacional.
