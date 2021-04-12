@@ -1,8 +1,9 @@
+(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó derogar el anexo PT-1. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de dicha fecha se hará la respectiva derogación.)
 ANEXO PT-1
 PROVISIÓN PARA PRIMA NO DEVENGADA (PPND)
 La provisión de prima no devengada se calculará póliza a póliza de la siguiente forma:
 A) Base de cálculo
-La base de cálculo de esta provisión será la prima comercial deducida, en su caso, el recargo de seguridad. Esta prima debe corresponder al periodo de aseguramiento, desde la entrada en vigor de la póliza hasta su vencimiento, independientemente de su forma de pago. A la prima resultante de aplicar las deducciones indicadas, se le denominará “prima base” (Pb).
+La base de cálculo de esta provisión será la prima comercial deducida, en su caso, el recargo de seguridad. Esta prima debe corresponder al periodo de aseguramiento, desde la entrada en vigor de la póliza hasta su vencimiento, independientemente de su forma de pago. A la prima resultante de aplicar las deducciones indicadas, se le denominará "prima base" (Pb).
 [imagen]
 Donde:
 PC= Prima comercial.
@@ -22,6 +23,7 @@ Primas cedidas
 En lo que se refiere a las primas cedidas en reaseguro, la entidad debe revelar el monto correspondiente a la participación del reasegurador en esta provisión, en la cuenta de activo que corresponda, según el manual de cuentas. La metodología de constitución y reconocimiento de este activo debe ser consistente con la de la provisión de primas no devengadas (PPND).
 Primas fraccionadas
 En caso de que la forma de pago de la prima de la póliza se realice de forma fraccionada, la entidad debe revelar las primas por cobrar en la cuenta de activo que corresponda.
+(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó derogar el anexo PT-2. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de dicha fecha se hará la respectiva derogación.)
 ANEXO PT-2
 PROVISIÓN POR INSUFICIENCIA DE PRIMA (PIP)
 La provisión por insuficiencia de prima (PIP) complementará a la provisión para prima no devengada (PPND) en la medida en que el importe de esta última no sea suficiente para reflejar la valoración de todos los riesgos y gastos a cubrir por la entidad aseguradora, correspondientes al periodo de cobertura no transcurrido a la fecha de cálculo.
@@ -32,14 +34,14 @@ Para el cálculo de la provisión por insuficiencia de prima (PIP) los siniestro
 Las entidades nuevas que no cuenten con experiencia en Costa Rica, estarán exceptuadas de calcular esta provisión hasta que cuenten con 12 meses de operación en la línea o producto para el cual se calcula esta provisión. A partir de ese momento, las entidades deberán calcular esta provisión tomando como periodo de referencia, el tiempo acumulado hasta la fecha de cierre de cálculo, hasta completar los 36 meses establecidos.
 B) Metodología
 Se calcula la diferencia entre ingresos y gastos correspondientes al seguro directo, de la siguiente manera:
-I – G
+I - G
 Donde:
 I = Ingresos netos de reaseguro cedido = α + β + γ.
 α= Primas imputables al periodo de referencia, es decir, el monto de las primas correspondientes a contratos perfeccionados o prorrogados en el periodo de referencia netos de sus anulaciones y extornos, corregidas por la variación en la estimación por deterioro de primas por cobrar y la variación de la provisión para prima no devengada, ambas calculadas al término del periodo de referencia por razón de las primas imputables a dicho periodo de referencia.
 Este resultado se obtiene de la siguiente forma:
 Primas imputables en el periodo de referencia
-(+) [Estimación por deterioro de primas por cobrar al final del periodo de referencia – Estimación por deterioro de primas por cobrar al inicio de dicho periodo]
-(-) [Provisión para prima no devengada al final del periodo de referencia – provisión para prima no devengada al inicio de dicho periodo]
+(+) [Estimación por deterioro de primas por cobrar al final del periodo de referencia - Estimación por deterioro de primas por cobrar al inicio de dicho periodo]
+(-) [Provisión para prima no devengada al final del periodo de referencia - provisión para prima no devengada al inicio de dicho periodo]
 β= Ingresos de las inversiones generados por los activos correspondientes a la línea o producto de que se trate, según los criterios de imputación de la entidad.
 γ = Otros ingresos técnicos, justificados por la entidad.
 G = Gastos por siniestros ocurridos en el periodo de referencia, netos de reaseguro cedido = λ + µ + PPS + ε + ρ + Ω.
@@ -50,8 +52,8 @@ PPS= Provisión para siniestros al término del periodo de referencia correspond
 ε= Gastos de inversiones generados por los activos correspondientes a la línea o producto de que se trate, según los criterios de imputación de la entidad.
 Ω = Otros gastos técnicos justificados por la entidad.
 Las anteriores conceptos recogerán acumuladamente el importe de todos los meses que formen parte del periodo de referencia con la información al momento en que se realice el cálculo.
-2. Si, I – G > 0 entonces PIP = 0
-3. Si, I – G < 0 entonces se calculará el siguiente porcentaje:
+2. Si, I - G > 0 entonces PIP = 0
+3. Si, I - G < 0 entonces se calculará el siguiente porcentaje:
 [imagen]
 Si el porcentaje resultante de los cálculos anteriores no resultara adecuado, teniendo en cuenta evoluciones recientes y significativas de la siniestralidad o de la tarificación u otras circunstancias especiales que concurran en el producto o línea de que se trate, la Superintendencia puede modificar el citado porcentaje a petición de la entidad o de oficio mediante resolución motivada.
 4. El importe por el que se dota esta provisión se calcula de la siguiente manera:
@@ -62,6 +64,7 @@ PPNDRC= Participación del reaseguro en la correspondiente provisión para prima
 La PIP por operaciones de reaseguro aceptado debe dotarse conforme a lo dispuesto en los apartados precedentes.
 C) Informe actuarial
 Si durante dos ejercicios anuales consecutivos ha sido necesario dotar la provisión regulada en este anexo, la entidad debe presentar a la Superintendencia , junto con los estados financieros correspondientes al cierre del segundo ejercicio, un informe actuarial sobre la revisión necesaria de las bases técnicas para alcanzar la suficiencia de la prima. Dicho informe debe al menos identificar las causas que han provocado la insuficiencia, las medidas adoptadas por la entidad y el plazo estimado en el que surtirán efecto.
+(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó derogar el anexo PT-3. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de dicha fecha se hará la respectiva derogación.)
 ANEXO PT-3
 PROVISIÓN DE SEGUROS PERSONALES
 Para los seguros la categoría de personales que ofrezcan coberturas de vida, rentas, riesgos del trabajo, accidentes y salud se deben constituir las siguientes provisiones:
@@ -103,6 +106,7 @@ El importe de las provisiones matemáticas para cada contrato debe ser en todo m
 G) Otros aspectos a considerar
 Reaseguro cedido
 En la estimación de los flujos para el cálculo de valor actual actuarial de las obligaciones futuras del asegurador y de las primas futuras, no debe considerarse el reaseguro cedido. En caso de contar con reaseguro, la entidad debe revelar el monto correspondiente a la participación del reasegurador en esta provisión, en la cuenta de activo que corresponda, según el manual de cuentas.
+(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó derogar el anexo PT-4. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de dicha fecha se hará la respectiva derogación.)
 ANEXO PT-4
 PROVISIÓN PARA SINIESTROS (PPS)
 La provisión para siniestros debe representar el importe total de las obligaciones pendientes de la entidad derivadas de los siniestros ocurridos con anterioridad a la fecha de cálculo.
@@ -125,7 +129,7 @@ c) Siniestros liquidados y no pagados: comprende todos los siniestros cuya liqui
 La provisión incluye las participaciones en beneficios que se hayan asignado individualmente a tomadores, asegurados o beneficiarios y que se encuentren pendientes de pago.
 Provisión para siniestros ocurridos y no reportados (OYNR):
 La provisión para siniestros ocurridos y no reportados se calcula por grupos de riesgos homogéneos y como mínimo por líneas de seguros Debe recoger el importe estimado de los siniestros ocurridos antes de la fecha de cálculo y no declarados en esa fecha.
-Para la estimación de esta provisión se utiliza el “método de los triángulos de siniestros ocurridos”, la cual se detalla a continuación:
+Para la estimación de esta provisión se utiliza el "método de los triángulos de siniestros ocurridos", la cual se detalla a continuación:
 Método de los triángulos de siniestros ocurridos
 Para la aplicación de este método deberá contarse con las siguientes bases de datos que contengan la siguiente información correspondiente como mínimo a los últimos 5 años hasta la fecha de cálculo:
 Base de siniestros pagados:
@@ -144,48 +148,48 @@ Monto provisionado: debe incluir el importe total de las obligaciones pendientes
 A cada fecha de cálculo se deben construir las siguientes matrices, las cuales deben presentar información agrupada por períodos de doce meses:
 Matriz de pagos por periodo
 Pagos de siniestros | Periodo de desarrollo
-Período de ocurrencia del Siniestro | 1 | 2 | … | j | … | N
-Período 1 | P11 | P12 | … | P1j | … | P1N
-Período 2 | P21 | P22 | … | P2j | … |
-… | … | … | … | … | |
-Período i | Pi1 | Pi2 | … | | |
-… | … | … | | | |
+Período de ocurrencia del Siniestro | 1 | 2 | . | j | . | N
+Período 1 | P11 | P12 | . | P1j | . | P1N
+Período 2 | P21 | P22 | . | P2j | . |
+. | . | . | . | . | |
+Período i | Pi1 | Pi2 | . | | |
+. | . | . | | | |
 Período k | Pk1 | | | | |
 Donde:
 Pij = corresponde a los pagos realizados en el periodo j por siniestros ocurridos en el período i.
 A partir de la matriz de pagos por periodo, deberá confeccionarse la matriz de pagos acumulados.
 Matriz de pagos acumulados
 Pagos acumulados de siniestros | Periodo de desarrollo
-Período de ocurrencia del Siniestro | 1 | 2 | … | j | … | N
-Período 1 | S11 | S12 | … | S1j | … | S1N
-Período 2 | S21 | S22 | … | S2j | … |
-… | … | … | … | … | |
-Período i | Si1 | Si2 | … | | |
-… | … | … | | | |
+Período de ocurrencia del Siniestro | 1 | 2 | . | j | . | N
+Período 1 | S11 | S12 | . | S1j | . | S1N
+Período 2 | S21 | S22 | . | S2j | . |
+. | . | . | . | . | |
+Período i | Si1 | Si2 | . | | |
+. | . | . | | | |
 Período k | Sk1 | | | | |
 Donde:
 Sij = corresponde al total de pagos realizados hasta el periodo j por siniestros ocurridos en el periodo i:
 [imagen]
 Matriz de provisiones para siniestros reportados
 Provisión de siniestros | Periodo de desarrollo
-Período de ocurrencia del Siniestro | 1 | 2 | … | j | … | N
-Período 1 | R11 | R12 | … | R1j | … | R1N
-Período 2 | R21 | R22 | … | R2j | … |
-… | … | … | … | … | |
-Período i | Ri1 | Ri2 | … | | |
-… | … | … | | | |
+Período de ocurrencia del Siniestro | 1 | 2 | . | j | . | N
+Período 1 | R11 | R12 | . | R1j | . | R1N
+Período 2 | R21 | R22 | . | R2j | . |
+. | . | . | . | . | |
+Período i | Ri1 | Ri2 | . | | |
+. | . | . | | | |
 Período k | Rk1 | | | | |
 Donde:
 Rij = corresponde a las provisiones para siniestros reportados constituidas en el periodo j por siniestros ocurridos en el periodo i.
 A partir de las matrices de pagos acumulados de siniestros y de provisiones para siniestros reportados, se deberá confeccionar la matriz de costos totales:
 Matriz de costos totales
 Costos totales | Periodo de desarrollo
-Período de ocurrencia del Siniestro | 1 | 2 | … | j | … | N
-Período 1 | C11 | C12 | … | C1 j | … | C1 N
-Período 2 | C21 | C22 | … | C2 j | … |
-… | … | … | … | … | |
-Período i | Ci1 | Ci2 | … | | |
-… | … | … | | | |
+Período de ocurrencia del Siniestro | 1 | 2 | . | j | . | N
+Período 1 | C11 | C12 | . | C1 j | . | C1 N
+Período 2 | C21 | C22 | . | C2 j | . |
+. | . | . | . | . | |
+Período i | Ci1 | Ci2 | . | | |
+. | . | . | | | |
 Período k | Ck1 | | | | |
 Donde:
 [imagen]
@@ -198,9 +202,9 @@ Período de ocurrencia del Siniestro | Costos totales | Factores de desarrollo a
 Período 1 | C1N | FAN =1(*) | UP1 | OYNR1 |
 Período 2 | C2(N-1) | FAN-1 | UP2 | OYNR2 |
 Período 3 | C3(N-2) | FAN-2 | UP3 | OYNR3 |
-… | … | … | … | … |
+. | . | . | . | . |
 Período i | Ci(N-(i-1)) | FA(N-(i-1)) | UPi | OYNRi |
-… | … | … | … | … |
+. | . | . | . | . |
 Período k | Ck10 | FA1 | UPk | OYNRk |
 Total | | | | Provisión de OYNR= [imagen] |
 (*) Cuando el triángulo está incompleto en el sentido de que el año más antiguo no está totalmente pagado, es necesario estimar FAN. En estos casos la entidad debe informar a la Superintendencia como se estima ese factor.
@@ -229,6 +233,7 @@ Metodologías alternativas
 En caso de que la entidad considere que estas metodologías no se ajustan a la experiencia de una cartera o grupo de riesgo homogéneo, la entidad puede proponer y justificar una metodología alternativa, la cual debe registrar ante la Superintendencia , ya sea durante el proceso de registro del producto o posterior al registro. A partir del momento en que la Superintendencia apruebe la metodología propuesta por la entidad, ésta tiene carácter de obligatoria.
 Primas cedidas
 Las obligaciones para la provisión para siniestros se contabilizarán sin considerar descuento alguno por la participación de los reaseguradores. La obligación de los reaseguradores debe reconocerse en la cuenta de activo que corresponda, según el manual de cuentas.
+(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó derogar el anexo PT-5. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de dicha fecha se hará la respectiva derogación.)
 ANEXO PT-5
 PROVISIÓN DE PARTICIPACIÓN EN LOS BENEFICIOS Y EXTORNOS
 Esta provisión reflejará el importe de los beneficios que correspondan y el monto de las primas que proceda restituir a los tomadores, asegurados o beneficiarios en su caso, en virtud del comportamiento experimentado por el riesgo asegurado o rendimiento financiero, en tanto no hayan sido asignados individualmente a cada uno de aquéllos.
@@ -237,6 +242,7 @@ Se incluyen en la provisión todas las obligaciones por los contratos que sobre 
 La provisión comprende el importe de las primas a reembolsar o prestaciones a satisfacer imputables al período o períodos del contrato ya transcurridos a la fecha de cálculo.
 Las entidades deben justificar y registrar ante la Superintendencia la metodología específica para el cálculo de esta provisión, cuando aplique, durante el proceso de registro de cada producto.
 Cuando el importe de esta provisión sea asignado individualmente a tomadores, asegurados o beneficiarios, y se encuentre pendiente de pago, formará parte de la Provisión para Siniestros Reportados, específicamente en la Provisión de Siniestros Liquidados y no Pagados.
+(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó derogar el anexo PT-6. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de dicha fecha se hará la respectiva derogación.)
 ANEXO PT-6
 PROVISIÓN DE SEGUROS EN LOS QUE EL RIESGO DE INVERSIÓN LO ASUME EL TOMADOR
 La provisión de los seguros, asociados a los seguros de vida o renta, en los que contractualmente se estipule que el riesgo de inversión es soportado íntegramente por el tomador se determina en función de los activos o índices que se hayan fijado como referencia para determinar el valor económico de los derechos del tomador.
@@ -258,33 +264,32 @@ B) Metodología
 B.1 Aportaciones
 La provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica, se constituirá mensualmente con base en la prima de riesgo retenida devengada en cada mes, excluido el recargo de seguridad, en caso de existir. El cálculo se realizará conforme al siguiente procedimiento de cálculo:
 I. En el caso de pólizas anuales e independientemente de la forma de pago de la prima, se calculará al cierre de cada mes, una aportación a la provisión de riesgos catastróficos (APm), con el monto que resulte del 80% de la prima de riesgo retenida devengada del mes, calculando la prima de riesgo retenida devengada del mes, como un doceavo de la prima de riesgo retenida (PRRm) de las pólizas en vigor al cierre de dicho mes.
-[imagen]
 II. En el caso de pólizas que tengan una temporalidad inferior o superior a un año, la aportación a la provisión de riesgos catastróficos (APm) será el monto que resulte del 80% de la prima de riesgo retenida devengada del mes, calculando la prima de riesgo retenida devengada del mes, como un m-ésimo de la prima de riesgo retenida (PRRm) de las pólizas en vigor al cierre de dicho mes.
-[imagen]
 III. En el caso de pólizas de seguro que operen con cobertura y forma de pago de prima mensual, entendiendo que dicho esquema consiste en que la entidad aseguradora recibe pagos mensuales que cubren únicamente el riesgo y obligaciones del mes, la aportación APm debe ser el 80% de la prima de riesgo retenida correspondiente a las primas emitidas en el mes.
 APm = 0.8 * (PRRm)
 Para estos efectos la prima de riesgo retenida de cada póliza no deberá ser una cantidad inferior al 70% de la prima de tarifa retenida de cada póliza. Asimismo, cuando no se tenga conocimiento del valor que tiene la prima de riesgo retenida de las pólizas en vigor, dicha prima de riesgo retenida deberá ser calculada como el 70% de la prima de tarifa retenida de las pólizas en vigor.
 Las entidades deberán mantener en resguardo, el detalle del cálculo de la prima de riesgo retenida devengada mensual que se utilizó para la aportación mensual a la reserva, el cual podrá ser requerido por la Superintendencia, para efectos de verificación de los resultados obtenidos.
 B.2 Rendimientos
 A la provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica, deberán sumársele, mensualmente, los rendimientos (Rendm) que se hayan generado durante el mes, tomando como base para el cálculo, el saldo que tenga dicha provisión al cierre del mes inmediato anterior. Los rendimientos se calcularán utilizando una tasa (i), equivalente a la tasa de rendimiento promedio mensual obtenida por la entidad en ese mes en sus inversiones o en la cartera asignada específicamente a la provisión de riesgo catastrófico, si fuera el caso. El cálculo de los intereses en un determinado mes m, deberá realizarse mediante el siguiente procedimiento:
-[imagen]
 PRCATm-1: Se refiere al monto de la provisión de riesgos catastróficos de terremoto y erupción volcánica, al cierre del mes inmediato anterior al mes de valuación.
 Sm: Se refiere al monto retenido de los siniestros reportados o ajustes que, en su caso, se hubiesen efectuado en el mes, o a algunas de las pérdidas indicadas en los incisos 2) y 3) de la sección A) de este anexo. Para estos efectos, se entenderán como ajustes, los montos complementarios utilizados para incrementar la estimación inicialmente realizada de un siniestro (ajustes de más) o para reconocer el monto en exceso que se produce cuando la provisión inicialmente realizada para el pago de un siniestro es menor al monto realmente pagado (ajuste de menos).
 Las entidades deberán mantener en resguardo, el cálculo y la información con base en la cual se determinó la tasa de rendimiento promedio mensual i, utilizada para calcular los rendimientos mensuales de la reserva, lo cual podrá ser requerido por la Superintendencia, para efectos de verificación de los resultados obtenidos.
 B.3 Cálculo
 La provisión de riesgos catastróficos, al cierre de cada mes deberá determinarse como el monto que resulte de sumar, al saldo de dicha provisión al cierre del mes inmediato anterior, la aportación del mes correspondiente a la prima de riesgo retenida devengada (APm) y los intereses del mes (Rendm), restando de dicha suma, el monto retenido de los siniestros o ajustes (Sm) que, en su caso, se hubiesen registrado en el mes, es decir:
-PRCATm ꞊PRCATm-1 † Rendm † Apm -Sm
+PRCATm ꞊PRCATm-1 ? Rendm ? Apm -Sm
 C) Límite máximo
-La provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica tendrá como límite máximo de acumulación, el monto que resulte de aplicar el siguiente criterio técnico:
+En la provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica el límite máximo de acumulación, el cual se debe revisar al término de cada año y regirá por el siguiente año, se determina como el resultado de aplicar el siguiente criterio técnico:
+(Así reformado el párrafo anterior mediante sesión N° 1655-2021 del 12 de abril del 2021)
 I. Se determinará el monto de la pérdida máxima probable retenida de los seguros de terremoto y erupción volcánica, al cierre del año de que se trate, mediante la metodología y criterios indicados en el Anexo RCS-6 relativo al Cálculo de Requerimiento de Capital de Solvencia por Riesgo Catastrófico, de este Reglamento.
 II. Se determinará el monto que resulte del promedio de la pérdida máxima probable retenida calculada al cierre de cada uno de los últimos cinco años de operación de la entidad, incluyendo el año que se cierra. En caso de que no se cuente con la información de los últimos cinco años, debido a la reciente constitución de la entidad o al reciente inicio de operación en este tipo de seguros, el promedio se realizará con los años con que se cuente.
 III. Se determinará el límite de la provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica, como el máximo entre los montos obtenidos conforme a lo indicado en los numerales I y II anteriores.
 IV. Al monto resultante del numeral III se debe añadir el costo estimado de reinstalación de la cobertura del contrato de reaseguro de exceso de pérdida catastrófico, cuando este costo no haya sido previamente pagado por la compañía (como parte de la prima del reaseguro).
 Cuando la provisión de riesgos catastróficos de terremoto y erupción volcánica, llegue a su límite, deberá dejar de incrementarse o se liberará cualquier excedente que exista. No obstante, la Superintendencia podrá dar autorización para mantener un monto de provisión superior al límite en los casos en que una entidad lo solicite, bajo el argumento de que cuenta con evidencias de la existencia de alguna contingencia o riesgo futuro que pueda afectar su solvencia, en cuyo caso, la autorización se otorgará en tanto se justifique que se mantiene la existencia de dicha contingencia o riesgo futuro.
-La verificación del límite de la provisión y el ajuste correspondiente en caso de que haya excedente, se realizará hasta el cierre de cada año.
+La verificación del límite de la provisión y el ajuste correspondiente en caso de que haya excedente, se realizará hasta el cierre de cada año. No obstante, una entidad podrá solicitar a la Superintendencia autorización para la liberación anticipada, total o parcial, de los excedentes antes del término de cada año, si justifica que tal situación no afectará su solvencia en los próximos tres años, ni llevará a incumplimiento de los requerimientos de capital dispuestos en este Reglamento, de acuerdo con el análisis de sus riesgos y gestión de su capital que se haga con respecto a la liberación, así como la autoevaluación anual de riesgo y solvencia que ordena el Reglamento sobre los Sistemas de Gestión de Riesgos y de Control Interno Aplicables a Entidades Aseguradoras y Reaseguradoras.
+(Así reformado el párrafo anterior mediante sesión N° 1655-2021 del 12 de abril del 2021)
 D) Afectaciones
 La provisión de riesgos catastróficos de terremoto y erupción volcánica, sólo se podrá afectar por alguna de las causas indicadas en la sección A) de este anexo, siempre y cuando se cumplan las condiciones para la afectación establecidas en la citada sección A) y la existencia de un registro oficial del evento. En esos casos, el monto de la afectación (Afm) será hasta por el monto de la pérdida técnica ocasionada por la siniestralidad retenida originada por el evento de que se trate, entendiendo como pérdida técnica para estos efectos, la diferencia entre la suma constituida por la aportación correspondiente a la prima de riesgo retenida devengada (APm) y los rendimientos del mes (Rendm), y el monto de los siniestros retenidos registrados en dicho mes o algunas de las pérdidas indicadas en los incisos 2) y 3) de la sección A) de este anexo (sM).
-AFm = Rendm + APm – Sm
+AFm = Rendm + APm - Sm
 Adicionalmente, a solicitud de la entidad, previo análisis de las circunstancias y autorización por parte de la Superintendencia, la provisión de riesgos catastróficos de terremoto y erupción volcánica se podrá afectar para cubrir pérdidas originadas por eventos catastróficos distintos al de terremoto y erupción volcánica, que hayan producido perdidas extraordinarias que pongan en riesgo la solvencia y liquidez de la entidad. En estos casos la entidad someterá a autorización ante la Superintendencia, un programa de reconstitución del monto afectado, con base en las utilidades que tenga la entidad en los siguientes años, en los otros ramos y tipos de seguros, mediante aportaciones adicionales a las aportaciones provenientes de los seguros de terremoto y erupción volcánica.
 Asimismo, la propia Superintendencia, ante la ocurrencia de alguna contingencia grave en territorio nacional, declarada como estado de emergencia por el Poder Ejecutivo vía decreto ejecutivo, que afecte al mercado asegurador, podrá determinar mediante disposiciones de carácter general, la afectación automática de la provisión, para el pago de siniestros, sin que para esos efectos se requiera previa autorización.
 Cuando la provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica sea afectada por algunas de las causas previstas en la sección A) de este anexo, no será obligatorio reponer el saldo dispuesto, y las entidades deberán realizar la reconstitución de dicha provisión, partiendo del saldo remanente y mediante las aportaciones y los rendimientos determinados conforme a lo establecido en la sección B) del presente anexo.
