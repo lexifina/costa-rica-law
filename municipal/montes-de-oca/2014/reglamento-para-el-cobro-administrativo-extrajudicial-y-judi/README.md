@@ -15,3 +15,4 @@ Reglamento para el cobro administrativo, extrajudicial y judicial de la Municipa
 | --- | --- | --- |
 | 1 | 2014-12-30 | la propia norma |
 | 2 | 2020-11-02 | Reglamento municipal 27 (2020-11-02) |
+| 3 | 2021-04-12 | Reglamento municipal 50 (2021-04-12) |
