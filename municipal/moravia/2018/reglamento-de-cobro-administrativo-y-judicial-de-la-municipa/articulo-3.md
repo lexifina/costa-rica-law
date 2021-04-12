@@ -12,3 +12,7 @@ i) FRACCIONAMIENTO DE LA DEUDA TRIBUTARIA: es el compromiso que adquiere el obli
 j) TERCERO INTERESADO: es la persona física o jurídica que por mandato del obligado o por decisión propia, asume ante la Municipalidad de Moravia obligaciones tributarias o dinerarias en nombre del obligado directo.
 k) HONORARIOS PROFESIONALES: es la remuneración que nace en favor del profesional en derecho como retribución por el patrocinio letrado en los procesos de cobro judicial de obligaciones tributarias o dinerarias adeudadas a la Municipalidad de Moravia y se definirá conforme las reglas establecidas por el Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado.
 l) SALARIO BASE: se comprende como salario base la remuneración establecida en el párrafo tercero del artículo 2° de la Ley N° 7337 de 5 de mayo de 1993, para oficinista 1 que aparece fijada anualmente en la ley de presupuesto de cada período presupuestario.
+m) Deuda: Obligaciones pecuniarias de naturaleza tributaria adeudadas por personas físicas o jurídicas a la Municipalidad de Moravia.
+(Así adicionada la definición anterior mediante sesión N° 50 del 12 de abril del 2021)
+n) Cuenta incobrable: Deuda por concepto de impuestos y servicios municipales cuyo cobro, por criterios de proporcionalidad y razonabilidad, es inconveniente para la Administración Tributaria Municipal, continuar con la gestión de su recuperación.
+(Así adicionada la definición anterior mediante sesión N° 50 del 12 de abril del 2021)
