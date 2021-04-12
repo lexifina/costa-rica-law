@@ -16,3 +16,4 @@ Reglamento sobre calificación de valores y sociedades calificadoras de riesgo
 | 1 | 2009-09-11 | la propia norma |
 | 2 | 2016-06-17 | Reglamento 1259 (2016-06-17) |
 | 3 | 2020-12-21 | Reglamento 1635 (2020-12-21) |
+| 4 | 2021-04-12 | Reglamento 1655 (2021-04-12) |
