@@ -1,5 +1,6 @@
-ARTICULO 7.-A fin de evitar la aparición y propagación de enfermedades transmisibles, los propietarios de los establecimientos aquí señalados, deberán cumplir con las siguientes normas:
-a) Utilizar rasuradoras descartables.
-b) Emplear antisépticos o desinfectantes adecuados en todos aquellos sitios propios de la actividad.
-c) El equipo no descartable deber ser esterilizado.
-d) En toda rasurada deber utilizarse navajilla nueva o rasuradora descartable. En caso de que se utilice navaja de barbero, deber ser esterilizada previamente para cada cliente. Toda deficiencia en el proceso de desinfección, dar lugar al decomiso de los implementos y en caso de reincidencia a la clausura del establecimiento.
+Artículo 7°-A fin de evitar la aparición y propagación de enfermedades transmisibles, los propietarios de los establecimientos aquí señalados deben cumplir con:
+a) Para los procesos de rasurado y corte de cabello con máquina: Se debe utilizar rasuradoras descartables o las hojas de afeitar desechables. Las mismas deben ser depositadas en un recipiente rígido y que sea dispuesto según se establece en el artículo anterior. Las máquinas se deberán desarmar y limpiar todos los días y las piezas como las cuchillas, deberán desinfectarse entre cada cliente.
+b) Emplear antisépticos o desinfectantes, en todos aquellos sitios propios de la actividad.
+c) El equipo no descartable deber ser desinfectado entre cada cliente.
+d) En toda rasurada o marcado de contorno debe utilizarse navajilla nueva o rasuradora descartable. En caso de que se utilice porta navaja, deber ser desinfectado previamente para cada cliente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42942 del 12 de abril del 2021)
