@@ -1,1 +1,0 @@
-Artículo 3º—Una vez publicado este Decreto las interesadas deberán protocolizar y presentar el respectivo testimonio ante el Registro de Asociaciones del Registro Nacional, para su respectiva inscripción, de acuerdo con lo establecido en el artículo 29 de la Ley de Asociaciones.
