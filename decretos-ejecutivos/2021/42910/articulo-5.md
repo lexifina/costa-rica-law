@@ -1,0 +1,1 @@
+Artículo 5º-Corresponde al Ministerio de Gobernación y Policía, mediante la Dirección Nacional de Desarrollo de la Comunidad, la inscripción, vigilancia, control legal y estatutario de las asociaciones de desarrollo de la comunidad que se constituyan a partir de la Ley N° 3859, del 07 de abril de 1967.

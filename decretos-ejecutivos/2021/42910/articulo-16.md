@@ -1,0 +1,1 @@
+Artículo 16.-Cuando exista disconformidad con los defectos señalados a los documentos en cuanto a la inobservancia de los requerimientos de la Ley N° 8901, la organización podrá recurrir en alzada ante la instancia superiora inmediata, de acuerdo con el procedimiento de inscripción vigente en la normativa aplicable.

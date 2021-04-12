@@ -1,0 +1,1 @@
+Artículo 17.-En caso de que una organización incumpla con lo establecido por la Ley N° 8901 y este Reglamento, la instancia de registro respectiva no inscribirá los actos de constitución de dicha organización o la renovación de sus órganos directivos.

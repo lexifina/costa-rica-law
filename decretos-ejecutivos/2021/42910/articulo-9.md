@@ -1,0 +1,1 @@
+Artículo 9º-Durante la elección, las organizaciones deberán tomar todas las medidas necesarias para asegurar una conformación paritaria del Órgano Directivo, de forma que, del total de las postulaciones, se nombre a aquellas requeridas para el cumplimiento de la Ley N° 8901.

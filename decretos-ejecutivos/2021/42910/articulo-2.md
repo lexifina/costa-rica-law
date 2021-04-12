@@ -1,0 +1,1 @@
+Artículo 2º-Corresponde al Ministerio de Justicia y Paz, mediante el Departamento de Asociaciones del Registro de Personas Jurídicas del Registro Nacional, autorizar el funcionamiento y correspondiente inscripción de las asociaciones que se constituyan a partir de la Ley N° 218, del 08 de agosto de 1939 y sus reformas, en relación con la Ley N° 6739, del 28 de abril de 1982.

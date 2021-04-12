@@ -1,0 +1,1 @@
+Artículo 4º-Corresponde al Ministerio de Trabajo y Seguridad Social, mediante el Departamento de Organizaciones Sociales, la inscripción, vigilancia, control legal y estatutario de las organizaciones sindicales que se constituyan a partir del artículo 332 del Código de Trabajo.

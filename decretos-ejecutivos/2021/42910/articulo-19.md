@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 19.-En un plazo de tres meses, contados a partir de la publicación del presente Reglamento en el Diario Oficial La Gaceta, el Instituto Nacional de las Mujeres, en consulta con el Ministerio de Trabajo y Seguridad Social, el Ministerio de Gobernación y Policía y el Ministerio de Justicia y Paz, elaborará un instrumento que sirva de guía a las organizaciones para llevar a cabo los procesos de divulgación, promoción, información y convocatorias según con lo establecido en la Ley N° 8901 -tanto previo al acto plenario, como al momento de las postulaciones o la confección de nóminas-. Asimismo, para que las organizaciones corroboren la inclusión de documentos probatorios del cumplimiento de lo dispuesto en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 8º-La conformación de los órganos de dirección debe garantizar la representación paritaria por razón de género, tanto vertical como horizontal, cuando corresponda el vencimiento de su periodo, incluyendo, pero no limitado a la Presidencia, Vicepresidencia, Secretaría, Tesorería y Vocalías.

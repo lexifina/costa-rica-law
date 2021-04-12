@@ -1,0 +1,1 @@
+Artículo 3º-Corresponde al Ministerio de Trabajo y Seguridad Social, mediante el Departamento de Organizaciones Sociales, la inscripción, vigilancia, control legal y estatutario de las asociaciones solidaristas que se constituyan a partir de la Ley N° 6970, del 07 de noviembre de 1984.
