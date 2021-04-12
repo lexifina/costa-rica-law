@@ -1,4 +1,4 @@
-N° 42248 – MTSS
+N° 42248 - MTSS
 EL PRESIDENTE DE LA REPÚBLICA Y
 LA MINISTRA DE TRABAJO Y SEGURIDAD SOCIAL
 Con fundamento en los artículos 43, 140 incisos 3) y 8) del y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) de la Ley General de la Administración Pública, Ley número 6227 de 2 de mayo de 1978; los artículos 1, 2 y 6 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social, Ley número 1860 del 21 de abril de 1955; los artículos 74, 75, 76 y 77 del Código de Trabajo, Ley número 2 del 27 de agosto de 1943; y
@@ -18,7 +18,8 @@ Artículo 1 º.-De la solicitud de suspensión temporal del contrato de trabajo.
 La solicitud de suspensión temporal del contrato de trabajo debe presentarse, de conformidad con el artículo 75 del Código de Trabajo y fundamentada en hechos que obedezcan a las medidas de emergencia que dicte el Poder Ejecutivo para los supuestos regulados en los incisos a) y b) del artículo 74 del Código de Trabajo, y dentro de los tres días posteriores al día en que ocurrió el hecho que dio origen a la referida solicitud.
 El plazo de tres días deberá entenderse como el tiempo que posee la persona empleadora para solicitar que la suspensión de los contratos de trabajo, opere desde el día en que ocurrió el hecho generador. La parte empleadora interesada en suspender temporalmente el contrato de trabajo con fundamento en las causales expresadas en el artículo 74 incisos a) y b) del Código de Trabajo, puede gestionarla en cualquier tiempo, siempre y cuando subsista la causa que le dio origen.
 La solicitud se hará ante la inspección de trabajo de la sede correspondiente donde se sitúe el centro de trabajo. En la misma, la parte empleadora deberá exponer con los siguientes elementos:
-a) Exposición clara y concreta de los hechos en los cuales fundamenta su solicitud.
+a) Exposición clara y concreta de los hechos en los cuales fundamenta su solicitud, indicando que la actividad de la empresa se encuentra dentro de las actividades temporalmente suspendidas indicadas en las Medidas administrativas temporales para la atención de actividades de concentración masiva debido a la alerta sanitaria por COVID-19 emitidas por el Ministerio de Salud.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42931 del 12 de abril del 2021)
 b) Indicar si la suspensión es parcial o total.
 c) El plazo aproximado que se solicita para la suspensión temporal del contrato de trabajo.
 d) Los puestos para los cuales se pretende la suspensión temporal del contrato de trabajo.

@@ -15,3 +15,4 @@ Reglamento para el procedimiento de suspensión temporal de contratos de trabajo
 | --- | --- | --- |
 | 1 | 2020-03-20 | la propia norma |
 | 2 | 2020-08-07 | Decreto Ejecutivo 42522 (2020-08-07) |
+| 3 | 2021-04-12 | Decreto Ejecutivo 42931 (2021-04-12) |
