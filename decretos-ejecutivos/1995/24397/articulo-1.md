@@ -3,7 +3,7 @@ EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE HACIENDA
 En uso de las facultades que les confieren los artículos 140, inciso 18) de la Constitución Política y 128 inciso 2) de la Ley General de la Administración Pública,
 DECRETAN:
-Artículo 1º—Para los efectos del presente decreto, entiéndase como dependencias de este Ministerio, las siguientes:
+Artículo 1º-Para los efectos del presente decreto, entiéndase como dependencias de este Ministerio, las siguientes:
 a) Dirección General de Tributación
 b) Dirección General de Aduanas
 c) Dirección General de Hacienda
@@ -17,7 +17,8 @@ j) Dirección General de Crédito Público
 k) Dirección de Tecnologías de Información y Comunicación
 (Así reformado el inciso anterior por el artículo 53 del decreto ejecutivo N° 37859 del 6 de junio del 2013, "Estructura organizacional de la Dirección de Tecnología de Información y Comunicación")
 l) Dirección Jurídica
-m) Dirección Administrativa y Financiera
+m) Oficialía Mayor y Dirección Administrativa y Financiera
+(Así reformado el inciso anterior por el artículo 14 del Reglamento de Organización y Funciones de la Oficialía Mayor y Dirección Administrativa y Financiera del Ministerio de Hacienda aprobado mediante decreto ejecutivo N° 43057 del 12 de abril del 2021)
 n) Dirección de Planificación Institucional
 o) Dirección Centro de Investigación y Formación Hacendaria
 p) Tribunal Aduanero Nacional
