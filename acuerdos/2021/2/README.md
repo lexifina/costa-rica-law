@@ -14,3 +14,4 @@ Crea la Comisión de Transparencia de Hacienda Digital para la rendición de cue
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-04 | la propia norma |
+| 2 | 2021-04-12 | Acuerdo 20 (2021-04-12) |
