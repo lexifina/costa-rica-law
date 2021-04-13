@@ -1,1 +1,0 @@
-Transitorio Único. La DCC contará con el plazo máximo de un año a partir de la vigencia del presente decreto para establecer la plataforma tecnológica para la operación del SINAMECC y para aprobar las Guías previstas en el artículo 8.

@@ -1,3 +1,0 @@
-Artículo 10.—Libre acceso a la información generada. La información y productos incluidos en el SINAMECC serán de carácter público y acceso libre y gratuito, con las excepciones previstas en la Constitución Política y la normativa legal vigente, siempre que el acceso a dicha información no ponga en riesgo o amenace el ambiente.
-La información de carácter confidencial según lo previsto por el ordenamiento jurídico nacional no será divulgada ni hecha accesible a terceros.
-En caso de denegar el acceso se emitirá un acto fundamentado, conforme lo dispuesto por el artículo 274 de la Ley General de la Administración Pública N° 6227. Se respetará en todo caso la autoría de la información incluida en el Sistema de conformidad con lo dispuesto en la normativa aplicable.
