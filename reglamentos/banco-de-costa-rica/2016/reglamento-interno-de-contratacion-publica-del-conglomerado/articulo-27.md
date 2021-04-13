@@ -1,6 +1,3 @@
-Artículo 27. Requisitos de la solicitud de refrendo interno. Las solicitudes de refrendo interno que formule la Oficina de Contratación Administrativa a la Gerencia Corporativa Jurídica deben incorporar, al menos, la siguiente información:
-a. Solicitud expresa del refrendo del contrato.
-b. Acompañar el documento contractual original debidamente firmado por las partes. En caso de que se trate de una modificación debe aportarse, además, el contrato original, en tanto este haya sido objeto de refrendo interno.
-c. Acompañar el expediente administrativo de la contratación respectiva, debidamente foliado y en orden cronológico, incluyendo, si corresponde, una copia de la garantía de cumplimiento. Se puede excluir de la remisión del expediente las ofertas no adjudicadas en el concurso, en cuyo caso el servidor remitente debe manifestar bajo su responsabilidad que dichos documentos excluidos de la remisión no afectan el análisis del refrendo.
-d. Acompañar certificación de contenido presupuestario sobre recursos económicos debidamente separados y disponibles para cubrir el gasto, o bien indicación del folio del expediente administrativo en que se localice dicho documento.
-e. Aportar las especies fiscales de ley o mención de la norma jurídica que exime su pago.
+Artículo 27. Prórroga del plazo del contrato
+El órgano o servidor que emitió el acto de adjudicación, o los rangos superiores de atribuciones, pueden autorizar prórrogas al plazo de ejecución del contrato a solicitud del contratista, en tanto existan demoras ocasionadas por la propia Administración o por causas ajenas al contratista, siguiendo al efecto las disposiciones establecidas en el artículo 206 del Reglamento a la Ley de Contratación Administrativa.
+La tramitación correspondiente debe ser realizada por la Oficina de Contratación Administrativa con el apoyo necesario de la oficina técnica solicitante o de la oficina responsable de la ejecución contractual.

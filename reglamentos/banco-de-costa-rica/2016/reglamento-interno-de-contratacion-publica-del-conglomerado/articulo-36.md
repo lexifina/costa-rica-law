@@ -1,1 +1,3 @@
-Artículo 36. Garantía de funcionamiento y fabricación. En caso de que por así disponerlo el contrato, el contratista deba rendir y mantener una garantía de funcionamiento o fabricación de los bienes o servicios contratados, la persona responsable de la ejecución del contrato es la encargada de dar seguimiento oportuno al cumplimiento de la garantía por parte del contratista.
+Artículo 36. Reajuste de precios
+Los reajustes de precios deben ser tramitados conforme a lo dispuesto en los artículos 18 de la Ley de Contratación Administrativa y 31 de su Reglamento.
+Deben ser autorizados por los funcionarios indicados en el artículo 7 de este Reglamento, dentro del marco de sus atribuciones, de acuerdo con la cuantía del monto del reajuste.

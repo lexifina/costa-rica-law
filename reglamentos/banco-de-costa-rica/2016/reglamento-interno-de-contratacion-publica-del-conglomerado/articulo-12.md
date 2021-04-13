@@ -1,1 +1,5 @@
-Artículo 12. Sustitución de servidores. Las atribuciones de un servidor competente deben ser ejercidas, en su ausencia, por los órganos superiores con atribuciones en la materia. En caso de que se nombre de manera formal a un sustituto este debe tener las mismas atribuciones y facultades que este Reglamento otorga al servidor titular.
+Capítulo IV
+Requisitos previos de la contratación administrativa
+Artículo 12. Programa de adquisiciones institucional
+La Oficina de Contratación Administrativa debe publicar en enero de cada año un Programa de Adquisiciones Institucional, a partir de la información que le suministren las diferentes oficinas y órganos de la Institución, requerimientos que deben cumplir con el principio de eficiencia y estar alineados con el Plan Estratégico Institucional, conforme a los lineamientos que establece el artículo 7 del Reglamento a la Ley de Contratación Administrativa. Asimismo, debe realizar la evaluación del Programa de Adquisiciones, de acuerdo con lo establecido en las Disposiciones para la Contratación Administrativa en el Banco de Costa Rica.
+Al finalizar cada período presupuestario, la Oficina de Informes Presupuesto y Financieros debe realizar una evaluación de la ejecución presupuestaria del Programa de Adquisiciones Institucional y formular las recomendaciones que estime pertinentes.

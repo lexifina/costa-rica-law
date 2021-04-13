@@ -1,1 +1,2 @@
-Artículo 4. Comité Corporativo Ejecutivo. El Comité Corporativo Ejecutivo es el órgano encargado de dictar el acto final de adjudicación en aquellos procedimientos que sean de su competencia conforme a las disposiciones del presente Reglamento; así como de ejercer las demás funciones que le asigna el presente Reglamento y cualquier otro reglamento o disposición interna del Banco.
+Artículo 4. Otros servidores competentes
+Los servidores mencionados en el artículo 7 del presente Reglamento tienen las atribuciones que se disponen en dicho numeral

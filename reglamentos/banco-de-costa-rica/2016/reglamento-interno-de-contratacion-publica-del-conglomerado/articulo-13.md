@@ -1,5 +1,3 @@
-Capítulo IV
-Requisitos previos de la contratación administrativa
-Artículo 13. Programa de adquisiciones institucional. La Oficina de Contratación Administrativa debe publicar en enero de cada año un Programa de Adquisiciones Institucional, a partir de la información que le suministren las diferentes oficinas y órganos de la Institución, conforme a los lineamientos que establece el artículo 7 del Reglamento a la Ley de Contratación Administrativa.
-Las contrataciones previstas en el Programa de Adquisiciones Institucional deben contar con los recursos presupuestarios necesarios, con excepción de lo dispuesto en la legislación de contratación administrativa en cuanto a inicio y adjudicación de procesos de adquisición de bienes y servicios con cargo a presupuestos futuros, según lo establecido en el artículo 9 del Reglamento a la Ley de Contratación Administrativa.
-Las contrataciones urgentes no previstas se pueden ejecutar sin necesidad de modificar el Programa de Adquisiciones Institucional, cuando se justifique en el cumplimiento de los fines públicos del Banco, debidamente acreditado en el expediente de la contratación que al efecto se tramite.
+Artículo 13. Decisión inicial de contratar
+Toda solicitud para dar inicio a un procedimiento de contratación administrativa debe ser remitida a la Oficina de Contratación Administrativa por el servidor indicado en el artículo 7 de este Reglamento, cualquiera que sea el límite económico de sus atribuciones y cumplir los requisitos que contiene el artículo 8 del Reglamento a la Ley de Contratación Administrativa.
+Para dar inicio al procedimiento se debe cumplir lo establecido en Disposiciones para la contratación administrativa en el Banco de Costa Rica.

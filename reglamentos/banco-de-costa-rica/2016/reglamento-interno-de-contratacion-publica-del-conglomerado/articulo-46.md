@@ -1,1 +1,10 @@
-Artículo 46. Extinción del contrato. Se considera como vía normal de extinción de los contratos administrativos el cumplimiento del objeto dentro del plazo contractual. La vía anormal de extinción de los contratos administrativos la constituyen la resolución, la rescisión o la declaratoria de nulidad.
+Artículo 46. De la tarjeta de compras institucionales
+La tarjeta de compras institucionales es una tarjeta que tiene asociada una suma o línea de pago revolutiva que el Banco le asigna a algunas personas servidoras, para la compra de bienes o servicios que son requeridos en forma inmediata y ocasional, para la adecuada operatividad o funcionamiento de las diferentes áreas del Banco y cuya adquisición no se encuentre disponible a través de la proveeduría interna del Conglomerado Financiero BCR.
+La asignación y uso de las tarjetas de compras institucionales debe ser autorizada únicamente por:
+a. Gerente general y subgerentes del BCR.
+b. Auditora, auditor, subauditora o subauditor general corporativo.
+c. Gerentes corporativos.
+d. Gerentes de área.
+e. Gerentes regionales.
+Los colaboradores antes mencionados tienen la facultad de designar los servidores que deben utilizar la tarjeta y el monto límite de cada tarjeta.
+Las Disposiciones Administrativas para regular el uso de las tarjetas de compras institucionales en el Conglomerado Financiero BCR, establecen los lineamientos para la utilización de la tarjeta institucional.

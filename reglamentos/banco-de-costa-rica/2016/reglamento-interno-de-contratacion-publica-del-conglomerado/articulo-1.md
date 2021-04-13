@@ -2,7 +2,7 @@ BANCO DE COSTA RICA
 (Corregido el título anterior mediante Fe de Erratas y publicada en La Gaceta N° 121 del 23 de junio de 2016, página 64. Anteriormente se indicaba: "BANCO CENTRAL DE COSTA RICA".)
 (Nota de Sinalevi: Sobre este tema el Banco de Costa Rica, había emitido anteriormente el Reglamento interno de contratación administrativa de BCR Sociedad Administradora de Fondos de Inversión S. A., aprobado en sesión N° 22 del 14 de octubre de 2015.)
 La Junta Directiva General en sesión 20-16, artículo VI, del 16 de mayo del 2016 el Reglamento interno de contratación administrativa del Banco de Costa Rica.
-(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 58 del 12 de noviembre de 2018, y publicado en el Alcance Digital N° 206 a La Gaceta N° 229 del 10 de diciembre de 2018 y se reproduce a continuación:)
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 16-2021 del 13 de abril del 2021, y publicado en el Alcance Digital N° 82 a La Gaceta N° 80 del 27 de abril del 2021 y se reproduce a continuación:)
 I. Propósito
 El propósito de este Reglamento es establecer las regulaciones internas que deben observar los órganos y servidores del Banco en la tramitación de los procedimientos de contratación administrativa, así como en su correspondiente fase de ejecución.
 II. Alcance
@@ -28,8 +28,10 @@ Oficina técnica solicitante: es aquella oficina, unidad o dependencia del Banco
 Oficina usuaria: es la oficina, unidad o dependencia del Banco destinataria final del bien o servicio objeto del contrato.
 Capítulo I
 Disposiciones generales
-Artículo 1. Principios generales. Todo procedimiento de contratación administrativa del Banco de Costa Rica debe respetar los principios constitucionales y legales dispuestos en la Ley de Contratación Administrativa y su Reglamento, así como los siguientes criterios:
+Artículo 1. Criterios generales
+Todo procedimiento de contratación administrativa del Banco de Costa Rica debe respetar los principios constitucionales y legales dispuestos en la Ley de Contratación Administrativa y su Reglamento, así como los siguientes criterios:
 a. Los requisitos formales de identificación de las personas físicas o jurídicas y en general sus atestados, deben ser analizados e interpretados de manera que se permita la más amplia participación de potenciales oferentes.
 b. Todo proceso de contratación contiene una etapa de saneamiento de requisitos formales, una vez cumplida se debe proceder al análisis de las ofertas en su contenido técnico y económico.
 c. Los requisitos técnicos y económicos que sean exigidos en los procesos de contratación del Banco deben ser siempre lo más general y neutral posible, con el propósito de permitir la más amplia participación de potenciales oferentes. La decisión de seleccionar una determinada tecnología debe ser aprobada por el gerente de área y gerente corporativo o subgerente a cargo de la oficina solicitante.
-d. Los requisitos legales, técnicos y económicos deben ser analizados e interpretados de manera que permitan cumplir los fines públicos encomendados al Banco; así como la selección del mejor bien o servicio al mejor precio y condiciones.
+d. Los requisitos legales, técnicos y económicos deben ser analizados e interpretados de manera que permitan cumplir los fines públicos encomendados al Banco; así como la selección del mejor bien o o servicio al mejor precio y condiciones.
+e. La sociedad civil de previo al inicio y durante el proceso de contratación, podrá hacer llegar sus comentarios o denuncias en relación con el concurso, por medio de la Oficina de Contraloría de Servicios de la Institución, los cuales se deben trasladar a la Oficina de Contratación Administrativa para su análisis y consideración.

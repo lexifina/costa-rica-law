@@ -1,1 +1,2 @@
-Artículo 6. Equipos multidisciplinarios de gestión de compras. El Banco puede constituir equipos multidisciplinarios de trabajo a fin de encargarles la coordinación de procesos específicos de adquisición de bienes y servicios para un determinado proyecto. Estos equipos son responsables de la conducción del procedimiento y de emitir la recomendación respectiva, sin perjuicio de las competencias que este Reglamento establece.
+Artículo 6. Administrador del contrato
+En toda contratación, el gerente de la oficina solicitante o quien este designe es el responsable de vigilar de manera directa, por la correcta ejecución del contrato de conformidad con lo regulado en la Disposiciones administrativas para el control de ejecución de contratos administrativos.

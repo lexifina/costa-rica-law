@@ -1,2 +1,9 @@
-Artículo 45. Recepción provisional y definitiva coincidente. En la contratación de objetos y servicios simples en los que no medie la necesidad de una verificación de orden técnico relevante y resulte suficiente una mera constatación del cumplimiento por parte del contratista, la oficina técnica solicitante o la encargada de la ejecución contractual debe hacer coincidir en la misma acta tanto la recepción provisional como la definitiva, en cuyo caso así se debe hacer constar expresamente.
-El acta que se levante respecto de cada recepción provisional o definitiva del objeto contractual debe ser suscrita por los servidores designados por el Banco y por el contratista respectivo, pudiendo este último hacer constar en ella las salvedades u observaciones que considere pertinentes. En objetos o servicios simples que por su naturaleza no ameriten la realización de pruebas técnicas o procesos de implementación para comprobar su cumplimiento de conformidad con las condiciones establecidas del cartel, se puede utilizar como acta una copia de la orden de compra o factura correspondiente a criterio del administrador del contrato. De todo lo actuado se debe dejar constancia en el expediente.
+Artículo 45. Del manejo de fondos de caja chica
+Caja chica es un fondo fijo destinado para atender exclusivamente la adquisición de bienes y servicios de poca cuantía y que sean de carácter indispensable, urgente y ocasional y que no puedan ser adquiridos por los procedimientos de compra ordinarios por el tiempo y trámite que implica su realización.
+El gerente general o los subgerentes pueden crear fondos de caja chica en la oficina central u otras unidades administrativas descentralizadas cuando lo consideren conveniente y establecer:
+a. El monto fijo del fondo.
+b. La oficina responsable de este.
+c. Los servidores que pueden autorizar retiros.
+d. El monto máximo de cada retiro.
+Los funcionarios con competencia para establecer los límites de caja chica, deben aplicar criterios de razonabilidad, proporcionalidad y eficiencia para establecer dichos montos, de manera que resulten congruentes con la naturaleza de los bienes y servicios que se adquieren por este medio, los cuales son de baja cuantía.
+Los fondos de caja chica se deben regir por lo establecido en las Disposiciones administrativas para el manejo de caja chica en el Banco de Costa Rica.

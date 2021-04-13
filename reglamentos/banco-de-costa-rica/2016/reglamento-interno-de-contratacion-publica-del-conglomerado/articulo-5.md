@@ -1,1 +1,2 @@
-Artículo 5. Otros servidores competentes. Los servidores mencionados en el artículo 9 del presente Reglamento tienen las atribuciones que se disponen en dicho numeral.
+Artículo 5. Equipos multidisciplinarios de gestión de compras
+El Banco puede constituir equipos multidisciplinarios de trabajo a fin de encargarles la coordinación de procesos específicos de adquisición de bienes y servicios para un determinado proyecto. Estos equipos son responsables de la conducción del procedimiento y de emitir la recomendación respectiva, sin perjuicio de las competencias que este Reglamento establece.
