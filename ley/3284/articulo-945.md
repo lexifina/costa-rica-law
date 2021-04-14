@@ -1,1 +1,1 @@
-ARTÍCULO 945.- Los acreedores comunes, aunque no estén comprendidos en el balance, ni hayan tomado parte en el procedimiento, ni hayan legalizado su crédito, lo mismo que aquellos que estén pendientes de reconocimiento, quedan obligados por el convenio.
+ARTÍCULO 945.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

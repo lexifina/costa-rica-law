@@ -1,2 +1,1 @@
-ARTÍCULO 887.- Todos los acreedores, excepto los separatistas, deben legalizar su crédito ante el Juez respectivo y dentro del término que ese funcionario haya fijado.
-Los créditos se pagarán en el orden en que están enumerados en el artículo anterior. Solamente los que tienen privilegio sobre determinado bien se excluyen entre sí.
+ARTÍCULO 887.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

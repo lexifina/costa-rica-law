@@ -1,1 +1,1 @@
-ARTÍCULO 929.- Se considerará realizado el activo, aun cuando algunos créditos no se hayan podido cobrar por carecer los deudores de bienes sobre los cuales hacer efectivas las obligaciones, o ser por otras razones imposible el cobro.
+ARTÍCULO 929.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

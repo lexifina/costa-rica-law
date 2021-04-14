@@ -1,1 +1,1 @@
-ARTÍCULO 937.- Será nulo el convenio particular de un acreedor o de un grupo de acreedores con el quebrado; si se hiciere, tales acreedores perderán cuantos derechos tengan en la quiebra, la cual por ese solo hecho será calificada de culpable.
+ARTÍCULO 937.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

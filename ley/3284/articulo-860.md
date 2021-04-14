@@ -1,1 +1,1 @@
-ARTÍCULO 860.- Servirá como fundamento para declarar la quiebra, cualquiera de los títulos a los que las leyes les da el carácter ejecutivo. Un documento privado que no tenga carácter de título ejecutivo servirá, sin embargo, de base a una declaratoria de quiebra, cuando a juicio del Juez la firma o firmas del obligado fueren auténticas.
+ARTÍCULO 860.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

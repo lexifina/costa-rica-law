@@ -1,1 +1,1 @@
-ARTÍCULO 902.- Los privilegios que acuerda el artículo anterior, se excluyen entre sí y caso de haber varios acreedores con privilegio especial sobre determinada cosa, deberá pagarse en el orden en que están expresados sus privilegios en dicho artículo.
+ARTÍCULO 902.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

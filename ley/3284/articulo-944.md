@@ -1,1 +1,1 @@
-ARTÍCULO 944.- Los acreedores comunes que no figuraren en el concurso, tendrán derecho a cobrarle a su deudor después de aprobado el convenio, tan sólo una parte igual a la que les habría correspondido si hubieren legalizado oportunamente en la quiebra.
+ARTÍCULO 944.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")
