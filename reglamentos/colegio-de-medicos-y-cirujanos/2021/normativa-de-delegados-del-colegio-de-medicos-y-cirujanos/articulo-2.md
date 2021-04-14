@@ -1,0 +1,2 @@
+Artículo 2°-Distribución nacional de los miembros delegados. Con vista en la consecución de los fines públicos delegados por ley al Colegio de Médicos y Cirujanos, la Junta de Gobierno procurará la distribución equitativa de los miembros delegados, de modo que se abarquen todas las provincias del país.
+De igual forma la Junta de Gobierno procurará, en lo que sea posible, el nombramiento de delegados en todos los centros de salud del país, ya sean públicos o privados.

@@ -1,0 +1,1 @@
+Artículo 7°-Remoción de los miembros delegados. Los miembros delegados podrán ser removidos de su cargo a discreción de la Junta de Gobierno del Colegio de Médicos y Cirujanos mediante la debida justificación y comunicación por escrito. Los motivos o razones de remoción podrán, pero no estarán limitadas a razones de rendimiento, asistencia a reuniones o asambleas o colaboración.

@@ -1,0 +1,2 @@
+Artículo 4°-Elección de los miembros delegados y plazo de nombramiento. Los miembros delegados serán nombrados de forma discrecional por la Junta de Gobierno del Colegio de Médicos y Cirujanos en el mes de marzo del año de entrada en posesión del nuevo presidente del Colegio de Médicos y Cirujanos, y con base en su plan de gobierno.
+Dichos miembros permanecerán en su cargo el periodo de gobierno del presidente electo. Posteriormente, dichos miembros podrán ser reelectos por la nueva Junta de Gobierno o podrán ser reemplazados acorde al nuevo plan de gobierno.

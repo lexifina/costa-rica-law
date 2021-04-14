@@ -1,0 +1,1 @@
+Artículo 5°-Juramentación de los miembros delegados. Los miembros delegados serán juramentados en sesión especial convocada para tal efecto. Los Delegados desde el momento en que aceptan el cargo, quedan sujetos a las disposiciones de la presente normativa y a las que dicte la Junta de Gobierno.
