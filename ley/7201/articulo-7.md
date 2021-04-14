@@ -1,1 +1,0 @@
-Artículo 7.- La Comisión Nacional de Valores deberá ser consultada por el Poder Ejecutivo y los entes públicos descentralizados, cuando se trate de dictar actos de alcance general y contenido normativo que se relacionen o tengan efectos directos en materia de valores.

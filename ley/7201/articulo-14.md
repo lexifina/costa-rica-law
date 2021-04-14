@@ -1,1 +1,0 @@
-Artículo 14.- La Junta Directiva de la Comisión Nacional de Valores elegirá, de su propio seno, por mayoría de votos, un presidente que será nombrado por un período de dos años en sus funciones y podrá ser reelegido.
