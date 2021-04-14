@@ -1,0 +1,2 @@
+Artículo 5º-Autenticación y verificación de identidad por equipo biométrico. En las terminales donde se encuentre implementado el Sistema de control de accesos, el Departamento de Transacciones Comerciales tomará y registrará la huella digital del transportista en un equipo de tecnología biométrica.
+El transportista deberá colocar la huella digital en los equipos ubicados tanto a la entrada como salida de la terminal, cada vez que requiera ingresar o salir de las instalaciones de RECOPE.

@@ -1,0 +1,4 @@
+CAPÍTULO V
+De los incumplimientos
+Artículo 12.-Inobservancia de deberes del transportista. Cuando se presente alguna inobservancia por parte del transportista a cualquiera de los artículos de este reglamento, el Inspector de SAS o un funcionario de RECOPE del área donde se presente el incumplimiento, levantará un documento sobre el incumplimiento y reportará el hecho al Inspector de Patio o Inspector de Facturación, según corresponda, los cuales deberán reportar el hecho por escrito al Jefe de Departamento de Distribución correspondiente. Este último enviará formalmente la situación a la jefatura del Departamento de Gestión de Ventas, el cual será el responsable de comunicar al transportista y a la Empresa transportista, y darle seguimiento al proceso.
+Los incumplimientos pueden ser detectados tanto a la entrada como dentro de las instalaciones.
