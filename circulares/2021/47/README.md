@@ -13,3 +13,4 @@ Reiteración de la circular N° 245-2014, referente a las Directrices sobre el n
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-15 | la propia norma |
+| 2 | 2021-04-15 | Circular 77 (2021-04-15) |
