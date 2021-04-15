@@ -1,0 +1,3 @@
+TRANSITORIO ÚNICO- El Poder Ejecutivo deberá reglamentar la presente ley en un plazo máximo de dieciocho meses, contado a partir de su entrada en vigencia; plazo en el cual el Ministerio de Hacienda deberá contar con el estudio de costo - beneficio, aprobar, establecer y poner en marcha el mecanismo tecnológico de control que se establece en el artículo único de esta ley, siempre que el estudio demuestre que se cumplen los beneficios indicados en el párrafo cuarto de este artículo.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veinticuatro días del mes de marzo del año dos mil veintiuno.
