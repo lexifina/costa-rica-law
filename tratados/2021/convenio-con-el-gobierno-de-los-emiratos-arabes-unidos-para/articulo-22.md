@@ -1,0 +1,6 @@
+ARTÍCULO 22
+ELIMINACIÓN DE DOBLE TRIBUTACIÓN
+1. Cuando un residente de un Estado Contratante obtenga rentas o ganancias de capital que con arreglo a las disposiciones del presente Convenio pueden someterse a imposición en el otro Estado Contratante (excepto en la medida que estas disposiciones permitan la imposición por ese otro Estado únicamente porque la renta o las ganancias de capital son obtenidas por un residente de tal Estado), ese Estado permitirá una deducción en el impuesto sobre la renta o las ganancias de capital de ese residente, de un importe igual al impuesto sobre la renta o ganancias de capital pagado en el otro Estado;
+En cualquier caso dicha deducción no podrá exceder de la parte del impuesto sobre la renta o ganancias de capital, calculada antes de la deducción correspondiente a las rentas o las ganancias de capital que puedan someterse a imposición en el otro Estado.
+2. Cuando con arreglo a cualquier disposición de este Convenio, las rentas o ganancias de capital obtenidas por un residente de un Estado Contratante estén exentas de impuesto en dicho Estado Contratante, éste podrá al calcular el impuesto sobre el resto de las rentas o las ganancias de capital de ese residente, tomar en
+cuenta las rentas o las ganancias de capital exentas.

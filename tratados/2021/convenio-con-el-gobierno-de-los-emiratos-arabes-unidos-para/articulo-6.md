@@ -1,0 +1,7 @@
+ARTÍCULO 6
+INGRESOS DE BIENES INMUEBLES
+1. Las rentas que un residente de un Estado Contratante obtenga de bienes inmuebles (incluyendo las rentas de la agricultura, forestación o silvicultura) situado en el otro Estado Contratante pueden someterse a imposición en ese otro Estado.
+2. La expresión "bienes inmuebles" tendrá el significado que le atribuya el derecho del Estado Contratante en que los bienes en cuestión estén situados. Dicha expresión comprende en todo caso los accesorios de bienes inmuebles, el ganado y el equipo utilizado en las explotaciones agrícolas y forestales, los derechos a los que sean aplicables las disposiciones del derecho privado relativas a la propiedad inmueble, el usufructo de bienes inmuebles y el derecho de percibir pagos fijos o variables en contraprestación por la explotación o concesión de exploración y/o explotación de yacimientos minerales, fuentes y otros recursos naturales. Los buques y aeronaves no tendrán la consideración de bienes inmuebles.
+3. Las disposiciones del apartado 1 son aplicables a las rentas derivadas de la utilización directa, el arrendamiento o aparcería, así como cualquier otra forma de exploración y/o explotación de bienes inmuebles, incluyendo el uso y disfrute de
+tiempo compartido.
+4. Las disposiciones de los apartados 1 y 3 se aplican igualmente a las rentas de los bienes inmuebles de una empresa y de los bienes inmuebles utilizados para el ejercicio de servicios personales independientes.
