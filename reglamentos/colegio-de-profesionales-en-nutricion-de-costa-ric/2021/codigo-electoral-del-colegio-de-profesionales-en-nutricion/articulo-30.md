@@ -1,0 +1,2 @@
+Artículo 30.-De la reelección. Los miembros de la Junta Directiva, las Fiscalías y el Tribunal de Honor podrán ocupar cargos por dos períodos electorales consecutivos. Luego de este período, para poder optar nuevamente por un cargo en cualquiera de los órganos del Colegio, deberá pasar, al menos, un período de dos años sin participar en ningún cargo de elección.
+La reelección de los miembros del Tribunal Electoral se efectuará de acuerdo con lo establecido en este Código y en la Ley Orgánica del Colegio.

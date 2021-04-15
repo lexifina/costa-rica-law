@@ -1,0 +1,2 @@
+Artículo 9º-Facultades y competencias del Tribunal. El Tribunal, en materia electoral, es un órgano autónomo, soberano e independiente de los otros órganos del Colegio, tanto en su función como en su criterio de acuerdo con sus competencias.
+El Tribunal tendrá competencia plena para organizar, fiscalizar, dirigir y ordenar todo el proceso electoral, pudiendo resolver de forma definitiva todas las situaciones y conflictos que se presenten en esta materia sin que ningún otro órgano pueda interferir en su independencia funcional, sugerir o modificar sus decisiones.
