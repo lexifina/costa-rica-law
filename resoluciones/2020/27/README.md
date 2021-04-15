@@ -14,3 +14,4 @@ Fija la tasa de rentabilidad para reglas de cálculo tarifario tipo 2, a reconoc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-28 | la propia norma |
+| 2 | 2021-04-15 | Resolución 21 (2021-04-15) |
