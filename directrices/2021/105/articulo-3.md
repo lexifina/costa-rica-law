@@ -1,0 +1,1 @@
+Artículo 3º-Evaluación y seguimiento. La Coordinadora Política de la Región Huetar Norte deberá informar por escrito y de manera bimestral a partir de la vigencia de esta instrucción, a la Presidencia de la República sobre el seguimiento y los avances en torno a las acciones prioritarias de la matriz anexa a la presente Directriz.
