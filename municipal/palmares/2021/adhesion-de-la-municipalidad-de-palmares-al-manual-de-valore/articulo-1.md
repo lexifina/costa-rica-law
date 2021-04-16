@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE PALMARES
+Adhesión de la Municipalidad de Palmares al Manual de Valores Base Unitarios por Tipología Constructiva 2019 para la actualización de la Plataforma de Valores.
+MUNICIPALIDAD DE PALMARES
+La suscrita Katherine Ramírez González, Alcaldesa de la Municipalidad de Palmares, cumpliendo con lo que disponen los artículos 3º y 12 de la Ley de Impuesto sobre Bienes Inmuebles Nº 7509 y su reformas, la sentencia Nº 1073-2010 del Tribunal Contencioso Administrativo, del 18 de marzo de 2010, la Sección III y la Resolución de la Sala Constitucional Nº 2011-003075 del 9 de marzo de 2011, en aras de dar cumplimiento a su competencia, procedo con la adhesión de este municipio a la publicación del Manual de Valores Base Unitaria por Tipología Constructiva 2019 publicado en el Alcance Nº 198 al Diario Oficial La Gaceta Nº 187 del jueves 30 de junio de 2020, documento procedente del Órgano de Normalización Técnica, Dirección General de Tributación, Ministerio de Hacienda.
+Esta plataforma de valores se utilizará para todos los procesos de declaración y de valoración de bienes inmuebles a partir de la presente publicación. Se aplicará el programa de Valoración suministrado por el Órgano de Normalización Técnica, para guiar, fiscalizar y dirigir los procesos de declaración, fiscalización y valoración.
+<span style='font-size:12.0pt;font-family: </body>
