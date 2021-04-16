@@ -1,0 +1,6 @@
+Sección 5
+Cartel, pliego de condiciones o términos de referencia del procedimiento de contratación
+administrativa
+Artículo 34
+El cartel, pliego de condiciones o términos de referencia será elaborado por el Departamento de Proveeduría, a partir de las especificaciones técnicas, plazo y lugar de entrega, requisitos de admisibilidad, garantías técnicas, factores de evaluación, condiciones de pago, sistema de sanciones económicas al contratista por incumplimientos, estimación económica y anexos, contenidas en la Decisión Inicial, establecidos por la Unidad Solicitante o Centro Funcional, contemplando las disposiciones normativas nacionales aplicables a la materia, los antecedentes o posiciones técnicas de la Contraloría General de la República y las condiciones de la plataforma electrónica que utiliza el PANI para tramitar sus procedimientos de contratación administrativa.
+El contenido técnico y condiciones esenciales, tales como especificaciones técnicas, plazo y lugar de entrega, requisitos de admisibilidad, garantías técnicas, factores de evaluación, entregables, condiciones de pago, estimación económica, ejecución y designación del Fiscalizador de Contrato, son responsabilidad de la Unidad Solicitante como encargado de la planificación de su adquisición y así serán plasmados por el Departamento de Proveeduría en el cartel del procedimiento.

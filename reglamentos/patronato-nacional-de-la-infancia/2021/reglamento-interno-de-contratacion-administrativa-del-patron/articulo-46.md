@@ -1,0 +1,3 @@
+Artículo 46
+El acto final de cada procedimiento deberá estar debidamente razonado por el órgano o instancia competente para dictarlo, con base en el sistema de calificación y comparación de ofertas, con expresa indicación de los factores considerados, así como el grado de importancia de cada uno de ellos en la comparación global de las ofertas y el método para valorarlas en relación con cada factor.
+El acto final deberá cumplir con la aplicación de las posiciones consolidadas de la Contraloría General de la República en temas específicos, cuando existan, y lo establecido en la normativa nacional vigente. Una vez emitido el acto final, la Junta Directiva deberá remitirlo oportunamente al Departamento de Proveeduría, para la notificación respectiva y trámites siguientes.

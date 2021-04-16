@@ -1,0 +1,3 @@
+Artículo 68
+Los procedimientos de contratación administrativa que requieran del refrendo por parte de la Contraloría General de la República, deberán someterse a las disposiciones contempladas en la Ley sobre el Refrendo de las contrataciones de la Administración Pública y su Reglamento, dicho trámite lo realizará la Asesoría Jurídica ante el Órgano Contralor.
+La actividad contractual que no requiera refrendo por parte de la Contraloría General de la República, pero por normativa, requiera refrendo interno, será competencia de la Asesoría Jurídica y de igual manera estará sujeto a las disposiciones contempladas en la Ley sobre el Refrendo de las contrataciones de la Administración Pública y su Reglamento.

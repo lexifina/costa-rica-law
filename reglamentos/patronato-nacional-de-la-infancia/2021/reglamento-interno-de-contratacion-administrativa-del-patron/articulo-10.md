@@ -1,0 +1,2 @@
+Artículo 10
+La Jefatura de las Unidades de Compra serán las instancias autorizadas para dictar los actos finales en procedimientos de contratación directa de escasa cuantía de su respectiva Unidad de Compra, y en los basados en causales de excepción cuya cuantía sea igual o inferior al límite general de contratación administrativa (según corresponda para obra pública o excluye obra pública) para la contratación directa. En ambos casos, sea que requieran o no, refrendo interno.

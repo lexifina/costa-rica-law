@@ -1,0 +1,2 @@
+Artículo 38
+El Departamento de Proveeduría será el responsable de gestionar las modificaciones y aclaraciones de los carteles que sean necesarios, a partir de los insumos técnicos, legales y administrativos que le brinden cada una de las unidades involucradas en el procedimiento de contratación administrativa, de conformidad con las disposiciones de la normativa nacional en la materia y de la plataforma electrónica respectiva.

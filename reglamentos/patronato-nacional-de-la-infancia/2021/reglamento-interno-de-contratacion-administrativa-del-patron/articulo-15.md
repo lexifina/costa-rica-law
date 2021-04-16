@@ -1,0 +1,2 @@
+Artículo 15
+En virtud de que los procedimientos de contratación administrativa están imbuidos por la celeridad y sumariedad en la debida e impostergable atención y satisfacción de las necesidades y requerimientos públicos, las consultas o trámites que le gestione el Departamento de Proveeduría están sujetos a los principios de eficacia y eficiencia, por lo tanto, deben ser atendidos en un plazo no mayor a 10 días hábiles.

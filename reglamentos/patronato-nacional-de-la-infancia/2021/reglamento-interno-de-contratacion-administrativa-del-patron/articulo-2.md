@@ -1,0 +1,2 @@
+Artículo 2
+De conformidad con el ordenamiento jurídico vigente los procedimientos de contratación administrativa del PANI se regirán en su orden por la Constitución Política, la Ley de Contratación Administrativa, la Ley General de la Administración Pública, el Reglamento a la Ley de Contratación Administrativa, la presente normativa y lo estipulado en los instructivos, directrices y circulares que se emitan a lo interno de la institución sobre la materia, así como los carteles y los contratos administrativos.

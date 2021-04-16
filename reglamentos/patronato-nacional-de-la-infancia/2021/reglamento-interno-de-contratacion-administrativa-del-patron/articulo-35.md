@@ -1,0 +1,4 @@
+Artículo 35
+Durante la elaboración del cartel, el Departamento de Proveeduría podrá requerir la participación activa tanto de la Unidad Solicitante o Centro Funcional y del Fiscalizador de Contrato, con el fin de clarificar sus especificaciones y su alcance.
+Adicionalmente, todas las demás unidades del PANI, de naturaleza técnica, jurídica, contable, financiera, presupuestaria, informática y de cualquier otro orden, están obligadas a brindarle efectiva colaboración y asesoría al Departamento de Proveeduría, a fin de garantizar el eficiente y eficaz cumplimiento de sus funciones.
+En caso de objetos contractuales con requerimientos complejos el Departamento de Proveeduría podrá autorizar la contratación de personas físicas o jurídicas para que brinden asesoría en la elaboración de las especificaciones técnicas y redacción de condiciones que sean necesarias.
