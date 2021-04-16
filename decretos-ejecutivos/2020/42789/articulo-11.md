@@ -1,0 +1,1 @@
+Artículo 11. Causas de cesación del cargo. La persona Contralora de Servicios del MAG, cesará en sus funciones de conformidad con lo señalado en el artículo 28 de la Ley Reguladora del Sistema Nacional de Contraloría de Servicios.

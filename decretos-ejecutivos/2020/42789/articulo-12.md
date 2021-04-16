@@ -1,0 +1,1 @@
+Artículo 12. Dotación de recursos. Para el cumplimiento de sus funciones, el Despacho Ministerial, deberá dotar a la Contraloría de Servicios de los recursos necesarios, que garanticen su óptimo funcionamiento.

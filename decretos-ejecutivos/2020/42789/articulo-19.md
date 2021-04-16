@@ -1,0 +1,2 @@
+Artículo 19. Del Manual de Servicio al Usuario (a) y otras responsabilidades.
+La persona Contralora de Servicios coadyuvará en la elaboración y aprobación de manuales, códigos y/o protocolos de atención de servicio a los usuarios (as) a fin de poner a disposición de la institución un Manual de Servicio al usuario (a) interno y externo del MAG, donde se establezcan las condiciones de actitud y aptitud, que deben cumplir los funcionarios al atender a los usuarios (as) a los cuales se les brinda un servicio.

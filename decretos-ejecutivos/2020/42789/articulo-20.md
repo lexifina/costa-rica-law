@@ -1,0 +1,2 @@
+Artículo 20. Establecimiento de estándares de calidad de los servicios institucionales.
+La Contraloría de Servicios aplicará en conjunto con Gestión de la Calidad, estándares que permitan apreciar las mejoras de gestión y la medición de los niveles de calidad existentes en los servicios institucionales, según los requerimientos de los usuarios (as) externos (as). Los resultados de la aplicación de dichos estándares de calidad serán

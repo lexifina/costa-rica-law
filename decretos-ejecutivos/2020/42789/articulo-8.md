@@ -1,0 +1,9 @@
+Artículo 8. Funciones de la Contraloría de Servicios del MAG: El presente reglamento tiene como funciones las siguiente;
+a) Verificar que el Ministerio cuente con mecanismos y procedimientos eficaces de comunicación con los usuarios (as), de manera tal que les permita mantenerse actualizados con sus necesidades.
+b) Velar por el cumplimiento de los lineamientos y directrices que en materia de Contralorías de Servicios y mejoramiento al servicio público se emitan, sin perjuicio de las acciones que desarrolle y que respondan a las necesidades específicas del ministerio.
+c) Atender oportunamente las inconformidades, denuncias o sugerencias que presenten los usuarios (as) de la institución y procurar una solución inmediata a los problemas que planteen.
+d) Establecer un modelo de diagnóstico y evaluación de los servicios que brinda la institución, que prevea sistemas de seguimiento, resolución y respuesta oportuna de las gestiones de los usuarios (as) y velar para que las unidades técnicas apliquen las acciones correctivas pertinentes.
+e) Vigilar por el cumplimiento institucional en la pronta respuesta a las inconformidades presentadas por los usuarios (as).
+f) Identificar los obstáculos que impiden la prestación de un servicio de calidad mediante entrevistas formales e informales, y la aplicación de instrumentos de medición y sondeo con los usuarios (as) y el personal que presta servicios dentro de la institución, con el propósito de buscar las soluciones pertinentes.
+g) Identificar conflictos en la relación de la Administración con el usuario (a) específicamente sobre el exceso de requisitos, trámites administrativos y de control interno, que afecten la prestación del servicio.
+h) Informar al Despacho Ministerial, cuando las sugerencias presentadas a otras unidades administrativas de la institución hayan sido ignoradas y por ende, las situaciones que provocan inconformidades en los ciudadanos permanezcan irresolutas.

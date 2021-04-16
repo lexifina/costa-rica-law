@@ -1,0 +1,3 @@
+Artículo 14. Confidencialidad de la identidad de la persona usuaria.
+Al presentar su gestión ante la Contraloría de Servicios, la persona usuaria podrá solicitar al Contralor (a) de Servicios guardar confidencia, quien para tales efectos mantendrá la reserva o secreto de su identidad garantizándole, la mayor confidencialidad en el uso de la información que reciba, más aún si lo que se derive de las investigaciones, se pueda ver afectada la continuidad y atención de los servicios que deban brindársele.
+La persona Contralora de Servicios valorará, de forma discrecional, la posibilidad y conveniencia de brindar la confidencialidad, salvo cuando por disposición legal u orden judicial sea imperativo o, en su caso, no resulte posible.
