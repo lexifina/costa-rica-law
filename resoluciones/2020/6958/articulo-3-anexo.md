@@ -1,10 +1,12 @@
 ANEXO III
-Actividades autorizadas a operar en Zonas con un Índice de Riesgo Cantonal (IRC) mayor
-a 2 pero menor a 3 CON Plan Cantonal de Prevención por COVID-19, debidamente
-avalado e implementado por el Comité Municipal de Emergencias (CME).
+Actividades autorizadas a operar en Zonas con un Índice de Riesgo Cantonal
+(IRC) igual o mayor a 2 CON Plan Cantonal de Prevención por COVID-19,
+debidamente avalado e implementado por el Comité Municipal de
+Emergencias (CME).
+(Así modificada su denominación mediante resolución N° MS-DM-2467-2021 del 16 de abril del 2021. Anteriormente indicaba: " ANEXO III Actividades autorizadas a operar en Zonas con un Índice de Riesgo Cantonal (IRC) mayor a 2 pero menor a 3 CON Plan Cantonal de Prevención por COVID-19, debidamente avalado e implementado por el Comité Municipal de Emergencias (CME)")
 A. Podrán operar de lunes a domingo sin restricción horaria:
 1. Servicios a domicilio.
-2. Alquiler de vehículos “rent a car”.
+2. Alquiler de vehículos "rent a car".
 3. Alquiler de bicicletas.
 4. Suministro y abastecimiento de combustibles.
 5. Servicios comunitarios de recolección de residuos.
@@ -44,7 +46,7 @@ C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad 
 16. Salones de estéticas para mascotas (Grooming).
 17. Plataformas de atención al cliente de instituciones públicas y municipales.
 18. Servicios bancarios y financieros públicos o privados, en entidades financieras o no financieras.
-19. Actividades de centros que atienden llamadas de clientes utilizando operadores humanos como: “call center”.
+19. Actividades de centros que atienden llamadas de clientes utilizando operadores humanos como: "call center".
 20. Funerarias y/o capillas de velación.
 21. Parques temáticos de animales, parques botánicos o parques marinos que no impliquen el acceso a playas ni balnearios.
 (Así modificada la numeración del inciso anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021, que lo traspasó del antiguo inciso 22 al 21, toda vez que se eliminó el inciso 21 original)

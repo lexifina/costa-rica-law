@@ -1,5 +1,9 @@
 ANEXO IV
-Actividades autorizadas a operar en Zonas con un Índice de Riesgo Cantonal (IRC) mayor a 2 pero menor a 3 SIN Plan Cantonal de Prevención por COVID-19, debidamente avalado e implementado por el Comité Municipal de Emergencias (CME).
+Actividades autorizadas a operar en Zonas con un Índice de Riesgo Cantonal
+(IRC) igual o mayor a 2 SIN Plan Cantonal de Prevención por COVID-19,
+debidamente avalado e implementado por el Comité Municipal de
+Emergencias (CME).
+(Así modificada su denominación mediante resolución N° MS-DM-2467-2021 del 16 de abril del 2021. Anteriormente indicaba: " ANEXO IV Actividades autorizadas a operar en Zonas con un Índice de Riesgo Cantonal (IRC) mayor a 2 pero menor a 3 SIN Plan Cantonal de Prevención por COVID-19, debidamente avalado e implementado por el Comité Municipal de Emergencias (CME).")
 A. Podrán funcionar de lunes a domingo sin restricción horaria:
 1. Los servicios a domicilio.
 2. Las instituciones públicas en general y municipios.
@@ -17,7 +21,7 @@ A. Podrán funcionar de lunes a domingo sin restricción horaria:
 14. Ferreterías y venta de materiales para la construcción, con una capacidad de ocupación al cincuenta por ciento (50%).
 15. Cerrajerías, con una capacidad de ocupación al cincuenta por ciento (50%).
 16. Vidrieras, con una capacidad de ocupación al cincuenta por ciento (50%).
-17. Alquiler de vehículos “rent a car”.
+17. Alquiler de vehículos "rent a car".
 18. Alquiler de bicicletas
 19. Revisión Técnica Vehicular (RTV), con una capacidad de ocupación al cincuenta por ciento (50%).
 20. Reparación de vehículos, motores en general, motocicletas, llantas, ciclos y talleres de bicicletas, equipo agrícola, maquinaria y equipo pesado e industriales, con una capacidad de ocupación al cincuenta por ciento (50%).

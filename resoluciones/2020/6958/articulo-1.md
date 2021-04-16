@@ -86,7 +86,8 @@ CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de
 9. Playas y lagos, con previa aprobación de protocolos por el ICT con cada municipio.
 (Nota de Sinalevi: Mediante resolución N° MS-DM-1701-2021 del 23 de febrero del 2021 se reforma de forma temporal la franja horaria de la resolución MS-DM-69582020 y sus reformas, para que el horario de acceso a las playas a partir del 01 de marzo y hasta el 31 de marzo inclusive, sea desde las 5:00 horas y hasta las 18:00 horas)
 (Así reformado el inciso anterior por resolución N° MS-DM-8527-2020 del 14 de octubre del 2020)
-(Nota de Sinalevi: Mediante resolución N° MS-DM-2299-2021 del 24 de marzo del 2021 se reforma el horario de acceso a las playas a partir del 01 de abril y hasta el 30 de abril inclusive, sea desde las 5:00 horas y hasta las 18:00 horas)
+(Nota de Sinalevi: Mediante resolución N° MS-DM-2299-2021 del 24 de marzo del 2021 se reforma el horario de acceso a las playas a partir del 01 de abril y hasta el 30 de abril inclusive, sea desde las 5:00 horas y hasta las 18:00 horas
+(Nota de Sinalevi: Mediante resolución N° MS-DM-2771-2021 del 26 de abril del 2021 se establece reformar de forma temporal la franja horaria de la presente resolución. De conformidad con lo establecido en la indicada norma la misma empieza a regir a partir del 1° de mayo del 2021, por lo que a partir de esa fecha el horario de acceso a las playas a partir del 01 de mayo y hasta el 31 de mayo inclusive, sea desde las 5:00 horas y hasta las 18:00 horas)
 10. Deportes individuales, al aire libre o en espacio cerrado, sin público, según lista autorizada por el Ministerio del Deporte.
 11. Deportes de contacto para entrenamiento de las Selecciones Nacionales Femenina y Masculina de alta competencia; y competencias de la categoría de alto rendimiento o profesional, a puerta cerrada y sin público, según lista autorizada por el Ministerio del Deporte.
 12. Deportes de Contacto para entrenamientos individuales sin contacto o acercamiento físico, según lista autorizada por el Ministerio del Deporte.
@@ -100,8 +101,10 @@ SEXTO: Todos los establecimientos con permiso sanitario de funcionamiento except
 SÉTIMO: A partir del 15 de setiembre de 2020, de conformidad con el modelo de Gestión Compartida que se encuentra disponible para consulta en la página web www.cne.go.cr, y según los resultados de evaluación del Índice de Riesgo Cantonal (IRC), se aplicarán los anexos de la siguiente resolución a los establecimientos con permiso sanitario de funcionamiento de atención al público.
 1. Anexo I.- Zonas con un Índice de Riesgo Cantonal (IRC) menor a 2 con Plan Cantonal de Prevención por COVID-19, debidamente avalado e implementado por el Comité Municipal de Emergencias (CME).
 2. Anexo II.- Zonas con un Índice de Riesgo Cantonal (IRC) menor a 2 sin Plan Cantonal de Prevención por COVID-19, debidamente avalado e implementado por el Comité Municipal de Emergencias (CME).
-3. Anexo III.- Zonas con un Índice de Riesgo Cantonal (IRC) mayor a 2 pero menor a 3 con Plan Cantonal de Prevención por COVID-19.
-4. Anexo IV.- Zonas con un Índice de Riesgo Cantonal mayor a 2 pero menor a 3, sin Plan Cantonal de Prevención por COVID-19.
+3. Anexo III.- Zonas con un Índice de Riesgo Cantonal (IRC) igual o mayor a 2 con Plan Cantonal de Prevención por COVID-19.
+(Así reformado el punto anterior mediante resolución N° MS-DM-2467-2021 del 16 de abril del 2021)
+4. Anexo IV.- Zonas con un Índice de Riesgo Cantonal (IRC) igual o mayor a 2 sin Plan Cantonal de Prevención por COVID-19.
+(Así reformado el punto anterior mediante resolución N° MS-DM-2467-2021 del 16 de abril del 2021)
 OCTAVO: Se instruye a las autoridades de salud, tanto del Ministerio de Salud como de los Cuerpos Policiales e Inspectores Municipales del país cuya condición les ha sido delegada, para que giren Orden Sanitaria a aquellos establecimientos que incumplan con la presente disposición, ordenando la clausura inmediata de dichos establecimientos y la tramitación del cobro de las multas resultantes según corresponda.
 NOVENO: En atención de la potestad de imperio otorgada por la Ley General de Salud al Ministerio de Salud, esta Cartera Ministerial se reserva la posibilidad que, en caso de aumento exponencial de los casos o incumplimientos documentados, se apliquen medidas preventivas específicas.
 COMUNÍQUESE
