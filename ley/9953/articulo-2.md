@@ -1,0 +1,7 @@
+ARTÍCULO 2- Se adiciona un artículo 24 bis a la Ley 7798, Creación del Consejo Nacional de Vialidad, de 30 de abril de 1998.
+Artículo 24 bis- El Consejo Nacional de Vialidad (Conavi) está autorizado a intervenir rutas cantonales únicamente en los siguientes casos:
+a) En aquellos proyectos que para garantizar su funcionabilidad sea indispensable la intervención de una ruta cantonal.
+b) Cuando, producto de la ejecución de un proyecto en una ruta nacional se vean afectadas las condiciones operativas de las rutas cantonales circundantes.' En estos casos, el Conavi deberá realizar los trabajos preparatorios en la ruta cantonal tendientes a mejorar su capacidad estructural y de funcionamiento; una vez finalizada la ejecución de las obras, se deberá evaluar el estado en que queda la ruta cantonal y se deberá definir si se requiere una intervención adicional para efectos de restituir la ruta cantonal a las condiciones iniciales previas a la ejecución del proyecto en la red vial nacional o mejorarlas.
+Las anteriores intervenciones en la red vial cantonal podrán ser autorizadas por el director ejecutivo, previa notificación y coordinación con la municipalidad respectiva y, para este tipo de intervenciones, el Conavi deberá elaborar un procedimiento que garantice la eficiencia y eficacia de esta intervención.
+Rige a partir de su publicación .
+Dado en la Presidencia de la República, San José, a los tres días del mes de marzo del año dos mil veintiuno.
