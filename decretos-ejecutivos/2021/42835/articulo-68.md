@@ -1,0 +1,4 @@
+Artículo 68-Requisitos para reposición del dispositivo de identificación por extravío.
+La persona usuaria debe:
+a) Cumplir con los requisitos del artículo 61 de este reglamento, excepto lo indicado en sus incisos e), h) y j).
+b) Para el caso de vehículos estatales, municipales o de universidades públicas, aportar solicitud suscrita por el Jerarca, Alcalde, Director Administrativo o Regional, Oficial Mayor, Jefe de Transportes o Servicios Generales, nombramiento que al efecto acreditará la unidad organizativa a la que pertenezca. La declaración jurada debe presentarla en papel institucional con el sello correspondiente, donde conste la matrícula, así como el nombre y número de identificación de la persona autorizada a realizar el trámite. Cuando le aplique alguna exoneración por ley, deberá aplicar lo definido en los artículos 17 ó 18 del presente reglamento, según sea el caso.

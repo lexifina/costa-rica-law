@@ -1,0 +1,1 @@
+Artículo 53-Del tiempo de la prestación del servicio en el portal digital. Salvo motivos de fuerza mayor o suspensiones programadas por la Institución, el portal digital mantendrá un servicio de 24 horas los 7 días de la semana.

@@ -1,0 +1,2 @@
+Artículo 13-Sobre la reposición de documentos emitidos erróneamente por la persona funcionaria de la DSE. La persona usuaria dispondrá de hasta cinco días hábiles, a partir de la fecha de emisión del documento para solicitar, escrita o verbalmente, a la persona funcionaria emitente, el cambio de los documentos expedidos por éste en forma errónea.
+Para tales efectos debe aportar el original del documento erróneo y su pago, cuando corresponda. El cambio se realizará por única vez.

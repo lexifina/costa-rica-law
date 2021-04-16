@@ -1,0 +1,1 @@
+Artículo 48-Sobre el registro en el portal digital. La persona usuaria deberá registrarse de forma gratuita quedando sujeta a la aceptación de las políticas, términos y condiciones establecidos por el RN.

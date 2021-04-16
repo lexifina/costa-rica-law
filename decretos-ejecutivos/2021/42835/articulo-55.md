@@ -1,0 +1,1 @@
+Artículo 55-De los servicios digitales. En atención a lo dispuesto en la Ley de Creación del Registro Nacional, Ley N° 5695, la Dirección de cada Registro puede autorizar la consulta y la Junta Administrativa la venta de los servicios que se deriven de las bases de datos y del Portal del RN.

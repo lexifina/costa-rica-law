@@ -1,0 +1,1 @@
+Artículo 49-Sobre las consultas gratuitas en el portal digital. La persona usuaria puede acceder la pestaña consultas gratuitas y, posteriormente ingresar la información a consultar. Estará facultada para permanecer en este servicio el tiempo requerido, siempre y cuando no se exceda en más de 10 consultas, cada dos minutos.

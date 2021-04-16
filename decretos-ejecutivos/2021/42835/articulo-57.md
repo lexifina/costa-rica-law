@@ -1,0 +1,10 @@
+Artículo 57-Sobre la suscripción de convenios. Para el acceso a las bases de datos del RN, sea gratuito u oneroso, la persona usuaria debe remitir previamente una solicitud, describiendo claramente la información que requiera al correo electrónico solicitudbd@rnp.go.cr o al que oportunamente se publicite en el RN, a efecto de que su requerimiento sea validado por las instancias técnicas.
+En el plazo de diez días, se analizará la solicitud y se brindará respuesta, siendo que la no atención de ese requerimiento en el tiempo dispuesto podría implicar la aplicación del Reglamento Autónomo de Servicio del Registro Nacional, en torno a la eventual responsabilidad disciplinaria por parte del servidor encargado del trámite.
+Ahora bien, en caso de que la respuesta del RN a la solicitud planteada sea afirmativa, el interesado deberá:
+a) Enviar documento en el cual se detallen las razones de interés para la obtención del servicio.
+b) Señalar nombre y calidades del interesado, de su representante legal (en caso de hacerse a través de uno) y del eventual receptor de la información.
+c) Indicar medio para recibir notificaciones, sea al efecto un correo electrónico y el número telefónico correspondiente.
+d) En los casos que corresponda, adjuntar certificación de personería jurídica, que acredite las facultades para realizar la debida suscripción del convenio, ello cuando no conste en las bases de datos del RN la información de cita.
+e) Aportar copia del documento de identificación original, vigente y legible del representante legal (de intervenir alguno) y del eventual administrador del convenio.
+f) Realizar el pago conforme a lo establecido en el convenio. Al efecto, se exceptúan las instituciones que por ley están exentas del mismo.
+Para el convenio de uso del portal digital, el superior jerárquico de la institución pública o privada debe remitir en físico el oficio formal ante la DSE, solicitando la firma del convenio para el uso de emisión de certificaciones e indicando un medio de contacto para notificaciones, hasta la suscripción del documento que contenga los términos y condiciones del servicio.

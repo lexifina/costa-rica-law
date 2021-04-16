@@ -1,0 +1,1 @@
+Artículo 79-Del Reglamento del Registro Público, Decreto Ejecutivo N° 26771-J y sus reformas. Se derogan los artículos 10, 11, 12, 13, 14, 20, 28, 29, 30, 31, 32, 33, 50, 51, 69, 70, 71, 72, 73, 74, 103, 110 y 111.

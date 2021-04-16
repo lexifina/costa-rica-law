@@ -1,0 +1,1 @@
+Artículo 62-Requisitos para la solicitud de placas metálicas y el dispositivo de identificación por primera vez o reinscripción. La persona usuaria debe cumplir con los requisitos del artículo 61 de este reglamento, excepto lo indicado en sus incisos b), e), f) y h).

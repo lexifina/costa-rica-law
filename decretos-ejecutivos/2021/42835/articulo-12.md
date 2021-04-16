@@ -1,0 +1,2 @@
+Artículo 12-Sobre la cantidad de trámites de atención. A las personas usuarias que soliciten el servicio, se les recibirá un máximo de cinco trámites por turno de atención, sea en las ventanillas comunes, preferenciales o destinada a la atención de profesionales.
+En caso de que la persona usuaria tuviere más documentos por tramitar, nuevamente deberá ocupar el último lugar de la fila y esperar turno para su atención.

@@ -1,0 +1,1 @@
+Artículo 20-Digitalización de documentos. Se hará la captura de imágenes por los medios tecnológicos que la Dirección de cada Registro considere pertinentes, con el fin de almacenarlos en las bases de datos del RN, a efecto de garantizar la seguridad jurídica y brindar la publicidad que estos requieren.

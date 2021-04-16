@@ -1,0 +1,1 @@
+Artículo 21-Anotación de documentos. Recibido el documento y capturada su imagen, se procederá a publicitar el acto jurídico en él consignado, por los medios tecnológicos que al efecto la Dirección de cada Registro considere eficientes y seguros.

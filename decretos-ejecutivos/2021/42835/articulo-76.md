@@ -1,0 +1,1 @@
+Artículo 76-Plazo de custodia de las placas metálicas y el dispositivo de identificación. La persona usuaria deberá retirar las placas metálicas y el DI, en un plazo máximo de hasta un mes contado a partir de su emisión; transcurrido este plazo, las mismas serán destruidas por la DSE.

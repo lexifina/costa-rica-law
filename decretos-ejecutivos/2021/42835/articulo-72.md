@@ -1,0 +1,1 @@
+Artículo 72-Requisitos para la solicitud de retiro de placas metálicas depositadas. Para realizar este trámite el vehículo automotor no debe tener anotación de desinscripción o de cambio de clase. La persona usuaria debe cumplir con los requisitos del artículo 61 de este reglamento, excepto lo indicado en sus incisos e), f) e i).

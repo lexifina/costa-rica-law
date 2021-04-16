@@ -1,0 +1,1 @@
+Artículo 25-Buzón para depósito de documentos defectuosos. La DSE dispondrá de un buzón, en el cual las personas usuarias podrán depositar únicamente documentos calificados defectuosos, durante el horario de la recepción de documentos en ventanilla. La DSE no se hará responsable por la pérdida o el extravío de los documentos ahí depositados.

@@ -1,0 +1,1 @@
+Artículo 58-Suscripción de convenios para la prestación de servicios. El RN podrá celebrar convenios con otras instituciones, a fin de que estas puedan prestar los servicios que el RN considere convenientes.

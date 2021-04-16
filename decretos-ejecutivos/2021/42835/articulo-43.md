@@ -1,0 +1,4 @@
+Artículo 43- Requisitos para el retiro de títulos de propiedad de bienes muebles tramitados por medios digitales. Entratándose de la inscripción por medios digitales que genere la emisión de un título de propiedad de bienes muebles, la persona usuaria podrá presentarse a hacer retiro del mismo ante cualquiera de las Sedes del RN, debiendo cumplir con lo siguiente:
+a) Presentar documento de identificación conforme a lo establecido en los artículos 9 y 10 de este reglamento.
+b) Aportar el código alfanumérico notificado digitalmente al notario público, quien es el único responsable por el uso que le dé al mismo.
+c) En caso de que el título de propiedad sea retirado por una persona distinta al notario público, esta debe cumplir con los incisos a) y b) anteriores y, al presentar dicho código alfanumérico, la persona funcionaria del RN presumirá que ha sido debidamente autorizado por el notario público para dicho trámite.

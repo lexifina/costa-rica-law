@@ -1,0 +1,8 @@
+Artículo 24-Requisitos para la presentación de documentos notariales a tramitar en los Registros de Bienes Muebles, Inmobiliario o Personas Jurídicas. Para todo documento notarial que se presente físicamente, será indispensable cumplir con lo dispuesto en el artículo 23 del presente reglamento. Asimismo, el notario público, sea autenticante u otorgante del testimonio, debe:
+a) Cumplir con las formalidades que establezcan las leyes y las medidas de seguridad que al efecto dispongan la DNN y el RN.
+b) Estar constituidos en escritura pública u otro documento auténtico expresamente autorizado por la ley para este efecto.
+c) Presentar el documento en papel de seguridad, salvo los actos que por su naturaleza estén exentos de cumplir con este requisito.
+d) Estampar sello blanco y de tinta junto a su firma.
+e) Para la presentación de adicionales, señalar en el documento el tomo y asiento del principal; e ingresarlo por primera vez ante la instancia definida por la DSE, a efecto que le sean asignadas las citas de presentación correspondientes. Inmediatamente debe reingresar el documento principal defectuoso, por la ventanilla respectiva, para que tanto éste como el adicional, sean calificados conjuntamente por la persona registradora. En caso de extravío del documento principal, debe presentar en su lugar, un ulterior testimonio.
+f) En caso de solicitud de retiro sin inscribir, presentarla en un testimonio de escritura pública, o bien mediante protocolización cuando el documento a retirar sea de esta naturaleza, indicando en ambos supuestos, el tomo y asiento del documento cuyo retiro es solicitado.
+g) En el caso de un ulterior testimonio, señalar en éste, las citas de presentación del documento original presentado.
