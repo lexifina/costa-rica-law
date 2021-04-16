@@ -1,0 +1,1 @@
+Artículo 15: El encargado de cada Dependencia, debe revisar semanalmente las fechas de vencimiento de los retiros de efectivo para giras, y gestionar con los responsables de cada uno de ellos su oportuna cancelación.

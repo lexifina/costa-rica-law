@@ -1,0 +1,1 @@
+Artículo 29: El funcionario que realice el gasto será responsable de velar por la correcta aplicación de la retención del Impuesto sobre la Renta en las compras que corresponda, Así mismo, de observar y corregir cualquier irregularidad en la aplicación de la citada retención.

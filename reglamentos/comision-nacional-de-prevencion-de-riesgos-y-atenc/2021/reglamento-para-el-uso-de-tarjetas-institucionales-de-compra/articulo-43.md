@@ -1,0 +1,1 @@
+Artículo 43: En caso de sumas utilizadas de más, la Dirección de Gestión Administrativa después de detectado el uso indebido y fundamentado, instruirá a la Unidad de Recursos Financieros a crear la Cuenta por Cobrar, para proceder con la gestión de cobro correspondiente.

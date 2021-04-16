@@ -1,0 +1,1 @@
+Artículo 31: Cuando se detecten transacciones en el estado de cuenta donde no se cuente con el documento de respaldo, se procederá a enviar correo informal al responsable de la transacción para justificar el faltante. Si al momento de terminar la conciliación no se ha recibido respuesta, se procederá a enviar oficio formal como respaldo del proceso realizado.

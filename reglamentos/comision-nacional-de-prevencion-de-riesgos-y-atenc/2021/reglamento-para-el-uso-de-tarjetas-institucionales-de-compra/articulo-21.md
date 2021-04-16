@@ -1,0 +1,1 @@
+Artículo 21: No se autoriza el uso de la Tarjeta de Compras Institucional para pago de hospedajes por un monto superior al autorizado por la Contraloría General de la República. En este sentido, no se reconocerá el excedente entre el monto total de la factura y la tarifa vigente para este concepto.

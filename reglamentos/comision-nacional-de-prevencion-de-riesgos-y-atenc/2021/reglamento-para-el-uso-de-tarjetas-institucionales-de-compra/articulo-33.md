@@ -1,0 +1,1 @@
+Artículo 33: El funcionario autorizado para aprobar el "Formulario de liquidación de gastos de operación" verificará que la documentación que respalda la liquidación concuerde con lo solicitado para la adquisición del bien o servicio.

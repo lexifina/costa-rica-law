@@ -1,0 +1,1 @@
+Artículo 16: Si el responsable del retiro de efectivo no presenta los comprobantes de los gastos realizados, en la fecha que corresponde para su cancelación, y no presenta una debida justificación, su jefatura debe reportarlo por escrito a la Jefatura Superior correspondiente.

@@ -1,0 +1,1 @@
+Artículo 28: El funcionario que realice la compra, completará el formulario "Comprobante de Retención del Impuesto sobre la Renta" en original y copia, luego cancelará el monto de la factura menos el 2% de retención del impuesto sobre renta y entregará el original del formulario al proveedor.

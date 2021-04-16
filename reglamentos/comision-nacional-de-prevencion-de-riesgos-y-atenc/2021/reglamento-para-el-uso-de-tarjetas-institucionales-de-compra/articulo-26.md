@@ -1,0 +1,1 @@
+Artículo 26: El trámite para la aplicación del Impuesto sobre la Renta, está respaldado con el formulario "Comprobante de Retención del 2% de Impuesto sobre la Renta" la cual es administrado y controlado por la dependencia responsable del gasto.

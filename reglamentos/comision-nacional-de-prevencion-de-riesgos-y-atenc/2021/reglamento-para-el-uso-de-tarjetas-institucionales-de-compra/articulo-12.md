@@ -1,0 +1,1 @@
+Artículo 12: Todo retiro de dinero en efectivo será aprobado por la jefatura correspondiente. No se tramitará ningún nuevo adelanto sin que se haya liquidado o realizado la compra correspondiente, y en ninguna circunstancia se autorizarán liquidaciones parciales de retiros de dinero en efectivo

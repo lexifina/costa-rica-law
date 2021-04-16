@@ -1,0 +1,1 @@
+Artículo 14: Deberá existir correspondencia entre el monto adelantado y el lugar donde se efectúa el trabajo, el periodo de la gira autorizada y el costo del bien o servicio por adquirir, de acuerdo con lo establecido en el "Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.
