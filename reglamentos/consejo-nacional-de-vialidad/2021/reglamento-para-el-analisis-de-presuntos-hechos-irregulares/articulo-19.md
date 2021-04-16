@@ -1,0 +1,1 @@
+Artículo 19.- De la ejecución de la Investigación: Para la ejecución de la investigación hechos irregulares, la Auditoría Interna debe realizar como mínimo lo establecido en el apartado 3.3 de los "Lineamientos generales para el análisis de presuntos Hechos Irregulares" R-DC-102-2019 definidos por la Contraloría General de la República.

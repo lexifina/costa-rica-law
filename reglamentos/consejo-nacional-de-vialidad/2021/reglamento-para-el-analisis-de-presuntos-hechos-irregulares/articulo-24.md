@@ -1,0 +1,2 @@
+Capítulo VII: Consideraciones Finales
+Artículo 24.- Comunicación a la persona que gestiona o solicita: Cuando la investigación se hubiera originado en atención a una gestión o por una solicitud sobre Hechos Presuntamente Irregulares, se debe informar el resultado final, de conformidad con lo indicado en los numerales 1.7, 1.12 y 3.6 de los "Lineamientos generales para el análisis de presuntos Hechos Irregulares" R-DC-102-2019 definidos por la Contraloría General de la República.

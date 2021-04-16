@@ -1,0 +1,1 @@
+Artículo 14.- De los motivos para el archivo de la gestión: Cuando la Auditoría Interna archive una gestión deberá fundamentarse en al menos una de las causales establecidas en el apartado 2.3 de los "Lineamientos generales para el análisis de presuntos Hechos Irregulares" R-DC-102-2019 definidos por la Contraloría General de la República.

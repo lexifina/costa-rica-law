@@ -1,0 +1,7 @@
+Artículo 5.- Principios de Investigación: En relación con el marco jurídico aplicable, para la atención de investigaciones de presuntos hechos irregulares, la Auditoría Interna debe cumplir con los siguientes principios:
+a. Principio de legalidad. En el desarrollo de las investigaciones, las actuaciones de la Auditoría Interna estarán sometidas al ordenamiento jurídico vigente.
+b. Principio de celeridad. La Auditoría Interna deberá ejercer su potestad de investigación dentro de un plazo razonable.
+c. Principio de independencia. La Auditoría Interna ejercerá sus funciones con total independencia funcional y de criterio respecto del jerarca y de los demás órganos de la administración activa; pudiendo establecer la estrategia, las vías de atención, las diligencias, las acciones, los mecanismos y los productos de auditoría que estime necesarios para la atención de las gestiones en su conocimiento.
+d. Principio de objetividad. En el desarrollo de las investigaciones, la Auditoría Interna actuará con imparcialidad y neutralidad, de modo que el análisis de los presuntos hechos irregulares, así como la determinación de los eventuales responsables, no se vean comprometidos por intereses particulares.
+Para el cumplimiento de este principio, el auditor debe valorar tanto los elementos que sustenten una eventual responsabilidad, como aquellos que puedan eximir al presunto responsable.
+e. Principio de oficiosidad. Implica que, una vez iniciada la investigación, corresponde exclusivamente a la Auditoría Interna promover las acciones necesarias hasta su conclusión.

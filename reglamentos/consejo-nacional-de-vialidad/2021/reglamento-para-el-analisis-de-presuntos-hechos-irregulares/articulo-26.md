@@ -1,0 +1,1 @@
+Artículo 26.- Participación de las Auditorías Internas en los procesos: Los funcionarios de la Auditoría Interna tienen el deber de colaborar en todas las etapas posteriores en que sea requerida, pero siempre circunscribiéndose al producto elaborado, a las acciones realizadas y a los criterios utilizados.
