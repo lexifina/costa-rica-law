@@ -1,0 +1,1 @@
+Artículo 15. Publicación en La Gaceta. El Acuerdo Ejecutivo debe publicarse en el Diario Oficial La Gaceta. Para tales efectos, VUI enviará de forma automática el Acuerdo Ejecutivo electrónico a la Imprenta Nacional para la publicación respectiva, previa cancelación de los costos de publicación por parte de la empresa beneficiaria del Régimen dentro de VUI.

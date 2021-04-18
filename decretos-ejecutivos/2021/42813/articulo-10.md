@@ -1,0 +1,1 @@
+Artículo 10.- Acuerdo de otorgamiento del Régimen de Zonas Francas. Una vez suscrito el Acuerdo Ejecutivo de Otorgamiento del Régimen por parte del Poder Ejecutivo, VUI emitirá una alerta de este acto a la Dirección de Regímenes Especiales de PROCOMER y a la Dirección.

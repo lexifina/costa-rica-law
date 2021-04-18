@@ -1,0 +1,2 @@
+Artículo 9. Duración. La duración del proceso de otorgamiento del Régimen de Zonas Francas descrito en el presente capítulo es de catorce días hábiles como máximo, término que comprende la tramitación ante PROCOMER, el Ministerio de Comercio Exterior, el Departamento de Leyes y Decretos, así como el Despacho del Presidente de la República.
+La duración del proceso de otorgamiento del AFPA es de tres días hábiles como máximo, en los términos previstos en el artículo 14 del presente reglamento.

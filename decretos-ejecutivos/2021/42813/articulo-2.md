@@ -1,0 +1,1 @@
+Artículo 2. Objeto. El presente reglamento tiene por objeto implementar un proceso mejorado y unificado para el otorgamiento del Régimen de Zonas Franca y de la autorización del Auxiliar de la Función Pública Aduanera en el sistema de Ventanilla Única de Inversión.

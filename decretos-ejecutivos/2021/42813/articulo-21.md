@@ -1,0 +1,3 @@
+CAPÍTULO III
+Disposiciones finales
+Artículo 21. A partir de la entrada en vigencia del presente reglamento, PROCOMER y la Dirección General de Aduanas tendrán un plazo de ocho meses para la construcción y diseño de una herramienta de gestión de riesgo que permita priorizar las inspecciones para el ingreso al Régimen, así como para aquellas solicitudes relacionadas con la habilitación y deshabilitación de áreas, considerando aspectos como: las condiciones de sus instalaciones, los medios y controles para el resguardo de las mercancías al amparo del régimen, la actividad, la ubicación dentro o fuera parque y complejidad de las operaciones aduaneras.

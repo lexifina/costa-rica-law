@@ -1,0 +1,1 @@
+Artículo 6. Tramitación electrónica. Todo interesado en acogerse al Régimen de Zonas Francas y obtener la condición de AFPA, debe presentar su solicitud por medio del Formulario único electrónico, el cual estará disponible en formato digital en VUI (http://www.vui.cr).-

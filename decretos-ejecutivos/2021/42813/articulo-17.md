@@ -1,0 +1,1 @@
+Artículo 17. Objeto de la inspección. El objeto del acto de inspección por parte de las autoridades aduaneras es verificar que las instalaciones cumplen con los requerimientos aplicables y previstos en la Guía de Inspección que se detalla en el anexo único del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 3. Entidades participantes. El proceso mejorado y unificado para el otorgamiento del Régimen de Zonas Franca y de la autorización del Auxiliar de la Función Pública Aduanera dentro del sistema de Ventanilla Única de Inversión, ha sido consensuado entre el Ministerio de Comercio Exterior, el Ministerio de la Presidencia y la Dirección General de Aduanas.

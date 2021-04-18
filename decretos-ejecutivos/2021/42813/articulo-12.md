@@ -1,0 +1,1 @@
+Artículo 12. Notificación del otorgamiento del Régimen de Zonas Francas. Una vez depositada a favor de PROCOMER la garantía indicada en el artículo anterior, PROCOMER, a través de VUI, notificará a la empresa beneficiaria el Acuerdo Ejecutivo de Otorgamiento del Régimen, así como el contrato de operaciones correspondiente.
