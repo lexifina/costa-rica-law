@@ -3,7 +3,8 @@ FONDO NACIONAL PARA EL DESARROLLO
 (Así reformado el epígrafe anterior por el artículo 1° de la ley N° 9654 del 14 de febrero del 2019)
 Artículo15- Creación del Fondo Nacional para el Desarrollo
 Se crea el Fondo Nacional para el Desarrollo (Fonade), con el propósito de cumplir con los objetivos de esta ley. Los recursos del Fonade se distribuirán bajo los lineamientos y las directrices que emite el Consejo Rector para los beneficiarios de esta ley.
-El Fonade será un patrimonio autónomo, administrado por la Secretaría Técnica del Consejo Rector del Sistema de Banca para el Desarrollo (SBD). Contará con la garantía solidaria del Estado para establecer o contratar líneas de crédito, además de su más completa cooperación y de todas sus dependencias e instituciones.
+El Fonade será un patrimonio autónomo, administrado por la Secretaría Técnica del Consejo Rector del Sistema de Banca para el Desarrollo (SDB). Contará con la garantía solidaria del Estado para establecer o contratar financiamientos, así como para emitir bonos de desarrollo, además de su más completa cooperación y de todas sus dependencias e instituciones.
+(Así reformado el párrafo anterior por el artículo 4° de la ley Apoyo a beneficiarios del Sistema Banca para el Desarrollo para la reactivación de unidades productivas en la coyuntura de la situación económica del país, N° 9966 del 26 de marzo del 2021)
 Los gastos administrativos y operativos del Fonade serán presupuestados y cubiertos con cargo a su patrimonio e independientes de los recursos asignados a la Secretaría Técnica del Consejo Rector. A nivel presupuestario, los superávits, si los hubiera, serán clasificados como específicos para los fines de la presente ley.
 Para efectos financieros y de endeudamiento del Fonade, además de las buenas prácticas utilizadas en la materia, se aplicarán las siguientes políticas:
 1) Política de endeudamiento:
@@ -13,18 +14,22 @@ Para lo anterior, el Consejo Rector aprobará previamente las siguientes condici
 1.2 Una evaluación de la gestión integral de riesgos asociados al Fondo y definición de las medidas apropiadas para su mitigación.
 1.3 Una justificación técnica sobre la demanda proyectada de recursos, tomando en consideración el porcentaje y ritmo de colocación del Fondo de crédito del Fonade.
 2) Política sobre instrumentos financieros:
-El Fonade podrá titularizar sus flujos de ingresos futuros, sus bienes o un conjunto prefijado de activos y sus correspondientes flujos de ingresos.
-Los valores provenientes de la titularización serán negociables conforme a los mecanismos y las reglas vigentes para el mercado de valores, los que podrán ser adquiridos por todo ente público o privado, nacional o extranjero, incluyendo las operadoras de pensiones.
+El Fonade podrá emitir bonos de desarrollo, de oferta pública o privada, los que podrán ser adquiridos por los intermediarios financieros de acuerdo con lo establecido en el artículo 36 de la Ley 8634, Sistema de Banca para el Desarrollo, de 23 de abril de 2008 y el artículo 59 de la Ley 1644, Ley Orgánica del Sistema Bancario Nacional, de 26 de setiembre de 1953, bancos multilaterales de desarrollo, agencias de desarrollo, inversionistas institucionales y profesionales; asimismo, el Fonade podrá titularizar sus flujos de ingresos futuros, sus bienes o un conjunto prefijado de activos y sus correspondientes flujos de ingresos.
+(Así reformado el párrafo anterior por el artículo 4° de la ley Apoyo a beneficiarios del Sistema Banca para el Desarrollo para la reactivación de unidades productivas en la coyuntura de la situación económica del país, N° 9966 del 26 de marzo del 2021)
+Los valores provenientes de los bonos de desarrollo y la titularización serán negociables conforme a los mecanismos y las reglas vigentes para el mercado de valores.
+(Así reformado el párrafo anterior por el artículo 4° de la ley Apoyo a beneficiarios del Sistema Banca para el Desarrollo para la reactivación de unidades productivas en la coyuntura de la situación económica del país, N° 9966 del 26 de marzo del 2021)
 El Fonade podrá mantener inversiones en valores u otro tipo de instrumentos financieros, de conformidad con las políticas que emita el Consejo Rector.
 En materia de contratación administrativa, al Fonade le serán aplicados únicamente los principios constitucionales que rigen la materia.
 En lo concerniente a capital humano y régimen de empleo, se le aplicará lo establecido en esta ley para la Secretaría Técnica del Sistema de Banca para el Desarrollo.
 El Fonade contará con una moderna plataforma tecnológica y digital, cuyos componentes incorporarán los elementos necesarios para el control, la transparencia y la gestión del Sistema de Banca para el Desarrollo y la Secretaría Técnica del SBD.
 La Secretaría Técnica del SBD promoverá la conectividad necesaria para la interconexión con los sistemas informáticos de las entidades integrantes del Sistema, de acuerdo con las necesidades y estrategias que en esta materia defina el Consejo Rector del SBD. Se faculta a las entidades públicas integrantes del Sistema a facilitar la conectividad mencionada.
 Con el propósito de facilitar el pago de operaciones de crédito y demás productos al amparo de los alcances de esta ley, el Fonade podrá tener acceso al Sistema Nacional de Pagos Electrónicos (Sinpe) del Banco Central de Costa Rica. Conjuntamente, la Secretaría Técnica del Sistema de Banca para el Desarrollo y el Banco Central de Costa Rica podrán establecer diversas estrategias de profundización de canales digitales, que contribuyan con los objetivos de inclusión financiera y profundización del mercado.
+El Fonade estará bajo la supervisión de la Superintendencia General de Valores (Sugeval), para todas aquellas emisiones públicas que emita.
+(Así adicionado el párrafo anterior por el artículo 4° de la ley Apoyo a beneficiarios del Sistema Banca para el Desarrollo para la reactivación de unidades productivas en la coyuntura de la situación económica del país, N° 9966 del 26 de marzo del 2021)
 Los recursos del Fonade se destinarán a los siguientes fines:
 a) Como capital para el financiamiento de operaciones crediticias, de factoraje financiero, arrendamiento financiero y operativo, microcréditos y proyectos del sector agropecuario, así como otras operaciones activas que los usos, las prácticas y las técnicas nacionales o internacionales admitan como propias de la actividad financiera y bancaria, según las disposiciones que para estos efectos emita el Consejo Rector.
 b) Como capital para el otorgamiento de avales que respalden el financiamiento que otorguen los participantes e integrantes del SBD.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 9695 del 7 de junio del 2019, “Reforma para incentivar los modelos de capital semilla y capital de riesgo para emprendimientos”)
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 9695 del 7 de junio del 2019, "Reforma para incentivar los modelos de capital semilla y capital de riesgo para emprendimientos")
 c) Para servicios no financieros y de desarrollo empresarial, tales como:
 1) Capacitación.
 2) Asistencia técnica.
