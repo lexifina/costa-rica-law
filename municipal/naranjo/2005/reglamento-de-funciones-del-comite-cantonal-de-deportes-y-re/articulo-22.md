@@ -1,8 +1,5 @@
-Artículo 22.—Son funciones del vocal 1:
-a) Tramitar todos los temas que para su análisis o ejecución se le encomienden.
+Artículo 22.-Son funciones del o la vocal I:
+a) Tramitar todos los femes que para su análisis o ejecución le encomiende la Junta Directiva.
 b) Estudiar y proponer las modificaciones que tiendan a mejorar la eficiencia de la organización administrativa del Comité Cantonal.
-c) Cumplir con las funciones del Vicepresidente, el Tesorero o el Secretario, en ausencia de alguno de ello, con sus mismos deberes y atribuciones.
-d) Vigilar el estricto cumplimiento de las leyes, los decretos ejecutivos y reglamentos que rigen al Comité Cantonal.
-e) Vigilar las actuaciones de todas las entidades y personas sometidas a la jurisdicción del Comité Cantonal.
-f) Tramitar las denuncias que se le presenten y remitirlas al seno de Junta Directiva del Comité Cantonal para su análisis.
-g) Realizar cualquier asunto que se le solicite.
+c) Cumplir con las funciones del Vicepresidente(a), el Tesorero(a) o el Secretario(a), en ausencia de alguno de ellos, con sus mismos deberes y atribuciones.
+d) Tramitar cualquier asunto que le solicite la Junta Directiva.

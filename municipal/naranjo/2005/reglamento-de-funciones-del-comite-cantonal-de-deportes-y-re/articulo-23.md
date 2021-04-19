@@ -1,3 +1,1 @@
-CAPÍTULO IX
-Sede, sesiones, votaciones y cobro
-Artículo 23.—El salón de sesiones de la Junta Directiva del Comité Cantonal, estará ubicado 25 metros sur del Banco de Costa Rica, Naranjo.
+Articulo 23.-La Junta Directiva del Comité Cantonal deberá reunirse presencial o virtual, ordinariamente, una vez por semana y extraordinaria mente conforme lo señala el artículo siguiente. En las sesiones ordinarias solo se conocerán los asuntos incluidos en agenda, y aquellos que se declaren de urgencia por votación de mayoría calificada de los presentes. Las sesiones del Comité Cantonal de Deportes y Recreación serán presididas por el Presidente(a), en su ausencia por el vicepresidente, y ante ausencia de los dos anteriores, por un presidente ad hoc, designado por consenso de entre los miembros presentes, siempre y cuando estén presentes al menos cuatro miembros que conformaran el quorum funcional, valido para sesionar.

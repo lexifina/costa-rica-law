@@ -1,1 +1,1 @@
-Artículo 82.—Las funciones de los subcomités serán similares a las de los comités comunales, pero ajustadas a su jurisdicción.
+Artículo 82.-El Presidente(a) de la Junta Directiva de un Comité Comunal o Subcomité podrá convocar a reunión extraordinaria por iniciativa propia o a petición de cuatro miembros. De conformidad con lo regulado en los artículos 24 y 25 del presente reglamento.

@@ -1,1 +1,1 @@
-Artículo 89.—Los miembros de las Juntas Directivas de comités comunales o subcomités serán sustituidos si no respetan lo establecido en el artículo 26 de este Reglamento.
+Artículo 89.-Los miembros del Comité Cantonal de Deportes y Recreación, podrán reunirse con las juntas directivas de los comités comunales o subcomités cuando lo deseen. Podrán visitarlos individualmente o en compañía de algún otro miembro, previamente autorizados por la Junta Directiva.

@@ -1,1 +1,1 @@
-Artículo 76.—La Junta Directiva de cada Comité Comunal comunicará por escrito a la Junta Directiva del Comité Cantonal la conformación de ella por puestos. Deberá incluir el nombre completo de cada miembro, su dirección exacta, número de cédula, número de teléfono y apartado, si tiene, así como el puesto que ocupará.
+Artículo 76.-Las funciones de los subcomités serán similares a las de los comités comunales, pero a juste das a su barrio o caserío.

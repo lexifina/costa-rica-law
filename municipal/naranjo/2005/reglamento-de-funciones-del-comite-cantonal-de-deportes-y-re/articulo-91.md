@@ -1,1 +1,5 @@
-Artículo 91.—Las Juntas Directivas de los comités comunales y subcomités llevarán al día los libros de Actas y Tesorería, los cuales serán facilitados por la Junta Directiva del Comité Cantonal. Los miembros de esta Junta, los miembros del Concejo o el Director Regional de Deportes podrán solicitar los libros para su revisión, previo acuerdo de su Junta Directiva.
+Artículo 91.-Todas las organizaciones y equipos deportivas y culturales podrán afiliarse a los comités comunales o subcomités, para ello deben reunir los siguientes requisitos de afiliación
+a) Tener una junta directiva nombrada y en funcionamiento
+b) Nombrar un representante ante la Junta Directiva del Comité comunal o subcomité o una comisión de trabajo.
+c) Presentar una lista de todos los integrantes de la organización o equipo.
+d) Someterse a la programación de la junta directiva del comité comunal o subcomité y la Comisión de Instalaciones Deportivas y recreativas en cuanto al uso de ellas.

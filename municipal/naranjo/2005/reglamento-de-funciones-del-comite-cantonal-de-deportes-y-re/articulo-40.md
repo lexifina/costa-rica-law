@@ -1,1 +1,1 @@
-Artículo 40.—De la subvención económica recibida por parte de la Municipalidad, la Junta Directiva del Comité podrá incluir en su presupuesto anual una cantidad para la compra de terrenos aptos para el deporte y la recreación, así como para la construcción de instalaciones deportivas o recreativas.
+Artículo 40.-La Junta Directiva del Comité entregara contra recibo el dinero de partidas gestionadas por los comités comunales, subcomités o agrupaciones, que hayan utilizado su personería jurídica para obtenerlas.

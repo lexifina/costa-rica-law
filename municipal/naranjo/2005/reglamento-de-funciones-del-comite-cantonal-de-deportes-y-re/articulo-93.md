@@ -1,1 +1,1 @@
-Artículo 93.—Dos veces al año, la Junta Directiva del Comité Cantonal convocará a los comités comunales y a sus subcomités para que envíen a dos representantes a una reunión conjunta. En esta oportunidad, todos los comités presentarán un breve informe escrito de las actividades realizadas, de las no efectuadas y por qué, con copia a la comisión de programación y evaluación.
+Artículo 93.-Las juntas directivas de los comités comunales o subcomités deberá informar por escrito a la Junta Directiva del Comité Cantonal los nombres de las organizaciones y equipos afiliados a ellas.

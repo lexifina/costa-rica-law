@@ -1,1 +1,1 @@
-Artículo 70.—Los comités comunales trabajarán con el propósito de alcanzar en su localidad los fines descritos en el artículo 5 de este reglamento, pero a escala distrital o de barrio.
+Artículo 70.-Los nombramientos para sustituir a un miembro o miembros que hayan renunciado, en los comités comunales, será por elección de ternas, por el Comité Cantonal, propuestos por los miembros restantes del Comité Comunal.

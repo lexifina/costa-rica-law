@@ -1,10 +1,1 @@
-CAPÍTULO XII
-Comisiones de apoyo y sus funciones
-Artículo 43.—Una vez instalada y debidamente juramentada, la Junta Directiva del Comité Cantonal en su primera sesión ordinaria deberá constituir siete comisiones de apoyo que a continuación se detallan:
-a) Comisión de Programación y Evaluación
-b) Comisión de Finanzas.
-c) Comisión de Capacitación.
-d) Comisión de divulgación e información.
-e) Comisión de Juegos Deportivos Comunales y Nacionales.
-f) Comisión de Instalaciones deportivas.
-g) Comisión de Recreación.
+Artículo 43.-La vigencia de las comisiones de apoyo será la misma de la Junta Directiva del Comité Cantonal. Sus miembros servirán en sus cargos sin recibir dietas, ni remuneración alguna, pudiendo ser reelectos.

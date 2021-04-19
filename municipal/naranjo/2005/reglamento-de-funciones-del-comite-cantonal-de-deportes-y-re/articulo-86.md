@@ -1,1 +1,1 @@
-Artículo 86.—El quórum en las juntas directivas de los comités comunales o subcomités se logrará con la presencia de los tres directivos.
+Artículo 86.-Todos los acuerdos tornados por la Junta Directiva de los comités comunales y subcomités deberán constar en el libro de actas respectivo.

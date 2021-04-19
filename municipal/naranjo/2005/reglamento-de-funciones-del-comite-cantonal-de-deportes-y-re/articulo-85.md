@@ -1,1 +1,1 @@
-Artículo 85.—La Junta Directiva de cada Comité Comunal o subcomités se reunirá por lo menos dos veces al mes, y sus sesiones serán públicas, salvo aquellas que por su naturaleza deban ser privadas.
+Articulo 85.-Las Juntas Directivas de los comités comunales y subcomités llevaran al día los libros de actas y tesorería, los cuales serán facilitados por el Comité Cantonal. El Comité Cantonal podrá solicitarle a los comités comunales y subcomités los libros para su revisión, previo acuerdo de su Junta Directiva.

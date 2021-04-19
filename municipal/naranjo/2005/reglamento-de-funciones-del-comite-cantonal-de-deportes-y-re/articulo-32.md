@@ -1,3 +1,1 @@
-CAPÍTULO X
-Recurso de revisiones, sanciones y sustituciones
-Artículo 32.—Los miembros de la Junta Directiva del Comité podrán presentar recurso de revisión de acuerdos. Se necesitará la misma mayoría requerida para dictar el acuerdo acerca del que se solicita revisión para acordar ésta.
+Artículo 32.-Cualquier persona con interés directo, podrá presentar recursos de revocatoria ante la Junta Directiva del Comité Cantonal y de apelación en subsidio, ante el Concejo Municipal, en contra de los acuerdos del Comité Cantonal de Deportes. La gestión recursiva deberá presentarse dentro de los cinco días hábiles posteriores a la firmeza del acuerdo y en memorial escrito y razonado. La Junta Directiva del Comité Cantonal deberá conocer el recurso en la sesión ordinaria siguiente a su conocimiento.

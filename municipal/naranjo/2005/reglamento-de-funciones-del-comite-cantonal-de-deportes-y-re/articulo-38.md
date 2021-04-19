@@ -1,3 +1,1 @@
-CAPÍTULO XI
-El presupuesto
-Artículo 38.—La Junta Directiva del Comité Cantonal deberá someter su presupuesto anual a la aprobación del Concejo Municipal en el mes de julio. El Auditor Municipal deberá refrendar el presupuesto.
+Artículo 38.-La Junta Directiva del Comité Cantonal de Deportes y Recreación, podrá incluir en su presupuesto el dinero de partidas que tenga en sus cuentas, siempre que se respete el destinatario y el destino de las mismas.

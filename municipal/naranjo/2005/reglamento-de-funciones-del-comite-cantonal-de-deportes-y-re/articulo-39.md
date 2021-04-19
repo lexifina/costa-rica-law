@@ -1,1 +1,1 @@
-Artículo 39.—La Junta Directiva del Comité podrá incluir en su presupuesto el dinero de partidas que tenga en su cuenta corriente, siempre que se respete el destinatario y el destino de las mismas.
+Artículo 39.-De la partida presupuestaria Directiva del Comité podrá incluir en su presupuesto anual una suma para la remodelación o mejoras, así como para la construcción de instalaciones deportivas o recreativas.

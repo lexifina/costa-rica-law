@@ -1,1 +1,1 @@
-Artículo 77.—Los miembros de la Junta Directiva de cada Comité Comunal serán juramentados por la Junta Directiva del Comité Cantonal, después de que en aquella se haya establecido el puesto de cada directivo.
+Artículo 77.-Los subcomités de deportes y recreación y sus juntas directivas estarán sujetos a las normas establecidas en el presente Reglamento y su actuar se limitara a su barrio o caserío.

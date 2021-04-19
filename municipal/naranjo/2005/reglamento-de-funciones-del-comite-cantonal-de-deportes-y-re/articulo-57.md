@@ -1,5 +1,1 @@
-Artículo 57.—Los objetivos por los cuales trabajará la Comisión de Juegos Deportivos Comunales y Nacionales son:
-a) Promover y diversificar la práctica de los deportes en el cantón.
-b) Promover la participación de los equipos y deportistas en las actividades programadas.
-c) Promover y coordinar el establecimiento permanente de escuelas deportivas.
-d) Promover y coordinar el establecimiento permanente de subcomisiones específicas para cada deporte practicado en el cantón.
+Artículo 57.-Las subcomisiones de disciplines deportivas serán juramentadas por la Junta Directiva del Comité Cantonal, pero estarán subordinadas directamente a la Comisión de Juegos Deportivos Comunales y Nacionales, con la cual deberán reunirse al menos cada dos meses con el objetivo de intercambiar impresiones y unificar criterios.

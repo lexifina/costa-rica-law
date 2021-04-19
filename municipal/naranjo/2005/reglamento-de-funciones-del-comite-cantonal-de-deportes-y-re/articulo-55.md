@@ -1,5 +1,3 @@
-Artículo 55.—Los siguientes son los objetivos por los que trabajará la Comisión de Recreación:
-a) Promocionar la recreación como medio para el buen uso del tiempo libre.
-b) Promover actividades recreativas que unan a la familia.
-c) Estimular la participación de niños, jóvenes, adultos, personas de tercera edad, en actividades recreativas.
-d) Promover las actividades recreativas laborales en el cantón.
+Artículo 55.-Las funciones de cada subcomisión especifica de discipline deportiva, son:
+a) Estimular y promover su discipline deportiva en el cantón
+b) Organizar anualmente las competencias cantonales de su disciplina deportiva.

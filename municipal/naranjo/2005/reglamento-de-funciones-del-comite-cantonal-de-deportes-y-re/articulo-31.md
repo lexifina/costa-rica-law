@@ -1,1 +1,1 @@
-Artículo 31.—La Junta Directiva del Comité recomendará a las visitas que la exposición de temas en las sesiones ordinarias públicas tenga una duración máxima de 15 minutos, con el fin de aligerar la atención a otras visitas.
+Artículo 31.-Los miembros de la Junta Directiva del Comité podrán presentar recurso de revisión de los acuerdos no firmes, de previo a la aprobación del acta respectiva. Para que prospere la revisión de un acuerdo, se requerirá la misma mayoría requerida para dictar el acuerdo, respecto del que se solicita revisión.

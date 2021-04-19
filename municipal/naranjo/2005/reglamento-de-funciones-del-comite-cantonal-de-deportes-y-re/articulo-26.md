@@ -1,1 +1,1 @@
-Artículo 26.—Las sesiones extraordinarias podrán celebrarse en otros lugares del cantón cuando la índole de los asuntos por tratar así lo requiera. El lugar debe especificarse en la convocatoria.
+Artículo 26.-Para que las sesiones, sean válidas deberán iniciarse dentro de los quince minutos siguientes de la hora señalada. En caso de falta de quorum se hará constar la asistencia de los presentes, para los efectos de los artículos 35 del presente Reglamento. El quorum necesario para sesionar será de cuatro miembros presentes.

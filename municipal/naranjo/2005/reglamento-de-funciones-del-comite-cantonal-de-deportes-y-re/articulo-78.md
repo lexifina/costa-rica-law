@@ -1,1 +1,1 @@
-Artículo 78.—Una vez juramentada la Junta Directiva del Comité Comunal, la Junta Directiva del Comité Cantonal comunicará su conformación e inicio de labores al Concejo y a la Dirección Regional de Deportes.
+Artículo 78.-Los subcomités dependerán de los Comités Comunales. La Junta Directiva del Comité Cantonal supervisará directamente a aquellos subcomités ubicados en comunidades en los que no haya comité comunal.

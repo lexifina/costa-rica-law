@@ -1,1 +1,6 @@
-Artículo 90.—El miembro de la Junta Directiva de un comité comunal o subcomité podrá justificar sus ausencias o solicitar permisos con base en lo estipulado en el artículo 28 de este Reglamento.
+Artículo 90.-Las fuentes de financiamiento de los comités comunales y subcomités, podrán ser las siguientes:
+a) Aporte económico brindado por la Junta Directiva del Comité Cantonal.
+b) Dinero de partidas específicas.
+c) Dineros recaudados por la administración de instalaciones deportivas y recreativas.
+d) Dineros recaudados por medio de actividades en la comunidad (turnos, bailes, entre otros).
+e) Donaciones.

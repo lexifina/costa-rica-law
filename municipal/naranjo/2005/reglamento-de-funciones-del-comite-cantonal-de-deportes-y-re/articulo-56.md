@@ -1,7 +1,1 @@
-Artículo 56.—Las funciones de la Comisión de Recreación son:
-a) Formar y supervisar la subcomisión organizadora de los Juegos Recreativos Laborales del cantón.
-b) Programar y organizar, junto con la Comisión de Juegos Deportivos Comunales y Nacionales, las actividades recreativas de estos juegos.
-c) Divulgar y promocionar la recreación como alternativa de aprovechamiento productivo del tiempo libre en el cantón.
-d) Elaborar proyectos de construcción de parques recreativos en la comunidad.
-e) Coordinar el uso de instalaciones recreativas con el Instituto Costarricense del Deporte y la Recreación y la Municipalidad.
-f) Presentar un informe anual en el mes de octubre a la Junta Directiva del Comité Cantonal.
+Artículo 56.-La Comisión de Juegos Deportivos Comunales y Nacionales identificará al menos tres personas idóneas por deporte, con el objetivo de que integren a las subcomisiones específicas, de cada disciplina deportiva.

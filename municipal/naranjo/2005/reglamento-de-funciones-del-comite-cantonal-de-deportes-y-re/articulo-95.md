@@ -1,1 +1,10 @@
-Artículo 95.—El Director Regional de Deportes o los miembros del Concejo podrán reunirse con las juntas directivas de los comités comunales o subcomités cuando lo deseen. Podrán visitarlas en compañía de algún miembro de la Junta Directiva del Comité o solos.
+Artículo 95.-Para las reuniones de las Juntas Directivas de las comisiones, comités comunales y subcomités de todo el cantón, se propone la siguiente guía de agenda:
+1.-Apertura de la sesion.
+2.-Lectura del orden del dia.
+3.-Lectura, aprobación y firma del acta anterior.
+4.-Lectura de correspondencia recibida yenviada.
+5.-Atencion a visitas.
+6.-Informe de Tesorería.
+7.-Informe de las comisiones, subcomisiones y comisionados.
+8.-Asuntos varios.
+9.-Cierre.

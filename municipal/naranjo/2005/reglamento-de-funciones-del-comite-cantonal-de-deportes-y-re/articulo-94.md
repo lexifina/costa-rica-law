@@ -1,1 +1,3 @@
-Artículo 94.—La Junta Directiva del Comité Cantonal delegará a los comités comunales y subcomités la construcción, la administración y el mantenimiento de los campos existentes en su jurisdicción. Deberán darles participación en el uso de las instalaciones a todos los grupos organizados de deportistas, previa solicitud por escrito. La programación será respetada y se hará cada semana.
+Artículo 94.-Las organizaciones deportivas afiliadas a los comités comunales o subcomités tendrán derecho a:
+a) Solicitarle al Comité Cantonal de Deportes, que les colaboren con la compra de materiales e implementos deportivos.
+b) Participar en los proyectos y programas del Comité Cantonal.

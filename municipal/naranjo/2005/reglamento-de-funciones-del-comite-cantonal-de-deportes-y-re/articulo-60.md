@@ -1,3 +1,1 @@
-Artículo 60.—Las funciones de cada subcomisión específica son:
-a) Estimular y promover su disciplina deportiva en el cantón.
-b) Organizar anualmente las competencias cantonales de su disciplina.
+Artículo 60.-Todas las subcomisiones elaborarán un plan anual de trabajo durante sus primeras tres sesiones. Posteriormente lo entregaran a la Comisión de Juegos Deportivos Comunales y Nacionales, para que esta lo presente ante las Comisiones de Programación y Evaluación y de Finanzas.

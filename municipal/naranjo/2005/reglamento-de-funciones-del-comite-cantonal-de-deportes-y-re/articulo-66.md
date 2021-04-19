@@ -1,1 +1,1 @@
-Artículo 66.—Si en el cantón funcionara la filial de alguna asociación o federación deportiva, ella podrá fungir como subcomisión específica de su deporte.
+Artículo 66.-El número de integrantes y la conformación de los comités comunales de deportes y recreación será igual a la del Comité Cantonal. Su periodo será de dos a nos, iniciaran funciones al menos un mes después de iniciado el de la nueva Junta Directiva del Comité Cantonal. Podrán ser reelectos. No recibirán dietas, ni remuneración alguna.

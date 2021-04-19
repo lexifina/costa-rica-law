@@ -1,9 +1,6 @@
-Artículo 10.—Cada organización comunal podrá presentar tantos candidatos como lo tengan a bien, los cuales deberán registrarse ante el Tribunal Electoral a más tardar dos días antes de la asamblea de cada dos años, quien no cumpla con tal disposición no podrá participar como candidato para el Comité Cantonal de Deportes.
-Para ser postulante a formar parte del Comité Cantonal de Deportes, debe poseer los siguientes requisitos:
-a) Residentes del cantón de Naranjo.
-b) Estar inscrito en el padrón electoral del Cantón de Naranjo en los últimos seis años.
-c) Pertenecer a alguna organización comunal de desarrollo, deportiva o recreativa, social o institucional en los últimos seis meses.
-d) No estar inhabilitado por sentencia judicial firme para ejercer cargos públicos de esta índole.
-e) No ser pariente de los Miembros del Concejo Municipal, Alcalde, Alcaldes Suplentes, Tesorero Auditor, Contador hasta tercer grado de consanguinidad o afinidad.
-f) Presentar vitae de cada uno de los postulados.
-Una vez finalizado el periodo concedido para recibir postulaciones se levantará una lista que se hará visible el día de la Asamblea.
+Artículo 10.-La población de entre los IS y los 18 años, elegirá a sus dos representantes en asamblea convocada por el Comité de la persona joven, las organizaciones juveniles, inscritas para tal fin ante dicho Comité y los atletas activos del programa de juegos deportivos nacionales del cantón, podrán postular tantos candidates, como a bien lo tengan. Los postulantes a miembros del Comité Cantonal de Deportes y Recreación de Naranjo, en representación de la población de entre los IS y 18 años, deberán cumplir los siguientes requisitos:
+a) Ser residentes en el cantón de Naranjo.
+b) Pertenecer a alguna organización juvenil o del programa de juegos deportivos nacionales.
+c) No ser pariente de los miembros del Concejo Municipal, Alcalde, Vicealcaldes, Síndicos, Tesorero, Auditor, Contador Municipal, hasta tercer grado de consanguinidad o por afinidad.
+d) Presentar Curriculum vitae de cada uno de los postulantes.
+e) No haber sido removido de cargo en el Comité Cantonal de Deportes por el Concejo Municipal por alguna de las causales: a), b), c), d) h), i), j), k), señaladas en el artículo 33, del presente Reglamento.

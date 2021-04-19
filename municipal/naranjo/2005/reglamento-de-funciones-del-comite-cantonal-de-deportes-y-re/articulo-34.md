@@ -1,6 +1,1 @@
-Artículo 34.—Son causa de sustitución de los miembros de la Junta Directiva del Comité Cantonal:
-a) Ausencia injustificada y continua a tres sesiones de la Junta Directiva.
-b) Ausencia justificada y continua a tres sesiones de la Junta Directiva.
-c) Ausencia injustificada y alterna (no continua) a tres sesiones de la Junta Directiva en un período de dos meses.
-d) Violación evidente de las leyes, los decretos ejecutivos y los reglamentos que rija al Comité Cantonal.
-e) Inhabilitación judicial.
+Artículo 34.-Los miembros del Comité Cantonal, comités comunales, subcomités, comisiones y subcomisiones no podrán a título personal o como representantes legales, celebrar contratos, ni convenios con los comités cantonales, ni con asociaciones adscritas al Comité Cantonal. Tampoco podrán intervenir en la discusión y votación de los asuntos en que tengan interés directo a nivel personal, su cónyuge o familiares hasta tercer grado de consanguinidad o afinidad. Adicionalmente, no deberán ser irrespetuosos con sus compañeros y compañeras y público en general.

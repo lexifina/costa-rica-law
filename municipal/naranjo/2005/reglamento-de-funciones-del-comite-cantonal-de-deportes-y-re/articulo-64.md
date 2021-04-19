@@ -1,1 +1,1 @@
-Artículo 64.—Las subcomisiones específicas por deporte deberán reunirse al menos dos veces al mes. Llevarán libros de Actas y Tesorería, los cuales les serán dados por la Junta Directiva del Comité Cantonal. Nombrarán un coordinador, un secretario, un tesorero.
+Artículo 64.-La Junta Directiva del Comité Cantonal podrá nombrar comités comunales de deportes y recreación en coda una de las comunidades.

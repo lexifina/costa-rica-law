@@ -1,1 +1,1 @@
-Artículo 92.—Todos los acuerdos tomados por la Junta Directiva de los comités comunales y subcomités deberán constar en el libro de Actas y seguirán las normas establecidas por los artículos 21 y 22 de este Reglamento.
+Artículo 92.-La Junta Directiva del Comité Comunal o subcomité, podrán solicitar una cuota simbólica anual de afiliación a cada organización o equipo. Esta será establecida por la Junta Directiva del Comité Cantonal.

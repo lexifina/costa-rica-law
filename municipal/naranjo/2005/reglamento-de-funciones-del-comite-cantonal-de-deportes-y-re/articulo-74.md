@@ -1,3 +1,15 @@
-Artículo 74.—Las normas para los procedimientos de nombramiento mencionados en el artículo anterior son:
-a) Nombramiento en asamblea general. La Junta Directiva del Comité Cantonal será responsable de convocar a reunión a la comunidad interesada, por medio de cualquier forma eficaz de divulgación, indicando la hora, el lugar y el propósito de la asamblea. La Junta Directiva del Comité Cantonal nombrará un fiscal, quien presidirá la reunión y levantará una lista de las personas asistentes con su respectivo nombre y número de cédula. Para que la asamblea sea válida, en ella deberá haber un número mínimo de veinte personas jurídicas (mayores de edad). El fiscal indicará al inicio de la asamblea que durante ella se elegirá a cinco miembros para la Junta Directiva y ellos posteriormente y en sesión privada establecerán la ubicación de puestos.
-b) Nombramiento por elección de temas. La Junta Directiva del Comité Cantonal podrá escoger a los miembros de la Junta Directiva de un Comité Comunal de las personas presentadas en ternas por diferentes instituciones o agrupaciones locales que no persigan fines de lucro o beneficios para sí misma. Estas pueden ser las Asociaciones de Desarrollo Comunal, Juntas de Educación Escolar. Patronatos Escolares grupos juveniles, entre otros. Antes deberá agotar el procedimiento de nombramiento por asamblea general.
+Artículo 74.-Las funciones de los Comités Comunales son:
+a) Acatar y cumplir con todas las funciones, políticos, directrices y lineamientos que le delegue la Junta Directiva del Comité Cantonal en su comunidad.
+b) Fomentar la práctica del deporte en la comunidad, organizando actividades para ello.
+c) Incrementar programas de recreación como alternativa de un mejor aprovechamiento del tiempo libre.
+d) Regular toda actividad deportiva y recreativa de su comunidad.
+e) Participar en las actividades programadas por las comisiones de apoyo de la Junta Directiva del Comité Cantonal.
+f) Velar por la administración y el mantenimiento de las instalaciones deportivas y recreativas existentes en su comunidad.
+g) Gestionar y coordinar la construcción de nuevas instalaciones con la respectiva comisión de apoyo, con base en los diagnósticos realizados de las necesidades comunales.
+h) Delegar actividades y funciones a comisiones de trabajo.
+i) Nombrar, juramentar y supervisor subcomités de deportes y recreación.
+j) Presentar un informe anual de labores en el mes de diciembre de cada año a la Junta Directiva del Comité Cantonal.
+k) Delegar funciones a los subcomités.
+l) Programar y coordinar actividades deportivas y recreativas con las respectivas comisiones de apoyo de la Junta Directiva del Comité Cantonal y entregar un cronograma de ellas en el mes de diciembre de cada ano.
+m) Gestionar la consecución de recursos económicos y materiales.
+n) Evaluar periódicamente la labor realizada y determinar si se cumplen o no las funciones encomendadas.

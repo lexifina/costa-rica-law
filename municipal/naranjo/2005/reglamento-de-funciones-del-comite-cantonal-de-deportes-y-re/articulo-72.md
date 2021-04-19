@@ -1,1 +1,1 @@
-Artículo 72.—Los comités comunales de deportes y recreación son la máxima representación de la Junta Directiva del Comité Cantonal en las actividades de promoción, administración de instalaciones y los responsables de los desarrollos deportivos y recreativos de su comunidad.
+Artículo 72.-Los miembros de la Junta Directiva de cada Comité Comunal serán juramentados por la Junta Directiva del Comité Cantonal de Deportes y Recreación.

@@ -1,1 +1,7 @@
-Articulo 46.—Cada comisión de apoyo deberá sesionar por lo menos dos veces al mes. Nombrar un coordinador, un secretario, quien llevará el libro de Actas proporcionado por la Junta Directiva del Comité Cantonal y un tesorero.
+Artículo 46.-Todas las comisiones de apoyo tendrán las siguientes funciones en común:
+a) Planear los programas a su cargo.
+b) Controlar el cumplimiento de los objetivos y metas de sus programas.
+c) Evaluar periódicamente los programas a su cargo y rendir por escrito informes a la Junta Directiva del Comité Cantonal.
+d) Gestionar la consecución de fuentes de ingreso para la realización de los programas.
+e) Estimular la colaboración de diversas personas de la localidad en los programas.
+f) Coordinar con Instituciones, personas o grupos respetivos, cualquier ayuda.

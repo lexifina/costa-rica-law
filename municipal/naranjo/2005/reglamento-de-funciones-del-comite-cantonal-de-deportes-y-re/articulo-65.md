@@ -1,1 +1,1 @@
-Artículo 65.—Cada subcomisión elaborará un plan anual de actividades durante sus primeras tres sesiones. Lo entregará por escrito lo más detallado posible a la Comisión de Juegos Deportivos Comunales y Nacionales, para que ésta lo presente a las Comisiones de Programación y Evaluación y a la de Finanzas.
+Artículo 65.-Los comités comunales trabajaran con el propósito de alcanzar en su comunidad, en lo aplicable, los fines descritos en el artículo 16 del presente reglamento, pero a escala comunal.

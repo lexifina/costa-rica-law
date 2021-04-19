@@ -1,1 +1,1 @@
-Artículo 75.—Los nombramientos para sustituir a un miembro que haya renunciado o desertado serán por elección de ternas, por el Comité Cantonal, propuesto por la Junta Directiva del Comité Comunal.
+Articulo 75.-Cada comité comunal podrá formar subcomités de deportes y recreación en los barrios y caseríos que lo consideren importante. Para dicho nombramiento, el Comité Comunal observara los mismos procedimientos utilizados en su designación, conforme los artículos 68, 69 y 70, del presente Reglamento.

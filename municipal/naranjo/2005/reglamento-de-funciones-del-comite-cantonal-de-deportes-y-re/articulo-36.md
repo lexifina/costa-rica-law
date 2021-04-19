@@ -1,4 +1,1 @@
-Artículo 36.—El miembro de la Junta Directiva del Comité que falte a sesiones, debe justificar su ausencia o pedir permiso de la siguiente forma:
-a) Oralmente a otro directivo si la ausencia es a una sesión.
-b) Por escrito si la ausencia es a dos sesiones continuas.
-c) Por escrito si el permiso es por más de tres sesiones en un periodo de dos meses.
+Artículo 36.-Cuando un miembro del Comité renuncie a su cargo, deberá comunicarlo por escrito a la Junta Directiva del Comité y al Concejo Municipal, con quince días de antelación a la fecha efectiva de la renuncia. Además, deberá entregar un informe escrito, bien detallado de sus últimas gestiones en el comité y en la comisión de apoyo que integraba. El Concejo Municipal gestionará el nombramiento del sustituto por el resto del periodo que le correspondía cumplir.

@@ -1,1 +1,1 @@
-Artículo 25.—Las sesiones extraordinarias de la Junta Directiva del Comité serán convocadas por iniciativa del Presidente o a solicitud de por lo menos, dos miembros. La comunicación será por escrito a los demás directivos, con veinticuatro horas de antelación, y deberá indicar el día, la hora de la sesión y los asuntos por tratar.
+Artículo 25.-Las sesiones extraordinarias podrán celebrarse en otros lugares del cantón cuando la índole de los asuntos por tratar así lo requiera. La agenda, el lugar, fecha y hora deberán especificarse en la convocatoria.

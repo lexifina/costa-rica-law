@@ -1,10 +1,11 @@
-Artículo 52.—Las funciones de la Comisión de Capacitación son:
-a) Realizar un diagnóstico de las necesidades prioritarias de capacitación técnico administrativa en el cantón.
-b) Programar junto con la Dirección Regional de Educación Física y Deporte el plan anual de clínicas y seminarios de capacitación en el cantón.
-c) Asumir la organización y coordinación general de los cursos en el cantón.
-d) Incorporar a las personas capacitadas en los programas del Comité Cantonal.
-e) Supervisar y dar seguimiento a las personas capacitadas.
-f) Coordinar con la biblioteca pública de la comunidad la instalación de una sección deportiva para consultas de los habitantes del Cantón.
-g) Reproducir folletos, reglamentos y todo tipo de material que sirvan para mantener al día la capacitación deportiva y recreativa de las personas interesadas.
-h) Presentar un informe anual de su labor a la Junta Directiva del Comité cantonal en el mes de octubre.
-i) Solicitar y tramitar los cursos que se desean ante la Institución, grupo o persona correspondiente.
+Artículo 52.-Las funciones de la Comisión de Recreación son:
+a) Promocionar la recreación como medio para el buen uso del tiempo libre
+b) Promover actividades recreativas que una a la familia.
+c) Estimular la participación de niños, jóvenes, adultos, personas de tercera edad, en actividades recreativas.
+d) Promover las actividades recreativas laborales en el cantón.
+e) Formar y supervisor la subcomisión organizadora de los Juegos Recreativas Laborales del cantón.
+f) Programar y organizar, junto con la Comisión de Juegos Deportivos Comunales y Nacionales, las actividades recreativas de estos juegos.
+g) Divulgar y promocionar la recreación como alternativa de aprovechamiento productivo del tiempo libre en el cantón,
+h) Elaborar proyectos de construcción de parques recreativas en la comunidad.
+i) En conjunto con el Comité Cantonal de Deportes y Recreación, coordinar el uso de instalaciones recreativas con el Comité Cantonal de Deportes y otras instituciones con fines similares.
+j) Presentar un informe anual en el mes de diciembre de cada ano a la Junta Directiva del Comité Cantonal.

@@ -1,7 +1,8 @@
-Artículo 49.—Las funciones de la Comisión de Programación y Evaluación son:
-a) Preparar en el mes de noviembre, el programa de trabajo del Comité Cantonal para el siguiente año y enviarlo al Concejo y al Director Regional de Deportes.
-b) Programar el ciclo de competencias y torneos de acuerdo con las posibilidades de la comunidad, tomando en cuenta para ello el desarrollo y la calendarización de los programas, eliminatorias y torneos oficiales nacionales, así como las sugerencias y peticiones de las demás comisiones y Juntas Directivas de los Comités Comunales y Subcomités.
-c) Evaluar trimestralmente el cumplimiento del plan anual de trabajo, el alcance de los objetivos y señalar las causas por las cuales no se obtuvieron los logros deseados.
-d) Evaluar el cumplimiento de los planes de trabajo de las diferentes comisiones de apoyo, los comités comunales y subcomités.
-e) Presentar un informe anual de su labor a la Junta Directiva del Comité Cantonal, en el mes de octubre.
-f) Presentar al Concejo en el mes de noviembre, un informe anual del trabajo del Comité Cantonal, y mandar copia de él a la Dirección Regional de Deportes.
+Artículo 49.-Las funciones de la Comisión de Finanzas son:
+a) En conjunto con el Comité Cantonal de Deportes y Recreación, elaborar el presupuesto anual del Comité Cantonal, el cual será aprobado por la Junta Directiva del Comité, para ser presentado ante la Contraloría General de la Republica.
+b) En conjunto con el Comité Cantonal de Deportes y Recreación, propiciar y organizar otras fuentes de financiamiento para solventar las necesidades económicas del Comité.
+c) En conjunto con el Comité Cantonal de Deportes y Recreación revisar, modificar y a probar el informe de ingresos y egresos que cada comisión presente con la antelación debida.
+d) Colaborar para que el detalle del presupuesto sea fielmente cumplido.
+e) Verificar que el libro de tesorería de la Junta Directiva del Comité Cantonal y los de los comités comunales y subcomités sean llenados en la forma correcta y estén totalmente al día.
+f) Presentar un informe anual de su labor a la Junta Directiva del Comité, en el mes de diciembre de cada ano.
+A la Comisión de Finanzas deberá integrarse el Tesorero (a) de la Junta Directiva del Comité Cantonal.

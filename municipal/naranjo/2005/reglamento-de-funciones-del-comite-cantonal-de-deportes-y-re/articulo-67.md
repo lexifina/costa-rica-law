@@ -1,1 +1,1 @@
-Artículo 67.—Al finalizar la etapa nacional de los Juegos Deportivos Nacionales, cada subcomisión especí.ca deberá presentar a la Comisión de Juegos Deportivos Comunales y Nacionales, un informe escrito de las actividades realizadas, los logros alcanzados, los problemas surgidos y su solución.
+Artículo 67.-Los comités comunales de deportes y recreación son la máxima representación de la Junta Directiva del Comité Cantonal en las actividades de promoción, administración de instalaciones y los responsables de los desarrollos deportivos y recreativos de su comunidad.

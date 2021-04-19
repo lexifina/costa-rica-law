@@ -1,1 +1,1 @@
-Artículo 80.—Cada comité comunal podrá formar subcomités de deportes y recreación en los barrios y caseríos que lo ameriten. Para dicho nombramiento, el Comité Comunal seguirá los mismos procedimientos usados con ellos en los artículos 64, 65 y 66 de este Reglamento.
+Artículo 80.-La Junta Directiva de cada Comité Comunal o subcomités se reunirá ordinariamente, al menos dos veces al mes, y sus sesiones serán públicas.

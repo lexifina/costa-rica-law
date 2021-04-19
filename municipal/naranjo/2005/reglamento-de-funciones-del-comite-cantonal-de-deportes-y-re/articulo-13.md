@@ -1,1 +1,8 @@
-Artículo 13.—Resultarán electos los dos candidatos que obtengan la mayoría de los votos del Concejo Municipal.
+Artículo 13.-Una vez recibida la nómina de representantes de las otras organizaciones que integraran el Comité Cantonal de Deportes y Recreación del cantón de Naranjo, el Concejo Municipal de la Municipalidad de Naranjo, elegirá y nombrara a los dos representantes de la municipalidad, ante el Comité Cantonal durante la primera quincena de! mes de marzo cada dos años. Los postulantes a miembros del Comité Cantonal de Deportes, en representación de la municipalidad por nombramiento del Concejo Municipal, deberán cumplir con los siguientes requisitos:
+a) Residentes del cantón de Naranjo.
+b) Estar inscrito en el padrón electoral del Cantón de Naranjo en los últimos 6 meses.
+c) No estar inhabilitado por sentencia judicial firme para ejercer cargos públicos de esta indole.
+d) No ser pariente de los miembros del Concejo Municipal, Alcalde, Vicealcaldes, Síndicos, Tesorero, Auditor, Contador Municipal, hasta tercer grado de consanguinidad o afinidad.
+e) Presentar Curriculum vitae.
+f) No haber sido removido de cargo en el Comité Cantonal de Deportes por el Concejo Municipal por alguna de las causales: a), b), c), d) h), i), j), k), señaladas en el artículo 33, del presente Reglamento.
+La elección de los dos representantes de la Municipalidad se definirá en una sesión municipal, en la cual los regidores conocerán los nombres y curriculums de los candidatos y los elegirán por votación. Resultaran electos los dos candidatos que en la votación, obtengan la mayor cantidad de votos. En caso de empate, en uno de los dos puestos, este se resolverá mediante una nueva votación, únicamente con los nombres de los candidatos empatados. En caso de persistir el empate, decidirá la suerte por el mecanismo que determine el Concejo Municipal en ese momento.

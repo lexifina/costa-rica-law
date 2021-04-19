@@ -1,1 +1,6 @@
-Artículo 47.—El coordinador de la comisión será el representante ante la Junta Directiva del Comité Cantonal y será el vocero de su comisión en las sesiones de aquella.
+Artículo 47.-Las funciones de la Comisión de Programación y Evaluación son
+a) Preparar en el mes de julio de cada ano, en conjunto con el Comité Cantonal de Deportes y Recreación, el programa anual de trabajo del Comité Cantonal para el siguiente año y remitirlo al Concejo Municipal.
+b) Programar en conjunto con el Comité Cantonal de Deportes y Recreación, el ciclo de competencias y torneos de acuerdo con las posibilidades de la comunidad, tomando en cuenta para ello el desarrollo y la calendarización de los programas, eliminatorias y torneos oficiales, cantonales, regionales y nacionales, así como las sugerencias y peticiones de las demás comisiones y Juntas Directivas de los Comités Comunales y Subcomités.
+c) Evaluar trimestralmente, en conjunto con el Comité Cantonal de Deportes y Recreación el cumplimiento del plan anual de trabajo, el alcance de los objetivos y señalar las causas por las cuales no se obtuvieron los logros programados.
+d) Evaluar en conjunto con el Comité Cantonal de Deportes y Recreación, el cumplimiento de los planes de trabajo de las diferentes comisiones de apoyo, los comités comunales y subcomités.
+e) Presentar un informe anual de su labor a la Junta Directiva del Comité Cantonal, en el mes de noviembre de cada ano.
