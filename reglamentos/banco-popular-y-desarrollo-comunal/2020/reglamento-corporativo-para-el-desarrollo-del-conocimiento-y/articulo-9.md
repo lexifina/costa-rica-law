@@ -1,1 +1,2 @@
-Artículo 9°—De la vigencia. El presente reglamento regirá un mes después de publicado en el Diario Oficial La Gaceta.
+Artículo 9°-Tiempo límite en la aprobación de actividad de capacitación. El tiempo máximo para la aprobación de las actividades de desarrollo de competencias y de conocimientos nacionales e internacionales para los miembros de los órganos de dirección del CFBPDC será de tres meses antes de la finalización de su nombramiento. Cuando dichas actividades de desarrollo y conocimientos sean impartidas por personal interne del CFBPDC no se aplicará este periodo de restricción.
+(Así reformado mediante sesión N° 5820 del 19 de abril de 2021)

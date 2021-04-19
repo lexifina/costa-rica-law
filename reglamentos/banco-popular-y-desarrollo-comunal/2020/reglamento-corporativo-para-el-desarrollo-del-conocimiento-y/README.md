@@ -14,3 +14,4 @@ Reglamento Corporativo para el desarrollo del conocimiento y las competencias de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-30 | la propia norma |
+| 2 | 2021-04-19 | Reglamento 5820 (2021-04-19) |
