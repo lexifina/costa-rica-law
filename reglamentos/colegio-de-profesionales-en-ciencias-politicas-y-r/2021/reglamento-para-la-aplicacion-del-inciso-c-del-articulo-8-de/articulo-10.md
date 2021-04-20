@@ -1,0 +1,2 @@
+Artículo 10.-Cobro judicial. El Colegio queda autorizado a instruir las acciones de cobro judicial que resulten necesarias a fin de recuperar los montos que se adeuden al Colegio los agremiados con tres o más meses de morosidad, para lo cual, se incluirá en los costos a recuperar, los gastos administrativos y profesionales en Derecho en que se incurra.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

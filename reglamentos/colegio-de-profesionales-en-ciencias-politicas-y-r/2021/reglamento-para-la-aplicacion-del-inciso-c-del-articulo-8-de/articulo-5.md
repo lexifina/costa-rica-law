@@ -1,0 +1,1 @@
+Artículo 5º-De la condición de morosidad. Para efectos de este Reglamento se entenderá como moroso aquel agremiado que adeude al Colegio una o más cuotas de su colegiatura y hayan vencido conforme lo dispuesto en el artículo anterior.

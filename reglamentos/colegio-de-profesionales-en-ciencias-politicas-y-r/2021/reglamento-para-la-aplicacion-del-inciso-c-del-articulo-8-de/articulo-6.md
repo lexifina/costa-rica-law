@@ -1,0 +1,1 @@
+Artículo 6º-De la suspensión de la condición de miembro del Colegio. El agremiado que durante un trimestre no pague las cuotas mensuales que el Colegio imponga, de conformidad con este reglamento, será suspendido de acuerdo con el procedimiento fijado en este Reglamento y, por lo tanto, perderá los derechos establecidos en la Ley N°9614.

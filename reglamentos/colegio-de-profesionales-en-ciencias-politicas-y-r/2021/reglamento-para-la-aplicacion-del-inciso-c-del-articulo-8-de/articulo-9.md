@@ -1,0 +1,1 @@
+Artículo 9º-Sobre los errores del Colegio. En caso de que un agremiado acredite error u omisión del Colegio al momento de consignar su condición de suspensión por morosidad igual o superior a tres meses, tendrá derecho a que el Colegio emita una carta de descargo cuando así le sea solicitada, carta que se emitirá en forma una vez comprobado el error u omisión.

@@ -1,0 +1,1 @@
+Artículo 8º-De la recuperación de la condición de miembro del Colegio. El miembro suspendido recuperará sus derechos cuando pague las cuotas atrasadas más un quince por ciento (15%) del monto adeudado, por concepto de multa.
