@@ -1,0 +1,4 @@
+Artículo 4º-Condiciones para la formalización del arreglo de pago. La persona agremiada que se encuentre en condición de morosa podrá solicitar los acuerdos de pago para honrar sus deudas con el Colegio cuando las mismas superen el equivalente a tres o más cuotas en mora, para lo cual aplicarán las siguientes reglas:
+a) La persona agremiada deberá, en el momento de la formalización del arreglo de pago, cancelar la primera cuota (con intereses proyectados) como prima.
+b) El monto restante se podrá distribuir en un mínimo de 1 cuota adicional y un máximo de ocho, pagaderas en forma mensual con intereses proyectados, con las excepciones dispuestas en el artículo anterior en los casos que autoricen la Tesorería o la Junta Directiva.
+c) Los arreglos de pago se realizarán únicamente sobre las cuotas vencidas, debiendo el agremiado continuar el pago de sus cuotas posteriores al arreglo de pago en forma ordinaria.
