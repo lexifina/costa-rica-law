@@ -1,0 +1,1 @@
+Artículo 21.-Petición de Asesoría. La Comisión de ser el caso, solicitará asesoría en el área que corresponda, con el propósito de cumplir con el artículo 19° y mediatos siguientes de este mismo Reglamento.

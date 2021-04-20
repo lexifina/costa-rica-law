@@ -1,0 +1,1 @@
+Artículo 26.-Deberes del Colegio con las personas especialistas. El Colegio velará porque los colegiados que se encuentren inscritos en el Registro de Especialidades sean reconocidos como tales, en sus respectivos lugares de trabajo, conforme a lo estipulado en la Ley Orgánica del Colegio Profesional de Ciencias Políticas y Relaciones Internacionales.

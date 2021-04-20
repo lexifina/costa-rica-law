@@ -1,0 +1,1 @@
+Artículo 12.-Reconocimiento de Especialidades. Las áreas de especialización que reconoce el Colegio son las que oficialice la Comisión y avale la Junta Directiva y serán revisadas de manera periódica y publicadas en los canales de comunicación del Colegio.

@@ -1,0 +1,1 @@
+Artículo 6º-Especialista. Profesional incorporado al Colegio, que se ha hecho acreedor al reconocimiento de especialista en un área determinada de la profesión con fundamento en sus atestados académicos, experiencia profesional y aportes reconocidos.

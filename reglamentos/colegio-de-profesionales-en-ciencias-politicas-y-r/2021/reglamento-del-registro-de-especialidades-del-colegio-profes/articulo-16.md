@@ -1,0 +1,1 @@
+Artículo 16.-Traslado a la Comisión. Una vez incluido en el Registro de Especialidades, el solicitante será juramentado por la Junta Directiva del Colegio de Ciencias Políticas y Relaciones Internacionales en forma oficial y se le inscribirá en el Registro de Especialidades, según corresponda, y se le hará entrega de un certificado que le acredite como tal.

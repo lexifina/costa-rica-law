@@ -1,0 +1,1 @@
+Artículo 4º-Comisión Evaluadora. La Junta Directiva constituirá una comisión permanente que actuará como órgano auxiliar y de consulta en todo lo relacionado con las especialidades y se denominará Comisión Evaluadora de Especialidades, en adelante Comisión. Este órgano tendrá las facultades que le reconocen este Reglamento y las que le asigne la Asamblea General.
