@@ -1,0 +1,1 @@
+Artículo 7º-Se concederá una licencia para este tipo de actividad por persona, la cual deberá portarse mientras se ejerce la actividad. En caso de fallecimiento del permisionario, deberá solicitarse una nueva Licencia.

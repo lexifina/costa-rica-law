@@ -1,0 +1,1 @@
+Artículo 21.-Las Licencias reguladas en este Reglamento, serán válidas por un año, contado a partir de su otorgamiento, siendo que vencido ese plazo, si la persona que se le otorgó el permiso no ha infringido este reglamento, cumplido el año, se le otorgue una prórroga por un año más.

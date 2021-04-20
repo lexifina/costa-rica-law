@@ -1,0 +1,1 @@
+Artículo 17.-Los vendedores ambulantes, no podrán permanecer estacionados en el mismo sitio, salvo el tiempo necesario que requiera cada cliente. La Municipalidad, definirá los sectores en que se pueda o no ejercer las ventas ambulantes, según rutas que defina el Departamento de Patentes, en asocio con el criterio técnico del Ingeniero Municipal.

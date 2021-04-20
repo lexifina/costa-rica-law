@@ -1,0 +1,2 @@
+Artículo 5°-El impuesto a cobrarse será el establecido conforme a las reglas indicadas en la Ley 9504, denominada Ley para Actividades Lucrativas y no Lucrativas del cantón de Guácimo o en su defecto la norma que sobre impuestos de patente se encuentre vigente en este cantón".
+(Artículo aprobado en Acta N° 13-2021, mediante acuerdo N° Cuatro de Sesión Ordinaria N° 08-2021, celebrada el 23 de febrero 2021).

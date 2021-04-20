@@ -1,0 +1,1 @@
+Artículo 14.-Los vendedores de lotería, chances, flores, periódicos y revistas, limpiadores de zapatos; deberán solicitar la respectiva Licencia. En el caso de los vendedores de loterías, los concesionarios deberán acreditar el contrato respectivo y los revendedores demostrar mediante contrato, su relación con el concesionario respectivo.

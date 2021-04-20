@@ -1,0 +1,2 @@
+Artículo 3°-La licencia deberá ser solicitada por escrito al Departamento de Patentes de esta Municipalidad, cumpliendo con los requisitos que para tal efecto estipula el artículo 4° de este Reglamento.
+En la solicitud se deberá indicar el tipo de actividad que se ofrecerá. El interesado se someterá a un estudio socioeconómico, mediante aplicación de un formulario que para este fin le facilitará el Departamento de Patentes de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 16.-El diseño del recinto donde se ubicarán los puestos, será el que la Municipalidad apruebe. Tanto el diseño, como sus dimensiones, las estipulara la Municipalidad, siguiendo el criterio del Ingeniero Municipal. El área que ocupe un puesto estacionario no podrá ampliarse de ninguna forma, ni siquiera con toldos o plásticos.

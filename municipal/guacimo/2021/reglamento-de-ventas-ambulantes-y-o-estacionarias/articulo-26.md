@@ -1,0 +1,1 @@
+Artículo 26.-Por incumplimiento a las disposiciones establecidas en el presente Reglamento, podrá la Municipalidad, imponer como sanción, la suspensión temporal de la licencia o clausura de la actividad; revocación definitiva de la licencia y desalojo de la vía pública.
