@@ -1,0 +1,1 @@
+Artículo 9°-Dependiendo de las posibilidades que ofrezca la Municipalidad en equipo tecnológico y conectividad, el equipo puede ser aportado por el teletrabajador para cumplir con sus labores, siempre y cuando haya acuerdo entre las partes.

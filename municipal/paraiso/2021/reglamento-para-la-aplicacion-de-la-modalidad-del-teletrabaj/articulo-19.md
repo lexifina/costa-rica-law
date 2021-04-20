@@ -1,0 +1,1 @@
+Artículo 19.-Visto bueno de la jefatura. El servidor o servidora municipal que desee laborar conforme a esta nueva modalidad de trabajo debe contar con el visto bueno de su superior(a) jerárquico. En el caso de los Coordinadores de Proceso, deberán contar previamente con la autorización del Alcalde o Alcaldesa.

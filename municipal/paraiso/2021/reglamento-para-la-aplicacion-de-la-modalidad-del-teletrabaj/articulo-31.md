@@ -1,0 +1,1 @@
+Artículo 31.-Actualización tecnológica. Durante la ejecución del contrato la persona teletrabajadora, mantendrá su derecho para participar en las diversas capacitaciones que imparte la Institución. Será su responsabilidad mantenerse actualizada en cuanto al uso de las herramientas tecnológicas que demanda la ejecución de sus actividades.

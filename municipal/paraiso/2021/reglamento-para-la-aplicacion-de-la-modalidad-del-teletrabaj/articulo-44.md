@@ -1,0 +1,1 @@
+Artículo 44.-Acciones que favorezcan el teletrabajo. Las jefaturas inmediatas tomaran acciones para promover el uso intensivo de las tecnologías de información y comunicación entre todo el personal de la unidad administrativa a su cargo, para simplificar y digitalizar trámites que contribuyan con la modernización de la gestión y a la aplicación del Teletrabajo.
