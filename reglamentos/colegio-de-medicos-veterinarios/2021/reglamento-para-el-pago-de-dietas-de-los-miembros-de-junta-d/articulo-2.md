@@ -1,0 +1,1 @@
+Artículo 2°-El monto de la dieta a cancelar por cada sesión será el equivalente al 6% de salario mínimo fijado en el decreto de salarios mínimos para un profesional universitario con grado mínimo de Licenciatura.

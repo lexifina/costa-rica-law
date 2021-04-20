@@ -1,0 +1,1 @@
+Artículo 5°-Cuando por falta de quórum la sesión de Junta Directiva o del Tribunal de Honor o del Tribunal Interno de Elecciones no se realice únicamente se cubrirá dieta a los directores y directoras que se presenten a la sesión, para lo cual deberán de levantar el acta correspondiente dejando constancia de los miembros presentes.

@@ -1,0 +1,1 @@
+Artículo 6°-El directivo o miembro del Tribunal que, sin la correspondiente justificación y permiso expreso del cuerpo colegiado, se ausente o llegue tarde a la hora programada de una sesión, o bien rompa el quórum, perderá la dieta de esa sesión. Para efecto del pago de dietas, esta ausencia se anotará como inasistencia a la sesión de que se trate.
