@@ -1,1 +1,0 @@
-Artículo 11.—La Municipalidad cobrará, en los mismos términos del artículo anterior, un precio por el mantenimiento general del cementerio. Dichos fondos se utilizarán para el mantenimiento de las zonas comunes y gastos generales que requieran los cementerios. El mantenimiento de que se habla en este artículo no incluye el mantenimiento de los nichos o parcelas.

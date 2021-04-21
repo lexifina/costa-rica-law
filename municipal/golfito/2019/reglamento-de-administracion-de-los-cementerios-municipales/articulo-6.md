@@ -1,1 +1,0 @@
-Artículo 6º—Para todos los efectos se consideraran “interesados” ante la Administración las personas indicadas en el artículo anterior de este reglamento en caso de conflicto se dará prioridad al orden establecido en los incisos 1, 2, 3, 4 y 5 del artículo 572 del Código Civil.

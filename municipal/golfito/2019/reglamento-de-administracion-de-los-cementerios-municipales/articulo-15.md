@@ -1,1 +1,0 @@
-Artículo 15.—En el caso de derechos sobre parcelas o nichos no aparezcan sus dueños o si falleciese el titular del derecho sin dejar heredero conocido la Municipalidad queda facultada a dar por resuelto el derecho y disponer del mismo luego de transcurrir cinco años de la última inhumación. Lo anterior previo cumplimiento del procedimiento dispuesto por la Ley General de Salud.

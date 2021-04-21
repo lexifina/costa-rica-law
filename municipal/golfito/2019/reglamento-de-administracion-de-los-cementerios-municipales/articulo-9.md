@@ -1,1 +1,0 @@
-Artículo 9º—Para la distribución de las parcelas, la Administración confeccionará un plano regulador. La adjudicación geográfica de los derechos de arrendamiento se hará siguiendo el orden que dicho plano ordene. La Administración se reservará el número de parcelas o nichos que estime conveniente para responder ante eventualidades o emergencias.

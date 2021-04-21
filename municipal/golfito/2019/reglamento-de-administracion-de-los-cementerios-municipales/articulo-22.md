@@ -1,1 +1,0 @@
-Artículo 22.—Las inhumaciones se realizarán dentro de las 6 y las 18 horas, salvo órdenes sanitarias expedidas por el médico que atendió o certificó la defunción o por orden o disposición del Ministerio de Salud.

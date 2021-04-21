@@ -1,1 +1,0 @@
-Artículo 37.---- (Nota del Sinalevi: En la publicación de este reglamento, no aparece este artículo. No obstante, el sistema exige una numeración consecutiva, por lo que se ha creado, pero sin texto.)

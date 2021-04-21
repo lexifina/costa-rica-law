@@ -1,1 +1,0 @@
-Artículo 16.—En los cementerios del cantón será permitido: las ceremonias religiosas, los discursos u oraciones fúnebres y el acompañamiento musical de las exequias siempre y cuando estos actos no contravengan la ley, la moral ni las buenas costumbres.

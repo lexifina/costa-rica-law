@@ -1,1 +1,0 @@
-Artículo 30.— Cuando se trate de exhumaciones extraordinarias ordenadas por las autoridades judiciales deberá observarse todas las normas que esta autoridad sugiera para el mejor resultado de sus investigaciones.

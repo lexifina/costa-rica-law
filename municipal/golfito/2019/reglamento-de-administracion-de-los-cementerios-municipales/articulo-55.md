@@ -1,2 +1,0 @@
-Artículo 55.—Las personas que visiten los cementerios deberán conducirse con el respeto adecuado al recinto, pudiendo la Municipalidad adoptar en caso contrario las medidas legales a su alcance para ordenar el desalojo de quienes incumplieren esta norma. No podrán entrar en los Cementerios las personas bajo los efectos del licor o de cualquier droga enervante, los niños que no
-vayan acompañados por personas mayores y las personas con animales.

@@ -1,2 +1,0 @@
-Artículo 40.—La profundidad de la construcción de nichos será de un máximo de 2 metros. En los casos de entierros subterráneos este deberá tener una cubierta de tierra de no menos de 50 centímetros. Cuando se construyan nichos bajo tierra sus paredes serán de ladrillo o bloques reforzados que soporten el empuje de la tierra adyacente y se deben construir en material permeable para facilitar la filtración de productos acuosas de la descomposición cadavérica.
-Los nichos sobre el terreno tendrán una altura máxima de 70 centímetros
