@@ -1,1 +1,3 @@
-Artículo 41.—El número de integrantes de la Junta Directiva de los comités comunales de deportes y recreación será igual a la del Comité Cantonal. Su periodo de labores de dos años empezará dos meses después de iniciado el de la nueva Junta Directiva del Comité Cantonal. Podrán ser reelectos. No recibirá dietas ni remuneración alguna.
+CAPÍTULO VIII
+Comités Comunales de Deportes y Recreación y Subcomités
+Artículo 41.—La Junta Directiva del Comité Cantonal podrá nombrar comités comunales de deportes y recreación en cada uno de los distritos del cantón o barrios.

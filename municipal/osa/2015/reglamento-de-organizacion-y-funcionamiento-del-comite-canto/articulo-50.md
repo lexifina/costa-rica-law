@@ -1,1 +1,1 @@
-Artículo 50.—Cada comité comunal podrá formar subcomités de deportes y recreación en los barrios y caseríos que lo ameriten. Para dicho nombramiento, el comité comunal seguirá los mismos procedimientos usados con ellos en los artículos 41, 42 y 43 de este reglamento.
+Artículo 50.—Una vez juramentada la Junta Directiva del Comité Comunal, la Junta Directiva del Comité Cantonal comunicará su conformación e inicio de labores al Concejo y a la Dirección Regional de Deportes.

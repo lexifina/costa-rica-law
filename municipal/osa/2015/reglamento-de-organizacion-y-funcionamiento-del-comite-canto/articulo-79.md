@@ -1,2 +1,1 @@
-Artículo 79.—Rige a partir de su publicación en el Diario Oficial La Gaceta. Que se dispense de trámite de comisión y se declare acuerdo definitivamente aprobado.
-Ciudad Cortés, 09 de setiembre del 2015.—
+Artículo 79.—Resultarán electos los dos candidatos que obtengan la mayoría de los votos de los Regidores Propietarios, los cuales votarán en forma secreta y por los candidatos de su predilección de la nómina que se conforme. Resultarán electos los que obtengan la mayoría, en caso de empate entre tres o más postulantes se realizará nuevamente la votación con los que resultaron empatados, en caso de mantenerse el empate se resolverá por la suerte (lanzamiento de una moneda).

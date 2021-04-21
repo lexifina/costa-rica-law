@@ -1,1 +1,1 @@
-Artículo 38.—La Junta Directiva del Comité debe entregar contra factura el dinero de partidas específicas a los comités comunales, subcomités o agrupaciones, que hayan utilizado su personería jurídica para obtenerla.
+Artículo 38.—La Junta Directiva del Comité podrá incluir en su presupuesto el dinero de partidas que tenga en su cuenta corriente, siempre que se respete el destinatario y el destino de las mismas.

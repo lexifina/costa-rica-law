@@ -1,7 +1,2 @@
-Artículo 24.—Son funciones del vicepresidente:
-a) Sustituir al presidente, en su ausencia, con sus deberes y atribuciones.
-b) Encargarse de las relaciones públicas.
-c) Coordinar y agilizar el nombramiento de las comisiones dentro de la Junta Directiva del Comité Cantonal.
-d) Realizar una función propia del Presidente, cuando éste así se lo solicite.
-e) Firmar junto con el Presidente las órdenes de pago y los cheques contra los fondos económicos del Comité Cantonal.
-f) Cualquier otra atinente al cargo.
+Artículo 24.—Cuando un miembro del Comité Cantonal incurra en cualquiera de las causales indicadas en el artículo anterior, la Junta Directiva deberá comunicarlo por escrito al Concejo Municipal, remitiendo las pruebas documentales idóneas certificadas por un Notario Público, donde se acredite que el miembro a sustituir efectivamente incurrió en las causales que señala el artículo anterior. El Concejo una vez que ha recibido la comunicación, procederá a nombrar un Órgano Director del Procedimiento, el que previa audiencia al directivo y evacuación de la prueba, conforme establece el ordenamiento jurídico, numerales 308 y siguientes en la Ley General de la Administración Pública, remitirá una relación de hechos al Concejo Municipal, para que éste emita el dictamen final.
+Si el Concejo ordena la destitución del directivo, procederá a reponer el miembro separado del cargo, según sea el sector al que representaba el destituido en el Comité Cantonal.

@@ -1,1 +1,1 @@
-Artículo 47.—Los miembros de la Junta Directiva de cada Comité Comunal serán juramentados por la Junta Directiva del Comité Cantonal, después de realizada la elección en Asamblea General.
+Artículo 47.—Los nombramientos para sustituir a un miembro que haya renunciado o desertado serán por elección de ternas, por el Comité Cantonal, propuesto por la Junta Directiva del Comité Comunal.

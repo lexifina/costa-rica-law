@@ -1,1 +1,1 @@
-Artículo 10.—No podrán formar parte del Comité Cantonal los regidores y síndicos, el alcalde, los Vicealcaldes, el auditor, el subauditor, el tesorero, el contador; sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive.
+Artículo 10.—El Comité Cantonal vigilará que su actuar se ajuste al Plan Operativo Anual, que haya aprobado el Concejo Municipal, según recomendación de la Junta y establecerá los controles que correspondan para que sus Comités y afiliados cumplan con el mismo.

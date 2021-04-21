@@ -1,1 +1,1 @@
-Artículo 57.—El presidente de la Junta Directiva de un Comité Comunal o subcomité podrá convocar a reunión extraordinaria por iniciativa propia o a petición de dos directivos. En este aspecto seguirá el procedimiento señalado por los artículos 30 y 31 de este reglamento.
+Artículo 57.—La Junta Directiva de cada Comité comunal o subcomité se reunirá por lo menos dos veces al mes, y sus sesiones serán públicas, salvo aquellas que por su naturaleza deban ser privadas.

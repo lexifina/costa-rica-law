@@ -1,1 +1,1 @@
-Artículo 52.—Las funciones de los subcomités serán similares a las de los comités comunales, pero ajustadas a su jurisdicción.
+Artículo 52.—Cada comité comunal podrá formar subcomités de deportes y recreación en los barrios y caseríos que lo ameriten. Para dicho nombramiento, el comité comunal seguirá los mismos procedimientos usados con ellos en los artículos 41, 42 y 43 de este reglamento

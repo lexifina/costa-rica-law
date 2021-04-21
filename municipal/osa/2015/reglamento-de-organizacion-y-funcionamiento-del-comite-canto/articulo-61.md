@@ -1,1 +1,1 @@
-Artículo 61.—Las Juntas Directivas de los comités comunales y subcomités llevarán al día los libros de Actas y Tesorería, los cuales serán facilitados por la Junta Directiva del Comité Cantonal. Los miembros de esta Junta, los miembros del Concejo o el Director Regional de Deportes podrán solicitar los libros para su revisión, previo acuerdo de su Junta Directiva.
+Artículo 61.—Los miembros de las Juntas Directivas de comités comunales o subcomités deben ser sustituidos si no respetan lo establecido en el artículo 21 de este reglamento.

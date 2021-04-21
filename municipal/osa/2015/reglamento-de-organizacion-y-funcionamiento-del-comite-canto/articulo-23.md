@@ -1,18 +1,6 @@
-CAPÍTULO V
-De las funciones de los miembros de la Junta
-Directiva del Comité Cantonal de Deportes
-Artículo 23.—Son funciones del presidente:
-a) Ostentar la representación legal del Comité Cantonal.
-b) Abrir, presidir, suspender y cerrar las sesiones ordinarias y extraordinarias de la Junta Directiva, una vez que se ha agotado el orden del día.
-c) Convocar a sesiones extraordinarias, según las disposiciones que para ello rijan a la Junta Directiva del Comité Cantonal.
-d) Representar al Comité Cantonal ante organizaciones deportivas, gubernamentales, judiciales y sociales del país.
-e) Velar por el cumplimiento de las funciones y los fines del Comité Cantonal.
-f) Suscribir todos los contratos o convenios que realice el Comité Cantonal, previo acuerdo de la Junta Directiva; y aprobación y autorización del Concejo Municipal.
-g) Coordinar el personal administrativo.
-h) Firmar junto con el Secretario, las Actas de las sesiones y todo documento que así lo requiera.
-i) Firmar junto con el Tesorero o el Vicepresidente, las órdenes de pago y los cheques contra los fondos económicos del Comité Cantonal.
-j) Juramentar a los miembros de las Juntas Directivas de Comités Comunales, subcomités o comisiones, antes de que tomen posesión de sus cargos.
-k) Preparar junto con el Secretario, la agenda o el orden del día de las sesiones extraordinarias, asambleas, etc., así como los informes semestrales, informe anual de rendición de cuentas que se presentarán al Concejo Municipal.
-l) Efectuar, junto con el Tesorero, arqueos mensuales de caja chica y del libro de Tesorería, y dejar constancia de ello en el libro de Actas.
-m) Vigilar que las comisiones cumplan con sus objetivos, en los plazos dispuestos y asistir a las reuniones de éstas, cuando lo considere oportuno, con voz pero sin voto, salvo que sea parte integrante de la Comisión.
-n) Convocar al menos dos veces al año a los Presidentes de Comités Comunales.
+Artículo 23.—Los miembros de la Junta Directiva podrán ser destituidos de su cargo, por cualquiera de las siguientes causas:
+a) Por ausencia injustificada a tres sesiones consecutivas o a seis alternas, contadas en períodos anuales de enero a diciembre de cada año.
+b) Por violación evidente a las leyes y reglamentos que rigen la materia o por transgresiones a las normas éticas y morales que deben regir el comportamientos de los dirigentes del deporte y la recreación.
+c) Por inhabilitación judicial.
+d) Por el incumplimiento comprobado de los deberes y obligaciones de las funciones que la ley y este reglamento imponen a los integrantes de la Junta Directiva. Esta causal puede ser invocada por la Junta Directiva, contra uno o varios de sus integrantes, o por uno de sus integrantes o por un habitante del cantón, ante el Concejo Municipal, con la respectiva prueba, el que previa audiencia al o los afectados, resolverá lo que corresponda.
+e) El uso inadecuado de bienes, equipo y mobiliario asignado a su cargo; así como la exoneración de cánones a equipos y/o personas, sin conocimiento previo por escrito de la Junta Directiva o la Administración, debidamente fundamentado.

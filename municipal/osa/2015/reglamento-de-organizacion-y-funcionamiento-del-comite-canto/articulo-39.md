@@ -1,4 +1,1 @@
-CAPÍTULO VIII
-Comités Comunales de Deportes
-y Recreación y Subcomités
-Artículo 39.—La Junta Directiva del Comité Cantonal podrá nombrar comités comunales de deportes y recreación en cada uno de los distritos del cantón o barrios.
+Artículo 39.—De la subvención económica recibida por parte de la Municipalidad, la Junta Directiva del Comité podrá incluir en su presupuesto Junta Directiva del Comité Cantonal anual una cantidad para la compra de terrenos aptos para el deporte y la recreación, así como para la construcción de instalaciones deportivas o recreativas.

@@ -1,1 +1,2 @@
-Artículo 43.—Para nombrar por primera vez a los cinco miembros de una Junta Directiva de un comité comunal o para un nuevo período de labores, se utilizará el nombramiento efectuado en asamblea general. Si este procedimiento no se pudiera llevar a cabo, el nombramiento se hará por medio de la elección de ternas. Si este último método no se pudiera realizar, el nombramiento será directo por la Junta Directiva del Comité Cantonal.
+Artículo 43.—El número de integrantes de la Junta Directiva de los comités comunales de deportes y recreación será igual a la del Comité Cantonal. Su periodo de labores de dos años empezará dos meses después de iniciado el de la nueva Junta Directiva del Comité Cantonal.
+Podrán ser reelectos. No recibirá dietas ni remuneración alguna.

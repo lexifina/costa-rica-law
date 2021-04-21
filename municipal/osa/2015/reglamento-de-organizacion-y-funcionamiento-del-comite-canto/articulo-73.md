@@ -1,1 +1,3 @@
-Artículo 73.—Por parte del concejo Municipal se extenderá una nota de participación de manera pública a todas las organizaciones deportivas Inscritas así como los comités comunales de deportes debidamente juramentados del Cantón para que procedan a enviar un postulante representante con curriculum deportivo para ser valorado por el Concejo y nombrar 2 miembros al comité de deportes.
+CAPÍTULO IX
+De la elección de los miembros
+Artículo 73.—Para realizar la elección de los 2 miembros de las organizaciones deportivas y recreativas y uno de las organizaciones comunales, así como los 2 miembros del concejo municipal se formará una comisión especial por parte del Presidente del Concejo Municipal que revisará los expedientes entregados con los postulantes.

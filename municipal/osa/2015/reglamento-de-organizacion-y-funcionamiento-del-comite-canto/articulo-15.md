@@ -1,1 +1,9 @@
-Artículo 15.—De los cinco integrantes dos serán de nombramiento directo del Concejo Municipal, que serán escogidos mediante el procedimiento que el Concejo Municipal establezca para ese fin; dos miembros escogidos por una asamblea general de representantes de las Organizaciones Deportivas y Recreativas del cantón debidamente inscritas en el registro respectivo y en el Registro Municipal y, con personería jurídica vigente, según el procedimiento que este mismo Reglamento dispone y el quinto integrante, escogerá conforme a lo dispuesto en el capítulo XI de este reglamento. Dentro de estos cinco integrantes dos deben ser mujeres y/o personas protegidas por la Ley Nº 7600, con el fin de dar cabal cumplimiento a la equidad de género y a la integración de los sectores a las organizaciones del cantón.
+Artículo 15.—La Junta Directiva estará integrada por siete miembros dos de ellos mayores de quince años y menores de dieciocho según el artículo 174 del código Municipal, los demás deberán cumplir con los siguientes requisitos:
+a) Ser mayores de edad.
+b) Ser residente en el cantón.
+c) Ser de comprobada buena conducta y reputación.
+d) Estar dispuesto a desempeñar el cargo con sentido de responsabilidad y honestidad.
+e) No encontrarse en las causales de impedimento.
+f) No encontrarse inhabilitado para el ejercicio de cargos públicos, mediante sentencia firme.
+g) Estar dispuesto a cumplir con las normas éticas del Comité Cantonal de Deportes y Recreación de Osa.
+h) Ser o haber sido deportista o demostrar conocimiento en el campo de la recreación preferiblemente.

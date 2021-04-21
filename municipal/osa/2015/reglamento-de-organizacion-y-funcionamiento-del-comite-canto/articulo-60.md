@@ -1,1 +1,1 @@
-Artículo 60.—El miembro de la Junta Directiva de un comité comunal o subcomité podrá justificar sus ausencias o solicitar permisos con base en lo estipulado en el artículo 33 de este reglamento.
+Artículo 60.—La Junta Directiva del Comité Cantonal podrán sustituir a la Junta Directiva de un Comité Comunal o subcomité o a alguno (s) de sus miembros porque se considere no funcional o que no cumpla con los lineamientos emanados por el Comité Cantonal, el Concejo o el Instituto Costarricense del Deporte y la Recreación. En todo caso deberá preservar el debido proceso.

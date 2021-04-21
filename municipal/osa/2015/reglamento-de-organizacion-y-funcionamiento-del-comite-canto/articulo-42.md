@@ -1,1 +1,1 @@
-Artículo 42.—Los comités comunales de deportes y recreación son la máxima representación de la Junta Directiva del Comité Cantonal en las actividades de promoción, administración de instalaciones y los responsables de los desarrollos deportivos y recreativos de su comunidad.
+Artículo 42.—Los comités comunales trabajarán con el propósito de alcanzar en su localidad los fines descritos en el artículo 5º de este reglamento, pero a escala distrital o de Comunidad.

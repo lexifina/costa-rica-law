@@ -1,1 +1,1 @@
-Artículo 40.—Los comités comunales trabajarán con el propósito de alcanzar en su localidad los fines descritos en el artículo 5º de este reglamento, pero a escala distrital o de Comunidad.
+Artículo 40.—El Comité asignara una beca deportiva para atletas destacados anualmente por género a la persona menor de los veinte años de edad, basado al acuerdo de Junta Directiva del Comité Cantonal y según el manual de procedimientos del mismo.

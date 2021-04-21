@@ -1,15 +1,18 @@
-Artículo 25.—Son funciones del secretario:
-a) Mantener al día las actas y las síntesis de las sesiones.
-b) Firmar junto con el Presidente las actas de las sesiones.
-c) Leer durante la sesión la correspondencia recibida y enviada.
-d) Redactar y firmar la correspondencia y comunicaciones, según los acuerdos que se tomen en sesión.
-e) Firmar junto con el Presidente los documentos que así lo requieran.
-f) Firmar junto con el Presidente los carné extendidos a los miembros de los Comités Comunales, subcomités, de las Juntas Administradoras, comisiones, agrupaciones deportivas, atletas, etc., según acuerdo que regule la emisión de dichas identificaciones.
-g) Otorgar el visto bueno y firmar certificaciones extendidas por la Junta Directiva del Comité Cantonal o una comisión de ella.
-h) Archivar toda documentación.
+CAPÍTULO V
+De las funciones de los miembros de la junta directiva
+del Comité Cantonal de Deportes
+Artículo 25.—Son funciones del presidente:
+a) Ostentar la representación legal del Comité Cantonal.
+b) Abrir, presidir, suspender y cerrar las sesiones ordinarias y extraordinarias de la Junta Directiva, una vez que se ha agotado el orden del día.
+c) Convocar a sesiones extraordinarias, según las disposiciones que para ello rijan a la Junta Directiva del Comité Cantonal.
+d) Representar al Comité Cantonal ante organizaciones deportivas, gubernamentales, judiciales y sociales del país.
+e) Velar por el cumplimiento de las funciones y los fines del Comité Cantonal.
+f) Suscribir todos los contratos o convenios que realice el Comité Cantonal, previo acuerdo de la Junta Directiva; y aprobación y autorización del Concejo Municipal.
+g) Coordinar el personal administrativo.
+h) Firmar junto con el Secretario, las Actas de las sesiones y todo documento que así lo requiera.
 i) Firmar junto con el Tesorero o el Vicepresidente, las órdenes de pago y los cheques contra los fondos económicos del Comité Cantonal.
 j) Juramentar a los miembros de las Juntas Directivas de Comités Comunales, subcomités o comisiones, antes de que tomen posesión de sus cargos.
-k) Preparar junto con el Presidente, la agenda de las sesiones extraordinarias, asambleas, etc., así como el informe anual de la Municipalidad.
+k) Preparar junto con el Secretario, la agenda o el orden del día de las sesiones extraordinarias, asambleas, etc., así como los informes semestrales, informe anual de rendición de cuentas que se presentarán al Concejo Municipal.
 l) Efectuar, junto con el Tesorero, arqueos mensuales de caja chica y del libro de Tesorería, y dejar constancia de ello en el libro de Actas.
-m) Expedir junto con el Presidente las certificaciones que se le soliciten sobre aspectos de competencia del Comité.
-n) Convocar a la Asamblea General cuando corresponda y según el procedimiento establecido.
+m) Vigilar que las comisiones cumplan con sus objetivos, en los plazos dispuestos y asistir a las reuniones de éstas, cuando lo considere oportuno, con voz, pero sin voto, salvo que sea parte integrante de la Comisión.
+n) Convocar al menos dos veces al año a los Presidentes de Comités Comunales.

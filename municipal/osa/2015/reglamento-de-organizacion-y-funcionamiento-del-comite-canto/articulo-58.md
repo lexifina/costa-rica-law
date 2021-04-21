@@ -1,1 +1,1 @@
-Artículo 58.—La Junta Directiva del Comité Cantonal podrán sustituir a la Junta Directiva de un Comité Comunal o subcomité o a alguno (s) de sus miembros porque se considere no funcional o que no cumpla con los lineamientos emanados por el Comité Cantonal, el Concejo o el Instituto Costarricense del Deporte y la Recreación. En todo caso deberá preservar el debido proceso.
+Artículo 58.—El quórum en las juntas directivas de los comités comunales o subcomités se logrará con la presencia de los tres directivos.

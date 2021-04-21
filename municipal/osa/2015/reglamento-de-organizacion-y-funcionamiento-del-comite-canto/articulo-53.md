@@ -1,1 +1,1 @@
-Artículo 53.—Los subcomités dependerán de los comités comunales. La Junta Directiva del Comité Cantonal debe supervisar directamente a aquellos subcomités ubicados en distritos en los que no haya comité comunal.
+Artículo 53.—Los subcomités de deportes y recreación y sus juntas directivas estarán sujetos a las normas establecidas en este reglamento y su actuar se limitará a su jurisdicción territorial.

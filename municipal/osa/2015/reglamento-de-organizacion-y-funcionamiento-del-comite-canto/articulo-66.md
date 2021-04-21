@@ -1,5 +1,1 @@
-Artículo 66.—Las fuentes de financiamiento de los comités comunales y subcomités pueden ser:
-a) Ayuda económica brindada por la Junta Directiva del Comité Cantonal.
-b) Dinero de partidas específicas.
-c) Dineros recabados por la administración de instalaciones deportivas y recreativas.
-d) Dineros recaudados por medio de actividades en la comunidad (turnos, bailes, entre otros).
+Artículo 66.—La Junta Directiva del Comité Cantonal podrá delegar a los comités comunales y subcomités la construcción, la administración y el mantenimiento de los campos existentes en su jurisdicción. Deberán darles participación en el uso de las instalaciones a todos los grupos organizados de deportistas, previa solicitud por escrito. La programación será respetada y se hará cada semana.

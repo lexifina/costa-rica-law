@@ -1,1 +1,1 @@
-Artículo 33.—El miembro de Junta Directiva del Comité que falte a sesiones, debe justificar su ausencia o pedir la autorización respectiva.
+Artículo 33.—Las sesiones extraordinarias podrán celebrarse en otros lugares del cantón cuando la índole de los asuntos por tratar así lo requiera. El lugar debe especificarse en la convocatoria.

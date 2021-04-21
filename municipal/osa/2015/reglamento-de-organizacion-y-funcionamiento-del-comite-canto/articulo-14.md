@@ -1,4 +1,3 @@
-Artículo 14.—La Junta Directiva del Comité Cantonal de Deportes y Recreación de Osa, está compuesta por cinco miembros, representantes de las siguientes entidades comunales y nacionales:
-a) Dos miembros de nombramiento del Concejo Municipal.
-b) Dos miembros de las organizaciones deportivas y recreativas del cantón.
-c) Un miembro de las organizaciones comunales restantes.
+CAPÍTULO IV
+De la Junta Directiva
+Artículo 14.—La Junta Directiva del Comité Cantonal, es la máxima autoridad de la institución y es la encargada de su gobierno, administración y dirección. Cada año, la Junta Directiva elaborará, aprobará y enviará al Concejo Municipal para su respectiva aprobación el Plan Operativo Anual y el Presupuesto Anual. Para lograr que estos documentos sean los óptimos el Comité Cantonal, deberá realizar un planeamiento estratégico que posibilite desarrollar integralmente el deporte y la recreación en el cantón.

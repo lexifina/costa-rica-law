@@ -1,3 +1,1 @@
-CAPÍTULO IX
-De la elección de los miembros
-Artículo 71.—Para realizar la elección de los 2 miembros de las organizaciones deportivas y recreativas y uno de las organizaciones comunales, así como los 2 miembros del concejo municipal se formará una comisión especial por parte del Presidente del Concejo Municipal que revisará los expedientes entregados con los postulantes.
+Artículo 71.—Las juntas directivas de los comités comunales o subcomités deberán informar por escrito a la Junta Directiva del Comité Cantonal, los nombres de los equipos afiliados a ellas.

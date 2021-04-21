@@ -1,1 +1,1 @@
-Artículo 59.—Los miembros de las Juntas Directivas de comités comunales o subcomités deben ser sustituidos si no respetan lo establecido en el artículo 21 de este reglamento.
+Artículo 59.—El presidente de la Junta Directiva de un Comité Comunal o subcomité podrá convocar a reunión extraordinaria por iniciativa propia o a petición de dos directivos. En este aspecto seguirá el procedimiento señalado por los artículos 30 y 31 de este reglamento.

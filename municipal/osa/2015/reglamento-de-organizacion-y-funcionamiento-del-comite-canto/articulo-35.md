@@ -1,3 +1,1 @@
-CAPÍTULO VII
-El presupuesto
-Artículo 35.—La Junta Directiva del Comité Cantonal deberá someter su presupuesto anual a la aprobación del Concejo en el mes de julio.
+Artículo 35.—El miembro de Junta Directiva del Comité que falte a sesiones, debe justificar su ausencia o pedir la autorización respectiva.

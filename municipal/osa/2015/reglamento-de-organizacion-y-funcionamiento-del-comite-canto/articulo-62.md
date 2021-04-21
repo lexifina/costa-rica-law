@@ -1,1 +1,1 @@
-Artículo 62.—Todos los acuerdos tomados por la Junta Directiva de los comités comunales y subcomités deberán constar en el libro de Actas y seguir las normas establecidas por los artículos 21 y 22 de este reglamento.
+Artículo 62.—El miembro de la Junta Directiva de un comité comunal o subcomité podrá justificar sus ausencias o solicitar permisos con base en lo estipulado en el artículo 33 de este reglamento.

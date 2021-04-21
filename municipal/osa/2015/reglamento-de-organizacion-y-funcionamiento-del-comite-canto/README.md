@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento del Comité Cantonal de Deportes y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-09 | la propia norma |
+| 2 | 2021-04-21 | Reglamento municipal 51 (2021-04-21) |

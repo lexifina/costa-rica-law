@@ -1,1 +1,1 @@
-Artículo 54.—Los subcomités subordinados a estos comités comunales pueden apelar ante la Junta Directiva del Comité Cantonal cualquier resolución de aquel que los afecte directamente.
+Artículo 54.—Las funciones de los subcomités serán similares a las de los comités comunales, pero ajustadas a su jurisdicción.

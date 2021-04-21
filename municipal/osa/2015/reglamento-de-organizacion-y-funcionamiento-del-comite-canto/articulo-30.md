@@ -1,1 +1,1 @@
-Artículo 30.—Las sesiones extraordinarias de la Junta Directiva del Comité serán convocadas por iniciativa del Presidente o a solicitud de por lo menos, dos miembros. Se debe de comunicar a los demás directivos, con veinticuatro horas de antelación, y deberá indicar el día, la hora de la sesión y los asuntos por tratar.
+Artículo 30.—En caso de que falte el Presidente y Vicepresidente preside el directivo de mayor edad.
