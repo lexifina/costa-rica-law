@@ -1,0 +1,1 @@
+Artículo 12.-Declaratoria de Interés Público. Se declara de interés público la creación de la Comisión de Alto Nivel para la participación igualitaria de las mujeres en los procesos económicos del país.

@@ -1,0 +1,1 @@
+Artículo 3º-Asuntos de Conocimiento en la Comisión. La Presidencia de la Comisión someterá a discusión, previa coordinación con las instancias del sector público y privado, los asuntos de conocimiento y bajo los lineamientos para su ejecución, en el marco de las competencias legales de cada institución representada en la comisión.
