@@ -1,0 +1,2 @@
+ARTÍCULO 77: VERIFICACIÓN LEGAL DE OFERTAS
+Es el análisis de los aspectos formales y jurídicos de las ofertas señalará los incumplimientos sustanciales que presenten las ofertas, así como cuales resultan legalmente elegibles. Asimismo, se deberá advertir cualquier situación relevante, en el ámbito jurídico, que pueda incidir en la contratación de forma negativa. Corresponde al Fiduciario, realizar la verificación legal de las ofertas participantes, así como atender consultas de índole legal sobre el procedimiento.

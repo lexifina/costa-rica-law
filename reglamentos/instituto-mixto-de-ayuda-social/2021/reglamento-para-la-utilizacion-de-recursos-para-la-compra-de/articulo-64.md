@@ -1,0 +1,2 @@
+ARTÍCULO 64: CONTRATACIÓN DIRECTA POR ESCASA CUANTÍA
+La Contratación Directa es un trámite de excepción de los procedimientos ordinarios de contratación administrativa, para la adquisición de bienes y servicios, que opera cuando el monto estimado de la contratación no alcanza el límite económico inferior establecido para la Licitación Abreviada, de forma que el principio de eficiencia se cumple en mejores condiciones por este medio.

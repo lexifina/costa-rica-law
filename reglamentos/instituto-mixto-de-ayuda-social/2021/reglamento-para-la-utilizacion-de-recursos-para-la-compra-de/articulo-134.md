@@ -1,0 +1,4 @@
+ARTÍCULO 134: RESCISIÓN
+El Fideicomiso podrá rescindir unilateralmente o por mutuo acuerdo sus contratos, no iniciados o en curso de ejecución, por razones de interés público, caso fortuito o fuerza mayor, debidamente acreditadas. Para ello deberá emitir una resolución razonada en donde señale la causal existente y la prueba en que se apoya, la cual será puesta en conocimiento del contratista por el plazo de quince (15) días hábiles.
+El Fideicomiso deberá cancelar al contratista la parte efectivamente ejecutada del contrato, en el evento de que no lo hubiera hecho con anterioridad y los gastos en que ese contratista haya incurrido para la completa ejecución, siempre que estén debidamente probados.
+Para la rescisión deberá seguirse el procedimiento sumario, según lo dispuesto en el Libro Segundo de la Ley General de Administración Pública. En el caso de la rescisión de mutuo acuerdo bastará un documento de acuerdo, suscrito por ambas partes.

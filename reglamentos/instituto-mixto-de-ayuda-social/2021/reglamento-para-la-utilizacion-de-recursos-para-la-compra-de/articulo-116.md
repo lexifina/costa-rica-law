@@ -1,0 +1,2 @@
+ARTÍCULO 116: POSIBILIDAD DE SOLUCIÓN DE CONFLICTOS POR VÍAS NO JUDICIALES
+Todas las controversias o diferencias que pudieran derivarse de los contratos en su ejecución, liquidación e interpretación, podrán ser resueltas por la vía arbitral cuando así se pacte, de conformidad con la Ley sobre Resolución Alterna de Conflictos y Promoción de la Paz Social y su Reglamento o del Reglamento del Centro de Conciliación y Arbitraje de la Cámara de Comercio de Costa Rica.

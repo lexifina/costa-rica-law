@@ -1,0 +1,4 @@
+ARTÍCULO 75: VERIFICACIÓN DE OFERTAS TÉCNICA, LEGAL Y FINANCIERO
+Los responsables de realizar la verificación de las ofertas en el Sistema Electrónico de Compras Públicas, debe considerar la relevancia del cumplimiento de los requisitos del cartel y demás normativa aplicable, además de la determinación de la calidad, tiempo de entrega, forma de pago, solvencia económica, garantías ofrecidas, entre otras condiciones que hayan sido incluidas en el pliego cartulario o que sean sujetos de calificación, de acuerdo con la naturaleza de la contratación.
+Debe corresponder a un estudio de ofertas debidamente fundamentado, y presentado en los plazos requeridos por el Fiduciario.
+Los resultados de la verificación de las ofertas deben constar en el instrumento denominado Verificación Técnica de Ofertas y firmado electrónicamente. En caso de que se agregue al expediente electrónico algún documento adicional, la custodia y archivo de corresponde a la unidad solicitante.

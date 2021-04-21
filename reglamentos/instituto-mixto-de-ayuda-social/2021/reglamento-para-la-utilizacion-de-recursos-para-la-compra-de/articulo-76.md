@@ -1,0 +1,2 @@
+ARTÍCULO 76: VERIFICACIÓN TÉCNICA DE OFERTAS
+Las verificaciones técnicas serán responsabilidad de la Unidad solicitante y deben realizar una valoración de las especificaciones técnicas establecidas en el cartel de la contratación y determinar la elegibilidad de la oferta. Igualmente podrá advertirse cualquier incumplimiento en aspectos formales o de otra índole. Cumplida la etapa de subsanación de ofertas y si la unidad técnica requiere subsanar otros requisitos de la oferta, debe justificarse la razón para hacer la prevención al oferente.

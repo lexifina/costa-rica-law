@@ -1,0 +1,3 @@
+ARTÍCULO 53: INTERVENCIÓN DEL REPRESENTANTE DE CASAS EXTRANJERAS
+La intervención de Representantes de Casas Extranjeras se concretará a someter la oferta proveniente del principal, Lo anterior sin perjuicio del sometimiento de ofertas conjuntas, cuando estas sean autorizadas en el cartel.
+Los Representantes de Casas Extranjeras no tienen facultad en este carácter para firmar ofertas ni para hacer modificaciones, aclaraciones o adiciones a la propuesta, salvo que cuente con un contrato que le otorgue facultades de representación para actuar a nombre y por cuenta del principal, de conformidad con lo dispuesto en el Código Civil respecto al contrato de mandato.

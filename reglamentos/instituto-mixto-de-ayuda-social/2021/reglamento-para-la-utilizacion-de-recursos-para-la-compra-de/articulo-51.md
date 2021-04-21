@@ -1,0 +1,3 @@
+ARTÍCULO 51: APERTURA DE OFERTAS
+Procede al Fiduciario, de acuerdo con el rol asignado a desencriptar las ofertas. A partir de ese momento estarán disponibles a todos los interesados una vez que el Sistema Electrónico de Compras Públicas registre y genere un acta de las ofertas recibidas. Esta acta se agrega al expediente electrónico respectivo.
+Los oferentes podrán efectuar observaciones en forma electrónica dentro de una hora posterior a la apertura de ofertas plazo establecido en el cartel y corresponderá al Fiduciario gestionar la atención de las consultas u observaciones para lo cual procederá a realizar las consultas que considere conveniente.

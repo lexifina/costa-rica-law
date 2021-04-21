@@ -1,0 +1,2 @@
+ARTÍCULO 43: EJECUCIÓN DE GARANTÍAS
+En caso de que proceda la ejecución parcial o total de la Garantía de Participación o Cumplimiento, se ejecutará según lo establecido en el artículo 14 de la Ley de Contratación Administrativa y los Artículos 39 y 41 del Reglamento a la Ley de Contratación Administrativa y corresponde al Fiduciario tramitar el procedimiento de ejecución de las garantías. Debe realizarse el procedimiento mediante los formularios dispuestos en el Sistema Electrónico de Compras Públicas.

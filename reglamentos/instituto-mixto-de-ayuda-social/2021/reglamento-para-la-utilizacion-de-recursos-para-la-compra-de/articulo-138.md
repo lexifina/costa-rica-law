@@ -1,0 +1,2 @@
+ARTÍCULO 138: PAGOS INDEBIDOS O RETENCIÓN DE PAGOS
+La persona trabajadora de la Unidad Ejecutora o el Fiduciario que autorice un pago en contravención de estas disposiciones incurrirá en responsabilidad. Igual sucederá con la persona trabajadora que sin motivo justificado retenga un pago a un proveedor o contratista. Para tales efectos la unidad que detecte la irregularidad lo pondrá en conocimiento del Comité Director, para que se adopten las acciones disciplinarias que correspondan, con garantía del debido proceso.

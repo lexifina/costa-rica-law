@@ -1,0 +1,2 @@
+ARTÍCULO 112: RECIBO DE BIENES Y SERVICIOS
+Respecto al recibo de bienes y servicios obras se procederá de conformidad con lo dispuesto al efecto en el artículo 194 y 195 del Reglamento a la Ley de Contratación Administrativa. En lo que respecta al recibo de mercancías, equipos, suministros y otros que ingresen, a la Unidad Ejecutora corresponde la recepción. Todas las actividades de recibo de mercancías se deben realizar en el Sistema Electrónico de Compras Públicas.

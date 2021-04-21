@@ -1,0 +1,2 @@
+ARTÍCULO 120: PRÓRROGA DEL PLAZO CONTRACTUAL
+La Unidad Administradora de Contrato, podrá autorizar prórrogas al plazo de ejecución contractual, a solicitud del contratista y cuando existan atrasos imputables a ella misma, o cualquier causa no imputable al contratista, de conformidad con el Artículo 206 del Reglamento a la Ley de Contratación Administrativa. La gestión debe ser remitida mediante el Sistema Electrónico de Compras Públicas, y el Fiduciario realizará el análisis correspondiente y emite una recomendación que elevará al Comité director para la Decisión Final.

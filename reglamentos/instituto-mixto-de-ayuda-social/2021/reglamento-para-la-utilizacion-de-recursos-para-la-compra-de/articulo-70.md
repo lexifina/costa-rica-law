@@ -1,0 +1,2 @@
+ARTÍCULO 70: COMUNICACIÓN DE ADJUDICACIÓN
+En las contrataciones de Escasa Cuantía, el Fiduciario comunicará el acto de adjudicación a todos los oferentes participantes. Contra el acto de adjudicación de las contrataciones de Escasa Cuantía se podrá recurrir ante el Fiduciario y se regirá de conformidad con lo establecido para el Recurso de Revocatoria del Reglamento a la Ley de Contratación Administrativa (Artículo 185 y siguientes).

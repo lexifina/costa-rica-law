@@ -1,0 +1,7 @@
+ARTÍCULO 81: CALIFICACIÓN DE OFERTAS
+Se aplicará el sistema de calificación a las ofertas elegibles y corresponde al Fiduciario realizar la calificación de las ofertas que resulten elegibles, aplicando el factor precio, incorporado algún otro factor de evaluación como podría ser, tiempo de entrega, experiencia personal, profesional o laboral, garantías adicionales ofrecidas, y en casos de factores que tengan componentes técnicos, se apoyará en la Unidad Solicitante o el funcionario designado para tal efecto y debe hacer llegar al Fiduciario la verificación y análisis técnico para la calificación y resultado final de dicha calificación de ofertas.
+En caso de que dos o más ofertas obtengan igual puntaje, la adjudicación deberá aplicarse con base en los criterios de desempate, establecidos en el cartel.
+Para los concursos ordinarios de licitación Pública y abreviada, se utilizará el sistema de valoración de ofertas en dos fases:
+a) Valoración del cumplimiento de los aspectos técnicos, legales o financieros.
+b) Se pasará a someter a las ofertas elegibles al sistema de calificación de ofertas indicado en el cartel del concurso.
+Toda contratación realizada al amparo de materias excluidas de los procedimientos ordinarios de contratación administrativa debe ser valorada por la unidad solicitante, quién realizará el estudio y recomendación correspondiente para la toma de decisión por parte de la instancia competente. Por su naturaleza, no aplica sistema de calificación porcentual de ofertas.

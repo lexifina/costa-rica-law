@@ -1,0 +1,2 @@
+ARTÍCULO 97: DECLARATORIA CON LUGAR DEL RECURSO DE APELACIÓN
+Si la Contraloría General de la República declara con lugar el recurso presentado de forma parcial o total, anulará el acto impugnado en el tanto que corresponda y lo remitirá al Comité Director para que, en el caso de existir ofertas elegibles, proceda a la adopción de un nuevo acto de adjudicación, o en su caso, declare desierto el concurso, de conformidad con el Artículo 184 del Reglamento a la Ley de Contratación Administrativa.

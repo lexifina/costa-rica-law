@@ -1,0 +1,2 @@
+ARTÍCULO 121: SUSPENSIÓN DEL PLAZO
+El Fideicomiso podrá suspender el plazo del contrato por motivos de fuerza mayor o caso fortuito, debidamente acreditados en el expediente electrónico, siendo que la Unidad Administradora de Contrato, debe realizar la gestión en el Sistema Electrónico de Compras Públicas., donde se indique las medidas de mantenimiento de lo hecho hasta ese momento, así como el responsable de las mismas. El Fiduciario realizará el análisis correspondiente y emite una recomendación para la Decisión Final.

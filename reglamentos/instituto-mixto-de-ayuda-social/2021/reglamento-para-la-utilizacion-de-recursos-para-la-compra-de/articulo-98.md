@@ -1,0 +1,6 @@
+ARTÍCULO 98: TRÁMITE DEL RECURSO DE REVOCATORIA
+Cuando proceda la interposición del recurso de revocatoria, el recurrente dispondrá de un plazo de cinco días hábiles a contar desde el día hábil siguiente de la comunicación de la adjudicación, para interponer su impugnación.
+Una vez presentado el recurso, el Fiduciario realizará el análisis de admisibilidad de la impugnación. Si el recurso es manifiestamente improcedente, el Fiduciario notificará en el término de tres días hábiles y se formalizará el procedimiento contractual.
+Si el recurso resulta admisible, el Fiduciario notificará a la parte adjudicada en el plazo de tres días hábiles siguientes, para que exprese su posición sobre los alegatos del disconforme, dentro del plazo de tres días hábiles.
+Una vez recibida la contestación del adjudicado y los criterios solicitados, el Fiduciario elevará el asunto para que el recurso sea resuelto por el Órgano competente para adjudicar, según corresponda. De conformidad con el artículo 186 del Reglamento a la Ley de Contratación Administrativa, conocerá el Jerarca en caso de que así sea solicitado por el recurrente.
+Resuelto el recurso, debe ser remitido mediante el Sistema Electrónico de Compras Públicas, para realizar la notificación correspondiente.

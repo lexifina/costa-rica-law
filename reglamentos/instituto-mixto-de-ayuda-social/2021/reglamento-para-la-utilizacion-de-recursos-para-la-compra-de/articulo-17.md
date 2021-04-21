@@ -1,0 +1,2 @@
+ARTÍCULO 17: DECLARATORIA DE DESIERTO O INFRUCTUOSO DE UN CONCURSO DE CONTRATACIÓN ADMINISTRATIVA
+El órgano competente para declarar desierto o infructuoso un concurso o procedimiento de Contratación Administrativa mediante acto motivado será el órgano competente que toma la decisión final. Se aplicará lo que al efecto establece el Artículo 15 del Reglamento a la Ley de Contratación Administrativa.

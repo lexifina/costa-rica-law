@@ -1,0 +1,3 @@
+ARTÍCULO 109: POSIBILIDAD DE PRÓRROGAS DEL PLAZO DE EJECUCIÓN
+En caso fortuito o de fuerza mayor debidamente acreditadas por el contratista, o por demoras ocasionadas por el Fideicomiso o cuando se acuerde suspender temporalmente la ejecución del contrato, corresponde a la Persona Administradora de Contrato hacer las valoraciones correspondientes para gestionar la autorización de la prórroga al plazo de ejecución contractual.
+Dichas prórrogas podrán ser autorizadas por quien realizó la adjudicación previa recomendación técnica de la persona Administradora de Contrato. No se concederán prórrogas vencidos los términos de ejecución previstos, sin perjuicio del derecho del contratista de justificar el incumplimiento por los medios legales establecidos.

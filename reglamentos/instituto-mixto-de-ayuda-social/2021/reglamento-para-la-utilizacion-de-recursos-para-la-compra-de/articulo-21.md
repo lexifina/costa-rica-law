@@ -1,0 +1,2 @@
+ARTICULO 21: FRACCIONAMIENTO
+El Fideicomiso no podrá fraccionar de manera ilegítima sus necesidades. Se considerará un fraccionamiento improcedente cuando se cuenta en un mismo momento dentro del presupuesto ordinario con los recursos necesarios y habiéndose planificado las necesidades administrativas concretas, se realiza más de una contratación para varios objetos absolutamente idénticos, con los efectos de evadir un procedimiento más complejo.

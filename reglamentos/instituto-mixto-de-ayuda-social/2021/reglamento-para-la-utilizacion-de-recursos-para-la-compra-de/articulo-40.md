@@ -1,0 +1,2 @@
+ARTÍCULO 40: PLAZO PARA RENDIR LAS GARANTÍAS DE CUMPLIMIENTO
+Esta garantía se debe rendir dentro de los 5 días hábiles siguientes a la firmeza del acto de adjudicación. Esta respalda la correcta ejecución del Contrato. La persona física o jurídica que resultó adjudicada se encuentra obligado a asegurar el contrato dentro del plazo indicado en el cartel, salvo en el caso que se requiera formalización contractual la misma debe ser depositada con anterioridad a la firma del contrato.

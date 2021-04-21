@@ -1,0 +1,2 @@
+ARTÍCULO 50: RECEPCIÓN DE OFERTAS
+Las ofertas deberán ser presentadas dentro del plazo previsto en el cartel, las mismas permanecerán encriptadas e inaccesibles hasta la hora y la fecha señalada en el cartel para la apertura de ofertas. La oferta se tendrá por ingresada en la hora y la fecha que registre el Sistema Electrónico de Compras Públicas.

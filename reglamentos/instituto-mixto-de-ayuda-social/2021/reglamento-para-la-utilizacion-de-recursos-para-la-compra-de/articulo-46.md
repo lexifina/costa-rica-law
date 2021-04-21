@@ -1,0 +1,5 @@
+ARTÍCULO 46: REQUISITOS PARA LA PRESENTACIÓN DE OFERTAS
+La oferta deberá ser presentada mediante el formulario electrónico disponible en el Sistema Electrónico de Compras Públicas.
+La oferta, deberá redactarse en idioma español. La información técnica o complementaria y los manuales de uso expedidos por el fabricante deberán, presentarse en idioma español, salvo que en el cartel se permitan otros idiomas con la traducción debidamente consularizada o se acepte una traducción libre de su texto.
+Si durante el período de formulación de ofertas, el participante llegara a advertir no conformidad del objeto o bien dificultades en el desempeño o funcionalidad del bien o servicio, deberá indicarlo por escrito al Fideicomiso por el medio de comunicaciones indicado en el Cartel, en el plazo dispuesto para recibir aclaraciones. Caso contrario, no podrá invocar esa circunstancia como eximente de responsabilidad en fase de ejecución contractual o de fiscalización.
+Deberá garantizarse siempre la confidencialidad de las ofertas hasta que se practique la apertura.

@@ -1,0 +1,4 @@
+ARTÍCULO 127: RECEPCIÓN DEFINITIVA DE BIENES DISTINTOS
+La recepción definitiva del objeto será extendida por la Unidad Ejecutora, podrá extenderse sin que se haya emitido una recepción provisional de previo. La recepción definitiva no excluye la ejecución de la garantía de cumplimiento, si los bienes y servicios presentan alguna inconformidad no sustancial con lo establecido en el contrato. A partir de este momento, comenzarán a regir las garantías de funcionamiento ofrecidas por el contratista.
+Para ello se levantará un acta en que quede constancia clara de la forma en que se ejecutó el contrato, indicando al menos, tiempo de ejecución y las prórrogas concedidas, cuando fuera pertinente, forma en que se cumplieron las obligaciones, garantías ejecutadas o penalidades impuestas, ajuste a las muestras aportadas.
+La recepción definitiva no exime al contratista de responsabilidad por vicios ocultos.

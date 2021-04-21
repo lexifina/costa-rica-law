@@ -1,0 +1,2 @@
+ARTÍCULO 66: INVITACIÓN EN PROCEDIMIENTO
+Para toda Contratación Directa que se origine por medio de Escasa Cuantía, se utilizará el Registro de Proveedores Electrónico del Sistema Electrónico de Compras Públicas, y se invitará mediante los medios electrónicos habilitados para este propósito. Asimismo, debe aplicarse las reglas establecidas en el Artículo 144 del Reglamento a la Ley de Contratación Administrativa.

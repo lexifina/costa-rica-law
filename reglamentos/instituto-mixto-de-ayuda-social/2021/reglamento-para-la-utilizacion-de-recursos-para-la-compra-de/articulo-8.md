@@ -1,0 +1,2 @@
+ARTÍCULO 8: PUBLICACIÓN DEL REGISTRO DE PROVEEDORES
+De ser interés del Fideicomiso de ampliar la base de datos de proveedores que ofrezcan algún bien o servicio, la persona Asistente Administrativo de la Unidad Ejecutora, invitará a los interesados en integrar el Registro de Proveedores Electrónico según el Sistema Electrónico de Compras Públicas, mediante publicación en el Diario Oficial La Gaceta y facultativamente en un diario de circulación nacional o por los sistemas electrónicos implementados por el Fideicomiso, la administración para tales efectos.

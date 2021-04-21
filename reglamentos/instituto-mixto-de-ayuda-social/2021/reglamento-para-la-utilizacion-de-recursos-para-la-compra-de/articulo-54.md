@@ -1,0 +1,6 @@
+ARTÍCULO 54: SUBCONTRATACIÓN
+El contratista podrá subcontratar hasta en un cincuenta por ciento (50%) del monto ofertado, salvo que el Fideicomiso autorice un porcentaje mayor en el cartel. En todo caso, la subcontratación no relevará al contratista de su responsabilidad.
+Junto con la propuesta se aportará un listado de las personas físicas o jurídicas a subcontratar. En ese detalle, se indicarán los nombres de todas las personas con las cuales se va a subcontratar, incluyendo su porcentaje de participación en el costo total de la oferta No se considera subcontratación, la adquisición de suministros, aun cuando éstos conlleven su propia instalación, ni tampoco los compromisos asumidos por cada uno de los participantes consorciados.
+El Fideicomiso podrá autorizar en el cartel, la presentación de ofertas conjuntas, cuando el objeto lo permita y ello no coloque en riesgo el interés del Fideicomiso, ni tampoco el interés público. En ese caso, dos o más oferentes podrán unirse para cotizar y cada uno responderá por la ejecución de su parte.
+55: OFERTAS EN CONJUNTO
+Los plazos para recibir ofertas se definen según lo indicado en el artículo58 del Reglamento a la Ley de Contratación Administrativa. Cualquier modificación a los plazos para recibir ofertas debe realizarse mediante acto motivado por parte del Fiduciario fundamentando las razones para ello.

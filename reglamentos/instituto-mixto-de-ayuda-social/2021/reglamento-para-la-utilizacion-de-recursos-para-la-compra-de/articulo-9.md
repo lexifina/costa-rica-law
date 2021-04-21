@@ -1,0 +1,2 @@
+ARTÍCULO 9: CAMBIOS EN LA INFORMACIÓN SUMINISTRADA DEL REGISTRO DE PROVEEDORES ELECTRÓNICO
+Todos los proveedores incluidos en el Registro de Proveedores están en la obligación de comunicar a la Unidad Ejecutora del Sistema Electrónico de Compras Públicas, los cambios que se produzcan en la información suministrada originalmente, tales como: sustitución del representante legal, cambio de la sociedad por fusión o venta, cambio de dirección, teléfono, correo electrónico en la línea comercial registrada, ampliación o modificación en los bienes que ofrece, entre otros.

@@ -1,0 +1,6 @@
+ARTÍCULO 60: ESTRUCTURA MÍNIMA LICITACIÓN ABREVIADA
+Se procederá con la invitación electrónica a todos los proveedores del bien o servicio que se esté tramitando. Para ello se utilizará el Registro Electrónico de Proveedores del Sistema Electrónico de Compras Públicas.
+El plazo para recibir ofertas no podrá ser menor a cinco días ni mayor a diez días hábiles, salvo en casos muy calificados en que el Fiduciario considere necesario ampliarlo hasta un máximo de cinco (5) días adicionales días adicionales, para lo cual deberá dejar constancia en el expediente de las razones que lo justifican.
+El acto de adjudicación deberá dictarse dentro del plazo establecido en el cartel, que no podrá ser superior al doble del fijado para recibir ofertas. Vencido dicho plazo sin que se haya dictado el acto de adjudicación, los oferentes tendrán derecho a dejar sin efecto su propuesta y a que se les devuelva la garantía de participación, sin que les resulte aplicable sanción alguna.
+En lo no previsto en esta sección, el procedimiento de Licitación Abreviada se regirá por las disposiciones para la Licitación Pública establecidos en la Ley de Contratación Administrativa y su Reglamento, en la medida que sean compatibles con su naturaleza.
+Los actos recursivos que se presenten durante el proceso deben ser resueltos por el órgano competente para adjudicar.

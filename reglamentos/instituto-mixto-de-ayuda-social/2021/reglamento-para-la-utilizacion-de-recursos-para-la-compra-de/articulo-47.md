@@ -1,0 +1,2 @@
+ARTÍCULO 47: DE LA INVITACIÓN A CONCURSAR
+La invitación a participar se publicará por los medios electrónicos así establecidos, de acuerdo al tipo de concurso que se promueva. La invitación a participar, el cartel, sus aclaraciones, modificaciones y prórrogas serán publicadas en el Sistema Electrónico de Compras Públicas y agregados al expediente electrónico.

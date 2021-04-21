@@ -1,0 +1,2 @@
+ARTÍCULO 23: CARGA DE SOLICITUD DE COMPRA Y SOLICITUD DE CONTRATACIÓN
+Será responsabilidad del Asistente Administrativo realizar la carga al Sistema Electrónico de Compras Públicas, las solicitudes de contratación incorporando los Términos de Referencia, de forma que sean concordantes con la naturaleza del objeto a contratar y con las imputaciones presupuestarias. Estas deberán contar con la aprobación de la Gerencia de la Unidad Ejecutora para dar inicio al proceso.

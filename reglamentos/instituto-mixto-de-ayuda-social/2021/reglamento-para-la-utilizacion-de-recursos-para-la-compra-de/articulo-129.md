@@ -1,0 +1,3 @@
+ARTICULO 129: PRÓRROGA DEL PLAZO
+A solicitud del contratista, el Fideicomiso, podrá autorizar prórrogas al plazo de ejecución de la orden o contrato cuando existan demoras ocasionadas por el mismo, por caso fortuito o fuerza mayor.
+El contratista solicitará la prórroga dentro de los diez (10) días hábiles siguientes al conocimiento del hecho que provoca la extensión del plazo y el Fideicomiso contará con igual plazo para resolver si procede o no. Si la solicitud se hace fuera de plazo, pero estando aún el contrato vigente y en ejecución, el Fideicomiso podrá autorizar la prórroga, en caso de estar debidamente sustentada.
