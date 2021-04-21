@@ -14,3 +14,4 @@ Reglamento para la autorización y el pago de egresos de la Municipalidad del ca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-24 | la propia norma |
+| 2 | 2021-04-21 | Reglamento municipal 16 (2021-04-21) |
