@@ -1,0 +1,1 @@
+Artículo 12.-Se realizará una nómina con los pagos semanales que deben realizarse. Este documento será firmado siempre de manera conjunta por la firma del tesorero o su suplente, y por el titular de la Dirección Financiera, Tributaria y Administrativa o su similar y el titular de la Alcaldía cuando no hayan autorizado el proceso de pago.

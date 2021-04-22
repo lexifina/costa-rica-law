@@ -1,0 +1,2 @@
+Artículo 9º-Todo pago deberá hacerse con cargo a la partida presupuestaria respectiva. Para esos efectos, la Unidad de Presupuesto o su similar deberá hacer constar de previo y por escrito, que existe el respectivo contenido presupuestario en relación con el pago de que se trate.
+Cuando los pagos se realicen en virtud de procedimientos de contratación que se realicen por la plataforma de SICOP deberán consignarse además la firma de la persona titular de la Proveeduría Institucional.

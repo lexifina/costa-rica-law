@@ -1,0 +1,1 @@
+Artículo 8º-Todo pago que se ordene debe hacerse contra la documentación de respaldo y en ella se deberá acreditar el nombre del funcionario que lo ordenó y deberá plasmarse la firma del mismo como respaldo del egreso ordenado.

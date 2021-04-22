@@ -1,0 +1,1 @@
+Artículo 10.-La Tesorería Municipal no hará pago alguno, sin orden escrita, acuerdo municipal, resolución del Alcalde, pago por servicio, orden de compra o cualquier otro tipo de disposición emitida por el órgano municipal competente que lo autorice al efecto, so pena de que se le apliquen las sanciones que el ordenamiento así determine.
