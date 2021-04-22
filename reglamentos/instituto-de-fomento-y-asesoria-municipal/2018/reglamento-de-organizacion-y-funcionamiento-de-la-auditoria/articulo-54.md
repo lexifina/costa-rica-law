@@ -1,0 +1,1 @@
+Artículo 54.-Responsabilidad por el incumplimiento de las recomendaciones. Incurrirán en responsabilidad administrativa los funcionarios del IFAM que incumplan las recomendaciones de la Auditoría Interna ordenadas por la Junta Directiva o por el titular subordinado que corresponda, sin perjuicio de las eventuales responsabilidades que puedan ser imputadas civil o penalmente.

@@ -1,0 +1,1 @@
+Artículo 42.-Expedientes. Sobre cada evaluación de auditoría, estudio especial, o servicio preventivo, la Auditoría Interna debe formar un expediente completo que contenga todos los documentos relacionados, incluyendo las respuestas que se obtengan de las recomendaciones formuladas por la Auditoría Interna.

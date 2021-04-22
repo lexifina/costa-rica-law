@@ -1,0 +1,2 @@
+Artículo 46.-Remisión oficial de informes. Los informes de Auditoría serán remitidos por el Auditor Interno a la Junta Directiva del IFAM o a los titulares subordinados de la administración activa con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones.
+Los informes que traten de asuntos de especial relevancia, a criterio del Auditor Interno, o que involucren a funcionarios dependientes de la Junta Directiva, o por disposición expresa de ésta, serán remitidos a dicho Cuerpo Colegiado.

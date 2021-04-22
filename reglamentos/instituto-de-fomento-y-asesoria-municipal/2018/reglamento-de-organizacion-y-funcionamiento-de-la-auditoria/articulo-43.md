@@ -1,0 +1,1 @@
+Artículo 43.-Autorización de libros. Este servicio consiste en la ejecución de procedimientos de Auditoría para autorizar la razón de apertura y cierre de libros de actas, libros contables, y otros libros legales, que a criterio del Auditor Interno requieren dicho control.

@@ -1,0 +1,1 @@
+Artículo 38.-Servicios de auditoría. Los servicios que presta la Auditoría Interna se clasifican en servicios de auditoría y servicios preventivos. Los servicios de Auditoría comprenden: a) auditorías financieras, b) auditorías operativas y c) auditorías de carácter especial. Los servicios preventivos incluyen: a) la asesoría, b) la advertencia y la autorización de libros.

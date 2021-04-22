@@ -1,0 +1,1 @@
+Artículo 62.-Promulgación del reglamento y sus modificaciones. El reglamento y sus modificaciones debidamente aprobado por la Contraloría General de la República se deberá publicar en el Diario Oficial La Gaceta; además La Administración y la Auditoría Interna lo deben divulgar en el ámbito institucional.
