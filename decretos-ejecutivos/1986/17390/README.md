@@ -15,3 +15,4 @@ Crea Zona Protectora Acuíferos de Guácimo y Pococí
 | --- | --- | --- |
 | 1 | 1987-01-21 | la propia norma |
 | 2 | 1987-12-18 | Decreto Ejecutivo 18075 (1987-12-18) |
+| 3 | 2021-04-22 | Decreto Ejecutivo 43053 (2021-04-22) |
