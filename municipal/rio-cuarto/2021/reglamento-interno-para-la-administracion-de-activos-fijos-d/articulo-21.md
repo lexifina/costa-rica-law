@@ -1,0 +1,1 @@
+Artículo 21.-Alta por reconstrucción de bienes. Se dará de alta a un bien por reconstrucción, cuando se haya confeccionado un nuevo bien con partes utilizables de otros bienes, para tal efecto los técnicos que realizaron la reconstrucción deberán realizar una estimación de su valor y vida útil, con indicación de sus características, y comunicarlo a la oficina de contabilidad.

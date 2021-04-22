@@ -1,0 +1,1 @@
+Artículo 10.-Requisitos previos al uso de activos de propiedad planta y equipo. Todo activo de propiedad, planta y equipo previo a ponerse en uso requiere de un número de activo creado en el módulo de activos fijos, además, deberá contar con el respectivo dispositivo de identificación, cuando así lo establezca el catálogo de activos.

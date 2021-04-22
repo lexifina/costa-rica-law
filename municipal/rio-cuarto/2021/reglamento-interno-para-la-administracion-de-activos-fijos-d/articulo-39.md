@@ -1,0 +1,1 @@
+Artículo 39.-Control de activos brindados al Concejo Municipal. Para el debido control de inventario el Departamento de Proveeduría en conjunto con el Departamento de Contabilidad realizará dos tomas físicas al año de inventario de los equipos y mobiliarios brindados al Concejo Municipal.

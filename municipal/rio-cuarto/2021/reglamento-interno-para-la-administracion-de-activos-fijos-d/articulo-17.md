@@ -1,0 +1,1 @@
+Artículo 17.-Adquicisión de identificadores para activos de propiedad planta y equipo. El departamento de proveeduría del Municipio será el responsable de la adquisición de identificadores de activos, que podrán ser placas metálicas, cintas adhesivas, código de barras u otros medios similares.

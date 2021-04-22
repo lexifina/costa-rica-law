@@ -1,0 +1,1 @@
+Artículo 41.-Bibliotecas virtuales. Los activos que sean adquiridos para bibliotecas virtuales, CECUDI y organizaciones similares, serán llevados en inventarios individuales y el responsable será el funcionario Administrador de cada edificio, aspecto que así deberá constar en la documentación pertinente.

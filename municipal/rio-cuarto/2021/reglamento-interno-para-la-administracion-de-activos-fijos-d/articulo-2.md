@@ -1,0 +1,1 @@
+Artículo 2°-Alcance. Las disposiciones de este Reglamento son de acatamiento obligatorio para todas las personas funcionarias de la Municipalidad de Río Cuarto, las personas que integren el Concejo Municipal y todos los usuarios que utilicen activos fijos, aunque no fuesen empleados directos del Gobierno Local.

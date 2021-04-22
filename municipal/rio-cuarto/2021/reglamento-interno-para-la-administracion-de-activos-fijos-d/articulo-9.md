@@ -1,0 +1,1 @@
+Artículo 9°-Formularios. Los formularios relacionados a activos de propiedad, planta y equipo son los establecidos únicamente por el departamento de proveeduría en coordinación con el departamento contable.

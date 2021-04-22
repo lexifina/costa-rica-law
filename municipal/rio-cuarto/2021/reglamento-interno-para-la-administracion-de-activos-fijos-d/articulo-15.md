@@ -1,0 +1,2 @@
+Artículo 15.-Salida de bodega. El retiro de activos de propiedad, planta y equipo de bodegas será realizado por el encargado de activos o por quién este autorice mediante oficio. Es responsabilidad de los bodegueros o su similar remitir a la Dirección Administrativa
+Financiera el listado de salidas de activos de propiedad, planta y equipo del mes, en los primeros cinco (5) días hábiles del mes siguiente.

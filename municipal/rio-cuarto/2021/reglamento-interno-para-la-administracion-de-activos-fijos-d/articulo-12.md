@@ -1,0 +1,1 @@
+Artículo 12.-Lugar donde deben pernoctar los activos de propiedad planta y Equipo. Los activos de propiedad, planta y equipos móviles deberán pernoctar en las instalaciones de la Municipalidad a excepción de aquellos bienes que por situaciones especiales o por su naturaleza deban resguardarse fuera de las mismas con previa autorización del superior jerárquico respectivo.
