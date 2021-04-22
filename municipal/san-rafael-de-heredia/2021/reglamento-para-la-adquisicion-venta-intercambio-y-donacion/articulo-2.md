@@ -1,0 +1,1 @@
+Artículo 2º-Los canes donados se aceptarán únicamente cuando sean por parte de organismos de cooperación nacional o internacional, criaderos reconocidos y certificados, así como de otras entidades análogas, no de particulares que reúnan los requisitos aceptados y establecidos por la administración municipal.

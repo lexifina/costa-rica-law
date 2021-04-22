@@ -1,0 +1,1 @@
+Articulo Nº 11.-La Administración, previo a la venta y/o donación, contará con una constancia emitida por la jefatura de la policía municipal y la unidad k-9, que acredite la edad, procedencia, cumplimiento y próximas fechas de los protocolos de medicina preventiva, e información sobre los cuidados, necesidades básicas, importancia de la socialización y educación.

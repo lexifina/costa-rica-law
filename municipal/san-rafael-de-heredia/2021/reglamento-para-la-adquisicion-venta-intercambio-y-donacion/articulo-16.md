@@ -1,0 +1,1 @@
+Articulo Nº 16.-Sobre el acto de remate o venta. Antes de la hora señalada presentar el comprobante del recibo de la garantía de participación en original, mismo que les permitirá participar del acto.

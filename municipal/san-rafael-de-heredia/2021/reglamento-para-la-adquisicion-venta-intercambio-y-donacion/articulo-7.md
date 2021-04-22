@@ -1,0 +1,1 @@
+Artículo 7º-En caso de que algún can presente alguna enfermedad grave y de acuerdo a los criterios veterinarios es recomendable la eutanasia, se aplicará dicho procedimiento de acuerdo al artículo 16 del Reglamento para la Reproducción y Tenencia Responsable de Animales de Compañía, Nº 31626-S.

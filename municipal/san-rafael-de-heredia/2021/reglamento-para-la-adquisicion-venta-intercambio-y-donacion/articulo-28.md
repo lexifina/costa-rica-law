@@ -1,0 +1,1 @@
+Articulo Nº 28.-El precio del can para aplicar el artículo anterior será definido por o de acuerdo a un criterio técnico de especialista en canes de nuestra unidad y la dirección Administrativa Financiera previo visto bueno de la Alcaldía Municipal

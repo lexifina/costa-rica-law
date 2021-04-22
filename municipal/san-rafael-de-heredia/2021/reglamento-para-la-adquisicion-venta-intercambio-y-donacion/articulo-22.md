@@ -1,0 +1,1 @@
+Articulo Nº 22.-Devolución de garantía de participación. A los participantes no adjudicados se les devolverá, mediante depósito bancario a la cuenta que el oferente señaló en la inscripción de proveedores (puede ponerse en el formulario), el dinero en el transcurso de los 3 días hábiles siguientes.

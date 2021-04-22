@@ -1,0 +1,1 @@
+Artículo 6º-La reproducción de un can de la Unidad Canina Municipal, será analizada y autorizada por el oficial canino y la jefatura y dirección respectiva. Esta reproducción solo podrá responder a la necesidad u oportunidad de tener nuevos canes para uso de la unidad canina y para mantener la genética de los canes y previamente autorizada por la Alcaldía Municipal

@@ -1,0 +1,1 @@
+Articulo Nº 21.-Se documentará el acto de adjudicación, mediante la cual se dará fe del perro vendido, el precio en final y en donde se consignarán las incidencias relevantes de la apertura de ofertas calidades del adjudicatario y el lugar donde éste podrá ser localizado.

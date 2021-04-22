@@ -1,0 +1,1 @@
+Artículo Nº 33.-Sin excepción alguna de previo a la entrega del can y al momento mismo en que determina su retiro, realizar la castración quirúrgica bajo la responsabilidad de un Médico Veterinario. Así mismo, el can deberá entregarse con tratamiento contra Endo y ectoparásitos, y el cuadro completo de vacunas anuales al día.

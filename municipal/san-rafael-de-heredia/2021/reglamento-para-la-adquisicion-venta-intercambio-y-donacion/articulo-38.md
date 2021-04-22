@@ -1,0 +1,1 @@
+Artículo Nº38.-Finalizado el trámite previo de donación detallado anteriormente y verificado el cumplimiento de todos y cada una de los requisitos por parte de esta policía, se procederá con la elaboración del respectivo contrato en el que el adoptante aceptará las cláusulas antes descritas.

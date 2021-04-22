@@ -1,0 +1,1 @@
+Artículo 3º-Se escogerán prioritariamente, aquellas razas que sean idóneas para el tipo de labor a realizar (Pastor Alemán, Labrador Retriever, Golden Retriever, Belgian Malinois, Bloodhound, Pastor Holandés y perros mestizos o híbridos).

@@ -1,0 +1,1 @@
+Artículo Nº 37.-Una vez ejecutada la donación y entregado el can al nuevo propietario, se eximirá de cualquier tipo de responsabilidad Penal, Civil, Administrativa y otras a la Municipalidad de San Rafael de Heredia.

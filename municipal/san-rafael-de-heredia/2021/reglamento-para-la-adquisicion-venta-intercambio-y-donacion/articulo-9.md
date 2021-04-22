@@ -1,0 +1,1 @@
+Articulo Nº 9º-Los perros que se podrán vender, serán únicamente los perros que han nacido de algún can de la unidad canina y que no cumplan con las características y habilidades necesarias para la función de detección de drogas o guardia y protección, de acuerdo a una valoración de experto que se le debe realizar previamente al can.

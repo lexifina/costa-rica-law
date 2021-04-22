@@ -1,0 +1,1 @@
+Articulo Nº12.-Invitación. El Departamento de Proveeduría de la Municipalidad de San Rafael de Heredia, invitará a participar a la venta por remate por medio de los canales oficiales de comunicación municipal, conforme a lo que establece los artículos 101, 102 y/ 163 del Reglamento de Contratación Administrativa.

@@ -1,0 +1,2 @@
+Articulo Nº 19.-Rangos para la oferta: El rango que se establece para el ofrecimiento sobre el precio será determinado previamente por la Alcaldía Municipal previa recomendación de la unidad de loa policía municipal K9.
+Para ofrecer un monto, el participante deberá traer de forma física o mediante correo a la unidad de proveeduría, un documento formal donde presente su oferta, firmado debidamente por el participante.

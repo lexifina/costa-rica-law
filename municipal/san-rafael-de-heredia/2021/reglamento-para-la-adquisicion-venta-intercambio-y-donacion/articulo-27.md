@@ -1,0 +1,1 @@
+Articulo Nº 27.-Intercambio de perros. La Dirección Administrativa Financiera podrá realizar intercambio de un perro por productos, servicios u otro elemento que sea de la misma índole de la Unidad K-9 municipal, a saber, alimentos, medicinas, vacunas, entrenamiento profesional de canes, entre otros, previa autorización de la Alcaldía Municipal.
