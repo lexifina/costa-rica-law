@@ -1,0 +1,2 @@
+ARTÍCULO 20- Denuncia de sospecha por hostigamiento y acoso sexual a personas víctimas menores de edad
+Quien ejerza la dirección y el personal de las entidades deportivas, públicas o privadas, donde participen personas menores de edad, estarán obligados a denunciar ante el órgano interno de la organización deportiva cualquier sospecha razonable de acoso y hostigamiento sexual cometido contra personas menores de edad.

@@ -1,0 +1,2 @@
+ARTÍCULO 25- Normas supletorias
+Para todo lo que no se regula en la presente ley, si no existe incompatibilidad con este texto, se aplicarán supletoriamente en lo que concierna, el Código Civil, el Código Procesal Civil, el Código Penal, el Código Procesal Penal, la Ley 7476, Ley contra el Hostigam iento Sexual en el Empleo y la Docencia, de 3 de febrero de 1995, y las normas o los tratados ratificados por la Corte lnteramericana de Derechos Humanos.
