@@ -1,0 +1,4 @@
+ARTÍCULO 10- Garantía para quien denuncie y testifique
+Ninguna persona que haya denunciado ser víctima de acoso y hostigamiento sexual en el deporte o haya comparecido como testigo de las partes podrá sufrir, por ello, perjuicio personal alguno en su disciplina, ni en la entidad deportiva donde la practica.
+El incumplimiento ante esta prohibición será motivo de sanción emitida por el Instituto Costarricense del Deporte y Recreación (lcoder), hasta por diez salarios base, a la organización deportiva responsable, que serán depositados en la cuenta bancaria indicada por la víctima. El salario base deberá entenderse como la definición contenida en el artículo 2 de la Ley 7337, de 14 de mayo de 1993.
+El depósito indicado se depositará siempre y cuando exista resolución emitida por el órgano interno a favor de la víctima, dejando por finalizado la posible indemnización por daño moral en sede judicial.
