@@ -1,4 +1,0 @@
-CAPÍTULO III
-De la regulación a la perforación
-Artículo 9º—De las zonas de regulación a la perforación. Se entenderá como zona de regulación a la perforación de pozos, aquellas áreas en que por condiciones de vulnerabilidad a la capacidad máxima del acuífero, vulnerabilidad a la calidad del agua, o condiciones especiales, todo fundamentado en estudios técnicos realizados conforme metodología oficial dictada por el MINAET, así lo concluya. Para los citados estudios técnicos contará con el apoyo del Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA y el Instituto Costarricense de Acueductos y Alcantarillados (AyA), conforme a sus competencias de Ley.
-Las zonas de regulación deberán ser establecidas y reguladas por decreto ejecutivo del Ministerio de Ambiente, Energía y Telecomunicaciones (MINAET).
