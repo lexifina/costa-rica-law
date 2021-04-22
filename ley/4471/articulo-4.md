@@ -1,8 +1,4 @@
-#
-Artículo 4º.- La Ley de Presupuesto Ordinario de la República, en la
-parte correspondiente al Ministerio de Educación Pública, fijará las
-partidas necesarias para cubrir los sueldos de los señores profesores del
-Colegio y los gastos administrativos de la Institución, para lo cual el
-citado Ministerio, en la oportunidad legal respectiva, recabará el
-criterio escrito de la Junta antes dicha, para la fijación correspondiente
-a esas partidas.
+Artículo 4- Los gastos por remuneraciones del personal docente, técnico, docente administrativo y los gastos administrativos de la institución serán sufragados por el Ministerio de Educación Pública, para lo cual el citado ministerio, en la oportunidad legal respectiva, recabará el criterio escrito de la Junta Administrativa del Colegio de San Luis Gonzaga, para la fijación correspondiente de esas partidas.
+Se exceptúan, de lo señalado en el párrafo anterior, las remuneraciones y los gastos correspondientes a las actividades comerciales realizadas por el colegio o contratados por servicios profesionales, que deberán ser pagados por el colegio.
+De todos los recursos, el colegio dará cuenta a la Autoridad Presupuestaria y la Contraloría General de la República, en sus ámbitos de competencia.
+(Así reformado por el artículo único de la ley N° 9964 del 24 de marzo del 2021)
