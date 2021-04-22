@@ -1,0 +1,4 @@
+Artículo II.-Adiciónense dos nuevos artículos 28 y 29 a la "Normativa para regular el Programa de Atención Integral al Médico (PAIME)".
+Artículo 28.—En cualquiera de los casos de escritos en los artículos 24 y 25, el profesional deberá entregar a la Comisión PAIME, un informe en el que se explicitará, el control y seguimiento posterior al alta. El cual deberá estar debidamente firmado por el profesional. Dicho informe lo conocerá la Comisión PAIME, lo incluirá en el expediente y procederá al archivo del mismo.
+Artículo 29.—Excepciones. La Comisión podrá, previa consulta a la Junta de Gobierno, autorizar el ingreso o la continuidad del tratamiento a aquellos Médicos que se encuentren suspendidos por falta de pago de cuotas de la colegiatura.
+Articulo 30.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
