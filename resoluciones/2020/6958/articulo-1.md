@@ -53,6 +53,7 @@ B. Todos los sitios de reunión pública, que cuenten con su respectivo permiso 
 (Así reformada la disposición segunda anterior mediante resolución N° N° MS-DM-1700-2021 del 23 de febrero del 2021)
 TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura controlada con estricto cumplimiento de protocolos y medidas sanitarias para evitar la propagación del COVID-19, de los establecimientos que cuenten con permiso sanitario de funcionamiento que atienden al público, en un horario de lunes a domingo desde las 5:00 horas y hasta las 23:00 horas, respetando el cincuenta por ciento (50%) de su capacidad máxima de aforo. Se exceptúan de la restricción de horario y del cincuenta por ciento (50%) de su capacidad máxima de aforo las siguientes actividades:
 (Así reformado la disposición tercera anterior mediante resolución N° MS-DM-1700-2021 del 23 de febrero del 2021)
+(Nota de Sinalevi: Mediante resolución N° MS-DM-2768-2021 del 23 de abril del 2021 se acuerda reformar de forma temporal la franja horaria para que el horario de los establecimientos que atienden al público y cuenten con permiso sanitario de funcionamiento, a partir del 27 de abril y hasta el 16 de mayo de 2021, inclusive, sea desde las 5:00 horas y hasta las 21:00 horas)
 1. Servicios a domicilio.
 2. Alquiler de vehículos "rent a car".
 3. Alquiler de bicicletas.
@@ -87,7 +88,6 @@ CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de
 (Nota de Sinalevi: Mediante resolución N° MS-DM-1701-2021 del 23 de febrero del 2021 se reforma de forma temporal la franja horaria de la resolución MS-DM-69582020 y sus reformas, para que el horario de acceso a las playas a partir del 01 de marzo y hasta el 31 de marzo inclusive, sea desde las 5:00 horas y hasta las 18:00 horas)
 (Así reformado el inciso anterior por resolución N° MS-DM-8527-2020 del 14 de octubre del 2020)
 (Nota de Sinalevi: Mediante resolución N° MS-DM-2299-2021 del 24 de marzo del 2021 se reforma el horario de acceso a las playas a partir del 01 de abril y hasta el 30 de abril inclusive, sea desde las 5:00 horas y hasta las 18:00 horas
-(Nota de Sinalevi: Mediante resolución N° MS-DM-2771-2021 del 26 de abril del 2021 se establece reformar de forma temporal la franja horaria de la presente resolución. De conformidad con lo establecido en la indicada norma la misma empieza a regir a partir del 1° de mayo del 2021, por lo que a partir de esa fecha el horario de acceso a las playas a partir del 01 de mayo y hasta el 31 de mayo inclusive, sea desde las 5:00 horas y hasta las 18:00 horas)
 10. Deportes individuales, al aire libre o en espacio cerrado, sin público, según lista autorizada por el Ministerio del Deporte.
 11. Deportes de contacto para entrenamiento de las Selecciones Nacionales Femenina y Masculina de alta competencia; y competencias de la categoría de alto rendimiento o profesional, a puerta cerrada y sin público, según lista autorizada por el Ministerio del Deporte.
 12. Deportes de Contacto para entrenamientos individuales sin contacto o acercamiento físico, según lista autorizada por el Ministerio del Deporte.
