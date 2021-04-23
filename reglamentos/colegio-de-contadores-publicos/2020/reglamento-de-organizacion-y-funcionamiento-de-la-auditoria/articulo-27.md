@@ -1,0 +1,3 @@
+Artículo N° 27. Nombramiento del Auditor y Sub auditor Interno.
+El nombramiento del Auditor y Sub auditor Interno se hará de acuerdo a lo establecido en el artículo 31 de la Ley General de Control Interno y para su suspensión o remoción se considerará lo indicado en el artículo 15 de la Ley Orgánica de la Contraloría General de la República, así como lo establecido por el órgano contralor en la normativa correspondiente.
+La Junta Directiva del Colegio de Contadores Públicos de Costa Rica nombrará al Auditor y Sub auditor Interno por tiempo indefinido. En caso de determinarse la necesidad del nombramiento del Sub auditor Interno se considerará el criterio del Auditor Interno para su escogencia.

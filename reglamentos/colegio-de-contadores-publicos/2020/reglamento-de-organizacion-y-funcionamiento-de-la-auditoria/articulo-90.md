@@ -1,0 +1,2 @@
+Artículo N° 90. Acciones estratégicas.
+Se promoverán acciones y/ o coordinaciones estratégicas de capacitación entre la Auditoría Interna, con Instituciones como el Instituto de Auditores Internos de Costa Rica, la Contraloría General de la República, el Colegio de Contadores Públicos de Costa Rica y profesionales en el campo de la auditoría a nivel nacional e internacional, así como con universidades públicas y privadas.

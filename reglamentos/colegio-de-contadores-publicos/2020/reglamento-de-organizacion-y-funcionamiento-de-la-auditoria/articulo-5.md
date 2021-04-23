@@ -1,0 +1,2 @@
+Artículo N° 5. Responsabilidad sobre el control interno.
+La Junta Directiva y los titulares subordinados son los responsables del diseño, la implantación, la operación, la evaluación, el mejoramiento y el perfeccionamiento del sistema de control interno institucional, así como de realizar las acciones necesarias para garantizar su efectivo funcionamiento, de acuerdo con lo establecido en el artículo número 10 de la Ley General de Control Interno.

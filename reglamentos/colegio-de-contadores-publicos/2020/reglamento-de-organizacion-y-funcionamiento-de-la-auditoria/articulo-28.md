@@ -1,0 +1,2 @@
+Artículo N° 28. Requisitos y procedimientos mínimos en el nombramiento del Auditor y Sub auditor Interno.
+El Colegio de Contadores Públicos de Costa Rica y sus manuales institucionales de cargos y clases, deberán observar los requerimientos, condiciones y procedimientos mínimos que establecen los "Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República." emitidos por la Contraloría General de la República en Resolución R-DC-83-2018, sus modificaciones y en los que en el futuro emita dicho Órgano Contralor.

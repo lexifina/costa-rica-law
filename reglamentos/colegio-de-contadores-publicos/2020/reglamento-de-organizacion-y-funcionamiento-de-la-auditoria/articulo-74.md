@@ -1,0 +1,3 @@
+Artículo N° 74. Informe de presuntos hechos irregulares.
+Durante un proceso administrativo de carácter disciplinario, el informe de relación de hechos u otro informe elaborado por la Auditoría Interna deben ser considerados por el Órgano Director como elemento fundamental de apoyo en la investigación de hechos que pudieran ser contrarios al ordenamiento jurídico para que éste establezca las respectivas sanciones a los funcionarios que se presuman responsables; esto sin que el Órgano Director renuncie a sus potestades legales de establecer por sus propios medios, la verdad real de los hechos.
+La Auditoría Interna se ajustará a lo dispuesto por la Contraloría General de la República, en cuanto a los Lineamientos Generales para el análisis de presuntos hechos irregulares.

@@ -1,0 +1,2 @@
+Artículo N° 41. Protección al Personal de la Auditoría.
+Cuando el personal de la auditoría interna, en el cumplimiento de sus funciones, se involucre en un conflicto legal o una demanda, la institución dará todo su respaldo tanto jurídico como técnico y cubrirá los costos para atender el proceso hasta su resolución final.

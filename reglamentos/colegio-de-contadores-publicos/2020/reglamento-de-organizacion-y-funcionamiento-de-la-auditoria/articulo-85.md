@@ -1,0 +1,3 @@
+Artículo N° 85. Trámite de las denuncias.
+El Auditor Interno deberá evaluar si le da trámite a una denuncia presentada directamente o trasladada por la Contraloría General de la República, para la cual deberá considerar entre otros, la importancia o impacto del estudio y los recursos disponibles en la Auditoría Interna.
+Iniciada la investigación, la Auditoría Interna definirá los objetivos de la misma, partiendo de los hechos a investigar. Asimismo, deberá delimitar el alcance de la investigación, centrando los recursos disponibles en el caso concreto, sin que esto impida la inclusión de otras acciones que surjan del análisis de fondo, cuando a criterio del auditor existan otras valoraciones relacionadas con el caso que deban ser consideradas

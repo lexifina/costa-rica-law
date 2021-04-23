@@ -1,0 +1,5 @@
+SECCIÓN 6
+Atención de denuncias
+Artículo N° 77. Ámbito de competencia.
+La Auditoría Interna dará trámite a las denuncias que presenten funcionarios o particulares en materia de su competencia, según el artículo 8 de la Ley de Control Interno (Ley N° 8292),de conformidad con lo establecido en los Lineamientos Generales para el análisis de presuntos hechos irregulares, con sustento en normas de rango legal, específicamente la Ley General del Control Interno (Ley N° 8292) y la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública (Ley N° 8422), contra funcionarios o exfuncionarios del Colegio de Contadores Públicos de Costa Rica y particulares, cuando se refieran a posibles hechos irregulares, en relación con el uso y manejo de fondos del patrimonio institucional.
+Lo contemplado en el párrafo anterior no exime a la Administración Activa de recibir, tramitar e investigar denuncias que presenten funcionarios o particulares, ante las diferentes instancias responsables, por actuaciones o situaciones irregulares que se conozcan, sean de funcionarios, exfuncionarios y particulares

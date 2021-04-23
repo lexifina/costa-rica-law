@@ -1,0 +1,2 @@
+Artículo N° 47. Coordinación y requerimientos de personal especializado.
+El Auditor Interno coordinará lo correspondiente para que la Administración facilite la incorporación de profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a las auditorías que realice la auditoría interna. Todo de conformidad con los artículos 36 y 38 de este Reglamento.

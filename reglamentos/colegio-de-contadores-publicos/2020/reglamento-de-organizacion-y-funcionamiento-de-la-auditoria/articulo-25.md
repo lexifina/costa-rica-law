@@ -1,0 +1,2 @@
+Artículo N° 25. Jerarquía.
+Al Auditor interno le corresponderá la dirección superior y administración de la auditoría interna. Al sub auditor interno, cuando las condiciones estructurales así se requieran y responda a las condiciones presupuestarias, le corresponderá apoyar al auditor interno en el descargo de sus funciones y lo sustituirá en sus ausencias temporales y deberá responder ante él por su gestión.

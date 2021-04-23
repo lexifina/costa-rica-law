@@ -1,0 +1,2 @@
+Artículo N° 15. Comunicación de impedimentos.
+Si la independencia y objetividad se viese comprometida de hecho o en apariencia, los detalles del impedimento deben darse a conocer por escrito al jerarca y demás partes que correspondan.
