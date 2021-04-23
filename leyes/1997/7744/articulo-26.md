@@ -1,3 +1,3 @@
-Artículo 26.Normas supletorias
-Para los aspectos no regulados propiamente por esta ley, se aplicarán supletoriamente la Ley sobre la Zona Marítimo Terrestre y su Reglamento, la Ley General de la Administración Pública, la Ley de Contratación Administrativa y su reglamento y la Ley General de Arrendamientos Urbanos y Suburbanos, N.º 7527, de 10 de julio de 1995, y sus reformas. En todo caso, se respetarán los principios establecidos en esta Ley.
-(Así reformado por el artículo 2° de la ley N° 8969 del 7 de julio del 2011)
+Artículo 26- Tarifa de la licencia de charteo. Las embarcaciones de bandera extranjera autorizadas para brindar serv1c1os destinados al turismo náutico recreativo, como el charteo y afines, deberán contratar los servicios de una marina turística y pagar una licencia correspondiente al dos y medio por ciento (2,5%) sobre los ingresos brutos del servicio brindado.
+Dicho monto en favor del Estado costarricense será recaudado por Migración y Extranjería y será destinado a financiar las obligaciones establecidas en los artículos 3 bis y el inciso n) del numeral 2) del artículo 3 de la presente ley.
+(Así adicionado por el artículo 5° de la ley Impulso a las marinas turísticas y desarrollo costero, N° 9977 del 5 de abril del 2021)

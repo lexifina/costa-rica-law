@@ -17,7 +17,8 @@ j) Oficina administrativa del concesionario, en la que se lleve un registro de l
 k) Póliza de seguros que cubra la responsabilidad civil del concesionario.
 l) Parqueo con capacidad de operación.
 m) Instalaciones y servicios en tierra, que le permita atender las operaciones terrestres con la debida seguridad.
-n) Un área física sin costo alguno, que deberá ponerse a disposición de las instituciones del Estado, para el ejercicio de las competencias públicas, según corresponda.
+n) Un área física sin costo alguno, que deberá ponerse a disposición de las instituciones del Estado, para el ejercicio de las competencias públicas, según corresponda. Asimismo, el Estado deberá garantizar los funcionarios necesarios en esas áreas físicas para realizar los trámites que se requieran y de gestión en línea, de forma oportuna y expedita.
+(Así reformado el inciso anterior por el artículo 2° de la ley Impulso a la marinas turísticas y desarrollo costero, N° 9977 del 5 de abril del 2021)
 ñ) Edificios comerciales.
 o) Cumplir las disposiciones de la Ley N.º 7600, Igualdad de Oportunidades para las Personas con Discapacidad.
 3) Todo atracadero turístico deberá contar, como mínimo, con lo siguiente:
