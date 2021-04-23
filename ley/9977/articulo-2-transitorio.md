@@ -1,0 +1,1 @@
+TRANSITORIO II- Las personas físicas o jurídicas que construyeron y operan atracaderos turísticos tendrán un plazo de cuarenta y ocho meses para iniciar el trámite de aprobación de la concesión y el permiso de operación correspondiente, de acuerdo con el procedimiento simplificado establecido por la Comisión lnterinstitucional de Marinas y Atracaderos Turísticos (Cimat).

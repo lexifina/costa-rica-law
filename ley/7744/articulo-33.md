@@ -1,0 +1,3 @@
+Artículo 33.Normas supletorias. Para los aspectos no regulados propiamente por esta ley, se aplicarán supletoriamente la Ley sobre la Zona Marítimo Terrestre y su Reglamento, la Ley General de la Administración Pública, la Ley de Contratación Administrativa y su reglamento y la Ley General de Arrendamientos Urbanos y Suburbanos, N.º 7527, de 10 de julio de 1995, y sus reformas. En todo caso, se respetarán los principios establecidos en esta Ley.
+(Así reformado por el artículo 2° de la ley N° 8969 del 7 de julio del 2011)
+(Así modificada su numeración por el artículo 5° de la ley Impulso a las marinas turísticas y desarrollo costero, N° 9977 del 5 de abril del 2021, que lo traspaso del antiguo artículo 26 al 33)

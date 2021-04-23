@@ -1,0 +1,2 @@
+Artículo 31.-(Derogado por el artículo 264 de la Ley General de Migración y Extranjería, N° 8487 del 22 de noviembre de 2005, "Ley de Migración y Extranjería del 19 de agosto de 2009". Posteriormente vuelto a derogar por el artículo 267 de la Ley General de Migración y Extranjería, N° 8764 del 19 de agosto de 2009)
+(Así modificada su numeración por el artículo 5° de la ley Impulso a las marinas turísticas y desarrollo costero, N° 9977 del 5 de abril del 2021, que lo traspaso del antiguo artículo 24 al 31)

@@ -1,0 +1,3 @@
+TRANSITORIO III-En aquellos casos en que el plazo de una concesión ya otorgada sea menor al plazo establecido en el artículo 11 de la Ley 7744, Concesión y Operación de Marinas y Atracaderos Turísticos, de 19 de diciembre de 1997, reformado mediante el artículo 4 de la presnete ley, el concesionario podrá solicitar en cualquier momento el ajuste del plazo, el cual nunca podrá exceder el plazo máximo estipulado en dicho artículo. La prórroga o el ajuste del plazo podrán otorgarse siempre y cuando se cumplan los requisitos legales y reglamnetarios.
+Rige a partir de su publicación.
+Dado en la Marina Pez Vela, en el cantón de Quepos, provincia de Puntarenas, a los cinco días del mes de abril del año dos mil veintiuno.
