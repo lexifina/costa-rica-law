@@ -22,7 +22,7 @@ Nombre de la Autoridad Competente
 ICODER
 Estimados señores:
 La presente es para solicitarles el trámite de la subvención asignada a mi representada por el ICODER por el monto de ¢_________.00 (____ millones de colones 00/100).
-A continuación, la transcripción del acuerdo tomado por la Junta Directiva de Nombre del Sujeto Público o Privado en el cual se aprueba el Plan de Trabajo y el Presupuesto del aporte económico a nuestra entidad para el año 20__, mediante acuerdo de su sesión # _____, celebrada el ____ de ___________ del 20__: “Artículo _______, se conoce y aprueba el Plan de Trabajo y Presupuesto del aporte económico del ICODER, por el monto de ¢_____________ (______ millones de colones 00/100).” Lo anterior es transcripción del acuerdo tomado.
+A continuación, la transcripción del acuerdo tomado por la Junta Directiva de Nombre del Sujeto Público o Privado en el cual se aprueba el Plan de Trabajo y el Presupuesto del aporte económico a nuestra entidad para el año 20__, mediante acuerdo de su sesión # _____, celebrada el ____ de ___________ del 20__: "Artículo _______, se conoce y aprueba el Plan de Trabajo y Presupuesto del aporte económico del ICODER, por el monto de ¢_____________ (______ millones de colones 00/100)." Lo anterior es transcripción del acuerdo tomado.
 Dicho aporte será manejado exclusivamente en la cuenta # _____________________ del Banco Estatal Banco de Costa Rica, Banco Nacional o Banco Crédito Agrícola de Cartago), la cual tiene un saldo de ¢___________ por concepto de justificar el saldo.
 Atentamente,
 _________________________
@@ -46,31 +46,16 @@ a) Nombre: _____________________________________________________.
 b) Número de cuenta corriente: _____________________________________.
 c) Número de cuenta cliente (17 dígitos): _____________________________
 c) Formulario N° 3: Plan de Trabajo.
-FORMULARIO # 3
-PLAN DE TRABAJO
-Nombre del sujeto público o privado: ____________________________
-Período: ___________
-OBJETIVOS | METAS | ACTIVIDADES | * PARTIDA PRESUPUESTARIA | MONTO POR PARTIDA | MONTO TOTAL DE LA SUBVENCIÓN
-(Descripción objetivos) | (Deberá responder a la pregunta qué, cómo, cuándo y dónde) | (Acciones específicas para el cumplimiento de objetivo y metas) | (Partidas presupuestarias necesarias para cada actividad)
-| META 1 | ACTIVIDAD 1 | | |
-ACTIVIDAD 2 | |
-| | ACTIVIDAD 3 | | |
-| META 2 | ACTIVIDAD 1 | |
-ACTIVIDAD 2 | |
-ACTIVIDAD 3 | |
-Aprobado mediante acuerdo # _ de la sesión #___ de la Junta Directiva, celebrada el día: ___________________.
+(*)FORMULARIO # 3
+[imagen]
+(*)(Así reformado el formulario 3) anterior mediante sesión ordinaria N 1138-2020 del 23 de abril del 2021)
 d) Formulario N° 4: Presupuesto de ingresos y egresos por el monto solicitado
-FORMULARIO #4
-PRESUPUESTO DE EGRESOS PARA LA TRANSFERENCIA DEL ICODER DEL AÑO 20___
-Nombre del sujeto público o privado: _____________________________ Monto: ¢_________________-
-PARTIDAS PRESUPUESTARIAS | MONTO
-0. REMUNERACIONES: |
-1. SERVICIOS: |
-2. MATERIALES Y SUMINISTROS: |
-5. BIENES DURADEROS |
-6. TRANSFERENCIAS CORRIENTES: |
-TOTAL | ₡0,00
-Aprobado mediante acuerdo # ______ de la sesión #____________ de la Junta Directiva, celebrada el día: ___________________.
+(*)FORMULARIO #4
+FORMULARIO 4
+[imagen]
+[imagen]
+[imagen]
+(*)(Así reformado el formulario 4) anterior mediante sesión ordinaria N 1138-2020 del 23 de abril del 2021)
 e) Formulario N° 5: Declaración Jurada del Representante Legal de que cuentan con la estructura administrativa para la administración de los recursos a otorgar, que no existe compromiso previo sobre los mismos, que administrará los recursos en la cuenta bancaria específica reportada al ICODER y que se compromete a cumplir con los plazos establecidos para la liquidación de los recursos.
 FORMULARIO #5
 DECLARACIÓN JURADA
