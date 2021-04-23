@@ -1,0 +1,2 @@
+ARTÍCULO 9- El Ministerio de Obras Públicas y Transportes (MOPT) y las corporaciones municipales se arrogan la facultad de definir los criterios de priorización, considerando inicialmente nodos institucionales, centros educativos y de atención primaria.
+Entre sus funciones se encuentran brindar accesibilidad de manera segura a oportunidades de ocio, económicas, educativas y laborales, así como · habilitar actividades de socialización y disfrute de dichos espacios.

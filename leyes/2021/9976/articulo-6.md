@@ -1,0 +1,3 @@
+CAPÍTULO II
+GESTIÓN DE LA CALIDAD
+ARTÍCULO 6- En el trazado o diseño del trayecto de toda obra nueva o de mejoramiento de la red vial se deberá incorporar la infraestructura que garantice la movilidad peatonal segura e inclusiva. El Ministerio de Obras Públicas y Transportes (MOPT) deberá incorporar el trazado y diseño del trayecto peatonal en la ejecución de todos sus proyectos. En el caso de las corporaciones municipales se podrá definir la infraestructura peatonal vía reglamento municipal. A falta de reglamentos municipales e institucionales se adoptará la normativa técnica que apruebe el Instituto Nacional de Vivienda y Urbanismo (INVU).

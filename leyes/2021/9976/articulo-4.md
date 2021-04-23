@@ -1,0 +1,9 @@
+ARTÍCULO 4- Principios. La movilidad peatonal se basa en los siguientes principios:
+a) Movilidad inclusiva: consiste en la jerarquización de la movilidad segura y sostenible, estableciendo el orden de prioridad en el uso de espacios públicos y los distintos medios y modos de transporte. La jerarquización los ubica, por su orden, así: peatones, ciclistas, transporte público, transporte de carga, automóviles y demás medios de transporte.
+b) Protección a la vida: consiste en asegurar el principio constitucional de la inviolabilidad de la vida humana, consagrado en el artículo 21 de la Constitución Política de Costa Rica.
+c) Calidad de vida: busca garantizar un alto nivel de bienestar, de conformidad con lo establecido por la Constitución Política en el artículo 50, a través de un ambiente sano y ecológicamente equilibrado.
+d) Pacificación vial: principio que procura diseñar, operar y mantener las vías públicas con el fin de mejorar su seguridad y accesibilidad para todas las personas, así como disminuir la contaminación por ruido y de partículas en el aire.
+e) Integridad y accesibilidad: principio dirigido a uniformar todas las estructuras de movilidad peatonal, para asegurar la accesibilidad de todas las personas sobre la base de la igualdad y la inclusión.
+f) Paisajes urbanos: espacios urbanos y espacios peatonales horizontales generados a partir de patrones estándar para adecuarlos a los contextos humanos, culturales, sociales, económicos y entornos cantonales.
+g) Transparencia: asegurar el acceso a la información pública en los departamentos administrativos, de conformidad con el artículo 30 de la Constitución Política, para aumentar la certidumbre en cuanto al manejo y la distribución de los recursos asignados a los fines de esta ley.
+h) Coordinación interinstitucional: función de articular y conducir la actividad de todos los órganos y entes mencionados en el artículo 3, con competencia o vinculación a los objetivos de esta ley.

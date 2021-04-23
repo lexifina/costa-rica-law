@@ -1,0 +1,1 @@
+TRANSITORIO IV- Una vez publicada esta ley, las municipalidades tendrán un plazo de dos meses para socializar y dar a conocer los términos y alcances de la presente ley; una vez transcurridos estos dos meses se da por notificado las infracciones a esta ley, a la población en general.

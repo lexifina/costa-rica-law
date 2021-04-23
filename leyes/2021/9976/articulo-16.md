@@ -1,0 +1,6 @@
+ARTÍCULO 16- Por cualquier alteración o modificación de las aceras o vías peatonales en cuanto a geometría, anchos, niveles, acabados y materiales, sin previa autorización, se impondrá una sanción equivalente de medio salario base mensual del auxiliar 1 definido en el artículo 2 de la ley 7337, de 5 de mayo de 1993, a quien realice la alteración.
+La municipalidad podrá ejecutar las obras de reparación o sustitución de manera directa, de forma tal que el servicio no se vea afectado.
+Si la alteración fue realizada por el propietario o poseedor del inmueble frente al cual se encuentra la acera, posterior a la ejecución de las obras de reparación o sustitución, se le notificará al propietario registra! el costo efectivo de las obras y las sanciones, si las hubiera, en su domicilio o en el lugar que haya indicado para atender notificaciones.
+La sanción y el costo efectivo de las obras será incluido en la facturación de los tributos municipales.
+En materia de notificaciones aplica la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978, y supletoriamente lo dispuesto por la Ley 8687, Ley de Notificaciones Judiciales, de 4 de diciembre de 2008.
+En caso de reincidencia será castigado con una sanción equivalente de un salario base mensual del auxiliar 1 definido en el artículo 2 de la Ley 7337, de 5 de mayo de 1993.
