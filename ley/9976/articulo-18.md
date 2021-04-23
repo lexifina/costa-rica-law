@@ -1,0 +1,1 @@
+ARTÍCULO 18- Cuando las corporaciones municipales realicen obras de mantenimiento y por el grado de deterioro estimen necesaria la construcción de una nueva acera, podrán realizar el cobro definido en esta ley.

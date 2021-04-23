@@ -1,0 +1,1 @@
+ARTÍCULO 17- Las corporaciones municipales y el Ministerio de Obras Públicas y Transportes (MOPT) y sus consejos podrán eliminar cualquier obstáculo existente en las aceras o vías peatonales que dificulte o interrumpa de alguna forma la movilidad peatonal.
