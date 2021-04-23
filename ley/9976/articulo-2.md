@@ -1,0 +1,6 @@
+ARTÍCULO 2- Fines. Son fines de esta ley:
+a) Garantizar el derecho a una movilidad inclusiva, de forma integral en todos los entornos físicos, atendiendo el principio de igualdad.
+b) Atribuir, como competencia del Ministerio de Obras Públicas y Transportes (MOPT) y sus consejos, la construcción y el mantenimiento de las aceras y todos sus componentes en la red vial nacional.
+c) Trasladar a las corporaciones municipales, con carácter exclusivo, la gestión de las aceras en la red vial cantonal, lo que incluye el diseño, la construcción, la conservación, el señalamiento, la demarcación, la rehabilitación, el reforzamiento, la reconstrucción, la concesión y la operación de este espacio, que incluye tanto las aceras propiamente como todos los elementos de las infraestructuras peatonales necesarios para asegurar una movilidad inclusiva, como infraestructura verde, iluminación y otros elementos, y considerando los criterios de accesibilidad contemplados por la Ley 7600, Igualdad de Oportunidades para las personas con discapacidad, de 2 de mayo de 1996.
+d) Establecer las normas legales que permitan a los entes municipales la planificación, la administración, el mantenimiento y el financiamiento de las aceras.
+e) Introducir los planes cantonales de movilidad sostenible como un instrumento de planificación de acatamiento obligatorio para el sector municipal.
