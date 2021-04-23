@@ -1,6 +1,6 @@
 # Ley sobre la Zona Marítimo Terrestre
 
-Ley N° 6043 del 1977-03-02. SINALEVI, ficha 32006: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32006&param2=124709&param3=1>.
+Ley N° 6043 del 1977-03-02. SINALEVI, ficha 32006: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32006&param2=125181&param3=1>.
 
 Publicada en La Gaceta N° 52 del 1977-03-16.
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 9 | 2014-04-25 | Ley 9221 | 2014-03-27 |
 | 6 de 9 | 2020-01-28 | Ley 9780 | 2019-12-19 |
 | 7 de 9 | 2021-03-10 | Ley 9946 | 2021-02-15 |
+| 8 de 9 | 2021-04-23 | Ley 9974 | 2021-04-09 |
