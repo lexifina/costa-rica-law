@@ -1,1 +1,0 @@
-Artículo 10°.—Con la publicación del presente Reglamento se deroga la Circular DCA-025-2002, “Políticas para contratación y adjudicación de procesos por escasa cuantía (Contratación Directa)”, en la parte que corresponda a los procedimientos de escasa cuantía.
