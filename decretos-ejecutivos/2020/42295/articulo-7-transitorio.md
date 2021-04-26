@@ -1,4 +1,5 @@
-TRANSITORIO VII.- Durante los días sábado y domingo en el período comprendido entre las 05:00 horas y las 22:59 horas, no se permitirá el tránsito vehicular en todo el territorio nacional según el número final (último dígito) de la placa de circulación vehicular o del permiso especial de circulación AGV, conforme se detalla a continuación
+TRANSITORIO VII.- Durante los días sábado y domingo en el período comprendido entre las 05:00 horas y las 20:59 horas, no se permitirá el tránsito vehicular en todo el territorio nacional según el número final (último dígito) de la placa de circulación vehicular o del permiso especial de circulación AGV, conforme se detalla a continuación
+(Así reformado por el artículo 3° del decreto ejecutivo N° 42986 del 26 de abril de 2021)
 Día | Restricción para circular según el último dígito de la placa de circulación vehicular o del Permiso especial de circulación AGV
 Sábado | Placa o permiso AGV que finalice en 1, 3, 5, 7 y 9
 Domingo | Placa o permiso AGV que finalice en 2, 4, 6, 8 y 0
