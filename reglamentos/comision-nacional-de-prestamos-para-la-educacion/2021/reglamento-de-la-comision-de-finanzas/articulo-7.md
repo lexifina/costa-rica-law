@@ -1,0 +1,1 @@
+Artículo 7º-De las sesiones. Las sesiones ordinarias de la Comisión de Finanzas se realizarán una vez por mes y extraordinariamente cuando así se convoque por el Presidente o al menos tres de sus miembros. Las sesiones se podrán realizar de manera presencial, virtual o por otro medio tecnológico autorizado previamente por la Institución.

@@ -1,0 +1,1 @@
+Artículo 8º-Inicio de sesiones. Las sesiones deben iniciarse a más tardar quince minutos después de la hora convocada, excepto cuando la inexistencia de quórum así lo impida o bien cuando al existir quorum la totalidad de los miembros presentes, acuerde postergar el inicio de la sesión.

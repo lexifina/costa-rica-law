@@ -1,0 +1,1 @@
+Artículo 2º-De la Naturaleza. La Comisión de Finanzas, es un órgano que coadyuva con la administración superior, en la definición y orientación de las principales acciones financieras estratégicas en CONAPE.

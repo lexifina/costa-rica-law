@@ -1,0 +1,2 @@
+Artículo 10.-De la votación. Los miembros de la Comisión de Finanzas votarán afirmativa o negativamente, no siendo permitido abstenerse de votar, no obstante cuando un miembro desee estudiar más el asunto de que se trate, a petición suya el Presidente postergará la votación, por una sola vez, para realizarla en la sesión siguiente.
+Cuando se trata de asuntos urgentes, la Comisión de Finanzas podrá acordar que la votación se efectúe de inmediato, sobre el tema sometido a conocimiento excepto que este se encuentre fuera del orden del día.
