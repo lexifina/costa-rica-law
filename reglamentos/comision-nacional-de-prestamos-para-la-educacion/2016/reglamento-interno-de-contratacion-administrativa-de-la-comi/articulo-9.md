@@ -1,3 +1,0 @@
-Artículo 9º—Del inicio del trámite de compra. El trámite de contratación será iniciado mediante solicitud de contratación en sistema integrado de compras públicas. Las excepciones aplicables serán tramitadas en formulario de Solicitud de Compra.
-Para toda compra se deberá cumplir lo normado en artículo 8 del Reglamento a la Ley de Contratación Administrativa (estimación del objeto requerido, especificaciones técnicas, razonabilidad del precio para compras superiores a 5 millones de colones, todo como documentos anexos a la solicitud en Sistema Integrado de Compras Públicas). La solicitud de contratación será autorizada en sistema por la jefatura de la unidad solicitante.
-(Así reformado en sesión celebrada el 30 de abril de 2018)
