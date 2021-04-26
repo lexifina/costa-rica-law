@@ -14,3 +14,4 @@ Reglamento de Compras y Contrataciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-09 | la propia norma |
+| 2 | 2021-04-26 | Reglamento 0 (2021-04-26) |
