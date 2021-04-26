@@ -1,0 +1,13 @@
+Artículo 17 bis.-Programas de emisiones de deuda de corto plazo de intermediarios financieros sujetos a la fiscalización de la SUGEF. Los intermediarios financieros sujetos a la fiscalización de la SUGEF que estén inscritos en el Registro Nacional de Valores e Intermediarios podrán inscribir programas de emisiones de deuda de corto plazo (papel comercial). Para su autorización e inscripción, aplican las condiciones y requisitos establecidos en el inciso 3 del artículo 17 anterior, así como las disposiciones y operativa siguientes:
+1. Disposiciones:
+a. Las características de cada una de las emisiones que formarán parte del programa, se podrán definir y comunicar de manera posterior al registro de este, por medio de un Comunicado de Hecho Relevante a más tardar el mismo día de la colocación.
+b. Se exceptúa al emisor de informar la convocatoria de colocación de estas emisiones. Para efectos de la colocación no aplican los incisos a), b) y c) del artículo 42 de este Reglamento.
+c. Las emisiones se pueden inscribir por el monto colocado o por un monto superior.
+2. Operativa: Con el propósito de lograr un proceso expedito, el intermediario financiero, el anotador en cuenta, la entidad codificadora del código ISIN, deberán atender lo siguiente:
+a. El emisor debe remitir a la SUGEVAL un Comunicado de Hecho Relevante con las características de la emisión definidas, con excepción del código ISIN.
+b. A partir del Comunicado de Hecho Relevante remitido por el emisor, la entidad codificadora asigna el código ISIN a la emisión y lo remite a la SUGEVAL para la inscripción en el RNVI y al emisor.
+c. El emisor informa al anotador en cuenta respectivo, la distribución contable que debe aplicar a la emisión cuando se realice una colocación directa, de conformidad con el procedimiento que definan las entidades de anotación en cuenta.
+d. El emisor deberá considerar para la colocación respectiva, los horarios y procedimientos establecidos por el organizador de mercado, para el registro o carga de los precios en los servicios de información que brinda y en los sistemas de negociación.
+e. En caso de las colocaciones directas (cuando no se utilicen los sistemas transaccionales de una bolsa de valores) o por medio de contratos de suscripción, el emisor debe remitir el reporte de colocación respectivo, en los plazos y condiciones definidos mediante Acuerdo de alcance general. Esta disposición también aplica para el caso de colocaciones posteriores de una misma emisión.
+Los emisores que opten por inscribir los productos indicados en este artículo deberán acatar las condiciones establecidas en los artículos 9 y 11. El trámite se regirá por lo dispuesto en los artículos 41 y 141.
+(Así adicionado en sesión N° 168 del 26 de abril del 2021)

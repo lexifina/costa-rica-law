@@ -26,3 +26,4 @@ Reglamento de Oferta Pública de Valores
 | 11 | 2016-06-17 | Reglamento 1259 (2016-06-17) |
 | 12 | 2020-02-24 | Reglamento 1560 (2020-02-24) |
 | 13 | 2020-11-16 | Reglamento 1620 (2020-11-16) |
+| 14 | 2021-04-26 | Reglamento 1658 (2021-04-26) |
