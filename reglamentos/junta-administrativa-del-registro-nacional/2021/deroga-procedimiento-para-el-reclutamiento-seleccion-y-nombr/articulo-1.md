@@ -1,0 +1,3 @@
+JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+ACUERDO
+La Junta Administrativa del Registro Nacional, mediante Acuerdo Firme J071-2021, tomado en la Sesión N°05-2021, celebrada de manera ordinaria el 4 de marzo del 2021 y Acuerdo Firme J100-2021, tomado en la Sesión N° 07-2021, celebrada de manera ordinaria el 25 de marzo del 2021, acordó aprobar la Derogatoria del "Procedimiento para el reclutamiento, selección y nombramiento del Auditor (a) Interno del Registro Nacional", publicado en el Alcance digital N° 24 de 1 de febrero 2017 y la Fe de erratas a dicho procedimiento, publicado en el Diario Oficial La Gaceta N° 35, del viernes 17 de febrero del 2017.-Dirección Administrativa, Georgina Paniagua Ramírez, Directora Administrativa a. í.
