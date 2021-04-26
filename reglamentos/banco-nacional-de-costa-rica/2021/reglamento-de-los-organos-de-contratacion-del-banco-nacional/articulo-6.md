@@ -1,6 +1,0 @@
-Artículo 6°—Conformación del Comité y Subcomité de Licitaciones. El CL y el SCL estarán integrados por tres miembros propietarios y dos suplentes nombrados por el Gerente General.
-En el acto de nombramiento deberá indicar quien fungirá como presidente de cada uno de los órganos y quien como suplente en el caso de ausencia del presidente.
-En ausencia de disposición sobre quien preside las sesiones en ausencia del presidente por parte de la Gerencia en su nombramiento, el presidente será nombrado para esa sesión de entre los miembros presentes de acuerdo con los artículos 49, siguientes y concordantes de la Ley General de Administración Pública.
-La Jefatura de la Oficina de Compras de Productos y Servicios fungirá como secretario del CL y el SCL y deberá participar en las sesiones de estos comités con voz, pero sin voto.
-El CL y el SCL contarán con la asesoría de un abogado de la Dirección Jurídica, quien deberá participar en las sesiones con voz, pero sin voto.
-Con el fin de asesorarse, el CL y el SCL podrán solicitar los estudios y análisis técnicos y financieros que estimen necesarios; asimismo, podrán solicitar la participación en las sesiones del personal técnico y administrativo que se requiera, quienes tendrán la obligación de emitir sus criterios en forma razonada y responsable como sustento de la decisión correspondiente.

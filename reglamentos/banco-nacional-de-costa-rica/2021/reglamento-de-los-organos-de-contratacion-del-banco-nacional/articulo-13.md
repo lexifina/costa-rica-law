@@ -1,3 +1,0 @@
-Artículo 13.—Actas del Comité y Subcomité de Licitaciones. De cada sesión se levantará un acta con indicación de los asistentes, lugar, hora de inicio y de conclusión, los puntos principales de las deliberaciones, la forma y el resultado de la votación y el contenido de los acuerdos.
-Las actas se aprobarán en la siguiente sesión ordinaria y antes de ello, los acuerdos carecerán de firmeza, a menos que, los miembros presentes, por votación de al menos dos tercios, acuerden declarar su firmeza.
-Dichas actas serán firmadas por el presidente y por aquellos miembros que hubieren hecho su voto disidente de conformidad con lo dispuesto en el artículo 56 de la Ley General de la Administración Pública.
