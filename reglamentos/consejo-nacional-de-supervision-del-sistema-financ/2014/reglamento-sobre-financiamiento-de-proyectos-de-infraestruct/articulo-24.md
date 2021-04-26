@@ -1,4 +1,5 @@
-Artículo 24.—Calificación de riesgo. En el caso de valores de contenido crediticio o mixtos se debe presentar una copia de la calificación otorgada a la emisión por una empresa calificadora de riesgo inscrita en el RNVI.
+Artículo 24.-Calificación de riesgo. En el caso de valores de contenido crediticio o mixtos se debe presentar una copia de la calificación otorgada a la emisión por una empresa calificadora de riesgo inscrita en el RNVI. Esta información no será necesaria para que la SUGEVAL autorice la oferta pública de la emisión, pero deberá comunicarse mediante Hecho Relevante a más tardar al momento de realizar la convocatoria de la colocación respectiva.
+(Así reformado el párrafo anterior en sesión N° 1658 del 26 de abril del 2021)
 La carta de la sociedad calificadora deberá estar firmada por su representante legal y contener al menos la siguiente información:
 a. Identificación de la emisión calificada.
 b. Calificación otorgada a la emisión y su significado.
