@@ -1,2 +1,0 @@
-Artículo 26. El incumplimiento de deberes de lo dispuesto en los artículos 23, 24 y 25 del presente Reglamento, se considerará falta al deber de diligencia, para lo cual se recomendará en forma escrita al máximo titular de la Dirección General de Operaciones, con el visto bueno del Director (a) de Recursos Materiales, la aplicación de la sanción prevista en el artículo 96 inciso h) de la Ley de Contratación Administrativa.7
-7 Ver la norma de referencia en el artículo 13 del presente Reglamento.

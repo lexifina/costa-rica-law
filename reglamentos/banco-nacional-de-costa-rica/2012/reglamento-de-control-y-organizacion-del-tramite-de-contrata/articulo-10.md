@@ -1,1 +1,0 @@
-Artículo 10. Una vez elaborado el borrador del cartel o pliego de condiciones, la persona designada por parte de la Proveeduría General, lo enviará a la oficina usuaria para contar con su aprobación técnica al documento.

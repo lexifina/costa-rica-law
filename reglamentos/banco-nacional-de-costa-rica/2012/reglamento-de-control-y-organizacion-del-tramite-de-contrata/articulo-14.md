@@ -1,1 +1,0 @@
-Artículo 14. La versión final del cartel o pliego de condiciones será remitida por el Asesor de Contratación Administrativa a aprobación del Órgano que le compete en razón del tope económico del negocio jurídico que respalda.
