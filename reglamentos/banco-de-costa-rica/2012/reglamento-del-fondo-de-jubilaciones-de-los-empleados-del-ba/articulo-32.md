@@ -1,1 +1,2 @@
-Artículo 32.—Principios aplicables a la interpretación del Reglamento. Para efectos de interpretar el presente Reglamento y la distribución de los beneficios en él regulados, aplicarán los principios de suficiencia, sostenibilidad, y los demás propios y conexos de los regímenes de Jubilaciones complementarias. En todo caso se tomará en cuenta el interés de la colectividad y no el particular, de modo que la duda se resolverá en favor del Fondo.
+Artículo 32. Planes de Beneficio
+Las modalidades de desacumulación que podrán adquirirse son las incluidas en la normativa de capitalización individual vigente.

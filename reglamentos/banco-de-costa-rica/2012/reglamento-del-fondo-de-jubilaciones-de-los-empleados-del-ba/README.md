@@ -14,3 +14,4 @@ Reglamento del Fondo de Jubilaciones de los empleados del Banco de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-02 | la propia norma |
+| 2 | 2021-04-27 | Reglamento 18 (2021-04-27) |

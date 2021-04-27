@@ -1,0 +1,4 @@
+Artículo 41. Consultas y Plebiscito
+Cuando la Junta Administrativa considere tomar una decisión que pueda afectar la colectividad del Fondo o bien, existan temas de fondo relacionados a beneficios, rendimientos, irregularidades, riesgos o cualquier otro que no sea de forma, podrá efectuar consultas o realizar plebiscitos sobre el tema.
+Adicionalmente, las personas trabajadoras del banco podrán solicitar a la Junta Administrativa la realización de un plebiscito siempre y cuando cuenten al menos con la anuencia del 10% de la población mediante firmas en la petitoria.
+Lo anterior, de acuerdo con las Disposiciones Administrativas para la elección de representantes laborales ante la Junta Administrativa y para la realización de plebiscito del Fondo de Jubilaciones de los Empleados del Banco de Costa Rica, que para esos procesos se haya establecido.

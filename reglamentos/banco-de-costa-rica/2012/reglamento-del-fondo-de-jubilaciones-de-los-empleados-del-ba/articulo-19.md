@@ -1,3 +1,3 @@
-CAPÍTULO III
-Financiamiento del Fondo y prestaciones que otorgará
-Artículo 19.—Del Modelo base de financiamiento. El Fondo se basa en un modelo de financiamiento de capitalización individual, que consiste en administrar los ingresos del Fondo por medio de cuentas individuales, donde en cada cuenta se consigna de manera contable, el monto acumulado por el trabajador por concepto de cotización y los rendimientos obtenidos debido a la inversión de sus aportes.
+Artículo 19. De las funciones, atribuciones y responsabilidades de los Suplentes de la Junta Administrativa
+1. Sustituir al representante titular que le corresponde en caso de ausencia temporal o bien asumir el puesto en caso de ausencia permanente.
+2. Emitir su opinión, de cualquier iniciativa, propuesta o situación que lo requiera, dejando evidencia de su postura.

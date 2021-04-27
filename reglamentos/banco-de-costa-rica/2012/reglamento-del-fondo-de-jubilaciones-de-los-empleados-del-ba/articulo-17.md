@@ -1,3 +1,3 @@
-SECCIÓN IV
-De la contabilidad y fiscalización
-Artículo 17.—De la contabilidad y fiscalización. La contabilidad del Fondo será llevada por la Operadora, de acuerdo con los lineamientos del contrato respectivo y la práctica contable. Las revisiones periódicas se efectuarán conjuntamente con las que se realizan al Banco o cuando la Junta Administrativa así lo requiera, todo de conformidad con lo que dispone el Reglamento para la Regulación de los Sistemas de Pensiones Complementarias, creados por Ley Especial o Convención Colectiva y los Regímenes Públicos Sustitutos del Régimen de IVM al particular.
+Artículo 17. De las funciones, atribuciones y responsabilidades del Tesorero de la Junta Administrativa.
+1. Velar por el cumplimiento de la contabilidad, inversiones, procesos de riesgo y actuariales, de forma que se conozca la situación de las finanzas del fondo. Para todo lo anterior se apoyará con la estructura administrativa existente o bien con el gestor o la estructura que la entidad contratada provea, en caso de haberse delegado la administración del Fondo.
+2. Emitir su opinión y voto para aprobar, rechazar o abstenerse, de cualquier iniciativa, propuesta o situación que lo requiera, dejando evidencia de su postura.

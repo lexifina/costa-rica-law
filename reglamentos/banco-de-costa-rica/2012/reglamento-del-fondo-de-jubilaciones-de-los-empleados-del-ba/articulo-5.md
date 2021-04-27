@@ -1,4 +1,6 @@
-Artículo 5º—De los Órganos del Fondo. Son órganos del Fondo:
-a. La Junta Administrativa.
-b. Cualquier otro órgano que la regulación establezca cuando así se disponga.
-c. Cuando el fondo sea administrado por una operadora de pensiones complementarias, los órganos de ésta serán los del Fondo, cuando sea reglamentariamente permitido.
+Capítulo II
+Administración y organización del Fondo
+Sección I
+Estructura del Fondo
+Artículo 5. De la administración del Fondo
+El Fondo será administrado por una Junta Administrativa y la administración financiera y operativa podrá ser delegada a una entidad administradora debidamente autorizada.

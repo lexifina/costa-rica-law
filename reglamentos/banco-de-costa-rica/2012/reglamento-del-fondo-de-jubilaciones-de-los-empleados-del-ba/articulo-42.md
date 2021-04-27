@@ -1,0 +1,4 @@
+Artículo 42. De las reformas al Reglamento
+La Junta Administrativa cuenta con la potestad para proponer modificaciones al presente Reglamento.
+Las modificaciones que afecten la continuidad o permanencia del régimen, deben ser aprobadas por el 60% de las personas trabajadoras presentes en la votación mediante el plebiscito, conforme a lo establecido en las Disposiciones Administrativas para la elección de representantes laborales ante la Junta Administrativa y para la realización de plebiscito del Fondo de Jubilaciones de los Empleados del Banco de Costa Rica.
+El presente Reglamento y las reformas que se aprueben en el futuro, para su eficacia deben ser aprobados por la Junta Directiva General del Banco dejando sin efecto el anterior y cualquier otra disposición de inferior o igual rango que se le oponga.

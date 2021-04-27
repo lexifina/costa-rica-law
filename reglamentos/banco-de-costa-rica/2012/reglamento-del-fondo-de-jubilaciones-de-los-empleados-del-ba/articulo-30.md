@@ -1,1 +1,6 @@
-Artículo 30.—De las consecuencias de brindar información falsa. Cuando se compruebe que se ha incumplido cualquier disposición de este reglamento o se ha suministrado información falsa con el fin de gozar de los beneficios que concede éste, se cancelará el otorgamiento de los beneficios acordados y se exigirá la recuperación inmediata de los montos concedidos de más junto con sus daños y perjuicios, además de ejercer las acciones penales y civiles que corresponde en la vía judicial. Para la comprobación de las causales aquí indicadas, se respetará el debido proceso, siguiendo el procedimiento ordinario señalado por la Ley de la Administración Pública, sin perjuicio de lo resuelto en otras instancias.
+Artículo 30. De las pensiones que pagará el Fondo
+El Fondo considera el pago de los siguientes tipos de pensiones:
+a. Una pensión por vejez, según las modalidades de pensión establecidas en el artículo 32.
+b. Una pensión por invalidez, según las modalidades de pensión establecidas en el artículo 32.
+c. Una pensión por enfermedad terminal, según las modalidades de pensión establecidas en el artículo 32.
+d. Una pensión por sobrevivencia a los derechohabientes en caso de muerte del titular.

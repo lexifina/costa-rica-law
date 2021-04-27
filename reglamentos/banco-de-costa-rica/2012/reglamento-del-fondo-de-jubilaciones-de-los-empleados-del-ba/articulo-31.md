@@ -1,5 +1,3 @@
-CAPÍTULO V
-De las reformas al reglamento
-y principios aplicables para su interpretación
-Artículo 31.—De la ratificación por parte de la Junta Directiva General del Banco. La Junta cuenta con la potestad para modificar el presente Reglamento. No obstante las modificaciones que afecten la continuidad o permanencia del régimen, deberán ser aprobadas por el 60% de los miembros presentes en la votación que se realice al efecto, por medio de sufragio escrito, secreto y directo.
-El presente Reglamento y las reformas que se aprueben en el futuro, para su eficacia deberán ser ratificados por la Junta Directiva General del Banco.
+Artículo 31. Definición de la modalidad de pensión por vejez, invalidez o enfermedad terminal a partir del 18/02/2000.
+Las personas trabajadoras del Banco, deben contratar retiros programados o rentas permanentes cuando al momento de enviar la notificación referida en el artículo 29 de este reglamento a la Gerencia Corporativa de Capital Humano.
+La Operadora realiza el cálculo mensual del monto de la pensión a recibir, determinado por un retiro programado personal y éste sea igual o mayor al porcentaje comparativo establecido en el Reglamento de Beneficios del Régimen de Capitalización Individual emitido por CONASSIF, respecto del monto de la pensión otorgada por el Régimen Básico al que pertenece la persona trabajadora. De no ser el caso, estas personas trabajadoras podrán adquirir ya sea una de las modalidades de pensión descritas más adelante o bien realizar un retiro total del capital acumulado en la cuenta individual del FJBCR.

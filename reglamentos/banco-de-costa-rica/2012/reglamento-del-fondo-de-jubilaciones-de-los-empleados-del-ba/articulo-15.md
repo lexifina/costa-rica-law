@@ -1,6 +1,5 @@
-SECCIÓN III
-Del Comité de Inversiones y Comité de Riesgos
-Artículo 15.—Del Comité de Inversiones y Comité de Riesgo. La Junta Administrativa contará con un Comité de Inversiones y Comité de Riesgos integrado cada uno por dos de sus miembros, el (la) Administrador del Fondo y un miembro ajeno a la entidad.
-Este Comité operará de acuerdo con los lineamientos del Reglamento de Inversiones de las Entidades Reguladas.
-En caso de que la administración del Fondo haya sido delegada en una Operadora de Pensiones Complementaria, el Comité de Inversión y Comité de Riesgos que funcione será el de la Operadora seleccionada, con las mismas atribuciones y obligaciones determinadas para dichos Comités.
-En los Comités mencionados se estará integrando un miembro de Junta Administrativa. (Conforme con el inciso g del artículo 13).
+Artículo 15. De las funciones, atribuciones y responsabilidades del Presidente de la Junta Administrativa.
+1. Presidir las sesiones de la Junta Administrativa.
+2. Representar a la Junta Administrativa en lo referente a correspondencia y gestiones o consultas entrantes. Asimismo, representará con su firma a la Junta administrativa, en aquellas gestiones y correspondencia, que por plazo deban ser contestadas antes de cualquier sesión ordinaria y que por su poca relevancia no amerite una sesión extraordinaria. Cualquier gestión efectuada, debe ser informada a la Junta Administrativa en la siguiente sesión. Para todo lo anterior se apoyará con la estructura administrativa existente o bien con el gestor o la estructura que la entidad contratada provea, en caso de haberse delegado la administración del Fondo.
+3. Convocar a las sesiones ordinarias o extraordinarias, según lo establecido en el artículo 12 de este reglamento.
+4. Emitir su opinión y voto para aprobar, rechazar o abstenerse, de cualquier iniciativa, propuesta o situación que lo requiera, dejando evidencia de su postura.

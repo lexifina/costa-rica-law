@@ -1,3 +1,4 @@
-Artículo 25.—Distribución de la cuenta individual e indemnización por muerte del trabajador. Todos los empleados pertenecientes al Fondo deberán comunicar a la Junta Administrativa del Fondo de Pensiones el nombre y calidades del beneficiario para que reciba las sumas individualizadas a su favor en caso de fallecimiento antes de pensionarse.
-Los cambios de beneficiario para que sean válidos deberán de ser comunicados por escrito al administrador del Fondo de Jubilaciones de los Empleados del Banco de Costa Rica.
-En caso de que después de tres meses de la muerte de un trabajador miembro del Fondo, los beneficiarios designados por él no gestionen el efectivo cobro de esta indemnización, se le dará al monto acumulado en la cuenta individual del trabajador fallecido, el tratamiento establecido en el artículo 85 del Código de Trabajo.
+Capítulo III
+Financiamiento del Fondo y beneficios que otorgará
+Artículo 25. Del Modelo base de financiamiento
+El Fondo se basa en un modelo de financiamiento de capitalización individual, que consiste en administrar los ingresos del Fondo por medio de cuentas individuales, donde en cada cuenta se consigna de manera contable, el monto acumulado por la persona trabajadora por concepto de cotización y los rendimientos obtenidos por la inversión de sus aportes.

@@ -1,4 +1,6 @@
-Artículo 22.—De la constitución de la Reserva. La reserva estará constituida por la Cuenta de Capitalización Individual conformada por:
-a. Por la acreditación en la cuenta individual de los aportes del 10% que hace el Banco al Fondo, sobre el total de salarios de cada trabajador.
-b. El aporte del 0,5% del salario ordinario, que hace al Fondo cada trabajador integrante de éste, a su cuenta individual, según se establece en el artículo 20 del presente Reglamento.
-c. Las utilidades provenientes de las inversiones en valores. Estas sumas se acreditarán, en proporción a las sumas que el afiliado tenga individualizadas.
+Artículo 22. Funciones del Comité de Inversiones y Comité de Riesgos
+Los comités de inversiones y riesgos, velarán porque las inversiones y los rendimientos del Fondo, se ajusten a las recomendaciones actuariales, se realicen procurando el equilibrio necesario entre seguridad, rentabilidad y liquidez, respetando los límites fijados por la ley y las normas reglamentarias que emita el Consejo Nacional de Supervisión del Sistema Financiero, el Reglamento para la Regulación de los Sistemas de Pensiones Complementarias, creados por Ley Especial o Convención Colectiva y los Regímenes Públicos Sustitutos del Régimen de IVM y las disposiciones que sobre el particular emita la Supen. Así como cualquier otro que se establezca para este tipo de fondos de pensiones.
+Para lograr lo anterior estos Comités se encargarán de:
+a. Asesorar a la Junta Administrativa para la definición de las políticas de inversiones y de riesgos buscando los medios óptimos y eficaces para obtener los rendimientos del fondo.
+b. Colaborar con la Junta Administrativa en el establecimiento de las pautas sobre la diversificación de la cartera de inversiones, respetando las disposiciones establecidas en la Ley de Protección al Trabajador y demás leyes que regulen la materia.
+c. Realizar y mantener actualizado el instructivo para el manejo de las inversiones y del Fondo; el cual debe contar con la aprobación de la Junta Administrativa.
