@@ -1,0 +1,1 @@
+Artículo 11.-Se aprueban los siguientes reglamentos E066, E067, E068 según acuerdo de Junta Directiva JD-192, correspondiente al Capítulo III), artículo 5) de la sesión extraordinaria 21-2021, celebrada el 08 de abril de 2021.
