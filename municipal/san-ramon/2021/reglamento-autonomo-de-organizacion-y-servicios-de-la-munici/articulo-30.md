@@ -1,0 +1,1 @@
+Artículo 30. La Municipalidad para efectos de Reclutamiento y Selección de Personal, mantendrá actualizado el respectivo Manual, que fijará las pautas para garantizar los procedimientos, la uniformidad y los criterios de equidad que exige la normativa legal. Esta tarea es resorte exclusivo del Departamento de Recursos Humanos.

@@ -1,0 +1,2 @@
+Artículo 12. Deber de integridad. El servidor público municipal debe conducirse en el desarrollo de sus funciones con honradez, rectitud, dignidad, decoro, poniendo en la ejecución de sus labores toda su capacidad, conocimiento y experiencia laboral sin pretender por ello una mayor remuneración salarial.
+En cualquier circunstancia deberá actuar de tal forma que su conducta genere y fortalezca la confianza de la colectividad institucional sobre su integridad y prestigio para beneficio propio y de la institución a la que sirve.

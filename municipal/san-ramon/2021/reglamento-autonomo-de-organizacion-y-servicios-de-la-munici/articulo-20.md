@@ -1,0 +1,2 @@
+Artículo 20. El Alcalde o Alcaldesa Municipal, remitirá la información emanada del Concejo Municipal para los servidores municipales, es el administrador general y jefe de las dependencias municipales, por lo que toda información por parte de la administración que sea dirigida al Concejo Municipal ha de ser remitida por su despacho.
+A él corresponde la presentación ante el Concejo de toda iniciativa y de los informes que presente la administración ante dicha instancia.

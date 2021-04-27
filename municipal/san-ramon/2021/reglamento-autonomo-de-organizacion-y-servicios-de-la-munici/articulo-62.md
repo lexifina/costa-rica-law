@@ -1,0 +1,1 @@
+Artículo 62. Las jefaturas también podrán en las condiciones anteriores, solicitar en beneficio de sus colaboradores, la reasignación de cualquier puesto. Recibida la solicitud, el Departamento de Recursos Humanos procederá al estudio respectivo y hacer de conocimiento a la Alcaldía para que ésta dé su visto bueno.

@@ -1,0 +1,3 @@
+Artículo 97. La omisión de marca a cualquiera de las horas de entrada o salida, hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el servidor público municipal no haga la justificación escrita ante su jefe inmediato a más tardar dentro del tercer día hábil siguiente.
+Vencido este plazo y en caso que se hubiere presentado la justificación mencionada, el superior inmediato durante el día hábil siguiente la remitirá al Departamento de Recursos Humanos con el correspondiente visto bueno.
+Posterior a ese plazo no se aceptarán, sin excepción, ningún tipo de justificaciones haciéndose acreedor el funcionario a las sanciones disciplinarias establecidas en este Reglamento para dichas faltas.

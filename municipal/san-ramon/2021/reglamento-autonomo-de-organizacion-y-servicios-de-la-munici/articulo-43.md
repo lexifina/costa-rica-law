@@ -1,0 +1,1 @@
+Artículo 43. El Departamento de Recursos Humanos será el responsable de la formación y custodia del expediente personal de cada uno de los funcionarios al servicio de la Municipalidad, de mantenerlos al día en cuanto a los documentos que éstos aporten, y de preservar la información confidencial que conste en ellos.

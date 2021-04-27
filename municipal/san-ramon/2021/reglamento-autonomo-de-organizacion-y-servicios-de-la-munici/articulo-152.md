@@ -1,0 +1,1 @@
+Artículo 152. El presente Reglamento se presumirá de conocimiento de todos los funcionarios municipales y será de observancia obligatoria para todos desde el día de su vigencia, inclusive para los que en el futuro trabajen para la Municipalidad de San Ramón.

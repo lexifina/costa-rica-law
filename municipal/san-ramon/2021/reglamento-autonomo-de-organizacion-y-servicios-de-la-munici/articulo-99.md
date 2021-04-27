@@ -1,0 +1,1 @@
+Artículo 99. Incurrirá en falta grave el servidor que, por dolo o complacencia, dañe o altere el medio de control de asistencia dispuesto. De igual forma aquella jefatura, coordinación o afín, que realice justificaciones complacientes a favor de sus colaboradores.

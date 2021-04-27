@@ -1,0 +1,1 @@
+Artículo 91. La jefatura inmediata es la responsable de la forma en que su respectivo personal hará uso de estos descansos cada día, siendo el responsable directo de la buena marcha de la actividad a su cargo.

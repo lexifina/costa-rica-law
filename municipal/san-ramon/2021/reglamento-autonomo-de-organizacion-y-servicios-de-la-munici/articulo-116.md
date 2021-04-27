@@ -1,0 +1,1 @@
+Artículo 116. La jefatura que habiendo sido puesta en conocimiento por quien se considere acosado u hostigado laboralmente, no realice esfuerzos para impedir la continuación de tales actos, incurrirá en incumplimiento de deberes.

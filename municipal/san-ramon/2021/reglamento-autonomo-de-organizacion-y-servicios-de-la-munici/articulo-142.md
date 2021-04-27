@@ -1,0 +1,4 @@
+Artículo 142. Los salarios o sumas de dinero pagados de más a los servidores públicos municipales, se rebajará conforme el siguiente procedimiento:
+I. La Administración notificará al servidor que le ha cancelado salario o sumas de dineros pagados de más y la apercibirá en forma escrita, con el objetivo de que el funcionario se presente en el lapso de cinco días hábiles al Departamento de Recursos Humanos, con el fin de llegar a un arreglo de pago.
+II. El Departamento de Recursos Humanos ante la presencia del servidor público municipal, demostrará la prueba de justificación en pago de más, especificando el monto y fecha en que se realizó dicho pago de más.
+III. El Departamento de Recursos Humanos atenderá el compromiso de devolución de la suma de dinero pagado de más, por parte del servidor público municipal, entendiéndose que dicho rebajo se efectuará en un plazo mínimo de seis meses.

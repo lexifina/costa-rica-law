@@ -1,0 +1,1 @@
+Artículo 52. Será deber del Departamento de Recursos Humanos promover la inducción al servidor municipal de nuevo ingreso por medio de la jefatura correspondiente, quien suministrará información relativa a las instalaciones de la Municipalidad, puesto de trabajo y grupos sociales existentes a fin de lograr una identificación con la organización.

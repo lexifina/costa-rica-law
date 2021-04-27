@@ -1,0 +1,2 @@
+Artículo 29. Con las salvedades expresas en el Código Municipal, el personal de la Municipalidad será nombrado y removido por el Alcalde o quien lo sustituya de pleno derecho. Los nombramientos serán previo informe técnico respecto a la idoneidad comprobada de los aspirantes al cargo, efectuado por el departamento de Recursos Humanos.
+Para la remoción de personal será necesaria la justificación técnica debida en casos de despidos con responsabilidad patronal o la realización previa de un procedimiento administrativo sancionador para el despido sin responsabilidad patronal.

@@ -1,0 +1,3 @@
+Artículo 141. La Jornada Extraordinaria debe estar debidamente autorizado, supervisado, con el respectivo contenido presupuestario, avalado y aprobado por la jefatura correspondiente, quien es responsable directo de su control y respectiva tramitación ante el Departamento de Recursos Humanos.
+El tiempo extraordinario será remunerado exclusivamente en dinero y dentro de los treinta días siguientes a su prestación.
+La realización del tiempo extraordinario procederá conforme lo dispuesto en el ordenamiento jurídico. Solamente se autorizará el tiempo extraordinario a funcionarios que laboren una hora extra o más. No procede pago de tiempo extraordinario para cumplir con obligaciones que debieron ejecutarse en el tiempo ordinario.

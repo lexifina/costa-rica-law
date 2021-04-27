@@ -1,0 +1,1 @@
+Artículo 53. Es responsabilidad exclusiva del Departamento de Recursos Humanos, gestionar la desvinculación del servidor público municipal con su puesto de trabajo y la Municipalidad, en cualquiera de las formas en que hubiese sido contratado el servidor cesante.

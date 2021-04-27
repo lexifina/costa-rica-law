@@ -1,0 +1,1 @@
+Artículo 49. El Departamento de Recursos Humanos de la Municipalidad será responsable de elaborar y custodiar el expediente personal de cada uno de los funcionarios y de mantener al día los archivos de los documentos pertinentes que éstos y éstas aportan, así como de preservar su confidencialidad.

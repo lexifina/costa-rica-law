@@ -1,0 +1,1 @@
+Artículo 42. El servicio contratado se prestará en cualesquiera de las instalaciones sobre las que la Municipalidad tenga posesión o disfrute, o en el lugar que señale la administración, y cada servidor público municipal lo ejecutará según hubiese sido contratado.

@@ -1,0 +1,1 @@
+Artículo 123. La presentación al trabajo bajo los efectos del licor o drogas enervantes, o la ingesta de éstos durante el transcurso de la jornada dará lugar a la imposición de sanción disciplinaria, bajo los términos que al efecto establezca el Código de Trabajo.

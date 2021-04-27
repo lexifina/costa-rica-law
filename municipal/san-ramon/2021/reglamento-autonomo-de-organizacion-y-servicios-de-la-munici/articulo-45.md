@@ -1,0 +1,1 @@
+Artículo 45. Es deber de las jefaturas y coordinaciones, enviar copia al expediente personal de los funcionarios, de las gestiones que, dentro de su ámbito de competencia, sean por naturaleza actos jurídico - administrativos relacionados con los servidores municipales y con su historial de la relación de servicio.

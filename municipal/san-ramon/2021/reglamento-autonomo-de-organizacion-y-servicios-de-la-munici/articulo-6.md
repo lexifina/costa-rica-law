@@ -1,0 +1,1 @@
+Artículo 6. Corresponde y es facultad del Alcalde o Alcaldesa Municipal interpretar y resolver las dudas que pudiesen surgir en relación con la aplicación de este reglamento, previa consulta al Departamento de Recursos Humanos.

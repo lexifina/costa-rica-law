@@ -1,0 +1,1 @@
+Artículo 124. Se impondrá la sanción mínima de suspensión sin goce de salario hasta por cinco días y hasta la de Despido sin responsabilidad patronal, cuando el funcionario no liquide dentro del tercer día hábil los vales de caja chica.

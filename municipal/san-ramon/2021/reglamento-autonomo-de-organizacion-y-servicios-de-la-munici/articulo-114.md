@@ -1,0 +1,3 @@
+Capítulo XIX
+Del acoso laboral.
+Artículo 114. Queda absolutamente prohibido el acoso laboral, entendido como aquellas acciones u omisiones tendientes a obstaculizar el normal desempeño de las labores a cualquier persona trabajadora de la municipalidad, tales como gestos, palabras, comportamientos, actitudes o conductas, situaciones que habiendo ocurrido una sola vez o de forma sistemática o prolongada en el tiempo, atenten, ofendan, humillen o atemoricen, la integridad física o psíquica de una persona en el lugar de trabajo con el fin de destruirla a través de la degradación del entorno laboral.

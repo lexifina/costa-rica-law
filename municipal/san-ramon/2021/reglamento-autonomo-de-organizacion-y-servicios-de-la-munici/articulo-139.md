@@ -1,0 +1,2 @@
+Artículo 139. La Municipalidad se compromete a hacer del conocimiento del personal municipal, los eventos de modificación salarial, la precisión del monto de la totalidad de salarios que, en escala salarial, ubique al trabajador de conformidad con su perfil ocupacional.
+Los aumentos salariales se realizarán conforme a lo establecido en la Convención Colectiva de la Municipalidad de San Ramón o definido en ley específica para tal efecto

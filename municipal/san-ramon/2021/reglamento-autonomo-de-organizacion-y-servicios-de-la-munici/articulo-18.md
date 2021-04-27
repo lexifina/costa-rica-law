@@ -1,0 +1,1 @@
+Artículo 18. El incumplimiento de estos deberes con carácter intencional o culposo, comprobado mediante un procedimiento administrativo, podría dar lugar a la aplicación de la respectiva sanción de las previstas en el Código Municipal en el artículo 158, 159 y siguientes, así como en las descritas por este Reglamento.

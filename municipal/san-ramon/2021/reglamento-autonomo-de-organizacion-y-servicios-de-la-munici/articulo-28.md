@@ -1,0 +1,1 @@
+Artículo 28. Para la preparación o confección, administración y calificación de los exámenes y pruebas específicas de selección de personal se podrá solicitar colaboración técnica a la Unión Nacional de Gobiernos Locales, a la Dirección General del Servicio Civil, a otras Municipalidades del país y cualquier otro profesional con conocimiento en la materia.

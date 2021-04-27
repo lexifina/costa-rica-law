@@ -1,0 +1,2 @@
+Artículo 100. Las ausencias por enfermedad deberán justificarse por medio de certificado médico. Las certificaciones emitidas por médicos particulares que excedan de tres días justificarán únicamente la ausencia, pero no dará derecho a su pago, todo acorde al artículo 138 de este Reglamento.
+Será responsabilidad de cada departamento, establecer los sistemas de control necesarios para verificar la permanencia de los servidores a su cargo durante el horario establecido para prestar servicio efectivo público.

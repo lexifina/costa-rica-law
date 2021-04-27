@@ -1,0 +1,2 @@
+Artículo 104. La llegada tardía injustificada mayor de diez minutos, contados a partir de la hora de ingreso, se calificará como media ausencia para efectos de sanción y no pago del salario que a ella corresponda.
+Dos mitades de una ausencia para efectos de sanción, se computarán como una ausencia. La falta a una fracción de una jornada o la omisión de marca a la entrada o salida, se computarán como la mitad de una ausencia. En todo caso el funcionario habrá de registrar obligatoriamente el ingreso al centro de trabajo mediante el sistema correspondiente.

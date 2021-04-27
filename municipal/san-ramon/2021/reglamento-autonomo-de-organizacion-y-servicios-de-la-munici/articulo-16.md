@@ -1,0 +1,1 @@
+Artículo 16. Deber de armonía laboral. El servidor público municipal debe promover un clima de armonía laboral, proyectar siempre una imagen positiva de los compañeros del gobierno municipal y contribuir al desarrollo de la Cultura Organizacional.

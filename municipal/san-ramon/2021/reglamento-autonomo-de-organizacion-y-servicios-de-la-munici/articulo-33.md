@@ -1,0 +1,4 @@
+Artículo 33. Plaza vacante. Al quedar una plaza vacante, se procederá de la siguiente forma:
+I. Se ascenderá al servidor público municipal inmediato inferior en grado del mismo proceso, subproceso, actividad o subactividad y que esté calificado para el efecto.
+II. De no haber funcionario municipal capaz de llenar la plaza vacante en el proceso, subproceso, actividad o subactividad, de conformidad con el manual descriptivo de puestos, se someterá a concurso interno la plaza a nivel municipal y para el mismo los trabajadores gozarán en su favor de la antigüedad.
+III. En caso de inopia o si no hubiere interés de ningún servidor público municipal para concursar en la plaza vacante, la Municipalidad podrá someterla a concurso externo, publicado por lo menos en un diario de circulación nacional y con las mismas condiciones del concurso interno.

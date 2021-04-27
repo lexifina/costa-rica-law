@@ -1,0 +1,1 @@
+Artículo 101. La asistencia a la CCSS, INS o médico de empresa, previa autorización del jefe inmediato cuando sean en horas laborales, se considerarán como licencia con goce de salario y deben ser marcadas en el medio dispuesto para el control de asistencia, además deberá presentarse la constancia de asistencia expedida, por esas autoridades y a esos efectos.

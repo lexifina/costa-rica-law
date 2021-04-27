@@ -1,0 +1,1 @@
+Artículo 86. En ningún caso de baja médica para trabajar por enfermedad, riesgo de trabajo o licencia de gravidez, el monto del subsidio que pague la respectiva institución aseguradora sumado al que pague la Municipalidad no podrá exceder el monto del salario del servidor.

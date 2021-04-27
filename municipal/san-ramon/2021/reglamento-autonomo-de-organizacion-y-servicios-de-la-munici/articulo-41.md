@@ -1,0 +1,2 @@
+Artículo 41. En los contratos de trabajo por tiempo indeterminado, los servidores municipales se considerarán en período de prueba de tres meses y las partes tendrán la facultad de dar por terminada la relación laboral en cualquier tiempo dentro de ese período, sin responsabilidad, según el artículo 36 del presente reglamento.
+La terminación de los contratos de trabajo a plazo fijo o por obra determinada, estará regulada en cada caso por las disposiciones específicas que la ley señale o por el fenecimiento del mismo.

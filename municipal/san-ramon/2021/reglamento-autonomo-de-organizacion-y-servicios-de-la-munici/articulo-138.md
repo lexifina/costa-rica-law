@@ -1,0 +1,1 @@
+Artículo 138. La forma de pago del salario de los servidores públicos municipales se cancelará de acuerdo a la forma estipulada en la Convención Colectiva de la Municipalidad de San Ramón. Se adjuntará el comprobante de pago mediante correo electrónico, que contiene el detalle de los pagos y deducciones efectuadas.
