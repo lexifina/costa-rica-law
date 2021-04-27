@@ -14,3 +14,4 @@ Reglamento para el procedimiento de cobro administrativo, administrativo externo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-11 | la propia norma |
+| 2 | 2021-04-27 | Reglamento municipal 51 (2021-04-27) |
