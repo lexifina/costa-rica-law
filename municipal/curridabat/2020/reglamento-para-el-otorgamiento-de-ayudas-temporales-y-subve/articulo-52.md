@@ -1,0 +1,3 @@
+Artículo 52.—En caso de que existan remanentes o que los fondos a los sujetos beneficiados, no se hayan apegado al objeto del Convenio de Transferencias de Fondos suscritos, la Municipalidad deberá, retirar la subvención en forma inmediata, en caso de subvención periódica, o bien iniciar las gestiones para recobrar lo transferido, en un plazo de quince días hábiles, contados a partir de que se tuvo notifica de la infracción.
+Se establecen como sanciones las que establece la normativa atinente en la materia civil y penal; así como la prohibición de reingreso para constituirse en sujeto de otra transferencia, por parte del infractor, por un plazo de un año.
+(Así adicionado en sesión N° 52 del 27 de abril del 2021)
