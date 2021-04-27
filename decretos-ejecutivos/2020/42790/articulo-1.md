@@ -1,0 +1,30 @@
+N° 42790-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En uso de las atribuciones que le confieren los incisos 3) y 18) del artículo 140 y el 146 de la Constitución Política; artículos 25 inciso 1), 27 inciso 1), y 28 inciso 2), acápite b), de la Ley N° 6227, Ley General de la Administración Pública del 02 de mayo de 1978, Ley N° 7064 del 29 de abril de 1987, Ley Fomento a la Producción Agropecuaria y Orgánica del MAG; Ley N° 6142 del 25 noviembre de 1977 y sus reformas, Ley de Aval Estado al IFAM en Contrato Garantía con BCIE (para Creación PIMA) y la Ley N° 9327 del 08 de octubre del 2015, Ley que "Aprueba Contrato de Préstamo N° 2157 con el Banco Centroamericano de Integración Económica, para financiar el Proyecto de Mercado Regional Mayorista de la Región Chorotega".
+Considerando:
+I.-Que mediante el Decreto Ejecutivo N° 39785-MAG del 24 de febrero del 2016, publicado en el Diario Oficial La Gaceta N° 146, Alcance N° 133 del 29 de julio del 2016, se emitió el "Reglamento del Funcionamiento del Programa Integral de Mercadeo Agropecuario (PIMA) creado por Ley N° 6142".
+II.-Que el objeto de dicho Decreto es regular las actividades del Programa Integral de Mercadeo Agropecuario (PIMA), a fin de que el servicio y funcionamiento que realice sea acorde al interés público de dicha entidad.
+III.-Que la ejecución operativa y técnica de ese Reglamento, requiere dotar a la institución con un cuerpo normativo acorde a las necesidades actuales del PIMA.
+IV.-Que el artículo 36 del Decreto Ejecutivo N° 39785- MAG del 24 de febrero del 2016, dispone que el Consejo Directivo elegirá al Gerente General con base en un concurso público o abreviado, no obstante, esos conceptos confunden la contratación del Gerente General, que corresponde a un empleado de confianza del régimen de empleo público y de libre remoción, lo que hace necesario modificar su redacción.
+V.-Que de conformidad con el artículo 12 bis párrafos segundo y tercero del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045-MP-MEIC del 22 de febrero del 2012, se procedió a llenar la Sección I denominada "Control Previo de Mejora Regulatoria" del "Formulario de Evaluación Costo Beneficio". De la evaluación de la propuesta normativa en comentario, es importante destacar que su resultado fue negativo, es decir, que no contiene trámites, requisitos ni procedimientos, por lo que se determinó la conformidad de ésta con la Ley de Protección al ciudadano del exceso de requisitos y trámites administrativos, Ley N° 8220 del 04 de marzo del 2002 y su Reglamento. Por tanto,
+Decretan:
+REFORMA AL DECRETO EJECUTIVO N° 39785-MAG,
+DE 24 DE FEBRERO DEL 2016 "REGLAMENTO DEL
+FUNCIONAMIENTO DEL PROGRAMA INTEGRAL
+DE MERCADEO AGROPECUARIO (PIMA)
+CREADO POR LA LEY N° 6142"
+Artículo 1º-Refórmense el punto 1. del artículo 1°, los artículos 13, 22, 29 y 36 y los puntos 6. y 33. del artículo 37, todos del Decreto Ejecutivo N° 39785-MAG de 24 de febrero del 2016, denominado "Reglamento del Funcionamiento del Programa Integral de Mercadeo Agropecuario (PIMA) creado por Ley N° 6142", para que se lean de la siguiente manera:
+"Artículo 1º-EL PIMA tendrá las siguientes funciones:
+1. Organizar, administrar y desarrollar el Centro Nacional de Abastecimiento y Distribución de Alimentos (CENADA), la Red Frigorífica Nacional (REFRINA), los Mercados Regionales Mayoristas, y todas las demás dependencias del PIMA que de acuerdo con la ley se establezcan en el territorio nacional;
+(.)"
+"Artículo 13.-La sesión comenzará puntualmente a la hora acordada por los directivos, pero la Presidencia quedará facultada para otorgar un lapso de espera de hasta treinta minutos para el inicio de la sesión, cuando lo considere oportuno.
+El quórum para que pueda sesionar válidamente el Consejo Directivo será el de la mayoría absoluta de sus miembros. De no completarse el quórum, el Consejo Directivo podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la primera convocatoria, excepto en casos de urgencia, en los cuales se podrá sesionar después de media hora y para ello será suficiente, la asistencia de tres de los siete miembros que componen el órgano."
+"Artículo 22.-No podrá ser objeto de acuerdo, ningún asunto que no figure expresamente en el orden del día, salvo que sean incluidos bajo el procedimiento del artículo 15, párrafo final del presente reglamento."
+"Artículo 29.-Ningún miembro del Consejo Directivo podrá estar presente en el momento de la sesión en que se discutan y resuelvan asuntos en los que tengan interés personal directo o indirecto; de conformidad con las causales de impedimento expuestas en el artículo 12 del Código Procesal Civil. Cuando un directivo bajo una causal de impedimento, no manifieste su condición para no conocer el asunto; cualquier directivo podrá presentar la recusación que será resuelta por los restantes miembros del Consejo Directivo."
+"Artículo 36.-El Gerente General es un funcionario de confianza cuyo nombramiento, régimen disciplinario y libre remoción corresponde al Consejo Directivo.
+El Consejo Directivo elegirá al Gerente General, mediante un concurso, por un período de 4 años con posibilidad de reelección. El Gerente General deberá ser costarricense, graduado de una carrera universitaria que lo faculte para el desempeño del cargo y, además, tener amplia experiencia en la dirección de programas técnicos y administrativos de alto nivel, especialmente en el área de mercadeo agropecuario."
+"Artículo 37.-El Gerente General tiene entre otras las siguientes funciones y responsabilidades: (.)
+6. Ejercer la potestad disciplinaria conforme con el Reglamento Autónomo correspondiente y leyes conexas. En caso de remoción o sanción disciplinaria, el servidor contará con el recurso de apelación ante el Consejo Directivo.
+(.)
+33. Autorizar en los sistemas informáticos los permisos y vacaciones, autorizados por la Presidencia, así como autorizar los vehículos y demás trámites administrativos que requiera el personal subordinado al Consejo Directivo. (.)"
