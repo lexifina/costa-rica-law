@@ -1,3 +1,0 @@
-Artículo 17 Convenios. La Municipalidad procurará la suscripción de convenios con instituciones de bien social y de carácter no lucrativo, para que en forma directa distribuyan y vendan las tarjetas de estacionamiento en la ciudad. En tales casos, se otorgará un descuento equivalente al 20% del costo de las tarjetas que sean adquiridas al amparo de esos instrumentos.
-Ello sin perjuicio de que la Municipalidad sustituya la venta de este tipo de tarjetas, y que se haga a través de medios electrónicos, en cuyo caso, dichos convenios serán posibles únicamente si el medio elegido lo permite.
-(Así reformado mediante sesión ordinaria N° 41-2020 del 13 de octubre del 2020)

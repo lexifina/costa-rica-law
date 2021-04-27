@@ -1,1 +1,0 @@
-Artículo 31.—Regulación especial. El pasaje León Cortés, ubicado en el costado este del edificio del Museo Juan Santamaría, está sujeto a las disposiciones de este Reglamento. No se permitirá en él es estacionamiento de vehículos en ambos lados de la vía.
