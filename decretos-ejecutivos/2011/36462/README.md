@@ -15,3 +15,4 @@ Reglamento a la Ley de Inclusión y Protección Laboral de las Personas con Disc
 | --- | --- | --- |
 | 1 | 2011-03-21 | la propia norma |
 | 2 | 2019-05-28 | Decreto Ejecutivo 41761 (2019-05-28) |
+| 3 | 2021-04-27 | Decreto Ejecutivo 43024 (2021-04-27) |
