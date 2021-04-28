@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE ATENAS
+El Concejo Municipal de Atenas, en Sesión Ordinaria N° 63 del 01 de febrero de 2021 acuerda: Aprobar la modificación del artículo 2 inciso c del reglamento de dedicación exclusiva. Léase: C. Laborar jornada completa en un puesto en propiedad o interino". Se solicita que el reglamento se mantenga incólume. aprobado 5 votos a favor en firme con dispensa de trámite de comisión.
