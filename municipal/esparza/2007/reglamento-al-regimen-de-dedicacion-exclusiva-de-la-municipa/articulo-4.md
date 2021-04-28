@@ -1,4 +1,4 @@
 Artículo 4º-La Municipalidad de Esparza reconocerá a los trabajadores que cumplan con los requisitos establecidos en el artículo 3° y una vez suscrito el contrato correspondiente, una suma mensual adicional de:
-a) Un 55% sobre el salario base a aquellos profesionales con nivel de Licenciatura Universitaria y que ocupen un puesto para el que se requiere la condición anterior y cumplan con las demás condiciones y requisitos indicados en los artículos anteriores.
-b) Un 20% sobre el salario base a aquellos profesionales con nivel de bachiller universitario y que ocupen un puesto para el que se requiere la condición de ser como mínimo bachiller y cumplan con las demás condiciones y requisitos indicados en los artículos anteriores.
-(Así reformado en acta número setenta y cuatro del 28 de setiembre de 2015)
+a) Un veinticinco por ciento (25%) para los servidores con el nivel de licenciatura u otro grado académico superior. que ocupen un puesto para el que se requiere la condición anterior y cumplan con las demás condiciones y requisitos indicados en los artículos anteriores.
+b) Un diez por ciento (10%) para los profesionales con el nivel de bachiller universitario y que ocupen un puesto para el que se requiere la condición de ser como mínimo bachiller y cumplan con las demás condiciones y requisitos indicados en los artículos anteriores.
+(Así reformado en acta N° 77-2021 del 28 de abril de 2021)
