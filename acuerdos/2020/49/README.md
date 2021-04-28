@@ -14,3 +14,4 @@ Establece veda para la pesca semi-industrial sardinera bolichera (de cerco), des
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-18 | la propia norma |
+| 2 | 2021-04-28 | Acuerdo 100 (2021-04-28) |
