@@ -15,3 +15,4 @@ Normativa de profesionales afines a las ciencias de la salud del Colegio de Méd
 | --- | --- | --- |
 | 1 | 2018-02-02 | la propia norma |
 | 2 | 2021-01-06 | Reglamento 0 (2021-01-06) |
+| 3 | 2021-04-28 | Reglamento 0 (2021-04-28) |
