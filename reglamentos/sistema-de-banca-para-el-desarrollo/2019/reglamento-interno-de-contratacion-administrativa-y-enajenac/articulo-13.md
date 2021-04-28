@@ -1,7 +1,8 @@
 Capítulo III
 Del Comité de Adjudicaciones y Enajenaciones; así como de las
 Competencias para la Emisión de Acto Final
-Artículo 13-. Comité de Adquisiciones y Enajenaciones: Se crea un órgano colegiado que emitirá formal acto final en las licitaciones públicas y las contrataciones primarias; pudiendo ser este, la adjudicación de la contratación, o su declaración de desierta o infructuosa, según corresponda. El Comité de Adquisiciones y Enajenaciones será apoyado por la Proveeduría Institucional, quien se encargará de la presentación de casos y asuntos ante este órgano colegiado.
+Artículo 13-. Comité de Adquisiciones y Enajenaciones: Se crea un órgano colegiado que emitirá formal acto final en las licitaciones públicas y las contrataciones primarias; pudiendo ser este, la adjudicación de la contratación, o su declaración de desierta o infructuosa, según corresponda.
+El Comité de Adquisiciones y Enajenaciones será apoyado por la Proveeduría Institucional, quien se encargará de la presentación de casos y asuntos ante este órgano colegiado.
 Este Comité actuará conforme a las disposiciones del presente Reglamento y tendrá las siguientes funciones:
 a. Conocer del expediente del procedimiento, los estudios técnicos y recomendaciones, para valorar la idoneidad y conveniencia de las plicas concursantes.
 b. Emitir formal acto final en los procedimientos de contratación de su competencia.

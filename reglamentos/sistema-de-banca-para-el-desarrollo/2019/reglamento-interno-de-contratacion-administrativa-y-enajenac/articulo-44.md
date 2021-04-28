@@ -1,4 +1,5 @@
-Artículo 44-. Administrador del contrato. Ocupará tal posición quien sea designado por el Director Ejecutivo o el director del Área que promueva la contratación, o bien, el Auditor General en contrataciones de su resorte. En situaciones de especial urgencia, esta labor podrá ser delegada mediante acto expreso y razonado, recayendo dichas competencias sobre un funcionario de nivel de dirección. El Administrador de Contrato tendrá las siguientes obligaciones:
+Artículo 44-. Administrador del contrato. Ocupará tal posición quien sea designado por el Director Ejecutivo o el director del Área que promueva la contratación, o bien, el Auditor General en contrataciones de su resorte. En situaciones de especial urgencia, esta labor podrá ser delegada mediante acto expreso y razonado, recayendo dichas competencias sobre un funcionario de nivel de dirección.
+El Administrador de Contrato tendrá las siguientes obligaciones:
 a. Conocer y aplicar el procedimiento de administración del contrato.
 b. Tomar oportunamente las previsiones necesarias para que el contratista se ajuste al estricto cumplimiento de las condiciones, especificaciones y plazos establecidos en el contrato.
 c. Cumplir con las demás obligaciones implícitas en el contrato.

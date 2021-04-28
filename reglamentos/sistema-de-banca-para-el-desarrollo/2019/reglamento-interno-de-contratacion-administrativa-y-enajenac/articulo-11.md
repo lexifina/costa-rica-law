@@ -1,3 +1,4 @@
-Artículo 11-. Garantías. En los casos que así se disponga se incluirá en los carteles la obligación de los participantes de rendir las garantías de participación, de cumplimiento y de funcionamiento u operación por los montos y plazos que aquellas señalen, guardando una adecuada proporcionalidad con la magnitud y trascendencia de la contratación respectiva.
+Artículo 11-. Garantías. En los casos que así se disponga se incluirá en los carteles la obligación de los participantes de rendir las garantías de participación, de cumplimiento y de funcionamiento u operación por los montos y plazos que aquellas
+señalen, guardando una adecuada proporcionalidad con la magnitud y trascendencia de la contratación respectiva.
 Las garantías deben ser presentadas únicamente en los medios autorizados y válidos aceptados por la plataforma SICOP.
 La Proveeduría Institucional será la competente para liberar y ejecutar, cuando corresponda, las garantías de participación y cumplimiento rendidas a favor de la STSBD.
