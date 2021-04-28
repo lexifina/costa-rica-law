@@ -1,0 +1,1 @@
+ARTÍCULO 4- Se deroga la Ley 6948, Declara de Interés Nacional el Banco de Corneas, de 27 de febrero de 1984, que declara de interés nacional la creación del Banco de Córneas de la Asociación Filantrópica de Leones de Costa Rica.
