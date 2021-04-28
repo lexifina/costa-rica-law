@@ -1,4 +1,6 @@
+(Derogado)
 N° 322
+(Esta norma fue derogada por el artículo único de la ley N° 9912 del 28 de enero del 2021)
 LA JUNTA FUNDADORA DE LA SEGUNDA REPUBLICA
 I.-Que al subordinar los sagrados intereses de la Patria a sus pasiones e intereses políticos personales, Rafael Ángel Calderón Guardia deshonró, durante el período en que ejerció la Presidencia de la República, la investidura de esa suprema autoridad;
 II .-Que durante ese mismo período, Rafael Ángel Calderón Guardia llevó la noble exigencia de mantener relaciones amistosas con los gobiernos de otros pueblos hermanos a extremos que lesionaron la soberanía nacional de Costa Rica, admitiendo que altos funcionarios de otros países se inmiscuyeran en la conducción de la política costarricense; .
