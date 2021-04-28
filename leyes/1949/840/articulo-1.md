@@ -1,4 +1,6 @@
+(Derogado)
 N° 840
+(Esta norma fue derogada por el artículo único de la ley N° 9912 del 28 de enero del 2021)
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
 JUNTA FUNDADORA DE LA SEGUNDA REPÚBLICA
 Considerando:
