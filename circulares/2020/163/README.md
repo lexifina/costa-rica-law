@@ -13,3 +13,4 @@ Cumplimiento de normativa atinente a la designación idónea del personal en el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-10 | la propia norma |
+| 2 | 2021-04-28 | Circular 83 (2021-04-28) |
