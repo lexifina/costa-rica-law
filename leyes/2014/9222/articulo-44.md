@@ -1,5 +1,5 @@
 CAPÍTULO II
 Secretaría Ejecutiva Técnica de Donación y
 Trasplante de Órganos y Tejidos
-ARTÍCULO 44.-
-Para efectos de la ley, se crea la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos, del Consejo Nacional de Donación y Trasplante de Órganos y Tejidos, en el Ministerio de Salud, la cual estará a cargo de la unidad técnica responsable de los servicios de salud de ese Ministerio.
+Artículo 44 - Para efectos de la ley, se crea la Secretaria Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos, adscrita a la Dirección de Servicios de Salud del Ministerio de Salud.
+(Así reformado por el artículo 1° de la ley N° 9916 del 14 de abril del 2021)

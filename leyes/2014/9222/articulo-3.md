@@ -1,6 +1,7 @@
 ARTÍCULO 3.-
 Para los efectos de esta ley se establecen las siguientes definiciones:
-a) Órgano: parte diferenciada y vital del cuerpo humano constituida por diversos tejidos que mantiene su estructura, vascularización y capacidad para desarrollar funciones fisiológicas con un grado importante de autonomía y suficiencia. En este sentido, son órganos: los riñones, el corazón, los pulmones, el hígado, el páncreas, el intestino, las córneas, la piel, el tejido óseo y cuantos otros con similar criterio puedan ser extraídos y trasplantados de acuerdo con los avances científico-técnicos.
+a) Órgano: parte diferenciada y vital del cuerpo humano constituida por diversos tejidos que mantiene su estructura, vascularización y capacidad para desarrollar funciones fisiológicas con un grado importante de autonomía y suficiencia. En este sentido, son órganos: ambos riñones, el corazón, ambos pulmones, el hígado, el páncreas, el intestino, la piel y cuantos otros con similar criterio puedan ser extraídos y trasplantados de acuerdo con los avances científico-técnicos.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 9916 del 14 de abril del 2021)
 b) Banco de tejidos: establecimiento de salud debidamente autorizado por el Ministerio de Salud donde se llevan a cabo actividades de procesamiento, preservación, almacenamiento o distribución de tejidos humanos después de su obtención y hasta su utilización o aplicación en humanos. El establecimiento de tejidos también puede estar encargado de la obtención y evaluación de tejidos.
 c) Diagnóstico de muerte: cese irreversible de las funciones circulatorias y respiratorias, cese irreversible de las funciones del cerebro completo, incluyendo las del tronco del encéfalo. Por lo tanto, la muerte puede ser determinada por criterios cardiopulmonares (ausencia de latido cardíaco, ausencia de movimientos respiratorios, ausencia de actividad eléctrica cardíaca efectiva) o por criterios neurológicos (muerte encefálica).
 d) Donante fallecido: cadáver del que se pretende extraer órganos y tejidos, cumpliendo los requisitos establecidos en la ley. Existen: cadáver ventilado (muerte encefálica), cadáver en paro cardíaco.
@@ -17,6 +18,7 @@ j) Procedimientos operativos estandarizados: instrucciones de trabajo documentad
 k) Progenitores hematopoyéticos: células extraídas de la médula ósea o del cordón umbilical que tiene la potencialidad de formar y desarrollar los elementos celulares de la sangre.
 l) Receptor: persona que recibe el trasplante de un órgano o tejido con fines terapéuticos.
 m) Residuo quirúrgico: material anatómico extraído de una persona con fines terapéuticos y distintos del cordón umbilical y progenitores hematopoyéticos.
-n) Tejido: toda parte constituyente del cuerpo humano formada por células unidas por algún tipo de tejido conectivo.
+n) Tejido: toda parte constituyente del cuerpo humano formada por células unidas por algún tipo de tejido conectivo, tal es el caso del tejido óseo y los oseoarticulares, las córneas y los tejidos cardiovasculares.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 9916 del 14 de abril del 2021)
 ñ) Trasplante de órganos o tejidos: proceso por el cual se implanta un órgano o tejido sano, con fines terapéuticos, procedente de un donante vivo o de un donante fallecido.
 o) Trazabilidad: capacidad para localizar e identificar los órganos o tejidos en cualquier paso del proceso, desde la donación hasta el trasplante o su eliminación.

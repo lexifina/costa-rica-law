@@ -1,2 +1,2 @@
-ARTÍCULO 51.-
-La promoción de la donación u obtención de órganos y tejidos humanos se realizará siempre de forma general y resaltando su carácter voluntario, altruista y desinteresado.
+Artículo 51 - La promoción de la donación u obtención de órganos humanos se realizará siempre de forma general y resaltando su carácter voluntario, altruista y desinteresado. Asimismo, la promoción del derecho a no donar tejidos se deberá realizar de forma general, resaltando la responsabilidad de cada quien en dejar constancia de su negación a la extracción de sus tejidos.
+(Así reformado por el artículo 1° de la ley N° 9916 del 14 de abril del 2021)
