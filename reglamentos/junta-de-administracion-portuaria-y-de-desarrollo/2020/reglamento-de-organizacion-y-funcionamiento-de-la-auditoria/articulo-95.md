@@ -1,0 +1,1 @@
+Artículo 95º.-Evaluaciones internas. Las evaluaciones internas deberán incluir tanto revisiones continuas del desempeño de la actividad de auditoría, como revisiones periódicas mediante auto evaluación o mediante otras personas dentro de la institución, con conocimiento de las prácticas de auditoría y de las Normas.

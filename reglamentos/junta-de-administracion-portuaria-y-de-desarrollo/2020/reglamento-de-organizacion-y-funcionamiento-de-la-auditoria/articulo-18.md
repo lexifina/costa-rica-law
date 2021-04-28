@@ -1,0 +1,2 @@
+Artículo 18º.-Jornada Laboral. La jornada laboral de dichos funcionarios será de tiempo completo. Deberán cumplir con las funciones propias, establecidas en los Manuales de puestos vigentes en la JAPDEVA y demás disposiciones legales y reglamentarias aplicables.
+Estos funcionarios sólo podrán ser removidos de sus cargos por justa causa, conforme con el dictamen previo y vinculante de la Contraloría General de la República, según se establece en el artículo 15 de su Ley Orgánica.

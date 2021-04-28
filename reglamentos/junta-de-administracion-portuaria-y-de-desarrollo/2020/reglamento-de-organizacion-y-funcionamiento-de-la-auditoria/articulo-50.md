@@ -1,0 +1,1 @@
+Artículo 50º.-Componentes del Plan de Trabajo Anual. El contenido del Plan de Trabajo Anual debe ser congruente con la planificación estratégica y su contenido abarcará todas las actividades que se pretenden realizar durante el año. Este Plan debe mantenerse actualizado y respaldado presupuestariamente.

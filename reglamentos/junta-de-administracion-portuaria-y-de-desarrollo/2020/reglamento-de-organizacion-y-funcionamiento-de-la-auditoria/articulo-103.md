@@ -1,0 +1,1 @@
+Artículo 103º.-Derogatoria. Deróguese el Reglamento Interno de la Auditoría General de JAPDEVA aprobado por el Consejo de Administración en la Sesión Ordinaria N° 32-2007, celebrada el 06 de setiembre del 2007; y publicado en el Diario Oficial La Gaceta número 199 del 17 de octubre del 2007.

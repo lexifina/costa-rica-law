@@ -1,0 +1,2 @@
+SECCIÓN II: Aplicación, Derogatoria y Vigencia
+Artículo 101º.-Aplicación del Reglamento. Las disposiciones de este reglamento son de aplicación general en toda la institución, por lo que ningún funcionario o empleado de JAPDEVA, puede alegar desconocimiento del mismo, quedando como obligación y responsabilidad del jerarca y los titulares subordinados, informar al respecto a todo el personal a su cargo.

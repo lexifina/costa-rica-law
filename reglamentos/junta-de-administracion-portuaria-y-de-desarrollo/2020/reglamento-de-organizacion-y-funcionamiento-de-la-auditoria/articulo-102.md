@@ -1,0 +1,1 @@
+Artículo 102º.-Las diferencias de criterio que se lleguen a suscitar entre la Administración Activa y la Auditoría Interna, con motivo de la interpretación y aplicación de este reglamento, serán resueltos por el Consejo de Administración de la JAPDEVA, en primera instancia y en segunda instancia la Contraloría General de la República.

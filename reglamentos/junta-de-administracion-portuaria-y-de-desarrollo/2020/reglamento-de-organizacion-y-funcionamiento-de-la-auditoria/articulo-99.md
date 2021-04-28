@@ -1,0 +1,3 @@
+CAPÍTULO V: DISPOSICIONES FINALES
+SECCIÓN I: Responsabilidades de la aplicación de este Reglamento y Sanciones
+Artículo 99º.-De las responsabilidades. El incumplimiento injustificado de las regulaciones contenidas en el presente Reglamento será causal de responsabilidad administrativa para el Auditor General, Sub Auditor General, funcionarios de la Auditoría General, Presidencia Ejecutiva, titulares subordinados y funcionarios de la Institución, de conformidad con lo establecido en el Capítulo V de la Ley General de Control Interno y en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento.

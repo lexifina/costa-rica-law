@@ -1,0 +1,2 @@
+SECCIÓN V: Relaciones y Coordinaciones.
+Artículo 35º.-Conceptualización. En la realización de su gestión, los funcionarios de la Auditoría General deben mantener relaciones profesionales y de respecto con las diversas instancias de la Institución, la Contraloría General de la República y otras instituciones de control y fiscalización, Comisiones Legislativas, Ministerio Público, Procuraduría General de la República y denunciantes.

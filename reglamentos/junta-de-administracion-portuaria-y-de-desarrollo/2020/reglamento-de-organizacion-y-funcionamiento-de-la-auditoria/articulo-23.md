@@ -1,0 +1,1 @@
+Artículo 23º.-Delegación de funciones. El Auditor General podrá delegar en el Sub Auditor General funciones, utilizando criterios de idoneidad y conforme lo establece el numeral 89 y siguientes de la Ley General de Administración Pública.

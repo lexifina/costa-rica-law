@@ -1,0 +1,4 @@
+Artículo 13º-Restricciones en el desempeño de las funciones. El Auditor General establecerá medidas para controlar que el personal de la Auditoría General no resulte limitado por impedimentos que pongan en duda o en riesgo la objetividad e independencia de sus actuaciones, por tanto:
+a) No podrán ser empleados ni ejercer funciones temporal o parcialmente en ninguna otra unidad administrativa de la Institución en el tanto estén nombrados en puestos de la Auditoría General.
+b) No podrán ser miembros de juntas directivas, comisiones de trabajo o similares, ni formar parte de órganos directores de procesos, de conformidad con las disposiciones y prohibiciones que al respecto establece la Ley General de Control Interno en sus artículos números 25 y 34.
+c) Deberán tener una actitud imparcial y neutral para evitar conflicto de intereses y proteger su independencia de criterio.

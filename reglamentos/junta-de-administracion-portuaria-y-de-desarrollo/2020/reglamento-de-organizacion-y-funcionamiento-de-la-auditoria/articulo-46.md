@@ -1,0 +1,13 @@
+Artículo 46º.-Deberes de los funcionarios. El Auditor General, el Sub Auditor General y los demás de funcionarios de la Auditoría General tendrán los siguientes deberes:
+a) Cumplir las competencias asignadas por ley.
+b) Cumplir el ordenamiento jurídico y técnico aplicable.
+c) Colaborar en los estudios que la Contraloría General de la República y otras instituciones realicen en la Institución, en ejercicio de competencias de control o fiscalización legalmente atribuidas.
+d) Administrar, de manera eficaz eficiente y económica, los recursos del proceso del que sea responsable.
+e) No revelar a terceros que no tengan relación directa con los asuntos tratados en sus informes, información sobre las auditorias o estudios especiales de auditoria que se estén realizando ni información sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los entes y órganos sujetos a esta Ley.
+f) Guardar la confidencialidad del caso sobre información a la que tenga acceso.
+g) Acatar las disposiciones y recomendaciones emanadas de la Contraloría. En caso de oposición por parte de la Auditoría General referente a tales disposiciones y recomendaciones, se aplicará el artículo 26 de la Ley Orgánica de la Contraloría General de la República.
+h) Facilitar la información que solicite la Asamblea Legislativa en el ejercicio de las atribuciones que dispone el inciso 23) del artículo 121 de la Constitución Política.
+La información de carácter confidencial, sólo se entregará a comisiones legislativas de investigación debidamente acreditadas y no a diputados en forma individual ni a otros órganos de la Asamblea Legislativa. En todo caso, debe advertirse lo relativo a la confidencialidad que establece el artículo 6 de la Ley General de Control Interno y el artículo 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y demás normativa aplicable.
+i) Ser prudente y fundamentar con efectividad, los contenidos de las diversas comunicaciones orales y escritas que se emitan tanto a lo interno como externo de la Institución.
+j) Fiscalizar que las unidades de recursos humanos o similares, cumplan con el deber de informar lo que señala el artículo 28 de la Ley 8422 Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su veracidad, en acatamiento de lo que señala el artículo 80 del Reglamento de la citada ley.
+k) Cumplir, además, con los deberes que se consignen en leyes, reglamentos, directrices y disposiciones referentes a su ámbito de acción, emitidos o que se emita en un futuro la Contraloría General de la República y demás instituciones u órganos de control y fiscalización competentes.

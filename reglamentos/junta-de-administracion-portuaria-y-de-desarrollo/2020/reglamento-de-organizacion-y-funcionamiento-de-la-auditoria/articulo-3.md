@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito de aplicación. El presente reglamento es de carácter obligatorio para todos funcionarios de la Auditoría General, los funcionarios de la Administración Activa y de otros actores, en lo que les resulte aplicable.

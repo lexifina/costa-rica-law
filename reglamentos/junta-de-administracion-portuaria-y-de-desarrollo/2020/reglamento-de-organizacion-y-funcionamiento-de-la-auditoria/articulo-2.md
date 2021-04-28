@@ -1,0 +1,17 @@
+Artículo 2º-Definiciones. Para efectos de este Reglamento se entiende por:
+a) JAPDEVA: Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica.
+b) Consejo de Administración: Jerarca institucional. Ejerce la máxima autoridad dentro de la Institución.
+c) Presidencia Ejecutiva: Jerarca Administrativo de JAPDEVA.
+d) Administración Activa: Funcionalmente, es la actividad decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Orgánicamente, es el conjunto de unidades y órganos de la función administrativa, que tienen como responsabilidad la planificación, organización, dirección, coordinación, ejecución y control, dirigidas al logro de los objetivos y metas institucionales e incluye al Consejo de Administración, Presidente Ejecutivo, titulares subordinados y colaboradores.
+e) Administración: Es la Administración Activa, excluyendo el Consejo de Administración.
+f) Titular Subordinado: Funcionario de la Administración Activa responsable de un proceso, con autoridad para ordenar y tomar decisiones.
+g) Auditoría Interna: Auditoría General de JAPDEVA.
+h) Auditoría General: Actividad independiente, objetiva y asesora, del nivel superior institucional.
+i) Auditor Interno: Auditor General. Funcionario de mayor jerarquía dentro de la Auditoría General.
+j) Sub Auditor Interno: Sub Auditor General.
+k) Asesoría: Servicio preventivo que brinda la Auditoría General a solicitud del Consejo de Administración o la Presidencia Ejecutiva, sin perjuicio de las asesorías que a criterio del Auditor General corresponda a otros niveles de la Institución con el propósito de fortalecer el sistema de control interno, la gestión del riesgo y los procesos de dirección, de conformidad con lo que establece el artículo número 22 inciso d) de la Ley N° 8292 y las Normas para el ejercicio de la Auditoría Interna en el Sector Público.
+l) Advertencia: Servicio preventivo que brinda la Auditoría General al Consejo de Administración, Presidente Ejecutivo y titulares subordinados, de conformidad con lo que establece el inciso d) del artículo 22 de la Ley General de Control Interno N° 8292 y la norma 1.1.4. de las Normas para el Ejercicio de la Auditoría Interna en el Sector Público.
+m) Autorización de libros: Servicio preventivo, para autorizar mediante razón de apertura los libros de actas, contabilidad y otros, que a criterio del Auditor General resulten necesarios para el fortalecimiento del control interno institucional, de conformidad con lo que establece el artículo 22 inciso e) de la Ley N° 8292 y la norma 1.1.4. de las Normas para el Ejercicio de la Auditoría en el Sector Público.
+n) Bloque de legalidad: Conjunto de normas jurídicas, escritas y no escritas, a cuya observancia se encuentra obligada la Administración Pública, el cual comprende tanto la ley como las normas de rango superior, igual o inferior a ésta, incluidos los principios generales y las reglas de la ciencia o de la técnica.
+o) Contraloría General de la República: Órgano Contralor y de Fiscalización de la Hacienda Pública.
+p) En relación con los términos propios de la materia de auditoría y de control interno y externo no incorporados explícitamente en este artículo, se aplicarán los conceptos utilizados por la Contraloría General de la República y definidos como parte de los glosarios incluidos en los manuales y lineamientos emitidos por el Órgano Contralor.

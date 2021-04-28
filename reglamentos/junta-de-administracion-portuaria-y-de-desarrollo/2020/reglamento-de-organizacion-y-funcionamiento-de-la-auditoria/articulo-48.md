@@ -1,0 +1,2 @@
+SECCIÓN II: Planificación de la Auditoría.
+Artículo 48º.-Planificación estratégica y de corto plazo. El Auditor General liderará y definirá el proceso de planificación estratégica de la Auditoría General, para lo cual presentará el Plan Estratégico de la Auditoría General al Consejo de Administración, de conformidad con la normativa legal y técnica, éste será consistente con el Plan Estratégico Institucional. Además, definirá y documentará la planificación de corto plazo, mediante la elaboración del Plan de Trabajo Anual.

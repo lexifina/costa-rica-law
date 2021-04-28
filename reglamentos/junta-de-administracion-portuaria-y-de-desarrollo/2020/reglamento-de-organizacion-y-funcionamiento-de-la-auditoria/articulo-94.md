@@ -1,0 +1,1 @@
+Artículo 94º.-Supervisión. Cada auditoria o estudio especial de auditoría deberá ser supervisado para asegurar su conformidad con las normas de la auditoría, las políticas y los programas de auditoría.

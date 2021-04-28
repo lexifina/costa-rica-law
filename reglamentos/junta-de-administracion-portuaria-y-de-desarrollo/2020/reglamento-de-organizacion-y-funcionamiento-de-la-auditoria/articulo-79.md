@@ -1,0 +1,5 @@
+Artículo 79º.-Requisitos de las denuncias. Los requisitos esenciales que deben reunir las denuncias que se presenten a la Auditoría General serán los siguientes:
+a) Los hechos denunciados deben ser expuestos en forma clara, precisa y circunstanciada, brindando el detalle suficiente que permita realizar la investigación, el momento y lugar en que ocurrieron tales hechos y el sujeto que presuntamente los realizó y las posibles pruebas o evidencias de los hechos denunciados, o al menos la indicación de su localización.
+b) Debe señalar la posible situación irregular que afecta la labor y recursos públicos de la Institución.
+c) El denunciante debe indicar cuál es su pretensión en relación con el hecho denunciado.
+En caso de imprecisión de los hechos, se otorgará al denunciante diez días hábiles para que complete la información que fundamenta la denuncia. Lo anterior bajo apercibimiento de que con el incumplimiento de esta prevención, se procederá al archivo inmediato de la gestión, sin perjuicio de que sea presentada con mayores elementos posteriormente como una nueva denuncia.

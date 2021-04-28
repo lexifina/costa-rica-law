@@ -1,0 +1,1 @@
+Artículo 4º-Actualización del Reglamento. Con el propósito de mantener debidamente actualizado el marco normativo de la Auditoría General, le corresponde al Auditor General, proponer y promover ante el Consejo de Administración las modificaciones que estime pertinentes al presente reglamento, de conformidad con la normativa dispuesta por el Órgano Contralor para ello.

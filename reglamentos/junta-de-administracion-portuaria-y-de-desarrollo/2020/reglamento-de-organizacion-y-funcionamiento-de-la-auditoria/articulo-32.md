@@ -1,0 +1,7 @@
+Artículo 32º.-Impedimentos del personal de la Auditoría General. Con el propósito de preservar su independencia de criterio, objetividad y ética profesional, el personal de la Auditoría General no podrá:
+a) Utilizar su cargo con propósitos de carácter privado.
+b) Mantener relaciones de índole personal, sentimental, de negocios, o de cualquier otra naturaleza con personal de la Institución y otras personas, que puedan influir, comprometer, o amenazar la capacidad para actuar o que puedan afectar su independencia, o la imagen de la Auditoría General.
+c) Participar en auditorías de operaciones o transacciones de las cuales haya sido previamente responsables de su ejecución como funcionario de la Administración Activa, proveedores, o prevalezcan relaciones familiares entre éstos, hasta el tercer grado de consanguineidad y afinidad.
+d) Participar en la prestación de servicios de auditoría, para una actividad en la que se tuvo responsabilidades o relaciones con personas, que puedan resultar incompatibles, durante un periodo de 5 años.
+e) Como política de la Auditoría General todo su personal deberá tener su salario libre de embargos y mantener una conducta moral decorosa, tanto dentro como fuera de la institución.
+f) El Auditor General establecerá los mecanismos formales necesarios que permitan controlar y administrar cualquier situación de impedimento que comprometa la objetividad e independencia de la Auditoría General.

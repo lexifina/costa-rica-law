@@ -1,0 +1,2 @@
+SECCIÓN IV: Ejecución de los Servicios de la Auditoría General
+Artículo 54º.-Ejecución de los estudios de auditoría. El desarrollo de las diferentes etapas que conlleva la ejecución de los estudios de auditoría, se regirá por las normas técnicas emitidas por la Contraloría General de la República, así como los procedimientos y directrices para la ejecución de los trabajos que promulgue el Auditor General.

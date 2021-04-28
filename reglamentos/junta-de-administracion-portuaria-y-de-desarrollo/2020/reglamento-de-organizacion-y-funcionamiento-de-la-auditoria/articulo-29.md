@@ -1,0 +1,1 @@
+Artículo 29º.-Subordinación del personal de la Auditoría General. El personal de la Auditoría depende directamente del Auditor General y es responsable ante él en el desempeño de sus funciones, las cuales ejercerán de conformidad con lo dispuesto en este Reglamento, el Manual de Normas vigente y las instrucciones recibidas.

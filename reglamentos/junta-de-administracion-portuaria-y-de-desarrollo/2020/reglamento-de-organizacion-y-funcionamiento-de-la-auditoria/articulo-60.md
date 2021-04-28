@@ -1,0 +1,1 @@
+Artículo 60.-Responsabilidad de la Supervisión. El(los) Supervisor(es) de Auditoría deben realizar una supervisión constante de todos los trabajos de la Auditoría a lo largo de su ejecución. El Auditor General y el Sub-Auditor General ejercerán dicha supervisión tanto en el trabajo realizado por el(los) auditor(es) como el realizado por el(los) Supervisor(es) de Auditoría.

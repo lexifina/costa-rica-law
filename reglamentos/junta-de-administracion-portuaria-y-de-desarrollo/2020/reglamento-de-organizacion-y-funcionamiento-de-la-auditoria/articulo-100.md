@@ -1,0 +1,1 @@
+Artículo 100º.-Sanciones. La determinación de la responsabilidad y aplicación de las sanciones administrativas corresponde al órgano competente y se regirá por lo establecido en el artículo 41, de la Ley General de Control Interno.

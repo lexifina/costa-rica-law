@@ -1,0 +1,2 @@
+Artículo 42º.-Ejecución del presupuesto y del plan de adquisiciones. Corresponderá al Auditor General o a quien delegue, autorizar los documentos de ejecución presupuestaria que procedan y todo requerimiento de modificación al presupuesto anual asignado y al plan anual de adquisiciones de la Auditoría General.
+Ejecutar recursos, de la categoría programática asignados a la Auditoría General, sin la autorización del Auditor General, será considerado como falta grave para efectos de sentar responsabilidades administrativas.
