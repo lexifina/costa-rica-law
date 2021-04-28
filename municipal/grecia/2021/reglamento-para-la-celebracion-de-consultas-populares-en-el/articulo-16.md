@@ -1,0 +1,2 @@
+Artículo 16.-De la formulación de la pregunta: La formulación de la pregunta objeto de la consulta será clara y concisa de modo que se eviten interrogaciones confusas, capciosas o de doble sentido.
+Salvo casos excepcionales autorizados previamente por el Tribunal, corresponderá al Concejo Municipal definir la pregunta que será formulada de manera que se pueda contestar utilizando únicamente las palabras "SI" o "NO".

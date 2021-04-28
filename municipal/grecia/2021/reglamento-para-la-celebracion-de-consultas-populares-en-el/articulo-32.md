@@ -1,0 +1,1 @@
+Artículo 32.-De las propuestas escritas: Si el Concejo Municipal lo considera pertinente, podrá establecer un término no menor de un mes natural a partir de la difusión de dicha convocatoria para recibir propuestas escritas de los ciudadanos/as, relacionadas con el tema a discutir.

@@ -1,0 +1,1 @@
+Artículo 33.-De la dirección del cabildo: El o la Presidente del Concejo Municipal será el encargado/da de dirigir el cabildo o bien a quien este designe, debiendo tomar las medidas necesarias para mantener el orden del mismo.

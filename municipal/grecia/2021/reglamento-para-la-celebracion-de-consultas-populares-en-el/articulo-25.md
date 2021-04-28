@@ -1,0 +1,1 @@
+Artículo 25.-Requisitos para destitución del Alcalde o de la Alcaldesa propietario: Para destituir al Alcalde o a la Alcaldesa Municipal se requiere el acuerdo de dos tercios del total de los votos emitidos en el plebiscito y que esos dos tercios no sean inferiores al diez por ciento del total de los electores/as inscritos en el cantón de Grecia.
