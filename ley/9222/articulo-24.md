@@ -1,2 +1,2 @@
-ARTÍCULO 24.-
-En caso de que en el expediente del fallecido o en sus documentos o pertenencias personales no se encontrara evidencia de su anuencia en vida de donar sus órganos y tejidos, se procederá a facilitar a sus parientes por consanguinidad hasta el cuarto grado, o por afinidad en primer grado del difunto, la información necesaria acerca de la naturaleza e importancia de este procedimiento, a fin de que sean ellos quienes den su consentimiento informado escrito.
+Artículo 24 - En caso de que en el expediente del fallecido o en sus documentos o pertenencias personales no se encontrará evidencia de su anuencia en vida de donar sus órganos, se procederá a facilitar, a la persona que realiza la tramitología para retirar el cuerpo, la información necesaria acerca de la naturaleza e importancia de este procedimiento, a fin de que sean ellos quienes den su consentimiento informado escrito.
+(Así reformado por el artículo 1° de la ley N° 9916 del 14 de abril del 2021)
