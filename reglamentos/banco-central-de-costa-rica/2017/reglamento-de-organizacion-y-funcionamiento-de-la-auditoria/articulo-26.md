@@ -1,1 +1,0 @@
-Artículo 26.—La solicitud de los recursos necesarios para la gestión de la Auditoría Interna, establecida en el inciso c), del artículo 18 de este reglamento, se regirá por las directrices promulgadas al respecto por la CGR; la Auditoría Interna, la Junta Directiva y la Administración activa deberán cumplir los roles asignados en dicha materia.
