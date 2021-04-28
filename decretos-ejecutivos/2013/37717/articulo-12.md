@@ -1,4 +1,4 @@
-Artículo 12.—El Colegio de Médicos y Cirujanos de Costa Rica, reconoce las siguientes Maestrías y Doctorados Académicos:
+Artículo 12.-El Colegio de Médicos y Cirujanos de Costa Rica, reconoce las siguientes Maestrías y Doctorados Académicos:
 MAESTRÍAS PROFESIONALES Y ACADÉMICAS
 Acupuntura.
 Administración de Servicios de Salud.
@@ -17,7 +17,7 @@ Estimulación Temprana (Así adicionada la maestría anterior mediante sesión o
 Farmacodependencia (Así adicionada la maestría anterior mediante sesión ordinaria N° 2016-07-06 del 6 de julio de 2016)
 Farmacología Clínica.
 Fisiología Humana.
-Gerontología.
+Gerontología. (Nota de Sinalevi: Mediante sesión N° 2021-04-28 del 28 de abril del 2021 se acordó reconocer el sinónimo de la Maestría en Gerontología Social como sinónimo de la Maestría en Gerontología)
 Gerencia de la Salud.
 Homeopatía.
 Informática Médica.
@@ -38,7 +38,7 @@ Psicogeriatría (Así adicionada la maestría anterior mediante sesión ordinari
 Psiquiatría Forense (Así adicionada la maestría anterior mediante sesión ordinaria N° 2016-07-13 del 13 de julio del 2016)
 Salud Pública.
 Salud ocupacional (Así adicionada la maestría anterior mediante sesión ordinaria N° 2014-05-28 del 28 de mayo del 2014)
-Valoración Médica del Daño Corporal (Así adicionada la maestría anterior en sesión 2014-12-17 del 17 de diciembre de 2014) (Así reformada la denominación de la maestría anterior en sesión N° 2016-12-07 del 7 de diciembre de 2016) Asimismo en sesión 2014-12-17 del 17 de diciembre de 2014, se indica reconocer como sinónimos de esta maestría los siguientes términos: • Maestría en Valoración Médica de Incapacidades y Daño Corporal para la Protección Social. • Maestría en Medicina Evaluadora y Peritaje Médico. • Maestría en Valoración del Daño Corporal. • Maestría en Evaluación del Daño Corporal. • Maestría en Valoración del Daño Personal y Medicina del Seguro. (Así reformado los sinónimos de la maestría en Valoración Médica del Daño Corporal en sesión N° 2016-12-07 del 7 de diciembre de 2016)
+Valoración Médica del Daño Corporal (Así adicionada la maestría anterior en sesión 2014-12-17 del 17 de diciembre de 2014) (Así reformada la denominación de la maestría anterior en sesión N° 2016-12-07 del 7 de diciembre de 2016) Asimismo en sesión 2014-12-17 del 17 de diciembre de 2014, se indica reconocer como sinónimos de esta maestría los siguientes términos: . Maestría en Valoración Médica de Incapacidades y Daño Corporal para la Protección Social. . Maestría en Medicina Evaluadora y Peritaje Médico. . Maestría en Valoración del Daño Corporal. . Maestría en Evaluación del Daño Corporal. . Maestría en Valoración del Daño Personal y Medicina del Seguro. (Así reformado los sinónimos de la maestría en Valoración Médica del Daño Corporal en sesión N° 2016-12-07 del 7 de diciembre de 2016)
 DOCTORADOS ACADÉMICOS (Ph. D)
 Ciencias Médicas.
 Medicina.
