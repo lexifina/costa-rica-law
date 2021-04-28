@@ -1,5 +1,0 @@
-Artículo 8º—Tarifas a reconocer por el Ministerio. Las tarifas se regirán por las siguientes disposiciones:
-Servicios telefónicos:
-a) Ministro(a), Viceministros(as), Director(a) General de Salud, tendrán acceso a llamadas nacionales e internacionales, para lo cual el Ministerio asumirá el importe total del recibo; en casos que el monto sea muy elevado de acuerdo a un promedio.
-normal mensual, se deberá justificar el monto para su cancelación.
-b) Los otros funcionarios a los cuales se les asigne de conformidad a la naturaleza de sus funciones, el Ministerio reconocerá el importe de hasta ¢50.000.00 incluido impuesto de ventas y servicio 911. El excedente deberá ser cubierto por el funcionario de su propio peculio, salvo que se justifique su excedente. Dicho excedente deberá ser cancelado por el funcionario de acuerdo a cobro enviado por la Unidad Financiera. Si el funcionario no procede a cancelar el exceso en el tiempo que se le indique, se ordenará la suspensión inmediata del beneficio hasta tanto se normalice la situación. Tendrán derecho a llamadas internacionales los que así autorice el Ministro(a) o la persona que éste designe.

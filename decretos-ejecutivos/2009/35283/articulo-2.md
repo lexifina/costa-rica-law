@@ -1,1 +1,0 @@
-Artículo 2º—Objeto. El presente Reglamento tiene por objeto regular la utilización racional, custodia y conservación de los teléfonos celulares, pertenecientes al Ministerio, asignados como una forma de facilitar el mejor desempeño de las funciones, tareas y actividades de los servidores usuarios.

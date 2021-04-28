@@ -1,2 +1,0 @@
-Artículo 5º—Control de teléfonos asignados. La División Administrativa, mediante la Unidad de Bienes y Servicios, deberá llevar un registro actualizado de los teléfonos celulares asignados a los funcionarios.
-En dicho registro se consignará el número de teléfono, número de patrimonio, nombre, número de cédula y cargo del funcionario a quien se le autorizó el uso de un teléfono celular, la fecha de su asignación y demás cambios y datos que resulten pertinentes, así como el precio del teléfono.
