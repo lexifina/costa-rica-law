@@ -1,0 +1,4 @@
+Artículo 4º-Monto de Garantía. Valorando la estimación económica de los fondos, bienes y valores públicos que recaudan, custodian o administran las personas funcionarias del INEC y miembros del Consejo Directivo obligadas a rendir la póliza de fidelidad referida en el artículo anterior, y considerando el eventual riesgo según criterios de razonabilidad y proporcionalidad, entendidos en el sentido de que en cuanto mayor sea el nivel de responsabilidad y autoridad, mayor debe ser el monto de la garantía a otorgar a favor del INEC, se establecen los siguientes estratos de cauciones:
+Estrato I: un monto mínimo de 1 000 000 00 (1 millón de colones exactos)
+Estrato II: un monto mínimo de 750 000 00 (setecientos cincuenta mil colones exactos)
+Estrato III: un monto mínimo de 500 000 00 (quinientos mil colones exactos)

@@ -1,0 +1,20 @@
+INSTITUTO NACIONAL DE ESTADÍSTICA Y CENSOS
+El Consejo Directivo del Instituto Nacional de Estadística y Censos, en uso de la facultad contenida en el inciso k) del artículo 42 de la Ley Nº 9694, Ley del Sistema de Estadística Nacional del 4 de junio de 2019, de lo establecido en el artículo 13 de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, del 18 de setiembre del 2001 y en la Resolución Nº R-CO- 10-2007 de la Contraloría General de la República, de fecha 19 de marzo del 2007, publicada en el Diario Oficial La Gaceta Nº 64 del 30 de marzo del 2007.
+Considerando:
+I.-Que uno de los objetivos del Sistema Control Interno es proteger y conservar el patrimonio institucional, siendo responsabilidad legal de la Administración, en especial del Jerarca en cooperación con los titulares subordinados, implementar y ejecutar medidas efectivas para administrar adecuadamente el nivel de riesgo existente al recaudar, custodiar y administrar fondos y valores públicos, con acciones que garanticen su cumplimiento, previniendo así el desvío de objetivos y metas propuestas.
+II.-Que un mecanismo idóneo para proteger el patrimonio estatal lo es la rendición de garantías por parte de quienes tienen responsabilidad de recaudar, administrar y custodiar esos fondos y valores públicos.
+III.-Que el artículo 13 de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, exige a todo encargado de recaudar, custodiar o administrar fondos y valores públicos el rendir garantía con cargo a su propio peculio a favor de la Hacienda Pública o la entidad respectiva, siendo que por medio de Reglamento se deben determinar los montos y las clases de las garantías, así como establecer los procedimientos aplicables.
+IV.-Que mediante la Resolución N° R-CO10-2007 de fecha 19 de marzo del 2007, la Contraloría General de la República emitió una serie de directrices para orientar a la Administración en el proceso de reglamentación interna en lo referente a ese tipo de garantías.
+V.-Que mediante Acuerdo 7 de la Sesión Ordinaria 422- 2007, celebrada el día 8 de mayo del 2007, y publicado en La Gaceta Nº 105 del 1º de junio del 2007, se aprobó el "Reglamento para la Rendición de Garantías de conformidad con el Artículo 13 de la Ley de la Administración Financiera de la República y Presupuestos Públicos", con el objeto de establecer los tipos de garantías que debe rendir los funcionarios encargados de recaudar, custodiar o administrar fondos, bienes y valores públicos del Instituto Nacional de Estadística y Censos; y
+VI.-Que resulta necesario ajustar la normativa interna para incorporar otros cargos sujetos a la obligación de rendir garantías, tomando en consideración el tiempo transcurrido desde la promulgación del reglamento indicado en el considerando anterior. Por tanto;
+ACUERDA:
+El siguiente:
+REGLAMENTO PARA LA RENDICIÓN DE GARANTÍAS DEL INSTITUTO
+NACIONAL DE ESTADÍSTICA Y CENSOS DE CONFORMIDAD
+CON EL ARTÍCULO 13 DE LA LEY DE LA ADMINISTRACIÓN
+FINANCIERA DE LA REPÚBLICA
+Y PRESUPUESTOS PÚBLICOS
+Artículo 1º-Definiciones. Para efectos de este reglamento, se establecen las siguientes definiciones:
+a. Administrador de fondos públicos: son todas aquellas personas funcionarias que determinen los objetivos y las políticas del Instituto Nacional de Estadísticas y Censos, a quienes se les ha encomendado mediante el ejercicio de las funciones la tarea del uso y cuidado de esos fondos, ya sea mediante formularios o comprobantes electrónicos, o físicos previamente establecidos por el Instituto.
+b. Custodia: se define como custodia la labor administrativa que ejerce el sector público de cuido, guarda o tendencia sobre aquellos fondos, recursos, valores, bienes y derechos de propiedad del Instituto Nacional de Estadísticas y Censos o a cargo de éste.
+c. Recaudación de fondos públicos: persona encargada de custodiar, administrar fondos y valores públicos, deberá rendir garantía con cargo a su propio peculio, a favor de la Hacienda Pública o la entidad respectiva, para asegurar el correcto cumplimiento de los deberes y las obligaciones de las personas funcionarias.

@@ -1,0 +1,1 @@
+Artículo 2º-Objeto. El presente Reglamento tiene por objeto establecer los tipos de garantías que debe rendir las miembros del Consejo Directivo y personas funcionarias encargadas de recaudar, custodiar o administrar fondos, bienes y valores públicos del Instituto Nacional de Estadística y Censos, en adelante INEC.

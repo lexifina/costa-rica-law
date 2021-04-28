@@ -1,0 +1,2 @@
+Transitorio único. Las personas funcionarias obligados a rendir la garantía correspondiente y que estén ocupando los cargos a la fecha de vigencia de este Reglamento, tendrán quince días hábiles después de publicado el mismo, para suscribir la póliza de fidelidad y para presentar la respectiva documentación ante la entidad encargada de la administración de personal.
+Aprobado mediante Acuerdo 4 de la Sesión Ordinaria 10-2021 del Consejo Directivo, celebrada el 6 del mes de abril del año 2021.
