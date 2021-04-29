@@ -1,0 +1,9 @@
+CIRCULAR N° 89-2021
+ASUNTO: Reiteración de la circular número 198-2015, del 10 de noviembre de 2015, denominada modificación de la circular N° 141-2005, sobre los "plazos en que deben remitir la información requerida por el Consejo Superior".
+A TODAS LAS OFICINAS ADMINISTRATIVAS
+DEL PODER JUDICIAL Y DESPACHOS JUDICIALES
+DEL PAÍS SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión Nº 32-2021 celebrada el 22 de abril de 2021, artículo LVI, acordó reiterar la circular número 198-2015, del 10 de noviembre de 2015, denominada modificación de la circular N° 141-2005, sobre los "plazos en que deben remitir la información requerida por el Consejo Superior", que dice: "El Consejo Superior del Poder Judicial, en sesión Nº 88-15, celebrada el 1 de octubre de 2015, artículo LXXVII, acordó modificar la circular Nº 141-2005 de 7 de octubre de 2005, publicada en el Boletín Judicial Nº 207 de 27 de octubre de ese mismo año, sobre los "plazos en que deben remitir la información requerida por el Consejo Superior", para que se lea de la siguiente manera:
+"El Consejo Superior en sesión Nº 69-05, celebrada 2 de setiembre de 2005, artículo V, dispuso comunicarles, la obligación de remitir la información requerida por este Órgano Superior, dentro de los siguientes tres meses después de comunicado el acuerdo, salvo que se establezca un plazo menor, y en caso de que tengan algún impedimento material para contestar dentro del término concedido, deberán hacerlo del conocimiento del Consejo Superior, de manera oportuna y antes de su vencimiento, señalando las razones por las cuáles no pueden cumplir con ese término, lo anterior en virtud de la importancia que reviste contar con las respuestas que se gestionan, así como los informes solicitados
+Publíquese una sola vez en el Boletín Judicial.
+San José, 29 de abril de 2021.
