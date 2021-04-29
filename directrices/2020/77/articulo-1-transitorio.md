@@ -1,0 +1,6 @@
+Transitorio único.- Se instruye a la Administración Central y se insta a la Administración Descentralizada, a retomar durante el período comprendido del 3 de mayo al 9 de mayo de 2021, inclusive, el plan de servicio básico de funcionamiento,
+de manera que se garantice la continuidad de aquellas tareas estrictamente necesarias para asegurar el fin público institucional y se garantice el funcionamiento de las oficinas regionales y/o rurales que brinden atención al público en el país. Para dichos efectos, las instituciones podrán requerir la asistencia máxima del 20% del total de su planilla.
+El Ministerio de Educación Pública, mediante resolución administrativa motivada, podrá establecer las medidas que considere necesarias por implementar en dicho Ministerio lo dispuesto en el presente transitorio.
+Quedan exceptuados de esta medida temporal, los supuestos establecidos en el artículo 6° de la presente Directriz.
+Se invita al Poder Judicial, Poder Legislativo, Tribunal Supremo de Elecciones, municipalidades y universidades públicas, a la aplicación de esta medida temporal.
+(Así adicionado por el artículo 1° de la directriz N° 12-S-MTSS-MIDEPLAN del 29 de abril del 2021)
