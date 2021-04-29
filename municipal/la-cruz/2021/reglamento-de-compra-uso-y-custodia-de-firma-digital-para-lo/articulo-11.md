@@ -1,0 +1,2 @@
+Artículo 11.-Disponibilidad de funciones con Firma Digital: Para todo proceso o labor donde se requiera el uso de la Firma Digital por parte de un funcionario con un rol específico asignado, EL jefe inmediato deberá asignar a una persona suplente
+con el mismo rol asignado, mismo que pueda sustituir al funcionario titular en caso que éste no se pueda presentar a laborar o no tenga disponible su capacidad de Firma Digital.

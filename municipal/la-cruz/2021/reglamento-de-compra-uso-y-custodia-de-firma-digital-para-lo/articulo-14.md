@@ -1,0 +1,1 @@
+Artículo 14.-Instalación y Configuración: El TIC será el encargado de brindar el servicio de instalación y configuración de todas las herramientas necesarias para que la Firma Digital funcione correctamente en el computador del funcionario, previa solicitud. Cualquier inconveniente en dicho proceso se deberá trasladar como un caso de atención a la DCFD.

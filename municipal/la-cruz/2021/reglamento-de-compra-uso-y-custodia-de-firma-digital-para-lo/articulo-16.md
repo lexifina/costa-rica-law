@@ -1,0 +1,1 @@
+Artículo 16.-Nuevos Sistemas informáticos: El TIC tendrá la potestad asesorar a los equipos de trabajo que se conformen para la conceptualización, diseño, desarrollo o implementación de nuevos sistemas informáticos en la Municipalidad.
