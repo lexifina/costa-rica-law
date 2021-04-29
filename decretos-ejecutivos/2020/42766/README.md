@@ -14,3 +14,4 @@ Procedimiento de ingreso, documentación y permanencia legal de las personas ext
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-24 | la propia norma |
+| 2 | 2021-04-29 | Decreto Ejecutivo 42987 (2021-04-29) |
