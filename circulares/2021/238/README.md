@@ -13,3 +13,4 @@ Creación del Juzgado Agrario de Jicaral, así como el cambio de competencias te
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-12 | la propia norma |
+| 2 | 2021-04-29 | Circular 88 (2021-04-29) |
