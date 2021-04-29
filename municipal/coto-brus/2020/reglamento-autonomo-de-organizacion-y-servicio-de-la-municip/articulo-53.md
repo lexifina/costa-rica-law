@@ -1,0 +1,1 @@
+Artículo 53- Si el servidor estima que la calificación no es la que le corresponde podrá impugnarla por escrito exponiendo los motivos en que fundamenta su inconformidad ante su jefe inmediato, dentro de los tres días hábiles siguientes al de la notificación, debiéndoles ser notificada la resolución de dicha impugnación en un plazo no mayor a cinco días hábiles.

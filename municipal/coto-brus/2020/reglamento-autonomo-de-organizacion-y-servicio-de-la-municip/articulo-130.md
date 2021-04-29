@@ -1,0 +1,1 @@
+Artículo 130- No obstante lo anterior, las ausencias deberán justificarse por escrito, a más tardar dentro de los tres días hábiles siguientes a la fecha de ocurrida según sea el caso. El jefe inmediato correspondiente determinará si la ausencia es justificada o no.

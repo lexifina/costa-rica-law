@@ -1,0 +1,2 @@
+Artículo 32- El servidor (a) que concurse por oposición y cumpla con lo estipulado en el Código Municipal, quedará elegible si obtiene una nota mayor o igual a 70 y mantendrá esta condición por el término de un año, contado a partir del momento en que se le comunique.
+Previo informe y consulta de permutas y traslados horizontales de los servidores con sus jefes inmediatos el Alcalde podrá autorizar estos movimientos, siempre que no les causen evidente perjuicio y cuando satisfaga una necesidad real de la Municipalidad.

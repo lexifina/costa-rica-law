@@ -1,0 +1,1 @@
+Artículo 55- Si persiste desacuerdo entre el coordinador inmediato y el colaborador (a) en relación con el resultado de la evaluación y calificación de servicios, será resuelto por el Alcalde de la Municipalidad, previa audiencia a todas las partes interesadas, de acuerdo con el procedimiento que establece el Código Municipal.

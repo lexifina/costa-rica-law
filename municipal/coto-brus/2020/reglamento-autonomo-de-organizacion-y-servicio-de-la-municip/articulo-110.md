@@ -1,0 +1,1 @@
+Artículo 110- Los funcionarios con grado académico y que se encuentren debidamente habilitados para ejercer la profesión, podrán acogerse al pago por concepto de dedicación exclusiva o disponibilidad, según las disposiciones legales y reglamentarias vigentes en esa materia, siempre y cuando así lo exijan las necesidades municipales.

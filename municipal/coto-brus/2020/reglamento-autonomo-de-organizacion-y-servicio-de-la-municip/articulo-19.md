@@ -1,0 +1,1 @@
+Artículo 19- Se establece la carrera administrativa municipal, como medio de desarrollo y promoción humana. Se entenderá como un sistema integral, regulador del empleo y las relaciones laborales entre los servidores y la administración municipal.

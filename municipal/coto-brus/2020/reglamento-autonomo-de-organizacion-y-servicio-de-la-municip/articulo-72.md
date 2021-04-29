@@ -1,0 +1,1 @@
+Artículo 72- La Municipalidad deberá acatar las disposiciones que en materia de salud ocupacional se establezca en la legislación, especialmente en cuanto al suministro de implementos, herramientas y equipo de protección a los trabajadores.

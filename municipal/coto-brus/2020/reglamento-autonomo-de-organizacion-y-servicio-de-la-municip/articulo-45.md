@@ -1,0 +1,1 @@
+Artículo 45- Los incentivos deben estar relacionados directamente con la productividad alcanzada en el cumplimiento del Programa de Desarrollo Municipal, el Plan Anual Operativo y la Evaluación del Desempeño.

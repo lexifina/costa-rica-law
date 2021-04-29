@@ -1,0 +1,4 @@
+Artículo 2- Son principios éticos del servidor municipal los siguientes:
+a. Orientar el ejercicio de la función Municipal hacia la satisfacción del bien común, que debe ser el fin último y esencial de la prestación de los servicios municipales.
+b. La lealtad, la eficiencia, la probidad, el respeto a la autoridad, hacia los demás funcionarios y a los usuarios, así como la responsabilidad, son los valores fundamentales e intrínsecos al ejercicio de la función pública municipal.
+c. El funcionario municipal es un servidor de los munícipes del Cantón de Corredores, y en ese particular, de cada individuo o administrado que con él se relacione en virtud de la prestación del servicio y de la función que desempeña, la cual debe atender de una manera integral con aplicación plena de sus conocimientos, aptitudes y valores.

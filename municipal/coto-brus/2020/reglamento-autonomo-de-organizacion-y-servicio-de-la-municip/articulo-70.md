@@ -1,0 +1,1 @@
+Artículo 70- Todo trabajador está en la ineludible obligación de dar aviso al jefe inmediato, al área de Recursos Humanos o Director Administrativo, de algún accidente que haya sufrido, dentro del día posterior al accidente.

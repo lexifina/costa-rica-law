@@ -1,0 +1,1 @@
+Artículo 61- El área de Recursos Humanos, elaborará e implementará el programa de salud ocupacional que cubra a todas las dependencias de la Municipalidad, conforme la Ley sobre Riegos del Trabajo, Nº 6727 del 9 de marzo de 1982 y sus reformas.

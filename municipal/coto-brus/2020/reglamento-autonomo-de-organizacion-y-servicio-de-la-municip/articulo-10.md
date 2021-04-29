@@ -1,0 +1,1 @@
+Artículo 10- La Municipalidad de Corredores promulgara y actualizara el Manual Descriptivo de Puestos y la estructura funcional de la institución de acuerdo a las necesidades. Dicha actualización será responsabilidad del área de Recursos Humanos, y la Alcaldía Municipal quienes presentaran la propuesta ante el Concejo Municipal para su respectiva aprobación.

@@ -1,0 +1,1 @@
+Artículo 119- Cada jefatura regulará la forma en que sus subalternos pueden tomar dicho descanso, a efecto de que no se cause menoscabo del trabajo, ni mucho menos se produzca el cierre de ninguna dependencia.

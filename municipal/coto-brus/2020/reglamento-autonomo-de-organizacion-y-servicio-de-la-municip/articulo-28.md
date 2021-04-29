@@ -1,0 +1,1 @@
+Artículo 28- La Municipalidad para efectos de reclutamiento y selección de personal, mantendrá actualizado un manual, que fijará las pautas para garantizar los procedimientos, la uniformidad y los criterios de equidad que exige la normativa legal.

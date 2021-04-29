@@ -1,0 +1,1 @@
+Artículo 100- Los funcionarios (as) podrán acogerse al pago por concepto de prohibición, dedicación exclusiva, y tendrán derecho al pago de la carrera profesional, únicamente de conformidad con la normativa vigente.

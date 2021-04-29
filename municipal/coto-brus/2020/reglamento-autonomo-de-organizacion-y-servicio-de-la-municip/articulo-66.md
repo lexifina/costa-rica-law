@@ -1,0 +1,1 @@
+Artículo 66- Las comisiones de salud ocupacional, en coordinación con las autoridades superiores de cada dependencia de la Municipalidad, podrán realizar acciones de formación humanística, intelectual, estética, deportiva y recreativa que permiten el desarrollo de actitudes.

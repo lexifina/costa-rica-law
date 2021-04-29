@@ -1,0 +1,1 @@
+Artículo 145- Para aplicar cualquier sanción disciplinaria de llamada de atención escrita, de suspensión y despido, previamente deberá cumplirse con el debido proceso conforme al Código Municipal y a la Ley General de la Administración Pública.

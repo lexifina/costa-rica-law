@@ -1,0 +1,1 @@
+Artículo 62- La Municipalidad a través de la oficina de Salud Ocupacional y dentro de sus posibilidades materiales y profesionales reales, coordinará con las instituciones públicas del cantón programas de capacitación las áreas de: Primeros auxilios; Prevención ante desastres y otros; esto a todos los funcionarios municipales.

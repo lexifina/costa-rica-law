@@ -1,0 +1,3 @@
+Artículo 134- Toda llegada tardía debe ser justificada ante la jefatura inmediata, el mismo día de su ocurrencia, con exposición clara y precisa de las razones que le impidieron presentarse a la hora señalada para el ingreso de labores. Lo anterior será tomado en cuenta para efectos de valorar la misma, aceptarla o rechazarla por la jefatura inmediata.
+Las jefaturas están obligadas a recibir las solicitudes de justificación y remitirlas con su criterio razonado, en forma positiva o negativa, a la Área de Recursos Humanos, en un plazo no mayor de tres días hábiles a partir de la fecha de su recibo.
+El incumplimiento de lo señalado en los dos párrafos anteriores acarreará responsabilidad disciplinaria para el funcionamiento o jefe según sea el caso.

@@ -1,0 +1,1 @@
+Artículo 56- Cuando el resultado de la evaluación y calificación de servicios anual del servidor (a) sea de regular tres veces consecutivas el hecho, se considerará falta grave y se actuará conforme a lo establecido en este Reglamento y las disposiciones del Código Municipal, respetando siempre el debido proceso.

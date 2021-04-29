@@ -1,0 +1,1 @@
+Artículo 117- El cambio de lugar donde se prestarán los servicios deberá ser puesto en conocimiento por parte de jefe inmediato, en aquellos casos en que dadas las condiciones y lugar de las obras, por criterios de utilidad y necesidad la administración así lo disponga con un tiempo no menor a 24 horas.

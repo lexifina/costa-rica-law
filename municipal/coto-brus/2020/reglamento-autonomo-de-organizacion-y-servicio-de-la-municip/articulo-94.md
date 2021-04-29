@@ -1,0 +1,1 @@
+Artículo 94- Si como consecuencia de un accidente de trabajo el servidor municipal no pudiera desempeñar el puesto que ocupaba antes de ocurrirle el accidente o se le haya diagnosticado la enfermedad por prescripción médica, la Municipalidad estará obligada a reubicarlo a un nuevo puesto acorde con su capacidad física, motora y laboral, garantizándose todos sus derechos.

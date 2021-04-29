@@ -1,0 +1,1 @@
+Artículo 142- La amonestación verbal se aplicará en casos que la falta sea considerada como leve. Considérese faltas leves todas aquellas establecidas en los artículos 78 y 79 de este Reglamento excepto las que se encuentren definidas como faltas graves dentro de los artículos citados.

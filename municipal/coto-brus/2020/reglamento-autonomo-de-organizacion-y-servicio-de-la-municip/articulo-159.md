@@ -1,0 +1,1 @@
+Artículo 159- En defecto de disposiciones propias de este Reglamento deberán tenerse como supletorias las contenidas en el Código Municipal, Código de Trabajo y demás leyes, decretos y reglamentos conexos en la materia que estén en vigencia, así como la Convención Colectiva. Rige diez días hábiles después de su publicación en el Diario Oficial La Gaceta.

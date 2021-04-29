@@ -1,0 +1,3 @@
+CAPITULO VII.
+DE LA EVALUACIÓN Y CALIFICACIÓN.
+Artículo 46- Los servidores (as) de la Municipalidad, tendrán de acuerdo con el capítulo VI del Código Municipal, una evaluación y calificación de sus servicios. Para tales efectos los instrumentos deben ser confeccionados con criterio técnico y legal por el departamento de Recursos Humanos, mismos que deberán ser validados por la Alcaldía y de conocimiento y aprobación por el Concejo Municipal y anexarse a este reglamento, para ser modificados deberá presentarse la solicitud respectiva y justificada técnica y legalmente, ante el órgano que autorizo en primera instancia.

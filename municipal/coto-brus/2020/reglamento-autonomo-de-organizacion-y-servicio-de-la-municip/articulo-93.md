@@ -1,0 +1,8 @@
+CAPÍTULO XVII.
+DE LAS INCAPACIDADES PARA TRABAJAR.
+Artículo 93- La Municipalidad reconocerá las ausencias al trabajo del servidor (a) motivadas por incapacidad para trabajar, ya sea por enfermedad, maternidad o riesgo profesional, y se sujetará a las siguientes disposiciones:
+a) La incapacidad para trabajar por motivos de enfermedad será reconocida durante todo su periodo, y pagará la diferencia que exista entre lo que cancelen las instituciones aseguradoras y el 100% de su salario.
+b) La incapacidad para trabajar por motivos de maternidad se pagará durante los meses que señala el Código de Trabajo, reconociendo la diferencia que exista entre el total de su salario y lo que pague la Caja Costarricense del Seguro Social.
+c) Tratándose de incapacidad para trabajar por riesgo profesional se tomará lo dispuesto en la Ley sobre Riesgos del Trabajo, Nº 6727 del 9 de marzo de 1982 y sus reformas, garantizándose en todo caso el pago del 100% del salario.
+En todo lo que no se encuentre aquí expresamente regulado respecto de las incapacidades, se considerarán disposiciones supletorias del presente reglamento, el reglamento para la extensión de incapacidades a los trabajadores (as) beneficiarios (as) del régimen de enfermedad y maternidad y el reglamento general de riesgo de trabajo y las interpretaciones que de los mismos expida la Caja Costarricense del Seguro Social y como normas generales el Código de Trabajo y el Código Municipal.
+En ningún caso de incapacidad para trabajar por enfermedad, maternidad o riesgo profesional, el monto del subsidio que pague la respectiva institución aseguradora sumado al que pague la Municipalidad, podrá exceder el monto del salario del funcionario (a).

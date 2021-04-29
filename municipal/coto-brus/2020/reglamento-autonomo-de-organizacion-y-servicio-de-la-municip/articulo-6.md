@@ -1,0 +1,1 @@
+Artículo 6- Las personas que ocupen jefaturas, y todos aquellos funcionarios que tengan bajo su responsabilidad, tareas de administración o supervisión de personal, son responsables ante el Alcalde (sa) o Vice alcaldes (as) designados de velar por la correcta aplicación de todas las disposiciones de este reglamento.
