@@ -1,0 +1,2 @@
+TRANSITORIO II. A la fecha de vigencia del presente Decreto Ejecutivo, las personas extranjeras que hayan sido notificadas de la resolución de rechazo de su petición para la CETTSA por falta o defectuosa presentación de documentos, podrán por una única vez, aportar ante el MAG, dentro de los siguientes treinta días hábiles posteriores al rige de este Decreto Ejecutivo, la documentación omitida o corregida, la cual, será trasladada a la DGME para ser valorada nuevamente.
+(Así adicionado por el artículo 5° del decreto ejecutivo N° 42988 del 29 de abril del 2021)

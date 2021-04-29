@@ -1,1 +1,3 @@
 Artículo 11.- Presentación de requisitos. Toda solicitud de la CETTSA deberá de ser presentada de forma completa con todos los requisitos indicados en el presente Decreto Ejecutivo, de lo contrario dicha solicitud será rechazada por la DGME.
+De forma excepcional y por una única vez, en caso de que la solicitud sea rechazada por falta o defectuosa presentación de los documentos correspondientes, la persona interesada podrá aportar ante el MAG, dentro de los siguientes treinta días hábiles posteriores a la notificación del rechazo, la documentación omitida o corregida, el cual será trasladada a la DGME para ser valorada nuevamente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42988 del 29 de abril del 2021)

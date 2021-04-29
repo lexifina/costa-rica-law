@@ -17,3 +17,4 @@ Procedimiento para acceder al régimen de excepción para la regularización mig
 | 2 | 2020-07-15 | Decreto Ejecutivo 42475 (2020-07-15) |
 | 3 | 2020-09-22 | Decreto Ejecutivo 42626 (2020-09-22) |
 | 4 | 2021-01-27 | Decreto Ejecutivo 42882 (2021-01-27) |
+| 5 | 2021-04-29 | Decreto Ejecutivo 42988 (2021-04-29) |

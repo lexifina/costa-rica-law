@@ -1,4 +1,5 @@
-TRANSITORIO UNICO:
+TRANSITORIO I:
+(Así ajustada la numeración del transitorio anterior por el artículo 5° del decreto ejecutivo N° 42988 del 29 de abril del 2021)
 A partir del 23 de septiembre de 2020, se aplicará lo dispuesto en el artículo 177 de la LGME para el caso de las personas físicas o los representantes de las personas jurídicas de los centros de trabajo del sector agrícola, agroindustrial o agroexportador que cuenten, independientemente de la naturaleza de su contrato, con personas trabajadoras migrantes en condición irregular que no hayan iniciado su trámite de regularización bajo el procedimiento de regularización establecido en el presente Decreto Ejecutivo para las personas con arraigo; con anterioridad a dicha fecha, no se aplicará tal disposición de la LGME.
 Durante el período comprendido del 23 de septiembre al 22 de octubre de 2020, no se aplicará lo dispuesto en el párrafo anterior sobre el artículo 177 de la LGME, para el caso de las personas físicas o los representantes de las personas jurídicas de los centros de trabajo del sector agrícola, agroindustrial o agroexportador que hayan iniciado su trámite de regularización dispuesto en el presente Decreto Ejecutivo para las personas con arraigo.
 (Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 42626 del 22 de setiembre del 2020)

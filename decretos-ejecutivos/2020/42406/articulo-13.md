@@ -1,1 +1,2 @@
-Artículo 13.-Recursos. En caso de la que petición de la CETTSA sea denegada, se aplicará lo que establecen los artículos 221 y siguientes de la LGME.
+Artículo 13.-Recursos. En caso de la que petición de la CETTSA sea denegada, se aplicará lo que establecen los artículos 221 y siguientes de la LGME o bien la persona interesada podría gestionar la excepción dispuesta en el artículo 11 del presente Decreto Ejecutivo, sobre la nueva valoración por una única vez.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 42988 del 29 de abril del 2021)
