@@ -40,3 +40,4 @@ Reglamento General de Crédito
 | 25 | 2018-10-22 | Reglamento 115 (2018-10-22) |
 | 26 | 2019-12-17 | Reglamento 143 (2019-12-17) |
 | 27 | 2020-04-28 | Reglamento 48 (2020-04-28) |
+| 28 | 2021-04-29 | Reglamento 47 (2021-04-29) |
