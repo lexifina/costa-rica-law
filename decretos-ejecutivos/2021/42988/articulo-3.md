@@ -1,0 +1,2 @@
+Artículo 3.- Refórmese el artículo 13 del Decreto Ejecutivo número 42406-MAG-MGP, del 16 de junio del 2020, para que en adelante se lea de la siguiente manera:
+"Artículo 13.-Recursos. En caso de la que petición de la CETTSA sea denegada, se aplicará lo que establecen los artículos 221 y siguientes de la LGME o bien la persona interesada podría gestionar la excepción dispuesta en el artículo 11 del presente Decreto Ejecutivo, sobre la nueva valoración por una única vez."
