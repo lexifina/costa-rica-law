@@ -1,0 +1,1 @@
+Artículo 4º- Contribución, implementación y seguimiento. Se insta a la Administración Pública Central, a las instituciones autónomas y empresas del Estado para que, dentro de sus competencias y capacidades, y en estricto apego al ordenamiento jurídico, brinden la cooperación y las facilidades necesarias requeridas para el logro de los objetivos descritos.
