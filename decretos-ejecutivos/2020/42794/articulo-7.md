@@ -1,0 +1,2 @@
+Artículo 7°-De los recursos. Para el desempeño de sus funciones, la Comisión empleará las capacidades operativas y administrativas existentes, así como los recursos presupuestarios y humanos disponibles en las instituciones que la componen; lo anterior, sin que las acciones en materia de apatridia se desvinculen de los demás procesos de planificación a cargo de cada institución.
+La labor de los representantes de la Comisión será ad honorem.
