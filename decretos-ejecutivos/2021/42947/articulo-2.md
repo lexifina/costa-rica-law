@@ -1,0 +1,2 @@
+Artículo 2º-Contabilización del plazo único de un año adicional. Con el fin de gozar del beneficio del plazo establecido en la Ley N° 9974, éste deberá computarse adicionando un año a la fecha en que las mercancías hubieren caído en abandono, según el primer párrafo del artículo 157 de la Ley General de Aduanas, de forma tal que, el día 16 de marzo del 2022 inclusive, constituye la fecha máxima para la aplicación del plazo adicional.
+Una vez concluido el plazo adicional otorgado, las mercancías caerán en abandono.
