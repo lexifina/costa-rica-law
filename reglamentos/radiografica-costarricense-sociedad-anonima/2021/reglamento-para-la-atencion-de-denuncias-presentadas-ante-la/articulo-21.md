@@ -1,0 +1,1 @@
+Artículo 21.-Vigencia. El presente Reglamento fue aprobado por la Junta Directiva de RACSA en la sesión ordinaria N° 2313 del 17 de marzo de 2021 y rige a partir de su publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 8º-La Atención de denuncias trasladadas por la Contraloría General de la República. La Auditoría Interna atenderá, de acuerdo con su plan de trabajo, las denuncias que le sean remitidas por el Ente Contralor. No obstante, de acuerdo con el contenido de éstas, se podrá dar prioridad a su atención en el menor tiempo posible.

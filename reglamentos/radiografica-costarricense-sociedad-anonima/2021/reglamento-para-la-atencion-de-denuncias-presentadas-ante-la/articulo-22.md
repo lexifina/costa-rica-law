@@ -1,0 +1,1 @@
+Artículo 22.-Derogatoria. El presente Reglamento deroga el Reglamento para la Atención de Denuncias Planteadas ante la Auditoría Interna de Radiográfica Costarricense S. A., publicado en La Gaceta N° 220 del 15 de noviembre de 2007.

@@ -1,0 +1,1 @@
+Artículo 5º-Aplicación del Principio de Oficiosidad. Presentada la denuncia, el denunciante tiene la facultad de desistir en cualquier momento de su solicitud; sin embargo, la Auditoría Interna puede continuar de oficio la investigación si así lo estima pertinente.

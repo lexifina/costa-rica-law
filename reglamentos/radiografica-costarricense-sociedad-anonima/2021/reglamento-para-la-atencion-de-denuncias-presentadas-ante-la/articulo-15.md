@@ -1,0 +1,1 @@
+Artículo 15.-Conformación del expediente. La Auditoría Interna de RACSA deberá documentar en un expediente individual, las acciones realizadas para la atención de las denuncias, mediante los medios definidos y oficializados empresarialmente, velando por la integridad de la documentación que lo conforme, el cual deberá estar foliado y ordenado cronológicamente.
