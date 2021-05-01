@@ -1,6 +1,5 @@
-(Derogado)
 N° 8881
-(Nota de Sinalevi: Vigencia: De conformidad con lo que establece el artículo 134 de esta norma, la modificación al Código Aduanero Uniforme Centroamericano (CAUCA), ley N° 7485 del 06 de abril de 1995, “entrará en vigencia en forma simultánea con su correspondiente Reglamento." Dicho Reglamento aún no ha sido aprobado , razón por la cual esta norma no está vigente.)
+(Nota de Sinalevi: Esta norma entró en vigencia a partir del 1° de mayo de 2021, con la publicación del Reglamento al Código Aduanero Uniforme Centroamericano (RECAUCA), aprobado mediante resolución N° 224-2008 (COMIECO-XLIX) del 25 de abril de 2008, ratificado mediante decreto ejecutivo N° 42876 del 28 de enero de 2021)
 (Nota de Sinalevi: Mediante decreto ejecutivo N° 36346 del 6 de diciembre de 2010, Costa Rica, ratifica la Modificación al Código Aduanero Uniforme Centroamericano y su Protocolo de Enmienda, adoptados por el Consejo de Ministros de Integración Económica Centroamericana mediante las Resoluciones números 223-2008 (COMIECO-XLIX) del 25 de abril de 2008 y 248-2009 (COMIECO-EX) del 19 de junio del 2009; indicadas en este decreto. La resolución 248-2009, se encuentra en el numeral 2° de esta norma)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
@@ -10,7 +9,7 @@ ADUANERO UNIFORME CENTROAMERICANO
 Y SU PROTOCOLO DE ENMIENDA
 ARTÍCULO 1.-
 Apruébase, en cada una de sus partes, la modificación del Código aduanero uniforme centroamericano, aprobado el 25 de abril de 2008, en San Salvador, República de El Salvador. El texto es el siguiente:
-“RESOLUCIÓN No. 223-2008 (COMIECO-XLIX)
+"RESOLUCIÓN No. 223-2008 (COMIECO-XLIX)
 EL CONSEJO DE MINISTROS DE INTEGRACIÓN ECONÓMICA
 CONSIDERANDO:
 Que el Código Aduanero Uniforme Centroamericano (CAUCA) es parte integrante del Régimen Arancelario y Aduanero Centroamericano, establecido en los artículos 1 y 3 del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano;
@@ -538,9 +537,9 @@ Artículo Transitorio II: Competencia y plazo de entrada en funcionamiento del T
 En los Estados Parte donde hubiera un tribunal competente para la materia aduanera cualquiera que fuere su denominación, se entenderá que es el Tribunal Aduanero al que se refiere el artículo 128 de este Código.
 (*)Dentro del plazo de seis meses a partir de la fecha en que este Código y su Reglamento entren en vigencia, deberán constituirse los Tribunales Aduaneros. Hasta tanto, quedan vigentes las funciones del Comité Arancelario y de Valoración Aduanera o del superior jerárquico del Servicio Aduanero en su caso.
 (*)(Nota de Sinalevi: Mediante el Protocolo de Enmienda que contiene la Resolución N° 248-2009, aprobado mediante ley N° 8881 del 4 de noviembre de 2010, se acordó modificar el párrafo segundo de este transitorio, el cual se leerá de la siguiente manera:
-A más tardar el 18 de febrero de 2011 deberán quedar constituidos los Tribunales Aduaneros a que hace referencia el artículo 128 de este cuerpo legal, en todos los Estados Parte. Hasta tanto, quedan vigentes las funciones del Comité Arancelario y de Valoración Aduanera o del superior jerárquico del Servicio, en aquellos Estados Parte que aún tienen pendiente la constitución de los indicados tribunales, según sea el caso”.)
+A más tardar el 18 de febrero de 2011 deberán quedar constituidos los Tribunales Aduaneros a que hace referencia el artículo 128 de este cuerpo legal, en todos los Estados Parte. Hasta tanto, quedan vigentes las funciones del Comité Arancelario y de Valoración Aduanera o del superior jerárquico del Servicio, en aquellos Estados Parte que aún tienen pendiente la constitución de los indicados tribunales, según sea el caso".)
 (Nota de Sinalevi: Mediante resolución N° 261-2010(COMIECO-LIX) del 13 de diciembre de 2010, aprobada mediante decreto ejecutivo N° 36492 del 21 de febrero de 2011, se indica modificar el plazo establecido en el segundo párrafo del Artículo Transitorio II del Código Aduanero Uniforme Centroamericano (CAUCA), para la constitución de los Tribunales Aduaneros, prorrogándolo hasta él 18 de febrero de 2012)
 Artículo Transitorio III: Base de datos regional
 Dentro de los treinta (30) días siguientes a la entrada en vigencia del presente Código, los Estados Parte deberán efectuar la actualización en línea de la base de datos regional de transportistas autorizados.
 Artículo Transitorio IV: Carrera Administrativa
-Los Estados Parte deberán en el plazo de los seis meses siguientes a la vigencia del presente Código y su Reglamento, aprobar y poner en aplicación el estatuto de carrera administrativa aduanera.”
+Los Estados Parte deberán en el plazo de los seis meses siguientes a la vigencia del presente Código y su Reglamento, aprobar y poner en aplicación el estatuto de carrera administrativa aduanera."
