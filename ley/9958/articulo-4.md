@@ -1,0 +1,3 @@
+ARTÍCULO 4- Aplicación y su reglamento
+El Ministerio de Seguridad Pública, la Policía Profesional de Migración, la Dirección de Inteligencia y Seguridad Nacional y el Organismo de Investigación Judicial establecerán de manera conjunta, vía reglamento, los lineamientos para la aplicación de la prueba, los parámetros de calibración y mantenimiento de los equipos, el perfil de operador, el uso y seguridad de la información, así como la responsabilidad en la calibración y verificación de los equipos por una instancia competente a nivel nacional.
+Deberán definirse, además, un procedimiento de entrega de los resultados a la persona que se someta a la prueba y un procedimiento de impugnación.

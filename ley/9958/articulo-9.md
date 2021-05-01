@@ -1,0 +1,2 @@
+ARTÍCULO 9- Prohibiciones
+Queda prohibida cualquier pregunta sensible sobre orientación sexual, preferencia de religión o culto, así como ideología política. Los resultados de dicha prueba no podrán ser utilizados como medio de coacción o reproche, como causal para sanciones o despido, ni como condicionante para obtener un puesto en alguna fuerza policial o cuerpo especial de policía. Tampoco podrán ser utilizados los resultados de polígrafo en procesos judiciales.

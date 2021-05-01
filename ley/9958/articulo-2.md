@@ -1,0 +1,3 @@
+ARTÍCULO 2- Ámbito de aplicación
+Se autoriza a los cuerpos policiales que forman parte de la Ley 7410, Ley General de Policía, de 26 de mayo de 1994, el Organismo de Investigación Judicial, la Dirección de Inteligencia y Seguridad Nacional, el Servicio Nacional de Guardacostas y el Servicio de Vigilancia Aérea para que implementen, en los procesos de determinación de rasgos de confiabilidad de su personal, el examen psicofisiológico de polígrafo con carácter optativo y voluntario.
+Esta prueba no será considerada como parámetro único de selección para la permanencia en los cuerpos policiales, sino como una herramienta complementaria de las pruebas técnicas a las que son sometidas.

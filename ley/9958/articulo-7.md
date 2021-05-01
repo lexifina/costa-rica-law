@@ -1,0 +1,4 @@
+ARTÍCULO 7- Autorización
+Para la aplicación del examen psicofisiológico de polígrafo, la persona que acceda voluntariamente a dicha prueba deberá manifestar su consentimiento expreso de forma escrita y previo a su realización.
+El examinado tendrá entrevista con el profesional que aplica dicha evaluación, quien deberá comprobar que la persona llega en condiciones normales y aptas para someterse a ella, recibirá explicación previa acerca del funcionamiento del polígrafo, del significado de las preguntas y el procedimiento de impugnación de los resultados.
+Para evitar afectar los resultados del examen y que no se altere el estado fisiológico, quien se someta a este examen debe hacerlo en condiciones estables de salud y no haber ingerido algún medicamento o sustancia psicoactiva. Finalizada la prueba y habiendo obtenido los resultados, se realizará un informe personalizado.
