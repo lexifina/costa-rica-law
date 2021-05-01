@@ -1,8 +1,8 @@
-Artículo 165. Obligaciones. Además de las obligaciones del Artículo 21 del Código, los operadores económicos autorizados deberán cumplir con las siguientes:
-a) Cumplir con los estándares internacionales de seguridad en la cadena logística;
-b) Tener instalaciones adecuadas de acuerdo a las exigencias del Servicio Aduanero;
-c) Contar con sistema de circuito cerrado de televisión con enlace al Servicio Aduanero;
-d) Determinar y documentar conjuntamente con el Servicio Aduanero medidas de seguridad apropiadas y garantizar su cumplimiento y actualización;
-e) Revisar periódicamente los procedimientos y las medidas de seguridad de acuerdo con el riesgo definido para la seguridad empresarial;
-f) Adoptar las medidas apropiadas de seguridad en materia de tecnologías de la información para proteger el sistema informático utilizado de cualquier intrusión no autorizada, así como tomar las medidas necesarias para garantizar la seguridad y adecuada conservación de los registros y documentos relacionados con las operaciones aduaneras sujetas a control; y
-g) Presentar los informes requeridos por el Servicio Aduanero.
+Artículo 165. Obligaciones. Ad emá s de las obligaciones aplicables del Artículo 21 del Código, los operadores económicos autorizados deberán cumplir con las siguientes:
+a) Implementar los estándares internacionales de seguridad en la cadena logística;
+b) Determinar y documentar medidas de seguridad apropiadas de acuerdo a su actividad comercial, tales como sistema de circuito cerrado de televisión, sistema de posicionamiento global satelital, entre otros con enlace al Servicio Aduanero en las áreas que éste defina y garantizar su cumplimiento y actualización;
+c) Revisar periódicamente los procedimientos y las medidas de seguridad de acuerdo con el riesgo definido para la seguridad empresarial;
+d) Adoptar las medidas apropiadas de seguridad en materia de tecnologías de la información para proteger el sistema informático utilizado de cualquier intrusión no autorizada, así como tomar las medidas necesarias para garantizar la seguridad y adecuada conservación de los registros y documentos relacionados con las operaciones aduaneras sujetas a control; y,
+e) Presentar los informes requeridos por el Servicio Aduanero.
+El incumplimiento de las obligaciones establecidas en el presente artículo y los requisitos dispuestos en el artículo 163 de este Reglamento, conllevará la suspensión o cancelación de la habilitación del operador económico autorizado además de las causales que sean establecidas por el Servicio Aduanero de cada Estado Parte.
+(Así reformado mediante resolución N° 368-2015 (COMIECO-LXXIII) del 22 de octubre de 2015, aprobada por el artículo 3° del decreto ejecutivo N° 42876 del 28 de enero del 2021)

@@ -1,0 +1,2 @@
+Artículo 166 bis. Reconocimiento Mutuo. Los Estados Parte reconocerán al operador económico autorizado de otro Estado Parte cuando hubieren suscrito el correspondiente Acuerdo de Reconocimiento Mutuo, en virtud de lo dispuesto en el Artículo 17 del Código.
+(Así adicionado mediante resolución N° 368-2015 (COMIECO-LXXIII) del 22 de octubre de 2015, aprobada por el artículo 3° del decreto ejecutivo N° 42876 del 28 de enero del 2021)

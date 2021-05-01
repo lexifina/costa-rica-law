@@ -14,3 +14,4 @@ Resolución N° 224-2008 (COMIECO-XLIX) del 25 de abril de 2008 y su Anexo: Regl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-01 | la propia norma |
+| 2 | 2021-05-01 | Decreto Ejecutivo 42876 (2021-01-28) |
