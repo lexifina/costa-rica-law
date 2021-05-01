@@ -1,0 +1,2 @@
+ARTÍCULO 10- Requisitos para las personas físicas o jurídicas que practiquen exámenes de polígrafo
+Las personas físicas o jurídicas, públicas o privadas que brinden servicios de poligrafía deberán acreditar su experiencia como poligrafista profesional, capacitación continua específica en el manejo adecuado de los equipos y los estudios profesionales debidamente cursados y aprobados en una institución reconocida.
