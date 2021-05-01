@@ -1,0 +1,1 @@
+Artículo 75. Carné de identificación. Los auxiliares y el personal acreditado que gestionen directamente ante el Servicio Aduanero, deberán portar carné que los acredite como tales. El carné será confeccionado por los auxiliares de acuerdo con la información, parámetros y formato uniforme que en cada caso, determine el Servicio Aduanero.

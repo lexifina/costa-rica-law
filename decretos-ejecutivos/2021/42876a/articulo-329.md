@@ -1,0 +1,1 @@
+Artículo 329. Factura para diferentes embarques o despachos parciales. Cuando la factura comercial ampare dos o más embarques y que ingresen en diferentes fechas, a las subsiguientes declaraciones de mercancías deberá acompañarse copia de la factura certificada por la Autoridad Aduanera, salvo que este control se realice a través del sistema informático.

@@ -1,0 +1,3 @@
+Artículo 139. Exámenes. La persona natural designada por la persona jurídica, se someterá a los exámenes, psicométrico y de competencia conforme al procedimiento señalado para los agentes aduaneros en este Reglamento.
+El examen de competencia versará principalmente sobre las materias a que se refiere el Artículo 80 de este Reglamento, que constituyan el giro normal de la actividad de la persona jurídica conforme a la descripción señalada en su solicitud. El Servicio Aduanero autorizará su actuación únicamente en el ámbito de dicho giro.
+A los empleados de las instituciones públicas, municipalidades, misiones diplomáticas, consulares u organismos internacionales, no les será aplicable el requisito del examen.

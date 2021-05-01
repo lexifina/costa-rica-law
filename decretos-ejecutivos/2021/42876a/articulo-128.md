@@ -1,0 +1,1 @@
+Artículo 128. Supletoriedad. Las condiciones, requisitos, obligaciones y procedimientos de autorización y de operación de depósito aduanero temporal y demás disposiciones, se regirán por lo dispuesto para el depositario aduanero, salvo lo dispuesto en los artículos 107 y 116 de este Reglamento.

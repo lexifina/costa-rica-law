@@ -1,0 +1,3 @@
+Artículo 549. Devolución de envíos postales comerciales y no comerciales. Transcurridos seis meses contados a partir de la fecha de recibido el aviso por el destinatario sin que éste se haya presentado a solicitar el despacho de los envíos postales, la Autoridad Aduanera procederá a autorizar a la oficina postal para la devolución al remitente.
+Los envíos postales que no sean retirados dentro del plazo indicado en el párrafo anterior no causarán abandono, quedando sujetos al procedimiento establecido en el mismo.
+En los casos de retorno al extranjero, la oficina postal remitirá a la Autoridad Aduanera la información relativa a dichos retornos, mediante medios magnéticos o electrónicos bajo las condiciones establecidas por el Servicio Aduanero.

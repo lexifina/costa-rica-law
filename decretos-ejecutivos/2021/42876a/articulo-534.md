@@ -1,0 +1,1 @@
+Artículo 534. Documentos que sustentan la declaración de mercancías. La declaración de reimportación de mercancías que se exportaron definitivamente a que se refiere el Artículo 105 del Código, se sustentará en los documentos mencionados en el Artículo 321 de este Reglamento, con excepción de los documentos a que se refieren los literales a), c) y d) de dicho Artículo.

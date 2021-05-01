@@ -1,0 +1,2 @@
+Artículo 625. Recurso de apelación. El recurso de apelación se interpondrá ante la autoridad superior del Servicio Aduanero, la que se limitará a elevar las actuaciones al órgano de decisión a que se refiere el Artículo 128 del Código, en los tres días siguientes a la interposición del recurso.
+Interpuesto el recurso el órgano competente deberá resolver en un plazo de treinta días contados a partir del día siguiente al de la recepción del recurso. El órgano competente que resuelva dará por agotada la vía administrativa.

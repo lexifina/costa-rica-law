@@ -1,0 +1,2 @@
+Artículo 150. Garantía. Previo al inicio de sus actividades, y una vez obtenida la autorización respectiva, el consolidador o desconsolidador de carga, en su caso, cuando esté obligado, constituirá garantía a favor y entera satisfacción del Servicio Aduanero, por un monto mínimo de veinte mil pesos centroamericanos o su equivalente en moneda nacional.
+Los servicios aduaneros podrán disponer no exigir garantía.

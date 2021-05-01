@@ -1,0 +1,4 @@
+Artículo 171. Acceso al sistema informático. Para transmitir al sistema informático del Servicio Aduanero, se requerirá estar previamente autorizado como usuario de dicho sistema, mediante la firma del documento compromisorio que el Servicio Aduanero establezca.
+El Servicio Aduanero otorgará a las personas autorizadas por éste, un código de acceso como usuario de dicho sistema, quienes registrarán su propia clave de acceso, que es confidencial e intransferible.
+Cuando las condiciones técnicas lo permitan, el Servicio Aduanero establecerá la forma de autenticación al sistema de transmisión de documentos, prefiriendo siempre la más segura y en concordancia con el desarrollo informático del sistema.
+Para los efectos del Artículo 40 del Código, el Servicio Aduanero, a través de su autoridad superior, emitirá la normativa que se requiera para la presentación mediante sistemas informáticos de recursos y gestiones ante dicho Servicio.

@@ -1,0 +1,5 @@
+Artículo 19. Criterios regionales de riesgo. Para los efectos del literal b) del Artículo 11 del Código, los servicios aduaneros a través de sus unidades de gestión de riesgo establecerán criterios de riesgo a ser aplicados a nivel regional, entre otros, de los sujetos o elementos siguientes:
+a) Asociados a sujetos: tales como importadores, exportadores, auxiliares, consignatarios, entidades públicas, proveedores o sectores referidos a áreas específicas que puedan representar riesgos más altos o mayor incidencia;
+b) Asociados a mercancías: por capítulo, partida arancelaria, inciso arancelario, origen, procedencia, país de adquisición, requisitos no arancelarios, peso, cantidad de bultos, entre otros; y
+c) Asociados a operaciones: por régimen, modalidad y aquellas relacionadas con el cumplimiento de normativa específica.
+Cuando se establezcan las prioridades en materia de control aduanero y se determinen criterios de gestión de riesgo los servicios aduaneros tomarán en cuenta la proporcionalidad del riesgo, la urgencia de la aplicación de los controles y el posible impacto en los flujos de comercio y en la recaudación.

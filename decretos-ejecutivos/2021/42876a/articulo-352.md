@@ -1,0 +1,1 @@
+Artículo 352. Garantía. Cuando se autorice el levante de las mercancías, previa rendición de garantía, la misma se constituirá en la forma y condiciones en que se establece en los Artículos 52 y 53 del Código.

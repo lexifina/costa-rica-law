@@ -1,0 +1,1 @@
+Artículo 439. Aeronaves arrendadas a plazo o con opción de compra. Para efectos del literal n) del Artículo 425 de este Reglamento, el plazo estará determinado por el establecido en el contrato debidamente aprobado por la autoridad aeronáutica del Estado Parte.

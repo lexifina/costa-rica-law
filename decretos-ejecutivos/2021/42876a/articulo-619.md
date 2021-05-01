@@ -1,0 +1,1 @@
+Artículo 619. Procedimiento previo a la subasta. El detalle del lote o mercancías a subastar, el aviso, lugar y plazo, así como la exhibición de las mismas y demás actos previos al remate se efectuarán de conformidad a lo establecido en los Artículos 606, 607, 608, 609, 610 y 611 de este Reglamento.

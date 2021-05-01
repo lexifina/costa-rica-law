@@ -1,0 +1,1 @@
+Artículo 505. Manual de procedimientos. El Servicio Aduanero establecerá y publicará el manual de procedimientos obligatorios para el trámite, operación y control de las actividades permitidas a que se someterán las mercancías dentro del depósito aduanero, conforme a lo dispuesto en el Artículo 116 de este Reglamento.

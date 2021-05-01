@@ -1,0 +1,2 @@
+Artículo 13. Coordinación de funciones. Las autoridades de migración, salud, policía y todas aquellas entidades públicas que ejerzan un control sobre el ingreso o salida de personas, mercancías y medios de transporte del territorio aduanero, deben ejercer sus funciones en forma coordinada con la Autoridad Aduanera, colaborando entre sí para la correcta aplicación de las diferentes disposiciones legales y administrativas.
+Para tales efectos, el Servicio Aduanero promoverá la creación de órganos de coordinación interinstitucional.

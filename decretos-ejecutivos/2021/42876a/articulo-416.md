@@ -1,0 +1,1 @@
+Artículo 416. Transmisión anticipada. La compañía aérea que transporta las mercancías deberá transmitir anticipadamente por vía electrónica a las autoridades aduaneras del aeropuerto de destino, el manifiesto respectivo.

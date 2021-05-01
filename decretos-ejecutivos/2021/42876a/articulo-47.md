@@ -1,0 +1,1 @@
+Artículo 47. Formalidades de los documentos. Las diligencias que practiquen los órganos fiscalizadores en el curso de sus actuaciones, se consignarán en documentos. Los órganos fiscalizadores establecerán las formalidades que deberán cumplir los documentos en que se consigne sus actuaciones.

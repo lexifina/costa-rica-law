@@ -1,0 +1,5 @@
+Artículo 339. Verificación sin concurrencia del declarante o su representante. La Autoridad Aduanera procederá de oficio con la verificación y la revisión de la determinación de la obligación tributaria aduanera con base en la información disponible, sin perjuicio de las sanciones o denuncias que correspondan contra los auxiliares responsables y el declarante, cuando el proceso de verificación inmediata no pueda realizarse en los plazos indicados en el Artículo 336 de este Reglamento, porque los interesados:
+a) No presentan los documentos que sustentaron la transmisión electrónica de la declaración, requeridos por la Autoridad Aduanera;
+b) No presentan otra información que se solicite al declarante o agente aduanero;
+c) No se le han brindado al funcionario aduanero las facilidades o cumplido las medidas técnicas para realizar el reconocimiento físico de las mercancías, de conformidad con las disposiciones legales aplicables; o
+d) Por denuncia recibida por la Autoridad Aduanera u otra autoridad competente.

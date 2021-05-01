@@ -1,0 +1,1 @@
+Artículo 238. Aplicación de criterios de riesgo. El Servicio Aduanero aplicará las medidas de control enunciadas en el Artículo 237 de este Reglamento, con fundamento en criterios de riesgo, para asegurar el cumplimiento de las obligaciones aduaneras.

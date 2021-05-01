@@ -1,0 +1,1 @@
+Artículo 108. Constitución y operación. Las personas interesadas en establecer y operar un depósito de aduanas, deberán formular ante el Servicio Aduanero solicitud por escrito, que contenga los datos señalados en el Artículo 58 de este Reglamento y se acompañen los documentos indicados en el Artículo 59 del mismo.

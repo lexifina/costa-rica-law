@@ -1,0 +1,2 @@
+Artículo 239. Inspección y registro. Una vez que la aduana haya recibido la transmisión del manifiesto de carga, comunicará al transportista, cuando corresponda, si realizará la visita de inspección a los medios de transporte que ingresen al territorio aduanero, de conformidad con los criterios de riesgo para efectos de control y fiscalización.
+Para el caso de medios de transporte que abandonen el territorio aduanero el Servicio Aduanero podrá realizar las inspecciones que considere pertinentes, utilizando los criterios de riesgo.

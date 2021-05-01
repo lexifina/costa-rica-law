@@ -1,0 +1,4 @@
+SECCIÓN X
+DE LA BASE DE DATOS DE VALOR
+Artículo 213. Base de datos de valor. Los servicios aduaneros, deberán constituir una base de datos de valor, que contenga información de precios actualizados, a efecto de llevar a cabo investigaciones sobre los valores declarados por las mercancías importadas, para lo cual, podrán solicitar a los importadores, auxiliares de la función pública y demás operadores del comercio exterior, información relativa al valor de las mercancías importadas.
+Con la información a que se refiere el párrafo anterior y cualquier otra que se pueda obtener por otras fuentes, se constituirá la Base de Datos Regional, la que se localizará en las instalaciones de la Secretaría de Integración Económica Centroamericana, a la que podrán accesar los servicios aduaneros de los Estados Parte.

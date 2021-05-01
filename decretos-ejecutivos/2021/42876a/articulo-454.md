@@ -1,0 +1,1 @@
+Artículo 454. Beneficiarios del Acuerdo. Conforme lo establecido en el Acuerdo Regional para la Importación Temporal de Vehículos por Carretera, los beneficiarios de este Acuerdo podrán escoger el régimen que más les favorezca.

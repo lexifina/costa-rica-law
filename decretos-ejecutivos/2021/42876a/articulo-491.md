@@ -1,0 +1,2 @@
+Artículo 491. Comunicación del ingreso y salida de las mercancías del depósito. El depositario aduanero registrará y comunicará al Servicio Aduanero el ingreso y la salida de mercancías al depósito, de acuerdo con los procedimientos que al efecto se dispongan.
+El depositario o el delegado de aduanas deberá transmitir en forma electrónica un informe a la Autoridad Aduanera correspondiente de las cantidades, marcas, daños, faltantes o sobrantes de los bultos y demás información que señale este Reglamento, al momento del ingreso de la mercancía al depósito aduanero.

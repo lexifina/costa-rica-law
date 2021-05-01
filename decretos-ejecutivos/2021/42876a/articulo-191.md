@@ -1,0 +1,1 @@
+Artículo 191. Descuentos o rebajas. Para la determinación del valor en aduana, se aceptarán los descuentos o rebajas de precios que otorga el vendedor al comprador, siempre que los mismos sean comprobables, cuantificables, no correspondan a transacciones anteriores y que el precio realmente pagado o por pagar cumpla con lo dispuesto en el Artículo 1 del Acuerdo.

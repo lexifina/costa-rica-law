@@ -1,0 +1,1 @@
+Artículo 560. Procedimiento simplificado. En el caso de las mercancías comprendidas en el Artículo anterior, el Servicio Aduanero someterá la declaración de mercancías a los trámites mínimos indispensables para asegurar el interés fiscal.

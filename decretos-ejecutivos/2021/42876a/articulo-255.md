@@ -1,0 +1,1 @@
+Artículo 255. Lugar autorizado para la consolidación. La consolidación de carga deberá realizarse en las terminales de carga o depósitos aduaneros autorizados u otra zona de operación habilitada por el Servicio Aduanero, en donde además, se colocarán los dispositivos de seguridad para su posterior embarque.

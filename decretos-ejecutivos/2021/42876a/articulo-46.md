@@ -1,0 +1,1 @@
+Artículo 46. Documentación de diligencias. Las actuaciones de notificación, tramitación, cumplimiento o ejecución de un acto, la práctica de pruebas y los hechos o circunstancias relevantes en las actuaciones de fiscalización deberán hacerse constar en el expediente respectivo.

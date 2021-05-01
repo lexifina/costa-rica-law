@@ -1,0 +1,1 @@
+Artículo 511. Aplicación supletoria. Son aplicables a este régimen, en lo conducente, las disposiciones del régimen de perfeccionamiento activo y del régimen de depósito aduanero regulado en los Artículos 466, 472, 474, 475, 478, 488, 489, 490, 491, 493 y 499 de este Reglamento.

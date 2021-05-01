@@ -1,0 +1,1 @@
+Artículo 414. Procedimiento simplificado. Cuando sea obligatoria la aplicación del tránsito aéreo, se utilizará el procedimiento simplificado establecido en esta Sección, para lo cual se solicitará la autorización respectiva la que se tramitará conforme se establece en el Artículo 408 de este Reglamento.

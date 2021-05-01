@@ -1,0 +1,1 @@
+Artículo 297. Desistimiento expreso. El solicitante podrá desistir en cualquier momento de sus peticiones, comunicándolo oportunamente a la autoridad competente. Sin embargo, si la autoridad competente considera necesario resolver la solicitud, podrá emitir una resolución general que aclare el tema objeto de la consulta desistida.

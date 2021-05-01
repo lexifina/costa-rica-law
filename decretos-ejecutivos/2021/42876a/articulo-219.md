@@ -1,0 +1,3 @@
+Artículo 219. Hecho generador en importaciones fraccionadas. En las importaciones de mercancías que para efectos arancelarios constituyan una unidad, pero que se introduzcan desmontados o sin montar, en embarques fraccionados para su ingreso en diferentes fechas, se aplicará al conjunto de la unidad, los tributos vigentes a la fecha de aceptación de la declaración correspondiente a la importación de la primera fracción, con arreglo a las condiciones siguientes:
+a) Que los importadores lo soliciten expresamente al Servicio Aduanero, antes de realizar la importación de la primera fracción; y
+b) Que todos los embarques parciales se importen dentro del plazo señalado por el Servicio Aduanero en la autorización que se emita.

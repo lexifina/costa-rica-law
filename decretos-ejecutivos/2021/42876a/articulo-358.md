@@ -1,0 +1,1 @@
+Artículo 358. Declaración de mercancías de origen centroamericano. Las mercancías originarias de los Estados Parte se declararán en el Formulario Aduanero Único Centroamericano, mediante transmisión electrónica, en las condiciones que establecen las normas regionales que lo regulan.

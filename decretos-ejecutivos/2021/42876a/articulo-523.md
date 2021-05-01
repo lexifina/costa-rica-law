@@ -1,0 +1,2 @@
+Artículo 523. Documentos que sustentan la declaración. La declaración de mercancías se sustentará en los documentos indicados en el Artículo 321 de este Reglamento, con excepción de los documentos a que se refieren los literales a), c) y d) de dicho Artículo. Además, deberá adjuntar copia de la garantía de funcionamiento, cuando se trate del supuesto previsto en el literal a) del Artículo 526 de este Reglamento.
+En el caso de que al momento de la exportación no se cuente con el documento de transporte, se aceptará la orden de embarque respectiva.

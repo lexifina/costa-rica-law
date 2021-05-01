@@ -1,0 +1,1 @@
+Artículo 176. Presunción de autoría. Todo documento, asociado a una firma digital certificada se presumirá, salvo prueba en contrario, de la autoría y responsabilidad del titular del correspondiente certificado digital, vigente en el momento de su emisión.

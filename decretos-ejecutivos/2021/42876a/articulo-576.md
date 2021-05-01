@@ -1,0 +1,1 @@
+Artículo 576. Despacho de envíos no sujetos al trámite simplificado. Los envíos no incluidos en las categorías a) y b) del Artículo 566 de este Reglamento, se despacharán inmediatamente si se hubiere tramitado su despacho mediante los procedimientos generales de conformidad con el régimen respectivo o se trasladarán a los depósitos aduaneros.

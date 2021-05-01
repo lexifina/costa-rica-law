@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Salvo disposiciones en sentido contrario, resultantes de convenios, tratados o acuerdos internacionales, la normativa aduanera constituida por el Código Aduanero Uniforme Centroamericano y este Reglamento, se aplicará de modo uniforme en la totalidad del territorio aduanero de los Estados Parte.

@@ -1,0 +1,1 @@
+Artículo 290. Responsabilidad. Las personas que hayan obtenido autorización para prestar los servicios de almacenamiento temporal de mercancías, responderán directamente ante el Servicio Aduanero por el monto de los tributos que graven las mercancías extraviadas, perdidas o deterioradas, ocurridos durante su almacenaje, por causas imputables al depositario.

@@ -1,0 +1,1 @@
+Artículo 371. Documentos que la sustentan. La declaración de mercancías se sustentará en los documentos mencionados en el Artículo 321 de este Reglamento, excepto los indicados en los literales c), d), f) y g).

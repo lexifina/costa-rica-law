@@ -1,0 +1,1 @@
+Artículo 112. Garantía. Para los efectos del literal g) del Artículo 21 del Código, la garantía para los depósitos aduaneros se constituirá a favor del Servicio Aduanero por un monto no menor a ciento cincuenta mil pesos centroamericanos o su equivalente en moneda nacional. El monto de la garantía será actualizado anualmente.

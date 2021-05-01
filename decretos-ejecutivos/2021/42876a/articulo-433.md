@@ -1,0 +1,3 @@
+Artículo 433. Envases y elementos de transporte. Para efectos del literal j) del Artículo 425 de este Reglamento, se entenderá por envases, los continentes que se destinen a ser reutilizados en el mismo estado en que se importaron temporalmente.
+Los elementos de transporte admitidos en esta categoría son todos aquellos que son reutilizables e importados por el beneficiario para su uso exclusivo, tales como envolturas, empaques, paletas y otros dispositivos protectores de las mercancías, que previenen daños posibles durante la manipulación y el transporte de las mismas.
+En ambos casos, los envases y elementos de transporte no podrán ser utilizados en tráfico interno, excepto para la exportación de mercancías.

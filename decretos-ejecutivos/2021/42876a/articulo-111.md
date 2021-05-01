@@ -1,0 +1,1 @@
+Artículo 111. Plazo para operar un depósito aduanero. El plazo de autorización para establecer y operar un depósito aduanero, será de quince años prorrogable por períodos iguales y sucesivos a petición del depositario, la cual se concederá previa evaluación por parte del Servicio Aduanero del desempeño de actividades realizadas por el depositario.

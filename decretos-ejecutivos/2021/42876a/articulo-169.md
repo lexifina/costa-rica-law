@@ -1,0 +1,1 @@
+Artículo 169. Especificaciones técnicas. El Servicio Aduanero establecerá las especificaciones técnicas mínimas que deberán tener los programas (software) y enlaces de comunicación de los auxiliares, incluso los que se utilicen para el pago de los tributos por medios electrónicos, conforme lo dispone el Artículo 37 del Código.

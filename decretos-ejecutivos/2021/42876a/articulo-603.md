@@ -1,0 +1,1 @@
+Artículo 603. Trámite prioritario. Previa verificación de la documentación aportada por la empresa transportista y autorización de las autoridades encargadas de la salud pública u otra autoridad competente, la Autoridad Aduanera, sin ulterior procedimiento, autorizará la entrega de los restos humanos.

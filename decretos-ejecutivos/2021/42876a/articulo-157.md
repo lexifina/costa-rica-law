@@ -1,0 +1,4 @@
+Artículo 157. Requisitos de las instalaciones autorizadas. Para que la empresa autorizada para operar despacho domiciliario pueda recibir vehículos, unidades de transporte y mercancías, deberá contar con instalaciones que reúnan las condiciones siguientes:
+a) Estar ubicadas en lugares que ofrezcan condiciones adecuadas para la recepción de vehículos y unidades de transporte, de acuerdo con las disposiciones establecidas por el Servicio Aduanero;
+b) El área destinada a la descarga y recepción de las mercancías debe contar con la suficiente extensión y condiciones adecuadas para el manejo de las mercancías; y
+c) Las demás condiciones exigidas por normas de seguridad ambiental y laboral y aquellas que establezca el Servicio Aduanero para el correcto desarrollo de las funciones de verificación e inspección de vehículos, unidades de transporte y mercancías.

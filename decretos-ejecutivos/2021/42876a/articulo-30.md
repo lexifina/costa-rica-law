@@ -1,0 +1,1 @@
+Artículo 30. Actuaciones para obtención de información. Son actuaciones para obtención de información, las que tienen por objeto el conocimiento por parte de los órganos fiscalizadores de los datos o antecedentes de cualquier naturaleza, que estén en poder de una persona natural o jurídica y tengan trascendencia tributaria aduanera.

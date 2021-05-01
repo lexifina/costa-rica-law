@@ -1,0 +1,1 @@
+Artículo 158. Garantía. Las empresas autorizadas para operar despacho domiciliario deberán rendir una garantía anual equivalente al monto promedio mensual de las obligaciones tributarias aduaneras generadas por concepto de la importación de mercancías durante el año calendario anterior.

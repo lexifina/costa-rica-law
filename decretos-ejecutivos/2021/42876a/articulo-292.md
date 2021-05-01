@@ -1,0 +1,3 @@
+Artículo 292. Capacidad y representación. Todo importador, productor o exportador, sea persona natural o jurídica, tiene capacidad para solicitar a la autoridad competente la expedición de una resolución anticipada.
+Los importadores, productores o exportadores, podrán presentar sus solicitudes personalmente o hacerse representar por apoderados o representantes legales debidamente acreditados.
+Quien tenga interés legítimo en la expedición de una resolución anticipada, podrá adherirse a la solicitud respectiva, sin modificar ninguno de los elementos presentados por el solicitante. Para el efecto deberá manifestar por escrito su interés en tal sentido. En este caso las solicitudes serán acumuladas y se expedirá una sola resolución anticipada.

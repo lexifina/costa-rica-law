@@ -1,0 +1,1 @@
+Artículo 303. Características de las resoluciones. Las resoluciones anticipadas deberán ser emitidas por escrito y cubrir en su integridad el tema presentado por el solicitante más cualquier otra información que la autoridad competente considere pertinente.

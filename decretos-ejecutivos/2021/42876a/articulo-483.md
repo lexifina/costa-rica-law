@@ -1,0 +1,2 @@
+Artículo 483. Documentos que sustentan la declaración. La declaración se sustentará, en lo que proceda, con los documentos indicados en el Artículo 321 de este Reglamento.
+Las licencias, permisos, certificados u otros documentos referidos al cumplimiento de las restricciones y regulaciones no arancelarias a que estén sujetas las mercancías, y demás autorizaciones, serán requeridas al momento del ingreso al territorio aduanero o la destinación a otro régimen distinto al de depósito aduanero, según lo disponga la legislación de la materia.

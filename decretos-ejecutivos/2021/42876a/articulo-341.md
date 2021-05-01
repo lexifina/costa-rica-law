@@ -1,0 +1,1 @@
+Artículo 341. Extracción de muestras en la verificación de las mercancías. La Autoridad Aduanera, en el proceso de verificación inmediata, podrá extraer muestras de acuerdo con las condiciones y procedimientos establecidos en este Reglamento. La muestra extraída constituirá muestra certificada para todos los efectos legales.

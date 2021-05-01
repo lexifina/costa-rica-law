@@ -1,0 +1,1 @@
+Artículo 92. Sustitución. Una vez aceptada la declaración de mercancías, el poderdante no podrá sustituir el mandato conferido al agente aduanero, salvo por motivos de fuerza mayor debidamente comprobados y aceptados por la autoridad superior del Servicio Aduanero.

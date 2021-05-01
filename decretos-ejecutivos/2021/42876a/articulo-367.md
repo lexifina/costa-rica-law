@@ -1,0 +1,1 @@
+Artículo 367. Rechazo de la solicitud. El Servicio Aduanero no autorizará la solicitud cuando la misma no cumpla con los requisitos y condiciones establecidos en los Artículos 364 y 365 de este Reglamento.

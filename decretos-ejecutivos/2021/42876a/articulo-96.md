@@ -1,0 +1,1 @@
+Artículo 96. Diligencias previas. En el caso de los Artículos 94 y 95 de este Reglamento, de existir deudas tributarias aduaneras pendientes de cancelar, previo a la autorización del cese, el Servicio Aduanero iniciará los procedimientos administrativos y judiciales pertinentes para su pago.

@@ -1,0 +1,1 @@
+Artículo 431. Ejecución de obras públicas. Las importaciones temporales contempladas en contratos administrativos celebrados con el Estado, según lo establecido en el literal h) del Artículo 425 de este Reglamento, se regirán por lo que en ellos se disponga, en lo referente al plazo y la garantía.

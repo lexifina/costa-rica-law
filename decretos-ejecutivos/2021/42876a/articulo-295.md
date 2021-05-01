@@ -1,0 +1,1 @@
+Artículo 295. Oportunidad. No podrá solicitarse una resolución anticipada respecto de una mercancía que ya ha sido importada, cuyo proceso de despacho se ha iniciado, o que es objeto de un proceso de verificación o de una impugnación.

@@ -1,0 +1,1 @@
+Artículo 558. Control aduanero. El Servicio Aduanero velará por el cumplimiento de las obligaciones aduaneras para el ingreso, tránsito y la salida de mercancías, bajo esta modalidad con el fin de evitar que al amparo de ella se eludan los controles aduaneros y de comercio exterior.

@@ -1,0 +1,1 @@
+Artículo 122. Operadores de tiendas libres. Los operadores de tiendas libres son entidades que, como consecuencia de leyes especiales, se les da la categoría de tiendas libres, en cuyo recinto las mercancías pueden ingresar con suspensión de tributos y demás cargos eventualmente aplicables.

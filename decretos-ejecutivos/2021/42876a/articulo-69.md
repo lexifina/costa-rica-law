@@ -1,0 +1,1 @@
+Artículo 69. Reinicio de operaciones. El auxiliar que habiendo cesado voluntariamente en sus funciones podrá ser habilitado siempre que cumpla con los requisitos y obligaciones que se establezcan para cada auxiliar.

@@ -1,0 +1,1 @@
+Artículo 84. Garantía. De acuerdo a lo establecido en el literal g) del Artículo 21 del Código, la persona autorizada para actuar como agente aduanero deberá constituir garantía, de conformidad con lo que determine el Servicio Aduanero de cada Estado Parte, en cuyo caso no podrá ser inferior a veinte mil pesos centroamericanos o su equivalente en moneda nacional.

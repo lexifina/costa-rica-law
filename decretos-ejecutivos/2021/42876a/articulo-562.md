@@ -1,0 +1,1 @@
+Artículo 562. Declaración anticipada. El despacho de mercancías que por su naturaleza requieren de un despacho urgente, podrá solicitarse anticipadamente, siempre y cuando se presente con la solicitud anticipada el dictamen médico o de autoridad competente que demuestre el carácter de uso inmediato o indispensable de las mercancías.

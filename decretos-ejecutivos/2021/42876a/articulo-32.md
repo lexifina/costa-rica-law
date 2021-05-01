@@ -1,0 +1,2 @@
+Artículo 32. Plan anual de fiscalización. La dependencia competente de cada Estado Parte, deberá elaborar de forma coordinada con las demás unidades del Servicio Aduanero el proyecto del plan anual de fiscalización, el cual someterá a consideración del superior jerárquico de éste, dentro del plazo que determine dicho Servicio.
+El plan deberá estar aprobado el primer día hábil del año para el que empieza a regir, y el control de su ejecución corresponderá a la dependencia respectiva del Servicio Aduanero.

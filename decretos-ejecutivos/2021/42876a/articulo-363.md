@@ -1,0 +1,2 @@
+Artículo 363. Aceptación y verificación de la declaración de mercancías. La declaración de mercancías de importación se considerará aceptada en el momento que se establece en los Artículos 83 del Código y 334 de este Reglamento.
+Aceptada la declaración de mercancías y pagados los tributos aduaneros, cuando corresponda, se determinará por el sistema de análisis de riesgo si procede realizar la verificación inmediata o autorizar el levante de las mercancías.

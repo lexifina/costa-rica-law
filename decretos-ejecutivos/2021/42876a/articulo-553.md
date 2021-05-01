@@ -1,0 +1,1 @@
+Artículo 553. Procedimientos simplificados. Los Estados Parte podrán establecer procedimientos simplificados para el despacho de envíos postales de carácter comercial y no comercial, utilizando preferentemente los medios electrónicos. Este procedimiento simplificado se regirá por la normativa que al efecto emita el Servicio Aduanero en conjunto con las autoridades postales.

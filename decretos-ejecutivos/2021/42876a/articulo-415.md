@@ -1,0 +1,1 @@
+Artículo 415. Responsabilidad. La compañía aérea que realiza el transporte de las mercancías amparado en el manifiesto respectivo, será la responsable principal de las operaciones que se ejecuten en el tránsito aéreo.

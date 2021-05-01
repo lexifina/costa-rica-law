@@ -1,0 +1,1 @@
+Artículo 492. Plazo de permanencia de las mercancías. El plazo de permanencia de las mercancías en depósito aduanero será de un año improrrogable, contado a partir de la fecha de la recepción de la mercancía por parte del depositario. Vencido este plazo, la mercancía se considerará en abandono.

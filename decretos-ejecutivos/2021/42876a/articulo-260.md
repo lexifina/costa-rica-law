@@ -1,0 +1,1 @@
+Artículo 260. Autorización de salida. La Autoridad Aduanera otorgará la autorización de salida de mercancías y unidades de transporte hacia el exterior del territorio aduanero, cuando se cumplan las formalidades y los requisitos aduaneros y no hubiere impedimento legal.

@@ -1,0 +1,1 @@
+Artículo 498. Mercancías dañadas o destruidas. Las mercancías dañadas o destruidas que conserven algún valor económico podrán importarse definitivamente en el estado en que se encuentren, mediante el pago de los tributos correspondientes.

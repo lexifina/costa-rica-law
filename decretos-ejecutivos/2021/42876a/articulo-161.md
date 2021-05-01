@@ -1,0 +1,3 @@
+Artículo 161. Tercero validante. Los servicios aduaneros podrán recurrir a otras entidades públicas o privadas, para acreditar el cumplimiento de estándares de seguridad de la cadena logística.
+El tercero validante deberá poseer experiencia adecuada en el uso de sistemas de certificación, conocimiento de los estándares de seguridad de la cadena de suministro, conocimiento suficiente y apropiado de las diferentes operaciones realizadas por varios sectores económicos y comerciales, y poseer recursos suficientes para conducir validaciones oportunamente.
+El ente validador debe asegurar que su personal designado para realizar el procedimiento de validación está debidamente entrenado y calificado.

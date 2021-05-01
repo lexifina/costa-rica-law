@@ -1,0 +1,1 @@
+Artículo 197. Aplicación. El método de valoración establecido en el párrafo 2 del Artículo 5 del Acuerdo, podrá aplicarse de conformidad con las disposiciones previstas en dicho párrafo, lo solicite o no el importador.

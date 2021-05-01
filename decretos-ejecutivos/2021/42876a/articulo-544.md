@@ -1,0 +1,2 @@
+Artículo 544. Importación de envíos postales de carácter comercial. Las personas que en virtud de su actividad realicen importaciones comerciales por la vía postal deberán, además de cumplir con las obligaciones aduaneras exigibles, presentar su declaración a través de un agente aduanero o apoderado especial aduanero.
+La Autoridad Aduanera no podrá practicar el reconocimiento físico de los envíos postales sin la presencia del destinatario o su representante.

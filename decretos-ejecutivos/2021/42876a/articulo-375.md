@@ -1,0 +1,2 @@
+Artículo 375. Autorización del levante de las mercancías. Se autorizará el levante de las mercancías cuando el sistema de análisis de riesgo haya determinado levante sin verificación, o habiéndose efectuado la verificación inmediata, no se determinaren diferencias entre la información declarada y la comprobada.
+También procederá la autorización del levante cuando, habiendo surgido diferencias, éstas se hubieren subsanado.

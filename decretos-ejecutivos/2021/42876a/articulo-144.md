@@ -1,0 +1,3 @@
+Artículo 144. Otros empleados. Para los efectos de lo establecido en el literal j) del Artículo 21 del Código, el apoderado especial aduanero y el poderdante deberán acreditar ante el Servicio Aduanero a las personas que los representarán en su gestión aduanera. Para tal efecto, deberá demostrar el contrato laboral existente con el poderdante y cumplir con los demás requisitos que el Servicio Aduanero de cada Estado Parte establezca.
+El apoderado especial aduanero y el poderdante deberán informar al Servicio Aduanero, inmediatamente del cese de la relación laboral de las personas acreditadas.
+A los empleados a que se refiere este artículo les será aplicable la inhabilitación establecida en los literales a) y c) del Artículo 67 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 541. Controles. La Autoridad Aduanera en las oficinas de correos seleccionará los envíos postales que deberán someterse a reconocimiento físico en dichas oficinas, o los remitirá a los lugares habilitados que el Servicio Aduanero designe al efecto, para su tratamiento aduanero posterior.

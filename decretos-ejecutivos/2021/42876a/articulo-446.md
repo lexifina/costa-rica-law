@@ -1,0 +1,5 @@
+Artículo 446. Requisitos para la autorización del permiso. Para la autorización del permiso, el interesado debe cumplir ante la aduana de arribo del vehículo con los requisitos siguientes:
+a) Presentar original y copia del título de propiedad expedido bajo las regulaciones del país o Estado de procedencia. Si el interesado no es el propietario, deberá presentar además del original del título de propiedad, original o copia certificada de la autorización del propietario emitida en el extranjero, en que conste la anuencia del mismo para que el interesado ingrese al territorio aduanero con su vehículo o en su defecto, deberá presentar una declaración jurada notarial en ese sentido, rendida por el propietario;
+b) Presentar original y copia del pasaporte que demuestre la condición migratoria; y
+c) Presentar original y copia del certificado de aeronavegabilidad o navegabilidad y certificado de registro o matrícula en el caso de aeronaves y embarcaciones.
+Adicionalmente, los Estados Parte podrán solicitar el cumplimiento de otros requisitos, tales como seguros contra accidentes y daños a terceros.

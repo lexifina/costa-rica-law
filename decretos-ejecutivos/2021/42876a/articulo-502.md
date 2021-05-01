@@ -1,0 +1,1 @@
+Artículo 502. Solicitud para actividades permitidas. La solicitud para realizar actividades permitidas dentro del depósito aduanero deberá ser presentada por el consignatario o su representante ante la Autoridad Aduanera correspondiente, por transmisión en forma electrónica u otros medios que ésta establezca.

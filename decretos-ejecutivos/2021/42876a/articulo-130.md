@@ -1,0 +1,1 @@
+Artículo 130. Registro. El Servicio Aduanero requerirá de las entidades que hayan obtenido la autorización para operar como tiendas libres, la información para su inscripción en el Registro de Auxiliares.

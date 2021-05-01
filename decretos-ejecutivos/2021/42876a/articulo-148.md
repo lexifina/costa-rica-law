@@ -1,0 +1,1 @@
+Artículo 148. Comunicación de diferencias. Cuando el Servicio Aduanero lo disponga, la empresa de entrega rápida o courier deberá transmitir o informar a la aduana correspondiente las diferencias que se produzcan en la cantidad, la naturaleza y el valor de las mercancías manifestadas, respecto de lo efectivamente arribado o embarcado, según el procedimiento que establezca.

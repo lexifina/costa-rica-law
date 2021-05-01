@@ -1,0 +1,1 @@
+Artículo 31. Forma de las actuaciones. Las actuaciones de fiscalización se deben desarrollar por el funcionario fiscalizador o auditor designado para su ejecución. El responsable del órgano fiscalizador definirá otras formas de designación y ejecución de las actuaciones fiscalizadoras de acuerdo a la normativa aplicable y a las mejores prácticas internacionales.

@@ -1,0 +1,1 @@
+Artículo 504. Ingreso de mercancías en libre circulación. Las materias y productos en libre circulación, que se utilicen en las actividades permitidas dentro del depósito aduanero, deberán ser reportadas a su ingreso, mediante las formas y condiciones establecidas por el Servicio Aduanero.

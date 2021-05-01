@@ -1,0 +1,6 @@
+Artículo 117. Cese de operaciones. La autorización para operar un depósito aduanero cesará por las causas siguientes:
+a) Por vencimiento del plazo de la autorización para operar el depósito aduanero, sin que se haya solicitado la prórroga antes del vencimiento o dentro de los treinta días siguientes al mismo; o
+b) Por renuncia voluntaria del depositario, en cuyo caso deberá ser debidamente justificada y aceptada por la Autoridad Aduanera. En este caso deberá comunicarlo al Servicio Aduanero al menos con una anticipación de un mes al cese.
+Una vez determinado que no existen obligaciones pendientes con la Administración Tributaria, el Servicio Aduanero autorizará la solicitud, procederá al cese temporal o definitivo de la concesión y efectuará las anotaciones en el registro respectivo.
+En ambos casos, el depositario deberá hacer del conocimiento del Servicio Aduanero la existencia en sus instalaciones de mercancías sujetas al control aduanero, a efecto que la Autoridad Aduanera proceda a constatar su existencia y ordenar, en tal caso, su traslado a otro depósito aduanero.
+En caso de existir deudas tributarias pendientes de cancelar, el Servicio Aduanero, iniciará los procedimientos administrativos y judiciales pertinentes para su pago.

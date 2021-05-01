@@ -1,0 +1,1 @@
+Artículo 63. Ejecución de la garantía. Determinada la responsabilidad tributaria del auxiliar para con el Fisco, se procederá a la ejecución de la garantía, conforme al Artículo 232 de este Reglamento.

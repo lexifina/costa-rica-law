@@ -1,0 +1,1 @@
+Artículo 232. Ejecución de la garantía. Una vez agotada la vía administrativa o incumplida la condición a la que se sujeta el régimen correspondiente, se procederá, a ejecutar la garantía rendida ante el Servicio Aduanero en la forma y plazos de acuerdo al tipo de garantía de que se trate.

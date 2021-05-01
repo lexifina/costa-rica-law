@@ -1,0 +1,2 @@
+Artículo 162. Solicitud para la habilitación como operador económico autorizado. La solicitud para actuar como operador económico autorizado debe reunir los requisitos del Artículo 58 de este Reglamento. Una vez presentada la solicitud, la autoridad superior del Servicio Aduanero emitirá resolución dentro del plazo de un mes, contado a partir del momento que el expediente se encuentre en condición de resolver.
+La habilitación del operador económico autorizado será potestativa del Servicio Aduanero.

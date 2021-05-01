@@ -1,0 +1,2 @@
+Artículo 125. Autorización. El Servicio Aduanero podrá autorizar la operación de depósitos aduaneros temporales cuando estén situados en inmuebles que colinden con la zona primaria de los puertos de ingreso marítimos o terrestres de los Estados Parte.
+Es facultad de los servicios aduaneros, en casos justificados autorizar la habilitación de depósitos temporales que se encuentren en inmuebles que no colinden con zonas primarias, ubicados en un radio no mayor de quince kilómetros de dichas zonas.

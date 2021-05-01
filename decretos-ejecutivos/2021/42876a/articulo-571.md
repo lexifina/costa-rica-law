@@ -1,0 +1,1 @@
+Artículo 571. Envíos en tránsito. La Autoridad Aduanera podrá autorizar la realización de operaciones de clasificación, redistribución y transbordo de envíos de entrega rápida en tránsito internacional o interno en los lugares designados para tal efecto y bajo control aduanero, debiendo siempre corresponder a zonas habilitadas dentro del aeropuerto.

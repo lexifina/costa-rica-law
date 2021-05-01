@@ -1,0 +1,1 @@
+Artículo 515. Plazo de permanencia. La permanencia de las mercancías bajo el régimen de exportación temporal con reimportación en el mismo estado será hasta por un plazo de seis meses contados a partir de la fecha de aceptación de la declaración de mercancías.

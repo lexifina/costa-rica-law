@@ -1,0 +1,1 @@
+Artículo 639. Disposiciones administrativas. El Servicio Aduanero, por intermedio de su autoridad superior, emitirá las disposiciones administrativas que se requieran para facilitar la aplicación de las materias señaladas en este Reglamento.

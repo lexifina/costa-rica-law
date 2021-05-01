@@ -1,0 +1,1 @@
+Artículo 374. Aceptación y verificación de la declaración de mercancías. Aceptada la declaración de mercancías y pagados los tributos aduaneros, cuando corresponda, se determinará por el sistema de análisis de riesgo si procede realizar la verificación inmediata o autorizar el levante de las mercancías.

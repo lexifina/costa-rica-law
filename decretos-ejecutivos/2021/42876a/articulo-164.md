@@ -1,0 +1,3 @@
+Artículo 164. Registro. Una vez cumplidos los requisitos y formalidades establecidas en los Artículos 58 y 59 de este Reglamento, el Estado Parte que haya habilitado a un operador económico autorizado llevará registro documental y electrónico del mismo, el cual deberá estar en línea con el sistema informático de su Servicio Aduanero y con los Sistemas de Gestión de Riesgo de los servicios aduaneros de los Estados Parte.
+Los Estados Parte reconocerán al operador económico autorizado por otro Estado Parte.
+Los Estados Parte intercambiarán información relativa a las actuaciones efectuadas por un operador económico autorizado en otro Estado Parte.

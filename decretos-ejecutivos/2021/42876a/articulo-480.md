@@ -1,0 +1,1 @@
+Artículo 480. Devoluciones. Los productos terminados que se hayan exportado o reexportado una vez sometidas a procesos de perfeccionamiento activo en el territorio aduanero y que sean devueltos al mismo para su reparación, podrán ingresar bajo el régimen de admisión temporal para el perfeccionamiento activo, previa constitución de la garantía correspondiente.

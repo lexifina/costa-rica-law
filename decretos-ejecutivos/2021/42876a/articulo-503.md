@@ -1,0 +1,2 @@
+Artículo 503. Comprobación del proceso y salida. La Autoridad Aduanera realizará las comprobaciones pertinentes sobre el proceso realizado y el destino de las mercancías.
+Las mermas y los desperdicios de las mercancías extranjeras resultantes de la actividad permitida a que fueron sometidas, serán reexportados, destruidos o importados definitivamente conforme a las disposiciones de este Reglamento.

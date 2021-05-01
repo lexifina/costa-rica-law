@@ -1,0 +1,4 @@
+SECCIÓN III
+Artículo 318. Forma y medio de presentación de la declaración de mercancías. La declaración de mercancías se presentará mediante transmisión electrónica o en los formularios o formatos autorizados por el Servicio Aduanero, previo cumplimiento de las formalidades aduaneras y pago anticipado de los derechos e impuestos por la vía electrónica, cuando corresponda.
+Cuando la naturaleza del régimen lo permita se podrán presentar declaraciones simplificadas en cuyo caso el Servicio Aduanero establecerá los datos mínimos necesarios que las mismas contendrán.
+El uso de medios informáticos y de la vía electrónica para el intercambio de información, tendrá plena validez para la formulación, transmisión, registro y archivo de la declaración de mercancías, de la información relacionada con la misma y de los documentos que a ésta deban adjuntarse.

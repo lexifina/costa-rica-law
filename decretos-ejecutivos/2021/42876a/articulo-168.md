@@ -1,0 +1,1 @@
+Artículo 168. Contingencia. El Servicio Aduanero establecerá los procedimientos de contingencia en los casos en que los sistemas informáticos queden, total o parcialmente, fuera de servicio. El Servicio Aduanero estará facultado para establecer los procedimientos alternos que requiera la operación eficaz de los sistemas informáticos.

@@ -1,0 +1,1 @@
+Artículo 410. Responsabilidad. Las compañías navieras que transporten mercancías amparadas en los manifiestos a que se refiere el Artículo anterior serán los responsables directos de las operaciones que se ejecuten en el tránsito marítimo.

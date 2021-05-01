@@ -1,0 +1,1 @@
+Artículo 89. Carácter personal de la autorización. La autorización para operar como agente aduanero es personal e intransferible y de duración indeterminada. Únicamente podrá hacerse representar por sus asistentes autorizados, de acuerdo con los requisitos y para las funciones legalmente establecidas por el Servicio Aduanero.

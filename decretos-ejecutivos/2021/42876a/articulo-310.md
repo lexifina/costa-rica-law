@@ -1,0 +1,1 @@
+Artículo 310. Carácter vinculante de las resoluciones anticipadas. Las resoluciones anticipadas son de obligatorio cumplimiento para los particulares y para la autoridad competente al momento de su presentación en todas las importaciones que presenten identidad en los hechos y circunstancias que originaron su expedición.

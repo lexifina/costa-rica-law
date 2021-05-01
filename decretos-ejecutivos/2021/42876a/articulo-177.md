@@ -1,0 +1,2 @@
+Artículo 177. Equivalencia funcional. Cualquier documento transmitido por un medio electrónico o informático, se tendrá por jurídicamente equivalente a los documentos que se otorguen, residan o transmitan por medios físicos. En cualquier norma del ordenamiento jurídico en la que se haga referencia a un documento o comunicación, se entenderán de igual manera tanto los electrónicos como los físicos.
+Cuando en este Reglamento se exija la presencia de una firma, se reconocerá de igual manera tanto la digital como la manuscrita.

@@ -1,0 +1,2 @@
+Artículo 65. Otros instrumentos de garantía. Los auxiliares podrán garantizar sus operaciones a satisfacción del Servicio Aduanero mediante garantías bancarias, fianzas o seguros emitidos por instituciones autorizadas en cada Estado Parte, las cuales deberán ser de convertibilidad inmediata.
+Las garantías serán conservadas bajo custodia de la oficina competente del Servicio Aduanero, en una institución bancaria u otra institución que preste esos servicios de custodia en condiciones satisfactorias para el Servicio Aduanero.

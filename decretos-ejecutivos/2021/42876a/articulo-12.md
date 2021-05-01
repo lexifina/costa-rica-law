@@ -1,0 +1,1 @@
+Artículo 12. Ejercicio de la potestad aduanera. Los servicios aduaneros en ejercicio de la potestad aduanera podrán retener o incautar mercancías y medios de transporte cuando haya presunción fundada de la comisión de un delito o de infracción aduanera, a efecto de dar inicio a las diligencias correspondientes así como ponerlos en su caso a disposición de autoridad competente.

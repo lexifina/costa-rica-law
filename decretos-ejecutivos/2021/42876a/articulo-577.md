@@ -1,0 +1,2 @@
+Artículo 577. Aplicación de los criterios de riesgo. En aplicación de criterios de riesgo, la Autoridad Aduanera podrá aplicar reconocimiento documental o físico y documental en forma general o individual a los envíos declarados en el manifiesto de entrega rápida y a la declaración de mercancías simplificada.
+Cuando otras autoridades competentes deban inspeccionar las mercancías, éstas deberán coordinar con la Autoridad Aduanera la forma y el momento para realizarla.

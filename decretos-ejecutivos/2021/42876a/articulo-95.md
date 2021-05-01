@@ -1,0 +1,2 @@
+Artículo 95. Cese temporal de operaciones. Cuando el agente aduanero solicite voluntariamente el cese temporal de sus operaciones deberá comunicarlo al Servicio Aduanero para su autorización. Cuando sea por un plazo menor o igual de tres meses deberá comunicarlo con al menos ocho días de anticipación.
+Cuando sea un plazo mayor de tres meses deberá comunicarlo con al menos quince días de anticipación.

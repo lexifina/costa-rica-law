@@ -1,0 +1,2 @@
+Artículo 493. Retiro de mercancías del depósito aduanero. Para el retiro de mercancías de los depósitos aduaneros, será necesario contar con la autorización de la Autoridad Aduanera correspondiente, de conformidad con lo establecido en el literal e) del Artículo 115 de este Reglamento.
+El retiro de las mercancías podrá ser total o parcial, de acuerdo a las regulaciones establecidas en este Reglamento para cada régimen u operación aduanera.

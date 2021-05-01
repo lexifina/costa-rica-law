@@ -1,0 +1,4 @@
+Artículo 348. Concurrencia del declarante o su representante en el reconocimiento físico. El declarante o su representante tienen derecho a presenciar el reconocimiento físico de las mercancías. Si no concurriere el declarante o su representante, se procederá conforme lo establece el Artículo 339 de este Reglamento.
+Sin perjuicio de lo establecido en el párrafo anterior, la Autoridad Aduanera podrá requerir la presencia obligatoria del declarante o su representante al momento del reconocimiento físico, para que éste aporte la información necesaria en la ejecución del acto.
+Iniciada la verificación inmediata, el funcionario aduanero designado, es responsable de su finalización.
+En caso de que el relacionado funcionario no pueda finalizar la verificación inmediata, la Autoridad Aduanera respectiva deberá designar a otro funcionario para que realice dicha operación, dejando constancia de este cambio, en el acta o informe correspondiente.

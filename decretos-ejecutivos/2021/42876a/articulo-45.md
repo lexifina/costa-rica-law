@@ -1,0 +1,1 @@
+Artículo 45. Reporte de irregularidades. En caso de comprobarse la existencia de irregularidades en declaraciones de tributos administrados por una administración tributaria diferente al Servicio Aduanero, se comunicará a aquella la correspondiente información para los efectos legales que sean procedentes en el ámbito de su competencia.

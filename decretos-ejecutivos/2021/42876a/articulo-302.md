@@ -1,0 +1,1 @@
+Artículo 302. Responsabilidad administrativa. El vencimiento del período para la expedición de la resolución anticipada, conforme al Artículo 299 de este Reglamento, no exime a los funcionarios de responsabilidad ni los exonera de la obligación de resolver la solicitud, siempre y cuando la operación de importación a que ésta se refiere no se hubiera efectuado.

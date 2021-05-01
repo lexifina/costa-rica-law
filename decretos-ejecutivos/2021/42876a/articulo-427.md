@@ -1,0 +1,3 @@
+Artículo 427. Plazo. La permanencia de las mercancías bajo el régimen de importación temporal con reexportación en el mismo estado, será hasta por un plazo de seis meses contados a partir de la aceptación de la declaración, sin perjuicio de que cada Estado Parte de acuerdo a la naturaleza y el fin específico de las mercancías importadas temporalmente, establezca plazos especiales.
+Cuando se trate de la importación temporal de contenedores, plataformas y chasises, el plazo para la permanencia de los mismos dentro del territorio aduanero será de tres meses, contados a partir de su ingreso.
+Las importaciones temporales contempladas en convenios internacionales o leyes especiales, se regirán por lo que en ellos se disponga.

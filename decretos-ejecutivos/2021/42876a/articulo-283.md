@@ -1,0 +1,2 @@
+Artículo 283. Plazo para el depósito temporal. Las mercancías podrán permanecer en depósito temporal durante el plazo máximo de veinte días, contado a partir de la fecha de finalización de la descarga del buque o aeronave. En el caso de tráfico terrestre al arribo del medio de transporte.
+Transcurrido este plazo sin que las mercancías sean destinadas a un régimen u operación aduanera, se considerarán abandonadas.

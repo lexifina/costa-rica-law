@@ -1,0 +1,2 @@
+Artículo 68. Comunicación del cese voluntario definitivo o temporal de operaciones. Si de manera voluntaria el auxiliar decide cesar definitiva o temporalmente sus operaciones, deberá comunicarlo previamente al Servicio Aduanero y cumplir las obligaciones y el procedimiento que se establezca para cada auxiliar.
+En ningún caso se autorizará el cese definitivo o temporal de operaciones si el auxiliar mantiene obligaciones tributarias aduaneras, multas, intereses y otros cargos pendientes con el Fisco.

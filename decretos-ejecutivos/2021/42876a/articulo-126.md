@@ -1,0 +1,1 @@
+Artículo 126. Situación de predios, bodegas o patios en zona primaria aduanera. Los predios, bodegas o patios ubicados en la zona primaria aduanera de los puertos y aeropuertos, se consideran, para los efectos legales consiguientes, como depósitos aduaneros temporales.

@@ -1,0 +1,1 @@
+Artículo 284. Comprobación. La entrada o salida de las mercancías del depósito temporal se comprobará por medios informáticos y bajo los procedimientos correspondientes a la operación o régimen autorizado y los fijados por el Servicio Aduanero.

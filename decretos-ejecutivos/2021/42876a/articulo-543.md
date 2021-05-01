@@ -1,0 +1,1 @@
+Artículo 543. Mercancías prohibidas. Cuando por la vía postal se introduzcan al territorio aduanero o se extraigan del mismo las mercancías cuya importación o exportación esté prohibida, la oficina postal informará de dicha circunstancia a la Autoridad Aduanera correspondiente, para que proceda conforme a las disposiciones legales aplicables.

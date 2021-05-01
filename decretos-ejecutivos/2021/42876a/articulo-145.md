@@ -1,0 +1,9 @@
+SECCIÓN X
+DE LAS EMPRESAS DE ENTREGA RÁPIDA O COURIER
+Artículo 145. Solicitud. Las empresas que se dediquen a la prestación de servicios de entrega rápida o courier deberán solicitar su autorización ante el Servicio Aduanero, conforme a los requisitos indicados en el Artículo 58 de este Reglamento.
+Para tal efecto, además de los documentos indicados en el Artículo 59 de este Reglamento, se exigirán los siguientes:
+a) Fotocopia legalizada de la patente de comercio, cuando corresponda;
+b) Fotocopia legalizada del documento de identificación del propietario de la empresa individual o del representante legal de la sociedad mercantil solicitante;
+c) Contrato o carta de representación legalizados en el país de origen y debidamente autenticados por las autoridades correspondientes, que lo acredite en el caso de ser la empresa solicitante un agente o representante de una empresa de mensajería internacional constituida en el extranjero. Si el documento estuviese redactado en idioma extranjero deberá acompañarse traducción jurada del mismo. Estos documentos deberán haberse emitido en un plazo no mayor de tres meses anteriores a la fecha en que se presenta la solicitud;
+d) Nómina de los empleados de la empresa de mensajería internacional, designados por ésta, para actuar ante las aduanas del Estado Parte, en el tratamiento de courier, con el nombre completo y los números de los documentos de identificación y en su caso del carné de número de registro tributario con fotocopias simples de los mismos, así como la constancia de carencia de antecedentes penales de cada uno de ellos. Dichos empleados deberán identificarse mediante gafete expedido por la empresa de mensajería internacional; y
+e) Acreditar la propiedad de los medios de transporte o el contrato de servicios de carga con las compañías de transporte internacional debidamente registradas ante la autoridad competente, que garantice el despacho y la entrega rápida de las mercancías.

@@ -1,0 +1,1 @@
+Artículo 552. Pequeños envíos sin carácter comercial ingresados por la vía postal. Cuando se trate de pequeños envíos sin carácter comercial remitidos por la vía postal, para su despacho se procederá conforme lo establece este Reglamento.

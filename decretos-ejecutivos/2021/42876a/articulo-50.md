@@ -1,0 +1,5 @@
+CAPÍTULO V
+CAPACITACIÓN
+Artículo 50. Capacitación. Para los efectos de lo establecido en el Artículo 15 del Código, la capacitación aduanera tiene como base garantizar la formación técnica del recurso humano de los servicios aduaneros de los Estados Parte, en materia de legislación, procedimientos aduaneros, valoración aduanera, origen, clasificación arancelaria, fiscalización aduanera, tratados y convenios comerciales y otras materias relacionadas con el comercio exterior. Dicha capacitación deberá desarrollarse bajo los principios de eficacia, oportunidad, continuidad y permanencia, utilizando metodologías, medios y técnicas modernas de enseñanza que permitan a los receptores de los conocimientos aplicarlos en forma correcta, continua, oportuna y armonizada.
+Asimismo, en la medida en que los servicios aduaneros dispongan del recurso humano idóneo, podrán impartir capacitación relacionada con procesos productivos.
+De acuerdo a la naturaleza de los cursos de capacitación y a los intereses propios del Servicio Aduanero, la autoridad superior de éste podrá establecer cuáles serán obligatorios.

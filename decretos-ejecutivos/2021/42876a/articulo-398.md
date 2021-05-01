@@ -1,0 +1,4 @@
+Artículo 398. Inspección del vehículo y de la unidad de transporte. Recibida la declaración de tránsito o documento simplificado, la Autoridad Aduanera procederá a inspeccionar el medio de transporte y a corroborar si los dispositivos de seguridad autorizados se encuentran en buen estado y si se han cumplido los plazos de tránsito.
+De no encontrarse ninguna irregularidad, la Autoridad Aduanera o el responsable del depósito aduanero u otros lugares habilitados para el efecto dará por recibido el medio de transporte.
+De existir alguna irregularidad, el medio de transporte deberá permanecer en las instalaciones de la aduana de destino, depósito aduanero u otros lugares habilitados para el efecto, sin manipulación alguna.
+La aduana de destino ordenará la inspección inmediata del medio de transporte y tomará las acciones administrativas que correspondieren.

@@ -1,0 +1,1 @@
+Artículo 208. Comprobación posterior al levante. La investigación y comprobación del valor en aduana declarado, podrá ser realizado por el Servicio Aduanero posterior al levante de las mercancías, dentro del plazo establecido en el Código y de conformidad con las disposiciones legales aplicables, considerando lo señalado en el último párrafo del Artículo 205 de este Reglamento.

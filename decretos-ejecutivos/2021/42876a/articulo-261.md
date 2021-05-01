@@ -1,0 +1,3 @@
+Artículo 261. Plazo para la justificación de faltantes y sobrantes. Los faltantes o sobrantes de mercancías en relación con la cantidad consignada en el manifiesto de carga deberán justificarse dentro del plazo máximo de quince días.
+Dicho plazo se contará a partir del día siguiente de la finalización de la descarga, sea en el puerto de arribo o en otro lugar habilitado para la recepción de la carga o de la notificación del documento de recepción de la misma en el que se hará constar la diferencia detectada, según lo defina el Servicio Aduanero.
+Transcurrido dicho plazo, sin que se hubiere justificado las diferencias, se promoverán las acciones legales que correspondan.

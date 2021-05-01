@@ -1,0 +1,2 @@
+Artículo 500. Permanencia de mercancías en la unidad de transporte. En forma excepcional, el depositario podrá solicitar a la Autoridad Aduanera, la autorización para no descargar de la unidad de transporte las mercancías ingresadas al depósito aduanero que, por sus características, sean de difícil movilización o almacenamiento, de conformidad con los lineamientos que al efecto defina el Servicio Aduanero.
+Para el caso a que se refiere el cuarto párrafo del Artículo 234 de este Reglamento, se permitirá no descargar mercancías peligrosas para la salud y el medio ambiente.

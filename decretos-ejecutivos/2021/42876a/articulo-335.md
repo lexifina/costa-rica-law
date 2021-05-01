@@ -1,0 +1,3 @@
+Artículo 335. Metodología de análisis de riesgo. La declaración de mercancías aceptada por el Servicio Aduanero, será sometida al sistema de análisis de riesgo, dentro del plazo establecido por el Servicio Aduanero, para determinar si corresponde efectuar la verificación inmediata de lo declarado.
+Cuando de conformidad con la aplicación del análisis de riesgo corresponda efectuar la verificación inmediata de lo declarado, el agente aduanero, o el declarante o el apoderado especial aduanero deberá presentar ante el Servicio Aduanero los documentos que sustentan la declaración de mercancías.
+Dichos documentos deberán presentarse en el plazo que fije el Servicio Aduanero.

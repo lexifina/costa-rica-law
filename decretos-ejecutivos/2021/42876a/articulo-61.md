@@ -1,0 +1,2 @@
+Artículo 61. Cobertura de la garantía. La garantía que rinda el auxiliar responderá por cualquier acto que genere responsabilidad administrativa y tributaria que contraiga éste o su personal acreditado ante el Servicio Aduanero, cuando lo tuviere.
+El instrumento de garantía deberá incluir, en forma expresa, una cláusula en los términos indicados en el párrafo anterior y demás aspectos relacionados que el Servicio Aduanero establezca.

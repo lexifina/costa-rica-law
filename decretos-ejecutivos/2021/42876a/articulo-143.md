@@ -1,0 +1,2 @@
+Artículo 143. Revocación de la autorización. Cuando termine la relación laboral con el poderdante o éste revoque el poder otorgado, el poderdante deberá solicitar al Servicio Aduanero que revoque la autorización del apoderado especial aduanero.
+Recibida la solicitud el Servicio Aduanero procederá de forma inmediata a la inhabilitación del código de acceso del apoderado especial aduanero al sistema informático del Servicio Aduanero.

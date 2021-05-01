@@ -1,0 +1,2 @@
+Artículo 598. Despacho. Si las mercancías son presentadas a despacho como muestras sin valor comercial a su ingreso, la Autoridad Aduanera determinará si procede considerarlas como muestras sin valor comercial y cuando corresponda tramitará de oficio la declaración de mercancías.
+Cuando la aduana determine que las mercancías presentadas a despacho, no constituyen muestras sin valor comercial, las pondrá bajo su control y notificará al interesado a efecto de que solicite, dentro de los plazos legales, otra destinación para las mercancías.

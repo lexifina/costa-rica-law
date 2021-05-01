@@ -1,0 +1,2 @@
+Artículo 470. Autorización. Podrá beneficiarse de este régimen toda persona, debidamente autorizada por la autoridad competente, que introduzca al territorio aduanero mercancías para ser destinadas a procesos de transformación, elaboración, reparación u otros legalmente autorizados.
+Para garantizar las operaciones que se ejecuten dentro del régimen y eventualmente los tributos correspondientes, se requerirá del otorgamiento de garantía en una de las formas de las que se establecen en el Artículo 52 del Código.

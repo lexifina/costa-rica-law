@@ -1,0 +1,1 @@
+Artículo 146. Garantía. Previo al inicio de sus actividades, y una vez obtenida la autorización respectiva, las empresas de mensajería internacional o courier, cuando estén obligadas, constituirán garantía a favor y entera satisfacción del Servicio Aduanero, por un monto mínimo de veinte mil pesos centroamericanos o su equivalente en moneda nacional.

@@ -1,0 +1,1 @@
+Artículo 533. Condición de las mercancías. Las mercancías reimportadas deben encontrarse en el mismo estado en que se exportaron, salvo el normal deterioro causado por el uso al cual fueron destinadas, o las medidas adoptadas para su conservación, siempre que éstas no incrementen el valor que tenían las mercancías al momento de su exportación.

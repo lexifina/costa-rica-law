@@ -1,0 +1,7 @@
+CAPÍTULO XV
+DE LA REEXPORTACIÓN
+Artículo 537. Declaración de mercancías. La declaración de mercancías para el régimen de reexportación contendrá, en lo conducente, los datos de la declaración de mercancías para el régimen de exportación definitiva, además de la identificación de las mercancías. Deberá relacionarse en la misma, el número del documento o de la declaración de mercancías que amparó el ingreso de las mercancías al territorio aduanero, en su caso.
+La declaración de mercancías de reexportación quedará sujeta a la verificación inmediata. La Autoridad Aduanera que realice dicha verificación de las declaraciones de mercancías objeto de reexportación, comprobará el cumplimiento de los requisitos establecidos para los regímenes aduaneros suspensivos y lo que al efecto establecen los Artículos 538 y 539 de este Reglamento.
+No se exigirá la presentación de la declaración de mercancías para la reexportación de vehículos amparados al régimen de importación temporal, en la categoría de turistas, el cual se cancelará con la entrega del permiso al momento de salida del territorio aduanero, de acuerdo a lo establecido en el literal c) del Artículo 447 de este Reglamento.
+La declaración de mercancías de reexportación podrá presentarse de manera acumulada para los casos y con las condiciones que para el efecto establezca el Servicio Aduanero.
+El Servicio Aduanero, mediante disposiciones administrativas, permitirá, salvo disposición legal en contrario, que la intervención del agente aduanero sea optativa en el régimen de reexportación.

@@ -1,0 +1,2 @@
+Artículo 306. Recursos. Las reclamaciones y los recursos aduaneros que se interpongan en contra de las resoluciones anticipadas emitidas por la Autoridad Aduanera, en su calidad de autoridad competente, se regirán por lo que se establece en el Capítulo respectivo de este Reglamento.
+Para el caso de las resoluciones anticipadas emitidas por la autoridad competente para la administración de tratados de cada Estado Parte, los recursos serán los aplicables para dicha entidad.

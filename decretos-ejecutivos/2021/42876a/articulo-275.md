@@ -1,0 +1,1 @@
+Artículo 275. Cancelación de documento de transporte. El documento de transporte, incluido en el manifiesto de ingreso, se cancelará en los casos que proceda, una vez realizado el transbordo y registrado en el manifiesto de salida.

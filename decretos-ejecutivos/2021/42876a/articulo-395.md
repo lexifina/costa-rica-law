@@ -1,0 +1,2 @@
+Artículo 395. Inicio del plazo. El cómputo del plazo para el tránsito iniciará a partir del registro de autorización de salida del medio de transporte en el sistema informático del Servicio Aduanero, en la aduana de partida, operado por la Autoridad Aduanera o el responsable de las instalaciones habilitadas.
+Una vez autorizado el inicio del tránsito, el transportista deberá retirar el medio de transporte del recinto aduanero de forma inmediata.

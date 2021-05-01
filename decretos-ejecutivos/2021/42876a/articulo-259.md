@@ -1,0 +1,6 @@
+Artículo 259. Ingreso o salida por aduana distinta. Las mercancías destinadas a ingresar o salir por una determinada aduana podrán hacerlo por otra del mismo territorio aduanero, con la misma documentación de origen, siempre y cuando:
+a) La de destino haya sido cerrada o se encuentre imposibilitada para recibir la carga, por cualquier circunstancia debidamente justificada por el Servicio Aduanero;
+b) Exista caso fortuito o fuerza mayor, debidamente comprobado ante la aduana; o
+c) El capitán de la embarcación o consignatario de las mercancías vía marítima solicite en forma justificada, descargar y despachar en otro puerto distinto del señalado como destino.
+En este caso, la aduana receptora, recibirá los bultos u otros elementos de transporte, con base en los manifiestos de carga o el medio autorizado. El funcionario competente o la persona autorizada procederá a recibirlos, consignará su aprobación o efectuará las observaciones por los medios autorizados; lo anterior sin perjuicio de la aplicación de medidas de control en ejercicio de la potestad aduanera.
+En el caso de mercancías que por sus condiciones y naturaleza hayan sido autorizadas para ingresar o salir exclusivamente por determinada aduana, el cambio de aduana de ingreso o egreso deberá solicitarlo el interesado a la autoridad competente.

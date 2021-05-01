@@ -1,0 +1,1 @@
+Artículo 634. Quórum. Para que se puedan realizar las sesiones del tribunal es necesario que se encuentre presente la totalidad de los miembros titulares, pudiendo, de no constituirse el mismo, integrar el tribunal con los suplentes correspondientes.

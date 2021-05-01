@@ -1,0 +1,2 @@
+Artículo 614. Venta directa. Las mercancías perecederas, de rápida o fácil descomposición y las de conservación dispendiosa, serán vendidas al precio base mediante venta directa por el Servicio Aduanero, previo cumplimiento de las obligaciones no tributarias.
+En tales casos, podrá dispensarse la publicación que indica el Artículo 607 de este Reglamento, pero el Servicio Aduanero deberá darle la publicidad que las circunstancias permitan.

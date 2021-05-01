@@ -1,0 +1,2 @@
+Artículo 645. Disposición transitoria (Tribunal Aduanero). Los Estados Parte que tengan conformado el Tribunal Aduanero, el mismo podrá seguir regulándose por las normas de su creación.
+En los Estados Parte cuyo superior jerárquico del Servicio Aduanero sea un órgano colegiado, éste podrá considerarse como Tribunal Aduanero, siempre que su composición se adecue a los requisitos señalados en el Artículo 630 de este Reglamento.

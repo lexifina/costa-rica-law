@@ -1,0 +1,5 @@
+Artículo 36. Iniciación de las actuaciones de fiscalización. Las actuaciones de fiscalización se iniciarán:
+a) Mediante notificación a la persona sujeta a fiscalización, en la cual se indicará el lugar y la hora en que se practicará la fiscalización, el alcance de las actuaciones y cualquier otra información que se estime necesaria; o
+b) Mediante apersonamiento en las oficinas, instalaciones o bodegas de la persona sujeta a fiscalización o donde exista alguna prueba al menos parcial del hecho imponible. En este caso, la notificación se hará a la persona sujeta a fiscalización, su representante o al encargado o responsable de la oficina, dependencia, empresa, centro o lugar de trabajo en el momento del apersonamiento.
+En ambos casos, la persona sujeta a fiscalización deberá atender los requerimientos de los fiscalizadores o auditores. En su ausencia, deberá colaborar con las actuaciones, quien ostente su representación como encargado o responsable de la oficina, dependencia, empresa, centro o lugar de trabajo.
+Con el inicio de las actuaciones, el funcionario encargado instruirá al notificado sobre el procedimiento a seguir, sus derechos, deberes y obligaciones.

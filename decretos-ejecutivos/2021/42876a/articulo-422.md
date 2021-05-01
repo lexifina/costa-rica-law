@@ -1,0 +1,1 @@
+Artículo 422. Sustitución de procedimiento. Las autoridades superiores de los servicios aduaneros a solicitud de las compañías aéreas interesadas, podrán eximirlas de la utilización del manifiesto y su sustitución por otros procedimientos que privilegien la utilización de técnicas de intercambio de datos por las compañías aéreas consideradas.

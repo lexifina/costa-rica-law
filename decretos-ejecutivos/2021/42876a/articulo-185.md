@@ -1,0 +1,1 @@
+Artículo 185. Normativa aplicable. Además de las normas contenidas en este Capítulo, serán aplicables las regulaciones que en materia de firma electrónica o digital, certificados y certificadores de firma digital estén vigentes en cada Estado Parte.

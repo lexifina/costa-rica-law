@@ -1,0 +1,1 @@
+Artículo 538. Documentos que sustentan la declaración. La declaración a que se refiere el Artículo 537 de este Reglamento se sustentará en los documentos mencionados en el Artículo 321 de este Reglamento, con excepción de los documentos a que se refieren los literales c), d) y e) de dicho Artículo.

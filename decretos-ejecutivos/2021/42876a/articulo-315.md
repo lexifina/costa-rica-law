@@ -1,0 +1,4 @@
+SECCIÓN IV
+EXTRACCIÓN DE MUESTRAS
+Artículo 315. Extracción de muestras. La aduana bajo cuyo control se encuentren las mercancías, de oficio o a solicitud de la parte interesada, podrá extraer o autorizar la extracción de muestras de las mercancías, respectivamente, previo al despacho. Cuando la aduana actúe de oficio deberá informarlo previamente al consignatario o su representante. Dicha extracción de muestras no deberá afectar la naturaleza de las mercancías y se sujetará al procedimiento establecido en el Artículo 344 de este Reglamento.
+De solicitarse el análisis físico o químico a la muestra sustraída, el costo del servicio será absorbido por el interesado. Si el análisis es ordenado por la Autoridad Aduanera o cualquiera otra autoridad gubernamental, este no tendrá costo para el consignatario o su representante.

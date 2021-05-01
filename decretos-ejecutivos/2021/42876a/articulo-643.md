@@ -1,0 +1,1 @@
+Artículo 643. Disposición transitoria (recurso de apelación). Dentro del plazo a que se refiere el segundo párrafo del Artículo transitorio II del Código el recurso de apelación se interpondrá ante la autoridad competente de cada Estado Parte.

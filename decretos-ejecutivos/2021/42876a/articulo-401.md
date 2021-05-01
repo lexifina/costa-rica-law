@@ -1,0 +1,1 @@
+Artículo 401. Supletoriedad. En lo no previsto en esta Sección se aplicarán, en lo conducente, las disposiciones referentes al tránsito aduanero internacional establecidas en el Reglamento sobre el Régimen de Tránsito Aduanero Internacional Terrestre, Formulario de Declaración e Instructivo.

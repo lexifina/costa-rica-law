@@ -1,0 +1,2 @@
+Artículo 487. Plazo para finalizar la descarga de la unidad de transporte. Cuando se haya designado funcionario aduanero para inspeccionar la descarga y éste no se haya apersonado al lugar, la descarga se deberá concluir dentro del día hábil siguiente contado a partir del vencimiento del tiempo establecido en el Artículo 485 de este Reglamento.
+En los casos en que no se requiera la intervención de funcionario, el plazo correrá a partir de la comunicación respectiva de la Autoridad Aduanera correspondiente.

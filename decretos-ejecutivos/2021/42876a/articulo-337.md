@@ -1,0 +1,1 @@
+Artículo 337. Disposición de las mercancías. El declarante deberá poner a disposición del funcionario aduanero designado las mercancías para que realice el reconocimiento físico, dentro del plazo que fije el Servicio Aduanero, quedando bajo la responsabilidad del declarante la apertura de los bultos, su agrupamiento y demás operaciones necesarias para facilitar su reconocimiento.

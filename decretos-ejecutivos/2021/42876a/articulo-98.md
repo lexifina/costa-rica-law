@@ -1,0 +1,3 @@
+Artículo 98. Asistentes del agente aduanero. Para los efectos de lo establecido en el tercer párrafo del Artículo 22 del Código, el agente aduanero deberá acreditar ante el Servicio Aduanero a las personas que los representarán en su gestión aduanera. Para tal efecto, deberá demostrar el contrato laboral existente y cumplir con los demás requisitos que el Servicio Aduanero de cada Estado Parte establezca.
+El agente aduanero deberá informar al Servicio Aduanero, inmediatamente del cese de la relación laboral o contractual de las personas acreditadas.
+A los asistentes del agente aduanero les será aplicable la inhabilitación establecida en los literales a) y c) del Artículo 67 de este Reglamento.

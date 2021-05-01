@@ -1,0 +1,5 @@
+Artículo 29. Alcance de las actuaciones de comprobación e investigación. Las actuaciones de comprobación e investigación tendrán carácter general o parcial, según lo establezca el órgano fiscalizador, mediante la delimitación del objetivo del estudio.
+Las actuaciones tendrán carácter general cuando su objeto sea la fiscalización total de la situación tributaria aduanera del sujeto pasivo, auxiliares u obligados tributarios.
+Las actuaciones de comprobación e investigación serán parciales cuando se refieren a uno o varios tributos o deberes que afecten al sujeto pasivo, auxiliares u obligados tributarios, o a hechos imponibles delimitados según el objetivo del estudio.
+Las actuaciones de comprobación e investigación de carácter general o parcial pueden ser limitadas o ampliadas por el órgano fiscalizador durante su ejecución, cuando por razones debidamente justificadas así lo ameriten.
+Con las actuaciones de fiscalización para la comprobación e investigación se deben obtener los datos o antecedentes con que cuente el sujeto pasivo, auxiliares u obligados tributarios y que sean de relevancia tributaria aduanera para el caso en análisis.

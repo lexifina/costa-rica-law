@@ -1,0 +1,6 @@
+Artículo 206. Motivos para rechazar el valor de transacción. El Servicio Aduanero, también procederá a rechazar el valor declarado por el importador y determinará el valor en aduana de las mercancías importadas, con base en los métodos sucesivos del Acuerdo, en los siguientes casos:
+a) No llevar contabilidad, no conservarla o no ponerla a disposición del Servicio Aduanero y los demás documentos relativos al comercio exterior, exigibles;
+b) Negarse al ejercicio de las facultades de comprobación del Servicio Aduanero;
+c) Omitir los registros o alterar información de las operaciones de comercio exterior en la contabilidad; d) No cumplir con los requerimientos del Servicio Aduanero para presentar la documentación o información, en el plazo otorgado; que acredite que el valor declarado fue determinado conforme a las disposiciones del Acuerdo y este Reglamento;
+e) Cuando se compruebe que la información o documentación presentada sea falsa o contenga datos falsos o inexactos o cuando se determine que el valor declarado no fue establecido de conformidad con lo dispuesto en el Acuerdo y el presente Capítulo; o
+f) Cuando se requiera al importador que demuestre que la vinculación no haya influido en el precio y éste no demuestre dicha circunstancia.

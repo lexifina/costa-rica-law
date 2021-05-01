@@ -1,0 +1,3 @@
+Artículo 246. Defectos en la información transmitida del manifiesto de carga. El Servicio Aduanero no dará el trámite correspondiente a la transmisión de la información del manifiesto de carga que contenga defectos en la información requerida por éste.
+Cuando el manifiesto de carga no aparezca registrado en el sistema aduanero y la entidad transmisora aduzca que el mismo fue enviado electrónicamente, para considerarse transmitido el transmisor deberá presentar el número de registro o copia del mensaje de aceptación el cuál tendrá que ser validado en el sistema informático aduanero.
+El Servicio Aduanero regulará la forma y condiciones para la presentación del manifiesto de carga por eventos de caso fortuito o fuerza mayor que impidan la transmisión del mismo.

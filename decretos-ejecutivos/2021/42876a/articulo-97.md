@@ -1,0 +1,1 @@
+Artículo 97. Reinicio de operaciones. En el caso del cese definitivo de operaciones, el agente aduanero podrá solicitar el reinicio de operaciones para lo cual tendrá que cumplir con lo establecido en el Artículo 85 de este Reglamento.

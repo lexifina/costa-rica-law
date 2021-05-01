@@ -1,0 +1,1 @@
+Artículo 404. Operador de transporte multimodal. El operador de transporte multimodal es la persona que celebra un contrato de transporte multimodal y asume ante el consignante la responsabilidad del transportista por su plena ejecución, pudiendo coincidir con el operador del transporte multimodal.

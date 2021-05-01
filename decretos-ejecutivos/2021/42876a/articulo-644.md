@@ -1,0 +1,1 @@
+Artículo 644. Disposición transitoria (conformación Comisión Centroamericana sobre Certificación Electrónica o Digital). En tanto se conforma la comisión a que se refiere el Artículo 180 de este Reglamento, los Estados Parte aplicarán las disposiciones que al efecto dicte el Servicio Aduanero.

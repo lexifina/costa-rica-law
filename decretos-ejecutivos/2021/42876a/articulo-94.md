@@ -1,0 +1,1 @@
+Artículo 94. Cese definitivo de operaciones. Cuando el agente aduanero solicite voluntariamente el cese definitivo de sus operaciones deberá comunicarlo al Servicio Aduanero para su autorización, con un mes de anticipación al cese.

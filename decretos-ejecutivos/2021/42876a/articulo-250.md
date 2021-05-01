@@ -1,0 +1,2 @@
+Artículo 250. Comprobación del caso fortuito o fuerza mayor. De comprobarse el caso fortuito o fuerza mayor que dio lugar al arribo forzoso, se podrá autorizar la continuación del viaje, el transbordo o la descarga de las mercancías.
+Si las justificaciones presentadas se estiman inaceptables, la Autoridad Aduanera ordenará la aprehensión del medio de transporte, el depósito de las mercancías y deducirá las responsabilidades que correspondan.

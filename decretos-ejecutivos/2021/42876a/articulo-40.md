@@ -1,0 +1,2 @@
+Artículo 40. Deber de comparecencia. Los funcionarios encargados de la fiscalización podrán citar a los sujetos pasivos y a terceros, para que comparezcan en las oficinas del órgano fiscalizador con el fin de contestar, verbalmente o por escrito, las preguntas o los requerimientos de información necesarios para verificar y fiscalizar las obligaciones tributarias aduaneras.
+La citación a comparecer y el acta que se levante al efecto, deberán cumplir con los términos y condiciones que defina cada Servicio Aduanero.

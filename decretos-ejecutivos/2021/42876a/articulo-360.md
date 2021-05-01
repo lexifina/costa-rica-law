@@ -1,0 +1,2 @@
+Artículo 360. Dispositivos de seguridad e identificación. El Servicio Aduanero adoptará las medidas que permitan identificar las mercancías, cuando sea necesario garantizar el cumplimiento de las condiciones del régimen aduanero para el que las mercancías se declaren.
+Los dispositivos de seguridad colocados en las mercancías o en los medios de transporte, sólo podrán ser retirados o destruidos por la Autoridad Aduanera o con su autorización, salvo caso fortuito o fuerza mayor debidamente comprobados a satisfacción del Servicio Aduanero.

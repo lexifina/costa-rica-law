@@ -1,0 +1,1 @@
+Artículo 151. Representaciones. Cualquier cambio o incorporación de representaciones de las empresas consolidadoras, deberá ser comunicado al Servicio Aduanero cumpliendo con los requisitos señalados en el literal c) del Artículo 149 de este Reglamento y en el último párrafo de dicho Artículo.

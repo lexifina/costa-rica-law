@@ -1,0 +1,1 @@
+Artículo 331. Declaración provisional. La declaración de mercancías podrá ser autorizada de manera provisional por el Servicio Aduanero, tratándose del despacho de mercancías a granel y otras que la autoridad superior del Servicio Aduanero establezca.

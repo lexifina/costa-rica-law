@@ -1,0 +1,3 @@
+Artículo 589. Grupos de empresas con vinculación financiera. Se podrá autorizar esta modalidad a empresas integradas en grupos empresariales con vinculación financiera suficiente, entendida ésta cuando la participación, directa o indirecta, de una empresa en otra del grupo, sea al menos del veinticinco por ciento en el capital social, siempre que cumplan, además, con los requisitos siguientes:
+a) Indicar los nombres de las empresas que conforman el grupo financieramente vinculado y los cambios en los integrantes del grupo; y
+b) Indicar el conjunto de las importaciones de las empresas, considerado globalmente debe cubrir los parámetros y condiciones exigidas para las empresas individuales.

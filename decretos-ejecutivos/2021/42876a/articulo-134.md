@@ -1,0 +1,1 @@
+Artículo 134. Responsabilidad. Son responsables de las tiendas libres las personas naturales o jurídicas autorizadas a operarlas, las que responderán de la recepción, permanencia y conservación de las mercancías, así como de los tributos correspondientes dejados de percibir, en caso de pérdida o salida de la mercancía sin la documentación de sustento.

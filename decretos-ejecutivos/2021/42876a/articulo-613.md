@@ -1,0 +1,2 @@
+Artículo 613. Retiro de mercancías adjudicadas. Una vez cancelado el valor de las mercancías obtenidas en subasta, el adjudicatario deberá retirar las mismas del recinto donde se encuentren, cumpliendo con las obligaciones no tributarias correspondientes a la importación de las mercancías y asumiendo los costos que se deriven del almacenaje.
+La entrega de las mercancías se efectuará al titular mediante el comprobante que la Autoridad Aduanera emita al efecto.

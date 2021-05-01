@@ -1,0 +1,2 @@
+Artículo 132. Del ingreso y salida de mercancías. Para el ingreso de las mercancías en las tiendas libres, se presentará la declaración de mercancías que en su caso corresponda; y la salida de dichos locales se comprobará con las facturas expedidas a las personas a quienes se vendan.
+Una vez ingresada la mercancía a una tienda libre y ésta la traslade a otro usuario de este régimen, esta operación tendrá que ser debidamente autorizada por la autoridad competente y cumplir con los procedimientos establecidos.
