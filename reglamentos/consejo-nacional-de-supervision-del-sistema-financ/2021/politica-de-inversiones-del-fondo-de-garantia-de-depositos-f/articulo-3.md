@@ -1,0 +1,6 @@
+Artículo 3. Métricas de medición del cumplimiento de los objetivos
+a. Liquidez: se deberá garantizar que el FGD invierte en instrumentos que permitan su convertibilidad a efectivo rápidamente. Para evaluar su cumplimiento se van a seguir los siguientes parámetros:
+• 50% del FGD será convertible en efectivo en 1 mes o menos o con un margen de compra/venta no mayor a 25 puntos básicos de su valor de mercado al momento de la compra.
+• El restante 50% del FGD deberá ser convertible en efectivo en 2 meses o menos o con un margen de compra/venta no mayor a 50 puntos básicos de su valor de mercado al momento de la compra.
+b. Preservación del capital: este objetivo se habrá cumplido si con un 95% de confianza el FGD no realiza pérdidas acumuladas (retornos acumulados negativos) en el horizonte de 3 años. Esto se estimará usando datos mensuales de los últimos 10 años.
+c. Retorno: el objetivo de retorno se cumple si el retorno de la Cartera de Inversión FGD es superior al retorno de los bonos del Tesoro de los Estados Unidos con plazo al vencimiento entre uno y tres años, calculado por Bloomberg (ticker de Bloomberg: LT01TRUU) para un horizonte de 3 años. Mientras no se acumulen los 3 años de datos no se podrá verificar el cumplimiento de este objetivo.
