@@ -1,0 +1,1 @@
+Artículo 11.-Asignación en los sistemas electrónicos de subastas y colocaciones. La Tesorería Nacional será la responsable de ejecutar la asignación de los eventos de subastas y similares en el sistema electrónico de subastas que se utilice.

@@ -1,0 +1,1 @@
+Artículo 3º-Eventos de subastas y similares. Entiéndase a la realización de una subasta (competitiva o no competitiva), mediante plataformas locales o internaciones, las captaciones dirigidas a participantes del mercado financiero, las operaciones de administración de pasivos, los contratos de colocación y las colocaciones sindicadas.
