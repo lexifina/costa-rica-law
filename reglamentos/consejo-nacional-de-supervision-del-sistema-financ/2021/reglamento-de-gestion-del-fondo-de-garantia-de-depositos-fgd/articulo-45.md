@@ -1,0 +1,5 @@
+Artículo 45. Administrador de los OFG
+La administración de cada uno de los OFG, deben funcionar bajo la responsabilidad y dirección inmediata de un administrador (persona física o jurídica). El órgano de dirección es el responsable de aprobar la estructura organizacional y funcional del fondo y proporcionar los recursos necesarios para el cumplimiento de sus responsabilidades.
+El perfil del administrador de cada OFG respectivo, debe estar acorde con las actividades que debe desarrollar en el cumplimiento de su función y con la complejidad de sus operaciones.
+La estructura organizativa que se llegue a conformar en cada fondo debe constituir una unidad funcional administrativa independiente de las entidades afiliadas que procure la eficacia y efectividad del fondo.
+Esa unidad funcional debe conformarse con los recursos estrictamente necesarios para la buena gestión del fondo y tener como objeto exclusivo el administrar el fondo. En su diseño, se debe considerar la gestión de conflictos de intereses en la administración de sus recursos.

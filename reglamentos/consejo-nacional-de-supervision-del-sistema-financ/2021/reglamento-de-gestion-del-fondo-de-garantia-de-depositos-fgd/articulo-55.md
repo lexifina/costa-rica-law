@@ -1,0 +1,11 @@
+Sección III
+Sobre la política de inversión de los OFG
+Artículo 55. Política de inversiones para los OFG
+Los OFG deben contar con una política de inversiones para la gestión de esos recursos, la cual debe incluir objetivos claros y medibles en términos de liquidez, moneda y preservación del capital, en concordancia con la finalidad de cada fondo.
+La política de inversión que establezca cada OFG constituye un marco de referencia para la estrategia del portafolio de inversiones. La política debe establecer la tolerancia para los distintos riesgos y sus sistemas de control permanentes, con el objeto de obtener la máxima rentabilidad y seguridad.
+Al ser supervisados por la SUGEF es preciso que cada OFG, adopte y cumpla las disposiciones que les sean aplicables contenidas en la normativa vigente aplicable para el manejo de sus portafolios de inversiones.
+En la selección de las opciones de inversión cada fondo debe privilegiar aquellas que maximizan el retorno esperado y mantengan los objetivos de preservación del capital y la liquidez. La opción elegida debe ajustarse al nivel de riesgo definido por en la política de inversión y debe promover una adecuada diversificación del portafolio.
+La política de inversiones de los OFG debe contener especificaciones de emisores, mercados y plazas, valores e instrumentos financieros para coberturas, plazos, monedas, e indicadores de medición y administración de riesgos.
+La estrategia de gestión de riesgos debe establecer las pautas generales que cada fondo debe aplicar para gestionar los riesgos en que incurre en su gestión, para lo cual debe adoptar políticas, procedimientos y prácticas adecuadas, contemplando el objetivo de proteger la liquidez y solvencia, el nivel de apetito al riesgo establecido y la capacidad para enfrentar situaciones de tensión en el mercado.
+Los OFG deben procurar identificar adecuadamente los factores de riesgo de mercado que afectan los precios del portafolio de inversiones; entre otros, debe contemplar riesgos en las tasas de interés, tipos de cambio, riesgo de contraparte, e incorporarlos en un modelo de medición.
+La administración de los OFG no puede invertir en títulos de las entidades contribuyentes de cada fondo correspondiente.

@@ -1,0 +1,2 @@
+Transitorio III
+Los fondos de garantía de depósitos de cooperativas existentes a la entrada en vigencia de la Ley 9816, deberán ajustar sus estatutos dentro del plazo de tres meses posteriores a la entrada en vigencia de del Reglamento de gestión del Fondo de Garantía de Depósitos (FGD) y de Otros Fondos de Garantía (OFG) y del Reglamento de mecanismos de resolución de intermediarios financieros supervisados por SUGEF.

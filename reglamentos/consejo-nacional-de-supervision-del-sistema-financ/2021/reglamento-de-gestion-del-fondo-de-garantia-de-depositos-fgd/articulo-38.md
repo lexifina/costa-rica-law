@@ -1,0 +1,2 @@
+Artículo 38. Auditoría interna
+Corresponde a la Auditoría Interna del BCCR ejercer la auditoría interna del Fondo, por lo que debe considerar en su plan anual de auditoría, la revisión y aplicación de controles internos y de riesgos del FGD, de manera tal que se controle y se verifique la actividad y la gestión de la administración de ese Fondo. La Junta Directiva del BCCR, deber aprobar el plan de auditoría aplicable al FGD y conocer y valorar los resultados de esos informes. Los informes de auditoría deben ser comunicados al CONASSIF y a la SUGEF.

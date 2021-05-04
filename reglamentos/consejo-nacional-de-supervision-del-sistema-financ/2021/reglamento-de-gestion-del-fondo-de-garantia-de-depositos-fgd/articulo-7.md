@@ -1,0 +1,13 @@
+Artículo 7. Compartimentos del FGD
+La contabilización del patrimonio del FGD se debe realizar en forma independiente y separada de las cuentas del BCCR y con estricto apego de las normas contables que ese Banco aplique.
+El Fondo se gestiona inicialmente en tres compartimentos:
+a. El formado con las contribuciones de los bancos estatales y el Banco Popular y de Desarrollo Comunal,
+b. El constituido por las contribuciones de los bancos privados, bancos extranjeros que operan a través de la figura de sucursal y de las empresas financieras no bancarias, y
+c. El establecido con las contribuciones de las cooperativas de ahorro y crédito, de las asociaciones solidaristas supervisadas por la SUGEF y las de la Caja de Ande.
+En caso de otros intermediarios financieros que lleguen a ser supervisados por la SUGEF, la administración del Fondo debe incluirlos en el compartimento que les corresponda, de acuerdo con la naturaleza de cada entidad.
+Las condiciones bajo las cuales operarán los compartimentos del Fondo serán las mismas para cada uno, de conformidad con los siguientes lineamientos:
+a. Cada compartimento tiene su patrimonio, eso implica activos y pasivos por aparte. El FGD debe llevar una contabilidad por compartimento y debe llevar una contabilidad para todo el FGD.
+b. A pesar de que la contabilidad requiere un registro por compartimento, los recursos son manejados bajos las mismas políticas de inversión y pueden ser gestionados de manera conjunta por parte del FGD, ello implica efectuar las asignaciones de los principales y de sus rendimientos, en forma proporcional a los dineros tomados, para cada compartimento.
+c. Aun cuando la administración del FGD gestione de manera conjunta cada compartimiento, tiene la prohibición de combinar los recursos de cada compartimento o realizar préstamos u otro tipo de transacciones entre los diferentes compartimentos.
+d. La administración debe asignar los costos de funcionamiento del FGD en la proporción que le corresponda, según la cuantía de las contribuciones trimestrales totales que reciba del compartimento respectivo; además, debe tener en consideración que, en caso de que alguna entidad contribuyente, inicie un proceso de resolución y el Fondo tenga que hacer el pago directo de los depósitos o apoyar en la aplicación de un mecanismo de resolución, siguiendo la regla del menor costo, los recursos deben ser tomados del compartimento al que pertenece la entidad en resolución.
+El CONASSIF, tras informe técnico elaborado por el FGD, con la recomendación de la SUGEF, puede revisar y modificar los compartimentos que se han creado, para su mejor gestión y control, de conformidad con el artículo 19 de la Ley 9816.

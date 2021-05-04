@@ -1,0 +1,6 @@
+Sección V
+Garantía contingente de los recursos del EML y de la reserva de liquidez para financiar el FGD
+Artículo 25. Garantía contingente
+El FGD dispone del uso contingente de una porción equivalente al dos por ciento (2,0%) del total de los pasivos sujetos a EML o reserva de liquidez de cada una de las entidades contribuyentes. Esos recursos son considerados como garantía del Fondo y se utilizarán para cubrir el pago directo de los depósitos garantizados o para apoyar un proceso de resolución cuando los recursos del respectivo compartimento al que pertenece la entidad contribuyente sean insuficientes para asistir a la resolución o al pago de los depósitos, hasta por el monto faltante, conforme así lo instruya el CONASSIF.
+Las entidades contribuyentes sujetas a la reserva de liquidez deberán mantener en el Fideicomiso de Garantías del Sistema de Pagos del Banco Central, valores y depósitos por una cuantía equivalente al dos por ciento (2,0%) de los pasivos sujetos a la reserva de liquidez.
+El BPDC debe constituir esta garantía, trasladando al Fideicomiso de Garantías del Sistema de Pagos del Banco Central, el 2% del total de sus depósitos y captaciones, exceptuando los depósitos en cuenta corriente que están sujetos a encaje, a partir de títulos valores de la mejor calidad crediticia.

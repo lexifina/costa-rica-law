@@ -1,0 +1,2 @@
+Artículo 26. Registro contable de la garantía contingente
+Para efectos del 2% de la garantía contingente, las entidades contribuyentes deberán extraer el 2% del EML y de la reserva de liquidez registrado por la entidad y reclasificar contablemente esos activos como un activo restringido. Las entidades contribuyentes deberán revelar sus saldos en las subcuentas que para esos efectos se detallan en el Reglamento de Información Financiera.
