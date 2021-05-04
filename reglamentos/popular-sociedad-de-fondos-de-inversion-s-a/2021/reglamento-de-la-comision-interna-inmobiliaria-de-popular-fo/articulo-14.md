@@ -1,0 +1,1 @@
+Artículo 14.-Políticas y procedimientos para el funcionamiento de la Comisión: La Comisión Interna Inmobiliaria funcionará de acuerdo con lo establecido en el presente Reglamento y en la normativa que regula los Fondos de Inversión.
