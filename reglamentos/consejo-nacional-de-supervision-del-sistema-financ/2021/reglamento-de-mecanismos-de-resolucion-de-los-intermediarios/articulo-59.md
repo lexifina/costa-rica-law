@@ -1,0 +1,14 @@
+Sección III
+Gestión de conflictos de intereses en la resolución de intermediarios financieros
+En la aplicación de las distintas formas de resolución, el CONASSIF, el interventor y el administrador de la resolución, deben procurar la gestión de los conflictos de intereses en aras de que el proceso de intervención y resolución de intermediarios financieros supervisados cumpla con sus objetivos, con las disposiciones de la Ley 9816 y con la reglamentación conexa que se ha emitido.
+Artículo 59. Principios para el manejo de conflictos de intereses
+El CONASSIF, el interventor y el administrador de la resolución de un intermediario financiero supervisado, son las autoridades a cargo de la gestión de los conflictos de intereses. Frente a los problemas de este tipo, se deben observar los siguientes principios:
+a. Servir al interés general: asegurarse que la función pública sea ejercida buscando la satisfacción del interés general, con apego a la legalidad, sin consideración de provecho personal.
+b. Transparencia y escrutinio: los intereses y relaciones privadas del personal que puedan comprometer el ejercicio desinteresado de las funciones públicas deben ser revelados de manera apropiada y oportuna, como garantía de transparencia y correcta gestión de las situaciones de conflictos de intereses.
+c. Promover la responsabilidad individual y ejemplo personal: las personas de esas autoridades deben comportarse todo el tiempo con integridad, y asumir la responsabilidad de organizar sus asuntos privados para evitar los conflictos de intereses.
+d. Imparcialidad e independencia: se debe privilegiar la independencia e imparcialidad en la gestión de las funciones, como medio para asegurar su efectivo cumplimiento y la satisfacción del interés general.
+e. Protección de la confianza y credibilidad de la red de seguridad financiera nacional: la desconfianza y el desprestigio se deben evitar mediante la adopción de medidas efectivas y oportunas que den solución a los conflictos de intereses de las personas y tutelen la imagen de imparcialidad e integridad del CONASSIF, interventor y administración de la resolución, con apego a las disposiciones de ley aplicables.
+f. Estar atentos para resolver o denunciar, ante la autoridad competente las situaciones de conflicto de intereses que afecten un proceso de resolución de un intermediario financiero supervisado.
+g. No deben participar, directa o indirectamente, en transacciones comerciales o financieras, aprovechándose de información confidencial de la cual tengan conocimiento debido a su cargo, de forma tal que ello les confiera una situación de privilegio de cualquier carácter, para sí, o para terceras personas.
+h. Garantizar la transparencia y el trato justo para todos los oferentes.
+Este Reglamento rige tres meses después de su publicación en el diario oficial La Gaceta.

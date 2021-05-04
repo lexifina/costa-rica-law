@@ -1,0 +1,4 @@
+Artículo 21. Potestades del interventor
+El interventor asume la representación judicial y extrajudicial del intermediario financiero supervisado intervenido, con las mismas facultades que ostentan la gerencia y la presidencia del órgano directivo.
+Al momento de ser nombrado, debe asumir todas las competencias del órgano de dirección y de la alta administración del intermediario financiero. Dichas competencias las ejerce bajo la vigilancia del CONASSIF con la supervisión de la SUGEF.
+El interventor debe informar al CONASSIF y a la SUGEF, con la periodicidad que le establezca el CONASSIF, sobre la evolución y avance del proceso de intervención, así como de su actuación en el desempeño de sus funciones y debe adoptar todas las medidas necesarias para alcanzar los objetivos de la intervención, de conformidad a la autorización del CONASSIF.

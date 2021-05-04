@@ -1,0 +1,2 @@
+Artículo 26. Plazo de la resolución
+La aplicación de mecanismos de resolución no puede exceder de un año. Treinta días naturales antes del vencimiento del plazo ordenado para la resolución, el CONASSIF deberá decidir, previa recomendación de los administradores de la resolución designados, si permite a la entidad continuar con sus operaciones, lo cual únicamente podrá ser acordado excepcionalmente si se encuentra aún en proceso de concreción el mecanismo de resolución aprobado; o si solicita al juez competente la quiebra o la liquidación correspondiente.

@@ -1,0 +1,3 @@
+Artículo 31. Gastos de la resolución
+Todos los gastos que demande la resolución de un intermediario financiero correrán con cargo a los activos de esta. Los administradores designados deben presentar al CONASSIF un informe mensual de todos los gastos en que se haya incurrido durante la resolución.
+En caso de quiebra o liquidación, los gastos de la resolución que fueran aprobados y no hubieran sido pagados, serán considerados a cargo de la masa de acreedores, de conformidad con los artículos 886 y 887 párrafo segundo del Código de Comercio, Ley 3284. La legalización de tales créditos corresponderá a los administradores designados.

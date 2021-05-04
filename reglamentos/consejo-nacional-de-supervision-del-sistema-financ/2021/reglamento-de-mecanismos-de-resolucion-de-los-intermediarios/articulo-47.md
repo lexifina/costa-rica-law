@@ -1,0 +1,8 @@
+Artículo 47. Funcionamiento del fideicomiso o VPE
+Los activos excluidos de la entidad objeto de resolución y el eventual aporte que realice el FGD u OFG (se realizará en la medida en que se cumpla con la regla del menor costo), serán traspasados a un fideicomiso o VPE y los pasivos excluidos se trasladarán a intermediarios financieros solventes, quienes recibirán en contraprestación a ello, certificados de participación fiduciaria, a ser emitidos por el fideicomiso que se ha constituido con los activos excluidos.
+Este certificado puede ser de dos tipos: principal y subordinado. La entidad adquiriente recibirá uno o varios certificados principales del fideicomiso por el monto de los pasivos excluidos, y el FGD recibe un certificado subordinado por el aporte de recursos al fideicomiso.
+El fideicomiso solamente debe recibir los activos del balance de la masa excluida y los realizará al mejor precio posible a lo largo del tiempo y de acuerdo con las reglas de valuación mencionadas en este Reglamento. Con lo producido por la realización de esos activos irá pagando los certificados emitidos, hasta cubrir el valor de los pasivos excluidos a las entidades tenedoras de los certificados. Si hubiera un sobrante, se debe destinar al pago del certificado subordinado del FGD. Posteriormente, si aún hubiese algún sobrante, se deberá trasladar a la quiebra o liquidación judicial.
+Los participantes que componen este mecanismo de resolución son los siguientes:
+a. Fideicomitente: Entidad en proceso de resolución.
+b. Fideicomisario: Los titulares de los certificados de participación y el FGD u OFG.
+c. Fiduciario: Intermediario financiero supervisado encargado de realizar los activos del balance de la masa excluida.

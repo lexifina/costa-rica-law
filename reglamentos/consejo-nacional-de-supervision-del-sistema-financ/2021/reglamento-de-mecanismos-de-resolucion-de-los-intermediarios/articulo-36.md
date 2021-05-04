@@ -1,0 +1,11 @@
+Artículo 36. Condiciones para la venta
+Las condiciones por considerar para el diseño y ejecución de la venta del negocio de la entidad en proceso de resolución son:
+a. En este mecanismo de resolución se deben considerar y le son aplicables las disposiciones contenidas en los artículos 479, 480 y 485 del Código de Comercio.
+b. El adquiriente debe demostrar ser una entidad con la solvencia suficiente para poder soportar la adquisición de la entidad objeto de resolución. Ello implica que el adquirente deberá cumplir con todos los requisitos prudenciales después de la ejecución de la transacción.
+c. La selección de los adquirientes debe realizarse mediante un procedimiento competitivo, transparente y no discriminatorio.
+d. Se aplica la normativa sobre idoneidad de los miembros del órgano de dirección y de la alta gerencia en cada adquiriente.
+e. La venta debe tomar las medidas necesarias para gestionar situaciones de conflicto de intereses de acuerdo con lo dispuesto en esa materia en este Reglamento.
+f. El proceso de transmisión de activos, pasivos y derechos de la entidad en resolución al adquiriente se puede realizar más de una vez.
+g. La venta total o parcial mediante la transmisión de capital al adquiriente, tiene eficacia jurídica inmediata, y esa transmisión se realiza sin necesidad de obtener el consentimiento de los socios o asociados de la entidad objeto de resolución, o de terceros diferentes del adquiriente y sin tener que cumplir con otros requisitos de procedimiento exigidos por la legislación, más allá de los previstos expresamente en la Ley 9816.
+h. Los socios, asociados o acreedores de la entidad en resolución, así como terceras personas cuyos activos y/o pasivos no hayan sido transferidos al adquiriente, no tendrán ningún derecho sobre los activos y pasivos que hayan sido transferidos. La transferencia de activos y pasivos, resultantes de dicha venta, producirá efectos de pleno derecho, sin perjuicio del aviso que deba darse a sus titulares.
+i. La venta del negocio se puede realizar indistintamente a una persona física o jurídica, sea local o extranjera, siempre y cuando el adquirente demuestre ante el resolutor su idoneidad y calidades, así como el origen de los recursos.

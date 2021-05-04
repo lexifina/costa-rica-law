@@ -1,0 +1,3 @@
+Artículo 56. Presentación de ofertas y su evaluación
+Las entidades interesadas deben presentar sus ofertas ante el administrador de la resolución. La entidad que presente la oferta más conveniente, entiéndase la que más convenga a los intereses de la resolución, será la seleccionada, y una vez aceptada la oferta por parte del administrador de la resolución, será sometida a la aprobación del CONASSIF.
+Cuando el administrador de la resolución, en su gestión de los conflictos de intereses, reciba ofertas de un adquiriente, debe tener presente, en lo que sea aplicable, la vigilancia de que se esté cumpliendo con la normativa dispuesta sobre la idoneidad de los miembros del órgano de dirección y de la alta gerencia de cada oferente.

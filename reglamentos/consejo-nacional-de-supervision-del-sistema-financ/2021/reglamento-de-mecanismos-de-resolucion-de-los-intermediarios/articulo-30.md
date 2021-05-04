@@ -1,0 +1,5 @@
+Artículo 30. Potestades del administrador de la resolución
+El administrador de la resolución, al asumir la representación judicial y extrajudicial del intermediario financiero en resolución, tendrá las mismas facultades y responsabilidades que ostentan la gerencia y la presidencia del órgano directivo.
+Al momento de ser nombrado, el administrador de la resolución asumirá todas las competencias del órgano de dirección y de la alta administración del intermediario financiero. Dichas competencias las ejerce bajo la vigilancia del CONASSIF que contará con el apoyo técnico de la SUGEF.
+Esa designación se debe acreditar mediante la publicación del acuerdo respectivo en el diario oficial y el CONASSIF ordenará dar aviso al Registro Público correspondiente para que practique la anotación de la resolución del intermediario financiero intervenido en los asientos registrales que correspondan.
+El administrador de la resolución adoptará todas las medidas necesarias para ejecutar el mecanismo de resolución de conformidad con la autorización del CONASSIF.

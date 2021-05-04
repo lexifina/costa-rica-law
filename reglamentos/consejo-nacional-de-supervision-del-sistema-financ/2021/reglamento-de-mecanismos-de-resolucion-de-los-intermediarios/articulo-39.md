@@ -1,0 +1,5 @@
+Artículo 39. Fusión de entidades estatales
+En el caso de un proceso de venta o fusión donde la entidad financiera en resolución sea un banco comercial del Estado, y el adquiriente sea privado, la transmisión de activos y pasivos deberá ser acordada por el Consejo de Gobierno y se requiere la aprobación mediante un proyecto ley.
+Si el Consejo de Gobierno se opone a la venta de la entidad en resolución y si los demás mecanismos para resolver resultan inviables, el interventor deberá recomendar al CONASSIF que ordene su liquidación ante la Asamblea Legislativa.
+En el caso del Banco Popular y de Desarrollo Comunal, si la Asamblea de Trabajadores se opone a la venta o fusión, y si los demás mecanismos para resolverse resultaran inviables, el administrador de la resolución recomendará al CONASSIF su liquidación en sede judicial, con arreglo a lo que dispone el artículo 42 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, Ley 4351.
+En el caso del BANHVI, se aplica el proceso de resolución que apruebe el CONASSIF. En caso de que ningún mecanismo de resolución sea viable, el CONASSIF instruirá su liquidación en sede judicial.

@@ -1,0 +1,3 @@
+Artículo 20. Plazo del nombramiento
+El nombramiento del interventor es por un plazo inicial de treinta días naturales luego de acordada la intervención, plazo en el cual deberá ejecutar el proceso de análisis sobre la situación financiera del intermediario financiero y recomendar alguna de las siguientes opciones: el plan de regularización, un mecanismo de resolución, o la solicitud de quiebra o liquidación en sede judicial.
+El interventor puede solicitar al CONASSIF, mediante informe escrito y debidamente justificado, que le conceda treinta días naturales adicionales para emitir la recomendación que debe plantear con respecto a la viabilidad o no de la entidad intervenida.
