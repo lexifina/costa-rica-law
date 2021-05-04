@@ -1,0 +1,1 @@
+Artículo 13.-Sanciones. El incumplimiento de las disposiciones contenidas en este Reglamento hará acreedor al o la funcionario(a) de las medidas civiles y disciplinarias correspondientes, sin perjuicio de cualquier otro tipo de responsabilidad que conforme el ordenamiento jurídico le sean aplicables.
