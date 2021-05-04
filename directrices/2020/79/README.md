@@ -14,3 +14,4 @@ Revisión y simplificación de trámites administrativos de permisos, licencias,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-09 | la propia norma |
+| 2 | 2021-05-04 | Directriz 113 (2021-05-04) |
