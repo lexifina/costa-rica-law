@@ -1,4 +1,0 @@
-Artículo 27.—Las elecciones deberán llevarse a cabo el primer domingo de noviembre y el sábado anterior en la sede del Colegio de Cirujanos Dentistas de Costa Rica, el sábado anterior en las demás Juntas Receptoras si así lo acuerda el Tribunal.
-Si solo se inscribiera una papeleta, se prescindirá de la elección, haciéndolo constar así el Tribunal Electoral ante la Asamblea General para que esta proceda conforme al artículo 40 del presente Código.
-En caso que no se presentara ninguna papeleta, el Tribunal Electoral convocará inmediatamente después del último día hábil del mes de agosto, a nuevas elecciones, dando un plazo de quince días naturales a partir de la fecha de la publicación de la convocatoria, para proceder a la inscripción de papeletas.
-Cuando la papeleta sea denegada por el Tribunal Electoral no podrá hacerse uso de la documentación presentada ante el Tribunal en el período que venció el último día hábil del mes de agosto.

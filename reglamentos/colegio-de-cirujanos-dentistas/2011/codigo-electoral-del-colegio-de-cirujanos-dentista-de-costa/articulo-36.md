@@ -1,4 +1,0 @@
-Como puede proceder el elector al emitir su voto.
-Artículo 36.—El elector pasará al local secreto, y emitirá su voto marcando con una equis en el recuadro que corresponda al grupo de su preferencia.
-Luego doblará la papeleta en cuatro tantos de modo que las firmas de todos los miembros de la Junta (Presidente o Suplente de la Junta Receptora) y los Fiscales queden visibles. Mostrará a los miembros las firmas e introducirá inmediatamente la papeleta en la urna. En caso que el elector por alguna razón abra la papeleta y muestre su voto, el mismo quedará nulo en forma inmediata.
-Se podrá hacer el voto público en caso de incapacidad física del votante (acompañado), pero deberá hacerse en presencia de los miembros de la Junta Receptora de votos y de los fiscales de cada grupo participante, siempre y cuando estén presentes.
