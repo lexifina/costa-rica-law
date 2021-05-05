@@ -13,3 +13,4 @@ Normas prácticas para la aplicación del Nuevo Código Procesal Civil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-14 | la propia norma |
+| 2 | 2021-05-05 | SINALEVI (sin norma nombrada) |

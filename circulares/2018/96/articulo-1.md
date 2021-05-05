@@ -1,16 +1,16 @@
 CIRCULAR No 96-2018
-Asunto: “Normas Prácticas para la Aplicación del Nuevo Código Procesal Civil”.
+Asunto: "Normas Prácticas para la Aplicación del Nuevo Código Procesal Civil".
 A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS,
 ABOGADOS Y PÚBLICO EN GENERAL
 SE LES HACE SABER QUE:
-La Corte Plena en sesión No. 38-18 celebrada el 13 de agosto de 2018, artículo XII, dispuso aprobar la reglamentación que se denomina “Normas Prácticas Para la Aplicación del Nuevo Código Procesal Civil”, mismas que literalmente dicen:
+La Corte Plena en sesión No. 38-18 celebrada el 13 de agosto de 2018, artículo XII, dispuso aprobar la reglamentación que se denomina "Normas Prácticas Para la Aplicación del Nuevo Código Procesal Civil", mismas que literalmente dicen:
 NORMAS PRÁCTICAS PARA LA APLICACIÓN DEL
 NUEVO CÓDIGO PROCESAL CIVIL.
-“Estas normas prácticas constituirán una guía en relación con aspectos administrativos, funcionales y organizativos de la jurisdicción civil, para facilitar la aplicación del nuevo Código Procesal Civil, ley N°9342.
+"Estas normas prácticas constituirán una guía en relación con aspectos administrativos, funcionales y organizativos de la jurisdicción civil, para facilitar la aplicación del nuevo Código Procesal Civil, ley N°9342.
 Se sustentan en la base jurídica, orgánica y sistemática dada por las siguientes disposiciones:
-• El Código Procesal Civil ley N°9342 que entrará en vigencia el 8 de octubre del 2018.
-• En especial el Título V de esa nueva legislación, denominado “Disposiciones Finales”, que comprende el régimen transitorio y los artículos 183, 184 y 185.
-• Las potestades atribuidas a la Corte Suprema de Justicia para la especialización, organización y funcionamiento de los tribunales, conforme a los artículos 3 y 59 de la Ley Orgánica Poder Judicial y 711 aún vigente de la ley N° 7130 Código Procesal Civil de 1989.
+. El Código Procesal Civil ley N°9342 que entrará en vigencia el 8 de octubre del 2018.
+. En especial el Título V de esa nueva legislación, denominado "Disposiciones Finales", que comprende el régimen transitorio y los artículos 183, 184 y 185.
+. Las potestades atribuidas a la Corte Suprema de Justicia para la especialización, organización y funcionamiento de los tribunales, conforme a los artículos 3 y 59 de la Ley Orgánica Poder Judicial y 711 aún vigente de la ley N° 7130 Código Procesal Civil de 1989.
 Sobre el capítulo I: Trasiego de expedientes a la entrada en vigencia del nuevo código procesal civil.
 La reforma procesal civil crea una nueva estructura orgánica jurisdiccional que cambia en buena medida la vigente. Lo anterior conlleva la obligación de redistribuir todos los expedientes judiciales existentes al 8 de octubre de 2018, en las nuevas oficinas según las competencias definidas por ley. El capítulo II detalla la forma de hacerlo y especifica las competencias de cada una de las nuevas oficinas judiciales. .
 Sobre el Capítulo II: Normas prácticas para la aplicación del nuevo código en la etapa de transición.
@@ -26,15 +26,15 @@ Sobre el Capítulo V: Normas prácticas para las audiencias orales y sentencias.
 La inserción sistemática de la oralidad y demás principios del nuevo código, son factores que determinan una reglamentación funcional de la preparación, dirección, asistencia, desarrollo, participación y respaldo de las audiencias orales, de tal forma que se logre un estándar de calidad.
 Se debe propiciar un ambiente judicial controlado y seguro para que las personas usuarias, litigantes y juzgadoras, concentren sus esfuerzos en los temas que conoce la jurisdicción civil, con criterios inclusivos y de accesibilidad para todos, independientemente de su condición.
 A la vez, es indispensable prever y resguardar que la información generada en una audiencia oral se respalde de manera ágil, fidedigna y eficiente.
-En cuanto a las sentencias, la dualidad de posibilidades para su emisión –oral o escrita-, motiva el dictado de normas prácticas para uniformar su aplicación con los principios informadores del nuevo sistema procesal.
+En cuanto a las sentencias, la dualidad de posibilidades para su emisión -oral o escrita-, motiva el dictado de normas prácticas para uniformar su aplicación con los principios informadores del nuevo sistema procesal.
 Sobre el Capítulo VI: Otras normas prácticas.
 Sin perjuicio de normas prácticas que se puedan incorporar a futuro, este reglamento regula los siguientes temas:
-• La atención especializada de personas en condiciones de vulnerabilidad.
-• Los lineamientos de priorización de gestiones sobre medidas cautelares, tutelares e instrumentos de ejecución.
-• El trámite de una solicitud de demanda improponible.
-•La tramitación de gestiones que pretendan postergar el inicio de una actividad procesal.
-•Las previsiones posibles para asegurar la inmediación en la práctica de la prueba.
-•La práctica de la prueba pericial anticipada.
+. La atención especializada de personas en condiciones de vulnerabilidad.
+. Los lineamientos de priorización de gestiones sobre medidas cautelares, tutelares e instrumentos de ejecución.
+. El trámite de una solicitud de demanda improponible.
+.La tramitación de gestiones que pretendan postergar el inicio de una actividad procesal.
+.Las previsiones posibles para asegurar la inmediación en la práctica de la prueba.
+.La práctica de la prueba pericial anticipada.
 CAPÍTULO I
 TRASIEGO DE EXPEDIENTES A LA ENTRADA EN VIGENCIA DEL NUEVO CÓDIGO PROCESAL CIVIL.
 Artículo 1. Radicación de procesos anteriores.
@@ -72,6 +72,6 @@ Los nuevos Tribunales Colegiados Civiles de Primera Instancia, asumirán la comp
 1.4.2. Medidas cautelares, actos preparatorios y pruebas anticipadas, accesorios a los procesos ordinarios y abreviados de mayor cuantía o de cuantía inestimable.
 1.5. Tribunal de Apelación Civil.
 Las apelaciones admitidas y las apelaciones por inadmisión pendientes, en cualquier tipo de proceso, que estuviesen radicadas en Juzgado Civil de Mayor Cuantía o en Tribunal Superior Civil; serán asumidas por los nuevos Tribunales Colegiados de Apelación Civil, según la competencia territorial que se les asigne.
-1.6. Sala Primera: La Sala Primera de la Corte Suprema de Justicia, continuará conociendo los asuntos que tenga pendientes de resolución (casación, revisión, recursos de apelación y nulidad en arbitrajes, conflictos de competencia, cooperación internacional y exequátur.
+1.6. Sala Primera: (Mediante resolución de la Sala Constitucional N° 009089 del 5 de mayo de 2021, se anuló este numeral.)
 1.7. Sala Segunda.
 La Sala Segunda de la Corte Suprema de Justicia, continuará conociendo los asuntos que tenga pendientes de resolución (casación, revisión y conflictos de competencia).
