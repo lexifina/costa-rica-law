@@ -1,0 +1,1 @@
+Artículo 4º-Trámite. La solicitud de minuto de silencio por homenaje póstumo o remisión de condolencias deberá ser motivada y podrá ser incluida en el orden del día por las regidurías propietarias, sindicaturas y alcaldía y se clasificará bajo el apartado de Mociones de las Regidurías y Sindicaturas o Iniciativas de la Alcaldía, según corresponda.

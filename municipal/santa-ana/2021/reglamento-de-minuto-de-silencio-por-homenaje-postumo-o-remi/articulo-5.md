@@ -1,0 +1,1 @@
+Artículo 5º-Tipo de moción. En casos de imprevisibilidad o urgencia, la solicitud de minuto de silencio por homenaje póstumo o remisión de condolencias podrá ser tramitada como moción de orden durante la misma celebración de sesiones ordinarias o extraordinarias.

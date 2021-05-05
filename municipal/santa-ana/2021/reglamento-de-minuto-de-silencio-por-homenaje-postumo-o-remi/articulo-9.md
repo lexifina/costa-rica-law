@@ -1,0 +1,1 @@
+Artículo 9º-Normas supletorias. En todo lo no previsto regirán las disposiciones del Reglamento interior de orden, dirección y debates del Concejo Municipal de Santa Ana y sus reformas, Código Municipal Ley N ° 7794 y sus reformas y la Ley General de Administración Pública Ley N ° 6227 y sus reformas.

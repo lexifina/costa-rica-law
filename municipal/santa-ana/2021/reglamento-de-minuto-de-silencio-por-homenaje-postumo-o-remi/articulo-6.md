@@ -1,0 +1,2 @@
+Artículo 6º-Aprobación. La aprobación de minuto de silencio por homenaje póstumo o remisión de condolencias requerirá la votación de mayoría simple de los miembros presentes en la sesión.
+Una vez aprobada la moción, la solicitud de minuto de silencio por homenaje póstumo o remisión de condolencias podrá ser realizada en la misma sesión o ulterior, siempre y cuando el Concejo Municipal considere oportuno su postergación.
