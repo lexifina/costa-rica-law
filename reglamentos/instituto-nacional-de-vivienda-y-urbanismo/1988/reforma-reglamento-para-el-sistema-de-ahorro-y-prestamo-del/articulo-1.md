@@ -1,4 +1,0 @@
-INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
-Por acuerdo tomado por la Junta Directiva de este Instituto, en artículo XII, inciso 1) de la sesión N° 3869, celebrada el 7 de noviembre del año en curso se acuerda:
-'Reformar en lo conducente el Reglamento de Ahorro y Prestamos en sus artículos 12 y 19 y el Reglamento de Prestamos Hipotecarios en sus artículos 12, 13, 15 y 17, a efecto de que en autorizaciones para sustituir garantías, liberación de gravámenes con menos de un año de constituidas, concesión de créditos en grado preferente, novaciones de deudor, posposición de créditos a grado inferior, autorización para gravar (enajenar o arrendar) inmuebles dados en garantía, en todos los casos en que se indica debe haber autorización de la Junta Directiva, esta autorización se sustituye por la del presidente ejecutivo.
-San José, 17 de noviembre de 1988.—
