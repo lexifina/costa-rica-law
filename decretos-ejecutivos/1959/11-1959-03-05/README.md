@@ -14,3 +14,4 @@ Reforma Reglamento de Prestamos para Reparaciones y Mejoras, Reglamento para Adj
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1959-03-31 | la propia norma |
+| 2 | 2021-05-06 | Reglamento 6495 (2021-05-06) |
