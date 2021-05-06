@@ -1,0 +1,1 @@
+TRANSITORIO 1. Los titulares de los medicamentos que pudieran contener o contengan gluten en concentraciones superiores a 20 mg/Kg y que estén registrados a la entrada en vigencia del presente reglamento, contarán con un plazo de doce meses para implementar las disposiciones aquí establecidas.

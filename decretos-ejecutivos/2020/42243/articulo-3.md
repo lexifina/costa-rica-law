@@ -1,0 +1,3 @@
+Artículo 3.- Método para el análisis de gluten en medicamentos.
+3.1. Para la determinación de la cantidad de gluten, ya sea el que esté presente en forma de trazas o se encuentre en el medicamento por utilizar materias primas que son fuente de gluten, deberá utilizarse un método cuyo límite de detección sea igual o inferior a 10 mg/kg y que sea adecuado en términos de sensibilidad y especificidad.
+3.2. El método utilizado para la determinación debe validarse cumpliendo lo establecido en el Reglamento Técnico Centroamericano 11.03.39:06 Productos Farmacéuticos. Reglamento de Validación de Métodos Analíticos para la Evaluación de la Calidad de los Medicamentos y debe calibrarse en relación con material de referencia certificado de existir.
