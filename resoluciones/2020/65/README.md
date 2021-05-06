@@ -15,3 +15,4 @@ Reforma Manual Institucional de Clases del Instituto Nacional de Aprendizaje (IN
 | --- | --- | --- |
 | 1 | 2020-07-21 | la propia norma |
 | 2 | 2020-11-19 | Resolución 98 (2020-11-19) |
+| 3 | 2021-05-06 | Resolución 4 (2021-05-06) |
