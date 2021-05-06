@@ -16,3 +16,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | 1 | 2010-06-15 | la propia norma |
 | 2 | 2017-07-21 | Resolución 10 (2017-07-21) |
 | 3 | 2020-09-24 | Resolución 11 (2020-09-24) |
+| 4 | 2021-05-06 | Resolución 4 (2021-05-06) |
