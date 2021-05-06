@@ -1,4 +1,5 @@
-ARTICULO 48 SANCION DE SUSPENSION POR EL RESTO DE LA EDICION. Las siguientes faltas cometidas por los atletas, cuerpos técnicos, Comités Cantonales y colaboradores serán sancionadas:
+ARTICULO 48 SANCION DE SUSPENSION POR EL RESTO DE LA EDICION
+Las siguientes faltas cometidas por los atletas, cuerpos técnicos, Comités Cantonales y colaboradores serán sancionadas:
 48.1 Agresión de palabra o con gestos, intentos de agresión física a otros atletas, cuerpos técnicos, comités cantonales, colaboradores, participantes, árbitros, oficiales, organizadores, personal acreditado, miembros de los órganos de Juegos Deportivos Nacionales, dentro o fuera de la villa.
 48.2 No identificarse positiva y fehacientemente con documentos oficiales ante requerimiento hecho por las autoridades administrativas en los centros de hospedaje.
 48.3 Fumar dentro de las instalaciones de la villa.

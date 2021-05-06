@@ -1,4 +1,5 @@
-ARTICULO 41. SANCIÓN DE SUSPENSION POR EL RESTO DE LA EDICIÓN Y TRES EDICIONES MÁS. Será sancionado un atleta, cuerpo técnico, Comité Cantonal y colaborador con suspensión por el resto de la edición y las siguientes tres ediciones el que incurriere en alguna de las siguientes faltas:
+ARTICULO 41. SANCIÓN DE SUSPENSION POR EL RESTO DE LA EDICIÓN Y TRES EDICIONES MÁS
+Será sancionado un atleta, cuerpo técnico, Comité Cantonal de Deporte y Recreación de Deporte y Recreación y colaborador con suspensión por el resto de la edición y las siguientes tres ediciones el que incurriere en alguna de las siguientes faltas:
 En todos los casos, excepto el 41.7, además de la sanción al atleta, se sanciona por igual al entrenador.
 41.1 Alteración de documentos con datos falsos.
 41.2 Falsificación de documentos públicos y privados
@@ -8,4 +9,4 @@ En todos los casos, excepto el 41.7, además de la sanción al atleta, se sancio
 41.6 Suplantación física de atletas haciéndose pasar por otra persona.
 41.7 Agresión física y material a otros atletas, cuerpos técnicos, equipos, colaboradores, árbitros, oficiales, personal acreditado, miembros de los órganos de los Juegos Deportivos Nacionales antes, durante o después de la competencia, o fuera de ella.
 41.8 Que se demuestre que ha ejercido acoso de manera física o verbalmente a cualquier otro participante de los Juegos Deportivos Nacionales.
-(Así adicionado en sesión N° 1070 del 6 de diciembre del 2018)
+41.9 Incumplimiento, en todos sus alcances, de los protocolos sanitarios para el desarrollo de las actividades deportivas aprobados por el Ministerio de Salud en atención a la emergencia nacional por la pandemia producto de la Covid 19.

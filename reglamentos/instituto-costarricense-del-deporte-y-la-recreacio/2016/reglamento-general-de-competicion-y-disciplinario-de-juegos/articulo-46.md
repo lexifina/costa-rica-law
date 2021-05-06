@@ -1,4 +1,5 @@
-ARTICULO 46 DEBERES Y PROHIBICIONES. Durante la estadía en las villas deportivas los atletas, cuerpos técnicos, Comités Cantonales y colaboradores autorizados para utilizar el mismo deberán cumplir con los siguientes deberes y prohibiciones:
+ARTICULO 46 DEBERES Y PROHIBICIONES
+Durante la estadía en las villas deportivas los atletas, cuerpos técnicos, Comités Cantonales y colaboradores autorizados para utilizar el mismo deberán cumplir con los siguientes deberes y prohibiciones:
 46.1 Para el ingreso a la villa los participantes deben mostrar su identificación la cual debe consignar que está hospedado en dicha villa y verificado por el control establecido para tal fin.
 46.2 Dentro de la villa, deberán portar siempre las identificaciones a fin de tener acceso a los diferentes servicios que le brinda la organización.
 46.3 Mantener una conducta honorable y de respeto hacia todas las personas con las que se relacione en las villas.

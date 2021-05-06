@@ -1,4 +1,5 @@
-ARTICULO 2. OBJETIVOS ESPECÍFICOS. Son objetivos específicos del programa:
+ARTICULO 2. OBJETIVOS ESPECÍFICOS
+Son objetivos específicos del programa:
 2.1 Promover la formación deportiva y participación de los jóvenes en el deporte competitivo.
 2.2 Ofrecer a los Comités Cantonales de Deporte y Recreación un modelo de programa deportivo para el desarrollo de sus comunidades.
 2.3 Ofrecer a las Federaciones y Asociaciones Deportivas Nacionales un programa deportivo que les permita ampliar su cobertura en el territorio costarricense y la base para sus niveles superiores de competición y selecciones nacionales.
