@@ -1,1 +1,0 @@
-Artículo 6—Medidas formales de control. El Auditor Interno tiene la responsabilidad de estar alerta ante cualquier circunstancia o hecho, y establecer las medidas formales para controlar y administrar situaciones de impedimento que puedan menoscabar o poner en duda la independencia y objetividad de la Auditoria Interna institucional.

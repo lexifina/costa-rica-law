@@ -1,3 +1,0 @@
-CAPÍTULO III
-Ubicación y estructura organizativa
-Artículo 10.—Ubicación. La ubicación de la Auditoría Interna en la estructura organizativa debe corresponder a la de un órgano de mayor rango, dependiendo del Jerarca, conforme las facultades de que dispone legal, reglamentaria y técnicamente, esa ubicación debe permitirle suficiente libertad para realizar una fiscalización objetiva e independiente a su Jerarca y demás órganos que componen la institución. La Auditoría Interna es parte integral y vital del sistema de control interno de la Municipalidad de Paraíso, siendo uno de sus componentes orgánicos y tendrá como función principal la comprobación del cumplimiento, la suficiencia y validez de dicho sistema.

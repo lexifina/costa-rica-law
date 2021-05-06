@@ -1,2 +1,0 @@
-Artículo 46.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Por unanimidad en firme y con carácter de definitivamente aprobado se acuerda: se aprueba el Informe de la Comisión de Gobierno y Administración donde se recomienda aprobar el Reglamento de Organización y funciones de la Auditoría Interna con las Modificaciones realizadas, se remita a la Contraloría General de la República.
