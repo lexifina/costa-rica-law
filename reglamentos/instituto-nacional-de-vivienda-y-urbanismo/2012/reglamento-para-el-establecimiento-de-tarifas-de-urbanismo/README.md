@@ -15,3 +15,4 @@ Reglamento para el Establecimiento de Tarifas de Urbanismo
 | --- | --- | --- |
 | 1 | 2012-11-15 | la propia norma |
 | 2 | 2019-11-14 | Reglamento 6415 (2019-11-14) |
+| 3 | 2021-05-06 | Reglamento 6495 (2021-05-06) |
