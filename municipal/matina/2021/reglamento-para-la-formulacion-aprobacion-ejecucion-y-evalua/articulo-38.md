@@ -1,0 +1,2 @@
+ARTÍCULO 38.-
+El Plan-Presupuesto Ordinario deberá remitirse a más tardar el 30 de setiembre de cada año y los extraordinarios dentro de los quince días siguientes a su aprobación y en el período del 1° de enero al último día hábil del mes de setiembre del año que rige el presupuesto y en este último mes únicamente podrá presentarse un documento presupuestario. Ambos términos serán improrrogables.

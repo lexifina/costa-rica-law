@@ -1,0 +1,2 @@
+ARTÍCULO 60.-
+Proveeduría remitirá a la Alcaldía y Gerencia Municipal cada trimestre durante los ocho días hábiles del mes siguiente, un informe de las contrataciones realizadas y su estado, con indicación de los principales problemas presentados en los procesos de contratación.

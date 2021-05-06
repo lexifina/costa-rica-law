@@ -1,0 +1,2 @@
+ARTÍCULO 49.-
+Las unidades municipales no están autorizadas para utilizar a su discreción los saldos de las sub partidas de los recursos que se les asignaron. Posterior al logro de las metas establecidas u objeto del gasto (adquisición de bienes o servicios), para utilizar los saldos deberán realizar una nueva programación y solicitar autorización a la Alcaldía Municipal, o al Concejo Municipal por medio de una Modificación Presupuestaria, según la competencia de cada uno conforme al Reglamento sobre Modificaciones Presupuestarias de la Municipalidad de Matina.

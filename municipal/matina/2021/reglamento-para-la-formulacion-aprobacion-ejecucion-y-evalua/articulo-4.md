@@ -1,0 +1,2 @@
+ARTÍCULO 4.-
+El Plan-Presupuesto deberá obedecer a una gestión inclusiva de todas las personas usuarias de los servicios que brinda la Municipalidad, por lo tanto, no podrá incorporar ningún elemento que propicie algún tipo de exclusión por motivo de género, grupo étnico, origen, edad, discapacidad física o mental, política, creencia religiosa, o de cualquier otra índole.

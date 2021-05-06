@@ -1,0 +1,2 @@
+ARTÍCULO 41.-
+Si el Plan-Presupuesto Ordinario fuere improbado por la Contraloría General de la República, o no fuere presentado oportunamente, regirá para el período siguiente, el presupuesto del año anterior excepto los egresos que, por su carácter, solo tengan eficacia en el año referido.

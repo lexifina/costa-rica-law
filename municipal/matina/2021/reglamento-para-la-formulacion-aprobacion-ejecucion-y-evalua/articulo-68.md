@@ -1,0 +1,2 @@
+ARTÍCULO 68.-
+La Municipalidad de Matina por medio de la Alcaldía Municipal, conforme la disponibilidad de recursos, considerará realizar la contratación anual de una auditoría externa, sobre la información consignada en la Liquidación Presupuestaria, esto con el propósito de obtener una opinión objetiva sobre el nivel de observancia de las políticas y metodologías internas establecidas, así como con respecto al cumplimiento de la normativa técnica y jurídica aplicable y sobre la razonabilidad del resultado informado.
