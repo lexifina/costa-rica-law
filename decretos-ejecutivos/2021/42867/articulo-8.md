@@ -1,0 +1,3 @@
+Sección II
+Sustitución de las Unidades Ejecutoras
+Artículo 8º-Sustitución de las Unidades Ejecutoras. La Junta Directiva de la CNE, previo análisis de los eventuales riesgos podrá de manera unilateral y de acuerdo al interés público, sustituir en cualquier momento a la Unidad Ejecutora que haya sido nombrada, en caso de comprobarse que exista incumplimiento de sus obligaciones, incapacidad administrativa o técnica surgida posterior a su nombramiento. Para ello, la nueva Unidad Ejecutora deberá suscribir una carta de compromiso previo al inicio de sus funciones y reunir los requisitos señalados en este Reglamento para todas las Unidades Ejecutoras.

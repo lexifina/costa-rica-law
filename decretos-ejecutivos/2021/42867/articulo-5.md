@@ -1,0 +1,6 @@
+CAPÍTULO III
+SOBRE LAS UNIDADES EJECUTORAS Y LA FISCALIZACIÓN
+Sección I
+Evaluación y Nombramiento de las Unidades Ejecutoras
+Artículo 5º- Estudio técnico de evaluación del desempeño. La UGPR elaborará un estudio técnico de evaluación del desempeño de las UE con el objeto de determinar su capacidad técnica y administrativa para la ejecución del proyecto. El estudio técnico de evaluación del desempeño de la UE, valorará el cumplimiento de los aspectos señalados en el artículo 6 de este Reglamento, también deberá considerar la forma en que esa Unidad Ejecutora ha ejercido su rol, mínimo en los últimos cinco proyectos de reconstrucción. Los criterios de evaluación del desempeño de las UE serán definidos por la UGPR, mediante el Manual de Procedimientos. En caso de que tenga menos de cinco proyectos ejecutados, se evaluarán los que tenga y de no tener ninguno, deberá ser autorizada expresamente por la Junta Directiva con base en las competencias específicas de la entidad respecto del proyecto a ejecutar..
+El estudio deberá contar con la firma del funcionario que lo elabora y el visto bueno del jefe, ambos de la UGPR, donde recomienden la Unidad Ejecutora para el proyecto con la indicación explicita de las calidades y el funcionario (a) de la UE que se designe para la supervisión de las obras a desarrollar.

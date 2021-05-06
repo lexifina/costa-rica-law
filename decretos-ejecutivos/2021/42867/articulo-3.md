@@ -1,0 +1,8 @@
+CAPÍTULO II
+DEL PLAN DE INVERSIÓN
+Sección Única
+Plan de Inversión
+Artículo 3°-Plan de Inversión. Es un documento de proyecto a nivel de prefactibilidad mediante el cual la Institución Pública justifica la necesidad del proyecto y la inversión, que de previo a haberse reportado un daño en una comunidad en el Plan General de la Emergencia y que éste deba intervenirse para rehabilitar o reconstruir infraestructura. El Plan de Inversión ofrece una descripción del evento, así mismo, deberá estimar los costos de las obras a desarrollar, haciendo un análisis de impacto, plazo probable de duración de las obras, componente de gestión de riesgos que incorpore el enfoque multi amenaza y la resiliencia como elemento para no reproducir la vulnerabilidad, nombramiento del funcionario responsable de la supervisión de las obras, según los lineamientos estipulados por UGPR de la CNE.
+El Plan de Inversión deberá contener además los aspectos técnicos necesarios para la formulación eventual de los términos de referencia para la contratación administrativa que deberá generarse con el fin de desarrollar el proyecto.
+La CNE podrá contratar la elaboración de los planes de inversión y los estudios preliminares por el régimen de excepción, así como el cumplimiento de las funciones de una Unidad Ejecutora, de así requerirlo, ante la ausencia de una entidad pública competente o demostrarse la incapacidad técnica u operativa correspondiente.
+Los proyectos que se ejecuten mediante un Plan de Inversión deberán cumplir el nexo de causalidad contemplado en el Plan General de la Emergencia y seguirán el formato establecido por la UGPR mediante una guía debidamente publicada en el Diario Oficial La Gaceta.

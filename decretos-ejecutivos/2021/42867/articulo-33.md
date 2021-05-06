@@ -1,0 +1,6 @@
+Sección III
+Órdenes de Modificación
+Artículo 33.-Órdenes de modificación (OM): Cuando la UE requiera una orden de modificación para un determinado proyecto, deberá elaborar y gestionar ante la UGPR la solicitud de criterio de fiscalización mediante acto motivado con la recomendación.
+Las Ordenes de modificación serán aprobadas por el Presidente de la CNE, cuando la variación sea igual o menor a un veinticinco por ciento (25%) del monto originalmente adjudicado. Si se supera el porcentaje señalado, la aprobación deberá ser tramitada ante la Junta Directiva.
+La UGPR valorará el nexo causal y el fundamento técnico de la orden de modificación, para lo cual cuenta con tres días hábiles para emitir su criterio. De resultar procedente según la valoración técnica de la UGPR y si no alcanza el porcentaje respecto del monto adjudicado establecido como límite por la Junta Directiva para su conocimiento, se brindará el visto bueno y se remitirá al jerarca institucional para la aprobación definitiva. De contemplar la orden de modificación un porcentaje mayor al establecido deberá someterse a conocimiento de la Junta Directiva para su aprobación.
+La UGPR remitirá a la Unidad de Proveeduría Institucional la orden de modificación para su trámite, quien deberá requerir la ampliación de la garantía de cumplimiento y elaborar la orden de compra correspondiente.

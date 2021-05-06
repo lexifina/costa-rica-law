@@ -1,0 +1,4 @@
+Artículo 12.-Del Profesional Fiscalizador de la UGPR: El Fiscalizador de la UGPR será un profesional cuya especialidad sea atinente a la naturaleza del proyecto a ejecutarse.
+En cumplimiento de sus funciones deberá visitar el sitio de ejecución del proyecto al menos una vez por mes y dejar consignado en el medio oficial designado (bitácora, libro de actas, expediente administrativo, según el tipo de proyecto) cualquier observación o recomendación que estime pertinente de manera legible y específica.
+En caso de que no haya observaciones o recomendaciones que realizar, el fiscalizador asignado por la CNE deberá dejar constancia de ello, de su presencia en el sitio, con la indicación de la fecha, hora y firma.
+Todas las actuaciones del profesional fiscalizador de la UGPR deben quedar consignadas en el expediente administrativo que se levante para el proyecto.

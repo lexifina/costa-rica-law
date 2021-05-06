@@ -1,0 +1,14 @@
+Sección III
+Funciones de las Unidades Ejecutoras
+Artículo 9.-Funciones de las Unidades Ejecutoras: La Unidad Ejecutora será la responsable de atender los compromisos derivados de la ejecución, control y supervisión de las acciones que resulten necesarias para atender los compromisos definidos en el Plan de Inversión, el Cartel de la Licitación y los contratos derivados correspondientes. Sin perjuicio de las señaladas de forma adicional en el presente reglamento las Unidades Ejecutoras tendrán las siguientes funciones:
+a. Elaborar el Plan de Inversión garantizando la debida ejecución de los proyectos señalados en el Plan General de la Emergencia.
+b. En la elaboración y ejecución de los Planes de Inversión deberán atender lo establecido en el Modelo de Gestión de Riesgos según les sea indicado por la Unidad de Gestión de Procesos de Reconstrucción.
+c. Entregar los términos de referencia necesarios para la realización de los carteles de contratación de conformidad con los Planes de Inversión aprobados.
+d. Colaborar en el proceso de contratación administrativa emitiendo criterios sobre lo que se les consulte por parte de la UGPR.
+e. Nombrar una persona profesional responsable de la ejecución del Plan de Inversión, quien tendrá la responsabilidad de mantener una comunicación directa con la UGPR respecto de todas las particularidades de la ejecución del proyecto.
+f. Solicitar autorización a la UGPR para ejecutar las acciones necesarias para sustentar las situaciones imprevistas en la ejecución de los proyectos. En estos casos la UGPR deberá valorar si las acciones resultan atinentes e indispensables para el desarrollo del proyecto. Para emitir el criterio y aprobación o improbación de las modificaciones, la UGPR dispondrá de un plazo máximo de tres días hábiles, a partir de recibido de la orden de modificación o servicio según corresponda por parte de la Unidad Ejecutora.
+g. Realizar la supervisión adecuada del proyecto en todas sus etapas, manteniendo registros documentales de todas las actuaciones que se realicen en el proceso.
+h. Facilitar los trámites de fiscalización que realice la UGPR, así como los trámites administrativos necesarios para la ejecución de los proyectos aprobados.
+i. Los permisos o autorizaciones necesarios para la correcta ejecución del proyecto deben ser obtenidos por parte de la Unidad Ejecutora previo al inicio de la ejecución contractual, tales compromisos deben quedar documentados a efectos de dar el seguimiento correspondiente.
+j. En caso de que se adquieran otro tipo de compromisos en cualquier momento de la vida del proyecto, éstos deben quedar igualmente documentados para la correcta ejecución de éste.
+k. En caso de conflicto de criterios en cualquier etapa de ejecución del proyecto, el fiscalizador debe presentar el informe respectivo a la Dirección Ejecutiva, quien dará audiencia a la UE y recomendará las acciones pertinentes a la Presidencia de la CNE, quien resolverá, en definitiva.

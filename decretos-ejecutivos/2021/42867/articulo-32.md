@@ -1,0 +1,2 @@
+Artículo 32. - Control de calidad. Los planes de inversión deberán considerar dentro de sus costos y actividades el control de calidad y supervisión de los materiales utilizados en los proyectos. Los fondos para este tipo de contratación deben estar incluidos previamente en el plan de inversión del proyecto.
+Se considerará también control de calidad para efectos de la fiscalización, toda actividad ejecutada para dirigir a la legalidad, oportunidad y a las mejores prácticas de las normas técnicas.
