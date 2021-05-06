@@ -1,0 +1,2 @@
+Artículo 2. Adiciónese el Transitorio IV, al Reglamento a la Ley de Catastro Nacional, Decreto Ejecutivo N°34331-J del 29 de noviembre del 2007, para que se lea de la siguiente manera:
+TRANSITORIO IV Para los planos catastrados a los que se refiere el artículo 71, inciso d), inscritos con anterioridad a la entrada en vigencia de esta reforma, quedará de pleno derecho cancelada su inscripción al año de entrada en vigencia de esta reforma, para lo cual la Subdirección Catastral ordenará la cancelación correspondiente, mediante los procedimientos técnicos de que disponga.
