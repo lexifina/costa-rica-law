@@ -1,0 +1,3 @@
+CAPÍTULO V
+Seguimiento de Denuncias y sus Resultados
+Artículo 20.-Seguimiento. Cuando la Auditoría Interna efectué el traslado de la denuncia conforme lo normado en el artículo 16 del presente Reglamento, o cuando elabore una relación de hechos o una denuncia penal, y sean remitidos a la autoridad competente, el deber del auditor se limitará a verificar que el destinatario haya recibido efectivamente el documento de remisión, sin que esto le impida el ejercicio de sus potestades de monitorear el estado de las acciones adoptadas por la instancia competente.

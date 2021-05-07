@@ -1,0 +1,6 @@
+Artículo 11.-Requisitos esenciales de la denuncia. Las denuncias serán atendidas en el tanto aporten elementos suficientes y se encuentren apoyadas con medios probatorios idóneos que permitan iniciar la investigación. Para tal efecto, deberán reunir los siguientes requisitos:
+a. Nombre completo del denunciante, número de cédula o documento de identificación y señalamiento de medio para atender notificaciones, si así lo requiere. Salvo que se trate de una denuncia anónima.
+b. Descripción de los hechos u omisiones en que se funde la denuncia, los cuales deberán ser expuestos de forma clara, precisa y circunstanciada, brindando el detalle suficiente que permita realizar la investigación, incluir fecha y lugar en que ocurrieron los hechos.
+c. La identificación de los posibles responsables, o que al menos se aporten elementos que permitan individualizarlos.
+d. Las pruebas y/o elementos probatorios pertinentes, tanto aportadas como las sugeridas; así como la indicación del nombre, calidades, lugar y medio en que se pueda ubicar a testigos, en caso de ofrecerse prueba testimonial.
+Será deseable que el denunciante señale si el hecho ha sido previamente denunciado o si tiene conocimiento de que otra instancia administrativa o judicial, se encuentre investigando los mismos hechos. Esta información podrá ser consultada por la Auditoría Interna al denunciante.
