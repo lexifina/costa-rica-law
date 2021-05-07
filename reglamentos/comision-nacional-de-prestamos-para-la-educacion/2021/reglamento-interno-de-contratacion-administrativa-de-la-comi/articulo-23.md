@@ -1,0 +1,6 @@
+Artículo 23.-De la competencia para dictar actos administrativos. Los responsables de emitir y aprobar actos administrativos en la gestión de contratación administrativa serán los que se detallan a continuación:
+[imagen]
+Los actos de insubsistencia, revocatoria y apelación al acto final, solicitudes de adición a recursos interpuestos, rescisión o resolución de contrato, imposición de sanciones administrativas y patrimoniales (en coordinación con la Asesoría Legal y cualquier otro que se requiera) que puedan presentarse, serán aprobados por la Jefatura de la Sección Administrativa.
+Las prórrogas al contrato previstas en carteles y solicitadas por la Unidad Solicitante, serán aprobadas por la Jefatura de la Sección Administrativa.
+La atención a audiencias o solicitudes de información emitidas por la Contraloría General de la República serán atendidas por la Jefatura de la Sección Administrativa, quién contará con el apoyo del Asesor Legal y las unidades técnicas relacionadas para dar respuesta a las solicitudes.
+En lo no dispuesto en este reglamento respecto al proceso entre revisión de ofertas y ejecución contractual y cierre definitivo del proceso de contratación para acciones propiamente operativas, será ejecutado y autorizado por la Jefatura de la Sección Administrativa.

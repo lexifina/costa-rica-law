@@ -1,0 +1,1 @@
+Artículo 14.-De los casos en que no se elaboran carteles. No se confeccionará carteles para los siguientes casos específicos: pagos por servicios públicos, pago de membrecías, modificación por concepto de ampliación o disminución del objeto contractual, o por contrato adicional, según normativa vigente.
