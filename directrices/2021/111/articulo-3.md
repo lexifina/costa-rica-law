@@ -1,0 +1,1 @@
+Artículo 3º-Evaluación y seguimiento. El Coordinador Político de la Región Pacifico Central deberá informar por escrito y de manera bimestral, a partir de la vigencia de esta instrucción, a la Presidencia de la República sobre el seguimiento y los avances de las acciones prioritarias de la matriz anexa a la presente Directriz.
