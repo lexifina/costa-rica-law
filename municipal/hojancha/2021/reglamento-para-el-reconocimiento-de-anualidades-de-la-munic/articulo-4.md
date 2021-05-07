@@ -1,0 +1,1 @@
+Artículo 4º-El departamento de Recursos Humanos Municipal debe realizar las debidas comprobaciones en las diferentes Dependencias Estatales y dará visto bueno en caso de proceder el pago, mediante pronunciamiento en un plazo de 15 días hábiles incluyendo el cálculo del importe por reconocer y la fecha a partir de la cual se hace el reconocimiento.

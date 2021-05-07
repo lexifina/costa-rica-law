@@ -1,0 +1,1 @@
+Artículo 5º-La Alcaldía Municipal, en el plazo de 10 días hábiles aprobará el importe a reconocer y a la vez autorizará al Departamento de Presupuesto Municipal a incluir las sumas correspondientes dentro del presupuesto municipal.

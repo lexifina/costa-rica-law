@@ -1,0 +1,1 @@
+Artículo 6º-Las solicitudes aprobadas se tendrán válidas para efectos del reconocimiento económico desde la fecha en que la Alcaldía Municipal haya efectuado su pronunciamiento positivo, por lo que una vez presupuestadas deberá hacerse retroactivo su pago a partir de la fecha de ingreso del funcionario a la Municipalidad.
