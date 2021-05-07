@@ -1,0 +1,1 @@
+Artículo 11.-Violaciones del código de ética de terceros en relación con el proveedor. El incumplimiento de este Código y / o de las leyes y regulaciones aplicables puede resultar en la terminación de la relación como proveedores de Correos de Costa Rica y, según corresponda, la remisión del asunto a las autoridades correspondientes.

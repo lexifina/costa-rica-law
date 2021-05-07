@@ -1,0 +1,2 @@
+Artículo 2º-Acceso y permanencia en las instalaciones de Correos de Costa Rica. Todo proveedor debe respetar los controles de acceso, identificación, seguridad y cualquier otra restricción que se considere pertinente para su permanencia en las instalaciones de Correos de Costa Rica. Además, es requerido comportarse, expresarse y dirigirse con respeto y decoro durante su estancia dentro de la empresa.
+Se espera que el personal del proveedor que requiera permanecer en las instalaciones de Correos no se presente bajo el efecto de bebidas alcohólicas o drogas ilícitas.

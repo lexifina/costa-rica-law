@@ -1,0 +1,1 @@
+Artículo 6º-Trabajo Infantil. Correos de Costa Rica bajo ninguna circunstancia acepta el trabajo infantil por lo que se espera que en la relación comercial con sus proveedores estos nunca irrespeten la edad mínima definida por la legislación nacional para el empleo de su personal.

@@ -1,0 +1,1 @@
+Artículo 9º-Acatamiento de medidas de salud pública. Se espera que toda persona que requiera ingresar a las instalaciones de la empresa coopere con las medidas establecidas por esta, o por el Gobierno de la República destinadas a fomentar la salud pública.

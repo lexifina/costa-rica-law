@@ -1,0 +1,1 @@
+Artículo 4º-Actos de Corrupción. Correos de Costa Rica condena la corrupción en todas las instancias, así como la oferta de ventajas indebidas de cualquier especie. Todo proveedor debe prevenir la ocurrencia de comportamientos ilegales, combatiendo la corrupción, el fraude y los conflictos de interés.

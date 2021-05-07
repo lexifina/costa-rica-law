@@ -1,0 +1,1 @@
+Artículo 3º-Regalos y otros beneficios. Todo proveedor debe abstenerse de ofrecer regalos, hospitalidad, donaciones y beneficios similares, en los que su oferta o el suministro de estos sean o razonablemente puedan ser percibidos como sobornos.

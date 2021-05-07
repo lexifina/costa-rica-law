@@ -1,0 +1,1 @@
+Artículo 10.-Cumplimiento contractual. En el caso de los contratistas se espera mantener una relación contractual basada en los principios éticos y morales, así como la ejecución de labores con total transparencia dirigidas al cumplimiento del objeto de la relación contractual con Correos de Costa Rica.
