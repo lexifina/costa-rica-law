@@ -1,0 +1,2 @@
+Artículo N° 2. Operaciones con Terceros
+En cualquier transacción en la cual Correos de Costa Rica ofrezca sus servicios e intervenga la participación de empresas de terceros y estos tengan acceso a cierta información personal de los clientes, necesaria para realizar sus funciones, se establecerán relaciones contractuales que provean seguridad razonable al cliente de que los terceros no utilizarán la información para propósitos no autorizados.

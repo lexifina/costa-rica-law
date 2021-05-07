@@ -1,0 +1,2 @@
+Artículo N° 3. Transparencia en la Gestión
+Correos de Costa Rica pone a disposición de los usuarios el acceso a la información relacionada con la administración de los recursos a través de su página web, como parte de su compromiso con la rendición de cuentas hacia la ciudadanía. Correos realiza un esfuerzo Correos realiza un esfuerzo razonable para incluir información exacta y actualizada en este sitio web.
