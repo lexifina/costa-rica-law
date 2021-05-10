@@ -1,0 +1,1 @@
+Artículo 10.-Vigencia. Este procedimiento rige a partir de su publicación y será aplicable a partir del martes 11 de mayo del 2021 y hasta el sábado 02 de octubre del 2021. O bien hasta que, por interés institucional, la Junta de Protección Social decida retirar del mercado esta promoción.

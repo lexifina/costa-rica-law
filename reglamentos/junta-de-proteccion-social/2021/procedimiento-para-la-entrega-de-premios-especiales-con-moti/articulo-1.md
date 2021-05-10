@@ -1,0 +1,4 @@
+JUNTA DE PROTECCIÓN SOCIAL
+PROCEDIMIENTO PARA LA ENTREGA DE PREMIOS ESPECIALES, CON MOTIVO EL BICENTENARIO DE INDEPENDENCIA DE COSTA RICA PARA EL AÑO 2021, QUE SERÁ REALIZADA
+MEDIANTE ACTIVACIÓN DE FRACCIONES DE SORTEOS DE LOTERÍA POPULAR Y LOTERÍA NACIONAL A TRAVÉS DEL APP JPS A SU ALCANCE
+Artículo 1º-Objeto. El objeto del presente procedimiento es regular los aspectos relacionados para el otorgamiento de premios especiales, con motivo del Bicentenario de Independencia de Costa Rica, aprobado por la Junta Directiva de la Junta de Protección Social según acuerdo JD-231, correspondiente al Capítulo VIII), artículo 13) de la sesión ordinaria 23-2021, celebrada el 19 de abril de 2021, mediante la activación de fracciones de sorteos de Lotería Popular y Lotería Nacional a través del App JPS A SU ALCANCE.

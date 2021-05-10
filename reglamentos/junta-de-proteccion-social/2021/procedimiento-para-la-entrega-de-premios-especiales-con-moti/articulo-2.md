@@ -1,0 +1,10 @@
+Artículo 2º-Definiciones. Para efectos del presente procedimiento, se utilizarán los siguientes conceptos:
+Premios especiales: Consisten en premios en dinero y vehículos eléctricos BYD modelo E5 GS 4x2 año 2021.
+Los vehículos cuentan con las siguientes características: vehículos eléctricos 100%, tipo sedán, transmisión automática, tracción 4x2, motor potencia máxima160kw, capacidad para 5 pasajeros, asiento del conductor con ajuste de altura, cinturones de seguridad para todos los pasajeros, cámara de retroceso, cámara frontal derecha, asientos de cuero, cierre de seguridad para niños, sistema de navegación GPS (según desarrollo del mapa en la región).
+El color del vehículo dependerá del inventario con que cuente la agencia en el momento de la entrega. El vehículo será entregado con los derechos de circulación cancelados y con la revisión técnica correspondiente.
+Se aclara que el caso de premios de vehículos consiste en la entrega de los mismos y no se entregará dinero en efectivo por su valor.
+Participantes: Toda persona física mayor de 18 años, nacional o extranjera, que active a través y únicamente por el App JPS A SU ALCANCE al menos 2 fracciones de Lotería Popular o Lotería Nacional de los sorteos ordinarios y extraordinarios a realizarse del martes 11 de mayo del 2021 y hasta el sorteo del martes 28 de setiembre del 2021.
+Tómbola Manual: tómbola que contiene los premios a otorgar en el segundo sorteo especial segmentado, de la cual se irán extrayendo los premios a otorgar para cada provincia y para el canal de distribución jpsenlinea.com.
+Tómbola electrónica: Tómbola generada con las activaciones que realizan las personas a través del App JPS A SU ALCANCE. Los ganadores se determinan de manera aleatoria a través de un sistema informático.
+Vendedor Autorizado de la Junta de Protección Social: Son los que se encuentren activos en los sistemas institucionales. (Estado activo, es el estado que indica que un vendedor puede retirar las loterías).
+Sorteo: Proceso de selección al azar de los favorecidos, el cual es debidamente fiscalizado por personal de la Junta de Protección Social y un juez contravencional.
