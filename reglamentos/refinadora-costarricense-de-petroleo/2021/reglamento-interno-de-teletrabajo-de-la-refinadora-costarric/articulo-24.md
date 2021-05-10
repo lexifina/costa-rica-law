@@ -1,0 +1,1 @@
+Artículo 24.-La persona teletrabajadora debe brindar información verídica y oportuna en los procesos de investigación, evaluación del desempeño y medición a los que deba someterse. En caso de comprobarse un incumplimiento, se procederá según lo establecido en el artículo 10 de este reglamento, siguiendo el debido proceso ante la Dirección Administrativa.

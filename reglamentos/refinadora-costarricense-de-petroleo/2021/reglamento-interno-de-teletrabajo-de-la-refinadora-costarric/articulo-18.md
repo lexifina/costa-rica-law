@@ -1,0 +1,1 @@
+Artículo 18.-A las personas teletrabajadoras les aplica lo referente a carrera administrativa y mantienen los derechos y obligaciones establecidos en la Convención Colectiva y demás normativa laboral vigente.

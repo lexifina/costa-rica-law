@@ -1,0 +1,5 @@
+Artículo 32.-La Dirección de Tecnología Informática y Comunicación tendrá las siguientes funciones con relación al teletrabajo:
+a) Brindarle a la persona teletrabajadora, en primera instancia, asistencia técnica oportuna para la resolución de los problemas de infraestructura tecnológica de los equipos de RECOPE.
+b) Brindar soporte técnico a las herramientas de software y sistema operativo necesarios para realizar el teletrabajo. Se excluye cualquier solicitud de instalación, configuración o solución de problemas sobre paquetes de software que no sean requeridos para el teletrabajo, o para los cuales la empresa no posea licenciamiento.
+c) Verificar la existencia de los inventarios de hardware y software propiedad de RECOPE de forma remota. En caso de que se identifique alguna anomalía, se comunicará a la persona teletrabajadora y a la jefatura directa para que tome las medidas correspondientes.
+d) Instalar y dar mantenimiento oportuno a las herramientas tecnológicas y servicios requeridos para realizar las labores de teletrabajo, cuando sean propiedad de la empresa.

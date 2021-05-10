@@ -1,0 +1,1 @@
+Artículo 12.-RECOPE le brindará el soporte técnico y mantenimiento preventivo y correctivo a los sistemas informáticos y equipos aportados por la empresa para que la persona teletrabajadora desarrolle sus funciones.
