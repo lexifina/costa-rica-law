@@ -1,0 +1,8 @@
+Artículo 9º-Departamento de Desarrollo del Capital Humano. Como parte de las obligaciones de esta dependencia, le corresponde:
+a) Establecer los parámetros técnicos necesarios (incluidas las competencias) a partir de los lineamientos generales que emita el Ministerio de Planificación Nacional y Política Económica, en adelante MIDEPLAN, y el Manual Descriptivo de Puestos de RECOPE, para la evaluación del desempeño, así como dirigir, orientar y asesorar a las jefaturas y Presidencia en el proceso que conlleva la evaluación del desempeño.
+b) Establecer los mecanismos necesarios para definir e implementar los estímulos a la productividad de las personas trabajadoras de RECOPE.
+c) Validar las metas y objetivos de cuarto y quinto nivel acordados entre la jefatura inmediata y la persona trabajadora, a los que se refiere el artículo 11 incisos d) y e) del Decreto Ejecutivo 42087-MP-PLAN, velando porque se cumplan las pautas establecidas para la definición de los mismos.
+d) Brindar la asesoría y capacitación respecto a la metodología y aplicación de la herramienta y todos los aspectos que engloban el proceso de evaluación del desempeño.
+e) Proporcionar a las jefaturas los instrumentos tecnológicos necesarios para el desarrollo adecuado del proceso de evaluación del desempeño.
+f) Dar seguimiento y evaluar los resultados del Plan de Seguimiento y Mejora, acordado entre la jefatura y la persona trabajadora, que responda a la atención de las necesidades detectadas mediante los resultados obtenidos.
+g) Realizar un análisis de los resultados de la evaluación del desempeño y brindar en primera instancia seguimiento a los casos con calificaciones insatisfactorias, que necesiten mejorar según la escala de resultados establecidos.

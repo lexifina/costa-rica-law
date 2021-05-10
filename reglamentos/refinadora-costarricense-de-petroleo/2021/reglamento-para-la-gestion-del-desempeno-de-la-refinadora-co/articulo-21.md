@@ -1,0 +1,1 @@
+Artículo 21.-Disconformidad con la Evaluación. Si la persona trabajadora se niega a aceptar la evaluación realizada por la jefatura, mediante nota le hará saber cuál es la disconformidad y buscarán un consenso; en caso de no llegar a un acuerdo, esta disconformidad será presentada al superior inmediato de la jefatura para que resuelva.
