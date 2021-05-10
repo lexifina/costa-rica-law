@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de la caja recaudadora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-07-11 | la propia norma |
+| 2 | 2021-05-10 | Reglamento municipal 51 (2021-05-10) |
