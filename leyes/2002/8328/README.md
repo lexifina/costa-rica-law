@@ -1,6 +1,6 @@
 # Autorización a la Municipalidad de Oreamuno para que cambie el uso específico de una finca a varios usos de fin público
 
-Ley N° 8328 del 2002-11-12. SINALEVI, ficha 49704: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=49704&param2=86265&param3=1>.
+Ley N° 8328 del 2002-11-12. SINALEVI, ficha 49704: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=49704&param2=125443&param3=1>.
 
 Publicada en La Gaceta N° 233 del 2002-12-03.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 2002-12-03 | Ley 8328 | 2002-11-12 |
 | 2 de 3 | 2011-09-27 | Ley 8964 | 2011-07-05 |
+| 3 de 3 | 2021-05-10 | Ley 9965 | 2021-03-24 |
