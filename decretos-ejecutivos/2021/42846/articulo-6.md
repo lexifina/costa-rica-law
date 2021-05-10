@@ -1,0 +1,1 @@
+Artículo 6º-Formularios. Los formularios autorizados por la Dirección de Agua para los trámites que se incluyen en el presente Reglamento, se encuentran disponibles en el portal electrónico oficial de la institución, entiéndase http://www.da.go.cr.

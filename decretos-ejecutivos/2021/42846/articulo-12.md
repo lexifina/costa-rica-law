@@ -1,0 +1,1 @@
+Artículo 12.-Utilización de SIPECO. Las condiciones para el uso de la plataforma se encuentran definidas en los Manuales de Usuario y sus actualizaciones disponibles en el centro de documentación de la Dirección de Agua y en la sección de ayuda del portal electrónico: http://www.da.go.cr.

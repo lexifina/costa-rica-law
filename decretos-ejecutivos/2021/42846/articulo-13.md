@@ -1,0 +1,1 @@
+Artículo 13.-Autenticación sin firma digital. Para todos aquellos solicitantes o usuarios que no posean firma digital, podrán registrarse en SIPECO. Para solicitar gestiones ante la Institución, deberán incorporar en la plataforma digital los documentos con la firma autenticada por un notario o bien, acudir a las oficinas de la Dirección de Agua para realizar la entrega física.

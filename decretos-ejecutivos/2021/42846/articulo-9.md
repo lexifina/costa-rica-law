@@ -1,0 +1,1 @@
+Artículo 9º-Derechos de autor. El contenido, organización, gráficos, compilación y otros asuntos relacionados con SIPECO, están protegidos bajo la aplicación de derechos de autor, marcas registradas y cualquier otro derecho de propiedad.

@@ -1,0 +1,1 @@
+Artículo 19.-Correo electrónico. Al momento de tramitar una solicitud, los usuarios deben designar una dirección de correo electrónico para recibir notificaciones; el que podrá ser modificado en cualquier momento a través de SIPECO.

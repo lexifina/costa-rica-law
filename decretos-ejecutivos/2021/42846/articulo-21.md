@@ -1,0 +1,1 @@
+Artículo 21.-Idioma. Toda la documentación que se adjunte a los formularios electrónicos disponibles en la plataforma digital, debe ser presentada en idioma español. Los documentos oficiales escritos en idioma distinto, deberán presentarse con su respectiva traducción oficial.
