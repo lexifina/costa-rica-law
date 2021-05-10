@@ -1,0 +1,4 @@
+ARTÍCULO 2°.- Reforma al artículo 5° del Decreto Ejecutivo número 42295-MOPT-S del 11 de abril de 2020. Refórmese el artículo 5° del Decreto Ejecutivo número 42295-MOPT-S del 11 de abril de 2020, a efectos de que se gregue el inciso s) y en adelante se consigne lo siguiente:
+"ARTÍCULO 5°.- Excepciones a la medida de restricción vehicular diurna. Se exceptúa de la restricción vehicular establecida en el artículo 3° de este Decreto Ejecutivo, a los siguientes casos:
+(.)
+s) Los vehículos de las personas que requieran trasladarse estrictamente con ocasión de una reservación para asistir a cines, autoeventos, teatros, conciertos o presentaciones públicas, habilitados por el Ministerio de Salud y en lugares con permiso sanitario de funcionamiento para este tipo de actividades, debidamente demostrado con el comprobante de compra o reserva correspondiente."
