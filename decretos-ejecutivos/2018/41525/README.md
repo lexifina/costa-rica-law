@@ -14,3 +14,4 @@ Reglamento para el trámite digital de registros y autorizaciones del Ministerio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-22 | la propia norma |
+| 2 | 2021-05-10 | Decreto Ejecutivo 43058 (2021-05-10) |
