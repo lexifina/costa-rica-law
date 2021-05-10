@@ -13,3 +13,4 @@ Se modifica el artículo LXXXI del Consejo Superior de la sesión N° 56-2020 9/
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-26 | la propia norma |
+| 2 | 2021-05-10 | Circular 92 (2021-05-10) |
