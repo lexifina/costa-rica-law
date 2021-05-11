@@ -1,2 +1,2 @@
-Artículo 2°. -Se prorroga, hasta el 04 de julio del 2021, la fecha de vigencia de los registros del "Sistema de Registro del Ministerio de Agricultura y Ganadería, para certificar la condición de pequeño y mediano productor agropecuario (PYMPA)" que hayan vencido o venzan dentro del período comprendido entre el 01 de febrero del 2020 hasta el 04 de julio del 2021.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42773 del 4 de diciembre del 2020)
+Artículo 2º-Se prorroga, hasta el 04 de enero del 2022, la fecha de vigencia de los registros del "Sistema de Registro del Ministerio de Agricultura y Ganadería, para certificar la condición de pequeño y mediano productor agropecuario (PYMPA)" que hayan vencido o venzan dentro del período comprendido entre el 01 de febrero del 2020 hasta el 04 de enero del 2022.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43013 del 11 de mayo del 2021)
