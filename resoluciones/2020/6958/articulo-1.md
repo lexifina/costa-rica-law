@@ -53,7 +53,7 @@ B. Todos los sitios de reunión pública, que cuenten con su respectivo permiso 
 (Así reformada la disposición segunda anterior mediante resolución N° N° MS-DM-1700-2021 del 23 de febrero del 2021)
 TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura controlada con estricto cumplimiento de protocolos y medidas sanitarias para evitar la propagación del COVID-19, de los establecimientos que cuenten con permiso sanitario de funcionamiento que atienden al público, en un horario de lunes a domingo desde las 5:00 horas y hasta las 23:00 horas, respetando el cincuenta por ciento (50%) de su capacidad máxima de aforo. Se exceptúan de la restricción de horario y del cincuenta por ciento (50%) de su capacidad máxima de aforo las siguientes actividades:
 (Así reformado la disposición tercera anterior mediante resolución N° MS-DM-1700-2021 del 23 de febrero del 2021)
-(Nota de Sinalevi: Mediante resolución N° MS-DM-2768-2021 del 23 de abril del 2021 se acuerda reformar de forma temporal la franja horaria para que el horario de los establecimientos que atienden al público y cuenten con permiso sanitario de funcionamiento, a partir del 27 de abril y hasta el 16 de mayo de 2021, inclusive, sea desde las 5:00 horas y hasta las 21:00 horas)
+(Nota de Sinalevi: Mediante resolución N° MS-DM-2975-2021 del 11 de mayo del 2021, se acuerdo reformar de forma temporal la franja horaria para que el horario de los establecimientos que atienden al público y cuenten con permiso sanitario de funcionamiento, a partir del 13 de mayo y hasta el 31 de mayo del 2021, inclusive, sea desde las 5:00 horas y hasta las 21:00 horas)
 1. Servicios a domicilio.
 2. Alquiler de vehículos "rent a car".
 3. Alquiler de bicicletas.
@@ -68,6 +68,7 @@ TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura c
 11. Encomiendas.
 12. Actividades de alojamiento para estancia corta (moteles).
 13. Hoteles, cabinas o establecimientos de alojamiento. Las piscinas, restaurantes y gimnasios de estos establecimientos sí deben respetar el cincuenta por ciento (50%) de su capacidad máxima de aforo.
+(Nota de Sinalevi: Mediante resolución N° MS-DM-2975-2021 del 11 de mayo del 2021, se acordó reformar de forma temporal a partir del 13 de mayo y hasta el 31 de mayo del 2021, inclusive, el aforo en los hoteles de más de 100 habitaciones, con una capacidad máxima de ocupación al 75%. Las piscinas, restaurantes y gimnasios (zonas comunes) dentro de los hoteles, se mantienen al 50% de su capacidad. En esta capacidad máxima no se incluye el personal del hotel.)
 14. La venta de loterías y productos de azar debidamente autorizados por la Junta de Protección Social.
 15. Instituciones públicas en general y municipios.
 16. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
@@ -77,12 +78,12 @@ CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de
 2. Modalidad de retiro de comida en establecimiento para llevar.
 3. Cines y teatros con utilización obligatoria de mascarilla, y adicional la careta de forma opcional, con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con boletería o reserva electrónica.
 4. Auto eventos.
-5. Actividades, organizaciones o congregaciones en sitios de adoración, con utilización obligatoria de mascarilla, con una capacidad de ocupación máxima de hasta 300 personas en los lugares que su espacio físico lo permita, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales.
-(Así reformado la disposición quinta anterior mediante resolución N° MS-DM-8741-2020 del 29 de octubre del 2020)
-6. Salas de eventos para actividades empresariales o académicas de máximo 300 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 300 personas no se incluye el personal de logística del evento.
-(Así reformado punto anterior mediante resolución N° MS-DM-1497-2020 del 9 de febrero del 2021)
-7. Salas de eventos para actividades de máximo 75 personas (con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto). En las 75 personas no se incluye el personal de logística del evento.
-(Así reformado punto anterior mediante resolución N° MS-DM-1497-2020 del 9 de febrero del 2021)
+5. Actividades, organizaciones o congregaciones en sitios de adoración, con utilización obligatoria de mascarilla, con una capacidad de ocupación máxima de hasta 200 personas, en los lugares que su espacio físico lo permita, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales. En las 200 personas no se incluye el personal de logística del evento, que debe ser el mínimo requerido.
+(Así reformado la disposición anterior mediante resolución N° MS-DM-2975-2021 del 11 de mayo del 2021. Dicha reforma es de forma temporal a partir del 13 de mayo y hasta el 31 de mayo del 2021, inclusive)
+6. Salas de eventos para actividades empresariales o académicas, con utilización obligatoria de mascarilla, con una capacidad de ocupación máxima de hasta 150 personas, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto. En las 150 personas no se incluye el personal de logística del evento, que debe ser el mínimo requerido.
+(Así reformado la disposición anterior mediante resolución N° MS-DM-2975-2021 del 11 de mayo del 2021. Dicha reforma es de forma temporal a partir del 13 de mayo y hasta el 31 de mayo del 2021, inclusive)
+7. Salas de eventos para actividades de máximo 30 personas, con utilización obligatoria de mascarilla, con medidas de separación de asientos de mínimo 1.8 metros, respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto. En las 30 personas no se incluye el personal de logística del evento, que debe ser el mínimo requerido.
+(Así reformado la disposición anterior mediante resolución N° MS-DM-2975-2021 del 11 de mayo del 2021. Dicha reforma es de forma temporal a partir del 13 de mayo y hasta el 31 de mayo del 2021, inclusive)
 8. Turismo aventura, con utilización obligatoria de mascarilla y adicional la careta de forma opcional, mientras se coloca y se retira el equipo de seguridad para realizar la actividad, y respetando las burbujas sociales.
 9. Playas y lagos, con previa aprobación de protocolos por el ICT con cada municipio.
 (Así reformado el inciso anterior por resolución N° MS-DM-8527-2020 del 14 de octubre del 2020)

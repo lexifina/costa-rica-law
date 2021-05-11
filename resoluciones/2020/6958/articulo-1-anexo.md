@@ -4,7 +4,7 @@ a 2 CON Plan Cantonal de Prevención por COVID-19, debidamente avalado e
 implementado por el Comité Municipal de Emergencias (CME).
 A. Podrán operar de lunes a domingo sin restricción horaria:
 1. Servicios a domicilio.
-2. Alquiler de vehículos “rent a car”.
+2. Alquiler de vehículos "rent a car".
 3. Alquiler de bicicletas.
 4. Suministro y abastecimiento de combustibles.
 5. Servicios comunitarios de recolección de residuos.
@@ -43,7 +43,7 @@ C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad 
 16. Salones de estéticas para mascotas (Grooming).
 17. Plataformas de atención al cliente de instituciones públicas y municipales.
 18. Servicios bancarios y financieros públicos o privados, en entidades financieras o no financieras.
-19. Actividades de centros que atienden llamadas de clientes utilizando operadores humanos como: “call center”.
+19. Actividades de centros que atienden llamadas de clientes utilizando operadores humanos como: "call center".
 20. Funerarias y/o capillas de velación.
 21. Parques temáticos de animales, parques botánicos o parques marinos que no impliquen el acceso a playas ni balnearios.
 (Así modificada la numeración del inciso anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021, que lo traspasó del antiguo inciso 22 al 21, toda vez que se eliminó el inciso 21 original)
@@ -93,6 +93,7 @@ E. Podrán operar de lunes a domingo de las 5:00 horas a las 23:00 horas, con un
 (Así adicionado el punto anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
 15. Bares.
 (Así adicionado el punto anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
+(Nota de Sinalevi: Mediante resolución N° MS-DM-2975-2021 del 11 de mayo del 2021, se acordó reformar de forma temporal a partir del 13 de mayo y hasta el 31 de mayo del 2021, inclusive, el aforo en los bares con una capacidad máxima de ocupación del 25%. En esta capacidad máxima no se incluye el personal del bar.)
 16. Juegos para niños ("plays"), parques de patinaje, parques de jumping, inflables y similares.
 (Así adicionado el punto 16) anterior mediante resolución N° MS-DM-1700-2021 del 23 de febrero del 2021)
 17. Balnearios.

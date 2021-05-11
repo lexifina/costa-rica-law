@@ -25,6 +25,7 @@ laboratorios, consultorios, servicios de radiodiagnósticos, servicios de emerge
 16. Todos aquellos otros establecimientos con permiso sanitario de funcionamiento que no brinden atención al público presencial.
 17. Parques Nacionales según la lista que publique el MINAE.
 (Así adicionado el punto anterior mediante resolución N° MS-DM-1315-2021 del 26 de enero del 2021)
+(Nota de Sinalevi: Mediante resolución N° MS-DM-2975-2021 del 11 de mayo del 2021, se acordó reformar de forma temporal a partir del 13 de mayo y hasta el 31 de mayo del 2021, inclusive, el aforo en los Parques Nacionales según la lista que publique el MINAE, con una capacidad máxima de ocupación del 50%. Salvo el Parque Nacional Volcán Poás, que mantiene el aforo permitido al 100%. En esta capacidad máxima no se incluye el personal del parque.)
 B. Podrán operar de lunes a domingo sin restricción horaria, sin público y a puerta cerrada, con el mínimo personal requerido:
 1. Actividades a puerta cerrada de teatros (incluyendo el Teatro Nacional y el Teatro Popular Melico Salazar), iglesias, municipalidades con sus sesiones de concejo municipal, consejos de distrito, reunión de comisiones y demás reuniones municipales, así como cualquier otro espacio cerrado para el desarrollo de transmisiones virtuales, con estricto cumplimiento de los protocolos preventivos y lineamientos emitidos por el Ministerio de Salud, y con el personal mínimo requerido.
 C. Podrán operar de lunes a domingo sin restricción horaria con una capacidad de ocupación al cincuenta por ciento (50%):
@@ -96,6 +97,7 @@ E. Podrán operar de lunes a domingo de las 5:00 horas a las 23:00 horas, con un
 (Así adicionado el inciso anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
 15. Bares.
 (Así adicionado el inciso anterior mediante resolución N° MS-DM-7344-2020 del 6 de octubre del 2020)
+(Nota de Sinalevi: Mediante resolución N° MS-DM-2975-2021 del 11 de mayo del 2021, se acordó reformar de forma temporal a partir del 13 de mayo y hasta el 31 de mayo del 2021, inclusive, el aforo de los bares para que operen con una capacidad máxima de ocupación del 25%. En esta capacidad máxima no se incluye el personal del bar.)
 16. Juegos para niños ("plays"), parques de patinaje, parques de jumping, inflables y similares.
 (Así adicionado el punto 16) anterior mediante resolución N° MS-DM-1700-2021 del 23 de febrero del 2021)
 17. Balnearios.
