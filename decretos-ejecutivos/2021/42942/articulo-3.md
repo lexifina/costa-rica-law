@@ -1,0 +1,1 @@
+Artículo 3°-Deróguense los artículos 10 y 14 del Decreto Ejecutivo N° 18329-GP-S del 11 de julio de 1988, publicado en La Gaceta N° 140 del 8 de agosto de 1988 "Reglamento sobre Barberías, Peluquerías, Salones de Belleza y Afines".
