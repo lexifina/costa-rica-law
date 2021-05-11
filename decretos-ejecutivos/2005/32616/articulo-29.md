@@ -1,1 +1,0 @@
-Artículo 29.—El personal de unidades de "Soporte Básico", A. P. A, y A. E. M. cooperará y actuará en forma diligente y respetuosa, acatando las órdenes que les sean giradas por el personal de las unidades de Soporte Avanzado o los médicos de Servicios Extra-hospitalarios; debiendo cumplirlas en forma diligente y respetuosa.

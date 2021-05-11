@@ -1,1 +1,0 @@
-Artículo 30.—En caso de una emergencia, en la que no se requiera de unidades de Soporte Avanzado, el personal correspondiente de las unidades de Soporte Básico se apersonarán al lugar de los hechos, valorarán al paciente y le aplicarán los primeros auxilios básicos, para luego trasladarlo al centro hospitalario más cercano.

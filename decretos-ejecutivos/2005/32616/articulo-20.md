@@ -1,1 +1,0 @@
-Artículo 20.—Los vehículos utilizados en estas actividades, deben estar registrados ante el Ministerio, según sea su uso como: Ambulancias A, B, o C, VPI, Rescate y el vehículo complementario la Carreta.

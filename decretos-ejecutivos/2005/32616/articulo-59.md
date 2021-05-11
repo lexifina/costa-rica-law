@@ -1,2 +1,0 @@
-Artículo 59.—Las empresas autorizadas para prestar servicios de atención extra-hospitalaria deberán contar con su propio Manual de Procedimientos en el cual se incluya en detalle lo correspondiente al :
-Manejo de ropa contaminada, tratamiento y eliminación de desechos biológicos y materiales contaminados; eliminación de equipo médico que sea de condición desechable, así como de aseo y limpieza interna de la unidad.

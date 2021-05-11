@@ -1,5 +1,0 @@
-CAPÍTULO III
-Del personal extrahospitalario
-Artículo 21.—La atención de los pacientes por parte del personal extra-hospitalario (Médicos, Técnicos y Asistentes de Emergencias Médicas), deberá regirse por las normas del Código de Ética y Moral Médica del Colegio de Médicos y Cirujanos de Costa Rica, y no podrán alegar desconocimiento alguno, así como por los protocolos o normas de atención establecidas por la Jefatura Médica de cada servicio, según los niveles académicos de su personal y los protocolos de atención, los que deberán ser aprobados por el Ministerio y revisados con una periodicidad máxima de 2 (dos) años, enviando copia obligatoriamente al Colegio de Médicos y Cirujanos de Costa Rica y al Ministerio de Salud.
-Estos protocolos son una guía de atención que no sustituye el contacto médico obligatorio.
-Los técnicos usarán los protocolos de atención extra hospitalaria con la debida orientación del profesional a cargo del servicio, por lo que la atención del usuario siempre deberá estar dirigida por el médico directa o indirectamente.

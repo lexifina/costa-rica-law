@@ -1,1 +1,0 @@
-Artículo 60.—Las organizaciones autorizadas para prestar servicios de atención extra-hospitalaria deberán contar con una póliza de riesgos profesionales que cubra a todo el personal operativo de la empresa, así como pólizas con cobertura total para los usuarios de estos servicios.

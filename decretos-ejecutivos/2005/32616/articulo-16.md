@@ -1,1 +1,0 @@
-Artículo 16.—El vehículo carreta-remolque de rescate, deberá ajustarse a lo dispuesto en la Ley de Tránsito en su artículo 31, inciso 5) y estar debidamente identificada con los logotipos de la organización a la que pertenece. No podrá ser acarreada o jalada por una ambulancia que transporta pacientes.

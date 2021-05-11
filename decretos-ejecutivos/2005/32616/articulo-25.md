@@ -1,1 +1,0 @@
-Artículo 25.—El personal A. P. A. y A. E. M. de atención extrahospitalaria deberá realizar una actualización teórico-práctico como mínimo cada dos años, impartida por el Colegio de Médicos y Cirujanos de Costa Rica o por instituciones que éste designe, para obtener un certificado de actualización, el cual será indispensable para continuar desempeñando sus labores.

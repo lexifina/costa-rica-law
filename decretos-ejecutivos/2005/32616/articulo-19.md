@@ -1,1 +1,0 @@
-Artículo 19.—El funcionamiento mecánico, de luces y de carrocería en general, de los vehículos contemplados en el presente reglamento, deberá ser evaluado conforme al sistema oficial existente en el territorio nacional.
