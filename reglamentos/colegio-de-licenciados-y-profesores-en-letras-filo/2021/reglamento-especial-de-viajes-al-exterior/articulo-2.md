@@ -1,0 +1,1 @@
+Artículo 2º. Para los efectos de este reglamento, se entenderá como viaje al exterior, el desplazamiento de un miembro(s) o funcionario(s) del CFIA, quien, con ocasión de sus funciones con el CFIA, deba viajar por vía terrestre, aérea o marítima fuera de la República de Costa Rica.

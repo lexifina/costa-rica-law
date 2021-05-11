@@ -1,0 +1,4 @@
+Artículo 6º. Para efecto de autorización de misiones al exterior se considerará el siguiente orden de prioridades:
+1. Misiones para satisfacer convocatorias a reuniones y sesiones de Directorios, así como a Congresos de Organismos a los cuales pertenece el Colegio Federado.
+2. Misiones para satisfacer convocatorias a sesiones o Congresos de Organismos Centroamericanos, Latinoamericanos o de tipo Mundial sobre las disciplinas correspondientes a los Colegios miembros, convocados por organismos reconocidos por el Colegio Federado y/o Colegios Miembros.
+3.Participación en seminarios internacionales de interés general en beneficio del país, en relación con el área de la ingeniería y la arquitectura, y de los miembros del Colegio Federado. Estos seminarios podrán ser temáticos, técnicos, de gobernanza u otros.

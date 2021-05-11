@@ -1,0 +1,1 @@
+Artículo 3º. Se considerará como misión oficial al exterior, a toda aquella delegación individual o grupal que asista a actos, actividades o reuniones a los que se convoque, invite o que el CFIA considere pertinente participar y que estén acordes con los fines y objetivos del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.

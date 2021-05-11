@@ -1,0 +1,1 @@
+Artículo 15º.-El CFIA podrá suscribir pólizas de seguros de viajes para cubrir los gastos que se generen en los casos de accidentes, lesiones, enfermedad o muerte del miembro o funcionario, incluyendo en este último caso los gastos derivados por el traslado del cuerpo hasta Costa Rica, siempre y cuando estos gastos no estén siendo cubiertos por algún organismo auspiciador.
