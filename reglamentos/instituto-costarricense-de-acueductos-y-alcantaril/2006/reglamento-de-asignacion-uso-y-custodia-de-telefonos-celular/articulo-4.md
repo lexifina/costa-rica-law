@@ -1,1 +1,0 @@
-Artículo 4º—La asignación del teléfono celular y/o radiolocalizador no genera ningún derecho, no se considerará parte del salario, ni como atribución o beneficio personal. En consecuencia la Gerencia podrá retirar tal asignación en cualquier momento en que se den los motivos señalados en el artículo 8 de este Reglamento.
