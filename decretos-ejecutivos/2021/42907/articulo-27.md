@@ -1,0 +1,1 @@
+Artículo 27.- El beneficio será por curso lectivo y será depositado mensualmente, quedará sujeto al cumplimiento de los requisitos establecidos en el artículo 6 y a la disponibilidad presupuestaria del PTE.

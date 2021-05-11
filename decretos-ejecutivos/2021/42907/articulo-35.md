@@ -1,0 +1,1 @@
+Artículo 35.- El monto máximo del subsidio para estudiantes en condición de discapacidad, será dispuesto en la Guía de Trámites Regulares y Discapacidad que actualizará anualmente el DTE. Para la definición del monto del subsidio se considerará el criterio técnico del DTE y la disponibilidad presupuestaria.

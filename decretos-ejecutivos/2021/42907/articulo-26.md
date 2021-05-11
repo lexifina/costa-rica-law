@@ -1,0 +1,1 @@
+Artículo 26.- La persona directora del centro educativo llevará un registro y control de las unidades contratadas por los encargados legales de los beneficiarios menores de edad o beneficiarios mayores de edad, que prestan el servicio en un subsidio. En cualquier momento la DPE, podrá requerir esta información.

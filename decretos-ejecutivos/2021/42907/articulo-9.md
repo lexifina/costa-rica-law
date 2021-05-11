@@ -1,0 +1,1 @@
+Artículo 9.- Todo trámite relativo a la modalidad de subsidios que sea aprobado por parte del DTE, rige a partir de la fecha de autorización, que será notificada al centro educativo por el medio oficial del MEP.

@@ -1,0 +1,3 @@
+Artículo 28.- En materia de control de beneficiarios y formas de pago del PTE, se establece:
+a) El medio de canalización del subsidio de transporte estudiantil para el estudiante beneficiario deberá ser mediante transferencia bancaria o cheque al transportista contratado bajo los supuestos establecidos en este Reglamento.
+b) Para el pago del beneficio debe existir una certificación mensual expedida por la persona directora del centro educativo hacia la Junta de Educación o Junta Administrativa donde deberá hacer constar que se mantienen matriculados de forma activa en el centro educativo la cantidad de beneficiarios de cada ruta subsidiada

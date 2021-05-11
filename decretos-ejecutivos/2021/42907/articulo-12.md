@@ -1,0 +1,1 @@
+Artículo 12.- Cuando se otorgue el beneficio por la modalidad de subsidio y el servicio que se utilice sea transporte público, la Junta de Educación o Junta Administrativa entregará directamente el monto del subsidio a cada uno de los beneficiarios, el cual será responsable de satisfacer sus necesidades de transporte al centro educativo.

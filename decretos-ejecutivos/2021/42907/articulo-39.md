@@ -1,0 +1,1 @@
+Artículo 39.- El incumplimiento por parte de la persona directora del centro educativo de las obligaciones consignadas en el presente reglamento puede generar responsabilidad disciplinaria de acuerdo con el debido proceso establecido para ello.

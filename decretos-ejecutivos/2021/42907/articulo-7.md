@@ -1,0 +1,1 @@
+Artículo 7.- Se valorarán casos excepcionales según la determinación que haga la DPE con el fin de garantizar el ingreso y la permanencia en el sistema educativo según condiciones de accesibilidad, seguridad, horarios, oferta educativa y distancia en kilómetros que se traslada el estudiante según el recorrido y el medio de transporte que utilizará.

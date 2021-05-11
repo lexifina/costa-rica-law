@@ -1,0 +1,1 @@
+Artículo 31.- La persona directora del centro educativo solicitará los subsidios para estudiantes con discapacidad, únicamente si el servicio de transporte de estudiantes que se brinda en una ruta subsidiada autorizada, no se adecúa a las necesidades específicas que requiere el estudiante según su condición.

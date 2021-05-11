@@ -1,0 +1,1 @@
+Artículo 32.- Para el otorgamiento de los subsidios para estudiantes con discapacidad el DTE deberá contar con un dictamen médico o epicrisis que determine la condición de discapacidad, validado por la Caja Costarricense de Seguro Social, también se puede recibir un dictamen médico de un centro privado o una certificación de discapacidad emitida por el CONAPDIS.

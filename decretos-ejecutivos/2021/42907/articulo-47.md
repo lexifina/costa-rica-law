@@ -1,0 +1,1 @@
+Artículo 47.- En la ejecución del PTE la Dirección Financiera deberá tramitar las planillas de transferencias gestionadas por el DTE por concepto de subsidio, de acuerdo con el calendario establecido para estos efectos.

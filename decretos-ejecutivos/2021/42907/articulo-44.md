@@ -1,0 +1,4 @@
+Artículo 44.- En la ejecución del PTE, la Dirección Regional de Educación correspondiente según la ubicación del centro educativo que brinda el servicio de transporte estudiantil, tendrá las siguientes obligaciones y atribuciones:
+a) Brindar el seguimiento a las disposiciones que formulen el Departamento de Supervisión y Control o el Departamento de Transporte Estudiantil en cuanto la ejecución del DTE.
+b) Validar los aspectos que indique el DTE para aprobar las diferentes gestiones de los centros educativos, en cuanto tramites referentes al programa de transporte estudiantil.
+c) Proponer al DTE cuando se le solicite, una lista de prioridades en cuanto a la revisión y aprobación de trámites de transporte estudiantil en los centros educativos de la Dirección Regional de Educación a su cargo.

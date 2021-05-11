@@ -1,0 +1,1 @@
+Artículo 33.- En caso de que la necesidad educativa sea cognitiva o intelectual y que el estudiante no disponga de un dictamen médico, la persona directora del centro educativo en el cual se encuentre matriculado deberá confeccionar un oficio explicando el tipo de necesidad educativa que requiere el estudiante y que el centro educativo le brinda.

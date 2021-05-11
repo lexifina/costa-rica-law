@@ -1,0 +1,1 @@
+Artículo 4.- El subsidio consiste en aquellas ayudas económicas que se brindan a los estudiantes beneficiarios del programa de transporte estudiantil por medio de transferencias mensuales que realiza el MEP a la Junta de Educación o Administrativa de la Institución Educativa, para que los estudiantes satisfagan las necesidades de transporte al centro educativo.

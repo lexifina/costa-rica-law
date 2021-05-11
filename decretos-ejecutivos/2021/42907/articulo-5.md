@@ -1,0 +1,1 @@
+Artículo 5.- El monto del subsidio otorgado a los estudiantes será establecido por mecanismos definidos por la DTE hasta tanto no se establezca un modelo oficial que regule las tarifas del servicio de transporte estudiantil por parte de la Autoridad Reguladora de los Servicios Públicos (en adelante ARESEP).

@@ -1,0 +1,1 @@
+Artículo 34.- Los centros educativos, Juntas de Educación y Juntas Administrativas deberán acatar los lineamientos emitidos por el Departamento de Transporte Estudiantil en materia de subsidios de transporte estudiantil para estudiantes en condición de discapacidad.

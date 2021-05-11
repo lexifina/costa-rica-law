@@ -1,0 +1,1 @@
+Artículo 29.- El subsidio que se autorice por la DPE para cubrir las necesidades de transporte al centro educativo de los estudiantes que se beneficien con la apertura de comedores en tiempo no lectivo se regirá por los lineamientos vigentes que definan las autoridades competentes y será girado por medio de un subsidio no ordinario.

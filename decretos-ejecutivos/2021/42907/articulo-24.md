@@ -1,0 +1,1 @@
+Artículo 24.- Cuando la persona directora del centro educativo tramite una solicitud de revisión en el monto del subsidio diario otorgado al beneficiario, el DTE realizará el estudio correspondiente, con la finalidad de valorar un ajuste ya sea a la alza o la baja, si corresponde, en tanto la disponibilidad presupuestaria o el modelo de regulación tarifaria vigente, lo permita.
