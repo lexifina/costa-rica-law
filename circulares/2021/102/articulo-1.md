@@ -1,0 +1,8 @@
+CIRCULAR N° 102-2021
+Asunto: Implementación y asignación de perfiles del nuevo módulo de registro y aprobación de cumplimientos y cancelaciones de penas en el Sistema de Administración y Control Electrónico de Juzgamientos (SACEJ) que administra el Registro Judicial.
+A TODOS LOS JUZGADOS DE EJECUCIÓN DE LA PENA
+DE TODO EL PAÍS Y ADMINISTRACIONES REGIONALES
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 29-2021 celebrada el 15 de abril de 2021, artículo XXXI, hace de conocimiento de todos los Juzgados de Ejecución de la Pena y Administraciones Regionales, que en ocasión a lo dispuesto por el Consejo Superior en sesión Nº 98-16 del 25 de octubre de 2016, artículo XXXVI, aprobó la eliminación de la etapa de revisión y aprobación de la información que realiza el personal del Registro Judicial en el Sistema de Administración y Control Electrónico de Juzgamientos (SACEJ), se comunica a los Juzgados de Ejecución de la Pena de todo el país que ya fueron debidamente capacitados por el Registro Judicial, que la implementación del nuevo módulo en producción que les permitirá registrar y aprobar los cumplimientos y cancelaciones de las penas directamente en el SACEJ, empezará a regir a partir del 1° de mayo de 2021.
+A la vez, se les hace saber a las Administraciones Regionales de todo el país, que en la implementación del nuevo módulo, deben habilitar en el Sistema de Seguridad PJ a los técnicos judiciales y jueces de los Juzgados de Ejecución de la Pena, los perfiles de "registrar anotaciones juzgados" y de "aprobar anotaciones juzgados", en respectivo orden.
+San José, 11 de mayo de 2021.
