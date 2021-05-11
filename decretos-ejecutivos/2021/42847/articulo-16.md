@@ -1,0 +1,439 @@
+CAPÍTULO II
+De las Subespecialidades Médicas
+Artículo 16. De las sub especialidades médicas reconocidas por el Colegio de Médicos y Cirujanos. El Colegio de Médicos y Cirujanos, reconoce oficialmente las siguientes Subespecialidades Médicas:
+16.1. Subespecialidades Médicas de Anatomía Patológica
+16.1.1. Citopatología.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Anatomía Patológica, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Citopatología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.1.2. Dermatopatología.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Anatomía Patológica, ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Dermatopatología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.1.3. Hematopatología.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Anatomía Patológica, ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Hematopatología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.1.4. Patología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Anatomía Patológica, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Patología Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.2. Subespecialidades Médicas de Anestesiología y Recuperación
+16.2.1. Anestesiología Cardiovascular y Torácica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Anestesiología y Recuperación, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Anestesiología Cardiovascular y Torácica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+Este programa de estudios debe contemplar y garantizar la adquisición de conocimientos teórico-prácticos en las áreas de anestesia para cirugía cardiaca, torácica y vascular mayor; recuperación postoperatoria de cirugía cardiaca, torácica y vascular mayor; medicina extracorpórea y ecocardiografía torácica y transesofágica.
+16.2.2. Anestesiología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Anestesiología y Recuperación, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Anestesiología Pediátrica, en un Hospital Pediátrico de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.2.3. Clínica y Terapia del Dolor.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Medicina del Dolor; Algología.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Anestesiología y Recuperación, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Clínica y Terapia del Dolor, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.2.4. Medicina del Sueño.
+Requisitos específicos:
+a. Estar debidamente inscrito ante el Colegio de Médicos y Cirujanos en la Especialidad Médica en Anestesiología y Recuperación.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo un (1) año en la Subespecialidad en Medicina del Sueño, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.3. Subespecialidades Médicas de Cardiología
+16.3.1. Cardiología Intervencionista y Hemodinamia.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cardiología, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Cardiología Intervencionista y Hemodinamia, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.3.2. Electrofisiología Cardiaca.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cardiología, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Electrofisiología Cardiaca, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.4. Subespecialidades Médicas de Cirugía de Tórax y Cardiovascular
+16.4.1. Cirugía Cardiovascular y Tórax Pediátrica.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Cardíaca Congénita; Cirugía Cardiotorácica Pediátrica; Cirugía Cardiovascular Pediátrica; Cirugía Cardiovascular Congénita; Cirugía de Malformaciones Cardíacas Congénitas.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cirugía de Tórax y Cardiovascular ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Cirugía Cardiovascular y Tórax Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.5. Subespecialidades Médicas de Cirugía General
+16.5.1. Cirugía en Mano.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía en Extremidad Superior y Mano; Cirugía en Mano, Muñeca y Nervios Periféricos.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cirugía General, ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Cirugía de Mano, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.5.2. Cirugía de Trauma.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Cirugía de Cuidado Agudo.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cirugía General ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año de la Subespecialidad en Cirugía de Trauma en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.5.3. Cirugía Gastroenterológica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cirugía General, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Especialidad de Cirugía Gastroenterológica, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.5.4. Coloproctología.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Cirugía de Colon y Recto.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cirugía General, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Especialidad en Coloproctología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.6. Subespecialidades Médicas de Cirugía Plástica, Reconstructiva y Estética.
+16.6.1. Cirugía en Mano.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía en Extremidad Superior y Mano; Cirugía en Mano, Muñeca y Nervios Periféricos.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cirugía Plástica Reconstructiva y Estética, ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Cirugía de Mano, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.7. Subespecialidades Médicas de Cirugía Pediátrica
+16.7.1. Cirugía Cardiovascular y Tórax Pediátrica.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Cardíaca Congénita; Cirugía Cardiotorácica Pediátrica; Cirugía Cardiovascular Pediátrica; Cirugía Cardiovascular Congénita; Cirugía de Malformaciones Cardíacas Congénitas.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cirugía Pediátrica ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Cirugía Cardiovascular y Tórax Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.7.2. Cirugía de Trauma.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Cirugía de Cuidado Agudo.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cirugía Pediátrica ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año de la Subespecialidad en Cirugía de Trauma en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.7.3. Oncología Quirúrgica Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cirugía Pediátrica, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Oncología Quirúrgica Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.8. Subespecialidades Médicas de Dermatología
+16.8.1. Cirugía Dermatológica.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Dermatología Quirúrgica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Dermatología ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Cirugía Dermatológica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.8.2. Dermatología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Dermatología ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Dermatología Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.8.3. Dermatopatología.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Dermatología, ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Dermatopatología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.9. Subespecialidades Médicas de Genética Clínica
+16.9.1. Genética Bioquímica Médica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Genética Clínica ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo un (1) año en la Subespecialidad de Genética Bioquímica Médica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+Este programa de estudios debe contemplar y garantizar como mínimo once (11) meses de aprendizaje con orientación clínica en Genética Bioquímica Médica y un (1) mes de entrenamiento en el diagnóstico de laboratorio en Genética Bioquímica Médica.
+16.10. Subespecialidades Médicas de Ginecología y Obstetricia
+16.10.1. Ginecología Endocrinológica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Ginecología y Obstetricia, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Ginecología Endocrinológica en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.10.2. Ginecología Oncológica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Ginecología y Obstetricia, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Subespecialidad en Ginecología Oncológica en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.10.3. Ginecología Urológica.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Urología Ginecológica; Uroginecología; Medicina Pélvica Femenina y Cirugía Reconstructiva.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Ginecología y Obstetricia ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Ginecología Urológica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.10.4. Medicina Materno Fetal.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Perinatología.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Ginecología y Obstetricia, ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo dos (2) años en la Subespecialidad de Medicina Materno Fetal, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.10.5. Medicina Reproductiva.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Biología de la Reproducción Humana; Endocrinología Reproductiva e Infertilidad; Endocrinología Reproductiva Ginecológica e Infertilidad.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Ginecología y Obstetricia, ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Medicina Reproductiva, en un Hospital de Tercer Nivel o Centro de Fertilización, perteneciente o adscrito a una Universidad. Este programa debe contemplar y garantizar como mínimo aspectos clínicos en las áreas de Andrología (endocrinología e infertilidad masculina), Endocrinología, Genética, Biología Reproductiva. Además, deberá contar con estudios complementarios en Cirugía Reproductiva, Ultrasonido y Consejería Psicológica.
+16.11. Subespecialidades Médicas de Medicina de Emergencias
+16.11.1. Medicina de Emergencias Pediátricas.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista Medicina de Emergencias, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Medicina de Emergencias Pediátricas, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.12. Subespecialidades Médicas de Medicina Familiar y Comunitaria
+16.12.1. Medicina del Adolescente.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Medicina en Adolescencia; Cuidado de la Salud Adolescente.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista Medicina Familiar y Comunitaria ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Medicina del Adolescente, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.12.2. Medicina del Sueño.
+Requisitos específicos:
+a. Estar debidamente inscrito ante el Colegio de Médicos y Cirujanos en la Especialidad Médica en Medicina Familiar y Comunitaria.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo un (1) año en la Subespecialidad en Medicina del Sueño, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.13. Subespecialidades Médicas de Medicina Interna
+16.13.1. Medicina del Sueño.
+Requisitos específicos:
+a. Estar debidamente inscrito ante el Colegio de Médicos y Cirujanos como Especialista en Medicina Interna.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo un (1) año en la Subespecialidad en Medicina del Sueño, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.14. Subespecialidades Médicas de Neumología
+16.14.1. Medicina del Sueño.
+Requisitos específicos:
+a. Estar debidamente inscrito ante el Colegio de Médicos y Cirujanos como Especialista en Neumología.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo un (1) año en la Subespecialidad en Medicina del Sueño, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.15. Subespecialidades Médicas de Neurocirugía
+16.15.1. Cirugía de Columna Vertebral.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Neurocirugía, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Cirugía de Columna Vertebral en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.15.2. Neurocirugía Pediátrica.
+Requisitos específicos:
+a) Estar debidamente inscrito como Especialista en Neurocirugía, en el Colegio de Médicos y Cirujanos.
+b) Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Neurocirugía Pediátrica en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.15.3. Neuro-Oncología.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Neurocirugía, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1)
+año en la Subespecialidad en Neuro-Oncología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.15.4. Neuroradiología Quirúrgica Endovascular.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Neurointervencional; Neuroradiología Intervencional y Terapéutica; Neuroradiología Intervencional y Vascular; Neuroradiología Diagnóstica e Intervencional; Neuroradiología Intervencional; Neuroradiología Endovascular.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Neurocirugía ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neuroradiología Quirúrgica Endovascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+Este programa de estudios debe contemplar y garantizar:
+i. Un curso de conocimientos básicos de radiología, que incluya física de la radiación, biología de la radiación, protección radiológica y farmacología de los materiales de contraste radiográfico.
+ii. Certificación de haber realizado e interpretado un mínimo de 50 neuroangiogramas diagnósticos bajo la supervisión de un médico capacitado (neuroradiólogo intervencionista, neurocirujano endovascular o neurólogo intervencionista con formación adecuada).
+iii. El uso de agujas, catéteres, guías y dispositivos angiográficos y de materiales.
+iv. El reconocimiento y manejo de complicaciones de los procedimientos angiográficos.
+v. La comprensión de los fundamentos de estudios no invasivos de imágenes neurovasculares pertinentes para la práctica de la neuroradiología endovascular quirúrgica, incluyendo CT/ CTA, MR/ MRA y la ecografía de las enfermedades neurovasculares.
+16.16. Subespecialidades Médicas de Neurología
+16.16.1. Medicina del Sueño.
+Requisitos específicos:
+a. Estar debidamente inscrito ante el Colegio de Médicos y Cirujanos como Especialista en Neurología.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo un (1) año en la Subespecialidad en Medicina del Sueño, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.16.2. Neurología Vascular.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Enfermedad Vascular Cerebral.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Neurología ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1)año en la Subespecialidad de Neurología Vascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+Este programa de estudios debe contemplar y garantizar como mínimo conocimientos en mecanismos fundamentales del accidente cerebrovascular y otros trastornos vasculares del Sistema Nervioso, incluyendo: manifestaciones clínicas, estrategias de diagnóstico, cuestiones epidemiológicas, caracterización etiopatogénico y estrategias de tratamiento.
+16.16.3. Neuroradiología Quirúrgica Endovascular.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Neurointervencional; Neuroradiología Intervencional y Terapéutica; Neuroradiología Intervencional y Vascular; Neuroradiología Diagnóstica e Intervencional; Neuroradiología; Neuroradiología Endovascular.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Neurología ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en un programa de estudios de posgrado (residencia médica) en la Subespecialidad de Neuroradiología Quirúrgica Endovascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+c. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en Neurología Vascular/Enfermedad Cerebro Vascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+Este programa de estudios debe contemplar y garantizar:
+I. Rotaciones en Cuidados Neurointensivos al menos de 3 meses de duración.
+II. Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) meses en Neurocirugía, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+III. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neuroradiología en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+Este programa de estudios debe contemplar y garantizar:
+i. Un curso de conocimientos básicos de radiología, que incluya física de la radiación, biología de la radiación, protección radiológica y farmacología de los materiales de contraste radiográfico.
+ii. Certificación de haber realizado e interpretado un mínimo de 50 neuroangiogramas diagnósticos bajo la supervisión de un médico capacitado (neuroradiólogo intervencionista, neurocirujano endovascular o neurólogo intervencionista con formación adecuada).
+iii. El uso de agujas, catéteres, guías y dispositivos angiográficos y de materiales.
+iv. El reconocimiento y manejo de complicaciones de los procedimientos angiográficos.
+v. La comprensión de los fundamentos de estudios no invasivos de imágenes neurovasculares pertinentes para la práctica de la neuroradiología endovascular quirúrgica, incluyendo CT/CTA, MR/MRA y la ecografía de las enfermedades neurovasculares.
+16.16.4. Neuropsiquiatría.
+Requisitos Específicos:
+a. Estar debidamente inscrito como Especialista en Neurología ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neuropsiquiatría, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.17. Subespecialidades Médicas de Oftalmología
+16.17.1. Cirugía Oculoplástica, Vía Lagrimal y Órbita.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Cirugía Plástica y Reconstructiva Oftalmológica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Cirugía Oculoplástica, Vía Lagrimal y Órbita, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.17.2. Glaucoma.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Glaucoma, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.17.3. Oftalmología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Oftalmología Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.17.4. Retina y Vítreo.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Retina y Vítreo, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.17.5. Uveítis.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Uveítis, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.18. Subespecialidades Médicas de Ortopedia y Traumatología
+16.18.1. Cirugía de Columna Vertebral.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Ortopedia y Traumatología, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Cirugía de Columna Vertebral en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad
+16.18.2. Cirugía en Mano.
+Se reconocen como sinónimo de esta Subespecialidad, los siguientes términos: Cirugía en Extremidad Superior y Mano; Cirugía en Mano, Muñeca y Nervios Periféricos.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Ortopedia y Traumatología, ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Cirugía de Mano, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.18.3. Medicina Deportiva Ortopédica.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Cirugía Artroscópica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Ortopedia y Traumatología, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Medicina Deportiva Ortopédica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.18.4. Ortopedia y Traumatología Pediátrica.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Ortopedia y Traumatología Infantil.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Ortopedia y Traumatología, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Ortopedia y Traumatología Pediátrica en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.19. Subespecialidades Médicas de Otorrinolaringología y Cirugía de Cabeza y Cuello
+16.19.1. Medicina del Sueño.
+Requisitos específicos:
+a. Estar debidamente inscrito ante el Colegio de Médicos y Cirujanos como especialista en Otorrinolaringología y Cirugía de Cabeza y Cuello.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo un (1) año en la Subespecialidad en Medicina del Sueño, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.19.2. Otorrinolaringología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Otorrinolaringología y Cirugía de Cabeza y Cuello, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Otorrinolaringología Pediátrica en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.20. Subespecialidades Médicas de Pediatría
+16.20.1. Adolescencia y Medicina del Desarrollo.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Adolescencia y Medicina del Desarrollo, en un Hospital Pediátrico de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.20.2. Cardiología Pediátrica.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Cardiología Infantil.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Cardiología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.3. Dermatología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Dermatología Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.20.4. Endocrinología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Endocrinología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.5. Gastroenterología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Gastroenterología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.6. Genética Infantil.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Genética Infantil, en un Hospital Pediátrico de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.20.7. Hematología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Hematología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.8. Infectología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Infectología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.9. Medicina Crítica Pediátrica.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cuidados Intensivos Pediátricos; Cuidado Crítico Pediátrico; Terapia Intensiva Pediátrica; Medicina Crítica y Cuidado Intensivo Pediátrico; Pediatría Intensivista; Medicina de Cuidado Crítico Pediátrico; Cuidados Intensivos en Pediatría.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Medicina Crítica Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.10. Medicina de Emergencias Pediátricas.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Medicina de Emergencias Pediátricas, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.11. Medicina del Adolescente.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Medicina en Adolescencia; Cuidado de la Salud Adolescente.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Medicina del Adolescente, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.20.12. Medicina del Sueño.
+Requisitos específicos:
+a. Estar debidamente inscrito ante el Colegio de Médicos y Cirujanos como Especialista en Pediatría.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo un (1) año en la Subespecialidad en Medicina del Sueño, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.20.13. Medicina Paliativa Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Medicina Paliativa Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.14. Nefrología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Nefrología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.15. Neonatología.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Neonatología, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.16. Neumología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Neumología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.17. Neurología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Neurología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.18. Oncología Médica Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Oncología Médica Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.19. Pediatría del Desarrollo.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Pediatría del Desarrollo, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.20.20. Radioterapia Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Oncología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+c. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Radioterapia Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.21. Subespecialidades Médicas de Psiquiatría
+16.21.1. Medicina del Sueño.
+Requisitos específicos:
+a. Estar debidamente inscrito ante el Colegio de Médicos y Cirujanos como Especialista en Psiquiatría.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo un (1) año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Medicina del Sueño, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.21.2. Neuropsiquiatría.
+Requisitos Específicos:
+a. Estar debidamente inscrito como Especialista en Psiquiatría ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neuropsiquiatría, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.21.3. Psiquiatría Comunitaria y Rehabilitación.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Psiquiatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Psiquiatría Comunitaria y Rehabilitación, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.21.4. Psiquiatría de Adicciones.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Psiquiatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Psiquiatría de Adicciones, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.21.5. Psiquiatría de Niños y Adolescentes.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Psiquiatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Psiquiatría de Niños y Adolescentes, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.21.6. Psiquiatría Forense.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Psiquiatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Psiquiatría Forense, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.21.7. Psiquiatría Geriátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Psiquiatría, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Psiquiatría Geriátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.22. Subespecialidades Médicas de Radiología e Imágenes Médicas
+16.22.1. Imágenes de Mamas.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Imágenes de Mamas, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.22.2. Neuroradiología.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Neuroradiología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.22.3. Neuroradiología Quirúrgica Endovascular.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Neurointervencional; Neuroradiología Intervencional y Terapéutica; Neuroradiología Intervencional y Vascular; Neuroradiología Diagnóstica e Intervencional; Neuroradiología Intervencional; Neuroradiología Endovascular.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neuroradiología Quirúrgica Endovascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+c. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neuroradiología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+d. Aprobación de un programa de estudios de posgrado (residencia médica) de seis (6) meses en Neurocirugía, Neurología Vascular y Cuidados Neurointensivos, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+e. Certificación de haber realizado e interpretado un mínimo de 50 neuroangiogramas diagnósticos bajo la supervisión de un médico capacitado (neuroradiólogo intervencionista, neurocirujano endovascular o neurólogo intervencionista con formación adecuada).
+16.22.4. Oncoradiología.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Oncoradiología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.22.5. Osteomuscular.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Radiología Musculoesquelética.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Osteomuscular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.22.6. Radiología Intervencionista.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Radiología Intervencionista, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.22.7. Radiología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Radiología Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.22.8. Radiología Torácica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Radiología Torácica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.23. Subespecialidades Médicas de Radioterapia
+16.23.1. Radioterapia Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Radioterapia en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de seis (6) meses en la Subespecialidad de Oncología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+c. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Radioterapia Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+16.24. Subespecialidades Médicas de Urología
+16.24.1. Ginecología Urológica.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Urología Ginecológica; Uroginecología; Medicina Pélvica Femenina y Cirugía Reconstructiva.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Urología ante el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Ginecología Urológica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+16.24.2. Urología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Urología, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Urología Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.

@@ -1,0 +1,1 @@
+Artículo 11. De la inclusión de nuevas especialidades y sub especialidades o sus sinónimos. Se faculta a la Junta de Gobierno, incluir en la lista oficial reconocida por el Colegio de Médicos y Cirujanos, nuevas especialidades, subespecialidades o sus sinónimos a las que se establecen por este Reglamento y determinar los requisitos específicos de inscripción en las mismas.

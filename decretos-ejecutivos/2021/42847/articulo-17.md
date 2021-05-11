@@ -1,0 +1,1 @@
+Artículo 17. Derogatoria. Deróguese el Decreto Ejecutivo Nº 37562 - SPPS del 8 de enero del 2013, "Reglamento de Especialidades y Subespecialidades Médicas", publicado en el Alcance N° 51 a La Gaceta N° 54 del 18 de marzo de 2013.
