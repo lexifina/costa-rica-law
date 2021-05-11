@@ -1,0 +1,1 @@
+Artículo 44.-Para la protección y embellecimiento de las tumbas o nichos se permitirá el uso de pintura o materiales similares de colores blanco, negro y gris. No se permitirá el uso de colores llamativos en las tumbas.

@@ -1,0 +1,3 @@
+CAPÍTULO XII
+De la Administración de los Cementerios
+Artículo 72.-La administración de cada uno de los Cementerios Municipales del Cantón de Golfito, estará a cargo de una Junta Administradora. Los integrantes de cada Junta serán nombrados por el Concejo Municipal de entre las ternas que al efecto presenten las fuerzas vivas del distrito en que se encuentre asentado cada cementerio, cuyos integrantes deberán tener no menos de tres años de residencia en el distrito respectivo y duraran dos años en sus cargos, con la posibilidad de ser reelectos sucesivamente. En el ejercicio de sus cargos lo realizarán ad-honorem.

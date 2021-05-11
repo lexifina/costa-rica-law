@@ -1,0 +1,1 @@
+Artículo 37.-El cementerio contará con un osario general en donde serán depositados los restos óseos producto de las exhumaciones. El mismo será construido bajo las normas de calidad que garanticen la mayor protección a los restos y para evitar riesgos a la salud de la población.

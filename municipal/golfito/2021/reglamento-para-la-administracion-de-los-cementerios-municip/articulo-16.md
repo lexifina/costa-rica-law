@@ -1,0 +1,2 @@
+Artículo 16.-El interesado deberá presentarse ante el encargado del cementerio con por lo menos cinco horas antes de la inhumación para verificar que en el sitio en que se llevará a cabo no existan restos con menos de cinco años de inhumación o que no se encuentren momificados.
+En todo caso, la persona que presente el derecho y la solicitud deberá justificar su intervención y legitimación a requerimiento del encargado el cementerio.

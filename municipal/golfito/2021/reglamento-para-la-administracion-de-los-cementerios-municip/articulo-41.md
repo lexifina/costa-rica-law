@@ -1,0 +1,1 @@
+Artículo 41.-Modificaciones. Todo cambio que modifique la naturaleza de los nichos deberá ser autorizado por la Municipalidad quien ordenará una inspección ocular para determinar la procedencia de las modificaciones y comprobar que no amenacen o perjudiquen en algún sentido las construcciones contiguas.

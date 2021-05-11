@@ -1,0 +1,1 @@
+Artículo 5º-Todo habitante del cantón de Golfito que fallezca tendrá derecho a un funeral decoroso y a la disposición más conveniente y adecuada a su cadáver, restos o cenizas y que estos sean tratados en toda circunstancia con consideración y respeto.

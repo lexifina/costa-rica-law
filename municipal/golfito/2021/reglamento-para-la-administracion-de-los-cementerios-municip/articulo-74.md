@@ -1,0 +1,1 @@
+Artículo 74.-Las Juntas Administradoras estarán a cargo de la Planificación, Dirección, vigilancia y conservación de cada cementerio, además reglamentara la conformación de los servicios inherentes a los mismos y velará por el cumplimiento de presente reglamento.

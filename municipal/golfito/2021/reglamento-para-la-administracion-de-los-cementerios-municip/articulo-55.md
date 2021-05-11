@@ -1,0 +1,1 @@
+Artículo 55º-El Concejo municipal podrá autorizar la exoneración del pago de derechos siempre y cuando concurran razones excepcionales de indigencia, salubridad e interés público. Lo anterior se hará mediante acuerdo municipal debidamente motivado.

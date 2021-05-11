@@ -1,0 +1,1 @@
+Artículo 2º-La planificación, dirección, vigilancia y conservación del cementerio estará a cargo de la Unidad de Servicios Generales de la Municipalidad de Golfito, y la Administración Municipal, la que velará por el cumplimiento de presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 12.-Los cementerios municipales tendrán el horario que señale la Administración de acuerdo a sus necesidades de trabajo y de personal, pero la hora de cierre nunca sobrepasará las dieciocho horas, el mismo será comunicado a la comunidad por los medios que se estimen más convenientes.

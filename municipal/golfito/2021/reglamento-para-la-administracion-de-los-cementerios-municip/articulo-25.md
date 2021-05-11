@@ -1,0 +1,1 @@
+Artículo 25.-Los restos óseos o cadavéricos que se encuentran al hacer las exhumaciones ordinarias serán recogidos cuidadosamente y depositados en el osario común, siempre que los deudos interesados no los reclamen para depositarlos en osarios privados que posean dentro del mismo cementerio.

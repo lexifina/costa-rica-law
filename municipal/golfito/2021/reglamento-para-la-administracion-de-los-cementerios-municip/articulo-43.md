@@ -1,0 +1,1 @@
+Artículo 43.-El mantenimiento de parcelas, nichos o tumbas corresponde al titular de cada derecho y será su obligación mantenerlo en perfecto estado de conservación y ornato, así como eliminar cualquier circunstancia que constituya peligro para los colindantes y para la salud pública en general.
