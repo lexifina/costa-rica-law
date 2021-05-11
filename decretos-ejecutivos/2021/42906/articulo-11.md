@@ -1,0 +1,2 @@
+Artículo 11. - De la vigencia del registro de exportadores, empacadores, productores y comercializadores de productos de origen vegetal para la exportación.
+La vigencia en el registro de exportadores, empacadores, productores y comercializadores de productos de origen vegetal para la exportación será de cinco años, contados a partir de la fecha de su inscripción, y en un período de un mes calendario previo a su vencimiento, podrá renovarse por un período igual de cinco años.

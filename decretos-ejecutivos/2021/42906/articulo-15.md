@@ -1,0 +1,2 @@
+Artículo 15. - Del levantamiento de la suspensión del registro.
+A toda persona física o jurídica que se le ha suspendido del registro de exportadores, empacadores, productores y comercializadores de productos de origen vegetal para la exportación, se le levantará la suspensión cuando haya subsanado los motivos que la originaron, previa verificación del Inspector, o por solicitud expresa del interesado, y en el caso de ser empacador, se le devolverá el Certificado Fitosanitario de Operación cuando le haya sido retirado.

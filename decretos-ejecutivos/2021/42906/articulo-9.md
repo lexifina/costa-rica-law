@@ -1,0 +1,6 @@
+Artículo 9. - Del trámite para la inscripción de exportadores, productores y comercializadores de productos para la exportación.
+1. Se dispondrá de un plazo máximo de nueve días naturales contados a partir del día en que se recibe la documentación completa, para realizar el trámite de inscripción de productores, comercializadores y exportadores.
+2. Satisfechos los requisitos, se asignará un número de registro y se emitirá la resolución de inscripción.
+3. Si el interesado incumple con alguno de los requisitos, el Departamento de Certificación Fitosanitaria comunicará una única vez los requisitos faltantes, para que, en un plazo de siete días hábiles, el interesado los cumpla. Este tiempo no será considerado dentro de los días naturales con los que cuenta el Departamento de Certificación Fitosanitaria para resolver la solicitud.
+4. En caso de que el interesado incumpla con el plazo indicado en el numeral anterior, o que respondido el requerimiento sigan faltando requisitos, el Departamento de Certificación Fitosanitaria realizará el rechazo de la solicitud de inscripción, a través de la resolución de rechazo, en la que se indicarán las causas de dicha decisión.
+5. La resolución respectiva, se envía por el medio de comunicación que señale el interesado.

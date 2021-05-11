@@ -1,0 +1,1 @@
+Artículo 21. - Derogatorias. Se derogan los artículos 206, 207, 208, 209, 210, 211, 212 y 238 del Decreto Ejecutivo No. 26921- MAG de 20 de marzo de 1998, Reglamento a la Ley de Protección Fitosanitaria.

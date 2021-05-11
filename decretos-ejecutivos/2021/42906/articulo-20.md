@@ -1,0 +1,1 @@
+Artículo 20. -Cumplimiento de requisitos de este decreto. En un plazo máximo de seis meses contados a partir de la vigencia de este decreto ejecutivo, toda persona física o jurídica que exporte, empaque o comercialice productos tradicionales, deberá cumplir los requisitos establecidos en el presente decreto.
