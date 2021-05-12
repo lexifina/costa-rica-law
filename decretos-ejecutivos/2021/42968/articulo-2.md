@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el texto de los artículos 44 bis y 119 bis del Decreto Ejecutivo N° 40862-MEP de fecha 12 de enero del 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en La Gaceta N° 22 del 06 de febrero del 2018, Alcance N° 36.

@@ -1,0 +1,3 @@
+Artículo 3º-Adiciónese un nuevo Transitorio 7 al Decreto Ejecutivo N° 40862-MEP de fecha 12 de enero del 2018, denominado Reglamento de Evaluación de los Aprendizajes, publicado en La Gaceta N° 22 del 06 de febrero del 2018, Alcance N° 36, cuyo texto dirá:
+Transitorio 7.-División del curso lectivo en períodos. El curso lectivo 2021 estará dividido en dos períodos escolares, tanto en la Educación Preescolar, la Educación General Básica como en la Educación Diversificada.
+Se exceptúan de esta división a las asignaturas, módulos o periodos que se cursan en una cantidad diferente de periodos según autorización previa y expresa del Consejo Superior de Educación.
