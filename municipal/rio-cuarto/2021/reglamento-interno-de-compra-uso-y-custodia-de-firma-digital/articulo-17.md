@@ -1,0 +1,1 @@
+Artículo 17.-Citas de emisión y renovación de firma digital. La persona funcionaria de la Municipalidad de Río Cuarto, será la encargada de gestionar las citas para la solicitud de la firma digital, en los plazos estipulados anteriormente y de cualquier otro trámite que requiere realizar ante la entidad emisora.

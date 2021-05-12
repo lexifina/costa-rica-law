@@ -1,0 +1,1 @@
+Artículo 15.-Instalación y configuración. El Departamento de Tecnologías de la Información o su similar será el encargado de brindar el servicio de instalación y configuración de todas las herramientas necesarias para que la firma digital funcione correctamente en el computador de la persona funcionaria.

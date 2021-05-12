@@ -1,0 +1,1 @@
+Artículo 5º-El departamento de Talento Humano -o su similar- en colaboración con las diferentes jefaturas deberán coordinar para que todas las personas funcionarias, que así lo requieran para el desarrollo de sus funciones, cuenten con la firma digital correspondiente.

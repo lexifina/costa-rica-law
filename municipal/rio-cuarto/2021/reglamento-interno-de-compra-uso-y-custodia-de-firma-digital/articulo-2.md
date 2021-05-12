@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Todas las personas funcionarias de la Municipalidad de Río Cuarto quedan expresamente facultados para utilizar los certificados, las firmas digitales y los documentos electrónicos dentro de sus procesos y funciones diarias, salvo disposición legal en contrario, o que la naturaleza o los requisitos particulares del acto resulten incompatibles.

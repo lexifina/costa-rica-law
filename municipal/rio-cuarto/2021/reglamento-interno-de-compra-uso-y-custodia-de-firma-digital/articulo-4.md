@@ -1,0 +1,7 @@
+CAPÍTULO II
+De las obligaciones de la Municipalidad de Río Cuarto
+Artículo 4º-Obligaciones municipales. La Municipalidad de Río Cuarto, respecto del certificado de firma digital, ostenta las siguientes obligaciones:
+a. Dotar de firma digital a las personas funcionarias que la necesiten para el desarrollo de sus funciones, ya sea en puestos en propiedad, interino con más de seis meses continuos de trabajar para la Municipalidad o en puestos de confianza, previa solicitud y valoración de las jefaturas inmediatas correspondientes. Asimismo, a las personas funcionarias de elección popular Alcaldía, Vicealcaldía y los miembros del directorio del Concejo Municipal, mediante el acuerdo correspondiente.
+b. La Municipalidad de Río Cuarto deberá de implementar el uso de la firma digital en todos los procesos municipales, con las excepciones que establece la Ley de Certificados, Firmas Digitales y Documentos Electrónicos Nº 8454.
+c. La Municipalidad de Río Cuarto deberá cancelar el costo de la compra del lector, la tarjeta de firma digital, así como de la emisión de los certificados que se alojan en la tarjeta, a las personas funcionarias que la necesiten para el desarrollo de sus funciones, los titulares de la Alcaldía y Vicealcaldía y las personas miembros del directorio del Concejo Municipal.
+d. La Municipalidad de Río Cuarto, mediante el Departamento de Tecnologías de la Información o su similar, deberá de brindar la capacitación necesaria a las personas funcionarias acerca del uso y custodia de la firma digital.
