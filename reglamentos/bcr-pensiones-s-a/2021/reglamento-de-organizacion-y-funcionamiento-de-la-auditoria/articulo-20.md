@@ -1,0 +1,3 @@
+CAPÍTULO V
+De las personas trabajadoras en la Auditoría Interna
+Artículo 20.-Para la dotación de los recursos de la Auditoría Interna, la Junta Directiva de BCR Pensiones S. A. debe tomar en consideración el estudio elaborado por el auditor interno, según lo dispuesto en el artículo 22 de este reglamento. La dotación de recursos debe asignarse de conformidad con lo establecido en el artículo 27 de la Ley General de Control Interno, y lo establecido sobre esta materia en los Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 7º-El auditor Interno debe participar en las sesiones o reuniones de Junta Directiva de BCR Pensiones S. A., o Gerencia General de BCR Pensiones, cuando estos órganos lo soliciten. Su participación será en el papel de asesor en materia de su competencia.
