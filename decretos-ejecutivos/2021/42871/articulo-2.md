@@ -1,0 +1,1 @@
+Artículo 2º-Elimínese el acápite k) del inciso 7.2 del artículo 7 del decreto ejecutivo N° 42123-RE del 18 de diciembre de 2019, Reglamento para el otorgamiento, uso y control de pasaportes diplomáticos y pasaportes de servicio

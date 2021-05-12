@@ -1,0 +1,26 @@
+Nº 42871-RE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+En ejercicio de las facultades que confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política de Costa Rica, artículos 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) y 103 de la Ley General de la Administración Pública, ley Nº 6227 del 2 de mayo de 1978, publicada en la página 1403 del tomo 4 de la Colección de Leyes y Decretos del primer semestre de 1978 y el artículo 5 de la Ley Orgánica del Ministerio de Relaciones Exteriores y Culto, ley Nº 3008 del 18 de julio de 1962, publicada en la página 75 del tomo 2 de la Colección de Leyes y Decretos del segundo semestre de 1962.
+Considerando:
+1º-Que el artículo 1 de la ley N°3530 del 5 de agosto de 1965, Estatuto del Servicio Exterior de la República, establece que este está compuesto por el Servicio Diplomático, el Servicio Consular y el Servicio Interno de manera indistinta, lo cual se establece también en el artículo 2 inciso 27) del decreto ejecutivo 29428-RE del 30 de marzo de 2001, Reglamento al Estatuto del Servicio Exterior de la República.
+2º-Que el artículo 33 del decreto ejecutivo N°39127- MRRRE del 15 de julio de 2015, Reglamento del Concurso de Oposición y el Ingreso a la Carrera del Servicio Exterior, señala que las personas aspirantes tendrán los mismos derechos y deberes que aquellas que formen parte de manera formal de la carrera del Servicio Exterior.
+3º-Que la costumbre y práctica internacionales contemporáneas no establecen que el Estado receptor requiera que a una persona funcionaria diplomática o consular del Estado acreditante se le otorgue un determinado documento de viaje para el reconocimiento de los privilegios e inmunidades correspondientes, lo cual exige a este último el aseguramiento de todos los medios posibles para que la representación que se asigna a la persona funcionaria pueda realizarse debidamente en pro de los intereses del Estado en los correspondientes destinos.
+4º-Que es del mayor interés del Ministerio de Relaciones Exteriores y Culto proceder con la presente modificación al Reglamento para el Otorgamiento, Uso y Control de Pasaportes Diplomáticos y Pasaportes de Servicio con el objetivo de asegurar a las personas aspirantes al ingreso a la Carrera del Servicio Exterior que realicen su periodo de prueba fuera de Costa Rica un documento de viaje correspondiente al rango y reconocimiento que le ha sido otorgado de conformidad con los procedimientos internos, sin detrimento de las posibilidades de ser reconocidas como tales en el Estado receptor. Por tanto,
+Decretan:
+"MODIFICACIÓN A LOS ARTÍCULOS 2 INCISO H) ACÁPITES H.1) Y H.2) Y 21 INCISOS 21.1) ACÁPITE A) Y 21.2) ACÁPITE B) Y ELIMINACIÓN
+DEL ACÁPITE K) DEL INCISO 7.2 DEL ARTÍCULO 7 DEL DECRETO EJECUTIVO N° 42123-RE DEL 18 DE DICIEMBRE DE 2019, REGLAMENTO PARA EL OTORGAMIENTO, USO Y CONTROL DE
+PASAPORTES DIPLOMÁTICOS Y PASAPORTES DE SERVICIO."
+Artículo 1º-Modifíquense los artículos 2 inciso h) acápites h.1) y h.2) y 21 incisos 21.1) acápite a) y 21.2) acápite b) del decreto ejecutivo N°42123-RE del 18 de diciembre de 2019, Reglamento para el otorgamiento, uso y control de pasaportes diplomáticos y pasaportes de servicio, que deberán leerse:
+"Artículo 2º-Definiciones. Para los efectos de este Reglamento, se entenderá por:
+(.)
+h. Funcionario del Servicio Exterior: De acuerdo con lo dispuesto en el artículo 1, inciso 13, de la Ley N° 7411, se entenderá por funcionarios remunerados del servicio diplomático costarricense en el exterior a:
+h.1. Los funcionarios de la carrera del Servicio Exterior, que se encuentren en ejercicio de sus funciones fuera de Costa Rica, sin discriminación de si se desempeñan en el Servicio Diplomático o Consular, o bien, aquellos que ejerzan sus funciones en el Servicio Interno de la Cancillería, cuando viajen en funciones propias de su cargo. Así mismo, dentro de este grupo se encontrarán los aspirantes a su ingreso cuando desempeñen sus funciones fuera de Costa Rica.
+h.2. Los funcionarios designados por el Poder Ejecutivo, con rango diplomático, conforme a la Ley N° 7411, Ley de Otorgamiento de Pasaportes Diplomáticos y de Servicio."
+"Artículo 21.-Tipo de pasaporte según el cargo. Previo cumplimiento de los requisitos estipulados en la Ley N° 7411, y el presente reglamento, se otorgarán los pasaportes diplomáticos y los pasaportes de servicio, conforme lo siguiente:
+21.1. Corresponderán los pasaportes diplomáticos:
+a. A los funcionarios de carrera en el Servicio Exterior y demás señalados en el artículo 2, inciso h), acápite h.1) de este reglamento, se les confeccionará el pasaporte en su calidad de "Diplomático", consignándose el cargo como "Funcionario Diplomático", independientemente que se desempeñen en el Servicio Diplomático o en el Servicio Consular. A los Embajadores y a los funcionarios del Servicio Consular se les confeccionará el cargo como "Embajador", "Cónsul General", "Cónsul" o "Vicecónsul", según corresponda.
+(.)
+21.2. Corresponderán los pasaportes de servicio:
+(.)
+b. Se otorgará pasaporte de servicio a los funcionarios que se encuentren en periodo de prueba para ingresar a la Carrera Diplomática, así como los nombrados en Comisión, en ambos supuestos, procederá el otorgamiento de este documento de viaje cuando ejerzan sus funciones en el Servicio Interno."
