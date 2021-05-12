@@ -1,2 +1,0 @@
-Artículo 8°—Los servidores de Auditoría Interna deberán observar las normas éticas que rigen su profesión, que se caracterizan por valores de: integridad, objetividad, confidencialidad, imparcialidad, justicia, respeto, transparencia y excelencia, sin perjuicio de otros valores que la institución promueva para guiar su actuación.
-La actuación de los servidores de la Auditoría Interna se regirá por lo establecido en el capítulo Código de Ética del Manual de la Auditoría Interna de BCR Pensiones S. A.
