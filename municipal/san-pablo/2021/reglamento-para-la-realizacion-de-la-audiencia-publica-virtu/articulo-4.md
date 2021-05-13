@@ -1,0 +1,3 @@
+Artículo 4º-Convocatoria.
+El acuerdo del Concejo Municipal deberá indicar la hora, el día y la sede electrónica mediante la cual se llevará a cabo la audiencia. Asimismo, indicará el medio por el cual las y los munícipes podrán remitir sus consultas en torno a la realización de la audiencia y la propuesta de plan de ordenamiento territorial.
+La Municipalidad publicará la convocatoria a la audiencia pública por medio del Diario Oficial, en un diario de circulación nacional y en diversos medios, redes sociales, entre otros. Las diferentes comunicaciones incluirán los datos de la convocatoria, la información de acceso a la documentación del plan de ordenamiento territorial del artículo 5 y la dirección electrónica del artículo 6.

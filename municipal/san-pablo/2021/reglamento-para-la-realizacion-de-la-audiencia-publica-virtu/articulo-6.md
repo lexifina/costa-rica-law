@@ -1,0 +1,2 @@
+Artículo 6º-Participación previa.
+La Municipalidad habilitará una dirección de correo electrónico para que las personas puedan hacer llegar sus dudas y observaciones en cuanto a la propuesta plan de ordenamiento territorial. Para que las dudas y observaciones sean tomadas en consideración, las personas deberán participar en la audiencia pública e indicar sus datos personales (nombre, número de cédula, lugar de residencia, información de contacto), al remitir sus comentarios.

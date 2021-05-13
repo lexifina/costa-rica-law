@@ -1,0 +1,2 @@
+Artículo 8º-Sede electrónica.
+La sede electrónica de la audiencia pública será determinada por el Concejo Municipal, la plataforma debe ser de fácil acceso, permitir la transmisión simultánea de audio, video y datos a todos quienes participen, así como la grabación de la sesión. La transmisión de la audiencia se realizará únicamente empleando dicha plataforma, la cual será el canal de comunicación oficial para efectos de participar de la audiencia.

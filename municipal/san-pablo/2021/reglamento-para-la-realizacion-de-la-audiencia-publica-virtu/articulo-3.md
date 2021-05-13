@@ -1,0 +1,2 @@
+Artículo 3º-Selección de fecha.
+El Concejo Municipal someterá a votación la fecha propuesta por la administración, para efectos de llevar a cabo la audiencia pública, siguiendo los parámetros establecidos en el artículo 17 de la Ley de Planificación Urbana. El señalamiento de la fecha acordada para la realización de la audiencia virtual deberá comunicarse con una antelación no menor a quince días hábiles y conforme a lo dictado en el artículo siguiente.

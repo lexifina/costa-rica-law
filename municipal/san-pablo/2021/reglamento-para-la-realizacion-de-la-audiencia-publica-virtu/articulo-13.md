@@ -1,0 +1,2 @@
+Artículo 13.-Participantes obligatorios.
+Desde el inicio, hasta la finalización de la audiencia, deberán participar de esta el alcalde o alcaldesa, las personas miembros del Concejo Municipal, la Secretaría del Concejo Municipal, y el equipo técnico encargado de la elaboración de la propuesta del plan de ordenamiento territorial. La audiencia será presidida por el presidente del Concejo Municipal.
