@@ -1,0 +1,2 @@
+Selección de los Corresponsales BN Servicios
+Artículo 12.-De previo a emitir la recomendación para afiliar al Corresponsal BN Servicios, la Zona Comercial encargada de la gestión deberá realizar con un ejecutivo acreditado, una inspección a las instalaciones del solicitante para evaluar que cumple efectivamente con los requisitos citados. La Dirección de Seguridad e Investigaciones realizará los estudios previos para comprobar que el solicitante y/o sus representantes cumplen con los requisitos indicados en los puntos g), i) y j) del artículo 10° de este reglamento.

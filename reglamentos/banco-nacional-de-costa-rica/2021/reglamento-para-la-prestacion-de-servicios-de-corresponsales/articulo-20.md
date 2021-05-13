@@ -1,0 +1,1 @@
+Artículo 20.-Expedientes Digitales. Los expedientes se tramitarán y resguardarán en un expediente electrónico, en cuyo caso el Gerente de la oficina asignado como responsable del contrato, será el responsable para todos los efectos, quien deberá custodiar, en los archivos de su despacho todos los expedientes de los contratos asignados a su cargo.

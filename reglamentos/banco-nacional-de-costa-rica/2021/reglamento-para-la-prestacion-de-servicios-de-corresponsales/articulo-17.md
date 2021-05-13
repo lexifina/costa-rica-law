@@ -1,0 +1,1 @@
+Artículo 17.-El Corresponsal BN Servicios es totalmente responsable ante el Banco por los daños y perjuicios ocasionados a terceros, en razón de la no prestación del servicio por factores ajenos al Banco.

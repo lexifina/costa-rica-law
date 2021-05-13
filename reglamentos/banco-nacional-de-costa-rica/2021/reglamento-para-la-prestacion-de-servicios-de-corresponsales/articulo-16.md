@@ -1,0 +1,1 @@
+Artículo 16.-El Corresponsal BN Servicios se obliga a aceptar dentro de la actividad normal de sus negocios, los servicios acordados en el contrato suscrito entre el Corresponsal BN Servicios y EL Banco para estos efectos.
