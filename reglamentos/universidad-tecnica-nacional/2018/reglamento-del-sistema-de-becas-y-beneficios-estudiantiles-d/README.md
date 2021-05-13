@@ -23,3 +23,4 @@ Reglamento del sistema de becas y beneficios estudiantiles de la Universidad Té
 | 8 | 2020-09-10 | Reglamento 20 (2020-09-10) |
 | 9 | 2020-12-10 | Reglamento 30 (2020-12-10) |
 | 10 | 2021-04-29 | Reglamento 10 (2021-04-29) |
+| 11 | 2021-05-13 | Reglamento 11 (2021-05-13) |
