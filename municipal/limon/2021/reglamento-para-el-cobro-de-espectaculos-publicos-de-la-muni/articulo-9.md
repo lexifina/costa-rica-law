@@ -1,0 +1,2 @@
+Artículo 9.-Recolección de boletos. Semanalmente o el día posterior a la realización del evento, según la naturaleza del espectáculo o diversión, los inspectores de espectáculos públicos trasladarán a los establecimientos comerciales a recoger los informes de las ventas de tiquetes con los dueños de cada negocio.
+En cada establecimiento deberá indicarse en un lugar visible de la boletería, lo mismo que en los boletos o tiquetes, el precio de la entrada al espectáculo o diversión.

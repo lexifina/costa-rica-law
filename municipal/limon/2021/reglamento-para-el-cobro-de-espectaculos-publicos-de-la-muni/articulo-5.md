@@ -1,0 +1,1 @@
+Artículo 5º-Tarifa. La Municipalidad de Limón cobrara un impuesto del cinco por ciento (5%) sobre la base imponible definida en el artículo anterior, a todos los espectáculos públicos y de diversión no gratuitos señalados en el artículo 2 de este reglamento.
