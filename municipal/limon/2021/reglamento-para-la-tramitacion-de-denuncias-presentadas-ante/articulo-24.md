@@ -1,0 +1,1 @@
+Artículo 24.-De los procedimientos de Auditoría. La Auditoría Interna utilizará los procedimientos establecidos en las Normas para el Ejercicio de la Auditoría Interna en el Sector Público, Normas Generales de Auditoría para el Sector Público y aquellos que sean necesarios, cumpliendo con el ordenamiento jurídico.

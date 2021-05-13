@@ -1,0 +1,1 @@
+Artículo 13.-De las denuncias anónimas: En casos excepcionales, a criterio del Auditor Interno, serán admitidas y podrá abrir una investigación preliminar, dado el contenido y razonabilidad de la denuncia anónima presentada, o cuando con ésta se reciban elementos de prueba que den mérito para ello, en caso contrario, podrá disponer su archivo sin más trámite.
