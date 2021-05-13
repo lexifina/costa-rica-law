@@ -1,1 +1,0 @@
-Articulo 23: En matricula extraordinaria los estudiantes podrán matricular cursos de otra carrera homologables con algún curso de su carrera, así como cursos de la misma carrera en una franja horaria diferente a la que fueron admitidos, quedando sujetos a la disponibilidad de cupos.

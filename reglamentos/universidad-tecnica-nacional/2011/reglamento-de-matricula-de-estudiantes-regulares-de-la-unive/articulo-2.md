@@ -1,1 +1,0 @@
-Articulo 2: Le corresponde a la Dirección de Registro Universitario coordinar, controlar y dirigir la ejecución de los procesos de matricula que realice la Universidad, así como dictar las políticas y lineamientos generales de matrícula. EI proceso se ejecutará y será responsabilidad de las dependencias de Registro en cada una de las Sedes.

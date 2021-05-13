@@ -1,1 +1,0 @@
-Articulo 34: Para realizar la matrícula por suficiencia o por tutoría, será aplicable lo dispuesto para la matricula ordinaria en cuanto al procedimiento y requisitos, siempre que no contradiga lo regulado por este capítulo o cualquier otra disposición específica vigente.

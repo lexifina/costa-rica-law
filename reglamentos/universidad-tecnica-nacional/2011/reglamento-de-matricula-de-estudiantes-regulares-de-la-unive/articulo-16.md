@@ -1,1 +1,0 @@
-Articulo 16: En caso de que el estudiante no efectúe su matrícula según la cita asignada, podrá realizarla en cualquier otro momento posterior al de su cita, siempre durante el período ordinario. Dicha matrícula queda sujeta a la disponibilidad de cupos.

@@ -1,1 +1,0 @@
-Articulo 20: Cuando se haya definido una admisión por franja horaria, en matrícula ordinaria los estudiantes no podrán matricular cursos del plan de estudios con un horario diferente al que fueron admitidos.

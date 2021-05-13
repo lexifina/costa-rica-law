@@ -1,1 +1,0 @@
-Articulo 19: Una vez pasados los procesos de revocatoria y apelación, las dependencias de Registro de cada Sede y del Centro de Formación Pedagógica y Tecnología Educativa publicarán el padrón de matrícula definitivo en el período establecido en el calendario institucional.

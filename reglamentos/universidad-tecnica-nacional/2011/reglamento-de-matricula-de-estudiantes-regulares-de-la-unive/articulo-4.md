@@ -1,1 +1,0 @@
-Articulo 4: La Rectoría entregará para cada período de matrícula a Registro Universitario la cantidad de cupos disponibles por carrera y por curso para cada una de las Sedes según lo establecido en el articulo 22, inciso k) del Estatuto Orgánico de la UTN. Esta información deberá entregarse en el período definido en el calendario institucional.

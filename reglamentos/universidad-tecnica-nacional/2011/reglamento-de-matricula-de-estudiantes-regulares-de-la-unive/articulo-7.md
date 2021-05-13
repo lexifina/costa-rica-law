@@ -1,1 +1,0 @@
-Articulo 7: EI control y seguimiento de las obligaciones financieras de los estudiantes que conlleve la matricula será responsabilidad de los Departamentos Financieros de cada Sede y del Centro de Formación Pedagógica y Tecnología Educativa. Para estos efectos, coordinara con las dependencias institucionales involucradas en la matricula.
