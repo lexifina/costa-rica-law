@@ -1,2 +1,3 @@
-ARTÍCULO 3. INDEPENDENCIA
-De conformidad con el Reglamento Orgánico de la Universidad Técnica Nacional, la Defensoría Estudiantil es un órgano adscrito a la Vicerrectoría de Vida Estudiantil y tiene independencia de criterio en el ejercicio de sus funciones.
+ARTÍCULO 3. INDEPENDENCIA De conformidad con el Reglamento Orgánico de la Universidad Técnica Nacional, la Defensoría Estudiantil es un órgano adscrito al Consejo Universitario y tiene independencia de criterio y funcional en el ejercicio de sus funciones.
+(Reformado mediante Acuerdo 8 tomado por el Consejo Universitario en la Sesión Ordinaria No. 11-2021, celebrada el jueves 13 de mayo de 2021, a las nueve horas, según el Artículo 12 del Capítulo VII. Vicerrectoría De Vida Estudiantil. Publicado en el diario oficial La Gaceta No. 109 del 8 de junio del 2021, sección Reglamentos).
+(Así reformado en sesión N° 11 del 13 de mayo de 2021)
