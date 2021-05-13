@@ -1,0 +1,1 @@
+Artículo 4º-La Dirección de Cambio Climático del Ministerio de Ambiente y Energía es la entidad encargada del Programa País para el Liderazgo Climático y de sus programas adscritos: Programa País para la Carbono Neutralidad y Programa País para la Adaptación Climática.

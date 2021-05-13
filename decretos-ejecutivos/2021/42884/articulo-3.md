@@ -1,0 +1,1 @@
+Artículo 3º-El Programa País para la Adaptación Climática tiene por objetivo reconocer la adecuada planificación e implementación de medidas de adaptación al cambio climático, con el fin de reducir vulnerabilidad y construir resiliencia de Costa Rica ante los impactos del cambio climático.

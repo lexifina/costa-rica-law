@@ -1,0 +1,1 @@
+Transitorio IV.-Las organizaciones, cantones y/o concejos de distrito, centros educativos y demás participantes que opten por la renovación de los reconocimientos otorgados al amparo del Decreto Ejecutivo N° 41122-MINAE, deberán cumplir con las disposiciones que se establezcan en las respectivas categorías que se oficialicen al amparo del artículo 5 de este decreto.

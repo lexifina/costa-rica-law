@@ -1,0 +1,1 @@
+Artículo 2º-El Programa País para la Carbono Neutralidad tiene por objetivo brindar un mecanismo para reconocer la adecuada gestión de las emisiones de gases de efecto invernadero (GEI) de diferentes actores, con el fin de apoyar los compromisos del país en materia de acción climática.

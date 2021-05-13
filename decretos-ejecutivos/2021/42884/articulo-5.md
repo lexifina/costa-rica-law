@@ -1,0 +1,3 @@
+Artículo 5º-Los Programas País de Carbono Neutralidad y de Adaptación Climática se componen de categorías y subcategorías.
+La documentación necesaria para la creación de las categorías y subcategorías será elaborada por la Dirección de Cambio Climático, la cual someterá a valoración y decisión del Ministro o Ministra de Ambiente y Energía según corresponda.
+La aprobación y oficialización de las categorías y subcategorías, así como sus modificaciones posteriores, se hará a través de un acuerdo emitido por el Ministro o Ministra según corresponda, el cual será publicado en el Diario Oficial La Gaceta.

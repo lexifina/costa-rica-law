@@ -1,0 +1,1 @@
+Transitorio I.-Las organizaciones, cantones y/o concejos de distrito, centros educativos y demás participantes, podrán optar por los reconocimientos de los programas país, una vez que las respectivas categorías y subcategorías sean oficializadas de acuerdo al procedimiento establecido en el artículo 5 de este decreto.
