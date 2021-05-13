@@ -1,4 +1,0 @@
-CAPÍTULO III
-Unidades encargadas de las garantías o cauciones
-Artículo 9º—Unidad responsable. Corresponderá a la Dirección de Gestión del Desarrollo Humano y a los Departamentos de Gestión del Desarrollo Humano de las Sedes Regionales de la Universidad Técnica Nacional, según sea el caso, la responsabilidad de supervisar que todos los funcionarios de la Universidad Técnica Nacional obligados a rendir la garantía, lo hagan dentro de los primeros quince días del mes de enero de cada año, para lo cual deberán de presentar una fotocopia, misma que debe confrontarse y agregarse al expediente del funcionario.
-En caso de no presentar la fotocopia dentro del periodo indicado, a la Dirección de Gestión del Desarrollo Humano y a los Departamentos Gestión del Desarrollo Humano de las Sedes la prevendrá por única vez, en caso de no presentarla dentro de los tres días hábiles siguientes, se procederá con la sanción respectiva.

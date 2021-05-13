@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El presente Reglamento establece y regula las disposiciones y procedimientos aplicables a las garantías o cauciones que deberán rendir los funcionarios de la Universidad Técnica Nacional; así como los destacados en los programas adscritos al mismo.

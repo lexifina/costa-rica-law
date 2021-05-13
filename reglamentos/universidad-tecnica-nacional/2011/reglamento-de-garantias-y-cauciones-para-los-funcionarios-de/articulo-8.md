@@ -1,1 +1,0 @@
-Artículo 8º—Funcionarios ad-honorem. Los funcionarios que ejerzan cargos públicos en condición ad-honorem, y que realicen funciones de recaudación, custodia o administración de fondos públicos deberán rendir garantía o caución, salvo disposición expresa en contrario.

@@ -1,1 +1,0 @@
-Artículo 6º—Funcionario con más de un cargo. El funcionario de un puesto que por Decreto, Ley o disposición interna le corresponda asumir otras funciones donde se recaude, administre o custodie fondos públicos, deberá rendir una única caución.
