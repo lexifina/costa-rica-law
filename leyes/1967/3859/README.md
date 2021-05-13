@@ -1,6 +1,6 @@
 # Ley sobre el Desarrollo de la Comunidad (DINADECO)
 
-Ley N° 3859 del 1967-04-07. SINALEVI, ficha 38715: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38715&param2=108254&param3=1>.
+Ley N° 3859 del 1967-04-07. SINALEVI, ficha 38715: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38715&param2=125504&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 7 de 14 | 1988-09-01 | Ley 7097 | 1988-08-18 |
 | 8 de 14 | 2010-12-27 | Ley 8901 | 2010-11-18 |
 | 9 de 14 | 2017-05-17 | Ley 9434 | 2017-04-05 |
+| 10 de 14 | 2021-05-13 | Ley 9951 | 2021-04-06 |
