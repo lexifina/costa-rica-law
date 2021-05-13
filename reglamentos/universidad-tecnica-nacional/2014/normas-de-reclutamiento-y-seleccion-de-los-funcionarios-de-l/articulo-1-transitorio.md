@@ -1,6 +1,0 @@
-Transitorio I: En los concursos públicos académicos que se realicen para el nombramiento en propiedad del personal académico, a partir de la vigencia de este acuerdo y hasta el 31 de octubre de 2020, se establece un régimen de excepción que permitirá la participación de aspirantes que no cuenten con el grado académico de maestría en la especialidad correspondiente a su licenciatura o a su bachillerato universitario, establecido como requisito académico obligatorio en el Manual Descriptivo de Clases de Puestos de la Universidad.
-Este régimen de excepción se aplicará únicamente a los aspirantes que se encuentren en las siguientes condiciones:
-a) Que cuenten al menos con el grado académico de licenciatura o su bachillerato universitario y que se encuentren en el proceso de estudio para la obtención del grado académico de maestría afín a su especialidad, o a los ejes transversales de la universidad.
-b) Haber laborado ininterrumpidamente durante el período que comprende del 31 de octubre de 2013 al 31 de octubre de 2014 ambos inclusive, momento en que se aprobó la reforma al Manual Descriptivo de Clases de Puestos para incorporar el requisito académico cuya aplicación se excepciona.
-c) Que el aspirante se mantenga nombrado en la Universidad, en la condición indicada, al momento del concurso.
-(Así adicionado en sesión N° 6 del 21 de marzo del 2019)

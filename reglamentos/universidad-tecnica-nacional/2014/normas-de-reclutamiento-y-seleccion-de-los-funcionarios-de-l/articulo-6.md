@@ -1,4 +1,0 @@
-Artículo 6: Declaratoria de Inopia
-6.1 La idoneidad para el ejercicio profesional en este nivel educativo deberá comprobarse, mediante concurso público, que realizará la institución, con documentos que demuestren la posesión de estudios, grados, títulos, diplomas, certificados y experiencias según el puesto de que se trate.
-6.2 La declaratoria de inopia, corresponderá a la Dirección de Gestión de Desarrollo Humano, y se dará cuando habiéndose realizado el concurso público correspondiente, ninguno de los oferentes reúna los requisitos establecidos. En cuyo caso estos requisitos sólo podrán ser dispensados, excepcionalmente, en casos muy calificados de personas que por experiencia comprobada garanticen un buen desempeño en la labor educativa (*).
-6.3 Este funcionario así contratado lo será hasta el último día del cierre del período presupuestario, mientras persista la condición de inopia.
