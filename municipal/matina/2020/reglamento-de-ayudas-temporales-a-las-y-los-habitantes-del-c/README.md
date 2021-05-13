@@ -15,3 +15,4 @@ Reglamento de ayudas temporales a las y los habitantes del Cantón de Matina
 | --- | --- | --- |
 | 1 | 2020-10-23 | la propia norma |
 | 2 | 2021-04-08 | Reglamento municipal 81 (2021-04-08) |
+| 3 | 2021-05-13 | Reglamento municipal 87 (2021-05-13) |
