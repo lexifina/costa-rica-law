@@ -1,2 +1,2 @@
-ARTÍCULO 39.- Explotación económica de la mujer
-La persona que, mediante el uso de la fuerza, la intimidación o la coacción, se haga mantener, total o parcialmente, por una mujer con quien mantenga una relación de matrimonio, en unión de hecho declarada o no, será sancionada con pena de prisión de seis meses a tres años.
+Artículo 39- Explotación económica de la mujer. La persona que, mediante el uso de la fuerza, la intimidación o la coacción, se haga mantener, total o parcialmente, por una mujer con quien mantenga o haya mantenido una relación o vínculo de pareja, sea matrimonial, unión de hecho, noviazgo, convivencia, de no convivencia, casual u otra análoga, aun cuando medie divorcio, separación o ruptura, siempre que la conducta no constituya un delito más grave o previsto con un pena mayor, será sancionada con pena de prisión de seis meses a tres años.
+(Así reformado por el artículo 1° de la ley N° 9975 del 14 de mayo del 2021)
