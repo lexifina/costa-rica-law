@@ -1,0 +1,2 @@
+Artículo 9º-Coordinación del SINAMECC. El cumplimiento de los fines del SINAMECC y del resto de disposiciones establecidas en el presente Decreto, estarán bajo la competencia de la DCC.
+La DCC será la responsable de compilar, validar y elaborar la comunicación con las entidades públicas y privadas competentes, así como de reportar y comunicar ante los instrumentos internacionales, de los que sea Punto Focal, la información relacionada con cambio climático cubierta por este Decreto.

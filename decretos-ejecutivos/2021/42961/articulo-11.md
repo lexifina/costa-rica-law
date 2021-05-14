@@ -1,0 +1,10 @@
+Artículo 11.-Del Comité Consultivo. El SINAMECC contará con la asesoría y acompañamiento de un Comité Consultivo que estará conformado por un representante de la DCC, un representante de la SEPLASA, un representante del CENIGA, un representante del IMN y un representante del INEC, y tendrá las siguientes funciones:
+a) Recomendar. Brindar recomendaciones para la correcta y continua operación del SINAMECC, incluyendo la planeación y obtención de recursos, para asegurar los flujos de información y para la convocatoria de equipos técnicos ad hoc.
+b) Enlazar. Servir de enlace y canal de comunicación con las respectivas instituciones u órganos a las cuales pertenecen los representantes incluidos en el Comité, cuando proceda.
+c) Integración de sistemas. Coadyuvar en la coordinación para incluir información del SINAMECC en el SINIA y el SEN.
+d) Preparar informes. Coadyuvar en la preparación de informes y reportes nacionales según los objetivos y materias cubiertas por el SINAMECC, de acuerdo con sus áreas de competencia.
+e) Divulgar información. Proponer mecanismos y herramientas para maximizar la divulgación de la información contemplada en el SINAMECC, a los diferentes actores.
+f) Recomendación sobre guías. Recomendar sobre el contenido de las Guías para la operación del SINAMECC.
+g) Sostenibilidad del SINAMECC. Las instituciones que conforman el Comité Consultivo velarán de forma colaborativa, por la sostenibilidad, continuidad y mejora continua del SINAMECC, desde el ámbito de sus competencias, capacidades instaladas y recursos existentes.
+El Comité Consultivo del SINAMECC será coordinado por la DCC y cumplirá sus funciones ante la solicitud expresa de la DCC. De considerarse necesario, el Comité Consultivo, podrá convocarse a sesiones de coordinación, de lo contrario y, de forma preferente, sus funciones serán cumplidas mediante comunicaciones escritas formales.
+Las instituciones que conforman el Comité Consultivo velarán de forma colaborativa, por la sostenibilidad, continuidad y mejora continua del SINAMECC.

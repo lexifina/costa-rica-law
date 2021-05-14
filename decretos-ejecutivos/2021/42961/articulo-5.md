@@ -1,0 +1,1 @@
+Artículo 5. Naturaleza de la información a ser integrada en el SINAMECC. El SINAMECC integra la información relevante a la mitigación y adaptación al cambio climático, medios de implementación y los impactos generados por el cambio climático y la acción climática en el desarrollo sostenible y en cumplimiento de los ODS.
