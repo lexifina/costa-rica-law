@@ -13,3 +13,4 @@ Modificación de la circular 127-2019, sobre "Información contenida en los dict
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-19 | la propia norma |
+| 2 | 2021-05-14 | Circular 105 (2021-05-14) |
