@@ -1,11 +1,5 @@
-Artículo 25.- Del Consejo de Supervisión y Control. El Consejo de Supervisión y Control “COSUCO” es coordinado por el Director General de Salud y constituye una instancia formal de supervisión y control de la gestión institucional. Es el órgano responsable de presentar anualmente al Consejo Ministerial el Plan y Presupuesto de Supervisión y Control y sus resultados para su aprobación.
-El Consejo de Supervisión y Control está integrado por:
-a) El Director General de Salud
-b) Un representante de la Dirección de Planificación
-c) Un representante de la Dirección de Asuntos Jurídicos
-d) Un representante de la Auditoría Interna
-e) Un representante de la División Administrativa
-f) Un representante de la Dirección de Atención al Cliente, que será responsable de la Secretaría
-g) Las Jefaturas de las Unidades de Control de las Direcciones del Nivel Central
-h) Los Directores Regionales de Rectoría de la Salud
-i) Los Directores Generales, Nacionales y Ejecutivos de las Entidades Adscritas al Ministerio de Salud. o al Despacho.
+Artículo 25.-Del Consejo Consultivo de Gestión Institucional y del Consejo Consultivo de Gestión Regional de Rectoría de la Salud. El Consejo Consultivo de Gestión Institucional es coordinado por el Director General de Salud y constituye la instancia formal de asesoría y coordinación del más alto nivel técnico institucional. Le corresponde colaborar con la formulación de los lineamientos estratégicos institucionales, acorde con las políticas y prioridades definidas por el Ministro de Salud, y con la definición, seguimiento y evaluación del accionar de la Institución a nivel nacional. Además, en esta instancia, se comunican asuntos clave y, en general, se facilita la integración de los esfuerzos institucionales para contribuir con el logro del marco estratégico.
+El Consejo de Gestión Institucional está integrado por el Director General de Salud, quien lo coordina, y los Directores del Nivel Central, excepto las personas a cargo de la Dirección de Auditoria Interna y de la Contraloría de Servicios.
+El Consejo Consultivo de Gestión Regional de Rectoría de la Salud, por su parte, es coordinado por el Director General de Salud y constituye la instancia formal de asesoría y coordinación entre el nivel central y el nivel regional. Le corresponde colaborar con formulación de los lineamientos estratégicos para el nivel regional, acorde con las políticas y prioridades definidas por el Ministro de Salud, y con la definición, seguimiento y evaluación del accionar de · la Institución a nivel regional. Además, en esta instancia, se comunican asuntos clave y, en general, se facilita la integración de los esfuerzos regionales para contribuir con el logro del marco estratégico institucional.
+El Consejo Consultivo de Gestión Regional de la Rectoría la Salud está integrado por el Director General de Salud, quien coordina y los Directores Regionales de Rectoría de la Salud.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 41137 del 16 de marzo de 2018)
