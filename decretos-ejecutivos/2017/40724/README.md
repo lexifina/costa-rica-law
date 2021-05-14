@@ -18,3 +18,4 @@ Reglamento Orgánico del Ministerio de Salud
 | 3 | 2021-05-14 | Decreto Ejecutivo 41137 (2018-03-16) |
 | 4 | 2021-05-14 | Decreto Ejecutivo 41216 (2018-05-10) |
 | 5 | 2021-05-14 | Decreto Ejecutivo 41726 (2019-04-23) |
+| 6 | 2021-05-14 | Decreto Ejecutivo 41999 (2019-09-20) |

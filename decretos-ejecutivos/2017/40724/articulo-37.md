@@ -1,5 +1,1 @@
-Artículo 37.-De la Dirección de Atención al Cliente. La Dirección de Atención al Cliente depende orgánicamente de la División Administrativa. Su objetivo consiste en ejecutar el proceso de Atención al Cliente Interno y Externo en el nivel central, acorde con los lineamientos estratégicos emitidos por el Director de la División Administrativa, normalizando la ejecución de este proceso en el nivel regional y local y asesorando a quienes lo requieran.
-Esta Dirección cuenta con las siguientes unidades organizativas:
-a) Unidad de Plataforma de Servicios. Con el objetivo de _brindar atención directa al cliente interno y externo en los asuntos relacionados con: orientación e información, recepción de documentos, registro de información y notificación de resoluciones de manera oportuna, eficiente y eficaz.
-b) Unidad de Gestión de Trámites. Con el objetivo de controlar, dar seguimiento y notificar la resolución de los trámites que realizan los usuarios internos y externos en el Ministerio de Salud, bajo estándares de calidad y transparencia.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 41137 del 16 de marzo de 2018)
+Artículo 37.-De la Dirección de Atención al Cliente. (Derogado por el artículo 2° del decreto ejecutivo N° 41999 del 20 de setiembre del 2019)

@@ -1,3 +1,3 @@
 ANEXO
 [imagen]
-(Así reformado por el artículo 2° del decreto ejecutivo N° 41137 del 16 de marzo de 2018)
+(Así reformado por el decreto ejecutivo N° 41999 del 20 de setiembre del 2019)

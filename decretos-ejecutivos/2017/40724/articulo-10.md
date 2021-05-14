@@ -1,1 +1,1 @@
-Artículo 10.-Del Consejo Nacional de Salud. El Consejo Nacional de Salud está conformado según la Ley Orgánica del Ministerio de Salud y constituye la instancia formal de asesoría y coordinación del más alto nivel político. Le corresponde asesorar al Ministro o Ministra de Salud en la formulación de las políticas nacionales de salud y en todos aquellos asuntos relacionados con la protección y el mejoramiento del estado de salud de población.
+Artículo 10.-Del Consejo Nacional de Salud. (Derogado por el artículo 2° del decreto ejecutivo N° 41999 del 20 de setiembre del 2019)
