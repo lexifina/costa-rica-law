@@ -14,3 +14,4 @@ Reglamento Orgánico del Ministerio de Salud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-14 | la propia norma |
+| 2 | 2021-05-14 | Decreto Ejecutivo 40818 (2017-11-22) |
