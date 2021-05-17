@@ -85,6 +85,7 @@ articulo-78.md
 articulo-79.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
+articulo-3-transitorio.md
 articulo-1-anexo.md
 articulo-2-anexo.md
 articulo-3-anexo.md
@@ -101,3 +102,4 @@ articulo-13-anexo.md
 articulo-14-anexo.md
 articulo-15-anexo.md
 articulo-16-anexo.md
+articulo-17-anexo.md
