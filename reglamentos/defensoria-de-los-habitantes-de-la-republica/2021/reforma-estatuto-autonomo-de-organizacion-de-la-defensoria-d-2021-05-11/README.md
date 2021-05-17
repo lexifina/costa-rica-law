@@ -14,3 +14,4 @@ Reforma Estatuto Autónomo de Organización de la Defensoría de los Habitantes 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-14 | la propia norma |
+| 2 | 2021-05-17 | Reglamento 0 (2021-05-17) |
