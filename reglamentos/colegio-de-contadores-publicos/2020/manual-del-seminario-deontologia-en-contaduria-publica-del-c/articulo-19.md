@@ -1,1 +1,2 @@
-Artículo 19: Plazo para presentar el recurso de revisión: Será de tres días hábiles posterior al resultado de la prueba de aprovechamiento, el cual podrá enviarlo por medio del correo electrónico registrado por el participante debiendo firmar el recurso electrónicamente o presentarlo por escrito en el Colegio, según sea el caso.
+Artículo 19: Plazo para presentar el recurso de revisión: Será de cinco días hábiles posterior al resultado de la prueba de aprovechamiento, el cual podrá enviarlo por medio del correo electrónico registrado por el participante debiendo firmar el recurso electrónicamente o presentarlo por escrito en el Colegio, según sea el caso.
+(Así reformado mediante acuerdo de Junta Directiva N° 699-12-2020-SO.25)
