@@ -1,0 +1,1 @@
+Artículo 3°-Obligatoriedad. Estas listas serán usadas para todos los procesos legales, técnicos y científicos que requieran dicha valoración, además el SINAC podrá incluir nuevas especies en estas listas usando criterios técnicos fundamentados, según lo establecido el artículo 6 del Reglamento a la Ley de Vida Silvestre (RLCVS).
