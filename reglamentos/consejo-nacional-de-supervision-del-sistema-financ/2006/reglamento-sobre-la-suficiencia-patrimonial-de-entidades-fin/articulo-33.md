@@ -1,14 +1,11 @@
-CAPÍTULO IX
-Suficiencia patrimonial
-(Así modificada la denominación del capítulo anterior en sesión N° 720 del 30 de mayo de 2008, que lo traspaso del antiguo capítulo V al capítulo IX)
-Artículo 33.-Cálculo de la suficiencia patrimonial. La suficiencia patrimonial de la entidad se calcula según la siguiente fórmula:
-[imagen]
-Donde:
-SPE = Suficiencia patrimonial de la entidad.
-CB = Capital base.
-RC = Activos y pasivos contingentes ponderados por riesgo de crédito.
-RP = Requerimiento patrimonial por riesgo de precio.
-RO = Requerimiento patrimonial por riesgo operacional.
-(Así reformado en sesión N° 720 del 30 de mayo de 2008)
-(Así modificación su numeración en sesión N° 720 del 30 de mayo de 2008, que lo traspaso del antiguo del artículo 24 al 25)
-(Así modificada su denominación en sesión N° 720 del 30 de mayo de 2008, que lo traspaso del antiguo artículo 25 al 33)
+Artículo 33. Deducciones del CCN1. Se deducirán del CCN1 los siguientes elementos:
+a) El valor en libros de las participaciones en el capital social de otras entidades o empresas en instrumentos homólogos al CCN1, que calificarían como tales bajo los criterios establecidos en el Anexo 3 de este Reglamento. Esta deducción se efectuará con independencia del porcentaje de participación de la entidad supervisada en el capital social de la entidad o empresa de que se trate, e independientemente de la naturaleza de la entidad o empresa de que se trate.
+b) El valor en libros de las participaciones o inversiones en instrumentos de capital, deuda subordinada o deuda convertible que no sean homólogos a instrumentos del CCN1, CAN1 o CN2.
+c) El valor en libros de los activos intangibles clasificados como tales de conformidad con las Normas Internacionales de Información Financiera (NIIF), y los derechos de uso por arrendamiento financiero sobre activos intangibles. Para este efecto, la deducción corresponderá al costo del activo, menos la amortización acumulada y la pérdida acumulada por deterioro en su valor.
+d) La pérdida del periodo.
+e) Las pérdidas acumuladas de ejercicios anteriores.
+f) El importe neto positivo de restar al saldo de los Activos por Impuestos Diferidos (AID), el saldo de los Pasivos por Impuestos Diferidos (PID).
+g) El importe neto positivo de restar al saldo de los activos por impuestos al valor agregado, el saldo de los pasivos por impuestos al valor agregado.
+h) El importe de las deducciones a que se refiere el Artículo 35 de este Reglamento, que exceda el importe de los elementos del CAN1 de la entidad.
+Los elementos indicados se deducirán netos de sus respectivas estimaciones específicas por deterioro o incobrabilidad.
+(Así adicionado en sesión N° 1663 del 17 de mayo de 2021)

@@ -1,5 +1,6 @@
-Artículo 18. Ponderación al cien por ciento. Se ponderan con cien por ciento:
-a. Los productos y cuentas por cobrar no incluidos en los artículos del 12 al 17 y
-b. El activo total más pasivos contingentes no incluidos en los artículos del 12 al 17.
-El ponderador se aplicará sobre el saldo total adeudado sujeto a estimación; neto de las correspondientes estimaciones específicas.
-(Así reformado en sesión N° 1416 del 15 de mayo de 2018)
+Artículo 18. Porcentajes Mínimos para el CB y sus elementos. El CB deberá ser en todo momento, al menos igual al 10% de los riesgos totales de la entidad, determinados por el denominador del Indicador de Suficiencia Patrimonial de la entidad, según se indica en este Artículo 61 de este Reglamento.
+Asimismo, el CB estará sujeto a los siguientes porcentajes mínimos de composición:
+a) El CCN1 deberá ser en todo momento, al menos igual al 6,5% de los riesgos totales de la entidad, según se indica en el Artículo 61 de este Reglamento.
+b) El CN1 deberá ser en todo momento, al menos igual al 8,0% de los riesgos totales de la entidad, según se indica en el Artículo 61 de este Reglamento.
+El objetivo de estos porcentajes es establecer tanto el nivel mínimo como la calidad requeridos en la composición del Capital Base para la medición de la su ficiencia patrimonial de la entidad. Los instrumentos susceptibles de ser incluidos en el Capital Base serán aquellos que cumplan con los criterios de admisibilidad dispuestos en este Reglamento y que la entidad esté legalmente facultada para emitir o contratar. Por ejemplo, la entidad podrá recurrir únicamente a los instrumentos y otros rubros patrimoniales del CCN1 para cumplir integralmente con los porcentajes mínimos establecidos en este Artículo.
+(Así adicionado en sesión N° 1663 del 17 de mayo de 2021)

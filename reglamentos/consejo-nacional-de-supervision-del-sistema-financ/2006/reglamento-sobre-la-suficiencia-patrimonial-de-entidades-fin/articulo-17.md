@@ -1,1 +1,10 @@
-Artículo 17.—Ponderación al noventa por ciento. Se ponderan al noventa por ciento los activos más pasivos contingentes de emisores y deudores con calificación pública en categoría de riesgo 5 según el Anexo.
+SECCIÓN II
+CÁLCULO DEL CAPITAL BASE PARA ORGANIZACIONES COOPERATIVAS
+DE AHORRO Y CRÉDITO Y ENTIDADES DE SIMILAR NATURALEZA
+Artículo 17. Elementos del Capital Base (CB). El Capital Base (CB) es el numerador del Indicador de Suficiencia Patrimonial (ISP) y consistirá en la suma de los siguientes elementos:
+a) El Capital Nivel 1 (CN1), el cual a su vez consistirá en la suma de los siguientes elementos:
+i) Capital Común de Nivel 1 (CCN1)
+ii) Capital Adicional Nivel 1 (CAN1)
+b) El Capital Nivel 2 (CN2)
+El objetivo del CN1 es permitir la absorción de pérdidas durante la marcha de la entidad, mientras que el objetivo del CN2 es permitir la absorción de pérdidas en el escenario de liquidación de la entidad.
+(Así adicionado en sesión N° 1663 del 17 de mayo de 2021)

@@ -1,11 +1,8 @@
-Artículo 9º-Capital base para Asociaciones Mutualistas. El capital base se determina como el resultado de los siguientes rubros:
-a) Patrimonio
-b) Resultado del periodo;
-c) Deuda subordinada que cumpla con las condiciones y requerimientos dispuestos en el artículo 7 de este reglamento.
-(Así reformado el inciso anterior en sesión N° 851 del 13 de mayo de 2010)
-d) (Eliminado en sesión N° 851 del 13 de mayo de 2010)
-Para efectos del cálculo del capital base, estos instrumentos son considerados hasta un 50% del patrimonio más los instrumentos de deuda perpetuos menos la deducción del inciso g) de este Artículo.
-Al monto que resulte de la suma de los incisos a), b), c) y d) anteriores deben deducirse los siguientes elementos:
-i. las participaciones en el capital y las inversiones en deuda subordinada o convertible en capital, netas de sus respectivas estimaciones por deterioro o incobrabilidad, de otras empresas;
-ii. los créditos otorgados a la sociedad controladora de su mismo grupo o conglomerado financiero y
-iii. el valor en libros de la plusvalía comprada. Para este efecto, la deducción corresponde al costo de la plusvalía comprada, menos la amortización acumulada y la pérdida acumulada por deterioro en su valor.
+Artículo 9. Elementos del CAN1. El CAN1 estará compuesto por los siguientes elementos:
+a) Los instrumentos emitidos por la entidad que cumplan con todos y cada uno de los criterios de admisibilidad para formar parte del CAN1, dispuestos en el Anexo 4 de este Reglamento.
+b) Las primas resultantes de la emisión de instrumentos incluidos en el CAN1, netas de los correspondientes descuentos y de los costos de emisión y colocación.
+c) Los aportes y donaciones para incrementos de capital social, autorizados por CONASSIF y en trámite de inscripción en el Registro Público. Los aportes y donaciones deberán corresponder a incrementos de capital social en instrumentos admisibles en el CAN1, según el inciso a) de este Artículo.
+d) Las reservas patrimoniales reveladas, constituidas voluntariamente con el fin específico de absorber pérdidas patrimoniales durante la marcha de la entidad.
+De previo a su admisión dentro del CAN1, dichas reservas deben declararse como no redimibles, mediante acuerdo de la instancia de gobierno corporativo que corresponda de la entidad.
+e) Las deducciones correspondientes establecidas en el Artículo 10 de este Reglamento.
+(Así reformado en sesión N° 1663 del 17 de mayo de 2021)

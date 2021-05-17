@@ -1,17 +1,10 @@
-Artículo 30.-Cálculo del requerimiento de capital por riesgo de variación de tasas de interés. El cálculo del requerimiento de capital por riesgo de variación de tasas de interés deberá determinarse según el siguiente procedimiento:
-a) Cada operación de derivados cambiarios deberá descomponerse en sus partes activa y pasiva originadas en virtud del contrato. En los contratos de compra de divisas, la parte activa es la correspondiente a las divisas a recibir, y la parte pasiva es la correspondiente a los colones a entregar. En los contratos de venta de divisas, la parte activa es la correspondiente a los colones a recibir, y la parte pasiva es la correspondiente a las divisas a entregar. Por su parte, en los contratos de compra o venta de divisas contra entrega o recibo de otras divisas, la parte activa es la correspondiente a la divisa a recibir y la parte pasiva es la correspondiente a la divisa a entregar.
-b) Cada parte activa y pasiva deberá asociarse al tramo temporal que corresponda a su plazo vencimiento, donde se consignará con signo positivo el valor nominal de las posiciones activas y con signo negativo el valor nominal de las posiciones pasivas. El plazo de vencimiento de cada parte activa y pasiva será igual al plazo remanente hasta el término del contrato. Cuando un contrato derivado establezca la obligación de liquidar en ciertas fechas el ajuste por valor razonable o precio de mercado que se haya acumulado durante un período determinado, deberá considerarse como un contrato que vence en la próxima fecha de liquidación, por lo que el tramo a utilizar será el que corresponda a la próxima fecha de liquidación.
-c) Para cada tramo de vencimiento existe un ponderador que determina la sensibilidad de las posiciones al riesgo de variación en las tasas de interés, según el siguiente cuadro:
-Tramo de vencimiento | Ponderador de riesgo (posición en moneda extranjera) | Ponderador de riesgo (posición en moneda nacional)
-1 mes o menos | 0,00% | 0,25%
-1 a 3 meses | 0,20% | 0,62%
-3 a 6 meses | 0,40% | 1,12%
-6 a 12 meses | 0,70% | 2,22%
-Más de 12 meses | 1,25% | 3.87%
-d) El valor nominal de las posiciones denominadas en otras divisas, deberán convertirse a dólares de los Estados Unidos de América utilizando el tipo de cambio publicado para ese día en el Sitio WEB del Banco Central de Costa Rica (www.bccr.fi.cr, Información Diaria/Tipo de cambio del EUA Dólar con respecto a otras monedas).
-e) El valor nominal de las posiciones expresadas en dólares deberá multiplicarse por el ponderador de riesgo que corresponda al tramo de vencimiento de las posiciones en moneda extranjera, y el valor nominal de las posiciones expresadas en colones deberá multiplicarse por el ponderador de riesgo que corresponda al tramo de vencimiento de las posiciones en moneda nacional.
-f) Para cada tramo de vencimiento y para cada moneda nacional o extranjera, deberá sumarse el monto que resulte de multiplicar el ponderador de riesgo por los valores nominales de las posiciones, respetando en cada caso el signo positivo o negativo, según corresponda a posiciones activas o pasivas. Además, deberán sumarse los montos que resulten de totalizar cada uno de los tramos, respetando el signo positivo o negativo.
-g) El importe resultante para el caso de las posiciones en moneda extranjera, deberá convertirse a colones utilizando el tipo de cambio de referencia de compra publicado para ese día en el Sitio WEB del Banco Central de Costa Rica(*).
-(*) (Nota de Sinalevi: Mediante sesión N° 1545-2019 del 25 de noviembre del 2019, se reforma la referencia al tipo de cambio compra de referencia del BCCR para reexpresar los importes en moneda extranjera, para que se lea: "tipo de cambio indicado en el Reglamento de Información Financiera")
-h) El requerimiento de capital por riesgo de variación de las tasas de interés será la suma de los importes calculados en los incisos f) y g) anteriores.
-(Así adicionado en sesión N° 720 del 30 de mayo de 2008)
+SECCIÓN III
+CÁLCULO DEL CAPITAL BASE PARA MUTUALES DE AHORRO Y
+PRÉSTAMO
+Artículo 30. Elementos del Capital Base (CB). El Capital Base (CB) es el numerador del Indicador de Suficiencia Patrimonial (ISP) y consistirá en la suma de los siguientes elementos:
+a) El Capital Nivel 1 (CN1), el cual a su vez consistirá en la suma de los siguientes elementos:
+i) Capital Común de Nivel 1 (CCN1)
+ii) Capital Adicional Nivel 1 (CAN1)
+b) El Capital Nivel 2 (CN2)
+El objetivo del CN1 es permitir la absorción de pérdidas durante la marcha de la entidad, mientras que el objetivo del CN2 es permitir la absorción de pérdidas en el escenario de liquidación de la entidad.
+(Así adicionado en sesión N° 1663 del 17 de mayo de 2021)

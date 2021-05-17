@@ -1,4 +1,11 @@
-Artículo 13.-Ponderación al diez por ciento. Se ponderan con diez por ciento:
-a) Las operaciones back to back, independientemente del deudor;
-b) Los activos más pasivos contingentes de emisores y deudores con calificación pública en categoría de riesgo 1 según el Anexo y
-c) (Derogado en sesión N° 674 del 24 de setiembre de 2007)
+Artículo 13. Variaciones en instrumentos del capital social y sus efectos en el cálculo del CCN1 y del CAN1. Los aumentos y disminuciones en el capital social requerirán la autorización previa del CONASSIF, de conformidad con lo dispuesto en el Acuerdo SUGEF 8-08.
+En el caso de aumentos en instrumentos del capital social, la admisión de instrumentos en el CCN1 o en el CAN1 requerirá la verificación previa a satisfacción de la SUGEF, de que se cumple con los criterios dispuestos en los Anexos 3 y 4 respectivamente, de este Reglamento. Esta valoración podrá efectuarse, a solicitud de la entidad, como parte del proceso de autorización de los aumentos en el capital social.
+En el caso de disminuciones del capital social, la respectiva autorización para la disminución conllevará simultáneamente la exclusión de los instrumentos del CCN1 o del CAN1.
+Es responsabilidad de cada entidad supervisada, demostrar a satisfacción de la SUGEF, que los niveles y composición del CB, luego de la disminución solicitada, superarán los requerimientos mínimos y adicionales aplicables a la entidad. La SUGEF verificará prospectivamente, con el apoyo de las sensibilizaciones y proyecciones aportadas por la entidad, que luego de la disminución solicitada, los indicadores de suficiencia patrimonial y apalancamiento superarán satisfactoriamente los requerimientos mínimos y adicionales aplicables a la entidad; y que tal situación será sostenible en el tiempo considerando aspectos tales como los siguientes:
+a) el nivel y calidad de los componentes del CB,
+b) la capacidad de generación de utilidades de la entidad,
+c) la anticipación de eventos negativos o contingencias que pudieran afectar dichos niveles,
+d) las valoraciones bajo condiciones de estrés, y
+e) la naturaleza, tamaño, complejidad y perfil de riesgo de la entidad.
+En general, frente a la disminución del capital social y con el propósito de preservar la estabilidad, seguridad o solvencia de la entidad, la SUGEF podrá requerir que, de previo a resolver sobre la solicitud de autorización, o simultáneamente como parte del mismo acto de autorización, la entidad sustituya los instrumentos del CCN1 o del CAN1 por otros de igual o mejor calidad, entre otras acciones supervisoras posibles.
+(Así adicionado en sesión N° 1663 del 17 de mayo de 2021)

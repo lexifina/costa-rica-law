@@ -1,8 +1,8 @@
-CAPÍTULO VI
-Riesgo de precio de liquidación
-(Así adicionado el capítulo anterior en sesión N° 720 del 30 de mayo de 2008)
-Artículo 27.—Instrumentos sujetos a requerimiento de capital por riesgo de precio de liquidación. Las operaciones con derivados cambiarios estarán sujetas a requerimiento patrimonial por riesgo de precio de liquidación, en caso de incumplimiento de cada cliente o contraparte.
-El requerimiento patrimonial por riesgo de precio de liquidación para operaciones con derivados cambiarios deberá calcularse diariamente; y con corte al último día de cada mes, deberá sumarse al requerimiento de capital de los activos más pasivos contingentes ponderados por riesgo de crédito indicados en el artículo 10 de este Reglamento.
-Los porcentajes de ponderación de las exposiciones con clientes o contrapartes por riesgo de precio de liquidación en derivados cambiarios, serán los establecidos en los artículos del 12 al 18 de este Reglamento.
-Los criterios para uso de calificaciones de riesgo establecidos en el artículo 15 de este Reglamento, serán igualmente aplicables a las exposiciones con clientes o contrapartes por riesgo de precio de liquidación con derivados cambiarios.
-(Así adicionado en sesión N° 720 del 30 de mayo de 2008)
+Artículo 27. Elementos del CN2. El CN2 estará compuesto por los siguientes elementos:
+a) Los instrumentos de deuda subordinada emitidos por la entidad que cumplan con todos y cada uno de los criterios de admisibilidad para formar parte del CN2, dispuestos en el Anexo 5 de este Reglamento.
+b) Las primas resultantes de la emisión de instrumentos de deuda subordinada incluidos en el CN2, netas de los correspondientes descuentos y de los costos de emisión y colocación.
+c) Las donaciones para incrementos de los certificados de aportación, pendientes de ser capitalizadas. Para su admisión en el CN2, las donaciones deben encontrarse dentro del plazo máximo de 12 meses contados a partir de la fecha de recibo por parte de la entidad de los correspondientes activos.
+d) Los superávits por revaluación de bienes inmuebles; hasta por una suma no mayor al 75% del saldo de la cuenta patrimonial correspondiente.
+e) Los superávits por valuación de participaciones en otras empresas.
+f) Las deducciones correspondientes, establecidas en el Artículo 28 de este Reglamento.
+(Así adicionado en sesión N° 1663 del 17 de mayo de 2021)

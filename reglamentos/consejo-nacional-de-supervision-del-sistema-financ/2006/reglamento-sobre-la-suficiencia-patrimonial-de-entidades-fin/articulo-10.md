@@ -1,4 +1,7 @@
-CAPITULO III
-Riesgo de crédito
-Artículo 10.—Activos más pasivos contingentes ponderados por riesgo de crédito. El cálculo de los activos más pasivos contingentes ponderados según el grado de riesgo debe realizarse mediante la aplicación de los porcentajes de ponderación indicados en este capítulo a los saldos netos de estimaciones, incluyendo los productos y cuentas por cobrar asociados al activo o pasivo contingente generador.
-Para efecto del cómputo de los activos más pasivos contingentes ponderados por riesgo no se debe tomar como parte del activo total más pasivos contingentes aquellos que sean deducidos del capital según el artículo 6, artículo 8 y artículo 9 de este Reglamento así como las contingencias no crediticias y los documentos descontados.
+Artículo 10. Deducciones del CAN1. Se deducirán del CAN1 los siguientes elementos:
+a) El valor en libros de los instrumentos del CAN1 adquiridos por la propia entidad.
+b) El valor en libros de los instrumentos del CAN1 emitidos por la propia entidad que se encuentran dados en garantía de operaciones crediticias otorgadas por ella.
+c) El valor en libros de las participaciones en el capital social o en inversiones en instrumentos de deuda convertible de otras entidades o empresas homólogos al CAN1, que calificarían como tales bajo los criterios establecidos en el Anexo 4 de este Reglamento. Esta deducción se efectuará con independencia del porcentaje de participación de la entidad supervisada en el capital social de la entidad o empresa de que se trate, e independientemente de la naturaleza legal de la entidad o empresa de que se trate.
+d) El importe de las deducciones a que se refiere el Artículo 12 de este Reglamento, que exceda el importe de los elementos del CN2 de la entidad.
+Los elementos indicados se deducirán netos de sus respectivas estimaciones específicas por deterioro o incobrabilidad.
+(Así adicionado en sesión N° 1663 del 17 de mayo de 2021)

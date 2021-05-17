@@ -1,0 +1,2 @@
+Transitorio XIX. Comunicación de la condición de importancia sistémica. A más tardar al 31 de diciembre de 2021, la Superintendencia comunicará a las entidades que corresponda, su condición particular como entidad de importancia sistémica, determinada a partir de la metodología dispuesta en el Anexo 6 de este Reglamento. Esta información será utilizada por la entidad para evaluar los impactos requeridos en los informes de impacto que remitirá a la SUGEF durante el periodo de gradualidad.
+(Así adicionado en sesión N° 1663 del 17 de mayo de 2021)
