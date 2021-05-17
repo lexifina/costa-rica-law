@@ -4,27 +4,27 @@
 (El Acuerdo SGV-A 114 del 17 de enero del 2006, en el artículo 1 amplía los Anexos 1, 2, 3, 8,12, 13, 15, 17 y 20, en el artículo 2 reforma los Anexos 1, 2, 3, 4, 8, 12, 13, 15, 17, 20, 23, 25, 26, 36 y 37 y en el artículo 3 elimina el Catálogo Información Complementaria de Fondos (IC-Fondos), en consecuencia se modifica el Anexo 15 del Acuerdo SGV-A-75 del 24 de abril del 2003, emitido por la Superintendencia General de Valores. Dichas normas contables (Anexos) no fueron publicadas debido a lo extenso de su contenido, aunque pueden ser localizadas en el sitio Web <http://www.sugeval.fi.cr/> )
 (El Acuerdo SGV-A-122 del 27 de julio del 2006, en el artículo 1° amplía los Anexos 1 y 2, adiciona los anexos 38, 39, 40 y 41, en el artículo 2° se reforman los Anexos 12, 13, 14, 18, 22, 25, 26, 29 y 36 y en el artículo 3° se eliminan los Anexos 16, 26, 30, 32 y del Anexo 13 se eliminan cuentas relacionadas con la información del coeficiente de liquidez del reporte de información diaria de fondos. Dichas normas contables (Anexos) no fueron publicadas debido a lo extenso de su contenido, aunque pueden ser localizadas en el sitio Web <http://www.sugeval.fi.cr/> )
 (El Acuerdo SGV-A-135 del 9 de agosto de 2007, en su artículo 1° punto f) modifica el anexo 29, en relación al formato de la comunicación del nombre del Contador Público Autorizado o firma de auditores externos del emisor y los garantes de acuerdo con el artículo 13 del Reglamento auditores externos y medidas de gobierno corporativo)00
-(El Acuerdo SGV-A-135 del 9 de agosto de 2007, en su artículo 2° punto e) se adiciona al anexo 1 Estados Financieros Emisores del sector industria, comercio, agrícola, servicios y fideicomisos, las siguientes cuentas, asimismo en el punto f) se adiciona al anexo 2 Estados Financieros Emisores del Sector Servicios Financieros y Bursátiles, las siguientes cuentas: En relación con las cuentas numeradas del 950000000000 al 966000000000 en el Anexo 2, se adiciona la siguiente nota en dicho Anexo: “1/ Estas cuentas sólo aplican para emisores de acciones”, en su punto g) se eliminan del anexo 1 las siguienets cuentas, en el punto h) se eliminan del anexo 2 las siguienets cuentas, en el punto i) se modifica el formato del Estado de Captación establecido en el Anexo 3, para simplificar en un solo reporte la información de las diferentes emisiones autorizadas para oferta pública, las anteriores modificaciones pueden ser consultadas en el acuerdo SGV-A-135 del 9 de agosto de 2007)
-(El Acuerdo SGV-A-135 del 9 de agosto de 2007, en su artículo 2° punto j) se adiciona el Anexo 44 “Informe de participaciones Significativas" dicho anexo no fue publicado debido a lo extenso de su contenido, aunque pueden ser localizado en el sitio Web http://www.sugeval.fi.cr/ )
-(El Acuerdo SGV-A-135 del 9 de agosto de 2007, en su artículo 3° punto a) se elimina del anexo 8 de los estados financieros de puestos de bolsa el catálogo FCP_PUESTO “Flujo de caja proyectado”, asimismo en el punto b) en el Anexo 10 Reporte de Carteras se elimina la tabla No.10 sobre la lista de entidades de custodia autorizadas por la Superintendencia para que en adelante se considere la información del convertidor XML suministrado por la Superintendencia.)
-(El Acuerdo SGV-A-135 del 9 de agosto de 2007, en su artículo 4° punto b) de adiciona al anexo 13 la cuenta de disponibilidades en Over Night, en el punto c) se adiciona tanto al anexo 15 como al anexo 25 las cuentas sobre fondos de desarrollo inmobiliarios y fondos inmobiliarios, asimismo en el punto d) se modifica el anexo 15 en relación a los nombres de las cuentas para revelar los activos y obligaciones en expresados en otras monedas (US dólares, euros, yenes, entre otras), además, se modifican los nombres de las siguientes cuentas, en el punto e) se elimina del anexo 18 la tabla N° 10 sobre la lista de entidades de custodia autorizadas por la Superintendencia para que en adelante se considere la información del convertidor XML suministrado por la Superintendencia, en el punto f) se incluye dentro del anexo 17 el monto acumulado durante el mes de suscripciones y redenciones de participaciones por fondo, en el punto g) en los anexos 13 y 15 se eliminan las siguientes cuentas:, en el punto h) en el anexo 14 se elimina el catálogo FCP_SAFI “Flujo de caja proyectado”, en el punto i) se elimina el anexo 27 Reporte de carteras de inversiones propias de las sociedades administradoras de fondos de inversión, las anteriores modificaciones pueden ser consultadas en el acuerdo SGV-A-135 del 9 de agosto de 2007)
+(El Acuerdo SGV-A-135 del 9 de agosto de 2007, en su artículo 2° punto e) se adiciona al anexo 1 Estados Financieros Emisores del sector industria, comercio, agrícola, servicios y fideicomisos, las siguientes cuentas, asimismo en el punto f) se adiciona al anexo 2 Estados Financieros Emisores del Sector Servicios Financieros y Bursátiles, las siguientes cuentas: En relación con las cuentas numeradas del 950000000000 al 966000000000 en el Anexo 2, se adiciona la siguiente nota en dicho Anexo: "1/ Estas cuentas sólo aplican para emisores de acciones", en su punto g) se eliminan del anexo 1 las siguienets cuentas, en el punto h) se eliminan del anexo 2 las siguienets cuentas, en el punto i) se modifica el formato del Estado de Captación establecido en el Anexo 3, para simplificar en un solo reporte la información de las diferentes emisiones autorizadas para oferta pública, las anteriores modificaciones pueden ser consultadas en el acuerdo SGV-A-135 del 9 de agosto de 2007)
+(El Acuerdo SGV-A-135 del 9 de agosto de 2007, en su artículo 2° punto j) se adiciona el Anexo 44 "Informe de participaciones Significativas" dicho anexo no fue publicado debido a lo extenso de su contenido, aunque pueden ser localizado en el sitio Web http://www.sugeval.fi.cr/ )
+(El Acuerdo SGV-A-135 del 9 de agosto de 2007, en su artículo 3° punto a) se elimina del anexo 8 de los estados financieros de puestos de bolsa el catálogo FCP_PUESTO "Flujo de caja proyectado", asimismo en el punto b) en el Anexo 10 Reporte de Carteras se elimina la tabla No.10 sobre la lista de entidades de custodia autorizadas por la Superintendencia para que en adelante se considere la información del convertidor XML suministrado por la Superintendencia.)
+(El Acuerdo SGV-A-135 del 9 de agosto de 2007, en su artículo 4° punto b) de adiciona al anexo 13 la cuenta de disponibilidades en Over Night, en el punto c) se adiciona tanto al anexo 15 como al anexo 25 las cuentas sobre fondos de desarrollo inmobiliarios y fondos inmobiliarios, asimismo en el punto d) se modifica el anexo 15 en relación a los nombres de las cuentas para revelar los activos y obligaciones en expresados en otras monedas (US dólares, euros, yenes, entre otras), además, se modifican los nombres de las siguientes cuentas, en el punto e) se elimina del anexo 18 la tabla N° 10 sobre la lista de entidades de custodia autorizadas por la Superintendencia para que en adelante se considere la información del convertidor XML suministrado por la Superintendencia, en el punto f) se incluye dentro del anexo 17 el monto acumulado durante el mes de suscripciones y redenciones de participaciones por fondo, en el punto g) en los anexos 13 y 15 se eliminan las siguientes cuentas:, en el punto h) en el anexo 14 se elimina el catálogo FCP_SAFI "Flujo de caja proyectado", en el punto i) se elimina el anexo 27 Reporte de carteras de inversiones propias de las sociedades administradoras de fondos de inversión, las anteriores modificaciones pueden ser consultadas en el acuerdo SGV-A-135 del 9 de agosto de 2007)
 (El Acuerdo SGV-A-135 del 9 de agosto de 2007, en su artículo 5° punto c) se adiciona el anexo 42 "Plantilla para el envío de la información sobre traspasos no onerosos", dicho anexo no fue publicado debido a lo extenso de su contenido, aunque pueden ser localizado en el sitio Web http://www.sugeval.fi.cr/ )
 (El Acuerdo SGV-A-135 del 9 de agosto de 2007, en su artículo 6° punto c) se adiciona el anexo 43 "Informe de operaciones" para bolsas de comercio, dicho anexo no fue publicado debido a lo extenso de su contenido, aunque pueden ser localizado en el sitio Web http://www.sugeval.fi.cr/ )
 (El artículo 3° del acuerdo N° 157 del 22 de mayo de 2009, modifica los anexos 1, 2 y 44, debido a lo extenso de su contenido y tipo de formato, los mismos pueden ser consultados en la siguiente dirección: http://www.pgrweb.go.cr/Scij/busqueda/normativa/normas/nrm_texto_completo.aspx?param1=NRM&nValor1=1&nValor2=66733&nValor3=78703&strTipM=FN )
 (El artículo 4° del acuerdo N° 157 del 22 de mayo de 2009, modifica los anexos 31, 10, 12, 42, 8, debido a lo extenso de su contenido y tipo de formato, los mismos pueden ser consultados en la siguiente dirección: http://www.pgrweb.go.cr/Scij/busqueda/normativa/normas/nrm_texto_completo.aspx?param1=NRM&nValor1=1&nValor2=66733&nValor3=78703&strTipM=FN)
 (El artículo 5° del acuerdo N° 157 del 22 de mayo de 2009, modifica los anexos 18, 15, 33,31,15, 14 y 13, debido a lo extenso de su contenido y tipo de formato, los mismos pueden ser consultados en la siguiente dirección: http://www.pgrweb.go.cr/Scij/busqueda/normativa/normas/nrm_texto_completo.aspx?param1=NRM&nValor1=1&nValor2=66733&nValor3=78703&strTipM=FN)
-(El artículo 6° del acuerdo N° 157 del 22 de mayo de 2009, modifica el contenido del anexo 41 "Manual descriptivo para reporte de las carteras de Inversiones propias de las Bolsas de Valores y Subsidiarias y para el reporte de transacciones”, según se describe a continuación:
+(El artículo 6° del acuerdo N° 157 del 22 de mayo de 2009, modifica el contenido del anexo 41 "Manual descriptivo para reporte de las carteras de Inversiones propias de las Bolsas de Valores y Subsidiarias y para el reporte de transacciones", según se describe a continuación:
 "...a) Se incluyen los siguientes campos:
 NOMBRE | DESCRIPCIÓN | FORMATO | VALIDACIONES
-Nombre del emisor | Nombre de la entidad emisora del título valor | Alfanumérico | Debe suministrarse únicamente cuando el campo 3 (canal de venta) es igual a “I” (Mercados internacionales) ó “V” Ventanilla y el emisor NO tiene un nemotécnico en BNV.
-Nombre del instrumento | Nombre del título valor | Alfanumérico | Debe suministrarse únicamente cuando el campo 3 (canal de venta) es igual a “I” (Mercados internacionales) ó “V” Ventanilla y el instrumento NO tiene un nemotécnico en BNV.
-Código ISIN | Código internacional de identificador de valores | Alfanumérico | Obligatoria en el caso de que el campo 2 (canal de venta) indique “I” (mercados internacionales). También es obligatoria, en el caso de que el campo 2 (canal de venta) indique “V” ó “B” (Ventanilla o Bolsa) Y la bolsa cuente con dicho dato.
-1. Se modifican las validaciones de las columnas “Nemotécnico del emisor” y “Nemotécnico del instrumento”, con el fin de aclarar que en el caso de que la columna llamada “Tipo de título” sea “ 4” “Fondos de inversión abiertos”, se incluya como nemotécnico del emisor “SAFI”. Es obligatorio proporcionar la información en ambas columnas si el campo 3 (canal de venta) es igual a “B” Bolsa. En caso de que, el campo 3 (canal de venta) sea igual a “V” Ventanilla o “I” Internacional la información del nemotécnico del emisor e instrumento se suministra si es una es una emisión registrada en la Bolsa Nacional de Valores.
+Nombre del emisor | Nombre de la entidad emisora del título valor | Alfanumérico | Debe suministrarse únicamente cuando el campo 3 (canal de venta) es igual a "I" (Mercados internacionales) ó "V" Ventanilla y el emisor NO tiene un nemotécnico en BNV.
+Nombre del instrumento | Nombre del título valor | Alfanumérico | Debe suministrarse únicamente cuando el campo 3 (canal de venta) es igual a "I" (Mercados internacionales) ó "V" Ventanilla y el instrumento NO tiene un nemotécnico en BNV.
+Código ISIN | Código internacional de identificador de valores | Alfanumérico | Obligatoria en el caso de que el campo 2 (canal de venta) indique "I" (mercados internacionales). También es obligatoria, en el caso de que el campo 2 (canal de venta) indique "V" ó "B" (Ventanilla o Bolsa) Y la bolsa cuente con dicho dato.
+Se modifican las validaciones de las columnas "Nemotécnico del emisor" y "Nemotécnico del instrumento", con el fin de aclarar que en el caso de que la columna llamada "Tipo de título" sea " 4" "Fondos de inversión abiertos", se incluya como nemotécnico del emisor "SAFI". Es obligatorio proporcionar la información en ambas columnas si el campo 3 (canal de venta) es igual a "B" Bolsa. En caso de que, el campo 3 (canal de venta) sea igual a "V" Ventanilla o "I" Internacional la información del nemotécnico del emisor e instrumento se suministra si es una es una emisión registrada en la Bolsa Nacional de Valores.
 NOMBRE | VALIDACIONES
-Nemotécnico del emisor | Debe suministrarse únicamente si el campo 3 (canal de venta) es igual a “B”, es decir, negociado a través de la Bolsa Nacional de Valores. El nemotécnico debe corresponder a uno de los códigos de emisores de la BNV. También debe indicarse si el campo 3 (canal de venta) es igual a “I” (Mercados Internacionales) o si es igual a “V” (Ventanilla) y el emisor está registrado en la BNV (por ejemplo para una operación asociada con la deuda externa de C.R., el nemotécnico de emisor corresponde actualmente a “G”). En el caso de operaciones de recompra se deberá indicar el emisor del título valor subyacente de la operación. En el caso de que el campo 4 “Tipo de título” sea “4” “Fondos de inversión abiertos”, se puede incluir el nemotécnico “SAFI”.
-Nemotécnico del instrumento | Si el campo 3 (canal de venta) es igual a “B” (fue negociado a través de un puesto inscrito en la BNV), el nemotécnico debe corresponder a uno de los códigos de instrumentos de la BNV. Si el campo 3 (canal de venta) es igual a “I” (Mercados internacionales) o “V” (Ventanilla), y el instrumento está registrado en la BNV (por ejemplo para una operación asociada con la deuda externa de C.R., el nemotécnico de instrumento corresponde actualmente a “bde20”,por ejemplo). En el caso de operaciones de recompra se deberá indicar el instrumento del título valor subyacente de la operación.
-c) Se modifica el nombre del campo llamado “Código del custodio” para que en adelante se lea “Nombre del custodio”.)
-(El artículo 1° aparte b) del acuerdo N° 159 del 31 de julio de 2009, modifica el medio de envío y se adiciona el anexo 46 “Cuadro resumen de títulos valores recibidos o entregados al portador” para sociedades administradoras, puestos de bolsa y emisores de valores, con el fin de facilitar el envío de la información sobre títulos al portador que deben presentar las entidades reguladas, para que en adelante se lea así:
+Nemotécnico del emisor | Debe suministrarse únicamente si el campo 3 (canal de venta) es igual a "B", es decir, negociado a través de la Bolsa Nacional de Valores. El nemotécnico debe corresponder a uno de los códigos de emisores de la BNV. También debe indicarse si el campo 3 (canal de venta) es igual a "I" (Mercados Internacionales) o si es igual a "V" (Ventanilla) y el emisor está registrado en la BNV (por ejemplo para una operación asociada con la deuda externa de C.R., el nemotécnico de emisor corresponde actualmente a "G"). En el caso de operaciones de recompra se deberá indicar el emisor del título valor subyacente de la operación. En el caso de que el campo 4 "Tipo de título" sea "4" "Fondos de inversión abiertos", se puede incluir el nemotécnico "SAFI".
+Nemotécnico del instrumento | Si el campo 3 (canal de venta) es igual a "B" (fue negociado a través de un puesto inscrito en la BNV), el nemotécnico debe corresponder a uno de los códigos de instrumentos de la BNV. Si el campo 3 (canal de venta) es igual a "I" (Mercados internacionales) o "V" (Ventanilla), y el instrumento está registrado en la BNV (por ejemplo para una operación asociada con la deuda externa de C.R., el nemotécnico de instrumento corresponde actualmente a "bde20",por ejemplo). En el caso de operaciones de recompra se deberá indicar el instrumento del título valor subyacente de la operación.
+c) Se modifica el nombre del campo llamado "Código del custodio" para que en adelante se lea "Nombre del custodio".)
+(El artículo 1° aparte b) del acuerdo N° 159 del 31 de julio de 2009, modifica el medio de envío y se adiciona el anexo 46 "Cuadro resumen de títulos valores recibidos o entregados al portador" para sociedades administradoras, puestos de bolsa y emisores de valores, con el fin de facilitar el envío de la información sobre títulos al portador que deben presentar las entidades reguladas, para que en adelante se lea así:
 TIPO DE ENTIDAD | Emisores de valores Puestos de Bolsa Sociedades administradoras, Entidades comercializadoras y Fondos de inversión
 INFORME O REPORTE | Periodi- cidad | Plazo Máximo de entrega | Formato o normas sobre el Contenido | Medio de envío | Notas Aclaratorias
 Cuadro resumen de títulos valores recibidos o entregados al portador | Mensual | 15 días naturales después del cierre mensual | Anexo 46 | Correo Electrónico | Correo electrónico: titulosportador@sugeval.fi.cr)
@@ -44,20 +44,20 @@ Cuenta | Nombre de la cuenta
 CUENTA | NOMBRE DE LA CUENTA ANTERIOR | NOMBRE DE LA CUENTA MODIFICADO
 20115400 | (menos) Participaciones en el capital de otras empresas | (menos) Participaciones en acciones de otras empresas del grupo financiero
 (El artículo 3° aparte c) del acuerdo N° 162 del 23 de noviembre de 2009, modifica el contenido del anexo 10 "Reporte de inversiones propias Puesto de Bolsa para aclarar la moneda en que deben reportarse los campos "Valor Facial", "Costo de Adquisición", "Primas y descuentos acumuados", "Ganancias o pérdidas no realizadas", "Valor en Libors", y "Intereses Acumulados", según se describe a continuación:
-c) Se modifica el contenido del anexo 10 “Reporte de inversiones propias Puestos de Bolsa para aclarar la moneda en que deben reportarse los campos “Valor Facial”, Costo de Adquisición”, “Primas y descuentos acumulados”, Ganancias o pérdidas no realizadas”, “Valor en libros” y “Intereses acumulados”, así como las reglas de validación relacionadas con la moneda, según se describe a continuación:
-i) Los campos “Valor Facial”, “Costo de Adquisición”, “Primas y descuentos acumulados”, “Ganancias o pérdidas no realizadas”, “Valor en libros” y “Intereses acumulados” se deben expresar en la moneda en que está denominado el instrumento, salvo en los siguientes casos:
+c) Se modifica el contenido del anexo 10 "Reporte de inversiones propias Puestos de Bolsa para aclarar la moneda en que deben reportarse los campos "Valor Facial", Costo de Adquisición", "Primas y descuentos acumulados", Ganancias o pérdidas no realizadas", "Valor en libros" y "Intereses acumulados", así como las reglas de validación relacionadas con la moneda, según se describe a continuación:
+i) Los campos "Valor Facial", "Costo de Adquisición", "Primas y descuentos acumulados", "Ganancias o pérdidas no realizadas", "Valor en libros" y "Intereses acumulados" se deben expresar en la moneda en que está denominado el instrumento, salvo en los siguientes casos:
 a. El caso de reportos tripartitos, estos campos se deben expresar en la moneda en que se liquidará la operación.
-b. En el caso de títulos expresados en unidades de desarrollo, el campo “Valor facial” se expresa en unidades de desarrollo, mientras que los restantes se expresan en colones.
-ii) Se modifica la validación a la columna llamada “Código ISIN”, para que el caso de inversiones en reporto tripartito (indicador = RV) o en el mercado de dinero (Indicador = ML), se exceptúe de la revisión de la consistencia del ISIN también la moneda.
-iii) Se incluye el dato del “Premio del título” en las lista de campos que deben guardar consistencia con el código ISIN.
+b. En el caso de títulos expresados en unidades de desarrollo, el campo "Valor facial" se expresa en unidades de desarrollo, mientras que los restantes se expresan en colones.
+ii) Se modifica la validación a la columna llamada "Código ISIN", para que el caso de inversiones en reporto tripartito (indicador = RV) o en el mercado de dinero (Indicador = ML), se exceptúe de la revisión de la consistencia del ISIN también la moneda.
+iii) Se incluye el dato del "Premio del título" en las lista de campos que deben guardar consistencia con el código ISIN.
 (El artículo 3° aparte a) del acuerdo N° 162 del 23 de noviembre de 2009, modifica el nombre del campo 5 del anexo 12 "Reporte de las Posiciones abiertas a plazo" para que se lea " Fecha de Operación")
 (El artículo 4° aparte a) del acuerdo N° 162 del 23 de noviembre de 2009, modifica el contenido del anexo 18 "Plantillas de Carteras" aclarar la moneda en que deben reportarse los campos "Valor Facial", "Costo de Adquisición", "Primas y descuentos acumuados", "Ganancias o pérdidas no realizadas", "Valor en Libors", y "Intereses Acumulados", según se describe a continuación:
-a) Se modifica el contenido del anexo 18 “Plantilla de Carteras” de las sociedades administradoras de fondos de inversión para aclarar la moneda en que deben reportarse los campos “Valor Facial”, “Costo de Adquisición”, “Primas y descuentos acumulados”, Ganancias o pérdidas no realizadas”, “Valor en libros” y “Intereses acumulados”, así como las reglas de validación relacionadas con la moneda, según se describe a continuación:
-i) Los campos “Valor Facial”, “Costo de Adquisición”, “Primas y descuentos acumulados”, “Ganancias o pérdidas no realizadas”, “Valor en libros” y “Intereses acumulados” se deben expresar en la moneda en que está denominado el instrumento. En el caso de reportos tripartitos, estos campos se deben expresar en la moneda en que se liquidará la operación.
+a) Se modifica el contenido del anexo 18 "Plantilla de Carteras" de las sociedades administradoras de fondos de inversión para aclarar la moneda en que deben reportarse los campos "Valor Facial", "Costo de Adquisición", "Primas y descuentos acumulados", Ganancias o pérdidas no realizadas", "Valor en libros" y "Intereses acumulados", así como las reglas de validación relacionadas con la moneda, según se describe a continuación:
+i) Los campos "Valor Facial", "Costo de Adquisición", "Primas y descuentos acumulados", "Ganancias o pérdidas no realizadas", "Valor en libros" y "Intereses acumulados" se deben expresar en la moneda en que está denominado el instrumento. En el caso de reportos tripartitos, estos campos se deben expresar en la moneda en que se liquidará la operación.
 a. El caso de reportos tripartitos, estos campos se deben expresar en la moneda en que se liquidará la operación.
 b. En el caso de títulos expresados en unidades de desarrollo, el campo valor facial se expresa en unidades de desarrollo, mientras que los restantes se expresan en colones.
-ii) Se modifica la validación a la columna llamada “Código ISIN”, para que el caso de inversiones en reporto tripartito (indicador = RV) o en el mercado de dinero (Indicador = ML), se exceptúe de la revisión de la consistencia del ISIN también la moneda.
-iii) Se incluye el dato del “Premio del título” en las lista de campos que deben guardar consistencia con el código ISIN.
+ii) Se modifica la validación a la columna llamada "Código ISIN", para que el caso de inversiones en reporto tripartito (indicador = RV) o en el mercado de dinero (Indicador = ML), se exceptúe de la revisión de la consistencia del ISIN también la moneda.
+iii) Se incluye el dato del "Premio del título" en las lista de campos que deben guardar consistencia con el código ISIN.
 (El artículo 5° del acuerdo N° 162 del 23 de noviembre de 2009, modifica el contenido del anexo 19 "Informe de operaciones bursátiles" para definir los nuevos requerimientos de información de conformidad con la nueva plataforma tecnológica que incorpora cambios en los sistemas de negociación y en la estructura de la base de datos de transacciones, dicha modificación puede consultarse en el sitio Web http://www.sugeval.fi.cr/ )
 (El artículo 1° aparte a) del acuerdo N° 168 del 10 de marzo de 2010, modifica el anexo 13 Reporte Diario de fondos de inversión RD_FONDOS, debido a lo extenso de su contenido y tipo de formato, los mismos pueden ser consultados en la siguiente dirección: http://www.pgrweb.go.cr/Scij/Busqueda/Normativa/Normas/nrm_texto_completo.aspx?param1=NRM&nValor1=1&nValor2=69140&nValor3=83162&strTipM=FN)
 (El artículo 1° aparte b) del acuerdo N° 168 del 10 de marzo de 2010, adiciona cuentas al anexo 15 "Balance General de fondos de inversión BG_FONDOS", según se describe a continuación:
@@ -72,7 +72,7 @@ ANEXO | CATÁLOGO | Nº CUENTA | NOMBRE DE LA CUENTA
 c) Se modifica el nombre de las siguientes cuentas del Balance General de fondos de inversión BG_FONDOS (Anexo 15):
 ANEXO | CATÁLOGO | Nº CUENTA | NOMBRE DE LA CUENTA ANTERIOR | NOMBRE DE LA CUENTA MODIFICADO
 15 | BG_FONDOS | 751015010102 | Por las operaciones de recompra con posición omprador a plazo | Obligaciones por pagar Reporto tripartito de valores - comprador a plazo
-751015020102 | Por las operaciones de recompra con posición comprador a plazo | Obligaciones por pagar Reporto tripartito de valores – comprador a plazo
+751015020102 | Por las operaciones de recompra con posición comprador a plazo | Obligaciones por pagar Reporto tripartito de valores - comprador a plazo
 701002010100 | Márgenes aportados por operaciones de recompra | Márgenes aportados por operaciones de reporto
 701002020100 | Márgenes aportados por operaciones de recompra | Márgenes aportados por operaciones de reporto
 701005010110 | Dados en Garantía de recompras | Dados en Garantía de reportos
@@ -96,18 +96,18 @@ ANEXO | CATÁLOGO | Nº CUENTA | NOMBRE DE LA CUENTA
 15 | BG_FONDOS | 751015010700 | Por Mercado de Liquidez
 751015020600 | Por Mercado de Liquidez
 (El artículo 1° aparte f) del acuerdo N° 168 del 10 de marzo de 2010, modifica el contenido del anexo 18 "Plantilla de Carteras" para agregar un nuevop campo denominado "Tipo de Mercado" lsegún de describe a continuación:
-f) Se modifica el contenido del anexo 18 “Plantilla de Carteras” de las sociedades administradoras de fondos de inversión para agregar un nuevo campo denominado “Tipo de Mercado”, el cual identificará si la transacción corresponde a una negociación realizada en el mercado primario o en el mercado secundario. Este campo es requerido para todas las operaciones y los valores válidos son “P” = Mercado Primario y “S” = Mercado Secundario.
-(El artículo 2° del acuerdo N° 168 del 10 de marzo de 2010, modifica el contenido del anexo 10 "Reporte de inversiones propias Puestos de Bolsa" para agregar un nuevo campo denominado "Tipo de Mercado", según se describe a continuación: "...Modificaciones relativas a Puestos de Bolsa. Se modifica el contenido del anexo 10 “Reporte de inversiones propias Puestos de Bolsa” de las sociedades administradoras de fondos de inversión para agregar un nuevo campo denominado “Tipo de Mercado”, el cual identificará si la transacción corresponde a una negociación realizada en el mercado primario o en el mercado secundario. Este campo es requerido para todas las operaciones y los valores válidos son “P” = Mercado Primario y “S” = Mercado Secundario.
+f) Se modifica el contenido del anexo 18 "Plantilla de Carteras" de las sociedades administradoras de fondos de inversión para agregar un nuevo campo denominado "Tipo de Mercado", el cual identificará si la transacción corresponde a una negociación realizada en el mercado primario o en el mercado secundario. Este campo es requerido para todas las operaciones y los valores válidos son "P" = Mercado Primario y "S" = Mercado Secundario.
+(El artículo 2° del acuerdo N° 168 del 10 de marzo de 2010, modifica el contenido del anexo 10 "Reporte de inversiones propias Puestos de Bolsa" para agregar un nuevo campo denominado "Tipo de Mercado", según se describe a continuación: "...Modificaciones relativas a Puestos de Bolsa. Se modifica el contenido del anexo 10 "Reporte de inversiones propias Puestos de Bolsa" de las sociedades administradoras de fondos de inversión para agregar un nuevo campo denominado "Tipo de Mercado", el cual identificará si la transacción corresponde a una negociación realizada en el mercado primario o en el mercado secundario. Este campo es requerido para todas las operaciones y los valores válidos son "P" = Mercado Primario y "S" = Mercado Secundario.
 (El artículo 2° del acuerdo N° 175 del 22 de noviembre de 2010 aparte a), modifica el contenido del anexo 10 "Reporte de inversiones propias Puestos de Bolsa", para agregar dos códigos para diferenciar las operaciones en el mercado de liquidez: la posición vendedora a plazo (MLV) y la posición compradora a plazo (MLC))
 (Nota de Sinalevi: Mediante el artículo 2° aparte b) del acuerdo N° 175 del 22 de noviembre del 2010 se adicionan tres celdas en el anexo 45 " Reporte del auxiliar de cutodia", según se transcribe a continuación:
 [imagen]
 (El artículo 4° del acuerdo 175 del 22 de noviembre de 2010, elimina cuentas del anexo 33 "Indicadores de Riesgo de Fodos de Inversión (RI-FONDOS), as cuales se habían creado para los fondos de inversión abiertos que utilizaban el esquema de compensación por reembolso anticipado, dispuesto en el derogado artículo 64 del Reglamento general sobre sociedades administradoras y fondos de inversión, según se describe a continuación:
 [imagen]
-(Nota de Sinalevi: Mediante acuerdo SGV-178 del 26 de setiembre de 2011, se reforman los anexos 1 y 2 del presente acuerdo en la siguiente forma: "...I. Anexo 1 y 2 “Estados Financieros Emisores General” y “Estados Financieros Emisores Servicios Financieros y Bursátiles”, respectivamente:
-Se elimina de ambos anexos la hoja rotulada “Flujo de Caja Anual Proyectado”, catálogos FCP _EMISOR y FPA_EMISOR.
+(Nota de Sinalevi: Mediante acuerdo SGV-178 del 26 de setiembre de 2011, se reforman los anexos 1 y 2 del presente acuerdo en la siguiente forma: "...I. Anexo 1 y 2 "Estados Financieros Emisores General" y "Estados Financieros Emisores Servicios Financieros y Bursátiles", respectivamente:
+Se elimina de ambos anexos la hoja rotulada "Flujo de Caja Anual Proyectado", catálogos FCP _EMISOR y FPA_EMISOR.
 II. Cuadro de Información Periódica:
-En la hoja rotulada “Emisores” se eliminan las filas 4, 4a y 4b referentes al Flujo de Caja Anual Proyectado y se corre la numeración de las siguientes filas.")
-(Nota de Sinalevi: Mediante acuerdo SGV-178 del 26 de setiembre de 2011, se ordena reformar el anexo 14 "Estados Financieros Sociedades Administradoras de Fondos de Inversión", el Anexo 15 "Estados Finacieros de Fondos de Inversión", Anexo 18 "Plantilla de Carteras", Anexo 37 "Inversiones en títulos internacionales", Anexo 45 "Manual descriptivo para Reporte del auxiliar de custodia", Anexo 47 "sobre los esquemas XSD para los servicios Web de remisión de información periódica", de la siguiente forma: "... III . Anexo 14 “Estados Financieros Sociedades Administradoras de Fondos de Inversión”:
+En la hoja rotulada "Emisores" se eliminan las filas 4, 4a y 4b referentes al Flujo de Caja Anual Proyectado y se corre la numeración de las siguientes filas.")
+(Nota de Sinalevi: Mediante acuerdo SGV-178 del 26 de setiembre de 2011, se ordena reformar el anexo 14 "Estados Financieros Sociedades Administradoras de Fondos de Inversión", el Anexo 15 "Estados Finacieros de Fondos de Inversión", Anexo 18 "Plantilla de Carteras", Anexo 37 "Inversiones en títulos internacionales", Anexo 45 "Manual descriptivo para Reporte del auxiliar de custodia", Anexo 47 "sobre los esquemas XSD para los servicios Web de remisión de información periódica", de la siguiente forma: "... III . Anexo 14 "Estados Financieros Sociedades Administradoras de Fondos de Inversión":
 Se adicionan las siguientes cuentas de Balance General:
 Código de Catálogo | Cuenta | Cuenta Madre | Descripción
 BG_SAFI | 33102200 | 33102000 | Ajuste por valuación de Inversiones disponibles para la venta-Moneda Extranjera
@@ -118,8 +118,8 @@ BG_SAFI | 33104200 | 33104000 | Ajuste por valuación de instrumentos financiero
 BG_SAFI | 33104201 | 33104200 | Ganancias (pérdidas) no realizadas
 BG_SAFI | 33104202 | 33104200 | (Ajustes por impuesto diferido)
 BG_SAFI | 33104203 | 34104200 | Ajustes por impuesto diferido
-IV. Anexo 15 “Estados Financieros de Fondos de Inversión”:
-En la hoja rotulada “BG_FONDOS”:
+IV. Anexo 15 "Estados Financieros de Fondos de Inversión":
+En la hoja rotulada "BG_FONDOS":
 a) se modifica la descripción de las siguientes cuentas para que en adelante se lean de la siguiente forma:
 Código de Catálogo | Código Cuenta | Cuenta Madre | Descripción
 BG_FONDOS | 701005000000 | 701000000000 | Inversiones en Instrumentos Financieros
@@ -145,31 +145,31 @@ BG_Fondos | 701006025000 | 701006020000 | Primas y Descuentos sobre valores del 
 BG_Fondos | 701006025001 | 701006025000 | Primas sobre valores en otras monedas
 BG_Fondos | 701006025002 | 701006025000 | Descuentos sobre valores en otras monedas
 BG_Fondos | 701006029000 | 701006020000 | Ganancias (Pérdidas) no realizadas por valuación de inversiones del exterior
-V. Anexo 18 “Plantilla de Carteras”:
-Se modifica el párrafo cuarto del texto ubicado en la columna de “Observaciones” del campo No.7, de modo que se lea de la siguiente forma:
-“Cuando se trata de una inversión en el mercado de dinero (se debe anotar el nemotécnico del instrumento); ésta se acepta si el “ID_Reporto” es RV. En este caso el precio de mercado (campo 27) debe ser cero.”
-VI. Anexo 37 “Inversiones en títulos internacionales”:
-a) se adiciona en las hojas “Cartera propia” y “Cartera de Terceros” una columna en los cuadros “Instrumentos de Deuda” e “Instrumentos Derivados”, denominada “Moneda de Liquidación”, en ambos casos a la derecha de la columna “Valor de Mercado”;
+V. Anexo 18 "Plantilla de Carteras":
+Se modifica el párrafo cuarto del texto ubicado en la columna de "Observaciones" del campo No.7, de modo que se lea de la siguiente forma:
+"Cuando se trata de una inversión en el mercado de dinero (se debe anotar el nemotécnico del instrumento); ésta se acepta si el "ID_Reporto" es RV. En este caso el precio de mercado (campo 27) debe ser cero."
+VI. Anexo 37 "Inversiones en títulos internacionales":
+a) se adiciona en las hojas "Cartera propia" y "Cartera de Terceros" una columna en los cuadros "Instrumentos de Deuda" e "Instrumentos Derivados", denominada "Moneda de Liquidación", en ambos casos a la derecha de la columna "Valor de Mercado";
 b) se modifican las llamadas de atención al pie de los cuadros mencionados en el punto anterior, de modo que ahora se lean de la siguiente forma:
-i. llamada de atención 1: “Expresar el valor en dólares estadounidenses. Para efectos de calcular el valor de mercado se debe utilizar el precio limpio”,
-ii. llamada de atención 2: “Indicar la moneda en la que se hizo la liquidación de la operación”.
-VII . Anexo 45 “Manual descriptivo para Reporte del auxiliar de custodia”:
-a) en la celda 14 denominada “Valor numérico”:
-iii. se modifica el nombre para que en adelante se lea “Valor contable”.
-iv. se modifica la columna “Descripción” para que en adelante se lea de la siguiente forma:
-“En el caso de títulos de deuda corresponde a su valor facial.
+i. llamada de atención 1: "Expresar el valor en dólares estadounidenses. Para efectos de calcular el valor de mercado se debe utilizar el precio limpio",
+ii. llamada de atención 2: "Indicar la moneda en la que se hizo la liquidación de la operación".
+VII . Anexo 45 "Manual descriptivo para Reporte del auxiliar de custodia":
+a) en la celda 14 denominada "Valor numérico":
+iii. se modifica el nombre para que en adelante se lea "Valor contable".
+iv. se modifica la columna "Descripción" para que en adelante se lea de la siguiente forma:
+"En el caso de títulos de deuda corresponde a su valor facial.
 En el caso de acciones y participaciones corresponde a su valor de compra o valor de mercado (dependiendo de cuál sea el valor seleccionado para el registro contable).
-Cuando existan cupones considerar sólo los cupones físicos.”
-v. se modifica la columna “Validaciones” para que en adelante se lea de la siguiente forma:
-“No puede ser nulo. Se debe expresar en la moneda original.
+Cuando existan cupones considerar sólo los cupones físicos."
+v. se modifica la columna "Validaciones" para que en adelante se lea de la siguiente forma:
+"No puede ser nulo. Se debe expresar en la moneda original.
 Cuando la celda 7 (Tipo de instrumento) es igual a 1 (Deuda) indicar su valor facial. Para los títulos expresados en unidades de desarrollo el valor facial corresponde a la cantidad de unidades de desarrollo.
-Cuando la celda 7 (Tipo de instrumento) es diferente de 1 (Deuda) registrar su valor de compra o valor de mercado.”
-b) en la celda 15 denominada “Cantidades” se modifica la columna “Decimales” para que en adelante se lea “2”.
-c) en la celda 21 denominada “Estado del instrumento” se modifica en la columna “Validaciones” la llamada de atención número tres correspondiente a la descripción del Código “RT” para que en adelante se lea de la siguiente forma:
-“3/ Corresponde a los instrumentos que fueron entregados como garantía en las operaciones de reporto tripartito, incluyendo el mercado integrado de liquidez ( MIL ) y el mercado de dinero ( MEDI ).”
-VIII. Anexo 47 “sobre los esquemas XSD para los servicios Web de remisión de información periódica”:
+Cuando la celda 7 (Tipo de instrumento) es diferente de 1 (Deuda) registrar su valor de compra o valor de mercado."
+b) en la celda 15 denominada "Cantidades" se modifica la columna "Decimales" para que en adelante se lea "2".
+c) en la celda 21 denominada "Estado del instrumento" se modifica en la columna "Validaciones" la llamada de atención número tres correspondiente a la descripción del Código "RT" para que en adelante se lea de la siguiente forma:
+"3/ Corresponde a los instrumentos que fueron entregados como garantía en las operaciones de reporto tripartito, incluyendo el mercado integrado de liquidez ( MIL ) y el mercado de dinero ( MEDI )."
+VIII. Anexo 47 "sobre los esquemas XSD para los servicios Web de remisión de información periódica":
 a) se adicionan las siguientes tablas:
-i. “Tabla: Descripción campos de vector de precios”
+i. "Tabla: Descripción campos de vector de precios"
 TABLA: DESCRIPCIÓN CAMPOS
 DE VECTOR DE PRECIOS
 Nombre del Campo | Descripción | Tipo
@@ -188,16 +188,16 @@ Tipo de Vector (tipoVector) | Identifica el tipo de vector que defina el proveed
 Proveedor (proveedor) | Nemotécnico del Proveedor de Precios | Alfanumérico
 Versión (version) | Versión de la metodología del vector. | Numérico
 Moneda (moneda) | Nemotécnico de moneda según el estándar internacional ISO-4217 | Alfanumérico
-ii. “Tabla: Descripción de campos curvas”
+ii. "Tabla: Descripción de campos curvas"
 TABLA: DESCRIPCIÓN DE CAMPOS CURVAS
 Nombre del Campo | Descripción | Tipo
 Fecha (fecha) | Fecha de la curva | Fecha en formato dd/mm/aaaa
 Tipo (tipo) | Identifica el tipo de curva | Alfanumérico
-Subtipo (subtipo) | Identifica el subtipo de curva (si es que existe sub-categorización dentro de los “tipos”) | Alfanumérico
+Subtipo (subtipo) | Identifica el subtipo de curva (si es que existe sub-categorización dentro de los "tipos") | Alfanumérico
 Nodo (nodo) | Se refiere a los días vencimiento del punto a formar en la curva relacionado con la Tasa. | Numérico
 Tasa (tasa) | Tasa asociada al Nodo. | Número real (*)
-b) se modifica la “Tabla: Impugnaciones” para que en adelante se lea de la siguiente forma:
-“TABLA: DESCRIPCIÓN DE CAMPOS IMPUGNACIONES
+b) se modifica la "Tabla: Impugnaciones" para que en adelante se lea de la siguiente forma:
+"TABLA: DESCRIPCIÓN DE CAMPOS IMPUGNACIONES
 Nombre del Campo | Descripción | Tipo | Valores posibles (Si aplica)
 Fecha y hora de la impugnación (FECHA_Y_HORA_DE_LA_IMPUGNACION) | Fecha y hora de la impugnación | Fecha y hora Formato: AAAA-MM-DDTHH:MM:SS Donde, HH está entre 0 y 23 inclusive. Ej: 2011-02-14T15:54:43 | n.a.
 Folio (FOLIO) | Identificador único de la impugnación asignado por el proveedor. | Alfanumérico | n.a.
@@ -216,45 +216,45 @@ Precio (PRECIO) | Precio impugnado | Número real (*) | n.a.
 Precio monetario (PRECIO_MONETARIO) | Precio monetario impugnado | Número real (*) | n.a.
 Nombre de la curva impugnada (NOMBRE_CURVA_IMPUGNADA) | Nombre de la curva impugnada | Alfanumérico | n.a.
 n.a. no aplica | | |
-(*) Nota: los campos numéricos con formato real deben tener el punto como separador decimal y no contener separadores para miles.”)
-(Nota de Sinalevi: Mediante el artículo 2° del acuerdo SGV-A-187 del 21 de mayo del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el anexo 15 "Estados Financieros Fondos de Inversión", de la siguiente forma: "... Artículo 2°—Reforma al Anexo 15: Estados Financieros Fondos de Inversión.
+(*) Nota: los campos numéricos con formato real deben tener el punto como separador decimal y no contener separadores para miles.")
+(Nota de Sinalevi: Mediante el artículo 2° del acuerdo SGV-A-187 del 21 de mayo del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el anexo 15 "Estados Financieros Fondos de Inversión", de la siguiente forma: "... Artículo 2°-Reforma al Anexo 15: Estados Financieros Fondos de Inversión.
 Se reforma el Anexo 15 en los siguientes términos:
-a) En la hoja rotulada “Balance General”:
+a) En la hoja rotulada "Balance General":
 i. Se adicionan las siguientes cuentas:
 [imagen]
 ii. Se eliminan las siguientes cuentas:
 [imagen]
 iii. Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma:
 [imagen]
-b) En la hoja rotulada “Estado de Resultados”
+b) En la hoja rotulada "Estado de Resultados"
 i. Se adicionan las siguientes cuentas:
 [imagen]
 ii. Se eliminan las siguientes cuentas:
 [imagen]
 iii. Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma:
 [imagen]
-c) En la hoja rotulada “Estado de Resultados Acumulados”
+c) En la hoja rotulada "Estado de Resultados Acumulados"
 i. Se adicionan las siguientes cuentas:
 [imagen]
 ii. Se eliminan las siguientes cuentas:
 [imagen]
 iii. Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma:
 [imagen] )
-(Nota de Sinalevi: Mediante el artículo 3° del acuerdo SGV-A-187 del 21 de mayo del 2013, publicado en La Gaceta N° 241 del 13 de diciembre del 2013, se ordena reformar el anexo 4 "Operaciones Únicas y Múltiples", de la siguiente forma: "... Artículo 3°—Reforma al Anexo 4: Operaciones Únicas y Múltiples.
+(Nota de Sinalevi: Mediante el artículo 3° del acuerdo SGV-A-187 del 21 de mayo del 2013, publicado en La Gaceta N° 241 del 13 de diciembre del 2013, se ordena reformar el anexo 4 "Operaciones Únicas y Múltiples", de la siguiente forma: "... Artículo 3°-Reforma al Anexo 4: Operaciones Únicas y Múltiples.
 Se reforma el Anexo 4 en los siguientes puntos:
-d) En la fila 10, columna “Descripción”, el texto debe leerse de la siguiente manera: “Tipo de operación que se está reportando”.
+d) En la fila 10, columna "Descripción", el texto debe leerse de la siguiente manera: "Tipo de operación que se está reportando".
 e) Se adiciona una nueva fila 15, que debe leerse de la siguiente manera:
 [imagen] )
-(Nota de Sinalevi: Mediante el artículo 4° del acuerdo SGV-A-187 publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar los Anexos 8, 14 y 34 Estados Financieros de Puestos de Bolsa, Sociedades Administradoras y Grupos Financieros", de la siguiente forma: "... Artículo 4°—Reforma a los Anexos 8, 14 y 34 Estados Financieros de Puestos de Bolsa, Sociedades Administradoras y Grupos Financieros respectivamente:
-Se reforman los Anexos 8, 14 y 34 en la hoja rotulada “Balance General”, en los siguientes términos:
+(Nota de Sinalevi: Mediante el artículo 4° del acuerdo SGV-A-187 publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar los Anexos 8, 14 y 34 Estados Financieros de Puestos de Bolsa, Sociedades Administradoras y Grupos Financieros", de la siguiente forma: "... Artículo 4°-Reforma a los Anexos 8, 14 y 34 Estados Financieros de Puestos de Bolsa, Sociedades Administradoras y Grupos Financieros respectivamente:
+Se reforman los Anexos 8, 14 y 34 en la hoja rotulada "Balance General", en los siguientes términos:
 . Se adicionan las siguientes cuentas:
 [imagen]
 ii. Se eliminan las siguientes cuentas:
 [imagen]
 iii. Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma:
 [imagen] )
-(Nota de Sinalevi: Mediante el artículo 2° del acuerdo SGV-A-189 del 6 de noviembre del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el Anexo 15 "Estados Financieros Fondos de Inversión", de la siguiente forma: "...Artículo 2°—Reformas al Anexo 15 “Estados Financieros Fondos de Inversión”
-a) Se modifica el “Balance General” de los fondos de inversión, catálogo BG_FONDOS, de acuerdo con los siguientes cambios:
+(Nota de Sinalevi: Mediante el artículo 2° del acuerdo SGV-A-189 del 6 de noviembre del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el Anexo 15 "Estados Financieros Fondos de Inversión", de la siguiente forma: "...Artículo 2°-Reformas al Anexo 15 "Estados Financieros Fondos de Inversión"
+a) Se modifica el "Balance General" de los fondos de inversión, catálogo BG_FONDOS, de acuerdo con los siguientes cambios:
 i. Se adicionan las siguientes cuentas:
 [imagen]
 [imagen]
@@ -262,42 +262,42 @@ ii. Se modifica la descripción de las siguientes cuentas para que en adelante s
 [imagen]
 iii. Se eliminan las siguientes cuentas:
 [imagen]
-Se modifica el “Estado de Resultados Acumulado” de los fondos de inversión, catálogo RA_FONDOS, de acuerdo con los siguientes cambios:
-1. Se adicionan las siguientes cuentas:
+Se modifica el "Estado de Resultados Acumulado" de los fondos de inversión, catálogo RA_FONDOS, de acuerdo con los siguientes cambios:
+Se adicionan las siguientes cuentas:
 [imagen]
-2. Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma:
+Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma:
 [imagen]
 iii. Se eliminan las siguientes cuentas:
 [imagen]
-b) Se modifica el “Estado de Resultados” de los fondos de inversión, catálogo ER_FONDOS, de acuerdo con los siguientes cambios:
+b) Se modifica el "Estado de Resultados" de los fondos de inversión, catálogo ER_FONDOS, de acuerdo con los siguientes cambios:
 i. Se adicionan las siguientes cuentas:
 [imagen]
-3. Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma: [imagen]
-4. Se eliminan las siguientes cuentas:
-5. [imagen]
-(Nota de Sinalevi: Mediante el artículo 3° del acuerdo SGV-A-189 del 6 de noviembre del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el Anexo 3 "Reporte diario fondos de inversión", de la siguiente forma: "...Artículo 3°—Reforma al anexo 13 “Reporte diario fondos de inversión”
-Se adiciona al “Reporte Diario de Fondos”, catálogo RD_FONDOS, la siguiente cuenta:
+Se modifica la descripción de las siguientes cuentas para que en adelante se lea de la siguiente forma: [imagen]
+Se eliminan las siguientes cuentas:
 [imagen]
-(Nota de Sinalevi: Mediante el artículo 4° del acuerdo SGV-A-189 del 6 de noviembre del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el Anexo 3 "Reporte diario fondos de inversión", de la siguiente forma: "... Artículo 4°—Reformas al anexo 20 “Estados Financieros Fondos de Titularización”
+(Nota de Sinalevi: Mediante el artículo 3° del acuerdo SGV-A-189 del 6 de noviembre del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el Anexo 3 "Reporte diario fondos de inversión", de la siguiente forma: "...Artículo 3°-Reforma al anexo 13 "Reporte diario fondos de inversión"
+Se adiciona al "Reporte Diario de Fondos", catálogo RD_FONDOS, la siguiente cuenta:
+[imagen]
+(Nota de Sinalevi: Mediante el artículo 4° del acuerdo SGV-A-189 del 6 de noviembre del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el Anexo 3 "Reporte diario fondos de inversión", de la siguiente forma: "... Artículo 4°-Reformas al anexo 20 "Estados Financieros Fondos de Titularización"
 a) Se eliminan los catálogos: Balance General de fondos de titularización (BG_FOTI), Estado de Resultados mensual de Fondos de Titularización (ER_FOTI), Estado de Resultados Acumulado de Fondos de Titularización (RA_FOTI), y el Flujo de Caja Proyectado de Fondos de titularización (FCP_FOTI).
-b) Se eliminan las siguientes cuentas del reporte “Información Complementaria de Fondos de titularización”, catálogo IC_FOTI: [imagen]
-c) Se eliminan las siguientes cuentas del reporte “Flujo de Caja Real”, catálogo FCR _FOTI:
+b) Se eliminan las siguientes cuentas del reporte "Información Complementaria de Fondos de titularización", catálogo IC_FOTI: [imagen]
+c) Se eliminan las siguientes cuentas del reporte "Flujo de Caja Real", catálogo FCR _FOTI:
 [imagen]
-(Nota de Sinalevi: Mediante el artículo 5° del acuerdo SGV-A-189 del 6 de noviembre del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el Anexo 36 "Cambios a la información en fondos inmobiliarios", de la siguiente forma: "... Artículo 5°—Reformas al Anexo 36 “Cambios a la información en fondos inmobiliarios”
+(Nota de Sinalevi: Mediante el artículo 5° del acuerdo SGV-A-189 del 6 de noviembre del 2013, publicado en La Gaceta N ° 241 del 13 de diciembre del 2013, se ordena reformar el Anexo 36 "Cambios a la información en fondos inmobiliarios", de la siguiente forma: "... Artículo 5°-Reformas al Anexo 36 "Cambios a la información en fondos inmobiliarios"
 a) Se adicionan al anexo 36 las secciones e, f y g, de acuerdo con el siguiente detalle:
 . [imagen]
-“e. Cambios en las características históricas del inmueble
+"e. Cambios en las características históricas del inmueble
 f. Cambios en las características del inquilino. [imagen]
 g. Unificación de códigos [imagen]
 En adicionan a la sección c. del anexo 36, el código del inmueble que se arrienda y el tipo de identificación, para que se lea de la siguiente manera: [imagen]
 En adiciona a la sección d. del anexo 36, el código del inmueble que se arrienda, para que se lea de la siguiente manera: [imagen]
-Se modifica el campo “Dimensiones del inmueble” de la sección a. del anexo 36, para que se lea de la siguiente manera:
+Se modifica el campo "Dimensiones del inmueble" de la sección a. del anexo 36, para que se lea de la siguiente manera:
 [imagen]
-(Nota de Sinalevi: Mediante acuerdo SGV-194 del 18 de diciembre de 2014, se acordó modificar el presente acuerdo, al no indicar con claridad la ubicación de la afectación se trasncribe la misma: "Artículo 1º—Modificaciones a los medios de comunicación para la remisión de información periódica. Se modifican los medios para la remisión de información periódica de los siguientes reportes, para que puedan ser remitidos mediante el Sistema de Mensajería de Documentos Electrónicos (MENDOCEL):
+(Nota de Sinalevi: Mediante acuerdo SGV-194 del 18 de diciembre de 2014, se acordó modificar el presente acuerdo, al no indicar con claridad la ubicación de la afectación se trasncribe la misma: "Artículo 1º-Modificaciones a los medios de comunicación para la remisión de información periódica. Se modifican los medios para la remisión de información periódica de los siguientes reportes, para que puedan ser remitidos mediante el Sistema de Mensajería de Documentos Electrónicos (MENDOCEL):
 a) Todos los participantes: Comunicación del nombre del Contador Público Autorizado o firma de auditores externos del emisor y los garantes; Cuadro resumen de títulos valores recibidos o entregados al portador; Informe de Gobierno Corporativo.
 b) Sociedades administradoras y Fondos de Inversión: Reporte de comercialización de fondos extranjeros; Avalúo pericial y financiero de bienes inmuebles de fondos inmobiliarios; Cambios en la información inmobiliaria; Informe de avance de proyectos inmobiliarios de fondos de desarrollo inmobiliario; y Plantilla de cartera de megafondos.
 c) Puestos de bolsa: Reporte trimestral de inversiones en títulos internacionales; Reporte de comercialización de fondos extranjeros; e Información sobre Ofertas y Transacciones.")
-(Nota de Sinalevi: Mediante acuerdo SGV-194 del 18 de diciembre de 2014, se acordo reformar el presente acuerdo, al no contener el mismo los anexos, ya que no fuerón publicados se transcribe la reforma: "Artículo 4.—Otras Modificaciones: a. Disposiciones relativas a Emisores:
+(Nota de Sinalevi: Mediante acuerdo SGV-194 del 18 de diciembre de 2014, se acordo reformar el presente acuerdo, al no contener el mismo los anexos, ya que no fuerón publicados se transcribe la reforma: "Artículo 4.-Otras Modificaciones: a. Disposiciones relativas a Emisores:
 1. Se adiciona:
 i. La solicitud de información para los Fideicomisos de Titularización de acuerdo con el siguiente detalle:
 1. Informe del estado de carteras de activos titularizados (Anexo 54).
@@ -306,14 +306,14 @@ i. La solicitud de información para los Fideicomisos de Titularización de acue
 ii. Informe trimestral sobre el avance del proyecto de infraestructura, para los Vehículos de Propósito Especial para financiamiento de proyectos.
 2. Se modifica el Anexo 3 Estado de Captación de emisiones estandarizadas para que en adelante se lea Reportes de Colocaciones, el cual incluye los catálogos para colocaciones de emisiones de deuda estandarizada, emisiones de acciones y colocaciones de valores de participación de fondos cerrados de acuerdo con el siguiente detalle:
 Anexo 3 Colocaciones.xlsx
-3. Se elimina del Anexo 1 “Estados Financieros Emisores del Sector Industria, Comercio, Agrícola, Servicios Y Fideicomisos” y del Anexo 2 “Estados Financieros Emisores del Sector Servicios Financieros y Bursátiles”, el catálogo ER_ EMISOR y ER_EMISFB respectivamente, correspondiente a los estados financieros del trimestre que se reporta.
+3. Se elimina del Anexo 1 "Estados Financieros Emisores del Sector Industria, Comercio, Agrícola, Servicios Y Fideicomisos" y del Anexo 2 "Estados Financieros Emisores del Sector Servicios Financieros y Bursátiles", el catálogo ER_ EMISOR y ER_EMISFB respectivamente, correspondiente a los estados financieros del trimestre que se reporta.
 b. Disposiciones relativas a Puestos de Bolsa:
 1. Se adicionan los catálogos contables para las bolsas de valores y centrales de valores, de acuerdo con el siguiente detalle:
 Anexo 50 EF-Bolsas.xlsx
 Anexo 51-Ceval.xls
 2. Se modifica:
 i. La periodicidad de los estados financieros no auditados de las bolsas de valores y centrales de valores de trimestral a mensual, y su plazo de entrega se define en 7 días hábiles posteriores al cierre mensual.
-ii. Para los reportes de “Reporte de Inversiones Propias” (Anexo 10) y “Reporte de Posiciones Abiertas a Plazo” (Anexo 12) se modifica la cantidad máxima de dígitos que permiten actualmente los sistemas, pasando los números de operación de 10 a 12 dígitos, con el propósito de ser consistente con la estructura de los números de contratos que establece Patron Clear.
+ii. Para los reportes de "Reporte de Inversiones Propias" (Anexo 10) y "Reporte de Posiciones Abiertas a Plazo" (Anexo 12) se modifica la cantidad máxima de dígitos que permiten actualmente los sistemas, pasando los números de operación de 10 a 12 dígitos, con el propósito de ser consistente con la estructura de los números de contratos que establece Patron Clear.
 Anexo 10 Manual descriptivo para Reporte
 de inversiones propias.doc
 Anexo 12 Reporte de las Posiciones abiertas a plazo.doc
@@ -473,19 +473,19 @@ Cuenta | Descripción
 | Activos Netos del Fondo
 410250000000 a la 410600000000 | Serie C,...Serie J
 | Total número de Participaciones
-510250000000 a la 510600000000 | Serie C,…Serie J
+510250000000 a la 510600000000 | Serie C,.Serie J
 | Rendimiento del Fondo Últimos 12 meses
-610302500000 a la 610306000000 | Serie C,… Serie J
+610302500000 a la 610306000000 | Serie C,. Serie J
 | Rendimiento del Fondo Últimos 30 días
-630302500000 a la 630306000000 | Serie C,…Serie J
+630302500000 a la 630306000000 | Serie C,.Serie J
 | Comisión de Administración sobre activo neto seriados
-710012500000 a la 710016000000 | Serie C,…Serie J
+710012500000 a la 710016000000 | Serie C,.Serie J
 | Comisión de Administración sobre rendimiento seriados
-710022500000 a la 710026000000 | Serie C,… Serie J
+710022500000 a la 710026000000 | Serie C,. Serie J
 Por lo anterior, el Anexo 13: Reporte Diario de Fondos de Inversión, se debe leer de la siguiente forma:
 Anexo 13 Reporte diario.xls .")
 (Nota de Sinalevi: Mediante acuerdo SGV-194 del 18 de diciembre de 2014, se acordó reformar el presente acuerdo, al no contener el mismo los anexos, ya que no fueron publicados se transcribe la reforma: "
-Artículo 5º—Disposiciones relativas a Sociedades Administradoras de Fondos de Inversión, Puestos de Bolsa, Proveedores de Precios y Grupos Financieros supervisados por SUGEVAL
+Artículo 5º-Disposiciones relativas a Sociedades Administradoras de Fondos de Inversión, Puestos de Bolsa, Proveedores de Precios y Grupos Financieros supervisados por SUGEVAL
 a) Se adiciona:
 i. Las siguientes cuentas, de los Anexos 8, 14 y 34 Estados Financieros de Puestos de Bolsa, Sociedades Administradoras de Fondos de Inversión y Grupos Financieros:
 Código de Catálogo | Cuenta | Cuenta madre | Descripción
@@ -494,23 +494,23 @@ BG_SAFI BG_PUESTO BG_GF | 24602200 | 24602000 | Impuesto sobre la renta diferido
 ER_SAFI RA_SAFI ER_PUESTO RA_PUESTO RA_GF | 44111000 | 44100000 | Gasto por aporte al Auxilio de Cesantía
 ii. En relación con la información sobre legitimación de capitales y financiamiento al terrorismo, solamente para Puestos de Bolsa y Sociedades Administradoras de Fondos de Inversión, se adiciona la remisión anual del informe del auditor externo y la remisión de la información del Anexo 49, de acuerdo con el siguiente detalle:
 Anexo 49 Reporte de Clasificación de riesgo.xlsx
-b) Se modifica el campo 3 denominado como “Cuenta de valores del cliente en el depositario local o custodio extranjero” del Anexo 45 para estandarizar la variable con el uso actual de la industria y con ello mejorar la capacidad de explotación de esa información, de acuerdo con el siguiente detalle:
+b) Se modifica el campo 3 denominado como "Cuenta de valores del cliente en el depositario local o custodio extranjero" del Anexo 45 para estandarizar la variable con el uso actual de la industria y con ello mejorar la capacidad de explotación de esa información, de acuerdo con el siguiente detalle:
 Anexo 45 Manual descriptivo para Reporte del auxiliar de custodia.doc
 c) Se elimina el Anexo 5 referente a la remisión de los Reportes de Operaciones Sospechosas.
 d) Se elimina el Anexo 47 referente al esquema XSD para los vectores de precios, curvas de rendimientos utilizadas en metodologías de valoración e impugnaciones.
 e) Se elimina el Anexo 29: Nombramiento de Auditores Externos.")
 (Nota de Sinalevi: Mediante el punto b) del acuerdo SGV-A-203 del 18 de diciembre del 2015, se acordó adicionar los siguientes anexos : Anexos 56: Estados Financieros para los emisores no financieros que aplican NIIF. , El Anexo 57: Estados Financieros para fideicomisos emisores, de titularización y de infraestructura, El Anexo 58: Estados Financieros para los emisores del sector público que aplican NIC-SP., El Anexo 59: Estados Financieros para sociedades calificadoras de riesgo y proveedores de precios, El Anexo 60: Estados Financieros para Centrales de Valores, al no contener el mismo los anexos, ya que no fueron publicados se transcribe la reforma)
-(Nota de Sinalevi: Mediante el punto c) del acuerdo SGV-A-203 del 18 de diciembre del 2015, se acordó reformar el anexo 45, al no contener el mismo los anexos ya que no fueron publicados se transcribe la reforma: “Se adiciona la obligación de las entidades de custodia que son centrales de valores de remitir el detalle de los títulos custodiados de conformidad con el anexo 45,”)
+(Nota de Sinalevi: Mediante el punto c) del acuerdo SGV-A-203 del 18 de diciembre del 2015, se acordó reformar el anexo 45, al no contener el mismo los anexos ya que no fueron publicados se transcribe la reforma: "Se adiciona la obligación de las entidades de custodia que son centrales de valores de remitir el detalle de los títulos custodiados de conformidad con el anexo 45,")
 (Nota de Sinalevi: Mediante el punto d) del acuerdo SGV-A-203 del 18 de diciembre del 2015, se reforman los anexos del presente acuerdo, al no contener el mismo los anexos ya que no fueron publicados se transcribe la reforma: D. Se modifican los siguientes anexos:
 i. Anexo 13. Reporte de información diaria de Fondos de Inversión: Se agregan las cuentas de Suscripciones y Redenciones, así como la cuenta de beneficios periódicos distribuidos por fondos cerrados, se aclara que las líneas relacionadas con el rendimiento de los últimos 30 días solo aplica para fondos del mercado de dinero.
 ii. Anexo 14. Estados Financieros de Sociedades Administradoras de Fondos de Inversión; se incluyen cuentas de impuestos retenidos por pagar en moneda extranjera.
 iii. Anexo 17. Reporte de Cartera de Inversionistas: Se eliminan las cuentas de Suscripciones y Redenciones ya que se trasladan de este reporte quincenal al reporte diario.
 iv. Anexo 10: Manual descriptivo de reporte de operaciones propias de Puestos de Bolsa y Anexo 18 Plantilla de Carteras de Fondos de Inversión y Sociedades Administradoras de Fondos de Inversión. Para los títulos identificados con un código ISIN registrado en la Bolsa Nacional de Valores, no sería requerido que se completen los campos: nemotécnico del emisor, nombre del emisor, nemotécnico del instrumento, nombre del instrumento, fecha de vencimiento, fecha pago de interés, periodicidad, premio e indicador de estandarización. Para las operaciones que no tienen esas características se debe remitir la información completa como lo detalla el anexo. Se eliminan los campos: sector del emisor y base de cálculo.
 v. Anexo 50: Estados financieros no auditados de bolsas de valores. Se agregan las cuentas necesarias que permiten a las entidades remitir información consolidada:
-vi. Anexo 3: Reporte de Colocaciones, se hace aclaración de los conceptos en los instructivos.”)
+vi. Anexo 3: Reporte de Colocaciones, se hace aclaración de los conceptos en los instructivos.")
 (Nota de Sinalevi: Mediante el punto e) del acuerdo SGV-A-203 del 18 de diciembre del 2015, se eliminan el Anexo 1 Estados financieros de Emisores del Sector Industria, Comercio, Agrícola, Servicios y Fideicomisos, el Anexo 2 Estados Financieros de Emisores del Sector Servicios Financieros y Bursátiles. Se incluyeron nuevos catálogos para esta información, y el Anexo 12 Manual descriptivo para posiciones abiertas a plazo: considerando que en la actualidad la información se puede obtener de las bases de datos de la BNV)
 (Nota de Sinalevi: Mediante acuerdo SGV-A-214 del 1 de junio de 2016, se acordó reformar el anexo 13 Reporte Diario de Fondos de Inversión (RD_FONDOS) y anexo 17 Reporte de Composición de Carteras de Inversionistas, al no contener la presente norma los anexos, ya que no fueron publicados se transcribe la reforma:
-Artículo 1º—Modificaciones
+Artículo 1º-Modificaciones
 a. En el anexo 13. Reporte Diario de Fondos de Inversión (RD_FONDOS). Se modifica el nombre de la cuenta 800000000000 Total de Inversionistas, de manera que aplique solamente a los fondos abiertos:
 ANEXO 13
 Reporte Diario Fondos.xlsx
@@ -521,10 +521,10 @@ Fondos de Inversión Abiertos
 c. En el anexo 17. Reporte de Composición de Carteras de Inversionistas (RC_FONDOS); se modifica el nombre de las cuentas 120000000000, 12300000000 y 124000000000, de manera que se refiera a cuentas abiertas de inversionistas:
 ANEXO 17
 Carteras Inversionistas.xlsx
-d. En el Cuadro de Información Periódica: Pestaña “Sociedades Administradoras de Fondos de Inversión”, en la línea 18, se incluye una nota aclaratoria, ya que la remisión del Reporte de Composición de Carteras de Inversionistas (Anexo 17) solo aplica a los fondos abiertos:
-”)
-(Nota de Sinalevi: Mediante el artículo 7 del acuerdo SGV-218 del 19 de agosto de 2016, se acordó modificar lo siguiente: Artículo 7. Modificaciones al Acuerdo “SGV-A-75 Suministro de información periódica”
-a)En el Cuadro de Información Periódica: Pestaña “Sociedades Administradoras de Fondos de Inversión”, en la línea 15, se ajusta la referencia que se realiza al acuerdoSGV-A-150 que se deroga y se homologa el plazo de entrega al establecido para los vehículos de propósito especial para financiamiento de proyectos de infraestructura:
+d. En el Cuadro de Información Periódica: Pestaña "Sociedades Administradoras de Fondos de Inversión", en la línea 18, se incluye una nota aclaratoria, ya que la remisión del Reporte de Composición de Carteras de Inversionistas (Anexo 17) solo aplica a los fondos abiertos:
+")
+(Nota de Sinalevi: Mediante el artículo 7 del acuerdo SGV-218 del 19 de agosto de 2016, se acordó modificar lo siguiente: Artículo 7. Modificaciones al Acuerdo "SGV-A-75 Suministro de información periódica"
+a)En el Cuadro de Información Periódica: Pestaña "Sociedades Administradoras de Fondos de Inversión", en la línea 15, se ajusta la referencia que se realiza al acuerdoSGV-A-150 que se deroga y se homologa el plazo de entrega al establecido para los vehículos de propósito especial para financiamiento de proyectos de infraestructura:
 INFORME O REPORTE | Periodicidad | Plazo máximo de entrega | Formato o normas sobre el Contenido | Medio de envío | Notas Aclaratorias
 Informe de avance de fondos de desarrollo de proyectos | Trimestral | 20 días hábiles después del cierre de cada trimestre | n/a | Sistema Ingresador | n/a
 b)En el anexo 15 Estados financieros fondos de inversión (catálogo BG_FONDOS), se modifica el nombre de las cuentas 702007000000, 751015010900 y 751015020900,de manera que se lean:
@@ -536,17 +536,17 @@ BG Fondos.xls
 c) En el anexo 22 Reporte de composición de cartera de fondos inmobiliarios (Archivo No. 1); se modifica la fórmula de porcentaje de ocupación del inmueble, de manera que se lea:
 N° | Nombre | Descripción | Formato | Long | Dec.
 7 | Porcentaje de ocupación | Porcentaje de Ocupación del Inmueble Metros arrendados de los inquilinos actuales Metros disponibles de arrendamiento totales (arrendados, disponibles) | Numérico | 7 | 2
-d)Se deroga el anexo 38 “Reporte de comercialización de fondos extranjeros” para atender las nuevas disposiciones que surgen de la emisión del “Reglamento de intermediación de valores y actividades complementarias” y se deroga el anexo 40“Plantilla de mega fondos” por cuanto la información será capturada en el actual anexo18.En este sentido, se realizan los ajustes en el Cuadro de Información Periódica: Pestañas “Sociedades Administradoras de Fondos de Inversión”, “Puestos de Bolsa” e“ Intermediarios financieros supervisados por SUGEF”.
-e)Se deroga el campo “Fecha pago intereses” del anexo 18 Plantilla de Carteras.”)
+d)Se deroga el anexo 38 "Reporte de comercialización de fondos extranjeros" para atender las nuevas disposiciones que surgen de la emisión del "Reglamento de intermediación de valores y actividades complementarias" y se deroga el anexo 40"Plantilla de mega fondos" por cuanto la información será capturada en el actual anexo18.En este sentido, se realizan los ajustes en el Cuadro de Información Periódica: Pestañas "Sociedades Administradoras de Fondos de Inversión", "Puestos de Bolsa" e" Intermediarios financieros supervisados por SUGEF".
+e)Se deroga el campo "Fecha pago intereses" del anexo 18 Plantilla de Carteras.")
 (Nota de Sinalevi: Mediante el artículo 1° del acuerdo SGV-A-220 del 30 de enero del 2017 se reforman los anexos 61, 3, 13, 59, debido a lo extenso de su contenido y tipo de formato dichas reformas deben ser consultadas aquí)
 (Nota de Sinalevi: Mediante el artículo 2° del acuerdo SGV-A-220 del 30 de enero del 2017 se reforman los anexo 19, anexo 3a, 3b y 3c, anexo 6 y anexo 17debido a lo extenso de su contenido y tipo de formato dichas reformas deben ser consultadas aquí)
 (Nota de Sinalevi: Mediante el artículo 3° del acuerdo SGV-A-220 del 30 de enero del 2017 se reforman los anexos 17 debido a lo extenso de su contenido y tipo de formato dichas reformas deben ser consultadas aquí)
 (Nota de Sinalevi: Mediante el artículo 5° del acuerdo SGV-A-220 del 30 de enero del 2017 se adiciona los transitorios IV y V al presente acuerdo, el texto de dichos transitorios son los siguientes: Transitorio IV.
 Las entidades que prestan servicios de intermediación y actividades complementarias que deben remitir el Anexo 61 Reporte de Operaciones Internacionales, cuentan con tres meses a partir de la entrada en vigencia de este acuerdo para su cumplimiento.
 Transitorio V.
-La eliminación de la remisión de una copia del Informe de Gobierno Corporativo a Emisores, Sociedades Administradoras de Fondos de Inversión, Puestos de Bolsa, Sociedades Titularizadoras, Fiduciarias, Universalidades y a Bolsas de Valores, rige a partir del 1 de julio del 2017.”)
-(Nota de Sinalevi: Mediante el artículo 1° del acuerdo SGV-222 del 7 de marzo de 2017, se acordó la eliminación del campo “Cuenta de Valores” del “Informe de Operaciones Internacionales”, Anexo 61, que es de atención para los Intermediarios de Valores (Puestos de Bolsa, Bancos del Sistema Bancario Nacional), de acuerdo con el siguiente detalle: Anexo 61: Reporte de operaciones internacionales.docx “)
-(Nota de Sinalevi: Mediante el artículo 1° del acuerdo SGV-231 del 3 de julio de 2018, se acordó reformar el presente acuerdo de la siguiente manera: “a. Se modifica integralmente el Reporte del auxiliar de custodia (Anexo 45) de acuerdo con el archivo adjunto.
+La eliminación de la remisión de una copia del Informe de Gobierno Corporativo a Emisores, Sociedades Administradoras de Fondos de Inversión, Puestos de Bolsa, Sociedades Titularizadoras, Fiduciarias, Universalidades y a Bolsas de Valores, rige a partir del 1 de julio del 2017.")
+(Nota de Sinalevi: Mediante el artículo 1° del acuerdo SGV-222 del 7 de marzo de 2017, se acordó la eliminación del campo "Cuenta de Valores" del "Informe de Operaciones Internacionales", Anexo 61, que es de atención para los Intermediarios de Valores (Puestos de Bolsa, Bancos del Sistema Bancario Nacional), de acuerdo con el siguiente detalle: Anexo 61: Reporte de operaciones internacionales.docx ")
+(Nota de Sinalevi: Mediante el artículo 1° del acuerdo SGV-231 del 3 de julio de 2018, se acordó reformar el presente acuerdo de la siguiente manera: "a. Se modifica integralmente el Reporte del auxiliar de custodia (Anexo 45) de acuerdo con el archivo adjunto.
 Anexo45.docx
 b. Se modifica la frecuencia de envío de los estados financieros de las Sociedades Calificadoras de Riesgo y los Proveedores de Precios de acuerdo con el siguiente detalle:
 Informe o Reporte | Formato o normas sobre el Contenido | Periodicidad vigente | Periodicidad Propuesta
@@ -677,10 +677,10 @@ Anexo 15 EF Fondos.xls
 h. Se modifica el plazo de entrega de los estados financieros no auditados de los Puestos de Bolsa, Sociedades Administradoras de Fondos de Inversión y Sociedades Titularizadoras y Fiduciarias, de acuerdo con el siguiente detalle:
 | Formato o normas sobre el Contenido | Plazo máximo de entrega vigente | Plazo máximo de entrega propuesto
 Estados financieros no auditados | Anexos 8, 14, 52 | 7 días hábiles después del cierre mensual | 5 días hábiles después del cierre mensual
-Cuadro_Inf_peridodica.xls”)
+Cuadro_Inf_peridodica.xls")
 (Nota de Sinalevi: Mediante el artículo 1° del acuerdo SGV-235 del 26 de julio de 2019, se acordó reformar el presente acuerdo de la siguiente manera: a. Se agregan las siguientes cuentas al Estado de Situación Financiera (BG_FONDOS) y Estado de Resultados Acumulado y del Periodo (RA_FONDOS, ER_FONDOS) del Anexo 15, y al reporte de Indicadores de Riesgo RI_FONDOS (Anexo 33) de acuerdo con el siguiente detalle:
 CATÁLOGO | CÓDIGO | NOMBRE
-BG_FONDOS | 701001010110 | Banco Central de Costa Rica – cuenta de reserva
+BG_FONDOS | 701001010110 | Banco Central de Costa Rica - cuenta de reserva
 BG_FONDOS | 701001010111 | Banco de Costa Rica
 BG_FONDOS | 701001010112 | Banco Nacional de Costa Rica
 BG_FONDOS | 701001010113 | Banco Hipotecario de la Vivienda
@@ -697,7 +697,7 @@ BG_FONDOS | 701001010123 | Banco Promérica de Costa Rica S.A.
 BG_FONDOS | 701001010124 | Prival Bank (Costa Rica) S.A.
 BG_FONDOS | 701001010125 | Scotiabank de Costa Rica S.A.
 BG_FONDOS | 701001010199 | Otros
-BG_FONDOS | 701001020110 | Banco Central de Costa Rica – cuenta de reserva
+BG_FONDOS | 701001020110 | Banco Central de Costa Rica - cuenta de reserva
 BG_FONDOS | 701001020111 | Banco de Costa Rica
 BG_FONDOS | 701001020112 | Banco Nacional de Costa Rica
 BG_FONDOS | 701001020113 | Banco Hipotecario de la Vivienda
@@ -716,13 +716,13 @@ BG_FONDOS | 701001020125 | Scotiabank de Costa Rica S.A.
 BG_FONDOS | 701001020185 | Bancos del Exterior
 BG_FONDOS | 701001020199 | Otros
 BG_FONDOS | 701016000000 | Impuesto al Valor Agregado Soportado
-BG_FONDOS | 701016010000 | Impuesto al Valor Agregado Soportado – Colones
-BG_FONDOS | 701016020000 | Impuesto al Valor Agregado Soportado – Moneda Extranjera
+BG_FONDOS | 701016010000 | Impuesto al Valor Agregado Soportado - Colones
+BG_FONDOS | 701016020000 | Impuesto al Valor Agregado Soportado - Moneda Extranjera
 BG_FONDOS | 701017000000 | Impuesto al Valor Agregado Deducible
-BG_FONDOS | 701017010000 | Impuesto al Valor Agregado Deducible – Colones
-BG_FONDOS | 701017020000 | Impuesto al Valor Agregado Deducible – Moneda Extranjera
-BG_FONDOS | 751015010505 | Impuesto al Valor Agregado Devengado – Colones
-BG_FONDOS | 751015010805 | Impuesto al Valor Agregado Devengado– Moneda Extranjera
+BG_FONDOS | 701017010000 | Impuesto al Valor Agregado Deducible - Colones
+BG_FONDOS | 701017020000 | Impuesto al Valor Agregado Deducible - Moneda Extranjera
+BG_FONDOS | 751015010505 | Impuesto al Valor Agregado Devengado - Colones
+BG_FONDOS | 751015010805 | Impuesto al Valor Agregado Devengado- Moneda Extranjera
 RA_FONDOS | 852043000000 | Gastos por impuesto al valor agregado
 ER_FONDOS | 851043000000 | Gastos por impuesto al valor agregado
 | |
@@ -752,14 +752,14 @@ BG_FONDOS | 751015020801 | Impuestos por pagar | Impuestos por pagar - Impuesto 
 BG_FONDOS | 751015020804 | Impuestos retenidos por pagar | Impuestos retenidos por pagar - Impuesto al valor agregado Neto por Pagar
 Anexo 15 EF Fondos.xls
 Anexo 33 Indicadores de Riesgo.xls
-d. Se agregan los siguientes campos a los anexos 10 y 18 “Reporte de Carteras”; de acuerdo con el siguiente detalle:
+d. Se agregan los siguientes campos a los anexos 10 y 18 "Reporte de Carteras"; de acuerdo con el siguiente detalle:
 No. | Nombre | Descripción | Formato | Long | Dec | Observaciones
-23 | Deterior o | Registra los incrementos significativos en el riesgo crediticio sobre una base colectiva de un emisor. | Numérico | 18 | 3 | Debe ser un valor negativo o cero. No puede ser positivo o nulo. Solo aplica cuando el campo 32 es: “Coste Amortizado” o “Valor Razonable con cambios en Otro Resultado Integral”
+23 | Deterior o | Registra los incrementos significativos en el riesgo crediticio sobre una base colectiva de un emisor. | Numérico | 18 | 3 | Debe ser un valor negativo o cero. No puede ser positivo o nulo. Solo aplica cuando el campo 32 es: "Coste Amortizado" o "Valor Razonable con cambios en Otro Resultado Integral"
 31 | Modelo de Negocio | Determina cómo se gestionan juntos los grupos de activos financieros para lograr un objetivo de negocio concreto. | Alfanumér ico | 5 | | No puede ser nulo. Los valores válidos se detallan en la tabla 11 del anexo.
 e. Se agrega la Tabla No. 11, se modifican las tablas No. 1 y 7 y se actualizan las reglas de validación de los siguientes campos: Canal de Venta, Nemotécnico del emisor, Nombre del emisor, Nemotécnico del instrumento, Nombre del instrumento, Indicador de estandarización, Sector del emisor, Tasa interés neta, Premio, Valor facial, Intereses acumulados de conformidad con el detalle en los anexos 10 y 18:
 Anexo 10 Plantilla de Carteras PB.docx
 Anexo 18 Planilla de Carteras SAFIS.docx
-f. En el Anexo 3.a.2 Instructivo para el “Reporte de movimientos de deuda estandarizada” se cambia el nombre “ventanilla” a “colocación directa” de acuerdo con lo siguiente:
+f. En el Anexo 3.a.2 Instructivo para el "Reporte de movimientos de deuda estandarizada" se cambia el nombre "ventanilla" a "colocación directa" de acuerdo con lo siguiente:
 Código | Cuenta | Vigente | Propuesto
 | VENTANILLA | | COLOCACIÓN DIRECTA
 12020000 | Cantidad de valores colocados | Número de valores colocados de la emisión, por medio del mecanismo de ventanilla. | Número de valores colocados de la emisión, por medio del mecanismo de colocación directa.
@@ -778,15 +778,15 @@ Código | Cuenta | Vigente | Propuesto
 | | Se indica en miles de unidades de la moneda de la emisión. | Se indica en miles de unidades de la moneda de la emisión.
 g. En el anexo 3; se modifica la redacción de los instructivos de la siguiente manera:
 Vigente | Propuesto
-“… 1. El resultado de las colocaciones directas, colocaciones directas inversas y subastas inversas, de mercado primario cuando el emisor realice directamente la transacción, es decir que no utilice los sistemas transaccionales de la Bolsa Nacional de Valores autorizados en el Registro Nacional de Valores e Intermediarios de Costa Rica. Inclusive en los casos en que no se hayan colocado valores, si se recibieron ofertas de compra, deberá enviarse la información sobre dichas ofertas conforme lo requerido en el catálogo. …” | “… 1. El resultado de las colocaciones directas, subastas y contratos de colocación, de mercado primario cuando el emisor realice directamente la transacción, es decir que no utilice los sistemas transaccionales de la Bolsa Nacional de Valores autorizados en el Registro Nacional de Valores e Intermediarios de Costa Rica. Inclusive en los casos en que no se hayan colocado valores, si se recibieron ofertas de compra, deberá enviarse la información sobre dichas ofertas conforme lo requerido en el catálogo. 1 Bis. El BCCR y Gobierno deben reportar las colocaciones directas, subastas y contratos de colocación cuando no utilicen los sistemas transaccionales de la Bolsa Nacional de Valores. 1.Ter. El resultado de las subastas inversas y las colocaciones directas inversas. …”
+". 1. El resultado de las colocaciones directas, colocaciones directas inversas y subastas inversas, de mercado primario cuando el emisor realice directamente la transacción, es decir que no utilice los sistemas transaccionales de la Bolsa Nacional de Valores autorizados en el Registro Nacional de Valores e Intermediarios de Costa Rica. Inclusive en los casos en que no se hayan colocado valores, si se recibieron ofertas de compra, deberá enviarse la información sobre dichas ofertas conforme lo requerido en el catálogo. ." | ". 1. El resultado de las colocaciones directas, subastas y contratos de colocación, de mercado primario cuando el emisor realice directamente la transacción, es decir que no utilice los sistemas transaccionales de la Bolsa Nacional de Valores autorizados en el Registro Nacional de Valores e Intermediarios de Costa Rica. Inclusive en los casos en que no se hayan colocado valores, si se recibieron ofertas de compra, deberá enviarse la información sobre dichas ofertas conforme lo requerido en el catálogo. 1 Bis. El BCCR y Gobierno deben reportar las colocaciones directas, subastas y contratos de colocación cuando no utilicen los sistemas transaccionales de la Bolsa Nacional de Valores. 1.Ter. El resultado de las subastas inversas y las colocaciones directas inversas. ."
 Anexo 3 Colocaciones.xlsx
-h. Se adiciona el Anexo No.62 “Reporte Servicios de Intermediación de Valores” con el propósito de obtener información agregada sobre Puestos de Bolsa; la cantidad de clientes a los cuales se le prestan servicios según el Reglamento de Intermediación y Actividades, así como de algunos volúmenes de carteras bajo administración individual y volúmenes de colocaciones de oferta privada en que participa el puesto de bolsa. Adicionalmente se modifica el Cuadro de Información Periódica de la siguiente forma:
+h. Se adiciona el Anexo No.62 "Reporte Servicios de Intermediación de Valores" con el propósito de obtener información agregada sobre Puestos de Bolsa; la cantidad de clientes a los cuales se le prestan servicios según el Reglamento de Intermediación y Actividades, así como de algunos volúmenes de carteras bajo administración individual y volúmenes de colocaciones de oferta privada en que participa el puesto de bolsa. Adicionalmente se modifica el Cuadro de Información Periódica de la siguiente forma:
 Reporte | Periodicidad | Plazo máximo de entrega | Formato | Medio de envío | Notas Aclaratorias
 Reporte de Servicios de Intermediación de Valores | Trimestral | 5 días hábiles después del cierre trimestral | Anexo 62 | Sistema Ingresador | Corresponde únicamente a Puestos de Bolsa
 Cuadro_Inf_periodica.xls
 Anexo 62 Reporte Servicios Intermediación.xls
 i. Se agregan los incisos r, s y t al Artículo 3. Naturaleza de la información periódica, divulgación y registro, como excepción para mantener la confidencialidad de esta información:
-r. Identificación del nombre de las entidades bancarias en las que se mantienen las cuentas corrientes de los fondos de inversión (Estado de Situación Financiera BG_Fondos)”, Anexo 15. (cuentas:
+r. Identificación del nombre de las entidades bancarias en las que se mantienen las cuentas corrientes de los fondos de inversión (Estado de Situación Financiera BG_Fondos)", Anexo 15. (cuentas:
 701001010110, 701001010111, 701001010112, 701001010113,
 701001010114, 701001010115, 701001010116, 701001010117,
 701001010118, 701001010119, 701001010120, 701001010121,
@@ -796,19 +796,19 @@ r. Identificación del nombre de las entidades bancarias en las que se mantienen
 01001020116, 701001020117, 701001020118, 701001020119,
 701001020120, 701001020121, 701001020122, 701001020123,
 701001020124, 701001020125, 701001020185, 701001020199
-s. Identificación de la proyección de reembolsos en fondos abiertos del “Reporte de Indicadores de Riesgo”, Anexo 33.
+s. Identificación de la proyección de reembolsos en fondos abiertos del "Reporte de Indicadores de Riesgo", Anexo 33.
 (cuentas: 800000000000, 800500000000, 801000000000, 801500000000, 802000000000, 802500000000, 803000000000).
-t. Reporte de Servicios de Intermediación de Valores. Anexo 62.”
-j. Se elimina el Reporte de Clasificación de riesgo de los clientes Normativa Ley 8204 (Anexo 49)”)
-(Nota de Sinalevi: Mediante el artículo 1° del acuerdo N° SGV-A-237 del 28 de noviembre de 2019, se acordó reformar la presente norma, de la siguiente forma: “Artículo 1. Adiciones
+t. Reporte de Servicios de Intermediación de Valores. Anexo 62."
+j. Se elimina el Reporte de Clasificación de riesgo de los clientes Normativa Ley 8204 (Anexo 49)")
+(Nota de Sinalevi: Mediante el artículo 1° del acuerdo N° SGV-A-237 del 28 de noviembre de 2019, se acordó reformar la presente norma, de la siguiente forma: "Artículo 1. Adiciones
 a Se agregan las siguientes cuentas al Estado de Situación Financiera de Fondos de Inversión, Sociedades Calificadoras y Proveedores de Precios:
 b Se modifica el nombre de las siguientes cuentas:
 c Se eliminan las siguientes cuentas:
 Anexo 15 EF Fondos.xls Anexo 31 Suficiencia Patrimonial.xls
-Anexo 59 EF Sociedades Calificadoras y Proveedores.xls”)
-(Nota de Sinalevi: Mediante el acuerdo SGV-A-239 del 1 de marzo del 2020, se acordó adicionar el transitorio VI al presente acuerdo, el texto de dicho transitorio es el siguiente: “Transitorio VI. Se modifica en forma extraordinaria el plazo de entrega de la información que se detalla en el siguiente cuadro, para las fechas de corte comprendidas entre el 31 de marzo y el 31 de mayo del 2020:
-Para los informes antes detallados, a partir de la información con fecha de corte 1ero de junio 2020 y en adelante, se reanudará el envío de dicha información de acuerdo con los plazos ordinarios establecidos en el “Cuadro de Información Periódica”, que se indica en el artículo 2 del acuerdo SGV-A-75.
-La información del Reporte Diario de los Fondos de inversión, para los días 6 al 8 de abril del 2020, deberá ser remitida a más tardar el día 13 de abril del 2020 a las 12 m.d.”)
+Anexo 59 EF Sociedades Calificadoras y Proveedores.xls")
+(Nota de Sinalevi: Mediante el acuerdo SGV-A-239 del 1 de marzo del 2020, se acordó adicionar el transitorio VI al presente acuerdo, el texto de dicho transitorio es el siguiente: "Transitorio VI. Se modifica en forma extraordinaria el plazo de entrega de la información que se detalla en el siguiente cuadro, para las fechas de corte comprendidas entre el 31 de marzo y el 31 de mayo del 2020:
+Para los informes antes detallados, a partir de la información con fecha de corte 1ero de junio 2020 y en adelante, se reanudará el envío de dicha información de acuerdo con los plazos ordinarios establecidos en el "Cuadro de Información Periódica", que se indica en el artículo 2 del acuerdo SGV-A-75.
+La información del Reporte Diario de los Fondos de inversión, para los días 6 al 8 de abril del 2020, deberá ser remitida a más tardar el día 13 de abril del 2020 a las 12 m.d.")
 (Nota de Sinalevi: Mediante el artículo 1° del acuerdo N° SGV-A-243 del 5 de noviembre el 2020, se acordó reformar la presente norma de la siguiente manera: Artículo 1.- Adiciones.
 Incorporar el catálogo de cuentas de orden, al conjunto de información contable de fondos de inversión, en atención a lo dispuesto en artículo 41 del Reglamento General sobre Sociedades Administradoras y Fondos de Inversión.
 | Catálogo | Cuenta | Nombre
@@ -875,12 +875,12 @@ CO_FONDOS | 925310000000 | Ganancia por venta de instrumentos financieros |
 CO_FONDOS | 954000000000 | Ganancias por diferencial cambiario |
 CO_FONDOS | 925500000000 | Otros ingresos |
 | | | | | |
-Anexo 15 EF Fondos.xlsx”)
-(Nota de Sinalevi: Mediante el artículo 2° del acuerdo N° SGV-A-243 del 5 de noviembre el 2020, se acordó reformar la presente norma de la siguiente manera: “Artículo 2.- Modificaciones
+Anexo 15 EF Fondos.xlsx")
+(Nota de Sinalevi: Mediante el artículo 2° del acuerdo N° SGV-A-243 del 5 de noviembre el 2020, se acordó reformar la presente norma de la siguiente manera: "Artículo 2.- Modificaciones
 a. Se modifica el medio de envío de la siguiente información:
 Reporte | Formato/Norma | Medio de envío vigente | Medio de envío propuesto | Notas Aclaratorias
-Estados financieros auditados de: · Emisores · Fideicomisos de garantía · Grupos Financieros · Puestos de Bolsa · Sociedades Administradoras de Fondos de Inversión y Fondos de Inversión · Sociedades Fiduciarias, Titularizadoras y Universalidades · Bolsas de valores, Centrales de valores y Calificadoras de riesgo · Proveedores de Precios · Universalidades | Reglamento de Información Financiera | Papel | Sistema Ingresador | Deberán remitirse en un documento firmado digitalmente por: · Auditor Externo · Los responsables de la entidad. Los estados financieros podrán recibirse en papel únicamente cuando las firmas de los responsables por la entidad sean extranjeros.
-Carta de Gerencia y otras comunicaciones del auditor externo. | Reglamento General de Auditores Externos | Papel | Sistema Ingresador | · Las comunicaciones del auditor externo deben venir firmadas digitalmente por el Auditor Externo · Los asientos de ajuste y la hoja de consolidación firmada por los responsables de la entidad. Tanto las comunicaciones del auditor externo como los asientos de ajuste y la hoja de consolidación deben venir en
+Estados financieros auditados de: Emisores Fideicomisos de garantía Grupos Financieros Puestos de Bolsa Sociedades Administradoras de Fondos de Inversión y Fondos de Inversión Sociedades Fiduciarias, Titularizadoras y Universalidades Bolsas de valores, Centrales de valores y Calificadoras de riesgo Proveedores de Precios Universalidades | Reglamento de Información Financiera | Papel | Sistema Ingresador | Deberán remitirse en un documento firmado digitalmente por: Auditor Externo Los responsables de la entidad. Los estados financieros podrán recibirse en papel únicamente cuando las firmas de los responsables por la entidad sean extranjeros.
+Carta de Gerencia y otras comunicaciones del auditor externo. | Reglamento General de Auditores Externos | Papel | Sistema Ingresador | Las comunicaciones del auditor externo deben venir firmadas digitalmente por el Auditor Externo Los asientos de ajuste y la hoja de consolidación firmada por los responsables de la entidad. Tanto las comunicaciones del auditor externo como los asientos de ajuste y la hoja de consolidación deben venir en
 Reporte | Formato/Norma | Medio de envío vigente | Medio de envío propuesto | Notas Aclaratorias
 | | | | documentos separados de los estados financieros completos, considerando que se trata de información confidencial.
 Nota: Para la remisión de la información citada mediante sistema ingresador se sigue como es usual lo establecido en las Guías y Manuales de los servicios de Ventanilla Virtual. http://www.sugeval.fi.cr/serviciosytramites/Paginas/ServiciosVentanillaVirtual.aspx
@@ -920,8 +920,49 @@ Cantidad de contratos de estructuración de emisiones vigentes, para oferta priv
 Cuadro Información Periódica: Puestos de Bolsa
 Informe o Reporte | Formato o normas sobre el Contenido | Nota aclaratoria vigente | Nota aclaratoria propuesta
 Servicio de Intermediación de Valores | Anexo 62 | Corresponde únicamente a Puestos de Bolsa | Corresponde únicamente a Puestos de Bolsa y Bancos del Sistema Bancario Nacional que brinden servicios de intermediación de valores.
-Anexo 62 Reporte Servicios Intermediacion.xlsx”)
-SGV-A-75.—Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
+Anexo 62 Reporte Servicios Intermediacion.xlsx")
+(Nota de Sinalevi: Mediante el artículo 1° del acuerdo N° SGV-A-249 del 17 de mayo de 2021, se acordó incorpora al Anexo 22 Reporte de Composición de Carteras de Fondos Inmobiliarios los rubros de Deterioro y el Valor en libros del inmueble a la fecha valor de la cartera de acuerdo con lo siguiente:
+ARCHIVO No. 1 - PLANTILLA DE INMUEBLES
+No. | Nombre | Descripción | Formato | Long. | Dec.
+4 | Deterioro de activos | Corresponde al monto del deterioro, que debe coincidir con | Numérico | 18 | 2
+No. | Nombre | Descripción | Formato | Long. | Dec.
+| | las cuentas bajo el mismo concepto en el Estado de Situación (702005019000 o 702005029000). | | |
+7 | Valor en libros | Valor en libros del inmueble a la fecha valor de la cartera. Corresponde a la sumatoria del valor de adquisición, Estimación por valuación a valor razonable, Deterioro de Activos, Mejoras capitalizadas y Ampliaciones Capitalizadas (suma 2,3,4,5 y 6). | Numérico | 18 | 2
+Anexo 22 Composición de Carteras F.I.I.
+b) Se incorpora al Cuadro de Información Periódica el requerimiento para la recepción de estados financieros no auditados para los fondos de inversión de capital de riesgo:
+Aplica a: | Informe /o Reporte | Periodicidad | Plazo máximo de entrega | Formato o normas sobre el Contenido | Medio de envío | Nota Aclaratoria
+Fondos de Inversión de Capital de Riesgo | Estados financieros no auditados trimestrales para los fondos de inversión de capital de riesgo | Trimestrales | 15 días hábiles después del cierre trimestral | Anexo 15 | Sistema Ingresador | Solo para fondos de inversión de capital de riesgo
+cuadro_Inf_periodica.xls")
+(Nota de Sinalevi: Mediante el artículo 2° del acuerdo N° SGV-A-249 del 17 de mayo de 2021, se acordó modificar en el Manual descriptivo de Carteras de Inversión (Anexos 10 y 18) las validaciones de los siguientes campos::
+Nombre | Validación Vigente | Validación Propuesta
+Nemotécnico del emisor Y Nombre del emisor | No es requerido para títulos con código ISIN registrados en una bolsa de valores costarricense que indiquen Canal de Venta 'B', 'V' o en operaciones del mercado de liquidez en donde el campo 14 (Estado de la inversión propia) es 'MLV'. Es obligatorio para el resto de los instrumentos. En el caso de operaciones de reporto tripartito se deberá indicar el emisor del título valor subyacente de la operación. En el caso de inversiones en valores de participación de fondos abiertos (tipo de título =4), que no hayan sido adquiridos en el exterior, el nemotécnico del emisor debe coincidir con el código del fondo, disponible en los reportes de fondos de inversión publicados en la página web de la Superintendencia General de Valores | No debe indicarse para títulos con código ISIN registrados en una bolsa de valores costarricense que indiquen Canal de Venta 'B', 'V' ni para operaciones del Mercado de Liquidez que utilizan el Canal de Venta 'C', tampoco debe indicarse en inversiones en reporto tripartito (Estado de la inversión RV). Es obligatorio para el resto de los instrumentos. En el caso de inversiones en valores de participación de fondos abiertos (tipo de título =4), que no hayan sido adquiridos en el exterior, el nemotécnico del emisor debe coincidir con el código del fondo, disponible en los reportes de fondos de inversión publicados en la página web de la Superintendencia General de Valores
+Nemotécnico del instrumento y Nombre del instrumento | No es requerido para títulos con código ISIN registrados en una bolsa de valores costarricense que indiquen Canal de Venta 'B' o 'V'. o en operaciones del mercado de liquidez en donde el campo 14 (Estado de la inversión propia) es 'MLV'. Es obligatorio para el resto de los instrumentos. En el caso de operaciones de reporto tripartito se deberá indicar el nemotécnico del instrumento del título valor subyacente de la operación. Cuando se trata de una inversión en el mercado de dinero (se debe anotar el nemotécnico del instrumento); ésta se acepta si el "ID_Reporto" es RV. | No debe indicarse para títulos con código ISIN registrados en una bolsa de valores costarricense que indiquen Canal de Venta 'B', 'V' ni para operaciones del Mercado de Liquidez que utilizan el Canal de Venta 'C', tampoco debe indicarse en inversiones en reporto tripartito (Estado de la inversión RV). Es obligatorio para el resto de los instrumentos En el caso de inversiones en valores de participación de fondos abiertos (Tipo de título =4), que no hayan sido adquiridos en el exterior, el nemotécnico del instrumento debe coincidir con el código del fondo, disponible en los reportes de fondos de inversión publicados en la
+Nombre | Validación Vigente | Validación Propuesta
+| En el caso de inversiones en valores de participación de fondos abiertos (tipo de título =4), que no hayan sido adquiridos en el exterior, el nemotécnico del instrumento debe coincidir con el código del fondo, disponible en los reportes de fondos de inversión publicados en la página web de la Superintendencia General de Valores. | página web de la Superintendencia General de Valores.
+Indicador de estandarización | No es requerido para títulos con código ISIN registrados en una bolsa de valores costarricense que indiquen Canal de Venta 'B', 'V' o en operaciones del mercado de liquidez en donde el campo 14 (Estado de la inversión propia) es 'MLV'. Es obligatorio para el resto de los instrumentos. | No debe indicarse para títulos con código ISIN registrados en una bolsa de valores costarricense que indiquen Canal de Venta 'B', 'V' ni para operaciones del Mercado de Liquidez que utilizan el Canal de Venta 'C', tampoco debe indicarse para inversiones en reporto tripartito (Estado de la inversión RV). Es obligatorio para el resto de los instrumentos.
+Sector del emisor | No es requerido para títulos con código ISIN registrados en una bolsa de valores costarricense que indiquen Canal de Venta 'B', 'V' o en operaciones del mercado de liquidez en donde el campo 14 (Estado de la inversión propia) es 'MLV'. Es obligatorio para el resto de los instrumentos. Los valores válidos se encuentran en la tabla 4 del anexo. | No debe indicarse para títulos inscritos en el Registro Nacional de Valores (RNVI) que indiquen Canal de Venta 'B', 'V' ni para operaciones del Mercado de Liquidez que utilizan el Canal de Venta 'C' tampoco debe indicarse para inversiones en reporto tripartito (Estado de la inversión RV). Es obligatorio para el resto de los instrumentos. Los valores válidos se encuentran en la tabla 4 del anexo.
+Premio | No es requerido para títulos con código ISIN registrados en una bolsa de valores costarricense que indiquen Canal de Venta 'B', 'V' o en operaciones del mercado de liquidez en donde el campo 14 (Estado de la inversión propia) es 'MLV'. | No debe indicarse para títulos con código ISIN registrados en una bolsa de valores costarricense que indiquen Canal de Venta 'B', 'V' ni para operaciones del Mercado de Liquidez que utilizan el Canal de Venta 'C', tampoco debe indicarse para inversiones en reporto tripartito (Estado de la inversión RV). Es
+Nombre | Validación Vigente | Validación Propuesta
+| Se utiliza en el caso de títulos valores de renta fija con cupón ajustable | obligatorio para el resto de los instrumentos. Se utiliza en el caso de títulos valores de renta fija con cupón ajustable
+Anexo 10. Plantilla Carteras.docx
+Anexo 18. Plantilla de Carteras Safis.docx
+b) Se modifica la periodicidad de la Suficiencia Patrimonial y Control de Límites (Anexo 31) en el Cuadro de Información Periódica:
+Informe/Reporte | Periodicidad vigente | Plazo máximo de entrega vigente | Periodicidad propuesta | Plazo máximo de entrega propuesto
+Suficiencia patrimonial y control de límites | Diaria | 5 días hábiles después de cada día de reporte | Mensual | 5 días hábiles después del cierre mensual
+c) Se modifica el medio de envío y las notas aclaratorias de la Certificación de Bienes de Registro Público de acuerdo con lo siguiente:
+Informe/Reporte | Medio de envío vigente | Notas aclaratorias vigentes | Medio de envío propuesto | Notas aclaratorias propuestas
+Certificación de bienes del Registro Público | Papel | Aplica para los casos de emisiones con garantías reales y fideicomisos de garantía a los cuales se les han traspasado bienes inmuebles. La certificación no debe tener más de tres meses de emitida | MENDOCEL SGV-A-188 | Aplica para los casos de emisiones con garantías reales y fideicomisos de garantía a los cuales se les han traspasado bienes inmuebles. La certificación no debe tener más de tres meses de emitida y debe remitirse mediante firma digital avanzada.
+d) Se modifican las notas aclaratorias para indicar cuáles reportes no aplican a los Fondos de Inversión de Capital de Riesgo:
+Informe | Notas aclaratorias
+Informe Trimestral de fondos de inversión | (.) No es aplicable a los fondos de inversión de capital de riesgo.
+Estados financieros no auditados mensuales | (.) No es aplicable a los fondos de inversión de capital de riesgo.
+Reporte de composición de cartera de inversionistas | (.) No es aplicable a los fondos de inversión de capital de riesgo.
+Reporte quincenal de composición de las carteras de valores financieros | Se exceptúa de la remisión de esta información a los fondos de inversión de capital de riesgo.
+Indicadores de riesgo | No es aplicable a los fondos de inversión de capital de riesgo.
+Reporte diario de fondos | No es aplicable a los fondos de inversión de capital de riesgo.
+Reporte de Colocaciones | (.) Aplicable a los fondos de inversión de capital de riesgo a partir del momento en que se registren sus participaciones para negociación en un mercado secundario organizado.
+")
+SGV-A-75.-Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 Considerando:
 I. Que mediante artículo 13 del Acta de la Sesión 81 -99. celebrada el 18 de marzo de 1999. el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y otras Obligaciones de Información con lineamientos sobre los deberes de comunicación de los diferentes participantes en el mercado de valores.
 II. Que este marco general confiere al Superintendente la potestad para definir el contenido, la periodicidad, los medios de suministro y los medios de difusión de la información periódica que debe remitirse a la Superintendencia General de Valores.
@@ -929,11 +970,10 @@ III. Que mediante artículo 20 del capítulo VIII de la Ley N° 7786. Ley Sobre 
 IV. Que mediante artículo 21 del Reglamento sobre Normativa Prudencial aplicable a los Puestos de Bolsa, publicado en La Gaceta No 162 del 20 de agosto de 1999. se establece que los puestos de bolsa deberán remitir a la Superintendencia General de Valores, en la forma y oportunidad que ésta establezca, los estados sobre el nivel exigido de recursos propios y el nivel de grandes riesgos.
 V. Que se ha considerado oportuno centralizar en un solo cuerpo normativo todas las obligaciones de suministro de información periódica. Con este propósito, se han incorporado a este Acuerdo los requerimientos de información establecidos en los siguientes acuerdos: SGV-A 50 "Instrucciones Sobre la Información Periódica que Deberán Remitir las Entidades Administradoras de Emisiones Provenientes de Procesos de Titularización" del 1 de noviembre del 2001, SGV-A-16 "Normativa Contable para Puestos de Bolsa, Sociedades Administradoras de Fondos de Inversión y Fondos de Inversión" del 19 de agosto de 1999 y sus respectivos acuerdos de reforma (SGV-A-38. SGV-A-54. SGV-A-63 y SGV-A-67) y SGV- A-69 "Instrucciones para la Remisión de las Carteras de Valores de los Fondos de Inversión" del 28 de octubre del 2002. Por lo tanto, se procedió a derogar dichos acuerdos. Por tanto:
 Dispone el presente acuerdo:
-SGV-A-75. ACUERDO SOBRE EL SUMINISTRO DE INFORMACIÓN PERIÓDICA (1)
-(1) Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
+SGV-A-75. ACUERDO SOBRE EL SUMINISTRO DE INFORMACIÓN PERIÓDICA(1)
+(1)Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 (Nota de Sinalevi: El presente acuerdo fue reformado parcialmente y reproducido su texto de forma íntegra mediante el punto a) del acuerdo N°SGV-A-203 del 18 de diciembre del 2015, mediante publicación en La Gaceta N° 97 del 20 de mayo del 2016, por lo que se reproduce a continuación:)
-Artículo 1.—Alcance
-El presente Acuerdo detalla las obligaciones de suministro de información periódica a que están sujetos los emisores de valores objeto de oferta pública y los sujetos fiscalizados por la Superintendencia General de Valores, de conformidad con lo establecido en el Reglamento sobre el suministro de información periódica, hechos relevantes y otras obligaciones de información.
+Artículo 1.-Alcance . El presente Acuerdo detalla las obligaciones de suministro de información periódica a que están sujetos los emisores de valores objeto de oferta pública y los sujetos fiscalizados por la Superintendencia General de Valores, de conformidad con lo establecido en el Reglamento sobre el suministro de información periódica, hechos relevantes y otras obligaciones de información.
 Salvo en lo concerniente al Reporte de Colocaciones, se exceptúa de los requisitos de información establecidos en este Acuerdo a las siguientes entidades:
 a. Ministerio de Hacienda, Banco Central de Costa Rica, y los emisores públicos no bancarios que cuenten con la garantía solidaria del estado costarricense.
 b. Empresas emisoras que se encuentren en proceso de administración por intervención judicial, así como otros fiscalizados que se encuentren intervenidos por la Superintendencia General de Valores (SUGEVAL) o la Superintendencia General de Entidades Financieras (SUGEF).
