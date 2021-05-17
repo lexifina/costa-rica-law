@@ -1,0 +1,1 @@
+Artículo 13.-La dependencia de Recursos Humanos respectiva será responsable por la emisión de las resoluciones pertinentes en materia de reconocimiento del incentivo aquí reglamentado. Los funcionarios responsables del pago de exceso de puntos, deberán responder solidariamente ante la Administración por los montos adeudados.
