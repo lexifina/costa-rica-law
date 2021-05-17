@@ -1,0 +1,4 @@
+Artículo 12.-Fiscalización.
+a. La Gerencia General nombrará una dependencia para efectos de supervisar la ejecución de la alianza estratégica, con el propósito especial de fiscalizar el cumplimiento de los objetivos y metas trazadas.
+b. La dependencia fiscalizadora deberá presentar informes semestrales sobre el avance, nivel de ejecución y grado de satisfacción de la ejecución de la alianza estratégica a la Gerencia General y a la Junta Directiva. Los informes podrán presentarse en periodos inferiores cuando el objeto del negocio jurídico así lo requiera.
+c. Los informes deben contener un análisis comparativo entre las proyecciones y metas estimadas y las que se han obtenido en términos reales, a fin de conocer el grado de satisfacción alcanzado con la asociación y se pueda partir de esta información para la toma de decisiones de negocio.
