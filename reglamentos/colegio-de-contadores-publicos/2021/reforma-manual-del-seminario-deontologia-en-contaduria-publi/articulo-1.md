@@ -1,0 +1,10 @@
+COLEGIO DE CONTADORES PÚBLICOS DE COSTA RICA
+Acuerdo de Junta Directiva N° 699-12-2020 SO.25
+Se acuerda hacer las modificaciones en el Manual Seminario de Deontología en Contaduría Pública, quedando el documento de la siguiente manera:
+Adicionar al artículo 9 inciso 2. Apartado b) lo siguiente:
+"En la modalidad virtual, el participante siempre debe tener la cámara de video encendida, con iluminación, en la cual se muestre su rostro y parte del cuerpo, siguiendo las normas de vestimenta indicadas, lo anterior con fines pedagógicos, pues la clase es participativa.
+Cuando hubiere un fallo por razones fuera del control del participante, deberá comunicarse por los medios facilitados a la persona que se encuentra a cargo, ya sea de actividad del Seminario o durante la prueba de Deontología, de igual forma deberá satisfacer mediante certificación según sea del proveedor del servicio que se justifique la falla, sea de electricidad, de servicio de internet u otra"
+También incorporar al artículo 12:
+"En el caso de la modalidad de prueba a través de una plataforma tecnológica, la persona debe permanecer con la cámara encendida, con iluminación y que se muestre el rostro y parte del cuerpo, para comprobar en todo momento que es la persona que se encuentra haciendo la prueba y que se encuentra sola, lo anterior con fines pedagógicos. Cuando hubiere un fallo por razones fuera del control del participante, deberá comunicarse por los medios facilitados a la persona que se encuentra a cargo de la prueba, de igual forma deberá satisfacer mediante certificación según sea del proveedor del servicio que se justifique la falla, sea de electricidad, de servicio de internet u otra"
+Se modifica el plazo, quedando:
+Artículo 19: Plazo para presentar el recurso de revisión: Será de cinco días hábiles posterior al resultado de la prueba de aprovechamiento, el cual podrá enviarlo por medio del correo electrónico registrado por el participante debiendo firmar el recurso electrónicamente o presentarlo por escrito en el Colegio, según sea el caso.
