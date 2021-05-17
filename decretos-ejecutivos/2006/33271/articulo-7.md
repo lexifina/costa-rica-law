@@ -1,3 +1,3 @@
-Artículo 7°- El Consejo Nacional de Cáncer se reunirá ordinariamente una vez al mes y extraordinariamente cuando su coordinador o cuatro de sus miembros así lo soliciten; el quórum necesario para iniciar las sesiones será de la mitad más uno de los miembros.
+Artículo 7º-El Consejo Nacional de Cáncer se reunirá ordinariamente una vez cada trimestre y extraordinariamente cuando su coordinador o cuatro de sus miembros así lo soliciten; el quórum necesario para iniciar las sesiones será de la mitad más uno de los miembros.
 Si no hubiere quórum, el Consejo podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia, conforme así lo disponga la persona que ejerza la Presidencia, se podrá sesionar después de media hora y para ello será suficiente la asistencia de la tercera parte de sus miembros.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 36565 del 15 de marzo del 2011)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43076 del 17 de mayo del 2021)
