@@ -1,0 +1,3 @@
+Artículo 9º-Plazo para la comunicación de hechos relevantes
+Los hechos relevantes deben ser comunicados a la Superintendencia en un plazo máximo de diez días hábiles posteriores a su conocimiento, ratificación o protocolización. Sin embargo, las entidades supervisadas deberán valorar, en función de la gravedad y el impacto del hecho, si deben comunicar el hecho en un plazo menor.
+Si la entidad supervisada, por caso fortuito o fuerza mayor, no pudiera comunicar el hecho relevante en el plazo establecido, deberá adjuntar a la comunicación del hecho relevante los motivos que impidieron atender el plazo. Las razones serán valoradas posteriormente en función del impacto que tal retraso pudo ocasionar y podrán dar lugar a las medidas disciplinarias correspondientes.
