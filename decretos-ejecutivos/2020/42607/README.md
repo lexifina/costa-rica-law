@@ -14,3 +14,4 @@ Establece medidas extraordinarias para disponer del uso de establecimientos de s
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-11 | la propia norma |
+| 2 | 2021-05-18 | Decreto Ejecutivo 43002 (2021-05-18) |

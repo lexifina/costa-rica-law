@@ -1,1 +1,2 @@
-Artículo 3.- El Ministerio de Salud determinará mediante resolución los porcentajes, la gradualidad y progresividad pertinentes para la disposición de las camas de internamiento y los recursos asociados a los servicios de internamiento para pacientes críticos y/o de mediana complejidad en los establecimientos de servicio de salud privados.
+Artículo 3.- El Ministerio de Salud determinará mediante resolución los porcentajes, la gradualidad y progresividad pertinentes para la disposición de las camas de internamiento y los recursos asociados a los servicios de hospitalización para las personas pacientes en los establecimientos de servicio de salud privados.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 43002 del 18 de mayo del 2021)
