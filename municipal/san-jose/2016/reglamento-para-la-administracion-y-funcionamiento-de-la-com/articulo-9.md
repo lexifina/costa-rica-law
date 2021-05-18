@@ -1,2 +1,0 @@
-Artículo 9. Los acuerdos de la Comisión, para su validez y eficacia deberán tomarse por mayoría simple (la mitad más uno de los miembros presentes que constituyan quórum.
-Cuando medien decisiones divididas de cualquier naturaleza, y se dé el empate en la votación, el voto del Regidor designado contará doble; si este se encuentra ausente, será el Presidente del Concejo de Distrito de Zapote quién ostente doble voto.

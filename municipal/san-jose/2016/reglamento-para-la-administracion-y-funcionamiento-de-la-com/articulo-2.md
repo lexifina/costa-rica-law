@@ -1,1 +1,0 @@
-Artículo 2. Con el fin de evitar exceso de acumulación gráfica en este reglamento, al utilizarse palabras tales como: usuario, titular, vecino, interesado, funcionario y similares; se estará haciendo referencia tanto a hombres como mujeres sin pretender incurrir en discriminación de género.

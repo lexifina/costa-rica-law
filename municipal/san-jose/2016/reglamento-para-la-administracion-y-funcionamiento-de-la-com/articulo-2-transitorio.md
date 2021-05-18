@@ -1,1 +1,0 @@
-Transitorio II: Dentro del plazo concedido por el Transitorio I, el Concejo Municipal mediante acuerdo autorizará al Alcalde (sa) a suscribir Préstamo de Uso con la Comisión Administradora del Parqueo del Campo Ferial de Zapote.

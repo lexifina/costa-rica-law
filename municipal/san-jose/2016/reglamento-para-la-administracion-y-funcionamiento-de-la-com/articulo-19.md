@@ -1,1 +1,0 @@
-Artículo 19. La Comisión no podrá disponer y dar en calidad de préstamo el área de parqueo, cuando la Municipalidad realice las Fiestas de San José, o cualquier otra de naturaleza similar; lo cual deberá ser coordinado entre la Alcaldía y la Comisión.
