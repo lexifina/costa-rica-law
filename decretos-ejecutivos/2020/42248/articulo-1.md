@@ -14,12 +14,10 @@ Por tanto,
 Decretan
 Reglamento para el procedimiento de suspensión temporal de contratos de trabajo
 en casos relacionados con los incisos a) y b) del artículo 74 del Código de Trabajo
-Artículo 1 º.-De la solicitud de suspensión temporal del contrato de trabajo.
-La solicitud de suspensión temporal del contrato de trabajo debe presentarse, de conformidad con el artículo 75 del Código de Trabajo y fundamentada en hechos que obedezcan a las medidas de emergencia que dicte el Poder Ejecutivo para los supuestos regulados en los incisos a) y b) del artículo 74 del Código de Trabajo, y dentro de los tres días posteriores al día en que ocurrió el hecho que dio origen a la referida solicitud.
+Artículo 1°-De la solicitud de suspensión temporal del contrato de trabajo. La solicitud de suspensión temporal del contrato de trabajo debe presentarse, de conformidad con el artículo 75 del Código de Trabajo y fundamentada en hechos que obedezcan a las medidas de emergencia que dicte el Poder Ejecutivo para los supuestos regulados en los incisos a) y b) del artículo 74 del Código de Trabajo, y dentro de los tres días posteriores al día en que ocurrió el hecho que dio origen a la referida solicitud.
 El plazo de tres días deberá entenderse como el tiempo que posee la persona empleadora para solicitar que la suspensión de los contratos de trabajo, opere desde el día en que ocurrió el hecho generador. La parte empleadora interesada en suspender temporalmente el contrato de trabajo con fundamento en las causales expresadas en el artículo 74 incisos a) y b) del Código de Trabajo, puede gestionarla en cualquier tiempo, siempre y cuando subsista la causa que le dio origen.
 La solicitud se hará ante la inspección de trabajo de la sede correspondiente donde se sitúe el centro de trabajo. En la misma, la parte empleadora deberá exponer con los siguientes elementos:
-a) Exposición clara y concreta de los hechos en los cuales fundamenta su solicitud, indicando que la actividad de la empresa se encuentra dentro de las actividades temporalmente suspendidas indicadas en las Medidas administrativas temporales para la atención de actividades de concentración masiva debido a la alerta sanitaria por COVID-19 emitidas por el Ministerio de Salud.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42931 del 12 de abril del 2021)
+a) Exposición clara y concreta de los hechos en los cuales fundamenta su solicitud.
 b) Indicar si la suspensión es parcial o total.
 c) El plazo aproximado que se solicita para la suspensión temporal del contrato de trabajo.
 d) Los puestos para los cuales se pretende la suspensión temporal del contrato de trabajo.
@@ -28,3 +26,4 @@ f) Señalar un representante de los trabajadores para los efectos respectivos.
 g) Señalar una dirección de correo electrónico para recibir notificaciones.
 Asimismo, si se trata de una persona jurídica, debe consignarse el nombre de la razón social y el número de cédula jurídica; además, deberá aportarse la personería jurídica correspondiente. Si la solicitud es realizada por una persona distinta al representante legal, debe aportarse un poder especial administrativo.
 Junto con la solicitud de suspensión del contrato de trabajo, se deberá aportar una declaración jurada, autenticada por una persona abogada en la cual se expongan las causales que fundamentan la solicitud de suspensión, que cumple con el pago del salario mínimo correspondiente y que está al día con los pagos de las cargas sociales ante la Caja Costarricense del Seguro Social y el Instituto Nacional de Seguros.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43047 del 18 de mayo del 2021)
