@@ -1,0 +1,3 @@
+CAPÍTULO III
+De las autorizaciones y responsabilidades
+Artículo 4°-Comité de inversiones. De la constitución y funcionamiento. Corresponde a la Administración el nombramiento de un comité de inversión conformado por quienes ostenten el cargo de Alcalde (sa), el Gestor(a) de Financiero, el Tesorero(a), el Gestor(a) de Planificación y el Gestor (a) Jurídico, y los asesores externos que se consideren oportunos, los cuales tendrán voz, pero no voto. Así como una secretaria que llevara todo lo concerniente a las actas, asistencia, conformación, recolección de firmas y custodia. El funcionario(a) que ocupe el cargo de Alcalde Municipal será quien presida el Comité.

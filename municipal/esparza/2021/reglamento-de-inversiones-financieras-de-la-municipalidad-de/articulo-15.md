@@ -1,0 +1,1 @@
+Artículo 15.-En el caso que por algún motivo de fuerza mayor se requiera custodiar un Título Valor deberá ser el Tesorero (a) el/la encargada (a) de dicha labor, manteniéndolo en la caja fuerte asignada a su cargo.

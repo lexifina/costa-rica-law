@@ -1,0 +1,1 @@
+Artículo 20.-Se autoriza al Tesorero (a) de la Municipalidad de Esparza a realizar inversiones en el sector público mediante los instrumentos financieros mencionados en este reglamento, siempre que exista disponibilidad de efectivo y así aprobado por el comité de inversiones.

@@ -1,0 +1,1 @@
+Artículo 13.-Todas las inversiones a realizar deberán contar con un detalle del origen de los recursos, con el propósito de registrar los intereses ganados, en función de dicho origen. Para tales efectos la Tesorería definirá el procedimiento para determinar los orígenes del monto a invertir.

@@ -1,0 +1,1 @@
+Artículo 9°-Las inversiones que la Municipalidad de Esparza deberán efectuarse bajo el menor riesgo de pérdida posible, procurando utilidades y a la vez una fácil convertibilidad de la inversión en dinero efectivo de acuerdo a sus necesidades.

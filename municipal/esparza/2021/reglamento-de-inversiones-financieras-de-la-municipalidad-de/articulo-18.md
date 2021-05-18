@@ -1,0 +1,1 @@
+Artículo 18.-La persona Tesorero (a). Municipal deberá mantener un control de los Títulos Valores que se poseen en todo momento, indicando: fecha de apertura, monto inicial de la inversión, rendimiento, fecha de vencimiento, plazo, número de título valor. En el caso de los Fondos de Inversión debe manejar un portafolio que incluya los datos antes mencionados como mínimo.
