@@ -1,0 +1,1 @@
+Artículo 16.-Principios. La CISAL debe garantizar como principios rectores, el debido proceso, la confidencialidad, celeridad y el de defensa que le asiste a toda persona que se le denuncia como acosadora.

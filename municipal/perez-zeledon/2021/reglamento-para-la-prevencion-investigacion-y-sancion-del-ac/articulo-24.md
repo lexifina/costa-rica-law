@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Falsas denuncias
+Artículo 24.-Denuncia calumniosa. Quien denuncie hostigamiento laboral falso, se expondrá de inmediato a la apertura de un procedimiento ordinario disciplinario por parte de la Alcaldía Municipal según los procedimientos establecidos. Lo anterior no impide que se pueda recurrir a la legislación penal por delitos contra el honor.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Comisión investigadora sobre acoso laboral (CISAL)
+Artículo 10.-Naturaleza de la CISAL. La Comisión Investigadora sobre Acoso Laboral es una instancia técnica, de naturaleza investigativo-pericial, que funciona por denuncia interpuesta ante la Alcaldía o Concejo Municipal. Esta comisión estará conformada por tres miembros; un funcionario de Recursos Humanos, un Psicólogo y un funcionario designado por la Alcaldía Municipal o Concejo Municipal según corresponda. La CISAL podrá solicitar el asesoramiento de expertos que conozcan de las características normales y patológicas de la condición humana u otros criterios necesarios.

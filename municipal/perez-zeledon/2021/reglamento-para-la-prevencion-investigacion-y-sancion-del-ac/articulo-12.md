@@ -1,0 +1,1 @@
+Artículo 12.-De la abstención y recusación. Cuando un miembro de la Comisión Investigadora tenga que separarse del conocimiento de un caso determinado, se recurrirá a los institutos de la abstención o recusación y se sustituirá por su respectivo suplente.

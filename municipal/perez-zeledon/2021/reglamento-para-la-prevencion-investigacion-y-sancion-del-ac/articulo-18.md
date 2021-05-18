@@ -1,0 +1,1 @@
+Artículo 18.-Rechazo de recomendación. En caso de apartarse de la recomendación emitida por la CISAL, en el procedimiento administrativo deberá fundamentarse adecuadamente los motivos que llevaron a una u otra resolución del caso.

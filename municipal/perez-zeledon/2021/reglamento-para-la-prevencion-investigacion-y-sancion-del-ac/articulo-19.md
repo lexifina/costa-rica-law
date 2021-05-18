@@ -1,0 +1,2 @@
+Artículo 19.-Fuero de protección. Ninguna persona que amparada en este reglamento haya denunciado hostigamiento laboral o comparecido como testigo de las partes, podrá ser objeto de represalias por ese motivo.
+Queda prohibido despedir a una persona que haya interpuesto una denuncia por acoso laboral o que figure como testigo, salvo que haya incurrido en una causal por causa justificada, originada en falta grave a los deberes derivados del contrato laboral, conforme a las causas establecidas en el artículo 81 del Código de Trabajo y las dispuestas en el Código Municipal.

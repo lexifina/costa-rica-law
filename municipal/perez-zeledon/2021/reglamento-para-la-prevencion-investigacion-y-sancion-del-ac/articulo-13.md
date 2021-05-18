@@ -1,0 +1,1 @@
+Artículo 13.-Confidencialidad. Será obligatorio guardar total confidencialidad en el trámite de la instrucción del procedimiento. Cualquier incidencia de quienes integren la Comisión, de los testigos o de cualquiera de las personas que tengan participación directa en el proceso, se considerará falta grave, con motivo de amonestación
