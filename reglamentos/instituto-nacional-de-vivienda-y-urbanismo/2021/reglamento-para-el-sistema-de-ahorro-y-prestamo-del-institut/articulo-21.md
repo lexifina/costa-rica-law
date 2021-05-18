@@ -1,0 +1,2 @@
+Artículo 21.- El INVU considerará caducados todos aquellos contratos con más de diez años de inactividad y que presenten saldos inferiores a un salario mínimo de un obrero no especializado de la construcción.
+Para tal efecto, se llevará a cabo una publicación en un diario de circulación nacional, otorgando un plazo máximo de 15 días naturales a los interesados para solicitar el retiro de la suma a su favor, o bien, la activación del contrato. Transcurrido este plazo, el INVU dispondrá y liquidará los contratos en esa condición

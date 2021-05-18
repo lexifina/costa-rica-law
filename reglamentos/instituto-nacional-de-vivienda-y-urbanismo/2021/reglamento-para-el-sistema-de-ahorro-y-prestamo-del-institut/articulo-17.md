@@ -1,0 +1,1 @@
+Artículo 17.- En caso de extravío o pérdida del contrato, a solicitud de la persona suscriptora, el INVU podrá entregar una copia del documento original que se encuentre en su poder, previo pago del costo administrativo establecido para ese fin.

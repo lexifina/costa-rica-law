@@ -1,0 +1,7 @@
+Artículo 6.- La persona suscriptora queda comprometida a satisfacer puntualmente las cuotas mensuales de ahorro. Cualquier atraso en el pago de estas que exceda de tres meses; diferirá la concesión del crédito en un número de meses igual al número de cuotas mensuales no cubiertas en su oportunidad, menos tres meses de gracia.
+También la persona suscriptora podrá cancelar las cuotas y los intereses no percibidos por el Sistema, tomándose en cuenta igualmente para estos casos los tres meses de gracia.
+En este último caso, el cálculo de los intereses se hará considerando el mecanismo de interés compuesto, aplicando la tasa activa para vivienda del Banco Nacional.
+De lo anterior, en el caso de uso anticipado de contratos, se regirá por el Reglamento por Asignación de los contratos del Sistema de Ahorro y Préstamo No. 5476.
+Podrá hacer la persona suscriptora pagos adelantados o extraordinarios no sujetos a periodicidad, los cuales no relevan a la persona suscriptora de la obligación de continuar el pago regular y puntual de las cuotas ordinarias de ahorro; el importe de esos pagos nunca incrementará el monto del crédito, ni adelantará el período establecido de ahorro.
+La persona suscriptora deberá aportar número de cuenta bancaria IBAN para realizar el giro de dinero correspondiente al trámite que realice.
+En aquellos actos donde una persona actúe en representación de la persona suscriptora mediante un poder; deberá cumplir con lo que estable el Código Civil al respecto. Dicho poder deberá tener como máximo un mes de emitido.

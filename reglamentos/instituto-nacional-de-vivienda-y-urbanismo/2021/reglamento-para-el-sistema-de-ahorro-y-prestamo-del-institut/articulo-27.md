@@ -1,0 +1,1 @@
+Artículo 27.- Las entregas de las sumas suscritas serán realizadas directamente por el Instituto a las personas vendedoras cuando se trate de adquisición de inmueble y a las personas acreedoras hipotecarias cuando se trate de liberación de gravámenes.

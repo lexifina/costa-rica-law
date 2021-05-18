@@ -1,0 +1,2 @@
+Artículo 32.- Serán sufragados por la persona suscriptora todos los gastos que se deriven de la tramitación del crédito, tales como: avalúos, inspecciones, re inspecciones, gastos administrativos, de formalización, pólizas, estudio de suelo.
+En los contratos que estipulen un ahorro adicional (el 2%) del monto suscrito, ese porcentaje será devuelto a la persona suscriptora para que se coadyuve con el pago de los gastos inherentes del crédito.

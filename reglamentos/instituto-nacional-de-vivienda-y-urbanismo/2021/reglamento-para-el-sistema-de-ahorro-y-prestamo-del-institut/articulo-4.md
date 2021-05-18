@@ -1,0 +1,4 @@
+Artículo 4.- El INVU se reserva la posibilidad de gestionar y vender directamente los planes del Sistema de Ahorro y Préstamo a los clientes, a través de la Unidad o Área designada para tales efectos.
+Igualmente, el Instituto podrá acordar la venta en paquetes con personas jurídicas públicas o privadas, de los planes del Sistema de Ahorro y Préstamo. Será potestad exclusiva del Instituto como tal, la venta de paquetes a entidades de carácter público.
+Las comisiones resultantes de la gestión de ventas de los contratos del Sistema de Ahorro y Préstamo, que realice directamente el INVU, se incorporarán como parte de los ingresos corrientes de la Institución.
+El INVU podrá, para los presentes efectos, tramitar la colocación de cualquier tipo de contrato e, incluso, podrá desarrollar un mercado secundario para la colocación de contratos maduros y avanzados.

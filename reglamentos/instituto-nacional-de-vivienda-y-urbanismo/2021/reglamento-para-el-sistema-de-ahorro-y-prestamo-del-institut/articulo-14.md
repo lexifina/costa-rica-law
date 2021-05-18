@@ -1,0 +1,1 @@
+Artículo 14.- La persona suscriptora tiene el derecho de designar un máximo de 2 personas beneficiarias y cambiarlos cuantas veces lo desee, debiendo presentar personalmente, o autenticarla para este efecto, una carta en los términos correspondientes y el testimonio del contrato para efectuar las anotaciones necesarias.

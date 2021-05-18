@@ -1,0 +1,3 @@
+Artículo 26.- Durante el proceso constructivo, el INVU cobrará intereses sobre cada desembolso de los saldos de crédito efectivo. El interés por cobrar en cada desembolso será el que se encuentre vigente al momento de formalizar el crédito.
+El plazo para la conclusión de la obra será de 3 a 6 meses máximo, período que será establecido conforme al monto del crédito aprobado.
+En el caso de que la obra no se finalice en el periodo aprobado por la Institución por razones atribuibles al cliente, este iniciará el pago de su cuota (capital, intereses, pólizas), de acuerdo con el monto desembolsado a la fecha.

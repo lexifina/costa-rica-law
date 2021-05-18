@@ -1,0 +1,2 @@
+Artículo 33.- En caso de incumplimiento por parte de la persona deudora de cualquiera de las estipulaciones consignadas en este Reglamento o en el contrato respectivo, el INVU podrá considerar vencida y exigible la obligación, pudiendo, en consecuencia, proceder si fuere del caso al cobro judicial de la misma, sin necesidad de requerimiento alguno.
+La falta de pago igual a una mensualidad o más tendrán las mismas consecuencias señaladas en el párrafo anterior.

@@ -1,0 +1,1 @@
+Artículo 29.- El INVU se reserva el derecho de inspeccionar el inmueble dado en garantía mientras no se haya cancelado la obligación hipotecaria y exigirá que se conserve en buen estado, manteniéndolo en todo momento conforme con la finalidad aprobada
