@@ -1,2 +1,4 @@
-Artículo 15: Si al momento de fallecer el bombero, tenía compañera de hecho en las condiciones señaladas en el artículo 21 del presente Reglamento y a la vez tenía excónyuge(s) supérstite(s) o excompañera(s) de hecho, con una pensión alimentaria establecida judicialmente, la Junta Administradora reconocerá el derecho según corresponda, estableciendo su pensión en el porcentaje que resulte de dividir, entre las beneficiarias con derecho, la pensión que le hubiere correspondido a una sola de ellas.
-Cuando se presentará el reclamo de más de dos supuestas beneficiarias por esta condición, corresponderá a la Junta Administradora, definir el derecho correspondiente.
+CAPITULO III
+De los requisitos y el cálculo
+de la pensión
+Artículo 15.—Cotizaciones. Para el otorgamiento de la pensión al beneficiario directo o sus causa-habientes, al amparo de este Fondo, el bombero afiliado deberá haber cotizado un mínimo de doce (12) cuotas y mantenerse al día en el pago de todas las que correspondan de acuerdo con el tiempo laborado.

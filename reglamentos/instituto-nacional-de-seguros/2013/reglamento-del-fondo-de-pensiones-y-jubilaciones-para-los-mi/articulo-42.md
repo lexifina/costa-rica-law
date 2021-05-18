@@ -1,3 +1,4 @@
-Artículo 42: Cuando proceda el pago de los beneficios del Fondo, por motivo de las contingencias aquí cubiertas, éste pagará el costo de los beneficios que correspondan a los beneficiarios, salvo cuando proceda devolver lo acumulado en la cuenta individual por motivo de separación del servicio, según lo establecido en el Artículo 38 del presente Reglamento.
-El pago mencionado se hará contra la cuenta individual del miembro del Fondo, hasta donde alcance, y la diferencia, si la hubiere, se tomará de la que corresponde al Instituto.
-Lo expresado en el párrafo primero del presente artículo también será procedente para el pago del costo de los aumentos que eventualmente pudiesen ser acordados en favor de quienes se hallen recibiendo los beneficios otorgados por el Fondo.
+CAPITULO VIII
+Aguinaldo
+Artículo 42.—Pago adicional. Se otorgará a las personas beneficiarias del Fondo un pago adicional, por concepto de aguinaldo, igual a la dozava parte (1/12) del total de las pensiones recibidas durante el período comprendido entre el primero de diciembre del año anterior y el treinta de noviembre del año en que se efectúe el pago.
+Este pago se hará efectivo en el mes de diciembre o cuando termine el derecho al pago de beneficio.

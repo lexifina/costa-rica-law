@@ -1,1 +1,4 @@
-Artículo 24: En ningún caso la suma de las pensiones por muerte podrá exceder del cien por cien (100%) de la jubilación que disfrutaba, o pudo haber llegado a disfrutar el bombero a la fecha de su fallecimiento. Por lo tanto, de acuerdo con la cantidad de hijos(as) el cien por ciento de la pensión se prorrateará entre quienes tengan derecho, sin que individualmente pueda exceder del 30% para cada uno de ellos.
+Sección II
+De la cónyuge, excónyuge, compañera y
+excompañera de hecho
+Artículo 24.—Porcentaje de pensión. La cónyuge supérstite, la excónyuge supérstite, la compañera de hecho o la excompañera de hecho del bombero fallecido, tendrá derecho a una pensión equivalente al sesenta por ciento (60%) del monto que le correspondería al bombero al momento de su fallecimiento, o de la que ya disfrutaba al sobrevenir su muerte.

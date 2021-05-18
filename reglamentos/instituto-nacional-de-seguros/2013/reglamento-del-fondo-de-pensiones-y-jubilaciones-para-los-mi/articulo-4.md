@@ -1,3 +1,4 @@
-CAPITULO II
-DE LOS REQUISITOS Y EL CALCULO DE LA PENSION
-Artículo 4: Para el otorgamiento de la pensión al beneficiario directo o sus causa-habientes, al amparo de este Fondo, el bombero afiliado deberá haber cotizado un mínimo de doce (12) cuotas y mantenerse al día en el pago de todas las que correspondan de acuerdo con el tiempo laborado.
+Sección II
+Administración del Fondo
+Artículo 4º—Operación. El INS como parte de las operaciones normales, sufragará todos los gastos que demande la eficiente administración del Fondo y otorgará las facilidades para su eficiente y eficaz gestión.
+Salvo por las potestades indelegables que correspondan a la Junta Directiva o Gerencia del INS, dispuestas en normas imperativas, corresponderá a la Dependencia denominada “Fondo de Pensiones y Jubilaciones para los miembros del Benemérito Cuerpo de Bomberos”, en adelante “Dependencia del Fondo”, gestionar la operación del fondo, la distribución del trabajo, forma de operación y similares.

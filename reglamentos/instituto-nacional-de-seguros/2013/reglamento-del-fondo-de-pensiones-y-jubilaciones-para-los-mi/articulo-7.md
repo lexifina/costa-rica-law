@@ -1,4 +1,2 @@
-CAPITULO III
-JUBILACIÓN EN CASO DE VEJEZ
-Artículo 7: Los miembros del Fondo podrán acogerse a la jubilación por vejez cuando hayan cumplido cincuenta (50) años de edad y veinte (20) años de servicio activo, o cuando cumplan veinticinco (25) años de servicio activo, aunque no cuenten con la edad indicada, conforme lo establece la ley que por estas disposiciones se reglamenta, quedando entendido que sólo se computarán los años efectivamente servidos al Benemérito Cuerpo de Bomberos, de conformidad con el Artículo 3 del presente Reglamento.
-Para efectos de este beneficio deben encontrarse pagadas todas las cuotas correspondientes a los años laborados.
+Artículo 7º—Informes. La Dependencia del Fondo deberá rendir a la Gerencia General del Instituto un informe trimestral sobre las operaciones efectuadas en el período, acompañado de los respectivos Estados Financieros.
+Dicha Dependencia, deberá aportar la información en el plazo que corresponda, cuando sean solicitados por la Administración Superior o el Ente de Supervisión externa.

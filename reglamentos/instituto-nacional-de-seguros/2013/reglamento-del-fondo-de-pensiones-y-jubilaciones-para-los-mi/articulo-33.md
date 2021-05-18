@@ -1,4 +1,1 @@
-CAPITULO VII
-AGUINALDO
-Artículo 33: Se otorgará a los beneficiarios del Fondo un pago adicional, por concepto de aguinaldo, igual a la dozava parte (1/12) del total de las pensiones recibidas durante el período comprendido entre el primero de noviembre del año anterior y el 31 de octubre del año en que se efectúe el pago.
-Este pago se hará efectivo en el mes de diciembre, o cuando termine el derecho al pago de beneficio.
+Artículo 33.—Porcentaje máximo. En ningún caso la suma de las pensiones por muerte podrá exceder del cien por cien (100%) de la jubilación que disfrutaba, o pudo haber llegado a disfrutar el bombero a la fecha de su fallecimiento. Por lo tanto, de acuerdo con la cantidad de hijos(as) el cien por ciento de la pensión se prorrateará entre quienes tengan derecho, sin que individualmente pueda exceder del 30% para cada uno de ellos.

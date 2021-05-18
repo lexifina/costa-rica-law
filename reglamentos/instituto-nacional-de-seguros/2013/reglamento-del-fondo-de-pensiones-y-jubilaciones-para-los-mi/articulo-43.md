@@ -1,4 +1,4 @@
-Artículo 43: La situación financiera del Fondo se establecerá al 31 de diciembre de cada año, de conformidad con las normas siguientes:
-a. Las cuentas individuales de los miembros del Fondo y del Instituto deben indicar, separadamente, la suma total de los aportes hechos por ellos y los intereses percibidos como producto de las inversiones de los respectivos fondos.
-b. Esas mismas cuentas deben indicar las devoluciones hechas por concepto de separación del servicio del Instituto.
-c. El patrimonio del Fondo deberá estar constituido por el total de saldos de las respectivas cuentas individuales al final del año calendario.
+CAPITULO IX
+Otros beneficios
+Artículo 43.—Monto de subsidio. Al ocurrir la defunción del bombero que se hallase disfrutando de la pensión al amparo del presente Reglamento, el Fondo otorgará un subsidio hasta por trescientos mil colones (¢300.000.00) para sufragar sus gastos funerarios. También concederá beneficio hasta igual monto y concepto, al morir la cónyuge o compañera del bombero pensionado.
+Este subsidio se reconocerá a quien demuestre haber incurrido en dichos gastos, para ello deberá presentar ante la Dependencia del Fondo, la factura autorizada por la Dirección General de Tributación Directa, debidamente cancelada, original y copia del acta de defunción, original y copia de las cédulas de identidad del difunto y del solicitante, número de cuenta cliente o cuenta IBAN de un banco para hacer el depósito correspondiente. El pago se hará efectivo en un plazo máximo de quince días hábiles después de haber sido conocida y aprobada la solicitud por parte de la Gerencia General.

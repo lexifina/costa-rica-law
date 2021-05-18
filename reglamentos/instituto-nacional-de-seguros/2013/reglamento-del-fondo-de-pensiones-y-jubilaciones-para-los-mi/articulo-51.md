@@ -1,3 +1,4 @@
-Artículo 51:
-a. A partir de la fecha de vigencia de las modificaciones al presente Reglamento, la Junta Administradora podrá solicitar y realizar la contratación de valoraciones actuariales periódicas del Fondo, cuando menos una vez cada año, CON CORTEAL 31 DE DICIEMBRE DE CADA AÑO.
-b. Los resultados de estas evaluaciones serán sometidas a conocimiento de la Junta Administradora, quienes de inmediato informarán a la Gerencia sobre aquellos aspectos relevantes que inciden directamente sobre la gestión actual y futura del Fondo”. Asimismo, el resultado del estudio actuarial será remitido a la SUPEN el último día hábil del mes de marzo de cada año, según disposición del Ente Supervisor.
+Artículo 51.—Situación financiera del Fondo. La situación financiera del Fondo se establecerá al 31 de diciembre de cada año, de conformidad con las normas siguientes:
+a. Las cuentas del Fondo y del Instituto, deben indicar, separadamente, la suma total de los aportes hechos por los miembros del Fondo y los intereses percibidos como producto de las inversiones de los respectivos fondos.
+b. Esas mismas cuentas deben indicar las devoluciones realizadas por concepto de separación del servicio del Benemérito Cuerpo de Bomberos. Lo que implica el traslado de las cuotas hacia otros regímenes de pensiones.
+c. El patrimonio del Fondo deberá estar constituido por el total del saldo de la cuenta común del Fondo al final del año calendario.

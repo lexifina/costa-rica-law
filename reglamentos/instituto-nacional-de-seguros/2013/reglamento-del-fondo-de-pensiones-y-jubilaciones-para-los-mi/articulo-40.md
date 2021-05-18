@@ -1,1 +1,1 @@
-Artículo 40: Los aportes de los miembros del Fondo deberán registrarse en cuentas individuales para cada uno de ellos y devengarán intereses de acuerdo con el comportamiento del mercado de valores.
+Artículo 40.—Fecha de adquisición de derecho. El derecho de pensión a favor de los padres y hermanos(as) se inicia en la fecha del fallecimiento del bombero, y termina según lo establecido en el presente Reglamento.

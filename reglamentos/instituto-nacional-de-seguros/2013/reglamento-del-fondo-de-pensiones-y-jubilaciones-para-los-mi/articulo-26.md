@@ -1,3 +1,2 @@
-Sección IV
-De la Madre y el Padre
-Artículo 26: Si al fallecer el bombero no existieren cónyuge o excónyuge, compañera o excompañera de hecho, o hijos(as) con derecho a pensión, tendrán derecho a tal beneficio la madre que viviera a expensas del occiso o en su defecto, el padre inválido o sexagenario, que no reciba salario u otro tipo de pensión.
+Artículo 26.—División del porcentaje del derecho. Si al momento de fallecer el bombero, tenía compañera de hecho, según lo señalado en el artículo “Condiciones” y a la vez tenía excónyuge(s) supérstite(s) o excompañera(s) de hecho, con una pensión alimentaria establecida judicialmente, la Gerencia General reconocerá el derecho según corresponda, estableciendo su pensión en el porcentaje que resulte de dividir, entre las beneficiarias con derecho, la pensión que le hubiere correspondido a una sola de ellas.
+Cuando se presente el reclamo de más de dos supuestas beneficiarias por esta condición, corresponderá a la Gerencia General, definir el derecho correspondiente.

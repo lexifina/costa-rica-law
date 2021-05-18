@@ -1,1 +1,1 @@
-Artículo 14: El derecho a la pensión por parte de la cónyuge supérstite, la excónyuge supérstite, la compañera de hecho o la excompañera de hecho, se adquiere en la fecha de fallecimiento del bombero.
+Artículo 14.—Funciones. El Comité de Inversiones deberá cumplir las funciones señaladas en el Reglamento de Gestión de Activos establecido por la SUPEN y la normativa vigente relacionada con el tema.

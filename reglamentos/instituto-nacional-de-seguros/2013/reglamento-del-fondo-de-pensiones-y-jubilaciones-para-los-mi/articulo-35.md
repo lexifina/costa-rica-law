@@ -1,4 +1,3 @@
-CAPITULO IX
-COBERTURA EN EL REGIMEN DE ENFERMEDAD Y MATERNIDAD
-Artículo 35: Los bomberos pensionados del Fondo, indispensablemente, deberán continuar amparados y cubiertos por el Régimen de Enfermedad y Maternidad que administra la Caja Costarricense de Seguro Social.
-Del importe mensual de pensión que se pague a cada bombero, el Instituto deberá retener el importe correspondiente a "cuota obrera", haciéndose el pago de la "cuota patronal" contra los gastos generales del Instituto. Para los efectos de este artículo, el Instituto en forma mensual girará a la Caja las sumas que recaude.
+Sección IV
+De la Madre y el Padre
+Artículo 35.—Derecho del beneficio. Si al fallecer el bombero no existieren cónyuge o excónyuge, compañera o excompañera de hecho, o hijos(as) con derecho a pensión, tendrán derecho a tal beneficio la madre que viviera a expensas del occiso o en su defecto, el padre inválido o sexagenario, que no reciba salario u otro tipo de pensión.

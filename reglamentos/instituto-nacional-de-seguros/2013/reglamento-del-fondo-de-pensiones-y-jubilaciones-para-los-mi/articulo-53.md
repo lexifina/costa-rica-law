@@ -1,6 +1,1 @@
-Artículo 53. Conformación del Comité de Inversiones del Fondo de Pensiones de Bomberos:
-a. Subgerente General (a cargo de la parte Financiera).
-b. Asistente de Gerencia
-c. Miembro Externo.
-El Comité estará constituido por:
-El Subgerente General (a cargo de la parte Financiera) preside el Comité y en su ausencia la presidencia será ejercida por el Asistente de Gerencia.
+Artículo 53.—Resolución de conflictos, controversias o diferencias de carácter patrimonial. Los conflictos, controversias o diferencias de carácter patrimonial que se produzcan entre los afiliados, los entes administradores del Fondo y otros terceros involucrados, derivadas de la interpretación de la Ley 7523, la Ley 7983, así como de las leyes específicas que crearon los regímenes sustitutos o fondos de pensiones complementarios especiales o derivadas de la ejecución o interpretación de los reglamentos internos, pueden resolverse mediante los procesos administrativos que estime el Instituto y en última instancia mediante un procedimiento de arbitraje.

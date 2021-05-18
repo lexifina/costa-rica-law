@@ -1,1 +1,1 @@
-Artículo 29: La pensión de cada beneficiario en estos casos será de un treinta por ciento (30%) de la pensión que pudo corresponder al bombero, o la que ya éste disfrutaba, siempre que se compruebe la dependencia económica.
+Artículo 29.—Pérdida del derecho. Perderá el derecho a la pensión, la cónyuge, excónyuge, la compañera o excompañera de hecho declarada culpable o cómplice de la muerte del bombero en sentencia judicial.

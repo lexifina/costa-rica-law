@@ -1,6 +1,3 @@
-Artículo 37: El pago de la pensión termina cuando se presente alguna de las siguientes circunstancias:
-a. La muerte de la persona beneficiaria.
-b. La presunción de ausencia de la persona beneficiaria.
-c. El levantamiento del estado de invalidez por dictamen médico motivado.
-d. El cumplimiento de la edad establecida para los hijos(as).
-e. La conclusión de los estudios.
+Sección V
+De los Hermanos(as)
+Artículo 37.—Derecho del beneficio. Si al fallecer el bombero no existieren cónyuge o excónyuge, compañera o excompañera de hecho, ni huérfanos con derecho a pensión, ni Madre o Padre, tendrán derecho a pensión los hermanos(as) dependientes económicamente del bombero fallecido, según lo establecido en el artículo “Derecho a pensión” del presente Reglamento.

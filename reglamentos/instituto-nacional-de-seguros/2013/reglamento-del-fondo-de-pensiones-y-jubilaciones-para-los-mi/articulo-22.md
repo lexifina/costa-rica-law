@@ -1,3 +1,1 @@
-Sección III
-De los hijos(as)
-Artículo 22: En ausencia de los beneficiarios contemplados en la Sección II de este Capítulo, tendrán derecho a pensión los hijos(as) del bombero fallecido, de conformidad con el artículo 12 del presente Reglamento.
+Artículo 22.—Exclusión. No tendrá derecho a la pensión por discapacidad, el bombero permanente que con este fin provocare su estado, o que su discapacidad se produzca como consecuencia de su participación en la comisión de un delito.

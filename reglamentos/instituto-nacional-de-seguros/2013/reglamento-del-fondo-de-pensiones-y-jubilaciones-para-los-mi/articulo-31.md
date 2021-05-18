@@ -1,1 +1,3 @@
-Artículo 31: El derecho de pensión a favor de los padres y hermanos(as) se inicia en la fecha del fallecimiento del bombero, y termina según lo establecido en el presente Reglamento.
+Sección III
+De los hijos(as)
+Artículo 31.—Derecho al beneficio. En ausencia de los beneficiarios contemplados en la sección II de este capítulo, tendrán derecho a pensión los hijos(as) del bombero fallecido, de conformidad con el artículo “Derecho a pensión” del presente Reglamento.
