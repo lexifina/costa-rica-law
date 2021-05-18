@@ -1,0 +1,2 @@
+Artículo 2°-Alcance:
+Este reglamento define las condiciones y el procedimiento para atender y resolver quejas por las omisiones a las obligaciones de los propietarios o poseedores de bienes inmuebles en el Cantón de La Cruz, así como el cobro correspondiente si la Municipalidad asumiera el cumplimiento de dichas omisiones. Lo regulado en esta norma aplica a todo lote o predio, público o privado, ubicado dentro de la división político-administrativa correspondiente al Cantón de La Cruz.

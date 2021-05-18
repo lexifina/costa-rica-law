@@ -1,0 +1,2 @@
+Artículo 16.-Coordinación con las organizaciones comunales:
+La Municipalidad, a instancia de la Alcaldía y a través de la oficina de Prensa y Protocolo, coordinará acciones informativas con los Síndicos, Concejos de Distrito, Asociaciones de Desarrollo y Comités de Vecinos, para que estos actores sociales puedan colaborar en hacer conciencia en los pobladores del Cantón y así aportar en el cumplimiento de los deberes de los propietarios y poseedores, establecidos en este Reglamento.

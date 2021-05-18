@@ -1,0 +1,2 @@
+Artículo 13.-Certificación de deuda constituirá título ejecutivo:
+La certificación que el contador municipal emita de la suma adeudada por el munícipe por los conceptos de multa o cancelación de obra, que no sea cancelada dentro de los tres meses posteriores a su fijación, constituirá título ejecutivo con hipoteca legal preferente sobre los respectivos inmuebles, a fin de proceder de conformidad con lo dispuesto en el Reglamento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad.

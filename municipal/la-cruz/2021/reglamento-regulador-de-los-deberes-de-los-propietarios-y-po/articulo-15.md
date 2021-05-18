@@ -1,0 +1,2 @@
+Artículo 15.-Destino del dinero recaudado:
+Los dineros recaudados producto de lo regulado en este reglamento, deberán ser invertidos en las obras que la Municipalidad deba ejecutar ante la omisión en el cumplimiento de este reglamento por los administrados. Para acatar lo anterior, la Municipalidad registrará cada ingreso dentro del rubro presupuestario correspondiente al origen del dinero percibido.
