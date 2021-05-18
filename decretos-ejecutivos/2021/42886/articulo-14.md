@@ -1,0 +1,1 @@
+Artículo 14. Reglamento. La Unidad Coordinadora deberá elaborar una propuesta de reglamento interno en un plazo no mayor de seis meses, contados a partir de la publicación del presente Decreto, que será presentada al Comité Ejecutivo para su aprobación. Este reglamento deberá ser revisado y actualizado cada tres años o según se requiera.

@@ -1,0 +1,2 @@
+Artículo 10. Actualización y revisión de la información.
+El SIMOCUTE deberá mantener un proceso de mejora continua por medio de la revisión y desarrollo de metodologías, y actualización tecnológica. La información, datos y productos incluidos en el SIMOCUTE deberán ser actualizados y revisados según lo determine cada entidad competente de generarlos, de conformidad con los compromisos legales existentes, con lo previsto en políticas o estrategias nacionales debidamente aprobadas y con las obligaciones internacionales suscritas por el país.
