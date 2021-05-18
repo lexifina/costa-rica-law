@@ -1,0 +1,1 @@
+Artículo 3º-De los OIM acreditado. El ECA procurará que los OIM acreditados realicen su acción con imparcialidad, trato no discriminatorio, confidencialidad, respeto a la propiedad privada, transparencia y responsabilidad.
