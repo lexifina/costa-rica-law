@@ -1,1 +1,0 @@
-Artículo 17.—Los abogados nombrados no podrán aceptar casos de litigios en contra de la Institución, el cumplimiento de esta disposición hará que su nombramiento quede revocado automáticamente como abogado de la Institución.

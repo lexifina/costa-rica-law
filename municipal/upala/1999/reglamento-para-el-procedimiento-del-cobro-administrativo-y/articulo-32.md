@@ -1,1 +1,0 @@
-Artículo 32.—Toda documentación relativa a arreglos de pago estará en custodia en la oficina de cobro administrativo, lo que en su oportunidad y de ser necesario la remitirá a los abogados que contrate la municipalidad para que realicen las gestiones de cobro judicial correspondiente.

@@ -1,1 +1,0 @@
-Artículo 12.—La oficina de cobro deberá rendir informes mensuales al Alcalde y Concejo Municipal sobre las gestiones realizadas de cobro de las cuentas morosas y el estado en que se encuentran las acciones de cada gestión a esa fecha.

@@ -1,2 +1,0 @@
-Artículo 24.—No se contará nuevamente para realizar funciones de cobro judicial a aquellos abogados que por cualquier motivo personal o de la municipalidad se hallan retirado del ejercicio de sus funciones como abogados externos para el cobro judicial por un período de cinco (5) años posteriores a su retiro.
-Con excepción de aquellos casos en que se retiren en función de cargos públicos o incompatibilidad de sus funciones, por problemas de salud, o cambio de domicilios a otro lugar que no sea el distrito primero del Cantón.
