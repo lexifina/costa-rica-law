@@ -1,0 +1,2 @@
+Artículo 12.-De la reparación de los bienes. Cuando un bien requiera ser reparado y no exista contrato de mantenimiento, la persona que tiene el bien asignado gestionará ante la persona a cargo del inventario la reparación, según los procedimientos establecidos en el Sistema de Gestión de la Calidad que garanticen el debido control interno.
+Es responsabilidad de la persona a cargo del inventario realizar un análisis costo beneficio sobre la conveniencia de reparar el bien, además de considerar la vida útil del mismo, de acuerdo con lo establecido reglamentariamente.
