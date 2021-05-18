@@ -1,0 +1,1 @@
+Artículo 16.-La OGEREH será responsable del registro, verificación y control del pago de la cantidad de horas extraordinarias autorizadas por la Ministra o el Ministro y la Unidad de Financiero Contable del control del contenido económico autorizado, por cada uno de los programas presupuestarios.

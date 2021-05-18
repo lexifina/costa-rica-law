@@ -1,0 +1,1 @@
+Artículo 20.-La Unidad de Auditoría podrá realizar estudios de auditorías sobre la aplicación de las autorizaciones emitidas, sus recomendaciones serán de acatamiento obligatorio, siendo la Administración responsable por la aplicación de las mismas.

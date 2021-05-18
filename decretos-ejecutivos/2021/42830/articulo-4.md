@@ -1,0 +1,1 @@
+Artículo 4°-Por ser diurna la jornada laboral de este Ministerio, la jornada ordinaria sumada a la jornada extraordinaria no podrá exceder las doce horas diarias, según lo dispuesto por el artículo 140 del Código de Trabajo. Por lo que, el máximo permitido será de 4 horas diarias. Salvo los casos establecidos en el artículo 143 del Código de Trabajo.

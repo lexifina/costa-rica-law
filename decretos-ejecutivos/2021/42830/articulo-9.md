@@ -1,0 +1,1 @@
+Artículo 9°-No se podrá autorizar jornada extraordinaria en forma permanente. El Gerente o Jefe de cada Unidad deberá verificar que los servidores públicos que requieran trabajar en jornada extraordinaria, lo hagan alternativamente de acuerdo a cada proyecto de trabajo y de acuerdo a las necesidades institucionales que se vayan generando.

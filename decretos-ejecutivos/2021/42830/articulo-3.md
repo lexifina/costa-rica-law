@@ -1,0 +1,1 @@
+Artículo 3°-Corresponde a la Ministra o el Ministro autorizar la jornada extraordinaria en forma previa a la realización de los trabajos, pero sólo en situaciones excepcionales, cuando sea indispensable satisfacer exigencias especiales del servicio público.

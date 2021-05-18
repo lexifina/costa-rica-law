@@ -1,0 +1,1 @@
+Transitorio Único. Las disposiciones contempladas en el presente reglamento no serán aplicables a los trámites de solicitud o aprobaciones de jornada extraordinaria que se hayan suscrito y estuvieran vigentes, con antelación a la entrada en vigencia del presente reglamento.

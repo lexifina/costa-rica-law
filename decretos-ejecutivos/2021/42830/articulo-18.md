@@ -1,0 +1,1 @@
+Artículo 18.-La solicitud de jornada extraordinaria, previamente autorizada por la Ministra o el Ministro y presentada en la Oficialía Mayor y Dirección Ejecutiva, será analizada en conjunto con la OGEREH, con el fin de que esta instancia verifique si se cumple con los supuestos señalados en el artículo anterior, para proceder conforme a derecho.
