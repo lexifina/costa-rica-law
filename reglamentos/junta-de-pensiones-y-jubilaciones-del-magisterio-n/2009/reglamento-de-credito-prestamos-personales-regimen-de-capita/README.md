@@ -36,3 +36,4 @@ Reglamento de Crédito Préstamos Personales Régimen de Capitalización Colecti
 | 21 | 2019-04-08 | Reglamento 42 (2019-04-08) |
 | 22 | 2020-06-30 | Reglamento 72 (2020-06-30) |
 | 23 | 2021-03-23 | Reglamento 35 (2021-03-23) |
+| 24 | 2021-05-19 | Reglamento 56 (2021-05-19) |
