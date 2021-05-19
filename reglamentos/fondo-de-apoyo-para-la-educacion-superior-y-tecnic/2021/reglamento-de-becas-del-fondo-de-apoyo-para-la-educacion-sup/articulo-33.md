@@ -1,0 +1,9 @@
+ARTÍCULO 33: Autorización y aceptación de condiciones por parte del solicitante o becario
+El solicitante y/o el becario autorizan y aceptan las siguientes condiciones, para tramitar la Solicitud de la Solicitud del Desembolso:
+1. Conocer la totalidad de requisitos y documentación necesaria para el llenado de la Solicitud del desembolso.
+2. La Solicitud de Desembolso, se analiza y tramita cuando el solicitante y/o el becario haya cumplido con todos los requisitos establecidos y aportado toda la documentación requerida por Fondo de Apoyo para Educación Superior y Técnica del Puntarenense.
+3. Ser contactado por el Fondo de Apoyo para Educación Superior y Técnica de la Puntarenense vía telefónica, correo electrónico, correo postal, fax y cualesquiera otros medios disponibles para su localización.
+4. Los datos suministrados en la solicitud son verdaderos y en caso de cualquier inconsistencia, faculta al Fondo de Apoyo para Educación Superior y Técnica del Puntarenense a rechazarla sin responsabilidad alguna.
+5. El Fondo de Apoyo para Educación Superior y Técnica del Puntarenense deposite los montos de los desembolsos en la cuenta de ahorro, en el banco que el Fondo de Apoyo para Educación Superior y Técnica del Puntarenense tenga establecido o mediante los mecanismos que el Fondo de Apoyo para Educación Superior y Técnica del Puntarenense habilite.
+6. El Fondo de Apoyo para Educación Superior y Técnica del Puntarenense solicite directamente a la entidad educativa en la que realiza los estudios, el historial académico, los informes de matrícula, los informes de calificaciones por ciclos lectivos, el estado de no deuda con la universidad y otra información adicional de la universidad que se requiera.
+7. La entrega y recepción de la "Solicitud del Desembolso", no constituye para el Fondo de Apoyo para Educación Superior y Técnica del Puntarenense la obligación de aprobar y desembolsar el monto solicitado.

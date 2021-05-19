@@ -1,0 +1,2 @@
+ARTÍCULO 27. Asignación y Aprobación. La asignación es el proceso mediante el cual se seleccionan los postulantes a becas que calificaron de acuerdo con los factores y parámetros determinantes establecidos por el Consejo Directivo del Fondo.
+La aprobación es el proceso en el cual el Comité Asesor Académico y Técnico da el visto bueno y traslada las solicitudes de becas al Consejo Directivo para que valore y apruebe a aquellos que resultaron con calificaciones con valores de acuerdo a los factores y parámetros establecidos para optar por el beneficio.

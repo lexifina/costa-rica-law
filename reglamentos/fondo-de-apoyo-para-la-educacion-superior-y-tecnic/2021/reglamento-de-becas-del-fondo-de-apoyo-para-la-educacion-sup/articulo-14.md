@@ -1,0 +1,1 @@
+ARTÍCULO 14. Votaciones. Los acuerdos serán adoptados por mayoría simple (por la mitad más una de las personas integrantes del Comité Asesor Académico y Técnico), los votos negativos deberán de justificarse por parte del o la integrante del Comité Asesor Académico y Técnico.

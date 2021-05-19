@@ -1,0 +1,1 @@
+ARTÍCULO 11. Requisitos de Convocatoria a sesiones extraordinarias. La convocatoria a sesiones extraordinarias deberá realizarse por escrito con una antelación mínima de cuarenta y ocho horas, salvo en casos de urgencia o cuando haya acuerdo unánime de las personas integrantes del Comité Asesor Académico y Técnico.

@@ -1,0 +1,4 @@
+CAPITULO X
+PRÓRROGA DEL PLAZO Y ADEMDUM DE CONTRATO DE BECA
+ARTÍCULO 38. Adendum a contrato de beca: Adecuación de monto y plazo de la beca. La solicitud de adecuación del monto y el plazo de la beca son aprobadas por el Consejo Directivo, previa actualización de los requisitos establecidos por la Institución.
+El coordinador de la sección de Análisis y Seguimiento recibirá las solicitudes de adecuación de las condiciones de los plazos y montos por medio de adendum de la beca aprobada, lo remitirá al Comité Asesor Académico y Técnico para su análisis y valoración, además se dará la revisión de los contenidos presupuestarios y de los requisitos contenidos en el programa de becas específico aprobado por el Consejo Directivo para pasar un informe razonado al Consejo Directivo para que este órgano colegiado lo conozca y decida al respecto.

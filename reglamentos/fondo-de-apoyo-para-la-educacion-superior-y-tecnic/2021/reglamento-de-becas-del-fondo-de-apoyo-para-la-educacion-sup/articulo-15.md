@@ -1,0 +1,1 @@
+ARTÍCULO 15. Asuntos no incluidos en el orden del día. Los asuntos no incluidos en el orden del día pueden ser incorporados a la agenda solo cuando dos tercios de quienes integran el Comité Asesor Académico y Técnico lo declaren de urgencia.

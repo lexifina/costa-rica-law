@@ -1,0 +1,1 @@
+ARTÍCULO 23. Firma de documentos por parte del solicitante. La solicitud de Beca, el Contrato de Beca para estudios (según corresponda) y los formularios de solicitudes durante el período de estudios, deben ser firmados por el solicitante o por la persona que ostente poder para dicho acto.

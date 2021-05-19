@@ -1,0 +1,2 @@
+ARTÍCULO 21. Plazos para el trámite y resolución de solicitud de becas. El plazo máximo de resolución de una solicitud de beca estará regulado por el Comité Asesor Académico y Técnico el cual definirá el plazo en función de su disponibilidad,
+se tendrá la fecha en que la persona participante complete el proceso de entrega de documentación como inicio para los plazos definidos por el Consejo Directivo.

@@ -1,0 +1,1 @@
+ARTÍCULO 8. El monto económico para el pago de la beca será fijado anualmente por el Consejo Directivo en función del aumento de los aranceles de la carrera técnica y/o universitario de conformidad a los programas aprobados por el órgano colegiado y justificado en el presupuesto institucional.

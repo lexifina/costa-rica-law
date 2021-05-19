@@ -1,0 +1,3 @@
+CAPITULO XI
+AUTORIZACIÓN DEL USO DE LA INFORMACIÓN APORTADA
+ARTÍCULO 39. Uso de la información aportada por el solicitante de la beca y el becario de los programas institucionales. El solicitante de beca y el becario de los programas institucionales autoriza al Fondo de apoyo para educación superior y técnica del puntarenense para que consulte y utilice la información de todas las personas que conforman el grupo familiar, para analizar los datos aportados y verificar su veracidad por medio de bases de datos, herramientas informáticas y por medio de otras fuentes institucionales disponibles para tal fin.
