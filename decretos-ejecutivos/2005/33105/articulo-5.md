@@ -1,4 +1,5 @@
-Artículo 5º—Descuentos. Podrán realizarse descuentos sobre las tarifas calculadas, conforme a los siguientes criterios:
+Artículo 5º-Descuentos. Podrán realizarse descuentos sobre las tarifas calculadas, conforme a los siguientes criterios:
 a. Cuando en una misma muestra se realicen más de 5 determinaciones distintas podrá aplicarse hasta un 10% de descuento.
 b. Cuando se realicen las mismas determinaciones en más de 5 muestras del mismo tipo, para el mismo cliente y que sean recibidas u obtenidas a la vez, se podrá aplicar hasta un 10% de descuento.
 c. Los laboratorios podrán aplicar un descuento de hasta 10% para montos totales en análisis, superiores a ¢300 000 (trescientos mil colones). Este descuento no se puede aplicar en combinación con ninguno de los anteriores.
+(Nota de Sinalevi: Mediante acuerdo de Junta Directiva número JD-13-2021-7, de la sesión JD-13-2021 del 19 de mayo del 2021; se aclaró que los descuentos del presente artículo se pueden aplicar cuando se utilizan los precios para los análisis a nivel de residuos, trazas y ultratrazas del artículo 7, porque se considera es un descuento sobre descuento.)
