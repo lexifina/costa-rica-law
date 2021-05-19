@@ -1,5 +1,0 @@
-CAPÍTULO IV
-MEDIDAS COMPLEMENTARIAS DE
-TRATAMIENTO INDIVIDUAL.
-Artículo 22.—Solicitud de medidas complementarias de tratamiento individual.
-Salvo que se esté en el supuesto de imponer la sanción de despido, la persona sancionada o el Gerente de Administración y Finanzas, podrán solicitar o recomendar, respectivamente, a los órganos de la Empresa facultados y competentes, que se establezcan medidas complementarias de tratamiento individual a la persona sancionada, esto con la finalidad de orientar adecuadamente su comportamiento, de abordar la situación de conflicto existente y evitar una posible reincidencia.
