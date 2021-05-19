@@ -19,3 +19,4 @@ Reglamento para la Aplicación de Estimaciones a Activos Financieros por Incobra
 | 4 | 2009-04-13 | Reglamento 4655 (2009-04-13) |
 | 5 | 2009-09-28 | Reglamento 4702 (2009-09-28) |
 | 6 | 2016-05-24 | Reglamento 5373 (2016-05-24) |
+| 7 | 2021-05-19 | Reglamento 5828 (2021-05-19) |

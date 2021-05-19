@@ -1,3 +1,1 @@
-Artículo 12.—Si luego de trasladada una cuenta incobrable a cuentas de orden, que judicialmente no se pueda recuperar y por existir un dictamen de incobrabilidad firmado por el Abogado Director, alguien pretendiere cancelarla, deberá pagar las costas personales y procesales, los gastos administrativos relacionados con la gestión de cobro, un año de intereses y el saldo de capital, caso en el cual se dará por cancelada la respectiva obligación.
-Si luego de trasladada una cuenta incobrable a cuentas de orden, sin dictamen de incobrabilidad firmado por el abogado director del proceso, alguien pretendiere cancelarlo, se deberá pagar la totalidad de los intereses pendientes desde la fecha de último pago hasta el pago efectivo de la deuda, así como los demás rubros descritos en el párrafo anterior.
-(Así reformado mediante sesión N° 4655 del 13 de abril del 2009)
+Artículo 12.-(Derogado mediante sesión N° 5828 del 19 de mayo del 2021)
