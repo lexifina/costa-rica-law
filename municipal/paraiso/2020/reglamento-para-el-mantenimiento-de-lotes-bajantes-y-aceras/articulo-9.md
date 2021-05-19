@@ -1,0 +1,3 @@
+Artículo 9º-De las condiciones de ejecución de obras. Corresponde al Departamento de Urbanismo definir las condiciones de cómo deben realizarse las obras, por parte del infractor o la municipalidad, según lo dispuesto por la Ley de Construcciones y el Plan Regulador de Paraíso, para ello deberá:
+1. Definir el ancho y niveles de las aceras, de conformidad con el plan regulador del cantón y las leyes aplicables, y demarcar en el campo y comunicar por escrito estas condiciones al Departamento de Obras.
+2. Auxiliar al Eje de Infraestructura, a fin de verificar el cumplimiento de las obras necesarias para dar efectivo cumplimiento a este Reglamento y las disposiciones sobre construcción que definan las leyes y reglamentos especiales.

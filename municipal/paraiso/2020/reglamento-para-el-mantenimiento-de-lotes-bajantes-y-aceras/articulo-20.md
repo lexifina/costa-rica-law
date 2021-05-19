@@ -1,0 +1,1 @@
+Artículo 20.-Variación de precios. Los costos de los precios por realización de la obra podrán ser variados por acuerdo del Concejo, tomando en consideración razones humanitarias por los escasos recursos comprobados del infractor afectado, previa solicitud del afectado.

@@ -1,0 +1,1 @@
+Artículo 10.-Del Departamento de Catastro. El Departamento de Catastro es el encargado de identificar el número de finca y la ubicación exacta cuando esta tarea resulte difícil o imposible para el personal ambiental. Esta labor, la deberá realizar Catastro dentro del plazo máximo de cinco días hábiles contados después de recibido el pedido del Departamento de Higiene.
