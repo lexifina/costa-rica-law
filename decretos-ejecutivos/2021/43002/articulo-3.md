@@ -1,0 +1,2 @@
+Artículo 3°.-Refórmese el artículo 3° del Decreto Ejecutivo N° 42607-S del 10 de septiembre del 2020, para que en adelante se lea de la siguiente manera:
+"Artículo 3.- El Ministerio de Salud determinará mediante resolución los porcentajes, la gradualidad y progresividad pertinentes para la disposición de las camas de internamiento y los recursos asociados a los servicios de hospitalización para las personas pacientes en los establecimientos de servicio de salud privados."
