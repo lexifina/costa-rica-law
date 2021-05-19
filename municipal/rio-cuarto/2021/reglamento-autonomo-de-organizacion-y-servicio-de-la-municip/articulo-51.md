@@ -1,0 +1,1 @@
+Artículo 51.-Toda actividad teletrabajable deberá ser documentada y evaluada periódicamente por parte de cada jefatura, conforme a los indicadores previamente aprobados, a efectos de determinar el rendimiento individual del teletrabajador y de la gestión.

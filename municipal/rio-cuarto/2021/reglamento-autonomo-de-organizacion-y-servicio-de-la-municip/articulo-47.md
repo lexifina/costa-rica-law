@@ -1,0 +1,1 @@
+Artículo 47.-Por motivos de interés público, emergencia nacional, salubridad pública o cualquier otra causa calificada, la Alcaldía en el ejercicio de las potestades, podrá incluir a una persona funcionaria en la modalidad de teletrabajo. Siempre que esta cumpla con los requerimientos mínimos que establezca este reglamento y el ordenamiento jurídico nacional pertinente.

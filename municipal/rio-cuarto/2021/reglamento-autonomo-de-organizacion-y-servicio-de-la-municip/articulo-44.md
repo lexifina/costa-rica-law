@@ -1,0 +1,1 @@
+Artículo 44.-La persona titular de la Alcaldía será la encargada dar la aprobación para que una persona funcionaria sea incluida en la modalidad de Teletrabajo. Aprobación que se emitirá mediante una resolución administrativa.

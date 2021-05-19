@@ -1,0 +1,1 @@
+Artículo 98.-Las personas funcionarias de la municipalidad desempeñarán sus actividades durante todos los días hábiles y durante las horas reglamentarias. No se concederán permisos para trabajar menos horas de la jornada ordinaria.

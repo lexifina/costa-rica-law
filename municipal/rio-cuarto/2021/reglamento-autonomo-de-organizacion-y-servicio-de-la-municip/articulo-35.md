@@ -1,0 +1,1 @@
+Artículo 35.-Ninguna persona servidora devengará un sueldo, ni plus salarial inferior al mínimo o correspondiente al desempeño del cargo que ocupa, según el Manual de Clases de Puestos y la Escala Salarial.

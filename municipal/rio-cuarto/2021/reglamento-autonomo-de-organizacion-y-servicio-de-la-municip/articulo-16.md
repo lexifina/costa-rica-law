@@ -1,0 +1,2 @@
+Artículo 16.-La selección de personal se hará por medio de pruebas de idoneidad y/o atestados para el caso de cargos que deban llenarse con profesionales, a las que únicamente se admitirán aspirantes que reúnan los requisitos para ser nombrados en el puesto que se trate de conformidad con lo establecido en el Manual de Puestos.
+Para la elaboración y calificación de dichas pruebas el Departamento de Talento Humano o su similar podrá requerir el asesoramiento técnico de la dependencia donde existan puestos vacantes, cuyos jefes están en la obligación de brindarlo.

@@ -1,0 +1,1 @@
+Artículo 112.-Las personas funcionarias que, por algún motivo, tanto a la entrada y salida de labores no registraron su marca, o bien marcaron después de la hora oficial de entrada a laborar o antes de la salida, deben presentar ante su jefatura inmediata el formulario de justificación de asistencia indicando los motivos que originaron la inconsistencia de marca.

@@ -1,0 +1,1 @@
+Artículo 79.-Las vacaciones no podrán ser suspendidas una vez autorizadas, ni por la jefatura inmediata ni por el superior, si la persona trabajadora no lo consciente y podrán disfrutarse a conveniencia de cada persona trabajadora, de conformidad con lo estipulado en el Código de Trabajo.

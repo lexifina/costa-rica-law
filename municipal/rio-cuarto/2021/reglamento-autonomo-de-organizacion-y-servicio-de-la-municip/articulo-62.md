@@ -1,0 +1,37 @@
+CAPÍTULO XII
+Prohibiciones a los funcionarios
+Artículo 62.-Además de lo establecido en este reglamento y en todas las normas supletorias que se le apliquen, queda prohibido a las personas funcionarias:
+a. Usar el poder oficial o la influencia que surja de él, para conferir o procurar servicios especiales, nombramientos o cualquier otro beneficio personal que implique un privilegio para sus familiares, amigos o para cualquier otra persona, medie o no la remuneración.
+b. Emitir normas en su propio beneficio.
+c. Usar el título oficial, los distintivos, la papelería o el prestigio de la Municipalidad para asuntos de carácter personal o privado.
+d. Usar los servicios del personal subalterno para beneficio propio, de familiares y amistades.
+e. Aceptar pago u honorarios por discurso, conferencia o actividad similar a la que haya sido invitado a participar en su calidad de funcionario público.
+f. Llevar a cabo trabajos o actividades, remuneradas o no, fuera de su empleo, que estén en conflicto con sus deberes y responsabilidades municipales, y que generen motivo de duda razonable sobre la imparcialidad en la toma de decisiones que competen al empleado, salvo excepciones admitidas por la ley.
+g. Actuar como intermediador o abogado de una persona, salvo las excepciones de ley, o si el interesado es cónyuge, hermano, ascendiente o descendiente, hasta el segundo grado de consanguinidad o afinidad inclusive, en reclamos administrativos o judiciales contra la Municipalidad.
+h. Solicitar a gobiernos extranjeros o empresas privadas, colaboraciones especiales para viajes, becas, hospitalidades, aportes en dinero u otras liberalidades semejantes, para su propio beneficio o para otro funcionario, aun cuando se esté en funciones del cargo. No opera esta disposición cuando se pida colaboración a estas entidades para la celebración de actividades de beneficencia, culturales, deportivas, recreativas, entre otras, organizadas por la Municipalidad sea para beneficio de los munícipes o bien de los trabajadores municipales, o cuando se trate de programas de capacitación de personal que justifiquen esa colaboración, a criterio del alcalde.
+i. Efectuar o patrocinar a terceras personas, trámites o gestiones administrativas, se encuentren o no directamente a su cargo, fuera de los cauces normales de la prestación del servicio o actividad, de forma tal que su acción implique una discriminación a favor de terceras personas.
+j. Dirigir, administrar, patrocinar, representar o prestar servicios, remunerados o no, a personas de existencia física o jurídica, que gestionen o exploten concesiones o privilegios de la Administración, o que fueran empresas proveedoras o contratistas.
+k. Solicitar servicios o recursos especiales para la institución, cuando dicha aportación comprometa o condicione en alguna medida la toma de decisiones.
+l. Hacer abandono o dejar de hacer las labores encomendadas sin causa justificada o sin permiso expreso de la persona responsable de la actividad donde se encuentre ubicado. Sin perjuicio de otros supuestos, constituye abandono:
+i. Utilizar tiempo de las horas de trabajo para asuntos ajenos a las labores correspondientes del cargo que desempeña.
+ii. Atender visitas en horas de trabajo y hacer llamadas telefónicas de carácter personal para asuntos ajenos a sus labores, a menos que estas sean de gravedad o de urgencia, en cuyo caso deberán ser lo más breves posibles.
+iii. Atender negocios de carácter personal o ejecutar algún trabajo de cualquier naturaleza, ajeno a los fines de su función o de la Municipalidad, en horario laboral. iv. Visitar otras oficinas que no sean aquellas donde presta sus servicios, a no ser que lo exija la naturaleza del trabajo; así como mantener conversaciones que representan pérdida de tiempo laboral con compañeros de labores o con personas extrañas, en perjuicio o con demora del trabajo que se está ejecutando.
+m. Distraer con cualquier clase de juegos, conversaciones o bromas a los compañeros de trabajo o quebrantar la cordialidad y el mutuo respeto que deben prevalecer en las relaciones del personal de la institución.
+n. Incumplir las indicaciones, directrices de la jefatura inmediata o superior jerárquico, cuando sean propias de su competencia, salvo excepciones establecidas por ley.
+o. Ejercer dentro de la institución o en el desempeño de sus funciones, actividades de propaganda político-electoral.
+p. Tomar represalias en contra de las personas colaboradoras, motivadas por causas político-electorales, o que impliquen violación de cualquier otro derecho que conceden las leyes.
+q. Divulgar el contenido de informes o documentos confidenciales, así como hacer público cualquier asunto de orden interno o privado de la Municipalidad, sin la autorización correspondiente.
+r. Ingerir licor o presentarse a las labores en estado de embriaguez, drogadicción o cualquier otra condición análoga.
+s. Emplear, ceder o vender útiles, herramientas, activos y equipo de cualquier tipo suministrado por la Municipalidad, para objeto distinto de aquel al que está oficialmente destinado.
+t. Portar armas de cualquier clase durante las horas de labor, salvo que ellas sean requisito derivado del desempeño de su cargo.
+u. Recoger o solicitar, directa o indirectamente, contribuciones, suscripciones o cotizaciones de otras personas funcionarias; realizar colectas, rifas o ventas de objetos dentro de las oficinas, salvo las excepciones muy calificadas autorizadas por el alcalde.
+v. Ampararse en la condición que otorga la función municipal o invocarle para obtener ventajas de toda índole, ajenas a las funciones que se le han encomendado o para las que fue contratado.
+w. Ejercer actividades profesionales cuando se contrapongan con el ejercicio de las funciones que se estén desempeñando, cuando quebranten la prohibición que imponga la ley para el ejercicio liberal de la profesión, o violen los deberes del régimen de dedicación exclusiva; tampoco se debe servir como mediador para facilitar a terceras personas sus actividades profesionales, valiéndose para ello del cargo o posición que se ocupa.
+x. Ejercer presión, hostigar, acosar, tomar represalias contra alguna persona colaboradora, trabajadora o subalterna para obtener provecho personal en acciones relacionadas con credos políticos, religiosos, sexuales, económicos y de cualquier otra índole.
+y. Fumar en los vehículos municipales de acuerdo con lo establecido en la Ley N° 9028, denominada Ley General de Control del Tabaco y sus efectos nocivos en la Salud.
+z. Hacer propaganda religiosa y política en el centro de trabajo en horas laborales.
+aa. Extraer documentos, expedientes, equipo o cualquier bien de la institución, sin el permiso escrito de la persona superior jerárquica, aunque sea para dar cumplimiento a labores de la Municipalidad.
+bb. Tratar de resolver por medio de la violencia de hecho o de palabra las dificultades que surjan con jefes y demás servidores o usuarios.
+cc. Incurrir en prácticas laborales desleales, según lo establece el Código de Trabajo.
+dd. Nombrar a personal con parentesco de consanguinidad o de afinidad en línea directa o colateral, hasta el tercer grado inclusive con la jefatura inmediata o con la persona superior en la respectiva dependencia municipal, así también como lo señala el Código Municipal.
+ee. Aquellas que al efecto establezca el ordenamiento jurídico vigente.

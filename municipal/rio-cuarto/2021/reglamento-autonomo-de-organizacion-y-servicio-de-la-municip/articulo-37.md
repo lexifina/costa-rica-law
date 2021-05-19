@@ -1,0 +1,1 @@
+Artículo 37.-El pago de salario de todo el personal se calculará y pagará en forma mensual con adelanto quincenal, depositándose en la cuenta bancaria IBAN que la persona funcionaria al efecto comunique.

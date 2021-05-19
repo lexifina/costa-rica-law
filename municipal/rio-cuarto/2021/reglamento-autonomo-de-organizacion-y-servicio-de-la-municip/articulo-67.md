@@ -1,0 +1,2 @@
+Artículo 68.-La Comisión de Salud Ocupacional velará por el cumplimiento de las normas de Salud Ocupacional, establecidas en la Constitución Política, los Convenios Internaciones de la OIT debidamente ratificados por la Asamblea Legislativa, el Código de Trabajo y las leyes conexas sobre la materia.
+Las personas trabajadoras son responsables del adecuado uso y manejo del equipo de protección personal y del uniforme que se les proporcione para la ejecución de sus labores.

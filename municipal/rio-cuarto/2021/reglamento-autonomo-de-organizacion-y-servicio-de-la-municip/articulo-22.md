@@ -1,0 +1,2 @@
+Artículo 22.-En los concursos, ya sea internos o externos, la administración Municipal emitirá los lineamientos, requisitos, condiciones y aspectos base que regularán cada concurso en específico. Estos serán contenidos en un pliego de condiciones específico.
+Las etapas y procedimientos para la elección de quién ocupará una plaza vacante estarán contenidos en dicho pliego. Como resultado de ellos deberá conformarse una terna de la cual se seleccionará a la persona idónea. Misma que se conformará por las tres personas con mayor puntaje de la nómina de elegibles.

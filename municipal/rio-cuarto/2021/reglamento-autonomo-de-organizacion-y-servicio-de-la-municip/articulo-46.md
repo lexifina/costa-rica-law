@@ -1,0 +1,6 @@
+Artículo 46.-La aprobación o no de una persona funcionaria para que labore en la modalidad de Teletrabajo estará sujeta al siguiente procedimiento:
+1. La persona funcionaria presentar una solicitud formal ante Talento Humano o su similar.
+2. La jefatura involucrada deberá presentar ante Talento Humano o su similar la solicitud que contenga las funciones justificadas para la inclusión de la persona trabajadora en la modalidad de Teletrabajo, del puesto, productividad del puesto y el plan de trabajo a desarrollar con la persona trabajadora, y deberá determinar si la información a la cual tiene acceso el teletrabajador es de carácter confidencial y sensible a los intereses de la institución.
+3. Talento Humano o su similar elaborará el análisis de la solicitud presentada respecto de la información brindada por la jefatura y la documentación que tenga en su poder y emitirá la recomendación respectiva a la Alcaldía.
+4. La Alcaldía emitirá la resolución de aprobación o no de la solicitud de ingreso a la modalidad de Teletrabajo. Resolución que deberá ser notificada al solicitante y será objeto de los recursos administrativos ordinarios.
+5. De ser aprobado el ingreso a Teletrabajo se suscribirá el contrato o adenda según lo establecido por el presente reglamento y el ordenamiento jurídico vigente.

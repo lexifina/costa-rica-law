@@ -1,0 +1,1 @@
+Artículo 124.-El personal que deba realizar una gira fuera de su lugar de trabajo, deberá usar el uniforme respectivo, excepto que por el tipo de gira se recomiende otro tipo de vestimenta. Para ello deberá contar con autorización escrita de la jefatura inmediata.

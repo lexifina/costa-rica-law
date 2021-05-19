@@ -1,0 +1,1 @@
+Artículo 14.-El Departamento de Asesoría Legal brindará toda la asesoría jurídica a la Alcaldía, Vice alcaldía, y las diferentes dependencias municipales que lo requieran, de igual forma realizará todo lo que le corresponda.

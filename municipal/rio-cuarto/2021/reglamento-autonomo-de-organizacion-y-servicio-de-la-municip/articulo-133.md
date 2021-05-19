@@ -1,0 +1,5 @@
+Artículo 133.-El despido se efectuará sin responsabilidad para el patrono, en los siguientes casos:
+a. En los casos de falta grave previstos en este reglamento.
+b. En los casos excepcionalmente previstos en este reglamento.
+c. Cuando el funcionario incurra en alguna de las causales previstas en el artículo 81 del Código de Trabajo, artículo 157 del Código Municipal y otras disposiciones conexas y supletorias.
+d. En caso que la sanción a aplicar sea el despido sin responsabilidad patronal, quien ostente el puesto de alcalde podrá imponer a la persona funcionaria una suspensión con goce de salario por 15 días, valorando las circunstancias atenuantes que se presenten en cada caso y tomando en consideración aspectos tales como: la magnitud del daño tanto patrimonial como de la imagen institucional causado a la municipalidad, el grado de culpabilidad o dolo que determine la jerarquía de la persona funcionaria, su nivel de responsabilidad dentro de la Municipalidad, los antecedentes de su expediente personal y las evaluaciones del desempeño.

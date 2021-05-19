@@ -1,0 +1,1 @@
+Artículo 52.-Todo teletrabajador deberá mantener el rendimiento establecido en el contrato de trabajo; en caso contrario la jefatura inmediata solicitará el informe correspondiente a efectos de determinar si las causas de dicho desempeño son o no atribuibles al Teletrabajador, procediendo con lo dispuesto en la normativa laboral vigente y otorgando el debido proceso.

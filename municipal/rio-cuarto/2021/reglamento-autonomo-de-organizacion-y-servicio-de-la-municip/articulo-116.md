@@ -1,0 +1,1 @@
+Artículo 116.-Se considerará llegada tardía la presentación al trabajo después de la hora señalada para el comienzo de las labores en la jornada diaria de acuerdo sin perjuicio de la sanción disciplinaria correspondiente. Sin embargo, se conceden hasta cinco minutos de gracia para la realización de la marca de entrada.

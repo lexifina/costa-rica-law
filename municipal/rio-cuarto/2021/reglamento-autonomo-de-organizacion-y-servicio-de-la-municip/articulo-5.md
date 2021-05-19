@@ -1,0 +1,1 @@
+Artículo 5º-Las personas funcionarias que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables ante quien ostente la Alcaldía, de velar por la correcta aplicación de todas las disposiciones de este Reglamento y de la demás normativa municipal y nacional que rige a esta Municipalidad.

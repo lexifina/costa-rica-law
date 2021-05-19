@@ -1,0 +1,1 @@
+Artículo 71.-Para que los trabajadores puedan desempeñar sus funciones en condiciones de seguridad e higiene, comodidad y buena presentación, la Municipalidad suministrará, según sea el caso, o cuando se demuestre que por su uso o cualquier otra circunstancia no imputable al trabajador la misma se deteriore o pierde, los implementos necesarios, y de buena calidad.

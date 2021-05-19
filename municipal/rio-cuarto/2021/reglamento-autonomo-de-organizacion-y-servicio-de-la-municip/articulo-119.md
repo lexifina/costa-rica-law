@@ -1,0 +1,2 @@
+Artículo 119.-Las ausencias al trabajo por enfermedad deberá justificarlas la persona funcionaria incapacitada mediante una certificación médica extendida por la Caja Costarricense del Seguro Social o por el Instituto Nacional de Seguros, si se tratara de un riesgo profesional.
+Cuando una persona trabajadora se encuentre enferma y no presente incapacidad emitida por la CCSS o el INS, podrá justificar ante su jefatura inmediata, mediante un dictamen médico particular cuando sea refrendada por la CCSS.

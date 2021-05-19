@@ -1,0 +1,1 @@
+Artículo 70.-La Municipalidad se compromete a mantener activa la brigada de emergencias y de brindarles la capacitación adecuada. Asimismo, se compromete a mantener los botiquines debidamente equipados para primeros auxilios, extintores debidamente ubicados, además de todo el equipo necesario que requiera la brigada.

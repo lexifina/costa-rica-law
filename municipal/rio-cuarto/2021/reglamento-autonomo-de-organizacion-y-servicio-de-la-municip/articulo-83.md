@@ -1,0 +1,1 @@
+Artículo 83: Las jefaturas inmediatas deberán coordinar con sus colaboradores las fechas en que estos disfrutarán sus periodos de vacaciones y deberá informarlo por escrito a Talento Humano o su similar.

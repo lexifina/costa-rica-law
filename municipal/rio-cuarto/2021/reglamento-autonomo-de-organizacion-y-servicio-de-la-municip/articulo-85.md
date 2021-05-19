@@ -1,0 +1,1 @@
+Artículo 85.-Cuando ingrese a laborar un funcionario al que se le ha reconocido el pago de anualidades y los años de servicio, se le otorgará vacaciones de acuerdo con el mismo tiempo laborado en la Administración Pública.

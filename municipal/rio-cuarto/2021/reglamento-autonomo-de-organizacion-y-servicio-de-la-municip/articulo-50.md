@@ -1,0 +1,1 @@
+Artículo 50.-En lo que respecta a los riesgos del trabajo, para el teletrabajo se aplicaran las pólizas previstas para el trabajo presencial y se regirá por lo dispuesto en la Ley N° 2, Código de Trabajo, del 27 de agosto de 1943.

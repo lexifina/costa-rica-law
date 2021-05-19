@@ -1,0 +1,1 @@
+Artículo 117.-La llegada tardía que exceda quince minutos, contados a partir de la hora de ingreso en la mañana, acarreará la pérdida de media jornada, lo cual representa la mitad de una ausencia para efectos de sanción, salvo que la jefatura inmediata avale la justificación bajo su entera responsabilidad.

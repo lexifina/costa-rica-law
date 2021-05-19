@@ -1,0 +1,1 @@
+Artículo 115.-La persona funcionaria que efectúe un registro de asistencia que no sea el suyo, incurrirá en falta grave; de la misma manera, aquel que consienta o solicite a otro que le registre su marca de asistencia, lo cual acarreará el despido sin responsabilidad patronal.

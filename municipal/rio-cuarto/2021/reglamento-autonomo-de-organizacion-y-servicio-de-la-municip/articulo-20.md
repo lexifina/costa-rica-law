@@ -1,0 +1,1 @@
+Artículo 20.-En caso de inopia en el concurso interno, se sacará la plaza a concurso externo publicado en un periódico de circulación nacional, bajo las mismas condiciones de esta decisión con sus principales justificantes y atendiendo las disposiciones del Código Municipal.

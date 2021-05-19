@@ -1,0 +1,1 @@
+Artículo 82.-Las jefaturas de los departamentos no podrán retener las vacaciones a las personas trabajadoras y en caso de hacerlo serán sancionadas según sea la gravedad de la falta cumpliendo el debido proceso.

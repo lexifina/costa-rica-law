@@ -1,0 +1,1 @@
+Artículo 2º-La aplicación de este reglamento corresponde a quien ejerza el cargo de alcalde municipal y a los representantes patronales, según concierna y rige para todas las personas funcionarias. Cualquier ambigüedad que contenga este reglamento deberá ser interpretada o aclarada conforme a la jerarquía de las fuentes del Derecho.

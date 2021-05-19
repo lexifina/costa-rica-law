@@ -1,0 +1,1 @@
+Artículo 69.-El incumplimiento del artículo anterior, tendrá carácter de prueba, para la aplicación del Régimen disciplinario, sin menoscabo de los derechos de defensa que le asisten legalmente a la persona trabajadora.

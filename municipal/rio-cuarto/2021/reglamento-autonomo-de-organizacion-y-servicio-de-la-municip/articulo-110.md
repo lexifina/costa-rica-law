@@ -1,0 +1,2 @@
+Artículo 110.-Quien ejerza la Alcaldía, podrá eximir de la obligación de registrar las marcas de asistencia a las personas cuando lo considere necesario.
+La jefatura inmediata será la encargada de controlar la asistencia de quien se encuentre exento de marca. Se perderá ese incentivo cuando la persona beneficiada con la exención de marca incumpla alguna de las condiciones, para lo cual jefatura inmediata procederá solicitar a talento Humano la inclusión de marca.

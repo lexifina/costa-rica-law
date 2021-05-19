@@ -1,0 +1,2 @@
+Artículo 32.-Se establece un sistema de méritos en la Municipalidad, que garantice a los trabajadores, el fortalecimiento de la carrera administrativa, independientemente de la clase de puestos que estos ocupen.
+La carrera administrativa se fundamenta en el esfuerzo, que, en forma individual o colectiva, realicen los trabajadores, para ocupar puestos de mayor nivel, que les conduzcan a la superación económica y social.

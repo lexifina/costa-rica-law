@@ -1,0 +1,1 @@
+Artículo 102.-Las jefaturas inmediatas, previo a autorizar jornadas extraordinarias deberán asegurarse de que exista el contenido presupuestario y en caso de autorizar tiempo extraordinario sin que hubiera presupuesto para pagarlo, recaerá en la jefatura el pago de ese tiempo y sus correspondientes ajustes en lo que respecta a aguinaldo.

@@ -1,0 +1,1 @@
+Artículo 94.-La materia relativa a la concesión de capacitación, becas y licencias para estudios de las personas trabajadoras de la Municipalidad, estará regulada por la normativa interna que se disponga para ello.

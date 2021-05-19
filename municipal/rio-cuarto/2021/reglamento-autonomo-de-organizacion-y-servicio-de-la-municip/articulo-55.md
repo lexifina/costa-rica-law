@@ -1,0 +1,1 @@
+Artículo 55.-Cuando la Municipalidad desee revocar la modalidad de Teletrabajo otorgada a una persona trabajadora con posterioridad al inicio de la relación laboral, la decisión no debe implicar perjuicio o ruptura de la relación laboral, ni debe obedecer a prácticas discriminatorias o represalias.

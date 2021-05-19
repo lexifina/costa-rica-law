@@ -1,0 +1,1 @@
+Artículo 53.-En caso de que no se cumpla con las metas y rendimientos del teletrabajo, la jefatura procederá a informar y solicitar a Talento Humano o su similar la recisión contractual del Contrato de prestación de servicios bajo la modalidad de teletrabajo en el caso que no cumpla con las condiciones establecidas, tal como faculta la misma Ley de teletrabajo vigente.

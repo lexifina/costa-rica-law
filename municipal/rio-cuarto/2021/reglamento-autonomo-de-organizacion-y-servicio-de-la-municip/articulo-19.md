@@ -1,0 +1,2 @@
+Artículo 19.-Cuando resulte necesario realizar un concurso interno por oposición, el Departamento de Talento Humano o su similar, publicará su apertura.
+La publicación de concurso interno deberá consignar los requisitos del puesto, características y salario. Se imprimirá en caracteres legibles y se colocará en los sitios más visibles de todos los centros de trabajo de la Municipalidad, donde se mantendrá por un plazo no inferior a ocho días hábiles, así como, se realizará su comunicación a través del correo electrónico institucional.

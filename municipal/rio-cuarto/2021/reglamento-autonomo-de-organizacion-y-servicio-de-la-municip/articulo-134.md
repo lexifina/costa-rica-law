@@ -1,0 +1,1 @@
+Artículo 134.-Para aplicar las sanciones disciplinarias de suspensión sin goce de sueldo y despido sin responsabilidad patronal, previamente deberá realizarse el procedimiento ordinario regulado en el libro segundo de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 58.-A las personas funcionarias que utilicen los vehículos propiedad de la Municipalidad se aplicaran las obligaciones señaladas en este reglamento, sin detrimento de lo establecido en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial y en el Reglamento Interno correspondiente.
