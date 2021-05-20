@@ -1,0 +1,25 @@
+MUNICIPALIDAD DE PARAÍSO
+CERT-01-2021
+Ana Rosa Ramírez Bonilla
+SECRETARIA DEL CONCEJO MUNICIPAL
+CERTIFICA:
+Que en la Sesión Ordinaria número 39 del 27 de octubre del año 2020 el Concejo Municipal de Paraíso en el Artículo IV, Inciso 1, Acuerdo 6, aprobó por Unanimidad y en Firme las Modificaciones al Reglamento vigente de Sesiones y Comisiones Municipales ( publicado en La Gaceta N° 228 del 25 de noviembre del 2008), las cuales son:
+Artículo 26.-Las sesiones se cerrarán cuando se hayan conocido todos los asuntos expuestos en el orden del día o bien cuando por moción razonada de los señores regidores se acuerde posponer los asuntos a tratar en el orden día.
+Artículo 52.-Todo asunto tratado en el Concejo que amerite un acuerdo deberá ser sometido a conocimiento de Comisión, salvo que por mayoría calificada se le dispense del trámite de Comisión.
+Artículo 91.-De toda sesión deberá levantarse un acta que es la relación escrita de lo sucedido, tratado o acordado en el Concejo, la cual se somete a aprobación mediante votación de los y las señoras regidoras quienes manifestaran su aprobación levantando su mano o no.
+Artículo 106.-Las comisiones permanentes deberán estar integradas por tres o cinco miembros, de los cuales todos deberán ser regidores propietarios, el presidente podrá reestructurarlas por ausencia de alguno de sus miembros.
+Artículo 114.-Las comisiones de trabajo se integrarán como lo indica el artículo 49 del Código Municipal, de manera equitativa entre los regidores propietarios. Se permitirá la participación en sesiones de comisión a funcionarios municipales y vecinos del cantón en carácter único de asesores. Todas las reuniones de comisión serán públicas.
+Artículo 115.-El Concejo municipal integrará como mínimo nueve comisiones permanentes, y de conformidad con lo que establece el Código Municipal vigente en su artículo 50, las mismas se regularan de la siguiente manera:
+Ø Hacienda y Presupuesto: Analizará todo lo relacionado a Presupuesto y Hacienda Municipal de acuerdo con el título IV del Código Municipal.
+Ø Obras Públicas: Analizará todo lo relacionado con proyectos de obras públicas que se desarrollen o se pretendan desarrollar en el cantón, sean del Gobierno Local como del Nacional, sus instituciones, asociaciones de desarrollo y específicas, así como aquellos temas referidos a planificar y controlar el desarrollo urbano del cantón tomando como herramienta básica el Plan Regulador existente.
+Ø Asuntos Sociales: Estudiará y recomendará políticas a seguir en el campo social dando énfasis a programas y proyectos de prevención contra el consumo de drogas prohibidas, para lo cual establecerá una cooperación directa con los grupos organizados del cantón, para lograr una verdadera participación ciudadana en los foros donde se analice y se dicten políticas a seguir en esta materia.
+Ø Gobierno y Administración: Analizará asuntos relacionados con la organización municipal en materia de administración municipal, relaciones con el Gobierno Central, Asamblea Legislativa, Concejos de Distrito, Gobiernos Municipales, Juntas Escolares, etc.
+Ø Asuntos Jurídicos: Será la encargada de crear y presentar ante el Concejo todos los proyectos de reglamentos, analizará y recomendará al Concejo las propuestas ante los proyectos de ley, así como cualquier otra recomendación que en el campo estrictamente legal el Concejo solicite.
+Ø Asuntos Ambientales: Será la encargada de estudiar, planificar y recomendar todo lo relacionado con la protección al medio ambiente.
+Ø Asuntos Culturales: Analizará y recomendará todo lo relacionado con la expansión y divulgación cultural en el cantón, asimismo impulsará actividades que conlleven al rescate de tradiciones populares propias de nuestra región como cualquier otra iniciativa que en este campo el Concejo le asigne.
+Ø Condición de la Mujer: Analizará e impulsará políticas locales para la igualdad y equidad de género para lo cual trazará políticas de colaboración con instituciones públicas y privadas que desarrollen programas de asesoría y ayuda directa para las mujeres.
+Ø Accesibilidad y Discapacidad: En adelante COMAD, velará porque el Concejo Municipal y la Alcaldía impulsen políticas públicas locales a favor de la igualdad y la equiparación de oportunidades, promoviendo un desarrollo local participativo e inclusivo que contemple las diversas necesidades y derechos de la población con discapacidad.
+Artículo 121.-Las Comisiones solo atenderán aquellos asuntos que expresamente se señalan en el artículo 115 de este reglamento, o bien que la presidencia o el Concejo Municipal por medio de acuerdo le asigne.
+Artículo 122.-Las Comisiones atenderán al público que lo solicite en sus sesiones regulares cuando estas estén relacionadas con asuntos encomendados a la Comisión respectiva, previa audiencia solicitada a la Secretaría del Concejo.
+Artículo 126.-Tanto el Concejo Municipal como las Comisiones, podrán realizar sus sesiones en forma virtual cuando la situación lo amerite.
+Se extiende la presente al ser las 12:01 horas del día 11 del mes de enero del año 2021 a solicitud del interesado.
