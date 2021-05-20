@@ -1,1 +1,0 @@
-Artículo 40° Respaldo de los desembolsos. Todo desembolso deberá estar debidamente respaldado por un justificante o documento probatorio del egreso a nombre de la Contraloría y debidamente cancelado. Dichos documentos deberán cumplir con los requisitos establecidos en el artículo 15° de este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 38° Contenido presupuestario. Todas las erogaciones que se realicen por las Sub Cajas Chicas Auxiliares deben contar con el respectivo contenido presupuestario y la verificación de la existencia de éste, se efectuará en los mismos términos y responsabilidades señalados en el artículo 13° de este Reglamento.

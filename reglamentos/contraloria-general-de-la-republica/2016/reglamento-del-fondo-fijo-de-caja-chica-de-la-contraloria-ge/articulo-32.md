@@ -1,1 +1,0 @@
-Artículo 32° Caja Chica Auxiliar. Concepto. La Caja Chica Auxiliar constituye un fondo de efectivo o suma de dinero que será exclusivo para las Sub Cajas Chicas Auxiliares, con el propósito de realizar pagos en efectivo u otros medios de pago que autorice el (la) Contralor(a) General o Subcontralor(a) General.

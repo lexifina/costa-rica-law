@@ -1,1 +1,0 @@
-Artículo 14° Respaldo del gasto. Cuando por las características del gasto, éste no pueda respaldarse inmediatamente con el comprobante respectivo, la Unidad de Servicios de Proveeduría deberá preparar el documento interno debidamente diseñado para tales efectos, hasta tanto el personal que realiza la gestión no presente el comprobante externo.

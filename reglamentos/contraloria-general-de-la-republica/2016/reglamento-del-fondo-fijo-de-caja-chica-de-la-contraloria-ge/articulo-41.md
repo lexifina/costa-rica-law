@@ -1,1 +1,0 @@
-Artículo 41° Comprobantes de naturaleza interna. Cuando las circunstancias o tipo de gasto no permitan respaldar el mismo por un justificante de pago de naturaleza externa, la Unidad de Administración Financiera y la Unidad de Servicios de Proveeduría deberán preparar internamente el correspondiente comprobante.

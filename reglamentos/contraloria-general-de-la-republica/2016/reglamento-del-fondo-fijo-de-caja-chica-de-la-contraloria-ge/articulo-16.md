@@ -1,1 +1,0 @@
-Artículo 16° Sello de pagado. A toda factura, tiquete o comprobante y otros documentos relativos a la compra de bienes y servicios se le estampará un sello que tenga la leyenda "pagado con cheque, efectivo o transferencia electrónica", número y fecha de pago.

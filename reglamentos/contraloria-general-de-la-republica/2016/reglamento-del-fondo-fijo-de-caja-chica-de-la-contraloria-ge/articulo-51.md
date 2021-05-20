@@ -1,1 +1,0 @@
-Artículo 51° Aplicación de disposiciones al Fondo Fijo de Caja Chica. Las Sub Cajas Chicas Auxiliares se regirán por todas aquellas disposiciones que regulen al Fondo Fijo de Caja Chica en lo que les corresponda.

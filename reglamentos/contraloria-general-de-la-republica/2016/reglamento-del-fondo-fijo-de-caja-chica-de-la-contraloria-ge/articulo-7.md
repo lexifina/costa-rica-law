@@ -1,1 +1,0 @@
-Artículo 7° Sobrantes de dinero. Los sobrantes de dinero, resultantes de los arqueos, se depositarán en el Fondo General del Gobierno por las vías autorizadas por la Tesorería Nacional. Asimismo, los intereses devengados por el saldo de la cuenta bancaria del Fondo Fijo de Caja Chica, se depositarán en el Fondo General del Gobierno

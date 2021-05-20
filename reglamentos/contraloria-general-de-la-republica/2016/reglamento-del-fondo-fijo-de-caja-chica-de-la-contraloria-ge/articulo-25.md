@@ -1,1 +1,0 @@
-Artículo 25° Beneficiario del pago. Independientemente del medio de desembolso utilizado, todos los pagos contra la cuenta bancaria del Fondo Fijo de Caja Chica se harán a nombre de la persona física o jurídica beneficiaria del mismo.

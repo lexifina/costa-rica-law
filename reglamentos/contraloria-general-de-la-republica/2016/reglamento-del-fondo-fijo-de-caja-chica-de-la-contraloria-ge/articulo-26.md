@@ -1,1 +1,0 @@
-Artículo 26° Cheques de reintegro. Los cheques de reintegro de la Sub Caja Chica Auxiliar de la Unidad de Administración Financiera, deberán emitirse a nombre de la persona encargada de la Tesorería o en ausencia de ésta, a nombre del personal que lo supla, o en su defecto a nombre de la Jefatura de la Unidad de Administración Financiera.
