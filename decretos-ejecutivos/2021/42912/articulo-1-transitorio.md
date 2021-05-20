@@ -1,0 +1,1 @@
+Transitorio I.-Las inscripciones y renovaciones que a la fecha de publicación del presente decreto ejecutivo no hayan vencido del Registro de Consultores, se adecuarán al nuevo plazo de vigencia de manera que completen los cinco años.

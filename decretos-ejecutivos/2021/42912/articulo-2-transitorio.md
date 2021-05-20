@@ -1,0 +1,1 @@
+Transitorio II.-Hasta tanto la Bitácora Digital Ambiental no implemente las gestiones indicadas en el inciso 4) del artículo 85 modificado en el presente decreto ejecutivo, estas gestiones se recibirán de forma impresa.
