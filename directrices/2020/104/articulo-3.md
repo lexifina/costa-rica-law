@@ -1,0 +1,1 @@
+Artículo 3°-Seguimiento y articulación general. La ejecución de las medidas estará a cargo de las instituciones citadas en el artículo 1° de la presente Directriz, con el seguimiento y articulación general de la Primera Dama, como coordinadora Política de la Región, con el apoyo del Ministerio de la Presidencia, en el marco de sus competencias.
