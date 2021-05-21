@@ -1,0 +1,1 @@
+Transitorio IV.-Este Reglamento deroga el Reglamento de Asignación, Uso y Custodia de Teléfonos Celulares y Radiolocalizadores, Acuerdo de Junta Directiva N° 2006-088 adoptado en sesión ordinaria N° 2008-008 celebrada el 31 de enero del 2006, así como cualquier otra circular y directriz que se le oponga y emitida hasta el momento de esta promulgación.

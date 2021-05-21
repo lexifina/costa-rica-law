@@ -1,0 +1,1 @@
+Transitorio II.-Dentro de los dos meses siguientes a su entrada en vigencia, los funcionarios mencionados en los artículos 8° y 11 de este Reglamento, formalizarán el contrato respectivo con la Institución, según se ajuste a la normativa, así como las características de la terminal y la línea bajo su uso.

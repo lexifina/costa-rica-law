@@ -1,0 +1,1 @@
+Artículo 26.-Del incumplimiento. El incumplimiento de las disposiciones de este capítulo puede generar responsabilidad disciplinaria y pecuniaria para el funcionario o su superior, una vez seguido el debido proceso que así lo determine.
