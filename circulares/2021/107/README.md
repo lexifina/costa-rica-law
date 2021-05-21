@@ -13,3 +13,4 @@ Disposiciones obligatorias temporales ante la situación presupuestaria actual d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-14 | la propia norma |
+| 2 | 2021-05-21 | Circular 112 (2021-05-21) |
