@@ -1,0 +1,2 @@
+Artículo 9.- Prórroga de nombramientos interinos y recargos:
+El Ministerio de Educación Pública, con el fin de garantizar el correcto desarrollo del servicio educativo en el marco de la Educación Combinada y en vista de las disposiciones especiales implementadas en esta resolución, procede a garantizar la continuidad y prórroga de los nombramientos interinos y recargos vigentes para el presente curso lectivo y hasta su finalización. Lo anterior, supeditado a la necesidad del servicio educativo.

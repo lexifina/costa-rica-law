@@ -1,0 +1,2 @@
+Artículo 10.- Suspensión de convocatorias oficiales y actividades de actualización y formación docente.
+Con motivo de la interrupción del curso lectivo 2021 por motivos sanitarios implementada en esta resolución, el Ministerio de Educación Pública y sus dependencias procederán a suspender y reprogramar toda convocatoria oficial con incidencia en centro educativos, entre estas convocatorias a procesos de actualización y formación docente.

@@ -1,0 +1,2 @@
+Artículo 6.- Modificación a los lineamientos vigentes en materia de Educación Combinada y reprogramación de convocatorias a pruebas nacionales.
+El Ministerio de Educación Pública, con posterioridad a la emisión de la presente resolución, procederá a comunicar a la comunidad educativa nacional las diversas reformas a los lineamientos aplicables en materia de Educación Combinada y las modificaciones que resulten pertinentes en cuanto a fechas de convocatorias a pruebas nacionales, entre estas pruebas nacionales FARO.
