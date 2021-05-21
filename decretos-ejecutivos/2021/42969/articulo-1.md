@@ -1,0 +1,13 @@
+N° 42969-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J, publicado en La Gaceta N° 96 del 21 de mayo del 2001, así como lo establecido en el artículo 3, inciso ch) de la Ley de Impuesto sobre la Renta N° 7092 y en los artículos 103 y 104 de Código de Normas y Procedimientos Tributarios N° 4755.
+Considerando:
+I.-Que el artículo 32 de la Ley de Asociaciones N° 218 de 8 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.-Que la Asociación Pro Recién Nacidos, cédula de persona jurídica número: 3-002-071027, se inscribió en el Registro de Asociaciones del Registro Público Nacional desde el día 3 de octubre de 1984, tomo 1 y asiento 47.
+III.-Que los fines que persigue la asociación, según sus estatutos son: "a) Fomentar el estudio y desarrollo de las nuevas técnicas de diagnóstico y tratamiento de las enfermedades de los recién nacidos; b) Velar por el mejoramiento de la atención del recién nacido a nivel nacional y en particular en la Unidad Regional de atención que funciona en el Hospital de Niños; c) Organizar congresos médicos, simposios, conferencias, cursos de actualización y pláticas relacionadas con las enfermedades de los recién nacidos; d) Hacer conciencia a través de publicaciones en los medios de comunicación colectiva acerca de la necesidad de mejorar la atención de los recién nacidos con miras a reducir el porcentaje de muertes en este campo; e) Promover campañas a todo nivel para la consecución de recursos para las crecientes necesidades de la Unidad de atención de cuidados intensivos del recién nacido; f) Estimular la educación de la familia para lograr su participación en la prevención y/o recuperación de las enfermedades del recién nacido; g) Realizar campañas periódicas para estimular el hábito de lactancia materna y promover la creación de nuevos bancos de leche materna." (Folio 35)
+IV.-Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado costarricense. Por tanto,
+Decretan
+DECLARATORIA DE UTILIDAD PÚBLICA
+PARA LA ASOCIACIÓN PRO RECIÉN NACIDOS
+Artículo 1º-Declárese de utilidad pública para los intereses del Estado la Asociación Pro Recién Nacidos, cédula de persona jurídica número 3-002-071027.
