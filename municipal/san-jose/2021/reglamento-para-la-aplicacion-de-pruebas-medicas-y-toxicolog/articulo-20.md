@@ -1,0 +1,4 @@
+CAPÍTULO VI
+De la aplicación de las sanciones
+Artículo 20.-Para calificar la falta disciplinaria relacionada con ingesta de licor o drogas, la Dirección de Talento Humano tomará en cuenta lo establecido en el artículo 211 de la Ley General de la Administración Pública, el Reglamento Autónomo de Organización y Servicios, Código Municipal y Código de Trabajo, a efecto de determinar la existencia y el grado de culpa, dolo o negligencia del funcionario denunciado, el rango jerárquico, naturaleza de las funciones, impacto en el servicio y reincidencia en casos similares.
+Además se aplicarán los principios de: probidad, objetividad, igualdad, equidad, legalidad, motivación, celeridad y economía procesal, razonabilidad, proporcionalidad, discrecionalidad, conveniencia, oportunidad y buena fe; sin perjuicio de cualquier otro aplicable. Los principios indicados inspiran este reglamento y orientan su aplicación e interpretación, así como la gestión de la Municipalidad.

@@ -1,0 +1,2 @@
+Artículo 10.-La toma de muestras urinarias para el control de dopaje estará siempre a cargo de los Médicos de la Institución. Durante la toma de muestra, únicamente podrán estar presentes el profesional encargado de la prueba y la persona sujeta a examen.
+El procedimiento se debe realizar de manera idónea y adecuada, bajo los más estrictos requerimientos propios de la función pericial, la recolección de muestras se llevará a cabo guardando absoluta discreción, en respeto siempre de la dignidad de la persona sometida a examen.

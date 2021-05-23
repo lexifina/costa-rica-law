@@ -1,0 +1,1 @@
+Artículo 4º-El personal designado que participe en la realización del examen deberá determinar el tipo de pruebas médicas y/o toxicológicas que se practicarán, de acuerdo con los resultados que obtenga de la valoración inicial que se realice a la persona que se somete a análisis.

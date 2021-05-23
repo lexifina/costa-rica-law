@@ -1,0 +1,1 @@
+Artículo 11.-Para la realización del examen toxicológico control de dopaje será necesario el uso de dos diferentes formularios (Consentimiento Informado y Resultados de Pruebas), cuya manipulación quedará bajo la responsabilidad de los profesionales encargados de realizar la prueba.

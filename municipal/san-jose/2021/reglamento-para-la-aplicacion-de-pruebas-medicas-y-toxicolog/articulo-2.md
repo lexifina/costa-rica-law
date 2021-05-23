@@ -1,0 +1,1 @@
+Artículo 2º-Con el fin de evitar el exceso de acumulación gráfica, al utilizar la palabra trabajador, colaborador, funcionario y similares se estará haciendo referencia tanto a hombres como a mujeres, sin discriminación de género.

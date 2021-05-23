@@ -1,0 +1,1 @@
+Artículo 9º-La Sección de Reclutamiento y Selección de Personal con apoyo del personal médico de la institución, establecerá de acuerdo con la naturaleza de los puestos, quienes deberán realizar la prueba como requisito de idoneidad. Dichas pruebas se realizarán durante la valoración pre ocupacional y el sometimiento a este examen es requisito obligatorio.

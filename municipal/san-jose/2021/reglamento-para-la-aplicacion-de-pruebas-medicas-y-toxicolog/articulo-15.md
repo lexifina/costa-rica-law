@@ -1,0 +1,1 @@
+Artículo 15.-Las pruebas para detectar la posible intoxicación por alcohol se practicarán por el personal designado, el cual verificará mediante el aire exhalado en los alcoholímetros el grado de impregnación alcohólica en la persona. En casos de duda, se podrá repetir la prueba para efectos de contraste, con el equipo de alcohol exhalado que tiene la Institución.
