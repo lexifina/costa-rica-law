@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación. El presente reglamento se aplicará a todas las personas funcionarias del INA y quiénes no siendo población funcionaria del INA estén desempeñando, en calidad de personas servidoras públicas, según lo establece el artículo 111 de la Ley General de la Administración Pública y que utilicen algún servicio o activo objeto del presente reglamento.

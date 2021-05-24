@@ -1,1 +1,0 @@
-Artículo 20.—Acceso a la información. El INA se reserva el derecho de acceso a toda la información que requiera cuando el caso lo amerite, solicitando a la respectiva empresa proveedora del servicio los registros de llamadas, duración y destinos, entre otros.

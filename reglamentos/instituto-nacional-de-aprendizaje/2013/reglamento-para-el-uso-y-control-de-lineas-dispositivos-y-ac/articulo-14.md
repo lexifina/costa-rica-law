@@ -1,3 +1,0 @@
-Artículo 14.—Llamadas Internacionales. Tendrán acceso a llamadas telefónicas internacionales, tanto entrantes como salientes, las líneas celulares asignadas a las Autoridades Superiores del Instituto.
-Cuando alguna Autoridad Superior deba salir del país, el INA cubrirá todo el monto facturado por quién provee el servicio, correspondiente al período en el cual realizó el viaje oficial, debidamente autorizado.
-Las demás líneas celulares, no especificadas en el párrafo anterior, únicamente tendrán derecho de acceso a llamadas internacionales entrantes, sin que esto genere ningún costo económico para la Administración. Salvo los casos debidamente autorizados por la Presidencia Ejecutiva.

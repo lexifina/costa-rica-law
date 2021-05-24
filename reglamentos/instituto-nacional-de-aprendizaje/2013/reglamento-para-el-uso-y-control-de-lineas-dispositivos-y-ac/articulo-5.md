@@ -1,1 +1,0 @@
-Artículo 5º—Cumplimiento de la Ley de Contratación Administrativa y normas relacionadas. Para la adquisición de líneas, dispositivos y accesorios de telefonía celular, se cumplirá con lo establecido en la Ley de Contratación Administrativa, su Reglamento y normas relacionadas.

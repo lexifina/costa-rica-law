@@ -1,1 +1,0 @@
-Artículo 6º—Cumplimiento de normas técnicas indicadas por la empresa proveedora de servicios. Para el uso de líneas, dispositivos y accesorios de telefonía celular, se deberá cumplir con las normas técnicas establecidas por la empresa proveedora de servicios.
