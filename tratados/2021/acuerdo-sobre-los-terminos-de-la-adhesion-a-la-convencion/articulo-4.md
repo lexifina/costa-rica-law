@@ -1,0 +1,2 @@
+ARTÍCULO 4- Delegación ante la Organización para la Cooperación y el Desarrollo Económicos
+La Delegación Permanente de Costa Rica ante la Organización para la Cooperación y Desarrollo Económicos formará parte del Ministerio de Comercio Exterior y dependerá de este para todos los efectos. El Consejo de Gobierno, por iniciativa del Ministerio de Comercio Exterior, designará al funcionario que representará al país ante dicha organización, quien asumirá la delegación en los mismos términos contemplados en el artículo 5 de la Ley 7638, de 30 de octubre de 1996.
