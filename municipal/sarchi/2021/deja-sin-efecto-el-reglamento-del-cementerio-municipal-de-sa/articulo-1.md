@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE SARCHÍ
+Comunica que según el Artículo VII, acuerdo N° 3 de la Sesión Ordinaria N° 040, celebrada por el Concejo Municipal de Sarchí, el día 01 de febrero del 2021, se acordó lo siguiente:
+La Municipalidad de Sarchí acuerda dejar sin efecto lo publicado en La Gaceta N° 52 del 13/03/2008 como "Reglamento del Cementerio Municipal de Sarchí (Valverde Vega)" y en La Gaceta N° 210 del 30/10/2008 como "Reforma Reglamento del Cementerio Municipal de Sarchí (Valverde Vega)".
+La Municipalidad de Sarchí aplicará la normativa nacional vigente para los procesos relacionados al servicio de cementerio municipal, sea: la Ley N.° 704 del 07/09/1949 "Regulación sobre las propiedades y arrendamiento de tumbas en los cementerios", el Reglamento General de Cementerio, Decreto Ejecutivo N.° 32833 del 03/08/2005 (Gaceta N° 244 del 19/12/2005 - última actualización 09/07/2020) y los alcances prácticos de la jurisprudencia administrativa y judicial relacionada.
+Publíquese una vez en el Diario Oficial La Gaceta.
