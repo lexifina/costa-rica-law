@@ -14,3 +14,4 @@ Condiciones de uso para la Plataforma de Trámite Virtual (TRAVI)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-11 | la propia norma |
+| 2 | 2021-05-24 | Resolución 18 (2021-05-24) |
