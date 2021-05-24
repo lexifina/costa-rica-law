@@ -25,3 +25,4 @@ Medidas migratorias temporales en el proceso de reapertura de fronteras en el ma
 | 10 | 2021-03-26 | Decreto Ejecutivo 42916 (2021-03-26) |
 | 11 | 2021-04-05 | Decreto Ejecutivo 42917 (2021-04-05) |
 | 12 | 2021-04-30 | Decreto Ejecutivo 42292 (2021-04-30) |
+| 13 | 2021-05-24 | Decreto Ejecutivo 43009 (2021-05-24) |
