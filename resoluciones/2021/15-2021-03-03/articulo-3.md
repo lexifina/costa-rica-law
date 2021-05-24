@@ -1,2 +1,0 @@
-Artículo 3º-A partir del 01 de abril del 2021, se deja sin efecto el monto establecido en la Resolución Administrativa N° 0083-2020, publicada en el Diario Oficial La Gaceta N° 290, del jueves 10 de diciembre del 2020, que actualizó el impuesto específico creado por el artículo 10 de la Ley N° 5792, para los meses de enero, febrero y marzo del año 2021. Dado en la ciudad de Moravia, a los 03 días del mes de marzo del 2021. Publíquese.
-Moravia, marzo del 2021.
