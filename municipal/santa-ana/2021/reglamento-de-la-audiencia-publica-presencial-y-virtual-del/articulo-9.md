@@ -1,0 +1,1 @@
+Artículo 9º-Registro e ingreso al evento en directo. Para participar en la modalidad virtual, las personas deberán llenar un formulario que se encontrará en el sitio web de la Municipalidad, donde indicarán su nombre, número de identificación y correo electrónico, posterior al cual se les remitirá el enlace, mediante el cual podrán acceder a la reunión.

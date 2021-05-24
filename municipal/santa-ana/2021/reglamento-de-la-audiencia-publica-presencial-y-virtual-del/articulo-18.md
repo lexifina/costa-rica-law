@@ -1,0 +1,1 @@
+Artículo 18.-Periodo de preguntas. Al finalizar la exposición del equipo consultor, se abrirá el periodo de preguntas, respetando el orden de los asientos y los lineamientos en cuanto al uso de la palabra, determinados por las personas que dirigen la audiencia. Previo a formular la pregunta, cada persona debe indicar el nombre completo.

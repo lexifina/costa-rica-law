@@ -1,0 +1,2 @@
+Artículo 8º-Sede electrónica. La audiencia virtual será realizada mediante un "evento en directo" en la plataforma de Teams de Office 365, la cual permite el enlace desde cualquier tipo de dispositivo con conexión a internet, la transmisión simultánea de audio, y video; así como la grabación de la reunión y el registro de asistencia, así como de las intervenciones en el chat. Este último será el canal de comunicación oficial para efectos de participar en esta modalidad.
+Adicionalmente; la audiencia se transmitirá en las redes sociales de Facebook Live y YouTube.
