@@ -1,4 +1,5 @@
-Artículo 6º—Impedimentos, Excusas y Recusaciones. Con base en las disposiciones incluidas en la Ley Orgánica del ICT, Ley General de la Administración Pública, Código Procesal Civil, en materia de impedimentos, excusas y recusaciones, se aplicarán los siguientes principios:
+Artículo 6º-Impedimentos, Excusas y Recusaciones
+Con base en las disposiciones incluidas en la Ley Orgánica del ICT, Ley General de la Administración Pública, Código Procesal Civil, en materia de impedimentos, excusas y recusaciones, se aplicarán los siguientes principios:
 a) Se entenderá que adicionalmente a lo establecido en el artículo 24 de la Ley Orgánica del Instituto Costarricense de Turismo, todo miembro de Junta Directiva que tenga interés directo en la resolución de un asunto, posee causa que le impide participar en el conocimiento y discusión del mismo, cuando se trate:
 1. De asuntos en que se pueda beneficiar u otorgar prerrogativas a parientes por consanguinidad, hasta el tercer grado.
 2. De asuntos en que haya sido o sea abogado de alguna de las partes ante la institución.
@@ -8,7 +9,7 @@ Cuando se encuentre alguna causal de impedimento expuesta por algún director, l
 De aceptarse el motivo como causa de impedimento, la Junta Directiva separará al directo del conocimiento y decisión del asunto respectivo y podrá adoptar acuerdos válidamente, siguiendo las reglas de quórum y sesiones expuestas en este reglamento y en la ley.
 b) Se entenderá que existen motivos para recusar a cualquier miembro de Junta Directiva, cuando ocurra cualquiera de las siguientes circunstancias:
 1. Cuando exista causal de impedimento y el director no la hubiera expuesto.
-2. Cuando exista relación de parentesco por afinidad, hasta el tercer grado, con l parte promotora de la gestión.
+2. Cuando exista relación de parentesco por afinidad, hasta el tercer grado, con la parte promotora de la gestión.
 3. Cuando la gestión sea planteada por un socio, compañero de oficina o de trabajo; o bien, por alguna persona que haya poseído esta relación durante los últimos tres meses contados a partir de la entrada en posesión del cargo de director.
 4. Cuando el gestionante sea enemigo, haya agredido, amenazado o injuriado o bien, cuando se le haya impuesto una pena o corrección disciplinaria por causa de denuncia o acción interpuesta por cualquier a cualquier miembro de Junta Directiva.
 Cuando una recusación fuere planteada por el promotor de un asunto que debe ser trasladado a conocimiento de Junta Directiva, esta entrará a analizar las alegaciones planteadas y resolverá sobre el punto. De lo que resuelva la Junta Directiva, caben los recursos ordinarios establecidos en la Ley General de la Administración Pública.

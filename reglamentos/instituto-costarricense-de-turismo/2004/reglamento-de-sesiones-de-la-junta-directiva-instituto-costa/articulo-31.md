@@ -1,3 +1,5 @@
-Artículo 31.—Recursos contra los acuerdos. El interesado podrá interponer recurso de reconsideración contra los acuerdos de la Junta Directiva del ICT, dentro del plazo legal. Cabrá recurso de reconsideración o reposición contra los acuerdos del órgano colegiado. Cabrá recurso de apelación exclusivamente cuando otras leyes lo indiquen.
-Las decisiones de la Junta serán publicadas en el Diario Oficial cuando sean generales o sean normas generales o reglamentos, o notificadas directamente al interesado, en los demás casos. El acto indebidamente comunicado o no comunicado no obliga al particular.
-No cabrá el recurso de reconsideración respecto a aquellos casos en que la ley así lo disponga.
+Artículo 31.-Revisión de acuerdos
+Contra los acuerdos de la Junta Directiva no declarados firmes, podrán los directores interponer recurso de revisión, siempre que no haya sido aprobada el acta respectiva.
+Caso de que alguno de los miembros de Junta interponga recurso de revisión contra un acuerdo, el mismo será resuelto por la Junta Directiva al conocerse el acta de esa sesión, a menos que, por tratarse de un asunto que el Presidente juzgue urgente, prefiera conocerlo en sesión extraordinaria.
+El recurso de revisión deberá ser planteado a más tardar al discutirse el acta, recurso que deberá resolverse en la misma sesión.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas para efectos del inciso anterior, como recursos de revisión.

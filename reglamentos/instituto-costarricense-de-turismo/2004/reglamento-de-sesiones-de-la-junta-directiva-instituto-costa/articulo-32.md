@@ -1,7 +1,4 @@
-CAPÍTULO IV
-Disposiciones finales
-Artículo 32.—Participación de representantes de direcciones o departamentos asesores de Junta Directiva. A las sesiones de Junta Directiva, serán convocados en carácter de asesores con derecho a voz pero sin voto:
-a) El Director de la Unidad Legal, o un representante de esa unidad.
-b) El Auditor General de la Institución o un representante de esa unidad designado por acuerdo de Junta Directiva.
-Asimismo asistirá el Gerente de la institución, con derecho a voz pero sin voto.
-La Junta Directiva establecerá mediante acuerdo, los casos en los cuales se dispense la comparecencia de estos órganos asesores.
+Artículo 32.-Recursos contra los acuerdos
+El interesado podrá interponer recurso de reconsideración contra los acuerdos de la Junta Directiva del ICT, dentro del plazo legal. Cabrá recurso de reconsideración o reposición contra los acuerdos del órgano colegiado. Cabrá recurso de apelación exclusivamente cuando otras leyes lo indiquen.
+Las decisiones de la Junta serán publicadas en el Diario Oficial cuando sean generales o sean normas generales o reglamentos, o notificadas directamente al interesado, en los demás casos. El acto indebidamente comunicado o no comunicado no obliga al particular.
+No cabrá el recurso de reconsideración respecto a aquellos casos en que la ley así lo disponga.

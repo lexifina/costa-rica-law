@@ -1,2 +1,3 @@
-Artículo 5º—Designación de Vicepresidente y Secretario de Junta Directiva. La Junta Directiva elegirá de su seno, un miembro quien ejercerá como Vicepresidente, quedando encargado de sustituir al Presidente en sus ausencias temporales. Dicha designación será anual y se realizará en la primera sesión de cada año.
-Asimismo la Junta Directiva designará un Secretario de Actas, quien se encargará de llevar un estricto control respecto de la aprobación de las actas levantadas para cada sesión, así como de la conformación de los expedientes correspondientes a ellas.
+Artículo 5º-Designación de Vicepresidente y Secretario de Junta Directiva
+La Junta Directiva elegirá de su seno, un miembro quien ejercerá como Vicepresidente, quedando encargado de sustituir al Presidente en sus ausencias temporales. Dicha designación será anual y se realizará en la primera sesión de cada año.
+Así mismo, la Junta Directiva designará un Secretario de Actas, quien se encargará de llevar un estricto control respecto de la aprobación de las actas levantadas para cada sesión, así como de la conformación de los expedientes correspondientes a ellas.

@@ -1,0 +1,2 @@
+Transitorio único:
+La Secretaría de Actas tendrá un plazo de dos meses a partir de la aprobación en firme de la Reforma del Reglamento de Sesiones de Junta Directiva, a efectos de que emigre la documentación de sesiones de Junta Directiva a un sistema digitalizado, y solicite el cierre del libro de actas físico, así como la apertura del libro de actas digital, ante la Auditoría Interna, de conformidad con lo que dispone la Ley General de Control Interno.

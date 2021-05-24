@@ -1,5 +1,6 @@
-Artículo 2º—Nombramientos: Tal y como lo regulan las leyes N° 5507 y N° 1917 los miembros de Junta Directiva electos de acuerdo con el inciso b) anterior, se regirán por las reglas que se resumen de la siguiente manera:
-a) Serán nombrados por períodos de ocho años, a partir del 1º de junio del año en que corresponda.
+Artículo 2º-Nombramientos
+Tal y como lo regulan las leyes N° 5507 y N° 1917 los miembros de Junta Directiva electos de acuerdo con el inciso b) anterior, se regirán por las reglas que se resumen de la siguiente manera:
+a) Serán nombrados por períodos de ocho años, a partir del 1 de junio del año en que corresponda.
 b) Su nombramiento debe efectuarse en los últimos quince días del mes de mayo del mismo año.
 c) Cualquiera de los miembros de las Juntas Directivas puede ser reelecto.
 d) Una vez hecho el nombramiento de los directores y que éstos hayan entrado en funciones, el Consejo de Gobierno no podrá revocarlos si no es con base en información de la Contraloría General de la República, en la que se ponga de manifiesto que hay causa para ello conforme a las disposiciones legales y/o reglamentarias correspondientes.

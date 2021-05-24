@@ -1,4 +1,5 @@
-Artículo 26.—De las mayorías para adoptar acuerdos. Los acuerdos se tomarán por mayoría absoluta de los directores asistentes, excepto en los casos siguientes:
+Artículo 26.-De las mayorías para adoptar acuerdos
+Los acuerdos se tomarán por mayoría absoluta de los directores asistentes, excepto en los casos siguientes:
 a) Suspensión o remoción del Gerente y del Auditor con el voto de dos terceras partes (5 miembros) de la totalidad de los miembros.
 b) Contratación de empréstitos, en cuyo caso se requiere la votación favorable de no menos de cinco directores de la totalidad.
 c) Aceptación de conciliaciones, transacciones y compromisos arbitrales, en cuyo caso se requerirá de la votación favorable de no menos de cuatro directores presentes.

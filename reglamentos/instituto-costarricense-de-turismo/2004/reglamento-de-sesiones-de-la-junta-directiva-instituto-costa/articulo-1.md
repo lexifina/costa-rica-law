@@ -41,12 +41,13 @@ Artículo 31: Recursos contra los acuerdos
 Artículo 32: Participación de representantes de direcciones o departamentos asesores de Junta Directiva
 Artículo 33: Adopción y modificación de disposiciones reglamentarias
 En sesión ordinaria de Junta Directiva N° 5337, artículo 5, inciso I), celebrada el 7 de diciembre de 2004, se acordó: a) Aprobar el REGLAMENTO DE SESIONES DE LA JUNTA DIRECTIVA. b) ordenar su publicación en La Gaceta, para su entrada en vigencia de acuerdo con la ley, así:
-REGLAMENTO DE SESIONES DE LA JUNTA DIRECTIVA
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y publicado su texto de forma íntegra mediante Sesión Ordinaria N° 6170 del 24 de mayo del 2021, publicada en La Gaceta N° 114 del 15 de junio del 2021, y se transcribe a continuación:)
 CAPÍTULO I
 Disposiciones generales
 SECCIÓN PRIMERA
 De la Junta Directiva
-Artículo 1º—Integración. La Junta Directiva del Instituto está constituida por siete miembros de nombramiento por el Consejo de Gobierno, designados de la siguiente forma:
+Artículo 1º-Integración
+La Junta Directiva del Instituto está constituida por siete miembros de nombramiento por el Consejo de Gobierno, designados de la siguiente forma:
 a) El Presidente Ejecutivo del Instituto.
 b) Seis personas de amplios conocimientos o de reconocida experiencia en el campo de actividades de la correspondiente institución, o con título profesional reconocido por el Estado, de nombramiento del Consejo de Gobierno.
 En cuanto a los nombramientos, requisitos, remoción, plazo, dietas, impedimentos y otros aspectos relativos a estos, se regulan por respectiva legislación vigente.

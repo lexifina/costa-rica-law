@@ -1,4 +1,5 @@
-Artículo 13.—Deberes y Atribuciones. El Secretario de Actas, tendrá las siguientes atribuciones y deberes:
+Artículo 13.-Deberes y Atribuciones
+El Secretario de Actas, tendrá las siguientes atribuciones y deberes:
 a) Levantar y formar un expediente para cada sesión de Junta Directiva, en el que se incluirá toda la documentación recibida para su conocimiento y decisión, así como las mociones que se presentaran por escrito por alguno de los directores.
 b) Presentar las actas a tiempo para su debida aprobación.
 c) Firmar las actas de las sesiones debidamente aprobadas por la Junta Directiva.

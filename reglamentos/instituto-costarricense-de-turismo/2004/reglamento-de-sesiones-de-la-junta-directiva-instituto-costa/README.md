@@ -14,3 +14,4 @@ Reglamento de sesiones de la junta directiva Instituto Costarricense de Turismo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-12-07 | la propia norma |
+| 2 | 2021-05-24 | Reglamento 6170 (2021-05-24) |

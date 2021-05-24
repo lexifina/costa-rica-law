@@ -1,3 +1,8 @@
-Artículo 33.—Adopción y modificación de disposiciones reglamentarias. Toda iniciativa tendiente a adoptar, reformar, suspender o derogar disposiciones reglamentarias debe ser presentada o acogida para su trámite por algún miembro de la Junta Directiva.
-Las disposiciones de este reglamento sólo podrán ser derogadas, modificadas o ampliadas por votación de dos tercios de la totalidad de los miembros de la Junta Directiva del ICT, es decir, por cinco votos.
-Este Reglamento rige a partir de su aprobación en .firme.
+CAPÍTULO IV
+Disposiciones finales
+Artículo 33.-Participación de representantes de direcciones o departamentos asesores de Junta Directiva.
+A las sesiones de Junta Directiva, serán convocados en carácter de asesores con derecho a voz, pero sin voto:
+a) El Asesor Legal, o un representante de esa unidad.
+b) El Auditor Interno de la Institución o un representante de esa unidad designado por acuerdo de Junta Directiva.
+Así mismo, asistirá el Gerente de la institución, con derecho a voz, pero sin voto.
+La Junta Directiva establecerá mediante acuerdo, los casos en los cuales se dispense la comparecencia de estos órganos asesores.
