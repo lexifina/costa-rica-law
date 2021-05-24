@@ -20,3 +20,4 @@ Crea Programa Nacional de Empleo y su Reglamento Respectivo(Rige a partir del 1 
 | 5 | 2019-10-07 | Decreto Ejecutivo 42119 (2019-10-07) |
 | 6 | 2020-03-30 | Decreto Ejecutivo 42272 (2020-03-30) |
 | 7 | 2020-04-07 | Decreto Ejecutivo 42290 (2020-04-07) |
+| 8 | 2021-05-24 | Decreto Ejecutivo 43066 (2021-05-24) |
