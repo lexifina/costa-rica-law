@@ -1,2 +1,0 @@
-Artículo 5º—De la declaratoria. La declaratoria de “Hijos o Hijas Predilectos/as o Ciudadanos o Ciudadanas Distinguidos/as”, se otorgará a una persona cada dos años. El día 31 de agosto, en la sesión Solemne que se realice en conmemoración del Cantonato de Santa Ana.
-Lo anterior, sin perjuicio de que la Municipalidad pueda otorgar más de un reconocimiento, en casos excepcionales, y cuando haya sido debidamente documentada su procedencia.

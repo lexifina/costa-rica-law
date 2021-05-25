@@ -1,1 +1,0 @@
-Artículo 7º—De la postulación. La propuesta del candidato a la declaratoria de “Hijos o Hijas Predilectos/as o Ciudadanos o Ciudadanas Distinguidos/as”, deberá ser presentada por su promotor ante la Secretaría del Concejo Municipal, por escrito.

@@ -1,1 +1,0 @@
-Artículo 18.—De la entrega y postulación. A diferencia de los reconocimientos mayores de la Municipalidad de Santa Ana, los reconocimientos menores podrán ser otorgados por el Concejo Municipal a solicitud del Alcalde o cualquier miembro del Concejo en sesión ordinaria y con acuerdo unánime de los presentes.

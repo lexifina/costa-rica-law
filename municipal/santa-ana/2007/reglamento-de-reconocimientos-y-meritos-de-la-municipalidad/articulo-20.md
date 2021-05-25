@@ -1,1 +1,0 @@
-Artículo 20.—Disposiciones finales. Cualquier reforma que el Concejo Municipal realice del presente Reglamento, deberá ser publicado en el Diario Oficial La Gaceta, para efectos del conocimiento de terceros.

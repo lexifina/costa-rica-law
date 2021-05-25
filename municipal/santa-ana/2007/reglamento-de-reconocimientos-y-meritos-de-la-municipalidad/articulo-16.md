@@ -1,1 +1,0 @@
-Artículo 16.—De los requisitos de los galardonados. La persona que sea galardonada con cualquiera de los reconocimientos del artículo anterior deberá haber realizado un acto específico en pro de la comunidad, en donde haya demostrado cualidades o esfuerzos especiales que ameriten el reconocimiento público.
