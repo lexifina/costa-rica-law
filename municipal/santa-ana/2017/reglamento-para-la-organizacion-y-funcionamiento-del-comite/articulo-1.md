@@ -28,7 +28,8 @@ Atleta: Persona que práctica algún deporte.
 CCDR o Comité Cantonal: Comité Cantonal de Deportes y Recreación del Cantón de Santa Ana máxima autoridad rectora en materia deportiva y recreativa del cantón, formado por una Junta Directiva como autoridad máxima y representante y la administración que se desprenda de ella.
 Convenio: Pacto, contrato o acuerdo entre instituciones públicas o privadas, que se desarrolla en función de un asunto específico.
 Comisiones: Conjunto de al menos tres personas que atienden una actividad específica a juicio de la JD del Comité Cantonal, tales como Instalaciones Deportivas, Juegos Nacionales, Juegos Escolares, Juegos comunales, Médica, Adulto Mayor, sin perjuicio que se instalen otras a criterio del mencionado Comité Cantonal.
-Comité Comunal: Comité integrado por cinco miembros nombrado en asamblea general de vecinos y vecinas convocada por el Junta Directiva del Comité Cantonal.
+Comité Comunal: Comité integrado por siete(*) miembros nombrado en asamblea general de vecinos y vecinas convocada por el Junta Directiva del Comité Cantonal.
+(*) (Así reformado mediante sesión N° 56-2021 del 25 de mayo del 2021. Anteriormente se indicaba "cinco")
 Delegado: Representante del Comité Cantonal con atribuciones en aspectos competitivos y disciplinarios según las disposiciones aplicables al efecto.
 Deporte: Todas las formas de actividades físicas que mediante una participación organizada o no, tienen como objetivo la expresión o la mejora de la condición física y psíquica, el desarrollo de las relaciones sociales o la obtención de resultados en competición de todos los niveles.
 Deportista: Persona que practica algún deporte.
