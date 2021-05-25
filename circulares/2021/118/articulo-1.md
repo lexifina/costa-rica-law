@@ -1,0 +1,11 @@
+CIRCULAR Nº 118-2021
+ASUNTO: Reiteración de la circular N° 61-2018 denominada "Obligación de mantener actualizada la información en el Sistema de Administración y Control Electrónico de Juzgamientos (SACEJ) del Registro Judicial".
+A LOS JUZGADOS QUE CONOCEN MATERIA PENAL
+DE TODO EL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 38-2021 celebrada el 11 de mayo de 2021, artículo XV, dispuso reiterar la Circular N° 61-2018 del 21 de mayo de 2018, referente a la "Obligación de mantener actualizada la información en el Sistema de Administración y Control Electrónico de Juzgamientos (SACEJ)". Lo anterior, de conformidad con la petición realizada por la máster Ana Eugenia Romero Jenkins, Directora Ejecutiva, mediante oficio N° 1404-DE-2021 del 29 de abril del 2021, en que remitió el oficio N° 66-RJ-2021 de fecha 28 de abril de 2021, suscrito por la licenciada Itzia Araya García, Jefa del Registro Judicial.
+Seguidamente se transcribe la circular de referencia:
+"El Consejo Superior del Poder Judicial en sesión Nº 37-18 celebrada el 4 de mayo de 2018, artículo XVII, dispuso reiterar el cumplimiento de las circulares 79-2011, 87-2012, 39-2016 de 7 de octubre de 2011, 28 de setiembre de 2012 y 21 de abril de 2016, respectivamente, de la Dirección Ejecutiva, en el sentido de que es obligación de los despachos que conocen materia penal de mantener actualizada la información en el Sistema de Administración y Control Electrónico de Juzgamientos (SACEJ) del Registro Judicial, por lo que deben registrar y actualizar las anotaciones, modificaciones, anulaciones, cumplimientos, unificaciones de sentencias y las conciliaciones, suspensiones y reparación integral de los daños que se lleguen a dictar.
+Lo anterior, así también lo ha expuesto la Comisión de la Jurisdicción Penal en su criterio emitido mediante oficio N° CJP020-18 del 21 de febrero de 2018, al referir la necesidad de contar con la información actualizada en el SACEJ, con el fin de dotar de seguridad jurídica a la certificación de antecedentes penales que emite el Registro Judicial, sea para fines judiciales, usos varios o laborales"
+Publíquese una sola vez en el Boletín Judicial.
+San José, 25 de mayo de 2021.
