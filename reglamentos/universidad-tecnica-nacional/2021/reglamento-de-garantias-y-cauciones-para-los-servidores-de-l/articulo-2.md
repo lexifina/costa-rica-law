@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Las disposiciones contenidas en el presente Reglamento son aplicables a todos aquellos servidores de la Universidad Técnica Nacional que administren, recauden y custodien fondos o valores públicos o que, por la naturaleza de sus funciones y responsabilidades, deban caucionar.

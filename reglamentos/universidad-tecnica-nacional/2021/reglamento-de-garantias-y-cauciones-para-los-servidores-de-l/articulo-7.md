@@ -1,0 +1,1 @@
+Artículo 7. Plazo de la caución. Las cauciones presentadas por los servidores de la UTN, se mantendrán vigentes durante todo el tiempo que ocupen sus cargos, así como por el lapso de prescripción de la responsabilidad civil o mientras se encuentra pendiente un procedimiento administrativo por daños y perjuicios.

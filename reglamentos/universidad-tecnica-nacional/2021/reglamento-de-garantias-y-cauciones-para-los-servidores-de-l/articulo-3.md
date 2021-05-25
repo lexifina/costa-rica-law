@@ -1,0 +1,1 @@
+Artículo 3. Finalidad de la caución. Garantizar el resarcimiento de eventuales daños y perjuicios que el caucionante pueda producir al patrimonio de la Universidad Técnica Nacional, sin que ello limite la eventual responsabilidad civil o penal.

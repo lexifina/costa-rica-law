@@ -1,0 +1,14 @@
+UNIVERSIDAD TÉCNICA NACIONAL
+CONSEJO UNIVERSITARIO
+El Consejo Universitario de la Universidad Técnica Nacional comunica:
+1. La derogación de las "Normas de Reclutamiento y Selección para Funcionarios de la Universidad Técnica Nacional" vigente que se encuentra actualmente publicado en los canales oficiales de la Universidad Técnica Nacional y en su lugar se aprueban las "Normas de Reclutamiento y Selección de los Servidores de la Universidad Técnica Nacional", mediante Acuerdo N° 4-11-2021 de la sesión ordinaria N° 11-2021, artículo 8, celebrada el jueves 13 de mayo de 2021.
+(Nota de Sinalevi: Por tener articulado propio las "Normas de Reclutamiento y Selección para Funcionarios de la Universidad Técnica Nacional" debe consultarse en el sistema en forma independiente).
+2. La adición de los transitorios XVI, XVII al Reglamento del Sistema de Becas y Beneficios Estudiantiles de la Universidad Técnica Nacional mediante Acuerdo N° 7-11-2021 de la sesión ordinaria N° 11-2021, artículo 11, celebrada el jueves 13 de mayo de 2021.
+(Nota de Sinalevi: Por tener articulado propio el "Reglamento del Sistema de Becas y Beneficios Estudiantiles de la Universidad Técnica Nacional" debe consultarse en el sistema en forma independiente).
+3. La derogación del "Reglamento de Garantías y Cauciones para funcionarios de la Universidad Técnica Nacional" vigente que se encuentra actualmente publicado en los canales oficiales de la Universidad Técnica Nacional y en su lugar aprueba el "Reglamento de Garantías y Cauciones para los Servidores de la Universidad Técnica Nacional" mediante Acuerdo N° 9-11-2021 de la sesión ordinaria N° 11-2021, Artículo 13, celebrada el jueves 13 de mayo de 2021.
+(Nota de Sinalevi: El presente reglamento se extrajo del sitio Web del Universidad Técnica Nacional, por lo que se transcribe a continuación:)
+REGLAMENTO DE GARANTÍAS Y CAUCIONES PARA LOS SERVIDORES DE LA UNIVERSIDAD TÉCNICA NACIONAL
+(Aprobado por el Consejo Universitario mediante Acuerdo 9-11-2021, tomado por el Consejo Universitario en la Sesión Ordinaria No. 11-2021, celebrada el jueves 13 de mayo del 2021, a las nueve horas, según el Artículo 13 del Capítulo VIII. Comisión Interna de Reglamentos. Publicado en el diario oficial La Gaceta No. 99 del 25 de mayo del año 2021, sección de Reglamentos).
+CAPÍTULO I
+Disposiciones generales
+Artículo 1. Objeto. El presente Reglamento tiene como objetivo, proteger y conservar el patrimonio institucional, contra cualquier pérdida, uso indebido, irregularidad o acto ilegal; así como determinar responsabilidades, tanto de los jerarcas de la Institución, como de los titulares subordinados y servidores en general, encargados de recaudar, custodiar o administrar fondos y valores públicos. Según lo estipulado en la Ley N°8131, Ley de la Administración Financiera de la República y Presupuestos Públicos y la Resolución R-CO-10- 2007, de la Contraloría General de la República.

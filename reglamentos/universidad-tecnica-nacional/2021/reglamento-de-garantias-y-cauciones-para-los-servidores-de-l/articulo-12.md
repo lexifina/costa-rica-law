@@ -1,0 +1,1 @@
+Artículo 12. Servidores con nombramiento ad-honorem. Los servidores con este tipo de nombramiento que realicen funciones de recaudación, custodia o administración de fondos públicos debe rendir garantía o caución, de acuerdo al nivel del cargo que desempeña.

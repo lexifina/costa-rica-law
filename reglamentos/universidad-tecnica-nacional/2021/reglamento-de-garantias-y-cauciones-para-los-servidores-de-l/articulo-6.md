@@ -1,0 +1,1 @@
+Artículo 6. Momento para rendir la caución. La caución debe ser rendida una vez se notifique al servidor de la designación en el puesto y antes de asumir el cargo. Compete a la Dirección o Coordinaciones de Gestión de Desarrollo Humano informar al servidor de este deber.

@@ -1,0 +1,4 @@
+Artículo 13. Revisión de funciones que generan el deber de caución. Es responsabilidad de la Jefatura Inmediata revisar las funciones de cada uno de sus colaboradores, a fin de determinar si las mismas generan el deber de rendir caución, e informar, en un plazo máximo e improrrogable de un mes, a la Dirección o Coordinación de Gestión de Desarrollo Humano, según corresponda. Para efectuar dicha revisión, debe considerar, entre otros, los siguientes aspectos:
+a. La existencia en forma separada o combinada de las funciones y actividades de administrar, custodiar o recaudar fondos y valores públicos.
+b. La confiabilidad y eficacia del sistema de control interno y el grado de riesgo, de acuerdo con la valoración realizada por la Administración.
+c. El nivel de responsabilidad, el monto administrado y el salario correspondiente al caucionante.
