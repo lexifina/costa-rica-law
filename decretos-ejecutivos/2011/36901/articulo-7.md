@@ -1,6 +1,0 @@
-Artículo 7º—La Comisión tendrá las siguientes funciones:
-a) Presentar para aprobación de la o el Ministro de Hacienda y de MIDEPLAN las propuestas de lineamientos sobre planificación, programación y evaluación de la gestión pública con información fidedigna.
-b) Uniformar los requerimientos de información en los procedimientos e instrumentos de planificación, programación y evaluación de la gestión institucional y sectorial.
-c) Propiciar la generación de registros únicos o integrados de manera automatizada y de fácil acceso, que recojan toda la información relacionada con la planificación, programación y evaluación de la gestión estratégica, institucional y sectorial.
-d) Proponer instrumentos ágiles y asertivos para la rendición de cuentas. Estos instrumentos deben permitir a la ciudadanía en general, conocer los beneficios de los productos y servicios finales que fueron debidamente ejecutados por las instituciones durante cada año de gestión, así como los que quedaron pendientes y las razones que impidieron su ejecución.
-e) Promover la divulgación de sus funciones a través de mecanismos como la capacitación, el análisis y la discusión de los temas tratados por la Comisión en foros, charlas, talleres y otros eventos similares.

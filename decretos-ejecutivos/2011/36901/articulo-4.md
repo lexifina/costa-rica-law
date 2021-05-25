@@ -1,1 +1,0 @@
-Artículo 4º—Los lineamientos que emita la Comisión deberán incluir regulaciones técnicas y metodológicas con el propósito de construir instrumentos uniformes de fácil aplicación para las fases de planificación, programación y evaluación públicas.

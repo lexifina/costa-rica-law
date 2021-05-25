@@ -1,1 +1,0 @@
-Artículo 5º—Para su funcionamiento regular la Comisión elaborará cada año un Plan de trabajo que permita dar seguimiento a los avances en la materia que le ha sido encomendada en este decreto. La Comisión presentará un informe detallado de labores ante los jerarcas del Ministerio de Hacienda y MIDEPLAN al finalizar la gestión anual.

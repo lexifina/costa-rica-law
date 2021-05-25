@@ -1,1 +1,0 @@
-Artículo 8º—La Comisión pondrá a disposición por los medios electrónicos correspondientes, los lineamientos aprobados por los jerarcas institucionales de los Ministerios de Hacienda y MIDEPLAN sobre la planificación, programación y evaluación de la gestión institucional y sectorial del Poder Ejecutivo.
