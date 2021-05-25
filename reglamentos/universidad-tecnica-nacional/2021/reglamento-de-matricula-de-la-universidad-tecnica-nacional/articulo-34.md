@@ -1,0 +1,2 @@
+Artículo 34. Obligaciones financieras en caso de retiro
+El retiro justificado de matrícula parcial o total, en cualquiera de sus modalidades, no obliga a la UTN a realizar la devolución de dinero. En caso de que se haya realizado un retiro administrativo, le corresponde a la Institución realizar la devolución de dinero, según corresponda. La solicitud de devolución de dinero se realiza de conformidad con lo establecido en la normativa emitida por la Dirección de Gestión Financiera.

@@ -1,0 +1,2 @@
+Artículo 37. Gestiones financieras
+El control y seguimiento de las obligaciones financieras que conllevan los trámites de matrícula de la persona estudiante, es responsabilidad del Área de Tesorería de la Dirección de Gestión Financiera.
