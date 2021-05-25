@@ -14,3 +14,4 @@ Reglamento del Sistema para la Adquisición de Bienes y Servicios de la Municipa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-08 | la propia norma |
+| 2 | 2021-05-25 | Reglamento municipal 85 (2021-05-25) |
