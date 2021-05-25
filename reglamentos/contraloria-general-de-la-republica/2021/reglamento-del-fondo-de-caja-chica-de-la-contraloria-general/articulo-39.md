@@ -1,0 +1,1 @@
+Artículo 39° Respaldo de los desembolsos. Todo desembolso deberá estar debidamente respaldado por un justificante o documento probatorio del egreso autorizado por la Administración Tributaria, a nombre de la Contraloría General de la República y debidamente cancelado. Dichos documentos deberán cumplir con los requisitos establecidos en el artículo 17º de este Reglamento.

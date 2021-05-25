@@ -1,0 +1,3 @@
+CAPITULO VIII
+DISPOSICIONES FINALES
+Artículo 50° Responsables del establecimiento de controles. Las Jefaturas de la Unidad de Administración Financiera y de la Unidad de Servicios de Proveeduría, deberán establecer los controles necesarios para asegurar el cumplimiento de lo establecido en el Reglamento a la Ley de Contratación Administrativa, en torno a la prohibición de fraccionar compras y a utilizar este medio en lo que corresponde. Asimismo, la Unidad de Servicios de Proveeduría, realizará una detección de las necesidades en las compras de bienes y servicios, para la planificación correspondiente y oportuna inclusión eventual al plan anual de compras que corresponda.

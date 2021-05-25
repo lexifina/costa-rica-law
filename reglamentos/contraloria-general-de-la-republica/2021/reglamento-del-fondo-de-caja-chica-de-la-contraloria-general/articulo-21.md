@@ -1,0 +1,2 @@
+Artículo 21° Devoluciones por adelantos de viáticos. Todo reintegro de dinero ocasionado por sobrantes en adelantos de viáticos tanto al interior como al exterior del país o por cancelación de giras, deberá ser depositado por el funcionario(a) en la cuenta bancaria habilitada por la Tesorería Nacional del Ministerio de Hacienda para estos fines.
+El comprobante de la transferencia o depósito debe ser remitido a la Unidad de Administración Financiera a más tardar el día hábil siguiente de hacerse efectivo el depósito.

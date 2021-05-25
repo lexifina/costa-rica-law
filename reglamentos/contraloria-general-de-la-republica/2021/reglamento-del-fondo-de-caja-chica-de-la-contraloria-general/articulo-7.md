@@ -1,0 +1,1 @@
+Artículo 7° Faltantes de dinero. Los faltantes de dinero determinados en los arqueos de los respectivos fondos, serán cubiertos de inmediato por el personal responsable directo de su manejo, explicando dicho faltante en los documentos que respaldan el arqueo correspondiente.

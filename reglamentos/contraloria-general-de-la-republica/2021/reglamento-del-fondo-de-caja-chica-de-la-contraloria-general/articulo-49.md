@@ -1,0 +1,1 @@
+Artículo 49° Aplicación de disposiciones a la Caja Chica Auxiliar. La Caja Chica Auxiliar en lo que su regulación sea omisa, se regirá de forma supletoria por todas aquellas disposiciones que regulen al Fondo Fijo de Caja Chica de este reglamento, y normativa conexa en lo que corresponda.

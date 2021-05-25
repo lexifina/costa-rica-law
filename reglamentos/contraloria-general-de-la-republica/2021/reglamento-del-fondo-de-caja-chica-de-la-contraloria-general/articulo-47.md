@@ -1,0 +1,2 @@
+Artículo 47° Devoluciones por compras de bienes y servicios. Todo reintegro de dinero ocasionado por sobrantes respecto de los vales de compras provisionales emitidos por la Caja Chica Auxiliar, deberá ser depositado por el funcionario en la cuenta habilitada por la Tesorería Nacional para estos fines.
+El comprobante de la transferencia o depósito debe ser remitido a la Unidad de Servicios de Proveeduría. El resguardo y control de estos comprobantes será responsabilidad del encargado (a) de la Caja Chica Auxiliar.

@@ -1,0 +1,1 @@
+Artículo 56° Régimen sancionatorio. El personal que luego de un debido proceso, se acredite como infractor de las disposiciones contenidas en el presente reglamento y la normativa conexa, se hará acreedor a las sanciones que correspondan de conformidad con las leyes y reglamentos vigentes en la materia.

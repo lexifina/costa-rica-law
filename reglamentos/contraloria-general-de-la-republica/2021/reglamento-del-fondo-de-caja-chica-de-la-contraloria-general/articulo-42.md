@@ -1,0 +1,1 @@
+Artículo 42° Responsable de efectuar los reintegros. El personal encargado de la Caja Chica Auxiliar, deberá presentar la respectiva solicitud de reintegro mínimo una vez al mes, procurando que el disponible no sea inferior al diez por ciento (10%) del monto autorizado para la Caja Chica Auxiliar. Ello con el fin de evitar atrasos en las compras requeridas por la Institución.

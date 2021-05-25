@@ -1,0 +1,4 @@
+CAPÍTULO IV
+DE LAS COMPRAS DE BIENES Y SERVICIOS
+Artículo 23° Justificación para la realización de un trámite de compra. El Contralor(a) General, la Gerencia de División, el Auditor(a) Interno(a) o la Jefatura de Unidad solicitante, serán los encargados de justificar la necesidad de realizar la compra por el Fondo Fijo de Caja Chica, previo a realizar una solicitud de compra en el sistema correspondiente; dicha potestad podrá ser delegada al encargado presupuestario en casos debidamente calificados y motivados en forma general y de previa notificación a la Gerencia de la División de Gestión de Apoyo.
+La justificación para la compra podrá hacerse por medio de correo electrónico u otro medio formal dirigido a la Jefatura de la Unidad de Servicios de Proveeduría o a la Unidad de Administración Financiera, si el monto superara lo autorizado para compras por Caja Chica Auxiliar.

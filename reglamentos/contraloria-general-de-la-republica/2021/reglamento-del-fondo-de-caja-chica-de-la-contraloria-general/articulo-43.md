@@ -1,0 +1,3 @@
+Artículo 43° Solicitud de reintegro. Toda solicitud de reintegro de la Caja Chica Auxiliar deberá tramitarse a través de un Detalle de Liquidación. Adicional al detalle deberán adjuntarse las facturas o comprobantes de pago que comprueben dichos gastos, las cuáles deben cumplir con los requisitos del artículo 17 del presente reglamento; asimismo, cada factura debe contar con la indicación de cancelado de la Unidad de Servicios de Proveeduría, la información sobre el número de la solicitud de compra, el código presupuestario y la Unidad
+que solicitó la adquisición.
+El encargado del manejo de la Caja Chica Auxiliar será el responsable de presentar esta solicitud ante la Unidad de Administración Financiera.

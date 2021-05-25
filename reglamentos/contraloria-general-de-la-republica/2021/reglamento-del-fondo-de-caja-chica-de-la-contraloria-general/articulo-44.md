@@ -1,0 +1,1 @@
+Artículo 44° Pago de reintegro. Los reintegros de la Caja Chica Auxiliar, se realizarán mediante transferencia desde la cuenta del Fondo Fijo de Caja Chica administrada por la Unidad de Administración Financiera a la cuenta de la Caja Chica Auxiliar autorizada por la Tesorería Nacional. Se exceptúan las solicitudes de reintegro para compra con tarjeta de débito institucional.

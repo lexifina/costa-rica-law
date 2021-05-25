@@ -1,0 +1,1 @@
+Artículo 55° Manual Institucional de Operación. Los responsables de la administración del Fondo Fijo Caja Chica, deberán gestionar lo correspondiente a efectos de disponer de un Manual Institucional de Operación.

@@ -1,0 +1,1 @@
+Artículo 3° Exclusividad de la cuenta autorizada. Se utilizará esta cuenta exclusivamente para el manejo del Fondo Fijo de Caja Chica. Además, dicha cuenta servirá para que la Tesorería Nacional, efectúe las transferencias de recursos resultantes de ampliaciones temporales o permanentes y los reintegros solicitados por la Contraloría General de la República.

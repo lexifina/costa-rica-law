@@ -1,0 +1,3 @@
+Artículo 19° Trámite de adelantos y liquidaciones para gastos de viaje. Los adelantos y liquidaciones de dinero para cubrir gastos de viaje en el interior del país deberán ser tramitados mediante el Sistema de Viáticos y Transporte institucional.
+Los adelantos y liquidaciones para cubrir gastos de viaje así como los gastos de representación ocasionales y los conexos, todos en el exterior del país, se realizarán conforme al correspondiente acuerdo de viaje.
+Todo trámite de adelanto o liquidación por gastos de viaje tanto al interior como al exterior se realizará por medio de transferencia bancaria a la cuenta autorizada por el (la) funcionario (a) para el depósito del salario.

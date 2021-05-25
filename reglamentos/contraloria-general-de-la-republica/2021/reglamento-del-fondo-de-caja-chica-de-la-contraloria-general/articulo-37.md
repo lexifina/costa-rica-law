@@ -1,0 +1,1 @@
+Artículo 37° Responsables del manejo de la Caja Chica Auxiliar. El manejo de la Caja Chica Auxiliar estará a cargo de la jefatura de la Unidad de Servicios de Proveeduría, quién podrá delegar dicha función al personal calificado que ésta designe.

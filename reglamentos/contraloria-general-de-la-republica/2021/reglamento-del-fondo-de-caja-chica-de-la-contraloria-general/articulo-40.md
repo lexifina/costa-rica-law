@@ -1,0 +1,1 @@
+Artículo 40° Responsabilidad por pagos improcedentes. Si por dolo o culpa grave, se incurre en pagos improcedentes, la persona encargada del Fondo de Caja Chica Auxiliar, deberá reintegrar el monto erogado, una vez verificada su responsabilidad mediante el debido proceso.

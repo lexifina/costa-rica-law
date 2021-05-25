@@ -1,0 +1,1 @@
+Artículo 41° Prohibición de realizar transacciones distintas a las que se destinan los fondos. Los fondos de la Caja Chica Auxiliar no deberán servir para realizar operaciones distintas a las que se destinan dichos fondos.

@@ -1,0 +1,2 @@
+Artículo 48° Traspaso de sobrantes a la Caja Chica Auxiliar. El encargado (a) de la Caja Chica Auxiliar deberá solicitar ante la Unidad de Administración Financiera, por lo menos una vez al mes el traspaso a la cuenta de la Caja Chica Auxiliar de los dineros correspondientes a lo indicado en el artículo anterior.
+El reintegro deberá ser solicitado mediante un oficio, el cual deberá ser emitido por la Unidad de Servicios de Proveeduría; adicional se deberán adjuntar los comprobantes respectivos.

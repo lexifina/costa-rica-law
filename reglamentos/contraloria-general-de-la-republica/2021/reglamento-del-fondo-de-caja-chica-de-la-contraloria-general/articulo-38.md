@@ -1,0 +1,3 @@
+Artículo 38° Arqueo de la Caja Chica Auxiliar. Diariamente al finalizar las operaciones, el personal encargado de la Caja Chica Auxiliar, deberá efectuar un arqueo de todos los valores.
+La Caja Chica Auxiliar estará sujeta a arqueos periódicos, sin previo aviso, por parte de la Jefatura de la Unidad de Servicios de Proveeduría y de la Auditoría Interna cuando ésta lo estime pertinente.
+Los resultados del arqueo periódico realizado por la Unidad de Servicios de Proveeduría deben ser comunicados a la Auditoría Interna y a la Unidad de Administración Financiera; el arqueo realizado por la Auditoría Interna se podrá comunicar a la Unidad de Servicios de Proveeduría y a la Unidad de Administración Financiera.
