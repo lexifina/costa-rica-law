@@ -1,0 +1,1 @@
+Artículo 26.-Las sesiones deberán dar inicio dentro de los 15 minutos siguientes a la hora señalada. Transcurrido ese tiempo si no se cuenta con el quórum, no se podrá realizar la sesión. Las personas suplentes que asuman la propiedad a partir de transcurrido el lapso mencionado no podrá ser sustituido por la persona propietaria que llega después.

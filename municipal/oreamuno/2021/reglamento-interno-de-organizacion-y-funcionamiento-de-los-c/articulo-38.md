@@ -1,0 +1,1 @@
+Artículo 38.-El presente Reglamento entrará a regir, a partir de su aprobación por parte del Concejo Municipal de Oreamuno, de acuerdo a lo indicado en el artículo 43 del Código Municipal; y su respectiva publicación en el Diario Oficial La Gaceta, este Reglamento deroga cualquier otro ya existente.
