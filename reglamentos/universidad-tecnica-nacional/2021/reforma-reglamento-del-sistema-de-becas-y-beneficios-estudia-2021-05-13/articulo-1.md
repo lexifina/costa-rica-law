@@ -1,0 +1,33 @@
+UNIVERSIDAD TÉCNICA NACIONAL
+CONSEJO UNIVERSITARIO
+El Consejo Universitario de la Universidad Técnica Nacional comunica:
+1. La derogación de las “Normas de Reclutamiento y Selección para Funcionarios de la Universidad Técnica Nacional” vigente que se encuentra actualmente publicado en los canales oficiales de la Universidad Técnica Nacional y en su lugar se aprueban las “Normas de Reclutamiento y Selección de los Servidores de la Universidad Técnica Nacional”, mediante Acuerdo N° 4-11-2021 de la sesión ordinaria N° 11-2021, artículo 8, celebrada el jueves 13 de mayo de 2021.
+(Nota de Sinalevi: Por tener articulado propio las "Normas de Reclutamiento y Selección para Funcionarios de la Universidad Técnica Nacional" debe de consultarse en el sistema de forma independiente)
+2. La adición de los transitorios XVI, XVII al Reglamento del Sistema de Becas y Beneficios Estudiantiles de la Universidad Técnica Nacional mediante Acuerdo N° 7-11-2021 de la sesión ordinaria N° 11-2021, artículo 11, celebrada el jueves 13 de mayo de 2021.
+(Nota de Sinalevi: La adición de los transitorios XVI, XVII al Reglamento del Sistema de Becas y Beneficios Estudiantiles de la Universidad Técnica Nacional, se extrajo del sitio Web de la Universidad Técnica Nacional, y se transcribe a continuación:)
+TRANSITORIO XVI. Las personas estudiantes que solicitaron beca socioeconómica durante el I cuatrimestre del año 2021 y que se les otorgó la categoría 5, 4 o 3, podrán realizar la solicitud de los siguientes apoyos económicos temporales de acuerdo a la categoría de beca asignada y durante las fechas calendarizadas por la Vicerrectoría de Vida Estudiantil:
+Categoría de beca | Apoyo económico temporal para gastos de estudio | Apoyo temporal para alimentación
+5 | Correspondiente al 100% del monto fijado para este beneficio | Correspondiente al 100% del monto fijado para este beneficio
+4 | Correspondiente al 80% del monto fijado para este beneficio | Correspondiente al 80% del monto fijado para este beneficio
+3 | No aplica | Correspondiente al 60% del monto fijado para este beneficio
+Nota: los montos fijados corresponden a lo establecido por la Vicerrectoría de Vida Estudiantil para cada cuatrimestre.
+Las y los estudiantes podrán solicitar los apoyos temporales según la categoría de beca que le fue asignada y de acuerdo a la tabla expuesta. La adjudicación o no de uno o varios de los apoyos estudiantiles quedará sujeta a la aprobación por parte de la Coordinación del Área de Vida Estudiantil, considerando el estudio realizado por el Subárea de Becas y Beneficios Estudiantiles de la Sede, así como la disponibilidad presupuestaria.
+Estos apoyos se otorgarán para el II y III cuatrimestre de 2021, de acuerdo al cumplimiento de los siguientes requisitos:
+a) Solicitar los apoyos temporales en el periodo calendarizado por la Vicerrectoría de Vida Estudiantil. Así como presentar en el periodo definido para ello la totalidad de la documentación e información solicitada, sin excepción.
+b) Matricular y tener la beca socioeconómica activa (aplicada) para los cuatrimestres, según corresponda.
+c) Cumplir con los lineamientos definidos para ello por la Vicerrectoría de Vida Estudiantil.
+[imagen]
+TRANSITORIO XVII. Las personas estudiantes que poseen beca socioeconómica categoría cinco o cuatro, pueden realizar la solicitud del apoyo temporal para conectividad para el II y III cuatrimestre de 2021. Este beneficio representa un aporte económico mensual para el pago del servicio de internet requerido para gastos de estudio, ante la virtualización de los cursos, aprobada por el Consejo Universitario. El monto a otorgar será definido por la Vicerrectoría de Vida Estudiantil para cada cuatrimestre de acuerdo a la disponibilidad presupuestaria.
+La adjudicación o no de este apoyo, quedará sujeta a la aprobación por parte de la Coordinación del Área de Vida Estudiantil, según las recomendaciones del Subárea de Becas y Beneficios Estudiantiles de la Sede, así como la disponibilidad presupuestaria.
+Estos apoyos se otorgarán para el II y III cuatrimestre de 2021, de acuerdo al cumplimiento de los siguientes requisitos:
+a) Solicitar el apoyo temporal para conectividad en el periodo calendarizado por la Vicerrectoría de Vida Estudiantil. Así como presentar la totalidad de la documentación solicitada.
+b) Matricular y tener la beca socioeconómica activa (aplicada) para los cuatrimestres, según corresponda.
+c) El beneficio se brindará únicamente para el II y III cuatrimestre de 2021, siempre y cuando se mantengan las condiciones de virtualización del periodo lectivo.
+d) Cumplir con los lineamientos definidos para ello por la Vicerrectoría de Vida Estudiantil.
+3. La derogación del “Reglamento de Garantías y Cauciones para funcionarios de la Universidad Técnica Nacional” vigente que se encuentra actualmente publicado en los canales oficiales de la Universidad Técnica Nacional y en su lugar aprueba el “Reglamento de Garantías y Cauciones para los Servidores de la Universidad Técnica Nacional” mediante Acuerdo N° 9-11-2021 de la sesión ordinaria N° 11-2021, Artículo 13, celebrada el jueves 13 de mayo de 2021.
+(Nota de Sinalevi: Por tener articulado propio el Reglamento de Garantías y Cauciones para funcionarios de la Universidad Técnica Nacional, debe de consultarse en el sistema de forma independiente)
+4. La derogación del “Reglamento de Matrícula de Estudiantes Regulares de la Universidad Técnica Nacional” vigente que se encuentra actualmente publicado en los canales oficiales de la Universidad Técnica Nacional y en su lugar aprueba el “Reglamento de Matrícula de la Universidad Técnica Nacional” mediante Acuerdo N° 10-11-2021 de la sesión ordinaria N° 11- 2021, Artículo 14, celebrada el jueves 13 de mayo de 2021.
+(Nota de Sinalevi: Por tener articulado propio el Reglamento de Matrícula de Estudiantes Regulares de la Universidad Técnica Nacional. debe de consultarse en el sistema de forma independiente)
+Las reformas y derogaciones a reglamentos anteriores rigen a partir de su publicación.
+Las Normas de Reclutamiento y Selección de los Servidores de la Universidad Técnica Nacional, el Reglamento del Sistema de Becas y Beneficios Estudiantiles de la Universidad Técnica Nacional, el Reglamento de Garantías y Cauciones para funcionarios de la Universidad Técnica Nacional y el Reglamento de Matrícula de Estudiantes Regulares de la Universidad Técnica Nacional, en sus versiones completas y actualizadas, se encuentran disponibles en el portal electrónico de la Universidad Técnica Nacional www.utn.ac.cr, sección “Normativa Universitaria”.
+Emmanuel González Alvarado, Rector.—1 vez.—( I
