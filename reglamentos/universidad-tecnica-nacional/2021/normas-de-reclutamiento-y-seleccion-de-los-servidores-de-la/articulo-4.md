@@ -1,0 +1,4 @@
+Artículo 4. De los puestos y sus requisitos.
+Los requisitos de los puestos son los establecidos en el Manual Descriptivo de Clases de Puestos y normativa vigente relacionada a los procesos de reclutamiento y selección al momento de efectuarse la convocatoria.
+De forma complementaria, previo aval de la Dirección o Coordinación de Gestión de Desarrollo Humano, según corresponda, en las convocatorias de contratación de personal en todas las categorías o clases que conforman los grupos ocupacionales, se pueden incluir aspectos adicionales relacionados con la experiencia en el desempeño de funciones específicas, formación y capacitación, a fin de lograr el mejor desempeño en el puesto, para la contratación del personal idóneo.
+La inclusión de aspectos adicionales no limita la libre participación de los oferentes que cumplen con los requisitos establecidos en el Manual Descriptivo de Clases de Puestos.

@@ -1,0 +1,2 @@
+Artículo 16. Declaratoria de concurso desierto.
+La Dirección de Gestión de Desarrollo Humano informa a la Rectoría sobre la condición de concurso desierto para que se emita la declaratoria oficial correspondiente. En tal caso procede gestionar la publicación de un nuevo concurso, con las recomendaciones que para tal efecto se determine. De persistir la situación la UTN puede contratar en forma interina el recurso humano más idóneo, y prorrogar el nombramiento mientras persista esta condición.
