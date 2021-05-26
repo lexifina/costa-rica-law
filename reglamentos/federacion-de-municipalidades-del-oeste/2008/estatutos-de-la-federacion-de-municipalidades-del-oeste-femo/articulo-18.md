@@ -1,2 +1,5 @@
-Artículo 18. Del Director Ejecutivo:
-Su selección se realizará atendiendo a criterios de idoneidad de preparación académica, experiencia, capacidad y mérito. Será nombrado por el Consejo Intermunicipal para un período indefinido. Podrá ser removido siempre y cuando exista causa justificada.
+Artículo 18.-Del Tesorero del Consejo Directivo. Son funciones del Tesorero las siguientes:
+a. Supervisar y fiscalizar el control de todos los egresos e ingresos de la Federación.
+b. Firmar todos los compromisos de pago de la Federación del Director Ejecutivo o Gestor Financiero.
+c. Cualquier otra función que le designe el Consejo Directivo.
+(Así reformado el día 26 de mayo de 2021)

@@ -14,3 +14,4 @@ Estatutos de la Federación de Municipalidades del Oeste (FEMO)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-23 | la propia norma |
+| 2 | 2021-05-26 | Reglamento 0 (2021-05-26) |

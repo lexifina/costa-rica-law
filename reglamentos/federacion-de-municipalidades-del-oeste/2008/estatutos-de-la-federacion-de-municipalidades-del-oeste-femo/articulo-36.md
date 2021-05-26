@@ -1,5 +1,1 @@
-Artículo 36. Procedimiento de Disolución:
-La disolución de la Federación requerirá acuerdo de la Asamblea General, adaptado con el voto de las dos terceras partes y la ratificación de la mayoría de las entidades asociadas, en acuerdos adoptados con igual quórum. Como son:
-a. Terminación del interés de aglutinación de las Municipalidades de la región.
-b. Creación de nuevos mecanismos de coordinación excluyentes del concepto de Federación
-c. Por acuerdo de las Municipalidades integrantes.
+Artículo 36.-Causas de Disolución: (Nota de Sinalevi: Mediante sesión tomado el día 26 de mayo de 2021, se acordó reformar el presente artículo. No obstante; solo se publicada el epígrafe del artículo no así su contenido.)

@@ -1,2 +1,1 @@
-Artículo 28. Contabilidad y Rendición de Cuentas:
-La Federación está obligada a llevar contabilidad de todas las operaciones, conforme lo establecido por el Código Municipal y la legislación que le fuera aplicable.
+Artículo 28.-Criterios de Participación. (Nota de Sinalevi: Mediante sesión tomado el día 26 de mayo de 2021, se acordó reformar el presente artículo. No obstante; solo se publicada el epígrafe del artículo no así su contenido.)

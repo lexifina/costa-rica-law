@@ -1,0 +1,1 @@
+Artículo 38: Liquidación: (Nota de Sinalevi: Mediante sesión tomado el día 26 de mayo de 2021, se acordó adicionar el presente artículo. No obstante; solo se publicada el epígrafe del artículo no así su contenido.)

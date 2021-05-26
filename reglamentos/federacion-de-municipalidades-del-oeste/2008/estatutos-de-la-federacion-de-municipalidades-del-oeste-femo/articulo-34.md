@@ -1,4 +1,3 @@
-Artículo 34. Separaciones:
-Las municipalidades miembros podrán separarse en cualquier momento de la Federación, el proceso se iniciará con el acuerdo del Concejo Municipal respectivo y seguirá el mismo trámite que la adhesión.
-La separación deberá aprobarse de forma que no se perjudiquen los intereses que la Federación representa.
-Se procurará que quiénes soliciten la separación estén al corriente de sus obligaciones, quedando garantizada la liquidación de los créditos que tuviesen pendientes.
+CAPÍTULO V
+Incorporación y separación de los miembros
+Artículo 34.-Incorporación: (Nota de Sinalevi: Mediante sesión tomado el día 26 de mayo de 2021, se acordó reformar el presente artículo. No obstante; solo se publicada el epígrafe del artículo no así su contenido.)

@@ -1,2 +1,1 @@
-Artículo 31. Miembros Colaboradores:
-Podrán ser miembros colaboradores todas aquellas personas naturales o jurídicas que lo soliciten y manifiesten por escrito su intención de colaborar. El Consejo Intermunicipal resolverá sobre las solicitudes en un plazo no mayor de un mes calendario.
+Artículo 31.-Contabilidad y Rendición de Cuentas. (Nota de Sinalevi: Mediante sesión tomado el día 26 de mayo de 2021, se acordó reformar el presente artículo. No obstante; solo se publicada el epígrafe del artículo no así su contenido.)

@@ -1,2 +1,1 @@
-Artículo 35. Causas de Disolución:
-La disolución de la Federación podrá producirse por acuerdo adoptado por la Asamblea General, el que requerirá el voto afirmativo de dos terceras partes de sus miembros.
+Artículo 35.-Separaciones: (Nota de Sinalevi: Mediante sesión tomado el día 26 de mayo de 2021, se acordó reformar el presente artículo. No obstante; solo se publicada el epígrafe del artículo no así su contenido.)
