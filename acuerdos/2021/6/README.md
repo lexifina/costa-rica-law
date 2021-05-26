@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-C12 Criterios para la guía de aplicación de la No
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-24 | la propia norma |
+| 2 | 2021-05-26 | Acuerdo 8 (2021-05-26) |
