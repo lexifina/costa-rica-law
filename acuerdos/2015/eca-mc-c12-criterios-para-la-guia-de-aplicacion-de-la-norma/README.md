@@ -16,3 +16,4 @@ ECA-MC-C12 Criterios para la guía de aplicación de la Norma INTE-ISO/IEC 17020
 | 1 | 2015-06-19 | la propia norma |
 | 2 | 2019-02-25 | Acuerdo 0 (2019-02-25) |
 | 3 | 2021-03-18 | Acuerdo 6 (2021-03-18) |
+| 4 | 2021-05-26 | Acuerdo 8 (2021-05-26) |

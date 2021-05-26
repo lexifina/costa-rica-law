@@ -6,7 +6,7 @@ ECA-MC-C12 Criterios para la guía de aplicación de la Norma INTE-ISO/IEC 17020
 Los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www. eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Pavas, Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
 San José, 5 de junio del 2015.
 (Nota de Sinalevi: El Procedimiento ECA-MC-C12 Criterios para la guía de aplicación de la Norma INTE-ISO/IEC, se bajó del sitio Web Ente Costarricense de Acreditación, y se transcribe a continuación:)
-(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 58 del 24 de marzo del 2021, donde se actualiza la versión 04 y se publica la versión 05, y se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 109 del 8 de junio del 2021, donde se actualiza la versión 06 y se publica la versión 07, que se transcribe a continuación:)
 [imagen]
 TABLA DE CONTENIDO
 1 OBJETIVO ............................................................................................................................. 1
@@ -14,11 +14,11 @@ TABLA DE CONTENIDO
 3 DEFINICIONES ..................................................................................................................... 1
 4 INTRODUCCIÓN ................................................................................................................... 2
 5 PROCESO DE TESTIFICACIÓN PILOTO. ............................................................................ 3
-6 GUÍA DE APLICACIÓN DE LA NORMA INTE-ISO/IEC 17020:2012 ..................................... 5
-7 TRANSITORIO .................................................................................................................... 20
-8 ANEXOS ............................................................................................................................. 21
-ANEXO 1 ........................................................................................................................................ 21
-9 IDENTIFICACIÓN DE CAMBIOS ......................................................................................... 27
+6 GUÍA DE APLICACIÓN DE LA NORMA INTE-ISO/IEC 17020:2012 ..................................... 4
+7 TRANSITORIO .................................................................................................................... 19
+8 ANEXOS ............................................................................................................................. 20
+ANEXO 1 ........................................................................................................................................ 20
+9 IDENTIFICACIÓN DE CAMBIOS ......................................................................................... 26
 1 OBJETIVO
 Establecer los criterios de referencia que deben ser aplicados para la evaluación y acreditación de Organismos de Inspección de acuerdo con la Norma INTE-ISO/IEC 17020:2012. Asimismo, establecer requisitos complementarios a los citados en la norma de referencia.
 2 ALCANCE
@@ -26,21 +26,21 @@ El presente documento debe ser aplicado por el personal de la Secretaría de Acr
 3 DEFINICIONES
 Para el propósito de este documento, aplican los términos y definiciones descritos en las normas INTE-ISO/IEC 17020:2012 e INTE-ISO/IEC 17000. Además de las siguientes:
 a. Inspección piloto: Es el proceso mediante el cual el Organismo de Inspección realiza todas las etapas del proceso de inspección, sin contar con un contrato activo (remuneradas o no), el cual implementa completamente el procedimiento de inspección, demostrando que:
-• Conoce los requisitos normativos o regulatorios y especificaciones aplicables a la inspección,
-• Se planifica la inspección,
-• Se asigna la inspección,
-• Implementa el muestreo (cuando aplique),
-• Ejecuta la inspección para verificar el cumplimiento de los requisitos o especificaciones,
-• Emite los informes o certificados de inspección, con la declaración de conformidad (cuando aplique), aunque no sea entregado formalmente a un cliente.
+. Conoce los requisitos normativos o regulatorios y especificaciones aplicables a la inspección,
+. Se planifica la inspección,
+. Se asigna la inspección,
+. Implementa el muestreo (cuando aplique),
+. Ejecuta la inspección para verificar el cumplimiento de los requisitos o especificaciones,
+. Emite los informes o certificados de inspección, con la declaración de conformidad (cuando aplique), aunque no sea entregado formalmente a un cliente.
 b. Testificación: Observación por parte del ECA de un Organismo de Evaluación de la Conformidad, OEC, que está llevando a cabo actividades de evaluación de la conformidad dentro de su alcance de acreditación.
 c. Competencia: Capacidad para aplicar conocimientos y habilidades con la finalidad de lograr los resultados previstos.
 d. Calificación: Educación, formación y experiencia laboral demostrada.
 4 INTRODUCCIÓN
-Este documento proporciona información para la aplicación de la norma INTE-ISO/IEC 17020:2012 Evaluación de la conformidad — Requisitos para el funcionamiento de diferentes tipos de organismos que realizan la inspección, para la acreditación de organismos de inspección. Este documento está destinado para que se utilice por los organismos de acreditación, como por ejemplo el ECA, quienes evalúan a los organismos de inspección para la acreditación, así como por los organismos de inspección que buscan gestionar sus operaciones de una manera que cumpla los requisitos para la acreditación.
+Este documento proporciona información para la aplicación de la norma INTE-ISO/IEC 17020:2012 Evaluación de la conformidad - Requisitos para el funcionamiento de diferentes tipos de organismos que realizan la inspección, para la acreditación de organismos de inspección. Este documento está destinado para que se utilice por los organismos de acreditación, como por ejemplo el ECA, quienes evalúan a los organismos de inspección para la acreditación, así como por los organismos de inspección que buscan gestionar sus operaciones de una manera que cumpla los requisitos para la acreditación.
 Para facilitar la referencia, cada criterio de aplicación se identifica por el número de la cláusula de la norma INTE-ISO/IEC 17020:2012 y un sufijo apropiado, por ejemplo, 4.1.4a sería la primera guía de la cláusula 4.1.4 de la norma.
-El término “debe” se utiliza en este documento para indicar las disposiciones que, reflejan los requisitos de la norma INTE-ISO/IEC 17020:2012, o en algunos casos, los requisitos para el funcionamiento de los organismos de acreditación de la norma INTE-ISO/IEC 17011:2017 y que son considerados como obligatorios.
+El término "debe" se utiliza en este documento para indicar las disposiciones que, reflejan los requisitos de la norma INTE-ISO/IEC 17020:2012, o en algunos casos, los requisitos para el funcionamiento de los organismos de acreditación de la norma INTE-ISO/IEC 17011:2017 y que son considerados como obligatorios.
 El término "debería" se utiliza en este documento para indicar las disposiciones que, aunque no sean obligatorias, son proporcionados por ILAC como un medio reconocido de cumplimiento de los requisitos.
-Los organismos de inspección, los cuales sus sistemas de gestión no siguen los términos "debería" de este documento, serán solamente elegibles para la acreditación si ellos pueden demostrar al ECA que sus soluciones cumplen las cláusulas pertinentes de la norma INTEISO/IEC 17020:2012 de forma equivalente o por medio de un mejor camino.
+Los organismos de inspección, los cuales sus sistemas de gestión no siguen los términos "debería" de este documento, serán solamente elegibles para la acreditación si ellos pueden demostrar al ECA que sus soluciones cumplen las cláusulas pertinentes de la norma INTEISO/ IEC 17020:2012 de forma equivalente o por medio de un mejor camino.
 El término "podría" se utiliza para indicar algo que está permitido.
 El término "puede" se utiliza para indicar una posibilidad o una capacidad.
 Los esquemas de inspección individuales podrían especificar los requisitos adicionales para la acreditación. Este documento no trata de identificar cuáles requisitos podrían ser o cómo deben ser implementados.
@@ -58,8 +58,7 @@ h. Emisión de los informes o certificados de inspección, para el cliente ECA (
 5.3 El Organismo de Inspección no puede justificar desconocer el detalle de los requisitos o especificaciones aplicables fundamentado no tener contratos activos. Es su responsabilidad realizar las gestiones con la organización o persona, que le permitan realizar la testificación y le informe sobre los requisitos o especificaciones aplicables, para las instalaciones o proyecto. El personal responsable de la inspección piloto debe conocer el detalle de estos requisitos o especificaciones.
 5.4 El Organismo de Inspección no debe justificar que la testificación no es posible por no tener contratos activos.
 5.5 Si durante el ciclo de acreditación el Organismo de Inspección no cuenta con contratos activos, el Organismo debe asegurar que tiene la competencia a través de las siguientes actividades:
-a. Sus inspectores participan en inspecciones de otros Organismos de Inspección para todas
-las actividades incluidas en el alcance de acreditación.
+a. Sus inspectores participan en inspecciones de otros Organismos de Inspección para todas las actividades incluidas en el alcance de acreditación.
 b. Evaluaciones teóricas-prácticas de los inspectores para todas las actividades incluidas en el alcance acreditado.
 6 GUÍA DE APLICACIÓN DE LA NORMA INTE-ISO/IEC 17020:2012
 3. Términos y definiciones
@@ -68,7 +67,7 @@ b. Evaluaciones teóricas-prácticas de los inspectores para todas las actividad
 4.1 Imparcialidad e independencia
 La norma INTE-ISO/IEC 17020 otorga la mayor importancia a la prevención de la influencia indebida de las actividades de inspección. El requisito 4.1.2 requiere que las presiones comerciales, financieras y de otra índole no comprometan la imparcialidad, mientras que el requisito 4.1.3 reconoce que las relaciones del Organismo de Inspección y las relaciones de su personal potencialmente comprometen la imparcialidad, y en el requisito 4.1.4 que las relaciones de su personal y las organizativas pueden necesitar controles para mantener la imparcialidad. Finalmente, considerando la independencia y la clasificación de los organismos en Tipos de Independencia A, B y C para indicar la naturaleza de las relaciones entre el organismo de inspección y los ítems inspeccionados.
 El anexo 1 proporciona una orientación adicional.
-4.1.3a Cuando la norma establece: “De manera continua” significa que el Organismo de Inspección identifique un riesgo cada vez que se producen eventos que podrían influir en su imparcialidad, por ende, riesgos a la imparcialidad del organismo de inspección deben ser considerados cuando ocurran eventos que podrían tener relación con la imparcialidad del organismo de inspección y su personal. El Anexo 2 se documenta la relación entre imparcialidad y requisitos de independencia Tipo A. El Anexo 3 de este documento, contempla una forma de cómo identificar los riesgos a la imparcialidad. Este anexo es una de varias alternativas sobre cómo hacerlo; por tanto, es un documento guía para dar mayor claridad al Organismo de Inspección como cumplir con este requisito.
+4.1.3a Cuando la norma establece: "De manera continua" significa que el Organismo de Inspección identifique un riesgo cada vez que se producen eventos que podrían influir en su imparcialidad, por ende, riesgos a la imparcialidad del organismo de inspección deben ser considerados cuando ocurran eventos que podrían tener relación con la imparcialidad del organismo de inspección y su personal. El Anexo 2 se documenta la relación entre imparcialidad y requisitos de independencia Tipo A. El Anexo 3 de este documento, contempla una forma de cómo identificar los riesgos a la imparcialidad. Este anexo es una de varias alternativas sobre cómo hacerlo; por tanto, es un documento guía para dar mayor claridad al Organismo de Inspección como cumplir con este requisito.
 4.1.3b El organismo de inspección debería describir cualquiera de sus relaciones o las de su personal que pueden afectar su imparcialidad a un grado relevante, utilizando diagramas organizacionales u otros medios.
 Ejemplos de relaciones que podrían influir la imparcialidad son:
 - Relaciones con la organización matriz.
@@ -78,9 +77,7 @@ Ejemplos de relaciones que podrían influir la imparcialidad son:
 - Relaciones con los clientes.
 - Relaciones con los proveedores.
 - Relaciones del personal, integrantes de juntas directivas y/o accionistas.
-- Relaciones con las organizaciones que participan en el diseño, la fabricación, el
-suministro, la instalación, la adquisición o compra, la posesión el uso o el
-mantenimiento de los ítems inspeccionados.
+- Relaciones con las organizaciones que participan en el diseño, la fabricación, el suministro, la instalación, la adquisición o compra, la posesión el uso o el mantenimiento de los ítems inspeccionados.
 - Con sus procesos de auditoría interna.
 Nota: Para el ECA, diagramas organizaciones u otros medios, puede ser la matriz de riesgos a la imparcialidad, siempre y cuando la matriz describa claramente las relaciones.
 4.1.3c El anexo 1 da un ejemplo de un posible formato para el análisis de riesgo a la imparcialidad.
@@ -90,7 +87,7 @@ Nota: Para el ECA, diagramas organizaciones u otros medios, puede ser la matriz 
 4.1.6a Un Organismo de Inspección puede tener diferentes tipos de independencia (Tipo A, B o C) para diferentes actividades de inspección listadas en el alcance de la acreditación. Sin embargo, no es posible que un Organismo de Inspección ofrezca diferentes tipos de independencia para la misma actividad de inspección.
 4.1.6b Cumplir con los requisitos de independencia de Tipo A requisito A.1b y A.1c del anexo A de la norma, es binario (sí o no), lo que implica que no es posible cumplir parcialmente con los requisitos de independencia de Tipo A. Esto también significa que no es posible un análisis de riesgos que dé como resultado medidas de control para minimizar los riesgos a la imparcialidad de una situación en la que no se cumplan estos requisitos de Tipo A. Por lo tanto, solo es posible eliminar la situación que no cumple con estos requisitos de Tipo A.
 4.2 Confidencialidad
-4.2.1a El término “legalmente ejecutable” implica que el acuerdo implementado pueda ser utilizado en procesos judiciales.
+4.2.1a El término "legalmente ejecutable" implica que el acuerdo implementado pueda ser utilizado en procesos judiciales.
 Ejemplos de documentos legalmente ejecutables, son aquellos que cumplen con Leyes vigentes de Costa Rica como, por ejemplo, Ley de Protección de Datos, Ley de información No Divulgada, Ley de Secreto Comercial, Código de Trabajo (Artículo 71).
 5. Requisitos relativos a la estructura
 5.1 Requisitos administrativos
@@ -98,9 +95,8 @@ Ejemplos de documentos legalmente ejecutables, son aquellos que cumplen con Leye
 5.1.3a Para efectos de la acreditación, la documentación que describe las actividades es el alcance acreditado o en proceso de acreditación. La guía de ILAC G28 brinda una orientación para la formulación de alcance de acreditación de los Organismos de Inspección.
 5.1.4a El nivel de la cobertura debería ser acorde con el nivel y la naturaleza de las responsabilidades que puedan derivarse de las actividades del organismo de inspección.
 Cuando se presenta la solicitud de acreditación inicial o de ampliación, el organismo de inspección debe presentar evidencia de que cuenta con la póliza de seguro de responsabilidad civil o bien los fondos adecuados, los cuales sean equivalentes al seguro de responsabilidad civil.
-El seguro de responsabilidad civil debe permanecer vigente mientras se encuentre acreditado.
-Una garantía de cumplimiento no se considera como seguro de responsabilidad civil.
-5.1.4b Una evaluación de “disposiciones adecuadas” puede basarse en evidencia de acuerdo entre las partes del contrato y la consideración de cualquier documento legal relevante o reglas del esquema. El Organismo de Inspección debería ser capaz de mostrar qué factores se han tenido en cuenta durante la determinación que constituye “disposiciones adecuadas”. No es función del ECA aprobar las “disposiciones adecuadas” que posee un Organismo de Inspección.
+El seguro de responsabilidad civil debe permanecer vigente mientras se encuentre acreditado. Una garantía de cumplimiento no se considera como seguro de responsabilidad civil.
+5.1.4b Una evaluación de "disposiciones adecuadas" puede basarse en evidencia de acuerdo entre las partes del contrato y la consideración de cualquier documento legal relevante o reglas del esquema. El Organismo de Inspección debería ser capaz de mostrar qué factores se han tenido en cuenta durante la determinación que constituye "disposiciones adecuadas". No es función del ECA aprobar las "disposiciones adecuadas" que posee un Organismo de Inspección.
 5. Requisitos relativos a la estructura
 5.2 Organización y gestión
 5.2.2a El tamaño, la estructura, la composición y la gestión de un organismo de inspección, en su conjunto, deben ser adecuados para el desempeño competente de las actividades comprendidas en el alcance para el que está acreditado el organismo de inspección.
@@ -123,15 +119,15 @@ Una garantía de cumplimiento no se considera como seguro de responsabilidad civ
 6.1.2b El organismo de inspección debe notificar al ECA todo cambio significativo, siguiendo lo establecido en el ECA-MP-P02.
 6.1.2c Cuando un OEC se encuentra sin contratos activos en las actividades parciales o totales del alcance acreditado, debe tener personal técnicamente competente en todo el alcance acreditado, que su ingreso se haya comunicado al ECA y que cuente con un acuerdo de servicios entre ambas partes (Colaborador y OEC).
 6.1.5a El procedimiento para autorizar formalmente a los inspectores debería especificar qué detalles relevantes son documentados, por ejemplo, la actividad de inspección autorizada, la fecha de inicio de la autorización, la identidad de la persona que realizó la autorización y, cuando sea apropiado, la fecha de expiración de la autorización.
-6.1.6a El período de trabajo bajo la tutela de inspectores experimentados, mencionado en el inciso b), puede incluir la participación en inspecciones en los lugares donde se realizan las mismas
+6.1.6a El período de trabajo bajo la tutela de inspectores experimentados, mencionado en el inciso b), debería incluir la participación en inspecciones en los lugares donde se realizan las mismas
 6.1.7a La identificación de las necesidades de formación de cada persona debería hacerse a intervalos regulares. El intervalo debería ser seleccionado para asegurar el cumplimiento de la cláusula 6.1.6 inciso c). Los resultados de la revisión de la formación, por ejemplo, los planes de formación complementaria o una declaración de que no se requiere una formación complementaria, se deben documentar.
 6.1.8a El objetivo principal del requisito de supervisión es proporcionar al organismo de inspección con una herramienta para asegurar la consistencia y fiabilidad de los resultados de la inspección, incluyendo cualquier juicio contra los criterios generales. La supervisión podría resultar en la identificación de necesidades de formación individual o que sea necesario revisar el sistema de gestión del organismo de inspección.
-6.1.8b Cuando la norma menciona “…demás personal que participa en las actividades de inspección”, ver 5.2.7a.
+6.1.8b Cuando la norma menciona ".demás personal que participa en las actividades de inspección", ver 5.2.7a.
 Para la supervisión de revisiones de informes (incluye, revisión de registros asociados al informe de inspección y la transcripción de datos-cuando corresponda-):
 La supervisión del personal de inspección puede incluir, pero no limitarse a la revisión regular de los registros (por ejemplo: actas, informes o certificados) de inspección para asegurar que éstos están de acuerdo con la legislación, los procedimientos correspondientes y si es necesario con las obligaciones contractuales acordadas con el cliente. El Organismo de Inspección debe definir el cómo, cuándo, cuánto, dónde y quién realiza las actividades antes mencionadas.
 Para la supervisión de campo, las personas físicas no pueden auto supervisarse, por lo que requerirán llevar a cabo la supervisión por un par.
 6.1.8c Cuando se presenta la solicitud de acreditación inicial o de ampliación, el organismo de inspección debe presentar evidencia de que ha supervisado a todos los inspectores que se encuentran autorizados en las actividades y demás personal que participa en las actividades de inspección.
-6.1.9a “Suficiente evidencia” podría estar basada en una combinación de los siguientes factores:
+6.1.9a "Suficiente evidencia" podría estar basada en una combinación de los siguientes factores:
 - Desempeño satisfactorio en la ejecución de las inspecciones.
 - Resultados positivos en las supervisiones (ver nota del requisito 6.1.8);
 - Resultados positivos de una evaluación separada para confirmar los resultados de la inspección;
@@ -157,11 +153,10 @@ Proyectos de Conservación y Obra Vial:
 Transporte público
 1. Criterios para la Administración (Tipo A).
 De acuerdo al ejemplo, el Inspector A debe ser observado in situ en los siguientes subcampos:
-Limpieza de Tomas, Cabezales y Alcantarillas; Bacheo con Mezcla Asfáltica en Caliente y
-Criterios para la Administración (Tipo A).
+Limpieza de Tomas, Cabezales y Alcantarillas; Bacheo con Mezcla Asfáltica en Caliente y Criterios para la Administración (Tipo A).
 Las observaciones in situ pueden ser menos frecuentes porque hay un desempeño satisfactorio o por el contrario se debe incrementar la frecuencia de las observaciones in situ, si hay resultados no satisfactorios.
 6.1.9c Este requisito aplica incluso en el caso que organismo de inspección tenga sólo una persona técnicamente competente.
-6.1.10a Los registros de autorización deberían especificar la base sobre la que se concedió la autorización (por ejemplo, la observación in situ de las inspecciones) y la fecha de la autorización..
+6.1.10a Los registros de autorización deberían especificar la base sobre la que se concedió la autorización (por ejemplo, la observación in situ de las inspecciones) y la fecha de la autorización.
 6.1.12a Las políticas y los procedimientos deberían ayudar al personal del organismo de inspección a identificar y direccionar las amenazas o incentivos comerciales, financieras o de otro tipo que puedan influir en su imparcialidad, si se originan a lo interno o externo del organismo de inspección. Dichos procedimientos deberían abordar cómo se informa y se registran los conflictos de intereses identificados por el personal del organismo de inspección.
 Hay que tener en cuenta, sin embargo, que las expectativas para la integridad del inspector pueden ser comunicados por las políticas y procedimientos, pero la existencia de tales documentos no podría señalar la presencia de integridad e imparcialidad requeridas por esta cláusula.
 6. Requisitos relativos a los recursos
@@ -171,13 +166,12 @@ Hay que tener en cuenta, sin embargo, que las expectativas para la integridad de
 6.2.4a El Organismo de Inspección debería documentar y conservar la justificación de las decisiones sobre la definición de los equipos que tienen influencia significativa en los resultados de la inspección, ya que estas decisiones son bases fundamentales para las decisiones posteriores sobre calibración y trazabilidad.
 6.2.4b Con el fin de permitir el seguimiento, cuando los equipos son reemplazados, la identificación única de un equipo puede ser conveniente incluso cuando sólo hay uno disponible.
 6.2.4c Cuando se requieran condiciones ambientales controladas, el equipo utilizado para controlar dichas condiciones, debe ser considerado como equipo que influye significativamente en el resultado de las inspecciones.
-6.2.6a Se debe registrar la justificación para no calibrar alguno de los equipos que tienen influencia significativa en los resultados de la inspección (véase el apartado 6.2.4); sin embargo, la justificación no puede ir en contra de lo establecido en el ECA-MC-C19 Criterio de Trazabilidad..
-6.2.6b Directrices sobre cómo determinar los intervalos de calibración se podrían encontrar en ILAC G24.
+6.2.6a Se debe registrar la justificación para no calibrar alguno de los equipos que tienen influencia significativa en los resultados de la inspección (véase el apartado 6.2.4); sin embargo, la justificación no puede ir en contra de lo establecido en el ECA-MC-C19 Criterio de Trazabilidad.
+. 6.2.6b Directrices sobre cómo determinar los intervalos de calibración se podrían encontrar en ILAC G24.
 6.2.6c Cuando sea apropiado (normalmente para el equipo cubierto por el apartado 6.2.6) la definición puede requerir la precisión requerida y rango de medición.
-6.2.6d El organismo de inspección debe cumplir con el criterio de ECA: ECA-MC-C19 Criterio
-de Trazabilidad.
-6.2.7a Según la política de ILAC P10, es posible realizar la calibración interna de los equipos utilizados para las mediciones. Es un requisito para el ECA tener un documento para asegurar que los programas de este tipo de servicios de calibración internos estén diseñados y operados de manera que se asegure que las calibraciones y las mediciones realizadas por los organismos de evaluación de la conformidad sean trazables al Sistema Internacional de Unidades (SI), por lo anterior los organismos de inspección deben cumplir con el ECA-MC- 19 Criterio de Trazabilidad.
-6.2.7b Las rutas privilegiadas para los Organismo de Inspección que buscan servicios externos para la calibración de sus equipos se definen en ILAC P10, para el ECA sería el ECA-MC-C19.
+6.2.6d El organismo de inspección debe cumplir con el criterio de ECA: ECA-MC-C19 Criterio de Trazabilidad.
+6.2.7a Según la política de ILAC P10, es posible realizar la calibración interna de los equipos utilizados para las mediciones. Es un requisito para el ECA tener un documento para asegurar que los programas de este tipo de servicios de calibración internos estén diseñados y operados de manera que se asegure que las calibraciones y las mediciones realizadas por los organismos de evaluación de la conformidad sean trazables al Sistema Internacional de Unidades (SI), por lo anterior los organismos de inspección deben cumplir con el ECA-MC-C19 Criterio de Trazabilidad.
+6.2.7b Las rutas preferidas por los Organismo de Inspección que buscan servicios externos para la calibración de sus equipos se definen en ILAC P10, para el ECA sería el ECA-MC-C19.
 6.2.9a Cuando el equipo está sujeto a verificaciones internas entre recalibraciones, debería definirse la naturaleza, la frecuencia y criterios de aceptación de dichas verificaciones.
 Todos los registros de estas comprobaciones deben mantenerse y estar disponibles.
 6.2.10a La información proporcionada en 6.2.7a, 6.2.7b y 6.2.7c para los programas de calibración de los equipos es válido también para los programas de verificación de los materiales de referencia.
@@ -196,8 +190,8 @@ Si los Organismos de Inspección requieren el resultado de un laboratorio de ens
 7.1 Métodos y procedimientos de inspección
 7.1.1a Si la inspección incluye mediciones, el documento ILAC G27 provee una guía sobre cómo determinar qué requisitos pueden ser relevantes.
 7.1.1b Para el desarrollo de métodos y procedimientos de inspección específicos, se puede utilizar como guía Ia norma ISO /IEC 17007 vigente.
-7.1.1b Muchos métodos de inspección utilizan el ojo humano para realizar inspecciones visuales. Cada vez se introducen nuevas tecnologías (por ejemplo: drones, cámaras, lentes especiales, tecnología de información, inteligencia artificial, entre otros.) para ser utilizadas durante las inspecciones. Esto podría ser como un reemplazo (en parte) de un método de inspección existente (como el ojo humano) o como un nuevo método de inspección.
-7.1.1c Los aspectos que requieren atención con la introducción de las nuevas tecnologías son:
+7.1.1c Muchos métodos de inspección utilizan el ojo humano para realizar inspecciones visuales. Cada vez se introducen nuevas tecnologías (por ejemplo: drones, cámaras, lentes especiales, tecnología de información, inteligencia artificial, entre otros.) para ser utilizadas durante las inspecciones. Esto podría ser como un reemplazo (en parte) de un método de inspección existente (como el ojo humano) o como un nuevo método de inspección.
+7.1.1d Los aspectos que requieren atención con la introducción de las nuevas tecnologías son:
 - Validación del método de inspección nuevo o modificado usando nueva tecnología. En caso de reemplazo (en parte) de un método de inspección existente, se debe investigar si el resultado de la inspección es igualmente (o más) confiable que el resultado del método existente;
 - Los requisitos legales y de seguridad aplicables (como permisos), limitaciones y condiciones legales;
 - Las limitaciones y condiciones aplicables para el método de inspección cuando se utiliza nueva tecnología;
@@ -220,7 +214,7 @@ Para requerimientos de trabajos rutinarios o repetitivos, la revisión puede ser
 7.4.2a Los Organismos de Inspección acreditados por el ECA deben cumplir con el procedimiento ECA-MC-P18Procedimiento para el uso de logotipo ECA, símbolo de acreditación y declaraciones sobre el estado de acreditación.
 8. Requisitos relativos al sistema de gestión
 8.1 Opciones
-8.1.3a La expresión “esta norma internacional” es una referencia a la ISO/IEC 17020
+8.1.3a La expresión "esta norma internacional" es una referencia a la ISO/IEC 17020
 8.1.3b La adopción de la opción B no requiere que el sistema de gestión del Organismo de Inspección esté certificado con la norma ISO 9001. Sin embargo, para determinar el alcance de la evaluación requerida, el ECA debe tomar en consideración si el sistema de gestión del Organismo de Inspección ha sido certificado bajo los requisitos de la norma ISO 9001 por un organismo de certificación acreditado por un Organismo de Acreditación signatario de IAF MLA, u otro reconocimiento regional, para la certificación de sistemas de gestión.
 8.1.3c Es obligación del ECA llevar a cabo las actividades de evaluación necesarias para asegurar que el OI que haya optado por la opción B, satisface los requisitos del capítulo del sistema de gestión.
 8.2.1a Las políticas y objetivos deben abordar la competencia, imparcialidad y la operación consistente del Organismo de inspección.
@@ -265,15 +259,14 @@ En particular, existe una posibilidad de influir en el resultado de una inspecci
 - Influir en la remuneración de trabajos o clientes específicos,
 - Iniciar el uso de prácticas alternativas de trabajo para las tareas o clientes específicos.
 A.c También se considera como actividad conflictiva la provisión de consultoría en el diseño, fabricación, suministro, instalación, compra, propiedad, uso o mantenimiento de los ítems inspeccionados.
-A.d Un “requisito regulatorio” significa que la excepción se ha escrito en la legislación pertinente y/o cuando un regulador proporciona orientación disponible públicamente que indica que esta excepción es permisible cuando se realiza como parte de la actividad de inspección regulada.
+A.d Un "requisito regulatorio" significa que la excepción se ha escrito en la legislación pertinente y/o cuando un regulador proporciona orientación disponible públicamente que indica que esta excepción es permisible cuando se realiza como parte de la actividad de inspección regulada.
 7 TRANSITORIO
 El documento entra en vigencia 3 meses después de su publicación en diario Oficial La Gaceta. El Organismos de Inspección debe entregar un documento donde aclare el cumplimiento de cada uno de los requisitos que en este documento se están modificando, con el fin de que el ECA verifique su cumplimiento. La entrega de esta información debe ser como máximo la fecha de entrada en vigencia del documento. En casos de identificar incumplimientos por parte del Organismo de Inspección, la Secretaría de Acreditación debe identificar una no conformidad la cual debe estar resuelta en el plazo máximo definido por la Secretaría de Acreditación.
 8 ANEXOS
 ANEXO 1
 (Informativo)
 Posible formato para un análisis de riesgo a la imparcialidad
-El requisito 4.1.3 requiere que el Organismo de Inspección identifique los riesgos a la imparcialidad de manera continua y el punto 4.1.4 requiere que el Organismo de Inspección demuestre cómo elimina o minimiza dichos riesgos. En la práctica, la combinación de estos dos puntos indica que se requiere un “análisis de riesgo a la imparcialidad”. Sin embargo, el término “análisis de riesgos a la imparcialidad” no se menciona en la norma ISO/IEC 17020, en esta nota de aplicación se utiliza como un término ampliamente difundido a través del cual los requisitos de los puntos 4.1.3 y 4.1.4 pueden ser tratados por el Organismo de Inspección. Las acciones a través de las cuales el Organismo de Inspección demuestra cómo elimina o minimiza los riesgos a la imparcialidad identificados en la práctica a menudo se denominan “medidas de control”. Este término tampoco se menciona en la norma ISO/IEC 17020. En la tabla a continuación se muestra un posible formato para un análisis de riesgo a la imparcialidad
-[imagen]
+El requisito 4.1.3 requiere que el Organismo de Inspección identifique los riesgos a la imparcialidad de manera continua y el punto 4.1.4 requiere que el Organismo de Inspección demuestre cómo elimina o minimiza dichos riesgos. En la práctica, la combinación de estos dos puntos indica que se requiere un "análisis de riesgo a la imparcialidad". Sin embargo, el término "análisis de riesgos a la imparcialidad" no se menciona en la norma ISO/IEC 17020, en esta nota de aplicación se utiliza como un término ampliamente difundido a través del cual los requisitos de los puntos 4.1.3 y 4.1.4 pueden ser tratados por el Organismo de Inspección. Las acciones a través de las cuales el Organismo de Inspección demuestra cómo elimina o minimiza los riesgos a la imparcialidad identificados en la práctica a menudo se denominan "medidas de control". Este término tampoco se menciona en la norma ISO/IEC 17020. En la tabla a continuación se muestra un posible formato para un análisis de riesgo a la imparcialidad [imagen]
 Tabla 1. Posible formato para un análisis de riesgo a la imparcialidad
 ANEXO 2
 (Informativo)
@@ -285,18 +278,19 @@ Relación entre imparcialidad y requisitos de independencia Tipo A
 - Los requisitos de independencia Tipo A están destinados a aumentar la confianza en la imparcialidad y excluir solo ciertos riesgos a la imparcialidad. Por lo tanto, cumplir con estos requisitos de independencia del Tipo A no elimina todos los riesgos a la imparcialidad;
 - Los riesgos a la imparcialidad remanentes deben ser identificados (requisito 4.1.3) y minimizados o eliminados (requisito 4.1.4).
 2- Análisis de riesgo a la imparcialidad y medidas de control.
-- En la práctica, la identificación de los riesgos potenciales a la imparcialidad, a menudo se denomina “análisis de riesgo a la imparcialidad”; la minimización o eliminación de los riesgos a la imparcialidad según el punto 4.1.4 en la práctica a menudo se denominan “medidas de control”;
+- En la práctica, la identificación de los riesgos potenciales a la imparcialidad, a menudo se denomina "análisis de riesgo a la imparcialidad"; la minimización o eliminación de los riesgos a la imparcialidad según el punto 4.1.4 en la práctica a menudo se denominan "medidas de
+control";
 - Se requiere un análisis de riesgo a la imparcialidad para los tres tipos de independencia (Tipo A, Tipo B y Tipo C);
 - El cumplimiento de los requisitos de independencia del Tipo A A.1b y A.1c es binario (sí o no), lo que significa que no es posible cumplir parcialmente con estos requisitos de independencia Tipo A. Esto también significa que no es posible un análisis de riesgos que resulte en medida de control para minimizar los riesgos a la imparcialidad de una situación en la que no se cumplen estos requisitos del Tipo A. Por lo tanto, sólo es posible eliminar la situación que no cumple con estos requisitos del Tipo A.
 - Los requisitos de Independencia Tipo A A.1d podrían abordarse mediante medidas de control resultantes del análisis de riesgo.
 - La evaluación de si un Organismo de Inspección cumple con los requisitos de independencia Tipo A A.1b y A.1c puede ser compleja en algunas situaciones específicas (dependiendo de los ítems inspeccionados a mano y las características del mercado), pero el resultado debe ser sí o no;
 3- Ítems inspeccionados
-- El término “ítems inspeccionados” se menciona en los requisitos de independencia Tipo A del Anexo A.1b y A.1c de la norma ISO/IEC 17020 y se aclara en este documento en el Anexo A requisito Aa1;
-- El razonamiento detrás de la aclaración del ILAC P15, es que se debería prevenir la posible influencia en el mercado o la posible influencia desde el mercado, evitando así las presiones comerciales y financieras sobre el Organismo de Inspección y su personal (por ejemplo:
-inspectores);
+- El término "ítems inspeccionados" se menciona en los requisitos de independencia Tipo A del Anexo A.1b y A.1c de la norma ISO/IEC 17020 y se aclara en este documento en el Anexo A requisito Aa1;
+- El razonamiento detrás de la aclaración del ILAC P15, es que se debería prevenir la posible influencia en el mercado o la posible influencia desde el mercado, evitando así las presiones comerciales y financieras sobre el Organismo de Inspección y su personal (por ejemplo: inspectores);
 - Los Organismo de Inspección pueden operar en mercados diferentes características en términos del número de proveedores/productores:
-• Mercados donde hay un número limitado de proveedores/productores. Por ejemplo: ascensores, automóviles, equipos a presión, etc.
-• Mercados donde hay una gran cantidad de proveedores/productores. Por ejemplo: en el sector agroalimentario.
+. Mercados donde hay un número limitado de proveedores/productores. Por ejemplo:
+ascensores, automóviles, equipos a presión, etc.
+. Mercados donde hay una gran cantidad de proveedores/productores. Por ejemplo: en el sector agroalimentario.
 Los Organismos de Inspección y sus inspectores no deben estar comprometidos con los ítems inspeccionados mencionados en el alcance de la acreditación en general, sin limitarse solo a ítems específicos, únicos, individuales que estén sujetos a una inspección por parte del Organismos de Inspección.
 Tipo A / Tipo C
 - Puede ser difícil cumplir con los Tipo A del Anexo A.1b y A.1c de la norma ISO/IEC 17020 en algunos sectores de actividad económica donde los potenciales inspectores externos en esos casos están comprometidos con los ítems inspeccionados; En tales casos, el Tipo C es una alternativa del Tipo A.
@@ -330,21 +324,20 @@ a) Salvaguardas preventivas: por ejemplo, un programa de inducción para el pers
 b) Salvaguardas relacionadas con la aparición de riesgos en circunstancias específicas: por ejemplo, la prohibición de ciertas relaciones de trabajo entre los miembros de la familia de los inspectores del Organismo de Inspección y los clientes del mismo;
 c) Salvaguardas cuyos efectos son impedir infracciones de otras salvaguardas mediante castigo a los infractores: por ejemplo, una política de cero tolerancias que permita al Organismo de Inspección despedir al personal;
 d) Prohibición absoluta: prohibiendo la inspección dependiendo de las características del Organismo de Inspección. Por ejemplo, el Tipo A y B.
-e) El permiso de la actividad o de la relación, pero con restricciones: impidiendo la participación de miembros del personal en una inspección de una parte responsable para la cual dicho personal haya participado en la inspección realizada (dependiendo del tipo de Organismo de Inspección que se trate y salvaguardas realizadas; por ejemplo, el tipo C); 4. Ejemplos de los factores mencionados en la nota del requisito 4.1.3 de la norma INTEISO/ IEC 17020.
-Ejemplos del factor “propiedad”:
+e) El permiso de la actividad o de la relación, pero con restricciones: impidiendo la participación de miembros del personal en una inspección de una parte responsable para la cual dicho personal haya participado en la inspección realizada (dependiendo del tipo de Organismo de Inspección que se trate y salvaguardas realizadas; por ejemplo, el tipo C);
+4. Ejemplos de los factores mencionados en la nota del requisito 4.1.3 de la norma INTEISO/ IEC 17020.
+Ejemplos del factor "propiedad":
 a. El(los) dueño(s) participan o intervienen en las operaciones del OI.
 b. El dueño del OI o su personal es accionista en otra sociedad anónima donde interviene en actividades incompatibles con su independencia de juicio e integridad.
-Ejemplos del factor “gobernabilidad”: personal que no siendo de dirección, cuenta con liderazgo frente al resto del personal y pueda generar algún riesgo a la imparcialidad, ejemplo una Junta Directiva ejerce alguna presión al personal del OI.
-Ejemplos del factor “dirección”: el Director Comercial presiona sobre el resultado de las inspecciones.
-Ejemplos del factor “personal”: relaciones entre el personal del OI y personas internas (relaciones de jerarquía, otras áreas de la organización con clientes compartidos, entre otros) y externas (amistades; parentescos; vínculos laborales pasados; presiones comerciales, financieras, entre otros).
-Ejemplos del factor “recursos compartidos”:
+Ejemplos del factor "gobernabilidad": personal que no siendo de dirección, cuenta con liderazgo frente al resto del personal y pueda generar algún riesgo a la imparcialidad, ejemplo una Junta Directiva ejerce alguna presión al personal del OI.
+Ejemplos del factor "dirección": el Director Comercial presiona sobre el resultado de las inspecciones.
+Ejemplos del factor "personal": relaciones entre el personal del OI y personas internas (relaciones de jerarquía, otras áreas de la organización con clientes compartidos, entre otros) y externas (amistades; parentescos; vínculos laborales pasados; presiones comerciales, financieras, entre otros).
+Ejemplos del factor "recursos compartidos":
 a. El OI es parte de una organización mayor en la cual se comparte el departamento de RRHH/Adquisiciones/Finanzas.
 b. El OI es parte de una organización mayor en la cual se ofrecen servicios de diseño y consultoría, donde el manejo de los fondos no es tan claro.
-Ejemplos del factor “finanzas”: flujo de caja deficiente, por lo que daría una decisión positiva de la inspección, aún sin cumplir con tal de recibir el pago.
-Ejemplos del factor “contratos”: contratos de personal, contratos con clientes, contratos con subcontratistas, contratos con proveedores, contratos de arrendamientos, entre otros.
-Ejemplos del factor “marketing”: publicidad engañosa.
-Ejemplos del factor “pago de una comisión por venta u otro incentivo para la remisión de nuevos clientes”: comisión por captación de clientes.
+Ejemplos del factor "finanzas": flujo de caja deficiente, por lo que daría una decisión positiva de la inspección, aún sin cumplir con tal de recibir el pago.
+Ejemplos del factor "contratos": contratos de personal, contratos con clientes, contratos con subcontratistas, contratos con proveedores, contratos de arrendamientos, entre otros.
+Ejemplos del factor "marketing": publicidad engañosa.
+Ejemplos del factor "pago de una comisión por venta u otro incentivo para la remisión de nuevos clientes": comisión por captación de clientes.
 9 IDENTIFICACIÓN DE CAMBIOS
-Motivo: Modificación de documento
-Refiérase a la solicitud de elaboración o modificación del documento número 2021-082
-Los cambios son los que están subrayados en el documento.
+[imagen]
