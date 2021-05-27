@@ -1,0 +1,1 @@
+Artículo 28.-Una vez aprobados los permisos la actividad de Control Constructivo comunicará al Catastro Multifinalitario de la Municipal las ubicaciones aprobadas para que sean incluidas las ubicaciones en Catastro Multifinalitario.

@@ -1,0 +1,1 @@
+Artículo 27°. Una vez presentada completa la solicitud de licencia ante la Municipalidad con todos los requisitos indicados en este cuerpo reglamentario, la Administración contará con treinta días naturales para resolver la gestión. El interesado podrá impugnar esta resolución, mediante los recursos previstos en el Código Municipal.
