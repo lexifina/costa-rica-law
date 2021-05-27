@@ -1,0 +1,1 @@
+Artículo 16.-Formularios: Para facilitar el cumplimiento de los requisitos y el procedimiento para la postulación, selección y evaluación de proyectos, RACE confeccionará y pondrá a disposición de los ciudadanos, los formularios, guías y manuales que considere pertinentes.

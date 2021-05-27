@@ -1,0 +1,1 @@
+Artículo 29.-Incumplimiento: Si durante la ejecución del proyecto, el becario incumpliera alguna de las disposiciones del presente reglamento o del respectivo contrato, el Teatro Popular Melico Salazar podrá resolverlo sin responsabilidad de su parte, y el becario estará obligado a reintegrar el monto percibido por la Beca RACE otorgada.

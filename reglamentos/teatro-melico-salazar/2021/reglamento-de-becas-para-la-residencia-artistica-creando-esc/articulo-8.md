@@ -1,0 +1,12 @@
+Artículo 8º-Mecanismo de selección de proyectos: Los proyectos beneficiarios de RACE serán seleccionados mediante un proceso de convocatoria pública que se regirá por principios de libre participación, igualdad de oportunidades, justicia y transparencia.
+El concurso y la entrega de recursos estarán exentos de los procedimientos de contratación administrativa, de conformidad con lo que establece el artículo 2 a) de la Ley de Contratación Administrativa, N° 7494.
+Sobre el mecanismo de selección de proyectos se establece que:
+1. El TND conformará una comisión supervisora que revisará la admisibilidad de los proyectos, presidida por la Dirección Artística de la institución.
+2. Para la selección de las propuestas, desde la dirección del TND se conformará una Comisión Seleccionadora que evaluará y definirá los tres proyectos ganadores.
+3. La Comisión Seleccionadora realizará la evaluación de manera objetiva, ordenada y motivada. La Comisión Seleccionadora recibirá cada proyecto para su análisis y los formularios de evaluación con los mecanismos y puntajes que ahí se establezcan. Será responsabilidad del TND la elaboración de un expediente electrónico de cada propuesta en la que conste toda la documentación correspondiente y copia del acta de cierre del periodo de recepción de proyectos.
+4. La propuesta de concesión de las becas se realizará mediante la comparación de las solicitudes presentadas, a fin de establecer una relación entre las mismas, de acuerdo con los criterios de selección señalados en las bases de la convocatoria, adjudicando las becas a aquéllas que hayan obtenido mayor valoración, sin sobrepasar, en ningún caso, el importe de la dotación presupuestaria fijada en las bases de la convocatoria correspondiente.
+5. En caso de ser requerido, la Comisión Seleccionadora podrá solicitar entrevista con cualquier postulante, sin que esto signifique que con ello se le está favoreciendo o no.
+6. Cada participante podrá aportar todo el material que crea necesario para enriquecer su defensa.
+7. El TND se reserva el derecho de solicitar cualquier material que considere pertinente para la toma de decisiones, así como a hacer sugerencias de modificaciones en función de la viabilidad de ejecución del proyecto en los tiempos y espacios definidos.
+8. De proceder, por falta de propuestas o insatisfacción de la Comisión Seleccionadora con los proyectos, el concurso se declarará desierto.
+9. La resolución de la Comisión Seleccionadora es inapelable.

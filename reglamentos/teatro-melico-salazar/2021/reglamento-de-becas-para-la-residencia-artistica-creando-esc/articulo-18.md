@@ -1,0 +1,2 @@
+Artículo 18.-Comisiones: RACE contará con una Comisión Supervisora para los procesos de revisión de la admisibilidad de los proyectos, y una Comisión Seleccionadora para los procesos de evaluación y selección de las propuestas.
+Los miembros elegidos en dichas comisiones se renovarán anualmente con el fin de garantizar la ética y transparencia en los procesos, así como facilitar oportunidades a la más amplia gama de propuestas.

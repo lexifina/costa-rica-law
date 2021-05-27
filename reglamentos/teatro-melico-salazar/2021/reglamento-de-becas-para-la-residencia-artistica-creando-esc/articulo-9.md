@@ -1,0 +1,1 @@
+Artículo 9º-Sobre la comisión Supervisora: La Dirección Artística del TND conformará una Comisión Supervisora que revisará la admisibilidad de los proyectos. Esta comisión estará conformada por dos formadores artísticos del TND nombrados por la Dirección Artística y será presidida por esta misma instancia.

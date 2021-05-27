@@ -1,0 +1,1 @@
+Artículo 20.-Contenido de la convocatoria: La convocatoria contendrá al menos la siguiente información: fecha de apertura y de cierre del periodo de recepción de solicitudes, plazos y formas de participación, desarrollo de las residencias y medios para que las personas interesadas puedan realizar las consultas que consideren oportunas para su participación en la convocatoria.

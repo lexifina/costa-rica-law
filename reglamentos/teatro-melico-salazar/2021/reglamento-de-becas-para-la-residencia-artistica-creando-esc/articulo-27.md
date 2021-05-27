@@ -1,0 +1,1 @@
+Artículo 27.-Divulgación de los seleccionados: El TND hará la notificación, vía correo electrónico, a cada uno de los proyectos que hayan sido seleccionados por los medios indicados en el formulario de inscripción una vez publicados los resultados de la convocatoria en las redes sociales del TND.
