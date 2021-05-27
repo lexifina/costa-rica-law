@@ -1,0 +1,3 @@
+Artículo 28.-Si solo se inscribiera una papeleta, se prescinde de la elección, haciéndolo constar así el Tribunal Electoral ante la Asamblea General para que esta proceda conforme al artículo 39 del presente código.
+En caso, que no se presente ninguna papeleta, el Tribunal Electoral convocará inmediatamente después del último día hábil del mes de agosto, a nuevas elecciones, dando un plazo de quince días naturales a partir de la fecha de la publicación de la convocatoria, para proceder a la inscripción de papeletas.
+Cuando la inscripción de la papeleta sea denegada por el Tribunal Electoral, el partido deberá subsanar los defectos señalados por el Tribunal en un plazo no mayor a 48 horas a partir de su notificación.

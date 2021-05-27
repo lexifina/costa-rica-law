@@ -1,0 +1,1 @@
+Artículo 33.-Si durante la votación se ausentara un miembro de la mesa, será sustituido por un suplente. Si fuese el Presidente y no tuviese suplente, el Tribunal Electoral nombrará un coordinador Ad-Hoc, entre los miembros de la Junta Receptora. Estas incidencias se deben anotar al margen del Padrón-Registro.

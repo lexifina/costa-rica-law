@@ -1,0 +1,1 @@
+Artículo 34.-Antes de iniciarse la votación, los miembros de la Junta que estén presentes procederán a abrir y revisar el material electoral a fin de consignar en el Documento Electoral el número de papeletas recibidas y llenar el acta.
