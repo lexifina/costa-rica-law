@@ -14,3 +14,4 @@ Manual de políticas y procedimientos (Compra de bienes y/o servicios)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-06 | la propia norma |
+| 2 | 2021-05-27 | Acuerdo 50 (2021-05-27) |

@@ -20,7 +20,8 @@ b) Compras en las que medie un contrato donde se estipulen las condiciones de pa
 c) Proveedores en el exterior que exijan el pago para la entrega del producto.
 d) Casos especiales, previa valoración de la Unidad de Compras y que realmente requiera esta condición de pago debidamente justificado.
 4.1 Las compras mayores al monto establecido por por Caja Chica y hasta un máximo de un salario base del auxiliar del Poder Judicial vigente, serán autorizadas mediante el formulario Orden de Compra en el sistema SAP B1 (F-CMP-03) por el Encargado de la Unidad de Compras, previo visto bueno del Gestor(a) de Compras. Para esta modalidad de compra se requiere una cotización.
-4.2 Las compras superiores a 4 salarios base del auxiliar del Poder Judicial vigente requieren la elaboración de contrato, así como aquellas en las que por su naturaleza conllevan una amplia descripción y requerimientos.
+4.2 Requieren elaboración de contrato aquellas compras que, por su naturaleza, la descripción de la misma o requerimientos, no pueden detallarse dentro de la orden de compra o las que se requieran para un evento específico, donde, sino se cumple la fecha de entrega, podría afectar al Colegio.
+(Así reformado el punto anterior mediante sesión N° 050-2021 del 27 de mayo de 2021)
 4.3 Las compras mayores de uno y hasta 5 salarios base del auxiliar del Poder Judicial vigente serán autorizadas mediante el formulario F-CMP-03 Orden de Compra en el sistema SAP B1 por la Subdirección Ejecutiva, previo visto bueno del Encargado de la Unidad de Compras. De acuerdo al monto se deberá adjuntar:
 . Una cotización: para las compras que no excedan dos salarios base del auxiliar del Poder Judicial vigente.
 . Dos cotizaciones comparables entre sí: para compras que excedan de dos salarios base y hasta un máximo de cinco salarios base del auxiliar del Poder Judicial vigente.
