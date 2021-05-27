@@ -1,0 +1,1 @@
+Artículo 21.-Si se requiere que el teletrabajador se incorpore a la modalidad presencial de trabajo, el superior jerárquico correspondiente debe presentar ante la Comisión Municipal de Teletrabajo los motivos que justifiquen la solicitud, la cual será remitida a la Alcaldía para tomar la resolución final.
