@@ -1,0 +1,2 @@
+ARTÍCULO 4- Colaboración interinstitucional
+Las entidades del sector público y las privadas involucradas en la investigación e innovación podrán colaborar con la Promotora para el cumplimiento de los fines establecidos en la presente ley. La Promotora, por su parte, deberá coordinar actividades y colaborar con cualquier otro ente público o privado nacional e internacional, empresas nacionales y multinacionales, cuyos esfuerzos aunados tiendan a la consecución de sus fines.

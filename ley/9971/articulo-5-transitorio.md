@@ -1,0 +1,4 @@
+TRANSITORIO V- Obligaciones y patrimonio
+Una vez conformada la Junta Directiva, la Promotora asumirá todas las obligaciones y el patrimonio con que cuente el Conicit. Durante dicho plazo, la Junta Directiva deberá implementar un proceso de transición de funciones del Conicit a la Promotora. Para facilitar el proceso de transición, durante dicho plazo se habilita lo siguiente:
+a) Los dineros del Fondo de Incentivos del Conicit, así como del Fondo Propyme y cualquier otro recurso serán asignados al presupuesto de la Promotora por Junta Directiva, salvaguardando el interés nacional y todos los aspectos legales y contractuales vigentes.
+b) Previo análisis de la capacidad de la Promotora, la Junta Directiva podrá aprobar, antes del cumplimiento del plazo de transición, la absorción de obligaciones dentro de las competencias de la Promotora que se encuentren en ejecución o por ejecutar en el Conicit.

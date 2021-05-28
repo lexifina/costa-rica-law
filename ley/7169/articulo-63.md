@@ -1,5 +1,2 @@
-ARTICULO 63.- Anualmente, el Consejo Nacional para la Investigación
-Científica y Tecnológica (CONICIT) podrá otorgar un reconocimiento
-especial para los promotores y organizadores de la mejor actividad o
-iniciativa de divulgación científica y tecnológica, conforme se disponga
-en el reglamento.
+Artículo 63- Cada dos años, el Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones podrá otorgar un reconocimiento especial para los promotores y organizadores de la mejor actividad o iniciativa de divulgación científica y tecnológica, conforme se disponga en el reglamento.
+(Así reformado por el artículo 23 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, ley N° 9971 del 11 de mayo del 2021)

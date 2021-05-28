@@ -1,1 +1,2 @@
-Artículo 19.—Los plazos de ejecución de los proyectos serán, como máximo, de veinticuatro meses. Excepcionalmente, la Comisión podrá autorizar plazos mayores que estos, siempre que se justifique rigurosamente de acuerdo con las necesidades del proyecto.
+Artículo 19- Los plazos de ejecución de los proyectos serán, como máximo, de veinticuatro meses. Excepcionalmente, la Promotora podrá autorizar plazos mayores que estos, siempre que se justifique rigurosamente de acuerdo con las necesidades del proyecto.
+(Así reformado por el artículo 24 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, ley N° 9971 del 11 de mayo del 2021)

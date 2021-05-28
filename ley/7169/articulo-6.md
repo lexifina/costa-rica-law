@@ -1,4 +1,2 @@
-ARTICULO 6.- De acuerdo con el Programa Nacional de Ciencia y
-Tecnología vigente, el Estado fomentará los estudios, las aplicaciones,
-el desarrollo y la creación de empresas en las áreas de nuevas
-tecnologías necesarias para el desarrollo del país.
+Artículo 6- De acuerdo con el Plan Nacional de Ciencia, Tecnología e Innovación vigente, el Estado fomentará los estudios, las aplicaciones, el desarrollo y la creación de empresas en las áreas de nuevas tecnologías necesarias para el desarrollo del país.
+(Así reformado por el artículo 23 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, N° 9971 del 11 de mayo del 2021)

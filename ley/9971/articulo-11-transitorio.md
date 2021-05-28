@@ -1,0 +1,2 @@
+TRANSITORIO XI- Reforma a la denominación del Consejo Nacional para Investigaciones Científicas y Tecnológicas (Conicit)
+A partir de la entrada en vigencia de la presente ley, toda disposición legal, reglamentaria o administrativa que haga referencia al Consejo Nacional para Investigaciones Científicas y Tecnológicas (Conicit) deberá leerse como "Promotora Costarricense de Innovación e Investigación".

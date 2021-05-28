@@ -1,6 +1,2 @@
-ARTICULO 11.- El rector del Sistema Nacional de Ciencia y Tecnología
-será el Ministro de Ciencia y Tecnología, quien mantendrá la necesaria
-comunicación con cada uno de los ministros rectores de los distintos
-sectores de la Administración Pública, a fin de coordinar las acciones de
-desarrollo científico y tecnológico con las políticas sectoriales y con
-sus resultados.
+Artículo 11- El Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones (Micitt) será el rector del Sistema Nacional de Ciencia, Tecnología e Innovación, que mantendrá la debida articulación con cada uno de los actores de este sistema, a fin de coordinar las acciones en los campos de desarrollo científico, tecnológico y de la innovación, de acuerdo con lo establecido en la presente ley y el reglamento. El Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones establecerá, vía reglamento, la estructura del Sistema, a fin de garantizar el cumplimiento de los objetivos establecidos en esta ley.
+(Así reformado por el artículo 23 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, N° 9971 del 11 de mayo del 2021)

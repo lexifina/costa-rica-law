@@ -1,6 +1,1 @@
-ARTICULO 31.- El objetivo de la Comisión de Incentivos es clasificar
-y seleccionar a aquellas personas físicas o jurídicas merecedoras de los
-incentivos que establece esta ley, con excepción de los incentivos
-otorgados por el régimen de Promoción del Investigador, que los
-recomendará el Consejo Nacional para la Investigación Científica y
-Tecnológica (CONICIT).
+ARTICULO 31.- (Derogado por el artículo 22 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, N° 9971 del 11 de mayo del 2021)

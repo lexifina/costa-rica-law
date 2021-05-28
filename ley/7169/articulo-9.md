@@ -1,7 +1,2 @@
-ARTICULO 9.- De conformidad con la Ley de Planificación Nacional, el
-Sistema Nacional de Ciencia y Tecnología tendrá como objetivo general
-coordinar y ejecutar todas aquellas disposiciones que sean establecidas
-por los órganos políticos superiores, lo mismo que integrar las gestiones
-de los particulares para la coordinación del desarrollo científico y
-tecnológico, así como para la aplicación del conocimiento de la ciencia y
-la tecnología, para el bienestar social y económico del país.
+Artículo 9- De conformidad con la Ley 5525, Ley de Planificación Nacional, de 2 de mayo de 1974, el Sistema Nacional de Ciencia, Tecnología e Innovación tendrá como objetivo general coordinar y ejecutar todas aquellas disposiciones que sean establecidas por el Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones (Micitt), lo mismo que integrar las gestiones de los particulares para la coordinación del desarrollo científico y tecnológico, así como para la aplicación del conocimiento de la ciencia y la tecnología, para el bienestar social y económico del país.
+(Así reformado por el artículo 23 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, ley N° 9971 del 11 de mayo del 2021)
