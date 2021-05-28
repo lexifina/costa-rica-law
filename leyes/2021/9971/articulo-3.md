@@ -1,0 +1,2 @@
+ARTÍCULO 3- Ámbito de aplicación
+El ámbito de aplicación de la presente ley comprende el Sistema Nacional de Ciencia, Tecnología e Innovación, conforme a las regulaciones y los lineamientos que establezca el Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones, las disposiciones del reglamento de esta ley y lo establecido en la Ley 7169, Ley de Promoción del Desarrollo Científico y Tecnológico, de 26 de junio de 1990.

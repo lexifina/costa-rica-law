@@ -1,0 +1,2 @@
+ARTÍCULO 15- Remoción
+El gerente general podrá ser removido por mayoría calificada de dos tercios del total de los miembros de su Junta Directiva, cuando se demuestre que incumple con las obligaciones propias de su cargo, no cumple con los resultados esperados, por pérdida de confianza o por la condena por la comisión de algún delito, los cuales deben estar debidamente comprobados siguiendo el debido proceso y el derecho de defensa.

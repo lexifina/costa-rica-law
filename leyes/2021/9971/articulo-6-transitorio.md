@@ -1,0 +1,4 @@
+TRANSITORIO VI- Labores iniciales de la Junta Directiva
+Una vez conformada la Junta Directiva, la Promotora deberá realizar las siguientes funciones en un plazo no mayor a seis meses:
+a) Contratar al gerente general y personal temporal para permitir la ejecución de labores operativas relacionadas con la transición de funciones del Conicit a la Promotora y la implementación de sus acuerdos y otras acciones relacionadas con esta. Dichas contrataciones se realizarán por servicios profesionales y por un plazo que nunca podrá superar la totalidad del plazo de transición definido en el transitorio IV.
+b) Aprobar la nueva estructura organizacional, el Reglamento Autónomo de Servicio, el Manual de Descripción y Estructuración de Puestos y la estructura de remuneración de los empleados de la Promotora, hasta que se cumpla la obligación definida en el presente inciso.
