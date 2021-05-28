@@ -25,3 +25,4 @@ Funcionamiento de las instituciones estatales durante la declaratoria de emergen
 | 10 | 2021-02-25 | Directriz 108 (2021-02-25) |
 | 11 | 2021-04-29 | Directriz 112 (2021-04-29) |
 | 12 | 2021-05-18 | Directriz 114 (2021-05-18) |
+| 13 | 2021-05-28 | Directriz 115 (2021-05-28) |
