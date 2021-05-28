@@ -1,5 +1,2 @@
-ARTICULO 90.- La formación de parques tecnológicos deberá
-encuadrarse dentro de los objetivos del Programa Nacional de Ciencia y
-Tecnología, de manera que permita el aprovechamiento de nuevos
-conocimientos y la disponibilidad del recurso humano capacitado para
-enfrentar los desafíos del desarrollo futuro.
+Artículo 90- La formación de parques tecnológicos deberá encuadrarse dentro de los objetivos del Plan Nacional de Ciencia, Tecnología e Innovación, de manera que permita el aprovechamiento de nuevos conocimientos y la disponibilidad del recurso humano capacitado para enfrentar los desafíos del desarrollo futuro.
+(Así reformado por el artículo 23 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, ley N° 9971 del 11 de mayo del 2021)

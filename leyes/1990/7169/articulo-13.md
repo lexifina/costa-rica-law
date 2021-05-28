@@ -1,7 +1,1 @@
-ARTICULO 13.- Para que una institución de educación superior privada
-pertenezca al Sistema Nacional de Ciencia y Tecnología y goce de los
-beneficios que esta ley concede, deberá contar por lo menos con un centro
-de investigación calificado como tal, según el reglamento de esta ley, a
-juicio del Consejo Nacional para la Investigación Científica y
-Tecnológica (CONICIT). Además, deberá dedicar una parte de su presupuesto
-a investigación y desarrollo.
+ARTICULO 13.- (Derogado por el artículo 22 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, N° 9971 del 11 de mayo del 2021)

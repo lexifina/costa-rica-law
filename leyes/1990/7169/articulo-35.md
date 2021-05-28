@@ -1,4 +1,1 @@
-ARTICULO 35.- Los procedimientos administrativos de esta Comisión y
-los recursos contra sus actos, serán regulados por las disposiciones de
-la Ley General de Administración Pública, en todo lo que no contravenga
-la presente ley.
+ARTICULO 35.- (Derogado por el artículo 22 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, N° 9971 del 11 de mayo del 2021)

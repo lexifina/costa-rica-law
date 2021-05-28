@@ -1,4 +1,1 @@
-ARTICULO 45.- El Consejo Nacional para la Investigación Científica y
-Tecnológica (CONICIT) deberá calificar, dar seguimiento y evaluar las
-actividades de aquellos investigadores que ingresen en este régimen de
-promoción.
+ARTICULO 45.- (Derogado por el artículo 22 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, N° 9971 del 11 de mayo del 2021)

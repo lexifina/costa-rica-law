@@ -1,7 +1,1 @@
-ARTICULO 84.- A las empresas nacionales, aunque no reúnan todos los
-requisitos que por reglamento se fijarán para las empresas de base
-tecnológica, pero que presenten un programa de inversiones sostenido, de
-investigación y desarrollo tecnológico y otras actividades conexas,
-podrán otorgárseles algunos o todos los incentivos asignados a las
-empresas de base tecnológica, luego de un examen riguroso por parte de la
-Comisión de Incentivos.
+ARTICULO 84.- (Derogado por el artículo 22 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación N° 9971 del 11 de mayo del 2021)

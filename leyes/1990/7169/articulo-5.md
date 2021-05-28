@@ -1,4 +1,2 @@
-ARTICULO 5.- Todas las entidades relacionadas con la ciencia y la
-tecnología, así como los órganos públicos estatales, podrán colaborar en
-el cumplimiento de esta ley, de conformidad con su naturaleza y
-competencia.
+Artículo 5- Todas las entidades relacionadas con la ciencia, la tecnología y la innovación, nacionales y extranjeras, así como los órganos públicos estatales, podrán colaborar en el cumplimiento de esta ley, de conformidad con su naturaleza y competencia.
+(Así reformado por el artículo 23 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, N° 9971 del 11 de mayo del 2021)

@@ -1,4 +1,2 @@
-ARTICULO 19.- Para su elaboración, el Programa se someterá a los
-diversos niveles de coordinación de los sectores integrantes del Sistema
-Nacional de Ciencia y Tecnología, con el propósito de obtener la
-armonización de los intereses e iniciativas allí representados.
+Artículo 19- Para su elaboración, el Plan Nacional de Ciencia, Tecnología e Innovación se someterá a los diversos niveles de coordinación de los sectores integrantes del Sistema Nacional de Ciencia, Tecnología e Innovación, con el propósito de obtener la armonización de los intereses e iniciativas allí representados.
+(Así reformado por el artículo 23 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, N° 9971 del 11 de mayo del 2021)
