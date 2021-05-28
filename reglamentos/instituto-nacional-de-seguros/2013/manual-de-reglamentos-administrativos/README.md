@@ -22,3 +22,4 @@ Manual de Reglamentos Administrativos
 | 7 | 2017-05-29 | Reglamento 0 (2017-05-29) |
 | 8 | 2017-09-18 | Reglamento 9415 (2017-09-18) |
 | 9 | 2021-05-18 | Reglamento 0 (2021-05-18) |
+| 10 | 2021-05-28 | Reglamento 0 (2021-05-28) |
