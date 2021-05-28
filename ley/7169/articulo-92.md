@@ -1,5 +1,1 @@
-ARTICULO 92.- Anualmente se establecerán, por parte del Ministerio
-de Ciencia y Tecnología (MICIT), los programas de apoyo a las nuevas
-tecnologías, en que se establezcan vínculos entre el sector privado y los
-centros universitarios de investigación que faciliten la incorporación de
-esas tecnologías en la producción nacional.
+ARTICULO 92.- (Derogado por el artículo 22 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, N° 9971 del 11 de mayo del 2021)

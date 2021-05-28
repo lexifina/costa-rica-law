@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I- Recursos del Consejo Nacional de Investigación (Conicit)
+La Promotora conservará el patrimonio, las obligaciones y los recursos humanos del actual Consejo Nacional de Investigación (Conicit). En complemento a la conservación del recurso humano, la Promotora deberá garantizar la vigencia de la Asociación Solidarista de Empleados del Conicit, que podrá modificar su razón social en Asamblea General Extraordianaria, para adaptarla a la nueva realidad de la institución empleadora, de modo que sea reconocida para todos los efectos legales y pertinentes con dicha transformación, una vez aprobados los reglamentos y manuales de la presente ley. El presupuesto previamente asignado al Conicit será destinado a la Promotora para el cumplimiento de sus funciones.

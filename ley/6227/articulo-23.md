@@ -11,7 +11,7 @@ f) Agricultura y Ganadería;
 g) Economía, Industria y Comercio;
 (Así reformado este inciso por el artículo 15 de la Ley Orgánica del Ministerio del Ambiente y Energía N° 7152 de 5 de junio de 1990)
 h) Ambiente y Energía.
-(Así reformado el inciso anterior por el artículo 6° de la Ley “Traslado del Sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología” N° 9046 del 25 de junio de 2012. El artículo 11 de la ley afectante modifica además la denominación del Ministerio en la forma vista)
+(Así reformado el inciso anterior por el artículo 6° de la Ley "Traslado del Sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología" N° 9046 del 25 de junio de 2012. El artículo 11 de la ley afectante modifica además la denominación del Ministerio en la forma vista)
 i) Obras Públicas y Transportes;
 j) Educación Pública;
 k) Salud;
@@ -20,6 +20,7 @@ m) Cultura, Juventud y Deportes (*);
 (*) (Nota de Sinalevi: Según el dictamen C-023 de 31 de enero 2007, de la Procuraduría General de la República, este inciso se encuentra derogado parcialmente en forma tácita por la Ley Crea Instituto del Deporte y Recreación (ICODER) y su Régimen Jurídico, No. 7800 de 30 de abril de 1998, en lo que respecta a "Deportes", en este caso debe leerse "Cultura y Juventud").
 n) Planificación Nacional y Política Económica;
 (El párrafo 1 de este artículo, referente a la enumeración de las carteras ministeriales, fue así reformado por el artículo 11 de la Ley de Reestructuración del Poder Ejecutivo, Nº 6812 de 14 de setiembre de 1982)
-ñ) Ciencia y Tecnología y Telecomunicaciones.
-(Así adicionado el inciso ñ por el artículo 104 de la Ley de Promoción del Desarrollo Científico y Tecnológico y Creación del MICIT (Ministerio de Ciencia y Tecnología), Nº 7169 del 26 de junio de 1990. Posteriormente, este mismo inciso fue reformado por el artículo 6° de la Ley de Traslado del Sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012. El artículo 11 de la ley afectante modifica además la denominación del Ministerio en la forma vista)
+ñ) Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones
+(Así adicionado el inciso ñ por el artículo 104 de la Ley de Promoción del Desarrollo Científico y Tecnológico y Creación del MICIT (Ministerio de Ciencia y Tecnología), Nº 7169 del 26 de junio de 1990.)
+(Así reformado el inciso ñ) anterior por el artículo 25 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, ley N° 9971 del 11 de mayo del 2021)
 2. (El inciso 2, que trataba de la creación de ministerios sin cartera, fue derogado tácitamente por el artículo 11 de la Ley de Reestructuración del Poder Ejecutivo No.6812 de 14 de setiembre de 1982. En este sentido, véase el dictamen C-212-92 de 22 de diciembre de 1992)

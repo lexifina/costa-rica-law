@@ -1,4 +1,2 @@
-ARTICULO 18.- El Programa será vinculante para el sector público e
-indicativo para el sector privado y para las instituciones de educación
-superior universitaria estatal, con respeto a la autonomía institucional
-que establece la Constitución Política.
+Artículo 18- El Plan Nacional de Ciencia, Tecnología e Innovación será vinculante para el sector público e indicativo para el sector privado y para las instituciones de educación, con respeto a la autonomía institucional que establece la Constitución Política, en el caso de las universidades públicas.
+(Así reformado por el artículo 23 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, ley N° 9971 del 11 de mayo del 2021)

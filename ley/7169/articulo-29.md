@@ -1,3 +1,2 @@
-ARTICULO 29.- La inscripción de los contratos de transferencia de
-tecnología será obligatoria para las empresas públicas, y voluntaria para
-las empresas privadas.
+Artículo 29- Se crea el régimen de promoción del investigador nacional o extranjero, denominado también régimen de promoción, que consiste en un escalafón de méritos y desempeño para impulsar la formación y la integración en el país de un equipo altamente calificado de investigadores, dedicados a la realización de actividades y proyectos sobre ciencia, tecnología e innovación. El funcionamiento del registro, los requisitos de ingreso permanencia, el escalafón y los beneficios serán normados vía reglamento. Los beneficios podrán ser financiados por el fondo de incentivos a través de la Promotora.
+(Así reformado por el artículo 23 de la Ley de Creación de la Promotora Costarricense de Innovación e Investigación, ley N° 9971 del 11 de mayo del 2021)

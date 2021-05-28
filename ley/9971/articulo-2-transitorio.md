@@ -1,0 +1,2 @@
+TRANSITORIO II- Reorganización del recurso humano y de la estructura organizacional Se autoriza a la Promotora para que lleve a cabo la reorganización de personal y de las oficinas que lo requieran, con el fin de garantizar un adecuado servicio al público y cumplimiento de sus fines; en el proceso de reorganización se respetarán los derechos laborales adquiridos.
+Como parte de la reorganización, la Promotora ofrecerá a los funcionarios un plan de capacitación en las funciones y competencias para cumplir con los nuevos perfiles de puestos.
