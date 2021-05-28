@@ -1,0 +1,2 @@
+TRANSITORIO V- Treinta días después del nombramiento de la persona que ocupe la Dirección Ejecutiva, esta iniciará las gestiones para localizar el terreno donde se instalará el Centro Espacial de Guanacaste en Liberia, Guanacaste.
+El Consejo Directivo de la Agencia diligenciará, en un plazo no mayor a un año a partir del nombramiento de la persona que ejerza la Dirección Ejecutiva, la adquisición o donación del terreno donde se instalará el Centro Espacial de Guanacaste.
