@@ -1,0 +1,1 @@
+Artículo 34°.-A las sesiones de Junta, previa invitación por esta o porque se haya concedido audiencia, podrán asistir los miembros del Colegio quienes tendrán voz, pero no voto, en los asuntos concernientes al motivo de su visita.

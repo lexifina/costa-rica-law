@@ -1,0 +1,4 @@
+Artículo 27°.-Sesiones extraordinarias. El Comité podrá sesionar extraordinariamente cuando:
+a. Sea convocada al efecto, por escrito por el presidente, secretario y/o Fiscal, con una antelación mínima de veinticuatro (24) horas, debiendo adjuntarse copia del orden del día. Se prescindirá de la convocatoria por escrito cuando dicha sesión haya sido convocada en una sesión ordinaria. Queda a salvo la comunicación por escrito a los miembros ausentes.
+b. Estando reunida la totalidad de los miembros, acuerden por unanimidad efectuar sesión extraordinaria y conocer determinados asuntos.
+c. En casos de extrema urgencia, se podrá convocar a todos los miembros de Comité por vía telefónica o por correo electrónico, de forma inmediata, siempre y cuando comparezcan al menos cuatro (4) miembros o haya unanimidad de los presentes para celebrar la sesión.

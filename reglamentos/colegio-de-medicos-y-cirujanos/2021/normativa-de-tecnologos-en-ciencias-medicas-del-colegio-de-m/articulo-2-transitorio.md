@@ -1,0 +1,2 @@
+Transitorio II: Aquellas personas que iniciaron estudios previos a la vigencia de esta Normativa podrán solicitar su autorización como Tecnólogos en Ciencias Médicas conforme a los requisitos establecidos en la normativa anterior, en todo lo demás regirá la presente normativa.
+Este transitorio tendrá una vigencia de dos años, a partir de la fecha de aprobación de la presente Normativa y su respectiva publicación en el diario oficial La Gaceta; automáticamente una vez cumplido este plazo, quedará sin vigencia su aplicación.

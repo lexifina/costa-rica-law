@@ -1,0 +1,1 @@
+Artículo 33°.-Todo miembro de la Junta tiene derecho a que se consigne su voto razonado en el acta siempre que el razonamiento se entregue por escrito al Secretario dentro de las cuarenta y ocho horas siguientes al día en que se celebró la sesión.

@@ -1,0 +1,1 @@
+Artículo 36°.-En cada discusión el presidente concederá la palabra a los miembros de la Junta de Tecnólogos y el Fiscal, hasta por tres veces cada uno y en el orden en que la pidan, salvo al proponente del punto en discusión, a quien se le será concedida cuantas veces la solicite para contestar.

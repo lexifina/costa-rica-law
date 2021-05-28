@@ -1,0 +1,1 @@
+Artículo 28°.-Las sesiones de la Junta de Tecnólogos deberán iniciarse dentro de los treinta minutos siguientes a la hora señalada al efecto. Pasados los treinta minutos indicados, si no hubiere quórum, se dejará constando en el libro de actas el nombre de los miembros presentes.

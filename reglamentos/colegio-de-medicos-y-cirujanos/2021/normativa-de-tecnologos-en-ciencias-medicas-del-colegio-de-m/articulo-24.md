@@ -1,0 +1,10 @@
+Artículo 24°.-De las funciones del Fiscal:
+a. Velar por la observancia y cumplimiento de la Ley Orgánica y su reglamento y cualquier otra normativa publicada por el Colegio de Médicos y Cirujanos.
+b. Conocer y aplicar los procedimientos de fiscalización y trámite de denuncias disciplinarias o judiciales relacionados con la presente normativa; así como el marco legal aplicable en el área de las Tecnologías en Ciencias Médicas, para lo cual deberá asesorarse con la Fiscalía General y Dirección Jurídica.
+c. Conocer e investigar conjuntamente con la Fiscalía General del Colegio de Médicos y Cirujanos, las denuncias interpuestas en contra de los Tecnólogos o cualquier otra persona que ejerza ilegalmente las tecnologías autorizadas.
+d. Denunciar ante la Fiscalía General del Colegio de Médicos y Cirujanos a los Tecnólogos en Ciencias Médicas a los Tecnólogos que se aparten de la observancia de las leyes, Reglamentos, Código de Ética y cualquier otra normativa relacionada con el ejercicio de las tecnologías y el ejercicio ilegal de la profesión. Asimismo, deberá elevar el conocimiento del posible delito del ejercicio ilegal de la profesión realizado por cualquier otra persona, ante la Fiscalía del Colegio.
+e. Convocar a Asamblea General extraordinaria o sesión extraordinaria del Comité de Tecnólogos para informar cualquier tema de relevancia que considere pertinente.
+f. Presentar cada año en la Primera Asamblea General Ordinaria de Tecnólogos en Ciencias Médicas un informe anual de labores, el mismo deberá ser confeccionado en el mes de enero para ser de conocimiento de los miembros de la Junta en la última sesión Ordinaria o Extraordinaria de este mes. Debe entregar el informe ejecutivo al menos cinco días hábiles antes de la Asamblea correspondiente.
+g. Desarrollar herramientas de gestión para la correcta labor de su función.
+h. Orientar y darle seguimiento a los Tecnólogos que así lo soliciten o que hayan interpuesto una denuncia.
+i. Participar en conjunto con la Fiscalía General del Colegio de Médicos y Cirujanos en la fiscalización activa y preventiva de los Tecnólogos en Ciencias Médicas.

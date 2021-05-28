@@ -1,0 +1,10 @@
+Artículo 11°.-Requisitos para incluir un sinónimo de una disciplina de las Ciencias Médicas:
+Para incluir un sinónimo de una disciplina autorizada y reconocida por el Colegio de Médicos en la lista oficial, el interesado presentará obligatoriamente todos los siguientes requisitos ante la Plataforma de Servicios:
+a. Solicitud por escrito indicando el nombre del sinónimo que solicita se incluya en la lista oficial reconocida por el Colegio de Médicos y Cirujanos.
+b. Razones por las cuales se solicita la autorización del nuevo sinónimo.
+c. Fundamentos que demuestren la utilización del nuevo sinónimo a nivel nacional o internacional, por las diferentes entidades pertinentes relacionadas con la autorización del ejercicio profesional. Se debe aportar toda la documentación que sustente la solicitud.
+d. Plan o programa de estudios de la carrera en la que se sustenta el sinónimo propuesto.
+e. Certificación de estudios o equivalente, donde se especifique duración del plan o programa de estudios, carga académica (por horas o créditos). Para las instituciones formadoras extranjeras que indiquen la carga académica en créditos deben certificar la equivalencia de creditaje (es decir el valor del crédito expresado en horas de la actividad académica realizada por el estudiante).
+f. Título y grado académico que se otorga al culminar el plan o programa de estudio.
+g. Todos los documentos aportados en idioma distinto al español sin excepción, deberá venir con la traducción al español respectiva, hecha por un traductor oficial autorizado por el Ministerio de Relaciones Exteriores y Culto de la República de Costa Rica.
+h. Tratándose de la inclusión de una nueva disciplina en la lista oficial reconocida, el Colegio tendrá un plazo de seis meses a partir de la recepción de documentos por la Dirección Académica, para aceptar o denegar la solicitud, el cual podrá prorrogarse hasta por un mes adicional, cuando se considere procedente pedir criterio a las asociaciones médicas, expertos u otros órganos consultivos.

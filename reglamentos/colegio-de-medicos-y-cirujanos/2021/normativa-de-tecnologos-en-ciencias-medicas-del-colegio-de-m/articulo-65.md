@@ -1,0 +1,1 @@
+Artículo 65°.-Norma supletoria. Todos aquellos aspectos que no estén cubiertos por esta normativa y que en algún momento requieran alguna acción, ésta se apegará a la normas generales y específicas del Colegio de Médicos en primera instancia, así como también serán de aplicación por orden jerárquico las leyes y reglamentos.

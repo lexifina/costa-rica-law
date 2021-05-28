@@ -1,0 +1,2 @@
+Artículo 12°.-De las gestiones para la autorización como Tecnólogo. La Dirección Académica será la encargada de la gestión administrativa o de criterio técnico, del estudio y aprobación de las solicitudes de autorización de todas las tecnologías, así como sus sinónimos.
+La Dirección Académica, podrá realizar las gestiones de las solicitudes, analizará los casos, solicitará criterios y verificará el cumplimiento de requisitos, y establecerá los Jurados Calificadores para los Exámenes de Suficiencia.
