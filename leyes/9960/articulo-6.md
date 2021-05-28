@@ -1,0 +1,2 @@
+ARTÍCULO 6- Presidencia del Consejo Directivo de la Agencia Espacial Costarricense (AEC) La Presidencia del Consejo Directivo le corresponderá al jerarca del Ministerio de Ciencia, Tecnología y Telecomunicaciones (Micitt).
+Quien ocupe la Presidencia del Consejo Directivo deberá velar por que los acuerdos del Consejo Director se alineen con la política pública, las directrices y disposiciones dictadas por el Micitt como ente rector del sector.

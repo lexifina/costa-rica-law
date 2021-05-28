@@ -1,0 +1,1 @@
+TRANSITORIO IV- La persona que ejerza la Dirección Ejecutiva, en un plazo no mayor de ciento ochenta días naturales a partir de su nombramiento, presentará al Consejo Directivo el Plan Estratégico de la Agencia y el Programa Nacional de Actividades Espaciales de la Agencia, para su respectiva aprobación.
