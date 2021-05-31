@@ -1,0 +1,1 @@
+Artículo 5º-Seguridad en el uso de la plataforma tecnológica: La Municipalidad de Heredia, garantiza la individualidad, seguridad e integridad de la información enviada y recibida por el usuario mediante la PTML, siempre y cuando el usuario no revele su usuario y contraseña a nadie y guarde siempre esos parámetros en un lugar seguro.

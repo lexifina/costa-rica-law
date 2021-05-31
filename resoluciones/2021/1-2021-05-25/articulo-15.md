@@ -1,0 +1,1 @@
+Artículo 15.-Puesta en marcha del sistema de servicios electrónicos. La Administración Tributaria, implementará y mantendrá? en funcionamiento el entorno tecnológico necesario, para validar, recibir y procesar las declaraciones y pagos por medios electrónicos, garantizando el acceso y el manejo confidencial de la información.

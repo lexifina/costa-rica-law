@@ -1,0 +1,1 @@
+Artículo 4º-Las declaraciones se podrán confeccionar en línea o descargando los archivos que se han dispuesto en el portal PTML. Se pueden subir archivos PDF que cumplan con las especificaciones de los modelos de las declaraciones disponibles en este portal.

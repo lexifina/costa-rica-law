@@ -1,0 +1,7 @@
+Artículo 7º-Responsabilidad por el uso de la contraseña y clave virtual Municipal (CVM).
+a) Queda absolutamente prohibido al usuario del portal PTML, facilitar a un tercero el uso de la contraseña y CVM, para acceder a los servicios electrónicos que brinda la Administración Tributaria, a través de su sitio Web y de hacerlo será bajo su única responsabilidad como usuario final.
+b) En todo caso, el uso de la clave es responsabilidad exclusiva del usuario, el cual deberá? actuar con la debida diligencia y tomar las medidas de seguridad necesarias para mantener su contraseña y CVM bajo estricto control y evitar toda utilización no autorizada.
+c) En caso de riesgo sobre la confidencialidad de la clave deberá? proceder inmediatamente, bajo su responsabilidad, al cambio de esta en el sSistema
+d) Los datos que transmita con su contraseña y CVM, surten los mismos efectos legales y tributarios que las leyes otorgan a los documentos firmados por su puño y letra.
+e) En ningún caso los eventuales daños en su computador o en su sistema informático, la perdida u olvido de la clave de acceso confidencial o la modificación de esta, por parte del usuario, constituirán causales de justificación de la extemporaneidad en el cumplimiento de sus obligaciones.
+f) Con la contraseña y la CVM, el usuario podrá? presentar las declaraciones y cumplir con sus deberes y derechos formales, tanto a nivel personal, como de terceros que así? lo autoricen a realizar dicho trámite.

@@ -1,0 +1,5 @@
+Artículo 9º-Regulación sobre acuses de recibo y pago.
+a) En todos los casos, trátese del cumplimiento de deberes formales ante la Administración Tributaria, por medio de la PTML, el sistema confirmará la recepción de las declaraciones, a través de un acuse de recibo, que se enviará al correo electrónico registrado en su cuenta de usuario.
+b) El acuse de recibo que emita la Administración Tributaria no implica manifestación de su conformidad con el contenido de las declaraciones presentadas por los usuarios. La administración tributaria de la Municipalidad de Heredia, se reserva los derechos contemplados en las normas tributarias respecto de sus facultades de comprobación y determinación de las obligaciones tributarias.
+c) Si el usuario no recibe el acuse de recibo inmediatamente después de su presentación, deberá? considerar su declaración o solicitud como no presentada, y gestionar ante la sección de Servicios Tributarios para caso de patentes o a la sección de Catastro y Valoración, para casos de bienes inmuebles.
+d) La responsabilidad de resguardar el acuse de recibo es únicamente del obligado tributario.
