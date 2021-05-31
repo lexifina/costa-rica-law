@@ -1,7 +1,0 @@
-BANCO NACIONAL DE COSTA RICA
-COMPRA DE PRODUCTOS Y SERVICIOS
-El Banco Nacional de Costa Rica, comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General, en la Sesión Nº 12.517, artículo 14, celebrada el 08 de marzo del 2021, en el cual acordó:
-1) Aprobar la modificación al Código de Conducta y Ética del Conglomerado Banco Nacional, específicamente el apartado 1.3 Alcance, para que, en lo sucesivo, se lea de conformidad con el siguiente texto:
-El presente Código es de aplicación obligatoria para los integrantes del Conglomerado, los proveedores que brindan servicios a nombre y por cuenta de las entidades del Conglomerado, y para quienes integren como miembros independientes los comités de apoyo a las Juntas Directivas y la Administración.
-2) Acoger la propuesta del documento titulado Compromiso de Confidencialidad, el cual deberán suscribir los miembros externos que integran los comités de apoyo del Conglomerado, en cuanto a la observancia de las disposiciones legales y constitucionales que existen en esa materia, así como las contenidas en el citado Código. Es entendido que le corresponderá a cada dependencia y a las subsidiarias gestionar lo pertinente para la suscripción de dicho documento, según corresponda.
-3) Modificar, en lo conducente, el acuerdo tomado en el artículo 14, numeral 1), sesión 12.438 del 24 de febrero del 2020, en el que se aprobó la última actualización en el Código de Conducta y Ética del Conglomerado Banco Nacional.
