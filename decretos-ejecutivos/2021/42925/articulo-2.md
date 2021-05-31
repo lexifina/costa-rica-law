@@ -1,0 +1,1 @@
+Artículo 2º-Derogatoria. Deróguese el transitorio V del Decreto N° 35513-MEP, denominado Establece Organización Administrativa de las Direcciones Regionales de Educación (DRE) del Ministerio de Educación Pública (MEP) del 09 de setiembre de 2009, publicado en La Gaceta Nº 187 del 25 de setiembre de 2009.
