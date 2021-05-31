@@ -1,17 +1,19 @@
+(Derogado)
 CIRCULAR N° 177-2015
+(Esta norma se dejó sin efecto por circular N° 133-2021 del 31 de mayo del 2021)
 (Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 225 del 26 de noviembre de 2015, y publicada en el Boletín Judicial N° 15 del 22 de enero de 2016)
 (Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 162-2018 del 21 de noviembre del 2018 y publicada en el Boletín Judicial N° 10 del 15 de enero del 2019)
-Asunto: Reiteración de la circular N° 198-2013 “Procedimiento para la Grabación de las Audiencias Orales y Actos de Investigación”-
+Asunto: Reiteración de la circular N° 198-2013 "Procedimiento para la Grabación de las Audiencias Orales y Actos de Investigación"-
 A LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
-El Consejo Superior del Poder Judicial en sesión N° 79- 15, celebrada el 3 de setiembre de 2015, artículo XXXVI, acordó reiterarles la circular No. 198-2013, sobre el “Procedimiento para la Grabación de las Audiencias Orales y Actos de Investigación”, del 18 de noviembre de 2013, publicada en el Boletín Judicial N° 9 del 14 de enero de 2014, que literalmente indica:
-“Procedimiento para la grabación de las audiencias orales y actos de investigación
-1. OBJETO. El presente procedimiento tiene como fin establecer los pasos a seguir en el proceso de grabación mediante el “Sistema de Grabación de las Audiencias Orales”, con el objeto de mantener un orden y estandarización que facilite a las personas usuarias tanto a lo interno como a lo externo de la Institución la localización de un momento procesal o de intervención de alguna de las partes durante la audiencia.
+El Consejo Superior del Poder Judicial en sesión N° 79- 15, celebrada el 3 de setiembre de 2015, artículo XXXVI, acordó reiterarles la circular No. 198-2013, sobre el "Procedimiento para la Grabación de las Audiencias Orales y Actos de Investigación", del 18 de noviembre de 2013, publicada en el Boletín Judicial N° 9 del 14 de enero de 2014, que literalmente indica:
+"Procedimiento para la grabación de las audiencias orales y actos de investigación
+1. OBJETO. El presente procedimiento tiene como fin establecer los pasos a seguir en el proceso de grabación mediante el "Sistema de Grabación de las Audiencias Orales", con el objeto de mantener un orden y estandarización que facilite a las personas usuarias tanto a lo interno como a lo externo de la Institución la localización de un momento procesal o de intervención de alguna de las partes durante la audiencia.
 2. ALCANCE. Este protocolo está dirigido a todos aquellos jueces, juezas, fiscales, fiscalas, técnico o técnica judicial, que desarrollen o estén a cargo de la grabación de la audiencia en los despachos judiciales en los cuales se utilice el Sistema de Grabación de Audiencias Orales (SIGAO), así como a aquellas oficinas administrativas que intervienen en el proceso
 3. TERMINOLOGÍA
 SIGAO= Sistema de Grabación de Audiencias Orales
-SIGAO-Escritorio Virtual: Modalidad de uso del sistema el cual se ejecuta a través del sistema informático denominado “Escritorio Virtual”, el cual se encuentra implementado en los Despachos Electrónicos.
-SIGAO-SGDJ: Modalidad de uso del sistema el cual se ejecuta a través del sistema informático denominado “Sistema de Gestión de Despachos Judiciales”
+SIGAO-Escritorio Virtual: Modalidad de uso del sistema el cual se ejecuta a través del sistema informático denominado "Escritorio Virtual", el cual se encuentra implementado en los Despachos Electrónicos.
+SIGAO-SGDJ: Modalidad de uso del sistema el cual se ejecuta a través del sistema informático denominado "Sistema de Gestión de Despachos Judiciales"
 SIGAO-Trabajo Local: Modalidad de uso del sistema de forma independiente, el cual no depende de ningún sistema informático ni conexión de red.
 DTI: Dirección de Tecnología de Información
 4. GENERALIDADES. Este protocolo se divide en dos secciones: a) la primera orientada a los procesos correspondientes a aspectos técnicos y, b) la segunda a los de orden operativo.
@@ -38,7 +40,7 @@ En la modalidad de SIGAO-Trabajo Local la responsabilidad la asume la persona a 
 Proceso N° 4: Respaldos
 Responsables: Dirección de Tecnología de Información / Persona a cargo del equipo local / Administración del Circuito.
 La Dirección de Tecnología de Información deberá generar y ejecutar los protocolos relativos a los respaldos de la información y su actualización, contenida en los sistemas bajo las modalidades de SIGAO-Escritorio Virtual y SIGAO-SGDJ.
-En la modalidad de SIGAO-Trabajo Local la responsabilidad la asume la persona a cargo del equipo quien deberá realizar los respaldos respectivos. La Administración del Circuito y la DTI deberán proveer los mecanismos de respaldo idóneos para estos casos. El Despacho Judicial deberá implementar formas de almacenamiento, tal como “cd- tecas”,de forma tal que se cuenten con los respaldos de forma oportuna.
+En la modalidad de SIGAO-Trabajo Local la responsabilidad la asume la persona a cargo del equipo quien deberá realizar los respaldos respectivos. La Administración del Circuito y la DTI deberán proveer los mecanismos de respaldo idóneos para estos casos. El Despacho Judicial deberá implementar formas de almacenamiento, tal como "cd- tecas",de forma tal que se cuenten con los respaldos de forma oportuna.
 La DTI deberá incluir este punto como parte de la capacitación respectiva a esta modalidad.
 II. Sobre aspectos operativos
 Proceso N° 5: Revisión de Equipos
@@ -50,7 +52,7 @@ En la modalidad de SIGAO-Escritorio Virtual y SIGAO-SGDJ, la persona a cargo del
 En la modalidad de SIGAO-TrabajoLocal la persona a cargo de la grabación deberá ingresar la información del expediente y de las partes.
 Proceso N° 7: Tipo de la Audiencia
 Responsables: Persona a cargo del proceso de grabación.
-En el SIGAO en el campo denominado “Descripción de la audiencia” se deberá señalar de forma precisa el tipo de audiencia por grabar, el cual será seleccionado de una lista provista para ello. Este dato es fundamental para una debida localización.
+En el SIGAO en el campo denominado "Descripción de la audiencia" se deberá señalar de forma precisa el tipo de audiencia por grabar, el cual será seleccionado de una lista provista para ello. Este dato es fundamental para una debida localización.
 Proceso N° 8: Inicio de Grabación de la audiencia
 Responsables: Persona a cargo del proceso de grabación
 El inicio de la grabación deberá realizarse una vez que la persona encargada de la grabación haya verificado que el audio y/o video este funcionando adecuadamente y se cuente con las condiciones óptimas para ello.
@@ -445,8 +447,8 @@ Audiencia de Apelación
 Audiencia de Casación y Sentencia de la Sala
 Proceso Laboral
 Tipos de Audiencia
-• Sentencia Oral
-• Recepción de pruebas
+. Sentencia Oral
+. Recepción de pruebas
 Audiencias de Recepción de Prueba:
 1) Inicio
 2) Fase de Conciliación
@@ -469,7 +471,7 @@ e) Hechos no probados
 f) Análisis de Fondo y Excepciones
 g) Costas
 4) Por Tanto.
-Aprobado por el Consejo Superior en sesión N° 33-13, celebrada el 9 de abril de 2013, artículo LXXII, a solicitud de la Comisión de la Jurisdicción Laboral aprobó el siguiente “Protocolo de Grabación de Audiencia, de Recepción de Pruebas y de Dictado de Sentencias Orales en Procesos Laborales “.
+Aprobado por el Consejo Superior en sesión N° 33-13, celebrada el 9 de abril de 2013, artículo LXXII, a solicitud de la Comisión de la Jurisdicción Laboral aprobó el siguiente "Protocolo de Grabación de Audiencia, de Recepción de Pruebas y de Dictado de Sentencias Orales en Procesos Laborales ".
 Proceso Penal (FLAGRANCIA)
 Tipos de Audiencia
 1) En la Fiscalía de Flagrancias:
@@ -487,48 +489,48 @@ Tipos de Audiencia
 8. Dictado de sobreseimiento
 Actos procesales durante la grabación de la audiencia
 1. Primera parte de la Audiencia ante el Tribunal.
-• Solicitud del Ministerio Público para declaración de incompetencia
-• Atribución de los hechos a la persona imputada conforme al Art. 236 CPP
-• Declaración de incompetencia
-• Solicitud de Medidas Cautelares
-• Judicialización de la persona imputada
-• Reserva de la Defensa de 24 horas para señalar la continuación de la audiencia
-• Exposición de Acusación por parte de la Fiscalía
-• Acusación subsidiaria conforme al Art. 305 CPP
-• Formulación de Querella
-• Formulación de Acción Civil Resarcitoria
-• Exposición Defensa en relación con la formulación de la Querella y Acción Civil
-• Valoración de la pieza acusatoria
-• Valoración de la Querella
-• Valoración de la Acción Civil
-• Indagación a la persona imputada
-• Aplicación de salidas externas
-• Aplicación de un procedimiento abreviado
-• Traslado del proceso a la segunda fase de juicio oral y público. Art. 428 CPP
+. Solicitud del Ministerio Público para declaración de incompetencia
+. Atribución de los hechos a la persona imputada conforme al Art. 236 CPP
+. Declaración de incompetencia
+. Solicitud de Medidas Cautelares
+. Judicialización de la persona imputada
+. Reserva de la Defensa de 24 horas para señalar la continuación de la audiencia
+. Exposición de Acusación por parte de la Fiscalía
+. Acusación subsidiaria conforme al Art. 305 CPP
+. Formulación de Querella
+. Formulación de Acción Civil Resarcitoria
+. Exposición Defensa en relación con la formulación de la Querella y Acción Civil
+. Valoración de la pieza acusatoria
+. Valoración de la Querella
+. Valoración de la Acción Civil
+. Indagación a la persona imputada
+. Aplicación de salidas externas
+. Aplicación de un procedimiento abreviado
+. Traslado del proceso a la segunda fase de juicio oral y público. Art. 428 CPP
 2. Inicio de Debate Oral y Público
-• Declaración de abierto el debate
-• Acusación Ministerio Público
-• Presentación de la Querella
-• Defensa: referencia a la pieza acusatoria
-• Defensa: explicación teoría del caso
-• Presentación y resolución de incidentes
-• Declaración de la persona imputada
-• Nueva calificación Jurídica
-• Ampliación de la acusación
-• Corrección de la acusación
-• Recepción de la prueba
-• Prueba pericial
-• Prueba Testimonial
-• Prueba documental y su reproducción
-• Conclusiones Ministerio Público
-• Conclusiones Querellante
-• Conclusiones Actor Civil
-• Conclusiones Defensor
-• Palabras de la persona víctima
-• Palabras de la persona imputada
-• Cierre del debate
-• Dictado de sentencia
-• Imposición o prórroga de la prisión preventiva
+. Declaración de abierto el debate
+. Acusación Ministerio Público
+. Presentación de la Querella
+. Defensa: referencia a la pieza acusatoria
+. Defensa: explicación teoría del caso
+. Presentación y resolución de incidentes
+. Declaración de la persona imputada
+. Nueva calificación Jurídica
+. Ampliación de la acusación
+. Corrección de la acusación
+. Recepción de la prueba
+. Prueba pericial
+. Prueba Testimonial
+. Prueba documental y su reproducción
+. Conclusiones Ministerio Público
+. Conclusiones Querellante
+. Conclusiones Actor Civil
+. Conclusiones Defensor
+. Palabras de la persona víctima
+. Palabras de la persona imputada
+. Cierre del debate
+. Dictado de sentencia
+. Imposición o prórroga de la prisión preventiva
 Proceso Penal: FISCALÍAS ELECTRÓNICAS (Territoriales)
 Tipos o actos de investigación:
 1. Entrevistas de testigos.
@@ -651,5 +653,5 @@ Actos procesales durante la grabación de la audiencia
 29) Presentación de nueva prueba testimonial
 30) Conclusiones
 31) Comentario final del imputado
-32) Señalamiento de hora y fecha para lectura de sentencia”
+32) Señalamiento de hora y fecha para lectura de sentencia"
 San José, 14 de octubre de 2015

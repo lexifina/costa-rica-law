@@ -13,3 +13,4 @@ Reiteración de la circular N° 198-2013 “Procedimiento para la Grabación de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-14 | la propia norma |
+| 2 | 2021-05-31 | Circular 133 (2021-05-31) |
