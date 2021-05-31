@@ -1,0 +1,1 @@
+Artículo 9º-Presupuesto de los incentivos. El presupuesto para el otorgamiento de estos incentivos se tomará de la partida presupuestaria 6.02.99 "Otros incentivos para adjudicatarios y concesionarios".

@@ -1,0 +1,2 @@
+Artículo 8º-Caducidad. Los vendedores favorecidos cuentan con un plazo de caducidad de treinta y dos (32) días naturales, contados a partir del primer día hábil siguiente de realizada la reunión, para presentar la información de la cuenta IBAN y todos los datos requeridos en el artículo 7, para hacer efectiva la entrega del incentivo.
+Transcurrido ese plazo, se perderá la posibilidad de hacer efectivo el incentivo otorgado y el mismo pasará a formar parte nuevamente del fondo de incentivos.

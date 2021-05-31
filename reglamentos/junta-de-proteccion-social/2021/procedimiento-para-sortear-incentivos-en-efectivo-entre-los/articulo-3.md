@@ -1,0 +1,2 @@
+Artículo 3º-Convocatoria a la reunión trimestral. La GPC realizará la convocatoria a la reunión trimestral por medio de un enlace generado en la plataforma TEAMS, según lista de correos electrónicos de los grupos que le remita el Departamento de Ventas.
+Adicionalmente, se enviará un infograma convocando a cada una de las reuniones según corresponda, por medio del WhatsApp institucional utilizado para enviar comunicaciones a vendedores.
