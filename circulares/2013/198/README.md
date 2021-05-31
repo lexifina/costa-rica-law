@@ -13,3 +13,4 @@ Procedimiento para la Grabación de Audiencias Orales y Actos de Investigación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-18 | la propia norma |
+| 2 | 2021-05-31 | Circular 133 (2021-05-31) |
