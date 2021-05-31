@@ -1,0 +1,3 @@
+CAPÍTULO II
+Prevención del acoso laboral
+Artículo 5º-Instancia responsable. Corresponde al Departamento de Cultura y Gestión de Cambio, recomendar a los jerarcas y a las jefaturas, las políticas, programas y procedimientos para la prevención y el tratamiento del acoso laboral. Esta tarea se llevará a cabo, con el fin de abordar casos relacionados con la temática, así como por las instancias que, por su naturaleza, están facultadas para implementar la labor de prevención y puedan facilitar el proceso de difusión, lo cual se hará previa coordinación, incluso con entidades públicas y/o privadas que puedan colaborar con el proceso preventivo.

@@ -1,0 +1,2 @@
+Artículo 28.-De la vigencia del presente reglamento. Este reglamento se aprobó por la Junta Directiva a través de acuerdo adoptado en la sesión ordinaria N° 5237-209 y rige a partir de la fecha de publicación en el Diario Oficial La Gaceta. Así como, deroga cualesquiera disposición que se le oponga.
+Dado en San Francisco de Goicoechea, según fue aprobado mediante artículo 4° de la sesión ordinaria de la Junta Directiva de la Refinadora Costarricense de Petróleo S. A., N° 5237-209, celebrada el miércoles 19 de mayo del 2021.

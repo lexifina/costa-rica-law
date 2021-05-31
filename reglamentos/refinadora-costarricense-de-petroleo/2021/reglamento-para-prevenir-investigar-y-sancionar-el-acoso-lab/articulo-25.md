@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 25.-Denuncia temeraria o falsa. Quien denuncie por acoso laboral de forma temeraria, falsa o abusiva podrá ser sancionado (a) disciplinariamente, previa apertura de causa y observancia del debido proceso, conforme a las disposiciones aplicables en la Empresa sobre la materia disciplinaria. Este procedimiento disciplinario por denuncia temeraria o falsa, podrá ser sancionado como falta gravísima de conformidad con lo dispuesto en la Convención Colectiva y se iniciará a solicitud del Gerente de Administración y Finanzas, conforme lo dispone del artículo 10 del presente Reglamento, cuando existan indicios de que se cumplen los presupuestos que la configuran según la definición dada en este Reglamento.
