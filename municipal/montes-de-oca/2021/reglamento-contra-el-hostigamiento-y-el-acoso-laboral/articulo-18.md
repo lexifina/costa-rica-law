@@ -1,0 +1,1 @@
+Artículo 18.-Todo servidor y toda servidora municipal está en la obligación de dar colaboración cuando sea requerida por el personal que realiza la investigación sobre el presunto acoso laboral o moral u hostigamiento psicológico en su fase preliminar o por el personal del Órgano Director para la debida tramitación del procedimiento administrativo ordinario disciplinario.

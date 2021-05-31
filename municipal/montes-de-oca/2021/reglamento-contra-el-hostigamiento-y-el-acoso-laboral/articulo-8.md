@@ -1,0 +1,1 @@
+Artículo 8°-No incurre en responsabilidad patronal, de acuerdo con lo que establece la normativa laboral, el patrono que despida a un o una servidor o servidora municipal que haya incurrido en acoso laboral.

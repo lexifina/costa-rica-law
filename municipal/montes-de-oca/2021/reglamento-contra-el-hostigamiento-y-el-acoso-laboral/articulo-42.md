@@ -1,0 +1,2 @@
+Artículo 42.-Vigencia y publicidad del Reglamento. Este reglamento deberá ser aprobado por el Concejo Municipal y rige a partir de su publicación en el Diario Oficial La Gaceta. Será obligación de la Administración difundir su texto para conocimiento de la población.
+Acuerdo definitivamente aprobado por el Concejo Municipal de Montes De Oca, en la sesión ordinaria N° 50-2021, artículo N° 7.3, del 12 de abril del 2021.

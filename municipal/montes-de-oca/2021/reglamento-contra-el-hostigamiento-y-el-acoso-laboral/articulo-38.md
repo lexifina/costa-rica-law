@@ -1,0 +1,1 @@
+Artículo 38.-Sanciones disciplinarias. Las sanciones disciplinarias por acoso laboral comprobado, se aplicarán según la gravedad del hecho y la condición jerárquica de la persona denunciada, en concordancia con lo dispuesto en el Artículo 149 del Código Municipal Reglamento Autónomo de Servicios y cualquier otra disposición normativa que regule la materia.

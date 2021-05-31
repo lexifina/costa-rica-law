@@ -1,0 +1,1 @@
+Artículo 27.-El Alcalde o la Alcaldesa, recibe el expediente de la denuncia, y procede la apertura del Órgano Director. El Alcalde o la Alcaldesa tramita la denuncia en el término de cinco días hábiles, una vez recibida e inmediatamente emite las medidas cautelares indicadas en este Reglamento. A solicitud del demandante o bien la que considere para proteger a la víctima.

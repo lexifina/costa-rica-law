@@ -1,0 +1,1 @@
+Artículo 10.-Ninguna persona que haya denunciado el acoso laboral o moral u hostigamiento psicológico o haya comparecido como testigo de las partes, podrá sufrir, por ello, perjuicio personal alguno en su empleo.

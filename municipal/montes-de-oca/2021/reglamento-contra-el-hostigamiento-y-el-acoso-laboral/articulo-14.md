@@ -1,0 +1,1 @@
+Artículo 14.-La Administración debe exigir a sus superiores jerárquicos y a los servidores y las servidoras municipales el cumplimiento del reglamento contra el acoso laboral y garantizar que puedan laborar con seguridad y dignidad.

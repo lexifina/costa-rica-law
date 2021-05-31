@@ -1,0 +1,1 @@
+Artículo 4°-Las exigencias técnicas, los requerimientos de eficiencia y eficacia, así como las peticiones de colaboración a que se refiere el Artículo anterior deberán ser justificadas, fundamentadas en criterios objetivos y no discriminatorios.
