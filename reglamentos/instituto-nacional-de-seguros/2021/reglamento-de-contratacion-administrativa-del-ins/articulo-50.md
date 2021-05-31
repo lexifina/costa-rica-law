@@ -1,0 +1,1 @@
+Artículo 50.-Información a Junta Directiva del Instituto. Trimestralmente el Departamento de Proveeduría remitirá a la Alta Gerencia un informe de las adquisiciones realizadas en el período anterior, a fin de que esta lo someta a conocimiento de la Junta Directiva.
