@@ -73,6 +73,7 @@ articulo-32-transitorio.md
 articulo-33-transitorio.md
 articulo-34-transitorio.md
 articulo-35-transitorio.md
+articulo-35-transitorio-bis.md
 articulo-36-transitorio.md
 articulo-37-transitorio.md
 articulo-38-transitorio.md
