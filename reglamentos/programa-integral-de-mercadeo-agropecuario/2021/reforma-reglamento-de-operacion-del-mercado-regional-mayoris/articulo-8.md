@@ -1,0 +1,2 @@
+Artículo 8º-Modifíquese el primer párrafo del artículo 17 del Reglamento de Operación Mercado Regional Mayorista Chorotega para que en adelante diga:
+"Cuando en una determinada área exista limitación de espacio para la actividad a desarrollar, conforme a la sectorización del Mercado Regional Chorotega, o bien cuando exista más de un interesado en un mismo espacio o local, o cuando exista la solicitud de más de un espacio o local, éstos se asignarán por medio de remate."

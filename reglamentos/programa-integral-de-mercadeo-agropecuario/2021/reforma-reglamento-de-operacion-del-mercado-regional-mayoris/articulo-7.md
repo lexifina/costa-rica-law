@@ -1,0 +1,2 @@
+Artículo 7º-Modifíquese el artículo 16 del Reglamento de Operación Mercado Regional Mayorista Chorotega para que en adelante diga:
+"Artículo 16. Adjudicación. Una vez presentada la solicitud para que se le asigne un espacio o local, la Dirección del Mercado Regional Chorotega emitirá su recomendación respecto de la solicitud, las cuales remitirá a la Gerencia General para su aprobación o improbación, la cual debe ser resuelta en el plazo de un mes desde su presentación a la administración, caso contrario se tendrá por denegada."
