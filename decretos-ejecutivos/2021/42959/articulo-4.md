@@ -1,0 +1,1 @@
+Artículo 4º-No Otorgamiento de Beneficios Fiscales. De conformidad con el artículo 5º del Decreto Ejecutivo N°40540-H de 01 de agosto del 2017, denominado "Contingencia Fiscal" y sus reformas, la presente declaratoria no implica ningún otorgamiento de exoneraciones o cualquier otro beneficio fiscal.
