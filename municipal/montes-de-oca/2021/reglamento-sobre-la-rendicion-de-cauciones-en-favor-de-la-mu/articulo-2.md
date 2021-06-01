@@ -1,0 +1,1 @@
+Artículo 2º-De la póliza de fidelidad. La póliza de fidelidad que debe rendir el funcionario o funcionaria obligada se hará a través de una aseguradora regulada por el Estado Costarricense, cubriéndose el importe respectivo por ellos mismos con su propio peculio. Esta póliza se emitirá a favor de la Municipalidad de Montes de Oca.
