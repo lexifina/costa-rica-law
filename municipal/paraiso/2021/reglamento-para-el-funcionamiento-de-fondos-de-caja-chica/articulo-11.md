@@ -1,0 +1,1 @@
+Artículo 11.-Activos Fijos. La compra de activos fijos sujetos a depreciación serán tramitados y adquiridos siguiendo el procedimiento de entrada en la Bodega Municipal y el registro contable correspondiente. La Proveeduría deberá de establecer mecanismos que garanticen el cumplimiento de dicho trámite.
