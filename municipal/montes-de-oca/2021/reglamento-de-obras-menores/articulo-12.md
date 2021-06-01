@@ -1,0 +1,1 @@
+Artículo 12.-No se considerarán obras menores las obras de construcción que, según el criterio técnico especializado del funcionario municipal a cargo, incluyan modificaciones al sistema estructural, eléctrico o mecánico de un edificio, que pongan en riesgo sus habitantes o a construcciones o propiedades vecinas.

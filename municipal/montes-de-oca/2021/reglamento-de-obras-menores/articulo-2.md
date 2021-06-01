@@ -1,0 +1,1 @@
+Artículo 2º-Este Reglamento rige para todo el Cantón de Montes de Oca. Ninguna de las obras menores será ejecutada sin cumplir los requerimientos que se detallan en la Ley y en el presente reglamento.
