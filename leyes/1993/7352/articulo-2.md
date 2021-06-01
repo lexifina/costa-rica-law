@@ -2,3 +2,5 @@ ARTÍCULO 2.- Los diputados a la Asamblea Legislativa, por desempeñar sus funci
 (Así reformada la primera oración del párrafo primero de este artículo, por el artículo 1º de la ley No.7858 de 22 de diciembre de 1998)
 Las sumas indicadas en el párrafo anterior se ajustarán una vez al año, de acuerdo con el incremento porcentual en el Índice de Precios al Consumidor del año anterior, calculado por el Instituto Nacional de Estadística y Censos (INEC), excepto cuando este supere diez puntos porcentuales (10%), en cuyo caso el ajuste será de un diez por ciento (10%).
 (Así reformado el párrafo anterior por el artículo único de la ley N° 9252 del 1° de julio del 2014)
+No obstante, en el caso de que se apliquen las condiciones del escenario d) del artículo 11 de la Ley 9635, Fortalecimiento de las Finanzas Públicas, de 3 de diciembre de 2018, no se realizará el ajuste dispuesto en esta norma.
+(Así adicionado el párrafo anterior por el artículo 1° de la Ley para congelar las remuneraciones de diputados y diputadas en el escenario de alta deuda pública, N° 9987 del 31 de mayo del 2021)
