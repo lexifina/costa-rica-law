@@ -1,0 +1,1 @@
+Artículo 20.-Rendición de cuentas. El CENCE en su función de operador del SEN rendirá cuentas de su funcionamiento al ICE, a la Autoridad Reguladora de los Servicios Públicos (ARESEP), a la Contraloría General de la República (CGR), al Ministerio de Ambiente y Energía (MINAE), y a los entes regionales CRIE y EOR, según se requiera y conforme a su ámbito de competencia.

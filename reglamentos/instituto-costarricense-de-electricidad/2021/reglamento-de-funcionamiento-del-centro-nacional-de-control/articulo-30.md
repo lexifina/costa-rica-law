@@ -1,0 +1,3 @@
+Disposiciones finales
+Artículo 30.-Contabilidad separada. El ICE debe garantizar la identificación y separación de la estructura contable y financiera del CENCE en su función de operador del SEN en los estados financieros, así como de cualquier otra actividad que realice y que no corresponda a la Operación de SEN, tal y como lo establece la regulación nacional y/o regional.
+Esta separación contable será revisada anualmente por la Gerencia de Finanzas del ICE de acuerdo con las Normas Internacionales de Información Financiera (NIIF), o las normas contables que apliquen para el ICE según lo dispuesto por el ente rector en la materia y/o la regulación nacional.

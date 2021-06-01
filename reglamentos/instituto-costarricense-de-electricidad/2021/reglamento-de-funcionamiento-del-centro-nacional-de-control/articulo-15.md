@@ -1,0 +1,1 @@
+Artículo 15.-Del régimen sancionatorio interno. El régimen sancionatorio interno aplicable a los funcionarios y trabajadores del CENCE es el establecido en el Estatuto de Personal del ICE, el Reglamento Autónomo Laboral (RAL) y la Ley N° 8292, Ley de Control Interno.

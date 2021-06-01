@@ -1,0 +1,1 @@
+Artículo 10.-Estructura organizativa. La estructura organizacional del CENCE se encuentra definida y aprobada de acuerdo con la normativa interna en materia de organización y es aprobada por la Gerencia General y el Consejo Directivo del ICE.

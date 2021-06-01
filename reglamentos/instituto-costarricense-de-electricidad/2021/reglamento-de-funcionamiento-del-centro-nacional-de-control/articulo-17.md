@@ -1,0 +1,2 @@
+Artículo 17.-Jerarquía del esquema de coordinación operativa. El CENCE en su función de operador del SEN coordinará con el EOR y los otros OS/OM de la región, la operación del sistema regional interconectado, mediante la ejecución del esquema jerárquico establecido en el RMER y los protocolos de operación vigentes aprobados por la CRIE.
+Será el responsable de las telecomunicaciones, intercambios de información y supervisión operativa, que se debe mantener con el EOR y los otros OS/OM, conforme lo establezcan la normativa nacional y regional.
