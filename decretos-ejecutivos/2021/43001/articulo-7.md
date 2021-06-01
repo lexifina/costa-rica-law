@@ -1,0 +1,1 @@
+Artículo 7º-Para la ejecución de las labores de control y erradicación de la plaga, el Servicio Fitosanitario del Estado dispondrá de los fondos de emergencia que contempla el artículo 66 de la Ley Nº 7664, Ley de Protección Fitosanitaria, realizando la liquidación correspondiente a posteriori, conforme a los procedimientos administrativos que regulan la materia.

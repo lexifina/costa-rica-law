@@ -1,0 +1,1 @@
+Artículo 5º-El Servicio Fitosanitario del Estado se encargará de dictar y ejecutar las medidas fitosanitarias técnicas necesarias para la contención y erradicación de la plaga antes mencionada, establecidas en el "Plan de acción para el caracol gigante africano Achatina fulica (Bowdich, 1822).

@@ -1,0 +1,1 @@
+Artículo 6º-El Servicio Fitosanitario del Estado promoverá la capacitación de productores y técnicos, sobre los temas fitosanitarios y sanitarios relacionados con la plaga antes mencionada, asimismo brindará soporte en análisis de muestras en los laboratorios oficiales.
