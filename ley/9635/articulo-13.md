@@ -2,4 +2,6 @@ ARTÍCULO 13- Medidas extraordinarias. En el caso de que se apliquen las condici
 a) No se ajustarán por ningún concepto las pensiones, excepto en lo que corresponde a costo de vida.
 b) El Gobierno central no suscribirá préstamos o créditos, salvo aquellos que sean un paliativo para la deuda pública o estén destinados a ser utilizados en gastos de capital.
 c) No se realizarán incrementos por costo de vida en el salario base, ni en los demás incentivos salariales, los cuales no podrán ser reconocidos durante la duración de la medida o de forma retroactiva, salvo para lo relacionado con el cálculo para determinar las prestaciones legales, jubilaciones y la anualidad del funcionario.
+En este escenario tampoco se realizará ningún aumento a la remuneración de los diputados y las diputadas de la República.
+(Así adicionado el párrafo anterior por el artículo 2° de la Ley para congelar las remuneraciones de diputados y diputadas en el escenario de alta deuda pública, N° 9987 del 31 de mayo del 2021)
 d) El Poder Ejecutivo no podrá efectuar rescates financieros, otorgar subsidios de ningún tipo, así como realizar cualquier otro movimiento que implique una erogación de recursos públicos, a los sectores productivos, salvo en aquellos casos en que la Asamblea Legislativa, mediante ley, declare la procedencia del rescate financiero, ayuda o subsidio a favor de estos.
