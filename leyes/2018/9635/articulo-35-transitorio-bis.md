@@ -1,0 +1,2 @@
+Transitorio XXXV bis- De conformidad con lo dispuesto en esta ley, a las remuneraciones de los diputados y las diputadas no se les aplicará ningún aumento correspondiente al presente año 2021 ni a los años subsiguientes, mientras permanezcan las condiciones establecidas en el inciso c) del artículo 13 de la presente ley. Tampoco procederá su pago retroactivo por ningún concepto.
+(Así adicionado por el artículo 3° de la Ley para congelar las remuneraciones de diputados y diputadas en el escenario de alta deuda pública, N° 9987 del 31 de mayo del 2021)
