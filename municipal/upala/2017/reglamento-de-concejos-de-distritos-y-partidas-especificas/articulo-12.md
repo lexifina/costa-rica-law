@@ -1,2 +1,0 @@
-Artículo 12.—Los acuerdos y resoluciones del Concejo de Distrito serán ejecutados por su presidente o el miembro que este órgano designe sin perjuicio del nombramiento de funcionarios ejecutivos.
-Solamente podrán quedar firmes los acuerdos cuando así expresamente lo aprueben al menos 4 de sus miembros.

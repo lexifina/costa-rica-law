@@ -1,2 +1,0 @@
-Artículo 18.—Todas las sesiones del Concejo de Distrito serán públicas, pudiendo participar en ellas los (as) vecinos (as), en calidad de representantes de organizaciones comunales o en su calidad particular.
-Para tal efecto cada Concejo normará dicha participación por medio de un reglamento interno.
