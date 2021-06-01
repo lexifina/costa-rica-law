@@ -24,7 +24,7 @@ GERENCIA GENERAL: Entendida como el ejecutor de las decisiones del Consejo Direc
 GRANOS BÁSICOS: En Costa Rica son considerados granos básicos el arroz, los frijoles y el maíz.
 HORTOFRUTÍCOLAS: Se refiere a los productos de explotaciones agrícolas tales como frutas, hortalizas.
 MEJORA: Cambio o progreso que realice el concesionario a la infraestructura y que se encuentre de acuerdo con las directrices institucionales.
-MERCADO DE DESTINO: Es un centro de comercio enfocado a consumidores.
+MERCADO DE DESTINO: (Derogado y publicado en La Gaceta N° 104 del 1° de junio del 2021).
 MERCADO REGIONAL MAYORISTA DE LA REGIÓN CHOROTEGA (Mercado Regional Chorotega): Es un Mercado Regional de destino administrado por el PIMA, que consiste físicamente en las instalaciones actuales y futuras ubicadas en Sardinal de Carrillo, Guanacaste.
 PATENTE MUNICIPAL: Obligación tributaria, que debe cumplir toda persona jurídica, que se dedique a la comercialización de productos agroalimentarios y/o el ejercicio de actividades lucrativas de cualquier tipo o venta de servicios dentro del Mercado Regional Chorotega.
 PERSONAL: Conjunto de personas que trabajan en una misma empresa o dependencia (chambero, subalterno, técnicos, choferes, administradores entre otros).

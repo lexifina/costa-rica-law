@@ -15,3 +15,4 @@ Reglamento de operación mercado regional mayorista de Chorotega
 | --- | --- | --- |
 | 1 | 2019-08-01 | la propia norma |
 | 2 | 2019-12-12 | Reglamento 0 (2019-12-12) |
+| 3 | 2021-06-01 | Reglamento 104 (2021-06-01) |

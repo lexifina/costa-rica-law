@@ -12,4 +12,5 @@ i) Resolver las situaciones de emergencia, caso fortuito y fuerza mayor que se p
 j) Disponer la clausura o impedimento de uso de locales y áreas, de acuerdo con las disposiciones de este Reglamento, las normas internas de operación, funcionamiento y de control de contratos establecidos, posterior al debido proceso.
 k) Procurar que en el mercado se establezcan las mejores prácticas comerciales promoviendo la transparencia y el interés público.
 l) Ejecutar cualquier función atinente a su cargo que le indique la Gerencia o el Consejo Directivo del PIMA.
-m) Coordinar con las dependencias del sector agroalimentario, académico y social de la región los aspectos de interés para la administración del Mercado Regional Chorotega.
+m) Coordinar con las dependencias del sector agroalimentario, comercial, académico y social de la región los aspectos de interés para la administración del Mercado Regional Chorotega.
+(Así reformado el inciso anterior y publicado en La Gaceta N° 104 del 1° de junio del 2021)
