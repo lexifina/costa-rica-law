@@ -1,2 +1,0 @@
-ARTÍCULO 40: RECEPCIÓN DE OBRAS
-La recepción de las obras desarrolladas por la Municipalidad de San Carlos, será hecha con base en lo que se indica en el Manual para la Ejecución de las Contrataciones Públicas de la Municipalidad de San Carlos.

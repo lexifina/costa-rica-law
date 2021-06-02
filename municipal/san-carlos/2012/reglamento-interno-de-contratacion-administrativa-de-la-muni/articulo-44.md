@@ -1,4 +1,0 @@
-ARTÍCULO 44: TRAMITE DE PAGO
-La administración se encuentra obligada a cancelar sus obligaciones dentro de los treinta días naturales siguientes a la recepción de la factura por el departamento responsable del objeto adquirido; una vez realizada la recepción definitiva del objeto de compra a plena satisfacción de la administración. La unidad responsable de iniciar el proceso de pago, es la misma que ejecuto y recibió el objeto de compra, la cual deberá velar por la realización del trámite de pago que corresponda.
-La unidad de Control de Ejecución de Contratos, será la unidad de la Proveeduría encargada de verificar que los documentos aportados por el departamento solicitante, se ajusten a lo indicado en los expedientes de cada compra, y remitir a la Alcaldía Municipal los documentos necesarios para que esta ordene los pagos.
-La forma específica de desarrollar los pagos, se reglamenta en el Manual de Ejecución de Contratos de la Municipalidad de San Carlos.

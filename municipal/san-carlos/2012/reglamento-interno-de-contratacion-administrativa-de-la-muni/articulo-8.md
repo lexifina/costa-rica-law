@@ -1,5 +1,0 @@
-CAPÍTULO III: DEL PROCESO DE COMPRAS
-SECCION I: PLANIFICACIÓN DE COMPRAS
-Artículo 8º—El Concejo Municipal nombrará una comisión especial permanente, para analizar y brindar recomendaciones al Concejo Municipal sobre los informes mensuales de las adjudicaciones de las Licitaciones Abreviadas, Licitaciones Públicas y Contrataciones directas, promovidas por la Proveeduría Municipal.
-Los informes mensuales de las adjudicaciones de las Licitaciones Abreviadas, Licitaciones Públicas y Contrataciones directas, promovidas por la Proveeduría Municipal, deberán incluir por cada adjudicación el acuerdo final de adjudicación por la Alcaldía Municipal, el cartel de licitación, la recomendación de adjudicación por la Proveeduría Municipal y la lista de chequeo para evaluación de ofertas. La Proveeduría Municipal tendrá concluido el mes, 10 días hábiles para presentar el informe por medio de correo electrónico de los miembros de la Comisión Especial y con copia a la Auditoría Interna Municipal
-(Así reformado mediante acta N° 07 del 30 de enero de 2017)
