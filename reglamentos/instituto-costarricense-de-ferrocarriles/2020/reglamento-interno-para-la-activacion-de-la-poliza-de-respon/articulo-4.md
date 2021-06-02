@@ -1,0 +1,2 @@
+Artículo 4º-El usuario quedará protegido por los seguros a que se refiere el artículo anterior, desde el momento en que se aborda el tren hasta que llega a su destino final.
+Para los efectos del párrafo anterior, se presume, salvo prueba en contrario, que las personas que se encuentran a bordo de un coche de pasajeros adquirieron el boleto respectivo, con excepción del personal que se encuentre a bordo en el ejercicio de sus funciones.
