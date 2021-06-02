@@ -1,5 +1,0 @@
-Artículo 11.— Se pagará por gasto de gasolina ¢200,00 colones por kilómetro, por gasto de diésel ¢150,00 colones por kilómetro. También por acuerdo del Concejo Municipal e informe de comisión y comprobación de asistencia de la comunidad.
-A los síndicos se les pagará el cobro de transporte de comisiones que estas sean realizadas en su respectivo distrito con informe de comisión según consta en el reglamento de sesiones en el artículo 15 del plazo para rendir dictamen de comisión y con acuerdo del Concejo para otros asuntos, con sus respectivas firmas de asistencia.
-Se deberá confeccionar una boleta de comprobación de asistencia en la municipalidad para trámites municipales para la comprobación de las gestiones administrativas y en la oficina de la secretaria de la Alcaldía.
-1-Se acuerda que la administración conformará la boleta para su respectivo control a la hora de cancelar los gastos por combustible de los vehículos utilizados por los regidores y síndicos propietarios y suplentes.
-(Así reformado en sesión N° 100 del 4 de diciembre del 2017)

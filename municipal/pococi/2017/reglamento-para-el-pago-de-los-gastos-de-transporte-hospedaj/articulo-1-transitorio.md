@@ -1,2 +1,0 @@
-Transitorio: Hacer la reforma de que se haga la boleta para llenar detalles de la Comisión Por mayoría de 8 votos a favor y 1 en contra se acuerda: Aprobar el Reglamento para el pago de los gastos de transporte, hospedaje y alimentación a los regidores y síndicos propietarios y suplentes de la Municipalidad de Pococí, Publíquese en el Diario Oficial La Gaceta. Dispénsese del trámite de Comisión. Acuerdo definitivamente aprobado.
-Guápiles, 17 de enero del 2017.

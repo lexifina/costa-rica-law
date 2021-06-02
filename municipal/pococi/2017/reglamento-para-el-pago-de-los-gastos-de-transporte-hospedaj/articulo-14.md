@@ -1,1 +1,0 @@
-Artículo 14.—En todo no lo provisto en el presente Reglamento en cuanto a pagos, se regirá en lo establecido el Reglamento de Gastos de Viajes y Transportes para funcionarios Públicos emitido y aprobado por la Contraloría General de la República.

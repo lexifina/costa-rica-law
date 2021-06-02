@@ -1,1 +1,0 @@
-Artículo 3º—Los regidores y síndicos, que podrán hacer uso de estos beneficios son aquellos que asistan a las sesiones municipales. Capítulo II del procedimiento para solicitar y liquidar los viáticos.

@@ -1,1 +1,0 @@
-Artículo 7º—Con acuerdo previo posterior a no más de treinta días naturales se podrá solicitar el pago de viáticos y trasporte a los miembros del Concejo Municipal que hayan participado en representación o comisiones (permanentes, especiales o reuniones en asuntos de la Municipalidad).

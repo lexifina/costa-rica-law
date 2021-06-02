@@ -1,1 +1,0 @@
-Artículo 2º—El presente reglamento establecen las disposiciones generales, a que deberán someterse aquellos regidores y síndicos propietarios y suplentes residentes en el Cantón de Pococí por concepto de transporte hospedaje y alimentación, con el propósito de asistir a las sesiones del Concejo, comisiones permanentes, comisiones especiales y representaciones.
