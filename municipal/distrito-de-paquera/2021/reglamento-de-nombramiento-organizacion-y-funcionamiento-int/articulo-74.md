@@ -1,0 +1,1 @@
+Artículo 74 - Los recursos del Comité Distrital solamente se podrán invertir en obras de interés deportivo y recreativo, ubicados dentro de los límites territoriales del Distrito de Paquera; así como en la capacitación, promoción y participación de atletas, entrenadores, árbitros y dirigentes.

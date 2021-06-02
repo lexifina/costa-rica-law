@@ -1,0 +1,1 @@
+Artículo 82 - Las instalaciones deportivas serán clasificadas por el Comité Distrital, en categorías de acuerdo con la infraestructura de éstas; también ordenará el uso de éstas por los usuarios de acuerdo con el tipo de actividad que realicen. Con sustento en este ordenamiento se definirán las tantas por derecho de uso de las instalaciones y el período que abarca dicha cuota.

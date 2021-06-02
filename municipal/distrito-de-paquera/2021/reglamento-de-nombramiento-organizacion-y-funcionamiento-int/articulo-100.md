@@ -1,0 +1,1 @@
+Artículo 100 - Para estimular a los dirigentes, atletas y entrenadores, el Comité Distrital nombrará una Comisión integrada por tres miembros que escogerá cada año al mejor atleta, mejor entrenador y mejor dirigente deportivo. La designación deberá realizarse según reglamento elaborado para este efecto, el cual debe ser conocido y aprobado por el Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 42 - Cuando se realicen torneos internos en las comunidades, el Comité Comunal debe confeccionar el respectivo reglamento, el que deberá ser ratificado y aprobado por el Comité Distrital para su aplicación.

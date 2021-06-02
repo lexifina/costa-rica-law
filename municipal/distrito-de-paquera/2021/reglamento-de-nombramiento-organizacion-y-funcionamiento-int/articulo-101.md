@@ -1,0 +1,1 @@
+Artículo 101 - Las personas designadas por la Comisión deben ser notificadas al Concejo Municipal y recibirán del Comité Distrital un pergamino o placa como reconocimiento, el día de celebración del aniversario del Distrito o bien cuando el Concejo Municipal lo crea pertinente y de aviso de la fecha.

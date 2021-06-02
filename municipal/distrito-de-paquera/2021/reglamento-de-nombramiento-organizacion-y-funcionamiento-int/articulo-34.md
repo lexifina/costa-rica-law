@@ -1,0 +1,1 @@
+Artículo 34 - Los trámites que realicen los Comités Comunales Juntas Administrativas de Instalaciones Deportivas, y Subcomités, ante autoridades gubernamentales deberán notificarlos al Comité Distrital.

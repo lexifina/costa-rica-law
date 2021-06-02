@@ -1,0 +1,1 @@
+Artículo 79 - El Comité Distrital y sus órganos sólo podrán invertir sus fondos en terrenos y propiedades que pertenezcan a la Municipalidad del Distrito de Paquera, o bien, en Convenios que lo permitan y que sean aprobados por el Concejo Municipal y la Asesoría Legal de la Municipalidad el Distrito de Paquera.

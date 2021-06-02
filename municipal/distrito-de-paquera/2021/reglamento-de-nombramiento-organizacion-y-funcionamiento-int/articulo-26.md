@@ -1,0 +1,1 @@
+Artículo 26 - Los Comités Comunales y Juntas Administrativas de Instalaciones Deportivas estarán integrados por cinco miembros de la comunidad, que serán elegidos popularmente en asamblea general convocada para tal efecto por el Comité Distrital y 2 sustitutos.

@@ -1,0 +1,1 @@
+Artículo 47 - El Comité Distrital deberá sesionar en forma ordinaria, un mínimo de cuatro sesiones por mes (una vez por semana). Los demás órganos deberán sesionar conforme con lo que establece este Reglamento.

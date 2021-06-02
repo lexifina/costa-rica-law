@@ -1,0 +1,1 @@
+Artículo 14 - La Junta Directiva estará integrada por cinco miembros nombrados entre sí, mediante elección secreta. Se integrarán en sus cargos y con las responsabilidades respectivas en la primera sesión de trabajo formal.

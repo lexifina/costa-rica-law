@@ -1,0 +1,1 @@
+Artículo 6 - El Comité Distrital y los órganos que él designe son los encargados del deporte y la recreación en el Distrito de Paquera, según los planes municipales y nacionales que en esta materia dicten la Municipalidad del Distrito de Paquera y el ICODER de acuerdo a las leyes vigentes.

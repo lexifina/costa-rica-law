@@ -1,0 +1,1 @@
+Artículo 35 - Los Comités Comunales, Juntas Administrativas de Instalaciones Deportivas, y Subcomités deberán rendir informes anuales de labores y de resultados obtenidos ante el Comité Distrital, a más tardar el 31 de enero de cada año.

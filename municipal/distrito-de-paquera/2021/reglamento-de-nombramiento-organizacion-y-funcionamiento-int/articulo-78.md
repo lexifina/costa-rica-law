@@ -1,0 +1,1 @@
+Artículo 78 - Se prohíbe el uso de carácter personal de dineros provenientes de ingresos por actividades deportivas o recreativas; por el incumplimiento de esta disposición, el responsable será expulsado del organismo u órgano correspondiente, debiendo reintegrar el dinero que en forma tal haya utilizado.

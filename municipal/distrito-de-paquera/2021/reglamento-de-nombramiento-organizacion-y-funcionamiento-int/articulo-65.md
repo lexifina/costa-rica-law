@@ -1,0 +1,1 @@
+Artículo 65 - Cada comisión deberá elaborar un plan de trabajo y rendirá un informe escrito en el plazo indicado al organismo u órgano respectivo, sobre las actividades realizadas y resultados obtenidos.

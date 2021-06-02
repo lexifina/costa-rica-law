@@ -1,0 +1,1 @@
+Artículo 32 - Los miembros de los Comités Comunales, Juntas Administrativas de Instalaciones Deportivas y demás organismos formados se juramentarán ante el Comité Distrital, quien extenderá además el carné que los acredita como tales.

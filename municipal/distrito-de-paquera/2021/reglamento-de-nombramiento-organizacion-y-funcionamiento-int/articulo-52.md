@@ -1,0 +1,1 @@
+Artículo 52 - Todo miembro deberá comunicar en forma escrita, las razones de su inasistencia a las sesiones, en la siguiente sesión; caso contrario, será catalogada la inasistencia como injustificada y sancionable.

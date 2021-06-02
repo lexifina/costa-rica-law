@@ -1,0 +1,2 @@
+Artículo 87 - El Comité Distrital podrá autorizar la colocación de rótulos en las instalaciones deportivas, siempre y cuando obtenga beneficio económico por tal autorización y lo permita la normativa aplicable al caso.
+Tales rótulos no podrán hacer alusión a publicidad para bebidas alcohólicas, anuncio de cigarrillos o aquellos que por su contenido atenten contra los principios éticos y morales de la comunidad.

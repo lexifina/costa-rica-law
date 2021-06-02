@@ -1,0 +1,1 @@
+Artículo 102 - Cualquier reforma que se proponga a este Reglamento, se pondrá en conocimiento del Comité Distrital para su valoración y recomendación, la que remitirá al Concejo Municipal para su aprobación o rechazo.

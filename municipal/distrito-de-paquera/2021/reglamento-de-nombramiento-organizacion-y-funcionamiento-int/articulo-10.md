@@ -1,0 +1,1 @@
+Artículo 10 - No podrán formar parte del Comité Distrital: Los concejales, el alcalde, los alcaldes suplentes, el tesorero, el auditor, el contador, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive, ni aquellas personas que tengan alguna relación contractual privada y que reciban cualquier clase de estipendio del Comité Distrital.

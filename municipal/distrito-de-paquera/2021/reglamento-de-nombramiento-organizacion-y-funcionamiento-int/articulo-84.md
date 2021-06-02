@@ -1,0 +1,1 @@
+Artículo 84 - Los equipos afiliados, los del programa de iniciación deportiva, equipos de liga menor y selecciones locales que representen oficialmente a la comunidad y que estén reconocidos por el Comité Distrital, tendrán prioridad para el uso de instalaciones.

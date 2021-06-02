@@ -1,0 +1,1 @@
+Artículo 69 - Corresponde a los miembros de la Junta Directiva del Comité coordinar la forma en que deben realizarse las labores misceláneas para mantener limpias las oficinas, entregar la correspondencia emitida por el Comité y realizar los trabajos de fotocopiado que se requieran.

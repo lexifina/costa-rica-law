@@ -1,0 +1,1 @@
+Artículo 93 - Los directivos del Comité Distrital no podrán formar parte o integrar los Comités Comunales, Juntas Administrativas de Instalaciones Deportivas, y Subcomités, según la estructura organizativa contenida en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 97 - Toda Asociación y Filial Deportiva para poder recibir ayudas económicas o materiales, deberá tomar un acuerdo donde se afilien al Comité Distrital y a su vez deberán ser juramentados en una sesión del Comité Distrital.

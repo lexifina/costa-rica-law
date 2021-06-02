@@ -1,0 +1,1 @@
+Artículo 77 - Cada año los tesoreros de los Comités Comunales, Juntas Administrativas de Instalaciones Deportivas y Sub-comités deberán presentar ante el Comité Distrital el libro de tesorería adjuntando las facturas, comprobantes y recibos correspondientes para su respectiva revisión; si éste no se presentare el Comité Cantonal paralizará cualquier gestión económica.

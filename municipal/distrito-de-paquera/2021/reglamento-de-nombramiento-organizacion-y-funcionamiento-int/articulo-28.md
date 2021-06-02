@@ -1,0 +1,1 @@
+Artículo 28 - Los Comités Comunales y Juntas Administrativas de Instalaciones Deportivas conformarán dentro de su seno una Junta Directiva compuesta por cinco miembros: presidente, vicepresidente, secretario, tesorero y vocal (capítulo VII art. 48) y desempeñarán iguales funciones que por esos cargos tienen los miembros del Comité Distrital.

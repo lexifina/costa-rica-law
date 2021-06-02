@@ -1,0 +1,1 @@
+Artículo 12 - Los Comités Comunales deberán entregar al Comité Distrital a más tardar el último día hábil del mes de junio de cada año, los planes de trabajo para el año inmediato posterior, los cuales, serán sujetos de aprobación por parte del Comité Distrital, el que ejercerá los controles debidos para su ejecución.
