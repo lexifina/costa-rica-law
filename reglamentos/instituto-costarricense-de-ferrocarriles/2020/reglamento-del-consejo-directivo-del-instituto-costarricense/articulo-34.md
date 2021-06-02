@@ -1,0 +1,1 @@
+Artículo 34.- Del respaldo de las actas. Cada acta levantada de las sesiones que celebre el Consejo Directivo debe llevar su respectivo expediente físico o digital, el cual estará formado por los documentos originales, copias o antecedentes de los asuntos que se ha conocido en cada sesión.

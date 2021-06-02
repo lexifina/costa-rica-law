@@ -1,0 +1,1 @@
+Artículo 36.- Integración de Comisiones. Para el desempeño de sus funciones, el Consejo Directivo de INCOFER integrará mediante acuerdo firme, libremente, las comisiones que juzgue convenientes, en atención a sus competencias de ley y se regirán por los lineamientos que al efecto dicte el Consejo Directivo.

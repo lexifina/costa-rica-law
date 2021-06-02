@@ -1,0 +1,1 @@
+Artículo 2.- Quórum estructural: La Dirección del Instituto corresponde al Consejo Directivo, que está integrado por siete miembros, de nombramiento y libre remoción del Consejo de Gobierno. Es necesario que la totalidad de los miembros que integran el quorum estructural hayan sido designados a efectos de que el órgano pueda sesionar.

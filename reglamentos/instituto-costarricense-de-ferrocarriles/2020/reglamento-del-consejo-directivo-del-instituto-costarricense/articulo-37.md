@@ -1,0 +1,3 @@
+Capítulo X
+Mejores prácticas de Gobierno Corporativo
+Artículo 37.- Gobierno Corporativo. El Gobierno Corporativo es el sistema por medio del cual, las instituciones son dirigidas y controladas, con el propósito de contribuir con el mejor desempeño de las organizaciones y consecuentemente, con una sociedad más justa, responsable y transparente. Este sistema se materializa mediante la adopción que este Consejo Directivo como máximo órgano jerárquico institucional adoptará las denominadas "mejores prácticas de Gobierno Corporativo", que tienen como objetivo aumentar el valor público y la importancia de las instituciones.

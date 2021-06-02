@@ -1,0 +1,1 @@
+Artículo 20.- Voto disidente: Los miembros del Consejo podrán hacer constar en el acta su voto contrario o disidente al acuerdo adoptado y los motivos que lo justifiquen, quedando en tal caso exentos de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.

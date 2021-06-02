@@ -1,0 +1,1 @@
+Artículo 31.- Participación de los Gerentes y otros funcionarios: A las sesiones del Consejo Directivo, podrán asistir los Gerentes y otros funcionarios, con voz pero sin voto, cuando sean convocados por el Consejo o por la Presidencia Ejecutiva, para tratar los asuntos propios de sus competencias-
