@@ -1,0 +1,1 @@
+Artículo 8°-Un puesto es considerado como teletrabajable si las actividades que desarrolla cumplen con lo indicado en los artículos 4 y 7 del presente reglamento, así como cualquier otra disposición que establezca el ordenamiento jurídico y lo que se indique en el contrato suscrito.

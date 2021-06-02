@@ -1,0 +1,1 @@
+Artículo 13.-Si se requiere el cambio de la modalidad de teletrabajo a la modalidad presencial, la jefatura debe presentar ante la Oficina de Recursos Humanos, una solicitud de exclusión del programa de teletrabajo con las razones que justifiquen dicha solicitud de acuerdo con lo establecido en el artículo 11 de la presente Normativa.

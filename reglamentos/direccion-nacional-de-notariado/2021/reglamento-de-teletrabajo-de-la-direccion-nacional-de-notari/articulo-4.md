@@ -1,0 +1,1 @@
+Artículo 4°-Los teletrabajadores están protegidos por la Póliza de Riesgos del Trabajo que tiene la Institución, siempre que se encuentren ejerciendo las labores propias de su cargo, bajo las disposiciones ergonómicas y de salud ocupacional que establezca la normativa.

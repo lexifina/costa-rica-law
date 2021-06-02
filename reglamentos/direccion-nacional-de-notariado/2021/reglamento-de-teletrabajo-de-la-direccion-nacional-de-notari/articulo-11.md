@@ -1,0 +1,6 @@
+Artículo 11.-El teletrabajador tendrá que reincorporarse a la modalidad presencial cuando se dé alguna de las siguientes circunstancias:
+a) Cambio en las condiciones del teletrabajador: Cuando la Comisión Institucional de Teletrabajo o el superior inmediato conozcan del incumplimiento de alguna de las condiciones o requisitos solicitados en este Reglamento.
+b) Por conveniencia institucional: Cuando se determine por las Autoridades Superiores de la Dirección Nacional de Notariado, que existe un interés institucional para que el teletrabajador continúe sus labores presencialmente.
+c) Por interés del superior inmediato: El superior inmediato deberá justificarlo debidamente ante la Comisión Institucional de Trabajo, para que este acuerde lo pertinente.
+d) Por interés del teletrabajador: Cuando el teletrabajador solicite la reincorporación a la modalidad presencial deberá justificarlo oportunamente a su superior inmediato y a la Comisión Institucional de Teletrabajo, para que estos acuerden lo pertinente.
+e) Por incumplimientos normativos: Cuando se demuestre, ante la Comisión Institucional de Teletrabajo, que el teletrabajador incumple con la normativa establecida, se dará por finalizada su participación en este programa, sin menoscabo de aplicar las medidas disciplinarias correspondientes de acuerdo con la normativa vigente.

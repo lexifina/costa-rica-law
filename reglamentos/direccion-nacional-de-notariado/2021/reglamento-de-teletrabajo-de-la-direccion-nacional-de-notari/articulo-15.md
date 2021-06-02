@@ -1,0 +1,1 @@
+Artículo 15.-Las computadoras utilizadas para el teletrabajo deben cumplir con todas las características técnicas, de conectividad y seguridad indicadas en la normativa que se establezca a nivel Institucional por parte de la Unidad de Tecnologías de Información y Comunicación.

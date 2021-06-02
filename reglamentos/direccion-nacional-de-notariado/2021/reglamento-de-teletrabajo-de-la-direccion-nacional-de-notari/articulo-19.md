@@ -1,0 +1,13 @@
+CAPÍTULO V
+Obligaciones de los Teletrabajadores
+Artículo 19.-Las funciones y responsabilidades de los trabajadores serán:
+a) El colaborador que se desempeñe como teletrabajador debe cumplir con los requisitos y el perfil que establece el Programa Institucional de Teletrabajo.
+b) El teletrabajador es responsable directo de la confidencialidad y seguridad de la información que utilice y pueda acceder, evitando por todos los medios su uso inapropiado, según se establece en la legislación vigente y la normativa institucional.
+c) El teletrabajador que acceda a esta modalidad de trabajo toma esta decisión de común acuerdo con su jefatura, siempre y cuando cumpla con los requisitos establecidos para el ingreso al programa.
+d) El teletrabajador debe garantizar un espacio físico con las características recomendadas en el documento técnico sobre teletrabajo del Instituto Nacional de Seguros.
+e) El teletrabajador debe firmar un contrato donde se especifican las condiciones del programa de teletrabajo.
+f) El teletrabajador es responsable de los activos institucionales que utilice y traslade hacia el lugar de trabajo. En caso de extravío o daño, debe proceder de acuerdo con lo que establece la normativa vigente.
+g) En caso de que el teletrabajador labore desde el hogar y se traslade de domicilio, debe prever todas las acciones necesarias para no interrumpir la ejecución de sus actividades, comunicando a su jefatura de manera inmediata, para gestionar los trámites correspondientes. Si el lugar al que se traslada no tiene acceso a la conectividad y no tiene las condiciones para laborar establecidas, deberá reintegrarse a su centro de trabajo.
+h) El teletrabajador debe estar disponible dentro de la jornada laboral acordada, para atender asuntos de su jefatura, compañeros y usuarios ya sea por medio del correo electrónico, teléfono, videoconferencia u otro medio. En caso de que la jefatura requiera la presencia física del teletrabajador, debe convocarse con antelación de 24 horas, solo casos muy calificados o excepcionales de extrema urgencia, el teletrabajador haría presencia inmediata, considerando los tiempos de traslados desde su lugar de teletrabajo, caso contrario, se aplicará lo que establece la normativa vigente. Se entiende que este traslado es de carácter transitorio.
+i) El teletrabajador debe asumir los gastos relacionados con el desarrollo de las actividades teletrabajables.
+j) El teletrabajador debe brindar información precisa y oportuna en todos los procesos de investigación, evaluación del desempeño y medición a los que deba someterse. En caso de comprobarse un incumplimiento, se procederá según lo establecido en la normativa vigente.

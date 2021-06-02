@@ -1,0 +1,1 @@
+Artículo 9°-Artículo 10. La institución mantendrá un programa de teletrabajo activo y se reserva la facultad de incorporar a sus teletrabajadores en esta forma de trabajo, así como el número de días teletrabajables, dependiendo de las condiciones, directrices de gobierno, disposiciones sanitarias, actividades, la conectividad disponible y otros aspectos que estime pertinentes.

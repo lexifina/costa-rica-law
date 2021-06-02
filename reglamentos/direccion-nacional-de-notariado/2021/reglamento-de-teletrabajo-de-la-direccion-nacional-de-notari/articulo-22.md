@@ -1,0 +1,1 @@
+Artículo 22.-La Unidad Administrativa coordinará las acciones para establecer el impacto financiero del programa de teletrabajo y brindará los informes respectivos a la Comisión Institucional de Teletrabajo.
