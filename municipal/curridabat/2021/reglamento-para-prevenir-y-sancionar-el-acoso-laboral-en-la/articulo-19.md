@@ -1,0 +1,1 @@
+Artículo 19.-Comparecencia oral y privada. La audiencia oral y privada con la Comisión Instructora, se regirá por lo dispuesto en Ley General de la Administración Pública y deberá programarse con al menos quince días hábiles de anticipación. En dicha audiencia se admitirá y recibirá toda la prueba y se oirán los alegatos y conclusiones de las partes.

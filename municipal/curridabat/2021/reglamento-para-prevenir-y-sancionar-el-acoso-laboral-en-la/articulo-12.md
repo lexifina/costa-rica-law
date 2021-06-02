@@ -1,0 +1,1 @@
+Artículo 12.-De la abstención y recusación. Cuando de conformidad con lo dispuesto en la Ley General de la Administración Pública, un integrante de la Comisión Instructora se inhiba o sea recusado en un caso determinado, se sustituirá por su respectivo suplente, de conformidad con la especialidad profesional requerida.

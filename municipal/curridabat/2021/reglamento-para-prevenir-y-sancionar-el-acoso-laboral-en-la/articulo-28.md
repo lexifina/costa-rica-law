@@ -1,0 +1,1 @@
+Artículo 28.-Normativa complementaria. En todos los demás aspectos no contenidos en este Reglamento, la Municipalidad procederá de conformidad con lo establecido en el Código Municipal, Ley General de la Administración Pública y Código de Trabajo.

@@ -1,0 +1,2 @@
+Artículo 25.-Recursos. Contra las resoluciones procederán los recursos establecidos en la Ley General de la Administración Pública, los cuales deberán ser planteados dentro de los términos de ley.
+La resolución final tendrá recurso de revocatoria ante el Alcalde o Concejo Municipal según corresponda y deberá ser interpuesto dentro de los tres días hábiles siguientes a la notificación de la resolución. Resuelto el recurso de revocatoria, se tiene por agotada la vía administrativa.

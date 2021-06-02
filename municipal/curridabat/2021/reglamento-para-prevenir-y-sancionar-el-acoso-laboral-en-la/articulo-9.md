@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la Comisión Instructora
+Artículo 9º-Naturaleza. La Comisión Instructora es una instancia técnica, de naturaleza investigativa, que funciona por denuncia interpuesta ante la Alcaldía Municipal. Esta comisión estará conformada por tres profesionales titulares; uno en Derecho, uno en Recursos Humanos y otro en Psicología y sus respectivos suplentes en las mismas áreas profesionales indicadas. Esta Comisión Instructora será nombrada por la Alcaldía, inmediatamente recibida la denuncia o por el Concejo Municipal según corresponda. La Comisión Instructora podrá solicitar el asesoramiento de expertos que conozcan de las características normales y patológicas del comportamiento humano u otros considerados necesarios.
