@@ -1,0 +1,1 @@
+Artículo 22.-Derogatoria. Este reglamento deroga el anterior Reglamento de Uso de Celulares del Instituto Nacional de Aprendizaje y el Manual para el uso y control de líneas, dispositivos y accesorios de telefonía celular propiedad del INA.

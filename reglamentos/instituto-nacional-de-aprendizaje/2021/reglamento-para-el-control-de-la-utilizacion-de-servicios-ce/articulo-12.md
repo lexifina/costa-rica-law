@@ -1,0 +1,1 @@
+Artículo 12.-Excedente. Cualquier suma que exceda el monto máximo antes señalado o aprobado por la CGI será cubierta en su totalidad por la persona funcionaria que utiliza el servicio, todo de acuerdo con el manual de procedimientos del presente reglamento.

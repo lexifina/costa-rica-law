@@ -1,0 +1,1 @@
+Artículo 21.-Acceso a la información. El INA se reserva el derecho de acceso a toda la información que requiera cuando el caso lo amerite, solicitando a las respectivas empresas proveedoras del servicio los registros de llamadas, duración y destinos, entre otros, o en su defecto, la solicitud expresa por escrito al suscriptor del derecho.

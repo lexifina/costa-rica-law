@@ -1,0 +1,1 @@
+Artículo 4º-Supervisión de cumplimiento. La URMA se encargará de velar por el cumplimiento del presente reglamento y su manual de procedimientos para el control de la utilización de servicios celulares bajo el pago tarifario.

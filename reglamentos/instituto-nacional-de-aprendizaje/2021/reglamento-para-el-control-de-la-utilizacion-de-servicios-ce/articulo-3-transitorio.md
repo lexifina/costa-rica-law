@@ -1,0 +1,1 @@
+Transitorio III: Cumplido el plazo establecido del Transitorio II, la GTIC procederá a la cancelación en un plazo máximo de cinco días hábiles de los contratos actualmente adquiridos por el INA y en vigencia.

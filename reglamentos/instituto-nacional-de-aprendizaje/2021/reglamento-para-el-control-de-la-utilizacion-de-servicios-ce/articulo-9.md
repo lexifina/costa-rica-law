@@ -1,0 +1,1 @@
+Artículo 9º-Mantenimiento y reparación de dispositivos. La persona usuaria será la responsable de atender cualquier requerimiento o gasto por concepto de mantenimiento correctivo y preventivo del dispositivo celular, en donde todo gasto devengado por este aspecto será cubierto en su totalidad por la persona funcionaria.

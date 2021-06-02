@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones finales
+Artículo 19.-Aspectos no contemplados en el presente reglamento. Los casos no previstos en este Reglamento, en materia de cuido y control de bienes, serán resueltos por la Comisión de Bienes Institucional del INA. Los demás aspectos serán resueltos en primera instancia por la URMA y en segunda instancia por la Subgerencia a cargo de lo Administrativo.

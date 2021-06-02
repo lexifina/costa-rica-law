@@ -1,0 +1,2 @@
+Artículo 10.-El derecho de pago de tarifa celular.
+El pago del derecho de tarifa celular será ejecutado al puesto ocupado por la persona funcionaria que lo faculta, detallado en el artículo 7) del presente reglamento.
