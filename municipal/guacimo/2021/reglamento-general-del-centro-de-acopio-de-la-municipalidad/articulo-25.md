@@ -1,0 +1,4 @@
+Artículo 25.-En el Centro de Acopio, se realizan los procesos pertinentes por unidades de producción según se detalla a continuación: Vidrio: 3 tipos de vidrio a quebrar (transparente, café y azul y otros según demanda y temporada).
+Clasificación general: Pet transparente, pet color, pet azul, pet amarillo, hdpe transparente, hdpe colores, galones, vasos varios, vidrio botellas, latas atunes, chatarra, vidrio quebrado, tapas de envases, platos varios, latas de cerveza, aluminio, bolsas plásticas, botellas 600 ml, botellas 350 ml, botellas licor, periódico, papel, aceite, cartón, cartoncillo, medias, botellas plásticas 2 litros, electrónicos, basura, guías telefónicas, baterías, cartuchos, entre otros.)
+Cartón: cartón, cartoncillo y basura.
+Papel: impreso, primera, color, periódico, folder, plástico, cartoncillo, basura.

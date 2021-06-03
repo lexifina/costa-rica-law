@@ -1,0 +1,1 @@
+Artículo 15.-El Centro de Acopio cuenta con los siguientes responsables: Encargado administrativo, coordinador centro de acopio, clasificadores generales, clasificadores de papel, embalador general, clasificador de vidrio, clasificador de cartón, supernumerario, ruteros, chofer.

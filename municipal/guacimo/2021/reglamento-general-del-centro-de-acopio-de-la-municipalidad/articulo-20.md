@@ -1,0 +1,1 @@
+Artículo 20.-El o la encargado(a) del Centro de Acopio debe rendir un informe semestral de gestión del Centro a la Alcaldía municipal. Y se debe rendir también un informe anualmente de gestión del Centro al Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 29.-La Municipalidad de Guácimo apoyará en la capacitación y entrenamiento a la organización responsable de velar por el funcionamiento de los diferentes equipos y maquinaria tanto estáticos como móviles con los que dispone el Centro de Acopio Municipal.

@@ -1,0 +1,1 @@
+Artículo 21.-Para lo dispuesto de las sanciones hacia los responsables del centro de acopio, se aplicará el Reglamento Interno de la organización responsable del Centro de Acopio, aplicándose las normas que regulan su funcionamiento.

@@ -1,0 +1,1 @@
+Artículo 7º-Contar con servicios sanitarios separados por cada género, y con ventilación directa. Cumpliendo los requisitos que dispone la Ley N° 7600 (Ley de Igualdad de Oportunidades para las Personas con Discapacidad).

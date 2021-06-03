@@ -1,0 +1,1 @@
+Artículo 5º-Cuando por las labores, las y los trabadores consuman alimentos en el lugar, se debe destinar un sitio especial para este fin, el cual debe reunir condiciones de orden e higiene. Así mismo contará con un dispositivo para el lavado de manos.

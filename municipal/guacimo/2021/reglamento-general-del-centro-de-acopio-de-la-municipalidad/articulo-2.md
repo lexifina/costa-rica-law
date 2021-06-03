@@ -1,0 +1,8 @@
+CAPÍTULO 2
+Conceptos generales
+Artículo 2º-
+Centro de acopio: sitio de almacenamiento temporal de residuos recuperables, donde son clasificados y separados de acuerdo con su naturaleza en plástico, cartón, papel, vidrio y metales, para su pesaje, compactado, empaque, embalaje y posterior venta.
+Centro de recuperación de residuos valorizables: sitio permanente de almacenamiento temporal de residuos para su valorización, donde los materiales recuperables son pesados, clasificados y separados de acuerdo con su naturaleza: plástico, cartón, papel, vidrio y metales (partes de vehículos, maquinaria y equipo en desuso, cable eléctrico, de telecomunicaciones, aluminio y otros metales), para su posterior venta. Estos centros de recuperación de residuos valorizables son comúnmente conocidos como centros de acopio y chatarreras.
+Basura: Mezcla de dos o más residuos y/o desechos colocados para llevar hasta un botadero o relleno sanitario.
+Desecho: Cualquier material generado por la actividad humana, sin valor económico o energético que necesita tratamiento y disposición final.
+Residuo: Cualquier material generado por la actividad humana recuperable por su valor económico o energético.

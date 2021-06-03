@@ -1,0 +1,1 @@
+Artículo 16.-La alcaldía municipal puede variar en cualquier momento la organización de la Administración del Centro de Acopio en común acuerdo con la organización responsable y de acuerdo con el organigrama establecido para ese fin.

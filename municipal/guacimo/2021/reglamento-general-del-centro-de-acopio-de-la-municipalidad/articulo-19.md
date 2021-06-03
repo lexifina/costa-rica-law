@@ -1,0 +1,1 @@
+Artículo 19.-En caso de presentarse alguna situación de hostigamiento sexual o acoso laboral se dispondrá lo que se establece en la legislación vigente (Ley contra el hostigamiento sexual en el empleo y la docencia (Ley N° 7476).

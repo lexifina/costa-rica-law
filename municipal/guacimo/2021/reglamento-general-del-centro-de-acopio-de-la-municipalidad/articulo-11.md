@@ -1,0 +1,1 @@
+Artículo 11.-Cumplir con las medidas de seguridad e higiene ocupacional estipuladas en la legislación vigente protegiendo a las y los trabajadores expuestos a riesgos fisicos, químicos, biológicos, mecánicos u otros atinentes a las labores que realizan.

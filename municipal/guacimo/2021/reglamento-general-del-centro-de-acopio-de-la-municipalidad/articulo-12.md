@@ -1,0 +1,1 @@
+Artículo 12.-La oficina debe ser adecuada, como mínimo equipada con CPU, monitor, impresora para documentación varia y una impresora para facturación, además de otras herramientas básicas. Sin desatender las ventajas tecnológicas de comunicación, control y vigilancia.
