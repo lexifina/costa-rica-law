@@ -1,10 +1,11 @@
-Artículo 14.—Organización. La organización de las Direcciones de Defensa responderá a los siguientes criterios: clasificación por temas, naturaleza y especificidad de las quejas admitidas, la demanda de servicios y los recursos humanos y materiales disponibles.
+Artículo 14.-Organización. La organización de las Direcciones de Defensa responderá a los siguientes criterios: clasificación por temas, naturaleza y especificidad de las quejas admitidas, la demanda de servicios y los recursos humanos y materiales disponibles.
 La Defensoría de los Habitantes contará con las siguientes Direcciones de Defensa:
 i) Dirección de la Defensoría de la Mujer
 ii) Dirección de Igualdad y No Discriminación
 iii) Dirección de Calidad de Vida
 iv) Dirección de Gobernanza Pública
-v) Dirección de Niñez y Adolescencia
+v) Dirección de Niñez, Adolescencia y Juventud
+(Así reformado el inciso anterior mediante acuerdo N° 2353 del 3 de junio del 2021)
 vi) Dirección de Estudios Económicos y Desarrollo
 vii) Dirección de Asuntos Laborales
 (Así adicionado el numeral anterior, por acuerdo N° 00001429 del 9 de enero del 2009)

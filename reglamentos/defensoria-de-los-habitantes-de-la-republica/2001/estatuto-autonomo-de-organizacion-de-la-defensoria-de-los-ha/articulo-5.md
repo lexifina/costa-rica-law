@@ -2,7 +2,7 @@ TÍTULO II
 Estructura y funciones
 CAPÍTULO I
 De la estructura orgánica
-Artículo 5º—Organización de la Defensoría de los Habitantes. Para el cumplimiento de sus atribuciones, la Defensoría de los Habitantes de la República contará con los siguientes órganos:
+Artículo 5º-Organización de la Defensoría de los Habitantes. Para el cumplimiento de sus atribuciones, la Defensoría de los Habitantes de la República contará con los siguientes órganos:
 a) Despacho
 i) Dirección de Despacho
 ii) Departamento de Comunicación Institucional
@@ -25,7 +25,8 @@ i) Dirección de la Defensoría de la Mujer
 ii) Dirección de Igualdad y No Discriminación
 iii) Dirección de Calidad de Vida
 iv) Dirección de Gobernanza Pública
-v) Dirección de Niñez y Adolescencia
+v) Dirección de Niñez, Adolescencia y Juventud
+(Así reformado el sub inciso anterior mediante acuerdo N° 2353 del 3 de junio del 2021)
 vi) Dirección de Estudios Económicos y Desarrollo
 vii) Dirección de Asuntos Laborales
 j) Instituto de Educación en Derechos Humanos de la
