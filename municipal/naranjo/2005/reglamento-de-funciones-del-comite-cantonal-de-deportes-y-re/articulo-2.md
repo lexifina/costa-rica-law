@@ -1,4 +1,5 @@
-Artículo 2º-El Comité Cantonal de Deportes y Recreación de Naranjo, estará integrado por siete miembros, respetando el principio de paridad de género, publicidad y transparencia, conforme la siguiente distribución de representantes:
+Artículo 2º-El Comité Cantonal de Deportes y Recreación de Naranjo estará Integrado por siete miembros, conforme la siguiente distribución de representantes:
+(Así reformado el párrafo anterior mediante sesión N° 10 del 3 de junio del 2021)
 a) Dos miembros de nombramiento y en representación del Concejo Municipal.
 b) Dos miembros representantes de las organizaciones deportivas y recreativas del cantón.
 c) Un miembro representante de las organizaciones comunales restantes.

@@ -15,3 +15,4 @@ Reglamento de Funciones del Comité Cantonal de Deportes y Recreación de Naranj
 | --- | --- | --- |
 | 1 | 2005-04-04 | la propia norma |
 | 2 | 2021-04-19 | Reglamento municipal 16 (2021-04-19) |
+| 3 | 2021-06-03 | Reglamento municipal 10 (2021-06-03) |
