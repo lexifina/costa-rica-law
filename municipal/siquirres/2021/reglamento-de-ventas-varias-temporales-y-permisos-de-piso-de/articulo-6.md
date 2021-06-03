@@ -1,0 +1,1 @@
+Artículo 6°-Para obtener un permiso de "piso de plaza", las personas físicas o jurídicas deberán suscribir con la Municipalidad de Siquirres un compromiso de cumplir con las reglas establecidas por ésta, para la operación del "piso de plaza" que le sea otorgado.

@@ -1,0 +1,1 @@
+Artículo 14°-Son causas de Suspensión Temporal del permiso de "Piso de Plaza" hasta por cinco días: la reincidencia por una vez, en cualquiera de las faltas descritas en el artículo once de este reglamento.

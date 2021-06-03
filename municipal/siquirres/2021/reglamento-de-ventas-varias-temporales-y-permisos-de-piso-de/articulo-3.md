@@ -1,0 +1,1 @@
+Artículo 3°-La Municipalidad coordinará y resolverá todos los asuntos pertinentes tales como, prevenciones y sanciones, que pueden incluso llegar a la cancelación del permiso, de conformidad con las disposiciones del presente reglamento, a través del Alcalde o de quien éste delegue dicha función.

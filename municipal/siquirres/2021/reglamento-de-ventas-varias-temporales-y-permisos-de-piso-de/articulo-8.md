@@ -1,0 +1,1 @@
+Artículo 8°-El permiso para la explotación de "pisos de plaza", por su naturaleza precaria y temporal, no será bajo ninguna condición transferible; en caso de pactarse por iniciativa del permisionario con terceras personas, será absolutamente nula y causa de revocación inmediata del permiso.

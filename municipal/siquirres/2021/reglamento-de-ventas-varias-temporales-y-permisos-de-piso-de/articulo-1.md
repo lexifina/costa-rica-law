@@ -1,0 +1,23 @@
+MUNICIPALIDAD DE SIQUIRRES
+El Concejo Municipal de la Municipalidad de Siquirres, conforme a las potestades conferidas por los artículos 4, inciso a) y 13 inciso c) del código Municipal, Ley N° 7794, y el artículo 170 de la Constitución Política, mediante Acuerdo N° 1323-06-04- 2021, de la sesión ordinaria N° 049, celebrada el martes 06 de abril del 2021 en el artículo V inciso 5), acordó aprobar el siguiente reglamento:
+REGLAMENTO DE VENTAS VARIAS, TEMPORALES
+Y PERMISOS DE PISO, DE PLAZAS DE LA
+MUNICIPALIDAD DE SIQUIRRES
+Considerando:
+I.-El artículo 154 de la Ley General de Administración Pública explícitamente establece que se pueden conceder permisos de uso del dominio público, los cuales serán a título precario y podrán ser revocados por razones de oportunidad o conveniencia sin responsabilidad de la administración.
+II.-El uso de los espacios públicos ubicados en el Cantón de Siquirres, son de Administración Municipal, siendo esta la responsable del uso correcto de dichos espacios.
+III.-El oficio 11629-DAGJ-1470-2008 del 04 de noviembre de 2009 de la Contraloría General de la República establece: ".en el caso de los permisos de uso, por su naturaleza de acto unilateral - distinto a un contrato - no está en estricto sentido sometido a las reglas de la Ley de Contratación Administrativa y su reglamento, pero en su otorgamiento debe mediar el buen criterio de la autoridad y su celo razonable, además de que como lo ha afirmado la Procuraduría General de la República."
+IV.-Según la opinión Jurídica OJ-035-1997 del 05 de agosto de 1997 el órgano superior consultivo ha facultado el cobro de un canon a modo de contraprestación por el uso de un bien de dominio público indicando lo siguiente: ".si bien es principio general la gratuidad del uso del dominio público, el uso especial o privativo, por suponer una ventaja individual, autoriza una tasa, contribución especial o contraprestación, para cubrir entre otros los gastos de conservación, y vigilancia, pero quien en ningún caso puede alegar derecho de uso gratuito, es el que con fines comerciales o económicos y de una manera especial, aprovecha una dependencia del dominio público, habilitada o construida para fines especiales, aunque ella indirectamente satisfaga un fin general o colectivo.".
+V.-El dictamen C-328-2009 del 30 de noviembre 2009 de la Procuraduría General de la República establece que las municipalidades se encuentran habilitadas para otorgar permisos de uso sobre los bienes de dominio público que les corresponde administrar, así como que el otorgamiento de estos permisos debe fundamentarse en la existencia de una razón de interés público que los justifique.
+VI.-El eventual uso autorizado por los permisos en precario, deben ser compatibles con el fin al cual se encuentra afectado el bien demanial objeto del préstamo, y que dicho préstamo según la jurisprudencia administrativa y constitucional deben ser sujetos a un canon.
+VII.-Por la vía del permiso de uso, dado su carácter precario, la administración local no debe autorizar un uso con vocación de permanencia sobre un bien de dominio público. En todo caso, debe insistirse en que estos permisos pueden ser revocados en cualquier momento de conformidad con la reglamentación y la legislación vigente.
+VIII.-Ante la eventual colocación de publicidad en los espacios de dominio público otorgados a título de permiso, debe someterse a las restricciones legales que limitan la colocación de material publicitario en las vías públicas, y en los derechos de vías, amén de otras categorías de bienes públicos.
+IX.-La Municipalidad de Siquirres de conformidad con las atribuciones que le confieren los artículos 2, 4 incisos d), e) y h), 6, 17 y 77 del Código Municipal, dicta el siguiente Reglamento de ventas varias, temporales y permisos de piso, de plazas de la Municipalidad de Siquirres.
+REGLAMENTO DE VENTAS VARIAS, TEMPORALES
+Y PERMISOS DE PISO, DE PLAZAS DE LA
+MUNICIPALIDAD DE SIQUIRRES
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1°-Para los efectos de este Reglamento se definen los siguientes conceptos:
+1.- Pisos de Plaza. Lugares que la Municipalidad destine para autorizar ventas varias, ocasionales o temporales. Los puestos autorizados, podrán vender artículos y productos de consumo masivo preparados y no preparados, uso cosmético, y otros tipos de bienes y servicios; a excepción de la venta de animales ya sea en condición de vivos o sacrificados, productos explosivos o bebidas alcohólicas. Quedará a discrecionalidad del Alcalde Municipal autorizar otros usos.
+2.- Permisionario. Personas físicas o jurídicas en favor de quienes la Municipalidad de Siquirres extienda un permiso para la explotación temporal de "pisos de plaza".

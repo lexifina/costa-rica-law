@@ -1,0 +1,2 @@
+Artículo 16.-Las anteriores sanciones serán conocidas por el Departamento Legal de la Municipalidad de Siquirres, siguiendo al efecto el Procedimiento Sumario regulado en los artículo 320 y siguientes de la Ley General de la Administración Pública y cuya decisión recae sobre el Alcalde Municipal.
+La Municipalidad no estará obligada por ningún concepto y bajo ninguna circunstancia, pagar indemnización alguna; por tratarse de un permiso que otorga un uso en precario al permisionario.
