@@ -14,3 +14,4 @@ Medidas administrativas temporales de atención al usuario externo de la Direcci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-03 | la propia norma |
+| 2 | 2021-06-03 | Resolución 114 (2021-06-03) |
