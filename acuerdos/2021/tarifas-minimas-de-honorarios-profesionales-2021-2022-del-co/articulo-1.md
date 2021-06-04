@@ -1,0 +1,16 @@
+COLEGIO CIRUJANOS DENTISTAS DE COSTA RICA
+El Colegio de Cirujanos Dentistas de Costa Rica informa a todos los colegiados que en la sesión ordinaria de Junta Directiva N° 1751 celebrada el 12 de mayo del 2021, se llegó al acuerdo que se expresa literalmente a continuación:
+COMISIÓN DE TARIFAS MÍNIMAS DEL COLEGIO
+DE CIRUJANOS DENTISTAS DE COSTA RICA
+HONORARIOS PROFESIONALES 2021-2022
+El Colegio de Cirujanos Dentistas de Costa Rica informa a todos los colegiados que en la sesión ordinaria de Junta Directiva N° 1751 celebrada el 12 de mayo del 2021, se llegó al acuerdo que se expresa literalmente a continuación:
+Este tarifario contempla un monto mínimo de acatamiento obligatorio para todas aquellas personas físicas, sean odontólogos o no y jurídicas, que presten servicios odontológicos.
+Quedan facultados los agremiados a establecer sus honorarios en montos mayores a los fijados en este tarifario de acuerdo a los costos propios de sus clínicas y del grado de especialidad del profesional que da el servicio, para ello pueden utilizar la tabla de costos y honorarios profesionales para calcular individualmente sus costos de operación y honorarios correspondientes.
+El salario mínimo del Odontólogo General Clínico se establece en ¢1.128.000 salario bruto al mes en jornada ordinaria, (artículo 136 del Código de Trabajo). Las contrataciones por menor tiempo llevarán una relación proporcional con base a este salario mínimo establecido, debiendo además de cumplirse con las obligaciones obrero-patronales. Deberá integrarse como componente del salario de previa referencia, los incentivos establecidos en la Ley N° 6836 de Incentivos a los Profesionales en Ciencias Médicas, estos últimos en lo que resultaren aplicable al profesional en Odontología.
+Notas adicionales:
+1. El cobro de los tratamientos dentales que no estén establecidos en este tarifario deben ser consultados vía escrita por los interesados, consultas que serán analizados por la Comisión de Tarifas, la que rendirá informe a la Junta Directiva, siendo esta última la que se pronuncie en definitiva sobre el particular.
+2. Estas tarifas aplican para todas las instituciones, Empresas, Sociedades, Fundaciones, Instituto Nacional de Seguros (INS), Aseguradoras no Estatales y Odontólogos en general y cualesquiera otro que surja y en la que se brinden servicios de Odontología. El irrespeto del cobro de las tarifas mínimas se tendrá como una violación al Código de Ética, se considerará competencia desleal, por lo que al Odontólogo responsable se le aplicará la sanción que establezca la Ley Orgánica del Colegio de Cirujanos Dentistas de Costa Rica, previo cumplimiento del debido proceso.
+3. La Tarifa mínima actualizada contempla todos los incrementos de insumos de bioseguridad en relación a los acontecimientos de la Pandemia por COVID-19 y de conformidad con las recomendaciones emitidas por el Colegio de Cirujanos Dentistas y los lineamientos emitidos por el Ministerio de Salud para realizar tratamientos con aerosol y sin aerosol, todo con el objetivo de velar por el cumplimiento de las medidas de Bioseguridad y con el fin lograr mantener la rentabilidad y sostenibilidad de las Clínicas Dentales.
+[imagen]
+[imagen]
+[imagen]
