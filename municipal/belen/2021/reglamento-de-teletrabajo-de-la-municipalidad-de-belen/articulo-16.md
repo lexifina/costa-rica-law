@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Finalización del teletrabajo
+Artículo 16.-Revocatoria de la modalidad de teletrabajo. La persona empleadora tiene la potestad de otorgar y revocar la modalidad de teletrabajo, cuando así lo considere conveniente, con fundamento en las políticas y los lineamientos emitidos al efecto; dicha revocatoria deberá plantearse con al menos diez días naturales de anticipación y aplica únicamente cuando la modalidad de teletrabajo haya sido acordada con posterioridad al inicio de la relación laboral. La revocatoria deberá comunicarse a la persona teletrabajadora con al menos, al menos por escrito y debe detallar los motivos debidamente razonables y proporcionales en los que se respalda la decisión con fundamento en las políticas y los lineamientos emitidos al efecto.

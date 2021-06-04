@@ -1,0 +1,3 @@
+Artículo 17.-Regulaciones adicionales. Lo no regulado expresamente por este reglamento se aplicará Ley para Regular el Teletrabajo N° 9738 del 18 de setiembre de 2019, y Decreto Ejecutivo N° 37695 "Promoción del Teletrabajo en las Instituciones Públicas" del 11 de febrero del 2013 y las disposiciones que emita el Ministerio de Trabajo en esta materia.
+Se acuerda por unanimidad: primero: no habiendo conocido objeciones a la propuesta de Reglamento de Teletrabajo de la Municipalidad de Belén, queda el mismo definitivamente aprobado. Segundo: girar instrucciones a la Secretaría del Concejo para que sea publicado en La Gaceta.
+San Antonio de Belén, Heredia, 21 de junio del 2021.
