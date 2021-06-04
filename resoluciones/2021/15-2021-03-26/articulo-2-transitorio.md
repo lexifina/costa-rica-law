@@ -1,0 +1,2 @@
+TRANSITORIO II: Las Municipalidades y Concejos Municipales de Distrito, contarán con un periodo de tres meses a partir de la publicación de la presente resolución, para suministrar por única vez la base acumulada de patentados, según la estructura descrita en el Anexo 4. Posterior a esta entrega, solo se suministrarán las actualizaciones de los movimientos correspondientes y quedarán sujetos a lo dispuesto en esta resolución que le sea aplicable.
+Vigencia: La presente resolución rige a partir de su publicación.
