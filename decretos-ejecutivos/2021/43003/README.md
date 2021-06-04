@@ -17,3 +17,4 @@ Restricción sanitaria vehicular temporal del 19 de mayo al 13 de junio del 2021
 | 2 | 2021-05-19 | Decreto Ejecutivo 43004 (2021-05-19) |
 | 3 | 2021-05-21 | Decreto Ejecutivo 43008 (2021-05-21) |
 | 4 | 2021-05-28 | Decreto Ejecutivo 43029 (2021-05-28) |
+| 5 | 2021-06-04 | Decreto Ejecutivo 43035 (2021-06-04) |
