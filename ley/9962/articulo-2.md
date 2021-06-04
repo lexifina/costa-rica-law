@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Municipalidad de Coto Brus para que segregue diez mil metros cuadrados (10000 m2), del lote de su propiedad descrito en el artículo 1 de esta ley, y se reserva el resto de la finca, con su naturaleza actual, para la Municipalidad de Coto Brus.
