@@ -15,3 +15,4 @@ Reglamento para el proceso de cobro administrativo, extrajudicial y judicial de 
 | --- | --- | --- |
 | 1 | 2020-05-14 | la propia norma |
 | 2 | 2021-05-10 | Reglamento municipal 54 (2021-05-10) |
+| 3 | 2021-06-07 | Reglamento municipal 58 (2021-06-07) |

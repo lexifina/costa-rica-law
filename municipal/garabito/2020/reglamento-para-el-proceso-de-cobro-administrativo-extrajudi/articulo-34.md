@@ -1,2 +1,2 @@
 Artículo 34.-Informes de los abogados. Los abogados internos y externos deberán presentar a la Alcaldía Municipal, al Concejo Municipal y a la sección de Servicios Financieros, un informe dentro del plazo de los primeros cinco (5) días hábiles de cada mes sobre la gestión de los casos asignados. Lo anterior sin perjuicio de que se solicite extraordinariamente en otras fechas, información del estado de los casos asignados.
-(Así reformado en sesión N° 54 del 10 de mayo del 2021)
+(Así reformado mediante sesión N° 58 del 7 de junio del 2021)
