@@ -1,0 +1,1 @@
+Artículo 22.-De Logística. Analizar las opciones de compra de tiquetes aéreos; sea directamente con la línea aérea u otro medio vía internet y seleccionar la que para ese evento convenga a la institución, en cuanto a precio, tiempo y servicio.

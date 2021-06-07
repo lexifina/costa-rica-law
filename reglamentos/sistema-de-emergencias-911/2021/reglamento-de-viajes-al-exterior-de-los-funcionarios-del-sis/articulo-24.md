@@ -1,0 +1,1 @@
+Artículo 24.-Alcance. Para todos los efectos no contemplados en este Reglamento, rige lo establecido en el Reglamento de Gastos de Viaje y Transporte para funcionarios públicos de la Contraloría General de la República.

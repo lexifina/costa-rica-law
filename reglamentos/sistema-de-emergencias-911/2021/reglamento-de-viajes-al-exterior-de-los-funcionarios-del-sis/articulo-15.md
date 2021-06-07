@@ -1,0 +1,2 @@
+Artículo 15.-Compra de boletos o tiquetes aéreos. Cuando así proceda, el funcionario que viaja es el responsable de tramitar la compra de los boletos o tiquetes aéreos ante Logística, de conformidad con lo establecido en la Ley de Contratación Administrativa y su Reglamento.
+El objeto de gasto a utilizar en este rubro debe coincidir con la estructura de gasto del clasificador del Ministerio de Hacienda y se deberá cotizar una vez que se tenga la solicitud debidamente aprobada por la Dirección.
