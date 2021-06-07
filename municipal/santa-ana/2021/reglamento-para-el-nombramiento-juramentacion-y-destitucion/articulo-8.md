@@ -1,0 +1,2 @@
+Artículo 8°-Del proceso de juramentación. Esta deberá realizarse en una sesión del Concejo, de lo cual el secretario/a emitirá una certificación y lo enviará al director/a del centro educativo para el trámite de acreditación de la junta ante el Ministerio de Educación.
+La juramentación puede ser realizada en sesión virtual con cámara y micrófono encendidos para observar que las personas estén de pie y con su mano derecha levantada.

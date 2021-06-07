@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE SANTA ANA
+Que, en el Diario Oficial La Gaceta N° 57 del 23 de marzo del 2021, se publicó para consulta pública no vinculante el "Reglamento para el Nombramiento, Juramentación y Destitución de las Personas Integrantes de las Juntas de Educación y Administrativas" y, vencido el plazo, no se recibieron objeciones; por lo que, mediante Acuerdo N° 11 adoptado por el Concejo Municipal de Santa Ana en sesión ordinaria N° 56-2021, celebrada el 25 de mayo del 2021, se aprobó de forma definitiva el Reglamento precitado, ordenándose la segunda publicación para su entrada en vigor, conforme al artículo 43 del Código Municipal, Ley N° 7794:
+"REGLAMENTO PARA EL NOMBRAMIENTO, JURAMENTACIÓN Y DESTITUCIÓN DE LAS PERSONAS INTEGRANTES DE
+LAS JUNTAS DE EDUCACIÓN Y ADMINISTRATIVAS.
+Considerando:
+I.-Que el inciso g del artículo 13 del Código Municipal le atribuye al Concejo Municipal el nombramiento directo; por mayoría simple y con criterio de paridad de género; a las personas que integrarán las juntas administrativas y de educación de los centros oficiales de enseñanza.
+II.-Que el artículo 54 del Código Municipal encarga a los Concejos de Distrito la tarea de velar por la eficiencia de la actividad del sector público, dentro de la cual está inmersa la educación.
+III.-Que el artículo 15 del Reglamento General de Juntas de Educación y Juntas Administrativas, Decreto N° 38249-MEP; dispone que el supervisor del centro educativo presentará ante el Concejo Municipal las ternas propuestas por el director o directora del centro educativo, sobre las cuales el Concejo Municipal debe realizar la selección y nombramiento de los cinco miembros que conformarán la junta, así como su posterior juramentación. Por tanto,
+SE ACUERDA:
+Artículo 1°-Objeto del Reglamento. El presente reglamento establece el procedimiento para la selección de las personas propuestas por cada centro educativo para que integren las juntas de educación y administrativas de cada escuela o colegio públicos existentes en el cantón.
