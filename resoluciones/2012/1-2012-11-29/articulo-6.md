@@ -2,4 +2,4 @@
 Monto del Impuesto específico anterior, multiplicado por 1 (uno) más el porcentaje de variación de los índices de precios al consumidor (IPC), establecidos en el punto anterior. Los montos determinados deberán contener tres decimales, redondeando hacia arriba el tercer decimal, cuando el cuarto decimal sea igual o superior a cinco (5).
 ¢0,4 * 1,01047 = ?0,404
 Tipo de Bebidas | Impuesto por mililitro de Alcohol
-a. Cerveza | 0,479 (Así actualizado el impuesto anterior por el artículo 1° de la resolución N° INDER-PE-AT-RG-020-2021 del 22 de febrero del 2021)
+a. Cerveza | 0,474 (Así actualizado el impuesto anterior por el artículo 1° de la resolución N° INDER-PE-AT-RG-056-2021 del 7 de junio del 2021)
