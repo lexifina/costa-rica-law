@@ -1,0 +1,2 @@
+Artículo 6°-Publicación en SICOP. El Departamento de Proveeduría procederá a realizar la publicación del cartel del concurso en SICOP, realizado con base en la aplicación del procedimiento sustitutivo al ordinario, con el fin de que los potenciales oferentes conozcan los términos para presentar la plica."
+Una vez publicado el cartel en la plataforma de SICOP, los oferentes tendrán un plazo de 5 días hábiles para la presentación de las ofertas y una vez vencido este plazo, se realiza la apertura de las ofertas.

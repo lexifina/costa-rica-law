@@ -1,0 +1,2 @@
+Artículo 20.-Evaluación de la experiencia de compras por las personas menores de edad. Los profesionales del Equipo Técnico de Albergues llenarán, conjuntamente con las personas menores de edad, los instrumentos dispuestos por la Gerencia Técnica para la evaluación de la satisfacción de las personas menores de edad.
+Dichos instrumentos deberán ser incorporados al expediente de compras de cada dirección regional, aldea u otra instancia institucional que tenga a cargo albergues.

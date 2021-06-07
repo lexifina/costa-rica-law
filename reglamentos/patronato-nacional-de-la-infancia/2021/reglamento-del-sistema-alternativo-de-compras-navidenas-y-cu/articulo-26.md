@@ -1,0 +1,2 @@
+Artículo 26.-Vigencia. La vigencia del presente sistema será por un periodo de un año a partir de su publicación en el Diario Oficial La Gaceta, pudiéndose prorrogar según autorización de la Contraloría General de la República.
+Autorizado por la Contraloría General de la República mediante oficio N° 07545 (DCA-2075). Aprobado por Junta Directiva acuerdo PANI-JD-OF-106-2021, sesión ordinaria N° 2021-017, del 01 de junio de 2021, artículo 005), aparte 01)

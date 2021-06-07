@@ -1,0 +1,5 @@
+Artículo 14.-Cronograma de ejecución de las compras. Deberá elaborarse un cronograma para compras navideñas y otro para las compras del curso lectivo.
+El Equipo de compras deberá preparar el respectivo cronograma de compras, el cual contendrá, al menos, la siguiente información: fecha y horario de visitas a los comercios, la lista de las personas menores de edad que asistirán en esas fechas y horas, los detalles del transporte, las personas que integran el equipo de compras y su distribución de la supervisión de cada persona menor de edad.
+Ambos cronogramas deberán ser remitidos al equipo que designe la Gerencia Técnica para el seguimiento de este proceso cada año. El envío se realizará por correo electrónico por medio de un oficio firmado por cada Directora Regional, Coordinador de aldea u otra instancia institucional que tenga a su cargo albergues.
+Para la elaboración de este cronograma deberán: haber coordinado previamente con el contratista, con el fin de acordar la fecha y hora para efectuar las respectivas compras.
+El cronograma deberá ser elaborado únicamente a través del formato establecido por la Gerencia Técnica para este fin.
