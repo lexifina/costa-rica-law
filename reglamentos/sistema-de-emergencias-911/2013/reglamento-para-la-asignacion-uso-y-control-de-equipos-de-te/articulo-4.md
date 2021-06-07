@@ -1,1 +1,0 @@
-Artículo 4º—Uso exclusivo. Tanto el servicio de telefonía móvil como el acceso a internet son de uso exclusivo del funcionario al cual se le asigna, para atender y realizar las funciones propias del cargo que desempeña para el 9-1-1.

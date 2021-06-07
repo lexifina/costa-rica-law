@@ -1,1 +1,0 @@
-Artículo 5º—Del recibo del equipo móvil. Aprobada la asignación, y de previo a su entrega por el Área de Electromecánica y Telefonía de la Institución, el funcionario a quien se le haya hecho la asignación, firmará un recibido conforme, responsabilizándose de los bienes que en él se describan.
