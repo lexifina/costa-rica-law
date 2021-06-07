@@ -1,0 +1,1 @@
+Artículo 7°-Procedimiento para la adquisición de productos alimenticios: Para la contratación de los servicios de alimentación se ejecutará lo dispuesto en la Ley de Contratación Administrativa y su Reglamento, y la normativa interna que regule el tema de los casos que corresponda el pago por compras menores.

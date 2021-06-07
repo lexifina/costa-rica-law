@@ -1,0 +1,1 @@
+Artículo 5°-De la alimentación y las bebidas: Los alimentos y bebidas que se autorizan independientemente del tipo de actividad que se desarrolle, seguirán los principios definidos en el artículo 3 y según la cuantía definida en el artículo 6 del presente Reglamento.

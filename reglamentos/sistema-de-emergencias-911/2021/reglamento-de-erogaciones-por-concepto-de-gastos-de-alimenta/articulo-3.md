@@ -1,0 +1,1 @@
+Artículo 3°-Principios: Los gastos de alimentación atenderán a los principios de racionalidad, razonabilidad, pertinencia, austeridad y contención del gasto público, actuando apegado a una sana administración de los recursos, al interés público y bajo responsabilidad de la Administración.
