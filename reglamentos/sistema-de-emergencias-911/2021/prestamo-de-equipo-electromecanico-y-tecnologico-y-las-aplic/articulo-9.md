@@ -1,0 +1,1 @@
+Artículo 9º-El encargado de Logística Operativa del 9-1-1 deberá revisar, en primera instancia, el inventario anual realizado, y ser validado con la institución a la cual pertenece el despacho. De existir algún faltante o diferencia, se la comunicará al Despacho respectivo y al Coordinador del Proceso de Logística, para que se realice los trámites que correspondan.

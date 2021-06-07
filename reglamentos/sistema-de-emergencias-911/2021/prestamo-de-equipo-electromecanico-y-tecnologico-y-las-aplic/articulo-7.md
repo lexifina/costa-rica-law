@@ -1,0 +1,1 @@
+Artículo 7º-Cuando se presente el extravío, robo o hurto, de algún activo, la institución encargada deberá, además de cumplir con lo dispuesto en el artículo anterior, realizar la denuncia ante las autoridades judiciales correspondientes y emitir un informe sobre lo sucedido, donde se detallen las condiciones, lugar, fecha y hora en que se dieron los hechos.

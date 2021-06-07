@@ -1,0 +1,1 @@
+Artículo 6º-En caso de falla o daño sufrido por el equipo o aplicación, el funcionario encargado del Despacho deberá notificar al Supervisor de turno del Sistema la situación, a la mayor brevedad posible, para que este realice el reporte al personal técnico y se resuelva el problema.

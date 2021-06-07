@@ -1,0 +1,1 @@
+Artículo 8º-Cuando se asignen activos o aplicaciones o cualquier otro equipo a un despacho el 9-1-1 deberá confeccionar el "Acta de entrega de equipos y aplicaciones", en la cual se deberá describir con absoluta precisión todos los objetos que se estén brindando, la cual deberá ser firmada por representantes autorizados del Sistema y de la institución correspondiente.
