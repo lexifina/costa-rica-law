@@ -1,1 +1,0 @@
-Artículo 13.—El solicitante deberá entregar el formulario y sus requisitos en el lugar y fecha que establezca cada Concejo de Distrito. La sola presentación de la solicitud no acredita al solicitante como beneficiario.
