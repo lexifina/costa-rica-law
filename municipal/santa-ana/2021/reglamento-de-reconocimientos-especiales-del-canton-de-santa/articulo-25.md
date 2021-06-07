@@ -1,0 +1,1 @@
+Artículo 25.-De la derogatoria a disposiciones anteriores. Queda derogado el Reglamento de Reconocimientos y Méritos de la Municipalidad de Santa Ana, publicado en el Diario Oficial La Gaceta Nº 171, del 6 de setiembre de 2007.

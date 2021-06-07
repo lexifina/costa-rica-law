@@ -1,0 +1,1 @@
+Artículo 15.-De la declaratoria. El Concejo Municipal conocerá la recomendación de la Comisión en la sesión convocada al efecto y tomará el acuerdo de otorgar el reconocimiento por mayoría calificada.

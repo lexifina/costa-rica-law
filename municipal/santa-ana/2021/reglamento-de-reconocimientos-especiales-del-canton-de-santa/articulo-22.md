@@ -1,0 +1,1 @@
+Artículo 22.-Del registro de reconocimientos. Corresponde a la Secretaría Municipal llevar el registro del otorgamiento de reconocimientos y su revocatoria, mismo que deberá ser publicado en los medios electrónicos oficiales de la Municipalidad. De igual manera, estará facultada para emitir certificaciones de dicho registro.

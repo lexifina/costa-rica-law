@@ -1,0 +1,1 @@
+Artículo 24.-De las reformas al presente reglamento. Cualquier reforma total o parcial al presente reglamento deberá ser sometida al mismo proceso que el estipulado para la reforma del Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal de Santa Ana.

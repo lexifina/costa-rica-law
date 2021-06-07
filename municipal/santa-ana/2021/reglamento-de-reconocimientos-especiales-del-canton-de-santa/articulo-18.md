@@ -1,0 +1,1 @@
+Artículo 18.-Del plazo para la postulación a Reconocimientos Menores. Las postulaciones para Reconocimientos Menores podrán ser recibidas de previo al inicio de la sesión del Concejo Municipal. Cerrado el plazo no se admitirá ninguna postulación, a menos que así se acuerde por unanimidad de votos del Concejo Municipal.

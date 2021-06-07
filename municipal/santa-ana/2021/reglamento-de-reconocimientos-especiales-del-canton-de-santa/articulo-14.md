@@ -1,0 +1,1 @@
+Artículo 14.-De la recomendación de la Comisión de Reconocimientos Mayores. La Comisión de Reconocimientos Mayores emitirá sus recomendaciones, con al menos quince días de antelación a la fecha de la sesión programada para su otorgamiento, con el fin de permitir a la administración la confección de los galardones correspondientes.

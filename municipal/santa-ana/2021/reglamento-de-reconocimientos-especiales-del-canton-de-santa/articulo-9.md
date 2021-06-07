@@ -1,0 +1,1 @@
+Artículo 9º-Del plazo para la postulación a Reconocimientos Mayores. Las postulaciones serán recibidas hasta 60 días antes la fecha de la sesión programa para su otorgamiento. Cerrado el plazo no se admitirá ninguna postulación, a menos que así se acuerde por unanimidad de votos del Concejo Municipal.

@@ -1,0 +1,2 @@
+Transitorio I.-El límite al otorgamiento de reconocimientos mayores contemplado en el artículo 6 no se aplicará cuando éstos sean otorgados a mujeres hasta tanto la cantidad de reconocimientos mayores otorgados a mujeres sea igual a la cantidad otorgada a hombres, en cada categoría de reconocimientos mayores definida en el artículo 4 del presente reglamento. La Secretaría del Concejo Municipal velará por llevar el registro de lo anterior.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
