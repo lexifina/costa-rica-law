@@ -1,1 +1,0 @@
-Artículo 5º—Del domicilio del Fondo. El domicilio del Fondo será la ciudad de Limón, donde tendrá su sede, pudiendo establecer oficinas o representaciones en cualquier parte de la provincia o fuera de ella, por acuerdo de su Junta Directiva

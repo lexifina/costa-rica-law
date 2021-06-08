@@ -1,1 +1,0 @@
-Artículo 33.—Programación de Fondos. El Director Ejecutivo elaborará una propuesta de programación de los recursos del Fondo, que presentará a la Junta para su respectiva aprobación a más tardar en el mes de setiembre de cada año, siendo esta canalizada por las instancias institucionales respectivas.

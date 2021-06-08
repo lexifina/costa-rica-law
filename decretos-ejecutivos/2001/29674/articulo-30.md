@@ -1,3 +1,0 @@
-Artículo 30.—Aprobación de las Actas. Las actas serán sometidas a aprobación de la Junta en la sesión siguiente para su aprobación y corrección. Una vez realizadas las correcciones, si las hubieran, el acta quedará aprobada en firme.
-Dicho documento será transcrito en el libro de actas oficiales y será firmado por el Presidente y el Secretario de Actas, dando fe de que dicha transcripción es copia fiel del documento aprobado por la Junta.
-Los miembros de la Junta podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando así exentos de la responsabilidad que en su caso pudieran derivarse de tal acuerdo.
