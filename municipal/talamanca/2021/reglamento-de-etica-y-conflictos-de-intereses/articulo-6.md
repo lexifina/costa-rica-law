@@ -1,0 +1,1 @@
+Artículo 6º-La Comisión de Gestión de Riesgo y Control Interno, establecerá los mecanismos adecuados para canalizar las denuncias por incumplimiento de conductas, y resolver sobre estas de acuerdo a la normativa interna.

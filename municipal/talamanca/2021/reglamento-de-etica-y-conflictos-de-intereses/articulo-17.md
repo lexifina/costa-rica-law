@@ -1,0 +1,2 @@
+Artículo 17.-Sanciones y procedimientos. Toda persona trabajadora de la Municipalidad de Talamanca tiene el deber de cumplir las disposiciones del presente Código y por lo tanto mantenerse informado de su contenido y de cualquier modificación posterior que haga de conocimiento la Alcaldía Municipal.
+La transgresión de los deberes éticos y prohibiciones impuestas por el presente Código, se consideran una infracción, generándose responsabilidad pasible de sanción al empleado público de la Municipalidad de Talamanca.

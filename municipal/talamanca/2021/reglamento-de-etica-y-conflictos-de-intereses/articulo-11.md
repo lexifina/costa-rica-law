@@ -1,0 +1,1 @@
+Artículo 11.-El cantón de Talamanca es pluricultural y multiétnico, por lo cual se rechaza cualquier tipo de discriminación ya sea por raza, genero, credo, orientación sexual, condición socioeconómica, hacia cualquiera de los funcionarios de la Municipalidad.

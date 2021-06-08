@@ -1,0 +1,1 @@
+Artìculo12.-Ningún funcionario municipal debe de incurrir en conducta de acoso sexual o laboral, así como cualquier otra conducta que conlleve a dañar física y mentalmente a un compañero o compañera de trabajo.

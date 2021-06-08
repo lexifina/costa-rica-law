@@ -1,0 +1,1 @@
+Artículo 14.-Los funcionarios municipales deben de participar en aquellas capacitaciones que se brinden con el fin de conocer los avances tecnológicos y nuevas formas de realizar las labores en las oficinas municipales o en el campo según sea su trabajo.

@@ -1,0 +1,1 @@
+Artículo 8º-Para poder realizarle una modificación al Código de ética, la misma debe consensuarse entre la Alcaldía Municipal, la Comisión de Gestión de Riesgo y Control Interno y el Concejo Municipal.
