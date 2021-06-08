@@ -14,3 +14,4 @@ Reglamento de caja chica del Comité Cantonal de Deportes y Recreación de Oream
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-10 | la propia norma |
+| 2 | 2021-06-08 | Reglamento municipal 90 (2021-06-08) |
