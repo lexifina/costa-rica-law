@@ -6,8 +6,8 @@ c. Constancia o recibo del pago de impuestos municipales y bienes inmuebles al d
 d. Póliza contra incendio y terremoto (cuando aplique) de aseguradoras registradas y autorizadas por la Superintendencia de Seguros (SUGESE).
 e. Carta de autorización para hipotecar (cuando la propiedad no pertenezca al solicitante) y copia de la cédula de identidad del propietario.
 f. Autorización de la entidad respectiva, cuando soporte gravamen de limitaciones.
-g. Avalúo de la propiedad realizado por profesional autoriza do por FAESUTP, según el respectivo reglamento.
-h. El costo del avalúo y de inscripción de hipoteca pueden ser incluidos como parte del préstamo, independientes del tope crediticio anual, en el formulario de la solicitud de présta mo o por medio de nota escrita del solicitante.
-i. Cuando se trate de propiedades inscritas a nombre de Sociedades Anónimas, se deberá aportar: Certificación de la personería jurídica vigente y el acuerdo de asamblea de socios autorizando hipotecar el inmueble mediante Acta de Asa mblea de Socios Protocolizada.
+g. Avalúo de la propiedad realizado por profesional autorizado por FAESUTP, según el respectivo reglamento.
+h. El costo del avalúo y de inscripción de hipoteca pueden ser incluidos como parte del préstamo, independientes del tope crediticio anual, en el formulario de la solicitud de préstamo o por medio de nota escrita del solicitante.
+i. Cuando se trate de propiedades inscritas a nombre de Sociedades Anónimas, se deberá aportar: Certificación de la personería jurídica vigente y el acuerdo de asamblea de socios autorizando hipotecar el inmueble mediante Acta de Asamblea de Socios Protocolizada.
 j. Certificación o constancia de saldo de deuda emitida por la institución respectiva, si el inmueble está hipotecado.
-k. Cualquier otra informació n o atestado que FAESUTP estime necesaria.
+k. Cualquier otra información o atestado que FAESUTP estime necesaria.

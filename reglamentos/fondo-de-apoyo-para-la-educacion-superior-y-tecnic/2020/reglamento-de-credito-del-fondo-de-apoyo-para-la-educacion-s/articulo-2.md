@@ -20,4 +20,4 @@ d. Posgrados en Costa Rica
 1. Maestrías
 2. Doctorados
 3. Especialidades
-4. Cursos cortos de posgrado.
+4. Cursos cortos de posgrado

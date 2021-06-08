@@ -1,5 +1,5 @@
 ARTÍCULO 51: MONTO DEL CONTRATO DE CREDITO PARA ESTUDIO
-El monto del préstamo por el que se firma el Contrato de Crédito para Estudios, incluye la suma del principal aprobado por el Consejo Directivo de la institución, más un 25% cuando el período de estudios es igual o menor a 42 meses o de un 40% si el período de estudios es superior a 42 meses, con el fin de que al momento de dar inicio a la amortización del préstamo, se efectúe la liquidación de la deuda, la cual incluye:
+El monto del préstamo por el que se firma el Contrato de Crédito para Estudios, incluye la suma del principal aprobado por el Consejo Directivo de la institución, más un 25% cuando el período de estudios es igual o menor a 42 meses o de un 40% si el período de estudios es superior a 42 meses, con el fin de que, al momento de dar inicio a la amortización del préstamo, se efectúe la liquidación de la deuda, la cual incluye:
 a. Monto de los desembolsos
 b. Intereses sobre saldos desembolsados.
 c. Comisión de crédito por concepto de gastos administrativos.

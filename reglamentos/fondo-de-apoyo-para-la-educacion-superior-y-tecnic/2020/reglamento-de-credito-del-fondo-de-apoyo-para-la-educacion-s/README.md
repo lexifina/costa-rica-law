@@ -14,3 +14,4 @@ Reglamento de crédito del Fondo de apoyo para la educación superior y técnica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-10 | la propia norma |
+| 2 | 2021-06-08 | Reglamento 5 (2021-06-08) |

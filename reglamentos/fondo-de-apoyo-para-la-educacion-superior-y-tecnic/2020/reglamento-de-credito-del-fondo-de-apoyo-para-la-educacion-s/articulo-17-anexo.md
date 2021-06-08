@@ -1,7 +1,7 @@
 ANEXO 17: RESOLUCION POR MEDIO DE ACUERDOS ADMINISTRATIVOS DE CAMBIOS EN LAS CONDICIONES CREDITICIAS
-El Departamento de Análisis y Seguimiento en sus actividades de Desembolso , por medio de sus profesionales o su coordinador, resolverá mediante Acuerdo Administrativo, las siguientes situaciones crediticias, que presente el prestatario y que solicite por escrito con los requisitos señalados para cada situación:
+La Sección de Análisis y Seguimiento en sus actividades de Desembolso, por medio de sus profesionales o su coordinador, resolverá mediante Acuerdo Administrativo, las siguientes situaciones crediticias, que presente el prestatario y que solicite por escrito con los requisitos señalados para cada situación:
 a. Extensión del período de estudios.
-1. Solicitud del prestatario para extender la fecha de conclusión de estudios del préstamo .
+1. Solicitud del prestatario para extender la fecha de conclusión de estudios del préstamo.
 2. Breve justificación escrita.
 3. Llenar el formulario del nuevo cronograma de estudios y la nueva distribución del saldo disponible del préstamo.
 4. Carta emitida por la entidad educativa, con sello y firma, donde realiza los estudios, que indique que no tiene deudas del último periodo cursado.
@@ -16,7 +16,7 @@ b. Cambio de entidad educativa y/ o carrera en el mismo nivel de estudios
 3. Llenar el formulario de actualización de datos del deudor y los fiadores.
 4. Presentar el nuevo programa de estudios, firmado y sellado por la entidad educativa donde va a realizar los estudios.
 5. Factura proforma extendida por la entidad educativa en la que va a realizar los estudios, con el costo de cada una de las materias, totalizada por ciclos lectivos.
-6. Documento original emitido, con el sello y firma, por la entidad educativa de la pre -convalidación o convalidación de materias o carta de no convalidación.
+6. Documento original emitido, con el sello y firma, por la entidad educativa de la pre-convalidación o convalidación de materias o carta de no convalidación.
 7. Llenar el formulario del nuevo cronograma de estudios y la nueva distribución del saldo disponible del préstamo.
 8. Carta emitida por la entidad educativa, con sello y firma, en la que va a realizar los estudios, que indique que no tiene deudas del último período cursado.
 9. Informe de matrícula del período actual.
@@ -70,11 +70,10 @@ g. Modificación de plan de estudios y plan de desembolsos.
 4. Carta emitida por la entidad educativa, con sello y firma, que indique que no tiene deudas del último periodo cursado.
 5. Factura proforma extendida por la entidad educativa en la que va a realizar los estudios, con el costo de cada una de las materias, totalizada por ciclos lectivos.
 6. Informe de matrícula del periodo actual.
-7. Presentar constancia de notas, en caso de tener períodos pendientes por presentar a FAESUTP.
-H. Cambio de garantía a otro tipo de garantía
+H. Presentar constancia de notas, en caso de tener períodos pendientes por presentar a FAESUTP. Cambio de garantía a otro tipo de garantía
 1. Solicitud del prestatario para cambiar la garantía
 2. Breve justificación y documento que respalde la solicitud.
 3. El prestatario debe cumplir con los requisitos establecidos en este reglamento según el tipo de garantía.
-4. La solicitud de cambio de garantía es analizada por el Departamento de Análisis y Seguimiento y debe ser resuelta por el Comité de Crédito.
+4. La solicitud de cambio de garantía es analizada por la Sección de Análisis y Seguimiento y debe ser resuelta por el Comité de Crédito.
 No aplican los incisos a, b y c., para la solicitud de préstamo aprobada en la modalidad de préstamo parcial.
 Si han transcurrido más de 30 días calendario después de finalizado el ciclo lectivo inmediato anterior, el prestatario debe presentar la certificación de notas pendientes de los ciclos anteriores.
