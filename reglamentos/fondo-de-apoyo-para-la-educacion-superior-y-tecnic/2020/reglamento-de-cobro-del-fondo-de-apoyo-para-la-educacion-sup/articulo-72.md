@@ -5,4 +5,4 @@ b. Para las garantías fiduciarias se deberá actualizar mediante los mecanismos
 c. En aquellos casos que exista una garantía mixta que incluya una garantía hipotecaria, deberán tener la póliza de incendio y terremoto al día y mantener la acreencia vigente, cuando existiese, para lo cual debe presentar el respectivo comprobante emitido por el ente asegurador.
 d. La operación crediticia debe estar al día, excepto si el trámite es requerido para solicitar una prórroga de pago o modificación de la tasa de interés.
 e. Presentar la constancia salarial original o certificación de Contador Público (CPA).
-f. El prestatario y fiadores -nuevo(s) y actual(es)- deberán firmar un addendum al Contrato de Crédito para Estudios, posterior a que la sustitución o exclusión del fiador o fiadores haya sido aprobada.
+f. El prestatario y fiadores –nuevo(s) y actual(es)- deberán firmar un addendum al Contrato de Crédito para Estudios, posterior a que la sustitución o exclusión del fiador o fiadores haya sido aprobada

@@ -1,3 +1,3 @@
 ARTICULO 52
 La operación crediticia podrá tener durante la fase de cobro, adicional al plazo de amortización, una o más prórrogas de pago aprobadas, no pudiendo exceder el período de doce meses antes de que se realice el primer pago. Posterior a este primer pago y durante el período de amortización, se podrá conceder como máximo dieciséis meses Se exceptúa en la contabilización de estos plazos, el período durante el cual la operación crediticia se encuentra en cobro judicial.
-El Comité de Cobro queda facultado para exceder estos plazos en seis meses máximo, en caso de presentarse situaciones calificadas según su criterio.
+El Comité de Cobro queda facultado para exceder estos plazos en seis meses máximo, en caso de presentarse situaciones calificadas según su criterio

@@ -1,2 +1,2 @@
 ARTICULO 20
-A todo préstamo se le cobrará una Comisión de Crédito conforme a lo establecido en el Reglamento de Crédito, que será incluida como parte de la liquidación del crédito y por ende del monto de principal inicial adeudado.
+A todo préstamo se le cobrará una Comisión de Crédito conforme a lo establecido en el Reglamento de Crédito, que será incluida como parte de la liquidación del crédito y por ende del monto de principal inicial adeudado

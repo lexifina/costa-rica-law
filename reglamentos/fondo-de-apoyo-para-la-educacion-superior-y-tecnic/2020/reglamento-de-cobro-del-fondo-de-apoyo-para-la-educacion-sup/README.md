@@ -14,3 +14,4 @@ Reglamento de cobro del Fondo de Apoyo para la Educación Superior y Técnica de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-10 | la propia norma |
+| 2 | 2021-06-08 | Reglamento 5 (2021-06-08) |

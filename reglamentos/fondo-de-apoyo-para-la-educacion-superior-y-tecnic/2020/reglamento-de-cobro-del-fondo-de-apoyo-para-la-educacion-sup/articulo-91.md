@@ -1,2 +1,2 @@
 ARTICULO 91
-El Abogado Director es el encargado de efectuar una gestión diligente y oportuna ante la autoridad judicial pertinente, de las operaciones crediticias de la cartera judicial a su cargo, velando por una recuperación expedita de los fondos.
+El Abogado Director es el encargado de efectuar una gestión diligente y oportuna ante la autoridad judicial pertinente, de las operaciones crediticias de la cartera judicial a su cargo, velando por una recuperación expedita de los fondos

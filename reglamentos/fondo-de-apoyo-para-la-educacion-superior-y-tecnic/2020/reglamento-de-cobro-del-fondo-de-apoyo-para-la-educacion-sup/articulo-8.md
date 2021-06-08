@@ -1,2 +1,2 @@
 ARTICULO 8
-El Encargado de la Sección de Cobro, ante solicitud escrita justificada del deudor, fiadores o del apoderado legal, podrá autorizar la continuación de cualquier trámite en la Sección de Cobro, cuando por motivos de fuerza mayor estén imposibilitados de cumplir con la actualización de direcciones y teléfonos.
+El Coordinador de la Sección de Cobro, ante solicitud escrita justificada del deudor, fiadores o del apoderado legal, podrá autorizar la continuación de cualquier trámite en la Sección de Cobro, cuando por motivos de fuerza mayor estén imposibilitados de cumplir con la actualización de direcciones y teléfonos.

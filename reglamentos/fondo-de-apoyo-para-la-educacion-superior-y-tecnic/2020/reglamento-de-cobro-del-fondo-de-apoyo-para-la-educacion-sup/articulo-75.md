@@ -6,4 +6,4 @@ c. En aquellos casos que exista una garantía hipotecaria o una garantía mixta 
 d. Cuando sea necesario, la póliza de incendio y terremoto deberá poseer una acreencia a favor de FAESUTP, que cubra como mínimo el monto total de la deuda.
 e. La operación crediticia debe estar al día en el pago de sus cuotas.
 f. Cuando se trate de una garantía mixta, el prestatario y los fiadores, deberán firmar un addendum al Contrato de Crédito para Estudios, posterior a que la sustitución o cambio en las condiciones de la hipoteca haya sido aprobada.
-g. El prestatario y el dueño o dueños de la propiedad deberán firmar una modificación a la escritura de la hipoteca dada en garantía.
+g. El prestatario y el dueño o dueños de la propiedad deberán firmar una modificación a la escritura de la hipoteca dada en garantía

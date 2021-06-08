@@ -1,6 +1,5 @@
 ANEXO I
-Tabla de plazos de amortización
-Monto de Deuda | | Plazo en meses
+Tabla de plazos de amortización Monto de Deuda | Plazo en meses
 Menos de | 349.999 | 28
 350.000 | 549.999 | 37
 550.000 | 749.999 | 47
@@ -17,3 +16,4 @@ Menos de | 349.999 | 28
 2.750.000 | 2.949.999 | 149
 2.950.000 | 3.149.999 | 159
 Más de | 3.150.000 | 168
+| | |

@@ -1,5 +1,5 @@
 ARTICULO 13
-Las funciones del Encargado(a) de la Sección de Cobro en el Comité de Cobro serán:
+Las funciones del Coordinador(a) de la Sección de Cobro en el Comité de Cobro serán:
 a. Convocar a sesiones.
 b. Levantar las actas de las sesiones del Comité de Cobro.
 c. Redactar y firmar juntamente con los otros miembros, la respectiva acta de la sesión.
