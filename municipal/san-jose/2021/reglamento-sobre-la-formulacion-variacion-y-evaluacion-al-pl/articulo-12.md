@@ -1,0 +1,1 @@
+Artículo 12.-La Dirección de Recursos Humanos remite de acuerdo al cronograma establecido, el presupuesto en materia de remuneraciones, subsidio, prestaciones, indumentaria convencional, medicamentos y capacitación institucional al Departamento de Presupuesto.

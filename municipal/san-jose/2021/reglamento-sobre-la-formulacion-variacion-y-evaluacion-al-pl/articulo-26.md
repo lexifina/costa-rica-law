@@ -1,0 +1,1 @@
+Artículo 26.-La Alcaldía procede a remitir formalmente el Proyecto de POA-Presupuesto a la Contraloría General República a más tardar el 30 de setiembre, adjuntando en forma digital los documentos establecidos en la normativa presupuestaria.

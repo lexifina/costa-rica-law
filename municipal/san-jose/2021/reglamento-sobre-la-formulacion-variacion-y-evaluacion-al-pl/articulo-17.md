@@ -1,0 +1,1 @@
+Artículo 17.-El Departamento de Gestión Tributaria envía de acuerdo con el cronograma establecido, la información sobre las emisiones, pendientes, porcentajes de recuperación al Departamento de Presupuesto.

@@ -1,0 +1,1 @@
+Artículo 13.-La Dirección Administrativa remite de acuerdo al cronograma establecido al Departamento de Presupuesto los presupuestos sobre publicaciones, equipo y mobiliario de oficina, servicios públicos, artículos de aseo, alquiler de multifuncionales, combustibles, seguros, RTV.

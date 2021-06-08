@@ -1,0 +1,1 @@
+Artículo 23.-La Alcaldía y Gerencias comunican en el mes de agosto a sus dependencias el detalle de proyectos, servicios y actividades con sus respectivos presupuestos que fueron finalmente validados y por tanto contenidos en el Proyecto de Presupuesto Ordinario Institucional, así como los no aprobados y sus razones.

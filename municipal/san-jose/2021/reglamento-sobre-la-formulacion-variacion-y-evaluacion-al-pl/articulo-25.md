@@ -1,0 +1,1 @@
+Artículo 25.-El Concejo Municipal conoce recomendación de la Comisión de Hacienda y aprueba el Proyecto del POA-Presupuesto, los primeros quince días de setiembre, según artículo 96 del Código Municipal. Una vez aprobado, remite a la Alcaldía para el trámite ante el Ente Contralor. Plazo en el cual podrán realizar variaciones sustentadas en criterios técnicos o de legalidad.

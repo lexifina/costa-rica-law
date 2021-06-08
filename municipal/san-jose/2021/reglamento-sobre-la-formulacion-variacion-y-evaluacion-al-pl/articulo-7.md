@@ -1,0 +1,1 @@
+Artículo 7°-Todo proyecto que se incluya en el POA-Presupuesto, debe contar con un perfil, estudio de prefactibilidad o factibilidad, según la magnitud de este, cumpliendo con el proceso establecido para estos fines.

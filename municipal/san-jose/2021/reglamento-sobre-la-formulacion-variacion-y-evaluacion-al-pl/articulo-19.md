@@ -1,0 +1,1 @@
+Artículo 19.-El Departamento de Presupuesto se asegura de que el presupuesto ordinario no se destine más de un cuarenta por ciento (40%) de los ingresos ordinarios para atender los gastos generales de administración.

@@ -1,0 +1,1 @@
+Artículo 28.-El Departamento de Presupuesto, así como la Dirección de Planificación y Evaluación, en el mes de octubre publican en Muninet el Proyecto de POA-Presupuesto aprobado por el Concejo Municipal con el fin de que las dependencias elaboren los pedidos del I Semestre del año siguiente.

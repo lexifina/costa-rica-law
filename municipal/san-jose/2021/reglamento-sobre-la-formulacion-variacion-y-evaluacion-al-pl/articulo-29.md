@@ -1,0 +1,1 @@
+Artículo 29.-Una vez probado el Proyecto de POA-Presupuesto por la Contraloría General de la República el Departamento de Presupuesto, así como la Dirección de Planificación y Evaluación, publican los documentos oficiales del POA Presupuesto en el link de ambas dependencias.

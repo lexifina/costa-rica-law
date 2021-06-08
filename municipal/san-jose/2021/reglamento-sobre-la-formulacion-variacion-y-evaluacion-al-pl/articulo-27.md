@@ -1,0 +1,1 @@
+Artículo 27.-El Departamento de Presupuesto, así como la Dirección de Planificación y Evaluación debe 1ncorporar el POA-Presupuesto al Sistema Integrado de Presupuestos Públicos (SIPP), establecido por la Contraloría General de la Republica.

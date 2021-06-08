@@ -1,0 +1,1 @@
+Artículo 9°-La Alcaldía y las Gerencias remiten el POA-Presupuesto a la Dirección de Planificación y el Departamento de Presupuesto según los lineamientos y las fechas estipuladas en el cronograma de POA-Presupuesto.

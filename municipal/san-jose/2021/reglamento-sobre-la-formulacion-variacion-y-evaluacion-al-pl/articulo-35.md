@@ -1,0 +1,1 @@
+Artículo 35.-El Comité de Apoyo debe asegurar de que los sobrantes de salarios se dispongan en primer término al financiamiento de la partida de subsidio por incapacidad, prestaciones legales y necesidades muy restrictivas de remuneraciones.

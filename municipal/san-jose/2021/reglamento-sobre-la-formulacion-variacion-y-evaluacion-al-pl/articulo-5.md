@@ -1,0 +1,1 @@
+Artículo 5°-La alcaldía y cada gerencia según los lineamientos aprobados, dará las indicaciones y prioridades a sus dependencias para que mediante un proceso participativo elaboren el POA-Presupuesto, que debe entregar a la Dirección de Planificación y Evaluación y al Departamento de Presupuesto.
