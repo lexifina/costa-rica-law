@@ -1,0 +1,3 @@
+Artículo 9º-Sanciones
+a. El incumplimiento de las disposiciones contenidas en este Reglamento hará acreedor al funcionario de las sanciones disciplinarias que correspondan de conformidad con lo dispuesto en el Reglamento Autónomo de Servicio del Sistema de Emergencias 91-1, en lo que se refiere a las responsabilidades disciplinarias, sin perjuicio de cualquier otro tipo de responsabilidad que conforme el Ordenamiento Jurídico le sean aplicables.
+b. Las sanciones por incumplimiento a las cláusulas del presente Reglamento se aplicarán observando el debido proceso, acorde a la Ley General de la Administración Pública, el Código de Trabajo, el Reglamento Autónomo de Servicio del Sistema de Emergencias 9-1-1, y las leyes vigentes de la República de Costa Rica.
