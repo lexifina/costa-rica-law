@@ -1,0 +1,1 @@
+Artículo 3º-Rectoría. Desígnese como rector en esta materia, al Ministerio de Cultura y Juventud, quien por medio del Museo de Arte Costarricense, velará por el cumplimiento de lo establecido en la Política Nacional de Colecciones Estatales de Arte 2020-2030.

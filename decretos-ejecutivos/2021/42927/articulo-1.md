@@ -1,0 +1,18 @@
+Nº 42927-C
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE CULTURA Y JUVENTUD
+Con fundamento en las atribuciones contenidas en los artículos 89 y 140 incisos 3), 18) y 20) de la Constitución Política, los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley Nº 6227 Ley General de la Administración Pública del 02 de mayo de 1978, los artículos 7 y 8 de la Ley Nº 8292 Ley de Control Interno del 31 de julio de 2002, el artículo 4 de la Ley Nº 8220 Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos del 04 de marzo de 2002 y el artículo 2 de la Ley Nº 6091 Ley de Creación del Museo de Arte Costarricense del 07 de octubre de 1977.
+Considerando:
+I.-Que el numeral 89 de la Constitución Política establece que entre los fines culturales de la República están "proteger las bellezas naturales, conservar y desarrollar el patrimonio histórico y artístico de la Nación, y apoyar la iniciativa privada para el progreso científico y artístico".
+II.-Que el numeral 140 de la Constitución Política establece que corresponde al Presidente y al respectivo Ministro, la reglamentación de leyes para su cumplimiento.
+III.-Que los artículos los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de la Administración Pública, otorgan a la Ministra de Cultura y Juventud, la facultad de presentar al Presidente decretos de cuestiones relativas a su Ministerio.
+IV.-Que la Ley General de Control Interno Nº 8292 dispone, en su artículo 7º, que las instituciones sujetas a la fiscalización de la Contraloría General de la República deben disponer obligatoriamente de un sistema de control interno.
+V.-Que la Ley General de Control Interno Nº 8292 dispone, en su artículo 8º, que los objetivos del sistema de control interno son: proteger y conservar el patrimonio público contra cualquier pérdida, despilfarro, uso indebido, irregularidad o acto ilegal; exigir confiabilidad y oportunidad de la información; garantizar eficiencia y eficacia de las operaciones; y cumplir con el ordenamiento jurídico y técnico.
+VI.-Que la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos Nº 8220, establece en su artículo 4º, la obligación de se revise la normativa que se publicará cuando esta imponga obligaciones a los Administrados, sin embargo, el destinatario final de la presente norma es el propio Estado, por lo que al amparo de dicha ley y el Decreto Ejecutivo Nº 37045-MP-MEIC del 22 de febrero de 2012, no se realiza el control previo.
+VII.-Que mediante oficio Nº MIDEPLAN-DM-OF-1678-2020 del 21 de diciembre de 2020, el Ministerio de Planificación Nacional y Política Económica otorgó visto bueno a la "Política Nacional de Gestión de Colecciones Estatales de Arte 2020-2030", indicando que el documento cumple con los requerimientos de política pública.
+VIII.-Que la Ley de Creación del Museo de Arte Costarricense Nº 6091, en su artículo 2º, establece que a esa institución corresponde supervisar "las colecciones de arte del Estado, garantizando su adecuada conservación". Por tanto,
+Decretan:
+OFICIALIZACIÓN Y DECLARATORIA DE INTERÉS
+PÚBLICO DE LA POLÍTICA NACIONAL DE GESTIÓN DE COLECCIONES ESTATALES DE ARTE 2020-2030
+Artículo 1º-Objeto. El presente Decreto tiene por objeto oficializar y declarar de interés público la Política Nacional de Gestión de Colecciones Estatales de Arte 2020-2030, que se encuentra disponible en la siguiente página web, aprobada por el Museo de Arte Costarricense: https://www.coleccionesestatales.com/politicanacional
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato la Política Nacional de Gestión de Colecciones Estatales de Arte 2020-2030 debe ser consultada en el siguiente enlace)
