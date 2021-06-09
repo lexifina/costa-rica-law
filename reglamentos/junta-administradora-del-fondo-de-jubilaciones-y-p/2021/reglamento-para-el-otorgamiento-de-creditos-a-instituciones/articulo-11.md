@@ -1,0 +1,1 @@
+Artículo 11.-Cobro Administrativo y Cobro Judicial. Se procederá al cobro administrativo cuando la Junta Administradora lo determine y al cobro judicial a partir de los 90 días de atraso de la operación de crédito.

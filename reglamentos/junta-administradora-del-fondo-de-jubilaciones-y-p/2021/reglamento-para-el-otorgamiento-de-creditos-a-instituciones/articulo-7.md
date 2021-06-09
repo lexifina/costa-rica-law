@@ -1,0 +1,1 @@
+Artículo 7°-Cobro. El deudor pagará en los primeros 5 días hábiles del mes siguiente la cuota correspondiente, caso contrario el Fondo procederá a deducir de las cuotas por préstamos de la Entidad Deudora y se cancelarán mediante cuotas mensuales consecutivas y vencidas, y cancelará los intereses moratorios correspondientes.

@@ -1,0 +1,1 @@
+Artículo 4°-Aprobación. Corresponderá a la Junta Administradora previo cumplimiento de los requisitos establecidos en este Reglamento, aprobar la concesión de préstamos a las entidades autorizadas con base en la recomendación técnica del Comité de Riesgos, el cual funge como Comité de Crédito.
