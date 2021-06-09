@@ -1,1 +1,0 @@
-Artículo 16.—Amortizaciones anticipadas. En caso de amortizaciones anticipadas por parte de las entidades sujetas de préstamo, se cobrará una comisión del 3% sobre el saldo por pronto pago para las amortizaciones extraordinarias o anticipadas.

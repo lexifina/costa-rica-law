@@ -1,1 +1,0 @@
-Artículo 15.—Fiador. Es un requisito indispensable, que el plazo restante para jubilarse (para servidores judiciales o pensionarse para los demás) de un fiador sea mayor al plazo del crédito, caso contrario, firmará un consentimiento expreso que autorice en el caso de que el deudor no pague, se le deduzca el cobro por planilla.

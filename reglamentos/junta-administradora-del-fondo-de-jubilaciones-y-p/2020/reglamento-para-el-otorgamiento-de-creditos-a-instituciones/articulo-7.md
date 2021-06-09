@@ -1,1 +1,0 @@
-Artículo 7º—Cobro. Los cobros se deducirán de los fondos mensuales que percibe la entidad autorizada por cuotas de afiliación y de deducción por préstamos y se cancelarán mediante cuotas mensuales consecutivas y vencidas. En el caso de fideicomiso, estas se trasladarán al fiduciario.

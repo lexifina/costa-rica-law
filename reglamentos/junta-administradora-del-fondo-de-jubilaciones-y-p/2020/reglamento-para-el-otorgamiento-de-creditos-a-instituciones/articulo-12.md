@@ -1,8 +1,0 @@
-Artículo 12.—Garantías. Las Entidades autorizadas deberán podrán ofrecerle al Fondo como garantía de cumplimiento de su obligación préstamos una o algunas de las siguientes opciones:
-a) Cesión de hipotecas en primer grado y/o cesión de pagarés que formen parte de la cartera de crédito de las entidades autorizadas, a excepción de operaciones garantizadas con el aporte obrero. Estas garantías cedidas serán custodiadas por el Fondo.
-b) La cesión de fondos mensuales que perciba por cuotas de afiliación y de deducción por préstamos por parte de las personas servidores, jubilados y pensionados judiciales.
-c) La constitución de un Fideicomiso de Garantía, en el cual son cedidos por parte del Fideicomitente, pagarés e hipotecas que no hayan presentado morosidad alguna y en caso de que alguna operación de las cedidas presente morosidad luego de la cesión inicial, deberá ser sustituida.
-El Fideicomisario será el FJPPJ, el Fideicomitente es la entidad a la cual se le otorga el crédito y el Fiduciario es una entidad bancaria registrada en la SUGEF para este efecto.
-Los costos del fideicomiso serán asumidos enteramente por el Fideicomitente.
-El pago de los préstamos de las entidades autorizadas al Fondo se hará al Fiduciario y en caso de incumplimiento de los pagos se cobrará un interés moratorio anual igual al 30% de la tasa de préstamo de recursos del fondo.
-d) Si se presenta una mora igual o mayor a 3 cuotas de atraso, el Fondo hará exigible la garantía dada por la entidad autorizada a fin de cancelar los saldos de los préstamos realizados, para lo cual, la entidad autorizada hará la cancelación en efectivo o trasladando la garantía al FJPPJ.

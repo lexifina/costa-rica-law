@@ -1,2 +1,0 @@
-Artículo 13.—Pólizas. La entidad autorizada proporcionará la evidencia respectiva de que los pagarés y las hipotecas están cubiertos por una póliza de saldos deudores, durante el plazo del préstamo del FJPPJ. Para el caso de hipotecas deberá evidenciarse la póliza de incendio y desastres naturales a excepción de préstamos para compra de lote.
-Estas pólizas tendrán como beneficiario el Fondo o serán cedidas por parte de la entidad autorizada mediante adendum.

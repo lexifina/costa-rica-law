@@ -1,1 +1,0 @@
-Artículo 19.—Resolución. La Junta Administradora resolverá la solicitud de otorgamiento de préstamo, una vez que tenga a su disposición los criterios tanto del Comité de Riesgos como el de Inversiones.
