@@ -1,0 +1,1 @@
+Artículo 9. La solicitud de admisión tendrá vigencia únicamente durante el periodo para el cual se realiza. No efectuar la matrícula en las fechas establecidas se considera como una renuncia a la solicitud de admisión a carrera de la Universidad Técnica Nacional.

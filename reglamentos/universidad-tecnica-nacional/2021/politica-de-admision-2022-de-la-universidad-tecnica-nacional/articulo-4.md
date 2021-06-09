@@ -1,0 +1,1 @@
+Artículo 4. La nota de admisión está constituida por el promedio de notas de Educación Diversificada o sus equivalentes, más el puntaje adicional derivado de la aplicación de las acciones afirmativas, cuando correspondan.

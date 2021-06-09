@@ -1,0 +1,1 @@
+Artículo 8. La Universidad Técnica Nacional no está obligada a resolver los errores u omisiones en que pudiera incurrir la persona aspirante al realizar su solicitud de admisión. Sin embargo, en caso que la persona aspirante decida realizar un cambio en la opción de carrera, franja horaria o sede, lo podrá realizar mediante los mecanismos definidos en el protocolo de admisión.

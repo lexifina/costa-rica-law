@@ -1,0 +1,1 @@
+Artículo 7. Cada aspirante podrá optar por admisión hasta en dos carreras, en la misma sede o en sedes diferentes. No obstante, sí es admitido en ambas, la carrera seleccionada como carrera uno será la carrera prioritaria de admisión y es la que prevalecerá en su cita de matrícula (modificada en el acuerdo 5 del acta 14-2017 celebrada el 27 de julio de 2017).
