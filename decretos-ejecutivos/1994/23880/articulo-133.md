@@ -1,2 +1,4 @@
-Artículo 133.- (Derogado por el artículo 97 del "Reglamento interno y de servicio de la Escuela Nacional de Policía", aprobado mediante decreto ejecutivo N° 37458 del 30 de noviembre del 2012)
+Artículo 133.- El beneficiario tiene derecho a que el jefe le permita participar en los programas de adiestramiento siempre y cuando no se afecte el buen funcionamiento de la oficina y la prestación del servicio público.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 146 al 154 actual)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 125 al 133 actual)
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43065 del 9 de junio de 2021, que lo traspaso del antiguo artículo 154 al 133, ya que según el numeral 2 del decreto ejecutivo antes mencionado, se acordó suprimir los capítulos XVI y XVII y se ajusta la numeración de los capítulos siguientes y córrase la numeración de los artículos a partir del artículo 119)

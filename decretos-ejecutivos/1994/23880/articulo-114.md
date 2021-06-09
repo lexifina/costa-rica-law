@@ -1,2 +1,7 @@
-Artículo 114.- (Derogado por el artículo 97 del "Reglamento interno y de servicio de la Escuela Nacional de Policía", aprobado mediante decreto ejecutivo N° 37458 del 30 de noviembre del 2012)
+Artículo 114.-Los roles de servicio correspondientes a los funcionarios policiales que se encuentren destacados en la Academia Nacional de Policía son los siguientes:
+a) 5x2 diurno: Cinco días de trabajo de día o mixto en jornada de 10 horas, por dos días de descanso. Aplicable a los que tienen personal a cargo y al personal docente.
+b) 6x4 diurno: Seis días de trabajo de día en jornada de 12 horas, por cuatro días de descanso.
+c) 6x4x3x3: Seis días de trabajo de día en jornada de 12 horas, por cuatro días de descanso, por tres días de trabajo de noche, en jornada de 12 horas por tres días de descanso. Aplicable a funcionarios que el desplazamiento desde su casa hasta la unidad policial y de regreso de la unidad policial hacia sus casas, en el medio de transporte que utilicen de forma habitual, el tiempo de traslado sea la sumatoria de máximo tres horas.
+d) 6x6: Seis días de trabajo, tres días de día y tres días de noche, en jornadas de 12 horas, por seis días libres. Aplicable a funcionarios que el desplazamiento desde su casa hasta la unidad policial y de regreso de la unidad policial hacia sus casas, en el medio de transporte que utilicen de forma habitual, el tiempo de traslado sea la sumatoria de más de tres horas.
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 106 al 114 actual)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43065 del 9 de junio de 2021)

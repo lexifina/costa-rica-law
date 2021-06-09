@@ -1,2 +1,6 @@
-Artículo 158.- Todo funcionario que goce de una beca haya finalizado la misma debe rendir un informe a la Escuela Nacional de Policía dentro del plazo de 30 días sobre su participación en el programa o curso donde asistió, bajo pena de aplicación de una sanción disciplinaria de apercibimiento por escrito en caso de incumplimiento de esta disposición.
+Artículo 158.-Del curso del procedimiento. El procedimiento deberá ser llevado a cabo resguardando la imagen y confidencialidad de las partes, cumpliendo con los principios que rigen la actividad administrativa so pena de incurrir en falta grave. La persona denunciante y la persona denunciada se considerarán parte del procedimiento.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 24538 del 31 de julio de 1995)
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 171 al 179 actual)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36432 del 27 de enero del 2011)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 150 al 158 actual)
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43065 del 9 de junio de 2021, que lo traspaso del antiguo artículo 179 al 158, ya que según el numeral 2 del decreto ejecutivo antes mencionado, se acordó suprimir los capítulos XVI y XVII y se ajusta la numeración de los capítulos siguientes y córrase la numeración de los artículos a partir del artículo 119)

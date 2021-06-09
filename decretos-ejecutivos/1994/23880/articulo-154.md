@@ -1,2 +1,6 @@
-Artículo 154.- El beneficiario tiene derecho a que el jefe le permita participar en los programas de adiestramiento siempre y cuando no se afecte el buen funcionamiento de la oficina y la prestación del servicio público.
+Artículo 154.--Política de Divulgación de la Ley y del presente capítulo del Reglamento. La política de prevención del hostigamiento sexual y la divulgación de la Ley y del presente Capítulo del Reglamento, corresponderá a la Oficina de Igualdad y Equidad de Género. Podrá solicitarse además, la colaboración y participación de todos aquellos funcionarios que en razón de su cargo, puedan coadyuvar en el proceso de difusión.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 24538 del 31 de julio de 1995)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 167 al 175 actual)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36432 del 27 de enero del 2011)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 146 al 154 actual)
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43065 del 9 de junio de 2021, que lo traspaso del antiguo artículo 175 al 154, ya que según el numeral 2 del decreto ejecutivo antes mencionado, se acordó suprimir los capítulos XVI y XVII y se ajusta la numeración de los capítulos siguientes y córrase la numeración de los artículos a partir del artículo 119)

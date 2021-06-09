@@ -1,2 +1,4 @@
-Artículo 103.- (Derogado por el artículo 97 del "Reglamento interno y de servicio de la Escuela Nacional de Policía", aprobado mediante decreto ejecutivo N° 37458 del 30 de noviembre del 2012)
+Artículo 103.-Los Directores de los diferentes cuerpos policiales, podrán modificar temporalmente el rol autorizado a alguno de los funcionarios, sea por petición del servidor o bajo criterio del mismo Director, cuando exista una situación personal especial que así lo justifique. Cuando cesen los motivos que dieron origen al cambio temporal, el o los servidores, deberán volver al rol y horario dispuesto con anterioridad.
+En caso de que le sea denegado el cambio temporal del rol, el servidor podrá acudir al Departamento de Salud Ocupacional para que sea revisada su solicitud. El criterio del Departamento de Salud Ocupacional será vinculante para las partes.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43065 del 9 de junio de 2021)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 95 al 103 actual)

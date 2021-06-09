@@ -1,2 +1,4 @@
-Artículo 149.- Para lograr equidad en el otorgamiento de becas la Comisión podrá hacerse asesorar por los técnicos y profesionales que estimen conveniente.
+Artículo 149.-En caso de becas internacionales la Dirección de Recursos Humanos hará los trámites respectivos para la salida del país de los seleccionados.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 162 al 170 actual)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 141 al 149 actual)
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43065 del 9 de junio de 2021, que lo traspaso del antiguo artículo 170 al 149, ya que según el numeral 2 del decreto ejecutivo antes mencionado, se acordó suprimir los capítulos XVI y XVII y se ajusta la numeración de los capítulos siguientes y córrase la numeración de los artículos a partir del artículo 119)

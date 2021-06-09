@@ -1,2 +1,3 @@
-Artículo 101.—(Derogado por el artículo 97 del "Reglamento interno y de servicio de la Escuela Nacional de Policía", aprobado mediante decreto ejecutivo N° 37458 del 30 de noviembre del 2012)
+Artículo 101.-Se entiende por rol de servicio la secuencia lógica de jornadas continuas de trabajo seguidas de sus consecuentes jornadas de descanso, implicándose la rotación sucesiva de diferentes grupos de personal de manera alterna. Los "días laborados" son la condición y los "días de descanso" son lo condicionado, en el entendido de que el servidor policial podrá hacer uso de su derecho al descanso, si previamente ha prestado un servicio efectivo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43065 del 9 de junio de 2021)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 93 al 101 actual)

@@ -1,3 +1,3 @@
-Artículo 189.—Trámite de la denuncia. Recibida la denuncia por un órgano distinto al Departamento Disciplinario Legal, deberá ser remitida a dicho Departamento por cualquier medio disponible que salvaguarde la confidencialidad en este tipo de casos, dentro del segundo día hábil siguiente al del recibo de la queja.
+Artículo 189.- (Nota de Sinalevi: El texto de este numeral debe de ser consultado en el artículo 168, ya que según el numeral 2 del decreto ejecutivo antes mencionado, se acordó suprimir los capítulos XVI y XVII y se ajusta la numeración de los capítulos siguientes y córrase la numeración de los artículos a partir del artículo 119)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 181 al 189 actual)

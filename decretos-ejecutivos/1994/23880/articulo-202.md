@@ -1,7 +1,4 @@
-CAPITULO XXI
-De las disposiciones finales
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 24538 del 31 de julio de 1995, que lo pasó del anterior Capítulo XX al Capítulo XXI actual)
-Artículo 202.- En lo no regulado en el presente Reglamento se aplicará supletoriamente, las disposiciones de la Ley General de Policía, la Ley General de la Administración Pública, Código de Trabajo, (*)Reglamento Autónomo de Servicio del Ministerio de Seguridad Pública y demás disposiciones que resulten aplicables.
+Artículo 202.--(Nota de Sinalevi: El texto de este numeral debe de ser consultado en el artículo 181, ya que según el numeral 2 del decreto ejecutivo antes mencionado, se acordó suprimir los capítulos XVI y XVII y se ajusta la numeración de los capítulos siguientes y córrase la numeración de los artículos a partir del artículo 119)
 (*)(Así reformado por el artículo 1° del decreto ejecutivo N° 24792 del 9 de octubre de 1995)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 24538 del 31 de julio de 1995, que lo pasó del anterior artículo 166 al 175 actual)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003, que lo pasó del anterior artículo 175 al 194 actual)

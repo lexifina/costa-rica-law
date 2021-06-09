@@ -1,2 +1,4 @@
-Artículo 152.- La Comisión se dará su reglamentación interna y establecerá la periodicidad de sus sesiones.
+Artículo 152.-A falta de disposición aplicable en este Reglamento, se aplicarán supletoriamente las disposiciones de Leyes especiales o reglamentos que regulan la materia.
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 165 al 173 actual)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 144 al 152 actual)
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43065 del 9 de junio de 2021, que lo traspaso del antiguo artículo 173 al 152, ya que según el numeral 2 del decreto ejecutivo antes mencionado, se acordó suprimir los capítulos XVI y XVII y se ajusta la numeración de los capítulos siguientes y córrase la numeración de los artículos a partir del artículo 119)

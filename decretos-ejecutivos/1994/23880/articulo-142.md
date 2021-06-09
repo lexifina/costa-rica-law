@@ -1,2 +1,7 @@
-Artículo 142.- Las presentes normas deben asegurar un sistema de participación igualitaria entre todos los participantes.
+CAPITULO XVII
+Del procedimiento para adjudicaciones de beca
+(Así modificada la numeración del capítulo anterior por el artículo 2° del decreto ejecutivo N° 43065 del 9 de junio de 2021, que lo traspaso del antiguo capítulo XIX al capítulo XVII, ya que según el numeral 2 del decreto ejecutivo antes mencionado, se acordó suprimir los capítulos XVI y XVII y se ajusta la numeración de los capítulos siguientes y córrase la numeración de los artículos a partir del artículo 119)
+Artículo 142.- Las becas para participar en programas de adiestramiento serán puestas a estudio de la Comisión de Becas por parte de la Escuela Nacional de Policía. Este remitirá toda la información a la Comisión para que se ordene la publicación de la beca o del curso de adiestramiento, estipulándose todas las condiciones establecidas.
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 134 al 142 actual)
+(Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 155 al 163 actual)
+Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43065 del 9 de junio de 2021, que lo traspaso del antiguo artículo 163 al 142, ya que según el numeral 2 del decreto ejecutivo antes mencionado, se acordó suprimir los capítulos XVI y XVII y se ajusta la numeración de los capítulos siguientes y córrase la numeración de los artículos a partir del artículo 119)
