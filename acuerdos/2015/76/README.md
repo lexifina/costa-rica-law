@@ -14,3 +14,4 @@ Crea Comisión institucional sobre accesibilidad y discapacidad del Ministerio d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-13 | la propia norma |
+| 2 | 2021-06-10 | Acuerdo 70 (2021-06-10) |
