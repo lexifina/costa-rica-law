@@ -13,3 +13,4 @@ Modificación a la circular N° 18-20 denominada “Lista de servidores y servid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-31 | la propia norma |
+| 2 | 2021-06-10 | Circular 139 (2021-06-10) |
