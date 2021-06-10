@@ -1,1 +1,0 @@
-Artículo 21.—En caso de diferencias, respecto al inventario anterior, deberá comunicarse de inmediato al Encargado de Bienes Muebles, al Proceso Administrativo y al Proceso Financiero y actuar de acuerdo a lo descrito en los artículos 29 y siguientes de este Reglamento.

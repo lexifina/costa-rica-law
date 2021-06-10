@@ -1,1 +1,0 @@
-Artículo 17.—La responsabilidad de los funcionarios sobre los bienes, será efectiva a partir de su adjudicación, con base en los documentos respectivos, entiéndase inventario de activos recibido conforme por cada uno de los funcionarios.
