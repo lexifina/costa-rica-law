@@ -14,3 +14,4 @@ Lista de servidores y servidoras del Instituto Nacional de Seguros (INS) autoriz
 | --- | --- | --- |
 | 1 | 2020-03-23 | la propia norma |
 | 2 | 2020-03-31 | Circular 59 (2020-03-31) |
+| 3 | 2021-06-10 | Circular 139 (2021-06-10) |
