@@ -1,0 +1,7 @@
+ARTÍCULO 2- Se reforma el inciso d) del artículo 239 de la Ley 7594, Código Procesal Penal, de 10 de abril de 1996. El texto es el siguiente:
+Artículo 239- Procedencia de la prisión preventiva
+El tribunal ordenará la prisión preventiva del imputado, siempre que concurran las siguientes circunstancias:
+(...)
+d) Exista peligro para la víctima, la persona denunciante o el testigo. Cuando la víctima se encuentre en situación de riesgo, el juez tomará en cuenta la necesidad de ordenar esta me ida, especialmente en el marco de la investigación de delitos previstos de la Ley 8589, Penalización de la Violencia contra las Mujeres, de 25 de abril de 2007, así como otros delitos donde la persona investigada mantiene o haya mantenido con la víctima una relación o vínculo de pareja, sea matrimonial, unión de hecho, noviazgo, convivencia, de no convivencia, casual u otra análoga, aun cuando medie divorcio, separación o ruptura.
+Dado en la Presidencia de la República, San José, a los catorce días del mes de mayo del año dos mil veintiuno.
+EJECÚTESE Y PUBLIQUESE.
