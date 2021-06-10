@@ -1,0 +1,1 @@
+Artículo 42.-Registro de solicitantes. La Proveeduría Institucional del Instituto Costarricense de Turismo, llevará un registro de los solicitantes interesados en recibir bienes en donación, el que servirá para priorizar las donaciones que lleguen a ser acordadas.

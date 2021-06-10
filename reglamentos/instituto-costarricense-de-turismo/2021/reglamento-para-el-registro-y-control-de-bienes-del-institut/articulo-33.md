@@ -1,0 +1,1 @@
+Artículo 33.-Recomendación de aprobación. La Proveeduría Institucional del Instituto Costarricense de Turismo, emitirá ante el órgano competente de aprobar o denegar la solicitud, la recomendación correspondiente.

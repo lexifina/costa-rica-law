@@ -1,0 +1,5 @@
+Artículo 26.-Entrega de bienes muebles nuevos con sustento en un convenio de cooperación. En la fecha y hora acordada para la entrega de los bienes se requiere la suscripción de un acta firmada por la Comisión de Donación y de la contraparte, la persona que se haya designado oficialmente para la recepción de los bienes, esta acta deberá contener como mínimo la siguiente información:
+i. Calidades completas y condición (puesto que desempeña) de quienes suscriben.
+ii. Desglose de los bienes que se entregan incluyendo: cantidad, modelo y año (en caso que aplique), estado, características esenciales.
+iii. Citar los datos del convenio de cooperación: fecha de firma, objeto, vigencia, administrador del convenio, adendas suscritas y cualquier otro dato relevante referido a dicho instrumento.
+iv. Señalar del procedimiento de contratación administrativa la siguiente información: número del procedimiento, dependencia técnica involucrada, acto de adjudicación, refrendo (en caso que aplique) y cualquier otro detalle que se considere procedente.

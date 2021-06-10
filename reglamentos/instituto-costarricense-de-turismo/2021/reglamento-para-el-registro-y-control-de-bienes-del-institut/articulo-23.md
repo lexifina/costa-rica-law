@@ -1,0 +1,1 @@
+Artículo 23.-Baja de bienes por donación. Se contará con una Comisión de Donación, nombrada por el máximo jerarca, la cual estará conformada al menos por el Director Administrativo Financiero, el Proveedor Institucional y el encargado de activos.

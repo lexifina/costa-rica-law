@@ -1,0 +1,1 @@
+Artículo 44.-Responsabilidad administrativa, civil y penal. La asignación de bienes implica responsabilidad administrativa y eventualmente civil y penal por los bienes a cargo, cuando se determine que hay pérdida injustificada, sustracción por descuido o daño anormal, conforme al artículo 110 y siguientes de la Ley de Administración Financiera y Presupuestos Públicos.

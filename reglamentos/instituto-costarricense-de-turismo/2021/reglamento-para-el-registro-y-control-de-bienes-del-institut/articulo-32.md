@@ -1,0 +1,2 @@
+Artículo 32.-Tramitación de la solicitud. La solicitud será tramitada por la Proveeduría Institucional, iniciando con la confección y custodia del expediente, así como con el estudio correspondiente, previa solicitud de cualquier criterio técnico y avalúo que considere pertinente.
+Dentro del expediente debe constar por escrito, el documento remitido por el departamento o unidad que devuelve el bien o bienes a donar, de conformidad con lo señalado en el artículo 15 de este Reglamento, para la toma de la decisión final.

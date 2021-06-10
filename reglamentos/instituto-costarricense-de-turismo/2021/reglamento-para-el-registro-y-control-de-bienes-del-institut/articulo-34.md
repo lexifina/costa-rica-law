@@ -1,0 +1,2 @@
+Artículo 34.-Órgano competente. La competencia para aprobar donaciones de bienes muebles corresponderá a la Junta Directiva en su condición de órgano superior jerárquico, o a la dependencia institucional en que esta delegue expresamente la aprobación.
+En caso de que el órgano que apruebe se aparte de la recomendación de la Proveeduría Institucional, deberá señalar las razones en las que fundamenta su decisión.

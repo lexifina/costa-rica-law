@@ -1,0 +1,1 @@
+Artículo 22.-Baja de bienes inscritos en el Registro Nacional. En el caso de los bienes inscritos en el Registro Nacional, para darlos de baja se requiere realizar los trámites legales y administrativos correspondientes a la respectiva desinscripción a través de las dependencias competentes, posteriormente se procederá a dar de baja en el sistema.

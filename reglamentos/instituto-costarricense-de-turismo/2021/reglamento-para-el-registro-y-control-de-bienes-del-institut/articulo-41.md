@@ -1,0 +1,1 @@
+Artículo 41.-Registro Contable. Para efectos del registro contable de las donaciones otorgadas por el Instituto y una vez aprobadas, la Proveeduría Institucional del Instituto Costarricense de Turismo, deberá dar de baja en el sistema de activos los bienes donados, a través de un ajuste por donación adjuntando la correspondiente documentación que la ampara.
