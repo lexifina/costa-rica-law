@@ -1,3 +1,2 @@
-ARTÍCULO 2.- Ámbito de aplicación
-Esta Ley se aplicará cuando las conductas tipificadas en ella como delitos penales se dirijan contra una mujer mayor de edad, en el contexto de una relación de matrimonio, en unión de hecho declarada o no.
-Además, se aplicará cuando las víctimas sean mujeres mayores de quince años y menores de dieciocho, siempre que no se trate de una relación derivada del ejercicio de autoridad parental.
+Artículo 2- Ámbito de aplicación. Esta ley se aplicará cuando las conductas tipificadas como delitos se dirijan contra una mujer, en el contexto o con ocasión de una relación o vínculo de pareja, sea matrimonial, unión de hecho, noviazgo, convivencia, de no convivencia, casual u otra análoga, aun cuando medie divorcio, separación o ruptura, siempre que la conducta no constituya un delito más grave o previsto con una pena mayor.
+(Así reformado por el artículo 1° de la ley N° 9975 del 14 de mayo de 2021)
