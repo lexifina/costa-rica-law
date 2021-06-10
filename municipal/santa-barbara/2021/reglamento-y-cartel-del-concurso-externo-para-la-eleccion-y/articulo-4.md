@@ -1,0 +1,1 @@
+Artículo 4º-Nombramiento de una Comisión Especial. El Concejo tomara un acuerdo mediante el cual creará la Comisión Especial con la finalidad de que lleve adelante el proceso de escogencia de los candidatos al puesto de Auditor Interno. Esa comisión actuará en representación del Concejo Municipal y será nombrada conforme lo establece el artículo 49 del Código Municipal.

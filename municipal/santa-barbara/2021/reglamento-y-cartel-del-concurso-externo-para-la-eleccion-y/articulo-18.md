@@ -1,0 +1,1 @@
+Artículo 18º-Sobre las ofertas incompletas. Una vez que la Comisión especial analice las ofertas, ante el supuesto que una oferta presentada está incompleta, se podrá conceder un plazo de hasta tres días hábiles posterior al período de recepción de ofertas para que los interesados puedan completar su solicitud a criterio de la Comisión.

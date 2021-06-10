@@ -1,0 +1,1 @@
+Artículo 17º-Sobre la forma de recepción de las ofertas. La secretaria del Concejo Municipal, solo recibirá aquellas ofertas que se presenten en un sobre cerrado, indicando únicamente por fuera, nombre del postulante, numero de cedula, correo electrónico para notificaciones. Las mismas deben contener todos los requisitos y documentos solicitados en el presente reglamento.

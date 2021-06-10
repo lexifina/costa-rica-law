@@ -1,0 +1,1 @@
+Artículo 31°- Normas supletorias. En aquellos casos que el reglamento sea omiso, se aplicará supletoriamente la normativa establecida en el Código Municipal, Código de Trabajo, la Ley General de la Administración Pública, Ley General de Control Interno, Ley Orgánica de la Contraloría General de la República y las directrices que dicte la Contraloría referentes a este tema.
