@@ -1,2 +1,2 @@
-ARTÍCULO 31.- Explotación sexual de una mujer
-Será sancionado con pena de prisión de dos a cinco años, quien obligue a una mujer con quien mantenga una relación de matrimonio, en unión de hecho declarada o no, a tener relaciones sexuales con terceras personas, sin fines de lucro.
+Artículo 31- Explotación sexual de una mujer. Será sancionado con pena de prisión de dos a cinco años, quien obligue a una mujer con quien mantenga o haya mantenido una relación o vínculo de pareja, sea matrimonial, unión de hecho, noviazgo, convivencia, de no convivencia, casual u otra análoga, aun cuando medie divorcio, separación o ruptura, siempre que la conducta no constituya un delito más grave o previsto con una pena mayor, a tener relaciones sexuales con terceras personas, sin fines de lucro.
+(Así reformado por el artículo 1° de la ley N° 9975 del 14 de mayo del 2021)

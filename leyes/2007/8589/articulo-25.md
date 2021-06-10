@@ -1,5 +1,4 @@
 CAPÍTULO II
 VIOLENCIA PSICOLÓGICA
-Artículo 25.-Ofensas a la dignidad
-Será sancionado con pena de prisión de seis meses a dos años, al que ofenda de palabra en su dignidad o decoro, a una mujer con quien mantenga una relación de matrimonio o en unión de hecho declarada o no.
-(Así reformado por el artículo único de la Ley N° 8929 del 8 de marzo del 2011. Anteriormente éste artículo había sido anulado mediante resolución de la Sala Constitucional N° 15447 del 15 de octubre de 2008, adicionada mediante resolución de la Sala Constitucional N° 7398 del 6 de mayo de 2009)
+Artículo 25- Ofensas a la dignidad. Será sancionado con pena de prisión de seis meses a dos años, al que ofenda de palabra en su dignidad o decoro, a una mujer con quien mantenga o haya mantenido una relación o vínculo de pareja, sea matrimonial, unión de hecho, noviazgo, convivencia, de no convivencia, casual u otra análoga, aun cuando medie divorcio, separación o ruptura, siempre que la conducta no constituya un delito más grave o previsto con una pena mayor.
+(Así reformado por el artículo 1° de la ley N° 9975 del 14 de mayo del 2021)

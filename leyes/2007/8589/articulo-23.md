@@ -1,3 +1,2 @@
-ARTÍCULO 23.- Restricción a la libertad de tránsito
-Será sancionado con pena de prisión de dos a diez años, quien, sin ánimo de lucro, prive o restrinja la libertad de tránsito a una mujer con quien mantenga una relación de matrimonio, en unión de hecho declarada o no.
-La conducta no será punible, si la restricción es impuesta por el jefe o la jefa de familia, como medida para salvaguardar la integridad y la seguridad de ella o la de los otros miembros del grupo familiar.
+Artículo 23- Restricción a la libertad de tránsito. Será sancionado con pena de prisión de dos a diez años, quien, sin ánimo de lucro, prive o restrinja la libertad de tránsito a una mujer con quien mantenga o haya mantenido una relación o vínculo de pareja, sea matrimonial, unión de hecho, noviazgo, convivencia, de no convivencia, casual u otra análoga, aun cuando medie divorcio, separación o ruptura, siempre que la conducta no constituya un delito más grave o previsto con una pena mayor.
+(Así reformado por el artículo 1° de la ley N° 9975 del 14 de mayo del 2021)
