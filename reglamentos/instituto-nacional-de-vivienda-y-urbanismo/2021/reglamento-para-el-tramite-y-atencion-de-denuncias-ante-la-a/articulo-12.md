@@ -1,0 +1,1 @@
+Artículo 12.—Del Seguimiento de los Resultados y Atención de las Denuncias. La Auditoría Interna como ente fiscalizador del sistema de control interno del INVU, determinará los casos en los que dará seguimiento a los resultados producto de las denuncias presentadas ante esta Unidad, con el fin de verificar su cumplimiento.

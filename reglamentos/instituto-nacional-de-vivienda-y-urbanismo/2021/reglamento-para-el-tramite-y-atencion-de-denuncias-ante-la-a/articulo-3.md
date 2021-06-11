@@ -1,0 +1,1 @@
+Artículo 3º—Principios generales. La admisión, atención y trámite de las denuncias será atendida bajo los principios de simplicidad, economía, eficacia, eficiencia, razonabilidad, proporcionalidad e informalismo.

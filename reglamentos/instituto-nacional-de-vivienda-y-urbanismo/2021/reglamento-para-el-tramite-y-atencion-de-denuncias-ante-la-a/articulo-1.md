@@ -1,0 +1,17 @@
+INSTITUTO NACIONAL DE VIVIENDA
+Y URBANISMO
+El Instituto Nacional de Vivienda y Urbanismo comunica que mediante acuerdo adoptado por la Junta Directiva de este Instituto, según consta en el Artículo VII, Inciso 2) del Acta de la Sesión Ordinaria N° 6498 del 27 de mayo de 2021, que textualmente dice: Con los votos a favor de Dr. Erick Solano Coto, Arq. Eugenia Solís Umaña, Licda. Alicia Borja Rodríguez, Lic. Rodolfo Freer Campos, Sr. Alejandro Li Glau y Arq. Ana Monge Fallas se acuerda: Aprobar el “Reglamento para el Trámite y Atención de Denuncias de la Auditoría Interna del Instituto Nacional de Vivienda y Urbanismo” con las modificaciones realizadas, para que en adelante se lea integralmente como sigue:
+REGLAMENTO PARA EL TRÁMITE Y ATENCIÓN DE
+DENUNCIAS ANTE LA AUDITORÍA INTERNA DEL
+INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+Considerando:
+1º—Que el artículo 27 de la Constitución Política de la República de Costa Rica, de 07 de noviembre de 1949, dispone que se garantiza la libertad de petición, en forma individual o colectiva, ante cualquier funcionario público o entidad oficial, y el derecho a obtener pronta resolución.
+2º—Que el artículo 6 de la Ley General de Control Interno, Ley N° 8292, de 31 de julio de 2002, establece que tanto la Contraloría General de la República, la administración y las auditorías internas, guardarán confidencialidad respecto de la identidad de los ciudadanos que presenten denuncias ante sus oficinas.
+3º—Que el artículo 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley N° 8422, de 06 de octubre de 2004, dispone los derechos del denunciante de buena fe y confidencialidad de la información que origine la apertura del procedimiento administrativo, quienes guardarán confidencialidad respecto de la identidad de los ciudadanos que, de buena fe, presenten ante sus oficinas denuncias por actos de corrupción, lo cual implica que la identidad del denunciante nunca puede ser revelada.
+4º—Que en la Ley Orgánica del Instituto Nacional de Vivienda y Urbanismo (INVU), Ley N° 1788, del 24 de agosto de 1954, en su artículo 25 inciso f) establece como atribución de la Junta Directiva del INVU dictar, promulgar, reformar e interpretar los reglamentos institucionales.
+5º—Que el artículo 35 del Reglamento de Organización y Funcionamiento de la Auditoría Interna del INVU, dispone que la Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos o que afecten a la institución, la Hacienda Pública relacionada con la institución y lo regulado por la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N° 8422.
+6º—Que mediante oficio N° AI-037-2021 la Auditoría Interna del INVU remite para su aprobación el presente Reglamento a la Junta Directiva de la Institución.
+7º—Que la Junta Directiva del Instituto Nacional de Vivienda y Urbanismo, en Sesión Ordinaria N° 6498, artículo VII, inciso 2), celebrada el día 27 de mayo de 2021, aprobó el presente Reglamento que contiene:
+CAPÍTULO I
+Aspectos Generales
+Artículo 1º—Objetivo. Este Reglamento tiene el propósito de establecer los requisitos que deben cumplir las denuncias que se presenten ante la Auditoría Interna del INVU, y el procedimiento que se empleará para valorar si es procedente verificar los hechos que se denuncian o desestimar la denuncia.

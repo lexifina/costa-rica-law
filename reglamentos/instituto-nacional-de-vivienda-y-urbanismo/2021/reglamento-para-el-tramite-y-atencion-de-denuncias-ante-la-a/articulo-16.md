@@ -1,0 +1,1 @@
+Artículo 16.—De la comunicación por la Administración Activa. La Administración Activa deberá comunicar a la Auditoría Interna del INVU de lo actuado sobre las denuncias que esta le haya trasladado para su atención, así como a la persona denunciante si se dispone de su nombre, calidades y dirección para notificaciones.
