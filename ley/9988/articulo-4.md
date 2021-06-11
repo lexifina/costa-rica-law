@@ -1,0 +1,3 @@
+ARTÍCULO 4- Incorporación de recursos en el presupuesto ordinario y extraordinario de la República
+Los recursos autorizados por estos contratos de préstamo se incorporarán al presupuesto de la República, mediante la aprobación de presupuestos extraordinarios autorizados por la Asamblea Legislativa.
+En los presupuestos extraordinarios que incorporen recursos destinados al cambio de fuente de financiamiento de gastos autorizados mediante ley de presupuesto de la República, el Ministerio de Hacienda deberá reducir de manera equivalente el monto para emitir títulos valores de la deuda interna. Los ahorros generados por la aplicación de esta ley no podrán ser utilizados en nuevos gastos y deberán ser eliminados del presupuesto de la República.
