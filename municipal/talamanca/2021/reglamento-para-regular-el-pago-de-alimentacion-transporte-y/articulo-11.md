@@ -1,0 +1,1 @@
+Artículo 11.-Extemporaneidad. La solicitud del pago de viáticos referidos en este Reglamento que se presenten después de quince días naturales, se considerará extemporánea, por lo que no se cancelarán, excepto por razón de caso fortuito o fuerza mayor.

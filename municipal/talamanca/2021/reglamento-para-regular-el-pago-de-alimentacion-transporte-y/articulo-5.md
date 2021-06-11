@@ -1,0 +1,1 @@
+Artículo 5°-Gastos de Transporte. Punto de lejanía. Que los gastos de transporte a que se refiere el artículo 3° anterior, en cuanto a la lejanía del lugar de residencia, se reconocerán a una distancia no menor de diez kilómetros desde la sede municipal.

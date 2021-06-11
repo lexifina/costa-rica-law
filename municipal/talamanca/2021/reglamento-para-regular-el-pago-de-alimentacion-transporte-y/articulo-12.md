@@ -1,0 +1,1 @@
+Artículo 12.-Transitorio. Este reglamento deroga en su totalidad cualquier otro que regulaba el pago de alimentación, transporte y hospedaje, dentro del cantón de Talamanca, así como otras localidades dentro y fuera del país, a los Regidores, Síndicos, propietarios y suplentes de la Municipalidad de Talamanca.

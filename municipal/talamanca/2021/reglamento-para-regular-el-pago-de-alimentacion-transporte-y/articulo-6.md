@@ -1,0 +1,1 @@
+Artículo 6°-Gastos de alimentación. La Municipalidad reconocerá gastos por concepto de alimentación correspondientes al desayuno, almuerzo o cena, según sea el caso de conformidad con lo establecido en el Reglamento de Viáticos de la Contraloría General de la República.

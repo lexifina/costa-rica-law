@@ -1,0 +1,4 @@
+Artículo 8°-Gastos de alimentación. Los gastos de alimentación se concederán de acuerdo a los siguientes parámetros:
+a) Desayuno: Se reconocerá la suma de tres mil colones exactos cuando las sesiones municipales, ordinarias o extraordinarias se inicien después de, o, a las siete horas y terminen a las nueve horas.
+b) Almuerzo: Se reconocerá la suma de cuatro mil quinientos colones exactos cuando las sesiones municipales, ordinarias o extraordinarias se inicien después de, o, a las diez horas y terminen después de las catorce horas.
+Cena: Se pagará cuando la partida se realice antes de o, a las dieciocho horas y el regreso a su domicilio después de las veinte horas. En casos especiales, previa justificación de la administración, podrá ampliarse el límite de la partida, siempre y cuando el regreso y cuando el regreso se produzca después de las veinte horas y el funcionario haya laborado de forma continua antes de su partida."
