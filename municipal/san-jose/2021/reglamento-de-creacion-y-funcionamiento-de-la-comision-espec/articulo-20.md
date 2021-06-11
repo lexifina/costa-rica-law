@@ -1,0 +1,1 @@
+Artículo 20.-La Administración Municipal, a través de la Alcaldía, podrá disponer del Parqueo del Campo Ferial cuando lo requiera para la realización de actividades tendientes al desarrollo físico, mental, educativo, cultural y social de sus funcionarios o vecinos del cantón; lo señalado previa coordinación con la Comisión.

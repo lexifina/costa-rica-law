@@ -1,0 +1,1 @@
+Artículo 26.-Los interesados en utilizar el Parqueo del Campo Ferial de Zapote, deberán presentar el formulario de solicitud en forma escrita o por medios electrónicos con la debida firma (escaneada o digital), ante cualquier miembro de la Comisión, o al correo que será dispuesto para la atención, con un mínimo de 15 días de anticipación de la fecha de la actividad.

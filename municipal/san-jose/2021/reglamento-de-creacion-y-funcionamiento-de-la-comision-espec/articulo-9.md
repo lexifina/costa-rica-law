@@ -1,0 +1,1 @@
+Artículo 9°-Los acuerdos de la Comisión, para su validez y eficacia deberán tomarse por mayoría simple (la mitad más uno de los miembros presentes que constituyan quórum), en caso de empate el Regidor que funja como Presidente tendrá voto de calidad (contará doble).

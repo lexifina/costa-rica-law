@@ -1,0 +1,1 @@
+Artículo 23.-El titular del préstamo de uso del parqueo, podrá fijar el pago de una contribución para quienes hagan uso directo del parqueo; sin que su cancelación sea obligatoria por los interesados.

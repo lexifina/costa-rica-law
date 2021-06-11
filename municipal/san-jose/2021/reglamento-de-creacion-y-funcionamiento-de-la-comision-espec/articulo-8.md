@@ -1,0 +1,2 @@
+Artículo 8°-La Comisión tendrá quórum para la realización de las reuniones (ordinarias o extraordinarias) ante la concurrencia de al menos tres de los miembros, en el tanto los miembros ausentes hayan sido notificados al medio señalado.
+Al ocurrir dos ausencias injustificadas en fechas continuas de alguno de los miembros o asesores, independientemente de que se trate de reuniones ordinarias o extraordinarias, el Concejo Municipal contará con la potestad de sustitución de los mismos.

@@ -1,0 +1,1 @@
+Artículo 16.-Los usuarios del Parqueo deberán en todo momento guardar el orden, respeto y mantener un comportamiento acorde a la moral y buenas costumbres; así como hacer buen uso de las instalaciones bajo el principio del "buen padre de familia".
