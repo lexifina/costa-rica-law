@@ -1,0 +1,1 @@
+Artículo 2°-Alcance. Estas normas constituyen un marco de referencia de carácter general, a partir del cual debe darse la aplicación de los procedimientos específicos, para el trámite y aprobación de las modificaciones al presupuesto de la Municipalidad de San Carlos.

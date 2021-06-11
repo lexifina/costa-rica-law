@@ -1,0 +1,5 @@
+Artículo 10.-Disposiciones generales a considerar en la formulación y aprobación presupuestaria de las modificaciones presupuestarias. En la formulación y aprobación interna de las modificaciones presupuestarias, el jerarca, así como las unidades y funcionarios designados como responsables para tales efectos, deberán considerar al menos los siguientes aspectos:
+a. Cumplir con lo establecido en el bloque de legalidad vigente.
+b. Tomar en cuenta su relación con los objetivos y metas establecidas en atención del Plan Anual Operativo, La Gestión por Resultados y el Presupuesto Plurianual de la municipalidad y sobre lo cual se deberá de dejar constancia en el expediente respectivo.
+c. Constatar la existencia del correspondiente contenido presupuestario de las subpartidas a rebajar, la cual se reflejará mediante certificación de saldos emitida por la Tesorería Municipal
+d. Asignar numeración consecutiva para cada modificación presupuestaria, además deben estar a disposición de la Contraloría General de la República, mediante el respectivo expediente.
