@@ -1,1 +1,0 @@
-Artículo 17.—Se toma como tarifa comercial 5, la tasa a aplicar a todo aquel comercio donde la cantidad estimada de residuos sólidos ordinarios oscila entre más de 160 kilogramos y hasta 200 kilogramos por semana. En la tarifa comercial 5 el factor de generación es 15.

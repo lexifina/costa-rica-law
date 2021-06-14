@@ -1,1 +1,0 @@
-Artículo 21.—En toda unidad habitacional, en cuya localización exista una patente y se lleve a cabo una actividad comercial dentro de la misma vivienda, se cobrará la tasa habitacional más la tasa comercial según la categoría, de acuerdo a la cantidad estimada de residuos sólidos ordinarios.

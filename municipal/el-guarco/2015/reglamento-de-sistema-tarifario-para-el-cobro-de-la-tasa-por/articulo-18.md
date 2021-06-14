@@ -1,1 +1,0 @@
-Artículo 18.—Se toma como tarifa comercial 6, la tasa a aplicar a todo aquel comercio donde la cantidad estimada de residuos sólidos ordinarios por semana que sea superior a 200 kilogramos por semana. En la tarifa comercial 6 el factor de generación es 25.

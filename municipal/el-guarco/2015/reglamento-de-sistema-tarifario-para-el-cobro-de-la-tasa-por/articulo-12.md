@@ -1,1 +1,0 @@
-Artículo 12.—Se toma como tarifa residencial, la tasa a aplicar a toda unidad habitacional en donde la cantidad estimada de residuos sólidos ordinarios sea inferior a 25 kilogramos por semana. En la tarifa residencial el factor de generación es de 1.

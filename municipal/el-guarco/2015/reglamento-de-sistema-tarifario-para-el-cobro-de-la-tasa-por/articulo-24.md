@@ -1,1 +1,0 @@
-Artículo 24.—Para la presentación de un reclamo, la municipalidad procederá a realizar el estudio descrito en el artículo 8 una vez que se cumplen con todos los requisitos descritos en el artículo siguiente.

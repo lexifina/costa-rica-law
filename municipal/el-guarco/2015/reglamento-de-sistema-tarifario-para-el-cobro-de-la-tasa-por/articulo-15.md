@@ -1,1 +1,0 @@
-Artículo 15.—Se toma como tarifa comercial 3, la tasa a aplicar a todo aquel comercio donde la cantidad estimada de residuos sólidos ordinarios oscila entre más de 80 kilogramos y hasta 120 kilogramos por semana. En la tarifa comercial 3 el factor generación es 7.

@@ -1,1 +1,0 @@
-Artículo 5°—Cada beneficiario del servicio de recolección de desechos sólidos, debe comunicar a la Municipalidad, el traspaso o segregación de los inmuebles, a fin de poder actualizar los registros de beneficiarios que lleva al efecto dicha institución.

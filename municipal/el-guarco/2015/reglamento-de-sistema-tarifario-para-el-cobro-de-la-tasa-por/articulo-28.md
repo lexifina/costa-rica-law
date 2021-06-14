@@ -1,2 +1,0 @@
-Artículo 28.—En caso de cancelar la patente para un cambio de uso que no sea comercial se procederá a excluir o modificar según se determine, el servicio de recolección y disposición final de los residuos sólidos ordinarios a lo cual el propietario deberá informar a la administración cual será el uso que tendrá dicho espacio.
-Para la cancelación del servicio o cambio de categoría el propietario deberá encontrarse al día en todas sus obligaciones municipales.

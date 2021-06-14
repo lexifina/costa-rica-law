@@ -1,1 +1,0 @@
-Artículo 3°—En caso fortuito o de fuerza mayor, cuando las necesidades de los servicios de recolección así lo requieran, la administración podrá encomendar su prestación, mediante concesión o contrato u otra modalidad a cualquier persona física o jurídica que llene los requisitos exigidos en el ordenamiento municipal vigente.

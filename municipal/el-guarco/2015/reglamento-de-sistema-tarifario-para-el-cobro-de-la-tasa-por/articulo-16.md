@@ -1,1 +1,0 @@
-Artículo 16.—Se toma como tarifa comercial 4, la tasa a aplicar a todo aquel comercio donde la cantidad estimada de residuos sólidos ordinarios oscila entre más de 120 kilogramos y hasta 160 kilogramos por semana. En la tarifa comercial 4 el factor generación es 10.

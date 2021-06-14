@@ -1,1 +1,0 @@
-Artículo 13.—Se toma como tarifa comercial 1, la tasa a aplicar a todo aquel comercio donde la cantidad estimada de residuos sólidos ordinarios sea inferior a 40 kilogramos por semana. En la tarifa comercial 1 el factor de generación es 2.

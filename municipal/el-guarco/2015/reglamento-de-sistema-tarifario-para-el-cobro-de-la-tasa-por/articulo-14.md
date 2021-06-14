@@ -1,1 +1,0 @@
-Artículo 14.—Se toma como tarifa comercial 2, la tasa a aplicar a todo aquel comercio donde la cantidad estimada de residuos sólidos ordinarios oscila entre más de 40 kilogramos y hasta 80 kilogramos por semana. En la tarifa comercial 2 el factor de generación es 5.
