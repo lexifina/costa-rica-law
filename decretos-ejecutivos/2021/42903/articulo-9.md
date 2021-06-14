@@ -1,0 +1,3 @@
+Artículo 9º-Giras fuera del territorio Costarricense. Todos los Vehículos de la flotilla de Mideplan deberán contar con las condiciones para realizar giras fuera del territorio costarricense. Para cada salida, planificada e individualizada, se requerirá:
+A.-Mediante oficio y con al menos veinte días hábiles previos a la salida, se deberá enviar la solicitud a la Oficialía Mayor con copia a Servicios Generales. Cada trámite externo está sujeto a plazos de las instituciones correspondientes;
+B.-Previo a la autorización de salida del país, la Administración requerirá tramitar ante diversas entidades públicas, con al menos veinte días hábiles de antelación, al menos una exoneración de impuestos de salida y el permiso de salida del país.

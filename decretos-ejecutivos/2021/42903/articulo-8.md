@@ -1,0 +1,5 @@
+Artículo 8º-Solicitud de Transporte. Las Personas Funcionarias de Mideplan, gestionarán, bajo los siguientes requisitos, las solicitudes de servicio de transporte, sin excusas ni excepciones, en caso que requieran ser trasladados, transportar bienes institucionales o acudir a giras:
+A.-Con dos días hábiles de anticipación para transporte en la Gran Área Metropolitana;
+B.-Con cinco días hábiles de anticipación para la atención de giras en las que al menos una de las personas que brinde o requiera los servicios necesite tramitar viáticos;
+C.-Una boleta de solicitud de servicio de transporte electrónica con firma digital del superior inmediato, que indique la fecha y hora de salida, el Área o Unidad solicitante, lugar a visitar, motivo, personas funcionarias a trasladar, tiempo de espera y observaciones;
+D.-Para lograr un mejor aprovechamiento de los recursos, Servicios Generales deberá agrupar varias solicitudes individualizadas de transporte dentro de una misma ruta en un solo trayecto.

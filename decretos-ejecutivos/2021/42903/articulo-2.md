@@ -1,0 +1,1 @@
+Artículo 2º-Objeto. El presente Reglamento tiene como objeto regular y asegurar el uso eficiente y racional de los vehículos institucionales así como las acciones en la disposición, custodia y mantenimiento de manera transparente, de conformidad con las funciones y competencias de Mideplan.
