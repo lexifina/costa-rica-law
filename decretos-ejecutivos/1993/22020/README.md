@@ -14,3 +14,4 @@ Norma Oficial Sobre Mayonesa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-04-02 | la propia norma |
+| 2 | 2021-06-14 | Decreto Ejecutivo 43152 (2021-06-14) |
