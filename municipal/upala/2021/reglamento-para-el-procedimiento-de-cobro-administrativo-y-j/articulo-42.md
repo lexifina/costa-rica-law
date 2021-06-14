@@ -1,0 +1,11 @@
+Artículo 42.-Trámites. Los abogados deberán realizar los siguientes trámites de cobro:
+a) Presentación de la demanda de cobro judicial, mediante las formalidades que la ley establece en acatamiento del debido proceso, debidamente autorizadas con las firmas de los funcionarios municipales correspondientes. Tal presentación la hará en un lapso no mayor de diez días hábiles posterior a la entrega de la documentación por parte de la Oficina de Cobros. La presentación de la demanda deberá testimoniarse con el sello y fecha del Juzgado que la recibió, constituyendo esto, requisito indispensable para el pago de honorarios. Deberá realizar las notificaciones fuera del perímetro judicial.
+b) Entregarán copias con el sello y fecha de recibido, de todos los escritos que presenten al Juzgado, a la Oficina de Cobros de la Municipalidad donde se llevará un expediente al efecto.
+c) Realizarán estudios de retenciones como mínimo cada tres meses en los procesos que estén bajo su dirección y solicitarán, cuando existe sentencia firme, la orden de giro
+correspondiente. Una vez dictada la sentencia, de previo y en un plazo no mayor de quince días naturales, deberá presentar al Tribunal respectivo la liquidación de costas.
+d) En el escrito inicial de la demanda se señalará para notificaciones, la oficina del abogado y el mismo enviará copia de la notificación a la Oficina de Cobros de la Municipalidad.
+e) Los abogados serán los encargados de dar trámite y del debido proceso de los remates, protegiendo los intereses municipales.
+f) Excusarse de asumir la dirección de un proceso cuando se encuentre en alguna de las causas de impedimento, recusación o excusa, establecidas en los artículos 49 siguientes y concordantes del Código Procesal Civil.
+g) Ante ausencias de su oficina por plazos mayores a tres días hábiles, deberá indicar a la Oficina de Cobros de la Municipalidad, el nombre y calidades del profesional que deja responsable de los procesos judiciales a su cargo, documento que deberá realizarse por escrito y con cinco días de antelación a la ausencia.
+h) Dictada la sentencia respectiva, el abogado externo director del proceso deberá presentar la liquidación de costas en un plazo no mayor de quince días naturales.
+i) Comunicar por escrito, al día hábil siguiente del remate, el resultado de este, a la Oficina de Cobro de la Municipalidad.

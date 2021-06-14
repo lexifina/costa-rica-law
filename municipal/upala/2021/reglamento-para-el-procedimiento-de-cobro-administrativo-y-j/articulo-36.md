@@ -1,0 +1,1 @@
+Artículo 36.-Finalizado. Una vez que el cobro judicial haya sido iniciado, solo podrá darse por terminado o suspendido ante el pago total de la suma adeudada a la Municipalidad. En caso de conflictos estos deberán ventilarse ante la instancia Judicial correspondiente.

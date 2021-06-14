@@ -1,0 +1,3 @@
+SECCIÓN V
+Rescisión de la contratación de abogados externos
+Artículo 57.-Rescisión de la Contratación. El abogado externo que, por alguna razón personal o profesional, deba dejar de servir a la Municipalidad, deberá de comunicar esa decisión expresamente y por escrito al Alcalde Municipal, con treinta días de antelación, nota de la cual remitirán copia a la Oficina de Cobro de la Municipalidad. De aceptarse lo solicitado se rescindirá el contrato respectivo. Dicho profesional deberá remitir al encargado de la Oficina de Cobro de la Municipalidad, la totalidad de los expedientes judiciales que le fueron asignados.
