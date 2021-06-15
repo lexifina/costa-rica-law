@@ -18,3 +18,6 @@ B/N: $0.20 por hoja + IVA
 Nota:
 La comisión establecida es adicional a la tarifa fijada por el MOPT vía decreto ejecutivo.
 (Así adicionada la definición 10.3) anterior mediante sesión N° 15-2021 del 6 de abril de 2021)
+10.4 Comisión por certificación de salida del país de vehículos automotores.
+US$10.00 por trámite de Certificación.
+(Así adicionado el punto 10.4) anterior mediante sesión N° 26-2021 del 15 de junio de 2021)
