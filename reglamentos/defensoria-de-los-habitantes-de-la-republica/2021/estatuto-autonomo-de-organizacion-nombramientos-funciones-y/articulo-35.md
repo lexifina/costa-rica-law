@@ -1,0 +1,1 @@
+Artículo 35.- De los acuerdos o disposiciones del Mecanismo Nacional de Prevención de la Tortura. Se remitirá copia a la Auditoría Interna de la Defensoría de los Habitantes de los acuerdos emitidos por la Dirección Ejecutiva, dirigidos a dar cumplimiento del mandato del Mecanismo Nacional de Prevención de la Tortura.

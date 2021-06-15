@@ -1,0 +1,1 @@
+Artículo 40.- Conformación. El Consejo Asesor Externo estará conformado por tres miembros de la Sociedad Civil con conocimientos en derechos humanos y prevención de la tortura, quienes ejercerán sus funciones ad honorem.

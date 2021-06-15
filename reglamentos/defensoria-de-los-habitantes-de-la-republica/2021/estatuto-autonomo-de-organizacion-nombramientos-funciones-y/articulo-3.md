@@ -1,0 +1,1 @@
+Artículo 3.- Autoridad responsable. El Director (a) Ejecutivo (a) del Mecanismo Nacional de Prevención de la Tortura es la autoridad responsable de velar porque se cumpla lo establecido en el presente Estatuto.

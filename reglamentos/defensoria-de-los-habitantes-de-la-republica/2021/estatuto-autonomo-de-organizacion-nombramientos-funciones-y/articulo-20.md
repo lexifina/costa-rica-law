@@ -1,0 +1,1 @@
+Artículo 20 -. Del proceso de Inducción. La Dirección Ejecutiva del Mecanismo Nacional de Prevención de la Tortura emitirá un protocolo de inducción, el cual será impartido a los funcionarios de nuevo ingreso quienes deberán cumplir con dicho proceso inductivo.

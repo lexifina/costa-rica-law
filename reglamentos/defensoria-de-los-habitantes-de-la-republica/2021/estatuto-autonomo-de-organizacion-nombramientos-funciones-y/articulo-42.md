@@ -1,0 +1,1 @@
+Artículo 42.- Reuniones ordinarias y extraordinarias. El Mecanismo Nacional de Prevención de la Tortura y el Consejo Asesor Externo, acordarán los plazos de reuniones, para lo cual, se llevará una agenda y se realizará un acta de cada reunión. Dado en San José, a las 8:00 horas del día 13 del mes de abril de 2021.
