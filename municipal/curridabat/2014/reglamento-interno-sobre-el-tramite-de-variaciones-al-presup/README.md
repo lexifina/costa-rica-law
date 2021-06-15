@@ -14,3 +14,4 @@ Reglamento interno sobre el trámite de variaciones al presupuesto de la Municip
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-26 | la propia norma |
+| 2 | 2021-06-15 | Reglamento municipal 59 (2021-06-15) |
