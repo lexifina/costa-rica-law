@@ -1,1 +1,0 @@
-30.—El Recurso de Revisión procederá contra los acuerdos que no hubieran sido declarados firmes y deberá presentarse en la discusión del acta. La misma mayoría requerida para dictar el acuerdo sobre el que solicita revisión, sera necesaria para acordar éste. Aceptada la revisión, la Presidencia pondrá en discusión el asunto a que se refiere el acuerdo.

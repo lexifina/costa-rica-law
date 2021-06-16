@@ -1,1 +1,0 @@
-7°—Las sesiones del Concejo deberá iniciarse dentro de los quince minutos siguientes a la hora señalada, conforme al reloj del local donde se llevará a cabo la sesión. Si pasados los quince minutos, no hubiere quorum. se dejara constancia en el Libro de Actas y se tomará la nómina de los miembros presentes, a fin de acreditarles su asistencia para efectos del pago de dietas.

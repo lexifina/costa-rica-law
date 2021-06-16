@@ -1,2 +1,0 @@
-67.—Toda sesión tendrá como máximo una duración de tres horas, las cuales darán inicio a las diecisiete horas y finalizará a las veinte horas, en caso de no poder ver todos los asuntos anotados en el orden del día, estos se verán en la próxima sesión ordinaria.
-(Así corrida su numeración en sesión ordinaria N° 055-2010 del 16 de noviembre de 2010, que lo traspasó del antiguo artículo 58 al 67 actual)

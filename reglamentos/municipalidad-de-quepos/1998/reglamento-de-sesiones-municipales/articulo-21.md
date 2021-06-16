@@ -1,1 +1,0 @@
-21.—Todo regidor presentara sus mociones y proposiciones por escrito y firmadas a la Secretaría y esta anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden, salvo que se trate de una moción de orden.

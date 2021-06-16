@@ -1,1 +1,0 @@
-25.—De toda sesión el Concejo levantará una acta en la que se hará constar los acuerdos tomados y suscintamente las deliberaciones habidas, salvo en casos de nombramientos o elecciones, en los que se hará constar únicamente los acuerdos tomados.

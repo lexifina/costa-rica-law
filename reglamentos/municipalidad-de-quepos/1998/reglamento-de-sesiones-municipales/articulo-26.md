@@ -1,1 +1,0 @@
-26.—Toda acta realizada por el Concejo deberá ser firmada por la Presidencia Municipal y la Secretaría del Concejo, inmediatamente después de aprobadas, podrán levantarse en hojas sueltas si fueran previamente foliadas y selladas en la Contraloría General de la República.

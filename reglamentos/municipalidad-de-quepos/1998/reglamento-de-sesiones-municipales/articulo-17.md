@@ -1,1 +1,0 @@
-17.—Antes de la aprobación del acta. cualquier regidor podrá plantear revisión de acuerdos, salvo respecto de los aprobados definitivamente, conforme a este Reglamento o al Código Municipal. La misma mayoría requerida para dictar el acuerdo será necesaria para acordar su revisión.

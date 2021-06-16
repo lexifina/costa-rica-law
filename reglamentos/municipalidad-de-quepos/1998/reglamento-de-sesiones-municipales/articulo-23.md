@@ -1,3 +1,0 @@
-23.—La Presidencia no dará curso o declarará fuera de orden las mociones o proposiciones que evidentemente resulten improcedentes o que simplemente tiendan a dilatar u obstruccionar el curso normal del debate o la resolución de un asunto.
-Los regidores suplentes, síndicos y cualquier vecino del cantón puede presentar mociones, siempre y cuando sean acogidas para su trámite, por un regidor propietario. De igual manera toda iniciativa que tienda a adoptar reformas, suspender o derogar disposiciones
-reglamentarias deberán ser acogidas para su trámite por el Alcalde Municipal o algunos de los regidores. En este último caso si un regidor tiene opinión contraria a la de la Presidencia ante el Concejo y este decidirá por simple mayoría de votos.

@@ -1,1 +1,0 @@
-3°—El Concejo podrá celebrar las sesiones extraordinarias que se requieran y a ellas deberán ser convocadas todos sus miembros. Deberá convocarse por lo menos con veinticuatro horas de anticipación, y el objeto de la sesión se señalará mediante acuerdo municipal o según el inciso m) del artículo 17.

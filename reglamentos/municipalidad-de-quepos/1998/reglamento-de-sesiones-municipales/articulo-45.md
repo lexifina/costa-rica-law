@@ -1,1 +1,0 @@
-45.—Toda comisión deberá designar día y hora de sesiones. Quien no se presente a sesión de comisión sin causa justificada pierde el 25% de la dieta; lo anterior siempre que esté comprendida entre las sesiones ordinarias legalmente autorizadas como máximo remuneradas.

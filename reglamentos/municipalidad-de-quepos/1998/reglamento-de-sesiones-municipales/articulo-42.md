@@ -1,1 +1,0 @@
-42.—Las comisiones despacharán los asuntos a su cargo a la mayor brevedad posible, salvo los casos especiales en que la Presidencia del Concejo en forma expresa da un termino menor o mayor. Las comisiones deberán rendir sus dictámenes en un plazo no mayor de quince días prorrogables por otros quince días a juicio de la Presidencia.

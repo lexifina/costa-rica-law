@@ -1,2 +1,0 @@
-Artículo 51.—Se otorgará el uso de la palabra durante las sesiones a las personas del público que tengan aportes importantes que hacer previa moción de orden presentada por un regidor y aprobada, por cuatro votos a favor y el uso de la palabra no podrá exceder de tres minutos y solo se podrá hablar de dos temas como máximo.
-(Así reformado mediante sesión ordinaria N° 055-2010 del 16 de noviembre de 2010)

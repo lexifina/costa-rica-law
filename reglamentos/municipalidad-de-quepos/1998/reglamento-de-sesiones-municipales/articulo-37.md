@@ -1,1 +1,0 @@
-37.—Al dar por discutido un asunto la Presidencia del Concejo lo someterá a votación que será pública y levantando la mano. Quien no la levante, se entenderá como voto negativo. Los regidores deben de dar su voto afirmativo o negativo, no caben las abstenciones. La Presidencia Municipal dirá como queda la votación.

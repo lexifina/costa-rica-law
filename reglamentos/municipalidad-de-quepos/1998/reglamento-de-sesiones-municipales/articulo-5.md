@@ -1,1 +1,0 @@
-5°—Las sesiones ordinarias y extraordinarias del Concejo, deberán efectuarse en el local sede de la Municipalidad. Sin embargo, podrán celebrarse sesiones en cualquier lugar del cantón, cuando vayan a tratarse asuntos relativos a los intereses de los vecinos de la totalidad.
