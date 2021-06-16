@@ -14,3 +14,4 @@ Diligencia para el suministro de información de entidades financieras y no fina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-05 | la propia norma |
+| 2 | 2021-06-16 | Resolución 21 (2021-06-16) |
