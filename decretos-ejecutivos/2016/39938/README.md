@@ -15,3 +15,4 @@ Reglamento General sobre la Asignación de Contingentes Arancelarios de Importac
 | --- | --- | --- |
 | 1 | 2016-10-06 | la propia norma |
 | 2 | 2018-12-10 | Decreto Ejecutivo 41558 (2018-12-10) |
+| 3 | 2021-06-16 | Decreto Ejecutivo 43086 (2021-06-16) |
