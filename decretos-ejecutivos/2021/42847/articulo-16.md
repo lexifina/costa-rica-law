@@ -269,6 +269,11 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de m�
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Otorrinolaringología y Cirugía de Cabeza y Cuello, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Otorrinolaringología Pediátrica en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*) 16.19.3 Laringología y Fonocirugía
+Requisitos Específicos:
+a. Estar debidamente inscrito como Especialista en Otorrinolaringología y Cirugía de Cabeza y Cuello, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Laringología y Fonocirugía en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión N° 2021-06- 16 del 16 de junio del 2021)
 16.20. Subespecialidades Médicas de Pediatría
 16.20.1. Adolescencia y Medicina del Desarrollo.
 Requisitos específicos:
