@@ -15,3 +15,4 @@ Reglamento de la Comisión de Plan, Presupuesto y Estados Financieros de la Oper
 | --- | --- | --- |
 | 1 | 2012-02-02 | la propia norma |
 | 2 | 2021-05-12 | Reglamento 641 (2021-05-12) |
+| 3 | 2021-06-16 | Reglamento 645 (2021-06-16) |
