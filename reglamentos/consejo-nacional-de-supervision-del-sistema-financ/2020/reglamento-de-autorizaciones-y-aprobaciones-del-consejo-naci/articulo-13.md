@@ -1,0 +1,2 @@
+Artículo 13. Modificaciones a las solicitudes de autorización o aprobación
+Todo cambio relativo al acto que se pretende autorizar o aprobar que, con posterioridad a la presentación de la solicitud y antes del dictado del acto final, realicen los solicitantes, deberá ser comunicado a la Superintendencia, junto con la documentación pertinente. En estos casos la Superintendencia cursará el trámite como una nueva solicitud, corriendo nuevamente los plazos previstos en este reglamento.

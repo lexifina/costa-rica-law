@@ -1,0 +1,3 @@
+Artículo 10. Vigencia de las autorizaciones y aprobaciones
+Los planes aprobados, así como los productos o servicios que se autoricen, quedarán sin efecto alguno, de pleno derecho, si después de los seis meses posteriores a su aprobación u autorización, no son comercializados, sin perjuicio de que la entidad interesada realice una solicitud para obtenerlas nuevamente.
+A solicitud del interesado podrá prorrogarse el plazo indicado en el párrafo anterior por un periodo igual, siempre y cuando la solicitud se encuentre debidamente justificada y se presente antes del vencimiento del plazo establecido en el párrafo anterior.
