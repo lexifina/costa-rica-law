@@ -4,6 +4,7 @@ b. No interferir ni obstaculizar el desarrollo de las votaciones u otras fases d
 c. No obstaculizar o interferir con las investigaciones de quejas o denuncias presentadas.
 d. No podrán sustituir u obstaculizar a las autoridades electorales en el ejercicio de sus funciones o interferir en su desarrollo.
 e. No intervenir directa o indirectamente en la toma de decisiones por parte de las juntas receptoras de votos.
-f. Identificarse ante los miembros de las Juntas Receptoras de Votos, cuando estos lo soliciten, mostrando la correspondiente credencial autenticada mediante el distintivo dispuesto por la Dirección y su cédula de identidad. Los fiscales deberán portar la credencial en todo momento.
+f. Identificarse ante los miembros de las juntas receptoras de votos, cuando estos lo soliciten, mostrando en todos los casos el carné que lo acredita como fiscal partidario y su cédula de identidad. Además, deberán portar en todo momento el brazalete diseñado por la Dirección General del Registro Electoral.
+(Así reformado el inciso anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 4-2021 del 17 de junio de 2021)
 g. Acatar las indicaciones acordadas por el TSE, sus delegados o las juntas electorales.
 h. No manipular en ningún momento el material electoral de las Juntas Receptoras de Votos.
