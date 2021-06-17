@@ -1,1 +1,0 @@
-Artículo 2º—De las disposiciones del Reglamento. Las disposiciones contenidas en el presente reglamento son aplicables a todos los funcionarios del Instituto, quienes en razón de sus funciones, utilicen o controlen los recursos de transporte del Instituto.

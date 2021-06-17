@@ -1,1 +1,0 @@
-Artículo 7º—Control de combustible de vehículos. El procedimiento para el abastecimiento de combustible se hace a través de tarjetas electrónicas prepagadas para tal efecto, cuyo uso es responsabilidad del titular.

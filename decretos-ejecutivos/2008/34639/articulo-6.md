@@ -1,1 +1,0 @@
-Artículo 6º—Solicitud de Servicios de Transportes. Toda solicitud de transportes se hará por medio del Sistema de Transportes- SITRA o el sistema de control que en su defecto la administración implemente, para su uso la administración suministrará los procedimientos del caso.
