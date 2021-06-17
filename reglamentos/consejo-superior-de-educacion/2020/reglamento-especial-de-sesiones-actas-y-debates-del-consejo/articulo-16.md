@@ -1,0 +1,1 @@
+Artículo 16.-El miembro del Consejo que se vea obligado a dejar de asistir a una o más sesiones deberá justificar su ausencia ante el plenario. En caso de que un miembro del Consejo no pueda presentarse a una sesión y no pueda comunicarlo de previo, debe informar a la secretaria general para la convocatoria del suplente en caso de tenerlo.

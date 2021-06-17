@@ -1,0 +1,1 @@
+Artículo 42.-La solicitud de revisión podrá ser planteada en forma verbal o escrita. En caso de que sea verbal, el presidente del Consejo concederá al miembro que solicita la revisión la palabra por espacio máximo de quince minutos, dentro de la misma sesión en que se interpuso, a efectos que sustente la revisión.

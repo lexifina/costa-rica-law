@@ -1,0 +1,1 @@
+Artículo 2º-Cuando el Consejo sesione en forma virtual deberá garantizar la conectividad a internet, la participación plena de todos los asistentes, la transmisión simultánea de audio, video y datos a todos quienes participen, debiendo respetar los principios de simultaneidad, colegialidad y deliberación que rigen el funcionamiento de los órganos colegiados.

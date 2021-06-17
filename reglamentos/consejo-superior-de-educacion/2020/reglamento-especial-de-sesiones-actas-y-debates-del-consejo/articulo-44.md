@@ -1,0 +1,1 @@
+Artículo 44.-Para que la solicitud de revisión sea acogida, deberá obtener mayoría absoluta de los miembros del Consejo con derecho a voto. En caso de no alcanzar el número de votos requerido, la solicitud de revisión será desechada y archivada. Contra esa decisión no cabe recurso alguno por parte de los miembros del Consejo.

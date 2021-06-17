@@ -1,0 +1,2 @@
+Artículo 33.-La votación a favor o en contra de un asunto se hará saber levantando la mano, salvo que el presidente disponga lo contrario o que se trate de la apreciación discrecional de cualidades o actividades de personas, o de asuntos que afecten seriamente el prestigio o el patrimonio de estas, en cuyo caso la votación podrá ser secreta.
+Las abstenciones o los votos en blanco se computarán para efectos de cuórum y para determinar el número de votantes, pero no se podrán atribuir ni a la mayoría ni a la minoría.

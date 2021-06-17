@@ -1,0 +1,1 @@
+Artículo 6º-El Consejo sesionará válidamente, sin cumplir los requisitos referentes a la convocatoria o a la agenda, cuando estén presentes de manera presencial o virtual todos sus miembros y así lo acuerden por unanimidad.

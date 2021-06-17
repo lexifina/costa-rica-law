@@ -1,0 +1,2 @@
+Artículo 5º-Las sesiones del Consejo deberán iniciarse a la hora fijada en la convocatoria.
+Si a la hora establecida no se cuenta con el cuórum requerido, podrá aplazarse el inicio de la sesión hasta por 30 minutos.

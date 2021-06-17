@@ -1,0 +1,1 @@
+Artículo 13.-La Secretaría General del Consejo Superior Educación, conforme a sus posibilidades, deberá proveer a los miembros propietarios y suplentes los medios, las condiciones y la asistencia necesaria para asegurar su eventual participación en una sesión por medios tecnológicos.
