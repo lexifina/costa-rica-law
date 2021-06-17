@@ -15,10 +15,11 @@ c. Choferes asignados a la gerencia, subgerencias y auditoría interna
 § Un vestido entero.
 Estas prendas son adicionales a las establecidas para el grupo de chóferes de la Institución.
 d. Agentes de seguridad
-§ Tres pantalones y tres camisas.
-§ Una jacket.
-§ Dos corbatas.
-§ Un par de zapatos de cordones, media bota, con suela antiderrapante.
+1. Tres pantalones y tres camisas.
+2. Una jacket.
+3. Una faja especial para portar el equipo de seguridad asignado por la Junta de Protección Social (arma, funda para portar el arma, gas pimienta, porta esposas y esposas, porta cargador y cargador).
+4. Dos pares de zapatos de cordones, media bota, con suela antiderrapante.
+(Así reformado el inciso d) anterior en sesión N° 37 del 17 de junio de 2021)
 e. Peones
 § Cuatro pantalones para trabajo fuerte y dos camisas.
 § Dos pares de zapatos de seguridad, media bota, con suela antiderrapante.
