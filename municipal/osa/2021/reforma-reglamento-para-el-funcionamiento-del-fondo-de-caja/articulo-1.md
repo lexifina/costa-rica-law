@@ -1,0 +1,16 @@
+MUNICIPALIDAD DEL CANTÓN DE OSA
+MODIFICACIÓN DE LOS ARTÍCULOS 11 Y 13
+DEL REGLAMENTO PARA EL FUNCIONAMIENTO
+DEL FONDO DE LA CAJA CHICA DE LA
+MUNICIPALIDAD DEL CANTÓN
+DE OSA
+El Concejo Municipal de la Municipalidad de Osa por medio del acuerdo N° 2 de la sesión ordinaria N° 53-2020-2024, del 05 del mes de mayo del 2021, y de conformidad con lo establecido en el párrafo segundo del artículo 43 del Código Municipal, acuerda: Aprobar de manera definitiva que los artículos 11 y 13 del Reglamento para el Funcionamiento del Fondo de la Caja Chica de la Municipalidad del cantón de Osa, se modifiquen quedando de la siguiente manera:
+11.-Las facturas o recibos de las adquisiciones efectuadas con fondos de la caja chica, que servirán como comprobante del egreso, deberán cumplir con los siguientes requisitos:
+a) Ser documentos originales, estar timbrados o dispensados del mismo por la Dirección General de Tributación del Ministerio de Hacienda y estar emitidos a favor de la Municipalidad.
+b) Especificar claramente el detalle de la compra o servicio recibido, la cual deberá ser igual o posterior a la fecha en la que se entrega el efectivo del vale. Por ningún motivo, deben contener tachaduras ni borrones.
+c) Si la factura no es electrónica por pertenecer el proveedor al régimen simplificado o régimen especial, deberá entregarse el documento físico y el encargado de caja chica procederá a realizarla factura de compra como respaldo del egreso en el sistema de factura electrónica de la institución.
+d) En caso de fuerza mayor que el comprobante electrónico no sea recibido por el encargado de la caja chica en el correo establecido para este fin dentro del plazo de cuatro días, la Tesorería solicitará la factura ante el proveedor y se concederá un plazo de 3 días adicional para la remisión de esta, si la factura no se emite por el proveedor se procederá a realizar la denuncia ante el Ministerio de Hacienda y se realizará la liquidación con el documento físico y la Tesorería emitirá una factura de compra en el sistema que sea asignado para tal fin como respaldo digital del egreso.
+e) Los comprobantes deben estar firmados por el funcionario que sacó el vale, quien debe ser quien realiza la compra y por la jefatura inmediata como requisito de comprobación de la adquisición del bien o servicio correspondiente.
+13.-El encargado de caja chica con la emisión del vale deberá entregar al funcionario una constancia por la retención del 2% amparados en el artículo N° 22 del Reglamento a la Ley del Impuesto Sobre la Renta N° 18445-H donde se indica que se debe retener el 2% sobre el monto total.
+No se reconocerá el importe por concepto de impuesto de ventas y rentas cuando este sea cancelado por el usuario del vale, ya que la Municipalidad según el artículo 9° de la Ley N° 9635 Fortalecimiento a las finanzas públicas es un ente no sujeto.
+Por ende, se le ordena al señor alcalde o a quien ocupe su cargo a realizar las gestiones administrativas correspondientes para su publicación en el Diario Oficial La Gaceta. Esto por medio de los votos de los Regidores Propietarios Alfredo Soto Elizondo, Damaris Guadamuz Castro, Sonia Segura Matamoros, Joaquín Porras Jiménez y Tairis Chavarría Vargas. No se omite manifestar que la documentación del trámite consta en el expediente del acta para cualquier consulta.
