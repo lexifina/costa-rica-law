@@ -14,3 +14,4 @@ Reglamento general de licencias comerciales de la Municipalidad del Cantón Cent
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-01 | la propia norma |
+| 2 | 2021-06-17 | Reglamento municipal 13 (2021-06-17) |

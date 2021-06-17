@@ -1,4 +1,4 @@
-Artículo 27.—Requisitos Generales. El licenciatario que desee realizar el cambio de línea de su licencia comercial deberá aportar los siguientes documentos bajo el formato de tramitación que disponga la Municipalidad:
+Artículo 27.-Requisitos Generales. El licenciatario que desee realizar el cambio de línea de su licencia comercial deberá aportar los siguientes documentos bajo el formato de tramitación que disponga la Municipalidad:
 a) Formulario de solicitud de cambio de línea de licencia comercial, sin tachaduras o manchones, ni corrector. Debidamente firmado por el titular de la patente comercial y el propietario del inmueble (en caso de que la propiedad se encuentre en derechos, deberán firmar conjuntamente todos los copropietarios. En su defecto, acreditar en forma idónea, que actúa como albacea, curador, tutor, o apoderado).
 b) Resolución municipal de ubicación y uso de suelo emitida por el Sub Proceso de Planificación Urbana, para la nueva actividad comercial del local comercial. La cual deberá indicar correctamente la finca, dirección del local y la actividad comercial.
 c) Según sea el caso, Sanitario de Funcionamiento vigente emitido por el Ministerio de Salud y/o Certificado Veterinario de Operación emitido por el Ministerio de Agricultura y Ganadería Servicio Nacional de Salud Animal (SENASA) para la nueva actividad comercial. Para obtener dicho permiso debe contar con el uso de suelo aprobado por la Municipalidad de Alajuela.
@@ -7,7 +7,8 @@ e) Copia de la cédula de identidad del (los) representante legal (es) al día.
 f) Encontrarse al día en el pago de los tributos municipales el patentado y el (los) dueño(s) del inmueble.
 g) Certificado original de la patente comercial. En caso de extravío, aportar una declaración jurada, debidamente autenticada por un notario.
 h) Encontrarse inscrito como contribuyente ante la Dirección General de Tributación Si se trata de un tramo del Mercado Municipal, deberá contar con la aprobación del Concejo Municipal.
-i) Declaración jurada rendida ante Notario Público en papel de seguridad, con las advertencias del artículo 318 del Código Penal, en los términos que indicará la Municipalidad.
+i) Declaración jurada mediante la cual el o la petente manifiesta bajo las advertencias que establece el artículo 318 del Código Penal, el cumplimiento de los requisitos y normas legales.
+(Así reformado el inciso anterior en sesión N° 13 del 17 de junio de 2021)
 j) Cancelación del impuesto del Teatro Nacional en aquellas actividades que lo requieran. Adicionalmente, deberá aportar los siguientes requisitos especiales, según sea el caso:
 k) Video juegos o alquiler de videos: Resolución de Control y Calificación de Espectáculos Públicos emitida por el Ministerio de Justicia y Gracia.
 l) Explotación de tajos y canteras: Copia de resolución administrativa y del Decreto Ejecutivo mediante el cual se otorgó la concesión al solicitante para la explotación del tajo o cantera.
