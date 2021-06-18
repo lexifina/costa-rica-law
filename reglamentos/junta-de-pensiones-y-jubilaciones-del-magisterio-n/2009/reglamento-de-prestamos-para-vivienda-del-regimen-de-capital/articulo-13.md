@@ -1,5 +1,4 @@
-Artículo 13.— De la formalización del crédito.Los créditos pueden ser formalizados, revisados y analizados en la Unidad de Crédito o en las sucursales. Los créditos con garantía hipotecaria se deben coordinar con el notario que JUPEMA designe, según el rol establecido.
-(Así reformado el párrafo anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
-Para los financiamientos por compra de lote, casa o cancelación de hipoteca a favor de terceros, se realiza el giro neto del préstamo a la entidad o persona física dueña del bien, por transferencia o por cheque, al momento de la firma de la escritura.
-Todo desembolso parcial genera intereses que corren a partir de la fecha de giro, y hasta la fecha estimada de finalización del crédito. Estos se deben cobrar anticipadamente al momento de la firma de la escritura o cuando se realice el giro parcial.
-El cobro de la cuota completa rige al mes siguiente en que se haya completado el giro del monto total del crédito aprobado, rebajando del último desembolso la o las cuotas necesarias para que el crédito no presente morosidad mientras se inicia la deducción por planilla.
+Artículo 13.-De la formalización del crédito.
+Los créditos pueden ser formalizados, revisados y analizados en la Unidad de Crédito o en las sucursales. Los créditos con garantía hipotecaria se deben coordinar con el notario que JUPEMA designe, según el rol establecido.
+Los afiliados que hayan remitido la documentación digital para el estudio y aprobación de su solicitud de crédito deberán presentar los documentos originales al momento de la formalización o cuando JUPEMA así lo solicite.
+(Así reformado mediante sesión ordinaria N° 0069-2021 del 18 de junio del 2021)

@@ -1,6 +1,6 @@
 CAPÍTULO VI
 Disposiciones finales
-Artículo 20.—Limitaciones de alcance general.
+Artículo 20.-Limitaciones de alcance general.
 a) No se aceptan como garantías hipotecarias los terrenos o propiedades en las siguientes condiciones:
 i. Terrenos que se encuentren ubicados en zonas de alto riesgo.
 (Así reformado el sub inciso anterior mediante sesión N° 0143 del 17 de diciembre de 2019)
@@ -13,3 +13,5 @@ vii. Propiedades con hipoteca abierta, en las que no medie la carta de renuncia 
 JUPEMA se reserva el derecho de rechazar cualquier garantía propuesta por el solicitante, en procura de salvaguardar los intereses de la Institución.
 No se otorgarán créditos bajo esta línea a aquellos afiliados cuyas operaciones de crédito hayan sido pasadas por incobrables.
 b) Los arreglos de pago que se realicen bajo esta línea, deberán ser aprobados por el Departamento de Crédito y Cobro, considerando la capacidad actual y futura para atender los términos del tipo de arreglo recomendado por la Unidad de Cobro para cada caso.
+c) En casos de Ferias de vivienda o periodos en que se ofrezcan condiciones especiales para esta línea de crédito, se deberá contar con un acuerdo de Junta Directiva. Firma Responsible.
+(Así reformado el inciso anterior mediante sesión ordianria N° 0069-2021 del 18 de junio del 2021)
