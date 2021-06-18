@@ -1,0 +1,1 @@
+Artículo 4º-Firma de la autorización: Una vez autorizada la solicitud de Devolución de Tributos ante la Administración Aduanera, se procederá a imprimir la misma para ser firmada por el (la) Jefe del Departamento de Gestión de Exenciones o por quien esté debidamente autorizado; seguidamente se enlistará y se enviará a la aduana correspondiente para su aplicación.

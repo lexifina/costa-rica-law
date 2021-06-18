@@ -1,0 +1,1 @@
+Artículo 5º-La presente resolución deja sin efecto la RES-DGH-031-2010 de las quince horas del día diecisiete de agosto del dos mil diez y la RES-DGH-045-2015 de las ocho horas del ocho de setiembre del dos mil quince.

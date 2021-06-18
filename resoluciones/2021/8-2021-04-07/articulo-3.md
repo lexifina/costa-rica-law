@@ -1,0 +1,1 @@
+Artículo 3º-Plazos para resolver: La Administración contará con el plazo de 2 meses establecido en el artículo 102 del Código de Normas y Procedimientos Tributarios, para resolver la solicitud planteada. Dicho plazo podrá ser suspendido por falta o defecto de algún requisito, en cuyo caso deberá constar esa situación en la respuesta que se brinde al solicitante.

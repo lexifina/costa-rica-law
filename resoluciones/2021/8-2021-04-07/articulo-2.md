@@ -1,0 +1,1 @@
+Artículo 2º-Alcances de toda solicitud. Cada solicitud abarcará únicamente los bienes correspondientes que son objeto de exención, desalmacenados mediante una Declaración Única Aduanera (DUA). En caso de requerir la gestión por bienes incluidos en dos o más DUAS, se deberá presentar individualmente una solicitud por cada DUA.
