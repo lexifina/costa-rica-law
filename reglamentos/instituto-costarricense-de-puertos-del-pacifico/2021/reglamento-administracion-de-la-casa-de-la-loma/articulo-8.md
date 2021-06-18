@@ -1,0 +1,1 @@
+Artículo 8°-Las instalaciones serán única y exclusivamente para los fines establecidos en este Reglamento, de observarse conductas contrarias a la moral y buenas costumbres se procederá a cancelar el permiso extendido, debiendo la Administración de la JPT tomar las acciones pertinentes y disciplinarias que correspondan.

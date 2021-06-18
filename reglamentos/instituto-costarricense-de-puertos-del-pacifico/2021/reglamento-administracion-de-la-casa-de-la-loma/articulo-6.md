@@ -1,0 +1,1 @@
+Artículo 6°-Corresponderá a la Junta Directiva de la JPT autorizar el uso de instalaciones de la "Casa de la Loma" para actividades de carácter comunal, previo a: solicitud a la Admiración de la JPT, según anexo.
