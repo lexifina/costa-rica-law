@@ -1,0 +1,2 @@
+Artículo 2º-Modifíquese el inciso l) del artículo 63 del Reglamento a la Ley de Régimen de Zonas Francas, Decreto Ejecutivo N° 34739-COMEX-H del 29 de agosto de 2008, publicado en el Alcance N° 35 al Diario Oficial La Gaceta N° 181 del 19 de setiembre de 2008, para que en adelante se lea de la manera siguiente:
+"l) Prestar los servicios en forma eficiente a los beneficiarios instalados en el parque."
