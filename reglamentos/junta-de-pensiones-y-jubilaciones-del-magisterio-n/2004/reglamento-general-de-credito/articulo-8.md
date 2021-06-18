@@ -10,7 +10,8 @@ c. Monto del préstamo.
 d. Generalidades del proyecto.
 e. Dirección exacta del solicitante.
 f. Número de teléfono en que puede ser localizado.
-e) Los solicitantes de este tipo de crédito deben aportar las notas de autorización debidamente firmadas por los fiadores aceptando esta condición. Además, deben adjuntar certificaciones o constancias del salario de los últimos tres meses de cada fiador, así como certificación de que se encuentra en propiedad.
+e) Los solicitantes de este tipo de crédito deben aportar las notas de autorización debidamente firmadas por los fiadores aceptando esta condición. Además, deben adjuntar certificaciones o constancias del salario del último mes de cada fiador, así como certificación de que se encuentra en propiedad.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 0069-2021 del 18 de junio del 2021)
 f) Tanto para los casos de solicitudes con garantía hipotecaria como de garantía fiduciaria, el gestionante debe proporcionar los datos necesarios para que el Contador Público Autorizado asignado por JUPEMA, pueda realizar un estudio de factibilidad y brindar su criterio técnico sobre la viabilidad del proyecto, que se vaya a financiar.
 g) Si la garantía es hipotecaria, debe presentar la certificación del Registro Nacional con no más de 8 días naturales de emitida, de la propiedad que se va a entregar como garantía, la cual debe estar libre de gravámenes y anotaciones que imposibiliten su inscripción como garantía o que, a criterio del notario o perito evaluador, puedan afectar los intereses institucionales.
 h) Debe presentar certificación original de la Municipalidad donde indique estar al día en el pago de Impuestos Municipales y Territoriales.
