@@ -1,0 +1,3 @@
+CAPÍTULO V
+Auxiliar de la Función Pública Aduanera en Zonas Francas
+Artículo 61. Tramitación electrónica del otorgamiento del auxiliar de la Función Pública Aduanera para empresas beneficiarias del Régimen de Zonas Francas. La Dirección General de Aduanas resolverá el trámite de Auxiliar de la Función Pública Aduanera (VUIAFP) en el plazo máximo de 3 días hábiles, contados a partir del momento en que reciba al acuerdo ejecutivo de otorgamiento del Régimen y de conformidad con el "Reglamento para la oficialización del proceso VUI-01: Integración del proceso de otorgamiento del Régimen de Zonas Francas y el proceso de otorgamiento del Auxiliar de la Función Pública Aduanera".

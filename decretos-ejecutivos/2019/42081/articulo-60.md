@@ -1,0 +1,1 @@
+Artículo 60. Plazo del trámite de ingreso al Régimen de Zonas Francas: El ingreso al Régimen de Zonas Francas, (VUI-IZF) se resolverá en el plazo máximo de 14 días hábiles contados a partir del momento que la solicitud presentada cumpla con todos los requisitos.

@@ -1,0 +1,4 @@
+CAPÍTULO II
+Registro de usuarios nuevos sin Firma Digital
+Artículo 14.-Solicitud de los usuarios sin firma digital. El interesado en acceder a la plataforma VUI sin el uso de firma digital certificada, deberá apersonarse ante las instituciones públicas habilitadas por la VUI al efecto, para que un funcionario público verifique la identidad del solicitante. El usuario deberá realizar una firma manuscrita en los formularios que se dispongan para tal efecto y a su vez, el funcionario público correspondiente indicará en el sistema que realizó la validación de la identidad, asociando al usuario con el mecanismo de autenticación y manifestación de voluntad que corresponda.
+Es responsabilidad personal del solicitante la incorporación y la validación de los datos requeridos por el sistema, con el fin de garantizar que la información a incluir en el Sistema sea exacta, confiable y oportuna, de acuerdo con lo señalado en las directrices generales para el uso de VUI.

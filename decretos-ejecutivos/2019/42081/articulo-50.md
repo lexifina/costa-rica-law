@@ -1,0 +1,1 @@
+Artículo 50.- Establecimientos autorizados por el SENASA. Corresponderá al SENASA autorizar en la plataforma VUI únicamente el funcionamiento de los establecimientos enunciados en los incisos a) y c) del artículo anterior del presente reglamento. Dicha autorización se hará por medio del VUI-CVO, el cual será reconocido como equivalente al VUI-PSF del Ministerio de Salud.

@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Sanciones
+Artículo 37. Régimen de sanciones aplicables. Los funcionarios de las instituciones usuarias del Sistema que incumplan los deberes y obligaciones previstos en el presente Reglamento serán sancionados conforme a lo establecido en la Ley General de la Administración Pública, Ley Nº 6227; el régimen de responsabilidad establecido en la Ley de Control Interno, Ley Nº 8292; la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley Nº 8422, el Código de Trabajo, Ley Nº 2 y el Código Penal Ley Nº 4573, según su ámbito de aplicación.
+Lo anterior, sin perjuicio del régimen penal por conductas en que incurran los funcionarios públicos o los particulares, ni la posibilidad de exigir responsabilidad por daños y perjuicios ocasionados a las instituciones usuarias o a VUI.

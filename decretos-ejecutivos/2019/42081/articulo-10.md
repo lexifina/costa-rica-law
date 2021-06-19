@@ -1,0 +1,1 @@
+Artículo 10. Deber de iniciar y concluir en VUI los trámites. Las instituciones públicas que utilicen el sistema VUI, deben diligenciar los trámites y emitir el permiso, la resolución o la autorización mediante el Sistema.

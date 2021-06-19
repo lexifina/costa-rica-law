@@ -1,0 +1,1 @@
+Artículo 42. Tramitación electrónica del VUI-CUS. Los usuarios podrán gestionar el certificado de uso de suelo mediante VUI para las municipalidades que facultativamente se incorporen en el sistema; para ello emplearán el formulario electrónico disponible en VUI. Para tales efectos, en la plataforma se indicará cuales municipalidades están participando en la VUI.

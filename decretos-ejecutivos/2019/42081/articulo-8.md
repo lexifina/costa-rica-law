@@ -1,0 +1,1 @@
+Artículo 8. Pagos realizados mediante VUI. Los usuarios registrados deben realizar los pagos que generen los trámites efectuados en VUI, mediante formulario de entero de gobierno y/o por los medios de pago electrónico habilitados en el sistema.

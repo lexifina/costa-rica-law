@@ -1,0 +1,1 @@
+Artículo 56. Registro de empresas ante la Dirección General de Tributación. Mediante la VUI la empresa se inscribirá ante la Dirección General de Tributación, bajo el código de actividad 960105 ACTIVIDADES PREOPERA TIVAS O DE ORGANIZACIÓN y será hasta que inicie operaciones productivas que se inscribirá como contribuyente en la (s) actividad (es) económica(s) que corresponda (n).
