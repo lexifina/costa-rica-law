@@ -1,0 +1,1 @@
+Artículo 9º-Incumplimientos por parte de la Agencia Operadora. Incumplimientos por parte de una Agencia Operadora respecto a los términos del contrato con el FONADE que puedan acarrear la suspensión o revocación de la acreditación, según la gravedad de la falta, se remitirá para conocimiento y resolución del Consejo Rector de SBD.

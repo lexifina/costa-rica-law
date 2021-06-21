@@ -1,0 +1,3 @@
+Artículo 16.-Informe semestral de los proyectos apoyados e informe de cierre del programa. Sin perjuicio de lo que se disponga en el prospecto en cada contrato con las Agencias Operadoras, estas deberán rendir semestralmente un informe de cartera, que incluya como mínimo: nombre del beneficiario de los recursos, monto aprobado, monto girado, saldo disponible, fecha
+de inicio del proyecto, fecha esperada de cierre. La Secretaría Técnica dispondrá del medio y formato para el cumplimiento de este requerimiento.
+Al final del Programa, la Agencia Operadora deberá rendir un informe que al menos abarque los siguientes temas: logros del Programa, impactos al cierre del programa, oportunidades de mejora.

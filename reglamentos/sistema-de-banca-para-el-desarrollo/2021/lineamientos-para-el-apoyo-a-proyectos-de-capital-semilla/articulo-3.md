@@ -1,0 +1,5 @@
+CAPÍTULO II
+Agencias Operadoras
+Artículo 3º-Acreditación y reacreditación de Agencias Operadoras de Capital Semilla. Las organizaciones o personas jurídicas públicas o privadas, nacionales o extranjeras, que deseen canalizar recursos de Capital Semilla del Sistema de Banca para el Desarrollo, deberán acreditarse como Agencia Operadora de Capital Semilla del SBD conforme el procedimiento y medios establecidos al efecto por la Secretaría Técnica.
+La acreditación confiere la calidad de integrante del Sistema de Banca para el Desarrollo y consecuentemente estarán sujetas a las demás disposiciones y directrices del Consejo Rector en lo que sea pertinente. La vigencia de la acreditación o reacreditación dependerá del modelo establecido.
+Una agencia operadora a la que se ha revocado la licencia podrá gestionar nuevamente la acreditación hasta después de un año calendario. En caso de que se produzca reincidencia durante un período de 10 años, podrá solicitar la acreditación transcurridos cinco años desde la última resolución. Ambos plazos, contados a partir del día siguiente a la notificación de la revocación de la acreditación.
