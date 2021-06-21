@@ -15,3 +15,4 @@ Prorroga las disposiciones administrativas sobre los trámites relacionados con 
 | --- | --- | --- |
 | 1 | 2020-06-27 | la propia norma |
 | 2 | 2020-08-14 | Resolución 2709 (2020-08-14) |
+| 3 | 2021-06-21 | Resolución 1941 (2021-06-21) |
