@@ -15,3 +15,4 @@ Disposiciones administrativas sobre los trámites administrativos relacionados c
 | --- | --- | --- |
 | 1 | 2020-07-02 | la propia norma |
 | 2 | 2020-08-14 | Resolución 2708 (2020-08-14) |
+| 3 | 2021-06-21 | Resolución 1940 (2021-06-21) |
