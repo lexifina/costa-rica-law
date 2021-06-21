@@ -1,0 +1,1 @@
+Artículo 3º-Áreas excluidas de la aplicación del presente reglamento. Quedan excluidos aquellos sectores de la Zona Marítima Terrestre, que tengan declaratoria de aptitud turística del ICT, cuenten con su respectivo Plan Regulador vigente y sobre porciones en la zona marítima terrestre cubiertas de bosque, terrenos forestales o con esa aptitud, o aquellas definidas como PNE.

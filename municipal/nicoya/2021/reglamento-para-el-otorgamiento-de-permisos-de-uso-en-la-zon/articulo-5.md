@@ -1,0 +1,1 @@
+Artículo 5º-Prohibición de ocupar la zona pública. La Zona Pública no puede ser ocupada bajo ningún título, está destinada para el uso público, nadie puede alegar posesión sobre ella y no se podrán otorgar permisos de uso, en concordancia con los artículos 10, 11, 12 de la Ley 6043 (Ley de la Zona Marítimo Terrestre).

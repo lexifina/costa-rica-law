@@ -1,0 +1,1 @@
+Artículo 28.-Aplicación del Reglamento. El Departamento de Zona Marítimo Terrestre es el encargado de la aplicación del presente reglamento, para lo cual se contará con la asistencia obligatoria de los Departamentos de Presupuesto, de Bienes Inmuebles, Catastro y Topografía, Inspectores y la Oficina de Valoraciones según la naturaleza de su función.

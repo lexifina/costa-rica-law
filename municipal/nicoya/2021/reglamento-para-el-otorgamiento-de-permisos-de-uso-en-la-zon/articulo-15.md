@@ -1,0 +1,1 @@
+Artículo 15.-De la renuncia al permiso de uso. Si por alguna razón el permisionario no pretende seguir haciendo uso del permiso otorgado, deberá comunicarlo por escrito a la Municipalidad dicha renuncia, para que esta retome el bien y decida el destino que considere conveniente para la parcela en cuestión.

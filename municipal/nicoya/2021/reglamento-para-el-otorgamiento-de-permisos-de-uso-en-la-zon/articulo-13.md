@@ -1,0 +1,1 @@
+Artículo 13.-De la obligación de reportar cesiones o traspasos de cuotas o acciones. En el caso de las personas jurídicas, toda cesión o traspaso de cuotas o acciones, deberá reportarse al Departamento de Zona Marítima Terrestre de la Municipalidad, su inobservancia provocará la revocatoria inmediata del permiso otorgado.

@@ -1,0 +1,1 @@
+Artículo 16.-Régimen de Sanción. Con base al artículo 13 de la Ley de la Zona Marítimo Terrestre, y artículo 22 del Reglamento a la Ley, se aplicarán las sanciones a los permisionarios infractores de la Zona Marítimo Terrestre.

@@ -1,0 +1,1 @@
+Transitorio II.-En caso de personas de escasos recursos que residan permanentemente en la zona y solo cuando se trate de usos de suelo destinados para vivienda para su propio uso, la Municipalidad podrá rebajar el canon de uso de suelo en precario hasta un 0,25%, previo estudio técnico.

@@ -1,0 +1,2 @@
+Artículo 24.-Recurso de revocatoria. Contra el acto administrativo que se realizare en perjuicio del administrado, cabra formal recurso de reconsideración y revocatoria bajo las siguientes condiciones:
+Este recurso será potestativo, si se optara por interponerlo, se deberá presentar dentro de los quince días hábiles siguientes a la notificación del acto administrativo, ante la Municipalidad y el Concejo Municipal, el cual será competente para resolverlo.
