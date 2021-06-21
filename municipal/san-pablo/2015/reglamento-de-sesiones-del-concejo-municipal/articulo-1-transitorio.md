@@ -1,0 +1,2 @@
+Transitorio I: En los años en los cuales exista cambio de autoridades de Gobierno del Concejo Municipal, los miembros salientes deberán preparar la evaluación y calificación de servicios de los funcionarios y las funcionarias de la Auditoría y Secretaría antes del 30 de abril de ese año, con el fin de que las nuevas autoridades cuenten con la información necesaria y pertinente para cumplir con lo dispuesto por el artículo 146 del Código Municipal.
+(Así adicionado mediante Sesión ordinaria N° 25-21 del 21 de junio del 2021)
