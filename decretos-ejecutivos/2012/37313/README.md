@@ -14,3 +14,4 @@ Crea el Fondo Especial de Prevención e Infraestructura a favor de los productor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-09-24 | la propia norma |
+| 2 | 2021-06-21 | Decreto Ejecutivo 42787 (2021-06-21) |
