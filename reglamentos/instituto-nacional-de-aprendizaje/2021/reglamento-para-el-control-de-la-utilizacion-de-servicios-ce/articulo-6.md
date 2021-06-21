@@ -1,1 +1,1 @@
-Artículo 6º-Cumplimiento de normas técnicas indicadas por la empresa proveedora de servicios. Para el uso de líneas reportadas para el pago de tarifa de telefonía celular, se deberá cumplir con las normas técnicas establecidas por la empresa proveedora de servicios.
+Artículo 6°-Cumplimiento de normas técnicas indicadas por la empresa proveedora de servicios. Para el uso de líneas reportadas para el pago de tarifa de telefonía celular, se deberá cumplir con las normas técnicas establecidas por la empresa proveedora de servicios.

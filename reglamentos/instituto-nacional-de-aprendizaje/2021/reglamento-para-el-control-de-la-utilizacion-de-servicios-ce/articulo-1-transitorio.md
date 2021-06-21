@@ -1,1 +1,1 @@
-Transitorio I: La URMA deberá contar con el Manual de Procedimientos para la implementación de este reglamento, al momento de su entrada en vigor según el artículo 23 de este reglamento. Dicho manual será actualizado por la Subgerencia a cargo de lo Administrativo.
+Transitorio I.-La URMA deberá contar con el Manual de Procedimientos para la implementación de este reglamento, al momento de su entrada en vigor según el artículo 23 de este reglamento. Dicho manual será actualizado por la Subgerencia a cargo de lo Administrativo.

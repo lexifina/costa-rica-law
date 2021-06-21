@@ -14,3 +14,4 @@ Reglamento para el control de la utilización de servicios celulares bajo el pag
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-02 | la propia norma |
+| 2 | 2021-06-21 | Reglamento 20 (2021-06-21) |

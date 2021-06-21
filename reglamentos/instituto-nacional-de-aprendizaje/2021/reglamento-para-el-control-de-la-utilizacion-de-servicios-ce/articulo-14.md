@@ -1,6 +1,6 @@
 CAPÍTULO III
-Obligaciones y prohibiciones de las personas usuarias
-del servicio y de las jefaturas
+Obligaciones y prohibiciones de las personas
+usuarias del servicio y de las jefaturas
 Artículo 14.-Obligaciones. Son obligaciones de la persona funcionaria a las cuales se les realiza el pago tarifario:
 a) Reportar en forma inmediata y por escrito a la URMA cualquier anomalía, desperfecto o mal funcionamiento en el uso de la línea telefónica celular.
 b) Acatar las disposiciones que sobre la utilización del servicio celular al cual se le paga el derecho tarifario, las disposiciones señaladas en el presente Reglamento y la normativa institucional sobre bienes e inventarios, vigente.

@@ -1,4 +1,4 @@
-Artículo 2º-Abreviaturas y definiciones. Para todos los efectos en la aplicación del presente Reglamento, se definen los siguientes términos:
+Artículo 2°-Abreviaturas y definiciones. Para todos los efectos en la aplicación del presente Reglamento, se definen los siguientes términos:
 a- Abreviaturas:
 a) INA: Instituto Nacional de Aprendizaje.
 b) USIT: Unidad Servicios de Informática y Telemática.
@@ -19,5 +19,5 @@ g) Empresa Proveedora de servicios: Empresa prestataria o facilitadora de los se
 h) Puesto: Cargo ocupado dentro del organigrama institucional por la persona funcionaria.
 i) Continuidad del Negocio: conjunto de medias que adopta el INA para que su función no se vea afectada tras una emergencia o interrupción de sus funciones normales.
 j) Conductor del INA: es el que ejecuta actividades que implican la conducción de vehículos automotores para el transporte de funcionarios, estudiantes, equipos, materiales y carga diversa, atendiendo necesidades institucionales.
-k) Administrador(a) de Servicios de Capacitación y Formación Profesional: es el responsable de la ejecución administrativa de los servicios de capacitación y formación profesional.
-l) Encargado de Proceso: es el responsable funcional de un área operativa dentro de una Unidad organizativa, sea en la parte administrativa o en la parte docente.
+k) Administrador (a) de Servicios de Capacitación y Formación Profesional: es el responsable de la ejecución administrativa de los servicios de capacitación y formación profesional.
+l) Factor del consumo: es la cantidad de veces que se cubre el monto de la tarifa telefónica promedio de las telefónicas, con relación al consumo proyectado por cada nivel.

@@ -1,2 +1,3 @@
-Artículo 20.-Disposiciones generales obligatorias. Las disposiciones de este Reglamento son de aplicación vinculante y obligatoria para todas las Unidades que conforman la organización del INA y para todo el personal de la Institución, así como aquellas personas que no siendo recurso humano del INA se estén desempeñando en calidad de servidores públicos según lo establece el artículo 3 del presente Reglamento.
-Para la aplicación de las sanciones administrativas a los miembros de Junta Directiva se aplicará lo dispuesto en los artículos 40, 41 y 43 de la Ley Nº 8422 "Ley contra la corrupción y el enriquecimiento ilícito en la función pública.
+CAPÍTULO VI
+Disposiciones finales
+Artículo 20.-Aspectos no contemplados en el presente reglamento. Los casos no previstos en este Reglamento, en materia de cuido y control de bienes, serán resueltos por la Comisión de Bienes Institucional del INA. Los demás aspectos serán resueltos en primera instancia por la URMA y en segunda instancia por la Subgerencia a cargo de lo Administrativo.

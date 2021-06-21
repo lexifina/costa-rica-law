@@ -1,3 +1,1 @@
-CAPÍTULO VI
-Disposiciones finales
-Artículo 19.-Aspectos no contemplados en el presente reglamento. Los casos no previstos en este Reglamento, en materia de cuido y control de bienes, serán resueltos por la Comisión de Bienes Institucional del INA. Los demás aspectos serán resueltos en primera instancia por la URMA y en segunda instancia por la Subgerencia a cargo de lo Administrativo.
+Artículo 19.-Obligación de entregar el teléfono celular. Las personas titulares de Presidencia Ejecutiva, Gerencia General y Subgerencias que suspendan o terminen su relación laboral con el Instituto Nacional de Aprendizaje, o en los casos de las personas Directoras de Junta Directiva cuando pierdan la representatividad del sector que lo propuso, ya sea de forma temporal por un plazo no menor a un mes o definitiva según corresponda, deberá devolver el teléfono junto con los accesorios a más tardar dentro del quinto día hábil posterior a que la institución haya sido notificada.
