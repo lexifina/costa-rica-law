@@ -15,3 +15,4 @@ Fijación de salarios mínimos para el sector privado que regirán a partir del 
 | --- | --- | --- |
 | 1 | 2020-01-01 | la propia norma |
 | 2 | 2021-01-29 | Decreto Ejecutivo 42923 (2021-01-29) |
+| 3 | 2021-06-21 | Resolución 1 (2021-06-21) |
