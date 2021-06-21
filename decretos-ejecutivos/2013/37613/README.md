@@ -14,3 +14,4 @@ Reglamento del Fondo Especial de Prevención e Infraestructura a favor de los Pr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-10 | la propia norma |
+| 2 | 2021-06-21 | Decreto Ejecutivo 42787 (2021-06-21) |
