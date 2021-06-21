@@ -1,0 +1,8 @@
+Artículo 6°-Para que se modifique el párrafo de los puntos 17.1, 17.10 y se incluye dos nuevos párrafos 17.17 y el 17.18, para que en lo sucesivo se lean de la siguiente forma:
+17.1 El proyecto deberá contar con un regente durante toda la vigencia del contrato de pago por servicios ambientales.
+17.10. Se establecen los siguientes plazos para la presentación de estudios técnicos, documentos técnicos, informes de regencia y aclaraciones a los documentos técnicos requeridos por la Oficina Regional:
+a. Los estudios técnicos deben ser presentados en los 15 días hábiles posteriores a la notificación. A excepción de los proyectos de protección de las prioridades 1, 2, 3 a partir del 2021.
+b. En los casos cuando Fonafifo solicite documentos técnicos aclaratorios o complementarios, se le otorgará un plazo de 10 días hábiles posteriores a la notificación para su presentación.
+c. Los informes de regencia en un plazo de 20 días hábiles después de haber realizado la visita correspondiente.
+17.17. Para el trámite de los pagos de proyectos de protección realizados en forma automática, los informes de regencia serán recibidos por el Fonafifo para incorporarlos al expediente de forma anual, según la programación que al efecto disponga la Dirección de Servicios Ambientales.
+17.18. El formulario de regencia podrá inscribirse ante el Colegio de Ingenieros Agrónomos, por la totalidad del plazo del contrato de pago por servicios ambientales o por periodos anuales o quinquenales según disponga el propietario del inmueble. Cualquiera se la forma de pago, siempre deberá aportarse el formulario de regencia debidamente inscrito.

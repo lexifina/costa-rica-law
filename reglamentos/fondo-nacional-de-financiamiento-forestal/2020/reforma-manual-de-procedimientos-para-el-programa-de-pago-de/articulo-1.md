@@ -1,0 +1,9 @@
+FONDO NACIONAL DE FINANCIAMIENTO FORESTAL
+En las Sesiones Ordinarias 07-2020 y 08-2020 celebradas el 12 de agosto y el 09 de setiembre del 2020, se tomaron los acuerdos noveno y décimo respectivamente.
+Considerando:
+1°-Que mediante acuerdo número décimo segundo tomado en la sesión ordinaria N° 01-2020 del 24 de enero del 2020, la Junta Directiva del Fondo Nacional de Financiamiento Forestal (Fonafifo), aprueba el Manual de Procedimientos para el Pago de los Servicios Ambientales.
+2°-Que mediante el Decreto Ejecutivo N° 42344-MIMNAE, se modificaron artículos del Reglamento de la Ley Forestal, que tienen que ver con ajustes al procedimiento general del Programa de Pago por Servicios Ambientales, por lo que se pretende actualizar y desarrollar estos conceptos y disposiciones.
+3°-Que de conformidad con lo dispuesto en el Reglamento a la Ley Forestal N° 7575, Decreto Ejecutivo N° 215721-MINAE y sus reformas, la Junta Directiva del Fondo Nacional de Financiamiento Forestal es la competente para emitir los procedimientos para ejecutar el Programa de Pago por Servicios Ambientales. Por lo tanto,
+La Junta Directiva del Fondo Nacional de Financiamiento Forestal emite la siguiente modificación al Manual de Procedimiento Administrativo:
+Artículo 1°-Para que se modifique el párrafo del punto 6.2, para que en lo sucesivo se lea de la siguiente forma:
+6.2. En los proyectos de reforestación la densidad mínima de árboles por hectárea será de 625 árboles. Para los proyectos de reforestación que se vayan a establecer con la especie Hevea brasiliensis (hule), la densidad mínima será de 525 árboles por hectárea. Para los proyectos de reforestación que se vayan a establecer con la especie Paulownia sp, la densidad mínima será de 400 árboles por hectárea. El área máxima por proyecto será de 10 hectáreas por año.

@@ -1,0 +1,1 @@
+Artículo 12.-En todos los demás aspectos no considerados en esta modificación, se mantiene invariable el Manual de Procedimientos para el Pago de los Servicios Ambientales vigente, publicado en La Gaceta en el N° 80 del 14 de abril del 2020.
