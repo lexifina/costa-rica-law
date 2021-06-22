@@ -14,3 +14,4 @@ Actualización del Manual de órdenes de libertad, remisión de detenidos y tene
 | --- | --- | --- |
 | 1 | 2017-01-31 | la propia norma |
 | 2 | 2021-02-09 | Circular 27 (2021-02-09) |
+| 3 | 2021-06-22 | Circular 144 (2021-06-22) |
