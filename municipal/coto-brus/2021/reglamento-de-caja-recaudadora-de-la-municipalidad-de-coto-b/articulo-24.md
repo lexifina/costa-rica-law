@@ -1,0 +1,1 @@
+Artículo 24.-El horario del área de facturación será el siguiente: lunes a viernes de 07:00 a.m. a 03:45 p.m., jornada continua, a efecto de que se cuente con el tiempo para realizar los respectivos cierres, liquidaciones, emisión de informes.

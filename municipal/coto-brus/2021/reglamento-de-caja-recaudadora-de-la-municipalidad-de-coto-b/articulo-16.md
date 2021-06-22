@@ -1,0 +1,1 @@
+Artículo 16.-Los sobrantes que se produzcan en los cierres diarios de operaciones de las cajas, deberán ser depositados a favor da la Municipalidad de Coto Brus a más tardar el día hábil siguiente de determinado el mismo, a través del comprobante de ingreso respectivo.

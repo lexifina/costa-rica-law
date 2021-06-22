@@ -1,0 +1,1 @@
+Artículo 8º-Cuando la persona encargada de la caja recaudadora anule un recibo de pago, la misma deberá indicar una nota al dorso del comprobante por el motivo que se anula y deberá consignar la fecha, hora y firma de la anulación.

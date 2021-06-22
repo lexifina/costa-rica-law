@@ -1,0 +1,1 @@
+Artículo 11.-Toda persona a cargo de una caja recaudadora deberá contar con una póliza de fidelidad, otorgada por el Instituto Nacional de Seguros (INS) o Cualquier otra aseguradora debidamente acreditada por la SUGESE, cuyo monto se fijará de acuerdo a los valores que deba custodiar, mientras se tramita esta póliza al INS, deberá rendir garantía fiduciaria.

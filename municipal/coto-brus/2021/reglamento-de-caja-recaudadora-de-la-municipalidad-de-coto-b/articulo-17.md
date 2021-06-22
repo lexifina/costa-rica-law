@@ -1,0 +1,1 @@
+Artículo 17.-El hallazgo sobre faltantes y sobrantes por parte de la jefatura de la persona a cargo de la caja recaudadora, deberá ser comunicado de forma inmediata a la Alcaldía Municipal con copia a la Auditoria y a la persona encargada de la caja recaudadora, para lo que corresponda.

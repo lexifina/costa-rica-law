@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Del ingreso de la caja recaudadora
+Artículo 21.-Los fondos a de las cajas recaudadoras contarán con un fondo fijo, por la suma de ¢100.000,00 (cien mil con 00/100) con la finalidad de que la persona a cargo de la misma pueda desenvolverse en su labor cotidiana. El monto de este fondo fijo podrá ser aumentado por acuerdo del Concejo Municipal a solicitud de la Tesorería Municipal o personal competente y de la debida autorización por parte de la Alcaldía Municipal. Para un aprovechamiento más eficiente del capital humano Municipal, así como una atención más ágil e integral al contribuyente, la persona debidamente nombrada en el área de cajas podrá confeccionar y emitir las constancias sobre deudas por tributos municipales.

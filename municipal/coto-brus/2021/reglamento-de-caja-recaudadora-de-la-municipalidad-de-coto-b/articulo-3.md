@@ -1,0 +1,1 @@
+Artículo 3º-El Departamento de Tesorería, a través de sus cajas recaudadoras, serán los encargados de la emisión de recibos, preparación de los comprobantes o recibos correspondientes, con el respectivo sello por parte de su emisor. El área de cajas (Facturación) conservará la copia del recibo y el original será entregado a la persona usuaria (contribuyente).

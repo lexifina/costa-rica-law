@@ -1,0 +1,1 @@
+Artículo 7º-La persona a cargo de la caja recaudadora municipal tendrá acceso al sistema informático Municipal diseñado para la atención a la persona usuaria, a los niveles de consulta y facturación de tributos, así como la reversión de comprobante de pagos anulados y/u otras opciones que se establezcan de acuerdo a los perfiles y necesidades establecidas técnicamente.
