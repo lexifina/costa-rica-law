@@ -1,0 +1,2 @@
+Artículo 15.-Procedimiento de pago. El interesado deberá cancelar el canon en dos tractos de 50 % cada uno, en los tiempos establecidos por el CCHOD. Estos montos no son reembolsables.
+Si no se realiza el pago en los tiempos establecidos, se suspende la actividad sin responsabilidad del CCHOD. Como medio de pago el usuario puede realizar el depósito bancario a la cuenta de la Municipalidad de Heredia; en caso de que la administración esté a su cargo; o bien, a la cuenta que destine la Junta Administradora para este fin.

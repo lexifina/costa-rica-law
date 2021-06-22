@@ -1,0 +1,1 @@
+Artículo 18.-Carta de Compromiso. En todos los casos, el préstamo y uso de los espacios supone la firma de una carta de compromiso del responsable de la actividad con la Administración del CCHOD, de conformidad con lo dispuesto en este Reglamento.
