@@ -14,3 +14,4 @@ Reglamento para la contratación de servicios técnicos y profesionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-04-25 | la propia norma |
+| 2 | 2021-06-23 | Reglamento 0 (2021-06-23) |
