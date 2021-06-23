@@ -16,3 +16,4 @@ Reglamento de Contratación Administrativa del Consejo Nacional de Rectores
 | 1 | 2013-12-30 | la propia norma |
 | 2 | 2015-03-03 | Reglamento 0 (2015-03-03) |
 | 3 | 2019-03-26 | Reglamento 0 (2019-03-26) |
+| 4 | 2021-06-23 | Reglamento 0 (2021-06-23) |
