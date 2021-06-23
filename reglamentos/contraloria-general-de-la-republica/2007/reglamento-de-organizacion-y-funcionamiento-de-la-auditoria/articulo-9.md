@@ -1,5 +1,0 @@
-Artículo 9º—Medidas de resguardo. Los funcionarios de la Auditoria Interna en resguardo de su independencia de criterio y objetividad no deberán:
-a. Participar de manera permanente en las sesiones del Consejo Consultivo o reuniones de trabajo del jerarca. Cuando se requiera de la participación del Auditor Interno en dichas sesiones o reuniones, ha de ser conforme a su función asesora.
-b. Ser parte de grupos de trabajo, comisiones o similares que ejerzan función propia de la administración activa. Cuando su participación sea solicitada por la Contralora o Subcontralora General al Auditor Interno, ésta será exclusivamente en su función asesora, en asuntos de su competencia y no podrá ser con carácter permanente.
-c. Asesorar, advertir o auditar operaciones específicas de las cuales hayan sido responsables, en los últimos doce meses contados a partir de la fecha de su ingreso a la Auditoría Interna.
-d. Ser miembros de órganos colegiados de un sujeto privado que administra fondos públicos que están como tales sujetos a su fiscalización o a la de la Contraloría General.
