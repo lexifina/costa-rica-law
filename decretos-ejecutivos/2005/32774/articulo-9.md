@@ -1,1 +1,0 @@
-Artículo 9º—El Contador Privado Incorporado, no consentirá ni prestará sus servicios o su nombre para facilitar el ejercicio profesional de quienes no están autorizados para hacerlo conforme a Derecho.

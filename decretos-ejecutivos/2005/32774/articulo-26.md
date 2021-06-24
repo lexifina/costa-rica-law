@@ -1,1 +1,0 @@
-Artículo 26.—El Contador Privado Incorporado, resguardará celosamente la buena reputación e imagen de la Institución. De igual manera, velará por el cuidado de los bienes muebles e inmuebles, propiedad del Colegio de Contadores Privados de Costa Rica y denunciará cualquier situación anómala que se presente, a la Junta Directiva del Colegio y/o las autoridades competentes.

@@ -1,1 +1,0 @@
-Artículo 14.—Cuando un Contador Privado Incorporado que ejerza independientemente, acepte llevar una contabilidad, deberá rendir el informe de la situación financiera de la persona física o jurídica, por lo menos una vez cada tres meses o cuando su cliente así lo solicite, asimismo, deberá mantener los libros contables al día y en perfecto estado de conservación y limpieza.
