@@ -3,3 +3,4 @@ Artículo 3°:Apruébense los siguientes Egresos Ordinarios y Extraordinarios de
 (Modificado por el artículo 1° del decreto ejecutivo N° 42821 del 21 de enero del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 42864 del 15 de febrero del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 42919 del 7 de abril del 2021)
+(Modificado por el artículo 1° del decreto ejecutivo N° 43069 del 24 de junio del 2021)
