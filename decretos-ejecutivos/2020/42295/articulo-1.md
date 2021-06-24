@@ -1,6 +1,6 @@
 (Suspendida)
 N° 42295-MOPT- S
-(Nota de Sinalevi: Mediante el artículo 11 del decreto ejecutivo N° 43003 del 18 de mayo del 2021, "Restricción sanitaria vehicular temporal del 19 de mayo al 13 de junio del 2021 para todo el territorio nacional debido al estado de emergencia nacional por el covid-19", Durante el período comprendido de las 05:00 horas del día 19 de mayo y hasta las 20:59 horas del 13 de junio de 2020, salvo lo dispuesto en los artículos 6° y 7° de este decreto ejecutivo, respecto de las medidas del transporte público remunerado de personas, el transporte especial y el transporte terrestre internacional así como de la demostración para la aplicación de la excepción a la restricción vehicular.)
+(Nota de Sinalevi: Mediante el artículo 11 del decreto ejecutivo N° 43068 del 24 de junio del 2021 "Restricción Sanitaria vehicular temporal del 28 de junio al 11 de julio de 2021 para todo el territorio Nacional debido al Estado de Emergencia Nacional por el COVID 19" se establece que durante el período comprendido de las 05:00 horas del día 28 de junio y hasta las 20:59 horas del 11 de julio de 2020, se suspende la aplicación de este decreto ejecutivo, salvo lo dispuesto en los artículos 6° y 7° de dicha norma, respecto de las medidas del transporte público remunerado de personas, el transporte especial y el transporte terrestre internacional así como de la demostración para la aplicación de la excepción a la restricción vehicular)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
 Y EL MINISTRO DE SALUD
