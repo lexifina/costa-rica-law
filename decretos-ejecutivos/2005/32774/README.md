@@ -16,3 +16,4 @@ Código de Moral Profesional del Contador Privado Incorporado
 | 1 | 2005-11-30 | la propia norma |
 | 2 | 2010-01-17 | Reglamento 127 (2010-01-17) |
 | 3 | 2016-10-11 | Reglamento 3810 (2016-10-11) |
+| 4 | 2021-06-24 | Reglamento 4126 (2021-06-24) |
