@@ -1,0 +1,15 @@
+COLEGIO DE FARMACÉUTICOS DE COSTA RICA
+(Nota de Sinalevi: El Colegio de Farmacéuticos de Costa Rica aprobó un nuevo Perfil del Farmacéutico Especialista en Atención Farmacéutica, en sesión N° 24 del 29 de setiembre de 2025 y publicado en La Gaceta N° 151 del 12 de agosto de 2026, Alcance N° 105)
+LA JUNTA DIRECTIVA DEL COLEGIO DE FARMACÉUTICOS DE COSTA RICA
+Considerando:
+I.-Que la Ley N° 5395 del 30 de octubre de 1973, Ley General de Salud establece en su numeral 40, cuáles son consideradas ciencias de la salud, estableciéndose la Farmacia como una de ellas.
+II.-Que el numeral 43 de la citada Ley General de Salud: Sólo podrán ejercer las profesiones a que se refiere el artículo 40, las personas que tengan el título o licencia que los habilite para ese ejercicio y que estén debidamente incorporados al correspondiente colegio o inscritos en el Ministerio si ése no se hubiere constituido para su profesión.
+III.-Que la Ley N° 15 del 29 de octubre de 1941, Ley Orgánica del Colegio de Farmacéuticos, establece en su artículo 9, que: Ante las autoridades de la República sólo tendrán el carácter de farmacéuticos los que estuvieren inscritos en el Colegio; indicando ese mismo cuerpo normativo en su numeral 2, los requisitos para formar parte del Colegio de Farmacéuticos de Costa Rica.
+IV.-Que mediante Decreto Ejecutivo N° 4151 del 22 de enero de 2019, el Poder Ejecutivo promulga el Reglamento de perfiles de profesionales en ciencias de la salud, estableciéndose en esa normativa que los colegios profesionales del ámbito de las ciencias de la salud deberán contar con los diferentes perfiles profesionales de sus agremiados, teniendo la citada norma reglamentaria como finalidad mejorar las condiciones del ejercicio profesional y la calidad del servicio ofrecido a la población.
+V.-Que en uso de las atribuciones que le confiere la Ley Orgánica de este Colegio Profesional y en cumplimiento de lo preceptuado en el Reglamento de perfiles de profesionales en ciencias de la salud; esta Junta Directiva, en sesión extraordinaria 19-2020, Por tanto:
+Aprueba:
+El siguiente:
+PERFIL PROFESIONAL DEL FARMACÉUTICO GENERAL
+CAPÍTULO I
+Definiciones
+Artículo 1°-El licenciado en Farmacia es el profesional de la salud especialista en medicamentos de uso humano y veterinario, y otros productos de interés sanitario, capacitado para brindar servicios farmacéuticos de indicación, dispensación, aplicación, evaluación y optimización del uso de los medicamentos; así como investigación, desarrollo, producción, control de calidad, regulación, y promoción de medicamentos, cosméticos, productos naturales, equipo y material biomédico y artículos farmacopeicos, con competencias que le permitan ser miembro esencial del equipo de salud, tomador de decisiones, comunicador, líder, administrador, estudiante de por vida y maestro, comprometido con la investigación, la calidad y la excelencia profesional, que vele por el mantenimiento de la salud pública mediante su participación activa en la promoción de la salud y la prevención de la enfermedad, con altos valores éticos y humanistas.
