@@ -1,6 +1,0 @@
-Artículo 1 Bis.—De manera excepcional, a partir de la vigencia del presente decreto y hasta el 31 de diciembre del 2020, y con el fin de fortalecer para el año 2020 el “Concurso Público anual para directores escénicos profesionales del teatro”, éste podrá financiar las siguientes acciones:
-1- Organizar una muestra de espectáculos adaptados a la coyuntura sanitaria actual, que representan la diversidad de creación de la dirección teatral costarricense. Los tipos de montajes, sus requisitos, así como todo el proceso de selección de los mismos, se establecerán en las bases del concurso para 2020.
-2- Organizar exposiciones sobre procesos y metodologías de dirección en distintas etapas de creación, a cargo de profesionales de la dirección.
-3- Organizar acciones de formación y reflexión que versen sobre nuevas tendencias en la dirección escénica en el nuevo contexto.
-Las propuestas serán valoradas atendiendo criterios de viabilidad económica, de producción, de calidad, y de cumplimento de los requisitos formales establecidos en la convocatoria. El acto final de selección será inapelable y corresponderá a la Junta Directiva del Teatro Popular Melico Salazar previa propuesta que le remita el jurado indicado en el artículo 5 de este Decreto.
-(Así adicionado por el artículo 1° del decreto ejecutivo N°42608 del 2° de setiembre del 2020)

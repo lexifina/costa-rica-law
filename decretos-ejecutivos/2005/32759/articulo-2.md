@@ -1,1 +1,0 @@
-Artículo 2º—El referido concurso será convocado en el primer trimestre de cada año, y los interesados tendrán como fecha límite para presentar sus proyectos de puesta en escena, el segundo trimestre del año respectivo.
