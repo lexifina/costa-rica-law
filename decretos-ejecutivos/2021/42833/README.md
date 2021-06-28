@@ -14,3 +14,4 @@ Reglamento a la ley N° 9703 del 15 julio 2019, "Ley para la prohibición del po
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-22 | la propia norma |
+| 2 | 2021-06-28 | Decreto Ejecutivo 43206 (2021-06-28) |
