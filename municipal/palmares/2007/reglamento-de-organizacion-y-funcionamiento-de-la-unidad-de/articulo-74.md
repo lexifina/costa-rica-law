@@ -1,3 +1,0 @@
-Artículo 74.—En caso que se considere, a juicio de la Auditora Interna , que los hechos denunciados no ameritan un estudio de auditoría, o cuando se quiere implementar una solución provisional antes que se llegue a atender la denuncia, se enviará una advertencia al funcionario denunciado, indicando que se tiene conocimiento de situaciones irregulares y que se recomienda su corrección, de acuerdo a lo indicado en el artículo 22, inciso b) de la Ley General de Control Interno.
-(Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)
-(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 73 al 74)

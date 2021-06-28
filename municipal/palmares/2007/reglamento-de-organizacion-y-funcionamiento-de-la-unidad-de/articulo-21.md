@@ -1,2 +1,0 @@
-Artículo 21.—El Concejo Municipal, deberá velar a fin de que conforme con los “Lineamientos para la descripción de las funciones y requisitos de los cargos de auditor y subauditor internos” (L-1-2003-CO-DDI), se contemple en los manuales de puestos para dichos cargos las funciones y requisitos dictados por la Contraloría General de la República.
-(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 18 al 21 actual)

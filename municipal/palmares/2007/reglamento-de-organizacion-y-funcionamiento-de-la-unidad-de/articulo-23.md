@@ -1,3 +1,0 @@
-Artículo 23.—Solicitud de vacaciones. Cuando el Auditor(a) Interno(a) solicite el disfrute de un periodo de vacaciones, menor o igual a cuatro días, será el Departamento de Recursos Humanos quien autorice el disfrute de ese periodo, en caso de ausencia del Encargado(a) del Departamento de Recursos Humanos, será el Alcalde Municipal quien de la autorización. En periodos mayores, se deberá hacer la solicitud de autorización, ante el Concejo Municipal.
-Para el caso de los demás funcionarios de la Auditoría Interna se regirán con las regulaciones aplicables al resto de los funcionarios de la Municipalidad de Palmares.
-(Así adicionado mediante sesión ordinaria N° 184 del 12 de noviembre del 2013)

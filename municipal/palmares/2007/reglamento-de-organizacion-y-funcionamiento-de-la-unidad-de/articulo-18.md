@@ -1,2 +1,0 @@
-Artículo 18.—La Auditoría Interna, dispondrá de un reglamento de organización y funcionamiento, acorde con la normativa que rige la actividad. Dicho reglamento deberá ser aprobado por el Concejo Municipal y por la Contraloría General de la República, y posteriormente publicarse en el diario oficial y divulgarse en el ámbito institucional.
-(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 15 al 18 actual)

@@ -1,3 +1,0 @@
-Artículo 29.—En aras del éxito en el desempeño de la auditoría interna y de propiciar un mayor conocimiento de la función que se realiza, el auditor y su personal deben mantener relaciones cordiales y una efectiva comunicación en el ámbito de su competencia con el jerarca, los diferentes órganos sujetos a su fiscalización, la Contraloría General de la República y las demás instituciones que correspondan.
-(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 25 al 28 actual)
-(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 28 al 29)

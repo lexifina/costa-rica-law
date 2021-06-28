@@ -1,3 +1,0 @@
-Artículo 76.—Para la fase de investigación, se conformará un expediente que contendrá todas las diligencias realizadas, sean datos, informaciones, entrevistas, documentos, evidencias, elementos probatorios y demás insumos relacionados con el asunto, todo lo cual tendrá carácter confidencial. El documento original de la denuncia no formará parte de este expediente, sino que se archivará por aparte, en cumplimiento de la obligación de mantener confidencial la identidad del denunciante.
-(Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)
-(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 75 al 76)

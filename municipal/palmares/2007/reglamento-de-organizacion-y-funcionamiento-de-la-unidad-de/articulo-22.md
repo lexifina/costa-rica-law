@@ -1,2 +1,0 @@
-Artículo 22.—El Concejo Municipal, de acuerdo a sus posibilidades, deberá solicitar, coordinar y apoyar al auditor, y demás funcionarios de la Unidad de Auditoría Interna, en un programa de capacitación y actualización basados en las exigencias de tales funciones y requisitos. Lo anterior sin perjuicio de la obligación de actualización constante que compete a los funcionarios de la Auditoría Municipal.
-(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 19 al 22 actual)

@@ -1,3 +1,0 @@
-Artículo 70.—Del traslado de la denuncia a la Administración activa. Sin perjuicio de lo indicado en el artículo 67 de este documento, la Auditoría Interna , luego de analizar el contenido de las denuncias presentadas ante esta Unidad, podrá trasladar a la Administración activa para su atención, aquellas denuncias que por su contenido, sean, a criterio de la Auditoría Interna , soporte de atención por parte de la Administración activa, la que deberá atender e informar de su resultado a la Auditoría Interna e interesados.
-(Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)
-(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 69 al 70)

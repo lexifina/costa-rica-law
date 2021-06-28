@@ -1,3 +1,0 @@
-Artículo 31.—Idoneidad de los funcionarios de Auditoría Interna: Los demás funcionarios de la Unidad de Auditoría Interna, excepto el puesto de la secretaria, que ejecuten labores de auditoría, deberán ser profesionales capacitados en materia de auditoría interna, con conocimientos en el ámbito contable y administrativo y en algunos casos en áreas especializadas como son: de informática, ingeniería civil y derecho y administración.
-(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 27 al 30 actual)
-(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 30 al 31)

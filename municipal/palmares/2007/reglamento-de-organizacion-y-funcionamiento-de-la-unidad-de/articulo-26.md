@@ -1,3 +1,0 @@
-Artículo 26.—Acorde con las regulaciones jurídicas y técnicas pertinentes el Auditor Interno, deberá administrar los recursos materiales, tecnológicos y de otra naturaleza, por lo que le corresponde garantizar la utilización de dichos recursos en forma económica, eficiente, eficaz, legal y transparente para la consecución de las metas y objetivos de la auditoría interna.
-(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 22 al 25 actual)
-(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 25 al 26)

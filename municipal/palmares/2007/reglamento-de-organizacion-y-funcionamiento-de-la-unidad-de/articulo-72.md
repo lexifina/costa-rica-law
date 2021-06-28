@@ -1,4 +1,0 @@
-Artículo 72.—Desestimación y archivo de la denuncia. Se desestimará y archivará cualquier denuncia cuando se determine que está en los parámetros indicados en los incisos e, f, g, h, i y j del artículo anterior según la estimación que hará la Auditora Interna. Para lo anterior, se dará parte al denunciante por cinco días para que se manifieste y aporte, si a bien lo tiene, elementos que sustenten su denuncia. Será motivo de desestimación de la denuncia la poca importancia relativa de los fondos involucrados, de acuerdo a los parámetros fijados en el artículo anterior.
-La desestimación se hará mediante resolución debidamente motivada, en la que se dispondrá su archivo y se comunicará al denunciante, dejando evidencia en el expediente correspondiente.
-(Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)
-(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 71 al 72)

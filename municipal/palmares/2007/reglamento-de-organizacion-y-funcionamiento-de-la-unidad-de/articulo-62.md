@@ -1,3 +1,0 @@
-Artículo 62.—La denuncia verbal. El denunciante comparecerá personalmente a la oficina de la Auditoría Interna , y expresará de modo oral la presunta situación irregular, indicando, además, su nombre y apellidos, número de cédula de identidad, teléfono, así como lugar y medio para recibir notificaciones. Su relato deberá contener una descripción clara y detallada de los hechos u omisiones denunciados, según se indica en el artículo 60º, inciso b) de este reglamento.
-(Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)
-(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 61 al 62)

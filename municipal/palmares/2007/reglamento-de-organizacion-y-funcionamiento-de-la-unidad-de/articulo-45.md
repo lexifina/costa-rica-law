@@ -1,3 +1,0 @@
-Artículo 45.—Requisitos y contenidos de los informes y otras comunicaciones. En cuanto a los informes producto del proceso de auditoría, se regirá fundamentalmente por las Normas para el Ejercicio de la Auditoría Interna, respecto de las demás comunicaciones según lo establezcan los lineamientos que al efecto defina la Contraloría General de la República o en su defecto el Auditor Interno.
-(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 41 al 44 actual)
-(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 44 al 45)

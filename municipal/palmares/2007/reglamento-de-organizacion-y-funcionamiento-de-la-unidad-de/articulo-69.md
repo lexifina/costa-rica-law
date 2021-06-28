@@ -1,3 +1,0 @@
-Artículo 69.— La Auditoría Interna podrá solicitar aclaración sobre lo denunciado. La Auditoría Interna , de acuerdo con sus facultades y una vez analizada la denuncia, si determinara que existen imprecisiones de los hechos denunciados, le otorgará al denunciante un plazo de 10 días hábiles para que éste aclare y complete la información que suministró. De no ser atendida la solicitud de la Auditoría Interna , quedará a criterio de ésta el archivo o desestimación de la denuncia; no obstante, podrá ser presentada con mayores elementos como una nueva gestión.
-(Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)
-(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 68 al 69)

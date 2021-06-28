@@ -1,2 +1,0 @@
-Artículo 16.—Cuando el personal de la auditoría interna, en el cumplimiento de sus funciones, se involucre en un conflicto legal o una demanda, la institución dará todo su respaldo tanto jurídico como técnico y cubrirá los costos para atender ese proceso hasta su resolución final.
-(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 13 al 16 actual)

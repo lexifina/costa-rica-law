@@ -1,3 +1,0 @@
-Artículo 41.—Ejecución de cada auditoría. Durante la fase de ejecución debe darse cabal cumplimiento a las normas, procedimientos, lineamientos, prácticas y otras instrucciones propias de cada proceso, reguladas por las leyes, reglamentos, normas y otras disposiciones de la Contraloría General de la República, el Auditor Interno y demás Órganos pertinentes. Deberá garantizarse una etapa de supervisión o revisión de la calidad en cuanto a esa normativa.
-(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 37 al 40 actual)
-(Así corrida su numeración mediante sesión ordinaria N° 184 del 12 de noviembre del 2013, que lo traspasó del antiguo artículo 40 al 41)
