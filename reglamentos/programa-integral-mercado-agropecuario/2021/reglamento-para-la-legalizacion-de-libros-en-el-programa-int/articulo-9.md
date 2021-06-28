@@ -1,0 +1,5 @@
+Artículo 9º-Cierre del Libro. Para el cierre de cada libro autorizado se seguirá el siguiente procedimiento:
+1- La Unidad encargada del libro deberá enviar el libro mediante una nota dirigida al Auditor Interno solicitando el cierre respectivo.
+2- El frente del último folio autorizado se debe presentar en blanco, para que la Auditoría Interna realice la razón de cierre del libro respectivo.
+3- La Auditoría Interna del Programa Integral de Mercadeo Agropecuario, debe tener por sistema digital o un sello de cierre, el cual debe contener la siguiente información:
+LA AUDITORÍA INTERNA DEL PROGRAMA INTEGRAL DE MERCADEO AGROPECUARIO EN CUMPLIMIENTO A LO DISPUESTO EN LA LEY GENERAL DE CONTROL INTERNO A SU ARTÍCULO 22, INCISO E) HACE CONSTAR QUE AQUÍ TERMINA EL LIBRO DE________ Nº______ TOMO______ LLEVADO POR__________________ OBSERVACIONES.________ ES CONFORME DE ACUERDO CON NUESTROS REGISTROS INDIVIDUALES AL: FOLIO__________ASIENTO ________ HEREDIA _____DE _________DE_____________ LIC(DA). ________________ AUDITOR(A) INTERNO(A).

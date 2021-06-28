@@ -1,0 +1,10 @@
+Artículo 24.-De las responsabilidades de la secretaría de actas. Será responsabilidad de la Secretaría de Actas del Concejo Directivo del Programa Integral de Mercadeo Agropecuario, velar por que se cumplan los aspectos:
+1. Deben tener la mayor claridad posible, en este sentido los informes y los acuerdos son la parte más importante del acta, por esto los mismos deben ser muy claros y precisos.
+2. La síntesis es fundamental, por lo que deben consignar los aspectos más importantes que se hayan tratado en la sesión, o sea el acta debe referirse a lo indicado en las discusiones, si algún miembro del Órgano Colegiado solicita que se haga constar su opinión en el acta, deberá respetarse esa solicitud.
+3. Tener un orden lógico en su elaboración, es decir diferenciar cada uno de los puntos discutidos utilizar algún tipo de división, puede ser por capitulo o por artículos.
+4. Mantener una numeración consecutiva, indicar fecha, hora, lugar y número de sesión, así como tipo de reunión: ordinaria o extraordinaria.
+5. Especificar los nombres y cargos de quienes están presentes en la sesión, así como los nombres de quienes están ausentes y señalar si las ausencias son justificadas o injustificadas.
+6. Tener consignado el orden del día o agenda de la sesión.
+7. El acta debe estar firmada por el Presidente o la persona que presidio la sesión y por el Secretario(a). Se incluirá una tercera firma de haber en la Sesión algún Directivo disidente, es decir que su voto en algún tema específico este en contra.
+8. Si por alguna razón se cometiese un error en la toma del acta, se debe corregir en el momento de su lectura y aprobación.
+9. En general lo acontecido en la sesión debe ser transcrito al libro de manera oportuna y fiel al libro y la documentación que sustentan las actas deben ser mantenidos en orden, limpios, sin "tachones", correcciones y en general libre de elementos que hagan dudar de su veracidad y confiabilidad. Para tal efecto el secretario contara con los respaldos suficientes y competentes, sea en cintas, medio digital o papel.

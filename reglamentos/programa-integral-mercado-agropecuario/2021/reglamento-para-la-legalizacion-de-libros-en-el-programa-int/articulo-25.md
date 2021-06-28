@@ -1,0 +1,1 @@
+Artículo 25.-Uso de libros. Según lo indicado en el artículo 22 inciso e) de la Ley General de Control Interno, el Auditor Interno indicará cuales dependencias y órganos que forman parte del Programa Integral de Mercadeo Agropecuario, deben presentar libros para autorización de la Auditoría Interna.

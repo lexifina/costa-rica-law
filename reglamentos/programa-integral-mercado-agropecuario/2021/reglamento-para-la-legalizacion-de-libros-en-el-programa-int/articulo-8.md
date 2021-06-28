@@ -1,0 +1,1 @@
+Artículo 8º-Uso del sello de Legalización de Libro. La Auditoría Interna deberá dar foliatura (numerar) en orden ascendente y plasmar en la parte superior derecha de cada hoja el sello correspondiente a la legalización del libro; esto con el fin de asegurar razonablemente que no se utilizaran hojas distintas que puedan alterar la información.

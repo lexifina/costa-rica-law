@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo: Contar con un instrumento que defina los principales procedimientos relacionados con el Proceso de Legalización de Libros, que se ejecuta con el propósito de fortalecer el sistema de control interno y riesgos institucionales.

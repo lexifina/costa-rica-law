@@ -1,0 +1,1 @@
+Artículo 3º-Alcance: Este documento forma parte de la documentación del Proceso de Legalización de Libros de la Auditoría Interna del Programa Integral de Mercadeo Agropecuario; así como los lineamientos dictados por la Contraloría General de la República.

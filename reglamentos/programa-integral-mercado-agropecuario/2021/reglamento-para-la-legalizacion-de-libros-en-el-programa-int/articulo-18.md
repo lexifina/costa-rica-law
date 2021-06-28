@@ -1,0 +1,1 @@
+Artículo 18.-Administración del Libro autorizado. Los folios o libros autorizados serán administrados únicamente por el encargado del área solicitante, o bien a quien en su cargo sea designado (deberá ser notificado por escrito a la Auditoría Interna).

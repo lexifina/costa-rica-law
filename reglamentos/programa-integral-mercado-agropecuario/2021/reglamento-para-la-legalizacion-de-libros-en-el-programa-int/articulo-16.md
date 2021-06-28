@@ -1,0 +1,1 @@
+Artículo 16.-Pérdida y deterioro. En caso de pérdida, deterioro o maltrato de los folios o libros autorizados, deberá el representante o persona autorizada reportarlo de inmediato por escrito a la Auditoría Interna, lo anterior según lo estipulado en el artículo 22 sobre reposición de folios y libros, en lo que aplique.

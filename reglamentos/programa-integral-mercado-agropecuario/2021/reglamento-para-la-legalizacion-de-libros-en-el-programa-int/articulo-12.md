@@ -1,0 +1,1 @@
+Artículo 12.-Solicitud de un nuevo tomo. El encargado o la Unidad responsable del libro, deberá solicitar con antelación (3 días máximos) la autorización del siguiente tomo y deberá reunir los requisitos del artículo 5 de previo a terminarse los folios o el libro del tomo autorizado.

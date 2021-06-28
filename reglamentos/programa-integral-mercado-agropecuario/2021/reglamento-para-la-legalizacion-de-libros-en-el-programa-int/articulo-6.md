@@ -1,0 +1,1 @@
+Artículo 6º-Libros de Órganos Colegiados: En el caso de los libros asignados a Órganos Colegiados, se procederá con la cantidad de folios que indica la "Directriz General para la Normalización del tipo documental Actas de Órganos Colegiados".

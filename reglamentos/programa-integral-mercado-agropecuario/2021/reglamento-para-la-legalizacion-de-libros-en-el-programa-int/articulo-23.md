@@ -1,0 +1,1 @@
+Artículo 23.-Libros de Actas de Sesiones del Consejo Directivo. El proceso de apertura, autorización, reposición y en general manejo de los libros de las Actas de las Sesiones del Concejo Directivo del Programa Integral de Mercadeo Agropecuario, se regirán por lo indicado en el presente reglamento.
