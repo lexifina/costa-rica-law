@@ -1,0 +1,2 @@
+ARTÍCULO 5°.- Demostración para la aplicación de la excepción.
+Para aquellos incisos del artículo 4° del presente Decreto Ejecutivo, en los cuales se establece la obligación de acreditar o demostrar la invocación de la excepción correspondiente, dicha comprobación deberá darse ante la autoridad de tránsito mediante la presentación del carné institucional o empresarial, así como mediante una constancia laboral emitida de forma digital o física por la persona empleadora en los mismos términos del artículo 7° del Decreto Ejecutivo número 42295-MOPT-S del 11 de abril de 2021.
