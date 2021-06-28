@@ -1,0 +1,1 @@
+Artículo 4º-Derogatorias. Se deja sin efecto la resolución de la Dirección General de Tributación Nº DGT-R-018-2018 de las ocho horas del 3 de abril de 2018, publicada en La Gaceta N° 63 del 12 de abril de 2018.
