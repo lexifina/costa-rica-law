@@ -4,8 +4,8 @@ Regulaciones Técnicas de los Principios Orientadores para los Concesionarios
 sobre la Subordinación del Diseño y Construcción de los Proyectos Turísticos
 en Papagayo.
 El Instituto Costarricense de Turismo, hace del conocimiento de los señores Concesionarios del Polo Turístico Golfo de Papagayo, Guanacaste, el comunicado de acuerdo de Junta Directiva SJD-385-2020, tomado en Sesión Ordinaria Virtual N° 6138 de la Junta Directiva del Instituto Costarricense de Turismo, Artículo 5, inciso II, celebrada el 21 de setiembre de 2020, que textualmente dice:
-“SE ACUERDA:
-B) Instruir a la Dirección Ejecutiva a publicar en el Diario Oficial La Gaceta, la tabla de contenido en el informe técnico N° PGP-610-2020 como complemento a las Regulaciones Técnicas de los Principios Orientadores para los Concesionarios sobre la Subordinación del Diseño y Construcción de los Proyectos Turísticos en Papagayo. ACUERDO FIRME.”
+"SE ACUERDA:
+B) Instruir a la Dirección Ejecutiva a publicar en el Diario Oficial La Gaceta, la tabla de contenido en el informe técnico N° PGP-610-2020 como complemento a las Regulaciones Técnicas de los Principios Orientadores para los Concesionarios sobre la Subordinación del Diseño y Construcción de los Proyectos Turísticos en Papagayo. ACUERDO FIRME."
 Se presentan seguidamente, los porcentajes a aplicar en el coeficiente de ocupación de superficie, según los diferentes materiales y elementos constructivos a utilizar, una vez realizado el análisis técnico por parte de la Dirección Ejecutiva del Polo Turístico Golfo Papagayo.
 | 5.1 CUBIERTAS
 | DESCRIPCIÓN | % DE COBERTURA ACEPTADO | FUNDAMENTO TÉCNICO | BIBLIOGRAFÍA (Del fundamento)
@@ -30,3 +30,4 @@ DESCRIPCIÓN | % DE COBERTURA ACEPTADO | FUNDAMENTO TÉCNICO | BIBLIOGRAFÍA (De
 Piscina | 100% | Material compacto de iguales condiciones que el concreto que no permite filtración de líquidos hacia el subsuelo. | La norma ASTM (American Society of Testing Materials) entidad encargada de probar la resistencia de los materiales para la construcción de bienes. Pagina Web: https://www.astm.org/ |
 | Espejo de Agua | 100% | Material compacto de iguales condiciones que el concreto que no permite filtración de líquidos hacia el subsuelo. | La norma ASTM (American Society of Testing Materials) entidad encargada de probar la resistencia de los materiales para la construcción de bienes. Pagina Web: https://www.astm.org/ |
 | | | | | | | | | | | | | | | | | | | | |
+(Nota de Sinalevi: Mediante acuerdo N° SJD-206-2021 tomado en sesión ordinaria Virtual N° 6175 de la Junta Directiva del Instituto Costarricense de Turismo, Artículo 5, inciso VI celebrada el 28 de junio de 2021, se acordó utilizar la lámina de policarbonato "Panel Microcelda Danpalon Softlite" de la empresa Danpal® sin la condicionante del uso de colocarle por encima materiales como: cañaindia, madera o similares, con una separación máxima de una pulgada (2,54cmo1''), entre pieza y pieza.)

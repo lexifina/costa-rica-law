@@ -14,3 +14,4 @@ Regulaciones técnicas de los principios orientadores para los concesionarios so
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-07 | la propia norma |
+| 2 | 2021-06-28 | Acuerdo 206 (2021-06-28) |
