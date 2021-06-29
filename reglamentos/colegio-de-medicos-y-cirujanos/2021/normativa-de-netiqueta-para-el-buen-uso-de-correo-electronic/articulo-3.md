@@ -1,0 +1,6 @@
+CAPÍTULO II
+La confidencialidad y el secreto médico
+Artículo 3º-De la Autorización. El profesional previo a la captura de información obtenida de un reporte, informe o expediente tomada por medio de imágenes médicas que identifiquen plenamente a una persona determinada en un momento determinado durante procedimientos clínicos deberá contar de previo con el consentimiento informado de la persona, explicando al mismo, que la obtención de la información responde a un fin particular ya sea clínico, académico o judicial/pericial. Deberá explicar donde se almacenará la información, que mecanismos se utilizarán para respetar la privacidad y confidencialidad y que personas podrán tener acceso a ella.
+La información o datos deben ser editadas en la medida de los posible para evitar el reconocimiento de la identidad de la persona.
+La información tomada por medio de imágenes médicas que se realiza con fines de investigación biomédica se debe responder con el cumplimiento de los requisitos exigidos en la Ley Nº 9234 de Investigación Biomédica.
+Se debe garantizar la custodia y tratamiento de las imágenes y vídeos según la ética y la Ley Nº 8968 de Protección de la Persona frente al Tratamiento de sus Datos Personales.

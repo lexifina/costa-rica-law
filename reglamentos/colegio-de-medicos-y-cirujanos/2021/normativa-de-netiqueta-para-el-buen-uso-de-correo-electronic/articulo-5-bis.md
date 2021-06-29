@@ -1,0 +1,1 @@
+Artículo 5°-bis.-El uso de imágenes, videos, fotografías con fines académicos deben evitar particularmente el sensacionalismo, la morbosidad o bien que sean compartidos con terceros no relacionados a la atención del paciente.

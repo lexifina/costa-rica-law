@@ -1,0 +1,2 @@
+Artículo 6º-Medidas de Seguridad. Es indispensable para el médico ejercer la máxima cautela en el uso de aplicaciones de mensajes de texto o de voz, en los cuales la seguridad de los datos enviados pueda estar comprometida. Esto conlleva conocer las condiciones de privacidad y uso de dichas aplicaciones.
+No se recomienda el almacenamiento, uso o divulgación de información sobre pacientes a través de teléfonos móviles, computadoras portátiles, Tablet o dispositivos similares de imágenes no encriptadas que puedan ser de acceso de terceros.

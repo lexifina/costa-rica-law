@@ -1,0 +1,1 @@
+Artículo 10.-Del Consejo Médico en Interconsulta. Cuando se realicen consultas por parte o hacia otros profesionales y éstas incluyan fotografías o datos del paciente reconocibles por terceros se recomienda utilizar vías de comunicación privadas, y no públicas.

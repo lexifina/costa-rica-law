@@ -1,0 +1,1 @@
+Artículo 5º-Excepciones al principio de Confidencialidad. De existir la necesidad justificada de vulnerar el este principio, el profesional en medicina deberá reconocer que la misma se efectúa para para evitar un daño a terceras personas, para evitar un daño a la propia persona, y por imperativo legal, según la instrucción que las autoridades competentes instruyan.
