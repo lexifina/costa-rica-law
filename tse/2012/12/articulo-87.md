@@ -1,3 +1,25 @@
-Artículo 87.- Información de otros órganos públicos.- La Sección de Opciones y Naturalizaciones requerirá a los órganos públicos correspondientes que remitan la prueba necesaria, para lo cual se les concederá un plazo de tres días contados a partir del día hábil siguiente de la respectiva notificación.
-Si de la prueba aportada a los autos se desprende que la parte gestionante tiene un 'conocido como', este deberá incluirse en las solicitudes a las cuales hace referencia el párrafo anterior.
-(Así corrida su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017, que lo traspaso del artículo 80 al 87)
+TÍTULO IV
+DISPOSICIONES COMUNES A LOS
+TRÁMITES DE NATURALIZACIÓN
+CAPÍTULO I
+FORMALIDADES QUE SE DEBEN OBSERVAR
+EN TODOS LOS TRÁMITES DE NATURALIZACIÓN
+Artículo 87.- Formalidades.- En los diferentes trámites de naturalización se deberá cumplir obligatoriamente con las siguientes formalidades:
+a.- Toda solicitud de naturalización deberá ser firmada por quien la solicita o por su apoderado especialísimo; en este último caso, se deberá aportar el poder respectivo.
+b.- Tanto la solicitud de naturalización como los escritos presentados con posterioridad no requerirán la autenticación de la firma de la parte gestionante cuando sean presentados personalmente por esta o por su apoderado. Para tal efecto, deberán mostrar su documento de identidad vigente.
+c.- En caso de que la solicitud sea presentada por una persona distinta de quien solicita la naturalización o su apoderado, la firma del solicitante deberá estar autenticada por profesional en derecho debidamente incorporado al Colegio de Abogados de Costa Rica y habilitado para ejercer en la función que autentica. Es responsabilidad del Registro verificar ambas condiciones en relación con dicho profesional.
+d.- Con las salvedades del caso, se admiten como documentos de identificación de los extranjeros los siguientes: el pasaporte -salvo en el trámite de naturalización por residencia-, el documento de identidad migratorio para extranjeros (DIMEX) y cualquier otro documento oficial expedido por la Dirección General de Migración y Extranjería, y los que extiende el Ministerio de Relaciones Exteriores y Culto como el carné diplomático y el carné de misión internacional.
+e.- Todos los documentos que provengan de otro país deberán estar apostillados o debidamente legalizados. Se dispensará de este requisito las certificaciones emitidas por las autoridades consulares del país de origen de la parte gestionante acreditadas en Costa Rica, siempre y cuando se haya suscrito el convenio correspondiente para el reconocimiento de estos documentos.
+f.- Todo documento proveniente de otro país tendrá la vigencia que expresamente indique; de no señalarse, al momento de presentarse el documento deberá tener una fecha de emisión no mayor a tres meses.
+g.- Cuando la documentación presentada como prueba en una solicitud de naturalización esté redactada en un idioma distinto al español, deberá aportarse también su traducción oficial.
+h.- En todos los casos es potestad del Registro y del Tribunal verificar, por cualquier medio válido, los antecedentes penales o alertas nacionales e internacionales en relación con el solicitante.
+i.- Toda copia que se aporte al expediente deberá estar debidamente certificada por notaría pública. En caso de que se aporten fotocopias sin certificar, deberán presentarse junto con su original para ser confrontadas en el acto por el funcionario o funcionaria correspondiente quien deberá dejar razón en la fotocopia respectiva, e identificarse con su nombre completo, firma y fecha en que realiza el acto. Es responsabilidad del funcionario o funcionaria que recibe la documentación indicar si se trata de una copia simple o si fue debidamente confrontada con el original.
+j.- En todo trámite de solicitud de naturalización la parte gestionante deberá anexar a la solicitud cinco fotografías tamaño pasaporte, a color, de frente y sin retoque, en las que el rostro se aprecie de manera nítida.
+k.- No se admitirá como prueba ningún documento que se encuentre alterado, perforado, deteriorado, ilegible, sucio, difuso, con tachaduras o borrones.
+l.- Cuando se requieran testigos, podrán manifestarse, en una misma declaración, en relación con todos o algunos de los requisitos, ya sea ante la sede central o alguna oficina regional del Tribunal Supremo de Elecciones.
+m.- En caso de que se aporten fotocopias sin certificar, deberán presentarse junto con su original para ser confrontadas en el acto por el funcionario o funcionaria correspondiente quien deberá dejar la razón en la fotocopia respectiva, e identificarse con su nombre completo, firma y fecha en que realiza el acto. Es responsabilidad del funcionario o funcionaria que recibe la documentación indicar si se trata de una copia simple o si fue debidamente confrontada con el original.
+(Así reformado el inciso anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 23-2015 del 17 de noviembre del 2015)
+n.- De todo recurso que se interponga deberá aportarse copia simple.
+o.- Si un recurso de apelación se presenta en una oficina regional del Tribunal Supremo de Elecciones, el funcionario o funcionaria deberá estampar el correspondiente sello de recibido y luego se traslada a la sede central para su tramitación.
+(Así modificada su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017, que lo traspaso del artículo 73 al 80)
+(Así modificada su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 5-2021 del 29 de junio de 2021, que lo traspaso del artículo 80 al 87)

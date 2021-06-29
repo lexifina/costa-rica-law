@@ -1,2 +1,2 @@
-Artículo 84.- Principios rectores.- El Registro Civil deberá conducir el procedimiento con la intención de lograr un máximo de celeridad, eficiencia y eficacia, dentro del respeto al ordenamiento jurídico y a los derechos e intereses del gestionante.
-(Así corrida su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017, que lo traspaso del artículo 77 al 84)
+Artículo 84.-Prueba para demostrar la ausencia de juzgamientos. Para demostrar la ausencia de juzgamientos corresponderá a la Sección de Opciones y Naturalizaciones solicitar las respectivas certificaciones a las autoridades judiciales y policiales competentes y, si es del caso, a cualquier otra oficina que lleve este tipo de control.
+(Así adicionado por el artículo 3° del decreto del Tribunal Supremo de Elecciones, N° 5-2021 del 29 de junio de 2021)

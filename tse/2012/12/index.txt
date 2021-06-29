@@ -117,7 +117,6 @@ articulo-116.md
 articulo-117.md
 articulo-118.md
 articulo-119.md
-articulo-119-bis.md
 articulo-120.md
 articulo-121.md
 articulo-122.md
@@ -125,6 +124,7 @@ articulo-123.md
 articulo-124.md
 articulo-125.md
 articulo-126.md
+articulo-126-bis.md
 articulo-127.md
 articulo-128.md
 articulo-129.md
@@ -132,5 +132,12 @@ articulo-130.md
 articulo-131.md
 articulo-132.md
 articulo-133.md
+articulo-134.md
+articulo-135.md
+articulo-136.md
+articulo-137.md
+articulo-138.md
+articulo-139.md
+articulo-140.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md

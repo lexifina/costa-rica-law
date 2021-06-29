@@ -1,2 +1,4 @@
-Artículo 133.- Vigencia.- Este reglamento regirá un mes después de su publicación en el diario oficial La Gaceta.
-(Así corrida su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017, que lo traspaso del artículo 126 al 133)
+Artículo 133.- Resolución de los recursos.- Los recursos interpuestos contra las resoluciones finales dictadas por el Registro serán resueltos observando un estricto orden cronológico, considerado a partir de la fecha de ingreso del respectivo expediente al Tribunal.
+El orden será variado solamente si la parte gestionante alega una causa justa debidamente demostrada. Tanto la solicitud como la respuesta del Tribunal deberán quedar constando en el expediente.
+(Así corrida su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017, que lo traspaso del artículo 119 al 126)
+(Así modificada su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 5-2021 del 29 de junio de 2021, que lo traspaso del artículo 126 al 133)

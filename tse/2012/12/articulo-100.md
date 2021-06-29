@@ -1,2 +1,3 @@
-Artículo 100.- Motivación de la resolución final denegatoria.- La resolución que deniegue una solicitud de naturalización deberá indicar con claridad los hechos probados y no probados de interés para la resolución del asunto. De igual forma, deberá estar suficientemente motivada, de modo que la parte gestionante pueda conocer, también con claridad, las razones por las cuales se deniega el trámite y pueda ejercer adecuadamente los recursos disponibles.
-(Así corrida su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017, que lo traspaso del artículo 93 al 100)
+Artículo 100.- Prueba aportada en expediente archivado.- A solicitud del gestionante, el Registro Civil incorporará al expediente la prueba constante en otro previamente rechazado.
+(Así corrida su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017, que lo traspaso del artículo 86 al 93)
+(Así modificada su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 5-2021 del 29 de junio de 2021, que lo traspaso del artículo 93 al 100)

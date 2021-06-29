@@ -1,5 +1,7 @@
-CAPÍTULO II
-DISPOSICIONES GENERALES DE PROCEDIMIENTO
-Artículo 81.- Trámite de admisibilidad.- Recibida la solicitud de naturalización, la Sección de Opciones y Naturalizaciones o la sede regional respectiva procederán, de conformidad con el tipo de trámite gestionado, a verificar que la documentación de respaldo esté completa en orden a iniciar el trámite correspondiente. Para tal fin, cuando el gestionante no haya cumplido con la entrega de toda esa documentación en la solicitud inicial, conforme a la normativa aplicable, confeccionará, desde la Recepción de Documentos, un escrito de advertencia a la persona usuaria, para que en el plazo de diez días hábiles, contados a partir del día hábil siguiente a su notificación, complete dicha documentación para poder iniciar el trámite de naturalización. De no atenderse esa advertencia y concluido este plazo o el de la prórroga prevista en el artículo 82 de este reglamento, se procederá a rechazar de plano la solicitud.
-(Así reformado por el artículo 1° del decreto del Tribunal de Elecciones, N° 23-2015 del 17 de noviembre del 2015)
-(Así corrida su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017, que lo traspaso del artículo 74 al 81)
+Artículo 81.-Requisitos. Quien solicite la naturalización por haber sido declarado en condición de persona indígena transfronteriza deberá demostrar lo siguiente:
+a.- Tener estatus declarado y vigente, así como haber sido
+declarado como persona indígena transfronteriza.
+b.- Haber residido oficialmente en Costa Rica durante dos años.
+c.- Ser de buena conducta.
+d.- Demostrar que no ha sido juzgado, durante su permanencia en el país, por delitos dolosos ni ser reincidente en delitos culposos, ni haber sido condenado por contravenciones repetidas. Además, deberá demostrar que no ha sido condenado por los delitos a los cuales se refiere el artículo 15 de la Ley de Opciones y Naturalizaciones, Nº 1155 del 29 de abril de 1950.
+(Así adicionado por el artículo 3° del decreto del Tribunal Supremo de Elecciones, N° 5-2021 del 29 de junio de 2021)

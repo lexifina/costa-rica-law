@@ -1,3 +1,6 @@
-Artículo 82.- Solicitudes presentadas en oficinas regionales.- Si la solicitud de naturalización gestionada ante una oficina regional del Tribunal Supremo de Elecciones, se ajusta a los requisitos establecidos en el presente reglamento para cada uno de los trámites de naturalización establecidos, se remitirá a la Sección de Opciones y Naturalizaciones a más tardar el día hábil siguiente de su recepción para la continuación del trámite respectivo. Los plazos de los trámites comenzarán a correr a partir del día hábil siguiente en el que se recibió la solicitud en la oficina regional.
-(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 23-2015 del 17 de noviembre del 2015)
-(Así corrida su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017, que lo traspaso del artículo 75 al 82)
+SECCIÓN II
+Prueba para demostrar los requisitos
+Artículo 82.-Prueba para demostrar la identidad de la parte gestionante.- La identidad de la parte gestionante se debe demostrar por medio de la siguiente prueba:
+La oficina receptora de la solicitud, fotocopiará el documento otorgado por la Dirección General de Migración y Extranjería y hará constar que esta es fiel del original.
+Asimismo, la Sección de Opciones y Naturalizaciones, solicitará a la citada dirección, la prueba recabada que consta en el expediente migratorio, referente al lugar y fecha de nacimiento, así como a la filiación de la persona interesada y, en caso de ser necesario, la Dirección General del Registro Civil solicitará a instituciones homólogas de los países fronterizos, prueba que demuestre esos extremos.
+(Así adicionado por el artículo 3° del decreto del Tribunal Supremo de Elecciones, N° 5-2021 del 29 de junio de 2021)
