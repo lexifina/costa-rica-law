@@ -14,3 +14,4 @@ Declara estado de emergencia fitosanitaria nacional para la prevención de la in
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-11 | la propia norma |
+| 2 | 2021-06-29 | Decreto Ejecutivo 43109 (2021-06-29) |
