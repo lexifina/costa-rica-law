@@ -1,0 +1,1 @@
+Artículo 9º-Responsabilidad de los funcionarios de la Auditoría Interna. Los funcionarios de la Auditoría Interna deben conocer los términos de este Código y comprometerse a cumplir con las disposiciones contenidas en este.

@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Las normas contenidas en este Código son de aplicación obligatoria para todos los funcionarios de la Auditoría Interna, por lo que, cada funcionario de esta Instancia debe conocer y comprometerse a cumplir los principios éticos, normas o reglas, con el fin de que se actúe siempre de manera justa, leal, honesta, e íntegra.

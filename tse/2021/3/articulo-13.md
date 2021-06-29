@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Sobre incumplimiento
+Artículo 13.-Faltas al Código de Ética. Toda infracción a las disposiciones contenidas en este Código, generará responsabilidad disciplinaria para quien lo incumpla, por lo que estará sujeto a la imposición de las sanciones que correspondan en cada caso, el procedimiento a seguir será el contemplado en los artículos 214, siguientes y concordantes de la Ley General de Administración Pública N° 6227; así como, sobre lo que el particular se encuentre establecido en el Reglamento Autónomo de Servicios de la institución o cualquier otra normativa que resulte aplicable.
