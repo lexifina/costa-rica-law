@@ -18,6 +18,7 @@ Farmacodependencia (Así adicionada la maestría anterior mediante sesión ordin
 Farmacología Clínica.
 Fisiología Humana.
 Gerontología. (Nota de Sinalevi: Mediante sesión N° 2021-04-28 del 28 de abril del 2021 se acordó reconocer el sinónimo de la Maestría en Gerontología Social como sinónimo de la Maestría en Gerontología)
+Gerencia de la Calidad (Así adicionada la maestría anterior mediante sesión ordinaria N° 2021-06.30 del 30 de junio del 2021)
 Gerencia de la Salud.
 Homeopatía.
 Informática Médica.
