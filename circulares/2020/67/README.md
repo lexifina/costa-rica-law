@@ -16,3 +16,4 @@ Lineamientos generales para la implementación del acuerdo adoptado por la Corte
 | 2 | 2020-04-29 | Circular 86 (2020-04-29) |
 | 3 | 2020-07-20 | Circular 153 (2020-07-20) |
 | 4 | 2020-10-26 | Circular 242 (2020-10-26) |
+| 5 | 2021-06-30 | Circular 146 (2021-06-30) |
