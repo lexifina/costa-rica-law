@@ -14,3 +14,4 @@ Lista oficial de bienes exonerados conforme al artículo 38 de la Ley de Regulac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-22 | la propia norma |
+| 2 | 2021-06-30 | Decreto Ejecutivo 43095 (2021-06-30) |
