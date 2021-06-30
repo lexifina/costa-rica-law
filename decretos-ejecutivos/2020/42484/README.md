@@ -31,3 +31,4 @@ Restricción vehicular con franja horaria diferenciada en determinados cantones 
 | 16 | 2021-03-25 | Decreto Ejecutivo 42914 (2021-03-25) |
 | 17 | 2021-04-30 | Decreto Ejecutivo 42991 (2021-04-30) |
 | 18 | 2021-05-31 | Decreto Ejecutivo 43033 (2021-05-31) |
+| 19 | 2021-06-30 | Decreto Ejecutivo 43072 (2021-06-30) |
