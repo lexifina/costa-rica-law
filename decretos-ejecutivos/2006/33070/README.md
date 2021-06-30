@@ -14,3 +14,4 @@ Reglamento General del Instituto sobre Alcoholismo y Farmacodependencia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-10 | la propia norma |
+| 2 | 2021-06-30 | Decreto Ejecutivo 43082 (2021-06-30) |
