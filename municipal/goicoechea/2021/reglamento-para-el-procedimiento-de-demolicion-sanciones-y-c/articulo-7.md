@@ -1,0 +1,1 @@
+Artículo 7º-Multa por infracciones en casos de clausura, según el artículo anterior. En los casos previstos en el artículo anterior se le impondrá al administrado, o su representada, una multa igual al 100% del valor del impuesto de construcciones que debe pagar el administrado por el costo total de la obra. Todo esto de acuerdo al artículo 90 de la Ley de Construcciones.

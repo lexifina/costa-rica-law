@@ -1,0 +1,1 @@
+Artículo 9º-Interés moratorio por falta de pago de tasado de oficio. La municipalidad queda facultada para cobrar intereses moratorios sobre el valor del tasado, que correrán, al día siguiente de haberse incluido en el sistema y deberá calcularse tomando como referencia las tasas vigentes desde el momento en que se genera dicho interés.

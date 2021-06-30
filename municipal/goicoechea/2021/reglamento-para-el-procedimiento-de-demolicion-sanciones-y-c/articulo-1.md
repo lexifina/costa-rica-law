@@ -1,0 +1,13 @@
+MUNICIPALIDAD DE GOICOECHEA
+En Concejo Municipal del Cantón de Goicoechea, en Sesión Ordinaria N° 25-2021, celebrada el día 21 de junio de 2020, Artículo IV.VII, aprobó.
+"La Municipalidad del cantón de Goicoechea comunica que Reglamento para el Procedimiento de Demolición, Sanciones y Cobro de Obras Civiles en el Cantón de Goicoechea, se aprueba con el texto publicado en La Gaceta 94 del 18 de mayo del 2021.
+(Nota de Sinalevi: Tal como se indica en el párrafo anterior el texto corresponde al publicado en La Gaceta N° 94 del 18 de mayo del 2021, y se transcribe a continuación:)
+MUNICIPALIDAD DE GOICOECHEA
+El Concejo Municipal del Cantón de Goicoechea en las Sesiones Ordinarias N° 162021, celebrada el día 19 de abril de 2021 , Artículo IV.VI por unanimidad y con carácter firme, se aprobó el Por tanto del Dictamen N° 23-2021 de la Comisión de Asuntos Jurídicos y 182021, celebrada el día 04 de mayo de 2021, Artículo IV.I, por unanimidad y con carácter firme, se aprobó el Por tanto del Adendum al Dictamen N° 23-2021 de la Comisión de Asuntos Jurídicos, donde se aprueba la siguiente Propuesta de Reglamento.
+La Municipalidad de Goicoechea, de conformidad con el artículo 430 del Código Municipal, hace de conocimiento a los interesados el presente proyecto, sometiéndolo a consulta pública por un plazo de diez días hábiles a partir de su publicación, las observaciones deberán presentarse por escrito ante la Secretaría Municipal, dentro del plazo referido.
+PROPUESTA DE REGLAMENTO PARA EL PROCEDIMIENTO
+DE DEMOLICIÓN, SANCIONES Y COBRO DE OBRAS
+CÍVILES EN EL CANTÓN DE GOICOECHEA
+CAPÍTULO I
+Facultades y obligaciones de la municipalidad
+Artículo 1º-Obligaciones de la Municipalidad. Sin perjuicio de las facultades que las leyes conceden en esta materia a otras instituciones y organismos públicos, corresponde a la Municipalidad de Goicoechea, a través del Director de Ingeniería y Urbanismo, hacer cumplir las leyes vigentes que regulan lo referente a obras civiles, así como las otras normas que tengan relación con esta materia para el ejercicio del control de la explotación de los inmuebles de manera planificada y ordenada, tendiente a lograr el desarrollo del Cantón. De igual forma, la Municipalidad, por medio de la Dirección de Ingeniería y Urbanismo, debe velar porque todas las edificaciones del Cantón reúnan condiciones necesarias de seguridad, salubridad, comodidad y belleza, tanto en las vías públicas como en las construcciones en general que se ejecuten en terrenos de su jurisdicción. A efecto de cumplir con dicha obligación, puede acudir a las otras instituciones del Estado y coordinar con ellas la ejecución e implementación de lo que le impone la ley.

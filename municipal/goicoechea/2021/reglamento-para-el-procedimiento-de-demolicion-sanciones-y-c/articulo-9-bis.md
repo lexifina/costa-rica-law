@@ -1,0 +1,2 @@
+Artículo 9 Bis- Tasado de oficio
+Para toda obra que se contempla en el artículo 6° anterior, en el tanto no invada zona pública ni constituya riesgo para colindantes, en el tanto el propietario firme acta liberando de responsabilidades a la Municipalidad, esta, a través del Director de Ingeniería, realizara tasado de oficio, más multas que correspondan, para el cobro del permiso de construcción, el cual debe cancelar el munícipe dentro de los tres días siguientes a que el mismo se formalice y registre en los sistemas municipales.
