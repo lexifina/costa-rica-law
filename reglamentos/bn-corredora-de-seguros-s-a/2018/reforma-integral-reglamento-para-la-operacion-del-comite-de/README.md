@@ -15,3 +15,4 @@ Reforma integral Reglamento para la Operación del Comité de Licitaciones de BN
 | --- | --- | --- |
 | 1 | 2018-08-17 | la propia norma |
 | 2 | 2020-01-27 | Reglamento 0 (2020-01-27) |
+| 3 | 2021-06-30 | Reglamento 0 (2021-06-30) |
