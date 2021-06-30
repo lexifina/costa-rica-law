@@ -21,3 +21,4 @@ Acuerdo de Corte Plena sesión N° 32-2020 del 8 de junio de 2020, en atención 
 | 7 | 2020-11-24 | Circular 265 (2020-11-24) |
 | 8 | 2021-01-11 | Circular 6 (2021-01-11) |
 | 9 | 2021-03-22 | Circular 60 (2021-03-22) |
+| 10 | 2021-06-30 | Circular 146 (2021-06-30) |
