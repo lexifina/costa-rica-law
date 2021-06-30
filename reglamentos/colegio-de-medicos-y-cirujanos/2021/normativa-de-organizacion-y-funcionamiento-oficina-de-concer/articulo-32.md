@@ -1,0 +1,1 @@
+Artículo 32.-Conflicto de Intereses. Los neutrales deben revelar a las partes y a la Fiscalía aquellos motivos que puedan causar un aparente conflicto de intereses, según las disposiciones de este Reglamento.

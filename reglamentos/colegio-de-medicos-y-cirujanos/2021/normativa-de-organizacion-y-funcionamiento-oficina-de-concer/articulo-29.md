@@ -1,0 +1,1 @@
+Artículo 29.-Deber de Diligencia. Es deber del Neutral dedicarse con diligencia y puntualidad a los asuntos que le encomiende La Oficina de Concertación, y poner todos sus esfuerzos y conocimientos con estricto apego a las normas jurídicas, morales y éticas.

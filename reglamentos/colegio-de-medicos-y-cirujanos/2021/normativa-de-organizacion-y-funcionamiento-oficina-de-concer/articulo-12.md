@@ -1,0 +1,1 @@
+Artículo 12.-Con sustento en la Ley 7727 todos aquellos procesos o disputas a las que las partes de común acuerdo llegaren a someter al conocimiento de la Oficina de Concertación y que terminen en acuerdos tendrán valor de cosa juzgada material para los efectos del Colegio de Médicos y Cirujanos.

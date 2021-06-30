@@ -1,0 +1,1 @@
+Artículo 40.-De la Inhabilitación de Neutrales. En caso de que los neutrales de La Oficina de Concertación incumplan con las disposiciones de este Reglamento, falten a la moral o a las reglas de actuación aquí contenidas, la Fiscalía podrá proceder con la inhabilitación del neutral, siempre y cuando se le garantice su derecho de defensa y debido proceso.

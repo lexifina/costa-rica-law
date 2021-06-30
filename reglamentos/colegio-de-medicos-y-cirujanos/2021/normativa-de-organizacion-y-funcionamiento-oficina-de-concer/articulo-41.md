@@ -1,0 +1,1 @@
+Artículo 41.-Sobre las Sanciones. En todo caso la Fiscalía, se reserva el derecho de investigar cualquier violación a la normativa vigente, y aplicar las sanciones correspondientes. Esto incluye, la separación de los neutrales.

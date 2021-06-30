@@ -1,0 +1,1 @@
+Artículo 36.-Relación con las Partes y sus Asesores. Los neutrales no podrán aceptar favores u hospitalidades, ni mantener relación directa o indirecta con ninguna de las partes y sus asesores, salvo el tipo de relación, estrictamente necesaria y propia de sus funciones y responsabilidades dentro del desarrollo del proceso.

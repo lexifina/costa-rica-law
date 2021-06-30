@@ -1,0 +1,1 @@
+Artículo 8º-De los Colaboradores. Las personas y entidades que trabajen colaboren o presten servicios laborales, legales, académicos o de otra índole, sean estos empleados, neutrales, expositores, profesores u otros, lo harán bajo el entendido de que representan al Colegio de Médicos y Cirujanos de Costa Rica.

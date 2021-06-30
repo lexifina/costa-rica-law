@@ -1,0 +1,1 @@
+Artículo 5º-De las Labores de los Neutrales. Durante el plazo de su nombramiento, los neutrales no podrían devengar honorarios ni estipendios adicionales a su salario por la prestación de servicios laborales, legales, o de otra índole que presten a la Oficina de Concertación o al Colegio relacionados con los mecanismos RAC.

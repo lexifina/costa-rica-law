@@ -1,0 +1,1 @@
+Artículo 26.-Responsabilidades Hacia Otros Neutrales. Los neutrales mantendrán la mayor cortesía con los otros neutrales de La Oficina de Concertación y les está prohibido manifestar públicamente y frente a las partes del proceso su crítica hacia ellos u otra expresión que resulte vejatoria de la cual pueda verse comprometida su imparcialidad.

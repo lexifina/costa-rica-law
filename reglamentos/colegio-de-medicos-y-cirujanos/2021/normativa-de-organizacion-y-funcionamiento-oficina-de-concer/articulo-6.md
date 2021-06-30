@@ -1,0 +1,1 @@
+Artículo 6º-De las Sesiones. Los Neutrales se reunirán en forma ordinaria una vez al mes o en forma extraordinaria cuando lo convoque el Presidente del Consejo y/o el Fiscal/a. En dichas sesiones se conocerá de aquellos temas que de conformidad con esta Normativa forman parte de sus funciones, así como de aquellos que se requieran para su debido funcionamiento.

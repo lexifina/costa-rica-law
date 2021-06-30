@@ -1,0 +1,1 @@
+Artículo 38.-Cómputo de Plazos. Es obligación de los neutrales llevar con exactitud el cómputo de los plazos aplicables al procedimiento y serán responsables por todos los efectos causados por el incumplimiento de esa obligación.

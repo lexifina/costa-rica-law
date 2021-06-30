@@ -1,0 +1,1 @@
+Artículo 24.-Aprobación de la Renovación. Queda a entera discreción de la Fiscalía la aprobación o renovación en el registro de neutrales. La resolución de denegatoria al registro únicamente contará con recurso de revocatoria.
