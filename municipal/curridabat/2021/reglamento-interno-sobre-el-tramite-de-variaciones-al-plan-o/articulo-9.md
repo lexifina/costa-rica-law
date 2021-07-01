@@ -1,0 +1,1 @@
+Artículo 9°-Incumplimiento. El incumplimiento de las disposiciones de este Reglamento y de las normas legales y directrices aplicables en planificación y presupuesto, será considerada como falta grave y dará mérito a la aplicación de las sanciones previstas en la normativa vigente en materia disciplinaria.
