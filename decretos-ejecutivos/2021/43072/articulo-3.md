@@ -1,0 +1,2 @@
+ARTÍCULO 3°.- Aplicación de las normas correspondientes.
+Por el período de suspensión establecido en el artículo anterior de este Decreto Ejecutivo, los cantones y distritos en alerta naranja, así como la zona fronteriza se regirán por las medidas de restricción vehicular dispuestas en los Decretos Ejecutivos número 42253-MOPT-S del 24 de marzo de 2020 y 42295-MOPT-S del 11 de abril de 2020 o bien, la regulación específica emitada por el Poder Ejecutivo para dicha medida de restricción vehicular sanitaria.
