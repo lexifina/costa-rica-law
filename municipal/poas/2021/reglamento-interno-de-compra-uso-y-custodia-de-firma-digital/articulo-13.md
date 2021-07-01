@@ -1,0 +1,1 @@
+Artículo 13.-Solicitudes de soporte de Firma Digital: el TIC o su similar, será el encargado de atender las solicitudes de soporte técnico de Firma Digital en la Municipalidad de Poás. En caso de requerir soporte técnico de segundo nivel o superior, el caso de requerir soporte técnico de entes técnicos superiores, esta hará las gestiones que correspondan.

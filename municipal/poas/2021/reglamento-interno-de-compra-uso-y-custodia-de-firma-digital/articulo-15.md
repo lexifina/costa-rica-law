@@ -1,0 +1,1 @@
+Artículo 15.-Verificación de la validez de la Firma Digital: el TIC o su similar será encargado de brindar soporte y asistencia para asuntos de verificación de la validez de una determinada Firma Digital, capacitación de los funcionarios y la implementación de nuevos servicios con mecanismos de Firma Digital.

@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación: los funcionarios y autoridades de elección popular de la Municipalidad de Poás que tienen asignada una firma digital, quedan expresamente facultados para utilizarla en sus procesos y funciones diarias, siempre y cuando no exista ningún impedimento legal que expresamente así lo establezca.

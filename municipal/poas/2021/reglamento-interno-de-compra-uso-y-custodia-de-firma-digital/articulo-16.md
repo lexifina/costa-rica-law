@@ -1,0 +1,1 @@
+Artículo 16.-Citas de emisión y renovación de Firma Digital: cada funcionario o autoridad de la Municipalidad de Poás, será el encargado de gestionar las citas para la solicitud de la Firma Digital, en los plazos estipulados anteriormente y de cualquier otro trámite que requiere realizar ante la entidad emisora.
