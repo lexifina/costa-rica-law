@@ -1,0 +1,2 @@
+Artículo 2º-Funcionamiento del Centro Nacional de Educación Helen Keller. El funcionamiento del CNEHK se regirá por la normativa del MEP aplicable y los programas y disposiciones especiales aprobadas por el Consejo Superior de Educación (CSE).
+En materia de asesoramiento y orientaciones técnicas el CNEHK se regirá por las disposiciones emitidas por el Departamento de Apoyos Educativos para el Estudiantado con Discapacidad o en su defecto el departamento especializado en Educación Especial del MEP.

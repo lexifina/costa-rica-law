@@ -1,0 +1,1 @@
+Artículo 3º-Población estudiantil del Centro Nacional de Educación Helen Keller. Los servicios educativos del CNEHK se dirigirán a personas jóvenes y adultas que presenten discapacidad visual o sordoceguera, de acuerdo con los parámetros médicos legalmente establecidos a nivel nacional e internacional.

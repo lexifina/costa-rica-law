@@ -1,0 +1,1 @@
+Artículo 6º-Junta Administrativa del Centro Nacional de Educación Helen Keller. Para su correcto funcionamiento el CNEHK contará con una Junta Administrativa, la cual funcionará según las disposiciones contenidas en el Reglamento General de Juntas de Educación y Juntas Administrativas del MEP.

@@ -1,0 +1,1 @@
+Artículo 11.-Apoyos externos. El CNEHK podrá contar con el concurso y apoyo de los organismos públicos y privados cuya actividad se vincule al proceso educativo de personas con discapacidad visual y sordoceguera.
