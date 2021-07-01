@@ -1,0 +1,1 @@
+Artículo 29. El Consejo Directivo deberá informar a los órganos electorales institucionales, cuando así se requiera, que inicie con los trámites y procedimientos para la elección y designación de los puestos vacantes.

@@ -1,0 +1,1 @@
+Artículo 2. El CUC gozará de independencia en el desempeño de sus funciones para darse su organización y gobierno propios. Será de su incumbencia exclusiva, por consiguiente, nombrar personal docente y administrativo, otorgar grados académicos técnicos y de pregrados, según su competencia y naturaleza jurídica.

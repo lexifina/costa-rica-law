@@ -1,0 +1,1 @@
+Artículo 39. El Consejo de Decanatura será presidido por el decano y se reunirá, previa convocatoria de este, mínimo dos veces al mes. El decano podrá convocar, cuando lo estime conveniente, a los funcionarios de otros departamentos a participar del mismo, para temas específicos que deban ser conocidos por este Consejo.

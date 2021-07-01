@@ -1,0 +1,1 @@
+Transitorio 5. Se constituirá una comisión ad hoc conformada por dos representantes del Consejo Directivo y dos representantes del Consejo de Decanatura, que deberán presentar dentro de la primera sesión de la Asamblea Institucional Representativa, una propuesta de reglamento.

@@ -1,0 +1,1 @@
+Artículo 94. Las recomendaciones finales del Congreso Institucional se comunicarán al Consejo Directivo y este evaluara dentro de los seis meses siguientes, las que considere aplicables conforme a sus atribuciones.

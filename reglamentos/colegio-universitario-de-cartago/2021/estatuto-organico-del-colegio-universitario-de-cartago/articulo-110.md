@@ -1,0 +1,1 @@
+Artículo 110. Los títulos que el CUC otorgue a sus graduados se regirán por las normas del Consejo Superior de Educación y las nomenclaturas establecidas por el Consejo Nacional de Rectores, según corresponda; particularmente, en lo relativo a la carga académica, las unidades de valor académico o créditos, los grados y cualquier otro aspecto.

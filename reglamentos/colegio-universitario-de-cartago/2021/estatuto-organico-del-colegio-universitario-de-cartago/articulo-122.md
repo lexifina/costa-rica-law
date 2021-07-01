@@ -1,0 +1,2 @@
+Artículo 122. La iniciativa en materia de reformas al Estatuto Orgánico corresponde al Consejo Directivo y a la Asamblea Institucional Representativa. Los anteproyectos de reforma provenientes de otras fuentes solo podrán ser acogidos, para su trámite, por uno de estos dos órganos colegiados.
+Las reformas parciales o totales serán aprobadas por la Asamblea Institucional Representativa, de acuerdo con la normativa establecida en reglamento respectivo. Aprobada la reforma, deberá promulgarse en los medios oficiales de publicación de la institución.

@@ -1,0 +1,1 @@
+Artículo 5. El CUC tiene su domicilio legal y su sede principal en el cantón central de Cartago. Asimismo, podrá crear sedes regionales, instalaciones y actividades en otras localidades de la provincia de Cartago para el desarrollo de sus fines y objetivos.

@@ -1,0 +1,1 @@
+Artículo 36. Durante las ausencias temporales del decano, asumirá el cargo quien ejerza la dirección de las áreas funcionales en el orden establecido en el artículo 41 de este estatuto o de acuerdo con la necesidad institucional. En su defecto, el Consejo Directivo designará a otro funcionario de la institución, quien deberá cumplir los mismos requisitos que se exigen al decano.

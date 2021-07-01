@@ -1,0 +1,1 @@
+Artículo 119. Contra los actos y resoluciones, los órganos colegiados y autoridades institucionales que ejerzan funciones de dirección o administración, se podrán establecer los recursos ordinarios de revocatoria, de apelación y extraordinario de revisión.

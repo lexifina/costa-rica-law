@@ -1,0 +1,1 @@
+Artículo 104. La iniciativa para la elaboración o modificación de un plan de estudios debe provenir de la Escuela respectiva, la Dirección Académica, la Dirección de Planificación y Desarrollo o las autoridades institucionales debidamente establecidas en la normativa correspondiente.

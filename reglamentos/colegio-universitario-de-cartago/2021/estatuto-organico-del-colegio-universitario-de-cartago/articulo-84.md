@@ -1,0 +1,1 @@
+Artículo 84. Todas las elecciones institucionales serán por votación secreta y se tendrá por elegido quien obtenga la mayoría de los votos válidamente emitidos. Si se presentare un empate, se definirá de conformidad con lo que establezca el reglamento respectivo.

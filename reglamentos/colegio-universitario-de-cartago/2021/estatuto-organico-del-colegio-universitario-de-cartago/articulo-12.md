@@ -1,0 +1,3 @@
+Artículo 12. Corresponden a la Asamblea Institucional Plebiscitaria las siguientes funciones:
+a) Elegir a los dos miembros del Consejo Directivo, por el sector administrativo y el sector docente, ambos representantes de la comunidad parauniversitaria.
+b) Revocar el nombramiento de los miembros del Consejo Directivo que le competen, por solicitud de la Asamblea Institucional Representativa o del Consejo Directivo, de conformidad con lo establecido en la normativa interna. La decisión para ser válida requerirá la aprobación de dos tercios del total de la Asamblea Institucional Plebiscitaria convocada para el sector que corresponda.

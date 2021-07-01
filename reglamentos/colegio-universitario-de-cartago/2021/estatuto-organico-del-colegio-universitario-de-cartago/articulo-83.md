@@ -1,0 +1,1 @@
+Artículo 83. Las votaciones para elegir a las autoridades de las Escuelas serán supervisadas por delegados del Tribunal Electoral Institucional, quienes realizarán el escrutinio y declararán el resultado de la elección.

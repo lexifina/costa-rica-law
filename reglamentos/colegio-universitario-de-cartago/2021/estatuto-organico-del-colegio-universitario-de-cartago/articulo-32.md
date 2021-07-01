@@ -1,0 +1,1 @@
+Artículo 32. El decano institucional se elegirá por concurso interno, realizado de acuerdo con el reglamento de concursos y nombramientos y corresponderá al Consejo Directivo su nombramiento por un plazo de cuatro años, además, podrá ser reelecto en el cargo. De declararse desierto este concurso, se realizará un concurso público externo.

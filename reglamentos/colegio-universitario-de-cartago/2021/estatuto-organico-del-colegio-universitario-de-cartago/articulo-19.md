@@ -1,0 +1,2 @@
+Artículo 19. El quórum requerido para sesionar de la Asamblea Institucional Representativa será del 51 % del total de sus miembros y sus acuerdos se tomarán por votación de la mitad más uno de los asistentes debidamente acreditados, salvo norma en contrario.
+Los docentes y administrativos que deban ausentarse de una sesión de la Asamblea, por razones de licencia laboral, beca o incapacidad médica formalmente expedida, que impidan su presencia, deberán notificarlo ante su superior inmediato que hará de conocimiento de esta al Directorio de la Asamblea.

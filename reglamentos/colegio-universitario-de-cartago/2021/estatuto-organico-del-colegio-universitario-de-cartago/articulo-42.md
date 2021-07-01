@@ -1,0 +1,1 @@
+Artículo 42. Para ser nombrado director, se requiere ser ciudadano costarricense, haber cumplido 30 años de edad. Los directores se nombrarán de acuerdo con el procedimiento y reglamento de concursos. De declararse desierto el concurso interno para nombrar el cargo, se realizará un nuevo concurso público.

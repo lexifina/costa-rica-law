@@ -1,0 +1,1 @@
+Artículo 51. Los Consejos de las direcciones se reunirán de forma ordinaria mínimo dos veces al mes. Pudiendo reunirse extraordinariamente las veces que se consideren necesarias. Quienes participen en dichos consejos no devengarán remuneración alguna y su asistencia será obligatoria para sus integrantes.

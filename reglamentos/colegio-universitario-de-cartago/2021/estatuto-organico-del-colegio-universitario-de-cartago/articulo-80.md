@@ -1,0 +1,1 @@
+Artículo 80. El Tribunal Electoral Institucional se reunirá mínimo una vez cada seis meses y extraordinariamente cuando sea convocado por el presidente o a instancia de cuatro de sus integrantes. El quórum para las sesiones se hará con cuatro de sus miembros.

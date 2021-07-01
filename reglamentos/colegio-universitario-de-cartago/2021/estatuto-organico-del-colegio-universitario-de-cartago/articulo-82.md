@@ -1,0 +1,1 @@
+Artículo 82. El Tribunal Electoral Institucional elaborará el Reglamento de Elecciones que deberá ser aprobado por el Consejo Directivo; además, supervisará y mantendrá bajo su competencia, la integración de los padrones electorales del CUC y decidirá en los conflictos que se susciten en los procesos electorales, salvo en los sufragios estudiantiles.
