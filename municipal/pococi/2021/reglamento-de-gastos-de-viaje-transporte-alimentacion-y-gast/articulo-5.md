@@ -1,0 +1,1 @@
+Artículo 5º-Asignaciones máximas. Las sumas establecidas para gastos a que se refiere este Reglamento son asignaciones máximas; en consecuencia, la Municipalidad de Pococí puede aplicar tarifas menores en casos regulados y propuestos justificadamente por la Administración.

@@ -1,0 +1,3 @@
+Artículo 3º-Conceptos.
+Viático por gira: Debe entenderse aquella suma destinada a la atención de gastos de hospedaje, alimentación y otros gastos menores, que la Municipalidad de Pococí reconoce a los funcionarios, Regidores y Síndicos, cuando estos deban desplazarse en forma transitoria de su centro de trabajo en cumplimiento a las obligaciones de su cargo.
+Viático por capacitación (taller, seminario, charla, curso): Debe entenderse aquella suma destinada a la atención de gastos de hospedaje, alimentación y otros gastos menores, que la Municipalidad de Pococí reconoce a los funcionarios, Regidores y Síndicos, cuando estos deban desplazarse en forma transitoria de su centro de trabajo en asistencia algún tipo de capacitación.

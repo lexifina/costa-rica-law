@@ -1,0 +1,1 @@
+Artículo 31.-Gastos de representación en el exterior. Los gastos de representación que se realicen en viajes al exterior, se regirán por lo dispuesto en el "Reglamento de Gastos de Viajes y de Transporte", aprobado por la Contraloría General de la República, para los funcionarios públicos a lo que resulte aplicable.

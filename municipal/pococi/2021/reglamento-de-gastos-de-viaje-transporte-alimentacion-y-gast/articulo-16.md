@@ -1,0 +1,6 @@
+Artículo 16.-Justificante de gastos. Para el reconocimiento de los gastos de hospedaje y transporte, la Administración requerirá del funcionario, regidor o síndico la presentación de factura física o copia de factura electrónica, la misma deberá estar a nombre de la Municipalidad de Pococí y cuyo monto deberá coincidir con las tarifas límites establecidas en el presente reglamento, de lo contrario no procede el pago de la misma.
+Ambos tipos de factura (física o electrónica) deben cumplir con las siguientes características:
+a) En el caso de presentar factura física, la misma debe ser original y no puede contener borrones ni tachaduras que puedan presumir su alteración.
+b) Deben estar timbradas o con la indicación de la dispensa de timbraje de acuerdo con el Reglamento del Impuesto sobre la Renta y el Reglamento de la Ley de Impuesto General sobre las Ventas, además de la exoneración del Impuesto General sobre las Ventas.
+c) Además de mostrar información básica tales como la fecha del servicio o bien, membrete del local comercial, detalle o descripción del servicio brindado, monto pagado.
+d) En el caso de presentar factura electrónica, la misma deberá ser enviada al correo: tesoreriamunipococi@gmail.com, con las mismas especificaciones anteriores. Adjuntar a la liquidación de viáticos una copia de la misma.

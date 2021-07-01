@@ -1,0 +1,3 @@
+Artículo 36.-Derogaciones. El presente reglamento deroga en su totalidad cualquier Reglamento Interno para el Pago de Viáticos de Alimentación y Transporte a Funcionarios, Regidores o Síndicos de la Municipalidad de Pococí, así como cualquier otro reglamento para el pago de gastos de representación de esta corporación municipal, publicado con anterioridad.
+Vigencia.-El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Por unanimidad, se acuerda: Se aprueba el Reglamento de Gastos de Viaje, Transporte, Alimentación y Gastos de Representación de la Municipalidad de Pococí, publíquese en el Diario Oficial La Gaceta. Publicación definitiva, única vez.

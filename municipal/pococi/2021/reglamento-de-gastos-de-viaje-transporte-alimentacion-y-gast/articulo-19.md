@@ -1,0 +1,1 @@
+Artículo 19.-Liquidación de gasto. La liquidación de gastos de alimentación, hospedaje y transporte, por concepto de ejecución de funciones propias del cargo de regidor o síndico, fuera del cantón de Pococí, deberá hacerse con las mismas formalidades requeridas para los funcionarios municipales establecidas en el presente reglamento, aportando los comprobantes respectivos.
