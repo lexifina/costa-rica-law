@@ -15,3 +15,4 @@ Procedimiento para la entrega de premios especiales, con motivo del bicentenario
 | --- | --- | --- |
 | 1 | 2021-05-10 | la propia norma |
 | 2 | 2021-07-02 | Acuerdo 0 (2021-07-02) |
+| 3 | 2021-07-02 | Reglamento 0 (2021-06-03) |
