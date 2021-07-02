@@ -1,0 +1,7 @@
+Artículo 2º-
+a) Definiciones:
+Convenio de Cooperación: Alianzas estratégicas que realice el SINAES en el marco del cumplimiento de sus objetivos estratégicos, que permite obligaciones recíprocas en temas atinentes al fin público de la institución.
+Contrato de Prestación de servicios remunerados: Contratos de prestación de servicios que se realicen con instituciones nacionales públicas y privadas y organismos internacionales que permiten al SINAES el cumplimiento de sus objetivos institucionales, de acuerdo con su naturaleza se deberán tramitar por la vía legal correspondiente.
+Cooperación técnica internacional: la adaptación y adopción de conocimientos, capacidades, habilidades, experiencias, recursos y nuevas o mejores técnicas y tecnologías que el país no posee o no puede movilizar; los cuales son aportados por las agencias y organismos de cooperación en forma no reembolsable para emprender actividades de desarrollo.
+Convenio Marco: Es el instrumento que describe, de manera general, el objetivo de la cooperación entre SINAES y la contraparte, las actividades de cooperación de interés y el requisito de gestión de convenios específicos que describan los alcances de dichas actividades.
+Cartas de Entendimiento. Es el instrumento que se deriva del Convenio Marco y que describe actividades concretas del proyecto a ejecutar, las obligaciones y los derechos de las contrapartes, así como la vigencia del acuerdo.
