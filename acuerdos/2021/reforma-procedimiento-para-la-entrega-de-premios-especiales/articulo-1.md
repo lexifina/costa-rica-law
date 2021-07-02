@@ -1,0 +1,5 @@
+JUNTA DE PROTECCIÓN SOCIAL
+Comunica que se realizó una modificación al "Procedimiento promoción bicentenario de la independencia de Costa Rica" publicado en la gaceta Nº 88 del 10 de mayo del 2021, en el artículo 2° "Definiciones" de este procedimiento se elimina el término "tómbola manual" y en el artículo 5° "Mecánicas para los sorteos" en donde se indica "SEGUNDO SORTEO" el párrafo que indica:
+"Para cada una de las provincias y para el canal de distribución jpsenlinea.com se irán extrayendo de la tómbola manual o electrónica los premios a otorgar, seguidamente mediante una tómbola electrónica se sorteará ese premio entre todas las activaciones participantes según la provincia a premiar".
+Se modifica por el párrafo que se detalla continuación:
+"Para cada una de las provincias y para el canal de distribución jpsenlinea.com se irán extrayendo de la tómbola electrónica de forma simultánea y de manera aleatoria a los ganadores y los premios a otorgar, respetándose en todo momento el orden establecido de premiación definido en este artículo."
