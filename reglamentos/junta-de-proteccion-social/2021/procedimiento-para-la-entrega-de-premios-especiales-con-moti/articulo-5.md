@@ -22,7 +22,6 @@ El sábado 05 de junio del 2021, seguido del primer sorteo, se realizará este s
 6. Provincia de Puntarenas
 7. Provincia de Limón
 8. Canal de Distribución jpsenlinea.com
-Para cada una de las provincias y para el canal de distribución jpsenlinea.com se irán extrayendo de la tómbola manual o electrónica los premios a otorgar, seguidamente mediante una tómbola electrónica se sorteará ese premio entre todas las activaciones participantes según la provincia a premiar.
 Si una persona salió favorecida en el primer sorteo, puede volver a salir favorecida en este segundo sorteo, pero no más de una vez.
 Los ganadores de este sorteo se darán a conocer en el sitio oficial de la Junta de Protección Social en la red social de Facebook "Junta de Protección Social (oficial)".
 El sorteo será debidamente fiscalizado por funcionarios de la Junta de Protección Social y un juez contravencional.
@@ -49,7 +48,8 @@ El sábado 03 de julio del 2021, seguido del primer sorteo, se realizará este s
 6. Provincia de Puntarenas
 7. Provincia de Limón
 8. Canal de Distribución jpsenlinea.com
-Para cada una de las provincias y para el canal de distribución jpsenlinea.com se irán extrayendo de la tómbola manual o electrónica los premios a otorgar, seguidamente mediante una tómbola electrónica se sorteará ese premio entre todas las activaciones participantes según la provincia a premiar.
+Para cada una de las provincias y para el canal de distribución jpsenlinea.com se irán extrayendo de la tómbola electrónica de forma simultánea y de manera aleatoria a los ganadores y los premios a otorgar, respetándose en todo momento el orden establecido de premiación definido en este artículo.
+(Así reformado el párrafo anterior y publicada en el Alcance Digital N° 131 a La Gaceta N° 127 del 2 de julio de 2021)
 Si una persona salió favorecida en el primer sorteo, puede volver a salir favorecida en este segundo sorteo, pero no más de una vez.
 Los ganadores de este sorteo se darán a conocer en el sitio oficial de la Junta de Protección Social en la red social de Facebook "Junta de Protección Social (oficial)".
 El sorteo será debidamente fiscalizado por funcionarios de la Junta de Protección Social y un juez contravencional.
@@ -130,7 +130,8 @@ El sábado 02 de octubre del 2021, seguido del primer sorteo, se realizará este
 6. Provincia de Puntarenas
 7. Provincia de Limón
 8. Canal de Distribución jpsenlinea.com
-Para cada una de las provincias y para el canal de distribución jpsenlinea.com se irán extrayendo de la tómbola manual o electrónica los premios a otorgar, seguidamente mediante una tómbola electrónica se sorteará ese premio entre todas las activaciones participantes según la provincia a premiar.
+Para cada una de las provincias y para el canal de distribución jpsenlinea.com se irán extrayendo de la tómbola electrónica de forma simultánea y de manera aleatoria a los ganadores y los premios a otorgar, respetándose en todo momento el orden establecido de premiación definido en este artículo.
+(Así reformado el párrafo anterior y publicada en el Alcance Digital N° 131 a La Gaceta N° 127 del 2 de julio de 2021)
 Si una persona salió favorecida en el primer sorteo, puede volver a salir favorecida en este segundo sorteo, pero no más de una vez.
 Los ganadores de este sorteo se darán a conocer en el sitio oficial de la Junta de Protección Social en la red social de Facebook "Junta de Protección Social (oficial)".
 El sorteo será debidamente fiscalizado por funcionarios de la Junta de Protección Social y un juez contravencional.
