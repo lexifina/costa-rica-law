@@ -18,3 +18,4 @@ Clasificador Presupuestario Institucional
 | 3 | 2011-04-26 | Decreto Ejecutivo 36585 (2011-04-26) |
 | 4 | 2012-05-11 | Ley 9036 |
 | 5 | 2014-05-23 | Decreto Ejecutivo 38544 (2014-05-23) |
+| 6 | 2021-07-02 | Decreto Ejecutivo 43108 (2021-07-02) |
