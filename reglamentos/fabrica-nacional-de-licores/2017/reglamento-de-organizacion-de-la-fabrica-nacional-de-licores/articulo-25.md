@@ -1,1 +1,0 @@
-Artículo 25.—El desarrollo de las actividades de producción de FANAL se realizará en plantas, una dedicada a la producción de alcohol, otra a la elaboración de licores y las que en el futuro se requieran para la operación del proceso.

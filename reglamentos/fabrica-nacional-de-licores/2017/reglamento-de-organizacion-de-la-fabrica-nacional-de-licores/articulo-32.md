@@ -1,1 +1,0 @@
-Artículo 32.—El jefe de Departamento será un profesional en química. Tendrá a su cargo las Secciones de Investigación, Control de Proceso, de Confección de Licores y Recepción de Materiales, además las secciones que requiera en un futuro para su normal desempeño, los encargados de esas secciones serán también profesionales en química.
