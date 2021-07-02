@@ -14,3 +14,4 @@ Calendario de sorteos y planes de premios de loterías julio 2021
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-07-02 | la propia norma |
+| 2 | 2021-07-02 | Acuerdo 442 (2021-06-28) |
