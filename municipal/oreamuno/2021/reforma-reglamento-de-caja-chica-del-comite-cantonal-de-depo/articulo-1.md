@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE OREAMUNO
+CONCEJO MUNICIPAL
+La Municipalidad de Oreamuno comunica que mediante el Acuerdo Municipal tomado bajo el Artículo 26°, Acuerdo N° 656-2021 de la Sesión Ordinaria Nº 90-2021, celebrada el 08 de junio del 2021, el Concejo Municipal de conformidad con el artículo cuarenta y tres del Código Municipal, acordó reformar el artículo 18 del Reglamento de Caja Chica del Comité Cantonal de Deportes y Recreación de Oreamuno, y en firme autorizar a la Administración Municipal a publicar por única vez en el Diario Oficial La Gaceta. Se aprueba reformar el artículo 18 del Reglamento de Caja Chica del Comité Cantonal de Deportes y Recreación de Oreamuno, el texto dirá:
+Artículo 18.-El fondo de caja chica del comité cantonal para atender gastos menores de bienes y servicios, viáticos será de doscientos cincuenta mil colones. (¢250.000,00).
