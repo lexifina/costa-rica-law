@@ -1,0 +1,2 @@
+Artículo 5.- Refórmese el artículo 8 del Decreto Ejecutivo número N° 42766-MGP-S-MAG del 18 de diciembre de 2020, para que en adelante se lea de la siguiente manera:
+"Artículo 8.- El presente Decreto Ejecutivo rige a partir de su publicación en el Diario Oficial La Gaceta y hasta el 7 de mayo del año 2022. La vigencia del presente procedimiento será revisada por parte del Poder Ejecutivo y estará sujeta a la persistencia de las razones que justifican su emisión."

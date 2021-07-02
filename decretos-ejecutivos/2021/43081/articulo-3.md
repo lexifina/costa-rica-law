@@ -1,0 +1,2 @@
+Artículo 3.-Refórmese el artículo 5 del Decreto Ejecutivo número N° 42766-MGP-S-MAG del 18 de diciembre de 2020, para que en adelante se lea de la siguiente manera:
+"Artículo 5.- De cumplirse con los requisitos determinados en el protocolo dispuesto en el artículo 3 de este Decreto Ejecutivo, la Dirección General de Migración y Extranjería autorizará la permanencia legal para laborar por el plazo y para las actividades originalmente autorizadas por el Ministerio de Trabajo y Seguridad Social, según lo estipula el protocolo del presente procedimiento."
