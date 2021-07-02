@@ -1,0 +1,1 @@
+Artículo 17.-FANAL mantendrá su propio sistema contable para el control y registro de las operaciones, debiendo el Departamento Financiero presentar en forma mensual los estados financieros y los informes de flujo de caja en forma mensual al Administrador General y a la Gerencia General del CNP, con copia a la Auditoría Interna de FANAL.

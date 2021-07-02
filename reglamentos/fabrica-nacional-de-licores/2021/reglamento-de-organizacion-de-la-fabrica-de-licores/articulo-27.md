@@ -1,0 +1,1 @@
+Artículo 27.-Los responsables de las plantas industriales velarán por el cumplimiento de las normas de producción y los rendimientos y eficiencias que se establezcan conforme con el diseño de los equipos y la experiencia.

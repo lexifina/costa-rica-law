@@ -1,0 +1,1 @@
+Artículo 19.-Para el normal desarrollo de las actividades que le corresponden, el Departamento Financiero contará con las unidades que estime conveniente y necesarias, cuya creación aprobará la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 25.-Para cumplir adecuadamente con sus funciones, cada planta someterá anualmente al Administrador General sus requerimientos de materia prima, de personal, incluida la capacitación de éste y reposición de equipos. Con base en el presupuesto y programas aprobados el Administrador General gestionará lo que corresponda ante la Presidencia Ejecutiva o la Gerencia General.

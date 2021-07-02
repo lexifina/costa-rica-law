@@ -1,0 +1,1 @@
+Artículo 12.-Cada vez que lo estime necesario, el Administrador General solicitará al Presidente Ejecutivo o en su defecto al Gerente General la aprobación de cambios para mejora de los programas o de los indicadores de gestión en curso de ejecución.

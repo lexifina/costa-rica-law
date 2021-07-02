@@ -1,0 +1,1 @@
+Artículo 18.-El control y ejecución presupuestaria se regirá por la legislación vigente en esta materia y por las políticas y directrices que para FANAL dicte la Junta Directiva, la Presidencia Ejecutiva o la Gerencia General en el marco de sus competencias.

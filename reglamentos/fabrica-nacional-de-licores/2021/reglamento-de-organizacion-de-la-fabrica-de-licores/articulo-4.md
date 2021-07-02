@@ -1,0 +1,1 @@
+Artículo 4°-Lo no contemplado en este Reglamento se regulará, en lo conducente, por las normas escritas del ordenamiento jurídico administrativo, dentro de las que se aplicarán en forma supletoria las reglamentaciones internas del CNP; asimismo, serán de aplicación las normas no escritas del Derecho Administrativo que interpreten, integran o delimitan sus normas escritas.
