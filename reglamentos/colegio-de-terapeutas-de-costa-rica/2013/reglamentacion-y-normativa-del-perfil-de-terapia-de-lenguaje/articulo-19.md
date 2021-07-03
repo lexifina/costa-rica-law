@@ -1,2 +1,0 @@
-Artículo 19.—Enfoques ocupacionales terapéuticos (Terapia del lenguaje artística y de comunicaciones).
-En esta área la acción del terapeuta del lenguaje va dirigida a los trabajadores de medios de comunicación, cantantes, actores, así como a todo aquél que desee perfeccionar su voz y habla, por lo que su trabajo se efectúa en medios de comunicación, escuelas de locución y de canto, academias de teatro, corporaciones de radio y televisión, etc.
