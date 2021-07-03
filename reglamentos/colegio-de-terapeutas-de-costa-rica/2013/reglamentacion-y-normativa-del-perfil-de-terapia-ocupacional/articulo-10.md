@@ -1,5 +1,0 @@
-Artículo 10.—Ámbito Docente - Administrativo:
-El profesional en terapia ocupacional, puede ejercer también en el área docente y administrativa de una institución, un servicio de salud o un centro educativo.
-Será preferible que, para el ejercicio de la docencia universitaria, el terapeuta ocupacional cuente con la formación académica necesaria para impartir lecciones.
-En el ejercicio administrativo, podrá supervisar las labores de colegas en el área respectiva, así como velar porque el departamento de terapia ocupacional cuente con lo necesario para su buen funcionamiento. Deberá gestionar los trámites, solicitudes, procesos de contratación, asignación de clientes – estudiantes – horas laborales, etc. Según los requerimientos, exigencias y reglamentos internos de la institución, centro o universidad para la que trabaje.
-También deberá participar en procesos de formación académica, investigación y estar en constante actualización de la profesión, para llevar a los otros los datos más recientes con respecto a la terapia ocupacional.
