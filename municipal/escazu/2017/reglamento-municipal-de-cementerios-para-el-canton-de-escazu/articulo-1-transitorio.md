@@ -1,0 +1,2 @@
+Transitorio único: Mientras se encuentre vigente la declaratoria de emergencia emitida por el Poder Ejecutivo a raíz de la pandemia ocasionada por el virus SARS-COV-2 o conocido como COVID-19, la Municipalidad de Escazú a través de la Administración de Cementerios queda autorizada en aumentar la capacidad prevista en el numeral 53 el Reglamento para Cementerios el Cantón de Escazú a un 25%, medida transitoria que cesará una vez finalizada la emergencia.
+(Así adicionado en sesión N° 062 del 5 de julio de 2021)

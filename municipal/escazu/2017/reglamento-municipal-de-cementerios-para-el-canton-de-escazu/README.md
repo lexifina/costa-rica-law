@@ -14,3 +14,4 @@ Reglamento municipal de cementerios para el Cantón de Escazú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-20 | la propia norma |
+| 2 | 2021-07-05 | Reglamento municipal 62 (2021-07-05) |
