@@ -15,3 +15,4 @@ Exime de la fiscalización de la SUGEF a Cooperativas de Ahorro y Crédito y Aso
 | --- | --- | --- |
 | 1 | 2018-12-21 | la propia norma |
 | 2 | 2020-12-16 | Acuerdo 1633 (2020-12-16) |
+| 3 | 2021-07-05 | Acuerdo 0 (2021-07-05) |
