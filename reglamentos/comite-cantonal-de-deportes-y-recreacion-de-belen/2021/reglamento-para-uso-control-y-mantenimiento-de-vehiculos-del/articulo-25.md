@@ -1,0 +1,1 @@
+Artículo 25.-Cancelación de autorización para conducir: el Comité cancelará, en forma inmediata e indefinida, la autorización para conducir vehículos del comité a aquellos funcionarios o conductores que, por dolo o culpa, ocasionen un accidente de tránsito grave.

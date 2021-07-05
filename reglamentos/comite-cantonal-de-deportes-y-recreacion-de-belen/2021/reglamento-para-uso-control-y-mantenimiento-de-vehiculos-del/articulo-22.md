@@ -1,0 +1,1 @@
+Artículo 22.-Prohibición del uso de vehículos oficiales en actividades particulares: No se podrán utilizar vehículos propiedad del Comité para actividades que no sean propias de la institución y relacionadas a las funciones del Comité. Además, queda prohibida la utilización de estos en actividades político-electorales.

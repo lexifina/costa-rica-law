@@ -1,0 +1,1 @@
+Artículo 21.-Prohibición de arreglos extrajudiciales: ningún conductor del Comité está autorizado para efectuar por su cuenta y sin la autorización correspondiente arreglos extrajudiciales en caso de accidentes con vehículos del Comité.

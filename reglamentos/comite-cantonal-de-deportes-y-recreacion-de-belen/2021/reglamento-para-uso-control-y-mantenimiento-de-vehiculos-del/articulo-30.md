@@ -1,0 +1,1 @@
+Artículo 30.-Sanciones: Las infracciones al presente reglamento serán sancionadas disciplinariamente de acuerdo con el Reglamento de organización y funcionamiento del CCDRB, el Código de Trabajo, este reglamento y la normativa atinente.
