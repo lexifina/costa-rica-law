@@ -1,0 +1,1 @@
+Artículo 9º-Responsabilidad civil, administrativa y penal. Los miembros de la Comisión Liquidadora tendrán responsabilidad civil, administrativa y penal ante las municipalidades que aún eran parte de FEDEHEREDIA previo a su disolución, y ante terceros.

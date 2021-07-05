@@ -1,0 +1,1 @@
+Artículo 2º-Interpretación. Esta reglamentación será interpretada a la luz de los principios generales del Derecho Municipal y Administrativo y de manera subsidiaria, en los principios del derecho comercial y común, siempre y cuando ello no atente con la hacienda pública.

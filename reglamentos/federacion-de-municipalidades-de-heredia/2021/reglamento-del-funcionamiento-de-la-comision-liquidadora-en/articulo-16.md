@@ -1,0 +1,2 @@
+Artículo 16.-Sesión e informe final de actuaciones a satisfacción. Una vez terminados todos los asuntos de los que versaba el Plan Liquidador, la Comisión se reunirá por última vez, en donde por acuerdo firme dará por concluida a satisfacción sus labores. Para ello, se deberá generar un informe de todas las actuaciones llevadas a cabo.
+El acta de la sesión final más el informe de actuaciones, serán respectivamente notificadas a la Contraloría General de la República y a las municipalidades que eran partícipes de la federación antes de su disolución.

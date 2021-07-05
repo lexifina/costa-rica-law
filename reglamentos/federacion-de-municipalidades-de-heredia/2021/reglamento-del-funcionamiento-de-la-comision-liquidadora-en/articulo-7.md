@@ -1,0 +1,3 @@
+Artículo 7º-De la personalidad jurídica de la Federación y representación. La personalidad jurídica con su correspondiente personería jurídica de FEDEHEREDIA, continuarán existiendo a efectos del funcionamiento de la Comisión Liquidadora.
+La Comisión Liquidadora deberá en todos sus oficios internos y externos, utilizar el membrete y logos oficiales de FEDEHEREDIA.
+El Presidente de la Comisión Liquidadora, tendrá la representación judicial y extrajudicial, con facultades de apoderado generalísimo sin límite de suma de la FEDEHEREDIA, sin embargo, toda actuación que no sea de naturaleza de gestión administrativa, deberá estar autorizada y/o respaldada mediante acuerdo de Comisión.

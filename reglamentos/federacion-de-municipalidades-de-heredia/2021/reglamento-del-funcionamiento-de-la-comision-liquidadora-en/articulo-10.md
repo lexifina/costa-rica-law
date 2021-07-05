@@ -1,0 +1,3 @@
+Artículo 10.-Acuerdos de la Comisión Liquidadora. En todas las actuaciones que ejerza la comisión, deberán aparecer las rúbricas de la totalidad de sus miembros. Si alguno de los miembros no estuviese de acuerdo con la actuación, igualmente deberá consignar su firma bajo protesto y podrá consignar las razones por las cuales no está de acuerdo.
+Será inválida la actuación de la Comisión en la cual no participen la totalidad de sus miembros.
+Para efectos de ejercer las acciones pertinentes en sede judicial o extrajudicial, los miembros por acuerdo en firme, delegarán en el miembro que es letrado en leyes, tal mandato, salvo que decidan realizar una cesión de derechos litigiosos en favor de un abogado externo con experiencia en la materia jurídica a tratar.

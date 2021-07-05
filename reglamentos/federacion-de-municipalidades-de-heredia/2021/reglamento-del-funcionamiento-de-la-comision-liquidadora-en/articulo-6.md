@@ -1,0 +1,1 @@
+Artículo 6º-De la labor Ad Honorem de los Miembros de la Comisión Liquidadora. Quienes sean escogidos como integrantes de la Comisión Liquidadora, no tendrán derecho a percibir remuneración económica alguna.

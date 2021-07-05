@@ -1,0 +1,2 @@
+Artículo 15.-Sesiones subsecuentes. Finalizada la primera sesión, deberá la Comisión Liquidadora sesionar las veces que sean necesarias con el fin de cumplir con los plazos y obligaciones contempladas en el artículo 40 de los Estatutos de FEDEHEREDIA, ello incluye darle seguimiento a lo dictaminado por la Contraloría General de la República en cuanto al Plan Liquidador.
+A su vez, seguirán sesionando hasta que el Plan Liquidador se haya ejecutado.
