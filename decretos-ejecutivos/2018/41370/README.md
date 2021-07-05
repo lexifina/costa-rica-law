@@ -14,3 +14,4 @@ Reglamento de empresas y actividades turísticas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-07 | la propia norma |
+| 2 | 2021-07-05 | Decreto Ejecutivo 43097 (2021-07-05) |
