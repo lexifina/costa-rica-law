@@ -1,0 +1,1 @@
+Artículo 14.-La Contraloría de Servicios reservará la identidad de la persona denunciante cuando esta lo solicite, o bien, cuando se considere que la investigación pueda afectar la continuidad y atención de los servicios que se le brinda o se ponga en peligro su integridad física.

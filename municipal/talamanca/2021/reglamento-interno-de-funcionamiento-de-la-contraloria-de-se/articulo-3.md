@@ -1,0 +1,1 @@
+Artículo 3º-Todos los funcionarios de la Municipalidad de Talamanca deberán prestar colaboración a la Contraloría de Servicios cuando en el ejercicio de sus funciones requiera información que le permitirá atender las gestiones de los administrados, caso contrario, podrá sancionarse con fundamento en las disposiciones del Código Municipal.
