@@ -1,0 +1,3 @@
+Artículo 33 Presupuesto. La Auditoría Interna presentará a Junta Directiva, para su aprobación, la formulación de su presupuesto, conforme a los lineamientos aplicables.
+El responsable del manejo presupuestario del Banco deberá llevar un registro separado del monto asignado y aprobado para la Auditoría Interna y detallado por objeto del gasto, para el adecuado control de la ejecución y modificaciones del presupuesto.
+No podrán hacerse modificaciones ni ajustes presupuestarios que afecten los recursos asignados a la actividad de la Auditoría Interna sin contar con la aprobación del Auditor Interno.

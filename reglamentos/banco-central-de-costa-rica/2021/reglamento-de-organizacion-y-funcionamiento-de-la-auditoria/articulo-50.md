@@ -1,0 +1,2 @@
+Artículo 50 Evaluaciones externas de calidad. Deberán efectuarse al menos una vez cada cinco años, para lo cual podrá optar por la modalidad de una revisión externa de calidad o una autoevaluación de calidad con validación independiente, todo de conformidad con las directrices emitidas por el Órgano Contralor.
+La comunicación del resultado a la Junta Directiva podrá hacerse, al menos, por medio del informe periódico de labores.

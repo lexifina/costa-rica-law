@@ -1,0 +1,3 @@
+CAPÍTULO III
+Plan de trabajo y presupuesto de la Auditoría Interna
+Artículo 31 Plan de trabajo. El plan de trabajo anual de la Auditoría Interna y el requerimiento de recursos necesarios para su ejecución se dará a conocer a la Junta Directiva, por parte del Auditor Interno, quien debe valorar las observaciones y solicitudes que, sobre los contenidos de ese plan, plantee la Junta Directiva en su condición de responsable principal por el sistema de control interno institucional. El plan de trabajo anual y sus modificaciones se deben remitir a la CGR, en la forma y términos que al efecto disponga ese órgano contralor. La remisión de esa información no tiene como objetivo otorgar una aprobación o visto bueno a lo planificado por la Auditoría Interna.

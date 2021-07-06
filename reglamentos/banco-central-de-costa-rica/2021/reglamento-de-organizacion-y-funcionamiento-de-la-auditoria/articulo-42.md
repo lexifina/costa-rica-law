@@ -1,0 +1,1 @@
+Artículo 42 Seguimiento de resultados de servicios de advertencia. La Auditoría Interna verificará lo actuado por la Administración respecto de las advertencias que le haya formulado, sin perjuicio de que, como resultado del seguimiento, emita informes de control interno, de responsabilidades (Relaciones de Hechos) y otros pertinentes.

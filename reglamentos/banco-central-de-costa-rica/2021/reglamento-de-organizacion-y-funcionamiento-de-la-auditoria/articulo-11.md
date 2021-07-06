@@ -1,0 +1,2 @@
+Artículo 11 Deber de informar. El Auditor Interno debe informar por escrito a la Junta Directiva, cuando existan factores que puedan comprometer su independencia y objetividad, o cuando exista algún conflicto de intereses.
+Asimismo, es obligación de los funcionarios de la Auditoría Interna informar por escrito al Auditor Interno los detalles del impedimento, cuando su independencia de criterio y objetividad se vean comprometidas de hecho o en apariencia.

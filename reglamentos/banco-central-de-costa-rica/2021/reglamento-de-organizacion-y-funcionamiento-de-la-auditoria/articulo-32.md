@@ -1,0 +1,1 @@
+Artículo 32 Comunicación permanente de resultados. El Auditor Interno pondrá en medios electrónicos a disposición de usuarios calificados como la Junta Directiva, el Comité de Auditoría y la Gerencia, información sobre el avance del plan anual de auditoría, resultados de estudios y atención de recomendaciones, entre otros aspectos.

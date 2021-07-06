@@ -1,0 +1,17 @@
+Artículo 22 Obligaciones del Auditor Interno. Sin perjuicio de lo establecido en otras disposiciones, son obligaciones del Auditor Interno:
+a) Definir, establecer, divulgar y mantener actualizadas las políticas, lineamientos, directrices, procedimientos y prácticas requeridas para cumplir con sus competencias, considerando entre otros, los servicios de verificación y todo lo relativo al aseguramiento de la confidencialidad de la información sensible.
+b) Mantener actualizado el Reglamento de Organización y Funcionamiento de la Auditoría Interna del BCCR.
+c) Preparar y remitir a la Junta Directiva, un informe semestral de labores, en el transcurso de los 30 días siguientes a la finalización de cada período, así como aquellos informes especiales que considere necesarios.
+d) Formular el plan estratégico de la Auditoría Interna, elevarlo a conocimiento de la Junta Directiva y darle seguimiento. El plan deberá ser consistente con los objetivos del plan estratégico institucional.
+e) Presentar a conocimiento de la Junta Directiva del BCCR, antes del 31 de diciembre de cada año, el plan anual de trabajo, elaborado conforme con los lineamientos dictados por la CGR, y comunicarle al menos semestralmente las modificaciones.
+Solicitar oportuna y debidamente justificados los recursos necesarios para su ejecución.
+f) Establecer la organización que tendrá la dependencia a su cargo.
+g) Ejercer las funciones propias de su cargo, vigilando y verificando la organización y el funcionamiento del BCCR, así como las otras funciones específicas encomendadas en leyes, reglamentos y acuerdos de Junta Directiva.
+h) Establecer un programa de aseguramiento continuo de la calidad y mejora de los procesos principales de la Auditoría Interna.
+i) Establecer, mantener y velar por que se aplique un proceso de seguimiento de recomendaciones y demás resultados derivados de los servicios de la auditoría interna para asegurarse de que las acciones establecidas por las instancias competentes se hayan implementado eficazmente y dentro de los plazos definidos por la administración. Ese proceso también debe contemplar los resultados conocidos por la Auditoría Interna, de estudios de auditores externos, la CGR y demás instituciones de control y fiscalización que correspondan.
+j) Rendir los informes que solicite la Junta Directiva del BCCR, la CGR, y cualquier otra autoridad competente para ello, de conformidad con la legislación vigente.
+k) Mantener un programa de capacitación para sustentar y perfeccionar las capacidades y competencias profesionales del personal de la Auditoría Interna.
+l) Presentar ante el Ministerio Público las denuncias de presuntos delitos en perjuicio del Banco, de conformidad con los Lineamientos generales para el análisis de presuntos hechos irregulares emitidas por la CGR (Resolución R-DC-102-2019, del 14 de octubre de 2019 y sus posteriores reformas).
+m) Supervisar y disponer las medidas necesarias para procurar que los auditores guarden la confidencialidad de la información sobre la que tengan acceso.
+n) Establecer las medidas necesarias para que los funcionarios de la Auditoría Interna cumplan en el ejercicio de sus competencias con la normativa jurídica y técnica pertinente, así como con las políticas, disposiciones, y procedimientos operativos de la Auditoría Interna y las del BCCR en lo que corresponda.
+o) Definir el Código de Ética de los funcionarios de la Auditoría Interna, aplicable en el desempeño de sus actividades personales y profesionales.

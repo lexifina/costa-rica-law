@@ -1,0 +1,1 @@
+Artículo 20 Descriptivo de puestos. El descriptivo de puestos del BCCR deberá establecer y mantener actualizadas las funciones para los cargos de Auditor y Subauditor internos, de conformidad con las disposiciones de la CGR al respecto.

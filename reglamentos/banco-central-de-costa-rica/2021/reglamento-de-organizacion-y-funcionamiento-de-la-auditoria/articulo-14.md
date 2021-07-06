@@ -1,0 +1,4 @@
+Sección II
+Ubicación y estructura de la Auditoría Interna
+Artículo 14 Ubicación y estructura. La Auditoría Interna, conforme a sus competencias, es el órgano asesor principal de la Junta Directiva en materia de control interno y dependerá orgánicamente de la Junta Directiva, con quien coordinará los asuntos de interés que corresponda. Se organizará para su funcionamiento conforme lo disponga el Auditor Interno, de conformidad con lo establecido en el artículo 23 de la LGCI y acorde con las disposiciones que emita la CGR y la demás normativa que regula al Banco, con el propósito de garantizar la administración eficaz, eficiente y económica de los recursos, en el logro de los objetivos y el cumplimiento de las obligaciones legales y técnicas.
+Esta estructura deberá ser aprobada por la Junta Directiva del Banco Central.
