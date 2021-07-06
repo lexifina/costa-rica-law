@@ -1,1 +1,1 @@
-Artículo 20.—El solicitante podrá poner a la venta los boletos para el evento solicitado, una vez que haya firmado el contrato y cancelado en la tesorería municipal el monto correspondiente al uso.
+Artículo 20.-Agenda mensual de eventos públicos de la Municipalidad. La Municipalidad podrá difundir la agenda mensual de eventos públicos de modalidad gratuita en la página web de la institución, sus redes sociales, correos electrónicos que lo soliciten, medios de prensa local y nacional.

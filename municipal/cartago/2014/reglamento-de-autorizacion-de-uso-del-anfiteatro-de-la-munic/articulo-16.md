@@ -1,4 +1,1 @@
-Artículo 16.—Serán igualmente causas de cancelación de eventos sin devolución del pago por uso:
-a. Incumplimiento de fecha u horario solicitado y aprobado vía formulario.
-b. Aporte de datos que no sean coincidentes con la realidad.
-c. Incumplimiento de disposiciones generales que atenten contra el inmueble, los artistas, espectadores o el personal de trabajo.
+Artículo 16.-Ensayos. El solicitante tendrá derecho a un ensayo en el Anfiteatro durante las horas hábiles del personal municipal del mismo, y siempre y cuando exista opción en la agenda mensual. Este ensayo no podrá exceder las tres horas desde el momento de ingreso hasta la salida de quienes participan en este ensayo.

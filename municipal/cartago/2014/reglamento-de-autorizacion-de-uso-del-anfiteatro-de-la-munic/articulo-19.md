@@ -1,3 +1,4 @@
-CAPÍTULO IV
-De los boletos de entrada
-Artículo 19.—La venta de los boletos será competencia del solicitante. En caso de haber cancelaciones de eventos, la devolución de los dineros a los espectadores que hayan adquirido su boleto, correrá por cuenta única y exclusiva del solicitante, y en ningún caso de la Municipalidad de Cartago.
+CAPÍTULO V
+De la divulgación, prensa y relaciones públicas
+Artículo 19.-Uso del logo municipal en la difusión de eventos. Al ser aprobada una solicitud de uso del Anfiteatro e incluirse dentro de la programación municipal, el solicitante se compromete a incluir la presencia de marca municipal en todo medio de divulgación que utilice para difundir la actividad. Además, los programas de mano que se entreguen ya sean físicos o digitales, agendas o cualquier tipo de divulgación correspondiente al evento, deberán incluir el logo oficial de la Municipalidad y del Anfiteatro. Igualmente, se deberán incluir los créditos relacionados con la Municipalidad.
+Para tales efectos, el solicitante debe coordinar con la Administración del Anfiteatro, la inclusión del logo oficial de la Municipalidad de Cartago y del Anfiteatro Municipal. Los preliminares, borradores y bocetos en los cuales se incluya la marca municipal, deberán ser puestos en conocimiento de la Administración del Anfiteatro de previo a su divulgación, para la aprobación técnica y visto bueno del Área de Cultura y Comunicación de la Municipalidad.

@@ -1,1 +1,3 @@
-Artículo 21.—El otorgamiento de uso del Anfiteatro permitirá también utilizar la boletería para la venta de los respectivos boletos el mismo día del evento.
+Artículo 21.-Fotografía y filmación de los eventos. La Municipalidad se reserva el derecho de fotografiar o filmar cada evento para efectos de registro y controles internos propios de la institución y en el caso de eventos gratuitos también podrá publicar las actividades realizadas.
+Si el solicitante desea realizar fotografía y filmación profesional, deberá indicarlo en el formulario de solicitud e igualmente deberá ajustarse a las disposiciones que para tal efecto defina la administración del Anfiteatro.
+La autorización al público para utilizar cualquier equipo de grabación no profesional en área de butacas durante el evento, queda sujeto a las solicitudes particulares de cada solicitante en el evento correspondiente. No se permitirá filmación profesional que no sea previamente informada por el solicitante.

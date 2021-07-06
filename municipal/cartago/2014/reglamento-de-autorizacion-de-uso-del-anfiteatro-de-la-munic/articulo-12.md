@@ -1,4 +1,5 @@
-CAPÍTULO IV
-De los eventos y ensayos
-Artículo 12.—Todos los eventos realizados en el Anfiteatro deberán apegarse al orden, moral y buenas costumbres. En los eventos en que se traten temas no aptos para menores de edad, el solicitante deberá incluir en la divulgación y en los boletos la restricción de ingreso al evento.
-El Anfiteatro es un espacio que estimula y divulga las diferentes expresiones artísticas y culturales, por lo que los oficiales de seguridad y la Administración se reservan el derecho de admisión con el fin de asegurar el cumplimento de los fines del sitio y en salvaguarda de los artistas, visitantes, funcionarios, técnicos y del inmueble en sí.
+Artículo 12.-Capacidad máxima del Anfiteatro. Sin excepción, no se permite exceder la capacidad de espectadores dentro de la sala, a saber:
+a. Espectadores sentados en butacas: 360.
+b. Espacios destinados para espectadores con capacidades especiales, según lo dispuesto por la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, Ley N° 7600 del 02 de mayo de 1996:
+6 (2 por cada balcón)
+c. Excepciones por aforo vigente permitido en situaciones extraordinarias.

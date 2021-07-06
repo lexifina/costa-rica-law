@@ -1,3 +1,1 @@
-Artículo 13.—Sin excepción, no se permite exceder la capacidad de espectadores dentro de la sala, a saber:
-a. Espectadores sentados en butacas: 360.
-b. Espacios destinados para espectadores con capacidades especiales, según lo dispuesto por la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, Ley N° 7600 del 02 de mayo de 1996: 6 (2 por cada balcón)
+Artículo 13.-Horario de los eventos. Todas las actividades autorizadas deberán desarrollarse dentro de las siguientes opciones de horarios: de martes a sábado dentro del rango de las 08:00 hasta las 19:00 horas. Domingos entre las 09:00 y las 13:00 horas (en este último horario, la hora efectiva de salida del solicitante no podrá prolongarse más allá de las 14:00 horas.) En el caso de los eventos nocturnos, la hora efectiva de salida del solicitante no podrá prolongarse más allá de las 22:00 horas.

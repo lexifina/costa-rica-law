@@ -1,7 +1,7 @@
 MUNICIPALIDAD DE CARTAGO
 El Concejo Municipal de Cartago, según lo acordado en sesión ordinaria, celebrada el día 26 de agosto del 2014, en el Acta Nº 323-14, Artículo Nº 4, y conforme a las atribuciones que le confiere el artículo 43 del Código Municipal, se sometió a consulta pública no vinculante por el término de diez días hábiles siguientes a su publicación en el Diario Oficial La Gaceta N° 150 del 6 de agosto de 2014, y no recibiendo ninguna objeción sobre el mismo, se acuerda por unanimidad aprobar el Reglamento de Autorización de uso del Anfiteatro de la Municipalidad de Cartago.
-REGLAMENTO DE AUTORIZACIÓN DE USO DEL
-ANFITEATRO DE LA MUNICIPALIDAD DE CARTAGO
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 89 del 6 de julio de 2021, y publicado en La Gaceta N° 160 del 20 de agosto de 2021 y se trascribe a continuación:)
 CAPÍTULO I
-Información general
-Artículo 1º—El presente Reglamento es de orden público y será de observancia obligatoria para toda persona física o jurídica que desee presentar espectáculos o realizar actividades en el Anfiteatro Municipal de Cartago, así como para funcionarios de la Municipalidad de Cartago, usuarios, prensa y público en general.
+Disposiciones generales
+Artículo 1º-Del destino y fines del Anfiteatro. El Anfiteatro Municipal es una bien inmueble propiedad de la Municipalidad de Cartago, destinado a la promoción de la cultura y el arte a través de la realización de actividades institucionales, culturales y artísticas, cuyo objetivo principal es promover y desarrollar las artes escénicas en general, así como generar opciones para la comunidad y visitantes que aumenten la oferta de espectáculos culturales y artísticos en el cantón de Cartago.
+El Anfiteatro busca constituir en la ciudad de Cartago, un espacio que estimule y divulgue las diferentes expresiones artísticas, culturales y académicas que procuren la recuperación y el desarrollo de la identidad cartaginesa, especialmente lo referente a las artes escénicas, beneficiando a la población cartaginesa, visitantes y a la comunidad artística local, nacional e internacional, procurándoles el acceso y participación en la cultura como un derecho humano así como el mejoramiento de las condiciones socio económicas de los artistas y creativos.

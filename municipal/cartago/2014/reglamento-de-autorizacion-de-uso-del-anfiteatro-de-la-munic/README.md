@@ -14,3 +14,4 @@ Reglamento de autorización de uso del anfiteatro de la Municipalidad de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-10 | la propia norma |
+| 2 | 2021-07-06 | Reglamento municipal 89 (2021-07-06) |

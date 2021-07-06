@@ -1,3 +1,1 @@
-CAPÍTULO II
-Del uso del inmueble
-Artículo 4º—El Anfiteatro busca constituir en la Ciudad de Cartago, un espacio que estimule y divulgue las diferentes expresiones artísticas, culturales y académicas que procuren la recuperación y el desarrollo de la identidad cartaginesa, especialmente lo referente a las artes escénicas, beneficiando a la población cartaginesa, visitantes y a la comunidad artística.
+Artículo 4º-Uso para la actividad administrativa municipal. La Municipalidad podrá hacer uso libre del inmueble en ejercicio de su actividad administrativa y de gobierno local, por lo que queda a su discreción y como prioridad, el uso de este para los efectos de eventos artísticos gratuitos para la comunidad u otras actividades propias del quehacer municipal, organizados por la misma entidad.
