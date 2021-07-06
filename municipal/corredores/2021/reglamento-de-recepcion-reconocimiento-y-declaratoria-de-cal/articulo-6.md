@@ -1,0 +1,2 @@
+Reapertura de vía pública ante el cierre o estrechamiento.
+Artículo 6°-El procedimiento para la reapertura de calle y caminos estará a cargo el órgano director que designe el (la) Alcalde (sa) y se realiza por lo que estipula el artículo 33 de la ley General de Caminos Público 5060 y sus reformas, el inicio del procedimiento puede hacerse directamente por la Municipalidad de Corredores o a solicitud de parte.

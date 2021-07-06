@@ -1,0 +1,6 @@
+Artículo 3°-Se considerará como calle pública aquella que:
+1. Tenga un uso público, de conformidad con lo establecido en el artículo 7 de la Ley de Construcciones.
+2. Lo determine un mapa oficial de Catastro, acuerdos municipales, planes reguladores, según el artículo 1 de la Ley de Planificación Urbana.
+3. Así la reconozcan actos administrativos previos y consolidados.
+4. Manifiesten, por su uso, destino, finalidad e interés municipal, que son evidentemente públicos; esto previo estudios previos técnicos que lo acrediten.
+5. Adoleciendo de los estudios técnicos necesarios, sean reconocidas por parte del Concejo Municipal, previa publicación de un aviso por única vez en el Diario Oficial La Gaceta, para que aquellos terceros que sientan afectados sus derechos de propiedad con el reconocimiento de calle pública los hagan valer en un plazo máximo de ocho días hábiles que contarán a partir del día hábil siguiente de su publicación. De no existir oposición, y/o de ser esta improcedente, quedará expedita la vía para que el Concejo Municipal pueda declarar públicas aquellas calles que no cumplían con las normas de diseño, pero que por su uso, destino y utilidad pública, conforme las reglas del artículo 7 de la Ley de Construcciones así debe ser declarado.

@@ -1,0 +1,2 @@
+Artículo 11°-Una vez dada la audiencia al (los) infractor (es) y con las pruebas constantes en expediente, el órgano director emitirá una recomendación final dentro del plazo de 15 días hábiles.
+Vista la recomendación y de comprobarse en la información que el camino fue cerrado o estrechado sin la debida autorización, o que estuvo al servicio público por más de un año, la Alcaldía Municipal ordenará la reapertura en un plazo perentorio no mayor de tres días y en rebeldía del obligado, ejecutará por su cuenta la orden.

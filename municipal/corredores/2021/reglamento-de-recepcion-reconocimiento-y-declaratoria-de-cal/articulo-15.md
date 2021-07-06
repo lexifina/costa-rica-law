@@ -1,0 +1,1 @@
+Artículo 15°-Informe final. El Responsable de la Unidad Técnica de Gestión Vial Municipal deberá confeccionar un informe, procede a remitir copia a la Junta Vial Cantonal, a la Alcaldía, al Interesado o interesados, y a su archivo en el expediente original de la vía.
