@@ -30,3 +30,4 @@ Reglamento de Organización del Ministerio de Seguridad Pública
 | 15 | 2018-07-18 | Decreto Ejecutivo 41366 (2018-07-18) |
 | 16 | 2020-09-07 | Decreto Ejecutivo 42542 (2020-09-07) |
 | 17 | 2020-11-05 | Decreto Ejecutivo 42741 (2020-11-05) |
+| 18 | 2021-07-06 | Decreto Ejecutivo 43094 (2021-07-06) |

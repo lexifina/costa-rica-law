@@ -1,6 +1,6 @@
 SECCIÓN XII
 Departamento de Archivo Central
-Artículo 116.—El Departamento de Archivo Central tendrá las siguientes funciones:
+Artículo 116.-El Departamento de Archivo Central tendrá las siguientes funciones:
 1) Centralizar la documentación tramitada de varias o de todas las oficinas del Ministerio de acuerdo con los plazos de remisión, establecidos en las tablas de plazo de conservación y eliminación de documentos,
 2) Velar por la aplicación de políticas archivísticas implementadas por la Junta Administrativa del Archivo Nacional y asesorar técnicamente al personal de la Institución que labore en Archivos de Gestión,
 3) Reunir, conservar, clasificar, ordenar, describir, seleccionar, administrar, custodiar y facilitar la documentación producida y la que se haya recibido como producto de las funciones del Ministerio,
@@ -12,7 +12,8 @@ Artículo 116.—El Departamento de Archivo Central tendrá las siguientes funci
 9) Promover la creación del Comité Institucional de Selección y Eliminación de Documentos,
 10) Ejercer los controles necesarios para el adecuado manejo y conservación de la documentación que en él esté depositada,
 11) Coordinar con la Dirección General del Archivo Nacional, la ejecución de las políticas archivísticas del Ministerio,
-12) Salvaguardar toda aquella documentación que de una u otra manera vea amenazada su integridad por medio de microfilm, así mismo reproducirá por el mismo medio los documentos previa consulta a la Dirección General del Archivo Nacional sobre la planificación y realización del procedimiento,
+12) Salvaguardar por los medios de conservación establecidos en la normativa vigente, toda aquella documentación que de una u otra manera vea amenazada su integridad. Asimismo, reproducirá la documentación por los mismos medios, cumpliéndose con los lineamientos técnicos establecidos por la Dirección General de Archivo Nacional.
+(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N° 43094 del 6 de julio de 2021)
 13) Elaborar las tablas generales de plazos de conservación de documentos del Ministerio, basadas en las tablas de plazo de los Archivos de Gestión y someterlas a conocimiento de los Comité Institucional de Selección y Eliminación y Nacional de Selección y Eliminación de Documentos.
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 114 al 116)

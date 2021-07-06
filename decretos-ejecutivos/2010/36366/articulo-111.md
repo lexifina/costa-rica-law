@@ -1,7 +1,8 @@
-Artículo 111.—La Sección de Admisibilidad e Investigaciones Preliminares tendrá las siguientes funciones:
+Artículo 111.-La Sección de Admisibilidad e Investigaciones Preliminares tendrá las siguientes funciones:
 1) Recibir y calificar legalmente los informes, reportes, denuncias, quejas y en general cualquier tipo de documentación externa o interna que ingrese a la Ventanilla Única del Departamento Disciplinario Legal, relacionada con presuntas faltas cometidas por los (las) servidores (as) policiales o administrativos de este Ministerio.
 2) Examinar y valorar la documentación recibida, para determinar si amerita investigación preliminar o si debe ser remitida directamente a las Secciones de Inspección Policial o Inspección Administrativa, según corresponda.
-3) Devolver a la oficina de origen todo informe o reporte que se encuentre incompleto, que no cumpla con los requisitos del Manual para la Presentación de Informes al Departamento Disciplinario Legal, que no tenga el visto bueno de la Dirección Policial de Apoyo Legal, que se refiera a hechos que no configuran falta grave o que no tuvieron la trascendencia necesaria ni dañaron la imagen o el patrimonio de este Ministerio.
+3) Devolver a la oficina de origen todo informe o reporte que se encuentre incompleto, que no cumpla con los requisitos del Manual para la Presentación de Informes al Departamento Disciplinario Legal, que se refiera a hechos que no configuran falta grave o que no tuvieron la trascendencia necesaria ni dañaron la imagen o el patrimonio de este Ministerio.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43094 del 6 de julio de 2021)
 4) Disponer el rechazo o archivo de aquellos asuntos que así lo ameriten.
 5) Resolver los recursos de revocatoria que se interpongan contra las resoluciones de rechazo o archivo de asuntos que así lo ameriten.
 6) Emplazar a las partes recurrentes y remitir la totalidad del expediente al Superior Jerárquico, en el caso de que presenten recurso de apelación contra las resoluciones de rechazo o archivo de asuntos que así lo ameriten.
