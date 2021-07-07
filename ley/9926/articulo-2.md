@@ -14,3 +14,4 @@ Artículo 2°:Apruébense los siguientes Egresos Ordinarios y Extraordinarios de
 (Modificado por el artículo 1° del decreto ejecutivo N° 43023 del 24 de mayo del 2021)
 (Así reformado por el artículo 1° de la ley N° 9985 del 27 de mayo del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43069 del 24 de junio del 2021)
+(Modificado por el artículo 1° del decreto ejecutivo N° 43141 del 7 de julio del 2021)
