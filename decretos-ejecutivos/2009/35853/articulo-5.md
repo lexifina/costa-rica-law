@@ -1,1 +1,0 @@
-Artículo 5º—El SENASA y el Ministerio de Economía, Industria y Comercio serán los encargados de verificar el cumplimiento de las disposiciones contenidas en el presente Reglamento, en el ámbito de sus competencias.

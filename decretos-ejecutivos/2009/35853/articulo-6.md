@@ -1,1 +1,0 @@
-Artículo 6º—El costo de la verificación del presente reglamento deberá cubrirlos el Estado conforme la Ley General del Servicio Nacional de Salud Animal Nº 8495 y la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor Ley Nº 7472. Los costos que se incurran por solicitud o debido al incumplimiento del administrado se cobrarán directamente a éste.
