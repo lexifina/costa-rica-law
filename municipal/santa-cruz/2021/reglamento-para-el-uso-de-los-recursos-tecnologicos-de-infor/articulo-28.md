@@ -1,0 +1,1 @@
+Artículo 28.-El Departamento de Tecnologías de Información y Comunicación podrá consultar el historial, bitácora y sus respectivos respaldos sobre las actividades en Internet de todos los usuarios de la red.

@@ -1,0 +1,1 @@
+Artículo 8°-Todos los equipos de cómputo propiedad de la Municipalidad de La Cruz, deben ser patrimoniados por el departamento correspondiente. El departamento de Tecnologías de Información y Comunicación no prestará servicios a equipos que no estén patrimoniados o identificados por parte de este departamento.

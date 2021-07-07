@@ -1,0 +1,1 @@
+Artículo 24.-La Administración de la red del departamento de Tecnologías de Información y Comunicación, no ejercerá ningún control sobre el contenido de correo o información que pase por la red quedando bajo la entera responsabilidad del usuario.
