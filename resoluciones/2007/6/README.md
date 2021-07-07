@@ -14,3 +14,4 @@ Prescindiendo de compensación en devolución de pago de Timbre Consular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-26 | la propia norma |
+| 2 | 2021-07-07 | Resolución 23 (2021-07-07) |
