@@ -1,1 +1,0 @@
-Transitorio I.—Para la convocatoria del Fondo que se realiza en el año 2015, el tiempo para la recepción de proyectos será de un mes, en las fechas que al efecto convoque el CCPC, en los términos del presente reglamento.

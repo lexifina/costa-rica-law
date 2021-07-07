@@ -1,5 +1,0 @@
-Artículo 4 º-Alcance. El Fondo cofinanciará proyectos de creadores audiovisuales y/o cinematográficos, que sean personas jurídicas debidamente inscritas y al día, que cumplan con los requisitos y formalidades establecidos en este reglamento.
-El Fondo cofinanciará proyectos que necesariamente contengan contrapartes provenientes del sector privado o del sector público. El porcentaje del aporte se fijará anualmente en las bases de participación, respetando un rango de entre el 20% y el 40% del presupuesto total del proyecto.
-Dentro de los rubros a financiar por parte del Fondo. se podrá incluir un porcentaje no mayor a un 25% del monto solicitado para rubros de divulgación y promoción.
-Aunado a ello, el Fondo podrá cofinanciar proyectos en etapa de desarrollo. El tope de aporte para dichos proyectos se notificará anualmente en las bases de participación y será fijado a criterio de la Dirección General del CCPC como instancia competente de la aplicación del presente reglamento.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40822 del 13 de noviembre del 2017)
