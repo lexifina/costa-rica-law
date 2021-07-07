@@ -1,1 +1,0 @@
-Artículo 2º-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número RES-DGH-001-2021, del 8 de enero de 2021, publicada en La Gaceta número 15 del 22 de enero de 2021.
