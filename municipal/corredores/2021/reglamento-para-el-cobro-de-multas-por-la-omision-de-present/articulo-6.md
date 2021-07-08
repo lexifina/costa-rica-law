@@ -1,0 +1,1 @@
+Artículo 6º-Incumplimiento de deberes. Cualquier incumplimiento a los deberes y obligaciones establecidos en el artículo 16 de la Ley, acarreará la imposición, por parte de la Municipalidad, de las multas contenidas en el artículo 17 de dicha norma, mediante los procedimientos indicados en este Reglamento.
