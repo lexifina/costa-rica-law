@@ -1,5 +1,5 @@
-Transitorio X.- Regulación temporal de la restricción vehicular diurna durante los días lunes a viernes. Durante los días comprendidos del martes 11 de mayo al 1° de julio, inclusive, y en el período comprendido entre las 05:00 horas y las 20:59 horas, no se permitirá el tránsito vehicular en todo el territorio nacional según el número final (último dígito) de la placa de circulación vehicular o del permiso especial de circulación AGV, detallado a continuación:
-(Así reformado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 43048 del 10 de junio del 2021)
+Transitorio X.- Regulación temporal de la restricción vehicular diurna durante los días lunes a viernes. Durante los días comprendidos del martes 11 de mayo al 1° de agosto, inclusive, y en el período comprendido entre las 05:00 horas y las 20:59 horas, no se permitirá el tránsito vehicular en todo el territorio nacional según el número final (último dígito) de la placa de circulación vehicular o del permiso especial de circulación AGV, detallado a continuación:
+(Así reformado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 43091 del 8 de julio del 2021)
 Día | Restricción para circular según el último dígito de la placa de circulación vehicular o del permiso especial de circulación AGV
 Lunes | Placa o permiso AGV que finalice en 1 y 2
 Martes | Placa o permiso AGV que finalice en 3 y 4
