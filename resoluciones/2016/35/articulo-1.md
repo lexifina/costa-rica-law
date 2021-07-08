@@ -829,6 +829,12 @@ El valor de la cantidad de baterías por autobús (ccby), frecuencia de cambio d
 El plazo establecido para la actualización de los valores de los coeficientes, permite la revisión periódica de la metodología de manera que se incorpore los cambios en el entorno financiero, así como los cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología. Los casos de inclusión, eliminación de coeficientes y variación en las reglas contenidas en la metodología para definir coeficientes, deberán someterse previamente al proceso de audiencia pública previsto en el artículo 36 de la Ley N° 7593.
 Los rubros de costos variables anteriormente descritos, utilizan los precios correspondientes que se encuentren vigentes al día de la audiencia pública de la aplicación de esta metodología.
 (Así adicionado el punto 4.5.10) anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
+(Nota de Sinalevi: Mediante resolución N° RE-0044-IT-2021 del 8 de julio de 2021, se acordó actualizar el valor del precio del filtro de combustible, de las baterías nuevas y del aceite hidráulico para que sean incorporados dentro del modelo para el cálculo de las tarifas ordinarias del servicio de transporte remunerado de personas, modalidad autobús, según el siguiente detalle:
+Insumo | Mediana* (¢)
+Filtros de combustible | 41.087,33
+Aceite hidraúlico | 4.395,27
+Barerías nuevas | 169.700,00
+Nota (*) Incluye el impuesto al valor agregado”)
 4.6 Rentabilidad del capital invertido
 La rentabilidad total mensual en la ruta "r" (RTr) se obtiene de la sumatoria de la rentabilidad del capital invertido en activos fijos y la rentabilidad del capital invertido en proveeduría.
 Donde:
