@@ -14,3 +14,4 @@ Lineamientos regulatorios del programa de evaluación de la calidad en planteles
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-15 | la propia norma |
+| 2 | 2021-07-08 | Resolución 41 (2021-07-08) |
