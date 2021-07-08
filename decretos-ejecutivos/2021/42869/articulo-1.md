@@ -1,0 +1,26 @@
+Nº 42869-S-MINAE
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE SALUD
+Y LA MINISTRA DE AMBIENTE Y ENERGÍA
+En uso de las facultades que les confieren los artículos 50, 140 incisos 3) y 18) y 146 de la Constitución Política; 25, 27 inciso 1), 28 inciso 2) acápite b) de la Ley N° 6227 del 02 de mayo de 1978 "Ley General de la Administración Pública"; 1, 2, 4, 7, 285, 290 y 291 de la Ley Nº 5395 del 30 de octubre de 1973 "Ley General de Salud"; 1, 2 y 6 de la Ley N° 5412 del 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud"; 50, 51 y 52 de la Ley Nº 7554 del 04 de octubre de 1995 "Ley Orgánica del Ambiente".
+Considerando:
+I.-Que la salud de la población es un bien de interés público tutelado por el Estado.
+II.-Que todas las personas tienen derecho a un ambiente sano y ecológicamente equilibrado y es deber del Estado garantizar este derecho.
+III.-Que siendo la contaminación de las aguas uno de los problemas de mayor incidencia en nuestro entorno ambiental, resulta prioritario adoptar medidas de control para el vertido de agentes contaminantes en manantiales, zonas de recarga, ríos, quebradas, arroyos permanentes o no permanentes, lagos, lagunas, marismas, embalses naturales o artificiales, estuarios, manglares, turberas, pantanos, aguas dulces, salobres o saladas, y en general en las aguas nacionales.
+IV.-Que la contaminación de los cuerpos de agua favorece la proliferación de enfermedades de transmisión hídrica, reduce el número de fuentes disponibles, eleva los costos para el abastecimiento de agua para consumo humano, y pone en peligro de extinción a muchas especies de nuestra flora y fauna.
+V.-Que en el Decreto Ejecutivo Nº 42075-S-MINAE del 12 de noviembre del 2019 "Reglamento para la disposición al subsuelo de aguas residuales ordinarias tratadas", es necesario ampliar y especificar la definición de "aguas residuales ordinarias", con el fin de homologarla con la definición establecida en el Decreto Ejecutivo Nº 39887-S-MINAE del 18 de abril del 2016 "Reglamento de aprobación de sistemas de tratamiento de aguas residuales", debido a que ambos reglamentos son complementarios.
+VI.-Que la Ley Nº 8454 del 30 de agosto del 2005 "Ley de Certificados, Firmas Digitales y Documentos Electrónicos", en su artículo 1 dispone que el Estado y todas las entidades públicas quedan expresamente facultados para utilizar los certificados, las firmas digitales y los documentos electrónicos, dentro de sus respectivos ámbitos de competencia.
+VII.-Que el artículo 4 del Decreto Ejecutivo Nº 33018-MICIT del 20 de marzo del 2006 "Reglamento a la Ley de Certificados, Firmas Digitales y Documentos Electrónicos", señala que el Estado y todas las dependencias públicas, incentivarán el uso de documentos electrónicos, certificados y firmas digitales para la prestación directa de servicios a los administrados, así como para facilitar la recepción, tramitación y resolución electrónica de sus gestiones y la comunicación del resultado correspondiente.
+VIII.- Que en referencia a la Directriz Nº 052-MP-MEIC del 19 de junio del 2019 "Moratoria a la Creación de Nuevos Trámites, Requisitos o Procedimientos al Ciudadano para la Obtención de Permisos, Licencias o Autorizaciones", publicada en La Gaceta N° 118 del 25 de junio del 2019; se aplica el artículo 2, inciso e) que indica: "Que se demuestre que el beneficio de dicha regulación, es mayor al de su inexistencia", siendo que la presente modificación tiene el beneficio en la facilitación y agilización para la tramitología requerida de manera digital y sea utilizada la firma digital para tal efecto en la documentación presentada.
+IX.-Que de conformidad con el artículo 12 bis del Decreto Ejecutivo Nº 37045 del 22 de febrero de 2012 y su reforma "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", la persona encargada de la Oficialía de Simplificación de Trámites del Ministerio de Salud, ha completado como primer paso la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio. Las respuestas brindadas en esa Sección han sido todas negativas, toda vez que la propuesta no contiene trámites ni requisitos. Por tanto,
+DECRETAN
+MODIFICACIÓN AL ARTICULO 3 INCISOS 4), 5)
+Y ARTÍCULO 21 DEL DECRETO EJECUTIVO
+Nº 42075-S-MINAE DEL 12 DE NOVIEMBRE
+DEL 2019 "REGLAMENTO PARA
+LA DISPOSICION AL SUBSUELO
+DE AGUAS RESIDUALES
+ORDINARIAS TRATADAS"
+Artículo 1º-Modifíquese el artículo 3 incisos 4 y 5 del Decreto Ejecutivo Nº 42075-S-MINAE del 12 de noviembre del 2019 "Reglamento para la disposición al subsuelo de aguas residuales ordinarias tratadas" para que en adelante se lean| de la siguiente manera:
+"4. Agua residual ordinaria o de tipo ordinario: Es el agua residual generada por las actividades básicas del ser humano, tales como el uso de inodoros, duchas, lavatorios, fregaderos, lavado de ropa que cumpla con los límites establecidos para los parámetros especificados en las Tablas 2 y 3 de los artículos 18 y 19 del Decreto Ejecutivo Nº 33601-MINAE-S del 9 de agosto de 2006 "Reglamento de Vertido y Reuso de Aguas Residuales" y sus reformas.
+5. Agua residual especial o de tipo especial: Agua residual generada por cualquier actividad que no cumpla con la definición de agua residual ordinaria o de tipo ordinario".
