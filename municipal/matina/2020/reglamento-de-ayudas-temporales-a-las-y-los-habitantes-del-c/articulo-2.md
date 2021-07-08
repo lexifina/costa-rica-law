@@ -1,4 +1,4 @@
-Artículo 2º—Del ámbito de aplicación:
+Artículo 2º-Del ámbito de aplicación:
 La Municipalidad podrá otorgar ayudas temporales a los/ las habitantes del cantón, que enfrenten situaciones debidamente comprobadas de desgracia o infortunio, entre las cuales este reglamento contempla:
 a) Aquellos casos que presentan problemas de origen físico natural (huracanes, inundaciones, sismos, deslizamientos, sequía, entre otros), causados por la acción humana (incendios, contaminación del ambiente, entre otros), de origen tecnológico (materiales peligrosos, entre otros) y de origen biológico que afecten la salubridad pública (pandemias, entre otros) que ocasionen un daño en los bienes materiales y económicos en un momento y espacio determinado.
 b) Aquellos casos de pobreza, o pobreza extrema donde se presenten situaciones como muerte, desempleo, incapacidad u otros acontecimientos de carácter transitorio, que afecten coyunturalmente la condición socioeconómica del núcleo familiar.
@@ -7,3 +7,5 @@ d) Aquellos centros educativos públicos, organizaciones de beneficencia o servi
 I) Centros educativos públicos: Kínder Garden, Escuelas y Colegios financiados por el Ministerio de Educación Pública ubicados en el cantón de Matina.
 II) Centros de beneficencia: Entidades públicas o privadas, organizadas bajo las figuras de asociaciones, fundaciones, o empresas públicas, que se dediquen a la atención de personas de riesgo social, que promuevan y desarrollen obras, proyectos o actividades de bien común, orientados a ayudar a la población del cantón de Matina.
 III) Centros de Servicio Social: Aquellas entidades, públicas o privadas, organizadas bajo las figuras de asociaciones, fundaciones, o empresas públicas, que desarrollen obras, proyectos, programas o actividades sociales y culturales, que estén al servicio de la comunidad y coadyuven en el mejoramiento del nivel de vida y en el esparcimiento de los habitantes del cantón de Matina.
+IV) Asociaciones de Desarrollo: integrales y específicas por ser entes de interés público y, por tanto, pueden realizar todo tipo de actividades en procura del beneficio para sus comunidades.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 100 del 08 de julio del año 2021)
