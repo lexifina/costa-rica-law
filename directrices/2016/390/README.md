@@ -15,3 +15,4 @@ Comisión Institucional de Control Interno del Ministerio de Educación Pública
 | --- | --- | --- |
 | 1 | 2016-02-23 | la propia norma |
 | 2 | 2017-09-06 | Directriz 0 (2017-09-06) |
+| 3 | 2021-07-08 | Directriz 894 (2021-07-08) |
