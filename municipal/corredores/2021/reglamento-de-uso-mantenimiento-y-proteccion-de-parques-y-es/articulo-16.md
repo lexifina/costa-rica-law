@@ -1,0 +1,4 @@
+CAPÍTULO III
+De la protección y cierre de parques
+y espacios públicos
+Artículo 16.-Protección general: Toda persona usuaria está obligada a defender el patrimonio que contienen los espacios públicos señalados en este reglamento, sean animales, árboles, plantas, o cualquier otro elemento biótico o abiótico, además de muebles de instalación temporal o permanente, bancas, muros, ranchos, monumentos, así como los instrumentos, equipos y medios con los que se da mantenimiento a estas zonas, y aquellos con los que se prestan servicios de telefonía, alumbrado y agua y vigilancia.
