@@ -1,0 +1,11 @@
+CIRCULAR Nº 154-2021
+ASUNTO: Reiteración de la circular 141-2020 denominada "Obligación de realizar evaluaciones semestrales y anuales a los Planes Anuales Operativos".
+A LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión Nº 56- 2021, celebrada el 06 de julio de 2021, artículo LXI, acordó reiterarles la circular número 141-2020 denominada "Obligación de realizar evaluaciones semestrales y anuales a los Planes Anuales Operativos", que dice:
+"El Consejo Superior del Poder Judicial en sesión Nº 55- 2020, celebrada el 04 de junio de 2020, artículo LIII, acordó reiterarles lo dispuesto en la sesión Nº 03-07, celebrada el 16 de enero de 2007, artículo LXXXVI, que indica:
+"Que todos los responsables de los despachos judiciales realicen un seguimiento de al menos 2 veces al año del plan anual operativo de su área con participación del personal del despacho."
+Con el objetivo de establecer la periodicidad de los seguimientos, se informa que la Dirección de Planificación realizará un seguimiento semestral a los Planes Anuales Operativos al corte del 30 de junio de cada año y posteriormente, una evaluación anual con corte del 31 de diciembre de cada año. Ambos resultados serán comunicados al Consejo Superior para lo que corresponda.
+Para ello, se solicita a todas las oficinas y despachos judiciales del país realizar seguimientos periódicos a sus Planes Anuales Operativos, se sugiere de forma bimensual o trimestral, para tener un mayor control y seguimiento por medio del Sistema PAO de sus planes y su ejecución, y así evitar incumplimientos al momento de realizarse las evaluaciones por parte de la Dirección de Planificación.
+Además, se reitera la realización de estas evaluaciones, atendiendo el interés institucional, plasmado en el Plan Estratégico periodo 2019-2024 aprobado por el Consejo Superior del Poder Judicial, en sesión 83-17, celebrada el 12 de setiembre del 2017, Artículo LXIV; y que se encuentra en concordancia con en el tema estratégico "N° 5. Planificación Institucional" el cual menciona que se debe "Dirigir la gestión judicial en función de las prioridades institucionales con el fin de maximizar el uso de los recursos".
+San José, 9 de julio de 2021.
