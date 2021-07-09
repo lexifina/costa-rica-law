@@ -31,3 +31,4 @@ Ordena la suspensión temporal de aquellas actividades que favorezcan el surgimi
 | 16 | 2021-05-11 | Resolución 2975 (2021-05-11) |
 | 17 | 2021-05-28 | Resolución 4368 (2021-05-28) |
 | 18 | 2021-06-04 | Resolución 4597 (2021-06-04) |
+| 19 | 2021-07-09 | Resolución 5101 (2021-07-09) |
