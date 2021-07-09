@@ -1,0 +1,1 @@
+Artículo 5°. - Modifíquese el inciso A. del artículo 29 del Decreto Ejecutivo N° 37188-SP "Reglamento de Uso de Uniformes y Distintivos de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública" del 8 de mayo del 2012, de tal manera que donde se indique "%" en adelante se lea "3/4".
