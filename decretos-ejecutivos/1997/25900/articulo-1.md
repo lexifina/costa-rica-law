@@ -3,7 +3,7 @@ EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE EDUCACION PUBLICA
 En ejercicio de sus atribuciones constitucionales, lo dispuesto en los artículos 1, 4 y 5 de la Ley Orgánica del Ministerio de Educación N° 3481 del 13 de enero de 1965 y las disposiciones contenidas en el Reglamento sobre Centres Docentes Privados decreto ejecutivo N0 24017-MEP del 9 de febrero de 1995.
 DECRETAN:
-Articulo 1°—Equipárense con los de la educación formal regular estatal, según los niveles y modalidades que comprendan los estudios, certificaciones y títulos que extiendan las instituciones educativas privadas que a continuación se indican:
+Articulo 1°-Equipárense con los de la educación formal regular estatal, según los niveles y modalidades que comprendan los estudios, certificaciones y títulos que extiendan las instituciones educativas privadas que a continuación se indican:
 A) De preescolar, educación general básica, y educación diversificada
 Nombre institución | Provincia | Cantón
 Centro Educativo Bilingüe San Juan | Alajuela | Alajuela
@@ -121,7 +121,7 @@ Jardín de Niños Villa Hermosa | San José | Goicoechea
 Jardín de Niños la Guaria | San José | Moravia
 Kinder San Francisco | San José | San José
 Centro Bilingüe Infantil Mundo Nuevo | San José | Curridabat
-Jardín de Niños Ruiseñor | San José | Pavas
+(Derogado por el artículo 1° del decreto ejecutivo N° 43115 del 12 de julio del 2021) | (Derogado por el artículo 1° del decreto ejecutivo N° 43115 del 12 de julio del 2021) | (Derogado por el artículo 1° del decreto ejecutivo N° 43115 del 12 de julio del 2021)
 Centro educativo mi Patria | San José | Goicoechea
 Jardín de Niños la Casita de las Torrejas | Alajuela | Alajuela
 Centro Educativo mi Pequeño Mundo | San José | Curridabat
