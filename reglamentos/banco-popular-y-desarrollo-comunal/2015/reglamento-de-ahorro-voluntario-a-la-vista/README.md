@@ -15,3 +15,4 @@ Reglamento de Ahorro Voluntario a la Vista
 | --- | --- | --- |
 | 1 | 2015-05-18 | la propia norma |
 | 2 | 2015-10-08 | Reglamento 5316 (2015-10-08) |
+| 3 | 2021-07-12 | Reglamento 5842 (2021-07-12) |

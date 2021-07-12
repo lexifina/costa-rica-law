@@ -1,2 +1,2 @@
-Artículo 5°—Monto de apertura. La apertura de las cuentas de ahorro voluntario a la vista podrá efectuarse sin depósito previo.
-En el caso de cuentas de ahorro voluntario a la vista abiertas por personas jurídicas, la Gerencia General Corporativa podrá establecer el monto con que estas sean abiertas.
+Artículo 5°-Monto de apertura. La Gerencia General Corporativa podrá establecer un monto para la apertura de alguna de las modalidades de ahorro voluntario a la vista ya sea para personas físicas o jurídicas.
+(Así reformado en sesión N° 5842 del 12 de julio de 2021)
