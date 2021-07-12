@@ -1,0 +1,48 @@
+ARTÍCULO 7- Algunas consideraciones de las tipologías, según el artículo 6 del Reglamento:
+De previo a acreditar el cumplimiento de los requisitos específicos de cada tipología, la administración deberá determinar que el solicitante cumple con lo establecido en el artículo 3 del Reglamento.
+A) Personas adultas mayores:
+Personas de 65 años o más.
+B) Personas inválidas:
+Se refiere a personas menores de 65 años, que hayan sido declaradas inválidas por la Comisión Calificadora del Estado de Invalidez.
+En el evento de que el solicitante por invalidez durante la gestión cumpla 65 años, la administración deberá transformar el trámite a uno de vejez e informar de lo actuado al solicitante, indicándole los requisitos que ahora se valorarán.
+C) Personas viudas en desamparo:
+Se refiere a aquellas personas cuya clasificación en el SINIRUBE es de pobreza y además demuestra el fallecimiento de su cónyuge o compañero (a) de hecho, según lo establecido en el artículo 242 del Código de Familia.
+Las personas que soliciten pensión por esta tipología, para ajustarse a la misma, deberán presentar la solicitud respectiva en el plazo máximo de un año a partir del fallecimiento de su cónyuge o compañero. Esto, en virtud de las siguientes razones:
+1) Según el artículo 6 inciso c) del Reglamento, el objetivo de esta tipología no es mejorar la condición socioeconómica de cualquier persona viuda, sino mejorar la situación socioeconómica de aquella persona que quedó en desamparo económico (situación de pobreza o pobreza extrema) debido al fallecimiento de su cónyuge o compañero.
+Para verificar esta condición, se revisará la ficha de Inclusión Social. Si la persona fallecida aparece contemplada en la misma, se deberá excluir del SINIRUBE a este miembro para actualizar la clasificación socioeconómica. Si una vez actualizada la FIS, se observa que la persona solicitante desmejoró su clasificación a POBREZA o POBREZA EXTREMA, se tendrá por cumplido este requisito.
+Ahora bien, si en el grupo familiar del SINIRUBE no se registra el cónyuge o compañero fallecido, se considera que no forman parte del mismo grupo familiar, por lo tanto la solicitante no se ajusta a esta tipología, ya que no se registra convivencia al momento del deceso.
+2) El plazo establecido se fundamenta en el artículo 418 del Código de Trabajo, el cual se utiliza como norma supletoria para reclamar derechos y acciones relacionados con la seguridad social, y establece:
+"Salvo disposición legal en contrario, todos los derechos y las acciones provenientes de este Código, de sus reglamentos, de sus leyes conexas, incluidas las de previsión social, que no se originen directamente en contratos de trabajo ni se relacionen con conflictos jurídicos entre personas empleadoras y trabajadoras, prescriben en un año.
+Ese plazo correrá, para las primeras, desde el acaecimiento del hecho respectivo o desde que tuvieron conocimiento y, para las segundas y las demás personas interesadas, desde el momento en que estén en posibilidad efectiva de reclamar sus derechos o de ejercitar las acciones correspondientes. (Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, "Reforma Procesal Laboral.)"
+3) Después de transcurrido un año del fallecimiento del cónyuge o compañero, el grado de dificultad para comprobar que el cambio de la situación socioeconómica del solicitante se debió a dicho fallecimiento, aumenta considerablemente.
+En ese sentido, si la persona no presenta la solicitud de pensión en el plazo señalado, en la resolución deberá indicarse que al no haber la persona planteado la solicitud en el plazo de un año establecido por el artículo 418 del Código de Trabajo, no es posible comprobar que su situación socioeconómica se deba al fallecimiento de su cónyuge o compañero, por lo que no se ajusta a esta tipología.
+Para ajustarse a esta tipología, el solicitante no puede haber establecido una convivencia, ni haberse casado después de la unión que sustenta la solicitud de pensión por viudez.
+Con respecto a lo señalado en el artículo 6, inciso c, en los apartados i, ii, éstos deben ser cumplidos por la persona solicitante al momento de presentar su trámite de pensión. Además, debe cumplir con los requisitos del artículo 3 del Reglamento. Si la solicitud contiene todos los elementos necesarios para corroborar lo expuesto anteriormente, el caso deberá resolverlo el analista de pensiones únicamente para solicitantes de 55 años o más, siempre y cuando la solicitud de pensión haya sido presentada a más tardar 6 meses después del fallecimiento, si la presentó posterior a 6 meses y hasta un año, deberá trasladarse a Trabajo Social para verificar la convivencia, la cual deberá ser efectiva al momento del fallecimiento del cónyuge o compañero.
+Los casos donde la viuda (o) es menor de 55 años, habiéndose corroborado el cumplimiento de los demás requisitos establecidos en el artículo 3 del Reglamento, se deberán pasar a Trabajo Social
+con el fin de verificar la convivencia, la cual deberá ser efectiva al momento del fallecimiento del cónyuge o compañero.
+En aquellos casos donde el solicitante de la pensión por viudez es menor de 55 años, se verificará que los hijos integren el mismo grupo familiar del SINIRUBE que conformaba la persona viuda y el fallecido (a).
+Para los hijos mayores de 18 años y menores de 21, se entiende por educación formal aquella reconocida por el Ministerio de Educación Pública: primaria, secundaria, bachillerato por madurez, para-universitaria y universitaria. La carrera técnica se define como aquella que esté autorizada por el Ministerio de Educación Pública. No se tomarán en cuenta cursos aislados que no impliquen el desarrollo de un programa académico. La condición de no laborar significa que la persona no realice labores asalariadas, trabajador independiente o por Convenio.
+La condición de viudez será demostrada por:
+- Hoja de defunción del cónyuge o compañero (a) emitida por la autoridad competente. (aportada por el solicitante en caso de no estar inscrita en el Registro Civil)
+- Matrimonio: la administración lo verificará por medio de la página web del Registro Civil y el solicitante deberá de acreditar mediante la declaración jurada que para estos efectos la administración dispone, que no haya establecido otra convivencia. (Anexo 3)
+- Estado civil actual del solicitante, la administración lo verificará por medio de la página web del Registro Civil.
+- En aquellos casos donde el fallecimiento sea de su compañero (a) de hecho, el solicitante deberá aportar declaración jurada que para estos efectos la administración dispone, donde se acredite el tiempo de convivencia con el fallecido y que no haya establecido otra convivencia. (Anexo 3)
+D) Menores huérfanos:
+En el caso de los menores huérfanos se entiende por educación formal aquella reconocida por el Ministerio de Educación Pública: primaria, secundaria, bachillerato por madurez, para universitaria y universitaria. La carrera técnica se define como aquella
+D) Menores huérfanos:
+En el caso de los menores huérfanos se entiende por educación formal aquella reconocida por el Ministerio de Educación Pública: primaria, secundaria, bachillerato por madurez, para universitaria y universitaria. La carrera técnica se define como aquella que esté autorizada por el Ministerio de Educación Pública. No se tomarán en cuenta cursos aislados que no impliquen el desarrollo de un programa académico.
+La condición de no laborar significa que la persona no realice labores asalariadas, como trabajador independiente o por Convenio.
+E) Indigentes:
+Las personas solicitantes en condición de indigencia son aquellas que no tienen posibilidad de incorporarse a una actividad económica remunerada estable, que se ajusten a lo indicado en el artículo 3 del Reglamento y no cuenten con redes de apoyo con capacidad económica, carezcan de protección de instituciones del Estado u ONGS.
+Para efectos de ubicar al solicitante dentro del perfil de indigencia, deben considerarse aspectos tales como:
+- Que tenga dificultades para incorporarse a las actividades productivas, lo que no le permita tener una actividad económica remunerada. No se considera una actividad económica, la que recibe el solicitante de la caridad (persona que "pide").
+- Antecedentes de adicción o adicciones activas.
+- Que haya estado privado de libertad.
+- Retardo cultural (personas que se han mantenido en el hogar sin ningún tipo de socialización).
+Algunas consecuencias sociales en que se encuentra la persona en condición de indigencia:
+o Abandono familiar (sin redes de apoyo).
+o Maltrato físico o emocional.
+o Rechazo social por historia de adicción, aspecto físico, antecedentes familiares.
+o Puede tener o no domicilio fijo, pero en condiciones de pobreza o pobreza extrema.
+Si el analista determina que el solicitante no cumple con lo establecido en el artículo 3, no será necesario trasladarlo a Trabajo Social, sino más bien deberá proceder a recomendar la denegatoria de la solicitud.
+Una vez que se documente el cumplimiento de lo dispuesto en el artículo 3 y los requisitos específicos para esta tipología, procederá la aprobación del beneficio. En aquellos casos donde el indigente tenga una adicción la cual haya quedado debidamente documentada en el informe de trabajo social respectivo, la administración, en el mismo acto de la comunicación del derecho a pensión, le informará al solicitante que el pago del beneficio queda supeditado a que se nombre en su caso, un endosatario debidamente acreditado por parte de Trabajo Social (medida cautelar administrativa), que asuma el retiro y administración de la pensión, así como rendir cuentas a la Institución cuando ésta se lo solicite.
