@@ -1,0 +1,2 @@
+Artículo 29.-Libro de actas. Existirá un libro de actas en formato físico o digital debidamente legalizado, en el que una vez aprobadas las actas respectivas se transcribirán inmediatamente, a fin de que sean firmadas física o digitalmente en la siguiente sesión posterior a su aprobación por el presidente de la Junta Directiva y por aquellos miembros que hubieren hecho constar su voto disidente.
+Sobre esta materia se aplicará, en lo conducente, el Reglamento Institucional para el Manejo de Libros de Actas, PRO-NOR-062.

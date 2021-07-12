@@ -1,0 +1,1 @@
+Artículo 27.-Aprobación de las actas. Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos de que los Directivos presentes acuerden su firmeza por dos terceras partes de los presentes.

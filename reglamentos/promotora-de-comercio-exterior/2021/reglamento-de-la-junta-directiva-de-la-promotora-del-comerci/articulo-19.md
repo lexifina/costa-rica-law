@@ -1,0 +1,2 @@
+Artículo 19.-Sesiones extraordinarias. Las sesiones extraordinarias se celebrarán cada vez que sean convocadas por el Presidente por escrito o en forma electrónica, con al menos tres días hábiles de antelación, salvo los casos de urgencia. En éstas, únicamente se conocerán los asuntos de la convocatoria, salvo los casos de urgencia.
+No obstante, en sesión ordinaria la Junta Directiva podrá acordar la celebración de una sesión extraordinaria, fijando los asuntos por tratar.

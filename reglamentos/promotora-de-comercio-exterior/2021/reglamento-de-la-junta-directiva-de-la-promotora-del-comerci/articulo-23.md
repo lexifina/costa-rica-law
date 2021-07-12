@@ -1,0 +1,1 @@
+Artículo 23.-Privacidad de las sesiones. Las sesiones de Junta Directiva serán privadas, pero ésta podrá disponer acordándolo así por unanimidad de los miembros presentes, que tenga acceso a ella el público en general o bien ciertas personas.

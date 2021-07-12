@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Prohibiciones e incompatibilidades
+Artículo 36.-Prohibición para participación en procesos de contratación con PROCOMER. Ningún miembro de Junta Directiva podrá participar, directa ni indirectamente, en procesos de contratación con PROCOMER por sí mismo o a través de personas jurídicas, conforme a lo establecido en los artículos 22, 22 bis de la Ley de Contratación Administrativa Las personas y organizaciones sujetas a la prohibición, mantendrán el impedimento hasta cumplidos seis meses desde el cese del motivo que le dio origen.1
+1 A partir de la entrada en vigencia de la Ley N° 9986 del 27 de mayo del 2021 " Ley General de Contratación Pública" el 1° de diciembre del 2022 léase: (.) conforme a lo establecido en los artículos 28, 29 y 30 de la Ley General de Contratación Pública.

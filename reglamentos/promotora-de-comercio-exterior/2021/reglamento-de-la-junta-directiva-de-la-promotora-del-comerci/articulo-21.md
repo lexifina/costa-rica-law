@@ -1,0 +1,2 @@
+Artículo 21.-Lugar y hora de celebración. Las sesiones ordinarias y extraordinarias de la Junta Directiva se celebrarán en el lugar y hora señalados en la convocatoria, la cual se deberá realizar por un medio físico o electrónico idóneo, ya sea en forma personal u otro medio que la tecnología permita.
+En el caso de realizar sesiones físicas, el lugar predeterminado de las sesiones será la Sala de Junta Directiva de la sede central de PROCOMER, salvo que por acuerdo se establezca cualquier otro sitio en el territorio nacional.

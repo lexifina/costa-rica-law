@@ -1,0 +1,2 @@
+Artículo 28.-Recurso de revisión. Los Directivos podrán interponer recurso de revisión contra los acuerdos adoptados que no hayan sido declarados firmes. Este recurso deberá ser interpuesto a más tardar al discutirse el acta de la sesión donde se adoptó el acuerdo que se cuestiona y deberá resolverse la misma en que se aprueba el acta, salvo que el presidente establezca lo contrario.
+Las simples observaciones de forma relativa a la redacción de los acuerdos no serán consideradas como recurso de revisión.

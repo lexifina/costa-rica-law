@@ -1,0 +1,2 @@
+Artículo 18.-Sesiones ordinarias. La Junta Directiva se reunirá ordinariamente con la frecuencia que considere necesario, el día en la hora y fecha que indique la convocatoria, no pudiéndose celebrar dos sesiones ordinarias consecutivas el mismo día.
+La Junta Directiva aprobará un calendario anual de sesiones, que favorezca la participación de los miembros, en cuyo caso no será necesario hacer convocatorias específicas para cada sesión.

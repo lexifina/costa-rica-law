@@ -1,0 +1,1 @@
+Transitorio II.-Cambio de libros físicos a digitales. Cuando se legalicen libros digitales por primera vez, la Administración debe asegurarse que cuenta con las condiciones tecnológicas para llevar los libros de actas de esa forma.
