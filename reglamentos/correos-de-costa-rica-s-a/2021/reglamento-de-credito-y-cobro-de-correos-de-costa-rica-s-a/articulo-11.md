@@ -1,0 +1,3 @@
+Artículo 11.-El crédito otorgado podrá ser utilizado en todos
+los servicios y productos que la empresa defina.
+La Dirección de Facturación y Cobro deberá revisar al menos trimestralmente, los casos en que el saldo adeudado del cliente es menor al límite inicialmente autorizado. De igualmente para aquellos casos que registren una imposición mayor a lo establecido en el crédito la Dirección de Negocios Corporativos deberá solicitar la actualización de la garantía por el monto que actualmente imponte. Por la vía de excepción, si el aumento de la imposición es mayor que la garantía, y se evidencia que es de manera esporádica, no se requerirá la actualización de la garantía.

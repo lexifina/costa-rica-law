@@ -1,0 +1,2 @@
+Artículo 5º-De las condiciones, términos y requisitos
+Las condiciones, términos y requisitos propios de las operaciones de crédito tales como: plazos, tasas de interés (corrientes y moratorios), garantías y otras condiciones generales y especiales establecidas en el presente reglamento, podrán ser modificadas por la Junta Directiva, previa recomendación debidamente razonada y fundamentada real y jurídicamente hablando por parte de la Gerencia General, según sea el caso. Modificaciones que deberán ser publicadas en el Diario Oficial La Gaceta como en derecho corresponde.

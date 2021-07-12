@@ -1,0 +1,1 @@
+Artículo 31.-Cuando un cliente se encuentra en mora y éste no formalice el arreglo de pago respectivo, la Dirección de Negocios Corporativos ordenará la suspensión, para lo cual deberán informar por escrito a las áreas respectivas sobre dicha suspensión.

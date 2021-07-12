@@ -1,0 +1,2 @@
+Artículo 18.-Con el fin de salvaguardar los intereses de la empresa, los pagos realizados por medio de cheque bancario por concepto de cancelación de servicios, bajo la modalidad de crédito, serán recaudados exclusivamente por el mensajero asignado por la Dirección de Facturación y Cobro, el cual debe estar debidamente identificado para los clientes.
+Los cheques deben de ser emitidos a la orden de Correos de Costa Rica S.A. bajo ninguna circunstancia el mensajero podrá realizar los cobros mediante efectivo.

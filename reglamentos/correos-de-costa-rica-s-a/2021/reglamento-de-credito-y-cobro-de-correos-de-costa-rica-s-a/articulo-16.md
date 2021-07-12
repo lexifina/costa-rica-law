@@ -1,0 +1,1 @@
+Artículo 16.-Correos de Costa Rica, aceptará los mecanismos de pago utilizados a nivel comercial y los utilizados para Empresas del Estado, según los lineamientos del Código de Comercio, Ley de Administración Financiera. Presupuestos Públicos y demás leyes conexas, todo dentro del ámbito jurídico financiero y la normativa vigente para estos efectos.

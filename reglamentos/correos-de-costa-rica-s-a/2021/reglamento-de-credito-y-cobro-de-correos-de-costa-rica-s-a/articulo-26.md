@@ -1,0 +1,1 @@
+Artículo 26.- Si el cliente entrare en mora, deberá cancelar el principal, intereses corrientes más los intereses moratorios o bien, llegar a un arreglo de pago para poder continuar con su condición de sujeto de crédito. Si el cliente incumpliere las condiciones antes citadas, perderá su condición de sujeto de crédito como tal de forma inmediata.

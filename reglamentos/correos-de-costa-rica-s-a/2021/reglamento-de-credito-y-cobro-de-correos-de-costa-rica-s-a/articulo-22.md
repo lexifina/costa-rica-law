@@ -1,0 +1,1 @@
+Artículo 22.-El cliente de crédito deberá de comunicar en forma inmediata por escrito cualquier modificación o cambio en los datos de los autorizados de realizar imposiciones en los puntos de venta; lo anterior sin perjuicio, que se realicen las cancelaciones de las imposiciones realizadas por el anteriores autorizados.

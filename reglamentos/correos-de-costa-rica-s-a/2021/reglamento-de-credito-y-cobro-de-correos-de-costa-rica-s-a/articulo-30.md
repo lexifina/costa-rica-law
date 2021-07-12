@@ -1,0 +1,2 @@
+Artículo 30.-La Dirección de Facturación y Cobro, dependiendo del análisis aplicado al cliente para la suscripción del arreglo de pago, podrá solicitarle una garantía según los alcances establecidos en el artículo 9.
+La justificación de los casos en los que no se les solicita garantía adicional, deberá quedar justificado en el análisis que al efecto emita al Dirección y Facturación y Cobro para el otorgamiento del arreglo de pago, con el visto bueno de la Gerencia de Administración y Finanzas.

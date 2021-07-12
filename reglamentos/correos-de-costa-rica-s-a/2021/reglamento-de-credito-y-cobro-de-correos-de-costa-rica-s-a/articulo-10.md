@@ -1,0 +1,1 @@
+Artículo 10.-Cuando se autorice el crédito, la persona física o jurídica que haya resultado beneficiada, previo al otorgamiento del crédito deberá suscribir un contrato. Para los casos de que dicha autorización se otorgó a las Empresas del Estado se podrá suscribir una orden de compra a nombre de Correos de Costa Rica S.A.

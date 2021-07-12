@@ -1,0 +1,1 @@
+Artículo 23.-Las autorizaciones o modificaciones de los autorizados deberán ser emitidos por las personas que ostenten la representación legal. Caso contrario, la Dirección de Facturación y Cobro, está facultado para rechazar "ad portas" cualquier solicitud que no cumpla con los requisitos que se citan anteriormente.
