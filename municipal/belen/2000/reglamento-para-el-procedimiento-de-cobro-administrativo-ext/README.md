@@ -19,3 +19,4 @@ Reglamento para el Procedimiento de Cobro Administrativo, Extrajudicial y Judici
 | 4 | 2007-03-21 | Reglamento municipal 16 (2007-03-13) |
 | 5 | 2012-03-13 | Reglamento municipal 17 (2012-03-13) |
 | 6 | 2020-02-04 | Reglamento municipal 7 (2020-02-04) |
+| 7 | 2021-07-13 | Reglamento municipal 41 (2021-07-13) |
