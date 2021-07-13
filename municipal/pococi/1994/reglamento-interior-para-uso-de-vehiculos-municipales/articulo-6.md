@@ -1,1 +1,0 @@
-Artículo VI.—Todos los vehículos municipales excepto los de uso discrecional, deberán estar rotulados con leyenda que diga "Municipalidad de Pococí y portar la placa oficial en forma permanente y en los lugares donde reglamentariamente dicha placa deberá colocarse.

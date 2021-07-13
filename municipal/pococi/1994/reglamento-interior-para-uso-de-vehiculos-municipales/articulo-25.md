@@ -1,1 +1,0 @@
-Artículo XXV.—Quedan derogadas todas las disposiciones reglamentarias anteriores a este Reglamento sobre el uso de vehículos municipales. Cualquier reforma o adición a este Reglamento será aprobada por el Concejo Municipal de Pococí y publicada en el Diario Oficial " La Gaceta ", previo refrendo de la Contraloría General de la República.

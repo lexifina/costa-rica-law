@@ -1,3 +1,0 @@
-Artículo VIII.— La Proveeduría Municipal llevará un control exacto de las herramientas y repuestos con que cuenta cada unidad, control que se debe mantener actualizado mediante una lista; registro de la cual, se mantendrá copia en la respectiva unidad automotriz. Dicho control se coordinará con los chóferes y funcionarios autorizados.
-Este control tiene como objeto el evitar la pérdida o mal uso de tales implementos así como su recuperación oportuna en caso de extravío.
-La Proveeduría Municipal deberá reportar al señor Ejecutivo Municipal mensualmente el consumo de combustible, lubricantes, repuestos y otros accesorios de todos los vehículos, a fin de evaluar su rendimiento, en los formularios que al efecto se crearen.
