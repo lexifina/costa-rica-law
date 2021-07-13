@@ -52,3 +52,4 @@ Restricción vehicular diurna ante el estado de emergencia nacional en todo el t
 | 37 | 2021-06-10 | Decreto Ejecutivo 43048 (2021-06-10) |
 | 38 | 2021-06-24 | Decreto Ejecutivo 43068 (2021-06-24) |
 | 39 | 2021-07-08 | Decreto Ejecutivo 43091 (2021-07-08) |
+| 40 | 2021-07-13 | Decreto Ejecutivo 43098 (2021-07-13) |
