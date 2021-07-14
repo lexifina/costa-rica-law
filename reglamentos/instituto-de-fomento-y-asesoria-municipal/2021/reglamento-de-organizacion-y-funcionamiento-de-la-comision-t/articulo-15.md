@@ -1,0 +1,1 @@
+Artículo 15.-La Comisión Técnica será convocada por la Secretaría General. En tales casos podrá convocarse de forma verbal en la sesión precedente, por documento escrito, correo electrónico, dispositivo celular u otro medio idóneo que asegure su recepción, de lo cual deberá hacerse constar en las minutas o archivos de la Comisión.

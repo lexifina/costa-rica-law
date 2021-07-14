@@ -1,0 +1,1 @@
+Artículo 14.-A falta de quórum o por la urgencia de la intervención técnica, la Comisión podrá sesionar de forma extraordinaria bastando la convocatoria con veinticuatro horas de antelación a la sesión, dentro o fuera de la jornada laboral de sus integrantes.

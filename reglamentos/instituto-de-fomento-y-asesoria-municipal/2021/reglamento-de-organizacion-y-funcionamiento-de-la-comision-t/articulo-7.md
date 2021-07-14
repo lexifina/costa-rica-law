@@ -1,0 +1,1 @@
+Artículo 7º-Las personas designadas como integrantes de la Comisión Técnica, así como quienes las sustituyan, no podrán rechazar la designación, salvo que la persona funcionaria se encuentre cubierta por alguna causal de impedimento legal.

@@ -1,0 +1,1 @@
+Artículo 16.-Las sesiones de la Comisión serán privadas, pudiendo realizarse de manera presencial o virtual, lo cual será determinado por la persona titular de la Dirección Ejecutiva según la necesidad y comunicado oportunamente por medio de la Secretaría. Quienes integren la Comisión podrán requerir la presencia y asesoría de otras personas funcionarias.

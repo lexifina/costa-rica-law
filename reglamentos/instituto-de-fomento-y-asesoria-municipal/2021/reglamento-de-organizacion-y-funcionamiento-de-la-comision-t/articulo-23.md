@@ -1,0 +1,1 @@
+Artículo 23.-Cuando una persona integrante de la Comisión Técnica, debidamente convocada, no asista regularmente o sea impuntual, sin causa justificada, la persona titular de la Dirección Ejecutiva podrá sancionarle conforme con lo establecido en los reglamentos internos de la Institución.

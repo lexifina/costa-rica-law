@@ -1,0 +1,1 @@
+Artículo 21.-Los dictámenes, disposiciones o recomendaciones se rendirán dentro del plazo de diez días naturales; en caso de imposibilidad para realizar la sesión dentro del plazo establecido, por razones de caso fortuito o fuerza mayor, se fijará otro plazo que no podrá exceder de los indicados (diez días).

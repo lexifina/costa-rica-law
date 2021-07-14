@@ -1,0 +1,1 @@
+Artículo 20.-Los dictámenes se tomarán por mayoría simple, consignado los votos negativos y los argumentos técnicos que respaldan dicha posición. En caso de empate, quien presida tendrá voto de calidad.

@@ -1,0 +1,2 @@
+Artículo 22.-La asistencia a las sesiones es obligatoria. Sólo se justificarán ausencias por vacaciones, incapacidades, permisos con o sin goce de salario, licencias, que consten de forma previa y escrita, con el objeto de que se convoque de así determinarlo, a la persona que le sustituya en las sesiones y no se afecte el cumplimiento de las funciones propias de la Comisión.
+Las ausencias por motivos de fuerza mayor o caso fortuito, debidamente comprobadas por los medios idóneos, justificarán la ausencia de las sesiones de la Comisión Técnica.
