@@ -1,0 +1,1 @@
+Artículo 17.-Del plazo para analizar denuncias: Recibida una denuncia la Auditoría Interna tendrá un plazo de 20 días hábiles, contados a partir del día siguiente de recibida la denuncia para definir su admisibilidad y respectivo tramite.

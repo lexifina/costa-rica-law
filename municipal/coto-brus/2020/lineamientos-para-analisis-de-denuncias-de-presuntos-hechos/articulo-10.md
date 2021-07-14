@@ -1,0 +1,4 @@
+Artículo 10.-Deberes de la Auditoría Interna: Durante el trámite de las denuncias, la Auditoría Interna tendrá los siguientes deberes:
+a) Garantizar el resguardo de la identidad del denunciante durante todo el proceso, aún y cuando haya concluido la atención de la denuncia y la eventual investigación que pudiera derivarse, incluso cuando el propio denunciante divulgue su identidad o cuando se sepa que ésta es conocida por otras instancias. Lo anterior, de conformidad con lo dispuesto sobre esta materia en la Ley General de Control Interno N° 8292, así como en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N° 8422.
+b) Brindar información a la persona denunciante, cuando lo solicite, sobre el estado de su gestión, sea directamente o bien de forma electrónica.
+c) Tramitar las denuncias dentro de un plazo razonable, acorde a su complejidad.

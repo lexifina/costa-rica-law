@@ -1,0 +1,1 @@
+Artículo 28.-Del Registro de denuncias: La Auditoría Interna mantendrá un Registro de las Denuncias que recibe en su oficina para efecto de controlar la asignación de cada una de ellas, así como custodiar adecuadamente cada una de las denuncias recibidas, en cumplimiento de la legislación vigente que protege la confidencialidad del denunciante.

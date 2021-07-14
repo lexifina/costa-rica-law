@@ -1,0 +1,4 @@
+Artículo 15.-De la comunicación con el denunciante: Cuando la denuncia sea presentada con indicación clara de dirección electrónica para notificaciones del denunciante, la Auditoría Interna deberá comunicarle lo siguiente:
+a) Al momento de recibir una denuncia, la Auditoría Interna deberá informar al denunciante de su recibido y del proceso que seguirá respecto de ella, para establecer su atención, desestimación o traslado.
+b) En el caso de admitir o desestimar la denuncia, la auditoría interna deberá informar al denunciante los argumentos y valoración legal de admisibilidad o desestimación de su gestión.
+c) De igual forma el denunciante tendrá derecho a que se le comunique el resultado final de la investigación producto de su gestión. Para ello se debe tomar en cuenta lo dispuesto en el último párrafo del artículo 30 de los presentes lineamientos.

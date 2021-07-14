@@ -1,0 +1,1 @@
+Artículo 19.-Solicitud de información a la Administración: La Auditoría Interna podrá solicitar información a la Administración y a otras instancias, de previo a admitir una denuncia para su trámite; lo cual suspenderá el plazo de análisis de admisibilidad establecido en el artículo 17 de los presentes lineamientos.
