@@ -1,6 +1,7 @@
 6 PREPARACIÓN PARA LA EVALUACIÓN IN SITU.
-6.1 Esta etapa aplica a todos los procesos de evaluación e implica la elaboración del ECA-MC-P13-F01 Plan de evaluación, la cual es coordinada por el Evaluador Líder con el Equipo Evaluador. Para OC y OVV, puede aplicar lo establecido en el ECA-MC-P11 Procedimiento para evaluación in situ para OC y OVV.
-En caso de que exista la participación de un Representante de una Institución Reguladora, la Secretaría de Acreditación respectiva le informa a este, sobre su participación en la evaluación, de acuerdo al plan de evaluación que se elabore.
+6.1 Esta etapa aplica a todos los procesos de evaluación e implica la elaboración del ECA-MCP13- F01 Plan de evaluación, la cual es coordinada por el Evaluador Líder con el Equipo Evaluador. Para OC y OVV, puede aplicar lo establecido en el ECA-MC-P11 Procedimiento para evaluación in situ para OC y OVV.
+En caso de que exista la participación de un Representante de una Institución Reguladora, la Secretaría de Acreditación respectiva le informa a este, sobre su participación en la
+evaluación, de acuerdo al plan de evaluación que se elabore.
 6.2 En caso necesario, el Equipo Evaluador puede solicitar al OEC información adicional a través de la Unidad de Logística y el OEC debe presentarla ante ésta para que la traslade al Equipo Evaluador. Dado que esta información adicional puede resultar en generar cambios sobre el plan de evaluación, el Equipo Evaluador puede esperar a que el OEC remita la información requerida para completarlo.
 6.3 El Evaluador Líder es el responsable de completar el ECA-MC-P13-F01 Plan de evaluación, para lo cual requiere la participación activa de los otros miembros del Equipo Evaluador.
 Nota: En caso de requerirlo, la Unidad de Logística puede solicitar enmiendas a los planes de evaluación presentados por el Evaluador Líder antes de enviarlos al OEC.

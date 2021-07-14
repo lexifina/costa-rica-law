@@ -1,5 +1,9 @@
-Anexo 3: Número de jornadas sugeridas para considerar en la planificación de procesos de evaluación in situ o remota.
+Anexo 3: Número de jornadas sugeridas para considerar en la planificación de
+procesos de evaluación in situ o remota.
+Tabla 1: Jornadas sugeridas para nivel de riesgo medio o estándar.
 [imagen]
+1 En caso que la certificación de producto tenga requisitos en nivel 3 y 4, considerar el tiempo del OCSG
+2 Son esquemas con normas en niveles 4 y 5. Pueden tener requisitos para el ECA.
 [imagen]
 A 3.1 El término jornada se refiere a un día de 8 horas de trabajo para un evaluador o evaluador líder, por tanto, si se incrementa la cantidad de evaluadores que participan en la evaluación de los requisitos normativos indicados, el tiempo se reduce de manera proporcional.
 A 3.2 El cuadro anterior es para evaluaciones con riesgo medio o estándar, sin embargo, durante el análisis de riesgos realizado por la secretaría se obtiene otro nivel de riesgo, la cantidad de jornadas puede modificarse.

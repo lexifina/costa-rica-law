@@ -11,7 +11,8 @@
 9.10 El Equipo Evaluador debe evitar confrontaciones, argumentos hostiles u ofensivos por parte o hacia el personal del OEC. En caso que esto suceda se debe reportar de inmediato al Evaluador Líder para que éste determine las acciones a tomar.
 9.11 La evaluación puede ser suspendida por el Equipo Evaluador cuando ocurran una de las siguientes situaciones:
 - Cuando no se brindan las facilidades para tener acceso a la documentación que se requiera como evidencia objetiva del cumplimiento con la norma contra la cual se evalúa, los documentos del sistema de gestión, políticas y criterios del ECA, etc.
-- Cuando la actitud del OEC agreda la integridad y/o dignidad de cualquiera de los miembros del Equipo Evaluador.
+- Cuando la actitud del OEC agreda la integridad y/o dignidad de cualquiera de los miembros
+del Equipo Evaluador.
 - Las indicadas en el ECA-MP Manual de Procedimientos para la evaluación y acreditación.
 - Que se presenten desastres naturales o accidentes, que puedan poner en peligro la integridad física de los evaluadores.
 9.12 En este caso el Evaluador Líder debe documentar las razones por las cuales se suspende la evaluación y el OEC debe firmar este documento.

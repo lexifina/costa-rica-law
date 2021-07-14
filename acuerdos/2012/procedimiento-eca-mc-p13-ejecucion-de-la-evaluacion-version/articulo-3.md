@@ -3,9 +3,11 @@
 3.2 Un Organismo de Evaluación de la Conformidad o el ECA puede solicitar grabar el proceso de evaluación y acreditación del cual tiene un interés directo. Para ello debe cumplir lo establecido en el ECA-MP-P06-I01 Lineamientos para la grabación del proceso de evaluación.
 3.3 Durante las evaluaciones de seguimiento y reevaluación, el Equipo Evaluador, debe considerar los siguientes aspectos:
 - Evaluación de la eficacia de las acciones correctivas y correcciones para atender las no conformidades de la evaluación anterior.
-- Testificación o evaluación de las actividades de evaluación de la conformidad, de acuerdo a lo solicitado por la Secretaría de Acreditación respectiva.
+- Testificación o evaluación de las actividades de evaluación de la conformidad, de acuerdo a
+lo solicitado por la Secretaría de Acreditación respectiva.
 - Que los cambios significativos en el OEC hayan sido notificados al ECA.
-- Verificación del Cumplimiento de los documentos: ECA-MP-P09-F02 Compromiso de acreditación y ECA-MP-P09-F05 Contrato para la prestación de servicios de acreditación por parte de Ente Costarricense de Acreditación al OEC.
+- Verificación del Cumplimiento de los documentos: ECA-MP-P09-F02 Compromiso de acreditación y ECA-MP-P09-F05 Contrato para la prestación de servicios de acreditación por
+parte de Ente Costarricense de Acreditación al OEC.
 - Informes finales / Informes de evaluación in situ o remotas de evaluaciones anteriores, anexos y expediente del OEC a evaluar de ser necesario.
 - Información adicional brindada por las Secretarías de Acreditación.
 3.4 El Evaluador Líder y el Equipo Evaluador deben considerar la documentación de referencia indicada en el ECA-MP-P02-I02 Documentos aplicables en los diferentes procesos de evaluación.

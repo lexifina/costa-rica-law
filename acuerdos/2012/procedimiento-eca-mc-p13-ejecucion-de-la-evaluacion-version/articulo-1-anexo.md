@@ -1,18 +1,9 @@
-ANEXOS
 Anexo 1: Ejemplos de redacción de objetivos y alcances de evaluación.
-| Objetivo de evaluación
-Inicial | Determinar el cumplimiento del Organismo de Evaluación de la Conformidad XXX, con su sistema de gestión de calidad, la norma INTE- ISO/IEC XXXX:20XX, los criterios y las políticas emitidas por el Ente Costarricense de Acreditación, ECA, para los ensayos, calibraciones, inspecciones o certificaciones declarados dentro del alcance de la evaluación.
-Seguimiento o Reevaluación | Evaluar la continuidad del sistema de gestión de calidad del OEC XXX, en el cumplimiento de la norma INTE-ISO/IEC XXXX:20XX, los criterios y las políticas emitidas por el Ente Costarricense de Acreditación ECA, para el seguimiento de su alcance acreditado.
-Ampliación | Determinar el cumplimiento e implementación del Sistema de Gestión de Calidad, del OEC XXX, en el cumplimiento de las cláusulas de la Norma INTE-ISO/IEC XXXX:20XX, los criterios y las políticas emitidas por el Ente Costarricense de Acreditación ECA, para la ampliación solicitada en su alcance de acreditación.
+[imagen]
 Nota: Cuando la evaluación sea un seguimiento o reevaluación en conjunto con una ampliación se deben documentar los dos objetivos.
 Ejemplos de redacción de alcance de la evaluación:
 Indicar las cláusulas que se evalúa de la norma de acreditación y el detallar las actividades a testificar.
-Tipo | Alcance de la evaluación
-Inicial | Para esta evaluación se evalúa el 100 % de las cláusulas de la Norma INTE-ISO/IEC XXXX:20XX; en el alcance solicitado de acreditación; incluidas la testificación y/o evaluación de los siguientes procedimientos: se deben detallar y enlistar los ensayos, calibraciones, inspecciones, sectores con el código y nombre como aparecen en el alcance acreditado
-Seguimiento | El alcance, para esta visita de seguimiento, considera la evaluación de las cláusulas de la Norma INTE-ISO/IEC XXXX:20XX definidas para el XXX seguimiento según el Anexo X del procedimiento ECA-MP-P10; todos los registros que evidencian la implementación de esta norma, de las políticas ECA, su compromiso de acreditación y los procedimientos del Sistema de Gestión de Calidad del OEC la testificación y/o evaluación de los procedimientos que se detallan: se deben detallar y enlistar los ensayos, calibraciones, inspecciones, sectores con el código y nombre como aparecen en el alcance acreditado
-| acreditado
-Reevaluación | Para esta evaluación se evalúa el 100 % de las cláusulas de la Norma INTE-ISO/IEC XXXX:20XX; todos los registros que evidencian la implementación de las políticas y procedimientos del Sistema de Gestión de Calidad del OEC XXX, el compromiso de su acreditación y la testificación y/o evaluación de los procedimientos; se deben detallar y enlistar los ensayos, calibraciones, inspecciones, sectores con el código y nombre como aparecen en el alcance acreditado
-Ampliación | El alcance, para la ampliación del OEC XXX, corresponde a la evaluación de los requisitos técnicos de la Norma INTE-ISO/IEC XXXX:20XX y la testificación y/o evaluación de los siguientes procedimientos: se deben detallar y enlistar los ensayos, calibraciones, inspecciones, sectores con el código y nombre como aparecen en el alcance acreditado
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr
-antes de hacer uso de esta versión, por si ha sido modificada.
+[imagen]
+[imagen]
+[imagen]
 Nota: Cuando la evaluación sea un seguimiento o reevaluación en conjunto con una ampliación se deben documentar los dos alcances de evaluación. Igual sucede para el caso de evaluaciones integradas, donde se evalúan dos o más normas, se deben colocar los dos objetivos y alcances que correspondan.
