@@ -1,0 +1,3 @@
+ARTÍCULO 8- Inversionistas
+Para la categoría de inversionistas, por el plazo que establece la presente ley, se establece un nuevo rango de inversión, con un capital no inferior a ciento cincuenta mil dólares estadounidenses (US$150 000, 00), según el tipo de cambio oficial de venta que determine el Banco Central de Costa Rica, ya sea en bienes inmuebles, bienes inscribibles, acciones, valores y proyectos productivos o proyectos de interés nacional. En aquellos casos que la inversión se regule mediante leyes especiales, será analizado de manera individual.
+Además, se podrán considerar inversionistas beneficiarios para la presente ley quienes inviertan en fondos de capital de riesgo o en proyectos de infraestructura turística sostenible.

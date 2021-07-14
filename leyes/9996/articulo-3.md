@@ -1,0 +1,2 @@
+ARTÍCULO 3- Declaratoria de interés público
+La presente ley es de interés público para el desarrollo de la atracción de inversionistas, rentistas y pensionados al territorio nacional. Para su cumplimiento, las instituciones de la Administración Pública podrán incluir aportes económicos para apoyar el cumplimiento de sus fines por medio de los presupuestos ordinarios y extraordinarios de la República.
