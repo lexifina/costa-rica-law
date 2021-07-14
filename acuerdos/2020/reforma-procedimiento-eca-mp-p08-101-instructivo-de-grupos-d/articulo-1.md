@@ -2,105 +2,78 @@ ENTE COSTARRICENSE DE ACREDITACIÓN
 El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: ECA-MP-P08-I01 Instructivo grupos de trabajo, pasa de versión 01 a versión 02, no tiene transitorio. ECA-MP-P09 Manual de procedimientos para la evaluación y acreditación: Emisión del certificado de acreditación, pasa de versión 04 a versión 05, no tiene transitorio. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.pho: así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San Jose, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez. Responsable: Ing. Fernando Vázquez Dovale, cédula N° 8-0130-0191, Gerente General.
 San José, octubre 19 del 2020.
 (Nota de Sinalevi: El presente procedimiento ECA-MP-P08-I01 Instructivo grupos de trabajo se extrajo del sitio web del Ente Costarricense de Acreditación y se transcribe a continuación:)
+(Nota de Sinalevi: EL presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 149 del 5 de agosto donde se actualiza la versión 8 y se publica la versión 9 y se transcribe a continuación:)
 [imagen]
-1. Objetivo
+TABLA DE CONTENIDO
+1. OBJETIVO ................................................................................................................................. 1
+2. ALCANCE ................................................................................................................................. 1
+3. GENERALIDADES .................................................................................................................... 2
+4. CONFORMACIÓN DE LOS GRUPOS DE TRABAJO DE LAS SECRETARÍAS DE
+ACREDITACIÓN .............................................................................................................................. 2
+5. TAREAS DE LOS GRUPOS DE TRABAJO .............................................................................. 4
+6. DESCRIPCIÓN DEL PROCESO DE REVISIÓN DE DOCUMENTOS Y EMISIÓN DE LA
+CONCLUSIÓN PARA PROCESOS DE EVALUACIÓN POR PARTE DEL GRUPO DE TRABAJO.4
+7. SEGUIMIENTO A LA COMPETENCIA DE LOS MIEMBROS O INTEGRANTES DE GRUPOS
+DE TRABAJO DE LAS SECRETARÍAS. ......................................................................................... 5
+8. ACLARACIONES ...................................................................................................................... 6
+9. TRANSITORIO .......................................................................................................................... 7
+10. IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 7
+ANEXOS ........................................................................................................................................... 8
+1. OBJETIVO
 Establecer criterios para la integración, términos de referencia y operación de los Grupos de Trabajo de las Secretarías de Acreditación, quienes, en conjunto con la Comisión de Acreditación, que forman parte del proceso de toma de decisión para los servicios de evaluación y acreditación del ECA.
-2. Alcance
+2. ALCANCE
 Aplica a Secretarías de Acreditación, personas que conforman los Grupos de Trabajo de las Secretarías, los evaluadores líderes y representantes de los OEC.
-3. Generalidades
-3.1. La toma de decisión de los procesos de evaluación y acreditación del ECA se realiza de acuerdo con lo establecido en el procedimiento de Toma de Decisión del Manual de Procedimientos para la Evaluación y Acreditación, ECA-MP-P08.
-3.2. Para procesos de evaluación inicial, ampliación del alcance de acreditación, reevaluaciones, extraordinarias para levantamiento de suspensiones, extraordinarias por procesos de investigación, de transición de norma y seguimientos o testificaciones donde se presente un cambio de alcance, la toma de decisión comprende las etapas de revisión técnica del proceso de evaluación por parte de los Grupos de Trabajo, la consecuente recomendación negativa o positiva por parte de la Secretaría de Acreditación respectiva y la toma de decisión final por parte de la Comisión de Acreditación.
-3.3. Para procesos de evaluaciones extraordinarias, diferentes a las indicadas en el apartado 3.2 de este procedimiento, así como en evaluaciones de seguimiento o testificación que no presenten modificaciones al alcance de acreditación, la toma de decisión comprende las etapas de revisión técnica del proceso de evaluación por parte del Grupo de Trabajo y confirmación de la acreditación por parte de las SA; en todos los casos esta confirmación implica que se mantiene el estado de acreditación del OEC, por ende la acreditación otorgada por la Comisión de Acreditación, por lo que no representa un nuevo derecho para el OEC.
-3.4. En caso de que el Grupo de Trabajo emita a la Secretaría de Acreditación una recomendación negativa por haberse encontrado un posible incumplimiento del OEC con sus obligaciones, la
-4. Conformación de los Grupos de Trabajo de las Secretarías de Acreditación
-4.1. Para la revisión de toda la documentación de un proceso de evaluación específico debidamente finalizado y la emisión de una recomendación sobre dicho proceso de evaluación, la Secretaría de Acreditación respectiva, debe asignar un Grupo de Trabajo, quienes deberán cumplir con todos los requisitos de competencias, establecidos por ECA, para ejecutar tareas específicas relacionadas con la revisión de la documentación y emisión de las conclusiones respectivas.
-4.2. Para cumplir con lo indicado en el apartado 4.1 de este documento, cada Grupo de Trabajo respectivo se conforma de la siguiente manera: 4.2.1. Un miembro que cuente con conocimientos en reglamentos y procedimientos ECA, relacionados con el proceso de evaluación y acreditación; se deben conocer los siguientes documentos como mínimo: 4.2.1.1. Manual de procedimientos de evaluación y acreditación. ECA-MP-P02, ECA-MP-P04, ECA-MP-P05, ECA-MP-P06, ECA-MP-P07, ECA-MP-P08, ECA-MP-P10, ECA-MP-P11.
-4.2.1.2. Procedimientos e instructivos relacionados al proceso de evaluación, ECA-MC-P13, ECA-MC-P13-I01, ECA-MC-P13-I06, ECA-MP-P08-I01 y ECA-MC-P11 (este último es específico para organismos de certificación).
-4.2.2. Una persona que cumpla con todos los requisitos de competencia, establecidos por ECA, para ser evaluador en el esquema de acreditación específico sobre el cual se emite la conclusión.
-4.2.3. Una o más personas, que cumplan con todos los requisitos de competencia, establecidos por ECA, para expertos técnicos o clúster de expertos técnicos en las actividades de evaluación de la conformidad específicas sobre las cuales se va a emitir la conclusión.
-4.2.4. La conformación del grupo del Grupo de Trabajo específico, debe asegurar que, en conjunto, las personas que lo integren cumplan con los requisitos de competencia indicados en los apartados 4.2.1 a 4.2.3. Por ejemplo, si para un proceso específico, se cuenta con personal interno de ECA, que además se encuentra calificado como evaluador en el esquema de acreditación específico, dicha persona reuniría dos de las competencias solicitadas, por tanto, solo sería necesario incorporar, al Grupo de Trabajo, una o varias personas que cumplan con los requisitos de competencia establecidos para expertos técnicos.
-4.2.5. Las personas que participan en el Grupo de Trabajo no deben haber sido parte del proceso de evaluación ni tampoco deben presentar ningún causal de impedimento o recusación establecidos en el procedimiento ECA-MP-P05. Este análisis debe ser realizado por la Secretaría de Acreditación respectiva.
-4.2.6. Para el caso de los procesos establecidos en 3.3 de este procedimiento, se podría utilizar, como parte del Grupo de Trabajo, los mismos expertos técnicos que participaron en el proceso de evaluación.
-4.2.7. Todos los integrantes de cada Grupo de Trabajo, diferentes al personal de ECA deben firmar ECA-MP-P08-F04 los términos de referencia de los Grupos de Trabajo.
-5. Tareas de los Grupos de Trabajo
-5.1. Cada Grupo de Trabajo que se conforme para la revisión y emisión de la conclusión sobre un proceso de evaluación específico, cuenta con la responsabilidad y los recursos requeridos para realizar las siguientes tareas:
-5.1.1. Leer y analizar el informe final de evaluación.
-5.1.2. Leer y analizar el informe PAC/VAC para verificar el tratamiento y respuesta del OEC a las no conformidades detectadas en la evaluación in situ o remota y la declaración de competencia del OEC. Lo anterior solamente aplica si fueron detectadas no conformidades durante el proceso de evaluación in situ o remota.
-5.1.3. Revisar y analizar el alcance de acreditación evaluado, cualquier modificación que se haya realizado al alcance de acreditación y el estado del cumplimiento del programa de evaluación para el OEC.
-5.1.4. Redactar y emitir conclusión respecto a lo revisado y analizado para enviarla a la Secretaría de Acreditación respectiva.
-5.1.5. Sugerir mejoras u otros insumos para las Secretarías de Acreditación y Equipos Evaluadores.
-6. Descripción del proceso de revisión de documentos y emisión de la conclusión para procesos de evaluación por parte del Grupo de Trabajo.
-6.1. Finalizadas las actividades indicadas en los procedimientos de evaluación, ECA-MP-P06 y de Actividades Posteriores a la Evaluación, ECA-MP-P07, según corresponda, para un determinado proceso de evaluación, la Secretaría de Acreditación respectiva debe conformar y convocar, en un plazo no mayor a 10 días hábiles, un Grupo de Trabajo para la revisión del proceso de evaluación específico.
-6.2. Para conformar un grupo de trabajo para la revisión de cada proceso de evaluación específico, la Secretaría de Acreditación respectiva, debe considerar y analizar cualquier potencial conflicto de interés o riesgo a la imparcialidad que puedan presentar los miembros que conformarán dicho grupo. Lo anterior para asegurar que al conformar un grupo de trabajo se cumpla con lo indicado en el apartado 4.2.5 de este documento.
-6.3. El Grupo de Trabajo conformado, debe revisar los siguientes documentos y registros del proceso de evaluación específico para el cual se va a emitir la conclusión: 6.3.1. Informe final del proceso de evaluación o testificación.
-6.3.2. Propuesta de Acciones por parte del OEC y Verificación por parte del ECA, ECA-MP-P07-F01.
-6.3.3. Alcance de Acreditación vigente del OEC, así como la información de cualquier modificación reciente realizada o solicitada a dicho alcance de acreditación. En los casos en que no se hubiese realizado ninguna modificación al alcance de acreditación que fue presentado en el proceso de toma de decisión anterior, solamente se presenta el alcance de acreditación vigente del OEC y se indica que no se han dado cambios o modificaciones recientes.
-6.3.4. Matrices o registros de las testificaciones realizadas y planificadas para el OEC en el ciclo de acreditación vigente o actual en que se encuentre dicho OEC.
-6.4. Los Grupos de Trabajo podrían solicitar a la Secretaría de Acreditación, Equipo Evaluador u OEC, información adicional o aclaraciones para poder emitir la conclusión respectiva.
-6.5. En caso que los Grupos de Trabajo soliciten información adicionales o aclaraciones, la Secretaría de Acreditación respectiva es la responsable de solicitar la información requerida al OEC, al Equipo Evaluador, o ambos, en un plazo de 5 días hábiles.
-6.6. El responsable de brindar la información o dar respuesta a las aclaraciones, cuenta con un plazo de 5 días hábiles para proporcionar lo solicitado. Una vez recibida la información la Secretaría de Acreditación, lo presenta nuevamente al Grupo de Trabajo respectivo.
-6.7. Una vez que el Grupo de Trabajo correspondiente esté conforme con la documentación presentada y no solicite ninguna aclaración o información adicional al respecto, procede con la redacción y emisión de las conclusiones respectivas, las cuales se deben registrar en el formulario ECA-MP-P08-I01-F01 Revisión por Grupos de Trabajo de las Secretarías, dicho registro debe ser trasladado y presentado a la Secretaría de Acreditación correspondiente, en un plazo de 5 días hábiles. Esta información debe estar debidamente archivada en el expediente del OEC en específico.
-6.8. Para los procesos de evaluación indicados en el apartado 3.2 de este procedimiento, la Secretaría de Acreditación debe analizar la información que se documente en el formulario ECA-MP-P08-I01-F01 y debe emitir una recomendación a la Comisión de Acreditación, mediante el ECA-MP-P08-I01-F03 Recomendación de la Secretaría a Comisión de Acreditación. Esta información debe estar debidamente archivada en el expediente del OEC en específico.
-6.9. Para los procesos de evaluación indicados en el apartado 3.3 de este procedimiento, la Secretaría de Acreditación debe analizar la información que se documente en el formulario ECA-MP-P08-I01-F01 y se podrían dar las siguientes opciones:
-6.10. Los Grupos de Trabajo, para poder realizar sus tareas específicas descritas en el presente documento, podrán aplicar uno o más de los siguientes mecanismos de trabajo: 6.10.1. Revisión de documentos de manera remota y comunicación mediante correo electrónico. En estos casos además de contar con el registro ECA-MP-P08-I01-F01 se debe contar con toda la evidencia de la comunicación de sus miembros mediante correos electrónicos.
-6.10.2. Trabajo conjunto de los miembros mediante videoconferencia utilizando algunas de las aplicaciones tecnológicas para este tipo de mecanismos, como, por ejemplo, Google Meet, Skype, Zoom, MS teams, entre otras aplicaciones. En estos casos se deben adjuntar al registro ECA-MP-P08-I01-F01, fotografías o evidencias de la realización de la videoconferencia entre los integrantes del Grupo de Trabajo.
-6.10.3. Reunión presencial de los integrantes del Grupo de Trabajo, en las instalaciones de ECA u otras instalaciones previamente definidas. En estos casos además de contar con el registroECA-MP-P08-I01-F01, se puede anexar la lista de asistencia de la reunión respectiva.
-a. En los casos donde la conclusión es que el OEC está cumpliendo los requisitos de las normas aplicables y los criterios de acreditación, la Secretaría de Acreditación respectiva se debe emitir una confirmación de estado de acreditación, mediante el ECA-MP-P08-F04 Confirmación de estado de acreditación de OEC por secretarías de acreditación.
-b. En los casos donde la conclusión es que el OEC no está cumpliendo los requisitos de las normas aplicables y los criterios de acreditación la Secretaría de Acreditación respectiva debe seguir lo establecido en el procedimiento ECA-MC-P16 Procedimiento para el cumplimiento del debido proceso en el Ente Costarricense de Acreditación.
-Esta información debe estar debidamente archivada en el expediente del OEC en específico.
-7. Seguimiento a la competencia de los miembros o integrantes de Grupos de Trabajo de las Secretarías.
-7.1. El seguimiento a la competencia técnica de los integrantes de los grupos de trabajo se realizará de la siguiente forma:
-7.1.1. En caso de personal que pertenece a las Secretarías de Acreditación, el seguimiento a la competencia relacionada con el conocimiento en procedimientos de evaluación y acreditación, se realizará en conjunto con la evaluación de desempeño, de acuerdo a lo establecido en el procedimiento ECA-MC-MA-P04 de evaluación de desempeño del personal de ECA.
-7.1.2. En el caso de que la persona del Grupo de Trabajo esté autorizado como evaluador o expertos técnico por el ECA, se debe utilizar los datos de su valoración de la competencia obtenidos del monitoreo de los procesos de evaluación, esto para garantizar la competencia técnica en la norma y requisitos de acreditación específicos, así como en el esquema de evaluación de la conformidad.
-7.1.3. En los casos de participación de personas que cumplan con los requisitos de conocimiento en los procedimientos e instructivos del proceso de evaluación y acreditación, de acuerdo a lo indicado en el apartado 4.2.1 de este procedimiento, pero que no forman parte del personal de las Secretarías de Acreditación de ECA, el seguimiento a la competencia debe ser realizado por personal de la Secretaría de Acreditación respectiva, con una frecuencia adecuada, basada en el riesgo de las funciones que realiza la persona y en la frecuencia con que las realiza. La evaluación anterior debe ser documentada en el formato ECA-MP-P08-I01-F02.
-7.1.4. En los casos de participación de personas que cumplan con los requisitos de competencia establecidos para evaluadores o para expertos técnicos, pero que no forman parte del Cuerpo de Evaluadores y Expertos Técnicos, CEE de ECA, el seguimiento a la competencia debe ser realizado por personal de la Secretaría de Acreditación respectiva, con una frecuencia adecuada, basada en el riesgo de las funciones que realiza la persona y en la frecuencia con que las realiza. La evaluación anterior debe ser documentada en el formato ECA-MP-P08-I01-F02.
-7.1.5. El seguimiento de las tareas en la realización del proceso o proyecto específico del Grupo de Trabajo, serán realizadas por el personal de la Secretaría de Acreditación respectiva, con una frecuencia no mayor a 12 meses y utilizando el formato ECA-MP-P08-I01-F02.
-7.1.6. La Secretaría de Acreditación respectiva es la responsable de aplicar y documentar las acciones que sean necesarias, de acuerdo a los resultados de las evaluaciones de seguimiento a las competencias de los miembros de los Grupos de Trabajo.
-8. TRANSITORIO
+3. GENERALIDADES
+3.1 La toma de decisión de los procesos de evaluación y acreditación del ECA se realiza de acuerdo con lo establecido en el procedimiento de Toma de Decisión del Manual de Procedimientos para la Evaluación y Acreditación, ECA-MP-P08.
+3.2 Para procesos de evaluación inicial, ampliación del alcance de acreditación, reevaluaciones, extraordinarias para levantamiento de suspensiones, extraordinarias por procesos de investigación, de transición de norma y seguimientos o testificaciones donde se presente un cambio de alcance, la toma de decisión comprende las etapas de revisión técnica del proceso de evaluación por parte de los Grupos de Trabajo, la consecuente recomendación negativa o positiva por parte de la Secretaría de Acreditación respectiva y la toma de decisión final por parte de la Comisión de Acreditación.
+3.3 En caso de que el Grupo de Trabajo emita a la Secretaría de Acreditación una recomendación negativa por haberse encontrado un posible incumplimiento del OEC con sus obligaciones, la Secretaría de Acreditación debe trasladar el proceso a la Comisión de Acreditación para su respectivo análisis y toma de decisión correspondiente.
+4. CONFORMACIÓN DE LOS GRUPOS DE TRABAJO DE LAS SECRETARÍAS DE ACREDITACIÓN
+4.1 Para la revisión de toda la documentación de un proceso de evaluación específico debidamente finalizado y la emisión de una recomendación sobre dicho proceso de evaluación, la Secretaría de Acreditación respectiva, debe asignar un Grupo de Trabajo, quienes deberán cumplir con todos los requisitos de competencias, establecidos por ECA, para ejecutar tareas específicas relacionadas con la revisión de la documentación y emisión de las conclusiones respectivas.
+4.2 Para cumplir con lo indicado en el apartado 4.1 de este documento, cada Grupo de Trabajo respectivo se conforma de la siguiente manera:
+4.2.1 Un miembro que cuente con conocimientos en reglamentos y procedimientos ECA, relacionados con el proceso de evaluación y acreditación; se deben conocer los siguientes documentos como mínimo:
+4.2.1.1 Manual de procedimientos de evaluación y acreditación. ECA-MP-P02, ECA-MP-P04, ECA-MP-P05, ECA-MP-P06, ECA-MP-P07, ECA-MP-P08, ECA-MP-P10, ECA-MP-P11.
+4.2.1.2 Procedimientos e instructivos relacionados al proceso de evaluación, ECA-MC-P13, ECA-MC-P13-I01, ECA-MC-P13-I06, ECA-MP-P08-I01 y ECA-MC-P11 (este último es específico para organismos de certificación).
+4.2.2 Una persona que cumpla con todos los requisitos de competencia, establecidos por ECA, para ser evaluador en el esquema de acreditación específico sobre el cual se emite la conclusión.
+4.2.3 Una o más personas, que cumplan con todos los requisitos de competencia, establecidos en el anexo I de este instructivo, para las actividades de evaluación de la conformidad específicas sobre las cuales se va a emitir la conclusión. Esta persona se enfocará en revisar los aspectos técnicos de las actividades de evaluación de la conformidad.
+4.2.4 La SA respectiva debe incluir y mantener actualizado el ECA-MP-P08-I01-F05 Directorio integrantes de Grupos de Trabajo. Si la SA no cuenta con alguna persona dentro del directorio para una actividad de evaluación de la conformidad específica, debe proceder a la búsqueda e inclusión inmediata según los criterios de competencia del Anexo 1 de este instructivo.
+4.2.5 La conformación del grupo del Grupo de Trabajo específico, debe asegurar que, en conjunto, las personas que lo integren cumplan con los requisitos de competencia indicados en los apartados 4.2.1 a 4.2.3. Por ejemplo, si para un proceso específico, se cuenta con personal interno de ECA, que además se encuentra calificado como evaluador en el esquema de acreditación específico, dicha persona reuniría dos de las competencias solicitadas, por tanto, solo sería necesario incorporar, al Grupo de Trabajo, una o varias personas que cumplan con los requisitos de competencia establecidos en el anexo I de este instructivo.
+4.2.6 Las personas que participan en el Grupo de Trabajo no deben haber sido parte del proceso de evaluación ni deben tener conflicto de interés con los OEC. Por lo que las Secretarías de Acreditación deben enviar al OEC la propuesta de las personas que participarán en el Grupo de Trabajo, para que se analice si hay alguna situación que implique motivos de impedimento y recusación referidos como conflicto de interés, tal y como se establecen en el procedimiento ECA-MP-P05. Este análisis debe ser realizado por la Secretaría de Acreditación respectiva.
+4.2.7 Todos los integrantes de cada Grupo de Trabajo, diferentes al personal de ECA deben firmar ECA-MP-P08-I01-F04 los términos de referencia de los Grupos de Trabajo.
+4.2.8 En los casos en que algún integrante de Grupos de Trabajo, diferente a personal de ECA, pertenezca a una Institución Pública que cuente con un convenio con el ECA, donde se define y respalda el tipo de relación de dicha persona con el ECA, no es requerida la firma del registro ECA-MP-P08-I01-F04, sino que solamente con la firma de un compromiso de confidencialidad, ECA-MC-P01-F01 como integrante Grupo de Trabajo y una breve explicación por parte del ECA al integrante del Grupo de Trabajo, sobre el trabajo a realizar en dicho Grupo de Trabajo es suficiente para que la persona pueda participar o apoyar en los Grupos de Trabajo correspondientes.
+5. TAREAS DE LOS GRUPOS DE TRABAJO
+5.1 Cada Grupo de Trabajo que se conforme para la revisión y emisión de la conclusión sobre un proceso de evaluación específico, cuenta con la responsabilidad y los recursos requeridos para realizar las siguientes tareas:
+5.1.1 Leer y analizar el informe final de evaluación.
+5.1.2 Leer y analizar el informe PAC/VAC para verificar el tratamiento y respuesta del OEC a las no conformidades detectadas en la evaluación in situ o remota y la declaración de competencia del OEC. Lo anterior solamente aplica si fueron detectadas no conformidades durante el proceso de evaluación in situ o remota.
+5.1.3 Revisar y analizar el alcance de acreditación evaluado, cualquier modificación que se haya realizado al alcance de acreditación y el estado del cumplimiento del programa de evaluación para el OEC.
+5.1.4 Redactar y emitir conclusión respecto a lo revisado y analizado para enviarla a la Secretaría de Acreditación respectiva.
+5.1.5 Sugerir mejoras u otros insumos para las Secretarías de Acreditación y Equipos Evaluadores.
+6. DESCRIPCIÓN DEL PROCESO DE REVISIÓN DE DOCUMENTOS Y EMISIÓN DE LA CONCLUSIÓN PARA PROCESOS DE EVALUACIÓN POR PARTE DEL GRUPO DE TRABAJO.
+6.1 Finalizadas las actividades indicadas en los procedimientos de evaluación, ECA-MP-P06 y de Actividades Posteriores a la Evaluación, ECA-MP-P07, según corresponda, para un determinado proceso de evaluación, la Secretaría de Acreditación respectiva debe conformar y convocar, un Grupo de Trabajo para la revisión del proceso de evaluación específico.
+6.2 Para conformar un grupo de trabajo para la revisión de cada proceso de evaluación específico, la Secretaría de Acreditación respectiva, debe considerar y analizar cualquier potencial conflicto de interés o riesgo a la imparcialidad que puedan presentar los miembros que conformarán dicho grupo.
+6.3 El Grupo de Trabajo conformado, debe revisar todos los documentos y registros referidos en el ECA-MP-P08-I01-F01 y completar dicho registro con el resultado de la revisión realizada.
+6.4 Los Grupos de Trabajo podrían solicitar a la Secretaría de Acreditación, Equipo Evaluador u OEC, información adicional o aclaraciones para poder emitir la conclusión respectiva.
+6.5 En caso que los Grupos de Trabajo soliciten información adicionales o aclaraciones, la Secretaría de Acreditación respectiva es la responsable de solicitar y brindar la información requerida.
+6.6 Una vez que el Grupo de Trabajo correspondiente esté conforme con la documentación presentada y no solicite ninguna aclaración o información adicional al respecto, procede con la redacción y emisión de las conclusiones respectivas, las cuales se deben registrar en el formulario ECA-MP-P08-I01-F01 Revisión por Grupos de Trabajo de las Secretarías, dicho registro debe ser trasladado y presentado a la Secretaría de Acreditación correspondiente.
+6.7 Para los procesos de evaluación indicados en el apartado 3.2 de este procedimiento, la Secretaría de Acreditación debe analizar la información que se documente en el formulario ECA-MP-P08-I01-F01 y debe emitir una recomendación a la Comisión de Acreditación, mediante el ECA-MP-P08-I01-F03 Recomendación de la Secretaría a Comisión de Acreditación. Esta información debe estar debidamente archivada en el expediente del OEC en específico.
+6.8 Los Grupos de Trabajo, para poder realizar sus tareas específicas descritas en el presente documento, podrán aplicar uno o más de los siguientes mecanismos de trabajo:
+6.8.1 Revisión de documentos de manera remota y comunicación mediante correo electrónico. En estos casos además de contar con el registro ECA-MP-P08-I01-F01 se debe contar con toda la evidencia de la comunicación de sus miembros mediante correos electrónicos.
+6.8.2 Trabajo conjunto de los miembros mediante videoconferencia utilizando algunas de las aplicaciones tecnológicas para este tipo de mecanismos, como, por ejemplo, Google Meet, Skype, Zoom, MS teams, entre otras aplicaciones. En estos casos se deben adjuntar al registro ECA-MP-P08-I01-F01, fotografías o evidencias de la realización de la videoconferencia entre los integrantes del Grupo de Trabajo.
+6.8.3 Reunión presencial de los integrantes del Grupo de Trabajo, en las instalaciones de ECA u otras instalaciones previamente definidas. En estos casos además de contar con el registroECA-MP-P08-I01-F01, se puede anexar la lista de asistencia de la reunión respectiva.
+7. SEGUIMIENTO A LA COMPETENCIA DE LOS MIEMBROS O INTEGRANTES DE GRUPOS DE TRABAJO DE LAS SECRETARÍAS.
+7.1 El seguimiento a la competencia técnica de los integrantes de los grupos de trabajo se realizará de la siguiente forma:
+7.1.1 En caso de personal que pertenece a las Secretarías de Acreditación, el seguimiento a la competencia relacionada con el conocimiento en procedimientos de evaluación y acreditación, se realizará en conjunto con la evaluación de desempeño, de acuerdo a lo establecido en el procedimiento ECA-MC-MA-P04 de evaluación de desempeño del personal de ECA.
+7.1.2 En el caso de que la persona del Grupo de Trabajo esté autorizado como evaluador o expertos del CEE por el ECA, se debe utilizar los datos de su valoración de la competencia obtenidos del monitoreo de los procesos de evaluación, esto para garantizar la competencia técnica en la norma y requisitos de acreditación específicos, así como en el esquema de evaluación de la conformidad.
+7.1.3 En los casos de participación de personas que cumplan con los requisitos de conocimiento en los procedimientos e instructivos del proceso de evaluación y acreditación, de acuerdo a lo indicado en el apartado 4.2.1 de este procedimiento, pero que no forman parte del personal de las Secretarías de Acreditación de ECA, el seguimiento a la competencia debe ser realizado por personal de la Secretaría de Acreditación respectiva, con una frecuencia adecuada, basada en el riesgo de las funciones que realiza la persona y en la frecuencia con que las realiza. La evaluación anterior debe ser documentada en el formato ECA-MP-P08-I01-F02.
+7.1.4 En los casos de participación de personas que cumplan con los requisitos de competencia establecidos para evaluadores o para personal técnico de acuerdo al anexo 1 de este documento, pero que no forman parte del Cuerpo de Evaluadores y Expertos Técnicos, CEE de ECA, el seguimiento a la competencia debe ser realizado por personal de la Secretaría de Acreditación respectiva, con una frecuencia adecuada, basada en el riesgo de las funciones que realiza la persona y en la frecuencia con que las realiza. La evaluación anterior debe ser documentada en el formato ECA-MP-P08-I01-F02.
+7.1.5 El seguimiento de las tareas en la realización del proceso o proyecto específico del Grupo de Trabajo, serán realizadas por el personal de la Secretaría de Acreditación respectiva, con una frecuencia no mayor a 12 meses y utilizando el formato ECA-MP-P08-I01-F02.
+7.1.6 La Secretaría de Acreditación respectiva es la responsable de aplicar y documentar las acciones que sean necesarias, de acuerdo a los resultados de las evaluaciones de seguimiento a las competencias de los miembros de los Grupos de Trabajo.
+8. ACLARACIONES
+Para términos de este instructivo, se ha tomado como referencia el documento emitido por el
+grupo de trabajo de la serie-A de IAF/ILAC Preguntas frecuentes sobre la implementación de cláusulas específicas de la ISO/IEC 17011 y publicado por IAAC en español, en lo que corresponde a la FAQ 6.
+9. TRANSITORIO
 No aplica.
-9. IDENTIFICACIÓN DE CAMBIOS
-Motivo: | Creación de instructivo.
-Refiérase a la solicitud de elaboración o modificación del documento número 2020-162
-Observaciones Se modifican o incluyen los apartados subrayados.
-10. ANEXO 1. COMPETENCIAS DE LAS PERSONAS QUE PARTICIPAN EN LOS GRUPOS DE TRABAJO EN LOS DIFERENTES ESQUEMAS DE ACREDITACIÓN 10.1 Evidencias de conocimientos para expertos
-Esquema de acreditación | Normas que se debe tener conocimiento
-Organismos Validadores-Verificadores | INTE-ISO 14065 / INTE-ISO 17029
-Organismos de Inspección | INTE-ISO/IEC 17020
-Organismos de Certificación de Sistemas de Gestión de Calidad | INTE-ISO/IEC 17021-1
-Organismos de Certificación de Sistemas de Gestión Ambiental
-Organismos de Certificación de Sistemas de Igualdad de Género
-Organismos de Certificación de Sistemas de Inocuidad de alimentos
-Organismos de Certificación de Sistemas de Cadena de suministro
-Organismos de Certificación de Sistemas de la energía
-Organismos de Certificación de Sistemas de Gestión de salud ocupacional
-Organismos de Certificación de Personas | INTE-ISO/IEC 17024
-Laboratorios de ensayo y calibración | INTE-ISO/IEC 17025
-Organismos de Certificación de Producto | INTE-ISO/IEC 17065
-Ensayos de aptitud | INTE-ISO/IEC 17043
-Laboratorios clínicos | INTE-ISO 15189
-Materiales de referencia | INTE-ISO/IEC 17034
-10.1 Evidencias de conocimientos para expertos
-1. Conocimientos de los requisitos de esquemas de evaluación de la conformidad, otros procedimientos y métodos usados por el OEC.
-2. Conocimientos de los requisitos reglamentarios generales relacionados con las actividades de evaluación de la conformidad.
-3. Conocimientos de las prácticas y procesos del entorno de trabajo del organismo de evaluación de la conformidad.
-4. Conocimiento adquirido en la inducción para expertos que brinda cada Secretaría de ECA: Mínimo entrevistas/examen personal, revisión de instalaciones, revisión de expedientes, revisión de los procedimientos técnicos
-Evidencias de cumplimiento con las habilidades y/o atributos requeridos para expertos:
-1. Comunicación oral y escrita
-2. Trabajo en equipo
-3. Comunicación asertiva
-4. Comprensión de lectura
-5. Capacidad de análisis
-6. Atención al detalle
-7. Sintetizar información, imparcialidad, manejo del tiempo. 10.2 Evidencia de conocimientos para personal que no está dentro del CEE ni es parte de la Secretaría (NA para expertos)
-a. Conocimientos en acreditación:
-1. Manual de procedimientos de evaluación y acreditación. ECA-MP-P02, ECA-MP-P04, ECA-MP-P05, ECA-MP-P06, ECA-MP-P07, ECA-MP-P08, ECA-MP-P10, ECA-MP-P11.
-2. Procedimientos e instructivos relacionados al proceso de evaluación, ECA-MC-P13, ECA-MC-P13-I01, ECA-MC-P13-I06, ECA-MP-P08-I01 y ECA-MC-P11 (este último es específico para organismos de certificación).
-b. Conocimientos en el esquema de acreditación 10.3 Evidencias de cumplimiento con las habilidades y/o atributos para personal que no pertenece a una Secretaría ni forma parte del CEE (NA para expertos)
-Cumple con todos los requisitos de competencia, establecidos por ECA, para ser evaluador en el esquema de acreditación específico sobre el cual se emite la recomendación. Habilidades | Evidencia
-Comunicación oral y escrita
-Trabajo en equipo
-Comunicación asertiva
-Comprensión de lectura
-Capacidad de análisis
-Atención al detalle
-Sintetizar información, imparcialidad, manejo del tiempo
+10. IDENTIFICACIÓN DE CAMBIOS
+Motivo: Creación de instructivo.
+Refiérase a la solicitud de elaboración o modificación del documento número 2021-125
+Observaciones
+Se modifican o incluyen los apartados subrayados.
