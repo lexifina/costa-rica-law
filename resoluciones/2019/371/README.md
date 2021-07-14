@@ -14,3 +14,4 @@ Corresponderá al Puesto Aduanero Las Tablillas brindar los servicios de control
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-01 | la propia norma |
+| 2 | 2021-07-14 | Resolución 263 (2021-07-14) |
