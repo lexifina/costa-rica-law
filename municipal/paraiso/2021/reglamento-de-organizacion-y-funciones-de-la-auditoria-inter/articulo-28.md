@@ -1,0 +1,1 @@
+Artículo 28.-Obligación de asesorar a la Auditoría. La asesoría legal de la institución, tiene la obligación de brindar el oportuno y efectivo servicio mediante los estudios jurídicos que requiera la auditoría interna, de conformidad con lo establecido en la Ley General de Control Interno.

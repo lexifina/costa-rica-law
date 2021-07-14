@@ -1,0 +1,4 @@
+CAPÍTULO IV
+SECCIÓN PRIMERA
+Del Auditor Interno
+Artículo 14.-Jornada Laboral y nombramiento. La jornada laboral del auditor será a tiempo completo y su nombramiento será por tiempo indefinido y lo hará el Concejo Municipal, conforme lo establecido en el Código Municipal y la Ley General de Control Interno, en observancia con los "Lineamientos sobre los requisitos de los cargos de auditor y subauditor interno", emitidos por la Contraloría General. El auditor interno dependerá y responderá directamente por su gestión ante esa autoridad, sin embargo, podrá ingresar y dejar las instalaciones de la Municipalidad en horas distintas al horario establecido en el cumplimiento de sus funciones y competencias, salvo que institucionalmente y con carácter general, se establezcan restricciones al respecto.

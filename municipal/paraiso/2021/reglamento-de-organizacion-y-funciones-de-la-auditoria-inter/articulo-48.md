@@ -1,0 +1,3 @@
+SECCIÓN SEXTA
+Del trámite de las denuncias
+Artículo 48.-Admisibilidad de denuncias. La Auditoría Interna recibirá las denuncias que le son dirigidas por parte de personas físicas o jurídicas, públicas o privadas y funcionarios de la Municipalidad de Paraíso; que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos o que afecten la Hacienda Pública, según lo establecido en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N° 8422.

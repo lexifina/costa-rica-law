@@ -1,0 +1,1 @@
+Artículo 29.-Asesoría de Profesionales. La auditoría interna puede incorporar profesionales o técnicos de diferentes disciplinas para que lleven a cabo labores de su especialidad en apoyo a las auditorías que se realicen.

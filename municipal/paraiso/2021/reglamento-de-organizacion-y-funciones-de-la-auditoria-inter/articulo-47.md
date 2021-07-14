@@ -1,0 +1,3 @@
+SECCIÓN QUINTA
+Del seguimiento de recomendaciones
+Artículo 47.-Del programa de seguimiento de las recomendaciones. La Unidad de Auditoria Interna dispondrá de un programa de seguimiento de las recomendaciones aceptadas por la Administración, que hayan sido formuladas en sus memorandos e informes de auditoría, con la finalidad de verificar si esas recomendaciones han sido puestas en práctica también deberá dársele seguimiento a las disposiciones emitidas por la Contraloría General de la República y de los despachos de Contadores Públicos, en los dos últimos casos cuando sean de su conocimiento.

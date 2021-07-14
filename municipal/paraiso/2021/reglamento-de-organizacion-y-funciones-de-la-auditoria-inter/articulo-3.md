@@ -1,0 +1,17 @@
+Artículo 3º-Para efectos del presente reglamento se entiende por:
+Administración Activa: Uno de los dos componentes orgánicos del Sistema de Control Interno. Desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Desde el punto de vista orgánico, es el conjunto de entes y órganos de la función administrativa que deciden y ejecutan, incluyendo al jerarca como última instancia.
+Control Interno: Es un proceso ejecutado por la Administración Activa, diseñado específicamente para proporcionar seguridad razonable respecto a la consecución de los siguientes objetivos:
+a) Proteger y conservar el patrimonio contra cualquier pérdida, despilfarro, uso irregular o acto ilegal.
+b) Exigir confiabilidad y oportunidad de la información
+c) Garantizar la eficiencia y eficacia de las operaciones.
+d) Cumplir con el ordenamiento jurídico y técnico.
+Contraloría General: La Contraloría General de la República de Costa Rica en su condición de órgano auxiliar de la Asamblea Legislativa que fiscaliza el uso de fondos públicos para mejorar la gestión de la Hacienda Pública y contribuir al control político y ciudadano.
+Jerarca: Superior Jerárquico del órgano o del ente; ejerce la máxima autoridad dentro del órgano o ente, unipersonal o colegiado.
+Municipalidad: Municipalidad de Paraíso.
+Alcalde o Alcaldesa: Alcalde o Alcaldesa Municipal de Paraíso, quién ocupe el cargo según lo previsto en la Constitución Política y lo definido en la legislación ordinaria. Auditor Interno: La máxima autoridad de la Auditoría Interna de la Municipalidad de Paraíso.
+Concejo: El Concejo Municipal de Paraíso.
+Informes de Auditoría: Documento mediante el cual la organización de auditoría comunica formalmente a la Administración sujeta a examen, los resultados de la auditoría efectuada, incluyendo las respectivas conclusiones y recomendaciones. Plan Anual de Auditoría: Cronograma de las actividades que deberán realizar los funcionarios de Auditoría Interna en determinado período de tiempo.
+Seguimiento del Sistema de Control Interno: Son todas aquellas actividades que se realizan para valorar la calidad, el funcionamiento del sistema de control interno, a lo largo del tiempo, para asegurar que los hallazgos de auditoría y los resultados de otras revisiones se atienden oportunamente.
+Servicio de Advertencia: Es un servicio dirigido a los órganos sujetos a la competencia institucional de la Auditoría Interna, y consiste en señalar los posibles riesgos y eventuales consecuencias de determinadas conductas o decisiones, cuando sean de conocimiento de la Auditoría Interna.
+Servicio de Asesoría: Es un servicio dirigido al jerarca y consiste en el suministro de criterios, observaciones y demás elementos de juicio para la toma de decisiones con respecto a los temas que son competencia de la Auditoría Interna. También puede ser brindado a otras instancias institucionales, si la Auditoría Interna lo considere pertinente, siempre y cuando no se incurra en coadministración.
+Servicio de Autorización de Libros: Es una obligación asignada de manera específica a la Auditoría Interna, que consiste en el acto de otorgar la razón de apertura y cierre de los libros de contabilidad y de actas que deban llevarse en la institución respectiva. Así también, aquellos otros libros que a criterio de la Auditoría Interna deban cumplir con este requisito.

@@ -1,0 +1,1 @@
+Artículo 39.-Pericia y debido cuidado profesional. Los funcionarios de la Auditoria Interna deberán realizar su trabajo con pericia y cuidado profesional. Las personas asignadas a cada trabajo deberán poseer, en conjunto, los conocimientos, técnicas y otras competencias para desempeñarlo adecuadamente.

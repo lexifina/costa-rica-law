@@ -1,0 +1,3 @@
+Artículo 53.-Presentación y trámite. Las denuncias presentadas deberán ser registradas de tal manera que puedan identificarse y darles seguimiento con facilidad y oportunidad. Lo anterior, según el procedimiento que al efecto apruebe la Auditoría Interna.
+El Titular de la Auditoría Interna comunicará al denunciante en un plazo de diez días hábiles el recibido de la misma y luego en un plazo de treinta días hábiles lo analizará y a la vez le comunicará al denunciante su admisibilidad o desestimación.
+Declarada la admisibilidad de la denuncia, se procederá a realizar la investigación preliminar.

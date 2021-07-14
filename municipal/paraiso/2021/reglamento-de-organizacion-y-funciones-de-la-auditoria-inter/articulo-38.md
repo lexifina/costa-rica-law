@@ -1,0 +1,2 @@
+Artículo 38.-Acceso a los registros de trabajo. El Auditor Interno deberá controlar el acceso a los registros y papeles de trabajo de los estudios que se realicen, de personas ajenas a la Auditoría Interna. Deberá tomar las previsiones de modo que se requiera de su autorización o la de quién él designe para que se pueda acceder a esta información.
+Además, deberá establecer requisitos de custodia para los registros y documentación de trabajo.
