@@ -1,3 +1,0 @@
-3. DOCUMENTOS MANDATORIOS
-Este documento incluye el apartado 7.7 Evaluación in situ, del documento mandatorio MD 16 Aplicación de la ISO/IEC 17011 para la acreditación de Organismos de Certificación de Sistemas de Gestión de Seguridad Alimentaria., vigente.
-A efectos de clarificar la estructura del presente documento se entiende que, la palabra “debería” se utiliza para indicar disposiciones que son consideradas como un medio reconocido para cumplir con los requisitos de la norma. Un OEC puede cumplir estos requisitos por un modo equivalente siempre que esto pueda ser demostrado a un Organismo de Acreditación. La palabra “debe” es usada en este documento para indicar aquellas disposiciones que, reflejando los requisitos de la norma correspondiente, son obligatorias.

@@ -14,3 +14,4 @@ Procedimiento ECA-MC-C14 Criterios para organismos de certificación de nocuidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-08 | la propia norma |
+| 2 | 2021-07-14 | Acuerdo 9 (2021-07-14) |
