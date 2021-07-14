@@ -1,0 +1,1 @@
+Artículo 10º.-Límite de proyectos beneficiados por convocatoria. Las personas jurídicas que participen con varios proyectos en la misma convocatoria del Fondo, solo podrán ser beneficiadas con uno de los proyectos.

@@ -1,0 +1,3 @@
+Artículo 19º.-Sobre la declaratoria de beneficiarios. La recomendación del Jurado Seleccionador será elevada por la Dirección General del CCPC ante el Consejo Nacional de Cinematografía, en conjunto con los resultados de admisibilidad, certificación de contenido presupuestario y otras consideraciones de interés para la decisión.
+El Consejo Nacional de Cinematografía podrá apartarse de la recomendación mediante resolución motivada y fundamentada, únicamente por criterios de interés público, asignación de fondos y razones administrativo-financieras.
+No procederá recurso administrativo alguno contra el acuerdo del Consejo Nacional de Cinematografía que declare los resultados y beneficiarios del Fondo.
