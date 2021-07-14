@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MP-P06 Manual de procedimientos de evaluación y acred
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-15 | la propia norma |
+| 2 | 2021-07-14 | Acuerdo 9 (2021-07-14) |
