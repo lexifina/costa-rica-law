@@ -18,3 +18,4 @@ Procedimiento ECA-MC-P23 Conformación y sesión de los órganos colegiados (Ver
 | 3 | 2015-09-07 | Acuerdo 0 (2015-09-07) |
 | 4 | 2016-04-18 | Acuerdo 5 (2016-04-18) |
 | 5 | 2020-06-25 | Acuerdo 8 (2020-06-25) |
+| 6 | 2021-07-14 | Acuerdo 9 (2021-07-14) |
