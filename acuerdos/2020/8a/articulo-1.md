@@ -1,7 +1,5 @@
-ENTE COSTARRICENSE DE ACREDITACIÓN
-N° 2020-008. El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: ECA-MC-P23 Conformación y sesión de órganos colegiados, pasa de versión 06 a versión 07, la disposición contenida en el apartado 4.3.5 párrafo primero contará con un plazo de 6 meses para que entre en vigencia. ECA-MP-P08 Manual de procedimientos de evaluación y acreditación: Toma de decisión, pasa de versión 06 a versión 07, no tiene transitorio. ECA-MP-P08-101 Instructivo de grupos de trabajo, versión 01, no tiene transitorio. ECA-MP-P10 Manual de procedimientos de evaluación y acreditación: Seguimiento y reevaluación, pasa de versión 05 a versión 06, no tiene transitorio. Fe de erratas en la publicación de La Gaceta número 146, 2020- 007 para el documento ECA-MC-C15 Criterios para evaluación y acreditación de proveedores de ensayos de aptitud bajo la norma INTE-ISO/IEC 17043:2010 del día viernes 19 de junio 2020, por error material se anota que el documento pasa de la versión 02 a la versión 03 siendo lo correcto que pasa a la versión 02. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8:00 h a 16:00 h.
-San José, 25 junio 2020
-(Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
+ENTE COSTARRICENSE DE ACREDITACIÓN N° 2020-008. El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: ECA-MC-P23 Conformación y sesión de órganos colegiados, pasa de versión 06 a versión 07, la disposición contenida en el apartado 4.3.5 párrafo primero contará con un plazo de 6 meses para que entre en vigencia. ECA-MP-P08 Manual de procedimientos de evaluación y acreditación: Toma de decisión, pasa de versión 06 a versión 07, no tiene transitorio. ECA-MP-P08-101 Instructivo de grupos de trabajo, versión 01, no tiene transitorio. ECA-MP-P10 Manual de procedimientos de evaluación y acreditación: Seguimiento y reevaluación, pasa de versión 05 a versión 06, no tiene transitorio. Fe de erratas en la publicación de La Gaceta número 146, 2020- 007 para el documento ECA-MC-C15 Criterios para evaluación y acreditación de proveedores de ensayos de aptitud bajo la norma INTE-ISO/IEC 17043:2010 del día viernes 19 de junio 2020, por error material se anota que el documento pasa de la versión 02 a la versión 03 siendo lo correcto que pasa a la versión 02. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8:00 h a 16:00 h. San José, 25 junio 2020 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:) |
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 149 del 5 de agosto donde se actualiza la versión 7 y se publica la versión 8 y se transcribe a continuación:)
 [imagen]
 CONTENIDO
 1. OBJETIVO ............................................................................................................................. 1
@@ -14,14 +12,17 @@ CONTENIDO
 8 NOTIFICACIONES Y SEGUIMIENTO DE ACUERDOS. ...................................................... 19
 9 PROCESO DE INDUCCIÓN PARA ÓRGANOS COLEGIADOS .......................................... 20
 10 PROCESO DE EVALUACION DEL DESEMPEÑO .............................................................. 20
-11 PROCESO DE GESTIÓN DE LAS COMPETENCIAS DE LA COMISIÓN DE ACREDITACIÓN ............................................................................................................................ 20
+11 PROCESO DE GESTIÓN DE LAS COMPETENCIAS DE LA COMISIÓN DE
+ACREDITACIÓN ............................................................................................................................ 20
 12 EXPEDIENTES DE LOS INTEGRANTES DE LOS ORGANOS COLEGIADOS .................. 21
 13 ARCHIVO DE LA DOCUMENTACIÓN Y MANEJO DE LOS REGISTROS. ........................ 22
 14 TRANSITORIO ..................................................................................................................... 23
 15 IDENTIFICACIÓN DE CAMBIOS ......................................................................................... 23
-ANEXOS ......................................................................................................................................... 24
-ANEXO 1 Proceso de selección de representantes de OECs acreditados para representación en la Comisión de Acreditación. .................................................................................................. 24
-Anexo 2 FASES DE LA SESIÓN DE LA TOMA DE DECISIONES DE ÓRGANOS COLEGIADOS 27
+ANEXOS ......................................................................................................................................... 23
+ANEXO 1 Proceso de selección de representantes de OECs acreditados para representación
+en la Comisión de Acreditación. .................................................................................................. 23
+Anexo 2 FASES DE LA SESIÓN DE LA TOMA DE DECISIONES DE ÓRGANOS COLEGIADOS
+26
 1. OBJETIVO
 Establecer los lineamientos para la conformación y sesión de los órganos colegiados del ECA conforme con las normas internacionales ISO aplicables al organismo de acreditación y la legislación nacional vigente.
 2. ALCANCE
@@ -29,7 +30,7 @@ Aplica a los órganos colegiados del ECA:
 - Junta Directiva.
 - Comisión de acreditación.
 - Comité Ejecutivo.
-3. DEFINICIONES CONFORMACIÓN Y SESIÓN DE LOS ÓRGANOS COLEGIADOS
+3. DEFINICIONES
 Abstención: es cuando el miembro del órgano colegiado no puede votar porque ha identificado que tiene impedimentos para intervenir en un procedimiento administrativo, y por ende en una toma de decisión.
 Acta: documento formal que contiene la información respecto a discusión, toma de decisión y asistencia de una sesión tanto ordinaria como extraordinaria.
 Acuerdo: manifestación simultánea de la voluntad de todos los miembros presentes en una sesión luego de haber realizado una deliberación al respecto, contiene la toma de decisión sobre un asunto sometido al conocimiento de un órgano colegiado. Es un acto administrativo y le aplican todas sus reglas.
@@ -45,17 +46,21 @@ Voto disidente o en contra: Voto en total desacuerdo.
 4.1. Junta Directiva
 4.1.1. Conformación.
 La Junta Directiva se conforma de acuerdo a lo establecido en el artículo 23 de la Ley 8279 del Sistema Nacional para la Calidad y el artículo 20 del Capítulo II del Reglamento de estructura interna y funcionamiento del ECA.
-a. Para escoger un miembro del sector público se realizarán las siguientes actividades: - La Presidencia de la Junta Directiva envía una carta a los jerarcas del sector público y privado solicitando el(los) nombre(s) de las personas candidatas a ser miembros del órgano respectivo. La propuesta respectiva está acompañada del currículum y atestados del candidato (a), en donde se especifica que goza de reconocida experiencia en la materia.
-- Si es un representante del sector público, lo designa el ministro del sector correspondiente y lo comunica al presidente de la Junta Directiva del ECA, para que sea realizado el nombramiento en Consejo de Gobierno.
-b. Para escoger un miembro del sector privado se realizarán las siguientes actividades: - El sector que está representado por el miembro debe presentar una terna para cada uno de los puestos que se vayan a nombrar, acompañada del currículum y los atestados de cada uno de los candidatos. La terna debe ser enviada al Consejo de Gobierno, quien realiza el nombramiento.
+a. Para escoger un miembro del sector público se realizarán las siguientes actividades:
+- La Presidencia de la Junta Directiva envía una carta a los jerarcas del sector público y privado solicitando el(los) nombre(s) de las personas candidatas a ser miembros del órgano respectivo.
+La propuesta respectiva está acompañada del currículum y atestados del candidato (a), en donde se especifica que goza de reconocida experiencia en la materia.
+- Si es un representante del sector público, lo designa el ministro del sector correspondiente y
+lo comunica al presidente de la Junta Directiva del ECA, para que sea realizado el nombramiento en Consejo de Gobierno.
+b. Para escoger un miembro del sector privado se realizarán las siguientes actividades:
+- El sector que está representado por el miembro debe presentar una terna para cada uno de los puestos que se vayan a nombrar, acompañada del currículum y los atestados de cada uno de los candidatos. La terna debe ser enviada al Consejo de Gobierno, quien realiza el nombramiento.
 - El Consejo de Gobierno publica los nombramientos de los miembros propietarios y suplentes en el Diario Oficial La Gaceta.
-- El representante suplente sólo ostentará las funciones y atribuciones que el ordenamiento, incluyendo la Ley y el Reglamento, le asigna al propietario, en los siguientes casos:
 La persona asistente del órgano colegiado debe mantener actualizados los datos de los nombramientos mediante el formulario ECA-MC-P23-F01 Directorio del Órgano Colegiado, para ello dará seguimiento y emitirá recordatorios de su vencimiento al presidente.
 Cuando se vaya a vencer un nombramiento, el presidente del órgano debe iniciar los trámites respectivos de nuevos nombramientos con al menos 3 meses de anticipación.
 4.1.2. Suplencias.
 Los suplentes son nombrados de la misma forma que los miembros propietarios.
+- El representante suplente sólo ostentará las funciones y atribuciones que el ordenamiento, incluyendo la Ley y el Reglamento, le asigna al propietario, en los siguientes casos:
 a En casos de ausencia temporal.
-b En todos los otros casos de ausencia definitiva del propietario, hasta que el sector respectivo nombre el sustituto de aquél. 4.2.1. Conformación
+b En todos los otros casos de ausencia definitiva del propietario, hasta que el sector respectivo nombre el sustituto de aquél.
 4.1.3. Vigencia.
 Los miembros propietarios y suplentes serán nombrados por un período de seis años, podrán ser reelectos sucesivamente y se renovarán en forma alterna.
 4.1.4. Presidente y secretario
@@ -68,35 +73,41 @@ Las funciones de la Junta Directiva del ECA son las establecidas en el artículo
 4.1.7. Experiencia
 Conocimientos en temas de calidad y evaluación de conformidad.
 4.2. Comité Ejecutivo
+4.2.1. Conformación
 El Comité Ejecutivo se conforma de acuerdo a lo establecido en el artículo 24 del Capítulo II del Reglamento de estructura interna y funcionamiento del ECA.
 La principal finalidad de este Comité es servir de apoyo a las labores y actividades de la Junta Directiva y de la Gerencia, en los asuntos, temas y tópicos a él encargados; o bien en las materias que este Reglamento le establezca.
 4.2.2. Vigencia
+Los miembros del Comité se nombrarán por periodos de dos años y podrán ser reelegidos por períodos iguales y sucesivos.
 4.2.3. Presidente (a) y secretario (a)
+Presidente (a): El Comité Ejecutivo será presidido por la Presidencia de la Junta Directiva o a quien éste delegue.
+Secretario (a): El Comité Ejecutivo debe elegir en la primera sesión del año un secretario de su seno.
 4.2.4. Autoridad y responsabilidad
+Este Comité tiene la autoridad para presentar recomendaciones ante la Junta Directiva y Gerencia sobre temas específicos y además tiene la responsabilidad de cumplir con lo que establece el Reglamento de Estructura Interna y Funcionamiento del ECA y lo que le asigne la Junta Directiva.
 4.2.5. Funciones
+Las funciones del Comité Ejecutivo del ECA son las establecidas en el artículo 25 del Capítulo II del Reglamento de estructura interna y funcionamiento del ECA.
+4.3. Comisión de Acreditación
 4.3.1. Conformación
+La Comisión de Acreditación se conforma de acuerdo a lo establecido en el artículo 25 de la Ley 8279 del Sistema Nacional para la Calidad.
 - La Junta Directiva del ECA es la encargada de nombrar los miembros de la Comisión de Acreditación.
 - La selección de los miembros propietarios y suplentes del sector de usuarios de los servicios de acreditación, se hace por los mismos OEC acreditados; estos representantes se eligen de los organismos de evaluación de la conformidad acreditados.
 - Cuando se requiera realizar el nombramiento de integrantes del sector usuario de los servicios de acreditación, se deberá realizar las siguientes actividades:
-Los miembros del Comité se nombrarán por periodos de dos años y podrán ser reelegidos por períodos iguales y sucesivos.
-Presidente (a): El Comité Ejecutivo será presidido por la Presidencia de la Junta Directiva o a quien éste delegue.
-Secretario (a): El Comité Ejecutivo debe elegir en la primera sesión del año un secretario de su seno.
-Este Comité tiene la autoridad para presentar recomendaciones ante la Junta Directiva y Gerencia sobre temas específicos y además tiene la responsabilidad de cumplir con lo que establece el Reglamento de Estructura Interna y Funcionamiento del ECA y lo que le asigne la Junta Directiva.
-Las funciones del Comité Ejecutivo del ECA son las establecidas en el artículo 25 del Capítulo II del Reglamento de estructura interna y funcionamiento del ECA.
-4.3. Comisión de Acreditación
-La Comisión de Acreditación se conforma de acuerdo a lo establecido en el artículo 25 de la Ley 8279 del Sistema Nacional para la Calidad.
 a. La Junta Directiva la Junta Directiva realiza una convocatoria:
-- Mediante correo electrónico se les deben enviar un oficio formal a todos los OEC acreditados.
+- Mediante correo electrónico se les deben enviar un oficio formal a todos los OEC
+acreditados.
 - Dicha nota contendrá los siguientes detalles: el puesto que se requiere elegir, requisitos de competencia aplicables, el plazo para la respuesta.
 - Se debe adjuntar la tabla o documento con el método con el que se valorarán los atestados, ver Anexo 1.
-b. Cuando se cuente con la información completa, se trasladará a la persona asistente de Junta Directiva para que ésta haga de conocimiento a la presidencia y considere si lo debe llevar como punto a la siguiente sesión. - Cuando se requiera realizar el nombramiento de integrantes de otros sectores se procederá de la misma manera que lo señalado para los OEC.
+b. Cuando se cuente con la información completa, se trasladará a la persona asistente de Junta Directiva para que ésta haga de conocimiento a la presidencia y considere si lo
+debe llevar como punto a la siguiente sesión.
+- Cuando se requiera realizar el nombramiento de integrantes de otros sectores se
+procederá de la misma manera que lo señalado para los OEC.
 - Los otros sectores son FENASCO y la Federación de Colegios Profesionales.
 - De todo el proceso deberá documentarse lo acontecido en un expediente separado.
-- Los nombramientos de miembros externos al ECA deberán ser publicados en La Página Web del ECA.
+- Los nombramientos de miembros externos al ECA deberán ser publicados en La
+Página Web del ECA.
 4.3.2. Suplencias
-- El representante suplente sólo ostentará las funciones y atribuciones del propietario, en los siguientes casos:
 Los suplentes son nombrados de la misma forma que los miembros propietarios.
 En el caso de las suplencias de las Secretarías, éstas además se regirán por las reglas de la suplencia de la Ley General de la Administración Pública.
+- El representante suplente sólo ostentará las funciones y atribuciones del propietario, en los siguientes casos:
 b. En casos de ausencia temporal.
 c. En todos los otros casos de ausencia definitiva del propietario, hasta que el sector respectivo nombre el sustituto de aquél.
 4.3.3. Vigencia
@@ -137,10 +148,10 @@ Sólo podrá sesionarse media hora después en casos de urgencia declarada y jus
 Las sesiones de los órganos colegiados tienen por propósito la toma de decisiones, y para ello debe garantizarse la deliberación, que representa la formación de la voluntad del órgano colegiado a través de los principios de colegialidad y simultaneidad.
 Las sesiones y reuniones de los órganos colegiados del ECA deben realizarse de la forma más ordenada, ágil y democrática, con el más profundo respeto a las personas y dignidad de sus miembros.
 Las decisiones se expresan de manera simultánea y a través de una decisión que es el acuerdo. Cada miembro debe aportar, contribuyendo con su preparación, su experiencia, y todo aquel conocimiento y habilidad que colabore en la toma de decisión. En este proceso, integra las eventuales deficiencias de los otros miembros y equilibra la visión unilateral de alguno de ellos.
-6.1. Declaración de los Principios que rigen la sesión de los órganos colegiados del ECA
+6.1. Declaración de los Principios que rigen la sesión de los órganos colegiados del ECA:
 Los principios orientarán el proceder en las sesiones, así como la toma de decisiones, servirán para interpretar, integrar y delimitar el campo de aplicación de los procedimientos del ECA, así como todo el marco legal aplicable.
 Los órganos colegiados podrán desarrollar un documento explicativo que además delimite la aplicación de los principios.
-ECA: 6.1.1. Principios legales.
+6.1.1. Principios legales.
 Los principios legales incluyen:
 a. Principio de legalidad:
 El órgano está sujeto al llamado bloque de legalidad. Es una forma especial de vinculación de las autoridades e instituciones públicas al ordenamiento jurídico, lo cual causa que los actos y comportamientos de la Administración deben estar regulados por norma escrita.
@@ -151,7 +162,8 @@ Las personas físicas que integran el órgano colegiado deben concurrir en forma
 d. Principio de coordinación.
 Se pretende conjuntar el ejercicio de competencias similares de distintos órganos o administraciones en el logro de una misma finalidad, evitando la reduplicación de esfuerzos y las acciones divergentes.
 e. Principios de eficiencia y eficacia.
-Eficacia implica el actuar, solo para la finalización de una actividad o el cumplimiento de un objetivo. Alcanzar la meta propuesta, es decir el fin, el énfasis se encuentra en cumplir el fin o causar el efecto en la toma de decisión.
+Eficacia implica el actuar, solo para la finalización de una actividad o el cumplimiento de un objetivo.
+Alcanzar la meta propuesta, es decir el fin, el énfasis se encuentra en cumplir el fin o causar el efecto en la toma de decisión.
 La eficiencia es cumplir la meta logrando a su vez la optimización de los recursos, como tiempos, procesos, procedimientos, actividades, métodos, cantidad de personal adecuado e idóneo para llevar a cabo las funciones, cumplir el objetivo considerando el mejor método posible. Tomando no solo las decisiones requeridas para cumplimento de la naturaleza sobre la actividad que el ECA realiza, sino también considerando el mejor uso de los recursos que este invierte en el proceso.
 f. Deber de garantizar la calidad.
 Se desprende el artículo 19 y 20 de la Ley del Sistema Nacional de la calidad, por lo que es una máxima con la que el ECA debe orientar su actuar. La toma de decisiones se debe siempre efectuar tomando en cuenta si esa decisión contribuye o no a garantizar la calidad.
@@ -185,7 +197,8 @@ Además de las establecidas en la Ley General de la Administración Pública N°
 2. Ser una de las partes cónyuge, conviviente, ascendiente, descendiente o pariente hasta el tercer grado de consanguinidad, o segundo de afinidad del integrante del órgano colegiado.
 3. El interés directo en el resultado del proceso de cualquiera de los familiares del integrante del órgano colegiado indicados en el inciso anterior.
 4. Haber sido el integrante del órgano colegiado abogado, tutor, curador, apoderado, representante o administrador de alguna de las partes. Esta causal se extiende al cónyuge, conviviente, ascendiente y descendiente del integrante del órgano colegiado.
-5. Ser acreedor, deudor, fiador o fiado, empleado o patrono en relación con alguna de las partes. No hay causal si el nexo es con el Estado o cualquier institución pública. Tampoco, si se diera con una sociedad mercantil, una corporación, una asociación o cualquier otra persona jurídica, cuando el nexo con estas sea irrelevante para demeritar la objetividad del funcionario.
+5. Ser acreedor, deudor, fiador o fiado, empleado o patrono en relación con alguna de las partes.
+No hay causal si el nexo es con el Estado o cualquier institución pública. Tampoco, si se diera con una sociedad mercantil, una corporación, una asociación o cualquier otra persona jurídica, cuando el nexo con estas sea irrelevante para demeritar la objetividad del funcionario.
 6. Ser el integrante del órgano colegiado o alguno de los parientes indicados en el inciso 2), parte contraria de algunas partes en otro proceso, siempre que este no hubiera sido instaurado con el único propósito de inhabilitarlo.
 7. Existir o haber existido, en los dos años precedentes a la iniciación del proceso, un proceso jurisdiccional o administrativo en que figuren como contrarios, respecto de alguna de las partes, el integrante del órgano colegiado o sus parientes indicados en el inciso 2).
 8. Deba el integrante del órgano colegiado fallar en grado acerca de una resolución dictada por alguno de los parientes indicados en el inciso 2).
@@ -193,7 +206,8 @@ Además de las establecidas en la Ley General de la Administración Pública N°
 10. Sostener el integrante del órgano colegiado, su cónyuge, ascendiente o descendiente opinión contraria a la de algunas de las partes, en otro proceso de su interés.
 11. Ser una de las partes integrante del órgano colegiado o árbitro en otro proceso en que sea parte el integrante del órgano colegiado o los parientes indicados en el inciso anterior.
 12. Haberse impuesto al integrante del órgano colegiado alguna corrección disciplinaria, en el mismo proceso, por queja presentada por una de las partes.
-13. Haber externado, fuera de sus funciones, opinión a favor o en contra de alguna de las partes. Las opiniones expuestas o los informes rendidos que no se refieran al caso concreto, como aquellas dadas con carácter doctrinario o en virtud de requerimientos de los otros poderes o en otros asuntos de que conozcan o hayan conocido de acuerdo con la ley, no configuran esta casual. En el caso de la Comisión de Acreditación esto incluye haber brindado consultoría, auditoría o asesoría al OEC de que se trate en los últimos dos años, por haber expresado opinión previamente sobre las actividades, desempeño y sistema de gestión del OEC previamente. En caso de que haya fungido como auditor, el integrante deberá valorar su situación particular para determinar si debe abstenerse.
+13. Haber externado, fuera de sus funciones, opinión a favor o en contra de alguna de las partes.
+Las opiniones expuestas o los informes rendidos que no se refieran al caso concreto, como aquellas dadas con carácter doctrinario o en virtud de requerimientos de los otros poderes o en otros asuntos de que conozcan o hayan conocido de acuerdo con la ley, no configuran esta casual. En el caso de la Comisión de Acreditación esto incluye haber brindado consultoría, auditoría o asesoría al OEC de que se trate en los últimos dos años, por haber expresado opinión previamente sobre las actividades, desempeño y sistema de gestión del OEC previamente. En caso de que haya fungido como auditor, el integrante deberá valorar su situación particular para determinar si debe abstenerse.
 14. Haber sido el integrante del órgano colegiado perito o testigo en el proceso. En el caso de la Comisión de Acreditación haber sido miembro del Equipo Evaluador.
 15. Haber participado en la decisión del acto objeto del proceso.
 16. La existencia de circunstancias que den lugar a dudas justificadas respecto de su imparcialidad u objetividad. En este caso el miembro del órgano colegiado tiene la obligación de abstenerse cuando tiene dudas respecto de su imparcialidad u objetividad.
@@ -223,7 +237,8 @@ La secretaría de cada órgano colegiado colaborará en el conteo de votos y en 
 A los efectos del presente procedimiento, los otros miembros de cada órgano colegiado prestarán directamente su colaboración en la medida que la Presidencia (O Coordinador) se los requiera.
 6.5 Del quórum para sesionar
 6.4.1 Para que los órganos colegiados sesionen válidamente, deben comprobar el estructural legal (Cuando la totalidad de la estructura organizativa del órgano colegiado está debidamente nombrada) y el quórum de Ley (La mayoría absoluta: la mitad más uno de la totalidad de los miembros que conforman el órgano colegiado).
-6.4.2. Si no hubiere quórum, el órgano podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia en que podrá sesionar después de media hora y para ello será suficiente la asistencia de la tercera parte de sus miembros.
+6.4.2. Si no hubiere quórum, el órgano podrá sesionar válidamente en segunda convocatoria
+veinticuatro horas después de la señalada para la primera, salvo casos de urgencia en que podrá sesionar después de media hora y para ello será suficiente la asistencia de la tercera parte de sus miembros.
 6.6 Forma de realizar las deliberaciones de los órganos colegiados.
 6.6.1. Del orden del día:
 Las deliberaciones de cada órgano colegiado se realizarán con base en la convocatoria que se haga al efecto la cual establecerá el orden del día, el orden presentado en la convocatoria no podrá ser variado excepto de acuerdo con las reglas de la Ley General de la Administración Pública.
@@ -238,15 +253,14 @@ El orden del día seguirá la siguiente estructura:
 6. Control de acuerdos. Seguimiento de los acuerdos y sus notificaciones, es la persona asistente quien informa.
 7. Procesos por conocer, se conocerán todos los puntos que se hayan enviado en la convocatoria, cada uno con su numeración respectiva.
 6.7 Forma de celebrar las sesiones.
-Las sesiones se realizarán dentro de los deberes propios del sigilo, la prudencia y la confidencialidad que obligan a todos los miembros de los órganos colegiados del ECA, así como deberán firmar el Compromiso de ética e imparcialidad que esté oficializado en el sistema de gestión documental.
-Con el propósito de facilitar los debates surgidos en el curso de las sesiones y/o reuniones, y de tratar todos los asuntos del orden del día, la Presidencia del órgano respectivo, la Secretaria (o) de Acreditación, según corresponda, presentarán la documentación necesaria, para facilitar el conocimiento del asunto en discusión.
+Las sesiones se realizarán dentro de los deberes propios del sigilo, la prudencia y la confidencialidad que obligan a todos los miembros de los órganos colegiados del ECA, así como deberán firmar el Compromiso de ética e imparcialidad que esté oficializado en el sistema de gestión documental. Con el propósito de facilitar los debates surgidos en el curso de las sesiones y/o reuniones, y de tratar todos los asuntos del orden del día, la Presidencia del órgano respectivo, la Secretaria (o) de Acreditación, según corresponda, presentarán la documentación necesaria, para facilitar el conocimiento del asunto en discusión.
 Las sesiones ordinarias de la Junta Directiva se celebrarán en forma periódica al menos cada tres meses, iniciando necesariamente en el mes de enero de cada año. Extraordinariamente, las sesiones pueden ser convocadas por la Presidencia o a solicitud de un tercio de la totalidad de sus miembros propietarios, quienes lo comunicarán a la gerencia para su ejecución.
 La Comisión de Acreditación se reúne ordinariamente en las fechas de las sesiones ordinarias del período anual que se determina en la primera sesión del año. Dicho órgano podrá sesionar de manera extraordinaria las veces que considere necesario para la continuidad del servicio y procurar tiempos de respuestas razonables a los trámites de los usuarios.
 Cada sesión del órgano colegiado, debe contar con agenda ECA-MC-P23-F03 Agenda que incluya orden del día, enviada con al menos veinticuatro horas de anticipación por la Secretaria (o) respectivo. Se reunirán en forma extraordinaria cada vez que sea necesario, con al menos veinticuatro horas de anticipación.
 En el caso de la Comisión de Acreditación la convocatoria se debe realizar en ECA-MC-P23-F02 Agenda y Convocatoria. Para efectos de verificación de asistencia a las sesiones, los miembros deben notificar vía correo electrónico.
 Las sesiones y/o reuniones de los órganos colegiados del ECA deberán desarrollarse conforme al orden del día. Este puede ser alterado únicamente con la votación de todos los presentes, y en caso de que se vaya a introducir un nuevo asunto este sólo podrá conocerse si es declarado de urgencia por la mayoría calificada o dos terceras partes de todos los miembros del órgano colegiado.
 El órgano colegiado podrá invitar a cualquier persona que considere oportuno a los efectos que haya previamente determinado. En todas las sesiones ordinarias de los órganos colegiados se debe realizar seguimiento de acuerdos.
-A las sesiones y/o reuniones de los órganos colegiados del ECA podrá asistir con voz pero sin voto, la Gerencia, la Asesoría Legal, el Auditor Interno o Externo, el Gestor de Calidad u otras personas del ECA, cuando lo consideren oportuno o necesario, en razón de la naturaleza de los asuntos que figuren en el orden del día. Lo anterior, sin detrimento de los casos en que la Ley o el Reglamento de Estructura Interna y Funcionamiento del ECA señalan su obligación de asistir.
+A las sesiones y/o reuniones de los órganos colegiados del ECA podrá asistir con voz pero sin voto la Gerencia, la Asesoría Legal, el Auditor Interno o Externo, el Gestor de Calidad u otras personas del ECA, cuando lo consideren oportuno o necesario, en razón de la naturaleza de los asuntos que figuren en el orden del día. Lo anterior, sin detrimento de los casos en que la Ley o el Reglamento de Estructura Interna y Funcionamiento del ECA señalan su obligación de asistir.
 6.8. Sesiones virtuales.
 Cuando el órgano colegiado respectivo considere que se cumple con los requisitos para sesionar virtualmente, será posible sesionar de este modo.
 En todo momento se deberán cumplir con todos los principios y normas que rigen las sesiones, y se deberá garantizar telepresencia para lo cual se preferirá la teleconferencia. La información será compartida en tiempo real a todos los miembros del órgano colegiado para lo cual el integrante debe mantenerse atento en todo momento. Los acuerdos se tomarán siguiendo todos los requisitos habituales del presente procedimiento y no podrán ejercer su voto en algún tema específico, aquellos miembros que presenten un potencial conflicto de interés.
@@ -257,7 +271,9 @@ Las sesiones virtuales deben observar siempre lo siguiente:
 a) Las sesiones virtuales se encuentran inspiradas en una Administración Pública moderna.
 b) Siempre se debe respetar los principios de colegialidad y simultaneidad, así como garantizar la deliberación y la calidad de las sesiones.
 c) Debe garantizarse la “telepresencia”, por lo que las video conferencias deben respetar la legalidad de la sesión al haber simultáneamente audio, video y transmisión de datos.
-d) Deliberar implica debate y este requiere una presencia continua: los miembros deliberantes deben permanecer continuamente en la actividad, sin que puedan abstraerse de ella.
+d) Deliberar implica debate y este requiere una presencia continua: los miembros
+deliberantes deben permanecer continuamente en la actividad, sin que puedan abstraerse de
+ella.
 e) Una sesión virtual no autoriza a la superposición de horarios.
 6.8.1. Requisitos del acta y la convocatoria:
 Dichos documentos deberán incluir:
@@ -267,19 +283,22 @@ c) El acta deberá consignar quiénes estaban conectados de manera virtual, dón
 d) El acta también debe consignar por qué la sesión se realizó de esta manera, es decir la situación de emergencia o situación particular.
 e) Para firmar el acta debe emplearse la firma digital, no firma física escaneada.
 f) En caso de que vaya a ser empastada y se imprima en físico, por control documental de archivo y validez de la firma cuando el acta, deberá ser firmada en físico.
-g) La sesión debe grabarse como es usual, e indicarse al momento de la identificación de los participantes si está “presente” de manera virtual.
+g) La sesión debe grabarse como es usual, e indicarse al momento de la identificación de los
+participantes si está “presente” de manera virtual.
 h) Para efectos de hacer constar el voto se recomienda que se indique de manera verbal consultándole a cada uno si está de acuerdo.
 7 LAS ACTAS
 Las actas se llevarán en el formulario ECA-MC-P23-F05 Acta, deben cumplir los siguientes requisitos esenciales:
 a) Estar redactadas de tal forma que no permitan interpretaciones posteriores o diferentes de los acuerdos tomados.
 b) Documentar la fundamentación o razonamiento de los acuerdos de decisiones adversas.
 c) Describir en forma clara e indubitable lo que se acordó.
-d) En caso de existir oposición al contenido de un acta, deberá hacerse constar en el acta correspondiente a la sesión en que se conoce y se discute la primera, dejando constancia del nombre del oponente y su razón.
+d) En caso de existir oposición al contenido de un acta, deberá hacerse constar en el acta correspondiente a la sesión en que se conoce y se discute la primera, dejando constancia del
+nombre del oponente y su razón.
 e) El resultado de la respectiva votación y la indicación de que el acuerdo queda en firme, los votos a favor, en contra y abstenciones deberán registrarse para efectos comprobatorios.
 f) En caso de que algún miembro deba abandonar la sesión, deberá hacerse constar en el acta, así como su reingreso a la misma.
 g) Las actas serán firmadas por la Presidencia.
 h) Deberán cumplir con las Directrices respectivas del Archivo Nacional, con la finalidad de que estén estandarizadas según lo referente al sector público
-i) Cada Acta debe contener los siguientes anexos: - ECA-MC-P23-F02 Agenda y Convocatoria.
+i) Cada Acta debe contener los siguientes anexos:
+- ECA-MC-P23-F02 Agenda y Convocatoria.
 - ECA-MC-P23-F04 Lista de asistencia
 - Otros documentos (Ejemplo: Copia de las resoluciones tomadas, cuando aplique).
 Las actas de los órganos colegiados podrán ser digitales, las cuales, en razón de la aplicación de las tecnologías, deben asegurar la trazabilidad en su contenido de tal manera que no ofrezcan duda alguna de su integridad y veracidad, utilizando herramientas de firma digital u otros que brinden seguridad.
@@ -302,7 +321,7 @@ Las notificaciones, los traslados de los acuerdos y el seguimiento de los mismos
 9 PROCESO DE INDUCCIÓN PARA ÓRGANOS COLEGIADOS
 La inducción se realiza cada vez que ingresa un nuevo integrante a un órgano colegiado del ECA.
 El responsable de cada órgano colegiado coordina con cada responsable el paso de la inducción que le corresponda y asegura que los instrumentos utilizados existan en formato digital, prepara las listas de asistencia correspondientes y completa el ECA-P22-F01 Registro de inducciones, donde se indica la fecha, quién es el responsable de brindar la inducción, el tema que se desarrolla, qué documentos de referencia utiliza, los nombres de las personas a las que se dirige la inducción y puede anotar algunas observaciones que considere necesarias
-El programa de inducción para el integrante del órgano colegiado debe contener toda la información para que el integrante posea las competencias necesarias que se indican en la matriz de competencias, de acuerdo a sus funciones.
+El programa de inducción para los integrantes del órgano colegiado debe ser diseñado de tal forma que todos los miembros en su conjunto, no de forma individual, posea las competencias necesarias que se indican en la matriz de competencias, de acuerdo a sus funciones.
 La alta dirección del ECA podrá determinar de acuerdo a las necesidades de capacitación, actualización o como mecanismo recordatorio la programación de una inducción como mínimo al año para los integrantes de los órganos colegiados; el tema principal de esta inducción es procedimientos del Sistema de Gestión de Calidad del ECA y su aplicación según los lineamientos internacionales.
 10 PROCESO DE EVALUACION DEL DESEMPEÑO
 La evaluación del desempeño se hará de la siguiente manera:
@@ -315,31 +334,23 @@ La persona evaluada debe aceptar la evaluación del desempeño por correo electr
 Para el cierre de brechas de los integrantes de la comisión de Acreditación se debe considerar las competencias descritas en el procedimiento ECA-MC-MA-P23.
 12 EXPEDIENTES DE LOS INTEGRANTES DE LOS ORGANOS COLEGIADOS
 Los asistentes de los órganos colegiados deben mantener actualizados los expedientes, los cuales deben contener como mínimo:
-| Etapas | Observaciones
-1 | Compromiso de Confidencialidad | Cada año la presidencia del órgano colegiado deberá gestionar con la persona asistente del órgano para que se actualice en enero. Debe de estar en orden cronológico de los anteriores. Si el miembro pertenece al cuerpo de evaluadores colocar un oficio realizado por la Gestoría de calidad donde indique que es evaluador también. Debe haber copia del ECA-MC-P01-F02 Compromiso de Confidencialidad, Imparcialidad y Objetividad en caso de que también sea evaluador. Si es personal del ECA debe también existir copia de la información que se encuentra en recursos humanos.
-2 | Currículo Vitae | Curriculum vitae completo según lo presentado a Comisión para que fuera nombrado por la Junta.
-3 | Atestados | Título universitario en pregrado, grado o postgrado, capacitaciones recibidas, así como cualquier participación en seminarios relacionadas con el área que está representando en el órgano colegiado.
-3 | Nombramiento | Acta, oficio o traslado de acuerdo, nombramiento o documento donde adquirió su investidura según aplique. Debe constar el período de vigencia (desde- hasta) según aplique. Debe constar el sector del que proviene.
-4 | Datos personales | El directorio debe estar actualizado, con los datos personales de cada miembro.
-5 | Plan de Capacitación Individual | Se debe de revisar una vez al año por la Coordinación de la Secretaría respectiva. Deben constar todas las capacitaciones que el ECA le ha brindado.
-7 | Estudio de las Competencias | Para cada uno de los miembros del órgano colegiado
-8 | Evaluaciones de Desempeño | Cada año la coordinación o presidencia del órgano colegiado deberá gestionar con la Asistencia del lice en enero.
+[imagen]
 La persona asistente del órgano colegiado será la responsable de mantener actualizado los expedientes de los integrantes de los órganos colegiados de acuerdo con lo indicado en el cuadro anterior. La secretaria (o) del órgano le realizará un recordatorio semestral sobre la revisión y actualización de los expedientes con la finalidad de que se cumpla con los requisitos subjetivos que deban constar de manera documental.
 Los participantes del órgano colegiado deben cumplir con los documentos que se les requieran al efecto, por lo que deberán cumplir con las solicitudes para completar documentos faltantes en un plazo de no más de 15 días naturales. En caso de no cumplirse esto será comunicado a la presidencia del órgano, o en su defecto al órgano superior, para que se le realice el debido proceso.
 Adicionalmente la persona asistente debe revisar cada 6 meses el directorio del órgano colegiado, dejando evidencia en el mismo de su revisión y actualización.
 13 ARCHIVO DE LA DOCUMENTACIÓN Y MANEJO DE LOS REGISTROS.
 El archivo de la documentación y registros de las evaluaciones del desempeño debe ser realizado de acuerdo con el ECA-MP-P12 y a continuación se detallan las instrucciones específicas.
-Actividad | Responsable | Código | Nombre del registro | Soporte
-Directorio Órgano colegiado | Persona asistente del órgano colegiado | ECA-MC-P23-F01 | Directorio órgano colegiado | Digital
-Sesión de órganos colegiados | Secretario y Persona asistente del órgano colegiado | ECA-MC-P23-F02 ECA-MC-P23-F04 ECA-MC-P23-F05 | Agenda y Convocatoria Lista de Asistencia Acta | Digital / impreso
-Evaluaciones del desempeño | Coordinador y Secretario (a) del órgano colegiado | ECA-MC-P23-F07 yECA-MC-P23- F08 | Evaluación del desempeño Órganos Colegiados | Digital
-Expedientes integrantes del órgano colegiado | Persona asistente del órgano colegiado | N.A. | Compromisos, CV, Nombramiento, plan de capacitación, atestados, estudio de competencia y evaluación del desempeño | Digital
+[imagen]
+[imagen]
 14 TRANSITORIO
-La disposición contenida en el apartado 4.3.5 párrafo primero no aplicará inmediatamente para el caso de la Comisión de Acreditación. Para lograr el cumplimiento de la norma 17011 y la votación para el caso de la Comisión esta disposición contará con un plazo de 6 meses para que entre en vigencia.
-15 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación de documento.
-Refiérase a la solicitud de elaboración o modificación del documento número 2020-110. Se modifica todo el contenido del documento para actualizar las funciones y responsabilidades de los órganos colegiados del ECA. Estructuración del proceso de sesión de órganos según sus fases.
+No aplica
+15 IDENTIFICACIÓN DE CAMBIOS
+Motivo: Modificación de documento.
+Refiérase a la solicitud de elaboración o modificación del documento número 2021-124
+Se subraya la parte modificada.
 ANEXOS
-ANEXO 1 Proceso de selección de representantes de OEC acreditados para representación en la Comisión de Acreditación.
+ANEXO 1 Proceso de selección de representantes de OEC acreditados para representación
+en la Comisión de Acreditación.
 REQUISITOS DE LAS CANDIDATURAS
 Anotar en la referencia a enviar lo siguiente:
 1. Nombre y calidades del candidato a ser miembros de la Comisión de Acreditación.
@@ -353,19 +364,13 @@ Anotar en la referencia a enviar lo siguiente:
 6.4. La terna que se debe remitir a la asistente de Junta Directiva para su valoración. Y será notificada a los participantes posteriormente.
 FORMA DE SELECCIÓN DE LAS TERNAS.
 Deberá definirse una terna por cada puesto de la Comisión de Acreditación del ECA que deba completarse con representantes de OEC acreditados, siendo un total de un puesto titular y un suplente. El análisis de las candidaturas recibidas será realizado por la Gerencia del ECA o quien esta designe; quien definirá las ternas que serán presentadas posteriormente ante la Junta Directiva según corresponda. Serán sometidas a evaluación únicamente las candidaturas que cumplan con todos los requerimientos técnicos y legales contemplados en el proceso de selección, y se tendrán como elegibles las que obtengan los mayores puntajes, una vez aplicada la siguiente metodología de evaluación y detallado cada uno de los criterios más adelante:
-CRITERIOS DE EVALUACIÓN | PUNTAJE
-- Experiencia: (en principios y herramientas generales de sistemas de gestión, conocimiento de principios de evaluación basados en riesgos, conocimientos en cuanto a sesiones de órganos colegiados de acuerdo a la ley de administración pública.) - Título Universitario | 25%
-Relación del representante con el OEC. | 25%
-Récord de actividad del OEC. | 25%
-Ausencia de suspensiones del OEC por no conformidades con el ECA. | 25%
-TOTAL | 100%
+[imagen]
 1. Experiencia (25%): Se calificará la experiencia que tenga el postulante, según cuente con todos los requerimientos solicitados y el grado académico. El puntaje se otorgará según la siguiente escala,
 Experiencia:
 − Licenciado / bachiller + conocimiento en principios y herramientas generales de sistemas de gestión, conocimiento de principios de evaluación basados en riesgos, conocimientos en cuanto a sesiones de órganos colegiados de acuerdo a la ley de administración pública = 25%.
 − Licenciado / bachiller + conocimiento de principios de evaluación basados en riesgos, conocimientos en cuanto a sesiones de órganos colegiados de acuerdo a la ley de administración pública = 15%
 − Licenciado / bachiller + conocimiento en principios y herramientas generales de sistemas de gestión, = 10%
-2. Relación del representante con el OEC (25%): Al candidato que demuestre mediante Poder Protocolizado si forma parte de la planilla del OEC, o si ha sido designado por el OEC como representante externo, se otorgará el puntaje correspondiente, según la siguiente escala,
-Relación con el OEC:
+2. Relación del representante con el OEC (25%): Al candidato que demuestre mediante Poder Protocolizado si forma parte de la planilla del OEC, o si ha sido designado por el OEC como representante externo, se otorgará el puntaje correspondiente, según la siguiente escala, Relación con el OEC:
 − El representante forma parte del personal de planta del OEC = 25%
 − El representante actúa como Consultor externo del OEC = 15%
 − El representante es una persona externa al OEC, designada por sus conocimientos = 10%
@@ -376,7 +381,8 @@ Relación con el OEC:
 − De 15 a 20 años = 20%
 − 20 o más años = 25%
 4. Ausencia de suspensiones del OEC con el ECA (25%): Se calificará específicamente al OEC que no ha suspendido por el ECA, o bien, que ha sido suspendido el mínimo de veces durante su actividad en el país de origen, según la siguiente escala,
-− Nunca ha sido suspendido = 25% − 1 vez= 20%
+− Nunca ha sido suspendido = 25%
+− 1 vez= 20%
 − 2 veces = 15%
 − 3 veces = 10%
 − 4 o más veces = 5%
@@ -386,3 +392,5 @@ En caso de empate entre dos o más candidatos, y para efectos de seleccionar al 
 2. Candidato con más años de relación con el OEC que representa.
 3. OEC con más procedimiento de evaluación de conformidad realizados en el país.
 En caso de que el empate subsista según los puntos anteriores, se someterá a votación de la Junta Directiva, la elección del representante de los OEC que se integrará a la respectiva terna.
+Anexo 2 FASES DE LA SESIÓN DE LA TOMA DE DECISIONES DE ÓRGANOS COLEGIADOS
+[imagen]

@@ -14,3 +14,4 @@ Reforma ECA-MC-P23 Conformación y sesión de órganos colegiados (Versión 07)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-02 | la propia norma |
+| 2 | 2021-07-14 | Acuerdo 9 (2021-07-14) |
