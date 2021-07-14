@@ -1,0 +1,3 @@
+ARTÍCULO 9- Tramitación
+El Ministerio de Gobernación y Policía, por medio de la Dirección General de Migración y Extranjería, en atención a los criterios de simplificación de trámites, dispondrá de una ventanilla de atención especializada para las categorías dispuestas en el artículo segundo de la presente ley, regulados en la Ley 8220, Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, de 4 de marzo de 2002.
+Además de las solicitudes atendidas directamente en la ventanilla en mención, el Ministerio de cita podrá abrir una ventanilla en iguales condiciones de servicio en sus diferentes sedes o dependencias.
