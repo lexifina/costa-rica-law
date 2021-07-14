@@ -1,9 +1,0 @@
-3 PREPARACIÓN PARA LA EVALUACIÓN IN SITU
-3.1 Esta etapa implica la elaboración del Plan de evaluación, la cual es coordinada por el Evaluador Líder con el apoyo del Equipo Evaluador.
-3.2 Para la elaboración del plan de evaluación, el Equipo Evaluador debe seguir lo establecido en el procedimiento de ECA-MC-P13, Ejecución de la Evaluación.
-3.3 En caso necesario, el Equipo Evaluador puede solicitar al OEC información adicional a través de la Unidad de Logística y el OEC debe presentarla ante ésta para que la traslade al Equipo Evaluador. Dado que la información adicional puede generar cambios sobre el plan de evaluación, el Equipo Evaluador puede esperar a que el OEC remita la información requerida para completarlo.
-3.4 El Evaluador Líder debe remitir a la Unidad de Logística el ECA-MC-P13-F01 Plan de evaluación, 12 días hábiles antes de la fecha programada para realizar la evaluación in situ.
-3.5 En los siguientes 2 días hábiles, La Unidad de Logística remite al OEC el ECA-MP-P06-F01 Entrega del plan de evaluación junto con el ECA-MC-P13-F01 Plan de evaluación al OEC.
-3.6 El OEC puede solicitar a la Unidad de Logística ajustes en el plan de evaluación en los 3 días hábiles siguientes a la entrega de dicho plan, fundamentado en razones de organización de su trabajo y/o proceso productivo. De no recibir ninguna objeción, se procede a la ejecución de la evaluación de acuerdo a lo comunicado.
-3.7 En caso de solicitud de ajustes al plan de evaluación, la Unidad de Logística debe enviar dicha solicitud al Equipo Evaluador. Posteriormente, el Equipo Evaluador, realiza los ajustes que considere necesarios y los acuerda en la reunión de apertura con el OEC.
-3.8 La Unidad de Logística es la responsable de brindar seguimiento a la entrega por parte del Evaluador Líder del plan de evaluación, dentro de los plazos establecidos, además, es la responsable del archivo de estos documentos en los expedientes correspondientes.

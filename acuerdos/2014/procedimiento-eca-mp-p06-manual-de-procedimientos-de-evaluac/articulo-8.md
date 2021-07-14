@@ -1,2 +1,0 @@
-8 TRANSITORIO
-No aplica
