@@ -37,15 +37,33 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de un
 Requisitos específicos:
 a. Estar debidamente inscrito ante el Colegio de Médicos y Cirujanos en la Especialidad Médica en Anestesiología y Recuperación.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de mínimo un (1) año en la Subespecialidad en Medicina del Sueño, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)16.2.5 Anestesia Regional basada en la Anatomía.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Anestesiología en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación mínima de 1 año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Anestesia Regional basada en la Anatomía, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 16.3. Subespecialidades Médicas de Cardiología
-16.3.1. Cardiología Intervencionista y Hemodinamia.
+(*)16.3.1. Cardiología Intervencionista y Hemodinamia.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Hemodinámica y Cardiología Intervencionista.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cardiología, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Cardiología Intervencionista y Hemodinamia, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así reformada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 16.3.2. Electrofisiología Cardiaca.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cardiología, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Electrofisiología Cardiaca, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)16.3.3. Cardiología Pediátrica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cardiología, en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación de dos (2) años en un programa de estudios de posgrado (residencia médica) en la Subespecialidad de Cardiología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
+16.3.20. Electrofisiología Cardiaca.
+Se reconoce como sinónimo de esta Subespecialidad, los siguientes términos: Electrofisiología y Estimulación Cardiaca; Electrofisiología Cardiaca del Adulto; Electro Fisiología Cardiaca; Electrofisiología Clínica Invasiva; Ritmología y Estimulación Cardiaca; Electrofisiología Cardiovascular.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cardiología, en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Electrofisiología Cardiaca, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021. No obstante, la numeración no corresponde)
 16.4. Subespecialidades Médicas de Cirugía de Tórax y Cardiovascular
 16.4.1. Cirugía Cardiovascular y Tórax Pediátrica.
 Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Cardíaca Congénita; Cirugía Cardiotorácica Pediátrica; Cirugía Cardiovascular Pediátrica; Cirugía Cardiovascular Congénita; Cirugía de Malformaciones Cardíacas Congénitas.
@@ -72,6 +90,11 @@ Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Cirug
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cirugía General, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Especialidad en Coloproctología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)16.5.5 Cirugía del Trasplante Renal.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Urología, o Cirugía General, o Cirugía Pediátrica, o Vascular Periférico, en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación de un (1) año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Cirugía del Trasplante Renal, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 16.6. Subespecialidades Médicas de Cirugía Plástica, Reconstructiva y Estética.
 16.6.1. Cirugía en Mano.
 Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía en Extremidad Superior y Mano; Cirugía en Mano, Muñeca y Nervios Periféricos.
@@ -93,6 +116,11 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de un
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cirugía Pediátrica, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Oncología Quirúrgica Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)16.7.4 Cirugía del Trasplante Renal.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Urología, o Cirugía General, o Cirugía Pediátrica, o Vascular Periférico, en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación de un (1) año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Cirugía del Trasplante Renal, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 16.8. Subespecialidades Médicas de Dermatología
 16.8.1. Cirugía Dermatológica.
 Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Dermatología Quirúrgica.
@@ -142,6 +170,11 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista Medicina de Emergencias, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Medicina de Emergencias Pediátricas, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+(*)16.11.2 Urgencias Neurológicas.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Medicina de Emergencias en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación mínima de 1 año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Urgencias Neurológicas, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad."
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 16.12. Subespecialidades Médicas de Medicina Familiar y Comunitaria
 16.12.1. Medicina del Adolescente.
 Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Medicina en Adolescencia; Cuidado de la Salud Adolescente.
@@ -218,12 +251,19 @@ v. La comprensión de los fundamentos de estudios no invasivos de imágenes neur
 Requisitos Específicos:
 a. Estar debidamente inscrito como Especialista en Neurología ante el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neuropsiquiatría, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*) 16.16.5. Enfermedades Neuromusculares.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Medicina Neuromuscular.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Neurología en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación mínima de 1 año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Enfermedades Neuromusculares, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 16.17. Subespecialidades Médicas de Oftalmología
-16.17.1. Cirugía Oculoplástica, Vía Lagrimal y Órbita.
-Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Cirugía Plástica y Reconstructiva Oftalmológica.
+(*)16.17.1. Cirugía Oculoplástica, Vía Lagrimal y Órbita.
+Se reconoce como sinónimo de esta Subespecialidad, los siguientes términos: Cirugía Plástica y Reconstructiva Oftalmológica; Oculoplástica y Órbita; Oculoplastía (Párpados, Vía Lagrimal y Órbita).
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Cirugía Oculoplástica, Vía Lagrimal y Órbita, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así reformada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 16.17.2. Glaucoma.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos.
@@ -260,6 +300,16 @@ Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Ortop
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Ortopedia y Traumatología, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Ortopedia y Traumatología Pediátrica en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)16.18.5. Ortopedia Oncológica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Ortopedia y Traumatología, en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación de un (1) año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Ortopedia Oncológica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
+(*) 16.18.6. Cirugía de Cadera y Pelvis.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Ortopedia y Traumatología, en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación de un (1) año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Cirugía de Cadera y Pelvis, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 16.19. Subespecialidades Médicas de Otorrinolaringología y Cirugía de Cabeza y Cuello
 16.19.1. Medicina del Sueño.
 Requisitos específicos:
@@ -288,10 +338,12 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría ante el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Dermatología Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-16.20.4. Endocrinología Pediátrica.
+(*)16.20.4. Endocrinología Pediátrica.
+Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Endocrinología y Metabolismo Pediátrico.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Endocrinología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+(*)(Así reformada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 16.20.5. Gastroenterología Pediátrica.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
@@ -359,6 +411,12 @@ Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Oncología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
 c. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Radioterapia Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+(*) 16.20.21. Cuidado Crítico Cardiaco Pediátrico.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Pediatría en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Estar debidamente inscrito como Subespecialista en Cardiología Pediátrica o Medicina Crítica y Cuidados Intensivos Pediátricos, en el Colegio de Médicos y Cirujanos de Costa Rica.
+c. Aprobación de un (1) año mínimo en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Cuidado Crítico Cardiaco Pediátrico, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 16.21. Subespecialidades Médicas de Psiquiatría
 16.21.1. Medicina del Sueño.
 Requisitos específicos:
@@ -409,11 +467,12 @@ e. Certificación de haber realizado e interpretado un mínimo de 50 neuroangiog
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Oncoradiología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-16.22.5. Osteomuscular.
-Se reconoce como sinónimo de esta Subespecialidad, el siguiente término: Radiología Musculoesquelética.
+(*) 16.22.5. Osteomuscular.
+Se reconoce como sinónimo de esta Subespecialidad, los siguientes términos: Radiología Musculoesquelética; Imagenología del Sistema Musculo-Esquelético.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Osteomuscular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así reformada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 16.22.6. Radiología Intervencionista.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
@@ -426,7 +485,8 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de un
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Radiología Torácica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-16.23. Subespecialidades Médicas de Radioterapia
+16.23. Subespecialidades Médicas de Oncología Radioterápica
+(*)(Así Así modificada su denominación mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021. Anteriormente indicaba “Subespecialidades Médicas de Radioterapia”)
 16.23.1. Radioterapia Pediátrica.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Radioterapia en el Colegio de Médicos y Cirujanos.
@@ -442,3 +502,31 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Urología, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Urología Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)16.24.3. Cirugía del Trasplante Renal.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Urología, o Cirugía General, o Cirugía Pediátrica, o Vascular Periférico, en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación de un (1) año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Cirugía del Trasplante Renal, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
+(*)16.24.4. Urología Oncológica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Urología en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación mínima de 1 año en un Programa de Estudios Posgrado (residencia médica) en la Subespecialidad en Urología Oncológica, en un hospital de tercer nivel o centro especializado perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
+(*)16.25. Subespecialidades Médicas de Gastroenterología.
+16.25.1. Hepatología.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Gastroenterología en el Colegio de Médicos Cirujanos de Costa Rica.
+b. Aprobación al menos de 1 año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Hepatología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
+(*)16.26. Subespecialidades Médicas de Medicina Crítica y Terapia Intensiva.
+16.26.1. Terapia Intensiva Neurológica.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Medicina Crítica y Terapia Intensiva en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación mínima de 1 año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Terapia Intensiva Neurológica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
+(*) 16.27. Subespecialidades Médicas de Vascular Periférico.
+16.27.1. Cirugía del Trasplante Renal.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Urología, o Cirugía General, o Cirugía Pediátrica, o Vascular Periférico, en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación de un (1) año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Cirugía del Trasplante Renal, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)

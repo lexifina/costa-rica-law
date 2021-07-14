@@ -18,13 +18,17 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Anatomía Patológica, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad.
 14.5. Especialidad Médica en Anestesiología y Recuperación.
-Se reconoce como sinónimo de esta Especialidad, el siguiente término: Anestesiología.
+Se reconoce como sinónimo de esta Especialidad, el siguiente término: Anestesiología y Reanimación.
 Requisitos específicos:
-Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Anestesiología y Recuperación, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad. Este programa de estudios debe contemplar y garantizar, al menos una rotación en Anestesiología Pediátrica con una duración mínima de 6 meses.
+Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Anestesiología y Recuperación, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad. Este programa de estudios debe contemplar y garantizar, al menos una rotación en Anestesiología Pediátrica con una duración mínima de 6 meses."
+2. Que en acuerdo del Acta N° 2019-02-13, tomado en sesión ordinaria de la Junta de Gobierno del Colegio de Médicos y Cirujanos de Costa Rica, celebrada el 13 de febrero del 2019, se aprobó la inclusión de "Medicina Cardiovascular" como sinónimo de la Especialidad en Cardiología.
+(Así reformado el punto 14.5 anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 14.6. Especialidad Médica en Cardiología.
+Se reconoce como sinónimo de esta Especialidad, el siguiente término: Medicina Cardiovascular.
 Requisitos específicos:
 a. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Especialidad de Medicina Interna, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Cardiología, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad.
+(Así reformado el punto 14.6 anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 14.7. Especialidad Médica en Cirugía Cráneomaxilofacial.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cirugía General o Cirugía Pediátrica, ante el Colegio de Médicos y Cirujanos.
@@ -107,9 +111,11 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Medicina Aeroespacial, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
 14.27 Especialidad Médica en Medicina Crítica y Terapia Intensiva.
+Se reconoce como sinónimo de esta Especialidad, los siguientes términos: Medicina Intensiva; Medicina Crítica.
 Requisitos específicos:
 a. Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Medicina Interna, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad o estar inscrito como Especialista en Medicina Interna.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Medicina Crítica y Terapia Intensiva, en un Hospital de Tercer Nivel, Regional o Periférico perteneciente o adscrito a una Universidad.
+(Así reformado el punto 14.27 anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 14.28 Especialidad Médica en Medicina de Emergencias.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Medicina de Emergencias, en un Hospital de Tercer Nivel, Regional o Periférico perteneciente o adscrito a una Universidad.
@@ -157,9 +163,11 @@ a. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Nefrología, en un Hospital de Tercer Nivel, Regional o Periférico perteneciente o adscrito a una Universidad.
 En el caso de estar inscrito como Especialista en Medicina Interna, se requerirá sólo la aprobación un programa de estudios de posgrado (residencia médica) de mínimo tres (3) años, en la Especialidad de Nefrología, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
 14.42 Especialidad Médica en Neumología.
+Se reconoce como sinónimo de esta Especialidad, los siguientes términos: Neumotisiología; Pulmonología; Neumonología.
 Requisitos específicos:
 a. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Especialidad de Medicina Interna, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Especialidad de Neumología, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
+(Así reformado el punto 14.2 anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 14.43 Especialidad Médica en Neurocirugía.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de seis (6) años en la Especialidad de Neurocirugía, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
@@ -204,14 +212,16 @@ Aprobación de un programa de estudios de posgrado (residencia médica) de tres 
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Psiquiatría en un Hospital de Tercer Nivel, Regional, Periférico o Centro Especializado, perteneciente o adscrito a una Universidad.
 14.54 Especialidad Médica en Radiología e Imágenes Médicas.
-Se reconocen como sinónimos de esta especialidad, los siguientes términos:
-Radiodiagnóstico; Diagnóstico por Imagen; Radiología; Radiología e Imagenología;
+Se reconocen como sinónimos de esta especialidad, los siguientes términos: Radiodiagnóstico; Diagnóstico por Imagen; Radiología; Radiología e Imagenología; Imagenología.
 Requisitos específicos:
-Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Radiología e Imágenes Médicas, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
-14.55 Especialidad Médica en Radioterapia.
+Aprobación de cuatro (4) años en un programa de estudios de posgrado (residencia médica) en la Especialidad de Radiología e Imágenes Médicas, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
+(Así reformado el punto 14.54 anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
+14.55 Especialidad Médica en Oncología Radioterápica.
+Se reconoce como sinónimo de esta Especialidad, el siguiente término: Radioterapia.
 Requisitos específicos:
 a. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Especialidad de Medicina Interna, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Radioterapia, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
+(Así reformado el punto 14.55 anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
 14.56 Especialidad Médica en Reumatología.
 Requisitos específicos:
 a. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Especialidad de Medicina Interna, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
