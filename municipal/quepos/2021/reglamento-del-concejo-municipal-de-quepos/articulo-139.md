@@ -1,0 +1,1 @@
+ARTÍCULO 139.- Los dictámenes de las comisiones deberán ser entregados a la Secretaría del Concejo Municipal a más tardar las 12:00 horas del día en que se celebre la correspondiente sesión ordinaria. Lo anterior, sin detrimento de lo indicado en el artículo 70 de este Reglamento.

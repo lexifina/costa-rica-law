@@ -1,0 +1,1 @@
+ARTÍCULO 96.- Las actas aprobadas en firme, firmadas e incluidas en el respectivo Libro de Actas del Concejo Municipal autorizado por la Auditoría Interna son las únicas que tendrán validez para los efectos legales que correspondan.

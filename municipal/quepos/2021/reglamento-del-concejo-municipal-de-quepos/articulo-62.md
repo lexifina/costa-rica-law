@@ -1,0 +1,1 @@
+ARTÍCULO 62.- Cuando exista un acontecimiento que a juicio del Concejo Municipal requiera un procedimiento protocolario particular y excepcional a dicha sesión se le denominará solemne y deberá tratarse de una sesión extraordinaria convocada y dedicada exclusivamente para ese asunto.

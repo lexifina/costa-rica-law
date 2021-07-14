@@ -1,0 +1,1 @@
+ARTÍCULO 115.- Podrán intervenir únicamente dos particulares por audiencia conferida en las sesiones ordinarias. En caso de que exista otra persona interesada deberá así autorizarlo mediante votación simple el Concejo Municipal.

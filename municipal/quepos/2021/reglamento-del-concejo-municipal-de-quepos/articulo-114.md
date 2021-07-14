@@ -1,0 +1,1 @@
+ARTÍCULO 114.- Los oradores particulares que se presenten a las sesiones del Concejo Municipal deberán tomar asiento en el sitio que designe el Presidente Municipal y tomarán la palabra en el podio destinado al efecto, si no lo hubiere, donde le indique el Presidente Municipal.

@@ -1,0 +1,1 @@
+ARTÍCULO 108.- Sin detrimento de lo mencionado en los dos artículos anteriores, si se presentare una moción de orden para retirar el uso de la palabra a un interviniente por su exceso en las expresiones o para facultarle a contar con mayor plazo, el Concejo Municipal podrá acordar su retiro o ampliación por mayoría simple.

@@ -1,0 +1,1 @@
+ARTÍCULO 132.- Cada Comisión Permanente nombrará de su seno por votación de mayoría simple en la primera sesión un Regidor propietario como su Presidente para efectos de dirigir el debate, firmar las actas y convocar a sesiones extraordinarias de la Comisión respectiva. Así como a un secretario para levantar y firmar actas.

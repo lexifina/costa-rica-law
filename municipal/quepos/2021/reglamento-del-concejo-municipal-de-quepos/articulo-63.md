@@ -1,0 +1,1 @@
+ARTÍCULO 63.- Dentro del presupuesto anual de la Municipalidad de Quepos existirá una partida presupuestaria reservada para las actividades protocolarias y sociales del Concejo Municipal que mediante acuerdo se apruebe celebrar. El monto de esta partida será acordado por el Concejo.

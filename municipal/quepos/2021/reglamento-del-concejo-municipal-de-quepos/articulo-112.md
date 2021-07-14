@@ -1,0 +1,1 @@
+ARTÍCULO 112.- Corresponderá al Presidente del Concejo Municipal definir las fechas en que se recibirá en audiencia a los particulares en las sesiones ordinarias para lo cual incorporará al orden del día la recepción de los particulares.

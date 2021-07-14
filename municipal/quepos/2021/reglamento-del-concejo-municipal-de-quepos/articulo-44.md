@@ -1,0 +1,1 @@
+ARTÍCULO 44.- El Asesor Jurídico de confianza del Concejo Municipal atenderá en forma célere e inmediata los recursos interpuestos en contra de las actuaciones del Concejo Municipal y coordinará lo pertinente para brindar respuesta en los plazos establecidos con el Presidente Municipal.

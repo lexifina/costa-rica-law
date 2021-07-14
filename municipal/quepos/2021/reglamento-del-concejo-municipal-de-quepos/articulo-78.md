@@ -1,0 +1,2 @@
+ARTÍCULO 78.- Los votos que emitan los Regidores en los asuntos que son sometidos a su conocimiento y deliberación deberán ser afirmativos o negativos. No son válidas las abstenciones en las votaciones, salvo en casos de excusa o recusación, para lo cual quien se excuse o sea recusado no podrá emitir el voto.
+En caso de que algún edil propietario se excusare de una votación, el respectivo suplente podrá votar en su lugar para dicho asunto particular únicamente.

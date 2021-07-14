@@ -1,0 +1,1 @@
+ARTÍCULO 135.- En caso de no existir quórum a la hora de realizarse una sesión de Comisiones se concederá un plazo de quince minutos de gracia para dar inicio y si una vez transcurridos no lo hubiere se tendrá por cancelada la sesión, consignándose en el acta el nombre de los regidores y asesores asistentes y será firmada por el o la Secretaria de Comisión.

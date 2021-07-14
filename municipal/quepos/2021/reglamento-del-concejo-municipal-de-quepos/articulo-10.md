@@ -1,0 +1,1 @@
+ARTÍCULO 10.- Los Regidores suplentes estarán sometidos en lo conducente, a las mismas disposiciones que resultan aplicables a los regidores propietarios cuando les sustituyan en casos de ausencias temporales u ocasionales.

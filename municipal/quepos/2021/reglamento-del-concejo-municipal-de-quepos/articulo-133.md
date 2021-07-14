@@ -1,0 +1,1 @@
+ARTÍCULO 133.- Las sesiones de las Comisiones se llevarán a cabo el día que acuerden por mayoría los miembros de la Comisión y se reunirán en forma extraordinaria cuando así sean convocados por medio de su Presidente con al menos veinticuatro horas de antelación.

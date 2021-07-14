@@ -1,0 +1,1 @@
+ARTÍCULO 159.- Cuando el Alcalde requiera ausentarse del cantón para representar a la Municipalidad en asuntos institucionales y por ello deba faltar a una sesión del Concejo Municipal deberá comunicar al Concejo Municipal.

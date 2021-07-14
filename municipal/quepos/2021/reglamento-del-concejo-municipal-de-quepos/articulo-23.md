@@ -1,0 +1,1 @@
+ARTÍCULO 23.- El Directorio Provisional estará formado por los Regidores Propietarios presentes de mayor edad que hayan resultado electos. El mayor ejercerá la Presidencia y el que le siga la Vicepresidencia. El Tribunal Supremo de Elecciones será quien extienda las credenciales respectivas e indicará los nombres de dichos Regidores que conformarán el Directorio Provisional.

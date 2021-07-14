@@ -1,0 +1,1 @@
+ARTÍCULO 107.- Cuando se trate de asuntos que requieran un tiempo más extenso del mencionado en el artículo anterior, el interviniente lo informará de previo al Presidente del Concejo Municipal para que le conceda mayor uso de tiempo, quien lo concederá de manera razonable y lo retirará en caso de exceso o redundancia.

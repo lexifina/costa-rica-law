@@ -1,0 +1,1 @@
+ARTÍCULO 14.- Los Regidores suplentes no podrán formar parte de las comisiones permanentes del Concejo Municipal, salvo que de forma temporal se encuentren sustituyendo al titular. No obstante, sí podrán formar parte de las comisiones especiales con derecho a voz y voto.

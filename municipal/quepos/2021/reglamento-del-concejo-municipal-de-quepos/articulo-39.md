@@ -1,0 +1,4 @@
+CAPÍTULO X
+DEL ASESOR JURÍDICO DE CONFIANZA DEL CONCEJO MUNICIPAL
+ARTÍCULO 39.- El Asesor Jurídico de confianza del Concejo Municipal será nombrado por el Alcalde atendiendo la recomendación del Concejo Municipal, quien mediante acuerdo de mayoría simple emitirá criterio sobre la terna de elegibles según el concurso que se haya seguido a la luz del artículo 137 del Código Municipal. Lo anterior, en caso de que la plaza sea con cargo a la partida de sueldos para cargos fijos.
+En caso de que el nombramiento del Asesor Jurídico de confianza del Concejo Municipal sea bajo la partida de servicios especiales bajo régimen de confianza, el nombramiento lo hará el Alcalde con base en el acuerdo municipal que le solicite la designación de un particular que haya cumplido con los requisitos para el cargo.

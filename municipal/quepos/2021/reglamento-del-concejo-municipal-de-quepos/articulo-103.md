@@ -1,0 +1,1 @@
+ARTÍCULO 103.- El momento procesal para solicitar correcciones al acta sometida a aprobación es previo a su votación. Posterior a ello no podrá ser alterada el acta salvo que se trate de correcciones ortográficas y de forma.

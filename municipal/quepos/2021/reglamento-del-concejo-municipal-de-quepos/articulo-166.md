@@ -1,0 +1,1 @@
+ARTÍCULO 166.- No serán de recibo mociones de orden tendientes a divagar sobre un mismo tema anteriormente sometido a votación, ni tampoco una moción de orden con intención de posponer el conocimiento de otra presentada en forma anterior.

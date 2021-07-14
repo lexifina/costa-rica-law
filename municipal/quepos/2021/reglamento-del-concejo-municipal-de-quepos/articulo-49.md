@@ -1,0 +1,1 @@
+ARTÍCULO 49.- Las sesiones del Concejo Municipal se llevarán a cabo conforme el orden del día que elabore su Presidente, mismo que podrá ser modificado o alterado únicamente con el voto concurrente de las dos terceras partes de los regidores propietarios presentes.

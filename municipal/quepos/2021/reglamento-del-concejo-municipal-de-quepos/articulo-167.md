@@ -1,0 +1,1 @@
+ARTÍCULO 167.- La sola presentación de una moción de orden suspenderá todo asunto en trámite hasta tanto se haya votado. Solo tendrá derecho a uso de la palabra quien presentare la moción de orden hasta por un minuto.

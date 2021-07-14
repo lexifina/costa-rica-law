@@ -1,0 +1,2 @@
+COMISIONES PERMANENTES:
+ARTÍCULO 146.- Las comisiones permanentes conocerán los asuntos que como referencia se indiquen en este Reglamento, sin detrimento de aquellas valoraciones de temas no contemplados que considere el Presidente Municipal designar a conocimiento de alguna comisión particular o bien cuando se haya creado una comisión especial para determinado asunto. Asimismo, queda facultado el Presidente Municipal a asignar un asunto a una comisión distinta de lo señalado este Reglamento cuando así lo considere conveniente para garantizar su eficiente tramitación.

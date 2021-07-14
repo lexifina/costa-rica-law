@@ -1,0 +1,1 @@
+ARTÍCULO 29.- A la sesión solemne que corresponde a la elección del Directorio Provisional dos años después de la toma de posesión de los cargos aplicarán en lo que resultaren procedente las mismas reglas descritas en este capítulo y el Directorio Provisional estará conformado en este caso por los dos regidores de mayor edad.

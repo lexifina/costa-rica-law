@@ -1,0 +1,1 @@
+ARTÍCULO 173.- En el salón de sesiones del Concejo Municipal podrán ubicarse cuadros con fotografías de paisajes, o personajes distintivos y honoríficos del cantón, habrá siempre un estandarte con el pabellón nacional y cantonal, y otro con el escudo del Cantón de Quepos en buen estado.

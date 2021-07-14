@@ -1,0 +1,1 @@
+ARTÍCULO 86.- Únicamente se pagará una dieta por sesión ordinaria por semana y hasta dos por sesiones extraordinarias al mes, se reconocerá el pago de la asistencia a las dos primeras sesiones extraordinarias al mes, el resto de sesiones extraordinarias no se pagarán.

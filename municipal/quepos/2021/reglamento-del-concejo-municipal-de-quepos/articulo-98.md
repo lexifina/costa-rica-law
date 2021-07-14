@@ -1,0 +1,1 @@
+ARTÍCULO 98.- Las actas deberán ser aprobadas en la sesión ordinaria posterior; salvo que lo impidan razones de fuerza mayor, en cuyo caso la aprobación se pospondrá para la siguiente sesión ordinaria.

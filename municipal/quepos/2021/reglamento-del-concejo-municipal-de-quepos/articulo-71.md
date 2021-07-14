@@ -1,0 +1,1 @@
+ARTÍCULO 71.- El orden del día definido por el Presidente del Concejo es discrecional e inapelable, pero podrán variarse, incluirse o eliminarse puntos mediante moción de orden aprobada por mayoría calificada.

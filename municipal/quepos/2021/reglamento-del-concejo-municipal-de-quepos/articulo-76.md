@@ -1,0 +1,1 @@
+ARTÍCULO 76.- En caso de empate, el asunto será sometido nuevamente a votación en el mismo acto o en una sesión ordinaria diferente conforme disponga la Presidencia del Concejo Municipal. En caso de votarse el asunto dos veces y tenerse como resultado dos empates se tendrá por desechado.

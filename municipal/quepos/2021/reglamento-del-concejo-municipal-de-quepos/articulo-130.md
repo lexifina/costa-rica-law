@@ -1,0 +1,1 @@
+ARTÍCULO 130.- Las sesiones de las Comisiones del Concejo Municipal serán, en principio, de carácter público; sin embargo, el Presidente de la Comisión podrá declarar la privacidad de la misma cuando se trate del trámite de denuncias, procedimientos honoríficos o cuando estime inconveniente su publicidad para los intereses municipales.

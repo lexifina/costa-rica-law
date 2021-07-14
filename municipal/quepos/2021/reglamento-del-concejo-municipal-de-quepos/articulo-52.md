@@ -1,0 +1,1 @@
+ARTÍCULO 52.- Las sesiones extraordinarias podrán realizarse en lugares distintos a la Municipalidad de Quepos cuando se trate de asuntos relativos a los intereses de los vecinos de la localidad, excepto en casas de habitación. Deberá garantizarse suficientes condiciones espaciales para llevar a cabo la sesión sin inconvenientes ni riesgos a la seguridad.

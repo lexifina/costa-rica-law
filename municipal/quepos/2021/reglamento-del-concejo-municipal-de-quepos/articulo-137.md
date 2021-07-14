@@ -1,0 +1,1 @@
+ARTÍCULO 137.- En caso de que un Regidor propietario no pueda asistir a una sesión de comisión podrá solicitar a un Regidor suplente de su misma fracción política para que le sustituya, sin embargo, no podrá el Regidor propietario delegar en el suplente la obligación de asistencia que le impone el artículo 26, inciso d) del Código Municipal.
