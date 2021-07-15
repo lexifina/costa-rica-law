@@ -1,0 +1,1 @@
+Artículo 18º. -Carácter privado de las sesiones del Comité. Las sesiones del Comité serán privadas, no obstante, el Comité por acuerdo unánime podrá disponer la participación de otras personas, entre ellas personal del ICE, de las Empresas o invitados externos, concediéndoles o no el derecho de participar en las deliberaciones con voz, pero sin voto.
