@@ -16,3 +16,4 @@ Inscripción, modificación de datos y desinscripción en el registro único tri
 | 1 | 2017-12-21 | la propia norma |
 | 2 | 2018-07-07 | Resolución 43 (2018-07-07) |
 | 3 | 2020-09-15 | Resolución 29 (2020-09-15) |
+| 4 | 2021-07-15 | Resolución 24 (2021-07-15) |
