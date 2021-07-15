@@ -1,3 +1,0 @@
-ARTICULO 3°.-
-Son funciones de los comites de cultura:
-a) Velar por el buen funcionamiento y administración de la casa de la cultura de su jurisdicción. b) Trabajar, en colaboración con el Ministerio de Cultura, Juventud y Deportes, como contraparte local, en las tareas de rescate, promoción, capacitación y difusión cultural. c) Trabajar en coordinación conorganizaciones e instituciones locales, cuyas actividades están relacionadas con el desarrollo social y cultural de la comunidad. d) Rendir informes al Ministerio de Cultura, Juventud y Deportes acerca de la marcha de sus actividades y proyectos.
