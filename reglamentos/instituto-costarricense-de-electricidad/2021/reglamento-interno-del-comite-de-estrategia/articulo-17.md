@@ -1,0 +1,4 @@
+Artículo 17º. De las convocatorias. Las convocatorias de las sesiones, tanto ordinarias como extraordinarias, presenciales o virtuales, serán realizadas por la Secretaría, mediante el sistema correspondiente, previa autorización del Presidente (a) del Comité y una vez que éste haya aprobado el orden del día.
+La convocatoria a sesiones del Comité se realizará teniendo en cuenta los siguientes parámetros:
+1. Al principio de cada ejercicio fiscal, el Comité aprobará un calendario de reuniones ordinarias, previa coordinación de la agenda del Consejo Directivo y la disponibilidad de los miembros del Comité; en todo caso, de haber cambios en la agenda planeada, será labor de la Secretaría del Comité coordinar la logística necesaria.
+2. El orden del día y la información y expedientes de respaldo, se pondrá a consideración del Comité con no menos de tres (3) días hábiles de antelación.

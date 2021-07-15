@@ -1,0 +1,1 @@
+Artículo 10º. Informes. El Comité de Estrategia brindará un informe anual de sus actuaciones al Consejo Directivo, además podrá presentar informes particulares que se requieran para complementar el cumplimiento de las funciones establecidas en este Reglamento.

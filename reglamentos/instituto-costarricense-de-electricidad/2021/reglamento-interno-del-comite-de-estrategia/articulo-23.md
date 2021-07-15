@@ -1,0 +1,1 @@
+Artículo 23º. De los votos disidentes. Los miembros del Comité de Estrategia podrán hacer constar en el acta, su voto contrario al acuerdo tomado, y los motivos que lo justifiquen, quedando en tal caso exentos de las responsabilidades que, en su caso pudieren derivarse de los acuerdos.
