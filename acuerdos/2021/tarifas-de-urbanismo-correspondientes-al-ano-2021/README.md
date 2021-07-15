@@ -14,3 +14,4 @@ Tarifas de urbanismo correspondientes al año 2021
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-28 | la propia norma |
+| 2 | 2021-07-15 | Acuerdo 0 (2021-07-15) |
