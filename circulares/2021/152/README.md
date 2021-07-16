@@ -13,3 +13,4 @@ Acceso a la justicia para las personas privadas de la libertad. Notificación de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-07-08 | la propia norma |
+| 2 | 2021-07-16 | Circular 166 (2021-07-16) |
