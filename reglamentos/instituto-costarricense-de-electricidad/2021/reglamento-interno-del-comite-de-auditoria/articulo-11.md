@@ -1,0 +1,2 @@
+Artículo 11.-Presidencia del Comité. El Comité de Auditoría elegirá de su seno, por mayoría de votos al Presidente(a), quien deberá ser alguno de los miembros del Consejo Directivo y desempeñará el cargo por un periodo de un año, y puede ser reelecto. El Comité de Auditoría comunicará ese nombramiento al Consejo Directivo.
+El Presidente(a) de este Comité no podrá presidir ningún otro comité y deberá disponer del tiempo suficiente para el ejercicio de la función.
