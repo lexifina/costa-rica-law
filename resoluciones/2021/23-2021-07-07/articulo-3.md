@@ -1,0 +1,1 @@
+Artículo 3º-Plazo de tramitación. Las solicitudes de devolución deberán resolverse en el plazo ordenatorio establecido por el artículo 43 del Código de Normas y Procedimientos tributarios de tres meses.
