@@ -1,0 +1,1 @@
+Artículo 25.-Solicitud, análisis, aprobación y formalización de los arreglos de pago: Corresponde a la Sección de Cobros de la Municipalidad de Carrillo recibir, analizar, aprobar y formalizar las solicitudes de arreglo de pago hechas por el sujeto pasivo y le corresponderá a éste presentar solicitud escrita en el formulario diseñado por la Municipalidad para tales efectos.

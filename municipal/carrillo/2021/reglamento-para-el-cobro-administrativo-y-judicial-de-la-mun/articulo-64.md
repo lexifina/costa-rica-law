@@ -1,0 +1,1 @@
+Artículo 64.-Las comisiones que así se generen se liquidarán con la presentación del informe por parte del recaudador y una vez que hayan sido aprobadas por la jefatura de cobro administrativo, la cual procederá a trasladar a la dirección financiera administrativa para su proceso de pago.

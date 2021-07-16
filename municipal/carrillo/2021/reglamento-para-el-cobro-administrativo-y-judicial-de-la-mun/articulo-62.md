@@ -1,0 +1,1 @@
+Artículo 62.-Queda facultada la Municipalidad de Carrillo en la dirección financiera administrativa revisar el esquema de comisiones y establecer el que mejor se adecue a la realidad económica del gobierno local.

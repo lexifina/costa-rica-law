@@ -1,0 +1,1 @@
+Artículo 59.-El tratamiento de la información y las estrategias de cobro que así establezcan los recaudadores externos son propias de sus actuaciones, sin embargo, será responsabilidad del objeto contractual establecido cumplir con lo que se establezca de forma tal que el administrado reciba el trato adecuado en el proceso de gestión del cobro externo.

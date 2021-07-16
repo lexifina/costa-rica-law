@@ -1,0 +1,1 @@
+Artículo 65.-Al ser un proceso de recaudación externo continuo, el rubro de comisiones se toma del monto presupuestado anualmente de la partida de gastos por comisiones por servicios financieros y comerciales.

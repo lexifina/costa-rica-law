@@ -1,0 +1,1 @@
+Artículo 68.-El día hábil siguiente al remate, el abogado director del proceso judicial, deberá de informar por escrito a la Sección de Cobros, el resultado del remate. De no cumplir con lo expuesto con anterioridad se le aplicara la sanción de incumplimiento de deberes y las firmes responsabilidades.

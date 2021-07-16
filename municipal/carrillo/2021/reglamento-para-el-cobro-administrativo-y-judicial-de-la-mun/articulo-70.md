@@ -1,0 +1,3 @@
+Artículo 70.-Elaboración de Informe Anual de la Sección de Cobro Administrativo y Judicial este informe será elaborado por el responsable de la Sección de Cobro Administrativo y Judicial y contendrá:
+. Consolidado por servicios, impuestos, y tributos del monto puesto al cobro, el monto recaudado y el saldo moroso, y contendrá resumen consolidado de los aspectos logrados en relación a la estrategia de cobro utilizada detallando de forma consolidada los siguientes indicadores: mora acumulada respecto al año anterior, expedientes remitidos a Cobro Judicial y sus avances, total de gestiones efectivas realizadas,
+. Cualquier otro aspecto considerado de interés municipal y relacionado con el tema.

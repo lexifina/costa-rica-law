@@ -1,0 +1,1 @@
+Artículo 58.-La Sección de cobro asignará la cartera de conformidad con el esquema de comisiones que la Dirección Financiera Administrativa así establezca para tal efecto, y será responsabilidad de la jefatura de la sección de cobros el seguimiento del cobro recuperado por cada recaudador, así como de la preparación del respectivo informe de pago cuando este proceda.

@@ -1,0 +1,1 @@
+Artículo 50.-Condonación de honorarios de abogados. Procederá únicamente la condonación de los honorarios profesionales por parte del Abogado externo cuando así lo haya determinado, el cual lo hará constar mediante nota dirigida a la Sección de Cobro.

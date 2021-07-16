@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Otorgamiento y formalización
+de los arreglos de pago
+Artículo 24.-Definición de arreglos de pago. Es el compromiso que asume el sujeto pasivo con la Municipalidad, de cancelar en un tiempo a convenir los tributos vencidos de acuerdo con lo dispuesto en este Reglamento, sin perjuicio de la acumulación y cumplimiento de las nuevas obligaciones, más los intereses de Ley. No cabe el arreglo de pago de oficio, acordado por la Municipalidad, sin petición del interesado, ni tampoco el obligado puede aplazar de hecho sus deudas. No existe arreglo de pago sin acto administrativo que lo resuelva.

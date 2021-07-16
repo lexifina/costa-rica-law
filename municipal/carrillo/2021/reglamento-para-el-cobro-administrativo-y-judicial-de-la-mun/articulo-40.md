@@ -1,0 +1,2 @@
+Artículo 40.-De los incentivos: El Coordinador de Hacienda someterá a consideración del Concejo Municipal, los incentivos a promover para el pago oportuno entre los contribuyentes de acuerdo a lo establecido en el artículo 69 del Código Municipal y tramitará ante el Consejo Municipal la autorización respectiva.
+Tanto los ingresos esperados producto del incentivo como los egresos necesarios para publicitarlos deben estar contemplados en el Plan Operativo Anual y Presupuesto Municipal del periodo correspondiente.

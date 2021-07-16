@@ -1,0 +1,1 @@
+Artículo 29.-Finiquito del arreglo de pago. El convenio de arreglo de pago se resolverá únicamente, ante el pago total que realice el sujeto pasivo de la obligación vencida, o cuando se haya retrasado cinco días hábiles en el cumplimiento de su obligación, en cuyo caso, vencido dicho plazo, se remitirá inmediatamente el expediente a la etapa de cobro ejecutivo en vía judicial.

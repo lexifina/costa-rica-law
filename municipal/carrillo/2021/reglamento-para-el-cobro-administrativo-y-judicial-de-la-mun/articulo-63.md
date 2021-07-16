@@ -1,0 +1,1 @@
+Artículo 63.-Se autoriza a la sección de contabilidad, tesorería y Dirección Financiera a realizar los respectivos registros contables y financieros necesarios para contabilidad en forma separada los gastos generados por comisiones pagadas, asignando la cuenta que corresponda a cada recaudador.

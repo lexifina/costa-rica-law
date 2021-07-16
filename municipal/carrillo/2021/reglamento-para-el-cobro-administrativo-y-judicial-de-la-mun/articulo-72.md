@@ -1,0 +1,3 @@
+Artículo 2.-Visto y analizado el Reglamento para el Cobro Administrativo y Judicial de la Municipalidad de Carrillo. Esta Comisión recomienda al Concejo Municipal su aprobación correspondiente para que el mismo sea publicado en el Diario Oficial La Gaceta, y se procede a dar un plazo de 8 días a partir de la primera publicación del Diario Oficial La Gaceta para las consultas públicas no vinculantes.
+Se acuerda; visto y analizado el citado oficio este Concejo Municipal por unanimidad de votos dispone; Acordar la publicación definitiva del Reglamento para el Cobro Administrativo y Judicial de la Municipalidad de Carrillo el cual rige a partir de su publicación en Diario Oficial La Gaceta.
+Filadelfia, Carrillo, 08 de julio del 2021.

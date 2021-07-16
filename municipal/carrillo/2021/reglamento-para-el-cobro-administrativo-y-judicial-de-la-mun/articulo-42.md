@@ -1,0 +1,1 @@
+Artículo 42.-Seguimiento al cumplimiento de la estrategia. Es responsabilidad del Coordinador de Hacienda, dar seguimiento al cumplimiento de la estrategia de cobro por parte de los funcionarios e informar de sus resultados a la Alcaldía Municipal.
