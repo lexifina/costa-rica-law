@@ -1,0 +1,4 @@
+CAPÍTULO VI
+De las sanciones disciplinarias
+Artículo 24.-Las sanciones disciplinarias por acoso sexual debidamente comprobado, se aplicarán según la gravedad del hecho y la condición jerárquica de la persona denunciada, en concordancia con lo dispuesto en el Reglamento Autónomo de Servicios de la Municipalidad de Buenos Aires, el artículo 158 del Código Municipal, y lo dispuesto en el numeral 34 de la Ley Nº 7476 "Ley de Acoso Sexual en el Empleo y la Docencia, para lo cual deberán observarse las reglas previstas en el artículo 18º del presente reglamento.
+Relativo a la imposición de sanciones disciplinarias por acoso sexual debidamente comprobado a funcionarios de elección popular, se regirá por lo dispuesto en los incisos b.); c.) y d.) del artículo 26 de la Ley Nº 7476 "Ley de Acoso Sexual en el Empleo y la Docencia"

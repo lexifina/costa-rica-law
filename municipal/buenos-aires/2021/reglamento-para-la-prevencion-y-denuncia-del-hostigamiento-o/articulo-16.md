@@ -1,0 +1,1 @@
+Artículo 16.-Denuncia falsa. Quien denuncie por acoso sexual de forma falsa o abusiva podrá ser sancionada disciplinariamente, previa apertura de causa y observancia del debido proceso, conforme lo establece el libro segundo de la Ley General de la Administración Pública.
