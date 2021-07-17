@@ -1,0 +1,1 @@
+ARTICULO 18- Señalización y rotulación. Toda entidad pública o privada con acceso al público deberá tener un diseño universal que cuente con señalización, avisos, información visual y sistemas de alarmas luminosas y cumplir con todas las normas de accesibilidad establecidas en la normativa vigente.

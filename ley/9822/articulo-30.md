@@ -1,0 +1,3 @@
+CAPITULO V
+FINANCIAMIENTO
+ARTICULO 30-Presupuesto. Las instituciones públicas de la Administración central, los Poderes Legislativo y Judicial, el Tribunal Supremo de Elecciones, la Administración descentralizada y las empresas públicas del Estado deberán incluir, en el período presupuestario siguiente y en los presupuestos futuros, las partidas de financiamiento necesarias para la contratación de intérpretes y la capacitación de personas en lengua lesco, así como para la adquisición e instalación de sistemas alternativos de comunicación para atender las necesidades de las personas sordas, según su competencia, a fin de cumplir lo dispuesto por la presente ley. En el mismo sentido, quedan facultadas las municipalidades y las instituciones autónomas.

@@ -1,0 +1,1 @@
+ARTÍCULO 27-Derechos y deberes de la persona intérprete de lesco. El servicio de interpretación en lengua de señas costarricense (lesco) deberá ser reconocido como un trabajo y las personas intérpretes de lesco como trabajadoras, de forma que gozarán de todos los derechos y deberes establecidos en el ordenamiento jurídico.

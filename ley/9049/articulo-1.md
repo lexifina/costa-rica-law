@@ -1,4 +1,6 @@
+(Derogado)
 N° 9049
+(Esta norma fue derogada por el artículo 37 de la Ley Reconocimiento y promoción de la Lenguaje de Señas Costarricense (LESCO), N° 9822 del 29 de mayo del 2020)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 LEY DE RECONOCIMIENTO DEL LENGUAJE

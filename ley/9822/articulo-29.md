@@ -1,0 +1,1 @@
+ARTICULO 29- Servicio al cliente. Las entidades públicas y privadas incorporarán, dentro de los programas de atención al cliente, el servicio de intérpretes de lesco, así como mecanismos u otros sistemas de comunicación.

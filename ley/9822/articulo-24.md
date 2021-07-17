@@ -1,0 +1,1 @@
+ARTÍCULO 24-Cultura, deporte y recreación. Las instituciones públicas o privadas de servicio público deberán contar con los servicios de interpretación en lesco, en actividades culturales, deportivas, de recreación y de ocio.

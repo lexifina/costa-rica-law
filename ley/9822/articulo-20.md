@@ -1,0 +1,2 @@
+ARTICULO 20- Acceso a la información institucional. Cuando las instituciones públicas y privadas realicen o subvencionen congresos, foros, simposios y seminarios, en los que participen personas sordas, facilitarán su acceso a la información mediante la prestación de servicios de intérpretes en lesco.
+Asimismo, las instituciones públicas y privadas adoptarán las medidas necesarias para que las campañas de publicidad institucional y los distintos soportes audiovisuales en los que estas se pongan a disposición del público sean accesibles a estas personas.

@@ -1,0 +1,1 @@
+ARTÍCULO 21-Accesibilidad a sitios web. Las páginas y los portales de internet de instituciones públicas o financiados con fondos públicos se adaptarán a los estándares establecidos por las autoridades competentes, para lograr su accesibilidad a las personas sordas.
