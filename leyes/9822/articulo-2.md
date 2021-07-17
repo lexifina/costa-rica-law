@@ -1,0 +1,1 @@
+ARTICULO 2- Patrimonio cultural y lingüístico. Se reconoce la lesco como patrimonio cultural y lingüístico de la comunidad de personas sordas, y se incorpora al sistema plurilingüístico costarricense.

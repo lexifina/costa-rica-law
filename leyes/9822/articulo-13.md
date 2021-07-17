@@ -1,0 +1,1 @@
+ARTÍCULO 13- Formación de intérpretes. El Estado promoverá y apoyará con los recursos necesarios a las instituciones públicas y privadas que impartan carreras relacionadas con la formación de intérpretes de la lengua de señas costarricense (lesco), en todo el territorio nacional.

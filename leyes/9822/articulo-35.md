@@ -1,0 +1,1 @@
+ARTÍCULO 35- Se autoriza a las instituciones públicas para que celebren actos conmemorativos relacionados con las fechas antes mencionadas, tendientes a evidenciar la situación que enfrentan las personas sordas en una sociedad encaminada a implementar las adecuaciones que les permitan a estas personas comunicarse en igualdad de condiciones.

@@ -1,0 +1,1 @@
+ARTÍCULO 23-Derecho a la salud. Los centros de salud de la Caja Costarricense de Seguro Social (CCSS) podrán ofrecer el servicio de interpretación en lesco, que permitan garantizar el acceso a la salud en igualdad de oportunidades para las personas sordas.

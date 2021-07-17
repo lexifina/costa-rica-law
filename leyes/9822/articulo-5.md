@@ -1,0 +1,1 @@
+ARTÍCULO 5- Acto de discriminación. Se considerará acto discriminatorio el impedir a una persona sorda que reciba información o se comunique en lengua de señas o en cualquier otra forma de comunicación que estas personas requieran, así como cualquier trato, medida o acto que lesione su dignidad como persona o sus derechos humanos.

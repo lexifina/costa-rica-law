@@ -1,0 +1,1 @@
+ARTÍCULO 14- Tecnologías de información y comunicación. El Estado garantizará a las personas sordas el acceso a las tecnologías de información y comunicación (TIC), en igualdad de condiciones y oportunidades, aplicando los ajustes razonables para la equiparación de las oportunidades como medio de comunicación, desarrollo personal y de acceso a la sociedad del conocimiento.

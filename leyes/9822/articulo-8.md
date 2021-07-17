@@ -1,0 +1,1 @@
+ARTÍCULO 8- Derecho al aprendizaje, conocimiento y uso de la lesco y de los medios de apoyo a la comunicación oral. Se reconoce el derecho de la persona sorda de elegir libremente el aprendizaje, conocimiento y uso de la lesco y a los distintos medios de apoyo a la comunicación oral, en los términos establecidos en esta ley.

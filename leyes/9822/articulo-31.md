@@ -1,0 +1,1 @@
+ARTÍCULO 31-Convenios o acuerdos. Las instituciones públicas podrán suscribir convenios, alianzas y acuerdos con organizaciones de la sociedad civil, entidades del sector público y privado, y organismos de cooperación internacional, para el cumplimiento de la presente ley.
