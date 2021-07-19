@@ -14,3 +14,4 @@ Reglamento de organización, funcionamiento y administración del Mercado Munici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-25 | la propia norma |
+| 2 | 2021-07-19 | Reglamento municipal 29 (2021-07-19) |
