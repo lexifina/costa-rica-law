@@ -1,0 +1,1 @@
+Artículo 24.-Protección del denunciante. La Auditoría Interna está obligada a proteger la identidad del denunciante desde que la denuncia es interpuesta e incluso luego de concluido el respectivo procedimiento administrativo.

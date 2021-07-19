@@ -1,0 +1,1 @@
+Artículo 20.-Resultados del estudio. Los productos que se generen de la atención de la denuncia, se tramitarán de conformidad con la normativa que regula la comunicación de resultados de los servicios que presta la Auditoría Interna. El resultado final se le comunicará al denunciante, según la normativa prevista en el artículo 7 de este reglamento.

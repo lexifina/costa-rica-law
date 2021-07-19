@@ -1,0 +1,1 @@
+Artículo 5°-Principios ordenadores. En el trámite de las denuncias se atenderán los principios de legalidad, celeridad, independencia, objetividad y oficiosidad. Este análisis quedará como respaldo en los medios creados para tales fines.

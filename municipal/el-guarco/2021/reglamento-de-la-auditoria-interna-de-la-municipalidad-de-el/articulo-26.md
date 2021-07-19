@@ -1,0 +1,1 @@
+Artículo 26.-Vigencia. Este Reglamento rige a partir de su publicación en el Diario Oficial, y deroga cualquier otro documento que se haya emitido relacionado con denuncias o presuntos hechos irregulares dentro de la Auditoría Interna de la Municipalidad de El Guarco.

@@ -1,0 +1,1 @@
+Artículo 25.-Registro de la denuncia. La Auditoría Interna mantendrá un registro de las denuncias que recibe para efectos de controlar la asignación y custodia de cada una de estas, observando la legislación vigente que protege la confidencialidad del denunciante.

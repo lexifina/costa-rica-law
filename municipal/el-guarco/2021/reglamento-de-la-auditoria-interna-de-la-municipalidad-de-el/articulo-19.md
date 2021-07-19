@@ -1,0 +1,1 @@
+Artículo 19.-Estudio de la denuncia. Una vez declarada la admisibilidad de la denuncia, la Auditoría definirá el momento en el cual se realizará el estudio respectivo, de acuerdo con la prioridad que le establezca al caso denunciado. Para lo anterior, considerará, entre otros aspectos, el programa de trabajo de la Auditoría y los estudios o actividades que se tengan en proceso.

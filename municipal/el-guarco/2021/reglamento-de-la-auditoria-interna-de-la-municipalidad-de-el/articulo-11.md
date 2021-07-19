@@ -1,0 +1,1 @@
+Artículo 11.-Notificación sobre la recepción de denuncias. La Auditoría Interna deberá acusar recibo al denunciante sobre los presuntos hechos irregulares, debiendo responder en el plazo de diez días hábiles contado a partir del día siguiente de la recepción, siempre y cuando de forma previa se haya cumplido con las condiciones previstas en el artículo anterior.
