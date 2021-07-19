@@ -54,3 +54,9 @@ d. Otros asuntos afines o que le asigne el Concejo Municipal para su conocimient
 a. Estudiar y dictaminar los proyectos relativos a la materia de seguridad.
 b. Estudiar, dictaminar, proponer políticas públicas y proyectos, y ejercer un control político con el fin de mejorar la seguridad ciudadana y propiciar una efectiva lucha contra el incremento de la delincuencia.
 c. Coordinar con las personas funcionarias de las fuerzas de policías presentes en el cantón, miembros de la sociedad civil y de asociaciones comunales con el fin de abordar de manera conjunta e integral lo relacionado a seguridad ciudadana.
+10. Comité Cantonal de la Persona Joven:
+a. Estudiar y dictaminar todos los asuntos relativos a los jóvenes del cantón
+b. Estudiar, dictaminar, proponer políticas públicas y proyectos tendientes a fortalecer la organización, conocimientos y habilidades de la población joven del cantón.
+c. Atender todo lo relativo al Consejo Nacional de la Persona Joven.
+d. Aquellas que le asigne la Ley Nº. 8261 en razón de su competencia.
+(Así adicionado el inciso 10) anterior en sesión N° 64 del 19 de julio de 2021)
