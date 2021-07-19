@@ -6,14 +6,18 @@ sujetos a los requisitos del artículo 5
 El presente anexo se aplica a los siguientes contaminantes orgánicos persistentes, cuando se forman y se liberan de forma no intencional a partir de fuentes antropógenas:
 Producto químico
 Dibenzoparadioxinas y dibenzofuranos policlorados (PCDD/PCDF)
+(*)Naftalenos policlorados, entre ellos, los dicloronaftalenos, tricloronaftalenos, tetracloronaftalenos, pentacloronaftalenos, hexacloronaftalenos, heptacloronaftalenos, octacloronaftaleno añadiendo "Naftalenos policlorados, entre otros, los dicloronaftalenos, tricloronaftalenos, tetracloronaftalenos, pentacloronaftalenos, hexacloronaftalenos, heptacloronaftalenos, octacloronaftaleno.
+(Así adicionado el producto anterior por el artículo 2° del decreto ejecutivo N° 42613 del 7 de setiembre del 2020)
 Pentaclorobenceno (PeCB) (Nº de CAS 608-93-5)
 (Así adicionado el producto anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011)
 Hexaclorobenceno (HCB) (Nº CAS: 118-74-1)
 Bifenilos policlorados (PCB)
 Parte II
 Categorías de fuentes
-Las dibenzoparadioxinas y los dibenzofuranos policlorados, pentaclorobenceno(*), el hexaclorobenceno, y los bifenilos policlorados se forman y se liberan de forma no intencionada a partir de procesos térmicos, que comprenden materia orgánica y cloro, como resultado de una combustión incompleta o de reacciones químicas. Las siguientes categorías de fuentes industriales tienen un potencial de formación y liberación relativamente elevadas de estos productos químicos al medio ambiente:
+Las dibenzoparadioxinas y los dibenzofuranos policlorados, naftalenos policlorados, entre ellos, los dicloronaftalenos, tricloronaftalenos, tetracloronaftalenos, pentacloronaftalenos, hexacloronaftalenos, heptacloronaftalenos, octacloronaftaleno (**) pentaclorobenceno(*), el hexaclorobenceno, y los bifenilos policlorados se forman y se liberan de forma no intencionada a partir de procesos térmicos, que comprenden materia orgánica y cloro, como resultado de una combustión incompleta o de reacciones químicas. (***)("Hexaclorobutadieno (núm. de CAS: 87-68-3). Las siguientes categorías de fuentes industriales tienen un potencial de formación y liberación relativamente elevadas de estos productos químicos al medio ambiente:
 (*)(Así adicionado el producto anteriro por el artículo 1° del decreto ejecutivo N° 36738 de 21 de febrero del 2011)
+(**)(Así adicionados los productos anteriores por el artículo 2° del decreto ejecutivo N° 42613 del 7 de setiembre del 2021)
+(***)(Así adicionado el producto anterior por el artículo 3° del decreto ejecutivo N° 42613 del 7 de setiembre del 2021)
 a) Incineradoras de desechos, incluidas las coincineradoras de desechos municipales, peligrosos o médicos o de fango cloacal;
 b) Desechos peligrosos procedentes de la combustión en hornos de cemento;
 c) Producción de pasta de papel utilizando cloro elemental o productos químicos que producen cloro elemental para el blanqueo.
@@ -24,8 +28,10 @@ iii) Producción secundaria de aluminio;
 iv) Producción secundaria de zinc.
 Parte III
 Categorías de fuentes
-Pueden también producirse y liberarse en forma no intencionada dibenzoparadioxinas y dibenzofuranos policlorados, pentaclorobenceno(*), hexaclorobenceno y bifenilos policlorados a partir de las siguientes categorías de fuentes, en particular:
+Pueden también producirse y liberarse en forma no intencionada dibenzoparadioxinas y dibenzofuranos policlorados, naftalenos policlorados, entre ellos, los dicloronaftalenos, tricloronaftalenos, tetracloronaftalenos, pentacloronaftalenos, hexacloronaftalenos, heptacloronaftalenos, octacloronaftaleno (**) pentaclorobenceno(*), hexaclorobenceno y bifenilos policlorados , (***)("Hexaclorobutadieno (núm. de CAS: 87-68-3)a partir de las siguientes categorías de fuentes, en particular:
 (*)(Así adicionado el producto anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011)
+(**)(Así adicionados los productos anteriores por el artículo 2° del decreto ejecutivo N° 42613 del 7 de setiembre del 2021)
+(**)(Así adicionado el producto anterior por el artículo 3° del decreto ejecutivo N° 42613 del 7 de setiembre del 2021)
 a) Quema a cielo abierto de desechos, incluida la quema en vertederos;
 b) Procesos térmicos de la industria metalúrgica no mencionados en la parte II;
 c) Fuentes de combustión domésticas;
@@ -42,8 +48,8 @@ m) Desechos de refinerías de petróleo.
 Parte IV
 Definiciones
 1. A efectos del presente anexo:
-a) Por “bifenilos policlorados” se entienden compuestos aromáticos formados de tal manera que los átomos de hidrógeno en la molécula bifenilo (2 anillos bencénicos unidos entre sí por un enlace único carbono-carbono) pueden ser sustituidos por hasta diez átomos de cloro; y
-b) Las “dibenzoparadioxinas policloradas” y los “dibenzofuranos policlorados”, son compuestos tricíclicos aromáticos constituidos por dos anillos bencénicos unidos entre sí, en el caso de las dibenzoparadioxinas policloradas por dos átomos de oxígeno, y en el caso de los dibenzofuranos policlorados por un átomo de oxígeno y un enlace carbono-carbono y cuyos átomos de hidrógeno pueden ser sustituidos por hasta ocho átomos de cloro.
+a) Por "bifenilos policlorados" se entienden compuestos aromáticos formados de tal manera que los átomos de hidrógeno en la molécula bifenilo (2 anillos bencénicos unidos entre sí por un enlace único carbono-carbono) pueden ser sustituidos por hasta diez átomos de cloro; y
+b) Las "dibenzoparadioxinas policloradas" y los "dibenzofuranos policlorados", son compuestos tricíclicos aromáticos constituidos por dos anillos bencénicos unidos entre sí, en el caso de las dibenzoparadioxinas policloradas por dos átomos de oxígeno, y en el caso de los dibenzofuranos policlorados por un átomo de oxígeno y un enlace carbono-carbono y cuyos átomos de hidrógeno pueden ser sustituidos por hasta ocho átomos de cloro.
 2. En el presente anexo la toxicidad de las dibenzoparadioxinas y los dibenzofuranos policlorados, se expresa utilizando el concepto de equivalencia tóxica, que mide la actividad tóxica relativa tipo dioxina de distintos congéneres de las dibenzoparadioxinas y los dibenzofuranos policlorados, bifenilos policlorados coplanares en comparación con la 2, 3, 7, 8-tetraclorodibenzoparadioxina. Los valores del factor tóxico equivalente que se utilizarán a efectos del presente Convenio serán coherentes con las normas internacionales aceptadas, en primer lugar con los valores del factor tóxico equivalente para mamíferos de la Organización Mundial de la Salud de 1998 con respecto a las dibenzoparadioxinas y dibenzofuranos policlorados y bifenilos policlorados coplanares. Las concentraciones se expresan en equivalentes tóxicos.
 Parte V
 Orientaciones generales sobre las mejores técnicas
