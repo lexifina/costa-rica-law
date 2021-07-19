@@ -1,0 +1,1 @@
+Artículo 8º-La empresa Claro CR Telecomunicaciones Sociedad Anónima, en el plazo de un mes contado a partir de la publicación del presente Decreto Ejecutivo, deberá presentar ante el Ministerio de Ciencia, Tecnología y Telecomunicaciones los planos constructivos finales del cable submarino AMX-1, de conformidad con el inciso c) del artículo 5 de la Ley Nº 7832.

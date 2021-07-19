@@ -1,0 +1,1 @@
+Artículo 6º-Se le indica a la empresa Claro CR Telecomunicaciones Sociedad Anónima, que esta autorización no prejuzga ni excluye las otras autorizaciones y requisitos dispuestos en el ordenamiento jurídico nacional, que debe cumplir la empresa autorizada.
