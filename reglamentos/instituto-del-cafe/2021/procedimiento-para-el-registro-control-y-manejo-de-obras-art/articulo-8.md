@@ -1,0 +1,1 @@
+Artículo 8º-Identificación de obras de arte. Para identificar las obras de arte, quien ostente el puesto de encargado de activos, al momento de la recepción, deberá diligenciar la respectiva asignación de números de placas y así registrarlo en los sistemas que el ICAFE lleva al efecto, para el control correspondiente.

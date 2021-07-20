@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El presente reglamento tiene por objeto regular la adquisición por parte del Instituto del Café de Costa Rica de obras artísticas o piezas de museo de la actividad cafetalera, ya sea mediante compra, donación u obsequios.

@@ -1,0 +1,1 @@
+Artículo 3º-Autorización. La Junta Directiva o la Dirección Ejecutiva, serán, conforme sus facultades de representación, las autoridades encargadas de valorar y autorizar la adquisición de obras artísticas, que se realicen por medios de fondos institucionales o que ingresen por donación u obsequio a la institución.
