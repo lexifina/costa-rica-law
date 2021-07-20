@@ -1,0 +1,6 @@
+Artículo 23.-Alta de bienes muebles por donación. La Dirección Ejecutiva autorizará el alta de bienes muebles a título de donación o mediante un presente a favor de la Institución, para lo cual atenderá el cumplimiento de los siguientes requisitos:
+a) Ofrecimiento preferiblemente por escrito -sea medio físico o digital- por parte del donante o quien realice el presente a favor del Instituto, con detalle del bien mueble a donar o producto de un obsequio.
+b) La Dirección Ejecutiva establecerá la conveniencia de recibir los bienes sugeridos por el donante o producto de un obsequio a favor de la institución.
+c) La Unidad Contable Financiera realizará una estimación económica del bien a recibir en donación o gestionará el avalúo respectivo ante la instancia que corresponda.
+d) Aceptación de la donación por parte del ICAFE, previa recomendación de la Dirección Ejecutiva una vez que constate el cumplimiento de los requisitos a que se refieren los anteriores incisos.
+e) Trámites en Escritura Pública e inscripción en el Registro Nacional -cuando la naturaleza del bien así lo requiera-deberán ser realizados por la Unidad de Asuntos Jurídicos en el menor tiempo posible e informar a la Dirección Ejecutiva y a la Unidad Contable Financiera de la conclusión del trámite.

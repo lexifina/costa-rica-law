@@ -1,0 +1,1 @@
+Artículo 20.-Alta de bienes muebles por compra. La Unidad Contable Financiera dará alta a los bienes muebles que adquiera a través de un procedimiento de contratación administrativa, a través de compra por caja chica, donación o cualquier otro medio jurídica y lícitamente permitido.

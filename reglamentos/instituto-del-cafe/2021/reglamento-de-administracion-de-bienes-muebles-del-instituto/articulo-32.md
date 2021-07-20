@@ -1,0 +1,1 @@
+Artículo 32.-Baja de bienes muebles por venta, remate o por autorización legal. La venta, remate o cualquier baja de bienes autorizada en la legislación se sujetará al trámite establecido En el Procedimiento de Contratación Administrativa definido para el ICAFE y, una vez concluido, la Unidad Contable Financiera aplicará la baja en el sistema informático de bienes.
