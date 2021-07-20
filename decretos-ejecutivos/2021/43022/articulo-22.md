@@ -1,0 +1,4 @@
+Sección VI
+De la Auditoría
+Artículo 22°-De la Auditoría Interna de FODELI. El FODELI contará, con cargo a los recursos propios, con su propia auditoría interna, de conformidad con la Ley N° 8292, Ley General de Control Interno, de 31 de julio de 2002, y la Ley N° 7428, Ley Orgánica de la Contraloría General de la República, de 7 de setiembre de 1994.
+Una vez que se cuente con la aprobación de la plaza por parte de las autoridades competentes, así como con el contenido económico y presupuestario, se realizará el respectivo concurso para el nombramiento de un (a) auditor (a) interno (a). Sin embargo, dependiendo del volumen de trabajo a ser auditado, la Junta Directiva, mediante resolución debidamente razonada y por necesidad institucional, podrá contratar la auditoría mediante la modalidad de servicios profesionales.

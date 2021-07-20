@@ -1,0 +1,1 @@
+Artículo 2°. Ámbito de aplicación. Los beneficios de la Ley N° 9688, son de aplicación única de los ciudadanos de la provincia de Limón con residencia o arraigo no menor a siete años en dicha Provincia.

@@ -1,0 +1,6 @@
+Artículo 5°-De los objetivos. El Fondo se crea para el logro de los siguientes objetivos:
+a) Otorgar a los habitantes de la provincia de Limón, los beneficios económicos contenidos en el artículo 8, de la Ley N° 7454, Aprobación de los Convenios de Préstamo: N° 3594-CR "Tercer Programa de Ajuste Estructural", entre la República de Costa Rica y el Banco Internacional de Reconstrucción y Fomento; 739/OC-CR "Programa de Ajuste del Sector Público", entre la República de Costa Rica y el Banco Interamericano de Desarrollo; 742/OC-CR "Programa Sectorial de Inversiones", entre la República de Costa Rica y el Banco Interamericano de Desarrollo, de 22 de noviembre de 1995.
+b) Facilitar líneas de crédito oportunas y en condiciones accesibles y blandas para proyectos de emprendimiento de micro y pequeñas empresas que fomenten actividades económicas productivas rentables dentro de la provincia de Limón.
+c) Promover y fomentar proyectos de emprendimiento de micro y pequeñas empresas.
+d) Promover y fomentar la formación del recurso humano de la provincia, facilitando el acceso a la educación, tanto a través de becas con aportes económicos reembolsables y no reembolsables para estudiantes de la provincia; como con la ejecución de programas de educación no formal.
+e) Generar fuentes de empleo en la provincia de Limón mediante el apoyo de proyectos productivos.

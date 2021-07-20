@@ -1,0 +1,1 @@
+Artículo 47°-Límites de montos de financiamiento. La Junta Directiva del FODELI tendrá la potestad de definir, anualmente y de acuerdo a sus planes estratégicos, los límites de financiamiento que se brindará, según las actividades de emprendimiento a financiar, lo anterior de conformidad con el artículo 19° de la Ley N° 9688.

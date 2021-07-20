@@ -1,0 +1,1 @@
+Artículo 41°-Autorización para firmar convenios con instituciones de educación. Se autoriza a FODELI a firmar convenios de cooperación con universidades e instituciones parauniversitarias públicas, así como con universidades e instituciones parauniversitarias privadas reconocidas oficialmente, a fin de coadyuvar con el cumplimiento del Programa de Promoción del Desarrollo Humano.

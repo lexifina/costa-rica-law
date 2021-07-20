@@ -1,0 +1,1 @@
+Artículo 37° -De los aportes económicos para educación. Los aportes económicos que brindará FODELI para apoyar los estudios universitarios, parauniversitarios, técnicos o de bachillerato por madurez, podrán ser no-reembolsables, reembolsables o una combinación de ambas formas dependiendo de la modalidad de ayuda a la que se opte.

@@ -1,0 +1,5 @@
+Sección III
+De la Promoción de Emprendimientos de las Micros y Pequeñas Empresas
+Artículo 43°-Programa de Promoción de Emprendimientos de las Micros y Pequeñas Empresas. FODELI realizará la promoción del emprendimiento de las Micros y Pequeñas Empresas, para fomentar las actividades económicas productivas y la generación de empleo, mediante el otorgamiento de aportes económicos, capacitación, asesoría y acompañamiento a proyectos de emprendimiento de micro y pequeñas empresas constituidas y que funcionen dentro de la provincia de Limón.
+El objetivo de destinar estos recursos es facilitar el acceso a recursos económicos para fomentar proyectos de emprendimiento de micro y pequeñas empresas que fomenten actividades económicas dentro de la provincia de Limón.
+Los aportes económicos, en cualquiera de sus modalidades, serán para financiar el inicio de proyectos de emprendimiento o el funcionamiento y continuación de los ya existentes; siempre y cuando califiquen como beneficiarios de FODELI.

@@ -1,0 +1,3 @@
+Artículo 29° -Fondo de capitalización. El FODELI deberá establecer un fondo de capitalización con al menos el setenta y cinco por ciento (75%) del total de los recursos existentes y que fueron asignados mediante el artículo 8 de la Ley N° 7454. Un porcentaje superior podrá ser fijado por la Junta Directiva de acuerdo con los planes y proyecciones institucionales.
+De no fijarse un porcentaje mayor al indicado, de oficio, la Dirección Ejecutiva procederá conforme al 75% aquí indicado.
+Los recursos generados por el fondo de capitalización y no utilizados en un ejercicio presupuestario, serán destinados al mismo fondo con el propósito de incrementar el principal o capital.

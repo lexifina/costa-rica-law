@@ -1,0 +1,1 @@
+Artículo 39°-Tasa de interés de los aportes reembolsables para educación. La tasa de interés que FODELI cobrará por los recursos reembolsables que otorgue para educación, será igual a la Tasa Básica Pasiva definida por el Banco Central de Costa Rica.

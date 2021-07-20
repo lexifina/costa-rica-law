@@ -1,0 +1,2 @@
+Artículo 25°-Autorización para recibir donaciones. Se autoriza a las instituciones, las corporaciones y los Poderes del Estado para que otorguen donaciones a favor del FODELI y para que éste las reciba de ellos, así como de otras personas e instituciones privadas, nacionales, internacionales o extranjeras, por cualquier suma o concepto.
+El FODELI, por medio de la Dirección Ejecutiva incluirá en sus planes estratégicos la correspondiente gestión para procurar materializar las donaciones aquí autorizadas.

@@ -1,0 +1,1 @@
+Artículo 6°-Del domicilio del Fondo. El Fondo tendrá su sede, en las instalaciones de JAPDEVA Provincia de Limón y podrá establecer oficinas, sucursales o ventanillas auxiliares en cualquier cantón de dicha provincia, por acuerdo de su Junta Directiva.

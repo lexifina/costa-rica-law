@@ -1,0 +1,1 @@
+Artículo 17°-Integración de la Dirección Ejecutiva. La Dirección Ejecutiva del Fondo estará integrada por el recurso humano necesario para el cumplimiento de los fines y objetivos definidos en la Ley N° 9688, y será establecido por parte de la Junta Directiva.

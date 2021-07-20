@@ -1,0 +1,1 @@
+Artículo 51°-Autorización para firmar convenios con instituciones públicas y privadas. FODELI podrá firmar convenios con instituciones públicas y privadas, para que los emprendimientos de las micros y pequeñas empresas puedan contar con acompañamiento financiero, técnico, capacitación y asesoría en la incubación de empresas.

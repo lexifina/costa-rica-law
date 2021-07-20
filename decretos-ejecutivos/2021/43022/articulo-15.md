@@ -1,0 +1,1 @@
+Artículo 15°-Del quórum. La Junta Directiva para sesionar válidamente necesitará de un cuórum integrado con mayoría absoluta de los miembros. Es decir, se necesitará de la concurrencia de al menos cuatro de sus integrantes.

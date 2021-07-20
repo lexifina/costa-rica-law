@@ -1,0 +1,3 @@
+Artículo 32°-Autorización para constituir fideicomisos. El FODELI, podrá administrar los recursos financieros mediante la figura de fideicomiso, el fiduciario sólo podrá serlo un banco comercial del Estado; y en el proceso de contratación y eventual funcionamiento, deberá aplicarse la normativa nacional que regula la materia en cuanto a fideicomiso.
+La Contraloría General de la República deberá refrendar el contrato de fideicomiso y podrá ejercer control posterior de la administración y el manejo de los recursos.
+La remuneración del fiduciario se definirá detalladamente en el contrato del fideicomiso. Todos los servicios y gastos en que incurra el fiduciario, debido a la administración del fideicomiso, quedarán cubiertos con la comisión de la administración.

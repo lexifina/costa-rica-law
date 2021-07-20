@@ -1,0 +1,1 @@
+Artículo 58° - Derogatoria. Se deroga el Reglamento de Organización y Funcionamiento del Fondo de Desarrollo de la Provincia de Limón, Decreto Ejecutivo N° 29674-MOPT del 22 de junio del 2001, publicado en La Gaceta N° 150 del 7 de agosto de 2001.

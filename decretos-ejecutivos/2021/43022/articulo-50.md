@@ -1,0 +1,6 @@
+Artículo 50°-Cese o cancelación del beneficio económico. Serán causales para el cese o pérdida del beneficio económico otorgado, las siguientes:
+a) Cuando el beneficiario o beneficiaria utilice o destine los fondos recibidos a otros fines distintos a aquellos para los cuales le fueron otorgados.
+b) Si se llegara a comprobar, una vez otorgado el beneficio económico, que la persona beneficiada faltó a la verdad y no cuenta con los requisitos estipulados en la ley de FODELI y sus reglamentos.
+c) El incumplimiento de una de las obligaciones establecidas en la Ley de FODELI y sus reglamentos, a las que se está obligado (a) como beneficiario (a).
+d) Las demás que se indican en la Ley de FODELI y el reglamento de promoción de emprendimientos.
+En caso de que se compruebe el incumplimiento de parte del beneficiario o la beneficiaria y se proceda al cese o cancelación del beneficio económico otorgado, esa persona deberá reembolsar a FODELI la totalidad del saldo que se adeude en el momento de la cancelación del beneficio. Asimismo, a partir de ese momento y hasta la recuperación de los fondos por parte de FODELI, se aplicará un cambio a la tasa de interés pactada, en donde se sumarán cinco puntos porcentuales a la tasa de interés pactada originalmente, quedando esta similar a la tasa de interés de mercado.

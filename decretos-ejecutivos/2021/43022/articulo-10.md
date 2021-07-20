@@ -1,0 +1,1 @@
+Artículo 10° -Dietas por el desempeño de sus cargos. Las personas integrantes de la Junta Directiva devengarán dietas por su desempeño como directivos del FODELI, conforme al artículo 2 de la Ley de Estructuración del Fondo de Desarrollo de la Provincia de Limón (FODELI), Ley N° 9688 del 2 de julio de 2019.

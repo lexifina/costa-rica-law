@@ -1,0 +1,2 @@
+Artículo 26°-Exoneración. Todas las operaciones del FODELI se declaran de interés público; por tanto, se encuentran exentas de todo pago de tasas, timbres e impuestos.
+Las instituciones competentes en materia impositiva; ya sea que ésta se refiera a tasas, timbres, impuestos o cualesquiera otras, recibirán de parte de FODELI la solicitud de exoneración y la aplicarán amparados en el artículo 16 de la Ley N° 9688.
