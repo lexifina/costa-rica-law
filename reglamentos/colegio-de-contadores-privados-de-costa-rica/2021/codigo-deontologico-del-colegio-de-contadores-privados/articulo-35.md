@@ -1,0 +1,1 @@
+Artículo 35.-Las sanciones disciplinarias impuestas por el Colegio de Contadores Privados de Costa Rica constarán en el expediente personal de cada Contador Privado Incorporado y se comunicarán conforme lo dispuesto en la Ley de Notificaciones Judiciales, Ley número 8687.

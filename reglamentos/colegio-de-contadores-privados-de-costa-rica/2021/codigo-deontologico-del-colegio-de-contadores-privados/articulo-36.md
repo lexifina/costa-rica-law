@@ -1,0 +1,5 @@
+Artículo 36.-Del Procedimiento:
+1. Previo a la imposición de alguna de las sanciones debe aplicarse el procedimiento ordinario de la Ley General de la Administración Pública, Ley número 6227, del 2 de mayo de 1978 y sus reformas.
+2. El Órgano Director del Procedimiento será nombrado por la Junta Directiva del Colegio, con al menos tres miembros titulares y un suplente, deberán ser Contadores Privados Incorporados, podrá ser integrado por miembros de la Comisión de Fiscalía del Colegio de Contadores Privados de Costa Rica, preferiblemente con al menos un Abogado.
+3. El informe que rinda el Órgano Director del Procedimiento será conocido por la Junta Directiva del Colegio la cual se encargará de dictar la resolución final.
+4. Contra la resolución final cabrá recurso de reposición, que debe ser presentado en el plazo de tres días hábiles siguientes contados desde la notificación del mismo, será conocido y resuelto por la Junta Directiva, de acuerdo con las reglas del Código Procesal Contencioso Administrativo. Contra la resolución de reposición no cabrá ulterior recurso.

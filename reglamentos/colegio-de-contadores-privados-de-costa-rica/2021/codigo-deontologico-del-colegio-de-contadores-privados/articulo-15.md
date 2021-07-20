@@ -1,0 +1,1 @@
+Artículo 15.-El Contador Privado Incorporado no debe preparar información financiera tergiversada, registros contables inapropiados o actuaciones indebidas que faciliten a sus clientes o así mismo, la obtención de beneficios contemplados en las leyes vigentes, ante el Sistema Bancario Nacional, Administraciones Tributarias, o ante Terceros.

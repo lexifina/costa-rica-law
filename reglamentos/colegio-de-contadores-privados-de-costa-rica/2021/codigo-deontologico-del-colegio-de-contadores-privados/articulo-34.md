@@ -1,0 +1,1 @@
+Artículo 34.-La sanción correspondiente será comunicada al medio electrónico señalado por el Contador para recibir notificaciones en el expediente disciplinario, la cual regirá a partir de su publicación en el Diario Oficial La Gaceta.

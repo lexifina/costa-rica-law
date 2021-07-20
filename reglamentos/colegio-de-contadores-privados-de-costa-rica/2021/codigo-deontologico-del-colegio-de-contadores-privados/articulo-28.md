@@ -1,0 +1,1 @@
+Artículo 28.-Antes de actuar judicialmente o, de cualquier forma, contra otro Contador Privado, se podrá acudir a medios alternativos de solución de controversias, como la mediación y la conciliación, en los cuales la Fiscalía Administrativa del Colegio de Contadores Privados de Costa Rica podrá servir de mediador o de conciliador.

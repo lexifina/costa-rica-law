@@ -1,0 +1,1 @@
+Artículo 3º-El Contador Privado Incorporado, debe mantenerse al día con las obligaciones que, conforme al ordenamiento jurídico, le demande el Colegio, en caso de incumplimiento estará sujeto a las disposiciones y sanciones que se establezcan en la Ley Orgánica, su reglamento, este Código y demás normativa aplicable.

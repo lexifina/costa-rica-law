@@ -1,0 +1,1 @@
+Artículo 22.-El Contador Privado Incorporado que preste sus servicios en relación de independencia, debe definir mediante un contrato de prestación de servicios profesionales, los términos y alcances de sus labores, para proteger su interacción con el cliente.

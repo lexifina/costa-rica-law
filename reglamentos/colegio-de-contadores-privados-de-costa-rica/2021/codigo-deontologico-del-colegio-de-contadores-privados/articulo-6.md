@@ -1,0 +1,1 @@
+Artículo 6º-El Contador Privado Incorporado, debe dedicarse con diligencia y denuedo a los asuntos de sus clientes y empleadores, poniendo a su disposición plenamente sus esfuerzos y conocimientos, con estricto apego a las normas contables, legales y con ajuste a los dictados de la Ética, la Moral y las buenas costumbres.

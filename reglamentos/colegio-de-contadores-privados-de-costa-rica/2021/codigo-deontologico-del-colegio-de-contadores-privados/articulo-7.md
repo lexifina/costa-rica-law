@@ -1,0 +1,1 @@
+Artículo 7º-Previo a la suscripción del contrato de prestación de servicios profesionales, el Contador Privado Incorporado debe asegurarse de que la relación profesional con el contador anterior haya terminado, de lo cual debe tener constancia por escrito.

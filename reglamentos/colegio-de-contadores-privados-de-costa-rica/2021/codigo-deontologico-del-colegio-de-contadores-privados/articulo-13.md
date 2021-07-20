@@ -1,0 +1,1 @@
+Artículo 13.-El Contador Privado Incorporado, que acepta a estudiantes de Contabilidad en calidad de practicantes, debe proveerlos de un ámbito de trabajo adecuado y decoroso para su preparación profesional. De cuya relación debe dejar constancia por escrito.

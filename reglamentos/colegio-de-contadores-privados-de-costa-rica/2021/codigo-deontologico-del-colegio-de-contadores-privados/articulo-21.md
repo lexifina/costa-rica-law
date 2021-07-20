@@ -1,0 +1,1 @@
+Artículo 21.-El Contador Privado Incorporado, no debe bajo ninguna circunstancia retener la documentación o los libros contables de su cliente, cuando finalice su relación, por lo que debe entregarla debiendo documentar esta entrega en los términos y condiciones pactadas, aún y cuando no se le hayan cancelado sus honorarios.

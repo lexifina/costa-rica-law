@@ -1,0 +1,1 @@
+Artículo 23.-El Contador Privado Incorporado que ejerza la profesión en forma liberal, tendrá la obligación de emitir factura por concepto de honorarios profesionales, de conformidad con las regulaciones de la Administración Tributaria.

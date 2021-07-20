@@ -1,0 +1,1 @@
+Artículo 16.-El Contador Privado Incorporado no debe tergiversar la información contable con el fin de recibir dádivas, por obtener ventajas fiscales a sus clientes que permitan la evasión de los deberes materiales y formales ante las diferentes administraciones tributarias, entidades financieras y/o responsabilidades legales de cualquier naturaleza.

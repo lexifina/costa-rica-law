@@ -1,0 +1,1 @@
+Artículo 18.-El Contador Privado Incorporado, que preste sus servicios en forma independiente o en relación de dependencia, debe tener la preparación necesaria para el desempeño de la función encomendada, así como cumplir satisfactoriamente y con denuedo con los deberes de su cargo sin menoscabar los intereses generales del usuario o cliente o el buen nombre de su profesión.

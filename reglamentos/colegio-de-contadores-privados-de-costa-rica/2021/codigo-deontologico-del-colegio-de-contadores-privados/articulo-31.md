@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Procedimiento y sanciones disciplinarias
+Artículo 31.-El ámbito de aplicación de las sanciones disciplinarias que impondrá el Colegio de Contadores Privados de Costa Rica, por el incumplimiento a las disposiciones de este Código, está determinado en la Ley Orgánica del Colegio de Contadores Privados, Ley N° 1269 del 2 de marzo de 1951, el Reglamento a la Ley Orgánica Colegio Contadores Privados de Costa Rica, Decreto Ejecutivo N° 3022-E, publicado en La Gaceta N° 115 del 19 de junio de 1973; y serán impuestas de acuerdo con la gravedad de la falta, respetando y observando los principios de razonabilidad y proporcionalidad, así como la garantía constitucional del debido proceso y los principios que la conforman.

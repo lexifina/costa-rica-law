@@ -1,0 +1,1 @@
+Artículo 10.-El Contador Privado Incorporado, debe actuar con idoneidad, responsabilidad y libertad de criterio en su vida profesional y rechazar todo asunto o acto que comprometa su independencia, en el correcto cumplimiento y desempeño de las labores propias de su profesión.
