@@ -15,3 +15,4 @@ Crea categoría especial temporal de protección complementaria para personas Ve
 | --- | --- | --- |
 | 1 | 2020-12-18 | la propia norma |
 | 2 | 2021-07-08 | Resolución 133 (2021-07-08) |
+| 3 | 2021-07-20 | Resolución 141 (2021-07-20) |
