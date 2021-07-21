@@ -14,3 +14,4 @@ Reglamento para las contrataciones por el régimen de excepción y funcionamient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-02 | la propia norma |
+| 2 | 2021-07-21 | Reglamento 14 (2021-07-21) |
