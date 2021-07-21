@@ -1,0 +1,6 @@
+JUNTA DE PROTECCIÓN SOCIAL
+GERENCIA DE PRODUCCIÓN Y COMERCIALIZACIÓN
+Comunica al público en general a partir del martes 27 de julio del 2021 se da por finalizado los juegos Nº 2057 “El 20 de La Suerte” y Nº 2058 “Zodiaco de La Suerte”.
+En cuanto a la participación en el programa de la Rueda de la Fortuna, para ambos juegos, sea hasta el sábado 14 de agosto del 2021 y el último día de activación, así como, la participación a través de llamada telefónica sea el sábado 07 de agosto de 2021.
+En cuanto a la participación a través de raspa directa de los juegos 2057 y 2058 queda abierta para las personas que se encuentran en lista de espera para ir a girar la rueda y para las personas se presenten a validar su participación dentro del plazo de los 60 días naturales una vez publicada la finalización de los juegos en el Diario Oficial La Gaceta, esto debido a la rotación de los juegos, y que producto de la crisis sanitaria que atraviesa el país por el Covid-19 por un tiempo el programa fue suspendido en atención a la emergencia, y que por consiguiente la lista de participantes por raspa directa se extendió en el tiempo.
+Asimismo, los vendedores puedan efectuar la devolución de los juegos Nº 2057 “El 20 de La Suerte” y Nº 2058 “Zodiaco de La Suerte”, el martes 20 de julio, 2021 y el viernes 23 de julio, 2021.
