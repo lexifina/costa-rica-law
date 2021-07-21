@@ -1,1 +1,0 @@
-Artículo 23.—Finalización y notificación: Una vez cerrado el caso en los términos y plazas establecidos en el artículo 16 de este reglamento y notificado el usuario, el expediente se cerrará. La decisión será siempre motivada y contendrá unas conclusiones claras sobre la solicitud planteada en cada queja.
