@@ -1,0 +1,1 @@
+Artículo 3º-Límite de acción en el uso y disposición de los recursos públicos. El presupuesto constituye el límite de acción de la Municipalidad de Osa en el uso y disposición de sus recursos públicos y sólo podrá ser variado mediante los mecanismos que el ordenamiento jurídico prevé.
