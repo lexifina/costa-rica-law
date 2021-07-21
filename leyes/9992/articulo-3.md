@@ -1,0 +1,4 @@
+ARTÍCULO 3- Corresponderá, a la Notaría del Estado, formalizar la escritura pública mediante la cual el Instituto Nacional de Seguros (INS) segregará y donará al Benemérito Cuerpo de Bomberos de Costa Rica una franja de mil siete metros cuadrados (1007 m2) de la finca uno - seis cero ocho siete ocho dos - cero cero cero (1-608782-000).
+Dicha formalización registral estará exenta del pago de todo tipo de impuestos, tasas o contribuciones. En ese sentido, la Notaría del Estado queda expresamente facultada para actualizar y corregir la naturaleza, situación, medida, linderos y cualquier error, diferencia u omisión relacionados con los datos del inmueble a donar, así como cualquier otro dato registral o notarial que sea necesario para la debida inscripción del documento en el Registro Nacional.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los seis días del mes de julio del año dos mil veintiuno.
