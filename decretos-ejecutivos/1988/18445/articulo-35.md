@@ -1,2 +1,0 @@
-Artículo 35.- Base imponible del capital mobiliario. En lo que respecta a las rentas del capital mobiliario, cualquiera que sea el tipo de estas, la base imponible corresponderá al monto total de la contraprestación obtenida por el contribuyente, sin que exista posibilidad alguna de deducción de gastos ni de otras reducciones.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

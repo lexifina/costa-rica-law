@@ -1,2 +1,0 @@
-Artículo 27.- Definición de rentas del capital inmobiliario. Tendrán la consideración de rentas del capital inmobiliario procedentes de la titularidad de bienes inmuebles, todas las que se deriven del arrendamiento, subarrendamiento o de la constitución o cesión de derechos o facultades de uso o goce de bienes inmuebles, cualquiera que sea su denominación o naturaleza.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

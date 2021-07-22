@@ -1,2 +1,0 @@
-Artículo 46.- Diferimiento de pérdidas de capital. Cuando el contribuyente obtuviese solo pérdidas de capital o su compensación con ganancias de capital previamente obtenidas, arrojase un resultado negativo según lo indicado en el artículo anterior, podrá diferir tales pérdidas y aplicarlas contra las ganancias de capital que se generen en los tres años siguientes y consecutivos a aquel en que ocurrió la pérdida.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

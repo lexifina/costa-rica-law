@@ -1,5 +1,0 @@
-Artículo 26.- Criterio de realización. A efectos del hecho generador del impuesto sobre ganancias y pérdidas de capital, dispuesto en el artículo 27 bis de la Ley, deberá entenderse como requisito indispensable para su configuración que las respectivas ganancias o pérdidas del capital se hayan realizado. Las ganancias de capital se entenderán realizadas cuando se hayan materializado mediante una transmisión o enajenación de los bienes o derechos de los que estas se derivan, generándose así un cambio en la composición del patrimonio del contribuyente.
-Las ganancias por diferencias cambiarias que no estén afectos por parte de su titular a la obtención de rentas gravadas en el Impuesto sobre las Utilidades, se entenderán realizadas cuando ocurra el pago del pasivo o la percepción del ingreso por activos. Para efectos de lo dispuesto en este párrafo, la tenencia de moneda extranjera se considerará un activo y también se considerará renta bruta la diferencia cambiaria cuando:
-1) Se cambie de moneda, o
-2) Se adquiera otro activo en esa moneda extranjera u en otra.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

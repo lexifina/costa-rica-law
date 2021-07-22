@@ -1,2 +1,0 @@
-Artículo 2.- Momento en que ocurre el hecho generador. Se considera ocurrido el hecho generador del impuesto sobre las utilidades con la percepción o devengo de rentas en dinero o en especie, continuas u ocasionales, procedentes de actividades lucrativas de fuente costarricense, así como cualquier otro ingreso o beneficio de fuente costarricense no exceptuado por Ley del Impuesto sobre la Renta.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41818 del 17 de junio del 2019)

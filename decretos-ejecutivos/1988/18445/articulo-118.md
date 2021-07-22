@@ -1,4 +1,0 @@
-ARTICULO 118.- (Nota de Sinalevi: El texto de este artículo debe de ser consultado en el numeral 84 ya que por medio del artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordenó derogar los numerales 18 y 19)
-(Nota de Sinalevi: El texto de este artículo debe de ser consultado en el numeral 85 ya que por medio del artículo 5° del decreto ejecutivo N° 41818 del 17 de junio de 2019, se ordena derogar el original artículo 26” Venta de terrenos en lotes urbanizados”)
-(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 86 al 108)
-(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 41818 del 17 de junio del 2019, que lo traspasó del artículo 108 al 118, toda vez que incluyó un nuevo Título V que contiene de los artículo 65 al 74)
