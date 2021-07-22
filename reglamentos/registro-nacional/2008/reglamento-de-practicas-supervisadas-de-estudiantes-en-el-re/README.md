@@ -14,3 +14,4 @@ Reglamento de Prácticas Supervisadas de Estudiantes en el Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-02 | la propia norma |
+| 2 | 2021-07-22 | Reglamento 16 (2021-07-22) |
