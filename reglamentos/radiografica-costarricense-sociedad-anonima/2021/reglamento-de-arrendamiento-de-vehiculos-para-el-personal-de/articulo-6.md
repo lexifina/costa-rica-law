@@ -1,0 +1,1 @@
+Artículo 6º-Corresponderá al Jefe del Departamento de Ventas recibir la documentación del colaborador que acredite el cumplimiento de los requisitos establecidos en este reglamento, quien conformará un expediente con los requisitos y trámites que se presenten a efecto de verificar el cumplimiento a los requisitos.

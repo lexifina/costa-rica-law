@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del reconocimiento económico
+Artículo 18.-Del reconocimiento. RACSA reconocerá al colaborador arrendador el pago por kilometraje recorrido, previa autorización del Jefe del Departamento de Ventas, basado en las tarifas vigentes que establece la Contraloría General de la República más lo correspondiente a los impuestos aplicables, y sólo pagará los kilómetros efectivamente recorridos desde el lugar habitual de trabajo (Edificio RACSA o ubicación definida en modalidad de Teletrabajo) hacia el lugar donde se ubiquen sus clientes externos, internos y/o eventos comerciales en cumplimiento de sus funciones comerciales.

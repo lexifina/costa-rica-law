@@ -1,0 +1,1 @@
+Artículo 4º-Fin exclusivo. El presente reglamento no cubre el pago de los espacios de estacionamiento del vehículo del colaborador cuando no sean atinentes a funciones propias de su cargo, así como tampoco cubrirá el alquiler del vehículo cuando sea utilizado para diligencias ajenas a la actividad comercial de la empresa.

@@ -1,0 +1,8 @@
+Artículo 20.-Reconocimiento de otros rubros. Adicionalmente, se reconocerá el pago mensual por concepto de utilización de transbordadores, peajes y estacionamiento que deba pagar el colaborador con ocasión del ejercicio de las labores propias de su puesto, debiendo presentar el respectivo comprobante y bajo las siguientes condiciones:
+RACSA brindará espacios de parqueo en sus propias instalaciones o en las cercanías de RACSA para uso de los Colaboradores de Ventas, no obstante, ante una saturación de los espacios destinados por la empresa o en caso de visitas a clientes, el Colaborador podrá utilizar un parqueo público y se le reconocerá el equivalente a su uso por las horas efectivas hasta un máximo de ¢ 56.500 por mes con impuestos incluidos, para lo cual el colaborador deberá presentar las facturas correspondientes.
+El reconocimiento de pago por estacionamiento no aplica para uso de parqueo público en visita a clientes que se encuentren en 600mts a la redonda del edificio de RACSA, para tal efecto, se dispone el uso de los espacios de parqueo correspondiente al párrafo anterior.
+Se reconocerá el pago correspondiente a peajes, gasto de estacionamiento público o transbordadores exclusivamente por visita a clientes, eventos u otros propios de su cargo, con el visto bueno de la Jefatura de Ventas.
+Para el reconocimiento el Colaborador deberá:
+a) Completar el formulario de Reporte de Kilometraje en su segmento de registro de gastos por "estacionamiento o transbordadores".
+b) Presentar los comprobantes de pago al final de cada mes de generado el gasto correspondiente a parqueos, peajes y transbordadores.
+c) Completar el formulario "Liquidación de pago".

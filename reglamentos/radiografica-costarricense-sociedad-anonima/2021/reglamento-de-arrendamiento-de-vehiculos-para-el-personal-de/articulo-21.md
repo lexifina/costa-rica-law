@@ -1,0 +1,1 @@
+Artículo 21.-De la no calificación como salario. El pago de kilometraje y de los otros rubros regulados en este reglamento no serán considerados como parte del salario, ni como salario en especie y no generará situaciones jurídicas consolidadas a favor de quien suscribe el contrato para el reconocimiento de estos emolumentos.

@@ -1,0 +1,1 @@
+Artículo 11º-De la ejecución. La ejecución del contrato deberá ajustarse a las labores propias del Departamento de Ventas y demás controles previamente establecidos y aprobados por la Dirección Comercial, Departamento de Ventas y el Departamento de Talento y Cultura.

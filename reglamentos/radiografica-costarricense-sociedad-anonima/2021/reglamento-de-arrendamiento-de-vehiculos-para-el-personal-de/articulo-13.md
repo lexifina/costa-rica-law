@@ -1,0 +1,1 @@
+Artículo 13.-Resolución de cese. Si se produjeren algunas de las causales de rescisión o finalización el Jefe del Departamento de Ventas deberá, mediante resolución motivada, dar por finalizada la relación contractual, debiendo comunicar de forma inmediata al Departamento de Talento Humano y Cultura y al Colaborador respectivo.

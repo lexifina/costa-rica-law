@@ -1,0 +1,1 @@
+Artículo 15.-De los derechos del Colaborador arrendador. El Colaborador que suscribe el contrato tendrá derecho al reconocimiento de pago de kilometraje y al pago del parqueo, según las normas establecidas en el presente reglamento.

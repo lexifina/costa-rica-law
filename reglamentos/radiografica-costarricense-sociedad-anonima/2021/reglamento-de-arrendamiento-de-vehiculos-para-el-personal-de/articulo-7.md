@@ -1,0 +1,1 @@
+Artículo 7º-El colaborador deberá firmar el contrato de "Arrendamiento de Vehículo" y aportar la documentación que acredite el cumplimiento de los requisitos establecidos en este reglamento y mantenerla vigente durante la relación contractual.

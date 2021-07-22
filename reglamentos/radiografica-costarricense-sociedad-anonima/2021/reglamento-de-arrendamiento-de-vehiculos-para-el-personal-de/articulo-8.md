@@ -1,0 +1,2 @@
+Artículo 8º-Ante la ausencia de requisitos el Jefe del Departamento de Ventas deberá prevenir su presentación en el plazo improrrogable de tres días hábiles. De presentar los documentos faltantes y completarlos satisfactoriamente, se procederá a la suscripción del contrato respectivo.
+De no cumplir con lo prevenido no será posible acceder al beneficio económico por concepto de alquiler de vehículo.
