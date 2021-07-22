@@ -1,1 +1,1 @@
-Artículo 52.—No obstante lo dispuesto en el artículo anterior, no se impondrá sanción cuando se trate de un error y el servidor que marcó la tarjeta equivocadamente, al que le marcaron la suya, informe del hecho a quien corresponda a más tardar en la jornada de trabajo siguiente a aquellas en que el hecho sucedió.
+Artículo 52.-(Derogado en sesión N° 44 del 22 de julio de 2021)

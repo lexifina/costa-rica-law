@@ -1,1 +1,2 @@
-Artículo 49.—Cada servidor debe marcar personalmente la tarjeta de asistencia y puntualidad, con el debido cuidado, de manera que quede impresa con claridad. Las marcas defectuosas o manchadas que no se deban a desperfectos del reloj marcador se tendrán por no realizadas.
+Artículo 49.-Cada servidor debe realizar el registro de asistencia personalmente en el sistema designado para tales efectos, con el debido cuidado y siguiendo los parámetros y condiciones establecidas.
+(Así reformado en sesión N° 44 del 22 de julio de 2021)
