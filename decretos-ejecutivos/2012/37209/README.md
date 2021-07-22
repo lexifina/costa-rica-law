@@ -15,3 +15,4 @@ Reglamento de la convocatoria del Colegio de Costa Rica para Financiamiento de P
 | --- | --- | --- |
 | 1 | 2012-07-19 | la propia norma |
 | 2 | 2013-06-07 | Decreto Ejecutivo 37840 (2013-06-07) |
+| 3 | 2021-07-22 | Decreto Ejecutivo 43133 (2021-07-22) |
