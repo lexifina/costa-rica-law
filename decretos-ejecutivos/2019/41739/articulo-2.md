@@ -1,7 +1,8 @@
 Artículo 2
 Obligaciones de las Partes para Obtener e Intercambiar Información con Respecto a
 Cuentas Reportables
-1. Sujeto a lo dispuesto en el Artículo 3 de este Acuerdo, cada Parte deberá obtener la información específica señalada en el párrafo 2 de este Artículo con respecto a todas las Cuentas Reportables y deberá intercambiar información de manera automática anualmente con la otra Parte de conformidad con lo señalado en las disposiciones del artículo 1 del TIEA.
+1. Sujeto a lo dispuesto en el Artículo 3 de este Acuerdo, cada Parte deberá obtener la información específica señalada en el párrafo 2 de este Artículo con respecto a todas las Cuentas Reportables y deberá intercambiar información de manera automática anualmente con la otra Parte de conformidad con lo señalado en las disposiciones del artículo 6 del TIEA.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43188 del 23 de julio de 2021)
 2. La información que se obtendrá e intercambiará es:
 a) En el caso de Costa Rica con respecto a cada Cuenta Reportable a EE.UU. de cada Institución Financiera de Costa Rica Sujeta a Reportar:
 (1) el nombre, dirección y TIN de EE.UU. de cada Persona Específica de EE.UU. que es un Cuentahabiente de dicha cuenta y en el caso de Entidades que no sean de EE.UU. que, después de aplicar el procedimiento de debida diligencia establecido en el Anexo I, estén identificadas por tener una o más Personas que ejercen el Control que sean Personas Específicas de EE.UU., se proporcionará el nombre, dirección y TIN de EE.UU. (de tenerlo) de dicha entidad y de cada Persona Específica de EE.UU;

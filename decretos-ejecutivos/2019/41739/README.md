@@ -14,3 +14,4 @@ Acuerdo con el Gobierno de los Estados Unidos de América para mejorar el cumpli
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-06-24 | la propia norma |
+| 2 | 2021-07-23 | Decreto Ejecutivo 43188 (2021-07-23) |
