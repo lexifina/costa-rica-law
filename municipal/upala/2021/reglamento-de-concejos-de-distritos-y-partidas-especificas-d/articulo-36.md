@@ -1,0 +1,3 @@
+Artículo 36.-La Unidad de Enlace Comunal conocerá el perfil del proyecto presentado por la organización y emitirá un criterio general y único sobre la viabilidad de este, basado en los criterios de Hacienda, Legal, Técnico y de la Comisión de Concejo de Distrito. Entiéndase técnico como el criterio del profesional municipal que cuente con el conocimiento idóneo para brindar acompañamiento a la unidad de Enlace Comunal en el área del servicio o bien a contratar.
+El expediente del proyecto será elevado al Concejo Municipal para su respectiva aprobación o rechazo.
+De ser aprobado el proyecto por el Concejo Municipal, la Unidad de Enlace Comunal remitirá el expediente al Ministerio de Hacienda para su incorporación en el presupuesto.

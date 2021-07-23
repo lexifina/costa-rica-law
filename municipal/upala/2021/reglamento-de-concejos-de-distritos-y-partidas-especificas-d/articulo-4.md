@@ -1,0 +1,1 @@
+Artículo 4°-La Municipalidad dará el apoyo necesario para el fortalecimiento estructural y funcional de los Concejos de Distrito, los cuales no cuentan con personería jurídica propia y sus proyectos, planes y programas se deben ejecutar a través de la Municipalidad. La Municipalidad incluirá en el Presupuesto las partidas que sean necesarias para el cumplimiento de este artículo.

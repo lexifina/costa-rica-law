@@ -1,0 +1,1 @@
+Artículo 39.-La Unidad de Enlace Comunal, realizará las gestiones pertinentes para la presentación ante de la documentación ante la Asamblea Legislativa, sobre los cambios de destino de las partidas específicas de la ley 7755.

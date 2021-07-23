@@ -1,0 +1,1 @@
+Artículo 7°-La Municipalidad, mediante la Unidad de Enlace Comunal, llevará un registro de organizaciones sociales del distrito, donde constará el tipo de organización, número de cédula jurídica, domicilio social, representantes legales y plazo de su nombramiento, estatutos y cualquier otra información útil en la gestión municipal.

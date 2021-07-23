@@ -1,0 +1,1 @@
+Artículo 37.-Si transcurrido 1 año la organización, sin que medie justificación válida, no cumple con tramitar y desarrollar el proyecto designado y aprobado, se le otorgará a otra organización para su ejecución.
