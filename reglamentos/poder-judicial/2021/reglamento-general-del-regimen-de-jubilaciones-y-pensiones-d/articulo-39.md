@@ -1,0 +1,5 @@
+CAPITULO V
+Reconocimiento de tiempo para
+efectos jubilatorios
+Artículo 39.-Solicitud del reconocimiento de tiempo servido en el Estado y sus instituciones. El reconocimiento de tiempo servido en el Estado y sus instituciones para efectos de jubilación se tramitará a solicitud de la persona servidora judicial activa. Estos deberán presentar ante la Dirección de Gestión Humana o la dependencia o personal que designe la Junta para la realización de tales estudios la solicitud de reconocimiento de tiempo servido. En estos casos, la persona servidora judicial, podrá presentar su gestión en cualquier momento de su relación de servicio, independientemente del tiempo transcurrido.
+La vigencia del reconocimiento será a partir de la fecha en que la persona interesada cumplió con los requisitos establecidos en este reglamento.

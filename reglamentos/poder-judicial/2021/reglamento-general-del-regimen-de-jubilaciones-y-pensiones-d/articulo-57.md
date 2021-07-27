@@ -1,0 +1,1 @@
+Artículo 57.-Situaciones imprevistas. Las situaciones no previstas en este Reglamento, sobre las materias aquí reguladas, serán resueltas por la Junta Administradora. siempre con sujeción a la normativa correspondiente, jurisprudencia aplicable, estudios técnicos y en atención al Principio Pro-Fondo".

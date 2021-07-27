@@ -1,0 +1,1 @@
+Artículo 33.-Extinción y/o acrecimiento de la pensión. Todas las pensiones caducarán por la muerte de la persona beneficiaria, sin excepción alguna, salvo para la pensión que corresponde a los hijos, las que podrán acrecer proporcionalmente a solicitud de parte, previo estudio del dictamen socioeconómico y aprobación de la Junta Administradora.

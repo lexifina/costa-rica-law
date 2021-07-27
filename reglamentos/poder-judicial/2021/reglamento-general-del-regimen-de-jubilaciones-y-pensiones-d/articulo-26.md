@@ -1,0 +1,1 @@
+Artículo 26.-Salarios devengados. Para el cálculo del monto de las pensiones, en el caso de las personas servidoras judiciales fallecidas, no debe hacerse diferencia entre los salarios devengados en puestos ocupados en propiedad o interinamente.

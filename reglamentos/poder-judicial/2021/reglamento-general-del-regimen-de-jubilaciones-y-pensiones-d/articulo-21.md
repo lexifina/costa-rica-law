@@ -1,0 +1,1 @@
+Artículo 21.-Conocimiento. La Junta Administradora conocerá en sesión, de forma prioritaria la información aportada y en un plazo no mayor a un mes, después de recibida la información recabada por las oficinas tramitadoras, la gestión de jubilación por invalidez, para su aprobación o denegatoria.
