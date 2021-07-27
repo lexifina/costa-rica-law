@@ -15,3 +15,4 @@ Reglamento del Servicio Comunal Estudiantil.
 | --- | --- | --- |
 | 1 | 2002-04-01 | la propia norma |
 | 2 | 2020-07-06 | Decreto Ejecutivo 42544 (2020-07-06) |
+| 3 | 2021-07-27 | Decreto Ejecutivo 43171 (2021-07-27) |
