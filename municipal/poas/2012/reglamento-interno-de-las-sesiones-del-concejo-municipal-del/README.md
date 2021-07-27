@@ -15,3 +15,4 @@ Reglamento Interno de las Sesiones del Concejo Municipal del Cantón de Poás
 | --- | --- | --- |
 | 1 | 2005-03-21 | la propia norma |
 | 2 | 2012-07-24 | Reglamento municipal 117 (2012-07-24) |
+| 3 | 2021-07-27 | Reglamento municipal 65 (2021-07-27) |
