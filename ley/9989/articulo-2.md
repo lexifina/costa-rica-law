@@ -1,0 +1,1 @@
+ARTÍCULO 2- El inmueble donado quedará afecto al régimen de dominio público una vez realizado el traspaso, a fin de que sea destinado exclusivamente a albergar las instalaciones del Ministerio de Ambiente y Energía (Minae).
