@@ -70,45 +70,19 @@ Las 40 Organizaciones Cooperativas de Ahorro y Crédito exentas de la fiscalizac
 dispuso en firme:
 1. Ratificar lo acordado en el artículo 9 de la sesión 1375-2017, en relación con derogar los siguientes acuerdos:
 a. el artículo 21 del acta de la sesión 19-96, del 27 de junio de 1996, así como los acuerdos posteriores en los que se ajustó el nivel de activos de las cooperativas de ahorro y crédito que exime de la supervisión de la SUGEF,
-b. (Derogado este inciso mediante sesión N° 1672-2021 del 5 de julio del 2021, “Eximí de la supervisión efectuada por la Superintendencia General de Entidades Financieras a todas las asociaciones solidaristas, de conformidad con las facultades que para tales efectos otorgan los artículos 117 y 119 de la Ley Orgánica del Banco Central de Costa Rica”)
+b. (Derogado este inciso mediante sesión N° 1672-2021 del 5 de julio del 2021, "Eximí de la supervisión efectuada por la Superintendencia General de Entidades Financieras a todas las asociaciones solidaristas, de conformidad con las facultades que para tales efectos otorgan los artículos 117 y 119 de la Ley Orgánica del Banco Central de Costa Rica")
 2. Derogar las demás disposiciones acordadas en el artículo 9 de la sesión 1375-2017 celebrada el 14 de noviembre del 2017, así como el artículo 7 del acta de la sesión 1397- 2018, celebrada el 20 de febrero de 2018.
-3. Eximir de la fiscalización de la Superintendencia General de Entidades Financieras a las Cooperativas de Ahorro y Crédito y a las Asociaciones Solidaristas que queden por fuera una vez aplicado el modelo, que considera las siguientes variables: volumen de activos, cantidad de deuda con el resto del Sistema Financiero Nacional (SFN), (créditos) y cantidad de recursos aportados al resto del SFN (depósitos).
-(Nota de Sinalevi: Mediante sesión N° 1672M-2021 del 5 de julio del 2021 se establece derogar el inciso anterior respecto de lo atinente a las asociaciones solidaristas, exclusivamente)
-4. Mantener dentro del ámbito de supervisión de la Superintendencia General de Entidades Financieras a las Organizaciones Cooperativas de Ahorro y Crédito, que a la fecha de este acuerdo estén fiscalizadas por SUGEF, aún y cuando su volumen de activos se ubique por debajo del nuevo umbral establecido a partir dela metodología aplicada.
+3. (Derogado en sesión N° 1676 del 27 de julio de 2021)
+4. (Derogado en sesión N° 1676 del 27 de julio de 2021)
 5. Mantener vigente lo acordado en el punto 2 del artículo 15 de la Sesión 109-99, del 16 de agosto de 1999, relacionado con eximir de la fiscalización de la Superintendencia General de Entidades Financieras, a las cooperativas de ahorro y crédito consideradas como cooperativas cerradas.
-6. De conformidad con el estudio técnico presentado por la Superintendencia, se establece las siguientes entidades que serán sujetas a la fiscalización de la SUGEF:
-7. Para el sector de Cooperativas de Ahorro y Crédito se mantienen las 24 entidades supervisadas a la fecha de este acuerdo, a saber:
-1. Coopenae, R. L
-2. Coopeservidores, R. L
-3. Coopeande N°1, R.L.
-4. Coopealianza, R. L.
-5. Coocique, R. L.
-6. Coopecaja, R. L.
-7. Coopemep, R. L.
-8. Coopebanpo, R. L.
-9. Coopeaya, R. L.
-10. Coopeamistad, R. L.
-11. Coopefyl, R. L.
-12. Coopemédicos R.L.
-13. Coopejudicial R.L.
-14. Coopegrecia R.L.
-15. Credecoop R.L.
-16. Coopavegra R.L.
-17. Coopesanramón R.L.
-18. Coopesanmarcos R.L.
-19. Coopelecheros, R. L.
-20. Coopesparta R.L.
-21. Coopeco R.L.
-22. Coopeuna, R. L.
-23. Coopecar R.L.
-24. Servicoop R.L.
+6. (Derogado en sesión N° 1676 del 27 de julio de 2021)
+7. (Derogado en sesión N° 1676 del 27 de julio de 2021)
 8. (Derogado este inciso mediante sesión N° 1672M-2021 del 5 de julio del 2021)
-9. En el caso de las organizaciones cooperativas de ahorro y crédito que se ubiquen en el nivel 2 de fiscalización quedarán bajo la supervisión del Instituto Nacional de Fomento Cooperativo (INFOCOOP), de conformidad con el dictamen C-199 de 6 de diciembre de 1996 de la Procuraduría General de la República.
+9. (Derogado en sesión N° 1676 del 27 de julio de 2021)
 10. (Derogado este inciso mediante sesión N° 1672M-2021 del 5 de julio del 2021)
 11. (Derogado este inciso mediante sesión N° 1672M-2021 del 5 de julio del 2021)
-12. El modelo para la definición de las entidades supervisadas por la SUGEF, será revisado y actualizado cada dos años, con la información financiero contable al cierre de diciembre de los años pares, iniciando con la información de las organizaciones cooperativas de ahorro y crédito y de las Asociaciones Solidaristas, al cierre de diciembre 2020.
-13. En el futuro, si como resultado de la aplicación del modelo una organización cooperativa de ahorro y crédito o una asociación solidarista que se encuentre exenta de supervisión pase a ser supervisada, deberá presentar en un plazo de cuatro meses contados a partir de la comunicación que al efecto realizará la SUGEF, un cronograma con las actividades, responsables y plazos, que deben ir cumpliendo para implementar el marco regulatorio y de fiscalización al que serán sometidos.
-(Nota de Sinalevi: Mediante sesión N° 1672M-2021 del 5 de julio del 2021 se establece derogar el inciso anterior respecto de lo atinente a las asociaciones solidaristas, exclusivamente)
-14. (Derogado este inciso mediante sesión N° 1672M-2021 del 5 de julio del 2021)
+12. (Derogado en sesión N° 1676 del 27 de julio de 2021)
+13. (Derogado en sesión N° 1676 del 27 de julio de 2021)
+14. (Derogado este inciso mediante sesión N° 1672M-2021 del 5 de julio del 2021. Posteriormente en sesión N° 1676 del 27 de julio de 2021, se vuelve a derogar este inciso)
 15. (Derogado este inciso mediante sesión N° 1672M-2021 del 5 de julio del 2021)
 Rige a partir de su publicación en el diario oficial La Gaceta.
