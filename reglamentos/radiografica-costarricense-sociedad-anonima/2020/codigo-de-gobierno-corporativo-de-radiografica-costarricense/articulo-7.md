@@ -1,1 +1,2 @@
-Artículo 7. De la Misión. RACSA tiene como misión el potenciar la transformación digital de sus clientes por medio de innovación y desarrollo de soluciones tecnológicas.
+CAPÍTULO II De la Naturaleza, Misión, Visión y Valores
+Artículo 7°. Naturaleza. RACSA es una empresa pública; de servicios de telecomunicaciones e infocomunicaciones, así como otros productos y servicios de información y otros en convergencia; integrante del Grupo ICE.

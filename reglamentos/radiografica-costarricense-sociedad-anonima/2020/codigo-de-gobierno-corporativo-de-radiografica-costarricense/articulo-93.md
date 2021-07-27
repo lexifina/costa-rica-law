@@ -1,5 +1,6 @@
-Artículo 93. Periodicidad de las reuniones
-Las reuniones de este comité se efectúan como mínimo una vez cada tres meses. También podrán reunirse cuando el presidente lo convoque.
-Se podrán realizar sesiones virtuales (todos los participantes en forma remota) y combinadas (algunos miembros presentes y otros en forma remota), siempre que se cumpla con los requisitos de integración, cuórum, agenda y las facilidades de comunicación que habiliten, como condición indispensable, la simultaneidad de la interacción. Además, debe quedar consignado en la minuta el tipo de herramienta que se utilizó y la modalidad en que cada integrante participó, así como las deliberaciones y los acuerdos.
-Para la realización de dichas sesiones, los miembros del órgano colegiado dispondrán del equipo y el apoyo logístico, con los mecanismos de seguridad y confidencialidad que garanticen su privacidad.
-Aquellos temas que requieran informarse a Junta Directiva o requieran una resolución de ese órgano; deben calendarizarse en el comité, con una semana de antelación sin perjuicio de lo que la Junta Directiva disponga, para que se conozca el tema.
+Artículo 93°. Informes y entregables
+a) Conocer el plan de trabajo de la Auditoría Interna con el fin de proponer o ampliar estudios que se enmarque en las competencias de la Auditoría Interna. Entregable: Plan de trabajo de la Auditoría Interna (Anual).
+b) Informar en la sesión de Junta Directiva los principales temas analizados en las sesiones. Entregable: Informe semestral de temas analizados.
+c) Generar un informe anual sobre la operación, estado y cumplimiento del comité, así como cualquier otro aspecto requerido por norma o ley. Entregable: Informe anual sobre la operación, estado y cumplimiento.
+d) Emitir informe de seguimiento a hallazgos de la Auditoría Interna y Externa, así como el criterio de la Auditoría Externa y de la Contraloría General de la República.
+Entregable: Informe semestral de seguimiento de hallazgos.

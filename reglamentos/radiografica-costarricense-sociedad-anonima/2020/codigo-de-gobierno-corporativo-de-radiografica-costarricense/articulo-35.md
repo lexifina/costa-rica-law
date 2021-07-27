@@ -1,6 +1,8 @@
-Artículo 35. Funciones: Son funciones del Comité de Vigilancia cumplir con las atribuciones del artículo 197 del Código de Comercio:
-a) Velar por el cumplimiento de las leyes, reglamentos y directrices aplicables a la sociedad.
-b) Velar por la debida ejecución de los acuerdos y resoluciones de Asamblea Accionistas y de la Junta Directiva.
-c) Asistir a las sesiones de la Junta Directiva con voz, pero sin voto, cuando ésta así se lo solicite o cuando asista por solicitud propia.
-d) Rendir un informe anual escrito a la Asamblea de Accionistas.
-e) Solicitar la convocatoria de la Asamblea Accionistas en sesión extraordinaria cuando lo considere necesario.
+Artículo 35°. Deberes. Son deberes de los miembros de los Comités de Apoyo de Junta Directiva los siguientes:
+1. Asistir, de forma presencial o virtual, a las sesiones ordinarias y extraordinarias, debiendo confirmar su participación.
+2. Justificar sus ausencias a las sesiones de previo o dos días después que se encuentre en la posibilidad real de justificarlo.
+3. Analizar los asuntos sometidos a su consideración, votar y razonar su voto cuando lo considere necesario.
+4. Guardar el debido sigilo, resguardo de la información sensible, estratégica y confidencial de RACSA, el ICE y sus empresas.
+5. Disponer, de los medios tecnológicos adecuados y el apoyo logístico necesario para sesionar de manera virtual, con los mecanismos de seguridad para garantizar la autenticidad e integridad de la voluntad del Órgano Colegiado, la conservación de lo actuado y la confidencialidad.
+6. Coordinar con el tiempo suficiente previo a la hora de inicio de la sesión virtual, para asegurar que tiene las condiciones necesarias para participar de forma segura en la sesión.
+7. Cumplir lo dispuesto en el "Código de Ética para Colaboradores de RACSA", "Política sobre Conflictos de Interés Grupo ICE" aprobada por el Consejo Directivo del ICE.

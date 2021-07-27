@@ -14,3 +14,4 @@ Código de Gobierno Corporativo, de Radiográfica Costarricense S. A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-11 | la propia norma |
+| 2 | 2021-07-27 | Reglamento 2339 (2021-07-27) |

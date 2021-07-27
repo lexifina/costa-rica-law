@@ -1,5 +1,2 @@
-Artículo 102. Periodicidad de las reuniones
-Las reuniones de este comité se efectúan al menos una vez cada tres meses en la fecha que se establezca. También podrán reunirse cuando el presidente lo convoque.
-Se podrán realizar sesiones virtuales (todos los participantes en forma remota), y combinadas (algunos miembros presentes y otros en forma remota), siempre que se cumpla con los requisitos de integración, cuórum, agenda y las facilidades de comunicación que habiliten, como condición indispensable, la simultaneidad de la interacción. Además, debe quedar consignado en la minuta el tipo de herramienta que se utilizó y la modalidad en que cada integrante participó, así como las deliberaciones y los acuerdos.
-Para la realización de dichas sesiones, los miembros del órgano colegiado dispondrán del equipo y el apoyo logístico, con los mecanismos de seguridad y confidencialidad que garanticen su privacidad.
-Aquellos temas que requieran informarse a Junta Directiva o requieran una resolución de ese órgano; deben calendarizarse en el comité, con una semana de antelación sin perjuicio de lo que la Junta Directiva disponga, para que se conozca el tema.
+Artículo 102°. Alcance.
+Aplica a toda la organización de RACSA, incluyendo miembros externos.

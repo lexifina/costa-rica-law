@@ -1,4 +1,1 @@
-CAPÍTULO VII Oficial de Cumplimiento de Gobierno Corporativo
-El Oficial de Cumplimiento de Gobierno Corporativo es un funcionario que la Empresa debe designar con el objetivo de vigilar el cumplimiento de los programas y procedimientos internos en materia de Gobierno Corporativo, cuya responsabilidad será brindar asesoría a la Junta Directiva y la Gerencia General en materia de Gobierno Corporativo, brindar acompañamiento a los Comités de Apoyo y a las direcciones funcionales de la organización así como servir de enlace con las autoridades competentes y con el Centro Corporativo del Grupo ICE.
-Designación del Oficial de Cumplimiento de Gobierno Corporativo
-Artículo 80. La Junta Directiva designará un Oficial de Cumplimiento de Gobierno Corporativo, quien será responsable de asegurar que se implementen y respeten los procesos de gobierno corporativo, los cuales deben ser sólidos y en apoyo a la gestión estratégica de RACSA.
+Artículo 80°. La Junta Directiva y la Gerencia tomarán las medidas necesarias para comunicar a toda la organización las normas de Gobierno Corporativo y con ello internalizar esta cultura y fortalecer su aplicación.

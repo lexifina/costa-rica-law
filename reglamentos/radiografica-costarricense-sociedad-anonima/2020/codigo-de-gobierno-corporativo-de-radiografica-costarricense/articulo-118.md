@@ -1,8 +1,7 @@
-Artículo 118. Integración del comité
-El comité estará conformado por cuatro miembros; no obstante, podrá invitar a las personas que considere necesario según las cualidades y conocimientos.
-El Comité de Gestión Financiera Estratégica lo integran los siguientes miembros:
+Artículo 118°. Integración del Comité
+El comité estará conformado por tres miembros; no obstante, podrá participar en calidad de invitados sin derecho a voto, los funcionarios o terceros que el Comité considere necesarios por acuerdo unánime, según las cualidades y conocimientos, de manera que los invitados tendrán voz, pero no participan de la deliberación final, ni de la votación.
+El Comité de Remuneraciones y Nominaciones lo integran los siguientes miembros:
 a) Un miembro de la Junta Directiva (Preside)
-b) Un miembro externo e independiente (Perfil financiero)
-c) Director Gestión Financiera
-d) Director Administrativo
-En ausencia o impedimento del integrante de Junta Directiva que preside, tomará su lugar el miembro externo e independiente.
+b) Un miembro de la Junta Directiva
+c) Un miembro externo e independiente (Perfil Gestión de Talento Humano)
+Si por razones justificadas, el Presidente (a) del Comité no pudiera concurrir a la sesión respectiva, podrá designar a uno de los otros miembros del Comité, para que lo sustituya temporalmente. Si por motivos de fuerza mayor, no pudiera hacer tal designación con la debida antelación, corresponderá a los demás miembros, designar entre ellos quien presida la sesión, e indicarlo en la minuta.

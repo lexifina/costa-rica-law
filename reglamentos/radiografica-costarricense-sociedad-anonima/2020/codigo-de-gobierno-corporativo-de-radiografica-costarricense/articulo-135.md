@@ -1,1 +1,2 @@
-Artículo 135. El presente Código de Gobierno Corporativo se constituye en la normativa interna de más alto rango en la materia y sus principios primarán sobre los que estén incluidos en otras normas en aquellos temas que aquí están reglados.
+Artículo 135°. Alcance
+Aplica a toda la organización de RACSA, incluyendo miembros externos.

@@ -1,4 +1,2 @@
-Artículo 116. Informes y entregables
-a) Valorar y recomendar la política de endeudamiento, inversiones y de liquidez, actualizable una vez al año. Entregables: Política de endeudamiento, Política de inversiones y Política de liquidez.
-b) Informar a la Junta Directiva sobre los principales temas analizados en el comité. Entregable: Informes trimestrales de temas analizados
-c) Informar a la Junta Directiva, en forma semestral, sobre el cumplimiento de responsabilidades y desempeño del comité. Entregable: Informe semestral de cumplimiento, responsabilidad y desempeño.
+Artículo 116°. Idoneidad de los miembros del comité
+Los miembros del comité deben ser personas con amplia experiencia profesional y laboral en su área de conocimiento en los campos de la gestión de procesos estratégicos y operacionales de capital humano, de tal forma que les permita interactuar con conocimiento e independencia en temas de mediana a alta complejidad, así como experiencia en la integración de órganos colegiados.

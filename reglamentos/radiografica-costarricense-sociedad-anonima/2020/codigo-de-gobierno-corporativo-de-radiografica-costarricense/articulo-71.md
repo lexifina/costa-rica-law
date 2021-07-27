@@ -1,1 +1,1 @@
-Artículo 71. Para con sus clientes la Empresa se compromete al estricto cumplimiento de los requerimientos pactados ofreciéndoles un alto nivel de innovación en el desarrollo y prestación de servicios.
+Artículo 71°. En enero de cada año la Junta Directiva con soporte del Oficial de Cumplimiento de Gobierno Corporativo realizará una autoevaluación sobre transparencia y divulgación, que permita medir el nivel de transparencia y la calidad de información que se ofrece periódicamente al público, ya sea en forma directa o indirecta.

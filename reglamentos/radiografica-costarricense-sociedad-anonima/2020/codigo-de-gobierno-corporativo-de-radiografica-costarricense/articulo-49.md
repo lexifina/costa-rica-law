@@ -1,1 +1,1 @@
-Artículo 49. Formarán parte de la estructura de control interno y tendrán participación activa en el seguimiento de las políticas en esa materia además de la Auditoría Interna, el Comité de Auditoría y el Comité de Riesgo y Tecnología.
+Artículo 49°. La Auditoría Interna debe fiscalizar que la administración se oriente al mejoramiento de los métodos y procedimientos de control interno, orientándolos para que redunden en una operación más eficiente y eficaz de la Empresa.

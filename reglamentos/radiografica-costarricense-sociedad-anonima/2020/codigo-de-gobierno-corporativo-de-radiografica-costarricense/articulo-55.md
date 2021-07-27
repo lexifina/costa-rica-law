@@ -1,1 +1,1 @@
-Artículo 55. El Código de Ética es una compilación de reglas y políticas destinadas a asistir a todos los funcionarios en la toma de decisiones en el desempeño de sus labores y en aquellas acciones que puedan tener un impacto sobre la imagen de la Empresa.
+Artículo 55°. La empresa a cargo de la auditoría externa será seleccionada por el Grupo ICE para todas las empresas integrantes del mismo, salvo que, por razones de conveniencia empresarial debidamente documentada, se podrá considerar otra opción.

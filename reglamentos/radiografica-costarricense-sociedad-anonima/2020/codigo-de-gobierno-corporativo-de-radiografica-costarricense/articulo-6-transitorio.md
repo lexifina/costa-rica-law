@@ -1,1 +1,1 @@
-Transitorio VI. - En un plazo de cuatro meses la Dirección Jurídica y Regulatoria en conjunto con el Oficial de Cumplimiento de Gobierno Corporativo, deberá proceder a la elaboración del manual de cumplimiento de Gobierno Corporativo.
+Transitorio VI. - En un plazo de un mes el Oficial de Cumplimiento de Gobierno Corporativo en conjunto la Dirección Jurídica y Regulatoria, deberá proceder a la elaboración del Manual de Cumplimiento de Gobierno Corporativo, plazo que será contado a partir de la publicación de las reformas del Código de Gobierno Corporativo.

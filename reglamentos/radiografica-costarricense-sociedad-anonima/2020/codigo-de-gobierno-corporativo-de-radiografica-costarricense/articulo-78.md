@@ -1,1 +1,2 @@
-Artículo 78. Corresponde a la Junta Directiva definir los mecanismos de supervisión y control de Gobierno Corporativo. Estos mecanismos deben promover y vigilar el cumplimiento de leyes, reglamentos, políticas, códigos y otras disposiciones internas o del Grupo ICE, todo esto conforme a las competencias de cada uno de los órganos de gobierno.
+CAPITULO VI: Cultura de Gobierno Corporativo
+Artículo 78°. La cultura de Gobierno Corporativo se fomenta a partir de la implementación y práctica constante de todos los elementos descritos en este Código, así como actividades y sanas costumbres que terminan por profundizar los comportamientos adecuados en todo el personal.

@@ -1,0 +1,1 @@
+Artículo 146°. La Junta Directiva en conjunto con la Gerencia General dispondrán la difusión permanente de los contenidos del presente Código, para lo cual se generará una estrategia de promoción y socialización continua y su publicación en la página web institucional para conocimiento del público en general.

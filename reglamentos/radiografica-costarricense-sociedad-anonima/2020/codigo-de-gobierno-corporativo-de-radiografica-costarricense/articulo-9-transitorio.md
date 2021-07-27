@@ -1,2 +1,0 @@
-Transitorio IX. -El requisito establecido en el artículo 48, sobre imponer como requisito ser Licenciado en Contaduría Pública, será exigido a futuro, por respeto a los derechos adquiridos y situaciones jurídicas consolidadas. No obstante, para el siguiente concurso para nombramiento del Auditor Interno este requisito se incluirá como indispensable para ocupar dicho puesto.
-San José, 26 de agosto de 2020.-Junta Directiva.-Licda. Ligia Conejo Monge, Secretaria.-

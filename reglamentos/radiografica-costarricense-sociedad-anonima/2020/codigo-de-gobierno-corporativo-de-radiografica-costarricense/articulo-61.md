@@ -1,1 +1,5 @@
-Artículo 61. Los administradores y empleados deben abstenerse de llevar a cabo actuaciones que involucren a personas con quienes se tiene algún tipo de relación personal, comercial o financiera, sin la aprobación previa del superior jerárquico, si se trata de empleados, o a la Junta Directiva si se trata de integrantes de la Alta Gerencia o miembros externos de comités y de la Asamblea General de Accionistas si se trata de miembros de la Junta Directiva o el Comité de Vigilancia.
+5.2 Conflictos de interés
+Artículo 61°. Corresponde a la Junta Directiva definir la Política de Manejo de Conflictos de Interés, la cual deberá estar en concordancia y actualizada con los lineamientos fijados por la Casa Matriz en ese ámbito. La misma debe contemplar por lo menos tres elementos:
+a) De prevención.
+b) De identificación de riesgos.
+c) De manejo de los conflictos.

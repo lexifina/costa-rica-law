@@ -1,1 +1,1 @@
-Artículo 52. Esta empresa deberá efectuar un examen detallado, sistemático y crítico, que deberá coordinar con el Comité de Auditoría y cuyos resultados conocerá la Junta Directiva y la Asamblea de Accionistas.
+Artículo 52°. La Junta Directiva y la Alta Gerencia, definirán las políticas de control interno, las estrategias de control que se aplicarán para conseguir estos objetivos y diseñarán la estructura del sistema de control interno de la compañía, de acuerdo con las necesidades de la misma, la legislación aplicable y las políticas internas del Grupo ICE.

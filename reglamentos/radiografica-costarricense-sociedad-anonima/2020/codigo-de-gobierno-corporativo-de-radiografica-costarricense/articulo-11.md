@@ -1,2 +1,4 @@
-3.2 Asamblea de Accionistas
-Artículo 11. RACSA es una empresa que forma parte del Grupo ICE; grupo de empresas conformadas por el ICE y sus subsidiarias, a saber: Radiográfica Costarricense S.A., Compañía Nacional de Fuerza y Luz y Gestión Cobro S.A., por lo que su Asamblea de Accionistas corresponde a la representación del Grupo ICE.
+CAPÍTULO III De los Órganos de Gobierno
+3.1 Modelo de Gobierno Corporativo
+Artículo 11°. Las relaciones entre los niveles de propiedad, de dirección y de gestión de la Empresa se articulan en un modelo en el que el órgano de nivel superior transmite al que se encuentra bajo él, sus expectativas y directrices y recibe resultados y explicaciones de su subordinado directo; siempre tomando en cuenta el impacto de las partes interesadas.
+[imagen]

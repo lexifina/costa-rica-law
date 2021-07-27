@@ -1,7 +1,6 @@
-Artículo 125. Informes y entregables
-a) Análisis de grandes tendencias digitales y del sector. Entregable: Informe de tendencias digitales y de sector (Anual).
-b) Escenarios, alternativas y prioridades estratégicas. Entregable: Informe de escenarios y prioridades estratégicas (Anual).
-c) Analizar y proponer a la Junta Directiva el plan estratégico, planes operativos. Entregables?: Plan estratégico (Anual), Planes operativos (Anual) y Presupuesto (Anual).
-d) Propuestas de ajuste, redireccionamiento y prioridades estratégicas. Entregable: Propuestas y recomendaciones (Semestral).
-e) Seguimiento a los planes, indicadores de proyectos y resultados de innovación. Entregable:
-Informe de seguimiento de planes (Semestral).
+Artículo 125°. Funciones y mandatos
+a) Evaluar y dar seguimiento a plan estratégico, plan financiero, plan operativo, plan de presupuesto, a los hallazgos contables y financieros que resulten del proceso de auditoría externa, a las recomendaciones del Comité de Vigilancia y a los temas fiscales.
+b) Definir y someter a aprobación de la Junta Directiva las políticas de endeudamiento, inversiones y liquidez, así como la gestión de las posiciones en moneda extranjera.
+c) Dar seguimiento a las políticas y la optimización de: Flujos y proyecciones de efectivo, Cuentas por cobrar, Gestión de pasivos, Evaluación de inversiones y Compromisos contractuales de impacto financiero significativo.
+d) Valorar las inversiones requeridas por la organización para la implementación de los planes tácticos asociados con su estrategia.
+e) Requerir las simulaciones que permitan valorar impactos financieros ante posibles cambios en el entorno competitivo.

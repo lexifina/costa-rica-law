@@ -1,2 +1,1 @@
-5.5 Responsabilidad social corporativa y reconocimiento de las partes interesadas
-Artículo 68. RACSA se define como una empresa socialmente responsable que tiene entre sus compromisos realizar sus labores en armonía con el entorno, velando por sus aspectos ambientales y alineada con las metas de sostenibilidad del Estado costarricense y en concordancia con los objetivos de desarrollo sostenible.
+Artículo 68°. La Política de Conflictos de Interés definirá los límites a la selección de proveedores y socios empresariales que se deriven de relaciones con quienes soliciten la adquisición de bienes o servicios, o quienes participen en los negocios de RACSA.

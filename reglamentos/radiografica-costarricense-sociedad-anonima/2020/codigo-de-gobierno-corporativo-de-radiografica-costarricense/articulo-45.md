@@ -1,1 +1,1 @@
-Artículo 45. La auditoría interna debe orientarse al mejoramiento de los métodos y procedimientos de control interno, orientándolos para que redunden en una operación más eficiente y eficaz de la Empresa.
+Artículo 45°. La Junta Directiva evaluará la gestión y cumplimiento de metas y objetivos estratégicos de forma periódica al Gerente General y a los Directores Funcionales, conforme a la normativa vigente.

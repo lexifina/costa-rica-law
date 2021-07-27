@@ -1,2 +1,4 @@
-3.9 La Alta Gerencia
-Artículo 36. La Alta Gerencia es la responsable del proceso de planeamiento, organización, dirección y control de los recursos organizacionales de RACSA, todo esto en función del logro de los objetivos establecidos por la Junta Directiva.
+Artículo 36°. Acceso y confidencialidad de la información.
+Para el ejercicio de sus responsabilidades como miembros de los Comités podrán acceder, a la información confidencial y pública o documentación que se disponga en RACSA y que se considere necesaria para el cumplimiento de sus funciones.
+Es deber de cada uno de los miembros del Comité, resguardar la información confidencial y sensible a la que tenga acceso, cuando así lo señale el respectivo documento o lo advierta el área responsable de dicha información y solo deberán utilizarla para los fines propios del Comité, y de acuerdo con las disposiciones definidas en los contratos de confidencialidad con la empresa.
+Los Comités de Apoyo podrán advertir que la información que se presentará a la Junta Directiva con respecto a un tema específico es de naturaleza confidencial.

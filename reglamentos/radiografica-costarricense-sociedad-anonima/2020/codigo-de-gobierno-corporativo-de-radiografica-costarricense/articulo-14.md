@@ -1,2 +1,1 @@
-3.3 Junta Directiva
-Artículo 14. Composición. La Junta Directiva está compuesta por cinco miembros: tres representantes del ICE y dos representantes de CRICRSA elegidos por la Asamblea General de Accionistas por un período de dos años, con posibilidad de reelección.
+Artículo 14°. Las decisiones del ICE como propietario en ningún caso podrán implicar una afectación a la autonomía que se deriva de las facultades legales y estatutarias, ni tampoco podrán conllevar un incumplimiento de los deberes legales y estatutarios de la Junta Directiva de RACSA.

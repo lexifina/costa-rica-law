@@ -1,1 +1,1 @@
-Artículo 75. El objetivo de la Empresa es generar una cultura de Gobierno Corporativo orientada a una sólida gestión de riesgos, que permita la preservación del valor del patrimonio público y un crecimiento ordenado y rentable para el Grupo ICE.
+Artículo 75°. Para con sus clientes la Empresa se compromete al estricto cumplimiento de los requerimientos pactados ofreciéndoles un alto nivel de innovación en el desarrollo y prestación de servicios.

@@ -1,1 +1,1 @@
-Artículo 51. La empresa a cargo de la auditoría externa será seleccionada por el Grupo ICE para todas las empresas integrantes del mismo.
+Artículo 51°. El Auditor Interno debe ser un profesional altamente capacitado en materia de auditoría y reunir los conocimientos, actitudes y habilidades acordes con la responsabilidad del cargo. Debe ser Licenciado en Contaduría Pública, afiliado al colegio profesional respectivo y poseer cuando menos tres años de experiencia en materia de auditoría. A criterio de la Junta Directiva estos requisitos pueden ampliarse.

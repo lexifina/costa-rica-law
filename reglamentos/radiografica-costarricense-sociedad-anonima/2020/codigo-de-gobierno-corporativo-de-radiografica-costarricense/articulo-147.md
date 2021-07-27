@@ -1,0 +1,1 @@
+Artículo 147°. La Gerencia General velará porque el conocimiento de este Código sea parte de los programas de inducción de todos los nuevos funcionarios de la Empresa y de capacitaciones periódicas para todo el personal.

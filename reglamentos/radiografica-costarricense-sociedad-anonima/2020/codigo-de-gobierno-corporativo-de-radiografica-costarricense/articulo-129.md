@@ -1,4 +1,7 @@
-Artículo 129. Periodicidad de las reuniones
-Las reuniones de este comité se efectúan una vez al mes, en fecha que se establezca. También podrán reunirse cuando el presidente convoque.
-Se podrán realizar sesiones virtuales (todos los participantes en forma remota), y combinadas (algunos miembros presentes y otros en forma remota), siempre que se cumpla con los requisitos de integración, cuórum, agenda y las facilidades de comunicación que habiliten, como condición indispensable, la simultaneidad de la interacción. Además, debe quedar consignado en la minuta el tipo de herramienta que se utilizó y la modalidad en que cada integrante participó, así como las deliberaciones y los acuerdos.
-Para la realización de dichas sesiones, los miembros del órgano colegiado dispondrán del equipo y el apoyo logístico, con los mecanismos de seguridad y confidencialidad que garanticen su privacidad. Aquellos temas que requieran informarse a Junta Directiva o requieran una resolución de ese órgano; deben calendarizarse en el comité, con una semana de antelación sin perjuicio de lo que la Junta Directiva disponga, para que se conozca el tema.
+Artículo 129°. Integración del Comité
+El comité estará conformado por cuatro miembros; no obstante, podrán participar en calidad de invitados sin derecho a voto, los funcionarios o terceros que el Comité considere necesarios por acuerdo unánime, según las cualidades y conocimientos, de manera que los invitados tendrán voz, pero no participan de la deliberación final, ni de la votación.
+El Comité de Gestión Financiera Estratégica lo integran los siguientes miembros:
+a) Un miembro de la Junta Directiva (Preside)
+b) Un miembro de la Junta Directiva
+c) Dos miembros externo e independiente (Perfil financiero)
+Si por razones justificadas, el Presidente (a) del Comité no pudiera concurrir a la sesión respectiva, podrá designar a uno de los otros miembros del Comité, para quelo sustituya temporalmente. Si por motivos de fuerza mayor, no pudiera hacer tal designación con la debida antelación, corresponderá a los demás miembros, designar entre ellos quien presida la sesión, e indicarlo en la minuta.

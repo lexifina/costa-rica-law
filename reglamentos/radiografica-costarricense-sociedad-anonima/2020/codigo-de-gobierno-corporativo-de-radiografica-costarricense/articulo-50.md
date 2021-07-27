@@ -1,2 +1,1 @@
-4.2 Control Externo
-Artículo 50. Auditoría Externa. La Empresa auditará anualmente sus estados financieros por medio de una entidad especializada e independiente que deberá ejecutar sus funciones con personal adecuado en calidad y cantidad.
+Artículo 50°. La Auditoría Interna está bajo la responsabilidad de un Auditor Interno, nombrado por la Junta Directiva, a quien reporta, pero que cuenta con la autoridad e independencia necesarias para el cumplimiento de sus funciones de acuerdo con lo dispuesto por la legislación y normativa aplicables

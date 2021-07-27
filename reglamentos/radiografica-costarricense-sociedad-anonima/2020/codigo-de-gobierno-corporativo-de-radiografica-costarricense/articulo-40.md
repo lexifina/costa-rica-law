@@ -1,1 +1,2 @@
-Artículo 40. Es responsabilidad de la Gerencia General proponer planes tácticos a la Junta Directiva alineados con la estrategia corporativa y una vez aprobadas, velar por su implementación, a la vez que se dedica a la supervisión de la gestión diaria del negocio.
+3.9 La Alta Gerencia
+Artículo 40°. La Alta Gerencia es la responsable del proceso de planeamiento, organización, dirección y control de los recursos organizacionales de RACSA, todo esto en función del logro de los objetivos establecidos por la Junta Directiva.

@@ -1,3 +1,2 @@
-Artículo 108. Idoneidad de los miembros del comité
-Los miembros del comité deben ser personas con amplia experiencia profesional y laboral en su área de conocimiento en los campos de la gestión de procesos estratégicos y operacionales de capital humano, de tal forma que les permita interactuar con conocimiento e independencia en temas de mediana a alta complejidad.
-Los miembros del comité son nombrados y removidos por la Junta Directiva, fundamentándose para ello en el conocimiento, experiencia y papel que hayan desempeñado con anterioridad.
+Artículo 108°. Cuórum y esquema de votación del comité.
+El cuórum funcional se establece con la presencia de la mitad más uno de los miembros designados, momento a partir del cual el Comité puede sesionar. Las decisiones a lo interno del Comité serán tomadas por medio de mayoría simple de los presentes, en caso de empate la presidencia tendrá voto de calidad.

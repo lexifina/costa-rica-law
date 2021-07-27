@@ -1,1 +1,2 @@
-Artículo 24. Para esto la Junta Directiva aprobará un procedimiento que definirá los aspectos a evaluar y garantizará que cada aspecto evaluado cuente con indicadores específicos, medibles, y relevantes. Este procedimiento debe ser revisado, actualizado y ratificado anualmente por la Junta Directiva.
+3.6 Política de Evaluación de la Gestión de la Junta Directiva
+Artículo 24°. La Junta Directiva debe implementar un programa objetivo y estructurado de evaluación anual de su gestión, la de sus miembros, los comités en funcionamiento y sus integrantes, bajo la supervisión del presidente de la Junta Directiva.

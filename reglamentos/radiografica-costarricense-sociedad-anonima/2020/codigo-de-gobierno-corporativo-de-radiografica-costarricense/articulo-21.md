@@ -1,5 +1,4 @@
-Artículo 21. Con respecto a la Administración le corresponde a la Junta Directiva:
-a) Seleccionar, vigilar y evaluar el desempeño del Gerente General, los auditores internos y externos, miembros externos de comités y otros funcionarios bajo su responsabilidad de acuerdo con el marco legal vigente.
-b) Reemplazar a los Ejecutivos de Nivel Gerencial (Gerente General y Directores funcionales) y otros roles estratégicos cuando sea necesario de acuerdo con la normativa vigente y las necesidades institucionales ordinarias o sobrevenidas, así como supervisar la existencia, reporte, actualización y efectividad de los planes de sucesión tanto de la Alta Gerencia como de las unidades críticas de negocio.
-c) Aprobar el esquema retributivo de la Empresa acorde con la normativa, asegurando que el método de cálculo sea formal, transparente, público y alineado con las mejores prácticas internacionales en la materia. Para tal fin, deberán considerar factores como el tamaño de la Empresa, la carga laboral y de responsabilidad, el nivel de riesgo, los índices de remuneración y las prácticas comunes del mercado.
-d) Aprobar el esquema salarial del personal que depende directamente de la Junta Directiva incluyendo el del Gerente General, el Auditor, la Secretaría de la Junta y el Oficial de Cumplimiento, así como cualquier otro personal que dependa directamente de la Junta Directiva.
+Artículo 21°. En Materia de Transparencia, la Junta Directiva deberá:
+a) Asegurar la existencia de políticas y procedimientos de denuncia de irregularidades (whistleblowing), así como vigilar su integridad, independencia y eficacia, así como de las medidas de protección y confidencialidad del denunciante.
+b) Supervisar los procesos de divulgación y comunicación al público y garantizar la aplicación de las políticas de transparencia.
+c) Avalar las solicitudes de declaración de confidencialidad que se deben dirigir al Consejo Directivo del ICE.

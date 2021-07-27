@@ -1,1 +1,1 @@
-Artículo 64. La Política de Conflictos de Interés definirá los límites a la selección de proveedores y socios empresariales que se deriven de relaciones con quienes soliciten la adquisición de bienes o servicios, o quienes participen en los negocios de RACSA.
+Artículo 64°. Todo administrador o empleado de RACSA tiene el deber de objetar la actuación en cualquier acto de aquel funcionario que no cumpla con el deber de abstención cuando deba hacerlo y esto sea de su conocimiento.

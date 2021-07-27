@@ -1,6 +1,2 @@
-CAPÍTULO VIII: Comités de Apoyo a Junta Directiva
-7.1 Comité de Auditoría
-Artículo 85. Objetivos
-a) Monitorear el cumplimiento de políticas, procedimientos y controles establecidos, facilitando el ejercicio de un juicio independiente de los procesos de auditoría.
-b) Desarrollar sus actividades considerando las políticas y lineamientos de Casa Matriz, así como la normativa y regulación atinente.
-c) Servir como unidad técnica de soporte a la Junta Directiva apoyando en labores de análisis de temas que interesan a dicha instancia, con el propósito de lograr mayor eficiencia y profundidad.
+7.1 Designación del Oficial de Cumplimiento de Gobierno Corporativo
+Artículo 85°: La Junta Directiva designará un Oficial de Cumplimiento de Gobierno Corporativo, quien será responsable de la Oficialía, y brindará la asesoría, coordinación y planificación para que se implementen y respeten los procesos de Gobierno Corporativo, los cuales deben ser sólidos y en apoyo a la gestión estratégica de RACSA.

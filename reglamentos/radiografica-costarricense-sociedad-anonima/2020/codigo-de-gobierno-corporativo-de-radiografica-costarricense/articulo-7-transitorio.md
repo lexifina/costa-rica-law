@@ -1,1 +1,2 @@
-Transitorio VII. - En esta etapa de implementación no se requerirá el plan de anual del oficial de cumplimiento de gobierno corporativo. Para la primera presentación del plan anual 2021 del Oficial de Cumplimiento de Gobierno Corporativo, se concede un plazo para la primera sesión de Junta Directiva del mes de diciembre 2020.
+Transitorio VII. -El requisito establecido en el artículo 51, relativo a la necesidad de ser Licenciado en Contaduría Pública, será exigido a futuro, por respeto a los derechos adquiridos y situaciones jurídicas consolidadas. No obstante, para el siguiente concurso para nombramiento del Auditor Interno este requisito se incluirá como indispensable para ocupar dicho puesto."
+San José, 5 de agosto del 2021

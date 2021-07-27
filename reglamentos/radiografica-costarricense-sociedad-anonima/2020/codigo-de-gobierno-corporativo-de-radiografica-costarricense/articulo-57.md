@@ -1,5 +1,2 @@
-5.2 Conflictos de interés
-Artículo 57. Corresponde a la Junta Directiva definir la Política de Manejo de Conflictos de Interés, la cual deberá estar en concordancia y actualizada con los lineamientos fijados por la Casa Matriz en ese ámbito. La misma debe contemplar por lo menos tres elementos:
-a) De prevención.
-b) De identificación de riesgos.
-c) De manejo de los conflictos.
+4.3 Contraloría General de la República
+Artículo 57°. RACSA es una sociedad anónima sujeta a un régimen jurídico mixto, en el que está sujeta a los controles de Derecho Público sobre el manejo de sus fondos. Estos controles son ejercidos por la Contraloría General de la República.

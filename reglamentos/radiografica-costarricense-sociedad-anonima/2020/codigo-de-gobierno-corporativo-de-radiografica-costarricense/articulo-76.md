@@ -1,1 +1,1 @@
-Artículo 76. La Junta Directiva y la Gerencia tomarán las medidas necesarias para comunicar a toda la organización las normas de Gobierno Corporativo y con ello internalizar esta cultura y fortalecer su aplicación.
+Artículo 76°. A los proveedores RACSA les ofrece un trato equitativo y transparente con relaciones basadas en el mérito.

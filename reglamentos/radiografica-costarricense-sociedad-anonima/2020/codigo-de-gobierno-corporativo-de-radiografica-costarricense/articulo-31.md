@@ -1,6 +1,6 @@
-Artículo 31. Los Comités de naturaleza permanente serán los siguientes:
-a) Comité de Auditoría
-b) Comité de Riesgo y Tecnologías de Información
-c) Comité de Remuneraciones y Nominaciones
-d) Comité de Gestión Financiera Estratégica
-e) Comité de Innovación y Estrategia
+Artículo 31°. Para su mejor funcionamiento, se deberá contar con un manual de cumplimiento, el cual que debe contener por comité, al menos:
+a) Objetivos del Comité
+b) Integrantes
+c) Funciones y mandatos
+d) Entregables a la Junta Directiva
+e) Derechos de decisión

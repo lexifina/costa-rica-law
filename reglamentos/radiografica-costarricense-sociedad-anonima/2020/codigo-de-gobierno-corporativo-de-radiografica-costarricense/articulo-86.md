@@ -1,2 +1,1 @@
-Artículo 86. Alcance
-Aplica a toda la organización de RACSA, incluyendo miembros externos.
+Artículo 86°: Será responsable de proporcionar un servicio de apoyo a la Junta Directiva, la Gerencia General y a los Comités de Apoyo, asesorando y promoviendo la aplicación de las mejores prácticas de Gobierno Corporativo. De igual forma, en materia de gobernanza servirá de enlace cuando se requiera con la Casa Matriz y relacionadas, así como con las instancias públicas pertinentes.

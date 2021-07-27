@@ -1,1 +1,4 @@
-Artículo 17. El accionar de la Junta Directiva se orienta a la búsqueda permanente del mejor interés para sus accionistas y todas las partes interesadas. Sin embargo, al ser RACSA una empresa de propiedad estatal, su funcionamiento y las responsabilidades de los órganos de administración está supeditado a las reglas expedidas por las autoridades competentes, para ello, los miembros de la Junta Directiva deben ejercer sus funciones de forma objetiva con fundamento en su propio criterio y de forma independiente.
+Artículo 17°. La actividad de la Junta Directiva de la compañía se orienta principalmente a:
+a) La toma de decisiones estratégicas orientadas a la satisfacción de los objetivos de la Empresa y el alineamiento a la Estrategia Corporativa.
+b) Hacer el seguimiento a todas aquellas acciones que se tomen para lograr los objetivos estratégicos.
+c) Definir la organización interna y estructura de Gobierno Corporativo de la Empresa, que permita la consecución de la estrategia.
