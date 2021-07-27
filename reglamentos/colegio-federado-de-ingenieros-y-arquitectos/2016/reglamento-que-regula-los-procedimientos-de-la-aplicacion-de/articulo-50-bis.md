@@ -1,0 +1,2 @@
+Artículo 50 bis: El Tribunal de Honor podrá apoyarse en la utilización de recursos tecnológicos tales como firma digital, expediente digital, audiencias por videoconferencia y otros mecanismos tecnológicos disponibles, tanto para audiencias, recepción de prueba, el manejo del expediente y cualquier otra etapa procesal que requiera del uso de ese recurso.
+(Así adicionado mediante sesión N° 31-2021-G.E. del 27 de julio de 2021)

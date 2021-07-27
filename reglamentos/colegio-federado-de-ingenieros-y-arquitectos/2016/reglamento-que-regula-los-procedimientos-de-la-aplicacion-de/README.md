@@ -14,3 +14,4 @@ Reglamento que Regula los procedimientos de la aplicación de la ética Profesio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-20 | la propia norma |
+| 2 | 2021-07-27 | Reglamento 31 (2021-07-27) |

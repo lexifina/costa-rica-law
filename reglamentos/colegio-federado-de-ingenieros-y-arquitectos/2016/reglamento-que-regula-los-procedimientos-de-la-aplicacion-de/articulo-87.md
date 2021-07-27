@@ -1,2 +1,2 @@
-Artículo 87.
-La comparecencia deberá tener lugar normalmente en la sede de los Tribunales de Honor, pero si hay que hacer una inspección ocular o pericial se podrá desarrollar en el lugar de ésta. Sin embargo, también podrá llevarse a cabo en otras sedes del CFIA, por razones de urgencia, necesidad, conveniencia, fuerza mayor o caso fortuito.
+Artículo 87.La comparecencia deberá tener lugar normalmente en la sede de los Tribunales de Honor. Sin embargo, también podrá llevarse a cabo en otra sede del CFIA o de forma virtual mediante los mecanismos tecnológicos dispuestos para ello, cuando por razones de urgencia, necesidad, conveniencia, fuerza mayor o caso fortuito fuere necesario, siempre que no cause un perjuicio grave para las partes. Las audiencias virtuales se llevarán a cabo de conformidad con el protocolo que al efecto apruebe la Junta Directiva General.
+(Así reformado mediante sesión N° 31-2021-G.E. del 27 de julio de 2021)
