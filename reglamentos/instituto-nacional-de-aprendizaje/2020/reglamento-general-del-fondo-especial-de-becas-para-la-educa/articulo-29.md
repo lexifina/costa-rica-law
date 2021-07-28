@@ -1,1 +1,0 @@
-Artículo 29.Tipos de recursos. Las personas estudiantes tendrán derecho a interponer los recursos ordinarios que establece la Ley General de Administración Pública, a saber, los de revocatoria o apelación.
