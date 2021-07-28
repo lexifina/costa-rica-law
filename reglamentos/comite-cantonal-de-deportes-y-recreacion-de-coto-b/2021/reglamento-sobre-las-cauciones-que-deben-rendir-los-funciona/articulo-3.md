@@ -1,0 +1,1 @@
+Artículo 3º-Funcionarios con más de un cargo, el servidor que por disposición administrativa le corresponda asumir funciones de otro puesto que implique la recaudación, custodia o administración de fondos y valores públicos, por un plazo superior a quince días, deberá rendir una única garantía por el monto que corresponda, según la clasificación establecida en este reglamento.

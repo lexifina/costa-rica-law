@@ -1,0 +1,1 @@
+Artículo 4º-Ajuste de la caución. El funcionario obligado a rendir caución, que por algún motivo sea trasladado de un puesto a otro que implique la obligación de rendir una caución mayor, deberá ajustar la garantía conforme a su nueva situación para lo cual contará con un plazo de veinte días hábiles a partir del acto respectivo.
