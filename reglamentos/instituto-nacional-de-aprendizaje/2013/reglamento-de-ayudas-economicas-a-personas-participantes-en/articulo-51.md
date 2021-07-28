@@ -1,2 +1,0 @@
-Artículo 51. Requisitos de convocatoria a sesiones extraordinarias del CRBAE.
-Las convocatorias a sesiones extraordinarias deberán realizarse por escrito con una antelación mínima de veinticuatro horas, salvo en casos de urgencia o cuando haya acuerdo unánime de las personas integrantes del CRBAE.

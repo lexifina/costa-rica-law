@@ -1,5 +1,0 @@
-Artículo 18. Fijación y cálculos de los montos a aprobar
-Los montos máximos para reconocer por cada beneficio de la ayuda económica serán fijados de acuerdo a las disposiciones contenidas en este reglamento y por la Tabla de montos máximos de ayudas económicas del INA, la cual será revisada y actualizada de forma anual y aprobada por el CIBAE.
-Los montos para otorgar en cada uno de los beneficios de la ayuda económica dependen de la condición socioeconómica de la persona estudiante solicitante, establecida por el SINIRUBE o el mecanismo del INA, del criterio técnico de la persona profesional en trabajo social y del horario establecido oficialmente para el SCFP.
-En el caso de reubicación geográfica, el monto a otorgar depende de los días que necesite permanecer en el lugar de alojamiento.
-Ninguno de los beneficios aprobados podrá sobrepasar los montos máximos establecidos en la Tabla de ayudas económicas del INA. En todos los casos una ayuda económica en su sumatoria no podrá exceder dos veces el monto más alto establecido en dicha tabla.

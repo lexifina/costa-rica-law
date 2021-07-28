@@ -1,4 +1,0 @@
-CAPÍTULO VIII
-PROCEDIMIENTO PARA LA PÉRDIDA DE LA AYUDA ECONÓMICA
-Artículo 66. Garantías procesales. Cualquier decisión relacionada con la pérdida de derechos o beneficios con base a las disposiciones del presente reglamento, deberá darse mediante el debido proceso dispuesto en la Ley General de Administración Pública, de forma que se resguarden garantías procesales suficientes y el respectivo ejercicio del derecho de defensa para la persona estudiante.
-En los casos en los cuales se considere que adicional al incumplimiento de los deberes regulados el presente Reglamento, la persona estudiante incurrió en algún otro incumplimiento, se deberá iniciar un procedimiento administrativo de conformidad con las disposiciones del Reglamento para Personas Estudiantes en los Servicios de Capacitación y Formación Profesional vigente.

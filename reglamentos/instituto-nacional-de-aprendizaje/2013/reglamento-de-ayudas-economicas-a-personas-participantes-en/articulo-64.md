@@ -1,8 +1,0 @@
-Artículo 64. Causales de recuperación de la ayuda económica.
-Las ayudas económicas que hayan sido canceladas o suspendidas a una persona estudiante podrán ser recuperadas cuando se den los siguientes supuestos:
-a) Cuando la persona con ayuda económica se retiró del proceso de capacitación o formación por razones debidamente justificadas como; problemas de salud, maternidad, vulnerabilidad social, caso fortuito o fuerza mayor, y solicita repetir el módulo, podrá reingresar con el estatus de la ayuda económica al momento de su retiro, previa valoración de la persona profesional en trabajo social.
-b) Cuando la persona estudiante reingrese después de haber transcurrido dos años, desde que se le aplicó lo dispuesto en el artículo 62 inciso a), del presente Reglamento.
-c) Cuando la persona estudiante reingrese después de habérsele aplicado el artículo 63 inciso a), podrá realizar nuevo trámite de solicitud de ayuda económica y podrá otorgársele por una única vez más, siempre y cuando permanezca en el mismo SCFP o el nuevo SCFP sea complementario o transversal al SCFP anterior.
-d) Cuando la persona estudiante reingrese después de habérsele aplicado el artículo 63 inciso b), por abandonar SCFP injustificadamente, podrá realizar nuevo trámite de solicitud de ayuda económica después de transcurridos doce meses y podrá otorgársele por una única vez más.
-Si la persona estudiante permaneció fuera de la institución por un período igual o superior a doce meses, deberá realizar nuevo trámite de solicitud de ayuda económica.
-Si el período es inferior, deberá presentar por escrito la solicitud de prórroga de la ayuda económica, en este caso es necesario constatar cambio de situación socioeconómica.

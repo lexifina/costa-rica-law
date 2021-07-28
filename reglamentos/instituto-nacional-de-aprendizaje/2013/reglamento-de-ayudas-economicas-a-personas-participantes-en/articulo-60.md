@@ -1,2 +1,0 @@
-Artículo 60. Actas del CRBAE.
-En cada sesión se levanta el acta donde hace constar las personas asistentes a la misma, las circunstancias de tiempo y lugar en que se ha celebrado, los puntos analizados, el contenido de los acuerdos y el resultado de la votación respetando lo establecido en la Ley General de la Administración Pública y el procedimiento institucional para la elaboración de las actas.
