@@ -1,0 +1,1 @@
+Artículo 40.-Recuentos Físicos: La junta directiva, cuando lo estime conveniente y sin previo aviso, podrá realizar recuentos físicos en las diferentes dependencias del Comité Cantonal de Deportes y Recreación de Coto Brus para verificar que el buen estado y uso de los activos y que los bienes asignados a cada Unidad sean realmente los existentes.

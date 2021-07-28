@@ -1,0 +1,1 @@
+Artículo 17.-Custodia de Activos: Los funcionarios, a quienes se les haya asignado los bienes, son los responsables de la pérdida, o daño que sufran los mismos, además que éstos estén ubicados en el lugar correspondiente y deberán responder a los encargados de realizar los inventarios, por aquellos que no sean localizados en su sitio.

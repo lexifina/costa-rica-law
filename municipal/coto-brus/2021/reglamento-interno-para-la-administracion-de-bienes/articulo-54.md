@@ -1,0 +1,1 @@
+Artículo 54.-Recibido de activos reparados: Una vez que sean reparados los bienes, la junta directiva lo entregará a la dependencia interesada, donde el Funcionario firmará el original de la factura dando por recibido el equipo.

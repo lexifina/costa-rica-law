@@ -1,0 +1,1 @@
+Artículo 23.-Reporte de daños: Los funcionarios reportarán de cualquier daño o imprudencias que otros compañeros causaren en perjuicio del Comité cantonal de Deportes y Recreación de Coto Brus. Si descubrieren un robo realizado por cualquier persona, deberán denunciarlo inmediatamente.

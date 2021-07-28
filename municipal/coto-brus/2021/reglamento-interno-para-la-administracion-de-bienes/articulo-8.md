@@ -1,0 +1,1 @@
+Artículo 8°-Formulario para la entrega de activos: Formulario mediante el cual la junta directiva del Comité cantonal de Deportes y Recreación de Coto Brus hace entrega al Funcionario de los bienes muebles. Al firmarlo, el Funcionario recibe y acepta la responsabilidad de la custodia y el buen uso de los bienes que le son asignados.

@@ -1,0 +1,1 @@
+Artículo 51.-Trámite para eliminación: En los casos de activos que por su estado no estén sujetos de donación y tengan que ser desechados, la junta directiva solicitará visto bueno al concejo municipal mediante oficio e iniciará el trámite una vez obtenido el visto bueno así mismo comunicará a Contabilidad, para que sean retirados de sus registros.

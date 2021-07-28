@@ -1,0 +1,1 @@
+Artículo 34.-Traslado de Activos: Antes de comprar un activo, la junta directiva deberá analizar la posibilidad de asignar mobiliario y equipo en desuso en otras dependencias, asegurándose que se elabore y firme el formulario de traslado de activos.

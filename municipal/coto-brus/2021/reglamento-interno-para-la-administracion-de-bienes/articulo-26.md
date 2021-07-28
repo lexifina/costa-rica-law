@@ -1,0 +1,1 @@
+Artículo 26.-Carencia de Reporte: Cuando un funcionario no haya reportado, en el tiempo establecido, la pérdida de un activo y éste es detectado como faltante en un inventario, se procederá de oficio al cobro según el valor contable actual.

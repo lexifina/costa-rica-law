@@ -1,0 +1,1 @@
+Artículo 36.-Listado de Activos: La junta directiva es la encargada de mantener el control de inventario de los activos; custodiar y actualizar los expedientes de activos por cada funcionario responsable del bien; además es responsable del archivo histórico de las boletas de "Inclusión de Activos", "Movimientos de Activos" que se generen en cada periodo.

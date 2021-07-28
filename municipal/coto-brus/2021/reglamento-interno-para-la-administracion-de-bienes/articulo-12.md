@@ -1,0 +1,1 @@
+Artículo 12.-También se exceptúan de estas disposiciones los libros, folletos, diccionarios, manuales técnicos y demás documentos propiedad del Comité cantonal de Deportes y Recreación de Coto Brus, que han sido adquiridos por las diferentes Unidades Administrativas para su uso.

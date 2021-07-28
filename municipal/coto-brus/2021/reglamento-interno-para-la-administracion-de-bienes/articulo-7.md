@@ -1,0 +1,1 @@
+Artículo 7°-Identificación de bienes: Todo bien que ingrese al Comité cantonal de Deportes y Recreación de Coto Brus deberá ser identificado por el Departamento de encargado mediante un sistema de rotulado (sistema se seguridad con número consecutivo), utilizando para ello placa.

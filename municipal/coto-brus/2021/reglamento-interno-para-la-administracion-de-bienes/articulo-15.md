@@ -1,0 +1,1 @@
+Artículo 15.-Salvedad de Responsabilidad: No serán responsables por el deterioro normal del activo ni tampoco aquellos activos nuevos que se compraron y resultaron defectuoso de fábrica o los que se dañaron y se logra demostrar que no hubo culpa por parte del funcionario.

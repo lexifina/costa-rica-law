@@ -1,0 +1,1 @@
+Artículo 49.-Movilización sin autorización: Queda prohibido a los funcionarios tomar bienes para ser movilizados sin permiso del empleado a quien están asignados y sin haber confeccionado antes el formulario de "Movimiento de Activos".

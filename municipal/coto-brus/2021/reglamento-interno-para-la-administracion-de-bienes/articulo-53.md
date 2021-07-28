@@ -1,0 +1,1 @@
+Artículo 53.-Salida de activos: Cuando los bienes deban salir temporalmente de las instalaciones del Comité Cantonal de Deportes y Recreación de Coto Brus para ser objeto de reparación, la junta directiva coordinará la respectiva salida, para lo cual deberá llenar el formulario "Movimiento de Activo".

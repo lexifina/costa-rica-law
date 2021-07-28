@@ -1,0 +1,1 @@
+Artículo 35.-Identificación de Activos: La junta directiva es la encargada de identificar el mobiliario y el equipo con un número de placa (adhesiva, metálica o grabada, según sea el caso), en orden consecutivo, y con un número único de placa para aquellos activos que tengan varios componentes (equipos de computación, cámaras fotográficas, y otros).

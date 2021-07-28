@@ -1,0 +1,1 @@
+Artículo 31.-Reasignación de Activos: En el caso de activos que no estén en uso, el funcionario lo comunicará al jefe inmediato para su respectiva reasignación o comunicará en forma escrita a la junta directiva para que tome las acciones del caso.

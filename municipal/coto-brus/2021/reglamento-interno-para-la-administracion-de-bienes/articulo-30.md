@@ -1,0 +1,1 @@
+Artículo 30.-Mecanismos de Control: Cada jefe implantará los mecanismos necesarios a fin de que pueda tener su propio control sobre el equipo y hacer las observaciones que considere pertinentes al informe anual que enviará la junta directiva.

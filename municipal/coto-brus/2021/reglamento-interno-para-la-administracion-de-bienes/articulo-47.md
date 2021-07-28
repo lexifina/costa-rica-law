@@ -1,0 +1,1 @@
+Artículo 47.-Inscripción: La junta directiva coordinará el trámite para el registro, ante los distintos organismos, de aquellos activos que por sus características requieran ser inscritos. Lo anterior antes de la asignación de los mismos.

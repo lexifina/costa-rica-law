@@ -1,0 +1,1 @@
+Artículo 50.-Proceso sancionatorio: Las diferentes jefaturas tendrán potestad para coordinar e iniciar Proceso Sancionatorio hacia los empleados a los que se les compruebe el haber incurrido en alguna de las faltas a las que hace mención los artículos anteriores.

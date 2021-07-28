@@ -1,0 +1,1 @@
+Artículo 5°-Ambito de aplicación. Las disposiciones contenidas en este Reglamento son de aplicación obligatoria para todos los funcionarios (as) del Comité cantonal de Deportes y Recreación de Coto Brus en el desempeño de sus actividades y en especial de aquellos que custodien o usen bienes de la institución.
