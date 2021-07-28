@@ -1,0 +1,1 @@
+Artículo 23.-Valoración de la prueba. Para la valoración de la prueba deberá darse preeminencia a la aplicación de los principios de la integridad de la prueba, sana crítica, inmediatez y objetividad, atendiendo además los principios generales del debido proceso y especiales que rigen en materia de hostigamiento sexual señalados en este reglamento.

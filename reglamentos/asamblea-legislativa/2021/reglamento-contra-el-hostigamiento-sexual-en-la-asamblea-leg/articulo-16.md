@@ -1,0 +1,3 @@
+Artículo 16.-De la Comisión Especial encargada de conocer la denuncia de hostigamiento sexual. Esta comisión deberá estar conformada por cinco diputaciones con paridad de género.
+Deberán nombrar una Presidencia y una Secretaría según lo establecido en el Reglamento de la Asamblea Legislativa.
+El Directorio de la Asamblea Legislativa deberá tomar las previsiones administrativas necesarias para que en todo momento la Comisión sea asesorada por al menos un profesional en Derecho con conocimiento en materia de hostigamiento sexual y régimen disciplinario del Departamento Legal de la Asamblea Legislativa.

@@ -1,0 +1,1 @@
+Artículo 27.-Notificación de lo resuelto. Del acuerdo tomado por el Plenario Legislativo, se deberá notificar a las partes, en el lugar señalado para tales efectos, procurando siempre atender al principio de confidencialidad.

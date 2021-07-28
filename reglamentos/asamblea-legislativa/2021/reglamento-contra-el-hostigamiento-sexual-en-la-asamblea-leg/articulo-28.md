@@ -1,0 +1,2 @@
+Artículo 28.-Fase recursiva. Contra lo acordado por el Plenario Legislativo, podrá plantearse recurso de revisión, en los términos dispuestos en el numeral 155 del Reglamento de la Asamblea Legislativa. En este caso, las diputaciones firmantes, podrán hacer uso de la palabra por un plazo que, de manera individual o conjunta, no exceda de 15 minutos.
+Adicionalmente, otro diputado, diputada o diputados podrán hacer uso de la palabra para manifestarse en contra, que individual o de manera conjunta, no exceda el mismo tiempo otorgado al proponente de la revisión.

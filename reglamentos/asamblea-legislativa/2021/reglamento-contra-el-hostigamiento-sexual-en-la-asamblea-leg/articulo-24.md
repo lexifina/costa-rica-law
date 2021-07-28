@@ -1,0 +1,1 @@
+Artículo 24.-Del informe de la Comisión Especial encargada de conocer la denuncia de hostigamiento sexual. En el plazo máximo de ocho días hábiles, después de recibidos los alegatos finales, la Comisión Especial rendirá su informe con la recomendación respectiva por escrito, atendiendo a lo dispuesto en los numerales 81, 81 bis, 82 y 131 del Reglamento de la Asamblea Legislativa.

@@ -1,0 +1,1 @@
+Artículo 9º-La persona denunciante dentro del proceso. La persona denunciante se considera parte del proceso de conformidad con los lineamientos establecidos en este reglamento, con todos los derechos inherentes a tal condición.

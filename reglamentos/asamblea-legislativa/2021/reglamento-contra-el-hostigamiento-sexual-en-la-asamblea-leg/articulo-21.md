@@ -1,0 +1,1 @@
+Artículo 21.-Audiencia sobre la contestación de la denuncia. Una vez contestada la denuncia, la Presidencia de la Comisión Especial otorgará un plazo de tres días hábiles sobre la misma y la prueba ofrecida, a la persona denunciante para que realice las manifestaciones por escrito que estime correspondientes.

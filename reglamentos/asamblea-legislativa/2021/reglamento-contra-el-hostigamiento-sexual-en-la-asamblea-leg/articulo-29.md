@@ -1,0 +1,1 @@
+Artículo 29.-De los diputados y diputadas denunciados que dejen de tener tal condición durante el procedimiento. En caso de que el diputado o diputada denunciada dejare de tener esa condición durante el procedimiento, la Comisión Especial podrá rendir de manera anticipada el informe de recomendación al Plenario Legislativo, indicando las recomendaciones correspondientes.

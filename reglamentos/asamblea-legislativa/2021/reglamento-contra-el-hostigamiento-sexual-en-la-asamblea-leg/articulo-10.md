@@ -1,0 +1,1 @@
+Artículo 10.-De los derechos de las partes procesales. Las partes procesales tendrán derecho a contar con representación legal y con el apoyo emocional o psicológico de su confianza, durante todas las fases del procedimiento.

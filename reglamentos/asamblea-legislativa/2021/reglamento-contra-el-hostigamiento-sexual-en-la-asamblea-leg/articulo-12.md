@@ -1,0 +1,1 @@
+Artículo 12.-Prohibición de conciliación. La denuncia por acoso u hostigamiento sexual no admite conciliación por tratarse de relaciones de violencia, de poder y por aumentar los factores de riesgo y revictimización de la persona denunciante.

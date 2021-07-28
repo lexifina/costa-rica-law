@@ -1,0 +1,1 @@
+Artículo 11.-De las garantías para la persona denunciante y testigos durante el procedimiento. Ninguna persona que haya denunciado ser víctima de hostigamiento sexual o haya sido indicada como testigo, deberá tener perjuicio personal alguno en su empleo como consecuencia de su participación en este procedimiento.
