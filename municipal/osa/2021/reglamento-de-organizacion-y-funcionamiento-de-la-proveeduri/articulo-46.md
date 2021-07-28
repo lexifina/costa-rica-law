@@ -1,0 +1,7 @@
+SECCIÓN SÉTIMA
+Del precio y pago
+Artículo 46. -Precio: Los precios cotizados deberán ser firmes, definitivos e invariables durante el período de vigencia de la oferta; expresados en números y letras coincidentes. En caso de discrepancia, prevalecerá lo expresado en letras. Asimismo, de existir diferencia entre los montos unitarios y totales, prevalecerá el monto más bajo.
+Los precios podrán cotizarse en colones costarricenses o en la moneda definida en el cartel.
+Aquellos materiales que sean cotizados en contratos de obra, como materiales de importación y que posteriormente sean comprados en plaza, serán cancelados contra presentación de la factura del proveedor nacional. El monto a cancelar no deberá superar lo cotizado en moneda extranjera y no incluirá los impuestos que hubiesen correspondido a la nacionalización de este producto.
+Cuando los productos ofrecidos sean de importación y el oferente sea una firma domiciliada fuera del territorio nacional, el cartel o términos de referencia establecerá los incoterms que permitan determinar los elementos que componen el precio, por lo que será obligatorio para todo oferente cotizar en la forma solicitada, en caso de omisión, la Administración procederá a descalificar la oferta.
+Tratándose de productos en plaza, la oferta deberá indicar siempre el precio y la naturaleza de los impuestos que la afectan. Su omisión tendrá por incluido en el precio cotizado los impuestos que lo gravan.

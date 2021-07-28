@@ -1,0 +1,22 @@
+Artículo 8-Funciones. Constituyen funciones de la Proveeduría:
+a) En el primer mes del año, elaborar y publicar en el Diario Oficial La Gaceta, el programa de adquisiciones integrado y sus modificaciones, de acuerdo con lo dispuesto en los artículos 6° de la LCA, y 7° del RLCA.
+b) Elaborar los respectivos carteles o pliegos de condiciones para todos los procesos de contratación administrativa promovidos por la Municipalidad y de conformidad con las especificaciones técnicas solicitadas.
+c) Solicitar mediante la plataforma de SICOP a los miembros de la Comisión Municipal de Contratación Administrativa, los avales o criterios necesarios para llevar a cabo los procesos promovidos en forma oportuna y con toda la documentación ateniente al proceso.
+f) Ejecutar todos los trámites correspondientes y oportunos para la adquisición de bienes y/o servicios que requiera la Institución para el normal desempeño de sus funciones, así como la venta y arrendamiento de los mismos, de conformidad con lo establecido en la normativa vigente.
+g) Velar porque los proveedores se ajusten a la calidad, cantidad, precio, tiempo de entrega y demás condiciones adjudicadas por la Municipalidad.
+h) Atender todas las aclaraciones, consultas y recursos planteados por los potenciales oferentes, participantes de un proceso de contratación, del Concejo Municipal, Alcalde Municipal, Contraloría General de la República y otros debidamente acreditados, en los procesos promovidos por la Municipalidad, en tiempo y en forma oportuna.
+i) Atender consultas que le formulen las diversas personas públicas o privadas relacionadas con la adquisición de bienes y servicios y demás establecidas en el presente Reglamento
+j) Tramitar y atender las consultas relativas a las solicitudes de refrendo del ente contralor, cuando los procedimientos lo ameriten, de conformidad con la legislación vigente.
+k) Coordinar la capacitación que se requiera para que los funcionarios municipales y los miembros de la Comisión de Licitaciones dispongan del conocimiento para ejercer adecuadamente sus funciones.
+l) Administrar y supervisar de manera eficiente y eficaz los procesos de licitaciones abreviadas, así como las públicas nacionales, remate, contratación directa y excepciones de ley en contratación desde el ingreso de la solicitud de trámite (decisión inicial) al Departamento, confección de la orden de compra, hasta el finiquito de la obra o entrega del bien y/o servicio.
+m) Administrar el proceso para la liberación o ejecución de garantías de participación y de cumplimiento.
+n) Efectuar los trámites de exoneración, importación y desalmacenaje de los materiales y suministros importados.
+o) Emitir la recomendación de adjudicación, declaratoria de desierto o infructuoso en los procedimientos de contratación administrativa, de conformidad con el Reglamento que rige esta materia.
+p) Preparar para la firma de la Alcaldía, las solicitudes ante la CGR para la autorización de contrataciones directas o para promover un proceso de contratación sin contar con el contenido presupuestario correspondiente y todos aquellos oficios o solicitudes relacionados con los procedimientos de compra con trámite interno con CGR
+r) Coordinar lo pertinente con las otras unidades administrativas internas, cuando así lo requiera, para que se tomen las acciones apropiadas que en derecho correspondan, observándose en tal caso, las normas y trámites del debido proceso, en situaciones tales como incumplimientos por parte de los contratistas, resoluciones o modificaciones contractuales, ejecución de garantías, sanciones administrativas, reclamaciones de orden civil o penal.
+s) Analizar las ofertas recibidas y aplicar los parámetros de evaluación correspondientes.
+t) Emitir el documento de ejecución presupuestaria denominado orden de compra.
+u) La Proveeduría deberá actualizar y utilizar el Manual de Procedimientos y su personal se ajustará en forma rigurosa a las disposiciones que contenga dicho manual.
+Esta misma función se aplica para la Bodega Municipal, en cuanto a la aplicación del manual correspondiente a esa dependencia.
+v) Incluir en el Sistema Integrado de la Actividad Contractual (SIAC) de la CGR, toda la información referente a los diferentes procedimientos de contratación administrativa que realiza la municipalidad en la forma y plazos establecidos, para lo cual deberá de contar con los recursos necesarios en equipo especializado y personal debidamente capacitado
+w) Cualquier otra función que se le asigne de conformidad con la legislación vigente.

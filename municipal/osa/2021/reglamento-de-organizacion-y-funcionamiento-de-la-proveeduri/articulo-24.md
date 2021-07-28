@@ -1,0 +1,1 @@
+Artículo 24. -Recepción y apertura de ofertas: Las ofertas deberán presentarse mediante el sistema de SICOP en la fecha y hora señaladas en el cartel para la recepción y apertura. Deberá estar acompañada de los demás documentos y atestados solicitados por el cartel respectivo.

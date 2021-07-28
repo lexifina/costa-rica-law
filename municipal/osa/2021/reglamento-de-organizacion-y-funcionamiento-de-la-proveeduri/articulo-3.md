@@ -1,0 +1,1 @@
+Artículo 3º-Régimen jurídico aplicable: Las actividades de contratación administrativa aquí indicada, se rigen por las normas y principios del ordenamiento jurídico administrativo vigentes y de conformidad con el artículo 2 del Reglamento a la Ley de Contratación Administrativa.

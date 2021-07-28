@@ -1,0 +1,1 @@
+Artículo 2º-Cobertura: Las presentes disposiciones regulan la organización, funcionamiento, responsabilidades, obligaciones y procedimientos a observarse en la Proveeduría Municipal y su relación con otras dependencias, organizaciones adscritas a la Municipalidad y organizaciones comunales, en materia de contratación administrativa.

@@ -1,0 +1,1 @@
+Artículo 6. - Del uso de medio electrónico: Que de conformidad con la reforma de la Ley de Contratación Administrativa y su reglamento todas las etapas del procedimiento de Contratación administrativa únicamente se realizasen mediante la plataforma de SICOP.
