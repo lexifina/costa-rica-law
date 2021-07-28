@@ -1,0 +1,1 @@
+Artículo 19.-Informe de cierre. El enlace técnico, deberán rendir un informe técnico respecto a la ejecución del objeto convenido en donación, emitiendo la debida recomendación no vinculante para que así el/la Jerarca emita el acto de cierre.

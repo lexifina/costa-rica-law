@@ -1,0 +1,4 @@
+Artículo 15.-Elaboración del convenio. Corresponderá a la Dirección de Asuntos Jurídicos la redacción del convenio de donación de servicios, para lo cual el enlace técnico deberá remitir la información que conste en el expediente administrativo levantado al efecto. El Convenio deberá al menos señalar lo siguiente:
+a. Establecer el objeto del convenio. Las razones del por qué y para qué se pretende llevar a cabo el convenio para la donación. El objeto debe ser lícito, posible y determinado.
+b. Individualizar los compromisos y obligaciones que asumirán las partes, así como en caso de que se involucre recurso humano institucional o material, deberá verificarse la disponibilidad de éste.
+En caso de que la donación, sea resultado de un convenio de cooperación en ejecución, se deberá en lo no dispuesto a formalizar la donación a través de un anexo al mismo, en el que se detallará lo aquí previsto, en lo que sea aplicable.

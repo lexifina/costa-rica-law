@@ -1,0 +1,1 @@
+Artículo 11.-Designación de Enlace Técnico. El Jerarca designará un enlace técnico, que será la/las persona o personas que fungirán como representante de la Unidad Técnica institucional beneficiaria de la cooperación y deberá velar por la correcta coordinación, seguimiento, control y rendición de informes.

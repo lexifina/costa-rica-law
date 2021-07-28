@@ -1,0 +1,3 @@
+Artículo 8°-De la intención de donación. El ofrecimiento respectivo deberá cumplir con los siguientes requisitos, los cuales serán verificados por la Dirección Jurídica:
+a) Carta de intención de donación emitido como declaración jurada por parte del Donante o proyecto de cooperación, según corresponda, donde se acredite la intención de donar, procedencia, las características, condiciones, funcionalidades y costo, exacto o aproximado, del bien material o inmaterial o servicio por donar.
+b) Cuando se trate de bienes susceptibles de registro deberán aportarse los documentos pertinentes o en su defecto propiciar las facilidades al donatario para realizar la constatación por su cuenta.

@@ -1,0 +1,1 @@
+Artículo 13.-Impacto en la gestión institucional. Corresponderá al enlace técnico y la Dirección de Planificación, emitir los dictámenes respecto al beneficio e impacto de la donación de bienes y servicios en la gestión institucional. Asimismo certificar que la cooperación técnica compromete o no el uso y disposición de recursos públicos o patrimoniales de la institución.
