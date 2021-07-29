@@ -1,6 +1,5 @@
-(Derogado)
 CIRCULAR No. 162-2018
-(Esta norma se dejó sin efecto por circular N° 133-2021 del 31 de mayo del 2021)
+(Nota de Sinalevi: Mediante circular N° 172 del 29 de julio de 2021, se acordó mantener la vigencia de la presente norma.)
 Asunto: Reiteración de la circular N° 177-15 sobre "Procedimiento para la Grabación de las Audiencias Orales y Actos de Investigación".-
 A LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:

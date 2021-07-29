@@ -14,3 +14,4 @@ Reiteración de la circular N° 177-15 sobre “Procedimiento para la Grabación
 | --- | --- | --- |
 | 1 | 2018-11-21 | la propia norma |
 | 2 | 2021-05-31 | Circular 133 (2021-05-31) |
+| 3 | 2021-07-29 | Circular 172 (2021-07-29) |
