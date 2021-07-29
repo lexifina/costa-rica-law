@@ -1,1 +1,2 @@
-Artículo 29.—El presente reglamento deroga el anterior aprobado en asamblea general del colegio el 17 de octubre de 1998, reformado el 15 de mayo del 2003, sin perjuicio de los derechos adquiridos con base en este último y rige a partir de su publicación en el diario Oficial La Gaceta.
+Artículo 29.-El presente reglamento deroga el anterior aprobado según Acta número 79-2017 de Asamblea General Extraordinaria, celebrada el 10 de agosto de 2017 y publicado en Diario Oficial La Gaceta número 212 de fecha 01 de setiembre de 2017, y cualquier otra disposición que se le oponga, sin perjuicio de los derechos adquiridos con base en este último y rige a partir de su publicación en el Diario Oficial La Gaceta.
+(Así reformado mediante sesión N° 91-2021 del 29 de julio del 2021)
