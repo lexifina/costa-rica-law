@@ -1,0 +1,2 @@
+Artículo 26: El presente reglamento deroga el anterior aprobado según Acta número 79-2017 de Asamblea General Extraordinaria, celebrada el 10 de agosto de 2017 y publicado en Diario Oficial La Gaceta número 212 de fecha 01 de setiembre de 2017, y cualquier otra disposición que se le oponga, sin perjuicio de los derechos adquiridos con base en este último y rige a partir de su publicación en el Diario Oficial La Gaceta.
+(Así adicionado mediante sesión N° 91-2021 del 29 de julio del 2021)

@@ -16,3 +16,4 @@ Reglamento del fondo de retiro odontológico
 | 1 | 2004-11-23 | la propia norma |
 | 2 | 2014-07-10 | Reglamento 65 (2014-07-10) |
 | 3 | 2017-08-10 | Reglamento 79 (2017-08-10) |
+| 4 | 2021-07-29 | Reglamento 91 (2021-07-29) |
