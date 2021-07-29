@@ -14,3 +14,4 @@ Medidas para control y reducción del gasto público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-12 | la propia norma |
+| 2 | 2021-07-29 | Decreto Ejecutivo 43144 (2021-07-29) |
