@@ -1,1 +1,2 @@
-Artículo 14.—Plazo para presentar el PGAI. Las instituciones de la Administración Pública presentarán sus PGAI dentro del plazo de 6 meses, a partir de la publicación de la resolución administrativa que oficializa los instrumentos, según lo indicado en el artículo 9 del presente reglamento.
+Artículo 14.-Plazos para presentar el PGAI. Las instituciones de la Administración Pública presentarán sus PGAI dentro del plazo de 2 meses, contados a partir de la publicación del presente reglamento, de no hacerlo se considerará que se encuentran en incumplimiento de la legislación ambiental vigente, cuya falta será imputable al jerarca institucional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43209 del 29 de julio del 2021)

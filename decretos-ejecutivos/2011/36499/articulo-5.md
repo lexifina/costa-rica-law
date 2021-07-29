@@ -1,10 +1,12 @@
-Artículo 5º—Funciones de la CTE: Esta Comisión tendrá las siguientes funciones:
-a) Proponer acciones concretas para dar seguimiento y control a la ejecución de los PGAI.
-b) Establecer mecanismos estratégicos de mejora continua para el proceso de gestión ambiental institucional.
-c) Asesorar y capacitar a los Comités Institucionales que lo requieran sobre los elementos de la política de gestión de calidad ambiental institucional y en la elaboración e implementación de los PGAI.
-d) Coordinar, cuando se considere necesario, con otras instituciones aspectos técnicos y administrativos que fortalezcan una mejor implementación y seguimiento del PGAI.
-e) Establecer un sistema de indicadores que permita medir el grado de avance en la implementación de los PGAI y reportar resultados globales en el sector público.
-f) Elaborar un informe anual de presentación e implementación de los PGAI, en donde se categorice el nivel de avance de cada organización con respecto a la implementación de su PGAI, señalando aquellas con destacado desempeño ambiental, así como aquellas que se encuentren incumpliendo con lo establecido en el presente reglamento. Dicho informe será remitido al Ministro del MINAET, quien a su vez lo hará de conocimiento del Consejo de Gobierno.
-g) Realizar reuniones de verificación y coordinación a los programas de gestión ambiental institucional.
-h) Promover mecanismos de premiación y/o reconocimiento para aquellas instituciones que demuestren un destacado desempeño ambiental.
-i) Emitir recomendaciones técnicas a los PGAI e informes de avance presentados, con el fin de lograr un mejor desempeño ambiental.
+Artículo 5º-Funciones de la CT. Serán funciones de la CT las siguientes:
+a) Capacitar cuando corresponda al personal del Ministerio de Salud y del Ministerio de Ambiente y Energía que apoyará la revisión y el seguimiento de los PGAI; lo anterior en apego a las competencias y rectorías de cada institución que integra la CT.
+b) Elaborar, aprobar y dar a conocer el reglamento interno de la CT, sus reformas, los procedimientos y herramientas para la elaboración y seguimiento de los PGAI, así como garantizar su implementación.
+c) Elaborar las recomendaciones para el mejoramiento de los PGAI o Informes de Avance, en los temas de eficiencia energética, manejo de residuos sólidos, manejo de aguas residuales y cambio climático. Para el cumplimiento de esta función, la CT podrá apoyarse en el personal del MINAE y MS.
+d) Asesorar y capacitar a las Comisiones Ambientales Institucionales que lo requieran, sobre aspectos relacionados con la elaboración e implementación de los PGAI.
+e) Configurar e implementar un sistema de reporte de consumos (energía eléctrica, agua, combustibles y papel), además la generación de residuos (ordinarios, peligrosos y especiales), que permitan verificar el resultado de la implementación de las medidas ambientales propuestas en los PGAI y reportar resultados globales en el sector público.
+f) Brindar anualmente una oferta de capacitación, para contribuir con la ejecución efectiva de los PGAI en todas las instituciones de la Administración Pública. g) Definir y aplicar mecanismos de muestreo, para verificar el cumplimiento de la implementación de los PGAI del Sector Público que considere oportunos. Incluidas las visitas de seguimiento a las instituciones y las reuniones no presenciales.
+h) Proponer y ejecutar mecanismos de calificación sobre el cumplimiento del PGAI para las instituciones públicas, de tal forma que se promueva la transparencia, rendición de cuentas y la excelencia ambiental. Reconociendo aquellas instituciones que demuestren un destacado desempeño ambiental.
+i) Elaborar un informe anual de presentación e implementación de los PGAI, de las instituciones a las que se les brindó seguimiento. Dicho informe será remitido al jerarca del MINAE, quien a su vez lo hará de conocimiento del Consejo de Gobierno y la Contraloría General de la República.
+j) Apoyar el establecimiento de mecanismos estratégicos de mejora continua, para el proceso de gestión ambiental institucional.
+k) Cualquier otra función que en virtud de la aplicación y cumplimiento del presente reglamento corresponda.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43209 del 29 de julio del 2021)

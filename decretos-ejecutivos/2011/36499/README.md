@@ -14,3 +14,4 @@ Reglamento para la Elaboración de Programas de Gestión Ambiental Institucional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-09 | la propia norma |
+| 2 | 2021-07-29 | Decreto Ejecutivo 43209 (2021-07-29) |
