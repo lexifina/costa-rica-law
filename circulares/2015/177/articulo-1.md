@@ -1,6 +1,5 @@
-(Derogado)
 CIRCULAR N° 177-2015
-(Esta norma se dejó sin efecto por circular N° 133-2021 del 31 de mayo del 2021)
+(Nota de Sinalevi: Mediante circular N° 172 del 29 de julio de 2021, se acordó mantener la vigencia de la presente norma.)
 (Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 225 del 26 de noviembre de 2015, y publicada en el Boletín Judicial N° 15 del 22 de enero de 2016)
 (Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 162-2018 del 21 de noviembre del 2018 y publicada en el Boletín Judicial N° 10 del 15 de enero del 2019)
 Asunto: Reiteración de la circular N° 198-2013 "Procedimiento para la Grabación de las Audiencias Orales y Actos de Investigación"-
