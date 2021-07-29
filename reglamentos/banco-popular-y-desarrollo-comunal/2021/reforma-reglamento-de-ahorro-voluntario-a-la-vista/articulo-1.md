@@ -1,0 +1,43 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+DIVISION DE CONTRATACIÓN ADMINISTRATIVA
+La Junta Directiva Nacional en Sesión Ordinaria N° 5842, celebrada el 12 de julio del 2021 mediante acuerdo N° 573, acuerda por unanimidad aprobar la modificación a los artículos 1, 3, 4, 5, 7, 9, 10, 12, 14, 17 y 20 del Reglamento de Ahorro Voluntario a la Vista del Banco Popular y de Desarrollo Comunal, para que se lea de la siguiente manera:
+"1°-Aprobar la modificación a los artículos 1, 3, 4, 5, 7, 9, 10, 12, 14, 17 y 20 del Reglamento de Ahorro Voluntario a la Vista del Banco Popular y de Desarrollo Comunal, la cual cuenta con el aval de la Dirección Jurídica mediante el oficio DIRJ-1090, en los siguientes términos:
+Artículo 1°-Definición. El Ahorro Voluntario a la Vista es aquel que se realiza voluntariamente en colones o cualquier otra moneda que el Banco Popular y de Desarrollo Comunal -en adelante el Banco- determine y que puede retirarse, todo o en parte, en cualquier momento, sin previo aviso, sin perjuicio de lo que indique el artículo 9 del presente Reglamento.
+El Banco podrá diseñar diferentes modalidades de ahorro a la vista, según las necesidades del mercado, además de establecer condiciones específicas sin contrariar el objetivo principal de las cuentas a la vista dispuesto en el primer párrafo de este artículo.
+Artículo 3°-Menores y personas con discapacidad. Los menores de edad y personas con discapacidad para actuar por sí mismas, podrán abrir una cuenta de ahorro a la vista y realizar diferentes tramites en ventanilla por medio de quien los represente o el tutor. Los menores de edad podrán efectuar retiros o transferencias entre sus cuentas mediante cajero automático, realizar compras en comercios afiliados o comprar en línea, según las condiciones establecidas en el contrato respectivo, en lo referente al uso de la tarjeta de débito, en cuyo caso sus representantes o tutores se harán responsables por el uso que realice el menor, liberando al Banco de cualquier responsabilidad.
+Artículo 4°-Apertura de cuenta. El Banco podrá abrir cuentas de ahorro a la vista a personas físicas y jurídicas por medio de los canales que este determine.
+Los interesados podrán realizar personalmente la apertura de la (s) cuenta (s) de ahorro, o en su defecto, quien ostente una autorización, según las disposiciones legales.
+La cuenta se abrirá previa verificación de los documentos que identifiquen al ahorrante a satisfacción del Banco, además la persona ahorrante deberá cumplir con los requisitos relacionados con las disposiciones de vinculación a la entidad vigentes.
+La persona ahorrante podrá abrir la cantidad de cuentas que el Banco establezca.
+Artículo 5°-Monto de apertura.
+La Gerencia General Corporativa podrá establecer un monto para la apertura de alguna de las modalidades de ahorro voluntario a la vista ya sea para personas físicas o jurídicas.
+Artículo 7°-Depósitos. El Banco emitirá un comprobante por la transacción realizada para acreditar a la cuenta de ahorro voluntario a la vista por cualquiera de los canales disponibles y para cualquier tipo de depósito (efectivo, cheque, transferencias internas o por SINPE).
+El Banco no asume responsabilidad por los errores cometidos por el depositante en la indicación del número de cuenta a la que se realizan los depósitos.
+Artículo 9°-Retiros. El retiro de los ahorros lo realizara personalmente el titular de la cuenta o la persona o personas autorizadas. En caso de menores de edad el retiro lo podrá realiza mediante quienes les representen), previa presentación de los requisitos o formularios exigidos por el Banco y del documento que le identifique a satisfacción del Banco.
+También podrá retirar por medio de la tarjeta de débito en el cajero automático, o por cualquier otro medio electrónico que el Banco implemente.
+En caso de retiros por montos iguales o superiores al equivalente de 10.000,00 dólares de los E.E.U.U., según el tipo de cambio que al efecto el Banco determine, el Banco podrá reintegrar el ahorro y sus intereses mediante cheque.
+Artículo 10.-Pago de intereses. El cálculo de intereses se realiza en forma diaria, sobre el saldo disponible al final del día, a partir de los saldos mínimos establecidos según cada tipo de producto. El período de cálculo corresponde al mes calendario (del último día del mes anterior, hasta el penúltimo día del mes presente), el pago de los intereses se realiza el último día del mes. Existen dos metodologías para el cálculo de intereses, la Administración definirá la metodología de cálculo de intereses para cada tipo de producto.
+Metodologías de cálculo:
+Por BANDAS distribuye el saldo en los diferentes rangos establecidos, el cual permite pagar la tasa de interés definida para el rango en el cual se encuentra el tracto respectivo del saldo de la cuenta.
+Por NIVEL reconoce la tasa de interés de acuerdo con el nivel que se encuentra el saldo total de la cuenta.
+La Junta Directiva Nacional dictará los rangos de la tasa de interés que se reconocerá al ahorro voluntario a la vista, según la propuesta que para esos efectos le presente la Gerencia General Corporativa.
+La Gerencia General Corporativa podrá modificar dentro de los rangos autorizados por la Junta Directiva Nacional la Tasa de interés para cualquier producto de ahorro voluntario a la vista en cualquier momento, previo aviso a los ahorrantes.
+Al momento de la apertura de una cuenta de ahorro voluntario a la vista, se le indicara al cliente la tasa de interés vigente y la forma en que se puede modificar.
+Artículo 12.-De los depósitos de salarios y pensiones en cuentas de ahorro. El Banco utilizará las cuentas transaccionales como medio para el depósito de salarios y pensiones. Para ello, el patrono o la entidad administradora de pensiones enviarán las planillas o las aplicarán, indicando el monto que corresponde pagarle a cada interesado.
+Artículo 14.-De las correcciones de registros en cuentas de ahorros. El Banco podrá modificar las transacciones efectuadas a una cuenta de ahorro voluntario a la vista cuando por error comprobado se haya efectuado por un monto distinto al indicado por la persona ahorrante, siempre y cuando cuente con la debida justificación.
+Además, el Banco podrá, previo estudio, bloquear, desbloquear, diferir o debitar el monto acreditado por error, en los siguientes casos:
+a) Cuando se efectué un depósito y el depositante indique en forma errónea el número de cuenta.
+b) Cuando el funcionario aplique por error el depósito a una cuenta diferente a la indicada por el depositante.
+c) Cuando el funcionario, por error, aplique un monto superior al depositado por la persona ahorrante.
+d) En otros casos especiales, debidamente justificados por el Banco.
+En caso de que el cliente haya hecho uso del dinero depositado por error, el Banco le notificara al cliente y éste tendrá un plazo de tres días hábiles para proceder a la devolución de dicho monto. Si el cliente se niega a devolver las sumas depositadas erróneamente o no realiza el reintegro del monto, en el plazo otorgado, se procederá a presentar las denuncias penales correspondientes y podrá cerrar la cuenta.
+Artículo 17.-Inactivación y cancelación administrativa. El Banco podrá inactivar la cuenta de ahorro voluntario a la vista cuando haya transcurrido un periodo igual o mayor a 6 meses sin transacciones, sin obligación de aviso por parte del Banco.
+El Banco podrá cancelar o bloquear la cuenta de ahorro:
+1. Dando aviso con tres días hábiles de antelación en los siguientes casos:
+a) Si durante un período de al menos un año la cuenta mantiene un saldo mínimo de $10.
+b) Si el cliente se niega a suministrar información que el Banco deba recabar en cumplimiento de la Ley.
+2. Sin previo aviso, cuando el ahorrante o su legítimo apoderado hiciese un uso indebido de la cuenta, se podrá bloquear al cliente y sus cuentas, lo cual de previo deberá ser debidamente justificado.
+3. A voluntad del ahorrante.
+4. Por fallecimiento del titular, previo cotejo con el Tribunal Supremo de Elecciones u otro documento idóneo.
+Artículo 20.-Tarifas y comisiones. El Banco definirá tarifas o comisiones por concepto de servicios brindados relacionados con las cuentas de ahorro voluntario a la vista, las cuales estarán definidas en el apartado de Ahorro voluntario del Reglamento de Tarifas y Condiciones para los productos y servicios del Banco Popular y de Desarrollo Comunal.
+En el evento de que las tarifas sean modificadas, el Banco notificará a los clientes por el medio que considere más eficiente, como medios físicos, en las ventanillas de las oficinas del Banco, a través de la página web u otros canales o medios que el Banco defina.
