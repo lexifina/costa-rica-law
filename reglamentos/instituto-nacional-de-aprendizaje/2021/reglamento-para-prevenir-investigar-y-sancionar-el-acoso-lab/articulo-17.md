@@ -1,0 +1,2 @@
+Artículo 17.-Pruebas y valoración. En las causas por acoso laboral, serán admisibles todas las pruebas que admite el derecho común. Cuando el órgano director del procedimiento lo estime procedente, podrá solicitar incluso dictámenes periciales sobre el perfil de la víctima o de la persona denunciada.
+El órgano director valorará la totalidad de las pruebas evacuadas en el procedimiento, de acuerdo con las reglas de la lógica, la experiencia y la sana crítica, según la rigurosidad que el caso amerita, a fin de acreditar la certeza de los hechos denunciados.

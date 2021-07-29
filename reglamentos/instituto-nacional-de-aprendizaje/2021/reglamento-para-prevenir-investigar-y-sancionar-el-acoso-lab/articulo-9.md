@@ -1,0 +1,2 @@
+Artículo 9°-Recepción de las denuncias. La persona que presuntamente sea víctima de acoso podrá interponer la denuncia correspondiente ante la Unidad de Recursos Humanos y los staff de Recursos Humanos en las Unidades Regionales, y la Junta de Relaciones Laborales.
+Quienes reciban la denuncia, están en la obligación de mantener estricta confidencialidad sobre lo ahí indicado, debiendo abstenerse de divulgar lo denunciado a terceras personas.

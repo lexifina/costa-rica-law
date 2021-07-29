@@ -1,0 +1,10 @@
+Artículo 3°-Definiciones. Para los efectos de este reglamento se entenderá por:
+1. Acoso laboral: toda conducta agresiva, agresivo-pasiva, abusiva, continua, sistemática, discriminatoria, deliberada y demostrable que ejerce una o varias personas en su lugar de trabajo, sobre otra u otras personas, independientemente de la existencia de una relación jerárquica y del puesto que ocupen con el fin de degradar sus condiciones de trabajo; destruir u obstaculizar sus redes de comunicación; poner en duda su buen nombre o reputación; perturbar el ejercicio de sus labores; generar miedo, intimidación o angustia; e inclusive, indicar el traslado o la renuncia del puesto
+2. Acoso laboral horizontal: Son todas aquellas acciones de acoso laboral que se ejecutan entre personas compañeras de trabajo que ocupan un nivel similar en la jerarquía organizacional.
+3. Acoso laboral vertical descendente: Son todas aquellas acciones de acoso laboral que se ejecutan parte de personas funcionarias que ocupan puestos de jerarquía o superioridad respecto de la víctima.
+4. Acoso laboral vertical ascendente: Son todas aquellas acciones de acoso laboral que se ejecutan por parte de personas que ocupan puestos subalternos respecto de jefe victimizado.
+5. Medidas complementarias: Conjunto de actividades dirigidas a tratar las causas y las consecuencias del acoso laboral una vez identificado.
+6. Persona denunciada: la persona contra quien se dirija una denuncia por presunto acoso laboral, vinculado a su relación de trabajo con el INA.
+7. Persona acosadora: la persona que sea objeto de una sanción por acoso laboral, en razón de que se acreditó la comisión de una o varias conductas de acoso laboral.
+8. Prevención: Conjunto de actividades o medidas adoptadas por la institución con el fin de evitar o disuadir, cualquier conducta o situación de acoso laboral.
+9. Víctima: es la persona que es objeto de la conducta constitutiva de acoso laboral, quien podría sentirse afectada en su salud integral y sufrir consecuencias en diversas áreas de su vida.

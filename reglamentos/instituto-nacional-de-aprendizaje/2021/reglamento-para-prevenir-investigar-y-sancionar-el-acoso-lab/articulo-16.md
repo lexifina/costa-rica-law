@@ -1,0 +1,1 @@
+Artículo 16.-La víctima como parte del procedimiento. La víctima será expresamente reconocida como parte del procedimiento y tendrá en tal condición, derecho a ser citada a todas las comparecencias, a ser notificada de todos los actos del procedimiento, y a hacer alegatos, conclusiones, ofrecer pruebas y procurar su evacuación.

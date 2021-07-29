@@ -1,0 +1,6 @@
+Artículo 7°-Estrategias. Para cumplir esa función, la URH podrá recurrir a los siguientes mecanismos:
+1. Estrategias de diagnóstico, con el fin de recopilar, ordenar e interpretar de forma objetiva y sistematizada, la información relativa al acoso laboral en el INA.
+2. Estrategias de divulgación y sensibilización con el fin de garantizar que las personas trabajadoras puedan acceder oportunamente a información que permita comprender, prevenir y abordar el acoso laboral y poner a disposición de las personas las herramientas necesarias para cumplir con estos objetivos.
+3. Charlas informativas dirigidas a sensibilizar e informar a las personas sobre el acoso laboral, sus consecuencias y formas de prevenirlo.
+4. Estrategias de formación y capacitación, dirigidas a promover el liderazgo y habilidades directivas de quienes ejerzan funciones de jefatura; las buenas relaciones personales, la vocación de servicio y en general, a contrarrestar cualquier deficiencia que pueda ser causa potencial de acoso laboral.
+5. Estrategias de asesoría y atención, dirigidos a atender situaciones o conductas particulares que sin previa denuncia, sugieran la existencia de conflictos que puedan desencadenar en situaciones de acoso laboral.

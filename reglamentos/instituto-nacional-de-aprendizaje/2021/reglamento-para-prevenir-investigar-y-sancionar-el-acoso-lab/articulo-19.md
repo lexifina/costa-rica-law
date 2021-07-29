@@ -1,0 +1,1 @@
+Artículo 19.-Garantías. La persona que haya planteado una denuncia por acoso laboral o quienes figuren como testigos en las etapas de investigación preliminar y del procedimiento administrativo, no podrán ser objeto de represalias por ese motivo, la violación a esta garantía será considerada falta grave.
