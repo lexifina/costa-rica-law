@@ -1,6 +1,6 @@
 (Suspendida)
 N° 42484-MOPT-S
-(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 43072 del 30 de junio del 2021, se acordó suspender esta norma durante el período comprendido del 1° de julio al 1° de agosto de 2021. Asismo por el artículo 3° del decreto ejecutivo antes referido, se establece que durante el período de suspensión los cantones y distritos en alerta naranja, así como la zona fronteriza se regirán por las medidas de restricción vehicular dispuestas en los Decretos Ejecutivos número 42253-MOPT-S del 24 de marzo de 2020 y 42295-MOPT-S del 11 de abril de 2020 o bien, la regulación específica emitada por el Poder Ejecutivo para dicha medida de restricción vehicular sanitaria.)
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 43143 del 30 de julio de 2021, se acordó suspender esta norma durante el período comprendido del 1° de agosto de 2021 al 1° de setiembre de 2021. Asismo por el artículo 3° del decreto ejecutivo antes referido, se establece que durante el período de suspensión los cantones y distritos en alerta naranja, así como la zona fronteriza se regirán por las medidas de restricción vehicular dispuestas en los Decretos Ejecutivos número 42253-MOPT-S del 24 de marzo de 2020 y 42295-MOPT-S del 11 de abril de 2020 o bien, la regulación específica emitada por el Poder Ejecutivo para dicha medida de restricción vehicular sanitaria.)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
 Y EL MINISTRO DE SALUD
