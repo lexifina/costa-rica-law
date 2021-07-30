@@ -1,0 +1,1 @@
+Artículo 2- La Política Nacional Contra la Trata de Personas 2020-2030, constituye el marco orientador de objetivos y acciones en materia de prevención y combate de los delitos de trata de personas, tráfico ilícito de migrantes y demás actividades conexas, para la programación, definición de programas y proyectos estratégicos de mediano y largo plazo.
