@@ -10,3 +10,4 @@ Artículo 2°:Apruébense los siguientes Egresos Ordinarios y Extraordinarios de
 (Así reformado por el artículo 3° de la ley N° 9970 del 12 de marzo del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 42919 del 7 de abril del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 42972 del 21 de abril del 2021)
+(Modificado por el artículo 1° del decreto ejecutivo N° 43018 del 13 de mayo del 2021)
