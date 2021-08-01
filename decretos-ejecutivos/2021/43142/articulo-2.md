@@ -1,0 +1,2 @@
+Artículo 2°.- El presente Decreto Ejecutivo rige a partir de las 00:00 horas del 1° de agosto de 2021.
+Dado en la Presidencia de la República, San José a los treinta días del mes de julio del año dos mil veintiuno.
