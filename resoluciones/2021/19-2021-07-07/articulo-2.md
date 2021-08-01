@@ -1,0 +1,1 @@
+Artículo 2º-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número RES-DGH-006-2021, del 09 de abril del 2021, publicada en La Gaceta número 73 del 16 de abril del 2021.
