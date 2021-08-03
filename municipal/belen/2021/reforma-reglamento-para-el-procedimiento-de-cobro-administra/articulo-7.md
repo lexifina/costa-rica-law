@@ -1,0 +1,2 @@
+Artículo 7º-Modifíquese el CAPÍTULO IV, para que se denomine Sujeto Pasivo y un artículo 41 que dirá:
+"Obligación del sujeto Pasivo. Será obligación de los sujetos pasivos comunicar su domicilio fiscal y el cambio de este, para lo cual la institución procederá a poner a disposición en la Unidad de Servicio al Cliente el formulario correspondiente. El cambio de domicilio fiscal no producirá efectos frente a la institución hasta que se cumpla con dicho deber de comunicación"
