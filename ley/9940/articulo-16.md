@@ -1,0 +1,2 @@
+ARTÍCULO 16- Formación superior. El Consejo Nacional de Educación Superior (Conesup) y el Consejo Nacional de Rectores (Conare) coordinarán la formulación de políticas y apoyos para la inclusión de personas con TEA, en la educación superior.
+Las universidades del país identificarán las características de las personas estudiantes con TEA y brindarán los apoyos necesarios para la inclusión yparticipación de esta población en los ámbitos académico y social.
