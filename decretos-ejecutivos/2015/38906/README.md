@@ -14,3 +14,4 @@ Reglamento a la Ley Nº 9274, “Reforma Integral de la Ley Nº 8634, Ley del Si
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-09 | la propia norma |
+| 2 | 2021-08-03 | Decreto Ejecutivo 43156 (2021-08-03) |
