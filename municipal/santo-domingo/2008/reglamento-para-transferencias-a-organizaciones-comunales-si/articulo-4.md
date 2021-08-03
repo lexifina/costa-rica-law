@@ -1,1 +1,0 @@
-Artículo 4º—Las organizaciones comunales que requieran de esta transacción por parte de la Municipalidad, deben estar inscritos ante el Concejo de Distrito y Secretaria del Concejo Municipal, así como estar al día con los atestados que la faculten para solicitar la transferencia.
