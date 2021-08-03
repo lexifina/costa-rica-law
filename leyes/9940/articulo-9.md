@@ -1,0 +1,2 @@
+ARTÍCULO 9- Estadísticas oficiales para el seguimiento y estudio del TEA La Caja Costarricense de Seguro Social (CCSS), con la colaboración del Consejo Nacional de Personas con Discapacidad (Conapdis), mantendrá actualizados datos e información estadística sobre población con TEA, de conformidad con sus potestades y atribuciones, dentro del marco tecnológico determinado por la CCSS.
+Dicha información servirá de base para la planificación de programas y servicios requeridos por esta población y las personas cuidadoras.

@@ -1,0 +1,2 @@
+ARTÍCULO 18- Acceso al empleo. El Ministerio de Trabajo y Seguridad Social (MTSS), en coordinación con el Instituto Nacional de Aprendizaje (INA) y el Consejo Nacional de Personas con Discapacidad(Conapdis) implementarán una estrategia de inserción laboral para promover el empleo de personas con TEA.
+Esta estrategia incluye apoyos para el desarrollo de autoempleo y emprendimientos a cargo de personas con TEA y sus familias.

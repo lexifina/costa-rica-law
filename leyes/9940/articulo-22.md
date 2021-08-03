@@ -1,0 +1,1 @@
+ARTÍCULO 22- Celebración del Día Nacional del TEA. Se define el 2 de abril de cada año Día Nacional del TEA, para que las instituciones y los entes públicos, las organizaciones, la empresa privada y los medios de comunicación desarrollen campañas educativas sobre los derechos de las personas con TEA para incentivar la inclusión plena.

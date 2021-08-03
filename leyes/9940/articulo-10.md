@@ -1,0 +1,2 @@
+ARTÍCULO 10- Capacitación. Para coadyuvar con la calidad y efectividad de la prestación de los servicios, la Caja Costarricense de Seguro Social (CCSS) y el Ministerio de Salud podrán incorporar, en los programas de capacitación y actualización de las personas funcionarias y familiares de personas con TEA, contenidos sobre el trastorno que permitan mejorar la comprensión de la condición de esta población y las personas cuidadoras.
+La CCSS podrá solicitar el apoyo a diferentes entidades y organizaciones no gubernamentales, para cumplir con ese objetivo.
