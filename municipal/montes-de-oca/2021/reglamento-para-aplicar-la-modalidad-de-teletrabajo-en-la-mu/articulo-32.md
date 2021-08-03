@@ -1,0 +1,1 @@
+Artículo 32.-Velar porque se mantenga el ambiente laboral adecuado, las retribuciones, oportunidades de desarrollo e integración social de las personas funcionarias que participan en la modalidad de teletrabajo.

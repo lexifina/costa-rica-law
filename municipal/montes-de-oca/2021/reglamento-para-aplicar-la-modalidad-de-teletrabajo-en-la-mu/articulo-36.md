@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Disposiciones finales
+Artículo 36.-Lo no contemplado en este reglamento. En caso de omisiones en materia laboral, técnica y administrativa en el presente reglamento, se aplicará la normativa establecida por ley o vía administrativa.

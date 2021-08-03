@@ -1,0 +1,1 @@
+Artículo 30.-Canalizar con el Departamento de Recursos Humanos, todos los aspectos y acciones de mejora relacionados con la modalidad de teletrabajo para garantizar el cumplimiento de los objetivos del programa.

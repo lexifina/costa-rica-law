@@ -1,0 +1,5 @@
+Artículo 18.-Derechos de la persona teletrabajadora. La persona funcionaria durante la ejecución de sus tareas bajo la modalidad de teletrabajo, tendrá los siguientes derechos:
+a. Mantiene los derechos y las obligaciones establecidos en el ordenamiento jurídico vigente que regula las relaciones de servicio en la Institución.
+b. Tiene derecho a la privacidad, por lo que las visitas de inspección al lugar de teletrabajo, deberá ser programadas e informadas con al menos un día de antelación a la persona teletrabajadora.
+c. Tiene el derecho a solicitar la restitución a su condición laboral habitual, para ello, deberá solicitarlo a la Jefatura de la Unidad para ser tramitado ante el DRH.
+d. Las personas teletrabajadoras están protegidos por la Póliza de Riesgos de Trabajo que tiene la municipalidad, siempre que se encuentren ejerciendo las labores propias de sus funciones teletrabajables, de acuerdo con lo establecido en el contrato de teletrabajo firmado. La aplicación de la póliza se realiza bajo la normativa establecida.

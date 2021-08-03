@@ -1,0 +1,1 @@
+Artículo 16.-Funciones de la Comisión Institucional de Teletrabajo. Deberá desarrollar sistemas de control, medición y evaluación del Programa de Teletrabajo Institucional, conforme a los criterios previamente establecidos, siendo obligación de la Municipalidad el remitir los resultados al equipo de coordinación técnica en los plazos y por los medios que esta establece.

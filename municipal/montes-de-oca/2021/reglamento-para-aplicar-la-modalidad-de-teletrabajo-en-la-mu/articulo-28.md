@@ -1,0 +1,1 @@
+Artículo 28.-Cuando se determine mediante el debido proceso, que las causas de incumplimiento o bajo desempeño de la persona teletrabajadora, son atribuibles a la jefatura, el Departamento de Recursos Humanos coordinará las acciones correspondientes para cumplir con la aplicación de lo dispuesto en el Reglamento Autónomo de Servicios.

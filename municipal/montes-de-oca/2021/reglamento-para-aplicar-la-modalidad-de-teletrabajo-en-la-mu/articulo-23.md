@@ -1,0 +1,1 @@
+Artículo 23.-Determinar si la información a la cual tiene acceso la persona teletrabajadora es de carácter confidencial y sensible a los intereses de la municipalidad, en apego en cumplimiento de todas las disposiciones para tal fin, para lo cual es necesario hacerle ver las condiciones de manejo que debe tener y las consecuencias de violar las mismas.

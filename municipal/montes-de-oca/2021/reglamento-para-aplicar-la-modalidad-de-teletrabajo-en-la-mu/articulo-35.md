@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Recursos informáticos
+Artículo 35.-Recursos informáticos. La modalidad de teletrabajo está sujeta a que la MMO suministre la computadora con los dispositivos y accesorios requeridos a la persona funcionaria que presta servicios bajo la modalidad de teletrabajo. La disposición anterior podrá ser variada en aquellos casos en que la persona funcionaria por voluntad propia solicite la posibilidad de la realizar teletrabajo con su equipo personal y la persona empleadora acepte, lo cual debe quedar claro en el contrato o adenda de trabajo y le exime de responsabilidad a la persona empleadora sobre el uso del equipo de la persona teletrabajadora.

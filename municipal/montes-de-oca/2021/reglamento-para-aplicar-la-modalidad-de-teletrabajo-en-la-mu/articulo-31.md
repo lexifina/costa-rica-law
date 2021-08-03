@@ -1,0 +1,1 @@
+Artículo 31.-Es responsabilidad de la jefatura aplicar la normativa vigente en caso de presentarse cualquier irregularidad relacionada o el incumplimiento de las metas o en cualquiera de los aspectos mencionados, caso contrario se deberá establecer las acciones que correspondan ante la inobservancia o negligencia de las jefaturas de ejercer los controles necesarios.

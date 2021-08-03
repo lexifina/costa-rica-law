@@ -1,0 +1,9 @@
+Artículo 12.-Funciones de la Jefatura de la dependencia que tiene personal bajo la modalidad de teletrabajo.
+a. Valorar el puesto de las personas que por sus funciones puedan ser de interés para aplicar la modalidad de teletrabajo utilizando el formulario de evaluación de actividades teletrabajables e informar a las personas que voluntariamente decidan participar en esta modalidad.
+b. Planificar y coordinar las actividades y metas asignadas a la persona teletrabajadora, indicar los criterios de medición y verificar el cumplimiento de las mismas, alineados con el Plan Estratégico de Desarrollo Municipal vigente y la planificación anual de la institución.
+c. Llevar en formato digital los registros de la información relativa al teletrabajo, establecer las medidas de control para el cumplimiento de objetivos de las personas funcionarias y emitir los informes respectivos sobre los resultados y desempeño del teletrabajo en su dependencia. Estos informes deben estar a disposición del DRH y de la oficina de Planificación Institucional en el momento que sean requeridos.
+d. Facilitar la aclaración de dudas y solución de conflictos o contratiempos que se puedan presentar en el desarrollo de las actividades bajo esta modalidad.
+e. Velar porque se mantenga el ambiente laboral adecuado, oportunidades de desarrollo e integración social de la persona funcionaria que participa en la modalidad de teletrabajo.
+f. Informar al DRH cuando una persona teletrabajadora a su cargo cambie sus funciones o cualquier otra condición laboral.
+g. Canalizar con el DRH todos los aspectos de índole laboral u otros que considere necesarios para garantizar el cumplimiento de los objetivos de la modalidad del teletrabajo.
+h. Solicitar al DRH la autorización o suspensión de la adenda al contrato para el teletrabajo. En caso negativo, deberá brindar la justificación correspondiente a ambas partes.

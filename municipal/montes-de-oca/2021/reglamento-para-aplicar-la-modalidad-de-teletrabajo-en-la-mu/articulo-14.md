@@ -1,0 +1,3 @@
+Artículo 14.-Funciones del Departamento de Tecnologías de Información: Corresponde a TI definir los requerimientos mínimos necesarios en hardware y software con que debe contar una persona funcionaria de la Institución para realizar actividades teletrabajables. El uso de las herramientas tecnológicas se regula de la siguiente forma:
+1. Determinar las necesidades de equipos y software para la aplicación en las actividades teletrabajables.
+2. Cuando sea requiera brindar soporte técnico a los equipos institucionales, se hará vía remota. Si esto no es posible, deberá coordinar con la persona teletrabajadora con el fin que ésta se presente a las instalaciones de la MMO para proceder con la revisión del equipo.

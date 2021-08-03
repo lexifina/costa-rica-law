@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito de aplicación. Este reglamento es aplicable a todas las personas en condición de persona funcionaria de la MMO que realice funciones aptas para prestar sus servicios en la modalidad de teletrabajo, consideradas como actividades teletrabajables y que cumplan con los requerimientos necesarios planteados en este reglamento y los procedimientos asociados.

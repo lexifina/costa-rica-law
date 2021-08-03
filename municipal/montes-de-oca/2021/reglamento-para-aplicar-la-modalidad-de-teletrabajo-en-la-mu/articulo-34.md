@@ -1,0 +1,1 @@
+Artículo 34.-Cuando la persona teletrabajadora no logre los objetivos y metas planteados en el plan de trabajo, el superior inmediato hará un análisis de las causas que obstaculizaron el alcance de los objetivos y metas, en caso necesario gestionará las acciones que corresponda, en el marco de lo establecido en el artículo 19 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 5º-Funciones y actividades en la modalidad de teletrabajo. La modalidad del teletrabajo se aplica a aquellas actividades y funciones que se pueden desarrollar, parcial o totalmente, de modo no presencial, de acuerdo con una razonable relación tiempo/resultado y sin afectar las necesidades de coordinación interna o de atención a las personas usuarias.
