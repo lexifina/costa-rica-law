@@ -1,4 +1,5 @@
 MUNICIPALIDAD DE CARTAGO
+(Nota de Sinalevi: La Municipalidad de Cartago aprobó un nuevo Reglamento para el arrendamiento, préstamo y uso de bienes propiedad de la Municipalidad del Cantón central de Cartago, publicado en La Gaceta N° 145 del 1° de agosto de 2022, Alcance N° 163)
 El Concejo Municipal de la Municipalidad del cantón Central de Cartago, por medio del acuerdo que consta en el artículo número 30 del acta número 209 de la sesión ordinaria del 12 del abril del 2005 y según lo establecido en los artículos 170 de la Constitución Política, 2, 3, 4 inciso a), 13 inciso c), 43 y 63 todos del Código Municipal, aprueba el siguiente Reglamento para el préstamo de bienes propiedad de la Municipalidad de Cartago para usos particulares, cuyo texto se expone adelante, autorizando su publicación en el Diario Oficial La Gaceta. Por segunda vez.
 REGLAMENTO PARA EL PRÉSTAMO Y USO DE BIENES
 PROPIEDAD DE LA MUNICIPALIDAD DEL CANTÓN

@@ -14,3 +14,4 @@ Reglamento para el Préstamo y Uso de Bienes Propiedad de la Municipalidad del C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-05 | la propia norma |
+| 2 | 2021-08-03 | Reglamento municipal 96 (2021-08-03) |
