@@ -1,7 +1,8 @@
 SECCIÓN B
 De los servicios de la Auditoría Interna
-Artículo 38.—De los servicios. La Auditoría Interna, en el ámbito de sus competencias, podrá realizar auditorías, inspecciones, fiscalizaciones, estudios, análisis e investigaciones de todo tipo y de cualquier naturaleza en el SFE; a fin de:
-a) verificar la legalidad, exactitud, veracidad y corrección de las operaciones,
-b) evaluar el cumplimiento y los resultados de los planes y acciones administrativas y
-c) comprobar la eficacia, la eficiencia, la economía, la calidad e impacto de la gestión.
-Los servicios que proporcionará la Auditoría Interna como producto de su actividad, se clasificarán en servicios de auditoría y servicios preventivos.
+Artículo 38.- De los servicios.
+La Auditoría Interna del SFE con el fin de validar y mejorar las operaciones, contribuir al logro de los objetivos institucionales, evaluar y mejorar la efectividad de la administración del riesgo, del control y los procesos de dirección, así como, proporcionar a la ciudadanía una garantía razonable de que la actuación del Jerarca y la del resto de la administración, se ejecuta conforme al marco legal y técnico y a las prácticas sanas, brindará los siguientes servicios:
+a) Servicios de auditoría
+b) Servicios preventivos
+c) Investigación de presuntos hechos irregulares
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43174 del 4 de agosto del 2021)

@@ -1,6 +1,7 @@
-Artículo 60°.—Criterios de admisibilidad de denuncias. Para la admisión de las denuncias por parte de la Auditoría Interna se establecen los siguientes criterios:
+Artículo 60°.-Criterios de admisibilidad de denuncias. Para la admisión de las denuncias por parte de la Auditoría Interna se establecen los siguientes criterios:
 a) La denuncia debe corresponder al ámbito de competencia de la institución.
-b) La denuncia no debe referirse a intereses particulares exclusivos del denunciante.
+b) La denuncia no debe referirse a intereses particulares exclusivos del denunciante. No se admitirán denuncias sobre hechos presuntamente irregulares que se refieran a problemas de índole estrictamente laboral entre funcionarios de la institución y la Administración Activa o a desavenencias de tipo personal entre funcionarios, salvo que de los hechos se desprenda la existencia de aspectos relevantes que ameriten ser valorados por la Auditoría Interna en razón de sus competencias.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43174 del 4 de agosto del 2021)
 c) La denuncia no será gestionada si su atención le corresponde investigarla a otras sedes (como las judiciales).
 d) El costo de la investigación no debe ser superior al beneficio que se pretender recibir (costo/beneficio).
 e) La denuncia no esté siendo atendida por otra instancia competente.
