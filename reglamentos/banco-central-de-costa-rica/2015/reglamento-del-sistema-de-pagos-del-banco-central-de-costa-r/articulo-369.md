@@ -1,2 +1,1 @@
-Artículo 369. Requisitos tecnológicos. Los afiliados deberán cumplir con los “Requisitos tecnológicos para participar en el SINPE”, establecidos en las normas complementarias del servicio.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 368 al 369)
+Artículo 369. Aporte adicional de garantías. Aparte del requerimiento mínimo de garantía establecido en el presente libro para los asociados, éstos podrán aportar garantías adicionales para respaldar las obligaciones financieras que decidan asumir con su participación en los mercados de negociación organizados por medio del SINPE.

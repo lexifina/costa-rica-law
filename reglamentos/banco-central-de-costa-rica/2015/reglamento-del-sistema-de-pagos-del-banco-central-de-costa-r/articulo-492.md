@@ -1,2 +1,6 @@
-Artículo 492. Responsables de ISP. Los afiliados y cualquier otra institución pública o privada que administre o disponga de información sobre medios de pago y del Sistema de Pagos, deberán designar un responsable de atender las solicitudes de información y consultas relacionadas.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 491 al 492)
+LIBRO XXXVII
+RECLAMACIÓN DE FONDOS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 492. Definición del servicio. Reclamación de Fondos (REF) es el servicio de liquidación multilateral neta, por medio del cual los asociados pueden solicitar la devolución de fondos cobrados indebidamente a su cargo o a cargo de sus clientes.
+Por medio del servicio los afiliados podrán solicitar información sobre las transacciones no acreditadas en los plazos definidos en la Serie de Normas y Procedimientos del SINPE.

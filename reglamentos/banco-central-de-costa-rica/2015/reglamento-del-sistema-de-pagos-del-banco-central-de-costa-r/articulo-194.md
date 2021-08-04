@@ -1,1 +1,1 @@
-Artículo 194. Horario de funcionamiento. El servicio Traspaso de Valores estará disponible para el registro de movimientos durante el horario bancario, y a modo de consulta las veinticuatro horas del día.
+Artículo 194. Coordinación. La coordinación de los asuntos relacionados con el funcionamiento de SINPE-TP será llevada a cabo directamente entre el BCCR y las entidades administradoras de las estaciones de peaje.

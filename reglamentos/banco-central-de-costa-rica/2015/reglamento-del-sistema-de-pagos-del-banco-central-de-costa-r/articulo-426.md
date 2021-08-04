@@ -1,7 +1,2 @@
-LIBRO XXXIV
-CONTROL Y SEGUIMIENTO DE OPERACIONES
-CAPÍTULO I
-DEL SERVICIO
-Artículo 426. Definición del servicio. Control y Seguimiento de Operaciones (CSO) es el servicio por medio del cual se consultan las transacciones que efectúan los afiliados por medio del SINPE, en nombre de terceros, sean personas físicas o jurídicas.
-El servicio CSO permite la identificación plena de las personas involucradas en las transacciones, pudiéndose determinar el origen y destino de los fondos o valores movilizados, así como identificar a los afiliados que intervinieron en las transacciones.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 425 al 426)
+Artículo 426. Manejo de las comunicaciones. Toda comunicación de aspectos relacionados con los servicios del SINPE se efectuará por los medios oficiales de comunicación, tomándose como oficial la información de las personas y direcciones de correo electrónico registrados en el servicio AES por los responsables de cada uno de los afiliados.
+El afiliado será responsable por cualquier inconveniente presentado por información no recibida debido a inconsistencias con el registro de la información de sus usuarios o a su desactualización, así como por falta de capacidad en los buzones de correo electrónico o falla en sus sistemas internos.

@@ -1,3 +1,3 @@
-CAPÍTULO III
-DEL FUNCIONAMIENTO DEL SERVICIO
-Artículo 137. Suscripción e inactivación del servicio. La suscripción del servicio por parte de los clientes deberá realizarse por medio de todos los canales transaccionales autenticados (banca web, banca móvil, cajeros automáticos y plataforma de servicios, entre otros). La inactivación deberá estar disponible para el cliente en todos los canales transaccionales (autenticados y no autenticados), debiendo estar al menos uno de estos habilitado las 24 horas del día, todos los días del año. Respecto a la suscripción, la entidad que afilie un cliente físico o jurídico al servicio SINPE Móvil, deberá verificar previamente su voluntad de participar en dicho servicio.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 137. Participantes del servicio. En el servicio LSE operan los organizadores de mercados y los asociados que autorizan la utilización de este mecanismo para liquidar sus obligaciones financieras producto de su participación en ese mercado.

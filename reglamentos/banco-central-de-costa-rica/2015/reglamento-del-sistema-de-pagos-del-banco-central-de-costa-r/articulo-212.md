@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 212. Participantes del servicio. En el servicio Captación de Fondos opera el BCCR y el MHDA como receptores de las inversiones y depósitos, y podrán operar como inversionistas las entidades asociadas al SINPE, de conformidad con las condiciones que el emisor respectivo establezca para las negociaciones.
+Artículo 212. Responsabilidades civiles. Las omisiones de registro, inexactitudes y retrasos de las inscripciones que ocurran entre los registros del participante y el registro central administrado por el BCCR, producirán repercusiones civiles sobre la entidad responsable del problema, conforme con lo dispuesto en la Ley 7732.

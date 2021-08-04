@@ -1,1 +1,1 @@
-Artículo 206. Exención. La exención será autorizada por la Dirección General de Tributación, por el período que dicha dependencia considere y esta podrá ser suspendida, en cualquier momento, ante cambios en el fundamento jurídico que ampara la exención.
+Artículo 206. Pignoración de valores. Los valores que se pignoren permanecerán inmovilizados en su cuenta y serán liberados cuando cesen las causas por las cuales fueron pignorados, luego de que la entidad responsable de su administración registre la respectiva despignoración.

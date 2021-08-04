@@ -1,1 +1,1 @@
-Artículo 64. Inembargabilidad de las cuentas. De conformidad con lo establecido en la Ley 8876, las cuentas de fondos mantenidas por los afiliados en el BCCR son inembargables.
+Artículo 64. Irrevocabilidad de las transacciones. Las instrucciones de pago tramitadas por medio del SINPE son irrevocables frente a sus ordenantes o terceros. En el ciclo de operación de cada servicio se establece el momento a partir del cual una negociación o transacción del SINPE es irrevocable.

@@ -1,7 +1,4 @@
-Artículo 308. Condiciones para la entrega de numerario por parte del BCCR. Las ofertas publicadas por el BCCR se regirán por las siguientes condiciones:
-a) El BCCR participa en el MEN como el proveedor de última instancia.
-b) En la entrega de billete y en la modalidad de retiro de moneda en BCCR, el asociado que adquiere una oferta del BCCR es responsable de transportar por su cuenta y riesgo el numerario negociado. Tal responsabilidad incluye velar por la seguridad y las características de los medios que utilice para
-transportar el numerario.
-c) El BCCR ofrecerá numerario nacional nuevo siempre y cuando no disponga de la categoría circulable en la denominación correspondiente.
-d) El BCCR determinará la periodicidad y la cantidad de billete o moneda que entregará en las diferentes modalidades.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 307 al 308)
+CAPÍTULO VI
+DE LAS RESPONSABILIDADES
+Artículo 308. Registro contable de las operaciones. Las entidades autorizadas a operar en el mercado cambiario deben mantener registros contables separados que permitan identificar las operaciones que realicen en el Monex-Subasta, así como bases de datos centralizadas con el detalle de todas las operaciones cambiarias realizadas con el público en todas sus oficinas, agencias y sucursales, incluidas las negociadas por medio de canales electrónicos.
+Las entidades autorizadas también deberán suministrar diariamente al BCCR la información de su actividad cambiaria, con el detalle y en la forma que le sea requerida por éste, de conformidad con lo establecido en el Reglamento de Operaciones Cambiarias de Contado y la Serie de Normas y Procedimientos del SINPE.

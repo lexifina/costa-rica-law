@@ -1,5 +1,2 @@
-LIBRO XVIII
-TRASPASO DE VALORES
-CAPÍTULO I
-DEL SERVICIO
-Artículo 193. Definición del servicio. Traspaso de Valores es el servicio de liquidación bruta en tiempo real, por medio del cual se traspasan valores anotados en cuenta.
+Artículo 193. Suscripción al servicio. Las entidades que administren estaciones de peaje y quisieran conectar sus sistemas de recaudación con SINPE-TP, deberán cumplir con el procedimiento de suscripción dispuesto por el BCCR para ser usuarios del servicio.
+Tales entidades, y las personas que paguen derechos de uso de carreteras en sus estaciones de peaje, deberán someterse a lo dispuesto en el presente libro (en lo que les resulte aplicable), así como a la Serie de Normas y Procedimientos del SINPE.

@@ -1,2 +1,4 @@
-Artículo 269. Sustitución de numerario. Cada vez que el BCCR introduzca cambios en las características del numerario o en sus seguridades, retirará de circulación las denominaciones que han sido objeto de cambio. Asimismo, publicará oportunamente el plan de retiro y de sustitución.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 268 al 269)
+CAPÍTULO V
+DE LA LIQUIDACIÓN DE VENCIMIENTOS
+Artículo 269. Liquidación de vencimientos. En la fecha de vencimiento de la deuda y en las fechas intermedias en las que corresponda el pago de intereses, el servicio emitirá una instrucción al SIL para que los fondos se acrediten en firme sobre la cuenta de fondos de los inversionistas, con cargo a la cuenta de fondos del emisor.
+La liquidación de los vencimientos la efectúa el SIL con el mecanismo de liquidación bilateral bruta.

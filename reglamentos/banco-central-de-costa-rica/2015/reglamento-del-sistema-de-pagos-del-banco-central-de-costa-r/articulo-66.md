@@ -1,1 +1,3 @@
-Artículo 66. Firmeza de las negociaciones y transacciones de fondos. Las negociaciones y los movimientos de fondos realizados por medio del SINPE son firmes, exigibles y oponibles frente a terceros, no pudiendo ser impugnados o anulados por causa alguna, ni siquiera por el inicio de un procedimiento de reorganización o liquidación contra un afiliado. En el ciclo de operación de cada servicio se establece el momento a partir del cual una negociación o transacción del SINPE es firme.
+CAPÍTULO II
+DE LAS OPERACIONES SOBRE CUENTAS DE FONDOS
+Artículo 66. Autorización de movimientos. Todo movimiento regular sobre las cuentas de fondos que deba realizar el BCCR, en virtud de las transacciones que ordenen los afiliados o alguna empresa que le provea servicios de compensación a los asociados, o por cualquier otra afectación derivada de los servicios ofrecidos por el BCCR, quedará autorizado con la sola incorporación del afiliado al SINPE.

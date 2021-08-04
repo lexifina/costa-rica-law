@@ -1,1 +1,3 @@
-Artículo 110. Valores compensables. Son compensables por medio del servicio COV todos los valores diferentes de los procesados por otros servicios financieros del SINPE.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 110. Participantes del servicio. En el servicio CLC deben operar como entidad destino los emisores de cheques y podrán participar como entidad origen los asociados.

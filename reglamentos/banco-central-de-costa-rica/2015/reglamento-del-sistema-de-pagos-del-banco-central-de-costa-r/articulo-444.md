@@ -1,6 +1,3 @@
-Artículo 444. Requisitos de apertura y funcionamiento de las CES de Nivel 2.
-a) Presentación del documento de identificación del titular de la cuenta: el cliente de forma presencial deberá presentar su cédula de identidad, DIMEX o DIDI en cualquiera de los canales autorizados para la apertura y activación de la cuenta.
-b) Canales autorizados para la apertura y activación de la cuenta: agencias, sucursales, corresponsales financieros, canales transaccionales autenticados o por parte de un agente autorizado de la entidad financiera. Podrán utilizarse canales electrónicos para la solicitud de apertura de la CES, pudiendo activarse para su uso estas cuentas, únicamente en caso de clientes regulares y si la solicitud se hace desde un canal transaccional autenticado.
-c) Información requerida del titular de la cuenta: nombre completo, número y tipo de documento de identificación. El registro electrónico de estos datos sustituye el formulario conozca a su cliente.
-d) Límite mensual máximo de depósitos en la cuenta: dos mil dólares estadounidenses o su equivalente en moneda nacional u otra divisa.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 443 al 444)
+CAPÍTULO IV
+DE LOS SERVICIOS DE VALOR AGREGADO
+Artículo 444. Definición de los servicios. Servicios autenticados, dirigidos a los suscriptores de certificados digitales emitidos por las Autoridades Certificadoras del SINPE, orientados a la autenticación de usuarios, custodia de certificados digitales, así como a la firma digital de archivos electrónicos en formatos oficiales y a la emisión de estampas de tiempo con relevancia jurídica.

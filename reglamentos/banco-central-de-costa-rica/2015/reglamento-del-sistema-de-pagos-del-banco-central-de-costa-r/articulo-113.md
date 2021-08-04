@@ -1,5 +1,1 @@
-LIBRO X
-COMPENSACIÓN DE CRÉDITOS DIRECTOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 113. Definición del servicio. Compensación de Créditos Directos (CCD) es el servicio de compensación multilateral neta, por medio del cual una entidad origen emite una instrucción propia o de su cliente, con el fin de enviar fondos a una entidad destino para que se acrediten en la cuenta del cliente destino.
+Artículo 113. Confirmación de cheques. Los bancos podrán adoptar con sus clientes sistemas de control que exijan la confirmación de todos o una parte de los cheques girados, dependiendo de su monto.

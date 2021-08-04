@@ -1,2 +1,3 @@
-Artículo 359. Aplazamiento de la acreditación. Cuando se presente una situación contingente que retrase la liquidación en las cuentas de fondos, los afiliados podrán extender como máximo el tiempo de acreditación por un plazo igual al tiempo oficial del retraso, por lo cual deberán acreditar los fondos a sus clientes luego de que transcurra dicho periodo.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 358 al 359)
+CAPÍTULO III
+DE LAS GARANTÍAS DEL SISTEMA DE PAGOS
+Artículo 359. Requerimiento de garantía. Para participar en el SINPE los asociados deberán cumplir con un requerimiento de garantía, establecido y administrado de conformidad con las disposiciones del presente libro.

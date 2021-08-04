@@ -1,1 +1,1 @@
-Artículo 220. Suspensión de condiciones financieras. El emisor suspenderá las condiciones financieras ofrecidas en el servicio cuando así lo considere conveniente.
+Artículo 220. Registro de emisiones. Los emisores deberán registrar en el servicio las emisiones en serie inscritas en el Registro Nacional de Valores e Intermediarios y emitidas en forma anotada en cuenta.

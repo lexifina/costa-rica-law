@@ -1,1 +1,1 @@
-Artículo 227. Emisión de constancias. El emisor emitirá constancias de titularidad de inversiones registradas de los participantes, a solicitud de ellos o de una autoridad competente.
+Artículo 227. Conciliación de cuentas. El emisor, o su representante, es responsable de conciliar diariamente sus emisiones, debiendo comunicar por escrito al BCCR cualquier inconsistencia a más tardar al día hábil siguiente.

@@ -1,5 +1,3 @@
-Artículo 300. Revocatoria de la autorización. El BCCR podrá revocar la autorización a la entidad para administrar CAN cuando se presente cualquiera de las siguientes circunstancias:
-a) La entidad se encuentre en un estado de inestabilidad o irregularidad financiera de grado tres, conforme con los supuestos que para los efectos establece el artículo 136 de la Ley 7558.
-b) El BCCR decida suspender el servicio.
-c) Cuando una misma CAN incurra en tres incumplimientos durante un año calendario, según lo dispuesto en este capítulo.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 299 al 300)
+CAPÍTULO VI
+DE LAS SUSPENSIONES
+Artículo 300. Suspensión de la participación. En caso de incumplimiento de las responsabilidades que asume con su participación en el servicio, el BCCR, podrá suspender la condición de participante para la entidad que incumple, quedando por tanto imposibilitada para participar en el servicio por un periodo de tres meses la primera vez y de seis meses cuando incurra en una reincidencia dentro de un mismo año calendario.

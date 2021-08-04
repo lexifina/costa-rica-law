@@ -1,2 +1,1 @@
-Artículo 261. Calce de ofertas. Las ofertas de compra o de venta de divisas que realicen los participantes en el Monex, estarán sujetas a aceptación automática bajo los principios de “mejor oferta de mercado” y de “primera en tiempo, primera en derecho”, pudiendo darse la aceptación parcial de ofertas.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 260 al 261)
+Artículo 261. Horario de funcionamiento. El servicio Registro de Deuda en Depósito estará disponible para la administración de la deuda durante el horario bancario, y a modo de consulta durante el horario de operación del SINPE.

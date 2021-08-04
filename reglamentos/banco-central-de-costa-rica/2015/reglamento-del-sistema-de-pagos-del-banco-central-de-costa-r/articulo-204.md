@@ -1,3 +1,1 @@
-CAPÍTULO III
-DEL MODELO DE OPERACIÓN
-Artículo 204. Solicitud de exención. Las entidades inversoras que aduzcan gozar de exención o las entidades de custodia en representación de estas, deberán registrar a través del sistema su solicitud de exención, dirigiendo ésta a la administración tributaria que les corresponda según sea su domicilio fiscal o tamaño de contribuyente.
+Artículo 204. Efectos de la suspensión. La suspensión de una cuenta de valores impide movimientos que implican la salida de valores desde el momento en que la misma es ordenada, pero no impide movimientos de entrada de valores, ni la liquidación de vencimientos de los valores que se encuentren depositados en la cuenta suspendida.

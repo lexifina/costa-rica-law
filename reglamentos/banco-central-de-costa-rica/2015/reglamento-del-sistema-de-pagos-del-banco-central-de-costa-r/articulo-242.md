@@ -1,6 +1,3 @@
-LIBRO XXIV
-MERCADO INTEGRADO DE LIQUIDEZ
-CAPÍTULO I
-DEL SERVICIO
-Artículo 242. Definición del servicio.Mercado Integrado de Liquidez (MIL) es el servicio por medio del cual el BCCR controla la liquidez del sistema financiero, y los demás participantes realizan operaciones financieras para administrar sus posiciones de liquidez.
-(Así reformado en sesión N° 5955 del 2 de setiembre del 2020)
+Artículo 242. Tipo de traspasos. Los traspasos de valores que ordenen los participantes podrán ser de dos tipos:
+a) Traspaso sin cambio de titularidad: cuando el movimiento de los valores se realiza entre cuentas pertenecientes al mismo titular.
+b) Traspaso con cambio de titularidad: cuando el movimiento de los valores se realiza a la cuenta de otro titular.

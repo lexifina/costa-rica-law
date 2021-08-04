@@ -1,2 +1,1 @@
-Artículo 254. Suficiencia de fondos. Las entidades que capten recursos son responsables de mantener en su cuenta los fondos suficientes para cubrir en la fecha de vencimiento, el pago del principal adeudado y los respectivos intereses.
-(Así reformado en sesión N° 5955 del 2 de setiembre del 2020)
+Artículo 254. Manejo de las comunicaciones. Toda comunicación relacionada con el otorgamiento o suspensión de la exoneración se efectuará por medio de los medios oficiales de comunicación, tomándose como oficial la información de la entidad exenta y dirección de correo electrónico registrado en las solicitudes de exención por el usuario responsable del registro de éstas.

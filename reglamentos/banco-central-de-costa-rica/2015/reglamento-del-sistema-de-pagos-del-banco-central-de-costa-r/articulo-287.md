@@ -1,2 +1,4 @@
-Artículo 287. Seguridad de las CAN. Los asociados deberán establecer medidas de control y de infraestructura que garanticen un funcionamiento seguro de las CAN, de conformidad con los lineamientos que sobre el particular establezca el BCCR y los que dicten las buenas prácticas en materia de seguridad bancaria. La entidad no podrá realizar movimientos de numerario en la CAN mientras el circuito cerrado de televisión (CCTV) no funcione adecuadamente, salvo casos de fuerza mayor autorizados por el Departamento de Tesorería.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 286 al 287)
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 287. Participantes del servicio. En el servicio MIL intervienen el BCCR y los asociados autorizados en las Regulaciones de Política Monetaria para operar en los mercados interbancarios.
+La participación del BCCR es con fines de ejecución de su política monetaria y de estabilización del sistema financiero nacional; además, la podrá realizar con operaciones de ventanilla, subastas o mediante operaciones directas.

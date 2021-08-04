@@ -1,1 +1,8 @@
-Artículo 156. Manejo del saldo de las cuentas. El saldo de las cuentas de valores se mantiene por cantidad de valores para cada emisión y por el valor nominal del total de los valores anotados, siempre en la moneda que corresponda para la emisión.
+CAPÍTULO VI
+DEL CICLO DE LIQUIDACIÓN
+Artículo 156. Liquidación de transacciones. El ciclo de liquidación del pago móvil opera con las siguientes etapas:
+a) Envío del pago móvil: la entidad origen envía al SINPE la instrucción de pago recibida de su cliente y se le retiene el monto respectivo sobre la cuenta de fondos en el BCCR. El SINPE no procesará las transacciones de la entidad que no disponga en su cuenta de los fondos necesarios para cubrir el pago enviado. Las transacciones móviles serán irrevocables a partir del momento en que son ingresadas por el cliente origen a la plataforma de su entidad.
+b) Aceptación o rechazo del pago móvil: después de recibida la instrucción de pago móvil, la entidad destino confirma, en tiempo real y de manera automática, la aceptación o rechazo de la transacción. En caso de rechazo deberá especificar el tipo de problema presentado.
+c) Acreditación del pago móvil: si el pago móvil es aceptado, la entidad destino deberá acreditar en tiempo real el monto de la transacción en la cuenta del cliente destino.
+d) Liquidación en cuentas SINPE: el SIL efectúa la liquidación en firme del resultado de las transacciones de pago móvil sobre las cuentas de fondos que mantienen los participantes en el BCCR, utilizando el mecanismo de liquidación multilateral neta, a más tardar el día hábil siguiente de su procesamiento por parte del SINPE y en el horario que establezcan la Serie de Normas y Procedimientos del SINPE.
+e) Notificación: tanto la entidad origen como la entidad destino deberán enviar un mensaje SMS al número de teléfono móvil y al correo electrónico de sus respectivos clientes, informando sobre el resultado de la transacción.

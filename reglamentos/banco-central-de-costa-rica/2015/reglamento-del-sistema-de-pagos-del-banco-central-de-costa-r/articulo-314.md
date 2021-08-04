@@ -1,4 +1,1 @@
-CAPÍTULO III
-DE LAS GARANTÍAS DEL SISTEMA DE PAGOS
-Artículo 314. Requerimiento de garantía. Para participar en el SINPE los asociados deberán cumplir con un requerimiento de garantía, establecido y administrado de conformidad con las disposiciones del presente libro.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 313 al 314)
+Artículo 314. Incumplimiento en el procesamiento. En caso de que durante la revisión de calidad que ejecuta el BCCR a los depósitos de numerario que reciba de los asociados o al que mantienen en las CAN, identifique más de un 5 % de una categoría diferente a la indicada en la boleta respectiva, o billete falso, aplicará la tarifa que para cada uno de esos casos establece el presente reglamento.

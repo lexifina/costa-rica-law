@@ -1,2 +1,3 @@
-Artículo 508. Cobro por uso de medios de pago. Los afiliados podrán cobrar a los clientes una comisión por el costo de operación correspondiente a cada medio de pago y el precio deberá ser denominado exclusivamente en moneda nacional, con excepción de los asociados regionales que definen la tarifa en su propia moneda. De los recursos recaudados por este concepto, una proporción significativa debe ser destinada a la realización de campañas educativas que promuevan el uso de medios electrónicos, de modo que sea menor el uso del efectivo en la realización de transacciones, con miras a promover la eficiencia del sistema de pagos y una mayor bancarización.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 507 al 508)
+CAPÍTULO III
+DEL ESQUEMA DE OPERACIÓN
+Artículo 508. Funciones del BCCR: Por medio del servicio ISP, el BCCR recopila, procesa, analiza y divulga públicamente información sobre el sistema de pagos costarricense con acatamiento de lo establecido en la Ley 9694.

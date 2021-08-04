@@ -1,2 +1,3 @@
-Artículo 449. Información de control para las ayudas sociales. Para el caso de las ayudas sociales con acreditación en las CES, el Ministerio de Hacienda y cualquier otra institución de ayuda social tendrán acceso a la información para fines de control, siempre que disponga de la debida autorización de parte del beneficiario de la ayuda social para consultarla por medio del PUC.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 448 al 449)
+CAPÍTULO V
+DE LOS SERVICIOS COMPLEMENTARIOS
+Artículo 449. Definición de los servicios: Son servicios disponibles para todo público, mediante los cuales, los interesados pueden realizar la validación de certificados de firma digital, la validación de archivos electrónicos y la revocación de sus certificados.

@@ -1,4 +1,2 @@
-CAPÍTULO IV
-DE LA LIQUIDACIÓN DE VENCIMIENTOS
-Artículo 180. Liquidación de vencimientos. En la fecha de vencimiento de las emisiones y en las fechas intermedias en las que corresponda el pago de intereses, el servicio emitirá una instrucción al SIL para que los fondos se acrediten en firme sobre la cuenta de fondos de las entidades de custodia y de los miembros liquidadores, con cargo a la cuenta de fondos del emisor o de su agente de pago.
-La liquidación de los vencimientos la realiza el SIL con el mecanismo de liquidación bilateral bruta.
+Artículo 180. Procedimiento de recuperación de deudas. SINPE-TP deberá disponer de un procedimiento formal para gestionar la recuperación de los cargos que los pasajeros mantengan pendientes de pago. Dicho procedimiento deberá definir la situación a partir de la cual se decreta la incobrabilidad de un saldo adeudado.
+Este procedimiento será definido en la norma complementaria de SINPE-TP.

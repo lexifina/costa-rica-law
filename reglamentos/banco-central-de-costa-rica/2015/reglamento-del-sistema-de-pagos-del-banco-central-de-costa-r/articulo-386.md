@@ -1,3 +1,3 @@
-Artículo 386. Manejo de las comunicaciones. Toda comunicación de aspectos relacionados con los servicios del SINPE se efectuará por los medios oficiales de comunicación, tomándose como oficial la información de las personas y direcciones de correo electrónico registrados en el servicio AES por los responsables de cada uno de los afiliados.
-El afiliado será responsable por cualquier inconveniente presentado por información no recibida debido a inconsistencias con el registro de la información de sus usuarios o a su desactualización, así como por falta de capacidad en los buzones de correo electrónico o falla en sus sistemas internos.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 385 al 386)
+CAPÍTULO IX
+DE LA EJECUCIÓN DE GARANTÍAS
+Artículo 386. Autorización de la ejecución. El incumplimiento por parte de un asociado del pago de sus obligaciones financieras dentro de las condiciones de tiempo y forma pactadas autoriza inmediatamente y de manera irrevocable al BCCR para que descuente en el mercado bursátil los valores dados en garantía, conforme con lo que corresponda.

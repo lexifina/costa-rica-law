@@ -1,1 +1,1 @@
-Artículo 182. Suficiencia de fondos. El emisor, o su agente de pago, debe mantener en su cuenta los fondos suficientes para cancelar los vencimientos de las emisiones a su cargo.
+Artículo 182. Requisitos de incorporación. El BCCR establecerá mediante la Serie de Normas y Procedimientos del SINPE los requisitos y las condiciones que deberán cumplir los operadores para preparar a sus empresas y unidades de transporte, con los requerimientos tecnológicos y operativos que les permita participar como usuarios de SINPE-TP.

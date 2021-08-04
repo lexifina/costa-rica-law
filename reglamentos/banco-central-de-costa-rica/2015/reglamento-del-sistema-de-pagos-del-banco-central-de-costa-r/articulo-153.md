@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 153. Participantes del servicio. En el servicio Cuentas de Valores deben operar las entidades de custodia y los miembros liquidadores, de conformidad con la Ley 7732.
+Artículo 153. Costo de la notificación. Los participantes podrán trasladar a sus clientes el costo del mensaje (SMS) cobrado por las empresas de telecomunicación por cada notificación enviada para confirmar el resultado de la transacción.

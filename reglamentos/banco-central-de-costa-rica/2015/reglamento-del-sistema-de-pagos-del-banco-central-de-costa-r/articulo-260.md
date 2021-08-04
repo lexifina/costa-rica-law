@@ -1,8 +1,5 @@
-CAPÍTULO III
-DEL CICLO DEL SERVICIO EN MONEX-CONTINUO
-Artículo 260. Ciclo de operación del servicio: El ciclo del servicio opera con las siguientes etapas:
-a) Publicación de ofertas cambiarias: las entidades participantes publican en el Monex sus ofertas de compra o de venta de divisas. El SIL efectúa una retención de fondos por el monto respectivo, en la cuenta en dólares estadounidenses si se trata de una oferta de venta o en la cuenta en colones si se trata de una oferta de compra.
-b) Liquidación de ofertas calzadas: el SIL efectúa la liquidación en firme de las ofertas que resulten calzadas, utilizando los mecanismos de liquidación bilateral bruta en tiempo real y de pago contra pago.
-c) Anulación de ofertas no calzadas: las ofertas cambiarias que no hayan sido calzadas al cierre del servicio serán anuladas, debiendo el BCCR liberar los fondos retenidos a los oferentes.
-d) Liquidación de operaciones especiales: las entidades participantes autorizadas para dicho fin podrán liquidar las operaciones de compra o de venta de divisas realizadas con instituciones del sector público no bancario, al tipo de cambio fijado por el BCCR para esas operaciones, de conformidad con las disposiciones aprobadas por la Junta Directiva del BCCR para tales efectos.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 259 al 260)
+LIBRO XXII
+REGISTRO DE DEUDA EN DEPÓSITO
+CAPÍTULO I
+DEL SERVICIO
+Artículo 260. Definición del servicio. Registro de Deuda en Depósito (RDD) es el servicio por medio del cual se administra la deuda constituida mediante depósitos, por captaciones directas.

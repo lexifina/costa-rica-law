@@ -1,3 +1,3 @@
 CAPÍTULO II
 DE LOS PARTICIPANTES
-Artículo 218. Participantes del servicio. En el servicio Registro de Deuda en Depósito opera el BCCR y el MHDA como emisores de la deuda contraída mediante inversiones y depósitos.
+Artículo 218. Participantes del servicio. En el servicio Registro de Emisiones deben operar las entidades públicas que emitan valores anotados en cuenta, y sus representantes. Además, podrán operar las entidades de custodia y los miembros liquidadores.

@@ -1,2 +1,3 @@
-Artículo 494. Ajuste automático de tarifas. Las tarifas definidas en el presente reglamento para este servicio, serán ajustadas automáticamente conforme con lo que establezcan los convenios de intercambio de información que suscriba el BCCR con el Tribunal Supremo de Elecciones.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 493 al 494)
+CAPÍTULO III
+DE LA OPERATIVA DEL SERVICIO
+Artículo 494. Servicios a los que aplica la REF. El afiliado que deba plantear un reclamo propio o de sus clientes, en los servicios CDD, DTR (modalidad DTR reversible), PIN y CCD, podrá presentarlo dentro del horario bancario.

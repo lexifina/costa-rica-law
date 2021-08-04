@@ -1,2 +1,1 @@
-Artículo 514. Cobro de tarifas y comisiones ante cierre de cuentas. Con el cierre de las cuentas de fondos de un afiliado, el BCCR efectuará el cobro de las tarifas y comisiones adeudadas al momento del cierre.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 513 al 514)
+Artículo 514. Confidencialidad y protección de la información. El BCCR es responsable de administrar confidencialmente la información recibida de las entidades afiliadas o no al SINPE, acatando lo establecido en la Ley 9694 del Sistema de Estadística Nacional y la Ley 8968 de Protección de la Persona frente al tratamiento de sus datos personales.

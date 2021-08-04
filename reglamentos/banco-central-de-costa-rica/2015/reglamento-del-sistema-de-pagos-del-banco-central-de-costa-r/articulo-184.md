@@ -1,5 +1,2 @@
-LIBRO XVII
-LIQUIDACIÓN DE MERCADOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 184. Definición del servicio. Liquidación de Mercados (LIM) es el servicio de liquidación de las operaciones realizadas en los mercados organizados de valores de deuda pública anotados en cuenta.
+Artículo 184. Oficialidad del pago electrónico. SINPE-TP es el sistema de pago electrónico oficial por medio del cual se realiza la recaudación tarifaria del transporte público de personas en las modalidades de autobús y tren, con el fin de facilitar al sector de transporte público costarricense la generación de información completa sobre la recaudación tarifaria; la implementación de los planes operativos (los modelos tarifarios básicos y de integración entre rutas, regiones y modalidades), y la mejora de la experiencia del cliente.
+Se promoverá la incorporación gradual de los pasajeros al uso del pago electrónico; no obstante, se utilizarán ambos medios de pago, tanto el efectivo como el pago electrónico en el transporte público.

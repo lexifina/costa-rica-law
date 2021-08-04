@@ -1,6 +1,1 @@
-LIBRO XL
-TARIFAS Y COMISIONES
-CAPÍTULO I
-DEL SERVICIO
-Artículo 503. Definición del servicio. Tarifas y Cobros (TCS) es el servicio de compensación multilateral neta, por medio del cual se cobran las tarifas por el uso de la plataforma del SINPE y las comisiones interbancarias.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 502 al 503)
+Artículo 503. Exclusión del servicio: El participante que no disponga de fondos suficientes en su cuenta en el BCCR para cubrir la liquidación derivada del proceso de reclamación por un débito no autorizado, será excluida de forma inmediata en el servicio DTR y del ciclo del día hábil siguiente en el servicio CDD, hasta tanto logre atender su obligación.

@@ -1,2 +1,3 @@
-Artículo 412. Revocación de certificados. Toda persona física o jurídica que requiera tramitar la revocación de un certificado digital debe realizar el trámite directamente ante las Autoridades Certificadoras del SINPE por los medios electrónicos que ésta tenga dispuestos para este propósito. No obstante, para el caso de los certificados digitales de persona física, las OR deben realizar el trámite de revocación cuando sus clientes se lo soliciten, sin costo alguno.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 411 al 412)
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 412. Participantes del servicio. En el servicio SIL operan todos los afiliados.

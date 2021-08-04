@@ -1,1 +1,3 @@
-Artículo 141. Canales de acceso y uso. Los participantes podrán habilitar a sus clientes las funcionalidades del Sinpe Móvil en cualquiera de sus canales bancarios.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 141. Autorización de débitos. La participación de un asociado en un servicio de compensación provisto por un organizador de mercados autoriza automáticamente la liquidación en su cuenta de fondos de las obligaciones financieras contraídas por medio del servicio.

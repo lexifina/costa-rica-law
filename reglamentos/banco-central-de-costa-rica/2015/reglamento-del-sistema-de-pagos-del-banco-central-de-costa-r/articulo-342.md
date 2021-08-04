@@ -1,5 +1,5 @@
-Artículo 342. Orden de ejecución de garantías. En caso de incumplimiento de alguna operación que amerite la ejecución de una garantía, el BCCR procederá con el siguiente orden de ejecución:
-a) Primero: valores traspasados a la cuenta de garantía, en la misma moneda de la operación incumplida.
-b) Segundo: valores traspasados a la cuenta de garantía, en una moneda distinta de la moneda de la
-operación incumplida.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 341 al 342)
+Artículo 342. Procedimiento ante incumplimientos. Ante el incumplimiento de cualquiera de los requisitos enumerados en el artículo anterior o de otros que la División Sistemas de Pago considere que atenta contra la seguridad del numerario, el Departamento de Emisión y Valores del BCCR procederá de la siguiente forma:
+a) La primera vez: comunicado del incumplimiento al responsable del servicio ante el BCCR y bloqueo de la CAN en el servicio por cinco días hábiles.
+b) La segunda vez: comunicado del incumplimiento a la gerencia de la entidad y bloqueo de la CAN por veinte días hábiles.
+c) La tercera vez: comunicado del incumplimiento a la gerencia de la entidad y bloqueo de la CAN por sesenta días hábiles. Según sea la valoración que realice el BCCR, el bloqueo aplicará a la CAN que incurra en la falta o a todas las que administra la entidad.
+La acumulación de los incumplimientos se extingue al finalizar cada año calendario.

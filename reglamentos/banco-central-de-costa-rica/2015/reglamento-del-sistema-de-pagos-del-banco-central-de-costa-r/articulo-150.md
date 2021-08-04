@@ -1,1 +1,1 @@
-Artículo 150. Alertas. Los participantes deberán indicar en los estados de cuenta el número de teléfono móvil asociado a la cuenta IBAN; además, enviar al menos dos veces al año, una notificación al correo electrónico de su cliente, informando sobre el número asociado a su cuenta, de modo que el cliente sea alertado de cualquier irregularidad para que el mismo pueda gestionar la inactivación.
+Artículo 150. Horario de funcionamiento. SINPE Móvil está disponible para los clientes finales durante el horario de operación del SINPE.

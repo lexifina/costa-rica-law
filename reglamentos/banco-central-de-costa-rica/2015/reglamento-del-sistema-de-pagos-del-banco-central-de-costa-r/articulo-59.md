@@ -1,4 +1,1 @@
-CAPÍTULO XIII
-DE LOS DERECHOS DEL BCCR SOBRE SIGNOS EXTERNOS
-Artículo 59. Uso de signos externos. El SINPE es una marca comercial registrada propiedad del BCCR, por lo que su uso está restringido al BCCR o a quien éste autorice.
-Para el uso de la marca y de los signos distintivos del SINPE deberán seguirse los lineamientos establecidos en el “Manual de marca del SINPE”, definido por el BCCR.
+Artículo 59. Uso no autorizado de signos externos. El BCCR no será responsable por el uso no autorizado de la marca SINPE ni de los signos externos del sistema, entendidos éstos como sus logotipos, nomenclaturas, marcas o nombres comerciales. El BCCR accionará por las vías legales pertinentes contra quien incurra en usos no autorizados de la marca SINPE y de sus signos externos.

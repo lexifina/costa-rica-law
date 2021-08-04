@@ -1,4 +1,1 @@
-CAPÍTULO V
-DE LOS TIPOS DE CUENTAS
-Artículo 442. Tipos de CES. Se autoriza a los participantes a abrir a sus clientes CES de Nivel 1, Nivel 2 y Nivel 3.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 441 al 442)
+Artículo 442. Gestión de Certificados. La validación de la identidad, el registro de los suscriptores, así como el trámite de las solicitudes de emisión, revocación, renovación y entrega de certificados digitales de persona jurídica la realiza directamente la CA SINPE – Persona Jurídica. Las obligaciones a las que se sujetan quienes obtengan un certificado digital estarán consignadas en el respectivo Acuerdo de Suscriptor que deberá firmar el representante legal o en su defecto el Tramitador de Certificados de Persona Jurídica.

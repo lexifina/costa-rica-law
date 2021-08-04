@@ -1,2 +1,1 @@
-Artículo 368. Conexión de estaciones de trabajo. Los afiliados deberán tener habilitados los servicios del SINPE en al menos dos de sus estaciones de trabajo.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 367 al 368)
+Artículo 368. Disponibilidad de garantías. El monto que los asociados deban rendir como requerimiento mínimo de garantía se computará íntegramente como su disponibilidad de garantías en el Sistema de Pagos, de modo que tales entidades podrán utilizarlo para respaldar, conforme con las disposiciones del presente libro, los compromisos financieros que asuman con su participación en el SINPE y en los mercados de negociación organizados por el BCCR mediante su plataforma tecnológica.

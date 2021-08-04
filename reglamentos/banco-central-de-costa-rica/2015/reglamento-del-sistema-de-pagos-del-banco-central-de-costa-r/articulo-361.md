@@ -1,2 +1,1 @@
-Artículo 361. Condiciones de la SAO. La SAO deberá contar con las condiciones físicas y los recursos necesarios que garanticen a los afiliados la operación adecuada del SINPE en sus instalaciones, conforme con las especificaciones contenidas en las normas complementarias del servicio.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 360 al 361)
+Artículo 361. Porcentaje de cobertura. Las garantías en valores se tomarán por el porcentaje del valor de mercado que se establezca en las normas complementarias del servicio, conforme con lo que al efecto resuelva el órgano administrativo facultado por la Junta Directiva del BCCR para esos fines.

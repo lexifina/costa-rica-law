@@ -1,3 +1,3 @@
 CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 232. Principios de la negociación. El emisor deberá garantizar a los inversionistas igualdad en las condiciones de acceso a la negociación de valores, y transparencia en los procedimientos de convocatoria, la asignación de ofertas, la difusión de los resultados de las negociaciones y la formación de precios, todo ello de conformidad con las condiciones que establezca para los procesos de negociación.
+DE LOS REGISTROS Y LA INFORMACIÓN
+Artículo 232. Irrevocabilidad de los registros. Las instrucciones de liquidación no podrán ser revocadas por su ordenante o por terceros a partir del cierre de la etapa de envío del archivo respectivo. Los listados y registros del servicio Liquidación de Mercados serán prueba de los movimientos registrados en dicho servicio.

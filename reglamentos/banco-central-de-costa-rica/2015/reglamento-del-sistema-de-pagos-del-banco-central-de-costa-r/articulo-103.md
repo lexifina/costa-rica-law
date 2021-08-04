@@ -1,1 +1,5 @@
-Artículo 103. Acreditación extemporánea o incorrecta de fondos. El BCCR no asumirá ninguna responsabilidad cuando una transacción no se acredite en la cuenta destino en el plazo definido por el servicio, o en caso de que la transacción no sea acreditada en la cuenta correcta. El BCCR se limitará a realizar las gestiones ante las instancias que corresponda para solicitar el reintegro o la acreditación correcta de los fondos.
+LIBRO VII
+SISTEMA DE INTERCONEXIÓN DE PAGOS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 103. Definición del servicio. Sistema de Interconexión de Pagos (SIPA) es el servicio de liquidación bruta en tiempo real, por medio del cual una entidad envía o recibe pagos transfronterizos, de conformidad con las regulaciones establecidas en las Normas Generales del SIPA.

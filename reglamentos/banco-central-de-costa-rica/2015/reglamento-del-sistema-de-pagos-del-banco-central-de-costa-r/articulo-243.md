@@ -1,5 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 243. Participantes del servicio. En el servicio MIL intervienen el BCCR y los asociados autorizados en las Regulaciones de Política Monetaria para operar en los mercados interbancarios.
-La participación del BCCR es con fines de ejecución de su política monetaria y de estabilización del sistema financiero nacional; además, la podrá realizar con operaciones de ventanilla, subastas o mediante operaciones directas.
-(Así reformado en sesión N° 5955 del 2 de setiembre del 2020)
+Artículo 243. Traspasos con cambio de titularidad. Las entidades de custodia sólo podrán realizar traspasos con cambio de titularidad cuando correspondan a operaciones no onerosas y siempre que las mismas se tramiten de acuerdo con el ordenamiento jurídico aplicable.

@@ -1,2 +1,1 @@
-Artículo 316. Porcentaje de cobertura. Las garantías en valores se tomarán por el porcentaje del valor de mercado que se establezca en las normas complementarias del servicio, conforme con lo que al efecto resuelva el órgano administrativo facultado por la Junta Directiva del BCCR para esos fines.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 315 al 316)
+Artículo 316. Estructura denominativa en circulación. Con el fin de garantizar la circulación de las denominaciones de acuerdo con las necesidades reales de la economía, la División Sistemas de Pago definirá la proporción, las denominaciones y el período en el que el BCCR entregará y recibirá numerario.

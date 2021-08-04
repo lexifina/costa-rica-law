@@ -1,5 +1,1 @@
-Artículo 133. Ciclo de operación del servicio con resultados multilaterales. El ciclo del servicio LSE se efectuará de conformidad con las siguientes etapas:
-a) Envío del resultado multilateral neto: el organizador de mercados envía un archivo electrónico, con la información de los resultados multilaterales netos producidos por un servicio particular que ofrece.
-Dentro de la información debe incluir el dato de la cantidad de transacciones que generaron el resultado multilateral. Las transacciones son irrevocables a partir del momento en que se cierra esta etapa.
-b) Retención de fondos: al cierre de la transmisión electrónica del resultado multilateral neto, el SIL efectúa la retención sobre la cuenta de fondos de cada participante; en caso que se presente una insuficiencia de fondos, la entidad deberá solventar su problema de liquidez dentro de los siguientes 30 minutos, si no se resuelve la insuficiencia de fondos, se aplicará lo estipulado al respecto en el libro NC-GR “Gestión de Riesgos”.
-c) Liquidación: al cierre de la etapa de retención de fondos, se efectúa la liquidación en firme con el mecanismo de liquidación multilateral neta.
+Artículo 133. Custodia de enteros por impuestos del Gobierno. El MHDA es responsable de custodiar los enteros recibidos de las entidades recaudadoras, que correspondan a impuestos a favor del Gobierno de Costa Rica.

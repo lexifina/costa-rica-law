@@ -1,5 +1,1 @@
-CAPÍTULO III
-DEL CICLO DEL SERVICIO
-Artículo 124. Ciclo de operación del servicio. El ciclo del servicio ILI opera con las siguientes etapas:
-a) Envío del resumen de recaudación: los asociados envían un archivo electrónico con el resumen de la recaudación, por tipo de impuesto. Las transacciones son irrevocables a partir del momento en que se cierra esta etapa.
-b) Liquidación: el SIL efectúa la liquidación en firme con el mecanismo de liquidación multilateral neta.
+Artículo 124. Débitos a tarjeta de crédito. Las entidades podrán habilitar por medio del servicio CDD el cobro a una tarjeta de crédito, en cuyo caso, la entidad destino podrá cobrar al cliente destino una comisión por dicha transacción.

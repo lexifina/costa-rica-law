@@ -1,2 +1,4 @@
-Artículo 311. Servicios a cargo de terceros. El asociado será responsable ante el BCCR por las acciones que realice la empresa que le brinda servicios de transporte o que negocie numerario por su cuenta.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 310 al 311)
+GESTIÓN DE NUMERARIO
+LIBRO XXVII
+NUMERARIO
+Artículo 311. Definición. Se denomina numerario a las monedas y billetes emitidos por el BCCR, como medio legal de pago en Costa Rica. Se distingue por ser un medio de cambio, una unidad de cuenta y un depósito de valor.

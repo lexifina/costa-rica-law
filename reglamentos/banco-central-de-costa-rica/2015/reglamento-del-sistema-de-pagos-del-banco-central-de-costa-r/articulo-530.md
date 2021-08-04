@@ -1,0 +1,1 @@
+Artículo 530. Revisión y ajuste de las tarifas y comisiones. La estructura de tarifas y comisiones del SINPE será revisada y ajustada, con base en la metodología aprobada por la Junta Directiva del BCCR. Las modificaciones a la estructura de tarifas y comisiones rigen a partir del mes siguiente a su aprobación y respectiva publicación en La Gaceta.

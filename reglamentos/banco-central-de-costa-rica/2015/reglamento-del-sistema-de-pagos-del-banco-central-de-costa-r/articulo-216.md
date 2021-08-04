@@ -1,5 +1,5 @@
-LIBRO XXI
-REGISTRO DE DEUDA EN DEPÓSITO
+LIBRO XVII
+REGISTRO DE EMISIONES
 CAPÍTULO I
 DEL SERVICIO
-Artículo 216. Definición del servicio. Registro de Deuda en Depósito (RDD) es el servicio por medio del cual se administra la deuda constituida mediante depósitos, por captaciones directas.
+Artículo 216. Definición del servicio. Se define Registro de Emisiones como el servicio por medio del cual se administran las emisiones de valores públicos anotados en cuenta, conforme con el Título VII de la Ley 7732.

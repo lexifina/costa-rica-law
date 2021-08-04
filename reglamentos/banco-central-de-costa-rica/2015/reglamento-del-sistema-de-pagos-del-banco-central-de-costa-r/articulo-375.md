@@ -1,7 +1,1 @@
-SEGURIDAD DEL SISTEMA DE PAGOS
-LIBRO XXXI
-ADMINISTRACIÓN DE ESQUEMAS DE SEGURIDAD
-CAPÍTULO I
-DEL SERVICIO
-Artículo 375. Definición del servicio. Administración de Esquemas de Seguridad (AES) es el servicio que facilita al BCCR y a los afiliados la administración y supervisión de la seguridad del SINPE.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 374 al 375)
+Artículo 375. Salidas de la cuenta de garantía. Las salidas de los valores depositados en la cuenta de valores en garantía deberán ser autorizadas previamente por el BCCR y estarán sujetas a que su trámite no origine un incumplimiento de los requerimientos mínimos de garantía a cargo del asociado ni deje al descubierto las obligaciones financieras que están siendo respaldadas con esas garantías.

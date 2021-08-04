@@ -1,2 +1,3 @@
-Artículo 247. Plazo de las operaciones. Las operaciones diferidas de liquidez serán pactadas de contado y tendrán un plazo de negociación entre 1 y 90 días naturales. Las operaciones diferidas a plazo se pactarán de contado con plazos de negociación superiores a 90 días naturales y hasta 4 años.
-(Así reformado en sesión N° 5955 del 2 de setiembre del 2020)
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 247. Participantes del servicio. En el servicio Exentos operan los inversores que aduzcan gozar de exención y las entidades de custodia en representación de estos, como solicitantes de la exención y; como responsables de la atención de las solicitudes de exención la Dirección General de Tributación del MHDA, por medio de las Administraciones Tributarias y la Dirección de Grandes contribuyentes. Además, operan los emisores, puestos de bolsa y agentes retenedores de impuestos para consultar los clientes exentos.

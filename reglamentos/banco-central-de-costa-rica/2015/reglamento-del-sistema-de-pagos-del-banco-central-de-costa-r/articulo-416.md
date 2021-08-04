@@ -1,4 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 416. Participantes del servicio. En el servicio ADA deben operar como entidad origen y destino los asociados que administren cuentas de fondos, y podrán operar como entidad origen todos los asociados y proveedores de servicios de pago del SINPE.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 415 al 416)
+Artículo 416. Uso del servicio. Cada afiliado debe utilizar el servicio AES para la administración interna de los usuarios del SINPE. Por su parte, el BCCR lo utilizará para registrar a cada afiliado los responsables de seguridad total autorizados y los servicios a los que tiene derecho, así como cualquier otro elemento de seguridad que se defina en la Serie de Normas y Procedimientos del SINPE.

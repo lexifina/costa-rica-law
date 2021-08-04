@@ -1,2 +1,1 @@
-Artículo 431. Prohibición de divulgación de la información. Los afiliados no deberán divulgar a terceros, el hecho de que se haya recopilado información por medio de este servicio, sea por iniciativa propia o por requerimiento de alguna autoridad, según lo estipulado en la Ley 8204 y su normativa conexa.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 430 a 431)
+Artículo 431. Definición de los servicios: Es el conjunto de servicios por medio de los cuales se gestiona la solicitud, emisión, entrega, renovación, revocación, custodia y verificación de certificados digitales, la autenticación de usuarios, la firma y validación de archivos y la emisión de certificados de estampas de tiempo.

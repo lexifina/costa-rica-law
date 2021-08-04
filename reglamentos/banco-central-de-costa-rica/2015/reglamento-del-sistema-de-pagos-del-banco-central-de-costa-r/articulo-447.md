@@ -1,2 +1,1 @@
-Artículo 447. Reclasificación de cuentas tradicionales. Los emisores podrán reclasificar cuentas de fondos tradicionales a CES, siempre que las mismas cumplan con los requisitos y las condiciones establecidas en el presente libro para dichas cuentas. En estos casos, los participantes deben garantizar la completitud de la información del cliente requerida para las CES.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 446 al 447)
+Artículo 447. Servicio de Estampado de Tiempo: Es el servicio a través del cual los suscriptores de las CA – SINPE, pueden solicitar a la Autoridad de Estampado de Tiempo (TSA – SINPE) la emisión de estampas de tiempo.

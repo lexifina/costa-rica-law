@@ -1,4 +1,3 @@
-CAPÍTULO XIV
-DE LA SALA ALTERNA DE OPERACIONES
-Artículo 360. Disponibilidad de la Sala Alterna de Operaciones. El BCCR tiene a disposición de los afiliados una Sala Alterna de Operación (SAO), para que puedan ejecutar sus procesos de operación en el SINPE cuando enfrenten alguna situación contingente que les imposibilite hacerlo desde sus oficinas.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 359 al 360)
+Artículo 360. Actividades garantizadas. Las garantías que rindan los asociados serán para respaldar las siguientes actividades:
+a) El cumplimiento de las obligaciones financieras contraídas con su participación en los mercados de negociación organizados por el BCCR, por medio del SINPE.
+b) Las facilidades crediticias que, como prestamista de última instancia, les otorgue el BCCR para solventar los problemas transitorios de liquidez que enfrenten con su participación en el Sistema de Pagos. Estas facilidades estarán disponibles únicamente para los asociados que participan en los servicios de liquidación multilateral neta del SINPE, con excepción de los servicios CCD y CDD.

@@ -1,4 +1,3 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 377. Participantes del servicio. En el servicio AES operan todos los afiliados del SINPE.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 376 al 377)
+CAPÍTULO VI
+DE LAS CONDICIONES DE LOS VALORES EN GARANTÍA
+Artículo 377. Características de los valores. Para constituir la garantía en valores se admitirán valores emitidos por el BCCR y el MHDA, que estén debidamente estandarizados y sean admitidos a cotización en un mercado organizado de bolsa. También podrán recibirse valores negociables de emisores no residentes que estén denominados en moneda extranjera, así como valores emitidos por las instituciones autónomas, conforme con las disposiciones que se establezcan en las normas complementarias del servicio y que determine el órgano administrativo designado por la Junta Directiva del BCCR para esos fines.

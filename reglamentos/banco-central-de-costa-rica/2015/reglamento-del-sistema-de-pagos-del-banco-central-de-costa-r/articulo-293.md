@@ -1,2 +1,1 @@
-Artículo 293. Atención de contingencias. Ante caso fortuito, fuerza mayor o eventos como corridas bancarias, el numerario depositado en las CAN a cargo de los asociados constituye el medio de provisión inmediato a la economía. La Custodia General del BCCR operará como última instancia de abastecimiento siempre y cuando el asociado correspondiente disponga de fondos en su cuenta y cumpla con las regulaciones definidas al respecto.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 292 al 293)
+Artículo 293. Competencias del BCCR. El BCCR tendrá acceso a la información de todas las operaciones que se oferten y negocien por medio del servicio, sin restricciones de ningún tipo.

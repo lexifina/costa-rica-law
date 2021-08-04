@@ -1,1 +1,3 @@
-Artículo 93. Débitos a tarjeta de crédito. Las entidades podrán habilitar por medio del servicio DTR el cobro a una tarjeta de crédito, en cuyo caso, la entidad destino podrá cobrar al cliente destino una comisión por la transacción.
+Artículo 93. Tipos de DTR. El servicio dispondrá de dos modalidades de transacciones:
+a) DTR reversible: requiere que el cliente origen realice la transacción de débito, utilizando como mecanismo de autenticación y firma, el que la entidad defina. Estas transacciones podrán ser objeto de un cobro revertido, de conformidad con las disposiciones establecidas en el servicio de Reclamaciones.
+b) DTR no reversible: requiere que el cliente origen realice la transacción de débito, utilizando como mecanismo de autenticación y firma, un certificado digital emitido por la Autoridad Certificadora del SINPE (CA-SINPE). Estas transacciones no podrán ser objeto de un cobro revertido.

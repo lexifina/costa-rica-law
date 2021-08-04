@@ -1,17 +1,1 @@
-CAPÍTULO III
-DEL CICLO DE NEGOCIACIÓN
-Artículo 238. Ciclo de operación. El ciclo del servicio Ventanilla de Valores opera con las siguientes etapas:
-a) Convocatoria de colocación: el emisor convoca a los inversionistas anunciando los códigos ISIN objeto de negociación, los montos máximos y mínimos permitidos por oferta, el precio de colocación de los valores y las reglas de asignación, así como cualquier otra información que considere relevante para el proceso de negociación.
-El anuncio de la convocatoria deberá realizarse como mínimo el día hábil anterior a la negociación.
-b) Recepción de ofertas: los inversionistas envían sus ofertas de negociación por medio del servicio, desde la hora definida por el emisor y hasta la hora de cierre de la recepción de ofertas del día de la negociación.
-El inversionista podrá modificar o eliminar sus ofertas mientras no se haya cerrado el periodo de
-recepción de ofertas. Las ofertas son irrevocables a partir del momento en que se cierra esta etapa, aun y cuando hayan sido presentadas a nombre de un tercero que desista de las mismas. Todas las ofertas son de tipo no competitivas en la que el participante establece el monto del valor que desea negociar y acepta el precio o rendimiento determinado por el emisor.
-c) Asignación de ofertas: las ofertas recibidas son aceptadas por el emisor, de conformidad con las
-condiciones de asignación anunciadas en la convocatoria. La hora para la asignación, así como para
-realizar la comunicación oficial de sus resultados, será la indicada en el anuncio de la convocatoria.
-Todas las ofertas no competitivas son aceptadas por el emisor.
-d) Distribución de ofertas: luego de cerrado el período de asignación y hasta la hora indicada para la
-distribución de ofertas, los inversionistas realizan la distribución del monto asignado sobre las cuentas de valores correspondientes.
-e) Liquidación de ofertas: las ofertas que resulten asignadas serán liquidadas de forma irrevocable, el día y la hora acordada, contra las cuentas de fondos de las entidades de custodia que, con la confirmación de la distribución, asumen esta responsabilidad y contra las cuentas administradas por el servicio Cuentas de Valores, mediante el mecanismo de entrega contra pago.
-Ante el rechazo de la distribución por parte de las entidades de custodia, el inversionista asume la liquidación de fondos por cuenta propia y la liquidación se realiza contra la cuenta de fondos que mantiene en el BCCR.
-Cuando la entidad responsable de la liquidación presente una insuficiencia de fondos que le imposibilite cubrir la totalidad de sus obligaciones financieras, la asignación final se hará hasta por el monto posible de liquidación y las ofertas serán liquidadas bajo el principio de “primera en tiempo, primera en derecho”, en el entendido de que para estos casos no aplica el criterio de asignación parcial de ofertas.
+Artículo 238. Horario de funcionamiento. El servicio Traspaso de Valores estará disponible para el registro de movimientos durante el horario bancario, y a modo de consulta las veinticuatro horas del día.

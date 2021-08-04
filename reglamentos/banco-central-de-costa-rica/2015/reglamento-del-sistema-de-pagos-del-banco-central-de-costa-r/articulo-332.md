@@ -1,4 +1,1 @@
-CAPÍTULO VI
-DE LAS CONDICIONES DE LOS VALORES EN GARANTÍA
-Artículo 332. Características de los valores. Para constituir la garantía en valores se admitirán valores emitidos por el BCCR y el MHDA, que estén debidamente estandarizados y sean admitidos a cotización en un mercado organizado de bolsa. También podrán recibirse valores negociables de emisores no residentes que estén denominados en moneda extranjera, así como valores emitidos por las instituciones autónomas, conforme con las disposiciones que se establezcan en las normas complementarias del servicio y que determine el órgano administrativo designado por la Junta Directiva del BCCR para esos fines.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 331 al 332)
+Artículo 332. Numerario custodiado por terceros. Los asociados serán responsables ante el BCCR en caso de que deleguen en empresas transportadoras de valores o en otras afines, la custodia del numerario depositado en las CAN. Asimismo, serán responsables de que tales empresas cumplan las regulaciones del servicio.

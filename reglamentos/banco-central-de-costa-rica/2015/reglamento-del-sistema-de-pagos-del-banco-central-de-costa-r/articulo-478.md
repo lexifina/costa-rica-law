@@ -1,4 +1,1 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 478. Obligatoriedad de uso del servicio. Los afiliados deberán utilizar el servicio REF para presentar todos los reclamos que procedan por concepto de débitos no autorizados o créditos no aplicados, por lo que la entidad destinataria no estará obligada a atender ningún reclamo presentado por otros medios.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 477 al 478)
+Artículo 478. De la naturaleza de las CES. Las CES 1 y 2 son creadas con el propósito de promover la inclusión financiera en el país. Las CES 3 tiene como objetivo la simplificación de trámites para los clientes; además, la facilidad de administración de estas cuentas para las entidades financieras supervisadas.

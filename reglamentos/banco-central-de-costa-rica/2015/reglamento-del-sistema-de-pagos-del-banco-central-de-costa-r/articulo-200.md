@@ -1,1 +1,1 @@
-Artículo 200. Incumplimiento de traspasos. Las instrucciones de traspaso que no cuenten con suficiencia de valores serán automáticamente incumplidas.
+Artículo 200. Manejo del saldo de las cuentas. El saldo de las cuentas de valores se mantiene por cantidad de valores para cada emisión y por el valor nominal del total de los valores anotados, siempre en la moneda que corresponda para la emisión.

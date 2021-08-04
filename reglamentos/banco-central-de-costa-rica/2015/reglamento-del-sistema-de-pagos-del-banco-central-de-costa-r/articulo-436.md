@@ -1,4 +1,1 @@
-CAPÍTULO III
-DEL REGISTRO DE CUENTAS
-Artículo 436. Registro de cuentas de fondos. El PUC se proveerá, en primera instancia, de la información de las cuentas de fondos enviada por las entidades financieras al SICVECA. Toda aquella información que no pueda ser suministrada por el SICVECA, deberá ser enviada por los participantes directamente al PUC.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 435 al 436)
+Artículo 436. Gestión de certificados. La validación presencial de la identidad y el registro de los suscriptores, así como el trámite de las solicitudes de emisión, revocación, renovación y entrega de los certificados de persona física es responsabilidad de las OR. Las obligaciones a las que se sujetan quienes obtengan un certificado de firma digital estarán consignadas en el respectivo Acuerdo de Suscriptor que deberá firmar el solicitante.

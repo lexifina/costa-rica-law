@@ -1,6 +1,1 @@
-LIBRO XXXVII
-RECLAMACIÓN DE FONDOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 471. Definición del servicio. Reclamación de Fondos (REF) es el servicio de liquidación bilateral bruta en tiempo real, por medio del cual los asociados pueden solicitar la devolución de fondos cobrados indebidamente a su cargo o a cargo de sus clientes. Por medio del servicio los afiliados podrán solicitar información sobre las transacciones no acreditadas en los plazos definidos por el marco normativo del SINPE.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 470 al 471)
+Artículo 471. Confidencialidad de la identidad de terceros. Los afiliados deberán manejar confidencialmente, la identidad de las personas que consulten en el servicio, con el propósito de no obstaculizar posibles investigaciones.

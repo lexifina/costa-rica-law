@@ -1,2 +1,3 @@
-Artículo 487. Información de otros sistemas de compensación y pago. En su función relacionada con la vigilancia del Sistema de Pagos, el BCCR administrará la información de todos aquellos sistemas de compensación y pago distintos del SINPE, que involucren la participación de cualquier entidad financiera del país.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 486 al 487)
+CAPÍTULO VI
+DEL ESQUEMA DE OPERACIÓN DEL SERVICIO
+Artículo 487. Reportes de información transaccional. Los participantes deben reportar mensualmente por medio de los sistemas de información habilitados por medio de SICVECA, el saldo, los montos acumulados de depósitos y demás datos que se determinen en la Serie de Normas y Procedimientos del SINPE, respecto a todas las cuentas registradas en el PUC. Aquellos participantes que no están sujetos a la supervisión de la SUGEF deberán reportar la información respectiva directamente al PUC.

@@ -1,4 +1,5 @@
-CAPÍTULO III
-DE LAS PROHIBICIONES Y RESPONSABILIDADES
-Artículo 429. Uso restringido de la información. Las autoridades competentes autorizadas para acceder esta información, deberán utilizarla únicamente para los fines establecidos en la Ley 8204 y su reglamento.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 428 al 429)
+LIBRO XXXIII
+SERVICIOS DE FIRMA DIGITAL
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 429. Marco Legal. Los servicios de firma digital (SFD) y sus participantes se rigen conforme a lo que establece la Ley de Certificados, Firmas Digitales y Documentos Electrónicos Nº8454, el reglamento a esta ley, la Política de Certificados para la Jerarquía Nacional de Certificadores Registrados, el presente reglamento y la Serie de Normas y Procedimientos del SINPE.

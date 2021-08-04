@@ -1,2 +1,1 @@
-Artículo 364. Obligatoriedad de la capacitación. La capacitación del BCCR es obligatoria para los usuarios de los servicios del SINPE. Cuando los candidatos no sean usuarios del SINPE, la capacitación se le impartirá sólo a quienes hayan sido propuestos por los propios afiliados.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 363 al 364)
+Artículo 364. Administración de las garantías. El BCCR es el responsable de administrar las garantías del Sistema de Pagos para lo cual podrá actuar como entidad de custodia, pudiendo delegar en un fiduciario o custodio estas funciones.

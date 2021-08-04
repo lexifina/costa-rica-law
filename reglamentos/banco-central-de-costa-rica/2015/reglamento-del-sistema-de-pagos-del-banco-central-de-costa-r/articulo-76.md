@@ -1,1 +1,5 @@
-Artículo 76. Responsabilidad de los participantes. El organizador del mercado es el único responsable por cualquier cargo indebido que se realice sobre las cuentas de fondos mantenidas por los asociados al SINPE producto de la compensación y liquidación de sus operaciones. Con la solicitud de suscripción al servicio, el representante legal de cada participante deberá hacer constar la liberación de responsabilidades del BCCR, con respecto a los procesos de compensación y liquidación de cargos indebidos.
+LIBRO III
+TRANSFERENCIA DE FONDOS INTERBANCARIA
+CAPÍTULO I
+DEL SERVICIO
+Artículo 76. Definición del servicio. Transferencia de Fondos Interbancaria (TFI) es el servicio de liquidación bruta en tiempo real, por medio del cual una entidad origen emite una instrucción para transferir dinero desde su cuenta en el BCCR a la cuenta de fondos de una entidad destino en el BCCR.

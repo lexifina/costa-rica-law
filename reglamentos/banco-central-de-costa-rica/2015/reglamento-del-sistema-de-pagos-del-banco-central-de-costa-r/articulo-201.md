@@ -1,5 +1,1 @@
-LIBRO XIX
-EXENTOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 201. Definición del servicio. Exentos es el servicio por medio del cual se gestiona la solicitud, aprobación y registro de la exoneración de la retención del impuesto sobre la renta que recae sobre los rendimientos generados por la inversiones en títulos valores.
+Artículo 201. Administración de las cuentas de terceros. La administración de las cuentas de terceros estará a cargo de las entidades de custodia, las que podrán abrir, suspender y cerrar cuentas.

@@ -1,2 +1,3 @@
-Artículo 265. Cobro del margen de intermediación cambiaria. El BCCR cobrará diariamente, en forma automática y con cargo a la cuenta de fondos de las entidades autorizadas, el monto que por concepto de margen de intermediación cambiaria corresponda de acuerdo con el Reglamento para las Operaciones Cambiarias de Contado.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 264 al 265)
+CAPÍTULO IV
+DEL REGISTRO DE LA DEUDA
+Artículo 265. Orden de Inversión. El inversionista por medio de los servicios de captación envía la orden de inversión, con la información de la operación por constituirse como depósito y por liquidar en las cuentas de fondos.

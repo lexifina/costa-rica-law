@@ -1,1 +1,1 @@
-Artículo 74. Aspectos a considerar en las normas. Las normas internas del organizador de un mercado deberán propiciar la eficiencia y seguridad del sistema, así como el desarrollo competitivo de los servicios que se presten.
+Artículo 74. Requerimientos operativos. Como parte de los procesos de compensación y liquidación, el BCCR podrá solicitar al organizador del mercado el detalle de las transacciones que le garanticen atender adecuadamente los riesgos que se deriven de esos procesos con exposiciones sobre las cuentas de fondos de las entidades asociadas al SINPE.

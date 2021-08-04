@@ -1,2 +1,1 @@
-Artículo 498. Confidencialidad de la información. La información a la que acceda el participante con las consultas deberá ser tratada con un carácter confidencial, debiendo utilizarla el participante con los cuidados y controles necesarios para evitar accesos no autorizados por parte de terceros.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 497 al 498)
+Artículo 498. Prescripción del reclamo. El periodo para ejercer el reclamo de una transacción prescribe después de los 30 días naturales de su liquidación, por lo que a partir de la expiración de este plazo se considera finalizada y no podrá ser sujeta de reclamación mediante el SINPE.

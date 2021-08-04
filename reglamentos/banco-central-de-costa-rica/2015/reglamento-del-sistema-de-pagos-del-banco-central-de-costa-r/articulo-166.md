@@ -1,3 +1,3 @@
-CAPÍTULO V
-DE LAS RESPONSABILIDADES
-Artículo 166. Registro de pignoraciones. Las entidades de custodia deberán registrar en las cuentas de valores de terceros que mantengan abiertas en el servicio, las pignoraciones y despignoraciones que ordenen las autoridades judiciales o que se deban efectuar en virtud de la constitución de una garantía. Igual responsabilidad corresponde al BCCR con las anotaciones en las cuentas propias de los participantes.
+CAPÍTULO III
+DE LOS COMITES INTERINSTITUCIONALES
+Artículo 166. Gestión de los comités interinstitucionales. El Comité Director y el Comité Coordinador, constituidos mediante la Cláusula Segunda del CONVENIO DE COOPERACIÓN PARA EL DESARROLLO DEL PROYECTO SISTEMA DE PAGO ELECTRÓNICO EN EL TRANSPORTE PÚBLICO REMUNERADO DE PERSONAS, ENTRE EL MINISTERIO DE OBRAS PÚBLICAS Y TRANSPORTES, EL CONSEJO DE TRANSPORTE PÚBLICO, EL INSTITUTO COSTARRICENSE DE FERROCARRILES, LA AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS Y EL BANCO CENTRAL DE COSTA RICA, suscrito por las partes el 2 de febrero del 2017, conforme con las funciones definidas en el citado convenio para la gestión de cada uno de dichos órganos podrán, si así lo deciden voluntariamente, colaborar con el Banco Central asumiendo conjuntamente la coordinación interinstitucional para el desarrollo y la masificación nacional de SINPE-TP.

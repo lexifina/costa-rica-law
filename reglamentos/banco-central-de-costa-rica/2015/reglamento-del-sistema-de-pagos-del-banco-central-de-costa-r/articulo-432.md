@@ -1,2 +1,1 @@
-Artículo 432. Confidencialidad de la identidad de terceros. Los afiliados deberán manejar confidencialmente, la identidad de las personas que consulten en el servicio, con el propósito de no obstaculizar posibles investigaciones.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 431 a 432)
+Artículo 432. Uso de los certificados. El BCCR no es responsable por las consecuencias que se deriven del mal uso o de la ausencia o incorrecta validación de los certificados. Las partes que los utilizan deben validar los certificados antes de confiar en ellos y deben utilizarlos solamente en aplicaciones de negocio autorizadas y con funciones criptográficas apropiadas, conforme al marco regulatorio y técnico aplicable.

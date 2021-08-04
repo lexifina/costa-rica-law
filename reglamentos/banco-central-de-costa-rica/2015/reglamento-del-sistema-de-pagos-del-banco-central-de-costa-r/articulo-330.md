@@ -1,2 +1,3 @@
-Artículo 330. Salidas de la cuenta de garantía. Las salidas de los valores depositados en la cuenta de valores en garantía, deberán ser autorizadas previamente por el BCCR y estarán sujetas a que su trámite no origine un incumplimiento de los requerimientos mínimos de garantía a cargo del asociado ni deje al descubierto las obligaciones financieras que están siendo respaldadas con esas garantías.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 329 al 330)
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES DE LAS ENTIDADES PARTICIPANTES
+Artículo 330. Responsabilidad por el numerario. Los fondos que mantienen los asociados en sus cuentas en el BCCR responderán, como garantía por el valor monetario del numerario depositado en las CAN.

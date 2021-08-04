@@ -1,2 +1,1 @@
-Artículo 266. Gestión Riesgo Operativo. Los intermediarios cambiarios deberán utilizar los parámetros de gestión de riesgo operativo disponibles en el servicio; en el caso del resto de participantes, su uso será obligatorio partir de que el BCCR así lo determine y lo comunique por medio de las normas complementarias respectivas.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 265 al 266)
+Artículo 266. Aceptación o rechazo. El Servicio confirma en tiempo real y de manera automática, la aceptación o rechazo de la orden de inversión.

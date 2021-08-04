@@ -1,7 +1,3 @@
-CAPÍTULO V
-DEL CICLO DEL SERVICIO
-Artículo 512. Del ciclo de operación del servicio. El ciclo del servicio TCS opera con las siguientes etapas:
-a) Cálculo de las tarifas y comisiones: el primer día hábil de cada mes y con base en los registros de las transacciones del mes anterior, el SINPE calcula el multilateral neto para determinar el monto a cargo de cada afiliado.
-Para el cálculo de las tarifas y comisiones por el uso de la plataforma del SINPE, se computarán todas las transacciones enviadas. Para determinar las comisiones interbancarias, serán excluidas las transacciones no concluidas exitosamente por problemas atribuibles a la entidad destino.
-b) Liquidación: el SIL efectúa la liquidación en firme con el mecanismo de liquidación multilateral neta.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 511 al 512)
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 512. Solicitudes de información. El BCCR puede solicitar la información que considere pertinente para el adecuado cumplimiento de su función rectora del sistema de pagos costarricense. Esta información la utilizará tanto para fines estadísticos como para la toma de decisiones relacionadas con el desarrollo y modernización del sistema de pagos costarricense. Los procesos implementados por el BCCR para la solicitud de información, tales como encuestas u otros instrumentos, deben ser informados a las entidades por los medios de comunicación oficiales, indicando periodicidad y plazos de entrega, entre otros.

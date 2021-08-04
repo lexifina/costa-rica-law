@@ -1,3 +1,1 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 207. Del registro oportuno. Las entidades inversoras que aduzcan gozar de exención son responsables del registro oportuno de la solicitud de exención, para evitar el perjuicio por periodos de exoneración al descubierto.
+Artículo 207. Liquidación de valores pignorados. Los valores que a su fecha de vencimiento se encuentren pignorados, se liquidarán en la cuenta que corresponda para cada caso en particular, conforme con las instrucciones establecidas para la pignoración.

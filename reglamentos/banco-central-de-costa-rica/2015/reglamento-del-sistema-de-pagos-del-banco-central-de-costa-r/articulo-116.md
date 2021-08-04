@@ -1,5 +1,3 @@
-LIBRO XI
-COMPENSACIÓN DE DÉBITOS DIRECTOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 116. Definición del servicio. Compensación de Débito Directo (CDD) es el servicio de compensación multilateral neta, por medio del cual una entidad origen envía una instrucción de cobro propia o de su cliente, a una entidad destino para que se debite una cuenta de un cliente previamente domiciliada por el cliente destino, en caso que corresponda.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 116. Participantes del servicio. En el servicio COV puede operar como entidad origen o destino cualquiera de los asociados.

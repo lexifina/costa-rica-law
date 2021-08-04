@@ -1,0 +1,1 @@
+Artículo 517. Ajuste automático de tarifas. Las tarifas definidas en el presente reglamento para este servicio serán ajustadas automáticamente conforme con lo que establezcan los convenios de intercambio de información que suscriba el BCCR con el Tribunal Supremo de Elecciones.

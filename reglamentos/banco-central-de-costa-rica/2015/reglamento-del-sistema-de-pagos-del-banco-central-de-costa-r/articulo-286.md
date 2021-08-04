@@ -1,4 +1,5 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES DE LAS ENTIDADES PARTICIPANTES
-Artículo 286. Responsabilidad por el numerario. Los fondos que mantienen los asociados en sus cuentas en el BCCR, responderán, en la moneda correspondiente, como garantía por el valor monetario del numerario depositado en las CAN.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 285 al 286)
+LIBRO XXV
+MERCADO INTEGRADO DE LIQUIDEZ
+CAPÍTULO I
+DEL SERVICIO
+Artículo 286. Definición del servicio. Mercado Integrado de Liquidez (MIL) es el servicio por medio del cual el BCCR controla la liquidez del sistema financiero, y los demás participantes realizan operaciones financieras para administrar sus posiciones de liquidez.

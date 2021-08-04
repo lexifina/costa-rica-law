@@ -1,1 +1,1 @@
-Artículo 101. Horario del servicio. El servicio SIP opera únicamente durante los días hábiles definidos en sus normas complementarias del servicio.
+Artículo 101. Riesgo de cobro revertido. Las entidades deberán hacer una valoración del riesgo que implica proveer este servicio de cobro a sus clientes, dada la potestad que tiene el cliente de realizar un cobro revertido, pudiendo tomar las previsiones que considere convenientes.

@@ -1,2 +1,3 @@
-Artículo 397. Gestión de certificados. La validación presencial de la identidad y el registro de los suscriptores, así como el trámite de las solicitudes de emisión, revocación, renovación y entrega de los certificados de persona física es responsabilidad de las OR. Las obligaciones a las que se sujetan quienes obtengan un certificado de firma digital estarán consignadas en el respectivo Acuerdo de Suscriptor que deberá firmar el solicitante.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 396 al 397)
+CAPÍTULO XI
+DE LOS MECANISMOS DE EXCLUSIÓN PARA LA LIQUIDACIÓN MULTILATERAL NETA
+Artículo 397. Exclusiones por insuficiencia de fondos. Un afiliado será excluido de la liquidación de un multilateral neto cuando no pueda pagar el débito cobrado en su contra, o cuando tampoco posea garantías suficientes para que el BCCR le otorgue un crédito intradiario que le permita solventar la insuficiencia.

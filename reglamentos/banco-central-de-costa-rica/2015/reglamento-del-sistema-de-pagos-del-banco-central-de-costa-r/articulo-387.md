@@ -1,2 +1,3 @@
-Artículo 387. Diseño de la estructura de seguridad. Los afiliados son responsables de implementar una estructura de seguridad que incorpore los elementos que contempla el servicio AES, tales como: designación de RST, designación de RSP, asignación de derechos a usuarios y demás aspectos relacionados con la seguridad del sistema. Dicha estructura deberá implementarse de conformidad con las disposiciones definidas en las normas complementarias del servicio y estar detallada en un documento oficial del afiliado.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 386 al 387)
+Artículo 387. Orden de ejecución de garantías. En caso de incumplimiento de alguna operación que amerite la ejecución de una garantía, el BCCR procederá con el siguiente orden de ejecución:
+a) Primero: valores traspasados a la cuenta de garantía, en la misma moneda de la operación incumplida.
+b) Segundo: valores traspasados a la cuenta de garantía, en una moneda distinta de la moneda de la operación incumplida.

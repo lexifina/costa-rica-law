@@ -1,4 +1,7 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 495. Participantes. Podrá operar en el servicio Consulta de Identificación Ciudadana cualquier asociado del SINPE que requiera la consulta de los datos demográficos, foto y firma de los ciudadanos costarricenses, en virtud de las necesidades de validación de la identidad de sus clientes durante el trámite de una transacción o la prestación de un servicio.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 494 al 495)
+RECLAMACIÓN POR DÉBITOS NO AUTORIZADOS
+Artículo 495. Ciclo de operación para débitos no autorizados. El ciclo de reclamación por débitos no autorizados en los servicios CDD y DTR (modalidad DTR reversible), opera con las siguientes etapas:
+a) Envío del cobro revertido: la entidad origen del reclamo emite una instrucción para que se debiten los fondos reclamados de la cuenta de la entidad destino del reclamo. La instrucción deberá especificar el número de referencia del cobro respectivo.
+El SINPE valida en tiempo real que la transacción reclamada haya sido procesada previamente por el sistema, que cumpla con el plazo establecido para realizar el reclamo y que los fondos de la transacción no hayan sido devueltos previamente.
+b) Notificación del cobro revertido: las instrucciones de cobro revertido recibidas, cuya validación sea exitosa, serán comunicadas en tiempo real a la entidad destino del reclamo. Con base en la información recibida, la entidad destino del reclamo podrá debitar la cuenta IBAN del cliente destino, informando a este sobre el reclamo tramitado.
+c) Liquidación: el SIL efectúa la liquidación con el mecanismo de liquidación multilateral neta en el horario detallado en la Serie de Normas y Procedimientos del SINPE.
+d) Acreditación de Fondos: la entidad origen del reclamo acredita en la cuenta del cliente el monto de los débitos reclamados, después de la liquidación en BCCR, de conformidad con el horario detallado en la Serie de Normas y Procedimientos del SINPE.

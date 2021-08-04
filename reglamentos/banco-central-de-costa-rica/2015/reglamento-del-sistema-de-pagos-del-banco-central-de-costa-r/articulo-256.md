@@ -1,4 +1,3 @@
-CAPÍTULO VI
-DE LAS SUSPENSIONES
-Artículo 256. Suspensión de la participación. En caso de incumplimiento de las responsabilidades que asume con su participación en el servicio, el BCCR, podrá suspender la condición de participante para la entidad que incumple, quedando por tanto imposibilitada para participar en el servicio por un periodo de tres meses la primera vez y de seis meses cuando incurra en una reincidencia dentro de un mismo año calendario.
-(Así adicionado en sesión N° 5955 del 2 de setiembre del 2020)
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 256. Participantes del servicio. En el servicio Captación de Fondos opera el BCCR y el MHDA como receptores de las inversiones y depósitos, y podrán operar como inversionistas las entidades asociadas al SINPE, de conformidad con las condiciones que el emisor respectivo establezca para las negociaciones.

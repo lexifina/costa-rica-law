@@ -1,2 +1,13 @@
-Artículo 275. Canje de numerario. Los asociados a los que el BCCR entregue numerario nuevo o les reciba numerario deteriorado, deben ofrecer el servicio de canje de numerario al público; ya sea de deteriorado por circulable; de billete por moneda o viceversa. Para tal efecto, podrán cobrar una comisión por la prestación de este servicio.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 274 al 275)
+CAPÍTULO III
+DEL CICLO DE NEGOCIACIÓN
+Artículo 275. Ciclo de operación.
+El ciclo del servicio opera con las siguientes etapas:
+a) Convocatoria de negociación: el emisor convoca a los inversionistas anunciando los códigos ISIN objeto de negociación, los montos máximos y mínimos permitidos por tipo de oferta, las reglas de asignación y cualquier otra información que considere relevante para el proceso de negociación.
+El anuncio de la convocatoria deberá realizarse como mínimo el día hábil anterior a la negociación.
+b) Recepción de ofertas: los inversionistas envían sus ofertas de negociación por medio del servicio, desde la hora definida por el emisor y hasta la hora de cierre de la recepción de ofertas indicadas en el anuncio de la convocatoria. Dichas ofertas quedarán disponibles para que el emisor, luego de cerrado el periodo de recepción de ofertas, proceda con la asignación respectiva.
+El inversionista podrá modificar o eliminar sus ofertas mientras no se haya cerrado el periodo de recepción de ofertas. Las ofertas son irrevocables a partir del momento en que se cierra esta etapa, aun y cuando hayan sido presentadas a nombre de un tercero que desista de las mismas.
+c) Asignación de ofertas: las ofertas recibidas son asignadas por el emisor de conformidad con las condiciones de asignación anunciadas en la convocatoria. Se tendrá una hora límite para la asignación, así como para realizar la comunicación oficial de sus resultados el día de la negociación.
+d) Distribución de ofertas: luego de cerrado el período de asignación y hasta la hora establecida, los inversionistas realizan la distribución del monto asignado sobre las cuentas de valores correspondientes.
+e) Liquidación: las ofertas que resulten asignadas serán liquidadas de forma irrevocable y en firme, el día y la hora acordada, contra las cuentas de fondos de las entidades de custodia que, con la confirmación de la distribución, asumen esta responsabilidad y contra las cuentas administradas por el servicio Cuentas de Valores, mediante el mecanismo de entrega contra pago.
+Ante el rechazo de la distribución por parte de las entidades de custodia, el inversionista asume la liquidación de fondos por cuenta propia y la liquidación se realiza contra la cuenta de fondos que mantiene en el BCCR.
+Cuando la entidad responsable de la liquidación presente una insuficiencia de fondos que le imposibilite cubrir la totalidad de sus obligaciones financieras, la asignación final se hará hasta por el monto posible de liquidación, considerando primero aquellas ofertas que tengan un menor costo financiero para el emisor, en el entendido de que para estos casos no aplica el criterio de asignación parcial de ofertas.

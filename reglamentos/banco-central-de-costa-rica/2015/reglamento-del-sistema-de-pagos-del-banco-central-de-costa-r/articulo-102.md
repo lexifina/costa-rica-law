@@ -1,3 +1,1 @@
-CAPÍTULO VIII
-DE LAS RESPONSABILIDADES
-Artículo 102. Acreditación de los pagos. La entidad destino deberá mantener en sus plataformas tecnológicas una funcionalidad que realice en forma automática las validaciones necesarias para determinar la aceptación o devolución de los pagos recibidos, de modo que su acreditación sobre la cuenta IBAN destino se liquide en tiempo real y sin intervenciones manuales.
+Artículo 102. Reclamo de transacciones. La entidad destino deberá proveerle a su cliente una funcionalidad automática por medio de sus distintos canales (banca web, banca móvil, plataforma de servicios o cualquier otra disponible), de modo que este pueda ordenar por sí mismo un cobro revertido, en caso de inconformidad con el cobro de una transacción de DTR Reversible aplicada sobre su cuenta.

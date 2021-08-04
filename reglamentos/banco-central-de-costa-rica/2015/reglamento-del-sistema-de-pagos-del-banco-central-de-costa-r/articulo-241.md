@@ -1,1 +1,3 @@
-Artículo 241. Suficiencia de fondos. Los inversionistas son responsables de gestionar la disposición de los fondos requeridos para que las entidades de custodia que actúen como miembros liquidadores de sus inversiones o de mantener en su cuenta los fondos necesarios para que el emisor pueda liquidar en tiempo y forma las colocaciones realizadas. El incumplimiento en la liquidación de una oferta implicará la suspensión automática de la condición de inversionista en el servicio, por un período de tres meses la primera vez y de seis meses cuando incurra en una reincidencia dentro de un mismo año calendario.
+CAPÍTULO IV
+DE LOS TRASPASOS
+Artículo 241. Irrevocabilidad del registro. Las instrucciones de traspaso ingresadas por los participantes no podrán ser revocados por su ordenante o por terceros a partir del momento de su aceptación. Los listados y registros del servicio Traspaso de Valores serán prueba de los movimientos registrados en dicho servicio.

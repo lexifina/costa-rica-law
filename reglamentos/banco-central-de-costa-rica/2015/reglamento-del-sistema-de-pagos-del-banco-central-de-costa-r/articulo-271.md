@@ -1,2 +1,1 @@
-Artículo 271. Incumplimiento en el procesamiento. En caso de que durante la revisión de calidad que ejecuta el BCCR a los depósitos de numerario que reciba de los asociados o al que mantienen en las CAN, identifique más de un 5 % de una categoría diferente a la indicada en la boleta respectiva, o billete falso, aplicará la tarifa que para cada uno de esos casos establece el presente reglamento.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 270 al 271)
+Artículo 271. Emisión de constancias. El emisor emitirá constancias de titularidad de inversiones registradas de los participantes, a solicitud de ellos o de una autoridad competente.

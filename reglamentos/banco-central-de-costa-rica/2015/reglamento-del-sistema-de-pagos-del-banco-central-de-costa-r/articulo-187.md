@@ -1,13 +1,8 @@
-CAPÍTULO III
-DEL CICLO DEL SERVICIO
-Artículo 187. Ciclo de operación del servicio. El ciclo del servicio, en lo que respecta a la liquidación de mercados, opera con las siguientes etapas:
-a) Envío del archivo de liquidación: el emisor o la entidad de compensación y liquidación, envía un archivo electrónico con la información de las operaciones por liquidar en las cuentas de fondos y en las cuentas de valores. El servicio no aceptará el envío de los archivos que presenten inconsistencias en los números de las cuentas de valores, los códigos ISIN o los saldos de los valores registrados en el servicio Registro de Emisiones. Las transacciones son irrevocables a partir del momento en que se cierra esta etapa.
-b) Bloqueo de valores: el SIL realiza el bloqueo de los valores detallados en el archivo de liquidación
-Cuando el bloqueo no sea posible por insuficiencia de valores en las cuentas administradas por el servicio Cuentas de Valores, el SIL bloqueará el saldo disponible en la cuenta de valores y notificará la inconsistencia a la entidad de compensación y liquidación para que la resuelva.
-Tratándose de archivos que únicamente incluyen movimientos de fondos, el ciclo de operación no considera la etapa de bloqueo de valores.
-c) Retención de fondos: para procesar la liquidación, luego de bloquear los valores el SIL retiene los fondos necesarios a los miembros liquidadores que figuran como deudores.
-Cuando la retención se imposibilite por insuficiencia de fondos, el SIL bloqueará el saldo disponible en la cuenta de fondos y notificará la inconsistencia a la entidad de compensación y liquidación para que la resuelva.
-Tratándose de archivos que únicamente incluyen movimientos con valores, el ciclo de operación no
-toma en cuenta la retención de fondos.
-d) Liquidación de instrucciones: el SIL efectúa la liquidación en firme e irrevocable de las instrucciones bajo los mecanismos de entrega contra pago y de liquidación multilateral neta o liquidación bilateral bruta, según corresponda.
-En caso que se presente una inconsistencia de fondos o de valores durante el proceso de liquidación, se podrá excluir los registros respectivos y realizar liquidaciones posteriores, a más tardar al cierre del horario bancario.
+Artículo 187. Responsabilidades de los cobradores. Son responsabilidades de los cobradores del transporte público, las siguientes:
+a) Cumplir con los trámites que establezcan el CTP o INCOFER, según corresponda en cada caso, para la emisión de las credenciales que los identifique como cobrador en SINPE-TP.
+b) Respetar los procedimientos e instructivos de SINPE-TP.
+c) Registrar en SINPE-TP la apertura y cierre de sus turnos de trabajo (gestión de cobro), así como la demás información que requiera el sistema para su funcionamiento, mediante su credencial oficial o con cualquier otro mecanismo de uso contingente autorizado.
+d) Velar por la integridad física y el uso correcto de los validadores instalados en las unidades de transporte que les son asignadas para sus labores, o de los dispositivos móviles que utilicen para tramitar o supervisar el cobro de tarifas.
+e) Reportar oportunamente al operador para el cual laboran cualquier anomalía, incidente, desperfecto o fallo que sufra el validador o dispositivo móvil durante su turno de trabajo.
+f) Cuando corresponda, mantenerse suscritos en el canal de comunicación móvil de SINPE-TP.
+g) Aprobar los cursos de certificación que disponga el BCCR para operar con SINPE-TP.

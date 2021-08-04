@@ -1,6 +1,1 @@
-LIBRO XXVII
-CUSTODIA DE NUMERARIO
-CAPÍTULO I
-DEL SERVICIO
-Artículo 277. Definición del servicio. Las Custodias Auxiliares de Numerario (CAN) constituyen el conjunto de procesos operativos, la logística y la plataforma electrónica en la que operan las Custodias de Numerario. Mediante este servicio el BCCR atiende los requerimientos de numerario de los asociados y mantiene parte de su disponibilidad de numerario (colones y dólares estadounidenses) en bóvedas o espacios acondicionados por tales entidades bajo absoluta responsabilidad de estas, para usarlo según el BCCR lo determine.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 276 al 277)
+Artículo 277. Comunicación a los inversionistas. El emisor deberá comunicar a cada inversionista el resultado de sus negociaciones, así como el detalle de las ofertas asignadas y rechazadas, el criterio de asignación utilizado y cualquier otra información de carácter relevante; esto además de las comunicaciones que deben realizar mediante hechos relevantes, de conformidad con lo establecido por la SUGEVAL a los emisores de valores.

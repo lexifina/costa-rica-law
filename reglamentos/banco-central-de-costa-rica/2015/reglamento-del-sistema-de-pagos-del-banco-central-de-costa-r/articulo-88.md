@@ -1,1 +1,3 @@
-Artículo 88. Horario del servicio. El servicio estará disponible durante el horario definido en las normas complementarias del servicio, el cual estará sujeto además de los horarios y días laborales del BCCR, a los horarios que se utilizan en los mercados en que operan los bancos corresponsales del BCCR.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 88. Participantes del servicio. En el servicio TCC podrán operar todos los afiliados.

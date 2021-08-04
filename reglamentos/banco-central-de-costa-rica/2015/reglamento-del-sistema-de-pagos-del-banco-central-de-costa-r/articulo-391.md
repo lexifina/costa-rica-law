@@ -1,2 +1,1 @@
-Artículo 391. Participantes del servicio. En el servicio Firma Digital operan los asociados del SINPE como Oficinas de Registro y los suscriptores de certificados digitales como consumidores de los servicios de firma digital.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 390 al 391)
+Artículo 391. Aplicación de sobrantes. Cuando la ejecución de una garantía produzca algún sobrante, luego de haber liquidado satisfactoriamente las obligaciones financieras incumplidas, el BCCR lo acreditará en la cuenta de fondos de la entidad titular de la garantía ejecutada.

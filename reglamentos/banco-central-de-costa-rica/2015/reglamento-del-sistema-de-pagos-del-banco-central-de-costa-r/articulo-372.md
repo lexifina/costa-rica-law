@@ -1,4 +1,1 @@
-CAPÍTULO III
-DEL ESQUEMA DE OPERACIÓN
-Artículo 372. Carácter exclusivo del servicio. Todo servicio financiero o mercado que involucre la liquidación de fondos y valores, debe ser liquidado por medio del SIL.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 371 al 372)
+Artículo 372. Retención de vencimientos. Cuando sea necesario liquidar vencimientos que provoquen que el requerimiento de garantía descienda por debajo de su nivel mínimo, los vencimientos se mantendrán retenidos en una cuenta de fondos en garantía y no serán girados hasta que el acreedor aporte nuevos valores que restituyan el faltante de garantía.

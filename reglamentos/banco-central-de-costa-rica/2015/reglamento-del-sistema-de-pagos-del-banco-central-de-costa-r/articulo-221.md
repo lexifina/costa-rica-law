@@ -1,3 +1,1 @@
-CAPÍTULO IV
-DEL REGISTRO DE LA DEUDA
-Artículo 221. Orden de Inversión. El inversionista por medio de los servicio de captación envía la orden de inversión, con la información de la operación por constituirse como depósito y por liquidar en las cuentas de fondos.
+Artículo 221. Uso del código ISIN. Cada emisión de valores debe estar identificada con un código ISIN único y será registrada por su valor facial, conforme con la cantidad de valores que la compongan.

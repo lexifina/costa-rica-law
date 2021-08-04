@@ -1,2 +1,5 @@
-Artículo 486. Administración de información. El servicio ISP administrará la información de las transacciones realizadas por los afiliados en todos los servicios financieros del SINPE y la generada a partir de los diferentes medios de pago ofrecidos por el Sistema Financiero Nacional.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 485 al 486)
+LIBRO XXXV
+CONTROL Y SEGUIMIENTO DE OPERACIONES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 486. Reclasificación de cuentas tradicionales. Los emisores podrán reclasificar cuentas de fondos tradicionales a CES, siempre que las mismas cumplan con los requisitos y las condiciones establecidas en el presente libro para dichas cuentas. En estos casos, los participantes deben garantizar la completitud de la información del cliente, requerida para las CES.

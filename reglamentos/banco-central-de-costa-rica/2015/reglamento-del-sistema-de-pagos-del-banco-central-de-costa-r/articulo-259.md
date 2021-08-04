@@ -1,6 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES DE MONEX-CONTINUO
-Artículo 259. Participantes del servicio. En este servicio operan el BCCR y los asociados autorizados para actuar como intermediarios cambiarios, conforme con las disposiciones contenidas en el Reglamento para las Operaciones Cambiarias de Contado.
-Podrán operar también los asociados del SINPE que, no siendo entidades autorizadas para realizar intermediación cambiaria, se suscriban al mismo con el propósito de satisfacer sus necesidades propias de transacción de divisas.
-La Junta Directiva del BCCR determinará por acuerdo el tipo de personas físicas y jurídicas que pueden operar, además de las entidades autorizadas que lo hacen por medio del SINPE.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 258 al 259)
+Artículo 259. Conciliación de operaciones. Los inversionistas son responsables de conciliar diariamente el estado de sus operaciones y de comunicar por escrito al emisor respectivo o a quien lo represente cualquier inconsistencia a más tardar al día hábil siguiente.

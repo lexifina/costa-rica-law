@@ -1,2 +1,1 @@
-Artículo 388. Supervisión de la estructura de seguridad. El BCCR como vigilante y los órganos de supervisión, deberán realizar revisiones periódicas sobre la calidad y completitud del documento referido en el artículo anterior, así como de su aplicación en la operación del SINPE por el afiliado. El BCCR comunicará los hallazgos de sus evaluaciones a la gerencia general de la entidad, con las recomendaciones pertinentes.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 387 al 388)
+Artículo 388. Criterio de días al vencimiento para la ejecución. En caso de ejecución de valores, se ejecutarán primero las que a la fecha de liquidación tengan la menor cantidad de días al vencimiento.

@@ -1,2 +1,3 @@
-Artículo 346. Aplicación de sobrantes. Cuando la ejecución de una garantía produzca algún sobrante, luego de haber liquidado satisfactoriamente las obligaciones financieras incumplidas, el BCCR lo acreditará en la cuenta de fondos de la entidad titular de la garantía ejecutada.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 345 al 346)
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 346. Participantes del servicio. En el servicio MEN podrán operar el BCCR, los asociados y las empresas transportadoras de valores autorizadas por tales asociados para prestar servicios de transporte o negociar numerario por su cuenta.

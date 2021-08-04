@@ -1,1 +1,1 @@
-Artículo 63. Apertura de cuentas. El afiliado podrá mantener solo una cuenta en moneda nacional y una cuenta por tipo de moneda extranjera, salvo cuando medie autorización expresa de la Dirección de la División Sistema de Pagos para abrir cuentas adicionales.
+Artículo 63. Inembargabilidad de las cuentas. De conformidad con lo establecido en la Ley 8876, las cuentas de fondos mantenidas por los afiliados en el BCCR son inembargables.

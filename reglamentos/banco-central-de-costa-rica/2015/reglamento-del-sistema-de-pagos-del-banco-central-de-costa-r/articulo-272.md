@@ -1,2 +1,5 @@
-Artículo 272. Requerimiento para la circulación del numerario. Las entidades deberán procesar el numerario previo a su puesta en circulación, según los criterios definidos en este reglamento. El personal que participe en estas labores deberá poseer la certificación del BCCR que lo acredite para realizar las labores de procesamiento. Los equipos que utilicen para el procesamiento, deberán someterse a las pruebas técnicas establecidas.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 271 al 272)
+LIBRO XXIII
+SUBASTA DE VALORES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 272. Definición del servicio. Subasta de Valores es el servicio por medio del cual se negocian valores estandarizados por medio de subasta.

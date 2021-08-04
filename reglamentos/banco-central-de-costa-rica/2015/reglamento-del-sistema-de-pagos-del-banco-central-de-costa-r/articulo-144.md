@@ -1,3 +1,3 @@
-CAPÍTULO IV
-DE LOS MONTOS Y COMISIONES DE OPERACIÓN
-Artículo 144. Montos mínimos garantizados para el movimiento de fondos. El participante deberá garantizar a su cliente la posibilidad de ordenar pagos móviles al menos por una suma acumulada de cien mil colones diarios, además, que pueda recibir depósitos de pagos móviles por al menos una suma acumulada de dos millones de colones mensuales. Ambas sumas estarán exentas del pago de comisiones o de cualquier otro tipo de cobro con cargo al cliente.
+CAPÍTULO III
+DEL FUNCIONAMIENTO DEL SERVICIO
+Artículo 144. Suscripción e inactivación del servicio. La suscripción del servicio por parte de los clientes deberá realizarse por medio de todos los canales transaccionales autenticados (banca web, banca móvil, cajeros automáticos y plataforma de servicios, entre otros). La inactivación deberá estar disponible para el cliente en todos los canales transaccionales (autenticados y no autenticados), debiendo estar al menos uno de estos habilitados las 24 horas del día, todos los días del año. Respecto a la suscripción, la entidad que afilie un cliente físico o jurídico al servicio SINPE Móvil, deberá verificar previamente su voluntad de participar en dicho servicio.

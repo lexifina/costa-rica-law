@@ -1,2 +1,5 @@
-Artículo 344. Responsabilidad sobre costos. Todos los costos derivados de la ejecución de garantías correrán por cuenta del deudor, incluidos los intereses que procedan en favor del acreedor, por los eventuales atrasos que pudieran darse en la liquidación final con respecto al vencimiento de la obligación incumplida. Para estos efectos, la tasa de interés aplicable durante los días de atraso será igual a la tasa de redescuento del BCCR más 10 puntos porcentuales en caso de operaciones en moneda nacional; en el caso de moneda extranjera se aplica la tasa libor 6 meses más 10 puntos porcentuales.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 343 al 344)
+Artículo 344. Revocatoria de la autorización. El BCCR podrá revocar la autorización a la entidad para administrar CAN cuando se presente cualquiera de las siguientes circunstancias:
+a) La entidad se encuentre en un estado de inestabilidad o irregularidad financiera de grado tres, conforme
+con los supuestos que para los efectos establece el artículo 136 de la Ley 7558.
+b) El BCCR decida suspender el servicio.
+c) Cuando una misma CAN incurra en tres incumplimientos durante un año calendario, según lo dispuesto en este capítulo.

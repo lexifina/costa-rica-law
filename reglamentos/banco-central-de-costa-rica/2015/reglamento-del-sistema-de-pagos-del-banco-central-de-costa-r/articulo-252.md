@@ -1,2 +1,1 @@
-Artículo 252. Anulación de ofertas no calzadas. Las ofertas que no hayan sido calzadas al cierre de la ventana de negociación del servicio serán anuladas, procediendo el SIL a liberar los fondos retenidos y el monto comprometido para la garantía, cuando así corresponda.
-(Así reformado en sesión N° 5955 del 2 de setiembre del 2020)
+Artículo 252. Del mantenimiento del registro oficial. La Dirección General de Tributación es responsable de la atención diligente de las solicitudes de exención, toda vez que estas pasan a formar parte del registro oficial de entidades exentas.

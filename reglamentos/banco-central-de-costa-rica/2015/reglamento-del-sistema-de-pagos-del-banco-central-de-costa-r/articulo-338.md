@@ -1,2 +1,3 @@
-Artículo 338. Suspensión del crédito intradiario. El BCCR podrá suspender la facilidad de crédito intradiario cuando por razones de política monetaria considere necesaria la medida. También podrá retirar la facilidad a la entidad que se encuentre en un estado de inestabilidad o irregularidad financiera de grado tres, conforme con lo dispuesto en el artículo 136 de la Ley 7558.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 337 al 338)
+CAPÍTULO V
+DE LAS RESPONSABILIDADES DEL BCCR
+Artículo 338. Inspección y monitoreo. El BCCR es responsable de monitorear e inspeccionar las operaciones realizadas en las CAN y la Custodia General. Estas funciones las realizará por medio del Centro de Control de Numerario (CCN).

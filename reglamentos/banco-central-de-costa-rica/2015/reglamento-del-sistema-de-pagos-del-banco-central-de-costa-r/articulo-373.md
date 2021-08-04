@@ -1,2 +1,3 @@
-Artículo 373. Mecanismos de optimización de liquidez. El BCCR implementará en forma paulatina diversos mecanismos de optimización de liquidez, con el fin de liquidar los mercados financieros utilizando la menor cantidad de fondos dentro de un adecuado ambiente de control de riesgos.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 372 al 373)
+CAPÍTULO V
+DE LA GARANTÍA EN VALORES
+Artículo 373. Cuenta de valores en garantía. El BCCR podrá mantener abierta una cuenta de valores con una entidad de custodia, para administrar los valores que los asociados decidan rendir en garantía.

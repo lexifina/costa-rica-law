@@ -1,2 +1,3 @@
-Artículo 507. Revisión y ajuste de las tarifas y comisiones. La estructura de tarifas y comisiones del SINPE será revisada y ajustada, con base en la metodología aprobada por la Junta Directiva. Las modificaciones a la estructura de tarifas y comisiones rigen a partir del mes siguiente a su aprobación y respectiva publicación en La Gaceta.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 506 al 507)
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 507. Participantes del servicio. En el servicio ISP operan todos los afiliados, así como cualquier otra institución pública o privada que administre o disponga de información sobre medios de pago y del Sistema de Pagos.

@@ -1,3 +1,5 @@
-CAPÍTULO III
-DE LAS RESPONSABILIDADES
-Artículo 86. Validaciones automáticas de las transferencias. La entidad destino debe mantener en sus plataformas tecnológicas una funcionalidad para que realice en forma automática las validaciones necesarias para determinar la aceptación o el rechazo de las transferencias recibidas, de modo que su acreditación sobre las cuentas de los clientes destino se realice en forma inmediata y sin intervenciones manuales.
+LIBRO V
+TRANSFERENCIAS SOBRE CUENTAS CORRESPONSALES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 86. Definición del servicio. Transferencia sobre cuentas corresponsales (TCC) es el servicio de liquidación bruta en tiempo real, por medio del cual una entidad envía o recibe fondos en moneda extranjera entre sus cuentas en el BCCR y sus cuentas a la vista con bancos corresponsales en el exterior.

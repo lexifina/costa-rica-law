@@ -1,9 +1,4 @@
-CAPÍTULO VI
-REQUISITOS DE OPERACIÓN
-Artículo 297. Requisitos de operación. Para efectos de la operación del servicio, los asociados deberán cumplir con los siguientes requisitos:
-a) No mantener diferencias faltantes entre el saldo físico de la CAN y los saldos reportados por el servicio.
-b) Verificar la identidad de los inspectores del CCN, así como no impedir o retrasar por cualquier forma o medio su ingreso inmediato, sea a la bóveda donde está ubicada la CAN o a la oficina en la cual se mantienen los equipos del CCTV, con los que se graban los movimientos físicos de numerario y el ingreso de personas a la CAN.
-c) No permitir la presencia en las CAN de personas que no estén realizando labores relacionadas con el funcionamiento o mantenimiento de su infraestructura, así como de personas no registradas en el padrón de inspectores del CCN que no hayan sido autorizadas formalmente por la Tesorería del BCCR para ingresar a la CAN.
-d) Mantener el CCTV funcionando adecuadamente.
-e) Cumplir con cualquier otro lineamiento que se defina.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 296 al 297)
+CAPÍTULO V
+DE LAS RESPONSABILIDADES
+Artículo 297. Requerimientos particulares. El BCCR podrá establecer requerimientos particulares para las entidades que estén interesadas en obtener financiamiento por medio de las operaciones diferidas a plazo.
+Además, el BCCR podrá darle seguimiento al cumplimiento de los requerimientos particulares establecidos y podrá modificar las condiciones pactadas en caso de incumplimiento de los requerimientos particulares; lo anterior de acuerdo con lo establecido por la Junta Directiva del BCCR y detallado en el Contrato para realizar operaciones diferidas a plazo en el MIL entre el BCCR y la entidad financiera solicitante.

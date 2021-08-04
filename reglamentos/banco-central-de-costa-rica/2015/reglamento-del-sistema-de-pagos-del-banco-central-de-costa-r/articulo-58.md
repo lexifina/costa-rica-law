@@ -1,2 +1,4 @@
-Artículo 58. Vigilancia de los sistemas de pago. El BCCR es responsable de la vigilancia de los sistemas de importancia sistémica que operen en el país y desarrollará esa labor con el propósito de promover la seguridad y eficiencia del sistema de pagos costarricense, así como de velar porque dichos sistemas cumplan con las normas sobre prevención de la legitimación de capitales y el financiamiento al terrorismo.
-Las entidades que operen o participen en los sistemas de pago de importancia sistémica deberán proveer al BCCR todas las facilidades que les solicite, así como cumplir con las disposiciones que les establezca con fundamento en su función de vigilancia.
+CAPÍTULO XIII
+DE LOS DERECHOS DEL BCCR SOBRE SIGNOS EXTERNOS
+Artículo 58. Uso de signos externos. El SINPE es una marca comercial registrada propiedad del BCCR, por lo que su uso está restringido al BCCR o a quien éste autorice.
+Para el uso de la marca y de los signos distintivos del SINPE deberán seguirse los lineamientos establecidos en el "Manual de marca del SINPE", definido por el BCCR.

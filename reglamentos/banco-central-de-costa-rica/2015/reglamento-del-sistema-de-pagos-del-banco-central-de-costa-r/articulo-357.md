@@ -1,2 +1,6 @@
-Artículo 357. Responsabilidad del aplazamiento. El procedimiento de aplazamiento de devoluciones opera bajo la completa responsabilidad del afiliado, por lo que el afiliado que lo utilice deberá suministrar las justificaciones pertinentes a sus clientes y al ente supervisor que corresponda, en virtud de la no acreditación de fondos dentro de lo establecido por las leyes vigentes.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 356 al 357)
+GESTIÓN DE LA LIQUIDEZ DEL SISTEMA DE PAGOS
+LIBRO XXX
+GESTIÓN DE RIESGOS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 357. Definición del servicio. Gestión de Riesgos es el conjunto de mecanismos dispuestos por el BCCR para mitigar los riesgos de liquidez, operativo y sistémico asociados al funcionamiento del Sistema de Pagos.

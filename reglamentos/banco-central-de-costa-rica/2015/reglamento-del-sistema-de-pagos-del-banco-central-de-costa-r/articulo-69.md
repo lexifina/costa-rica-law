@@ -1,6 +1,1 @@
-Artículo 69. Cierre de cuentas. El BCCR procederá con el cierre de las cuentas de fondos de un afiliado cuando se presente cualquiera de las siguientes situaciones:
-a) Cambio del número de documento de identificación del afiliado.
-b) Fusión con otra entidad, manteniéndose la cuenta de la entidad que prevalece en el proceso de fusión.
-c) Cierre o quiebra del afiliado.
-d) Suspensión de la autorización para operar por alguna irregularidad detectada por su respectivo regulador.
-e) Incumplimiento de las regulaciones o funcionamiento inadecuado de un afiliado que, a criterio del Director de la División Sistema de Pagos, amerite el cese de operación; sanción que se aplicará una vez que se cumpla con el debido proceso.
+Artículo 69. Conciliación de cuentas. El afiliado deberá conciliar diariamente sus cuentas de fondos y comunicar por escrito al BCCR cualquier inconsistencia a más tardar al día hábil siguiente.

@@ -1,5 +1,7 @@
-Artículo 46. Procedimiento ante incumplimientos. Ante el incumplimiento en la aplicación de los controles de legitimación de capitales y financiamiento al terrorismo, el Departamento Sistema de Pagos podrá proceder de la siguiente forma:
-a) La primera vez: comunicado del incumplimiento a la gerencia del afiliado.
-b) La segunda vez: comunicado del incumplimiento a la gerencia de la entidad y bloqueo del servicio por cinco días.
-c) La tercera vez: comunicado del incumplimiento a la gerencia de la entidad y bloqueo del servicio por lo que resta del año.
-El BCCR aplicará estas sanciones una vez que se cumpla con el debido proceso. La acumulación de los incumplimientos se extingue al finalizar cada año calendario.
+CAPÍTULO X
+DE LAS RELACIONES CON LOS ENTES SUPERVISORES
+Artículo 46. Acuerdos de entendimiento. La gerencia del BCCR y las autoridades de supervisión competentes, podrán suscribir acuerdos de entendimiento sobre las siguientes áreas de cooperación interinstitucional:
+a) Aspectos del desarrollo del Sistema de Pagos definidos por el BCCR, que deban ser sujetos de supervisión.
+b) El intercambio de información bilateral para el cumplimiento de sus funciones.
+c) Los procedimientos por seguir con los servicios del SINPE, en caso de que uno de los entes de supervisión intervenga algún asociado al SINPE.
+d) Las facilidades de acceso, capacitación y cualesquiera otras que contribuyan al desarrollo del Sistema de Pagos o que el SINPE deba proveer a los supervisores para apoyar sus funciones.

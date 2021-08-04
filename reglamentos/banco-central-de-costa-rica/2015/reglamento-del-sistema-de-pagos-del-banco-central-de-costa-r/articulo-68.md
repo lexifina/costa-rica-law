@@ -1,1 +1,6 @@
-Artículo 68. Movimientos de fondos en monedas diferentes. En caso que un afiliado reciba una transacción en una moneda distinta a la moneda de la cuenta de fondos destino, la entidad podrá, opcionalmente, hacer la conversión de la transacción, aplicando el tipo de cambio de compra o venta de ventanilla, según corresponda, vigente al momento de recibir la transacción.
+Artículo 68. Cierre de cuentas. El BCCR procederá con el cierre de las cuentas de fondos de un afiliado cuando se presente cualquiera de las siguientes situaciones:
+a) Cambio del número de documento de identificación del afiliado.
+b) Fusión con otra entidad, manteniéndose la cuenta de la entidad que prevalece en el proceso de fusión.
+c) Cierre o quiebra del afiliado.
+d) Suspensión de la autorización para operar por alguna irregularidad detectada por su respectivo regulador.
+e) Incumplimiento de las regulaciones o funcionamiento inadecuado de un afiliado que, a criterio de la Gerencia del BCCR, amerite el cese de operación; sanción que se aplicará una vez que se cumpla con el debido proceso.

@@ -1,2 +1,3 @@
-Artículo 476. Alcance del reclamo de créditos no aplicados. La reclamación por créditos no aplicados se limita a una solicitud de información efectuada por la entidad origen, por lo que para la entidad destino del reclamo no implica ningún movimiento de dinero sobre su cuenta de fondos.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 475 al 476)
+CAPÍTULO IV
+DE LAS CUENTAS DE EXPEDIENTE SIMPLIFICADO (CES)
+Artículo 476. Definición. Cuentas de Expediente Simplificado (CES) son las cuentas de fondos que pueden abrir las personas físicas mediante un trámite simplificado.

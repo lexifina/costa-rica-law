@@ -1,1 +1,1 @@
-Artículo 205. Aprobación de exención. La Administración Tributaria correspondiente atenderá la solicitud de exención siempre y cuando cumpla con la información requerida y se corrobore la vigencia de la ley que le otorga la exención.
+Artículo 205. Condiciones para el cierre de una cuenta. El cierre de una cuenta de valores podrá ejecutarse solo después de que se haya liquidado su saldo y la cuenta no mantenga operaciones pendientes de liquidación.

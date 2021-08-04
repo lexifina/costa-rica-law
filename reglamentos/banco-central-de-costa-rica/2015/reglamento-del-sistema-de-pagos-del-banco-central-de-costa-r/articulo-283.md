@@ -1,2 +1,3 @@
-Artículo 283. Movimientos de numerario. La entidad que requiera realizar movimientos de numerario en la CAN, deberá registrarlos en el servicio. Una vez enviada la transacción, el SIL efectúa de forma irrevocable y en firme la liquidación utilizando el mecanismo de liquidación bilateral bruta, afectándose además en el servicio el saldo del numerario de la CAN en la moneda correspondiente.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 282 al 283)
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 283. Principios de la negociación. El emisor deberá garantizar a los inversionistas igualdad de condiciones de acceso a la negociación de valores, y transparencia en los procedimientos de convocatoria, la asignación de ofertas y la difusión de información de los resultados de las colocaciones, todo ello de conformidad con las condiciones que establezca para los procesos de negociación.

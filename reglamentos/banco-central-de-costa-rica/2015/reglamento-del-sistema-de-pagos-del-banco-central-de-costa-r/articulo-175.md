@@ -1,3 +1,1 @@
-CAPÍTULO III
-DEL REGISTRO DE EMISIONES
-Artículo 175. Irrevocabilidad del registro. Las instrucciones realizadas por los emisores no podrán ser revocadas por su ordenante ni por terceros a partir de su autorización. Los listados y registros del servicio Registro de Emisiones serán prueba de los movimientos registrados en dicho servicio.
+Artículo 175. Uso de códigos de categoría mercante. Con su funcionamiento, SINPE-TP podrá utilizar códigos de categoría mercante (Merchant Category Code o MCC por sus siglas en inglés) propios para el procesamiento de las transacciones, en cuyo caso el BCCR deberá coordinar con los adquirentes y emisores nacionales los ajustes que procedan en las plataformas tecnológicas de procesamiento que involucre esa decisión.

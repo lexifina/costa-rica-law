@@ -1,1 +1,1 @@
-Artículo 47. Principio registral. El funcionamiento del SINPE se rige por el principio de buena fe registral, por lo que el BCCR asume que la información registrada por los afiliados es legítima, completa y se encuentra exenta de vicios registrales.
+Artículo 47. Comunicación de incumplimientos. El incumplimiento de un afiliado de las regulaciones establecidas en el presente reglamento y la Serie de Normas y Procedimientos del SINPE, podrá ser comunicado por el BCCR al ente supervisor que corresponda para que realice la investigación pertinente

@@ -1,2 +1,3 @@
-Artículo 358. Aplazamiento de los ciclos de operación. El Director de la División Sistema de Pagos o quien éste designe, podrá extender los horarios de los ciclos de operación de los servicios del SINPE ante situaciones que a su criterio puedan desencadenar un riesgo sistémico.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 357 al 358)
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 358. Participantes del servicio. En el servicio Gestión de Riesgos operan los asociados que requieran o deban utilizar alguno de los mecanismos dispuestos por su infraestructura.

@@ -1,2 +1,3 @@
-Artículo 384. Duplicidad de usuarios. El afiliado asume la responsabilidad por la creación, como usuario suyo, de una persona que se encuentre registrado en el SINPE como usuario de otro afiliado, pudiendo por tanto realizar a la vez operaciones en nombre de las entidades a las que represente como usuario. El SINPE alertará a las entidades involucradas cuando se presente esta situación.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 383 al 384)
+CAPÍTULO VIII
+DEL CRÉDITO OVERNIGHT
+Artículo 384. Formalización de créditos. Si al cierre del horario bancario un asociado mantiene saldos pendientes por concepto de créditos intradiarios, y carece de los fondos necesarios para cancelarlos, el BCCR procederá a formalizar automáticamente un crédito overnight a su favor.

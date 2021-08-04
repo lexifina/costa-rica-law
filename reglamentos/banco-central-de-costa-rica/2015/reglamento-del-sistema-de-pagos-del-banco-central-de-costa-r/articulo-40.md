@@ -1,1 +1,1 @@
-Artículo 40. Número de documento de identificación del cliente. Toda cuenta IBAN abierta por un afiliado deberá tener asociado el número de documento de identificación de su propietario.
+Artículo 40. Información de la transacción. Toda transacción de pago o cobro tramitada por medio del SINPE debe incorporar, entre otros datos, el número de documento de identificación, el nombre y el IBAN, tanto del cliente origen como del cliente destino. La información de cada transacción se definirá en el estándar electrónico de cada servicio del SINPE.

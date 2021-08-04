@@ -1,2 +1,2 @@
-Artículo 320. Adhesión a las disposiciones sobre garantías. Los asociados obligados a cumplir con los requerimientos de garantía establecidos por el presente libro deberán adherirse a las condiciones que el BCCR establezca con el administrador de las garantías, así como sujetar sus aportes de garantía a dichas condiciones.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 319 al 320)
+Artículo 320. Emisión de monedas de baja denominación. El BCCR emitirá moneda de baja denominación, siempre y cuando su costo de fabricación sea menor al valor nominal de la moneda, y cuando dejar de emitirla genere un impacto sobre el índice de precios al consumidor (IPC) y sobre la Canasta Básica Alimentaria (CBA) mayor a 0,25 %.
+Salvo disposición expresa del BCCR, las monedas de baja denominación que deje de emitir el BCCR, mantendrán indefinidamente su valor como medio de pago en la economía.

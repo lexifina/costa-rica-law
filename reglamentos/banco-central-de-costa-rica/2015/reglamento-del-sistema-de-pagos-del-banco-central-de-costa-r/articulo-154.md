@@ -1,4 +1,3 @@
-CAPÍTULO III
-DE LAS CUENTAS DE VALORES
-Artículo 154. Tipos de cuenta. Las entidades de custodia mantienen una cuenta de valores propios y un número ilimitado de cuentas para valores por cuenta de terceros, cada una identificada con un número único asignado por el servicio.
-Los miembros liquidadores únicamente podrán mantener cuentas de valores propios.
+CAPÍTULO V
+DEL PADRÓN MÓVIL INTERBANCARIO
+Artículo 154. Definición. Se denomina padrón móvil interbancario al registro centralizado de todos los números de teléfono móvil asociados a cuentas IBAN por los participantes del servicio SINPE Móvil. Su administración se encuentra a cargo del BCCR.

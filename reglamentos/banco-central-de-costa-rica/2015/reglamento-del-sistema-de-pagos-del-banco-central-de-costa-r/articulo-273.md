@@ -1,2 +1,3 @@
-Artículo 273. Estructura denominativa en circulación. Con el fin de garantizar la circulación de las denominaciones de acuerdo con las necesidades reales de la economía, la División Sistema de Pagos definirá la proporción, las denominaciones y el período en el que el BCCR entregará y recibirá numerario.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 272 al 273)
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 273. Participantes del servicio. En el servicio Subasta de Valores opera el BCCR como emisor y los asociados del SINPE como inversionistas, de conformidad con las condiciones que la Junta Directiva del BCCR establezca para las negociaciones. Cuando así lo dispongan, el MHDA u otra institución pública también podrán operar como emisores.

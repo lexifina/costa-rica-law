@@ -1,3 +1,6 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 174. Participantes del servicio. En el servicio Registro de Emisiones deben operar las entidades públicas que emitan valores anotados en cuenta, y sus representantes. Además, podrán operar las entidades de custodia y los miembros liquidadores.
+Artículo 174. Comisión de los adquirentes. Con los servicios de adquirencia, SINPE-TP operará basado en el principio de menor costo, mediante el siguiente procedimiento:
+a) Suministrar al BCCR en noviembre de cada año, las tasas de comisión que definan para sus servicios de adquirencia con SINPE-TP. Estas tasas serán las que rijan durante el siguiente año calendario para la prestación de sus servicios a SINPE-TP y deberán cumplir con las disposiciones del Reglamento del Sistema de Tarjetas de Pago.
+b) SINPE-TP gestionará el cobro de las transacciones por medio del adquirente que ofrezca la menor tasa de adquirencia.
+c) Cuando dos o más adquirentes igualen la tasa de adquirencia menor, se les notificará para que puedan hacer una nueva definición de tasas de comisión. En el caso de que la situación de igualdad se mantenga, las transacciones se tramitarán por medio del adquirente que posea la mayor cantidad de dispositivos de pago emitidos.
+d) Cuando el adquirente sea también emisor de dispositivos de pago, SINPE-TP cobrará por su medio las transacciones de sus tarjetahabientes, y le reconocerá por esas transacciones la tasa de comisión que resulte del promedio simple de la tasa de intercambio fijada para el transporte público con la aplicación del Reglamento del Sistema de Tarjetas de Pago y la menor tasa de comisión de adquirencia ofrecida por los adquirentes de SINPE-TP.
+e) Como esquema contingente para asegurar la continuidad de negocio, SINPE-TP podrá utilizar soluciones de enrutamiento alternas a las establecidas en los incisos anteriores, siempre siguiendo el principio de menor costo.

@@ -1,14 +1,11 @@
 CAPÍTULO III
-DEL CICLO DE NEGOCIACIÓN
-Artículo 231. Ciclo de operación.
-El ciclo del servicio opera con las siguientes etapas:
-a) Convocatoria de negociación: el emisor convoca a los inversionistas anunciando los códigos ISIN objeto de negociación, los montos máximos y mínimos permitidos por tipo de oferta, las reglas de asignación y cualquier otra información que considere relevante para el proceso de negociación.
-El anuncio de la convocatoria deberá realizarse como mínimo el día hábil anterior a la negociación.
-b) Recepción de ofertas: los inversionistas envían sus ofertas de negociación por medio del servicio, desde la hora definida por el emisor y hasta la hora de cierre de la recepción de ofertas indicadas en el anuncio de la convocatoria. Dichas ofertas quedarán disponibles para que el emisor, luego de cerrado el periodo de recepción de ofertas, proceda con la asignación respectiva.
-El inversionista podrá modificar o eliminar sus ofertas mientras no se haya cerrado el periodo de recepción de ofertas. Las ofertas son irrevocables a partir del momento en que se cierra esta etapa, aun y cuando hayan sido presentadas a nombre de un tercero que desista de las mismas.
-c) Asignación de ofertas: las ofertas recibidas son asignadas por el emisor de conformidad con las condiciones de asignación anunciadas en la convocatoria. Se tendrá una hora límite para la asignación, así como para realizar la comunicación oficial de sus resultados el día de la negociación.
-d) Distribución de ofertas: luego de cerrado el período de asignación y hasta la hora establecida, los inversionistas realizan la distribución del monto asignado sobre las cuentas de valores correspondientes.
-e) Liquidación: las ofertas que resulten asignadas serán liquidadas de forma irrevocable y en firme, el día y la hora acordada, contra las cuentas de fondos de las entidades de custodia que, con la confirmación de la distribución, asumen esta responsabilidad y contra las cuentas administradas por el servicio Cuentas de Valores, mediante el mecanismo de entrega contra pago.
-Ante el rechazo de la distribución por parte de las entidades de custodia, el inversionista asume la liquidación de fondos por cuenta propia y la liquidación se realiza contra la cuenta de fondos que
-mantiene en el BCCR.
-Cuando la entidad responsable de la liquidación presente una insuficiencia de fondos que le imposibilite cubrir la totalidad de sus obligaciones financieras, la asignación final se hará hasta por el monto posible de liquidación, considerando primero aquellas ofertas que tengan un menor costo financiero para el emisor, en el entendido de que para estos casos no aplica el criterio de asignación parcial de ofertas.
+DEL CICLO DEL SERVICIO
+Artículo 231. Ciclo de operación del servicio. El ciclo del servicio, en lo que respecta a la liquidación de mercados, opera con las siguientes etapas:
+a) Envío del archivo de liquidación: el emisor o la entidad de compensación y liquidación, envía un archivo electrónico con la información de las operaciones por liquidar en las cuentas de fondos y en las cuentas de valores. El servicio no aceptará el envío de los archivos que presenten inconsistencias en los números de las cuentas de valores, los códigos ISIN o los saldos de los valores registrados en el servicio Registro de Emisiones. Las transacciones son irrevocables a partir del momento en que se cierra esta etapa.
+b) Bloqueo de valores: el SIL realiza el bloqueo de los valores detallados en el archivo de liquidación Cuando el bloqueo no sea posible por insuficiencia de valores en las cuentas administradas por el servicio Cuentas de Valores, el SIL bloqueará el saldo disponible en la cuenta de valores y notificará la inconsistencia a la entidad de compensación y liquidación para que la resuelva.
+Tratándose de archivos que únicamente incluyen movimientos de fondos, el ciclo de operación no considera la etapa de bloqueo de valores.
+c) Retención de fondos: para procesar la liquidación, luego de bloquear los valores el SIL retiene los fondos necesarios a los miembros liquidadores que figuran como deudores.
+Cuando la retención se imposibilite por insuficiencia de fondos, el SIL bloqueará el saldo disponible en la cuenta de fondos y notificará la inconsistencia a la entidad de compensación y liquidación para que la resuelva.
+Tratándose de archivos que únicamente incluyen movimientos con valores, el ciclo de operación no toma en cuenta la retención de fondos.
+d) Liquidación de instrucciones: el SIL efectúa la liquidación en firme e irrevocable de las instrucciones bajo los mecanismos de entrega contra pago y de liquidación multilateral neta o liquidación bilateral bruta, según corresponda.
+En caso de que se presente una inconsistencia de fondos o de valores durante el proceso de liquidación, se podrá excluir los registros respectivos y realizar liquidaciones posteriores, a más tardar al cierre del horario bancario.

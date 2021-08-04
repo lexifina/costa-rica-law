@@ -1,1 +1,3 @@
-Artículo 138. Autorización de uso de un canal no autenticado. En caso que el cliente esté dispuesto a movilizar fondos por medio de un canal no autenticado, deberá dejar autorización expresa de esta voluntad. El participante deberá habilitar en el servicio las funcionalidades necesarias para que el cliente defina el monto y emita dicha autorización por medio de un canal autenticado
+CAPÍTULO III
+DEL CICLO DEL SERVICIO
+Artículo 138. Modalidad del servicio. El servicio LSE operará con base en la información suministrada por el organizador de mercados, cuyos datos podrán presentarse bajo la modalidad de resultados bilaterales o resultados multilaterales, según sea el esquema definido por el organizador de mercados.

@@ -1,1 +1,5 @@
-Artículo 230. Suspensión de la participación. Cuando las actuaciones de algún inversionista no se ajusten a las sanas prácticas del mercado, el BCCR como administrador del servicio podrá suspender su participación en el servicio, debiendo notificar de inmediato a la SUGEVAL sobre la suspensión decretada y las causas que la justifican.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 230. Participantes en el servicio. En el servicio Liquidación de Mercados deben operar las entidades d compensación y liquidación de valores, los miembros liquidadores, las entidades de custodia y los emisores
+de valores públicos anotados en cuenta o sus representantes.
+La participación de las entidades de custodia será únicamente con fines de consulta.

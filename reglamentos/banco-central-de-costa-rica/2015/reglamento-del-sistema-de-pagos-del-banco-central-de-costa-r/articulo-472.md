@@ -1,4 +1,6 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 472. Participantes del servicio. En el servicio REF podrá operar cualquier afiliado.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 471 al 472)
+LIBRO XXXVI
+PADRÓN ÚNICO DE CUENTAS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 472. Definición del servicio. Padrón Único de Cuentas (PUC) es el registro centralizado de la totalidad de cuentas de fondos abiertas a sus clientes por parte de los afiliados al SINPE.
+La Serie de Normas y Procedimientos del SINPE establecerán las características operativas del Padrón Único de Cuentas y sus condiciones de funcionamiento.

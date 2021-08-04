@@ -1,2 +1,3 @@
-Artículo 406. Servicio de Autenticación de Usuarios: Es el servicio dirigido a suscriptores de certificados digitales emitidos por la CA-SINPE Persona Jurídica, por medio del cual se realiza la autenticación de personas físicas, quienes deben utilizar un certificado digital emitido por la CA-SINPE Persona Física como prueba de identidad.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 405 al 406)
+Artículo 406. Certificación de usuarios. Con la aprobación de un curso de capacitación, el participante obtiene una certificación que lo habilita a operar los servicios del SINPE contemplados dentro del programa del curso.
+Los afiliados deben cumplir con el porcentaje mínimo de usuarios certificados en cada servicio que se establezca en la Serie de Normas y Procedimientos del SINPE.
+Los afiliados son responsables de verificar que las personas que participan en el SINPE como usuarios de su entidad, estén capacitados y debidamente certificados por el BCCR.

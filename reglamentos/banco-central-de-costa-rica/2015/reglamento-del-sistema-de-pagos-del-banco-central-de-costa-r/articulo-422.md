@@ -1,3 +1,1 @@
-Artículo 422. Domiciliación directa. El cliente destino podrá presentar la solicitud de domiciliación directamente a la entidad destino, en cuyo caso deberá realizar las gestiones necesarias ante el cliente origen para que este, a su vez, por medio de la entidad origen pueda ordenar débitos automáticos con base en dicha domiciliación.
-Con el trámite de la domiciliación directa, la entidad destino deberá entregar al cliente destino la información que este requiera para atender las gestiones que le corresponde realizar ante el cliente origen.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 421 al 422)
+Artículo 422. Contingencia del RST. Es responsabilidad de la entidad crear en su estructura de seguridad al menos a un tercer RST, para que pueda modificar a los anteriores RST en sus servicios operativos, o colaborar en las labores que dicho perfil demanda.

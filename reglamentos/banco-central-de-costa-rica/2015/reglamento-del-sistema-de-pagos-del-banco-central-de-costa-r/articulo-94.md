@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 94. Participantes del servicio. En el servicio DTR pueden operar como entidad origen y destino los asociados y proveedores de servicios de pago del SINPE.
+Artículo 94. Autorización para efectuar débitos. La entidad origen deberá contar previamente con una autorización física o electrónica del cliente para realizar el débito sobre su cuenta, en los mismos términos de autorización de giro que contempla el Código de Comercio y las demás normas jurídicas aplicables, de modo que pueda demostrar que los débitos se realizaron por solicitud expresa del titular o autorizado para llevar a cabo este tipo de débitos.

@@ -1,2 +1,5 @@
-Artículo 321. Régimen aplicable a las garantías. Las garantías constituidas por los asociados para operar en el SINPE, de conformidad con lo establecido en la Ley 8876, no se verán afectadas en caso de inicio de un procedimiento de reorganización o liquidación contra un participante, ni por eventuales medidas de carácter retroactivo acordadas por la autoridad competente que tramite el procedimiento contra dicha entidad.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 320 al 321)
+LIBRO XXVIII
+CUSTODIA DE NUMERARIO
+CAPÍTULO I
+DEL SERVICIO
+Artículo 321. Definición del servicio. Las Custodias Auxiliares de Numerario (CAN) constituyen el conjunto de procesos operativos, la logística y la plataforma electrónica en la que el BCCR administra su inventario de numerario y mantiene parte de este en bóvedas propias y el resto en bóvedas o espacios acondicionados por las entidades asociadas, bajo absoluta responsabilidad de estas, para usarlo según el BCCR lo determine.

@@ -1,2 +1,3 @@
-Artículo 421. Prenotificación en el SINPE. La entidad origen deberá enviar por medio del servicio ADA, una prenotificación con la información de las domiciliaciones recibidas de sus clientes. El envío de la prenotificación lo deberá hacer a la entidad destino, a más tardar el día hábil siguiente de haber recibido la domiciliación de su cliente.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 420 al 421)
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 421. Autorización de RST. Es responsabilidad del afiliado autorizar, por medio de su representante legal, un mínimo de dos personas para desempeñar la función de RST.

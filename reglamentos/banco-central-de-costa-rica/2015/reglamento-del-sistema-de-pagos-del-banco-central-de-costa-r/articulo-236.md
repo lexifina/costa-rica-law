@@ -1,5 +1,1 @@
-LIBRO XXIII
-VENTANILLA DE VALORES
-CAPÍTULO I
-DEL SERVICIO
-Artículo 236. Definición del servicio. Ventanilla de Valores (VEV) es el servicio por medio del cual se colocan valores estandarizados por medio de ventanilla.
+Artículo 236. Incumplimiento del archivo de liquidación. Cuando exista una inconsistencia de valores o fondos, y el horario de operación del servicio finalice sin que el emisor o miembro liquidador responsable la haya atendido satisfactoriamente, el BCCR procederá a comunicar al mercado el incumplimiento del archivo de liquidación e informará de la situación a la SUGEVAL.

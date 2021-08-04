@@ -1,1 +1,3 @@
-Artículo 234. Declaración de subasta desierta. El emisor se reserva el derecho de declarar total o parcialmente desierta una subasta, cuando considere que las ofertas no representan adecuadamente las condiciones de mercado, pudieren llegar a producir efectos inconvenientes en el mismo o se detecte colusión entre los inversionistas; evento que estaría comunicando por medios oficiales.
+CAPÍTULO V
+DE LAS RESPONSABILIDADES
+Artículo 234. Información de los archivos. Los emisores, cuando negocien valores directamente, y las entidades de compensación y liquidación de valores, son responsables de la información contenida en los archivos de liquidación enviados por medio del servicio.

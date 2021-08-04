@@ -1,3 +1,3 @@
-CAPÍTULO IV
-DE LOS TRASPASOS
-Artículo 197. Irrevocabilidad del registro. Las instrucciones de traspaso ingresadas por los participantes no podrán ser revocados por su ordenante o por terceros a partir del momento de su aceptación. Los listados y registros del servicio Traspaso de Valores serán prueba de los movimientos registrados en dicho servicio.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 197. Participantes del servicio. En el servicio Cuentas de Valores deben operar las entidades de custodia y los miembros liquidadores, de conformidad con la Ley 7732.

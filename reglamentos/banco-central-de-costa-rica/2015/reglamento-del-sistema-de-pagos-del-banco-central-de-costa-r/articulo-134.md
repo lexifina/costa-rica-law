@@ -1,3 +1,1 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 134. Autorización de débitos. La participación de un asociado en un servicio de compensación provisto por un organizador de mercados, autoriza automáticamente la liquidación en su cuenta de fondos de las obligaciones financieras contraídas por medio del servicio.
+Artículo 134. Custodia de enteros por impuestos específicos. El BCCR es responsable de custodiar los enteros de impuestos específicos y de remitirlos a las entidades beneficiarias, de conformidad con los plazos establecidos en la Serie de Normas y Procedimientos del SINPE.

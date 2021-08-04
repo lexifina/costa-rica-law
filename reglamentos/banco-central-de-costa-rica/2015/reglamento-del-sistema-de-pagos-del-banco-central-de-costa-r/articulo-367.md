@@ -1,2 +1,3 @@
-Artículo 367. Liberaciones de software. El BCCR procurará realizar la liberación de nuevas versiones de software del SINPE o de actualización de su plataforma tecnológica, en horarios que no afecten la operación normal del sistema.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 366 al 367)
+CAPÍTULO IV
+DE LOS REQUERIMIENTOS DE GARANTÍA
+Artículo 367. Requerimiento mínimo para los asociados. Como requerimiento mínimo de garantía, los asociados con excepción de las instituciones públicas de conformidad con la clasificación de los participantes detallada en la Serie de Normas y Procedimientos del SINPE, deberán mantener un monto en garantías al menos igual al promedio móvil más dos desviaciones estándar, que resulte de la suma de sus débitos netos diarios producidos en los últimos 70 días naturales por los servicios de compensación multilateral neta del SINPE, con excepción del servicio de CCD y CDD.

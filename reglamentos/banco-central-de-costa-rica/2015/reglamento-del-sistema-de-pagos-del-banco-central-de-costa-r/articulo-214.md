@@ -1,3 +1,1 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 214. Principios de la negociación. El BCCR o el MHDA, según corresponda, deberán garantizar a los inversionistas transparencia en los procesos de captación y las condiciones de acceso a las opciones de inversión y a la información relevante del servicio, todo ello de conformidad con las condiciones que se establezcan para las negociaciones.
+Artículo 214. Consultas del estado de cuenta. El BCCR deberá habilitar facilidades de consulta a disposición de los participantes, para que puedan acceder directamente a la información de su estado de cuenta.

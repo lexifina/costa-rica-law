@@ -1,7 +1,5 @@
-GESTIÓN DE LA LIQUIDEZ DEL SISTEMA DE PAGOS
-LIBRO XXIX
-GESTIÓN DE RIESGOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 312. Definición del servicio. Gestión de Riesgos es el conjunto de mecanismos dispuestos por el BCCR para mitigar los riesgos de liquidez, operativo y sistémico asociados al funcionamiento del Sistema de Pagos.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 311 al 312)
+Artículo 312. Definición de términos. Para los fines del presente libro debe entenderse por:
+ Categorías: clasificación del numerario basada en los niveles de calidad definidos por el BCCR.
+ Cono monetario: conjunto de monedas emitidas por el BCCR cuyo diseño permite identificar y distinguir cada denominación.
+ Familia de billetes: conjunto de billetes emitidos por el BCCR cuyo diseño permite identificar y distinguir cada denominación.
+ Procesamiento del numerario: proceso manual o automatizado mediante el cual se valida la autenticidad, la cantidad física y la calidad del numerario, según las categorías definidas.

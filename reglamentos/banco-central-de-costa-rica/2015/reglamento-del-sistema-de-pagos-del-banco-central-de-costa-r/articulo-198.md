@@ -1,4 +1,4 @@
-Artículo 198. Tipo de traspasos. Los traspasos de valores que ordenen los participantes podrán ser de dos tipos:
-a) Traspaso sin cambio de titularidad: cuando el movimiento de los valores se realiza entre cuentas
-pertenecientes al mismo titular.
-b) Traspaso con cambio de titularidad: cuando el movimiento de los valores se realiza a la cuenta de otro titular.
+CAPÍTULO III
+DE LAS CUENTAS DE VALORES
+Artículo 198. Tipos de cuenta. Las entidades de custodia mantienen una cuenta de valores propios y un número ilimitado de cuentas para valores por cuenta de terceros, cada una identificada con un número único asignado por el servicio.
+Los miembros liquidadores únicamente podrán mantener cuentas de valores propios.

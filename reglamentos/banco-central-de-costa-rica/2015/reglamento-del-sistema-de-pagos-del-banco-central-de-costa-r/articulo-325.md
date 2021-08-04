@@ -1,2 +1,3 @@
-Artículo 325. Restitución de la garantía. En el caso de que las obligaciones financieras lleguen a superar el monto de las garantías aportadas, el asociado deberá realizar una restitución de garantía por el monto necesario para cumplir satisfactoriamente con el nivel mínimo requerido para respaldar sus obligaciones.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 324 al 325)
+CAPÍTULO III
+DEL MODELO DE OPERACIÓN
+Artículo 325. Solicitud para administrar CAN. Los asociados que decidan administrar CAN bajo su cuenta y riesgo deberán solicitarlo al Departamento de Emisión y Valores del BCCR. El trámite se resolverá en un plazo máximo de 10 días hábiles después de que la entidad solicitante haya cumplido los requisitos establecidos.

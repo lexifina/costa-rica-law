@@ -1,1 +1,1 @@
-Artículo 199. Traspasos con cambio de titularidad. Las entidades de custodia sólo podrán realizar traspasos con cambio de titularidad cuando correspondan a operaciones no onerosas y siempre que las mismas se tramiten de acuerdo con el ordenamiento jurídico aplicable.
+Artículo 199. Identificación de las cuentas de terceros. Las cuentas de terceros se identifican con el nombre y el número de documento de identificación de sus titulares, así como con su estado de domicilio y nacionalidad.

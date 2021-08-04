@@ -1,2 +1,1 @@
-Artículo 326. Plazo para la restitución. Siempre que el BCCR solicite una restitución de garantía para cumplir con lo dispuesto en el presente libro, el asociado deberá rendir las garantías respectivas a más tardar a las 11:00 a.m. del día hábil siguiente al día en que el BCCR realiza la solicitud.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 325 al 326)
+Artículo 326. Horario del servicio. Las entidades podrán realizar movimientos de numerario en las CAN en el horario bancario.

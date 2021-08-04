@@ -1,2 +1,5 @@
-Artículo 345. Incumplimiento de obligaciones vencidas. Cuando la parte obligada a pagar incurra en el incumplimiento parcial o total de una obligación financiera vencida, el BCCR certificará los montos que se adeudan por este concepto, así como el motivo y demás aspectos relevantes relacionados con el surgimiento de la obligación, a efectos de que el acreedor gestione ante el deudor, por los medios que estime pertinentes, la recuperación de las sumas adeudadas.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 344 al 345)
+LIBRO XXIX
+MERCADO DE NUMERARIO
+CAPÍTULO I
+DEL SERVICIO
+Artículo 345. Definición del servicio. El Mercado de Numerario (MEN) es el conjunto de procesos operativos, la logística y la plataforma electrónica mediante el cual los participantes negocian numerario entre sí moneda nacional, dólares estadounidenses, euros u otras divisas que autorice la División Sistemas de Pago.

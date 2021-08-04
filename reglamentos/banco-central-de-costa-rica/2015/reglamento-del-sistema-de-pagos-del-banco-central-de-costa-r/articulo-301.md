@@ -1,6 +1,5 @@
-LIBRO XXVIII
-MERCADO DE NUMERARIO
+LIBRO XXVI
+MERCADO DE MONEDAS EXTRANJERAS
 CAPÍTULO I
 DEL SERVICIO
-Artículo 301. Definición del servicio. El Mercado de Numerario (MEN) es el conjunto de procesos operativos, la logística y la plataforma electrónica mediante el cual los participantes negocian numerario entre sí moneda nacional, dólares estadounidenses, euros u otras divisas que autorice la División Sistema de Pagos.
-(Así modificada su numeración en sesión N° 5955 del 2 de setiembre del 2020 que lo traspasó del antiguo artículo 300 al 301)
+Artículo 301. Definición del servicio. Monex-SINPE es el servicio por medio del cual los asociados del SINPE acceden al mercado de monedas extranjeras para realizar la negociación de divisas.

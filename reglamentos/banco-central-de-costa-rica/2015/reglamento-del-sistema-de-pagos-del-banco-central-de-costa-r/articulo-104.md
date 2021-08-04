@@ -1,6 +1,3 @@
-SERVICIOS DE LIQUIDACIÓN NETA
-LIBRO VIII
-COMPENSACIÓN Y LIQUIDACIÓN DE CHEQUES
-CAPÍTULO I
-DEL SERVICIO
-Artículo 104. Definición del servicio. Compensación y Liquidación de Cheques (CLC) es el servicio de compensación multilateral neta, por medio del cual los asociados gestionan el cobro de los cheques recibidos de sus clientes que han sido girados contra otras entidades bancarias.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 104. Participantes del servicio. En el servicio SIPA podrán operar como entidad origen cualquier asociado del SINPE y como destino los asociados que administren cuentas IBAN.
