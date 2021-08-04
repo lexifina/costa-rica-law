@@ -14,3 +14,4 @@ Prorroga la vigencia de la directriz N° 0012-2020 "Se instruye a Directores de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-12 | la propia norma |
+| 2 | 2021-08-04 | Directriz 6 (2021-08-04) |
