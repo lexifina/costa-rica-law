@@ -1,11 +1,10 @@
 INSTITUTO COSTARRICENSE DE ACUEDUCTOS Y ALCANTARILLADOS
 (Nota de Sinalevi: Mediante sesión N° 2021-01 del 5 de enero del 2021, se acordó aprobar la modificación a la presente norma en cuanto a la aprobación de planos constructivos para los sistemas de abastecimiento de agua potable y de recolección, tratamiento y disposición de aguas residuales y sistemas pluviales, indistintamente de su naturaleza pública o privada. Asimismo se instruye a la Presidencia Ejecutiva para que se le comunique al Ministerio de Economía, Industria y Comercio la reforma al documento aprobado mediante la presente norma. Se instruye a la Unidad Técnica de los Servicios de Abastecimiento de Agua Potable y de Saneamiento, para que integre en un solo documento la norma técnica aprobada mediante el acuerdo N° 2017-281 y las modificaciones que se aprueban en este acuerdo y se instruye a la Presidencia Ejecutiva para que comunique el presente acuerdo y la norma técnica actualizada a todos los operadores autorizados que, conjuntamente con el AyA, brindan servicios de abastecimiento de agua potable y de recolección, tratamiento y disposición de aguas residuales.)
-[imagen]
 JUNTA DIRECTIVA
 INSTITUTO COSTARRICENSE DE ACUEDUCTOS Y ALCANTARILLADOS
-Conoce esta Junta Directiva la Norma Técnica para “Diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial”, según los documentos PRE201700392 y PRE201700057, y Acuerda:
-PRIMERO: Aprobar la Norma Técnica para “Diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial”, lo anterior con fundamento en el marco de competencias que le asisten al Instituto establecidas en la Ley N°2726, en cuanto a la aprobación de planos constructivos para los sistemas de abastecimiento de agua potable y de recolección, tratamiento y disposición de aguas residuales y sistemas pluviales, indistintamente de su naturaleza pública o privada.
-SEGUNDO: Instruir a la Presidencia Ejecutiva para que se le comunique al Ministerio de Economía, Industria y Comercio, la reforma al documento original titulado “Reglamento para diseño y construcción de urbanizaciones, condominios y fraccionamientos”, el cual se sustituye por la norma técnica que se aprueba en este acuerdo.
+Conoce esta Junta Directiva la Norma Técnica para "Diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial", según los documentos PRE201700392 y PRE201700057, y Acuerda:
+PRIMERO: Aprobar la Norma Técnica para "Diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial", lo anterior con fundamento en el marco de competencias que le asisten al Instituto establecidas en la Ley N°2726, en cuanto a la aprobación de planos constructivos para los sistemas de abastecimiento de agua potable y de recolección, tratamiento y disposición de aguas residuales y sistemas pluviales, indistintamente de su naturaleza pública o privada.
+SEGUNDO: Instruir a la Presidencia Ejecutiva para que se le comunique al Ministerio de Economía, Industria y Comercio, la reforma al documento original titulado "Reglamento para diseño y construcción de urbanizaciones, condominios y fraccionamientos", el cual se sustituye por la norma técnica que se aprueba en este acuerdo.
 TERCERO: Se derogan los acuerdos de Junta Directiva N° 2001248, N° 2006730, N° 2007189, ya que los requisitos incluidos en los mismos fueron actualizados e incorporados en la norma técnica que se aprueba y anexa en este acuerdo.
 ACUERDO FIRME
 Licda. Karen Naranjo Ruiz
@@ -111,12 +110,12 @@ e) Las unidades de medida indicadas en los documentos técnicos, incluidos los p
 f) Toda referencia a reglamentos o normas técnicas aplica de conformidad con la última versión del documento respectivo.
 g) La resistencia y calidad del concreto cuando el diseño incluya elementos con tal requerimiento, debe ser de al menos 27,5 MPa (280 kg/cm2) a los 28 días; se exceptúan aquellos casos en donde se deba cumplir con una norma o reglamentación técnica que defina un valor distinto al indicado para un elemento en particular.
 h) En relación con el cemento hidráulico y el acero de refuerzo se debe cumplir con los siguientes reglamemtos en su versión vigente:
-· RTCR 479 “Materiales de Construcción, Cementos Hidráulicos. Especificaciones”;
-· RTCR 476 “Materiales de la construcción. Cementos hidráulicos. Procedimiento de Evaluación de la conformidad”;
-· RTCR 452: 2011 “Barras y alambres de acero de refuerzo para concreto. Especificaciones”.
+· RTCR 479 "Materiales de Construcción, Cementos Hidráulicos. Especificaciones";
+· RTCR 476 "Materiales de la construcción. Cementos hidráulicos. Procedimiento de Evaluación de la conformidad";
+· RTCR 452: 2011 "Barras y alambres de acero de refuerzo para concreto. Especificaciones".
 i) En relación con el diseño propuesto para los sistemas de abastecimiento de agua potable, se debe contemplar el uso de materiales que no generen afectación a la salud humana, considerando que los mismos pueden ser sujeto de corrosión o pueden adicionar sustancias o partículas al agua, la composición del agua tratada debe cumplir con los valores permitidos establecidos en el Reglamento para la calidad del agua potable vigente, emitido por el Ministerio de Salud.
 j) Los tubos, válvulas y los accesorios respectivos, que se incorporen a las obras que se construyan según el diseño aprobado, deben tener una certificación de producto emitida por un Organismo de Evaluación de la Conformidad (OEC), organismo de tercera parte, acreditado bajo la norma ISO/IEC 17065 (en su versión más actualizada) o su norma homóloga en el país de origen (en su versión más actualizada); esta acreditación deber ser otorgada por el Ente Costarricense de Acreditación (ECA) o por una entidad acreditadora reconocida por el ECA.
-Para cada tipo de tubo, válvula o accesorio de éstos, se acepta que la certificación de producto sea de “lote” o de “marca de conformidad”, según se indica a continuación:
+Para cada tipo de tubo, válvula o accesorio de éstos, se acepta que la certificación de producto sea de "lote" o de "marca de conformidad", según se indica a continuación:
 I. Certificación de lote: mediante ensayos realizados a muestras extraídas del lote a inspeccionar, se determina el cumplimiento de cada lote de producto sometido a evaluación con respecto a la(s) norma(s) técnica(s) establecidas en el presente documento o que sean aprobadas con el diseño propuesto, de acuerdo con un plan de muestreo y un procedimiento establecido por el OEC.
 II. Certificación de marca de conformidad: además de la evaluación de la conformidad del producto con respecto a la(s) norma(s) técnica(s) establecidas en el presente documento o que sean aprobadas con el diseño propuesto, se realiza una evaluación del proceso de producción y del sistema de calidad inherente al producto, según el procedimiento establecido por el OEC; si la certificación es otorgada, se coloca sobre el producto una marca (logo o sello) con base en la licencia o contrato de uso de marca que el OEC le autoriza al fabricante.
 El AyA se reserva el derecho de verificar en cualquier momento los certificados de producto, incluido los documentos de respaldo de las pruebas realizadas, así como los documentos de acreditación del OEC.
@@ -179,12 +178,12 @@ Para bombas y motores el período es de 10 a 15 años.
 Para equipos de desinfección el período es de 5 años.
 4.3 Dotaciones
 Para el diseño del sistema de abastecimiento se deben aplicar las siguientes dotaciones brutas:
-• Datos de los patrones de consumos y demandas de la localidad en estudio, según datos reales aportados por el operador del sistema de abastecimiento, siempre que los mismos se sometan a un análisis estadístico que los valide.
-• Cuando no existan datos reales de los patrones de consumos y demandas de la localidad en estudio, se deben utilizar los siguientes valores mínimos:
-•Poblaciones rurales: 200 l/p/d; en caso de zonas rurales costeras se aplicará la dotación establecida para “Población costera”
-•Poblaciones urbanas: 250 l/p/d
-•Poblaciones costera: 300 l/p/d
-•Área Metropolitana: 250 l/p/d
+. Datos de los patrones de consumos y demandas de la localidad en estudio, según datos reales aportados por el operador del sistema de abastecimiento, siempre que los mismos se sometan a un análisis estadístico que los valide.
+. Cuando no existan datos reales de los patrones de consumos y demandas de la localidad en estudio, se deben utilizar los siguientes valores mínimos:
+.Poblaciones rurales: 200 l/p/d; en caso de zonas rurales costeras se aplicará la dotación establecida para "Población costera"
+.Poblaciones urbanas: 250 l/p/d
+.Poblaciones costera: 300 l/p/d
+.Área Metropolitana: 250 l/p/d
 Las dotaciones que se indican corresponden a consumo poblacional de agua potable, por lo que no aplican para calcular la demanda de agua requerida como materia prima o insumo a procesos industriales, agroindustriales u otros.
 (Así reformado el punto 4.3) anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
 4.4 Factores de demanda máxima
@@ -251,20 +250,20 @@ Tabla 2: Coeficientes máximos (Hazen y Williams)
 Material | Valor máximo de C (Adimensional)
 Polietileno de Alta Densidad (PEAD) | 130
 Cloruro de Polivinilo (PVC) | 130
-Concreto | 120 – 140
+Concreto | 120 - 140
 Hierro galvanizado | 120
 Hierro dúctil | 120
 Hierro fundido* | 130
-Hierro fundido (10 años de edad) | 107 – 113
-Hierro fundido (20 años de edad) | 89 – 100
-Hierro fundido (30 años de edad) | 75 – 90
-Hierro fundido (40 años de edad) | 64 – 83
+Hierro fundido (10 años de edad) | 107 - 113
+Hierro fundido (20 años de edad) | 89 - 100
+Hierro fundido (30 años de edad) | 75 - 90
+Hierro fundido (40 años de edad) | 64 - 83
 Acero | 130
-Acero* | 140 – 150
+Acero* | 140 - 150
 Acero rolado | 110
-Cobre | 130 – 140
+Cobre | 130 - 140
 (a) Se refiere al material utilizado en productos fabricados durante los últimos 10 años.
-En caso de que el material no esté contemplado en la tabla anterior, se debe someter al AyA una propuesta para el valor de “C”, aportando la documentación de respaldo para el material propuesto. AyA se reserva el derecho de aceptar el valor propuesto o de indicar el valor a utilizar en el diseño.
+En caso de que el material no esté contemplado en la tabla anterior, se debe someter al AyA una propuesta para el valor de "C", aportando la documentación de respaldo para el material propuesto. AyA se reserva el derecho de aceptar el valor propuesto o de indicar el valor a utilizar en el diseño.
 4.12.1 Presión interna en tuberías
 Las tuberías deben tener la capacidad de soportar la presión estática interna más sobrepresiones por golpe de ariete, pero en ningún caso dicha capacidad será menor a 100 mca (presión nominal de trabajo), con las siguientes excepciones:
 a) En líneas de conducción y de aducción, cuando el cálculo hidráulico lo permita, las tuberías deben ser resistentes a la presión estática interna, más sobrepresiones por golpe de ariete, pero en ningún caso, la resistencia de las tuberías será menor a 80 mca.
@@ -282,7 +281,7 @@ El diámetro interno de la tubería corresponderá al que se indique en la norma
 4.15.1 Tubos y accesorios
 4.15.1.1 Conductos circulares
 Los tubos que se incorporen al sistema de recolección deben ser de sección circular.
-El material del tubo para conexiones domiciliarias debe ser polietileno de alta densidad (conocido por su siglas en inglés como “HDPE”) en DR 9.
+El material del tubo para conexiones domiciliarias debe ser polietileno de alta densidad (conocido por su siglas en inglés como "HDPE") en DR 9.
 El material de la tubería para líneas de conducción, de aducción o de otros componentes del sistema de abastecimiento de agua potable, debe corresponder con los materiales indicados en la Tabla 2.
 No se permite el uso de tubería PVC-SDR-41 en los sistemas de abastecimiento de agua potable, lo anterior incluye los casos en donde la presión operativa máxima lo permita.
 Los accesorios de los tubos y las juntas o uniones correspondientes, son las que se indiquen o recomienden en las normas técnicas de fabricación del tubo. Además, los accesorios deben ser resistentes a la presión máxima calculada por el diseñador, pero en ningún caso menor a la resistencia del tubo al cual se conecta el accesorio.
@@ -303,7 +302,7 @@ La ubicación de la prevista se marcará con pintura de color rojo en el cordón
 La tubería debe resistir las cargas permanentes debidas al relleno, las cargas temporales y el tránsito vehicular. El diseño debe garantizar que durante la etapa constructiva no se originen deformaciones en las tuberías que comprometan la funcionalidad de las mismas.
 Los tubos deben cumplir con las normas técnicas de instalación indicadas o recomendadas en la misma norma de fabricación del tubo seleccionado ó con las que se indiquen en el presente documento según corresponda.
 Para tubos termoplásticos, si el proceso de instalación subterránea se realiza con apertura de zanja, se debe cumplir con la norma técnica INTE 16-02-02.
-Para tubos de polietileno, si el proceso de instalación se realiza utilizando la técnica conocida como “maxi-perforación horizontal direccional”, se debe cumplir con la norma técnica INTE 16-05-13.
+Para tubos de polietileno, si el proceso de instalación se realiza utilizando la técnica conocida como "maxi-perforación horizontal direccional", se debe cumplir con la norma técnica INTE 16-05-13.
 Se reitera que los requisitos técnicos incluidos en el presente documento o en las normas técnicas de referencia, en relación con la instalación de tubería, establecen requerimientos de ancho, profundidad y otros (relleno, acostillado, fundación, etc.), que obedecen únicamente a las condiciones de colocación de la tubería en el sitio, para su correcto funcionamiento según las condiciones de servicio. Por lo tanto, cualquier otro requisito que tenga por objetivo proteger la seguridad de quienes laboran en los procesos constructivos, según las técnicas o tecnologías que sean utilizadas antes y durante el proceso de instalación, debe ser considerado por quien tiene a cargo el proceso constructivo del proyecto, esto incluye el cumplimiento con la legislación nacional en materia de seguridad e higiene, emitida por el Ministerio de Trabajo y Seguridad Social u otros organismos según área de competencia.
 En el anexo 3 se incluyen otras normas técnicas de instalación aceptables.
 El AyA se reserva el derecho de seleccionar los equipos o dispositivos y la tecnología más apropiada, para llevar a cabo los ensayos o las pruebas establecidas en esta norma técnica, incluidas las normas técnicas de referencia que en ella se citan, en relación con los requisitos técnicos establecidos. Lo anterior durante o al finalizar el proceso constructivo, siendo de especial interés, la verificación de los requisitos respecto a elevaciones, inclinaciones, deformaciones, distorsiones, fisuras y cambios de dirección de la tubería (vertical u horizontal), por cuanto éstos inciden directamente en el correcto funcionamiento de las líneas de tubería según el diseño del sistema.
@@ -329,17 +328,17 @@ En el anexo 3 se incluye información adicional sobre normativa técnica aplicab
 Todo sistema de abastecimiento de agua potable debe incluir los medidores según requisitos técnicos del sistema; éstos deben ubicarse a la entrada y salida de los centros de producción y, al inicio de los centros de consumo según las zonas de abastecimiento.
 4.15.4 Hidrómetros
 Toda conexión debe estar dotada de su correspondiente medidor.
-Los hidrómetros y las cajas que se seleccionen deben cumplir con la norma AR-HSA-2008 “Hidrómetros para el servicio de acueducto”, emitida por ARESEP en su versión vigente.
+Los hidrómetros y las cajas que se seleccionen deben cumplir con la norma AR-HSA-2008 "Hidrómetros para el servicio de acueducto", emitida por ARESEP en su versión vigente.
 Se acepta que los hidrómetros se coloquen de forma vertical u horizontal, en ambos casos dentro de una caja de protección, construida en línea con el límite de la propiedad con acceso a la vía pública.
 4.16 Potabilización del agua
 Los sistemas de abastecimiento que cuenten con fuentes superficiales o subterráneas propias, deben cumplir con la normativa nacional aplicable a la calidad del agua potable y sus procesos de tratamiento, emitida por el Ministerio de Salud y por el AyA según corresponda, independientemente del proceso de tratamiento utilizado.
-Los proyectos que incluyan plantas desalinizadoras y potabilizadoras deben cumplir con la “Especificación técnica para desalinización y potabilización de agua marina. Parte I: Requisitos mínimos generales” emitida por AyA (Serie: AyA-2010-01) y con la legislación nacional aplicable.
+Los proyectos que incluyan plantas desalinizadoras y potabilizadoras deben cumplir con la "Especificación técnica para desalinización y potabilización de agua marina. Parte I: Requisitos mínimos generales" emitida por AyA (Serie: AyA-2010-01) y con la legislación nacional aplicable.
 El agua residual producto de los procesos contemplados en el diseño y cualquier otro residuo generado durante los procesos de potabilización, debe ser tratado y cumplir con lo establecido en la legislación nacional que le aplique y, especialmente con el Reglamento de vertido y uso de aguas residuales vigente.
 (Así adicionado el párrafo anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
 5 . Sistema de Saneamiento
 5.1 Población de diseño
 La población mínima de diseño se debe calcular a partir del número de unidades habitacionales que contempla el proyecto multiplicado por el factor de hacinamiento, este último corresponde al valor que se obtiene del último censo de población del distrito.
-Para el cálculo de la población correspondiente a las unidades que no son habitacionales, se debe aplicar el cálculo de “Unidad de consumo equivalente (UCE) o Servicios equivalentes (SE)” según lo indicado en la sección 4.1 del presente documento.
+Para el cálculo de la población correspondiente a las unidades que no son habitacionales, se debe aplicar el cálculo de "Unidad de consumo equivalente (UCE) o Servicios equivalentes (SE)" según lo indicado en la sección 4.1 del presente documento.
 En proyectos mixtos (varios tipos de actividad) el cálculo de unidades equivalentes debe realizarse de manera independiente para cada tipo de actividad; el valor final será la suma de las unidades habitacionales y todas las unidades equivalentes.
 En caso de que el tipo de actividad no esté contemplada dentro de la clasificación indicada en la tabla anterior, se debe someter al AyA una propuesta para el cálculo de servicios equivalentes, aportando la documentación de respaldo.
 5.2 Períodos de diseño
@@ -366,7 +365,7 @@ Poblaciones rurales* | 170
 Poblaciones urbanas | 200
 Poblaciones costera | 225
 Área Metropolitana | 200
-(*) en caso de zonas rurales costeras se aplicará la dotación establecida para “Población costera”.
+(*) en caso de zonas rurales costeras se aplicará la dotación establecida para "Población costera".
 b) Aguas residuales especiales tratadas o caudal promedio de agua residual especial tratada (Qpare):
 El caudal promedio de agua residual especial tratada, se debe calcular para cada caso particular según la actividad.
 c) Contribuciones externas (Qext):
@@ -397,9 +396,9 @@ La velocidad no debe ser mayor de 5,0 m/s y la velocidad mínima se debe estable
 5.5.2 Tirante hidráulico máximo en tuberías a gravedad o canal abierto
 El valor máximo del tirante hidráulico debe ser de 75% del diámetro interno de la tubería seleccionada en redes de distribución para el caudal de diseño y de un 50% en el caso de colectores y subcolectores.
 5.5.3 Cálculo hidráulico en tuberías a gravedad o canal abierto
-El sistema de recolección de aguas residuales se debe diseñar como conductos en escurrimiento libre, por gravedad. Se deben utilizar las fórmulas hidráulicas de canal abierto; si se utiliza la ecuación de Manning, los coeficientes mínimos de rugosidad a utilizar en la fórmula corresponden a los establecidos para la “n” de Manning (ver detalle de la ecuación en el anexo 2), indicados en la siguiente tabla:
-Tabla 3: Coeficientes mínimos para la “n” de Manning
-Tipo de material | Coeficiente para la “n” de Manning
+El sistema de recolección de aguas residuales se debe diseñar como conductos en escurrimiento libre, por gravedad. Se deben utilizar las fórmulas hidráulicas de canal abierto; si se utiliza la ecuación de Manning, los coeficientes mínimos de rugosidad a utilizar en la fórmula corresponden a los establecidos para la "n" de Manning (ver detalle de la ecuación en el anexo 2), indicados en la siguiente tabla:
+Tabla 3: Coeficientes mínimos para la "n" de Manning
+Tipo de material | Coeficiente para la "n" de Manning
 Cloruro de Polivinilo (PVC) | 0,010
 Polietileno de Alta Densidad (PEAD) de pared sólida | 0,010
 Polietileno de Alta Densidad (PEAD) de pared corrugada estructurada | 0,012
@@ -431,7 +430,7 @@ En relación con las dos rejillas se debe cumplir lo siguiente:
 · una separación libre entre rejas de 20 a 50 mm para retener sólidos gruesos, ambos inclusive y, de 20 mm para retener sólidos finos.
 · una orientación vertical con un ángulo de 60° respecto a la horizontal, colocadas de forma tal que sean atravesadas en su parte inferior por el flujo del agua residual cruda,
 · una guía fabricada en el mismo material de la rejilla de 10 mm (3/8 pulgadas) en acero según código UNS S30400 (AISI 304)1, que al mismo tiempo funcione como soporte de la rejilla y que quede empotrada en la pared de concreto; cada guía debe permanecer fija y no se permite el paso del agua por los laterales de la rejilla cuando ésta cumpla la función de removedor de sólidos gruesos,
-1 El Sistema conocido como “UNS” por sus siglas en el idioma inglés “The Unified Numbering System” incorpora la designación de metales o de aleaciones codificadas bajo otro sistema, entre ellos el establecido por el “American Iron and Steel Institute (AISI)”, el código “UNS” se aplica de conformidad con las normas ASTM E527 y ASTM A959 en su versión vigente.
+1 El Sistema conocido como "UNS" por sus siglas en el idioma inglés "The Unified Numbering System" incorpora la designación de metales o de aleaciones codificadas bajo otro sistema, entre ellos el establecido por el "American Iron and Steel Institute (AISI)", el código "UNS" se aplica de conformidad con las normas ASTM E527 y ASTM A959 en su versión vigente.
 · las rejillas y las guías deben fabricarse en acero inoxidable igual o superior al acero según código UNS S30400 (AISI 304).
 En cada extremo del sifón se debe ubicar cámaras de registro, para facilitar las actividades de mantenimiento. Se deben presentar todos los cálculos hidráulicos que respalden la geometría y dimensionamiento del pozo de inicio.
 Se debe dejar un mecanismo de limpieza permanente en la parte más baja del sifón; este mecanismo debe ser debidamente aprobado por el operador del sistema.
@@ -449,8 +448,8 @@ En ambos casos, se deben presentar todos los cálculos hidráulicos que respalde
 En pasos elevados, no se permiten deflexiones en la tubería, es decir la tubería independientemente de la longitud a colocar, debe comportarse como un solo elemento sin uniones que puedan desacoplarse generando fugas. No se permite la colocación de tuberías que tengan uniones mecánicas (dresser, campana, unión flexible u otra), con excepción de los tramos de tuberías colocadas de forma tal, que al estar soportada en una estructura se evite la deflexión.
 Se acepta que el diseño incluya líneas de impulsión, únicamente cuando se demuestre técnicamente que no resulta viable un sistema por gravedad; cuando sea requerida una línea de impulsión, se debe garantizar la hermeticidad de la junta según el material, diámetro y norma técnica de fabricación de las tuberías que conformen esa línea, garantizando las condiciones de servicio establecidas en el proyecto. Cuando la línea de impulsión atraviese ríos o quebradas u otro obstáculo de forma elevada o subterránea, aplican los requisitos indicados en este apartado, exceptuando lo relativo a la costrucción de pozos de registro.
 5.6 Sistema a presión constante
-El sistema de saneamiento que contemple la recolección de aguas residua les a presión constante, solo se permite en condominios residenciales ó comerciales, donde los propietarios en su calidad de “condóminos” actuarán como el ente responsable de la operación y mantenimiento del sistema a lo interno del condominio. Este sistema debe contar con todos los recursos necesarios para su adecuado funcionamiento, entre ellos: equipos alternos de emergencia ante el paro de energía eléctrica, repuestos y personal calificado para la operación y mantenimiento.
-Este tipo de tecnología no es permitida en el desarrollo de urbanizaciones y fraccionamientos, tampoco se permite que la línea de trasiego final de las aguas residuales opere al vacío, para ello se debe implementar un sistema de conducción a gravedad o de impulsión para la interconexión al sistema público, según corresponda. La estación de bombeo que se construya debe ubicarse dentro del desarrollo y su operación y mantenimiento estará a cargo de los propietarios en su calidad de “condóminos”.
+El sistema de saneamiento que contemple la recolección de aguas residua les a presión constante, solo se permite en condominios residenciales ó comerciales, donde los propietarios en su calidad de "condóminos" actuarán como el ente responsable de la operación y mantenimiento del sistema a lo interno del condominio. Este sistema debe contar con todos los recursos necesarios para su adecuado funcionamiento, entre ellos: equipos alternos de emergencia ante el paro de energía eléctrica, repuestos y personal calificado para la operación y mantenimiento.
+Este tipo de tecnología no es permitida en el desarrollo de urbanizaciones y fraccionamientos, tampoco se permite que la línea de trasiego final de las aguas residuales opere al vacío, para ello se debe implementar un sistema de conducción a gravedad o de impulsión para la interconexión al sistema público, según corresponda. La estación de bombeo que se construya debe ubicarse dentro del desarrollo y su operación y mantenimiento estará a cargo de los propietarios en su calidad de "condóminos".
 5.6.1 Plan de contingencia y programa de mantenimiento
 No se permiten rebalses de aguas residuales en sistemas de este tipo; por lo tanto, se debe presentar conjuntamente con el diseño para su aprobación, un plan de contingencia ante situaciones que afecten la operación continua del sistema y el mantenimiento, particularmente en los siguientes casos:
 a) Fallo de energía eléctrica.
@@ -465,8 +464,8 @@ El diámetro interno de la tubería corresponderá al que se indique en la norma
 5.6.4 Línea de energía
 Para cada prevista domiciliar, el desarrollador debe trazar la línea de energía de la estación individual hasta el punto de descarga, para verificar que no exista cavitación ni presiones negativas.
 5.7 Sistema a presión negativa constante
-El sistema de saneamiento que contemple la recolección de aguas residua les a presión negativa constante, solo se permite en condominios residenciales y comerciales. Este sistema debe ser operado por los propietarios en su calidad de “condóminos”, quienes actuarán como el ente responsable de la operación y mantenimiento del sistema a lo interno del condominio. Este sistema debe contar con todos los recursos necesarios para su adecuado funcionamiento, entre ellos: equipos alternos de emergencia ante el paro de energía eléctrica, repuestos y personal calificado para la operación y mantenimiento.
-Este tipo de tecnología no es permitida en el desarrollo de urbanizaciones y fraccionamientos, tampoco se permite que la línea de trasiego final de las aguas residuales opere al vacío, para ello se debe implementar un sistema de conducción a gravedad o de impulsión para la interconexión al sistema público, según corresponda. La estación de bombeo que se construya debe ubicarse dentro del desarrollo y su operación y mantenimiento estará a cargo de los propietarios en su calidad de “condóminos”.
+El sistema de saneamiento que contemple la recolección de aguas residua les a presión negativa constante, solo se permite en condominios residenciales y comerciales. Este sistema debe ser operado por los propietarios en su calidad de "condóminos", quienes actuarán como el ente responsable de la operación y mantenimiento del sistema a lo interno del condominio. Este sistema debe contar con todos los recursos necesarios para su adecuado funcionamiento, entre ellos: equipos alternos de emergencia ante el paro de energía eléctrica, repuestos y personal calificado para la operación y mantenimiento.
+Este tipo de tecnología no es permitida en el desarrollo de urbanizaciones y fraccionamientos, tampoco se permite que la línea de trasiego final de las aguas residuales opere al vacío, para ello se debe implementar un sistema de conducción a gravedad o de impulsión para la interconexión al sistema público, según corresponda. La estación de bombeo que se construya debe ubicarse dentro del desarrollo y su operación y mantenimiento estará a cargo de los propietarios en su calidad de "condóminos".
 5.7.1 Plan de contigencia y programa de mantenimiento
 No se permiten rebalses de aguas residuales en sistemas de este tipo; por lo tanto, se debe presentar conjuntamente con el diseño para su aprobación, un plan de contingencia ante situaciones que afecten la operación continua del sistema y el mantenimiento, particularmente en los siguientes casos:
 · Fallo de energía eléctrica.
@@ -507,10 +506,10 @@ En pasos al descubierto y puentes se deben utilizar tubos de hierro dúctil seg�
 Los tubos que se utilicen en líneas de impulsión, cuando proceda su inclusión en el diseño, deben ser de polietileno de alta densidad según norma INTE 16-05-06.
 5.9.1.2 Uniones en tuberías a presión
 Cuando se incorporen uniones por cambio de materiales en tuberías a presión, se debe cumplir con lo siguiente:
-· Entre tuberías metálicas y de Poli (Cloruro de vinilo) (PVC): se debe utilizar una unión “dresser” según norma AWWA C219, se debe especificar en planos el tipo de accesorio con base en la presión nominal y el tipo de brida acorde con las condiciones de servicio establecidas. El accesorio debe fabricarse en hierro dúctil según norma ASTM A536 (Fundiciones de hierro dúctil).
-· Entre tuberías metálicas y de polietileno de alta densidad (PEAD): se debe utilizar una unión “multi-campana” para polietileno según norma AWWA C219, se debe especificar en planos el tipo de accesorio con base en la presión nominal que corresponda al valor mayor entre los materiales a unir y el tipo de brida acorde con las condiciones de servicio del proyecto. El material del accesorio debe ser de hierro dúctil según norma ASTM A536.
-Considerando que los diámetros externos de tuberías de PEAD y metálicas difieren entre sí, al acoplar una tubería de PEAD de un diámetro nominal determinado es necesario que la tubería metálica sea de un diámetro nominal menor, debido al mayor espesor de la tubería de PEAD. Alternativamente, se acepta que se utilice una unión de brida termofusionada a la tubería principal de PEAD que se acopla al extremo bridado de la tubería metálica, esa unión debe cumplir con la norma ASTM D3261, “Bridas” ASME B16.1 clase a definir según las condiciones de servicio establecidas.
-· Entre tuberías de acero y hierro dúctil: se debe utilizar una unión mediante “bridas” según norma ASME B16.1, clase a definir según condiciones de servicio del proyecto.
+· Entre tuberías metálicas y de Poli (Cloruro de vinilo) (PVC): se debe utilizar una unión "dresser" según norma AWWA C219, se debe especificar en planos el tipo de accesorio con base en la presión nominal y el tipo de brida acorde con las condiciones de servicio establecidas. El accesorio debe fabricarse en hierro dúctil según norma ASTM A536 (Fundiciones de hierro dúctil).
+· Entre tuberías metálicas y de polietileno de alta densidad (PEAD): se debe utilizar una unión "multi-campana" para polietileno según norma AWWA C219, se debe especificar en planos el tipo de accesorio con base en la presión nominal que corresponda al valor mayor entre los materiales a unir y el tipo de brida acorde con las condiciones de servicio del proyecto. El material del accesorio debe ser de hierro dúctil según norma ASTM A536.
+Considerando que los diámetros externos de tuberías de PEAD y metálicas difieren entre sí, al acoplar una tubería de PEAD de un diámetro nominal determinado es necesario que la tubería metálica sea de un diámetro nominal menor, debido al mayor espesor de la tubería de PEAD. Alternativamente, se acepta que se utilice una unión de brida termofusionada a la tubería principal de PEAD que se acopla al extremo bridado de la tubería metálica, esa unión debe cumplir con la norma ASTM D3261, "Bridas" ASME B16.1 clase a definir según las condiciones de servicio establecidas.
+· Entre tuberías de acero y hierro dúctil: se debe utilizar una unión mediante "bridas" según norma ASME B16.1, clase a definir según condiciones de servicio del proyecto.
 · Entre tuberías de acero: la unión debe llevarse a cabo mediante soldadura.
 5.9.1.3 Ubicación de tuberías
 Las tuberías para redes terciarias se deben ubicar en el centro de las avenidas y calles respectivamente, a una profundidad mínima de 1,20 m desde la rasante de la calle hasta la corona del tubo (ver anexo 5).
@@ -518,12 +517,13 @@ Cuando el diseño contempla la ubicación de colectores o subcolectores en vía 
 Se debe construir un pozo al inicio de cualquier tramo del sistema sanitario, el cual debe tener al menos una profundidad mínima de 1,30 m, medido desde el nivel de fondo del pozo.
 En casos especiales cuando la topografía no permita cumplir con el requisito de profundidad establecido y se requiera instalar la tubería a una profundidad menor a lo indicado, se debe colocar losa de concreto reforzada (ver detalle en anexo 9). En tales casos, la profundidad de colocación de tubería estará determinada por el material de la tubería y por la altura de relleno sobre la tubería, por lo que se debe cumplir con lo especificado en la siguiente tabla.
 Tabla 4: Profundidad de colocación de la tubería (casos especiales)
-Tipo de tubería | Profundidad mínima sobre corona de tubo* (m) | Profundidad máxima sobre corona del tubo (m)
-Polietileno Alta Densidad, corrugada Plástica perfilada con refuerzo Plástica perfilada con alma de acero Hierro Dúctil o de Acero Concreto sin refuerzo (empaque de hule) Concreto con refuerzo (empaque de hule) | 0,8 0,8 0,8 0,2 0,4 0,2 | 12 10 12 15 15 15
-(*) Se acepta esta profundidad siempre que no se alteren las condiciones de operación de la infraestructura existente en el sitio de colocación de la tubería.
+[imagen]
+a. Se acepta esta profundidad siempre que no se alteren las condiciones de operación de la infraestructura existente en el sitio de colocación de la tubería.
+b. Las juntas de las tuberías de concreto que se utilicen en sistemas de saneamiento de aguas residuales deben ser únicamente de empaque de hule.
+(Así reformada la tabla 4 anterior en sesión N° 51 del 4 de agosto de 2021)
 La profundidad a la que se coloque la tubería también debe cumplir con las longitudes de separación con los otros sistemas (pluvial y potable) y la profundidad mínima solo se permite en casos donde el sistema de saneamiento no cause una interferencia con otros sistemas.
 En el diseño se debe indicar la deflexión máxima establecida para las tuberías (por tipo de material y diámetro), como un porcentaje del díametro externo o interno según corresponda; se debe presentar la documentación técnica del fabricante que respalda el valor de la deformación esperada. Se deben detallar los cálculos que demuestren que para las condiciones del proyecto, no se sobrepasan los esfuerzos máximos recomendados para los distintos materiales empleados; en rellenos de 10 m o más se debe presentar la memoria de cálculo sobre las condiciones de la zanja y la capacidad de soporte de la tubería.
-Cuando se instale tubería aplicando la tecnología sin zanja (“Pipe Jacking”, "pipe bursting", maxi o mini perforación horizontal dirigida u otras), en la memoria de cálculo se debe demostrar la capacidad técnica de la tubería para cumplir con las cargas generadas durante el proceso de instalación y a lo largo de todo el periodo de su vida útil.
+Cuando se instale tubería aplicando la tecnología sin zanja ("Pipe Jacking", "pipe bursting", maxi o mini perforación horizontal dirigida u otras), en la memoria de cálculo se debe demostrar la capacidad técnica de la tubería para cumplir con las cargas generadas durante el proceso de instalación y a lo largo de todo el periodo de su vida útil.
 5.9.1.4 Ubicación de la prevista
 La prevista se debe instalar con respecto a la tubería principal, según se muestra en el anexo 6. La ubicación de la prevista se debe señalar con pintura de color rojo en el cordón de caño, con una flecha marcada en bajorrelieve (ver anexo 5).
 Las dos primeras bocas del sifón sanitario se deben ubicar dentro de la propiedad del inmueble al que se le brindará el servicio, la tercer boca debe ser ubicada en el área de la acera; en el anexo 7 se incluyen las figuras que detallan ubicación y requisitos técnicos de los elementos que lo conforman. Se acepta que el sifón sanitario se instale sin la caja de registro, siempre que se incluyan los adaptadores, niples, tapones roscados y las tapas de concreto que cubren estos tapones, tal y como se muestra en el anexo 7, en el diseño se deben incoporar los detalles técnicos respectivos.
@@ -537,10 +537,10 @@ El ancho de la zanja no debe ser mayor que el diámetro de la tubería más 0,50
 Se reitera que los requisitos técnicos incluidos en el presente documento o en las normas técnicas de referencia, en relación con la instalación de tubería, establecen requerimientos de ancho, profundidad y otros (relleno, acostillado, fundación, etc.), que obedecen únicamente a las condiciones de colocación de la tubería en el sitio, para su correcto funcionamiento según las condiciones de servicio. Por lo tanto, cualquier otro requisito que tenga por objetivo proteger la seguridad de quienes laboran en los procesos constructivos, según las técnicas o tecnologías que sean utilizadas antes y durante el proceso de instalación, debe ser considerado por quien tiene a cargo el proceso constructivo del proyecto, esto incluye el cumplimiento con la legislación nacional en materia de seguridad e higiene emitida por el Ministerio de Trabajo y Seguridad Social u otros organismos según área de competencia.
 El fondo de las zanjas debe nivelarse para que la tubería se apoye en toda su longitud y no sea sometida a esfuerzos de flexión.
 Los tubos deben cumplir con las normas técnicas de instalación indicadas o recomendadas en la misma norma de fabricación del tubo seleccionado ó con las que se indiquen en el presente documento según corresponda. En el caso de tubos de pared perfilada (con geometría corrugada o acostillada o similar), cuando su uso corresponda según las condiciones de servicio, se deben incluir en el diseño los detalles técnico-constructivos para su debida instalación y correcto desempeño.
-Para tubos prefabricados en concreto, si el proceso de instalación se realiza con apertura de zanja, se debe tener de referencia lo establecido en la norma técnica INTE 16-11-02. Si el proceso de instalación se realiza utilizando la tecnología sin zanja conocida como (“Pipe Jacking”, se debe tener de referencia lo establecido en las normas técnicas INTE 16-11-29 parte I y II.
+Para tubos prefabricados en concreto, si el proceso de instalación se realiza con apertura de zanja, se debe tener de referencia lo establecido en la norma técnica INTE 16-11-02. Si el proceso de instalación se realiza utilizando la tecnología sin zanja conocida como ("Pipe Jacking", se debe tener de referencia lo establecido en las normas técnicas INTE 16-11-29 parte I y II.
 Para tubos termoplásticos para aplicaciones por gravedad, si el proceso de instalación se realiza con apertura de zanja, se debe tener de referencia lo establecido en la norma técnica INTE 16-08-01.
 Para tubos de fibra de vidrio sometidos o no a presión, si el proceso de instalación se realiza con apertura de zanja, se debe tener de referencia lo establecido en la norma técnica INTE 16-13-06.
-Para tubos de polietileno, si el proceso de instalación se realiza utilizando la técnica conocida como “maxi-perforación horizontal direccional”, se debe tener de referencia lo establecido en la norma técnica INTE 16-05-13.
+Para tubos de polietileno, si el proceso de instalación se realiza utilizando la técnica conocida como "maxi-perforación horizontal direccional", se debe tener de referencia lo establecido en la norma técnica INTE 16-05-13.
 El AyA o el ente operador respectivo solicitará, en caso de requerirlo, pruebas de compactación del relleno de la zanja y de los materiales utilizados en las camas, realizadas por algún laboratorio acreditado para tales efectos.
 El AyA se reserva el derecho de seleccionar los equipos o dispositivos y la tecnología más apropiada, para llevar a cabo los ensayos o las pruebas establecidas en esta norma técnica, incluidas las normas técnicas de referencia que en ella se citan, en relación con los requisitos técnicos establecidos. Lo anterior durante o al finalizar el proceso constructivo, siendo de especial interés, la verificación de los requisitos respecto a elevaciones, inclinaciones, deformaciones, distorsiones, fisuras y cambios de dirección de la tubería (vertical u horizontal), por cuanto éstos inciden directamente en el correcto funcionamiento de las líneas de tubería según el diseño del sistema.
 (Así adicionado el párrafo anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
@@ -570,7 +570,7 @@ Para los pozos con una profundidad superior a los 5 m o con un diámetro interno
 Si se incorpora al diseño pozos no fabricados en concreto o prefabricados en concreto, se debe presentar la memoria de cálculo y la ficha técnica donde se demuestre el cumplimiento de los requerimientos estructurales y se detallen las normas técnicas de diseño y de fabricación y las recomendaciones del fabricante, para su debida valoración por la comisión técnica.
 La tapa del pozo debe cumplir con la norma técnica INTE 16-12-01, la selección del material de la tapa y del arobase, y cualquier otro requisito que sea determinante para el conjunto tapa-arobase o que sea requerido para la correcta aplicación de la norma INTE 16-12-01, debe ser definido por el Ente Operador correspondiente. En el anexo 10 se detallan las principales características de la tapa así como sus dimensiones y las del aro base (marco).
 La boca de la losa superior se debe desplazar del eje del pozo de forma tal que facilite su acceso, con peldaños que deben ser construidos con varilla de 19 mm (número 6). En el anexo 10, se detallan los requisitos técnicos de los pozos.
-(Mediante sesión N° 2021-01 del 5 de enero del 2021 se ordena aclarar el párrafo anterior de la siguiente manera “La tapa del pozo debe cumplir con la norma técnica INTE 16-12-01, el dimensionamiento y la selección del material de la tapa y del arobase, y cualquier otro requisito que sea determinante para el conjunto tapa-arobase o que sea requerido para la correcta aplicación de la norma INTE 16-12-01, debe ser definido por el Ente Operador correspondiente. En el anexo 10 se detallan las características generales de la tapa y del aro base (marco), las cuales deben ser consideradas como una guía a manera de referencia, en términos de la información y su distribución dentro del área de la tapa; así como, detalles referenciales de ranuras y acostillado si es requerido por el operador”)
+(Mediante sesión N° 2021-01 del 5 de enero del 2021 se ordena aclarar el párrafo anterior de la siguiente manera "La tapa del pozo debe cumplir con la norma técnica INTE 16-12-01, el dimensionamiento y la selección del material de la tapa y del arobase, y cualquier otro requisito que sea determinante para el conjunto tapa-arobase o que sea requerido para la correcta aplicación de la norma INTE 16-12-01, debe ser definido por el Ente Operador correspondiente. En el anexo 10 se detallan las características generales de la tapa y del aro base (marco), las cuales deben ser consideradas como una guía a manera de referencia, en términos de la información y su distribución dentro del área de la tapa; así como, detalles referenciales de ranuras y acostillado si es requerido por el operador")
 Únicamente para los proyectos que no cuenten con la autorización previa de funcionamiento del sistema de recolección de aguas residuales a construir, emitida por el Ente Operador respectivo, el pozo debe diseñarse y construirse de conformidad con el detalle de obra temporal para pozo sin uso y detalle de sujeción de piezas de madera que se muestran en el anexo 10, en la que se incluye un sello protector fabricado en concreto cuya función es la de protección hasta que el sistema de recolección sea puesto en funcionamiento.
 5.9.2.1 Canal de fondo de los pozos de registro
 El canal de fondo de los pozos de registro se debe diseñar con las secciones necesarias para la conducción de las aguas. El canal de fondo debe tener una longitud mínima de 0,90 m en la dirección correspondiente, y en el sentido del flujo y del mismo diámetro que el tubo de salida del pozo. Para los pozos de registro sanitarios, se debe incluir un sistema de contra tapa que cubra el canal.
@@ -605,42 +605,42 @@ En relación con el coeficiente de escorrentía se deben aplicar los valores que
 Tabla 7: Coefeciente de escorrentía por tipo de área o desarrollo
 TIPO DE ÁREA O DESARROLLO | C
 TIPO DE ÁREA |
-Techos de edificios | 0,80 – 0,95
-Pavimento de asfalto o concreto | 0,70 – 0,95
-Pavimento de ladrillo | 0,70 – 0,80
+Techos de edificios | 0,80 - 0,95
+Pavimento de asfalto o concreto | 0,70 - 0,95
+Pavimento de ladrillo | 0,70 - 0,80
 Suelos cubiertos de pasto: |
-Pendientes de 2% o menos | 0,05 – 0,10
-Pendientes de 2 a 8% | 0,10 – 0,16
-Pendientes de 8% o más | 0,16 – 0,20
+Pendientes de 2% o menos | 0,05 - 0,10
+Pendientes de 2 a 8% | 0,10 - 0,16
+Pendientes de 8% o más | 0,16 - 0,20
 Suelos arcillosos cubiertos de pasto |
-Pendientes de 2% o menor | 0,10 – 0,16
-Pendientes de 2 a 8% | 0,17 – 0,25
-Pendientes de 8% o más | 0,26 – 0,36
+Pendientes de 2% o menor | 0,10 - 0,16
+Pendientes de 2 a 8% | 0,17 - 0,25
+Pendientes de 8% o más | 0,26 - 0,36
 TIPO DE DESARROLLO |
-Comercios urbanos | 0,70 – 0,95
-Oficinas comerciales | 0,50 – 0,70
-Casas unifamiliares | 0,30 – 0,50
-Condominios | 0,40 – 0,60
-Apartamentos | 0,60 – 0,80
-Residencias suburbanas (parcelas agrícolas | 0,25 – 0,40
-Parques y cementerios | 0,10 – 0,30
+Comercios urbanos | 0,70 - 0,95
+Oficinas comerciales | 0,50 - 0,70
+Casas unifamiliares | 0,30 - 0,50
+Condominios | 0,40 - 0,60
+Apartamentos | 0,60 - 0,80
+Residencias suburbanas (parcelas agrícolas | 0,25 - 0,40
+Parques y cementerios | 0,10 - 0,30
 6.2.1 Intensidad de la lluvia
 La intensidad de la lluvia se debe calcular en función del período de retorno de la tormenta de diseño y del tiempo de concentración.
 a) Periodo de retorno de la tormenta de diseño:
 En sistemas de alcantarillado pluvial convencionales, el período de retorno para el diseño de la red del alcantarillado pluvial debe ser como mínimo de diez (10) años.
 Para el cálculo de la intensidad, duración o frecuencia se deben utilizar gráficas (curvas) generadas o seleccionadas por el diseñador, cuya información aplique para la zona de influencia del proyecto y esté sustentada en datos suministrados por el Instituto Meteorológico Nacional u otro organismo competente en esta materia2.
 2Se tienen a disposición en la Universidad de Costa Rica los siguientes documentos:
-• García Camacho, E. Análisis de las intensidades de precipitación de la cuenca del río Grande de Térraba. Informe final del proyecto de graduación para optar por el grado de licenciado en ingeniería civil. Universidad de Costa Rica 2015.
-• Maroto Bianchini, E. Distribución temporal de la precipitación en el valle del Guarco. Informe final del proyecto de graduación para optar por el grado de licenciado en ingeniería civil. Universidad de Costa Rica 2011.
-• Murillo Muñoz, R. Estudio de Intensidades de Lluvia en la cuenca del río Virilla. Informe final del proyecto de graduación para optar por el grado de licenciado en ingeniería civil. Universidad de Costa Rica 1994.
+. García Camacho, E. Análisis de las intensidades de precipitación de la cuenca del río Grande de Térraba. Informe final del proyecto de graduación para optar por el grado de licenciado en ingeniería civil. Universidad de Costa Rica 2015.
+. Maroto Bianchini, E. Distribución temporal de la precipitación en el valle del Guarco. Informe final del proyecto de graduación para optar por el grado de licenciado en ingeniería civil. Universidad de Costa Rica 2011.
+. Murillo Muñoz, R. Estudio de Intensidades de Lluvia en la cuenca del río Virilla. Informe final del proyecto de graduación para optar por el grado de licenciado en ingeniería civil. Universidad de Costa Rica 1994.
 Alternativamente, se acepta el uso por provincia de la ecuación de intensidad del Dr. Wilhelm-Günther Varson3, según se detalla a continuación:
 3Dr. Wilhelm-Günther Varson, Lic. Marvin Alfaro Sánchez y Lic. Ileana Araúz Beita. Programa Morfoclimatología Aplicada y Dinámica Exogena (MADE) Escuela de Ciencias Geográficas, Universidad Nacional. Colegio Federado de Ingenieros y Arquitectos.
-◦ Alajuela: I = 209,844 – (38,7305 * ln (dur)) + (42,614 -(24,6041 * ln(ln(dur)))) * ln (tn)
-◦ Liberia: I = 200,56 – 35,92 * ln (dur) + (44,13 -7,5 * ln(dur)) * ln (tn)
-◦ Limón: I = 155,05 – (25,89 * ln (dur)) + (21,79 – (3,14 * ln (dur))) * ln (tn)
-◦ San José o Heredia: I = 166,1 – (29,6 * ln (dur)) +(20,3 -(2,279 *ln (dur))) *ln (tn)
-◦ Cartago: I = 156,89 – (28,46 * ln(dur)) + (42,2 – (8,07 * ln (dur))) * ln tn)
-◦ Puntarenas: I = 175,65 – (29,58 *ln(dur)) + (34,05 – (5,32 * ln (dur))) * ln (tn)
+◦ Alajuela: I = 209,844 - (38,7305 * ln (dur)) + (42,614 -(24,6041 * ln(ln(dur)))) * ln (tn)
+◦ Liberia: I = 200,56 - 35,92 * ln (dur) + (44,13 -7,5 * ln(dur)) * ln (tn)
+◦ Limón: I = 155,05 - (25,89 * ln (dur)) + (21,79 - (3,14 * ln (dur))) * ln (tn)
+◦ San José o Heredia: I = 166,1 - (29,6 * ln (dur)) +(20,3 -(2,279 *ln (dur))) *ln (tn)
+◦ Cartago: I = 156,89 - (28,46 * ln(dur)) + (42,2 - (8,07 * ln (dur))) * ln tn)
+◦ Puntarenas: I = 175,65 - (29,58 *ln(dur)) + (34,05 - (5,32 * ln (dur))) * ln (tn)
 Dónde:
 I: intensidad, en mm
 dur: tiempo de concentración, duración de la lluvia, en minutos.
@@ -660,12 +660,12 @@ Cuando el proyecto contemple el desfogue a través de una depresión natural ubi
 6.3.2 Tirante hidráulico máximo en tuberías a gravedad o canal abierto
 El valor máximo permisible del tirante hidráulico debe ser de 0,85 del diámetro interno de la tubería.
 6.3.3 Cálculo hidráulico en tuberías a gravedad o canal abierto
-Las tuberías se deben diseñar como conductos circulares en escurrimiento libre, por gravedad. Para lo cual se deben utilizar las fórmulas hidráulicas de canal abierto, preferiblemente la ecuación de Manning (ver detalle de la ecuación en el anexo 2, los valores para la “n de Manning“ son los que se indican en la Tabla 3 del presente documento.
+Las tuberías se deben diseñar como conductos circulares en escurrimiento libre, por gravedad. Para lo cual se deben utilizar las fórmulas hidráulicas de canal abierto, preferiblemente la ecuación de Manning (ver detalle de la ecuación en el anexo 2, los valores para la "n de Manning" son los que se indican en la Tabla 3 del presente documento.
 En caso de que el material de la tubería no esté contemplado en la tabla indicada o se utilice otra metodología, se debe someter al AyA una propuesta para el o los coeficientes respectivos, aportando la documentación de respaldo; el AyA se reserva el derecho de aceptar el valor o metodología propuesta a utilizar en el diseño.
 6.3.4 Continuidad de tuberías
 No se acepta reducir el diámetro de las tuberías en la dirección del flujo, de tal forma que en un pozo, el diámetro de la tubería de salida debe ser igual o mayor al diámetro mayor de las tuberías de entrada; lo anterior también aplica cuando hay cambios de dirección o de pendiente.
 6.3.5 Diámetro mínimo
-El diámetro nominal mínimo de la red pluvial si se utilizan tuberías plásticas con “n” de Manning igual o inferior al del PVC, debe ser de 375 mm. Si se utiliza tubería de polietileno de alta densidad o tubería de concreto, el diámetro nominal mínimo debe ser de 400 mm.
+El diámetro nominal mínimo de la red pluvial si se utilizan tuberías plásticas con "n" de Manning igual o inferior al del PVC, debe ser de 375 mm. Si se utiliza tubería de polietileno de alta densidad o tubería de concreto, el diámetro nominal mínimo debe ser de 400 mm.
 El diámetro interno de la tubería corresponderá al que se indique en la norma de fabricación del tubo según el diámetro nominal seleccionado.
 Las tuberías que unen los tragantes con los pozos de registro deben tener un diámetro nominal mínimo de 300 mm, cuando sean tragantes de una sola parrilla, aceptándose éstos únicamente al inicio del sistema; para el caso de tragantes de dos o tres parrillas, la tubería debe tener como mínimo un diámetro de 400 mm.
 6.3.6 Estructuras de paso y protección
@@ -691,7 +691,7 @@ No se acepta la colocación de tubería de sistemas sanitarios o potables dentro
 En casos especiales cuando la topografía no permita cumplir con el requisito de profundidad establecido y se requiera instalar la tubería a una profundidad menor a lo indicado, se debe colocar losa de concreto reforzada (ver detalle en anexo 9). En tales casos, la profundidad de colocación de tubería estará determinada por el material de la tubería y por la altura de relleno sobre la tubería, por lo que se debe cumplir con lo especificado en la Tabla 4 del presente documento.
 La profundidad a la que se coloque la tubería también debe cumplir con las longitudes de separación con los otros sistemas (sanitario y potable) y la profundidad mínima solo se permite en casos donde el sistema pluvial no cause una interferencia con otros sistemas.
 En el diseño se debe indicar la deflexión máxima establecida para las tuberías (por tipo de material y diámetro), como un porcentaje del díametro externo o interno según corresponda; se debe presentar la documentación técnica del fabricante que respalda el valor de la deformación esperada. Se deben detallar los cálculos que demuestren que para las condiciones del proyecto, no se sobrepasen los esfuerzos máximos recomendados para los distintos materiales empleados; en rellenos de 10 m o más se debe presentar la memoria de cálculo sobre las condiciones de la zanja y la capacidad de soporte de la tubería.
-Cuando se instale tubería aplicando la tecnología sin zanja (“Pipe Jacking”, "pipe bursting", maxi o mini perforación horizontal dirigida u otras), en la memoria de cálculo se debe demostrar la capacidad técnica de la tubería para cumplir con las cargas generadas durante el proceso de instalación y a lo largo de todo el periodo de su vida útil.
+Cuando se instale tubería aplicando la tecnología sin zanja ("Pipe Jacking", "pipe bursting", maxi o mini perforación horizontal dirigida u otras), en la memoria de cálculo se debe demostrar la capacidad técnica de la tubería para cumplir con las cargas generadas durante el proceso de instalación y a lo largo de todo el periodo de su vida útil.
 6.4.1.3 Instalación de tubería
 La tubería debe resistir las cargas permanentes debidas al relleno, las cargas temporales y el tránsito vehicular. El diseño debe garantizar que durante la etapa constructiva no se originen en las tuberías deformaciones que comprometan su funcionalidad.
 Toda zanja para colocación de tubería debe contar con encamado compactado al 95% del Proctor Modificado (PM); relleno lateral compactado al 95% del PM, utilizando material tipo lastre. El relleno (encamado) debe ser colocado en capas máximas de 30 cm, compactadas al 95% del PM. El AyA o el ente operador respectivo durante el proceso constructivo se reserva el derecho de solicitar pruebas de compactación del relleno de la zanja y de los materiales utilizados en las camas, emitidos por un laboratorio acreditado para la realizacion de estas pruebas.
@@ -699,10 +699,10 @@ El ancho de la zanja no debe ser mayor que el diámetro de la tubería más 0,50
 Se reitera que los requisitos técnicos incluidos en el presente documento o en las normas técnicas de referencia, en relación con la instalación de tubería, establecen requerimientos de ancho, profundidad y otros (relleno, acostillado, fundación, etc.), que obedecen únicamente a las condiciones de colocación de la tubería en el sitio, para su correcto funcionamiento según las condiciones de servicio. Por lo tanto, cualquier otro requisito que tenga por objetivo proteger la seguridad de quienes laboran en los procesos constructivos, según las técnicas o tecnologías que sean utilizadas antes y durante el proceso de instalación, debe ser considerado por quien tiene a cargo el proceso constructivo del proyecto, esto incluye el cumplimiento con la legislación nacional en materia de seguridad e higiene emitida por el Ministerio de Trabajo y Seguridad Social u otros organismos según área de competencia.
 El fondo de las zanjas debe nivelarse para que la tubería se apoye en toda su longitud y no sea sometida a esfuerzos de flexión.
 Los tubos deben cumplir con las normas técnicas de instalación indicadas o recomendadas en la misma norma de fabricación del tubo seleccionado ó con las que se indiquen en el presente documento según corresponda. En el caso de tubos de pared perfilada (con geometría corrugada o acostillada o similar), cuando su uso corresponda según las condiciones de servicio, se deben incluir en el diseño los detalles técnico-constructivos para su debida instalación y correcto desempeño.
-Para tubos prefabricados en concreto, si el proceso de instalación se realiza con apertura de zanja, se debe tener de referencia lo establecido en la norma técnica INTE 16-11-02. Si el proceso de instalación se realiza utilizando la tecnología sin zanja conocida como “Pipe Jacking”, se debe tener de referencia lo establecido en las normas técnicas INTE 16-11-29 parte I y II.
+Para tubos prefabricados en concreto, si el proceso de instalación se realiza con apertura de zanja, se debe tener de referencia lo establecido en la norma técnica INTE 16-11-02. Si el proceso de instalación se realiza utilizando la tecnología sin zanja conocida como "Pipe Jacking", se debe tener de referencia lo establecido en las normas técnicas INTE 16-11-29 parte I y II.
 Para tubos termoplásticos para aplicaciones por gravedad, si el proceso de instalación se realiza con apertura de zanja, se debe tener de referencia lo establecido en la norma técnica INTE 16-08-01.
 Para tubos de fibra de vidrio sometidos o no a presión, si el proceso de instalación se realiza con apertura de zanja, se debe tener de referencia lo establecido en la norma técnica INTE 16-13-06.
-Para tubos de polietileno, si el proceso de instalación se realiza utilizando la técnica conocida como “maxi-perforación horizontal direccional”, se debe tener de referencia lo establecido en la norma técnica INTE 16-05-13.
+Para tubos de polietileno, si el proceso de instalación se realiza utilizando la técnica conocida como "maxi-perforación horizontal direccional", se debe tener de referencia lo establecido en la norma técnica INTE 16-05-13.
 El AyA solicitará, en caso de requerirlo, pruebas de compactación del relleno de la zanja y de los materiales utilizados en las camas, realizadas por algún laboratorio acreditado para tales efectos.
 El AyA se reserva el derecho de seleccionar los equipos o dispositivos y la tecnología más apropiada, para llevar a cabo los ensayos o las pruebas establecidas en esta norma técnica, incluidas las normas técnicas de referencia que en ella se citan, en relación con los requisitos técnicos establecidos. Lo anterior durante o al finalizar el proceso constructivo, siendo de especial interés, la verificación de los requisitos respecto a elevaciones, inclinaciones, deformaciones, distorsiones, fisuras y cambios de dirección de la tubería (vertical u horizontal), por cuanto éstos inciden directamente en el correcto funcionamiento de las líneas de tubería según el diseño del sistema.
 (Así adicionado el párrafo anterior mediante sesión N° 2021-01 del 5 de enero del 2021)
@@ -725,7 +725,7 @@ La tapa del pozo debe cumplir con la norma técnica INTE 16-12-01, la selección
 La boca de la losa superior se debe desplazar del eje del pozo de forma tal que facilite su acceso con peldaños que se deben construir con varilla de 19 mm (número 6). En el anexo 10 se detallan los requisitos técnicos de los pozos.
 Se debe diseñar el fondo de los pozos de registro de forma tal que no permita la acumulación o retención de sedimentos.
 6.4.3 Tragantes
-Los tragantes se deben proyectar de tal manera que la longitud total del caño entre tragantes no sea mayor de 120 m. En las esquinas donde converja un punto bajo, se deben construir dos tragantes, para evitar inundaciones en cada esquina (ver figura “punto bajo” en anexo 10). En las esquinas de las calles con puntos altos, se acepta que se utilice un solo tragante (ver figura “punto alto” en anexo 10).
+Los tragantes se deben proyectar de tal manera que la longitud total del caño entre tragantes no sea mayor de 120 m. En las esquinas donde converja un punto bajo, se deben construir dos tragantes, para evitar inundaciones en cada esquina (ver figura "punto bajo" en anexo 10). En las esquinas de las calles con puntos altos, se acepta que se utilice un solo tragante (ver figura "punto alto" en anexo 10).
 La profundidad mínima del fondo del tragante respecto de la rasante debe ser de 0,90 m. La longitud de la tubería que une el tragante con el respectivo pozo de registro, no debe ser mayor al ancho de la calle que los contiene.
 Los tragantes se deben construir de concreto reforzado. Éstos deben contar con dos bocas de inspección con sus respectivas rejillas, de acuerdo con los detalles técnicos que se muestran en el anexo 10. Las rejillas deben ser de hierro fundido y con angulares de acero en el marco.
 6.4.3.1 Pozos-Tragantes
@@ -748,17 +748,29 @@ Se deben realizar los cálculos respectivos para determinar los tiempos de entra
 6.5 Sistema de retardo pluvial
 Los requerimientos para el cálculo de los sistemas de retardo deben ser suministrados por el o los gobiernos locales dentro de la zona de influencia del proyecto, cuando se indique que el sistema pluvial debe incluir este componente. Se debe aportar la memoria de cálculo pluvial tomando en cuenta los requerimientos indicados.
 Se debe utilizar como mínimo un período de retorno de 10 años, para los cálculos hidrológicos, con excepción de aquellos casos en donde el o los gobiernos locales establezcan un período de retorno mayor. Los parámetros complementarios del cálculo hidrológico se encuentran en el anexo 1.
-El sistema de retardo debe tener las siguientes estructuras:
-· estructura de entrada,
-· estructura de demasías,
-· sistema de control de salida (orificio de descarga),
-· área de amortiguamiento o de retención de caudal, el área puede ser abierta o cerrada (losa superior), y
-· disipador de energía (de ser necesario).
-La descarga del sistema de retardo debe realizarse por medio de una tubería diseñada para tal efecto, la cual debe interconectarse a un pozo de registro o al cabezal de descarga. Se permite el uso de sistemas de bombeo, cuando la topografía no permita la descarga por medio de gradiente hidráulico. No se permite la descarga directa de una línea de impulsión al cabezal de desfogue. Cuando se requiera utilizar un sistema de retardo, todos las aguas pluviales del proyecto deben ser dirigidas al sistema de retardo a partir del cual se debe realizar la descarga al cuerpo receptor.
-Cuando la velocidad de entrada del agua al sistema de retardo sea mayor o igual a 1,5 m/s, se debe diseñar un dispositivo de disipación de energía.
-El área de amortiguamiento pluvial no debe ser de uso mixto, se debe utilizar un área exclusiva para ubicar el sistema de retardo y las obras complementarias.
-Se debe aportar la memoria de cálculo para todos los componentes del sistema de retardo. Se debe colocar en lugares visibles la advertencia del sistema de retardo y la profundidad del mismo, con el fin de evitar accidentes. Se debe colocar en el área destinada al amortiguamiento o área de retención, un cerramiento perimetral de malla ciclón, bloques de concreto o baldosas, separado 2 m del borde de la laguna y con una altura mínima de 2 m, también debe colocarse alambre de púas o alambre navaja en la parte superior del cerramiento; este sistema debe impedir el paso de particulares. También, debe preverse el acceso vehicular de al menos 4 m de ancho con uno o dos portones integrados al cerramiento perimetral, con dispositivos de seguridad para su apertura y cierre. Este paso vehicular debe comunicarse con un camino de acceso directo.
-Debe aportarse el perfil hidráulico del sistema, indicando todos los componentes hasta la sección media del cuerpo receptor. También, debe aportar un manual de operación y mantenimiento del sistema de retardo, donde se indique cuales deben ser las actividades de limpieza y mantenimiento preventivo y correctivo del sistema.
+(*)El sistema de retardo debe tener los siguientes componentes:
+. estructura de entrada,
+. estructura de demasías,
+. sistema de control de salida (orificio de descarga),
+. área de amortiguamiento o de retención de caudal, y
+. disipador de energía (de ser necesario).
+(*) (Así reformado el párrafo anterior en sesión N° 51del 4 de agosto de 2021)
+La descarga del sistema de retardo debe realizarse por medio de una tubería diseñada para tal efecto, la cual debe interconectarse a un pozo de registro o al cabezal de descarga. Se permite el uso de sistemas de bombeo, cuando la topografía no permita la descarga por medio de gradiente hidráulico. No se permite la descarga directa de una línea de impulsión al cabezal de desfogue. Cuando se requiera utilizar un sistema de retardo, todas las aguas pluviales de cada red de recolección deben ser dirigidas al sistema de retardo, a partir del cual se debe realizar la descarga a los puntos de desfogue que sean aprobados por el Gobierno Local.
+(Así reformado el párrafo anterior en sesión N° 51 del 4 de agosto de 2021)
+Se debe aportar el perfil hidráulico del sistema, indicando todos los componentes hasta la sección media del cuerpo receptor. Cuando la velocidad de entrada del agua al sistema de retardo sea mayor o igual a 1,5 m/s, se debe diseñar un dispositivo de disipación de energía.
+(Así reformado el párrafo anterior en sesión N° 51 del 4 de agosto de 2021)
+El área de amortiguamiento pluvial puede diseñarse como un elemento abierto o cerrado (tanques o reservorios con losa superior), se permite el uso mixto solamente sobre la superficie de los elementos confinados que actúen como componentes de retardo de descarga pluvial.
+(Así reformado el párrafo anterior en sesión N° 51 del 4 de agosto de 2021)
+Se debe aportar la memoria de cálculo para todos los componentes del sistema de retardo. Para los elementos confinados además de la memoria de cálculo, se deben presentar las especificaciones técnicas que conjuntamente con la memoria de cálculo validen el diseño propuesto, el cual debe contemplar todos los parámetros necesarios que garanticen la funcionalidad y desempeño de este elemento, considerando los distintos usos que se proponen sobre su superficie (acceso vehicular, zona verde u otros).
+(Así reformado el párrafo anterior en sesión N° 51 del 4 de agosto de 2021)
+Si el área de amortiguamiento o de retención de caudal es abierta, se debe utilizar un área exclusiva para ubicar el sistema de retardo y las obras complementarias y se debe colocar un cerramiento perimetral de malla ciclón, bloques de concreto o baldosas, separado 2 m del borde de la laguna y con una altura mínima de 2 m, también se debe colocar alambre de púas o alambre navaja en la parte superior del cerramiento; este sistema debe impedir el paso de particulares. También, debe preverse el acceso vehicular de al menos 4 m de ancho con uno o dos portones integrados al cerramiento perimetral, con dispositivos de seguridad para su apertura y cierre. Este paso vehicular debe comunicarse con un camino de acceso directo a dicha área.
+(Así adicionado el párrafo anterior en sesión N° 51 del 4 de agosto de 2021)
+Si el área de amortiguamiento o de retención de caudal es cerrada (elemento confinado), el acceso debe quedar con un mecanismo de cerramiento que impida el paso de personas no autorizadas, ello incluye colocar malla, portones, candados y cualquier otro dispositivo que garantice un control de acceso a dicho elemento.
+(Así adicionado el párrafo anterior en sesión N° 51 del 4 de agosto de 2021)
+Tanto en el área de amortiguamiento abierta como en los elementos confinados se deben colocar rótulos en lugares visibles, que permitan identificar el área de amortiguamiento ó de retención de caudal (abierta o cerrada) y su dimensionamiento y a la vez que incluyan la restricción de paso a particulares con el fin de evitar un acceso no controlado de personas y accidentes.
+(Así adicionado el párrafo anterior en sesión N° 51 del 4 de agosto de 2021)
+También, se debe aportar un manual de operación y mantenimiento del sistema de retardo, donde se detallen todas las actividades operativas, así como las específicas relacionadas con limpieza y mantenimiento preventivo y correctivo del sistema, separadas por componente; incluidos los mecanismos de cerramiento y control de acceso. Para el componente "área de amortiguamiento o de retención de caudal", se deben especificar los distintos usos que han sido validados en el diseño cuando el mismo incluye ese componente como un elemento confinado.
+(Así adicionado el párrafo anterior en sesión N° 51 del 4 de agosto de 2021)
 7 . Disposiciones complementarias
 Supletoriamente, son de aplicación los requisitos técnicos establecidos por AyA en otras normas, especificaciones o reglamentación técnica para diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial, aunque no se citen de forma explícita en este documento.
 8 . Anexos
