@@ -1,0 +1,1 @@
+Artículo 18.-Con la presentación de la queja el usuario deberá suministrar la información que el personal de la Municipalidad le solicite para establecer con precisión el objeto de la misma, con el fin de tramitarla expeditamente.

@@ -1,0 +1,1 @@
+Artículo 16.-Una vez firme el acuerdo de aprobación del proyecto tarifario, se enviará a la Institución correspondiente en el tanto exista y que deba conocer de la materia, para su aprobación, de previo a publicar en el Diario Oficial La Gaceta. Si el mismo es aprobado por el ente contralor, entrará a regir quince días después de su publicación.

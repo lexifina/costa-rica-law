@@ -1,0 +1,1 @@
+Artículo 20.-La decisión final que se adopte en el procedimiento de tramitación de la queja, establecerá el carácter fundado o no de ésta. En caso resultar fundada, la Municipalidad adoptará las medidas necesarias para corregir la anomalía. Las resoluciones finales serán vinculantes para las partes involucradas, sin perjuicio de los recursos ordenados en la ley.
