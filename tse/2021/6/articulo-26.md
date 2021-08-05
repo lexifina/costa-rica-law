@@ -1,0 +1,1 @@
+Artículo 26.- Ubicación de los recintos de votación: Los recintos de votación deberán estar ubicados de forma tal que reúnan todas las garantías necesarias para asegurar el secreto del voto; deberán, también, permitir el acceso de personas en sillas de ruedas o con ayuda de otros elementos auxiliares.

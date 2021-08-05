@@ -1,0 +1,1 @@
+Artículo 24.- Acondicionamiento de recintos electorales: En los centros de votación donde se instalen cinco o más juntas receptoras de votos, los respectivos encargados velarán por que exista una secuencia lógica en la ubicación de los locales de dichas juntas, de acuerdo con el número de cada una, con el fin de que a los electores se les facilite su ubicación.

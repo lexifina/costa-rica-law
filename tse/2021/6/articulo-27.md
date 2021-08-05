@@ -1,0 +1,5 @@
+Artículo 27.- Cantidad de electores por junta receptora de votos: La cantidad de electores por junta receptora de votos se establecerá de la siguiente manera:
+a) Considerando los porcentajes de abstencionismo de las Elecciones Nacionales del año 2018, se establecerán hasta 600 electores por junta en aquellas zonas donde el porcentaje de participación es mayor o igual al 55%; en aquellas zonas donde ese porcentaje haya sido menor, se permitirán hasta 650 electores por junta. En casos de excepción, la cantidad máxima de electores por junta podrá ser de hasta 700 electores.
+b) En los centros de atención institucional se instalará una única junta por cada distrito electoral ubicado en estos centros.
+c) Las juntas receptoras de votos que se instalen en el extranjero estarán conformadas por un máximo de 1.200 electores cada una, las cuales se podrán incrementar hasta en 50 electores.
+d) En las juntas que se instalen en hogares de larga estancia, así como en el Centro de Atención para Personas con Enfermedades Mentales en Conflicto con la Ley (CAPEMCOL), la cantidad máxima de electores será de 400.
