@@ -1,1 +1,0 @@
-Artículo 5º—Adscripción. La Contraloría de Servicios estará adscrita a la Junta Directiva como máximo jerarca de la Junta. La Presidencia fungirá como jefatura inmediata y enlace con dicha Junta Directiva.
