@@ -1,0 +1,1 @@
+Artículo 21.-La Municipalidad de El Guarco cobrará la tasa por este servicio a todos los usufructuarios, propietarios, y poseedores de bienes inmuebles ubicados en el cantón de El Guarco, proporcionalmente al factor de cada derecho en orden de prelación y se calcula de conformidad con el valor de la finca.

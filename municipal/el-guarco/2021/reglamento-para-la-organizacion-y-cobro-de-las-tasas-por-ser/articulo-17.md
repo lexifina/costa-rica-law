@@ -1,0 +1,1 @@
+Artículo 17.-Para los eventos de asistencia masiva que se realicen en el cantón, como plazas públicas, conciertos, ferias, eventos deportivos y recreativos y similares, se cobrará previamente al responsable (físico o jurídico) de la actividad, el equivalente a la tarifa de la categoría comercial 4.

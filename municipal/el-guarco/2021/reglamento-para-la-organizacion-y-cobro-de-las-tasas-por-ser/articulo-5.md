@@ -1,0 +1,1 @@
+Artículo 5°-Es sujeto pasivo todo propietario, usufructuario o poseedor de un inmueble ubicado en el cantón de El Guarco, sea persona física o jurídica, a quien se le presten por parte de la Municipalidad los servicios indicados en el artículo primero

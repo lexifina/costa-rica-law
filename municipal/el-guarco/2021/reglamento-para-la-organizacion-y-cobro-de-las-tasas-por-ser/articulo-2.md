@@ -1,0 +1,1 @@
+Artículo 2°-Este reglamento es de aplicación para todo propietario o poseedor de un inmueble, generador de residuos ordinarios y usuarios de los servicios especificados en este reglamento, que se encuentren dentro de la jurisdicción del cantón de El Guarco según el artículo 3 del Código Municipal.

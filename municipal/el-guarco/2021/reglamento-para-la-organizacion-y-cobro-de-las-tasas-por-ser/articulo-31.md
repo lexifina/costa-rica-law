@@ -1,0 +1,2 @@
+Artículo 31.-Una vez recibido el reclamo, la gestión competente procederá a efectuar un estudio técnico en el cual deberán realizar al menos 3 muestreos en el lapso de hasta tres meses, en forma aleatoria y sin necesidad de previo aviso al contribuyente. Este estudio se realizará únicamente para las categorías comerciales.
+Los estudios realizados deberán ser notificados al contribuyente y trasladados al departamento encargado de realizar la modificación en el sistema municipal según lo determinado en dicho estudio. El plazo para esta modificación será de cinco días hábiles.
