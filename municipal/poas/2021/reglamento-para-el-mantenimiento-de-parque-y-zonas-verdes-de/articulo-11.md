@@ -1,0 +1,2 @@
+Artículo 11.-Vigencia de la tarifa. La tarifa o tasa por el servicio de mantenimiento de parques y áreas verdes empezará a regir treinta días después de su publicación definitiva en el Diario Oficial La Gaceta. De acuerdo al artículo 43 del Código Municipal se someterá a consulta pública no vinculante, por un plazo mínimo de diez días hábiles, luego del cual se pronunciará sobre el fondo del asunto.
+Poás, 20 de julio del 2021.-
