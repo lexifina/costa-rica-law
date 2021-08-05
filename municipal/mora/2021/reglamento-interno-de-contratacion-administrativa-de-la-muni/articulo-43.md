@@ -1,0 +1,3 @@
+Artículo 43.- Competencia para dictar el acto final. El responsable de emitir el acto final sea de adjudicación, re-adjudicación, desierto o infructuoso, será emitido por el Alcalde Municipal.
+El responsable de emitir la aprobación final a las solicitudes de contratación es el mismo que emitirá el acto final sea de adjudicación, re-adjudicación, desierto o infructuoso.
+Este tipo de procedimiento puede tener recursos de revocatoria o recursos de apelación, dependiendo del monto previsto en el artículo 84 de la Ley de Contratación Administrativa y el acto final será dictado por el mismo responsable que tiene competencia para adjudicar.

@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. Las disposiciones del presente Reglamento serán aplicables sin excepción, a todos los procedimientos de Contratación Administrativa que promueva la Municipalidad de Mora por medio de la Proveeduría Institucional.

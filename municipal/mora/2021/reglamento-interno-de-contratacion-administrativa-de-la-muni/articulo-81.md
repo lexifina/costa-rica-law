@@ -1,0 +1,1 @@
+Artículo 81.- Regulación de los recursos. En todo lo relacionado con los recursos de objeción, revocatoria y apelación dentro del procedimiento de Contratación Administrativa que desarrolle la MUNICIPALIDAD DE MORA, se aplicará lo dispuesto en la Ley de Contratación Administrativa y su reglamento.

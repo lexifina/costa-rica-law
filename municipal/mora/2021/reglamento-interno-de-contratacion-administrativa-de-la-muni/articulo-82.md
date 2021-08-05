@@ -1,0 +1,1 @@
+Artículo 82.- Disposiciones aplicables a lo no regulado por este reglamento. En todo lo no contemplado por este reglamento se aplicará las disposiciones de la LCA, el RLCA, el Reglamento para la utilización del sistema integrado de compras públicas "SICOP" así como el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública; en forma supletoria.

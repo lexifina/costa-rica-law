@@ -1,0 +1,2 @@
+Artículo 77.- Reajuste de precios. Que la figura del reajuste de precios se convierte en el mecanismo idóneo por medio del cual la Administración Pública garantiza al contratista el principio de equilibrio económico en los contratos.
+La aplicación se realizará de acuerdo con lo regulado en el reglamento de reajuste de precios, a las directrices de la Contraloría General de la Republica y antecedentes del Tribunal Contencioso Administrativo.

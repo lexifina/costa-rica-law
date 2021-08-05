@@ -1,0 +1,1 @@
+Artículo 70.- Encargado de suscripción de documento contractuales (contrato) u órdenes de compra: Se autoriza al Alcalde Municipal para suscribir los contratos administrativos sin la necesidad de solicitar la aprobación del Concejo Municipal, esto para los casos en los que el Alcalde sea quién posee la competencia para dictar el acto de adjudicación respectivo.

@@ -1,0 +1,3 @@
+Artículo 66.- Modificación unilateral o contrato adicional. La Municipalidad de Mora podrá aumentar, disminuir o modificar la prestación objeto del contrato debido a un interés justificado de acuerdo con lo dispuesto por el artículo 208 y 209 del RLCA.
+Para cualquiera de los dos supuestos, independiente de la cuantía de la modificación o del contrato adicional, aplicaran los mismos roles del proceso inicial para aprobaciones, revisiones técnicas, legales, intervención de la Comisión de Recomendación de Adjudicación, confección de contrato u orden de compra.
+Todo será tramitado por el Sistema Integrado de Compras Públicas SICOP.

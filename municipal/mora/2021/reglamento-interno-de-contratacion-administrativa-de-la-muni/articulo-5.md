@@ -1,0 +1,1 @@
+Artículo 5.- Finalidad. La Proveeduría Institucional, producto del trámite de las solicitudes de contratación recibidas, suministrará los bienes y servicios necesarios a las dependencias de la Municipalidad de Mora para la ejecución de sus funciones, la satisfacción de sus necesidades y principalmente, las del servicio público que está llamado a cumplir.

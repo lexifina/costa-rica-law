@@ -1,0 +1,4 @@
+Artículo 16.- De las aprobaciones a las solicitudes de contratación en SICOP. Todo proceso de Contratación Administrativa que las Unidades Técnicas Solicitantes incluyan en el Sistema Integrado de Compras Públicas SICOP (procedimientos ordinarios o no), deberá contar con una aprobación final, la cual se definirá por la cuantía del proceso y será de la siguiente manera y en el siguiente orden:
+1. Unidad Técnica Solicitante: Jefatura de Departamento o Dirección responsable del proceso, dará aprobación obligatoria a todas las solicitudes de Contratación Administrativa, independiente de la cuantía del proceso
+2. Tesorería Institucional: Dará aprobación obligatoria a todas las solicitudes de Contratación Administrativa, independiente de la cuantía del proceso
+3. Alcalde Municipal: Dará aprobación obligatoria a todas las solicitudes de Contratación Administrativa, independiente de la cuantía del proceso

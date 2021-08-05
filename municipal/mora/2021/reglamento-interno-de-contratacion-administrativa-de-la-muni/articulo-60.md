@@ -1,0 +1,1 @@
+Artículo 60.- Comisión de Recomendación de Adjudicación. La comisión intervendrá para este tipo de procesos cuando supere el monto del límite económico establecido para la Contratación Directa de escasa cuantía, emitido por la Contraloría General de la Republica.
