@@ -1,0 +1,1 @@
+ARTÍCULO 6: RECEPCIÓN DE SOLICITUDES Y DIVULGACIÓN: El período de recepción de solicitudes de acreditación y aval técnico será durante todo el año. Para la divulgación de la oferta del servicio la UA utilizará medios de comunicación masiva tales como periódicos, página web del INA, redes sociales, y todas aquellas plataformas que permitan su adecuada difusión.

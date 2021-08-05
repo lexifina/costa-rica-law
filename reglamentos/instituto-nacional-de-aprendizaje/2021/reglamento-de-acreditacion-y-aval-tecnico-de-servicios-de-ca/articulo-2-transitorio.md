@@ -1,0 +1,1 @@
+Transitorio II: Las solicitudes de acreditación, reacreditación, contratos de acreditación, así como los procedimientos administrativos que se encuentren en trámite al momento de entrada en vigencia del presente reglamento, continuarán su tramitología con la reglamentación anterior.

@@ -1,0 +1,5 @@
+ARTÍCULO 19: REVOCATORIA DEL AVAL TÉCNICO: El aval técnico otorgado a un determinado servicio será revocado en los siguientes casos:
+a) Cuando el servicio pierda la acreditación.
+b) Cuando se incumpla con la reserva de cupos y/o el aseguramiento de las matrículas en estos, lo cual será verificado por medio de la plataforma www.ane.cr por parte del Proceso Agencia Nacional de Empleo del INA. Para tales efectos se atenderá a lo dispuesto en el artículo 23, del presente reglamento.
+c) Cuando, por modificación por parte de la Gerencia General, o la Subgerencia que esta designe, el servicio deje de formar parte de la lista de servicios o áreas prioritarias institucionales, de acuerdo con las dinámicas del mercado laboral y sea notificado a la Gestión Rectora del SINAFOR.
+La Gestión Rectora del Sistema Nacional de Capacitación y Formación Profesional (Gestión Rectora del SINAFOR), una vez cumplido el debido proceso notificará la revocatoria del aval técnico al Centro de Formación respectivo. La revocatoria del aval técnico será eficaz a partir de esta notificación.
