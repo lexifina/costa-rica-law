@@ -1,0 +1,1 @@
+Artículo 24.-Asesoría. Cuando así lo requiera la Auditoría Interna, todas las Divisiones, Gerencias de Área, Unidades y demás órganos de la Contraloría General, tienen el deber de brindarle un oportuno y efectivo servicio de asesoría en sus ámbitos de actividad.
