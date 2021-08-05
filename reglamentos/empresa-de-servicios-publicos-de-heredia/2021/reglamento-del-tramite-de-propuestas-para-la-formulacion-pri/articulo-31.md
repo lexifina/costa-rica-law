@@ -1,0 +1,1 @@
+Artículo 31.- Remisión a las dependencias responsables. Una vez que la Administración de Contratos y Gestión de Compras haya determinado que el documento está completo lo remitirá a las dependencias correspondientes de acuerdo con el organigrama de la Figura 1 del Anexo 2.

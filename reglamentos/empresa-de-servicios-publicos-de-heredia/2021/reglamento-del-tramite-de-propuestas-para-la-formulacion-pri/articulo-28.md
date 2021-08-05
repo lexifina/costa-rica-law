@@ -1,0 +1,1 @@
+Artículo 28.- Sobre el apartado de Propuesta de estudios necesarios para la siguiente etapa. El proponente deberá indicar en esta sección una propuesta de estudios para la etapa de factibilidad en caso de que el proyecto sea de interés para la ESPH S.A.

@@ -1,0 +1,5 @@
+Artículo 2.- Objetivo. Los objetivos de este Reglamento son:
+a. Definir las reglas para la tramitación eficiente, efectiva y transparente de las propuestas de formulación privada de proyectos de obras para la prestación de servicios públicos de interés de la ESPH S.A. en los siguientes casos:
+i. Propuestas de iniciativa privada: se denomina así a las propuestas formuladas ante la ESPH S.A. por iniciativa de sujetos privados, requeridas o no por la ESPH S.A., que no están precedidas por actividades preparatorias o de formulación efectuadas por la propia ESPH S.A.
+ii. Propuestas de iniciativa interna previa: se denomina así a las propuestas formuladas ante la ESPH S.A. por iniciativa de sujetos privados, requeridas o no por la ESPH S.A., que están precedidas por actividades preparatorias o de formulación efectuadas por la propia ESPH S.A.
+b. Establecer algunas reglas especiales sobre las etapas de adjudicación y formalización de los contratos para la ejecución de los proyectos formulados de conformidad con las modalidades previstas en este Reglamento.

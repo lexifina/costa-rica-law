@@ -1,0 +1,1 @@
+Artículo 48.- Comunicación del interés administrativo al sector privado. En caso de que se determine que existe interés para que un proyecto sea formulado según las reglas de este Reglamento, la ESPH S.A. lo comunicará, por los medios que se estimen convenientes y adecuados, sobre lo que deberá dejarse registro en el expediente respectivo con la motivación del medio seleccionado.

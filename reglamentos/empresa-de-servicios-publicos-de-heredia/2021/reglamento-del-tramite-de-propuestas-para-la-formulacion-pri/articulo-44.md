@@ -1,0 +1,1 @@
+Artículo 44.- Aceptación de los estudios y aval para la gestión del concurso. La Gerencia General de la ESPH S.A. comunicará al proponente la anuencia de continuar el proceso y se afinarán el cartel del concurso y el borrador del contrato, para proseguir con la fase de adjudicación.

@@ -1,0 +1,1 @@
+Artículo 9.- Plazos vinculantes. La Gerencia de la ESPH S.A. establecerá los plazos a los cuales deberán sujetarse las áreas técnicas y administrativas para el análisis de la propuesta, así como las reglas para las prórrogas eventuales que deberán obedecer a motivos justificados.

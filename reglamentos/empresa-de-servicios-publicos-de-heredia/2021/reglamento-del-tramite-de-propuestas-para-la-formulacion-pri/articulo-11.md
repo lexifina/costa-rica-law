@@ -1,0 +1,6 @@
+Artículo 11.- Aspectos formales de las propuestas.
+La documentación e información requerida en este Reglamento deberá presentarse en idioma español. Se exceptúa de lo anterior la documentación técnica complementaria, salvo que la ESPH S.A. solicite que dicha información se traduzca al idioma español, bajo la responsabilidad del proponente, en cuyo caso el costo de la traducción correrá por cuenta de este.
+En los distintos documentos que presente el proponente serán de uso obligatorio las unidades y medidas del Sistema Internacional de Unidades, basado en el sistema métrico decimal.
+La documentación e información presentada por el proponente deberá estar libre de alteraciones, borrones o tachaduras y debidamente firmada por el representante legal en caso de que sea una persona jurídica, o en su defecto, por la persona física de que se trate. Para enmendar estas situaciones de forma, las adiciones o correcciones deberán indicar con claridad la fe de erratas y deberán estar debidamente firmadas en el mismo documento por quien tiene facultad para hacerlo.
+Cuando la Administración disponga de formularios para la presentación de la información requerida, estos se complementarán en el orden establecido por la Administración.
+Los plazos establecidos en este Reglamento serán computados en días naturales, salvo disposición en contrario.
