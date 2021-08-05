@@ -1,0 +1,1 @@
+Artículo 48º. Sobre el Fortalecimiento de la Participación Ciudadana. La PMSJO realizará programas de prevención en centros educativos del cantón y en las comunidades, fortaleciendo la participación y organización comunitaria.

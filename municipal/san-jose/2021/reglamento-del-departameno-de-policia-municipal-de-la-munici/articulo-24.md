@@ -1,0 +1,1 @@
+Artículo 24º. Sobre las Capacitaciones. La PMSJO velará por que sus colaboradores reciban capacitaciones que les brinde mayores y mejores capacidades para el adecuado desempeño de sus funciones en coordinación con la Dirección de Talento Humano de la Municipalidad de San José. La Dirección priorizará la coordinación con la Academia Nacional de Policía.

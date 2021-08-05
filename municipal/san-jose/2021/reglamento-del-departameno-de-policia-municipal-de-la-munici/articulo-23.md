@@ -1,0 +1,1 @@
+Artículo 23º. Sobre el Patrocinio Letrado. La administración proveerá a los policías municipales el acompañamiento jurídico y la defensa judicial en los asuntos provenientes del ejercicio de sus funciones.

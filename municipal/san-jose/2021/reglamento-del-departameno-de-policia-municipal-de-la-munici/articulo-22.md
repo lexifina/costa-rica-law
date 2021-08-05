@@ -1,0 +1,1 @@
+Artículo 22º. Sobre las Vacaciones, Permisos y Licencias. La PMSJO se regirá por lo dispuesto en el Código Municipal y el Reglamento Autónomo de Organización y Servicio de la Municipalidad de San José

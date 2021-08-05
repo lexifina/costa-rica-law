@@ -1,0 +1,1 @@
+Artículo 18º. Sobre la Identificación en el Uniforme. Todos los miembros de la Policía Municipal deberán portar en la parte frontal de su uniforme el carné de identificación brindado por la institución.

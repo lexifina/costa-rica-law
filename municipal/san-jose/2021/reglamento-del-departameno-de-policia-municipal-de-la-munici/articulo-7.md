@@ -1,0 +1,18 @@
+Artículo 7º. Sobre la Operación del Servicio. La organización operativa, se subdividirá en varios grupos operacionales, de acuerdo con las necesidades del servicio y el cumplimiento de sus cometidos y especialización.
+Se establecen los siguientes servicios, correspondiendo a la Dirección de Seguridad Ciudadana definir la temporalidad y la integración de cada uno: Servicios Operativos:
+1. Servicio Municipal de Radio Patrullas (SEMPA)
+2. Servicio Municipal de Respuestas Motorizada (SEMOT)
+3. Servicio Municipal Inteligencia Policial (SEMIP)
+4. Servicio Municipal Ciclo (SEMCI)
+5. Servicio Municipal Peatonal (SEMP)
+6. Servicio Municipal de Apoyo Policial (SEMAP)
+7. Servicio Municipal Canino (SEMCAN)
+8. Servicio Municipal de Prevención y Atención Comunitaria (SEMPAC)
+9. Servicios Municipales de Apoyo de Tránsito (SEMAT)
+10. Servicio Municipal Táctico (SEMTAC)
+11. Servicio Municipal de Protección (SEMPRO)
+12. Servicio Municipal Antidisturbios (SEMAD)
+13. Servicio Municipal de Recuperación de Áreas (SEMRA)
+14. Servicio Municipal de Atención de Emergencias (SEMER)
+15. Servicio Municipal Montado (SEMONT)
+16. Servicio Municipal de Protección de Instalaciones (SEMPI)

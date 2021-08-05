@@ -1,0 +1,1 @@
+Artículo 34º. Sobre el Desempeño Digno. Desempeñar dignamente sus cargos, conservando las buenas costumbres, la ética y la disciplina, así como un trato respetuoso para todas las personas, en acatamiento a los derechos humanos, aun cuando se encuentre fuera de servicio.

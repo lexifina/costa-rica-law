@@ -1,0 +1,1 @@
+Artículo 32º. Sobre la Laboriosidad y el Buen Desempeño. Es deber del oficial de Policía Municipal mostrar laboriosidad, buen desempeño y diligencia, eficiencia y eficacia en el ejercicio de sus funciones.

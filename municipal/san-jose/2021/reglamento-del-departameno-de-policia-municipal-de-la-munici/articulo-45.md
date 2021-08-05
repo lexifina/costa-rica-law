@@ -1,0 +1,1 @@
+Artículo 45°. Sobre la Materia Disciplinaria. La PMSJO se regirá en lo conducente, por lo dispuesto en el Código Municipal y en el Reglamento de Organización y Servicio de la Municipalidad de San José.

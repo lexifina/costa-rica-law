@@ -1,0 +1,1 @@
+Artículo 37º. Sobre las Pruebas de Dopaje. La PMSJO se regirá en lo conducente por el Reglamento para la Aplicación de Pruebas Médicas y Toxicológicas al Personal de la Municipalidad de San José y Aspirantes a Puestos Dentro de la Institución.
