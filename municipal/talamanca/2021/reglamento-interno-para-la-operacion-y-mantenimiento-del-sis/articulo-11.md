@@ -1,0 +1,3 @@
+Artículo 11.-Conformación de la CICI. La Comisión estará integrada por dos regidores propietarios, el Alcalde o su representante, los directores de áreas o su representante en caso de excepción y el encargado del proceso de control interno.
+El Concejo Municipal por mayoría calificada, nombrará a los dos Regidores en calidad de propietarios para que asistan a las sesiones de esta comisión, asimismo nombrará dos Regidores suplentes que sustituirán a los primeros en caso de ausencia de estos. Los Ediles nombrados deberán rendir un informe trimestral al Concejo de las acciones y acuerdos tomados por la CICI.
+Dicha Comisión contará con la asesoría de la Auditoría Municipal cuando se considere conveniente.
