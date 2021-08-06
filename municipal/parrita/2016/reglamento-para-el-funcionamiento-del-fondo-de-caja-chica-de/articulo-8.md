@@ -1,1 +1,0 @@
-Artículo 8º—No se permitirá el cambio de cheques personales y de contribuyentes con fondos de caja chica, ni se permitirán préstamos como pueden ser vales a favor de un funcionario municipal con cargo a la planilla municipal o de otra índole.
