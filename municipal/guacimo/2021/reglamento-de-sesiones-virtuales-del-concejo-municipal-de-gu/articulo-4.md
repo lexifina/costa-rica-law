@@ -1,0 +1,1 @@
+Artículo 4º-En todo momento se debe garantizar la transparencia de las sesiones y sus acuerdos, por ello la plataforma virtual debe transmitir en vivo mediante los medios digitales de fácil acceso para los ciudadanos del cantón, y guardarse el respaldo de las grabaciones.

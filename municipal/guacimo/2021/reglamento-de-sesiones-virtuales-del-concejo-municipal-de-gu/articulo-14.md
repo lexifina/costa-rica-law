@@ -1,0 +1,1 @@
+Artículo 14.-Votaciones. Son de aplicación, las disposiciones contenidas sobre votaciones en el Reglamento de Sesiones, Acuerdos y Comisiones del Concejo Municipal de Guácimo, así como el Código Municipal.
