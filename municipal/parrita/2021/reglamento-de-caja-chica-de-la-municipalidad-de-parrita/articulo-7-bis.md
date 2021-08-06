@@ -1,0 +1,3 @@
+Artículo 7° bis.-Para los egresos de Caja Chica que se realicen por medio de transferencia bancaria se deberá cumplir con todo lo indicado en el artículo 7°de este reglamento pero en forma digital.
+Para las solicitudes de pago de gastos de viaje y de transporte por transferencia bancaria a favor el solicitante se deberá cumplir con lo indicado en el reglamento de Gastos de Viaje y de Transporte de la CGR y el procedimiento interno Institucional.
+Las solicitudes deberán contar con las firmas digitales, tanto la del solicitante como las de autorización, esta información será resguardada en la base de datos del sistema informático Municipal.

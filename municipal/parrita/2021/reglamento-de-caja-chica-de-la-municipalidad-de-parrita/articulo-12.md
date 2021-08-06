@@ -1,0 +1,1 @@
+Artículo 12.-Debido al monto fijo de Caja Chica y los movimientos que se realizan se tendrá un nivel de tolerancia de hasta ¢2.000,00 colones en caso de existir sobrante, más de ese monto deberá ser depositado en la cuenta de la Municipalidad de Parrita.
