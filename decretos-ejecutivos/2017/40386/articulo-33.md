@@ -1,1 +1,0 @@
-Artículo 33— Contratación de Recursos Externos. La Auditoría Interna, de acuerdo a la planificación estratégica y el plan anual de trabajo, podrá solicitar la contratación de bienes y servicios necesarios para llevar a cabo su gestión, con base a la disponibilidad presupuestaria y a los procedimientos administrativos establecidos.

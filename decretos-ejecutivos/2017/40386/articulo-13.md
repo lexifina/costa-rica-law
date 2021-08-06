@@ -1,1 +1,0 @@
-Artículo 13—Plantificación estratégica. Es el Plan donde se establecen las acciones a seguir por parte de la Auditoría Interna, y será un documento guía en la toma de decisiones. Deberá ser de conocimiento del Jerarca; y congruente con la visión, la misión y los objetivos institucionales.
