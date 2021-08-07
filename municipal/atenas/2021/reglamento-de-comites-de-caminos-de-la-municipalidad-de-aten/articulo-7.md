@@ -1,0 +1,1 @@
+Artículo 7°-Relaciones de dependencia. El comité de caminos depende, en primera instancia, de la Asociación de desarrollo integral, de la municipalidad u otro tipo de organización o entidad de interés público y, en segunda instancia, de la asamblea general de vecinos; siendo ésta el órgano máximo de representación.

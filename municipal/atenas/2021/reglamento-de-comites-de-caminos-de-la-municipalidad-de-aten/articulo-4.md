@@ -1,0 +1,1 @@
+Artículo 4°-Objetivos de los Comités de Caminos. Los comités de caminos contribuirán en la planificación, ejecución, supervisión, fiscalización y, en general todas las actividades inherentes al desarrollo y conservación de la Red Vial Cantonal, en función de las necesidades presentadas y detectadas, en forma coordinada con la municipalidad u otros entes competentes.
