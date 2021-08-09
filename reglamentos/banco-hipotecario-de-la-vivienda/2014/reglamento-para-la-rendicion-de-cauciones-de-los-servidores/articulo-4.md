@@ -1,1 +1,0 @@
-Artículo 4°—Es deber del caucionante gestionar y sufragar de su propio peculio el costo de la garantía, la cual debe mantenerse vigente siempre y cuando el puesto que ocupa el servidor realice una o más de las actividades enumeradas en el presente reglamento.

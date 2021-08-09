@@ -1,1 +1,0 @@
-Artículo 7°—Es responsabilidad de la Dirección Administrativa, mantener actualizados los listados de servidores, por dependencia, obligados a caucionar a fin de determinar si se encuentran al día con el pago de las pólizas.

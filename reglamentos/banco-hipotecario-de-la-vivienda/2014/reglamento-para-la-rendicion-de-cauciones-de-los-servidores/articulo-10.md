@@ -1,1 +1,0 @@
-Artículo 10.—Cuando se cobre la garantía y quede un saldo al descubierto, se ejecutará la resolución final emitida dentro del procedimiento administrativo, y por medio de la emisión de un título ejecutivo según la Ley del Sistema Financiero Nacional para la Vivienda.
