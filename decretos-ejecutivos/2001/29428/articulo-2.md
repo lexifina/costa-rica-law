@@ -1,4 +1,4 @@
-Artículo 2º—Definiciones. Para efectos de este reglamento se entiende por:
+Artículo 2º-Definiciones. Para efectos de este reglamento se entiende por:
 1. Ascenso: El cambio del funcionario de carrera de un puesto correspondiente a una categoría, a otro puesto de una categoría superior inmediata.
 2. Aspirante: Aquella persona que habiendo aprobado el Concurso de Oposición realiza el periodo de prueba mencionado en el artículo 16 del Estatuto del Servicio Exterior de la República.
 3. Carrera del Servicio Exterior: El régimen que regula la prestación de servicios en el Servicio Exterior de la República, por aquellos funcionarios permanentes que se incorporan a ésta mediante los procedimientos establecidos en el Estatuto del Servicio Exterior y que están regidos por sus disposiciones. Contempla los procedimientos de ingreso, ascenso, permanencia, rotación, evaluación, disponibilidad y retiro de sus funcionarios.
@@ -12,7 +12,8 @@ Artículo 2º—Definiciones. Para efectos de este reglamento se entiende por:
 11. Estatuto: Estatuto del Servicio Exterior de la República, Ley Nº 3530 del 5 de agosto de 1965.
 12. Funcionarios auxiliares: Funcionarios o empleados que ocupen cargos subalternos y desempeñen labores administrativas o misceláneas en las misiones, nombrados por acuerdo ejecutivo y cuyos cargos figuren en el presupuesto del Ministerio.
 13. Funcionarios técnicos: El personal que el Poder Ejecutivo juzgue necesario adscribir al Ministerio de Relaciones Exteriores o a las misiones diplomáticas y oficinas consulares, para desempeñar funciones de carácter técnico, en concordancia con los artículos 51 y 52 del Estatuto.
-14. Instituto: El Instituto del Servicio Exterior de Costa Rica "Manuel María de Peralta".
+14. Instituto: Academia Diplomática Manuel María de Peralta
+(Así reformado el inciso anterior por el artículo 21 del decreto ejecutivo N° 43137 del 9 de agosto de 2021, "Creación de la academia diplomática Manuel María de Peralta")
 15. Jefe de Misión: Nombre genérico de los varios tipos de titulares de la máxima autoridad de la Misión Diplomática.
 16. Ministerio: Ministerio de Relaciones Exteriores y Culto.
 17. Ministro: El Ministro de Relaciones Exteriores y Culto.
