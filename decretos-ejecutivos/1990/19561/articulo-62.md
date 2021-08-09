@@ -9,4 +9,5 @@ g) La oficina a cargo, cuando así lo juzgue oportuno, remitirá al Ministro una
 h) El Archivo General, en colaboración con la Dependencia interesada, elaborará expedientes por asunto con los originales de la correspondencia recibida y con las copias de la correspondencia despachada destinadas a esos mismos expedientes. Estos expedientes serán registrados en ficheros con referencias cruzadas y custodiados por el Archivo General.
 i) Las diferentes dependencias del Ministerio trabajarán con copias de trabajo de esos expedientes.
 j) Los sobres con publicaciones y documentos impresos recibidos serán pasados directamente, ya sea al Archivo o a la Biblioteca, según sea su naturaleza.
-k) La Dirección General coordinará con el Instituto del Servicio Exterior la custodia de aquellas porciones del Archivo General que estén inactivas.
+k) La Dirección General coordinará con la Academia Diplomática Manuel María de Peralta la custodia de aquellas porciones del Archivo General que estén inactivas.
+(Así reformado el inciso anterior por el artículo 20 del decreto ejecutivo N° 43137 del 9 de agosto de 2021, "Creación de la academia diplomática Manuel María de Peralta")

@@ -8,4 +8,5 @@ Si el servidor considera que se le causa perjuicio por el traslado, podrá plant
 f) Para llenar una vacante en los servicios administrativos del Ministerio, se deberá consultar al Consejo, el cual tendrá la potestad de convocar a un concurso interno para decidir.
 g) El Consejo tendrá la potestad decisoria sobre los nombramientos interinos que sean necesarios para la buena marcha y funcionamiento del Ministerio.
 h) El Consejo determinará las normas que considere convenientes para el período de prueba de los servidores, el cual no excederá en ningún caso de seis meses.
-i) Los servidores se tomarán de los nombres que resulten aprobados según lo que disponen el Estatuto del Servicio Civil, y los reglamentos del Instituto del Servicio Exterior y de la Comisión Calificadora.
+i) Los servidores se tomarán de [os nombres que resulten aprobados según lo que disponen el Estatuto del Servicio Civil, y los reglamentos de la Academia Diplomática Manuel María de Peralta y de la Comisión Calificadora.
+(Así reformado el inciso anterior por el artículo 20 del decreto ejecutivo N° 43137 del 9 de agosto de 2021, "Creación de la academia diplomática Manuel María de Peralta")

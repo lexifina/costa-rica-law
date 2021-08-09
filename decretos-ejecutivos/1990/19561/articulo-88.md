@@ -1,5 +1,2 @@
-ARTICULO 88.- El Departamento de Adiestramiento tendrá por funciones las siguientes:
-a) En colaboración con el Instituto de Servicio Exterior y bajo su coordinación, organizar cursos de tipo modular, conferencias, seminarios, simposios, mesas redondas, proyecciones de filmes, videofielmes y transparencias para el personal técnico y profesional, así como para el personal de apoyo y administrativo en las materias de su competencia con el fin de contribuir a su mejor preparación.
-b) En colaboración con la Dirección General del Servicio Civil y con la oficina de becas del Ministerio, buscar ofertas de becas y pasantías para las diferentes categorías de personal y de acuerdo con la materia de su competencia. Hará la selección según las indicaciones del Instituto de Servicio Exterior y del Consejo de Administración.
-c) Consultar con frecuencia a los jefes y superiores jerárquicos del Ministerio con respecto a las necesidades de adiestramiento de sus dependencias y planificar de acuerdo.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspasó del artículo 87 al 88)
+ARTICULO 88.- El Departamento de Adiestramiento tendrá por funciones las siguientes: (Derogado por el artículo 22 del decreto ejecutivo N° 43137 del 9 de agosto de 2021, "Creación de la academia diplomática Manuel María de Peralta")
+(Así corrida su numeración por el artículo 10 del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspaso del artículo 87 al 88)
