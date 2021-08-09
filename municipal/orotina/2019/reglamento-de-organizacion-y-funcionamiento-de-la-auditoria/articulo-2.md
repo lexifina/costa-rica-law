@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación del Reglamento. La materia regulada en el presente Reglamento es de aplicación obligatoria a todos aquellos funcionarios de la Auditoría Interna y en lo que compete a los funcionarios de la Municipalidad de Orotina.

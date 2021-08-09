@@ -1,0 +1,1 @@
+Artículo 36º-De los informes de auditoría. El informe es el producto sustantivo por medio del cual la Auditoría Interna agrega valor para el cumplimiento de los objetivos institucionales y brinda esa garantía razonable a los ciudadanos sobre el manejo de los fondos públicos.
