@@ -1,0 +1,14 @@
+Artículo 87. De los deberes de las personas beneficiarias. Las personas estudiantes que sean beneficiarias de las becas del INA y/o ayudas económicas tendrán los siguientes deberes:
+a) Proporcionar en el plazo establecido en el artículo 54 de este reglamento, la información y documentos que le solicite el personal de trabajo social, el CRBAE o CIBAE, en relación con la solicitud de la ayuda económica.
+b) Proporcionar información y documentación veraz para efectos del estudio socioeconómico y otorgamiento de la beca o ayuda económica, según corresponda.
+c) Proporcionar una cuenta IBAN perteneciente a un banco estatal, a efectos de realizar el depósito de la ayuda económica en caso de que corresponda.
+d) Lograr el cumplimiento del módulo o curso de acuerdo con el sistema de evaluación del centro de formación donde se encuentre matriculada la persona estudiante.
+e) Utilizar el beneficio de la ayuda económica exclusivamente para los fines que le fue otorgado.
+f) Reportar a la persona profesional correspondiente, cualquier cambio en su situación socioeconómica que modifique las condiciones por las cuales se le otorgó la ayuda económica.
+g) Facilitar la información y colaborar con la persona profesional en trabajo social para que se realice oportunamente los estudios de verificación.
+h) Informar oportunamente a la persona profesional en trabajo social cuando se realice un cambio en su lugar de residencia, esto en cuanto reciba el beneficio de reubicación geográfica.
+i) Cubrir los gastos del beneficio de reubicación geográfica durante la vigencia de su aprobación y cuando se hospede anterior o posterior a la vigencia de la aprobación del beneficio.
+j) Justificar por escrito ante la USU, cuando requiera repetir un módulo o curso por haberse retirado del SCFP por razones debidamente razonadas como: problemas de salud, maternidad, vulnerabilidad social, caso fortuito o fuerza mayor y, con ello, poder reingresar con el estatus de la ayuda económica al momento de su retiro, previa valoración de la persona profesional en trabajo social.
+k) Realizar el pago correspondiente al SCFP para el cual se aprobó la beca, mediante el váucher establecido por el INA como medio de pago, en el centro de formación elegido por la persona estudiante de conformidad con las disposiciones del presente reglamento y de acuerdo con la periodicidad de pagos requerida para el servicio en cuestión.
+l) Reintegrar al Proceso Financiero Contable del INA, en un plazo máximo de cinco días hábiles el dinero otorgado por ayuda económica cuando por razones debidamente justificadas se lo solicita la persona encargada del centro externo (sea público o privado), PECE, persona profesional en trabajo social, CRBAE o CIBAE.
+m) Acatar los lineamientos o instrucciones indicados por la persona de trabajo social del INA en apego a las disposiciones de este reglamento.

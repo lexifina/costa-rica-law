@@ -1,0 +1,1 @@
+Artículo 97. De la programación y periodicidad de los pagos. El INA procederá a realizar los giros de dinero correspondientes a Becas del INA, por concepto de los pagos realizados por las personas interesadas mediante váucher activados, a favor de los Centros de Formación prestatarios de los SCFP, de acuerdo con el Cronograma Institucional de Pagos.

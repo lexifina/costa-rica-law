@@ -1,0 +1,5 @@
+Artículo 99. De la modificación de la beca y ayuda económica: Las becas del INA y ayudas económicas que ya estén aprobadas para una persona estudiante podrán ser modificadas cuando se den los siguientes supuestos:
+a) La persona estudiante solicite de forma escrita, sea física o digitalmente, a la persona profesional de trabajo social la valoración de su Beca del INA y ayuda económica por deterioro de su condición socioeconómica.
+b) Se dé incremento en el costo de los servicios de alimentación y transporte público o privado de acuerdo con la información existente, la normativa y directrices vigentes y aplicables, así como en observancia a las disposiciones en materia de Control Interno.
+c) Modificaciones al Plan de Estudio en el que la persona estudiante se encuentra matriculada como: horario, cantidad de días de lecciones, disminución o extensión de la fecha de finalización del servicio, ubicación del servicio.
+d) Cuando amerite por cambios en los costos del SCFP para el cual está aprobada la beca, en cuyo caso el monto no podrá superar el tope definido de conformidad con el presente reglamento.

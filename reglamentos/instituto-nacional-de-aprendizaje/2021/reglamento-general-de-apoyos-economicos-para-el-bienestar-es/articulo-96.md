@@ -1,0 +1,6 @@
+CAPÍTULO VII
+DE LOS PAGOS DE LAS BECAS
+Artículo 96. Del mecanismo de pago. Una vez aprobada la beca, la persona beneficiaria recibirá un váucher, mediante documento físico o digital, el cual deberá realizar el pago correspondiente para cancelar el costo total del SCFP postulado en el Centro de formación prestatario de este. Dicho pago con el váucher deberá ser realizado en un plazo de 3 días hábiles a partir de la fecha de aprobación de la beca y, en caso de no realizarse, el váucher será desactivado so pena de pérdida de la beca de no contar con la debida justificación.
+El Centro de Formación prestatario del SCFP postulado, habiendo recibido el pago por parte la persona interesada mediante el váucher, deberá activarlo en la plataforma que el INA disponga para tal fin, así como realizar la matrícula respectiva.
+El váucher de pago podrá ser de uso único para el caso de SCFP que se deban cancelar una única vez o bien de uso múltiple para los SCFP que tienen una duración de varios meses, en cuyo caso, podrán darse pagos mensuales, trimestrales o semestrales.
+La Unidad de Recursos financieros será la responsable de hacer efectivo cada váucher de acuerdo con el cronograma de pagos, mediante el depósito dinerario correspondiente.

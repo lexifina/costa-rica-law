@@ -1,0 +1,1 @@
+Artículo 34. De las excusas y recusaciones a los miembros del CRBAE. Las excusas y recusaciones de las personas integrantes del CRBAE son conocidas y resueltas por éste, conforme a las disposiciones de los artículos 230 y siguientes de la Ley General de Administración Pública, aplicables en lo conducente.

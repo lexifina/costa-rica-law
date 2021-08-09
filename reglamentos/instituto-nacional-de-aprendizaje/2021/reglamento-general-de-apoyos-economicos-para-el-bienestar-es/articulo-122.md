@@ -1,0 +1,1 @@
+Artículo 122. De las faltas leves. Será considerada como falta leve el incumplimiento de informar oportunamente a la persona profesional en trabajo social cuando se traslade del lugar de la reubicación geográfica o cambio de residencia.

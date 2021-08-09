@@ -1,0 +1,5 @@
+CAPÍTULO II
+DE LOS TIPOS Y CONDICIONES DE LAS BECAS DEL INA
+Artículo 72. De los tipos de becas del INA. Las becas del INA serán enfocadas en la empleabilidad y podrán ser de los siguientes tipos:
+a) Becas para la inserción laboral: Son becas dirigidas a brindar SCFP y, con ello, a fortalecer la competencias y habilidades de las personas que, por situación de empleo, se encuentran desalentadas, desocupadas o bien en la informalidad, con el fin de que puedan insertarse en un empleo formal, de calidad y bajo la perspectiva de trabajo decente.
+b) Becas para el desarrollo en el empleo: Estas becas están dirigidas a personas que se encuentran ocupadas en un empleo formal, de calidad y bajo la perspectiva de trabajo decente, para que estas puedan recibir SCFP que permitan 1) la obtención y/o fortalecimiento de competencias y habilidades para mantenerse y desempeñarse mejor en su trabajo, 2) la reconversión de su ocupación hacia una más pertinente en el mercado laboral o 3) el fortalecimiento de su perfil ocupacional para crecer en su empleo.
