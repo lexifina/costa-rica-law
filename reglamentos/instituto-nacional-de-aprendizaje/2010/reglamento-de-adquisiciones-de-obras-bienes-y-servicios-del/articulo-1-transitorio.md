@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Disposiciones Transitorias
+TRANSITORIO ÚNICO: Hasta el 30 de noviembre del 2022, las compras de la Unidad de Fomento y Desarrollo Empresarial, con base en lo dispuesto en la ley Sistema de Banca para el Desarrollo, las cuales se regulan en el artículo 31 y conexos del presente reglamento, deberán seguir siendo realizadas mediante el Reglamento del Instituto Nacional de Aprendizaje para las contrataciones basadas en los principios de contratación administrativa con fondos del Sistema de Banca para el Desarrollo (Reglamento de Compras INA-SBD), publicado en el Diario Oficial La Gaceta No. 167 del 10 de julio de 2020.

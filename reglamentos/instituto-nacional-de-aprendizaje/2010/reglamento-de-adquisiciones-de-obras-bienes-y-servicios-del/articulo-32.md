@@ -1,3 +1,4 @@
-Artículo 32. Supervisión y recepción de servicios. El INA deberá evaluar el trabajo, a fin de asegurarse su cumplimiento, conforme con las condiciones pactadas.
-La supervisión del contrato durante su período de ejecución corresponderá a la Unidad Solicitante de la contratación en coordinación con las Unidades Técnicas Especializadas involucradas cuando corresponda. Para tal efecto ésta deberá tomar oportunamente las medidas que estime necesarias para obligar al contratista a cumplir estrictamente con las condiciones específicas y plazos establecidos, o para proceder a establecer la comunicación respectiva ante el órgano que aprobó la contratación según su rango de acción, para resolver el contrato cuando dicha medida se estime pertinente, con una indicación clara de los motivos concurrentes y del incumplimiento en que el contratista ha incurrido.
-La recepción provisional y definitiva del contrato, corresponderá a la Unidad Solicitante de la contratación cuando corresponda en coordinación con las Unidades Técnicas Especializadas involucradas.
+CAPÍTULO IV
+De la supervisión, recepción, almacenamiento
+y distribución
+Artículo 32. Trámites conexos de importación de bienes. Todos los trámites bancarios, aduaneros, transporte interno a almacenes del INA, exoneraciones de impuestos, contratación de medios de transporte, reclamos ante proveedores y/o sus representantes o ante el Instituto Nacional de Seguros, producto de las operaciones relacionadas con la importación de bienes estarán a cargo del Proceso de Adquisiciones de la UCI.

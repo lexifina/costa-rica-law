@@ -1,0 +1,1 @@
+Artículo 41. Firmas de Contratos. La persona encargada de firmar digitalmente los contratos que respaldarán los Fideicomisos será la persona encargada de la Presidencia Ejecutiva. En su ausencia firmará la persona encargada de la Gerencia General.

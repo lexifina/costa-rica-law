@@ -1,0 +1,10 @@
+Articulo 38 - Facultades y atribuciones de la Comisión de Análisis y Seguimiento de Fideicomiso
+a) Presidencia: La Comisión estará presidida por la persona encargada de la Gerencia General o alguna de las subgerencias previa designación de la GG.
+b) Secretaría: La Secretaría de esta Comisión estará a cargo de la persona encargada de la Unidad de Planeamiento y Evaluación, cuyas funciones corresponderán a las establecidas en la Ley General de la Administración Pública.
+c) El quórum estará formado por la mayoría simple de sus integrantes. Para que la comisión sesione válidamente deberá contarse con la presencia de la persona encargada de la Presidencia de la Comisión.
+d) Acuerdos: Los acuerdos se tomarán por la mayoría simple de los presentes.
+e) Empate: En caso de empate, quien preside la Comisión tendrá voto de calidad. Este voto contará solo por dos. Esto de conformidad con el artículo 49 de la LGAP.
+f) Asistencia: La asistencia a las sesiones de esta Comisión es obligatoria, por lo que toda ausencia debe ser debidamente justificada ante quien la preside.
+g) Responsabilidad de la persona miembro: En caso de que alguno de los miembros permanentes, no pueda asistir y decida enviar un sustituto, éste podrá votar y firmar el acta en nombre del integrante ausente, pero quedando la responsabilidad de los actos emitidos a la persona miembro permanente.
+h) Deber de inhibirse: Cuando alguno de las personas miembros de la Comisión sea a su vez encargado de la dependencia solicitante que promueve la solicitud de fideicomiso, deberá inhibirse de concurrir a los acuerdos relacionados con esa solicitud. De igual forma si alguno de las personas miembros permanentes ha firmado algún criterio emitido de dependencias a su cargo por ausencia de las jefaturas, éste deberá inhibirse, no tendrá voto y no se computará para constituir el quórum.
+i) Funcionamiento en general: Para los demás aspectos no contemplados en este Reglamento, se regirá supletoriamente por lo dispuesto en la Ley General de la Administración Pública.
