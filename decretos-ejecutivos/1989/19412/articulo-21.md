@@ -1,1 +1,0 @@
-Artículo 21.—En cada semestre la Dirección y los profesores del Instituto evaluarán el rendimiento de cada alumno así como lo que se refiere a sus aptitudes para_ la carrera diplomática; presentación personal, proceder general e interés por los estudios.

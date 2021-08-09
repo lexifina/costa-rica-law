@@ -1,1 +1,0 @@
-Artículo 28.—Se dará particular atención a la investigación histórica con el fin primordial de extraer de ella ejemplos y lecciones de uso actual que constituyan una guía permanente para la orientación de la conducta de los agentes de la política exterior de Costa Rica.

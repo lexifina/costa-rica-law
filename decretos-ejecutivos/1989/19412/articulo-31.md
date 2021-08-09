@@ -1,1 +1,0 @@
-Artículo 31.—El Ministro y/o Viceministro, atendiendo circunstancias especiales podrán ordenar cursos extraordinarios para los funcionarios del Ministerio, cuyas características y duración se determinarán en cada caso.

@@ -1,1 +1,0 @@
-Artículo 2°—Los estudios de diplomacia impartidos por el Instituto del Servicio Exterior se desarrollarán en el contexto de la Política Exterior de Costa Rica, la cual constituirá su marco de referencia.

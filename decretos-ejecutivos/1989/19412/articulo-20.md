@@ -1,1 +1,0 @@
-Artículo 20.—La permanencia en el curso presupone una conducta personal irreprochable, dentro y fuera del Instituto, y de conformidad con las disposiciones del Reglamento Autónomo del Ministerio de Relaciones Exteriores y Culto.

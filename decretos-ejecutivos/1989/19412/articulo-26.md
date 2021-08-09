@@ -1,2 +1,0 @@
-Artículo 26.—Los cursos del Instituto tienen como principal objetivo la preparación de profesionales idóneos para el Servicio Exterior de la República. El Instituto del Servicio Exterior velará por el estricto cumplimiento de este objetivo.
-El programa pretende robustecer el espíritu de sano patriotismo, integridad, lealtad, dedicación a la paz, y el respeto a los derechos y deberes fundamentales de la persona.

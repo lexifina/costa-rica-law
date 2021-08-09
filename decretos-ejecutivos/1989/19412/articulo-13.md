@@ -1,2 +1,0 @@
-De la Biblioteca
-Artículo 13.—La Biblioteca del Instituto dependerá directamente del Coordinador del Instituto y estará destinada a proporcionar a los funcionarios del Ministerio y alumnos las fuentes de consulta necesarias para el mejor cumplimiento de su función. Para este efecto la Biblioteca deberá adquirir permanentemente las últimas publicaciones en materia internacional así como todo asunto de actualidad mundial o interna imperante sobre el tema.

@@ -1,1 +1,0 @@
-Artículo 30.—Por su propio carácter, los cursos deben estar rodeados del máximo de discreción y seguridad, permitiéndose la presencia de alumnos ajenos al Ministerio solo a título de excepción y en circunstancias especiales.

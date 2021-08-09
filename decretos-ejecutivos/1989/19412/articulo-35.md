@@ -1,1 +1,0 @@
-Artículo 35.—A fin de complementar la preparación profesional y obtener que los alumnos tengan una visión cabal de la realidad nacional, el Instituto programará visitas a centros de producción, trabajos de interés social y estratégico y viajes de estudio a las diversas regiones del país.
