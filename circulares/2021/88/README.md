@@ -13,3 +13,4 @@ Modificación de la competencia territorial del Juzgado Agrario de Puntarenas, s
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-04-29 | la propia norma |
+| 2 | 2021-08-09 | Circular 177 (2021-08-09) |

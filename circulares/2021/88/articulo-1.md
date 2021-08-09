@@ -17,4 +17,5 @@ Juzgado Agrario de Puntarenas, sede Jicaral
 Abarca el cantón de Nandayure, los distritos de Carmona, Santa Rita, Zapotal, San Pablo, Porvenir, Bejuco.
 Del cantón central de Puntarenas, los distritos de Lepanto, Paquera y Cóbano.
 Al Juzgado Agrario de Puntarenas, sede Jicaral, se pasarán únicamente los expedientes de los Juzgados Agrarios de Puntarenas y del Juzgado Agrario del Segundo Circuito Judicial de Guanacaste (Santa Cruz), en los cuales aún no se haya programado audiencia de prueba. Lo anterior, en el entendido de que los expedientes que por competencia se trasladen al Juzgado Agrario de Puntarenas, sede Jicaral, se remitirán directamente a ese nuevo despacho, sin necesidad de que se tengan que trasladar primero al Tribunal Agrario.
+(Nota de Sinalevi: Mediante circular N° 177 del 9 de agosto de 2021, se acordó ampliar la presente norma en cuanto incluyen los procesos no contenciosos en los que aún no se haya programado audiencia para la recepción de la prueba testimonial o el reconocimiento judicial -en los casos en que este último sea necesario- de la misma forma que se dispuso para los demás procesos.)
 San José, 29 de abril de 2021.
