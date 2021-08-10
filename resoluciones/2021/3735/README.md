@@ -14,3 +14,4 @@ Las personas tripulantes marítimos de embarcaciones de carga que se encuentren 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-01 | la propia norma |
+| 2 | 2021-08-10 | Resolución 3794 (2021-08-10) |

@@ -23,23 +23,31 @@ EL MINISTRO DE SALUD
 RESUELVE
 PRIMERO. Las presentes medidas sanitarias se emiten con el objetivo de prevenir y mitigar el riesgo o daño a la salud pública y atender el estado de emergencia nacional dado mediante el Decreto Ejecutivo No. 42227-MP-S del 16 de marzo de 2020 y en procura del bienestar de todas las personas que radiquen en el territorio costarricense de manera habitual ante los efectos del COVID-19.
 SEGUNDO: Se establecen las siguientes medidas sanitarias a efecto de que sean cumplidas por las personas tripulantes marítimos de embarcaciones de carga que se encuentren en tránsito e ingresen por la vía aérea, marítima, terrestre o fluvial, personas extranjeras en tránsito, y personas extranjeras bajo categoría migratoria de no residentes subcategoría turismo, según decreto ejecutivo No. 42690-MGP-S y sus reformas:
-1. Se adopta el listado de las "Autoridades Regulatorias Estrictas" integrado por los miembros fundadores del Consejo Internacional sobre la Armonización de los Requisitos Técnicos de las Sustancias Farmacéuticas para Uso Humano, es decir las autoridades de Australia (Administración de Productos Terapéuticos de Australia - TGA), Canadá (Health Canada), Estados Unidos (Administración de Alimentos y Medicamentos - FDA), Islandia (Agencia Islandesa para el Control de Medicamentos - IMCA), Japón (Ministerio de Sanidad, Trabajo y Bienestar), Liechtenstein (Oficina de Salud / Departamento de Medicamentos), Noruega (Agencia Noruega de Medicamentos), Reino Unido (Agencia Reguladora de Medicamentos y Productos Sanitarios - MHRA), Suiza (Agencia Suiza para Productos Terapéuticos - Swissmedic) y la Unión Europea (Agencia Europea de Medicamentos - EMA).
+1. Se adopta el listado de las "Autoridades Regulatorias Estrictas" integrado por los miembros fundadores del Consejo Internacional sobre la Armonización de los Requisitos Técnicos de las Sustancias Farmacéuticas para Uso Humano, es decir las autoridades de Australia (Administración de Productos Terapéuticos de Australia - TGA), Canadá (Agencia de Salud de Canadá), Estados Unidos (Administración de Alimentos y Medicamentos - FDA), Islandia (Agencia Islandesa para el Control de Medicamentos - IMCA), Japón (Ministerio de Sanidad, Trabajo y Bienestar), Liechtenstein (Oficina de Salud / Departamento de Medicamentos), Noruega (Agencia Noruega de Medicamentos), Reino Unido (Agencia Reguladora de Medicamentos y Productos Sanitarios - MHRA), Suiza (Agencia Suiza para Productos Terapéuticos - Swissmedic) y la Unión Europea (Agencia Europea de Medicamentos - EMA).
 2. Las vacunas contra COVID-19 que cuentan con autorización para uso de emergencia por parte de una Autoridad Reguladora Estricta son:
 a. AstraZeneca/Oxford.
 b. Pfizer/BioNTech.
 c. Moderna.
-d. Janssen (Johnson & Johnson).
-3. Se entiende por "esquema completo de vacunación" la aplicación de la totalidad de dosis indicadas para cada vacuna por parte de la casa farmacéutica y que la última dosis se haya aplicado al menos 14 días antes del ingreso al territorio nacional.
+d. Janssen.
+3. Nombres alternativos para las vacunas contra COVID-19 según empresa farmacéutica:
+Vacuna | Nombres alternativos
+AstraZeneca/Oxford | Covishield Vaxzevria AZD1222 ChAdOx1 ChAdOx1_nCoV19 India
+Pfizer/BioNTech | Comirnaty BNT162b2 Tozinameran
+Moderna | Spikevax mRNA-1273
+Janssen | COVID-19 Vaccine Janssen Johnson & Johnson Ad26.COV2.S
 4. Las dosis indicadas para cada vacuna son:
 a. AstraZeneca/Oxford: dos dosis.
 b. Pfizer/BioNTech: dos dosis.
 c. Moderna: dos dosis.
 d. Janssen (Johnson & Johnson): una dosis.
-5. También se considerará como esquema completo de vacunación aquellos esquemas adoptados por las autoridades sanitarias de otros países, que combinen vacunas de diferentes casas farmacéuticas, en tanto estas vacunas cuenten con la autorización de una autoridad reguladora estricta.
-6. La documentación que permita verificar el estado de vacunación del pasajerodebe indicar al menos la siguiente información:
+5. Se entiende por "esquema completo de vacunación" la aplicación de la totalidad de dosis indicadas para cada vacuna por parte de la casa farmacéutica y que la última dosis se haya aplicado al menos 14 días antes del ingreso al territorio nacional.
+6. Se considerará como esquema completo de vacunación aquellos esquemas adoptados por las autoridades sanitarias de otros países que combinen vacunas de diferentes casas farmacéuticas, en tanto estas vacunas cuenten con la autorización de una autoridad reguladora estricta.
+7. Se considerará como esquema completo de vacunación aquellos casos en que el pasajero reciba una única dosis luego de haber padecido la enfermedad producida por el virus SARS-CoV-2. En estos casos, la documentación de vacunación deberá indicar que se trata de dosis 1/1 (dosis 1 de 1), aunque se haya aplicado una vacuna cuyo esquema tiene más dosis y en tanto se trate de vacunas que cuenten con la autorización de una autoridad reguladora estricta.
+8. La documentación que permita verificar el estado de vacunación del pasajero debe indicar al menos la siguiente información:
 a. nombre del titular, que permita vincular directamente el documento de vacunación con el pasajero.
 b. marca de la vacuna aplicada.
 c. fecha de cada dosis aplicada.
-7. La documentación que permita verificar el estado de vacunación del pasajero debe presentarse en inglés o en español. La presentación de documentación en algún idioma distinto puede imposibilitar su revisión.
+9. La documentación que permita verificar el estado de vacunación del pasajero debe presentarse en inglés o en español. La presentación de documentación en algún idioma distinto puede imposibilitar su revisión y validación.
+(Así reformado el punto segundo anterior por resolución MS-DM-RM-3794 del 10 de agosto de 2021)
 TERCERO: La presente resolución rige a partir del 1 de agosto de 2021.
 PUBLIQUESE:
