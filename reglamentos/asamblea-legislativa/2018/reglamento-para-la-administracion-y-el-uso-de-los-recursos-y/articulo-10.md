@@ -1,2 +1,3 @@
 Artículo 10. Límites de almacenamiento
-El Departamento de Informática es el órgano autorizado para establecer o recomendar los límites de almacenamiento o las restricciones de uso de los servicios de TI, de acuerdo con la disponibilidad de los recursos. Las restricciones odirectrices de uso de los servicios de TI, aprobadas por las instancias superiores,serán comunicadas oportunamente a la población institucional.
+El Departamento de Tecnologías de Información(*) es el órgano autorizado para establecer o recomendar los límites de almacenamiento o las restricciones de uso de los servicios de TI, de acuerdo con la disponibilidad de los recursos. Las restricciones o directrices de uso de los servicios de TI, aprobadas por las instancias superiores, serán comunicadas oportunamente a la población institucional.
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")

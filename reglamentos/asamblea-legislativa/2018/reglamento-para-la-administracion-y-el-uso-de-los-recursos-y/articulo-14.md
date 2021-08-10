@@ -1,2 +1,3 @@
 Artículo 14. Contenido de tránsito electrónico
-El Departamento de Informática no ejercerá ningún control sobre el contenido de correo, información o documentos que transiten por la red informática, así como la información almacenada en los equipos de cómputo institucionales, por lo que esta información queda bajo la entera responsabilidad del personal usuario.
+El Departamento de Tecnologías de Información(*) no ejercerá ningún control sobre el contenido de correo, información o documentos que transiten por la red informática, así como la información almacenada en los equipos de cómputo institucionales, por lo que esta información queda bajo la entera responsabilidad del personal usuario.
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")

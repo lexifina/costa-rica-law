@@ -6,5 +6,6 @@ Se considerará mal uso del servicio lo siguiente:
 4. La transmisión de contenido fraudulento, difamatorio, obsceno, ofensivo o de vandalismo, insultante o acosador.
 5. Sea usada con fines de lucro, actividades comerciales o ilegales, por ejemplo hacking.
 6. Ser utilizada para crear y colocar un virus informático o malware en la red.
-7. Cualquier otra acción así señalada por el Departamento de Informática.
+7. Cualquier otra acción así señalada por el Departamento de Tecnologías de Información(*).
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")
 En el caso de sospecha de la comisión de un delito por mal uso, la Asamblea Legislativa estará obligada a informar a las autoridades correspondientes.

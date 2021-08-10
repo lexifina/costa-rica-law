@@ -2,7 +2,8 @@ Artículo 4. Integración
 El Comité estará integrado por los titulares de las siguientes dependencias:
 1. La Dirección Ejecutiva.
 2. La División Administrativa.
-3. El Departamento de Informática.
+3. El Departamento de Tecnologías de Información(*).
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")
 4. El Departamento de Asesoría Legal.
 5. El Departamento Financiero.
 6. El Departamento de Proveeduría.

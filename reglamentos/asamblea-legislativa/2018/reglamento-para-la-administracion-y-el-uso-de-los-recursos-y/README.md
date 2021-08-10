@@ -14,3 +14,4 @@ Reglamento para la administración y el uso de los recursos y los servicios de t
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-26 | la propia norma |
+| 2 | 2021-08-10 | Reglamento 170 (2021-08-10) |
