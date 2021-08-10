@@ -1,1 +1,2 @@
-Artículo 21.—El Departamento de Informática brindará soporte técnico al Departamento de Proveeduría en el mantenimiento y mejora del sistema de inventarios automatizados de licores e informa de manera documentada las acciones desarrolladas en cuanto a las consultas que se le planteen al respecto.
+Artículo 21.-El Departamento de Tecnologías de Información(*) brindará soporte técnico al Departamento de Proveeduría en el mantenimiento y mejora del sistema de inventarios automatizados de licores e informa de manera documentada las acciones desarrolladas en cuanto a las consultas que se le planteen al respecto.
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")
