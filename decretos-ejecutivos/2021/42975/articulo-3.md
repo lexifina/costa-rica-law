@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el Decreto Ejecutivo N° 35961-MEIC-MAG-S del 07 de abril de 2010, que decretó el reglamento técnico nacional "RTCR 434:2009 Reglamento Técnico de Mantequilla", todo de conformidad con lo dispuesto en el numeral 1 de la parte dispositiva de la Resolución N° 435-2020 (COMIECO-XCIII) de fecha 10 de diciembre de 2020.
