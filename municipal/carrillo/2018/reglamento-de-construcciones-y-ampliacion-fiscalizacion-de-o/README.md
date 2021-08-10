@@ -14,3 +14,4 @@ Reglamento de construcciones y ampliación fiscalización de obras, movimiento d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-20 | la propia norma |
+| 2 | 2021-08-10 | Reglamento municipal 32 (2021-08-10) |
