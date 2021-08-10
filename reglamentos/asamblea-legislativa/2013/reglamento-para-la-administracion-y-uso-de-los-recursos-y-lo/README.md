@@ -15,3 +15,4 @@ Reglamento para la administración y uso de los recursos y los servicios de tecn
 | --- | --- | --- |
 | 1 | 2014-01-22 | la propia norma |
 | 2 | 2015-07-28 | Acuerdo 3 (2015-07-28) |
+| 3 | 2021-08-10 | Reglamento 170 (2021-08-10) |

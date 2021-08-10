@@ -1,2 +1,3 @@
-Artículo 30.—Solicitud de servicios. La solicitud para la asignación de los servicios de TI deberá ser dirigida a la Dirección del Departamento de Informática con su debida justificación. Esta solicitud debe ser firmada por la jefatura oficina institucional o su suplente autorizado.
+Artículo 30.-Solicitud de servicios. La solicitud para la asignación de los servicios de TI deberá ser dirigida a la Dirección del Departamento de Tecnologías de Información(*) con su debida justificación. Esta solicitud debe ser firmada por la jefatura oficina institucional o su suplente autorizado.
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")
 El criterio para la asignación de servicios de TI al personal usuario es responsabilidad de la jefatura de cada oficina solicitante. Es potestad de las o los superiores jerárquicos revisar, mantener o revocar la asignación de servicios de TI.

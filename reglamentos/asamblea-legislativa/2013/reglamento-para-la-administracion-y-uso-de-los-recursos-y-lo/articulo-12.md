@@ -1,1 +1,2 @@
-Artículo 12.—Deber de confidencialidad. El personal del Departamento de Informática deberá guardar confidencialidad y discrecionalidad sobre la información residente en los dispositivos de almacenamiento institucionales. Se brindará información únicamente a personas autorizadas para solicitarla.
+Artículo 12.-Deber de confidencialidad. El personal del Departamento de Tecnologías de Información(*) deberá guardar confidencialidad y discrecionalidad sobre la información residente en los dispositivos de almacenamiento institucionales. Se brindará información únicamente a personas autorizadas para solicitarla.
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")
