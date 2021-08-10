@@ -14,3 +14,4 @@ Reglamento de bienes muebles de la Asamblea Legislativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-30 | la propia norma |
+| 2 | 2021-08-10 | Reglamento 170 (2021-08-10) |

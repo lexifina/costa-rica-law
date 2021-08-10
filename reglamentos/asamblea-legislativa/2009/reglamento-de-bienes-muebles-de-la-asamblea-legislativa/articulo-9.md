@@ -1,8 +1,9 @@
-Artículo 9º—Departamento de Servicios Generales. Al Departamento de Servicios Generales le corresponderá:
+Artículo 9º-Departamento de Servicios Generales. Al Departamento de Servicios Generales le corresponderá:
 Unidad de Seguridad
 a) Vigilar por parte de los agentes de seguridad que ningún bien salga de la institución sin contar con los permisos respectivos. También, estos funcionarios son responsables de verificar lo correspondiente cuando los mecanismos de seguridad indiquen la salida no autorizada de un bien, y ante ello actuar de conformidad con lo indicado en el protocolo de seguridad.
 b) Verificar que el traslado de un sitio a otro de bienes muebles solamente puedan realizarlo:
-i. Funcionarios del Departamento de Informática
+i. Funcionarios del Departamento de Tecnologías de Información(*)
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")
 ii. Funcionarios de la Unidad de Mantenimiento
 iii. Funcionarios de la Unidad de Ujieres
 iv. Funcionarios del Departamento de Proveeduría
@@ -28,7 +29,8 @@ a) Trasladar los bienes muebles cuando las diferentes dependencias institucional
 b) Establecer un horario de traslado de los bienes muebles.
 c) Trasladar y conservar una copia del formulario respectivo dependiendo del tipo de movimiento; al final de su jornada el ujier responsable del traslado entregará esta copia a la secretaría de la Unidad de Ujieres para los controles pertinentes.
 d) Entregar en la secretaria de la Unidad de Ujieres el formulario respectivo como un respaldo de la labor desarrollada por el ujier responsable, o bien, en caso de que lo requiera el Área de Suministros y Bienes Muebles del Departamento de Proveeduría para realizar alguna investigación.
-e) Trasladar equipo informático con la supervisión de funcionarios del Departamento de Informática.
+e) Trasladar equipo informático con la supervisión de funcionarios del Departamento de Tecnologías de Información(*).
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")
 f) Trasladar los bienes muebles y dejarlos donde indique el formulario respectivo del Área de Suministros y Bienes Muebles; también, de ser necesario los ujieres colaborarán en el acomodo de los bienes muebles en las bodegas de Proveeduría, bajo la supervisión y la responsabilidad del encargado de bodega.
 Unidad de Transportes
 a) Llevar a cabo un control detallado de las salidas de las móviles a mantenimiento o reparación; además, informar de ello al Departamento de Proveeduría y enviar copia a la Unidad de Seguridad.
