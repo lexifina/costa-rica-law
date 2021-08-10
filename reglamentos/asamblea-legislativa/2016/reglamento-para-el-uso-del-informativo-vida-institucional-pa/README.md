@@ -14,3 +14,4 @@ Reglamento para el Uso del Informativo "Vida Institucional Parlamentaria" de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-10 | la propia norma |
+| 2 | 2021-08-10 | Reglamento 170 (2021-08-10) |
