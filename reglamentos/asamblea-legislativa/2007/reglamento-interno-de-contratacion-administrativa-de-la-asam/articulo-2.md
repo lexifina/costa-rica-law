@@ -1,6 +1,6 @@
 CAPÍTULO II
 Órganos Competentes Institucionales
-Artículo 2º—Antes de que se adopte la decisión de iniciar un procedimiento de contratación, la unidad usuaria deberá documentar, ante su jerarca, lo siguiente:
+Artículo 2º-Antes de que se adopte la decisión de iniciar un procedimiento de contratación, la unidad usuaria deberá documentar, ante su jerarca, lo siguiente:
 1. La justificación de la procedencia de la contratación; en ella deberá indicarse expresamente la necesidad por satisfacer, para ello se considerará que esté incluida en el Plan Anual Operativo, el presupuesto y el programa de adquisiciones institucional, según corresponda. De esos documentos deberá adjuntarse copia.
 2. Descripción del objeto, las especificaciones técnicas y las características; al respecto, se acreditarán las razones del escogimiento de la solución y se incluirá, además, el sustento técnico respectivo.
 3. El valor del bien o servicio a adquirir conforme a las especificaciones técnicas, deberá concordar con el presupuesto solicitado para ese bien o servicio.
@@ -8,7 +8,8 @@ Artículo 2º—Antes de que se adopte la decisión de iniciar un procedimiento 
 5. Los recursos humanos y materiales de los que se dispondrá para verificar la correcta ejecución del objeto contractual. La unidad usuaria que hace el requerimiento deberá participar en la definición de las especificaciones técnicas, la selección y la ejecución contractual.
 6. De requerirse, los procedimientos de control de calidad que resulten aplicables en la ejecución y recepción contractual.
 7. En el caso de licitaciones públicas, deberá acreditar estudios que demuestren que los objetivos del proyecto serán alcanzados con eficiencia (costo/beneficio) y seguridad razonables (análisis de riesgos).
-8. Toda solicitud de equipo, software o repuestos de cómputo, deberá ser canalizada mediante el Departamento de Informática para su análisis y recomendaciones.
+8. Toda solicitud de equipo, software o repuestos de cómputo, deberá ser canalizada mediante el Departamento de Tecnologías de Información(*) para su análisis y recomendaciones.
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")
 9. Toda solicitud relacionada con infraestructura institucional, mobiliario y equipo de oficina, deberá ser canalizada mediante el Departamento de Servicios Generales para su análisis y recomendaciones.
 10. Todo requerimiento de capacitación deberá canalizarse ante el Departamento de Recursos Humanos para su análisis y recomendaciones.
 11. Los requerimientos de alimentación deberán canalizarse ante el Departamento de Proveeduría para su tramitación, por lo menos veinticuatro horas antes de la actividad, previo visto bueno de la Dirección Ejecutiva. De este plazo se exceptúan las compras que puedan ser adquiridas mediante caja chica, de acuerdo con la normativa vigente.
