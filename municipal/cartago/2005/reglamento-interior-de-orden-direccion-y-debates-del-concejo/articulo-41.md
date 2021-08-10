@@ -1,3 +1,0 @@
-SECCIÓN VII
-Del quórum
-Artículo 41.—El quórum para sesionar válidamente será el número de Regidores Propietarios que la ley fije. Dicha cantidad deberá estar presente en el salón de sesiones al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

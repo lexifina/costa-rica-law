@@ -1,1 +1,0 @@
-Artículo 71.—La Presidencia del Concejo recibirá con la debida anticipación la lista de audiencias solicitadas, con el objeto de que los regidores se preparen debidamente para la misma o citen al funcionario municipal que conozca la materia para que los asesore debidamente.

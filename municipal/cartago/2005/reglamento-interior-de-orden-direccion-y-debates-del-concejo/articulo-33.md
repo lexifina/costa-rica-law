@@ -1,1 +1,0 @@
-Artículo 33.—Las manifestaciones propias de los señores Regidores que estos deseen que no consten en actas, lo harán saber así con anticipación a la Secretaria. Si la previsión anterior no se hace con la debida antelación, la Secretaria deberá consignarlas en el acta respectiva, sin que sea posible posteriormente, acto en contrario.

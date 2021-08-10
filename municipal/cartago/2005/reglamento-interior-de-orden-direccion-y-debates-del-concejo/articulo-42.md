@@ -1,1 +1,0 @@
-Artículo 42.—Pasados los quince minutos que indica el artículo 13, si no hubiere quórum se dejará constancia en el libro de actas, se consignará el nombre de los Regidores presentes y la Presidencia del Concejo llamará a los Regidores Suplentes correspondientes.

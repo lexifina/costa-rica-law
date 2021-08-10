@@ -1,1 +1,0 @@
-Artículo 21.—Cuando algún miembro desee que se conozca algún asunto de su especial interés, lo hará saber al Presidente antes que la Orden del Día haya sido confeccionada, a efecto de que ocupe el campo correspondiente.

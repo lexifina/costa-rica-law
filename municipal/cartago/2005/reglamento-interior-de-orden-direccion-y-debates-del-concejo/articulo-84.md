@@ -1,2 +1,0 @@
-Artículo 84.—Las comisiones despacharán los asuntos a su cargo, con la mayor brevedad posible, rindiendo su informe en un plazo no mayor de quince días prorrogables a juicio de la Presidencia y contados desde el día hábil siguiente de la sesión en que se le delegó el asunto correspondiente, salvo los casos especiales en que la Presidencia del Concejo, en forma
-expresa .je un término menor o superior.

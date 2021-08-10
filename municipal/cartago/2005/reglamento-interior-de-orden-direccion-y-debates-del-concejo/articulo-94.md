@@ -1,2 +1,0 @@
-Artículo 94.—Las Comisiones Ordinarias se reunirán cada quince días, en fecha y hora acordados por sus miembros a conveniencia de los mismos una vez conformados por la Presidencia Municipal.
-Salvo casos de legalidad u oportunidad por los cuales se requiera rendir un dictamen en menos tiempo las Comisiones podrán celebrar sesiones extraordinarias, previa solicitud a la Presidencia o por acuerdo municipal.

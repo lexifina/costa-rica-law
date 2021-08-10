@@ -1,1 +1,0 @@
-Artículo 106.—La Presidencia llamará la atención de los miembros del Concejo, haciéndoles ver las violaciones en que incurren y por no más de dos veces a cada miembro, llamándolos al orden. De persistir la desobediencia y de acuerdo a la gravedad de los hechos, la Presidencia podrá levantar la sesión en el acto.

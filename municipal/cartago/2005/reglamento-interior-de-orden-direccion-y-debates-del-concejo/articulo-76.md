@@ -1,1 +1,0 @@
-Artículo 76.—Con la intervención de los munícipes, el secretario del Concejo tomará nota de lo expuesto, quedando facultado la Presidencia para trasladar el asunto en exposición a la Comisión Competente, Alcaldía Municipal.

@@ -1,1 +1,0 @@
-Artículo 109.—El pago de dietas y viáticos a regidores se hará de acuerdo con el Código Municipal, la Ley Nº 7385 publicado en el Diario Oficial La Gaceta Nº 60, del 25 de marzo de 1994 y las disposiciones emitidas por la Contraloría General de la República.

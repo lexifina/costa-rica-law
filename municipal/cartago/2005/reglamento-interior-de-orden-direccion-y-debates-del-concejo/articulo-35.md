@@ -1,4 +1,0 @@
-Artículo 35.—Las mociones de orden deben ser debatidas una vez aceptadas por la Presidencia, tan pronto como cese el uso de la palabra el Regidor o el Alcalde que la tuviese y suspenderá el debate hasta tanto no sea discutida y votada por el Concejo.
-En el debate sobre la moción de orden presentada solo se le permitirá la palabra al proponente y luego a los Regidores que la soliciten, sin que pueda excederse de cinco minutos cada intervención.
-Conocidas las razones de su presentación la Presidencia del Concejo, dará un término prudencial, para la votación correspondiente; procurando que ésta se realice cuando todos los Regidores presentes estén ocupando sus curules.
-Si prospera se seguirá el pronunciamiento que solicitó la moción de orden, de ser lo contrario se regresará al que se llevaba antes de conocerse la misma.
