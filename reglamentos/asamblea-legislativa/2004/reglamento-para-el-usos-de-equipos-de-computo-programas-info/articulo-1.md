@@ -5,11 +5,14 @@ De conformidad con la disposición adoptada en sesión 101-2004, celebrada el 27
 Aprobar el siguiente reglamento:
 REGLAMENTO PARA EL USO DE EQUIPOS DE CÓMPUTO, PROGRAMAS INFORMÁTICOS Y ACCESORIOS EN LA ASAMBLEA LEGISLATIVA
 CAPÍTULO I
-Atribuciones del Departamento de Informática
-Artículo 1º—Corresponde al Departamento de Informática de la Asamblea Legislativa:
+Atribuciones del Departamento de Tecnologías de Información(*)
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")
+Artículo 1º-Corresponde al Departamento de Tecnologías de Información(*) de la Asamblea Legislativa:
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")
 a) Proponer a la Dirección Ejecutiva las políticas informáticas que regirán la Institución. La Dirección Ejecutiva autorizará o improbará dichas políticas y las modificará cuando lo considere conveniente.
 b) En coordinación con el Departamento de Proveeduría, llevar un control detallado de los equipos de cómputo y su ubicación dentro de las oficinas de la Asamblea Legislativa, así como de las licencias de uso de software adquirido.
 c) Brindar el soporte respectivo para el uso de los programas informáticos que se utilicen en la Institución siempre que hayan sido adquiridos e instalados de acuerdo con las normas previstas en este Reglamento.
 d) Custodiar las licencias impresas de uso de software que indican la cantidad de usuarios autorizados, así como las licencias individuales.
-e) Coordinar con el Departamento de Proveeduría la revisión técnica de los equipos de cómputo recibidos por los proveedores antes de ser distribuidos. En cada contratación de equipos y suministros de cómputo se incluirá una cláusula en el cartel que garantice una revisión previa de dicho equipo por parte del Departamento de Informática con el fin de asegurar su perfecto estado.
+e) Coordinar con el Departamento de Proveeduría la revisión técnica de los equipos de cómputo recibidos por los proveedores antes de ser distribuidos. En cada contratación de equipos y suministros de cómputo se incluirá una cláusula en el cartel que garantice una revisión previa de dicho equipo por parte del Departamento de Tecnologías de Información(*) con el fin de asegurar su perfecto estado.
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")
 f) Instalar, a solicitud del jefe respectivo, los servicios de Internet y correo electrónico.

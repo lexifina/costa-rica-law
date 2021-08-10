@@ -14,3 +14,4 @@ Reglamento para el usos de Equipos de Cómputo, Programas Informáticos y Acceso
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-12 | la propia norma |
+| 2 | 2021-08-10 | Reglamento 170 (2021-08-10) |
