@@ -1,1 +1,2 @@
-Artículo 15.—En ningún caso, los períodos de licencia que soliciten los directores podrán exceder de dos meses. De necesitarse un plazo mayor, o en caso de que un director pierda su credencial, el colegio respectivo deberá convocar a Asamblea General y nombrar su nuevo director propietario.
+Artículo 15.-Los períodos de licencia que soliciten los directores en el curso de un año será de hasta de dos meses, por razones de caso fortuito o fuerza mayor, prorrogables por un plazo adicional de hasta un mes, caso por el cual deben acreditarse y justificarse la ocurrencia de las mismas razones.
+(Así reformado mediante sesión N° 02-20/21-AER del 10 de agosto del 2021)

@@ -14,3 +14,4 @@ Reglamento para regular el nombramiento y las justificaciones de los Directores 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-11-06 | la propia norma |
+| 2 | 2021-08-10 | Reglamento 2 (2021-08-10) |
