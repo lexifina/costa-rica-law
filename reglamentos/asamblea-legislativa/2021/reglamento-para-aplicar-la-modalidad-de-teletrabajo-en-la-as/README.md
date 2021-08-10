@@ -14,3 +14,4 @@ Reglamento para aplicar la modalidad de teletrabajo en la Asamblea Legislativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-25 | la propia norma |
+| 2 | 2021-08-10 | Reglamento 170 (2021-08-10) |

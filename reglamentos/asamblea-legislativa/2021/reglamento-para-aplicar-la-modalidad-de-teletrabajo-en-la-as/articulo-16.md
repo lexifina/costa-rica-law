@@ -1,5 +1,7 @@
-ARTÍCULO 16.- Funciones del Departamento de Informática
-Corresponde al Departamento de Informática definir los requerimientos mínimos necesarios en hardware y software con que debe contar un funcionario o funcionaria de la institución, para realizar funciones en la modalidad de teletrabajo.
+ARTÍCULO 16.- Funciones del Departamento de tecnologías de Información(*)
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")
+Corresponde al Departamento de Tecnologías de Información(*) definir los requerimientos mínimos necesarios en hardware y software con que debe contar un funcionario o funcionaria de la institución, para realizar funciones en la modalidad de teletrabajo.
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Departamento de Informática")
 Le corresponde diseñar y adoptar las medidas y procedimientos obligatorios, especialmente, en materia de disposición y uso de software, así como el control y la protección de datos públicos obtenidos en el procesamiento de información oficial en la prestación del servicio por parte del teletrabajador cuando esa información o datos se encuentre almacenada en los servidores institucionales.
 El equipo utilizado para prestar el servicio y las herramientas informáticas podrán ser aportados de acuerdo a la disponibilidad y posibilidad, por la Institución, pero si no existe equipo disponible (software y hardware), deberán ser aportados por la persona teletrabajadora, situación que deberá quedar expresamente señalada, desde el momento que se hace la solicitud de teletrabajo y en el contrato o adenda, eximiendo de responsabilidad a la persona empleadora sobre el uso del equipo propiedad de la persona teletrabajadora.
 También correrán por cuenta del teletrabajador los medios de interconexión que sean necesarios.
