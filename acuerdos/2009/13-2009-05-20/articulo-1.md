@@ -109,12 +109,12 @@ DESTREZA: Pericia manual y/o mental que se requiere para ejecutar diversas tarea
 DIFICULTAD: Se refiere a las exigencias que presentan las actividades en cuanto a la naturaleza, el tipo y la frecuencia de los problemas que se deben atender y resolver la aplicación de principios generales, conocimientos adquiridos académicamente o mediante la práctica y la experiencia.
 DIRECCIÓN: Proceso y órgano que dirige y guía las operaciones de una organización en la realización de los fines establecidos.
 DOMINIO: Conjunto de conocimientos, destrezas y habilidades que posee una persona sobre una materia, una disciplina o un campo de actividad, lo que le permite aumentar su eficiencia en el trabajo.
-EFICACIA: Capacidad para lograr oportunamente y de la mejor manera los objetivos establecidos, “hacer las cosas correctas”.
-EFICIENCIA: Capacidad de maximizar el uso de recursos en función de la productividad para alcanzar los objetivos de la organización, “hacer bien las cosas”.
+EFICACIA: Capacidad para lograr oportunamente y de la mejor manera los objetivos establecidos, "hacer las cosas correctas".
+EFICIENCIA: Capacidad de maximizar el uso de recursos en función de la productividad para alcanzar los objetivos de la organización, "hacer bien las cosas".
 EJECUCIÓN: Función concerniente a la aplicación de políticas dentro de los límites establecidos por la administración y la dedicación de la organización al objetivo particular que se le haya establecido.
 ENSEÑANZA GENERAL BÁSICA APROBADA: Tercer año aprobado de estudios secundarios.
 ESPECIALIZACIÓN: Modo de formación destinado a trabajadores calificados que requieren conocimientos completos y profundos de una técnica específica o de un campo de actividad determinado.
-ESTRUCTURA OCUPACIONAL: Una estructura es un todo formado por clases que guardan relación entre sí. “Ocupacional” es el adjetivo correspondiente a “ocupación” (trabajo, oficio, labor).
+ESTRUCTURA OCUPACIONAL: Una estructura es un todo formado por clases que guardan relación entre sí. "Ocupacional" es el adjetivo correspondiente a "ocupación" (trabajo, oficio, labor).
 ESTRUCTURA ORGANIZACIONAL: Se refiere a la disposición de los centros de responsabilidad (gerencias, direcciones, departamentos, secciones, etc.) que configuran una organización y la relación que mantienen entre sí. Visualiza la división del trabajo.
 EXPERIENCIA: Conocimiento que se adquiere con la práctica en el desempeño de un puesto. Los requisitos de las tareas contemplan diferentes grados de experiencia.
 EXPERIENCIA EN LABORES RELACIONADAS CON EL PUESTO: Experiencia que se relaciona directamente con las tareas de un puesto y especialidad determinada.
@@ -149,7 +149,7 @@ RESPONSABILIDAD: Este factor se refiere a la obligación que tiene el servidor d
 REALIMENTACIÓN: Información que ayuda a determinar el éxito o el fracaso de una acción o un sistema. Proceso mediante el cual se analizan los objetivos logrados con los previstos, con el fin de conocer la diferencia existente entre estos, sus causas y sus posibles medidas de corrección.
 SEGUNDO CICLO DE ENSEÑANZA GENERAL BÁSICA: Enseñanza primaria aprobada.
 SERIE DE CLASES: Conjunto de clases comprendidas en un mismo campo de trabajo, se diferencian entre sí por el grado de dificultad y responsabilidad de las tareas y por el nivel académico. Los diferentes niveles dentro de una serie se indican en orden ascendente a medida que aumenta el grado de responsabilidad, autoridad y dificultad de los puestos. La serie de clases, por las características indicadas, se ubican dentro de un mismo estrato.
-SUPERVISIÓN DE PERSONAL: Fase de la dirección que pretende una visión directa e inmediata de las tareas asignadas a los individuos o grupos para asegurar su realización correcta y adecuada, tanto desde la perspectiva técnica (ejecución de funciones y actividades) como administrativa (cumplimiento de todos los actos determinados por la administración para efectos de los controles y valoraciones correspondientes –evaluaciones del desempeño, permisos, aprobaciones para vacaciones, licencias solicitudes de estudios de reasignación, etc.).
+SUPERVISIÓN DE PERSONAL: Fase de la dirección que pretende una visión directa e inmediata de las tareas asignadas a los individuos o grupos para asegurar su realización correcta y adecuada, tanto desde la perspectiva técnica (ejecución de funciones y actividades) como administrativa (cumplimiento de todos los actos determinados por la administración para efectos de los controles y valoraciones correspondientes -evaluaciones del desempeño, permisos, aprobaciones para vacaciones, licencias solicitudes de estudios de reasignación, etc.).
 TÍTULO DE CLASE: Nombre breve y oficial de una clase que indica, de manera sintética, la índole del trabajo incluido en ella.
 TRABAJADOR: Persona que ejecuta una actividad determinada en cualquier empresa y cuyos logros son intelectuales o físicos. El término trabajador alude a los conceptos de servidor público y privado que desempeñan actividades para el logro de los objetivos de una organización.
 UBICACIÓN: Proceso de instalar a un empleado en un puesto nuevo o diferente. Determinación de la unidad administrativa donde se deben ejecutar las actividades de un puesto, según sea el cumplimiento de los objetivos que se persigan.
@@ -673,14 +673,14 @@ Curso de protección de dignatarios.
 Requisito legal:
 Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
 Permiso de portación de armas.
-(**) (Así reformado el punto “Conocimientos y experiencia requerida, en sesión N°158 del 14 de marzo de 2017)
+(**) (Así reformado el punto "Conocimientos y experiencia requerida, en sesión N°158 del 14 de marzo de 2017)
 (*)(Así reformada la categoría de puesto Subjefe de Seguridad anterior mediante acuerdo N° 32-11-12 tomado en sesión ordinaria N° 078-2011 del 13 de octubre del 2011)
 JEFE TÉCNICO
 Objetivo del trabajo: Coadyuvar al eficiente desarrollo de los procesos de trabajo de las diferentes áreas mediante la ejecución de labores de planeación, dirección, supervisión orientadas a la coordinación de una unidad administrativa compuesta por funcionarios que realizan labores técnicas u operativas rutinarias de la Asamblea Legislativa.
 Ubicación:
 Los puestos de esta clase se ubican en los diferentes departamentos a cargo de una unidad administrativa menor y perteneciente a tales departamentos.
 Actividades generales:
-Planear, coordinar, distribuir, dirigir, controlar y supervisar los procesos en una unidad administrativa “menor”, en tanto que pertenece organizacionalmente a un departamento.
+Planear, coordinar, distribuir, dirigir, controlar y supervisar los procesos en una unidad administrativa "menor", en tanto que pertenece organizacionalmente a un departamento.
 Participar con la dirección de departamento en la revisión y aprobación de informes, manuales e instructivos técnicos y documentos que se elaboren.
 Establecer normas y estándares de trabajo y motivar e incentivar al personal a su cargo en coordinación con la jefatura del departamento.
 Recomendar estrategias, metodologías o métodos y procedimientos que aumenten la productividad y calidad del trabajo.
@@ -1013,32 +1013,32 @@ Dirección, coordinación, supervisión y ejecución de labores técnicas, cient
 Ubicación
 Departamento de Servicios de Salud
 Actividades Generales
-• Organizar, dirigir, coordinar y supervisar las labores técnicas y administrativas de los programas de salud del Poder Legislativo.
-• Proponer y ejecutar las políticas, objetivos y programas de trabajo en diferentes áreas de la medicina (microbiología, sicología, trabajo social, salud ocupacional y rehabilitación, entre otras).
-• Diseñar, dirigir y supervisar estudios, proyectos e investigaciones en diferentes campos del quehacer profesional en el área de la salud.
-• Realizar exámenes médicos al personal que ingresa a la institución, al que se pensiona y controlar sus enfermedades.
+. Organizar, dirigir, coordinar y supervisar las labores técnicas y administrativas de los programas de salud del Poder Legislativo.
+. Proponer y ejecutar las políticas, objetivos y programas de trabajo en diferentes áreas de la medicina (microbiología, sicología, trabajo social, salud ocupacional y rehabilitación, entre otras).
+. Diseñar, dirigir y supervisar estudios, proyectos e investigaciones en diferentes campos del quehacer profesional en el área de la salud.
+. Realizar exámenes médicos al personal que ingresa a la institución, al que se pensiona y controlar sus enfermedades.
 Brindar consulta médica al personal de la Asamblea Legislativa, a diputados y a familiares, mediante los enfoques preventivo y curativo.
-• Efectuar actividades de promoción de la salud y prevención de enfermedades. Coordinar, con otras instituciones, actividades en forma tal que se brinde un mejor servicio a los usuarios de los servicios de salud.
-• Emitir políticas, directrices, lineamientos y revisar los procedimientos que se aplican en el Departamento de Servicios de Salud.
-• Proponer a los niveles superiores las políticas, planes y programas de trabajo por ejecutar en el modelo de atención integral en salud del Departamento.
-• Instruir y supervisar al personal profesional y técnico sobre prácticas y normas de trabajo técnicas y administrativas.
-• Presentar anualmente, coordinar y delegar en la Subdirección departamental, el plan operacional del departamento, incluyendo el proyecto de presupuesto y cronogramas de su aplicación.
-• Participar en reuniones de alto nivel para la coordinación de los planes de trabajo de la Institución, así como integrar comisiones para organizar y dirigir programas y actividades.
-• Supervisar la preparación de informes y documentos técnica y administrativamente.
-• Autorizar la adquisición de bienes materiales, equipo y suministros y velar por su correcto empleo.
-• Brindar tratamiento, control y seguimiento de casos bajo su cuidado, así como autorizar referencias a otras instituciones de salud cuando la situación lo amerita.
-• Atender consulta médica a los usuarios de los servicios de salud en lo que a la medicina general y laboral se refiere.
-• Efectuar exámenes físicos, realizar diagnóstico, prescribir los medicamentos y administrar otras formas de tratamientos. Elevar el expediente clínico de los usuarios de los servicios.
-• Solicitar e interpretar exámenes de laboratorio, radiografías y otros exámenes de diagnóstico.
-• Atender consultas clínicas de cirugía menor cuando se amerite.
-• Atender brotes epidémicos mediante la prevención, control y evaluación de los mismos.
-• Coordinar las actividades del Departamento de Servicios de Salud con la Dirección Regional de Salud, Clínica Central y al Área Rectora del Ministerio de Salud.
-• Coordinar y colaborar con el equipo de trabajo en el diseño y desarrollo de las investigaciones que se programan en el departamento.
-• Asignar funciones al equipo técnico y administrativo, tanto asistencial-médico y de enfermería- como al equipo de apoyo y supervisar su trabajo.
-CONTENIDO• Dictar charlas, cursillos o conferencias sobre temas de prevención de enfermedades y nutrición.
-• Asistir a reuniones, seminarios y otras actividades.
-• Realizar las tareas administrativas que se derivan de su función.
-• Ejecutar otras labores propias de su área profesional.
+. Efectuar actividades de promoción de la salud y prevención de enfermedades. Coordinar, con otras instituciones, actividades en forma tal que se brinde un mejor servicio a los usuarios de los servicios de salud.
+. Emitir políticas, directrices, lineamientos y revisar los procedimientos que se aplican en el Departamento de Servicios de Salud.
+. Proponer a los niveles superiores las políticas, planes y programas de trabajo por ejecutar en el modelo de atención integral en salud del Departamento.
+. Instruir y supervisar al personal profesional y técnico sobre prácticas y normas de trabajo técnicas y administrativas.
+. Presentar anualmente, coordinar y delegar en la Subdirección departamental, el plan operacional del departamento, incluyendo el proyecto de presupuesto y cronogramas de su aplicación.
+. Participar en reuniones de alto nivel para la coordinación de los planes de trabajo de la Institución, así como integrar comisiones para organizar y dirigir programas y actividades.
+. Supervisar la preparación de informes y documentos técnica y administrativamente.
+. Autorizar la adquisición de bienes materiales, equipo y suministros y velar por su correcto empleo.
+. Brindar tratamiento, control y seguimiento de casos bajo su cuidado, así como autorizar referencias a otras instituciones de salud cuando la situación lo amerita.
+. Atender consulta médica a los usuarios de los servicios de salud en lo que a la medicina general y laboral se refiere.
+. Efectuar exámenes físicos, realizar diagnóstico, prescribir los medicamentos y administrar otras formas de tratamientos. Elevar el expediente clínico de los usuarios de los servicios.
+. Solicitar e interpretar exámenes de laboratorio, radiografías y otros exámenes de diagnóstico.
+. Atender consultas clínicas de cirugía menor cuando se amerite.
+. Atender brotes epidémicos mediante la prevención, control y evaluación de los mismos.
+. Coordinar las actividades del Departamento de Servicios de Salud con la Dirección Regional de Salud, Clínica Central y al Área Rectora del Ministerio de Salud.
+. Coordinar y colaborar con el equipo de trabajo en el diseño y desarrollo de las investigaciones que se programan en el departamento.
+. Asignar funciones al equipo técnico y administrativo, tanto asistencial-médico y de enfermería- como al equipo de apoyo y supervisar su trabajo.
+CONTENIDO. Dictar charlas, cursillos o conferencias sobre temas de prevención de enfermedades y nutrición.
+. Asistir a reuniones, seminarios y otras actividades.
+. Realizar las tareas administrativas que se derivan de su función.
+. Ejecutar otras labores propias de su área profesional.
 Condiciones organizacionales y ambientales
 El médico G-3 o Médico Jefe ejerce funciones técnicas y administrativas del Departamento de Servicios de Salud y delega por competencias en la Subdirección para la ejecución de las tareas propias del este.
 Supervisión ejercida: Le corresponde organizar, asignar y supervisar las labores de personal administrativo, profesional y técnico; es responsable por el cumplimiento de las actividades asignadas a ellos y por el logro de objetivos.
@@ -1048,9 +1048,9 @@ Responsabilidad
 Por actividades
 Debe aplicar principios y técnicas propias de su profesión para atender y resolver apropiadamente diversas situaciones, organizando, coordinando y dirigiendo las distintas actividades.
 Por equipo y materiales
-• Debe responsabilizarse por el adecuado empleo y mantenimiento del equipo, instrumental y material que dispone la dependencia a su cargo para cumplir sus objetivos.
+. Debe responsabilizarse por el adecuado empleo y mantenimiento del equipo, instrumental y material que dispone la dependencia a su cargo para cumplir sus objetivos.
 Por relaciones de trabajo
-• Mantiene relaciones constantes con superiores, subalternos, funcionarios de instituciones públicas y privadas y público en general, las cuales deben ser atendidas con ética profesional, sensibilidad, tacto y discreción.
+. Mantiene relaciones constantes con superiores, subalternos, funcionarios de instituciones públicas y privadas y público en general, las cuales deben ser atendidas con ética profesional, sensibilidad, tacto y discreción.
 Condiciones de trabajo
 Ocasionalmente, le corresponderá laborar fuera de la jornada ordinaria ante situaciones de emergencia. Debe someterse a los programas de capacitación requeridos para el desempeño del puesto.
 Consecuencia del error
@@ -1141,8 +1141,8 @@ Normativa de los procesos legislativos.
 Planificación estratégica.
 Cargos que conforman la clase:
 De acuerdo con lo establecido por el Directorio legislativo en sesión Nº 137-97, de fecha 18 de diciembre de 1997, en el artículo 26, que dice:
-“ARTÍCULO 26. SE ACUERDA: A partir de esta fecha, no reasignar ni nombrar a funcionarios en los puestos de Asesor 1 y Asesor 2. En caso de quedar un puesto vacante clasificado como tal, se debe reclasificar de acuerdo con las funciones que se le asignen.
-Lo anterior pretende una sana administración que contemple las técnicas de Recursos Humanos y en cumplimiento de lo estipulado ante el Tribunal del Servicio Civil. ACUERDO FIRME.”
+"ARTÍCULO 26. SE ACUERDA: A partir de esta fecha, no reasignar ni nombrar a funcionarios en los puestos de Asesor 1 y Asesor 2. En caso de quedar un puesto vacante clasificado como tal, se debe reclasificar de acuerdo con las funciones que se le asignen.
+Lo anterior pretende una sana administración que contemple las técnicas de Recursos Humanos y en cumplimiento de lo estipulado ante el Tribunal del Servicio Civil. ACUERDO FIRME."
 En función de lo anterior, esta clasificación es transitoria, solamente para el puesto que a la fecha de aprobación del este Manual de clasificación de puestos de la Asamblea Legislativa posee una clasificación de Asesor 1. Esto hasta que las condiciones y las actividades que lo caracteriza se modifiquen sustancialmente y permitan su ubicación en otra clasificación o hasta que el puesto quede vacante y la administración decida sobre él. Esta clase de Asesor en un futuro mediato será eliminado del Manual.
 CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Formación profesional a nivel de licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
@@ -1192,7 +1192,7 @@ Experiencia mínima de UN AÑO en el manejo y supervisión de personal.
 Requisito legal:
 Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
 Permiso vigente de portación de armas.
-(*) (Así reformado el punto “Conocimientos y experiencia requerida en sesión N° 158 del 14 de marzo de 2017)
+(*) (Así reformado el punto "Conocimientos y experiencia requerida en sesión N° 158 del 14 de marzo de 2017)
 PROFESIONAL JEFE 1
 Objetivo del trabajo: Comprometerse con el eficiente desarrollo de los procesos de trabajo de las diferentes áreas mediante la ejecución de labores de planeación, dirección, supervisión y evaluación, orientadas a la coordinación de un área administrativa o legislativa de la Asamblea Legislativa. Todo ello en estrecha coordinación con el jerarca de la unidad administrativa de que se trate.
 Ubicación:
@@ -1229,11 +1229,11 @@ CONOCIMIENTOS BÁSICOS
 Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
 Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, con procesos y procedimientos institucionales, actualización de conocimientos relacionados con el área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo, trabajo en equipo y materia gerencial.
 (*) CONOCIMIENTOS Y EXPERIENCIA REQUERIDA:
-• Formación profesional a nivel de licenciatura o superior en una carrera universitaria atinente a su área de actividad.
-• Experiencia mínima de 12 meses en el manejo y supervisión de personal o 5 años de experiencia continua y a nivel de licenciatura en el Departamento donde se encuentra vacante la plaza o se requiere la sustitución. Para tales efectos, se tomará como experiencia en el Departamento aquellas personas que ejerzan fiscalización o supervisión, sobre dicha dependencia.
-• Experiencia profesional mínima de cinco años a nivel de licenciatura y desarrolladas en la Asamblea Legislativa o experiencia mínima de diez años en labores relacionadas con el área de actividad, a nivel de licenciatura”.
+. Formación profesional a nivel de licenciatura o superior en una carrera universitaria atinente a su área de actividad.
+. Experiencia mínima de 12 meses en el manejo y supervisión de personal o 5 años de experiencia continua y a nivel de licenciatura en el Departamento donde se encuentra vacante la plaza o se requiere la sustitución. Para tales efectos, se tomará como experiencia en el Departamento aquellas personas que ejerzan fiscalización o supervisión, sobre dicha dependencia.
+. Experiencia profesional mínima de cinco años a nivel de licenciatura y desarrolladas en la Asamblea Legislativa o experiencia mínima de diez años en labores relacionadas con el área de actividad, a nivel de licenciatura".
 Requisito legal:
-• Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+. Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
 (*) (Así reformado el aparte anterior "Conocimientos y experiencia requerida mediante sesión ordinaria N° 098-2020 del 10 de marzo del 2020)
 PROFESIONAL JEFE 2 (Niveles A y B)
 Objetivo del trabajo:
@@ -1293,7 +1293,7 @@ Requisito legal:
 Incorporación al colegio respectivo.
 (*) JEFE DE ÁREA
 Objetivo del trabajo: Comprometerse con el eficiente desarrollo de los procesos de trabajo de la Unidad Administrativa asignada dentro de las actividades correspondientes al Área Administrativa de los Servicios Generales, como coadyuvantes para el eficiente desarrollo de las labores sustantivas de la Institución, mediante la ejecución de labores de planeación, dirección, supervisión y evaluación. Todo ello en estrecha coordinación con el jerarca de la mayor unidad administrativa a la cual pertenecen las funciones asignadas.
-Ubicación: Los puestos de esta clase se ubican en la unidad administrativa encargada de actividades denominadas “servicios generales” de la Institución, bien sea lo relacionado con transportes, aseo, limpieza y distribución de correspondencia de la Asamblea Legislativa.
+Ubicación: Los puestos de esta clase se ubican en la unidad administrativa encargada de actividades denominadas "servicios generales" de la Institución, bien sea lo relacionado con transportes, aseo, limpieza y distribución de correspondencia de la Asamblea Legislativa.
 Actividades generales: Planear, coordinar, distribuir, dirigir, controlar, supervisar y evaluar los procesos en un área o unidad perteneciente al departamento en que está ubicado.
 Proyectar los gastos y requerimientos en equipo, recurso humano y espacio e informar periódicamente sobre el estado de los procesos, resultados y proyectos del área.
 Asumir, responsablemente, junto con la dirección de departamento, la revisión y aprobación de informes, manuales e instructivos técnicos y documentos que se elaboren.
@@ -1327,7 +1327,7 @@ Experiencia profesional mínima de CUATRO AÑOS en labores relacionadas con el c
 Experiencia mínima de UN AÑO en el manejo y supervisión de personal.
 Requisito legal:
 Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
-(*) (Así reformado el punto “Conocimientos y experiencia requerida”, en sesión N° 158 del 14 de marzo de 2017)
+(*) (Así reformado el punto "Conocimientos y experiencia requerida", en sesión N° 158 del 14 de marzo de 2017)
 (*) (Así adicionada la clase de puesto anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 ESTRATO GERENCIAL
 Contempla los procesos de definición y formulación de las políticas institucionales, así como la planificación, dirección y coordinación del funcionamiento general de la institución. Corresponde la dirección de unidades administrativas del más alto nivel, o bien, su asesoramiento.
@@ -1376,7 +1376,7 @@ Experiencia profesional mínima de SIETE AÑOS a nivel de licenciatura y desarro
 Experiencia mínima de TRES AÑOS en el manejo y supervisión de personal.
 Requisito legal:
 Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
-(*) (Así reformado el punto “Subdirector de departamento en sesión N° 158 del 14 de marzo de 2017)
+(*) (Así reformado el punto "Subdirector de departamento en sesión N° 158 del 14 de marzo de 2017)
 (*)SUBDIRECTOR DEPARTAMENTO
 DE SERVICIOS DE SALUD
 · Licenciado en Medicina y Cirugía
@@ -1543,7 +1543,7 @@ Experiencia profesional mínima de OCHO AÑOS a nivel de licenciatura y desarrol
 Experiencia mínima de TRES AÑOS en el manejo y supervisión de personal.
 Requisito legal:
 Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
-(*) (Así reformado el punto anterior “Conocimientos y experiencia requerida”, en sesión N° 158 del 14 de marzo de 2017)
+(*) (Así reformado el punto anterior "Conocimientos y experiencia requerida", en sesión N° 158 del 14 de marzo de 2017)
 DIRECTOR DE DIVISIÓN
 Objetivo del trabajo:
 Comprometerse con la definición de las políticas, las estrategias, los objetivos, los valores, la misión y la visión institucionales. Garantizar la gestión legislativa o administrativa de la Asamblea Legislativa en concordancia con las políticas institucionales y los planes anuales operativos de la división, mediante la ejecución de actividades gerenciales de planificación, organización, dirección, supervisión y evaluación de los procesos administrativos.
@@ -1551,7 +1551,8 @@ Ubicación:
 En esta clase se ubican los puestos de director de División Administrativa y director División Legislativa.
 Departamentos que conforman cada división:
 División Administrativa: la integran los departamentos de Recursos Humanos, Servicios Generales, Servicios de Salud, Proveeduría, y Financiero, así como las unidades o secciones de cada uno de ellos.
-División Legislativa: la integran los departamentos de Servicios Parlamentarios; Estudios Referencias y Servicios Técnicos; Comisiones Legislativas; Archivo; Secretaría del Directorio; Servicios Bibliotecarios, Documentación e Información; Informática; y Análisis Presupuestario, así como las unidades o secciones de cada una de ellos y/o que organizacionalmente pertenecen a la División.
+División Legislativa: la integran los departamentos de Servicios Parlamentarios; Estudios Referencias y Servicios Técnicos; Comisiones Legislativas; Archivo; Secretaría del Directorio; Servicios Bibliotecarios, Documentación e Información; Tecnologías de Información(*); y Análisis Presupuestario, así como las unidades o secciones de cada una de ellos y/o que organizacionalmente pertenecen a la División.
+(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Informática")
 Actividades generales:
 Todas las conferidas mediante la normativa vigente.
 Planificar, organizar, coordinar y evaluar las actividades relacionadas con la gestión de las divisiones Administrativa o Legislativa a la luz de la visión, la misión y los objetivos institucionales.
@@ -1600,7 +1601,7 @@ Formación profesional a nivel de licenciatura o título superior en una carrera
 Experiencia profesional mínima de NUEVE AÑOS a nivel de licenciatura y desarrolladas en la Asamblea Legislativa O experiencia profesional mínima de DIEZ AÑOS en labores relacionadas con el área académica, a nivel de licenciatura.
 Experiencia mínima de TRES AÑOS en el manejo y supervisión de personal. Requisito legal:
 Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
-(*) (Así reformado el punto anterior “Conocimientos y experiencia requerida”, en sesión N° 158 del 14 de marzo de 2017)
+(*) (Así reformado el punto anterior "Conocimientos y experiencia requerida", en sesión N° 158 del 14 de marzo de 2017)
 Carreras atinentes
 Director de División Administrativa
 Administración con sus diferentes énfasis.
@@ -1655,7 +1656,7 @@ Experiencia profesional mínima de DIEZ AÑOS a nivel de licenciatura, y desarro
 Experiencia mínima de TRES AÑOS en el manejo y supervisión de personal.
 Requisito legal:
 Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
-(*) (Así reformado el punto anterior “Conocimientos y experiencia requerida”, en sesión N° 158 del 14 de marzo de 2017)
+(*) (Así reformado el punto anterior "Conocimientos y experiencia requerida", en sesión N° 158 del 14 de marzo de 2017)
 Carreras atinentes:
 Administración con sus diferentes énfasis/ Ciencias Políticas/ Derecho con sus diferentes énfasis/ Economía con sus diferentes énfasis.
 PSICÓLOGO CLÍNICO 1, Código 0403305 (Dirección General de Servicio Civil, Manual de Clases Anchas - Resolución DG-055-97 del 5/06/1997)(*).
