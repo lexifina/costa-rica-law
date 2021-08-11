@@ -26,3 +26,4 @@ Reglamento a la Ley de Régimen de Zonas Francas
 | 11 | 2019-12-05 | Decreto Ejecutivo 42182 (2019-12-05) |
 | 12 | 2019-12-20 | Decreto Ejecutivo 42189 (2019-12-20) |
 | 13 | 2021-03-03 | Decreto Ejecutivo 42951 (2021-03-03) |
+| 14 | 2021-08-11 | Decreto Ejecutivo 43153 (2021-08-11) |
