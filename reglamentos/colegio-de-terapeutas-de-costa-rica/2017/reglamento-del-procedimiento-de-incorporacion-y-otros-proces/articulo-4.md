@@ -1,2 +1,4 @@
-Artículo 4.- Los documentos emitidos por autoridad o entidad extranjera deberán venir debidamente legalizados y apostillados. Asimismo, cuando se trate de documentos emitidos en idioma extranjero, deberá presentarse la respectiva traducción oficial.
+Artículo 4º-Los documentos emitidos por autoridad o entidad extranjera deberán venir debidamente legalizados y apostillados. Asimismo, cuando se trate de documentos emitidos en idioma extranjero, deberá presentarse la respectiva traducción oficial.
 En relación con documentos provenientes de países no adscritos al Convenio de la Apostilla, deberán acompañarse de una declaración jurada protocolizada ante notario público, en la que se señale dicha condición.
+Cuando se trate de títulos y certificados de estudios realizados en el extranjero, además deberán contar con el debido reconocimiento y equiparación al grado requerido para la incorporación, dado por la autoridad competente en Costa Rica.
+(Así reformado mediante sesión N° 2021-0024 del 11 de agosto de 2021)

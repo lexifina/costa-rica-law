@@ -5,4 +5,5 @@ c) Una vez aprobada la solicitud, el agremiado tendrá un plazo de 15 días háb
 d) Si alguno de los documentos o mecanismos de seguridad señalados anteriormente fue sustraído, robado, se destruyó o se extravió, el colegiado deberá presentar una declaración jurada protocolizada, ante notario público, en la que indique el motivo exacto por el cual no resulta posible su devolución.
 e) Una vez trascurrido el plazo mencionado en el inciso c, sin constar entrega de las credenciales y de no haber carta de solicitud de prórroga o no haberse presentado la declaración jurada del párrafo anterior, el trámite del congelamiento se entenderá abandonado y, por tanto, las obligaciones y derechos del agremiado se mantienen.
 En este caso, bastará la constancia en la que se indique la no entrega de credenciales.
-f) El rechazo de plano o el abandono de la solicitud no impedirá la presentación de nuevas y posteriores solicitudes. En tal caso, deberá esperar el agremiado el plazo de un mes calendario desde la notificación de su solicitud anterior, para plantear una nueva solicitud.
+f) El rechazo de plano o el abandono de la solicitud no impedirá la presentación de nuevas y posteriores solicitudes, para las cuales se deberá iniciar el trámite nuevamente.
+(Así reformado el inciso anterior mediante sesión N° 2021-0024 del 11 de agosto de 2021)
