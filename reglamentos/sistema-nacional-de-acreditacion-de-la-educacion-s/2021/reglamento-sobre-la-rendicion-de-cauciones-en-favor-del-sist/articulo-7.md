@@ -1,0 +1,2 @@
+Artículo 7º-Del plazo de las garantías. Los miembros del Concejo Nacional de Acreditación y los funcionarios obligados a rendir garantía o caución, deberán hacerlo por todo el período en el cual ejerzan el puesto o cargo en el que fueron nombrados.
+Si la garantía caducare o venciere antes del término del nombramiento, el SINAES, por medio de la División de Apoyo a la Gestión, gestionará la solicitud de la prórroga tantas veces como sea necesario hasta que finalice el plazo de nombramiento.

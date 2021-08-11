@@ -1,0 +1,4 @@
+Artículo 20.—Ejecución de la garantía. En caso de que se demuestre una falta del caucionante, ocasionando daño o perjuicio comprobado al patrimonio del SINAES, la Dirección Ejecutiva o el Consejo Nacional de Acreditación, según corresponda, ordenarán un procedimiento administrativo ajustado a la legislación vigente, a efecto de establecer las responsabilidades y ordenar la ejecución de la garantía respectiva.
+Corresponderá a la División de Servicios de Apoyo a la Gestión, con el apoyo del abogado(a) del SINAES, realizar las gestiones necesarias para hacer efectiva la garantía.
+Si la caución se ejecuta antes de cumplirse su periodo de vigencia, el funcionario, de mantenerse en su puesto, deberá rendir una nueva caución con la finalidad de que no quede ningún periodo de tiempo sin la debida protección.
+Todo lo anterior sin perjuicio de otras responsabilidades administrativas, civiles y penales que procedan.

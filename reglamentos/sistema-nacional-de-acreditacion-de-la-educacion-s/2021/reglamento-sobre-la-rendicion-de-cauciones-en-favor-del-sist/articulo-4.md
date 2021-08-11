@@ -1,0 +1,1 @@
+Artículo 4º-Finalidad de la caución. La caución tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que el caucionante responsable, en el ejercicio de sus funciones, pueda producir al SINAES, sin que esto pueda limitar una eventual responsabilidad civil.

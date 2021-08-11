@@ -1,0 +1,1 @@
+Artículo 3º-Caución. Se entenderá como caución, para efectos de este Reglamento, aquella garantía que funcionarios y miembros del Consejo Nacional de Acreditación de la Educación Superior -en adelante denominados caucionantes-, deban brindar a favor del SINAES.

@@ -1,0 +1,1 @@
+Artículo 25.—Caución rendida por un monto inferior. Si la caución fuere rendida por un monto inferior al establecido, la División de Servicios de Apoyo a la Gestión, comunicará al respectivo funcionario para que, en un plazo improrrogable no mayor a diez días hábiles, proceda a rendir la caución por el monto previsto, presentando dentro de ese plazo la documentación respectiva.

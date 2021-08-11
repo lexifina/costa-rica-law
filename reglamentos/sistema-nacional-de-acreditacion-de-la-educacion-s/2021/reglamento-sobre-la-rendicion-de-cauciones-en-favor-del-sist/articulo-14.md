@@ -1,0 +1,1 @@
+Artículo 14.-Asignación de diferentes funciones sujetas a caución a un mismo funcionario. El funcionario que, obligado a caucionar, se le asigne varias funciones que generen ese mismo deber, rendirá una única caución y por el monto de mayor valor, según caución establecida para los diferentes niveles.
