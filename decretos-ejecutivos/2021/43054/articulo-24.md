@@ -1,0 +1,15 @@
+Artículo 24.-Funciones. El Coordinador de Frontera tendrá las siguientes funciones:
+1.- Coadyuvar en la solución de problemas relacionados con la modernización, operación y funcionamiento de los puestos fronterizos terrestres, puertos y aeropuertos dentro de su zona de influencia.
+2.- Velar por el cumplimiento de los acuerdos tomados por el CONAFAC en relación con la implementación del Acuerdo sobre Facilitación del Comercio de la Organización Mundial del Comercio.
+3.- Colaborar y participar activamente en las reuniones de los Comités.
+4.- Colaborar con todas las dependencias públicas que operan en los puestos fronterizos terrestres, puertos y aeropuertos, para su adecuado funcionamiento.
+5.- Fungir como enlace o medio de comunicación con los operadores de comercio exterior que prestan sus servicios en los puestos fronterizos terrestres, puertos y aeropuertos.
+6.- Promover la gestión coordinada de fronteras tanto a nivel local como binacional y la coordinación interinstitucional.
+7.- Apoyar a la Comisión Ejecutiva del CONAFAC y a sus otras Comisiones Técnicas cuando así se le requiera.
+8.- Apoyar a la Unidad Coordinadora del Programa de Integración Fronteriza en las labores relacionadas con la modernización de los principales puestos fronterizos terrestres del país, incluidas, pero no limitadas a la recolección de información, organización de reuniones, y otras que resulten necesarias, cuando así se requiera; y una vez construida la nueva infraestructura, dicho apoyo se brindará a la instancia responsable de la administración y mantenimiento de estas obras.
+9.- Velar por la correcta implementación de los convenios y contratos de mantenimiento interinstitucionales en relación con la operación de los puestos fronterizos terrestres dentro de su zona de influencia.
+10.- Coordinar con las autoridades de tránsito y seguridad la prestación de los servicios que brindan ambas entidades en los puestos fronterizos terrestres, puertos y aeropuertos.
+11.- Informar a COMEX sobre los problemas y dificultades que enfrentan las instituciones públicas para prestar los servicios relacionados con el tránsito de personas, vehículos y mercancías, incluyendo, pero no limitado a los casos en los que la falta de personal en una dependencia pública esté afectando su buen funcionamiento, con el fin de buscar soluciones que permitan atender dicha situación;
+12.- Plantear propuestas de mejora en relación con la operación de los puestos fronterizos terrestres, puertos y aeropuertos, las cuales serán remitidas a CONAFAC para su consideración;
+13.- Preparar y presentar insumos para la elaboración de informes requeridos por COMEX;
+14.- Velar por el buen uso de los locales e instalaciones de los puestos fronterizos terrestres, puertos y aeropuertos dentro de su zona de influencia; y, el correcto funcionamiento, operación y control de los accesos, vías internas, equipo tecnológico, sistemas de agua, electricidad, telefonía, disposición de desechos, a efectos de informar a CONAFAC sobre cualquier falla u oportunidad de mejora que identifique.

@@ -1,0 +1,3 @@
+Artículo 20.-Invitados. Cuando las circunstancias lo ameriten, en razón de los temas a tratar, podrán ser invitados a las sesiones de los Comités, otros representantes del sector público y privado, incluyendo los operadores y/o concesionarios de los puertos, aeropuertos y/ puestos fronterizos y la sociedad civil en general, quienes participarán en calidad de invitados con derecho a voz.
+Cualquier miembro del Comité podrá presentar la propuesta de invitación al Comité y el presidente la someterá a votación, debiendo ser aprobada por mayoría absoluta de los miembros presentes para proceder con la invitación.
+El coordinador de frontera será un invitado permanente a las reuniones de los Comités, con voz, pero sin voto.

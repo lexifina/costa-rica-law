@@ -1,0 +1,4 @@
+Artículo 16.-Convocatorias. Las convocatorias a las sesiones ordinarias y extraordinarias deberán realizarse por escrito o por correo electrónico enviado a los representantes designados.
+Las sesiones ordinarias serán convocadas con un plazo de cinco días hábiles de antelación. Las convocatorias se acompañarán de la agenda propuesta y de cualesquiera otros documentos pertinentes.
+Las sesiones extraordinarias deberán convocarse con al menos 24 horas de antelación, salvo que deban tratarse asuntos de urgencia. La convocatoria se acompañará del orden del día.
+En tanto las condiciones tecnológicas de que dispongan los miembros del Comité respectivo permitan una comunicación integral en la que medie audio, video y datos, así como la simultaneidad en la comunicación y en la deliberación, éstos podrán participar de las sesiones de forma virtual, cuando medien situaciones especiales que así lo justifiquen.

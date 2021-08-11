@@ -1,0 +1,21 @@
+N° 43054-H-COMEX
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE HACIENDA
+Y EL MINISTRO DE COMERCIO EXTERIOR
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3), 18) y 20) y 146 de la Constitución Política; los artículos 4, 5, 15, 16, 17, 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) y 103, todos, de la Ley General de la Administración Pública, Ley N° 6227 de fecha 02 de mayo de 1978; los artículos 2 inciso i) y 2 bis de la Ley de Creación del Ministerio de Comercio Exterior y de la Promotora de Comercio Exterior de Costa Rica, Ley N° 7638 de fecha 30 de octubre de 1996; los artículos 1 y 5 de la Ley N° 9430 de fecha 04 de abril de 2017, Ley de Aprobación del Protocolo de Enmienda del Acuerdo de Marrakech por el que se establece la Organización Mundial del Comercio, hecho en Ginebra el 27 de noviembre de 2014, y su Anexo (Acuerdo sobre Facilitación del Comercio) y los artículos 8 párrafo 1 y 23 párrafo 2 de dicho Anexo;
+Considerando:
+I.-Que el inciso 2) del artículo 23 del Acuerdo sobre Facilitación del Comercio (AFC) de la Organización Mundial del Comercio (OMC) contempla la creación de un órgano nacional para facilitar la coordinación interna y la aplicación de las obligaciones adquiridas en dicho instrumento.
+II.-Que, en aplicación del artículo 23 del Acuerdo sobre Facilitación del Comercio de la OMC; el artículo 2 de la Ley N° 9430 de fecha 04 de abril de 2017, crea el Consejo Nacional de Facilitación del Comercio (CONAFAC) como un órgano colegiado adscrito al Ministerio de Comercio Exterior, con el propósito de constituirse en una instancia de decisión y coordinación interinstitucional permanente entre las instancias gubernamentales que tienen competencias relacionadas con los procedimientos de comercio exterior.
+III.-Que, con el objetivo de promover la participación ciudadana y diálogo local en materia de facilitación del comercio, el artículo 5 de la Ley N° 9430 de fecha 04 de abril de 2017 establece la creación de los Comités Locales de Facilitación del Comercio en cada uno de los puertos, aeropuertos y puestos fronterizos terrestres, en los que se realizan procedimientos de comercio exterior.
+IV.-Que, el Gobierno de Costa Rica, mediante Decreto Ejecutivo N° 40342-COMEX de fecha 04 de abril de 2017, procedió a ratificar el Protocolo de Enmienda del Acuerdo de Marrakech por el que se establece la OMC y su Anexo el AFC.
+V.-Que, el artículo número 2 del Decreto Ejecutivo N° 41123 de fecha 20 de marzo de 2018, establece la organización del CONAFAC, la cual incluye los Comités Locales de Facilitación del Comercio.
+VI.-Que, el artículo 35 bis inciso t del Decreto Ejecutivo N° 25270-H de fecha 14 de junio de 1996 delega en las Gerencias de las Aduanas respectivas la responsabilidad de "coordinar las actividades de la aduana con otras dependencias del Ministerio de Hacienda, el Sistema Aduanero Nacional y otras instituciones públicas y privadas, según corresponda".
+VII.-Que, corresponde al Poder Ejecutivo velar por el cumplimiento de las obligaciones derivadas de los tratados, acuerdos y demás instrumentos vigentes en materia de comercio exterior, resulta pertinente emitir el presente Reglamento que tiene por objeto regular los Comités Locales de Facilitación del Comercio, de conformidad con el artículo 5 de la Ley N° 9430 de fecha 04 de abril de 2017, denominada Ley de Aprobación del Protocolo de Enmienda del Acuerdo de Marrakech por el que establece la OMC, hecho en Ginebra el 27 de noviembre de 2014, y su Anexo, el AFC. Por tanto;
+Decretan:
+Reglamento de Organización y Funcionamiento
+de los Comités Locales de Facilitación del Comercio
+y Creación de la Figura del Coordinador
+de Frontera
+CAPÍTULO I
+Objeto y organización
+Artículo 1º-Objeto. El objeto de los Comités Locales de Facilitación del Comercio, en adelante los Comités, será constituir un canal para que las personas usuarias y funcionarios públicos intercambien opiniones y criterios, elaboren de manera constructiva propuestas de mejora respecto a los procedimientos de exportación, importación, tránsito de mercancías y tránsito de personas, y participen activamente en los procesos de implementación de disposiciones sobre facilitación del comercio en sus respectivas ubicaciones.

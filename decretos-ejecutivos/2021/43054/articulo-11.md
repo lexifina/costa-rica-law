@@ -1,0 +1,3 @@
+Artículo 11.-Vigencia de los nombramientos de los representantes de Ministerios y entes públicos. Los Directores Regionales o máximas autoridades de las carteras que conforman cada Comité, participarán en calidad de miembros con derecho a voz y voto, por el plazo que dure su nombramiento como Director Regional o máxima autoridad de la cartera o instancia administrativa en el puesto fronterizo.
+En el caso de sustitución del miembro, el Ministerio o ente público respectivo, deberá comunicarlo inmediatamente al Presidente del Comité, indicando la designación del nuevo representante que le sustituirá.
+Los miembros de los Comités ejercerán sus funciones ad honorem, por lo que no gozarán de dietas ni remuneraciones adicionales de ningún tipo por concepto de su participación.

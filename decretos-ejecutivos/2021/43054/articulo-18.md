@@ -1,0 +1,1 @@
+Artículo 18.-Asistencia. Para cada sesión se levantará un registro de asistencia de los miembros, en el que se consignará, al menos, su nombre completo, número de identificación, entidad u organización a la que pertenece y firma.
