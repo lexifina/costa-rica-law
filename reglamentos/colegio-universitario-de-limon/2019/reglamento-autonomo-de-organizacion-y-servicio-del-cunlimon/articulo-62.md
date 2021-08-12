@@ -1,7 +1,3 @@
-ARTICULO 62:
-Para la reducción de la jornada, así como para la rescisión del contrato laboral de un docente, se considerará los siguientes parámetros:
-1. Reducción total o parcial de la matrícula en un 30%.
-2. La no apertura de cursos
-3. La imposibilidad de reubicación del docente
-4. Evaluación del desempeño académico igual o inferior a “bueno”.
-5. Antigüedad en la Institución con una ponderación del 30%
+Artículo 62.-Cuando resulte ineludible la cesación del servidor docente, por la no apertura de cursos, disminución de la matrícula, cierre de la carrera y después de haber agotado toda posibilidad de reubicación según el perfil de los cursos, área o especialidad del docente o desempeño de funciones en acción social, cursos libres, investigación, elaboración de proyectos didácticos y académicos, el CUNLIMÓN, en el evento que el funcionario tenga derecho a ello, procederá al pago de una indemnización de acuerdo con el tiempo efectivo de servicio prestado y de la jornada académica asignada en cada nombramiento.
+En todos los casos, la rescisión o cesación de la prestación del servicio del docente será comunicado por los coordinadores de carrera y avalado por la Dirección Académica, a la Unidad de Recursos Humanos.
+(Así reformado mediante sesión Ordinaria Nº 16-2021 del 12 agosto 2021)

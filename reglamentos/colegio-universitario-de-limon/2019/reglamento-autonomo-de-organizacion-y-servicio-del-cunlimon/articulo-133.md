@@ -1,4 +1,3 @@
-ARTÍCULO 133:
-El horario ordinario de servicio y atención al público es el siguiente: De lunes a viernes de las 8:00 horas a las 17:00 horas.
-Sin embargo cuando existan circunstancias especiales debidamente determinadas por la Decanatura, dicho horario podrá ser variado, adecuándose a la necesidad institucional.
-El personal docente y docente-administrativo estarán sujetos a los horarios académicos que se determinen.
+Artículo 133.-El horario ordinario de servicio y atención al público es el siguiente: De lunes a viernes de las 8:00 horas a las 17:00 horas.
+Sin embargo, cuando existan circunstancias especiales debidamente determinadas por la Decanatura, dicho horario podrá ser variado, adecuándose a la necesidad institucional. El personal docente, los coordinadores de carrera y programas, estarán sujetos a los horarios académicos que sean determinados por la Dirección Académica y la Dirección de Educación Comunitaria y Asistencia Técnica.
+(Así reformado mediante sesión Ordinaria Nº 16-2021 del 12 agosto 2021)

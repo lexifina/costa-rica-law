@@ -1,2 +1,6 @@
-ARTICULO 61:
-Cuando resulte ineludible el reajuste en la jornada de un docente, por la no apertura de cursos, disminución de la matrícula y después de haber agotado toda posibilidad de reubicación según el perfil de los cursos, área o especialidad del docente o desempeño de funciones en acción social, cursos libres, investigación, elaboración de proyectos didácticos y académicos, el CUNLIMÓN, en el evento que el funcionario tenga derecho a ello, procederá al pago de una indemnización de acuerdo con el monto que se reduce correspondiente a la disminución de jornada, salvo que el servidor opte por retirarse de la institución con pago de las sumas que corresponda con arreglo a lo establecido en la normativa que regula la materia.
+Artículo 61.-Para la reducción de la jornada, así como para la rescisión del contrato laboral de un docente, se considerará además de lo expuesto en los artículos 87 y 88 del Régimen Académico, los siguientes parámetros:
+1. Reducción total o parcial de la matrícula en un 30%.
+2. La no apertura de cursos.
+3. La imposibilidad de reubicación del docente
+4. Evaluación del desempeño académico igual o inferior a "bueno" en dos periodos lectivos cuatrimestrales consecutivos.
+(Así reformado mediante sesión Ordinaria Nº 16-2021 del 12 agosto 2021)

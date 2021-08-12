@@ -1,2 +1,3 @@
-ARTÍCULO 94:
-El período comprendido entre el tercer sábado de diciembre y el primer lunes de enero del año siguiente, la Semana Santa, y la primera semana de julio, el CUNLIMÓN permanecerá cerrado por receso. Durante estos períodos sus servidores disfrutarán de vacaciones. En todos los casos, el saldo que pudiere quedar pendiente a disfrutar de vacaciones deberá ser disfrutado a la última fracción disfrutada.
+Artículo 94.-El período comprendido entre el tercer sábado de diciembre y el primer lunes de enero del año siguiente y la Semana Santa, el CUNLIMÓN permanecerá cerrado por receso. Durante estos períodos sus servidores disfrutarán de vacaciones.
+Los días de goce del receso, serán rebajadas del saldo de días de vacaciones disponible de los servidores.
+(Así reformado mediante sesión Ordinaria Nº 16-2021 del 12 agosto 2021)

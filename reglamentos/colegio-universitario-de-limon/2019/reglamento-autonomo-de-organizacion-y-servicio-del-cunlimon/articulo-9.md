@@ -1,7 +1,6 @@
 CAPITULO II
 DEFINICIONES
-ARTÍCULO 9:
-Para la correcta interpretación de este Reglamento, se definen los siguientes términos:
+Artículo 9º-Para la correcta interpretación de este Reglamento, se definen los siguientes términos:
 - Administración: Proceso responsable que define los fines que una organización y sus componentes deben esforzarse en conseguir, que establece amplios programas bajo los que debe actuarse y ofrece una visión general de la efectividad en la consecución de los objetivos buscados.
 - Ascenso: Promoción a un puesto de categoría superior.
 - Asignación: El acto mediante el cual se ubica una plaza nueva en la clase correspondiente.
@@ -11,24 +10,27 @@ Para la correcta interpretación de este Reglamento, se definen los siguientes t
 - Clasificación de puestos: Sistema por medio del cual se analizan, evalúan y ordenan en forma sistemática los diferentes tipos de tareas que se realizan en la Institución, considerando entre otros, factores tales como: deberes y obligaciones, naturaleza de éstos, grado de dificultad, preparación académica, conocimientos de otra índole, experiencia, habilidades y destrezas que deben poseer los candidatos al empleo.
 - Concurso: Procedimiento de selección de personal que garantiza la participación amplia y la valoración adecuada de los candidatos, con la finalidad de llenar plazas vacantes. Estos pueden ser internos o externos.
 - Consejo: Consejo Directivo del Colegio Universitario de Limón.
+- Coordinador: Servidor encargado de apoyar a los estudiantes para integrar de la mejor forma posible el programa personal de estudio, atendiendo las necesidades académico-administrativas del estudiante y relativas al diplomado.
 - Expediente Personal: Conjunto de todos los documentos correspondientes a un funcionario.
-- Funcionario administrativo: Aquel que realiza funciones administrativas y técnicas.
-- Funcionario docente y docente administrativo: Aquel que realiza funciones propias de la docencia, investigación, acción social, asistencia académica o coordinación de las Carreras, según el tipo de nombramiento, podrán ser contratados por periodos mensuales, cuatrimestrales e inclusive anuales.
+- Funcionario Administrativo: Aquel que realiza funciones administrativas y técnicas.
+- Funcionario Docente: Aquel que realiza funciones propias de la docencia, investigación, acción social, asistencia académica, según el tipo de nombramiento, podrán ser contratados por periodos mensuales, cuatrimestrales e inclusive anuales.
 - INS: Instituto Nacional de Seguros.
-- Inopia comprobada: Condición particular de un recurso humano que sin poseer el requisito académico para un puesto, por su experiencia y capacitación recibida califica para poder ser nombrado en el mismo. Debe surgir en un concurso externo, debidamente publicado que compruebe la inopia de que no existan candidatos calificados académicamente, es decir, es una situación espontánea en la fase de selección.
+- Inopia comprobada: Condición particular de un recurso humano que, sin poseer el requisito académico para un puesto, por su experiencia y capacitación recibida califica para poder ser nombrado en el mismo. Debe surgir en un concurso externo, debidamente publicado que compruebe la inopia de que no existan candidatos calificados académicamente, es decir, es una situación espontánea en la fase de selección.
 - Investigación: Serie de procedimientos que se llevan a cabo con el fin de alcanzar nuevos conocimientos fehacientes sobre un hecho o fenómeno que, una vez encontrados nos puedan ayudar a establecer conclusiones y soluciones a circunstancias causadas por ellos.
 - Jefatura: Parte de la estructura lógico formal de la organización que integra bajo una autoridad formal ciertos elementos y sujetos.
+- Jornada académica: constituida por el número de horas obligatorias que el docente tiene que cubrir en un plazo determinado por el nombramiento efectuado.
+- Jornada laboral: constituida por el número de horas obligatorias que los funcionarios administrativos, coordinadores de carrera, programas y Sedes tienen que cubrir en un plazo determinado.
 - Licencias: Permiso con o sin goce de salario.
-- Manual Descriptivo de Puestos: Ordena los procesos de trabajo, en que participan los diferentes puestos de la organización.
+- Manual Descriptivo de Puestos: Documento que ordena los procesos de trabajo, en que participan los diferentes puestos de la organización.
 - Patrono: El Colegio Universitario de Limón, en su condición de empleador de los servicios de los funcionarios.
-- Preparación equivalente: Mecanismo que permite acceder a concurso, capacitación de personal o ascenso cuando proceda, a aquellos candidatos que sin haber hecho los cursos específicos requeridos en el Manual de Puestos, hubieren aprobado otros estudios equivalentes. Lo anterior no será aplicable en casos de puestos que deban ser ocupados por funcionarios con grado profesional.
+- Preparación equivalente: Mecanismo que permite acceder a concurso, capacitación de personal o ascenso cuando proceda, a aquellos candidatos que, sin haber hecho los cursos específicos requeridos en el Manual de Puestos, hubieren aprobado otros estudios equivalentes. Lo anterior no será aplicable en casos de puestos que deban ser ocupados por funcionarios con grado profesional.
 - Prontuario: Documento que registra las incidencias de la relación de servicio de cada uno de los funcionarios del CUNLIMÓN.
 - Puesto: Conjunto de requisitos, deberes y responsabilidades asignados por una autoridad competente para que sean ejercidas por un funcionario, durante la totalidad o una parte de la jornada de trabajo.
 - Reasignación de puesto: Cambio en la clasificación de un puesto que conlleva a un nivel salarial mayor, menor o igual, con motivo de haber experimentado una variación sustancial y permanentemente en sus tareas y niveles de responsabilidad.
-- Régimen de empleo público: Está constituido por el conjunto de disposiciones normativas y de principios jurídicos y morales, que regulan la actividad de quienes “prestan servicios a la Administración o a nombre y por cuenta de ésta, como parte de su organización”
+- Régimen de empleo público: Está constituido por el conjunto de disposiciones normativas y de principios jurídicos y morales, que regulan la actividad de quienes "prestan servicios a la Administración o a nombre y por cuenta de ésta, como parte de su organización"
 - Régimen de Carrera Administrativa: Es el estatus o condición laboral al que tienen derecho los funcionarios administrativos, y que permite el ascenso desde los cargos de menor nivel hasta los de más alta jerarquía, por el sistema de méritos, usualmente orientado hacia la profesionalización que hace un servidor de su empleo público.
-- Régimen de Carrera Docente: Es el estatus o condición laboral al que acceden aquellos docentes que por su tipo de nombramiento, desempeño, trayectoria y años de servicio, son considerados por el CUNLIMÓN, como fundamentales para el logro de sus objetivos primarios, en materia de docencia. Tal Calificación estará a cargo de una comisión evaluadora conformada por el Director(a) Académico (a), el Coordinador de Carrera que corresponda, la Unidad de Recursos Humanos y el Decano.
-- Reglamento: Reglamento Autónomo de Organización y Servicio.
+- Régimen de Carrera Docente: Es el estatus o condición laboral al que acceden aquellos docentes que, por su tipo de nombramiento, desempeño, trayectoria y años de servicio, son considerados por el CUNLIMÓN, como fundamentales para el logro de sus objetivos primarios, en materia de docencia. Tal Calificación estará a cargo de una comisión evaluadora conformada por el Director(a) Académico (a), el Coordinador de Carrera que corresponda, la Unidad de Recursos Humanos y el Decano.
+- Reglamento: Reglamento Autónomo de Organización y Servicio del CUNLIMÓN. (R.A.O.S.)
 - Relación de servicio: El conjunto de deberes, derechos, atribuciones, funciones y tareas que corresponden al servidor o funcionario, en relación con la institución y los administrados, de acuerdo con el ordenamiento jurídico y en virtud de un acto válido y eficaz de nombramiento.
 - Representante patronal: El Decano y aquellas personas autorizadas para ejercer dentro del CUNLIMÓN funciones de dirección, de administración o de ambos géneros.
 - Requisitos: Cúmulo de estudios académicos, conocimientos, habilidades, experiencia, capacitación o su equivalente y adiestramiento necesario para el adecuado desempeño del servicio, que deben poseer los candidatos según requerimientos del manual de puestos.
@@ -37,8 +39,9 @@ Para la correcta interpretación de este Reglamento, se definen los siguientes t
 - Salario: Remuneración periódica que se otorga por el desempeño de un cargo para que se ejerza con el interés, cuidado, esmero y forma que éste requiera, durante una jornada diaria de 8 horas.
 - Superior jerárquico: El superior inmediato.
 - Servidor: Toda persona física que a cambio de una remuneración y en virtud de un acto válido y eficaz de nombramiento, presta sus servicios materiales, intelectuales o de ambos géneros en forma personal y subordinada al CUNLIMÓN.
-- Tiempo docente: Unidad de pago equivalente a horas labores de los docentes y docentes – administrativos de acuerdo a la carga académica docente.
-- Traslado: Paso de un servidor de un puesto a otro de la misma categoría.
+- Tiempo docente: Unidad de pago equivalente a horas labores de los docentes de acuerdo a la carga académica docente.
+- Traslado: Traslado de un servidor de un puesto a otro de la misma categoría.
 - Unidad de Recursos Humanos: La unidad administrativa encargada de la administración de los Recursos Humanos de la Institución.
 - Vacante: Plaza que no posee titular.
 - Valoración: Proceso mediante el cual se asignan remuneraciones a las clases de puestos, tomando en consideración: estudio de los niveles o grados de dificultad, responsabilidad y variedad de las tareas, requisitos mínimos, índices de costo de vida, encuestas de salarios y otros elementos de juicio de uso condicionado.
+(Así reformado mediante sesión Ordinaria Nº 16-2021 del 12 agosto 2021)

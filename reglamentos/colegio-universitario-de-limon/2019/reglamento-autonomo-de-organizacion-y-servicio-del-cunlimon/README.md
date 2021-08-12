@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio del CUNLIMÓN
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-30 | la propia norma |
+| 2 | 2021-08-12 | Reglamento 16 (2021-08-12) |
