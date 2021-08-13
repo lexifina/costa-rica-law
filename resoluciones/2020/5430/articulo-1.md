@@ -1,6 +1,5 @@
-(Derogado)
 MINISTERIO DE SALUD
-(Esta norma se dejó sin efecto por resolución N° MS-DM-RM-3772-2021 del 6 de agosto de 2021)
+(Mediante resolución N° MS-DM-RM-3805-2021 del 13 de agosto de 2021, se acordó ratificar y confirmar la vigencia de la presente norma)
 N° DM-RM-5430-2020
 San José a los veintiocho días del mes de agosto de dos mil veinte.
 DISPOSICIONES ADMINISTRATIVAS RELATIVAS A LA RECONVERSION TEMPORAL DE LAS
