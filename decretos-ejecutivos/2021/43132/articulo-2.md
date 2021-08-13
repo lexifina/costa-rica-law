@@ -1,0 +1,1 @@
+Artículo 2º-Naturaleza. El Salón Nacional de Artes Visuales es un certamen abocado a la divulgación y el estímulo de las artes visuales costarricenses actuales, que tiene como fin fomentar y divulgar la creación artística producida en el país.

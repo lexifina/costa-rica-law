@@ -1,0 +1,1 @@
+Artículo 16.-Monto de los premios. Cada una de las tres categorías premiadas tendrá una dotación cuyo monto será establecido anualmente por la Junta Administrativa del Museo, bajo una recomendación de la Dirección. Este monto será comunicado en la convocatoria que realice la institución.

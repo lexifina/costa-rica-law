@@ -1,0 +1,1 @@
+Artículo 22.-De la formalización del pago de los premios. El Museo de Arte Costarricense efectuará el pago de los premios a los laureados por el jurado, en un plazo máximo de 60 días naturales siguientes al cierre de la exposición.

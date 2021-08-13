@@ -1,0 +1,1 @@
+Artículo 12.-Obligación de abstención. Todo miembro del jurado deberá abstenerse de revisar y emitir criterio o votación respecto de postulaciones presentadas por personas relacionadas por consanguinidad o afinidad, hasta el tercer grado, con dicho miembro del jurado.

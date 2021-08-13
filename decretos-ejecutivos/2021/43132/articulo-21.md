@@ -1,0 +1,2 @@
+Artículo 21.-Declaratorias de premios desiertos. Los premios del Salón Nacional de Artes Visuales podrán declararse desiertos, cuando a juicio del respectivo jurado las propuestas presentadas no cumplan técnica ni artísticamente con los requerimientos del certamen.
+El acta que así lo declare, emitida por el jurado, deberá cumplir con las mismas formalidades establecidas para el fallo que lo otorga. La decisión del jurado sobre los premios desiertos será inapelable.

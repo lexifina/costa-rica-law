@@ -1,0 +1,1 @@
+Artículo 19.-Calendario. El Museo de Arte Costarricense comunicará oportunamente a la ciudadanía el calendario de recepción de propuestas, revisión de jurado, montaje, exposición, premiación y desmontaje, condiciones que se publicarán en el sitio web oficial del Ministerio de Cultura y Juventud, www.mcj.go.cr.
