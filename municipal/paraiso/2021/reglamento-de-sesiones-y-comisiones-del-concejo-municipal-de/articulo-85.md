@@ -1,0 +1,1 @@
+Artículo 85.-En el capítulo de iniciativas de los miembros del Concejo, éstos presentarán las mociones y proposiciones por escrito y firmadas. El secretario anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación, salvo cuando se trate de mociones de orden.

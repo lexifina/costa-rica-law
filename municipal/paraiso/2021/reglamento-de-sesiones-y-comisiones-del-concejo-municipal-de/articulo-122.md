@@ -1,0 +1,1 @@
+Artículo 122.-Las Comisiones atenderán al público que lo solicite en sus sesiones regulares cuando estas estén relacionadas con asuntos encomendados a la comisión respectiva, previa audiencia solicitada a la secretaría del Concejo.

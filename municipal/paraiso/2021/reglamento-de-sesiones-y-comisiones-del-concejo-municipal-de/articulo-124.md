@@ -1,0 +1,1 @@
+Artículo 124.-Queda facultada la Presidencia del Concejo Municipal por sí o a solicitud de uno o más regidores por fuerza mayor u otro motivo a reestructurar las Comisiones de trabajo cuando así se amerite.

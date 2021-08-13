@@ -1,0 +1,1 @@
+Artículo 42.-Cuando al Concejo Municipal se presenten proyectos que ameriten su amplia discusión cada miembro del Concejo podrá hacer uso de la palabra hasta por diez minutos por la forma y otros diez por el fondo, en lo cual se conocerán los asuntos de forma en la sesión en que fue presentado y los de fondo en la sesión siguiente.

@@ -1,0 +1,1 @@
+Artículo 17.-Los gastos correspondientes a viáticos para los miembros del Concejo serán reconocidos con forme a la tabla que publica la Contraloría General de la República; el control correrá por la cuenta del presidente del concejo, quien informará al Concejo de lo actuado en el pago de los viáticos a los regidores municipales.

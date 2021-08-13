@@ -1,0 +1,1 @@
+Artículo 74.-Con la intervención de los munícipes, el secretario (a) del Concejo tomará nota de lo expuesto, quedando facultado la presidencia para trasladar el asunto en exposición a la comisión competente o a la Alcaldía Municipal.

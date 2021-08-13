@@ -1,0 +1,1 @@
+Artículo 94.-Contra el acta que presente omisiones, errores o modificaciones respecto a lo ocurrido en la sesión anterior a la que se remonta los regidores interesados procederán a manifestar las razones, aclaraciones, enmiendas o adiciones que estime necesarias, las que serán consignadas por el secretario al pie del acta.

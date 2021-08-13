@@ -1,0 +1,1 @@
+Artículo 67.-La Secretaría del Concejo remitirá al presidente en orden de presentación las solicitudes de audiencia para su respectiva respuesta, notificará oportunamente a los interesados las invitaciones a las audiencias que acuerde el Concejo.

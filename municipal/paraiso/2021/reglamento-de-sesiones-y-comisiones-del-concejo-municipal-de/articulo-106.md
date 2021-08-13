@@ -1,0 +1,1 @@
+Artículo 106.-Las comisiones permanentes deberán estar integradas por tres o cinco miembros, los cuales todos deberán ser regidores propietarios, el presidente podrá reestructurarlas por ausencia de alguno de sus miembros.

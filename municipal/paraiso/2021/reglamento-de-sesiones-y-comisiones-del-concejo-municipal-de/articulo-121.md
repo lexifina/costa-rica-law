@@ -1,0 +1,1 @@
+Artículo 121.-Las Comisiones solo atenderán aquellos asuntos que expresamente se señalan en el artículo 115 de este reglamento, o bien que la presidencia o el Concejo Municipal por medio de acuerdo le asigne.

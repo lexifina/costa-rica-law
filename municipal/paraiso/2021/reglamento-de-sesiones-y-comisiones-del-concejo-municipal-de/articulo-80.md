@@ -1,0 +1,1 @@
+Artículo 80.-Las mociones y proposiciones deberán ser interpuestas por un regidor, el alcalde o acogidas por un regidor propietario cuando la misma provenga de una persona ajena al Concejo o de los síndicos.

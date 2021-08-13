@@ -1,0 +1,1 @@
+Artículo 13.-Podrán celebrarse sesiones extraordinarias fuera de la sede de la Municipalidad, cuando así lo acuerde el Concejo por ameritarse el traslado al sitio acordado y para tratar sobre asuntos propios del lugar donde se citó la sesión.

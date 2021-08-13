@@ -1,0 +1,1 @@
+Artículo 104.-Existirán dos tipos de Comisiones de Trabajo: las Permanentes y las Especiales, estas últimas son creadas para la atención de asuntos específicos de interés comunal o propios de la Municipalidad; es potestad del presidente nombrar a sus integrantes.

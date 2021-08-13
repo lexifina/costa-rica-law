@@ -1,0 +1,1 @@
+Artículo 40.-Todos los oradores podrán hacer uso de la palabra en los asuntos en discusión hasta por tres minutos, el orador administrará su tiempo como considere pertinente, podrá reservar parte de su tiempo para hacer uso de la palabra luego o cederlo a otro miembro del Concejo.

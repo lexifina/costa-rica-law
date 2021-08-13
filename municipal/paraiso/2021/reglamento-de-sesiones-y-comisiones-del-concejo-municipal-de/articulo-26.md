@@ -1,0 +1,1 @@
+Artículo 26.-Las sesiones se cerrarán cuando se hayan conocido todos los asuntos expuestos en el orden del día o bien cuando por moción razonada de los señores regidores se acuerde posponer los asuntos a tratar en el orden día.

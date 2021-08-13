@@ -1,0 +1,1 @@
+Artículo 12.-La convocatoria a sesiones extraordinarias deberán hacerse mediante convocatoria realizada en sesión anterior, o mediante notificación personal que se hará al concejal, en forma escrita, o por cualquier medio electrónico (correo, fax) que le merezca fe al Concejo Municipal, en apego a lo dispuesto por la Ley de Citaciones y Notificaciones Nº 7637.

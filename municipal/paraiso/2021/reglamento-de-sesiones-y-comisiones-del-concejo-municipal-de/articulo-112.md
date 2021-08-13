@@ -1,0 +1,1 @@
+Artículo 112.-El Concejo Municipal podrá pasar los dictámenes de Comisión a conocimiento de otra comisión, o alguna designada especialmente por la presidencia, para que se pronuncie sobre un caso en concreto.
