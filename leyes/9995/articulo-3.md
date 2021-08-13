@@ -1,0 +1,1 @@
+ARTÍCULO 3- El gobierno local del cantón de Limón no podrá variar el destino del inmueble señalado en el artículo 2 y deberá habilitarlo para el cumplimiento de esos fines educativos, recreativos, deportivos y urbanísticos, dentro de los tres años siguientes al efectivo traspaso al dominio público municipal.

@@ -1,0 +1,1 @@
+ARTÍCULO 7- La Municipalidad de Limón deberá habilitar una calle pública, en el terreno donado, que comunique la calle 3 de la ciudad desde la bomba de combustible "Danny Hayling" con la calle 7 del barrio Roosevelth (Jamaica Town), debiendo ser esta del mismo ancho de la calle 3.
