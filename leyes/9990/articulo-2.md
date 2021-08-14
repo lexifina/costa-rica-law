@@ -1,0 +1,2 @@
+ARTÍCULO 2- Se comisiona a la Notaría del Estado para que realice la formalización de la correspondiente escritura pública de traspaso y se autoriza a la Procuraduría General de la República para que enmiende los errores o defectos que eventualmente pueda señalar el Registro Público.
+Dado en la Presidencia de la República, San José, a los veinticinco días del mes de junio del año dos mil veintiuno.
