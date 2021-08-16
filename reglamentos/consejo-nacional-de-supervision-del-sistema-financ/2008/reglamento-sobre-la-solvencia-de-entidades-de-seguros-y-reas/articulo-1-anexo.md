@@ -1,34 +1,98 @@
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó derogar el anexo PT-1. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de dicha fecha se hará la respectiva derogación.)
-ANEXO PT-1
+(*)Anexo A-1
+Clasificación de Seguros de Caución
+Para efectos del régimen de solvencia establecido en este Reglamento los seguros del ramo de Caución se clasifican de la siguiente forma:
+1. Seguros de cauciones de fidelidad: serán aquellos seguros que garanticen el cumplimiento de obligaciones de actos de fidelidad de empleados o de terceros. Para estos efectos se entenderá que son seguros de fidelidad aquellos que cubren la reparación del daño ocasionado por un empleado o terceros al cometer un delito patrimonial en contra de los bienes del beneficiario o de los que éste sea jurídicamente responsable.
+2. Seguros de cauciones judiciales: serán aquellos seguros que garanticen el cumplimiento de obligaciones impuestas por resoluciones judiciales.
+3. Seguros de cauciones de crédito: serán aquellos seguros que cubran la obligación de pago de productos, bienes, servicios, arrendamiento financiero, factoraje, suministrados por el tomador al asegurado, de acuerdo con el contrato privado celebrado entre ambos.
+4. Seguros de cauciones financieras: serán aquellos seguros que cubran las obligaciones financieras asociadas a cualquier tipo de préstamo, préstamo personal o facilidad de arrendamiento, emitida por una entidad bancaria o de crédito, una institución financiera o un financiador, o emitida o ejecutada a favor de cualquier persona natural o jurídica para el pago o reembolso del dinero prestado o de cualquier transacción o disposición contractual, cuyo principal objeto sea conseguir financiamiento o garantizar cantidades debidas por dinero prestado.
+5. Seguros de cauciones administrativas: serán aquellos seguros que garanticen el cumplimiento de obligaciones consistentes en la realización de obras, servicios, y proveeduría, que consistan en algunas de las siguientes obligaciones:
+a. La seriedad y vigencia de la oferta que se presenta, en caso de resultar ganador y se le adjudique el contrato para obra o servicios.
+b. El cumplimiento de las obligaciones estipuladas en un contrato, consistentes en la correcta ejecución y oportuna entrega de una obra o servicio.
+c. El buen uso y la correcta aplicación del anticipo u adelanto o en su defecto la devolución total o parcial del monto por dicho concepto que el asegurado le entrega al tomador, para realizar la ejecución de las obligaciones estipuladas en un contrato de obra o servicios.
+d. La reparación de los defectos o vicios ocultos en las obras o servicios dados por el tomador en un contrato.
+e. El pago de las indemnizaciones y/o penas convencionales que se deriven del incumplimiento de las obligaciones que se estipulan en un contrato de obra o servicio.
+f. El cumplimiento de pago de las obligaciones fiscales que resulten a cargo del tomador.
+g. El pago oportuno de las rentas por el periodo determinado en el contrato de arrendamiento o en la póliza de seguro respectiva.
+h. Las posibles responsabilidades administrativas que pudieran resultar en el desempeño de la función de agentes aduanales, notarios, corredores, o personas que desempeñen funciones con responsabilidades similares.
+i. Garantiza que los premios de sorteos o rifas sean otorgados conforme a las bases establecidas.
+j. La obligación de destinar el predio al uso de suelo conforme la autoridad lo haya establecido.
+k. Obligación del cumplimiento de las responsabilidades establecidas al tomador por la autoridad correspondiente, en licencias sanitarias, permisos, concesiones, u otras obligaciones similares.
+6. Seguros de caución con coberturas contratadas a primera pérdida: serán aquellos seguros de caución en que la suma asegurada contratada no está basada en el valor de los bienes, sino en el valor esperado de las pérdidas que pueden ocurrir en el periodo de vigencia y la prima de riesgo corresponde a una estimación de esas pérdidas. Si alguno de los seguros de caución mencionados anteriormente tiene esta característica, para los efectos de solvencia, se debe clasificar en esta categoría.
+(*) (Así adicionado el anexo A-1 anterior en sesión N° 1681 del 16 de agosto de 2021)
+(*)ANEXO PT-1
 PROVISIÓN PARA PRIMA NO DEVENGADA (PPND)
-La provisión de prima no devengada se calculará póliza a póliza de la siguiente forma:
-A) Base de cálculo
-La base de cálculo de esta provisión será la prima comercial deducida, en su caso, el recargo de seguridad. Esta prima debe corresponder al periodo de aseguramiento, desde la entrada en vigor de la póliza hasta su vencimiento, independientemente de su forma de pago. A la prima resultante de aplicar las deducciones indicadas, se le denominará "prima base" (Pb).
+I. Todos los seguros excepto los seguros de caución
+La provisión de prima no devengada, se calculará póliza a póliza de la siguiente forma:
+(.)
+II. Seguros de caución
+A. Provisión de Seguro directo
+En el caso del seguro directo, la provisión para primas no devengadas de los seguros de caución debe constituirse como la suma de la mejor estimación de las obligaciones futuras derivadas del riesgo cubierto de los seguros de caución (𝐵𝐸𝐿𝑅𝑖𝑒𝑠𝑔𝑜,𝑡), la mejor estimación de los costos correspondientes a las obligaciones futuras por concepto de gastos de administración y demás gastos de adjudicación y recuperación de pagos (𝐵𝐸𝐿𝐺𝑎𝑠𝑡𝑜𝑠,𝑡) y el margen de riesgo (MR) correspondiente al costo de capital regulatorio de los seguros de caución:
+𝑃𝑃𝑁𝐷 𝑡 = 𝐵𝐸𝐿𝑅𝑖𝑒𝑠𝑔𝑜,𝑡 + 𝐵𝐸𝐿𝐺𝑎𝑠𝑡𝑜𝑠,𝑡 + 𝑀𝑅
+La mejor estimación correspondiente a las obligaciones futuras derivadas del riesgo cubierto de los seguros de caución, deberá calcularse, póliza por póliza, para cada una de las pólizas que se encuentren en el momento de vigencia t, como el producto de la suma asegurada (SA), por el factor 𝐹𝐵𝐸𝐿𝑅,𝑘 del tipo de caución 𝑘, de acuerdo a la clasificación que se presenta en el Anexo A-1 de este Reglamento y el factor de devengamiento 𝐹𝐷𝑅𝑖𝑒𝑠𝑔𝑜,𝑡:
+𝐵𝐸𝐿𝑅𝑖𝑒𝑠𝑔𝑜,𝑡 = 𝑆𝐴 ? 𝐹𝐵𝐸𝐿𝑅,𝑘 ? 𝐹𝐷𝑅𝑖𝑒𝑠𝑔𝑜,𝑡
+La suma asegurada es el monto máximo de responsabilidad que tiene la compañía en el pago de reclamaciones.
+Los parámetros a utilizar dependen del tipo de caución (k), conforme se indica en la siguiente tabla:
+Tipo de caución (*) | ��𝐸𝐿_𝑅 | ��𝐸𝐿_𝐺
+Coberturas de seguros de caución contratadas a primera pérdida | 91,78% | 0,83%
+Cauciones Financieras | 91,78% | 0,83%
+Coberturas de fidelidad | 1,62% | 0,83%
+Cauciones judiciales | 0,80% | 0,21%
+Cauciones administrativas | 0,22% | 0,10%
+Cauciones de crédito | 0,88% | 0,27%
+(*) Según clasificación incluida en el Anexo A-1 de este Reglamento.
+El factor de devengamiento 𝐹𝐷𝑅𝑖𝑒𝑠𝑔𝑜,𝑡 , se determinará conforme al siguiente criterio:
+1. En el caso de seguros de caución que consistan en cubrir el riesgo de incumplimiento relacionado con obras o servicios cuya temporalidad sea superior a un año, en donde se observe que el riesgo y las reclamaciones se concentrarán al final de la vigencia de las pólizas, el factor de devengamiento en el momento de vigencia 𝑡, será:
 [imagen]
 Donde:
-PC= Prima comercial.
-Rs= Recargo de seguridad.
-B) Metodología
-La provisión para prima no devengada debe reconocerse al momento de inicio de la cobertura del riesgo. La provisión de prima no devengada se constituirá con la proporción de la prima base que corresponde al período comprendido entre la fecha del cierre y la fecha del vencimiento del período de aseguramiento.
-Si la distribución de la siniestralidad es uniforme a lo largo del periodo, la proporción de prima imputable se calculará a prorrata, de los días que faltan por transcurrir, desde la fecha de cierre del ejercicio actual hasta el vencimiento del contrato. La fórmula que se utilizará para el cálculo de esta provisión es la siguiente:
+𝑇: Número de días de vigencia total de la póliza.
+𝑡: Número de días transcurridos desde la fecha de inicio de vigencia de la póliza hasta la fecha de valuación de la provisión.
+𝑃: Número de días de prórroga que, en su caso, se haya solicitado en la póliza de que se trate.
+2. En el caso de seguros de caución que cubran obligaciones que son susceptibles de generar reclamaciones en cualquier momento a lo largo del tiempo de cobertura de la póliza con la misma probabilidad, el factor de devengamiento deberá ser:
 [imagen]
 Donde:
-PPND = Provisión de prima no devengada.
-Pb = Prima base definida en el inciso A de este anexo.
-T = Número de días de vigencia total de la póliza.
-dt = Número de días transcurridos desde la fecha de inicio de la vigencia de la póliza hasta la fecha del cierre.
-En caso de que la entidad considere que la distribución del riesgo no se comporta de manera uniforme durante el periodo de vigencia o que esta metodología pudiere no ser apropiada para un producto específico, la entidad puede proponer y justificar una metodología alternativa, la cual debe registrar ante la Superintendencia , ya sea durante el proceso de registro del producto o posterior al registro.
-C) Otros aspectos a considerar
-Primas cedidas
-En lo que se refiere a las primas cedidas en reaseguro, la entidad debe revelar el monto correspondiente a la participación del reasegurador en esta provisión, en la cuenta de activo que corresponda, según el manual de cuentas. La metodología de constitución y reconocimiento de este activo debe ser consistente con la de la provisión de primas no devengadas (PPND).
-Primas fraccionadas
-En caso de que la forma de pago de la prima de la póliza se realice de forma fraccionada, la entidad debe revelar las primas por cobrar en la cuenta de activo que corresponda.
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó derogar el anexo PT-2. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de dicha fecha se hará la respectiva derogación.)
+𝑇: Número de días de vigencia total de la póliza.
+𝑡: Número de días transcurridos desde la fecha de inicio de vigencia de la póliza hasta la fecha de valuación de la provisión.
+En el caso de las cauciones financieras y cuando la entidad disponga de información histórica de seis años y debidamente documentada sobre la recuperación de contragarantías, podrá descontar del cálculo del BEL de riesgo un porcentaje equivalente al índice de recuperación de pagos 𝐼𝑅𝐺 de la siguiente manera:
+𝐵𝐸𝐿𝑅𝑖𝑒𝑠𝑔𝑜,𝑡 = 𝑆𝐴 ? 𝐹𝐵𝐸𝐿𝑅,𝑘 ? (1 ? 𝐼𝑅𝐺 ) ? 𝐹𝐷𝑅𝑖𝑒𝑠𝑔𝑜,𝑡
+Se calculará el índice de recuperaciones retenidas, como el promedio de los índices que resulten de dividir, para cada año i, el monto total de las recuperaciones, registradas proveniente del año de origen i (𝑅𝐺𝑖) entre el monto de reclamaciones registradas del año de origen i, es decir:
+[imagen]
+Donde:
+N: 6 años, contados desde la fecha más reciente respecto de la fecha de cálculo.
+𝑅𝐺𝑇𝑖 : monto de las recuperaciones retenidas registradas provenientes año de origen i, entendiendo como año de origen, el año en el cual fue pagada la reclamación de la cual proviene dicha recuperación. En este caso las
+recuperaciones deben corresponder a la recuperación en efectivo de las contragarantías ejecutadas a favor de la aseguradora, no se deben contabilizar los bienes adjudicados por la entidad. Para estos efectos, la entidad debe mantener respaldo documental de la recuperación y esto estar a disposición de la Superintendencia.
+𝑅𝑃𝑇𝑖: monto de las reclamaciones retenidas ya pagadas, por año de origen i, entendiendo como año de origen, el año calendario en el que fue pagada la reclamación.
+La mejor estimación correspondiente a las obligaciones futuras por concepto de gastos de administración y demás gastos de adjudicación y recuperación de pagos, para cada póliza que se encuentre en el momento de vigencia 𝑡, deberá calcularse como el producto de la suma asegurada (SA), por el factor 𝐹𝐵𝐸𝐿_𝐺 y el factor de devengamiento 𝐹𝐷𝐺𝐴,𝑡:
+𝐵𝐸𝐿𝐺𝑎𝑠𝑡𝑜𝑠,𝑡 = 𝑆𝐴 ? 𝐹𝐵𝐸𝐿𝐺,𝑘 ? 𝐹𝐷𝐺𝐴,𝑡
+El factor 𝐹𝐷𝐺𝐴,𝑡 para el cálculo de la mejor estimación de los gastos de administración futuros, deberá calcularse, para una póliza de vigencia 𝑇, que se encuentra en su día de vigencia 𝑡, de la siguiente forma:
+[imagen]
+Donde:
+𝑇: Número de días de vigencia total de la póliza.
+𝑡: Número de días transcurridos desde la fecha de inicio de vigencia de la póliza hasta la fecha de valuación de la provisión.
+Por su parte, el margen de riesgo MR será el equivalente a la parte no devengada del margen de utilidad contenido en la prima (𝑀𝑈) de las pólizas en vigor, aplicando para el devengamiento el mismo factor de devengamiento utilizado en el gasto de administración (𝐹𝐷𝐺𝐴,𝑡), en tanto la Superintendencia no establezca otros procedimientos y parámetros para hacer su cálculo.
+𝑀𝑅 𝑡 = 𝑀𝑈 ? 𝐹𝐷𝐺𝐴,𝑡
+B. Provisión para el reaseguro aceptado
+La provisión de primas no devengadas para operaciones de reaseguro aceptado de los seguros de caución, se calculará conforme al procedimiento indicado en el apartado previo, tomando como base para el cálculo la prima de reaseguro aceptado de los contratos que se encuentren vigentes a la fecha de la valuación (𝑃𝑅𝐴) y considerando para efectos del devengamiento, una vigencia equivalente a la vigencia promedio de los tipos de contratos de seguros de caución cubiertos por el contrato de reaseguro:
+[imagen]
+Donde:
+𝛼= porcentaje de recargo para gastos de administración incluido en la prima de reaseguro aceptado.
+En caso de que no se conozca la vigencia de los contratos de seguros cubiertos en la operación de reaseguro, se tomará como vigencia un periodo de cinco años.
+En caso de que el contrato de reaseguro aceptado sólo cubra los siniestros que sean reclamados en la vigencia del contrato de reaseguro, entonces la provisión se calculará con base en la vigencia del contrato de reaseguro.
+El factor de devengamiento en todos los casos será:
+[imagen]
+C. Participación por Reaseguro Cedido
+Con independencia de la valuación de la provisión para prima no devengada y conforme lo dispuesto en el artículo 18 de este Reglamento, en el caso de los seguros de caución, las entidades valuarán la participación por reaseguro cedido,
+denominado Importe Recuperable de Reaseguro (𝐼𝑅𝑅), para una póliza 𝑝 que se encuentra en su momento de vigencia t, de la siguiente forma:
+𝐼𝑅𝑅𝑝 = 𝐵𝐸𝐿𝑅𝑖𝑒𝑠𝑔𝑜,𝑡 ? 𝐹𝐶𝑝
+Donde:
+𝐹𝐶𝑝: porcentaje de riesgo cedido en la póliza p, conforme al contrato de reaseguro proporcional.
+El monto total de la participación por reaseguro cedido será la suma de las cantidades obtenidas para cada póliza.
+[imagen]
+(*) (Así reformado el anexo PT-1 anterior en sesión N° 1681 del 16 de agosto de 2021)
 ANEXO PT-2
 PROVISIÓN POR INSUFICIENCIA DE PRIMA (PIP)
 La provisión por insuficiencia de prima (PIP) complementará a la provisión para prima no devengada (PPND) en la medida en que el importe de esta última no sea suficiente para reflejar la valoración de todos los riesgos y gastos a cubrir por la entidad aseguradora, correspondientes al periodo de cobertura no transcurrido a la fecha de cálculo.
-El importe de la provisión por insuficiencia de prima se calcula separadamente para el seguro directo y para el reaseguro aceptado, por cada línea o producto comercial, según la política aprobada por la entidad. Esta provisión no se requiere para las coberturas de terremoto y erupción volcánica.
-(Así reformado el párrafo anterior mediante sesión N° 1363 del 3 de octubre de 2017)
+El importe de la provisión por insuficiencia de prima se calcula separadamente para el seguro directo y para el reaseguro aceptado, por cada línea o producto comercial, según la política aprobada por la entidad. Esta provisión no se requiere para las coberturas de terremoto y erupción volcánica, ni para los seguros de caución."
+(Así reformado el párrafo anterior en sesión N° 1681 del 16 de agosto de 2021)
 A) Base de cálculo
 Para el cálculo de la provisión por insuficiencia de prima (PIP) los siniestros deben clasificarse por año de ocurrencia. El periodo de referencia será de tres años hasta la fecha de cálculo, es decir, los últimos 36 meses.
 Las entidades nuevas que no cuenten con experiencia en Costa Rica, estarán exceptuadas de calcular esta provisión hasta que cuenten con 12 meses de operación en la línea o producto para el cual se calcula esta provisión. A partir de ese momento, las entidades deberán calcular esta provisión tomando como periodo de referencia, el tiempo acumulado hasta la fecha de cierre de cálculo, hasta completar los 36 meses establecidos.
@@ -64,7 +128,6 @@ PPNDRC= Participación del reaseguro en la correspondiente provisión para prima
 La PIP por operaciones de reaseguro aceptado debe dotarse conforme a lo dispuesto en los apartados precedentes.
 C) Informe actuarial
 Si durante dos ejercicios anuales consecutivos ha sido necesario dotar la provisión regulada en este anexo, la entidad debe presentar a la Superintendencia , junto con los estados financieros correspondientes al cierre del segundo ejercicio, un informe actuarial sobre la revisión necesaria de las bases técnicas para alcanzar la suficiencia de la prima. Dicho informe debe al menos identificar las causas que han provocado la insuficiencia, las medidas adoptadas por la entidad y el plazo estimado en el que surtirán efecto.
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó derogar el anexo PT-3. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de dicha fecha se hará la respectiva derogación.)
 ANEXO PT-3
 PROVISIÓN DE SEGUROS PERSONALES
 Para los seguros la categoría de personales que ofrezcan coberturas de vida, rentas, riesgos del trabajo, accidentes y salud se deben constituir las siguientes provisiones:
@@ -106,7 +169,6 @@ El importe de las provisiones matemáticas para cada contrato debe ser en todo m
 G) Otros aspectos a considerar
 Reaseguro cedido
 En la estimación de los flujos para el cálculo de valor actual actuarial de las obligaciones futuras del asegurador y de las primas futuras, no debe considerarse el reaseguro cedido. En caso de contar con reaseguro, la entidad debe revelar el monto correspondiente a la participación del reasegurador en esta provisión, en la cuenta de activo que corresponda, según el manual de cuentas.
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó derogar el anexo PT-4. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de dicha fecha se hará la respectiva derogación.)
 ANEXO PT-4
 PROVISIÓN PARA SINIESTROS (PPS)
 La provisión para siniestros debe representar el importe total de las obligaciones pendientes de la entidad derivadas de los siniestros ocurridos con anterioridad a la fecha de cálculo.
@@ -233,7 +295,6 @@ Metodologías alternativas
 En caso de que la entidad considere que estas metodologías no se ajustan a la experiencia de una cartera o grupo de riesgo homogéneo, la entidad puede proponer y justificar una metodología alternativa, la cual debe registrar ante la Superintendencia , ya sea durante el proceso de registro del producto o posterior al registro. A partir del momento en que la Superintendencia apruebe la metodología propuesta por la entidad, ésta tiene carácter de obligatoria.
 Primas cedidas
 Las obligaciones para la provisión para siniestros se contabilizarán sin considerar descuento alguno por la participación de los reaseguradores. La obligación de los reaseguradores debe reconocerse en la cuenta de activo que corresponda, según el manual de cuentas.
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó derogar el anexo PT-5. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de dicha fecha se hará la respectiva derogación.)
 ANEXO PT-5
 PROVISIÓN DE PARTICIPACIÓN EN LOS BENEFICIOS Y EXTORNOS
 Esta provisión reflejará el importe de los beneficios que correspondan y el monto de las primas que proceda restituir a los tomadores, asegurados o beneficiarios en su caso, en virtud del comportamiento experimentado por el riesgo asegurado o rendimiento financiero, en tanto no hayan sido asignados individualmente a cada uno de aquéllos.
@@ -242,7 +303,6 @@ Se incluyen en la provisión todas las obligaciones por los contratos que sobre 
 La provisión comprende el importe de las primas a reembolsar o prestaciones a satisfacer imputables al período o períodos del contrato ya transcurridos a la fecha de cálculo.
 Las entidades deben justificar y registrar ante la Superintendencia la metodología específica para el cálculo de esta provisión, cuando aplique, durante el proceso de registro de cada producto.
 Cuando el importe de esta provisión sea asignado individualmente a tomadores, asegurados o beneficiarios, y se encuentre pendiente de pago, formará parte de la Provisión para Siniestros Reportados, específicamente en la Provisión de Siniestros Liquidados y no Pagados.
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó derogar el anexo PT-6. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de dicha fecha se hará la respectiva derogación.)
 ANEXO PT-6
 PROVISIÓN DE SEGUROS EN LOS QUE EL RIESGO DE INVERSIÓN LO ASUME EL TOMADOR
 La provisión de los seguros, asociados a los seguros de vida o renta, en los que contractualmente se estipule que el riesgo de inversión es soportado íntegramente por el tomador se determina en función de los activos o índices que se hayan fijado como referencia para determinar el valor económico de los derechos del tomador.

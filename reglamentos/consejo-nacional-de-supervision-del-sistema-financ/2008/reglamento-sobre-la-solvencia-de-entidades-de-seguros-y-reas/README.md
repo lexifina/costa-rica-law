@@ -29,3 +29,4 @@ Reglamento sobre la Solvencia de Entidades de Seguros y Reaseguros
 | 14 | 2020-06-01 | Reglamento 1579 (2020-06-01) |
 | 15 | 2020-12-16 | Reglamento 1633 (2020-12-16) |
 | 16 | 2021-04-12 | Reglamento 1655 (2021-04-12) |
+| 17 | 2021-08-16 | Reglamento 1681 (2021-08-16) |

@@ -80,43 +80,6 @@ El requerimiento de capital adicional por concentración de las inversiones corr
 El monto de la inversión sujeta al requerimiento de capital por concentración, esto es el 100% del exceso de inversión sobre los límites máximos señalados, no se debe considerar para efectos de la determinación de los requerimientos de capital por riesgo de mercado y riesgo de activos.
 4.-Requerimiento de Capital por Riesgo de Descalce
 Para determinar el riesgo de descalce entre activos y pasivos, por moneda y plazo, se debe utilizar la metodología que mediante Lineamiento General definirá el Superintendente.
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó reformar el anexo RCS-1 anterior. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de esa fecha el nuevo texto será el siguiente: “ANEXO RCS-1
-CÁLCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
-RIESGO GENERAL DE ACTIVOS
-El requerimiento de capital de solvencia por riesgo de los activos corresponde a la suma lineal de los siguientes riesgos:
-[imagen]
-Donde:
-𝑅𝐶𝑆𝑟𝑔𝑎 : Requerimiento de capital por riesgo general de activos.
-𝑅𝑚𝑒𝑟 : Requerimiento de capital por riesgo de mercado.
-𝑅𝑎𝑐𝑡 : Requerimiento de capital por riesgo de activos.
-𝑅𝑐𝑜𝑛 : Requerimiento de capital por riesgo de concentración de inversiones.
-𝑅𝑑𝑒𝑠 : Requerimiento de capital por riesgo de descalce.
-No deben considerarse en este requerimiento de capital, los activos que se deduzcan del capital base, de acuerdo a lo señalado en el artículo 8, ni tampoco los derechos de cobro que presenta la aseguradora en sus estados financieros por reaseguro tratados en el Anexo RCS-5.
-La suma de los requerimientos por riesgo de mercado, activos, concentración y descalce, no puede superar el 100% del valor contable de los activos sujetos a dichos requerimientos.
-1.- Requerimiento de Capital por Riesgo de Mercado
-El requerimiento de capital por riesgo de mercado corresponde a la suma de los siguientes requerimientos por tipo de activos:
-1.1 Renta Fija.
-El requerimiento por riesgo de mercado de valores de renta fija es igual al máximo valor observado del Valor en Riesgo (VeR) de la cartera de inversiones durante los últimos 60 días naturales a la fecha de cálculo, incluido el último día del mes. El método de cálculo del VeR es histórico, considera un nivel de confianza del 95%, 500 observaciones y un horizonte temporal de 21 días. El Superintendente establecerá la metodología y la frecuencia de cálculo mediante Lineamiento General debiendo comunicar sus cambios al CONASSIF.
-Las entidades deben calcular el VeR para los siguientes valores: los títulos de renta fija que componen la cartera de inversiones financieras de la entidad, los valores de renta fija adquiridos en recuperación de créditos y las inversiones en fondos de inversión cerrados. Se exceptúan: las inversiones en operaciones de reporto los valores y depósitos a plazo no estandarizados y las inversiones en valores y depósitos en entidades en cesación de pagos.
-1.2 Renta Variable
-Las inversiones en acciones o títulos representativos de capital y otros valores de renta variable, tienen un requerimiento de capital por riesgo de mercado equivalente al 30% de su valor contable determinado a la fecha de cálculo del requerimiento de capital.
-1.3 Fondos de inversión abiertos
-Las participaciones en fondos de inversión abiertos tienen un requerimiento de capital por riesgo de mercado equivalente al 30% de su valor contable a la fecha de cálculo del requerimiento de capital. Se exceptúan las participaciones en fondos del mercado de dinero cuyo requerimiento de capital por riesgo de mercado es del 5% de su valor contable a la fecha de cálculo de dicho requerimiento.
-1.4 Inmuebles
-La inversión en propiedades inmobiliarias tiene un requerimiento de capital por riesgo de mercado equivalente al 20% del valor contable del activo determinado a la fecha de cálculo del requerimiento de capital.
-2.- Requerimiento de Capital por Riesgo de Activos
-El riesgo de los activos de la entidad se calcula para cada uno de los activos en balance, excepto la inversión en propiedades inmobiliarias, y es el resultado de la multiplicación del valor del activo, neta de la estimación para pérdidas esperadas, por el porcentaje de riesgo correspondiente.
-Grupo | Activo | Factor de Riesgo
-0 | Efectivo | 0%
-1 | Depósitos a la vista en entidades financieras, Inversiones en títulos emitidos por el Banco Central de Costa Rica y por el Ministerio de Hacienda de Costa Rica en moneda nacional. Inversiones en deuda soberana de países con calificación de riesgo de contraparte ubicado en el grupo 1 según la "Tabla de Riesgo de Contraparte" de este anexo. | 0,5%
-2 | Inversiones en títulos emitidos por el Banco Central de Costa Rica y por el Ministerio de Hacienda de Costa Rica en moneda extranjera Inversiones en títulos con vencimiento menor a un año con calificación de riesgo de contraparte ubicada en los grupos 1 o 2, según la "Tabla de Riesgo de Contraparte" de este anexo (se excluyen las inversiones en deuda subordinada. | 1%
-3 | Créditos o Inversiones en títulos con vencimiento a un año, o mayor, con riesgo de contraparte ubicado en los grupos 1 o 2, según la "Tabla de Riesgo de Contraparte" de este anexo (se excluyen las inversiones subordinadas). | 2%
-4 | Activos por contratos de seguro y reaseguro aceptado Todo crédito o Inversión en títulos valores con riesgo de contraparte ubicado en el grupo 3, según la "Tabla de Riesgo de Contraparte" (se excluyen las inversiones en deuda subordinada). | 4%
-Grupo | Activo | Factor de Riesgo
-5 | Todo crédito o inversión en títulos valores con calificación de riesgo de contraparte ubicada en el grupo 4 según la "Tabla de Riesgo de Contraparte" de este anexo, (se excluyen las inversiones en deuda subordinada). | 6%
-6 | Todo crédito e inversión en títulos valores con calificación de riesgo de contraparte ubicada en el grupo 5 según la "Tabla de Riesgo de Contraparte" de este anexo" (se excluyen las inversiones en deuda subordinada). Inversiones subordinadas registradas en bolsas de valores autorizadas. | 8%
-7 | Crédito e inversiones subordinadas, excepto los indicados en el grupo 6 de este cuadro. | 10%
-8 | Otros activos | 20%”)
 ANEXO RCS-2
 CALCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 RIESGO OPERATIVO
@@ -138,26 +101,6 @@ PTNV = Total Provisiones Técnicas brutas, sin deducir el reaseguro cedido, de s
 PTV = Total Provisiones Técnicas brutas, sin deducir el reaseguro cedido, de seguros de vida y rentas.
 En caso de producirse un evento de tipo catastrófico que genere en forma excepcional un incremento de provisiones técnicas, la entidad podrá solicitar a la SUGESE que su requerimiento de capital por riesgo operativo, con base en provisiones técnicas, se calcule sin tener en cuenta el monto asociado al incremento en las provisiones derivado de ese evento catastrófico.
 La SUGESE podrá autorizar, de forma razonada, dicha suspensión sujeta a las condiciones que estime pertinentes y por un periodo determinado. En este caso la Superintendencia debe informar de esta situación al CONASSIF.
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó reformar el anexo RCS-2 anterior. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de esa fecha el nuevo texto será el siguiente: "ANEXO RCS-2
-CÁLCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA RIESGO OPERATIVO
-El riesgo operativo es el riesgo de tener una pérdida resultante de inadecuados procesos internos o de una falla de éstos, del personal y sistemas, o de eventos externos. El riesgo operacional está diseñado de manera tal de incluir riesgos operativos que no hayan sido contemplados explícitamente en los otros riesgos.
-El requerimiento de capital por riesgo operativo, se determina sobre la base del nivel de operaciones de la aseguradora, considerando los ingresos por contratos de seguro o reaseguro y pasivos de seguros de la compañía, con un máximo equivalente al 30% del total de requerimiento de capital de solvencia por los demás riesgos a los que está expuesta la aseguradora.
-El requerimiento de capital de solvencia por riesgo operativo se calcula de acuerdo a la siguiente fórmula:
-RCS Op = Min (0,3 * RCS base ; Riesgo Op)
-Donde:
-RCS Op: Requerimiento de Capital de Solvencia por Riesgo Operativo.
-RCS base: Total Requerimiento de Capital de Solvencia, antes del cálculo del riesgo operativo.
-Riesgo Op: Capital por Riesgo Operativo, se calcula de acuerdo a la siguiente fórmula:
-Riesgo Op = Max (Riesgo Op ingresos; Riesgo Op PCRRI)
-Con:
-Riesgo Op ingresos = 3% * IS t + Max [0; 3% * (IS t - 1,1* IS t-1)]
-Riesgo Op PCRRI = 3% * PCRRINV + 0,45% PCRRIV
-Con:
-ISt = Ingresos por contratos de seguros de los últimos 12 meses anteriores a la fecha de cálculo. El subíndice "t-1" se refiere a la IS de los 12 meses previos a los últimos 12 (meses 13 al 24).
-PCRRINV = Total del pasivo por la cobertura restante y por reclamaciones incurridas de contratos de seguro y reaseguro aceptado de no vida.
-PCRRIV = Total del pasivo por la cobertura restante y por reclamaciones incurridas de contratos de seguro y reaseguro aceptado de vida.
-En caso de producirse un evento de tipo catastrófico que genere en forma excepcional un incremento del pasivo por reclamaciones incurridas, la entidad podrá solicitar a la SUGESE que su requerimiento de capital por riesgo operativo, con base en el pasivo por reclamaciones incurridas, se calcule sin tener en cuenta el monto asociado al incremento en el pasivo derivado de ese evento catastrófico.
-La SUGESE podrá autorizar, de forma razonada, dicha suspensión sujeta a las condiciones que estime pertinentes y por un periodo determinado. En este caso la Superintendencia debe informar de esta situación al CONASSIF.")
 ANEXO RCS-3
 CALCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 RIESGO DE SEGUROS PERSONALES
@@ -173,69 +116,88 @@ FR= factor de capital regulatorio para cada una de las provisiones técnicas de 
 PT = monto bruto de la correspondiente provisión técnica.
 Provisión técnica retenida= monto de la provisión técnica que corresponda deducido la participación del reasegurador en dicha provisión.
 (Así reformada la tabla anterior en sesión N° 1253 del 17 de mayo de 2016)
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó reformar el anexo RCS-3 anterior. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de esa fecha el nuevo texto será el siguiente: "ANEXO RCS-3
-CÁLCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
-RIESGO DE SEGUROS PERSONALES
-El requerimiento de capital por riesgo de seguros personales corresponde a la suma del requerimiento de capital asociado a los capitales en riesgo y los requerimientos derivados de los pasivos de seguros de los seguros personales.
-[imagen]
-[imagen]
-[imagen]
-Donde:
-RCS Sp = Requerimiento de capital de solvencia de seguros personales total para todos los ramos
-?𝑖 = la suma del requerimiento de capital para cada uno de los ramos, donde "i" identifica a cada uno de los ramos en los que la entidad tiene registrado productos.
-𝐾𝑡 = capital en riesgo entendido como la diferencia entre la suma asegurada y el pasivo por la cobertura restante, para los seguros de vida y rentas de largo plazo.
-Capital en riesgo retenido = monto del capital en riesgo deducido el activo por la cobertura restante de los contratos de reaseguro mantenido.
-?𝑗 = la suma del requerimiento de capital para cada uno de los pasivos incluidos en el ramo "i", donde "j" identifica el factor regulatorio aplicable a cada pasivo.
-FR= factor de capital regulatorio para cada uno de los pasivos de acuerdo con la tabla contenida en este anexo.
-P = monto bruto del correspondiente pasivos de seguro relacionados con contratos de seguros de la categoría de personales.
-Pasivo retenido= monto del pasivo que corresponda menos el activo por la cobertura restante del reaseguro mantenido.
-Pasivo | Factor de Capital Regulatorio
-Pasivo por la cobertura restante de seguros de largo plazo, excepto contratos con componentes de participación discrecional | 5%
-Pasivo por la cobertura restante de seguros de vida de corto plazo (menores o iguales a un año) excepto contratos con componentes de participación discrecional | 7%
-Pasivo por la cobertura restante de seguros de seguros de corto plazo (menores o iguales a un año) de riesgos del trabajo, accidentes, y salud, excepto contratos con componentes de participación discrecional | 18%
-Pasivo por reclamaciones incurridas por seguros de vida y rentas | 2%
-Pasivo por reclamaciones incurridas por indemnizaciones en forma de renta de seguros de riesgos del trabajo, accidentes y salud | 5%
-Pasivo por reclamaciones incurridas de seguros de riesgos del trabajo, accidentes y salud, excepto los de la línea anterior | 12%
-Pasivo por la cobertura restante de seguros con componentes de participación discrecional | 2%”)
 ANEXO RCS-4
-CALCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
+CÁLCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 RIESGO DE SEGUROS GENERALES
-El requerimiento de capital de solvencia de seguros generales es la suma del requerimiento de capital asociado a la provisión técnica para prima no devengada y la provisión técnica para siniestros.
-El requerimiento se calcula por ramo multiplicando la respectiva provisión técnica neta de la participación del reasegurador a la fecha de cálculo según la siguiente fórmula:
-(Así reformada la fórmula anterior mediante sesión N° 1655-2021 del 12 de abril del 2021)
-Donde:
-RCS Sg = Requerimiento de capital de solvencia de seguros generales total para todos los ramos
-[imagen] la suma del requerimiento de capital para cada uno de los ramos, donde "i" identifica a cada uno de los ramos en los que la entidad tiene registrado productos.
-[imagen] la suma del requerimiento de capital para cada uno de las provisiones técnicas incluidas en el ramo "i", donde "j" identifica el factor regulatorio aplicable a cada provisión técnica.
-FR= factor de capital regulatorio para cada una de las provisiones técnicas, para primas o para siniestros, de acuerdo con la tabla contenida en este anexo
-PT = monto bruto de la provisión técnica, de primas o de siniestros, que corresponda.
-Provisión técnica retenida= monto de la provisión técnica, de primas o siniestros, que corresponda deducido la participación del reasegurador en dicha provisión.
+I. Seguros generales con excepción de seguros de caución
+El requerimiento de capital de solvencia de seguros generales, con excepción del seguro de caución, es la suma del requerimiento de capital asociado a la provisión técnica para prima no devengada y la provisión técnica para siniestros.
+(.)
 Ramos | Factor de Capital Regulatorio Provisión para Siniestros | Factor de Capital Regulatorio Provisión para prima no Devengada
-Seguro obligatorio de automóviles | 13,5% | 10%
-Automóviles, la línea de Hogar del ramo de Incendio y líneas aliadas, y Defensa jurídica. | 13,5% | 20,25%
-Las líneas de Industrial y Comercial del ramo de Incendio y líneas aliadas, Aviación, Vehículos marítimos y ferroviarios, Mercancías transportadas, Agrícolas y pecuarios, y Otros daños a los bienes. | 16,5% | 24,75%
-Crédito, Caución, Pérdidas pecuniarias, | |
-Ramos | Factor de Capital Regulatorio Provisión para Siniestros | Factor de Capital Regulatorio Provisión para prima no Devengada
-Responsabilidad civil y otros no mencionados precedentemente. | 22,5% | 33,75%
-(Así reformado el cuadro anterior mediante sesión N° 1363 del 3 de octubre de 2017)
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó reformar el anexo RCS-4 anterior. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de esa fecha el nuevo texto será el siguiente: "ANEXO RCS-4
-CÁLCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA RIESGO DE
-SEGUROS GENERALES
-El requerimiento de capital de solvencia de seguros generales es la suma del requerimiento de capital asociado al pasivo de seguros.
-El requerimiento se calcula por ramo multiplicando el respectivo pasivo a la fecha de cálculo según la siguiente fórmula:
-[imagen]
-Donde:
-RCS Sg = Requerimiento de capital de solvencia de seguros generales total para todos los ramos
-?𝑖 = la suma del requerimiento de capital para cada uno de los ramos, donde "i" identifica a cada uno de los ramos en los que la entidad tiene registrado productos.
-?𝑗 = la suma del requerimiento de capital para los pasivos de seguros incluidas en el ramo "i", donde "j" identifica el factor regulatorio aplicable a cada pasivo.
-FR= factor de capital regulatorio para los pasivos de seguros, de acuerdo con la tabla contenida en este anexo
-P = monto bruto de pasivo de seguros, que corresponda.
-Pasivo retenido= monto del pasivo, de seguros, que corresponda menos el activo por la cobertura restante y el activo por reclamaciones incurridas del reaseguro mantenido.
-Ramos | Factor de Capital Regulatorio Pasivo por reclamaciones incurridas | Factor de Capital Regulatorio Pasivo por la cobertura restante
 Seguro obligatorio de automóviles | 13,5% | 10%
 Automóviles, incendio y líneas aliadas excepto industrial o comercial, defensa jurídica. | 13,5% | 20,25%
 Incendio y líneas aliadas industrial o comercial, Aviación, vehículos marítimos y ferroviarios, mercancías transportadas, Agrícolas y Pecuarios, otros daños a los bienes. | 16,5% | 24,75%
-Crédito, Caución Pérdidas pecuniarias, responsabilidad civil y otros no mencionados precedentemente. | 22,5% | 33,75%”)
+Crédito, Pérdidas pecuniarias, responsabilidad civil y otros no mencionados precedentemente. | 22,5% | 33,75%
+II. Seguros de Caución
+El requerimiento de capital de solvencia de los seguros de caución debe calcularse de acuerdo con el siguiente procedimiento:
+Requerimiento de capital por riesgo técnico (𝑅𝐶𝑅𝑇)
+Se calculará el requerimiento de capital por el riesgo técnico 𝑅𝐶𝑅𝑇,𝑘,𝑖 para cada año de origen i y cada tipo de seguro k, según lo establecido en el Anexo A-1 de este Reglamento, como la diferencia entre la responsabilidad neta de la entidad (𝑉𝑎𝑅𝑁(𝑥𝑅𝑇,𝑘,𝑖 )) calculada conforme lo dispuesto en esta sección y el 𝐵𝐸𝐿𝑅𝑖𝑒𝑠𝑔𝑜,𝑘,𝑖 de las pólizas en vigor del año i, neto de la participación por reaseguro cedido correspondiente a las pólizas en vigor del año i, 𝐼𝑅𝑅𝑇,𝑖:
+[imagen]
+𝐵𝐸𝐿𝑅𝑖𝑒𝑠𝑔𝑜,𝑘,𝑖 es el monto del BEL de Riesgo, de la Provisión para Prima no Devengada (PPND) de las pólizas en vigor provenientes del año i. En caso de que el resultado sea negativo, el requerimiento de capital por riesgo técnico deberá tomarse como cero.
+1. Seguro Directo
+Para cada uno de los tipos de seguros de caución 𝑘, emitidos en forma directa, se calculará el valor de las obligaciones futuras estimadas a un nivel de seguridad del 99,5%, proveniente de un año determinado 𝑖, para los seguros de caución del tipo k (𝑉𝑎𝑅𝐷(𝑥𝑅𝑇,𝑘,𝑖 )), como el producto de la suma asegurada retenida de las pólizas suscritas en el año 𝑖, que se encuentren en vigor al momento de la valuación (𝑆𝐴𝑅𝑉𝑘,𝑖), por el factor que corresponda 𝐹𝑉𝑎𝑅,𝑘, es decir:
+[imagen]
+Los factores 𝐹𝑉𝑎𝑅,𝑘 se indican en la siguiente tabla:
+Tipo de Caución | �𝑽𝒂𝑹,𝒌
+Coberturas de seguros de caución contratadas a primera pérdida | 100,00%
+Cauciones financieras | 100,00%
+Coberturas de fidelidad. | 7,50%
+Cauciones judiciales | 5,02%
+Cauciones administrativas | 0,93%
+Cauciones de crédito | 2,99%
+Por su parte, la suma asegurada retenida (𝑆𝐴𝑅𝑉𝑘,𝑖 ), corresponde a la porción de suma asegurada que debe cubrir la entidad de seguros, de acuerdo a sus contratos de reaseguro proporcional y aquellos contratos facultativos no proporcionales que, en lo específico, para cada póliza, acoten el monto de la pérdida a cargo de la entidad aseguradora, y se determinará de la siguiente manera:
+𝑆𝐴𝑅𝑉𝑘,𝑖 = 𝑆𝐴𝑉𝑘,𝑖 ? 𝐹𝑅𝑐𝑝,𝑖 ? 𝐹𝑅𝑥𝑙,𝑖
+Donde:
+𝑆𝐴𝑉𝑘,𝑖: suma asegurada de las pólizas suscritas en el año i, que se encuentren en vigor al momento de la valuación del tipo de caución k.
+𝐹𝑅𝑐𝑝,𝑖: factor que corresponde a la proporción de riesgo retenido en contratos proporcionales.
+𝐹𝑅𝑥𝑙,𝑖 : factor que corresponde a la proporción de riesgo retenido en contratos facultativos no proporcionales que acoten la pérdida de la póliza de que se trate, calculado de la siguiente forma:
+[imagen]
+𝐶𝑜𝑠𝑡𝑜 𝑥𝑙𝑖 = costo de los contratos de reaseguro facultativos no proporcionales a nivel de póliza.
+En el caso de las cauciones financieras y cuando la entidad disponga de información histórica de seis años y debidamente documentada sobre la recuperación en efectivo de contragarantías, podrá descontar del cálculo de la Suma Asegurada Retenida un porcentaje equivalente al índice de recuperación de pagos 𝐼𝑅𝐺 de la siguiente manera:
+[imagen]
+Se calculará el índice de recuperaciones retenidas, como el promedio de los índices que resulten de dividir, para cada año i, el monto total de las recuperaciones, registradas proveniente del año de origen i (𝑅𝐺𝑖) entre el monto de reclamaciones registradas del año de origen i, es decir:
+[imagen]
+N: corresponde a un periodo de 6 años, contados desde la fecha más reciente respecto de la fecha de cálculo.
+𝑅𝐺𝑇𝑖 : monto de las recuperaciones retenidas registradas provenientes año de origen i, entendiendo como año de origen, el año en el cual fue pagada la reclamación de la cual proviene dicha recuperación. En este caso las recuperaciones deben corresponder a la recuperación en efectivo de las contragarantías ejecutadas a favor de la aseguradora, no se deben contabilizar los bienes adjudicados por la entidad. Para estos efectos, la entidad debe mantener respaldo documental de la recuperación y esto estar a disposición de la Superintendencia.
+𝑅𝑃𝑇𝑖: monto de las reclamaciones retenidas ya pagadas, por año de origen i, entendiendo como año de origen, el año calendario en el que fue pagada la reclamación.
+2. Reaseguro aceptado
+Para el caso de reaseguro aceptado, para cada uno de los tipos de seguros de caución 𝑘, se calculará el valor de las obligaciones futuras estimadas a un nivel de seguridad del 99,5%, del año 𝑖, (𝑉𝑎𝑅𝑇(𝑥𝑅𝑇,𝑘,𝑖 )), como el producto de la prima tomada retenida de los contratos de reaseguro suscritos en el año 𝑖, que se encuentren en vigor al momento de la valuación (𝑃𝑅𝑉𝑘,𝑖), por el factor que resulte de dividir el factor 𝐹𝑉𝑎𝑅,𝑘 entre el factor 𝐹𝐵𝐸𝐿𝑅,𝑘
+[imagen]
+Los valores de los factores 𝐹𝑉𝑎𝑅,𝑘 se presentan en la tabla del inciso 1) de esta sección y los de 𝐹𝐵𝐸𝐿_𝑅 se encuentran en la sección II.A del Anexo PT-1.
+La prima tomada retenida es la porción de prima tomada (𝑃𝑇𝑉𝑘,𝑖 ), de acuerdo a sus contratos de reaseguro proporcional y aquellos contratos facultativos no proporcionales que, en lo específico, acoten el monto de la pérdida que queda a cargo de la entidad reaseguradora, de acuerdo con la siguiente fórmula:
+𝑃𝑅𝑉𝑘,𝑖 = 𝑃𝑇𝑉𝑘,𝑖 ? 𝐹𝑅𝑐𝑝,𝑖 ? 𝐹𝑅𝑥𝑙,𝑖
+Donde:
+𝐹𝑅𝑐𝑝,𝑖 : proporción de riesgo retenido en contratos proporcionales.
+𝐹𝑅𝑥𝑙,𝑖 : proporción de riesgo retenido en contratos facultativos no proporcionales que acoten la pérdida de la póliza de que se trate, calculado de la siguiente forma:
+[imagen]
+En caso de que la entidad reaseguradora se obligue en un contrato de reaseguro a cubrir los riesgos y reclamaciones provenientes de una póliza o un conjunto de pólizas, durante toda la vigencia de las mismas y desconozca dicha vigencia, entonces, para efectos de cálculo del 𝑉𝑎𝑅𝑇(𝑥𝑅𝑇,𝑘,𝑖 ) se deberá suponer que las obligaciones se mantienen vigentes durante cinco años a partir del año en que se haya realizado el contrato de reaseguro y se deberá mantener el cálculo del 𝑉𝑎𝑅𝑇(𝑥𝑅𝑇,𝑘,𝑖 ) durante esos años.
+3. Reaseguro de exceso de pérdida global o a nivel de cartera
+En caso de que adicionalmente a los contratos de reaseguro proporcional y no proporcional a nivel póliza, existan contratos de reaseguro de exceso de pérdida (𝑋𝐿) que cubran parte de las pérdidas provenientes de la cartera de pólizas suscritas en determinado año 𝑖, la compañía deberá calcular el valor de neto de las pérdidas futuras estimadas a un nivel de seguridad del 99,5% 𝑉𝑎𝑅𝑁(𝑥𝑅𝑇,𝑘,𝑖 ), considerando el inciso 1) y 2), en la siguiente forma: En el caso de que la cobertura de reaseguro de exceso de pérdida (𝑋𝐿) que cubra sólo operaciones del seguro directo (inciso 1)):
+a. Se identificará el monto de la prioridad de la cobertura de reaseguro XL (𝑃𝑟𝑋𝐿,𝑖).
+b. Se identificará el monto total de las capas de cobertura del contrato de reaseguro XL (𝐶𝐶𝑋𝐿,𝑖).
+c. Se identificará el monto de siniestralidad proveniente del año i que está cubierta por el contrato de reaseguro XL (𝑆𝑅𝑋𝐿,𝑖).
+d. Cuando 𝑆𝑅𝑋𝐿,𝑖 sea una cantidad inferior a la prioridad, se determinará la prioridad remanente de la compañía 𝑃𝑟𝑅𝑋𝐿,𝑖 como la diferencia entre la prioridad 𝑃𝑟𝑋𝐿,𝑖 y el monto de siniestralidad proveniente del año i, 𝑆𝑅𝑋𝐿,𝑖 .
+𝑃𝑟𝑅𝑋𝐿,𝑖 = 𝑃𝑟𝑋𝐿,𝑖?𝑆𝑅𝑋𝐿,𝑖
+En caso de que 𝑆𝑅𝑋𝐿,𝑖 sea superior a la prioridad, la prioridad remanente se define como cero.
+e. Se determinará la responsabilidad neta de la compañía 𝑉𝑎𝑅𝑁(𝑥𝑅𝑇,𝑘,𝑖 ) como:
+i. En caso de que la prioridad remanente sea un monto superior a 𝑉𝑎𝑅𝐷(𝑥𝑅𝑇,𝑘,𝑖 ) entonces la responsabilidad neta será el monto del 𝑉𝑎𝑅𝐷(𝑥𝑅𝑇,𝑘,𝑖 ):
+𝑉𝑎𝑅𝑁(𝑥𝑅𝑇,𝑘,𝑖 ) = 𝑉𝑎𝑅𝐷(𝑥𝑅𝑇,𝑘,𝑖 ) 𝑠𝑖 𝑃𝑟𝑅𝑋𝐿,𝑖 ? 𝑉𝑎𝑅𝐷(𝑥𝑅𝑇,𝑘,𝑖 )
+ii. En caso de que la prioridad remanente sea inferior al 𝑉𝑎𝑅𝐷(𝑥𝑅𝑇,𝑘,𝑖 ) entonces la responsabilidad neta será el monto de la prioridad remanente más el monto del 𝑉𝑎𝑅𝐷(𝑥𝑅𝑇,𝑘,𝑖 ) que quede por encima de la prioridad remanente y que no quede cubierto por las capas del contrato o contratos XL:
+𝑉𝑎𝑅𝑁(𝑥𝑅𝑇,𝑘,𝑖 ) = 𝑃𝑟𝑅𝑋𝐿,𝑖 + 𝑚𝑎𝑥 (0, 𝑉𝑎𝑅𝐷(𝑥𝑅𝑇,𝑘,𝑖 ) ? 𝑃𝑟𝑅𝑋𝐿,𝑖 ? 𝐶𝐶𝑋𝐿,𝑖 )
+En todos los casos la entidad debe analizar si las capas del contrato 𝑋𝐿, son susceptibles de cubrir la parte del 𝑉𝑎𝑅𝐷(𝑥𝑅𝑇,𝑘,𝑖 ) que no queda cubierta con la prioridad remanente, debiendo identificarse la existencia de capas intermedias que no están cubiertas por el contrato XL, en cuyo caso el monto de dichas capas intermedias deben sumarse en el cálculo del 𝑉𝑎𝑅𝑁(𝑥𝑅𝑇,𝑘,𝑖 ).
+En el caso de que la cobertura de reaseguro de exceso de pérdida (𝑋𝐿) cubra sólo operaciones del reaseguro aceptado (inciso 2)), entonces el cálculo se realizará en la misma forma indicada para el seguro directo, pero deberá hacerse tomado el 𝑉𝑎𝑅𝑇(𝑥𝑅𝑇,𝑘,𝑖 ) en lugar del 𝑉𝑎𝑅𝐷(𝑥𝑅𝑇,𝑘,𝑖 ).
+Por otra parte, si la entidad de seguros realiza operaciones de seguro directo, así como reaseguro aceptado, y la cobertura de reaseguro de exceso de pérdida (𝑋𝐿) cubre a ambas operaciones, entonces el cálculo de 𝑉𝑎𝑅𝑁(𝑥𝑅𝑇,𝑘,𝑖 ) deberá realizarse tomando la suma de 𝑉𝑎𝑅𝐷(𝑥𝑅𝑇,𝑘,𝑖 ) y 𝑉𝑎𝑅𝑇(𝑥𝑅𝑇,𝑘,𝑖 )
+4. Cálculo de requerimiento agregado
+El requerimiento de capital de solvencia total para un determinado tipo de seguro de caución 𝑘, (𝑅𝐶𝑅𝑇,𝑘) deberá calcularse como la suma de las cantidades que se obtengan conforme al inciso anterior, para cada uno de los años 𝑖, es decir:
+[imagen]
+𝑁𝑘 es el número de años de origen i, considerados en el cálculo del RCS del tipo de seguro 𝑘.
+El cálculo deberá realizarse con seis años (𝑁𝑘 = 6), sin embargo, las entidades podrán proponer la utilización de más años, en los casos en que identifiquen que existen montos importantes de obligaciones de pólizas que se encuentran en vigor y que datan de más de seis años atrás.
+El requerimiento de capital de solvencia total del riesgo técnico para una entidad deberá calcularse como la suma de los requerimientos 𝑅𝐶𝑅𝑇 calculados para cada tipo de seguro de caución 𝑘:
+[imagen]
+Quinto: Adicionar el siguiente artículo transitorio al Reglamento sobre la Solvencia de Entidades de Seguros y Reaseguros:
+Transitorio
+Los factores de BEL de riesgo y VaR dispuestos en los Anexos PT-1 y RCS-4, respectivamente, para las prórrogas de contratos vigentes de caución a primera pérdida y caución financiera, ya sea por seguro directo y reaseguro aceptado, entrarán vigor de acuerdo con la siguiente gradualidad:
+[imagen]
+(Así reformado el anexo RCS-4 anterior en sesión N° 1681 del 16 de agosto de 2021)
 ANEXO RCS-5
 CALCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 RIESGO DE REASEGURO CEDIDO
@@ -283,41 +245,6 @@ BBB | 15%
 BB, inferior a BB o no calificadas | 100%
 Requerimiento de capital por Riesgo de Concentración del Reasegurador
 El requerimiento de capital por concentración del reaseguro, se determina aplicando un factor de capital del 100% sobre el exceso de la participación de un mismo reasegurador, en el monto total de la cuenta "participación del reaseguro en los diferentes tipos de provisiones técnicas" que mantiene la entidad a la fecha de cálculo de acuerdo a la siguiente tabla:")
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó reformar el anexo RCS-5 anterior. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de esa fecha el nuevo texto será el siguiente:
-"ANEXO RCS-5
-CÁLCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA RIESGO DE REASEGURO MANTENIDO
-El requerimiento de capital por riesgo de reaseguro mantenido aplica a todos los seguros, salvo las coberturas de terremoto y erupción volcánica, y corresponde a la suma de los requerimientos de capital por riesgo de crédito del reasegurador y por concentración en un mismo reasegurador, según la fórmula:
-𝑅𝐶𝑆 𝑅𝐶 = 𝑅𝐶𝑆 𝑅𝑀𝑐𝑡𝑜 + 𝑅𝐶𝑆 𝑅𝑀𝑐𝑜𝑛
-Donde:
-RCS RM = requerimiento de capital de solvencia por reaseguro mantenido
-RCS RMcto = requerimiento de capital de solvencia por reaseguro mantenido, por riesgo de crédito.
-RCS RMcon = requerimiento de capital de solvencia por reaseguro mantenido, por riesgo de concentración
-Para efectos de este requerimiento se considera la calificación de riesgo internacional de los reaseguradores extranjeros, y la calificación local de los reaseguradores autorizados para operar como entidades de reaseguro en Costa Rica, bajo la supervisión de la SUGESE.
-Requerimiento de capital por Riesgo de Crédito del Reasegurador
-El requerimiento de capital por riesgo de crédito del reasegurador, se calcula de la siguiente forma:
-[imagen]
-Donde:
-RCS RMcto = requerimiento de capital de solvencia por riesgo de crédito.
-?𝑖 = la suma del requerimiento de capital para cada reasegurador.
-ACRM = Activo por contratos de reaseguro mantenido
-FR= factor de capital regulatorio asociado a la calificación de riesgo del reasegurador de acuerdo con la tabla siguiente:
-Calificación de Riesgo Internacional | Factor de Capital
-AAA | 2%
-AA | 5%
-A | 7,5%
-BBB | 15%
-BB, inferior a BB o no calificadas | 100%
-Requerimiento de capital por Riesgo de Concentración del Reasegurador
-El requerimiento de capital por concentración del reaseguro, se determina aplicando un factor de capital del 100% sobre el exceso de la participación de un mismo reasegurador, en el monto total de la cuenta "activo por contratos de reaseguro mantenido" que mantiene la entidad a la fecha de cálculo de acuerdo a la siguiente tabla:
-Calificación de Riesgo Internacional | Límite de Concentración
-AAA, AA | Sin limite
-A | 25%
-BBB | 10%
-Para efectos de lo anterior, se considera como un mismo reasegurador a todas las entidades pertenecientes a un grupo asegurador o reasegurador. En caso de que el grupo reasegurador esté integrado por reaseguradores con diferente calificación de riesgo, para el cálculo de riesgo de concentración debe utilizarse la calificación que denote mayor riesgo.
-Asimismo, los diferentes sindicatos de Lloyd deben considerarse como un único reasegurador.
-En caso de producirse un evento tipo catastrófico que genere en forma excepcional un exceso de participación de un reasegurador en el activo por contratos de reaseguro mantenido, la entidad podrá solicitar a la SUGESE que suspenda en forma temporal la aplicación de los límites de concentración señalados. La SUGESE podrá autorizar de forma razonada dicha suspensión sujeta a las condiciones que estime pertinentes y por un periodo determinado. En este caso, la Superintendencia debe informar de este evento al CONASSIF.
-La nomenclatura de calificaciones utilizadas en este anexo corresponde a la escala internacional dispuesta por la agencia calificadora de riesgo Standard & Poor's. La calificación de algún reasegurador por parte de otra agencia internacional debe homologarse a la calificación Standard & Poor's según las equivalencias dispuestas en las Tablas de riegos de contraparte del Anexo RCS-1 de este Reglamento.
-Cuando el reasegurador cuenta con dos o más calificaciones con menos de un año de diferencia entre ellas, debe utilizarse la calificación que denote el mayor riesgo. En caso de que existan dos o más calificaciones otorgadas con más de un año de diferencia, debe prevalecer la calificación más reciente.")
 ANEXO RCS-6
 CALCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 RIESGO CATASTRÓFICO
@@ -444,11 +371,3 @@ b) Se calcula el cociente entre 𝑅𝐶𝑅𝑇𝑒𝑐,𝑜𝑡𝑟𝑜𝑠 y 
 c) Se calcula el porcentaje de diversificación (𝐷𝑖𝑣), como el mínimo entre 0,25 y lo que resulte de multiplicar el valor del factor obtenido conforme al inciso b), multiplicado por el 0,25.
 (*)(Así reformado el apartado IV) anterior mediante sesión N° 1655-2021 del 12 de abril del 2021)
 (Así reformado el ANEXO RCS-6 anterior mediante sesión N° 1363-2017 del 3 de octubre del 2017)
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó reformar el anexo RCS-6 anterior. De conformidad con la sesión antes referida dicha afectación entrará a regir a partir del 1° de enero del 2024, por lo que a partir de esa fecha el nuevo texto será el siguiente: “"ANEXO RCS-6
-CÁLCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA RIESGO
-CATASTRÓFICO
-El requerimiento de capital por riesgo catastrófico se calcula para las coberturas catastróficas del ramo de Incendio y líneas aliadas, de la siguiente forma:
-.
-B. Para los riesgos de temblor y terremoto (en adelante terremoto) y erupción volcánica se utiliza la siguiente metodología:
-I. El requerimiento de capital de solvencia de los seguros que cubran el riesgo de terremoto y erupción volcánica, (𝑅𝐶𝑆𝑇𝑦𝐸 ) debe calcularse como la suma del requerimiento de capital por el riesgo técnico (𝑅𝐶𝑅𝑇𝑒𝑐), el requerimiento de capital por el riesgo de contraparte por calidad de reaseguro 𝑅𝐶𝑅𝐶𝑎𝑙) y el requerimiento de capital por el riesgo de concentración de reaseguro (𝑅𝐶𝑅𝐶𝑜𝑛), disminuida dicha suma porcentualmente en una proporción (𝐷𝑖𝑣), y restando de dicha suma, el monto que tengan las obligaciones por riesgos catastróficos de terremoto y erupción volcánica (𝑂𝑅𝐶𝐴𝑇), al momento del cálculo, es decir:
-𝑅𝐶𝑆𝑇𝑦𝐸 = (𝑅𝐶𝑅𝑇𝑒𝑐 + 𝑅𝐶𝑅𝐶𝑎𝑙 + 𝑅𝐶𝑅𝐶𝑜𝑛) ? (1 ? 𝐷𝑖𝑣) ? 𝑂𝑅𝐶𝐴𝑇”)
