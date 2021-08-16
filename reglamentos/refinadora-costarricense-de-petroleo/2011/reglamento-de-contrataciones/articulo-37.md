@@ -1,3 +1,0 @@
-Artículo 37.—Elementos del Contrato de Leasing Operativo. Los enumerados en el Artículo 34 de este Reglamento, en el entendido de que la opción de compra no es inherente a este tipo de contrato, salvo si se hubiese incorporado en el contrato de leasing. Asimismo el plazo máximo del contrato no podrá ser superior al setenta y cinco por ciento de la vida económicamente útil del bien.
-La conservación, mantenimiento, asistencia técnica y reparación del bien estarán a cargo del proveedor-vendedor.
-El bien objeto del contrato puede ser sustituido por otro bien actualizado, en los términos de los párrafos segundo y tercero del artículo 12 de las Ley de Contratación Administrativa.

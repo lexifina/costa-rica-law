@@ -1,1 +1,0 @@
-Artículo 32.—Plazo del leasing financiero. El plazo del leasing financiero es fijo durante la vida económica útil del bien. RECOPE podrá ejercer la opción de compra al vencimiento del plazo preestablecido en el contrato.

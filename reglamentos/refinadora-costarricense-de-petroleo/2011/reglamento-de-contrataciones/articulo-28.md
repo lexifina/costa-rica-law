@@ -1,1 +1,0 @@
-Artículo 28.—Marco Legal. El contrato de leasing financiero u operativo que suscriba RECOPE se regirá por lo establecido en este Reglamento, el Decreto Ejecutivo Nº 32876 del 6 de diciembre del 2005 y las normas, procedimientos y principios de la Ley de Contratación Administrativa y su Reglamento.

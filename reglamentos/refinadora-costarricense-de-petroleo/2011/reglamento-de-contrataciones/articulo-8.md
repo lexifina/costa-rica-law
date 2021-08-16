@@ -1,2 +1,0 @@
-Artículo 8º—Reglas para la rotación de proveedores. El criterio que se utilizará para rotar a los proveedores al momento de cursar las invitaciones a participar será la fecha de aceptación de la inscripción en el Registro de Proveedores y la recurrencia de la compra por objeto de contratación.
-Además de la elección efectuada en el punto anterior, la Administración publicará las contrataciones en la página WEB de la empresa, para que puedan concurrir otros proveedores.

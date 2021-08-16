@@ -1,1 +1,0 @@
-Transitorio 1.—Los procedimientos de contratación iniciados con el Reglamento anterior, se concluirán conforme con las disposiciones vigentes al momento de adoptarse la decisión de iniciar el concurso, con excepción de la materia recursiva, según el acuerdo dictado por la Contraloría General de la República y publicado en La Gaceta N° 15 del 22 de enero del 2007.

@@ -1,1 +1,0 @@
-Artículo 2º—Normativa Aplicable. Toda la actividad de contratación administrativa llevada a cabo por la Refinadora Costarricense de Petróleo S. A. se regirá por la Ley de Contratación Administrativa N° 7494 y su Reglamento, en estricto acatamiento al principio de legalidad que rige el actuar de la Administración Pública.

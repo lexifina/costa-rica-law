@@ -1,1 +1,0 @@
-Artículo 40.—Derogatoria del Reglamento de Funcionamiento del Comité de Contratación de Combustibles. A partir de la entrada en vigencia del presente reglamento, se deroga el Reglamento para el Funcionamiento del Comité de Contratación de Combustibles aprobado por la Junta Directiva en el artículo 4 de la sesión Nº 4277-233 del 23 de julio de 2008.

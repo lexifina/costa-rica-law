@@ -1,1 +1,0 @@
-Artículo 3º—Alcance del Reglamento. Quedan comprendidas por esta reglamentación, todas las contrataciones enmarcadas dentro de la actividad ordinaria y todas aquellas comprendidas dentro de la actividad no ordinaria que, por su naturaleza, y conforme a lo dispuesto en la Ley de Contratación Administrativa y su Reglamento, requieran de reglamentación interna por parte de RECOPE.
