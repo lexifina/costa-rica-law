@@ -1,0 +1,1 @@
+Artículo 2º-Del objeto. El presente reglamento tiene por objeto definir y regular los alcances de la gestión y acuerdos de la CTI-Agua Subterránea en relación a la gestión de acuíferos y agua subterránea, para lo cual las decisiones que se tomen deberán ser transparentes y objetivas, bajo las normas de la ciencia y la técnica.

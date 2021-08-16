@@ -1,0 +1,1 @@
+Artículo 7º-Minutas y acuerdos de la CTI creada mediante el Decreto Ejecutivo N° 38449-MINAE-MAG. Las minutas y acuerdos tomados por la Comisión Técnica Interinstitucional para la Gestión de Acuíferos a la fecha de promulgar el presente Decreto, mantendrán su vigencia y alcances, y serán parte integral de esta nueva etapa del CTI-Agua Subterránea.

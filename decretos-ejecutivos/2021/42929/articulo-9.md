@@ -1,0 +1,1 @@
+Artículo 9º-Derogatoria. Deróguese el Decreto Ejecutivo N° 38449-MINAE-MAG del 21 de enero de 2014, publicado en La Gaceta N° 105 del 03 de junio de 2014, denominado "Crea Comisión Técnica Interinstitucional para la Gestión de Acuíferos".
