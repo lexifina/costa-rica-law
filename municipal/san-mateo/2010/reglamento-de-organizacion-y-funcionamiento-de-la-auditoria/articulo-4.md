@@ -1,1 +1,0 @@
-Artículo 4º—Ideas rectoras. La auditoría interna debe de establecer y asegurarse de mantener actualizados su visión, misión, políticas y procedimientos que regirán el accionar de la auditoría interna.
