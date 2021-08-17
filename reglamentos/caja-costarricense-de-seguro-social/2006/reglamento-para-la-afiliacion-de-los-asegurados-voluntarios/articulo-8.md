@@ -1,1 +1,0 @@
-Artículo 8º—Del seguro familiar. (Derogado mediante sesión N° 9090 del 2 de abril del 2020, y corregido mediante Fe de Erratas y publicada en el Alcance Digital N° 212 a La Gaceta N° 199 del 11 de agosto del 2020, página N° 42)

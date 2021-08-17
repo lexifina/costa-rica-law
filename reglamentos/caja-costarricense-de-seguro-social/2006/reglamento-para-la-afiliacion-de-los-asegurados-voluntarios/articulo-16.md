@@ -1,2 +1,0 @@
-Artículo 16.—Otras disposiciones. El presente reglamento forma parte del ordenamiento jurídico administrativo. En lo no dispuesto expresamente en él, se aplicarán supletoriamente en lo que fueren compatibles, la Ley Constitutiva de la Caja Costarricense de Seguro Social, el Reglamento de Seguro de Salud, el Reglamento del Seguro de Invalidez, Vejez y Muerte, y la demás normativa institucional, así como cualquier disposición internacional aprobada en Costa Rica y atinente a la materia aquí regulada.
-San José, 8 de agosto del 2006.
