@@ -14,3 +14,4 @@ Ampliación del plazo de vigencia del comprobante de toma de huellas dactilares 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-04-29 | la propia norma |
+| 2 | 2021-08-17 | Directriz 3940 (2021-08-17) |
