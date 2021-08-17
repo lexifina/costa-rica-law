@@ -14,3 +14,4 @@ Reglamento sobre Seguridad Química y Aplicación Nacional de la Convención de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-20 | la propia norma |
+| 2 | 2021-08-17 | Decreto Ejecutivo 43185 (2021-08-17) |
