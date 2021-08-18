@@ -1,0 +1,1 @@
+ARTÍCULO 5- Elección de los miembros del Consejo de Distrito y síndicos. La elección de los miembros del Consejo de Distrito y síndicos del distrito de Birrisito será organizada y dirigida por el Tribunal Supremo de Elecciones, seis meses después de que entre en vigencia la presente ley.
