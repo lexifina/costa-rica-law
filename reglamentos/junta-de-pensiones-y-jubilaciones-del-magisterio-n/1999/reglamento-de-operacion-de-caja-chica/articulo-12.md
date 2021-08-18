@@ -1,1 +1,2 @@
-Artículo 12.—El trabajador que recibe el adelanto de Caja Chica debe presentar la liquidación del mismo, por lo tanto el Especialista en custodia y fondos fijos no liquida ningún adelanto a trabajadores que no hayan realizado el trámite original.
+Artículo 12.-Se realiza la liquidación únicamente al trabajador que haya realizado el adelanto de Caja Chica.
+(Así reformado mediante sesión N° 92-2021 del 18 de agosto de 2021)
