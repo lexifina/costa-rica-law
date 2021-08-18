@@ -1,13 +1,12 @@
 Artículo 5º-De las Disciplinas Autorizadas: El Colegio de Médicos y Cirujanos por medio de su Comité de Profesionales Afines a las Ciencias de la Salud, reconoce el siguiente listado oficial de las disciplinas reconocidas para otorgar autorización en el ejercicio profesional:
-(*)● Licenciaturas:
+● Licenciaturas(*):
 a) Imagenología Diagnóstica y Terapéutica.
 b) Promoción de la Salud.
 c) Recreación Física y Mental.
-d) Registros Médicos.
+d) Registros Médicos: Se reconoce como sinónimo los siguientes términos: Registros y Estadísticas de Salud, Registros Médicos y Sistemas de información en Salud.
 e) Salud Ocupacional.
-f) Salud Ambiental
-g) Ortoprótesis y Ortopedia.
-(*) (Así reformado el apartado anterior y publicado en La Gaceta N° 201 del 19 de octubre de 2021)
+f) Salud Ambiental.
+(*) (Así reformado el punto anterior en sesión N° 2021-08-18 del 18 de agosto de 2021)
 ● Maestrías:
 a) Imagenología Diagnóstica y Terapéutica.
 b) Recreación Física y Mental.
