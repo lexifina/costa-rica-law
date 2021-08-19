@@ -1,1 +1,0 @@
-Artículo 22.—Forma de efectuar el depósito. El depósito deberá realizarse en la Tesorería Municipal previo al retiro de las entradas, ya sea mediante dinero efectivo o cheque certificado a favor de la municipalidad. En casos especiales y a juicio de la Alcaldía, podrán autorizarse formas alternativas para rendir la referida garantía.

@@ -1,1 +1,0 @@
-Artículo 5º—Base imponible. El monto del impuesto a pagar se calculará sobre la base del precio del respectivo tiquete o entrada. Cuando además del valor de la entrada se cobre consumo mínimo, el impuesto se calculará sobre la suma de ambos conceptos.

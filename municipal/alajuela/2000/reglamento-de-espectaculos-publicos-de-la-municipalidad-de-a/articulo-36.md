@@ -1,1 +1,0 @@
-Artículo 36.—Inspección. En todos los casos indicados en este Reglamento, la Municipalidad de Alajuela se reserva la posibilidad de inspeccionar las condiciones del local e instalaciones donde se realizarán las actividades, previo al otorgamiento del respectivo permiso.

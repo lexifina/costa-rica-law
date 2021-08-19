@@ -1,2 +1,0 @@
-Artículo 18.—Arqueo de entradas. Corresponde al Departamento de Rentas y Patentes realizar semanalmente un arqueo de las entradas recolectadas y preparará un informe mensual dirigido a la alcaldía municipal en el que se indicará el nombre del negocio y del propietario, tipo de actividad, cantidad de tiquetes sellados y cantidad de tiquetes recolectados clasificados por precio y recaudación total del impuesto.
-Cuando se trate de actividades ocasionales o temporales, dicho arqueo deberá realizarse a más tardar el día hábil siguiente a la realización de la actividad.

@@ -1,1 +1,0 @@
-Artículo 13.—Evasión del pago del impuesto. En caso de que se evada el pago del impuesto de espectáculos públicos sea parcial o totalmente, La Municipalidad procederá a la determinación oficiosa del monto dejado de percibir, recurriendo para ello al procedimiento previsto en el Código de normas y Procedimientos Tributarios.

@@ -1,3 +1,0 @@
-Artículo 17.—Recolección de boletos. La Municipalidad instalará un buzón recolector de boletos en los establecimientos donde se realicen espectáculos públicos, en el cual deberán depositarse las entradas que entreguen los clientes.
-Dicho buzón permanecerá cerrado y sólo podrá ser abierto por personeros de la municipalidad debidamente acreditados para ello por la Alcaldía Municipal.
-La responsabilidad sobre el buen estado del buzón recolector corresponde al dueño del establecimiento u organizador de la actividad, quien deberá reponerlo en caso de que sufra daños que no garanticen la seguridad de los boletos.

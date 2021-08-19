@@ -1,2 +1,0 @@
-Artículo 16.—Acta de devolución de entradas selladas. La Alcaldía Municipal o la dependencia que esta designe, dejará constancia de la devolución de las entradas selladas para cada emisión o evento, mediante un acta que levantará al efecto, en la cual se consignará como mínimo el nombre del establecimiento o actividad y del solicitante; número, clasificación y valor de las entradas selladas, fecha y hora de la devolución.
-Dicho documento deberá ser firmado por el funcionario municipal encargado de dicho trámite y por la persona que haga el retiro de los boletos.
