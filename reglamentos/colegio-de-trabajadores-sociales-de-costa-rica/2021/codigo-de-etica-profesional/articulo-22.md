@@ -1,0 +1,3 @@
+Artículo 22.-Causales de impedimento para que la persona profesional en trabajo social efectúe su intervención:
+a. Tener interés directo en el resultado del proceso de atención, ser cónyuge, conviviente, ascendiente, descendiente o pariente hasta el tercer grado de consanguinidad, o segundo de afinidad. Mantener relaciones sentimentales o sexuales con la persona usuaria, familiares directos de la persona usuaria, entre colegas, conflicto de intereses o la existencia de circunstancias que den lugar a dudas justificadas respecto de su imparcialidad u objetividad.
+b. Deberá, quien tuviera causal de impedimento, inhibirse mediante acto razonado y por escrito a su superior jerárquico una vez conozca o tenga certeza de la existencia de la causal de impedimento.

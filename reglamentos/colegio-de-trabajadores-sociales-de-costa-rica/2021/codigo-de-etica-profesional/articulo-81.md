@@ -1,0 +1,1 @@
+Artículo 81.-Competencia territorial de la persona notificadora. La persona notificadora podrá notificar en todo el territorio nacional. Será obligación del COLTRAS proveer el recurso humano y técnico necesario para cumplir con esta función.

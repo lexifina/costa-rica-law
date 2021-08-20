@@ -1,0 +1,8 @@
+Artículo 40.-Disputas laborales. Las personas profesionales en trabajo social:
+a. Podrán participar en acciones organizadas, incluida la formación y militancia en sindicatos, para mejorar sus condiciones de trabajo y los servicios que brindan a la población. Lo anterior, con base en los convenios internacionales, leyes y reglamentos nacionales que rigen la materia.
+b. Se guiarán por los valores que fundamentan la profesión y sus principios éticos cuando participan en disputas de índole laboral o en huelgas. Además, antes de tomar decisiones, examinarán cuidadosamente los temas relevantes para el caso y su posible impacto en la población.
+c. Agotarán las vías institucionales y legales existentes en el país para solucionar conflictos laborales generados con las personas o entidades empleadoras antes de recurrir al COLTRAS.
+d. Conocerán la normativa, la organización y el funcionamiento de la entidad en la que trabajan y respetarán sus objetivos. En caso de que estos sean contrarios, total o parcialmente, a los principios de la profesión, actuarán de conformidad con lo establecido en el presente Código.
+e. Podrán solicitar el apoyo y amparo del COLTRAS cuando se presenten conflictos entre la dependencia laboral y los principios éticos, de calidad y eficiencia del trabajo social.
+f. Podrán recurrir al COLTRAS para informar y denunciar a las personas o entidades empleadoras que violenten los derechos laborales del gremio.
+g. Solicitarán al COLTRAS apoyo, asesoría y orientación para oponerse a acciones que violenten las mejores condiciones laborales del gremio y para eliminar posibles hechos que supongan competencia desleal entre personas agremiadas.

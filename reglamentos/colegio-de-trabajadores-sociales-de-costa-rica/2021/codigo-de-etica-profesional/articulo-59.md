@@ -1,0 +1,1 @@
+Artículo 59.-Órgano instructor del procedimiento. La Fiscalía actuará como instructora del debido proceso con las facultades necesarias en el ejercicio de sus funciones, sin necesidad de consulta a la Junta Directiva.

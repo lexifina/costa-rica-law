@@ -1,0 +1,3 @@
+Artículo 27.-Conclusión de la atención profesional. Las personas profesionales en trabajo social:
+a. Finalizarán la atención de las personas usuarias cuando consideren que esos servicios ya no contribuyen a solucionar las necesidades que originalmente fueron expuestas.
+b. Evitarán el abandono profesional de la población que aún necesita de sus servicios. No obstante, podrán interrumpir esos servicios de forma súbita cuando se presenten circunstancias inusuales o excepcionales. En este caso, lo justificarán debidamente ante su jefatura inmediata (a priori o a posteriori, según sea el caso). Además, minimizarán los posibles daños o vulneraciones a la población y harán lo necesario para que otra persona profesional continúe ofreciendo el servicio.

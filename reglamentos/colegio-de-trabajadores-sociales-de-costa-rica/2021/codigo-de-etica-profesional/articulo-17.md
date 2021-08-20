@@ -1,0 +1,1 @@
+Artículo 17.-Competencia profesional. El colectivo de trabajo social tiene el derecho y el deber de ejercer su profesión y de reconocerse dentro de los límites de sus competencias profesionales u otra experiencia relevante.

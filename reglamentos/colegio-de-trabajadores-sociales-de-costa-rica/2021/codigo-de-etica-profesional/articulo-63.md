@@ -1,0 +1,2 @@
+Artículo 63.-Conciliación. Cuando la normativa vigente, los hechos y las circunstancias lo permitan, la parte denunciada haya contestado el traslado de la queja, el órgano director del procedimiento citará a las partes a una conciliación. En este momento, se les propondrá dar por terminado el proceso mediante un arreglo que sea beneficioso para ambas partes.
+En caso de que la parte denunciada y denunciante concilien ante una instancia competente para ello, deberán notificar al órgano director, quien valorará el considerar dicha resolución como parte del proceso.

@@ -1,0 +1,1 @@
+Artículo 25.-Interrupción de servicios profesionales. Si la intervención profesional es interrumpida, por respeto a los derechos de la población, las personas profesionales en trabajo social deben garantizar la continuidad de los servicios utilizando mecanismos de referencia, según sus capacidades, competencias y posibilidades.

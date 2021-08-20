@@ -1,0 +1,2 @@
+Artículo 77.-Notificación de resoluciones. Las resoluciones detalladas en el artículo anterior deberán ser notificadas a ambas partes.
+En caso de duda sobre si una resolución es de mero trámite o una sustancial dentro del proceso, se tendrá como sustancial para efectos de ser notificadas a todas las partes, en los términos y condiciones que ha establecido el Código Procesal Civil y la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 71.-Alegatos de conclusiones. Instruido el expediente, se pondrá en conocimiento de las partes. Se dará un término de tres días hábiles para que se formulen por escrito las conclusiones sobre los hechos alegados, prueba producida y fundamentos legales en que apoyen sus pretensiones.

@@ -1,0 +1,1 @@
+Artículo 60.-Nombramiento del director del procedimiento. Una vez recibida a conformidad y aceptada la queja, se nombrará una persona directora del procedimiento, según lo que establece los artículos 308 y siguientes de la Ley General de la Administración Pública. Se considera para tal efecto las personas profesionales que integran el denominado Tribunal de Ética del COLTRAS.

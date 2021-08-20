@@ -1,0 +1,1 @@
+Artículo 67.-Celebración de la comparecencia en lugar. La comparecencia deberá celebrarse en la sede que ocupa la Fiscalía del COLTRAS; no obstante, por economía de gastos o cualesquiera otras ventajas, podrá celebrarse en otro lugar del territorio nacional.

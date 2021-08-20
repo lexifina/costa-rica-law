@@ -1,0 +1,1 @@
+Artículo 11.-Colaboración con otras profesiones. Las personas profesionales en trabajo social coordinarán lo necesario para que la labor sea satisfactoria, tanto para ellas como para la institución u organización donde se desempeñan, cuando exista una intervención simultánea o secuencial con profesionales de otras áreas del conocimiento.

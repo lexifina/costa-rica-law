@@ -1,0 +1,1 @@
+Artículo 73.-Dictado de la resolución final. Estando revisado el expediente y evacuadas las pruebas del caso, se deberá dictar la resolución final. Esta deberá hacerse dentro del plazo de quince días hábiles, partiendo de la fecha de la última comparecencia. Es requisito de eficacia del acto administrativo la debida notificación a las partes.

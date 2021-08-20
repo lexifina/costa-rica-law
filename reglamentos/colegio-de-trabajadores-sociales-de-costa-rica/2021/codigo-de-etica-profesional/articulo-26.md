@@ -1,0 +1,4 @@
+Artículo 26.-Referencia a otros servicios profesionales. Las personas profesionales en trabajo social:
+a. Referirán a la población del servicio a otras y otros profesionales o instituciones cuando se requiera de un conocimiento especializado o de la experiencia para que la persona usuaria reciba una atención integral y adecuada. También lo harán cuando las competencias institucionales u organizacionales así lo demanden.
+b. Garantizarán una referencia adecuada, sea la definida por los protocolos y normativas de cada entidad empleadora o por el criterio profesional individual, considerando las especificidades del caso y el lugar o profesional al cual se hará la referencia.
+c. Comunicarán sólo la información que sea estrictamente pertinente (en apego al principio de confidencialidad y privacidad) cuando refieran a sus usuarios a los nuevos proveedores de los servicios.

@@ -1,0 +1,1 @@
+Artículo 61.-Traslado inicial de cargos. El órgano director del procedimiento procederá a dar traslado a la parte denunciada por el término de ocho días hábiles. Dicho traslado se realizará por escrito, adjuntando copia de la denuncia y solicitando lugar con dirección exacta y correo electrónico (personal u otro), para las consiguientes notificaciones.

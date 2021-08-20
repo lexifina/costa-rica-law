@@ -1,0 +1,1 @@
+Artículo 48.-Protección de documentos y registros digitales. Las personas profesionales en trabajo social deben utilizar medios tecnológicos adecuados para proteger y salvaguardar los documentos de trabajo, los informes sociales y los registros que aparezcan en formato digital y contengan información privada y confidencial sobre la población intervenida profesionalmente.
