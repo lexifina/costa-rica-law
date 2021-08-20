@@ -1,0 +1,1 @@
+Artículo 16.-La Comisión de remates, que ya cuenta con libro de actas legalizado, dejará asentado lo actuado y para lo correspondiente en el traspaso ante el Registro Nacional de Bienes muebles e inmuebles, cuando proceda.

@@ -1,0 +1,1 @@
+Artículo 15.-Se adjudicará el o los bienes al participante que presente la oferta más alta durante el remate, la oferta será a mano alzada; quien aportará al momento de ser adjudicado en el remate, el 10% del valor del bien y como máximo a los 3 días hábiles debe cancelar el restante 90%.

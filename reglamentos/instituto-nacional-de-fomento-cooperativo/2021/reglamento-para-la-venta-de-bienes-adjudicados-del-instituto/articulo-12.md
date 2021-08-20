@@ -1,0 +1,1 @@
+Artículo 12.-El INFOCOOP en la invitación indicará al menos dos fechas para la vista en sitio al bien o bienes en remate y la fecha de la realización del remate. Además de las características del bien o bienes para el remate, que permitan la identificación exacta y correcta y el precio base del bien que no podrá ser inferior al valor del avalúo.

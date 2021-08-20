@@ -1,0 +1,1 @@
+Artículo 10.-Una vez que el INFOCOOP cuente con los insumos indicados anteriormente, procede a publicitarlos por los medios que considere convenientes y oportunos; como son la página WEB de INFOCOOP, redes sociales de INFOCOOP, diarios de circulación nacional, radio y/o Televisión.

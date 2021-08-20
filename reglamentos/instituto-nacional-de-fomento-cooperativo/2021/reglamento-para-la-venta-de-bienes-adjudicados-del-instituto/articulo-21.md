@@ -1,0 +1,1 @@
+Artículo 21.-Para efectos de registro al sistema presupuestario del INFOCOOP, el Departamento Administrativo Financiero remitirá la documentación correspondiente al Departamento de Desarrollo Estratégico que incluirá el movimiento presupuestario correspondiente en el periodo.

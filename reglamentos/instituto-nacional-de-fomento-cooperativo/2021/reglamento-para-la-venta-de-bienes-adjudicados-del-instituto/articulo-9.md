@@ -1,0 +1,1 @@
+Artículo 9°-El acuerdo de Junta Directiva deberá comunicarse a más tardar dentro de los 3 días hábiles siguientes a la realización de la Sesión de la Junta Directiva a Administrativo Financiero para que tramite el inicio del Procedimiento de venta.

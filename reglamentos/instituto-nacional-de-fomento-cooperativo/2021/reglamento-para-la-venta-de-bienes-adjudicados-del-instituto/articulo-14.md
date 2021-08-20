@@ -1,0 +1,1 @@
+Artículo 14.-Serán considerados como participantes del remate los interesados que previamente y con antelación de al menos 15 minutos antes de la hora de inicio del remate haya completado y presentado todos los requisitos, aquí esbozados.

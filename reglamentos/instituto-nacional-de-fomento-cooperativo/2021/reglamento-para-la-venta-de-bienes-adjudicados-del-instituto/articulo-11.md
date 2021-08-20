@@ -1,0 +1,1 @@
+Artículo 11.-Cuando estime conveniente, el INFOCOOP convocará a remate de bienes recibidos en dación de pago (bienes realizables), por medio de la página WEB de INFOCOOP, redes sociales de INFOCOOP, diarios de circulación nacional, radio y/o Televisión y La Gaceta, con al menos un mes de anticipación.

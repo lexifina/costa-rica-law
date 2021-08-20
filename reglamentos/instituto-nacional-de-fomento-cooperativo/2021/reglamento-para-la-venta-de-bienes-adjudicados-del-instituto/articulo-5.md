@@ -1,0 +1,1 @@
+Artículo 5°-Los recursos generados por la venta de los bienes realizables muebles e inmuebles, deben ser destinados para aumentar la disponibilidad del efectivo para el otorgamiento de nuevos créditos.

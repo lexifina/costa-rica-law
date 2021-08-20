@@ -1,0 +1,2 @@
+Artículo 23.-Para efectos de este procedimiento, la Administración deberá adoptar mecanismos de control que determinen la seguridad de la transacción, venta y fidelidad de la obtención de la información; tales como la completitud del expediente que se genere de cada propiedad vendida ya sea por venta directa o por remate.
+Para los efectos de este procedimiento, las medidas de control referidas se aplicarán a todas las ventas realizadas bajo este procedimiento sustitutivo.
