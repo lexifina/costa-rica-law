@@ -1,0 +1,14 @@
+SERVICIO NACIONAL DE ADUANAS
+RESOLUCIÓN DE ALCANCE GENERAL
+Resolución RES-DGA-277-2021.-Dirección General de Aduanas.-San José, a las catorce horas con quince minutos del día veintisiete de julio del dos mil veintiuno.
+Conoce esta Dirección General el oficio N° MS-DRPIS-UNC-1857-21 de fecha 15 de julio del 2021, suscrito por las doctoras Ileana Herrera Gallegos, Xiomara Vega Cruz, e Ileana Roverssi Picado, de la Unidad de Normalización y Control, de la Dirección de Regulación de Productos de Interés Sanitario, del Ministerio de Salud, mediante el cual solicitan a esta Dirección General de Aduanas, la implementación de la Nota Técnica N° 0057, para las mercancías asociadas al inciso arancelario 9018.12.00.00.00.
+Considerando:
+1º-Que de conformidad con los artículos 11 de la Ley General de Aduanas y 7° de su Reglamento, sus reformas y modificaciones vigentes, la Dirección General de Aduanas es el órgano superior jerárquico nacional en materia aduanera y dentro de sus funciones le compete la coordinación de acciones con los Ministerios, órganos y demás entes relacionados con el proceso aduanero, con el fin de armonizar las políticas aduaneras.
+2º-Que mediante oficio N° MS-DRPIS-UNC-1857-21 de fecha 15 de julio del 2021, la Dra. Ileana Herrera Gallegos, en su calidad de Directora a. í., de la Dirección de Regulación de Productos de Interés Sanitario del Ministerio de Salud, solicita la implementación de la Nota Técnica N° 0057, a las mercancías clasificadas en el inciso arancelario 9018.12.00.00.00, correspondientes a "Aparatos de diagnóstico por exploración ultrasónica (ecografía)", al momento de la importación. Por tanto,
+Con fundamento en las consideraciones de hecho y derecho de cita, potestades y demás atribuciones aduaneras que otorgan los artículos 6° y 8° del Código Aduanero Uniforme Centroamericano IV, así como el artículo 5° de su Reglamento y los ordinales 6, 9, 11 de la Ley General de Aduanas, N° 7557 del 20 de octubre de 1995 y sus reformas, en uso de las facultades y atribuciones que le concede la legislación que regula la materia aduanera.
+EL DIRECTOR GENERAL DE ADUANAS,
+RESUELVE:
+1º-Asociar la Nota Técnica N° 0057 (Autorización de desalmacenaje de materias primas, formas primarias para medicamentos y cosméticos; medicina, cosméticos y equipos médicos, otorgada por el Ministerio de Salud, Dirección de Registros y Controles), al inciso arancelario 9018.12.00.00.00, correspondiente a las mercancías "Aparatos de diagnóstico por exploración ultrasónica (ecografía)", al momento de la importación.
+2º-Los Agentes de Aduanas y demás Auxiliares de la Función Pública, deberán realizar la correspondiente actualización en el Arancel que cada uno utilice.
+3º-Publíquese en el Diario Oficial La Gaceta.
+4º-La presente resolución rige cinco días hábiles posteriores a su publicación.
