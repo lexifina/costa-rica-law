@@ -1,0 +1,1 @@
+Artículo 21.-Aspectos disciplinarios. Las irregularidades en relación con el incumplimiento del presente reglamento serán remitidas al Departamento Disciplinario Legal a efectos de que se determinen las responsabilidades que corresponda, previo cumplimiento del debido proceso.

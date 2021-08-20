@@ -1,0 +1,1 @@
+Artículo 24.-Derogatoria. Deróguese el Decreto Ejecutivo N° 33790 "Reglamento para el Uso, Custodia y Conservación de los teléfonos celulares del Ministerio de Seguridad Pública", del 22 de marzo de 2007, publicado en La Gaceta N° 106 del 04 de junio de 2007.
