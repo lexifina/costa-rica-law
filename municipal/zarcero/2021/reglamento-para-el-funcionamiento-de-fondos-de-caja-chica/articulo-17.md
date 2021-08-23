@@ -1,0 +1,1 @@
+Artículo 17.-Gastos de Representación. Con cargo al Fondo Fijo de Caja Chica se podrán realizar pagos por concepto de gastos de representación únicamente en los casos de gastos originados en la celebración de recepciones oficiales con carácter institucional.

@@ -1,0 +1,2 @@
+Artículo 31.-Faltantes y Sobrantes del Fondo Fijo de Caja Chica. Si realizado el arqueo, resulta una diferencia, esa debe ser justificada por el responsable de la caja chica, quien además deberá en forma inmediata depositar el sobrante o reintegrar el faltante, según corresponda.
+La justificación deberá de presentarse ante la Alcaldía Municipal en el transcurso de 05 días hábiles a partir del día de realizado el arqueo, de lo contrario, se procederá a solicitar la sanción que corresponda, conforme al ordenamiento jurídico vigente.

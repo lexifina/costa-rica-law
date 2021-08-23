@@ -1,0 +1,1 @@
+Artículo 35.-Prohibición de Variar el Objeto de la Compra. Por ningún motivo se podrá variar el objeto inicial de una compra, a menos de que pertenezca a la misma partida presupuestaria. No se pagarán aquellos bienes y servicios que fueron adquiridos previo a la autorización de un vale de Caja Chica.

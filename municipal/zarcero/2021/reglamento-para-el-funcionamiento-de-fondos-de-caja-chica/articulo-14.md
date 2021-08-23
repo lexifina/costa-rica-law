@@ -1,0 +1,1 @@
+Artículo 14.-Devoluciones. El Fondo Fijo de Caja Chica recibirá devoluciones de dinero, únicamente en efectivo, sin excepción de ninguna clase, asimismo deberá ser en moneda nacional en curso. No podrán recibirse por este fondo notas de crédito.
