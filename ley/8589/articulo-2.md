@@ -1,2 +1,4 @@
 Artículo 2- Ámbito de aplicación. Esta ley se aplicará cuando las conductas tipificadas como delitos se dirijan contra una mujer, en el contexto o con ocasión de una relación o vínculo de pareja, sea matrimonial, unión de hecho, noviazgo, convivencia, de no convivencia, casual u otra análoga, aun cuando medie divorcio, separación o ruptura, siempre que la conducta no constituya un delito más grave o previsto con una pena mayor.
+Se amplía el ámbito de aplicación de esta ley para los supuestos contemplados en el artículo 21 bis, denominado "Femicidio en otros contextos", así como a lo establecido en el segundo párrafo de los artículos 22 "Maltrato", 23 "Restricción a la libertad de tránsito" y 27 "Amenazas contra una mujer" de esta ley.
+(Así adicionado el párrafo anterior por el artículo 1° de la Ley para establecer el femicidio ampliado, N° 10022 del 23 de agosto de 2021)
 (Así reformado por el artículo 1° de la ley N° 9975 del 14 de mayo de 2021)
