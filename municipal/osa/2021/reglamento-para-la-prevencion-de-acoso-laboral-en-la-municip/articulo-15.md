@@ -1,0 +1,1 @@
+Artículo 15.-Conformación del Órgano Director del Procedimiento. El Alcalde instruirá el Órgano Director del Procedimiento con personas que hayan sido previamente designadas para esos efectos, verificando además que no exista relación de parentesco por consanguinidad o afinidad, ni de subordinación jerárquica directa con las partes.

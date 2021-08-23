@@ -1,0 +1,1 @@
+Artículo 18.-Protección a la persona denunciante y denunciada. Tanto el Alcalde como el Órgano Director del Procedimiento, deberán velar porque se proteja a la persona que denuncia a fin de que se continúe la investigación y el debido proceso con la garantía de que no sea expuesta a condiciones de acoso laboral que se cumpla con el principio de confidencialidad.

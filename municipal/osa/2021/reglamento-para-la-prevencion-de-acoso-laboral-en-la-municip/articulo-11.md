@@ -1,0 +1,3 @@
+CAPÍTULO II
+Prevención del acoso laboral
+Artículo 11.-Medidas preventivas. El Proceso de Recursos Humanos de la Municipalidad de Osa, desarrollará un programa permanente de información y capacitación dirigido a todo el personal municipal, a efecto de prevenir aquellas conductas que constituyan acoso laboral y que incidan directamente en el clima laboral de la Institución. El Proceso de Recursos Humanos, deberá incluir dentro del programa de inducción para los funcionarios y funcionarias de nuevo ingreso, información referida al presente Reglamento de Acoso Laboral. Proponer proyectos de políticas institucionales en materia de acoso laboral. Velar por el efectivo cumplimiento de la reglamentación institucional en materia de acoso laboral.

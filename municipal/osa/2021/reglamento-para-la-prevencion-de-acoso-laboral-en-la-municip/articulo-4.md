@@ -1,0 +1,3 @@
+Artículo 4º-Del ámbito de aplicación. Este reglamento regula los procedimientos de prevención y sanciones de conductas y situaciones que constituyan acoso laboral en todas las relaciones de empleo que tienen las personas trabajadoras de la Municipalidad de Osa, su aplicación incluye también a las personas que trabajan en las posiciones de confianza.
+Será de obligatoria observancia de todos los jerarcas, titulares subordinados y todas las personas trabajadoras de la Municipalidad de Osa, el cumplimiento del presente reglamento.
+Las disposiciones de este Reglamento serán aplicables a las personas funcionarias por las conductas de acoso laboral que realicen en contra de personas no funcionarias, que presten sus servicios en las instalaciones de la Municipalidad de Osa.

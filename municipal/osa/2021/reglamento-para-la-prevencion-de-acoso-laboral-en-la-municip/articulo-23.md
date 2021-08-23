@@ -1,0 +1,1 @@
+Artículo 23.-Mientras dure la investigación y hasta la resolución del caso, se suspenderá los términos de prescripción para sancionar a las personas involucradas, todo de conformidad con el artículo 414 del Código de Trabajo.
