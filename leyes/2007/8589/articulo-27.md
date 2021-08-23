@@ -1,2 +1,4 @@
 Artículo 27- Amenazas contra una mujer. Quien amenace a una mujer, a su familia o a una tercera persona íntimamente vinculada, con quien mantenga o haya mantenido una relación o vínculo de e pareja, sea matrimonial, unión de hecho, noviazgo, convivencia, de no convivencia, casual u otra análoga, aun cuando medie divorcio, separación o ruptura, siempre que la conducta no constituya un delito más grave o previsto con una pena mayor, será sancionado con pena de prisión de seis meses a dos años.
+Igual pena se impondrá cuando las conductas de amenazas se cometan en alguno de los supuestos establecidos en el artículo 21 bis de esta ley.
+(Así adicionado el párrafo anterior por el artículo 3° de la Ley para establecer el femicidio ampliado, N° 10022 del 23 de agosto de 2021)
 (Así reformado por el artículo 1° de la ley N° 9975 del 14 de mayo del 2021)

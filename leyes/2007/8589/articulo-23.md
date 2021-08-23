@@ -1,2 +1,4 @@
 Artículo 23- Restricción a la libertad de tránsito. Será sancionado con pena de prisión de dos a diez años, quien, sin ánimo de lucro, prive o restrinja la libertad de tránsito a una mujer con quien mantenga o haya mantenido una relación o vínculo de pareja, sea matrimonial, unión de hecho, noviazgo, convivencia, de no convivencia, casual u otra análoga, aun cuando medie divorcio, separación o ruptura, siempre que la conducta no constituya un delito más grave o previsto con una pena mayor.
+Igual pena se impondrá cuando las conductas se cometan en alguno de los supuestos establecidos en el artículo 21 bis de esta ley.
+(Así adicionado el párrafo anterior por el artículo 3° de la Ley para establecer el femicidio ampliado, N° 10022 del 23 de agosto de 2021)
 (Así reformado por el artículo 1° de la ley N° 9975 del 14 de mayo del 2021)
