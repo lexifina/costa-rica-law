@@ -15,3 +15,4 @@ Medidas para control y reducción del gasto público
 | --- | --- | --- |
 | 1 | 2021-01-12 | la propia norma |
 | 2 | 2021-07-29 | Decreto Ejecutivo 43144 (2021-07-29) |
+| 3 | 2021-08-23 | Decreto Ejecutivo 43164 (2021-08-23) |

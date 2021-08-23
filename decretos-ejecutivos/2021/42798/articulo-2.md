@@ -4,9 +4,10 @@ b. En 2022, el límite superior será 85,56% de lo ejecutado en 2020.
 c. En 2023, el límite superior será 79,15% de lo ejecutado en 2020.
 d. En 2024, el límite superior será 73,21% de lo ejecutado en 2020.
 e. En 2025, el límite superior será 67,72% de lo ejecutado en 2020.
-Se exceptúan de lo dispuesto en este artículo, todas aquellas subpartidas de gasto asociadas al pago de obligaciones contractuales que los órganos del Gobierno de la República hubieren contraído de previo a la publicación del presente Decreto Ejecutivo. Además, se exceptúa la subpartida 1.05.04 Viáticos en el exterior para el Ministerio de Relaciones Exteriores y Culto, y el Ministerio de Comercio Exterior.
+Se exceptúan de lo dispuesto en este artículo, todas aquellas subpartidas de gasto asociadas al pago de servicios básicos, entendidos como los servicios de agua y alcantarillado, de energía eléctrica y de telecomunicaciones, así como las obligaciones contractuales que los órganos del Gobierno de la República hubieren contraído de previo a la publicación del presente Decreto Ejecutivo y aquellos contratos que sirvan para dar continuidad a dichos compromisos."
+Además, se exceptúa la subpartida 1.05.04 Viáticos en el exterior para el Ministerio de Relaciones Exteriores y Culto, y el Ministerio de Comercio Exterior.
 Asimismo, para el Ministerio de Relaciones Exteriores y Culto se exceptúan, únicamente para el periodo 2021 y 2022, las subpartidas 1.03.03 Impresión, encuadernación y otros, 1.03.04 Transporte de bienes, 1.99.03 Gastos de oficina en el exterior y 2.99.02 Útiles y materiales médicos, hospitalarios y de investigación.
 Por otra parte, queda exceptuada la aplicación de este artículo el Programa 787 "Actividades comunes a la atención de personas adscritas al sistema penitenciario nacional y prevención de la violencia y promoción de la paz social" y el Programa 789 "Atención de personas adscritas al sistema penitenciario nacional" del Ministerio de Justicia y Paz.
 Por su parte, para el Ministerio de Cultura y Juventud, se exceptúa la partida de 10499, Otros Servicios de Gestión y Apoyo.
 Asimismo, se exceptúa de la aplicación de este artículo al Ministerio de Seguridad Pública.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43144 del 29 de julio del 2021)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43164 del 23 de agosto del 2021)
