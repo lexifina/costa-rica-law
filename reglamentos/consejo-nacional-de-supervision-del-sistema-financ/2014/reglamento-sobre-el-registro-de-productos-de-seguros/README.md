@@ -18,3 +18,4 @@ Reglamento sobre el registro de productos de seguros
 | 3 | 2018-07-30 | Reglamento 1433 (2018-07-30) |
 | 4 | 2020-08-24 | Reglamento 1601 (2020-08-24) |
 | 5 | 2021-01-18 | Reglamento 1637 (2021-01-18) |
+| 6 | 2021-08-23 | Reglamento 1682 (2021-08-23) |
