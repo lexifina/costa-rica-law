@@ -17,3 +17,4 @@ Reglamento para el Cobro de Tarifas por Acarreo de Vehículos Detenidos por Infr
 | 2 | 2018-04-05 | Decreto Ejecutivo 41063 (2018-04-05) |
 | 3 | 2019-10-15 | Decreto Ejecutivo 42071 (2019-10-15) |
 | 4 | 2020-09-08 | Decreto Ejecutivo 42698 (2020-09-08) |
+| 5 | 2021-08-23 | Decreto Ejecutivo 43240 (2021-08-23) |
