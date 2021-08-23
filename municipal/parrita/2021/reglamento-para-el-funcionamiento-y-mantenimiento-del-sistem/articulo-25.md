@@ -1,0 +1,1 @@
+Artículo 25.-De la asistencia a las reuniones del CICI. Los titulares, personal o miembros de los comisión referidos en los artículos anteriores, deberán participar en las reuniones a las que se les convoque de forma obligatoria.

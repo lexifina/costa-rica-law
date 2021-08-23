@@ -1,0 +1,1 @@
+Artículo 34.-Responsabilidades en la implementación de autoevaluación: Serán responsables de la implementación de la autoevaluación, así como del seguimiento de los resultados de éstas; todos los funcionarios u órganos citados en el artículo 10 del presente Reglamento; aplicando las mismas responsabilidades descritas en el artículo 11.

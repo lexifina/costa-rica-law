@@ -1,0 +1,1 @@
+Artículo 58.-En todo lo que aquí no se contemple referente al informe de fin de gestión, deberá atenderse lo dispuesto en las Directrices D-1-2005-CO-DFOE, publicadas en La Gaceta N° 131, del 7 de julio del 2005 y sus modificaciones.

@@ -1,0 +1,1 @@
+Artículo 27.-Del Secretario de la Comisión: Se nombrara un secretario por mayoría simple de votos de sus miembros, quien asume la responsabilidad de las actas y demás documentos emitidos por la Comisión.

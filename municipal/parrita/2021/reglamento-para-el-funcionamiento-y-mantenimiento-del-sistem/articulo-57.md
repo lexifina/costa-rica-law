@@ -1,0 +1,7 @@
+Artículo 57.-Deberes del proceso de recursos humanos sobre la entrega de informes de fin de gestión. El proceso de Recursos Humanos desarrollara las siguientes acciones:
+a. Prevenir por escrito a los jerarcas o titulares subordinados, antes de que dejen su cargo sobre la obligación de cumplir con lo indicado en este reglamento. Dicha prevención se debe comunicar, en la medida de lo posible, un mes antes de que dejen el cargo, con copia para el proceso o unidad institucional encargada de la entrega y recepción de los bienes a esos funcionarios, para lo de su competencia.
+b. Entregar a los sucesores de los jerarcas o titulares subordinados una copia del informe de gestión de su antecesor en los casos que corresponda.
+c. Verificar la información de los informes conforme a lo establecido en el presente reglamento.
+d. Custodiar las copias de los informes de gestión que le sean remitidos.
+e. Mantener disponibles las copias de los informes de fin de gestión que reciba (digitales o impresas) para efectos de consultas de los ciudadanos interesados así como de cualquier órgano de control externo o interno, utilizando mecanismos de carácter oficial que estime pertinentes, como algún centro de documentación o bibliotecas institucionales, pizarra u otros medios que faciliten su acceso.
+f. Mantener un registro actualizado de los jerarcas y titulares subordinados que al final de su gestión cumplieron o no con la presentación del citado informe, el cual debe estar a disposición para consulta de quien lo requiera.

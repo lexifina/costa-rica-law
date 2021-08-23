@@ -1,0 +1,1 @@
+Artículo 33.-Metodología para la autoevaluación. La metodología deberá considerar la sistematización y evaluación integral de cada uno de los componentes del Sistema de Control Interno Institucional y las actividades de seguimiento correspondientes. La unidad de Control interno se encargara de definir e informar dicha metodología.

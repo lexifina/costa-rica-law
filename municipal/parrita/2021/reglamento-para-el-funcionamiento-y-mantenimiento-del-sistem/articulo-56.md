@@ -1,0 +1,5 @@
+Artículo 56.-Destinatarios. Los jerarcas y titulares subordinados deben presentar el respectivo informe de fin de gestión de manera impresa y en formato digital ante los destinatarios que seguidamente se indican, según corresponda:
+- Concejo Municipal: En el caso del Concejo Municipal, los regidores deberán presentar el informe de Fin de Gestión de forma individual a sus sucesores a través del Departamento de Recursos Humanos.
+- Alcalde (Alcaldesa): En el caso del Alcalde (Alcaldesa) Municipal, el informe de fin de gestión lo debe presentar a Concejo Municipal, con una copia para su sucesor.
+- Titulares Subordinados: En el caso de los Titulares Subordinados, el informe de fin de gestión lo debe presentar a su superior jerárquico inmediato, con una copia para su sucesor.
+En todos los casos anteriores se deberá remitir copia del informe al proceso de Recursos Humanos. Posteriormente hará el traslado del documento al proceso de Tecnología de Información y Comunicación para que éste proceda a colocar el documento en el sitio Web municipal, en aras de facilitar el acceso, por esa vía, por parte de cualquier ciudadano interesado.
