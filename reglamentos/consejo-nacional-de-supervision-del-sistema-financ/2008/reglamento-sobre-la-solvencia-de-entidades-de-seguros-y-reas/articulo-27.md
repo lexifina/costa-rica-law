@@ -1,5 +1,4 @@
-Artículo 27 Inversión en valores
-Al menos un 40% de los activos que respaldan provisiones técnicas, deben cumplir los siguientes requisitos:
+Artículo 27 Inversión en valores. Las entidades deben mantener al menos un 40% de los activos que respaldan los pasivos de seguro y las obligaciones por riesgo catastrófico en valores que cumplan los siguientes requisitos:
 1) Requisitos formales:
 Documentos de oferta pública admitidos a negociación en un mercado autorizado según el inciso 5 de este artículo.
 2) Moneda:
@@ -20,3 +19,4 @@ i) Acciones u otros títulos representativos de capital y otros valores de renta
 5) Mercados autorizados:
 a) Locales: Los autorizados por la Superintendencia General de Valores y las ventanillas de los emisores de deuda según lo dispone la legislación.
 b) Extranjeros: Mercados primarios o bolsas de valores, fiscalizadas e inscritas, cuando corresponda, por la entidad reguladora de la jurisdicción donde opera. Se entiende como mercados extranjeros autorizados las bolsas de valores o mercados OTC ubicados en los países miembros del Comité Técnico de la Organización Internacional de Comisiones de Valores (IOSCO) y de la Unión Europea. Las entidades deben disponer de un servicio que les permita acceder de manera oportuna a la información de precios y hechos relevantes de los instrumentos que negocian. Además, deben incorporar en el manual de procedimientos de inversión, de manera explícita, las políticas de inversión en mercados y valores extranjeros.
+(Así reformado mediante sesión N° 1682-2021del 23 de agosto del 2021)

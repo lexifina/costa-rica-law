@@ -1,0 +1,3 @@
+Artículo 19 ter Tasas de descuento. Los seguros denominados en moneda nacional con beneficios de rentas vitalicias, invalidez y sobrevivencia deberán descontar los flujos de efectivo, así como el pasivo por reclamaciones incurridas, considerando la curva de tasas de descuento que publicará la Superintendencia según lo dispuesto en los Lineamientos Generales para la Aplicación del Reglamento sobre la Solvencia de Entidades de Seguros y Reaseguros.
+En caso de que la entidad considere que esta curva de tasas de descuento no toma en cuenta las características del pasivo, podrá proponer una curva de tasas de descuento alternativa, que deberá ser autorizada por la Superintendencia.
+(Así adicionado mediante sesión N° 1682-2021del 23 de agosto del 2021)

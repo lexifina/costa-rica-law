@@ -1,0 +1,2 @@
+Artículo 21 bis. Metodología para el cálculo de las reclamaciones incurridas. Las entidades deben justificar y registrar ante la Superintendencia la metodología para el cálculo de las reclamaciones incurridas, incluyendo la metodología para la estimación de reclamaciones incurridas que aún no han sido reportadas (OYNR), dicha metodología deberá satisfacer los requerimientos exigidos por la Norma Internacional de Información Financiera 17 Contratos de Seguro (NIIF 17).
+(Así adicionado mediante sesión N° 1682-2021del 23 de agosto del 2021)

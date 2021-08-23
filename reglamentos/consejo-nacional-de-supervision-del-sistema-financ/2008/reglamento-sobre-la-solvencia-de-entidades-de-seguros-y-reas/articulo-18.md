@@ -1,18 +1,8 @@
 CAPÍTULO II
 PROVISIONES TÉCNICAS
-Artículo 18 Provisiones Técnicas
-Las provisiones técnicas deben reflejar el importe cierto o estimado de las obligaciones asumidas que se derivan de los contratos, así como el de los gastos relacionados con el cumplimiento de dichas obligaciones, y deben calcularse para todo el plazo de éstos, independientemente de la modalidad de pago de las pólizas. Las provisiones forman parte del pasivo de la entidad.
-Las entidades de seguros y reaseguros deben mantener provisiones técnicas para todas las obligaciones de seguro y de reaseguro que asuman frente a los tomadores, asegurados y beneficiarios de contratos de seguro y reaseguro.
-Las entidades de seguros y reaseguros deben mantener las siguientes provisiones técnicas:
-a) Provisión para prima no devengada (Anexo PT-1).
-b) Pr visión por insuficiencia de prima (Anexo PT-2).
-c) Provisión de seguros personales (Anexo PT-3).
-d) Provisión para siniestros (Anexo PT-4).
-e) Provisión de participación en los beneficios (Anexo PT-5).
-f) Provisión de seguros en los que el riesgo de inversión lo asume el tomador (Anexo PT-6).
-(Así reformado el inciso anterior mediante sesión N° 1363 del 3 de octubre de 2017)
-g) Provisión de riesgos catastróficos (Anexo PT-7).
-(Así adicionado el inciso anterior mediante sesión N° 1363 del 3 de octubre de 2017)
-Los parámetros específicos para cada provisión, se establecen en el anexo respectivo y forman parte integral de este reglamento.
-La entidad puede solicitar autorización para constituir otras provisiones o reservas de carácter técnico, a las que serán aplicables las regulaciones recogidas en este título.
-En cualquier caso, las provisiones se computarán en forma bruta, sin descontar reaseguro. En el caso de existir cesión de riesgos en reaseguro se debe reconocer un activo por dicha cesión, cuya metodología de determinación debe ser consistente con la aplicada en la constitución de la respectiva provisión.
+Artículo 18 Adecuación del nivel de los activos y pasivos de seguros. Sin perjuicio de la obligación de cumplir en todo momento con la estimación de los activos o pasivos de seguros, a solicitud de la Superintendencia, la entidad debe demostrar la adecuación del nivel de sus activos o pasivos de seguros, la aplicabilidad y pertinencia de los métodos empleados y la idoneidad de los datos estadísticos utilizados.
+En el evento de que el cálculo de los activos o pasivos de seguros de la entidad no cumplan con lo dispuesto en este Reglamento y los lineamientos asociados o en la normativa de información financiera dispuesta por el CONASSIF, el Superintendente puede exigir el ajuste correspondiente, sin perjuicio de las sanciones administrativas que corresponda.
+Las entidades deben remitir a la Superintendencia un informe sobre la suficiencia de sus activos o pasivos de seguros elaborado por un actuario independiente del área operativa encargada de la elaboración de las notas técnicas y del cálculo de dichos activos y pasivos.
+Este informe deberá prepararse con corte al 31 de diciembre de cada año y presentarse conjuntamente con los estados financieros auditados.
+Asimismo, cuando la Superintendencia lo requiera, las entidades deberán demostrar la adecuación de las metodologías empleadas para la determinación del pasivo por reclamaciones incurridas, para ello, las entidades deberán presentar un estudio de pruebas retrospectivas (backtesting) de dicho pasivo.
+(Así reformado mediante sesión N° 1682-2021del 23 de agosto del 2021)
