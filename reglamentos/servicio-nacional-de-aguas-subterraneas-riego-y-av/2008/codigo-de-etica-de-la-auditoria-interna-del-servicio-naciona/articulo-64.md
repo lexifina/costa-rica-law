@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Sanciones
+Artículo 64.—El personal de la Auditoría Interna que incumpla con el presente Código de Ética será sancionado con las medidas disciplinarias establecidas en el Reglamento Autónomo de Trabajo del SENARA, según la gravedad de la falta y atendiendo en todo caso el debido proceso. Las medidas disciplinarias serán aplicadas por parte de la Auditora Interna o del Jerarca cuando corresponda, sin perjuicio de la aplicación de otras medidas establecidas en el Código de Trabajo, la Ley General de Control Interno y cualquier otra legislación conexa.
+Se considerará falta grave, las infracciones a las disposiciones contenidas en los artículos 4, 5, 6, 7, 10, 14, 16, 21, 24, 31, 45, 46, 47, 48, 49, 52 y al Capítulo V de Prohibiciones. En estos casos, se sancionará según lo establecido en el Capítulo XIX del Reglamento Autónomo de Trabajo del SENARA relacionado con el Régimen Disciplinario. Infracciones a las disposiciones contenidas en otros artículos serán considerados faltas leves y se sancionarán según lo dispuesto en ese reglamento.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

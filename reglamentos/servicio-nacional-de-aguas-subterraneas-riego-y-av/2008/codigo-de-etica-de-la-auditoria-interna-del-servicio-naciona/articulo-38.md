@@ -1,2 +1,1 @@
-Artículo 38.—Compromiso ambiental. La gestión de la unidad de Auditoría se ejecutará bajo el criterio de compromiso ambiental asociado al consumo responsable de agua, energía y papel.
-(Así adicionado por acuerdo N° 5343 y publicado en la gaceta N° 239 del 13 de diciembre de 2016)
+Artículo 38.—Credibilidad. El personal de Auditoría debe realizar su labor aplicando los más altos valores morales y las normas legales, profesionales y técnicas actuales y reconocidas generalmente, así como su experiencia, de manera tal que el resultado final represente un aporte y reúna todas las condiciones requeridas para considerar su criterio plenamente creíble y confiable.

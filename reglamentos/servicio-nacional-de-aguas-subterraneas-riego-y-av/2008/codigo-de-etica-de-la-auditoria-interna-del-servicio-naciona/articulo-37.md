@@ -1,2 +1,1 @@
-Artículo 37.—Compromiso organizacional. El funcionario de auditoría deberá tener la capacidad personal y la buena voluntad de alinear el propio comportamiento con las necesidades, prioridades, principios, valores y objetivos de la Unidad de Auditoría Interna y del SENARA. En resumen, el personal de auditoría deberá creer en la institución y en la unidad en la cual labora y trabajar por ellas de manera positiva, dando lo mejor de sí.
-(Así reformado por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de diciembre de 2016)
+Artículo 37.—Puntualidad. La puntualidad debe ser una condición inherente a las responsabilidades y funciones del personal de Auditoría. Es un deber cumplir con el horario de trabajo establecido.

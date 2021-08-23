@@ -1,0 +1,2 @@
+Artículo 60.—Está prohibido para el personal de Auditoría establecer relaciones de índole personal o de cualquier otra naturaleza que puedan influir, comprometer o amenazar la capacidad para actuar, impliquen un riesgo de corrupción, afecten su independencia o comprometan la imagen de la Unidad.
+En tal sentido, deberá abstenerse de toda actividad, relación o acto que posibilite algún conflicto de interés.

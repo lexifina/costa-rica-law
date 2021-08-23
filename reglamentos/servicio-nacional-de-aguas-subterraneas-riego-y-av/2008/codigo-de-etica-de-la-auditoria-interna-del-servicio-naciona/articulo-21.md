@@ -1,2 +1,3 @@
-Artículo 21.—Respeto. Los funcionarios de la auditoría deberán reconocer en todo momento el valor inherente y los derechos de los individuos y de la sociedad. En este sentido observarán un trato amable y cortés hacia las personas que les rodean, aceptando las limitaciones ajenas y el reconocimiento de las virtudes de los demás, sin considerarse superiores a nadie y sin dar tratos discriminatorios. Se evitará en todo momento las ofensas, ironías y rechazará la promoción del chisme, las relaciones de desconfianza y la crítica con intención negativa y bajo ninguna circunstancia se utilizará la violencia como medio para imponer el criterio personal.
-(Así reformado por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de noviembre de 2016)
+Artículo 21.—Honestidad. El personal de Auditoría deberá conducir su actuación dentro del marco de los principios éticos que le impone este Código de Ética y demás normativa que establece el ordenamiento jurídico, la moral y las buenas costumbres.
+B- Valores
+El personal de Auditoría Interna deberá observar en todas sus actuaciones los siguientes valores:

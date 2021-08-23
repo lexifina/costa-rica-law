@@ -1,5 +1,7 @@
 CAPÍTULO II
-Principios y valores de los funcionarios
+Principios y Valores de los Funcionarios
 de la Auditoría Interna del SENARA
-A- Principios. El personal de auditoría debe comportarse de acuerdo con los siguientes principios:
-Artículo 4º—Espíritu de servicio. Las decisiones del personal de auditoría deben ser tomadas basadas únicamente en el interés público. No debe actuarse o hacer uso de la información obtenida en razón del cargo, con la intención de obtener un beneficio financiero o material de cualquier tipo para sí mismo, para parientes o amigos.
+A- Principios
+El personal de Auditoría debe comportarse de acuerdo con los siguientes principios:
+Artículo 4º—Objetividad e imparcialidad. Toda conclusión que emita el personal de Auditoría en informes, asesorías o advertencias, debe contener la expresión de su juicio fundado en elementos objetivos, justos, veraces, libres de conflicto de interés, favoritismos o influencias indebidas. Las conclusiones de los informes deben basarse exclusivamente en las pruebas obtenidas y unificadas de conformidad con normas de auditoría.
+En tal sentido, el servidor debe abstenerse de participar en decisiones en las cuales pueda existir algún interés o beneficio personal o familiar, o algún beneficio indebido para el interés particular de un tercero.

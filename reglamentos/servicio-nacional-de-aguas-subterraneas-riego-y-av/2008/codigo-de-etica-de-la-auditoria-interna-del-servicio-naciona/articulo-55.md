@@ -1,2 +1,1 @@
-Artículo 55.—Está prohibido para el personal de auditoría, el utilizar su cargo oficial, instalaciones, recursos, sistemas de cómputo, información, datos o servicios del SENARA con propósitos privados, de negocios o personales; o facilitar transacciones indebidas que propicien irregularidades.
-(Corrida su numeración por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de diciembre de 2016, que lo traspaso de antiguo artículo 53 al 55)
+Artículo 55.—En ningún caso el personal de Auditoría puede formar parte de un órgano director de un procedimiento administrativo.

@@ -1,0 +1,1 @@
+Artículo 59.—Está prohibido para el personal de Auditoría recibir regalos o gratificaciones que puedan interpretarse como intentos de influir sobre su independencia o integridad, al darse a cambio de un acto propio de sus funciones o contrario a estas funciones.

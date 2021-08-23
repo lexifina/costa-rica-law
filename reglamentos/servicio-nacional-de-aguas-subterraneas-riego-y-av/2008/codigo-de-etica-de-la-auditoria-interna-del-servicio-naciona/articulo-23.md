@@ -1,1 +1,1 @@
-Artículo 23.—Sinceridad. En el ejercicio de sus actividades, el personal de la auditoría debe buscar el predominio del criterio de veracidad, franqueza y honestidad en sus acciones, con el propósito de fundamentar la confianza y la credibilidad en sus trabajos.
+Artículo 23.—Solidaridad. El personal de Auditoría debe estar dispuesto permanentemente a colaborar de manera desinteresada en la satisfacción del bien común.

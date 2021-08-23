@@ -1,2 +1,1 @@
-Artículo 46.—El personal de auditoría deberá cuidar su vestimenta y arreglo personal según su investidura, para promover una imagen profesional adecuada.
-(Así adicionado por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de diciembre de 2016)
+Artículo 46.—El personal de Auditoría no sólo debe esforzarse por ser independiente de la Administración Activa del SENARA y de otros grupos interesados, evitando relaciones con los miembros de Junta Directiva, niveles gerenciales, personal del SENARA y otras personas, que puedan influir, comprometer o amenazar, de hecho, o apariencia su capacidad para actuar; sino que también debe ser objetivo al tratar los asuntos y temas sometidos a revisión.

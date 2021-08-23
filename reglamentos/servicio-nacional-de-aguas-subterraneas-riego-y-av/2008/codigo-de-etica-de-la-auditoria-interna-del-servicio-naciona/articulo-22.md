@@ -1,1 +1,1 @@
-Artículo 22.—Entrega al trabajo. El personal de auditoría aplicará el debido cuidado, pericia y esmero en las tareas, labores y deberes que son propios de sus funciones y en todo momento actuará en estricto apego a la normativa legal y técnica aplicable.
+Artículo 22.—Justicia. El personal de Auditoría debe conocer, respetar y hacer valer los derechos de las personas dentro del marco del estado de derecho y del respeto a los derechos humanos.

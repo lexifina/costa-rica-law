@@ -1,2 +1,1 @@
-Artículo 43.—El personal de auditoría debe proteger su independencia y evitar cualquier posible conflicto de intereses, rechazando regalos o gratificaciones que puedan interpretarse como intentos de influir sobre su independencia y su integridad, sin perjuicio del deber de denunciar antes las instancias competentes.
-(Corrida su numeración por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de diciembre de 2016, que lo traspaso de antiguo artículo 42 al 43)
+Artículo 43.—Compromiso ambiental. La gestión de la unidad de Auditoría se ejecutará bajo el criterio de compromiso ambiental asociado al consumo responsable de agua, energía y papel.

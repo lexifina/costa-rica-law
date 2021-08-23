@@ -1,4 +1,1 @@
-CAPÍTULO III
-Actitudes del personal de la Auditoría Interna del SENARA
-Las siguientes actitudes deberán ser consideradas en la gestión del personal de auditoría:
-Artículo 28.—Iniciativa. El personal de auditoría debe estar en capacidad de ser un agente activo de mejoramiento, proponiendo y tomando decisiones respecto a las distintas situaciones que se le presentan y de resolverlas de la mejor manera, ejerciendo además su derecho a que sus aportes sean considerados.
+Artículo 28.—Búsqueda de la excelencia. El personal de Auditoría debe actuar promoviendo la calidad y eficiencia a través de la evaluación y contribución en la mejora constante de los procesos de gestión de riesgos, control y gobierno corporativo. Debe existir un compromiso diario y riguroso a agregar valor a la institución.

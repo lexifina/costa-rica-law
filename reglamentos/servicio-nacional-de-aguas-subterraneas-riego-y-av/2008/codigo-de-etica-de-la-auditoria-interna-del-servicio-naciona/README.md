@@ -16,3 +16,4 @@ Código de Ética de la Auditoría Interna del Servicio Nacional de Aguas Subter
 | 1 | 2008-12-31 | la propia norma |
 | 2 | 2011-11-07 | Reglamento 606 (2011-11-07) |
 | 3 | 2016-12-13 | Reglamento 0 (2016-12-13) |
+| 4 | 2021-08-23 | Reglamento 805 (2021-08-23) |

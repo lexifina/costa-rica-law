@@ -1,1 +1,1 @@
-Artículo 20.—Solidaridad. Los funcionarios de la auditoría deberán estar dispuestos permanentemente a colaborar de manera desinteresada en la satisfacción del bien común.
+Artículo 20.—Responsabilidad. El personal de Auditoría deberá cumplir fielmente los mandatos y funciones de su cargo, logrando las metas y objetivos propuestos y responder frente a sus superiores, órganos de control y fiscalización, y frente a la ciudadanía en general, por el cumplimiento de las funciones de su cargo.
