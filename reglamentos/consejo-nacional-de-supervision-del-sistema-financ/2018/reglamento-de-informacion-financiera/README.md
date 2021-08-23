@@ -27,3 +27,4 @@ Reglamento de información financiera
 | 12 | 2020-12-21 | Reglamento 1634 (2020-12-21) |
 | 13 | 2021-01-28 | Reglamento 1640 (2021-01-28) |
 | 14 | 2021-07-19 | Reglamento 1674 (2021-07-19) |
+| 15 | 2021-08-23 | Reglamento 1682 (2021-08-23) |

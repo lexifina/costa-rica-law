@@ -1,0 +1,2 @@
+Transitorio IX. Para los estados financieros intermedios y anuales de las entidades de seguros al cierre de cada periodo del año 2024, se debe considerar lo indicado en la NIIF 17 respecto a la presentación comparativa del periodo anterior, el cual requiere la reexpresión de la información financiera del 2023 bajo alguno de los métodos establecidos en la norma.
+(Así adicionado mediante sesión N° 1682-2021del 23 de agosto del 2021)
