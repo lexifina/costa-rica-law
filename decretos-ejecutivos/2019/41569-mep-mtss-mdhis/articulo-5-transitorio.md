@@ -1,1 +1,0 @@
-Transitorio V.—El MEP y el MTSS realizarán las acciones necesarias para que, de conformidad con el inciso c) del artículo 5 y el artículo 6 del presente decreto, respectivamente, se giren de forma oportuna al IMAS los recursos para la ejecución del programa para iniciar la ejecución a partir del mes de julio del 2019.
