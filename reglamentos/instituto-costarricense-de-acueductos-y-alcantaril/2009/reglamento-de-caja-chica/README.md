@@ -16,3 +16,4 @@ Reglamento de Caja Chica
 | 1 | 2009-04-06 | la propia norma |
 | 2 | 2020-03-11 | Reglamento 15 (2020-03-11) |
 | 3 | 2021-02-02 | Reglamento 8 (2021-02-02) |
+| 4 | 2021-08-24 | Reglamento 55 (2021-08-24) |

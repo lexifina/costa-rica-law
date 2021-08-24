@@ -1,1 +1,4 @@
-Artículo 10.—Cambio de Valores Personales. Se prohíbe al administrador de un fondo fijo el cambio de cheques de cualquier cuenta personal, toda clase de cambio de valores a empleados o particulares, así como la emisión de cheques a caja o al portador.
+Artículo 10.—Ausencia del Administrador del Fondo Fijo
+En ausencia del administrador del fondo fijo de Caja Chica ya sea por enfermedad, vacaciones, permiso o cualquier otra circunstancia, quien lo sustituya gozará de los mismos derechos y obligaciones que establece el presente Reglamento.
+El traspaso del fondo fijo deberá realizarse mediante un arqueo, el cual puede efectuar el superior inmediato, en presencia tanto del administrador del fondo fijo como del funcionario que lo vaya a sustituir en sus funciones. El informe con el resultado del arqueo lo deberán firmar todos los funcionarios que participaron en su ejecución.
+En caso de ausencia del administrador titular del fondo fijo, el superior inmediato podrá realizar el arqueo ante un testigo (otro funcionario) y el informe de arqueo deberán firmarlo los funcionarios que participaron en su ejecución

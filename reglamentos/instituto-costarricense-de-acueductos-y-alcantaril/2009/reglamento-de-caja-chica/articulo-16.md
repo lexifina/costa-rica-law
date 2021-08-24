@@ -1,2 +1,2 @@
-Artículo 16.—Pago de Liquidaciones. Para proceder al pago de una “Liquidación de Gastos de Caja, o Gastos de Viaje” se deben utilizar el formulario autorizado por la Dirección Financiera, el cual se debe presentar debidamente lleno y firmado; junto con las facturas o documentos soportes que justifican el gastos, estos deben contener la firma de quien autoriza el gasto, según el “Registro de Firmas” y estar debidamente adheridos a una hoja.
-(Así reformado en sesión N° 15 del 11 de marzo del 2020)
+Artículo 16.—Usuarios Sistema SIAFF
+Todos los funcionarios que tramiten adelantos y liquidaciones por gastos de caja chica, viáticos y expensas serán considerados usuarios del sistema SIAFF (Sistema de Administración de Fondos Fijos) y deben utilizar un equipo de cómputo con los requerimientos definidos por la Dirección de Sistemas de Información del AyA para realizar los trámites en dicho sistema.

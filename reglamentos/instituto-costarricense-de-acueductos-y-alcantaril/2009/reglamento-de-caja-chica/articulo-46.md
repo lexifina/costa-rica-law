@@ -1,5 +1,2 @@
-CAPÍTULO VI
-Uso de Cuentas Bancarias.
-Artículo 46.—Monto Mínimo para Uso de Cuenta Bancaria. El dinero de las Cajas Chicas cuyo monto fijo aprobado sea superior a ¢500.000,00, se debe mantener en una cuenta bancaria a nombre del Instituto, para su administración por medio de cheques o transferencias electrónicas de fondos.
-(Así reformado el párrafo anterior en sesión N° 15 del 11 de marzo del 2020)
-Cada unidad debe evaluar de acuerdo al volumen de cheques emitidos y la disponibilidad de instalaciones seguras para custodiar los formularios en blanco, la conveniencia de utilizar formularios continuos y su debido control.
+Artículo 46.—Conciliación Bancaria
+El Superior de toda dependencia que administre una Caja Chica mediante una cuenta corriente, es responsable de asignar los recursos necesarios para que mensualmente se realice una conciliación de la cuenta bancaria entre los saldos, según el estado de cuenta del banco, con los saldos de la cuenta corriente (movimiento de bancos), siempre debe establecer las diferencias y su correspondiente investigación. El funcionario que realice la conciliación, en todos los casos, será diferente al administrador de la Caja Chica.

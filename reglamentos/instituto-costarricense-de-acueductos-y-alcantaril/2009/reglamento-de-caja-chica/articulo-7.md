@@ -1,2 +1,2 @@
-Artículo 7º—Custodia de Fondo Fijo. Es responsabilidad del Director o Superior de toda dependencia donde opere un fondo fijo de Caja Chica o disponer de la seguridad, equipo y medios de protección adecuados para custodiar y salvaguardar el dinero y bienes institucionales que estos administren.
-(Así reformado en sesión N° 15 del 11 de marzo del 2020)
+Artículo 7º—Custodia de Fondo Fijo
+Es responsabilidad del director o superior de toda dependencia donde opere un fondo fijo de Caja Chica, disponer de las condiciones y el equipo adecuado para la administración del fondo fijo, ya sea que este se opere en la dependencia o mediante la modalidad de teletrabajo.

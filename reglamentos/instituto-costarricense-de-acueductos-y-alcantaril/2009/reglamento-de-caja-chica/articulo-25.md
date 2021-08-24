@@ -1,2 +1,2 @@
-Artículo 25.—Dependencias Autorizadas. Los adelantos de viáticos se pagarán en las Cajas Chicas previamente autorizadas para tal efecto, en la Dirección de Finanzas, las Direcciones Regionales y cualquier otra dependencia autorizada.
-La Dirección de Finanzas tendrá la potestad de autorizar el pago de adelantos de viáticos y gastos de viaje en otras Cajas Chicas de la Institución, previo estudio donde se determine la necesidad.
+Artículo 25.—Dependencias Autorizadas
+Los adelantos de viáticos se pagarán en las Cajas Chicas de la Dirección de Finanzas, las Direcciones Regionales y cualquier otra dependencia previamente autorizada por la Dirección de Finanzas para tal efecto.

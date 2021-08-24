@@ -1,1 +1,4 @@
-Artículo 52.—Remisión del Informe de Conciliación Bancaria. La jefatura de la dependencia donde se administre un fondo fijo, debe remitir el informe original de Conciliación Bancaria Mensual a la Auditoria Interna, junto con una copia del estado de cuenta del banco y el arqueo al cierre de mes, a más tardar 30 días hábiles después de finalizado el mes conciliado y remitir copia de la nota y del Informe de Conciliación Bancaria a la Dirección de Finanzas. Cada unidad debe mantener una copia de estos documentos en sus archivos.
+CAPÍTULO IX
+Disposiciones Finales
+Artículo 52.—Derogatoria
+El presente Reglamento deroga totalmente el Acuerdo N° 97-370, adoptado por la Junta Directiva del Instituto Costarricense de Acueductos y Alcantarillados, en la sesión N° 1997-055, celebrada el 24 de noviembre de 1997, publicado en La Gaceta N° 13 del 20 de enero de 1998, mediante el cual se dictó el Reglamento General de Cajas Chicas y Fondos de Trabajo del Instituto Costarricense de Acueductos y Alcantarillados, así como cualquier otro acuerdo o directriz interno que se le oponga.

@@ -1,1 +1,6 @@
-Artículo 42.—Presentación Oportuna Documentos de Soporte. Toda factura o justificante de gasto deberá incluirse en la solicitud de reintegro correspondiente. No se aceptarán documentos soportes de gastos que de acuerdo con la fecha de pago, se debieron incluir en la solicitud anterior, salvo casos debidamente justificados por escrito por la jefatura del fondo fijo.
+Artículo 42.—Solicitud de Reintegro de Fondos
+Cuando el administrador del fondo fijo requiera presentar una solicitud de reintegro de fondos, deberá cumplir con lo siguiente:
+a. Registro en el Sistema Integrado Financiero Suministros de los gastos pagados.
+b. Emitir el reporte denominado “Reintegro de Fondos de Caja Chica” desde el Sistema de Administración de Fondos Fijos.
+c. Adjuntar documentos de soporte que respaldan la solicitud del reintegro: reporte reintegro detallado de caja chica, reintegro resumido de caja chica por posiciones financieras, arqueo de fondo fijo con sus respectivos anexos
+d. Aprobación del reintegro por parte de la jefatura correspondiente o el funcionario autorizado. El pago del reintegro de fondos de caja chica se hará por medio de transferencias electrónicas de fondos.

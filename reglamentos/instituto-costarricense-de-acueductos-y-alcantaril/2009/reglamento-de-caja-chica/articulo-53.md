@@ -1,1 +1,2 @@
-Artículo 53.—Remisión de Cheques Cancelados Por El Banco. El administrador del fondo fijo solicitará por escrito a la entidad bancaria la devolución de los cheques cancelados. La jefatura de la dependencia donde se administre un fondo fijo, debe remitir mediante nota a la Auditoria Interna, a más tardar 40 días hábiles después de finalizado el mes conciliado, los cheques cancelados entregados por el Banco; y remitir copia de la nota a la Dirección de Finanzas.
+Artículo 53.—Vigencia
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

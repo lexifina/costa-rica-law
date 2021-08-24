@@ -1,4 +1,3 @@
-Artículo 11.—Ausencia del Administrador del Fondo Fijo. En ausencia del administrador del fondo fijo de Caja Chica o del ya sea por enfermedad, vacaciones, permiso o cualquier otra circunstancia quien lo sustituya gozará de los mismos derechos y obligaciones que establece el presente Reglamento.
-(Así reformado el párrafo anterior en sesión N° 15 del 11 de marzo del 2020)
-El traspaso del fondo fijo deberá realizarse mediante un arqueo, el cual puede ser efectuado por el superior inmediato, en presencia tanto del administrador de fondo fijo, como del funcionario que lo vaya a sustituir en sus funciones. El informe con el resultado del arqueo deberá ser firmado por todos los funcionarios que participaron en su ejecución.
-En caso de ausencia del administrador de fondo fijo titular, el superior inmediato podrá realizar el arqueo ante un testigo (otro funcionario) y el informe de arqueo deberá ser firmado por los funcionarios que participaron en su ejecución.
+Artículo 11.—Apertura o Aumento de un Fondo Fijo
+La unidad interesada en la apertura o aumento de un fondo fijo de Caja Chica deberá justificar su solicitud ante la Dirección de Finanzas.
+La Dirección de Finanzas realizará el estudio técnico para que la Gerencia General tome la decisión correspondiente.

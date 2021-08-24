@@ -1,1 +1,2 @@
-Artículo 23.—Custodia y Conservación de Reintegros de Fondos. Es responsabilidad de la jefatura donde opere un Fondo Fijo o una Caja Chica archivar, custodiar y conservar debidamente las solicitudes de Reintegros de Fondos de Caja Chica tramitadas, estas deberán estar acompañadas de la documentación soporte cancelada con cada reintegro.
+Artículo 23.—Custodia y Conservación de Reintegros de Fondos
+Las solicitudes de reintegros tramitadas en un fondo fijo se archivarán en forma digital, para estos fines se utiliza el medio que defina la Dirección de Tecnologías de Información. Esta función forma parte integral del sistema SIAFF.

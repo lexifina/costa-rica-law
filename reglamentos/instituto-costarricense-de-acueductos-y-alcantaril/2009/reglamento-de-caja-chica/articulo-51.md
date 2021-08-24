@@ -1,4 +1,2 @@
-Artículo 51.—Conciliación Bancaria. El Superior de toda dependencia que administre una Caja Chica o, mediante una cuenta corriente, es responsable de asignar los recursos necesarios para que mensualmente se realice una conciliación de la cuenta bancaria entre los saldos según estado de cuenta del banco, con los saldos de la cuenta corriente (movimiento de bancos), estableciendo las diferencias y su correspondiente investigación.
-(Así reformado el párrafo anterior en sesión N° 15 del 11 de marzo del 2020)
-El funcionario que realice la conciliación, en todos los casos, será diferente al administrador de la Caja Chica.
-(Así reformado el párrafo anterior en sesión N° 15 del 11 de marzo del 2020)
+Artículo 51.—Incumplimiento del Reglamento
+El funcionario que incumpla con las disposiciones del presente reglamento, así como las directrices vinculadas con este y las disposiciones que emane la Contraloría General de la República, se remitirá a la Administración Superior para la investigación disciplinaria; de manera que se le establezca la sanción que corresponda, de conformidad con el libro II del Procedimiento Administrativo de la Ley General de Administración Pública.

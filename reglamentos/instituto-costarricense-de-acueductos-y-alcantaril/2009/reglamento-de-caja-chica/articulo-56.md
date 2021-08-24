@@ -1,1 +1,0 @@
-Artículo 56.—Sujeción al Reglamento. Los encargados de la administración de un adelanto de gasto con vigencia máxima de un mes, quedan supeditados al cumplimiento de las disposiciones de este reglamento en lo que a ellos les compete, además, serán responsables del efectivo, valores y documentos bajo su custodia; así como el pago correcto de los desembolsos autorizados.

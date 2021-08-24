@@ -1,1 +1,2 @@
-Artículo 14.—Prohibición Compra de Activos. (Derogado mediante sesión ordinaria N° 2021-08 del 2 de febrero del 2021)
+Artículo 14.—Asignación de Firma Digital
+Para los funcionarios cuyas huellas dactilares en ninguno de sus dedos puedan ser registradas en el sistema, su superior deberá gestionar lo correspondiente para que se le asigne una firma digital, cuyo dispositivo podrá ser custodiado en la dependencia donde el funcionario realice sus trámites de adelantos y liquidaciones de gastos de caja chica, esto con el fin de evitar daños o extravíos constantes de la tarjeta y el dispositivo de firma digital, producto de las tareas que realizan estos funcionarios.

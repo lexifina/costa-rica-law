@@ -1,1 +1,8 @@
-Artículo 37.—Reiteración de Faltantes. Cuando en un fondo fijo se presenten faltantes en forma reiterada, el superior inmediato deberá ordenar una investigación a efecto de determinar las causas de esta situación y realizar las acciones que corresponda.
+Artículo 37.—Control para Cálculo de Asignación para Faltantes
+Para los efectos del cálculo de la “Asignación de Faltantes para Caja Chica” el superior inmediato deberá llevar un control de los días trabajados por el administrador titular del fondo y los funcionarios que hayan laborado como suplentes en ausencia del titular. Es responsabilidad del superior inmediato donde opere un fondo fijo, elaborar un informe actualizado, en el cual indique:
+a. Nombre del Administrador del fondo fijo.
+b. Días efectivamente laborados en el mes.
+c. Cálculo de la Asignación para Faltantes de Caja.
+d. Copia de los oficios por faltantes de caja emitidos en el mes y número de registro contable.
+e. Copias de los Informes de Arqueo de Caja donde se reflejan los faltantes.
+f. Copia del Informe de Arqueo donde se indique la forma en que se normalizó el fondo fijo.

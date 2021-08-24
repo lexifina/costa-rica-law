@@ -1,2 +1,4 @@
-Artículo 17.—Documentos de Respaldo de Un Pago. Es responsabilidad del administrador del fondo fijo estampar el sello de “Cancelado” en todo documento que respalde un pago realizado por Caja Chica, e indicar si el pago se realizó en “Efectivo” o con “Cheque”. Si se canceló con cheque deberá anotar el número del mismo y la fecha de emisión, así como el número de documento contable con el cual se registró esa transacción en el Sistema Integrado Financiero Suministros (SIFS).
-(Así reformado en sesión N° 15 del 11 de marzo del 2020)
+CAPÍTULO II
+De los Pagos
+Artículo 17.—Pago a Nombre de Proveedor
+El pago de compras de bienes y servicios por montos mayores a cien mil colones, solo podrá girarse a nombre de la empresa o proveedor y este requerimiento debe indicarse en el formulario denominado “Liquidación de Gastos de Caja Chica”, con excepción de los casos de adelantos de caja chica superiores a cien mil colones, autorizados en el artículo 24 de este Reglamento.

@@ -1,3 +1,4 @@
-Artículo 40.—Informe Anual de Asignación de Faltantes. Es responsabilidad del Director o Superior de toda dependencia donde funcione una Caja Chica cuyo monto fijo sea superior a ¢150.000,00, realizar en enero de cada año, el “Informe Anual de Liquidación de Asignación de Faltantes para Caja Chica” del año anterior, del administrador titular del fondo fijo y sustitutos temporales y remitirlo a la Dirección de Gestión del Capital Humano a para que se realice el pago de la asignación anual a través de la planilla, asimismo a la Dirección de Finanzas y al Área Financiera que corresponda.
-(Así reformado el párrafo anterior en sesión N° 15 del 11 de marzo del 2020)
-En caso de que un administrador del Fondo Fijo cese sus labores como empleado de la Institución antes del cierre del año, es responsabilidad del Director o Superior remitir este informe a la Dirección de Gestión del Capital Humano en la fecha en que ocurra ese hecho.
+CAPÍTULO V
+De los Reembolsos de Caja
+Artículo 40.—Frecuencia de los Reintegros
+Los reintegros deberán ser preparados y tramitados diariamente o con la frecuencia que el volumen de gastos y la disponibilidad de cada fondo fijo lo demanden.

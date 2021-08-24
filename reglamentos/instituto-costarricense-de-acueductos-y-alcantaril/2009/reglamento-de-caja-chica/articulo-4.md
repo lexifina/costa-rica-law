@@ -1,2 +1,3 @@
-Artículo 4º—Contenido Presupuestario. Es responsabilidad del Director o del funcionario autorizado por este para autorizar adelantos o liquidaciones de caja chica o, velar porque estos cuenten con el contenido presupuestario suficiente, a efecto de que el proceso de liquidación se realice en el tiempo reglamentado.
-(Así reformado en sesión N° 15 del 11 de marzo del 2020)
+Artículo 4º—Contenido Presupuestario
+Es responsabilidad del director o el funcionario acreditado por este para autorizar adelantos de caja chica, viáticos o liquidaciones de gastos de caja, gastos de viaje y expensas, velar porque estos cuenten con el contenido presupuestario suficiente, para efecto de que el proceso de liquidación se realice en el tiempo reglamentado.
+Es responsabilidad del director o superior de toda dependencia en la cual opere un fondo fijo de caja chica, velar porque se cuente con el contenido presupuestario para el registro de los gastos por comisiones bancarias, cuando estos se generan producto de las transferencias electrónicas que se realizan en el fondo fijo.

@@ -1,6 +1,3 @@
-Artículo 39: Cálculo de la Asignación para Faltantes. Se reconocerá al administrador de Caja Chica la cuota de asignación diaria por el número de días laborados en funciones de administrador del fondo fijo. El cálculo de esta asignación se realizará a partir de un porcentaje anual del monto fijo de acuerdo a la siguiente tabla:
-(Así reformado el párrafo anterior en sesión N° 15 del 11 de marzo del 2020)
-a. De ¢150.000,00 a ¢1.000.000,00 se aplicará un 1%
-b. De ¢1.000.001,00 a ¢2.000.000,00 se aplicará un 1/2%
-c. De ¢2.000.001,00 a ¢20.000.000,00 se aplicará un 1/4%
-d. De ¢20.001.000,00 en adelante un 1/5%
+Artículo 39.—Informe Anual de Asignación de Faltantes
+Es responsabilidad del Director o Superior de toda dependencia donde funcione una Caja Chica cuyo monto fijo sea superior a ¢150.000,00; en enero de cada año, efectuar el “Informe Anual de Liquidación de Asignación de Faltantes para Caja Chica” del año anterior, del administrador titular del fondo fijo y sustitutos temporales y remitirlo a la Dirección de Gestión de Capital Humano, para que se realice el pago de la asignación anual por medio de la planilla, asimismo a la Dirección de Finanzas y al Área Financiera que corresponda.
+En caso de que un administrador del Fondo Fijo cese sus labores como empleado de la institución antes del cierre del año, es responsabilidad del director o superior remitir este informe a la Dirección de Gestión de Capital Humano en la fecha en que ocurra ese hecho.
