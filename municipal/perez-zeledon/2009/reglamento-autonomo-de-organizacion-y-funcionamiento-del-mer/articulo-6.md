@@ -1,4 +1,0 @@
-Artículo 6º—Organización interna:
-1. El Mercado, y la Terminal de Buses, se organizará internamente en zonas o sectores comerciales destinados a la venta de artículos similares.
-2. El Concejo, conforme a la competencia de sus órganos, estará facultada para denegar un cambio de actividad solicitado por las personas comerciantes que sean concesionarias de locales en estos inmuebles cuando el mismo esté en contra de la zonificación y sectorización que haya sido definida para cada uno de estos inmuebles.
-3. Asimismo cuando autorice un cambio de actividad de un local a otro en estos inmuebles demaniales de la Municipalidad en contra del plano de zonificación correspondiente, deberá fundamentar y motivar su decisión en criterios técnicos suficientes que apoyen la conveniencia del cambio autorizado y sin que se afecte el servicio público general brindado en estos lugares ni las actividades comerciales previamente autorizadas en sitios aledaños dentro de estos inmuebles.

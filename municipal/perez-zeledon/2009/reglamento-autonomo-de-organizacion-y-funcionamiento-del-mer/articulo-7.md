@@ -1,6 +1,0 @@
-CAPÍTULO II
-Competencias de los órganos municipales
-Artículo 7º—De la administración del mercado y la terminal de buses:
-1. La Administración del Mercado Municipal y la Terminal de Buses corresponderá al órgano institucional denominado Actividad de Mercado y Terminal de Buses adscrita al Proceso de Desarrollo, Control Urbano y Servicios Municipales de esta Municipalidad.
-2. Esta actividad será la facultada para resolver aquellos procedimientos y demás instancias particulares o de los funcionarios municipales que procedan en cuanto al buen uso y al cumplimiento de las normas de este Reglamento en las relaciones de sujeción especial entre las personas concesionarias de locales comerciales en estos inmuebles y la Administración Municipal. Lo anterior sin detrimento de lo que establece este mismo Reglamento en cuanto a la competencia de la persona titular de la Alcaldía Municipal y del Concejo Municipal.
-3. Esta Actividad será la encargada de tramitar los expedientes administrativos sancionatorios y disciplinarios que se originen por infracciones a este Reglamento o al ordenamiento jurídico de las personas concesionarias de locales comerciales en razón de existir una relación de sujeción especial entre ellas.

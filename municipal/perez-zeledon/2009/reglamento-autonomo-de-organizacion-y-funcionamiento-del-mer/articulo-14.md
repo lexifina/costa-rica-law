@@ -1,6 +1,0 @@
-CAPÍTULO V
-De las personas concesionarias de locales en estos inmuebles
-Artículo 14.—De la calidad de persona concesionaria: Tendrán la calidad de persona concesionaria del Mercado o Terminal de Buses las siguientes personas:
-a) Quienes ejerzan una actividad comercial o de servicios dentro de las instalaciones de los inmuebles dichos y que estén expresamente autorizados para este fin por parte de la Municipalidad ya sea por haber adquirido el derecho en precario al uso de la porción del inmueble por el procedimiento de subasta pública o bien por la autorización expresa de la Municipalidad para tal fin.
-b) Las personas cesionarias cuya cesión de derechos de uso en precario haya sido aprobado previamente por el Concejo Municipal y siguiendo el trámite dispuesto en este Reglamento. Sin la aprobación citada, la cesión carecerá de cualquier valor y no será oponible a terceros.
-c) Las personas causahabientes de la persona concesionaria así declarados en sentencia firme por el Poder Judicial. En todos estos casos la persona o personas, físicas o jurídicas, interesados en obtener la calidad de concesionaria deberán previamente suscribir un Contrato de Uso en Precario del Local con la Municipalidad o, en su defecto, demostrar que ya existe este documento y que está vigente a la fecha.

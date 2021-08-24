@@ -1,6 +1,0 @@
-Artículo 26.—De las mejoras de los locales:
-1. Queda terminantemente prohibido al concesionario introducir mejoras de cualquier clase en los locales comerciales de estos inmuebles, sin previa autorización por parte del órgano correspondiente.
-2. La persona interesada solicitará la respectiva autorización a la Actividad antes indicada mediante una nota que se dirigirá en papel común y tamaño carta.
-3. Toda mejora autorizada que se introduzca a los inmuebles dichos, se tendrá por incorporada al inmueble respectivo a la terminación o vencimiento del contrato por cualquier causa, sin que la Municipalidad tenga que resarcir el costo de las mismas, salvo que dichas mejoras puedan separase sin detrimento del local y con el permiso de la Administración.
-4. Previa autorización de separar las mejoras al concesionario, la Municipalidad no responderá por lo invertido en dichas mejoras, si la persona interesada no las retira dentro de los 15 días naturales posteriores al vencimiento o terminación del contrato, en cuyo caso la Administración tomará las medidas necesarias para su retiro.
-5. En todas las mejoras que se realizan en los locales comerciales del Mercado municipal o Terminal de buses, aplicarán las disposiciones legales que corresponden según lo amerite cada caso concreto.
