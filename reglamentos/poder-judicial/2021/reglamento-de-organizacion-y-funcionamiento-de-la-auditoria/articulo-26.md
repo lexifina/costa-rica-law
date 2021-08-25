@@ -1,0 +1,7 @@
+CAPÍTULO IV
+DEL PERSONAL DE LA AUDITORÍA
+SECCIÓN I
+Del Auditor o Auditora y Subauditor o Subauditora
+Artículo 26.- Nombramiento, suspensión y destitución del Auditor o Auditora Interna, Subauditor o Subauditora Interna. El nombramiento, suspensión y destitución del Auditor o Auditora Interna, Subauditor o Subauditora, se fundamentará en el artículo 15 de la Ley N.º 7428, el artículo 31 de la Ley N.º 8292 y el artículo 91 de la Ley N.º 7333, además de los lineamientos establecidos por el Órgano Contralor en el documento R-DC-83-2018 de las ocho horas del nueve de julio del dos mil dieciocho denominado "Lineamientos sobre gestiones que involucran a la auditoría internas presentadas ante la CGR", o cualquiera otra normativa establecida por la Contraloría para esos efectos.
+El nombramiento del Auditor o Auditora Interna, Subauditor o Subauditora Interna, será por tiempo indefinido y lo hará la Corte Plena por concurso público, se juramentará ante la Presidencia de ésta y deberá rendir garantía en la forma y por el monto que estipule la Ley N.º 7333. El Auditor o Auditora Interna dependerá y responderá directamente por su gestión ante la Corte Plena y solo podrá ser removido del cargo por justa causa y por decisión emanada del jerarca respectivo, previa formación de expediente, con oportunidad suficiente de audiencia y defensa en su favor, así como dictamen previo favorable de la Contraloría General de la República.
+La jornada laboral del Auditor o Auditora Interna y del Subauditor o Subauditora Interna será de tiempo completo.

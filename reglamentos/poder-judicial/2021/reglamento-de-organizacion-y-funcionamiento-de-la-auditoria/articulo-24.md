@@ -1,0 +1,2 @@
+Artículo 24.- Confidencialidad en cuanto a las denuncias que se trasladen al Ministerio Público. Cuando una denuncia se traslade al Ministerio Público, tanto la denuncia como los registros de trabajo que la sustentan, quedan cubiertos por las regulaciones de acceso propias del proceso penal y será competencia de dicho órgano acusador, decidir sobre las solicitudes referentes a dicha información.
+Para el articulado 20, 21, 22, 23 y 24 se deberán considerar con carácter vinculante las resoluciones que al respecto emita la Sala Constitucional.

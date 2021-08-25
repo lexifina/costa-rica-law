@@ -1,0 +1,9 @@
+Artículo 33.- Participación del Auditor o Auditora Interna en sesiones ordinarias y extraordinarias de los órganos de la administración. Con la finalidad de mantener su objetividad e independencia de criterio, la participación del Auditor o Auditora Interna en las sesiones de los órganos de la administración debe ser la excepción y no la regla; bajo las siguientes condiciones:
+a) Asistir con voz pero, sin voto.
+b) Asistir cuando lo estime conveniente para el cabal cumplimiento de sus deberes, o cuando sea convocado por el Órgano administrativo facultado.
+c) Brindar su asesoría únicamente en asuntos de su competencia y sin que menoscabe o comprometa su independencia y objetividad en el desarrollo posterior de sus demás competencias.
+d) El Auditor Interno conservará la potestad de abstenerse de asistir a una sesión en particular, cuando considere que ello podría afectar su independencia y objetividad. (CGR DFOE-EC-0442-2016).
+e) Pedir y vigilar que su opinión conste en las actas respectivas.
+f) Posibilidad de posponer su opinión, cuando a su criterio y por la complejidad del asunto en discusión, requiera recabar mayores elementos de juicio, sin perjuicio de la potestad del jerarca para decidir de inmediato o postergar su decisión el tiempo que considere prudente y conveniente.
+g) Ni la presencia del auditor en reuniones en que se traten asuntos que incumben a la administración ni el silencio que guarde que no emita opinión sobre ellos, releva de responsabilidad a la administración activa sobre lo que decida y ejecute. (DFOE-PG-330-2011).
+h) Ni la presencia del auditor en reuniones en que se traten asuntos que incumben a la administración ni el silencio que guarde limitará en forma alguna la posibilidad del auditor de analizar el tema en evaluaciones posteriores, en ejercicio de sus competencias de auditoría. (DFOE-PG-330-2011).

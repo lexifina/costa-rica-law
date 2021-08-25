@@ -1,0 +1,1 @@
+Artículo 56.- Informes de auditoría en borrador dirigidos al Consejo Superior. Cuando los informes sean dirigidos al Consejo Superior, se dispondrá de un plazo no mayor a los 15 días hábiles para la discusión del informe, contado a partir de su emisión por parte de la Auditoría Interna; la cual coordinará lo correspondiente para la debida reunión.
