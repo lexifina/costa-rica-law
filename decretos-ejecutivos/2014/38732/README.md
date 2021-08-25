@@ -14,3 +14,4 @@ Publica Resolución N° 339-2014 (COMIECO-LXVll) del 25/04/2014 y sus Anexos: "R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-12-11 | la propia norma |
+| 2 | 2021-08-25 | Decreto Ejecutivo 43229 (2021-08-25) |

@@ -4,7 +4,7 @@ LA MINISTRA DE SALUD Y LOS MINISTROS DE COMERCIO EXTERIOR
 Y DE ECONOMIA, INDUSTRIA Y COMERCIO
 De conformidad con las facultades y atribuciones que les conceden los artículos 50, 140 incisos 3). 8). 10). 18) y 20); y 146 de la Constitución Política: los artículos 4. 25. 27 parra lo 1, 28 párrafo 2 inciso b) y 142 párrafo :2 de la Ley General de la Adrninistración Pública, Ley N° 6227 del 02 de mayo de 1978; los artículos 1. 3. 5. 7, 15.26,30. 36. 37. 38. 39. 46. 52 y 55 del Protocolo al Tratado General de Integración Económica Centroamericana. Ley de Aprobación N° 7629 del 26 de septiembre de 1996: y
 CONSIDERANDO:
-I.- Que el Consejo de Ministros de Integración Económica (COMIECO). mediante la Resolución N° 339-2014 (COMIECO-LXVIl) de fecha 25 de abril de 2014. en el marco del proceso de conformación de una Unión Aduanera Centroamericana. aprobó el “Reglamento Técnico Centroamericano RTCA 11.03.42.07 Productos Farmacéuticos Medicamentos Para Uso Humano. Buenas Prácticas de Manufactura para la lndustria Farmacéutica" (Anexo 1) y la "Guía de Verificación del Reglamento Técnico Centroamericano RTCA 11.03.42.07 Reglamcnto Técnico sobre Buenas Prácticos de Manufactura poro la Industria Farmacéutica. Productos Farmacéuticos y Medicamentos de uso Humano'' (Anexo 2), ambos en la forma que aparecen en los Anexos a la Resolución en mención,
+I.- Que el Consejo de Ministros de Integración Económica (COMIECO). mediante la Resolución N° 339-2014 (COMIECO-LXVIl) de fecha 25 de abril de 2014. en el marco del proceso de conformación de una Unión Aduanera Centroamericana. aprobó el "Reglamento Técnico Centroamericano RTCA 11.03.42.07 Productos Farmacéuticos Medicamentos Para Uso Humano. Buenas Prácticas de Manufactura para la lndustria Farmacéutica" (Anexo 1) y la "Guía de Verificación del Reglamento Técnico Centroamericano RTCA 11.03.42.07 Reglamcnto Técnico sobre Buenas Prácticos de Manufactura poro la Industria Farmacéutica. Productos Farmacéuticos y Medicamentos de uso Humano'' (Anexo 2), ambos en la forma que aparecen en los Anexos a la Resolución en mención,
 II.- Que Costa Rica mediante el Decreto Ejecutivo N° 35994-S del 19 de abril de 2010: promulgó el "Reglamento Técnico sobre buenas prácticas de Manufactura para la Industria Farmacéutica, Productos Farmacéuticos y Medicamentos de Uso Humano", publicado en el Diario Oficial La Gaceta N° 91 del 12 de mayo de 2010: por lo que al emitir el Consejo de Ministros de Integración Económica el "Reglamento Técnico Centroamericano RTCA 11.03.42.07 Productos Farmacéuticos. Medicamentos Para Uso Humano. Buenas Prácticas de Manufactura para la Industria Farmacéutica" (Anexo 1) y la "Guia de Verificación del Reglamento Técnico Centroamericano RTCA 11.03.12.07 Reglamento Técnico sobre Buenas Prácticas de Manufactura para la Industria Farmacéutica. Productos Farmacéuticos y Medicamentos de uso Humano" (Anexo 2)"'. en la forma en que aparecen corno Anexos a la Resolución N° 339-2014 (COMIECO-L.XVII) del 25 de abril de 2014, es necesario derogar y adecuar las referencias normativas en Ia reglamentación técnica costarricense a partir de la entrada en vigencia de la reglamentación técnica centroamericana, de con formidad con la parte dispositiva de dicha Resolución.
 III.- Que en cumplimiento de lo indicado en dicha Resolución, se procede a su publicación.
 Por tanto;
@@ -16,7 +16,7 @@ Manufactura para la Industria Farmacéutica" (Anexo 1) y "Guía de Verificación
 Reglamento Técnico Centroamericano RTCA 11.03.42:07 Reglamento Técnico sobre
 Buenas Prácticas de Manufactura para la Industria Farmacéutica. Productos
 Farmacéuticos y Medicamentos de uso Humano" (Anexo 2).
-Artículo 1.- Publíquense la Resolución N° 339-2014 (COM I ECO-LXVII) del Consejo de Ministros de Integración Económica de fecha 25 de abril de 2014 y sus Anexos: "Reglamento Técnico Centroamericano RTCA 11.03.42:07 Productos Farmacéuticos Medicamentos para uso Humano. Buenas Prácticas de Manufactura para la Industria Farmacéutica" (Anexo 1) y la "Guía de Verificación del Reglamento Técnico Centroamericano RTCA 11.03.42.07 Reglamento Técnico sobre Buenas Prácticas de Manufactura para la Industria Farmacéutica Productos Farmacéuticos y Medicamentos de uso Humano” (Anexo 2), que a continuación se transcriben:
+Artículo 1.- Publíquense la Resolución N° 339-2014 (COM I ECO-LXVII) del Consejo de Ministros de Integración Económica de fecha 25 de abril de 2014 y sus Anexos: "Reglamento Técnico Centroamericano RTCA 11.03.42:07 Productos Farmacéuticos Medicamentos para uso Humano. Buenas Prácticas de Manufactura para la Industria Farmacéutica" (Anexo 1) y la "Guía de Verificación del Reglamento Técnico Centroamericano RTCA 11.03.42.07 Reglamento Técnico sobre Buenas Prácticas de Manufactura para la Industria Farmacéutica Productos Farmacéuticos y Medicamentos de uso Humano" (Anexo 2), que a continuación se transcriben:
 RESOLUCIÓN No. 339-2014 (COMIECO-LXVII)
 EL CONSEJO DE MINISTROS DE INTEGRACIÓN ECONÓMICA
 CONSIDERANDO:
@@ -56,11 +56,11 @@ Correspondencia: Este reglamento tiene correspondencia con el informe 32 elabora
 el Comité de Expertos de la Organización Mundial de la Salud.
 Reglamento Técnico Centroamericano editada por:
 RTCA 11.03.42:07
-• Ministerio de Economía, MINECO
-• Organismo Salvadoreño de Reglamentación Técnica, OSARTEC
-• Ministerio de Fomento, Industria y Comercio, MIFIC
-• Secretaria de Industria y Comercio, SIC
-• Ministerio de Economía, Industria y Comercio, MEIC
+. Ministerio de Economía, MINECO
+. Organismo Salvadoreño de Reglamentación Técnica, OSARTEC
+. Ministerio de Fomento, Industria y Comercio, MIFIC
+. Secretaria de Industria y Comercio, SIC
+. Ministerio de Economía, Industria y Comercio, MEIC
 INFORME
 Los respectivos Comités Técnicos de Normalización a través de los Entes de Normalización de los Estados Miembros que Integran la Región Centroamericana, y sus sucesores, son los organismos encargados de realizar el estudio o la adopción de los Reglamentos Técnicos. Están integrados por representantes de la Empresa Privada, Gobierno, Organismos de Protección al Consumidor y Académico Universitario.
 Este documento fue aprobado como Reglamento Técnico Centroamericano RTCA 11.03.42:07 PRODUCTOS FARMACEUTICOS. MEDICAMENTOS DE USO HUMANO. BUENAS PRÁCTICAS DE MANUFACTURA PARA LA INDUSTRIA FARMACEUTICA, por los Subgrupos de Medidas de Normalización y Medicamentos y Productos Afines de la Región Centroamericana. La oficialización de este Reglamento Técnico, conlleva la aprobación por el Consejo de Ministros de Integración Económica (COMIECO).
@@ -307,7 +307,7 @@ Debe existir área de muestreo para las materias primas que esté separada de [a
 8.2.7 Del almacenamiento de productos rechazados, retirados y devueltos.
 El almacenamiento de materiales o productos rechazados, retirados del mercado o devueltos debe efectuarse en áreas separadas, identificadas, de acceso restringido, bajo llave y documentado.
 8.2.8 De la rotación de los materiales.
-Los materiales deben almacenarse de manera que faciliten la rotación de los mismos según la regla “primero que vence primero que sale"
+Los materiales deben almacenarse de manera que faciliten la rotación de los mismos según la regla "primero que vence primero que sale"
 8.2.9 Del uso de tarimas o estanterías.
 Los materiales y productos deben identificarse y colocarse sobre tarimas o estanterías que permitan la limpieza e inspección.
 8.2.10 Del almacenamiento de estupefacientes y psicotrópicos.
@@ -868,16 +868,15 @@ La producción y el análisis de productos por terceros deben ser definidos, de 
 El contrato debe estipular claramente las obligaciones de cada una de las partes, con relación a la fabricación, manejo, almacenamiento, control y liberación del producto.
 15.1.4 Del responsable.
 En el contrato se debe establecer claramente la persona responsable de autorizar la liberación de cada lote para su comercialización y de emitir el certificado de análisis.
-15.1.5 Del contenido del contrato.
-El contrato a terceros deberá contemplar como mínimo los siguientes aspectos:
+15.1.5 Del contenido del contrato. El contrato a terceros deberá contemplar como mínimo los siguientes aspectos:
 a. Debe ser redactado por personas competentes y autorizadas.
 b. Aceptación de los términos del contrato por las partes.
 c. Aceptación del cumplimiento del Reglamento Centroamericano en Buenas Prácticas de Manufactura.
 d. Abarcar la producción y el análisis o cualquier otra gestión técnica relacionada con estos.
-e. Debe describir el manejo de materias primas, material de acondicionamiento, gráneles y producto terminado, en caso sean rechazados.
-f. Permitir el ingreso del contratante a las instalaciones del contratista (contratado), para auditorias.
-g. Permitir el ingreso del contratista (contratado) a las instalaciones del contratante.
-h. Listar cada uno de los productos o servicios de análisis objeto del contrato.
+e. Debe describir el manejo de materias primas, material de acondicionamiento, graneles y producto terminado, en caso sean rechazados.
+f. Permitir el ingreso del contratante a las instalaciones del contratista (contratado), para auditorías.
+g. Listar cada uno de los productos o servicios de análisis objeto del contrato.
+(Así reformado el inciso 15.1.5) anterior por el artículo 2° del decreto ejecutivo N° 43229 del 25 de agosto del 2021, "Publica la resolución N° 444-2021 (COMIECO-XCIV) de fecha 28 de abril de 2021 que resolvió "modificar el numeral 15.1.5 del Reglamento Técnico Centroamericano RTCA 11.03.42:07 Productos Farmacéuticos. Medicamentos de Uso Humano. Buenas Prácticas de Manufactura para la Industria Farmacéutica y su Guía de Verificación")
 15.1.6 De la inspección a las instalaciones del contratista.
 En caso de análisis por contrato, el contratista (contratado) debe aceptar que puede ser inspeccionado por la Autoridad Reguladora.
 15.2 Del contratante.
@@ -1414,11 +1413,11 @@ SOBRE BUENAS PRÁCTICAS DE MANUFACTURA PARA LA
 INDUSTRIA FARMACÉUTICA. PRODUCTOS FARMACÉUTICOS Y
 MEDICAMENTOS DE USO HUMANO.
 Editada por:
-• Ministerio de Economía, MINECO
-• Organismo Salvadoreño de Reglamentación Técnica, OSARTEC
-• Ministerio de Fomento, Industria y Comercio, MIFIC
-• Secretaría de Industria y Comercio, SIC
-• Ministerio de Economía, Industria y Comercio, MElC
+. Ministerio de Economía, MINECO
+. Organismo Salvadoreño de Reglamentación Técnica, OSARTEC
+. Ministerio de Fomento, Industria y Comercio, MIFIC
+. Secretaría de Industria y Comercio, SIC
+. Ministerio de Economía, Industria y Comercio, MElC
 1. INTRODUCCIÓN
 El RTCA 11.03.42:07 Reglamento Técnico sobre Buenas Prácticas de Manufactura para la Industria Farmacéutica. Productos Farmacéuticos y Medicamentos de Uso Humano, establece que la verificación de su cumplimiento le corresponde a la Autoridad Reguladora de cada Estado Parte, lo que implica la revisión de todos los elementos relacionados con las BPM implementados en la industria, destinados a garantizar la producción de lotes uniformes de productos farmacéuticos con el fin de asegurar la calidad, seguridad y eficacia de los mismos.
 El presente documento consiste en el instrumento oficial para verificar el cumplimiento de las BPM en la industria farmacéutica, por parte de la Autoridad Reguladora de cada Estado Parte, con el cual se pretende homologar y armonizar los criterios de inspección y establecer una lista de puntos a verificar . de todas las operaciones y procesos de la industria. Puede ser también de utilidad para los laboratorios fabricantes en lo que respecta a la auto inspección.
