@@ -1,1 +1,1 @@
-Artículo 50.- El Consejo hará quórum con la mayoría absoluta de sus miembros. Las deliberaciones del Consejo se adoptarán por mayoría simple de los votos presentes.
+Artículo 50.- (Derogado por el artículo 3° del decreto ejecutivo N° 43244 del 25 de agosto del 2021)

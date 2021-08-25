@@ -1,0 +1,2 @@
+Artículo 62 Bis: El Ministerio de Economía, Industria y Comercio (MEIC) deberá contar con un modelo de inscripción, verificación de procesos y seguimiento de las incubadoras y aceleradoras que formen parte de la Red Nacional de Incubación y Aceleración (RNIA), que permita determinar cualidades de estas, para orientar los apoyos puntuales.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 43244 del 25 de agosto del 2021)

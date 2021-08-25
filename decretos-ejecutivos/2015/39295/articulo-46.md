@@ -1,1 +1,1 @@
-Artículo 46.- La DIGEPYME operará como Secretaría Técnica del Consejo Nacional de Emprendimiento, la cual estará encargada de elaborar las minutas del Consejo Emprendedor y dar seguimiento a los acuerdos establecidos. El representante de la DIGEPYME ante el Consejo será el Director (a) o quien delegue en su nombre; quien asistirá en calidad de Secretario de Actas del Órgano, pero solo con derecho a voz y no a voto.
+Artículo 46.- (Derogado por el artículo 3° del decreto ejecutivo N° 43244 del 25 de agosto del 2021)
