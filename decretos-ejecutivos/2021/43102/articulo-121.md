@@ -1,0 +1,2 @@
+Artículo 121°- Recurso
+Contra el acuerdo de la Junta Directiva que deniegue la solicitud de traspaso o segregación cabrá recurso de revocatoria ante ese mismo órgano y recurso de apelación para ante el Tribunal Agrario, que deberán ser interpuestos en el plazo de cinco días hábiles y tramitados conforme a lo dispuesto en la Ley General de la Administración Pública y conforme lo dispuesto en los lineamientos del Tribunal Agrario en su caso.

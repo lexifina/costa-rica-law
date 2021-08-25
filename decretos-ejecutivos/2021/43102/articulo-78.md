@@ -1,0 +1,7 @@
+SECCIÓN III
+MODALIDAD DE DOTACIÓN DE TIERRA POR ASIGNACIÓN
+Artículo 78°- Del período de prueba
+En todo contrato de asignación de tierra deberá existir un período de prueba con un plazo de duración que será definido según las condiciones y naturaleza de cada proyecto pero que nunca podrá ser menor a los tres años. El período de prueba se ejecutará bajo la figura de un arrendamiento.
+Durante el periodo de prueba de la asignación, la Oficina Territorial deberá fiscalizar anualmente el desarrollo del proyecto y emitir al menos con tres meses de antelación al vencimiento del plazo un informe final donde se determinará si el grado de cumplimiento es satisfactorio, en cuyo caso se dará por aprobado el período de prueba.
+En caso negativo, con antelación de tres meses al vencimiento del plazo otorgado en el arrendamiento se deberá intimar al asignatario en periodo de prueba para que cumpla según lo estipulado y de no hacerlo dentro del plazo otorgado, se iniciará el respectivo procedimiento de resolución del contrato. La intimación notificada a la persona asignataria implicará la prórroga del plazo de prueba bajo arrendamiento hasta que se resuelva en definitiva si ha existido incumplimiento o no.
+Si vencido el plazo del arrendamiento no se ha notificado la resolución inicial del procedimiento administrativo de resolución contractual al asignatario, se entenderá que el período de prueba fue superado y tendrá derecho a que se le otorgue el título de propiedad conforme con el artículo 62 de la Ley Nº 9036.

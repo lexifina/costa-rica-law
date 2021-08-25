@@ -1,0 +1,2 @@
+Artículo 191°- Uso en situaciones de emergencia
+Este servicio se utilizará también para la atención de situaciones de emergencia debidamente reconocidas y valoradas por un ente de la CNE o situaciones urgentes delimitadas en los lineamientos internos, acompañado de los respectivos criterios técnicos y discrecionales de oportunidad y necesidad, así como los de razonabilidad, proporcionalidad y racionalidad.

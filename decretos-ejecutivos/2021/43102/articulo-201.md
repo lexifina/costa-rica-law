@@ -1,0 +1,2 @@
+Artículo 201°- De la exigencia del desarrollo de estudios de pre-inversión
+El Fondo de Desarrollo Rural de acuerdo a elementos de razonabilidad, oportunidad y proporcionalidad definirá a través de criterios técnicos, lineamientos y normativa interna la correspondencia o no del desarrollo de estudios de pre-inversión para la ejecución de inversiones atendiendo a la naturaleza, alcances y magnitud de la actividad.

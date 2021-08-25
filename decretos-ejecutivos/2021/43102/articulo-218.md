@@ -1,0 +1,5 @@
+Artículo 218°- Condiciones para el otorgamiento.
+Para el otorgamiento de cualquier crédito deberá haberse cumplido con las siguientes condiciones, además de cualquier otra establecida en los reglamentos autónomos o normativa interna de la Institución:
+a) Estar al día en sus obligaciones con el Instituto, salvo que la morosidad se origine en una situación de emergencia declarada y el crédito solicitado sea de rehabilitación. Debe presentarse constancia de la declaratoria de emergencia o situación especial reconocida por alguna de las entidades competentes. Los créditos de rehabilitación tendrán condiciones diferenciadas de plazo, tasas de interés o cualquier otra conforme lo aprobado por la Junta Directiva.
+b) No mantener deudas atrasadas por más de noventa días naturales, con el Sistema Financiero Nacional, al momento de la solicitud del crédito y durante toda la tramitación y aprobación del crédito.
+c) Otorgar una garantía que esté conforme con los lineamientos internos del Sistema de Crédito Rural establecidos por el Instituto.

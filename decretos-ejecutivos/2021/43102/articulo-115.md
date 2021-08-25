@@ -1,0 +1,3 @@
+Artículo 115°- Extinción de las causas que motivaron el permiso temporal
+El beneficiario deberá reintegrarse a la ejecución del proyecto inmediatamente después del vencimiento del plazo del permiso. En caso de no hacerlo, sin que exista una justificación válida, la Oficina Territorial procederá a iniciar el respectivo procedimiento de resolución del contrato de dotación de tierra por la causal de abandono injustificado.
+En caso de que la causa que motivó el permiso provoque que el mismo sea prolongado o permanente, el beneficiario deberá proponer una persona o personas, preferiblemente de su grupo familiar, que continúen con el proyecto y que reúna los requisitos básicos propuestos para la ejecución del proyecto.

@@ -1,0 +1,2 @@
+Artículo 154°- Adquisición Extraordinaria
+Son casos de adquisición extraordinaria, la compra de tierras para la solución de conflictos de posesión en precario regulados en los artículos 92,144 y siguientes de la Ley 2825 denominados de gravedad social o evidente gravedad; las compras por oportunidad contempladas en el artículo 44 de la Ley 9036; las compras contempladas en el párrafo final del artículo 66 de la Ley 9036, para la solución de diversos conflictos de tenencia de tierra y cualquier otra que sea necesaria para satisfacer fines públicos.

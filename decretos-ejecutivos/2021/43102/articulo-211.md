@@ -1,0 +1,4 @@
+Artículo 211°- Sobre el fortalecimiento de las estructuras de gobernanza territorial
+El fortalecimiento de los Consejos Territoriales de Desarrollo Rural se relaciona con su constitución, estructura de participación organizativa y directiva, definición de su competencia y gestión.
+El Fondo de Desarrollo Rural a través de la unidad especializada estará asignando los recursos humanos, financieros, materiales y técnicos necesarios para la ejecución continua de este proceso.
+Se promoverá la articulación y coordinación regional e interterritorial entre los Consejos Territoriales de Desarrollo Rural, para la planificación, discusión y seguimiento de iniciativas y proyectos de impacto regional, con el fin de propiciar la disminución de las brechas territoriales y entre los actores que representan al Consejo Territorial propiciando la activa participación de sus representantes, aprovechamiento de la competitividad territorial y los recursos técnicos y humanos.

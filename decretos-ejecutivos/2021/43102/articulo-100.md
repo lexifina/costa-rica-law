@@ -1,0 +1,2 @@
+Artículo 100°- Desestimación de petición
+En los casos de procedimientos iniciados por solicitud de parte, una vez en la asesoría legal regional respectiva, de considerarse que no existe causa suficiente para iniciar un procedimiento, por ser extemporánea, impertinente o evidentemente improcedente la petición, acorde con el marco legal aplicable se dictará sin más trámite y mediante resolución motivada por la Junta Directiva, la desestimación de la causa.

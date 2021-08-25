@@ -1,0 +1,2 @@
+Artículo 76°- Prevención
+En caso de que exista un incumplimiento de las obligaciones contraídas, deberá la Oficina Territorial prevenir por una sola vez al arrendatario, para que subsane el incumplimiento dentro del plazo que técnicamente y acordado entre las partes se determine según la irregularidad detectada. Transcurrido dicho plazo sin que el arrendatario corrija su incumplimiento se procederá a iniciar el proceso de resolución contractual.

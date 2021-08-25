@@ -1,0 +1,5 @@
+SECCIÓN XI
+CONVALIDACIÓN DE PROCEDIMIENTOS DE LA PROPIEDAD, TITULACIÓN,
+REGULARIZACIÓN E INSCRIPCIÓN REGISTRAL
+Artículo 133°- Estudios censales, catastrales y registrales
+En los terrenos adquiridos por la Institución, inscritos o no, la Oficina Territorial procederá a efectuar los estudios censales de los ocupantes, que incluirán la información socioeconómica de los mismos, complementando esa información con estudios catastrales y registrales en el Registro Inmobiliario; acto seguido se procederá con la digitalización de los planos y la confección de un plano mosaico preliminar que será el insumo básico para efectuar las inspecciones de campo tendientes a la generación del plano mosaico definitivo; documento que conjuntamente con la base de datos propia del Instituto, permitirá identificar la cantidad total de predios existentes dentro de los terrenos; la condición legal de cada uno de ellos y consecuentemente los que se deben regularizar. Estos estudios podrán ser realizados mediante contrataciones externas.

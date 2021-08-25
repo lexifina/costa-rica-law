@@ -1,0 +1,6 @@
+Artículo 178°- Posesión en Precario
+Para que se considere que existe ocupación precaria deberá determinarse el cumplimiento de los requisitos establecidos en la Ley 2825 y que son los siguientes:
+a) Posesión anual: Deberá demostrar mediante cualquier medio probatorio permitido por ley que tiene más de un año de estar en posesión personal del predio objeto de conflicto.
+b) Estado de necesidad: Deberá demostrar el solicitante que ingresó a la propiedad para cubrir un estado de necesidad de satisfacción de necesidades básicas que no puede ser satisfecho total o parcialmente por otros medios.
+c) Condiciones de producción: El solicitante deberá demostrar, conforme lo dispuesto en el artículo 92 de la Ley de Tierras y Colonización, que con su actividad y trabajo personal y o/ el de su familia, busca poner en condición de producción el inmueble, aun cuando, el fundo como tal no aporte todos los medios de subsistencia al solicitante o a su familia, y deba para ello complementar su ingreso con otras actividades. En ese sentido su actividad en el predio deberá revestir características de habitualidad.
+Los documentos probatorios serán los que se admitan en la Ley de Jurisdicción agraria, los principios generales del derecho procesal y de jurisprudencia de ésta materia en específico.

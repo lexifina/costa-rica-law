@@ -1,0 +1,3 @@
+Artículo 117°- Liquidación
+Cuando exista dotación de tierra y la persona renunciante solicite el pago de mejoras útiles deberá procederse conforme lo establecido en los artículos 106 y 107 de este reglamento.
+Si el predio ha sido entregado en copropiedad, no será procedente el trámite de liquidación contenido en el artículo 107, quedando a favor de los copropietarios que continúen con el proyecto todos los pagos realizados, por lo que, cualquier disputa entre copropietarios sobre derechos referentes a las mejoras o acciones introducidas deberán ser resueltas entre ellos por las vías correspondientes.

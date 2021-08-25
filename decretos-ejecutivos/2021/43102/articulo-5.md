@@ -1,0 +1,4 @@
+CAPÍTULO II
+NOMBRAMIENTO DE LOS MIEMBROS DE JUNTA DIRECTIVA
+Artículo 5°- De los miembros de la Junta Directiva del Inder
+Conforme lo establece el Artículo 18 de la Ley 9036 existen dos tipos de miembros de Junta Directiva, los que son miembros en virtud del cargo que ocupan en la Administración Pública (cargos funcionales) y los que son nombrados en función de la persona (cargos personales). Los primeros son los determinados por los incisos a, b, c y d y los segundos los contenidos en los incisos e, f y g. Los cargos funcionales serán desempeñados por las personas que ocupen el cargo en el momento según lo disponga su respectivo nombramiento, mientras que, los cargos personales serán electos por cuatro años como lo indica el artículo 20 y solo podrán ser removidos conforme lo establece el artículo 21, ambos de la Ley 9036.

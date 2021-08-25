@@ -1,0 +1,3 @@
+Artículo 93°- Condiciones de la dotación
+Las personas beneficiadas con la dotación de lotes para construcción de vivienda deberán ajustarse estrictamente a los plazos y condiciones establecidos por el Instituto. Para todos los casos de dotación de lotes o construcción de vivienda, no aplicará el período de prueba establecido en el artículo 62 de la Ley Nº 9036 y se impondrán las limitaciones establecidas en el artículo 66 de la misma norma.
+El monto a pagar por la tierra se determinará por el valor proporcional de compra de la misma actualizado a valor presente utilizando el índice de precios al consumidor definido por el INEC.

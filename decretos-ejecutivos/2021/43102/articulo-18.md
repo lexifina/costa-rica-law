@@ -1,0 +1,5 @@
+Artículo 18°- Acreditación de actores sociales
+La Asamblea General Constitutiva estará conformada por todos los actores sociales, físicos o jurídicos, que se acrediten para participar en la misma. La acreditación se realizará al menos con un mes de anticipación a la realización de la sesión de Asamblea, ante la oficina correspondiente del Inder, presentando para ello los documentos que se soliciten en el formulario de acreditación, los estatutos y los reglamentos para luego ser validados por el Comité Directivo. El citado formulario se define en una normativa interna.
+Los miembros de la Asamblea Constitutiva formarán parte de la Asamblea General del Consejo Territorial sin necesidad de que deban acreditarse nuevamente.
+Las personas que deseen formar parte de la Asamblea General, y no fueron acreditadas en la Constitutiva, deberán acreditarse en el domicilio correspondiente, aportando los requisitos establecidos en los estatutos y reglamentos.
+Si una persona acreditada no participa injustificadamente en dos asambleas consecutivas quedará excluida su acreditación siguiendo de previo el debido proceso establecido en la normativa vigente para tal efecto.

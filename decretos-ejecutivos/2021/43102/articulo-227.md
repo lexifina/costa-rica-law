@@ -1,0 +1,3 @@
+Artículo 227°- De los créditos con garantía fiduciaria.
+Este tipo de garantía se exigirá para aquellos créditos que no superen el monto establecido para garantía hipotecaria y que por alguna razón no puedan garantizarse con la asignación, arriendo o concesión, o bien, en los casos en que se requiera una garantía adicional.
+Podrán ser fiadores todas aquellas personas que demuestren su capacidad de garantizar el pago de la deuda. No se aceptará, en calidad de fianza, el salario de trabajadores que por su edad y el plazo del crédito superen la edad establecida para la jubilación o los ingresos por pensión de personas jubiladas.

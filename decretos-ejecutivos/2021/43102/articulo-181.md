@@ -1,0 +1,2 @@
+Artículo 181°- Intermediación
+Una vez declarada la existencia de un conflicto de posesión precaria, el Instituto realizará un proceso de intermediación y que incluirá como mínimo la realización de una o más comparecencias privadas entre las partes en procura de una solución, a través de la promoción de acuerdos entre los propietarios y los poseedores. Si fracasare el proceso de intermediación o de vencerse el plazo de intermediación, el Instituto dará por agotada la vía administrativa.

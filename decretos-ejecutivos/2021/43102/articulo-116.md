@@ -1,0 +1,4 @@
+Artículo 116°- Renuncias
+Toda persona beneficiaria podrá renunciar al derecho recibido por parte de la Institución, en cuyo caso, la Oficina Territorial deberá determinar las condiciones en que se encuentra el predio al momento de la misma, para lo que, deberá procederse con una visita de fiscalización e inventario de bienes. En las renuncias de personas que pertenezcan a un sector vulnerable de la sociedad, deberá realizarse un estudio para determinar las condiciones en las que se impone la renuncia. La renuncia por motivos justificados, no afectará a la persona para optar en el futuro por otros beneficios de la Institución.
+En el caso de renuncias por parte de mujeres deberá hacerse un análisis integral, en coordinación con la instancia competente, para que se descarten posibles situaciones de violencia de género que hayan influido en la decisión de renuncia.
+El plazo para la resolución administrativa será de tres meses como máximo.

@@ -1,0 +1,2 @@
+Artículo 183°- Rechazo al proceso de Intermediación
+Si cualesquiera de las partes declaran formalmente ante el Instituto su falta de interés en someterse al proceso de intermediación o que no se encuentran interesados en la participación del Inder en la solución del conflicto o el mediador declara fracasada la conciliación, la Junta Directiva dictará acto resolutorio en el plazo de tres meses dando por fracasada la intermediación y por agotada la vía administrativa.

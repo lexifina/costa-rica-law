@@ -1,0 +1,2 @@
+Artículo 31°- Los Convenios
+Los Consejos Territoriales promoverán la suscripción de convenios de cooperación entre entidades públicas y/o privadas que asuman compromisos concretos para la ejecución de los Planes de Desarrollo Rural Territorial, esto con base en los artículos 5 incisos l), m), n), ñ), y o); 8 incisos a), c), d), 10 inciso c) y 12 incisos c) y d) de la Ley 9036, que deberán cumplir con la correspondiente normativa vigente relacionada y que sea aplicable a las partes suscribientes del convenio.

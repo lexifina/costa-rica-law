@@ -1,0 +1,3 @@
+Artículo 27°- Resolución de Conflictos
+Si cualquier miembro del Consejo Territorial de Desarrollo Rural considerare que se ha violentado alguno de sus derechos de participación o elección podrá recurrir ante el Inder, a través del Fondo de Desarrollo Rural, para que resuelva la controversia. De la misma forma podrá solicitar esta intervención cualquier solicitante de acreditación para participar de una Asamblea General que considere que haya sido injustamente rechazado. La resolución que dicte el Inder será de acatamiento obligatorio para los Consejos Territoriales.
+El Fondo de Desarrollo Rural propondrá los lineamientos necesarios para definir los órganos y procedimiento de resolución de estos conflictos, para que sean aprobados por la Administración Superior.

@@ -1,0 +1,3 @@
+Artículo 129°- Muerte del arrendatario
+En caso de muerte de un beneficiario de dotación por arrendamiento se procederá conforme lo establece el artículo 57 de la Ley 9036 al haber quedado resuelto el contrato de arrendamiento por muerte del contratante.
+Si existiere más de un contratante del arrendamiento el mismo continuará con los arrendatarios supérstites. Deberán los sucesores del fallecido llevar a cabo el trámite judicial correspondiente en defensa de sus derechos. En caso que el o los herederos cumplan con los requisitos de idoneidad para el proyecto, el Instituto podrá otorgarle el correspondiente contrato para continuar con el proyecto coarrendado siempre y cuando todos los involucrados estén de acuerdo.

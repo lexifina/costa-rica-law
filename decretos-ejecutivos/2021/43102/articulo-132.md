@@ -1,0 +1,3 @@
+Artículo 132°- Divorcio, separación o abandono en el contrato de arrendamiento
+Si el contrato de arrendamiento fuere otorgado a un matrimonio y éste entra en un proceso de divorcio, o bien existiere separación en la unión de hecho, el contrato de arrendamiento deberá ser parte de la liquidación de bienes gananciales y el Instituto acatará lo dispuesto por la sentencia judicial.
+Si mediare separación o abandono sin haber solicitado el permiso temporal de abandono del proyecto o predio al Instituto, se procederá a iniciar los procedimientos de resolución parcial del contrato de arrendamiento contra el beneficiario que hiciere abandono del proyecto o predio.

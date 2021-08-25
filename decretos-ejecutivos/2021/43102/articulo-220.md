@@ -1,0 +1,2 @@
+Artículo 220°- Crédito de rehabilitación por situaciones imprevistas y de fuerza mayor
+Para otorgar un crédito de rehabilitación por situaciones imprevistas y de fuerza mayor, entendido como aquel que se autoriza con el fin de permitir a un deudor que haya tenido problemas en su actividad financiada, hacer frente a un préstamo otorgado por el Sistema de Crédito Rural, las condiciones para acceder a este servicio se definen en una normativa interna institucional.

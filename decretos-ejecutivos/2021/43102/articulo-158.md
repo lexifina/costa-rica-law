@@ -1,0 +1,3 @@
+Artículo 158°- Análisis preliminar
+La Instancia Regional, valorará la utilidad, conveniencia y mérito de la oferta presentada para determinar si existe un interés preliminar de evaluar la oferta para su compra. Si se considera que la oferta presentada no es de interés institucional en ese momento, se informará al oferente la reserva de su análisis para el momento que estime oportuno. En caso contrario se realizará el análisis preliminar que se encuentra regulado en la normativa interna del Inder.
+Cuando el inmueble ofertado no cumpla con los requerimientos ni las necesidades del Inder, se procederá a comunicar al oferente el archivo del expediente. En tal caso se podrá recurrir a la vía del concurso para la recepción de nuevas ofertas.

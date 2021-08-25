@@ -1,0 +1,8 @@
+Artículo 44°- Recopilación de oficio
+El Inder deberá recopilar los siguientes aspectos del solicitante de forma oficiosa:
+a) Verificación en el Registro Nacional de la Propiedad (RNP), de la(s) persona(s) solicitante(s) e hijos que dependan económicamente, de si son propietarios o no de bienes muebles e inmuebles inscritos.
+b) Consulta al sistema del Registro Civil a nombre de la persona física solicitante y su cónyuge o conviviente de hecho para demostrar su estado civil actual.
+c) Estado de cuenta de las obligaciones con el Inder, de las personas solicitantes.
+d) Consulta al sistema de la CCSS y Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF) para determinar si el solicitante es patrono activo y se encuentra al día con sus cuotas de la Seguridad Social.
+Estos documentos, en el caso de personas jurídicas, solo deben ser consultados para la persona jurídica y no a los miembros o trabajadores de la misma.
+Una vez revisados todos los documentos presentados por el solicitante, el funcionario encargado deberá prevenir por una única vez al solicitante la falta de cualquier información requerida y que no se haya presentado o que esté defectuosa. La subsanación deberá ser realizada en el plazo que prudencialmente defina el Inder que no podrá ser inferior a diez días hábiles, para lo cual, tomará en cuenta la naturaleza del requisito a subsanar. En caso de ser necesario, el solicitante podrá requerir la prórroga del plazo para lo cual deberá justificarla. Si la persona no subsana en tiempo su solicitud, será declarado sin derecho al trámite conforme lo establece el artículo 264 de la Ley General de la Administración Pública.

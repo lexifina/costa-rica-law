@@ -1,0 +1,4 @@
+Artículo 103°- Resolución final
+Instruido el proceso se elevará, junto con informe recomendativo del órgano director, ante el Fondo de Tierras para que emita la recomendación final ante la Junta Directiva para que proceda a tomar la decisión final.
+La resolución que declare el incumplimiento del contrato de dotación de tierras en cualquiera de sus modalidades, además de revocar el acuerdo de dotación, declarará la resolución del contrato y extinción de los derechos que de él se deriven y se revertirá la titularidad del inmueble a favor del instituto o del co - asignatario según corresponda.
+También ordenará el desalojo administrativo del revocado y de cualquier ocupante irregular en los términos de este reglamento y ordenará el inicio del proceso de liquidación establecido en los artículos 107 y 117 del presente reglamento.

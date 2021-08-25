@@ -1,0 +1,8 @@
+SECCION VII
+PROCEDIMIENTO DE DESALOJO ADMINISTRATIVO
+Artículo 110°- Ocupaciones sin título
+Si como consecuencia de la fiscalización se determina que hay personas ocupantes sin un título habilitante otorgado por la administración de terrenos del Instituto, se procederá sin dilación alguna a realizar trámites de desalojo siguiendo estos parámetros:
+a) Si tiene menos de un año de ocupación se procede sin más a tramitar la orden de desalojo, pudiendo utilizarse el desalojo administrativo por medio de la Fuerza Pública, el Interdicto de Amparo de Posesión o el Desalojo Judicial según corresponda o cualquier otro medio administrativo o judicial que permita el ordenamiento.
+b) Si la ocupación es mayor a un año, se deberá determinar mediante el trámite ordinario de dotación de tierras si los ocupantes pueden ser beneficiarios o no del terreno, por lo que, las personas ocupantes tendrán que someterse a lo establecido en la Ley 9036, este reglamento y las normas internas de ese procedimiento. En caso de que la persona o familia no calificara como posible beneficiaria deberá iniciarse de inmediato el proceso de desalojo judicial.
+c) Si los ocupantes tenían una posesión mayor a los diez años con anterioridad al 29 de noviembre del 2012, se procederá con el procedimiento establecido en el inciso c) del artículo 85 de la Ley 9036 y los artículos 140 y siguientes de este Reglamento.
+d) Si los ocupantes tienen más de diez años de poseer, pero no se encontraban cumplidos a la entrada en vigencia de la Ley 9036, deben iniciarse los estudios necesarios para determinar si califica como beneficiario y de no calificar deberán iniciarse los trámites judiciales para la reivindicación de la finca.

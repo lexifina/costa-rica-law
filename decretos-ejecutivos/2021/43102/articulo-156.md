@@ -1,0 +1,2 @@
+Artículo 156°- Publicaciones
+El Fondo de Desarrollo Rural o la Instancia Regional correspondiente, solicitará en caso necesario, para el proceso de adquisición de tierra publicitar por cualquier medio de comunicación, que considere conveniente, la existencia de la necesidad de compra para que se presenten ofertas. El Fondo de Tierras podrá publicar, cuando sea solicitado, los procesos de compra en todo tipo de medios de comunicación.

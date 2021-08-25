@@ -1,0 +1,2 @@
+Artículo 50°- Propiedad de bienes inmuebles
+Se considera que un solicitante tiene propiedad de la tierra cuando aparece registrado como propietario de un terreno en el RNP.

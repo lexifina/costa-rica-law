@@ -1,0 +1,2 @@
+Artículo 54°- Insuficiencia de la tierra
+Se considera que el terreno no es suficiente para realizar el proyecto para el que se estudia, si la persona solicitante demuestra ante la oficina territorial que la extensión del terreno no es suficiente para ejecutar el proyecto propuesto. Esto se demostrará mediante el aporte de los estudios técnicos y científicos que determinen que la cantidad de tierra no resulta suficiente para desarrollar el proyecto propuesto.

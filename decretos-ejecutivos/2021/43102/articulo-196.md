@@ -1,0 +1,2 @@
+Artículo 196°- Del ámbito de intervención
+Se podrán desarrollar obras de infraestructura rural en propiedades del Inder o propiedades de otros entes estatales o de dominio público, además para el caso de sujetos privados constituidos como personas jurídicas sin fines de lucro, se desarrollarán obras cuando son parte de un proyecto acorde a los fines y principios que rigen para la Institución y exista un interés público demostrado. Para el desarrollo de este servicio, la relación con terceros se estará regulando mediante el instrumento jurídico correspondiente.

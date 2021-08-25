@@ -1,0 +1,3 @@
+Artículo 164°- Acto de recepción
+La oficina territorial será la encargada de recibir materialmente la propiedad de parte del vendedor. De este acto se levantará un acta de puesta en posesión o de recepción de finca que deberá ser firmada por el representante del Inder y un representante legal debidamente autorizado por el vendedor para realizar dicho acto.
+La fecha de realización de la puesta en posesión deberá ser propuesta por el vendedor, en coordinación con la oficina territorial, y deberá fijarse la misma en un plazo máximo de ocho días hábiles a partir de la firma de la escritura, debiendo remitirse al Fondo de Tierras y al Área de Tesorería y Contabilidad de la Dirección Financiera del Instituto, el informe resultante.

@@ -1,0 +1,2 @@
+Artículo 3°- Beneficiarios de la Ley
+Serán beneficiarios las personas jurídicas sin fines de lucro y las físicas que cumplan con los requisitos de la Ley y este reglamento, quienes podrán recibir uno o varios de los beneficios y servicios que brinda la Institución a través del Fondo de Tierras y del Fondo de Desarrollo Rural o cualquier otro beneficio establecido en la Ley 9036 y en el presente Reglamento, para lo cual deberán ser declarados admisibles y cumplir con los requisitos establecidos para cada modalidad del servicio.

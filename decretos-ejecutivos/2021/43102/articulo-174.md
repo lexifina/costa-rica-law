@@ -1,0 +1,2 @@
+Artículo 174°- Análisis
+La Oficina Territorial o la unidad administrativa correspondiente tendrán la responsabilidad de analizar en el plazo de un mes la solicitud y recomendar si es procedente o no el préstamo, mediante criterio debidamente razonado, que debe incluir las razones justificantes que impiden otorgar uno de los modelos de dotación conforme a la Ley 9036, al Fondo de Tierras y Fondo de Desarrollo Rural.

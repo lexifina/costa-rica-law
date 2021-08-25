@@ -1,0 +1,4 @@
+Artículo 149°- Acuerdo final
+Una vez emitida la recomendación del órgano director, el expediente se remitirá al Fondo de Tierras para que otorgue su recomendación. El Fondo de Tierras lo elevará en el plazo de hasta 2 meses para resolución de la Junta Directiva quien aprobará la procedencia o no del reconocimiento de la posesión decenal sobre el inmueble, para la ulterior segregación y traspaso del predio, cuando así se aprobare. El acuerdo que declare o no la procedencia, será emitido mediante resolución motivada.
+La Oficina Territorial tendrá la responsabilidad de notificar en el lugar señalado lo acordado por la Junta Directiva, en un plazo no mayor de diez días hábiles contados a partir del momento en que reciba el acuerdo.
+Una vez firme el acuerdo, en caso de ser positivo, se continuará con la confección, firma e inscripción de la escritura de segregación y traspaso.

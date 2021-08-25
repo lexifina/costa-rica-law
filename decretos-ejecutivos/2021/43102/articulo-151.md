@@ -1,0 +1,2 @@
+Artículo 151°- Recuperación del predio
+En caso de que la Junta Directiva no apruebe la regularización y traspaso del predio solicitado y el interesado no haya presentado ningún acto recursivo o lo haya presentado extemporáneamente o se rechacen los mismos, la Oficina Territorial aplicará de inmediato el estudio correspondiente para determinar si es posible realizar una dotación ordinaria y en caso contrario se procederá con la recuperación del predio conforme a la ley y este reglamento.

@@ -1,0 +1,4 @@
+SECCIÓN XIV
+CONFLICTOS DERIVADOS DE LA POSESIÓN EN PRECARIO
+Artículo 176°- Inicio del Proceso
+El proceso inicia mediante la solicitud de cualquiera de las partes en conflicto, personas propietarias o poseedoras, para que el Instituto proceda a intervenir, primeramente, como mediador en el conflicto conforme a lo establecido en los artículos 92 y siguientes de la Ley 2825. Sin embargo, de conformidad con el Artículo 94 de la Ley 2825, el propietario del inmueble deberá interponer su reclamo ante el Instituto como trámite previo a interponer cualquier acción judicial en contra de los poseedores, la cual, el Instituto tendrá tres meses contados a partir del recibo de la gestión para declarar la existencia o no del conflicto en los términos establecidos por la ley 2825. Transcurrido ese plazo sin que exista declaratoria, se tendrá por agotado el procedimiento administrativo y las partes podrán acudir a la vía judicial si así lo consideraren.

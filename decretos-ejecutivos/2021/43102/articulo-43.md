@@ -1,0 +1,2 @@
+Artículo 43°- Documentos a presentar por la persona física solicitante para la admisibilidad vinculada con otros servicios o beneficios.
+Para definir la admisibilidad a otros servicios y beneficios del Instituto donde no se requiera la idoneidad deberán presentarse los documentos contenidos en el artículo 41 incisos a), b) y d) de este Reglamento, y cualquier otro que se determine en regulaciones específicas de esos servicios o beneficios.

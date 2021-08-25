@@ -1,0 +1,3 @@
+Artículo 14°- Ejecución de la Política de Estado de Desarrollo Rural Territorial, Plan Nacional de Desarrollo Rural Territorial e impulso y facilitación de los Planes de Desarrollo Rural Territorial
+El Inder, como ente ejecutor de la Política de Estado de Desarrollo Rural Territorial, deberá coordinar la ejecución del Plan Nacional de Desarrollo Rural Territorial con las instancias sectoriales e intersectoriales establecidas y atender las directrices estratégicas de la Política de Estado de Desarrollo Rural Territorial.
+Los mecanismos para el seguimiento y evaluación permanente de la Política de Estado de Desarrollo Rural Territorial, serán establecidos por la SETEDER, bajo la normativa establecida en el Sistema Nacional de Planificación u otras normativas aplicables.

@@ -1,0 +1,2 @@
+Artículo 172°- Personas legitimadas para pretender un permiso de uso
+Podrán solicitar un permiso de uso las personas físicas o jurídicas sin fines de lucro que sean admisibles en los términos de este reglamento o entes públicos, a quienes se les otorgará ese préstamo de uso sobre un inmueble y/o sus instalaciones, siempre y cuando se demuestre que la actividad no afecta el destino o naturaleza del bien.

@@ -1,0 +1,4 @@
+SECCIÓN V
+FASE RESOLUTORIA
+Artículo 64°- Elevación del expediente completo
+Una vez que conste en el expediente haberse declarado la ejecutabilidad del proyecto, el estudio resolutorio de beneficiario de todas las personas solicitantes, la resolución de todas las impugnaciones presentadas si las hubiera, aprobada la modalidad de dotación de tierra, cuando hubiere, y habiéndose concluido con cualquier otro trámite necesario, el Fondo de Tierras y el Fondo de Desarrollo Rural emitirán su recomendación positiva o negativa para que el mismo sea elevado por la Dirección de Desarrollo Rural Territorial ante la Junta Directiva, con todos los antecedentes que la fundamentan, para su resolución final. Los plazos serán los establecidos en el artículo 261 de la Ley General de la Administración Pública.

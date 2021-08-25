@@ -1,0 +1,5 @@
+Artículo 70°- De las poblaciones prioritarias para la dotación de tierra
+Conforme lo establecen los artículos 5 inciso e), 41 inciso e) y 61 de la Ley 9036, el Inder promoverá la atención de los siguientes grupos de población rural: adultos mayores, población con discapacidad, mujeres, minorías étnicas, jóvenes, entre ellos egresados de colegios técnicos-profesionales, cooperativas y organizaciones sociales de base y de integración, así como las poblaciones descritas en el artículo 63 de la Ley de Tierras y Colonización. La atención focalizada a los grupos señalados previamente se procurará alcanzar de la siguiente forma:
+a) Fomentando proyectos específicos para atender a personas pertenecientes a estos grupos;
+b) Orientar metodológicamente la formulación de los Planes de Desarrollo Rural Territorial para que se incluyan acciones y proyectos dirigidos a atender las necesidades de estas poblaciones y propiciar los acuerdos de articulación o cooperación con entidades públicas y privadas especializadas en estos grupos;
+c) Establecer instrumentos adecuados para realizar los estudios sociales y técnicos que se adapten a las capacidades de estos grupos.

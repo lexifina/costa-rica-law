@@ -1,0 +1,3 @@
+Artículo 210°- Sobre los mecanismos de ejecución para el fortalecimiento de capacidades
+Para la gestión de capacidades de los grupos territoriales se priorizará el mecanismo de la coordinación y articulación institucional necesaria, de carácter territorial, regional o nacional, determinada por la competencia y áreas de conocimiento de las instituciones del Estado y otros actores públicos o privados, que respondan a la necesidad determinada que requieran los solicitantes.
+El Fondo de Desarrollo Rural a través de su instancia técnica especializada, dispondrá de los recursos para los casos que, con la debida justificación, no se pueda atender la necesidad de fortalecimiento mediante la articulación y coordinación.

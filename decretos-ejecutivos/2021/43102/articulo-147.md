@@ -1,0 +1,2 @@
+Artículo 147°- Oposición de terceros
+En caso de surgir alguna oposición fundada de terceros en relación con el mejor derecho de poseer, la misma deberá ser presentada por escrito ante la asesoría legal regional correspondiente. Ante tal oposición, el asesor legal deberá convocar en el plazo no mayor a un mes a audiencia a las partes donde intentará una conciliación. Fracasada la conciliación el proceso será suspendido por dos meses para que el opositor acuda a la vía judicial, de no hacerlo se tendrá por no puesta la oposición.

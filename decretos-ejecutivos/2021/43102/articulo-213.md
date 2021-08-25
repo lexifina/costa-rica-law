@@ -1,0 +1,6 @@
+Artículo 213°- Del seguimiento
+El Fondo de Desarrollo Rural con las correspondientes Unidades Técnicas, deberá definir los procesos, mecanismos e instrumentos que se estarán aplicando para el seguimiento de cada uno de los servicios y beneficios que han sido otorgados, considerando para ello los siguientes aspectos:
+a) En el caso de servicios dirigidos a personas físicas o familias, el seguimiento se realizará mediante muestreo al azar, verificando el uso adecuado de los recursos por parte de los beneficiarios y la medición de los cambios generados en su situación socioeconómica.
+b) Para servicios que se otorgan o se realizan a través de estructuras asociativas sin fines de lucro del artículo 2 de la Ley 9036, el seguimiento se deberá consignar con base en la normativa interna aplicable.
+c) Los resultados e instrumentos del seguimiento de los servicios deberán constar en el expediente respectivo, los cuales estarán a disposición de las diferentes instancias institucionales según corresponda.
+d) El seguimiento de los servicios se realizará según el nivel en el cual se ejecuta, nivel territorial, regional o nacional. El Fondo de Desarrollo Rural a través de sus Unidades Técnicas Especializadas realizará procesos de seguimiento para servicios que se ejecutan a nivel central y deberá vigilar que se realicen en las Unidades Regionales y Territoriales.

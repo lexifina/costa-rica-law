@@ -1,0 +1,2 @@
+Artículo 127°- Acuerdo homologado
+Una vez que se tenga la homologación judicial del acuerdo de herederos designados o del acuerdo privado de los coherederos el Inder procederá a realizar los trámites administrativos de traspaso directo del contrato de asignación y su inscripción en el Registro Público de la Propiedad Inmueble vía exhorto o por medio del Notario cuando la propiedad esté aún inscrita a nombre del Inder.

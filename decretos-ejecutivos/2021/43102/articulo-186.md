@@ -1,0 +1,2 @@
+Artículo 186°- Oportunidades de Desarrollo
+Una vez que haya sido declarada infructuosa la etapa de intermediación el Instituto procederá a determinar, bajo criterios de razonabilidad y proporcionalidad, si la situación reviste un interés institucional, crea una oportunidad importante de generar desarrollo rural, tiene una gravedad social evidente o de impacto social que justifique la intervención directa del Instituto en la generación de una ruta de desarrollo para los poseedores en el terreno ocupado u otro que reúna las condiciones requeridas.
