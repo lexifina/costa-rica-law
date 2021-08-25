@@ -1,0 +1,1 @@
+Artículo 37.-Registro Control de Activo. La Jefatura deberá elaborar un registro de control de los activos propiedad de la Municipalidad, que serán suministrados al teletrabajador para la implementación del teletrabajo, registro de salida de equipo que debe ser autorizado por la misma jefatura.

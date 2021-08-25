@@ -1,0 +1,1 @@
+Artículo 38.-Reincorporación Modalidad Presencial. La jefatura una vez concluida la modalidad de teletrabajo, deberá verificar la reincorporación del teletrabajador al desempeño habitual de sus labores a su sitio de trabajo, así como de la incorporación del equipo tecnológico suministrado, como de cualquier otro bien o documentación propiedad de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 19.-Acuerdo de Teletrabajo. El teletrabajador deberá firmar el acuerdo de teletrabajo suministrado por la Municipalidad, donde se especifiquen las condiciones de esta modalidad laboral, en concordancia con las disposiciones establecidas en el presente reglamento.

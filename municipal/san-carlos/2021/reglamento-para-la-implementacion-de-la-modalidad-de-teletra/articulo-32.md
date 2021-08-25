@@ -1,0 +1,1 @@
+Articulo 32.-Control Y Verificación Labores. La Jefatura deberá implementar los sistemas de control y verificación necesarios del cumplimiento por parte del teletrabajador en cuanto a horarios y jornadas laborales.

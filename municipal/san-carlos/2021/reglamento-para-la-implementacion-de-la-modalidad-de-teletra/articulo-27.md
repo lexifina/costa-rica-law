@@ -1,0 +1,1 @@
+Artículo 27.-Actividades de Control. El teletrabajador deberá cumplir con las actividades establecidas por las jefaturas dirigidas al seguimiento, medición y evaluación de su experiencia y cumplimiento de sus funciones durante el tiempo que trabaje bajo la modalidad de teletrabajo.

@@ -1,0 +1,1 @@
+Artículo 33.-Reportes Mensuales. La jefatura de departamento deberá remitir de manera mensual al Departamento de Recursos Humanos con copia a la Dirección Administrativa para el archivo y registro correspondiente, el informe de cumplimiento efectivo de las asignaciones establecidas al teletrabajador.

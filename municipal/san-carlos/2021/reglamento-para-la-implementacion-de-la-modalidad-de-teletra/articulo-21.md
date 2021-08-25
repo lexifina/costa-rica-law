@@ -1,0 +1,1 @@
+Artículo 21.-Condiciones y Equipamiento. El teletrabajador deberá acondicionar un espacio físico su debido acondicionamiento, así como los insumos tecnológicos que para ambos casos serán establecidas por los departamentos responsables según el presente reglamento.

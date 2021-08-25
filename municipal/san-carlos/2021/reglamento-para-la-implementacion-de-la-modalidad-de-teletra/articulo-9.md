@@ -1,0 +1,1 @@
+Artículo 9º-Programa Teletrabajo. La Municipalidad mantendrá un programa de teletrabajo activo y se reserva la facultad de incorporar a sus funcionarios en esta forma de trabajo, dependiendo de las condiciones, actividades, la conectividad disponible y otros aspectos que estime pertinentes la Alcaldía, para lo cual tendrá la asesoría técnica de la CMT.

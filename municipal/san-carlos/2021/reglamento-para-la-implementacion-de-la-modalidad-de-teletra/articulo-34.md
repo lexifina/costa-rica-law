@@ -1,0 +1,1 @@
+Artículo 34.-Validación de Condiciones de Telecentro de Trabajo. Será el responsable cada jefatura de validar el cumplimiento de las condiciones de lugar, tecnológicas y de Salud Ocupacional a efectos de autorizar la implementación del teletrabajo.

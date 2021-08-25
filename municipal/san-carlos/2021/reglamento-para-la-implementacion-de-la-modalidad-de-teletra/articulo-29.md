@@ -1,0 +1,1 @@
+Artículo 29.-Reintegro de Activos. En caso de que el teletrabajador se reincorpore a la modalidad presencial devolverá en forma inmediata a la dependencia correspondiente de la Institución los activos que le fueron facilitados para el desempeño de sus funciones bajo la modalidad de teletrabajo, conforme lo establecido en la normativa institucional.
