@@ -1,1 +1,0 @@
-Artículo 15.—La DESAF asignará al Patronato Nacional de la Infancia (PANI), como mínimo un 2.59% de su presupuesto ordinario del FODESAF para desarrollar programas de protección a las personas menores. Para lo cual deberá aportar anualmente, el Plan Presupuesto del Programa, conforme a los artículos 10 del presente reglamento y 14 de la Ley Nº 5662 y su reforma, Ley Nº 8783.

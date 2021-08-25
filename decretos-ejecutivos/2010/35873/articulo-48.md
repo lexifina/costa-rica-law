@@ -1,3 +1,0 @@
-CAPÍTULO VII
-Del control de activos del FODESAF
-Artículo 48.—La DESAF, reglamentará todas las actividades relacionadas con el control de activos adquiridos con recursos del FODESAF, tanto por parte de la DESAF, como por las Unidades Ejecutoras del Fondo. Además, tendrá la responsabilidad de mantener un registro auxiliar permanente de los bienes muebles e inmuebles que se llegasen a adquirir con estos recursos, siempre y cuando ello no viole las limitaciones al uso de los recursos que establece la Ley. El Departamento de Gestión, será el encargado de llevar el control de activos, según el inciso h, del artículo 68 del presente reglamento.

@@ -1,1 +1,0 @@
-Artículo 44.—La DESAF, tendrá la responsabilidad de presentar trimestralmente, ante la Contraloría General de la República y la Autoridad Presupuestaria, informes de ejecución presupuestaria de los recursos del FODESAF.

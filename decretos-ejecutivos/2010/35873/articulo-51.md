@@ -1,1 +1,0 @@
-Artículo 51.—Dada su naturaleza jurídica y técnica, corresponderá a la DESAF la ejecución de los siguientes procesos: planear, organizar, coordinar, asignar, fiscalizar y evaluar la utilización de los recursos del FODESAF y de la propia DESAF.

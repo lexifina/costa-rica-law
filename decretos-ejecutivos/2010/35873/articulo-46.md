@@ -1,1 +1,0 @@
-Artículo 46.—Para el propósito del artículo 42, todas las instituciones que reciban recursos del FODESAF deberán presentar informes de liquidación anual presupuestaria y programática, a más tardar el 25 de enero de cada año.

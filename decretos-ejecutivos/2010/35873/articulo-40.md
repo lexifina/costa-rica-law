@@ -1,1 +1,0 @@
-Artículo 40.—Será responsabilidad de la DESAF, establecer y mantener actualizado un sistema electrónico para el control de los ingresos del FODESAF, según las fuentes de financiamiento y de igual manera, deberá establecer y mantener actualizado un sistema electrónico para el control de las transferencias de recursos del FODESAF a las Unidades Ejecutoras de éstos.

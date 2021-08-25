@@ -1,1 +1,0 @@
-Artículo 49.—Las disposiciones que se describirán en el Reglamento sobre el Control de Activos que se emitirá para los efectos, serán de acatamiento obligatorio tanto para los funcionarios de la DESAF, como para las Unidades Ejecutoras, en cuanto el uso de los activos adquiridos por ellas con recursos FODESAF. El desconocimiento del mismo, no los exime de responsabilidad.

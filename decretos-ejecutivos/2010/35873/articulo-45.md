@@ -1,1 +1,0 @@
-Artículo 45.—La DESAF, estará obligada a presentar anualmente, y en forma oportuna, un informe de liquidación presupuestaria y programática de los recursos del FODESAF ante la Contraloría General de la República.

@@ -1,1 +1,0 @@
-Artículo 39.—Las Unidades Ejecutoras que deban suscribir convenio de Colaboración, según lo estipulado en el artículo anterior, lo harán a más tardar el 31 de julio de 2010. La DESAF se encargará de redactar tales instrumentos y remitirlos a las Unidades Ejecutoras, para su estudio y suscripción.

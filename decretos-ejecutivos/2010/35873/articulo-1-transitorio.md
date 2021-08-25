@@ -1,1 +1,0 @@
-Transitorio único.—En los próximos 90 días, la DESAF elaborará el reglamento respecto al Cobro Administrativo y Judicial de los patronos morosos con el FODESAF, por incumplimiento del artículo 9, siguientes y concordantes de la Ley Nº 5662, y su reforma, Ley Nº 8783.

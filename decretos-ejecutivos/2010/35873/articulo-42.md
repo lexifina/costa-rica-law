@@ -1,1 +1,0 @@
-Artículo 42.—La DESAF, estará obligada a presentar mensualmente ante la Tesorería Nacional y la Autoridad Presupuestaria, un flujo de caja de los recursos del FODESAF y un informe de conciliaciones bancarias.

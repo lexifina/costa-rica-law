@@ -1,1 +1,0 @@
-Artículo 56.—En ausencia del Director, el Subdirector lo sustituirá con las mismas atribuciones y facultades, lo cual hará adicionalmente al cumplimiento de sus responsabilidades profesionales, técnicas y administrativas.

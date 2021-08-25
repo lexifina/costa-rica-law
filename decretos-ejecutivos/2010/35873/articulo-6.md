@@ -1,1 +1,0 @@
-Artículo 6º—Para efectos de la identificación y clasificación de la población objetivo de FODESAF, se adoptará el concepto y los parámetros utilizados y actualizados anualmente por el Instituto Nacional de Estadística y Censos (INEC).

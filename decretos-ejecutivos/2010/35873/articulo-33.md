@@ -1,1 +1,0 @@
-Artículo 33.—Con el mismo propósito indicado en el artículo anterior, la DESAF tendrá la oportunidad de presentar ante los entes citados, durante el ejercicio presupuestario, los presupuestos extraordinarios que se lleguen a necesitar.

@@ -1,1 +1,0 @@
-Artículo 66.—El Departamento de Evaluación, con base en sus investigaciones y la información resultante del proceso evaluativo, desarrollará un informe trimestral y anual, el cual deberá ser remitido a la Subdirección General, para su revisión y remisión tanto al Ministro, como a la Contraloría General de la República, según corresponda.

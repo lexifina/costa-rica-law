@@ -1,1 +1,0 @@
-Artículo 43.—La DESAF, deberá actualizar de manera sistemática, los movimientos presupuestarios del FODESAF en el Sistema de Información de Presupuestos Públicos dispuesto por la Contraloría General de la República.
