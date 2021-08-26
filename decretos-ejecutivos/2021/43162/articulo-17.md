@@ -1,0 +1,1 @@
+Artículo 17. Sobre el cobro judicial y la incobrabilidad: La declaratoria de incobrabilidad así como el procedimiento de cobro judicial se regirán por las disposiciones contenidas en la normativa interna de cada institución.

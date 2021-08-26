@@ -1,0 +1,2 @@
+Artículo 16. Incumplimiento de arreglos de pago: Si se determina que la persona obligada ha incurrido en incumplimiento del arreglo de pago, la dependencia encargada del control y seguimiento de pagos deberá realizar una prevención vía correo electrónico de ponerse al día en el plazo de 8 días hábiles.
+Si la persona interesada hace caso omiso al comunicado, se trasladará el caso al Jerarca para que se proceda con la etapa de cobro judicial, según corresponda.

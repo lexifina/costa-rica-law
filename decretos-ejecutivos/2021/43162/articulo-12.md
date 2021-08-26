@@ -1,0 +1,2 @@
+Artículo 12. Del acto final: Luego de recibir el informe de recomendaciones, el Órgano Decisor, procederá a emitir el acto final, mediante el cual se determinará la existencia o no de la obligación, así como la suma líquida y exigible adeudada.
+En el mismo acto, se intimará a la persona beneficiaria a que proceda con la cancelación total de la obligación en el plazo máximo de 5 días hábiles, a partir de la comunicación. El acto final tendrá únicamente el recurso de reconsideración, debiendo así constar en la emisión del mismo.

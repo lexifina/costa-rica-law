@@ -1,0 +1,1 @@
+Artículo 15. Traslado de casos en arreglo de pago. Suscrito el arreglo de pago, el Órgano Director procederá a trasladar el caso al Departamento que disponga el Órgano Decisor, según las competencias aplicables, a efectos de que dicha dependencia continúe con el control y seguimiento de los mismos.

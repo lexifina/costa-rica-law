@@ -1,0 +1,6 @@
+Artículo 9. Comunicación de los actos: Para asegurar el pleno conocimiento de las personas beneficiarias sobre las actuaciones dentro del Procedimiento Especial de Recuperación de Sumas del Bono Proteger, la comunicación de los actos se realizará de la siguiente manera:
+a. El auto de traslado, cobro e intimación se comunicará mediante notificación personal en el domicilio de la persona beneficiaria.
+b. En caso de realizarse un intento fallido de notificación personal, deberá dejarse constancia del mismo en el expediente y se procederá a comunicar mediante aviso publicado por tres veces consecutivas en el Diario Oficial La Gaceta, así como el envío del auto al correo electrónico señalado por la persona beneficiaria en el formulario de solicitud del Bono Proteger.
+c. Las demás actuaciones serán comunicadas al medio de notificación que aporte la persona beneficiaria, o en su defecto, al correo electrónico señalado en el formulario de solicitud del Bono Proteger.
+d. Toda actuación se tendrá por debidamente comunicada mediante notificación espontánea, al momento en que la persona beneficiaria gestione dándose por enterada expresa o implícitamente de las mismas.
+Para realizar los actos de comunicación, el Órgano Director podrá comisionar mediante oficio a cualquier instancia o persona, para que estos se lleven a cabo.

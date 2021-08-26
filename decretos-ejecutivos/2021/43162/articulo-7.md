@@ -1,0 +1,2 @@
+CAPÍTULO III. Sobre el procedimiento
+Artículo 7. Inicio de las actuaciones: El MTSS, a través de su Jerarca, trasladará los casos de personas beneficiarias con hallazgos de posible causal de exclusión o probabilidad de incumplimiento de requisitos, a las instancias ejecutoras del Bono Proteger, a saber IMAS, CNE, MTSS, a efectos de que estas inicien el Procedimiento Especial de Recuperación de Sumas del Bono Proteger.
