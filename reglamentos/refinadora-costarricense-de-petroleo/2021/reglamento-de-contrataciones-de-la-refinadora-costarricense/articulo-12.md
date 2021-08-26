@@ -1,0 +1,3 @@
+Artículo 12.-Confidencialidad de la información. Los expedientes administrativos de las contrataciones de la actividad ordinaria se consideran de carácter público.
+La información enviada por los proveedores para la inscripción en el registro, que se mantiene bajo custodia en la Dirección de Proveeduría, será de carácter confidencial.
+Cuando en la contratación se hubiese previsto la utilización del mecanismo de segunda ronda, el cual consiste en que los oferentes seleccionados mejores sus propuestas económicas dadas inicialmente, a efecto de garantizar la transparencia del proceso, las ofertas, así como la documentación que se genere en el análisis de las mismas, será de carácter confidencial hasta que se realice el acto de apertura de la mejora de precios.
