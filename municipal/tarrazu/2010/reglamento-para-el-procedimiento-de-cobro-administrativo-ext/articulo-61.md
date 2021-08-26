@@ -1,0 +1,2 @@
+Artículo 61.-Resolución Administrativa. Una vez determinados las cuentas exiguas, el Departamento de Administración Tributaria procederán a emitir la Resolución Administrativa por la totalidad de los exiguos, la cual deberá ser firmada también por la Alcaldía Municipal; la cual deberá ser avalada por un acuerdo del Concejo Municipal.
+(Así adicionado mediante Sesión Ordinaria N° 069-2021del 26 de agosto del 2021)

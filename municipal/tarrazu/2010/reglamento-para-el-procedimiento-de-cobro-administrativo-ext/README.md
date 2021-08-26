@@ -15,3 +15,4 @@ Reglamento para el procedimiento de Cobro Administrativo, Extrajudicial, y Judic
 | --- | --- | --- |
 | 1 | 2010-12-07 | la propia norma |
 | 2 | 2011-10-05 | Reglamento municipal 75 (2011-10-05) |
+| 3 | 2021-08-26 | Reglamento municipal 69 (2021-08-26) |

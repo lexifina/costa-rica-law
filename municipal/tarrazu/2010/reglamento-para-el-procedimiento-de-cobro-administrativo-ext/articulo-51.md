@@ -1,0 +1,2 @@
+Artículo 51.-Interrupción de la prescripción: El cómputo del plazo de prescripción se aplicará con fundamento en el Artículo 52 del Código de Normas y Procedimientos Tributarios el cual indica que se debe contar a partir del primer día del mes siguiente a la fecha en que el tributo debe pagarse. Las causas de interrupción serán las indicadas en el artículo 53 del Código de Normas y Procedimientos Tributarios y sus reformas.
+(Así adicionado mediante Sesión Ordinaria N° 069-2021del 26 de agosto del 2021)

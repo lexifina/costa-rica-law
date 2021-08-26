@@ -1,1 +1,2 @@
-Artículo 21.—Resolución del arreglo de pago. El convenio de arreglo de pago se resolverá únicamente, ante el pago total que realice el sujeto pasivo de la obligación vencido, o cuando se haya retrasado tres días hábiles en el cumplimiento de su obligación, en cuyo caso, vencido dicho plazo, se remitirá inmediatamente el expediente a etapa ejecutiva.
+Artículo 21.-Resolución del Arreglo de Pago. El arreglo de pago se tendrá por terminado, únicamente, ante el pago total que realice el sujeto pasivo de la obligación vencida o cuando se haya retrasado dos cuotas en el cumplimiento de su obligación, en cuyo caso se remitirá, inmediatamente, el expediente a cobro judicial.
+(Así reformado mediante Sesión Ordinaria N° 069-2021del 26 de agosto del 2021)

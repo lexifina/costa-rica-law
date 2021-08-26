@@ -1,0 +1,2 @@
+Artículo 53.-Plazo para resolver prescripciones: Emitida la resolución administrativa que declara la prescripción de lo adeudado, la Administración Tributaria hará constar en el expediente que la prescripción procede y realizará los cambios respectivos en el Sistema de Información y Administración Municipal. El plazo para resolver por parte de la administración municipal será máximo de 30 días naturales.
+(Así adicionado mediante Sesión Ordinaria N° 069-2021del 26 de agosto del 2021)
