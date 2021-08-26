@@ -1,4 +1,0 @@
-Artículo 34.—En relación con las contrataciones administrativas del prestatario, se procederá de la siguiente manera:
-a) El IFAM se abstendrá de intervenir directamente en los procesos de contratación administrativa.
-b) En casos excepcionales, las dependencias técnicas del IFAM podrán con la autorización escrita, asesorar en la tramitación del respectivo proceso de contratación, exceptuando la atención de recursos posteriores a la adjudicación para lo cual se cobrarán los costos de acuerdo con lo establecido en el Reglamento de Asistencia Técnica, según corresponda.
-c) En los procesos de contratación para la adquisición o reconstrucción de maquinaria y equipo, el prestatario si lo considera necesario, contratará los servicios profesionales que requiera. En este caso, podrá incluir ese costo, dentro del plan de inversión.

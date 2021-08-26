@@ -1,1 +1,0 @@
-Artículo 13.—Cuando sea preciso realizar estudios de preinversión, éstos podrán ser financiados en forma parcial o total, mediante un contrato de préstamo del solicitante con el IFAM, conforme a lo establecido en la política de crédito y el artículo 10 de este Reglamento.

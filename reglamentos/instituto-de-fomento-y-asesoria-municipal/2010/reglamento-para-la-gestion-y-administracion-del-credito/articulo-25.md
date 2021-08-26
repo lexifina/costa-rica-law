@@ -1,3 +1,0 @@
-Artículo 25.—El prestatario deberá elaborar, oportunamente, el presupuesto extraordinario donde incorpore los recursos del préstamo y el aporte, así como los intereses respectivos, y tramitar su aprobación ante la Contraloría General de la República.
-Para los proyectos que se financien en el primer y cuarto trimestre del año, se le permitirá al prestatario presupuestar solamente el crédito, comprometiéndose a incluir el aporte y los intereses en el primer presupuesto extraordinario que tramite ante la Contraloría General de la República.
-En ambos casos, el prestatario deberá comunicar formalmente a las dependencias administradoras del crédito del IFAM, cuando le sean aprobados esos presupuestos por el Órgano Contralor.

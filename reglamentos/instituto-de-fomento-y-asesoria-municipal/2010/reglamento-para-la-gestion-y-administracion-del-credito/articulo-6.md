@@ -1,1 +1,0 @@
-Artículo 6º—Cuando el financiamiento otorgado por el IFAM provenga de leyes específicas, o de un empréstito concedido a éste por una organización nacional, internacional o extranjera, se entenderán adicionadas las disposiciones del presente Reglamento, de conformidad con los términos del respectivo empréstito o ley.

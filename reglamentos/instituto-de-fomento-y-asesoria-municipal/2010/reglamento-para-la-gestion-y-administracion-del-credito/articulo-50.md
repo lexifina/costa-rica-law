@@ -1,6 +1,0 @@
-Artículo 50.—En virtud de las competencias fijadas al IFAM en su Ley de Organización y Funcionamiento en lo relativo a la materia crediticia, este deberá cumplir con lo establecido en la Ley General de Control Interno. Al respecto, la responsabilidad institucional será:
-a) Establecer, mantener, perfeccionar y evaluar el sistema de control interno institucional para efecto de los préstamos otorgados.
-b) Documentar, mantener actualizadas y divulgar internamente, las políticas de crédito, reglamentos, las normas crediticias y los procedimientos de control que garanticen el cumplimiento del sistema de control interno institucional y la prevención de todo aspecto que conlleve a eventuales de los objetivos y las metas trazados por la Institución en materia de crédito.
-c) Documentar, mantener actualizados y divulgar internamente las políticas y los procedimientos que definan claramente, entre otros asuntos, la autoridad y responsabilidad de los funcionarios encargados de autorizar y aprobar las operaciones crediticias de la Institución.
-d) Conciliar periódicamente los registros para verificar su exactitud y determinar, y enmendar errores u omisiones que puedan haberse cometido en los créditos otorgados con anterioridad.
-e) Los que la ley de Organización y Funcionamiento del IFAM y la Ley de Control Interno señalen.

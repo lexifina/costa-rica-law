@@ -1,2 +1,0 @@
-Artículo 16.—Los plazos para: cancelar la Comisión por Administración Financiera, cubrir los intereses del período de gracia, amortizar los préstamos, el porcentaje de interés y así como la fuente de recursos, se fijarán de acuerdo con lo que determine la Política de Crédito y el presente Reglamento.
-El prestatario, podrá renunciar al período de gracia concedido por el IFAM, para lo cual debe emitir el correspondiente acuerdo donde así lo manifieste, y remitirlo a las dependencias administradoras del crédito del IFAM.

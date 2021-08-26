@@ -1,1 +1,0 @@
-Artículo 9º—Salvo casos de emergencia por desastres naturales que afecten la solvencia financiera y con la debida justificación técnica financiera, a solicitud de los sujetos de crédito interesados, se podrá autorizar readecuaciones sobre préstamos. Estas readecuaciones se regirán conforme a lo establecido en el Capítulo VIII de este Reglamento.

@@ -1,2 +1,0 @@
-Artículo 32.—Cuando las dependencias administradoras del crédito del IFAM detecten algún incumplimiento por parte del prestatario de cláusulas del contrato firmado o de leyes atinentes al caso, suspenderán de oficio el trámite de los desembolsos y se solicitará al prestatario, la corrección de las mismas.
-Cuando dicho incumplimiento persista, las dependencias administradoras del crédito del IFAM, elevarán el caso ante la Junta Directiva, con las respectivas recomendaciones para que ésta resuelva lo correspondiente.

@@ -1,1 +1,0 @@
-Artículo 19.—Los documentos que respaldan la aprobación de un crédito forman parte del contrato que firmará el prestatario con el IFAM. La Dirección Jurídica elaborará el contrato para la formalización del préstamo. Para ello, las unidades encargadas remitirán a dicha Dirección la documentación completa, ordenada en forma cronológica y debidamente foliada.

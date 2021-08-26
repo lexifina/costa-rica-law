@@ -1,2 +1,0 @@
-Artículo 4º—El IFAM podrá otorgar el financiamiento para la compra de saldos de las deudas contraídas por los sujetos de crédito con otras entidades financieras, preferiblemente cuando el destino de esos préstamos, sean coincidente con la naturaleza de los proyectos que financia el Instituto.
-A este tipo de financiamiento, se le dará un tratamiento acorde con lo establecido en la Política de Crédito o bien, con lo que expresamente disponga al efecto la Junta Directiva del IFAM.

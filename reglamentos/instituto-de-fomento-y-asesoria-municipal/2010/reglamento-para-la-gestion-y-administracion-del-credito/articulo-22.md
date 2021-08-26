@@ -1,1 +1,0 @@
-Artículo 22.—La Comisión Técnica dictaminará los documentos de préstamo preparados por las dependencias administradoras del crédito y los remitirá para conocimiento y resolución de la Junta Directiva.

@@ -1,1 +1,0 @@
-Artículo 21.—Para salvaguardar los bienes y servicios adquiridos con un crédito otorgado por el IFAM, será responsabilidad de deudor contratar los seguros correspondientes con las coberturas necesarias que garanticen la integridad de los bienes financiados. La vigencia de las pólizas, serán por el plazo del crédito.
