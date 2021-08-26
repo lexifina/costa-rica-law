@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
+(Esta norma fue derogada por el artículo 69 del Reglamento de financiamiento del Instituto de Fomento y Asesoría Municipal (IFAM), aprobado en sesión N° 26 del 26 de agosto de 2021)
 La Junta Directiva del Instituto de Fomento y Asesoría Municipal (IFAM), mediante acuerdo segundo, artículo uno de la sesión extraordinaria No.4472, celebrada el día 31 de octubre del 2018, aprobó la publicación del Reglamento de Financiamiento del Instituto de Fomento y Asesoría Municipal:
 REGLAMENTO DE FINANCIAMIENTO DEL INSTITUTO DE
 FOMENTO Y ASESORÍA MUNICIPAL
@@ -50,12 +52,12 @@ Nivel de riesgo: Grado de exposición al riesgo que se determina a partir del an
 Nombre del proyecto: Es la denominación que el sujeto de financiamiento le da al proyecto, la cual debe ser clara y concisa, deberá indicar el proceso que se va a realizar, el objeto y la localización.
 Operaciones al día: Son aquellas operaciones donde el sujeto financiado ha cumplido en el plazo establecido con el pago de las cuotas pactadas en una operación de crédito.
 Plan de inversión del IFAM: Es el instrumento en el cual se consigna la tipología de los proyectos a ser financiados por el IFAM en el ejercicio presupuestario, indicando el porcentaje de las fuentes de financiamiento que le dará contenido y las necesidades propias de las regiones, articulándolo con la estrategia de desarrollo nacional formulada en el Plan Nacional de Desarrollo.
-Plan Nacional de Desarrollo (PND): Marco orientador que define las políticas que normarán la acción de Gobierno para promover el desarrollo del país, por medio del aumento de la producción y la productividad, la distribución del ingreso, el acceso a los servicios sociales y la participación ciudadana para la mejora en la calidad de vida de la población. Establece de forma vinculante para las instituciones las prioridades, objetivos, y estrategias derivadas de esas políticas, que han sido fijadas por el Gobierno de la República. (Decreto Ejecutivo Número 32988 – H – MP - PLAN, Reglamento a la Ley de la Administración Financiera y Presupuestos Públicos).
+Plan Nacional de Desarrollo (PND): Marco orientador que define las políticas que normarán la acción de Gobierno para promover el desarrollo del país, por medio del aumento de la producción y la productividad, la distribución del ingreso, el acceso a los servicios sociales y la participación ciudadana para la mejora en la calidad de vida de la población. Establece de forma vinculante para las instituciones las prioridades, objetivos, y estrategias derivadas de esas políticas, que han sido fijadas por el Gobierno de la República. (Decreto Ejecutivo Número 32988 - H - MP - PLAN, Reglamento a la Ley de la Administración Financiera y Presupuestos Públicos).
 Planes, programas y proyectos de inversión: Es el conjunto de procedimientos y actividades planificadas y relacionadas entre sí que permiten ejecutar una inversión pública y cuyos componentes están vinculados como una unidad funcional, el cual permite dar una solución integral a una necesidad o exigencia social, promover el desarrollo o mejorar la prestación de un servicio o actividad pública. Es la utilización que el Sujeto de Financiamiento se compromete a darle a los recursos financiados por el IFAM.
 Plazos: El IFAM operará con tres modalidades básicas de Financiamiento:
-• Corto plazo: 12 meses o menos
-• Mediano plazo: Superior a 12 meses y máximo 5 años
-• Largo plazo: Superior a 5 años
+. Corto plazo: 12 meses o menos
+. Mediano plazo: Superior a 12 meses y máximo 5 años
+. Largo plazo: Superior a 5 años
 Política de financiamiento: Lineamientos dictados por la Junta Directiva del IFAM, que orientan la acción institucional, acorde con el marco jurídico actual, para Fortalecer el desarrollo y la gestión del régimen municipal, mediante el financiamiento de planes, programas y proyectos que promuevan un mayor bienestar de las personas y del ambiente en los distintos cantones del territorio nacional.
 Pre-inversión: Comprende la elaboración de les estudios de un proyecto (perfil, prefactibilidad, factibilidad y el diseño), que abarcan todos los análisis que se deben realizar sobre un proyecto desde que el mismo es identificado a nivel de idea hasta que se toma la decisión de su ejecución, postergación o abandono.
 Prevención de riesgos: Medidas y acciones dispuestas con anticipación que buscan prevenir nuevos riesgos o impedir que aparezcan. Significa trabajar en torno a amenazas y vulnerabilidades probables. (Glosario de términos y nociones relevantes para la gestión del riesgo.
