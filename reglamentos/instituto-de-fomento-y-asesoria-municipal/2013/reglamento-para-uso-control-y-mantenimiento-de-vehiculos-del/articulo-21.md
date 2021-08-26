@@ -1,1 +1,4 @@
-Artículo 21.—Protección a conductores. El IFAM otorgará como protección a sus conductores o conductoras, durante el ejercicio de sus labores, las pólizas de riesgo del trabajo y las relativas a vehículos según las disposiciones de la Ley de Tránsito.
+CAPÍTULO VI
+De los conductores y choferes de vehículos
+protección, deberes y responsabilidades
+Artículo 21.-Uso de los vehículos. Queda prohibido a la Unidad de Servicios, poner en uso las unidades que no estén en condición de ser utilizados, o que no hayan pasado el proceso de revisión mínima usual, al término de la última gira efectuada.

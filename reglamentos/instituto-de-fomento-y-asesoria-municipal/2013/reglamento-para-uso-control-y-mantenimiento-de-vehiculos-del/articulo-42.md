@@ -1,2 +1,1 @@
-Artículo 42.—Vigencia. Este Reglamento rige a partir de su publicación en el Diario Oficial y deroga cualquier otra disposición interna que se le oponga.”
-Moravia, 14 de octubre de 2013.
+Artículo 42.-De la responsabilidad disciplinaria. Al margen de las responsabilidades indicadas en los artículos anteriores, la Administración podrá aplicar las sanciones disciplinarias que correspondan, previo procedimiento administrativo, con garantía del debido proceso.

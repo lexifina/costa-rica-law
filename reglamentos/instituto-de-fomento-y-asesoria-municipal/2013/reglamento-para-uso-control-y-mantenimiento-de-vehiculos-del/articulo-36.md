@@ -1,5 +1,1 @@
-CAPÍTULO IX
-Transporte de particulares y autoridades
-Artículo 36.—Es absolutamente prohibido transportar particulares en los vehículos del IFAM, salvo que estos brinden algún servicio o trabajo especial a la Institución y se tenga la autorización correspondiente.
-En este caso la autorización deberá ser emitida por la Dirección de Administración Interna y en ausencia de ésta, por la Dirección Ejecutiva.
-Queda a salvo lo previsto en el Código Penal, en el artículo 144, sobre la omisión de auxilio en los casos de personas heridas o amenazadas de un peligro cualquiera, siempre que no implique riesgo personal.
+Artículo 36.-De la declaración ante la Autoridad Judicial. El conductor del vehículo accidentado presentará, dentro de los dos días hábiles siguientes del accidente, la denuncia mediante la cual declarará lo sucedido ante la Autoridad Judicial, para que la tramiten. Para ese fin el superior inmediato le brindará las facilidades necesarias.

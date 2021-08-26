@@ -1,4 +1,3 @@
 CAPÍTULO III
-De la administración y uso de los vehículos
-Artículo 8°—La Dirección de Administración Interna: Debe velar por el uso, administración, mantenimiento y control de los vehículos sin perjuicio de las indicaciones de los titulares de la Presidencia y Dirección Ejecutivas.
-Atenderá las solicitudes de transporte de la Institución, para el adecuado cumplimiento de las funciones y determinar el medio más eficaz y eficiente de satisfacerlo.
+Uso y disposición de los vehículos
+Artículo 8º-Solicitudes de uso de vehículos: Las solicitudes para utilizar los vehículos de uso administrativo, deberán realizarse a más tardar los jueves de la semana anterior en el sistema destinado para este fin, indicando claramente las fechas, hora de salida y hora de regreso, lugares a visitar, acompañantes, objetivo de la gira. Toda solicitud presentada fuera de tiempo debe de justificarse por medio de correo electrónico a la Unidad de Servicios Generales y estará sujeta a disponibilidad de vehículos, de acuerdo con la programación semanal de giras.

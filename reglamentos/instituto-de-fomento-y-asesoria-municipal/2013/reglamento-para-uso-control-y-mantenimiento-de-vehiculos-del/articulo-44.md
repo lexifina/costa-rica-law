@@ -1,0 +1,1 @@
+Artículo 44.-Condenatoria a terceros. En el caso de que se condene a terceros como consecuencia del accidente, la Unidad de Asesoría Legal, iniciara las gestiones necesarias para que se proceda a la ejecución de la sentencia judicial.

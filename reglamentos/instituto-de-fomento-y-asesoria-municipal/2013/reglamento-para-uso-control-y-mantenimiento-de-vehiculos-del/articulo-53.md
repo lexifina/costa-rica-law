@@ -1,0 +1,1 @@
+Artículo 53.-Sanciones. Las infracciones al presente Reglamento serán sancionadas disciplinariamente de acuerdo con la normativa vigente en el Reglamento Autónomo de Organización y Servicio del IFAM, Código de Trabajo, este Reglamento y Leyes conexas.

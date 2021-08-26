@@ -1,0 +1,4 @@
+CAPÍTULO XI
+De préstamos de vehículos entre el IFAM
+y otras instituciones
+Artículo 48.-De los préstamos de vehículos. El IFAM podrá asignar por acuerdo de su Junta Directiva con carácter temporal, unidades automotoras a entes gubernamentales u organizaciones con las cuales posea cualquier tipo de convenio. Tal asignación deberá ser debidamente justificada y expresarse por escrito, pudiendo ser revocada en cualquier momento por razones de utilidad y necesidad pública. Estos entes deberán asumir la responsabilidad del control sobre su uso y mantenimiento, así como el pago de los seguros de igual forma como si fueran de su propiedad, salvo acuerdo licito en contrario. Adicionalmente deberán responder por los daños y perjuicios derivados del uso de los vehículos asumiendo costos por infracciones a la Ley de Tránsito, multas por parquímetros y procesos judiciales.

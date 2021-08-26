@@ -1,3 +1,1 @@
-CAPÍTULO X
-Disposiciones finales
-Artículo 37.—Solamente los vehículos del Instituto deberán permanecer en el estacionamiento del sótano del IFAM. También, podrán hacer uso de dicho estacionamiento con sus vehículos, los Miembros de la Junta Directiva, los funcionarios o funcionarias dependientes de ésta, Directores de Departamento y cualesquiera otros vehículos, oficiales o no, que por convenio deban permanecer en dicho estacionamiento.
+Artículo 37.-Prohibición de arreglos extrajudiciales. Ningún conductor o conductora del IFAM, está autorizado para efectuar arreglos extrajudiciales. En caso de accidentes con vehículos de uso del IFAM, únicamente, debe indicarle al particular que se apersone o se comunique con la Jefatura del Departamento Administrativo para efectuar las gestiones correspondientes.

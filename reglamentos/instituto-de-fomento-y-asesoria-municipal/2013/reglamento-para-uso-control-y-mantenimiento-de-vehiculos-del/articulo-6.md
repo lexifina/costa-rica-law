@@ -1,1 +1,1 @@
-Artículo 6°—Asignación de vehículos. Ningún vehículo estará asignado a funcionario o funcionaria o empleado determinado, con excepción del que se destina al uso discrecional del titular de la Presidencia Ejecutiva.
+Artículo 6°-Asignación de vehículos. Ningún vehículo estará asignado a funcionario o funcionaria determinado, con excepción del que se destina al uso discrecional del titular de la Presidencia Ejecutiva.

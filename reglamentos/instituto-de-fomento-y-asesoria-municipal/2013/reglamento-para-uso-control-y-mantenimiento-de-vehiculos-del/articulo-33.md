@@ -1,7 +1,1 @@
-CAPÍTULO VII
-De los de los usuarios de los servicios de transporte,
-deberes y responsabilidades.
-Artículo 33.—Prohibición de los usuarios. Ningún usuario está autorizado para:
-a. Obligar al conductor o conductora a continuar operando el vehículo cuando se vea en la necesidad de detener la marcha debido a un posible desperfecto mecánico o razones climáticas, así lo exijan.
-b. Exigir la conducción del vehículo a una velocidad mayor o menor de la permitida en la zona. En el primer caso no podrá aducirse urgencia en el servicio.
-c. Cuando demuestre cansancio o salud quebrantada.
+Artículo 33.-Prohibición del uso de vehículos oficiales en actividades particulares. No se podrán utilizar vehículos del IFAM para actividades que no sean propias de la Institución o Gobierno, así mismo queda prohibida la utilización de estos en actividades político-electorales.

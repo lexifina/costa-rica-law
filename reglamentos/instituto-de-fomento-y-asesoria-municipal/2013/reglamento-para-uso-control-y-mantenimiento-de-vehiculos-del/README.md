@@ -14,3 +14,4 @@ Reglamento para uso, control y mantenimiento de vehículos del Instituto de Fome
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-27 | la propia norma |
+| 2 | 2021-08-26 | Reglamento 26 (2021-08-26) |

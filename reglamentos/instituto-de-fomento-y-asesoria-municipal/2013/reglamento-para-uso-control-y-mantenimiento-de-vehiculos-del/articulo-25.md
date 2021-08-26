@@ -1,1 +1,1 @@
-Artículo 25.—Seguridad en el estacionamiento. Los vehículos no deben dejarse estacionados en lugares donde se ponga en peligro la seguridad de los mismos, sus accesorios, materiales y equipos que transporta.
+Artículo 25.-Protección a conductores. El IFAM otorgará como protección a sus conductores o conductoras, durante el ejercicio de sus labores, las pólizas de riesgo del trabajo y las relativas a vehículos según las disposiciones de la Ley de Tránsito.
