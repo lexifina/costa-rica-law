@@ -1,0 +1,2 @@
+ARTICULO 66. De igual forma resultan aplicables las demás disposiciones previstas en los Reglamentos Municipales respectivos relacionados a la jornada de trabajo, vacaciones, horario, obligaciones, prohibiciones, régimen disciplinario, derecho, incentivos salariales y dietas para sesiones, entre otros.
+Para tal fin el Comité Cantonal contara con la asesoría de la Unidad de Recursos Humanos de la Municipalidad.

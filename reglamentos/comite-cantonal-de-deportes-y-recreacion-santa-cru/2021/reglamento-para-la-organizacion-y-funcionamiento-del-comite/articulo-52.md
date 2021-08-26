@@ -1,0 +1,1 @@
+ARTICULO 52. El presupuesto del Comité Cantonal y sus distintos órganos, deben elaborarse reflejado los planes propuestos y programas que se ejecutaran en el periodo que este cubre; los gastos presupuestarios no pueden exceder los ingresos estimados.

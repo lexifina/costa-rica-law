@@ -1,0 +1,1 @@
+ARTICULO 3. El domicilio legal del Comité Cantonal será el Cantón de Santa Cruz, pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo tomado por mayoría de terceras partes delos miembros de la Junta Directiva.

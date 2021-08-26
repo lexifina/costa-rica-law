@@ -1,0 +1,2 @@
+ARTICULO 38. La estructura organizada estará bajo responsabilidad de un Administrador General, en la misma línea del contador y gestor deportivo, bajo el Administrador general estarán Misceláneo, Mantenimiento estadio, Seguridad, Oficina Cobros, Entrenador Gimnasio Pesas, establecido en el manual de procedimientos del comité; Articulo #13 de la sesión ordinaria número treinta y cinco celebrada por la Junta Directiva el quince de noviembre del 2016, aprobado por el Concejo Municipal.
+[imagen]

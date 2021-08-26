@@ -1,0 +1,1 @@
+ARTICULO 6. Es de conocimiento del Consejo Municipal el presupuesto anual así como plan de desarrollo del gobierno local en materia deportiva y recreativa, como también los respectivos planes anuales operativos y sus modificaciones propuestas por el Comité Cantonal y este último a su vez velarán para que el accionar de sus entes adscritos se ajuste a dichos planes anuales.

@@ -1,0 +1,1 @@
+ARTICULO 53. El presupuesto debe contener una estimación de ingresos, incluyendo unadescripción clara y precisa de lo que se persigue hace durante el año presupuestario, de acuerdo con las exigencias legales y reglamentarias establecidas al efecto.

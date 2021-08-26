@@ -1,0 +1,1 @@
+ARTICULO 23. El quórum para sesionar estará por la mitad más uno del total de los miembros del Comité Cantonal. Los acuerdos se tomaran por la mayoría simple de votos presentes, salvo si este Reglamento señala un mayor número de votos. En caso de empate en una votación, el Presidente tendrá el voto calificado, es decir, derecho al doble voto.

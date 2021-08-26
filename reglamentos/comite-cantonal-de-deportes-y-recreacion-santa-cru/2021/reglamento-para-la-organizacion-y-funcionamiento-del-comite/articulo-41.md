@@ -1,0 +1,1 @@
+ARTICULO 41. En lo que resulte aplicable a la elección y las funciones a ejercer por los miembros de la Junta Directiva del Comité Comunal serán idénticas a sus funciones que tienen los miembros del Comité Cantonal. Tienen dependencia adscrita enteramente del Comité Cantonal de Deportes.

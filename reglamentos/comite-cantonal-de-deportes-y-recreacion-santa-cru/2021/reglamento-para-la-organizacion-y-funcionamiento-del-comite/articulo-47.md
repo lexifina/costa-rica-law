@@ -1,0 +1,1 @@
+ARTICULO 47. Cuando el Comité Comunal en coordinación con el Área Técnica del Comité Cantonal realice torneos estarán en la obligación de confeccionar el respectivo reglamento, el que debe ser aprobado previamente por el mencionado Comité Cantonal.
