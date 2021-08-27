@@ -1,1 +1,0 @@
-Artículo 3º—Deber de la Contraloría de Servicios. Es deber de la Contraloría de Servicios vigilar por el buen funcionamiento de los servicios públicos que brindan sus dependencias administrativas y técnicas, de acuerdo con la competencia funcional que le asigna el artículo 140, inciso 8) de la Constitución Política.
