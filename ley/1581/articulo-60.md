@@ -1,1 +1,2 @@
-Artículo 60.- Además de las causales que enumera el artículo 43 de este Estatuto, se considera falta grave la violación de las prohibiciones que señala el artículo 58.
+Artículo 60- Además de las causales que enumera el artículo 43 de este Estatuto, se considera falta grave la violación de las prohibiciones que señala el artículo 58 y las causales del artículo 66, inciso a) de la Ley 7739, Código de la Niñez y la Adolescencia, de 6 de enero de 1998.
+(Así reformado por el artículo 2° de la norma Aprueba Ley para prevenir la revictimización y garantizar los derechos de las personas menores de edad en el sistema educativo costarricense, N° 9999 del 19 de agosto de 2021)
