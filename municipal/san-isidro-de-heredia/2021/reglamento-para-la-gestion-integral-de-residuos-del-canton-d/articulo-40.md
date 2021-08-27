@@ -1,0 +1,1 @@
+Artículo 40.-Inclusión servicios en cantones colindantes. La Municipalidad podrá impulsar trabajos de coordinación interinstitucional para promover programas de manejo de los residuos generados dentro del territorio para procurar la gestión integral.

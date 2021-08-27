@@ -1,0 +1,3 @@
+CAPÍTULO X
+Sanciones y multas
+Artículo 45.-Multas. En caso de detectarse incumplimiento de las obligaciones establecidas en este reglamento en cuanto al adecuado manejo, separación, recolección y disposición final de los residuos provenientes de las actividades personales, familiares, operaciones agrícolas, ganaderas, industriales, comerciales, turísticas, entre otras; la Municipalidad aplicará y cobrará trimestralmente las multas establecidas de acuerdo con la descripción de la infracción contenida en el Reglamento para el cobro de tarifas y multas derivadas del incumplimiento de deberes por parte de los propietarios o poseedores de bienes inmuebles del Cantón de San Isidro de Heredia vigente, con fundamento en el Código Municipal.

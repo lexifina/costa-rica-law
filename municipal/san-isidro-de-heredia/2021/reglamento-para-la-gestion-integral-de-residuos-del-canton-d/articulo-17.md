@@ -1,0 +1,4 @@
+Artículo 17.-Centros de recuperación de materiales orgánicos fácilmente biodegradables. Para la entrada en operación de centros de materiales orgánicos fácilmente biodegradables, deberá considerarse en todo momento las siguientes condiciones:
+a. El Municipio tiene la facultad de instalar y operar centros de recuperación de materiales orgánicos para la producción de compostaje o autorizar a terceros previamente calificados para la acumulación, tratamiento de los mismos y comercialización del producto final.
+b. Estos centros deben contar, previo a iniciar labores, con los permisos respectivos del Ministerio de Salud y de la Municipalidad (este último si es administrado por un tercero).
+c. Deben además cumplir con los requisitos y condiciones, laborales, ambientales y sanitarias que establezca la legislación vigente.

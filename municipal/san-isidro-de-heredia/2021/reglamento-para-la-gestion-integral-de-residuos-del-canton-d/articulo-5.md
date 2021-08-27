@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las atribuciones y obligaciones municipales
+Artículo 5º-Propiedad de los residuos. Todos los residuos que las personas usuarias depositen para su recolección y su tratamiento, son propiedad de la Municipalidad. Previa autorización de la Municipalidad estos residuos podrán ser entregados o recolectados por un tercero autorizado para su valorización, en cuyo caso corresponde a éste la propiedad y la responsabilidad de su manejo. La Municipalidad podrá incautar los residuos recolectados por individuos o empresas que no tengan Permiso Municipal para ejercer esta actividad y retener el vehículo mientras se proceda a realizar el respectivo parte ante la autoridad correspondiente.

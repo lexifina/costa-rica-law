@@ -1,0 +1,1 @@
+Artículo 8º-Contratos o convenios de servicios. De conformidad con el artículo 8° inciso k) de la Ley N° 8839 y artículo 4° inciso f) del Código Municipal, la Municipalidad tiene la potestad de establecer convenios con microempresas, cooperativas, organizaciones sociales y/o empresas locales y regionales, para que participen en el proceso de gestión integral de los residuos.

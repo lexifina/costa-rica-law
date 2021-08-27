@@ -1,0 +1,1 @@
+Artículo 49.-Inspecciones. Los funcionarios designados por el municipio realizarán las inspecciones de verificación, seguimiento o cumplimiento de este reglamento y del PMGIRS. En caso de encontrarse indicios de incumplimiento de este reglamento, se le notificará al responsable y dará inicio el procedimiento respectivo.

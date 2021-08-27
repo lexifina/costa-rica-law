@@ -1,0 +1,1 @@
+Artículo 25.-Certificación de disposición final. Se refiere al documento probatorio donde se indica que los residuos sólidos son dispuestos en forma ambientalmente adecuada extendida por parte de un gestor autorizado en cumplimiento de la normativa nacional.

@@ -1,0 +1,1 @@
+Artículo 30.-Residuos sólidos no tradicionales o voluminosos. Los residuos sólidos no tradicionales deben ser dispuestos directamente por el generador responsable o en su defecto aprovechar las opciones de recolección que se procuren por parte de la Municipalidad, de conformidad con los días de recolección y horarios establecidos y debidamente comunicados a los usuarios.

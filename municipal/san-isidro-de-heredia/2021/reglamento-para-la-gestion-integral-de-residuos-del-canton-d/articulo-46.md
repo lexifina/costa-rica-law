@@ -1,0 +1,1 @@
+Artículo 46.-Para los usuarios comerciales, industriales e institucionales. Se procederá bajo el debido proceso con la cancelación o revocación de las licencias lucrativas y no lucrativas que incumplan con las disposiciones establecidas por las diferentes instituciones competentes en materia de gestión integral de residuos y las establecidas por este Reglamento.
