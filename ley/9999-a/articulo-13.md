@@ -1,0 +1,1 @@
+Artículo 13- Garantías para los docentes. La persona funcionaria denunciada goza de todos los derechos relativos al debido proceso y demás garantías procesales del derecho administrativo y laboral. De no comprobarse los hechos que se le imputan, la persona denunciada será restituida al estado inmediato anterior que disfrutaba con anterioridad a la denuncia.
