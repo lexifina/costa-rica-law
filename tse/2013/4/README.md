@@ -15,3 +15,4 @@ Reglamento para el ejercicio del voto en el extranjero
 | --- | --- | --- |
 | 1 | 2013-05-10 | la propia norma |
 | 2 | 2017-03-21 | Decreto TSE 4 (2017-03-21) |
+| 3 | 2021-08-31 | Decreto TSE 8 (2021-08-31) |
