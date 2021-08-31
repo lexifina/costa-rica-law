@@ -1,0 +1,1 @@
+Artículo 23. Otros motivos de sanción En caso de faltas o situaciones debidamente comprobadas y no tipificadas en los puntos anteriores, el BCBCR se reserva el derecho de iniciar los procedimientos administrativos correspondientes para determinar la gravedad de la falta y su respectiva sanción.

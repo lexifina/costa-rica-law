@@ -1,0 +1,5 @@
+Artículo 15. Restricciones.
+A. Los inspectores no forman parte del personal del BCBCR y se abstendrán de aparentar o proyectar que ostentan dicha figura. La presente contratación bajo ningún supuesto generará relación de empleo público entre el BCBCR y alguna de las partes.
+B. El Proveedor no podrá ceder ni traspasar en forma alguna, parcial o total, los derechos y las obligaciones que le correspondan.
+C. El Proveedor no puede brindar servicios relacionados a la protección contra incendios en los edificios en los cuales realizó el servicio durante el tiempo que este registrado en el presente reglamento. Adicional, no puede recomendar personas físicas o jurídicas para realizar labores directamente relacionadas con el servicio de inspección, por ejemplo, personas físicas o jurídicas que se dediquen a realizar labores de instalación y o mantenimiento de sistemas de gas L.P, todo lo anterior con el fin de evitar colusión entre los inspectores y clientes o ser juez y parte en una inspección.
+D. El Proveedor no podrá hacer uso de los logos del BCBCR en documentos elaborados por él, en actividades ajenas al objetivo del Reglamento y presente manual.

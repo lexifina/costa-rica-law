@@ -1,0 +1,13 @@
+Artículo 4. Garantía de Cumplimiento: Para resultar incluido en el registro de proveedores del Reglamento, los solicitantes deben rendir y mantener vigente una garantía de cumplimiento según el siguiente detalle.
+Cuadro N° 1. Garantía de cumplimiento.
+Monto | Tipo de servicio.
+· Inspección en aspectos de seguridad humana y protección contra incendio en los proyectos constructivos que se contemplan en el Reglamento Nº36550-MP- MIVAH-S-MEIC (edificaciones nuevas, obras existentes, remodelación de edificios, cambio de uso, diseño e instalación de | · Inspección en los establecimientos que requieran el otorgamiento o renovación del Permiso Sanitario de Funcionamiento del Ministerio de Salud, de acuerdo con el Decreto Ejecutivo N°41150- MINAE-S. | · Inspección del cumplimiento del estado de las instalaciones de tanques estacionarios de autoconsumo de combustible de acuerdo con el Decreto Ejecutivo N° 42497-MINAE-S.
+| sistemas contra incendios). · Inspección de edificaciones existentes en cumplimiento con el artículo N°66, 70 y 71 del Reglamento a la Ley Nº8228 del BCBCR, para verificar el cumplimiento de la normativa aplicable en materia de seguridad humana, prevención y protección contra incendios. | |
+¢149.000,00 | ¢134.000,00 | ¢155.000,00
+El monto de la garantía de cumplimiento será revisado y ajustado anualmente.
+A efecto del ajuste referenciado en el párrafo anterior, la Unidad de Ingeniería, 15 días hábiles posterior al inicio del año nuevo, remitirá a la UP, la información del monto total pagado por cada tipo servicio en el periodo durante el año calendario anterior entre el total de Proveedores por servicio. Si el monto obtenido supera el 10% del monto previo, los Proveedores deberán realizar el ajuste correspondiente, en caso de no realizar este ajuste, se aplicarán las sanciones previstas en el Capítulo VII Régimen Sancionatorio, caso contrario, prevalecerán los montos estipulados en la tabla anterior, contemplando que los mismos cubren los eventos mínimos.
+En caso de que un mismo Proveedor resulte inscrito en más de un servicio, debe aportar únicamente la garantía de cumplimiento del servicio con el monto más alto.
+A. Vigencia. Los Proveedores mantendrán vigente la garantía de cumplimiento que corresponda durante todo el tiempo que presten servicio y hasta dos (2) meses después de su exclusión como Proveedor.
+B. Forma de rendir las garantías. Las garantías de cumplimiento se rendirán según dispone el artículo 42 del Reglamento a la Ley de Contratación
+Administrativa.
+Para los casos en que se compruebe incumplimiento del Proveedor a lo dispuesto en el Reglamento o el presente manual, el BCBCR ejecutará la Garantía de Cumplimiento conforme corresponde.

@@ -1,0 +1,1 @@
+Artículo 2. De la administración del Registro de Proveedores: Corresponde a la Unidad de Proveeduría, conformar y mantener actualizado el Registro de los Proveedores. La Unidad de Ingeniería estará a cargo de la administración y asignación de las inspecciones partir del registro actualizado.
