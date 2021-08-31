@@ -1,6 +1,6 @@
 CAPÍTULO V
 De los deberes y prohibiciones de la persona servidora
-Artículo 13. De los deberes generales de la persona servidora: Además de los consignados en el artículo 39 del Estatuto de Servicio Civil, artículo 50 de su Reglamento, artículo 71 del Código de Trabajo, este Reglamento y disposiciones conexas, son deberes de todos las personas servidoras:
+Artículo 13. De los deberes generales de la persona servidora: Además de los consignados en el artículo 39 del Estatuto de Servicio Civil, artículo 50 de su Reglamento, artículo 71 del Código de Trabajo, este Reglamento y disposiciones conexas, son deberes de todas las personas servidoras:
 1. Prestar sus servicios personalmente, en forma regular y continua y cumplir con la jornada de trabajo correspondiente.
 2. Antes de haber cumplido su jornada de servicio no podrán abandonarla ni suspenderla sin causa justificada.
 3. Ejecutar sus labores con la capacidad, la dedicación y la diligencia que el cargo exija, aplicando todo su esfuerzo para el mejor desempeño de sus funciones.
@@ -28,7 +28,11 @@ Artículo 13. De los deberes generales de la persona servidora: Además de los c
 25. Presentar informes periódicos, cuando sea requerido en razón de sus funciones.
 26. Respetar el orden jerárquico establecido en la realización de reclamos, trámites o gestiones administrativas.
 27. Asistir a las audiencias o citaciones cuando fueren requeridos por los órganos competentes en carácter de testigos.
-28. Someterse a los programas de tratamiento y rehabilitación sobre alcoholismo y otras drogas dependientes, que defina el servicio médico de empresa, en caso de que lo requiera. Los funcionarios del Instituto que presenten consumo problemático de alcohol u otras drogas y que acrediten por medios idóneos su situación respecto al consumo, durante su relación laboral tendrán un máximo hasta 3 apercibimientos escritos previos, aceptando someterse a un tratamiento en forma inmediata paralelo al primer apercibimiento recibido.
+28. Someterse a los programas de tratamiento y rehabilitación que defina el servicio médico de empresa, cuando se acredite una enfermedad por adicción; siempre y cuando la persona servidora hubiere presentado incumplimientos en sus funciones. Si se continúa con los incumplimientos se realizará hasta 3 apercibimientos escritos previo a iniciar los procesos disciplinarios que correspondan.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°43207 del 31 de agosto del 2021)
 29. Respetar los Derechos Humanos, no discriminando a las personas sexualmente diversas, con capacidades disminuidas, por razones de edad, etnia, sexo, religión, raza, orientación sexual, estado civil, opinión política, ascendencia nacional, origen social, filiación, discapacidad, afiliación sindical, situación económica o cualquier otra forma análoga de discriminación.
 30. Asistir a las capacitaciones que le sean designadas, siempre y cuando vayan de acuerdo a sus funciones y el puesto que desempeña.
-31. Cumplir las disposiciones que señalan todos los reglamentos internos del INCIENSA y los de acatamiento obligatorio para el sector público.
+31. Mantener trato respetuoso y cortés hacia los usuarios del servicio, sus jefes(as), subalternos (as) y compañeros(as).
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°43207 del 31 de agosto del 2021)
+32. Cumplir con lo dispuesto en el Sistema Integrado de Gestión de Calidad, la normativa interna de la institución, la normativa de acatamiento obligatorio para el sector público; así como, con los valores institucionales y los deberes éticos de la función pública.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N°43207 del 31 de agosto del 2021)

@@ -14,3 +14,4 @@ Reglamento autónomo de servicio del Instituto Costarricense de Investigación y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-13 | la propia norma |
+| 2 | 2021-08-31 | Decreto Ejecutivo 43207 (2021-08-31) |

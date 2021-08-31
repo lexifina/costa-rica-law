@@ -2,7 +2,8 @@ CAPÍTULO IV
 De los derechos de los servidores
 Artículo 12. De los derechos de la persona servidora del INCIENSA: La persona servidora del INCIENSA gozará de todos los derechos y prerrogativas que concede este Reglamento y las normas que regulan la relación de servicio, tales como:
 a) Los medios y condiciones necesarias para efectuar sus labores con eficiencia.
-b) Contar con permiso con goce de salario para asistir a las escuelas o colegios, cuando medie una citación por el Centro Educativo de los hijos, así como a las citas médicas de los hijos menores de edad o con discapacidad limitada y los adultos mayores, que estén bajo su cuido. Para poder disfrutar de este permiso deberán presentar un comprobante de asistencia que demuestre el tiempo que la persona destinó para el trámite.
+b) Contar con permiso con goce de salario para asistir a las escuelas o colegios, en caso de reuniones de madres y padres de familia para seguimiento de desempeño académico o entrega de notas, así como a las citas médicas de los hijos menores de edad o con discapacidad limitada y los adultos mayores, que estén bajo su cuido. Para poder disfrutar de este permiso deberán presentar un comprobante de asistencia que demuestre el tiempo que la persona destinó para el trámite.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°43207 del 31 de agosto del 2021)
 c) Las medidas de seguridad para prevenir accidentes durante las jornadas de trabajo.
 d) La inducción y explicaciones adecuadas para definir las responsabilidades y la posición de cada uno, dentro de la organización funcional de la Institución.
 e) Ser capacitados para mejorar el desempeño de sus puestos.
