@@ -1,0 +1,1 @@
+Artículo 4. Aplicación. La Dirección de Servicios de Apoyo a la Gestión será el responsable de velar por el adecuado acato y aplicación del presente reglamento. El incumplimiento de las responsabilidades que se asignan podría conducir a futuras sanciones según lo establecido en el capítulo XV del régimen disciplinario, del Reglamento Autónomo de SINAES.

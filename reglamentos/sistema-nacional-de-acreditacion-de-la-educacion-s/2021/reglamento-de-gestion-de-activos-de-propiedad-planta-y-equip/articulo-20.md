@@ -1,0 +1,1 @@
+Artículo 20. Depreciación y deterioro. Los métodos de depreciación y deterioro para los activos capitalizables de propiedad, planta y equipo serán determinados de acuerdo con las Políticas Contables Generales y Normativa Contable Internacional establecidas y adoptadas por la Dirección General de Contabilidad Nacional del Ministerio de Hacienda.

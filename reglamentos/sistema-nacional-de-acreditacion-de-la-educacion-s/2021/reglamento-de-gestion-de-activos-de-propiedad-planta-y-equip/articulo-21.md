@@ -1,0 +1,1 @@
+Artículo 21. Valor en libros de la propiedad, planta y equipo. El valor en libros de la propiedad, planta y equipo serán determinados por la diferencia entre su valor de origen, más las mejoras, menos la depreciación y deterioro acumulados, en concordancia con los principios establecidos y adoptados por la Dirección General de Contabilidad Nacional del Ministerio de Hacienda.

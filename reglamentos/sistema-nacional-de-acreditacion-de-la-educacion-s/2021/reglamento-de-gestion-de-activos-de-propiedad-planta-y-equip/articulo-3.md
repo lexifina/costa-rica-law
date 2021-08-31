@@ -1,0 +1,16 @@
+Artículo 3. Glosario. Para todos los efectos legales que se deriven del presente reglamento, se utilizarán las siguientes definiciones:
+. Activos: son los bienes y derechos controlados por la institución como consecuencia de hechos pasados y de los cuales se espera que fluirán a la entidad beneficios económicos futuros o un potencial de servicio.
+. Auxiliar de propiedad, planta y equipo: base de datos de registros contables donde se enlista y enumera la información cualitativa y cuantitativa sobre los activos de propiedad, planta y equipo que se encuentran a control y disposición de la institución.
+. Bienes tangibles: corresponde a aquellos activos identificables que poseen una apariencia física definida que se encuentra a control y disposición de la institución
+. Bienes intangibles: corresponden a aquellos activos identificables sin apariencia física definida que se encuentra a control y disposición de la institución.
+. Capitalización: es el proceso por el cual se reconoce los bienes o derechos adquiridos por la institución como un activo institucional dentro de los Estados Financieros.
+. Custodia: Asignación por tiempo indefinido, donde se brinda un bien institucional a un funcionario para el desarrollo de sus actividades laborales, quien será el responsable de proteger, vigilar, velar, defender, resguardar, escoltar y amparar la integridad de este.
+. Depreciación: es la distribución sistemática del valor de origen de un activo a lo largo de su vida útil, o su pérdida de valor en el tiempo.
+. Otras personas autorizadas: individuos que no participan como funcionarios directos de la entidad, pero que por motivos estrictamente justificados en el cumplimiento de los logros de los objetivos institucionales, la dirección ejecutiva posee potestad de autorizar la custodia de los activos de propiedad, planta y equipo, incluye a los miembros del Consejo Nacional de Acreditación.
+. Préstamo: Asignación por tiempo limitado, bajo condiciones especiales, donde se brinda un bien a un funcionario para el desarrollo de sus actividades laborales, quien será el responsable de proteger, vigilar, velar, defender, resguardar, escoltar y amparar la integridad de este.
+. Propiedad, planta y equipo: son activos que están en poder de una institución para su uso en las operaciones o para fines administrativos, los cuales se espera serán utilizados durante más de un período contable.
+. Tomas físicas: conteo manual o verificación de su estado o existen física sobre los activos de propiedad, planta y equipo que se encuentran a control y disposición de la institución.
+. Valor de origen: es el importe de efectivo o medios líquidos equivalentes incurridos por la institución para la adquisición de un bien de propiedad, planta o equipo hasta que esté disponible para su utilización, o bien su valor razonable.
+. Valor en libros: es el importe por el que se reconoce un activo, una vez deducidas la depreciación o amortización acumulada y las pérdidas por deterioro acumuladas.
+. Valor razonable: el importe por el que puede ser intercambiado un activo, entre partes conocedoras e interesadas, que actúan en condiciones de independencia mutua.
+. Vida útil: es el período de tiempo, generalmente definido en años, por el cual un activo se espera que sea utilizado por la entidad.

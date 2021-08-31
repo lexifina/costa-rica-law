@@ -1,0 +1,1 @@
+Artículo 39. Remplazo de activos por reparación. La institución posee la obligación de brindarle al funcionario un activo de características similares que pueda ser utilizado como reemplazo temporal o permanente sobre aquellos bienes estrictamente necesarios para el desempeño de sus actividades laborales que se encuentren en condiciones de reparación o desecho.

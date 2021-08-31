@@ -1,0 +1,1 @@
+Artículo 49- Casos no previstos. Los casos no previstos en el presente reglamento se resolverán considerando la normativa en otros reglamentos, en las normas contables o administrativas vigentes, procedimientos o lineamientos internos institucionales y finalmente por las directrices o criterios emitidos por la Dirección de Servicios de Apoyo a la Gestión.

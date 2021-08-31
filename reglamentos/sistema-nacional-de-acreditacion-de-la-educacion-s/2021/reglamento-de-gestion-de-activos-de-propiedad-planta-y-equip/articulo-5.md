@@ -1,0 +1,1 @@
+Artículo 5. Procedimientos. La Dirección de Servicios de Apoyo a la Gestión en coordinación con la Contabilidad serán responsables de mantener debidamente actualizados los procedimientos, formularios y demás documentación permitente, aprobada y oficializada que garantice el correcto desempeño y aplicación de los alcances normativos del presente reglamento.

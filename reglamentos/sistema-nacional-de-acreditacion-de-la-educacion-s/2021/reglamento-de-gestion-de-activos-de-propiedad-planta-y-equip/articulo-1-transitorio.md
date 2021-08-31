@@ -1,0 +1,1 @@
+Transitorio I. La Dirección de Servicios de Apoyo a la Gestión posee la responsabilidad de notificar a los funcionarios en un plazo máximo de 3 días hábiles después de emitido el acuerdo de aprobación del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 19. Vida útil. La institución adoptará para todos sus bienes de propiedad, planta y equipo, la vida útil establecida en el anexo N°2 del Reglamento del Impuestos Sobre la Renta N° 18445-H vigente desde su publicación en el Diario Oficial La Gaceta el 23 de septiembre de 1988, según la categoría de activo a la que pertenece.

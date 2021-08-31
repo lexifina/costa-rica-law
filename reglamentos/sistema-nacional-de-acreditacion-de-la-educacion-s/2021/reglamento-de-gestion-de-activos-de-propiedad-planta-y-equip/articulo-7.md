@@ -1,0 +1,1 @@
+Artículo 7. Clasificación de activos de propiedad, planta y equipo. La institución deberá clasificar los activos de propiedad, planta y equipo por grupos, de acuerdo con su naturaleza de estos, en concordancia con el catálogo de cuentas establecido por el Ministerio de Hacienda (DGCN).
