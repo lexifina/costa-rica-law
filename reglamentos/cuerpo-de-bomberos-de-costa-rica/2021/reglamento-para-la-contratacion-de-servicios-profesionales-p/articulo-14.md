@@ -1,0 +1,1 @@
+Artículo 14.-Sobre la asignación de servicios. Mediante el respectivo rol de asignación, los servicios de inspección serán asignados por la Unidad de Ingeniería entre los proveedores que conformen el registro de proveedores, de la forma en que se establece en el artículo 16.

@@ -1,0 +1,1 @@
+Artículo 25.—Normativa: Todos los demás términos y condiciones del presente Reglamento se nutrirán y regirán supletoriamente de lo preceptuado en la Ley de Contratación Administrativa, el Reglamento a ésta última y la demás legislación nacional que de uno u otro modo guarden relación con la contratación de proveedores.

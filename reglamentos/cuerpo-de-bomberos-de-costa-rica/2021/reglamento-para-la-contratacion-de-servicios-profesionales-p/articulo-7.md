@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Metodología de ingreso al registro
+Artículo 7º-Solicitudes de ingreso al registro: Los interesados, sean personas físicas o jurídicas, podrán solicitar ingreso al registro de proveedores, para ofrecer cualquiera de los servicios indicados en el artículo 2, objeto del presente Reglamento. No se excluye la posibilidad de ofertar en múltiples servicios y zonas, caso en el cual, el solicitante aportará por separado los requisitos para cada tipo de servicio.
+Las personas físicas que resulten inscritas en el servicio correspondiente no podrán pertenecer a la lista de inspectores de personas jurídicas que soliciten ingreso al mismo registro. Adicionalmente, un inspector registrado en el listado de inspectores ofrecido por una persona jurídica no podrá formar parte de la lista de inspectores de otra persona jurídica.

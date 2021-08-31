@@ -1,0 +1,1 @@
+Artículo 15.-Lugar de servicio. Los servicios de inspección se prestarán en el lugar donde se encuentre la estructura a inspeccionar. No se aceptará que el inspector asignado no lleve a cabo la inspección debido a problemas de localización del sitio.
