@@ -1,0 +1,1 @@
+Art. 29.-El expendio en los lugares autorizados de comidas preparadas que requieren un proceso de elaboración más complejo se realizará en lugares que cuenten con una infraestructura sanitaria adecuada y que estén debidamente autorizados por la autoridad de salud o municipal correspondiente.

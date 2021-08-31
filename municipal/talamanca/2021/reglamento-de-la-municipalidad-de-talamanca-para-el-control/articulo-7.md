@@ -1,0 +1,1 @@
+Art. 7.-No se permitirá la ubicación de puestos de venta de alimentos en la cercanía de lugares como: establecimientos educativos, hospitales, construcciones, servicios higiénicos, depósitos de basura y otros que por su naturaleza puedan ser causa de contaminación.

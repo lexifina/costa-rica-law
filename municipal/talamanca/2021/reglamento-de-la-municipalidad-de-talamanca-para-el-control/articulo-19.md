@@ -1,0 +1,1 @@
+Art. 19.-Previo a la obtención del permiso sanitario, se cumplirán todos los requisitos contemplados en las disposiciones vigentes de este reglamento y se pagará la tasa correspondiente, fijado por la Municipalidad.

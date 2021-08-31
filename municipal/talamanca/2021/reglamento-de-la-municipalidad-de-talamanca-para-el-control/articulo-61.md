@@ -1,0 +1,1 @@
+Art. 61.-Es responsabilidad del vendedor, en coordinación con las autoridades de salud correspondiente, realizar un control permanente de vectores (moscas, cucarachas, roedores, etc.) mediante campañas de fumigación.

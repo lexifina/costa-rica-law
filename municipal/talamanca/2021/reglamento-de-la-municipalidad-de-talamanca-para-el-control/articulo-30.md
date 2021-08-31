@@ -1,0 +1,1 @@
+Art. 30.-La venta de ceviches, pescados, mariscos o moluscos se comercializará solamente en lugares que cuenten con una infraestructura sanitaria básica y una adecuada cadena de frío, que garantice su conservación, por considerarse productos de alto riesgo epidemiológico y que cuenten con el visto bueno de SENASA.

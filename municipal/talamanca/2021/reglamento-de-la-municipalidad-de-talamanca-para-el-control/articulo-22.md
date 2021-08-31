@@ -1,0 +1,1 @@
+Art. 22.-El permiso sanitario de venta anual para los puestos fijos, podrá ser renovado según criterio de la autoridad de salud o municipal, a los treinta días antes de que termine su período de vigencia.

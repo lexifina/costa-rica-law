@@ -1,0 +1,1 @@
+Art. 53.-Los alimentos se despacharán en lo posible utilizando material descartable, en caso contrario deberá ser de material inalterable y lavados con agua potable circulante y jabón después de cada utilización.

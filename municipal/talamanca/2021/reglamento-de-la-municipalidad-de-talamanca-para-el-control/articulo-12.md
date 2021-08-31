@@ -1,0 +1,1 @@
+Art. 12.-Los puestos de venta serán construidos de materiales sólidos y resistentes que garanticen su limpieza y desinfección, se mantendrán en buenas condiciones de conservación. Contarán con una disposición adecuada para mantener ordenados los utensilios, la vajilla y los productos para el expendio.

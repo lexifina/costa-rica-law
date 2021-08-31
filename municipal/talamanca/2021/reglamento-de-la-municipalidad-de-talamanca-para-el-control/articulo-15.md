@@ -1,0 +1,1 @@
+Art. 15.-Los puestos de venta que expenden alimentos que por su naturaleza se consideran de alto riesgo epidemiológico, deben contar con un sistema apropiado de conservación, en caliente (mayor de 60 C) y/o refrigeración (menor de 5 C).

@@ -1,0 +1,1 @@
+Art. 20.-La administración municipal correspondiente fijará la tasa a pagarse por permiso de venta en base al: espacio físico ocupado, área asignada para la venta y sector en el cual se desarrollará la actividad comercial.

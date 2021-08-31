@@ -1,0 +1,1 @@
+Art. 13.-El diseño y área de los puestos de venta serán estandarizados por la administración municipal o la autoridad de salud correspondiente, de tal manera que cuenten con adecuada presentación, servicios básicos, y que no ocasionen molestias a la comunidad y contribuyan a mantener el ornato del cantón.

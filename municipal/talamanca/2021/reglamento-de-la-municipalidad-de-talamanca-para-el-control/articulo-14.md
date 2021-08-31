@@ -1,0 +1,1 @@
+Art. 14.-La superficie de trabajo será lisa, de material impermeable, inalterable o inoxidable, de tal manera que permita una fácil limpieza, mantenimiento y buenas condiciones de conservación y con una altura no menor de 70 cm. del piso.

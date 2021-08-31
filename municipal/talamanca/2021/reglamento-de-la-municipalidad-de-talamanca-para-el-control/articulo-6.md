@@ -1,0 +1,4 @@
+Art. 6: Toda área de aldea o mercado Municipal deberá contar con una batería de baño cada 15 puestos de venta, y podrá ubicarse en dichas áreas las ventas de artesanía principalmente de vendedores indígenas como complemento a los puestos de comida, y para ello se fija como áreas a definir Cahuita, Puerto Viejo, en especial las áreas de Playa Negra, área central frente a la iglesia católica, casco central, Cocles, Punta Uva y Manzanillo, Sixaola, y el sector indígena que abarque poblados Bribris y Cabécares, pudiendo ser ampliado o reducido de acuerdo al desarrollo de proyectos y planes de reactivación económica o proliferación de pymes, pequeños artesanos, y con el apoyo de las Asociaciones de Desarrollo Integral de cada localidad.
+CAPÍTULO II
+De la ubicación
+Art. 6.-Las ventas de alimentos se ubicarán en lugares donde no ocasionen interferencia con el tráfico vehicular y/o dificulten el tránsito peatonal y sean áreas establecidas por la administración municipal.

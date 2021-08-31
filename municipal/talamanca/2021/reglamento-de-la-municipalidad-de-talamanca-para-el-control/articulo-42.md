@@ -1,0 +1,1 @@
+Art. 42.-Las hortalizas y verduras deberán lavarse con abundante agua potable circulante y aquellas que se consumieran crudas, lavarse y desinfectarse por sumersión en agua clorada, por lo menos durante quince minutos.
