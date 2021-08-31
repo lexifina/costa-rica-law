@@ -1,1 +1,1 @@
-Artículo 9º—Quórum de la Comisión Plenaria. El quórum para que la Comisión Plenaria pueda sesionar válidamente será de cuatro miembros.
+Artículo 9º-Quórum de la Comisión Plenaria. (Derogado por el artículo 36 del Reglamento de funcionamiento de la comisión plenaria de la Secretaría Técnica Nacional Ambiental, aprobado mediante decreto ejecutivo N° 43212 del 31 de agosto de 2021)
