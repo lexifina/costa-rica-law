@@ -1,2 +1,0 @@
-ARTÍCULO 11°.-Sanción por incumplimiento.
-El incumplimiento de las disposiciones contenidas en el presente Decreto Ejecutivo será sancionado de conformidad con lo establecido en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, Ley número 9078 del 4 de octubre de 2012, publicada en el Diario Oficial la Gaceta el 26 de octubre de 2012, sin perjuicio de las sanciones conexas a la persona conductora que infrinja las disposiciones relativas a la restricción.
