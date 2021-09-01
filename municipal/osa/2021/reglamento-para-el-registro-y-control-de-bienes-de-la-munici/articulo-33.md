@@ -1,0 +1,1 @@
+Artículo 33.-Del material bibliográfico. Se exceptúa de la aplicación de este Reglamento el registro y la custodia de libros, publicaciones digitales, CD, folletos, diccionarios, manuales técnicos, tesis, material bibliográfico y otros, propiedad Municipalidad de Osa.

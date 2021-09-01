@@ -1,0 +1,3 @@
+Artículo 15.-Obligaciones de Servicios Jurídicos:
+a) Previa solicitud del Departamento de Proveeduría, tramitar por medio de un Notario Público o por medio de la Notaria del Estado la desinscripción de todos aquellos bienes que estén registrados ante el Registro Público de la Propiedad cuando estos han sido declarados en desuso o como desecho.
+b) Previa solicitud del Departamento de Proveeduría, coordinar con un Notario Público o por medio de la Notaria del Estado para que se realicen los trámites de inscripción de los derechos de propiedad intelectual que sean generados por los funcionarios de la Municipalidad.

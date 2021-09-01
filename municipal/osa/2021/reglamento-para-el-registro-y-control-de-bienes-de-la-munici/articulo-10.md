@@ -1,0 +1,1 @@
+Artículo 10.-Cuando las características de los activos lo requieran, las jefaturas podrán normar y emitir procedimientos de restricción de uso del bien, conforme a los criterios internos y/o técnicos. Dichas normas y procedimientos se harán del conocimiento de todos(as) los(as) usuarios(as).

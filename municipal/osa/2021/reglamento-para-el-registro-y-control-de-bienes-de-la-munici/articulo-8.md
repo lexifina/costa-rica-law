@@ -1,0 +1,2 @@
+Artículo 8º-En el caso de que los(as) funcionarios(as) ingresen activos de su propiedad a la Municipalidad, deberá notificar por escrito sobre los mismos al jefe inmediato y al responsable del Control de Activos. Esta notificación deberá indicar al menos el tipo de bien, marca, modelo y número de serie. Así mismo, estos activos deberán estar debidamente identificados.
+De este artículo se excluyen aquellos bienes que son de uso personalísimo, mismos que no intervienen en el desarrollo de las funciones propias del municipio.

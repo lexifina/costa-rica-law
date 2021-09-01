@@ -1,0 +1,8 @@
+Artículo 12.-Obligaciones del Departamento Contable
+a) Registrar y controlar el movimiento contable de los activos de la Municipalidad con base en los documentos fuentes de información los cuales deben tener la clasificación de las cuentas que le corresponden a cada bien.
+b) Previo informe mensual, verificará mensualmente, que el auxiliar de activos que mantiene la Unidad responsable del control y registro de Activos esté debidamente conciliado con los saldos de las cuentas contables de la Municipalidad.
+c) Según información suministrada por el responsable del Registro y Control de Activos, mostrar en los estados financieros el monto total del activo de propiedad, planta y equipo debidamente depurado y cumpliendo con la normativa establecida en las NICSP, separando del valor histórico la depreciación de los bienes registrados, así como las revaluaciones de activos, la ampliación de la vida útil y cualquier otro dato que aclare al lector de estos estados financieros.
+d) Según información brindada por el responsable del Registro y Control de Activos, realizar los registros contables de todos aquellos bienes que sean dados de baja, ajustando así los estados financieros.
+e) La tasa de depreciación (años de vida útil) que se aplique a los bienes de la Municipalidad está sujeta a lo establecido en la directriz CN-13-2009 de Contabilidad Nacional.
+f) Generar y registrar en los estados financieros la depreciación de los bienes de la Municipalidad.
+g) Registrar las revaloraciones de los bienes propiedad de la Municipalidad, cuando sea solicitada por la unidad técnica especializada, según sea el caso.

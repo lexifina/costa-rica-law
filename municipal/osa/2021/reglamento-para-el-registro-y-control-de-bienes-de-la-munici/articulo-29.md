@@ -1,0 +1,1 @@
+Artículo 29.-Recibido del activo una vez reparado: Una vez reparado el activo, el encargado del bien informarán a la unidad de Proveeduría sobre su llegada, adjuntando copia de las facturas con el detalle del costo de la reparación para su registro y modificación en el sistema de control y también para los ajustes que correspondan en la Contabilidad.
