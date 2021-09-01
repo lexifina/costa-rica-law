@@ -1,0 +1,1 @@
+ARTÍCULO 18- Los beneficios tributarios establecidos en este título se eliminan inmediatamente en el momento en que la Dirección General de Migración y Extranjería decrete la cancelación de la condición de beneficiario.

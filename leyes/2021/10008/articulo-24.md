@@ -1,0 +1,3 @@
+ARTÍCULO 24- Promoción y mercadeo
+El Instituto Costarricense de Turismo (ICT) podrá incluir en sus acciones de mercadeo y promoción este segmento de visitantes de larga estancia. Igualmente, podrá colaborar con la Dirección de Migración y Extranjería en la aportación de datos, estadísticas o análisis, así como otras acciones que esta requiera para la más eficiente consecución de los objetivos de la ley.
+Asimismo, se autoriza al Instituto Costarricense de Turismo para que suscriba convenios, alianzas estratégicas, programas de incentivos y promociones con entidades nacionales e internacionales que promueven el ingreso al país de visitantes de larga estancia.
