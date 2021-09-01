@@ -1,0 +1,1 @@
+Artículo 2º-Suprímanse los Capítulos XVI y XVII del "Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio de Seguridad Pública", Decreto Ejecutivo N° 23880-SP, del 06 de diciembre del 1994, consecuentemente ajústese la numeración de los capítulos siguientes y córrase la numeración de los artículos a partir del artículo 119 antes incluido.
