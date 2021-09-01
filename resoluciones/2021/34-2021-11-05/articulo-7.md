@@ -1,0 +1,1 @@
+Artículo 7°-Aplicación de códigos CABYS: Solamente contarán con la tarifa reducida los servicios incluidos en el Anexo a la presente resolución con sus respectivos códigos Cabys, los cuales quedarán automáticamente registrados en la Autorización de Exención.

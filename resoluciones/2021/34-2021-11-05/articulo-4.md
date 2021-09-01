@@ -1,0 +1,1 @@
+Artículo 4º-Plazo de vigencia de las autorizaciones: la vigencia de las autorizaciones emitidas por el Departamento de Gestión de Exenciones, dependerán del tracto o rango que establece el Transitorio V bis de la Ley 9635.
