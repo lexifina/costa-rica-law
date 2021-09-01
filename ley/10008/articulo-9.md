@@ -1,0 +1,2 @@
+ARTÍCULO 9- Disponibilidad de información
+Para facilitar el cumplimiento de los objetivos de la presente ley, la Dirección General de Migración y Extranjería pondrá a disposición del público, en su página web, la normativa correspondiente a la gestión de la condición de Trabajador o Prestador Remoto de Servicios, así como una lista de los requisitos sustantivos y formales que se deberán cumplir para optar por tal condición.

@@ -1,0 +1,4 @@
+ARTÍCULO 13- Pérdida de la condición de beneficiario
+En caso de que el beneficiario solicitante no compruebe que se mantiene vigente la situación que le permitió acreditarse como tal, o que lleve a cabo labores o preste servicios distintos de los que esta ley le autorizan, se le cancelará dicha condición, así como cualquier tipo de beneficio, debiendo cancelar también los impuestos nacionales con el fin de nacionalizar aquellos bienes que hubiesen sido importados sin el pago de tributos. Asimismo, perderán la condición de beneficiarios los miembros del grupo familiar.
+Esta circunstancia será comunicada de forma inmediata a la Dirección General de Aduanas y a la Dirección de Tributación, para lo que corresponda.
+Además, en caso de que el beneficiario lleve a cabo labores o preste servicios distintos de los que esta ley le autorizan, deberá pagar todas las obligaciones tributarias correspondientes, incluyendo los intereses y las sanciones correspondientes.
