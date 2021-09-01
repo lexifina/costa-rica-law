@@ -1,0 +1,2 @@
+Artículo 54.-Los residuos que se produzcan por la limpieza de alcantarillas, drenajes o colectores del sistema pluvial público, no podrán ser acumulados en las vías públicas por más tiempo del estrictamente necesario para ser recogidos. Las Unidades Administrativas encargadas de estas labores deberán coordinar
+dichas labores, garantizando el máximo aprovechamiento de los recursos, así como la protección de la salud pública y el medio ambiente.

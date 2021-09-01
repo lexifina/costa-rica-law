@@ -1,0 +1,1 @@
+Artículo 22.-En cuanto a la recolección de residuos sólidos no valorizables de las industrias, que resulte ser diferentes de los residuos ordinarios, la Municipalidad acordará un sistema de recolección y el cobro de tasas diferenciado, según la naturaleza y los requerimientos necesarios para la disposición final de esos residuos.

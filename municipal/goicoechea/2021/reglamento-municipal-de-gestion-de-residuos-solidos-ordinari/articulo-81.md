@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+Derogaciones disposiciones transitorias
+Artículo 81.-conocimiento observancia del presente reglamento son obligatorias para todos los usuarios que requieran del servicio de recolección de cualquier tipo de residuos (ya sea esporádicamente, ocasional o periódicamente) de manera que su desconocimiento nunca podrá ser invocado como excusa para omitir los deberes respectivos o evitar las sanciones correspondientes. Para tal efecto, la Municipalidad compromete ponerlo disposición de los usuarios por diferentes medios, asegurando que el reglamento llegue todos los habitantes visitantes del cantón.

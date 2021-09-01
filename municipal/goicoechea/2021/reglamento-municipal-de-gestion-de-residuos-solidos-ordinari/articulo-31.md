@@ -1,0 +1,1 @@
+Artículo 31.-La Municipalidad facilitará procesos de capacitación para las personas designadas y otros Interesados en el Manejo Discriminado de los Residuos Sólidos, de conformidad con el artículo anterior.

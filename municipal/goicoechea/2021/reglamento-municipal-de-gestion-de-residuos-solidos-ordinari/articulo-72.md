@@ -1,0 +1,1 @@
+Artículo 72.-Cuando exista violación o inobservancia de este Reglamento, el personal que conforme al artículo anterior realice la inspección, procederá a levantar un acta en la que se hagan constar los hechos de la inspección y se cumplan las formalidades del procedimiento.

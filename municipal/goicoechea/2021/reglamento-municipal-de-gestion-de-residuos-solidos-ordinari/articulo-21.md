@@ -1,0 +1,1 @@
+Artículo 21.-Está terminantemente prohibido entregar residuos comerciales dentro de la recolección ordinaria, tales como desechos de la industria alimenticia, química, médica y toda otra de las enmarcadas dentro de los residuos peligrosos, o que puedan resultar perjudiciales a la salud humana o el medio ambiente.

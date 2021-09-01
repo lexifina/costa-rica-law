@@ -1,0 +1,1 @@
+Artículo 6º-Sobre los residuos valorizables. Estos residuos deben estar secos, limpios y colocados en recipientes separados claramente definidos. Las cajas de cartón y papeles deben ser doblados y amarrados; tratando en la medida de lo posible, que no se vean afectos por la lluvia o el viento durante la recolección de los mismos.

@@ -1,0 +1,1 @@
+Artículo 9º-Sobre la recolección de residuos de jardines. En la recolección de residuos de jardines sólo se recogerá zacate, hojas y tallo, en bolsas, así como ramas hasta un diámetro de 10 centímetros.

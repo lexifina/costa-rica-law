@@ -1,0 +1,1 @@
+Artículo 48.-Los prestadores del servicio de recolección, clasificación, reutilización y manejo de residuos, ya sean públicos o privados, deberán informar y capacitar periódicamente a su personal acerca de los métodos de trabajo, mediante una política de mejora continua, para una adecuada operación del servicio.

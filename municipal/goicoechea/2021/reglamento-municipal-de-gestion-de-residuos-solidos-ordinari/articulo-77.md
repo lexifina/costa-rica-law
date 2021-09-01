@@ -1,0 +1,1 @@
+Artículo 77.-El cierre preventivo de actividades industriales, mercantiles, a de cualquier otra forma procederá cuando se compruebe, con los elementos idóneos, que la continuación de las mismas pone en peligro la salud seguridad de las personas, o cause daños al medio ambiente. Dicha suspensión durará en tanto subsistan las causas que dieron origen a la infracción.

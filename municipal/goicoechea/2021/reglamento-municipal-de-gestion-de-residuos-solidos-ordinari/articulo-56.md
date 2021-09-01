@@ -1,0 +1,1 @@
+Artículo 56.-La forma única autorizada para eliminar los residuos domiciliares, comerciales e industriales es la que se detalla en éste reglamento. Por lo tanto, queda terminantemente prohibido deshacerse de los residuos entregándolos a recolectores no autorizados por la Municipalidad.

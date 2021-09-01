@@ -1,0 +1,1 @@
+Artículo 73.-El original del acta de infracción a que se refiere el artículo anterior se turnará a cualquiera que sea la Dependencia que la levante en los términos de los dos artículos anteriores, a efecto de que se califique la infracción y se imponga la sanción correspondiente con apego a este Reglamento

@@ -1,0 +1,1 @@
+Artículo 47.-Las autoridades municipales mantendrán informada en forma periódica a la población de la situación del manejo de los residuos en el Municipalidad ya que la separación en la fuente, la reutilización, y la disposición adecuada de los elementos desechados, serán obligatorios para todos los usuarios de la Municipalidad.

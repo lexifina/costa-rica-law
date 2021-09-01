@@ -1,0 +1,1 @@
+Artículo 53.-Cuando la Municipalidad deba realizar la recolección retiro de escombros y residuos generado por construcción, remodelación o reparación de todo tipo de edificación, que sea acumulado en las aceras o vías públicas correrá a cargo del propietario de la obra de construcción que los haya originado y/o del responsable de la misma.

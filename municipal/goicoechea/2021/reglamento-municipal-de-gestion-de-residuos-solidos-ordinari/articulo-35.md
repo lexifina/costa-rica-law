@@ -1,0 +1,1 @@
+Artículo 35.-En la selección y reclutamiento, o el traslado interno de personal responsable de trámites o servicios municipales, referidos al ámbito de aplicación de este Reglamento, se dará énfasis especial en las escogencias de las personas con conocimientos, experiencia y antecedentes demostrados en cuanto a la materia ambiental y el tratamiento y disposición de residuos.

@@ -1,0 +1,1 @@
+Artículo 17.-En los permisos de construcción y remodelación, se deben indicar y aprobar por parte de la Municipalidad las especificaciones de tamaño y ubicación para las instalaciones utilizadas para almacenamiento temporal.

@@ -1,0 +1,1 @@
+Artículo 60.-Los transportistas que realicen operaciones de cargas y descarga en la vía pública, estén obligados a realizar el aseo inmediato del lugar una vez terminadas las maniobras, siendo corresponsable de ello el propietario de la mercancía o material.

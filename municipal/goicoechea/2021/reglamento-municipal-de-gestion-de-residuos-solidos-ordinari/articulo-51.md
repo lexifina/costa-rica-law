@@ -1,0 +1,1 @@
+Artículo 51.-Es obligación de los propietarios de lotes baldíos o fincas desocupadas ubicados dentro del perímetro urbano, mantenerlos debidamente cerrados y protegidos, para evitar que se arrojen residuos que los convierten en lugares nocivos para la salud o seguridad de las personas.
