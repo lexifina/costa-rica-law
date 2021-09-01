@@ -16,3 +16,16 @@ Artículo 2°:Apruébense los siguientes Egresos Ordinarios y Extraordinarios de
 (Modificado por el artículo 1° del decreto ejecutivo N° 43069 del 24 de junio del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43141 del 7 de julio del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43163 del 6 de agosto de 2021)
+(Así reformado por el artículo 2° de la ley N° 10035 del 1° de setiembre del 2021)
+(Así reformado por el artículo 3° de la ley N° 10035 del 1° de setiembre del 2021)
+(Mediante el artículo 4° de la ley N° 10035 del 1° de setiembre del 2021, s eindica reformar el presente artículo de la siguiente forma: "Artículo 4º:Modificase el artículo 2º de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2021, Ley No. 9926 publicada en el Alcance 318 a la Gaceta Nº284 del 02 de diciembre de 2020 para que se eliminen los puestos que a continuación se detallan:
+MINISTERIO DE EDUCACIÓN PÚBLICA
+PUESTO CLASE
+381891 AUDITOR NIVEL 2
+381892 DIRECTOR EJECUTIVO FONDO NACIONAL DE BECAS
+501530 PROFESIONAL DE SERVICIO CIVIL 2
+501553 TÉCNICO DE SERVICIO CIVIL 2
+501561 MISCELANEO DE SERVICIO CIVIL 1
+501563 PROFESIONAL DE SERVICIO CIVIL 2
+504161 PROFESIONAL DE SERVICIO CIVIL 1 A
+TOTAL MINISTERIO DE EDUCACIÓN PÚBLICA= 7")
