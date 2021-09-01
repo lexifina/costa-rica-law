@@ -14,3 +14,4 @@ Actualización de disposiciones migratorias para aplicación del Decreto Ejecuti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-01 | la propia norma |
+| 2 | 2021-09-01 | Circular 1304 (2021-09-01) |
