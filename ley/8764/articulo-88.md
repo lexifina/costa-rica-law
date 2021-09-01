@@ -4,4 +4,6 @@ Para los efectos de otorgamiento de la visa y el plazo de permanencia, en la sub
 2) Quienes sean agentes de negocios, agentes viajeros o delegados comerciales que ingresen para atender asuntos vinculados a las actividades de las empresas o sociedades que representen, siempre que en el país no devenguen el pago de salarios u honorarios y para realizar sus actividades no requieran residir en territorio nacional.
 3) Quienes se desempeñen como reporteros, camarógrafos y demás personal de los medios de comunicación social, que ingresen al país para cumplir funciones de su especialidad y no devenguen el pago de salario en el país.
 4) Las personas que requieran tratamiento médico especializado en un centro hospitalario reconocido.
+5) Las personas extranjeras que se desempeñen en labores a realizar a distancia para clientes y compañías fuera de Costa Rica y deseen permanecer en el país, mientras trabajan o prestan servicios de manera remota. A esta condición se le conocerá como "Trabajador o Prestador Remoto de Servicios.
+(Así adicionado el inciso anterior por el artículo 23 de Ley para atraer trabajadores y prestadores remotos de servicios de carácter internacional, N° 10008 del 11 de agosto de 2021)
 El plazo de permanencia para esta subcategoría será de un año, con posibilidad de prorrogarse por el mismo plazo, previa verificación de los requisitos.

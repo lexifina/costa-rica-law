@@ -1,0 +1,3 @@
+ARTÍCULO 16- Beneficios relativos al impuesto a las utilidades
+Los beneficiarios tendrán exención total sobre el impuesto sobre las utilidades, definido en el título I de la Ley 7092, Ley del Impuesto sobre la Renta, de 21 de abril de 1988. En ningún caso se considerará a los beneficiarios como residentes habituales del país para efectos tributarios, ni se considerará el ingreso que reciben del exterior como de fuente costarricense.
+Este beneficio no será aplicable al grupo familiar de la persona beneficiaria. Si algún miembro del grupo familiar pretende obtener este beneficio, deberá aplicar y cumplir con todos los requisitos del beneficiario directo.
