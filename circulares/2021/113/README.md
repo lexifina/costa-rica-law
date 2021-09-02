@@ -13,3 +13,4 @@ Criterios orientadores para determinar el valor de los documentos de previo al p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-21 | la propia norma |
+| 2 | 2021-09-02 | Circular 194 (2021-09-02) |
