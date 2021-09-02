@@ -14,3 +14,4 @@ Reglamento para la atención de casos de acoso laboral en el Ministerio de relac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-22 | la propia norma |
+| 2 | 2021-09-02 | Decreto Ejecutivo 43351 (2021-09-02) |

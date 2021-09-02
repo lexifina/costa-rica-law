@@ -1,1 +1,3 @@
-Artículo 19º- Denuncias presentadas contra el Ministro de Relaciones Exteriores y Culto. Las denuncias interpuestas en contra del Ministro de Relaciones Exteriores y Culto serán conocidas por el Consejo de Gobierno, en consecuencia, éstas deberán ser trasladadas a ese órgano por parte de la CIAL.
+Artículo 19.-Denuncias presentadas en contra del Ministro de Relaciones Exteriores y Culto y en contra de Embajadores. Las denuncias interpuestas en contra del Ministro de Relaciones Exteriores y Culto serán conocidas por el Presidente de la República, en consecuencia, éstas deberán ser trasladadas a dicho órgano por parte de la CIAL.
+Las denuncias interpuestas en contra de Embajadores nombrados por el Consejo de Gobierno, serán conocidas por ese mismo órgano colegiado, en consecuencia, éstas deberán ser trasladadas a dicho órgano por parte de la CIAL.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43351 del 2 de setiembre del 2021)
