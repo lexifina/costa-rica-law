@@ -1,0 +1,14 @@
+N° 6862-21-22
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+ACUERDA:
+En sesión ordinaria N° 44, celebrada el 2 de setiembre de 2021, de conformidad con las atribuciones que le confiere el inciso 22) del artículo 121 de la Constitución Política y el artículo 233 del Reglamento de la Asamblea Legislativa.
+ACUERDA:
+REFORMA DEL ARTÍCULO 220 DEL REGLAMENTO DE LA ASAMBLEA LEGISLATIVA
+Artículo 220.-Trámite del informe. La liquidación del presupuesto ordinario, de los extraordinarios y el dictamen de la Contraloría General de la República, a los que se refiere el artículo 181 de la Constitución Política, así como la documentación respectiva, pasarán a conocimiento de la Comisión Permanente Ordinaria de Asuntos Hacendarios, inmediatamente presentado a la Asamblea Legislativa, la cual tendrá hasta el último día del mes de julio para rendir un informe al Plenario, en el que recomendará aprobar o improbar la liquidación.
+Luego de concluido el plazo de espera para la presentación de los informes, establecido en el artículo 131 del Reglamento de la Asamblea Legislativa y al inicio del primer período de sesiones ordinarias, la Presidencia deberá determinar la fecha en que iniciará su discusión y anunciarlo al Plenario; sin embargo, la discusión no podrá efectuarse antes de dos sesiones ordinarias, pero nunca después de ocho sesiones ordinarias a partir del anuncio.
+A partir de ese momento, el Plenario dedicará hasta dos sesiones ordinarias para conocer de forma exclusiva el o los informes sobre la liquidación del presupuesto.
+Si a las veintitrés horas de la segunda sesión no se hubiera agotado el debate, la Presidencia lo suspenderá y de inmediato, someterá a votación.
+Las fracciones de un solo diputado o diputada tendrán hasta 10 minutos, las fracciones que tengan entre dos y cinco diputados y diputadas tendrán hasta 20 minutos, las fracciones que tengan entre seis y diez diputados y diputadas tendrán hasta 30 minutos y las mayores de diez diputados y diputadas tendrán hasta una hora para referirse al asunto en discusión. En estos casos, la Presidencia otorgará el uso de la palabra según el orden en que lo soliciten los diputados y las diputadas.
+Rige a partir de su aprobación.
+Asamblea Legislativa.-San José, a los dos días del mes de setiembre de dos mil veintiuno.
