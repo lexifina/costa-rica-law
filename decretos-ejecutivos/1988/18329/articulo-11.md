@@ -1,8 +1,7 @@
 De los requisitos
-Artículo 11.-El Ministerio de Salud otorgará el Permiso Sanitario de Funcionamiento una vez que se cumpla con los siguientes requisitos:
+Artículo 11.- El Ministerio de Salud otorgará el Permiso Sanitario de Funcionamiento una vez que se cumpla con los siguientes requisitos:
 a) Cumplir con los requisitos establecidos en el Decreto Ejecutivo N° 39472-S del 18 de enero del 2016 "Reglamento General para Autorizaciones y Permisos Sanitarios de Funcionamiento Otorgados por el Ministerio de Salud" y sus reformas.
 b) Copia del comprobante de pago de servicios otorgado por el banco recaudador según lo establece el Decreto Ejecutivo N° 32161-S del 09 de setiembre del 2004 "Reglamento de Registro Sanitario de Establecimientos Regulados por el Ministerio de Salud".
 c) Copia de certificado o título de capacitación y/o cursos recibidos por las personas trabajadoras, impartidos por peluqueros, estilistas, centros de enseñanza y academias, ya sean éstos personas físicas o jurídicas. Quien no cuente con un certificado o título de capacitación y/o cursos recibidos, debe presentar adjunto al Formulario Unificado de Solicitud de Permiso Sanitario de Funcionamiento, una declaración jurada en la que manifieste la experiencia, no menor a 6 meses, con que cuenta para realizar las actividades de los establecimientos indicados en el artículo 1 del presente reglamento.
-d) Certificado de salud extendido por un Médico incorporado al Colegio de Médicos y Cirujanos de Costa Rica, de cada una de las personas que laboran en el establecimiento. Dicho certificado debe ser presentado en la solicitud de Permiso Sanitario de Funcionamiento por primera vez y renovación.
-Cada vez que se contrate una nueva persona que ejercerá los oficios indicados, se deberá cumplir con lo establecido en los incisos c) y d) del presente artículo.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42942 del 12 de abril del 2021)
+Cada vez que se contrate una nueva persona que ejercerá los oficios indicados, se deberá cumplir con lo establecido en el inciso c) del presente artículo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43289 del 3 de setiembre de 2021)

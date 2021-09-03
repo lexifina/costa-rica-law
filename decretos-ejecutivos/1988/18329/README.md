@@ -17,3 +17,4 @@ Reglamento de Barberías, Peluquerías, Salones de Belleza y Afines
 | 3 | 2008-05-28 | Decreto Ejecutivo 34728 (2008-05-28) |
 | 4 | 2016-01-18 | Decreto Ejecutivo 39472 (2016-01-18) |
 | 5 | 2021-04-12 | Decreto Ejecutivo 42942 (2021-04-12) |
+| 6 | 2021-09-03 | Decreto Ejecutivo 43289 (2021-09-03) |
