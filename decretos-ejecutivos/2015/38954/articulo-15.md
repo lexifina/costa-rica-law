@@ -1,2 +1,0 @@
-Artículo 15.—Los cogestores sociales actuarán como enlace entre las familias en pobreza extrema y la oferta programática estatal. Adicionalmente brindarán acompañamiento y atención integral partiendo del principio de corresponsabilidad.
-(Corrida la numeración por el artículo 2° del decreto ejecutivo N° 41351 del 19 de octubre de 2018, que lo traspaso del antiguo artículo 16) al 15), ya que se acordó eliminar el numeral 9 y correr la numeración de los restantes artículos)

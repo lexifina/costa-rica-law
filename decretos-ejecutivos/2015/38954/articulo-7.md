@@ -1,2 +1,0 @@
-Artículo 7º—La Estrategia Puente al Desarrollo, contará con un Equipo de Monitoreo y Evaluación bajo la dirección del Ministerio de Planificación Nacional y Política Económica, el cual estará conformado por una persona representante del: Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF), el Instituto Nacional de Estadística y Censos, el Área de Planificación del IMAS y Área de Atención Integral e Interinstitucional del IMAS.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41351 del 19 de octubre de 2018)

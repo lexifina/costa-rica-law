@@ -1,2 +1,0 @@
-ARTÍCULO 21.-Las instituciones señaladas en el artículo anterior, respetando su autonomía o independencia funcional, deberán participar de la Estrategia Puente al Desarrollo dándole prioridad en la asignación de recursos políticos, económicos e institucionales y a cooperar con diligencia, de manera que se alcancen los objetivos propuestos.
-(Corrida la numeración por el artículo 2° del decreto ejecutivo N° 41351 del 19 de octubre de 2018, que lo traspaso del antiguo artículo 22) al 21), ya que se acordó eliminar el numeral 9 y correr la numeración de los restantes artículos)

@@ -1,3 +1,0 @@
-Artículo 18.—Las instituciones señaladas en el artículo 20 de este decreto, respetando su autonomía o independencia funcional, deberán formular a la brevedad una directriz que incluya el procedimiento que garantice un acceso preferente y obligatorio de la población en condición de pobreza. Todo en el marco de la implementación y articulación de la Estrategia Puente al Desarrollo, conforme a las competencias regladas y normativa interna.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41351 del 19 de octubre de 2018)
-(Corrida la numeración por el artículo 2° del decreto ejecutivo N° 41351 del 19 de octubre de 2018, que lo traspaso del antiguo artículo 19) al 18), ya que se acordó eliminar el numeral 9 y correr la numeración de los restantes artículos)

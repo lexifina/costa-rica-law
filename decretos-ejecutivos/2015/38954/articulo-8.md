@@ -1,2 +1,0 @@
-Artículo 8º—Las instituciones indicadas en el artículo 20 de este decreto, vinculadas con la Estrategia Puente al Desarrollo, deberán suministrar al Área Estratégica de Articulación Presidencial de Seguridad Humana y al Área de Atención Integral e Interinstitucional del IMAS, los datos necesarios para alimentar los sistemas de información. Estos datos se utilizarán como insumos en los Informes de Rendición de Cuentas a nivel nacional, regional, territorial y local.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41351 del 19 de octubre de2018)
