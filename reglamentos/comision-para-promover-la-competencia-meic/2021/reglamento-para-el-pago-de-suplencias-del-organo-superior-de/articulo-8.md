@@ -1,0 +1,1 @@
+Artículo 8º-Periodicidad del pago: Los pagos a los miembros suplentes del Órgano Superior de la Autoridad, se realizarán mediante planilla considerando las fechas establecidas en el calendario de pagos del Ministerio de Hacienda, según corresponda, y de conformidad con el procedimiento establecido en el Capítulo III del presente Reglamento.

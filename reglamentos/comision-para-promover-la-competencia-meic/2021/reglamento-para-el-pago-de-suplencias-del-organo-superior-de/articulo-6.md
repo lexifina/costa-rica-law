@@ -1,0 +1,2 @@
+Artículo 6º-Excepción al pago: Cuando el miembro suplente haya asistido de manera parcial a la sesión (ordinaria o extraordinaria), sea por haber llegado tarde, por retirarse antes de que ésta concluya, por ausentarse o por no haber concurrido con su voto afirmativo o negativo, no se generará derecho al pago.
+Ante ausencia, llegada tardía, retiro anticipado, omisión de voto, no presentación de documentos o no cumplimiento de los requisitos del Capítulo III del presente Reglamento, el miembro suplente no tendrá derecho al pago total, ni parcial.

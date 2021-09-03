@@ -1,0 +1,1 @@
+Artículo 14.-Sobre el inicio del trámite ante Recursos Humanos: El (la) director (a) del Órgano Técnico será el responsable de presentar ante el Departamento de Recursos Humanos, los documentos correspondientes para el inicio del trámite de pago del miembro suplente.

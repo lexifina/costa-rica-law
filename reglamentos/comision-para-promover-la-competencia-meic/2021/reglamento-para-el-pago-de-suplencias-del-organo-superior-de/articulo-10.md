@@ -1,0 +1,1 @@
+Artículo 10.-Base para el Cálculo de Pago: Se cancelará al miembro suplente el monto de los días invertidos en el desarrollo de la suplencia, utilizando el salario base estipulado en el artículo 13 de este Reglamento, previa verificación por parte del Departamento de Recursos Humanos del cumplimiento de los requisitos establecidos en artículo 12 de este cuerpo normativo.
