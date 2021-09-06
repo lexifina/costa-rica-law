@@ -14,3 +14,4 @@ Reglamento Autónomo de servicio del Instituto Nacional de Aprendizaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-19 | la propia norma |
+| 2 | 2021-09-06 | Reglamento 33 (2021-09-06) |

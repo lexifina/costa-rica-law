@@ -44,6 +44,7 @@ articulo-43.md
 articulo-44.md
 articulo-45.md
 articulo-46.md
+articulo-46-bis.md
 articulo-47.md
 articulo-48.md
 articulo-49.md
@@ -61,6 +62,8 @@ articulo-60.md
 articulo-61.md
 articulo-62.md
 articulo-63.md
+articulo-63-bis.md
+articulo-63-ter.md
 articulo-64.md
 articulo-65.md
 articulo-66.md

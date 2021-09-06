@@ -23,7 +23,8 @@ confidencialidad o secreto por razones legales, deberá señalarse claramente a 
 17. Denunciar ante su jefatura inmediata, toda situación susceptible de provocar un riesgo laboral.
 18. Dar aviso inmediato al Proceso de Recursos Humanos, de cualquier accidente de trabajo que sufra el funcionario o cualquiera de sus compañeros.
 19. Registrar diariamente la asistencia cuando esté obligado a ello, utilizando en sistema de control establecido al efecto, en su respectivo centro de trabajo.
-20. Notificar al jefe inmediato la imposibilidad para asistir al trabajo, a más tardar, dentro del segundo día hábil siguiente a aquél en que surgió el impedimento.
+20. Notificar al jefe inmediato la imposibilidad para asistir al trabajo, a más tardar, al día hábil siguiente a aquél en que surgió el impedimento.
+(Así reformado el inciso anterior en sesión N° 33 del 6 de setiembre de 2021)
 21. Laborar jornada extraordinaria hasta por el máximo legal cuando sea requerido para ello, y prestar auxilio en caso de siniestro o riesgo inminente para las personas o para las instalaciones del INA.
 22. Presentar las liquidaciones correspondientes a gasto de viaje y compra de bienes y servicios por caja chica, dentro del plazo reglamentario establecido para cada caso; y reintegrar a la institución cualquier suma no utilizada en el objeto de gasto autorizado.
 23. Portar la identificación de funcionario, dentro de las instalaciones del INA y durante la jornada de trabajo.

@@ -1,7 +1,7 @@
 CAPITULO XIII (*)
 DISPOSICIONES ESPECIALES PARA LA SANCIÓN DE CONDUCTAS
 FRAUDULENTAS, CORRUPTAS Y ANTIÉTICAS.
-ARTÍCULO 58- Artículo 58- Definiciones: Para los efectos de este capítulo, se entenderá por:
+Artículo 58- Definiciones: Para los efectos de este capítulo, se entenderá por:
 1. Buena fe: principio general de derecho que impone un comportamiento ajustado a valoraciones éticas, al que han de ajustarse el cumplimiento de las obligaciones del funcionario público, y que hace esperar de él, una actuación leal y socialmente correcta.
 2. Corrupción: Es el uso de las funciones y atribuciones públicas para obtener o conceder beneficios a particulares, en contravención de las disposiciones legales y la normativa existente en un momento histórico determinado y en general, el uso del poder y de los recursos públicos, para el beneficio personal, el beneficio político particular o el de terceros.
 3. Conducta corrupta o antiética: Acción de una persona que utiliza directa o indirectamente los recursos disponibles por efecto del cargo público que ocupa, en beneficio propio o de un tercero; anteponiendo el interés individual al interés de las demás personas y al cumplimiento de la ley.
@@ -19,3 +19,6 @@ ARTÍCULO 58- Artículo 58- Definiciones: Para los efectos de este capítulo, se
 15. Legalidad: principio que exige someter toda actuación pública al ordenamiento jurídico.
 16. Manejo de Fondos públicos: Función que consiste en gestionar administrativa o contablemente los fondos públicos, que está a cargo de aquellas personas que de conformidad con el ordenamiento jurídico y de acuerdo con el acto de su nombramiento, pueden disponer y tomar decisiones o acciones jurídicas o contables, sobre esos fondos.
 17. Sistema de control interno: Conjunto de acciones diseñadas y ejecutadas por la administración, con el fin de proporcionar seguridad en la consecución de los siguientes objetivos: Proteger y conservar el patrimonio público contra cualquier pérdida, despilfarro, uso indebido irregularidad o acto ilegal; exigir confiabilidad y oportunidad de la información; Garantizar la eficiencia y la eficacia de las operaciones y; cumplir con el ordenamiento jurídico y técnico.
+18. Represalias: Acción hostil ejecutada en contra de una persona con el fin de molestarla por haber cooperado como testigo o como denunciante en asuntos relacionados con conductas fraudulentas, corruptas o antiéticas.
+(Incorporado mediante acuerdo JD-AC-298-2021 tomado en la sesión ordinaria número 33-2021 celebrada el 06 de setiembre del 2021).
+(Así adicionado el inciso 18) anterior en sesión N° 33 del 6 de setiembre de 2021)
