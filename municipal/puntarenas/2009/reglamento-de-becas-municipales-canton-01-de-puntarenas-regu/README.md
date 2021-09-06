@@ -15,3 +15,4 @@ Reglamento de Becas Municipales cantón 01 de Puntarenas (Regulación del inciso
 | --- | --- | --- |
 | 1 | 2009-12-17 | la propia norma |
 | 2 | 2017-05-04 | Reglamento municipal 92 (2017-05-04) |
+| 3 | 2021-09-06 | Reglamento municipal 119 (2021-09-06) |
