@@ -1,0 +1,1 @@
+Artículo 13.-Nueva contratación. El funcionario o funcionaria que laboró en un puesto de confianza y es contratado o contratada de nuevo por la Municipalidad de San Rafael, en un puesto propio de la relación de empleo público, deberá cumplir con todas las disposiciones legales para el reclutamiento y la selección de personal, según la naturaleza de la plaza de que se trate.

@@ -1,0 +1,1 @@
+Artículo 4º-Sobre la estabilidad laboral. El funcionario o funcionaria en puestos de confianza no gozarán de estabilidad laboral, en el tanto su nombramiento está sujeto a las causales de ley o razones objetivas de necesidad del área contratante y puede ser destituido libremente por la instancia que lo nombró, previa comprobación de causas objetivas.
