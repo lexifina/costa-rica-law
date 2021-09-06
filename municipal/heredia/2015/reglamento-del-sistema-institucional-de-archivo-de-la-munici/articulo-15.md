@@ -1,1 +1,0 @@
-Artículo 15.—Deber de denunciar. El Comité Institucional de Selección y Eliminación de Documentos denunciará ante el Ministerio Público al funcionario que autorice o lleve a cabo la eliminación de documentos sin solicitar criterio de la Comisión Nacional de Selección y Eliminación de Documentos.

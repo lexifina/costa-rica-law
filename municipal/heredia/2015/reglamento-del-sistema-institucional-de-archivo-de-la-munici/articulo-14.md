@@ -1,1 +1,0 @@
-Artículo 14.—Acuerdos del Comité. El Comité consignará sus acuerdos en un libro de actas que custodiará el miembro que fungirá como Secretario y los comunicará a la dependencia interesada y a la Alcaldía Municipal.

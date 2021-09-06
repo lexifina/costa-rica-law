@@ -1,1 +1,0 @@
-Artículo 31.—Obligación de revisar la documentación. Los funcionarios o funcionarias del Archivo Central deben revisar los expedientes devueltos, para constatar su estado, previo a entregar el comprobante de devolución.
