@@ -1,0 +1,1 @@
+Artículo 17.-Coordinación de los grupos de trabajo: los grupos de trabajo serán coordinados por el integrante que designe el Presidente del Comité y serán los responsables ante la Comisión de la rendición de informes.

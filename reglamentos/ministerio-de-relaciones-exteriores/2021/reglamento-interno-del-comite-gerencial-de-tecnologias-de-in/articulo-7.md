@@ -1,0 +1,1 @@
+Artículo 7º-Del funcionario responsable de dirigir el Comité: el Comité sesionará bajo la dirección del Ministro o su representante, y en ausencia de este presidirá la reunión el Director (a) General.
