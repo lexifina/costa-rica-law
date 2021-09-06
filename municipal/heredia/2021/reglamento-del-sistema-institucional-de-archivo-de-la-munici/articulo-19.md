@@ -1,0 +1,1 @@
+Artículo 19.-El Archivo Central tendrá un plazo 10 días hábiles para suministrar a las dependencias la documentación solicitada, salvo que existan circunstancias que justifiquen la imposibilidad de otorgarla en ese tiempo.

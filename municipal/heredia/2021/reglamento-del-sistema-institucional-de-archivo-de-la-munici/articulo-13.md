@@ -1,0 +1,1 @@
+Artículo 13.-La Comisión Institucional de Selección y Eliminación de Documentos establecerá para cada una de las series que constituyen el patrimonio documental si son de libre accesibilidad o si son restringidas, de conformidad con la legislación vigente.

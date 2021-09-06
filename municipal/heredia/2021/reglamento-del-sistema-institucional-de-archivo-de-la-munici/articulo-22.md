@@ -1,0 +1,1 @@
+Artículo 22.-Los funcionarios o funcionarias que soliciten al Archivo Central el préstamo de expedientes o documentos, y dejen de laborar para la Municipalidad o sean trasladados de Departamento, deberán devolverlos con cinco días de antelación al suceso.

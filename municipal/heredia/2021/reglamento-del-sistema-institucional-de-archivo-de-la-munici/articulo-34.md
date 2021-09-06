@@ -1,0 +1,1 @@
+Artículo 34.-Deber de denunciar. El Comité Institucional de Selección y Eliminación de Documentos denunciará a lo interno ante las instancias pertinentes, al funcionario que autorice o lleve a cabo la eliminación de documentos sin solicitar criterio del Archivo Central o bien de la Comisión Nacional de Selección y Eliminación de Documentos.

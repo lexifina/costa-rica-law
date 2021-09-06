@@ -1,0 +1,1 @@
+Artículo 20.-Una vez localizada, se informará al usuario para que proceda a recogerla o bien consultar. Si en un plazo máximo de 3 días hábiles no se ha venido a recoger la documentación solicitada, el personal del Archivo colocará el documento solicitado en su lugar establecido y enviará una notificación a la jefatura responsable de la solicitud.
