@@ -1,0 +1,1 @@
+Artículo 21.-Políticas sobre las Relaciones con Filiales: Con el objetivo de procurar la labor coordinada entre la Junta Directiva y las filiales del Colegio; basadas en la transparencia y entrega oportuna de informes relacionados con el cumplimiento del Plan Estratégico y la rendición de cuentas, el Colegio cuenta con el "Reglamento de Operación de Filiales".

@@ -1,0 +1,1 @@
+Artículo 24.-Política de Código de Conducta: El Colegio dispone de un "Código de Conducta Administrativo (Ética Institucional)", el cual establece las pautas de comportamiento que deben seguir los colaboradores del Colegio, además, del cumplimiento de lo establecido en el "Manual del Colaborador".

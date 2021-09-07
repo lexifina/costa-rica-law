@@ -1,0 +1,12 @@
+III.-Director Ejecutivo:
+Artículo 11.-Director Ejecutivo: El Director Ejecutivo tendrá a su cargo la administración del Colegio, será el jefe superior de todas las dependencias administrativas y de su personal, a excepción de la Auditoría Interna en lo que respecta a funciones técnicas y a lo establecido en el "Reglamento de Organización y Funcionamiento de la Auditoría Interna", en la parte administrativa la Auditoría Interna deberá cumplir con todo lo estipulado por el Colegio. El Director Ejecutivo será responsable ante la Junta Directiva por el eficiente y correcto funcionamiento administrativo del Colegio. Las Funciones del Director Ejecutivo están establecidas en la Ley N° 1038 en su artículo N° 32 bis y son las siguientes:
+a) Planificar, dirigir, organizar, coordinar, controlar y evaluar las actividades del Colegio. Velar por el cumplimiento de los fines y objetivos del Colegio, auxiliando a la Junta Directiva en la buena marcha del Colegio.
+b) Administrar los recursos humanos del Colegio y velar porque el personal cumpla con las disposiciones laborales y las emitidas por la Junta Directiva.
+c) Ejercer el poder disciplinario sobre el personal administrativo.
+d) Ejecutar los acuerdos y las directrices de la Junta Directiva, salvo aquellos que expresamente le han sido encargados a otros órganos.
+e) Servir como medio de comunicación entre la administración y la Junta Directiva.
+f) Coadyuvar con la elaboración y el seguimiento del planeamiento estratégico; asimismo, informar a la Junta Directiva de los avances que este tenga al respecto.
+g) Disponer de los recursos que generen las actividades del Colegio dentro de los límites que fije la Junta Directiva y cuando la naturaleza y los fines lo requieran.
+h) Otras funciones acordes con su labor de Dirección Ejecutiva, haciendo cumplir por todos los departamentos las disposiciones reglamentarias aprobadas por la Junta Directiva.
+Igualmente tiene funciones definidas en el "Manual de descripción de puestos, funciones y procedimientos del Colaborador".
+Corresponde a la Junta Directiva evaluar la gestión del Director Ejecutivo, para lo cual solicitará a este estar presente en las sesiones de Junta Directiva cuando lo considere necesario, para la exposición de diferentes temas correspondientes a los distintos departamentos del Colegio, el estado de avance de los diferentes proyectos y acuerdos, y el seguimiento del Plan Estratégico.

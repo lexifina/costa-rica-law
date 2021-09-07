@@ -1,0 +1,2 @@
+IV.-Departamentos:
+Artículo 12.-Departamentos: El Colegio cuenta con 6 departamentos para la atención de las diferentes funciones y actividades que realiza la institución, estos departamentos son: Financiero Administrativo, Admisión, Desarrollo Profesional, Fiscalía, Consultoría Técnica y Asesoría Legal. Las funciones y procedimientos de cada uno de estos departamentos están especificadas en el "Manual de Descripción de Puestos, Funciones y Procedimientos del Colaborador".

@@ -1,0 +1,1 @@
+Artículo 15.-Integración de la Comisión de Auditoría Interna: Es un órgano de control del Colegio, creado a discreción por la Junta Directiva del Colegio, como enlace entre la Junta Directiva y la Auditoría Interna para el debido seguimiento de los informes y el plan de trabajo de la Auditoría Interna.

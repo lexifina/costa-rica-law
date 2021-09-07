@@ -1,0 +1,2 @@
+VI.-Comisiones Permanentes de Trabajo:
+Artículo 17.-Comisiones Permanentes de Trabajo: Con función asesora de la Junta Directiva, estas comisiones permanentes serán nombradas por el Presidente de la Junta Directiva, de conformidad con lo que establece el Artículo N° 25 de la Ley Nº 1038 y artículo N° 53 del Reglamento a la Ley o cuando corresponda los nombramientos por la Junta Directiva. Su funcionamiento y operación se regirá por la "Circular N° 08- 2014 Manual para las Comisiones Permanentes de Trabajo".

@@ -1,0 +1,5 @@
+Artículo 7º-Elección de Junta Directiva: Según lo establecido en la Ley N° 1038 y su Reglamento y en el Reglamento Electoral del Colegio de Contadores Públicos de Costa Rica, serán condiciones idóneas que deben cumplir los miembros de la Junta Directiva para su elección:
+a) Ser Contador Público Autorizado y estar al día en todas las obligaciones con el Colegio de Contadores Públicos de Costa Rica.
+b) En caso de haber sido parte de un órgano directivo del Colegio de Contadores Públicos de Costa Rica o cualquier otra institución, no haber sido sancionado en firme, por haber incumplido con las funciones del cargo que ejercía. La anterior prohibición estará vigente hasta no cumplirse el periodo de la sanción antes indicada.
+c) Ser de reconocida solvencia moral.
+d) No encontrarse condenado por sentencia penal en firme debida a la comisión de cualquier delito y vigente en el registro de delincuencia, o estar cumpliendo sanción administrativa de inhabilitación para el ejercicio de cargos públicos, dictada por la Contraloría General de la República (CGR) u otra autoridad competente.
