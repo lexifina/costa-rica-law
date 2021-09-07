@@ -16,3 +16,4 @@ Reglamento sobre la rendición de cauciones en favor del Tribunal Supremo de Ele
 | 1 | 2008-05-13 | la propia norma |
 | 2 | 2012-06-19 | Decreto TSE 10 (2012-06-19) |
 | 3 | 2018-01-23 | Decreto TSE 1 (2018-01-23) |
+| 4 | 2021-09-07 | Decreto TSE 9 (2021-09-07) |
