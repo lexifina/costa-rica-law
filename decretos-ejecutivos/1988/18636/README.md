@@ -24,3 +24,4 @@ Arancel de Servicios Profesionales de Consultoría para Edificaciones
 | 9 | 2011-03-09 | Acuerdo 23 (2011-03-09) |
 | 10 | 2012-04-24 | Acuerdo 14 (2012-04-24) |
 | 11 | 2018-07-03 | Acuerdo 55 (2018-07-03) |
+| 12 | 2021-09-07 | Acuerdo 12 (2021-09-07) |
