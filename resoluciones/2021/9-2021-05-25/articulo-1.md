@@ -51,6 +51,38 @@ c. Riego y avenamiento: el sistema de riego y avenamiento está definido por las
 d. Hidrantes: el sistema de hidrantes está definido por las etapas de conducción, conexión, distribución, comercialización y actividades de apoyo.
 2. Para aquellas actividades ajenas a los servicios públicos regulados por la Autoridad Reguladora, los prestadores deberán llevar contabilidades separadas que diferencien las actividades relacionadas con los servicios públicos de aquellas que no lo están. Los ingresos, gastos y costos comunes deberán consignarse de acuerdo con las normas técnicas que permitan una distribución razonable y no perjudiquen la actividad del servicio público.
 3. Los prestadores que estén facultados para prestar dos o más servicios podrán presentar preferiblemente los estudios tarifarios de acueducto, alcantarillado e hidrantes simultáneamente. En ellos deberán incorporarse las justificaciones técnicas de los criterios y metodologías utilizadas para asignar los ingresos, gastos y costos comunes.
+(Nota de Sinalevi: Mediante resolución N° RE-0021-IA-2021 del 7 de setiembre del 2021, se acordó aclarar la presente norma en el sentido de que: 1. En lo concerniente al servicio público de acueducto:
+a) La cadena de valor correspondiente al servicio de acueducto, estará compuesta por las siguientes etapas:
+. captación,
+. conducción,
+. potabilización,
+. distribución,
+. comercialización y
+. actividades de apoyo.
+b) Las actividades de almacenamiento y de bombeo, se considerarán como actividades transversales dentro de cada una de las etapas de la cadena de valor del servicio de acueducto, en las que se encuentren involucradas; de manera que se tenga claridad de los costos y gastos asociados de forma separada.
+2. Para el servicio público de alcantarillado:
+a) La cadena de valor correspondiente al servicio de alcantarillado, estará compuesta por las siguientes etapas:
+. recolección,
+. tratamiento,
+. evacuación,
+. comercialización,
+. comercialización y
+. actividades de apoyo.
+b) La actividad de bombeo, se considerará como una actividad transversal dentro de cada una de las etapas de la cadena de valor del servicio de alcantarillado, en las que se encuentre involucrada; de manera que se tenga claridad de los costos y gastos asociados de forma separada.
+3. Para los servicios públicos de riego y avenamiento:
+a) La cadena de valor correspondiente a los servicios de riego y avenamiento, estará compuesta por las siguientes etapas:
+. captación,
+. conducción y distribución
+. almacenamiento,
+. bombeo y rebombeo,
+. drenaje
+. comercialización
+. actividades de apoyo.
+4. Para el servicio público de hidrantes:
+a) La cadena de valor correspondiente al servicio de hidrantes, estará compuesta por las siguientes etapas:
+. distribución,
+. comercialización
+. actividades de apoyo.")
 II. Indicar al AyA, a las ASADAS, a la ESPH S.A y al SENARA, que de conformidad con las potestades otorgadas a la Autoridad Reguladora en la Ley 7593, en cualquier momento y cuando sea necesario, esta Intendencia podrá solicitar información adicional o complementaria a la señalada en el presente acto administrativo.
 III. Disponer que los estados financieros trimestrales deben presentarse consolidados y segregados por actividad y otros servicios no regulados, a más tardar el último día hábil del mes siguiente a cada trimestre.
 IV. Disponer de los estados financieros auditados, consolidados y segregados por actividad y otros servicios no regulados, deberán ser presentados a más tardar el 31 de mayo de cada periodo. En el caso de las ASADAS lo anterior lo deben cumplir aquellas que cuentan con un número de abonados superior a los 301; esto con base en la estructura tarifaria definida en la resolución RIA-006-2017 del 16 de agosto del 2017 y las menores a 301 abonados deben aportar los estados financieros certificados consolidados y segregados por actividad y otros servicios no regulados.

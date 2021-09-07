@@ -14,3 +14,4 @@ Separación de cadena de valor de los sistemas de acueducto, alcantarillado, hid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-28 | la propia norma |
+| 2 | 2021-09-07 | Resolución 21 (2021-09-07) |
