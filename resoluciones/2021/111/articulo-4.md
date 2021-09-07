@@ -1,0 +1,1 @@
+Artículo 4º-Se deroga la Resolución N° Resolución N° R-LACOMET-005-2012 del 30 de enero del 2012, publicada en el Diario Oficial La Gaceta N° 55 del 16 de marzo del 2012, mediante la cual el Laboratorio Costarricense de Metrología, oficializó el Procedimiento para la Designación de Laboratorios Nacionales de Referencia en Metrología.
