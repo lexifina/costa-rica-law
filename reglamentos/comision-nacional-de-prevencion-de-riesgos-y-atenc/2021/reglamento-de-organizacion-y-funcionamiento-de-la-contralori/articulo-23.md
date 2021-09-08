@@ -1,0 +1,1 @@
+Artículo 23.-Expediente: De toda consulta inconformidad, reclamo, denuncia, sugerencia o felicitación se deberá levantar un expediente digital y que contendrá toda la documentación relativa al caso, recomendaciones y su resolución final.

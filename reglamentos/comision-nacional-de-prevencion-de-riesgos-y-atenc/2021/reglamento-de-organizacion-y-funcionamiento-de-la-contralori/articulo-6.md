@@ -1,0 +1,1 @@
+Artículo 6º-Ubicación física de la Contraloría de Servicios. La ubicación física de la Contraloría de Servicios deberá estar en un área cercana a las oficinas que prestan atención directa al público. Asimismo, el espacio físico asignado debe contar con adecuadas condiciones de ventilación, limpieza, comodidad, privacidad, iluminación, y accesibilidad para el usuario.

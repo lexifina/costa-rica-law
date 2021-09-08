@@ -1,0 +1,1 @@
+Artículo 14.-Persona subcontralora de servicios. Con el fin de lograr el mejor desempeño de sus funciones, la contraloría de servicios podrá contar con un (a) subcontralor (a) de servicios. Su designación dependerá de la existencia de una plaza definida para el cargo en la estructura de puestos de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.

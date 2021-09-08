@@ -1,0 +1,2 @@
+Artículo 31.-Derogaciones. Se deroga el Reglamento de organización y funcionamiento de la Contraloría de Servicios de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias aprobado mediante acuerdo número 266-08, tomado en sesión ordinaria Nº 09-08 de la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, celebrada el día martes 2 de diciembre del 2008 y publicado en La Gaceta Nº 25 del 5 de febrero
+Acuerdo Nº 170-07-2021, de la Sesión Ordinaria Nº 14-07-2021 del 21 de julio 2021.
