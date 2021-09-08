@@ -16,3 +16,4 @@ Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en
 | 1 | 2015-01-01 | la propia norma |
 | 2 | 2017-06-26 | Reglamento 2885 (2017-06-26) |
 | 3 | 2020-10-28 | Reglamento 3027 (2020-10-28) |
+| 4 | 2021-09-08 | Reglamento 3071 (2021-09-08) |

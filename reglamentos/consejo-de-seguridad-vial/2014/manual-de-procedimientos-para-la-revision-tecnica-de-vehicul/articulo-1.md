@@ -1,12 +1,12 @@
 CONSEJO DE SEGURIDAD VIAL
 (Nota de Sinalevi: Sobre este tema Consejo de Seguridad Vial, había emitido anteriormente el Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones RTV, mediante Sesión 2673-12 del 24 de abril de 2012)
 MANUAL DE PROCEDIMIENTOS PARA LA REVISIÓN TÉCNICA DE VEHICULOS AUTOMOTORES EN LAS ESTACIONES DE RTV
-El Decreto Ejecutivo No. 30184-MOPT “Reglamento para la Revisión Técnica Integral de Vehículos Automotores que Circulen por las Vías Públicas” del 6 de febrero del 2002 que regula la actividad de Revisión Técnica Vehicular (RTV) y la instalación y funcionamiento de las Estaciones de RTV, así como la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial No. 9078 del 26 de octubre de 2012 y sus reformas, establecen las revisiones técnicas vehiculares periódicas como requisito obligatorio para la circulación de los vehículos automotores, sus remolques y semirremolques, obligando al Estado establecer un Sistema de RTV adecuado que le permita cumplir con dicho programa.
+El Decreto Ejecutivo No. 30184-MOPT "Reglamento para la Revisión Técnica Integral de Vehículos Automotores que Circulen por las Vías Públicas" del 6 de febrero del 2002 que regula la actividad de Revisión Técnica Vehicular (RTV) y la instalación y funcionamiento de las Estaciones de RTV, así como la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial No. 9078 del 26 de octubre de 2012 y sus reformas, establecen las revisiones técnicas vehiculares periódicas como requisito obligatorio para la circulación de los vehículos automotores, sus remolques y semirremolques, obligando al Estado establecer un Sistema de RTV adecuado que le permita cumplir con dicho programa.
 La experiencia en los países donde la RTV ha funcionado desde hace algunos años, demuestra que en este Servicio Público se puede presentar diversidad en las interpretaciones de los criterios de calificación en las diferentes estaciones de RTV que realizan la inspección. Previendo este problema y con base en la legislación vigente aplicable, el Ministerio de Obras Públicas y Transportes ha aprobado el presente Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones de RTV, cumpliendo lo indicado en el artículo 9 del Reglamento para la Revisión Técnica Integral que cita textualmente:
-“La revisión técnica de vehículos deberá hacerse de acuerdo a los criterios que se establezcan en el Manual de Revisión Técnica de Vehículos que deberá preparar y mantener actualizado el Departamento Técnico respectivo del Consejo de Seguridad Vial, el cual previo a su publicación, deberá aprobar el Ministerio de Obras Públicas y Transportes”.
+"La revisión técnica de vehículos deberá hacerse de acuerdo a los criterios que se establezcan en el Manual de Revisión Técnica de Vehículos que deberá preparar y mantener actualizado el Departamento Técnico respectivo del Consejo de Seguridad Vial, el cual previo a su publicación, deberá aprobar el Ministerio de Obras Públicas y Transportes".
 El presente Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones de RTV, pretende establecer las especificaciones generales de actuación durante las revisiones y unificar, en lo posible, los criterios y procedimientos de inspección técnica de vehículos.
-Dado que se trata de un manual de inspección, debe tenerse muy en cuenta la definición que la norma ISO/IEC 17020 brinda del término inspección: “examen de un diseño de producto, servicio, proceso o instalación y la determinación de su conformidad con requisitos específicos o bien con requisitos generales, con base en un juicio profesional” y es precisamente la introducción del concepto juicio profesional lo que permite y da validez al criterio técnico del inspector en la calificación de un defecto, en el caso que no exista un valor numérico como medición.
-El objetivo perseguido con esta nueva revisión del “Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones de RTV " es atender las mejoras propuestas por la población, adaptarse a las nuevas tecnologías automotrices y ajustarse a la normativa vigente.
+Dado que se trata de un manual de inspección, debe tenerse muy en cuenta la definición que la norma ISO/IEC 17020 brinda del término inspección: "examen de un diseño de producto, servicio, proceso o instalación y la determinación de su conformidad con requisitos específicos o bien con requisitos generales, con base en un juicio profesional" y es precisamente la introducción del concepto juicio profesional lo que permite y da validez al criterio técnico del inspector en la calificación de un defecto, en el caso que no exista un valor numérico como medición.
+El objetivo perseguido con esta nueva revisión del "Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones de RTV " es atender las mejoras propuestas por la población, adaptarse a las nuevas tecnologías automotrices y ajustarse a la normativa vigente.
 Además de las disposiciones reglamentarias y recomendaciones ya citadas, para la revisión del Manual se ha partido de los siguientes principios generales que deben ser seguidos en las revisiones:
 1. La revisión técnica de los vehículos tiene por objeto comprobar si éstos cumplen al momento de la inspección y continúan cumpliendo a través de verificaciones periódicas, las condiciones exigidas por la normativa vigente para la circulación por vías públicas, recogidas en el presente manual.
 2. Previamente al inicio de la RTV se deberá proceder a su identificación, comprobando que su VIN o número de chasis y matrícula coinciden con los señalados en los documentos oficiales.
@@ -195,7 +195,7 @@ c.- INTERPRETACIÓN DE DEFECTOS
 5. No coincide con el que figura en la documentación | | X |
 6. Alterado o manipulado, causa ratificada judicialmente | X | |
 a.- ESPECIFICACIONES GENERALES
-Tanto las placas de matrícula como el documento de identificación adicional deben ser los emitidos por el Registro Nacional de la Propiedad y no pueden manipularse. Las placas de matrícula metálicas y el documento de identificación adicional deben ser sustituidos en caso de ilegibilidad o deterioro de los elementos de identificación y seguridad. Se debe tener en cuenta que existen placas constituidas únicamente por dígitos numéricos y otras que son alfanuméricas, en ambos casos todos sus caracteres cuentan con la misma importancia y deben resultar legibles (incluidas las leyendas “Costa Rica” y “Centroamérica”).
+Tanto las placas de matrícula como el documento de identificación adicional deben ser los emitidos por el Registro Nacional de la Propiedad y no pueden manipularse. Las placas de matrícula metálicas y el documento de identificación adicional deben ser sustituidos en caso de ilegibilidad o deterioro de los elementos de identificación y seguridad. Se debe tener en cuenta que existen placas constituidas únicamente por dígitos numéricos y otras que son alfanuméricas, en ambos casos todos sus caracteres cuentan con la misma importancia y deben resultar legibles (incluidas las leyendas "Costa Rica" y "Centroamérica").
 No deben colocarse objetos que afecten la legibilidad de uno o todos sus caracteres o que impidan determinar su originalidad.
 Las placas de matrícula deben ubicarse en el lugar designado por el fabricante del vehículo para ser instaladas. Cuando el vehículo no presente una ubicación preestablecida se debe acondicionar una nueva ubicación que cumpla todos los requisitos legales
 Este apartado será aplicable respecto al documento de identificación adicional. Este tiene como propósito darle trazabilidad a las placas metálicas con respecto al vehículo, ya que ese documento es intransferible. Dicho documento de identificación adicional debe ubicarse en el parabrisas delantero, en el caso de autobuses se permite su ubicación en la ventanilla lateral izquierda delantera. En los casos de vehículos que no cuenten con parabrisas deben ubicarlo en un lugar visible.
@@ -239,7 +239,7 @@ Mediante inspección visual se comprobará:
 - En su caso, sistema de elevación de las cabinas basculantes
 - Que no existan puntas salientes o cortantes que puedan causar lesiones a los usuarios de la vía pública.
 - Saliente excesivo del tapón del depósito de combustible si puede abrirse accidentalmente.
-- En su caso, la adecuada fijación de los parachoques y/o el “mataburros” y su estado, prestando especial atención que no tengan puntas salientes y cortantes, y que presenten adecuación estructural a la forma del vehículo.
+- En su caso, la adecuada fijación de los parachoques y/o el "mataburros" y su estado, prestando especial atención que no tengan puntas salientes y cortantes, y que presenten adecuación estructural a la forma del vehículo.
 c.- INTERPRETACIÓN DE DEFECTOS
 | Calificación | |
 | DL | DG | DP
@@ -252,9 +252,9 @@ c.- INTERPRETACIÓN DE DEFECTOS
 7. Defectos de estado en los largueros y travesaños si existe peligro de rotura | | X |
 8. Existencia de puntas salientes o cortantes | | X |
 9. Ausencia del parachoques cuando este ha sido desinstalado | X | |
-10. Fijación defectuosa de parachoques o “mataburros”. | X | |
+10. Fijación defectuosa de parachoques o "mataburros". | X | |
 11. Existencia de estructuras o elementos que sobresalgan del ancho o largo del vehículo | X | |
-12. Fijación defectuosa de parachoques o “mataburros” con peligro de desprendimiento | | X |
+12. Fijación defectuosa de parachoques o "mataburros" con peligro de desprendimiento | | X |
 2.2.- Dispositivos de enganche o acoplamiento para remolques y semirremolques
 a. ESPECIFICACIONES GENERALES
 Ninguna especificación particular.
@@ -476,22 +476,34 @@ c.- INTERPRETACIÓN DE DEFECTOS
 | DL | DG | DP
 1. Inexistencia del indicador de velocidad o de algunos de sus componentes | | X |
 2. Indicador de velocidad no está en kilómetros por hora | | X |
-3.4.- Odómetro
-a.- ESPECIFICACIONES GENERALES
-Todo vehículo ingresado a partir de enero del 2015, deberá contar con un odómetro en buen estado de funcionamiento.
-La RTV registrará, en cada inspección la indicación del odómetro, indicando además la unidad de medida correspondiente. Se realizará una anotación en la Tarjeta de Revisión Técnica, tanto de la distancia recorrida indicada en la inspección anterior como la distancia indicada por el odómetro en el momento de la inspección. En el caso de vehículos de inscripción se realizará una verificación respecto de la distancia recorrida indicada en el DUA
-b.- PROCEDIMIENTO
+(*)3.4.- Odómetro
+a.- Especificaciones generales
+Todo vehículo ingresado a partir de enero del 2014, deberá contar con un odómetro en buen estado de funcionamiento. Cuando por daño, deterioro, mal funcionamiento, etc., de un odómetro, se requiera su reposición, se procederá de la siguiente manera para poder acceder a la inspección técnica vehicular favorable:
+En caso de que el odómetro sea nuevo:
+1. Adquirir un odómetro que mida en el mismo sistema de unidades que el velocímetro y solicitar la factura timbrada.
+2. Realizar el cambio de odómetro.
+3. Presentarse a la revisión técnica en el mes que le corresponda, de acuerdo al último número de la placa y a la programación para ese tipo de vehículo o de uso y presentar la factura timbrada en el Centro de Inspección Vehicular (CIVE).
+4. El CIVE anotará en algún lugar de la Tarjeta de Revisión Técnica (puede ser en el espacio de observaciones) el último dato de lectura del odómetro cambiado, de forma tal que este dato aparezca en las Tarjetas de Revisión Técnica sucesivas, y en el espacio exclusivo de odómetro, se indicará la lectura del nuevo odómetro instalado, de forma tal que cualquier usuario, por medio de una simple suma aritmética, puede conocer la distancia recorrida por su vehículo.
+En caso de que el odómetro sea usado:
+1. Comprar el odómetro y solicitar la factura timbrada, donde deberá aparecer la última lectura del odómetro.
+2. Realizar el cambio de odómetro.
+3. Presentarse a la revisión técnica en el mes que le corresponda, de acuerdo a la programación establecida en el Decreto Ejecutivo N° 30184, Reglamento para la Revisión Técnica Integral de Vehículos Automotores que Circulen por las Vías Públicas, y presentar la factura timbrada en el Centro de Inspección Vehicular (CIVE).
+4. El CIVE anotará en algún lugar de la Tarjeta de Revisión Técnica (puede ser en el espacio de observaciones) el último dato de lectura del odómetro cambiado y el dato de la última lectura del odómetro señalada en la factura timbrada, de forma tal que este dato aparezca en las Tarjetas de Revisión Técnica sucesivas, y en el espacio exclusivo de odómetro, se indicará la lectura del nuevo odómetro instalado, de forma tal que cualquier usuario, por medio de una simple suma aritmética, puede conocer la distancia recorrida por su vehículo.
+5. En caso de que se requiera el cambio del odómetro en más de una ocasión, se procederá de la misma forma, teniendo especial cuidado en registrar las lecturas de los odómetros anteriores de modo que se permita determinar con la última Tarjeta de Revisión Técnica la distancia total recorrida por el vehículo.
+Cuando el odómetro haya alcanzado la máxima lectura que puede desplegar:
+1. Indicar en el apartado de anotaciones el máximo valor que pudiere ser desplegado por el dispositivo. Dicha anotación deberá aparecer en todas las Tarjetas de Revisión Técnica que se generen posteriormente a que se haya evidenciado dicha condición.
+2. Anotar la lectura del odómetro observada en la Inspección.
+3. En caso que el vehículo vuelva a sobrepasar el despliegue máximo del dispositivo de lectura de distancia recorrida, esta se deberá anotar en el apartado de observaciones de la tarjeta de revisión técnica junto a la anterior o a las anteriores.
+4. Cuando el vehículo presente esta condición, no se anotará el defecto asociado a Distancia recorrida del vehículo inferior a la última inspección técnica.
+b.- Procedimiento
 Mediante inspección visual se comprobará:
-- Existencia, cuando sea obligatorio.
-- Legibilidad de la indicación.
-- Que la indicación de la última inspección no sea inferior a la de la anterior inspección
-c.- INTERPRETACIÓN DE DEFECTOS
-| Calificación | |
-| DL | DG | DP
-1. Inexistencia de odómetro | | X |
-2. Ilegibilidad | | X |
-3. Distancia recorrida del vehículo inferior a la última Inspección Técnica. | | X |
-4. Distancia recorrida del vehículo inferior a la registrada en el DUA. | | X |
+a. Que exista cuando es obligatorio.
+b. Que se encuentre instalado cuando viene provisto de fábrica.
+c. Que sea posible su lectura.
+d. Que la distancia recorrida sea igual o mayor a la última lectura.
+c.- Interpretación de defectos
+[imagen]
+(*) (Así reformado el aparado 3.4 Odómetro anterior en sesión N° 3071 del 8 de setiembre de 2021)
 4.- Alumbrado y Señalización
 Tablas resumen
 En la siguiente tabla se indican, según la reglamentación vigente, las características de los dispositivos de alumbrado y señalización de los vehículos
@@ -803,7 +815,7 @@ El sonómetro mide la presión sonora y por acuerdos internacionales se calibra 
 b.- PROCEDIMIENTO
 En el entendido de que la mayoría de los vehículos son diseñados y fabricados para cumplir con la reglamentación de los distintos países con respecto al nivel del ruido, son las modificaciones hechas en los vehículos la causa de la emisión de ruidos excesivos de los mismos. Bajo esta premisa, el control del ruido en los escapes de los motores se llevara a cabo cuando el vehículo presente alguna de las siguientes condiciones:
 - Escape modificado
-- Escape sin silenciador o con “roncador”
+- Escape sin silenciador o con "roncador"
 - Cambio del tipo motor
 - Instalación de mecanismo para la sobrealimentación del motor
 - Contra-explosiones en el escape en una desaceleración
@@ -863,8 +875,8 @@ Mediante inspección visual se comprobará:
 - Se verificará el nivel de aceite del motor por medio de la varilla de medición. Previo a la ejecución del procedimiento de inspección se comprobarán las condiciones del vehículo y de prueba, que se detallan a continuación:
 Condiciones del vehículo:
 - Se realizará una inspección visual del tubo de escape para comprobar que:
-• No existen perforaciones que puedan desvirtuar la indicación del equipo de medida.
-• Lleve instalado el catalizador (para vehículos ingresados a partir del 01 de enero de 1995).
+. No existen perforaciones que puedan desvirtuar la indicación del equipo de medida.
+. Lleve instalado el catalizador (para vehículos ingresados a partir del 01 de enero de 1995).
 - El régimen de ralentí se debe mantener estable y que no sea superior a las 1000 rpm. Excepto, las motocicletas y algunos vehículos que tengan una velocidad de ralentí, que por especificaciones del fabricante, funcionen a más de 1000 revoluciones por minuto.
 - Se verificará que el vehículo tenga instalado el tapón de combustible.
 - Se verificará que el vehículo no presente manipulaciones hechas específicamente para desvirtuar la indicación del equipo.
@@ -899,7 +911,7 @@ Resto de vehículos | Desde 26/12/2012 Revisión desde 01/01/2017 | | | 1+/-0.07
 2 TIEMPOS | Bicimotos, motocicletas y cuadraciclos | Hasta el 31/12/ 2016 | CO≤4,5% en volumen HC≤2800 p.p.m | |
 A partir 01/01/2017 | CO≤3,0% en volumen HC≤2000 p.p.m
 Resto de vehículos | Cualquier fecha | CO≤4,5% en volumen HC≤2500 p.p.m | |
-(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 227 del 30 de noviembre del 2017. Anteriormente indicaba “≤”)
+(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 227 del 30 de noviembre del 2017. Anteriormente indicaba "≤")
 Para vehículos que funcionan a base de Gas Licuado de Petróleo (GLP), Gas Natural u otro alternativo como combustible único o además de gasolina, los valores permitidos para estos combustibles son:
 Tabla 2. Valores límite para vehículos que funcionan a base de Gas Licuado de
 Petróleo (GLP), Gas Natural u otro alternativo como combustible único o además de
@@ -930,7 +942,7 @@ DL | DG | DP |
 | 17. Emisiones con valor lambda fuera del intervalo permitido, para vehículos que ingresaron después del 23/12/2016 | X |
 | | | | | | |
 Transitorio I: El defecto número 17 del apartado 5.2 Vehículos con motor de encendido por chispa se considerará como defecto leve hasta el 31 de diciembre del 2017, a partir de ese momento se calificará como defecto grave.
-(*) Así reformado el punto 5.2) anterior referente a “5.2 Vehículos con motor de encendido por chispa”, en sesión N° 2885 del 26 de junio de 2017. Nótese que en el Alcance Digital N° 63 a La Gaceta N° 95 del 17 de mayo de 2012, se había emitido el Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones RTV, mismo que entró a regir el 1° de junio de 2012, haciéndosele también la reforma a este último Manual.)
+(*) Así reformado el punto 5.2) anterior referente a "5.2 Vehículos con motor de encendido por chispa", en sesión N° 2885 del 26 de junio de 2017. Nótese que en el Alcance Digital N° 63 a La Gaceta N° 95 del 17 de mayo de 2012, se había emitido el Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones RTV, mismo que entró a regir el 1° de junio de 2012, haciéndosele también la reforma a este último Manual.)
 (*)5.3.- Vehículos con motor de encendido por compresión
 a.- ESPECIFICACIONES GENERALES
 El procedimiento de inspección se aplicará a vehículos equipados con motor de encendido por compresión, independientemente del combustible utilizado.
@@ -979,7 +991,7 @@ DL | DG | DP
 8. Condiciones del vehículo inadecuadas para la inspección (Dispositivos desinstalados) | | X |
 9. Desinstalación de sellos de seguridad para el control de caudal y/o revoluciones en la bomba de inyección, cuando aplica | X | |
 10. El vehículo presenta porcentaje de oscurecimiento de los humos superior a lo permitido | | X |
-(*) Así reformado el punto 5.3) anterior referente a “5.3 Vehículos con motor de encendido por comprensión”, en sesión N° 2885 del 26 de junio de 2017. Nótese que en el Alcance Digital N° 63 a La Gaceta N° 95 del 17 de mayo de 2012, se había emitido el Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones RTV, mismo que entró a regir el 1° de junio de 2012, haciéndosele también la reforma a este último Manual.)
+(*) Así reformado el punto 5.3) anterior referente a "5.3 Vehículos con motor de encendido por comprensión", en sesión N° 2885 del 26 de junio de 2017. Nótese que en el Alcance Digital N° 63 a La Gaceta N° 95 del 17 de mayo de 2012, se había emitido el Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones RTV, mismo que entró a regir el 1° de junio de 2012, haciéndosele también la reforma a este último Manual.)
 6.- Frenos
 6.1.- Freno de servicio
 a.- ESPECIFICACIONES GENERALES
@@ -1047,7 +1059,7 @@ c.- INTERPRETACIÓN DE DEFECTOS
 6.2.- Freno de estacionamiento
 a.- ESPECIFICACIONES GENERALES
 El dispositivo de freno de estacionamiento deberá ser independiente y tener una eficacia de frenado del 18%.
-En los casos en que los mecanismos de accionamiento del freno de estacionamiento no actúen en forma gradual (con sistema que actúa por “entrampe”) no se podrá verificar la eficacia de frenado del dispositivo, solo se verificará el bloqueo de las ruedas.
+En los casos en que los mecanismos de accionamiento del freno de estacionamiento no actúen en forma gradual (con sistema que actúa por "entrampe") no se podrá verificar la eficacia de frenado del dispositivo, solo se verificará el bloqueo de las ruedas.
 En el freno de estacionamiento no se verificará el desequilibrio de frenado.
 La palanca de accionamiento del freno de estacionamiento puede ser un pedal, una barra, etc.
 El trinquete es el mecanismo mediante el cual se sujeta la palanca que acciona el freno de estacionamiento en una determinada posición.
@@ -1250,7 +1262,7 @@ c.- INTERPRETACIÓN DE DEFECTOS
 1. Montaje permite movimientos anormales | | X |
 2. Fugas leves | X | |
 3. Fugas importantes | | | X
-6.14.- Acumulador de presión (“Pulmón”)
+6.14.- Acumulador de presión ("Pulmón")
 a.- ESPECIFICACIONES GENERALES
 Esta inspección se realizará a los vehículos que dispongan de un circuito neumático para el sistema de frenado.
 b.- PROCEDIMIENTO
@@ -1312,7 +1324,7 @@ Mediante inspección visual se comprobará, cuando esté accesible:
 - Fijación del volante a la columna de la dirección (no debe existir movimiento relativo entre
 - ambos).
 - La ausencia de juego en la columna de la dirección.
-- Las holguras de las juntas cardan (“cruces”) en los diferentes tramos de la columna de la dirección.
+- Las holguras de las juntas cardan ("cruces") en los diferentes tramos de la columna de la dirección.
 - El recorrido libre del volante (movimiento de volante sin orientación de ruedas).Estado general prestando especial atención a la corrosión. Que el volante no esté ubicado al lado derecho del vehículo y no presenta conversiones no autorizadas. En caso de conversiones autorizadas, se comprobará la existencia de un certificado emitido por un ingeniero mecánico o electromecánico debidamente colegiado.
 c.- INTERPRETACIÓN DE DEFECTOS
 | Calificación | |
@@ -1336,7 +1348,7 @@ Mediante inspección visual, moviendo el volante a derecha e izquierda, se compr
 - Las posibles resistencias al giro, según las características constructivas del vehículo.
 - Las posibles holguras anormales que puedan comprometer la sujeción de uno o más componentes del sistema, según las características constructivas del vehículo.
 - El estado de la caja de dirección.
-- Existencia y estado de los guardapolvos (“botas”).
+- Existencia y estado de los guardapolvos ("botas").
 c.- INTERPRETACIÓN DE DEFECTOS
 | Calificación | |
 | DL | DG | DP
@@ -1347,7 +1359,7 @@ c.- INTERPRETACIÓN DE DEFECTOS
 5. Holguras anormales y excesivas que puedan provocar desprendimiento de algún componente | | | X
 6. Fugas leves | X | |
 7. Fugas importantes | | X |
-8. Guardapolvos (“botas”) rotos, sueltos, deteriorados o inexistentes | X | |
+8. Guardapolvos ("botas") rotos, sueltos, deteriorados o inexistentes | X | |
 7.4.- Brazos, barras y rótulas
 a.- ESPECIFICACIONES GENERALES
 Ninguna especificación particular.
@@ -1435,11 +1447,11 @@ a.- ESPECIFICACIONES GENERALES
 La sustitución y utilización de llantas que evidencien interferencias o limiten el funcionamiento normal del sistema de dirección o suspensión, tales como rozamientos con partes de la carrocería o disminuciones en el rango de giro del vehículo, afectan la seguridad de éste.
 Además, las llantas que sobresalen del guardabarros del vehículo, tanto en la banda de rodadura como en otras partes, pueden provocar la proyección de objetos hacia atrás o golpes a peatones.
 Las llantas de los vehículos deben presentar, durante toda su utilización en las vías públicas, una profundidad mínima de ranura que no exponga el testigo de profundidad o en su defecto que no sea menor a 2mm. .
-Solo las llantas de vehículos de carga pesada pueden ser remarcadas si así han sido diseñadas, lo anterior se puede identificar mediante la palabra “regroovable”, la cual puede ubicarse en los costados de la llanta.
+Solo las llantas de vehículos de carga pesada pueden ser remarcadas si así han sido diseñadas, lo anterior se puede identificar mediante la palabra "regroovable", la cual puede ubicarse en los costados de la llanta.
 b.- PROCEDIMIENTO
 Mediante inspección visual, se comprobará:
 - En los ejes con montaje sencillo (una sola rueda), que ambas llantas sean de las mismas dimensiones.
-- En los ejes con montaje gemelo (doble rueda o “piña”), que las llantas situadas en posiciones simétricas tengan las mismas dimensiones.
+- En los ejes con montaje gemelo (doble rueda o "piña"), que las llantas situadas en posiciones simétricas tengan las mismas dimensiones.
 - En el caso de llantas unidireccionales, que estén montadas en el sentido correcto del giro
 - Que la profundidad de las ranuras de la banda de rodadura cumpla las prescripciones legales.
 - La existencia de desgaste anormal en la banda de rodadura.
@@ -1460,7 +1472,7 @@ c.- INTERPRETACIÓN DE DEFECTOS
 7. Cables o hilos al descubierto o envejecimiento | | X |
 8. Llanta sobresalen del guardabarros | | X |
 9. Llanta limita funcionamiento del sistema de dirección o suspensión | X | |
-10. Remarcado en llanta sin indicación de “regroovable” | | X |
+10. Remarcado en llanta sin indicación de "regroovable" | | X |
 8.4.- Resortes, soportes, amortiguadores y ballestas
 a.- ESPECIFICACIONES GENERALES
 Ninguna especificación particular.
@@ -1476,7 +1488,7 @@ Mediante inspección visual, se comprobará el estado de los diferentes componen
 - Existencia de fugas de aceite en los amortiguadores.
 En aquellos vehículos que incorporen sistemas de suspensión neumática, se comprobará además:
 - Se comprobará el estado, instalación y el montaje de las bolsas de aire.
-- La existencia de pérdidas de aire audibles indebidas en el circuito de alimentación de aire comprimido o las “bolsas de aire”.
+- La existencia de pérdidas de aire audibles indebidas en el circuito de alimentación de aire comprimido o las "bolsas de aire".
 c.- INTERPRETACIÓN DE DEFECTOS
 | Calificación | |
 | DL | DG | DP
@@ -1716,7 +1728,7 @@ a. Triángulos:
 - Debe contener la siguiente información como mínimo: el número de placa asignado, el nombre y código de la base de operación.
 - Los rótulos deben ser pintados
 b. Rótulo Luminoso:
-- Deben contar con un rótulo iluminado, ubicado en el techo, con la leyenda “TAXI MOPT”
+- Deben contar con un rótulo iluminado, ubicado en el techo, con la leyenda "TAXI MOPT"
 5. El vehículo debe cumplir todo lo indicado en cuanto a oscurecimiento o polarizado de ventanas y/o parabrisas según lo dispuesto en el apartado 2.6 de este Manual. En el caso de las viseras ahumadas o con polarizado en el parabrisas delantero, pueden portarlas en tanto cumplan los siguientes parámetros:
  El ancho de la visera no invada el área de barrido de las escobillas.
  El ancho de la visera no sobrepase a su vez el ancho de fábrica de la pantalla parasol interna del vehículo.
@@ -1725,7 +1737,7 @@ b. Rótulo Luminoso:
 6. El vehículo no debe portar calcomanías, alusiones deportivas, propaganda, decoraciones, anuncios, rótulos publicitarios y mensajes en carrocería de taxi, de cualquier material, que no tenga relación con el servicio.
 b. PROCEDIMIENTO
 Mediante inspección visual se comprobará:
-- El estado del taxímetro y del dispositivo de indicación (“display”) así como su correcta fijación y ubicación.
+- El estado del taxímetro y del dispositivo de indicación ("display") así como su correcta fijación y ubicación.
 - En el caso de los taxímetros ubicados en taxis para personas con discapacidad, deberán contar con:
 - Un dispositivo audible, que realice la indicación de la tarifa por el servicio. Se verificará que dicho dispositivo exista, funcione, la indicación sea en español y correcta. Deberá emitir un comprobante donde indique como mínimo el pago a realizar por el servicio.
 - La existencia del extintor.
@@ -1785,12 +1797,12 @@ En caso de vehículos que se dediquen al transporte de ruta regular, adicionalme
 - La existencia y funcionamiento de timbres.
 - La existencia de rótulo de ruta o un lugar previsto para ser instalado.
 En caso de vehículos que se dediquen al transporte de estudiantes, adicionalmente se comprobará:
-- La existencia de los rótulos de “Transporte de Estudiantes” y el o los rótulos de “ALTO”.
+- La existencia de los rótulos de "Transporte de Estudiantes" y el o los rótulos de "ALTO".
 - La existencia del botiquín de primeros auxilios.
 - La existencia, funcionamiento y estado de cinturones de seguridad en asientos de pasajeros.
 - En el caso de transporte de estudiantes universitarios no les es obligatorio portar cinturones de seguridad en asientos de pasajeros.
 En caso de vehículos que se dediquen al transporte de trabajadores y turismo, adicionalmente se comprobará:
-- La existencia de los rótulos que indiquen la leyenda “Servicios Especiales” para el caso de trabajadores y “Turismo” en el caso de turismo.
+- La existencia de los rótulos que indiquen la leyenda "Servicios Especiales" para el caso de trabajadores y "Turismo" en el caso de turismo.
 - La existencia del botiquín de primeros auxilios.
 c. INTERPRETACIÓN DE DEFECTOS
 | Calificación | |
@@ -1937,7 +1949,7 @@ c.- INTERPRETACIÓN DE DEFECTOS
 14. Asientos exigidos en la Ley 7600 están sobre los abultamientos de los guardabarros | | |
 10.5.- Vehículos dedicados al remolque de vehículos (Grúas)
 a. ESPECIFICACIONES GENERALES
-Se consideran “grúas de arrastre”, las utilizadas para remolcar vehículos accidentados.
+Se consideran "grúas de arrastre", las utilizadas para remolcar vehículos accidentados.
 Los vehículos de este tipo son considerados de la categoría equipo especial genérico y por tanto deben portar las placas de matrícula correspondientes.
 El servicio de grúa es considerado por la normativa legal como servicio público, por lo que deben portar el permiso emitido por la entidad competente del MOPT así como la rotulación correspondiente.
 b. PROCEDIMIENTO
