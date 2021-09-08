@@ -1,0 +1,1 @@
+Artículo 15. Se deroga el Decreto No. 33208-H "Reglamento de Organización de la Dirección Administrativa y Financiera del Ministerio de Hacienda", publicado en La Gaceta Nº 138 del 18 de julio del 2006 y sus reformas.
