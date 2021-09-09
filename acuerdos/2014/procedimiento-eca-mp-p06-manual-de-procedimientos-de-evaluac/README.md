@@ -19,3 +19,4 @@ Procedimiento ECA-MP-P06 Manual de procedimientos de evaluación y acreditación
 | 4 | 2020-07-22 | Acuerdo 9 (2020-07-22) |
 | 5 | 2020-12-09 | Acuerdo 13 (2020-12-09) |
 | 6 | 2021-07-14 | Acuerdo 9 (2021-07-14) |
+| 7 | 2021-09-09 | Acuerdo 10 (2021-09-09) |
