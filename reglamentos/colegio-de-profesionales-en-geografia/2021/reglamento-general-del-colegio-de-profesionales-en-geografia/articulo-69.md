@@ -1,0 +1,1 @@
+Artículo 69.-Levantamiento de Actas: De cada sesión realizada, se levantará un acta conteniendo un resumen de los asuntos conocidos y resueltos, la cual estará a cargo de la Secretaría del Tribunal de Honor. Las actas deberán ser firmadas por Presidencia y Secretaría.

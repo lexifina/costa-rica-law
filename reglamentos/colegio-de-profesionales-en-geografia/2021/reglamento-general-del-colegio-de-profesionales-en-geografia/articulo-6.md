@@ -1,0 +1,2 @@
+Artículo 6º-Carné de la persona colegiada: Deberá portar el carné que lo acredita como persona colegiada para todo trámite ante el Colegio, o cuando deba representar al Colegio en algún evento.
+El carné se renovará cada cinco años. Para renovación y en caso de pérdida deberá cancelar el monto acordado por Junta Directiva. El número de carné se mantendrá tanto para quienes presenten una renuncia temporal o definitiva. No obstante, este no tendrá validez hasta que se reincorpore al Colegio.

@@ -1,0 +1,1 @@
+Artículo 2º-Del ejercicio profesional en la docencia: Las personas profesionales en geografía o cartografía que ejerzan la docencia con fines de formación profesional o de especialización en áreas de la carrera, deben estar incorporadas y activas como miembros del Colegio.

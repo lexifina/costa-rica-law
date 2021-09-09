@@ -1,0 +1,1 @@
+Artículo 116.-Funciones de la Presidencia de la Comisión: informará al Enlace de Junta Directiva los avances que se realizan en la Comisión y deberá presentar un plan de trabajo con el cronograma respectivo para la entrega de los productos solicitados. Será el encargado de hacer la convocatoria formal para cada reunión de comisión.

@@ -1,0 +1,1 @@
+Artículo 52.-Propaganda: Dentro de los recintos de votación que establezca el Tribunal Electoral, no se permitirá ningún tipo de propaganda de las candidaturas. El período para realizar propaganda iniciará un día después del cierre de las candidaturas y finalizará el día antes de las elecciones.

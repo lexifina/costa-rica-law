@@ -1,0 +1,3 @@
+Artículo 11.-Permisos temporales de miembros: Podrá solicitar un permiso hasta por seis meses de ausencia a sesión, por justa causa. El miembro de Junta Directiva deberá enviar por correo electrónico un documento firmado justificando la causa del permiso y el tiempo de ausencia. Deberá estar al día con las cuotas mensuales durante ese periodo.
+La Junta Directiva en la siguiente sesión luego de recibir la nota lo estudiará y tomará el acuerdo correspondiente. En caso de emergencia, cuando un segundo miembro solicite permiso se otorgará solo un mes de permiso con una justificación y pruebas que ratifiquen la emergencia.
+No se podrá otorgar permiso a más de dos miembros de Junta Directiva para garantizar el quorum de cinco miembros para las sesiones de Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 108.-Disolución: La disolución del Comité, se hará efectiva por la Junta Directiva, cuando este ente no esté cumpliendo con sus funciones. Quedando en poder de la Junta Directiva asumir los plazos para el siguiente nombramiento.

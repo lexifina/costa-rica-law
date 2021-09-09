@@ -1,0 +1,1 @@
+Artículo 46.-El padrón definitivo: Una vez recibido formalmente el Padrón Electoral por parte de la Junta Directiva, el Tribunal lo pondrá a disposición de los colegiados, mediante un medio físico o digital, o ambos.

@@ -1,0 +1,1 @@
+Artículo 113.-Integrantes: cada Comisión estará integrada por mínimo cinco miembros, cada uno de los cuales serán nombrados en sesión de Junta Directiva o en Asamblea Ordinaria del Colegio. El número de miembros podrá ser menor, siempre que la Junta Directiva considere que los objetivos y razón de ser de la Comisión puedan cumplirse con un número menor de integrantes.

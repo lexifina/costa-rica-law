@@ -1,0 +1,1 @@
+Artículo 62.-Principios y normas para aplicar en el proceso electoral: A falta de disposición expresa, se estará bajo los principios generales del derecho, las reglas de la sana crítica y supletoriamente las normas del Código Electoral de la República de Costa Rica que resulten aplicables.

@@ -1,0 +1,1 @@
+Artículo 33.-Las votaciones: No podrán ejercer su voto los colegiados que no aparezcan dentro del Padrón Electoral el día de las elecciones, el mismo será cerrado treinta días hábiles antes de la celebración de la Asamblea General.

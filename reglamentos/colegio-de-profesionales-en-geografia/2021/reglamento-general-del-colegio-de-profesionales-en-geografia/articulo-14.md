@@ -1,0 +1,1 @@
+Artículo 14.-Funciones de los miembros de Junta Directiva: Serán funciones de los miembros las citadas en la Ley N°9601, así como ser enlace en las comisiones de trabajo propuestas. Además, toda aquella función que le sea encomendada por acuerdo de la Junta Directiva.

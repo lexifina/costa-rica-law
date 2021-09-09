@@ -1,0 +1,2 @@
+Artículo 55.-El acto de votación: Se llevará a cabo a la hora y la fecha señalada en la agenda de la Asamblea General. Antes de iniciarse el proceso de elección el Tribunal Electoral comprobará que se cuente con el padrón actualizado y todo el material y equipo necesario para la realización del acto.
+Para ejercer el voto en forma presencial cuando corresponda, la persona colegiada se presentará con su cédula de identidad y/o carné de colegiado vigente ante un miembro del Tribunal Electoral, el cual verificará su nombre en el padrón electoral y firmado la asistencia.

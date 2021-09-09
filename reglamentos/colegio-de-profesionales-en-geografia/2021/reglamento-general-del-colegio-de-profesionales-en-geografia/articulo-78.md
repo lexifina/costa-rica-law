@@ -1,0 +1,7 @@
+Artículo 78. Recepción de denuncias:
+a) Las denuncias deberán contener una relación clara y sucinta de los hechos que se acusan y de las pruebas que respaldan las acusaciones. Además, la persona denunciante deberá hacer una manifestación expresa en la que autoriza al Colegio a publicar el fallo del Tribunal, si la persona denunciada es absuelta por el Tribunal de Honor.
+b) La denuncia deberá presentarse directamente ante la Secretaría de este Órgano. Se verificará los requisitos formales antes señalados. Ante omisiones o defectos los comunicará al denunciante para que dentro del plazo improrrogable de tres días hábiles los corrija.
+c) El Tribunal no conocerá las denuncias que se presenten sin los requisitos indicados previamente.
+d) En caso de que el denunciante insista en el recibido conforme, la Secretaría procederá a notificar como no conforme la documentación presentada por la persona denunciante. La persona denunciante contará con cinco días hábiles posteriores a la notificación para aclarar los elementos de fondo que el Tribunal le solicita corregir o para mantener la documentación presentada tal cual la presentó originalmente, justificando su decisión.
+e) Pasado el plazo de cinco días hábiles sin que el denunciante presente la información requerida, el caso será archivado sin más trámite mediante resolución justificada.
+f) La parte denunciante podrá apelar la resolución del Tribunal en los diez días hábiles posteriores a su respectiva notificación.

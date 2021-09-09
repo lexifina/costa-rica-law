@@ -1,0 +1,1 @@
+Artículo 102.-Actas: En cada sesión del Comité se levantará un acta que deberá contener número de Acta, modalidad, fecha y hora de la sesión, nombre de los presentes, el orden del día y los acuerdos tomados. Las actas una vez aprobadas deberán ser firmadas de manera física o digital por quien coordine y secretaría.

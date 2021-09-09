@@ -1,0 +1,1 @@
+Artículo 86.-Apelación a la sanción de expulsión temporal: A partir de su recepción de la apelación, el Tribunal contará con cinco días hábiles para notificar a la Secretaría de la Junta Directiva dicha apelación y que ésta sea incluida como punto de agenda en la Asamblea General.

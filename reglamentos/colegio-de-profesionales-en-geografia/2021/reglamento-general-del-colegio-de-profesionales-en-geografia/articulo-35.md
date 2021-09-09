@@ -1,0 +1,1 @@
+Artículo 35.-Impedimento para ser parte de la Junta Directiva: No podrán formar parte de la misma Junta Directiva quienes no estén al día con el pago de las cuotas mensuales, así como las personas que tengan algún parentesco por consanguinidad hasta un nivel de segundo grado y/o afinidad hasta un nivel de segundo grado, inclusive. Según indica el Artículo 18 de la Ley N°9601.

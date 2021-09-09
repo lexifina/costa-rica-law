@@ -1,0 +1,1 @@
+Artículo 65.-Plazos de nombramientos: Los miembros propietarios y suplentes del Tribunal serán nombrados por un período de dos años. Podrán ser reelectos una única vez continúa por el mismo plazo, y su elección será en Asamblea Ordinaria siguiendo lo establecido en el Capítulo IV de este reglamento.

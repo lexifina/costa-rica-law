@@ -1,0 +1,1 @@
+Artículo 115.-Estructura de Comisión: Los integrantes de cada Comisión deberán nombrar una Presidencia y una Secretaría que vele por el correcto funcionamiento de esta y el levantamiento del acta respectiva.

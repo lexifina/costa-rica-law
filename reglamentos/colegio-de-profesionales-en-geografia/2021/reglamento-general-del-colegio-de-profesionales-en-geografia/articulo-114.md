@@ -1,0 +1,1 @@
+Artículo 114.-Informe de Comisión: En cada Asamblea Ordinaria cada Comisión deberá rendir un informe de labores, para ello se utilizará los canales oficiales del Colegio para su divulgación al menos ocho días hábiles antes de la Asamblea Ordinaria.

@@ -1,0 +1,2 @@
+Artículo 39.-Impedimento para ser miembro del Tribunal: No podrán ser miembros del Tribunal Electoral quienes desempeñen algún cargo de nombramiento otorgado mediante la Asamblea General del Colegio o asignado por la Junta Directiva.
+Tampoco podrán formar parte del Tribunal Electoral las personas colegiadas que no estén al día con el pago de sus cuotas mensuales, así como quienes tengan parentesco hasta el segundo grado de consanguinidad y/o afinidad, inclusive, con un miembro de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 57.-Conteo: Una vez finalizado el proceso electoral, sólo podrán permanecer en el área asignada para el conteo el Fiscal del Colegio, los integrantes del Tribunal Electoral y el personal expresamente autorizado.

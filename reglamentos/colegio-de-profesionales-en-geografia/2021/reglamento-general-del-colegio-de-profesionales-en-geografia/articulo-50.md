@@ -1,0 +1,1 @@
+Artículo 50.-Impedimento de participación: Queda prohibido a quienes integran el personal administrativo, Junta Directiva, Fiscalía, Tribunal Electoral y Tribunal de Honor, participar en campaña o actos de proselitismo de cualquier tipo o por cualquier medio, en favor de las candidaturas en el proceso de elección.

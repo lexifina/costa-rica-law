@@ -1,0 +1,1 @@
+Artículo 20.-Memoria anual de labores: La Junta Directiva elaborará una memoria anual conformada por el informe de labores y presupuesto y deberá publicarlo en sus canales oficiales, al menos ocho días hábiles antes de llevarse a cabo la Asamblea Ordinaria.

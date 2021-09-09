@@ -1,0 +1,1 @@
+Artículo 119.-Asistencia a reuniones: la asistencia se registrará en la lista de asistencia del acta. El miembro que por algún impedimento no pueda asistir deberá justificarlo, si no realiza la justificación y reincide tres veces de manera consecutiva, se podrá solicitar su separación de la Comisión.

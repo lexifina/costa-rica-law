@@ -1,0 +1,1 @@
+Artículo 100.-Quórum: El Comité sesionará válidamente en primera convocatoria cuando se encuentren representados por todos sus integrantes del Comité. En caso de no contar con el quorum, se sesionará con al menos dos de sus integrantes presentes.

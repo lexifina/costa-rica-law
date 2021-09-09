@@ -1,0 +1,1 @@
+Artículo 70.-Apoyo Legal: El Tribunal de Honor contará con el apoyo de la Asesoría Legal Interna del Colegio, sin perjuicio de utilizar servicios externos legales y de peritos, previa autorización de la Junta Directiva, para aquellos casos en que la Asesoría Legal Interna se vea inhibida legalmente de atender un asunto o se requiera la opinión profesional de otros peritos.

@@ -1,0 +1,5 @@
+Artículo 77.-Partes involucradas en el procedimiento disciplinario: Serán partes en todo proceso disciplinario, bajo confidencialidad y secreto profesional las siguientes personas:
+a) Persona denunciante: Persona colegiada o civil costarricense o extranjera con derecho y en plena facultad mental, que actúa a título personal o como representante legal de una personería jurídica, que recurre al Tribunal a presentar una denuncia formal en contra de un agremiado del Colegio, en los términos regidos por la Constitución Política, leyes en materia laboral y penal, la Ley N°9601 y el presente Reglamento
+b) Persona colegiada denunciada: Persona colegiada que es sujeto de denuncia, en los términos regidos por la Constitución Política, leyes en materia laboral y penal, la Ley N°9601 y el presente Reglamento.
+c) Testigos de cargo: Persona colegiada, civil costarricense o extranjera con derecho y en plena facultad mental, cuyo testimonio refuerza la tesis de la persona denunciante.
+d) Testigos de descargo: Persona colegiada o civil costarricense o extranjera con derecho y en plena facultad mental, cuyo testimonio defiende la tesis de la persona colegiada denunciada.

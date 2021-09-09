@@ -1,0 +1,1 @@
+Artículo 3º-Expulsión temporal: De acuerdo con las faltas estipuladas en el Código de Ética, se realizará la expulsión temporal de la persona colegiada por parte del dictamen del Tribunal de Honor hasta por un período de 10 años.
