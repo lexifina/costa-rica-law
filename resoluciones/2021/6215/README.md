@@ -14,3 +14,4 @@ Reforma Ordena la suspensión temporal de aquellas actividades que favorezcan el
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-09-01 | la propia norma |
+| 2 | 2021-09-09 | Resolución 7378 (2021-09-09) |
