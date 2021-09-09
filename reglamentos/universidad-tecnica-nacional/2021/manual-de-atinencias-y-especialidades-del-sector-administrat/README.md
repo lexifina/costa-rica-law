@@ -14,3 +14,4 @@ Manual de atinencias y especialidades del sector administrativo de la Universida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-08 | la propia norma |
+| 2 | 2021-09-09 | Reglamento 21 (2021-09-09) |
