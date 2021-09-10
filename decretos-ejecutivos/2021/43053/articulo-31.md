@@ -1,0 +1,1 @@
+Artículo 31.-De la finalidad de la prueba de bombeo. La prueba de bombeo debe realizarse de tal forma que se caracterice el potencial del pozo y su área de influencia, considerando el caudal potencial máximo de extracción conforme al diseño del pozo.

@@ -1,0 +1,1 @@
+Artículo 7º-Del alcance de permiso de perforación. Todo permiso para perforación de pozo se entenderá que se autoriza con fines iniciales de exploración. Una vez cumplido con lo dispuesto en este Reglamento, al Jerarca del MINAE le corresponde autorizar el aprovechamiento del agua mediante la concesión como lo dispone el artículo 17 de la Ley de Aguas N° 276.

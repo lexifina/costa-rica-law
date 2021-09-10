@@ -1,0 +1,1 @@
+Artículo 10.-De la inscripción y licencia de perforadoras. Presentada la solicitud conforme al presente reglamento y revisada la misma, la Dirección de Agua procederá en un plazo de 15 días con la inscripción en el Registro de Perforadoras y habilitará al ejercicio de la actividad de perforación del subsuelo por un período de diez años, asignando un código de identificación.

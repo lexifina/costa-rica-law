@@ -1,0 +1,3 @@
+Artículo 40.-De los requisitos de la concesión. Para continuar con el trámite de la concesión, el solicitante deberá cumplir con lo siguiente:
+a) Viabilidad Ambiental de la concesión de agua solicitada conforme al artículo 17 de la Ley Orgánica del Ambiente Nº 7554, donde se indique claramente el código de identificación del pozo.
+b) En el caso de que el agua sea para consumo humano poblacional o de autoabastecimiento en Condominio, debe presentar análisis microbiológicos y físico-químicos de calidad de agua, en concordancia con los parámetros establecidos en el Reglamento para la Calidad del Agua Potable, Decreto N° 38924-S del 12 de enero de 2015, con los parámetros en Nivel de control de calidad N1, N2 y N3.

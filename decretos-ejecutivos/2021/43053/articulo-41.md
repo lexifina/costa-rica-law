@@ -1,0 +1,1 @@
+Artículo 41.-Aumentos de caudal. La DA podrá solicitar mediante resolución razonada y justificada la presentación de una nueva prueba de bombeo; la cual debe cumplir con lo dispuesto en el artículo 31, 32 y 33 del presente reglamento

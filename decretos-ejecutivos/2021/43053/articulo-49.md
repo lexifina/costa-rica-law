@@ -1,0 +1,3 @@
+CAPÍTULO XI
+Del Registro Nacional de Pozos
+Artículo 49.-Del Registro Nacional de Pozos. De conformidad con el artículo 17 y 18 de la Ley de Aguas N° 276 y artículo 2 de la Ley N° 5516, se constituye el Registro Nacional de Pozos que será administrado por la Dirección de Agua del MINAE y estará integrado al Sistema Nacional de Información para la Gestión Integrada del Recurso Hídrico (SINIGIRH), constituyéndose el registro nacional oficial de pozos. En este se almacenará toda la información técnica y administrativa relativa a la perforación de pozos y será alimentado con la información generada de los informes de perforación. La información será de acceso público.

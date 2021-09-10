@@ -1,0 +1,1 @@
+Artículo 43.-Del control de la extracción. Con el fin de asegurar la calibración y control de la extracción del acuífero y en casos técnicamente justificados y motivados, el MINAE ordenará la instalación de un medidor de caudales cuya ubicación, periodicidad y aporte de reportes serán indicados en la resolución.

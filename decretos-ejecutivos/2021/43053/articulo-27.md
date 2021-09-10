@@ -1,0 +1,1 @@
+Artículo 27.-De la identificación del pozo perforado. Una vez terminada la perforación y armado del pozo, el propietario colocará con carácter permanente en el brocal, una placa metálica con el número del pozo y número de resolución del permiso de perforación.

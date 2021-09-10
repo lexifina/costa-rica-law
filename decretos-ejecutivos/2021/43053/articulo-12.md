@@ -1,0 +1,1 @@
+Artículo 12.-Del Registro Nacional de Perforadoras. La Dirección de Agua será la responsable de mantener actualizado el Registro Nacional de Perforadoras a partir de la información aportada por la perforadora y permitir su acceso público mediante el SINIGIRH.

@@ -1,0 +1,3 @@
+Artículo 32.-De la duración de la prueba de bombeo. Cuando el aprovechamiento corresponde para uso poblacional y autoabastecimiento en condominio, el tiempo de bombeo mínimo será de 72 horas. Para los otros usos, el periodo será de hasta 24 horas. Lo anterior sin perjuicio que la Dirección de Agua considere la necesidad de realizar un tiempo de prueba de bombeo diferente al indicado, lo cual solicitará mediante resolución debidamente justificada y motivada.
+Luego del tiempo de bombeo, se debe tener el control del tiempo de la recuperación que deberá alcanzar al menos el 85% del abatimiento reportado.
+El IPB debe ser presentado en un plazo de 10 días hábiles de concluida la perforación exploratoria.

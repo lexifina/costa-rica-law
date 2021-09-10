@@ -1,0 +1,1 @@
+Artículo 42.-De la resolución de la concesión. Emitida la recomendación técnica sobre el aprovechamiento de agua, en un mes plazo, la DA preparará el proyecto de resolución de concesión de agua para firma del jerarca del MINAE, quien resolverá en definitiva dentro de un plazo de un mes, a partir del traslado de la documentación.

@@ -1,0 +1,1 @@
+Artículo 15.-De los permisos de perforación en acuífero con regulación especial. En los acuíferos con regulación especial, la Dirección de Agua resolverá el permiso de perforación en la fase de exploración en apego a estas regulaciones y condiciones, dentro del plazo señalado en el artículo 21 del presente Reglamento.

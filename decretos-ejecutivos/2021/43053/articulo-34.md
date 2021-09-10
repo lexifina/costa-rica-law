@@ -1,0 +1,9 @@
+CAPÍTULO VII
+De los estudios para habilitar el uso
+del pozo para el aprovechamiento del agua
+Artículo 34.-De los estudios según ubicación del pozo. Una vez concluida la fase de exploración con la perforación del pozo, conforme los resultados y condiciones de perforación descritos en el IFP e IPB, el solicitante deberá presentar de forma digital ante la Dirección de Agua los estudios indicados en este artículo cuando corresponda, conforme criterios de requerimiento, según el siguiente detalle:
+a) Estudio de Interferencia entre pozos o con cuerpos de agua: De conformidad con el artículo 8 de la Ley de Aguas Nº 276, cuando la perforación se ubique a menos de 100 metros de pozos de terceras personas, debidamente inscritos en el Registro Nacional de Pozos o de cuerpos de agua como ríos, quebradas o arroyos, deberá presentar estudio de interferencia y abatimiento que demuestre técnica y científicamente que no existe afectación al recurso hídrico o a los pozos de terceros de mejor derecho.
+b) Del retiro operacional del pozo (ROP): De conformidad con el artículo 8º de la Ley de Aguas Nº 276, a todo pozo con fines de aprovechamiento de agua, se le establece una distancia de retiro de hasta 40 metros, dentro de la cual, se permiten únicamente actividades directamente relacionadas con la extracción, distribución del agua y mantenimiento del pozo.
+Esta distancia puede ser menor con la autorización del MINAE a través de la Dirección de Agua, para lo cual deberá aportar el interesado estudio que demuestre con certeza técnico-científica que el acuífero no será afectado ni contaminado por las actividades directamente realizadas dentro de este retiro solicitado.
+El ROP no debe traspasar los linderos de propiedades circunvecinas al sitio del pozo.
+Estos estudios deben ser presentados en un plazo máximo de 30 días hábiles de concluida la perforación y utilizar como información base la generada por la perforación autorizada.

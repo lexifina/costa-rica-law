@@ -1,0 +1,3 @@
+CAPÍTULO XII
+De las sanciones
+Artículo 50.-Del cumplimiento de la legislación. Las perforadoras y demás administrados deberán cumplir las normativas de protección ambiental establecidas en la Ley de Aguas Nº 276 y su reforma mediante la Ley Nº 5516, Ley Orgánica del Ambiente, Ley Nº 7554, Ley General de la Administración Pública Nº 6227, Ley Forestal N° 7575, Ley de Creación del Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento Nº 6877, Ley General de Salud Nº 5395 y Ley Constitutiva del Instituto Costarricense de Acueductos y Alcantarillados Nº 2726, y demás legislación aplicable a esta materia.
