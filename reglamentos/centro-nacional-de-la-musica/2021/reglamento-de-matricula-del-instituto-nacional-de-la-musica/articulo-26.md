@@ -1,0 +1,4 @@
+SECCIÓN II
+De la matrícula de los cursos libres y cursos varios
+Artículo 26: Para inscribirse en un curso libre no se requiere la presentación de un título académico, y los requisitos de matrícula dependerán de la naturaleza del curso. Hay cursos bimestrales, trimestrales o cuatrimestrales. No existe un número limitado. El interesado tiene derecho a inscribirse en cuantos cursos desee. Los cursos libres se matriculan en la Oficina de Coordinación Académica, en las fechas dispuestas para tal fin. Quien se inscriba en los cursos libres del Instituto Nacional de la Música deberá asumir los gastos del curso por concepto de matrícula, y en algunos casos el pago del material que se utilizará en el curso.
+En el caso de los cursos varios, se realizará inscripción de los mismos, dependiendo de la cantidad de población a la que van dirigidos, principalmente por razones de cupo limitado a los mismos.

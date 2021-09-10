@@ -1,0 +1,1 @@
+Artículo 3: Se entiende por matrícula al conjunto de procedimientos tendientes a la inscripción de una persona como estudiante regular del Instituto Nacional de la Música, en las fechas establecidas en el Calendario Escolar.

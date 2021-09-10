@@ -1,0 +1,1 @@
+Artículo 25: Los cursos varios corresponden a cursos o talleres de naturaleza de formación musical, para población tanto de alumnos regulares como interesados en general. Tienen una duración menor a ocho horas y no se otorgan créditos, ni títulos ni certificaciones.

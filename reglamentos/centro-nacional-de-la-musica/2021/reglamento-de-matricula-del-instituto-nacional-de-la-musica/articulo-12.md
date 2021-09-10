@@ -1,0 +1,1 @@
+Artículo 12: El estudiante adquiere la condición de alumno regular del Instituto Nacional de la Música, siempre y cuando cumpla con el acto de ratificación de la matrícula ordinaria en la forma y oportunidad que indique la administración del Instituto Nacional de la Música.

@@ -1,0 +1,3 @@
+SECCIÓN III
+Del procedimiento y los requisitos de matrícula
+Artículo 6: Corresponde gestionar y formalizar la matrícula de un estudiante menor de edad, al padre o madre de familia, al representante legal o a quien ejerza la guarda y crianza, quienes mediante esta gestión asumen la responsabilidad inherente a la educación del alumno, así como los daños que por dolo, negligencia o imprudencia ocasione éste a las personas, instalaciones físicas, equipo, y en general, a los bienes del Instituto Nacional de la Música. El estudiante mayor de edad gestiona y formaliza su propia matrícula y asume personalmente las responsabilidades descritas en el párrafo anterior.

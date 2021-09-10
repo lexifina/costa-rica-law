@@ -1,0 +1,1 @@
+Artículo 27-. El estudiante bajo la modalidad de cursos libres puede realizar cambios y retiros únicamente durante la primera semana, sin embargo, de retirarse no se le podrá reintegrar el monto pagado por concepto de inscripción.

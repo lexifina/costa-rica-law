@@ -1,0 +1,1 @@
+Artículo 9: Para ingresar a los Programas Introductorios, se establece la edad como requisito indispensable de matrícula. Los parámetros de edad variarán según el programa, y dichos parámetros serán publicados por medios oficiales de la institución previo a la matrícula.

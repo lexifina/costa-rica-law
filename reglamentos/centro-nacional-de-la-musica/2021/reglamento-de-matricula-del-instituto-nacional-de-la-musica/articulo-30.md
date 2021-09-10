@@ -1,0 +1,1 @@
+Artículo 30: Todo lo relativo a recursos u otras disposiciones no contenidas en el presente Reglamento se regirá de conformidad con las disposiciones de la Ley No. 8347, con fecha del 19 de febrero del 2003 y su Reglamento.

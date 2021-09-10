@@ -1,0 +1,1 @@
+Artículo 28: Los estudiantes que realizan sus estudios bajo la modalidad de curso libre deben cumplir con las pautas estipuladas en cada curso con respecto a la asistencia y la evaluación de los aprendizajes (cuando aplique).

@@ -1,0 +1,5 @@
+CAPÍTULO IV
+De los cursos libres y cursos varios del Instituto Nacional de la Música
+SECCIÓN I
+De los cursos libres y cursos varios
+Artículo 24: Los cursos libres del Instituto Nacional de la Música conforman la oferta educativa musical no formal del Instituto Nacional de la Música, cuyo objetivo es atender a poblaciones que no pueden ingresar a los programas permanentes de estudios musicales del Instituto Nacional de la Música, ya sea porque no cumplen con el requisito de edad, o bien, porque no desean formarse como músicos profesionales. De esta forma, los cursos libres de música del Instituto Nacional de la Música pretenden satisfacer intereses intelectuales y musicales en aquellas personas que se matriculan. Se entiende por "curso libre" aquella actividad de enseñanza-aprendizaje que esté mediada por un profesor. Dicho curso no pertenece a ningún programa de estudio formal del Instituto Nacional de la Música. Tiene una duración igual o superior a ocho horas y no se otorgan créditos, ni títulos o certificaciones.

@@ -1,0 +1,6 @@
+Artículo 17: El reingreso del estudiante al Instituto Nacional de la Música, procede únicamente en los siguientes casos:
+a-. El o la joven que desee re-ingresar al Instituto Nacional de Música como estudiante regular, debe haber presentado en el momento de retirarse del Instituto, una carta ante el Consejo Académico, solicitando un Retiro Justificado según lo indicado en el presente Reglamento en su Artículo 13 Inciso B.
+b-. El o la joven que solicite re-ingreso, no puede haber perdido ningún curso en su último período matriculado en el Instituto.
+c-. Debe solicitar por escrito al Consejo Académico su re-ingreso al Instituto Nacional de Música.
+d-. El o la solicitante de re-ingreso deberá realizar previo a la matrícula, una prueba donde demuestre que tiene el nivel mínimo musical adecuado que dejó al retirarse, según lo establecido por el Reglamento Académico del Instituto Nacional de la Música. Una vez ganada dicha prueba podrá proceder a acogerse al proceso de matrícula.
+e-. Si el alumno o alumna, al momento del retiro, se encontraba en Nivel Preparatorio o Introductorio y no se le había asignado instrumento, no se le otorga Retiro Justificado. En este caso, si se retira y desea re-ingresar posteriormente, deberá realizar nuevamente el proceso de Admisión según el requerimiento de edad del programa al que quiera reingresar.
