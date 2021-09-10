@@ -15,3 +15,4 @@ Reglamento de la Comisión Arqueológica Nacional
 | --- | --- | --- |
 | 1 | 1989-06-12 | la propia norma |
 | 2 | 1999-10-12 | Decreto Ejecutivo 28174 (1999-10-12) |
+| 3 | 2021-09-10 | Decreto Ejecutivo 43216 (2021-09-10) |
