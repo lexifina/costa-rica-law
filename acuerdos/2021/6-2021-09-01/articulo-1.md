@@ -1,0 +1,22 @@
+INSTITUTO GEOGRÁFICO NACIONAL
+DEPARTAMENTO TOPOGRÁFICO Y
+OBSERVACIÓN DEL TERRITORIO
+AVISO N° 2021-006
+ZONA MARÍTIMO TERRESTRE
+CANCELACIÓN DE MOJÓN N° 16 PERTENECIENTE
+A LA DELIMITACIÓN DE LA ZONA PÚBLICA DE
+LA ZONA MARÍTIMO TERRESTRE EN EL
+SECTOR DE PLAYA QUIZALES
+Con fundamento en lo dispuesto en los artículos 140 y 240 de la Ley N° 6227 Ley General de la Administración Pública de fecha 2 de mayo de 1978; Ley N° 59 Ley de Creación y Organización del Instituto Geográfico Nacional del 4 de julio de 1944; Ley N° 8905 Reforma del artículo 2 de la ley N° 5695, Creación del Registro Nacional, y sus reformas; y modificación de la Ley N° 59, Creación y Organización del Instituto Geográfico Nacional, de 4 de julio de 1944, y sus reformas de fecha 7 de diciembre del 2010; Ley N° 6043 Ley sobre la Zona Marítimo Terrestre del 2 de marzo de 1977, con su respectivo reglamento y; artículos 2 y 3 de la Ley N° 5695 Ley de Creación del Registro Nacional de fecha 28 de mayo de 1975 y sus reformas.
+Considerando:
+I.-Que mediante ley N.º 8905 se establece el Instituto Geográfico Nacional, en adelante IGN, como una dependencia del Registro Nacional, quien suscribirá los contratos y convenios necesarios para el ejercicio de sus funciones. Asimismo, de conformidad con la ley N.º 59, el IGN es la dependencia científica y técnica rectora de la cartografía nacional, destinada a la ejecución del Mapa básico oficial y la Descripción básica geográfica de la República de Costa Rica y a los estudios, las investigaciones o labores y el desarrollo de políticas nacionales de carácter cartográfico, geográfico, geodésico, geofísico y de índole similar que tenga relación con dichas obras, con el fin de apoyar los procesos de planificación.
+II.-Que la Ley N° 59 constituye al IGN de manera permanente y en representación del Estado, como la autoridad oficial en materia geodésica y de la representación espacial de la geografía de la República de Costa Rica, extendiéndose su autoridad a las actividades de cualquier orden que tengan por origen los trabajos confiados a su cargo.
+III.-Que de conformidad con la ley N.º 59; el artículo 62 del Decreto Ejecutivo N° 7841-P denominado Reglamento a la Ley sobre la Zona Marítimo Terrestre se reconoce la competencia del IGN para la delimitación de la zona pública de la Zona Marítimo Terrestre, y su oficialización a través de publicación en el Diario Oficial La Gaceta; el artículo 63 del Decreto Ejecutivo N° 7841-P señala que El Instituto Geográfico Nacional deberá publicar aviso en el Diario Oficial, de cada porción de la zona marítimo-terrestre en que haya demarcado la zona pública.
+IV.-Que mediante La Gaceta N° 55 del 22 de marzo de 1982, página 17, se llevó a cabo la oficialización del amojonamiento de la zona pública en Playa Playitas, Playa Quizales y Playa Tambor distrito 12° Cóbano, cantón 01° Puntarenas, provincia 06° de Puntarenas, bajo el establecimiento de 14 mojones enumerados del 06 al 19.
+V.-Que mediante el Aviso N° 96-6, publicado en la página 12 de La Gaceta N° 46 del martes 5 de marzo de 1996 se llevó a cabo la oficialización del amojonamiento de la zona pública en Playa Piedra Colorada, distrito 12° Cóbano, cantón 01° Puntarenas, provincia 06° de Puntarenas, bajo el establecimiento de 20 mojones enumerados del 500 al 519.
+VI.-Que mediante el Aviso N° 96-6, publicado en la página 12 de La Gaceta N° 46 del martes 5 de marzo de 1996 debió haber sido cancelado el mojón N° 16 oficializado en la Gaceta N° 55 del 22 de marzo de 1982.
+VII.-Que el artículo 140 de la Ley N° 6227 Ley General de la Administración Pública, señala que "el acto administrativo producirá su efecto después de comunicado al administrado, excepto si le concede únicamente derechos, en cuyo caso lo producirá desde que se adopte", disposición que necesariamente debe relacionarse con el numeral 240) del mismo cuerpo normativo, mismo que define el instrumento idóneo para comunicar actos de naturaleza genérica al señalar que: "Se comunicaran por publicación los actos generales y por notificación, los concretos".
+COMUNICA:
+1°-Se procede a cancelar el mojón N° 16 perteneciente a la delimitación de la zona pública de la Zona Marítimo Terrestre en el sector de Playa Quizales, de Cóbano de Puntarenas, publicado en La Gaceta N° 55 del 22 de marzo de 1982.
+2°-Rige a partir de su publicación.
+Dado en Curridabat, San José, a los 01 días del mes de setiembre del año 2021.
