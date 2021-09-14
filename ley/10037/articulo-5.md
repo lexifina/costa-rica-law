@@ -1,0 +1,2 @@
+ARTÍCULO 5- Exención de pago de impuestos
+No estarán sujetos al pago de ninguna clase de impuestos, tasas, contribuciones o derechos, los documentos que se requieran para formalizar el Contrato de Préstamo N.° 9050-CR entre la República de Costa Rica y el Banco Internacional de Reconstrucción y Fomento (BIRF); asimismo, la inscripción de estos documentos en los registros correspondientes queda exonerada de todo tipo de pago.

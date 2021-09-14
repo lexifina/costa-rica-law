@@ -1,0 +1,5 @@
+ARTÍCULO 2- Objetivo del Programa
+El objetivo del Programa es ampliar las oportunidades económicas del sector pesquero y acuicultura costarricense, y mejorar la administración e institucionalidad del sector que tiene el prestatario.
+En el marco de este Programa se podrá promover la inclusión de la reconversión de la flota pesquera al uso de artes de pesca sostenible dentro del Programa de Pagos por Servicios Ecosistémicos. Además, se podrá promover el financiamiento de estudios sobre biomasa pesquera, para promover el aprovechamiento del atún.
+En el marco de este Programa se podrá promover la inclusión de modernización y tecnificación de las pesquerías, de la flota pesquera al uso de artes de pesca sostenible dentro del Programa de Pagos por Servicios Ecosistémicos. Además, se podrá promover el financiamiento de estudios sobre biomasa pesquera, para promover el aprovechamiento de atún y otras especies comerciales.
+Asimismo, incluir en el Programa de Pagos por Servicios Ecosistémicos la limpieza de desechos en los manglares y la reforestación de estos.
