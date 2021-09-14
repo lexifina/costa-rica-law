@@ -1,0 +1,1 @@
+Artículo 4°-Definición de procedimientos. La División Administrativa será la encargada de establecer los procedimientos a seguir para, asignación, uso, control y reposición del servicio telefónico celular y servicios complementarios.

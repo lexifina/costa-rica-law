@@ -1,0 +1,1 @@
+Artículo 12°-Uso exclusivo. La línea y el teléfono celular estarán restringidas a una línea por funcionario, y serán de su uso exclusivo para atender y realizar llamadas relativas al cumplimiento de las funciones, tareas y actividades propias de su cargo.

@@ -1,0 +1,1 @@
+Artículo 16.-De la firma del acta de entrega, uso custodia y reposición del teléfono celular. El acta que refiera a un servicio completo, que consideran el suministro del aparato telefónico, línea, conexiones, los suscribirá el Director Administrativo con el funcionario de que se trate, acto con el que el aparato y sus accesorios serán entregados al funcionario autorizado.

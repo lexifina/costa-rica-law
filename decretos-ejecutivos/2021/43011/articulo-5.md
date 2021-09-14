@@ -1,0 +1,1 @@
+Artículo 5°-Responsabilidad del uso, custodia y reposición. Los funcionarios autorizados para el uso de los servicios de telefonía móvil en este Reglamento tienen responsabilidad exclusiva sobre el uso, la custodia y la conservación de los servicios de telefonía móvil asignados, así como de sus respectivos accesorios tales como celulares, baterías, cargadores, chips.

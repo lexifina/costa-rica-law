@@ -1,0 +1,1 @@
+Artículo 14.-Sanciones. El funcionario que incumpla alguna o varias de las disposiciones contenidas en este Reglamento se hará acreedor a las sanciones disciplinarias que correspondan, previo cumplimiento del resultado del debido proceso, así como la responsabilidad administrativa, civil o penal, que conforme al ordenamiento jurídico le sean aplicables.

@@ -1,0 +1,1 @@
+Artículo 19.-Derogatoria. Este Reglamento deroga el Decreto Ejecutivo Nº 35283-S del 4 de mayo de 2009 "Reglamento para el Uso, Custodia y Conservación de los Teléfonos Celulares del Ministerio de Salud".

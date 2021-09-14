@@ -1,0 +1,1 @@
+Artículo 2°-Objeto. El presente Reglamento tiene por objeto regular y establecer las disposiciones de acatamiento obligatorio para la adquisición, asignación, uso, custodia, y reposición de los servicios de telefonía móvil del Ministerio de Salud, con el fin de obtener un uso eficiente de los recursos asignados para el cumplimiento de funciones.
