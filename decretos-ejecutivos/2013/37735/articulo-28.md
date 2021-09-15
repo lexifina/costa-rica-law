@@ -1,11 +1,12 @@
-Artículo 28.—Funciones de las UPI. Las UPI tendrán las siguientes funciones:
+Artículo 28.-Funciones de las UPI. Las UPI tendrán las siguientes funciones:
 a) Dirigir los procesos de planificación institucional dentro de los lineamientos, metodologías y procedimientos establecidos por la o el jerarca institucional y por el SNP.
 b) Operar como parte integrante del SNP para asegurar su efectivo funcionamiento y el cumplimiento de los instrumentos de planificación y de rendición de cuentas.
 c) Colaborar con MIDEPLAN como rector técnico del SNP, proporcionando los insumos y requerimientos que les solicite.
 d) Dirigir y coordinar los procesos de seguimiento y evaluación del cumplimiento institucional de las políticas y metas establecidas en el PND y en los instrumentos de planificación institucional, considerando otros instrumentos de planificación nacional, sectorial y regional.
 e) Formular el PEI con sujeción a los lineamientos, metodologías y procedimientos emitidos por MIDEPLAN.
 f) Elaborar y proponer a la o al jerarca institucional el POI y verificar su incorporación en la formulación de los presupuestos institucionales.
-g) Formular el Programa Institucional de Inversiones Públicas, verificando su concordancia con las prioridades establecidas en el PND, en el PEI y con las políticas de endeudamiento público, así como inscribir los proyectos de inversión pública en el Banco de Proyectos de Inversión Pública de MIDEPLAN y velar por el seguimiento de su ejecución.
+g) Vigilar por la correcta aplicación de las normas y lineamientos de inversión pública, coordinar las inscripciones y actualizaciones del proyecto según ciclo de vida en el BPIP, y velar para que la información de los proyectos sea de calidad, oportuna y confiable.
+(Así reformado el inciso anterior por el artículo 34 del Reglamento para el funcionamiento del Sistema Nacional de Inversión Pública (SNIP), aprobado mediante decreto ejecutivo N° 43251 del 15 de setiembre de 2021)
 h) Apoyar a las o los jerarcas institucionales en las actividades de rendición de cuentas de la gestión institucional, con inclusión de la elaboración de memorias e informes que fomenten mayor transparencia ante la ciudadanía.
 i) Rendir informes semestrales y anuales ante la o el jerarca institucional sobre la evolución de la institución en el marco del Plan Nacional de Desarrollo.
 j) Proponer iniciativas de evaluación que sirvan para analizar los efectos de las estrategias y de las políticas que han sido implementadas e impulsar medidas de mejoramiento continuo de la planificación institucional.

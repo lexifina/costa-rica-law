@@ -1,7 +1,8 @@
-Artículo 8º—Instrumentos de planificación. Serán instrumentos de planificación:
+Artículo 8º-Instrumentos de planificación. Serán instrumentos de planificación:
 a) El PEN.
-b) El PND.
-c) El PNIP.
+b) El PNDIP.
+(Así reformado el inciso anterior por el artículo 34 del Reglamento para el funcionamiento del Sistema Nacional de Inversión Pública (SNIP), aprobado mediante decreto ejecutivo N° 43251 del 15 de setiembre de 2021)
+c) (Derogado por el artículo 36 del Reglamento para el funcionamiento del Sistema Nacional de Inversión Pública (SNIP), aprobado mediante decreto ejecutivo N° 43251 del 15 de setiembre de 2021)
 d) Los PRD.
 e) Los PNS.
 f) Los PEI.
