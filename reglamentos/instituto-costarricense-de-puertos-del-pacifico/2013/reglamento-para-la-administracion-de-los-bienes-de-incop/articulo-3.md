@@ -1,7 +1,9 @@
-ARTICULO 3. Para los propósitos de este reglamento se establecen las siguientes definiciones:
+Artículo 3º-Para los propósitos de este reglamento se establecen las siguientes definiciones:
 a) Activos fijos: Son bienes propiedad de la Institución, que se clasifiquen como tales de acuerdo con las normas contables aplicadas y destinados al logro de los objetivos de la Institución. Pueden ser bienes con vida útil superior a un año (como mobiliario, maquinaria, equipo, vehículos, semovientes) o bienes inmuebles como instalaciones, terrenos y edificios.
-b) Baja de activos: Eliminación de los activos de los registros de la institución por motivo de desecho, donación, venta, permuta o sustracción, siempre que se sigan Ios procedimientos establecidos en este Reglamento.
-c) Bien en desuso: Aquel que por razones de obsolescencia, deterioro u otras razones calificadas no sea útil y/o necesario para las labores que desarrolla la institución.
+b) Baja de activos: Eliminación de los activos de los registros de la institución por motivo de desecho, donación, venta, permuta o sustracción, siempre que se sigan los procedimientos establecidos en este Reglamento.
+c) Bien en desuso: Aquel que, por razones de obsolescencia, deterioro u otras razones calificadas no sea útil y/o necesario para las labores que desarrolla la institución.
 d) Bien en mal estado: Aquel que en virtud de su estado físico no tenga utilidad alguna, con lo que sería objeto de destrucción y para tal efecto se levantará el acta respectiva.
-e) Usuario de un activo: Aquel funcionario al cual se le entregue mobiliario, equipo, maquinaria o vehículos para la ejecución de sus labores.
-f) Inventario: Lista ordenada de activos fijos, que contienen como mínimo, el número de identificación y la descripción de los bienes asignados a una determinada Unidad.
+e) Custodio de un activo: funcionario al cual el jefe inmediato por medio del portal de trámites le asigne uno o varios activos para su uso directo y/o resguardo para el uso de la unidad, cuya asignación como custodio lo hace responsable del bien, incluso para efectos patrimoniales, administrativos y disciplinarios.
+f) Responsable de activos: Jefe de cada unidad responsable de realizar la designación de custodio de activos a lo interno de su unidad, realizar y aprobar los traslados o aceptación de activos; todo en el portal de trámites dispuesto para el registro y control de los activos de Incop. Así mismo, responsable de que se realice auto inventario de activos de la unidad a su cargo y responsable de velar por el cumplimiento de lo dispuesto en el presente reglamento.
+g) Inventario: Lista ordenada de activos fijos, que contienen como mínimo, el número de identificación y la descripción de los bienes asignados a una determinada Unidad.
+(Así reformado en sesión N° 4307 del 15 de setiembre de 2021)

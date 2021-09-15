@@ -14,3 +14,4 @@ Reglamento para la Administración de los Bienes de INCOP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-29 | la propia norma |
+| 2 | 2021-09-15 | Reglamento 4307 (2021-09-15) |
