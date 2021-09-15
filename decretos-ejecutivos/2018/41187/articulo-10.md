@@ -3,4 +3,5 @@ Corresponde a cada órgano rector:
 a) Validar y suscribir las políticas públicas correspondientes a su competencia.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41265 del 7 de setiembre del 2018)
 b) Rendir un informe sobre la ejecución del presupuesto de su institución, correspondiente al ejercicio fiscal en curso, según lo dispuesto en el artículo 28.2 inciso i) de la Ley General de la Administración Pública.
-c) Visar los proyectos de instituciones públicas integrantes de su rectoría para la respectiva inscripción en el Banco de Proyectos de Inversión Pública (BPIP) del Ministerio de Planificación y Política Económica.
+c) Emitir un aval para cada una de las etapas de la fase de preinversión que requiera completar el proyecto antes de iniciar con la fase de inversión. Estos avales son requisito para la inscripción y actualización de los proyectos de las instituciones públicas integrantes de su Sector en el Banco de Proyectos de Inversión Pública (BPIP) del Ministerio de Planificación Nacional y Política Económica.
+(Así reformado el inciso anterior por el artículo 33 del Reglamento para el funcionamiento del Sistema Nacional de Inversión Pública (SNIP), aprobado mediante decreto ejecutivo N° 43251 del 15 de setiembre de 2021)
