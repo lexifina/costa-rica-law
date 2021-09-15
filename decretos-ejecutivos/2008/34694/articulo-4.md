@@ -1,2 +1,0 @@
-Articulo 4.- De los órganos. La formulación de los proyectos de inversión en sus distintas etapas del ciclo de vida estará a cargo de los órganos y entes que conforman el sector público definido en el articulo 13 siguiente. Por su parte, la revisión, aceptación, ingreso y solicitud de registro de los proyectos de inversión al Banco de Proyectos será competencia de las Rectorías definidas en el Reglamento Orgánico del Poder Ejecutivo vigente en el momento de realizar el trámite.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40691 del 1° de setiembre del 2017)

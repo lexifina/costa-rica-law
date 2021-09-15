@@ -1,2 +1,0 @@
-Artículo 21.—De la presentación de los proyectos. Los órganos y entes sujetos al SNIP de la Administración Central y Descentralizada deberán presentar sus proyectos a las Rectorías desde el día siguiente de la comunicación de las normas de inversión y en los plazos definidos en los lineamientos respectivos.
-Las Rectorías presentarán a MIDEPLAN los proyectos de inversión de las instituciones formuladoras que cuentan con su aval y dictamen técnico afirmativo.

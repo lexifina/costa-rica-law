@@ -1,1 +1,0 @@
-Artículo 14.—De la cobertura material. Formarán parte del Banco de Proyectos de Inversión Pública los estudios de preinversión de los proyectos de inversión pública que se ejecuten bajo la modalidad de concesiones o por organizaciones privadas.

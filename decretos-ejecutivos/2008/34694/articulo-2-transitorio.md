@@ -1,1 +1,0 @@
-Transitorio II.—La Unidad de Inversiones Públicas de MIDEPLAN comunicará en un plazo de un mes después de la publicación de este reglamento en el diario oficial, a las instituciones sometidas al SNIP, las Normas Técnicas, Lineamientos y Procedimientos.
