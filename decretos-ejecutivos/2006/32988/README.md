@@ -23,3 +23,4 @@ Reglamento a la Ley de la Administración Financiera de la República y Presupue
 | 8 | 2015-07-22 | Decreto Ejecutivo 39183 (2015-07-22) |
 | 9 | 2017-11-28 | Decreto Ejecutivo 40797 (2017-11-28) |
 | 10 | 2018-03-21 | Decreto Ejecutivo 41057 (2018-03-21) |
+| 11 | 2021-09-15 | Decreto Ejecutivo 43251 (2021-09-15) |
