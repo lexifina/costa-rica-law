@@ -1,7 +1,8 @@
 Artículo 4.- Integración de la Sesión Plenaria de la Mesa Caribe. La Mesa Caribe contará con una sesión plenaria, integrada por:
 a) Segundo Vicepresidente de la República.
 b) El coordinador o coordinadora del eje de empleabilidad, innovación y seguridad social.
-c) El coordinador o coordinadora del eje de Desarrollo Agropecuario, Pesquero y Rural
+c) El coordinador o coordinadora del eje de Desarrollo Productivo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43241 del 15 de setiembre del 2021)
 d) El coordinador o coordinadora del eje de Infraestructura, Movilidad, Transporte y Ordenamiento.
 e) El coordinador o coordinadora del eje de Seguridad Humana.
 f) Tres representantes de organizaciones civiles por cada uno de los ejes temáticos de trabajo definidos.

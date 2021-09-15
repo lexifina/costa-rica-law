@@ -14,3 +14,4 @@ Creación de la Mesa caribe: Por el diálogo, el desarrollo económico y la incl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-25 | la propia norma |
+| 2 | 2021-09-15 | Decreto Ejecutivo 43241 (2021-09-15) |

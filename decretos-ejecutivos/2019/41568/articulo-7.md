@@ -1,1 +1,3 @@
-Artículo 7.- Sesiones de los ejes de trabajo. Las instituciones coordinadoras de cada eje de trabajo convocarán, al menos una vez al mes, a sesión de trabajo y seguimiento en relación con la ejecución de los acuerdos.
+Artículo 7º-Sesiones de los ejes de trabajo. La convocatoria a las reuniones generales donde se incluirán a los representantes de los cuatro ejes de trabajo se realizará únicamente en caso de considerarse necesario para la articulación o comunicación respecto a temas o situaciones urgentes, según la coyuntura. En caso contrario solamente se desarrollarán las sesiones plenarias mencionadas en el Artículo 8.
+No obstante, las instituciones mantendrán actualizada la información respecto de los programas y proyectos en ejecución en el marco de Mesa Caribe, la cual será remitida al Coordinador del Eje respectivo cada dos meses, o cuando el Coordinador la solicite.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 43241 del 15 de setiembre del 2021)
