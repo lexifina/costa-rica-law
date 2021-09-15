@@ -14,3 +14,4 @@ Normas Técnicas Lineamientos y Procedimientos de Inversión Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-20 | la propia norma |
+| 2 | 2021-09-15 | Decreto Ejecutivo 43251 (2021-09-15) |
