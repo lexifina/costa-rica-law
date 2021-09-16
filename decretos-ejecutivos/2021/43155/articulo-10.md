@@ -1,0 +1,4 @@
+Artículo 10.-Notificación de inicio de las funciones. Una vez formalizado cualquier contrato de trabajo o servicios profesionales por parte del dependiente, ello será notificado al Departamento de Inmunidades y Privilegios, por nota suscrita por el titular de la Embajada, Oficina Consular u Organismo Internacional, con indicación de las siguientes circunstancias:
+a) Fecha de inicio y fin de la relación laboral o contrato por servicios profesionales, o indicación de si se trata de un contrato por tiempo indefinido. Este último supuesto no implica modificación alguna con respecto a lo estipulado en el artículo 12 del presente reglamento.
+b) Comprobante de inscripción del dependiente como asegurado ante la Caja Costarricense del Seguro Social.
+c) Comprobante de orden patronal o inscripción en la Dirección General de Tributación del Ministerio de Hacienda, según corresponda.

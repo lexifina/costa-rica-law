@@ -1,0 +1,1 @@
+Artículo 6°-Subsanación. En caso de que la solicitud se presente sin la totalidad de requisitos previstos en el artículo anterior, se prevendrá a la Misión Diplomática, Oficina Consular u Organismo Internacional solicitante, para que subsane lo que corresponda de previo a dar trámite a dicho requerimiento.

@@ -1,0 +1,1 @@
+Artículo 8°-Documentación. La resolución emitida por el Departamento de Inmunidades y Privilegios le confiere a la persona solicitante la autorización indicada en el artículo anterior, no siendo necesario que se emita un nuevo documento de identificación a favor de la persona dependiente para validar dicha condición.

@@ -1,0 +1,1 @@
+Artículo 3°-Fundamento jurídico de la autorización de trabajo de ocupación específica. Las autorizaciones en el marco del presente reglamento se otorgarán exclusivamente en los casos en que ello sea previsto expresamente en una ley o convenio internacional vigente.
