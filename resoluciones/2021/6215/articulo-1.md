@@ -26,10 +26,14 @@ Por tanto,
 EL MINISTRO DE SALUD
 RESUELVE
 PRIMERO. Las presentes medidas sanitarias se emiten con el objetivo de prevenir y mitigar el riesgo o daño a la salud pública y atender el estado de emergencia nacional dado mediante el Decreto Ejecutivo No. 42227-MP-S del 16 de marzo de 2020 y sus reformas, en procura del bienestar de todas las personas que radiquen en el territorio costarricense de manera habitual ante los efectos del COVID-19.
-SEGUNDO: Refórmese de forma temporal la franja horaria de la resolución MS-DM-6958- 2020 y sus reformas, para que el horario de los establecimientos que atienden al público, que tienen que cumplir con restricción horaria y cuenten con permiso sanitario de funcionamiento, a partir del 01 y hasta el 30 de setiembre de 2021, inclusive, sea desde las 5:00 horas y hasta las 22:00 horas.
-Deberán los supermercados, minisúper, pulperías y licoreras, ajustarse a este mismo horario de operación, de las 5:00 horas hasta las 22:00 horas, del 01 y hasta el 30 de setiembre de 2021, inclusive.
-Podrán todos los establecimientos que así lo dispongan, ofrecer el servicio a domicilio, siempre que operen a puerta cerrada sin atención al público de manera presencial, después de las 22:00 horas.
-El horario de acceso a las playas, del 01 y hasta el 30 de setiembre de 2021, inclusive, será desde las 5:00 horas y hasta las 20:00 horas.
+SEGUNDO: Refórmese de forma temporal la franja horaria de la resolución MS-DM-6958- 2020 y sus reformas, para que el horario de los establecimientos que atienden al público, que tienen que cumplir con restricción horaria y cuenten con permiso sanitario de funcionamiento, a partir del 18 y hasta el 30 de setiembre de 2021, inclusive, sea desde las 5:00 horas y hasta las 21:00 horas.
+(Así reformado el párrafo anterior mediante resolución N° MS-DM-7451-2021 del 16 de setiembre de 2021)
+Deberán los supermercados, minisúper, pulperías y licoreras, ajustarse a este mismo horario de operación, de las 5:00 horas hasta las 21:00 horas, del 18 y hasta el 30 de setiembre de 2021, inclusive.
+(Así reformado el párrafo anterior mediante resolución N° MS-DM-7451-2021 del 16 de setiembre de 2021)
+Podrán todos los establecimientos que así lo dispongan, ofrecer el servicio a domicilio, siempre que operen a puerta cerrada sin atención al público de manera presencial, después de las 21:00 horas.
+(Así reformado el párrafo anterior mediante resolución N° MS-DM-7451-2021 del 16 de setiembre de 2021)
+El horario de acceso a las playas, del 18 y hasta el 30 de setiembre de 2021, inclusive, será desde las 5:00 horas y hasta las 20:00 horas.
+(Así reformado el párrafo anterior mediante resolución N° MS-DM-7451-2021 del 16 de setiembre de 2021)
 TERCERO: Refórmese de forma temporal, a partir del 01 y hasta el 30 de setiembre de 2021, inclusive, el aforo permitido de las siguientes actividades:
 1. Actividades, organizaciones o congregaciones en sitios de adoración, con utilización obligatoria de mascarilla, con una capacidad de ocupación máxima de hasta 500 personas, en los lugares que su espacio físico lo permita, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales. En las 500 personas no se incluye el personal de logística del evento, que debe ser el mínimo requerido.
 2. Salas de eventos para actividades empresariales o académicas, con utilización obligatoria de mascarilla, con una capacidad de ocupación máxima de hasta 500 personas, con medidas de distanciamiento de 1.8 metros respetando las burbujas sociales y con listas de asistentes con número de cédula y número de contacto. En las 500 personas no se incluye el personal de logística del evento, que debe ser el mínimo requerido.
