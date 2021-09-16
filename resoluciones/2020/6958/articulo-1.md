@@ -51,9 +51,9 @@ B. Todos los sitios de reunión pública, que cuenten con su respectivo permiso 
 (Así reformada la disposición segunda anterior mediante resolución N° N° MS-DM-1700-2021 del 23 de febrero del 2021)
 TERCERO: Se resuelve ordenar a partir del 09 de setiembre de 2020, la apertura controlada con estricto cumplimiento de protocolos y medidas sanitarias para evitar la propagación del COVID-19, de los establecimientos que cuenten con permiso sanitario de funcionamiento que atienden al público, en un horario de lunes a domingo desde las 5:00 horas y hasta las 23:00 horas, respetando el cincuenta por ciento (50%) de su capacidad máxima de aforo. Se exceptúan de la restricción de horario y del cincuenta por ciento (50%) de su capacidad máxima de aforo las siguientes actividades:
 (Así reformado la disposición tercera anterior mediante resolución N° MS-DM-1700-2021 del 23 de febrero del 2021)
-(Nota de Sinalevi: Mediante resolución N° MS-DM-6215-2021 del 27 de agosto del 2021, se acordó reformar de forma temporal la franja horaria de la presente norma, para que el horario de los establecimientos que atienden al público, que tienen que cumplir con restricción horaria y cuenten con permiso sanitario de funcionamiento, a partir del 01 y hasta el 30 de setiembre de 2021, inclusive, sea desde las 5:00 horas y hasta las 22:00 horas.
-Deberán los supermercados, minisúper, pulperías y licoreras, ajustarse a este mismo horario de operación, de las 5:00 horas hasta las 22:00 horas, del 01 y hasta el 30 de setiembre de 2021, inclusive.
-Podrán todos los establecimientos que así lo dispongan, ofrecer el servicio a domicilio, siempre que operen a puerta cerrada sin atención al público de manera presencial, después de las 22:00 horas.)
+(Nota de Sinalevi: Mediante resolución N° MS-DM-7451-2021 del 16 de setiembre del 2021, se acordó reformar de forma temporal la franja horaria de la presente norma, para que el horario de los establecimientos que atienden al público, que tienen que cumplir con restricción horaria y cuenten con permiso sanitario de funcionamiento, a partir del 18 y hasta el 30 de setiembre de 2021, inclusive, sea desde las 5:00 horas y hasta las 21:00 horas.
+Deberán los supermercados, minisúper, pulperías y licoreras, ajustarse a este mismo horario de operación, de las 5:00 horas hasta las 21:00 horas, del 18 y hasta el 30 de setiembre de 2021, inclusive.
+Podrán todos los establecimientos que así lo dispongan, ofrecer el servicio a domicilio, siempre que operen a puerta cerrada sin atención al público de manera presencial, después de las 21:00 horas.)
 1. Servicios a domicilio.
 2. Alquiler de vehículos "rent a car".
 3. Alquiler de bicicletas.
@@ -87,7 +87,7 @@ CUARTO: Por la naturaleza de la actividad que desarrollan, la siguiente lista de
 8. Turismo aventura, con utilización obligatoria de mascarilla y adicional la careta de forma opcional, mientras se coloca y se retira el equipo de seguridad para realizar la actividad, y respetando las burbujas sociales.
 9. Playas y lagos, con previa aprobación de protocolos por el ICT con cada municipio.
 (Así reformado el inciso anterior por resolución N° MS-DM-8527-2020 del 14 de octubre del 2020)
-(Nota de Sinalevi: Mediante resolución N° MS-DM-6215-2021 del 27 de agosto de 2021, se establece el horario de acceso a las playas, del 01 y hasta el 30 de setiembre de 2021, inclusive, será desde las 5:00 horas y hasta las 20:00 horas)
+(Nota de Sinalevi: Mediante resolución N° MS-DM-7415-2021 del 16 de setiembre de 2021, se establece que el horario de acceso a las playas, del 18 y hasta el 30 de setiembre de 2021, inclusive, será desde las 5:00 horas y hasta las 20:00 horas.)
 10. Deportes individuales, al aire libre o en espacio cerrado, sin público, según lista autorizada por el Ministerio del Deporte.
 11. Deportes de contacto para entrenamiento de las Selecciones Nacionales Femenina y Masculina de alta competencia; y competencias de la categoría de alto rendimiento o profesional, a puerta cerrada y sin público, según lista autorizada por el Ministerio del Deporte.
 12. Deportes de Contacto para entrenamientos individuales sin contacto o acercamiento físico, según lista autorizada por el Ministerio del Deporte.

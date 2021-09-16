@@ -34,3 +34,4 @@ Ordena la suspensión temporal de aquellas actividades que favorezcan el surgimi
 | 19 | 2021-07-09 | Resolución 5101 (2021-07-09) |
 | 20 | 2021-08-06 | Resolución 5718 (2021-08-06) |
 | 21 | 2021-08-27 | Resolución 6215 (2021-08-27) |
+| 22 | 2021-09-16 | Resolución 7451 (2021-09-16) |
