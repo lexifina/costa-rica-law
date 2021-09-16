@@ -1,1 +1,0 @@
-Artículo 13°.—Cuando las circunstancias lo ameriten, el Presidente Ejecutivo o quien lo supla, podrá convocar a sesiones de Junta Directiva en lugar distinto de las oficinas centrales. Además podrá organizar visitas de la Junta Directiva a los lugares donde se realicen obras de la Caja.

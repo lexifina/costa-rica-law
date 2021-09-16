@@ -1,1 +1,0 @@
-Artículo 5°—El quorum de las sesiones ordinarias o extraordinarias se formará con cinco miembros. Si no hubiere quorum podrá sesionar válidamente una segunda convocatoria veinticuatro horas después de la señalada para la primera.

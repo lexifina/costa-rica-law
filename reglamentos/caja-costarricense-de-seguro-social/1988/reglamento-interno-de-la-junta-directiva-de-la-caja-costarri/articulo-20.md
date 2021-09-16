@@ -1,1 +1,0 @@
-Artículo 20.—Copias del borrador de las actas que elabore el Secretario de la Junta Directiva se distribuirán previamente a la sesión siguiente, una para cada uno de los señores directores, gerentes. Auditor y dos para la Secretaría de la Junta Directiva.

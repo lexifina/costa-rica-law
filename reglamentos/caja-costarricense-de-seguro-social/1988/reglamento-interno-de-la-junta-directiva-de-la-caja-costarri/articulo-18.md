@@ -1,1 +1,0 @@
-Artículo 18.—Cuando algún asunto, por su complejidad o importancia requiera consideración o estudio especial, la propia Junta o la Presidencia Ejecutiva podrá designar a uno o varios miembros de la Junta para que, dentro de un determinado tiempo, rindan informe detallado sobre el mismo.

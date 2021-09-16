@@ -1,3 +1,0 @@
-CAPITULO III
-De las sesiones, del quorum y de la asistencia
-Artículo 4°—La Junta Directiva se reunirá en forma ordinaria una vez por semana y extraordinariamente cada vez que sea convocada por el Presidente Ejecutivo. Para reunirse en forma ordinaria no hará falta convocatoria especial. Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito, con una antelación mínima de veinticuatro horas. A la convocatoria se acompañará copia del orden del día. No obstante quedará válidamente constituida la Junta Directiva, sin cumplir, todos los requisitos referentes a la convocatoria al orden del día, cuando asistan todos sus miembros y así lo acuerdan por unanimidad.
