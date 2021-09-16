@@ -1,0 +1,1 @@
+Artículo 4º-La Comisión Hacienda-MIDEPLAN formulará dentro de su plan de trabajo propuestas de lineamientos y directrices, que se elevarán para la consideración y aprobación de los (las) Ministros (as) de MIDEPLAN y Hacienda, quienes emitirán y comunicarán en el ejercicio de sus competencias.

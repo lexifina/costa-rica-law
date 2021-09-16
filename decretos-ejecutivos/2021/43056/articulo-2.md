@@ -1,0 +1,1 @@
+Artículo 2º-La Comisión Hacienda-MIDEPLAN tendrá como objetivos primordiales coordinar, asesorar, formular e implementar lineamientos, instrumentos y productos, en el marco de su competencia, que permitan avanzar hacia la Gestión para Resultados en el Desarrollo (GpRD) en la gestión pública.

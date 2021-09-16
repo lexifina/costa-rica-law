@@ -1,0 +1,1 @@
+Artículo 7º-Se deroga el Decreto Ejecutivo "Creación de la Comisión de Coordinación Técnica Interinstitucional de Planificación, Programación y Evaluación de la Gestión Institucional y Sectorial del Poder Ejecutivo", N°36901- PLAN-H de 15 de noviembre de 2011, publicado en La Gaceta 3 del 04 de enero del 2012.
