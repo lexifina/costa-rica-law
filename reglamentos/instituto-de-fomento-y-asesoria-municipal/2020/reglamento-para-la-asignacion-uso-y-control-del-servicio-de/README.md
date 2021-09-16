@@ -14,3 +14,4 @@ Reglamento para la asignación, uso y control del servicio de telefonía celular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-17 | la propia norma |
+| 2 | 2021-09-16 | Reglamento 28 (2021-09-16) |

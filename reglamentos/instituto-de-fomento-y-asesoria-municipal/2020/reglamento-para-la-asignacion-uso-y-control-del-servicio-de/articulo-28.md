@@ -1,3 +1,3 @@
-Artículo 28. Transitorio Único. La Dirección Ejecutiva dispondrá del plazo de un mes contado a partir de la publicación de este reglamento, para ajustar el uso de los teléfonos celulares actuales a las reglas contenidas en este y ratificar la asignación de aquellos que se ajustan a esa normativa y revocar aquellas que la contravienen.
-Rige a partir de su publicación en el Diario oficial La Gaceta.”
-Moravia, 16 de abril de 2020.
+CAPÍTULO V
+Disposiciones finales y transitorias
+Artículo 28.-Normativa supletoria. Todos aquellos aspectos no contemplados en este reglamento se regirán por el Reglamento Autónomo de Organización y Servicio, la Ley General de la Administración Pública, la Ley General de Control Interno, la Ley de Administración Financiera y Presupuesto Público, la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y demás disposiciones normativas integrantes del ordenamiento jurídico.

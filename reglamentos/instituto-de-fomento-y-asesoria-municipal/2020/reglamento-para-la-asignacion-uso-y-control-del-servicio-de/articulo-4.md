@@ -1,5 +1,4 @@
-Artículo 4. Responsabilidades de la Unidad de Servicios Generales
-La Unidad de Servicios Generales, sin detrimento de cualquier otra que le pueda ser asignada, tendrá las siguientes funciones:
+Artículo 4º-Responsabilidades de la unidad de servicios generales. La Unidad de Servicios Generales, sin detrimento de cualquier otra que le pueda ser asignada, tendrá las siguientes funciones:
 a) Llevar el control de los vencimientos de los contratos suscritos con el proveedor del servicio de telefonía móvil.
 b) Llevar un registro actualizado de los usuarios del servicio y de las respectivas líneas y teléfonos propiedad del IFAM.
 c) Tramitar ante el ente asegurador respectivo, la inclusión de los dispositivos propiedad del IFAM en las pólizas que correspondan.
