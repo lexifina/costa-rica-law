@@ -14,3 +14,4 @@ Publica resolución N° 295-2012 (COMIECO-LXIV) de fecha 11 de diciembre de 2012
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-18 | la propia norma |
+| 2 | 2021-09-16 | Decreto Ejecutivo 43255 (2021-09-16) |
