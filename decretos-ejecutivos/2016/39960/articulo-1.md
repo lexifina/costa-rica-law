@@ -9703,7 +9703,8 @@ NOTAS.
 1. En este Capítulo, se entiende por fundición el producto obtenido por moldeo que no responda a la composición química del acero definido en la Nota 1 d) del Capítulo 72, en el que el hierro predomine en peso sobre cada uno de los demás elementos.
 2. En este Capítulo, el término alambre se refiere a los productos obtenidos en caliente o en frío cuya sección transversal, cualquiera que fuese su forma, sea inferior o igual a 16 mm en su mayor dimensión.
 NOTA COMPLEMENTARIA CENTROAMERICANA
-A. Los cilindros para envasar acetileno, clasificados en el inciso arancelario 7311.00.11.00, deben tener impreso por troquelado de manera clara y permanente en el hombro del cilindro, alguna de las siguientes normas de seguridad: DOT-8 o DOT-8 AL. Además, tienen una válvula de rosca izquierda (invertida) y al menos un tapón fusible de seguridad.
+A. Los cilindros para envasar acetileno, clasificados en el inciso arancelario 7311.00.11.00, deben tener impreso por troquelado de manera clara y permanente en el hombro del cilindro, alguna de las siguientes normas de seguridad: DOT-8, DOT-8 AL, ISO 3807, o normas equivalentes. Además, tienen una válvula de rosca y al menos un tapón fusible de seguridad.
+(Así modificado la Nota Complementaria Centroamericana anterior mediante resolución N° 445-2021 (COMIECO-XCIV) de fecha 28 de abril de 2021, aprobada mediante decreto ejecutivo N° 43255 del 16 de setiembre del 2021)
 CODIGO | DESCRIPCION | DAI %
 73.01 | TABLESTACAS DE HIERRO O ACERO, INCLUSO PERFORADAS O HECHAS CON ELEMENTOS ENSAMBLADOS; PERFILES DE HIERRO O ACERO OBTENIDOS POR SOLDADURA |
 7301.10.00.00 | - Tablestacas | 0
