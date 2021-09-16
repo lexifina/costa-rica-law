@@ -14,3 +14,4 @@ Reglamento autónomo de organización y servicio del Instituto de Fomento y Ases
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-03 | la propia norma |
+| 2 | 2021-09-16 | Reglamento 28 (2021-09-16) |
