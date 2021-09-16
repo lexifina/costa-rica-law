@@ -1,0 +1,1 @@
+Artículo 20.-Del ingreso al Seguro de Salud y de Invalidez, Vejez y Muerte. Toda persona que se afilie como asegurado migrante está obligada a cotizar para los regímenes de Enfermedad y Maternidad e Invalidez, Vejez y Muerte.

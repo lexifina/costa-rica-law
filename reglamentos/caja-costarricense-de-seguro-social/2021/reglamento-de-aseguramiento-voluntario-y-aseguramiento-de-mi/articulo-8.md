@@ -1,0 +1,3 @@
+Artículo 8º-Ajustes al ingreso de referencia. El asegurado voluntario podrá solicitar ajustes al ingreso de referencia para el cálculo de las cotizaciones, de forma presencial en el nivel central o en las sucursales de la Caja o a través de las plataformas tecnológicas que la institución disponga para ese fin y deberá cumplir con los siguientes requisitos:
+a) Presentar cédula de identidad vigente.
+b) Suministrar por los medios que establezca la Caja, la información establecida en el artículo 3 del presente reglamento, según cada categoría, que permita establecer verazmente la variación del ingreso de referencia para determinar las cotizaciones.

@@ -1,0 +1,6 @@
+Artículo 11.-Las Cotizaciones. Las cotizaciones de los asegurados serán las siguientes:
+1. Los asegurados voluntarios: Cotizarán con base en el ingreso de referencia que determine el estudio particular que se realiza en cada caso, al que se le aplicará el porcentaje de contribución establecido por la Junta Directiva.
+2. Los asegurados facultativos: Cotizarán sobre el promedio de los salarios o ingresos percibidos, en los últimos tres meses que estuvieren dentro del seguro obligatorio. De no contar con la capacidad contributiva para mantener ese nivel de cotización, se le aplicará lo dispuesto en el inciso 1) de este artículo.
+3. Los rentistas costarricenses: Cotizarán sobre el monto de las rentas del solicitante, aplicándose el porcentaje de la contribución de acuerdo con la escala contributiva aprobada por la Junta Directiva.
+4. Pensionados del exterior: Cotizarán sobre el monto de pensión del solicitante, aplicándose el porcentaje de la contribución de acuerdo con la escala contributiva, aprobada por la Junta Directiva.
+5. Estudiantes: Cotizarán con base en el ingreso de referencia que determine el estudio particular que se realiza en cada caso, al que se le aplicará el porcentaje de contribución establecido por la Junta Directiva.

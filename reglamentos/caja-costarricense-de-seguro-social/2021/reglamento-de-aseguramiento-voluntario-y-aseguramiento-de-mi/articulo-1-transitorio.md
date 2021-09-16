@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO.-Se instruye realizar las modificaciones pertinentes en el Sistema de Gestión de Calidad del Servicio de Inspección y en los instructivos que correspondan, en el plazo de seis meses, contado a partir de la publicación de este reglamento en el Diario Oficial La Gaceta.
+Rige a partir del ajuste en el Sistema de Gestión de Calidad del Servicio de Inspección y los Sistemas Institucionales asociados, dentro de los seis meses contemplados en el Transitorio único.

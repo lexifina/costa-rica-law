@@ -1,0 +1,1 @@
+Artículo 18.-Ajustes al ingreso de referencia. El asegurado migrante podrá solicitar ajustes al ingreso de referencia para el cálculo de las cotizaciones, de forma presencial o a través de las plataformas tecnológicas que la Institución disponga para ese fin, asimismo, deberá aportar el estado de cuenta bancario.

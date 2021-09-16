@@ -1,0 +1,1 @@
+Artículo 27.-Derogatorias. Este Reglamento deroga el Reglamento para la Afiliación de Asegurados Voluntarios aprobado en el artículo 3° de la sesión N° 8079, celebrada el 03 de agosto del 2016 y cualquier otra norma de igual o menor rango que se le oponga al Aseguramiento Voluntario y de Migrantes.

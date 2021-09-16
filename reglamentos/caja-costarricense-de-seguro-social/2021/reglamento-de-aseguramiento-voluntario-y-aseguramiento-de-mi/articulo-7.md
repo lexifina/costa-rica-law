@@ -1,0 +1,1 @@
+Artículo 7º-Vigencia de los derechos. Los asegurados voluntarios podrán disfrutar de los beneficios y derechos a partir del momento en que hayan cancelado las cuotas correspondientes. El aseguramiento no tiene efecto retroactivo.

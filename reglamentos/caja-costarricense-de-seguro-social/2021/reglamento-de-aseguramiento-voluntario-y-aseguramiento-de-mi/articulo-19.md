@@ -1,0 +1,8 @@
+SECCIÓN II
+Derechos, obligaciones y vigencia
+Artículo 19.-Derechos y obligaciones. Los asegurados migrantes tienen los mismos derechos y obligaciones que los asegurados voluntarios en cuanto al Seguro de Salud y de Invalidez, Vejez y Muerte, excepto el pago de incapacidades y licencias por concepto de enfermedad y maternidad, por tratarse de población económicamente inactiva, así como, aquellas en que se especifique un plazo de calificación determinado.
+Para acceder a los beneficios que otorga los regímenes del Seguro de Salud e Invalidez, Vejez y Muerte, deberá estar al día en el pago de las cuotas.
+Tratándose de asegurados migrantes y sus beneficiarios se establece un plazo de calificación de seis meses inmediatos de cotización al Seguro de Salud, para el otorgamiento de las prestaciones relacionadas con: cirugías complejas, enfermedades congénitas o preexistentes que son de alto costo en su manejo.
+Ante situaciones de urgencia o emergencia que justifiquen las prestaciones señaladas en el párrafo anterior, sin cumplir el plazo de calificación establecido, serán cobradas al asegurado por los medios que la Institución disponga.
+Corresponderá a la Gerencia Médica realizar y actualizar el listado de las prestaciones médicas relacionadas con cirugías complejas, enfermedades congénitas o preexistentes que son de alto costo en su manejo, así como, la determinación de cualquier otro caso específico como la prescripción y despacho de medicamentos.
+El otorgamiento de prestaciones no expresamente contempladas en este reglamento se ajustará a lo establecido en la normativa de cada seguro y los correspondientes instructivos.

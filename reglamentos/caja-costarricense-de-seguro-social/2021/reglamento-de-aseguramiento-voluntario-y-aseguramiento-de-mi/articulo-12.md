@@ -1,0 +1,3 @@
+Artículo 12.-Pago de las cuotas. Los asegurados voluntarios deben de pagar en los plazos establecidos en forma en que disponga la administración, las cuotas correspondientes.
+Pasada la fecha máxima de pago el asegurado voluntario deberá cancelar los recargos y/o intereses establecidos por la Institución según corresponda.
+El incumplimiento en el pago conlleva el cobro administrativo y cobro judicial, conforme los procedimientos establecidos por la Institución. El asegurado voluntario responderá integralmente por el pago de las prestaciones y beneficios otorgados, cuando se encuentre en condición de moroso.

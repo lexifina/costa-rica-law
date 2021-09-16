@@ -1,0 +1,1 @@
+Artículo 13.-Bloqueo de facturación. Si el asegurado deja de cotizar durante seis meses consecutivos, se bloquea la facturación de las cuotas, condición que solo podrá activarse si paga las cuotas adeudadas hasta un máximo de seis mensualidades.

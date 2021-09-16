@@ -1,0 +1,1 @@
+Artículo 24.-Cotizaciones. Los asegurados migrantes cotizarán conforme al ingreso que determine la Caja, el cual no podrá ser menor a la base mínima contributiva que establezca la Junta Directiva, ni a los ingresos que de conformidad con la Ley de Migración y Extranjería se establezcan, según la categoría migratoria.
