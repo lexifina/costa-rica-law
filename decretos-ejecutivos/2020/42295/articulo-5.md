@@ -28,3 +28,5 @@ s) Los vehículos de las personas que requieran trasladarse estrictamente con oc
 (Así reformado por el artículo 4° del decreto ejecutivo N° 42576 del 27 de agosto del 2020)
 t) Los vehículos de las personas que requieran trasladarse estrictamente con ocasión de la realización de la prueba de manejo, debidamente acreditada con el comprobante de matrícula emitido por el sistema de citas de la Dirección General de Educación Vial.
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43091 del 8 de julio del 2021)
+u) Los vehículos de las personas que sean delegadas o autoridades internas partidarias, para el traslado hacia o desde una asamblea provincial o superior de un partido político, en los términos establecidos por el Tribunal Supremo de Elecciones en la sesión ordinaria número 79-2021, artículo sétimo, del 16 de septiembre de 2021.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43218 del 17 de setiembre del 2021)
