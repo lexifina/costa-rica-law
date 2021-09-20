@@ -1,16 +1,15 @@
-Artículo 3.
-Definiciones:
+*Artículo 3. Definiciones:
 Para los efectos de este Reglamento se entenderá por:
 AFE: Área de Fondos Especiales de la DBDS.
-APIS: Operación de vivienda refinanciada por el Banco que requirió de un aval del FAVI. (Arreglo de Pago con Impacto Social)
+APIS: Operación de vivienda refinanciada por el Banco que requirió de un aval del FAVI. (Arreglo de Pago con Impacto Social).
 Asada: Asociación administradora de los sistemas de acueductos y alcantarillados comunales que cumplan con las disposiciones legales aplicables al servicio.
 Banco: Banco Popular y de Desarrollo Comunal.
-Crédito al Sector Ambiente: Financiamiento a una EESS, cuyo plan de inversión esté relacionado con la política del Banco en esta materia.
-Crédito para capacitación: Financiamiento a una EESS que, como parte del desarrollo productivo por financiar, requiera fortalecer las habilidades del personal. Dicha capacitación debe estar estrechamente ligada al plan de inversión por financiar con los recursos del FEDE.
-Crédito Banca de segundo Piso: Crédito que se otorga a una EESS que fungirá como entidad de primer piso, con el fin de que se atiendan las necesidades crediticias de la persona usuaria final. Las EESS deberán ajustarse a los parámetros definidos en el artículo 13 de este Reglamento.
-Crédito Sector Educación: Crédito que se otorga a una EESS con el fin de que atienda las necesidades relacionadas a procesos educativos de la persona usuaria final
-Crédito al Sector Productivo: Financiamiento que se confiere a una EESS para una actividad que combina dos o más factores de producción (tierra, capital, trabajo, conocimiento), con el objetivo de obtener un bien o servicio final para ser vendido en un mercado determinado.
-Crédito al Sector Salud: Financiamiento a una EESS para el establecimiento de una clínica, Centro de Salud, o proyecto similar.
+Crédito al Sector Ambiente: Financiamiento a una persona jurídica, organización o empresa de la economía social solidaria, cuyo plan de inversión esté relacionado con la política del Banco en esta materia.
+Crédito para capacitación: Financiamiento a una persona jurídica, organización o empresa de la economía social solidaria que, como parte del desarrollo productivo por financiar, requiera fortalecer las habilidades del personal. Dicha capacitación debe estar estrechamente ligada al plan de inversión por financiar con los recursos del FEDE.
+Crédito Banca de segundo Piso: Crédito que se otorga a una persona jurídica, organización o empresa de la economía social solidaria que fungirá como entidad de primer piso, con el fin de que se atiendan las necesidades crediticias de la persona usuaria final. La persona jurídica, organización o empresa de la economía social solidaria deberán ajustarse a los parámetros definidos en el artículo 13 de este Reglamento.
+Crédito Sector Educación: Crédito que se otorga a una persona jurídica, organización o empresa de la economía social solidaria con el fin de que atienda las necesidades relacionadas a procesos educativos de la persona usuaria final.
+Crédito al Sector Productivo: Financiamiento que se confiere a una persona jurídica, organización o empresa de la economía social solidaria para una actividad que combina dos o más factores de producción (tierra, capital, trabajo, conocimiento), con el objetivo de obtener un bien o servicio final para ser vendido en un mercado determinado.
+Crédito al Sector Salud: Financiamiento a una persona jurídica, organización o empresa de la economía social solidaria para el establecimiento de una clínica, Centro de Salud, o proyecto similar.
 EESS: Empresas de la Economía Social Solidaria. Conjunto de entidades y organizaciones privadas que realizan actividades económicas y empresariales para satisfacer el interés colectivo de las personas que las integran y el interés general económico social de los territorios donde se ubican, de conformidad con los principios, fines, características y actores siguientes:
 a) Primacía de las personas y del fin u objetivos sociales sobre el capital, dado que la toma de decisiones y la gestión son democráticas y participativas, prevaleciendo en estas los aportes de trabajo y los servicios utilizados por las personas que las integran, y no sus aportaciones al capital social.
 b) Los resultados obtenidos de la actividad económica en las EESS se aplican al logro de los objetivos sociales. Los excedentes por distribuir entre las personas que las integran se realizan principalmente en función del trabajo, por el uso de los servicios o por las actividades que estas hayan aportado. Las reservas y fondos creados para el cumplimiento de los fines sociales no son repartibles entre las personas integrantes, aun en caso de liquidación de la entidad.
@@ -27,8 +26,8 @@ e.7) Los sindicatos productivos: Organizaciones sindicales que de manera sosteni
 e.8) Las sociedades civiles con actividades productivas, constituidas al amparo del código civil.
 e.9) Cualquier otra categoría y otras entidades creadas por normas específicas o leyes especiales que realicen actividad económica o empresarial cuyo propósito sea el bienestar económico y social de algún segmento especifico de la población.
 Encadenamiento Productivo: Es la unión de dos o más personas físicas o jurídicas con actividades productivas, que promuevan alianzas estratégicas en una zona específica y generen un impacto social y económico.
-Emprendedor: Persona física o jurídica que identifica una oportunidad de mercado y las condiciones para movilizar o buscar recursos que le permitan crear su propia empresa.
-Entes Rectores y Aliados Estratégicos: Instituciones públicas o privadas con las cuales se subscriben alianzas de cooperación para el seguimiento y acompañamiento de las EESS.
+Emprendedor: Persona física o jurídica que identifica una oportunidad en el mercado que le permitan crear su propia empresa.
+Entes Rectores y Aliados Estratégicos: Instituciones públicas o privadas con las cuales se subscriben alianzas de cooperación para el seguimiento y acompañamiento de la persona jurídica, organización o empresa de la economía social solidaria.
 Estrato Salarial: Un estrato salarial es igual al salario mínimo definido para un trabajador no especializado de la industria de la construcción.
 FAVI: Fondo Avales para Vivienda para la clase media.
 Fondo Especial de Desarrollo (FEDE): Fondo constituido para financiar las líneas de crédito indicadas en este Reglamento, siempre y cuando sean económicamente viables y técnicamente factibles.
@@ -40,12 +39,15 @@ ISP: Índice de Sostenibilidad Patrimonial.
 Jóvenes: Hombres y mujeres con una edad comprendida entre los 18 y los 35 años.
 Línea de crédito: Modalidad de crédito en la cual el FEDE puede formalizar diferentes operaciones derivadas de esta línea, y que generan disponibilidad independientemente del tipo de garantía.
 Menaje de casa: es el ajuar y utensilios de una casa que sirven exclusiva y propiamente para el uso diario de quienes la habitan. Se consideran, entre otros: cocina, lavadora, refrigeradora, muebles, televisor, microondas.
-Mercado meta FEDE: Las entidades pertenecientes a las EESS así como las poblaciones en esta normativa definidas para los usuarios de Banca de segundo piso.
+Mercado meta FEDE: Las entidades pertenecientes a persona jurídicas, organización o empresas de la economía social solidaria, así como las poblaciones en esta normativa definidas para los usuarios de Banca de segundo piso.
 Núcleo familiar: Conjunto de personas que conviven y se han organizado para compartir las obligaciones derivadas del sustento y la protección mutua, y en el que al menos uno de ellos ostenta lazos de afinidad o consanguinidad hasta el tercer grado con los demás integrantes del núcleo. La unión de hecho según la define el artículo 242 del Código de Familia se tomará en cuenta para determinar lazos de afinidad.
 Pesca comercial pequeña escala: Pesca realizada en forma artesanal por personas físicas, sin mediar el uso de embarcación, en las aguas continentales o en la zona costera, o la practicada a bordo de una embarcación con una autonomía para faenar hasta un máximo de tres millas náuticas del mar territorial costarricense.
-Prima para vivienda: Monto económico que el comprador le da al vendedor de una vivienda como “señal de trato” dentro de un contrato de opción de compra venta.
+Prima para vivienda: Monto económico que el comprador le da al vendedor de una vivienda como "señal de trato" dentro de un contrato de opción de compraventa.
 Refinanciamiento: Programas de refinanciamiento que la Dirección de Banca de Desarrollo Social autoriza para regularizar operaciones de crédito en los diferentes fondos y supletoriamente aquellas que implemente el BPDC.
 Riesgo de crédito: Condición a la que está expuesta la entidad de que el deudor incumpla con sus obligaciones en los términos pactados en el contrato de crédito.
-Seguimiento y acompañamiento: Son programas que desarrolla el Banco, a fin de brindarle seguimiento y acompañamiento a la EESS que suscribe el crédito, en alianza con los entes rectores y aliados estratégicos.
+Seguimiento y acompañamiento: Son programas que desarrolla el Banco, a fin de brindarle seguimiento y acompañamiento a la persona jurídica, organización o empresa de la economía social solidaria que suscribe el crédito, en alianza con los entes rectores y aliados estratégicos.
 Solución de Vivienda Clase Media (SVCM): Facilidad financiera que combina crédito y aval como medio para contribuir a resolver el problema de vivienda de la clase media según los parámetros definidos por la Gerencia General Corporativa con base en la actualización de los estudios de vivienda.
 Tope de vivienda programas de Fondos Especiales: Aquel definido por la Gerencia General Corporativa con base en la actualización de los estudios de vivienda.
+* Este artículo fue modificado por la Junta Directiva Nacional en sesión 5170 del 20 de mayo del 2014. Publicado en La Gaceta No. 107 del 05 de junio de 2014.
+** Este artículo fue modificado por la Junta Directiva Nacional en sesión 5170 del 20 de mayo del 2014. Publicado en La Gaceta No. 134 del 14 de julio de 2014.
+*** Este artículo fue modificado por la Junta Directiva Nacional en sesión 5318 del 20 de octubre del 2015. Publicado en La Gaceta No. 233 del 01 de diciembre de 2015.

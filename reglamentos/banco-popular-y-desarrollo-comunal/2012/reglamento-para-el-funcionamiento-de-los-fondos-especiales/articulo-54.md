@@ -1,6 +1,6 @@
-Artículo 54.
-Cuando el Banco compruebe que una persona solicitante u obligada ha infringido cualquiera de las condiciones convenidas en la contratación del préstamo o en este Reglamento no indicadas en los dos artículos anteriores, salvo atraso de la operación, y considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta, podrá aplicar una de las siguientes opciones:
+Artículo 54. Cuando el Banco compruebe que una persona solicitante u obligada ha infringido cualquiera de las condiciones convenidas en la contratación del préstamo o en este Reglamento no indicadas en los dos artículos anteriores, salvo atraso de la operación, y considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta, podrá aplicar una de las siguientes opciones:
 a) efectuar las correcciones del caso y mantener las condiciones del crédito,
-b) variar la tasa de interés hasta la tasa activa más alta que en la respectiva moneda rija en ese momento en el Banco. Si la infracción se comete en un crédito que tiene la tasa activa más alta de todas, se podrá aumentar dicha tasa hasta en cinco puntos porcentuales o,
+b) variar la tasa de interés hasta la tasa activa más alta que en la respectiva moneda rija en ese
+momento en el Banco. Si la infracción se comete en un crédito que tiene la tasa activa más alta de todas, se podrá aumentar dicha tasa hasta en cinco puntos porcentuales o,
 c) dar por vencida la obligación y exigir su cancelación inmediata.
 En caso de que el crédito haya sido otorgado por un órgano unipersonal, la decisión deberá trasladarse al órgano colegiado con atribuciones inmediatamente superiores.

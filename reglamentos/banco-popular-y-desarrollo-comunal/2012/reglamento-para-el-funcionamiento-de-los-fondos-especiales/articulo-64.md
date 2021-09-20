@@ -1,4 +1,3 @@
-Artículo 64.
-Para el honramiento de los avales y ante solicitud expresa del Banco, el AFE lo tramitará en forma irrevocable e incondicional luego de transcurridos setenta días naturales contados a partir del primer día de incumplimiento del deudor con el Banco.
+Artículo 64. Para el honramiento de los avales y ante solicitud expresa del Banco, el AFE lo tramitará en forma irrevocable e incondicional luego de transcurridos setenta días naturales contados a partir del primer día de incumplimiento del deudor con el Banco.
 Para efectos de esos honramientos pagos, el Banco presentará a la AFE la solicitud en cualquier momento, luego de transcurrido el plazo antes dicho. En los expedientes de crédito de cada operación avalada y para una eventual revisión, deben quedar documentadas las acciones que demuestren que se ha cumplido con la debida diligencia de las gestiones cobratorias.
 Toda la gestión de honramiento del aval, así como su eventual reintegro al FAVI, corresponderá a la División de Gestión Cobratoria del Banco.

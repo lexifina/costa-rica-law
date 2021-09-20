@@ -1,5 +1,4 @@
-Artículo 57.
-En todas las operaciones del FAVI deberá asegurarse su sostenibilidad patrimonial mediante instrumentos adecuados, utilizando como instrumentos fundamentales:
+Artículo 57. En todas las operaciones del FAVI deberá asegurarse su sostenibilidad patrimonial mediante instrumentos adecuados, utilizando como instrumentos fundamentales:
 a) El énfasis en la capacidad de pago del deudor (avalado) conforme a las mejores prácticas en la materia y por la determinación de que el solicitante califica para el crédito solicitado.
 b) Precios y comisiones, cuando así se aprueben, definidos para cada programa de crédito o línea de crédito que se le avale al Banco.
 c) Los rendimientos y riesgos de mercado sobre las disponibilidades de recursos del FAVI y aquellos recursos ya comprometidos en avales.

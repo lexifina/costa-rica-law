@@ -1,3 +1,1 @@
-Artículo 36.
-Fuentes de los recursos:
-Las fuentes de recursos serán las estipuladas en el inciso b) del artículo 40 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal y en el artículo 7 de este Reglamento.
+Artículo 36. Fuentes de los recursos. Las fuentes de recursos serán las estipuladas en el inciso b) del artículo 40 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal y en el artículo 7 de este Reglamento.
