@@ -1,0 +1,7 @@
+Artículo 18° De los instrumentos derivados.
+La Junta Directiva de la Caja podrá autorizar, previa verificación del cumplimiento de requisitos, la utilización de instrumentos derivados con el fin de adquirir coberturas de riesgo de tasa de interés, de tipo de cambio y de precio.
+Para estos efectos, se deberá cumplir los siguientes requisitos:
+a) Al menos la mitad de los integrantes de cada uno de los Comités de Riesgos y de Inversiones, así como personal del Área Administración del Riesgo y de la Dirección de Inversiones, deberán contar con capacitación sobre el uso de derivados financieros. La Administración deberá mantener la documentación que acredite la información de los cursos y programas de capacitación recibidos.
+b) La Dirección de Inversiones y el Área Administración del Riesgo deberán elaborar un estudio técnico en relación con el uso de los derivados que se pretenda adquirir. El Comité de Riesgos para los Fondos Institucionales deberá aprobar el estudio técnico elaborado por el Área Administración del Riesgo.
+Los estudios elaborados tanto por la Dirección de Inversiones, como por el Área Administración del Riesgo, así como los acuerdos tomados por el Comité de Riesgos de los Fondos Institucionales, deberán ser del conocimiento y aprobación del Comité de Inversiones.
+c) Se deberá contar con procedimientos escritos bajo los cuales se dará seguimiento a los precios de los instrumentos de cobertura.
