@@ -1,2 +1,0 @@
-Artículo 31.—De las Auditorías Externas. Anualmente, se realizará una auditoría externa de las inversiones a cargo de la Gerencia de Pensiones, correspondientes al año calendario recién concluido y a cuyo efecto, con la debida antelación, se efectuará la contratación de los servicios profesionales que sean necesarios. Para dicha contratación se seguirán los procedimientos regulados en la Ley de Contratación Administrativa.
-(Así reformado mediante sesión N° 8498 del 17 de marzo del 2011)

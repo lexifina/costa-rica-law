@@ -1,1 +1,0 @@
-Artículo 22.—Puestos de Bolsa. Se regirán por lo establecido en el Título IV: Puestos de Bolsa, de la Ley Nº 7732, Ley Reguladora del Mercado de Valores, “Reglas del Negocio” de la Bolsa Nacional de Valores, así como por la normativa institucional vigente.

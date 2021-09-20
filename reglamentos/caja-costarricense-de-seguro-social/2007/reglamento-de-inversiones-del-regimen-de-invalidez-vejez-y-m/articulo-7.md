@@ -1,3 +1,0 @@
-Artículo 7º—De la Administración de Riesgos. La Administración de Riesgos del Portafolio del Seguro de Invalidez, Vejez y Muerte se realizará según lo dispuesto en el Reglamento para la Administración de Riesgos de los Fondos Institucionales, la Política de Riesgos del Régimen de Invalidez, Vejez y Muerte, y demás normativa aplicable.
-La Dirección de Inversiones deberá proveer la información necesaria para que tanto el Área de Administración de Riesgos y el Comité realicen el monitoreo y medición que permita proponer las estrategias de mitigación de riesgos, las cuales podrán ser consideradas por el Comité de Inversiones, según lo establecido en el inciso c) del artículo 5º.
-(Así reformado mediante sesión N° 8498 del 17 de marzo del 2011)
