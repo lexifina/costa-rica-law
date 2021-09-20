@@ -1,3 +1,0 @@
-Artículo 22. Asistencia del Auditor Interno.
-El Auditor Interno asistirá a las sesiones de Junta Directiva a presentar sus informes, estudios, realizar solicitudes o consultas, conforme hayan sido incluidos en el orden del día y previa solicitud por escrito, así como en los casos en los que el órgano colegiado solicite su presencia para asesorar en materia de su competencia, o cuando se estime pertinente para el cabal cumplimientos de sus funciones.
-El Auditor Interno conservara la potestad de abstenerse de asistir a una sesión en particular, cuando considera que podría afectar su independencia y objetividad.

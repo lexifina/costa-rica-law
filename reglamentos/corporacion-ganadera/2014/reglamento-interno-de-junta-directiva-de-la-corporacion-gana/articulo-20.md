@@ -1,3 +1,0 @@
-Artículo 20. Acuerdos y votaciones.
-Solamente podrán votar los miembros propietarios de Junta Directiva y los suplentes en ausencia de sus respectivos propietarios. Los acuerdos serán tomados por mayoría simple de votos, salvo disposición reglamentaria o legal contraria. Tendrán derecho a asistir con voz pero sin voto los Directores Suplentes
-Cuando hubiese empate en una segunda votación de un acuerdo o de otra disposición del cuerpo directivo, ya sea en general o en detalle, aquel o aquella serán determinados por el Presidente quien contara con doble voto. El doble voto no aplicara para el caso de nombramientos o despidos, conforme al artículo 17 de la Ley de Creación de CORFOGA.

@@ -1,3 +1,0 @@
-Artículo 17. Orden del día.
-Cuando existan conflictos de interés en un tema del orden del día, el o los Directivos deberán abstenerse manifestando sus motivos y retirándose de la sesión. En este caso, la abstención será resuelta por los miembros restantes del órgano colegiado. Si se acoge, los miembros restantes entraran a conocer el punto de agenda que dio motivo de la abstención. En caso contrario se hará ingresar al o los Directivos para que continúen conociendo del asunto hasta la toma de decisión final.
-Si producto de la abstención el órgano queda sin quórum suficiente para sesionar se aplicara el procedimiento señalado en el artículo 234 LGAP.

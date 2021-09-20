@@ -1,9 +1,0 @@
-Artículo 42. Acceso a información.
-Tendrán acceso a las actas y grabaciones de forma parcial o total, los Directores, funcionarios y terceras personas interesadas que cumplan con los siguientes requisitos:
-a- Enviar una carta de solicitud con nombre, firma y número de cedula de identidad, especificando el motivo de la solicitud, numero de sesión, el acuerdo, el o los artículos; o si se trata de la totalidad del acta; o bien el tema que se requiera extraer. El documento deberá ser presentado en original y en las oficinas de CORFOGA.
-En el caso de un representante legal deberá aportar la certificación de la personería jurídica y copia de la cédula de identidad. Si es persona física bastara con la presentación de la cedula de identidad.
-En el caso de miembros de la Junta Directiva y de la Administración, el acceso a los libros de Actas requerirá solamente una nota de solicitud, sin requerir de trámite posterior de aprobación.
-b- La Secretaria de Actas en conjunto con la Presidencia y la Asesoría Legal analizara la solicitud y verificara que dicha información sea de interés público y no de interés privado, para lo cual deberá resguardarse aquella información relativa a sujetos privados, lo anterior con el ánimo de garantizar el derecho a la privacidad de los particulares en relación con los cuales pudiera versar la información.
-c- Las actas sólo podrán ser consultadas en las oficinas de CORFOGA. No obstante, en el caso de requerirse que dichos documentos sean consultados fuera de las instalaciones deberá de contar previamente con la autorización expresa de la Junta Directiva.
-d- Los costos de reproducción serán asumidos por el interesado salvo en asuntos laborales, los cuales sarán asumidos por CORFOGA.
-e- Las solicitudes sarán resueltas en un plazo máximo de 10 días naturales, de conformidad con la Ley General de la Administración Pública.
