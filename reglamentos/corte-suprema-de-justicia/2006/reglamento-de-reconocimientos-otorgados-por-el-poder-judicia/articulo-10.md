@@ -1,3 +1,2 @@
-Artículo 10.-
-De la votación.
-El Tribunal podrá tomar decisiones válidas por simple mayoría y sesionar con la presencia de por lo menos cuatro de sus integrantes, previa convocatoria con cuatro días hábiles de antelación, salvo casos de urgencia. Cuando haya número par de miembros presentes en la sesión convocada y se produzca un empate en cualquier votación, el Presidente decidirá con doble voto.
+Artículo 10.-De la votación. El Tribunal podrá tomar decisiones válidas por simple mayoría y sesionar con la presencia de por lo menos cuatro de sus integrantes, previa convocatoria con cuatro días hábiles de antelación, salvo casos de urgencia. Cuando haya número par de miembros presentes en la sesión convocada y se produzca un empate en cualquier votación, quien preside decidirá con doble voto.
+(Así reformado mediante circular N° 211 del 21 de setiembre de 2021)
