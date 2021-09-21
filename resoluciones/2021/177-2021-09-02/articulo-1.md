@@ -1,0 +1,48 @@
+SUPERINTENDENCIA DE TELECOMUNICACIONES
+El suscrito, Secretario del Consejo de la Superintendencia de Telecomunicaciones, en ejercicio de las competencias que le atribuye el inciso b) del artículo 50 de la Ley General de la Administración Pública, ley 6227, y el artículo 35 del Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y su órgano desconcentrado, me permito comunicarle(s) que en sesión ordinaria 062-2021, celebrada el 2 de setiembre del 2021, mediante acuerdo 004-062-2021, de las 09:00 horas, el Consejo de la Superintendencia de Telecomunicaciones aprobó por unanimidad, la siguiente resolución:
+RCS-177-2021
+"PROCEDIMIENTO DE RECEPCIÓN DE INFORMACIÓN EXTERNA Y NOTIFICACIÓN DE INFORMACIÓN"
+EXPEDIENTE FOR-SUTEL-CSC-CMR-CGL-02138-2014
+Considerando:
+1º-Que el artículo 59 de la Ley de la Autoridad Reguladora de los Servicios Públicos, ley 7593, de forma precisa indica que la Superintendencia de Telecomunicaciones (SUTEL) es un órgano de desconcentración máxima adscrito a la Autoridad Reguladora de los Servicios Públicos, por lo que la SUTEL tiene la potestad de reglamentar sus propios procedimientos en los asuntos desconcentrados, como es la recepción y notificación de los actos y actuaciones dentro de los procedimientos administrativos en el ejercicio de sus funciones y competencias.
+2º-Que el artículo 4 del Reglamento a la Ley N° 8220 de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045, indica que los trámites administrativos deben estructurarse de manera tal que sean claros, sencillos, ágiles, racionales y de fácil entendimiento para los particulares.
+3º-Que el artículo 94 del Reglamento a la Ley N°7202 del Sistema Nacional de Archivos, Decreto Ejecutivo N° 40554, establece que los archivos están en la obligación de facilitar sus documentos, para lo cual debe establecer los procedimientos para garantizar el acceso a la información pública.
+4º-Que la Directriz N°067-MICITT-H-MEIC sobre Masificación de la implementación y el uso de la firma digital en el sector público costarricense, dispone que todas las instituciones del sector público costarricense deberán tomar las medidas necesarias que le permitan disponer de los medios electrónicos para la comunicación con entes externos, instituciones y ciudadanía en general.
+5º-Que la Directriz N°019-MP-MICITT sobre el desarrollo del Gobierno Digital del Bicentenario, considera se debe implementar las tecnologías digitales bajo principios racionales de eficiencia en el uso de recursos y efectividad en su aplicación para garantizar la eficiencia y transparencia de la administración y propiciar el incremento en la calidad del servicio.
+6º-Que la Sutel presentó el 07 de octubre de 2020, ante la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio (MEIC) el proyecto "Procedimientos de recepción de información externa y notificación de información", con el objetivo de simplificar los trámites institucionales, utilizando la firma digital para la recepción y envío de información, por medio del correo electrónico.
+7º-Que, debido a lo anterior, resulta necesario regular la gestión y trámite de documentos en la Sutel, garantizando la integridad del documento, la seguridad del acto de notificación, así como el debido proceso y la protección usuario.
+8º-Que, en razón de lo anterior, el señor Gilbert Camacho Mora, Oficial de simplificación de trámites y miembro del Consejo, presentó la propuesta para la formalización de lo mencionado, ante este Consejo. Por tanto,
+Con fundamento en la Ley General de Telecomunicaciones, Ley 8642 y su reglamento; Ley de la Autoridad Reguladora de los Servicios Públicos, Ley 7593; Ley General de la Administración Pública, Ley 6227, y demás normativa de general y de pertinente aplicación.
+EL CONSEJO DE LA SUPERINTENDENCIA
+DE TELECOMUNICACIONES
+RESUELVE:
+Primero: Emitir el siguiente procedimiento:
+"PROCEDIMIENTO DE RECEPCIÓN DE INFORMACIÓN
+EXTERNA Y NOTIFICACIÓN DE INFORMACIÓN"
+A. Aspectos Generales
+1. La Sutel utilizará como medio principal y oficial para la tramitación de recepción y envío de información el correo electrónico.
+2. Los documentos con firma digital enviados y recibidos por correo electrónico, tendrán la misma validez y la eficacia de los documentos físicos. Lo anterior siempre que se cumplan los procedimientos establecidos para garantizar su autenticidad, su integridad y su seguridad.
+3. Todas las horas y los días serán hábiles para la recepción y notificación de documentos en forma electrónica, no obstante, en fines de semana, días feriados, asuetos o vacaciones colectivas, se tendrán por recibidos, para efectos legales, el primer día hábil siguiente.
+B. Recepción de Información
+4. La cuenta de correo electrónico oficial para la recepción de documentos en la Sutel será gestiondocumental@ sutel.go.cr, atendida por la Unidad de Gestión Documental quien asignará el número de trámite.
+5. La cuenta de correo electrónico oficial para realizar las consultas relacionadas con temas de prensa será prensa@sutel.go.cr, atendida por la Unidad de Comunicación.
+6. El envío de documentos a cualquier otra cuenta de correo electrónico no garantiza su gestión hasta tanto sea remitida a la cuenta indicada, sin menoscabo de que se presenten en soporte físico con firma manuscrita.
+7. La administración se reserva solicitar al usuario los documentos originales para su respectiva confrontación, en aquellos casos que sean enviados a la cuenta de correo electrónico y que contengan firma manuscrita.
+8. Los documentos electrónicos con firma digital deben cumplir con los formatos definidos en la Política de Formatos Oficiales de los Documentos Electrónicos Firmados Digitalmente, emitida por el MICIT, publicada en el Alcance Digital N°92 de la edición N° 95 del Diario Oficial La Gaceta por lo cual no se admiten "carteras PDF" (integración de más de un documento en un mismo PDF).
+9. Deberá gestionarse ante Gestión Documental por medio de la cuenta de correo electrónico oficial la habilitación de un repositorio, cuando se requiera enviar documentos con un tamaño superior a 30MB
+10. De presentarse una inconsistencia con el documento recibido por medio de la cuenta de correo electrónico oficial se comunicará al usuario el día hábil siguiente, para que proceda a la corrección.
+11. Cuando por caso fortuito o fuerza mayor atribuibles a la Sutel, los documentos no puedan ser recibidos, la institución adoptará las medidas necesarias a efecto de no lesionar los derechos del usuario, las cuales serán comunicadas por los medios oficiales.
+12. Como medios alternativos se recibirán documentos por medio del fax institucional y en forma presencial en la recepción de Gestión Documental, dentro de la jornada laboral establecida en la Institución. A estos se le colocará la fecha, hora de recibido y el número de trámite.
+13. Los documentos presentados en soporte físico con firma manuscrita se escanearán y el archivo que resulte se considerará un documento electrónico copia fiel del original para su trámite. El original será conservado por la institución.
+C. Notificación
+14. Los actos administrativos emitidos por la Sutel serán notificados por medio las cuentas de correo electrónico buzon.notificacion@sutel.go.cr y notificaciones@ sutel.go.cr. Se exceptúan aquellos que por disposición legal deban ser realizados en forma personal o en los cuales el interesado señale el medio requerido.
+15. Debido a lo anterior, los interesados deberán indicar en sus trámites de manera expresa, al menos un medio para recibir las notificaciones y mantenerlo actualizado, así mismo, lo deberán hacer los operadores en el "formulario de actualización de datos", disponible en la web.
+16. Cuando se notifiquen documentos con un tamaño mayor a los 30 MB, se creará una carpeta electrónica compartida en una herramienta de almacenamiento en la nube, para la carga de la documentación complementaria, remitiendo el enlace al interesado para su correspondiente acceso.
+17. La fecha y hora de la notificación se acreditará con el comprobante de transmisión emitido por el servidor de correo electrónico de salida y en el caso de los documentos entregados en forma personal deberá consignarse la firma, fecha y hora por la persona que lo recibe o por el notificador cuando aplique.
+18. Los documentos se tendrán por notificados con el envío a la cuenta de correo electrónico señalada por el interesado, quien es el responsable de la disponibilidad, seguridad y capacidad, así como de la revisión periódica de los correos recibidos. Ante cualquier imposibilidad en el envío, el encargado de la notificación deberá dejar constancia de dicha situación.
+19. Para el cómputo de plazos, cuando se señale un correo electrónico o fax, la persona quedará notificada al día "hábil" siguiente de la transmisión. No obstante, todo plazo empieza a correr a partir del día hábil siguiente de la notificación a todas las partes.
+D. Acceso a la Información
+20. Cualquier persona externa interesada en consultar documentos, deberá hacer de previo una solicitud por medio de la cuenta de correo electrónico gestiondocumental@sutel.go.cr, de acuerdo con la Ley de Derecho de Petición N°9097, dándosele respuesta por los medios establecidos para este fin. Sin embargo, se tendrá habilitada la atención presencial para no lesionar los derechos del usuario, en aquellos casos que carezcan de medios tecnológicos.
+Segundo: Proceder a la publicación de la presente resolución en el Diario Oficial La Gaceta.
+Acuerdo firme. Publíquese
+La anterior transcripción se realiza a efectos de comunicar el acuerdo citado adoptado por el Consejo de la Superintendencia de Telecomunicaciones.
