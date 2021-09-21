@@ -1,1 +1,2 @@
-Artículo 17.—Vencimiento del plazo. Vencido el plazo otorgado, si el partido político no cumple con lo dispuesto en la prevención, la Dirección resolverá sin más trámite lo que en derecho corresponda.
+Artículo 17.- Recepción de la información de los candidatos y los programas de gobierno. Los documentos referidos en el artículo anterior deberán ser remitidos por cualquier miembro del comité ejecutivo superior habilitado para tales efectos, utilizando los medios o herramientas tecnológicas que oportunamente defina la Administración Electoral.
+(Así adicionado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 11 del 21 de setiembre de 2021)

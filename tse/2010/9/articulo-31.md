@@ -1,0 +1,2 @@
+Artículo 31.-Firma del acta de distribución de las posiciones en las papeletas. Una vez definida la posición del partido político participante en la papeleta, el representante del partido deberá firmar el "Acta de distribución de las posiciones en las papeletas".
+(Así modificada su numeración por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 11 del 21 de setiembre de 2021, que lo traspaso del antiguo artículo 26 al 31)

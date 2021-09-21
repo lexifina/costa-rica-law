@@ -1,6 +1,2 @@
-CAPÍTULO V
-Notificaciones y régimen recursivo
-Artículo 18.—Notificación de las resoluciones o autos dictados por la Dirección General del Registro Electoral y Financiamiento de Partidos Políticos. Las resoluciones que dicte la Dirección en materia de inscripción de candidaturas, serán notificadas mediante el procedimiento establecido en el Decreto número 06-2009 del 5 de junio de 2009 “Reglamento de Notificaciones a partidos políticos por correo electrónico, publicado en La Gaceta N° 117 de 18 de junio de 2009” y, cuando ordenen la inscripción, serán además inmediatamente publicadas en el sitio web del Tribunal.
-Tratándose de las resoluciones o autos relativos al proceso de inscripción de candidaturas y hasta que se concluya con ese proceso, se tendrá por ampliado el horario de notificación desde las ocho hasta las veinte horas incluyendo los días inhábiles. La notificación se tendrá por practicada hasta el día hábil siguiente a dicha comunicación.
-(Así adicionado el párrafo anterior por el artíuclo 9° del decreto del Tribunal Supremo de Elecciones, N° 15 del 27 de noviembre de 2018)
-(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 4-2015 del 2 de febrero del 2015)
+Artículo 18.- Plazo para la presentación de la información de los candidatos y de los programas de gobierno. Los documentos a que se refiere el presente capítulo, deberán presentarse junto con el formulario de solicitud de inscripción de candidaturas dentro del mismo plazo dispuesto en el artículo 13 del presente reglamento, de lo contrario se tendrán por presentados de forma extemporánea y serán rechazados de plano.
+(Así adicionado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 11 del 21 de setiembre de 2021)

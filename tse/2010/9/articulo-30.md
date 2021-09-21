@@ -1,0 +1,2 @@
+Artículo 30.-Los partidos políticos sin representación en el sorteo. En caso de que un partido político no designe representante, corresponderá al Director General hacer girar la esfera y tomar la balota que definirá la posición de ese partido.
+(Así modificada su numeración por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 11 del 21 de setiembre de 2021, que lo traspaso del antiguo artículo 25 al 30)

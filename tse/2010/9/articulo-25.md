@@ -1,1 +1,2 @@
-Artículo 25.—Los partidos políticos sin representación en el sorteo. En caso de que un partido político no designe representante, corresponderá al Director General hacer girar la esfera y tomar la balota que definirá la posición de ese partido.
+Artículo 25.-Forma de contar los términos. Los términos se contarán a partir del día hábil siguiente a aquel en el que se tenga por notificada la resolución. Para efecto del cómputo de los plazos se considerarán solamente días hábiles.
+(Así modificada su numeración por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 11 del 21 de setiembre de 2021, que lo traspaso del antiguo artículo 20 al 25)

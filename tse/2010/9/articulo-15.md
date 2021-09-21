@@ -1,5 +1,7 @@
-CAPÍTULO IV
-Prevenciones
-Artículo 15.-Prevenciones. Cuando se adviertan defectos u omisiones en las candidaturas, ya sea en las correspondientes asambleas de designación o ratificación, en la solicitud de inscripción, en las nóminas o en la información de las candidaturas propuestas, la Dirección prevendrá, por una única vez, al respectivo partido político o coalición, a fin de que aclare, subsane o aporte los documentos que considere pertinentes. En caso de que no se atienda la prevención, independientemente del momento en que se haya efectuado, sea antes, durante o después del plazo a que se refiere el segundo párrafo del artículo 148 del Código Electoral, se rechazarán de plano aquellas candidaturas en las que persista el vicio o defecto advertido.
-Si el defecto o vicio corresponde al domicilio electoral del candidato, una vez verificado el incumplimiento, se rechazará de plano la solicitud de inscripción.
-(Así reformado por el artículo 8 del decreto del Tribunal Supremo de Elecciones, N° 15 del 27 de noviembre de 2018)
+Capítulo IV
+De los documentos a presentar junto al formulario para la inscripción de candidaturas.
+(Así adicionado el capítulo anterior por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 11 del 21 de setiembre de 2021)
+Artículo 15.- Documentos necesarios para la inscripción de las candidaturas. Para completar los requisitos legales para la inscripción de las candidaturas a la presidencia y vicepresidencia de la República y diputaciones a la Asamblea Legislativa, además del formulario a que se refiere el capítulo III de este Reglamento, será obligatorio que el comité ejecutivo superior de los partidos políticos postulantes, presente los siguientes documentos:
+a) Una biografía y una fotografía reciente de todas las personas candidatas que postulen.
+b) El programa de gobierno del partido, cuando presenten candidaturas a la presidencia de la República.
+(Así adicionado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 11 del 21 de setiembre de 2021)

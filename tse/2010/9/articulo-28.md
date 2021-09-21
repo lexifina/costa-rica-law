@@ -1,3 +1,2 @@
-Artículo 28.—Se deroga el Reglamento para la distribución de papeletas para las elecciones generales publicado en La Gaceta Nº 120 del 22 de junio del 2001.
-Rige a partir de su publicación.
-Dado en San José, a los veintiocho días del mes de junio del dos mil diez.
+Artículo 28.-Inicio del acto. Se presentará una papeleta general, la cual estará dividida en tantos espacios como partidos participantes y cada casilla estará debidamente numerada. En presencia de los representantes de los partidos políticos, se introducirán en la esfera las balotas numeradas según la cantidad de partidos políticos participantes y los espacios en que esté dividida la papeleta.
+(Así modificada su numeración por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 11 del 21 de setiembre de 2021, que lo traspaso del antiguo artículo 23 al 28)

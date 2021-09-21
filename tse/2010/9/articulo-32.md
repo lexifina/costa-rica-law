@@ -1,0 +1,2 @@
+Artículo 32.-Diseño individual de las diferentes papeletas. Finalizado el sorteo, se preparará un diseño específico de las diferentes papeletas, el cual será mostrado a los presentes utilizando los medios disponibles que permitan visualizar la posición obtenida por cada partido.
+(Así modificada su numeración por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 11 del 21 de setiembre de 2021, que lo traspaso del antiguo artículo 27 al 32)
