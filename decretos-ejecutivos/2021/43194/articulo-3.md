@@ -1,0 +1,1 @@
+Artículo 3º-La designación de la Procuraduría General de la República como representante del Estado no significa que se esté renunciando a la posibilidad de cuestionar la competencia o plantear cualquier excepción en favor de la defensa del Estado.
