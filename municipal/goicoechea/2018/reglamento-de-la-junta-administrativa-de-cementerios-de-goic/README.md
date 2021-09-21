@@ -15,3 +15,4 @@ Reglamento de la junta administrativa de cementerios de Goicoechea
 | --- | --- | --- |
 | 1 | 2019-03-13 | la propia norma |
 | 2 | 2019-03-13 | Reglamento municipal 3 (2019-01-21) |
+| 3 | 2021-09-21 | Reglamento municipal 38 (2021-09-21) |
