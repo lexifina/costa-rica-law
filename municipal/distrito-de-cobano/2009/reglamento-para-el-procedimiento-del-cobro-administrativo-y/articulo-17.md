@@ -1,1 +1,0 @@
-Artículo 17.—Los abogados nombrados no podrán aceptar casos de litigio en contra de la institución, el no cumplimiento de esta disposición hará que su contrato quede revocado automáticamente como abogado de la institución en asuntos de cobro judicial.
