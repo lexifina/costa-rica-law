@@ -14,3 +14,4 @@ Implementación de la contabilidad regulatoria para el servicio público suminis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-11 | la propia norma |
+| 2 | 2021-09-21 | Resolución 60 (2021-09-21) |
