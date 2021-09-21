@@ -26,3 +26,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad del Cantó
 | 11 | 2019-11-19 | Reglamento municipal 186 (2019-11-19) |
 | 12 | 2020-04-27 | Reglamento municipal 96 (2020-04-27) |
 | 13 | 2021-04-13 | Reglamento municipal 49 (2021-04-13) |
+| 14 | 2021-09-21 | Reglamento municipal 72 (2021-09-21) |
