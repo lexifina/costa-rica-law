@@ -1,0 +1,1 @@
+Artículo 2°-Integración de la Academia Diplomática dentro de la estructura orgánica del Ministerio. La Academia Diplomática será una dependencia que se ubicará en el nivel directivo del Ministerio y dependerá directamente del Ministro de Relaciones Exteriores y Culto.

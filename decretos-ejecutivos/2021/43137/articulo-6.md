@@ -1,0 +1,1 @@
+Artículo 6°-Organización. La Academia Diplomática contará con una Dirección, un Consejo Académico, un Consejo Editorial, una Biblioteca y un Museo Diplomático, para asegurar la formación académica, la investigación, el resguardo y la promoción bibliográfica e histórica.

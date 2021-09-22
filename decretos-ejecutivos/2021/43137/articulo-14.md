@@ -1,0 +1,3 @@
+Artículo 14.-Consejo Editorial. El Consejo Editorial es el órgano encargado de decidir sobre los asuntos relativos a la Revista Costarricense de Política Exterior.
+El Consejo Editorial estará integrado por el director de la Academia Diplomática, quien Io preside, un representante del Ministro de Relaciones Exteriores y Culto y tres diplomáticos de carrera, que estén ubicados en cada una de las tres primeras categorías del escalafón diplomático, designados a discreción del Ministro de la cartera, preferiblemente con experiencia en investigación en el área de Ciencias Sociales.
+El funcionamiento del Consejo Editorial se regirá por las mismas disposiciones contempladas para el Consejo Académico, establecidas en el artículo 9 del presente reglamento.

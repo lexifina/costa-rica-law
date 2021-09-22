@@ -1,0 +1,1 @@
+Artículo 3°-Asignación presupuestaria de la Academia Diplomática. El Ministerio de Relaciones Exteriores y Culto le asignará a la Academia el contenido presupuestario suficiente para el cumplimiento de sus funciones.

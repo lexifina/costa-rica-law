@@ -1,0 +1,1 @@
+Artículo 22.-Disposiciones derogatorias. Se derogan en su totalidad los Decretos Ejecutivos N° 18433 de 12 de setiembre de 1988 y N° 19412 del 18 de noviembre de 1989, así como los artículos 85, 86, 87 y 88 del Decreto Ejecutivo N° 19561 de 9 de marzo de 1990, Reglamento Tareas y Funciones Ministerio Relaciones Exteriores y Culto.

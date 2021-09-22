@@ -1,0 +1,1 @@
+Artículo 19.-Homologación. Todos los decretos ejecutivos, convenios interinstitucionales, directrices, títulos y certificados de estudios, que refieran al Instituto de Servicio Exterior Manuel María de Peralta, se entenderán referidos a la Academia Diplomática Manuel María de Peralta.
