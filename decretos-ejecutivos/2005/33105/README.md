@@ -16,3 +16,4 @@ Reglamento de Tarifas para Análisis Químicos
 | 1 | 2006-06-07 | la propia norma |
 | 2 | 2016-03-29 | Reglamento 3 (2016-03-29) |
 | 3 | 2021-05-19 | Acuerdo 7 (2021-05-19) |
+| 4 | 2021-09-22 | Reglamento 22 (2021-09-22) |
