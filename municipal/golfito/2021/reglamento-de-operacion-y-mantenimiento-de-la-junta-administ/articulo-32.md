@@ -1,0 +1,1 @@
+Artículo 32.-En caso de deterioro, sustracción o pérdida de una concesión, se expedirá un duplicado a favor de su mismo titular de conformidad con los registros de la Junta Administrativa del Camposanto del distrito Guaycara.

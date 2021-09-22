@@ -1,0 +1,3 @@
+CAPÍTULO V
+De los nichos solidarios.
+Artículo 57.-Los nichos solidarios, que se describen en el artículo anterior, están destinados a cubrir las necesidades de la población más necesitada y/o de emergencia de personas de la comunidad del distrito de Guaycara, que no cuentan con derecho funerario en un momento apremiante. Tendrán prioridad de uso, las personas de escasos recursos que demuestren que no cuentan con una bóveda propia, indigentes y demás población marginada del cantón, esta situación socioeconómica será valorada por la Junta Administrativa del Camposanto, la cual está facultada para solicitar los medios de prueba que considere necesarios para determinar tal situación socioeconómica de quien solicita este nicho.

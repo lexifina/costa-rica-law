@@ -1,0 +1,1 @@
+Artículo 14.-Se permitirán los enchapes en las bóvedas, siempre que se realice con materiales de color blanco, las juntas entre la cerámica serán del mismo color (sisa o fragua), estos materiales podrán tener un 5% de tonalidades en color gris para aceras únicamente.

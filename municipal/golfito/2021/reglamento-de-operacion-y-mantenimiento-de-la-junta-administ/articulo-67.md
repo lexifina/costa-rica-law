@@ -1,0 +1,1 @@
+Artículo 67.-Todos los procedimientos administrativos que se hayan iniciado antes de la entrada en vigencia de este Reglamento se tramitarán y resolverán de acuerdo con las disposiciones vigentes al momento de su inicio.

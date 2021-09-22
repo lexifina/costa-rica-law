@@ -1,0 +1,1 @@
+Artículo 48.-No se realizarán exhumaciones los días sábado y domingo, ni los días de fiestas religiosas o nacionales. Salvo aquellos casos que por fuerza mayor lo ameriten, a criterio de la Administración del cementerio.

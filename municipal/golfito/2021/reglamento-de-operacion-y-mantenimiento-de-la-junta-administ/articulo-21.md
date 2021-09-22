@@ -1,0 +1,1 @@
+Artículo 21.-El titular de la concesión deberá designar como mínimo un beneficiario de la sepultura y como máximo tres, para después de su muerte. Este quedará debidamente registrado en el título funerario, así como en los registros de la Administración del cementerio.

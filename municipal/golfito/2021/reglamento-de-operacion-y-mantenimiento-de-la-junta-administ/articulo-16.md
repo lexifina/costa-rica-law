@@ -1,0 +1,1 @@
+Artículo 16.-No se permiten las plantas en agua, ni la construcción de jardineras elevadas, adjuntas a las bóvedas, además para el cultivo de plantas ornamentales que no excedan los 30 cm, en los alrededores de la bóveda se necesitará autorización previa de la Junta Administrativa del Camposanto.

@@ -1,0 +1,1 @@
+Artículo 40.-En los casos en que se realice una reinhumación en otra bóveda del mismo cementerio, se precisará además la conformidad del titular de ambas bóvedas y el pago del derecho correspondiente por la exhumación y reinhumación respectivamente.

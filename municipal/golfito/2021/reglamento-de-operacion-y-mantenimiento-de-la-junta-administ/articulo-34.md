@@ -1,0 +1,1 @@
+Artículo 34.-La bóveda será declarada en ruina y/o abandono por la Junta Administrativa del Camposanto del distrito Guaycara, cuando hayan transcurrido tres años sin renovar la pintura y sin hacer reparaciones necesarias.

@@ -1,0 +1,1 @@
+Artículo 53.-Si al realizar la exhumación se determina que el cuerpo no está lo suficientemente descompuesto para su extracción, la Junta Administrativa del Camposanto del distrito Guaycara, está obligada a dar dos años más de tiempo para que el cuerpo siga el proceso de descomposición.
