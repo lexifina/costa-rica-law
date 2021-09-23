@@ -1,0 +1,1 @@
+Artículo 42.-No podrán hacer uso del fondo de Caja Chica las personas que no presten servicio regular en la Municipalidad o que no estén debidamente investidas como servidoras públicos al servicio del ayuntamiento por medio de cualquier instrumento jurídico idóneo.

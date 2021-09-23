@@ -1,0 +1,1 @@
+Artículo 5º-Ningún pago por caja chica podrá exceder el monto del 50% del fondo establecido para caja chica, mencionado en el artículo 3, salvo caso fortuito o fuerza mayor y debidamente acreditados en la solicitud que requiera un monto mayor, deberá ser aprobado por la Alcaldía Municipal.

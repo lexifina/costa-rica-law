@@ -1,0 +1,1 @@
+Artículo 23.-La liquidación del vale se entenderá finiquitada cuando la persona responsable de la caja chica revisa todos los requisitos y estampa su sello de recibido conforme en el documento de vale de Caja Chica.

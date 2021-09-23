@@ -1,0 +1,1 @@
+Artículo 35.-Si realizado el arqueo, resultan diferencias, éstas deben ser justificadas por la Tesorería Municipal, que además deberá en forma inmediata depositar los sobrantes o reintegrar los faltantes, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 25.-Los vales de caja chica autorizados con un tiempo de permanencia en la Tesorería Municipal superior a los tres (03) días hábiles, y que no hayan sido retirados con causal o aviso justificado, serán anulados sin previo aviso.

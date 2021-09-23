@@ -1,0 +1,5 @@
+Artículo 48.-Los (as) funcionarios (as) municipales serán sancionados disciplinariamente, de conformidad con las siguientes disposiciones:
+Se considerará falta leve a sus deberes, y en consecuencia, será sancionado con amonestación escrita, los siguientes supuestos:
+a) El (la) funcionario(a) que no liquide el vale de Caja Chica dentro de los dos (02) días hábiles siguientes a la entrega del dinero anticipado, de conformidad con lo que establece el artículo 19 de este Reglamento.
+b) El (la) titular que al firmar el vale no constate el ingreso de los bienes y/o servicios adquiridos dentro de los activos municipales.
+Sin embargo, la reincidencia de las faltas supra citadas por más de dos (02) veces consecutivas en un término de seis (06) meses, producirá que la falta se considere como grave y ameritará la suspensión del trabajo sin goce de salario por un término de hasta ocho (08) días hábiles. Una cuarta reincidencia dentro del plazo indicado, por el incumplimiento a cualquiera de las disposiciones citadas, será considerada falta grave a sus obligaciones y será causal para el despido sin responsabilidad patronal que se tramitará con la mayor celeridad del caso.

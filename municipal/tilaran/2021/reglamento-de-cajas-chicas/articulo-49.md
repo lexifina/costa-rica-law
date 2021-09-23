@@ -1,0 +1,1 @@
+Artículo 49.-El(a) funcionario(a) que pretenda justificar los egresos de Caja Chica con comprobantes que no cumplan con los requisitos indicados en el artículo 21 del presente reglamento, incumpliendo con ello su deber de verificar los requisitos de los comprobantes, deberá pagar de su peculio el costo del bien o servicio adquirido a la mayor brevedad posible.
