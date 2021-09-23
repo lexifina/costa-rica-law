@@ -10,6 +10,8 @@ f.La prestación de servicios por contribuyentes del impuesto, según el artícu
 g.La venta de bienes y servicios incluidos en el numeral 3 del artículo 11 de la Ley.
 h.La venta de bienes y servicios a los entes públicos o privados, que por disposiciónde leyes especiales gocen de exención del impuesto, las cuales se encuentranincluidas en los numerales 15), 17), 18), 19), 24), 32), 33) y 34) del artículo 8 de la Ley, y en el tanto estas entidades cumplan con los requisitos que se establezcan por la Dirección General de Hacienda para conceder la autorización de exenciónen sus adquisiciones.
 i.Las operaciones con diplomáticos en aplicación del principio de reciprocidad.
+j. Los servicios de transporte aéreo internacional incluidos en el inciso 1) subinciso a) del artículo 11 de la Ley.
+(Así adicionado el subinciso anterior por el artículo 2° del decreto ejecutivo N° 43254 del 23 de setiembre de 2021)
 2) Aplicación de la tarifa reducida al impuesto soportado.
 Cuando el contribuyente realice operaciones sujetas a una tarifa reducida distinta de la mencionada en el numeral 3 del artículo 11 de la Ley, podrá aplicar como crédito de impuesto el monto resultante de aplicar dicha tarifa a la base imponible de la compra realizada, según se detalla:
 a.Operaciones con tarifa reducida del 4%, podrá aplicarse el crédito total de las adquisiciones realizadas a tarifas reducidas del 1%, 2% y 4%. Cuando se adquieran bienes o servicios a una tarifa mayor, podrá acreditarse únicamente el crédito que resulte de aplicar la tarifa del 4% a la base imponible de la compra y la diferencia se podrá considerar un costo o gasto, según corresponda.
