@@ -14,3 +14,4 @@ Procedimiento ECA-MC-C16 Criterios para evaluar la Imparcialidad (versión 01)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-01 | la propia norma |
+| 2 | 2021-09-23 | Acuerdo 11 (2021-09-23) |
