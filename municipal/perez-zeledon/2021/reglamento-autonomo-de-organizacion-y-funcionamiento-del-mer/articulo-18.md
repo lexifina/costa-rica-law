@@ -1,0 +1,1 @@
+Artículo 18.-Del expediente administrativo de los locales comerciales: La Administración del Mercado deberá contará con un expediente administrativo de cada uno de los locales comerciales del Mercado Municipal y de la Terminal de Buses en que conste la información vital que requiera el funcionamiento de ese local.

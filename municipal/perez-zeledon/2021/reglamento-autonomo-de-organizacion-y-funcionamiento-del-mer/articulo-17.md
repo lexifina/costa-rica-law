@@ -1,0 +1,1 @@
+Artículo 17.-Acceso de la administración municipal a los locales: Las personas concesionarias y sus dependientes están en la obligación de facilitar la entrada al local, a los funcionarios municipales o de otras autoridades que así lo requieran, con el fin de realizar las labores propias de su cargo.

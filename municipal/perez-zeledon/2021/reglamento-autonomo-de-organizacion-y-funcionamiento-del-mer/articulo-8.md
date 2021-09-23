@@ -1,0 +1,1 @@
+Artículo 8°-De la competencia del Concejo Municipal: Además de los contemplado en la Ley sobre Arrendamiento de Locales Municipales y la Ley de contratación Administrativa, es competencia del Concejo Municipal aprobar las tarifas de la terminal de buses y las modificaciones de la zonificación y sectorización del Mercado Municipal.

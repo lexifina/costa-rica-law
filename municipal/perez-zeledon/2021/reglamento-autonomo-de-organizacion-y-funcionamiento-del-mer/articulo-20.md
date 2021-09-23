@@ -1,0 +1,2 @@
+Artículo 20.-Prohibición de traspasar los derechos por parte de los Concesionarios: Las personas concesionarias de puestos permanentes no podrán traspasar bajo ningún título a otra persona la concesión que se les haya otorgado sobre el local.
+El concesionario que mediante el procedimiento sancionatorio se le demuestre haber incumplido esta disposición, perderá todo derecho a ocupar el puesto y todo derecho subjetivo sobre el local. De modo que de oficio se cancelará el contrato, mediante la resolución motivada que se le notifique al efecto.

@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del funcionamiento de los locales
+Artículo 15.-Cambio de destino de la actividad comercial: Previa solicitud del administrado y valiéndose de formulario oficial, la administración del Mercado Municipal podrá autorizar el cambio de destino comercial del puesto permanente, para expendio de mercaderías distintas a las autorizadas o consentir la ampliación a otras y nuevas actividades, respetando la zonificación y sectorización, la resolución que aprueba el cambio de destino deberá contar con el visto bueno de la Jefatura Inmediata y su aceptación llevará implícita la obligación del adjudicatario de adaptar su licencia municipal al cambio de actividad.

@@ -1,0 +1,1 @@
+Artículo 5°-Distribución interna de los locales: El Mercado, y la Terminal de Buses, se organizará internamente en zonas o sectores comerciales destinados a la venta de artículos las cuales se mantendrán invariables, correspondiéndole al Concejo Municipal autorizar la zonificación.
