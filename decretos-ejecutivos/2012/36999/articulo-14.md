@@ -1,1 +1,2 @@
-Artículo 14.—Del levantamiento de la suspensión. La suspensión será levantada una vez que se hayan subsanado las deficiencias que han dado origen a la suspensión. Para el inciso d- del artículo anterior, deberá presentarse copia certificada de la denuncia ante autoridad competente del daño u hechos acontecidos.
+Artículo 14º- Del levantamiento de la suspensión. La suspensión será levantada una vez que se hayan subsanado las deficiencias que han dado origen a la misma.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43261 del 23 de setiembre de 2021)

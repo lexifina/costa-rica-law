@@ -1,1 +1,5 @@
-Artículo 24.—De la renovación de la inscripción. Esta se podrá realizar con la actualización de los datos de requisitos.
+Artículo 24º- De la renovación de la inscripción. Para realizar la renovación del registro de importadores de productos de origen vegetal, el interesado debe seleccionar alguna de las siguientes alternativas, dependiendo de su situación:
+1. Si las condiciones iniciales con las que se registró se mantienen: Declaración jurada de conformidad con el Anexo 2 de este decreto, en la que se indique que se desea realizar la renovación de su registro, y que sus condiciones iniciales con las que se registró, se mantienen.
+2. Si las condiciones iniciales con las que se registró han variado: Solicitud de conformidad con el Anexo 1 de este decreto, que también tiene carácter de declaración jurada, en la que se hagan los ajustes a las condiciones con las que se registró anteriormente.
+Una vez recibida la solicitud de renovación, el Servicio Fitosanitario del Estado la resolverá en un plazo máximo de diez días naturales.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43261 del 23 de setiembre de 2021)
