@@ -14,3 +14,4 @@ Creación y Reglamento del Consejo Portuario Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-23 | la propia norma |
+| 2 | 2021-09-23 | Decreto Ejecutivo 43253 (2021-09-23) |
