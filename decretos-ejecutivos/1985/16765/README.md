@@ -27,3 +27,4 @@ Reglamento de Establecimientos Farmacéuticos Privados
 | 12 | 1998-10-30 | Decreto Ejecutivo 27431 (1998-10-30) |
 | 13 | 1998-11-06 | Decreto Ejecutivo 27476 (1998-11-06) |
 | 14 | 2005-11-02 | SINALEVI (sin norma nombrada) |
+| 15 | 2021-09-24 | Decreto Ejecutivo 43233 (2021-09-24) |
