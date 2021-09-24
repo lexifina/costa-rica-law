@@ -30,3 +30,4 @@ PUESTO CLASE
 504161 PROFESIONAL DE SERVICIO CIVIL 1 A
 TOTAL MINISTERIO DE EDUCACIÓN PÚBLICA= 7")
 (Modificado por el artículo 1° del decreto ejecutivo N° 43232 del 15 de setiembre de 2021)
+(Modificado por el artículo 1° del decreto ejecutivo N° 43224 del 24 de setiembre del 2021)
