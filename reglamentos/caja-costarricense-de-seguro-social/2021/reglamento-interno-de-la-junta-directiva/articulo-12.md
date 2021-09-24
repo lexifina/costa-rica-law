@@ -1,0 +1,4 @@
+Artículo 12° Sesiones extraordinarias
+Su celebración es de naturaleza excepcional, para conocer de asuntos especiales o urgentes, los cuales, dadas sus implicaciones para el interés público, requieren de su atención inmediata, no pudiendo por ello esperarse a que acontezca la sesión ordinaria.
+En una sesión extraordinaria, se conocerá única y exclusivamente lo convocado según la agenda respectiva. Excepcionalmente, podría conocerse un asunto ordinario, siempre y cuando se apruebe por unanimidad de la Junta Directiva en pleno.
+No obstante, en caso de no cumplir con los requisitos referentes a la convocatoria o el orden del día detallados en el párrafo anterior, quedará válidamente constituida la sesión de Junta Directiva, cuando asistan todos los integrantes de la Junta Directiva y así lo acuerden por unanimidad.

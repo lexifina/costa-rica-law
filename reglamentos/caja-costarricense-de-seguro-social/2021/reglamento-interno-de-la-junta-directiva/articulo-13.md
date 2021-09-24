@@ -1,0 +1,3 @@
+Artículo 13° Convocatoria de sesiones extraordinarias
+Las sesiones extraordinarias podrán ser convocadas por el Presidente ejecutivo o por tres de sus miembros, quienes, en tal caso, deberán hacerlo por escrito indicando el objeto de la sesión. Será necesario una convocatoria a través de los medios digitales correspondientes, con una antelación mínima de 24 horas a partir de la notificación de esta, la cual se acompañará del orden del día, salvo los casos de urgencia.
+No obstante, en caso de no cumplir con los requisitos referentes a la convocatoria o el orden del día detallados en el párrafo anterior, quedará válidamente constituida la sesión de Junta Directiva, cuando asistan todos los integrantes de la Junta Directiva y así lo acuerden por unanimidad.

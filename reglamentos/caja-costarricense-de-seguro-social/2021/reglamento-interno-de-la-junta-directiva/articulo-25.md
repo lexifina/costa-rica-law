@@ -1,0 +1,3 @@
+Artículo 25° Recurso de revisión de acuerdos
+Sobre los acuerdos aprobados por la Junta Directiva podrán plantearse recursos de revisión por una única vez, por parte de cualquier miembro del Órgano Colegiado, siempre que la revisión se plantee antes de la aprobación del acta respectiva y que no se trate de un acuerdo declarado con firmeza.
+El recurso de revisión puede ser presentado por un miembro que se encontrara presente o no en la sesión que se adoptó el acuerdo y deberá ser resuelto como máximo en la sesión inmediata siguiente, la cual contiene el acuerdo recurrido; de igual forma podrá ser resuelto en la misma sesión de dicho acuerdo. El recurso será analizado y resuelto mediante acuerdo tomado por votación de mayoría absoluta.

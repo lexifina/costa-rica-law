@@ -1,0 +1,9 @@
+Del Quorum
+Artículo 19° Quorum
+Se distinguen para los efectos de estas disposiciones tres tipos de quorum:
+a. Quorum Integral o legal: Para la existencia del órgano colegiado se requiere que la totalidad de los miembros que lo integran, de conformidad con el artículo 6 de la Ley Constitutiva de la CCSS hayan sido nombrados. A falta de nombramiento de uno de los miembros, se entenderá que no existe el quorum integral; por lo que el órgano colegiado se encuentra legalmente imposibilitado para ejercer las funciones para las cuales ha sido creado.
+En caso de quebranto del quorum integral ya sea por renuncia, muerte u otra circunstancia de cualquiera de sus miembros, se deberá proceder de acuerdo con lo indicado en el artículo 9 de la Ley Constitutiva de la Caja Costarricense de Seguro Social con el objetivo de sustituir a la mayor brevedad al miembro ausente.
+En tanto se logre conformar nuevamente el quorum integral, la Junta Directiva podrá sesionar con los miembros nombrados mediante la figura de funcionario de hecho, únicamente para situaciones de urgencia o necesidad apremiante, que deben ser atendidas y resueltas a la mayor brevedad, con el fin de evitar graves daños al fin público, los usuarios y la Institución.
+b. Quorum Estructural: Se refiere al número de miembros que se requieren para que pueda sesionar válidamente la Junta Directiva en el lugar y hora previamente señalados, el cual se integrará con al menos cinco miembros.
+Si no hubiere quorum, el órgano podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia en que podrá sesionar después de media hora y para ello será suficiente la asistencia de la tercera parte de sus miembros.
+c. Quorum Funcional: Se refiere a la cantidad de miembros requeridos para que el Órgano Colegiado pueda aprobar los asuntos sometidos a su conocimiento, la cual será al menos la mitad más uno de los miembros presentes en la sesión.

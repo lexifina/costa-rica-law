@@ -1,0 +1,5 @@
+Artículo 15° Requisitos para sesionar virtualmente
+La simultaneidad propia del Órgano Colegiado exige que, durante la celebración de la sesión, el miembro Director se dedique íntegramente a la misma. Asimismo, en las sesiones virtuales, deberá respetar la prohibición de superposición horaria.
+Durante el desarrollo de la sesión virtual, los miembros de la Junta Directiva deberán asegurarse de contar con la tecnología necesaria en el lugar en que se encuentren, con el fin de mantener una videoconferencia y una comunicación bidireccional en tiempo real, que permita una integración plena dentro de la sesión.
+Asimismo, es obligación del miembro de la Junta Directiva, con el respaldo tecnológico de la Institución, asegurarse de que los medios tecnológicos utilizados cumplen con las seguridades mínimas que garanticen la confidencialidad (que así proceda conforme a derecho) e integridad de los documentos conocidos durante la sesión virtual.
+Aplicarán las mismas disposiciones de las sesiones presenciales en cuanto a asistencia y puntualidad para efectos del pago de dietas.

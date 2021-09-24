@@ -1,0 +1,2 @@
+Artículo 38° Resguardo de las actas
+De las actas aprobadas legalizadas deberá dejarse en todo momento respaldo por medios electrónicos, informáticos, magnéticos, ópticos físicos o cualquier otro método que garantice la inalterabilidad, la integridad y la preservación de la información. Asimismo, los libros de actas oficiales serán archivados de conformidad con la Ley del Sistema Nacional de Archivos N° 7202 y la Ley de Certificados, Firmas Digitales y Documentos Electrónicos N° 8454. No se podrán disminuir los controles internos llevados actualmente al efecto.

@@ -1,0 +1,2 @@
+Artículo 34° Actas para aprobación
+El acta de la sesión respectiva será redactada por la Secretaria de la Junta Directiva con la asistencia de los asesores y remitida para conocimiento, revisión y observaciones de los miembros de la Junta Directiva, en caso de presentar observaciones la Secretaría de Junta Directiva realizará los ajustes previos a la aprobación del Órgano Colegiado en la sesión ordinaria inmediata siguiente. Una vez cuente con el respectivo criterio de confidencialidad, se procederá a oficializarla y publicarla a través de los medios correspondientes.

@@ -1,0 +1,3 @@
+Artículo 16° Publicidad de las sesiones
+Las sesiones de la Junta Directiva serán privadas; no obstante, por mayoría calificada de los miembros presentes, podrá acordarse el acceso público en las sesiones del Órgano Colegiado.
+En caso de acordarse el ingreso o acceso de público a la sesión, presencial o virtual, de conformidad con la capacidad instalada, deberán seguirse los protocolos de seguridad y conectividad definidos por las unidades técnicas responsables de garantizar tal fin. En todo caso, las sesiones serán debidamente grabadas, las cuales estarán disponibles para consulta y verificación de la ciudadanía en los medios destinados, en tanto no se traten temas que sean declarados confidenciales de conformidad a la ley.

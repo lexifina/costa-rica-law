@@ -1,0 +1,2 @@
+Artículo 50° Normas supletorias
+Todo aquello no previsto en este Reglamento se regirá por lo dispuesto en la Ley Constitutiva de la Caja Costarricense de Seguro Social N° 17, la Ley General de la Administración Pública N° 6227, la Ley de Control Interno N°8292, Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N° 8422, Ley del Sistema Nacional de Archivos N° 7202 y su Reglamento, Ley de Certificados, Firmas Digitales y documentos electrónicos N° 8454 y demás normativa conexa.
