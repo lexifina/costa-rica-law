@@ -1,0 +1,3 @@
+ARTÍCULO 52: PLAZO Y COMPETENCIA PARA DICTAR EL ACTO FINAL
+El acto final se dictará dentro del plazo máximo fijado en el CARTEL, el cual no podrá ser superior al doble del plazo que se otorgó para la presentación de ofertas, incluyendo en ese cálculo todas las prórrogas que se hubiesen dado. Ese plazo podrá prorrogarse por un período igual y por una sola vez, siempre y cuando se acrediten razones de interés público para tomar esa decisión.
+El FIDUCIARIO será el encargado del trámite administrativo del concurso y hará las recomendaciones correspondientes al representante legal del FIDEICOMISO para que sea este quien dicte el acto final, según los poderes que se hubiesen otorgado dentro de la organización del FIDUCIARIO.

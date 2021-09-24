@@ -1,0 +1,4 @@
+ARTÍCULO 15: DESGLOSE DEL PRECIO
+El oferente deberá presentar el desglose de la estructura del precio junto con un presupuesto detallado y completo con todos los elementos que lo componen. Esta disposición será obligatoria para los contratos de bienes, servicios y de obra pública; además, para cualquier otro objeto contractual que lo amerite cuando así lo exija el CARTEL.
+Para el caso de los Contratos de Servicios el desglose porcentual deberá indicar los siguientes rubros: Mano de Obra (MO), Insumos (I), Gastos Administrativos (GA) y Utilidad (U). Para el caso de los Contratos de Obra, el desglose porcentual deberá contemplar los siguientes rubros: Costo Directo (CD), Costo Indirecto (CI), Imprevistos (I) y Utilidad (U).
+Podrá subsanarse la omisión del desglose de la estructura de precios, únicamente si ello no genera una ventaja indebida para el oferente que incumple.

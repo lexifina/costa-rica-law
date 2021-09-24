@@ -1,0 +1,3 @@
+ARTÍCULO 25: GARANTÍA DE PARTICIPACIÓN INSUFICIENTE
+La garantía de participación insuficiente en plazo o en monto, podrá subsanarse por el oferente o a petición del FIDUCIARIO, dentro de los tres días posteriores a la apertura de ofertas.
+Para los efectos subsecuentes se podrá subsanar la garantía de cumplimento siempre y cuando el monto acreditado no haya sido inferior al noventa por ciento (90%) de la cifra a la que equivaldría el monto por pagar, esa misma lógica se aplicará al plazo de cobertura de dicha garantía.

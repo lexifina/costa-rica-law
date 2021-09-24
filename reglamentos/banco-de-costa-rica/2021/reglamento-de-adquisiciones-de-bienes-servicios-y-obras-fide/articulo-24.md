@@ -1,0 +1,6 @@
+SECCIÓN SEGUNDA
+GARANTÍAS
+ARTÍCULO 24: GARANTÍA DE PARTICIPACIÓN
+Cuando se estime conveniente o necesario, se podrá solicitar en el CARTEL una garantía de participación porcentual, que oscile entre el uno por ciento (1%) y el cinco por ciento (5%) del monto cotizado o bien un monto fijo, en caso de que el negocio sea de cuantía inestimable o no le represente erogación. Si en el CARTEL se solicita la presentación de la garantía de participación, pero se omitiera la indicación del porcentaje, se entenderá que este será del uno por ciento (1%).
+En ofertas conjuntas, cada oferente podrá respaldar solo el componente que cotiza o bien aportar una sola garantía por todo el monto, la cual será ejecutable indistintamente de quien sea la parte que incumpla. Tratándose de ofertas en consorcio se presentará una única garantía.
+Si cesare la vigencia de la garantía de participación, el FIDUCIARIO prevendrá al interesado tan pronto como advierta tal circunstancia y siempre que no exista otro incumplimiento que determine la exclusión de la oferta y aún después de dictado el acto de adjudicación, para que, dentro del término de tres días hábiles contados a partir de la notificación de dicha prevención, proceda a su restablecimiento.

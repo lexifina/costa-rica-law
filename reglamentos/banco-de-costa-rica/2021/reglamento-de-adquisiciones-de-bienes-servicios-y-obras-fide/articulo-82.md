@@ -1,0 +1,3 @@
+ARTICULO 82: PRÓRROGA DEL PLAZO. DE ENTREGA
+A solicitud del contratista, la UNIDAD SOLICITANTE en coordinación con el FIDUCIARIO podrá autorizar prórrogas al plazo de ejecución del contrato cuando existan demoras ocasionadas por el mismo, por un tercero, por caso fortuito o fuerza mayor.
+El contratista solicitará la prórroga dentro de los diez días hábiles siguientes al conocimiento del hecho que provoca la extensión del plazo y el FIDUCIARIO contará con igual plazo para resolver si procede o no. Si la solicitud se hace fuera de plazo, pero estando aún el contrato en ejecución, el FIDUCIARIO podrá autorizar la prórroga, en caso de estar debidamente sustentada.

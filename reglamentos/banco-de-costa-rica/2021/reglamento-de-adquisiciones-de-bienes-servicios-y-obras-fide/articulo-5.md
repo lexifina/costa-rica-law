@@ -1,0 +1,2 @@
+ARTÍCULO 5: UNIDAD SOLICITANTE
+El FIDUCIARIO contratará los bienes y servicios requeridos por la UNIDAD SOLICITANTE, previo aval de la CONATT y a la aprobación presupuestaria del proyecto que haya sido debidamente elevado a conocimiento del FIDEICOMITENTE. La UNIDAD SOLICITANTE deberá contar con la conformación idónea de Personas a nivel especialista, las cuales deberán elaborar los términos de referencia en materia técnica y de garantía sobre el objeto a contratar, en aras de que el Fiduciario pueda iniciar el procedimiento para su contratación.

@@ -1,0 +1,2 @@
+ARTÍCULO 61: DECISIÓN DE CONTRATAR DIRECTAMENTE.
+La determinación de los supuestos de contratación directa es responsabilidad exclusiva del representante legal del FIDEICOMISO, previa justificación por escrito emitida por la UNIDAD FISCALIZADORA, la cual en la decisión inicial deberá estar acompañada de los estudios legales y técnicos en los que se acredita que, en el caso concreto, se está ante un supuesto de prescindencia de los procedimientos ordinarios.

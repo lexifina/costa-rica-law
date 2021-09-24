@@ -1,0 +1,5 @@
+ARTÍCULO 87: RESOLUCIÓN CONTRACTUAL.
+El FIDUCIARIO podrá resolver unilateralmente los contratos por motivo de incumplimiento imputable al contratista.
+Para resolver el contrato se deberá seguir un procedimiento ordinario, según los términos del Libro Segundo de la Ley General de Administración Pública. Mientras se resuelve el procedimiento, se podrán dictar medidas cautelares por parte del FIDUCIARIO con el fin de evitar daños graves o perjuicio para el patrimonio fideicometido. Dentro de esas medidas se puede optar por contratar cualquier tipo de servicios, bienes u obras que garanticen el normal funcionamiento de los intereses del FIDEICOMISARIO.
+Una vez firme la resolución contractual, en caso de que proceda se ejecutará la garantía de cumplimiento sin ningún procedimiento adicional para resarcir los daños y perjuicios provocados. En el evento de que el FIDUCIARIO haya previsto en el CARTEL cláusulas de retención, se podrán aplicar esos montos al pago de los daños y perjuicios reconocidos.
+De ser las garantías y retenciones insuficientes, se adoptarán las medidas en sede administrativa y judicial necesarias para obtener la plena indemnización.
