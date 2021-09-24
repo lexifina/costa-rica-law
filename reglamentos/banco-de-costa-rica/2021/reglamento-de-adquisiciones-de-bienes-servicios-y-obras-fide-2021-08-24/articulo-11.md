@@ -1,0 +1,4 @@
+ARTÍCULO 11: EXCESO EN LOS LÍMITES DEL PROCEDIMIENTO
+Cuando se haya determinado un procedimiento con fundamento en la estimación preliminar del negocio y posteriormente las ofertas presentadas superan los límites para la aplicación del procedimiento respectivo, no se invalidará el concurso, si este exceso no supera el veinticinco por ciento (25%) y se dispone de los recursos presupuestarios suficientes para asumir la erogación.
+Los oferentes cuya propuesta supere el veinticinco por ciento (25%) indicado, podrán rebajar el precio hasta ese límite, sin embargo, para la aplicación del sistema de calificación se considerará el monto original.
+Cuando un oferente no esté de acuerdo en rebajar la propuesta económica hasta ese veinticinco por ciento (25%), se procederá a su exclusión sin responsabilidad de su parte y de existir otras ofertas elegibles se continuará con el procedimiento.

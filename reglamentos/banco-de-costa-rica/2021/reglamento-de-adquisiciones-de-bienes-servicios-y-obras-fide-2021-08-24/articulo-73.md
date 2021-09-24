@@ -1,0 +1,3 @@
+ARTÍCULO 73: FORMALIZACIÓN CONTRACTUAL.
+La relación contractual válida y perfeccionada se formalizará cuando sea necesario para el correcto entendimiento de los alcances de los derechos y las obligaciones contraídas por las partes.
+El FIDUCIARIO elaborará el contrato respectivo y lo remitirá para firma del contratista mediante la plataforma de compras públicas, en un plazo no mayor a diez días hábiles posteriores a la firmeza de la adjudicación, otorgándole al adjudicatario un plazo máximo de tres días hábiles para su suscripción, prorrogables por dos días adicionales, en caso de que así se solicite, previo rendimiento satisfactorio de la garantía de cumplimiento, salvo que el cartel disponga justificadamente un plazo mayor.

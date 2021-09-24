@@ -1,0 +1,2 @@
+ARTÍCULO 5: UNIDAD SOLICITANTE
+El FIDUCIARIO procederá a contratar los bienes y servicios una vez que estos han sido aprobados por la JADME. La Unidad Solicitante deberá contar con la conformación de Personas delegadas, las cuales deberán elaborar los términos de referencia en materia técnica del bien o servicio a contratar, en aras de que el Fiduciario pueda iniciar el procedimiento para su contratación.

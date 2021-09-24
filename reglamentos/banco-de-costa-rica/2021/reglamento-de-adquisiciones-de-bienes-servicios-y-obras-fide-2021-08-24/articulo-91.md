@@ -1,0 +1,6 @@
+CAPÍTULO XII
+DISPOSICIONES FINALES
+ARTÍCULO 91: LIBERACIÓN DE RESPONSABILIDAD
+El contratista entiende que la relación contractual que se llegara a derivar de este Reglamento se formalizará en todos sus extremos con el FIDEICOMISO FONDO ESPECIAL DE MIGRACIÓN JADGME BCR BICENTENARIO, el cual será gestionado por el Representante Legal del Fideicomiso, representación recaída en los funcionarios del Banco de Costa Rica en calidad de FIDUCIARIO.
+Por consiguiente, si el Contratista llegase a acatar instrucciones ya sea escritas o verbales por parte de Directores, Jefes, Supervisores, Coordinadores, Colaboradores o cualquier otro funcionario subordinado del FIDEICOMSARIO, al margen de las indicaciones que le haya girado el FIDUCIARIO se sobreentiende que las ejecutará bajo su propio riesgo, razón por la cual, relevará de oficio al FIDEICOMISO por los daños o lesiones económicas que le pueda acarrear dicha decisión.
+Elaborado por la Gerencia de Negocios Esfera del BCR actuando como FIDUCIARIO responsable del Fidecomiso Fondo Especial de Migración JADGME BCR Bicentenario; y así mismo revisado y aprobado por el FIDEICOMITENTE según consta en el acuerdo número 7 adoptado en la sesión ordinaria de la Junta Administrativa de la Direccion General de Migración y Extranjería (JADGME) número 43, la cual se celebró el 24 de agosto de 2021.

@@ -1,0 +1,2 @@
+ARTÍCULO 43: OFERTAS EN CONJUNTO
+El FIDUCIARIO podrá autorizar en el CARTEL, la presentación de ofertas conjuntas, cuando el objeto lo permita y ello no coloque en riesgo el interés del FIDEICOMISO, ni tampoco el interés público. En ese caso, dos o más oferentes podrán unirse para cotizar y cada uno responderá por la ejecución de su parte. Para efectos de procedimiento, será suficiente que una sola de las empresas que cotizan de manera conjunta haya sido invitada, para que las restantes puedan participar.

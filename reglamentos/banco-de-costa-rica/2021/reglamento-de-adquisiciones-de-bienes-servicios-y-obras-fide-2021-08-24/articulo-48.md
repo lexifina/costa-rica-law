@@ -1,0 +1,4 @@
+ARTÍCULO 48: ESTUDIO DE ADMISIBILIDAD DE OFERTAS
+Cumplida la anterior etapa, el FIDEICOMISO, procederá al estudio y valoración de las ofertas en relación con las condiciones y especificaciones de admisibilidad fijadas en el CARTEL y con las normas reguladoras de la materia.
+Serán declaradas fuera del concurso, las que incumplan aspectos esenciales de las bases de la licitación o sean sustancialmente disconformes con el ordenamiento jurídico. Los incumplimientos intrascendentes no implicarán la exclusión de la oferta, pero así deberá ser razonado expresamente en el respectivo informe.
+Si una oferta presenta dos manifestaciones contradictorias entre sí, una que se ajusta al CARTEL y otra que no, se presumirá su ajuste al CARTEL; en dicho caso para efectos d evaluación, se tomará en consideración la que menos le favorezca al oferente. Sin embargo, para efectos de ejecución, se aplicará la manifestación que más favorezca al FIDEICOMISO.
