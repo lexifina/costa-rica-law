@@ -1,1 +1,0 @@
-Artículo 2°-Deróguese el Decreto Ejecutivo N° 42908-H del 10 de marzo de 2021, publicado en el Alcance N° 67 del Diario Oficial La Gaceta N° 60 del 26 de marzo de 2021, a partir de la vigencia del presente decreto.
