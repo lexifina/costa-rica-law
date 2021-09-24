@@ -1,0 +1,2 @@
+Artículo 11.-De la recepción de las obras.
+Las obras deberán presentarse en la Biblioteca de la Municipalidad de Paraíso, en el horario regular de dicho servicio, en un sobre sellado identificado con un seudónimo impreso, asegurándose que al presentar la propuesta se le emita una boleta de recibido por parte del o la funcionaria municipal a nombre del seudónimo, (misma que se utilizará para recoger el mismo), la cual no será indicativo de aprobación de la obra. En el sobre sellado deberá aportar los datos oficiales del autor, mismo que puede ir pegado al anverso de la obra.

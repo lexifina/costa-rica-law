@@ -1,0 +1,2 @@
+Artículo 17.-Derechos de autor.
+La Municipalidad de Paraíso respetará lo establecido en la Ley N° 6683 de Derechos de Autor y Derechos Conexos, y Bienes Patrimoniales, en lo relativo a cada obra que se expondrá como aparte de este Salón de Pintura. Y de ser necesario solicitará autorización a cada artista de un permiso para divulgar fotografías sin fines de lucro de los cuadros exhibidos, para tal fin se le solicitará a cada participante llenar una boleta de autorización.
