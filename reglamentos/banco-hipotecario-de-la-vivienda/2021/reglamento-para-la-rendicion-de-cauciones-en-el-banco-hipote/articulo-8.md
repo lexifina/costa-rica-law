@@ -1,0 +1,6 @@
+SECCIÓN III
+Del mecanismo de cálculo de los montos a caucionar
+y de la administración, custodia y ejecución de las cauciones
+Artículo 8º-Definición del monto a caucionar: El monto de la garantía a favor del BANHVI, será el que se establezca anualmente durante el primer trimestre de cada año, tomando como parámetro el salario base establecido en el artículo 2 de la Ley N° 7337 del 5 de mayo de 1993, monto que actualiza la Corte Suprema de Justicia en el Boletín Judicial al inicio de cada año. Dicha actualización será comunicada por el área de Recursos Humanos por escrito al personal interesado. Se realizará el ajuste para cada uno de los niveles definidos en el artículo 7 del presente Reglamento según las siguientes reglas:
+1) Cálculo de la caución en el nivel A. Quienes desempeñen puestos clasificados dentro del nivel A, deberán de rendir una caución equivalente a 4 veces el salario base establecido en el artículo 2 de la Ley 7337 del 5 de mayo de 1993, publicado por la Corte Suprema de Justicia en el Boletín Judicial cada inicio de año.
+2) Cálculo de la caución en el nivel B. Quienes desempeñen puestos clasificados dentro del nivel B, deberán de rendir una caución equivalente a 3 veces el salario base establecido en el artículo 2 de la Ley 7337 del 5 de mayo de 1993, publicado por la Corte Suprema de Justicia en el Boletín Judicial cada inicio de año.

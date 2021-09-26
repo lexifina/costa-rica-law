@@ -1,0 +1,1 @@
+Artículo 12.-Área responsable del trámite de caución: Compete a la Unidad de Recursos Humanos el control, vigilancia y seguimiento de las cauciones que se rindan a favor del BANHVI. Asimismo, de informar a la Dirección Administrativa o Superior Jerárquico ante cualquier incumplimiento observado en el proceso de caución.

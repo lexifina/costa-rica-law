@@ -1,0 +1,1 @@
+Artículo 7º-Registro actualizado: Es responsabilidad del área de Recursos Humanos mantener el registro actualizado de los servidores por dependencia, obligados a caucionar a fin de determinar si se encuentran al día con el pago de las pólizas.

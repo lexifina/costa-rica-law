@@ -1,0 +1,5 @@
+Artículo 4º-Definiciones: Para los efectos de este Reglamento se entenderá por:
+a) Caución: Garantía que deben rendir con cargo a su propio peculio y a favor del BANHVI, los funcionarios encargados de recaudar, custodiar, fiscalizar o administrar fondos y valores públicos.
+b) Custodia: Es la función administrativa de cuido, guarda o tenencia sobre aquellos fondos, recursos, valores, bienes y derechos de propiedad del Banco Hipotecario de la Vivienda o a cargo de éste.
+c) Fondos Públicos: Conforme lo señala el artículo 9º de la Ley Orgánica de la Contraloría General de la República, son aquellos recursos, valores, bienes y derechos propiedad del Estado, de órganos, de empresas o de entes públicos.
+e) Póliza o Seguro de Fidelidad: Contrato de seguro ofrecido por entidades autorizadas a brindar ese servicio, con el cual los funcionarios rinden garantía en beneficio del Estado con tal de afianzar los daños y perjuicios causados por la comisión de actos culposos y/o dolosos por parte de éstos en el desempeño de su labor.
