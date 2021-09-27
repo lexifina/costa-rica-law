@@ -8,3 +8,5 @@ f) Este documento será divulgado a través del Correo Interno a todos los funci
 Además, se publicará en nuestra página Web de la Municipalidad de Santa Barbara y en un periódico de circulación nacional, se le comunicará al Colegio de Contadores Públicos de Costa Rica, Colegio de Profesionales en Ciencias Económicas de C.R., Colegio de Contadores Privados de Costa Rica, y en los sitios públicos de mayor afluencia de público de nuestro cantón de Santa Barbara.
 g) Cualquier información adicional comunicarse al Secretaría del Concejo de esta Municipalidad al teléfono 2269-5206, ext 106.
 h) Este documento ha sido preparado por la Comisión Especial para el nombramiento del Auditor Interno de la Municipalidad de Santa Barbara.
+i. Que los candidatos integrantes de la nómina seleccionada no tienen impedimento alguno para ser designados en dicho cargo, según la verificación realizada por la institución promovente del concurso.
+(Así adicionado el inciso anterior mediante sesión N° 74-2021 del 27 de setiembre del 2021)

@@ -7,6 +7,7 @@ e) Verificar los requisitos, que debe ostentar el Auditor Interno, para desarrol
 f) Definir y coordinar el proceso de publicación y publicidad del Concurso Público para llenar la plaza de Auditor Interno lo cual deberá hacerse en un periódico de circulación nacional y como mínimo deberá contener los requisitos básicos solicitados para el puesto, la fecha, sitio y la forma en la que se recibirán las ofertas.
 g) Revisar y estudiar los atestados de todos los interesados que participen en el proceso de nombramiento para el cargo de Auditor Interno.
 h) Verificar que los oferentes, además de cumplir con los requisitos establecidos, no tengan impedimento legal, reglamentario o de otra naturaleza para ocupar el cargo.
-i) Recomendar de acuerdo con los parámetros de la tabla de valoración y ponderación que se defina al respecto, una terna de aspirantes que será sometida a conocimiento del Concejo Municipal para la decisión correspondiente.
+i) Recomendar de acuerdo con los parámetros de la tabla de valoración y ponderación que se defina al respecto, una nómina de aspirantes que será sometida a conocimiento del Concejo Municipal para la decisión correspondiente.
+(Así reformado el inciso anterior mediante sesión N° 74-2021 del 27 de setiembre del 2021)
 j) Preparar el informe final que será remitido a la Contraloría General de la República
 con indicación del proceso y sus resultados.
