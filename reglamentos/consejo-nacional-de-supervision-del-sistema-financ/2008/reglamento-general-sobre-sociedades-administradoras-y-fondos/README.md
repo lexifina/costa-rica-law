@@ -37,3 +37,4 @@ Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
 | 22 | 2020-10-12 | Reglamento 1611 (2020-10-12) |
 | 23 | 2020-11-16 | Reglamento 1620 (2020-11-16) |
 | 24 | 2020-12-10 | Reglamento 1630 (2020-12-10) |
+| 25 | 2021-09-27 | Reglamento 1690 (2021-09-27) |
