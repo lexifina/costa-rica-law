@@ -15,3 +15,4 @@ Reforma Sanciones que se impondrán ante el incumplimiento de las disposiciones 
 | --- | --- | --- |
 | 1 | 2020-12-11 | la propia norma |
 | 2 | 2021-04-29 | Resolución 945 (2021-04-29) |
+| 3 | 2021-09-27 | Resolución 6526 (2021-09-27) |
