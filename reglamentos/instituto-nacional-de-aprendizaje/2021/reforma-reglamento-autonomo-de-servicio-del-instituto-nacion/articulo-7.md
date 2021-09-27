@@ -1,0 +1,5 @@
+Artículo 7º-Refórmese el artículo 38 del Reglamento Autónomo de Servicios del Instituto Nacional de Aprendizaje, para que en adelante se lea así:
+"Artículo 38.-Constancia de incapacidad: Cuando un servidor se encuentre incapacitado por razón de enfermedad, maternidad o riesgo profesional, deberá demostrar tal estado mediante dictamen extendido por la Caja Costarricense de Seguro Social o del Instituto Nacional de Seguros, en su caso. Únicamente se aceptará el dictamen médico particular cuando la incapacidad sea hasta por máximo de cuatro días. En todos los casos el servidor deberá presentar la constancia de incapacidad a su jefe inmediato dentro de los dos días hábiles siguientes a la fecha en fecha en que surgió el impedimento para laborar."
+(Reformado en la sesión 1951 del 25 de agosto de 1982. Publicado en La Gaceta Nº 185 del 27 de setiembre del 1982).
+(Reformado mediante acuerdo de Junta Directiva 077-87 Sesión Nº 2394 del 06 abril de 1987, publicado en La Gaceta Nº 93 del 18 de mayo de 1987).
+(Reformado mediante acuerdo JD-AC-298-2021 tomado en la sesión ordinaria número 33-2021 celebrada el 06 de setiembre del 2021).
