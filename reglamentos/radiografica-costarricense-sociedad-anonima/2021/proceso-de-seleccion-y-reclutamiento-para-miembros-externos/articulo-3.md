@@ -1,0 +1,1 @@
+Artículo 3º-Principios que rigen la selección y reclutamiento. El proceso de selección de los miembros externos de los Comités de Apoyo de la Junta Directiva de RACSA considerará la aplicación de los siguientes principios rectores: libre concurrencia, igualdad de trato, publicidad, transparencia, seguridad jurídica, idoneidad comprobada, buena fe y paridad de género.

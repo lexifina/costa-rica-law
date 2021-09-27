@@ -1,0 +1,2 @@
+Artículo 4º-Responsabilidad de la confección y actualización del perfil. La Comisión de Remuneraciones y Nominaciones con instrucción de la Junta Directiva de RACSA confecciona y actualiza el perfil de los miembros externos de todos los Comités de Apoyo, cada dos años.
+Para esta actividad considerará además características técnicas, legales, de mercado, de talento humano, entre otras variables que sean de interés para la empresa.
