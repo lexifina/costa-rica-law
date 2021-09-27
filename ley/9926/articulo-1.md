@@ -13,3 +13,4 @@ INCISO B: DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBI
 (Así reformado por el artículo 1° de la ley N° 9942 del 25 de enero del 2021)
 (Así reformado por el artículo 1° de la ley N° 9970 del 12 de marzo del 2021)
 (Así reformado por el artículo 1° de la ley N° 10035 del 1° de setiembre del 2021)
+(Así reformado por el artículo 1° de la ley N° 10045 de 27 de setiembre de 2021)

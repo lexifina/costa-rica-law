@@ -31,3 +31,5 @@ PUESTO CLASE
 TOTAL MINISTERIO DE EDUCACIÓN PÚBLICA= 7")
 (Modificado por el artículo 1° del decreto ejecutivo N° 43232 del 15 de setiembre de 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43224 del 24 de setiembre del 2021)
+(Así reformado por el artículo 2° de la ley N° 10045 de 27 de setiembre de 2021)
+(Así reformado por el artículo 3° de la ley N° 10045 de 27 de setiembre de 2021)
