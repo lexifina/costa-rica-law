@@ -14,3 +14,4 @@ Disposiciones Administrativas para la clausura de establecimientos comerciales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-03 | la propia norma |
+| 2 | 2021-09-27 | Resolución 6526 (2021-09-27) |
