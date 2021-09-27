@@ -1,0 +1,2 @@
+Artículo 11.-Rige. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Elaborado por la Gerencia de Negocios ESFERA del Banco de Costa Rica actuando como FIDUCIARIO responsable del Fidecomiso FONATT JADGME BCR Bicentenario; y así mismo revisado por el Equipo Técnico de la JADME y aprobado por el FIDEICOMITENTE según consta en el acuerdo N°7 adoptado en la sesión ordinaria de la Junta Administrativa de la Dirección General de Migración y Extranjería (JADGME) N°43 el 24 de agosto de 2021.
