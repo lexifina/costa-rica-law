@@ -1,0 +1,1 @@
+Artículo 2º-Alcance del reglamento. El presente reglamento es de acatamiento obligatorio para las partes del Contrato de Fideicomiso, así como para todas las personas físicas o jurídicas involucradas, en el proceso de adquisición de bienes y servicios necesarios para el cumplimiento de los objetivos establecidos en el Contrato de Fideicomiso.
