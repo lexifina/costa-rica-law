@@ -1,0 +1,1 @@
+Artículo 29.—De previo a remitir el informe indicado en el artículo anterior, la secretaria del concejo verificará si han ingresado informes presentados ante este órgano colegiado en apego a lo requerido; o bien, con información parcial o aclaratoria en relación con los acuerdos que se han adoptado que permita establecer si los acuerdos pendientes mantienen un interés actual.

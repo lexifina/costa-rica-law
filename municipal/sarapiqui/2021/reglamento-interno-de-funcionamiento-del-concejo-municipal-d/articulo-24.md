@@ -1,0 +1,1 @@
+Artículo 24.—Actas de las Comisiones. Cada comisión deberá llevar actas en hojas removibles foliadas que recojan de manera concisa lo acontecido en sus reuniones, las cuales contendrán los siguientes elementos: encabezado, fecha, número de la reunión, asistentes, firmas, asuntos tratados y sus respectivos acuerdos y serán insertadas en el libro correspondiente.

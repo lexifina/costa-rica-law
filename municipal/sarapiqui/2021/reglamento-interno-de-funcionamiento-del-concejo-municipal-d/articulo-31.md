@@ -1,0 +1,5 @@
+Artículo 31.—Plazos para absolver las solicitudes del concejo. Los funcionarios públicos municipales contarán con los siguientes plazos para atender los requerimientos del concejo acordados en firme, sin perjuicio de que puedan ser prorrogados a solicitud de parte, atendiendo la complejidad del asunto sometido a resolución o a situaciones calificadas sobrevenidas:
+a) Dos días hábiles para presentar informes sobre recursos de amparo dirigidos contra el concejo que deban ser suscritos por el presidente.
+b) Diez días hábiles para la presentación de informes o dictámenes técnicos, jurídicos, de comisión o de auditoría de carácter especial.
+c) Noventa días hábiles para la presentación de proyectos de actos de alcance general, siempre que no se solicite simultáneamente la elaboración durante ese lapso de nueva normativa o su reforma, en cuyo caso se extenderá por un período igual para cada proyecto requerido.
+d) Cinco días hábiles para la presentación de proyectos de resolución sobre recursos de revocatoria que se interpongan contra los acuerdos del concejo o de apelación sobre las actuaciones de sus funcionarios subordinados.

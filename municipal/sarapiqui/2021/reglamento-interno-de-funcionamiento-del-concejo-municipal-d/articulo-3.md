@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las sesiones y reuniones
+Artículo 3°-Día y hora de las sesiones ordinarias. En la primera sesión solemne de instalación señalada en el artículo 29 del Código Municipal, el concejo definirá por mayoría simple el día y hora de las sesiones ordinarias semanales, ordenando su publicación en el Diario Oficial La Gaceta salvo que se decida mantener sin variación el acuerdo vigente adoptado sobre el particular. El concejo tiene la potestad de cambiar la hora y fecha de las sesiones ordinarias en cualquier momento, previa publicación en el referido diario. Las sesiones ordinarias que coincidan con la celebración de algún día feriado o decretado como asueto por el Poder Ejecutivo, se celebrarán el día hábil siguiente a la misma hora.

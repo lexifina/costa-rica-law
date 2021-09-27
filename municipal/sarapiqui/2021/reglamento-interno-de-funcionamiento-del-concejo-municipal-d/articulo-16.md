@@ -1,0 +1,1 @@
+Artículo 16.—Comparecencia de funcionarios municipales. Cualquier funcionario de la municipalidad podrá ser llamado a las sesiones o reuniones del concejo municipal para que exponga situaciones de las que tenga conocimiento en el ejercicio de sus funciones, sin que pueda negarse a asistir, salvo por causa justa debidamente demostrada.

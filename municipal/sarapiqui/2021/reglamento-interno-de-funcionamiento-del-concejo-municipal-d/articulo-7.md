@@ -1,0 +1,1 @@
+Artículo 7°-Permisos para retirarse momentáneamente de la sesión. Los permisos para ausentarse brevemente de una sesión los otorgará verbalmente el presidente del concejo, los que no podrán exceder de diez minutos. Si transcurrido ese tiempo el regidor o síndico no se incorpora a la sesión, perderá su derecho al pago de dieta.

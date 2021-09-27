@@ -1,0 +1,1 @@
+Artículo 25.—Libro de Actas de las Comisiones. La secretaria municipal remitirá un libro de actas de hojas removibles debidamente foliado para cada comisión, el cual deberá ser autorizado por la Auditoría Interna mediante razón de apertura para el fortalecimiento del control interno, conforme lo dispone el artículo 22 inciso e) de la Ley General de Control Interno.

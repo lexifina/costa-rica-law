@@ -1,0 +1,3 @@
+CAPÍTULO V
+Comisiones Municipales
+Artículo 20.—De la función y naturaleza consultiva de las comisiones. Todas las comisiones municipales son por excelencia asesoras especialistas del concejo en la materia correspondiente o en el asunto asignado; por ello, reciben solicitudes expresas para preparar y emitir recomendaciones, dictámenes o informes no vinculantes que servirán de motivación para la toma de decisiones. Las comisiones deberán ser conformadas de forma equilibrada, procurando nombrar miembros conocedores del tema de todos los partidos políticos representados en el gobierno local, logrando la paridad y equidad de género, la participación de la sociedad civil y los vecinos.
