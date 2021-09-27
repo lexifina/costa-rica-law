@@ -14,3 +14,4 @@ Reglamento del concurso para la selección y nombramiento en el puesto auditor i
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-26 | la propia norma |
+| 2 | 2021-09-27 | Reglamento 71 (2021-09-27) |
