@@ -17,3 +17,4 @@ Sanciones que se impondrán ante el incumplimiento de las disposiciones emitidas
 | 2 | 2020-07-03 | Resolución 3635 (2020-07-03) |
 | 3 | 2020-12-07 | Resolución 7906 (2020-12-07) |
 | 4 | 2021-04-29 | Resolución 945 (2021-04-29) |
+| 5 | 2021-09-27 | Resolución 6526 (2021-09-27) |
