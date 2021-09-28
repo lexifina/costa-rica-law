@@ -1,1 +1,0 @@
-Artículo 9º—Remoción de Obstáculos en las zonas de estacionamiento. Todos aquellos obstáculos que sean ubicados en las zonas de estacionamiento, serán eliminados o removidos en coordinación con la autoridad respectiva.

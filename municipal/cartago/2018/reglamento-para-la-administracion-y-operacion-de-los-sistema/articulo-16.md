@@ -1,1 +1,0 @@
-Artículo 16.—Descuento por la comercialización de tarjetas digitales. En el caso de las tarjetas digitales, se hará una liquidación del tiempo consumido, en los primeros días de cada mes, a fin de aplicar el respectivo descuento, cuando sea mayor a las cien horas de venta de tiempo.

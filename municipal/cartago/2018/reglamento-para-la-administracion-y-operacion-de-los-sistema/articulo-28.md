@@ -1,1 +1,0 @@
-Artículo 28.—Comprobante en caso de reclamos. Al descargar la aplicación y registrarse, el usuario podrá comprar el tiempo que necesite. El sistema le generará una boleta digital, como comprobante, en caso de que requiera hacer una reclamación.

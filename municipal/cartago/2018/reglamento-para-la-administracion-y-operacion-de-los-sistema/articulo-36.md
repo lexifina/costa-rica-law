@@ -1,1 +1,0 @@
-Artículo 36.—Determinación del valor. El valor del marchamo se determinará multiplicando el valor de una hora del servicio, por el horario de estacionamiento dentro de la zona horaria, por los días del respectivo mes, con un ochenta por ciento de descuento.

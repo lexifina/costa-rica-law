@@ -1,1 +1,0 @@
-Artículo 27.—Forma de obtención. Podrán ser obtenidas; mediante una aplicación móvil que los interesados descargarán en forma gratuita, tanto para los sistemas operativos IOS (Apple) como para Android.

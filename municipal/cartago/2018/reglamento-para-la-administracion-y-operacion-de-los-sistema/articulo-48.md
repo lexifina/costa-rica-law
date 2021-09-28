@@ -1,1 +1,0 @@
-Artículo 48.—Remoción de vehículos. Una vez infraccionado un vehículo por aplicación de las presentes disposiciones normativas, la Municipalidad, coordinará con las autoridades de tránsito la remoción del vehículo de la zona respectiva.

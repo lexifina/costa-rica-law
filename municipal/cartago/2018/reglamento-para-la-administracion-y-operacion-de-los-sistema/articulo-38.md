@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Sobre las sanciones
-Artículo 38.—Competencias del Departamento de Estacionómetros y Terminales (Parquímetros): El Departamento de Estacionómetros y Terminales (Parquímetros) tendrá a su cargo el ordenamiento, regulación y vigilancia del estacionamiento de vehículos en el cantón de Cartago. Asimismo, estará obligado a velar por la aplicación de este reglamento y a sancionar cualquier infracción a la Ley de Instalación de Estacionómetros, Número 3580. A esos fines, sus funcionarios estarán investidos de toda autoridad para las actuaciones oficiales de acuerdo con lo establecido en la ley indicada.

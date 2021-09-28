@@ -1,1 +1,0 @@
-Artículo 35.—Lugar de obtención. Los marchamos serán adquiridos y expedidos en la Tesorería Municipal. Para tales efectos, el interesado deberá cancelar por adelantado la tarifa correspondiente al marchamo adquirido de acuerdo con la modalidad del artículo anterior.

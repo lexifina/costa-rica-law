@@ -1,1 +1,0 @@
-Artículo 42.—Lugares y formas de pago. La multa podrá ser cancelada inmediatamente después de ser impuesta, en la Tesorería Municipal sin perjuicio de cualquier otro lugar que al efecto disponga la municipalidad para mayor facilidad de pago.

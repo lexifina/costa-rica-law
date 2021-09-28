@@ -1,1 +1,0 @@
-Artículo 39.—Competencias sobre la materia de estacionómetros y terminales de la Policía Municipal. Sin perjuicio de lo anterior, esa competencia podrá ser ejercida en todos sus alcances por el Área de Seguridad Comunitaria a través de la Policía Municipal.

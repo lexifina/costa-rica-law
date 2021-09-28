@@ -1,1 +1,0 @@
-Artículo 8º—Horario de las zonas de estacionamiento. El horario para el funcionamiento, uso y fiscalización de las zonas de estacionamiento será todos los días de la semana, entre las 7:00 am y las 6 pm.

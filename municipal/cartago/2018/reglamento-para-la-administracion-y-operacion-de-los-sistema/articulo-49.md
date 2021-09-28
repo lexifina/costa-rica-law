@@ -1,1 +1,0 @@
-Artículo 49.—Aplicación de la normativa penal. Quedarán sujetos a las correspondientes sanciones que indica la normativa penal, aquellos propietarios de vehículos que cometan alteraciones o fraudes con las tarjetas de estacionamiento, o respecto del uso de las aplicaciones o dispositivos utilizados en las zonas de sensores.
