@@ -14,3 +14,4 @@ Modifica estructura del Arancel Nacional a doce dígitos, de las partidas 39.23 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-03 | la propia norma |
+| 2 | 2021-09-28 | Resolución 352 (2021-09-28) |

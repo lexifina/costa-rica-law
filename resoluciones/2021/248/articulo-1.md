@@ -15,4 +15,6 @@ Con fundamento en las consideraciones de hecho y derecho de cita, potestades y d
 3 Las Agencias y Agentes de Aduanas y demás Auxiliares de la Función Pública, deberán realizar la correspondiente actualización en el Arancel que cada uno utilice.
 4 Publíquese en el Diario Oficial La Gaceta.
 5 La presente resolución rige diez días hábiles posteriores a su publicación.
+7 Rige cinco días hábiles posteriores a su publicación
 [imagen]
+(Así reformado el arancel anterior mediante Resolución N° RES-DGA-352-2021 del 28 de setiembre del 2021)
