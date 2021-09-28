@@ -28,3 +28,4 @@ Reglamento de información financiera
 | 13 | 2021-01-28 | Reglamento 1640 (2021-01-28) |
 | 14 | 2021-07-19 | Reglamento 1674 (2021-07-19) |
 | 15 | 2021-08-23 | Reglamento 1682 (2021-08-23) |
+| 16 | 2021-09-28 | Resolución 2813 (2021-09-28) |
