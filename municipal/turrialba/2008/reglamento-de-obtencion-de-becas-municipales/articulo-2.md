@@ -1,1 +1,0 @@
-Artículo 2º—Crease el Programa de Becas Municipales de la Municipalidad de Turrialba, con el objetivo de ayudar a los estudiantes del Cantón que tengan limitaciones económicas y que contengan una probada capacidad para el estudio.

@@ -1,1 +1,0 @@
-Artículo 4º—La cantidad general de becas municipales serán distribuidas proporcionalmente entre todos los distritos administrativos del Cantón, según la cantidad de estudiantes de secundaria inscrito en cada distrito. Este dato estadístico debe ser obtenido por la Comisión Municipal de Becas con los Colegios respectivos del Cantón, durante el mes de Enero de cada año lectivo.

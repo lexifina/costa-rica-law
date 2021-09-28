@@ -1,1 +1,0 @@
-Artículo 5º—Se determina que la nota mínima para aspirar y/o mantener una beca municipal, será la nota mínima establecida por las autoridades competentes del Ministerio de Educación Pública, sea esta en materias ordinarias, especiales o de conducta.

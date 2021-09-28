@@ -1,1 +1,0 @@
-Artículo 7º—Ningún beneficiario de las becas municipales podrán ser a la vez beneficiario de otro subsidio oficial de los programas del Gobierno de la República. La comprobación a la violación de este artículo significará el retiro automático de la beca municipal.

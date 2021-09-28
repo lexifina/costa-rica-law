@@ -1,1 +1,0 @@
-Artículo 8º—Los Concejos de Distrito son los responsables de proponer a la Comisión Municipal de Becas, a los beneficiarios de las Becas Municipales, en la cantidad respectiva que anticipadamente se les hubiese informado por parte de la Comisión. (Artículo 57 inciso a) del Código Municipal vigente).

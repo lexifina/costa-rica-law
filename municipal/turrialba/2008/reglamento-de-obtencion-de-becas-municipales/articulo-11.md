@@ -1,1 +1,0 @@
-Artículo 11.—La Comisión Municipal de Becas se reserva el derecho de verificar la información aportada por los beneficiarios e igualmente solicitarle a la Administración Municipal la colaboración para conocer otros particulares de los interesados en obtener una beca municipal.
