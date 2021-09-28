@@ -1,0 +1,1 @@
+Artículo 6°-De entre los proyectos presentados a concurso, el Jurado preseleccionará los que considere necesarios para presentar una defensa oral y pública de su proyecto; luego de la cual el Jurado emitirá su veredicto final dentro de los siguientes ocho días hábiles.
