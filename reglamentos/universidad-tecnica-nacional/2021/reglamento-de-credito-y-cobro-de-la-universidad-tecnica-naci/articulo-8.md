@@ -1,0 +1,1 @@
+ARTÍCULO 8. Responsabilidad de los cajeros en la emisión, control y la custodia de las Garantías de Pago. Es responsabilidad del personal de cajas asignados en las Sedes o Centros Universitarios, la emisión, el control y custodia de las garantías derivadas de las prórrogas de pago según corresponda.

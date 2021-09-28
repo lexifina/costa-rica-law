@@ -1,0 +1,1 @@
+ARTÍCULO 38. Propuesta de la declaratoria de incobrable. En la tramitación de cobros judiciales, la propuesta de la declaratoria de incobrable por parte de la Dirección General de Asuntos Jurídicos en coordinación con la Dirección de Gestión Financiera, deberá justificarse por escrito de forma motivada y razonada, así como aportar la prueba suficiente ante la Rectoría.

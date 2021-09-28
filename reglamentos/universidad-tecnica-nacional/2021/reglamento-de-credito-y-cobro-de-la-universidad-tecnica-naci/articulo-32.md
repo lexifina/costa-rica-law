@@ -1,0 +1,1 @@
+ARTÍCULO 32. Incumplimiento del arreglo de pago. El incumplimiento del arreglo de pago prohíbe a la persona deudora solicitar un nuevo arreglo de pago y faculta a la autoridad correspondiente a la ejecución de la letra de cambio por medio de la Dirección General de Asuntos Jurídicos.

@@ -1,0 +1,2 @@
+ARTÍCULO 6. Responsabilidad de la Jefatura del Área de Tesorería en la gestión de crédito. Es responsabilidad de la jefatura del Área de Tesorería emitir el criterio técnico sobre las solicitudes de crédito presentadas ante la Tesorería y remitir el expediente del crédito a la Dirección de Gestión Financiera para su aval o rechazo.
+Control y Custodia de las Garantías (Excepto las derivadas de prórrogas de pago emitidas en Sede Atenas, Sede San Carlos, Sede Guanacaste, Sede Pacifico y Centro de Formación)

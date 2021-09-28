@@ -1,0 +1,1 @@
+ARTÍCULO 26. Responsabilidad de la Dirección de Gestión Financiera. Es responsabilidad de la Dirección de Gestión Financiera aprobar el criterio técnico emitido por el Área de Tesorería y remitir el expediente, a la Rectoría, la Decanatura o Dirección Ejecutiva, según corresponda, para su aprobación o rechazo.
