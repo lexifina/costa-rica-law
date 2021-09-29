@@ -5,3 +5,4 @@ Artículo 3°:Apruébense los siguientes Egresos Ordinarios y Extraordinarios de
 (Modificado por el artículo 1° del decreto ejecutivo N° 42919 del 7 de abril del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43069 del 24 de junio del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43141 del 7 de julio del 2021)
+(Así reformado por el artículo 3° de la ley N° 10035 del 1° de setiembre del 2021)
