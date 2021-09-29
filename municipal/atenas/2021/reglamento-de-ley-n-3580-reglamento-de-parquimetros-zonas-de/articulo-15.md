@@ -1,0 +1,1 @@
+Artículo 15. -Comprobación del pago de tarifas: Se aceptará como comprobación del pago, tiquetes de pago, Boucher de tarjeta, el que emita el dispositivo utilizado para tal fin, descarga de tiquete y medios de verificación de los sistemas digitales utilizados por la municipalidad.
