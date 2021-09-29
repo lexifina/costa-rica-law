@@ -31,3 +31,4 @@ Funcionamiento de las instituciones estatales durante la declaratoria de emergen
 | 16 | 2021-07-09 | Directriz 118 (2021-07-09) |
 | 17 | 2021-08-06 | Directriz 119 (2021-08-06) |
 | 18 | 2021-08-31 | Directriz 121 (2021-08-31) |
+| 19 | 2021-09-29 | Directriz 123 (2021-09-29) |
