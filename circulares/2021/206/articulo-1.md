@@ -1,0 +1,159 @@
+CIRCULAR N° 206-2021
+ASUNTO: Reiteración de la circular N° 50-2021 sobre la "Guía práctica de comunicaciones judiciales, la cual lleva adjunta las "Reglas generales que contemplan la Ley de Notificaciones Judiciales.-
+A LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+Que Consejo Superior del Poder Judicial, en sesión N° 71-2021 celebrada el 19 de agosto del 2021, artículo LXIII, en lo que interesa, se dispuso reiterar la circular N° 50-2021 sobre la "Guía práctica de comunicaciones judiciales, la cual lleva adjunta las "Reglas generales que contemplan la Ley de Notificaciones Judiciales, que literalmente dice:
+"El Consejo Superior del Poder Judicial en sesión N° 15-2021, celebrada el 23 de febrero de 2021, artículo LII, dispuso a solicitud de la Comisión de Comunicaciones divulgar a todos los despachos jurisdiccionales del país, la Guía práctica de comunicaciones judiciales, la cual lleva adjunta las Reglas generales que contemplan la Ley de Notificaciones Judiciales:
+"GUÍA PRÁCTICA DE COMUNICACIONES JUDICIALES
+CAPITULO I:
+Generalidades sobre notificaciones
+1.1 Concepto y su aplicación
+La notificación es un acto procesal de comunicación, el cual tiene por objetivo poner en conocimiento de las partes y otros interesados las resoluciones que dicta el juez o jueza del Juzgado o Tribunal en un proceso judicial ó el órgano director en los procesos administrativos.
+Su característica fundamental es dar a conocer el contenido de las resoluciones judiciales ó de los procesos administrativos.
+Esos actos de comunicación entre el Tribunal o Juzgado y los sujetos procesales se denominan notificaciones la cuales se encuentran reguladas en la Ley de Notificaciones Judiciales.
+Esta normativa contiene disposiciones generales sobre notificaciones y será aplicable a todas las materias. Las situaciones que, por su particularidad o especialidad, no queden reguladas en la presente guía, se reservarán para la normativa respectiva.
+1.2 Quiénes pueden notificar
+Las personas que pueden realizar de forma legítima un acto de notificación son los siguientes:
+o Juez o Jueza (Tribunal o Juzgado)
+o Técnicos Judiciales de los Juzgados, Tribunales y Salas
+o Técnico (a) en Comunicaciones (Oficina de Comunicaciones Judiciales)
+o Jefes o coordinadores de las Oficinas de Comunicaciones Judiciales
+o Fuerza Pública
+o Notario (a) Público (a)
+o Personal de Correos de Costa Rica
+Dado lo anterior, es necesario hacer énfasis en analizar el acto que se debe realizar en la notificación personal, por lo que, a continuación se describe un esquema en donde se detalla las formas en que se puede realizar la notificación tanto a la persona física como personas jurídicas.
+Esquema N° 1
+Notificación Personal
+[imagen]
+1.3 Notificaciones Personales:
+Las notificaciones personales se deben entender como aquella que se realiza directamente con la persona, por lo cual el lugar donde se realice la misma carece de importancia.
+Cuando se trate de notificaciones para personas que se encuentran en su lugar de trabajo, estas se deben llevar a cabo, única y exclusivamente en forma personal. Se causa una indefensión a la parte o partes a notificar, si se deja con el jefe o con un compañero, secretaria, etc).
+Por otro lado; todas las personas físicas y jurídicas deben actualizar sus direcciones, casa de habitación y sede social en los respectivos registros, caso contrario, se les podrá nombrar eventualmente un curador que los represente.
+Tratándose de personas jurídicas, la notificación se tendrá por bien efectuada cuando se notifique a uno solo de sus personeros o representantes, ya sea en la casa de habitación de unos de los representante o en la dirección donde se encuentra la empresa. Aun cuando estos tengan una representación conjunta.
+Adicional a lo anterior, se debe analizar los conceptos de: Domicilio real, registral y casa de habitación, ya que en la actualidad los tres conceptos deben ser coincidentes unos de otros, ello en virtud de que la propia ley estableció como requisito la obligación de mantener actualizado su domicilio en el registro respectivo, el cual debe coincidir con la casa de habitación, que a su vez, corresponde al domicilio real de la persona a notificar.
+En estos casos, la cédula de notificación podrá ser entregada a cualquier persona que aparente ser mayor de quince años, y se halle en la casa de habitación. En cuanto a materia de Familia, Violencia Doméstica y
+Pensiones Alimentarías por ser conflictos de orden familiar la certeza de que el notificado habite en ese lugar debe ser aún mayor.
+Cuando se trata de un menor de edad, es recomendable efectuar una pequeña descripción de la persona.
+El domicilio contractual de una persona física necesariamente debe ser su casa de habitación y de una persona jurídica su sede social. Por ende, no es posible indicar como domicilio contractual un bufete, oficinas, o cualquier otro lugar.
+1.4 Notificaciones a Personas Jurídicas (Art 20 LNJ)
+Algunos aspectos que son fundamentales de considerar para la realización de las notificaciones a personas jurídicas son las siguientes:
+a) Personalmente al apoderado: Al igual que en las notificaciones de carácter personal, no interesa el lugar cuando el apoderado es notificado personalmente y a él se le hace entrega de la notificación.
+b) Casa de Habitación del Apoderado: Es indudable que una sociedad queda debidamente notificada cuando el acto de comunicación se realiza en la casa de habitación del apoderado con las salvedades arriba expuestas.
+c) Domicilio Contractual : Para las personas jurídicas esta forma de notificar que consta en el documento base de la demanda, debe necesariamente coincidir con su sede social (domicilio social).
+d) Sede Social: La persona jurídica queda bien notificada cuando el notificador o notificadora se apersona en la dirección indicada como domicilio social, ya sea el inscrito ante el Registro Nacional de la Propiedad, o el domicilio en que se encuentra ubicado físicamente, siendo aplicable lo arriba indicado sobre domicilio real.
+e) Agente Residente: Esta manera de notificar a las personas jurídicas es la que contiene mayores limitaciones. Solo se puede acudir a la notificación con el Agente Residente cuando se tenga previa demostración idónea en el proceso, de que los apoderados de la sociedad se encuentran fuera del país. Por ello, el juzgador es responsable de consignarlo así en la resolución que ordena la notificación.
+1.5 Notificaciones por Notario:
+En la Ley de Notificaciones contempla tres variables fundamentales que debe de valorarse para verificar la legitimidad del acto en las notificaciones por medio de notario: Nombramiento, Habilitación y Confección del acta.
+En el artículo 31 de la Ley de Notificaciones se establece que la parte interesada de utilizar esta forma de notificación debe de indicar el nombre del notario (a) que va a realizar el acto de notificación, ya sea de forma verbal o por escrito con el fin de que el despacho tome nota de lo indicado en el auto de traslado.
+El notario designado no deberá tener interés en el proceso, y se le aplican los derechos y deberes de todo notificador. Puede notificar dentro del territorio nacional o fuera de él.
+Debe considerarse, cuando la parte no le indique al despacho previamente el nombre del notario; o bien, a pesar de que la oficina judicial no hubiere resuelto el escrito donde se le nombra; la notificación efectuada en esas condiciones no perderá validez a menos que del análisis posterior, no supere los requisitos arriba expuestos.
+1.6 Acta de Notificación:
+El acta de notificación debe contener toda la información de lo actuado por la persona que realizó el acto de notificación, con el fin de garantizar la certeza jurídica de lo actuado dentro del proceso judicial.
+Al acta de notificación se le puede agregar:
+a) 1-En el domicilio Real
+b) 2- En el domicilio Registral
+c) 3-Agente Residente
+[imagen]
+El acta de notificación debe contener:
+1) Identificación y el ejercicio de la actividad jurisdiccional del órgano que la ejerce.
+2) Número de expediente que identifique el proceso judicial.
+3) Fecha y hora de la resolución
+4) Nombre del notificando
+5) Tanto en el acta como en la cédula de notificación se debe consignar la fecha y hora en que se lleva a cabo el acto de notificación.
+6) Nombre y firma de la persona que recibe la notificación, así como indicar la forma en que se procedió a dejar la misma.
+7) Indicación de la entrega de copias de ley.
+8) Tanto en el acta como en la cédula de notificación se debe indicar el nombre y la firma del funcionario que llevo a cabo la comunicación.
+En aplicación de los principios de seguridad y certeza jurídica, en caso de que no se localice al notificando o en su efecto surge alguna situación particular a la hora de proceder a llevar a cabo la notificación, se debe proceder a consignar una constancia clara y precisa, con todos aquellos acontecimientos o circunstancias que se dieron durante su ejecución, que resulten útiles a las y los Jueces para resolver un eventual incidente de nulidad y/o para tomar una decisión jurisdiccional, las cuales se podrán dejar registradas de manera digital, en audio, video o fotografía en caso de tener este tipo de tecnología a disposición[1].
+CAPÍTULO II:
+Problemas frecuentes y posibles soluciones:
+A continuación, se presenta una compilación de los temas tratados en el taller de notificadores realizado en el mes de mayo del dos mil seis, en donde se llegaron a los siguientes criterios por parte de los participantes en asocio con los integrantes de la mesa principal [2], las cuales actualmente siguen existiendo estas situaciones en el trabajo de campo:
+2.1 Persona que destruye la notificación ante la autoridad antes de firmar el recibo, ó se niega a recibir la notificación [3]:
+Una vez identificada la persona, a la cual va dirigida la notificación que interesa, es a partir de ese momento, que comienza a materializarse la "Fe Pública" que goza el funcionario (a) competente a realizar el acto de comunicación. Es decir, se presenta el caso que la persona se identifica como tal y, al recibir la documentación pertinente (cédula y copias), procede a devolverla al funcionario (a), y se niega a recibirla o simplemente la desecha ante la presencia de aquel. En ese preciso momento, como se indica, la persona queda debidamente notificada y, es obligación y responsabilidad del funcionario (a), hacer la observación en el acta respectiva, que aquella persona se negó a firmar el recibido del documento, y además, la misma debe ser precisa y clara en detalle de lo acontecido.
+2.2 Persona que no puede o no sabe firmar:
+Al igual que el caso anterior, una vez identificada la persona, sea en su casa de habitación, domicilio social, representante o apoderado, etc., se procederá a la respectiva entrega de la documentación pertinente. Si la persona a quien se entregan los documentos, no puede o no sabe firmar, esto debe ser consignado por el funcionario (a) respectivo, en el acta que corresponde y proceder a indicarle a la persona que consigne su huella del dedo pulgar en el acta de notificación.
+2.3 Persona que presenta algún tipo de discapacidad[4]:
+Cuando la persona a notificar manifiesta que tiene un impedimento físico o mental para recibir la cedula de notificación y firmar el acta correspondiente, lo que procede es ejecutarla de forma accesible a su impedimento, como: entregar un audio, solicitar la asistencia de algún familiar, o en su efecto de la persona que el notificando solicite para su asistencia, respetando la autonomía que tiene para decidir la forma en que quiere ser notificado.
+Es importante, que el funcionario (a) responsable de realizar la misma, consigne en el acta de notificación, la forma en que se procedió a realizar el acto para garantizar que no se causó indefensión al notificando.
+Adicional a lo anterior, es importante incluir dentro de estas situaciones cuando se deba notificar a un extranjero que no habla español, en este aspecto se debe considerar lo establecido en las Reglas de Brasilia y realizar un acta detallada con la circunstancia de la limitación en cuanto a idioma para que sea el despacho el que indique la forma en que debe ser notificado.
+Es necesario que las personas que realicen los actos de notificación tengan conocimiento de la Ley N° 9379 "Ley para la Promoción de la Autonomía Personal de las Personas con Discapacidad". Publicada en el Alcance 153 de La Gaceta N° 166 de 30 de agosto de 2016, donde habla de los derechos y deberes de las personas con discapacidad.
+2.4 Destinatario que evade siempre a la autoridad escondiéndose o huyendo para no recibir la notificación que sólo puede realizar personalmente[5]:
+En estos casos, la normativa no es expresa en indicar que medida o acto se debe llevar a cabo al respecto. En teoría, es el interesado quien debe suministrar un lugar exacto en el cual se encuentre, o permanezca de manera fija, el notificando. Así como la hora precisa en la cual se pueda localizar el notificando. Posteriormente, será el Juez o Jueza, la Jefatura de la Oficina de Comunicaciones, o en su defecto, el mismo notificador (a) , quienes determinen el o los intentos para tratar de llevar a cabo la notificación.
+Adicional se debe considerar en todo momento la apertura de poder solicitar asistencia a la Fuerza Pública en caso necesario.
+2.6 Cuando la persona a notificar niega ser él:
+Cuando se tiene certeza de que la persona ubicada es el notificando, y éste niega ser la persona a notificar, el funcionario o funcionaria encargada de practicar la notificación está investido de autoridad para exigir la identificación debida de quien recibe la cédula, en caso de que éste se negare, puede solicitar ayuda de la policía administrativa a fin de cumplir con su cometido. (Artículo 8 Ley de Notificaciones Judiciales).
+2.7 Cuando se indica una persona y no un lugar para recibir notificaciones[6].
+Esta forma de proceder es incorrecta, por cuanto el artículo 34 de la Ley de Notificaciones indica expresamente que la parte señalará un medio o en los casos de las materias de pensiones alimentarias, agrario, laboral y violencia doméstica que pueden señalar un lugar para recibir notificaciones y no una "persona determinada". Por lo anterior, existe jurisprudencia al respecto en donde expresamente se indica lo expuesto en la normativa vigente. (ver anexo 4).
+2.8 Notificaciones en materia Penal:
+En cuanto a las notificaciones que se tramitan en materia penal, se debe de tener en cuenta que en dicha materia no aplica las notificaciones automáticas, por lo que se debe de realizar los intentos necesarios para poder realizar el acto de comunicación. BOLETÍN JUDICIAL Nº 187 - Pág 9
+En cuanto a las notificaciones que se deban realizar en centros penitenciarios, las mismas deben ser coordinadas en la secretaria de cada centro, con el fin de que trasladen al privado de libertad al lugar que ellos designen.
+2.9 Notificaciones en materia de Pensiones Alimentarías o Violencia Doméstica[7]
+En los casos atinentes a la materia de Familia y otras similares, deben atenderse las particularidades de cada caso, las consecuencias, implicaciones que se dan en los conflictos de orden familiar.
+Ante ello se recomienda actuar con la mayor prudencia y celeridad para no causar indefensión a ninguna de las partes, por lo que es importante tener en cuenta, cuando se deba notificar a una de ellas y esta tiene su residencia en el mismo recinto de la parte contraria, se debe de notificar en forma personal.
+2.10 Reformas procesales y su incidencia en las notificaciones :
+2.10.1 Reforma Laboral: Se debe considerar lo establecido en la Sección I, Disposiciones Varias, artículo 469 en donde establece las formas de notificar en materia laboral, así como el artículo 497 donde se habilita nuevamente tanto el medio como el lugar para atender notificaciones.
+2.10.2 Reforma Agraria: En cuanto a la materia agraria se debe de considerar el artículo 72 en donde se establece la forma en que se realizará la notificación asì como plazos para ejecutar la misma cuando es casos especiales que el despacho lo solicite, es por ello, que se recomienda estar en coordinación verbal con la oficina judicial que solicite la diligencia en caso de ser alguna comisión para evitar nulidades.
+En cuanto a las pruebas anticipadas, el artículo 168 establece que se puede señalar medio y lugar para recibir notificaciones.
+2.10.3 Reforma Procesal Civil: Se mantiene las mismas reglas establecidas en la Ley de Notificaciones Judiciales, conforme lo establece el artículo 29.2 "Comunicación de los actos procesales".
+Es importante mencionar que en las tres reformas antes citadas no se obliga aportar las copias de la documentación que aporte la parte actora, por ello se debe de tener cuidado de no ejecutar alguna notificación por ausencia de copias en estas materias.
+CAPITULO III:
+Reglas generales que complementan
+la ley de notificaciones
+3.1 Aspectos Administrativos:
+Con el fin de orientar aspectos operativos en el accionar de las personas que realizan el acto de notificación, el Consejo Superior del Poder Judicial, dispuso de acatamiento obligatorio una serie de reglas generales que complementen la Ley de Notificaciones Judiciales, con el fin de evitar costos operativos al ejecutar indebidamente una notificación.[8]
+Dentro de los aspectos administrativos indicados en dichas reglas generales se encuentran las siguientes:
+Dejar siempre constancia o razón en el acta de notificación del por qué resultó negativo o fracasó la ejecución del acto procesal de notificación en forma personal; así como de todos aquellos acontecimientos o circunstancias sobrevenidas durante su ejecución, que resulten útiles a las y los Jueces para resolver un eventual incidente de nulidad y/o para tomar una decisión jurisdiccional, las cuales se podrán dejar registradas de manera digital, en audio, video o fotografía en caso de tener este tipo de tecnología a disposición.
+Intentar la práctica efectiva del acto procesal de notificación en forma personal hasta por tres veces, en días y horas diferentes, aún de noche, cuando no hayan personas presentes en el lugar señalado al momento de ser llevado a cabo.
+Ejecutar el acto procesal de notificación en forma personal en el domicilio registral (artículo 21 de la Ley N°8687) como última opción, en aquellas materias regidas principalmente por el principio de oficialidad.
+Intensificar los controles y la supervisión mediante "operativos", por parte de las jefaturas de las oficinas de comunicaciones judiciales, con el fin de garantizar que el personal a su cargo esté localizando el lugar indicado para notificar en forma personal y ejecutando correctamente el acto procesal de notificación en forma personal.
+Registrar el número de teléfono propio de la persona notificada u otra de su confianza en el acta de notificación, cuando se está ejecutando el acto procesal de notificación en forma personal, para eficientar el posterior contacto del personal del despacho judicial con la persona notificada.
+Contribuir a establecer o a intensificar las relaciones de coordinación con el personal de los despachos judiciales, para facilitar las labores de consulta y verificación de los datos de la dirección aportados por las personas usuarias judiciales externas en ambos sentidos.
+Gestionar la colaboración de la parte interesada para ejecutar el acto procesal de notificación en forma personal, en materia Civil incluyendo los procesos cobratorios, para ubicar el lugar señalado y/o identificar a la persona que se deba notificar, ya sea en forma presencial o telefónicamente cuando haya aportado el número previamente, de lo cual se dejará constancia en el acta de notificación en forma personal.
+Gestionar la colaboración de personal de la Fuerza Pública, de la parte interesada, o de una persona capaz de identificar con certeza a la persona a notificar, cuando esta última no se identifica ante la solicitud de la o del Técnico en Comunicaciones Judiciales.
+Brindar seguridad personal obligatoria a las y los Técnicos en Comunicaciones Judiciales, cuando deban desplazarse a realizar actos procesales de notificación en forma personal o citación en lugares realmente peligrosos, por parte de la Fuerza Pública y/o del Organismo de Investigación Judicial, la cual deberá ser gestionada directamente a las jefaturas de las oficinas de comunicaciones judiciales.
+Realizar siempre el acto procesal de notificación en forma personal, aunque sea en forma tardía, es decir, con posterioridad a la fecha del señalamiento de la audiencia o del juicio, y señalar la razón por la que se llevó a cabo tardíamente la comunicación
+En materia de citaciones judiciales, ". si el Citador tiene conocimiento de la ubicación de la persona requerida, aún cuando la cita indique otra dirección que esté en completa disposición de realizarla.".
+Estas reglas generales lo que tratan de evitar es que se devuelva una notificación sin antes intentar todos los medios para diligenciarla de forma efectiva, o en su efecto brindar información que sirva de referencia para continuar el impulso procesal.
+3.2 Tramitación de las citaciones:
+Con respecto al tema de las citaciones, se debe tener en cuenta que si el comunicador (a) judicial tiene conocimiento de la ubicación de la persona requerida, aun cuando la cita indique otra dirección que esté en completa disposición de realizarla, conforme lo estableció el Consejo Superior mediante la circular 110-12. Pág 10 - BOLETÍN JUDICIAL Nº 187
+CAPITULO IV:
+Notificaciones por medios electrónicos
+4.1 Notificaciones por correo electrónico.
+Conforme lo establece el artículo 39 de la Ley de Notificaciones Judiciales, se debe registrar la cuenta del correo electrónico para recibir notificaciones en donde se debe validar dicha dirección por medio del área encargada de la Dirección de Tecnología para dicho fin.
+Los pasos para validar dicha cuenta son:
+Ingresar al sitio Web del Poder Judicial, seleccionar "Trámites en Línea".
+Seleccionar "Validación y Registro de la cuenta de correo para recibir notificaciones".
+Llenar el formulario con el documento de identificación, nombre, teléfono y dirección electrónica.
+Corroborar los datos y seleccionar "Enviar".
+Posterior a estos pasos se debe recibir un mensaje en el correo electrónico registrado para verificar el buen funcionamiento de la dirección que se indicó, se indica un enlace para que se acceda al mismo y aparecerá en la pantalla un mensaje para confirmar que la dirección de correo electrónica fue incluida en el sistema.
+Seguidamente se recibe un segundo mensaje para indicar que la cuenta ya fue validada, una vez recibido este último mensaje se debe comunicar al despacho en el cual se tramita el caso.
+4.2 Notificaciones por medio de gestión en línea.
+El Sistema de Gestión en Línea, brinda el servicio de notificación en línea a los litigantes y las litigantes y personas usuarias que participan en procesos judiciales, siempre y cuando señalen que su medio para recibir notificaciones es "gestión en línea". Los usuarios y las usuarias que serán notificadas por este medio, se beneficiaran por ser un servicio de entera confianza ya que sólo les bastará revisar la página web del Poder Judicial para verificar si han sido notificados o no. Además excluye los posibles inconvenientes que se les pudieran presentar al señalar otros medios de notificación.
+Se requiere credenciales de acceso para utilizar el servicio. Dichas credenciales se pueden obtener en los despachos judiciales, es requisito que la persona usuaria esté registrada o registrado como interviniente en las causas judiciales con su correcto número de identificación.
+4.3 Avisos por teléfono.
+La actualización de los datos de los intervinientes asociados a cada expediente es de suma importancia y, en este sentido, se posibilita el servicio de envío de avisos por teléfono móvil (SMS) a aquellas personas intervinientes de las causas. Para esto se debe completar la información de la persona relacionada con el número de teléfono móvil y si desea recibir este tipo de avisos.
+4.4 Problemas Frecuentes y posibles soluciones
+Al realizar notificaciones por medios electrónicos se pueden presentar problemas como los citados a continuación:
+Correo Electrónicos:
+Que la persona usuaria no reciba la notificación porque tiene la bandeja de entrada llena: El usuario tiene la responsabilidad de tener su correo y bandeja electrónica habilitada para recibir comunicaciones.
+Que la persona usuaria no reciba la notificación porque el correo llega a la bandeja de correos no deseados: Existe la posibilidad que el correo destino califique el correo electrónico del Poder Judicial, como correo no deseado. La solución es que la persona usuaria debe estar pendiente de estos correos y en el momento que llegue a este apartado, habilitarlo como correo válido.
+Que se señale como medio de notificaciones el correo electrónico pero no se realizará el trámite para validar y autorizar el correo electrónico como válido, por lo que el despacho no le enviara la notificación al correo electrónico señalado: La persona usuaria antes de registrar como medio de notificación correo electrónico, debe de asegurarse que el correo este autorizado y si no realizar el trámite correspondiente de validación de correo electrónico en la página del Poder Judicial.
+Gestión en línea:
+ñ Se indique que el medio de notificación es Gestión en Línea, pero los despachos judiciales no registren correctamente la cédula de la persona usuaria: El medio de gestión en línea, el requisito es que el número de identificación de la persona este registrada correctamente. Los despachos deben de velar y garantizar de registrar adecuadamente el número de identificación de las personas. En caso de que se de el problema, el despacho debe de corregirlo y volver a realizar el trámite de notificación. ñ Que la persona usuaria no revise sus notificaciones en la página de gestión en línea: El usuario debe de estar pendiente de sus notificaciones.
+Fax
+ñ Que el fax esté ocupado y pase los 5 intentos: En ocasiones las personas usuarias le dan continuo uso a sus faxes, esto puede provocar que los intentos de notificación que realiza la plataforma automática de envío de faxes del Poder Judicial coincidan con momentos donde la persona usuaria está utilizando su equipo, esto provoca que los intentos de envíos queden como fallidos y el envío de la notificación como NO diligenciada. En estos casos la persona usuaria puede contemplar la utilización de otros medios de notificación electrónicas como lo son correo electrónico o Gestión en Línea ya que estos no presentan esta limitante. El poder judicial trata de mitigar esta situación cumpliendo con lo indicado en la ley de notificaciones "se harán hasta cinco intentos para enviar el fax al número señalado, con intervalos de al menos treinta minutos, esos intentos se harán tres el primer día y dos el siguiente, estos dos últimos intentos deberán producirse en día hábil y después de las ocho horas." (Artículo 50, ley 86870).
+ñ Que el fax se quede sin cartucho o sin papel: Algunas veces, la plataforma de envíos automáticos de faxes de poder judicial detecta al realizar un intento de envío que el equipo de fax de la persona usuaria se quedó sin papel o cartucho; esto provoca que el intento de envío quede registrado como fallido. Es responsabilidad de la persona usuaria el mantener su equipo con los insumos necesarios que permitan un adecuado funcionamiento.
+ñ Que el fax llegue ilegible: En ocasiones, se puede presentar que la persona usuaria reciba un fax donde la información contenida es ilegible. La persona usuaria debe revisar si el cartucho de tinta de su equipo de fax es aún funcional; en caso de que lo sea, debe recurrir al despacho emisor de la notificación para que estos verifiquen si el documento enviado a notificar está correcto; en el caso de que el despacho indique que el documento está correcto, este debe realizar la consulta respectiva al personal de la Dirección de Informática del Poder Judicial para que se revise si se presentó algún problema en el envío del fax.
+ñ Que el fax llegue incompleto: Algunas veces puede presentarse que la persona usuaria reciba un fax incompleto (sin la totalidad de páginas que lo conforman). BOLETÍN JUDICIAL Nº 187 - Pág 11
+Para estos casos es recomendable que la persona usuaria consulte al despacho emisor o bien al Centro de Comunicaciones Judiciales (OCJ), si la notificación ya cumplió con los cinco intentos de ley, de ser así y la notificación quedó con resultado positivo, deben verificar si la resolución que se mandó a notificar está completo; si se determina que el documento está completo, deben realizar la consulta respectiva al personal de la Dirección de Informática del Poder Judicial para que se revise si se presentó algún problema en el envío del fax.
+ñ Que la persona usuaria no tenga el fax dedicado a la recepción de faxes: En ocasiones, la plataforma de envío automático de faxes del poder judicial realiza los intentos de envío y estos dan negativos debido a que en el número marcado contesta una persona en lugar del fax receptor, esto provoca que se gasten los 5 intentos de envío de ley y que finalmente la notificación quede con resultado negativo; para solventar esta situación es necesario que la persona usuaria tenga su equipo de fax dedicado a la recepción de faxes. (Consejo Superior, Sesión Nª 70-02 del 19 de setiembre del 2002 y publicado en el Boletín Judicial 202 del 21 de octubre de 2002).
+CAPITULO V:
+Información importante sobre las
+notificaciones judiciales
+5.1 Todos los días y horas son hábiles para notificar.
+5.2 Para aplicar el artículo 4 de la Ley de Notificaciones Judiciales, la resolución ordenará permitir el ingreso del funcionario notificador; si el ingreso fuera impedido, se tendrá por válida la notificación practicada a la persona encargada de regular la entrada.
+5.3 Cuando se deba notificar a una persona con discapacidad, la cédula de notificación deberá ir acompañado de un documento en un formato accesible al notificando, el notificando puede solicitar la asistencia de algún familiar o en su efecto de la persona que el notificando solicite para su asistencia, para no causarle indefensión a la parte notificada.
+5.4 La nulidad de la notificación se decretará solo cuando se le haya causado indefensión a la parte notificada.
+5.5 La notificación automática no aplica para las notificaciones en forma personal, casillero o estrados.
+5.6 La notificación automática solo se aplica a las notificaciones por medio de correo electrónico o fax.
+https://secretariacorte.poder-
+judicial.go.cr/index.php/documentos?download=5098: circular-n-1102012-reglas-generales-que-complementan-la-ley-de-notificacionesjudiciales
