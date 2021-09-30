@@ -1,0 +1,2 @@
+Artículo 7º-Honorarios mínimos. Los honorarios mínimos aprobados por la Junta Directiva del Colegio de Contadores Públicos de Costa Rica serán actualizados cada año a partir de la vigencia del presente decreto, utilizando para tal finalidad la tasa oficial de inflación del Banco Central de Costa Rica y/o los resultados obtenidos por la realización de estudios justos actuales.
+Este acuerdo y su respectivo Decreto Ejecutivo deberán ser publicados en el Diario Oficial La Gaceta, entrando a regir a partir de su publicación o cuando lo disponga expresamente la norma.

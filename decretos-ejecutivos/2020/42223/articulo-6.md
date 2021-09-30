@@ -1,0 +1,1 @@
+Artículo 6º-Excepción. Salvo que pueda probarse una contratación diferente, se entenderá que el Contador Público Autorizado aceptó cobrar al menos las tarifas mínimas estipuladas por hora profesional de una auditoría aquí establecida.

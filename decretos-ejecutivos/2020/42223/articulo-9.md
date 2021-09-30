@@ -1,0 +1,1 @@
+Artículo 9º-Libro de servicios profesionales. En el Libro de Servicios Profesionales deberán incluirse, en todo caso, los honorarios reales cobrados, conforme al artículo 15 del Reglamento a la Ley N° 1038, Decreto Ejecutivo N° 13606-E del 05 de mayo de 1982 y sus reformas.
