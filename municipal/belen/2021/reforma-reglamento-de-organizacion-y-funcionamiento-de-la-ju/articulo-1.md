@@ -1,0 +1,17 @@
+CONCEJO MUNICIPAL DE BELÉN
+La suscrita Secretaría del Concejo Municipal de Belén, le notifica el acuerdo tomado, en la Sesión Ordinaria No.47-2021, Artículo 21, celebrada el diez de agosto del dos mil veintiuno y ratificada el diecisiete de agosto del año dos mil veintiuno, que literalmente dice: REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO DE LA JUNTA VIAL CANTONAL DEL CANTÓN DE BELÉN (.) Artículo 5.-De conformidad con el artículo 5 de la ley N° 8114 de Simplificación y Eficiencia Tributaria vigente y su reglamento, la junta vial estará integrada por representantes del gobierno local y de la comunidad. para los efectos del presente reglamento, la integración de la junta vial estará conformada por los siguientes miembros:
+a. El alcalde o alcaldesa municipal, quien presidirá la junta vial cantonal. En su ausencia temporal será sustituido por el vicealcalde quien debe encontrarse debidamente investido para el ejercicio del cargo.
+b. Un miembro del Concejo Municipal. será designado mediante acuerdo firme adoptado al efecto.
+c. Un representante de los Concejos de Distritos, nombrado en asamblea convocada al efecto. El acta de dicha asamblea se remitirá al Concejo Municipal. Sin detrimento de que no se encuentre nombrado, en la siguiente asamblea que se convoque, una vez ratificado la reelección del representante en ejercicio, o en su defecto sea electa una nueva persona, adicionalmente se nombrará un representante suplente a efectos de que, a falta de titular, no tenga que convocarse a nueva asamblea para nombrar el reemplazo.
+d. Un representante de las Asociaciones de Desarrollo de la Comunidad reguladas por la Ley sobre el Desarrollo de la Comunidad, número 3859 del 7 de abril de 1967 y sus reformas. El representante será seleccionado en asamblea de todas las Asociaciones vigentes en las localidades del cantón. El acta de dicha asamblea se remitirá al Concejo Municipal. Sin detrimento de que no se encuentre nombrado, en la siguiente asamblea que se convoque, una vez ratificado la reelección del representante en ejercicio, o en su defecto sea electa una nueva persona, adicionalmente se nombrará un representante suplente a efectos de que, a falta de titular, no tenga que convocarse a nueva asamblea para nombrar el reemplazo.
+e. La persona a cargo de la Unidad de Gestión Vial de la Municipalidad de Belén. En su ausencia, se deberá designar por parte de la alcaldía un subalterno de la misma dependencia para que le sustituya entre tanto se reincorpora a su puesto.
+f. Cada propietario de la junta vial cantonal tendrá un suplente que lo representará en sus ausencias. Nombrado en el mismo acto en el cual se designe el titular.
+(.)
+Artículo 37.-En lo no dispuesto por este reglamento y observando al efecto la jerarquía de normas, se aplicará de manera supletoria, complementariamente y en el orden que se dirá, las disposiciones contenidas en:
+a. Ley General de la Administración Pública;
+b. Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal;
+c. Reglamento al inciso b) del artículo 5 de la Ley N° 8114 "Ley de Simplificación y Eficiencia Tributarias";
+d. Reglamento a la Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal.
+Se acuerda por unanimidad:
+Modificar los Artículos 5 y 37 del Reglamento de organización y funcionamiento de la Junta Vial Cantonal del Cantón de Belén como se menciona.
+Someter a consulta pública no vinculante por un plazo de 10 días..
