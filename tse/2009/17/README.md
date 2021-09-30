@@ -22,3 +22,4 @@ Reglamento sobre el Financiamiento de los Partidos Políticos
 | 7 | 2017-04-27 | Decreto TSE 5 (2017-04-27) |
 | 8 | 2021-07-27 | Decreto TSE 7 (2021-07-27) |
 | 9 | 2021-09-14 | Decreto TSE 10 (2021-09-14) |
+| 10 | 2021-09-30 | Decreto TSE 12 (2021-09-30) |
