@@ -1,0 +1,1 @@
+Artículo 19.-Periodo de Vigencia. El presente reglamento tendrá vigencia durante todo el tiempo de ejecución del proyecto mUEve. Una vez finalizado el proyecto mUEve el presente instrumento perderá su vigencia.

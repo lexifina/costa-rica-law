@@ -1,0 +1,2 @@
+Artículo 6º-Custodio de Fondos. La custodia de los fondos de caja chica será responsabilidad de departamento de tesorería de la Unión Nacional de Gobiernos Locales (UNGL), así como de realizar de forma eficiente y eficaz el procedimiento establecido para las solicitudes de adelanto y liquidación del fondo.
+Deberá de respetar las normas y procedimientos establecidos en este reglamento para la utilización de los fondos de caja chica del proyecto mUEve.

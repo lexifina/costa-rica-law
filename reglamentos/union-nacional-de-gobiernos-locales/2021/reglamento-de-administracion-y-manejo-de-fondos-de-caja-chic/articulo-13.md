@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De la Liquidación del Formulario
+de Vales Provisionales
+Artículo 13.-Liquidación de los formularios de vales provisionales. Los adelantos de dinero serán liquidados durante los dos días hábiles siguientes a la fecha de entrega, De no hacerse así, se incurrirá en las sanciones que establece el Reglamento Autónomo de Servicios de la Unión Nacional de Gobiernos Locales. Cuando haya atraso en la liquidación, el encargado del fondo deberá comunicarlo por medio de un memorando, al jefe inmediato del funcionario que recibió el adelanto. De persistir el atraso, al día siguiente, el Departamento Administrativo Financiero informará a Recursos Humanos, para la aplicación de la sanción correspondiente.

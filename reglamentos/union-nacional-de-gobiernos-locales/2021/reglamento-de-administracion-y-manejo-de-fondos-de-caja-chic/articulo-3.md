@@ -1,0 +1,1 @@
+Artículo 3º-Objetivo. Administrar de forma eficiente y eficaz los fondos de caja chica del proyecto mUEve mediante la aplicación del presente reglamento bajo la implementación de medidas de control interno.

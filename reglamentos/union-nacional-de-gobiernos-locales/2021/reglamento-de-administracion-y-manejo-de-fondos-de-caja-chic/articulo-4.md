@@ -1,0 +1,3 @@
+Artículo 4º-Naturaleza del Fondo. La caja chica se establece como un fondo fijo reembolsable procedente de los recursos del proyecto mUEve, cuya finalidad es la de cancelar a aquellas necesidades de un bien o servicio menor que no requiera aplicar la ley de contratación administrativa.
+El monto deberá de ser establecido por acuerdo del comité técnico del proyecto mUEve, y deberá de ser revisado cada año durante el periodo de ejecución del proyecto.
+Este reglamento requerirá la aprobación del Consejo Directivo de la Unión Nacional de Gobiernos Locales y regirá a partir de la publicación en el Diario Oficial La Gaceta.
