@@ -1,0 +1,2 @@
+Artículo 14.-Las discrepancias de criterio que surjan en la aplicación de las disposiciones de este reglamento, serán resueltas en primera instancia por la Dirección Administrativa y en última instancia por el Gerente de Administración y Finanzas de la Empresa.
+El presente reglamento fue aprobado por junta directiva, según consta en el artículo 7, de la sesión ordinaria N° 5258- 230, celebrada el 06 de setiembre de 2021 y rige a partir de su publicación en el Diario Oficial La Gaceta.

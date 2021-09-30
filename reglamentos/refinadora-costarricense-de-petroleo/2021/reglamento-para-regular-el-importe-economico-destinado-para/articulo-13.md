@@ -1,0 +1,2 @@
+Artículo 13.-El incumplimiento de las disposiciones u obligaciones establecidas en este reglamento por parte del beneficiado, le hará acreedor de las sanciones correspondientes de conformidad con la Convención Colectiva de Trabajo de la Empresa.
+Asimismo, el funcionario (a) encargado de tramitar las solicitudes y vigilar el cumplimiento del presente beneficio, que produzca un daño a la Empresa o una lesión al beneficiado, será responsable por su gestión y se le aplicará el mismo régimen sancionatorio que al trabajador.

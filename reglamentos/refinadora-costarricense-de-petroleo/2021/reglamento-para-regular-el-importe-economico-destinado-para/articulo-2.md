@@ -1,0 +1,1 @@
+Artículo 2°-El presente reglamento es de aplicación para todas las personas trabajadoras de RECOPE, que tienen un salario bruto igual o inferior a los ¢750.000,00 (setecientos cincuenta mil colones) mensuales.

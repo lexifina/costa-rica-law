@@ -1,0 +1,1 @@
+Artículo 11.-El cese laboral del padre o la madre no trabajadores en RECOPE, será causal de suspensión del pago del importe por un periodo de tres meses contados a partir de la presentación del cese laboral emitido por el lugar de trabajo. Vencido dicho periodo sin que se acredite que el padre o madre cesada se encuentra laborando, será causal de extinción del beneficio.
