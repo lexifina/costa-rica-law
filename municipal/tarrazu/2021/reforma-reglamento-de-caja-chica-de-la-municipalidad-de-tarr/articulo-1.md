@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE TARRAZÚ
+El Honorable Concejo Municipal de Tarrazú, mediante el acuerdo N° 5, tomado en la Sesión Ordinaria 068-2021, celebrada el día diecinueve de agosto del dos mil veintiuno, se prueba las modificaciones al Reglamento de Caja Chica de la Municipalidad de Tarrazú, quedando de la siguiente manera:
+"Artículo 4º-La Caja Chica mantendrá dinero en efectivo para ser utilizado exclusivamente en la adquisición de bienes y servicios indispensables e imprevistos, con carácter de urgencia, y que, a razón de su baja cuantía, el costo de adquirirlos por medio de otra modalidad de contratación no se justifique por el beneficio que esto representa. En algunos casos se podrá realizar transferencias de fondos por medios electrónicos de la cuenta bancaria para pagos respectivos."
+"Artículo 9.-La Alcaldía o el jefe (a) de departamento mediante documento hace solicitud de compra o de adquisición de bienes a la Tesorería, indicando el bien o servicio a adquirir, y el monto estimado, deberá adjuntar un mínimo de tres cotizaciones, a excepción de que el bien o servicio que se necesita adquirir solamente lo ofrezca una persona o empresa."
+"Artículo 10.-La Tesorería hace la verificación de contenido presupuestario para el gasto solicitado, da el visto bueno para la compra entregando el dinero o la autorización al solicitante o en su caso se procederá con la transferencia electrónica."
+"Artículo 14.-Podría modificarse a: Para efectos de compra se emite la orden de compra, donde se establece la no sujeción al pago de IVA y retención que debe aplicarse."
+En cumplimiento del artículo 43 del Código Municipal, se envía a publicar en el Diario Oficial La Gaceta, comenzando a regir una vez publicado.
+Acuerdo en firme."
