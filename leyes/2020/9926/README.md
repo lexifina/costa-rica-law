@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2021
 
-Ley N° 9926 del 2020-12-01. SINALEVI, ficha 93116: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=93116&param2=127064&param3=1>.
+Ley N° 9926 del 2020-12-01. SINALEVI, ficha 93116: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=93116&param2=127149&param3=1>.
 
 Publicada en La Gaceta N° 284 del 2020-12-02.
 
@@ -27,3 +27,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 17 de 28 | 2021-09-29 | Ley 10035 | 2021-09-01 |
 | 18 de 28 | 2021-09-29 | Decreto Ejecutivo 43232 (2021-09-15) | 2021-09-15 |
 | 19 de 28 | 2021-09-29 | Decreto Ejecutivo 43224 (2021-09-24) | 2021-09-24 |
+| 20 de 28 | 2021-10-01 | Ley 10045 | 2021-09-27 |
