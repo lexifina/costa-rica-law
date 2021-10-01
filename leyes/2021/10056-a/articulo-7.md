@@ -1,0 +1,3 @@
+ARTICULO 7.CONDIOONES Y ESTIPULACIONES ESPECIALES DE LÁ FUENTE DE RECURSOS
+Sección 7.01 Fuente de Recursos.
+Para utilizar una fuente de recursos se requerirá el consentimiento previo del Prestatario. El financiamiento se otorga con recursos ordinarios del BCIE. El SCIE notificará al Prestatario si logra financiamiento-con fuentes eternas; para lo cual le comunicará las condiciones y términos de dicha fuente, incluyendo tasa de interés y plazo. Si el Prestatario considera que son más favorables que las proporcionadas por el BCIE,. este le comun1cará · la aceptación de las condiciones y estipulaciones relacionadas con dicha fuente de recursos, las cuales se detallarán en el Anexo l.
