@@ -1,0 +1,2 @@
+ARTÍCULO 4- Incorporación de recursos en el presupuesto ordinario y extraordinario de la República
+Dada la naturaleza de emergencia de esta operación y la necesidad de utilizar los recursos rápidamente en el Proyecto "Adquisición y Aplicación de Vacunas COVID-19", los recursos del Contrato de Préstamo N.º 2270, autorizados por este financiamiento, serán incorporados al presupuesto de la República, mediante la aprobación de presupuestos extraordinarios autorizados por la Asamblea Legislativa.

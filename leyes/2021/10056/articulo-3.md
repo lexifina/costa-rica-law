@@ -1,0 +1,2 @@
+ARTÍCULO 3- Administración de los recursos conforme al principio de caja única Los recursos provenientes del Contrato de Préstamo N.0 2270 para financiar el proyecto denominado "Adquisición y Aplicación de Vacunas COVID-19" serán depositados en la cuenta designada por la Tesorería Nacional, en cumplimiento del principio de caja única.
+La Tesorería Nacional procederá a acreditar, de conformidad con los procedimientos establecidos, los desembolsos solicitados.
