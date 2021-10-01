@@ -1,0 +1,9 @@
+Artículo 10.-No se autorizará categoría alguna bajo este procedimiento, ni se renovará la eventualmente otorgada, a la persona extranjera que haya cumplido condena por delito doloso en los últimos diez años, en Costa Rica o en el extranjero, siempre y cuando el ilícito sea reconocido como tal en nuestra legislación. Tampoco a aquella que constituya una amenaza en materia de seguridad y orden públicos.
+SECCIÓN III
+Certificaciones para el Tribunal
+Supremo de Elecciones
+Artículo 12.-A efectos de realizar el proceso indicado en el párrafo segundo del artículo 03 de la presente resolución, se habilita a las organizaciones detalladas en el artículo 5° de este documento, para que remitan a la Dirección de integración y Desarrolla Humano de la Dirección General, por los medios que se habilitaran para ello, el nombre de las personas indígenas que pretenden realizar proceso de naturalización ante el Tribunal Supremo de Elecciones al amparo de la Ley N° 9710. Para ello se habilita del 18 de octubre al 20 de noviembre, ambos de 2021, para los siguientes casos:
+a. Listados de personas indígenas a las que se les otorgó un estatus migratorio antes del 10 de octubre del 2019, se encuentre vigente o no su documento de acreditación migratoria.
+b. Listados de personas que presentaron alguna gestión ante esta Dirección General para regularizar su situación migratoria antes de la citada fecha y que se encuentre pendiente de resolución.
+Con posterioridad a los períodos indicados no se recibirán listados de personas que pretendan optar por ese beneficio debiendo las personas acudir a los procesos ordinarios establecidos para la obtención de certificaciones de estatus migratorio y expedientes ante esta Dirección General.
+(Nota de Sinalevi: En la publicación de este reglamento se publicó el artículo 12 después del artículo 10. No obstante después el reglamento retoma su numeración consecutiva y se publica otro artículo 12 con diferente contenido)
