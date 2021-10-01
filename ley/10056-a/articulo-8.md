@@ -1,0 +1,23 @@
+ARTICULO 8.-DECLARACIONES DEL PRESTATARIO
+Sección 8.01 Existencia Social y facultades Jurídicas.
+El Prestatario declara que el Organismo Ejecutor es una entidad de carácter gubernamental legalmente creada y válidamente existente al amparo de las leves de la República de Costa Rica y que posee las licencias. autorizaciones, conformidades, aprobaciones, registros 'y perr,1isos necesarios conforme a las leyes de la República de Costa Rica, teniendo plena facultad y capacidad para ejecutar el Proyecto. El Prestatario declara que el monto del Préstamo solicitado está dentro de sus límites de capacidad de endeudamiento, y el Organismo Ejecutor declara que sus respetivos Documentos Legales de Creación están plenamente vigentes y son efectivos en la fecha de la firma de su Contrato; declara además que no ha infringido ni violado ninguna disposición o término de tales y que la o las personas que formalizan en nombre del Prestatario, tanto este Contrató como cualquiera de los Documentos Principales, han sido debidamente autorizadas para ello por el Prestatario.
+Sección 8,02 Efecto Vinculante.
+El Prestatario y el Organismo Ejecutor, declaran que la suscripción, entrega y formalización de este Contrato v de todos los Documentos Principales han sido debidamente autorizadas y llevadas a cabo, de forma tal que todas y cada una de las obligaciones a su cargo contenidas en el presente Contrato de Préstamo son legítimas, válidas, vigentes, eficaces y vinculantes, que le son plenamente exigibles de conformidad con las Secciones 15.04 y 15.09.
+Sección 8.03 Autorización de Terceros.
+El Prestatario declara que a esta fecha cuenta con las autorizaciones administrativas v que no requiere consentimiento adicional alguno por parte de terceros, ni existe dictamen alguno, requerimiento judicial, mandato, decreto, normativa o reglamento aplicable al Prestatario pendiente que le impida la suscripción. entrega y formalización de este Contrato y de todos les Documentos Principales.
+Sección 8.04 Información Completa y Veraz.
+A los efectos de este Contrato y los Documentos Principales, el Prestatario o en su caso el Organismo Ejecutor, declara que toda la información entregada al BCIE, incluyendo la entregada con anterioridad a la fecha de este Contrato, es veraz, exacta y completa, sin omitir hecho alguno que sea relevante para evitar que la declaración sea engañosa. El Prestatario y el Organismo Ejecutor también declaran que mantendrán al BCIE libre de cualquier responsabilidad respecto de la información entregada al BCIE.
+Sección 8.05 Confiabilidad de las Declaraciones y Garantías.
+El Prestatario y el Organismo Ejecutor, declaran que las declaraciones contenidas en este Contrato fueron realizadas con el propósito de que el BCIE suscribiera el mismo, reconociendo además que el BCIE ha accedido a suscribir el presente Contrato en función de dichas declaraciones y confiando plenamente en cada una de las mismas.
+Sección 8.06 Responsabilidad sobre el Diseño. y Viabilidad del Proyecto.
+El Prestatario a través del Organismo Ejecutor, declara que asume plena responsabilidad por el diseño, · ejecución y gestión del Proyecto, eximiendo de toda responsabilidad al BCIE.
+Sección 8.07 Naturaleza Com1!rcialde las Obligaciones del Prestatario.
+El Prestatario reconoce que las actividades que realiza conforme a este Contrato son de naturaleza comercial o de iure gestionem, y en nada comprometen, limitan o se relacionan con las atribuciones
+soberanas del Prestatario.
+Sección 8.08 Vigencia de las Declaraciones.
+Las declaraciones contenidas en este Contrato continuarán vigentes después de la celebración del mismo y hasta la culminación de las operaciones en él contempladas, con excepción de cualquier modificación en dichas declaraciones que sean oportunamente aceptadas por el BCIE.
+Sección 8.09 Lavado de Activos, Financiamiento del Terrorismo u Otra Actividad Ilícita y Sanciones.
+El Prestatario y el Organismo Ejecutor, declaran:
+a) Que los fondos aportados o a ser aportados por el Prestatario, o en su caso, el Organismo Ejecutor para financiar los programas y/o proyectos no provienen, ni se encuentran vinculados, con lavado de activos, financiamiento del terrorismo u otra actividad ilícita.
+b) Que los fondos que desembolse el BCIE, así como los que sean generados, no serán destinados a financiar actividades ilícitas.
+c) Que ha adoptado políticas, normativas, procedimientos y controles internos adecuados para asegurar el cumplimiento de todas las leyes y estándares internacionales aplicables en materia de lavado de activos, financiamiento del terrorismo, antifraude, anticorrupción y, además, en sanciones emitidas por Organismos Sancionadores.
