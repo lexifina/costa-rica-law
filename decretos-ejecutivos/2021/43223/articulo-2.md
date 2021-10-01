@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el Decreto Ejecutivo número 43046-H del 8 de junio de 2021, publicado en el Diario Oficial La Gaceta Número 121 del 24 de junio de 2021, a partir de la vigencia del presente decreto.
