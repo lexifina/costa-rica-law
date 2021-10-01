@@ -1,0 +1,9 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+AVISO
+N° DG-AV-007-2021.-21 de setiembre de 2021.-La DGSC comunica la emisión de las siguientes resoluciones:
+I.-DG-029-2021: Modifica la Resolución DG-399-2010 del día 9 de diciembre del 2010, en la forma, procediendo con la actualización de la especialidad docente denominada Creación Literaria, en el componente de "Características", párrafo cuarto y párrafo sétimo.
+II.-DG-038-2021: Instruir al Área de Reclutamiento y Selección de Personal de esta Dirección General y a las Oficinas de Recursos Humanos cubiertas por el ámbito del Servicio Civil, para que sus procesos de ingreso y/o promoción a la carrera administrativa del Régimen de Servicio Civil a través de los Registros de Elegibles de la DGSC, en el Título I del Estatuto de Servicio Civil, se dirijan en adelante, según sus disposiciones.
+III.-DG-046-2021: La resolución será aplicable a los procesos de reclutamiento y selección del Régimen de Servicio Civil, que realiza la Dirección General de Servicio Civil.
+Se refiere a la asignación de puntos adicionales por poseer una carrera universitaria acreditada por SINAES.
+II.-ARSP-003-2021: Proceder a excluir del Registro del proceso de Reclutamiento Abierto y Permanente a 205 personas que están fallecidas, cuya fecha de deceso es posterior al 20 de noviembre del 2017. Excluir a 1369 personas que están fallecidas dentro del Registro del proceso de Reclutamiento Abierto y Permanente, cuya fecha de deceso es anterior al 20 de noviembre del 2017; y excluir del sistema automatizado SAGETH que alberga los Registros de Elegibles a 151 personas que están fallecidas.
+Publíquese.
