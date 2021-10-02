@@ -1,0 +1,1 @@
+Artículo 13.-Responsabilidad por inobservancia al deber de confidencialidad.- Se considerará falta si quien deba recibir, tramitar, resguardar o trasladar información sobre la denuncia, expone con dolo o culpa grave los datos personales del denunciante, aún cuando la gestión se hubiese archivado o se haya emitido una resolución administrativa sancionadora.

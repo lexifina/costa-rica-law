@@ -1,0 +1,1 @@
+Artículo 10.-Apoyo técnico-jurídico.- La Unidad Jurídica Interna deberá brindar de manera prioritaria, el apoyo y acompañamiento que requieran las Unidades internas en el proceso de recepción y admisibilidad de las denuncias, así como en el desarrollo de la investigación preliminar, cuando esta se estime necesaria.
