@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE GOICOECHEA
+Concejo Municipal del cantón de Goicoechea en Sesión Ordinaria N° 38-2021, celebrada el día 21 de setiembre de 2021, Articulo VIII.II, aprobó por unanimidad y con carácter firme la moción suscrita por el Regidor Propietario Carlos Calderón Zúñiga y la Regidora Suplente Melissa Valdivia Zúñiga donde se acordó:
+"Se modifique el Articulo 25 de la Junta Administrativa de Cementerios de Goicoechea capitulo setima quedando de la siguiente forma: "El cargo de fiscal será desempeñado por un vecino o vecina del cantón, mayor de 18 años. Su nombramiento y juramentación lo hará directamente el Concejo Municipal, siguiendo al efecto el mismo procedimiento contemplado para la designación de los miembros de la Junta".
