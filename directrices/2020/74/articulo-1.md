@@ -1,4 +1,4 @@
-N° 074 – S
+N° 074 - S
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE SALUD
 Con fundamento en las atribuciones que les confieren los artículos 50, 140 incisos 8) y 20) y 146 de la Constitución Política; 25, 28, párrafo 2), inciso b), 99 y 100 de la Ley General de la Administración Pública, Ley número 6227 de 02 de mayo de 1978; los artículos 1, 2, 4, 7, 147, 148, 149, 155, 161, 162, 163, 164, 165, 166, 167, 168, 169, 337, 338, 338 bis, 340, 341,348, 378 de la Ley General de Salud, Ley número 5395 del 30 de octubre de 1973; los artículos 2 incisos b) y c), 6 y 57 de la Ley número 5412 del 08 de noviembre de 1973, Ley; y
@@ -19,5 +19,6 @@ Por tanto,
 Se emite la directriz dirigida a la Administración Pública Centralizada y Descentralizada,
 SOBRE LAS MEDIDAS INMEDIATAS Y TEMPORALES PARA LA SUSPENSIÓN DE VIAJES
 OFICIALES AL EXTERIOR POR PARTE DE PERSONAS FUNCIONARIAS PÚBLICAS
-Artículo 1º.-Como parte de las acciones preventivas y de mitigación para la atención de la alerta sanitaria por COVID-19, se instruye a todas las instancias ministeriales y sus respectivos órganos para que procedan de inmediato a cancelar los viajes oficiales al extranjero de sus funcionarios y funcionarias, salvo aquellos viajes que sean estrictamente indispensables para la continuidad del servicio público prestado por la institución, así como de acuerdo con la naturaleza de las funciones que desempeña cada jerarca o funcionario público.
+Artículo 1º.-Como parte de las acciones preventivas y de mitigación para la atención de la alerta sanitaria por COVID-19, se instruye a todas las instancias ministeriales y sus respectivos órganos para que mantengan suspendidos los viajes oficiales al extranjero de sus funcionarios y funcionarias, salvo los siguientes supuestos: aquellos viajes que sean necesarios para la continuidad del servicio público prestado por la institución; o que correspondan a acciones estratégicas para mejorar el funcionamiento institucional, debidamente justificadas por la persona jerarca de la institución y que no puedan realizarse de manera virtual.
 Se insta a las instituciones de la Administración Pública Descentralizada para que adopten la medida preventiva indicada en el párrafo anterior de este artículo.
+(Así reformado por el artículo 1° de la directriz N° 124-S del 4 de octubre de 2021)

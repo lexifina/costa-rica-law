@@ -14,3 +14,4 @@ Medidas inmediatas y temporales para la suspensión de viajes oficiales al exter
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-18 | la propia norma |
+| 2 | 2021-10-04 | Directriz 124 (2021-10-04) |
