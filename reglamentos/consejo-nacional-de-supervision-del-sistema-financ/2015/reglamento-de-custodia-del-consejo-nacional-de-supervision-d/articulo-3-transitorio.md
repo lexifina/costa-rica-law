@@ -1,0 +1,3 @@
+Transitorio III
+Las entidades de custodia disponen de un año contado a partir de junio 2022, para incluir la información del beneficiario final de los valores privados en los sistemas de las centrales de valores, de previo al inicio de esta acción deberán remitir un comunicado a los titulares de las cuentas de valores informando sobre la obligación del custodio de reportar a la central de valores, la información sobre los beneficiarios finales, de conformidad con el Artículo 117 de la LRMV y que el uso de esta información está restringido a la Superintendencia General de Valores, para fines de supervisión.
+(Así adicionado mediante sesión N° 1692-2021 del 4 de octubre del 2021)

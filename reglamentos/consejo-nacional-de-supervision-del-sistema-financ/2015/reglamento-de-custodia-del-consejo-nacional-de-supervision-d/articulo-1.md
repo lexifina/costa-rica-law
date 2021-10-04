@@ -16,5 +16,6 @@ Aprobar la reforma integral al Reglamento de Custodia, así como la derogatoria 
 REGLAMENTO DE CUSTODIA
 CAPÍTULO I
 Disposiciones Generales
-Artículo 1º—Objeto y definición. El presente Reglamento regula la actividad de custodia de valores y del efectivo relacionado; así como los requisitos de funcionamiento, las obligaciones y responsabilidades de las entidades que presten el servicio de custodia.
-Se entiende por custodia el servicio que presta una entidad, para el cuidado y conservación de valores y el efectivo relacionado, así como el registro de su titularidad, lo cual implica identificar en todo momento al propietario de los valores y del efectivo asociado, en adelante el titular.
+Artículo 1º-Objeto y definición. El presente Reglamento regula la actividad de custodia de valores y del efectivo relacionado; así como los requisitos de funcionamiento, las obligaciones y responsabilidades de las entidades que presten el servicio de custodia.
+Se entiende por custodia el servicio que presta una entidad, para el cuidado y conservación de valores y el efectivo relacionado, así como el registro de su titularidad, lo cual implica identificar en todo momento al propietario de los valores y del efectivo asociado, en adelante el titular; y también la identificación del beneficiario final de los valores privados cuando se trate de personas jurídicas, u otras estructuras jurídicas.
+(Así reformado el párrafo anterior mediante sesión N° 1692-2021 del 4 de octubre del 2021)

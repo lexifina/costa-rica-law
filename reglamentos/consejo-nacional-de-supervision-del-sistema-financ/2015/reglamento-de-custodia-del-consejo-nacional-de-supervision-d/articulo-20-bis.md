@@ -1,0 +1,9 @@
+Artículo 20 Bis. Definición de beneficiario final
+De conformidad con el "Reglamento para la prevención del riesgo de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva, se entiende por beneficiario final; cualquier persona física que finalmente posee o controla a un cliente y/o la persona física en cuyo nombre se realiza una transacción o contrato, o recibe los beneficios asociados. Incluye a las personas que ejercen el control efectivo final, sobre una persona jurídica, fideicomisos y otras estructuras jurídicas.
+Asimismo, en relación con la solicitud del documento probatorio para la identificación de la persona jurídica y participaciones representativas del capital social, se aplicará lo establecido en el Reglamento indicado en el párrafo anterior.
+En los casos de personas jurídicas, y con base en el apetito de riesgo establecido por la entidad en sus políticas y procedimientos, pueden quedar excluidos del requisito de certificación emitida por notario público, sobre las participaciones que sean iguales o superiores al 10% del capital social, cuando:
+a) la persona jurídica o sus propietarios o beneficiarios, sean una institución pública o gubernamental,
+b) sean entidades financieras sujetas a la fiscalización en materia de LC/FT/FPADM de las superintendencias adscritas al CONASSIF,
+c) sean organismos intergubernamentales o empresas o figuras jurídicas cuyas acciones o valores de contenido patrimonial se coticen en un mercado organizado, nacional o extranjero, y que cuente con un órgano de regulación que sea miembro de la International Organization of Securities Commissions (IOSCO).
+Para asociaciones, cooperativas, fundaciones y similares, nacionales o extranjeras, el sujeto obligado debe solicitar los documentos que sean equivalentes y propios de este tipo de entidades.
+(Así adicionado mediante sesión N° 1692-2021 del 4 de octubre del 2021)
