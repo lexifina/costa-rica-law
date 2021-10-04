@@ -14,3 +14,4 @@ Reglamento para la gestión integral de residuos del cantón de San Isidro de He
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-27 | la propia norma |
+| 2 | 2021-10-04 | Reglamento municipal 65 (2021-10-04) |
