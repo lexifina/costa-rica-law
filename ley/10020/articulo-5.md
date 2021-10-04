@@ -1,0 +1,3 @@
+ARTÍCULO 5- Condiciones operativas de la Comisión. La Comisión será presidida por la persona representante del Patronato Nacional de la Infancia (PANI) o, en su ausencia, por la persona representante del Ministerio de Educación Pública (MEP).
+La Comisión se reunirá de forma ordinaria al menos una vez cada tres meses, pudiendo sesionar con mayoría simple de sus miembros. Extraordinariamente sesionará cuando sea convocada por su presidente, siempre que la comunicación se realice con al menos veinticuatro horas de antelación.
+Para resolver cualquier asunto de empate, la persona representante del Patronato Nacional de la Infancia ejercerá el voto de calidad.

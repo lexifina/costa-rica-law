@@ -1,0 +1,4 @@
+ARTÍCULO 6- Autorización para aportar recursos y prestar colaboración. Se autoriza a las instituciones que conforman la Comisión, así como a cualquier otra entidad pública o privada, para que donen recursos materiales y/o tecnológicos que permitan el adecuado funcionamiento de esta Comisión.
+Así mismo, se les autoriza para que brinden los servicios que sean necesarios y destinen los recursos para el cumplimiento de esta ley.
+Para sus capacidades operativas, se les exhorta a unir esfuerzos desde el ámbito de sus competencias para el cumplimiento de las funciones de la Comisión.
+El reglamento de la presente ley definirá las condiciones logísticas, los horarios y los aportes de recursos administrativos, humanos y materiales de cada institución integrante de la Comisión, para garantizar su funcionamiento.
