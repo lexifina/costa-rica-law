@@ -1,6 +1,3 @@
-TÍTULO III
-GESTIÓN DE RESIDUOS
-CAPÍTULO I
-LICENCIAS Y PERMISOS
-ARTÍCULO 31.- Viabilidad ambiental
-Todas las actividades, las obras o los proyectos nuevos que procesen, almacenen, recuperen, traten, eliminen y dispongan residuos ordinarios y peligrosos deberán cumplir el trámite de evaluación de impacto ambiental, previo a la obtención de los permisos o las licencias de construcción u operación. Los procedimientos vigentes de evaluación de impacto ambiental establecerán la forma en que se realizará el trámite. Los permisos o las licencias se tramitarán de conformidad con el procedimiento establecido en el reglamento respectivo.
+ARTÍCULO 31.- Superávit
+Los recursos del Fondo para la gestión integral de residuos que no sean utilizados en el período vigente se constituirán en superávit de la cuenta y podrán emplearse, mediante modificación presupuestaria, para cumplir los objetivos de esta Ley.
+(Así modificada su numeración por el artículo 2° de la ley N° 10031 del 4 de octubre de 2021, que lo traspaso del antiguo artículo 26 al 31)

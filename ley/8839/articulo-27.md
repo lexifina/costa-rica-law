@@ -1,4 +1,2 @@
-CAPÍTULO V
-OBLIGACIONES DEL ESTADO
-ARTÍCULO 27.- Presupuestos
-Las instituciones de la Administración Pública, empresas públicas y municipalidades podrán incluir en sus planes anuales operativos y en sus presupuestos las partidas anuales para establecer e implementar sus respectivos planes de gestión integral de residuos.
+Artículo 27- Metas de recolección y valorización. Cada cinco años, el Ministerio de Salud deberá fijar metas de recolección de residuos de productos prioritarios en relación con la cantidad de estos productos en el mercado nacional por cada productor, aplicando los principios de gradualismo y de jerarquía en el manejo de residuos con base en criterios técnicos, previa consulta pública.
+(Así adicionado por el artículo 2° de la ley N° 10031 del 4 de octubre de 2021)

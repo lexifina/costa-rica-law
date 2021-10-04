@@ -1,4 +1,4 @@
-Artículo 50 bis- Normas de aplicación práctica
+Artículo 55 bis- Normas de aplicación práctica
 Para la aplicación de las sanciones establecidas en los artículo 49 y 50 de la presente ley, se debe considerar lo siguiente:
 a) Al momento de aplicar la sanción, los inspectores o la autoridad que cada municipalidad determine se encargarán de confeccionar una boleta de infracción que debe consignar el nombre del infractor ya sea persona física o jurídica; el número de identificación o cédula jurídica; la ubicación o el número de finca del inmueble o lugar donde se cometió la infracción y la placa del vehículo, en caso de que corresponda o se cuente con esta; los artículo infringidos y el monto de la multa.
 b) La municipalidad podrá documentar cualquier información mediante acta de inspección, en caso de que existan testigos, se consignarán todos los datos relaticos a ellos, quienes estarán obligados a suministrar la información que se les solicite. También, se consignará cualquier otro medio probatorio autorizado por ley, como videos o las fotografías.
@@ -12,3 +12,4 @@ i) Las conductas y omisiones sancionadas en los artículos 49 y 50 de la present
 j) Los recursos económicos que cada municipalidad recaude, por las sanciones impuestas y sus intereses, tendrán por destino financiar actividades del Plan Municipal para la Gestión Integral de Residuos.
 k) Para la aplicación de cualquier sanción se deberá garantizar al infractor el debido proceso y el derecho de defensa.
 (Así adicionado por el artículo 1° de la ley N° 9825 del 9 de julio del 2021)
+(Así modificada su numeración por el artículo 2° de la ley N° 10031 del 4 de octubre de 2021, que lo traspaso del antiguo artículo 50 bis al 55 bis)

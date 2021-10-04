@@ -1,6 +1,4 @@
-CAPÍTULO V
-SITIOS CONTAMINADOS
-ARTÍCULO 45.- Prevención de la contaminación
-Los generadores de residuos de cualquier tipo y los gestores tienen la responsabilidad de manejarlos en forma tal que no contaminen los suelos, los subsuelos, el agua, el aire y los ecosistemas.
-La selección, la construcción, la operación y el cierre técnico de instalaciones de disposición final de residuos deberá realizarse en forma tal que se prevenga la contaminación de los suelos, los subsuelos, el agua, el aire y los ecosistemas.
-Para ello, las instalaciones de disposición final de residuos deberán contar con garantías financieras para asegurar que se contará con los recursos necesarios para prevenir la diseminación de contaminantes en el suelo, los subsuelos, el agua, el aire y los ecosistemas, y, de ser necesario, realizar la remediación del sitio si los niveles de contaminación en él representan un riesgo para la salud o el ambiente.
+ARTÍCULO 45.- Propiedad de los residuos
+Los residuos valorizables que sean recolectados en forma selectiva serán propiedad y responsabilidad de los municipios en el momento en que los usuarios del servicio público sitúen o entreguen los residuos para su recolección separada, de conformidad con el reglamento respectivo.
+Previa autorización de la municipalidad correspondiente, estos residuos podrán ser entregados o recolectados por un gestor autorizado o una empresa mixta, para su valorización, en cuyo caso corresponde a este la propiedad y la responsabilidad de su manejo.
+(Así modificada su numeración por el artículo 2° de la ley N° 10031 del 4 de octubre de 2021, que lo traspaso del antiguo artículo 40 al 45)
