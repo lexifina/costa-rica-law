@@ -1,0 +1,4 @@
+ARTÍCULO 38: PROTECCIÓN Y CONSERVACIÓN DEL PATRIMONIO
+Será responsabilidad de los titulares subordinados asegurar la protección, custodia, inventario, correcto uso y control de los activos pertenecientes a cada unidad, de conformidad con las regulaciones vigentes, asegurándose de realizar la asignación formal de dichos activos al personal bajo su cargo.
+Al menos dos veces al año, o cuando así lo requiera la unidad de Contabilidad, los titulares de departamento realizarán un arqueo de todos los activos y suministros asignados a cada uno de los departamentos, de lo cual deberán informar a la unidad de Contabilidad. Para esto, se deberá aplicar lo que se establezca en el Manual de Control de Activos de la Municipalidad de Paraíso.
+El Departamento de Servicios Generales, en coordinación con la unidad de Seguridad de la Municipalidad, deberán definir y poner en práctica los protocolos y mecanismos de seguridad que deberán acatarse en la institución.

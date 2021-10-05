@@ -1,0 +1,4 @@
+ARTÍCULO 19: RESPONSABILIDADES DEL CONCEJO MUNICIPAL
+El Concejo Municipal es el máximo jerarca y responsable del Sistema de Control Interno, mediante el ejercicio de sus potestades de observancia, guía y emisión de políticas, reglamentos y directrices que garanticen el correcto funcionamiento del SCI.
+La Alcaldía Municipal, a través del Departamento de Control Interno, presentará al Concejo Municipal los informes correspondientes al funcionamiento del SEVRI, la Auto-evaluación de Control Interno, Evaluaciones de la Ética y Madurez del Sistema de Control Interno, así como cualquier otro que sea solicitado por el Concejo Municipal y que permita a este órgano conocer el estado del SCI.
+El Concejo Municipal, será responsable de la aprobación de los recursos necesarios para el funcionamiento y perfeccionamiento del SCI y el SEVRI, tomando como base los informes presentados sobre el estado de ambos sistemas y los objetivos que se definan sobre el SCI y la Institución.

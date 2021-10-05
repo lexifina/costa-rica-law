@@ -1,0 +1,11 @@
+CAPÍTULO III
+DEL AMBIENTE DE CONTROL
+ARTÍCULO 21: COMPROMISO SUPERIOR
+Será obligación del jerarca y los titulares subordinados apoyar constantemente el SCI, al menos por los siguientes medios:
+a) Mantener y demostrar integridad y valores éticos en el ejercicio de sus deberes y obligaciones, así como contribuir con su liderazgo y sus acciones a promoverlos en el resto de la organización, para el cumplimiento efectivo por parte de los demás funcionarios.
+b) La definición y divulgación de los alcances del SCI, mediante la comunicación de las políticas, directrices, procedimientos y demás lineamientos de este y la difusión de una cultura que conlleve la comprensión entre los funcionarios, de la utilidad del control interno para el desarrollo de una gestión apegada a criterios de eficiencia, eficacia, economía y legalidad y para una efectiva rendición de cuentas.
+c) Una actuación que demuestre su compromiso y apego al SCI, a los principios que lo sustentan y a los objetivos que le son inherentes, que se evidencie en sus manifestaciones verbales y en sus actuaciones como parte de las labores cotidianas.
+d) El fomento de la comunicación transparente y de técnicas de trabajo que promuevan la lealtad, el desempeño eficaz y el logro de los objetivos institucionales, así como una cultura que incentive, entre los miembros de la institución, el reconocimiento del control como parte integrante y primordial de los sistemas institucionales.
+e) La aplicación de una filosofía y un estilo gerencial que conlleven la orientación básica de las autoridades superiores en la conducción de la institución y la forma como se materializa esa orientación en las actividades. Ambos elementos deben conducir a un equilibrio entre eficiencia, eficacia y control, que difunda y promueva altos niveles de motivación, así como actitudes acordes con la cultura de control.
+f) La inmediata atención de las recomendaciones, disposiciones y observaciones del Departamento de Control Interno y de los distintos órganos de control y fiscalización.
+g) La asignación y disposición de los recursos necesarios y oportunos para el cumplimiento de los puntos anteriores.

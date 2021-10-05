@@ -1,0 +1,2 @@
+ARTÍCULO 54: ARCHIVO INSTITUCIONAL
+Corresponde al Archivo Central de la Municipalidad, girar las disposiciones necesarias para garantizar el cumplimiento de los lineamientos contenidos en el presente capítulo. Lo anterior incluye lo relativo a las políticas y procedimientos para la creación, organización, utilización, disponibilidad, acceso, confidencialidad, autenticidad, migración, respaldo periódico y conservación de los documentos en soporte electrónico y físico.

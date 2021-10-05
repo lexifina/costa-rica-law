@@ -1,0 +1,3 @@
+ARTÍCULO 46: VERIFICACIÓN DE CUMPLIMIENTO.
+La información presentada en el informe de fin gestión, en cuanto a la forma y el fondo, será verificada por el Departamento de Recursos Humanos, el cual informará a la administración sobre cualquier incumplimiento o irregularidad que se presente, recomendando las medidas correctivas que deban tomarse en cada caso.
+En el caso de los funcionarios que se retiran de forma definitiva de la institución que no presenten el informe de fin de gestión dentro de los 30 días posteriores a su salida, deberá iniciarse el debido proceso para garantizar que dicha situación sea subsanada.

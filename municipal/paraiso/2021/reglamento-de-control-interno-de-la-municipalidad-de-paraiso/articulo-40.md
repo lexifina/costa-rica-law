@@ -1,0 +1,2 @@
+ARTÍCULO 40: GESTION POR PROCESOS
+La Municipalidad de Paraíso desarrollará todas sus actividades con un enfoque basado en procesos, de forma que se garantice la transformación en resultados de dichas actividades y se logre una eficiente gestión y control de cada una de las interacciones ente los procesos y las jerarquías funcionales de la organización, así como el aporte de valor de dichos a la organización, a la vez que se garantice su alineamiento con los objetivos institucionales.

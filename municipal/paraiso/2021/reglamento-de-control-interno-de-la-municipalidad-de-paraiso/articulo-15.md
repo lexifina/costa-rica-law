@@ -1,0 +1,3 @@
+ARTÍCULO 15: DE LA ASISTENCIA A LAS REUNIONES DE LOS COMITÉS
+Los miembros de los comités estarán obligados a participar en las reuniones a las que se les convoque. La ausencia injustificada a dos reuniones consecutivas o 3 alternativas acarreará la aplicación de las sanciones establecidas en el presente reglamento.
+Los miembros de las comisiones podrán nombrar representantes en dichas comisiones, quienes podrán suplantarlos en caso de fuerza mayor, siempre y cuando está situación haya sido aprobada a priori por la comisión respectiva. Esta situación no removerá, ni trasladará la responsabilidad del integrante oficial de la comisión a quién lo represente sobre los acuerdos tomados en comisión.
