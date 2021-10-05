@@ -16,3 +16,4 @@ Regula de manera temporal y diferenciada, los requisitos para la regularización
 | 1 | 2021-01-29 | la propia norma |
 | 2 | 2021-02-23 | Resolución 28 (2021-02-23) |
 | 3 | 2021-07-30 | Resolución 153 (2021-07-30) |
+| 4 | 2021-10-05 | Resolución 176 (2021-10-05) |
