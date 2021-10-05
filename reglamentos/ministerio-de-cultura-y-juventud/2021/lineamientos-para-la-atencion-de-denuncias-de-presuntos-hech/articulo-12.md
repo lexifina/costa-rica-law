@@ -1,0 +1,2 @@
+Capítulo II: Admisibilidad
+Artículo 12. Admisibilidad de la denuncia. La Auditoría Interna deberá valorar la procedencia y admisibilidad de las denuncias recibidas para su tramitación, en función del costo, la complejidad y el impacto para tramitarla o desestimarla, aplicando para ello los criterios de razonabilidad, objetividad y sana critica, lo cual dejará constando en una resolución razonada, de conformidad con lo expuesto en el artículo 14° del Reglamento de la Ley Contra la Corrupción y el Enriquecimiento Ilícito.

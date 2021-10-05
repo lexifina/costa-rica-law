@@ -1,0 +1,1 @@
+Artículo 22.-Derogatoria. Estos lineamientos derogan cualquier procedimiento de anterior promulgación de las Auditorías Internas que suscriben este documento, relacionados con la atención de denuncias de presuntos hechos irregulares.

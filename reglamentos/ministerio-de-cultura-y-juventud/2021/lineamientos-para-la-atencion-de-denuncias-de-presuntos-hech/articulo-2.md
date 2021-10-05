@@ -1,0 +1,1 @@
+Artículo 2.-Ámbito de aplicación. Los presentes lineamientos son aplicables a las denuncias que se presenten ante las Auditorías Internas del MCJ, MAC, MNCR, TPMS Y TNCR, en el ejercicio de las competencias conferidas por ley para el análisis de presuntos hechos irregulares que puedan ser generadores de responsabilidad, a cargo de los sujetos incluidos en su ámbito de acción.

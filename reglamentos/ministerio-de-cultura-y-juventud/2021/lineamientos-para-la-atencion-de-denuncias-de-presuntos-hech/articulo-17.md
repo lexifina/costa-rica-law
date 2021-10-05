@@ -1,0 +1,10 @@
+Artículo 17.-Resultado de la admisibilidad de la denuncia. Concluido el análisis inicial de los hechos, la Auditoría Interna definirá el procedimiento que le dará a cada caso particular, considerando alguna de las siguientes acciones posibles:
+a) Iniciar la investigación de los hechos presuntamente irregulares, lo anterior de acuerdo al capítulo III de los presentes lineamientos.
+b) Remitir el asunto a las autoridades internas pertinentes de la institución, cuando se trate de casos que corresponda atender en primera instancia a la Administración Activa y ésta no haya sido enterada de la situación, o se encuentre realizando una investigación por los mismos hechos. De igual manera se remitirá el asunto cuando existan causales de abstención o conflictos de interés que puedan afectar a algún funcionario de la Auditoría Interna.
+c) Remitir el asunto a las autoridades externas a la institución, según corresponda, sean administrativas o judiciales, por especialidad de la materia o porque en otra instancia exista una investigación avanzada sobre los mismos hechos.
+d) Incluir los hechos presuntamente irregulares para ser examinados en una auditoría que se encuentre en ejecución o para la programación de un nuevo estudio o proceso de auditoría.
+e) Desestimar y archivar el caso en atención de los criterios dispuestos en el artículo 18 de estos Lineamientos.
+En todos los casos anteriores, la Auditoría Interna deberá dejar constancia en el expediente de las valoraciones efectuadas para la selección del abordaje del caso.
+Para los puntos b), c) y d) se debe informar al denunciante sobre lo resuelto, sin comprometer las reglas de confidencialidad.
+En lo referente al punto e) se le se debe informar al denunciante o solicitante sobre lo resuelto, mediante acto debidamente motivado, sin comprometer la confidencialidad señalada en el artículo 9 de los presentes lineamientos.
+En caso de que el asunto sea remitido a otra instancia, deben trasladarse todos los elementos atinentes al caso que se encuentren en su poder o que sean de conocimiento de la Auditoría Interna.
