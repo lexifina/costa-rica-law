@@ -14,3 +14,4 @@ Reglamento de Aseguramiento Voluntario y Aseguramiento de Migrantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-09-16 | la propia norma |
+| 2 | 2021-10-05 | Reglamento 9213 (2021-10-05) |
