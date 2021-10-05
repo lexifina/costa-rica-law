@@ -1,0 +1,1 @@
+ARTÍCULO 2- La Dirección Regional de Educación de Alajuela y el Ministerio de Cultura y Juventud celebrarán este día preparando actividades culturales que festejen la narración oral y cuentería; asimismo, la Municipalidad de Alajuela podrá unirse a esta celebración con diferentes actividades.
