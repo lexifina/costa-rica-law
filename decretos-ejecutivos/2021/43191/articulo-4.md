@@ -1,0 +1,1 @@
+Artículo 4º-Que producto del trabajo realizado en la mesa para la población afrocostarricense y en consulta con las poblaciones involucradas, se podrán recomendar medidas administrativas para hacer efectivos los derechos humanos reconocidos en el Convenio 169 y otros instrumentos internacionales de derechos humanos aplicables a pueblos afrodescendientes tribales.

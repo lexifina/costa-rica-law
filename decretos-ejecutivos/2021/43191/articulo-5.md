@@ -1,0 +1,1 @@
+Artículo 5º-Se faculta a las dependencias del Sector Público y se insta a las Instituciones Autónomas y otros Poderes de la República, para que, dentro del marco legal respectivo, colaboren en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus fines y competencias, con los objetivos del presente Decreto Ejecutivo.
