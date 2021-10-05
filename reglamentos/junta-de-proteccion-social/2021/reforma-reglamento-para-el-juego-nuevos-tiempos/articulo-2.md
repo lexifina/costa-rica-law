@@ -1,0 +1,3 @@
+Artículo 2º-Se reforma el artículo 2°, para que se lea de la siguiente manera:
+Artículo 2º-Condiciones. El objeto del presente Reglamento es establecer las condiciones que rigen la venta y pago de premios del juego Nuevos Tiempos en sus diferentes modalidades, la realización de promociones y la ejecución de sus sorteos, sin que suponga se concierte contrato alguno entre los jugadores, ni entre éstos y la Junta, quedando limitada la actividad de quienes participan a pagar el importe correspondiente y efectuar sus apuestas en la forma establecida por estas normas.
+El hecho de realizar una apuesta implica por parte del jugador, el conocimiento de este Reglamento y la adhesión a éste, quedando sometida su apuesta a las normativas del presente Reglamento.
