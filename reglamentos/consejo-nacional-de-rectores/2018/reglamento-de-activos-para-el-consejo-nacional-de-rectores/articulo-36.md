@@ -1,1 +1,2 @@
-Artículo 36.—Del uso. Los activos que por su naturaleza o valor requieran de un seguro, no podrán utilizarse hasta que estén cubiertos o protegidos por la póliza correspondiente.
+Artículo 36.-Ningún funcionario está autorizado para recibir donaciones de activos, con excepción de lo establecido en el artículo 33. El funcionario que realice inventarios o cualquier otro que detecte esta situación, tendrá la obligación de comunicarla a las autoridades correspondientes.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 34 al 36)

@@ -1,3 +1,2 @@
-CAPÍTULO II
-Administración de activos
-Artículo 4º—De la asignación de responsabilidad. Las jefaturas de las dependencias serán las responsables por la administración de los bienes institucionales que fueron asignados a su dependencia.
+Artículo 4°-De la planificación del ciclo de vida de los activos. El Consejo Nacional de Rectores a través de las dependencias cuyas funciones implica la participación durante todo el ciclo de vida de un activo o bien cuente con partidas centralizadas para adquisición de éstos, les corresponde realizar la planificación tomando elementos provenientes de la planificación estratégica y la planificación operativa de la institución. La Proveeduría Institucional deberá rendir un informe anual a la Dirección Administrativa sobre los principales resultados haciendo un análisis del ciclo de vida de los activos, su relación con la planificación y las recomendaciones en buenas prácticas para la toma de decisiones al año siguiente.
+(Así adicionado en sesión N° 34 del 5 de octubre de 2021)

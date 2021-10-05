@@ -1,1 +1,2 @@
-Artículo 51.—De la estructura organizacional. Si la estructura organizativa de la Institución es modificada, las funciones asignadas a las dependencias señaladas en este reglamento serán asumidas por las nuevas dependencias que por su naturaleza tengan esta labor.
+Artículo 51.-Del mantenimiento que generan aumentos. La Proveeduría informará a la Contabilidad sobre el mantenimiento preventivo y correctivo a los activos fuera de garantía que implique una mejora o adición que aumente su vida útil. Le corresponde al Departamento de Gestión Financiera la determinación de la naturaleza y el ajuste contable.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 49 al 51)

@@ -1,3 +1,2 @@
-CAPÍTULO XI
-Disposiciones finales
-Artículo 50.—Normativa supletoria. Los casos no previstos en este reglamento se resolverán de acuerdo con la jurisprudencia administrativa, los dictámenes del Ministerio de Hacienda y de la Contraloría General de la República, emitida sobre la materia que aquí se reglamenta.
+Artículo 50.-De las bajas por destrucción o siniestros. Para que la contabilidad proceda al registro de las bajas deberá mediar acta de destrucción, desuso o resolución administrativa del ente técnico. Las pérdidas de activos por desastre natural tendrán que cumplir con este requisito. El acta deberá estar debidamente firmada por al menos dos funcionarios, diferentes a quienes tenían asignados esos bienes.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 48 al 50)

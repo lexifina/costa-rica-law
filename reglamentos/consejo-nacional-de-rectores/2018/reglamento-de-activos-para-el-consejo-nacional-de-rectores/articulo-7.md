@@ -1,2 +1,2 @@
-Artículo 7º—De los activos controlables. Al Departamento de Gestión Financiera (DGF), le corresponde calcular e informar a más tardar a febrero de cada año, el importe por el cual se considera cuando un activo es controlable.
-El valor de referencia será superior al 25% del salario base del auxiliar administrativo 1 del Poder Judicial de acuerdo con el artículo 2 de la Ley N° 7337 de 5 de mayo de 1993 y sus reformas.
+Artículo 7º-De asignación de custodia. Todo funcionario del Consejo Nacional de Rectores recibirá en buenas condiciones de funcionamiento los activos necesarios para el cumplimiento de sus funciones, asumiendo la responsabilidad de darles el uso adecuado y custodia.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 5 al 7)

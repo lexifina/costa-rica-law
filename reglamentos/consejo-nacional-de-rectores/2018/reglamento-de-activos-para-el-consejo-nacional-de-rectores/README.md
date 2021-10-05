@@ -14,3 +14,4 @@ Reglamento de activos para el Consejo Nacional de Rectores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-18 | la propia norma |
+| 2 | 2021-10-05 | Reglamento 34 (2021-10-05) |

@@ -1,2 +1,2 @@
-Artículo 27.—Del uso. Los activos asignados directamente al funcionario deben ser utilizados únicamente en labores relacionadas con el desempeño de sus funciones y permanecerán en las instalaciones de la Institución, a excepción de aquellos bienes que por su naturaleza se utilicen en trabajos externos, los cuales una vez finalizados deberán ser regresados a la Institución.
-Lo anterior, debe tener la autorización temporal o permanente mediante la boleta o formulario correspondiente.
+Artículo 27.-Del control del préstamo a terceros ajenos. Le corresponde al Departamento de Proveeduría controlar el préstamo de activos que se efectúe a otras Instituciones, velando por los plazos de expiración, para que una vez vencidos se proceda inmediatamente a trasladarlos a su lugar de procedencia.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 25 al 27)

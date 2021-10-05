@@ -1,1 +1,2 @@
-Artículo 53.—Vigencia. Este reglamento rige a partir de su publicación.
+Artículo 53°-Revisión del reglamento y mejora del ciclo de vida de los activos. El Departamento de Proveeduría del CONARE revisará este reglamento cada cinco años y propondrá las reformas que resulten procedentes. De la misma forma, el proceso de ciclo de vida de activos y sus políticas vigentes serán revisadas cada dos años con el fin de ajustarlas a las realidades tanto nacionales como institucionales.
+(Así adicionado en sesión N° 34 del 5 de octubre de 2021)

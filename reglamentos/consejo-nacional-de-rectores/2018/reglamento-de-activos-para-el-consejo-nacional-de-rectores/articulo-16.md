@@ -1,1 +1,2 @@
-Artículo 16.—De la recepción de activos. La Proveeduría Institucional recibirá y registrará el ingreso de los bienes asignándoles su número de activo de conformidad con el artículo 9 del Reglamento de marras.
+Artículo 16.-De la clasificación de activos. Los activos se clasificarán por familia (equipo de transporte, equipo de cómputo, software, equipo y mobiliario de oficina entre otros) utilizando la codificación del plan de cuentas de la Dirección General de Contabilidad Nacional (DGCN).
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 14 al 16)

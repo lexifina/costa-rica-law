@@ -1,6 +1,8 @@
-Artículo 3º—Definiciones.
+Artículo 3º-Definiciones.
 Activo: Son recursos controlados por la entidad, como consecuencia de hechos pasados, y de los cuales se espera obtener en el futuro, beneficios económicos o potencial de servicio.
 Adiciones o mejoras: Son las erogaciones que tienen el efecto directo de aumentar el valor de un activo existente, al incrementar su capacidad, su vida útil y su eficiencia, independientemente del importe de la erogación.
+Ciclo de vida de activos: Enfoque integral de la gestión de los activos que implica desde la planificación, la presupuestación, la adquisición, registro y control, utilización, mantenimiento y disposición de residuo o reciclaje para el cumplimiento de los objetivos estratégicos y/o operativos de una organización.
+(Así adicionada la definición anterior en sesión N° 34 del 5 de octubre de 2021)
 Vida útil: El periodo durante el cual se espera que un activo esté disponible para su uso por una entidad.
 Depreciación y amortización: Es la distribución sistemática del importe depreciable de un activo o activo intangible a lo largo de su vida útil.
 Importe depreciable: Es el costo de un activo, u otro importe que lo haya sustituido, menos su valor residual.
@@ -17,6 +19,8 @@ Desarrollo, construcción y fabricación de activos: Proceso por el cual la inst
 Activos intangibles: Son todos aquellos bienes propiedad de la Institución, representativos de franquicias, privilegios u otros similares, que no son bienes tangibles ni derechos contra terceros, y que expresan un valor cuya existencia depende de la posibilidad futura de producir ingreso. Incluyen, entre otros, los siguientes: derechos de propiedad intelectual; patentes, marcas, licencias, alquileres, activos digitales, derechos de uso, licencias. Estos activos están sujetos a amortización o plusvalía según corresponda.
 Activo de Control: Activo que, por su bajo valor monetario, no califica como activo capitalizable, pero al cual se le asigna una identificación para su control y verificación de existencia.
 Sistema de gestión de activos: Conjunto de herramientas para la gestión de activos cuya función es la de implementar la política de la administración de activos para la consecución de los objetivos institucionales.
+Planificación: corresponde a las acciones de planeación, previsión, programación y presupuestación del ciclo de vida de un activo fijo con la utilización de herramientas, métodos y técnicas cuyo propósito es la consecución de objetivos estratégicos y/o operativos de una organización.
+(Así adicionada la definición anterior en sesión N° 34 del 5 de octubre de 2021)
 Propiedades de inversión: son propiedades (terrenos o un edificio, en su totalidad o en parte, o ambos) que se tienen para obtener rentas o plusvalía o ambas, en lugar de para:(a) su uso en la producción o suministro de bienes o servicios, o bien para fines administrativos; o (b) su venta en el curso ordinario de las operaciones.
 Costo: Es el importe de efectivo y otras partidas pagadas por la adquisición de un activo, o el valor razonable de la contrapartida entregada a cambio en el momento de la adquisición; y importe de los productos recibidos a cambio de incurrir en una obligación o por los importes de efectivo y equivalentes al efectivo que se espera pagar para satisfacer el correspondiente pasivo, en el curso normal de la operación.
 Valor razonable: Es el precio que sería recibido por vender un activo o pagado por transferir un pasivo en una transacción ordenada entre participantes del mercado en la fecha de la medición.

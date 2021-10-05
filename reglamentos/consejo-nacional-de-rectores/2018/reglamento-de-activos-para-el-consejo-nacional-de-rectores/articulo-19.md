@@ -1,1 +1,2 @@
-Artículo 19.—De la actualización de datos. Todos los funcionarios que custodien activos del CONARE, tienen la obligación de registrar y actualizar la información de activos a su cargo, sirviendo para su administración y control interno.
+Artículo 19.-De la responsabilidad por la identificación de activos. Le corresponde a la Proveeduría Institucional, llevar los controles necesarios para que todo bien que sea adquirido por los distintos medios, obtenga salida de bodega hacia cualquier dependencia posterior a su identificación.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 17 al 19)

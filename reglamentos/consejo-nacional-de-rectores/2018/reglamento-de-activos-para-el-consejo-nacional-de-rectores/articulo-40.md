@@ -1,2 +1,4 @@
-Artículo 40.—Responsabilidad garantías de los activos. El responsable de los activos será el encargado de administrar el cumplimiento de las garantías de los activos que se adquieran haciendo ejecución de la misma cuando se requieran.
-En los casos donde las compras de los mismos se realicen de manera masiva o por lotes, el encargado de ejecutar la garantía otorgada por el contratista será el departamento solicitante, no obstante, el custodio en el ámbito de su responsabilidad deberá informar al director de departamento o encargado de la dependencia del CONARE, cuando el activo requiera la ejecución de la garantía para la gestión ante el departamento correspondiente.
+CAPÍTULO VIII
+Del mantenimiento de los activos
+Artículo 40.-De los responsables del proceso de mantenimiento. Serán responsables del proceso de mantenimiento los departamentos de: Proveeduría y Mantenimiento, en el ámbito de su competencia.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 38 al 40)

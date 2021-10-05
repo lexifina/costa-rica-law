@@ -1,1 +1,3 @@
-Artículo 29.—De la sanción. De darse el deterioro anormal de un activo, la jefatura respectiva se encargará de comunicarlo a la Dirección Administrativa, con la finalidad de realizar la investigación y determinar la posible responsabilidad del funcionario.
+Artículo 29.-Del uso. Los activos asignados directamente al funcionario deben ser utilizados únicamente en labores relacionadas con el desempeño de sus funciones y permanecerán en las instalaciones de la Institución, a excepción de aquellos bienes que por su naturaleza se utilicen en trabajos externos, los cuales una vez finalizados deberán ser regresados a la Institución.
+Lo anterior, debe tener la autorización temporal o permanente mediante la boleta o formulario correspondiente.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 27 al 29)

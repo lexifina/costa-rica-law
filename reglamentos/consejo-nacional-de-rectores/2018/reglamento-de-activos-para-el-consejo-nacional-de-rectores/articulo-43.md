@@ -1,1 +1,2 @@
-Artículo 43.—Del tiempo de respuesta para el mantenimiento correctivo. El Departamento encargado de brindar el mantenimiento o su homólogo en las Sedes, deberá en un plazo no mayor de tres días hábiles, entregar el reporte de la valoración o reparación de los activos reportados, por el director o encargado de la dependencia que así lo hiciese.
+Artículo 43.-Del cumplimiento del plazo de mantenimiento preventivo. Todo custodio de activo deberá reportar al director o encargado de la dependencia del CONARE a que éste pertenece, el vencimiento del plazo para el mantenimiento preventivo de los activos a su cargo.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 41 al 43)

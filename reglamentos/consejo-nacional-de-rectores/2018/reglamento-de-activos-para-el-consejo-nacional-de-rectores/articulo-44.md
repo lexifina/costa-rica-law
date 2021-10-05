@@ -1,3 +1,2 @@
-CAPÍTULO IX
-Tratamiento de los activos ociosos y baja de activos
-Artículo 44.—De los activos ociosos. La Proveeduría Institucional deberá buscar la reubicación de los activos ociosos hacia otras dependencias que los requieran. De lo contrario, la Proveeduría Institucional deberá utilizar los medios más eficientes y acordes al marco legal que nos rige para el aprovechamiento de los activos o para su remate.
+Artículo 44.-Del reporte de mantenimiento correctivo. Todo custodio de activos deberá reportar al director o encargado de la dependencia a que este pertenece, el daño o mal funcionamiento de los activos bajo su custodia y éste a la vez lo hará, de acuerdo con el procedimiento establecido, ante el Departamento técnico correspondiente.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 42 al 44)

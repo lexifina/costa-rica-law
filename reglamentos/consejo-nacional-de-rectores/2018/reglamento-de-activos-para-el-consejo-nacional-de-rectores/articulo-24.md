@@ -1,2 +1,3 @@
-Artículo 24.—Del préstamo de activos a otras Instituciones. El préstamo de activos a otras Instituciones deberá realizarse a través de un convenio entre las partes, debe llenarse el formulario correspondiente para el efecto. El departamento de Proveeduría será el encargado de gestionar la salida del activo, quien deberá comunicar al DGF para el registro contable según aplique.
-Para otorgar el préstamo, el Departamento de Proveeduría deberá contar con la autorización del Director de OPES.
+Artículo 24.-Del traslado. Los traslados de activos entre dependencias se realizarán a través del formulario pertinente el cual contará con el visto bueno del superior en grado, girando el original al DGF para el respectivo registro y control.
+Cuando un funcionario sea relevado de su cargo por permisos con o sin goce de salario, renuncia, despido, etc., la jefatura asumirá la responsabilidad de los activos bajo su custodia.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 22 al 24)

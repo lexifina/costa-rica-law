@@ -1,3 +1,2 @@
-CAPÍTULO IV
-Sobre la recepción, control y traslado de los activos
-Artículo 15.—De la compra de activos. El responsable de este proceso es el Departamento de Proveeduría en su adquisición y el Departamento de Gestión Financiera del registro correspondiente, una vez que la dependencia lo haya solicitado.
+Artículo 15.-De la responsabilidad de identificación. La Proveeduría Institucional, será responsable de la adquisición y control de las identificaciones, (placa metálica, código de barras u otros), además suministrará las existencias necesarias, para la identificación de los activos que ingresen a la Institución.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 13 al 15)

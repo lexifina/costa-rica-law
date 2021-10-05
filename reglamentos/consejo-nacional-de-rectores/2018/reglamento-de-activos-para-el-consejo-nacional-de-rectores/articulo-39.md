@@ -1,1 +1,2 @@
-Artículo 39.—Del plan del mantenimiento preventivo. Los directores o encargados de toda dependencia organizacional del CONARE deberán, confeccionar un plan de mantenimiento preventivo de todos los activos que están bajo su responsabilidad, el cual deberá ser enviado al Departamento de Mantenimiento o su homólogo en la Sede, para su incorporación en el plan de mantenimiento y renovación Institucional.
+Artículo 39.-De la ejecución de pólizas. Las indemnizaciones de seguros deben ser gestionadas por la Dirección Administrativa, quien realizará coordinación con las aseguradoras.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 37 al 39)

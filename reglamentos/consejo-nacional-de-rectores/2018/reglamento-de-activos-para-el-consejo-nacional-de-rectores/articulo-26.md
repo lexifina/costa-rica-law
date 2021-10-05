@@ -1,3 +1,3 @@
-CAPÍTULO V
-Uso, custodia y responsabilidad
-Artículo 26.—De la inducción. Los jefes de las dependencias deberán instruir a los funcionarios que ingresan por primera vez al CONARE, acerca de los deberes y potestades que tienen en cuanto al manejo, mantenimiento y custodia de los activos de la Institución.
+Artículo 26.-Del préstamo de activos a otras Instituciones. El préstamo de activos a otras Instituciones deberá realizarse a través de un convenio entre las partes, debe llenarse el formulario correspondiente para el efecto. El departamento de Proveeduría será el encargado de gestionar la salida del activo, quien deberá comunicar al DGF para el registro contable según aplique.
+Para otorgar el préstamo, el Departamento de Proveeduría deberá contar con la autorización del Director de OPES.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 24 al 26)

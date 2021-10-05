@@ -1,1 +1,2 @@
-Artículo 13.—De la responsabilidad de identificación. La Proveeduría Institucional, será responsable de la adquisición y control de las identificaciones, (placa metálica, código de barras u otros), además suministrará las existencias necesarias, para la identificación de los activos que ingresen a la Institución.
+Artículo 13.-Del levantamiento de activos. El DGF, hará de una forma aleatoria, de acuerdo con el procedimiento establecido, la verificación de los levantamientos realizados por los directores o encargados de toda dependencia del CONARE, detallando las acciones realizadas según hallazgos, en el informe correspondiente.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 11 al 13

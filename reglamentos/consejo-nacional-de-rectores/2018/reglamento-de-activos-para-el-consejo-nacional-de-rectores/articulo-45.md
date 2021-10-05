@@ -1,1 +1,2 @@
-Artículo 45.—De la baja en libros contables. La DGF realizará el registro contable de las bajas de los activos en desuso o por deterioro. La Proveeduría Institucional tramitará la disposición de los activos dados de baja según las políticas ambientales emitidas para el manejo de los desechos.
+Artículo 45.-Del tiempo de respuesta para el mantenimiento correctivo. El Departamento encargado de brindar el mantenimiento o su homólogo en las Sedes, deberá en un plazo no mayor de tres días hábiles, entregar el reporte de la valoración o reparación de los activos reportados, por el director o encargado de la dependencia que así lo hiciese.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 44 al 45)

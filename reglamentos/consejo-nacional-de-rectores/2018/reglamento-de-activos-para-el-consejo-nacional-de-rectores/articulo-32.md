@@ -1,1 +1,4 @@
-Artículo 32.—De las sanciones por responsabilidad. Si se determina responsabilidad por parte del funcionario en los casos antes descritos, se le sancionará según lo estipulado en el Título X de la Ley de la Administración Financiera de la República.
+CAPÍTULO VI
+Del extravío, hurto o robo de activos
+Artículo 32.-Del extravío. Cuando un funcionario al que se le extravíe un activo que esté bajo su responsabilidad deberá reportarlo a su superior inmediato y este a su vez reportarlo a DGF. Asimismo, deberá solicitar a la Administración o a la instancia superior que corresponda la investigación de los hechos a efectos de determinar si existe responsabilidad por parte de quien custodiaba.
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 30 al 32)

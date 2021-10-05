@@ -1,3 +1,2 @@
-CAPÍTULO III
-De la identificación y clasificación de los activos
-Artículo 12.—De la identificación de activos. Todo activo de la Institución debe contar con una identificación numérica o alfa numérica de acuerdo con su clasificación, por medio de una placa metálica, cinta adhesiva, código de barras o uso de marcadores.
+Artículo 12.-De los hallazgos del levantamiento de activos. Todo levantamiento de activos realizado por el director o encargado de una dependencia debe registrar y reportar, de acuerdo con lo establecido en el artículo anterior, la condición actual de los activos, sea esta: en uso, desuso, obsoletos, en mal estado, extraviado u otra, de acuerdo con los plazos establecidos en el procedimiento correspondiente. (el procedimiento debe detallar las acciones a seguir de acuerdo con el estado del activo)
+(Así modificada su numeración en sesión N° 34 del 5 de octubre de 2021, que lo traspaso del antiguo artículo 10 al 12)
