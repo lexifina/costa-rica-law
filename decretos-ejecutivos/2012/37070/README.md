@@ -15,3 +15,4 @@ Código Sísmico de Costa Rica 2010
 | --- | --- | --- |
 | 1 | 2012-07-13 | la propia norma |
 | 2 | 2014-04-29 | Reglamento 3 (2014-04-29) |
+| 3 | 2021-10-05 | Reglamento 0 (2021-10-05) |
