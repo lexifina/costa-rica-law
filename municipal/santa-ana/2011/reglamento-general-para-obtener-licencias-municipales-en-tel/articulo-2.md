@@ -1,5 +1,0 @@
-Artículo 2º— Se establecen como sus objetivos específicos:
-1. Asegurarse de que las obras, estructuras e instalaciones para Redes y Sistemas de Telecomunicaciones, sean realizadas de conformidad con las especificaciones técnicas bajo las cuáles fueron autorizadas.
-2. Propiciar razonablemente la minimización del impacto visual y ambiental sin perjuicio de la legislación nacional vigente, para lo cual se autorizará la construcción únicamente de la infraestructura necesaria para lograr la cobertura y calidad del servicio que requiere la población en el ámbito de las telecomunicaciones, rechazando toda gestión que no forme parte de este principio.
-3. Minimizar el posible impacto a la salud que las emisiones electromagnéticas puedan generar de acuerdo al principio precautorio y la normativa del Ministerio de Salud sobre la materia.
-4. Asegurarse de que las actividades comerciales desplegadas se enmarquen dentro de las regulaciones existentes en materia de patentes comerciales, de acuerdo con el Código Municipal y la Ley de Impuestos Municipales del Cantón de Santa Ana y demás legislación aplicable.

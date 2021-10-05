@@ -1,2 +1,0 @@
-Artículo 13.-Para resguardar el espacio urbano ambiental y minimizar el impacto visual, no se autorizarán nuevas torres, postes o estructuras en un radio de 250 metros de otra torre, poste o estructura que haya sido autorizada previamente. Cuando se reciba más de una solicitud dentro de un mismo radio de cobertura, se le otorgará la licencia de construcción al primer solicitante, siempre que haya cumplido con todos los requisitos.
-(Así reformado mediante sesión ordinaria N° 113 del 3 de julio del 2012)

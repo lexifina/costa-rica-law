@@ -1,1 +1,0 @@
-Artículo 28.—Una vez presentada completa la solicitud de licencia ante la Municipalidad con todos los requisitos, la Administración tendrá treinta días naturales para emitir la resolución final a la gestión de la licencia. El interesado contará con la posibilidad de impugnar ésta resolución, mediante los recursos previstos en el Código Municipal.

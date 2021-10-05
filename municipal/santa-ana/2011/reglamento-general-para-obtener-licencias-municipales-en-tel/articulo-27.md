@@ -1,1 +1,0 @@
-Artículo 27.—La patente comercial, tanto para los dotadores de infraestructura como para los operadores y proveedores, se fijará de acuerdo al procedimiento establecido en la Ley de Impuestos Municipales del Cantón de Santa Ana.
