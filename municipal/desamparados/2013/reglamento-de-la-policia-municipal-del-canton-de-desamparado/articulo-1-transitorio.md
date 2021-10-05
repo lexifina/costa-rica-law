@@ -1,3 +1,0 @@
-CAPÍTULO IX
-Transitorios
-Transitorio I.—La Administración determinará, a través de la Unidad de Recursos Humanos, las plazas de Oficial de Seguridad que pasarán a formar parte de la Policía Municipal, tomando en consideración los requisitos y las condiciones particulares de los oficiales de seguridad que laboran actualmente en la Municipalidad, de conformidad con el nuevo Manual de Puestos; así mismo podrá, conforme a nuestra legislación, implementar planes remediales en aquellos casos de oficiales de seguridad, en que por razones de conveniencia institucional, se considere la implementación de los mismos.

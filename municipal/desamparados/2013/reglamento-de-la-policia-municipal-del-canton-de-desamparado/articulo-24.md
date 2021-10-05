@@ -1,1 +1,0 @@
-Artículo 24.—Los policías municipales, incluyendo el Jefe de Policía, que incurran en el extravío, pérdida o sustracción del uniforme, equipo policial y dotación reglamentaria por negligencia inexcusable, conforme a la legislación establecida, deberán reponerla al municipio.

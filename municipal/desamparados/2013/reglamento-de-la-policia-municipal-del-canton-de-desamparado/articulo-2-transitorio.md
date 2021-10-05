@@ -1,2 +1,0 @@
-Transitorio II.—Las plazas nuevas para policías municipales creadas para el Presupuesto del año 2013, deberán sacarse a concurso en el año 2013.
-Toda Plaza nueva de Policía Municipal que sea creada a partir de la entrada en vigencia del presente reglamento, así como las plazas de Jefe(a) y Subjefe(a) de la Policía Municipal, deberán ser sacadas primero a concurso interno y/o externo conforme lo establecido en el Código Municipal.
