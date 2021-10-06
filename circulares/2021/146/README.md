@@ -13,3 +13,4 @@ Acuerdo de Corte Plena. Sesión N° 27-2021 del 30 de junio de 2021, en atenció
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-30 | la propia norma |
+| 2 | 2021-10-06 | Circular 210 (2021-10-06) |
