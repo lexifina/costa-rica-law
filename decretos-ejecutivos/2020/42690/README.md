@@ -32,3 +32,4 @@ Medidas migratorias temporales en el proceso de reapertura de fronteras en el ma
 | 17 | 2021-07-30 | Decreto Ejecutivo 43142 (2021-07-30) |
 | 18 | 2021-08-25 | Decreto Ejecutivo 43165 (2021-08-25) |
 | 19 | 2021-09-29 | Decreto Ejecutivo 43246 (2021-09-29) |
+| 20 | 2021-10-06 | Decreto Ejecutivo 43250 (2021-10-06) |
