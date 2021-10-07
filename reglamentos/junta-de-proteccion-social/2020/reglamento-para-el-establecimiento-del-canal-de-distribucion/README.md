@@ -16,3 +16,4 @@ Reglamento para el establecimiento del canal de distribución de loterías preim
 | 1 | 2020-05-03 | la propia norma |
 | 2 | 2020-07-02 | Reglamento 39 (2020-07-02) |
 | 3 | 2021-09-27 | Reglamento 57 (2021-09-27) |
+| 4 | 2021-10-07 | Reglamento 59 (2021-10-07) |
