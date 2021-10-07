@@ -14,3 +14,4 @@ Términos y condiciones de uso del sitio WEB
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-12 | la propia norma |
+| 2 | 2021-10-07 | Reglamento 59 (2021-10-07) |
