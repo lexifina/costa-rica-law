@@ -14,3 +14,4 @@ Reforma Reglamento a la Ley Nacional de Vacunación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-11 | la propia norma |
+| 2 | 2021-10-07 | Decreto Ejecutivo 43249 (2021-10-07) |
