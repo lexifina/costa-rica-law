@@ -15,3 +15,4 @@ Reglamento para realizar compras en el sitio Web
 | --- | --- | --- |
 | 1 | 2020-05-03 | la propia norma |
 | 2 | 2020-07-02 | Reglamento 39 (2020-07-02) |
+| 3 | 2021-10-07 | Reglamento 59 (2021-10-07) |
