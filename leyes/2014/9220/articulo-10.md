@@ -8,7 +8,8 @@ f) Consolidar un sistema de información sobre las características de la poblac
 g) Realizar recomendaciones en materia de infraestructura, aspectos pedagógicos y otros que mejoren la calidad de los servicios de cuido y desarrollo infantil.
 h) Realizar estudios bianuales de costos en la prestación de los servicios de cuido y desarrollo infantil, en las diferentes modalidades, y brindar las recomendaciones a las entidades responsables, para la actualización del monto de los subsidios a las familias.
 Estos subsidios deberán contar con criterios y montos homologados entre instituciones, según las condiciones del servicio, de acuerdo con los estudios y el análisis de la Secretaría Técnica de la Redcudi.
-Para la implementación de los subsidios, la familia beneficiaria podrá elegir la alternativa de cuido y desarrollo infantil de su elección, debidamente acreditada ante la red. Este subsidio será transferido a la alternativa elegida.
+Para la implementación de los subsidios, la familia beneficiaria podrá elegir la alternativa de cuido y desarrollo infantil de su elección, debidamente acreditada ante la red. Este subsidio será transferido a la alternativa elegida. para ello, se autoriza el uso de la figura de pago a terceros por parte de las instituciones ejecutoras que así lo dispongan.
+(Así reformado el párrafo anterior por el artículo 3° de la ley N° 10038 del 29 de setiembre del 2021)
 i) Impulsar la investigación en las áreas relacionadas con el desarrollo infantil.
 j) Participar, dentro del ámbito de su competencia, en la gestión de los recursos provenientes de fuentes nacionales e internacionales (fideicomisos y cooperación técnica, entre otros), para la consolidación y expansión de la Redcudi y, de ser necesario, actuar como unidad ejecutora de tales recursos.
 k) Coordinar y articular con los gobiernos locales del país.

@@ -1,3 +1,6 @@
-ARTÍCULO 9.- Secretaría Técnica
-Se crea la Secretaría Técnica de la Redcudi como instancia técnica responsable de promover la articulación entre los diferentes actores públicos y privados, las diferentes actividades que desarrollan en el país en materia de cuido y desarrollo infantil, así como de expandir la cobertura de los servicios.
-La Secretaría Técnica se constituirá en ejecutora de las actividades que le sean encomendadas por la Comisión Consultiva, será un órgano de máxima desconcentración, técnica y funcionalmente especializado, con independencia de criterio, y personalidad jurídica instrumental y presupuestaria. La Secretaría estará adscrita al ministerio que ejerza la rectoría del sector social o, en ausencia de este, al Instituto Mixto de Ayuda Social, el cual incluirá en su presupuesto la partida correspondiente para atender los gastos operativos, administrativos y de personal que requiera este órgano para su funcionamiento.
+Artículo 9- Secretaría Técnica
+La Redcudi tendrá una Secretaría Técnica, adscrita al Patronato Nacional de la Infancia (PANI), el cual incluirá en su presupuesto la partida correspondiente para atender los gastos operativos, administrativos y de personal que requiera este órgano para su funcionamiento.
+La Secretaría Técnica será la instancia responsable de articular todos los actores públicos y privados, las diferentes actividades que desarrollan en ei país en materia de cuido y de.sarrollo infantil, así como de expandir la cobertura de los servicios.
+La Secretaría Técnica es un órgano de máxima desconcentración y personalidad jurídica instrumental y presupuestaria e independencia técnica y funcional.
+Es el órgano ejecutivo de las actividades y responsabilidades encomendadas por la Comisión Consultiva.
+(Así reformado por el artículo 2° de la ley N° 10038 del 29 de setiembre del 2021)

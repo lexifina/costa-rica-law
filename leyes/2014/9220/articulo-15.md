@@ -7,4 +7,8 @@ c) La totalidad del superávit libre acumulado del ejercicio económico trasante
 d) El cincuenta por ciento (50%) de la totalidad del superávit libre acumulado del ejercicio económico trasanterior del Instituto Nacional de las Mujeres (Inamu), registrado en la liquidación presupuestaria.
 e) Recursos provenientes de fuentes nacionales e internacionales que se le asignen a los entes, los órganos y las instituciones que formen parte de la Redcudi mediante convenio, directriz presidencial, decreto o ley de la República.
 Los recursos presupuestarios asignados a la Redcudi podrán considerarse dentro del ocho por ciento (8%) del PIB, que el artículo 78 constitucional establece como el financiamiento mínimo a la educación estatal.
+Los recursos señalados en los incisos b), c) y d) serán trasladados por cada institución a las unidades ejecutoras de la Red, con base en la estrategia nacional que defina la Comisión Consultiva de ]a Redcudi.
+(Así adicionado el párrafo anterior por el artículo 7° de la ley N° 10038 del 29 de setiembre del 2021)
+Los recursos presupuestados que provengan de superávit podrán utilizarse en la atención de gasto corriente.
+(Así adicionado el párrafo anterior por el artículo 7° de la ley N° 10038 del 29 de setiembre del 2021)
 (Así reformado por el artículo 1° de la ley para la reactivación y reforzamiento de la red nacional de cuido y desarrollo infantil, N° 9941 del 15 de febrero del 2021)
