@@ -1,0 +1,7 @@
+TÍTULO II
+Del proceso de financiamiento
+Capítulo I
+Normas Generales
+Artículo 8-. Objeto del financiamiento del IFAM. El IFAM podrá conceder préstamos a los sujetos de financiamiento a corto, mediano y largo plazo para financiar proyectos de obras y servicios municipales, a efectos de fortalecer el régimen municipal, estimulando el funcionamiento eficiente del gobierno local para promover el mejoramiento de la administración pública municipal.
+En los casos donde el sujeto de financiamiento sea la ejecutora del proyecto, el IFAM podrá realizar un primer desembolso de hasta un 10% del costo total del proyecto, para la adquisición de bienes o servicios indispensables para el inicio y correcta ejecución de la obra; siempre y cuando esto no constituya un gasto corriente, lo cual deberá ser debidamente acreditado por la Unidad de Servicios Técnicos y Financiamiento. En ninguna circunstancia podrá financiarse gastos de remuneración del personal ordinario del sujeto de financiamiento. Para los desembolsos posteriores se irá descontando el porcentaje girado de manera proporcional.
+El IFAM podrá financiar servicios de Asistencia Técnica, bajo las condiciones que establezca el Reglamento de Asistencias Técnicas, parcial o totalmente a través de una operación de financiamiento, previa e independiente, de la que eventualmente financiaría el proyecto de inversión, en caso de ser aprobada esta última.

@@ -1,0 +1,1 @@
+Transitorio 3 La Administración tendrá un plazo de hasta 60 días para remitir a aprobación a la Junta Directiva las guías y los procedimientos con sus respectivas metodologías señalados en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 47-. De los informes de avance de ejecución. Cada dos meses o previa solicitud de las dependencias administradoras del crédito del IFAM, el sujeto de financiamiento deberá presentar informes de avance de ejecución del proyecto.

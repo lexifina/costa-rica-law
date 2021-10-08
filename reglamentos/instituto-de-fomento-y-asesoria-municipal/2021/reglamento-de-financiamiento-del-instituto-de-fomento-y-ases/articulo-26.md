@@ -1,0 +1,4 @@
+CAPÍTULO III
+Condiciones generales del financiamiento
+Artículo 26-. De las condiciones de financiamiento y la Política de Crédito. La tasa de interés, la fuente de recursos, los plazos para cancelar la comisión por administración financiera, para pagar los intereses y para amortizar los préstamos, se fijarán de acuerdo con lo que determine la Política de Financiamiento, el presente reglamento, y los procedimientos y metodologías atinentes.
+Para aquellos proyectos que por sus características puedan definirse como "Proyecto Sostenible", se podrán ofrecer el beneficio de otorgar un descuento de veinticinco porciento (25%) con respecto a la tasa de interés del estrato que le corresponda al sujeto de financiamiento. Lo anterior con la debida justificación para calificar el proyecto dentro del marco ambiental y siempre que la fuente de financiamiento lo permita

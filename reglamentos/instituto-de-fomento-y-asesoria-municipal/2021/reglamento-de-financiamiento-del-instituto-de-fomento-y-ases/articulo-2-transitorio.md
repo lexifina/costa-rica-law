@@ -1,0 +1,2 @@
+Transitorio 2- Cuando las disposiciones contenidas en este reglamento en los artículos 38,57,58,63, resulten más favorables que las condiciones de los financiamientos vigentes, formalizados antes de la publicación de este reglamento, las mismas podrán aplicarse en forma retroactiva, siempre y cuando resulten en beneficio para el sujeto de financiamiento y se cumpla con todos los requisitos técnico-financieros estipulados para cada situación normada en el presente reglamento.
+Lo anterior deberá ser contemplado en el respectivo contrato vía adenda.

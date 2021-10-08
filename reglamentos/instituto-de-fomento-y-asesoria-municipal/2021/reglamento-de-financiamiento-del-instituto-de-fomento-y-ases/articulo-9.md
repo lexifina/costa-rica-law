@@ -1,0 +1,1 @@
+Artículo 9-. De la obligación de observar la normativa aplicable y vigente. Las operaciones de financiamiento del IFAM se otorgarán y administrarán en estricta observancia y aplicación de la normativa y disposiciones establecidas en el presente Reglamento, y en la Política de Financiamiento para financiar proyectos de obras y servicios municipales.

@@ -1,0 +1,4 @@
+Artículo 53-. De la comisión por trámite y formalización del financiamiento. El IFAM cobrará una comisión base sobre el monto del préstamo correspondiente al 0,50%, por trámite y formalización del financiamiento.
+Para aquellos proyectos que por sus características puedan definirse como "proyecto ambientalmente sostenible" y los proyectos para la atención de "población en desventaja social" la comisión por trámite y formalización del financiamiento será de un 0,25%.
+Las características del proyecto serán evaluadas por el IFAM, para determinar si cumple con la condición de proyectos ambientalmente sostenible y población en desventaja social a partir de criterios objetivos previamente definidos para este fin.
+Esta comisión será pagada por una única vez al momento del giro del primer desembolso.

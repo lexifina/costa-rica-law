@@ -1,0 +1,1 @@
+Artículo 20-. De la prohibición de financiar gasto corriente. En acatamiento de las disposiciones consagradas en el artículo 6 de la Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, no podrán otorgarse financiamientos para cubrir gasto corriente de los sujetos de financiamiento.

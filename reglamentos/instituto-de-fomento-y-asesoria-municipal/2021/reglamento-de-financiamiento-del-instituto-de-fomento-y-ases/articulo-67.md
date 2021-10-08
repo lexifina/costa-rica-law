@@ -1,0 +1,1 @@
+Artículo 67: De la obligatoriedad de incorporar oportunamente las reformas que sufra el presente reglamento. Corresponde a la Dirección Ejecutiva incorporar toda reforma o adición que se aplique al presente reglamento, para aprobación de la Junta Directiva del IFAM y posterior publicación en el Diario Oficial La Gaceta.
