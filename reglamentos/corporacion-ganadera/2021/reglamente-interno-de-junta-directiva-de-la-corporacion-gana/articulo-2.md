@@ -1,0 +1,1 @@
+Artículo 2º-Deberes y facultades de la Junta Directiva. Adicional a los deberes y facultades que establece el artículo 19 de la Ley 7837 creación de la Corporación Ganadera, la Junta Directiva deberá cumplir con la normativa técnica y jurídica aplicable.

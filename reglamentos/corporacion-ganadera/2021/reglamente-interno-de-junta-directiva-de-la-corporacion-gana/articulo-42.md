@@ -1,0 +1,3 @@
+Artículo 42.-Acceso a información. Tendrán acceso a las actas y grabaciones de forma parcial o total, las personas interesadas deberán presentar una solicitud por escrito o por correo electrónico a la Corporación Ganadera; la misma será coordinada por la Secretaría de Actas en coordinación con la Dirección Ejecutiva. Se dispondrá de un plazo de diez días hábiles para entregar la información a la parte interesada.
+Lo anterior, salvo que la Junta Directiva previamente haya declarado el acuerdo o la información solicitada de carácter confidencial, en cuyo caso esta no podrá ser remitida en los términos solicitados.
+La entrega de la información será en forma impresa, para lo cual el interesado deberá hacer la cancelación de las copias respectivas o bien en forma digital.

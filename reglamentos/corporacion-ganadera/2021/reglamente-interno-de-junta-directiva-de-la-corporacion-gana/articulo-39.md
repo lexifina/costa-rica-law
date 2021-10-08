@@ -1,0 +1,1 @@
+Artículo 39.-Aprobación del Acta. No podrán ratificar el acta en la siguiente sesión los Directores que estuvieron ausentes en la sesión anterior.

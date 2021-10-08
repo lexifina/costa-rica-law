@@ -1,0 +1,1 @@
+Artículo 23.-Acta de las sesiones. La discusión de los temas tratados, así como los acuerdos, deberán consignarse en el acta en forma clara y precisa por la Secretaría de Actas, procurando que la esencia de los temas tratados conste con la mayor fidelidad posible.

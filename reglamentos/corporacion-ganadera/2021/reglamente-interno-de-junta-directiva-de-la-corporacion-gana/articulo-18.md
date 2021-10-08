@@ -1,0 +1,3 @@
+Artículo 18.-Uso de la palabra. El uso de la palabra debe limitarse al tema en discusión, si el tema no ha sido consignado en agenda, no formará parte de la discusión ni se consignará en el acta respectiva.
+Si algún Director desea incluir un tema para discusión en la sesión, previamente deberá solicitar la modificación en el orden del día.
+Al inicio de la sesión, los directores, en caso de tener temas para conocimiento de la Junta Directiva, deberán detallarlos e indicar si corresponden a asuntos del director o de la organización que representa. Lo anterior para ordenar el tiempo y cantidad de temas de la sesión Junta Directiva.
