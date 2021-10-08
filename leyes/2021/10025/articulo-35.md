@@ -1,0 +1,1 @@
+ARTÍCULO 35- El Estado desarrollará programas de formación especializados para los agentes literarios, libreros y distribuidores, en particular dirigidos a promover la aplicación de nuevas tecnologías.

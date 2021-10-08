@@ -1,0 +1,1 @@
+ARTÍCULO 45- Se autoriza a todas las instituciones públicas, centralizadas y autónomas, y a las empresas del Estado para que presupuesten y realicen transferencias a favor del Fondo Nacional de la Lectura, el Libro y las Bibliotecas creado en esta ley, para apoyar el desarrollo y cumplimiento de los fines y las actividades que le corresponden a ese Fondo.

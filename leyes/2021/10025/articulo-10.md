@@ -1,0 +1,1 @@
+ARTÍCULO 10- El Estado autorizará las compras públicas de libros para la red de bibliotecas públicas y escolares, que incluyan obras en formatos accesibles para personas ciegas o con algún tipo de discapacidad.

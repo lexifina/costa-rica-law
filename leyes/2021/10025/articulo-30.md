@@ -1,0 +1,1 @@
+ARTÍCULO 30- El Estado mantendrá los estándares internacionales y sus sucesivas actualizaciones, para la identificación de libros y productos relacionados que estén a disposición del público en general.

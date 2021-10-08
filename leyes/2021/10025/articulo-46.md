@@ -1,0 +1,1 @@
+ARTÍCULO 46- Los contribuyentes del impuesto sobre la renta, personas físicas o jurídicas, podrán hacer aportes al Fondo Nacional de la Lectura, el Libro y las Bibliotecas, los cuales se considerarán como un gasto válidamente deducible para el cálculo de la renta neta imponible de ese impuesto o como crédito tributario.

@@ -1,0 +1,1 @@
+ARTÍCULO 31- La Agencia Nacional ISBN, del Sistema Nacional de Bibliotecas, es responsable de las normas técnicas d,􀂚I ISBN, da seguimiento a los sistemas de identificación y a las normas estandarizadas que puedan surgir para el entorno digital en relación con la actividad editorial.
