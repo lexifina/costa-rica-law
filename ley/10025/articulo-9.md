@@ -1,0 +1,1 @@
+ARTÍCULO 9- El Estado promoverá la conformación de bibliotecas comunitarias y el uso del libro en todos los ámbitos, incluyendo el hogar y el ámbito penitenciario. Para ello, podrá realizar convenios con los gobiernos locales, las fundaciones, los grupos organizados y las asociaciones de desarrollo comunales debidamente inscritas.

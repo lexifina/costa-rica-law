@@ -1,0 +1,4 @@
+TRANSITORIO ÚNICO -- En la medida en que los ciudadanos tengan mayor capacidad de interpretación y comprensión tendrán mayores posibilidades de entender las normas y los comportamientos que les garanticen a ellos mismos y al país la seguridad; en consecuencia, para el financiamiento del Fondo Nacional de la Lectura, el Libro y las Bibliotecas se establece la autorización, previo acuerdo de la Junta Directiva del Instituto Nacional de Seguros (INS), de presupuestar y transferirle, de sus utilidades anuales, hasta doscientos cincuenta millones de colones anuales (i250 000 000), durante un período de cinco años consecutivos.
+Esa transferencia deberá realizarse durante el mes de enero de cada año del período indicado, iniciando el primer mes de enero luego de la entrada en vigencia de la presente ley.
+Rige a partir de su publicación.
+Dado en la provincia de Cartago, a los catorce días del mes de septiembre del año dos mil veintiuno.

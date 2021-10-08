@@ -1,0 +1,1 @@
+ARTÍCULO 28- El Estado apoyará el desarrollo de programas de formación profesional especializados en todas las áreas de la industria de la edición, en especial las que contribuyan a la modernización administrativa y tecnológica de las editoriales. Para las editoriales privadas la participación en estos programas se establecerá de forma voluntaria.

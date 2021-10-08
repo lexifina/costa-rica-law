@@ -1,0 +1,1 @@
+ARTÍCULO 23- El Estado fomentará una cultura de respeto por las creaciones intelectuales y sus autorE!S. Para ello, apoyará la divulgación de la creación nacional tanto en nuestro país como en el extranjero y fomentará, en el ámbito escolar y social, el conocimiento de las obras literarias, artísticas y de sus autores.

@@ -1,0 +1,1 @@
+ARTÍCULO 38- El gobierno, por medio del Consejo Nacional de la Lectura, el Libro y las Bibliotecas, gestionará acuerdos para obtener tarifas postales y fletes de transporte preferenciales para el libro.

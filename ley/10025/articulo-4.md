@@ -1,0 +1,1 @@
+ARTÍCULO 4- El Estado definirá y pondrá en marcha el Plan Nacional de Lectura, en cuya elaboración, ejecución, evaluación y actualización periódica participarán los ministerios de Educación Pública y el de Cultura y Juventud.
