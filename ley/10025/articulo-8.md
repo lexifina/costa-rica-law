@@ -1,0 +1,1 @@
+ARTÍCULO 8- El Estado garantizará la existencia de bibliotecas públicas como lugares de acceso de tocia la población al libro y la información, como entidades de apoyo a la formación de lectores y como lugares de encuentro comunitario y cultural.

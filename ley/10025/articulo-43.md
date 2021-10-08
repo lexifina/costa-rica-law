@@ -1,0 +1,1 @@
+ARTÍCULO 43- El Poder Ejecutivo reglamentará la elección de los representantes al Consejo y señalará la entidad oficial que asumiría la Secretaría, especificando los criterios, los mecanismos y la periodicidad de elección de los representantes de los distintos sectores.

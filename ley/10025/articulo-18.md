@@ -1,0 +1,1 @@
+ARTÍCULO 18- Los editores, productores o autores independientes deben cumplir con el depósito legal de toda obra producida o publicada a la Biblioteca Nacional, tanto en formato impreso como en formato digital.
