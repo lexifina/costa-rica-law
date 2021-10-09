@@ -1,0 +1,1 @@
+ARTÍCULO 15- Política pública en gobierno digital. El Ministerio de Ciencia, Tecnología y Telecomunicaciones (Micitt) definirá la política pública que la ANGD deberá cumplir e implementar para las instituciones de la Administración Pública, en materia de gobierno digital. Para esto, el Micitt podrá definir proyectos y servicios transversales para que sean ejecutados por la ANGD.

@@ -1,0 +1,1 @@
+ARTÍCULO 14- Personas funcionarias de la ANGD. Las relaciones laborales de las personas funcionarias de la ANGD, así como sus nombramientos, se regirán por la Ley 1581, Estatuto de Servicio Civil, de 30 de mayo de 1953.

@@ -1,0 +1,1 @@
+TRANSITORIO II- A partir de la entrada en vigor de esta ley, y dentro de los noventa días naturales siguientes a la publicación del reglamento, la Junta Directiva se constituirá y realizará su primera sesión.
