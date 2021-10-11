@@ -1,1 +1,0 @@
-Artículo 11.—Valores. La Auditoría General mantiene valores alineados con los institucionales y los de la profesión, los cuales constituyen el referente que rige la conducta de los funcionarios y forman la base para el logro de la misión, visión y objetivos estratégicos.

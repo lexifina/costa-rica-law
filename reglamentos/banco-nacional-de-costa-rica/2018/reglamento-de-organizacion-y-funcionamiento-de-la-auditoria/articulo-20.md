@@ -1,1 +1,0 @@
-Artículo 20.—Pericia y debido cuidado profesional. El auditor general, el subauditor general y personal de la Auditoría General desempeñan sus funciones con pericia y el debido cuidado profesional, haciendo valer sus competencias, con independencia funcional y de criterio técnico.
