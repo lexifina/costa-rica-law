@@ -1,0 +1,2 @@
+Transitorio único: La conservación de la información que respalda la aplicación de los procesos de debida diligencia según se indica en la presente resolución, no tendrá efectos retroactivos para los períodos reportables 2017, 2018, 2019 y 2020, sin embargo, las entidades financieras sujetas a reportar que aún la mantienen bajo su poder, deben conservarla y custodiarla, procurando cumplir con el plazo establecido en esta resolución.
+(Así adiconado por el artículo 1° de la resolución N° DGT-R-27-2021 del 11 de octubre de 2021)
