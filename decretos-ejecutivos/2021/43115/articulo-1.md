@@ -1,0 +1,16 @@
+N° 43115-MEP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE EDUCACIÓN PÚBLICA
+Con fundamento en lo dispuesto en los artículos 79, 80, 140 inciso 3) y 146 de la Constitución Política, los artículos 1, 4 y 5 de la Ley Orgánica del Ministerio de Educación Nº 3481 del 13 de enero de 1965, los artículos 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b, de la Ley N° 6227 del 02 de mayo de 1978, Ley General de la Administración Pública, las disposiciones contenidas en el Reglamento sobre Centros Docentes Privados, Decreto Ejecutivo Nº 24017-MEP del 09 de febrero de 1995 y Decreto Ejecutivo N° 25900-MEP de los 11 días del mes de marzo de 1997.
+Considerando:
+I.-Que la Constitución Política establece en su artículo 79 que: "Se garantiza la libertad de enseñanza, no obstante, todo centro docente privado estará bajo la inspección del Estado". Así también el artículo 80 del mismo cuerpo normativo señala: "La iniciativa privada en materia educacional merecerá estímulo del Estado, en la forma que indique la ley".
+II.-Que el Decreto Ejecutivo Nº 24017-MEP, publicado en el Diario Oficial La Gaceta número 41, de fecha 27 de febrero de 1995, denominado "Reglamento sobre Centros Docentes Privados", establece los procedimientos mediante los cuales se oficializan, formalizan, equiparan, certifican y acreditan los estudios realizados en los centros docentes privados, correspondientes a los niveles de Preescolar, Educación General Básica y Educación Diversificada en sus distintas ramas y modalidades del Sistema Educativo Estatal.
+III.-Que mediante Decreto Ejecutivo Nº25900-MEP, publicado en La Gaceta Nº 68 del 9 de abril de 1997, se acogió favorablemente la solicitud presentada por la representante legal de Jardín de Niños Ruiseñor Sociedad Anónima, cédula jurídica, 3-101-080161, propietaria del Centro Educativo Jardín de Niños Ruiseñor, donde se acreditó Preescolar.
+IV.-Que mediante escrito del día 01 de diciembre de 2020, la señora Giselle Arce Robles, cédula de identidad número 7-0057-0186, representante legal de Jardín de Niños Ruiseñor Sociedad Anónima, cédula jurídica N° 3-101-080161, propietaria del Centro Educativo Jardín de Niños Ruiseñor, solicitó el cierre de los servicios escolares de la institución, por motivo del cambio en la modalidad de las clases presenciales a virtuales así como la merma significativa en los ingresos de los padres de familia producto de la pandemia de COVID-19.
+V.-Que de conformidad con el artículo 12 del Decreto Ejecutivo N° 37045-MP-MEIC, "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", adicionado por el Decreto Ejecutivo N° 38898-MP-MEIC, artículo 12 bis y, en virtud de que este instrumento jurídico no contiene trámites, requisitos ni obligaciones que perjudiquen al administrado, se exonera del trámite de la evaluación costo-beneficio de la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio. Por tanto,
+Decretan:
+MODIFICACIÓN DEL ARTÍCULO 1°, INCISO B)
+DEL DECRETO EJECUTIVO N° 25900-MEP,
+PUBLICADO EN LA GACETA N° 68,
+DEL 9 DE ABRIL DE 1997
+Artículo 1º-Modifíquese el artículo 1°, inciso B) titulado "De Preescolar" del Decreto Ejecutivo N° 25900-MEP para que se elimine el nombre: Jardín de Niños Ruiseñor, provincia: San José, Cantón: Pavas.
