@@ -1,0 +1,1 @@
+Artículo 35.-De la Intimidación, fuerza o violencia contra el Notificador de Parquímetros: De conformidad con las disposiciones del artículo 316 del Código Penal, incurre en Delito contra la Autoridad; quien amenazare a un Notificador de Parquímetros, a causa de sus funciones, o con la intención de evadir la aplicación de este reglamento.

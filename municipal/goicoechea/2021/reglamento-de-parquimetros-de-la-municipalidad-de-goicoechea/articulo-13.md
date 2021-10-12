@@ -1,0 +1,1 @@
+Articulo 13.-Horario de operación del sistema de estacionamiento de vehículos en las vías públicas: Doce horas por día de lunes a sábado entre las siete horas y las diecinueve horas. Sin embargo, dicho horario puede ser variado por la Administración para atender situaciones y eventos especiales.

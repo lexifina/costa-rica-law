@@ -1,0 +1,1 @@
+Transitorio 3º-Se someterá a consulta pública por diez días mediante publicación en el diario oficial la gaceta según artículo 43 del Código Municipal, luego de dicho sometimiento entrará en vigencia.
