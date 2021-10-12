@@ -1,0 +1,1 @@
+Artículo 16 - Investigaciones penales. Cada Parte adoptará las medidas legislativas y de otra índole, necesarias, de conformidad con los principios de su legislación nacional, para garantizar una investigación y unas actuaciones penales eficaces en cuanto a los delitos tipificados de conformidad con el presente Convenio.

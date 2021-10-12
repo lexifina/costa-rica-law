@@ -1,0 +1,2 @@
+Capítulo III - Derecho procesal penal
+Artículo 15 - Inicio y continuación del enjuiciamiento. Cada Parte adoptará las medidas legislativas y de otra índole, necesarias para garantizar que la investigación y enjuiciamientos penales, en cuanto a los delitos tipificados en el presente Convenio, no deban subordinarse a la presentación de una denuncia y que las acciones procesales puedan continuar aunque la denuncia haya sido retirada.

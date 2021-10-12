@@ -1,0 +1,4 @@
+Artículo 9 - Complicidad y tentativa
+1 Cada Parte adoptará las medidas legislativas y de otra índole, necesarias para tipificar como delito cualquier complicidad, si se ha cometido intencionalmente, con el fin de cometer cualquiera de los delitos tipificados, de conformidad con el presente Convenio.
+2 Cada Parte adoptará las medidas legislativas y de otra índole necesarias para tipificar como delito, la tentativa intencionada de cometer cualquiera de los delitos tipificados, de conformidad con el presente Convenio.
+3 Cualquier Estado o la Unión Europea podrá, mediante una declaración dirigida al Secretario General del Consejo de Europa, en el momento de la firma o al depositar su instrumento de ratificación, aceptación o aprobación, declarar que se reserva el derecho de no aplicar, o de aplicar únicamente en determinados casos o condiciones, el párrafo 2, en lo que se refiere a delitos tipificados, con apego al artículo 7 y el artículo 8.

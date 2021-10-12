@@ -1,0 +1,14 @@
+Artículo 10 - Competencia
+1 Cada parte adoptará las medidas legislativas y de otra índole, necesarias para establecer su competencia con respecto a cualquier delito tipificado, de conformidad con el presente Convenio, cuando el delito es cometido:
+a. en su territorio; o
+b. a bordo de un buque que enarbole el pabellón de esa Parte; o
+c. a bordo de una aeronave matriculada con apego a las leyes de esa Parte; o
+d. por uno de sus nacionales; o
+e. por una persona que tenga su residencia habitual en su territorio.
+2 Cada Parte adoptará las medidas legislativas y de otra índole, necesarias para establecer su competencia con respecto a cualquier delito tipificado, de conformidad con el presente Convenio, cuando el delito se cometa contra uno de sus nacionales o de una persona que tenga su residencia habitual en su territorio.
+3 Cualquier Estado o la Unión Europea podrá, mediante una declaración dirigida al Secretario general del Consejo de Europa, en el momento de la firma, o al depositar su instrumento de ratificación, aceptación o aprobación, declarar que se reserva el derecho de no aplicar o de aplicar únicamente en determinados casos o condiciones, las normas sobre competencia establecidas en el párrafo 1, letras d) y e), del presente artículo.
+4 Para el enjuiciamiento de los delitos tipificados con apego al presente Convenio, cada Parte adoptará las medidas legislativas o de otra índole, necesarias para garantizar que su competencia, en lo que se refiere a los párrafos 1. d) y e) del presente artículo, no está supeditada a la condición de que el enjuiciamiento solo pueda iniciarse tras una denuncia de la víctima o del Estado del lugar en que se haya cometido el delito.
+5 Cualquier Estado o la Unión Europea podrá, mediante una declaración dirigida al Secretario General del Consejo de Europa, en el momento de la firma o al depositar su instrumento de ratificación, aceptación o aprobación, declarar que se reserva el derecho de no aplicar el párrafo 4 del presente artículo, o de aplicarlo únicamente en casos específicos.
+6 Cada Parte adoptará las medidas legislativas o de otra índole, necesarias para establecer su competencia en cuanto a los delitos tipificados, de conformidad con el presente Convenio, en los casos en que un presunto autor se encuentre en su territorio y no pueda extraditarlo a otro Estado, únicamente por motivo de su nacionalidad.
+7 Cuando varias Partes reivindiquen su competencia en cuanto a un presunto delito con apego al presente Convenio, las Partes involucradas se concertarán, si es del caso, con el fin de determinar la competencia más apropiada para su enjuiciamiento.
+8 Sin perjuicio de las normas generales del Derecho Internacional, el presente Convenio no excluye competencia penal alguna ejercida por una Parte, de conformidad con su Derecho interno.

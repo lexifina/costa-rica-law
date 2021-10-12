@@ -1,0 +1,3 @@
+Artículo 8 - Preparación, preservación, almacenamiento, transporte, traslado, recepción, importación y exportación de órganos humanos extraídos de manera ilícita. Cada Parte adoptará las medidas legislativas y de otra índole, necesarias para tipificar como delito, si se ha cometido intencionalmente:
+a. La preparación, preservación y almacenamiento de órganos humanos extraídos de manera ilícita, según se indica en el párrafo 1 del artículo 4, y en su caso, en el párrafo 4 del artículo 4;
+b. El transporte, traslado, recepción, importación y exportación de órganos humanos extraídos de manera ilícita, según se indica en el párrafo 1 del artículo 4, y en su caso, en el párrafo 4 del artículo 4.

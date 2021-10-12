@@ -1,0 +1,5 @@
+Artículo 30 - Reservas
+1 Cualquier Estado o la Unión Europea podrá, en el momento de la firma o del depósito del instrumento de ratificación, aceptación o aprobación, declarar que se acoge a una o más de las reservas previstas en el párrafo 2 del artículo 4; el párrafo 3 del artículo 9; los párrafos 3 y 5 del artículo 10.
+2 Cualquier Estado o la Unión Europea podrá igualmente, en el momento de la firma o del depósito del instrumento de ratificación, aceptación o aprobación, declarar que se reserva el derecho a aplicar el artículo 5 y los párrafos 2 y 3 del artículo 7, únicamente en cuanto a los delitos que hayan sido cometidos con fines de implantación o con fines de implantación y otros, según sea especificado por la Parte.
+3 No se recibirá ninguna otra reserva.
+4 Cualquier Parte que haya formulado una reserva podrá retirarla, total o parcialmente, en cualquier momento, mediante notificación dirigida al Secretario General del Consejo de Europa. Dicho retiro surtirá efectos desde la fecha de recepción de la notificación por parte del Secretario General.

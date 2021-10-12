@@ -1,0 +1,7 @@
+Capítulo VIII - Enmiendas al Convenio
+Artículo 27 - Enmiendas
+1 Toda enmienda al presente Convenio propuesta por una Parte, deberá ser comunicado al Secretario General del Consejo de Europa y transmitido por éste a los Estados miembros del Consejo de Europa, a los Estados que gocen de la condición de observadores en el Consejo de Europa, a la Unión Europea y a todo Estado invitado a firmar el Convenio.
+2 Toda enmienda propuesta por una Parte deberá ser comunicada al Comité Europeo de Problemas penales (CDPC) así como a otros comités intergubernamentales o científicos pertinentes del Consejo de Europa, que someterán al Comité de las partes su opinión sobre dicha enmienda.
+3 El Comité de Ministros del Consejo de Europa examinará la enmienda propuesta y la opinión presentada por el Comité de las Partes, y tras consultas con las Partes en el presente Convenio que no sean Miembros del Consejo de Europa, podrá adoptar la enmienda por la mayoría prevista en el artículo 20 d) del Estatuto del Consejo de Europa.
+4 El texto de toda enmienda adoptada por el Comité de Ministros, de conformidad con el párrafo 3 del presente artículo, será comunicado a las Partes para su aceptación.
+5 Toda enmienda adoptada, de conformidad con el párrafo 3 del presente artículo, entrará en vigor el primer día del mes siguiente a la expiración de un plazo de un mes, desde la fecha en la que todas las Partes hayan informado al Secretario General de su aceptación de la misma.

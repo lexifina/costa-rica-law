@@ -1,0 +1,1 @@
+Artículo 14 - Condenas anteriores. Cada Parte adoptará las medidas legislativas y de otra índole, necesarias para prever la posibilidad de tomar en cuenta, en la determinación de las penas, las condenas firmes impuestas por otra Parte, en relación con delitos tipificados, de conformidad con el presente Convenio.
