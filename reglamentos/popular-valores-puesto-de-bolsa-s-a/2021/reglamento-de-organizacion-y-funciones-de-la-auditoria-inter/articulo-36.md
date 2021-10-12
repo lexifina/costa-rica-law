@@ -1,0 +1,2 @@
+Artículo 36-Trámite de Informes de Servicios de Auditoría. Los informes producto de los Servicios de Auditoría, se tramitarán de conformidad con lo dispuesto en los artículos 35, 36, 37 y 38 de la Ley General de Control Interno, y con observancia del Manual para el Ejercicio de la Auditoría Interna emitido por la Contraloría General de la República. Además, se aplicarán las Directrices para la verificación del cumplimiento de las disposiciones emitidas por Contraloría General de la
+República y de la Auditoría Interna.

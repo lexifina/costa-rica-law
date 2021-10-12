@@ -1,0 +1,1 @@
+Artículo 3-Ámbito de Aplicación. El presente Reglamento es de acatamiento obligatorio para todas las personas trabajadoras de la Auditoría Interna y para el resto de las personas trabajadoras de la Administración Activa en la materia que les resulte aplicable.
