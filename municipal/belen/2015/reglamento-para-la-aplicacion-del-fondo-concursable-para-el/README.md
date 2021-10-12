@@ -14,3 +14,4 @@ Reglamento para la aplicación del fondo concursable para el desarrollo artísti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-30 | la propia norma |
+| 2 | 2021-10-12 | Reglamento municipal 61 (2021-10-12) |
