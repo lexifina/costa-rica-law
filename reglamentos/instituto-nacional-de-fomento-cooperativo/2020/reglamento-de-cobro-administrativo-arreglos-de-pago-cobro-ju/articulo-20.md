@@ -1,1 +1,0 @@
-Artículo 20.—Normativa: En todos los aspectos relacionados con la regulación de los fideicomisos de garantía y su ejecución, con respecto a los cuales sea omiso el presente Reglamento, se aplicará lo que establezca el clausulado de cada contrato de fideicomiso en específico y lo que dispone sobre este tema el Código de Comercio de Costa Rica, en sus artículos 633 y siguientes.

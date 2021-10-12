@@ -1,1 +1,0 @@
-Artículo 15.—Del cobro judicial. Le corresponde a la Asesoría Jurídica, ejercer el control y seguimiento a las gestiones de cobro judicial. En todo caso dicha Dependencia deberá informar y emitir recomendaciones a la Dirección Ejecutiva sobre situaciones anómalas que se presenten en estos procesos cobratorios.

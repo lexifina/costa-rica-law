@@ -1,1 +1,0 @@
-Artículo 19.—Proceso de Ejecución de las Garantías del Fideicomiso. El proceso de ejecución de las garantías respaldadas por medio de fideicomisos de garantía a favor del INFOCOOP, estará regulado por lo que al respecto se estipule en el clausulado de cada uno de los contratos de fideicomiso suscritos.

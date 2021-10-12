@@ -1,1 +1,0 @@
-Artículo 30.—Condiciones crediticias aplicables. Las condiciones crediticias que se den en este tipo de arreglo se ajustarán a lo establecido en el “Reglamento de Créditos del INFOCOOP para los Recursos: Propios, Juveniles y PL 480”.
