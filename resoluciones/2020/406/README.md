@@ -14,3 +14,4 @@ Implementa el cobro de la medida de salvaguardia definitiva en un 27.68% adicion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-01 | la propia norma |
+| 2 | 2021-10-12 | Resolución 373 (2021-10-12) |
