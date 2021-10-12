@@ -1,1 +1,0 @@
-Artículo 4.—Las sesiones ordinarias y extraordinarias se efectuarán en local sede de la Municipalidad , con las excepciones del artículo siguiente, según el reloj del despacho, en caso de que no hubiere o estuviere dañado se regirá por el reloj del Presidente Municipal.

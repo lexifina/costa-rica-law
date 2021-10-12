@@ -1,1 +1,0 @@
-Artículo 9.—Las sesiones del Concejo deberán iniciarse dentro de los 15 minutos siguientes de la hora señalada al efecto, conforme el reloj del despacho o del Presidente Municipal. Pasados los 15 minutos anteriores, si no hubiere quórum se dejará constancia en el Libro de Actas y se consignará el nombre de los regidores presentes.

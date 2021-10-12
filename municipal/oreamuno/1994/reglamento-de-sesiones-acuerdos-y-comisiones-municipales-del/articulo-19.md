@@ -1,1 +1,0 @@
-Artículo 19.—En el capítulo dé Iniciativas de los Regidores, éstos presentarán sus mociones y proposiciones por escrito, y firmadas. El secretario anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación, salvo que se trate de mociones de orden.

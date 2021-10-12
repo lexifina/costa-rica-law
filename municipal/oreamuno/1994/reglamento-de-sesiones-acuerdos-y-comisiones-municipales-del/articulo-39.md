@@ -1,1 +1,0 @@
-Artículo 39.—Las comisiones despacharán los asuntos a su cargo a la mayor brevedad posible. Salvo los casos especiales en que el Presidente del Concejo, en forma expresa, fije un término menor o superior.

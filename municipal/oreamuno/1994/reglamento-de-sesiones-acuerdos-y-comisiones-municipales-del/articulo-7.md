@@ -1,1 +1,0 @@
-Artículo 7.—La convocatoria se notificará personalmente al funcionario o en su casa de habitación, lugar de trabajo si este estuviese dentro del cantón. En uno u otro caso, firmará la persona que recibe la notificación, debiendo la autoridad o el notificador hacerlo constar en el acta de notificación.
