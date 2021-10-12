@@ -1,0 +1,2 @@
+Artículo 20 Bis: Sobre el Procedimiento: corresponderá al Departamento de Recursos Humanos la elaboración de los lineamientos en que se va a sustentar el reconocimiento del recargo de funciones, estableciendo el procedimiento el cual deberá ser de conocimiento de todas las jefaturas y personal en general, el cual deberá estar listo en un plazo no mayor a 15 días naturales.
+(Así adicionado mediante sesión ordinaria Nº 41 del 12 de octubre del 2021)

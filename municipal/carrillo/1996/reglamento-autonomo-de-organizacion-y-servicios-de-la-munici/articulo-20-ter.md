@@ -1,0 +1,2 @@
+Artículo: 20 Ter: El Superior Jerárquico o Director de la dependencia interesada en el recargo de funciones, deberá realizar la verificación previa del contenido presupuestario para ello, necesario para la respectiva remuneración del funcionario que atenderá el recargo, ante la entidad respectiva. Bajo ninguna circunstancia, se podrá asumir compromisos de recargo de funciones en nombre de la municipalidad, sin contar con el contenido presupuestario.
+(Así adicionado mediante sesión ordinaria Nº 41 del 12 de octubre del 2021)
