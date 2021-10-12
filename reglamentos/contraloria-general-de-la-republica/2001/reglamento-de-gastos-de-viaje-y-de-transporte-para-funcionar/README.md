@@ -31,3 +31,4 @@ Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos
 | 16 | 2016-07-14 | Resolución 65 (2016-07-14) |
 | 17 | 2017-05-22 | Resolución 38 (2017-05-22) |
 | 18 | 2019-07-05 | Resolución 63 (2019-07-05) |
+| 19 | 2021-10-12 | Resolución 95 (2021-10-12) |
