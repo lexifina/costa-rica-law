@@ -272,10 +272,12 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de un
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Oftalmología Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-16.17.4. Retina y Vítreo.
+(*)16.17.4 Retina y Vítreo
 Requisitos específicos:
-a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos.
-b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Retina y Vítreo, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación de un programa de estudios posgrado (residencia médica) de un (1) año en la Subespecialidad en Retina y Vítreo, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+c. Récord quirúrgico que incluya al menos 300 cirugías de vitrectomía, de las cuales al menos 200 cirugías como cirujano asistente y al menos 100 como cirujano principal, realizados durante el programa de estudios de posgrado (residencia médica)
+(*)(Así reformada la subespecialidad anterior mediante sesión N° 2021-10-13 del 13 de octubre del 2021)
 16.17.5. Uveítis.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos.
@@ -486,7 +488,7 @@ Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Radiología Torácica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 16.23. Subespecialidades Médicas de Oncología Radioterápica
-(*)(Así Así modificada su denominación mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021. Anteriormente indicaba “Subespecialidades Médicas de Radioterapia”)
+(*)(Así Así modificada su denominación mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021. Anteriormente indicaba "Subespecialidades Médicas de Radioterapia")
 16.23.1. Radioterapia Pediátrica.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Radioterapia en el Colegio de Médicos y Cirujanos.
