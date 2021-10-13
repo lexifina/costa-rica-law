@@ -1,0 +1,2 @@
+Artículo 22. Conflicto de interés.
+Los peritos valuadores internos del INFOCOOP deberán abstenerse de participar en avalúos y peritajes internos cuando haya interés personal involucrado en beneficio propio, de sus familiares hasta en tercer grado de consanguinidad y de las agrupaciones y sociedades mercantiles a las que pertenece, lo cual deberá quedar constando en la respectiva declaración jurada o nota de rechazo del avalúo o peritaje asignado.

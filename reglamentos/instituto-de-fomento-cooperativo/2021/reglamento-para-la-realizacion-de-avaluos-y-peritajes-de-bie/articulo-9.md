@@ -1,0 +1,4 @@
+Artículo 9. De las bases de datos del EIVI
+El EIVI, deberá de contar con una base de datos de peritos valuadores institucionales, organizada por sus características, así como por sus especialidades. En dicha base de datos se debe registrar todos los avalúos o peritajes realizados por el perito, y si el mismo se hace en su calidad de titular, cotitular o apoyo.
+Para consolidar la información de las valuaciones realizadas el EIVI deberá mantener actualizada una base de datos donde se registren para cada caso un resumen del estudio de avalúo donde se registren los datos más relevantes incluyendo todas las propiedades que fueron consideradas en los estudios de mercado.
+El ejecutivo asignado, una vez entregado el estudio de avalúo o peritaje, deberá de incluir en la base de datos la información correspondiente de acuerdo con el procedimiento.

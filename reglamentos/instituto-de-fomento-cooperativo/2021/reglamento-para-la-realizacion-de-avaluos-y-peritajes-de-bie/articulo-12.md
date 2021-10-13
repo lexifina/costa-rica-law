@@ -1,0 +1,4 @@
+Artículo 12. De la solicitud de un avalúo o peritaje al EIVI.
+El Gerente de Administrativo Financiero, será el encargado de la solicitud de realización de avalúos y peritajes internos, mediante la remisión de un oficio al coordinador del EIVI en el que se define el uso o fin para el cual se solicita el avalúo y como anexo se encuentre el expediente del bien.
+Para los efectos de solicitud de avalúos en bienes invadidos, será el responsable de gestionar a lo interno del INFOCOOP o ante las autoridades pertinentes, la seguridad requerida para garantizar la integridad física de los ejecutivos del EIVI asignados a la realización del avalúo o peritaje solicitado.
+Una descripción de la situación de ocupación del bien, con los respectivos contactos y seguridad gestionada (según se requiera), será incluida como parte de la solicitud de avalúo o peritaje.

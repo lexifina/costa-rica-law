@@ -1,0 +1,2 @@
+Transitorio.
+El “Reglamento para la realización de avalúos y peritajes de bienes muebles e inmuebles adjudicados o recibidos en dación de pago por el instituto Nacional de Fomento Cooperativo y disponibles para la venta” aplicará para todos los avalúos o peritajes que no hayan sido iniciados al momento de entrar en vigor. Rige a partir de su publicación. Dr. Alejandro Ortega Calderón, Director Ejecutivo.

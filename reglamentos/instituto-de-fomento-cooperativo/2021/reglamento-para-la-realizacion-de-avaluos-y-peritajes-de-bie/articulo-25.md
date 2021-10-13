@@ -1,0 +1,2 @@
+Artículo 25. Del contenido y estructura de los documentos del estudio de avalúo.
+Toda solicitud de avalúo y peritaje solicitado, que no haya sido rechazado por el EIVI, debe contar con un documento de informe de avalúo o peritaje remitido al Gerente del departamento Administrativo Financiero, para revelar los resultados y conclusiones a las que se llega sobre el bien valorado. Dicho informe contará con un formato estándar con un contenido mínimo de información que estará definido en el procedimiento.

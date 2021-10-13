@@ -1,0 +1,2 @@
+Artículo 8. De la coordinación del EIVI.
+El EIVI contará con un coordinador interno, el cual será el enlace directo con el Gerente del Departamento Administrativo Financiero, y será el responsable de la solicitud de materiales equipos, capacitaciones, la distribución interna de avalúos y peritajes encomendados por la Administración a partir del rol previamente establecido, el control de su ejecución, traslado de los respectivos informes y las comunicaciones al Departamento Administrativo Financiero y a donde correspondan las copias de este.

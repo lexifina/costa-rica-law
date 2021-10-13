@@ -1,0 +1,2 @@
+Artículo 11. Del expediente de los bienes a valorar
+El Gerente de Administrativo Financiero para remitir la solicitud de valoración de un bien, deberá remitir el expediente del bien el cual debe contener como mínimo el número de inscripción ante el registro público, plano catastrado de la propiedad, ubicación exacta del bien a valorar en caso de bienes inmuebles; en caso de bienes muebles, ubicación, avalúos anteriores (si hubieren) y cualquier información relacionada al bien de acuerdo con su naturaleza.

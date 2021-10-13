@@ -1,0 +1,2 @@
+Artículo 29. Vigencia de los avalúos.
+Para valoraciones de bienes inmuebles se consideran vigentes hasta por un año a partir de la fecha de firma del informe (fecha efectiva del avalúo). Para valoraciones de bienes muebles, debido a que en general son bienes mucho más susceptibles al deterioro físico y a la obsolescencia funcional o económica, la vigencia puede ser hasta un máximo de seis meses luego de la fecha de la opinión de valor o fecha efectiva del avalúo.

@@ -1,0 +1,2 @@
+Artículo 23. De la inspección de un bien.
+Para la realización de todo avalúo o peritaje, sin excepción alguna, de acuerdo con el procedimiento establecido para los avalúos y peritajes, se deberá de realizar al menos una visita de campo que permita valorar la situación real del bien, y realizar los respectivos estudios de mercado que se usarán como referencia de valoración. Toda visita de campo será documentada a través de una “Boleta de inspección de un bien”. En el anexo 4 se encuentra el documento modelo de la Boleta de inspección de un bien.

@@ -1,0 +1,3 @@
+CAPÍTULO III DE LOS ASPECTOS DE LA EJECUCIÓN DE AVALÚOS Y PERITAJES
+Artículo 10. De la base de datos de bienes recibidos en dación de pago o adjudicados, y disponibles para la venta.
+El Departamento Administrativo Financiero del INFOCOOP, deberá contar con una base de datos actualizada que operará como inventario permanente del detalle de bienes recibidos en dación de pago o adjudicados, y disponibles para la venta, cuyo contenido estará definido en el anexo 1, donde se encuentra la estructura de datos a registrar en la base de datos de los bienes recibidos en dación de pago o adjudicados y disponibles para la venta.

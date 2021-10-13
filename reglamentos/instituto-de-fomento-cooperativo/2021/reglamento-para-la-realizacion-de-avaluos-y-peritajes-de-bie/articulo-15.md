@@ -1,0 +1,2 @@
+Artículo 15. Del rechazo de un avalúo o peritaje y la devolución del expediente.
+En los casos donde el avalúo o peritaje no se pueda realizar por falta de información del expediente o impedimentos para ubicar el bien o bienes, a donde no se tiene acceso o cualquier otra justificación imposibilitante, se hará devolución del expediente del bien en un plazo no mayor a 3 días hábiles posteriores a la entrega del expediente o la visita de campo según corresponda con su debida justificación. En el anexo 2 se encuentra los documentos modelo para la devolución de expedientes.

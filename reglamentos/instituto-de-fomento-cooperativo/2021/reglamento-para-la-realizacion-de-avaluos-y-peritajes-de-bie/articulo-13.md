@@ -1,0 +1,2 @@
+Artículo 13. De la asignación de los avalúos o peritajes a lo interno del EIVI.
+Una vez recibida la solicitud de realización de un avalúo o peritaje por parte del Gerente de Administrativo Financiero, corresponde al coordinador del EIVI su asignación de acuerdo con un rol establecido con conforme a las competencias de los valuadores disponibles ,registrando en la base de datos del rol de valuadores, si la asignación se realiza en calidad de titular, cotitular o apoyo.
