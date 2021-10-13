@@ -1,0 +1,9 @@
+Artículo 13 "Del Codeudor Solidario".
+Se podrán constituir como codeudores solidarios los conyugues o parejas en unión de hecho del solicitante del crédito hipotecario, que coticen para los regímenes de pensiones del Magisterio Nacional y del Poder Judicial, mismos que si cotizan para el Régimen Salud y Enfermedad de la Caja Costarricense de Seguro Social, quien deberá cumplir con el Artículo N° 11 de este Reglamento.
+Para las personas del mismo sexo que demuestren que conviven en unión de hecho podrán presentar a su compañera/o como codeudor solidario, si se ajustan a lo establecido en el Artículo N° 11 de este Reglamento.
+No obstante, cuando la Administración razonadamente juzgue procedente podrá rechazar la garantía solidaria.
+El solicitante podrá aportar máximo un codeudor solidario (en caso de ingreso familiar, se tomará el cónyuge como codeudor solidario). En el cálculo de la capacidad de pago del solicitante y el codeudor solidario, se tomarán en cuenta los siguientes aspectos:
+a) El monto de la cuota mensual del préstamo más el pago de las respectivas pólizas de vida e incendio, no podrá ser mayor al 40% del ingreso líquido del solicitante o entre cónyuges. Si el solicitante presenta un codeudor solidario, que no sea el cónyuge, podrá comprometer hasta un 55% del salario líquido del deudor.
+b) En caso de que el solicitante o codeudor solidario posean otros ingresos por actividades económicas, podrá ser tomado en consideración, si dicho ingreso es reportado a la CCSS, mismo que deberá ser de al menos doce cuotas de los últimos dieciocho meses; debiendo estar al día con los pagos por estos conceptos.
+c) Para aquellos cotizantes que lo hacen en calidad de trabajadores independientes, el ingreso bruto será el equivalente al 100% del ingreso reportado a la CCSS.
+d) Cuando se trate de un pensionado del Seguro Invalidez, Vejez y Muerte, el 100% del monto mensual de la pensión representará su correspondiente ingreso bruto.

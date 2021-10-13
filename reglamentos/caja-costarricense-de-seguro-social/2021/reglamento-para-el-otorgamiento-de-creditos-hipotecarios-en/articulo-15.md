@@ -1,0 +1,3 @@
+Artículo 15 "De la valoración de las garantías hipotecarias".
+Las propiedades ofrecidas en garantía hipotecaria serán valoradas por peritos valuadores internos o externos, y los honorarios correrán por cuenta del prestatario, según tarifa (arancel) fijado por el Colegio Federado de Ingenieros y Arquitectos, en el caso que corresponda.
+Los servicios ofrecidos por estos profesionales deberán ajustarse a los lineamentos establecidos en el Instructivo emitido por la Sub Área Gestión Crédito.

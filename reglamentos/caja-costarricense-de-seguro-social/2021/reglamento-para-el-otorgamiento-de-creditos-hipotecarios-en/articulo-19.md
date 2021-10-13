@@ -1,0 +1,3 @@
+Artículo 19 "Del desembolso en la formalización de los créditos hipotecarios".
+El giro total del monto por concepto de préstamo hipotecario en las siguientes líneas de crédito: compra de casa, compra de lote o cancelación de hipoteca que pesen sobre la propiedad ofrecida en garantía; se realizará en el momento en que se firma la escritura pública, ante el notario debidamente autorizado para tal efecto.
+El control de los desembolsos de los recursos al momento de la formalización será ejercido por la Sub Área Gestión de Crédito y el Área de Crédito y Cobro en forma conjunta, mismos que se realizarán por medio de transferencia electrónica o cheques.
