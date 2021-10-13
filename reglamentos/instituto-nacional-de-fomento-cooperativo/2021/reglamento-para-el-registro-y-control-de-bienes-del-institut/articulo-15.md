@@ -1,0 +1,1 @@
+Artículo 15.-Otros tipos de alta. Cualquier otro tipo de alta no regulada en este Reglamento, deberá ser conforme la normativa de bienes del Ministerio de Hacienda y los lineamientos necesarios para su aplicación.

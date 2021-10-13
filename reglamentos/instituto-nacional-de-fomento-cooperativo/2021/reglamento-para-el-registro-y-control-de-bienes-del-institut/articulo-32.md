@@ -1,0 +1,1 @@
+Artículo 32.-Bienes inmuebles demaniales. Los bienes inmuebles demaniales, así como todas las adhesiones (edificaciones, y otros activos considerados bienes inmuebles, exceptuando los bienes muebles) construidas dentro de éstos, deben ser registradas bajo la administración del departamento Administrativo Financiero.

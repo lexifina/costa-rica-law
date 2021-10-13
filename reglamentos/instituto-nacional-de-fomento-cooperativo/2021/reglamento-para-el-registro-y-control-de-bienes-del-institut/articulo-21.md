@@ -1,0 +1,2 @@
+Artículo 21.-Control e informe sobre donaciones. La institución donataria elaborará un informe, que remitirá a la Dirección Ejecutiva, informando de la donación ejecutada y esta lo elevará a la Junta Directiva como tema informativo.
+De no elaborarse el informe, la Dirección Ejecutiva procederá a informar al máximo jerarca de la institución de tal incumplimiento, para que se apliquen las medidas administrativas respectivas.

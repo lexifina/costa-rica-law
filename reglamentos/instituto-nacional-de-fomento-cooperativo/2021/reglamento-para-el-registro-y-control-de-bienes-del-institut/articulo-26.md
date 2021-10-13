@@ -1,0 +1,4 @@
+Artículo 26.-Baja de bienes por duplicidad. La duplicidad de bienes puede ser identificada por el departamento Administrativo Financiero o el responsable del bien, para lo cual deberá proceder con el cumplimiento de los siguientes requisitos:
+a) Reporte de verificación de los datos del bien ubicado físicamente y en el sistema informático para el registro y control de bienes, firmado por la Jefatura del departamento Administrativo Financiero y el responsable del bien.
+b) Copia de documentos de respaldo como parte del proceso de ubicación del bien, como: orden de compra, factura, recibido conforme, entre otros de ser posible y si no existen debe ser así informado.
+c) El departamento Administrativo Financiero procederá a actualizar en el sistema informático para el registro y control de bienes y comunicará sobre lo actuado a la Contabilidad y a la Dirección Ejecutiva, sobre lo actuado.
