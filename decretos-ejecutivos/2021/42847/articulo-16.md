@@ -95,6 +95,10 @@ Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Urología, o Cirugía General, o Cirugía Pediátrica, o Vascular Periférico, en el Colegio de Médicos y Cirujanos de Costa Rica.
 b. Aprobación de un (1) año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Cirugía del Trasplante Renal, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 (*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
+16.5.6. Cirugía de Pared Abdominal. Requisitos Específicos:
+a. Estar debidamente inscrito como Especialista en Cirugía General en el Colegio de Médicos y Cirujanos.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Cirugía de Pared Abdominal en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-10-13 del 13 de octubre del 2021)
 16.6. Subespecialidades Médicas de Cirugía Plástica, Reconstructiva y Estética.
 16.6.1. Cirugía en Mano.
 Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía en Extremidad Superior y Mano; Cirugía en Mano, Muñeca y Nervios Periféricos.
