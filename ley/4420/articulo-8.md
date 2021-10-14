@@ -1,11 +1,3 @@
-Artículo 8º.- Los miembros de la Junta Directiva actuarán en sus
-cargos un año, no pudiendo ser reelectos por más de dos períodos
-consecutivos. La Asamblea General se realizará cada año, en la última
-semana de noviembre, debiendo los directores asumir sus puestos el primero
-de enero siguiente.
-La elección a la Junta Directiva se hará por votación secreta y por
-mayoría absoluta de votos de la Asamblea General, procediéndose a elegirla
-en el siguiente orden: Presidente, Vicepresidente, Secretario, Fiscal,
-Tesorero y Vocales. En caso de empate o de no haber mayoría absoluta, se
-repetirá la elección entre los miembros que obtuvieron mayor número de
-votos.
+Artículo 8- Los miembros de la Junta Directiva y Fiscalía serán elegidos por dos años, pudiendo ser reelegidos por una única vez, mediante papeletas en proceso electoral abierto, que será regulado por el Tribunal de Elecciones Internas. En ese proceso podrán participar todos los miembros activos y resultará elegida la papeleta que obtenga el mayor número de votos válidos emitidos; los votos nulos o en blanco no se sumarán a ningún grupo. Corresponde al Tribunal de Elecciones Internas informar, en la Asamblea General ordinaria, el resultado de las elecciones y procederá a juramentar a las personas electas, quienes iniciarán funciones el primero de enero del año siguiente.
+En caso de empate entre las papeletas más votadas, que impida definir un ganador, se repetirá la elección entre ambas en una votación que se realizará el segundo jueves de noviembre, para lo cual queda automáticamente convocada la Asamblea General para conocer los resultados de la segunda ronda electoral.
+(Así reformado por el artículo único de la ley N° 10042 del 30 de setiembre de 2021)
