@@ -1,2 +1,2 @@
-Artículo 7º.- La Junta Directiva la integrarán: Un Presidente, un
-Vicepresidente, un Secretario, un Fiscal, un Tesorero y dos Vocales.
+Artículo 7- La Junta Directiva estará integrada por una Presidencia, una Vicepresidencia, una Secretaría, una Tesorería y tres Vocalías. Estos nombramientos deberán asegurar la representación paritaria de ambos sexos, para que la integración de este órgano colegiado impar, la diferencia entre el total de hombres y mujeres no sea superior a uno.
+(Así reformado por el artículo único de la ley N° 10042 del 30 de setiembre de 2021)

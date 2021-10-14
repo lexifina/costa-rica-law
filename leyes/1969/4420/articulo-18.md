@@ -1,11 +1,4 @@
 CAPITULO IV
 Atribuciones del Tribunal de Honor
-Artículo 18.- La Junta Directiva del Colegio integrará un Tribunal de
-Honor, formado por tres propietarios y dos suplentes, que durarán en sus
-cargos dos años. El Tribunal conocerá de los casos propios de cuerpos de
-esta índole, cuando se pida a la Junta Directiva y ésta lo acordare, elevar
-a su conocimiento, situaciones que a su juicio lo ameriten, en virtud de
-estar de por medio, aspectos morales, éticos o profesionales, que pongan en
-duda actuaciones de uno o más de sus colegiados. Los acuerdos de la Junta
-Directiva para elevar al Tribunal estos casos, se tomarán por mayoría
-simple.
+Artículo 18- El Colegio tendrá un Tribunal de Honor integrado por un miembro que represente cada una de las profesiones que integren este Colegio y conocerá de las denuncias presentadas contra los integrantes, los que serán nombrados por la Junta Directiva en la última sesión del mes de enero del año en que asume la dirección y su plazo será de dos años, pudiendo ser reelegidos por una única vez. De su seno se nombrará una Presidencia y una secretaria.
+(Así reformado por el artículo único de la ley N° 10042 del 30 de setiembre de 2021)

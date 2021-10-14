@@ -1,21 +1,8 @@
-Artículo 11.- Son atribuciones de la Junta Directiva:
-a) Convocar a la Asamblea Ordinaria en la fecha que señala esta ley y a
-las Asambleas Extraordinarias; cuando sea necesario, según su juicio; sin
-embargo, veinte o más socios podrán pedir la convocatoria a Asamblea
-General Extraordinaria, dando las razones que tengan para ello, y citando
-el tema específico que quieren tratar. La petición se hará por escrito y
-la Directiva actuará automáticamente una vez recibida, lo que implicará la
-convocatoria inmediata a sesión de la Junta Directiva, para proceder de
-conformidad. En ningún caso se podrá diferir esta convocatoria a Asamblea
-General Extraordinaria, por más de cinco días.
-La Junta Directiva acordará la convocatoria de Asamblea Ordinaria en
-la fecha que señale esta ley y la publicará, señalando el día y hora en que
-aquélla se realizará;
-b) Dirigir las publicaciones que haga el Colegio, delegando su
-responsabilidad en uno o más miembros asociados y asumiendo ella, la
-responsabilidad intelectual y económica;
-c) Examinar las cuentas de Tesorería, formular los proyectos de
-presupuesto y rendir informe de labores a la Asamblea General, en su Sesión
-Ordinaria; y
-d) Conocer las renuncias de sus miembros directores o de los colegiados,
-y hacerlo del conocimiento de la Asamblea.
+Artículo 11- Son atribuciones de la Junta Directiva:
+a) Convocar e la Asamblea ordinaria anual en la fecha que señala esta ley y, a las asambleas extraordinarias, cuando sea necesario, según lo establecido en el artículo 6.
+b) Aprobar y dirigir las publicaciones que haga el Colegio, delegando su responsabilidad en la Dirección Ejecutiva.
+c) Examinar las cuentas de Tesorería, formular los proyectos de presupuesto y rendir informes de labores a la Asamblea General, en su sesión ordinaria.
+d) Conocer las renuncias de sus miembros directores o de los colegiados y hacerlo del conocimiento de la Asamblea.
+e) Dictar las normas reglamentarias necesarias para la buena marcha del Colegio.
+f) Las demás que la ley y los reglamentos le señalen.
+(Así reformado por el artículo único de la ley N° 10042 del 30 de setiembre de 2021)

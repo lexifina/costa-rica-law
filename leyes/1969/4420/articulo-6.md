@@ -1,15 +1,3 @@
-Artículo 6º.- Cada año se celebrará una Asamblea General Ordinaria
-para elección de la nueva Junta Directiva y conocer de los informes que
-presente la Junta Directiva saliente, y para aprobar, improbar, o si fuere
-del caso, modificar el presupuesto anual general ordinario de la
-institución; se celebrarán además, las asambleas extraordinarias que
-acuerde la Junta Directiva o que lo soliciten por lo menos veinte de los
-colegiados. Para que se verifique una Asamblea, es necesaria la
-convocatoria, que se publicará en "La Gaceta" y en uno de los diarios del
-país, debiendo mediar por lo menos, tres días hábiles entre la primera
-publicación y el día señalado, y expresar en el aviso el objetivo de la
-convocatoria. La Asamblea General está constituida por la totalidad de los
-miembros del Colegio. Habrá quórum si concurren la mitad más uno de los
-colegiados. En caso de que no hubiera quórum, se dará por convocada otra
-Asamblea, treinta minutos después de la hora fijada, para la que se
-entiende que existirá quórum, con cualquier número de miembros presentes.
+Artículo 6- En el primer jueves de noviembre, en los años en que corresponda, se llevarán a cabo las elecciones de los integrantes de la Junta Directiva, el fiscal; el resultado de la elección será conocido en la Asamblea General ordinaria que se realizará cada año, en la que se conocerán los informes de Presidencia, Tesorería y Fiscalía y cualquier otro informe de conocimiento de la Asamblea General, correspondiendo a la Asamblea aprobarlos o improbarlos; también, se presentará para discusión y aprobación el proyecto de presupuesto ordinario para el año siguiente; en esa misma Asamblea se llevarán a cabo los nombramientos ordinarios de los órganos cuya integración sea competencia de ese cuerpo colegiado.
+Se celebrarán, además, las asambleas extraordinarias que acuerde la Junta Directiva o que lo solicite por lo menos el cinco por ciento (5%) de los colegiados. También, corresponde la convocatoria, cuando el fiscal solicite la intervención de la Asamblea General. Para que se verifique una Asamblea, es necesaria la convocatoria, que se publicará en La Gaceta y en uno de los diarios del país, debiendo mediar por lo menos tres días hábiles entre la primera publicación y el día señalado, y expresar en el aviso el objeto de la convocatoria. La Asamblea General está constituida por la totalidad de los miembros del Colegio. Habrá cuórum, si concurre la mitad más uno de los integrantes. En caso de que no hubiera cuórum, se dará por convocada otra Asamblea treinta minutos después de la hora fijada, para la que se entiende que existirá cuórum con cualquier número de integrantes presentes.
+(Así reformado por el artículo único de la ley N° 10042 del 30 de setiembre de 2021)
