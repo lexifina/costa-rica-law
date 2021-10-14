@@ -1,0 +1,1 @@
+Artículo 15.-Convocatoria a sesión. Conforme lo dispone el artículo 36 del Código Municipal, la sesión extraordinaria de audiencia pública podrá ser convocada por acuerdo municipal o por la alcaldía. En esta sesión no podrá conocerse ningún otro tema.

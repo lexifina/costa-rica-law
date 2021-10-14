@@ -1,0 +1,1 @@
+Artículo 19.-Disponibilidad de la documentación. Una vez publicada la convocatoria, los documentos que componen el proyecto deberán estar disponibles para descarga en el sitio web de la Municipalidad y en la oficina que así disponga la Alcaldía Municipal para ser consultados de forma física, previa cita.

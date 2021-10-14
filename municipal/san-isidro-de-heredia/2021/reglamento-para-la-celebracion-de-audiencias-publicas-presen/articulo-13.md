@@ -1,0 +1,1 @@
+Artículo 13.-Modalidad. La audiencia pública prevista en el artículo 17 de la Ley de Planificación Urbana, Nº 4240, podrá llevarse a cabo de forma presencial o mixta, entendiéndose como mixta aquella que se desarrolla de forma simultánea mediante modalidad presencial y virtual.

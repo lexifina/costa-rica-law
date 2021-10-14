@@ -1,0 +1,4 @@
+Artículo 3º-Principios. Las audiencias públicas reguladas en el presente reglamento se regirán por los siguientes principios:
+1. Publicidad. Principio ligado directamente con el ejercicio democrático a partir del cual la Administración Pública se encuentra en la obligación de publicitar e informar de forma activa a la población, de las actuaciones desplegadas al amparo de su ámbito funcional y el resultado de estas.
+2. Transparencia. Permite que toda información de índole público pueda ser conocida por los administrados, entendiendo por información pública aquella que tiene relación con el giro normal de la Administración Pública y con asuntos de interés público.
+3. Participación ciudadana. Manifestación democrática a partir de la cual las administraciones públicas hacen participe a la ciudadanía de las decisiones que se adopten en el ejercicio de sus funciones.

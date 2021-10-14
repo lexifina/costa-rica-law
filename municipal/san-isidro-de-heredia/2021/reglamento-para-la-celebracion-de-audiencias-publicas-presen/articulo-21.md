@@ -1,0 +1,3 @@
+Artículo 21.-Sede electrónica. La audiencia virtual será realizada mediante un "evento en directo" en la plataforma que así proponga la Alcaldía Municipal y apruebe el Concejo Municipal en el mismo acuerdo que se aprueba la convocatoria.
+La plataforma seleccionada deberá permitir el enlace desde cualquier tipo de dispositivo con conexión a internet, la transmisión simultánea de audio y video, la grabación de la sesión, el registro de asistencia, y el registro de las intervenciones en el chat. Este último será el canal de comunicación oficial para efectos de participar en esta modalidad.
+Adicionalmente, la audiencia se transmitirá en las cuentas oficiales de la institución en Facebook Live, YouTube y el sitio web de la institución.

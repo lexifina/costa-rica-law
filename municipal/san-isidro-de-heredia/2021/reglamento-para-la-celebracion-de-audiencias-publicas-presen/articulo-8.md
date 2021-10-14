@@ -1,0 +1,1 @@
+Artículo 8º-Publicación de la convocatoria. La convocatoria contemplada en el apartado anterior deberá publicarse como mínimo con veinte días naturales de antelación a la fecha programada para la audiencia pública. Dicho plazo no será aplicable a la audiencia pública regulada en el artículo 17 de la Ley de Planificación Urbana, Nº 4240.

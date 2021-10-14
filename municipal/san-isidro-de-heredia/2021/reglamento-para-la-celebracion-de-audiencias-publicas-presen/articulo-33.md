@@ -1,0 +1,1 @@
+Artículo 33.-Intervención de los integrantes del Concejo. Una vez finalizada la fase de observaciones los miembros del Concejo Municipal podrán formular posiciones, oposiciones u consultas al grupo consultor o funcionarios.

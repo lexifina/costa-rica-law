@@ -1,0 +1,1 @@
+Artículo 34.-Facultades de orden. Conforme lo disponen los incisos c) y d) del artículo 34 del Código Municipal, durante el desarrollo de la audiencia la Presidencia ostenta la facultad de conceder la palabra y retirarla, así como llamar al orden y hacer retirar a aquellas personas participantes que se comporten indebidamente.
