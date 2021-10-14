@@ -1,0 +1,1 @@
+Artículo 48°- Ningún funcionario de la Municipalidad, con excepción del (la) Tesorero (a) Municipal, quien tendrá en custodia los fondos de Caja Chica, podrá mantener en su poder Fondos de Caja Chica por más de tres días hábiles.

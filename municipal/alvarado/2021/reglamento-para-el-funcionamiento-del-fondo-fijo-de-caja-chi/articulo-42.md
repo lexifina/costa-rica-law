@@ -1,0 +1,1 @@
+Artículo 42°- No se tramitarán por medio del Fondo Fijo de Caja Chica, las compras que se hayan definido como artículo de uso común, los que deberán ser adquiridos por medio de los sistemas convencionales de compra que existan en la Municipalidad, según las disposiciones establecidas en la Ley de Contratación Administrativa y su Reglamento.

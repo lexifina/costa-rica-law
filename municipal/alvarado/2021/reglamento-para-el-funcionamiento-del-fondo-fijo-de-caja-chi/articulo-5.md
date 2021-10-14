@@ -1,0 +1,1 @@
+Artículo 5º El monto máximo del vale de caja chica, será aprobado por el Concejo Municipal mediante acuerdo municipal, previo estudio que se estime conveniente, para satisfacer las necesidades institucionales de los bienes y servicios que deben adquirirse por este medio, elaborado por la Tesorería y avalado por la Alcaldía.

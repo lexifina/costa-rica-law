@@ -1,0 +1,1 @@
+Artículo 23- El encargado inmediato que firma el vale, es responsable de constatar que los bienes y/o servicios adquiridos, ingresaron conforme para el uso, según la justificación indicada en el vale, bajo ninguna circunstancia se podrá variar el objetivo inicial de una compra.

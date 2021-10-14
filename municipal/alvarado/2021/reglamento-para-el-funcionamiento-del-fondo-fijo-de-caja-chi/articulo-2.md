@@ -1,0 +1,17 @@
+Artículo 2º Definiciones. Cuando en este reglamento se empleen términos y definiciones, debe dárseles las acepciones que se señalan a continuación:
+a. Arqueo de Caja Chica: Verificación del cumplimiento de la normativa y reglamentación que rige la Caja Chica. Es la constatación de que la documentación que da soporte a los egresos, concuerda con los montos autorizados por Caja Chica.
+b. Bienes y Servicios de Uso Común: Son los bienes y servicios de un período repetitivo, utilizados en las operaciones regulares y normales de la Municipalidad. Las dependencias deben asegurarse de tener siempre en existencia este tipo de artículos o prever con suficiente anticipación sus necesidades.
+c. Caso Fortuito: Llámese así al suceso que se da sin poder preverse o que, no pudo evitarse, puede ser producido por la naturaleza o por hechos del hombre.
+d. Compra menor y de escasa cuantía: Es la adquisición de bienes y servicios que no superen los límites preestablecidos para la Caja Chica y cuya necesidad sea de carácter indispensable, urgente y requiera atención inmediata.
+e. Dependencia Usuaria del Servicio: Se denomina como tal la Dirección, Departamento, Sección o Unidad que requiera y tramite fondos de la Caja Chica
+f. Encargado de Caja Chica: Tesorero Municipal, quien según el artículo 118, del Código Municipal vigente, es a quien se le asignará el fondo dela Caja Chica.
+g. Fondo de Caja Chica: Fondo que contiene recursos para la adquisición de bienes y servicios que no son de uso común y que corresponden a adquisiciones que se efectúen de manera excepcional por medio de este, para atender un caso fortuito. Las adquisiciones son de uso exclusivo de las dependencias administrativas y operativas que las gestionan.
+h. Liquidación: Rendición de cuentas que efectúa el funcionario responsable del vale de caja chica mediante presentación de los comprobantes originales que sustentan las adquisiciones o servicios recibidos, así como cualquier remanente de dinero no utilizado.
+i. Municipalidad: La Municipalidad del Cantón de Alvarado.
+j. Tesorero Municipal: El Encargado del Área de Tesorería, en la persona de su titular, o bien, en la persona que le sustituya en ese mismo cargo por motivo de vacaciones, incapacidad, permiso con o sin goce de salario o cualquier otro motivo.
+k. Proveeduría Municipal: Departamento o Área encargada de compras, quien debe tramitar las compras de bienes o servicios y definir o avalar el procedimiento por caja chica.
+Se exceptúa los pagos por Gastos de viaje, transporte para funcionarios.
+l. Reintegro de Fondos: Solicitud de reintegro de dinero que efectúa la Tesorería Municipal al fondo de Caja Chica para cubrir los gastos efectuados.
+m. Viáticos: Son los gastos de viaje y transporte en el interior del país y se pagarán por medio de este fondo, siempre y cuando no supere el monto máximo establecido para el vale y se tramitarán mediante el formulario diseñado para tal fin, "Adelanto de Viáticos y Transporte Interior del País". Este concepto se regirá conforme se establece en el Reglamento de Gastos de Viaje y Transportes para funcionarios Públicos de la Contraloría General de la República vigente.
+n. Vale: El comprobante que autoriza la entrega por parte del (a) Tesorero (a) Municipal, de dinero en efectivo a un funcionario municipal autorizado para tal efecto, de conformidad con este Reglamento.
+o. Fraccionamiento: Cuando se realiza más de una contratación para el mismo objeto, con los recursos de un mismo presupuesto ordinario, con el fin de evadir un procedimiento de contratación.

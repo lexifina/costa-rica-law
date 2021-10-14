@@ -1,0 +1,1 @@
+Artículo 3º Ámbito de aplicación. El presente reglamento contiene las disposiciones que ,regirán la correcta administración (organización y funcionamiento) del Fondo Fijo de Caja Chica de la Municipalidad de Alvarado.

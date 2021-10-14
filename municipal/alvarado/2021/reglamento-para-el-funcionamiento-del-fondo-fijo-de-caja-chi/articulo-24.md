@@ -1,0 +1,4 @@
+Artículo 24° La liquidación del vale queda formalizada cuando el responsable de la caja chica revisa todos los requisitos, comprobantes y dineros por sobrantes, y procede a devolver con su firma la copia del formulario, "Solicitud de Adelanto o Vale de Caja Chica".
+Recibida a satisfacción por el Encargado de Caja Chica una liquidación, cumpliendo todos los requisitos establecidos, y se determine posteriormente que existe un faltante de dinero, deberá ser asumido por el Encargado en mención, cubriendo la totalidad del monto faltante, sin responsabilidad de la Municipalidad a reintegrar cantidad alguna por este hecho.
+La caja chica recibirá devoluciones de dinero únicamente en efectivo, sin excepción de ninguna clase, en la moneda de curso costarricense.
+Tampoco podrán recibirse notas de crédito.

@@ -1,0 +1,1 @@
+Artículo 26º Respaldo del gasto. Cuando por las características del gasto, este no pueda respaldarse inmediatamente por el correspondiente justificante, la Tesorería Municipal de Alvarado deberá preparar el comprobante interno (Vale de Caja Chica) debidamente diseñado para tales efectos, hasta tanto el funcionario que realiza la gestión no presente el justificante externo.

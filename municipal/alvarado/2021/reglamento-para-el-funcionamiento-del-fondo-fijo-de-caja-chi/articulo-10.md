@@ -1,0 +1,4 @@
+Artículo 10° La compra de bienes y / o servicios se tramitará por el fondo de caja chica, solamente cuando se den las siguientes condiciones:
+a) Si ninguna dependencia o funcionario de la Municipalidad, según sus funciones, está en posibilidades de prestar el servicio de que se trate.
+b) Si el bien o servicio es de carácter indispensable, urgente y requiera atención inmediata. Se deberá justificar el pago fuera de los trámites ordinarios que establece la Ley y el Reglamento de Contratación Administrativa, en cuyo caso, el encargado del Proceso solicitante deberá dejar constancia mediante acto motivado de la necesidad del pago con fondos de la caja chica junto con el visto bueno de su superior inmediato.
+c) Si existe contenido económico con cargo a la respectiva subpartida presupuestaria, no pudiendo exceder el monto para el vale de caja chica.

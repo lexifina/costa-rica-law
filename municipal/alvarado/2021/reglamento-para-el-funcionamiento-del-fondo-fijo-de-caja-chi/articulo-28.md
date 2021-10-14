@@ -1,0 +1,1 @@
+Artículo 28º Trámite de adelantos para gastos de viaje. Para tramitar adelantos de dinero para cubrir gastos de viaje en el interior del país, la Tesorería Municipal de Alvarado deberá utilizar el comprobante denominado "Autorización de adelantos para giras", el cual deberá contener las firmas del alcalde y del Encargado del Departamento.

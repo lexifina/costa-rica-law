@@ -1,0 +1,1 @@
+Artículo 16º Pedido de Compra por Fondo Fijo de Caja Chica. Todo egreso para la adquisición de bienes y servicios a cubrir por el Fondo, se tramitará obligatoriamente por medio del Pedido de Compra por Fondo Fijo de Caja Chica, emitido por la Proveeduría Municipal. Dicho documento deberá contar con un número consecutivo que lo identifique individual y específicamente.

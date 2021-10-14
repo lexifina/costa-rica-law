@@ -1,0 +1,1 @@
+Artículo 27º Sello de pagado. A las facturas u otros documentos relativos a la compra de bienes y servicios se le estampará un sello que tenga la leyenda "Pagado mediante: cheque, efectivo o transferencia electrónica, número y fecha de pago", según corresponda.
