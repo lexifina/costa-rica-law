@@ -1,0 +1,2 @@
+Artículo 21.-Los reintegros a los fondos destinados a anticipos para viáticos se harán en los formularios correspondientes, que tendrán como mínimo los siguientes conceptos: número de comprobante, nombre del funcionario que realizó el gasto, concepto y monto del gasto y partida presupuestaria afectada.
+Deberán de ser aprobados por el superior inmediato del encargado del fondo y por el Jefe del Departamento de Finanzas.

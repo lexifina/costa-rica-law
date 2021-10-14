@@ -1,0 +1,1 @@
+Artículo 2°-Objetivo. El presente reglamento tiene por objetivo regular los aspectos de creación, organización, funcionamiento y control del Fondo de dinero denominado Caja Chica y Caja General del INFOCOOP.

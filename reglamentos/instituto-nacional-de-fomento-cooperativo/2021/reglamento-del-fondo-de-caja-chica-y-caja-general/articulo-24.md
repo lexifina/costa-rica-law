@@ -1,0 +1,1 @@
+Artículo 24.-El fondo de caja chica y caja general estará sujeto al cierre diario, donde dejará evidencia de los valores en tránsito, cuenta corriente, liquidaciones y en efectivo, procediendo con la impresión de los asientos y el movimiento del día

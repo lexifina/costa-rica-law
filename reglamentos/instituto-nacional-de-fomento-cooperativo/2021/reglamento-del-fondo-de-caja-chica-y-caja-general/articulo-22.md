@@ -1,0 +1,2 @@
+Artículo 22.-De la Frecuencia de los reintegros. Tanto los reintegros por concepto de viáticos, como por concepto de compra de bienes y servicios, se podrán hacer dos veces por semana, los martes y jueves o el día hábil siguiente si estos fueron feriados. El reintegro debe ser elaborado y tramitado cuando se alcance como máximo el 50% de consumo del fondo entre adelantos y liquidaciones.
+La reposición del fondo se realiza mediante depósito por medio de transferencia bancaria.

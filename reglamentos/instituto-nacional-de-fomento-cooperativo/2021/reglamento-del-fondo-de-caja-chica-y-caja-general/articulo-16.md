@@ -1,0 +1,3 @@
+Artículo 16.-El adelanto de caja chica depositado para efectuar la compra de bienes y servicios, de acuerdo con el monto máximo fijado, debe ser liquidado, a más tardar al día hábil siguiente a la fecha del anticipo.
+Los adelantos para viáticos, hospedaje y transporte se liquidarán según lo determinado por el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República.
+De no hacerse así, se sancionará en la misma forma que se establece para las liquidaciones de los anticipos para viáticos, en el Artículo 17 del presente Reglamento.

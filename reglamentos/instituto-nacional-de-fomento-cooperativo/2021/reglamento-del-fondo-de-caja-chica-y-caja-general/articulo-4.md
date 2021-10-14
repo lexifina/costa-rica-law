@@ -1,0 +1,6 @@
+Factura: Título comercial con carácter de ejecutivo según lo establecido en el Código de Comercio, tramitado mediante factura electrónica.
+Vale de Caja Chica: Documento temporal a utilizar en adelantos de dinero para la compra de algún bien o servicio.
+Reintegro: Es el reembolso al fondo de caja chica de los dineros erogados y utilizados en la compra de bienes y servicios, amparados en comprobantes.
+Liquidación de vale de Caja Chica: Es el reembolso al fondo de caja chica de los dineros sobrantes y comprobantes de respaldo producto de la compra de bienes, servicios.
+Artículo 4°-Fondo Fijo de Caja Chica y Caja General. Concepto. Se entiende por Fondo Fijo de Caja Chica y Caja General aquella suma de dinero fija que deposite el INFOCOOP a su nombre, en uno de los bancos del Estado, con la autorización de la Junta Directiva, para realizar gastos menores por la adquisición de bienes y servicios indispensables y urgentes, así como de las partidas, grupos y subpartidas presupuestarias autorizadas conforme al Clasificador por el Objeto del Gasto del Sector Público para Compras por Fondo Fijo-Caja Chica que emite la Tesorería Nacional del Ministerio de Hacienda.
+La cuenta corriente abierta en uno de los bancos del Estado, se utilizará exclusivamente para el manejo del Fondo Fijo de Caja Chica

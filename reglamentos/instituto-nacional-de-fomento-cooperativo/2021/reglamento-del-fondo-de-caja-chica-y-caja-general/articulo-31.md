@@ -1,0 +1,1 @@
+Artículo 31.-Interpretación y Modificaciones. El presente Reglamento solo podrá ser modificado o interpretado total o parcialmente por la Junta Directiva del INFOCOOP, a solicitud de la Dirección Ejecutiva con el voto afirmativo de no menos de cinco de sus miembros.

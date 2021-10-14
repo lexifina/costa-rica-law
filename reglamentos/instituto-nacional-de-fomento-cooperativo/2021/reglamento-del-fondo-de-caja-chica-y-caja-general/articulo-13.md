@@ -1,0 +1,3 @@
+Artículo 13.-Límite de Gasto. Para incurrir en gastos por medio del fondo fijo de caja chica debidamente autorizados por las personas competentes, se deberá acatar los límites económicos establecidos por la Junta Directiva del INFOCOOP.
+Para las compras de bienes o servicios por montos superiores al límite de gasto establecido, deberá existir, además de la aprobación por parte de la jefatura de Departamento respectivo, la autorización de la Dirección o Subdirección Ejecutiva.
+El fondo de caja chica estará determinado por acuerdo de la Junta Directiva del INFOCOOP. El monto máximo para desembolsar por cada adelanto será conforme lo indicado en el artículo 5 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 23.-Todos los justificantes que acompañan el formulario "REINTEGRO DE CAJA CHICA", que utiliza para el trámite de los reintegros del fondo, deben de mutilarse con el sello que indique, como mínimo: "Reintegro N° 1____" con el fin de evitar que se extravíen o utilicen posteriormente.

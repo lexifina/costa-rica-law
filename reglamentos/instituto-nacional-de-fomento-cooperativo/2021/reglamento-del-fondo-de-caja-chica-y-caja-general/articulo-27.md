@@ -1,0 +1,1 @@
+Artículo 27.-El fondo de Caja Chica estará sujeto a arqueo periódicamente y sin aviso previo, el cual quedará constando por escrito y deberá ser firmado por el que lo efectuare y por el custodio del fondo. Tanto por Administrativo Financiero y los órganos de fiscalización tales como la Auditoría Interna y la Auditoría Externa y otros debidamente acreditados

@@ -1,0 +1,2 @@
+Artículo 19.-Los recursos entregados mediante los anticipos de Caja Chica no podrán ser utilizados para la adquisición de bienes y servicios menores diferentes a los que fueron previamente autorizados.
+El anticipo para gastos varios que se le dará al encargado de compras en la Proveeduría solo podrá utilizarse para las compras que fueron solicitadas mediante requisición, con indicación del contenido presupuestario, y aquellos gastos inherentes al proceso de compra, tales como parqueos y peajes.
