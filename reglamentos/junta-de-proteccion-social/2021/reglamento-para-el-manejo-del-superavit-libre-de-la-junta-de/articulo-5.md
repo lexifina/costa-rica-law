@@ -1,0 +1,1 @@
+Artículo 5º-Uso permitido. Los recursos de superávit libre deben utilizarse para el financiamiento de gastos referidos a la actividad ordinaria de la Institución, la misión institucional y los fines institucionales, siempre que no tengan el carácter permanente o sean obligaciones que deban ser financiadas a través del tiempo.
