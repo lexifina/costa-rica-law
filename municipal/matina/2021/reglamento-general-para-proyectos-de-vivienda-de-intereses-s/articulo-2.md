@@ -1,0 +1,1 @@
+Artículo 2º-La Municipalidad de Matina podrá construir viviendas en los terrenos a adjudicar, como una contribución más al mejoramiento de las condiciones de vida del ciudadano residente del Cantón de Matina.

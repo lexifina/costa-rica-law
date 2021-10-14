@@ -1,0 +1,1 @@
+Artículo 4º-En caso de que los beneficiarios sean un matrimonio o convivan en una relación de unión libre por más de tres años ininterrumpidos en el momento de llenar el formulario indicado en el artículo 2, en concordancia con lo establecido en el artículo 242 del código de Familia, la propiedad adjudicada se inscribirá a nombre de ambos convivientes.

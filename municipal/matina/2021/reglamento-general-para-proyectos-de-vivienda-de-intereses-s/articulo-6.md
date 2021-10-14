@@ -1,0 +1,1 @@
+Artículo 6º-El beneficiario deberá rendir una declaración jurada en la que se compromete a que la propiedad, no podrán ser arrendados, gravados, embargados, vendidos, ni traspasados bajo ningún título a persona física o jurídica alguna mientras no hayan transcurrido quince años a partir de la inscripción definitiva en el Registro Público.

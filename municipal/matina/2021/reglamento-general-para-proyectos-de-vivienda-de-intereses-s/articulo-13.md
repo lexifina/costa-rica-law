@@ -1,0 +1,1 @@
+Artículo 13.-La cuota mensual de amortización será fijada por administración Municipal, en coordinación con el departamento técnico Municipal competente. Dichas cuotas se comenzarán a pagar un año después de haber recibido el adjudicatario la propiedad.

@@ -1,0 +1,1 @@
+Artículo 12.-La deuda por la propiedad adjudicada, devengará intereses corrientes, mismos que serán fijados por la administración Municipal, en coordinación con el departamento técnico Municipal competente.
