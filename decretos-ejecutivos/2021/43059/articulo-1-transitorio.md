@@ -1,0 +1,1 @@
+Transitorio primero. Los servicios de Ambulancias modalidad terrestre de soporte básico que obtuvieron un certificado de habilitación antes de la entrada en vigencia de la presente norma, mantendrán dicha autorización por el tiempo que les fue extendida, debiendo en todo momento cumplir con las condiciones bajo las cuales se otorgó dicha habilitación.

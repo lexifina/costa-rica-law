@@ -1,0 +1,1 @@
+Artículo 4°-Deróguese el Decreto Ejecutivo Nº 32616- S del 24 de enero del 2005 "Reglamento para la Atención Extrahospitalaria de Pacientes en Costa Rica", publicado en La Gaceta Nº 178 del 16 de setiembre del 2005.
