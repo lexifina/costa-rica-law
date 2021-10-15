@@ -1,0 +1,4 @@
+Artículo 7. Modifíquese el párrafo tercero del artículo 7 del Reglamento de Empresas y Actividades Turísticas, Decreto Ejecutivo N° 41370-MEIC-TUR del 19 de julio del 2018, publicado en el Diario Oficial La Gaceta N° 228 del 07 de diciembre de 2018, Alcance N° 203, para que se lea de la siguiente manera:
+"Artículo 7. (.)
+En los casos que corresponda efectuar inspección por parte del ICT conforme a este Reglamento, esta deberá realizarse dentro del mismo plazo de un mes, calculado según sea el caso de la solicitud. Asimismo, la Dirección de Gestión Turística mediante el Departamento de Gestión y Asesoría Turística del ICT, podrá habilitar el desarrollo de inspecciones técnicas de campo y virtuales. Dichas inspecciones virtuales deben conservar las mismas posibilidades que tienen las presenciales, para garantizar la identificación plena de los espacios y la confiabilidad de la información.
+(..)"
