@@ -1,0 +1,1 @@
+Artículo 31.-Sobre el rechazo de mociones y proposiciones. Quien ostente la Presidencia del Concejo no dará curso o podrá declarar fuera de orden, con la debida justificación, las proposiciones o mociones que evidentemente resulten improcedentes o que simplemente tiendan a dilatar u obstruir el curso normal del debate o la resolución de un asunto.

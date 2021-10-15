@@ -1,0 +1,1 @@
+Artículo 2º-Sobre las sesiones extraordinarias. Las sesiones extraordinarias deberán realizarse el día y la hora que se indique en la convocatoria realizada ya sea por el Concejo Municipal o por la Alcaldía.

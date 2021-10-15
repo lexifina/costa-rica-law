@@ -1,0 +1,1 @@
+Artículo 8º-Sobre el quórum para sesionar. El quórum para las sesiones será de cinco Regidores o la mitad más uno de los Regidores. Estos Regidores deberán encontrarse presentes en el Salón, ocupando sus respectivas curules al inicio de las sesiones, durante las deliberaciones y al efectuarse las votaciones.

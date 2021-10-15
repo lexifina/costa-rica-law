@@ -1,0 +1,1 @@
+Artículo 38.-Sobre el voto negativo. El Regidor que vote negativo, debe necesariamente razonar su voto, limitándose al tema objeto de la votación y no podrá emplear más de cinco minutos en su intervención. De todo esto, la persona que ostente la secretaría del Concejo, tomará nota y lo dejará constando en actas.

@@ -1,0 +1,1 @@
+Artículo 18.-Sobre la justificación de la invitación. Corresponde a la Secretaría justificar oportunamente a los interesados, las invitaciones a audiencias que acuerde el Concejo o la Presidencia Municipal.

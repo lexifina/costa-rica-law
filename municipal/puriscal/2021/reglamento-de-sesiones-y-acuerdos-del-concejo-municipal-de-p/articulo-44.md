@@ -1,0 +1,1 @@
+Artículo 44.-Sobre la coordinación de las Comisiones. Una vez designadas las comisiones por la Presidencia del Concejo, sus miembros en la sesión de instalación, que deberá celebrarse dentro de los quince días siguientes, nombrará de su seno un coordinador y un secretario.

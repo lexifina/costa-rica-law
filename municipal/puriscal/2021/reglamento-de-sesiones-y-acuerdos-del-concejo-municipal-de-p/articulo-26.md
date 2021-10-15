@@ -1,0 +1,1 @@
+Artículo 26.-Sobre la aprobación de las actas. Las actas de las sesiones del Concejo deberán ser aprobadas en la sesión ordinaria inmediata posterior, salvo que circunstancias especiales lo impidan, las cuales deberán quedar constando en el acta siguiente, en cuyo caso la aprobación del acta se pospondrá para la sesión ordinaria siguiente.

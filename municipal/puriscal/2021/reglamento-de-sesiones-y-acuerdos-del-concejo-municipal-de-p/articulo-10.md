@@ -1,0 +1,1 @@
+Artículo 10.-Sobre los recesos durante las Sesiones. Los regidores podrán solicitar mediante moción de orden recesos durante la sesión, los mismos no deben ser mayor a un tiempo de quince minutos y se harán por acuerdo de la mayoría simple de los votos presentes.

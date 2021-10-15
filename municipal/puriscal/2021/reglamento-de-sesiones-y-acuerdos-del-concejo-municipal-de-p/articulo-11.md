@@ -1,0 +1,1 @@
+Artículo 11.-Desarrollo de las Sesiones. Las sesiones del Concejo se desarrollarán conforme al Orden del Día, el cual deberá ser elaborado previamente por parte de la Secretaría del Concejo Municipal, con instrucciones del Presidente Municipal. Podrá ser modificado o alterado, únicamente, mediante moción aprobada por el Concejo, por mayoría simple.

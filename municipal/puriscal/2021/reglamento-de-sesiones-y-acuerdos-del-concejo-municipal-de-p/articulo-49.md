@@ -1,0 +1,1 @@
+Artículo 49.-Sobre la obligatoriedad de asistencia de los miembros de la comisión. Los miembros del Concejo que sean parte de una Comisión Municipal, quedan obligados a asistir a las convocatorias de reunión de las mismas, salvo casos especiales debidamente justificados y aprobados por la persona que ostente la Presidencia Municipal.

@@ -1,0 +1,3 @@
+CAPÍTULO IV.
+De las Mociones y proposiciones
+Artículo 28.-Sobre las mociones de orden. Son mociones de orden, las que se presenten para regular el debate, para prorrogar el uso de la palabra a un Regidor o Síndico, para alterar el orden del día, incluir un asunto, para que se posponga el conocimiento de uno que figura en el Orden del Día y aquellas que la Presidencia califique como tales. En este último caso, si algún Regidor tuviera opinión contraria al criterio al de la Presidencia, podrá apelar ante el Concejo y éste decidirá por simple mayoría de votos. En cualquier momento del debate podrán presentarse mociones de orden en relación al asunto que se discute. La moción de orden suspenderá el debate hasta tanto no sea discutida y votada por el Concejo.

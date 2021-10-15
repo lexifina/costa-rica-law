@@ -1,0 +1,1 @@
+Artículo 47.-Sobre el traslado de dictámenes a otra comisión. El Concejo Municipal podrá pasar los dictámenes de comisión a conocimiento de otra comisión o alguna asignada especialmente por el Presidente, para que se pronuncie sobre un caso en concreto. Pronunciamiento que deberá emitirse en un plazo máximo de quince días.

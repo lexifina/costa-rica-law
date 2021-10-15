@@ -1,0 +1,1 @@
+Artículo 34.-Sobre la toma de Acuerdos Municipales. Todo acuerdo se tomará previo dictamen de una Comisión del Concejo y después de considerarse suficientemente discutido el asunto. El dictamen de comisión se podrá dispensar en caso de urgencia, si el Concejo lo acuerda por medio votación calificada de los presentes.

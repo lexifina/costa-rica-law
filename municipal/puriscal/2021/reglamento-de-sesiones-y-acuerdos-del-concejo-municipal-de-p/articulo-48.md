@@ -1,0 +1,1 @@
+Artículo 48.-Sobre la inclusión de los dictámenes de comisión en el Orden del Día. Los dictámenes de comisiones serán incluidos en el Orden del Día, siguiendo el orden en que fueron presentados a la Secretaría, para ese efecto, la Secretaría al recibir los dictámenes, consignará al pie de ellos, la hora y fecha de presentación.

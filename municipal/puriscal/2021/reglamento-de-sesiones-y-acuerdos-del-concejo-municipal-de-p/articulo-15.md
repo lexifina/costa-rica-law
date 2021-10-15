@@ -1,0 +1,1 @@
+Artículo 15.-Sobre el llamado de personas particulares a las sesiones del Concejo. Cuando la índole de algún asunto lo amerite, previo acuerdo al respecto, podrá el Concejo invitar a personas particulares para que asistan a sesiones.

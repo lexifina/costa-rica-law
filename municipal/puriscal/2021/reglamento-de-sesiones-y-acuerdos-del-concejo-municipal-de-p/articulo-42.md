@@ -1,0 +1,1 @@
+Artículo 42.-Integración de las Comisiones. Toda Comisión estará integrada por un mínimo de tres miembros, escogidos de entre el total de regidores propietarios que conformen el Concejo, a diferencia de las Comisiones Especiales en las que pueden participar regidores suplentes, al igual que los Síndicos, pero éstos con derecho a voz y sin voto.

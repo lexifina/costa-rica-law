@@ -1,0 +1,1 @@
+Artículo 43.-Sobre las Comisiones Especiales. Podrá el Concejo por medio de acuerdo crear las Comisiones Especiales con plazo definido que estime convenientes para la atención de asuntos específicos de interés comunal o propio de la Municipalidad.

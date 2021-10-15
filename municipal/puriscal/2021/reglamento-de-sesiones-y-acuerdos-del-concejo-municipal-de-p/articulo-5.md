@@ -1,0 +1,1 @@
+Artículo 5º-Sobre la publicidad de las Sesiones Municipales. Las sesiones serán grabadas y deberán ser publicadas por parte del Encargado de Tecnologías de la Información de la Municipalidad de Puriscal, en la página Web de la Municipalidad.

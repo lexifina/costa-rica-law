@@ -1,0 +1,1 @@
+Artículo 32.-Sobre las mociones y proposiciones referentes a temas reglamentarios. Toda iniciativa tendiente a adoptar, reformar, suspender o derogar disposiciones reglamentarias debe ser presentada o acogida para su trámite por algún Regidor Propietario y enviada a la Comisión, para su estudio y dictamen.

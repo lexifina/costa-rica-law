@@ -1,0 +1,1 @@
+Artículo 37.-Sobre la votación. Al dar por discutido un asunto, el Presidente del Concejo, dará un término prudencial para recibir la votación correspondiente, y esperará para que la Secretaría del Concejo pueda contar los votos afirmativos o negativos, lo cual deberá quedar constando en las actas.

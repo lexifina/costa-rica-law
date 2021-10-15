@@ -1,0 +1,1 @@
+Artículo 35.-Sobre la firmeza de los Acuerdos Municipales. Los acuerdos tomados por el Concejo, quedarán en firme al aprobarse el acta respectiva. En casos especiales de suma urgencia, el Concejo por votación de las dos terceras partes de la totalidad de sus miembros, podrá declarar firmes sus acuerdos.

@@ -1,0 +1,9 @@
+Artículo 41.-Tipos de comisiones permanentes. Habrá cuando menos ocho comisiones permanentes, las cuales corresponden a las siguientes:
+1. Hacienda y Presupuesto: Comisión responsable de analizar todo lo relativo al presupuesto municipal, los ingresos y egresos, el crédito municipal, avalúos, valoraciones, los asuntos de la Tesorería y la Contaduría Municipal, de conformidad al Título IV del Código Municipal.
+2. Obras Públicas: Comisión responsable de analizar todo lo relacionado con proyectos de obras públicas que se desarrollen o se pretendan desarrollar en el Cantón, independientemente de quien sea el responsable de la ejecución. Corresponde también a esta Comisión conocer, estudiar, valorar y recomendar el recibimiento formal de las obras públicas terminadas de los proyectos habitacionales y urbanísticos que así lo requiera la Ley.
+3. Asuntos Sociales: Comisión responsable de analizar y recomendar las políticas a seguir en el campo social. Esta Comisión puede trabajar en coordinación con las Instituciones del sector público.
+4. Gobierno y Administración: Comisión responsable de analizar los asuntos relacionados a la organización municipal en materia general de administración y las relaciones interinstitucionales.
+5. Asuntos Jurídicos: Comisión responsable de analizar los asuntos estrictamente legales que conozca el Concejo.
+6. Asuntos Ambientales: Comisión responsable de conocer, estudiar, valorar y recomendar todo lo concerniente a la protección del medio ambiente, los desechos sólidos y los mantos acuíferos.
+7. Asuntos Culturales: Comisión responsable de analizar y recomendar las políticas de la expansión y divulgación de la cultura del Cantón. Debe promover el rescate de las tradiciones populares propias del Cantón. La Administración será la encargada de ejecutar los proyectos y programas culturales de la Institución.
+8. Condición de la Mujer: Comisión responsable de analizar e impulsar las políticas locales de género.

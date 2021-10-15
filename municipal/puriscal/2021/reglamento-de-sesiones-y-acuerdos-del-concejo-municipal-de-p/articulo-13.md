@@ -1,0 +1,1 @@
+Artículo 13.-Sobre la atención de trámites urgentes. El Presidente Municipal calificará los asuntos de trámite urgente y ordenará a la Secretaría incluirlos en el Orden del Día. En la sesión podrán incluirse asuntos de trámite urgente por iniciativa del Presidente o de uno o más Regidores, si el Concejo así lo acuerda por mayoría simple.
