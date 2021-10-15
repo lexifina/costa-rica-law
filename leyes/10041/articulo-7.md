@@ -1,0 +1,1 @@
+ARTÍCULO 7- Vigencia. Los alcances definidos en esta ley tendrán vigencia desde su publicación y hasta la finalización del año 2025, tiempo en el cual el Ministerio de Cultura y Juventud (MCJ) enfocará sus esfuerzos institucionales en la reactivación económica del sector cultura.
