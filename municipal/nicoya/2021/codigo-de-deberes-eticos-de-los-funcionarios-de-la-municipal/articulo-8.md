@@ -1,0 +1,20 @@
+Prohibiciones
+Artículo 8º-Prohibiciones. A todos los funcionarios de la Municipalidad de Nicoya, les es prohibido:
+a) Mantener relaciones o aceptar situaciones en cuyo contexto sus intereses personales, laborales, económicos o financieros, pudieran estar en conflicto con el cumplimiento de los deberes y funciones a su cargo.
+b) Obtener o procurar beneficios o ventajas indebidas, para sí o para otros, mediante el uso de su cargo, autoridad, influencia o apariencia de influencia.
+c) Realizar actividades de proselitismo político a través de la utilización de sus funciones o por medio de la utilización de infraestructura, bienes o recursos públicos, ya sea a favor o en contra de partidos u organizaciones políticas o candidatos.
+d) Participar en transacciones u operaciones financieras utilizando información privilegiada de la Municipalidad o información a la que pudiera tener acceso por su condición o ejercicio del cargo que desempeña, ni debe permitir el uso impropio de dicha información para el beneficio de algún interés particular.
+e) Ejercer presiones, amenazas o acoso laboral o sexual contra otras personas trabajadoras públicas o subordinadas que puedan afectar la dignidad de la persona o inducir a la realización de acciones dolosas.
+g) Solicitar y recibir a título personal o por intermedio de terceros, cualquier tipo de comisiones, ventajas, participación, obsequios o cualquier otro beneficio similar, así como de postores o contratistas de bienes y servicios que pudieran comprometer a la Municipalidad de Nicoya y al ejercicio de las funciones.
+h) Dedicar horas regulares de trabajo para asuntos distintos al estricto desempeño de sus funciones.
+i) Trasladar o entregar en lugares no autorizados documentación sensible, incluyendo la contenida en medios de almacenamiento tecnológico.
+j) Divulgar, transmitir o reproducir, total o parcialmente, el contenido de la información de la cual tenga o haya tenido conocimiento en el ejercicio de sus funciones, salvo que se trate de información de conocimiento público o que medie mandato judicial.
+k) Revelar información personal falsa de cualquier naturaleza en contra de los funcionarios, empleados de confianza y/o compañeros de trabajo, sin distinción de grado jerárquico; y difundirlos, perturbando la paz y armonía laboral en la institución.
+l) Portar armas de cualquier tipo dentro de las instalaciones de la Municipalidad sin autorización de la autoridad competente y/o unidad orgánica competente.
+m) Proporcionar información falsa; así como alterar modificar o destruir documentos de trabajo, ocasionando un perjuicio a la Municipalidad de Nicoya.
+n) Sustraer, mutilar, distorsionar o destruir documentación que se encuentre bajo su custodia o en los archivos de la Municipalidad que sea considerado de importancia para las labores propias de la institución. Dicha infracción es aplicable también al personal que cesa su vínculo con la Municipalidad.
+o) Realizar informes, declaración jurada, manifestación, oficio u otro documento en ejercicio de su cargo y que éste falte a la verdad, omita o distorsione información y cause o induzca a error a la administración pública.
+p) Engañar o falsear información con la finalidad de obtener licencia con goce de salario o sin él.
+q) Otorgar preferencia o privilegios en los procesos de selección para las contrataciones que realice la Municipalidad, o que interceda por algún postor o persona, altere información, efectúe subvaloraciones o sobre valoraciones, o cualquier otro acto que favorezca a participantes o postores, a parientes consanguíneos o con las que tenga afinidad o a favor de terceros, a cambio de recibir dádivas, favores o cualquier otro beneficio por ello.
+r) Abusar de su condición de jerarquía en el desempeño de sus funciones y efectuar actos de denigración, discriminación, o cualquier otro tipo de trato diferenciado que afecte a la dignidad de las otras personas trabajadoras de la Municipalidad.
+s) No comunicar a sus superiores o no denunciar a la autoridad respectiva, cuando se tenga conocimiento de un ilícito o contravención al presente Código de Ética.

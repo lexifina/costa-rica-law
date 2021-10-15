@@ -1,0 +1,7 @@
+Valores institucionales
+Artículo 5º-Determinación. Serán valores institucionales, los que a continuación se citan:
+a. Transparencia: la Municipalidad de Nicoya, realizará el servicio público y cumplirá con sus objetivos, con honestidad y objetividad, orientada únicamente por la satisfacción del interés público En todo momento, permitirá la participación ciudadana en los procesos decisorios mediante la disposición de información clara, accesible y verificable, generando con ello una cultura de rendición de cuentas.
+b. Compromiso: la Municipalidad de Nicoya, destinará sus recursos humanos, económicos y financieros al cumplimiento cabal de las funciones públicas brindadas por el municipio. Nuestras tareas, serán realizadas de forma expedita, diligente y satisfactoria para los usuarios de nuestros servicios.
+c. Calidad en el servicio: desempeñamos nuestros deberes y obligaciones con fuerte vocación de servicio, respeto, credibilidad y confiabilidad, con miras a satisfacer de mejor forma las necesidades de los usuarios de nuestros servicios.
+d. Respeto: nuestros colaboradores, desempeñan sus funciones en absoluto respeto por las personas. Nuestro trato, se basará en dar a conocer los derechos de las personas así como sus deberes.
+e. Tolerancia: la Municipalidad de Nicoya, es una organización tolerante y no realizará ni permitirá tratos discriminatorios que degraden la integridad y la dignidad de ningún ser humano.

@@ -1,0 +1,9 @@
+Compromisos éticos
+Artículo 6º-Compromisos éticos. Los siguientes, son los compromisos éticos que todos los funcionarios municipales deben observar en el cumplimiento de sus labores:
+a. Veracidad. Todo funcionario municipal, está obligado a expresarse con veracidad en sus relaciones funcionales, tanto con los particulares como con sus superiores y subordinados, y a contribuir al esclarecimiento de la verdad.
+b. Discreción. El funcionario público, debe guardar reserva respecto de hechos o informaciones de los que tenga conocimiento con motivo o en ocasión del ejercicio de sus funciones, sin perjuicio de los deberes y las responsabilidades que le correspondan en virtud de lo regulado por el ordenamiento jurídico.
+c. Dignidad y decoro. los funcionarios municipales, deben observar una conducta digna y decorosa, actuando con sobriedad y moderación. En su trato con el público y con los demás funcionarios, debe conducirse en todo momento con respeto y corrección.
+d. Honor. todo colaborador municipal, al que se le investigue administrativamente, deberá facilitar la investigación e implementar las medidas administrativas necesarias a fin de esclarecer la situación a fin de dejar a salvo su honra y la dignidad de su cargo.
+e. Equilibrio. la persona funcionaria municipal debe actuar, en el desempeño de sus funciones, con sentido práctico y buen juicio.
+f. Eficacia y eficiencia: todos los funcionarios municipales, se comprometen a desempeñar su cargo con profesionalismo, vocación, disciplina y aprovechando el tiempo laboral al máximo.
+g. Sano ambiente laboral: la persona trabajadora de la Municipalidad de Nicoya, durante el desarrollo de sus funciones, propiciará la armonía y cordialidad con los demás trabajadores. Se abstendrá de realizar manifestaciones ofensivas, irrespetuosas y reproducción de chismes que afecten el clima laboral interno.
