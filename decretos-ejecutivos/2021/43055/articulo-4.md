@@ -1,0 +1,1 @@
+Artículo 4º— Deróguese el Decreto Ejecutivo N° 38374-S del 10 de abril del 2014 “Oficializa la Norma para la Atención Integral de personas con VIH/SIDA”, publicado en el Diario Oficial La Gaceta N° 99 del día 26 de mayo del 2014.

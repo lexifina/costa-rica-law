@@ -1,0 +1,20 @@
+No. 43055-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SALUD
+En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) y 103 inciso 1) de la Ley No. 6227 del 02 de mayo de 1978 "Ley General de la Administración Pública"; 1, 2, 3, 4, 7 y 70 de la Ley No. 5395 del 30 de octubre de 1973 "Ley General de Salud"; 1, 2 y 6 de la Ley No. 5412 del 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud".
+CONSIDERANDO:
+1°. Que la salud de la población es tanto un derecho humano fundamental, como un bien de interés público tutelado por el Estado.
+2°. Que es función del Estado velar por la protección de la salud de la población y garantizar el bienestar de los ciudadanos.
+3°. Que el Ministerio de Salud, por sus competencias constitucionales, legales y por su función de rectoría, de velar por la salud de la población, está en la obligación de tomar las providencias necesarias para salvaguardar a los habitantes, por lo cual establece normas que garantizan estándares óptimos, con el fin de cumplir con la misión que le corresponde.
+4°. Que la prevención y control de las enfermedades inmunoprevenibles es prioridad de la salud pública en Costa Rica.
+5°. Que el Estado costarricense ha desarrollado, como parte de la respuesta nacional a la epidemia del VIH desde sus inicios, intervenciones y servicios de salud con cobertura universal para la prevención de nuevos casos y la atención integral en salud que corresponde para las personas con VIH.
+6°. Que conforme se ha ido mejorando el conocimiento de la epidemia, se ha logrado identificar necesidades de grupos específicos de población en donde han sido evidenciadas brechas y áreas de mejora en las respuestas que debe brindar los servicios de salud, para avanzar hacia las metas establecidas por el país, en concordancia con los compromisos internacionales en relación con el tema.
+7°. Que los cambios epidemiológicos que ha presentado la enfermedad, así como la situación actual de los servicios de salud públicos y privados, los cambios en los esquemas de tratamiento antirretroviral y el manejo clínico de cada caso, han identificado la necesidad de actualizar el Decreto Ejecutivo N° 38374-S del 10 de abril del 2014 "Norma para la Atención Integral de personas con VIH/sida", mediante el establecimiento de disposiciones que permitan a las instancias prestadoras de servicios, la elaboración de manuales, protocolos, directrices y otros documentos técnicos específicos que regulen el abordaje del VIH según las necesidades y avances tecnológicos en salud, en concordancia con el ente rector.
+8°. Que, por las razones expuestas anteriormente, se considera necesario y oportuno oficializar y declarar de interés público y nacional la "NORMA NACIONAL PARA LA ATENCIÓN INTEGRAL DEL VIH EN EL AMBITO DE LA SALUD" y su respectiva implementación.
+9°. Que de conformidad con el artículo 12 bis del Decreto Ejecutivo No. 37045-MP-MEIC de 22 de febrero de 2012 y su reforma "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", la persona encargada de la Oficialía de Simplificación de Trámites del Ministerio de Salud, ha completado como primer paso la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio. Las respuestas brindadas en esa Sección han sido todas negativas, toda vez que la propuesta no contiene trámites ni requisitos.
+Por tanto,
+DECRETAN:
+OFICIALIZACIÓN Y DECLARATORIA DE INTERÉS PÚBLICO Y
+NACIONAL DE LA "NORMA NACIONAL PARA LA ATENCIÓN INTEGRAL
+DEL VIH EN EL AMBITO DE LA SALUD"
+Artículo 1º- Oficialícese y declárese de Interés Público y Nacional la "Norma Nacional para la Atención Integral del VIH en el Ámbito de la Salud" para efectos de aplicación obligatoria, para todas las personas físicas, organizaciones, establecimientos e instituciones que tienen responsabilidades en el campo de los servicios de atención integral en salud y VIH, tanto en el ámbito público, el privado como en el de la sociedad civil, según legajo anexo al presente decreto.
