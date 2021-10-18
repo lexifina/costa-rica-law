@@ -14,3 +14,4 @@ Reglamento Requisitos de Funcionamiento de Seguros Obligatorios (Acuerdo SUGESE 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-22 | la propia norma |
+| 2 | 2021-10-18 | Reglamento 1694 (2021-10-18) |
