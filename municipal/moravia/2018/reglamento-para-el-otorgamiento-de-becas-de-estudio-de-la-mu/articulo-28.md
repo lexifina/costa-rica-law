@@ -1,1 +1,0 @@
-Artículo 28.—Perderán el beneficio de la beca municipal los estudiantes que deserten del sistema educativo o dejen de habitar el Cantón de Moravia. Quedan exceptuados los casos de ausencia al centro educativo en forma prolongada cuando se trate de asuntos de salud debidamente comprobables.

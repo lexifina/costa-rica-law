@@ -1,1 +1,0 @@
-Artículo 6º—El plazo para la entrega de solicitudes a los interesados, por parte de la secretaría del concejo municipal, será del 10 al 15 de noviembre de cada año. En caso de que el día 15 de noviembre se trate de un fin de semana, las solicitudes se entregarán hasta el último día hábil anterior a esa fecha.

@@ -1,1 +1,0 @@
-Artículo 7º—El plazo de recepción de solicitudes de becas debidamente completas será del al 1° al 15 de diciembre de cada año. En caso de que el día 15 de diciembre se trate de un fin de semana, las solicitudes se recibirán hasta el último día hábil anterior a esa fecha.

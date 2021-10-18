@@ -1,1 +1,0 @@
-Artículo 20.—Una vez recibido en el concejo municipal el dictamen de la Comisión de Asuntos Sociales referente a la aprobación de becas municipales, se procederá a su votación en forma inmediata y sin dilaciones.

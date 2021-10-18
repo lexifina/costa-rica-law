@@ -1,2 +1,0 @@
-Transitorio III.—El requisito al que refiere el punto 2 del artículo 4 de este Reglamento no resultará aplicable para el proceso de postulación de beneficiarios del año 2021, en cuanto dispone que el reporte de calificaciones o su equivalente deberán corresponder a los últimos dos trimestres. En su lugar, se aceptarán los reportes del año anterior cuando resulte aplicable.
-(Así adicionado mediante sesión N° 23 del 5 de octubre del 2020)

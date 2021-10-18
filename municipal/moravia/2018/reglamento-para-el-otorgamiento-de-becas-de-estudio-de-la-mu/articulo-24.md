@@ -1,1 +1,0 @@
-Artículo 24.—Vigencia de la beca. Las becas, al ser adjudicadas en forma anual y por un periodo de diez meses no serán renovables en forma automática, por lo que cada solicitante deberá realizar el procedimiento de solicitud nuevamente cada año en caso de que desee formar parte de los beneficiarios.

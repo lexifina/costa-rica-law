@@ -1,3 +1,0 @@
-Artículo 23.—Periodos de pago. Las becas municipales serán depositadas por medio de transferencia electrónica bancaria a través del Departamento de Tesorería a la cuenta señalada por el padre, madre o encargado del estudiante a más tardar el día 05de cada mes comprendido entre febrero y noviembre de cada ario. El Departamento de Tesorería indicará en cual entidad bancaria se realizarán dichos pagos.
-En caso de que el padre, madre o encargado no tenga una cuenta bancaria abierta deberá solicitar ante el Departamento de Tesorería una nota que servirá para la apertura de la cuenta en la entidad bancaria.
-La Tesorería podrá definir otros medios idóneos para el pago de las becas municipales de estudio, según su criterio técnico, el cual deberá estar documentado.

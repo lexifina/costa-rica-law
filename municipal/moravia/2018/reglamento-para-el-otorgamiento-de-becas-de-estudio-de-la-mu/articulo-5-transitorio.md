@@ -1,2 +1,0 @@
-Transitorio V.—Las visitas a las que refiere el artículo 10 de este Reglamento podrán ser omitidas o sustituidas según acuerden los Concejos de Distrito en el proceso de otorgamiento del 2021, con el fin de prevenir contagios de Covid-19; no obstante, en caso de realizarse, las mismas serán definidas por esos órganos y las fechas deberán comunicarse a la Comisión de Asuntos Sociales o aquella especial que designe el Concejo Municipal para estos efectos.
-(Así adicionado mediante sesión N° 23 del 5 de octubre del 2020)

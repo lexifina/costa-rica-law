@@ -1,1 +1,0 @@
-Artículo 5º—La secretaría del concejo municipal levantará un listado de nombres completos y firmas de aquellas personas a las cuales entregó formularios. No se entregarán formularios a personas menores de edad.

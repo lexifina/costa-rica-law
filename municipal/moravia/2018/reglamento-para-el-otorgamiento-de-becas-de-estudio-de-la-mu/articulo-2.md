@@ -1,1 +1,0 @@
-Artículo 2º—Órgano competente para el otorgamiento de becas. Corresponderá en forma exclusiva al concejo municipal de Moravia el otorgamiento de becas municipales de estudio, previa recomendación de los concejos de distrito y dictamen de la Comisión de Asuntos Sociales.
