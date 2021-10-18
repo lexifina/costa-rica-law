@@ -1,0 +1,1 @@
+Artículo 29.-Del Reconocimiento de las Distinciones. Las distinciones otorgadas a los Policías Municipales serán exclusivamente para la identificación de grado de mandos jerárquicos, como incentivo académico y de mérito en el excelente cumplimiento del deber, por cumplimiento de cursos de actualización y especialización policial.

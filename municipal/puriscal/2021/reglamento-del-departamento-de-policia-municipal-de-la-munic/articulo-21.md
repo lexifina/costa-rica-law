@@ -1,0 +1,1 @@
+Artículo 21.-Deber de Informar. Procurará evitar la Comisión de delitos, faltas e infracciones y denunciará cuántas vea cometer. Informará de cuántas deficiencias observe en el funcionamiento o conservación de los bienes y servicios municipales.

@@ -1,0 +1,1 @@
+Artículo 16.-Garantía del Procedimiento. Deberá la administración en todo momento respetarse los derechos y garantías para el trabajador por tanto se realizará el procedimiento conforme a lo que establece el título sexto de la Ley General de la Administración Pública para determinarse el tipo de falta en que incurrió, así como su sanción.

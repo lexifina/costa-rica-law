@@ -1,0 +1,1 @@
+Artículo 4º-Coordinación. Cualquier acto que en cumplimiento de sus funciones realice la Policía Municipal de Puriscal, lo pondrá en total conocimiento del organismo nacional de seguridad o investigación según corresponda.

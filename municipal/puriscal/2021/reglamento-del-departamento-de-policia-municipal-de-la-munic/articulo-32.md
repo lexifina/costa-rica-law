@@ -1,0 +1,1 @@
+Artículo 32.-De las Jubilaciones. Los miembros de la Policía Municipal tendrán derecho a la jubilación de acuerdo a lo establecido con la legislación vigente y así mismo, gozarán de los derechos pasivos que les pudieran corresponder.

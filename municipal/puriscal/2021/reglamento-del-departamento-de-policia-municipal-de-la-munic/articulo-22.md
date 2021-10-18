@@ -1,0 +1,1 @@
+Artículo 22.-Deber de Cooperación. Los miembros del departamento de Policía Municipal, estarán obligados a prestar mutuo apoyo, así como a los miembros de otros cuerpos policiales, en toda ocasión que sean requeridos por un compañero o vean necesaria su intervención en apoyo de éste.

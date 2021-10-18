@@ -1,0 +1,1 @@
+Artículo 33.-De la defensa. Los Policías Municipales tendrán derecho a que su defensa, en asuntos judiciales, les sea proveída por la municipalidad entendiéndose dentro del marco del funcionamiento del departamento de Servicios Jurídicos que vela por los intereses municipales únicamente.

@@ -1,0 +1,1 @@
+Artículo 18.-Casos de Calamidad y Emergencia. En los casos de emergencia y desastres en la jurisdicción del cantón, los Policías Municipales deberán presentarse en el menor tiempo posible a su respectiva base y prestar sus funciones, aunque estuvieran libres de servicio.

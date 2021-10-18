@@ -1,0 +1,1 @@
+Artículo 7º-Sobre el Uniforme Incompleto. Se prohíbe la utilización del uniforme de modo incompleto, así como la descuidada colocación de las prendas que lo componen, por lo que dicho uniforme debe ser suministrado por la administración de manera discrecional.
