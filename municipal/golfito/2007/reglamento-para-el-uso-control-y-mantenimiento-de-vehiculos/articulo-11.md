@@ -1,1 +1,0 @@
-Artículo 11.—De la custodia de los vehículos: Todos los vehículos con excepción de aquel de uso discrecional deben ser guardados al final de la jornada en las instalaciones que la municipalidad ha destinado para tal fin.
