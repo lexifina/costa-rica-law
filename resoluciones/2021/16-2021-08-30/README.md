@@ -14,3 +14,4 @@ Requerimientos de información en materia de inversiones para los servicios regu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-09-02 | la propia norma |
+| 2 | 2021-10-18 | Resolución 23 (2021-10-18) |
