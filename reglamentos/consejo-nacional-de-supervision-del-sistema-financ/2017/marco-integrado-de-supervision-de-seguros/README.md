@@ -14,3 +14,4 @@ Marco Integrado de Supervisión de Seguros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-19 | la propia norma |
+| 2 | 2021-10-18 | Reglamento 1694 (2021-10-18) |
