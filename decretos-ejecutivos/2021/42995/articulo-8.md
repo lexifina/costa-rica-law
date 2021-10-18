@@ -1,0 +1,1 @@
+Artículo 8º-Sobre la vigencia de la inscripción de los responsables de los Planes y su aprobación. Las personas físicas o jurídicas quedarán inscritas ante el MEIC de manera automática al aprobarse el plan de venta a plazo o de ejecución futura de bienes inmuebles y su inscripción se mantendrá mientras este se encuentre vigente.

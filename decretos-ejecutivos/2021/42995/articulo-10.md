@@ -1,0 +1,1 @@
+Artículo 10.-Fiscalización del mercado. El MEIC a través de la DAC deberá fiscalizar el cumplimiento de las disposiciones de la Ley N° 7472 y el presente reglamento, procediendo a tomar las acciones legales que correspondan.

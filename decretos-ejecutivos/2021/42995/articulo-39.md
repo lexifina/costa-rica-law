@@ -1,0 +1,1 @@
+Artículo 39.-Sobre la presentación de información al MEIC: la remisión de información prevista en los artículos 5, 12, 20, 21, 23, 24, 25, 29, 30 y 35, 37, deberá realizarse por medio del correo electrónico: autorizacionesinmobiliario@meic.go.cr, o en las instalaciones físicas del MEIC.

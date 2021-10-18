@@ -1,0 +1,1 @@
+Artículo 16.-De la modificación del fideicomiso. El Fideicomiso es irrevocable, en caso de necesitar una modificación del plazo o sustitución del fiduciario, el comerciante o responsable del plan requerirá de la autorización previa del MEIC, conforme al artículo 38 inciso b) del presente Reglamento.

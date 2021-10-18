@@ -1,0 +1,4 @@
+Sección II
+Sobre el fideicomiso de protección de primas
+Artículo 14.-Naturaleza del Fideicomiso. El Fideicomiso se constituirá en apego a las normas comerciales vigentes contenidas en el artículo 633 siguientes y concordantes del Código de Comercio, Ley N° 3284, así como las disposiciones contenidas en la presente Sección y su finalidad será administrar todos los dineros que aporten los Consumidores o promitentes compradores como parte del compromiso de venta dentro del plan, siempre que hayan sido efectivamente entregados al Fiduciario.
+Los bienes y valores que conforman el patrimonio autónomo del Fideicomiso no formarán parte de la garantía general de los acreedores del comerciante o responsable del plan o fideicomitente ni del fiduciario y sólo garantizan las obligaciones contraídas con el consumidor o promitente comprador por el comerciante o responsable del plan, conforme a lo establecido en el contrato suscrito entre ambos, y la presente reglamentación.

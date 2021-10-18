@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 42.-Derogatoria. Deróguense del Decreto Ejecutivo N° 37899-MEIC del 08 de julio de 2013, publicado en el Diario Oficial La Gaceta N° 182 del 23 de setiembre de 2013, artículo 2 las siguientes definiciones: desarrollador inmobiliario, garantía de cumplimiento en bienes inmuebles y proyectos de desarrollo inmobiliario y venta a plazo de bienes inmuebles; asimismo, la Sección Tercera denominada "Sobre las ventas a plazo de bienes o de ejecución futura de servicios de bienes inmuebles" del Capítulo IX denominado "Sobre las ventas a plazos de bienes o de ejecución futura de servicios.

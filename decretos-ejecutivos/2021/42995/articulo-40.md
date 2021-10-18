@@ -1,0 +1,1 @@
+Artículo 40.-Sobre la confidencialidad: La información y documentación aportada por el comerciante o responsable del plan al MEIC será estrictamente confidencial, según lo dispuesto en el artículo 67 de la Ley N° 7472.

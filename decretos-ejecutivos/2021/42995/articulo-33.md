@@ -1,0 +1,1 @@
+Artículo 33.-Sanciones. El incumplimiento de las disposiciones del presente reglamento deberá ser sancionado por parte del MEIC, de conformidad con la normativa legal vigente y mediante los procedimientos administrativos sancionatorios, las denuncias penales correspondientes o la ejecución de garantías.

@@ -1,0 +1,1 @@
+Artículo 19.-Compromiso. Es entendido para el comerciante o responsable del plan, y así lo aceptará, que el Fideicomiso no estará viciado por cualquier causa u objeto ilícitos y que con su constitución no pretenderá causar perjuicios a terceros y que no se constituirá en fraude.

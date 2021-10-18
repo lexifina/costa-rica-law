@@ -1,0 +1,4 @@
+CAPÍTULO II
+Sobre la información, publicidad y fiscalización
+Artículo 9º-Publicidad de la información. El MEIC a través de la DAC mantendrá una base de datos con información actualizada y permanente a disposición del público por medio de su propia página web, sobre los planes de desarrollo inmobiliario autorizados y modelos de contratos autorizados, de conformidad con el artículo 5 del presente reglamento.
+Además, deberá emitir las constancias y certificaciones a las personas interesadas que lo soliciten, utilizando el formulario disponible en la página web www.consumo.go.cr por medio del correo certificacionesventasaplazo@meic.go.cr, para lo cual la DAC tendrá en el plazo de ocho días hábiles. Lo anterior, dentro de los alcances y limitaciones que establece el artículo 273, inciso 1) de la LGAP y la Ley de la Protección de la Persona Frente al Tratamiento de los Datos Personales, Ley N° 8968 del 7 de julio del 2011.
