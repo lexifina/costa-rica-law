@@ -18,3 +18,4 @@ Resolución Conjunta de Alcance General para el Registro de Transparencia y Bene
 | 3 | 2021-02-26 | Resolución 12 (2021-02-26) |
 | 4 | 2021-04-26 | Resolución 17 (2021-04-26) |
 | 5 | 2021-06-10 | Resolución 20 (2021-06-10) |
+| 6 | 2021-10-18 | Resolución 28 (2021-10-18) |
