@@ -1,0 +1,1 @@
+Artículo 27.-Observar una conducta pública adecuada al ejercicio de la función que debe cumplir, dentro de lo cual está el no frecuentar lugares o comercios del propio cantón, que puedan generarle un conflicto de interés en sus actuaciones.

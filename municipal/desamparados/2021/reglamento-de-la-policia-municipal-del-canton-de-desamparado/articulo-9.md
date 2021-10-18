@@ -1,0 +1,1 @@
+Artículo 9º-En caso de renuncia, despido, permiso sin goce de salario, vacaciones e incapacidades mayores a 30 días, el titular deberá devolver al superior jerárquico, el carné y la placa con su respectivo uniforme y los demás implementos y equipo policial que se le hayan entregado en razón de su puesto.

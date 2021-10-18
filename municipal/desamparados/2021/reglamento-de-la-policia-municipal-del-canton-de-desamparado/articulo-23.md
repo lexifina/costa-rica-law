@@ -1,0 +1,1 @@
+Artículo 23.-La disciplina es base fundamental en todo cuerpo policial por lo que los (as) Policías Municipales deberán obedecer y ejecutar las órdenes que reciban de sus superiores jerárquicos, siempre que no contradigan la legalidad vigente.

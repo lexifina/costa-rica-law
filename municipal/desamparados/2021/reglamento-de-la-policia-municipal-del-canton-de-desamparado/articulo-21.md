@@ -1,0 +1,1 @@
+Artículo 21.-En virtud de la naturaleza del servicio que brindan los (as) Policías Municipales, estarán obligados a prestar servicios todos los días del año, incluidos los inhábiles y feriados, previa programación de las autoridades superiores, acorde con los horarios establecidos según el Plan Operativo, sin perjuicio del derecho al descanso que la ley les concede.

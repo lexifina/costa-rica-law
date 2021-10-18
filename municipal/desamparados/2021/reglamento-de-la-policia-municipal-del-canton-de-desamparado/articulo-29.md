@@ -1,0 +1,4 @@
+Artículo 29.-Los (as) funcionarios de la Policía Municipal y de la Gestión de Seguridad Ciudadana, podrán aspirar a los siguientes incentivos:
+a) Capacitación especializada policial; pasantías, trabajos de investigación técnico-policial y similares.
+b) Enseñanza formal impartida por instituciones autorizadas por el Ministerio de Educación Pública y entidades de Educación Superior Universitaria Pública o Privada, Embajadas o Cooperación Internacional, u otras autoridades policiales. Este derecho como el dispuesto en el inciso a), deberá sujetarse a lo establecido en el Reglamento sobre Capacitación y Formación que tiene la Municipalidad, y el Reglamento de Becas.
+c) Reconocimiento a un incentivo de carácter permanente denominado Riesgo Policial, conforme lo estipula la Convención Colectiva de Trabajadores de la Municipalidad de Desamparados y las leyes de La República.

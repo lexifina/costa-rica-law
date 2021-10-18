@@ -1,0 +1,1 @@
+Artículo 26.-En cualquiera de los casos señalados en el artículo anterior, la Policía Municipal está obligada a poner la respectiva denuncia ante la Policía Administrativa o Judicial, según como corresponda a la gravedad del hecho.

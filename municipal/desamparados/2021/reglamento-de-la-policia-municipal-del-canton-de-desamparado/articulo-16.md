@@ -1,0 +1,1 @@
+Artículo 16.-Los funcionarios (as) de la Policía Municipal que vistan su uniforme en lugares públicos dentro de la jurisdicción del cantón, fuera de su horario, se considerarán que se encuentran en servicio y por lo tanto estarán obligados a intervenir en aquellos sucesos que reclamen su presencia, cumpliendo con los deberes que le impone el presente reglamento.
