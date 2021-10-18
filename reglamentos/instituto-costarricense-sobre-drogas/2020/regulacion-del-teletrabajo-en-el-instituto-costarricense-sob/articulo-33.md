@@ -1,0 +1,1 @@
+Artículo 33.-Normativa laboral. En ningún caso, el Contrato de Teletrabajo puede ir en contra de la normativa nacional que rige en materia de teletrabajo, el Código de Trabajo, la normativa estatutaria, el Reglamento de Organización y Servicio del ICD y los "Lineamientos Técnicos del Teletrabajo".

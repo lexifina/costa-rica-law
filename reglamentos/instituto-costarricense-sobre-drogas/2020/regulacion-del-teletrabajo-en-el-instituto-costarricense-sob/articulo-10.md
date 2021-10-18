@@ -1,0 +1,1 @@
+Artículo 10.-De la disponibilidad. En cualquiera de las modalidades de teletrabajo especificadas en este Reglamento, la persona teletrabajadora deberá estar disponible dentro de su horario laboral, el cual será acordado previamente con su jefatura, para atender asuntos de esta o de los usuario internos y externos del ICD, sea por medio de correo electrónico o teléfono.

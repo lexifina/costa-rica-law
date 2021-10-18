@@ -1,0 +1,29 @@
+INSTITUTO COSTARRICENSE SOBRE DROGAS
+REGLAMENTO INTERNO
+"REGULACIÓN DEL TELETRABAJO EN EL INSTITUTO
+COSTARRICENSE SOBRE DROGAS"
+Considerando:
+I.-Que el Instituto Costarricense sobre Drogas (ICD) es un órgano de desconcentración máxima, adscrito al Ministerio de la Presidencia y con personalidad jurídica instrumental, para la realización de su actividad contractual y la administración de sus recursos y de su patrimonio.
+II.-Que mediante la Ley N° 9738, publicado en el Diario Oficial La Gaceta N° 184, Alcance N° 211 del 30 de setiembre de 2019, se emitió la "Ley para regular el teletrabajo" y mediante Decreto Ejecutivo N° 42083 del 20 de diciembre de 2019, publicado en el Diario Oficial La Gaceta N° 243, Alcance N° 286 del 20 de diciembre de 2019, se publicó el "Reglamento para regular el teletrabajo".
+III.-Que la transformación y la modernización del Estado, impone la necesidad de combinar la tecnología de la información y las comunicaciones, con esquemas más eficientes de trabajo, que aprovechen al máximo los recursos, mejore la productividad y la calidad de vida de los ciudadanos, así como, promueva una reducción considerable del gasto público.
+IV.-Que la práctica del teletrabajo dentro del ICD requiere del establecimiento de una serie de principios, reglas, procedimientos y roles, para su correcta aplicación, atendiendo la normativa vigente en esta materia, especialmente, las directrices emitidas por el Equipo de Coordinación Técnica del Ministerio de Trabajo y Seguridad Social (MTSS).
+V.-Que el Consejo Directivo del ICD aprobó el Reglamento interno "Regulación del teletrabajo en el Instituto Costarricense sobre Drogas", mediante Acuerdo N° EXT cero cero dos-doce-dos mil veinte, tomado en la Sesión Extraordinaria virtual número doce, celebrada el día martes quince de setiembre del año dos mil veinte. Por tanto,
+CAPÍTULO I
+Disposiciones generales
+Artículo 1°-Definiciones. Para efectos de este reglamento, aplicarán las siguientes definiciones:
+a. Actividades teletrabajables: Conjunto de tareas que pueden ser realizadas por medios telemáticos, desde el domicilio o desde el telecentro, que no requieren la presencia física de la persona teletrabajadora en la oficina.
+b. Asistencia técnica para la persona teletrabajadora: Es el recurso al que puede acceder la persona teletrabajadora, cada vez que los medios tecnológicos o las telecomunicaciones, no cumplan con los requerimientos necesarios que faciliten el teletrabajo.
+c. Condiciones del entorno de la persona teletrabajadora: Es el conjunto de requerimientos y especificaciones, que la persona empleadora debe establecer, para que la persona teletrabajadora pueda desempeñarse adecuadamente en la modalidad de teletrabajo, tales como herramientas tecnológicas mínimas, conectividad, entre otros requerimientos que resulten indispensables para la correcta ejecución de sus tareas.
+d. Comisión Institucional de Teletrabajo (CIT): Grupo de funcionarios(as) integrado con representantes de las siguientes Unidades, Órganos staff o Procesos: Dirección General, Asesoría Legal, Planificación Institucional, Informática y Oficina de Gestión Institucional de Recursos Humanos. La CIT contará con la asistencia de un(a) funcionario(a) que asuma las labores asistenciales/ secretariales de esta.
+e. Contrato de Teletrabajo: Es el documento firmado voluntariamente entre el ICD y la persona teletrabajadora, que formaliza las condiciones en que el programa de teletrabajo será desarrollado.
+f. Funcionario(a) del ICD: Son aquellas personas que ocupan una plaza en el ICD, sea en propiedad o interinamente, o en su defecto, son aquellos individuos que se encuentran desempeñando funciones en el ICD, gracias a un Convenio de préstamo, que autoriza y establece el marco regulatorio del teletrabajo.
+g. Jornada de trabajo: Se refiere al tiempo que cada persona teletrabajadora dedica a su trabajo y por el cual fue contratado.
+h. Horario de teletrabajo: Distribución diaria de las horas que componen la jornada laboral de una persona teletrabajadora, la cual podrá ser flexible, siempre y cuando se ajuste a los límites legales establecidos para la jornada de trabajo del ICD.
+i. Medios telemáticos: Son aquellos medios físicos o lógicos que favorecen los vínculos comunicativos a larga distancia, como, por ejemplo: el correo electrónico, el explorador web, la enseñanza asistida por computadora, la videoconferencia, el chat, el foro, entre otros.
+j. Oficina de Gestión Institucional de Recursos Humanos (OGEREH): Es aquella responsable de la gestión que realiza el capital humano del ICD.
+k. Perfil de la persona teletrabajadora: Es el conjunto de aptitudes, conocimientos, destrezas y habilidades de un funcionario(a), que el empleador detecta que un funcionario(a) posee para desempeñarse en sus labores de manera remota y eficiente.
+l. Persona teletrabajadora: Persona protegida por esta regulación, que teletrabaja en relación de dependencia o subordinación.
+m. Puesto teletrabajable: puesto de trabajo susceptible a desempeñarse a través de la modalidad del teletrabajo.
+n. Telecentro: Es un espacio físico, acondicionado con las tecnologías digitales necesarias para que una persona teletrabajadora pueda ejecutar sus tareas de manera eficiente, interactuar en ambientes colaborativos, intercambiar conocimiento y fomentar la innovación, con esquemas laborales de calidad.
+o. Teletrabajo domiciliario: Se da cuando los(as) funcionarios(as) ejecutan sus actividades laborales desde su domicilio, mediante el uso de medios telemáticos o de dispositivos móviles.
+p. Video comunicaciones: Conjunto de tecnologías que permiten la comunicación de video de alta calidad, audio y datos, entre dos o más puntos geográficamente distantes en tiempo real, soportados en plataformas de comunicaciones unificadas, integrando sala de videoconferencia, sistemas portátiles de video comunicación, computadores y dispositivos móviles.

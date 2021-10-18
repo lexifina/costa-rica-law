@@ -1,0 +1,1 @@
+Artículo 24.-De los programas de capacitación y sensibilización. La CIT coordinará con la OGEREH, la planificación y programación de actividades de sensibilización y de capacitación para las personas teletrabajadoras y sus jefaturas, así como, su formalización en el Plan Institucional de Capacitación (PIC).

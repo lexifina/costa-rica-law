@@ -1,0 +1,4 @@
+CAPÍTULO III
+Obligaciones de la jefatura
+Artículo 20.-Del monitoreo y la evaluación. Cada jefatura deberá monitorear y evaluar el cumplimiento de las tareas, los objetivos y las metas pactadas entre esta y la persona teletrabajadora, así como, formalizados en los diferentes instrumentos de gestión institucional y nacional que posee el ICD. Asimismo, deberá llevar los registros necesarios que le permitan conocer el nivel de avance y cumplimiento de cada una de las tareas, los objetivos y las metas trazadas. Del monitoreo y la evaluación que realice, la jefatura podrá recomendar acciones dirigidas a la consecución de la expectativa institucional.
+El monitoreo se desarrollará, al menos, una vez por semana. Las evaluaciones se realizarán, al menos, cada seis meses según la normativa correspondiente.

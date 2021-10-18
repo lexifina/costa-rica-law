@@ -1,0 +1,1 @@
+Artículo 19.-Del incumplimiento del Contrato de Teletrabajo. La persona teletrabajadora deberá cumplir con todas las obligaciones estipuladas en este capítulo, así como, brindar información verídica y oportuna sobre todas las tareas teletrabajadas, cada vez que se le solicite. En estos casos, se procederá conforme lo establecido en el Artículo 8 de este Reglamento.

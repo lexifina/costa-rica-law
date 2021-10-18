@@ -1,0 +1,1 @@
+Artículo 29.-De la capacitación. La Unidad "Informática", de acuerdo a sus capacidades humanas y técnicas, otorgará herramientas cognitivas a las personas teletrabajadoras y a sus jefaturas, para el uso adecuado y responsable de los equipos y los programas ofimáticos del ICD.

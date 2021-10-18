@@ -1,0 +1,4 @@
+Transitorio I: Formarán parte integral de este Reglamento los "Lineamientos Técnicos del Teletrabajo"; la "Guía de Salud Ocupacional y Prevención de los Riesgos del Teletrabajo en el ICD"; así como, cualquier otro instrumento que se requiera para la correcta y eficiente aplicación del teletrabajo en el ICD.
+La CIT tendrá hasta por seis meses para la emisión de los "Lineamientos Técnicos del Teletrabajo"; contados a partir de la publicación de este Reglamento.
+Asimismo, será obligación de la CIT crear un plan de capacitación para todos los funcionarios (a) del ICD, sobre el Reglamento Interno "Regulación del Teletrabajo en el Instituto Costarricense sobre Drogas, el cual deberá implementarse dentro de los cuatro meses siguientes a la emisión de los "Lineamientos Técnicos del Teletrabajo".
+San José, a los quince días del mes de setiembre del año dos mil veinte

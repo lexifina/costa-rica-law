@@ -1,0 +1,1 @@
+Artículo 7°-Del teletrabajo en los puestos de jefatura. Todo(a) funcionario(a) que ocupe un puesto de jefatura en el ICD y que posea tareas teletrabajables, puede acceder a alguna de las modalidades establecidas en este Reglamento.

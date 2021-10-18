@@ -1,0 +1,1 @@
+Artículo 25.-De las prohibiciones. Queda prohibido para la CIT, la divulgación de toda información obtenida durante las inspecciones que realice a las personas teletrabajadoras, así como, de cualquier otra información de carácter privado conocida por los miembros de la CIT, a efectos de la aplicación del presente Reglamento.
