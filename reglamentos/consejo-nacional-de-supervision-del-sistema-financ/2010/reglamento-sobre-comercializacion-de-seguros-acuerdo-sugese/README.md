@@ -19,3 +19,4 @@ Reglamento sobre Comercialización de Seguros (Acuerdo SUGESE 03-10)
 | 4 | 2014-10-27 | Reglamento 1131 (2014-10-27) |
 | 5 | 2015-12-21 | Reglamento 1221 (2015-12-21) |
 | 6 | 2020-08-24 | Reglamento 1601 (2020-08-24) |
+| 7 | 2021-10-18 | Reglamento 1694 (2021-10-18) |
