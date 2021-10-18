@@ -9,9 +9,10 @@ En la actualidad, la población costarricense en general no cuenta con acceso a 
 Debido a esto, la localización de los profesionales se torna particularmente complicada para los usuarios de los servicios ofrecidos por los colegiados.
 Con el avance tecnológico existente, surgen gran cantidad de herramientas que pueden contribuir a la realización de los objetivos y competencias establecidos por la Ley N° 8989 y su Reglamento para este Colegio Profesional.
 Por las consideraciones anteriormente expuestas, se hace necesario y oportuno dictar el presente Reglamento de uso de la Plataforma de Directorio Profesional.
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 0031 del 18 de octubre del 2021 y publicado en La Gaceta N° 213 del 4 de noviembre de 2021, y se transcribe a continuación:)
 CAPÍTULO I
-Disposiciones generales
-Artículo 1º—Para los efectos de aplicación e interpretación del presente Reglamento, los siguientes conceptos se entenderán así:
-a. Colegio de Terapeutas de Costa Rica: En adelante “el CTCR”. Ente público no estatal con capacidad, personalidad jurídica y patrimonio propios que tiene la potestad de emitir reglamentación interna, de conformidad con la Ley N° 8989 y su Reglamento respectivo.
-b. Colegiado: Profesional en Terapia Física, Terapia de Lenguaje, Terapia Ocupacional, Terapia Respiratoria, Audiología, Imagenología Diagnóstica y Terapéutica, y cualquier otra profesión que forme parte de conformidad con el numeral 17 inciso g de la Ley N° 8989, que se encuentre debidamente incorporado a este Colegio.
+Disposiciones Generales
+Artículo 1º-Para los efectos de aplicación e interpretación del presente Reglamento, los siguientes conceptos se entenderán así:
+a. Colegio de Terapeutas de Costa Rica: En adelante "el CTCR". Ente público no estatal con capacidad, personalidad jurídica y patrimonio propios que tiene la potestad de emitir reglamentación interna, de conformidad con la Ley nro.8989 y su Reglamento respectivo.
+b. Colegiado: Profesional en Audiología, Imagenología Diagnóstica y Terapéutica, Terapia Física, Terapia de Lenguaje, Terapia Ocupacional, Terapia Respiratoria y cualquier otra profesión que forme parte de conformidad con el numeral 17 inciso g de la Ley nro. 8989, que se encuentre debidamente incorporado a este Colegio.
 c. Plataforma de Directorio Profesional: Plataforma digital mediante la que público en general podrá acceder a los datos de contacto que el colegiado autorice.

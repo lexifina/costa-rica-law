@@ -1,1 +1,1 @@
-Artículo 8º—Una vez firmados los documentos, se procederá a incluir los datos del colegiado dentro de la Plataforma de Directorio Profesional.
+Artículo 8º-En caso de no completarse el trámite en los términos en que se establece en el presente Reglamento, no será posible incluir la información del colegiado dentro de la Plataforma de Directorio Profesional.

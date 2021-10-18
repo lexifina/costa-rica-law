@@ -1,1 +1,1 @@
-Artículo 5º—Una vez recibidos los datos del formulario, el personal designado por el CTCR verificará que los mismos correspondan a un profesional incorporado y que cumpla con los requisitos estipulados.
+Artículo 5º-El agremiado deberá llenar el formulario de Directorio Profesional personalmente, aportando toda la información solicitada. Para la verificación de identidad, se deberá adjuntar una fotografía o copia de su documento de identidad (cédula o carné profesional vigente).

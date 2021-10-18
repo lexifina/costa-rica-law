@@ -14,3 +14,4 @@ Reglamento de uso de la plataforma de directorio profesional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-12-06 | la propia norma |
+| 2 | 2021-10-18 | Reglamento 31 (2021-10-18) |

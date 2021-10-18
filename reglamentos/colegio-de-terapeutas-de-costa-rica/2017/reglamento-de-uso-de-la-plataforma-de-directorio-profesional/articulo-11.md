@@ -1,1 +1,3 @@
-Artículo 11.—El colegiado deberá comunicar al CTCR cualquier cambio que se suscite en los datos proporcionados, con el fin de que los mismos sean modificados dentro de la Plataforma de Directorio Profesional.
+CAPÍTULO IV
+Sobre el tratamiento de los datos personales
+Artículo 11.-El CTCR tratará los datos personales de los colegiados de conformidad con lo establecido en la Ley nro. 8968 de Protección de la persona frente al tratamiento de sus datos personales.

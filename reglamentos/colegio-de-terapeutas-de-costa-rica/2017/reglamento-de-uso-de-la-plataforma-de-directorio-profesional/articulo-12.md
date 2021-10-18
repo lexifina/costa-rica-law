@@ -1,3 +1,1 @@
-CAPÍTULO IV
-Sobre el tratamiento de los datos personales
-Artículo 12.—El CTCR tratará los datos personales de los colegiados de conformidad con lo establecido en la Ley N° 8968 de Protección de la persona frente al tratamiento de sus datos personales.
+Artículo 12.-Únicamente se publicarán en la Plataforma de Directorio Profesional, los datos que el colegiado haya consentido expresamente mediante el formulario de consentimiento informado. En caso de duda con respecto a la autorización para publicar alguno de los datos, el CTCR se abstendrá de publicarlo.
