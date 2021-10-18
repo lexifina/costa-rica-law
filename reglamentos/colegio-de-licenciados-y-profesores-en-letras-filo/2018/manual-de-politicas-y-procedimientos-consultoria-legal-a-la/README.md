@@ -14,3 +14,4 @@ Manual de políticas y procedimientos (Consultoría Legal a la persona colegiada
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-01 | la propia norma |
+| 2 | 2021-10-18 | Reglamento 102 (2021-10-18) |
