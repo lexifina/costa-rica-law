@@ -21,8 +21,24 @@ k. Obligación del cumplimiento de las responsabilidades establecidas al tomador
 (*) (Así adicionado el anexo A-1 anterior en sesión N° 1681 del 16 de agosto de 2021)
 (*)ANEXO PT-1
 PROVISIÓN PARA PRIMA NO DEVENGADA (PPND)
-(Derogado el anexo PT-1 anterior en sesión N° 1682 del 23 de agosto de 2021)
-(*)ANEXO ORC-1
+(Derogado mediante sesión N° 1682 del 23 de agosto de 2021)
+ANEXO PT-2
+PROVISIÓN POR INSUFICIENCIA DE PRIMA (PIP)
+(Derogado mediante sesión N° 1682 del 23 de agosto de 2021)
+ANEXO PT-3
+PROVISIÓN DE SEGUROS PERSONALES
+(Derogado mediante sesión N° 1682 del 23 de agosto de 2021)
+ANEXO PT-4
+PROVISIÓN PARA SINIESTROS (PPS)
+(Derogado mediante sesión N° 1682 del 23 de agosto de 2021)
+ANEXO PT-5
+PROVISIÓN DE PARTICIPACIÓN EN LOS BENEFICIOS Y EXTORNOS
+(Derogado mediante sesión N° 1682 del 23 de agosto de 2021)
+ANEXO PT-6
+PROVISIÓN DE SEGUROS EN LOS QUE EL RIESGO DE INVERSIÓN LO ASUME EL TOMADOR
+(Derogado mediante sesión N° 1682 del 23 de agosto de 2021)
+(*)ANEXO PT-7
+ANEXO ORC-1
 OBLIGACIONES POR RIESGOS CATASTRÓFICOS (ORCAT)
 Las obligaciones por riesgos catastróficos de los seguros de temblor y terremoto (en adelante terremoto) y erupción volcánica deben constituirse para cada uno de los siguientes tipos de contratos de seguro y reaseguro:
 i) Seguros que cubran, en forma directa o como beneficio adicional, las pérdidas materiales o pérdidas consecuenciales de bienes inmuebles y sus contenidos, causadas por la ocurrencia de eventos sísmicos de temblor y terremoto.
@@ -73,6 +89,6 @@ La entidad deberá mantener en todo momento a disposición de la Superintendenci
 E) Disponibilidad y liquidez
 Sin perjuicio de lo dispuesto en el capítulo III del título III de este Reglamento, la entidad deberá contar dentro de su gestión de activos y pasivos, con un plan que permita atender el pago de siniestros derivados de la ocurrencia de los eventos contemplados en la sección A de este anexo.
 F) Cese de operaciones
-Cuando una entidad determine dejar de operar los seguros de terremoto y erupción volcánica pero mantenga otras operaciones activas, podrá liberar al 100% el monto de las obligaciones por riesgos catastróficos de los seguros de terremoto y erupción volcánica siempre que haya liquidado los siniestros pendientes de pago y que haya previamente compensado cualquier otro pasivo que en esos momentos presente cualquier otro ramo de seguro o alguna deficiencia de capital, previa autorización de la Superintendencia.
-(*) (Así reformado el ANEXO ORC-1 anterior mediante sesión N° 1682-2021 del 23 de agosto de 2021)
+Cuando una entidad determine dejar de operar los seguros de terremoto y erupción volcánica pero mantenga otras operaciones activas, podrá liberaPr al 100% el monto de las obligaciones por riesgos catastróficos de los seguros de terremoto y erupción volcánica siempre que haya liquidado los siniestros pendientes de pago y que haya previamente compensado cualquier otro pasivo que en esos momentos presente cualquier otro ramo de seguro o alguna deficiencia de capital, previa autorización de la Superintendencia.
 (Así adicionado el anexo 7 anterior mediante sesión N° 1363-2017 del 3 de octubre del 2017)
+(*)(Así reformado el anexo pt-7 anterior mediante sesión N° 1682-2021del 23 de agosto del 2021)
