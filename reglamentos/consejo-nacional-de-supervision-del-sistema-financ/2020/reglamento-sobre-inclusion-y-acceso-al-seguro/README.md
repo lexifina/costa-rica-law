@@ -15,3 +15,4 @@ Reglamento sobre inclusión y acceso al seguro
 | --- | --- | --- |
 | 1 | 2020-09-01 | la propia norma |
 | 2 | 2021-08-23 | Reglamento 1682 (2021-08-23) |
+| 3 | 2021-10-18 | Reglamento 1694 (2021-10-18) |

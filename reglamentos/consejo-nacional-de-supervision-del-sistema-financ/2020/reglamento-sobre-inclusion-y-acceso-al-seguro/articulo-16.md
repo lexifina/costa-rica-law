@@ -7,4 +7,5 @@ Cuando un intermediario, según lo indicado en el párrafo anterior, participe e
 16.1. las obligaciones y facultades de cada uno,
 16.2. la responsabilidad ante el consumidor por errores y omisiones del intermediario, la cual deberá ser solidaria con la aseguradora salvo en el caso de sociedades corredoras de seguros,
 16.3. una estrategia de salida que procure evitar la afectación del servicio a los consumidores, en caso de que el intermediario termine su participación en la comercialización del producto.
-En dichos contratos será aplicable lo dispuesto en el artículo 56 del Reglamento autorizaciones, registros y requisitos de funcionamiento de entidades supervisadas por la Superintendencia General de Seguros. Acuerdo SUGESE 01-08.
+En dichos contratos será aplicable lo dispuesto en materia de tercerización de servicios en el Reglamento sobre autorizaciones, registros y requisitos de funcionamiento de entidades supervisadas por la Superintendencia General de Seguros.
+(Así reformado el párrafo anterior en sesión N° 1694 del 18 de octubre de 2021)
