@@ -27,6 +27,15 @@ Notas:
 El paquete no implica cobro de comisión adquirente adicional al costo del paquete, hasta por el monto máximo contratado, volumen superior (exceso) a este monto aplica comisión indicada en el Reglamento del Sistema de Tarjetas de Pago, publicado por el BCCR.
 3. Tarifa cobrada por trimestre anticipado.
 4. Tarifa cobrada por mes anticipado.")
+(Nota de Sinalevi: Mediante sesión N° 45-21 del 19 de octubre del 2021 se reforma el punto 9.7 anterior. No obstante al no coincidir la reforma la misma se transcribe a continuación: "9.7. - Tarifas soluciones digitales de recaudo (SDR)
+[imagen]
+[imagen]
+Notas:
+1. Tarifa cobrada únicamente sobre el mecanismo SDR + comisión de adquirencia .
+2. Servicio incluye un mecanismo digital SDR a escoger entre QR, Link de Pagos o Micrositio. Comisión cubre la cantidad de transacciones según el paquete elegido, costo transacción adicional US$0,45 ivai.
+El paquete no implica cobro de comisión adquirente adicional al costo del paquete, hasta por el monto máximo contratado, volumen superior (exceso) a este monto aplica comisión indicada en el Reglamento del Sistema de Tarjetas de Pago, publicado por el BCCR.
+3. Tarifa cobrada por trimestre anticipado.
+4. Tarifa cobrada por mes anticipado.")
 9.8.-Tarifa por reposición de datáfono (POS) extraviados o con daño irreparable por el comercio afiliado.
 El costo del equipo depende del valor de mercado en el momento de la reposición
 9.9. -Comisión por alquiler de datáfonos (POS) inalámbricos (GPRS o WiFi)

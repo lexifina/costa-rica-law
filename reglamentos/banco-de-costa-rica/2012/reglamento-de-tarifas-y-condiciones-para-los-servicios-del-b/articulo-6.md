@@ -3,14 +3,29 @@ Dentro de las comisiones de confianza están los mandatos, los fideicomisos y ot
 6.1-. Mandatos
 6.1.1-Cobro de documentos (pagarés, letras, créditos hipotecarios o similares) en gestión de cobro aunque el Banco tenga en garantía esos documentos (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
 6.1.2.- Remesas directas de dinero al o del exterior (Derogado este punto mediante sesión N° 24-2020 del 23 de junio del 2020)
-(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se reforma el punto 6.1.2. No obstante al no coincidir la reforma la misma se transcribe a continuación: “6.1.2 Custodia de valores en sobres cerrados a solicitud del cliente
-Por sobres cerrados y sellados $100,00 anuales + IVA”)
-(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se reforma el punto 6.1.5. No obstante al no coincidir la reforma la misma se transcribe a continuación: “6.1.5 Administración, control, seguimiento y custodia de las garantías cedidas sobre créditos otorgados
+(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se reforma el punto 6.1.2. No obstante al no coincidir la reforma la misma se transcribe a continuación: "6.1.2 Custodia de valores en sobres cerrados a solicitud del cliente
+Por sobres cerrados y sellados $100,00 anuales + IVA")
+(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se reforma el punto 6.1.5. No obstante al no coincidir la reforma la misma se transcribe a continuación: "6.1.5 Administración, control, seguimiento y custodia de las garantías cedidas sobre créditos otorgados
 Servicio que se brinda en la administración y custodia física de documentos dados en garantía al Banco en operaciones de crédito respaldadas con garantías cedidas que incluye, el proceso de control y seguimiento, según los términos aprobados.
-[…]
+[.]
 Nota:
-[…]
-Este porcentaje de comisión deberá ser avalado por la Oficina de Custodia Física de Valores y Garantías, antes que el área comercial presente el crédito para su aprobación, ante el Órgano Resolutor correspondiente.”)
+[.]
+Este porcentaje de comisión deberá ser avalado por la Oficina de Custodia Física de Valores y Garantías, antes que el área comercial presente el crédito para su aprobación, ante el Órgano Resolutor correspondiente.")
+(Nota de Sinalevi: Mediante sesión N° 45-21 del 19 de octubre del 2021 se reforma el punto 6.1.7. No obstante al no coincidir la reforma la misma se transcribe a continuación: "6.1.7 Tarifas por movimientos (mercado local), servicios complementarios:
+[imagen]
+Nota:
+La comisión de liquidación automática de movimientos de efectivo contempla todas las transacciones que lleven un débito o un crédito en una cuenta bancaria del BCR.
+Para el cobro de esta comisión se debe aplicar el IVA.")
+(Nota de Sinalevi: Mediante sesión N° 45-21 del 19 de octubre del 2021 se reforma el punto 6.1.9. No obstante al no coincidir la reforma la misma se transcribe a continuación: "6.1.9 Tarifas por movimientos (custodio internacional):
+[imagen]
+Para el cobro de esta comisión se debe aplicar + el IVA.")
+(Nota de Sinalevi: Mediante sesión N° 45-21 del 19 de octubre del 2021 se reforma el punto 6.1.11. No obstante al no coincidir la reforma la misma se transcribe a continuación: "6.1.11 Inclusión de órdenes Mercado Primario:
+[imagen]
+Notas:
+a-La emisión del título valor debe ser en colones o su equivalente en dólares.
+b-La comisión por la emisión del título valor debe ser en función a la moneda del título valor.
+c-Se aplica por evento, es decir, se cobra una única vez dentro de la boleta de negociación indiferente del plazo, periodicidad o cualquier otra característica de la emisión (ISIN) negociada.
+Para el cobro de esta comisión se debe aplicar + el IVA.")
 6.2.- Custodias físicas y electrónicas
 Custodia electronica de valores
 Por servicios de custodia local
@@ -111,13 +126,13 @@ Montos menores sujetos a negociación por BCR-Fideicomiso.
 Tarifa (porcentaje) a negociar de acuerdo a los requerimientos y al costo administrativo, obligaciones y responsabilidades del fiduciario
 Mínimo $125.00 mensuales
 Define BCR-Fideicomiso
-(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se reforma el punto 6.2.2. No obstante al no ser clara la reforma y no coincidir en la numeración se transcribe a continuación :” 6.2.2.- Tipos de Fideicomisos
-[…]
+(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se reforma el punto 6.2.2. No obstante al no ser clara la reforma y no coincidir en la numeración se transcribe a continuación :" 6.2.2.- Tipos de Fideicomisos
+[.]
 -Fideicomisos de Obra Pública
 Tarifa (porcentaje) a negociar en concordancia con las especificaciones de cada negocio en particular tomando en consideración variables como costo de mano de obra del fideicomiso, costo de insumos de atención del fideicomiso, gastos administrativos de atención del Fideicomiso y utilidad del precio de cotización.
 Mínimo $125.00 mensuales + IVA
 Nota: El mínimo de la tarifa detallada no aplica para Fideicomisos de Obra Pública, estos están sujetos propiamente al análisis de las variables mencionadas de acuerdo con el negocio propuesto.
-Define BCR-Fideicomiso”)
+Define BCR-Fideicomiso")
 6.4.- Otras comisiones de confianza
 6.4.1.-Mandatos de administración e inversión (figura con servicios semejantes fideicomiso)
 Mínimo administrado $100.000.00

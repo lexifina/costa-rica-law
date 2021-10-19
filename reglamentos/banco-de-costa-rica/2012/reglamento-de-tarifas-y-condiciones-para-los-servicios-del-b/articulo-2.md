@@ -75,8 +75,16 @@ $2.00 máximo 2 páginas, sobre excesos $0.50 por página
 $20 más gastos del corresponsal
 (Así reformado el punto 2.14) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 2.15.-Venta de cheques de gerencia
-$25.00
-(Así reformado el punto 2.15) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+$ 25,00
+Para casos de pagos de pólizas, seguros asociados, entrega de dinero a beneficiarios, se realiza por depósito en cuenta BCR o transferencia de fondos.
+Se exceptúa el cobro de cheques de gerencia:
+a. Por cierres de cuentas corrientes o ahorros a solicitud de la Gerencia de Cumplimiento, cuando al cliente se le deba entregar el saldo de la cuenta.
+b. Por retiros de fondos por parte del albacea, en caso de fallecimiento del titular de la cuenta corriente o ahorros, cuando este sea el único medio para retirar los fondos.
+c. Por financiamiento otorgado por el Banco a un cliente cuyo fin sea la liquidación de operaciones de crédito en otras instituciones financieras o compra de saldos de tarjetas de crédito.
+Notas:
+· Si el cliente desea llevarse el dinero por medio de cheque para depositarlo en otro banco debe asumir el costo del cheque.
+· Para la compra de un bien mueble o inmueble financiado por el Banco, si el cliente desea un cheque de gerencia debe de asumir el costo.
+(Así reformado el punto 2.15) anterior mediante sesión N° sesión 45-21 del 19 de octubre del 2021)
 2.16.- Recolección depósitos especiales con el servicio de transporte de Valores
 1 - Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM).
 (Así reformado el punto 1) anterior mediante sesión N° 48-2020 del 24 de noviembre del 2020)
@@ -129,9 +137,11 @@ Se exceptúa del pago de esta comisión a aquellas cuentas cuyo saldo promedio s
 2.26.- Comisión por cancelación anticipada de un plan de ahorro automático
 Aplica la comisión del 3% sobre la totalidad del saldo ahorrado (principal más intereses), a planes de ahorro automático que se cancelen de forma anticipada antes de 180 días de permanencia.
 (Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
-2.27- Aplicación de planillas judiciales con fondos trasladados mediante Sinpe (no clientes BCR)
-$0.50 por cada registro
-(Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
+2.27- Aplicación de planillas judiciales con fondos trasladados por medio de cuentas BCR o plataforma Sinpe
+$0,50 por cada registro
+Nota:
+Se exceptúa la comisión al utilizar la plataforma de BCR Comercial.
+(Nota de Sinalevi: Así reformado el punto 2.27 anterior mediante sesión N° 45-21 del 19 de octubre del 2021. La reforma decía 2.25 no obstante la numeración no corresponde y del análisis se deduce que el punto a reformar el 2.27 anterior)
 2.28- Pago de cheque viajero
 1%, mínima $2.00. Esta comisión se cobra sobre el monto del cheque
 (Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
@@ -148,36 +158,36 @@ $3.00 por cada cheque BCR tramitado a través de Cámara de Compensación y que 
 2.32.- Cobros por depósitos masivos en cuentas depositadas desde el canal Tucán
 $2.00 por cada depósito o nota de crédito sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están recibiendo más de 50 acreditaciones mensuales, durante el último mes, desde puntos Tucán. El cobro se realizará por la totalidad de acreditaciones recibidas en la cuenta (a partir del depósito 1).
 (Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
-(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.32) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: “ 2.32.- Informes confidenciales, constancias y certificaciones
-$5.00 dólares “)
+(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.32) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: " 2.32.- Informes confidenciales, constancias y certificaciones
+$5.00 dólares ")
 2.33.- Servicio de investigación de documentos o información que solicitan los clientes, para localizar comprobantes de caja, cheques y otros
 2.33.1 Copias de microfilm $6.00 primeras 5 páginas y $1.20 por cada hoja adicional.
 2.33.2 Comprobantes de caja, imágenes digitalizadas y otros $2.00 máximo tres fotocopias, $0.50 por folio adicional.
 (Así reformado el punto 2.33) anterior en sesión N° 44 del 14 de octubre de 2015)
-(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.33) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: “2.33.- Apartado bancario
+(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.33) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: "2.33.- Apartado bancario
 $35.00 anual membresía
 Nota:
-El costo por reposición de llaves y cambio de llavín será asumido totalmente por el cliente. “)
+El costo por reposición de llaves y cambio de llavín será asumido totalmente por el cliente. ")
 2.34.- Comisión por retiros masivos de sumas en expedientes judiciales en ventanilla
 Se cobrará $ 2.00 por cada retiro en ventanilla
 Nota:
 Se considera un retiro masivo a partir de 10 retiros, el cobro aplica sólo cuando el beneficiario de las sumas sean personas jurídicas.
 (Así reformado el punto 2.34) anterior en sesión N° 44 del 14 de octubre de 2015)
-(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.34) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: “2.34. -Servicio por examinar videos BCR
+(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.34) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: "2.34. -Servicio por examinar videos BCR
 $40.00 por examinar cada video de seguridad.
 (Así reformado el punto anterior en sesión N° 48-2020 del 24 de noviembre del 2020)
 Nota:
-Se cobra esta comisión por cada video revisado en cassette o digital. “)
+Se cobra esta comisión por cada video revisado en cassette o digital. ")
 2.35.- Nota de débito en cuenta corriente, para retiro de efectivo en ventanilla
 Costo de la comisión por cada nota de débito $ 5.00
 Nota: Se exceptúa del pago de esta comisión a aquellas cuentas cuyo saldo promedio semestral sea mayor a $1.000. o su equivalente en colones y cuando el retiro solicitado por el cliente supere el monto permitido a dispensar por nuestros ATM´S.
 (Así reformado el punto 2.35) anterior en sesión N° 44 del 14 de octubre de 2015)
-(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.35) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: “ 2.35.- Servicio de venta de efectivo a instituciones que no participan del MEN
-Por cada 1.000 formulas se cobrara un monto de $25.00 dólares o su equivalente en colones al tipo de cambio de venta del día.”)
+(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.35) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: " 2.35.- Servicio de venta de efectivo a instituciones que no participan del MEN
+Por cada 1.000 formulas se cobrara un monto de $25.00 dólares o su equivalente en colones al tipo de cambio de venta del día.")
 2.36.- Comisión por planilla mediante depósitos en ventanilla
 El cliente podrá solicitar cuatro depósitos sin costo adicional. Las solicitudes de cinco o más depósitos se consideran una planilla, por lo que tendrá un costo de $1.00 por cada depósito realizado.
 (Así reformado el punto anterior en sesión N° 21 del 23 de mayo de 2016)
-(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.36) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: “2.36.- Servicio de recolección o entrega de valores a oficinas BCR por medio de la transportadora BCR o privada.
+(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.36) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: "2.36.- Servicio de recolección o entrega de valores a oficinas BCR por medio de la transportadora BCR o privada.
 1.Para oficinas cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM),
 a)$20.00 remeseras propias.
 2.Para oficinas cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas fuera del Gran Área Metropolitana (GAM),
@@ -185,16 +195,16 @@ b)$23.00 remeseras propias.
 3.Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro 2 y2.1).
 Cuadro 2
 Cuadro 2,1
-”)
-(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se reforma el punto 2.36). No obstante al no coincidir la reforma la misma se transcribe a continuación :” 2.36 Comisión por depósitos en efectivo en dólares americanos
+")
+(Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se reforma el punto 2.36). No obstante al no coincidir la reforma la misma se transcribe a continuación :" 2.36 Comisión por depósitos en efectivo en dólares americanos
 0.65 % sobre todos los depósitos recibidos en efectivo en dólares americanos.
 Nota:
-Aplica para depósitos por un monto mayor o igual a $ 2,000.00 (Dos mil dólares americanos).”)
+Aplica para depósitos por un monto mayor o igual a $ 2,000.00 (Dos mil dólares americanos).")
 (Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se ordena derogar el punto 2.36 denominado Servicio de recolección o entrega de valores a oficinas BCR por medio de la transportadora BCR o privada. No obsnate al no coincidir no se realizó la abrogación y se transacribe)
 2.37. Divisas depositadas por concepto de exportación en cuenta corriente/ ahorros
 Depósito cuenta en dólares 1.5%, mínima $10.00
 Depósito cuenta en colones 1.0%, mínima $10.00
-(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.37) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: “2.37.- Servicio de atención de ATM a oficinas BCR por medio de la transportadora BCR o privadas.
+(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.37) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: "2.37.- Servicio de atención de ATM a oficinas BCR por medio de la transportadora BCR o privadas.
 1.Para oficinas cuyo servicio se brinda con la transportadora BCR desde las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM),
 a)$27.00 remeseras propias.
 2.Para oficinas cuyo servicio se brinda con la transportadora BCR desde las tesorerías regionales ubicadas fuera del Gran Área Metropolitana (GAM),
@@ -205,13 +215,13 @@ El servicio de atención de ATM puede ser por cargas, atención de averías, cus
 Cuadro 3
 Cuadro 4
 Cuadro 5
-”)
+")
 (Así reformado el punto 2.37) anterior en sesión N° 07-16 del 8 de febrero del 2016)
 (Nota de Sinalevi: Mediante sesión N° 48-2020 del 24 de noviembre del 2020 se ordena derogar el punto 2.37. denominado Servicio de atención de ATM a oficinas BCR por medio de la transportadora BCR o privadas. No obstante al no coincidir no se realizó la abrogación y se transcribe)
 2.38.- Comisión por retiro anticipado de un plan de ahorro automático
 Aplica la comisión del 3% sobre la totalidad del saldo ahorrado (principal más intereses), para los planes de ahorro automático cuyo plazo sea superior a 6 meses y se cancelen antes de los 181 días de permanencia.
 (Así reformado el punto 2.38) anterior en sesión 21 del 23 de mayo del 2016)
-(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 2.38) anterior. No obstante, al no coincidir el texto con la reforma la misma se transcribe a continuación: “2.38 Comisión por libros de depósito $2.00 por cada libro de depósito+ IVA(*) ”)
+(Nota de Sinalevi: Mediante sesión N° 24-2020 del 23 de junio del 2020 se reforma el punto 2.38) anterior. No obstante, al no coincidir el texto con la reforma la misma se transcribe a continuación: "2.38 Comisión por libros de depósito $2.00 por cada libro de depósito+ IVA(*) ")
 (*) (Así reformado en sesión N° 48-2020 del 24 de noviembre del 2020)
 2.39. Aplicación de planillas judiciales con fondos trasladados mediante Sinpe (no clientes BCR)
 $0.50 por cada registro

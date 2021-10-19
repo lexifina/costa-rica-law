@@ -33,3 +33,4 @@ Reglamento de tarifas y condiciones para los servicios del Banco de Costa Rica
 | 18 | 2020-11-24 | Reglamento 48 (2020-11-24) |
 | 19 | 2021-04-06 | Reglamento 15 (2021-04-06) |
 | 20 | 2021-06-15 | Reglamento 26 (2021-06-15) |
+| 21 | 2021-10-19 | Reglamento 45 (2021-10-19) |
