@@ -1,1 +1,2 @@
-Artículo 10.—La Auditoría Interna deberá contar con los recursos humanos, materiales, tecnológicos, asesoría técnica, e instalaciones físicas necesarias para el adecuado cumplimiento de sus funciones, para tales propósitos planteará sus necesidades ante su superior jerárquico.
+Artículo 10.-El Auditor Interno y su función de administración.
+El auditor interno actuará como jefe del personal a su cargo y en esa condición ejercerá todas las funciones que le son propias en la administración del personal, tales como, proponer nombramientos, sanciones, promociones, y concesión de licencias, todo de acuerdo con el ordenamiento jurídico que rige en la Municipalidad de Santa Ana.

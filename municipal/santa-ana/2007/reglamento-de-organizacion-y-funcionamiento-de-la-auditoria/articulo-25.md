@@ -1,1 +1,4 @@
-Artículo 25.—La Auditoría deberá evaluar el procesamiento de la información en la Municipalidad de Santa Ana, analizar los aspectos de manejo de registros, accesos, custodia y supervisión del trabajo. En esta labor deberá emplear el manual de evaluación de sistemas de información desarrollado por la Contraloría General y material adicional de considerarlo necesario.
+CAPÍTULO IV:
+Disposiciones Finales
+Artículo 25.-Vigencia.
+Este reglamento rige a partir de su publicación en el Diario Oficial La Gaceta."

@@ -1,1 +1,2 @@
-Artículo 2º—La Auditoría Interna es parte integral vital del sistema de control interno de la Municipalidad de Santa Ana siendo uno de sus componentes orgánicos, y tendrá como función principal la comprobación del cumplimiento, la suficiencia y validez de este sistema. La auditoría interna contribuye a que se alcancen los objetivos institucionales mediante la evaluación de la efectividad y legalidad de la administración del riesgo, del control y de los procesos de dirección.
+Artículo 2°-Alcance.
+El presente reglamento es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna y para el resto de los funcionarios de la Administración Activa en la materia que les resulte aplicable.

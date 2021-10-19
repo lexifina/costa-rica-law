@@ -1,10 +1,2 @@
-Artículo 12.—El auditor interno tendrá las siguientes funciones a la luz del marco normativo vigente:
-A. Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas requeridas por la auditoría interna para cumplir con sus competencias, considerando en cada caso lo relativo a los procesos de esa unidad.
-B. Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la auditoría interna, en especial de la información relativa a los asuntos de carácter confidencial que estipulan los artículos 6 de la LGCI y el 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
-C. Mantener actualizado el reglamento de organización y funcionamiento de la auditoría interna, cumplir y hacer cumplir el reglamento.
-D. El auditor interno debe presentar su plan de trabajo de conformidad con los lineamientos de la Contraloría General de la República y de proponer al jerarca oportuna y debidamente justificados, los requerimientos de recursos para llevar adelante su plan, incluidas las necesidades administrativas de la unidad.
-E. El auditor interno responderá por su gestión ante el jerarca y ante este, presentará al menos, el informe de labores previsto en la Ley General de Control Interno. Al subauditor interno le correspondería apoyar al auditor interno en el descargo de sus funciones y lo sustituiría en sus ausencias temporales y deberá responder ante él por su gestión.
-F. El auditor interno podrá delegar en su personal sus funciones, utilizando criterios de idoneidad y conforme lo establece la Ley General de Administración Pública.
-G. El auditor y el subauditor internos deberán cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, y serán vigilantes de que su personal responda de igual manera.
-H. El auditor interno deberá establecer un programa de aseguramiento
-de la calidad para la Auditoría Interna.
+Artículo 12.-Actualización continúa.
+La auditoría interna deberá establecer y actualizar periódicamente su misión, visión y principales políticas que regirán su accionar. Asimismo, los funcionarios de la Auditoría deberán respetar los lineamientos éticos y morales establecidos por la Municipalidad y por el auditor interno.
