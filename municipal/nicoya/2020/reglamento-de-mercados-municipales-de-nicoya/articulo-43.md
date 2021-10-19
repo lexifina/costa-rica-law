@@ -1,1 +1,2 @@
-Artículo 43.—Queda terminantemente prohibido zarandear granos, sacudir o lavar sacos, así como las prácticas que pongan en peligro la integridad física del usuario o del mismo inquilino del Mercado.
+Artículo 43.- (Derogado mediante sesión ordinaria N° 077 del 19 de octubre del 2021)
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 41 al 43)

@@ -1,3 +1,4 @@
-CAPÍTULO V
-De los inquilinos
-Artículo 11.—Los inquilinos están obligados a sujetarse a las disposiciones del presente Reglamento y al régimen disciplinario que la Administración establezca.
+Artículo 11.-Adjudicación de puestos. Salvo disposición legal especial, los puestos o locales permanentes en los mercados, se adjudicarán siguiendo las disposiciones pertinentes contenidas en la Ley de Contratación Administrativa y su Reglamento. Corresponderá a la Proveeduría Municipal realizar el procedimiento. Para la estimación del precio del remate se tomará como base el monto de seis mensualidades de arrendamiento.
+De todo acto adjudicatario, se levantará un acta notarial, la cual será firmada por la Administración del Mercado, la Proveeduría Municipal y el Alcalde o Alcaldesa. El acta, deberá contener todos los detalles necesarios para la identificación de los favorecidos.
+La fijación de las tarifas que se cobren en los mercados por concepto de alquileres, serán fijadas por la Municipalidad, como precio mínimo de alquiler. Estos precios podrán ser modificados por las ofertas de los interesados, en la adjudicación de los locales.
+(Así adicionado mediante sesión N° 077 del 19 de octubre del 2021)

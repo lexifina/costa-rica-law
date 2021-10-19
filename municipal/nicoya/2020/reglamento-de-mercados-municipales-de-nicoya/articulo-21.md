@@ -1,1 +1,2 @@
-Artículo 21.—Los puestos transitorios serán permitidos en el caso de que el Concejo Municipal acordare su funcionamiento, por razones de conveniencia o emergencia del servicio. El pago de los derechos de piso será diario y se hará mediante cancelación del recibo ante la Administración del Mercado.
+Artículo 21.-Es estrictamente prohibido que inquilino alguno tenga más de dos derechos o locales inscritos a su nombre, y no permitirá en forma alguna la cesión de parte de un tramo, así como el subarriendo o traspaso subrepticio del mismo, los cuales se consideran como causales para la resolución del contrato.
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 19 al 21)

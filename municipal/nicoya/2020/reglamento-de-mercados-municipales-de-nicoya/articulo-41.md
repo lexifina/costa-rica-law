@@ -1,1 +1,2 @@
-Artículo 41.—Tanto los inquilinos como el público deberán acatar las disposiciones de las autoridades municipales, Ministerio de Salud, así como las propias que los inquilinos organizados, dicten sobre higiene y vigilancia. Queda terminantemente prohibido el lanzamiento al suelo de basuras o despojos, así como de aguas sucias o líquido fermentables, de la misma manera no se permite la manipulación de dinero y mercaderías consecutivamente (carnes, quesos, embutidos, etc.) El Administrador será vigilante de que lo aquí reglamentado, sea cumplido.
+Artículo 41.- (Derogado mediante sesión ordinaria N° 077 del 19 de octubre del 2021)
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 39 al 41)

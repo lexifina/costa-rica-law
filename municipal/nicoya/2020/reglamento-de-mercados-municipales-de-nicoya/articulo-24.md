@@ -1,2 +1,2 @@
-Artículo 24.—Queda terminantemente prohibido al inquilino introducir mejoras de cualquier clase en los locales comerciales del Mercado, sin previa solicitud escrita ante el Administrador. Dándosele el trámite que establece el artículo anterior.
-Toda mejora que introduzca se tendrá por incorporada al inmueble respectivo a la terminación del contrato por cualquier causa, sin que la Municipalidad tenga que pagar el costo de la misma.
+Artículo 24.-Ningún inquilino de puestos permanentes o transitorios está autorizado para vender artículos o mercancías diferentes a aquellas para las cuales le fue adjudicado el puesto u otorgado el derecho. La infracción a esta disposición dará lugar a la terminación, caducidad o cancelación del contrato o derecho.
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 22 al 24)

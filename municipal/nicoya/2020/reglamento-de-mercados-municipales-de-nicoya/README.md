@@ -15,3 +15,4 @@ Reglamento de mercados municipales de Nicoya
 | --- | --- | --- |
 | 1 | 2020-05-28 | la propia norma |
 | 2 | 2021-01-12 | Reglamento municipal 37 (2021-01-12) |
+| 3 | 2021-10-19 | Reglamento municipal 77 (2021-10-19) |

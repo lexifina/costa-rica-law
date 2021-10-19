@@ -1,1 +1,2 @@
-Artículo 42.—Las zonas previamente determinadas como basureros, serán utilizadas única y exclusivamente por los inquilinos de Mercado, quienes llevará hasta ahí los desechos en bolsas herméticamente cerradas para evitar contaminación utilizando instrumentos adecuados para ello como carretillos; igualmente se cerciorarán los inquilinos y el Administrador de que las bolsas que se utilizarán para basura, se encuentren en perfecto estado, para evitar así el derrame de líquidos en su acarreo.
+Artículo 42.- (Derogado mediante sesión ordinaria N° 077 del 19 de octubre del 2021)
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 40 al 42)

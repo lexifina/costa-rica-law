@@ -1,1 +1,4 @@
-Artículo 55.—El Concejo Municipal queda facultado para delegar en el Alcalde Municipal o en el funcionario que éste designe los asuntos de su competencia conforme a este Reglamento de conformidad con lo establecido por la PGR C-065-2004 de febrero de 2004.
+CAPÍTULO IX
+Disposiciones finales
+Artículo 55.-Las tarifas que se cobren en los Mercados por concepto de alquiler, serán fijados por la Municipalidad, de conformidad con el proceso que determina al efecto la Ley N° 7027 sobre Arrendamientos de Locales Municipales.
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 53 al 55)

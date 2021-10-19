@@ -1,1 +1,8 @@
-Artículo 15.—Ningún inquilino permanente o transitorio podrá vender o expender artículos o mercaderías diferentes a aquellas para las cuales le fue adjudicado el puesto, para lo cual se deberá levantar la información correspondiente, la cual constará de acta de inspección, toma de fotografías e informe que deberá rendirse al consejo municipal u Alcalde por parte de la administración del Mercado por medio de un expediente debidamente foliado y ordenado. La infracción a esta disposición provocará el rompimiento del contrato en forma inmediata.
+Artículo 15.-De la transmisibilidad por cesión: El derecho de arrendamiento podrá traspasarse bajo la figura de cesión, siempre y cuando:
+a. El cedente hubiese explotado el local de interés por un periodo superior a un año.
+b. El acto de cesión se otorgue mediante escritura pública.
+c. El cedente se encuentre al día con sus obligaciones municipales y cargas sociales.
+d. El cesionario reúna las mismas condiciones y se subrogue en las obligaciones del que cede.
+e. Reúna los mismos requisitos del arrendatario.
+(Así reformado mediante sesión ordinaria N° 037 del 12 de enero del 2021)
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 13 al 15)

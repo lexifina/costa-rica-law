@@ -1,1 +1,2 @@
-Artículo 29.—Queda prohibido el permiso o la autorización para explotar como bodega cualquier espacio de piso, con excepción de los existentes.
+Artículo 29.-No se permitirá mantener basura, desechos, cajas vacías, cosas en mal estado, yerbas secas, cosas inflamables, etc., sobre los techos de los locales o tramos o negocios. El acto de desobediencia reiterada por parte de algún inquilino incurrirá en pérdida del derecho de explotación que le confiere la Municipalidad.
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 27 al 29)

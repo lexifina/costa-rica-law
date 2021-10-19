@@ -1,1 +1,3 @@
-Artículo 56.—Por cualquier ausencia temporal del Administrador del Mercado, las funciones que competen a este funcionario corresponderán al Alcalde Municipal, o quien este designe; igualmente en caso de ausencia definitiva, hasta que sea nombrado el nuevo administrador.
+Artículo 56.-La Municipalidad, no acepta ni aceptará enajenaciones, cesiones, canjes, donaciones o entregas de cualquier título permanente o transitorio que hagan los inquilinos de sus puestos a terceros, sin consentimiento previo y por escrito del Concejo Municipal.
+Tanto el inquilino que verifique la negociación aquí prohibida, como el presunto adquirente, perderán el derecho a ocupar el puesto y automáticamente se dará por terminado el contrato entre ambas partes, quedándole el derecho a la Municipalidad de adjudicarlo a un tercero.
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 54 al 56)

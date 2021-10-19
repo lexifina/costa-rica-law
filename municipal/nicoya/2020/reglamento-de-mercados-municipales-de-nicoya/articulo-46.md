@@ -1,1 +1,2 @@
-Artículo 46.— Salvo los carretillos de dos ruedas de hule o angarillas u bicicletas modalidad trick up para introducir mercancía, queda prohibido la introducción al mercado de cualesquiera otras clases de vehículos tales como carretones, bicicletas, motos, etc., deberá tomarse en cuenta por parte del administrador del mercado la habilitación de una zona destinada para parqueo de bicicletas.
+Artículo 46.- (Derogado mediante sesión ordinaria N° 077 del 19 de octubre del 2021)
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 44 al 46)

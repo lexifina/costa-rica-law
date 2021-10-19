@@ -1,1 +1,2 @@
-Artículo 19.—Es estrictamente prohibido que inquilino alguno tenga más de dos derechos o locales inscritos a su nombre, y no permitirá en forma alguna la cesión de parte de un tramo, así como el subarriendo o traspaso subrepticio del mismo, los cuales se consideran como causales para la resolución del contrato.
+Artículo 19.-Los alquileres deberán ser pagados por mensualidades adelantadas, en la primera quincena de cada mes en la oficina correspondiente. La falta de pago y, por ende, el atraso en el pago de una mensualidad, dará derecho a la Municipalidad para dar por terminado el contrato y recurrir a la vía judicial a hacer valer sus derechos.
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 17 al 19)

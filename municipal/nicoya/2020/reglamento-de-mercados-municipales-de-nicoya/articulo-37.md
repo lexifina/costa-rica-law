@@ -1,3 +1,4 @@
-CAPÍTULO VII
-Del orden del mercado
-Artículo 37.—No se permitirá la división de un tramo con el fin de ser vendido o alquilado, únicamente para explotarlo por parte del mismo propietario.
+Artículo 37.-Todo local del Mercado Municipal debe permanecer abierto y dando servicio a los usuarios.
+Si un local permanece cerrado y/o inexplotado por más de un mes sin autorización del Administrador, se considerará desocupado. Sin embargo, para su cierre definitivo, se le notificará por escrito al arrendatario por parte del Administrador del Mercado, concediéndole un plazo de 5 días hábiles para que ante este justifique los motivos que tuvo para mantenerlo cerrado y/o inexplotado. Si no se diese las explicaciones del caso o fuesen injustificadas el Administrador procederá a informar al superior jerárquico con copia al Concejo, el que dictará lo conducente y declarará el local como definitivamente cerrado y se procede de inmediato a arrendarlo a otro interesado mediante mecanismos que establece la ley y este Reglamento.
+Por otra parte, si hubiese justificación demostrada para tener cerrado y/o inexplotado el local, el Concejo le concederá al arrendatario un plazo que no podrá ser mayor de 30 días calendario para que proceda a abrir y a explotar el local. Si el arrendatario no cumpliera con lo indicado, se declarará el local como definitivamente cerrado y se procederá a un nuevo arrendamiento conforme a las leyes.
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 35 al 37)

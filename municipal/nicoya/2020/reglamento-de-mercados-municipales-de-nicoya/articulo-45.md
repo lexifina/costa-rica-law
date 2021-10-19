@@ -1,1 +1,2 @@
-Artículo 45.—Los inquilinos deberán limpiar sus tramos o locales, por lo menos una vez al día, colocando la basura en recipientes con bolsa, debidamente tapados. El servicio especial de cañería deberá ser pagado por el inquilino que lo solicite y el importe se cargará en el recibo correspondiente. Ningún inquilino o persona particular, a excepción de los empleados municipales, podrá permanecer dentro del Mercado después de la hora de cierre.
+Artículo 45.- (Derogado mediante sesión ordinaria N° 077 del 19 de octubre del 2021)
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 43 al 45)

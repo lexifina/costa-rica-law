@@ -1,7 +1,10 @@
-Artículo 51.—La Municipalidad, se reserva el derecho de cancelar sin lugar a indemnización de ninguna clase, el contrato celebrado con el adjudicatario por cualquiera de las causas establecidas en este Reglamento y que den mérito a ello, especialmente por:
-a) Incumplimiento por parte del inquilino de cualquiera de las obligaciones o prohibiciones que le imponga el contrato o este Reglamento.
-b) Por incapacidad económica del inquilino la que se presume cuando interpongan en su contra un juicio de insolvencia civil, o se le comprueba incumplimiento notorio de sus obligaciones comerciales.
-c) Por venta de artículos alterados o que tengan un peso menor al que corresponde, o se haya impuesto al inquilino por esos motivos alguna sanción por las autoridades judiciales competentes.
-d) Por cesión del derecho al puesto sin el cumplimiento de los requisitos establecidos en el presente Reglamento o por darlo en subarriendo total o parcial o por el hecho de permitir la administración o manejo del negocio a personas distintas a las autorizadas.
-e) Por cierre o clausura del negocio sin autorización previa de la Administración.
-f) Por especulación, acaparamiento en el puesto o negocio, negarse a vender los artículos o mercaderías al público o esconderlas o guardarlas para crear escasez artificial y propiciar con ello el aumento en los precios.
+CAPÍTULO VIII
+De las sanciones
+51.-La Municipalidad podrá dar por terminado el derecho de un inquilino, sin indemnización de ninguna clase al adjudicatario, por incumplimiento a las disposiciones que determina el presente Reglamento, así como las siguientes:
+a) Por embargo judicial del derecho de arrendamiento, cuando el inquilino no obtenga el levantamiento del embargo en un término máximo de un mes.
+b) Por remate de las mercancías o artículos que expenda en el puesto que tenga como consecuencia del cierre del negocio por más de quince días naturales.
+c) Por venta de artículos o mercaderías en mal estado, que pongan en peligro la salud pública.
+d) Por realizar un cambio de línea en contra de lo aquí estipulado acatar cualquier disposición de Ingeniería Municipal, sometiéndose a ellas en un plazo de 60 días a partir de la fecha de notificación emitida por el Alcalde Municipal.
+e) Por la morosidad con este municipio en sus rentas por el lapso de más de un trimestre.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 037 del 12 de enero del 2021)
+(Así modificada su numeración mediante sesión N° 077 del 19 de octubre del 2021 que lo traspasó del artículo 49 al 51)
