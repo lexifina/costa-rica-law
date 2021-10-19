@@ -1,5 +1,7 @@
-Articulo 3°- Información por suministrar asociada a actividades económicas. Para efectos de control tributario y actualización del Registro Único Tributario, las municipalidades y los concejos municipales de distrito deben suministrar los datos actualizados de las patentes que otorgan en sus jurisdicciones, según el siguiente detalle:
-Patentes: Debe suministrarse el detalle de las patentes especificando los siguientes datos por cada patentado, la cual se detalla en el anexo 4 de esta resolución, según los campos aplicables a cada archivo:
+Artículo 3°- Información por suministrar asociada a actividades económicas. Para efectos de control tributario y actualización del Registro Único Tributario, las municipalidades y los concejos municipales de distrito deben suministrar los datos actualizados de las patentes, permisos o licencias de funcionamiento que otorgan en sus jurisdicciones, según el siguiente detalle:
+(Así reformado el párrafo anterior por el artículo 3° de la resolución N° DGT-R-29-2021 del 19 de octubre del 2021)
+Patentes: Debe suministrarse el detalle de las patentes, permisos o licencias de funcionamiento especificando los siguientes datos por cada patentado, la cual se detalla en la estructura en el anexo 3 de esta resolución.
+(Así reformado el párrafo anterior por el artículo 3° de la resolución N° DGT-R-29-2021 del 19 de octubre del 2021)
 1. Número de identificación del solicitante de la patente (cédula de identidad o número de documento de identificación de Migración para Extranjeros con Dimex o Nite o cédual jurídica).
 2. Nombre y apellidos o razón social del solicitante de la patente (Nombre de persona física o persona jurídica).
 3. Nombre y apellidos del representante legal en caso de persona jurídica
