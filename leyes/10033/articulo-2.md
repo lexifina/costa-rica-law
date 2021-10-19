@@ -1,0 +1,2 @@
+ARTÍCULO 2- El bien inmueble donado se destinará a albergar los tanques de almacenamiento y las construcciones necesarias para brindar de la mejor manera el servicio de agua potable a la población de Paso Tempisque.
+La Asociación donataria no podrá variar el uso o destino del bien inmueble que mediante esta ley se autoriza donar; en caso de hacerlo o de que la Asociación se disuelva, el inmueble pasará a ser propiedad de la Municipalidad de Carrillo.
