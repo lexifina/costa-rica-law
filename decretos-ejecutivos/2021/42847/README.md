@@ -18,3 +18,4 @@ Reglamento de especialidades y subespecialidades médicas
 | 3 | 2021-07-14 | Reglamento 0 (2021-07-14) |
 | 4 | 2021-10-13 | Reglamento 0 (2021-10-13) |
 | 5 | 2021-10-13 | Reglamento 0 (2021-10-13) |
+| 6 | 2021-10-20 | Reglamento 0 (2021-10-20) |
