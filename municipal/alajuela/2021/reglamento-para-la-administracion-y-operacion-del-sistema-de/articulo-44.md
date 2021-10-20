@@ -1,0 +1,1 @@
+Artículo 44.-Los puntos de venta autorizados solo podrán vender al precio establecido en la tarifa, en caso de demostrarse ventas irregulares, previo a un debido proceso sumario, el permisionario perderá la autorización de venta.

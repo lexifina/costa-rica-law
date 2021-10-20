@@ -1,0 +1,1 @@
+Artículo 27.-Costo del marchamo. El valor del marchamo se determinará con el valor tarifa que apruebe el Concejo Municipal, acorde a lo establecido por la normativa y previo análisis de la propuesta de la Alcaldía Municipal.

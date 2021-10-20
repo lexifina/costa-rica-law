@@ -1,0 +1,1 @@
+Artículo 15.-Forma de pago. La tarifa se cancelará mediante el uso de aplicaciones para telefonía celular móvil, servicios de banca digital, puntos de pago, boletas oficiales, marchamos o cual otro medio que para el efecto se ponga a disposición de las personas usuarias en puntos de venta autorizados.

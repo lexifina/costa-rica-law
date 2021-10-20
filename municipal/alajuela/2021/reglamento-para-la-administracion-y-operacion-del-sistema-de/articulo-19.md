@@ -1,0 +1,1 @@
+Artículo 19.-Venta de tarjetas y boletas para el uso de zonas de estacionamiento. Tanto las tarjetas como las boletas podrán adquirirse mediante aplicación de telefonía celular, en la Tesorería Municipal o en los puntos de venta autorizados por la Municipalidad de Alajuela.

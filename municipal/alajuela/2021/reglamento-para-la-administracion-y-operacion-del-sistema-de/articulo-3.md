@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito de aplicación. Las disposiciones de este Reglamento serán aplicadas a todos los vehículos que sean estacionados en las vías públicas donde exista demarcación para el estacionamiento, en el Cantón Central de Alajuela.

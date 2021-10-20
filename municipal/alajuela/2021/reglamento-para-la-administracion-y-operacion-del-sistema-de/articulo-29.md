@@ -1,0 +1,1 @@
+Artículo 29.-Sanciones. La infracción a las disposiciones de este Reglamento se sancionará con una multa equivalente a diez veces el valor de una hora de estacionamiento y se impondrá mediante la respectiva boleta de infracción que será confeccionada por los inspectores de estacionamiento autorizado, de acuerdo con la Ley No. 3580.

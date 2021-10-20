@@ -1,0 +1,1 @@
+Artículo 46.-Daños a la infraestructura del sistema de estacionómetros. Cualquier persona que provoque daños a la infraestructura del sistema de estacionómetros u obstaculice el uso de las zonas definidas en este Reglamento, será denunciada penalmente por el delito que corresponda y deberá resarcir los daños causados, así como los costos de la acción judicial correspondiente.

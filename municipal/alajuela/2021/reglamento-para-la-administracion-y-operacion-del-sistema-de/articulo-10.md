@@ -1,0 +1,1 @@
+Artículo 10.-Motocicletas. Las motocicletas que se estacionen en espacios de estacionamiento autorizado y que no sean de uso exclusivo para motocicletas, quedarán sujetas al pago de la tarifa correspondiente a vehículos de ejes y las sanciones que prevé este Reglamento.

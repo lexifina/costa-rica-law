@@ -1,0 +1,1 @@
+Artículo 21.-Descuento por la comercialización de tarjetas de estacionamiento. Los puntos de venta autorizados obtendrán un porcentaje de descuento estimado por la Administración Municipal para la comercialización de las tarjetas o boletas y será deducido, cuando se adquieran las boletas directamente con el ente municipal.

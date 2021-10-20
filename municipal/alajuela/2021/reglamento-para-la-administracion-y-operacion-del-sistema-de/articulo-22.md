@@ -1,0 +1,5 @@
+Artículo 22.-Disposiciones para la venta de tarjetas y boletas. La venta de tarjetas y boletas se regirá por las siguientes disposiciones:
+a) La venta de tarjetas y boletas solo podrá realizarse por persona física o jurídica, previamente autorizada por la Municipalidad o bien por los medios tecnológicos habilitados para ello.
+b) La venta de tarjetas y boletas, por parte de personas físicas o jurídicas no autorizadas por la Municipalidad, dará lugar a su decomiso de las mismas y a la interposición de las acciones judiciales que correspondan.
+c) Se prohíbe la venta de tarjetas y boletas por un precio mayor al consignado en ellas. El incumplimiento de lo anterior dará lugar a su decomiso, y a la pérdida de la autorización para su venta.
+d) Para efectos de compra de tarjetas y boletas, la Municipalidad deberá tener en existencia una cantidad suficiente, así como los medios electrónicos operando, para que estas sean adquiridas en la tesorería, puntos de venta y medios tecnológicos autorizados.
