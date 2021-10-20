@@ -1,0 +1,1 @@
+Artículo 29.-Privacidad de las Sesiones. Las sesiones de la Comisión Plenaria serán siempre privadas, salvo que por unanimidad de los miembros presentes se apruebe la participación de agentes externos con voz pero sin voto.

@@ -1,0 +1,1 @@
+Artículo 33.-Certificación de Acuerdos. Se podrá solicitar en forma escrita y ante la Secretaría de Actas, la certificación de los acuerdos, en esta solicitud se debe indicar específicamente el o los asuntos en que tengan interés y los fines de su solicitud.

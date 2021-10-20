@@ -1,0 +1,21 @@
+N° 43212-MINAE
+El PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE AMBIENTE Y ENERGÍA
+En ejercicio de las facultades que les confieren el artículo 50, los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política; artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de la Administración Pública Nº 6227 del 2 de mayo de 1978; artículo 17, 83, 84, 85 y 88 de la Ley Orgánica del Ambiente Nº7554 del 4 de octubre de 1995; Ley General de Salud, Nº5395 del 30 de octubre de 1973 y sus reformas; Ley de Uso, Manejo y Conservación de Suelos, Nº 7779 del 30 de abril de 1998; Ley de Protección Fitosanitaria Nº 7664 del 8 de abril de 1997; la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos Nº 8220 del 4 de marzo de 2002; Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental, Decreto Ejecutivo Nº 31849-MINAE-S-MOPT-MAG-MEIC, del 24 de mayo de 2004.
+Considerando:
+1º-Que la Ley Orgánica del Ambiente N° 7554 en su artículo 83 crea la Secretaría Técnica Nacional Ambiental, con el fin de armonizar el impacto ambiental con los procesos productivos.
+2º-Que el artículo 83 de Ley supra indicada, otorga carácter de órgano de desconcentración máxima a la Secretaría Técnica Nacional Ambiental, y por ello su deber de reglamentar su propia función.
+3º-Que en su artículo 88 la Ley Orgánica del Ambiente N° 7554, otorga un plazo de 3 meses al Poder Ejecutivo, para que proceda a reglamentar el funcionamiento de la Comisión Plenaria.
+4-Que el artículo 86 de la Ley supra citada, indica que la Secretaría Técnica Nacional Ambiental debe responder a principios de eficiencia y eficacia en el análisis de las evaluaciones de impacto ambiental.
+5º-Que la Junta Administrativa del Archivo Nacional mediante la Directriz General para la Normalización del Tipo Documental Actas de Órganos Colegiados, del 15 de noviembre de 2017, posibilita a los órganos colegiados a utilizar los medios digitales para la consignación de sus actas.
+6º-Que de conformidad con el Informe de la Comisión para la Atención y Transformación de la Secretaría Técnica Nacional Ambiental (SETENA) del 28 junio de 2019, se establece en el acuerdo 12. "Modificar los decretos ejecutivos N° 31849 y N° 36815, de forma tal que las funciones de la Comisión Plenaria se enmarquen únicamente en lo indicado en la Ley Orgánica de Ambiente. Se debe propiciar que la Dirección General de SETENA cumpla con las funciones administrativas, políticas y estratégicas de la institución, eliminando la duplicidad de competencias.
+7º-Que de acuerdo con la Ley Orgánica del Ambiente, artículo 88, "Sus deliberaciones y resoluciones se adoptarán en comisión plenaria, de conformidad con el reglamento de funcionamiento interno que el Poder Ejecutivo emitirá en el plazo de tres meses, contados a partir de la vigencia de esta ley." Por lo que resulta necesario delimitar las funciones de la Comisión Plenaria y establecer un procedimiento para el funcionamiento de la Comisión Plenaria en la toma de decisiones y procesos a seguir para deliberar y resolver en cuanto a la viabilidad ambiental de las actividades, obras o proyectos.
+8º-Que por lo anterior, se requiere actualizar el Reglamento de Funcionamiento de la Comisión Plenaria de la Secretaría Técnica Nacional Ambiental a efecto de cumplir con lo dispuesto en la normativa y tener un mayor orden en el funcionamiento de dicho órgano.
+9º-Que de conformidad con el Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo Nº 37045-MPMEIC y sus reformas, se determinó que la presente propuesta no establece ni modifica trámites, requisitos o procedimientos, que el administrado deba cumplir, situación por la que no se procedió con el trámite de control previo. Por tanto,
+Decretan:
+REGLAMENTO DE FUNCIONAMIENTO DE LA COMISIÓN
+PLENARIA DE LA SECRETARÍA TÉCNICA
+NACIONAL AMBIENTAL
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 1º-Ámbito de Aplicación. El presente Reglamento regula el funcionamiento de la Comisión Plenaria de la Secretaría Técnica Nacional Ambiental (SETENA). Todo aquello no regulado en el presente reglamento, deberá aplicar lo dispuesto para órganos colegiados de la Ley General de la Administración Pública N° 6227.

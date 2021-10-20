@@ -1,0 +1,1 @@
+Artículo 35.-Las Inspecciones. De manera trimestral se calendarizarán las inspecciones que se deben realizar, las cuales serán agendadas por la secretaria de Actas y en coordinación con la Dirección General de la SETENA, según disponibilidad presupuestaria. Estas se deberán realizar en sesiones extraordinarias.

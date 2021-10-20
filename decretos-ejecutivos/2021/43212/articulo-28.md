@@ -1,0 +1,1 @@
+Artículo 28.-Mociones. Las peticiones o propuestas que sometan a conocimiento los miembros de la Comisión Plenaria, o que modifiquen el asunto que se discute, reciben el nombre de mociones. Las mociones de orden han de referirse necesariamente a cuestiones de procedimiento y tienen prioridad en la discusión. Lo que se resuelva en cuanto a éstas últimas, carece de recurso alguno.

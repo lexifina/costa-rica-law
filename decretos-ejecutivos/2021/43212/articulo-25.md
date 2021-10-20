@@ -1,0 +1,2 @@
+Artículo 25.-Quórum de las Sesiones. Para que la Comisión Plenaria pueda sesionar válidamente el quórum será el de mayoría absoluta de la totalidad de sus miembros.
+Si no hubiere quórum, la Comisión Plenaria podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la hora señalada para la primera con la tercera parte de sus miembros y de forma excepcional y con la debida justificación podrá hacerlo media hora después de la hora señalada de acuerdo con la Ley General de la Administración Pública.
