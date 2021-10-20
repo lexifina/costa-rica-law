@@ -1,0 +1,4 @@
+ARTÍCULO 5- Se adiciona un nuevo inciso j) al artículo 14 de la Ley 17, Ley Constitutiva de la Caja Costarricense de Seguro Social (CCSS), de 22 de octubre de 1943. El texto es el siguiente:
+Artículo 14- Son atribuciones de la Junta Directiva:
+[…]
+j) Publicar y mantener actualizado un plan de inversiones de infraestructura hospitalaria, de corto y mediano plazos, y someterlo a consulta pública por quince días hábiles, cada vez que dicho plan sufra modificaciones de fondo, a fin de recibir insumos de la población y los ciudadanos para su mejora, con el fin de verificar la instalación de centros rnédicos en cualquiera de los niveles de atención en las distintas comunidades, zonas, regiones o provincias del país, previo a la realización del informe técnico institucional que determine la viabilidad técnica y financiera de las propuestas ciudadanas.
