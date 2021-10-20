@@ -1,4 +1,4 @@
-Artículo 10.—El Colegio de Médicos y Cirujanos de Costa Rica, reconocen las siguientes maestrías:
+Artículo 10.-El Colegio de Médicos y Cirujanos de Costa Rica, reconocen las siguientes maestrías:
 MAESTRÍAS
 Administración de Servicios de Salud.
 Audiología.
@@ -16,6 +16,7 @@ Psiquiatría Forense (Así adicionada la maestría anterior mediante sesión ord
 Recreación Física y Mental.
 Registros Médicos.
 Salud Ocupacional (Así adicionada la maestría anterior mediante sesión ordinaria N° 2014-05-28 del 28 de mayo del 2014)
+. Salud Pública (Así adicionada la maestría anterior mediante sesión ordinaria 2021-10-20, del 20 de octubre del 2021)
 Terapia Física.
 Terapia Ocupacional.
 Terapia Respiratoria.
