@@ -14,3 +14,4 @@ Reforma Modelo de Regulación Económica del Servicio Público de Transporte Rem
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-07 | la propia norma |
+| 2 | 2021-10-21 | Resolución 207 (2021-10-21) |
