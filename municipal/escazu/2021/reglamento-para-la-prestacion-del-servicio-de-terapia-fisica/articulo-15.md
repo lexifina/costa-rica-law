@@ -1,0 +1,1 @@
+Artículo 15.-La persona debe presentarse puntualmente en el consultorio donde se brinda el servicio. Después de 15 minutos de retraso no se atenderá y se descontará de la cantidad máxima de citas disponibles por lesión.

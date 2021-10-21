@@ -1,0 +1,1 @@
+Artículo 10.-No se permitirá el cambio de citas (entiéndase la hora y el día asignado), a no ser que medie una situación de emergencia. Para dicho caso, la coordinación deberá hacerse de manera exclusiva a través de la Gerencia de Recursos Humanos y Materiales, para lo cual se deberá justificar

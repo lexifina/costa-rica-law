@@ -1,0 +1,1 @@
+Artículo 11.-Las personas que se ausenten a una cita deben enviar un correo a la Oficina de Salud Ocupacional. Personas con ausencias injustificadas, en las cuales no medie una situación de emergencia comprobada, perderán la atención de la lesión por la cual fueron remitidas, y deberán coordinar con el servicio de medicina de empresa su referencia a la CCSS.
