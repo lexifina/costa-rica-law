@@ -1,0 +1,6 @@
+JUNTA DE PROTECCION SOCIAL
+INSTITUCIÓN BENEMÉRITA
+Comunica al público en general que a partir del martes 19 de octubre del 2021 se da por finalizado los juegos Nº 2060 "Independencia Millonaria" y Nº 2062 "El As Afortunado".
+En cuanto a la participación por medio de activaciones en el programa Rueda de la Fortuna para ambos juegos, es hasta el sábado 06 de noviembre del 2021 y el último día de activación, así como, la participación a través de llamada telefónica es el sábado 30 de octubre de 2021.
+En cuanto a la participación a través de raspa directa de los juegos 2060 y 2062 queda abierta para las personas que se encuentran en lista de espera para ir a girar la rueda y para las personas que se presenten a validar su participación dentro del plazo de los 60 días naturales una vez publicada la finalización de los juegos en el Diario Oficial La Gaceta, esto debido a la rotación de los juegos, y que producto de la crisis sanitaria que atraviesa el país por el Covid-19 por un tiempo el programa fue suspendido en atención a la emergencia, y que por consiguiente la lista de participantes por raspa directa se extendió en el tiempo.
+Asimismo, los vendedores pueden efectuar la devolución de los juegos No. 2060 "Independencia Millonaria" y Nº 2062 "El As Afortunado", el martes 19 de octubre, 2021 y el viernes 22 de octubre, 2021.
