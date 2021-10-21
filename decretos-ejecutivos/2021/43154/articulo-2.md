@@ -1,0 +1,3 @@
+Artículo 2.- Ámbito de Aplicación.
+Las regulaciones contenidas en el presente reglamento resultan de aplicación a los prestatarios que brindan el servicio turístico de Hospedaje no Tradicional, así como a las empresas comercializadoras o intermediarias que desarrollan actividades de mediación, promoción, facilitación u organización, por medio de plataformas de intermediación entre los prestatarios del servicio turístico de hospedaje no tradicional y el usuario final.
+Asimismo, dichas disposiciones les resultan de aplicación a las entidades públicas que intervengan en la actividad de hospedaje no tradicional, como lo son el ICT y el Ministerio de Hacienda por intermedio de la DGT, en lo que a cada institución le resulte de su competencia.

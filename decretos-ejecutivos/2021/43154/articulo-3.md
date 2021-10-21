@@ -1,0 +1,7 @@
+CAPÍTULO II
+De los Registros de Prestatarios y de Empresas Comercializadoras o Intermediarias del
+Servicio de Hospedaje no Tradicional ante el Instituto Costarricense De Turismo
+Artículo 3. Creación de los Registros de Prestatarios y de Empresas Comercializadoras o Intermediarias del Servicio de Hospedaje no Tradicional.
+De conformidad con lo establecido en los artículos 10 y 11 de la Ley Marco, se crean el Registro de prestatarios de servicios de hospedaje no tradicionales, y el Registro de empresas comercializadoras o intermediarias del servicio de hospedaje no tradicional. El primero estará constituido por los prestatarios que ofrecen el servicio de hospedaje no tradicional para su disfrute en el territorio nacional y que tienen inscrita dicha actividad ante el ICT. El segundo contendrá a aquellas empresas que en su oferta tengan el servicio de hospedaje no tradicional para su disfrute en el territorio nacional.
+El ICT de conformidad con lo establecido en la Ley Marco, administrará ambos registros y definirá los trámites y requisitos para la inscripción en los mismos, según lo establecido en el anexo único de este reglamento.
+Tanto el Registro de prestatarios como el de empresas comercializadoras o intermediarias deberán ser veraces, digitales y de acceso para consulta pública, resguardando en todo momento la información de carácter confidencial por disposición de convenios internacionales o de la legislación vigente.
