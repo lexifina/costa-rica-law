@@ -1,0 +1,1 @@
+Artículo 13. Se deroga la Reglamentación y Normativa del Perfil Profesional de Terapia Ocupacional del 02 de diciembre de 2013, publicada en el Diario Oficial La Gaceta nro. 21 del jueves 30 de enero de 2014.
