@@ -35,4 +35,6 @@ c) Disposiciones reglamentarias y normas mínimas que rijan en relación con:
 3) Término y sistema para hacer las tareas de inspección, mantenimiento y reparación.
 d) Normas y procedimientos aplicables al tránsito de aeronaves, en rutas aéreas, aeropuertos y aeródromos del país.
 e) Normas y procedimientos aplicables a los servicios auxiliares de la navegación aérea comprendiendo telecomunicaciones, radionavegación, meteorología aeronáutica, señalamiento de rutas y aeródromos, aerovías, así como los trabajos de búsqueda y salvamento.
+XVIII- Otorgar exención al cumplimiento de una disposición contenida en los reglamentos técnicos; lo anterior de forma excepcional, temporal y a solicitud de la parte interesada, la cual deberá fundamentarse en una evaluación de riesgos de seguridad operacional o estudio aeronáutico, avalados por las unidades técnicas competentes, quienes recomendarán la exención de manera que aseguren que con dicha medida se mantendrá un nivel de seguridad aceptable.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 10014 del 27 de setiembre de 2021)
 (NOTA: Original 13: corrida su numeración a la actual de conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991)
