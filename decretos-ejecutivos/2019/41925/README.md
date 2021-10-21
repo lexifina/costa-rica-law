@@ -14,3 +14,4 @@ Reglamento técnico RTCR 497:2018 Materiales Eléctricos, tableros y disyuntores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-02 | la propia norma |
+| 2 | 2021-10-21 | Decreto Ejecutivo 43307 (2021-10-21) |

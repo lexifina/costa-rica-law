@@ -1,4 +1,4 @@
-N° 41925 – MEIC
+N° 41925 - MEIC
 EL PRESIDENTE DE LA REPÚBLICA
 y
 LA MINISTRA DE ECONOMÍA, INDUSTRIA Y COMERCIO
@@ -111,16 +111,83 @@ NOTA 1: La presencia de dicho sello no debe interpretarse que el ECA ha emitido 
 11. CONCORDANCIA.
 El presente reglamento no coincide con ninguna norma internacional.
 ANEXO A
-NORMAS NACIONALES, INTERNACIONALES E INTERNACIONALMENTE RECONOCIDAS QUE SON ACEPTADAS
-PARA LAS FAMILIAS DE PRODUCTOS ELÉCTRICOS INCLUIDOS EN EL PRESENTE REGLAMENTO.
+NORMAS NACIONALES, INTERNACIONALES E INTERNACIONALMENTE
+RECONOCIDAS QUE SON ACEPTADAS PARA LAS FAMILIAS DE
+PRODUCTOS ELÉCTRICOS INCLUIDOS EN EL PRESENTE REGLAMENTO.
 Los productos específicos listados en este Anexo, por su grado de utilización en las instalaciones eléctricas y estar directamente relacionados con el objeto y campo de aplicación de este reglamento, deben demostrar fiel cumplimiento de los requisitos técnicos con al menos una de las normas técnicas indicadas en la siguiente tabla.
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
+FAMILIA DE PRODUC -TOS | NÚMERO DE PARTIDA | PRODUC- TOS ESPECÍFI COS | NORMAS NACIONALES | NORMAS INTERNACIO- NALES | NORMAS INTERNACIONAL MENTE RECONOCIDAS | |
+Disyunto- res termomag- néticos o breakers. | 8536.20.10.0 0.00 | Disyuntores termo magnéticos al vacío, al aire, en aceite o plástico moldeado, de intensidad de corriente inferior o igual a 100 A y tensión inferior o igual a 250 V. | INTE/IEC 60898-1 Accesorios Eléctricos - Interruptores automáticos para instalaciones domésticas y análogas para la protección contra sobre intensidades- Parte 1: interruptores automáticos para funcionamiento en corriente alterna. · INTE/IEC 60947-2 vigente Aparamenta de baja tensión. Parte 2: interruptores | IEC 60898-1. Interruptores automáticos para protección de sobre- corriente en instalaciones residenciales y similares. Norma internacional IEC 60947-2 Aparamenta de baja tensión. Parte 2: interruptores automáticos. | UL 489 - Estándares para disyuntores termomagnéticos de caja moldeada (MCCB). NOM-003-SCFI VIGENTE Productos Eléctricos- Especificaciones de Seguridad. | |
+| | | automáticos. | | | |
+Disyuntores termomagné ticos (breakers) con interruptor de falla a tierra (GFCI), de intensidad de corriente inferior o igual a 100 A y tensión inferior o igual a 250 V. | INTE N1 Interruptores de circuito por falla a tierra- Especificacione s y métodos de prueba. | IEC 61009-1 Interruptores automáticos para actuar por corriente diferencial residual con protección, para uso en instalaciones residenciales y similares (RCCB's). Parte 1: Reglas generales. IEC 61008-1 Interruptores automáticos para actuar por corriente diferencial residual sin protección, para uso en instalaciones residenciales y similares (RCCB's). Parte 1: Reglas generales. | UL 943 Requerimientos para GFCI Clase A. NOM-003-SCFI- VIGENTE. Productos Eléctricos- Especificaciones de Seguridad. | |
+| | Disyuntores termomagné ticos (breakers) con interruptor de falla de arco (AFCI), de intensidad de corriente inferior o igual a 100 A y tensión inferior o igual a 250 V. | | IEC 62606-1 Requisitos generales para dispositivos de detección de fallas de arco. | UL 1699 - Interruptores por Circuito de Falla de Arco. | |
+Interruptor es de uso | 8536.50.10.0 0.00 | Interruptore | INTE/IEC 60669-1 Accesorios eléctricos - | IEC 60669-1 | UL 20 -Interruptores de uso general NOM-003-SCFI- VIGENTE. Productos Eléctricos- | |
+s unipolares giratorios o de cadena para una tensión inferior o igual a 250V. | Interruptores para instalaciones eléctricas fijas domésticas y similares. Parte 1: Requisitos generales. | |
+general. | Interruptores | | Especificaciones de | |
+8536.50.20.0 | Interruptore | |
+para instalaciones eléctricas fijas domésticas y similares. | IEC 60669-2-1. Interruptores para instalaciones eléctricas fijas domésticas y similares. Parte 2- | Seguridad. UL1472 -Reguladores de intensidad (dimmers) | |
+s unipolares | |
+de placa o | |
+parche para | |
+0.00 | una tensión | |
+inferior o | |
+igual a 250 | |
+V. | 1: | |
+8536.50.50.0 | Interruptore | Requerimientos | |
+0.00 | s unipolares | particulares- | |
+accionados | Interruptores | |
+| | a presión para una tensión inferior o igual a 250 V. | | electrónicos (dimmers). | |
+Interrupto- | 8536.10.29.0 0.20 | Interruptore | | IEC 60947-3 | UL 363 -Interruptores |
+s de cuchilla | Aparamenta de | de tipo cuchilla. |
+res | accionados | baja tensión - |
+cortacircui | de forma | Parte 3: |
+-tos de fusible. | manual. | Interruptores, seccionadores, interruptores- |
+seccionadores y |
+combinados |
+fusibles. |
+Tomacorri | 8536.69.00.0 | Tomacorrie | INTE/IEC 60 | IEC 60884-1 | UL 498 - Enchufes, |
+ntes, | 884-1: Enchufes | Enchufes y | conectores, |
+enchufes y | y tomacorrientes | tomacorrientes | tomacorrientes, |
+conectores | para uso | para uso | entradas y salidas. |
+de uso | doméstico y | doméstico y | |
+general | similar. | propósitos | NOM-003-SCFI- |
+similares. Parte 1: | VIGENTE. |
+Requerimientos | Productos Eléctricos- |
+generales. | Especificaciones de |
+0.91 | Seguridad. |
+Tomacorrie ntes con interruptore s de circuito por falla a tierra (GFCI) | INTE N1: Interruptores de circuito por falla a tierra- Especificacione s y métodos de prueba. | | UL498 - Enchufes, conectores, tomacorrientes, entradas y salidas. UL 943 Requerimientos para GFCI Clase A. NOM-003-SCFI- VIGENTE. |
+entes, |
+enchufes y |
+conectores. |
+| | | | | Productos Eléctricos- Especificaciones de Seguridad | |
+Tomaco- rrientes con interruptore s de circuito por falla a arco (AFCI) | | | UL 498 - Enchufes, conectores, tomacorrientes, entradas y salidas. UL 1699 - Interruptores por Circuito de Falla de Arco. | |
+Tomaco- rrientes con protección contra sobre tensión | | | UL 498 - Enchufes, conectores, tomacorrientes, entradas y salidas. UL 1449 - Dispositivos para suprimir sobretensiones. | |
+Centros de | 8537.10.00.0 | Cuadros, | INTE N52-2 | IEC 61439-1/2 | UL 50 - Requisitos | |
+0.90 | paneles, | Parte I. | Montaje de | para gabinetes y cajas. | |
+consolas, | Gabinetes para | aparamenta de | | |
+armarios y | uso en equipo | conexión de | | |
+carga o | demás | eléctrico-1: | potencia y | UL 67 - Requisitos | |
+panel | soportes | Consideraciones | aparamenta de | para tableros | |
+boards | equipados | no ambientales- | control. | eléctricos (centros de | |
+con varios | Especificacione | | carga). | |
+aparatos de | s y métodos de | IEC 60439-1 | |
+las partidas | ensayo. | Montaje de | |
+85.35 u | | aparamenta de | |
+85.36, para | INTE N52-2 | baja tensión. | |
+control o | Gabinetes para | Parte 1: | |
+distribución | uso en equipo | Ensambles de | |
+de | eléctrico - Parte | series y series | |
+electricidad | 2: | derivadas. | |
+| | - para una tensión inferior o igual a 1,000 V (Otros). | Consideraciones ambientales Especificacione s y métodos de ensayo. | | | |
+8538.10.00.0 0.00 | Cuadros, | |
+paneles, | |
+consolas, | |
+armarios y demás soportes de | |
+la partida | |
+85.37, sin | |
+sus | |
+aparatos. | |
+| | | | | | | | | | | | | | | | | | | | | | | | | | | |
+(Así reformado el anexo A) anterior por el artículo 1° del decreto ejecutivo N° 43307 del 21 de octubre de 2021)
 ANEXO B
 (NORMATIVO)
 DECLARACIÓN DE CUMPLIMIENTO
