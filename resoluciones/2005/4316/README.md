@@ -14,3 +14,4 @@ Factores del costeo estándar del modelo de regulación económica del servicio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-25 | la propia norma |
+| 2 | 2021-10-21 | Resolución 207 (2021-10-21) |

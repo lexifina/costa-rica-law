@@ -1,5 +1,6 @@
 AUTORIDAD REGLADORA DE LOS SERVICIOS PÚBLICOS
 RRG-4316-2005
+(Nota de Sinalevi: Mediante la Metodología de fijación de tarifas ordinarias y extraordinarias del servicio de transporte remunerado de personas, modalidad taxi, base de operación regular, aprobada mediante resolución RE-0207-JD-2021 del 21 de octubre de 2021, se acordó derogar parcialmente la presente norma únicamente en lo que se refiere a la fijación de tarifas ordinaria y extraordinaria del servicio de transporte remunerado de personas, modalidad taxi, base de operación regular)
 San José, a las dieciséis horas del once de febrero de dos mil cinco.
 FACTORES DEL COSTEO ESTÁNDAR DEL MODELO DE REGULACIÓN ECONÓMICA DEL SERVICIO PÚBLICO DE TRANSPORTE REMUNERADO DE PERSONAS, MODALIDAD TAXI.
 EXPEDIENTE OT-390-2004
