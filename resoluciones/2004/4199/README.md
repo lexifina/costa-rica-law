@@ -15,3 +15,4 @@ Modelo de Regulación Económica del Servicio Público de Transporte Remunerado 
 | --- | --- | --- |
 | 1 | 2005-02-02 | la propia norma |
 | 2 | 2014-10-30 | Resolución 141 (2014-10-30) |
+| 3 | 2021-10-21 | Resolución 207 (2021-10-21) |
