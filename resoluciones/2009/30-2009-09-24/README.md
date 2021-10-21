@@ -24,3 +24,4 @@ Establece que la base imponible del Impuesto Solidario para el Fortalecimiento d
 | 9 | 2018-10-11 | Resolución 54 (2018-10-11) |
 | 10 | 2019-10-07 | Resolución 59 (2019-10-07) |
 | 11 | 2020-10-09 | Resolución 34 (2020-10-09) |
+| 12 | 2021-10-21 | Resolución 30 (2021-10-21) |
