@@ -1,0 +1,1 @@
+Artículo 33.-En el acta no se pueden hacer borrones, tachones o manchas. Cualquier corrección que se deba hacer de un acta, se realizará al final de la misma, mediante una nota en la que se indique el folio, donde se encuentra el error mencionando en la corrección de este. Esta nota deberá hacerse antes de las firmas.

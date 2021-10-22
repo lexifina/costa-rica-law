@@ -1,0 +1,1 @@
+Artículo 7º-Carácter Democrático. Las personas jóvenes que integren una organización tendrán el derecho de participar de la elección del Comité, designando dos representantes del sector al cual pertenecen, según la naturaleza de su agrupación, en efecto de la aplicación del artículo 24 de la ley 8261.

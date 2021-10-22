@@ -1,0 +1,1 @@
+Artículo 26.-El CCPJ podrá crear las Comisiones de apoyo que considere pertinentes, las cuales funcionarán según disponga la Junta Directiva, por el tiempo y con los deberes y atribuciones que mediante acuerdo interno esta determine.

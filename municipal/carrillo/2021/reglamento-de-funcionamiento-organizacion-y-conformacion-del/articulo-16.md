@@ -1,0 +1,1 @@
+Artículo 16.-De las organizaciones deportivas. El Comité Cantonal de Deportes y Recreación deberá nombrar una persona joven representante de las organizaciones deportivas cantonales integrante de las mismas.

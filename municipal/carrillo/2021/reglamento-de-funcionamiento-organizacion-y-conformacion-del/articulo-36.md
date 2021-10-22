@@ -1,0 +1,6 @@
+CAPÍTULO VII
+De la asignación de recursos
+Artículo 36.-Requisitos. Para acceder a la transferencia por parte del CPJ, cada Comité deberá presentar los Proyectos ante la Dirección Ejecutiva del Consejo de la Persona Joven en el período determinado por la Ley Nº8261 los cuales deben cumplir con los siguientes requisitos:
+a) Estar legalmente constituido el Comité de conformidad con lo estipulado en el Artículo 24 de la Ley Nº8261.
+b) Presentarse en el primer trimestre del año.
+c) Presentar acuerdo del Comité Cantonal, donde se aprueba el proyecto.

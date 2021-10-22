@@ -1,0 +1,1 @@
+Artículo 29.-De conformidad con el Artículo 22 de la Ley General de Control Interno, corresponderá a las unidades de auditoría interna de cada Municipalidad otorgar su razón de apertura del libro de actas físico o digital que utilizará el comité cantonal de la persona joven.

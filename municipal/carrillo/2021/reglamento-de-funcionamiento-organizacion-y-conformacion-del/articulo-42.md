@@ -1,0 +1,1 @@
+Articulo 42.-Del superávit municipal. En caso de superávit en las Municipalidades del dinero transferido a éstas para la ejecución de los proyectos por parte del CCPJ, solo podrán ser utilizados por el CCPJ en sus proyectos.

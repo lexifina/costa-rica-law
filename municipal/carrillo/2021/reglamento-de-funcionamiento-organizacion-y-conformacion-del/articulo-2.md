@@ -1,0 +1,1 @@
+Artículo 2º-El presente Reglamento deberá ser acatado por las autoridades del Concejo Municipal, el personal administrativo municipal y por los sectores que postulen representantes para la conformación del comité cantonal de la persona joven de la localidad, al igual que todas las personas de 12 a 35 años de edad del cantón de Carrillo.

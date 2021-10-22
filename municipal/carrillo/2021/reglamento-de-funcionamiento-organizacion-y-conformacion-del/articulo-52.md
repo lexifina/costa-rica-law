@@ -1,0 +1,1 @@
+Artículo 52.-Es responsabilidad del CCPJ velar por una adecuada gestión de los recursos/ fondos públicos de las transferencias efectuadas por el Consejo de la Persona Joven al Comité Cantonal de la Persona Joven a través de la Municipalidad.

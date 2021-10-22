@@ -1,0 +1,1 @@
+Artículo 44.-Del oficio del ente contralor. El Consejo de la Persona Joven requerirá para hacer efectiva la transferencia a la Municipalidad copia del oficio de la Contraloría donde se aprueban los presupuestos del Gobierno Local con la transferencia del Consejo de la Persona Joven incluida.

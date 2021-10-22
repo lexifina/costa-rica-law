@@ -1,0 +1,1 @@
+Artículo 48.-De la información. La Municipalidad deberá brindar al Consejo de la Persona Joven la información, documentos, aclaraciones y explicaciones que este requiera sobre el manejo de los fondos aportados por el CPJ para los proyectos del Comité Cantonal.

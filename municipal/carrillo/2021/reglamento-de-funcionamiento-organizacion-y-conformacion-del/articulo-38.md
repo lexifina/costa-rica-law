@@ -1,0 +1,1 @@
+Articulo 38.-Para efecto de la presentación de los proyectos del CCPJ ante el Concejo Municipal y el Consejo Nacional de la Persona Joven, se utilizará el Manual para la formulación de Proyectos del Comité de la Persona Joven de la Municipalidad de Carrillo, aprobado por el Concejo Municipal, mediante acuerdo 1de la sesión extraordinaria 07-2018 del 22 de marzo del año en curso.

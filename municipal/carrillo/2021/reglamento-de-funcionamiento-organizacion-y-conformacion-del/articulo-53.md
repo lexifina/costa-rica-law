@@ -1,0 +1,1 @@
+Artículo 53.-Los CCPJ deberán presentar a la Dirección Ejecutiva del CPJ un informe que permita visualizar los alcances, cumplimiento de objetivos, que son producto de su gestión y de los diferentes proyectos y actividades planteadas y ejecutadas.
