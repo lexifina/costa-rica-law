@@ -1,0 +1,2 @@
+CAPÍTULO III
+ARTÍCULO 8- Normas supletorias. Los aspectos no contemplados en la presente ley se regirán por lo dispuesto en la Ley 17, Ley Constitutiva de la Caja Costarricense de Seguro Social, de 22 de octubre de 1943, el Reglamento de Seguro de Salud, el Reglamento para Verificar el Cumplimiento de las Obligaciones Patronales y de Trabajadores Independientes, sí como cualquier otra normativa aplicable.
