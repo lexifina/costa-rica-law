@@ -17,3 +17,4 @@ Reglamento General para Autorizaciones y Permisos Sanitarios de Funcionamiento O
 | 2 | 2018-10-02 | Decreto Ejecutivo 41435 (2018-10-02) |
 | 3 | 2018-11-29 | Decreto Ejecutivo 41521 (2018-11-29) |
 | 4 | 2018-12-04 | Decreto Ejecutivo 41525 (2018-12-04) |
+| 5 | 2021-10-22 | Decreto Ejecutivo 43237 (2021-10-22) |
