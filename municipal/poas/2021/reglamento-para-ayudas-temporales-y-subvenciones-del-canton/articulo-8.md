@@ -1,0 +1,1 @@
+Artículo 8º-En caso de muerte; realizada la solicitud de los familiares, la Municipalidad podrá cubrir los costos por inhumación, exhumación y alquiler de nicho municipal. Estas ayudas procederán cuando se dé comprobación material de la necesidad e imposibilidad de pago, serán casos asociados a situaciones sociales muy especiales.

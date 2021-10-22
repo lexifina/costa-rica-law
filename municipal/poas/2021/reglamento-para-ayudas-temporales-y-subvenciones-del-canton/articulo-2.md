@@ -1,0 +1,1 @@
+Artículo 2º-Para otorgar esta clase de beneficios, la Municipalidad de Poás presupuestará anualmente hasta un 10% de los ingresos por concepto del Impuesto de Patentes, tomando como referencia los porcentajes que indica la Ley No 9017.

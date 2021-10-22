@@ -1,0 +1,1 @@
+Artículo 31.-El Departamento de Gestión Social Municipal, rendirá al Concejo Municipal, de manera trimestral, un informe detallado de todos los casos aprobados o no, de ayudas o subvenciones contempladas en el presente reglamento.
