@@ -1,0 +1,6 @@
+ARTÍCULO 2. ETAPAS DEL PROCESO. El proceso se llevará a cabo en dos fases:
+a. FASE 1. Asamblea de Subsectores Artísticos y Culturales. En esta fase, cada Subsector descrito en el artículo siguiente, realizará una Asamblea de Subsector en la que escogerá a dos personas para integrar la Asamblea Nacional de representantes ante la Comisión Interinstitucional para la fiscalización y acompañamiento de los programas creados para el cumplimiento de la Ley de Emergencia y Salvamento Cultural.
+En esta Fase participan los representantes de los Subsectores Artísticos y Culturales y los representantes de la Gestión Cultura Comunitaria.
+b. FASE 2. Asamblea Nacional del Sector Cultura. En esta fase, los representantes escogidos por las Asambleas de Subsectores se reúnen para escoger a los cuatro representantes titulares y a los cuatro suplentes que conformarán la Comisión Interinstitucional para la fiscalización y acompañamiento de los programas creados para el cumplimiento de la Ley de Emergencia y Salvamento Cultural.
+En esta Fase únicamente participan los representantes del Subsectores Artísticos y Culturales.
+Las asambleas de ambas fases serán virtuales por medio de la plataforma tecnológica que facilitará el Ministerio de Cultura y Juventud y será oportunamente comunicada.

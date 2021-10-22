@@ -1,0 +1,1 @@
+ARTÍCULO 5. PLAZO DE INSCRIPCIÓN. Para registrar su participación en la Asamblea, se habilita un plazo total de 10 días naturales, que correrán desde las 8:00 horas del lunes 25 de octubre y hasta las 16:00 horas del miércoles 3 de noviembre de 2021.

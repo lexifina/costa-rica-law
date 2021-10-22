@@ -1,0 +1,2 @@
+ARTÍCULO 6. REVISIÓN DE REQUISITOS. El Ministerio de Cultura y Juventud, verificará que las personas registradas hayan cumplido con los requisitos establecidos en el artículo 4 de estos lineamientos. Para eso contará con el término máximo de 2 días hábiles.
+En caso necesario y durante ese plazo, otorgará un término de 1 día hábil para subsanes. Quien no cumpla con aportar lo requerido no podrá participar de las Asamblea de Subsectores Artísticos y Culturales.
