@@ -1,4 +1,4 @@
-Artículo 2º—Definiciones y abreviaturas: Para los efectos de este Reglamento se entenderá por:
+Artículo 2º-Definiciones y abreviaturas: Para los efectos de este Reglamento se entenderá por:
 a) Abastecimiento Adecuado: Es la capacidad de las empresas de proveer manufacturas en términos de lugar, tiempo, cantidad, garantía y soporte técnico de acuerdo con las especificaciones definidas en el cartel.
 b) Administración: De conformidad con la Ley de Contratación Administrativa, está conformada por los órganos del Poder Ejecutivo, el Poder Judicial, el Poder Legislativo, el Tribunal Supremo de Elecciones, la Contraloría General de la República, la Defensoría de los Habitantes, el sector descentralizado territorial e institucional, los entes públicos no estatales y las empresas públicas.
 c) Calidad: Grado en el que el conjunto de características inherentes de un producto cumplen con los requisitos establecidos para el mismo. Estos requisitos deben estar de conformidad con los reglamentos técnicos nacionales vigentes, o en su ausencia con las correspondientes normas técnicas vigentes.
@@ -14,3 +14,9 @@ l) Preferencia: Inclinación al decidir la compra entre dos o más mercancías c
 m) Producto Manufacturado: Es la mercancía elaborada por la industria manufacturera a partir de un proceso productivo.
 n) Precio Ofertado: Es el precio cotizado en la oferta.
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39296 del 27 de julio del 2015)
+o) Productos manufacturados en el territorio nacional: Aquellos bienes cuyo proceso productivo sean realizados en el país y que han sido objeto de un proceso de transformación, de tal forma que genere un valor agregado y se obtenga un nuevo producto con una nueva individualidad en el producto final.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43272 del 22 de octubre de 2021)
+p) Empresa fabricante. Es la persona física o jurídica que elabora los productos manufacturados en el territorio nacional.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43272 del 22 de octubre de 2021)
+q) Oferente: Es la persona física o jurídica que participa en un proceso de contratación administrativa ofreciendo un producto manufacturado en el territorio nacional. Este puede ser el fabricante o un tercero que actúa como intermediario.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43272 del 22 de octubre de 2021)
