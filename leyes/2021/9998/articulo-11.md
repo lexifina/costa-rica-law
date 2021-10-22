@@ -1,0 +1,9 @@
+ARTÍCULO 11- Articulaciones para la Red Nacional de Incubación y Aceleración de Empresas. Con el fin de coordinar y realizar las correspondientes articulaciones para la Red Nacional de Incubación y Aceleración, el Consejo Asesor Mixto de la Pequeña y Mediana Empresa, establecida en el artículo 4 de la Ley 8262, Fortalecimiento de las Pequeñas y Medianas Empresas, de 2 de mayo de 2002, el artículo 44 de la Ley 8634, Sistema de Banca para el Desarrollo, de 23 de abril de 2008 y según la perspectiva de desarrollo de las políticas públicas en materia de emprendimientos, incubación y aceleración de las micro y pequeñas empresas, para ello deberá:
+a) Vincular y promover mecanismos de coordinación entre esta Red y la Red de Apoyo a la Pyme y Emprendedores y aquellas instituciones públicas u organizaciones privadas que desarrollen acciones, programas y proyectos tendientes a mejorar los niveles de competitividad y productividad.
+b) Fortalecer políticas públicas orientadas al fomento de la cultura para el emprendimiento.
+c) Desarrollar acciones conjuntas con diversas organizaciones e instituciones para potenciar esfuerzos, con la finalidad de impulsar emprendimientos empresariales.
+d) Proponer instrumentos para evaluar la calidad de los programas y las acciones orientados al fomento de los emprendimientos.
+e) Monitorear y evaluar el desarrollo de la Política Nacional de Emprendimiento.
+f) Analizar, estudiar y proponer, a las instancias correspondientes, mecanismos e instrumentos de apoyo al desarrollo de emprendedores.
+g) Proponer al Ministerio de Economía, Industria y Comercio (MEIC) indicadores que permitan generar insumos para evaluar el impacto de las políticas públicas en materia de emprendimiento.
+h) Coordinar, con las universidades públicas y privadas, la promoción e implementación de programas de enseñanza sobre los procesos y de actitudes de emprendimiento.
