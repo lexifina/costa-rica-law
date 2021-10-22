@@ -1,0 +1,1 @@
+Artículo 17º-Sujetos obligados a reportar. Los establecimientos que deban reportar emisiones, residuos y/o transferencias de contaminantes a otros órganos de la Administración Pública, se encuentran obligados a ingresar por medio del Sistema de Ventanilla Única dicha información.

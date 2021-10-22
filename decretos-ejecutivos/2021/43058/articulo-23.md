@@ -1,0 +1,1 @@
+Artículo 23º-Acceso electrónico directo. El RETC mantendrá acceso público al informe consolidado anual de los registros de emisiones, residuos y/o transferencias de contaminantes de años anteriores, el que será electrónico, directo y gratuito disponible en el portal electrónico del RETC.

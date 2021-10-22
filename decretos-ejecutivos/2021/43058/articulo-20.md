@@ -1,0 +1,1 @@
+Artículo 20º-Fallas del sistema. No se considerarán faltas u omisiones del establecimiento, aquellas actuaciones que por fallas de la conectividad del sistema no puedan ejecutarse oportunamente, debiendo el administrador de cada sistema adoptar las medidas necesarias para solucionar prontamente dichas fallas, sin provocar menoscabo alguno a los establecimientos.

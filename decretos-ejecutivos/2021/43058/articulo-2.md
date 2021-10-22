@@ -1,0 +1,6 @@
+Artículo 2º- Objetivos específicos. El presente reglamento tiene como objetivos específicos:
+a) Establecer una base de datos nacional, con información que permita identificar y evaluar los posibles riesgos a la salud humana y al ambiente, mediante la identificación de fuentes y cantidades de emisiones contaminantes y transferencias al ambiente: aire, agua y suelo.
+b) Fortalecer el acceso y la participación del público en la toma de decisiones ambientales.
+c) Constituir una herramienta de apoyo para la adopción de políticas públicas, regulación y cualquier otro instrumento encaminado a reducir la contaminación, y avanzar hacia un desarrollo sustentable, así como evaluar la efectividad de las políticas ambientales existentes.
+d) Generar una gestión ambiental integral de las emisiones, residuos y transferencias de contaminantes por parte de la industria y gobiernos locales; a través de estadísticas e indicadores ambientales.
+e) Generar el Sistema de Ventanilla Única como formulario único de acceso y reporte con el fin de concentrar la información objeto de reporte en una base de datos que permita la homologación y facilite su entrega por parte de los sujetos obligados a reportar, de conformidad con lo dispuesto en el presente reglamento.

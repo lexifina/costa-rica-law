@@ -1,0 +1,1 @@
+Transitorio II. En un plazo de dos meses contados a partir de la publicación de la presente normativa en el diario oficial La Gaceta, los jerarcas de las instituciones que conforman el CTNC, deberán nombrar su representante titular y suplente de acuerdo con lo señalado en los artículos 7 y 9 del presente reglamento.

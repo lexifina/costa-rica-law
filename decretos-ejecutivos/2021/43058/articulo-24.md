@@ -1,0 +1,7 @@
+CAPÍTULO VI
+DISPOSICIONES FINALES
+Artículo 24º- Modifíquese el artículo 20 del Decreto Ejecutivo N° 41525-S del 4 de diciembre del 2018 "Reglamento para el Trámite Digital de Registros y Autorizaciones del Ministerio de Salud en la Gestión Integral de Residuos en la Plataforma SINIGIR", publicado en el Alcance N° 15 a La Gaceta N° 15 del 22 de enero del 2019, para que en lo sucesivo se lea como sigue:
+"Artículo 20.-Sobre la confidencialidad. El administrador de la plataforma SINIGIR deberá adoptar las medidas de control interno pertinentes, para salvaguardar la confidencialidad de la información que así sea calificada e implementar los mecanismos de seguridad establecidos por dicha plataforma.
+Los funcionarios del Ministerio de Salud que tengan autorización para registrar, autorizar, ingresar datos o enviar y recibir información, en la plataforma SINIGIR quedan obligados a guardar confidencialidad sobre los mecanismos de seguridad que aplica la plataforma, así como no revelar información calificada como confidencial.
+La información de datos generales en el manejo integral de residuos de la plataforma SINIGIR, será accesible a la población en general, respetando la confidencialidad y restringiendo el acceso de los datos de los usuarios registrados en el sistema.
+La información recibida por el SINIGIR deberá ser compartida con la plataforma del RETC (Registro de Emisiones y Transferencia de Contaminantes), administrada por el Ministerio de Salud."

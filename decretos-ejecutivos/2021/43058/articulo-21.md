@@ -1,0 +1,1 @@
+Artículo 21º- Garantizar el funcionamiento del Sistema de Ventanilla Única RETC. El administrador del RETC deberá de garantizar que el sistema de ventanilla única esté disponible veinticuatro horas, los siete días a la semana para el acceso por parte del administrado y la presentación de los reportes.
