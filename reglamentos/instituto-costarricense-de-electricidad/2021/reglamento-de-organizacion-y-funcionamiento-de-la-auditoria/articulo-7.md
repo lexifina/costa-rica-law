@@ -1,0 +1,4 @@
+Artículo 7º-Prohibiciones. El Auditor Interno y los demás funcionarios de la Auditoría Interna deberán ajustarse a las prohibiciones prescritas en el artículo 34 de la Ley 8292 (Ley General de Control Interno). Además de lo consignado anteriormente, se debe considerar las siguientes prohibiciones al planificar y desarrollar las actividades de trabajo.
+Ningún funcionario de la Auditoría Interna podrá evaluar operaciones específicas de las cuales hayan sido responsables en el último año.
+Ningún funcionario de la Auditoría Interna podrá ejecutar sus competencias de asesoría y advertencia, en relación con operaciones de las que hayan sido responsables en el último año.
+Todo funcionario de la Auditoría Interna debe abstenerse de participar en la prestación de los servicios de Auditoría, cuando ello conlleve la exposición a conflictos de interés.

@@ -1,0 +1,8 @@
+Artículo 16.-Dirección superior de la Auditoría Interna. Al Auditor Interno le corresponderá la dirección superior y administración de la Auditoría Interna, debiendo realizar entre otras, las siguientes tareas.
+Definir, establecer y mantener debidamente actualizadas las políticas, procedimientos y prácticas requeridas por la Auditoría Interna para cumplir con sus competencias, considerando en cada caso lo relativo a los procesos de la Unidad de Auditoría.
+Velar por la aplicación de la Normativa Interna y de la Normativa emitida por Contraloría General de la República, en torno al funcionamiento de las Auditorías Internas.
+Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la Auditoría Interna, en especial de la información relativa a los asuntos de carácter confidencial que estipulan los artículos 6 de la Ley General de Control Interno y el 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento.
+Desarrollar, aplicar, mantener y perfeccionar un programa de aseguramiento de la calidad que cubra todos los aspectos de la actividad de Auditoría Interna, conforme lo establecen las "Normas para el Ejercicio de la Auditoría Interna en el Sector Publico" emitido por la Contraloría General de la República.
+Ejercer un control continuo de la ejecución del Plan Anual de Trabajo.
+Establecer y mantener actualizado un Código de Ética de la Auditoría Interna.
+Mantener actualizado el Reglamento de Organización y Funcionamiento de la Auditoría Interna, así como cumplir y hacer cumplir el mismo.

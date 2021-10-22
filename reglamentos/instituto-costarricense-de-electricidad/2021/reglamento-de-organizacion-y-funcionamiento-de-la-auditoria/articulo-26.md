@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Relación y coordinación
+Artículo 26.-Relaciones con los auditados. Es responsabilidad del Auditor Interno establecer y regular a lo interno de la Auditoría Interna las pautas principales sobre las relaciones y coordinaciones de los funcionarios de esta Unidad de Auditoría con los auditados. Dado lo anterior y buscando el éxito en el desempeño de la Auditoría Interna y de un mayor conocimiento de la función que ésta realiza, los funcionarios del Departamento, deberán mantener relaciones cordiales y de negociación con el Jerarca, los diferentes órganos de la Administración Activa, la Contraloría General de la República y las demás Instituciones o Entidades que corresponda.

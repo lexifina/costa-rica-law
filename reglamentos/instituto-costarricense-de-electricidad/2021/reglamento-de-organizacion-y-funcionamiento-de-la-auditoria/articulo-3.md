@@ -1,0 +1,1 @@
+Artículo 3º-Planificación estratégica y operativa. Liderado por el Auditor Interno, en conjunto con el personal de Auditoría Interna, ejecutarán una planificación estratégica y operativa de las actividades de Auditoría Interna.

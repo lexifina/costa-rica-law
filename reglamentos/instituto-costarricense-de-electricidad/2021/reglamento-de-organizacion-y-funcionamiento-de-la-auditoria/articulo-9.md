@@ -1,0 +1,1 @@
+Artículo 9º-Restricción de coadministración. El Auditor Interno y el personal de la Auditoría Interna no podrán ser empleados ni ejercer funciones en otra Unidad Administrativa en la Institución y tampoco ser miembros del Junta Directiva, comisiones de trabajo o similares.
