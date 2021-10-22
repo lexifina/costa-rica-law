@@ -1,0 +1,1 @@
+Artículo 14.-Transitorio. Los postes existentes que no dispongan de la debida autorización municipal deberán regularizar su situación sujetándose al presente reglamento. Para tales efectos se otorga un plazo de seis (6) meses contados a partir de la vigencia del presente reglamento.
