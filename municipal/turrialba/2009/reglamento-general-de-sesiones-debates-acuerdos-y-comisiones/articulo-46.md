@@ -1,1 +1,0 @@
-Artículo 46.—Toda Comisión Municipal deberá escoger de entre sus miembros y por mayoría absoluta un Presidente (a) y si lo creen necesario un Secretario (a) de Comisión. La respectiva Sesión Inicial de Instalación deberá celebrarse como máximo diez días hábiles posteriores al nombramiento de la respectiva Comisión.

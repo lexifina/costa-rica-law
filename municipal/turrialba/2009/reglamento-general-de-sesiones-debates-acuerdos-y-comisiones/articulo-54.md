@@ -1,1 +1,0 @@
-Artículo 54.—Cuando un miembro permanente de una Comisión Municipal renunciaré a su puesto, la Presidencia Municipal procederá a designar al nuevo miembro respetando en todo sentido el equilibrio necesario de representación de las diferentes fracciones políticas existentes en el Concejo Municipal.

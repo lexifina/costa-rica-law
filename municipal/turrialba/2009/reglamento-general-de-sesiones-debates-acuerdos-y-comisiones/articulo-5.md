@@ -1,1 +1,0 @@
-Artículo 5º—Podrán celebrarse sesiones extraordinarias en otros lugares del territorio del Cantón, cuando la índole de los asuntos a tratar así lo requieran y siempre que la convocatoria así lo especifique.

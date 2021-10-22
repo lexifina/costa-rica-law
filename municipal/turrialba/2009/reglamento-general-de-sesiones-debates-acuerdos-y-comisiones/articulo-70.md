@@ -1,1 +1,0 @@
-Artículo 70.—Tanto el Pabellón Nacional como la bandera Cantonal deben estar en un lugar visible del Salón de Sesiones del Concejo Municipal. Respetando siempre que el Pabellón Nacional esté al lado derecho de la Presidencia Municipal. En el medio del Pabellón Nacional y la bandera Cantonal se deberá colocar el Estandarte (escudo) del Cantón de Turrialba.

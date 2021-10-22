@@ -1,1 +1,0 @@
-Artículo 71.—La interpretación de este Reglamento queda bajo autoridad del Concejo Municipal. Las normas no establecidas en el presente Reglamento serán tomadas supletoriamente del Código Municipal, Ley General de la Administración Pública, etc., según sea el caso.

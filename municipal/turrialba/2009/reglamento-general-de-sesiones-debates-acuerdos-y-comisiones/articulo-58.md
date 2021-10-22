@@ -1,1 +1,0 @@
-Artículo 58.—Cuando el objetivo de la audiencia fuere un asunto de competencia del Alcalde (sa), la Presidencia Municipal ordenará a la Secretaría Municipal remitir el memorial presentado a dicho funcionario (a) municipal, para que este le de el trámite correspondiente. La Secretaría Municipal lo hará del conocimiento de los interesados.

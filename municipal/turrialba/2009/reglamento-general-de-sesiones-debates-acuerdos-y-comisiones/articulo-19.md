@@ -1,1 +1,0 @@
-Artículo 19.—Los dictámenes de Comisión serán incluidos en el Orden del Día, siguiendo el orden en que fueron presentados a la Secretaría Municipal, para ese efecto, la Secretaría Municipal al recibir los dictámenes, consignará al pie de ellos, la hora y fecha de presentación.
