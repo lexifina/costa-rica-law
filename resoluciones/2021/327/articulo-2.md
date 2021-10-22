@@ -1,0 +1,2 @@
+Artículo 2. Ámbito de aplicación.
+Es de aplicación por la Dirección de Agua del MINAE, para calcular las necesidades de agua y resolver solicitudes de concesión o inscripciones de aprovechamientos de agua; para realizar proyecciones de demanda; valoraciones del daño ocasionado al recurso hídrico o investigaciones; para en las distintas actividades de las personas físicas o jurídicas, públicas o privadas.
