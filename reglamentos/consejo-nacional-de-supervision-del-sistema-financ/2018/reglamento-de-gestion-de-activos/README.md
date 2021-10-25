@@ -18,3 +18,4 @@ Reglamento de gestión de activos
 | 3 | 2019-11-25 | Reglamento 1546 (2019-11-25) |
 | 4 | 2020-12-03 | Reglamento 1626 (2020-12-03) |
 | 5 | 2020-12-21 | Reglamento 1634 (2020-12-21) |
+| 6 | 2021-10-25 | Reglamento 1696 (2021-10-25) |
