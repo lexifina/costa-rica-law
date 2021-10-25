@@ -14,3 +14,4 @@ Reforma Integral Reglamento para la prevención y sanción del Acoso u Hostigami
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-19 | la propia norma |
+| 2 | 2021-10-25 | Reglamento 12558 (2021-10-25) |
