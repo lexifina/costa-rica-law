@@ -1,0 +1,1 @@
+Artículo 6°-Cobro por estacionamiento. En las zonas Céntricas y No Céntricas, se cobrará por el estacionamiento en todas aquellas áreas que por sus medidas y condiciones sean aptas para el estacionamiento de vehículos, conforme al numeral 2 de la Ley de Estacionómetros N° 3580.

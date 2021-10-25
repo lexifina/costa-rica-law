@@ -1,0 +1,1 @@
+Artículo 47.-Estacionamiento en más de un espacio. Los vehículos que utilicen más de un espacio de estacionamiento, deberán colocar una boleta por cada espacio. De lo contrario serán sancionados por los espacios que ocupen de más, cancelando la multa respectiva y quedarán sujetos a las sanciones que prevén los artículos 3 y 4 de la Ley N° 3580.

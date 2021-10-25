@@ -1,0 +1,1 @@
+Artículo 25.-Posibilidad de prorrogar el tiempo de uso. Los usuarios podrán ocupar los lugares de estacionamiento por el tiempo que hayan pagado y que marque la boleta. Asimismo, podrán antes que expire el tiempo marcado, prorrogar éste mediante el cambio de nuevas boletas, siempre y cuando el periodo coincida con el inicio del tiempo que indique la otra boleta.

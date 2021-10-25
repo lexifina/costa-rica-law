@@ -1,0 +1,1 @@
+Artículo 19.-Ejercicio de acciones judiciales. Sin perjuicio de lo dispuesto en el artículo anterior, queda la Municipalidad facultada para interponer las acciones judiciales que eventualmente correspondan.

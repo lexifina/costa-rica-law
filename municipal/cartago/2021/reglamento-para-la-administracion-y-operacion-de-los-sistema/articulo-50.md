@@ -1,0 +1,1 @@
+Artículo 50.-Deberes de los inspectores. Los inspectores que detecten cualquier conducta que pueda dar lugar a un delito, deberán ponerla en conocimiento de su superior y coordinar con el Departamento Legal las acciones penales que correspondan.

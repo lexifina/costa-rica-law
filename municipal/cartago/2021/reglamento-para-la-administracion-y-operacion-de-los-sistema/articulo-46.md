@@ -1,0 +1,1 @@
+Artículo 46.-Requisito para retirar el derecho de circulación cada año. La cancelación total de estas multas será requisito indispensable para retirar el derecho de circulación cada año a que se acompañará los correspondientes comprobantes de cancelación de la infracción.

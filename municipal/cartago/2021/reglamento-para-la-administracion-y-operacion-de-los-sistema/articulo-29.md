@@ -1,0 +1,1 @@
+Artículo 29.-Otras formas de obtención. En el caso de los usuarios que no cuenten con teléfonos inteligentes o similares, su obtención podrá hacerse en los puntos de venta autorizados o en la Tesorería Municipal.

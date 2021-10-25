@@ -1,0 +1,3 @@
+CAPÍTULO V
+De los recursos contra las sanciones impuestas
+Artículo 52.-De la posibilidad de presentar recursos ordinarios. Se podrá plantear ante el Coordinador del Departamento de Estacionómetros y Terminales (Parquímetros), recurso de revocatoria contra los partes que realicen los inspectores municipales, en relación con el uso de boletas de estacionamiento, sean estas físicas o digitales, según lo dispuesto en el artículo 171 del Código Municipal y en este reglamento. En caso de que el recurso sea declarado sin lugar, el interesado podrá presentar recurso de apelación ante el Alcalde Municipal.

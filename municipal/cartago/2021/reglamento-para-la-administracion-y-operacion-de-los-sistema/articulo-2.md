@@ -1,0 +1,1 @@
+Artículo 2°-Determinación de las zonas de estacionamiento. La Municipalidad, por medio del Departamento de Estacionómetros, determinará las zonas, calles, avenidas, plazas, parques y demás lugares públicos que serán destinados al aparcamiento. La anterior designación se hará en coordinación con el Ministerio de Obras Públicas y Transportes.

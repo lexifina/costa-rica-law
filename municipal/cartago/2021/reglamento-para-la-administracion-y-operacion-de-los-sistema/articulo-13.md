@@ -1,0 +1,1 @@
+Artículo 13.-Venta de Las tarjetas para el uso de las zonas de estacionamiento. Las tarjetas para el uso de las zonas de estacionamiento, se venderán en la Tesorería Municipal y en los puntos de venta autorizados por la Municipalidad.

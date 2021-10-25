@@ -1,0 +1,1 @@
+Artículo 21.-Forma de utilización. Las tarjetas de estacionamiento físicas deberán colocarse visiblemente en la parte inferior interna del parabrisas delantero, del lado del conductor, con los datos de estacionamiento expuestos hacia el exterior del vehículo.

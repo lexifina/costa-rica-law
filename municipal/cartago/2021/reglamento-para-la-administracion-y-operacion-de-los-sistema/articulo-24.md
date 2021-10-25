@@ -1,0 +1,1 @@
+Artículo 24.-Utilización inmediata al momento de estacionar. Una vez estacionado el vehículo en las zonas de estacionamiento permitidas, las tarjetas deberán emplearse de inmediato. Agotado el tiempo de estacionamiento que autoriza la respectiva tarjeta, ésta no podrá ser usada nuevamente.

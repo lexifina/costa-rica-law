@@ -1,0 +1,1 @@
+Artículo 15.-Descuento por la comercialización de tarjetas de estacionamiento. Los puntos de venta autorizados obtendrán un diez por ciento de descuento por la comercialización de las tarjetas, el cual será deducido, cuando se adquieran las boletas directamente con el ente municipal, siempre y cuando, la compra sea superior a las cien tarjetas de una hora o su equivalente.

@@ -1,0 +1,1 @@
+Artículo 31.-Generación de alerta previa al vencimiento de la tarjeta. Los usuarios que utilicen la aplicación, recibirán una alerta minutos antes del vencimiento del tiempo, con el objeto de que puedan renovar la tarjeta automáticamente y así evitar la multa dispuesta en el numeral 3 de la Ley N° 3580, o retirar el vehículo al vencerse el plazo.

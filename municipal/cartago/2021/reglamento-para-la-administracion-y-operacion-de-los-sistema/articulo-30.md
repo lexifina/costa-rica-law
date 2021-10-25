@@ -1,0 +1,1 @@
+Artículo 30.-Formas de pago. Para su pago, podrán emplear diversos medios, tales como: tarjeta de débito o crédito, monedero electrónico o por mensajería SMS. En el caso de no contar con estos medios, el interesado podrá adquirir el tiempo de aparcamiento a través de los medios descritos en el artículo anterior.

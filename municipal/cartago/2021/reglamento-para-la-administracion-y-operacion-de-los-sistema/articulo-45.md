@@ -1,0 +1,1 @@
+Artículo 45.-Forma de imponer el gravamen. El gravamen a que se refiere el artículo anterior, se anotará mediante oficio que enviará la Tesorería Municipal al Registro Público de la Propiedad de Vehículos.

@@ -1,0 +1,1 @@
+Artículo 43.-Recargo. Si no se hiciere la cancelación dentro del plazo de 48 horas a que se refiere la Ley N°3580, la multa será impuesta por la tesorería municipal y tendrá un recargo de 2% mensual que no podrá exceder, en ningún caso el 24% del monto adeudado.

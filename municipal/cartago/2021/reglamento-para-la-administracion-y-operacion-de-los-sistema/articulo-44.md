@@ -1,0 +1,1 @@
+Artículo 44.-Gravamen registral. La multa o la acumulación de multas no canceladas, durante un período de un año o más, constituirá gravamen sobre el vehículo con el cual se cometió la infracción, el que responderá además por los gastos que demande la eventual acción judicial.
