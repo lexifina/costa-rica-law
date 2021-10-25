@@ -27,6 +27,11 @@ articulo-25-bis.md
 articulo-26.md
 articulo-27.md
 articulo-28.md
+articulo-28-bis.md
+articulo-28-ter.md
+articulo-28-quater.md
+articulo-28-quinquies.md
+articulo-28-sexies.md
 articulo-29.md
 articulo-30.md
 articulo-31.md

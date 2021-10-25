@@ -1,0 +1,8 @@
+Artículo 28 Quinquies. Realización de las asambleas
+Las asambleas podrán celebrarse de manera presencial, virtual, o mediante la combinación de ambas.
+En caso de que se realicen de manera virtual o mixtas, se deben utilizar medios tecnológicos que permitan la identificación de los participantes, así como cumplir los principios de simultaneidad, integralidad e interactividad de la comunicación durante la respectiva asamblea.
+El medio tecnológico utilizado y la forma de acceso deben ser seleccionados por la junta directiva de la sociedad administradora y deben hacerse constar claramente en la convocatoria si esto no forma parte previamente del prospecto. Asimismo, debe garantizarse, mediante dichos medios, la conservación y fidelidad de lo deliberado y acordado, información a la cual tendrán acceso los inversionistas y la Superintendencia en lo que corresponda.
+De forma adicional a lo aquí establecido la Superintendencia podrá emitir lineamientos orientadores en la celebración de asambleas en formato virtual o mixta".
+Tanto la convocatoria a la asamblea de inversionistas como los acuerdos que se hayan tomado en dicha asamblea deben ser informados mediante un Comunicado de Hechos Relevantes.
+Las actas de la asamblea deberán asentarse en un libro que puede ser físico o electrónico, en el plazo de 15 días hábiles posteriores a la realización de la asamblea respectiva. Si por alguna situación especial o de fuerza mayor y con una debida justificación por parte de la sociedad administradora, la Superintendencia puede autorizar un plazo mayor.
+(Así adicionado mediante sesión N° 1695-2021 del 25 de octubre de 2021)

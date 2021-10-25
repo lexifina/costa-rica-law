@@ -1,5 +1,6 @@
-Artículo 117.—Requisitos de los ejecutivos de venta. La oferta de fondos de inversión nacionales o extranjeros, en el territorio costarricense, debe ser realizada por personas que cuenten con la credencial de ejecutivo de fondos de inversión o agentes de bolsa autorizados.
-Los ejecutivos actúan en nombre, por cuenta y responsabilidad de la sociedad administradora o entidad comercializadora. Al ejecutivo le compete, al menos, la promoción y divulgación de los fondos de inversión, la asesoría al inversionista, y la identificación del perfil del cliente.
+Artículo 117.-Requisitos de los ejecutivos de venta. La oferta de fondos de inversión nacionales o extranjeros, en el territorio costarricense, debe ser realizada por personas que cuenten con la credencial de ejecutivo de fondos de inversión o agentes de bolsa autorizados.
+Los ejecutivos actúan en nombre, por cuenta y responsabilidad de la sociedad administradora o entidad comercializadora. Al ejecutivo le compete, al menos, la promoción y divulgación de los fondos de inversión, la atención al inversionista y la identificación del perfil del cliente.
+(Así reformado el párrafo anterior mediante sesión N° 1695-2021 del 25 de octubre de 2021)
 El ejecutivo debe cumplir con los siguientes requisitos:
 a) Ser mayor de edad.
 b) Haber aprobado bachillerato secundario.

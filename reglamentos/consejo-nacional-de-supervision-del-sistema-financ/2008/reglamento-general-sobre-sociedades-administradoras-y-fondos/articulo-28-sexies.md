@@ -1,0 +1,3 @@
+Artículo 28 Sexies. Comunicado de acuerdos y asiento de las actas Tanto la convocatoria a la asamblea de inversionistas como los acuerdos que se hayan tomado en dicha asamblea deben ser informados mediante un Comunicado de Hechos Relevantes.
+Las actas de la asamblea deberán asentarse en un libro que puede ser físico o electrónico, en el plazo de 15 días hábiles posteriores a la realización de la asamblea respectiva. Si por alguna situación especial o de fuerza mayor y con una debida justificación por parte de la sociedad administradora, la Superintendencia puede autorizar un plazo mayor.
+(Así adicionado mediante sesión N° 1695-2021 del 25 de octubre de 2021)
