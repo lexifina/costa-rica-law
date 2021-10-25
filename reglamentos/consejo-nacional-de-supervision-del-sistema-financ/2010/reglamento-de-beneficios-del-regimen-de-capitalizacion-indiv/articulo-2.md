@@ -1,10 +1,9 @@
-Artículo 2º—Definiciones
+Artículo 2º-Definiciones
 Afiliado: Persona física que cuenta con un saldo en la cuenta de capitalización individual.
 Beneficios: Pensiones derivadas de las modalidades de pensión establecidas en la Ley de Protección al Trabajador o las autorizadas por el Consejo Nacional de Supervisión del Sistema Financiero.
-(*)Beneficiario:
-a. Para el Régimen Obligatorio de Pensiones se entenderá como aquella persona que, de acuerdo con lo previsto en el artículo 20 de la Ley de Protección al Trabajador, tenga derecho a las prestaciones de sobrevivencia.
-b. Para el Régimen Voluntario de Pensiones Complementarias se entenderá como aquella persona explícitamente designada como tal por el afiliado o pensionado en su contrato de pensión complementaria o quien, en defecto de lo anterior, haya sido declarado como heredero o legatario dentro de un proceso sucesorio.
-(*) (Así reformada la definición anterior mediante sesión N° 1609 del 5 de octubre del 2020)
+(*)Beneficiario: Para el Régimen Obligatorio de Pensiones se entenderá como beneficiario (i) aquella persona que, ante la muerte del trabajador, así haya sido declarada por el correspondiente régimen básico de pensiones; (ii) aquella persona que haya sido expresamente designada por el trabajador como tal, en ausencia de beneficiarios declarados por el régimen básico; y, (iii) aquel que, en ausencia de beneficiarios así declarados por el correspondiente régimen básico, y de designación de beneficiarios ante la correspondiente operadora por parte del trabajador, así sea declarado por la autoridad judicial, siguiéndose el trámite previsto en el artículo 85 del Código de Trabajo.
+Tratándose del Régimen Voluntario de Pensiones Complementarias se entenderá como beneficiario aquella persona expresamente designada como tal por el afiliado o pensionado ante la operadora, o quien, en defecto de lo anterior, así sea declarado por la autoridad judicial correspondiente, después de seguirse el procedimiento establecido en el artículo 85 del Código de Trabajo.
+(*) (Así reformada la definición anterior mediante sesión N° 1696 del 25 de octubre de 2021)
 Capital para la pensión: Saldo de la cuenta de capitalización individual, administrada por una operadora de pensiones, que se utilizará para adquirir una modalidad de pensión debidamente autorizada.
 Código solicitante: Composición de números y letras que sustituyen el nombre, apellido y número de identificación de un afiliado o beneficiario con el fin de solicitar cotizaciones de modalidades de pensión a las otras operadoras de pensiones y compañías de seguros.
 CONASSIF: Consejo Nacional de Supervisión del Sistema Financiero.

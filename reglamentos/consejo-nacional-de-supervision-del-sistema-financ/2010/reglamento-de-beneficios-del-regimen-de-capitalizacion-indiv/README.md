@@ -20,3 +20,4 @@ Reglamento de Beneficios del Régimen de Capitalización Individual, reforma Reg
 | 5 | 2020-06-08 | Reglamento 1580 (2020-06-08) |
 | 6 | 2020-10-05 | Reglamento 1609 (2020-10-05) |
 | 7 | 2020-12-03 | Reglamento 1626 (2020-12-03) |
+| 8 | 2021-10-25 | Reglamento 1696 (2021-10-25) |
