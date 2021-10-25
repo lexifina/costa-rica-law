@@ -14,3 +14,4 @@ Reglamento sobre fondos de inversión de capital de riesgo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-19 | la propia norma |
+| 2 | 2021-10-25 | Reglamento 1695 (2021-10-25) |
