@@ -51,3 +51,4 @@ Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el 
 | 36 | 2020-10-05 | Reglamento 1609 (2020-10-05) |
 | 37 | 2020-12-03 | Reglamento 1626 (2020-12-03) |
 | 38 | 2021-04-19 | Reglamento 1656 (2021-04-19) |
+| 39 | 2021-10-25 | Reglamento 1696 (2021-10-25) |
