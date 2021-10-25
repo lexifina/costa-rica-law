@@ -1,0 +1,2 @@
+Artículo 20.-Toda persona colaboradora tiene el deber de cumplir con los lineamientos del presente Reglamento, estimular a los demás a respetarlo, validarlo en su desempeño y ser vigilante de aquellos comportamientos que puedan resultar en incumplimientos al mismo.
+Esto implica el deber de denunciar cualquier comportamiento que se aleje de los lineamientos señalados y que transgreda el comportamiento ético acá establecido.

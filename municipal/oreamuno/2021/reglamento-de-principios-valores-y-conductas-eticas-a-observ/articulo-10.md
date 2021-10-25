@@ -1,0 +1,1 @@
+Artículo 10.-Visión. Ser el Gobierno Local que promueve el desarrollo integral del cantón, con una gestión eficiente, transparente y participativa, mediante un modelo de ordenamiento territorial que garantice un entorno seguro, tecnológico e inclusivo dando como resultado la prosperidad de los habitantes con un enfoque de sostenibilidad y compromiso.

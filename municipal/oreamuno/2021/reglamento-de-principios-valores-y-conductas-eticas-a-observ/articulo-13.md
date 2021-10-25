@@ -1,0 +1,1 @@
+Artículo 13.-Compromiso: Como colaboradores debemos de identificarnos con nuestra institución, estar la involucrados en los intereses institucionales ofreciendo y siendo participes del cumplimiento de las metas.
