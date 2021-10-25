@@ -14,3 +14,4 @@ Reglamento del Comité Corporativo de Riesgos de la Junta Directiva de la Junta 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-10 | la propia norma |
+| 2 | 2021-10-25 | Reglamento 63 (2021-10-25) |
