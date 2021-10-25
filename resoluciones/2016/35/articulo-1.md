@@ -1,4 +1,4 @@
-4.7.1AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
 RJD-035-2016
 San José, dieciséis horas del veinticinco de febrero del dos mil dieciséis
 METODOLOGÍA PARA FIJACIÓN ORDINARIA DE TARIFAS PARA EL SERVICIO REMUNERADO DE PERSONAS, MODALIDAD AUTOBÚS
@@ -834,7 +834,7 @@ Insumo | Mediana* (¢)
 Filtros de combustible | 41.087,33
 Aceite hidraúlico | 4.395,27
 Barerías nuevas | 169.700,00
-Nota (*) Incluye el impuesto al valor agregado”)
+Nota (*) Incluye el impuesto al valor agregado")
 4.6 Rentabilidad del capital invertido
 La rentabilidad total mensual en la ruta "r" (RTr) se obtiene de la sumatoria de la rentabilidad del capital invertido en activos fijos y la rentabilidad del capital invertido en proveeduría.
 Donde:
@@ -857,7 +857,7 @@ PQ= Porcentaje promedio del capital invertido que se financia con deuda.
 RS = Costo del financiamiento (tasa de interés bancaria activa de bancos estatales para préstamos en moneda nacional para "Servicios").
 TQ= Porcentaje promedio del capital invertido que se financia con recursos propios.
 RU = Costo de los recursos propios.
-(Nota de Sinalevi: Mediante resolución N° RE-0027-IT-2020 del 24 de abril de 2020, se acordó fijar en 13,01% la tasa de rentabilidad para reglas de cálculo tarifario tipo 2, a reconocer en las fijaciones tarifarias ordinarias del servicio de transporte remunerado de personas, modalidad autobús.)
+(Nota de Sinalevi: Mediante resolución N° RE-0079-IT-2021 del 25 de octubre de 2021, se acordó fijar en 11,14% la tasa de rentabilidad para reglas de cálculo tarifario tipo 2, a reconocer en las fijaciones tarifarias ordinarias del servicio de transporte remunerado de personas, modalidad autobús.)
 La definición de cada una de estas variables y la forma cómo se realiza el cálculo se describe seguidamente, para lo cual se considerarán los operadores del transporte público remunerado de personas, modalidad autobús incluidos en el listado de título habilitante empleado en la fijación extraordinaria inmediata anterior al inicio del período fiscal correspondiente a los estados financieros y que hayan presentado los estados financieros a la Aresep, para el último periodo fiscal correspondiente, a más tardar el quince de diciembre, según lo acordado en la resolución 131-RIT-2015 o el plazo que se determine mediante resolución, o cualquier otro acto administrativo. Los datos que se utilizarán para los cálculos de las variables serán los que provengan de la contabilidad regulatoria o en su defecto, de la información de los estados financieros.
 a. Porcentaje promedio del capital invertido que se financia con deuda (D/A)
 Para cada empresa, se dividirá el monto correspondiente a la cuenta contable Total de Deuda entre la suma de la cuenta contable Total de Deuda y cuenta contable Total de Capital (Patrimonio). La cuenta contable Total de Deuda debe incluir los rubros del Pasivo que correspondan a obligaciones financieras con costo financiero del servicio regulado (Deuda de Largo Plazo, tanto su parte circulante como fija). Luego, se obtiene el promedio ponderado de los resultados individuales que se obtuvieron de cada empresa, ponderando según el tamaño de la flota autorizada por el CTP según el listado más reciente con el que cuente la IT.
