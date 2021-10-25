@@ -1,4 +1,0 @@
-ARTÍCULO 3º- Agréguese un último párrafo al artículo 19 del Decreto Ejecutivo número 42305-MTSS-MDHIS, para que en adelante se lea de la siguiente manera:
-“Artículo 19.-De los criterios para la priorización en la asignación de los recursos. Para determinar la prioridad de ejecución de las transferencias del Bono Proteger se utilizarán los siguientes criterios:
-(…)
-Cuando los recursos disponibles no permitan atender la totalidad de las solicitudes del Bono Proteger, la administración podrá ajustar los parámetros aplicados a los criterios de priorización previamente enumerados en el presente artículo para focalizar y brindar mayor grado de prioridad a las personas con mayor incidencia de vulnerabilidad. Las modificaciones en estos parámetros deberán ser formalmente oficializadas y registradas por la Dirección Nacional de Empleo con su respectiva justificación.”
