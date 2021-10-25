@@ -13,3 +13,4 @@ Obligación de realizar el trámite en línea, cuando la Fiscalía solicite habi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-07 | la propia norma |
+| 2 | 2021-10-25 | Circular 230 (2021-10-25) |

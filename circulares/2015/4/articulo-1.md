@@ -5,5 +5,6 @@ A LOS DESPACHOS JUDICIALES QUE UTILIZAN
 EL SISTEMA AUTOMATIZADO DE PAGOS
 Y DEPÓSITOS JUDICIALES
 SE LES HACE SABER QUE:
-El Consejo Superior en sesión No. 109-14, celebrada el 18 de diciembre de 2014, artículo LXIX, acordó comunicarles que cuando la Fiscalía solicite habilitar una cuenta en el Sistema Automatizado de Pagos y Depósitos Judiciales, se debe realizar el trámite “en línea”, con el fin de que la cuenta quede habilitada de inmediato y permita depositar el dinero decomisado el mismo día.
+El Consejo Superior en sesión No. 109-14, celebrada el 18 de diciembre de 2014, artículo LXIX, acordó comunicarles que cuando la Fiscalía solicite habilitar una cuenta en el Sistema Automatizado de Pagos y Depósitos Judiciales, se debe realizar el trámite "en línea", con el fin de que la cuenta quede habilitada de inmediato y permita depositar el dinero decomisado el mismo día, tanto para los dineros confiscados por delitos comunes, como los cometidos por narcotráfico.
+(Así reformado mediante circular N° 230 del 25 de octubre de 2021)
 San José, 7 de enero de 2015.
