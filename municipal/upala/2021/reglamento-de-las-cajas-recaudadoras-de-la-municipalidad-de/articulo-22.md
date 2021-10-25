@@ -1,0 +1,1 @@
+Articulo 22.-En caso de Ausencia. Cuando el tesorero se encuentre en periodo de vacaciones o en caso de incapacidad, su jefatura asumirá el rol de tesorero definido en este reglamento, o quien él designe.

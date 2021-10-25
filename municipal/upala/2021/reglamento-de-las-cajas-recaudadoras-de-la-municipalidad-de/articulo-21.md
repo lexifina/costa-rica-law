@@ -1,0 +1,1 @@
+Artículo 21.-Reporte. Al finalizar el día, el plataformista deberá remitir un reporte del corte del día a su jefatura inmediata y al tesorero. Este reporte se remitirá según formato establecido por tesorería.

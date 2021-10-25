@@ -1,0 +1,1 @@
+Artículo 10.-Póliza. Conforme la Ley 8131 Ley de la Administración Financiera de la República y Presupuestos Públicos los plataformistas deben rendir garantía (póliza de fidelidad) con cargo a su propio peculio, en favor de la Municipalidad, para asegurar el correcto cumplimiento de los deberes y las obligaciones de sus funciones.

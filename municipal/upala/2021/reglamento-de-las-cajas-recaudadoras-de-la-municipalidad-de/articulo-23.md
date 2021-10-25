@@ -1,0 +1,1 @@
+Artículo 23.-Vigencia. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deroga cualquier disposición aprobada con anterioridad por el Concejo Municipal que contravengan al presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 16.-Del arqueo. El Tesorero realizará arqueos sorpresivos de caja, en el momento que lo considere pertinente y cuando las circunstancias así lo requieran. Trasladará los resultados de los arqueos tanto al plataformista como a la jefatura inmediato de éste. Los váuchers del datáfono deberán entregarse al finalizar el día a la Tesorera de forma física y engrapados.

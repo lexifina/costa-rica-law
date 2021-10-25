@@ -1,0 +1,1 @@
+Artículo 3°-Aumento del Monto. El monto de la caja recaudadora sólo puede ser modificado por acuerdo del Concejo Municipal, modificando el respectivo artículo que indique el monto y para su vigencia, debe ser publicado en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 9°-Dinero en uso de los cajeros. La Tesorera entregará un monto de cien mil colones (?100.000) a cada plataformista, ello por una única vez, para efectos de que puedan ofrecer el servicio de cobro al contribuyente.
