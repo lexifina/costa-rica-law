@@ -1,1 +1,0 @@
-Artículo 34.- Declaratoria de interés público: Declárase de interés público todas las acciones relacionadas a la ejecución de lo dispuesto en el presente Reglamento, así como cualquier otra destinada a asegurar la continuidad, su adaptación a todo cambio en el régimen legal o en la necesidad social que satisface el Bono.

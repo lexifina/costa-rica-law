@@ -1,1 +1,0 @@
-Artículo 23.- Fiscalización. Todas las bases de datos, la información financiera, así como cualquier otra información, registro, documentación de soporte estará a disposición de los órganos de control y fiscalización cuando lo soliciten.

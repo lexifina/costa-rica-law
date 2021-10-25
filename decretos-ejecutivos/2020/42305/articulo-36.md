@@ -1,2 +1,0 @@
-Artículo 36.- Carácter Inembargable. El subsidio temporal Bono Proteger por ser un beneficio social, no podrá ser embargado en forma alguna, salvo lo correspondiente a obligaciones alimentarias, según lo dispone el artículo 2 de la Ley de Protección a las Personas Trabajadoras durante la Emergencia por la Enfermedad COVID-19, Ley N° 9840 del 22 de abril de 2020 y el inciso 2) del artículo 984 del Código Civil, Ley N° 63 del 28 de septiembre de 1887.
-(Así adicionado por el artículo 10° del decreto ejecutivo N° 42329 del 29 de abril del 2020)

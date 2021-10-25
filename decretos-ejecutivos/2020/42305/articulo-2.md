@@ -1,2 +1,0 @@
-Artículo 2.- Objeto del Reglamento. El presente Reglamento establece los lineamientos generales del procedimiento de solicitud y asignación de los beneficios del programa Proteger, así como determinar las responsabilidades institucionales, los criterios de priorización en la asignación de los beneficios, mecanismos de validación, control, seguimiento, la rendición de cuentas y resguardo de la información.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 42601 del 4 de setiembre del 2020)
