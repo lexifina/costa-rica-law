@@ -1,0 +1,3 @@
+Artículo 5º-Los Concejos de Distrito, con apoyo de la administración municipal, serán los responsables de recibir las solicitudes de becas y enviarlas para su estudio y recomendación a la Oficina de Desarrollo Social.
+La Oficina de Desarrollo Social será la responsable de estudiar las solicitudes de becas y de recomendar las personas beneficiarias al Concejo de Distrito respectivo, en primera instancia. Estas recomendaciones deberán partir de criterios técnicos y objetivos que deberán ser comunicados al Concejo Municipal previo al inicio del estudio de solicitudes de cada año.
+Los Concejos de Distrito podrán solicitar a la Oficina de Desarrollo Social que esta realice visitas de campo a posibles personas beneficiarias, según la disponibilidad de recursos.

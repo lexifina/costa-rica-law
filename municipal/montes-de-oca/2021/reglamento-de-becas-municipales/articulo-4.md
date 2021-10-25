@@ -1,0 +1,1 @@
+Artículo 4º-Los Concejos de Distrito, con apoyo técnico en la promoción y divulgación por parte de la administración, serán los encargados de promocionar en forma abierta el programa de becas municipales.

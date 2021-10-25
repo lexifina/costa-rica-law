@@ -1,0 +1,2 @@
+Transitorio único. Para el periodo de asignación de becas 2022, la verificación del domicilio se realizará únicamente con la presentación de los documentos que establece este reglamento.
+Acuerdo definitivamente aprobado por el Concejo Municipal de Montes de Oca, en la: sesión ordinaria N° 58-2021, artículo N° 10, punto N° 1, del día 07 de junio del 2021. Sesión ordinaria N° 72-2021, artículo N° 9.1, del día 14 de junio del 2021. Primera publicación en el Diario Oficial La Gaceta N° Gaceta N° 140, del día 21- 07-2021.

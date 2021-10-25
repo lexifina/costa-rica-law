@@ -1,0 +1,1 @@
+Artículo 5° Bis.-El Concejo de Distrito, a partir de la recomendación técnica de la Oficina de Desarrollo Social, propondrá al Concejo Municipal la lista de beneficiarios. Si el Concejo de Distrito fuera a apartarse de la recomendación del órgano técnico, o el Concejo Municipal de la recomendación del Concejo de Distrito, deberán justificar las razones correspondientes.
