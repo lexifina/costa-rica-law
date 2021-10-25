@@ -1,8 +1,0 @@
-Artículo 9. Separación vertical del suelo
-Las acometidas aéreas no deben ser accesibles a personal no calificado. Cuando la tensión sea menor de 600 V, los conductores de la acometida aérea deben tener las siguientes separaciones mínimas del suelo: (Ver Figura N° 3):
-a. 3 metros: medidos desde el piso terminado (acera) o superficie accesible, hasta el punto de ubicación de los conductores de acometida o hasta la parte inferior de la curva de goteo (Ver Figuras N° 3 y N° 8), antes de la entrada, o sobre áreas o aceras accesibles sólo a peatones.
-b. 4,6 metros: sobre vía pública en áreas residenciales o comerciales sin tránsito de camiones.
-c. 5,5 metros: medidos desde el punto más bajo de la catenaria que hacen los conductores de la acometida y el centro de la vía pública, áreas residenciales, comerciales e industriales con tránsito de camiones (Ver Figura N° 3).
-Cuando se requiera un poste (tiro flojo) de servicio para alcanzar la altura exigida, este deberá ser suministrado e instalado por el interesado con las características técnicas que definan las empresas eléctricas y apruebe la Autoridad Reguladora. (Ver Figura N° 4).
-Alternativamente el abonado podrá instalar una columna de concreto para ubicar el medidor con protección contra intemperie, mediante algún elemento que impida la entrada directa de agua (Ver Figuras N° 5 y N° 6) o dentro de una caja certificada NEMA 3R o IP65.Si la acometida es subterránea y debe atravesar la calle (Ver Figuras N° 6 y N° 15), su construcción se efectuará por el interesado y la traspasará a la empresa distribuidora. La tubería no deberá ubicarse a una profundidad menor a 0,6 m bajo la calzada de la calle pública.
-(Así reformado medinte resolución N° RJD-207-2015 del 21 de setiembre del 2015)

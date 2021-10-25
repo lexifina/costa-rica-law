@@ -1,2 +1,0 @@
-Artículo 27. Conexión efectiva a tierra de las partes metálicas de la acometida
-Todas las partes metálicas del equipo de acometida deberán contar con una conexión efectiva a tierra. Esta conexión puede efectuarse mediante canalización metálica, cubierta metálica, conductor eléctrico (puente de unión) o una combinación de éstos, que brinde la conexión efectiva a tierra. En los casos que se utilice canalización en tubería metálica flexible, debe ubicarse un puente de unión firme, entre ambos extremos de la tubería.

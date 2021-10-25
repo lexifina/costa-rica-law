@@ -1,2 +1,0 @@
-Artículo 15. Identificación en dispositivos de conexión
-Cuando se utilice un mismo dispositivo de conexión para la instalación de varios servicios eléctricos, éste deberá ser de la capacidad y el tipo adecuado para su uso, identificando los conductores energizados (incluyendo el neutro), y el conductor de puesta a tierra, de cada servicio eléctrico, con una etiqueta impermeable marcada en forma visible, legible y permanente fijada con una gaza plástica y ubicada contiguo a la manga termo contráctil (Ver Figura 10).

@@ -1,2 +1,0 @@
-Artículo 6. Acometidas separadas de otros edificios
-Los conductores de acometidas de una edificación no deben pasar por el interior de otro edificio o estructura aledaña, pero puede, a criterio de la empresa eléctrica, permitirse el paso por el exterior, siempre y cuando se cumplan los demás requisitos de esta norma. (Ver Figura N° 1). En el caso de acometidas subterráneas, su trayectoria comprenderá áreas que permitan el fácil acceso y maniobrabilidad por parte de la empresa distribuidora.
