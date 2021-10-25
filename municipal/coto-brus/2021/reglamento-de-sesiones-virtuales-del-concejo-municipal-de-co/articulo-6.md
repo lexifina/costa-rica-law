@@ -1,0 +1,1 @@
+Artículo 6º-Publicidad. Se instruye a la Administración Municipal para que proceda a realizar la divulgación permanente y efectiva de este acuerdo. Para cumplir con el principio de publicidad, se anuncia a la ciudadanía en general que se transmitirán las sesiones en vivo a través de la Pagina de Facebook de la Municipalidad de Coto Brus.

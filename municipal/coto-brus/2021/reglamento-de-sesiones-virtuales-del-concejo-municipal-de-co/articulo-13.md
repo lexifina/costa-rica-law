@@ -1,0 +1,9 @@
+CAPÍTULO VII
+De los regidores
+Artículo 13.-Deberes de los Regidores.
+1. Será responsabilidad del Regidor (a) mantener un servicio de conectividad apropiado (adecuado) para la participación de las sesiones del Concejo Municipal, y conectarse en tiempo y forma a las sesiones convocadas según el presente reglamento.
+En caso de no contar con las condiciones de acceso a internet, o no sea la adecuada, deberá de comunicarlo con la suficiente antelación, al Presidente del Concejo para que éste coordine con el Alcalde Municipal el uso del espacio físico que será destinado para ello, o bien en el salón de sesiones del Concejo Municipal, en el edificio Municipal.
+2. Brindar a la Secretaria del Concejo Municipal una cuenta personal para recibir la notificación del link de ingreso a cada sesión ordinaria o extraordinaria, y verificar que la misma sea compatible con la plataforma que se vaya a utilizar para llevar a cabo la sesión ordinaria o extraordinaria. En todo caso, contará con la colaboración de la Secretaria del Concejo Municipal.
+3. Para garantizar la simultaneidad, colegialidad y deliberación, será responsabilidad de cada regiduría y sindicatura, revisar que el día de la sesión ordinaria o extraordinaria, le llegue hasta antes del mediodía, el link indicado en el punto anterior (lo que se comunica es un correo electrónico a la cuenta oficial de cada uno y se les pide confirmar la asistencia). En caso de detectar que no está la invitación respectiva, la regiduría y/o sindicatura deberá enviar un correo hasta antes de las tres de la tarde del día en que se realiza la sesión, a efecto de que se verifique que su cuenta esté activa y que se corrija cualquier omisión o dificultad de ingreso a la plataforma.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
+San Vito, Coto Brus, 19 de octubre de 2021.-

@@ -1,0 +1,4 @@
+Artículo 12.-Deberes de la Presidenta de Comisiones.
+1- El presidente de cada Comisión llevará un registro de los datos completos (nombre completo, cédula, número telefónico, correo electrónico) de los miembros de las comisiones y personal de apoyo debidamente autorizado por la Alcaldía o la Presidencia del Concejo Municipal, donde cada uno de ellos consignará un medio oficial para recibir notificaciones.
+2- Es deber del Presidente de cada Comisión, realizar la adecuada convocatoria a todos los integrantes del Comisión, tanto en las sesiones ordinarias como las extraordinarias, que se realicen mediante modalidad virtual.
+3- De forma previa al inicio de la sesión virtual y no menor a tres horas antes del inicio de la sesión, el Presidente de la Comisión respectiva deberá enviar al correo electrónico consignado, el link o acceso, para que los miembros de la Comisión y demás personal de apoyo puedan acceder a la sesión virtual, a la hora programada.
