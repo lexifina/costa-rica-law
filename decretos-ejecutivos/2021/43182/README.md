@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 43182
+
+Deroga Declara Utilidad Pública Asociación Nacional Fomento Económico ANFE
+
+- Tipo: Decreto Ejecutivo
+- Número: 43182
+- Fecha: 2021-07-19
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 206 del 2021-10-26
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=95467&param2=127449&param3=1 (ficha 95467)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2021-10-26 | la propia norma |
