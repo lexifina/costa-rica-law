@@ -1,2 +1,2 @@
-Artículo 3º—Reglamento Específico de Cajas Chicas para el servicio de esta Municipalidad cuyo monto será de ¢600.000,00 (seiscientos mil colones con 00/100), para el área administrativa y de ¢1.000.000,00 (un millón de colones con 00/100), para la Unidad Técnica de Gestión Vial Municipal proveniente de la Ley de Simplificación y Eficacia Tributaria, Ley 8114.
-(Así reformado mediante sesión ordinaria N° 104-2018 del 6 de junio del 2018)
+Artículo 3º-reglamento específico de cajas chicas para el servicio de esta municipalidad cuyo monto será de ¢1.000.000,00 (un millón colones con 00/100), para el área administrativa y de ¢1.000.000,00 (un millón de colones con 00/100), para la unidad técnica de gestión vial municipal proveniente de la ley de simplificación y eficacia tributaria, ley 8114.
+(Así reformado mediante sesión ordinaria 77-2021 del 26 de octubre del 2021)
