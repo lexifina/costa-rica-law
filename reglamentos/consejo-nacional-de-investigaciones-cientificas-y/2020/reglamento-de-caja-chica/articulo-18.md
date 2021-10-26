@@ -1,0 +1,1 @@
+Artículo XVIII.-Registro contable. Una vez recibidos, revisados y firmados los comprobantes por la persona encargada de la contabilidad, serán trasladados para confección del cheque, para realizar el reembolso de Caja Chica.

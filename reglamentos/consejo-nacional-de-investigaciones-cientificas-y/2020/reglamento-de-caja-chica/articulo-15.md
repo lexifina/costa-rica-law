@@ -1,0 +1,2 @@
+Artículo XV.-Cierre anual. Para su liquidación todas las facturas deberán tramitarse dentro del año en el que estén fechadas, sea durante el período presupuestario vigente.
+No se podrá cancelar ninguna factura de un período presupuestario anterior con cargo al presupuesto vigente, salvo las que se encuentren en el compromiso no devengado que permite pagar facturas con cargo al presupuesto del año siguiente, siempre y cuando existan las reservas respectivas y con un tiempo no mayor al 31 de enero del nuevo período presupuestario.

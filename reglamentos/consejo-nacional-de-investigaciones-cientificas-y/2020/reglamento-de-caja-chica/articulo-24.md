@@ -1,0 +1,1 @@
+Artículo XXIV.-Auditoría del fondo. El jerarca de la Institución deberá solicitar a la Auditoría Interna de su dependencia, incluir en el programa de trabajo de esa Dirección, como mínimo la realización de una auditoría anual al Fondo Fijo-Caja Chica de la institución, con el fin de evaluar la suficiencia y la efectividad de los controles.

@@ -1,0 +1,1 @@
+Artículo XVI.-Manual Institucional de Operación. Para la operativa del fondo, el CONICIT deberán disponer de un Manual Institucional de Operación actualizado y oficializado, estableciendo en forma detallada, clara y precisa, las rutinas de trabajo relacionadas con el manejo de dicho Fondo y los responsables de ejecutarlas.

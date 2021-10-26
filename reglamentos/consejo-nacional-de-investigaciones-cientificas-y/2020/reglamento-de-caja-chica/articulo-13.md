@@ -1,0 +1,3 @@
+Artículo XIII.-Liquidación pendiente de compras o viáticos. No se autorizará un anticipo de dinero a un funcionario que tenga una liquidación previa pendiente, debiendo en tal caso "el Responsable", solicitar al funcionario la presentación de la liquidación pendiente.
+Fenecidos los siete días para liquidar, "el Responsable", deberá comunicar por una única vez al funcionario que tenga pendiente una liquidación, y se le dará un plazo de un día hábil para cumplir con el trámite pendiente, vencida esa extensión, "el Responsable", comunicará a la Dirección de Soporte Administrativo lo respectivo.
+El funcionario que tenga pendiente una liquidación no podrá solicitar otro anticipo hasta tanto no liquide el anterior.

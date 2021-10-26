@@ -1,0 +1,1 @@
+Artículo XXXI.-Derogatoria. Deróguese el Reglamento Aprobado por el Consejo Director del Conicit en sesión 1815 de fecha 5 de marzo del 2007. Comunicado de Acuerdo 2-043- 2007 del 8 de marzo del 2007. Publicado en La Gaceta 57 - Miércoles 21 de marzo del 2007, sus reformas y cualquier otra disposición que se le oponga.

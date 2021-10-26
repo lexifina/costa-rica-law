@@ -1,0 +1,2 @@
+Artículo II.-Definición del monto. El monto asignado al Fondo Fijo-Caja Chica de la institución será de ¢500.000,00 y podrá ser variado de acuerdo a las necesidades de la institución, para lo cual deberá contar con la autorización del Consejo Director del CONICIT.
+El monto establecido operará por medio del sistema de fondo fijo, lo que implica que el encargado del fondo tendrá en todo momento la suma total asignada, representada por efectivo en caja o bancos y los documentos que respaldan las operaciones.

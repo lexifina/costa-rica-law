@@ -1,0 +1,1 @@
+Artículo XIX.-Ampliaciones temporales o permanentes al fondo. La Dirección de Soporte Administrativo, bajo justificación razonada, podrá solicitar formalmente al Consejo Director ampliaciones temporales para el Fondo Fijo-Caja Chica, con el fin de atender situaciones sumamente especiales por razones de conveniencia, oportunidad e interés público.
