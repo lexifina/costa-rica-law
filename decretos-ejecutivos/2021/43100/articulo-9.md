@@ -1,0 +1,1 @@
+Artículo 9º-De la inscripción. Presentada la solicitud conforme al presente reglamento y revisada la misma, la Dirección de Agua procederá en un plazo de 30 días con la inscripción en el Registro de Nacional de Concesiones.

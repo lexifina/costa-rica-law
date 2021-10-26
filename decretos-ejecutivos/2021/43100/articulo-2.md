@@ -1,0 +1,1 @@
+Artículo 2º-Sujetos y ámbito de aplicación. Este Reglamento es de alcance nacional para toda persona física o jurídica; pública o privada, que desee implementar un sistema de cosecha de lluvia en el territorio nacional.

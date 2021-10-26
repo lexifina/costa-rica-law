@@ -1,0 +1,1 @@
+Artículo 5º-De la Inscripción de sistemas de cosecha de lluvia. Todo sistema de cosecha de lluvia conforme al artículo 18 de la Ley de Aguas N° 276, debe inscribirse en el Registro Nacional de Concesiones que opera la Dirección de Agua del Ministerio de Ambiente y Energía.

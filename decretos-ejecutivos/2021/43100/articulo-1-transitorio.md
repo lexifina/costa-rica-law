@@ -1,0 +1,1 @@
+Transitorio único.-El propietario, que tenga instalado un sistema de cosecha de lluvia en su propiedad, contará con un año a partir de la entrada en vigencia del presente Reglamento, para inscribirse ante la Dirección de Agua, conforme lo dispuesto en este Reglamento.
