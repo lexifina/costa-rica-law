@@ -1,0 +1,1 @@
+Artículo 9°-Las funciones de representación y comunicación con entidades públicas y privadas nacionales e internacionales que establece el presente reglamento, deberán ser expresamente ordenadas a las comisiones por medio de acuerdo de la Asamblea General o Junta Directiva.

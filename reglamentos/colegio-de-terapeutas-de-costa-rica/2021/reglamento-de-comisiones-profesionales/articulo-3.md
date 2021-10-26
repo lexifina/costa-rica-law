@@ -1,0 +1,4 @@
+CAPÍTULO II
+Funcionamiento de las Comisiones Profesionales
+Artículo 3°-De los miembros de las Comisiones Profesionales. Las Comisiones Profesionales estarán integradas y conformarán el quórum requerido, con cinco miembros. Necesariamente entre dichos miembros deberán participar: el o los miembros de Junta Directiva representes del área profesional correspondiente; el miembro del Comité Académico representante del área profesional; un agremiado representante del Comité Consultivo del área profesional, un agremiado representante del sector privado y un agremiado representante del sector público. Asimismo, los miembros que conformen las Comisiones Profesionales deberán cumplir con los requisitos que establezca Junta Directiva.
+El miembro de la Junta Directiva que represente al área profesional en la Comisión Profesional fungirá como el Coordinador de dicho órgano colegiado.
