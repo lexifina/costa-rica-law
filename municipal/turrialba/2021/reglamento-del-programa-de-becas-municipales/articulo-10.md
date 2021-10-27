@@ -1,0 +1,1 @@
+Artículo 10.-Las y los estudiantes que aspiren al otorgamiento de una beca, deberán comprobar que no disfrutan de otro Régimen o Programa de beca, es decir que no están recibiendo ayuda económica de ninguna entidad gubernamental para los efectos de estudios en primaria y secundaria.

@@ -1,0 +1,1 @@
+Artículo 25.-La entrega monetaria estará sujeta a la permanencia del estudiante en el sistema educativo formal, para cuyo efecto la Comisión, podrá solicitar al centro educativo, a la persona responsable o al estudiante, los documentos necesarios para verificar la permanencia del o la estudiante en el centro educativo, en cualquier momento que lo considere.

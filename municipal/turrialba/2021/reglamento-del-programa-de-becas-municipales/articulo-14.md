@@ -1,0 +1,1 @@
+Artículo 14.-Para solicitar beca por primera vez o renovarla, el o la estudiante deberá haber aprobado el curso anterior, excepto en casos debidamente justificados y documentados, donde se compruebe situaciones familiares, sociales o médicas que hayan incidido en su rendimiento académico.

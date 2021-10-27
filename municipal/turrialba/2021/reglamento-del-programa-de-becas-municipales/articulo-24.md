@@ -1,0 +1,1 @@
+Artículo 24.-El pago por concepto de beca se realizará por medio de depósito bancario. Con excepción de los casos en los que por su condición social no reúnan los requisitos necesarios para la apertura de una cuenta de ahorro. En dado caso se gestionará el pago mediante cheque.

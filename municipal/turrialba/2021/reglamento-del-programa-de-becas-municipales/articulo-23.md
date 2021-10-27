@@ -1,0 +1,1 @@
+Artículo 23.-El monto podrá ser revisado anualmente por la Comisión de Becas, quien podrá proponer a la Administración que valore un incremento en el mismo, considerando la inflación, devaluación y porcentaje de incremento del Presupuesto Municipal.

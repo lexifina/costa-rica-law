@@ -1,0 +1,1 @@
+Artículo 15.-El Concejo Municipal será el responsable de conocer y aprobar la recomendación de la Comisión de Becas sobre los beneficiarios de becas que hayan sido valorados y seleccionados por dicha Comisión en conjunto con los profesionales que apoyen el procedimiento.

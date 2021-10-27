@@ -1,0 +1,1 @@
+Artículo 6º-La Comisión de Becas, con la asesoría de un profesional del Área Social, tendrá a su cargo las recomendaciones ante el Concejo Municipal de la población estudiantil que recibirá la beca municipal.

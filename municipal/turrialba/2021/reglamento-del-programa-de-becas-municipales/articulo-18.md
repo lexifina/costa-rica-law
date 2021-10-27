@@ -1,0 +1,1 @@
+Artículo 18.-El informe correspondiente al análisis de la totalidad de las solicitudes de becas será presentado ante el Concejo Municipal en dos etapas, la primera cuando haya procesado las becas de renovación y la segunda cuando se procesen las becas nuevas durante el primer trimestre del año por medio de la Comisión de Becas.

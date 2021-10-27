@@ -1,0 +1,1 @@
+Artículo 19.-Las becas que no sean otorgadas luego del proceso de valoración ordinaria, se adjudicarán mediante un proceso de valoración extraordinaria, los Concejos de Distrito y el área social podrán presentar casos para proceder con la valoración socioeconómica, el tratamiento de las situaciones será exactamente iguales en ambos procesos.

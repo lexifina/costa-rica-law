@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo general del programa. Contribuir al desarrollo del cantón de Turrialba, mediante el apoyo a la población estudiantil en condición de vulnerabilidad para la conclusión de estudios de educación diversificada, la formación integral y la práctica de valores.

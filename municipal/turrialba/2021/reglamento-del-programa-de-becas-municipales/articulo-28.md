@@ -1,0 +1,1 @@
+Artículo 28.-La Comisión de Becas se encargará de elaborar los acuerdos de suspensión y presentarlos ante el Concejo Municipal, el cual se sustentará de la información brindada por el profesional del Área Social.
