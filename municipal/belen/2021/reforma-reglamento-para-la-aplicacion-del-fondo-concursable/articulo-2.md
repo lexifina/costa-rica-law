@@ -1,0 +1,7 @@
+Artículo 2º-Modifíquese el artículo 7, para que se lea así:
+Instancia responsable del proceso de selección y asignación. Se establece la creación de la Comisión Evaluadora, como órgano decisorio que cuenta con el apoyo a la Unidad de Cultura. La Comisión Evaluadora deberá evaluar y recomendar los proyectos, seleccionar los proyectos tomando en cuenta primeramente su calidad artística, luego su factibilidad y su importancia para el cantón de Belén. Se deberán estudiar todos los proyectos presentados, para poder establecer la cantidad de proyectos que pueden recibir fondos, así como la cantidad de recurso que recibirían los proyectos seleccionados. Esta comisión deberá estar conformada por:
+a. Un representante que forme parte de la RECIM Red de Cultura Intermunicipal de Costa Rica.
+b. Un representante del Ministerio de Cultura y Juventud, experto(a) o conocedor(a) en cualquiera de las artes.
+c. Dos representantes provenientes de las escuelas de arte de las Universidades Estatales o Privadas, como respaldo experto según corresponda a las propuestas presentadas. Expertos(as) o conocedor(as) en cualquiera de las artes.
+d. Una persona representante de la sociedad civil belemita vinculada con la cultura belemita.
+Los participantes en esta comisión serán nombrados anualmente, con un cargo ad honorem y en optimización del programa y de los recursos con que se cuenta.
