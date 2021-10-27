@@ -1,4 +1,6 @@
+(Anulada)
 N° 9373
+(Esta norma fue anulada por resolución de la Sala Constitucional N° 24147 del 27 de octubre de 2021)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 PROTECCIÓN A LOS OCUPANTES
