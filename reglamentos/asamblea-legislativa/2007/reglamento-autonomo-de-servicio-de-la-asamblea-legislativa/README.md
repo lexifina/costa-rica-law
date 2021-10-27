@@ -27,3 +27,4 @@ Reglamento Autónomo de Servicio de la Asamblea Legislativa
 | 12 | 2019-04-10 | Reglamento 43 (2019-04-10) |
 | 13 | 2019-09-24 | Reglamento 68 (2019-09-24) |
 | 14 | 2021-02-11 | Reglamento 143 (2021-02-11) |
+| 15 | 2021-10-27 | Reglamento 180 (2021-10-27) |
