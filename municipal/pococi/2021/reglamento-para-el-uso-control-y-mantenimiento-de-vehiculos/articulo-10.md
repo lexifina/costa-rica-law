@@ -1,0 +1,1 @@
+Artículo 10.- De las acciones de control. La auditoría interna o el Alcalde municipal a través de quien delegue, efectuará el control de los vehículos propiedad de la municipalidad durante todo el año con base a operativos programados o sorpresivos, continuos y de acuerdo con las circunstancias en forma aleatoria.

@@ -1,0 +1,1 @@
+Artículo 39.- Dependiendo de la naturaleza de la necesidad planteada, los servicios de transporte podrán prestarse bajo la modalidad de Servicio ocasional o temporal el cual consiste en poner a disposición de la dependencia solicitante, un vehículo con el propósito de efectuar un traslado específico, durante un periodo determinado.

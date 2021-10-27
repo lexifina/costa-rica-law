@@ -1,0 +1,1 @@
+Artículo 70. De previo a la aplicación de las sanciones previstas en este reglamento, el Código Municipal y el Reglamento Autónomo de Organización y Servicios vigente de la Municipalidad de Pococí, debe seguirse el Debido Proceso.

@@ -1,0 +1,1 @@
+Artículo 55.- Todos los vehículos deberán cumplir con los programas de mantenimiento, reparaciones y diligencias en caso de accidentes de tránsito. Dichos programas serán estipulados por la Sección de Mantenimiento Automotor, en cuanto a las directrices de casos por accidentes serán estimados por el taller mecánico autorizado.

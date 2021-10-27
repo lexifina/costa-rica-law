@@ -1,0 +1,1 @@
+Artículo 28.- Del pago por mantenimiento. Todo pago por mantenimiento preventivo y correctivo de la maquinaria municipal, deberá gestionarlo el encargado de la unidad a cargo de este, con anticipación y en el formato correspondiente, ante la administración municipal.

@@ -1,0 +1,1 @@
+Artículo 54.- De la notificación por accidentes menores. El conductor informará de cualquier novedad o percance ocurrido al vehículo y para este fin utilizará el formulario de "informe de accidentes".

@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. El presente reglamento se aplicará a todo vehículo que esté o entre a formar parte de la lista de bienes adscritos a la Municipalidad de Pococí; así como al recurso humano que directamente tenga una relación operativa determinada por su margen de responsabilidad con su administración, custodia, uso, control y mantenimiento.

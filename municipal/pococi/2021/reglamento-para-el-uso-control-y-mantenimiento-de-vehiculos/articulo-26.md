@@ -1,0 +1,1 @@
+Artículo 26.- De la custodia de la maquinaria. Los operadores de equipo pesado serán responsables de la custodia del vehículo y estarán bajo su responsabilidad, durante el tiempo para el cual fueren asignados, los cuales a su vez son responsables de mantener y entregar el vehículo limpio (lavado cabina y batea).

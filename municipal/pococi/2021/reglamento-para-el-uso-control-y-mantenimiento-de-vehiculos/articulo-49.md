@@ -1,0 +1,1 @@
+Artículo 49.- Los conductores no deben permitir que personas en estado de ebriedad o en apariencia de consumo de cualquier tipo de drogas, viajen en los vehículos. Se aplica la excepción en el presente artículo cuando las unidades sean utilizadas para brigadas municipales de ayuda y por las que medie autorización superior o en casos de emergencia comprobada.

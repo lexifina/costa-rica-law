@@ -1,0 +1,1 @@
+Artículo 16.- Del pago por mantenimiento. Todo pago por mantenimiento preventivo y correctivo de los vehículos municipales, deberá gestionarlo el encargado de vehículos, con anticipación y en el formato correspondiente, ante la administración municipal.
