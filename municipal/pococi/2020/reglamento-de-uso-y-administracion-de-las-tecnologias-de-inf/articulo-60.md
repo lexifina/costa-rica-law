@@ -1,0 +1,1 @@
+Artículo 60.-Está prohibido interceptar o alterar la información que se transmite e intentar evitar los mecanismos de seguridad de la red o de control impuestos, perjudicar la funcionalidad de la red, o saltarse las restricciones establecidas por sistemas de seguridad informática.

@@ -1,0 +1,1 @@
+Artículo 59.-Está prohibido cargar excesivamente un sistema de cómputo (abrir un sistema más de una vez en el mismo equipo) o el tráfico de red, ejecutar códigos dañinos tales como virus, programas malignos, consultas automáticas u otros, crear, copiar, enviar o reenviar cadenas de mensajes no relacionados con actividades propias de la Institución.

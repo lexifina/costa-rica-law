@@ -1,0 +1,1 @@
+Artículo 3°-El Departamento de Tecnologías de la Información y Comunicación (TIC) en adelante TIC, con visto bueno de la Alcaldía, propondrá actualizar este reglamento y sus políticas informáticas que regirán en la institución cuando así lo considere conveniente.

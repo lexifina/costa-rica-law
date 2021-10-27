@@ -1,0 +1,1 @@
+Artículo 26.-Los proveedores en modalidad de servicios técnicos, profesionales, u otra similar u otros externos que requieran utilización de los servicios tecnológicos de este municipio para sus labores estipuladas, deberán de disponer del equipo informático según las especificaciones del Departamento de TIC.

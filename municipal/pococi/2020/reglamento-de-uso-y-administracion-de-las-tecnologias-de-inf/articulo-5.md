@@ -1,0 +1,1 @@
+Artículo 5°-El personal del Departamento de TIC serán los únicos con privilegios o perfiles de súper usuarios de todo la Municipalidad de Pococí, es decir, son usuarios especiales que cuentan con los permisos más elevados para poder administrar los recursos tecnológicos del Municipio.

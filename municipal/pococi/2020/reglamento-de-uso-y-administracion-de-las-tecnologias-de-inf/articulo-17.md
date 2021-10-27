@@ -1,0 +1,1 @@
+Artículo 17.-Las ampliaciones, modificaciones o adquisiciones de equipos de cómputo, así como la autorización y compra de programas informáticos, se harán con el criterio y asistencia técnica del Departamento de TIC.

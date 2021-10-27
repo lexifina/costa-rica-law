@@ -1,0 +1,1 @@
+Artículo 28.-Cada equipo que requiera conexión con los sistemas tecnológicos del municipio deberá estar incluido y configurado en el dominio (protocolo de directorio centralizado en una red empresarial que facilita el control y la administración de los equipos) establecido por el Departamento de TIC, además se brindara a cada usuario una identificación para poder acceder.

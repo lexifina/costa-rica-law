@@ -1,0 +1,1 @@
+Artículo 73.-Cuando un usuario deliberadamente afirme no seguir las indicaciones del Departamento de TIC establecidas en este reglamento, independientemente del nivel de usuario y del cargo con que cuente esta persona, se le suspenderá inmediatamente de cualquier acceso o equipo por poner en riesgo los lineamientos y la seguridad tecnológica del municipio.

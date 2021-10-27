@@ -1,0 +1,1 @@
+Artículo 24.-Cuando un usuario solicite mantenimiento o soporte deberá estar en todo momento disponible para cualquier consulta que surja producto de las labores a realizar, de transgredir este artículo automáticamente perderá la prioridad.

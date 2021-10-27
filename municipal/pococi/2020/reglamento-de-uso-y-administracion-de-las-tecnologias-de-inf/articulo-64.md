@@ -1,0 +1,1 @@
+Artículo 64.-En caso autorizado de memorias USB y discos externos, es responsabilidad del usuario hacer uso del antivirus antes de copiar o ejecutar archivos para que los equipos no sean infectados. Además, los usuarios pueden solicitar apoyo al Departamento de TIC para el uso de antivirus.

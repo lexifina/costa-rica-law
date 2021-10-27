@@ -1,0 +1,1 @@
+Artículo 75.-En el momento en que se genere una infracción al presente reglamento y ponga en riesgo la seguridad tecnológica del municipio, el Departamento de TIC -sin perjuicio de lo que ordene la Alcaldía- podrá decidir la suspensión inmediatamente del equipo, sistema o servicio mientras se resuelve la situación.

@@ -1,0 +1,1 @@
+Artículo 27.-El Departamento de TIC podrá instalar y configurar el software necesario para proteger la seguridad de los sistemas tecnológicos municipales en cualquier equipo o dispositivo que esté o se vaya a conectar a alguna red vinculada con el municipio.

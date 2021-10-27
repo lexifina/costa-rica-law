@@ -1,0 +1,1 @@
+Artículo 57.-Todo usuario es responsable de mantener respaldos de su información de acuerdo con las disposiciones indicadas por el Departamento de TIC, en caso de las aplicaciones cliente-servidor, el responsable de los respaldos de las bases de datos es directamente el Departamento de TIC.

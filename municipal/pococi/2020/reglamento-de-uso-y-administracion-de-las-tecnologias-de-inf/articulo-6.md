@@ -1,0 +1,1 @@
+Artículo 6°-El Departamento de TIC, sin previo aviso y en presencia física o remota, podrá en cualquier momento realizar inspecciones de los equipos y programas que estén almacenados en los discos e informar al superior el resultado de lo obtenido.

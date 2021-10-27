@@ -1,0 +1,1 @@
+Artículo 44.-El Departamento de TIC podrá restablecer en cualquier momento la contraseña de cualquiera de los usuarios de la Municipalidad de Pococí, con previo aviso para no afectar de ninguna manera la continuidad de su trabajo, si se detecta que ha sido comprometida.

@@ -1,0 +1,1 @@
+Artículo 13.-Cuando se cree alguna plaza o se haga un cambio a una ya existente y esta requiera de equipo de cómputo, se le comunicará de inmediato el Departamento de TIC para que realicen los ajustes presupuestarios necesarios para brindar el equipo en su debido momento.

@@ -1,0 +1,1 @@
+Artículo 71.-Cuando un colaborador se encuentre en teletrabajo, deberá utilizar la plataforma indicada por el Departamento de TIC, para realizar el marcado de las entradas, salidas y los recesos correspondientes del mismo modo que lo haría como si se encontrara de forma presencial.

@@ -1,0 +1,1 @@
+Artículo 55.-El usuario es responsable del contenido de los mensajes enviados esto incluye entre otros: contenido de material ofensivo u obsceno, cualquier quebrantamiento de propiedad intelectual, copyright o cualquier información ilegal o criminal.

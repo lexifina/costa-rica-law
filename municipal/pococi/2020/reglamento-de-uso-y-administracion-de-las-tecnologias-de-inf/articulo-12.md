@@ -1,0 +1,1 @@
+Artículo 12.-La asignación de los equipos será establecida bajo los lineamientos del Departamento de TIC, solo se brindará equipo al personal interno debidamente contratado y tenga requerimientos de uso de equipo tecnológico.

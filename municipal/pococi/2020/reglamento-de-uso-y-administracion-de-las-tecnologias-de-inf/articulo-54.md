@@ -1,0 +1,1 @@
+Artículo 54.-El Departamento de TIC definirá el tipo de archivo y la capacidad máxima que se podrá enviar o recibir como datos adjuntos en los correos electrónicos por el personal de la Municipalidad de Pococí.

@@ -1,0 +1,1 @@
+Artículo 51.-Mientras se cuenten con las licencias o los recursos necesarios, todo usuario que lo requiera tendrá a disposición cuenta de correo electrónico interno, para recibir y enviar información indispensable para sus actividades, la cual se usará de forma obligatoria a menos que el Departamento de TIC autorice utilizar otro servicio.

@@ -1,0 +1,1 @@
+Artículo 47.-Se considerará una falta grave por parte de cualquier usuario que divulgue, realice ajustes internos o cambie la clave a un dispositivo de conexión inalámbrica sin la autorización del Departamento de TIC.

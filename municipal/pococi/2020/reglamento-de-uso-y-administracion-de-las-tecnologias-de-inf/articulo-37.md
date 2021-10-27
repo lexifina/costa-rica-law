@@ -1,0 +1,1 @@
+Artículo 37.-El Departamento de TIC podrá restringir el acceso de los usuarios o modificar perfiles de los equipos y programas según considere necesario para la salvaguarda de la estética y la uniformidad necesarias en una entidad pública.

@@ -1,0 +1,1 @@
+Artículo 33.-Toda solicitud de sistema de información deberá ser presentada vía oficio correspondiente al Departamento de TIC, siendo responsabilidad del área solicitante el gestionar los recursos presupuéstales necesarios para llevar a cabo el proyecto de automatización.

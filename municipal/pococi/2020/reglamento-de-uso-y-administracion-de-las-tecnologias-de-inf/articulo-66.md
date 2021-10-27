@@ -1,0 +1,1 @@
+Artículo 66.-Respetar la integridad de los sistemas de computación. Esto significa que ningún usuario podrá adelantar acciones orientadas a infiltrarse, dañar o atacar la seguridad informática de la Municipalidad de Pococí, a través de medio físico o electrónico alguno.

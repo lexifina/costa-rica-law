@@ -1,0 +1,1 @@
+Artículo 4°-Se les denominará usuarios a aquellos colaboradores de la Municipalidad de Pococí, proveedores contratados por servicios técnicos y profesionales, miembros del Concejo Municipal, Alcaldía, Vice alcaldía, Auditoría u otros que requieran utilizar equipo de cómputo o sistemas de información al servicio de la Municipalidad de Pococí.

@@ -1,0 +1,1 @@
+Artículo 76.-En los casos que se cometa una infracción y el usuario esté contratado bajo las reglas de la Ley de Contratación Administrativa y su reglamento, precautoriamente se le podrán suspender los equipos, sistemas o servicios, y se procederá de inmediato a iniciar los procedimientos correspondientes según la ley de cita y su reglamento.

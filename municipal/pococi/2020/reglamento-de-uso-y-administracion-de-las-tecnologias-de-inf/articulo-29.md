@@ -1,0 +1,1 @@
+Artículo 29.-El Departamento de TIC tendrá la potestad de rechazar cualquier tipo de solicitud para un equipo que no cuenta con las especificaciones solicitadas, además de suspenderlo cuando se encuentre que haya sido conectado a la red institucional sin la debida autorización del departamento.

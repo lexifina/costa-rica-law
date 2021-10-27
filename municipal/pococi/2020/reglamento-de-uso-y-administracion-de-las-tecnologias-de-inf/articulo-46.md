@@ -1,0 +1,1 @@
+Artículo 46.-El Departamento de TIC puede asignar discrecionalmente, a una o varias personas cercanas a un punto de acceso inalámbrico para que estas ingresen la clave directamente en dispositivos o equipos previamente autorizados.

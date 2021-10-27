@@ -1,0 +1,1 @@
+Artículo 16.-Los equipos de cómputo no podrán ser trasladados a otras oficinas que no sean de la Municipalidad de Pococí salvo que se cuente con la debida autorización escrita de la Alcaldía, lo cual se hará del conocimiento del Departamento de TI.
