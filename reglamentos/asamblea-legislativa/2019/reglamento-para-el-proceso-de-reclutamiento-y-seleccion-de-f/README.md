@@ -14,3 +14,4 @@ Reglamento para el proceso de reclutamiento y selección de funcionarios interin
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-10-23 | la propia norma |
+| 2 | 2021-10-27 | Reglamento 180 (2021-10-27) |
