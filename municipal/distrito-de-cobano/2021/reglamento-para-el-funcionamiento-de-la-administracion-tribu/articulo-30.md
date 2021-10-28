@@ -1,0 +1,4 @@
+Artículo 30 - Condiciones para otorgar arreglos de pago. El arreglo de pago se podrá otorgar en cualquier momento durante la etapa administrativa o judicial, de acuerdo con los plazos fijados en el artículo 29 de este Reglamento. Para ello, el departamento de Gestión de Cobros deberá evaluar los siguientes aspectos:
+a) Contar con los medios de notificación actualizados (dirección fiscal, correo electrónico, teléfonos, celulares y en caso de personas jurídicas nombre completo del representante legal y número de identificación del mismo).
+b) Los contribuyentes que posean el correo electrónico debidamente actualizado mediante boleta de actualización de datos oficial, podrán realizar el trámite por este medio.
+c) En caso del impuesto de bienes inmuebles, se deberá tener la declaración al día según lo indica la ley 7509.

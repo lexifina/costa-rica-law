@@ -1,0 +1,1 @@
+Artículo 40 - Del plazo del contrato para profesionales en derecho externos. La contratación estará sujeta a un plazo de un año, mismo que podrá ser renovado, siempre y cuando no existan sanciones durante el periodo recién vencido, con el fin de darle continuidad a la tramitación de los procesos judiciales iniciados en el año anterior.

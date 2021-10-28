@@ -1,0 +1,3 @@
+Artículo 34 - Sobre la documentación relacionada con los arreglos de pago.Toda la documentación que haya sido requerida por el Departamento de Cobros del Concejo Municipal para la suscripción del arreglo de pago, así como dicho documento, estarán en custodia de este mismo departamento para su conservación. Los requisitos que se establezcan para ello serán los siguientes:
+Presentar debidamente lleno el formulario de solicitud de arreglo de pago, que será brindado por el Concejo Municipal, el cual tendrá la validez de Declaración Jurada para todos los efectos legales.
+Cuando se trate de personas jurídicas, deberá aportarse la personería jurídica original con no más de quince días de emitida.

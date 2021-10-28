@@ -1,0 +1,4 @@
+SUBSECCION II
+De los arreglos de pago
+Artículo 32 - Rescisión del arreglo de pago. El convenio de arreglo de pago se resolverá únicamente, ante el pago total que realice el sujeto pasivo de la obligación vencida, o cuando se haya retrasado por más de un mes calendario en el cumplimiento de su obligación, se remitirá el expediente a etapa ejecutiva.
+Cuando se haya dado un incumplimiento de arreglo de pago y el saldo haya sido trasladado a la etapa de cobro judicial, podría concederse una nueva autorización por única vez, previo a ello, deberá cancelarse los honorarios correspondientes del profesional en derecho que represente el caso y el plazo máximo para estos casos no podrá exceder de seis meses en los pendientes correspondientes al impuesto de bienes inmuebles y servicios, en el caso de licencias comerciales deberá pagarse el total adeudado.
