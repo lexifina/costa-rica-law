@@ -60,3 +60,4 @@ Restricción vehicular diurna ante el estado de emergencia nacional en todo el t
 | 45 | 2021-09-17 | Decreto Ejecutivo 43218 (2021-09-17) |
 | 46 | 2021-09-29 | Decreto Ejecutivo 43245 (2021-09-29) |
 | 47 | 2021-10-14 | Decreto Ejecutivo 43264 (2021-10-14) |
+| 48 | 2021-10-28 | Decreto Ejecutivo 43284 (2021-10-28) |

@@ -1,5 +1,5 @@
-ARTÍCULO 3°.-Regulación horaria de la restricción vehicular diurna durante los días lunes a viernes. Durante los días lunes a viernes, inclusive, y en el período comprendido entre las 05:00 horas y las 21:59 horas, no se permitirá el tránsito vehicular según el número final (último dígito) de la placa de circulación vehicular o del permiso especial de circulación AGV, detallado a continuación.
-(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 43147 del 6 de agosto del 2021)
+ARTÍCULO 3°.-Regulación horaria de la restricción vehicular diurna durante los días lunes a viernes. Durante los días lunes a viernes, inclusive, y en el período comprendido entre las 05:00 horas y las 22:59 horas, no se permitirá el tránsito vehicular según el número final (último dígito) de la placa de circulación vehicular o del permiso especial de circulación AGV, detallado a continuación:
+(Así reformado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 43284 del 28 de octubre del 2021)
 Día | Restricción para circular según el último dígito de la placa de circulación vehicular o del permiso especial de circulación AGV
 Lunes | Placa o permiso AGV que finalice en 1 y 2
 Martes | Placa o permiso AGV que finalice en 3 y 4
