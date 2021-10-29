@@ -1,0 +1,19 @@
+N° 43063-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE LA PRESIDENCIA
+En uso de las facultades y atribuciones que les confieren los artículos 140 incisos 3), 8), 18) y 20) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de la Administración Pública N° 6227, así como la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo N° 8204;
+Considerando:
+I.-Que el Instituto Costarricense sobre Drogas (ICD), fue creado mediante Ley N° 8204, Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo.
+II.-Que el artículo 99 de la Ley N° 8204 coloca al Instituto Costarricense sobre Drogas como el encargado de coordinar, diseñar e implementar las políticas, los planes y las estrategias para la prevención del consumo de drogas, el tratamiento, la rehabilitación y la reinserción de los farmacodependientes, así como las políticas, los planes y las estrategias contra el tráfico ilícito de drogas y actividades conexas, la legitimación de capitales y el financiamiento al terrorismo. Asimismo como órgano responsable del diseño y la coordinación en la ejecución de las políticas para el abordaje del fenómeno de las drogas, la legitimación de capitales y el financiamiento al terrorismo, además de ente coordinador con las instituciones ejecutaras de programas y proyectos afines en estas materias.
+III.-Que el artículo 100, inciso f) de la Ley supra citada dispone que para el cumplimiento de sus competencias, el Instituto Costarricense sobre Drogas ejercerá entre otras funciones la de financiar programas y proyectos, así como otorgar cualquier otro tipo de asistencia a organismos, públicos y privados, que desarrollen actividades de prevención, en general, y de control y fiscalización de las drogas de uso lícito e ilícito, previa coordinación con las instituciones rectoras involucradas al efecto.
+IV.-Que en cumplimiento del artículo 117 de la Ley en mención, N° 8204, se ha programado el primer estudio biomédico del tipo observacional/epidemiológico en la población Indígena Maleku, iniciado por el ICD, debido a que dicha norma señala a la Unidad de Información y Estadística Nacional sobre Drogas del Instituto Costarricense sobre Drogas (ICD), la responsabilidad de realizar el análisis sistemático, continuo y actualizado de la magnitud, las tendencias y la evolución del fenómeno de las drogas en el país, para planificar, evaluar y apoyar el proceso de la toma decisiones en la represión y prevención en ese campo, así como para darle el respectivo seguimiento.
+V.-Que dicha investigación será realizada en la población indígena Maleku, cuyo estudio contará con cinco mediciones (cada una, cada cuatro años), con el fin de poder analizar las tendencias, y poder científicamente aceptar o rechazar las hipótesis que se han planteado en el mismo.
+VI.-Que dicha investigación implica a su vez un esfuerzo más del Estado costarricense en su atención al fenómeno de las drogas.
+VII.-Que el artículo 1 de la Ley N° 8204 declara de interés público, la adopción de las medidas necesarias para prevenir, controlar, investigar, evitar o reprimir toda actividad ilícita relativa a la materia de esta Ley. Por tanto,
+Decretan:
+DECLARATORIA DE INTERÉS PÚBLICO Y NACIONAL
+DEL ESTUDIO "PERFIL DE CONSUMO DE
+SUSTANCIAS PSICOACTIVAS DE LA
+POBLACIÓN INDÍGENA MALEKU
+DE COSTA RICA"
+Artículo 1°-Se declaran de interés público y nacional todas las acciones, actividades e iniciativas desarrolladas en el marco del estudio "Perfil de Consumo de Sustancias Psicoactivas de la Población Indígena Maleku de Costa Rica". Esta declaratoria comprende todas las actividades preparatorias relacionadas con la organización, promoción, impulso y apoyo de dicha investigación.
