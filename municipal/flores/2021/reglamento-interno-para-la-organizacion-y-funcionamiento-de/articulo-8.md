@@ -1,0 +1,1 @@
+Artículo 8º-Convenios. De conformidad con las regulaciones establecidas en el Código Municipal, la Municipalidad de Flores junto a las instituciones públicas, personas físicas, personas jurídicas y empresas privadas, podrá realizar convenios de cooperación con el fin de brindar mejoras a la seguridad local de cada cantón.

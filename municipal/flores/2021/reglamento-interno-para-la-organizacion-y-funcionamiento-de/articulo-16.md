@@ -1,0 +1,1 @@
+Artículo 16.-Uso de prendas no autorizadas. Sobre el uniforme solo podrán, portar la placa de identificación, la placa policial, la insignia de la Policía Municipal, los distintivos específicos, armamento y demás equipo autorizado por las autoridades superiores. Queda totalmente prohibido utilizar o vestir cualquier otra prenda o accesorio, no autorizado.

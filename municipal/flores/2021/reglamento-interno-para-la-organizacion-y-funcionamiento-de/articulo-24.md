@@ -1,0 +1,1 @@
+Artículo 24.-Sanciones. Las normas establecidas en el Código Municipal, en el Reglamento Autónomo de Servicios, y la Ley General de Administración Pública, el Código de Trabajo y cualquier otra supletoria en la materia, con respecto al régimen sancionatorio, serán aplicable a la Policía Municipal, sin demerito de lo establecido en el presente reglamento.

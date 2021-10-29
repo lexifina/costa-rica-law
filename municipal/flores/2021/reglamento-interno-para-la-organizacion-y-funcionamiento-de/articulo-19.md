@@ -1,0 +1,1 @@
+Artículo 19.-Uso responsable del equipo proporcionado. Los policías municipales deben asumir la responsabilidad del equipo, chaleco, arma, funda, radio, esposas, cargador, cinturón y demás accesorios. Durante el tiempo que permanezcan bajo su cuidado responderán por cualquier pérdida ocasionada por culpa grave o dolo.

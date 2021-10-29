@@ -1,0 +1,1 @@
+Artículo 23.-Proceso de selección de personal. Para la selección y nombramiento de las plazas de la Policía Municipal, se atenderá lo señalado en el Código Municipal, el Reglamento Autónomo de Organización y Servicio de la Municipalidad de Flores y en el Manual de Clasificación de Puestos.

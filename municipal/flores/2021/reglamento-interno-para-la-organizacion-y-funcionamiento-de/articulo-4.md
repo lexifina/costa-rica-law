@@ -1,0 +1,1 @@
+Artículo 4º-Alcances. Las disposiciones establecidas en este Reglamento son de acatamiento obligatorio para aquellos funcionarios municipales que se desempeñen como Policías Municipales y en general, para la ciudadanía, en materia de seguridad y orden público.

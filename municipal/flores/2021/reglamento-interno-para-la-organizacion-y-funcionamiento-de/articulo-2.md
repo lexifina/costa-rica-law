@@ -1,0 +1,1 @@
+Artículo 2º-Objeto. Este reglamento tiene como objeto regular la organización y funcionamiento de la Policía Municipal, además de las relaciones entre ésta, la ciudadanía y las demás instituciones del Estado, garantizando un ambiente de seguridad y control de todos aquellos espacios públicos de interés local.

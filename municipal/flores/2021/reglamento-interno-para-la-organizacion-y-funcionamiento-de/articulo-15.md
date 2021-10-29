@@ -1,0 +1,1 @@
+Artículo 15.-Uso uniforme. El uso del uniforme como medio de identificación, es obligatorio durante la prestación del servicio por parte de todos los Policías Municipales, excepto en casos especiales, debidamente autorizados por sus superiores. Queda prohibido el uso incompleto del mismo o la colocación descuidada de las prendas que lo conforman.

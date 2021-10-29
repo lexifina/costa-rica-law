@@ -1,0 +1,1 @@
+Artículo 18.-Uso del uniforme fuera de la jornada laboral. Fuera de la jornada laboral, queda prohibido el uso del uniforme, junto con el chaleco de seguridad suministrado por la Institución y todos aquellos elementos que lo componen.

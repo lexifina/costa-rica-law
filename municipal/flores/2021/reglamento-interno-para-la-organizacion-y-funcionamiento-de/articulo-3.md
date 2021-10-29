@@ -1,0 +1,1 @@
+Artículo 3º-Financiamiento. La Policía Municipal será financiada con recursos creados por las diferentes leyes existentes, con recursos propios que se generen de los demás servicios de seguridad y vigilancia ciudadana, donaciones y otros.

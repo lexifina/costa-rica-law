@@ -1,0 +1,2 @@
+Artículo 26.-Evaluación del desempeño. Las normas establecidas en el Código Municipal, en el Reglamento Autónomo de Servicios, y la Ley General de Administración Pública, el Código de Trabajo y cualquier otra supletoria en la materia, con respecto a las evaluaciones del desempeño, serán aplicables a la Policía Municipal, sin demerito de lo establecido en el presente reglamento.
+Rige a partir de su publicación.
