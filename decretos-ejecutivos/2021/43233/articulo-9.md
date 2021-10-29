@@ -1,0 +1,1 @@
+Artículo 9°- Supervisión. Las autoridades del Ministerio de Salud serán las encargadas de controlar y verificar el cumplimiento de las disposiciones establecidas en el presente Decreto y aplicar las medidas sanitarias especiales contenidas en los artículos 356 y siguientes de la Ley No. 5395 del 30 de octubre de 1973 "Ley General de Salud".

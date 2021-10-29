@@ -1,0 +1,2 @@
+Artículo 3°- Prescripción por Denominación Común Internacional. Toda receta o prescripción realizada por alguno de los profesionales citados en el artículo 2 de este Decreto, deberá efectuarse indicando la Denominación Común Internacional (DCI) del principio activo.
+Asimismo, el prescriptor podrá indicar, adicional a la denominación común internacional, el nombre comercial del medicamento prescrito.
