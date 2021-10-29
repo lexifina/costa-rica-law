@@ -1,0 +1,5 @@
+Artículo 24.-Comité de Auditoría. La Junta Directiva integrará un Comité de Auditoría, como órgano técnico de apoyo para el control y seguimiento de las políticas, procedimientos y controles que se establezcan en la Institución.
+El Comité de Auditoría es un cuerpo colegiado integrado por los Directores de la Junta Directiva que se definirán reglamentariamente. Todos los miembros deben poseer las habilidades, conocimientos y experiencia demostrable en el manejo y comprensión de la información financiera, así como en temas de contabilidad y auditoría.
+También pueden participar sin derecho a voto, el Director Ejecutivo, el Auditor Interno, y los funcionarios que el Comité de Auditoría considere necesarios, así como el Auditor Externo cuando así lo requiera dicho Comité.
+El Comité de Auditoría debe realizar dentro de sus funciones todas las estipuladas en esta normativa y las demás funciones y requerimientos de las normativas especiales que le sean aplicables.
+Las personas que integren este Comité son responsables de cumplir a cabalidad las funciones encomendadas por la Junta Directiva y que serán establecidas en el Reglamento interno de dicho Comité.

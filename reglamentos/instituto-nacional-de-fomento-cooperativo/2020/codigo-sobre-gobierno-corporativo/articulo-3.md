@@ -1,0 +1,1 @@
+Artículo 3°-Divulgación y seguimiento. En virtud de lo aquí dispuesto, el área de Comunicación e Imagen se encargará de la divulgación del presente Código y el área de Desarrollo Estratégico, en coordinación con el área de Desarrollo Humano, darán seguimiento al cumplimiento y aplicación del Código e informarán periódicamente a la Junta Directiva sobre los resultados alcanzados.

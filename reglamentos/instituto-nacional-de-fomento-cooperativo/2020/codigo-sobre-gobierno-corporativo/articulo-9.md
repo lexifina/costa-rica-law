@@ -1,0 +1,1 @@
+Artículo 9°-Para ser miembro integrante de dicha Junta Directiva, deberá cumplirse con la serie de requisitos y requerimientos establecidos en la Ley 4179, idoneidad comprobada y desempeñar sus funciones dentro de lo establecido en dicha ley, particularmente en el Reglamento Interno de la Junta Directiva y de este Código de Gobierno Corporativo.

@@ -1,0 +1,1 @@
+Artículo 27.-Reglamento Interno del Comité de Riesgos. El Comité de Riesgos cuenta con su reglamento interno aprobado por la Junta Directiva, el cual contiene las políticas y procedimientos para el cumplimiento de sus funciones, para la selección de los miembros del comité, esquema de votación, periodicidad de sus reuniones y los informes que se remitan a la Junta Directiva.
