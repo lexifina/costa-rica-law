@@ -1,0 +1,1 @@
+ARTÍCULO 82. Multa por presentación de información inexacta Los sujetos pasivos que presenten información inexacta ante la Unidad de Administración Tributaria del IMAS, referida a la declaración de las variables de calificación y que incidan en la categorización del establecimiento deberán pagar la multa establecida en el artículo 79 del CNPT.

@@ -1,0 +1,2 @@
+ARTÍCULO 29. Del pago
+Los sujetos pasivos deberán pagar el impuesto por los medios, la forma y las condiciones que establezca el IMAS, a más tardar dentro de los primeros ocho días naturales del mes siguiente una vez finalizado el mes en el que se generó el impuesto. El monto a pagar será establecido de conformidad con el artículo 4 y 5 de la Ley Nº 9326 y los procedimientos establecidos en el CNPT y su reglamento de forma supletoria.

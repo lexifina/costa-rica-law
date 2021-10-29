@@ -1,0 +1,2 @@
+ARTÍCULO 26. De los lineamientos para consignar la información tributaria respecto a la calificación.
+La Administración Tributaria del IMAS está facultada para establecer los lineamientos a utilizar para la calificación, mediante resolución general emitida por la Gerencia General del IMAS, dicha resolución se dará a conocer a la ciudadanía por medio de un aviso en un diario de circulación nacional y a través del sitio WEB del IMAS.

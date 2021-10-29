@@ -1,0 +1,5 @@
+ARTÍCULO 76. Afectación del cierre del negocio.
+La orden de cierre afectará todos los negocios indicados en el artículo primero, tanto de la Ley Nº 9326 como de este Reglamento.
+Si la orden de cierre afecta a un local que sirva de habitación a una o más personas, o a un edificio en que se encuentren varios establecimientos, ésta se ejecutará de tal forma que no impida el acceso a la casa de habitación o a los otros establecimientos comerciales.
+Si en un mismo local se encuentran varios negocios, ya sea que compartan o no el equipo o la maquinaria, la orden de cierre consistirá en la prohibición expresa para el infractor de ejercer la actividad, lo cual se hará constar en un acta.
+Si en el establecimiento que se va a cerrar, se encuentran mercancías perecederas y/o animales vivos, se solicitará a quien atienda la diligencia de cierre por parte del negocio, que les coloque en un lugar que consideren pertinente. En todo caso, cuando ocurra pérdida o afectación ésta correrá por cuenta del sujeto pasivo.

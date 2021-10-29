@@ -1,0 +1,2 @@
+ARTÍCULO 48. Inactividad temporal
+Cuando un establecimiento vaya a suspender temporalmente su explotación comercial, deberá comunicarlo a la Administración Tributaria del IMAS dentro de los 10 días hábiles previos a la suspensión salvo las situaciones de caso fortuito o fuerza mayor. El sujeto pasivo, deberá indicar el plazo por el cual cesará la actividad comercial. La Administración Tributaria del IMAS se reserva la potestad de verificar la suspensión temporal.

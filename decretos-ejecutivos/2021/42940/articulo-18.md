@@ -1,0 +1,2 @@
+ARTÍCULO 18. De la documentación del sujeto pasivo como medio de prueba
+Toda documentación del sujeto pasivo, responsable o declarante, según el caso, siempre que sea de interés para el adecuado cumplimiento de las obligaciones tributarias establecidas en la Ley Nº 9326, constituirán elemento de prueba idónea para el procedimiento que corresponda, por lo que la Unidad de Administración Tributaria del IMAS está en facultad de requerirla cuando así lo considere pertinente. No obstante, la información podrá ser desvirtuada mediante otros elementos de prueba externos a esta.

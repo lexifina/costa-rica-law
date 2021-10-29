@@ -1,0 +1,2 @@
+ARTÍCULO 64. Segregación y ponderación de variables
+Para obtener los puntajes de las dos variables descritas en el artículo anterior, se procederá a calificar cantidad y calidad, de conformidad con los parámetros del formulario de calificación que serán establecidos mediante resolución general emitida por la Gerencia General del IMAS, dicha resolución se dará a conocer a la ciudadanía por medio de un aviso en un diario de circulación nacional, y a través del sitio WEB del IMAS.

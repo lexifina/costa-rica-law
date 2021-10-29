@@ -1,0 +1,4 @@
+ARTÍCULO 25. De la colaboración a las personas funcionarias de la Administración Tributaria del IMAS
+Los sujetos pasivos y terceros deberán atender a las personas funcionarias del IMAS y prestarles la mayor colaboración en el desarrollo de sus funciones. Cuando deban realizar comprobaciones o ejecutar sus labores en el establecimiento del sujeto pasivo, éste deberá poner a disposición de dichos funcionarios un lugar de trabajo adecuado, así como los medios auxiliares necesarios, de acuerdo con sus posibilidades.
+Los sujetos pasivos, deberán permitir el ingreso al establecimiento de las personas funcionarias del IMAS para la inspección del lugar, quienes podrán hacerse acompañar de cualquier persona colaboradora del sujeto pasivo en el recorrido de la inspección del establecimiento.
+En caso de impedirse el ingreso, se podrá requerir la colaboración de la Fuerza Pública.

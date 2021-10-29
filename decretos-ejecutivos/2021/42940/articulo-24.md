@@ -1,0 +1,2 @@
+ARTÍCULO 24. De los deberes específicos de terceros
+Toda persona física o jurídica, pública o privada, en calidad de informante, estará obligada a proporcionar a la Administración Tributaria del IMAS la información de trascendencia tributaria sobre sujetos pasivos actuales o potenciales que se halle en su poder, con las limitaciones que establece la ley. Por información de trascendencia tributaria se entenderá aquélla que directa o indirectamente conduzca a la aplicación de los tributos de la Ley Nº 9326.

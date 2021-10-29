@@ -1,0 +1,4 @@
+ARTÍCULO 53. Obligación de comunicar el domicilio
+Los sujetos pasivos deberán comunicar su domicilio fiscal a la Unidad de Administración Tributaria del IMAS, o cualquier cambio a éste.
+El cambio de domicilio fiscal no producirá efectos ante la Unidad de Administración Tributaria del IMAS hasta que se cumpla con dicho deber de comunicación, pero ello no impedirá que, conforme a lo establecido reglamentariamente, los procedimientos que se hayan iniciado de oficio, antes de la comunicación de dicho cambio, puedan continuar tramitándose por el órgano correspondiente al domicilio inicial, siempre que las notificaciones derivadas de dichos procedimientos se realicen de acuerdo con lo previsto en la ley.
+La Unidad de Administración Tributaria del IMAS podrá comprobar y rectificar de oficio el domicilio fiscal declarado por los obligados tributarios.

@@ -1,0 +1,1 @@
+TRANSITORIO I.- A los sujetos pasivos que al entrar en vigencia este Decreto Ejecutivo se encuentren en estado de morosidad y no se les haya emitido resolución de Determinación Tributaria, se les aplicará el proceso de regularización establecido en el Título IV Procedimientos de la Administración Tributaria del IMAS, Capítulo II Proceso de Regularización.

@@ -1,0 +1,2 @@
+ARTÍCULO 75. Orden y ejecución del cierre de negocios.
+La orden de cierre se ejecutará por medio de las personas funcionarias de la Unidad de Administración Tributaria; pudiéndose acompañar por la Fuerza Pública. De todo lo actuado se levantará un acta que deberá ser firmada por las partes intervinientes en la ejecución del cierre. Si alguna de ellas se negare a firmar o se retirare sin hacerlo, se consignará en el acta esa circunstancia.

@@ -1,0 +1,3 @@
+ARTÍCULO 55. Comprobación de las declaraciones juradas
+Las declaraciones juradas que presenten los sujetos pasivos podrán ser sujetas a comprobación por parte de la Unidad de Administración Tributaria, mediante visitas de campo o aquellas gestiones que considere oportunas.
+En caso de que se encuentren diferencias entre el contenido de la declaración jurada y el resultado de la investigación, se procederá a prevenir al sujeto pasivo para que aclare en el plazo de 5 días hábiles. En caso de no regularizar la situación, se dará por válida la información recolectada por parte de la Unidad de Administración Tributaria del IMAS, sin perjuicio de las acciones judiciales que se estimen convenientes.

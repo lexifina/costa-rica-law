@@ -1,0 +1,2 @@
+ARTÍCULO 47. Desinscripción de oficio
+Cuando se constate que un sujeto pasivo no se ha desinscrito, a pesar de haber dejado de realizar labores o actividades generadoras de obligaciones tributarias, la Unidad de Administración Tributaria del IMAS desinscribirá de oficio mediante resolución a aquellos que no hayan cumplido con tal obligación, sin perjuicio de que se apliquen las sanciones administrativas pertinentes.

@@ -1,0 +1,2 @@
+ARTÍCULO 34. Compensación a solicitud de parte.
+Cuando la Unidad de Administración Tributaria del IMAS no haya realizado la compensación de oficio, el sujeto pasivo podrá solicitar por escrito la compensación, evidenciando los hechos en que su solicitud se fundamenta, debiendo la Unidad de Administración Tributaria del IMAS conocer y resolver la solicitud en el plazo de diez días hábiles mediante resolución motivada, la cual contará con los recursos y plazos de impugnación indicados en el artículo anterior.

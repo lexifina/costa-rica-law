@@ -1,0 +1,2 @@
+ARTÍCULO 62. Emisión del acto administrativo de requerimiento de cobro administrativo
+Una vez estando en firme el acto administrativo regulado en el artículo anterior, se procederá a emitir un único requerimiento de pago, transcurrido el plazo de cinco días hábiles sin que regularice su situación tributaria, se emitirá la correspondiente certificación de deuda para su trámite de cobro judicial, sin perjuicio de las gestiones de cierre correspondiente, según lo establece la Ley Nº 9326. Contra dicho acto no procederá la interposición de recurso alguno.
