@@ -1,0 +1,1 @@
+Artículo 12.-Certificación de los medios tecnológicos. El Departamento de Tecnologías de la Información emitirá informe técnico en el cual se indicará que la Municipalidad de Flores cuenta con los medios tecnológicos para llevar a cabo la audiencia pública bajo la modalidad virtual.

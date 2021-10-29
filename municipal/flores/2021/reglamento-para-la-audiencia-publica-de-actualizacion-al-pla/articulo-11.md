@@ -1,0 +1,1 @@
+Artículo 11.-De la modalidad virtual. La Municipalidad de Flores podrá optar por realizar la audiencia pública del proyecto de actualización al Plan Regulador de Flores, de forma virtual, para lo cual deberá garantizar que cuenta con los medios electrónicos necesarios.

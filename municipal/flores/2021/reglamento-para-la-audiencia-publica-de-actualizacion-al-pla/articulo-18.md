@@ -1,0 +1,1 @@
+Artículo 18.-De la modalidad mixta. La Municipalidad de Flores podrá optar por realizar la audiencia pública del proyecto de reforma al Plan Regulador de Flores, de forma mixta, sea presencial y virtual, para lo cual deberá atenderse lo aquí regulado para cada uno de los escenarios.

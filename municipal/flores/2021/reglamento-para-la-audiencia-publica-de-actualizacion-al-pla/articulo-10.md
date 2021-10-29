@@ -1,0 +1,4 @@
+Artículo 10.-Acceso al evento. Las puertas del establecimiento acordado para la realización de la audiencia pública, se abrirán con una hora de anterioridad, quien se haya registrado, deberá mostrar a la entrada su identificación para verificar su número de inscripción y guiarle hacia su asiento.
+Para ingresar al establecimiento, deberá cumplirse con las normas sanitarias exigidas por el Estado, será obligatorio el lavado y desinfección de las manos, el uso de mascarilla, el distanciamiento, el protocolo de estornudo y tos y cualquier otro vigente a la fecha.
+Queda absolutamente prohibido el ingreso de personas con síntomas propios de la enfermedad causada por el virus SAR COV-19, o cualquier otro decretado como epidemia o pandemia, por lo que, en caso de verificarse los síntomas, no se permitirá el ingreso.
+No se permitirá el ingreso de menores de edad.

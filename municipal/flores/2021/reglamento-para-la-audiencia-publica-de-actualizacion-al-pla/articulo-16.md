@@ -1,0 +1,1 @@
+Artículo 16.-Uso de la cámara y el micrófono durante la audiencia. Por razones de orden, UNICAMENTE se permitirá la utilización de la cámara y micrófono, a quienes participen en la audiencia, hasta el espacio final de la audiencia, esto para facilitar la exposición que se debe de realizar con respecto al proyecto de actualización del Plan Regulador de Flores.

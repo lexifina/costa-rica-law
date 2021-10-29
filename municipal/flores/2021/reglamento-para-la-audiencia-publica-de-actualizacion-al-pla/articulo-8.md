@@ -1,0 +1,1 @@
+Artículo 8º-De la modalidad presencial. De optarse por esta modalidad, la Municipalidad de Flores velará por seleccionar el espacio físico más adecuado para llevar a cabo la audiencia pública, en cumplimiento de los protocolos sanitarios establecidos por el Estado vigentes a la fecha de realización de la misma.

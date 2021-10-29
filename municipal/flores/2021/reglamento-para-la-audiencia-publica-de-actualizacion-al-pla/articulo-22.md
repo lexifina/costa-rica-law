@@ -1,0 +1,1 @@
+Artículo 22.-Sometimiento a estudio por parte del Concejo Municipal. Recibido el informe final del proyecto de actualización del Plan Regulador del Cantón de Flores, el Concejo Municipal someterá aprobación el mismo, a efecto de continuar con el trámite pertinente.

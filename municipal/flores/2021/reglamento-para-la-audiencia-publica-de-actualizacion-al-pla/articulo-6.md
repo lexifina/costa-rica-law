@@ -1,0 +1,1 @@
+Artículo 6º-Medios de consulta previos a la Audiencia. Con el fin de atender cualquier consulta acerca del acceso a la participación de las audiencias públicas, se pone a disposición de los interesados el número telefónico de la Plataforma de Servicios, 2265 7109, extensión 119, y el correo electrónico audienciapublica@flores.go.cr.
