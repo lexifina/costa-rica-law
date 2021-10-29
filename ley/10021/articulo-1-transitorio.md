@@ -1,0 +1,1 @@
+TRANSITORIO I- El Poder Ejecutivo, previa consulta al Tribunal Ambiental Administrativo, adecuará sus disposiciones y demás normativa reglamentaria en esta materia en el plazo de seis meses a partir de la entrada en vigencia de esta ley.

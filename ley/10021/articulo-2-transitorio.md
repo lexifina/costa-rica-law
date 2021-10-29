@@ -1,0 +1,1 @@
+TRANSITORIO II- La reforma dispuesta para el artículo 105 de la Ley 7554, Ley Orgánica del Ambiente, de 4 de octubre de 1995, no afectará los nombramientos vigentes de quienes integran el Tribunal Ambiental Administrativo, sino que regirá a partir de los nombramientos que se realicen después de la entrada en vigencia de la presente ley.
