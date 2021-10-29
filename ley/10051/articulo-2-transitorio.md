@@ -1,0 +1,1 @@
+TRANSITORIO II- El Consejo Nacional de Supervisión del Sistema Financiero (Conassif) contará con un plazo de seis meses para emitir las disposiciones reglamentarias que se deriven de las obligaciones de esta ley.
