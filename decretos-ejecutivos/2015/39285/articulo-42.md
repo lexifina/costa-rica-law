@@ -1,1 +1,0 @@
-Artículo 42.—Confidencialidad ante terceros sobre la información de auditorías en proceso. El personal de la Auditoría Interna, no anticipará criterios ante terceros sobre información de auditorías que estén en proceso, considerando que no existe un informe oficial sobre el tema. Adicionalmente, la información o documentos generados se consideran confidenciales.

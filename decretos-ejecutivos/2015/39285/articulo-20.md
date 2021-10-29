@@ -1,1 +1,0 @@
-Artículo 20.—Subordinación del personal de la Auditoría Interna: El personal de la Auditoría Interna depende del Auditor (a) Interno (a) y es responsable ante él (ella) en el desempeño de sus funciones, las cuales ejercen de conformidad con este Reglamento, con las instrucciones recibidas, los manuales técnicos que al efecto emita la Auditoría Interna y la Contraloría.

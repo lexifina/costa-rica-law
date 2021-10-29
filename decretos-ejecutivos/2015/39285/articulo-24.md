@@ -1,1 +1,0 @@
-Artículo 24.—Archivo permanente. La Auditoría Interna mantendrá información relevante sobre sus productos y de CONAVI, debidamente actualizada ya sea en forma impresa, digital u otro medio electrónico.

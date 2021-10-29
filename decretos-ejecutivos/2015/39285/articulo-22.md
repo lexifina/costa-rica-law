@@ -1,1 +1,0 @@
-Artículo 22.—Protección al personal de Auditoría Interna: Cuando el personal de la Auditoría Interna en el cumplimiento de sus funciones se involucre en un conflicto legal o una demanda, el CONAVI deberá brindarle el respaldo jurídico y técnico y cubrir los costos para atender el proceso hasta su resolución final.

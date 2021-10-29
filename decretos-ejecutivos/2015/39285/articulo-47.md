@@ -1,2 +1,0 @@
-Artículo 47.—Responsabilidad de la Administración en la implantación de recomendaciones. La Administración será la responsable de la efectiva, eficiente y oportuna implantación de todas las recomendaciones emitidas por la Auditoría Interna.
-En caso de que las recomendaciones por su alcance y complejidad requieran la realización de una serie de actividades en el tiempo para su consecución, éstas deberán estar contempladas dentro del plan anual operativo.

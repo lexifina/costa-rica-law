@@ -1,4 +1,0 @@
-Artículo 46.—Resolución de conflictos relacionados con las recomendaciones de la Auditoría Interna.
-a) Cuando el informe final de auditoría es dirigido al titular subordinado y existiera alguna discrepancia, esta situación se regirá conforme al artículo 36 de la Ley N° 8292.
-b) Seguidamente, el Jerarca en un plazo de 20 días hábiles contados a partir de la fecha de recibida la documentación enviada por el titular subordinado, ordenará según el criterio debidamente razonado, lo siguiente: a) la implantación de las recomendaciones de la auditoría b) la propuesta por el titular subordinado o c) su propia resolución. Este acto deberá comunicarse a la Auditoría Interna y al titular subordinado.
-c) Cuando el Jerarca ordene soluciones distintas a las recomendadas en el informe final y se dé inconformidad por parte de la Auditoría Interna, con las mismas, la situación se regirá conforme al artículo 38 de la Ley N° 8292.

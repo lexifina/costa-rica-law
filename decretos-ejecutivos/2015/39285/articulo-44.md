@@ -1,5 +1,0 @@
-Artículo 44.—Comunicación del informe final.
-a) La Auditoría Interna comunicará los resultados de sus estudios mediante la emisión de informes finales escritos, dirigidos al Consejo de Administración, al Director Ejecutivo o al titular subordinado competente que pueda tomar decisiones e implementar las recomendaciones y las oportunidades de mejora.
-b) La Auditoría Interna de acuerdo con su criterio, podrá emitir informes parciales durante la etapa de examen de sus auditorías. Toda auditoría siempre dará lugar a un informe final.
-c) La estructura de los informes o estudios especiales de auditoría, será conforme con las políticas que al respecto emita la organización de auditoría y en atención a los requerimientos técnicos. Además, deben elaborarse en un lenguaje sencillo, ser objetivos, concisos, claros, completos, exactos e imparciales, basados en hechos y respaldados con evidencia suficiente, competente y pertinente.
-d) Todos los productos que se generen en la Auditoría Interna deben ser firmados por los funcionarios que participen en el estudio (analista, supervisor, asesor, técnico, otros).

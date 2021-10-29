@@ -1,1 +1,0 @@
-Artículo 34.—Servicios preventivos. Los servicios preventivos incluyen: asesoría, advertencia y autorización de libros. En los servicios de la asesoría y advertencia debe prevalecer el principio de objetividad e independencia de criterio.

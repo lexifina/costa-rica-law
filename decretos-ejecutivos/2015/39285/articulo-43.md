@@ -1,9 +1,0 @@
-SECCIÓN IV
-Comunicación de Resultados
-Artículo 43.—Conferencia y acta final de los resultados.
-a) Antes de emitir las conclusiones y recomendaciones finales de un estudio, la Auditoría Interna deberá analizar los hallazgos; mediante un informe borrador, con el funcionario o encargado responsable de poner en marcha dichas recomendaciones, con el fin de obtener su punto de vista y propiciar las acciones correctivas u oportunidades de mejora. Se exceptúa los estudios especiales y aquellos casos que pueden derivar en responsabilidades de distinta naturaleza (administrativa, civil, entre otros) sobre funcionarios, ex funcionarios y terceros; los resultados no deberán discutirse con los involucrados.
-b) La Auditoría Interna solicitará audiencia para efectuar la conferencia con el Jerarca, funcionario o encargado responsable, quien deberá dársela a la brevedad posible; salvo justificación razonada en contrario, deberá establecerse dentro de los diez días hábiles siguientes después del recibida la solicitud de audiencia.
-c) De no presentarse, se procederá a emitir el informe final.
-d) En caso que dentro de la conferencia apareciera algún tipo de discrepancia y no se llegue a un acuerdo con las observaciones escritas que presente el funcionario (a), la Auditoría Interna en el informe final valorará dicha observación y sólo variará su criterio, cuando se le demuestre con razones fundadas y a su entera satisfacción.
-e) El (la) auditor(a) responsable del informe, debe confeccionar un acta de la conferencia final, en la cual citará los asuntos más relevantes ocurridos y cualquier compromiso adquirido por los (las) funcionarios(as) responsables.
-f) El informe borrador es confidencial solo para las partes del mismo y no tiene ningún efecto administrativo ni legal, la divulgación a terceros corresponde a una falta administrativa, sin menos cabo de las responsabilidades civiles o penales que se puedan derivar.
