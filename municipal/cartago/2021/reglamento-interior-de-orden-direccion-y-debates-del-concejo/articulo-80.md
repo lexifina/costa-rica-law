@@ -1,0 +1,1 @@
+Artículo 80. Una vez determinados los acuerdos pendientes de cumplir por parte de las personas funcionarias responsables, el Concejo Municipal, por una única vez realizará una prevención de cumplimiento.

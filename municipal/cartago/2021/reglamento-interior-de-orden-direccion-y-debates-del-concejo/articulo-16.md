@@ -1,0 +1,3 @@
+Artículo 16. De la convocatoria de las personas funcionarias municipales.
+El Concejo Municipal podrá convocar directamente a las personas funcionarias municipales que se requieran para que asistan a sesiones ordinarias o extraordinarias, con el fin de que informen sobre asuntos propios de su cargo y sin que por ello deba pagárseles remuneración adicional alguna.
+La convocatoria deberá ser siempre motivada y eventual. Cuando se refiere a proyectos, licitaciones, presupuestos o asuntos que han firmado los técnicos no requiere mayor fundamentación que la indicación del asunto para el cual se requiere. De igual manera tratándose de persona de la auditoría, será suficiente la convocatoria con indicación del asunto al cual se requiere se refiera.

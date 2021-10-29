@@ -1,0 +1,4 @@
+Artículo 5. Sesiones extraordinarias
+El Concejo Municipal sesionará extraordinariamente de acuerdo con los artículos 36 y 37 del Código Municipal y su objeto debe ser motivado por razones de necesidad y no de manera antojadiza.
+La convocatoria a sesiones extraordinarias deberá hacerse por lo menos con veinticuatro horas de anticipación a la sesión, mediante convocatoria realizada en sesión anterior, o mediante notificación a la dirección electrónica que hayan señalados los miembros y en caso de requerirse en forma personal.
+En sesiones extraordinarias, celebradas el mes, día y hora de la convocatoria, se conocerán exclusivamente los asuntos indicados expresamente en la convocatoria, salvo que por unanimidad de las personas regidoras propietarias presentes se decida conocer otros asuntos, previo a la orden del día que indique la presidencia Municipal.

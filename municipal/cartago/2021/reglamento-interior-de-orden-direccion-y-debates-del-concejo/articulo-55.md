@@ -1,0 +1,3 @@
+Artículo 55. De la obligación de las regidoras y regidores propietarios de trabajar en las comisiones y de la posibilidad de cambio de comisión.
+Será obligación de las personas regidoras propietarias trabajar en diversas comisiones salvo razones debidamente justificadas, y desempeñar ese cargo de manera eficiente y proactiva.
+Cuando una persona regidora sea nombrada en una comisión, podrá solicitar cambiar su puesto con otro compañero de fracción, lo cual deberá fundamentar válidamente, siempre y cuando aquel esté de acuerdo y cuente con el visto bueno de la jefatura de fracción, lo cual requiere la aprobación final de la presidencia municipal. La resolución de la presidencia no tendrá recurso alguno por tratarse de una potestad reservada exclusivamente a ella.

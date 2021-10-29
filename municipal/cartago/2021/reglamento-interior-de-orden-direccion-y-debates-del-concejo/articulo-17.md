@@ -1,0 +1,4 @@
+Artículo 17. De las sesiones solemnes.
+El Concejo Municipal podrá acordar que una sesión ordinaria o extraordinaria sea calificada como sesión solemne, con el fin exclusivo de recibir u homenajear a una persona costarricense o extranjera, o entidad gubernamental o cualquier otra, celebrar un acontecimiento o fecha importante o dedicarla a cualquier otro asunto que se considere de naturaleza solemne.
+En las sesiones solemnes se atenderá estrictamente el orden protocolario que se establezca en la convocatoria, y debido a esa calificación y solemnidad, podrá hacer uso de la palabra alguna persona que se designe protocolariamente, así como la persona invitada u homenajeada, sin perjuicio de las personas miembras del gobierno municipal y las personas que ocupan las sindicalías.
+El otorgamiento de distinciones observará el procedimiento establecido en el reglamento correspondiente.

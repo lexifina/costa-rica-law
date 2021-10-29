@@ -1,0 +1,4 @@
+Capítulo XII.
+De los recursos
+Artículo 65. De los recursos en general.
+En los términos del artículo 162 del Código Municipal las personas regidoras podrán solicitar revisión de los acuerdos municipales tomados por el Concejo, quien ocupe la alcaldía municipal podrá interponer veto contra los mismos. Asimismo, por parte de cualquier interesado, sea todo aquel que tenga un interés legítimo (individual, corporativo, colectivo o difuso) o un derecho subjetivo que pueda resultar afectado o lesionado en virtud de determinado acuerdo municipal, por tener, aunque no sea vecino del cantón, intereses morales, ambientales, científicos, económicos o de otra índole en esa circunscripción territorial, cabrán los recursos ordinarios de revocatoria y apelación, el extraordinario de revisión y ejercer las acciones jurisdiccionales reguladas por las leyes.

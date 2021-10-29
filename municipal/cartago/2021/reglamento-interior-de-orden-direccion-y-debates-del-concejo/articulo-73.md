@@ -1,0 +1,3 @@
+Artículo 73. Motivos de excusa
+Son motivos de excusa los dispuestos en el artículo 31 del Código Municipal, y en consecuencia de no excusarse cualquier persona interesada podrá recusarlo. Los motivos de recusación deben exponerse y documentarse en forma clara y expresa en el escrito de la solicitud, so pena de recharzarse por inadmisible.
+Cuando el motivo de recusación sea la existencia de un proceso judicial entre las partes, se debe presentar evidencia de la autoridad judicial o administrativa en que haga constar que la denuncia se le ha dado trámite y en caso de que exista resolución final indicar el resultado de la misma, en caso no presentarse la misma, la recusación no se admitirá.

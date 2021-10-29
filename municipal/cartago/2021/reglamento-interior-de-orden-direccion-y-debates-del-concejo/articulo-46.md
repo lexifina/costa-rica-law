@@ -1,0 +1,2 @@
+Artículo 46. De la petición de apoyo técnico y asesores para el trabajo de las comisiones.
+Con el propósito de optimizar y hacer efectivo el trabajo de las comisiones del Concejo, si alguna comisión municipal requiere apoyo técnico para sus cometidos, la presidencia de la comisión procederá a transmitir dicha petición a la Alcaldía Municipal para que designe en calidad de asesoras las personas funcionarias administrativas necesarias, o simplemente la asesoren en un asunto específico.

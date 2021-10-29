@@ -1,0 +1,4 @@
+Artículo 64. De los proyectos de presupuesto extraordinario y los de modificaciones.
+Los proyectos de presupuesto extraordinario y los de modificaciones, deberán ser presentados a la presidencia municipal, con copia al correo electrónico de las personas regidoras propietarias y suplentes y síndicas con al menos tres días de antelación a aquel en que lo conocerá el Concejo Municipal.
+Los presupuestos extraordinarios y los de modificaciones podrán ser conocidos por el Concejo en sesiones ordinarias o extraordinarias. Las modificaciones presupuestarias que modifiquen partidas de un programa a otro, requerirán el voto de dos terceras partes de la totalidad miembros del Concejo.
+Una vez aprobado un presupuesto extraordinario o una modificación, la persona titular de la Alcaldía deberá remitirlo a la Contraloría General de la República, dentro de los quince días siguientes.

@@ -1,0 +1,2 @@
+Artículo 31. De la consignación de las votaciones.
+De la votación realizada y su resultado, el directorio municipal consignará en el acta respectiva, junto con el acuerdo respectivo de la misma, el total de los votos emitidos, válidos o no, cuántos de estos son a favor y cuántos en contra, así como las constancias de votos solicitadas por las personas regidoras, o cualesquier otro detalle o incidencia acaecida en ese ínterin de la votación.

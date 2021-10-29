@@ -1,0 +1,2 @@
+Artículo 68. Del recurso extraordinario de revisión.
+A la tramitación y sustanciación de este recurso le serán aplicables las normas precedentes con excepción de las que gobiernan la informalidad, y que el informe técnico deberá ser aún más detallado y fundamentado debido a la naturaleza de ese recurso y del tipo de nulidad que invoca, absoluta. No procederá el recurso extrarodinario de revisión contra aquellos acuerdos sobre los cuales cabe el recurso de revocatoria y apelación y se haya ejercido ese detecho.
