@@ -1,0 +1,1 @@
+Artículo 3º-Los plazos establecidos en el numeral anterior se entenderán ordenatorios y no perentorios. En todo caso, deberá justificarse por parte del funcionario correspondiente, si se excede de tales términos.

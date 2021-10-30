@@ -1,0 +1,1 @@
+Artículo 5º-Las personas que se acojan a los beneficios aquí establecidos quedarán sujetas a las limitaciones y prohibiciones establecidas en el artículo 27 de la ley para el Equilibrio Financiero del Sector Pública (Ley 6955), por lo que el departamento de recursos humanos deberá llevar control estricto de ello.

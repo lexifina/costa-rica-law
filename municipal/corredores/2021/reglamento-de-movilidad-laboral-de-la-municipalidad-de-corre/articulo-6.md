@@ -1,0 +1,1 @@
+Artículo 6º-Los beneficios establecidos en este reglamento podrán ser aplicados hasta un máximo de 5 trabajadores por año. De igual manera, la administración municipal podrá negar el beneficio cuando razones de interés financiero así lo aconsejen, o bien cuando no sea posible prescindir de la plaza correspondiente, lo cual deberá ser debidamente razonado.
