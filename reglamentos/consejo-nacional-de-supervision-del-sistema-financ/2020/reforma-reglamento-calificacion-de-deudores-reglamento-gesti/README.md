@@ -14,3 +14,4 @@ Reforma Reglamento Calificación de Deudores, Reglamento Gestión y Evaluación 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-10 | la propia norma |
+| 2 | 2021-11-01 | Reglamento 1697 (2021-11-01) |
