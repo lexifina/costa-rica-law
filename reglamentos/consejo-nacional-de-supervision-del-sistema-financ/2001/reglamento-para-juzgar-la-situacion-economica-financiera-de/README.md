@@ -46,3 +46,4 @@ Reglamento para Juzgar la situación económica financiera de las Asociaciones M
 | 31 | 2020-08-31 | Reglamento 1602 (2020-08-31) |
 | 32 | 2020-11-02 | Reglamento 1617 (2020-11-02) |
 | 33 | 2021-05-17 | Reglamento 1663 (2021-05-17) |
+| 34 | 2021-11-01 | Reglamento 1697 (2021-11-01) |
