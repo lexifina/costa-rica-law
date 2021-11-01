@@ -1,0 +1,1 @@
+Artículo 10.-Una vez aprobada la donación por parte del Concejo Municipal o la Alcaldía Municipal, según corresponda, se procederá a comunicar la aprobación a la entidad donante, para su formalización.

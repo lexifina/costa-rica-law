@@ -1,0 +1,1 @@
+Artículo 15.-Tratándose de bienes inscribibles en el Registro Público Nacional u otro registro, la entrega del bien donado a la Municipalidad deberá de ejecutarse junto con la firma de la respectiva escritura pública.

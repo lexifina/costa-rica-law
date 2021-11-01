@@ -1,0 +1,1 @@
+Artículo 21.-El área competente deberá verificar que el potencial donante ya sea persona física o jurídica privada cuyas actividades sean lícitas, se encuentren al día en el pago de las obligaciones obrero patronales con la Caja Costarricense de Seguro Social y en el pago de sus obligaciones tributarias nacionales y cantonales.

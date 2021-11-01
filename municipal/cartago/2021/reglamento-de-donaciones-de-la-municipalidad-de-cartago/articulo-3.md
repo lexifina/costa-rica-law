@@ -1,0 +1,1 @@
+Artículo 3°-Entiéndase por donación, como el contrato unilateral, a título gratuito y solemne, en el que una persona (física o jurídica) traspasa a otra un bien o servicio, sin intento de obtener una ventaja para sí. La donación onerosa no es donación.

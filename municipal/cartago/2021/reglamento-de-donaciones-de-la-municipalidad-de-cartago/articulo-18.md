@@ -1,0 +1,1 @@
+Artículo 18.-Todo ofrecimiento de donación a la Municipalidad en las modalidades indicadas en el artículo anterior, deberá indicar de manera clara y puntual, en que consiste el servicio ofrecido y las razones que origina el ofrecimiento.

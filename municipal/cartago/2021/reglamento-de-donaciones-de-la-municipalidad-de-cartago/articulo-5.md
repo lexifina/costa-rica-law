@@ -1,0 +1,1 @@
+Artículo 5°-El Manual para la realización de Proyectos de Responsabilidad Social Empresarial con la Municipalidad de Cartago será parte integral del presente Reglamento. La Alcaldía Municipal y el Área Social determinarán qué donaciones o proyectos se manejarán por medio de este manual de responsabilidad social empresarial.

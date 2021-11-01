@@ -1,0 +1,2 @@
+Artículo 4°-Para que la donación sea posible debe existir una vinculación entre el bien o servicio por donar y el fin público al que responde la municipalidad; de manera que, el bien o servicio sea idóneo y adecuado para la satisfacción de tal fin; asimismo, en el caso de bienes recibidos, además de útil, debe estar en buen estado y ser aprovechable plenamente.
+La Municipalidad debe realizar las diligencias necesarias para acreditar la procedencia y la licitud de lo donado.

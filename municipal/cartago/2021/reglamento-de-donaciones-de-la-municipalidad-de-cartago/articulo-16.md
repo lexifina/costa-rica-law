@@ -1,0 +1,2 @@
+Artículo 16.-La elaboración de los convenios, contratos y demás documentos legales de la donación en favor de la Municipalidad, en los casos en que proceda la donación,
+corresponderá al Departamento Legal de la Municipalidad, para lo cual el órgano municipal respectivo le remitirá la información y documentos necesarios. De todo lo anterior se exceptúa cuando el bien o bienes donados requieran inscripción ante el Registro Público Nacional u otro registro o requieran escritura pública.
