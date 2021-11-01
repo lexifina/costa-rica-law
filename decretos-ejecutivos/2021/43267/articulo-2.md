@@ -1,0 +1,1 @@
+Artículo 2º- Deróguese el Decreto Ejecutivo número 43125-H de fecha 07 de julio de 2021, publicado en el Alcance número 155 a La Gaceta número 151 de fecha 09 de agosto de 2021, a partir de la vigencia del presente decreto.
