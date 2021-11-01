@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del procedimiento disciplinario administrativo
+Artículo 13.-Principios que rigen el procedimiento. Sin perjuicio de otros aplicables, procedimiento de investigación por supuestas faltas de acoso sexual estará regido por los principios de: celeridad, debido proceso, proporcionalidad, libertad probatoria, confidencialidad, el interés superior de la persona menor de edad (cuando resulte aplicable) y sin perjuicio de la garantía de presunción de inocencia que ostenta la persona denunciada, el de in dubio pro-víctima. Igualmente aplicarán los principios de: razonabilidad, causalidad y actualidad, no discriminación por orientación sexual, identidad sexual u expresión de género, sin perjuicio de otros aplicables a la materia.

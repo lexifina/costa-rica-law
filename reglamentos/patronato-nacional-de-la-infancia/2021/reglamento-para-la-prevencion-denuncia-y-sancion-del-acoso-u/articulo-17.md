@@ -1,0 +1,1 @@
+Artículo 17.-Plazo para denunciar. El plazo para interponer la denuncia por parte de la persona víctima será el establecido en la Ley contra el hostigamiento sexual en el empleo y la docencia y se computará a partir del último hecho considerado como hostigamiento sexual o a partir de que cesó la causa justificada que le impidió denunciar.
