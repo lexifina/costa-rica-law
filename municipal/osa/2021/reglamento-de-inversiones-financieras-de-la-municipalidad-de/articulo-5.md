@@ -1,0 +1,1 @@
+Artículo 5°-Objetivo del Comité de Inversiones. El objetivo fundamental del Comité de Inversiones, es gestionar en forma segura y rentable los recursos financieros de la Municipalidad de Osa buscando optimizar su liquidez y los ingresos financieros; procurando en todo momento cumplir con lo establecido en este Reglamento.

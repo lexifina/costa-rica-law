@@ -1,0 +1,1 @@
+Artículo 22.-Cuando se requiera redimir una inversión el dinero deberá ser depositado únicamente en cuentas a nombre de la Municipalidad de Osa, nunca a nombre de un (a) persona funcionario (a) Municipal o un tercero.

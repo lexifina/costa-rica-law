@@ -1,0 +1,1 @@
+Artículo 9°-Las inversiones de la Municipalidad de Osa deberán efectuarse bajo el menor riesgo de pérdida posible, procurando utilidades y a la vez una fácil convertibilidad de la inversión en dinero efectivo de acuerdo con sus necesidades.

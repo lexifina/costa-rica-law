@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del Objetivo
+Artículo 3°-El objeto de este reglamento es precisar en lo que respecta a las Inversiones Financieras de la Municipalidad de Osa las regulaciones en su operación y manejo, en apego a lo dispuesto en las normas de control interno para el sector público, las regulaciones y alcances establecidos por la Contraloría General de la República, así como las emitidas por la Ley de Control Interno N° 8292, las Normas técnicas básicas que regulan el Sistema de Administración Financiera de las Municipalidades, el Código Municipal, la Ley de la Administración Financiera de la República y Presupuestos Públicos y su Reglamento.

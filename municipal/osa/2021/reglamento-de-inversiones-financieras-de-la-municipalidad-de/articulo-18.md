@@ -1,0 +1,11 @@
+CAPÍTULO V
+Del registro y control de las Inversiones
+Artículo 18.-Del Registro de las Inversiones y sus intereses:
+a. La Tesorería deberá mantener un registro por inversión que identifique el origen y destino de estos, así como los movimientos que aumenten o disminuyan la inversión para poder conciliar los datos con los registros que lleve las unidades de Presupuesto y Contabilidad.
+b. Las inversiones deben registrarse a nombre de la Municipalidad de Osa y debe existir el detalle de estas, identificando en éste el nombre de la entidad financiera donde se mantiene colocado el dinero.
+c. La tesorería deberá efectuar los registros o estados que reflejen la situación de las diferentes inversiones efectuadas por la Municipalidad, conteniendo la información requerida para efectos de control, misma que deberá incluir conciliaciones de inversiones con cada entidad.
+d. Los registros presupuestarios y contables se efectuarán, de acuerdo con la normativa vigente en materia de inversiones, normativa presupuestaria y principios de generales de contabilidad para el sector público, normas internacionales de contabilidad para el sector público (NICSP) y cualquier otra normativa aplicable.
+e. Los departamentos de Contabilidad y Presupuesto en coordinación con la Sección de Tesorería de la Municipalidad de Osa deberán llevar el control de auxiliares debidamente conciliados con los registros contables, de todos los movimientos de inversiones del periodo económico que se trate.
+f. La Contabilidad y la Tesorería Municipal, deberán archivar, mediante expedientes, los documentos sobre inversiones, con un orden lógico, que incluya una separación física de los comprobantes y justificantes para cada inversión.
+Tales documentos deberán ordenarse en forma cronológica y con referencias cruzadas entre sí para que se facilite la localización de la información.
+g. El Tesorero (a) y La Dirección Financiera-Administrativa Municipal deberán cumplir y velar con las regulaciones dictadas en la Ley Reguladora de Mercado de Valores, normativa vigente en el país que regule la materia de Inversiones, la Ley de Control Interno y el Manual de Normas de Control Interno, así como toda normativa vigente que regule la materia de inversiones.

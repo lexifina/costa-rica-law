@@ -1,0 +1,1 @@
+Articulo 17.-En la medida de lo posible, no se deben de realizar inversiones los últimos días del mes; para evitar registros pendientes de revelación suficiente en los Estados Financieros y registros presupuestarios de ese periodo.
