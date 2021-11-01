@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El presente Reglamento regirá para todas las personas trabajadoras del Patronato, independientemente de que se encuentren contratadas de forma temporal o a plazo indefinido.

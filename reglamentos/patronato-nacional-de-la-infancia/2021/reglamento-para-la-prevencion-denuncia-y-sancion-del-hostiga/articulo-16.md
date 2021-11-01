@@ -1,0 +1,2 @@
+Artículo 16.-Las partes del procedimiento. La persona denunciante y la persona denunciada se considerarán partes del procedimiento administrativo; durante su tramitación podrán hacerse representar por patrocinio letrado y hacerse acompañar del apoyo emocional o psicológico de su confianza.
+Quien se apersone como apoyo emocional o psicológico no podrá intervenir en la comparecencia de forma activa, por esa sola condición (a nombre o en representación de la persona a quien brinda apoyo).
