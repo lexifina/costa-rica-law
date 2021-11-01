@@ -1,0 +1,6 @@
+(*)Transitorio XIX.A partir del primero de enero de 2022 se aplicarán plenamente los criterios de clasificación de deudores según lo dispuesto en la Sección 2.2 Metodología de clasificación para cartera de banca de desarrollo y Sección 2.3 Metodología de clasificación para cartera de banca de segundo piso, del Anexo 3 "Metodología Estándar".
+Para estos efectos, su aplicación seguirá las siguientes consideraciones:
+1. La cantidad de restructuraciones comenzará a computarse desde cero a partir del primero de enero de 2022,
+2. El referido plazo de 12 meses comenzará a contarse a partir del primero de enero de 2022, para todos los deudores que figuren en la cartera de créditos de la entidad al 31 de diciembre de 2021,
+3. Subsecuentemente para los deudores indicados en el punto anterior, y para deudores nuevos a partir del primero de enero de 2022, el referido plazo de 12 meses seguirá computándose según lo dispuesto en la regulación, de conformidad con la situación particular de cada deudor.
+(*) (Mediante sesión N° 1697 del 1° de noviembre de 2021, se acordó adicionar el transitorio XIX. No obstante, dicha norma llega hasta el transitorio VIII, por lo que se ha adicionado el mismo como transitorio IX, ya que el sistema exige una numeración consecutiva)
