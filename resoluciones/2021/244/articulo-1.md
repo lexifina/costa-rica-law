@@ -18,7 +18,7 @@ Con fundamento en las consideraciones de hecho y derecho de cita, potestades y d
 Descripción de la mercancía | Inciso arancelario | Notas técnicas | Momento
 Las demás preparaciones alimenticias de los productos de las partidas 0401 a 0404 | 1901.90.90.00.99 | N° 0044 | Importación Tránsito
 N° 0266 | Exportación Tránsito
-Artículos alveolares para envase y transporte de huevos | 4823.70.10.00.00 | N° 0044 | Importación Tránsito
+Artículos alveolares para envase y transporte de huevos | 4823.70.10.00.00 | (Eliminada esta nota técnica mediante resolución N° RESDGA-400-2021 del 1° de noviembre de 2021) | Importación Tránsito
 N° 0266 | Tránsito
 Polen distinto del inciso 1404.90.90.00.10 | 1404.90.90.00.20 | N° 0044 | Importación Tránsito
 N° 0266 | Exportación Tránsito
