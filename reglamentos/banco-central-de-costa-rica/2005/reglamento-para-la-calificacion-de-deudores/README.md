@@ -55,3 +55,4 @@ Reglamento para la Calificación de Deudores
 | 40 | 2020-11-02 | Reglamento 1617 (2020-11-02) |
 | 41 | 2020-11-26 | Reglamento 1624 (2020-11-26) |
 | 42 | 2021-02-01 | Reglamento 1641 (2021-02-01) |
+| 43 | 2021-11-01 | Reglamento 1697 (2021-11-01) |

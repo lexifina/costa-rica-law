@@ -1,0 +1,5 @@
+Transitorio XXIII. A partir del primero de enero de 2022 se aplicará plenamente lo dispuesto en el numeral 2, inciso i) Operación crediticia especial del Artículo 3 de este Reglamento, en cuanto a la determinación como especial, de la operación crediticia modificada más de una vez en un periodo de 24 meses mediante readecuación, prórroga, refinanciamiento o una combinación de éstas.
+Para estos efectos, su aplicación seguirá las siguientes consideraciones:
+a) La cantidad de modificaciones comenzará a computarse desde cero a partir del primero de enero de 2022, b) El referido plazo de 24 meses comenzará a contarse a partir del primero de enero de 2022, para todos los deudores que figuren en la cartera de créditos de la entidad al 31 de diciembre de 2021,
+c) Subsecuentemente para los deudores indicados en el punto anterior, y para deudores nuevos a partir del primero de enero de 2022, el referido plazo de 24 meses seguirá computándose según lo dispuesto en la regulación, de conformidad con la situación particular de cada deudor.
+(Así adicionado en sesión N° 1697 del 1° de noviembre de 2021)
