@@ -1,0 +1,1 @@
+Artículo 35.-No cumplir con lo dispuesto en los artículos 7, 8 y 9, no limitan a la Municipalidad a aplicar sanciones más severas que resulten, según la gravedad del caso, todo ello de conformidad con el Régimen de Responsabilidad y el Libro Segundo de la Ley General de la Administración Pública, Código Municipal, Código de Trabajo y demás leyes.

@@ -1,0 +1,1 @@
+Artículo 36.-El Alcalde delegara en las jefaturas responsables, la aplicación de las sanciones previstas en el presente Reglamento, siguiendo el debido proceso. Enviarán copia al Departamento de Recursos Humanos para que las incorporen en el expediente del funcionario municipal involucrado.
