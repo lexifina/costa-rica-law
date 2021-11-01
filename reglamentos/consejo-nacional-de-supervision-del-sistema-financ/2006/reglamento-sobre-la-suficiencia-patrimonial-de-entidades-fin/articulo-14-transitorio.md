@@ -6,3 +6,4 @@ Grado 2 | 6% SP 8% E
 Grado 3 | SP 6% E
 SPE = Suficiencia patrimonial de la entidad
 (Así adicionado en sesión N° 1617 del 2 de noviembre de 2020)
+(Nota de Sinalevi: Mediante sesión N° 1697 del 1° de noviembre de 2021, se acordó eextender la aplicación del presente transitorio hasta el 31 de diciembre de 2022, inclusive)

@@ -41,3 +41,4 @@ Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras
 | 26 | 2020-12-01 | Reglamento 1625 (2020-12-01) |
 | 27 | 2021-02-01 | Reglamento 1641 (2021-02-01) |
 | 28 | 2021-05-17 | Reglamento 1663 (2021-05-17) |
+| 29 | 2021-11-01 | Reglamento 1697 (2021-11-01) |

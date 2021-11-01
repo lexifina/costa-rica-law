@@ -93,6 +93,7 @@ articulo-17-transitorio.md
 articulo-18-transitorio.md
 articulo-19-transitorio.md
 articulo-20-transitorio.md
+articulo-21-transitorio.md
 articulo-1-anexo.md
 articulo-2-anexo.md
 articulo-3-anexo.md
