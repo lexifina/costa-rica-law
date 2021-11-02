@@ -14,3 +14,4 @@ Reglamento especial sobre la certificación de actualización profesional en dis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-05 | la propia norma |
+| 2 | 2021-11-02 | Reglamento 1 (2021-11-02) |
