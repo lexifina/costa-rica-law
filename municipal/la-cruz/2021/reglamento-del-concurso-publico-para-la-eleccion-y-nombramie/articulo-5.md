@@ -1,0 +1,1 @@
+Artículo 5º-Perfil de puesto. El perfil de puesto será el designado, promulgado y aprobado en el Manual de Puestos de la Municipalidad de La Cruz Guanacaste. Cualquier modificación al mismo deberá recibir el debido proceso para tales efectos.
