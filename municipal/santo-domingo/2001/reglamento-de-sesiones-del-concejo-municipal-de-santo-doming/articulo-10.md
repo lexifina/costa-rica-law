@@ -1,1 +1,0 @@
-Articulo 10.—Los Regidores Suplentes tendrán derecho a asistir a todas las sesiones del Concejo y hacer uso de la palabra sobre los asuntos en discusión. Cuando el Regidor Suplente sustituya a un propietario de conformidad con lo dispuesto en el Articulo 7 del presente Reglamento; tendrá voz y voto, así como también tendrá derecho a devengar la dicta como propietario.

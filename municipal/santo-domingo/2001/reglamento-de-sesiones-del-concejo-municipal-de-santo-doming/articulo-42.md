@@ -1,1 +1,0 @@
-Articulo 42.—Si se presentaron memoriales que dirijan los particulares al Concejo, la Secretaria los examinará y si resulta que lo solicitado es de competencia del Alcalde lo enviará a dicho funcionario para que le dé el trámite que le corresponda. De !o anterior se informará al Concejo y a los firmantes.

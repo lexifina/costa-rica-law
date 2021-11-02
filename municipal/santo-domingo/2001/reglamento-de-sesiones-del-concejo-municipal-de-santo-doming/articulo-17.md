@@ -1,1 +1,0 @@
-Articulo 17.—En el capitulo de Mociones y Asuntos Varios, los Regidores presentarán sus mociones por escrito y firmadas. El Secretario anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación, salvo que se trate de mociones de orden.

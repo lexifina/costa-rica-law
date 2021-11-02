@@ -1,1 +1,0 @@
-Articulo 6°—El quorum para las sesiones ordinarias y extraordinarias será de la mitad más uno de los Regidores. Ese número de Regidores deberá encontrarse presente en el Salón de Sesiones, ocupando sus respectivas enrules al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

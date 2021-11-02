@@ -1,1 +1,0 @@
-Articulo 36.—Los dictámenes de las Comisiones deberán presentarse por escrito y firmados por el Presidente y/o Secretario( a) de la Comisión que lo emite. Cuando no existiere acuerdo unánime sobre un dictamen, los miembros de la Comisión que no aprueben, podrán rendir dictamen de minoría por separado, si lo estiman conveniente.

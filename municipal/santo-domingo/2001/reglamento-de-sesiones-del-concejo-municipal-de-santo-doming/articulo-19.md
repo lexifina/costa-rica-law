@@ -1,1 +1,0 @@
-Articulo 19.—Cuando concurrieren al Concejo, miembros de los Supremos Poderes, Invitados Especiales, Representantes de Organismos, Oficiales o Extranjeros, Representantes de la Instituciones Autónomas o Semi-Autónomas, se les recibirá en el Salón de Sesiones a la hora fijada al efecto y después del saludo de rigor se les podrá conceder la palabra.

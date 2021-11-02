@@ -1,1 +1,0 @@
-Articulo 34.—Una vez designadas las Comisiones por el Presidente Municipal, sus miembros, en la sesión de instalación, que deberá celebrarse dentro de los quince días siguientes, nombrarán un Presidente y un Secretario(a).

@@ -1,1 +1,0 @@
-Articulo 4°—Las sesiones extraordinarias y ordinarias se celebrarán en el local sede de la Municipalidad. Sin embargo, podrán celebrarse sesiones en cualquier lugar del cantón, cuando vayan a tratarse asuntos relativos a los intereses de los vecinos de !a localidad.

@@ -1,1 +1,0 @@
-Articulo 16.—El Presidente Municipal calificará los asuntos de trámite urgente y ordenará a la Secretaria incluirlos en la orden del día. En sesiones podrán incluirse asuntos de trámite urgente por iniciativa del Presidente o de uno o más Regidores, si el Concejo así lo acuerda por simple mayoría.

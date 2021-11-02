@@ -1,1 +1,0 @@
-Articulo 29.—Presentada una moción de orden, se concederá el uso de la palabra en primer término al proponente y luego a los Regidores que la solicitan sin que pueda exceder de cinco minutos cada intervención.

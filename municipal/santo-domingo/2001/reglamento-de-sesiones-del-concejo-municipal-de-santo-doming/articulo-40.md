@@ -1,1 +1,0 @@
-Articulo 40.—Cuando el objeto de la audiencia fuere un asunto de competencia del Ejecutivo, el Presidente ordenará a la Secretaria remitir el memorial presentado a dicho funcionario, para que éste le dé el trámite correspondiente, sin perjuicio de que él o los interesados sean oídos en audiencia.
