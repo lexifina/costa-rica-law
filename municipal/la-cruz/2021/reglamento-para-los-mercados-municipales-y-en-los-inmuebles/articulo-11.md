@@ -1,0 +1,2 @@
+Artículo 11.-Pérdida de la adjudicación. La persona favorecida en una adjudicación, que no reúna los requisitos anteriores en el plazo de 30 días hábiles o no se presente dentro del término de diez días hábiles a formalizar el respectivo contrato, perderá la adjudicación respectiva.
+La Municipalidad podrá sacar a remate nuevamente el puesto que quede libre, perdiendo el interesado cualquier suma que haya adelantado por concepto de garantía de participación como cláusula penal.

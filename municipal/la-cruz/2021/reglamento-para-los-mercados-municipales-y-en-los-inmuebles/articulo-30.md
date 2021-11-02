@@ -1,0 +1,1 @@
+Artículo 30.-Patentes de licores. Dentro de los Mercados Municipales o inmuebles municipales, no se concederán patentes municipales para el expendió de bebidas alcohólicas, sin perjuicio de derechos adquiridos o que se cuenta con Declaratoria de Interés Turístico o Declaración a fin.

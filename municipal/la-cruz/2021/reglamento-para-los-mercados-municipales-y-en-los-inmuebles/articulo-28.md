@@ -1,0 +1,1 @@
+Artículo 28.-De los pagos de inquilinos. Los alquileres deberán ser pagados por mensualidades anticipadas en los primeros quince días del mes en la Tesorería Municipal, indistintamente de la forma de pago, deberá ser comunicada a la Tesorería. Municipal.

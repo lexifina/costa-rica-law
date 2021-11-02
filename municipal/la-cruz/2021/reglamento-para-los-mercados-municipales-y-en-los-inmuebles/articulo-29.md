@@ -1,0 +1,1 @@
+Artículo 29.-Las recalificaciones y aumentos de alquileres se harán conforme a lo establecido en la Ley N° 2428 del 14 de setiembre del 1959, Ley Sobre Arrendamientos de Locales Municipales, reformadas mediante Ley 6890 de fecha 14 de setiembre del año 1983, reformada mediante Ley 7027 de fecha 04 de abril del año 1986.

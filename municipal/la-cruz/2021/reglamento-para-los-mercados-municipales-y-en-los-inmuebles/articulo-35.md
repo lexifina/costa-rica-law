@@ -1,0 +1,5 @@
+Artículo 35.-Horario. Los mercados funcionarán ordinariamente según los horarios que fija el Alcalde o Alcaldesa Municipal, oyendo previamente a los inquilinos y velando porque dichos horarios se ajusten a las necesidades de los usuarios con las siguientes excepciones:
+a) Solamente se permitirá al público ingresar al mercado o inmueble municipal entre la hora de apertura y la hora fijada para el cierre.
+b) En casos especiales el administrador del Mercado en coordinación con la Alcaldía podrá autorizar modificaciones al horario establecido, para el funcionamiento general del mercado. C) Los domingos los mercados operarán de manera ordinaria, según el horario formal establecido para cada mercado o inmueble municipal.
+d) El administrador del Mercado, podrá extender licencias ocasionales razonadas mediante las cuales, pueden los inquilinos iniciar las actividades antes o después del horario fijado.
+e) Los gastos administrativos que se ocasionen del funcionamiento extraordinario del mercado, serán sufragados en forma proporcional por la totalidad de los inquilinos o en su defecto por los inquilinos que hayan solicitado el funcionamiento extraordinario.

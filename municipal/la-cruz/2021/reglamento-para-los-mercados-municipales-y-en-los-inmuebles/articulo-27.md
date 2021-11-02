@@ -1,0 +1,1 @@
+Artículo 27.-Pago de derechos de piso. Se pagará a diario, sin embargo, por conveniencia administrativa también se podrá cancelar de forma mensual previamente determinada y autorizada por el Administrador de cada Mercado o inmueble municipal, en coordinación con la Alcaldía, se hará mediante la cancelación del respectivo recibo ante la Sección de Tesorería Municipal.

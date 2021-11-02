@@ -1,0 +1,4 @@
+Artículo 18.-Subarriendo. En casos como enfermedad comprobada, fuerza mayor u otra causa calificada de grave, el administrador del Mercado o bien inmueble municipal en coordinación con el Alcalde o Alcaldesa Municipal podrá autorizar subarriendos, en cuyo caso deberá el arrendatario:
+a) Firmar un contrato adicional y pagar los gastos de la administración.
+b) El arrendatario pagará a partir de la fecha de contrato de subarriendo por concepto de alquiler mensual futuro el valor de 3 (tres) mensualidades, tomando como base la suma inicial de alquiler mensual fijada por la Municipalidad para el local objeto de esta contratación especial.
+La vigencia de este contrato será por el plazo de vencimiento del contrato principal o hasta que se demuestre el cambio de condiciones que generaron el subarriendo.

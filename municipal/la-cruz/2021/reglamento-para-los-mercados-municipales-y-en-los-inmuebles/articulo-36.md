@@ -1,0 +1,1 @@
+Artículo 36.-Ingreso de mercadería. Se permitirá la entrada de artículos o productos para surtir los puestos una hora antes de abrir y una hora después del cierre del mercado al público; en casos especiales según tipo de productos y necesidad de proveeduría el administrador del Mercado podrá autorizar el ingreso en horario diferenciado.

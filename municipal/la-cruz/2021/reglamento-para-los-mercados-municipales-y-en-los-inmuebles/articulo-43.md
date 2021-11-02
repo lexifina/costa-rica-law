@@ -1,0 +1,1 @@
+Artículo 43.-Revocación del derecho de piso: Serán revocables unilateralmente cuando se estime conveniente y oportuno por parte del administrador del Mercado y de la Alcaldía, debiendo ajustarse a los dispuesto en el artículo 154 de la Ley General de la Administración Pública.

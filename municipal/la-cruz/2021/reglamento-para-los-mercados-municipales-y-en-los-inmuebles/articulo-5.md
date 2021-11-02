@@ -1,0 +1,3 @@
+Artículo 5º-Tipos de puestos. Los puestos que se exploten comercialmente en los mercados se dividen en permanentes y transitorios.
+a) Permanentes: los puestos ocupados por inquilinos que resultaren adjudicatarios de un local y cuenten con contrato escrito con la Municipalidad, contrato debidamente sustentado por un proceso de remate previo.
+b) Transitorios: aquellos puestos conocidos como "derechos de piso", que se otorgan provisionalmente en lugares habilitados para el efecto y que constituyen derechos de uso, revocables unilateralmente en los Términos del artículo 154 de la Ley General de la Administración Pública. Puede corresponder a espacios de temporada o asociados a condiciones climáticas estacionarias.

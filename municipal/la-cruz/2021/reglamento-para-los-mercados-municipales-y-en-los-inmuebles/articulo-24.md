@@ -1,0 +1,1 @@
+Artículo 24.-Limitaciones a la transferencia del puesto. No se podrá ceder, vender, canjear, arrendar, subarrendar, transferir, traspasar, ni enajenar en forma alguna, los derechos de arrendamiento sin el criterio previo del administrador del mercado o local municipal y sin la autorización del Alcalde o Alcaldesa.

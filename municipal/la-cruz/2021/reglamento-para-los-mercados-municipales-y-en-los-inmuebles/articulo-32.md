@@ -1,0 +1,1 @@
+Artículo 32.-Transformación y reparación. La construcción se llevará a cabo conforme a las normas y recomendaciones que dicte la oficina especializada de la Municipalidad en resguardo de las medidas de seguridad, la estética y el ornato del Mercado o inmueble municipal.

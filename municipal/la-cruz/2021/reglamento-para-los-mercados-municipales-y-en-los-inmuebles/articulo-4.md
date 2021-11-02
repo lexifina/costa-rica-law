@@ -1,0 +1,1 @@
+Artículo 4º-Organización de los Mercados o inmuebles municipales con vocación comercial. Todo mercado se organizará internamente en zonas o sectores comerciales destinados a la venta de artículos o servicios similares, en el tanto la dimensión del inmueble lo permita y sin disminuir o afectar la pluralidad comercial del inmueble o mercado.

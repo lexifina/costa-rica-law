@@ -1,0 +1,2 @@
+Artículo 19.-Permiso para ausentarse. El administrador del Mercado podrá otorgar a los inquilinos o piso habientes que así lo requieran, un permiso temporal para ausentarse por un plazo no mayor a tres meses, por razones de incapacidad temporal, fuerza mayor o caso fortuito; condiciones que el interesado deberá demostrar.
+En caso de incapacidad permanente el administrador del Mercado podrá permitir la continuidad de operación del puesto con la persona que el interesado designe hasta la fecha de vencimiento del contrato de arrendamiento o derecho de piso.

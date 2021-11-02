@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. El presente reglamento será de aplicación general para los Mercados Municipales y los bienes inmuebles municipales destinados a fines comerciales, explotados de manera directa por la Corporación Municipal o explotados por sujetos de derecho privado.
