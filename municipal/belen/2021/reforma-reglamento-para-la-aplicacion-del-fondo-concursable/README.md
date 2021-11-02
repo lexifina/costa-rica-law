@@ -14,3 +14,4 @@ Reforma Reglamento para la aplicación del fondo concursable para el desarrollo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-27 | la propia norma |
+| 2 | 2021-11-02 | Reglamento municipal 64 (2021-11-02) |
