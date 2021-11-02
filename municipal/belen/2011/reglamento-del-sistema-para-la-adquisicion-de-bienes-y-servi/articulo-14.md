@@ -1,4 +1,5 @@
-Artículo 14.—Adjudicación. La PI, la Alcaldía y el Concejo Municipal adjudicarán los trámites de contratación según los límites generales y específicos de contratación administrativa sea pública o privada de cada año establecido por la CGR; con los siguientes rangos de acción:
+Artículo 14.-Adjudicación. La PI, la Alcaldía y el Concejo Municipal adjudicarán los trámites de contratación según los límites generales y específicos de contratación administrativa sea pública, abreviada y de Escaza Cuantía de cada año establecido por la CGR; con los siguientes rangos de acción:
 PI: Encargado de la Proveeduría Institucional: Los procesos de contratación cuyo monto de adjudicación sea igual o inferior al monto de contrataciones de escasa cuantía establecido por la CGR para la categoría o estrato en la que se ubique la Municipalidad de Belén para cada año.
-Alcaldía: Los procesos de contratación cuyo monto de adjudicación se encuentre en el rango comprendido entre un monto mayor a las contrataciones de escasa cuantía y que sea inferior a una vez y media (1,5) el monto de apelación establecido por la CGR para la categoría o estrato en la que se ubique la Municipalidad de Belén para cada año.
-Concejo Municipal: Los procesos de contratación de todo el sistema de adquisiciones cuyo monto de adjudicación sea igual o superior a una vez y media (1,5) el monto de apelación establecido por la CGR, para el estrato y categoría en la que se ubique la Municipalidad de Belén para cada año.
+Alcaldía: Los procedimientos de contratación de licitación abreviada.
+Concejo Municipal: Los procedimientos de contratación de licitación pública.
+(Así reformado mediante sesión N° 64-2021 del 2 de noviembre del 2021)
