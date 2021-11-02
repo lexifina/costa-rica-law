@@ -1,5 +1,7 @@
-Artículo 28.—Los funcionarios de la Policía Municipal, igualmente tendrán derecho a los siguientes incentivos:
-a. Capacitación especializada policial; pasantías, trabajos de investigación técnico-policial y similares.
-b. Enseñanza formal impartida por instituciones autorizadas por el Ministerio de Educación Pública y entidades de educación superior universitaria. Este derecho como el dispuesto en el inciso a), deberán sujetarse a lo establecido en el Reglamento sobre Capacitación y Formación que tiene la Municipalidad.
-c. La Municipalidad suscribirá una póliza de Riesgo Policial que cubrirá a todos los Policías Municipales, para la cual destinará el debido contenido presupuestario.
-d. Igualmente tendrá derecho a un incentivo de carácter permanente denominado Riesgo Policial, el cual se incrementará gradualmente en los mismos términos que establezca la Dirección General de Servicio Civil sobre el particular.
+Artículo 28.-Los funcionarios de la Policía Municipal, igualmente tendrán derecho a Artículo 28.-El personal de la policía municipal tendrán derecho a:
+a) Capacitación especializada policial, pasantías, trabajos de investigación técnico-policial y similares.
+b) Enseñanza formal impartida por instituciones autorizadas por el Ministerio de Educación Pública y entidades de educación superior universitaria. Este derecho como el dispuesto en el inciso a), deberán sujetarse a lo establecido por las disposiciones que sobre el particular cuente la Municipalidad.
+c) Cobertura de póliza de Riesgo Policial para todo el personal, para lo cual se otorgará el respaldo financiero correspondiente.
+d) Incentivos policiales entre otros al denominado "Riesgo Policial", todo de conformidad con lo establecido por la Ley General de Policía, según lo disponga la Dirección General de Servicio Civil".
+e) Tiempo para acondicionamiento físico dentro de la jornada laboral, de acuerdo con las disposiciones establecidas por la Alcaldía Municipal, previo criterio técnico del Proceso de Salud Ocupacional. En ninguno de los casos ese derecho se ejercerá en perjuicio del servicio público policial.
+(Así reformado mediante sesión N° 64-2021 del 2 de noviembre del 2021)

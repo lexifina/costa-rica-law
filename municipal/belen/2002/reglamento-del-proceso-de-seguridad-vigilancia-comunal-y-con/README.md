@@ -14,3 +14,4 @@ Reglamento del proceso de seguridad, vigilancia comunal y control tributario de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-03 | la propia norma |
+| 2 | 2021-11-02 | Reglamento municipal 64 (2021-11-02) |
