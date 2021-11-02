@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del personal de la auditoría interna
+Artículo 24.-Recursos Humanos de la Auditoría Interna. La Auditoría Interna debe contar con un número determinado de funcionarios que les permita ejercer su actividad con la debida oportunidad, cobertura y disponibilidad. El jerarca institucional y los funcionarios a los que se les asigna la labor de proveer tales recursos, deben tomar las previsiones pertinentes para garantizar a la Auditoría Interna, dentro de las posibilidades institucionales, los recursos humanos suficientes y necesarios. Las vacantes que surjan deben suplirse atendiendo a los requerimientos que establece el ordenamiento jurídico.

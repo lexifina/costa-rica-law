@@ -1,0 +1,1 @@
+Artículo 32.-Prohibiciones. El Auditor y los demás funcionarios de la Auditoría Interna, deberán ajustarse a las prohibiciones prescritas en el artículo 34 de la Ley General de Control, así como las que se contemplan en el Código Municipal vigente.

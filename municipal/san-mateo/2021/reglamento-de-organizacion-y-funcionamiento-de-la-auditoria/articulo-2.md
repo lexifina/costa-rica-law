@@ -1,0 +1,1 @@
+Artículo 2°-Corresponde al Auditor Interno. Con el apoyo de las unidades internas de la Administración, mantener actualizado este instrumento jurídico, para lo cual comunicará lo pertinente al Concejo, para su aprobación y cumplirá el trámite de remisión ante la Contraloría, para lo que corresponda.

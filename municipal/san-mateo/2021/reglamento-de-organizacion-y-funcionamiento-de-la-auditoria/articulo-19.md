@@ -1,0 +1,1 @@
+Artículo 19.-Salidas del trabajo. En cuanto a las salidas de la institución para el cumplimiento de sus funciones, el Auditor Interno ejercerá sus atribuciones con total independencia funcional, con el objetivo de no entorpecer las investigaciones.

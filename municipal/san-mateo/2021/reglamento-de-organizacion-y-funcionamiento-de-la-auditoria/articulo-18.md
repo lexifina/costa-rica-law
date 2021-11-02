@@ -1,0 +1,1 @@
+Artículo 18.-Vacaciones y permisos del Auditor Interno. Las vacaciones y permisos por situaciones especiales o imprevistos del Auditor Interno, el Concejo Municipal lo ha delegado para que sean aprobados por el Alcalde Municipal, de igual forma se deberá comunicar al Órgano Colegiado cuando se presenten estos casos.

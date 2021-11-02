@@ -1,0 +1,1 @@
+Artículo 22.-De la asistencia a capacitaciones. El Auditor Interno podrá asistir a las Capacitaciones que considere necesarias para el desarrollo de la Unidad de acuerdo al contenido presupuestario asignado a la Auditoría.

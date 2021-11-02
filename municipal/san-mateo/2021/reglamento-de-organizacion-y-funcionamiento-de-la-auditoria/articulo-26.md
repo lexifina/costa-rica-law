@@ -1,0 +1,1 @@
+Artículo 26.-EI personal de la Auditoría Interna, deberá poseer conocimientos en todas las áreas del universo auditable que le compete en el ordenamiento público municipal, para ejercer en forma apropiada las funciones a él encomendadas, en lo que razonablemente sea aplicable.
