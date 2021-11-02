@@ -1,0 +1,1 @@
+Artículo 7°-El nombramiento de los miembros de la Comisión Institucional de Ética y Valores del Conavi deberá formalizarse mediante un oficio del Director Ejecutivo, dirigido a todas las personas de la institución.

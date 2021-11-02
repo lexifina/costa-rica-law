@@ -1,0 +1,1 @@
+Artículo 2°-Alcance. Es de aplicación obligatoria para las personas integrantes de la Comisión Institucional de Ética y Valores, para el Encargado del Proceso de Gestión Ética de la Dirección de Gestión del Recurso Humano del Consejo Nacional de Vialidad, así como para todas las personas funcionarias de la institución, según el ámbito de sus competencias.

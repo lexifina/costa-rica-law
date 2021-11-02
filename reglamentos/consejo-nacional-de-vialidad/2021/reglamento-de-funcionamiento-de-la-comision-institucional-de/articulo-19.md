@@ -1,0 +1,1 @@
+Artículo 19.-Podrá cesarse del cargo de Coordinador o de Secretario, en cualquier momento, cuando haya situaciones justificadas o razones comprobadas que ameriten su remoción, siempre que medie un acuerdo unánime de la Comisión Institucional.

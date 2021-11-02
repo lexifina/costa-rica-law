@@ -1,0 +1,3 @@
+Disposiciones finales
+Artículo 23.-La juramentación de las personas integrantes la Comisión Institucional de Ética y Valores del Conavi y del Proceso de Gestión Ética, se hará de manera solemne por el Director Ejecutivo, en presencia de una persona representante de la Junta Directiva y de la Dirección Ejecutiva de la Comisión Nacional.
+Los y las titulares subordinados de la institución deben asistir al acto de juramentación como responsables, con el jerarca, del fortalecimiento de la ética conforme la Ley de Control Interno y sus normas y para reafirmar el compromiso de apoyar la gestión ética.

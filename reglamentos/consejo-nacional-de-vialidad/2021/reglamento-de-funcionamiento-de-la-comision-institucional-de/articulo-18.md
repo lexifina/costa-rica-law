@@ -1,0 +1,1 @@
+Artículo 18.-En caso de ausencia del Coordinador o del Secretario, la Comisión Institucional, se elegirá mediante una votación, por mayoría simple, a uno de sus miembros para que le sustituya y ejerza sus funciones temporalmente.

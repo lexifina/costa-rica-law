@@ -1,0 +1,1 @@
+Artículo 17.-Si alguno de sus miembros presenta reiteradas ausencias injustificadas a las sesiones, la Comisión Institucional de Ética y Valores del Conavi, recomendará ante el Director Ejecutivo su sustitución.

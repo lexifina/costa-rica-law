@@ -1,0 +1,1 @@
+Artículo 16.-La Comisión Institucional de Ética y Valores del Conavi, elaborará un informe semestral de la asistencia de sus miembros a las sesiones. En caso de tres o más ausencias injustificadas de alguno de ellos, deberá emitir un oficio a la jefatura correspondiente, con el detalle de las ausencias.

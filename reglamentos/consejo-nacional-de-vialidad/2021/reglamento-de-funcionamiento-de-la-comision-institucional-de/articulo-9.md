@@ -1,0 +1,1 @@
+Artículo 9°-En caso que algún integrante no pueda continuar en la Comisión por situaciones justificadas, o en caso que incumpla las características del artículo 5, deberá, cada unidad nombrar a su sustituto en el plazo máximo de un mes calendario a partir de que se haga efectiva su separación del cargo.

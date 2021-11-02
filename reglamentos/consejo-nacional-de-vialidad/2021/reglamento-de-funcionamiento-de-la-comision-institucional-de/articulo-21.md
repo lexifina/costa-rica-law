@@ -1,0 +1,1 @@
+Artículo 21.-El ocupante del puesto será nombrado en concordancia con lo que dispone la Dirección General de Servicio Civil y los requisitos descritos en sus manuales, adicionalmente debe cumplir con las características deseadas de las personas integrantes de la Comisión Institucional de Ética y Valores del Conavi mencionadas en este Reglamento.

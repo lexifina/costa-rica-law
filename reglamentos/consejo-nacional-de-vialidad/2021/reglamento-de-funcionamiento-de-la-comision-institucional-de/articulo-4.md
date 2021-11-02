@@ -1,0 +1,1 @@
+Artículo 4°-La Comisión Institucional de Ética y Valores del Conavi estará subordinada al Director Ejecutivo de Conavi, como responsable de la conducción técnica del fortalecimiento de la ética institucional.
