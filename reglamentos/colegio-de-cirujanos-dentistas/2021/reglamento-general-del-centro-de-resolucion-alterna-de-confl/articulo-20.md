@@ -1,0 +1,5 @@
+Artículo 20: De la aprobación
+Una vez presentados todos y cada uno de los requisitos señalados en los artículos anteriores, el Director/a del Centro levantará un expediente físico y/o digital con todos los documentos aportados y lo remitirá a la Fiscalía con una recomendación técnica de su parte. Corresponde a la Fiscalía someter a la Junta Directiva del Colegio la solicitud del candidato/a, siendo de exclusiva competencia de esta última de aprobar o no la incorporación del candidato/a a las listas.
+Aprobada la solicitud, la Dirección del Centro deberá completar los requisitos para gestionar que el conciliador/a, facilitador/a o neutral sea autorizado por la DINARAC del Ministerio de Justicia y Paz, cuando corresponda.
+De no ser aprobada la solicitud, corresponderá al Director/a del Centro comunicarle al candidato la decisión de la Junta Directiva.
+Ningún conciliador/a, facilitador/a o neutral podrá asumir la tramitación de ninguno caso del Centro hasta no completarse el proceso de aprobación y autorización respectivo.

@@ -1,0 +1,2 @@
+Artículo 62: De la regulación aplicable
+Los diversos mecanismos alternos que sean administrados por el Centro distintos a la conciliación, se regirán por las disposiciones del presente Reglamento en lo que fueren aplicables. Sin embargo, el Centro podrá establecer directrices, protocolos, lineamientos e instrumentos dictados por el Centro o por la DINARAC, así como aplicar los principios y normas técnicas imperantes en la materia y en el mecanismo específico del que se trate

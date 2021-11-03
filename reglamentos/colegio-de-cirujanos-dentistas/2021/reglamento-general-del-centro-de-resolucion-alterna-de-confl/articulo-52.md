@@ -1,0 +1,2 @@
+Artículo 52.- Comunicación de la conclusión del procedimiento conciliatorio
+Una vez concluida la conciliación, el Conciliador/a comunicará al Centro por escrito y sin demora que la conciliación ha concluido e indicará la fecha de conclusión; asimismo indicará si la conciliación tuvo como resultado la solución de la controversia y, en tal caso, si la solución fue total o parcial. Deberá hacer entrega del expediente completo (físico o digital) que se le haya facilitado para la celebración del proceso conciliatorio

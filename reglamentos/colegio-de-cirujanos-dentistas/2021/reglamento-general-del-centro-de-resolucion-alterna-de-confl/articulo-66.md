@@ -1,0 +1,2 @@
+Artículo 66: Desempeño de funciones.
+Es obligación de todos conciliadores/as, facilitadores/as y neutrales así al Director/a. y personal administrativo del Centro desempeñarse en sus actividades de modo que satisfagan los intereses del Centro y de los usuarios que solicitan sus servicios, deberán cumplir sus labores en estricto apego a los principios éticos aquí consignados, así como en las normas indicadas en el presente Título, como también las que se inspiran en los procesos de conciliación y otros mecanismos alternos, según corresponda.

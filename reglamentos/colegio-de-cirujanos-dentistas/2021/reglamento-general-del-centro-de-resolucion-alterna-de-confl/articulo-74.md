@@ -1,0 +1,8 @@
+Artículo 74: Deber de Información
+El conciliador/a, facilitador/a y neutral tendrá la obligación de informar a las partes, representantes, asesores, observadores o cualquier interviniente sobre la naturaleza del procedimiento, los detalles y su forma de participación, las reglas, el rol del conciliador/a, facilitador/a o neutral y sus atribuciones, el rol de las partes intervinientes y sus derechos. Debe informar también de las posibles consecuencias jurídicas y legales de un eventual acuerdo conciliatorio, así como la facultad de consultar el acuerdo con un asesor legal de previo a suscribirlo.
+El conciliador/a, suscribirá el acuerdo conciliatorio si posee la certeza de que éste refleja la voluntad de las partes y que éstas últimas han analizado todas sus opciones, garantizando de esta manera un acuerdo satisfactorio.
+De este deber se derivan las siguientes obligaciones:
+a) Asegurarse que todas las partes involucradas en el proceso comprendan claramente las opciones que se les presentan y el contenido y alcance del eventual acuerdo conciliatorio.
+b) Evaluar si la conciliación es el proceso adecuado para las partes, e informarles acerca de otros procesos alternos de solución de controversias, cuando lo considere adecuado.
+c) Contextualizar la situación de manera realista, de forma que las partes puedan comprender claramente las opciones que se les presentan y el contenido final del acuerdo, reafirmando a las partes en el principio de que son ellas y no el conciliador/a, facilitador/a o neutral, las responsables de la toma de decisión y del cumplimiento del acuerdo.
+La numeración anterior no es taxativa, por lo que el conciliador/a, deberá realizar todos los esfuerzos que se requieran para cumplir con este deber.

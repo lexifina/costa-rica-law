@@ -1,0 +1,2 @@
+Artículo 87: De los neutrales miembros del Colegio de Cirujanos Dentistas de Costa Rica
+Los conciliadores/as, facilitadores/as o neutrales que sean miembros del Colegio de Cirujanos Dentista􀁠 de Costa Rica que incumplan cualquiera de las obligaciones y deberes éticos establecidos en el presente Título, podrán además, ser sujetos de procesos disciplinarios y sancionatorios de conformidad con el Código de Ética y de la Ley Orgánica del Colegio, vigentes a la fecha.

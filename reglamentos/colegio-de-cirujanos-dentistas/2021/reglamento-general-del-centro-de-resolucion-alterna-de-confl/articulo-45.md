@@ -1,0 +1,3 @@
+Artículo 45: Cantidad de conciliadores
+Podrá disponerse de uno o más conciliadores/as para un caso, quienes preferiblemente deberán tener conocimientos afines a la naturaleza del caso. Cuando haya más de un conciliador/a, éstos deberán actuar en conjunto, coordinar las audiencias y elegir a uno de ellos como el conciliador/a titular.
+Los honorarios de los conciliadores/as se distribuirán en porcentajes iguales según la cantidad de neutrales participantes. También podrán ejercer como co-conciliadores/as los neutrales que se encuentren en proceso de capacitación práctica en el Centro, pero no devengarán honorario alguno.

@@ -1,0 +1,2 @@
+Artículo 90: Del Consejo asesor y ético como órgano director
+El Consejo Asesor y Ético será el órgano director en todos los procedimientos disciplinarios que se establecieren contra los conciliadores/as, facilitadores/as, y neutrales, el Director/a y personal administrativo y recomendarán a la Junta Directiva del Colegio de Cirujanos Dentistas de Costa Rica la sanción a imponer, quienes podrán separarse de la recomendación y sancionar según su criterio.

@@ -1,0 +1,2 @@
+Artículo 39: Idioma
+El idioma del proceso de conciliación será el español, los escritos, documentos, audiencias, actas, acuerdos conciliatorios y cualquier otra actuación documental que forme parte del proceso se deberá presentar o sustentar en idioma español; si viniere en otro idioma, la parte que lo presenta deberá aportar su traducción. Las partes deberán hacerse acompañar de un intérprete o traductor oficial para atender las audiencias del proceso y para suscribir las actas, acuerdos y/o documentos que resulten del proceso.

@@ -1,0 +1,2 @@
+Artículo 58: Seguimiento de acuerdos
+El Centro podrá solicitar a las partes que hayan logrado acuerdo parcial o total de conciliación por intermedio de un procedimiento conciliatorio celebrado en el Centro, información sobre el resultado y estado del acuerdo o cualquier otra información relativa al funcionamiento administrativo, con el propósito de llevar un control estadístico, de servicio y calidad.

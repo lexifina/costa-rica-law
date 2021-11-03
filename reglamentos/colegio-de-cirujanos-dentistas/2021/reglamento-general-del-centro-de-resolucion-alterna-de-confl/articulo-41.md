@@ -1,0 +1,3 @@
+Artículo 41: Confidencialidad
+El conciliador/a, las partes, sus representantes, asesores, los eventuales observadores, el Director/a y el personal administrativo, están obligados a mantener el carácter confidencial de todas las cuestiones y deliberaciones relativas al procedimiento conciliatorio. La confidencialidad se hará también extensiva a los acuerdos conciliatorios, salvo en los casos establecidos en la Ley.
+Para garantizar el cumplimiento de este principio, las partes, el conciliador/a y cualquier otra persona involucrada en el proceso, deberán suscribir al inicio del mismo, un acuerdo de confidencialidad.

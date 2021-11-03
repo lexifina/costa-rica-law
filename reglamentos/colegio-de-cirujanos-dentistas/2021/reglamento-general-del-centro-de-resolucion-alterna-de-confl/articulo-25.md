@@ -1,0 +1,2 @@
+Artículo 25. De la asignación de costos.
+El pago y cobertura de las distintas tarifas, costos administrativos, honorarios de conciliadores/as, facilitadores/as y neutrales y otros gastos procesales o rubros no previstos, se distribuirá de la manera en que hayan expresamente acordado las partes en el acuerdo respectivo o durante la aplicación del mecanismo RAC; o a falta de acuerdo, de la manera en que se encuentre regulado en este Reglamento o en la tabla de tarifas vigente al momento de la prestación del servicio.

@@ -1,0 +1,5 @@
+Artículo 46: Designación del conciliador
+Cuando se presente una solicitud de conciliación, la Dirección designará al conciliador/a que por turno corresponda de la lista que el Centro lleva al efecto. Queda a criterio del Director/a asignar el caso a un conciliador/a determinado y específico cuando las características particulares del asunto sometido a conciliación lo requieran.
+Si las partes hubiesen incluido en una solicitud conjunta de conciliación el nombre de la persona que desean como conciliador/a, la Dirección procederá a confirmar el nombramiento, siempre que el conciliador/a seleccionado cumpla con los requisitos establecidos en la Ley.
+Habrá un conciliador/a, a menos que las partes acuerden expresamente que la conciliación se realice con dos o más conciliadores, o que la Dirección lo considere pertinente.
+Ambas partes tendrán el derecho, previo a la audiencia y en el transcurso de la misma, de solicitar que se designe un nuevo conciliador/a. Para este fin, la parte deberá dirigir una comunicación dirigida a la Dirección del Centro, en la cual se establezcan claramente las razones que motivan la petición.

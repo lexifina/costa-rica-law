@@ -1,0 +1,2 @@
+Artículo 15: Convocatoria y toma de decisiones
+Las sesiones podrán ser presenciales y/o virtuales, serán convocados cuando se consideren necesarias y con al menos 15 días de antelación. Las convocatorias a las sesiones podrán ser realizadas por el presidente/a del Consejo o por el Director/a del Centro, éste último siempre fungirá como Secretario/a del Consejo; el Director/a del Centro tendrá voz pero no voto en las deliberaciones. Sus miembros emitirán las recomendaciones y decisiones por simple mayoría.

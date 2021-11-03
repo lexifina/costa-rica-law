@@ -1,0 +1,2 @@
+Artículo 78: Honorarios
+El conciliador/a, facilitador/a y neutral devengará por su labor, el monto de honorarios establecido en la tabla de tarifas y aranceles del Centro, no pudiendo cobrar más de lo ahí estipulado ni negociar directamente con las partes precio alguno, sea superior o inferior a los montos tarifarios. No obstante lo anterior, el conciliador/a, facilitador/a y neutral podrá realizar su labor de manera gratuita Solamente el Centro, con el consentimiento de las partes, podrá determinar de común acuerdo con los neutrales, tarifas diferentes a las establecidas.

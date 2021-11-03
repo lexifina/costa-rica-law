@@ -1,0 +1,6 @@
+Artículo 40: Representación y Asesoramiento
+Las partes podrán estar representadas y/o asesoradas por personas de su elección.
+Los nombres, calidades y las direcciones electrónicas o medios de contacto de esas personas se comunicarán a la Dirección, debiéndose de precisar si la designación se hace a efectos de representación o de asesoramiento.
+Los representantes de las partes deben tener y aportar para la audiencia el poder suficiente para firmar el acuerdo conciliatorio.
+Los asesores legales de las partes podrán acompañar a las partes durante las audiencias. Sin embargo, los asesores deberán .tener en cuenta que el papel protagónico le corresponde únicamente a las partes, por lo que no podrán intervenir directamente durante el desarrollo de las deliberaciones. El conciliador/a podrá suspender momentáneamente la audiencia cbnjunta para efectos de que la parte consulte en forma privada con su asesor. El conciliador/a tiene amplias facultades para determinar la manera como intervendrán en las audiencias los asesores de las partes.
+En todo caso, cuando se lograsen acuerdos en ausencia de los asesores legales de las partes, el conciliador/a les recordará a las partes su derecho de consultar a un abogado/a respecto del contenido de los acuerdos antes de su firma.

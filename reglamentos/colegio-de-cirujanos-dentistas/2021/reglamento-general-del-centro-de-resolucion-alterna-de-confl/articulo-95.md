@@ -1,0 +1,2 @@
+Artículo 95: Traslado de la denuncia
+Dentro del plazo de cinco días hábiles siguientes, el Consejo Asesor y Ético del Centro, deberá notificar el acto de apertura al presunto infractor en la dirección electrónica que consta en el expediente personal que lleva el Centro, para que en un plazo de quince días hábiles, haga sus manifestaciones y presente las pruebas que estime pertinentes para su defensa.

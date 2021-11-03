@@ -1,0 +1,3 @@
+Artículo 57: En caso de no acuerdo
+Si a pesar de los esfuerzos realizados por el conciliador/a las partes no suscriben ningún acuerdo conciliatorio sobre ninguno de los extremos controvertidos, el conciliador/a levantará un acta de no acuerdo, en la cual se dejará constancia de las personas que comparecieron, así como la indicación de que no hubo acuerdo y se dará por concluido el procedimiento. El acta de no acuerdo deberá ser firmado (física o digitalmente) por ambas partes y por el conciliador/a; si alguna o ambas partes de negaran a suscribirlo, de ello dejará constancia el conciliador/a quien lo deberá firmar.
+En atención del principio de confidencialidad, no se podrá consignar en dicha acta propuestas ni deliberaciones ni aspectos conversados en la audiencia.

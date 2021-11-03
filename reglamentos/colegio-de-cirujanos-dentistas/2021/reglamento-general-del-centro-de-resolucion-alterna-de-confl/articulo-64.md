@@ -1,0 +1,2 @@
+Artículo 64: Imposibilidad de exoneración de responsabilidad.
+Será nulo y se considerará como no puesto, cualquier acuerdo, convenio o transacción suscrito por los usuarios de los servicios del Centro y los conciliadores/as, facilitadores/as y neutrales o el personal del Centro que invalide o pretenda desaplicar este Título, les exonere de responsabilidad, o implique la renuncia para accionar o denunciar en su contra.
