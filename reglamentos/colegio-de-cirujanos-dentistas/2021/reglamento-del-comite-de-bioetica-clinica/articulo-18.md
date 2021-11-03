@@ -1,0 +1,2 @@
+Artículo 18.-Rendición de cuentas: Deberá rendir un informe anual ante la Junta Directiva sobre su gestión, incluyendo en el mismo las propuestas que contribuyan con el mejoramiento de la formación, desarrollo e implementación de la bioética en la gestión odontológica.
+Además, debe emitir informes extraordinarios cuando así lo solicite la Junta Directiva, o bien, tratándose de temas, asuntos o aspectos de especial relevancia que requieran atención inmediata, urgente por su interés para este Colegio, el gremio odontológico y la salud pública costarricense.

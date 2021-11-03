@@ -1,0 +1,2 @@
+Artículo 24.-Documentos: Para la recepción de la gestión consultiva, al menos se deberá aportar el detalle escrito, claro y conciso del asunto de su interés, debidamente firmado por el interesado, de manera física o digital.
+Una vez recibido se realizará una valoración preliminar, con el objeto de esclarecer la competencia del Comité. No se tramitarán peticiones anónimas, salvo que el Comité valore preliminarmente que resulta de interés público su atención.

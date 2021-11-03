@@ -1,0 +1,1 @@
+Artículo 21.-Partes legitimadas para gestionar. Cualquier persona con interés legítimo, que sea prestatario y/o usuaria de los servicios de salud odontológica, sean estos de índole público o privado, que requiera la intervención para la evaluación de un asunto bioético, podrá interponer formal gestión ante el Comité o la Junta Directiva del Colegio.

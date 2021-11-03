@@ -1,0 +1,1 @@
+Artículo 6º-Confidencialidad. Los miembros del Comité tienen el deber de guardar reserva sobre las deliberaciones que tengan relación con el contenido de los debates y con las informaciones que les fueran facilitadas con tal carácter o las que así recomiende el propio Comité.

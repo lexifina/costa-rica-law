@@ -1,0 +1,1 @@
+Artículo 10.-Invitados especiales. Las sesiones del Comité son privadas, sin embargo, podrán invitarse a participar de las sesiones ordinarias y extraordinarias del órgano colegiado a otras personas invitadas con fines específicos y debidamente motivados, quienes deberán guardar absoluta confidencialidad en los temas que sean puestos a su conocimiento.

@@ -1,0 +1,1 @@
+Artículo 7º-Del conflicto de intereses. Los miembros del Comité se inhibirán del conocimiento, deliberación y decisión de los asuntos en que pudiera verse comprometida su independencia, imparcialidad u objetividad de criterio y en todo caso, cuando lo establezca la legislación vigente o a solicitud del propio Comité.
