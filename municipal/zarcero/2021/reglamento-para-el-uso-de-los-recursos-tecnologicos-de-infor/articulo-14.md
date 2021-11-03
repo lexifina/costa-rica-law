@@ -1,0 +1,2 @@
+Artículo 14.-Todo software protegido por derechos de autor que esté instalado en el equipo de cómputo de la Municipalidad de Zarcero debe poseer licencia de uso, siendo el responsable de su custodia el departamento de Tecnologías de Información.
+Asimismo, en caso de que algún usuario adquiera un programa para utilizarlo dentro de la Institución deberá remitir la licencia al departamento de Tecnologías de Información, para que se incorpore al inventario institucional y se guarde adecuadamente, debiendo ser instalada dicha licencia, por un funcionario del departamento citado.

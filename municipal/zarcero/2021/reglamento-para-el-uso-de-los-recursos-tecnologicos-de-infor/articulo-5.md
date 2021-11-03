@@ -1,0 +1,18 @@
+Artículo 5º-Del usuario. El usuario es responsable de la adecuada conservación del equipo de cómputo que la Municipalidad de Zarcero le provea para el desempeño de sus labores y de la información institucional que gestione. Son deberes del usuario:
+a) Utilizar el equipo de cómputo y sus componentes únicamente para realizar trabajos funciones y actividades laborales vinculadas a los objetivos municipales, procurando la racionalidad en su uso y los suministros que se le otorguen en relación con éste.
+b) Procurar que el equipo de cómputo y sus componentes se mantengan en condiciones adecuadas de limpieza.
+c) Comprobar, con la ayuda del programa antivirus Institucional, la existencia de virus en los dispositivos de almacenamiento masivo, discos duros externos, CD´s, entre otros, antes de ser utilizados, así como en el disco duro local y otras unidades de disco internas.
+d) Realizar respaldos de la información que resida en el disco duro de la computadora que se le haya asignado para ejecutar sus labores, conforme a lo establecido por el departamento de Tecnologías de Información solicitando de forma digital (correo electrónico).
+e) Limpiar la información almacenada en el disco duro extrayendo los archivos más antiguos y de menor utilización, al menos una vez cada seis meses.
+f) Conservar y custodiar los archivos en respaldos que le suministre el departamento de Tecnologías de Información, al menos seis meses, pudiendo en caso de ser necesario, solicitar al departamento de Tecnologías de Información asesoría para la realización del mismo en un disco compacto.
+g) Cuando por razones de seguridad de la información, el usuario debe tener una clave de acceso al equipo de cómputo en el BIOS o con perfil de administrador, debe informar al departamento de Tecnologías de Información, para que sea atendida por este.
+h) Garantizar la privacidad de sus claves de acceso al equipo de cómputo, a los sistemas municipales y archivos compartidos, así como evitar la difusión de los mismos.
+i) En caso de mantener en su lugar de trabajo equipo de cómputo personal deberá informarlo por escrito al departamento de Tecnologías de Información, a fin de que su equipo no sea tomado en cuenta en caso de inventario del mismo y de las licencias de software.
+j) Acatar aquellas instrucciones divulgadas por el departamento de Tecnologías de Información en cuanto al uso de los distintos recursos tecnológicos.
+k) Responder por daños o atrasos ocasionados por la pérdida de información u omisión de respaldo o por el mal uso de los equipos de cómputo.
+l) Solicitar la autorización, por escrito y con visto bueno del superior inmediato, al departamento de Tecnologías de Información cuando requiera utilizar otro equipo de cómputo que no está bajo su responsabilidad.
+m) Solicitar la autorización, por escrito y con visto bueno del superior inmediato, al departamento de Tecnologías de Información, cuando su equipo va a ser utilizado por otro funcionario.
+n) Solicitar la autorización, por escrito y con visto bueno del superior inmediato, al Departamento de Tecnologías de Información, cuando su equipo va a ser trasladado de la posición asignada por el departamento de Tecnologías de Información.
+o) Informar de manera inmediata al departamento de Tecnologías de Información, cuando algún equipo de cómputo sufra algún problema técnico.
+p) Procurar que el equipo computo asignado no sea utilizado por terceros sin autorización del departamento de Tecnologías de Información.
+q) Todas aquellas que se establezcan en el presente reglamento.
