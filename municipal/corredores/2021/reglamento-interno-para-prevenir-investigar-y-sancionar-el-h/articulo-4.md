@@ -1,0 +1,1 @@
+Artículo 4º-En todos los demás aspectos relacionados con el régimen sancionatorio y con motivo de la comisión de las faltas a que alude el artículo anterior, la Municipalidad de Corredores aplicará las disposiciones contenidas en la Ley en sus artículos 25 a 28 inclusive.

@@ -1,0 +1,1 @@
+Artículo 12.-Del traslado de la denuncia. Integrado el Órgano Director, hará el traslado de la denuncia a la persona denunciada, y se le citará a una comparecencia oral y privada concediéndole un plazo de cinco días hábiles para que ejerza su defensa, se refiera a todos y cada uno de los hechos que se le imputan y ofrezca la prueba en descargo, en relación con los mismos.

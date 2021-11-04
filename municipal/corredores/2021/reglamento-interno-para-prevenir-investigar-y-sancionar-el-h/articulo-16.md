@@ -1,0 +1,2 @@
+Artículo 16.-De los recursos contra la resolución. La resolución final tendrá recurso de revocatoria, que será resuelto por el mismo órgano que dictó el acto final así como de recurso de apelación, de conformidad con las reglas establecidas en el Código Municipal.
+Una vez agotada la Vía Administrativa, o si los procedimientos no se hubieren cumplido por motivos que no se le pueden imputar a la persona ofendida, la denuncia por Hostigamiento o Acoso Sexual, se podrá presentar ante los tribunales de la jurisdicción laboral, los cuales son competentes para conocerlas.

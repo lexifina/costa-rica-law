@@ -1,0 +1,8 @@
+CAPÍTULO III
+De los procedimientos
+Artículo 7º-Presentación de la denuncia. Todo funcionario o funcionaria de la Municipalidad de Corredores, así como todo usuario o usuaria de sus servicios municipales que haya sido afectado o afectada por Hostigamiento o Acoso Sexual, por parte de algún trabajador o trabajadora de dicha institución, podrá plantear la denuncia escrita o verbal ante cualquiera de los profesionales encargados de la Oficina de Recursos Humanos, Dirección Jurídica u oficina equivalente, y la Oficina municipal de la Mujer; cualquier otra oficina o dirección no estará facultada para recibir estas denuncias sino que las referirá a las ya mencionadas dependencias municipales, sin entrar en detalle ni averiguaciones, por ser de índole confidencial para el afectado o afectada. De lo manifestado se levantará un acta, que firmará la persona supuestamente ofendida, junto con el o la profesional de las oficinas antes indicadas que recibe la denuncia y que pondrá en conocimiento del alcalde o alcaldesa en las 24 horas siguientes.
+El o la denunciante deberá aportar la siguiente información:
+a) Su nombre y apellidos, número de cédula, dirección exacta, número de teléfono, fax y otros necesarios para localizarle en forma expedita.
+b) Nombre y apellidos de la persona denunciada, cargo que ocupa en la Municipalidad, en casos de que no trabaje en la Municipalidad, nombre teléfono dirección del centro de trabajo donde labora y la dirección del domicilio, si constan en algún documento municipal para hacer la denuncia ante quien corresponda.
+c) Una descripción clara y detallada de los hechos o situaciones que fundamentan la denuncia, fechas, lugares, testigos si los hubo y toda la prueba de que dispusiere.
+d) Lugar o fax para atender notificaciones.
