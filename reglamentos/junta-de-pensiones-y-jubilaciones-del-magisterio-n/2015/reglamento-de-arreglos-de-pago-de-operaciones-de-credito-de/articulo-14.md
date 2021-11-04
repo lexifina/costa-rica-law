@@ -1,2 +1,2 @@
-Artículo 14.—Vigencia: Rige a partir de su publicación en el Diario Oficial La Gaceta.
-(Así reformado mediante sesión N° 0050-2019 del 3° de mayo de 2019)
+Artículo 14º-Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+(Así reformado mediante Sesión Ordinaria N° 0123-2021 del 04 de noviembre de 2021)

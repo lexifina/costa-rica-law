@@ -1,2 +1,2 @@
-Artículo 8°—Operaciones que hayan sido declaradas incobrables. Aquellas operaciones que se encuentren en cuentas de orden no pueden ser sujetas de arreglos de pago en los términos de este reglamento; sin embargo se podrá llegar a un acuerdo de pago con el deudor para recuperar el monto adeudado sin que se vuelva a registrar la operación en la cartera de crédito.
-(Así reformado mediante sesión N° 0050-2019 del 3° de mayo de 2019)
+Artículo 8º-Operaciones que hayan sido declaradas incobrables. Aquellas operaciones que se encuentren en cuentas de orden se podrán llegar a un acuerdo de pago con el deudor para recuperar el monto adeudado, sin que se vuelva a registrar la operación en la cartera de crédito.
+(Así reformado mediante Sesión Ordinaria N° 0123-2021 del 04 de noviembre de 2021)
