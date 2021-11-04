@@ -1,0 +1,41 @@
+N° 43188-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3), 10) y 18) de la Constitución Política y los numerales 25 inciso 1), 27 inciso 1) y 28 inciso 2. acápite b) de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978 y sus reformas, artículos 106 quáter, 115 bis y 174 del Código de Normas y Procedimientos Tributarios, Ley N° 4755 de 3 de mayo de 1971, Acuerdo con el Gobierno de los Estados Unidos de América para el intercambio de información en materia tributaria, Ley N° 9749 del 29 de octubre de 2019, Acuerdo con el Gobierno de los Estados Unidos de América para Mejorar el Cumplimiento Fiscal Internacional para Implementar FATCA, Decreto Ejecutivo N° 41739-H, de fecha 15 de mayo de 2019.
+Considerando:
+1º-Que la asistencia administrativa internacional mediante el intercambio internacional de información en cualquiera de sus modalidades (previo requerimiento, automático y espontáneo), es uno de los compromisos asumidos por Costa Rica para el cumplimiento de los estándares internacionales de transparencia fiscal.
+2º-Que la comunidad internacional, incluyendo a Costa Rica, se ha comprometido con la implementación del intercambio automático de información, incluyendo el intercambio de información financiera.
+3º-Que el artículo 115 bis del Código de Normas y Procedimientos Tributarios, en adelante Código Tributario, establece que el intercambio de información con otras jurisdicciones se realizará de conformidad con las disposiciones contenidas en cada convenio internacional.
+4º-Que el artículo 106 quáter del Código Tributario establece el procedimiento para requerir información financiera para el intercambio de información con otras jurisdicciones en virtud de un convenio internacional.
+5º-Que el Gobierno de los Estados Unidos de América mediante la Ley sobre el Cumplimiento Fiscal relativo a Cuentas en el Extranjero conocida por sus siglas en inglés como FATCA (Foreign Account Tax Compliance Act), introdujo un régimen para que las instituciones financieras reportaran información relacionada con ciertas cuentas de clientes estadounidenses al Servicio de Rentas Internas de dicho país.
+6º-Que el 26 de noviembre de 2013 se llevó a cabo la suscripción del "Acuerdo entre el Gobierno de Costa Rica y el Gobierno de los Estados Unidos de América para Mejorar el Cumplimiento Fiscal Internacional y para Implementar FATCA", como un instrumento derivado del Convenio de Intercambio de Información Tributaria entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos de América (Ley N° 7194 del 29 de agosto de 1990), Convenio que ya no se encuentra vigente en virtud de la Ley N° 9749 del 29 de octubre de 2019.
+7º-Que el 20 de marzo de 2019, se suscribió un Acuerdo complementario para modificar el párrafo 10 del artículo 3 del Acuerdo entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos de América para mejorar el cumplimiento fiscal internacional y para implementar FATCA, relacionado con las normas aplicables a su terminación.
+8º-Que mediante Decreto Ejecutivo N° 41739-H, de fecha 15 de mayo de 2019, publicado en el Alcance Digital N° 141 del Diario Oficial La Gaceta N° 117 de fecha 24 de junio de 2019, se realizó la promulgación necesaria para la entrada en vigor del "Acuerdo entre el Gobierno de Costa Rica y el Gobierno de los Estados Unidos de América para mejorar el cumplimiento fiscal internacional y para implementar FATCA".
+9º-Que mediante Ley N° 9749 del 29 de octubre de 2019 publicada en el Alcance N° 251 del Diario Oficial La Gaceta N° 215 del 12 de noviembre de 2019, se aprobó el denominado: "Acuerdo entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos de América para el intercambio de información tributaria", derogando expresamente la Ley N° 7194 del 29 de agosto de 1990 para ajustarlo a los estándares internacionales actuales, además de incluir una disposición específica relacionada con el intercambio automático de información en el artículo 6 del mismo.
+10.-Que el día 24 de agosto de 2020 se suscribió el Acuerdo complementario para confirmar el acuerdo entre las partes para que el IGA continúe vigente ante la entrada en vigor del Acuerdo entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos de América para el intercambio de información tributaria, Ley N° 9749 del 29 de octubre de 2019, toda vez que el nuevo instrumento internacional no se opone a lo indicado en el Convenio de Intercambio de Información Tributaria entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos de América que estuvo vigente desde 1990, sino que amplía temas relacionados con la transparencia fiscal y las mejores prácticas internacionales sobre intercambio de información con fines fiscales.
+11.-Que en razón del interés público que reviste la implementación del acuerdo intergubernamental suscrito entre Costa Rica y los Estados Unidos de América y del evidente interés del país en cumplir con los compromisos internacionales asumidos en materia de transparencia fiscal, se prescinde del trámite de publicación del aviso dispuesto en el artículo 174 del Código Tributario.
+12.-Que en virtud de que el presente decreto no establece ni modifica trámites, requisitos o procedimientos que el ciudadano deba cumplir, de conformidad con lo que establece el artículo 12 del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos se prescinde del trámite de control previo establecido por la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio. Por tanto,
+Decretan:
+"MODIFICACIÓN DE LOS ARTÍCULOS 1, 2 E INCISO 6
+DEL ARTÍCULO 3 Y CONTINUIDAD DE LA VIGENCIA DEL
+DECRETO 41739 -H, DENOMINADO PROMULGACIÓN
+DEL ACUERDO ENTRE EL GOBIERNO DE COSTA RICA
+Y EL GOBIERNO DE LOS ESTADOS UNIDOS DE
+AMÉRICA PARA MEJORAR EL CUMPLIMIENTO FISCAL
+INTERNACIONAL Y PARA IMPLEMENTAR FATCA"
+Artículo 1º-Modifícase el segundo párrafo del preámbulo del artículo 1, así como el primer párrafo del artículo 2 y el inciso 6 del artículo 3 del denominado: "Acuerdo entre el Gobierno de Costa Rica y el Gobierno de los Estados Unidos de América para mejorar el cumplimiento fiscal internacional y para implementar FATCA", Decreto Ejecutivo N° 41739-H, para que en adelante se lean de la siguiente manera:
+"Artículo 1. Se promulga, teniéndolo como vigente para todos los efectos internos y externos, el "ACUERDO ENTRE EL GOBIERNO DE COSTA RICA Y EL GOBIERNO DE LOS ESTADOS UNIDOS DE AMÉRICA PARA MEJORAR EL CUMPLIMIENTO FISCAL INTERNACIONAL Y PARA IMPLEMENTAR FATCA", suscrito por los representantes de los gobiernos de Costa Rica y de los Estados Unidos de América el 26 de noviembre de 2013 y enmendado mediante los Acuerdos complementarios firmados el 20 de marzo de 2019 y el 24 de agosto de 2020, cuyo texto literal es el siguiente:
+ACUERDO ENTRE EL GOBIERNO DE COSTA RICA
+Y EL GOBIERNO DE LOS ESTADOS UNIDOS DE AMÉRICA PARA MEJORAR EL CUMPLIMIENTO FISCAL INTERNACIONAL Y PARA IMPLEMENTAR FATCA
+(.)
+Considerando que el Acuerdo entre el Gobierno de los Estados Unidos de América y el Gobierno de la República de Costa Rica para el Intercambio de Información Relativa a los Impuestos, firmado en San José el 17 de abril de 2018 (el "TIEA"), autoriza el intercambio de información a efectos fiscales, incluso de forma automática;
+(.)"
+"Artículo 2
+Obligaciones de las Partes para Obtener e Intercambiar Información con Respecto a Cuentas Reportables
+1. Sujeto a lo dispuesto en el Artículo 3 de este Acuerdo, cada Parte deberá obtener la información específica señalada en el párrafo 2 de este Artículo con respecto a todas las Cuentas Reportables y deberá intercambiar información de manera automática anualmente con la otra Parte de conformidad con lo señalado en las disposiciones del artículo 6 del TIEA.
+(.)"
+"Artículo 3
+Tiempo y Forma del Intercambio de Información
+(.)
+6. Las Autoridades Competentes de Costa Rica y los Estados Unidos celebrarán un acuerdo a través del procedimiento de acuerdo mutuo establecido en el Artículo 12 del TIEA, el cual:
+(.)"
