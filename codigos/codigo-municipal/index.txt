@@ -83,6 +83,7 @@ articulo-80.md
 articulo-81.md
 articulo-82.md
 articulo-83.md
+articulo-83-bis.md
 articulo-84.md
 articulo-85.md
 articulo-85-bis.md
