@@ -1,0 +1,1 @@
+Artículo 9º-Interinatos, suplencias y recargos. Aquellos funcionarios/as que de manera interina o transitoria ocupen cualquiera de los cargos mencionados en el artículo anterior, deberán caucionar cuando su nombramiento sea igual o superior de un mes. Lo cual deberá cumplir en el plazo máximo de cinco días hábiles.

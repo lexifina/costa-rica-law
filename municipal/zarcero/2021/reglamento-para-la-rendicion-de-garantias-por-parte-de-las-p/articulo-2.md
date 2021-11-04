@@ -1,0 +1,8 @@
+Artículo 2º-Definiciones: Con el fin de unificar conceptos, para los efectos de la presente normativa se establecen las siguientes definiciones:
+a) Caución: garantía rendida por un funcionario/a municipal en favor de la Municipalidad, para el resarcimiento de eventuales daños y perjuicios que el caucionado/da pueda producir al patrimonio de la Municipalidad, mediante la presentación de una póliza de fidelidad, sin que ello limite la eventual responsabilidad civil y/o penal correspondiente.
+b) Caucionante: colaborador municipal obligado a rendir garantía o prestar caución, por la naturaleza de su puesto.
+c) Administrar fondos públicos: corresponde a la persona que presta servicio en la Municipalidad de Zarcero, que por sus atribuciones puede determinar los objetivos y políticas de la Municipalidad que incidan en la Hacienda Pública.
+d) Fondos o valores públicos: Son recursos, valores, bienes y derechos de naturaleza pública, de conformidad con el artículo 9 de la Ley Orgánica de la Contraloría General de la República.
+e) Custodio de fondos o valores públicos: Corresponde a la persona que presta servicio en la Municipalidad de Zarcero que, por la índole de sus responsabilidades, guarda o tiene a su cargo recursos, bienes o derechos públicos.
+f) Recaudador de fondos o valores públicos: corresponde a la persona que presta servicio en la Municipalidad de Zarcero que por sus responsabilidades cobra o percibe rentas públicas (fondos o valores públicos).
+g) Salario base: De conformidad con la ley que Crea Concepto Salario Base (Ley No7337 de 1993), Salario Base, corresponde al monto equivalente al salario base mensual del "Oficinista 1" que aparece en la relación de puestos de la Ley de Presupuesto Ordinario de la República.

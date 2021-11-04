@@ -1,0 +1,1 @@
+Artículo 14.-Monto mínimo de la caución. El monto mínimo de la caución a favor de la Municipalidad de Zarcero será de un salario base según lo establecido en el artículo 2 de la Ley N° 7337, del 5 de mayo de 1993.

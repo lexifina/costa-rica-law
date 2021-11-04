@@ -1,0 +1,2 @@
+Artículo 5º-Momento para rendir la caución. Los funcionarios de la Municipalidad de Zarcero o personas contratadas por la administración municipal que administren, recauden y custodien fondos o valores públicos, serán los responsables directos de rendir la caución y se deberán presentar los documentos que la acreditan, ante el Departamento de Recursos Humanos de la Municipalidad,
+antes de asumir el cargo o iniciar la contratación con la Institución. La caución deberá de ser rendida a más tardar, en el décimo día hábil después de asumir el cargo.

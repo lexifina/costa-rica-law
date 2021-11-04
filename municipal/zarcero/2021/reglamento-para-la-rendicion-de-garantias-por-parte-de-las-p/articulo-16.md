@@ -1,0 +1,2 @@
+Artículo 16.-Vigencia de la caución. Una vez rendida la caución deberá permanecer vigente durante todo el tiempo en que el caucionado/da permanezca en el cargo obligado a rendir la garantía. Es obligación del caucionado/da gestionar la renovación o actualización que corresponda, para mantener vigente y actualizada, la caución otorgada.
+Una vez resuelta la relación de empleo por cualquier motivo, el caucionado/da deberá mantener vigente la garantía por cuatro años más.
