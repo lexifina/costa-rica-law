@@ -1,0 +1,1 @@
+Artículo 3º-Alcance. El concepto de ética regulado en este código es aplicable a la conducta del personal en todas las facetas del cumplimiento del deber ligadas a la relación laboral y profesional, dentro y fuera de las instalaciones de la Municipalidad de Zarcero.

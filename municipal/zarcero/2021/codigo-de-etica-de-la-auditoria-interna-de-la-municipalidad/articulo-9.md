@@ -1,0 +1,1 @@
+Artículo 9º-Faltas al Código de Ética. La infracción a las normas de este Código generará responsabilidad disciplinaria de acuerdo con la Ley General de Control Interno, el Código Municipal, el Reglamento Interno de Trabajo de la Municipalidad de Zarcero y Ley General de la Administración Pública.

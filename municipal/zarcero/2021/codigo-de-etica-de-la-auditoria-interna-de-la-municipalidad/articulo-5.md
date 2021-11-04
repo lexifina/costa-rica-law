@@ -1,0 +1,1 @@
+Artículo 5º-Actualización del Código. La persona titular de la Auditoría Interna tendrá la responsabilidad de proponer al Concejo Municipal los cambios que considere necesarios, según las circunstancias internas del Gobierno Local y los factores externos que pudieran afectar la naturaleza de las normas.

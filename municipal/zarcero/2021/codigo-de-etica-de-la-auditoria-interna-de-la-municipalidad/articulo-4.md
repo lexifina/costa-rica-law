@@ -1,0 +1,1 @@
+Artículo 4º-Marco normativo. El marco normativo del presente Reglamento se fundamenta en la Constitución Política, en la Ley General de Control Interno y en las regulaciones de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Las normas de ética son de aplicación obligatoria para el personal de planta de la Auditoría Interna y para las personas externas que ocasionalmente realicen labores de apoyo en la Oficina.
