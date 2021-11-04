@@ -1,0 +1,1 @@
+Artículo 30.-Proyectos rechazados. Los proyectos presentados dentro de los plazos previstos en los lineamientos, pero que no alcanzaron su ingreso al BPIP en el proceso de verificación, podrán ser reingresados al sistema una vez que la institución formuladora adecúe su proyecto a las normas y guías de inversión.

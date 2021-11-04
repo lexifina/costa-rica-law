@@ -1,0 +1,1 @@
+Artículo 19.-Evaluación Final. Las instituciones deben realizar una evaluación final al término de la etapa de ejecución de los proyectos seleccionados para este fin, de acuerdo con la guía que Mideplan establezca. Estas evaluaciones deberán presentarse a Mideplan a través del módulo digital del BPIP.

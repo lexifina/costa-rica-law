@@ -1,0 +1,1 @@
+Transitorio Único. Las Instituciones y los Ministros Rectores tendrán un plazo de seis meses después de la publicación de este reglamento en el diario oficial La Gaceta, para implementar las nuevas disposiciones.

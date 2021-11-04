@@ -1,0 +1,2 @@
+Artículo 35.-Adiciónase una definición al artículo 2 del Reglamento General del Sistema Nacional de Planificación (Decreto Ejecutivo N° 37735-PLAN del 06 de mayo del 2013), después de la definición de "Política" y córrase su numeración. El texto de la adición es el siguiente:
+"39) Portafolio: Es la agrupación de proyectos y programas para facilitar la gestión en aras del cumplimiento de las prioridades país y/o los objetivos estratégicos presentes en los respectivos instrumentos de planificación."

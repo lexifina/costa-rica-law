@@ -1,0 +1,6 @@
+CAPÍTULO VIII
+Banco De Proyectos de Inversión Pública
+Artículo 27- Identificación del proyecto. Todo proyecto de inversión pública deberá identificarse en el BPIP en forma permanente e inequívoca a través de dos requisitos básicos:
+a) Código del BPIP: Se asignará a cada proyecto un número propio, del consecutivo único y secuencial que lleve el BPIP, que identificará siempre al proyecto de inversión, desde su ingreso como perfil hasta cuando esté en operación y mantenimiento o el proyecto sea eliminado. El registro ante el BPIP de todos los proyectos de inversión deberá realizarse a partir de la etapa de Perfil.
+b) Nombre del proyecto de inversión: El proyecto ingresará al BPIP con un nombre que será invariable a lo largo del ciclo de vida mientras no se produzcan variaciones en su naturaleza o alcance. El nombre del proyecto se podrá modificar solo una vez posterior a su registro en el BPIP y durante la Fase de Preinversión, para lo cual la institución responsable debe informar y presentar la documentación que fundamenten los cambios a realizar en el proyecto y los estudios de preinversión actualizados, tanto al Ministro Rector como al Mideplan.
+La modificación del nombre será de acuerdo con lo estipulado en las Normas Técnicas de Inversión Pública vigentes a la fecha de solicitud de modificación.
