@@ -1,3 +1,11 @@
-ARTÍCULO 40.- Propiedad de los residuos
-Los residuos valorizables que sean recolectados en forma selectiva serán propiedad y responsabilidad de los municipios en el momento en que los usuarios del servicio público sitúen o entreguen los residuos para su recolección separada, de conformidad con el reglamento respectivo.
-Previa autorización de la municipalidad correspondiente, estos residuos podrán ser entregados o recolectados por un gestor autorizado o una empresa mixta, para su valorización, en cuyo caso corresponde a este la propiedad y la responsabilidad de su manejo.
+ARTÍCULO 40.- Exenciones para la importación de residuos
+El Ministerio de Salud podrá autorizar la importación de residuos ordinarios para ser valorizados en el país, siempre y cuando determine, con fundamento en estudios técnicos y aplicando el principio precautorio, que no pone en peligro la salud y el ambiente. Para ello se deben dar las siguientes condiciones:
+a) Que por razones de economías de escala dicha importación permita o promueva el establecimiento de una tecnología ambientalmente adecuada, debidamente reconocida y aceptada en el ámbito internacional, para el tratamiento de residuos similares generados en el país que de otra forma no podrían ser gestionados localmente de manera responsable.
+b) Que dicha importación se realice de conformidad con el procedimiento y los protocolos que se establecerán para garantizar el adecuado seguimiento y control.
+c) Que el destino final de dichos residuos no sea su tratamiento y disposición final.
+d) Que se cuente con el criterio técnico previo de la Secretaría Técnica para la Gestión Racional de Sustancias Químicas.
+e) Que el residuo sea fuente de materia prima para la elaboración de otros productos.
+f) Que se cuente con procedimientos y protocolos establecidos para su adecuado transporte y trasiego en territorio nacional.
+g) Cualquier otra condición que establezca el Reglamento de esta Ley.
+La autorización para el caso concreto establecerá la cantidad, las características, el tipo de residuos autorizados y el destino de estos.
+(Así modificada su numeración por el artículo 2° de la ley N° 10031 del 4 de octubre de 2021, que lo traspaso del antiguo artículo 35 al 40)

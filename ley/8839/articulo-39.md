@@ -1,2 +1,4 @@
-Artículo 39- Generadores de residuos ordinarios De acuerdo con las condiciones que determinen los reglamentos respectivos, los generadores de residuos ordinarios estarán obligados a separarlos y clasificarlos para su valorización o disposición final por sus propios medios a través de gestores autorizados o a través de las municipalidades, así como cancelar a las municipalidades, de forma oportuna, el pago de la tasa de gestión integral de residuos, según el inciso h) del artículo 8 de la presente ley")
-(Así reformado por el artículo 1° de la ley N° 9825 del 9 de julio del 2020 )
+ARTÍCULO 39.-Prohibición para la importación y el movimiento transfronterizo
+Prohíbese la importación y el movimiento transfronterizo por el territorio nacional de residuos peligrosos, radioactivos y bioinfecciosos.
+También se considerarán dentro de esta prohibición los productos y sus partes que estén vencidos, dañados y obsoletos, de acuerdo con las autoridades sanitarias de su país de origen, independiente de su presentación, así como aquellos cuyo registro haya sido cancelado en su país de origen o hayan lIegado al final de su vida útil.
+(Así modificada su numeración por el artículo 2° de la ley N° 10031 del 4 de octubre de 2021, que lo traspaso del antiguo artículo 34 al 39)

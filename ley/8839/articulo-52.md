@@ -1,2 +1,9 @@
-ARTÍCULO 52.- Actuación indebida de funcionarios públicos
-Las sanciones estipuladas en este capítulo se aplicarán aumentadas en un tercio, si quien resulte responsable por acción u omisión es un funcionario público o de hecho que tienen en sus funciones obligaciones relacionadas con la gestión de residuos. Además, se podrá imponer la inhabilitación especial, consistente en la pérdida del cargo público y la imposibilidad de ser nombrado nuevamente en cualquier cargo público durante cinco años. Lo anterior, sin perjuicio de las sanciones penales y civiles aplicables.
+TÍTULO IV
+DISPOSICIONES FINALES
+CAPÍTULO I
+INFRACCIONES ADMINISTRATIVAS Y SANCIONES
+Artículo 52- Infracciones administrativas
+Las infracciones administrativas de esta ley se clasificarán en leves, graves y gravísimas.
+Las sanciones de las infracciones leves y graves serán competencia de la municipalidad correspondiente al cantón en donde se realizó la infracción y las gravísimas serán competencia del Tribunal Ambiental
+(Así reformado por el artículo 1° de la ley N° 9825 del 9 de julio del 2020 )
+(Así modificada su numeración por el artículo 2° de la ley N° 10031 del 4 de octubre de 2021, que lo traspaso del antiguo artículo 47 al 52)
