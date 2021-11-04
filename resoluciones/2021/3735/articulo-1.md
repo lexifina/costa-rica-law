@@ -29,25 +29,30 @@ a. AstraZeneca/Oxford.
 b. Pfizer/BioNTech.
 c. Moderna.
 d. Janssen.
-3. Nombres alternativos para las vacunas contra COVID-19 según empresa farmacéutica:
-Vacuna | Nombres alternativos
-AstraZeneca/Oxford | Covishield Vaxzevria AZD1222 ChAdOx1 ChAdOx1_nCoV19 India
-Pfizer/BioNTech | Comirnaty BNT162b2 Tozinameran
-Moderna | Spikevax mRNA-1273
-Janssen | COVID-19 Vaccine Janssen Johnson & Johnson Ad26.COV2.S
-4. Las dosis indicadas para cada vacuna son:
-a. AstraZeneca/Oxford: dos dosis.
-b. Pfizer/BioNTech: dos dosis.
-c. Moderna: dos dosis.
-d. Janssen (Johnson & Johnson): una dosis.
+3. Las vacunas contra COVID-19 que cuenta con aprobación para uso de emergencia por parte de la Organización Mundial de la Salud (OMS) son:
+a. AstraZeneca/Oxford.
+b. Pfizer/BioNTech.
+c. Moderna.
+d. Janssen.
+e. Sinopharm.
+f. Sinovac.
+g. Covaxin.
+4. Nombres alternativos para las vacunas contra COVID-19 según empresa farmacéutica y la dosis recomendada:
+Vacuna | Nombres alternativos | Dosis
+AstraZeneca/Oxford | Covishield Vaxzevria AZD1222 ChAdOx1 ChAdOx1_nCoV19 India | 2
+Pfizer/BioNTech | Comirnaty BNT162b2 Tozinameran | 2
+Moderna | Spikevax mRNA-1273 | 2
+Janssen | COVID-19 Vaccine Janssen Johnson & Johnson Ad26.COV2.S | 1
+Sinopharm | SARS-CoV-2 Vaccine (vero cell) Inactivated (InCoV) | 2
+Sinovac | COVID-19 Vaccine (vero cell) Coronavac TM | 2
+Covaxin | BBV152 Bharat Biotech's COVID-19 vaccine | 2
 5. Se entiende por "esquema completo de vacunación" la aplicación de la totalidad de dosis indicadas para cada vacuna por parte de la casa farmacéutica y que la última dosis se haya aplicado al menos 14 días antes del ingreso al territorio nacional.
-6. Se considerará como esquema completo de vacunación aquellos esquemas adoptados por las autoridades sanitarias de otros países que combinen vacunas de diferentes casas farmacéuticas, en tanto estas vacunas cuenten con la autorización de una autoridad reguladora estricta.
-7. Se considerará como esquema completo de vacunación aquellos casos en que el pasajero reciba una única dosis luego de haber padecido la enfermedad producida por el virus SARS-CoV-2. En estos casos, la documentación de vacunación deberá indicar que se trata de dosis 1/1 (dosis 1 de 1), aunque se haya aplicado una vacuna cuyo esquema tiene más dosis y en tanto se trate de vacunas que cuenten con la autorización de una autoridad reguladora estricta.
-8. La documentación que permita verificar el estado de vacunación del pasajero debe indicar al menos la siguiente información:
+6. Se considerará como esquema completo de vacunación aquellos esquemas adoptados por las autoridades sanitarias de otros países que combinen vacunas de diferentes casas farmacéuticas, en tanto estas vacunas cuenten con la autorización de una autoridad reguladora estricta u OMS.
+7. La documentación que permita verificar el estado de vacunación del pasajero debe indicar al menos la siguiente información:
 a. nombre del titular, que permita vincular directamente el documento de vacunación con el pasajero.
 b. marca de la vacuna aplicada.
 c. fecha de cada dosis aplicada.
-9. La documentación que permita verificar el estado de vacunación del pasajero debe presentarse en inglés o en español. La presentación de documentación en algún idioma distinto puede imposibilitar su revisión y validación.
-(Así reformado el punto segundo anterior por resolución MS-DM-RM-3794 del 10 de agosto de 2021)
+8. La documentación que permita verificar el estado de vacunación del pasajero debe presentarse en inglés o en español. La presentación de documentación en algún idioma distinto puede imposibilitar su revisión y validación.
+(Así reformado el punto segundo anterior por resolución MS-DM-RM-6735-2021 del 4 de noviembre de 2021)
 TERCERO: La presente resolución rige a partir del 1 de agosto de 2021.
 PUBLIQUESE:
