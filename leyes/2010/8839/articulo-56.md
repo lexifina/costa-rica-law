@@ -1,4 +1,4 @@
-ARTÍCULO 56.- Disposición ilegal
-Se impondrá la pena de prisión de dos a quince años a la persona que abandone, deposite o arroje en forma ilegal residuos peligrosos.
-La pena podrá aumentarse en un tercio cuando se abandonen, depositen o arrojen residuos peligrosos en áreas de protección del recurso hídrico, áreas silvestres protegidas, la zona marítimo-terrestre, aguas marinas o continentales y los cuerpos de agua destinados al consumo humano.
-La pena será de seis meses a cuatro años si lo que se abandona, deposita o arroja ilegalmente en estas áreas son otros tipos de residuos u otro tipo de sustancias o si estas conductas se realizan en bienes del Estado.
+Artículo 56- Deber de denuncia ante el Tribunal Ambiental Administrativo Cuando se presuma daño ambiental o ante las infracciones descritas en el artículo 48 de la presente ley, el Ministerio del Ambiente y Energía, el Ministerio de Salud, las municipalidades o cualquier otra autoridad de policía presentarán la denuncia ante el Tribunal Ambiental Administrativo, el cual deberá conceder audiencia al interesado, de conformidad con lo establecido en la Ley 7554, Ley Orgánica del Ambiente y el reglamento de procedimiento de dicho Tribunal.
+Además de los entes citados, cualquier persona, física o jurídica, podrá presentar denuncias al Tribunal Ambiental Administrativo y a las instancias judiciales correspondientes por violaciones a esta ley.
+(Así reformado por el artículo 1° de la ley N° 9825 del 9 de julio del 2020 )
+(Así modificada su numeración por el artículo 2° de la ley N° 10031 del 4 de octubre de 2021, que lo traspaso del antiguo artículo 51 al 56)

@@ -1,4 +1,4 @@
-ARTÍCULO 25.- Manejo del Fondo
-Las sumas recaudadas serán remitidas a una cuenta especial en la caja única del Estado que será administrada por el Ministerio de Salud. Para cumplir las funciones señaladas en esta Ley, el Ministerio de Salud deberá elaborar los presupuestos correspondientes a las obligaciones y las actividades que esta Ley les impone, así como a suscribir los contratos de administración que se requieran.
-Con respecto a las multas y los ingresos correspondientes a los incisos h) y i) del artículo 24 de esta ley, la Tesorería Nacional deberá girarlos a la municipalidad del cantón donde se originó la infracción correspondiente, para que se utilicen los recursos para el cumplimiento de los objetivos de esta ley.
-(Así reformado el párrafo anterior por el artículo 1° de la ley N° 9825 del 9 de julio del 2020 )
+Artículo 25- Responsabilidad extendida del productor de productos prioritarios.
+Los productores de productos prioritarios deberán garantizar la recolección de los residuos prioritarios que produzcan, de forma gratuita, sin que esta recolección se pueda supeditar a la venta de un nuevo producto y de acuerdo con los parámetros establecidos en el artículo 27 de esta ley.
+Las instalaciones de recepción y almacenamiento, destinadas al cumplimiento de este artículo, no requerirán una autorización sanitaria adicional a la del mismo establecimiento.
+(Así adicionado por el artículo 2° de la ley N° 10031 del 4 de octubre de 2021)

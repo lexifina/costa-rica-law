@@ -1,4 +1,3 @@
-CAPÍTULO III
-RESPONSABILIDAD POR DAÑOS AMBIENTALES
-ARTÍCULO 57.- Responsabilidad por daños y perjuicios ambientales
-Sin perjuicio de las responsabilidades penales y administrativas, los infractores a las disposiciones contenidas en la presente Ley, sean personas físicas o jurídicas, serán civil y solidariamente responsables por los daños y perjuicios causados contra el ambiente y la salud de las personas, y deberán restaurar el daño, y, en la medida de lo posible, dejar las cosas en el estado que se encontraban antes de la acción ilícita. Los titulares de las empresas o las actividades donde se causan los daños responderán solidariamente.
+ARTÍCULO 57.- Actuación indebida de funcionarios públicos
+Las sanciones estipuladas en este capítulo se aplicarán aumentadas en un tercio, si quien resulte responsable por acción u omisión es un funcionario público o de hecho que tienen en sus funciones obligaciones relacionadas con la gestión de residuos. Además, se podrá imponer la inhabilitación especial, consistente en la pérdida del cargo público y la imposibilidad de ser nombrado nuevamente en cualquier cargo público durante cinco años. Lo anterior, sin perjuicio de las sanciones penales y civiles aplicables.
+(Así modificada su numeración por el artículo 2° de la ley N° 10031 del 4 de octubre de 2021, que lo traspaso del antiguo artículo 52 al 57)

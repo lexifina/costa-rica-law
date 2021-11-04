@@ -1,2 +1,2 @@
-ARTÍCULO 28.- Sistemas de gestión ambiental
-Las instituciones de la Administración Pública, empresas públicas y municipalidades implementarán sistemas de gestión ambiental en todas sus dependencias, así como programas de capacitación para el desempeño ambiental en la prestación de servicios públicos y el desarrollo de hábitos de consumo y el manejo adecuado que tendrán por objeto prevenir y minimizar la generación de residuos.
+Artículo 28- Obligaciones de los consumidores. De acuerdo con los principios de responsabilidad compartida establecidos en esta ley, los consumidores deberán cumplir con la obligación de separar los residuos de productos prioritarios de los valorizables, desde la fuente, y hacer el depósito correspondiente en los lugares que para tales efectos tengan las municipalidades, los productores de residuos prioritarios o los gestores autorizados.
+(Así adicionado por el artículo 2° de la ley N° 10031 del 4 de octubre de 2021)

@@ -1,3 +1,4 @@
-ARTÍCULO 46.- Remediación
-En caso de detectarse suelos contaminados, el Ministerio de Salud deberá emitir la declaración de suelo contaminado y ejercer las acciones necesarias porque quien resulte responsable de la contaminación deberá proceder a su limpieza y recuperación, de acuerdo con los lineamientos generales que se establecerán vía reglamento y con un plan de remediación, previamente aprobado por dicho Ministerio.
-En caso de que no sea posible identificar al responsable de la contaminación de un sitio por el manejo inadecuado de residuos, el Ministerio de Salud, en coordinación con la municipalidad respectiva y cualquier otra autoridad que consideren conveniente, llevarán a cabo las acciones necesarias para su remediación cuando existan riesgos inminentes para la salud y el ambiente.
+ARTÍCULO 46.- Residuos de manejo especial
+El Ministerio de Salud deberá declarar, vía decreto ejecutivo, los residuos de manejo especial que serán separados de la corriente normal de los residuos para ser sujetos de una gestión diferenciada y evitar que ocasionen daños a la salud y el ambiente.
+El Ministerio de Salud y las municipalidades deberán promover y facilitar la existencia de la infraestructura necesaria para la valorización, el tratamiento y la disposición final de los residuos de manejo especial.
+(Así modificada su numeración por el artículo 2° de la ley N° 10031 del 4 de octubre de 2021, que lo traspaso del antiguo artículo 41 al 46)
