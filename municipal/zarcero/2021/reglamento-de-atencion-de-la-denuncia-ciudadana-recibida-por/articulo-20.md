@@ -1,0 +1,1 @@
+Artículo 20.-Seguimiento. La Auditoría Interna, dentro del ámbito de sus competencias, definirá las acciones para verificar la atención o cumplimiento de los productos citados en el Artículo 19º del presente Reglamento, conforme lo establece la Ley General de Control Interno en el artículo 22º.

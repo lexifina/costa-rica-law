@@ -1,0 +1,1 @@
+Artículo 8º-Denuncias anónimas. La Auditoría Interna analizará las denuncias, aun cuando estas carezcan de la identificación de la persona denunciante, y las gestionará de acuerdo con la normativa aplicable.

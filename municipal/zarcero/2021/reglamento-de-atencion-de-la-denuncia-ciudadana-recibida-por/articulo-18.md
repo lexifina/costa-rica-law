@@ -1,0 +1,1 @@
+Artículo 18.-Ejecución de la auditoría. La Auditoría Interna, en observancia de las competencias y facultades que le confiere la ley, gozará de plena autonomía e independencia para conducir diligentemente la revisión con los recursos y medios disponibles.

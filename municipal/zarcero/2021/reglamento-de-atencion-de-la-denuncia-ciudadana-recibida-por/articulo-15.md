@@ -1,0 +1,1 @@
+Artículo 15.-Solicitud de información adicional. La Auditoría Interna solicitará la información pertinente a la Administración y a otras instancias, para el análisis de la admisibilidad de la denuncia y este acto suspenderá el plazo de análisis de admisibilidad descrito en el Artículo 11º.

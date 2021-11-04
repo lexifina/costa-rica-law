@@ -1,0 +1,1 @@
+Artículo 3º-Principios generales. La Gestión de las denuncias se hará con irrestricta observación de los principios de legalidad, simplicidad, economía, eficacia, eficiencia, razonabilidad, proporcionalidad, celeridad, independencia, objetividad y oficiosidad.

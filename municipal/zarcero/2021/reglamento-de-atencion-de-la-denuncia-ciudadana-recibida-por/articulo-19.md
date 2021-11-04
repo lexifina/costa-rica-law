@@ -1,0 +1,6 @@
+Artículo 19.-Productos del estudio. Los productos del análisis integral de la Auditoría Interna se clasifican de la siguiente forma:
+a) Relación de Hechos. Documento que contiene la exposición facto jurídica, la definición de las personas presuntamente responsables y el marco sancionatorio que sería aplicable, en aras de valorar la apertura de un órgano director de procedimiento administrativo para el establecimiento de la verdad real de los hechos y definir las responsabilidades civiles, penales y administrativas.
+b) Denuncia Penal. Oficio mediante el cual se pone en conocimiento del Ministerio Público cualquier hecho ilícito denunciable, esto es cuando haya elementos suficientes al menos en grado de probabilidad de la ocurrencia de un delito. Corresponderá entonces a la Auditoría Interna elaborar la denuncia penal.
+c) Advertencia. Comunicación formal a la persona fiscalizada, para que ejecute acciones correctivas ante resultados adversos que podrían materializarse por determinadas actuaciones.
+d) Otros. Los que la Auditoría Interna considere pertinente, producto del análisis integral.
+e) Archivo sin trámite. Procedimiento aplicable en el caso de que el análisis integral de la auditoría no determine la existencia de elementos suficientes para la atribución de algún tipo de responsabilidad administrativa, civil y penal.

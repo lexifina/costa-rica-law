@@ -1,0 +1,1 @@
+Artículo 4º-Uso de medios tecnológicos. La Municipalidad de Zarcero dispondrá de la plataforma disponible en tecnología de la información y comunicación, para facilitar el trámite de las denuncias y garantizar la confidencialidad.

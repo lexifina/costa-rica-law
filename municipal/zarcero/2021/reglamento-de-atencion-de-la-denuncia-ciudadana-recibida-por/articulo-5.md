@@ -1,0 +1,1 @@
+Artículo 5º-Régimen de confidencialidad. La gestión de las denuncias incluye las previsiones de protección de la identidad de la persona denunciante, en los términos establecidos por la Ley General de Control Interno, artículo 6, y por la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, artículo 8.

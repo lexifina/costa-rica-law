@@ -1,0 +1,1 @@
+Artículo 7º-Formas de presentación de la denuncia. La ciudadanía podrá acudir a la denuncia verbal, por escrito, directamente en la oficina de la Auditoría Interna, o bien por medio electrónico en el formulario dispuesto en la web de la Municipalidad de Zarcero.
