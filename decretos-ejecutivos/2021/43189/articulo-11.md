@@ -1,0 +1,2 @@
+Artículo 11. Obligación de presentar anteproyecto de Plan Presupuesto
+Todas las instituciones ejecutoras de programas sociales financiados con recursos del FODESAF deben remitir a la DESAF, un anteproyecto de Plan Presupuesto con una actualización de la ficha descriptiva si corresponde, la programación mensual del presupuesto asignado preliminarmente, así como las metas mensuales de otorgamiento de beneficios, según lo establecido en los lineamientos e instrucciones mencionados en el artículo 10 de este reglamento.

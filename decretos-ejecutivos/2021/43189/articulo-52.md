@@ -1,0 +1,2 @@
+Artículo 52. Departamento de Gestión de Cobro
+El Departamento de Gestión de Cobro, estará a cargo de gestionar y fiscalizar el cobro administrativo y judicial de las deudas por morosidad patronal en favor de FODESAF, con el fin de asegurar un efectivo control de lo adeudado y asegurar la recuperación de los recursos propios del Fondo. Para el cumplimiento de sus funciones, estará conformado por las Unidades de: Control de Deuda, Cobro Administrativo y Cobro Judicial.

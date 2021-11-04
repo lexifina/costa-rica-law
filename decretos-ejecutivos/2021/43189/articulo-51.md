@@ -1,0 +1,2 @@
+Artículo 51. Requisitos para ocupar el cargo de la jefatura de Gestión
+La jefatura del Departamento de Gestión, debe estar a cargo de un profesional en administración, administración de empresas o administración de negocios, que lo acredite para el ejercicio de este importante cargo; estar incorporado al Colegio de Profesionales en Ciencias Económicas. En todo lo demás, su nombramiento se regirá por las disposiciones establecidas en el Manual de Clases de la Dirección General de Servicio Civil.

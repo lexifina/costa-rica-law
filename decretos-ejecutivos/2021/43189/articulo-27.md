@@ -1,0 +1,2 @@
+Artículo 27. Informe de liquidación anual
+Las instituciones ejecutoras de los programas sociales financiados con recursos del FODESAF deberán presentar a más tardar el primero de febrero de cada año, la información anual acumulada para el cálculo de los indicadores de ejecución, el informe de liquidación anual presupuestaria y programática y el informe anual de ingresos y gastos, de distribución geográfica de los recursos, de distribución por género y de personas con discapacidad.

@@ -1,0 +1,2 @@
+Artículo 7. Documentos del proceso de selección de beneficiarios
+Las instituciones ejecutoras de programas y proyectos sociales financiados con recursos de FODESAF, deben documentar los procesos de selección de beneficiarios con el fin de que eventualmente sean revisados por la DESAF o por cualquier órgano de control. Además, de estar interconectados con el Sistema Nacional de Información y de Registro Único de Beneficiarios SINIRUBE.

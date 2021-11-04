@@ -1,0 +1,2 @@
+Artículo 15. Flexibilidad en el cumplimiento de las metas
+Dentro del año presupuestario, las instituciones ejecutoras pueden reasignar los fondos entre los beneficios que otorgan, siempre y cuando se mantengan dentro de las cuentas presupuestarias aprobadas. Si dicha reasignación implica una modificación de las metas anuales, deberá presentarse una nueva programación de dichas metas para la aprobación de la DESAF.

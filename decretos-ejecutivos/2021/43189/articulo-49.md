@@ -1,0 +1,6 @@
+Artículo 49. El Departamento de Gestión tendrá las siguientes responsabilidades:
+a. Dirigir, administrar y supervisar la ejecución del programa-presupuestario de su dirección, conforme a las instrucciones, requisitos, resoluciones y las normas y reglamentos del MTSS.
+b. Formular el presupuesto de la actividad de la DESAF de cada período presupuestario, según las normativas del Ministerio.
+c. Controlar y supervisar la ejecución de la actividad presupuestaria de su Dirección, conforme a las instrucciones, requisitos, resoluciones y las normas y reglamentos del MTSS y del gobierno.
+d. Realizar los procesos para suplir en tiempo y contenido, los bienes, servicios y capital humano que requiera la DESAF para el eficiente y eficaz desempeño de las funciones que le han sido encomendadas por la Ley Nº 5662 y su reforma, Ley No. 8783, para lo cual coordinará con los otros departamentos de la Dirección. Posteriormente, debe coordinar con las respectivas dependencias a lo interno del MTSS, a efecto de que éstas procedan a formalizar cada contratación y/o trámite, previa aprobación de los jerarcas de la DESAF.
+e. Servir de enlace con la Dirección de Planificación a fin de elaborar el monitoreo y evaluación de las acciones operativas y estratégicas de la DESAF.

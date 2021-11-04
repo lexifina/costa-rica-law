@@ -1,0 +1,2 @@
+Artículo 6. Metodología de selección de beneficiarios
+La selección de beneficiarios es realizada por cada institución de acuerdo con la metodología suministrada por el SINIRUBE según la Ley No. 9137 citada. Dicha metodología debe priorizar a la población en condición de pobreza o pobreza extrema y velar para que la selección de beneficiarios sea acorde con los objetivos establecidos para el FODESAF.

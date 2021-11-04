@@ -1,0 +1,4 @@
+CAPÍTULO III
+BENEFICIARIOS
+Artículo 5. Definición de pobreza
+Se considera que una persona vive en condiciones de pobreza y pobreza extrema, cuando su ingreso familiar per cápita calculado por el SINIRUBE, según Ley No. 9137 "Crea Sistema Nacional de Información y Registro Único de Beneficiarios del Estado" del 20 de abril del 2013 citada, se encuentre por debajo de las líneas de pobreza y pobreza extrema calculadas por el Instituto Nacional de Estadística y Censos. No deben considerarse como parte de dicho ingreso familiar per cápita los ingresos familiares derivados de transferencias sociales. Los beneficiarios del FODESAF serán seleccionados de acuerdo con esta definición de pobreza, salvo cuando una ley específica autorice explícitamente la selección de beneficiarios con un criterio diferente.

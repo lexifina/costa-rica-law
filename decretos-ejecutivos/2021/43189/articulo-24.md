@@ -1,0 +1,2 @@
+Artículo 24. Información general sobre los programas sociales
+Las instituciones ejecutoras de los programas sociales financiados con recursos del FODESAF, deben mantener actualizada ante la DESAF la ficha descriptiva del programa y el cronograma de metas e inversión, para cuya elaboración y actualización deben sujetarse a los requerimientos definidos en las instrucciones a que se refiere el Artículo 11 de este reglamento.

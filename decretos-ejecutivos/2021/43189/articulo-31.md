@@ -1,0 +1,2 @@
+Artículo 31. Procedimiento para el cumplimiento de los requisitos de información
+En aras de fortalecer la potestad fiscalizadora, la DESAF desarrollará e implementará los lineamientos en los cuales se otorgará el debido proceso a las instituciones ejecutoras para el cumplimiento de los requisitos de información aquí establecidos y las posibles repercusiones en casos de incumplimiento. Los mismos deberán ser debidamente comunicados a las instituciones ejecutoras.

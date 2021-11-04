@@ -1,0 +1,2 @@
+Artículo 12. Fecha límite de presentación de los anteproyectos de Plan Presupuesto
+Los programas y proyectos a financiar con recursos del FODESAF para la ejecución de programas sociales, deben ser presentados a la DESAF a más tardar el siete de mayo de cada año. Para aquellos programas que no cumplan con este plazo, la DESAF tendrá la potestad de asignar el monto presupuestado del año inmediato anterior.

@@ -1,0 +1,2 @@
+Artículo 35. Unidades administrativas de la DESAF
+La DESAF estará a cargo de un Director General, un Subdirector General y Jefes de Unidades Administrativas. Estos funcionarios tendrán la responsabilidad de administrar el FODESAF, según las competencias y atribuciones que a esta instancia técnica especializada le confiere la Ley No. 5662 y su reforma, Ley No. 8783, así como el presente reglamento.

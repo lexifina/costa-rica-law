@@ -1,0 +1,2 @@
+Artículo 42. Requisitos para ocupar el cargo de la jefatura de Departamento de Presupuesto
+Quien desempeñe el cargo de jefatura del Departamento de Presupuesto, debe estar a cargo de un profesional en ciencias económicas, con conocimiento en la gestión presupuestaria de instituciones del sector público; deberá estar incorporado al Colegio de Profesionales en Ciencias Económicas. En todo lo demás, su nombramiento se regirá por las disposiciones establecidas en el Manual de Clases de la Dirección General de Servicio Civil.

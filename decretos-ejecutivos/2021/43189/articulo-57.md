@@ -1,0 +1,2 @@
+Artículo 57. Requisitos para ocupar el cargo de jefatura Unidad de Control de la Deuda
+La jefatura de la Unidad de Control de la Deuda debe estar a cargo de un profesional que ostente grado profesional en administración generalista, y contar con experiencia en procesos de cobro administrativo, que lo acredite para el ejercicio del cargo. En todo lo demás, su nombramiento se regirá por las disposiciones establecidas en el Manual de Clases de la Dirección General de Servicio Civil

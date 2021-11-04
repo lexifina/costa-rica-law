@@ -1,0 +1,2 @@
+Artículo 13. Asignación definitiva de presupuesto
+La asignación definitiva de presupuesto se realizará en el marco de la aprobación del Plan Presupuesto de cada Programa por parte de la DESAF. El Plan Presupuesto será enviado por las instituciones ejecutoras al Ministerio de Hacienda o a la Contraloría General de la República, según corresponda, solamente después de que haya sido formalmente aprobado por la DESAF. El presupuesto del FODESAF, con las asignaciones definitivas de presupuesto para cada programa, será remitido por la DESAF al superior jerarca del Fondo.

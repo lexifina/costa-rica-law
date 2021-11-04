@@ -1,0 +1,2 @@
+Artículo 29. Informe anual de ejecución
+En el curso del primer semestre de cada año, la DESAF deberá elaborar un informe con los resultados anuales de los indicadores de ejecución mencionados en el artículo anterior y con toda aquella información que permita conocer la ejecución y desempeño de cada uno de los programas sociales financiados con recursos del FODESAF. Dicho informe será enviado al máximo jerarca de cada institución, quien tiene la obligación de referirse a él por escrito quince días hábiles después de su recepción.

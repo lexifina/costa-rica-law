@@ -1,0 +1,2 @@
+Artículo 56. Requisitos para ocupar el cargo de jefatura Unidad de Cobro Administrativo
+La jefatura de la debe estar a cargo de un profesional que ostente grado profesional en administración generalista, y contar con experiencia en gestiones de cobro administrativo, que lo acredite para el ejercicio del cargo. En todo lo demás, su nombramiento se regirá por las disposiciones establecidas en el Manual de Clases de la Dirección General de Servicio Civil.
