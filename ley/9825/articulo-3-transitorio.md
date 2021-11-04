@@ -1,0 +1,1 @@
+TRANSITORIO III- En el plazo de un año, a partir de la publicación de esta ley, la Unión Nacional de Gobiernos Locales, en conjunto con las entidades estatales competentes, gestionarán y ejecutarán la capacitación de inspectores y policías municipales de todas las municipalidades del país.
