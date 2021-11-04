@@ -1,0 +1,1 @@
+Artículo 12.-Se deroga la Reglamentación y Normativa del Perfil Profesional de Terapia del Lenguaje del 02 de diciembre de 2013, publicada en el Diario Oficial La Gaceta N° 20 del miércoles 29 de enero de 2014.
