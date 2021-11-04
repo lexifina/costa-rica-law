@@ -1,0 +1,2 @@
+Artículo 7º-Porcentaje de compensación por dedicación exclusiva: Una vez suscrito el contrato correspondiente entre las partes, la municipalidad reconocerá a los funcionarios con grado profesional en razón de la naturaleza y responsabilidad de los puestos que desempeñen, hasta un diez por ciento (10%) para los profesionales en el nivel de bachiller universitario y
+hasta un veinticinco por ciento (25%) para los servidores en el nivel de licenciatura universitaria, adicional sobre su salario base por concepto de dedicación exclusiva.

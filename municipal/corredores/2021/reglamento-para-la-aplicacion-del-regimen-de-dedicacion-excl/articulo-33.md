@@ -1,0 +1,1 @@
+Artículo 33.-La suscripción del contrato se hará en razón de la profesión requerida en el cargo. Los funcionarios sujetos por ley al régimen de prohibición no podrán ejercer su profesión o profesiones, independientemente de que cumplan o no con los requisitos para hacerse acreedores a la compensación por este concepto.

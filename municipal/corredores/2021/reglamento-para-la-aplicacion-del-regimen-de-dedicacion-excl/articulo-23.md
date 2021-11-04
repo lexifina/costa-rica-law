@@ -1,0 +1,1 @@
+Artículo 23.-EI servidor tendrá derecho a disfrutar del beneficio pactado en el contrato desde la fecha de rige del contrato; si por error material, no se indicó la fecha de rige, se considera que rige a partir del primer día del mes siguiente en que se firmó dicho documento, la contabilidad deberá incluir en el presupuesto los rubros para el cumplimiento económico del contrato.

@@ -1,0 +1,1 @@
+Artículo 12.-Vigencia del contrato de dedicación exclusiva. El contrato de la dedicación exclusiva rige únicamente para las partes contratantes y tiene vigencia a partir del día en que es aceptado y firmado por estas.

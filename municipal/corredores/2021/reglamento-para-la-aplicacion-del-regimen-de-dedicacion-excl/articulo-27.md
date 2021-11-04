@@ -1,0 +1,1 @@
+Artículo 27.-Una vez firmado el contrato respectivo de prohibición, el servidor no podrá ejercer en forma liberal la profesión comprometida con dicha prohibición, así como tampoco actividades relacionadas con esta o con su cargo, salvo las excepciones establecidas en este reglamento.
