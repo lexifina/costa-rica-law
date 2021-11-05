@@ -1,0 +1,6 @@
+Artículo 128- Base presunta. La Junta de Pensiones y Jubilaciones del Magisterio Nacional (Jupema) podrá determinar la cuantía de la obligación y aplicar la base presunta como procedimiento excepcional, cuando se presente alguna de las circunstancias siguientes:
+a) Cuando no se permita el ingreso del inspector al centro de trabajo o se le niegue el acceso a la información requerida.
+b) Cuando la información suministrada por el patrono o los trabajadores es inexacta o incompleta y así quede debidamente acreditado por indicios concordantes y razonables que se harán constar en el respectivo traslado de cargos.
+c) Cuando el patrono obstaculice, demore o se niegue a proporcionar los datos y antecedentes necesarios para comprobar la corrección de las operaciones y cuando no acate las resoluciones de Jupema relativas a la obligación de corregir transgresiones a la presente ley o sus reglamentos, constatadas por sus inspectores en el ejercicio de sus funciones.
+En cualquiera de las circunstancias anteriores, la administración podrá determinar la cuantía de la obligación ante Jupema, teniendo en consideración la información que se haya podido recabar y los indicios recogidos en la correspondiente investigación. Jupema dictará la reglamentación pertinente para realizar dicho acto.
+(Así adicionado por el artículo único de la ley N° 10078 del 5 de noviembre de 2021)
