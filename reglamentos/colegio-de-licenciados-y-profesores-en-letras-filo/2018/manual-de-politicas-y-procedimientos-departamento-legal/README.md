@@ -14,3 +14,4 @@ Manual de políticas y procedimientos (Departamento Legal)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-24 | la propia norma |
+| 2 | 2021-11-05 | Reglamento 0 (2021-11-05) |
