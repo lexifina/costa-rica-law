@@ -1,1 +1,0 @@
-Artículo 8º—En caso de que un miembro de Junta Directiva quiera reelegirse en el cargo que ostenta no necesita renunciar, pero si desea postularse en otro cargo diferente al que ostenta deberá renunciar el día de inscripción de la papeleta.

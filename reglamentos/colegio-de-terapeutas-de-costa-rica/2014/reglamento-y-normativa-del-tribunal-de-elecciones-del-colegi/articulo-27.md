@@ -1,1 +1,0 @@
-Artículo 27.—En caso de haber sólo una papeleta inscrita para el puesto de Fiscal de Junta Directiva, el voto será público en Asamblea General y supervisado por el Tribunal de Elecciones. Se seguirá el mismo método del artículo 25 de este Reglamento.

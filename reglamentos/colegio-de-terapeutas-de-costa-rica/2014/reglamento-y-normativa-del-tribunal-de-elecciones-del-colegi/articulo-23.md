@@ -1,1 +1,0 @@
-Artículo 23.—La fecha de inscripción de postulantes y papeletas, se publicara en un diario de circulación nacional, una semana antes del inicio de fecha de inscripción de papeletas. También se publicara en las redes sociales que posea el CTCR. Dicha publicación deberá incluir la fecha de inicio de inscripción y fecha de cierre de inscripción.

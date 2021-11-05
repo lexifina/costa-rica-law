@@ -1,1 +1,0 @@
-Artículo 36.—De la fecha de Asamblea General para elecciones: Cada año la fecha máxima para realizar elecciones será 9 de noviembre, según acuerdo número 6 de Asamblea General firme del 2 de noviembre del 2013.

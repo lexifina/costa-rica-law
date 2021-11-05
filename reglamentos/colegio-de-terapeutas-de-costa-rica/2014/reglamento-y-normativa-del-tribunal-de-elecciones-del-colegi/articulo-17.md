@@ -1,1 +1,0 @@
-Artículo 17.—Sólo se recibirán papeletas en horario hábil del CTCR lo que significa de 8 a.m. a 12:30 p. m. y de 1:30 p. m. a 5 p. m., de lunes a viernes en la primera y segunda semana de septiembre de cada año. La entrega de las papeletas debe realizarse de forma física y deberá firmarse el Libro Legal del Tribunal de Elecciones por el candidato que inscriba la papeleta.

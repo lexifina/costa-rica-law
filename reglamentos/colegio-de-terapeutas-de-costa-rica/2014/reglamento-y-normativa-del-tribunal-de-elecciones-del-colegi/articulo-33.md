@@ -1,1 +1,0 @@
-Artículo 33.—En el Libro Legal del Tribunal de Elecciones constara los nombres, cédulas y áreas de especialidad de los ganadores, junto con la firma de estos y de los miembros del Tribunal de Elecciones.

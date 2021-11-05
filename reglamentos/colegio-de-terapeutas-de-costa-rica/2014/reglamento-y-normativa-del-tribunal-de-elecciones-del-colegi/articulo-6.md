@@ -1,1 +1,0 @@
-Artículo 6º—En caso de que un miembro de Junta Directiva (- Vicepresidente (a), 2- Secretaria (o), 3- Vocal uno), elegido en año impar quiera postularse en algún puesto de junta directiva de año par, deberá renunciar a su cargo el día de la inscripción de la papeleta para poder optar al puesto.

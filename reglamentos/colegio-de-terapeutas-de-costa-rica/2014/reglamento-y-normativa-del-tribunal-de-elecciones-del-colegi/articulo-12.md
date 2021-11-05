@@ -1,1 +1,0 @@
-Artículo 12.—El postulante para el puesto de Fiscalía de Junta Directiva deberá presentar mediante una papeleta única en la fecha establecida de inscripción, el Fiscal de turno podrá reelegirse indefinidamente mientras lo desee mediante papeleta única.

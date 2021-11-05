@@ -1,1 +1,0 @@
-Artículo 34.—Credenciales de los miembros electos de Junta Directiva, Tribunal de Ética y Fiscal: Se entregará un carné a cada miembro indicando su cargo y un título con el logo del Colegio indicando el periodo de vigencia del cargo. Para la entrega del título se tendrán 2 meses hábiles.
