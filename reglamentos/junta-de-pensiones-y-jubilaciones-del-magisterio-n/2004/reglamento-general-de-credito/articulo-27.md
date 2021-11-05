@@ -1,8 +1,8 @@
-ARTÍCULO 27 Vencimiento anticipado
-Las operaciones concedidas en las diferentes líneas de crédito pueden declararse vencidas anticipadamente y exigibles de inmediato por parte de JUPEMA, ante cualquiera de las siguientes situaciones:
-a) Si se comprobara en cualquier momento, falsedad en información proporcionada por el deudor al formalizarse la operación de crédito.
-b) Si el deudor se opusiera a la inspección de las inversiones o de los bienes dados en garantía o se negara a proporcionar los informes que se le soliciten en relación con ellos.
-c) Si el deudor deja transcurrir un mes sin dar aviso por escrito a JUPEMA, de deterioros sufridos por los bienes en garantía o de cualquier hecho susceptible de disminuir su valor o comprometer su dominio. Cuando sea necesario, JUPEMA queda legitimada para realizar las visitas periódicas a los bienes en garantía.
-d) Si se dieran circunstancias imputables al deudor, que demoren o imposibiliten la inscripción del primer testimonio de hipoteca de la propiedad dada en garantía.
-e) Cualquier operación de crédito que se encuentre en estado de mora por un periodo igual o mayor a los dos meses, habiéndose agotado la vía de cobro administrativo.
-Cualquier otra considerada por la normativa vigente.
+CAPÍTULO V
+Disposiciones finales
+Artículo 27.-Limitaciones de alcance general.
+a) Todo aquel pensionado o jubilado que requiera acceder a un nuevo crédito y que haya tenido problemas de morosidad de manera que haya atrasado su pago en dos ocasiones, correspondiente a dos cuotas de atraso sin justificación (segundo aviso de cobro), en los últimos 24 meses, debe presentar uno o más fiadores solidarios con capacidad de pago que respalden el monto solicitado.
+b) La determinación del número de créditos a otorgar a una entidad social o financiera del Magisterio Nacional es potestad exclusiva de la Junta Directiva de JUPEMA.
+c) No se aceptan como garantías hipotecarias, terrenos que se encuentren en periodo de convalidación, que estén ubicados en zonas de alto riesgo, los nichos en cementerios, así como bienes ubicados en barrios conflictivos o con deseabilidad media baja o baja, según el criterio del perito que realice el estudio de valoración de la propiedad. JUPEMA se reserva el derecho de rechazar cualquier garantía propuesta por el solicitante, en procura de salvaguardar los intereses de la Institución.
+d) No se aceptan como deudores o fiadores, aquellos que tengan operaciones declaradas incobrables, ya sea en JUPEMA o cualquier otra institución, ni aquellos quienes hayan cancelado deudas del programa de crédito del RCC por medio del uso del Seguro de Caución.
+(Así reformado mediante sesión ordinaria N° 0124-2021 del 5 de noviembre del 2021)

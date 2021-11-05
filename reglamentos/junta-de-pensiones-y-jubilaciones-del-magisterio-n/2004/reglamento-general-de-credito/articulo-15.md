@@ -1,2 +1,2 @@
-ARTÍCULO 15 Pagarés
-Como parte del proceso de formalización cuando la garantía no sea hipotecaria; el solicitante firma un Pagaré, documento legal que contiene las principales características de la operación crediticia.
+Artículo 15.-Coberturas en caso de fallecimiento. Como garantía en el proceso de formalización del crédito, el solicitante debe autorizar la suscripción de las coberturas según se detalla en cada línea, de conformidad con el tipo de patrono y condición laboral del deudor, por la totalidad del monto adeudado. Este proceso debe ser ejecutado en el acto del registro de la solicitud de crédito.
+(Así reformado en Sesión Ordinaria N° 0124-2021 del 5 de noviembre del 2021)
