@@ -14,3 +14,4 @@ Perfil profesional del terapeuta del lenguaje en Costa Rica Perfil profesional d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-04 | la propia norma |
+| 2 | 2021-11-05 | Reglamento 0 (2021-11-05) |

@@ -1,15 +1,24 @@
 CAPÍTULO IV
 Funciones asistenciales
 Artículo 6º-Áreas de intervención terapéutica. El profesional en Terapia del Lenguaje lleva a cabo funciones asistenciales en las áreas de:
-a. Comunicación, lenguaje oral y escrito, voz, fluidez del habla, deglución, motricidad orofacial y sistema estomatognático.
-b. Trastornos que engloban la comunicación humana y deglución.
-c. Trastornos del desarrollo del lenguaje oral y escrito (fonología, morfología, sintaxis, semántica) Producidos por un retraso o una anomalía en el desarrollo del lenguaje por diversas causas (cognitivas, sociales, motoras, sensoriales, entre otras).
-d. Trastornos adquiridos del lenguaje por lesión neurológica e implicaciones a nivel de compresión como de expresión.
-e. Trastornos de la comunicación cognitiva (organizar pensamientos, prestar atención, memoria, planificación y resolución de problemas)
-f. Trastornos asociados a procesos degenerativos.
-g. Trastornos asociados a procesos Oncológicos de cabeza y cuello.
-h. Trastornos del habla con implicación emocional.
-i. Patología vocal: trastornos de la voz y la resonancia.
-j. Trastornos ligados a problemas mentales o conductuales.
-k. Trastornos estructurales de las funciones del sistema estomatognático, musculatura orofacial, y deglutoria.
-l. Rehabilitación auditiva e intervención del lenguaje para personas sordas o con problemas de audición.
+a. Rehabilitación en las áreas de comunicación, lenguaje oral / escrito, voz, fluidez del habla, motricidad orofacial, sistema estomatognático y funciones cognitivas asociadas a estos procesos con manejo manual y/o de equipos y herramientas en la realización de su trabajo.
+b. Trastornos asociados a funciones y mecanismo deglutorio por causas neurológicas, musculares, estructurales.
+c. Trastornos que engloban la comunicación humana y deglución.
+d. Rehabilitación del lenguaje- sistemas de comunicación aumentativos y alternativos (SAAC).
+e. Trastornos del desarrollo del lenguaje oral y escrito (fonología, morfología, sintaxis, semántica), producidos por un retraso o una anomalía en el desarrollo del lenguaje por diversas causas (cognitivas, sociales, motoras, sensoriales, entre otras).
+f. Trastornos adquiridos del lenguaje por lesión neurológica e implicaciones a nivel de comprensión y/o de expresión.
+g. Trastornos de la comunicación cognitiva (organizar pensamientos, prestar atención, memoria, planificación y resolución de problemas).
+h. Trastornos en la motricidad orofacial, cognitivos, funcionales y del lenguaje asociados a procesos degenerativos.
+i. Trastornos asociados al sistema estomatognático en procesos oncológicos de cabeza y cuello.
+j. Trastornos del habla y fluidez con implicación emocional (Mutismo Selectivo y Disfemias).
+k. Rehabilitación de la patología vocal: trastornos de la voz y la resonancia por causas externas, fisiológicas o quirúrgicas.
+l. Trastornos cognitivos asociados al lenguaje, comunicación, habla y voz ligados a problemas mentales o conductuales.
+m. Trastornos craneofaciales asociados a funciones del sistema estomatognático, musculatura orofacial, laríngea y deglutoria.
+n. Rehabilitación auditiva-verbal y del lenguaje para personas sordas o con problemas de la audición.
+o. Rehabilitación de la parálisis facial por diversas causas y manejo muscular diferenciado.
+p. Rehabilitación de hábitos orales que afectan las funciones del sistema estomatognático.
+q. Alteraciones funcionales de la Articulación Temporomandibular.
+r. Rehabilitación e intervención en la fijación y funcionamiento laríngeo asociado a los procesos de deglución, habla, voz y sistema estomatognático.
+s. Rehabilitación de la apnea del sueño causada por alteraciones en la fijación laríngea.
+t. Trastornos asociados a proceso cicatrizal en cabeza y cuello con afección de motricidad orofacial, deglución y sistema estomatognático.
+(Así reformado en sesión ordinaria y extraordinaria virtual celebrada el 05 y 09 de noviembre de 2021)
