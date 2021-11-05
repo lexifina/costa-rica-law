@@ -1,0 +1,1 @@
+Artículo 20. De la vigencia de este instructive. Este instructivo entra en vigencia a partir de su aprobación por parte de la Gerencia Financiera y de su publicación en el Diario Oficial La Gaceta, deroga el Instructivo aprobado mediante oficio GF-0799-2020 del 06 de febrero de 2020.
