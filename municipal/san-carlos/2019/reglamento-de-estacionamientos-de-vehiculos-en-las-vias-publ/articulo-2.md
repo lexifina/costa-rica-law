@@ -1,2 +1,2 @@
-Artículo 2º-Objeto: Fundamentado en el Artículo 1º de este reglamento-La Municipalidad de San Carlos por medio del Alcalde Municipal solicita al Concejo Municipal, delegar lo concerniente a ordenar y controlar el estacionamiento, el tránsito vehicular, a la vez mejorar las condiciones comerciales y vecinales en el Cantón de San Carlos al Departamento de la Policía Municipal del Cantón de San Carlos.
-Con este fin el presente reglamento regula la operación del sistema a implementar de estacionamiento de vehículos automotores en las zonas públicas del cantón.
+Artículo 2°-Objeto: El objeto del presente reglamento, es regular, ordenar y controlar el estacionamiento, el tránsito vehicular en las vías públicas del Cantón de San Carlos, mediante el sistema a implementar de estacionamiento de vehículos automotores en las zonas públicas del cantón.
+(Así reformado mediante en sesión del 8 de noviembre de 2021, artículo Nº XII, acuerdo Nº 19, acta Nº 66)

@@ -14,3 +14,4 @@ Reglamento de Estacionamientos de Vehículos en las Vías Públicas de la Munici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-21 | la propia norma |
+| 2 | 2021-11-08 | Reglamento municipal 0 (2021-11-08) |

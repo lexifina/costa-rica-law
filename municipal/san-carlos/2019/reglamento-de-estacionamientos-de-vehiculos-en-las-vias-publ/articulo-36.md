@@ -1,0 +1,2 @@
+Artículo 36.-Sistema Informático: A la Municipalidad y la empresa que en dado caso sea contratada para la prestación o gestión del servicio les corresponderá de manera conjunta la implementación del sistema informático para la operación adecuada en carretera, de los equipos de registro y detección automatizada de infracciones.
+(Así adicionado en sesión del 8 de noviembre de 2021, artículo Nº XII, acuerdo Nº 19, acta Nº 66)

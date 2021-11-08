@@ -1,0 +1,3 @@
+Artículo 37.-Registro y detección de infracciones: Para el registro y detección de las infracciones, objeto del presente Reglamento, no es necesaria la presencia física de las autoridades de tránsito y de los inspectores autorizados municipales en el lugar donde ocurra el hecho, como tampoco para la emisión de las infracciones correspondientes que hayan sido capturadas por las imágenes de los equipos de registro y detección automatizada de infracciones.
+Lo anterior no excluye la presencia física de autoridades de tránsito, en cualquier momento y lugar de las carreteras, realizando controles de la circulación o para asegurar la efectividad del sistema aquí regulado.
+(Así adicionado en sesión del 8 de noviembre de 2021, artículo Nº XII, acuerdo Nº 19, acta Nº 66)
