@@ -1,2 +1,0 @@
-Artículo 31.—Obligación de votar. Los miembros de la CFC votarán afirmativa o negativamente y no podrán abstenerse de hacerlo, salvo que concurra algún motivo que les obligue a excusarse de conocer el asunto, o en su defecto que sean recusados.
-En casos especiales y cuando sea necesario recabar información para fundamentar la decisión, el Presidente de la CFC podrá postergar la votación, por una única vez, para realizarla en sesión posterior.

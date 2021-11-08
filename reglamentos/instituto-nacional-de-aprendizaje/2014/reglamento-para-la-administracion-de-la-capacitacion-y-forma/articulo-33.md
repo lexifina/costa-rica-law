@@ -1,1 +1,0 @@
-Artículo 33.—Votos contrarios. Los miembros de la CFC podrán hacer constar en el acta su voto contrario al acuerdo adoptado, justificando su posición. De esta forma quedan exentos de las responsabilidades que pudieren derivarse de tales acuerdos. En este supuesto deberán firmar el acta correspondiente.

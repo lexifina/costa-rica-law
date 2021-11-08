@@ -1,2 +1,0 @@
-Artículo 42.—Situación laboral de la persona funcionaria beneficiada. La persona funcionaria que se ha beneficiado con el otorgamiento de la capacitación o formación, así como de las ayudas facultadas por este Reglamento, tiene la obligación de reintegrarse en su puesto.
-Por aspectos de orden presupuestario y de estructura organizacional, la Institución no estará obligada a ascender a las personas funcionarias que adquieran algún grado académico universitario, ni a crear un nuevo puesto en caso de que se aplique alguna reasignación según sus nuevos requisitos.

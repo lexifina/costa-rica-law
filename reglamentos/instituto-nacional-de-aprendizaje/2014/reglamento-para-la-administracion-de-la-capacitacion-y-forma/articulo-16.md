@@ -1,1 +1,0 @@
-Artículo 16.—Participantes en las acciones de capacitación o formación. La capacitación y formación que se regula mediante este Reglamento se otorga a las personas funcionarias del INA que se encuentran nombradas conforme a las disposiciones del Estatuto del Servicio Civil, el Régimen de Servicios Especiales e interinos.

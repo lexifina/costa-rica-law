@@ -1,4 +1,0 @@
-Artículo 61.—Procedimientos por incumplimiento de contrato. El PDRH o COOPEX informará a la CFC sobre el incumplimiento incurrido por la persona funcionaria beneficiaria y adjuntará toda la prueba del caso.
-La CFC conocerá del asunto y si encuentra mérito suficiente, solicitará la instauración de un procedimiento de cobro administrativo contra la persona beneficiaria en la instancia administrativa que corresponda y sometiéndose a la normativa interna que regula este tipo de procedimientos.
-De igual forma se procederá en lo que respecta al régimen disciplinario, donde el incumplimiento será considerado falta grave y se tramitará conforme a las disposiciones del artículo 49 del Reglamento Autónomo de Servicios.
-En todo aquello no previsto se aplicará la Ley General de la Administración Pública.

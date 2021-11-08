@@ -1,2 +1,0 @@
-Artículo 4º—Administración de la Formación y Capacitación de la persona funcionaria: La administración de la formación y capacitación de las personas funcionarias del INA le corresponde a la CFC, según se señala en el capítulo III de este Reglamento.
-Coadyuvarán en sus funciones, las jefaturas de los Núcleos, Unidades Regionales, Centros de Formación y demás Unidades Administrativas, bajo la tutela de sus respectivas Gestiones.

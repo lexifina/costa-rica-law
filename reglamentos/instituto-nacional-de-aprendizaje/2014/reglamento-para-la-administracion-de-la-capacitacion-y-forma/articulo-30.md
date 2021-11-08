@@ -1,1 +1,0 @@
-Artículo 30.—Asuntos no incluidos en el orden del día. No podrá ser objeto de acuerdo ningún asunto que no figure en el Orden del Día de la CFC, salvo que sea declarada la urgencia del asunto por el voto favorable de la mayoría simple de sus Miembros.

@@ -1,1 +1,0 @@
-Artículo 43.—Prórrogas de beneficios. Las solicitudes de prórroga de los beneficios otorgados deberán presentarse dentro de un mes natural antes de su vencimiento, junto con los atestados que justifiquen esa prórroga. La prórroga será conocida por la CFC o la Presidencia Ejecutiva, según corresponda.

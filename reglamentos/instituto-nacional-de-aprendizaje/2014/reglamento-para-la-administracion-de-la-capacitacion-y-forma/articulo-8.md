@@ -1,1 +1,0 @@
-Artículo 8º—Competencia del PDRH en la ejecución del Plan Anual de Capacitación de las personas funcionarias del INA. El PDRH deberá coordinar la ejecución de las acciones de capacitación contenidas en el Plan.

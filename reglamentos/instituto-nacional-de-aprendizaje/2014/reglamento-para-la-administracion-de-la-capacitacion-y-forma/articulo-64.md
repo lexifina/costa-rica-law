@@ -1,1 +1,0 @@
-Artículo 64.—Exclusión de futuros beneficios. La persona funcionaria beneficiaria que hubiere incumplido por negligencia comprobada mediante procedimiento disciplinario, las obligaciones contraídas al amparo de este Reglamento, no podrá ser sujeto de futuros beneficios por un plazo de tres años.
