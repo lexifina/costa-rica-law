@@ -1,0 +1,10 @@
+INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
+La Junta Directiva del Instituto de Fomento y Asesoría Municipal (IFAM), mediante acuerdo décimo segundo, capítulo nueve de la sesión extraordinaria No. 28-2021, celebrada por la Junta Directiva del Instituto a las 17:10 horas del día 16 de setiembre del año 2021, aprobó reformar el inciso d) del artículo 56 del Reglamento Autónomo de Organización y Servicio del IFAM, para que en adelante se lea de la siguiente forma:
+REGLAMENTO AUTÓNOMO DE ORGANIZACIÓN
+Y SERVICIO DEL INSTITUTO DE FOMENTO
+Y ASESORÍA MUNICIPAL
+"d) Hasta por dos meses, por enfermedad grave del padre, madre, hijos, cónyuge o compañero, debidamente certificada por la Caja Costarricense del Seguro Social o el Instituto Nacional de Seguros y que requiera atención directa, personal y permanente del funcionario o funcionaria.
+Para los casos de los familiares (padre, madre, hijos, cónyuge o compañero), que residan fuera de Costa Rica y que no se encuentren cubiertos por el ámbito de seguridad social costarricense, deberá presentarse documento probatorio emitido por el centro médico tratante del país en que se encuentre la persona enferma. Tratándose de los familiares mencionados, residentes en el extranjero, el dictamen médico deberá, además, venir acompañado de la respectiva epicrisis, traducida al idioma español si se emite en cualquier otro idioma, y debidamente consularizada o apostillada según corresponda al país de origen, para su validación por parte de la o las unidades médicas de la Caja Costarricense de Seguro Social o instituto Nacional de Seguros según corresponda. Asimismo, deberá acreditarse que, la presencia de la persona trabajadora es indispensable o esencial para el tratamiento requerido.
+Corresponderá a la Unidad de Talento Humano comprobar técnicamente, la relación de dependencia directa y la necesidad de que sea el funcionario quien tiene que brindar esta atención."
+Rige a partir de su publicación en el Diario Oficial Gaceta
+Moravia, 13 de octubre de 2021.
