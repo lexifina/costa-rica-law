@@ -1,42 +1,17 @@
-CAPÍTULO VIII
-Activos fijos
-Artículo 12.—Activos fijos
+Artículo 12. -Nivel de empleo y fechas de cumplimiento
 A. OBJETIVO
-Evaluar los controles establecidos por la empresa, para la salvaguarda y control de los activos que se consideran como respaldo del Nivel de Inversión.
+Verificar el cumplimiento del Nivel de Empleo, según el compromiso adquirido mediante Acuerdo de Otorgamiento y sus modificaciones y que los datos presentados en los últimos Informes Anuales de los períodos no verificados sean congruentes con los datos reportados a la Caja Costarricense de Seguro Social. Asimismo, verificar el cumplimiento de las fechas en las que la empresa se comprometió a cumplir con el nivel de empleo.
 B. FUNDAMENTO LEGAL
-Artículo 19, incisos a), b) y f) de la Ley de Régimen de Zonas Francas y sus reformas.
-Artículo 7º, 33 bis, 34, incisos b), c) y j) del Reglamento a la Ley de Régimen de Zonas Francas.
+Artículo 19, incisos d) y g) de la Ley de Régimen de Zonas Francas y sus reformas. Artículo 62, inciso i) y o), 122 bis) del Reglamento a la Ley de Régimen de Zonas Francas y sus reformas. Artículo 74 de la Ley Constitutiva de la Caja Costarricense de Seguro Social.
 C. PROCEDIMIENTO
-1. El Auditor solicitará el auxiliar de los activos fijos en poder de la empresa (propios y en consignación) del último cierre parcial disponible, y verificará que concilie con sus respectivas cuentas contables. Documentará este procedimiento por medio de la cédula prediseñada para tal fin.
-En el caso en que la empresa tenga alguna política especial de montos de capitalización, el auditor documentará que dicha política esté aprobada por la Dirección General de Tributación.
-2. Verificará que el auxiliar de activos fijos contenga la siguiente información:
-a) Descripción del activo.
-b) Número de serie, modelo y marca.
-c) Número de dispositivo de identificación (placa).
-d) Localización.
-e) Costo de adquisición, depreciación acumulada y valor en libros.
-f) Fecha de adquisición.
-g) Número de declaración con la que ingresó al Régimen o factura por compra local.
-3. De los activos fijos que se consideran para el cálculo del Nivel de Inversión y que deben cumplir con las definiciones establecidas en el Capítulo V “Nivel de Inversión”, se seleccionará una muestra de al menos 25 activos fijos. Un 75 % de la muestra debe ser seleccionada del registro auxiliar y un 25 % de los que existan en las instalaciones de la empresa. Si la empresa cumple de manera muy ajustada con el nivel de inversión, el Auditor podrá aumentar el tamaño de la muestra. En este último caso, el auditor deberá consignar este aspecto en el informe de la Auditoría, así como los criterios utilizados para ampliar esta muestra.
-4. Para los activos seleccionados, el auditor realizará lo siguiente:
-a) Localizará físicamente la muestra, verificará que tenga placa de identificación y que su número coincida con el registrado en el auxiliar.
-b) Solicitará la declaración aduanera con la que ingresó al régimen y comprobará que el costo de la declaración o factura (compra local) y/o demás gastos incidentales documentados, coincidan con el asignado en el auxiliar.
-c) Verificará que el activo se esté utilizando en beneficio exclusivo de la empresa, que se relacione con la actividad autorizada en el Acuerdo Ejecutivo y que se encuentre en el área delimitada como zona franca.
-d) Si existen activos dañados u obsoletos no podrán ser considerados como parte de la inversión y la empresa tendrá que registrarlos en una cuenta contable independiente y controlarlos en auxiliares también independientes.
-5. Elaborará la cédula sumaria de activo fijo, detallando su movimiento desde el último cierre revisado hasta el último cierre parcial disponible. El Auditor deberá hacer análisis intermedios, de conformidad con las fechas de cumplimiento de inversión, así como análisis parciales si el período fiscal es intermedio al período revisado. Este análisis debe incluir la verificación de los datos obtenidos versus el Informe Anual de Operaciones.
-6. Si existen movimientos, el Auditor ejecutará lo siguiente:
-6.1 Para compras, verificará físicamente el activo y comparará su costo contra la factura y la declaración aduanera respectiva.
-6.2 Para retiros verificará lo siguiente:
-a) Activos: Que se hayan retirado a través de un Acta de Donación, Acta de Destrucción, declaración aduanera de exportación o cancelando los impuestos de nacionalización respectivos. En caso de activos en mal estado que se encuentren aún en las instalaciones de la empresa el Auditor verificará que los mismos han sido incluidos en cuentas de orden de manera que ya no sean tomados en cuenta como parte de la inversión.
-b) Ventas: Que se acaten los siguientes procedimientos:
-i. Si son ventas de maquinaria y equipo importados con 5 años o más de haber sido adquiridos, que se haya realizado el trámite de nacionalización. Este beneficio únicamente aplica para la maquinaria y equipo que tenga más de cinco años de haberse importado con franquicia, según lo establecido en el artículo 20, inciso b) de la Ley de Régimen de Zonas Francas.
-ii. Para activos importados con menos de 5 años de adquiridos, que se haya realizado el trámite de nacionalización y además que se haya realizado el pago de los impuestos respectivos.
-iii. Para activos adquiridos localmente, que se haya realizado el pago de los impuestos de nacionalización respectivos. Los activos comprados localmente no disfrutan del beneficio de no pago de impuestos, posterior a 5 años de haberse adquirido.
-iv. Que se hayan vendido a otras empresas beneficiarias del Régimen cumpliendo con los requisitos de elaboración de una Declaración Aduanera de Zona Franca de Venta de Regímenes Especiales (VRE).
-c) Robo o extravío: Que se haya hecho la denuncia ante el Organismo de Investigación Judicial y que se haya notificado a la aduana respectiva sobre esta situación. Para estos efectos la empresa deberá contar con la documentación respectiva.
-6.3 Otro tipo de movimientos:
-a) Activos en subcontratación: Que se cuente con permiso de PROCOMER para realizar esta transacción y que se haya elaborado la declaración aduanera respectiva, según los términos exigidos por la Ley de Régimen de Zonas Francas y su Reglamento.
-b) Internamientos temporales (salidas a territorio nacional): Que se haya utilizado la declaración aduanera de zona franca y que se haya constituido la respectiva prenda aduanera, según los términos exigidos por la Ley de Régimen de Zonas Francas y su Reglamento.
-7. Conforme a las competencias legales asignadas a PROCOMER, el auditor revisará lo relativo a la utilización de los vehículos exonerados al amparo del Régimen de Zona Franca.
-8. Elaborará una cédula narrativa que resuma los resultados obtenidos.
-En los casos en que la empresa ha cancelado los impuestos no debe cumplir con ningún requisito aduanero y puede disponer libremente de los activos.
+1. El Auditor solicitará las planillas reportadas a la CCSS de los meses correspondientes al último período fiscal, y de los meses siguientes hasta la fecha de la auditoría, a efecto de realizar lo siguiente:
+a) Obtener un promedio simple anual del nivel de empleo del último período fiscal y compararlo con el compromiso adquirido.
+b) Obtener un promedio simple parcial para los meses posteriores al último período fiscal y en la cédula respectiva, a efecto de compararlo con el compromiso adquirido.
+c) Si la obligación ha variado durante el año fiscal, en virtud de modificación del Acuerdo Ejecutivo, el promedio simple se calculará individualmente para cada período en el que se haya tenido que cumplir cada nivel mínimo de empleo.
+2. En los casos en que corresponda, el auditor verificará el acatamiento de las fechas de cumplimiento del nivel de empleo.
+3. El Auditor verificará el cuadro del nivel de empleo de los últimos Informes Anuales de los períodos no verificados, cotejando que el número de empleados indicado en el informe coincida con el número de trabajadores reportados en las planillas de la CCSS. En caso de existir diferencias, el auditor solicitará la justificación de las mismas o, en su defecto, se le indicará a la empresa que solicite la corrección del Informe Anual de Operaciones ante la Dirección de Regímenes Especiales.
+Para las empresas en que el exceso del nivel de empleo promedio sea menor a 15 personas respecto del compromiso adquirido mediante Acuerdo de Otorgamiento, el Auditor realizará el siguiente procedimiento: De la última planilla de la CCSS, seleccionará una muestra de 25 empleados y verificará que efectivamente sean trabajadores de la empresa, solicitándoles la cédula de identidad. En caso de que no estén presentes, solicitará los expedientes de personal.
+4. Al verificar el nivel de empleo, se considerará como un empleo aquellos trabajadores que laboren una jornada ordinaria completa. Los trabajadores que laboren por fracciones de tiempo menores a una jornada ordinaria completa, serán considerados, para efectos del cumplimiento del nivel de empleo, en forma equivalente al porcentaje laborado de una jornada ordinaria completa. Por ejemplo: Un empleado que trabaje a medio tiempo se tomará como 0,50 empleos, un empleado a un cuarto de tiempo se considerará como 0,25 empleos.
+5. Verificar y documentar que la beneficiaria se encuentre al día con las obligaciones tributarias ante la Caja Costarricense del Seguro Social.
+6. Elaborará una cédula narrativa donde indicará los resultados de la prueba.
+El auditor debe tomar en cuenta lo que indica el artículo 122 bis del Reglamento a la Ley de Régimen de Zonas Francas.

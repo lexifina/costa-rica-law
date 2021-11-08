@@ -14,3 +14,4 @@ Manual de Auditorías de PROCOMER para las Empresas Beneficiarias del Régimen d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-23 | la propia norma |
+| 2 | 2021-11-08 | Reglamento 391 (2021-11-08) |

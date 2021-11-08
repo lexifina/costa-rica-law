@@ -1,9 +1,9 @@
-CAPÍTULO IV
-Ubicación de la empresa
-Artículo 8º—Ubicación de las empresas
+Artículo 8°.-Auditoría de seguimiento
 A. OBJETIVO
-Verificar que la empresa se encuentra ubicada en el mismo lugar en el que fue autorizada su operación mediante el Acuerdo de Otorgamiento y sus modificaciones.
-B. FUNDAMENTO LEGAL
-Artículo 25 de la Ley de Régimen de Zonas Francas y sus reformas. Artículos 9º, inciso d), 20, 22 y 23 del Reglamento a la Ley de Régimen de Zonas Francas.
-C. PROCEDIMIENTO
-El día de inicio de la Auditoría, el Auditor revisará que la operación se esté realizando en el o los lugares indicados en el Acuerdo de Otorgamiento y sus modificaciones, los cuales deberán estar previamente habilitados por la autoridad aduanera correspondiente. Para revisar lo anterior, el auditor solicitará la copia de la resolución del Auxiliar de la Función Pública Aduanera.
+Verificar que la empresa ha implementado en forma satisfactoria las medidas correctivas recomendadas.
+B. PROCEDIMIENTO
+1. Previo a la visita a la empresa el auditor deberá documentar el Informe de Cumplimiento y la respuesta presentada por la empresa, así como cualquiera otra comunicación relacionada con la auditoría.
+2. El auditor debe llevar a cabo en la empresa, la actualización de los papeles de trabajo relacionados con el cumplimiento de los niveles de inversión y de empleo para lo cual debe observar los capítulos V, VI y VII.
+3. El auditor debe verificar y documentar la adecuada implementación de las recomendaciones emitidas.
+4. En caso de que existan aspectos nuevos derivados de la revisión de las recomendaciones, entonces se debe seguir lo indicado en el capítulo XVII.
+5. En caso de determinarse un incumplimiento a los términos del Acuerdo Ejecutivo o en los plazos otorgados para el cumplimiento de las acciones correctivas, de forma reiterada, se recomendará el caso para iniciar un Proceso Administrativo ante las instanciascorrespondientes.

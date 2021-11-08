@@ -1,14 +1,13 @@
-CAPÍTULO III
-Aspectos específicos por verificar
-Artículo 7º—Inicio de operaciones y actividad de la empresa
+Artículo 7°.-Informe final y auditoría de seguimiento
 A. OBJETIVO
-Durante la primera auditoría que se realice a una empresa beneficiaria del Régimen de Zona Franca, se verificará que la empresa haya iniciado operaciones en la fecha indicada en el acuerdo ejecutivo de otorgamiento. Una vez verificado lo anterior, este aspecto no será objeto de revisión en las demás auditorías.
-Asimismo, el auditor verificará que la compañía se encuentra realizando la actividad para la cual le fue otorgado el régimen, tal y como fue calificada para ello, según el Acuerdo de Otorgamiento y sus modificaciones. Este requisito será revisado durante la primera auditoría y las demás auditorías que se realicen en la empresa.
-En el caso de empresas que tengan autorizada actividad complementaria de comercialización, el auditor verificará que dicha actividad se desarrolle en los términos dispuestos por la autorización correspondiente emitida por PROCOMER.
-B. FUNDAMENTO LEGAL
-Artículos 17, 20, 32, inciso b) de la Ley de Régimen de Zonas Francas y sus reformas. Artículos 9º, inciso c), 10, inciso a), 38 y 43 del Reglamento a la Ley de Régimen de Zonas Francas.
-C. PROCEDIMIENTO
-1. El día de inicio de la Auditoría, el Auditor solicitará a la empresa una nota en la que describa el proceso productivo que se realiza.
-1. Mediante un recorrido por todas las instalaciones de la empresa, el Auditor verificará que el proceso productivo es el autorizado para la empresa mediante el Acuerdo de Otorgamiento.
-2. En los casos en que sea la primera auditoría que se realiza en la compañía, el auditor verificará que la empresa haya cumplido con la fecha establecida en el Acuerdo de Otorgamiento para el inicio de operaciones productivas, para lo cual verificará que se esté ejecutando parte o la totalidad del proceso productivo descrito en la solicitud de ingreso al Régimen de Zonas Francas.
-3. En caso que la empresa tenga una actividad de comercialización complementaria, el auditor verificará que la misma haya sido previamente autorizada por PROCOMER y que la misma se desarrolle en los términos autorizados por PROCOMER, conforme a lo establecido en el Reglamento a la Ley de Régimen de Zonas Francas.
+Comunicar a la empresa las medidas correctivas y/o preventivas que deben implementarse.
+B. PROCEDIMIENTO
+1. El auditor confeccionará el informe final de la Auditoría, en el cual relacionará cada punto que se deba corregir, con los papeles de trabajo correspondientes.
+2. Al momento de terminar el trabajo de campo, se levantará una minuta de la reunión de cierre.
+3. El informe final de auditoría será elaborado y firmado por el auditor y el coordinador, y remitido a la empresa, por medio de un oficio firmado por el Director de Regímenes Especiales.
+4. Como resultado de la auditoría, el auditor solo podrá realizar prevenciones escritas.
+5. En el oficio adjunto al informe se indicará la fecha en que se realizará la Auditoría de Seguimiento, en caso de ser necesario
+6. A partir de la notificación del informe, la empresa tendrá un plazo de 10 días hábiles para detallar la forma en que se implementarán las recomendaciones o en su defecto presentar las objeciones a dichas recomendaciones.
+7. En caso de haber objeciones, la Dirección de Regímenes Especiales resolverá la petición de la empresa dentro de los siguientes 10 días hábiles posteriores a la recepción de la gestión correspondiente.
+8. En caso de que la empresa aún no se encuentre satisfecha con los resultados del informe, podrá plantear, dentro de los 5 días hábiles siguientes a la notificación, una solicitud de reconsideración ante la Gerencia General de PROCOMER, quien tendrá 10 días hábiles para resolver la gestión de la empresa.
+9. En caso de determinarse un incumplimiento a los términos del Acuerdo Ejecutivo, se recomendará el caso para iniciar un Procedimiento Administrativo ante las instancias correspondientes.
