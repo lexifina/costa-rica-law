@@ -1,0 +1,10 @@
+Artículo 10.-Conductas que no constituyen acoso laboral. Las conductas que no constituyen acoso laboral son:
+a) Las políticas, directrices, exigencias y órdenes necesarias para mantener el orden, la disciplina y el aprovechamiento de los recursos institucionales, conforme al bloque de legalidad.
+b) Los actos destinados a ejercer la potestad disciplinaria que legalmente corresponde a las jerarquías sobre sus subalternos.
+c) La formulación de comunicados (circulares, oficios, correos electrónicos u otros) encaminados a solicitar exigencias técnicas o mejorar la eficiencia laboral, así como la evaluación laboral periódica de las personas trabajadoras conforme a objetivos e indicadores de rendimiento.
+d) La solicitud de cumplir deberes extraordinarios de colaboración con la Institución, cuando sean necesarios, para garantizar la continuidad del servicio público o para solucionar situaciones particulares en la gestión de la organización.
+e) Las actuaciones administrativas o gestiones encaminadas a dar por terminada la relación de servicio, con base en una causa legal o una justa causa, prevista en la normativa que rige la materia.
+f) Las órdenes dadas por la jefatura para el fiel cumplimiento de las labores de los y las servidores/ as, así como la formulación de exigencias razonables para la elaboración de un trabajo o cumplimiento de funciones.
+g) La solicitud que realicen las jefaturas de acatar las prohibiciones y deberes inherentes a su relación de servicio, establecidos en la normativa vigente.
+h) Las diferencias o conflictos personales o laborales aislados, de carácter pasajero, que se presenten en un momento concreto y en el marco de las relaciones interpersonales, de forma tal que afecte el ámbito laboral pero que su finalidad no sea la destrucción o el deterioro de las partes implicadas en el suceso.
+i) Denegar justificadamente ascensos o reasignaciones, condición de propiedad, capacitaciones, permisos o licencias, así como vacaciones, para los que no se cumplan con los requisitos de ley o los requerimientos institucionales según la necesidad del servicio.

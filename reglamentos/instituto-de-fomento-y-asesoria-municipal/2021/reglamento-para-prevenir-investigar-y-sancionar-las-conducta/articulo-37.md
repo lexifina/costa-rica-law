@@ -1,0 +1,1 @@
+Artículo 37.-Comparecencia oral y privada. La Comisión Investigadora, recibirá en una sola comparecencia, el día, hora y lugar señalado, tanto la prueba documental como la prueba testimonial ofrecida por las partes. Respecto a la prueba testimonial las cédulas de citación, las preparará la Comisión; sin embargo, le corresponderá a la parte proponente notificarlas.

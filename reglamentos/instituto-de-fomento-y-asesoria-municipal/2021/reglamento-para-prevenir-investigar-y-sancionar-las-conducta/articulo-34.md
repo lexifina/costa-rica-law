@@ -1,0 +1,1 @@
+Artículo 34.-Aclaración de la denuncia. Previo a realizar el traslado de cargos correspondiente a la persona denunciada, la Comisión Investigadora podrá, en caso de ser necesario, llamar a la persona denunciante para que, a más tardar dentro del día siguiente hábil aclare la denuncia.

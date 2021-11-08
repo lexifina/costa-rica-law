@@ -1,0 +1,1 @@
+Artículo 12.-En el caso de personas denunciadas por conductas de hostigamiento laboral y que no estén subordinadas laboralmente a la institución; sino, a empresas que prestan servicios a ésta, la Comisión Investigadora de Acoso Laboral realizará la investigación y procederá según corresponda, haciendo la comunicación respectiva a la empresa.

@@ -1,0 +1,1 @@
+Artículo 18.-Partes del proceso. Se considerarán partes del procedimiento de investigación por acoso laboral, la persona denunciante, la persona denunciada y de haberlo, el sujeto partícipe. En caso de que sea un tercero la persona denunciante, esta tendrá participación en cuanto al conocimiento de los hechos denunciados.

@@ -1,0 +1,1 @@
+Artículo 39.-Término para dictar la recomendación para el dictado del acto final. Concluida la comparecencia, la Comisión Investigadora, gozará de un plazo máximo de quince días, para dictar la resolución de fondo.

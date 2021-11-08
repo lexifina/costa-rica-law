@@ -1,0 +1,1 @@
+Artículo 4º-EL IFAM incluirá en los contratos que suscriba con las personas físicas o jurídicas que le prestan servicios, una cláusula que establezca que en caso de comprobarse acoso laboral contra una persona trabajadora del IFAM o un tercero deberá sustituir a la persona que lo haya cometido.

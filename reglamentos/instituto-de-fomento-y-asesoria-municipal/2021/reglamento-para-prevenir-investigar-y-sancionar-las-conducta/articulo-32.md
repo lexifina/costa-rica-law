@@ -1,0 +1,1 @@
+Artículo 32.-De la Comisión Investigadora y su conformación. Presentada la denuncia y existiendo el mérito suficiente para realizar una investigación, el jerarca respective procederá a integrar una comisión investigadora que deberá estar compuesta por al menos tres personas; respetando para ello, la paridad de género.

@@ -1,0 +1,1 @@
+Artículo 36.-Omisión de contestar. Si la persona denunciada no diera respuesta al traslado de cargos en el plazo señalado, el proceso continuará hasta el dictado de la recomendación por parte de la Comisión Investigadora y el dictado de la resolución final por parte del respectivo jerarca.

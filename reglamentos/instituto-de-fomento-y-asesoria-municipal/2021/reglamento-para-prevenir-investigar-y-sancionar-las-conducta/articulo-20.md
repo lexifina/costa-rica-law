@@ -1,0 +1,1 @@
+Artículo 20.-Fuero de protección. Con el propósito de resguardar el lugar de trabajo de toda muestra de discriminación, se crea un fuero especial de protección para que la persona denunciante presuntamente acosada o el tercero denunciante, no sufra con motivo de tal denuncia perjuicio alguno, considerado este, como cambio de tareas o detrimento de sus derechos laborales.

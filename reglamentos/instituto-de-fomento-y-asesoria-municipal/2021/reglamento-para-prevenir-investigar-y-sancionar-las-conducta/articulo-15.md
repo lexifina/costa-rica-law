@@ -1,0 +1,1 @@
+Artículo 15.-Es un requisito indispensable para ser miembro de la Comisión Institucional para la Prevención de Acoso Laboral, no haber sido una persona sancionada por infracciones catalogadas como acoso laboral.

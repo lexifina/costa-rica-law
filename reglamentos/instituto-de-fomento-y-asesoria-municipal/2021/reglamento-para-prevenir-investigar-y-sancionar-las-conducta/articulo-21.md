@@ -1,0 +1,1 @@
+Artículo 21.-Despido. Queda prohibido despedir a la persona denunciante o a quienes testifiquen acerca de algún tipo de acoso laboral, salvo que, medie una causa justificada cuyo origen sea una falta grave, conforme a la normativa que rige la materia, previo cumplimiento del debido proceso.

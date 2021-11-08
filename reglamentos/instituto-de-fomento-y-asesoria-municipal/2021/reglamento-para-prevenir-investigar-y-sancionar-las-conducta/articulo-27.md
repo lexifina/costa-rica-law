@@ -1,0 +1,1 @@
+Artículo 27.-Prohibición para conciliar. El acoso laboral conlleva violencia psicológica e inclusive en algunos casos, violencia física, cuyo distintivo es la asimetría de poder en las relaciones de carácter laboral, motivo por el que se encuentra prohibida la conciliación.

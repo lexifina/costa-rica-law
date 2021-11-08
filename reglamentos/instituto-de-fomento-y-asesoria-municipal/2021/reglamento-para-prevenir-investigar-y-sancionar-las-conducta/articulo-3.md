@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito de aplicación. Este reglamento se aplicará a todos los funcionarios del IFAM, tanto en sus relaciones internas como externas. Tratándose de una denuncia por acoso laboral en contra de una persona integrante de la Junta Directiva o de la persona titular de la Presidencia Ejecutiva del IFAM, esta deberá interponerse ante el Consejo de Gobierno.

@@ -1,0 +1,3 @@
+Artículo 14.-La Comisión Institucional para la Prevención del Acoso Laboral, trabajará en coordinación con la UTH, para establecer mecanismos de prevención de los conflictos laborales en general y de las conductas de acoso laboral en particular, de manera permanente, mediante campañas de sensibilización.
+La UTH, deberá incluir dentro del programa de inducción para los funcionarios de nuevo ingreso, información referente al presente reglamento de acoso laboral.
+Para tales efectos, la administración dotará a la UTH de los recursos necesarios para la implementación y desarrollo de dichos programas.
