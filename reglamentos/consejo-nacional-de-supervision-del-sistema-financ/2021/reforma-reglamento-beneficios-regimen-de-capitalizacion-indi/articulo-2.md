@@ -1,0 +1,11 @@
+II. En lo atinente al Reglamento sobre la apertura y funcionamiento de las entidades autorizadas y el funcionamiento de los fondos de pensiones, capitalización laboral y ahorro voluntario previstos en la Ley de Protección al Trabajador:
+dispuso en firme:
+aprobar la reforma de los artículos 5, 95, y 112 del Reglamento sobre la apertura y funcionamiento de las entidades autorizadas y el funcionamiento de los fondos de pensiones, capitalización laboral y ahorro voluntario previstos en la Ley de Protección al Trabajador, publicado en el diario oficial La Gaceta Nº 78, Alcance Nº 30, del 24 de abril del 2001, para que, en lo sucesivo, se lean de la siguiente forma:
+"Artículo 5. De las monedas. Los aportes al Fondo de Capitalización Laboral y al Régimen Obligatorio de Pensiones Complementarias deberán realizarse en colones.
+Podrán constituirse fondos denominados en moneda extranjera en el Régimen Voluntario de Pensiones Complementarias y los planes de Ahorro Voluntario."
+"Artículo 95. De la conservación y custodia de los datos de los afiliados, formularios y contratos de afiliación. Las entidades autorizadas conservarán en su sistema, toda la información exigida por los correspondientes manuales de información de los regímenes de capitalización individual y colectiva emitidos por el Superintendente.
+En el caso de afiliados que se acojan al derecho de transferencia o a los beneficios de un plan, la documentación correspondiente se almacenará en un medio que garantice la integridad de los datos por un plazo de al menos cinco años.
+Asimismo, cada entidad autorizada deberá mantener custodiados los contratos de afiliación. Existirá un expediente individual para cada afiliado, así como para cada uno de los contratos marco que se suscriban con un cotizante.
+Dichos expedientes serán complementarios al archivo de afiliados, y podrán mantenerse en medios electrónicos informáticos, o mediante archivo físico de los documentos que lo conforman"
+"Artículo 112. De la publicación. Los estados financieros se consideran información pública y deberán estar disponibles para su consulta por parte de los interesados.
+Los estados financieros deberán publicarse y cumplir con lo establecido en el Reglamento de información financiera."
