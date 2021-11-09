@@ -1,4 +1,4 @@
-N° 42221 – S
+N° 42221 - S
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE SALUD
 Con fundamento en las atribuciones que les confieren los artículos 50, 140 incisos 8) y 20) y 146 de la Constitución Política; 25, 28, párrafo 2), inciso b) de la Ley General de la Administración Pública, Ley N ° 6227 de 02 de mayo de 1978; los artículos 1, 2, 4, 7, 147, 148, 149, 155, 161, 162, 163, 164, 165, 166, 167, 168, 169, 337, 338, 338 bis, 340, 341, 348, 378 de la Ley N ° 5395 del 30 de octubre de 1973 Ley General de Salud; los artículos 2 incisos b) y c), 6 y 57 de la Ley N ° 5412 del 08 de noviembre de 1973, Ley Orgánica del Ministerio de Salud; y
@@ -21,5 +21,6 @@ Por tanto,
 Decretan:
 Medidas administrativas temporales para la atención de actividades de concentración
 masiva debido a la alerta sanitaria por COVID-19
-Artículo 1º.- Como parte de las acciones preventivas y de mitigación dictadas por el Ministerio de Salud para la atención de la alerta sanitaria por COVID-19, esa cartera ministerial como rectora en materia de salud deberá suspender las actividades de concentración masiva de personas que estén vinculadas con los permisos sanitarios de funcionamiento o autorizaciones sanitarias de concentración masiva.
-La suspensión se basa en la determinación de aquella actividad que favorezca el surgimiento de una cantidad muy elevada de cadenas de transmisión simultáneas o que se pueden dar en un corto periodo, generadas de un mismo evento de concentración de personas. Se prestará mayor atención a aquellos eventos que por las condiciones propias de la actividad y por la proveniencia de personas de diferentes partes del país, pueden provocar saturación de los servicios de salud para las personas que enfermarían gravemente.
+Artículo 1.- Como parte de las acciones preventivas y de mitigación dictadas por el Ministerio de Salud para la atención del estado de emergencia nacional por el COVID-19, esta cartera ministerial como rectora en materia de salud podrá emitir autorizaciones sanitarias para eventos de concentración masiva en espacios que permitan el control del aforo de las personas asistentes, sujeto a las condiciones epidemiológicas del país en el momento en que se solicita la autorización.
+El análisis del escenario epidemiológico se vuelve necesario para evitar el surgimiento de una cantidad elevada de cadenas de transmisión simultáneas o que se pueden dar en un corto periodo, generadas de un mismo evento de concentración masiva de personas y que pueda provocar una saturación de los servicios de salud para las personas que enfermarían gravemente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43314 del 9 de noviembre de 2021)

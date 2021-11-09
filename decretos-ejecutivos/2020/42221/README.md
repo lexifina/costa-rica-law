@@ -14,3 +14,4 @@ Medidas administrativas temporales para la atención de actividades de concentra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-12 | la propia norma |
+| 2 | 2021-11-09 | Decreto Ejecutivo 43314 (2021-11-09) |
