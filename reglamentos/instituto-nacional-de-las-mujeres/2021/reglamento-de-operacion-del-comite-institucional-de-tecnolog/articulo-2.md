@@ -1,0 +1,2 @@
+Artículo 2º-Ámbito de aplicación:
+El presente Reglamento establece las normas generales y específicas que regirán el trabajo del Comité Institucional de Tecnologías de Información, basado en las disposiciones de lo establecido en las Normas de control interno para el Sector Público (N-2-2009-CO-DFOE) de la Contraloría General de la República. Por tanto, las disposiciones de este Reglamento son de aplicación y acatamiento obligatorio para todas las personas miembras del Comité institucional de Tecnologías de la Información.
