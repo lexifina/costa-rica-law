@@ -1,2 +1,0 @@
-Artículo 30. Períodos de gracia
-El período de gracia será otorgado cuando el estudio técnico y financiero, elaborado por el área de Financiamiento así lo justifique, en razón de la maduración del proyecto a financiar, entendida la maduración, cuando un proyecto se deba realizar en etapas durante un período determinado de tiempo, hasta lograr el inicio de un proceso productivo, el periodo de gracia se puede conceder tanto para el pago del principal como para el pago de los intereses. Así mismo, se tendrá en consideración la recuperación de los flujos de efectivo.

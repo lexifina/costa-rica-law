@@ -1,3 +1,0 @@
-Artículo 29. Tasas de interés
-Las tasas de interés de los créditos se establecerán a partir de las tasas piso, de acuerdo con la estructura de tasas vigente.
-En caso de que la tasa de interés otorgada corresponda a una de las tasas piso o inferior de acuerdo con el análisis financiero, se deberá presentar a la Junta Directiva, el estudio socioeconómico, así como el dictamen sobre impacto financiero en la Institución, elaborado por la Comisión Financiera Para los casos en que los Organismos Cooperativos requieran ajustar la tasa de interés, deberán ser autorizadas por la Junta Directiva, previa elaboración de un informe técnico del Área Financiamiento, el cual será sometido al trámite de revisión y aprobación correspondiente por parte de las instancias respectivas.

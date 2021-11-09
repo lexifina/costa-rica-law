@@ -1,2 +1,0 @@
-Artículo 55. Refinanciamiento y Novaciones de deudor Para los casos en que los Organismos Cooperativos cuenten con una o varias operaciones vigentes y soliciten modificar en forma integral las condiciones contractuales vigentes, se tramitará como un nuevo crédito y aplicará lo regulado por medio del presente Reglamento General de Crédito.
-Para los casos en que se requiera una adecuación o arreglo de pago administrativo, se aplicará el Reglamento de Cobro Administrativo, Arreglos de pago y Cobro Judicial.
