@@ -1,0 +1,1 @@
+Artículo 13°-Formato de actas de la Comisión Ejecutiva de Control Interno y SEVRI. La Comisión CECI-SEVRI deberá contar con un formato de actas de uso obligatorio para cada sesión, de acuerdo con las disposiciones establecidas por la Auditoría interna del INAMU. Deberán estar a disposición de cualquier persona interesada en conocer su contenido.
