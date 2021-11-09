@@ -1,0 +1,1 @@
+Artículo 24.-En caso de que el procedimiento para el otorgamiento de becas descrito en el presente Reglamento sufra retrasos en los plazos señalados, por situaciones de fuerza mayor o imprevistos, se pagarán las becas a los beneficiarios definitivos en forma retroactiva si no fueron depositados en las fechas que correspondía.

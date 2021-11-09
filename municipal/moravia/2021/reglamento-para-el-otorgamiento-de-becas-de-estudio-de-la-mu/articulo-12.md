@@ -1,0 +1,4 @@
+Artículo 12.-Los concejos de distrito definirán la asignación de becas conforme a los siguientes parámetros en el siguiente orden de prelación:
+1) Cumplimiento de todos los requisitos establecidos en el presente Reglamento.
+2) Bajo nivel de ingreso económico familiar (cuando por familia se perciba un ingreso bruto total menor al puesto más bajo de la escala salarial de la Municipalidad de Moravia).
+3) Por orden de ingreso de las solicitudes.
