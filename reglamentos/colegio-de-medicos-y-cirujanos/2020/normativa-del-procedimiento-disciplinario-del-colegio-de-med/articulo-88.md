@@ -1,8 +1,5 @@
-Artículo 88.—Del Acuerdo Conciliatorio. Las partes firmarán el acuerdo conciliatorio en el cual consten las obligaciones asumidas. Partiendo de la falta atribuida, la conciliación puede consistir en una o alguna de las siguientes obligaciones:
+Artículo 88.-Del Acuerdo Conciliatorio. Las partes firmarán el acuerdo conciliatorio en el cual consten las obligaciones asumidas. La conciliación puede consistir en una o alguna de las siguientes obligaciones:
 a) La retractación y su correspondiente comunicación pública o privada a quien corresponda, de lo cual se dejará constancia en el expediente de la investigación.
-b) La disculpa en el seno del órgano director, de la cual se dejará constancia en el expediente de investigación.
-c) El pago de una suma de dinero a favor de una causa benéfica, según determinación que hará el Tribunal de Ética Médica.
-d) Cualquier otro compromiso siempre que sea lícito.
-El plazo para el cumplimiento de la conciliación debe quedar constando en el acuerdo conciliatorio y no podrá exceder de tres meses. El Tribunal de Ética Médica ordenará el archivo definitivo del proceso de investigación disciplinaria sin sanción alguna, una vez que la Fiscalía verifique el cumplimiento de la conciliación en los términos acordados, todo de lo cual deberá quedar debidamente documentado.
-El incumplimiento de la conciliación implicará necesariamente la reanudación del proceso de investigación disciplinaria en el estado en que se encontraba antes de la conciliación y será considerado como agravante a efectos de la sanción que eventualmente se imponga.
-(Así reformado mediante sesión 2021-01-20 del 20 de enero del 2021)
+b) La disculpa en el seno del órgano director y a la Fiscalía, de la cual se dejará constancia en el expediente de investigación.
+c) Cualquier compromiso que las partes consideren necesario para solucionar el diferendo siempre que sea lícito. En los casos en que se pacten sumas de dinero a favor de una causa benéfica o trabajo comunal la determinación de estos extremos se hará a convenir entre las partes.
+(Así reformado mediante Sesión Ordinaria 2021-11-10 del 10 de noviembre del 2021)
