@@ -1,1 +1,2 @@
-Artículo 271.-El acto o la actuación que no requiera ser consignado según el artículo anterior, se hará constar por medio de simple anotación en el expediente, firmada y fechada por el servidor que lo ha cumplido o que ha dirigido su realización.
+Artículo 271- La administración deberá conformar un expediente administrativo, que contendrá los documentos físicos y/o digitales que motivaron el dictado o la emisión del acto administrativo.
+(Así reformado por el artículo 2° de la Ley para mejorar el proceso de control presupuestario, por medio de la corrección de deficiencias normativas y prácticas de la administración pública, N° 10053 del 25 de octubre de 2021)
