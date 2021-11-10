@@ -14,3 +14,4 @@ Reglamento de registro de pozos sin número y habilitación del trámite de conc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-24 | la propia norma |
+| 2 | 2021-11-10 | SINALEVI (sin norma nombrada) |
