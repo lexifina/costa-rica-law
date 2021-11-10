@@ -1,0 +1,2 @@
+Artículo 21. Separación vertical desde el suelo
+Para edificaciones de ocupación múltiple, los medidores se pueden instalar en un panel de medición o en ductos verticales donde el centro de cada medidor se ubique a una altura comprendida entre 0,8 m y 2 m sobre el nivel de piso terminado (Ver Figuras N°22, N°23 y N°25), o en ductos horizontales, donde el centro de cada medidor se ubique a una altura comprendida entre 1,60 m y 2 m sobre el nivel de piso terminado (Figura N°24).

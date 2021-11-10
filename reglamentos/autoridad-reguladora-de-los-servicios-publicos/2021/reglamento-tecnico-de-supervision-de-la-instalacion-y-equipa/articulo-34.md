@@ -1,0 +1,2 @@
+Artículo 34. Responsabilidad de las empresas distribuidoras
+Las empresas distribuidoras tienen la obligación de verificar el fiel cumplimiento de este reglamento y la obligación de cumplir con los artículos 4.c y 5.1.3 del Decreto Ejecutivo 36979-MEIC Reglamento de Oficialización del Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad (publicado en La Gaceta No. 33, del 15 de febrero de 2012) y sus reformas.

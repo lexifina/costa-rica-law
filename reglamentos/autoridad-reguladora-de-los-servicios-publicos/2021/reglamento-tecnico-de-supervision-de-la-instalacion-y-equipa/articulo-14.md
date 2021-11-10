@@ -1,0 +1,5 @@
+CAPÍTULO IV
+ACOMETIDA SUBTERRÁNEA EN BAJA TENSIÓN
+Artículo 14. Calibre de los conductores en acometida subterránea
+De previo a conectar o habilitar un servicio eléctrico nuevo o en los casos que se requiera un aumento de carga, según el artículo 23 del reglamento AR-RT-SUCOM, la empresa distribuidora debe constatar que los conductores de entrada de la acometida subterránea sean del calibre establecido por el profesional responsable de la instalación eléctrica del inmueble.
+Para el caso de reubicación del sistema de medición en el mismo inmueble, o reconexiones del servicio, el abonado está obligado a que los conductores de entrada de la acometida se ajusten a lo que establece el Artículo 230 del Código Eléctrico de Costa Rica u otra norma vigente en el país.

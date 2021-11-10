@@ -1,0 +1,2 @@
+Artículo 10. Separación de los conductores respecto a aberturas en edificios
+Los conductores de acometida instalados, tales como los conductores desnudos o los cables multiconductores sin una cubierta aislante, deben tener una separación no menor de 0,9 m, de las aberturas en los edificios, tales como: ventanas, puertas, pórticos, salidas de emergencia, balcones, escaleras, voladizos o estructuras similares. (Ver Figura N°7).
