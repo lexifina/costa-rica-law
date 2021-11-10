@@ -1,0 +1,3 @@
+Artículo 9º-Asignación del servicio de telefonía celular. La línea y el teléfono celular, se asignan al puesto, y estarán restringidas a una línea por funcionario.
+El funcionario que ocupe, temporal o permanentemente, alguno de los puestos definidos en el artículo 7 del presente Reglamento, asume el uso del servicio celular respectivo.
+El funcionario que disfrute de los servicios de telefonía celular, servicios complementarios, servicios TIC o cualquiera de los servicios descritos de comunicación o información y es trasladado o removido de los puestos mencionados en el artículo 6, debe hacer el traspaso del servicio al nuevo funcionario que ocupe el cargo e informar de inmediato y por escrito a al departamento de Servicios Generales.
