@@ -14,3 +14,4 @@ Uso obligatorio del portal de administración tributaria virtual (ATV) para aque
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-12 | la propia norma |
+| 2 | 2021-11-10 | Resolución 32 (2021-11-10) |
