@@ -1,4 +1,6 @@
-Artículo 56.-
-1. De cada sesión se levantará una (sic) acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos.
-2. Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros del Colegio.
-3. Las actas serán firmadas por el Presidente y por aquellos miembros que hubieren hecho constar su voto disidente.
+Artículo 56-
+1) Las sesiones de los órganos colegiados deberán grabarse en audio y video y ser respaldadas en un medio digital que garantice su integridad y archivo de conformidad con la legislación vigente. Será obligación de todos los miembros del cuerpo colegiado verificar que se realice la grabación de la sesión y constituirá falta grave el no hacerlo.
+2) De cada sesión se levantará un acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, la transcripción literal de todas las intervenciones efectuadas, la forma y el resultado de la votación y el contenido de los acuerdos.
+3) Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros del Colegio.
+4) Las actas serán firmadas por el presidente y por aquellos miembros que hubieran hecho constar su voto disidente.
+(Así reformado por el artículo 2° de la Ley para mejorar el proceso de control presupuestario, por medio de la corrección de deficiencias normativas y prácticas de la administración pública, N° 10053 del 25 de octubre de 2021)
