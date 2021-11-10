@@ -1,0 +1,2 @@
+Disposiciones Generales
+Artículo 112.-El presente reglamento deroga cualquier disposición reglamentaria o acuerdo municipal previo que se le oponga. En todo lo no previsto regirán las disposiciones del Código Municipal Ley N° 7784 y sus reformas y la Ley General de la Administración Pública Ley N° 6227 y sus reformas.

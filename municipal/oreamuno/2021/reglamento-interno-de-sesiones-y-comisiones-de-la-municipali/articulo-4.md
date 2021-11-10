@@ -1,0 +1,1 @@
+Artículo 4°-El Concejo Municipal, está compuesto por un cuerpo deliberativo integrado por regidores electos popularmente por períodos de cuatro años, sus atribuciones están establecidas en el artículo 13 del Código Municipal.

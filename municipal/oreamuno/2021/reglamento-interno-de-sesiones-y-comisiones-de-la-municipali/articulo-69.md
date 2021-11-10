@@ -1,0 +1,1 @@
+Artículo 69.-Los regidores y síndicos podrán realizar consultas y comentarios durante un periodo máximo de cinco minutos, concedido por la Presidencia del Concejo, de acuerdo con el tema de que se trate. Al final de las intervenciones de los regidores y síndicos, la Presidencia podrá otorgar un período máximo de tres minutos para que un expositor brinde respuesta a los ediles.

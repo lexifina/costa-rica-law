@@ -1,0 +1,1 @@
+Artículo 98.-A las comisiones especiales la Presidencia les dará un plazo para rendir su dictamen, quedarán disueltas o serán reestructuradas cuando no rindan su informe en el plazo establecido o por falta de sesionar.

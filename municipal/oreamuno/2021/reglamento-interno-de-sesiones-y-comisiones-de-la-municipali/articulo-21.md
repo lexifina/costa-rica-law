@@ -1,0 +1,1 @@
+Artículo 21.-Cuando los miembros del Concejo Municipal, sean invitados a participar de alguna actividad, o por delegación del Concejo para representar a la institución, podrán acogerse al artículo 32 del Código Municipal, el cual definirá si le otorga la respectiva autorización, estos deberán comunicar al Concejo con antelación en sesión anterior a la actividad.

@@ -1,0 +1,1 @@
+Artículo 40.-Cualquier miembro del Concejo podrá solicitar permiso a la presidencia para retirarse temporal o definitivamente de la sesión y ésta concederlo, quedando constancia de ello en actas con indicación de la hora de retiro y reingreso, siempre y cuando no se esté en la votación de un asunto o que sin estar en ello, el retiro llegare a romper el quorum.

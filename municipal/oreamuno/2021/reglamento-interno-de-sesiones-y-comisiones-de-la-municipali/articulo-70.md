@@ -1,0 +1,1 @@
+Artículo 70.-Con la intervención de los munícipes, la Secretaría del Concejo tomará nota de lo expuesto, quedando facultada la Presidencia para trasladar el asunto en exposición a la comisión competente o a la Alcaldía Municipal.

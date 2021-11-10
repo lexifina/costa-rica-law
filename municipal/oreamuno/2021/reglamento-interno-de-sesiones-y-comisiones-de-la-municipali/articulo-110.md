@@ -1,0 +1,1 @@
+Artículo 110.-Queda facultado la Presidencia del Concejo Municipal por si o a solicitud de uno o más regidores por fuerza mayor u otro motivo a reestructurar las Comisiones de Trabajo cuando así se amerite.

@@ -1,0 +1,1 @@
+Artículo 75.-Las mociones y proposiciones deberán ser interpuestas por un regidor, el alcalde o acogidas por un regidor propietario cuando la misma provenga de una persona ajena al Concejo, de un regidor suplente o de los síndicos.

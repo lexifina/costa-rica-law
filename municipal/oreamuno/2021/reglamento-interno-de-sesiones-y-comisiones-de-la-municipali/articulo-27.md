@@ -1,0 +1,1 @@
+Artículo 27.-El regidor propietario que se presente después de transcurridos los quince minutos contados a partir de la hora señalada para iniciar la sesión perderá el derecho de devengar la dieta, aunque no se hubiere efectuado su sustitución por el suplente de su mismo partido conforme al orden de elección.

@@ -1,0 +1,1 @@
+Articulo 72.-La Presidencia del Concejo pedirá el desalojo del Salón de Sesiones, cuando los munícipes que estén dentro provoquen desorden, amenacen a los regidores (as), síndicos (as) o al alcalde, o en cualquier otra forma interrumpa la sesión, en cuyo caso deberá requerir la participación de la Fuerza Pública o, en defecto de esta, dar por terminada la sesión.

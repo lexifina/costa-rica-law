@@ -1,0 +1,1 @@
+Artículo 13.-La Administración Municipal deberá brindar el apoyo tecnológico necesario para realizar tales sesiones virtuales, la instrucción debida a quienes así lo requieran, además a fin de que las mismas sean transmitidas por la plataforma digital que resulte más idónea técnicamente, de manera que se garantice el principio de publicidad del artículo 41 del Código Municipal.

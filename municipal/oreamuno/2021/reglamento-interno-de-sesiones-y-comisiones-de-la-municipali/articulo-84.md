@@ -1,0 +1,1 @@
+Artículo 84.-Durante el trámite de aprobación del acta, no deberá de someterse a discusión ni votación los acuerdos en ella contenidos; en su lugar conlleva la verificación de que la trascripción sucinta de las deliberaciones y acuerdos emitidos en la sesión anterior a la correspondiente del acta, es fiel y no presenta omisiones o modificaciones.

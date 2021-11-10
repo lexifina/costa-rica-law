@@ -1,0 +1,1 @@
+Artículo 97.-Las comisiones permanentes deberán estar integradas por una cantidad no menor de tres miembros, los cuales deberán ser regidores propietarios, la Presidencia podrá reestructurarlas por ausencias de alguno de sus miembros o falta de sesiones.

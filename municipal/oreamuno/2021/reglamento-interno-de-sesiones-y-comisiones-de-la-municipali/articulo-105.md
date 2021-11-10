@@ -1,0 +1,1 @@
+Artículo 105.-EI día de reunión acordado por las diferentes Comisiones, tanto ordinarias como extraordinarias, deberá ser del conocimiento del Concejo y la Secretaría Municipal y no podrá ser variado, salvo casos de excepción y por acuerdo calificado de sus integrantes.

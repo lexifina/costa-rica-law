@@ -1,0 +1,1 @@
+Artículo 79.-En el capítulo de mociones de los señores regidores y la Alcaldía Municipal, los miembros del Concejo presentarán las mociones y proposiciones por escrito y firmadas. La secretaría anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación, salvo cuando se trate de mociones de orden.

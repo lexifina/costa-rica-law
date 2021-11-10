@@ -1,0 +1,1 @@
+Artículo 111.-Los regidores están en la obligación de ser parte de las comisiones que se crean en la Municipalidad. Será obligatoria la participación tanto de los regidores propietarios como suplentes en las comisiones que sean designados.

@@ -1,0 +1,1 @@
+Artículo 56.-Todo acuerdo que tome el Concejo deberá contar de previo con el dictamen de la comisión respectivo y subsiguiente deliberación, no obstante, el proponente podrá solicitar, previa y debida justificación, otorgar la dispensa de trámite de comisión, de conformidad con el artículo 44 del Código Municipal.

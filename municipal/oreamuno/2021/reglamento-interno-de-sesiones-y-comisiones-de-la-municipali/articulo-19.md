@@ -1,0 +1,1 @@
+Artículo 19.-Durante la sesión cualquier regidor podrá solicitar recesos, para lo cual será criterio de la presidencia concederlo o no y establecer el tiempo del receso, esto con el fin de que sean solicitados para obtener mayor criterio, consultar con mayor profundidad el asunto en discusión, pero nunca para entorpecer ni dilatar el orden de la sesión.

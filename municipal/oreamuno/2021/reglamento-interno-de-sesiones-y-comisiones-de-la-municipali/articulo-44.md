@@ -1,0 +1,1 @@
+Artículo 44.-Quien funja como vicepresidente del Concejo, llevará el control del tiempo autorizado en cada situación, y cuando se haya vencido, se lo hará saber a la Presidencia, quien le indicará al exponente que el tiempo ha llegado a su fin.

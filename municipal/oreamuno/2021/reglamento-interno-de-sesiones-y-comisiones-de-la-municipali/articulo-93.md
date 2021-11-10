@@ -1,0 +1,1 @@
+Artículo 93°.- Son deberes del Secretario(a) del Concejo Municipal los establecidos en el artículo 53 del Código Municipal y cualquier otro deber que le encarguen las leyes, los reglamentos internos o el Concejo Municipal.

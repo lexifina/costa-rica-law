@@ -1,0 +1,1 @@
+Artículo 18.-Podrán celebrarse sesiones extraordinarias fuera de la sede de la municipalidad, cuando así lo acuerde el Concejo por ameritarse el traslado al sitio acordado y para tratar sobre asuntos propios del lugar donde se cita la sesión.

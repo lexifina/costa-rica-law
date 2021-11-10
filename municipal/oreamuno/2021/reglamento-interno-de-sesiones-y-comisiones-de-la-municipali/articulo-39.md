@@ -1,0 +1,1 @@
+Artículo 39°.- Pasados los quince minutos que indica el artículo 13 del Código Municipal si no hubiere quorum se dejará constancia en el libro de actas, se consignará el nombre de los regidores presentes y la Presidencia del Concejo llamará a los regidores suplentes correspondientes; los regidores ausentes perderán el derecho a la dieta correspondiente.
