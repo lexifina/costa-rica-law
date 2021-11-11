@@ -1,0 +1,1 @@
+Artículo 20.-Formalidades para el retiro de la asamblea por parte de los asambleístas: Para que un asambleísta se tenga como efectivamente retirado de la Asamblea deberá firmar por segunda vez el padrón inicial.

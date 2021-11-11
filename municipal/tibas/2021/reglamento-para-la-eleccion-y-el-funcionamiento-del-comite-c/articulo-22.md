@@ -1,0 +1,1 @@
+Artículo 22.-Juramentación: Las personas integrantes de la Junta Directiva, serán juramentadas por el Concejo Municipal; en la primera quincena del mes de diciembre correspondiente al año previo de su entrada en funciones.
