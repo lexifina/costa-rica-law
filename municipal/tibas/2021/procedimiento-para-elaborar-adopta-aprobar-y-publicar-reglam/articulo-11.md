@@ -1,0 +1,2 @@
+Artículo 11.-De las reformas.
+Cuando lo que se requiera sea la reforma de uno o más artículos de un reglamento, deberá seguirse el mismo procedimiento para su aprobación por parte del Concejo Municipal, pero dicha propuesta, además, debe incluir un artículo que señale que el mismo deroga cualquier reglamento anterior, en el acta donde se apruebe la reforma debe incluirse todo el reglamento, el cual debe mandarse a publicar íntegramente, cumpliendo con el principio de publicidad y seguridad jurídica.
