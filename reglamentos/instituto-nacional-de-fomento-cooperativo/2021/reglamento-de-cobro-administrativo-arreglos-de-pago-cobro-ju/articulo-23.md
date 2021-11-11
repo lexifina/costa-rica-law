@@ -1,0 +1,1 @@
+Artículo 23.-Presentación de informe a la Dirección Ejecutiva., el área encargada del proceso de cobro judicial presentará a la Dirección Ejecutiva un informe individualizado de cada cobro judicial pendiente de manera semestral o cuando se requiera,
