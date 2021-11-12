@@ -14,3 +14,4 @@ Contabilidad regulatoria en los servicios públicos de acueducto, alcantarillado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-12 | la propia norma |
+| 2 | 2021-11-12 | Resolución 29 (2021-11-10) |

@@ -1,12 +1,15 @@
 AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
 INTENDENCIA DE AGUA
-Resolución RE-0028-IA-2021-IA-2021
+Resolución RE-0028-IA-2021
+(Así reformada la numeración mediante resolución N° RE-0029-IA-2021 del 10 de noviembre de 2021)
 MODIFICACIONES A LA CONTABILIDAD REGULATORIA IMPLEMENTADA POR
 LA INTENDENCIA DE AGUA MEDIANTE LA RESOLUCIÓN RIA-001-IA-2018 DEL
 31 DE ENERO DE 2018 Y A LOS REQUERIMIENTOS DE INFORMACION
 CONTABLE PARA LOS SERVICIOS REGULADOS POR ESTA INTENDENCIA
 EXPEDIENTE OT-203-2021
 RESULTANDO
+Fecha de su promulgación es el 9 de noviembre de 2021
+(Así adicionada la fecha de promulgación mediante resolución N° RE-0029-IA-2021 del 10 de noviembre de 2021)
 I- El 01 de agosto de 2012, en la sesión ordinaria 63-2012, ratificada en la sesión 67-2012 del 18 de agosto de 2012, la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos, mediante acuerdo 04- 63-2012, convino solicitar a las Intendencias de Agua, de Energía y de Transportes:
 "(.) Una propuesta mediante la cual se evalúe el dimensionamiento que pueda tener el proyecto de implementación de mejora de la contabilidad regulatoria, específicamente, la elaboración de un catálogo de cuentas que permita homogenizar la terminología e información contable que es presentada al ente regulador, así como explorar los estudios que, en algún momento, las direcciones técnicas hayan realizado sobre la materia, en el entendido de que, en un plazo no mayor a dos meses que vence el 16 de octubre de 2012, rinda el informe del caso para los fines pertinentes (.)"
 II- El 14 de noviembre de 2012, en la sesión ordinaria 93-2012, ratificada en la sesión 94-2012 del 19 de noviembre de 2012, la Junta Directiva de la Autoridad Reguladora, mediante acuerdo 07-93-2012, solicitó a las Intendencias una nueva propuesta para la elaboración de un catálogo de cuentas de contabilidad regulatoria, siendo su plazo de vencimiento el 10 de diciembre de 2012.
@@ -550,8 +553,10 @@ XV. Si el operador requiere la incorporación de nuevas cuentas contables en sus
 XVI. En un plazo de 18 meses contados a partir de la notificación de la presente resolución, con la finalidad de una mejor medición y asignación de los sueldos y salarios y partidas relacionadas (cargas sociales, prestaciones legales), los operadores deben adquirir o desarrollar sistemas informáticos que permitan el registro y control de las horas laboradas no sólo asignadas al área operativa y/o administrativa, sino que igualmente automatice la asignación correcta de estas horas a cada uno de las etapas de la cadena de valor de los servicios regulados, así como por cada uno de los sistemas de acueducto y alcantarillado que administran en este caso el AyA y la ESPH S.A. En lo que respecta a SENARA esta asignación sería por centro de costos, los cuales están definidos en el ingresador FIA-037 o los centros de costos que posteriormente SENARA considere conveniente utilizar.
 El costo de este software o módulo de control de recursos humanos que se recomienda esté integrado al módulo financiero, es justificante para presentar una nueva solicitud tarifaria.
 Finalmente, en lo que respecta al AyA se recomienda la adquisición de un ERP ( Enterprise Resource Planning), de tal manera que le facilite a este operador gestionar de una forma eficiente sus principales procesos empresariales (financiero, recursos humanos, costos, planeación, ejecución y control de proyectos, etcétera). Este ERP puede ser complementado con un CRM (Customer Relationship Management), el cual consta generalmente de módulos para la gestión comercial, marketing y el servicio postventa o atención al cliente.
-XVII. Indicar al AyA, a la ESPH S.A. y al SENARA, que los formatos vigentes de los ingresadores señalados se encuentran disponibles en la siguiente página web institucional (www.aresep.go.cr) en el siguiente enlace: https://aresep.go.cr/agua/informacion-regulatoria
-XVIII. Forma parte de esta resolución el manual de cuentas regulatorio actualizado, el cual junto con los ingresadores serán puestos a disposición de los operadores en el siguiente enlace: https://aresep.go.cr/agua/informacion-regulatoria
+XVII. Indicar al AyA, a la ESPH S.A. y al SENARA, que los formatos vigentes de los ingresadores señalados se encuentran disponibles en la siguiente página web institucional (www.aresep.go.cr) en el siguiente enlace: https://aresep.go.cr/agua-potable/informacion-regulatoria
+(Así reformado el punto anterior mediante resolución N° RE-0029-IA-2021 del 10 de noviembre de 2021)
+XVIII. Forma parte de esta resolución el manual de cuentas regulatorio actualizado, el cual junto con los ingresadores serán puestos a disposición de los operadores en el siguiente enlace: https://aresep.go.cr/agua-potable/informacion-regulatoria
+(Así reformado el punto anterior mediante resolución N° RE-0029-IA-2021 del 10 de noviembre de 2021)
 XIX. Los operadores deben enviar la información solicitada en esta resolución al correo electrónico iagua@aresep.go.cr. Si la información no se puede adjuntar por medio de correo electrónico, se debe utilizar una plataforma de alojamiento de archivos masivo (Dropbox, OneDrive u otros). Lo anterior se efectuará hasta que la Intendencia de Agua comunique por medio de un oficio a cada operador, la fecha para la cual deben cargar esta información en el Sistema de Información Regulatoria (SIR)."
 XX. Indicar al AyA, a la ESPH S.A. y al SENARA, que los equipos técnicos de la Intendencia de Agua se encuentran a disposición para continuar con el acompañamiento en la implementación de la presente resolución y facilitar la transición hacia los nuevos requerimientos de información regulatoria.
 XXI. Indicar a los operadores que es su obligación cumplir las condiciones establecidas en esta resolución, de previo a toda petición tarifaria que se presente ante la Autoridad Reguladora de los Servicios Públicos a partir de la notificación de esta resolución, de conformidad con el artículo 33 de la Ley 7593.
