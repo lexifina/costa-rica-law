@@ -16,3 +16,4 @@ Directrices generales a los sujetos pasivos de la Contraloría General de la Rep
 | 1 | 2010-04-07 | la propia norma |
 | 2 | 2012-03-26 | Resolución 24 (2012-03-26) |
 | 3 | 2019-07-18 | Resolución 69 (2019-07-18) |
+| 4 | 2021-11-12 | Resolución 106 (2021-11-12) |

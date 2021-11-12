@@ -1,1 +1,2 @@
-V.—Estas directrices rigen a partir de su publicación en el Diario Oficial La Gaceta.
+V.- Las directrices contenidas en esta resolución son de acatamiento obligatorio, por lo que su incumplimiento, en cualquiera de sus formas, será causal de responsabilidad disciplinaria, de acuerdo con el ordenamiento de control y fiscalización, sin perjuicio de cualquier otra responsabilidad que se pudiese generar producto de determinada acción u omisión.
+(Así adicionado el punto anterior por resolución N° R-DC-00106-2021 del 12 de noviembre de 2021)
