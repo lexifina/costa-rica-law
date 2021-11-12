@@ -1,0 +1,6 @@
+[imagen]
+Nombre del estudiante: ________________________________________________ Cédula de identidad: ______________________
+Entidad educativa donde realizará los estudios: ________________________________________ Sede: ______________________
+Carrera: _____________________________________________________ Grado Académico _______________________________
+[imagen]
+[imagen]
