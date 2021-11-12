@@ -1,0 +1,2 @@
+Artículo 2°-. Esta Estrategia estará disponible en el sitio web de la Secretaría de Planificación del Subsector Energía (SEPSE), en la dirección electrónica ENREIFINAL. pdf (sepse.go.cr). La versión impresa del documento se custodiará en la Secretaría de Planificación del Subsector Energía (SEPSE), en el quinto piso del Ministerio de Ambiente y Energía (MINAE).
+(Nota de Sinalevi: La Estrategia Nacional de Redes Eléctricas Inteligentes, puede ser consultada en el siguiente Enlace)
