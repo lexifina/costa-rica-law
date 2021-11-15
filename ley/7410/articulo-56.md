@@ -1,4 +1,7 @@
-Artículo 56°—Sesiones, acuerdos y quórum
-El Consejo de Personal sesionará cuando haya asuntos por resolver. Sus acuerdos se tomarán por mayoría absoluta de los presentes y se consignarán en un libro de actas. Tres de sus miembros formarán quórum.
-(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 47 al 50 actual)
-(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 50 al 56 actual)
+Artículo 56°-Servidores no cubiertos por el Estatuto. No estarán cubiertos por la disposición del inciso a) del artículo 59 de este Estatuto y, en consecuencia, no gozarán de inamovilidad en sus puestos, en los siguientes funcionarios.
+a) Ministros y viceministros, asesores y empleados de confianza.
+b) El director general administrativo, el director general de la Fuerza Pública, los directores y subdirectores regionales de esta, el director del Servicio de Vigilancia Aérea y el director de la Policía de Control de Drogas.
+(Así reformado por el artículo 4 aparte a) de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 43 al 46 actual)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 46 al 52 actual)
+(Así modificada su numeración por el artículo 2° de la ley Creación de la Dirección del Servicio de Vigilancia Aérea como cuerpo policial adscrito al Ministerio de Seguridad Pública, N° 10061 del 15 de noviembre del 2021, que lo traspasó del antiguo artículo 52 al 56)

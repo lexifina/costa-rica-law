@@ -1,12 +1,7 @@
-(*)CAPITULO VIII
-Del despido
-(*)(Así corrida la numeración del capítulo anterior por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo capítulo VII al VIII actual)
-Artículo 88°—El despido justificado
-Los servidores amparados por el presente Estatuto solo podrán ser removidos de sus puestos por las siguientes razones:
-a) Por la comprobación de que han incurrido en una falta grave, según lo dispuesto en la presente Ley.
-b) Por incurrir en cualquiera de las causales establecidas en el artículo 81 del Código de Trabajo.
-c) Por ineficiencia o impericia manifiesta y comprobada en el desempeño del puesto.
-d) Por lo previsto en el artículo 51 de esta Ley.
-(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 72 al 75 actual)
-(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 75 al 82 actual)
-(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 82 al 88 actual)
+Artículo 88°-Procedimiento en investigación disciplinaria
+El departamento legal del ministerio respectivo se encargará de investigar preliminarmente toda acusación que implique la suspensión temporal o el despido del servidor amparado por este Estatuto.
+Preparado el informe correspondiente, el departamento citado recomendará alguna medida y trasladará el asunto al Consejo de Personal para que lo resuelva en primera instancia. El afectado por una medida disciplinaria de este tipo tendrá derecho a recurrir al ministro del ramo, dentro de los tres días siguientes al de la notificación. Si no se apela, el asunto se remitirá al ministro quien resolverá definitivamente y dará por agotada la vía administrativa.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 68 al 71 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 71 al 78 actual)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 78 al 84 actual)
+(Así modificada su numeración por el artículo 2° de la ley Creación de la Dirección del Servicio de Vigilancia Aérea como cuerpo policial adscrito al Ministerio de Seguridad Pública, N° 10061 del 15 de noviembre del 2021, que lo traspasó del antiguo artículo 84 al 88)

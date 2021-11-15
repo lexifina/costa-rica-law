@@ -1,6 +1,6 @@
-Artículo 84°—Procedimiento en investigación disciplinaria
-El departamento legal del ministerio respectivo se encargará de investigar preliminarmente toda acusación que implique la suspensión temporal o el despido del servidor amparado por este Estatuto.
-Preparado el informe correspondiente, el departamento citado recomendará alguna medida y trasladará el asunto al Consejo de Personal para que lo resuelva en primera instancia. El afectado por una medida disciplinaria de este tipo tendrá derecho a recurrir al ministro del ramo, dentro de los tres días siguientes al de la notificación. Si no se apela, el asunto se remitirá al ministro quien resolverá definitivamente y dará por agotada la vía administrativa.
-(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 68 al 71 actual)
-(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 71 al 78 actual)
-(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 78 al 84 actual)
+Artículo 84°-Procedimiento para las amonestaciones
+Las amonestaciones orales o escritas por faltas leves, las emitirá el jerarca inmediato del amonestado, sin más trámite que concederle audiencia. La escrita contendrá el relato sucinto del hecho que motiva la infracción y los fundamentos que justifican la sanción disciplinaria.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 64 al 67 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 67 al 74 actual)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 74 al 80 actual)
+(Así modificada su numeración por el artículo 2° de la ley Creación de la Dirección del Servicio de Vigilancia Aérea como cuerpo policial adscrito al Ministerio de Seguridad Pública, N° 10061 del 15 de noviembre del 2021, que lo traspasó del antiguo artículo 80 al 84)
