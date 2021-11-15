@@ -1,1 +1,0 @@
-Artículo 8. Deróguese los Decretos Ejecutivos 42104-MTSS y 42122-MTSS, publicados en el Alcance 285 y 286 del diario oficial La Gaceta N°242 y N°243, de fecha 19 y 20 de diciembre del 2019, respectivamente.
