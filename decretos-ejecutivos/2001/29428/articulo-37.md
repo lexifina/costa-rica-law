@@ -1,7 +1,8 @@
 Artículo 37.-De los requisitos para un nombramiento honorario. Para aspirar a un nombramiento consular honorario de la República, se requiere:
 a) Ser persona de comprobada honorabilidad e idoneidad.
 b) Presentar un currículum vitae, cuatro fotografías, firmas para registro, fotocopia de los documentos de identidad, constancia policial y/o judicial de no haber cometido delitos ni de estar en investigación y demostrar solvencia económica.
-c) Presentar nota de recomendación del Jefe de Misión de Costa Rica con jurisdicción sobre el territorio, si lo hubiere.
+c) Presentar nota de referencias objetivas y comprobables, emitida por el Jefe de Misión de Costa Rica con la jurisdicción, concurrencia o cercanía geográfica correspondiente.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43406 del 15 de noviembre de 2021)
 d) Completar los formularios preparados por la Dirección General de Servicio Exterior para este propósito.
 e) Realizar una entrevista presencial o bajo la modalidad virtual con la o el Director(a) del Servicio Exterior o por el que este designe al efecto, y/o con el Jefe de Misión de la embajada respectiva o concurrente.
 f) Tener dominio básico del idioma español o, en su defecto, contar con personal de apoyo con dominio intermedio del mismo.
