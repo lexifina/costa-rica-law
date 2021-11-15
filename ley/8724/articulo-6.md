@@ -1,6 +1,7 @@
-ARTÍCULO 6.- Competencias del Instituto Costarricense de Turismo
-El ICT es el ente rector de la actividad turística en el país y podrá tener las siguientes competencias, en relación con la actividad del TRC:
-a) Otorgar la declaratoria y el contrato turístico a las agrupaciones de TRC que cumplan los requisitos establecidos en la legislación vigente.
+Artículo 6- Competencias del Instituto Costarricense de Turismo. El Instituto Costarricense de Turismo (ICT) es el ente rector de la actividad turística en el país y tendrá las siguientes competencias, en relación con la actividad del TRC:
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 10049 del 15 de noviembre de 2021, "Extender los beneficios del ecoturismo y el turismo rural en las comunidades rurales y costeras")
+a) Otorgar la declaratoria y el contrato turístico a las agrupaciones de TRC que cumplan los requisitos establecidos en la normativa específica diseñada para regular las distintas actividades del turismo rural comunitario, indicadas en el artículo 4 de esta ley. Estos requisitos deberán ser razonables y proporcionales, adaptándose a las condiciones particulares del TRC y a la naturaleza de los productos ofrecidos. Deberán cumplirse los requerimientos para proteger la vida y la seguridad de las personas turistas.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 10049 del 15 de noviembre de 2021, "Extender los beneficios del ecoturismo y el turismo rural en las comunidades rurales y costeras")
 b) Regular, tramitar y resolver el reconocimiento por parte del ICT de las agrupaciones que realicen actividades de TRC, conforme al Plan nacional de desarrollo turístico.
 c) Incorporar, dentro de sus planes de desarrollo turístico y los planes anuales operativos, programas específicos que garanticen el fomento y la promoción del TRC.
 d) Destinar los recursos humanos, técnicos y económicos necesarios para la ejecución de las políticas que fomenten y promuevan el TRC.
