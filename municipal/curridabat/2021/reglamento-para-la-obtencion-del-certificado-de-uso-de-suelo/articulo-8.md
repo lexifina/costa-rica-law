@@ -1,0 +1,1 @@
+Artículo 8º-Sobre la presentación de la solicitud. El peticionario presentará la solicitud completa en la Plataforma de Servicios o por el medio electrónico que la Municipalidad habilite para tal fin, al que se le asignará un número de trámite, y se remitirá a la Dirección de Desarrollo y Control Urbano para su análisis y resolución.
