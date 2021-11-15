@@ -1,0 +1,1 @@
+Artículo 51.-Entrada en vigor del Reglamento para el Establecimiento y Cobro de Tarifas y Multas por el Incumplimiento de las Obligaciones de los Propietarios o Poseedores de Bienes Inmuebles ubicados en el Cantón Tarrazú. Rige a partir de su segunda publicación

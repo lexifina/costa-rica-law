@@ -1,0 +1,9 @@
+Artículo 21.-Cobro de obra o servicio. Transcurrido el plazo concedido sin que las obras o servicios sean ejecutados por el obligado, la Municipalidad podrá ejecutarlas, en dicho caso emitirá un reporte de su costo efectivo a fin de cargar el monto correspondiente en la cuenta del contribuyente. Para ello, el Departamento Municipal que corresponda deberá apercibir al contribuyente su obligación de cancelar el costo efectivo de la obra o servicio en el plazo máximo de ocho días hábiles siguientes a la notificación, de no acatar lo prevenido deberá cancelar además del costo descrito anteriormente y por concepto de multa un cincuenta por ciento (50%) del valor de la obra o el servicio, sin perjuicio del cobro de los intereses moratorios de conformidad con las previsiones del artículo 84 del Código Municipal, así como de lo señalado en el Código de Normas y Procedimientos Tributarios, a cargo del sujeto pasivo de dicha obligación. En la notificación, se debe indicar:
+a. Nombre del propietario o poseedor y su número de cédula o identificación.
+b. Lugar y hora de la notificación.
+c. Número de expediente o de referencia.
+d. Detalle de la obra o servicio realizado.
+e. El costo efectivo de la obra o servicio realizado.
+f. La prevención que, de no cumplir con el pago en el tiempo establecido (máximo ocho días hábiles), deberá cancelar por concepto de multa, un 50% del costo efectivo de la obra, más los intereses moratorios correspondientes.
+g. La advertencia que, pasado un trimestre sin hacer el pago efectivo, la Municipalidad podrá acudir al proceso de cobro judicial según lo establecen los artículos 84 y 85 del Código Municipal.
+h. Indicación de su derecho a presentar los recursos ordinarios, en contra de la notificación practicada; ante que instancia imponerlos; el órgano que los resolverá, y el plazo para interponerlos.

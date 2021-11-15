@@ -1,0 +1,1 @@
+Artículo 49.-Efectos del incumplimiento. El incumplimiento de lo expresado en los artículos precedentes será causal de suspensión de las obras por parte del Departamento de Control Urbano de la Municipalidad de Tarrazú seguido de la eliminación de los obstáculos mediante el procedimiento establecido en el presente Reglamento, con costo a cargo del propietario del inmueble.

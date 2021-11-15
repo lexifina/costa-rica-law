@@ -1,0 +1,1 @@
+Artículo 3º-Alcance. Las disposiciones de este Reglamento son aplicables a todas las personas físicas, jurídicas, propietarias o poseedoras por cualquier título, de bienes inmuebles ubicados en el Cantón de Tarrazú.

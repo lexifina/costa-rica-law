@@ -1,0 +1,1 @@
+Artículo 9º-Acta de apercibimiento. Una vez determinada la omisión mediante la inspección de campo respectiva, el Departamento que corresponda notificará al propietario o poseedor mediante un Acta de Apercibimiento.

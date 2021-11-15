@@ -1,0 +1,1 @@
+Artículo 7º-Omisión de obligaciones. Cuando el contribuyente, no realice las obras o servicios prevenidos por la Municipalidad y una vez concluido el plazo legal otorgado para su ejecución, se le tendrá por omiso, y se entenderá que incumplió las obligaciones que se indican en el artículo 5 de este Reglamento.

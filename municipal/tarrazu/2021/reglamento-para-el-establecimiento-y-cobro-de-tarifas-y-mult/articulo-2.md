@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo. Reglamentar las disposiciones contenidas en los artículos 84, 85, 85 bis y 85 ter del Código Municipal; desarrollando la aplicación de las tarifas y multas que deben pagar los munícipes del Cantón de Tarrazú, por el incumplimiento de dichas obligaciones.

@@ -1,0 +1,1 @@
+Artículo 15.-Efectos del incumplimiento. Una vez concluido el procedimiento anterior, la Municipalidad estará facultada para proceder a la imposición de las multas correspondientes y facultativamente para realizar por su cuenta las obras o servicios debidamente notificados.

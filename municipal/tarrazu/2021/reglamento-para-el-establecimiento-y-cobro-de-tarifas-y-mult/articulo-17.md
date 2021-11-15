@@ -1,0 +1,1 @@
+Artículo 17.-Revalorización de multas. Los montos correspondientes a las multas estipulados en este Reglamento se actualizarán anualmente en el mismo porcentaje que aumente el salario base establecido en el artículo 2 de la Ley N° 7337 del 5 de mayo de 1993, en concordancia con el artículo 85 ter del Código Municipal.
