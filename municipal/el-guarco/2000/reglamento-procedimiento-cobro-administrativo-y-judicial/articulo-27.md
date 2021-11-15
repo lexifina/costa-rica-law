@@ -1,1 +1,0 @@
-Artículo 27.—El tiempo máximo que se concede para hacer un arreglo de pago no excederá los seis meses calendario, contados a partir de la firma del documento respectivo. El Departamento de Rentas y Cobranzas elaborará una tabla donde se especificará el monto de los depósitos previstos a la formalización del arreglo de pago.
