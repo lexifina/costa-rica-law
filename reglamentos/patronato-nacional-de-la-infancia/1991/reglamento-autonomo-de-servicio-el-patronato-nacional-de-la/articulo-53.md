@@ -1,1 +1,0 @@
-Artículo 53.-EI Director Ejecutivo podrá conceder licencia sin goce de salario hasta por seis meses. para asuntos personales del servidor; y con goce de salario hasta por treinta días, previo examen valorativo de las razones que conduzcan a la concesión de la licencia.

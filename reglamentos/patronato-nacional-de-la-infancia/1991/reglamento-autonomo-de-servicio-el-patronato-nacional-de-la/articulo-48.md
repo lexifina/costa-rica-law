@@ -1,2 +1,0 @@
-Artículo 48.-Las ausencias por enfermedad deberán ser justificadas mediante incapacidad extendida por la Caja Costarricense de Seguro Social, el Instituto Nacional de Seguros o certificado médico particular.
-En las ausencias que excedan de tres días, sólo procederá la retribución salarial correspondiente si la incapacidad proviene de la Caja Costarricense de Seguro Social o del Instituto Nacional de Seguros. En los casos de que estas ausencias se justifiquen con certificado médico particular, el servidor sufrirá un rebajo salarial del 50%.

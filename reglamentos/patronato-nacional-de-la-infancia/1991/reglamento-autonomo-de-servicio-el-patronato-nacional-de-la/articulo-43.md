@@ -1,1 +1,0 @@
-Artículo 43.-El Departamento de Recursos Humanos computará mensualmente todo lo relacionado con el registro de asistencia, conforme reciba los informes respectivos de cada centro de trabajo, por medio de la persona encargada de ese control.

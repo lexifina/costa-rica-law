@@ -1,1 +1,0 @@
-Artículo 19.- El jefe de cada oficina, oyendo a sus respectivos servidores, fijará la época en que éstos disfrutarán de sus vacaciones, procurando que se tomen dentro de las quince semanas posteriores al día en que se cumplan las cincuenta semanas de servicio continuo y tratando de que no se altere la buena marcha de las funciones encomendadas no se perjudique el descanso.

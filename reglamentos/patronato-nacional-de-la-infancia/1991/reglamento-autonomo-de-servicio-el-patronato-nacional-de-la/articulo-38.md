@@ -1,2 +1,0 @@
-Artículo 38.- El registro de asistencia de los servidores se llevará por medio de tarjetas individuales, que deberá marcar cada uno, personalmente, en un reloj marcador, al inicio y al final de la jornada de trabajo, cualquiera que ésta sea.
-En los centros de trabajo en donde no exista reloj marcados, el registro de asistencia se hará mediante la firma de los servidores en hojas o boletas de asistencia, de acuerdo con las disposiciones que al efecto tome el Departamento de Recursos Humanos.

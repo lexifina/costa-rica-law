@@ -1,1 +1,0 @@
-Artículo 63.- Sin perjuicio de otras sanciones disciplinarias que proceda, las llegadas tardías, las ausencias y el abandono de trabajo, acarrean la pérdida del salario correspondiente al tiempo no laborado.

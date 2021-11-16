@@ -1,1 +1,0 @@
-Artículo 59.- Después de concluido el término de la carrera por la que el servidor hay optado, no se le concederá más licencia o contrato de estudios para cursar otra, sino hasta que haya prestado a la institución los correspondientes servicios, como contraprestación por el beneficio disfrutado.

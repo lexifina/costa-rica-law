@@ -1,4 +1,0 @@
-Artículo 31.- Los servidores del Patronato que registran sus asistencia en los instrumentos de control correspondientes, tendrán derecho a disfrutar de un día libre por cada tres meses consecutivos de trabajo – contados a partir del primer día de cada mes – siempre que en ese lapso no hayan incurrido en ningún tipo de ausencia o llegada tardía, salvo que éstas sean consecuencia directa e inmediata del desempeño de sus funciones.
-El servidor deberá utilizar dicho beneficio dentro del mes inmediato siguiente a la comunicación de que lo obtuvo.
-No es permitida la acumulación con otros días así obtenidos, ni con el disfrute de sus vacaciones, salvo el caso en que el inicio de estas coincida con el mes dentro del cual deba hacer uso de ese beneficio.
-El departamento de Recursos Humanos deberá comunicar al servidor, con copia al jefe inmediato, su derecho al disfrute del día libre, cuya elección se hará entre el interesado y el jefe de la unidad en la cual labora.

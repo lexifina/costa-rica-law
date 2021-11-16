@@ -1,1 +1,0 @@
-Artículo 47 .-La in asistencia a un día completo de labor constituye una ausencia. La inasistencia a una fracción de la jornada se computará como la mitad de una ausencia. La inasistencia a dos medias jornadas se considerará una ausencia. No se pagará salario en los casos de ausencia, salvo en aquellas situaciones expresamente contempladas.

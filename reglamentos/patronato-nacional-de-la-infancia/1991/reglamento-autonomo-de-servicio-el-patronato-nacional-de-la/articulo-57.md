@@ -1,2 +1,0 @@
-Artículo 57.- Si el servidor pretende revalidar su contrato de estudios deberá demostrar, al concluir cada ciclo académico, que sus calificaciones lo hacen merecedor de la prórroga. Se tomará en cuenta, asimismo, la calificación anual de servicios obtenidos por el solicitante.
-El Patronato no aprobará nuevo contrato de estudios mientras el servidor no presente certificación sobre las calificaciones obtenidas durante el curso lectivo anterior.

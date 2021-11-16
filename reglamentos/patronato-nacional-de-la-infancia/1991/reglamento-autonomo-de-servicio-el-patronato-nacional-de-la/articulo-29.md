@@ -1,1 +1,0 @@
-Artículo 29.- los servidores de la Institución tendrán derecho a que esta les gestione su defensa, en aquellos juicios o causas que pudieran afectarles con motivo del cumplimiento de las funciones propias del cargo que desempeñan.

@@ -1,1 +1,0 @@
-Artículo 10.- No están sometidos a los límites máximos de jornada los servidores que se encuentren en los casos previstos en el artículo 143 del Código de trabajo, a quienes se les podrá exigir una jornada ordinaria de doce horas diarias con una hora y media de descanso.
