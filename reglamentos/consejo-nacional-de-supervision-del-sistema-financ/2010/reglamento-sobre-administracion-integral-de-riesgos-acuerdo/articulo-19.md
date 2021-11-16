@@ -1,8 +1,5 @@
-Artículo 19.—Requisitos del experto independiente. El experto independiente que ejecute la auditoría del proceso de Administración Integral de Riesgos debe cumplir con los requisitos siguientes:
-a) Estar inscrito como auditor en el Registro de Auditores Elegibles de las Superintendencias.
-b) Contar con una combinación de experiencia, formación académica y profesional demostrable, que le faculte para ejecutar auditorías de riesgos en intermediarios financieros.
-La formación académica considera la titulación universitaria en áreas afines al sector financiero y particularmente al giro de la intermediación financiera. La experiencia se vincula al desempeño en campos de auditoría, control y aseguramiento en áreas afines a la administración de riesgos en intermediarios financieros, por un periodo no menor a dos años. Finalmente la formación profesional se refiere al desarrollo y capacitación continua en el campo de la especialidad, así como en materia de riesgos del sector financiero y de la intermediación financiera.
-c) No haber prestado a la entidad en forma directa o a través de una compañía relacionada, servicios de consultoría, capacitación, o complementarios relacionados con el diagnóstico, implementación y mantenimiento de procedimientos o sistemas para la administración de riesgos, durante los últimos tres años anteriores.
-d) No tener participación relevante en el capital social de la entidad auditada o su grupo financiero que limite su independencia.
-e) No tener operaciones en condiciones distintas a las que se tienen establecidas para cualquier cliente de la entidad auditada ni estar clasificado en una categoría de riesgo que ponga en cuestionamiento la recuperación del crédito
-f) No haber desempeñado cargos en la entidad auditada, sus filiales, asociadas, entidades con cometido especial, subsidiarias o su grupo económico durante los dos años anteriores a la fecha de la remisión de los productos de la auditoría.
+Artículo 19. Requisitos del experto independiente
+El experto independiente que ejecute la auditoría del proceso de administración integral de riesgos debe cumplir con los requisitos siguientes:
+a) Estar inscrito como auditor en el Registro de Auditores Externos de las Superintendencias, y atender las disposiciones señaladas en el Reglamento General de Auditores Externos.
+b) No haber prestado a la entidad en forma directa o a través de una compañía relacionada, servicios de consultoría, capacitación, o complementarios relacionados con el diagnóstico, implementación y mantenimiento de procedimientos o sistemas para la administración de riesgos, durante los tres años anteriores.
+(Así reformado mediante sesión N° 1700-2021 del 16 de noviembre del 2021)
