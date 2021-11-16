@@ -1,1 +1,0 @@
-Artículo 3. Coordinación. El personal de la Auditoría Interna en el ejercicio de su función auditora, procurará que la ejecución de sus actividades no interfiera el normal desarrollo de las operaciones que se realizan en las dependencias de la CNFL, para lo cual establecerá la coordinación necesaria con las personas correspondientes.

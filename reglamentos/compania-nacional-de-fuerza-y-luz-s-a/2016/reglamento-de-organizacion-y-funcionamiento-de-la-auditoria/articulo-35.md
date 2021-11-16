@@ -1,1 +1,0 @@
-Artículo 35. Aseguramiento de la calidad. Con el propósito de agregar valor y mejorar la gestión de la Auditoría Interna, la persona Auditora Interna debe establecer e implementar los procesos necesarios para el aseguramiento de la calidad en el ejercicio de la auditoría interna, según lo establecido en la norma 1.3 de las NEAISP.

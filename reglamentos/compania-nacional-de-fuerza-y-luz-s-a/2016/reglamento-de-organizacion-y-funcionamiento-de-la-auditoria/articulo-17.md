@@ -1,6 +1,0 @@
-Artículo 17. Servicios de auditoría. Los servicios que presta la Auditoría Interna para atender las responsabilidades que le corresponden, se clasifican en:
-a. Servicios de auditoría: Son los distintos tipos de estudios de auditoría que se realizan sobre aspectos financieros, administrativos, sistemas de información y comunicación, operativos, gestión, cumplimiento; estudios especiales y otros necesarios para cumplir su objetivo.
-b. Servicios preventivos: Incluyen la asesoría, advertencia y autorización de libros.
-b.1 Asesoría: La persona Auditora Interna debe asesorar oportunamente al Consejo de Administración en materia de su competencia, sin perjuicio de las asesorías que en esa materia se brinden a otros niveles de la organización, con el propósito de fortalecer el sistema de control interno de la CNFL.
-b.2 Advertencia: La Auditoría Interna debe advertir a los órganos pasivos que fiscaliza, incluyendo al Consejo de Administración, sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
-b.3 Autorización de libros: La Auditoría Interna fiscalizará periódicamente la efectividad del manejo, autorización y control de libros o registros relevantes y necesarios para el fortalecimiento del Sistema de Control Interno.

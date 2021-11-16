@@ -1,1 +1,0 @@
-Artículo 34. Delegación de funciones. La persona Auditora Interna podrá delegar en su personal las funciones que considere pertinentes, utilizando criterios de idoneidad para efectuar la selección correspondiente, de conformidad con lo que establece en esta materia la Ley General de la Administración Pública N°6227.

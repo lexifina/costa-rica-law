@@ -1,1 +1,0 @@
-Artículo 31. Respaldo de los servicios. Los profesionales deben identificar, analizar, evaluar, registrar y custodiar la información que procesan, con pericia y debido cuidado profesional, para cumplir los objetivos del servicio y lograr que los resultados del mismo estén adecuadamente fundamentados y aporten valor agregado a la Administración Activa.

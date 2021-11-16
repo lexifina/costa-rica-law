@@ -1,1 +1,0 @@
-Artículo 12. Jornada laboral y plazo de nombramiento de la persona Auditora Interna. El nombramiento de la persona Auditora Interna será por tiempo indefinido y la jornada laboral es de tiempo completo.

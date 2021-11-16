@@ -1,1 +1,0 @@
-Artículo 5. Independencia y objetividad. Se deberán ejercer las funciones con total independencia funcional y de criterio por parte de la persona Auditora Interna y demás personal de la dependencia, conforme a sus responsabilidades y competencias, respecto de la Administración Activa de la CNFL y de otras organizaciones que forman parte del Universo de Auditoría.
