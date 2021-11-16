@@ -1,0 +1,1 @@
+TRANSITORIO l- Una vez promulgada la reforma propuesta, la Dirección Nacional de Notariado comunicará a la Operadora BCR Pensiones la rescisión o resolución del convenio suscrito, mediante una comunicación por escrito, con al menos tres meses de antelación a la fecha de resolución.

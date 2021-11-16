@@ -1,0 +1,1 @@
+TRANSITORIO V- La Dirección Nacional de Notariado tendrá el plazo de tres meses para regular los procedimientos administrativos necesarios para que las notarias y los notarios puedan reportar el pago de la póliza de manera adecuada.

@@ -1,0 +1,1 @@
+TRANSITORIO Ill- A partir de la publicación de esta ley, la Dirección Nacional de Notariado deberá realizar las publicaciones en los medios de comunicación que establezca, con el fin de informar de los alcances de esta ley e instar, a quienes ejerzan el notariado, al ret.iro de los recursos económicos que tenga a su favor en el Fondo de Garantía Nctarial.
