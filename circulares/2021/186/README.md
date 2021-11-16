@@ -13,3 +13,4 @@ Reiteración de la circular número 256-2014, denominada "Lineamientos para el s
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-19 | la propia norma |
+| 2 | 2021-11-16 | Circular 246 (2021-11-16) |
