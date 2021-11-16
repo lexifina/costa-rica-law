@@ -1,0 +1,24 @@
+CIRCULAR N° 246-2021
+ASUNTO: Adición a la circular 186-2021 de la Secretaría General de la Corte, denominada "Reiteración de la circular número 256-2014, denominada Lineamientos para el seguimiento de los nombramientos y pago de honorarios, de las personas auxiliares de la justicia".
+A TODOS LOS DESPACHOS JUDICIALES DEL PAIS
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión número 96-2021 del 9 de noviembre de 2021, artículo IX, a solicitud de la Dirección Ejecutiva, autorizó la adición a la circular número 186-2021 de la Secretaría General de la Corte, denominada "Reiteración de la circular N° 256-2014, denominada Lineamientos para el seguimiento de los nombramientos y pago de honorarios, de las personas auxiliares de la justicia", por lo que se les recuerda a todos los despachos judiciales que en los artículos del 16, 17 y 18 del Capítulo II del "Reglamento para regular la Función de las y los intérpretes, traductores, peritos y ejecutores en el Poder Judicial", se establece lo referente al pago de honorarios, considerando de manera particular las materias en las que se aplique el principio de gratuidad.
+Dichos artículos señalan de manera literal:
+"[.]
+Artículo 16.-Honorarios de intérpretes, traductoras y traductores.
+Los honorarios de los intérpretes, traductores y traductoras, se fijarán de acuerdo con el Arancel de Honorarios por Servicios Profesionales de Traductores e Intérpretes Oficiales del Ministerio de Relaciones Exteriores y Culto, excepto en caso de inopia, en que el Despacho resolverá el monto de los honorarios.
+Artículo 17.-Reglas para fijación de honorarios.
+Los honorarios de las peritas y los peritos se fijarán de conformidad con la tabla de honorarios que apruebe el Consejo Superior, y con base en las siguientes pautas:
+a) En principio es aplicable a toda clase de procesos, salvo ley especial que indique otro
+procedimiento.
+b) Si la pericia tiene que ver con objetos susceptibles de valor económico, para calcular los honorarios se aplicará la tabla correspondiente, tomando en consideración el valor del bien objeto de la pericia. En aquellos casos en que éste supere la cuantía del proceso, se tomará como parámetro para la fijación de honorarios el monto de la cuantía. En el caso de los procesos sucesorios, los honorarios siempre se calcularán de acuerdo con en el valor del bien valorado y no en la estimación del proceso.
+c) En cuanto a dictámenes no valorativos, sea aquellos que no aluden a una valoración de tipo económico de un bien, para calcular los honorarios se utilizará como referencia la cuantía del proceso.
+d) Si se tratara de asuntos de cuantía inestimable en los que la pericia carece de consideraciones económicas, o bien teniéndolas, no se pueden utilizar como parámetro, los honorarios podrán ser fijados de manera prudencial, tomando en cuenta la extensión y complejidad del estudio.
+e) La fijación de honorarios según las reglas anteriores, podrá ser aumentada o disminuida en un veinte por ciento, para lo cual se tomará en cuenta el criterio de la autoridad judicial respecto a la complejidad o simplicidad del peritaje. Esta variación del monto de los honorarios es de carácter excepcional y debe estar debidamente razonada por el despacho que así lo ordene.
+Artículo 18.-Materias en que se aplica el principio de gratuidad.
+Los honorarios y demás gastos de los intérpretes, traductores y traductoras, peritas y peritos, en aquellas materias en las que se aplique el principio de gratuidad, serán fijados por la Dirección Ejecutiva de conformidad con lo dispuesto en el artículo 88 inciso 3 de la Ley Orgánica del Poder Judicial.
+[.]".
+(Lo subrayado no corresponde al original).
+Dicho lo anterior y con el fin de aplicar apropiadamente lo que establece esta disposición normativa, deberán considerar que en el caso de honorarios de las personas peritas aplica el artículo 17 del "Reglamento para regular la Función de las y los intérpretes, traductores, peritos y ejecutores en el Poder Judicial"; donde la tabla de honorarios vigente a la fecha, corresponde a la Circular 1-2021 de la Dirección Ejecutiva.
+En el caso del servicio de interpretación y traducción, debe procederse según lo dispuesto en el artículo 16 del mismo Reglamento, donde el costo del servicio lo asumen las partes de acuerdo con el Arancel de Honorarios por Servicios Profesionales de Traductores e Intérpretes Oficiales del Ministerio de Relaciones Exteriores y Culto y de manera particular, para las materias en que se aplica el principio de gratuidad, donde el costo lo asume el Poder Judicial, se debe proceder conforme con lo indicado en el artículo 18 y para ello los montos son fijados en la tabla de honorarios vigente a la fecha, lo cual se comunicó en la Circular 1-2021 de la Dirección Ejecutiva."
+San José, 16 de noviembre de 2021.
