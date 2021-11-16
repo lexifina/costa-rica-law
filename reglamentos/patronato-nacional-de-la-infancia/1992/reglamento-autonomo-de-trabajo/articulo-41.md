@@ -1,2 +1,0 @@
-ARTICULO 41.
-Se exceptúan del registro de asistencia los siguientes servidores: Auditor Interno, personal superior de la Dirección Ejecutiva, Directores de Operaciones y Administrativo, Representantes Legales Provinciales, Jefes de Delegación, Jefes de Centros de Menores, Personal Medico, Jefes de División y de Departamento, funcionarios que hayan cumplido veinte años de laborar en la Institución y las tías sustitutas.

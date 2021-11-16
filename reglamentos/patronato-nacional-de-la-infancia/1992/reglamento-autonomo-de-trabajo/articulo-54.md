@@ -1,5 +1,0 @@
-ARTICULO 54.
-La Junta Directiva conocerá de las licencias sin goce de salario por mas de seis meses. Podrá conceder las hasta por:
-a) Un año, en casos calificados, tales como: asuntos graves de familia, enfermedad, convalecencia, realización de estudios -a nivel superior o técnico, en el país o en el exterior- que requieran dedicación completa del servidor. Este plazo podrá prorrogarse por un año más, a juicio de la Junta Directiva, dependiendo de las circunstancias de cada caso;
-b) Dos años, a instancia de un gobierno extranjero o de un organismo internacional o regional, o cuando se trate del conyuge de un becario que, por razones de familia deba acompañarlo en su viaje al exterior, y;
-c) Cuatro años, a instancia de instituciones o dependencias del Estado, o cuando se trate del conyuge de un funcionario nombrado en el servicio exterior de la República que, por razones de familia, deba compararlo, o en los casos de funcionarios nombrados para desempeñar cargos de confianza en cualquier institución del Estado.

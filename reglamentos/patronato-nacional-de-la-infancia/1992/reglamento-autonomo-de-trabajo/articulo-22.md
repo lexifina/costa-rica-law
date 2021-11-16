@@ -1,2 +1,0 @@
-ARTICULO 22.
-Las vacaciones son incompensables. No obstante, cuando se trate de labores que no sean pesadas, peligrosas ni insalubres y que exijan continuidad por la índole de las necesidades que satisfacen, el servidor podrá consentir en prestar sus servicios durante el periodo de vacaciones, siempre y cuando el Patronato se los remunere con el doble del salario que ordinario o extraordinariamente le pague.

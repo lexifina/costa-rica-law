@@ -1,3 +1,0 @@
-ARTICULO 14.
-El trabajo de los servidores que se encuentren gozando de sus vacaciones, así como el de aquellos que no asistan a sus labores por enfermedad o licencia , será recargado en el resto del personal, siempre que la función sea compatible con sus aptitudes, estado o condición, que no implique una disminución notable de jerarquía y que la ausencia no sea por un lapso mayor de quince días. En casos calificados se podrán hacer nombramientos interinos.
-El servidor sustituto tendrá derecho a recibir su remuneración de acuerdo con el salario base del servidor sustituido, siempre y cuando el trabajo corresponda a una categoría de labor superior y el sustituto reuna las condiciones y requisitos requeridos para el puesto.

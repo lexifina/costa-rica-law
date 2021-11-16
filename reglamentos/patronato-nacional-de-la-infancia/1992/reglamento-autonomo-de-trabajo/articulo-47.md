@@ -1,2 +1,0 @@
-ARTICULO 47.
-Se considerará abandono de trabajo la ausencia injustificada del servidor a sus labores, así como el haber dejado, dentro de la jornada correspondiente, la labor objeto de la relación de servicio. Para que se configure el abandono, no es necesario que el trabajador salga del lugar donde presta sus servicios, pues bastará con que de manera injustificada deje de realizar la labor que le ha sido encomendada.

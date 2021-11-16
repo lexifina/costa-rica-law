@@ -1,2 +1,0 @@
-Artículo 84.-En el caso que el afectado no adjunte prueba idónea sustentar para los hechos denunciados, el Órgano Administrativo Disciplinario prevendrá al denunciante su presentación en el plazo de los cinco días siguientes. En caso de no aportarse, o bien, de resultar impertinente recomendará en forma razonada el archivo del caso ante la Dirección Ejecutiva de la Institución.
-(Así adicionado mediante sesión N° 0078 del 02 de octubre de 1995).

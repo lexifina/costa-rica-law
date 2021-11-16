@@ -1,3 +1,0 @@
-ARTICULO 69.
-Según la gravedad de los hechos, y a efecto de que no se obstaculice la investigación sumaria y sus resultados, podrá la administración suspender provisionalmente al servidor.
-Esta suspensión podrá darse durante la investigación sumaria o en cualquier otro momento del procedimiento administrativo disciplinario. La suspensión ordenada procederá con goce de salario y no podrá exceder de dos meses.

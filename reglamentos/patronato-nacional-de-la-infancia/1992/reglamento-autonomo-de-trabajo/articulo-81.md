@@ -1,2 +1,0 @@
-Artículo 81.-La resolución del asunto corresponderá a la Dirección Ejecutiva quién deberá acordar y comunicar el acto final en el mes siguiente a la conclusión de la instrucción. En el evento de que la denuncia se dirija contra el Director Ejecutivo, Subdirector Ejecutivo o Auditor Interno, la resolución será acordada por la Junta Directiva de la Institución.
-(Así adicionado mediante sesión N° 0078 del 02 de octubre de 1995).
