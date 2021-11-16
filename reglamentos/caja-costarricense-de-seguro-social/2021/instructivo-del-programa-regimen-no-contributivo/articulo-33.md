@@ -1,0 +1,2 @@
+Artículo 33: De la remisión de expedientes a la Comisión Calificadora del Estado de Invalidez RNC
+La Sucursal o el Área Gestión Pensiones del Régimen No Contributivo deberá remitir a la Comisión Calificadora del Estado de Invalidez del RNC todos los casos de primera instancia evaluados en las Áreas de Salud (tengan recomendación médica o no). Solamente aquellos casos donde el paciente estuvo ausente a cita médica serán enviados directamente al área de gestión administrativa donde se tramita el caso, para que se proceda con la resolución correspondiente.

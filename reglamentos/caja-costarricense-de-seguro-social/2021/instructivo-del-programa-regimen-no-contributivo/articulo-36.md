@@ -1,0 +1,2 @@
+Artículo 36: Del Egreso del Expediente de la Dirección de Calificación De la Invalidez
+Una vez que la Comisión emita el criterio del estado de invalidez, el trámite será egresado por parte de funcionarios de la Dirección Calificación de la Invalidez en el Sistema Integrado de Pensiones, quedando los expedientes físicos a disposición para el retiro del mensajero de la respectiva Sucursal; y para trámites con expediente digital, se notificará a la Sucursal para que continúe el proceso.

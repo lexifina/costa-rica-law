@@ -8,4 +8,4 @@ La foliatura de los expedientes físicos deberá realizarse de acuerdo con las s
 El orden de los documentos en los expedientes digitales deberá realizarse de acuerdo con las siguientes consideraciones:
 - El orden lo brinda en forma automática el SIP, de acuerdo al momento en que se van subiendo los documentos.
 - En caso de que un funcionario detecte que algunos folios no corresponden al expediente deberá llenar el formulario del Anexo 12 y solicitarle al funcionario autorizado en cada dependencia el borrado de los documentos que no correspondan.
-- Cuando exista más de un expediente a nombre de una misma persona, deberá conformarse uno solo. Si se trata de un expediente físico y otro digital, deberán consolidarse ambos expedientes en forma digital.
+Cuando exista más de un expediente a nombre de una misma persona, deberá conformarse uno solo. Si se trata de un expediente físico y otro digital, deberán consolidarse ambos expedientes en forma digital.

@@ -1,0 +1,3 @@
+CAPÍTULO VII DE LA VALORACION MÉDICA Y DICTAMINACION DEL ESTADO DE INVALIDEZ DEL RNC
+Artículo 28: De la remisión del expediente al Área de Salud
+Una vez definida la situación socioeconómica del solicitante de pensión, descrito en el artículo 15 del presente instructivo, la Sucursal o el Área Gestión Pensiones RNC, para casos de primera instancia, remitirá el expediente al Área de Salud para la respectiva valoración médica. En trámites con expedientes digitales o escaneados, se debe enviar la documentación con la solicitud de valoración a los correos electrónicos definidos por cada Área de Salud y los trámites con expediente físico, se enviarán vía mensajería.

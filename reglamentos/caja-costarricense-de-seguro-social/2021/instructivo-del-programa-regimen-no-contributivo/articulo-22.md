@@ -2,8 +2,7 @@ Artículo 22.- Algunas consideraciones sobre el endosatario
 El endosatario será aquella persona distinta del pensionado a quien, en casos excepcionales, se depositará la pensión y se encargará de retirarla y administrarla en beneficio del pensionado. Se encuentra contemplado en el artículo 9 del Reglamento.
 Al respecto se hacen las siguientes observaciones:
 1. Para ser endosatario de un pensionado, la persona deberá comprobar que es su representante legal. No obstante:
-En caso de que el pensionado mayor de edad, con discapacidad mental, a quien haya sido materialmente imposible abrirle una cuenta bancaria a su nombre, o en casos de pensionados que se encuentren hospitalizados temporalmente, que no tengan representante
-legal designado, podrá ser nombrado como endosatario la madre o padre que integre grupo familiar con el pensionado y que firmó la solicitud de pensión.
+En caso de que el pensionado mayor de edad, con discapacidad mental, a quien haya sido materialmente imposible abrirle una cuenta bancaria a su nombre, o en casos de pensionados que se encuentren hospitalizados temporalmente, que no tengan representante legal designado, podrá ser nombrado como endosatario la madre o padre que integre grupo familiar con el pensionado y que firmó la solicitud de pensión o, en su ausencia, la persona que determine Trabajo Social.
 Por su parte, se tiene conocimiento de que los solicitantes/pensionados por la tipología de indigencia, muy difícilmente tendrán un representante legal nombrado. En razón de ello, en estos casos, el endosatario será aquella persona que recomiende Trabajo Social.
 2. Las personas que se encuentren en las situaciones descritas en los incisos a, b, c y d del artículo 21 de este Instructivo serán designadas endosatarios.
 3. Ningún funcionario de la Unidad tramitadora de pensiones, podrá tener beneficios endosados a su nombre, salvo aquellos casos donde éste sea su representante legal.
