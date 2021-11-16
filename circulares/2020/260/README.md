@@ -13,3 +13,4 @@ Resoluciones dictadas en los juzgados que atienden materia familiar, que llevan 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-17 | la propia norma |
+| 2 | 2021-11-16 | Circular 244 (2021-11-16) |
