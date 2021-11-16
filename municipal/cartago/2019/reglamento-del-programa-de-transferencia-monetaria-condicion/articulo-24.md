@@ -1,1 +1,0 @@
-Artículo 24° Los mecanismos de pago de las transferencias de los recursos, a los beneficiarios se realizarán por medio de depósitos electrónicos, a la cuenta debidamente acreditada y aportada por cada beneficiario o por su encargado.

@@ -1,1 +1,0 @@
-Artículo 30° Criterio de la CPAS, en casos muy calificados se podrá recibir alguno de los documentos fuera del plazo establecido para la presentación, siempre y cuando no se exceda de la fecha con que cuenta la Comisión para rendir el dictamen indicado en este Reglamento.

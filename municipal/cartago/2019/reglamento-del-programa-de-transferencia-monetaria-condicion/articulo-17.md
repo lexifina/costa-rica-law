@@ -1,1 +1,0 @@
-Artículo 17° Las hijas e hijos de las personas funcionarias municipales podrán optar por ser beneficiarios de las transferencias monetarias condicionadas, siempre y cuando cumplan con todos los requisitos establecidos en este Reglamento y en el Código Municipal.

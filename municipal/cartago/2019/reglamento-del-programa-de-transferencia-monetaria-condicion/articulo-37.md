@@ -1,1 +1,0 @@
-Artículo 37° La Secretaría Municipal será la encargada de administrar el correspondiente expediente de solicitudes y transferencias aprobadas, de acuerdo con las prácticas de control administrativo que se apliquen institucionalmente.
