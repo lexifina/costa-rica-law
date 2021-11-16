@@ -1,0 +1,1 @@
+Artículo 18.-Del plazo para analizar denuncias: Cuando la denuncia se presente la auditoría interna tendrá un plazo de 20 días hábiles contados a partir del día siguiente de recibida la denuncia para definir su admisibilidad y respectivo trámite.

@@ -1,0 +1,30 @@
+INSTITUTO COSTARRICENSE DEL DEPORTE
+Y LA RECREACIÓN
+CONCEJO NACIONAL
+El Consejo Nacional del Deporte y la Recreación, mediante el Acuerdo veinte uno, de la Sesión Ordinaria 1200-2021, celebrada el 23 de septiembre de 2021 aprobó los "Lineamientos para el análisis de denuncias de presuntos hechos irregulares presentadas a la Auditoría Interna del ICODER".
+LINEAMIENTOS PARA EL ANÁLISIS DE DENUNCIAS DE
+PRESUNTOS HECHOS IRREGULARES PRESENTADAS
+A LA AUDITORÍA INTERNA DEL INSTITUTO
+COSTARRICENSE DEL DEPORTE
+Y LA RECREACIÓN
+Considerando:
+I.-Que producto de la actualización normativa aplicable se requiere estandarizar el proceso de análisis e investigación de las denuncias de presuntos Hechos Irregulares, que se presentan a la Auditoría Interna del Instituto Costarricense del Deporte y la Recreación (ICODER), acorde con lo establecido en el Ordenamiento Jurídico Costarricense concretamente la Ley General de Control Interno N° 8292, la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N° 8422 y su reglamento, así como el marco general y la normativa técnica emitida por la Contraloría General de la República para las Auditorías Internas del Sector Público concretamente la resolución N° R-DC-102-2019 de las trece horas del catorce de octubre del dos mil diecinueve, denominada Lineamientos generales para el análisis de presuntos Hechos Irregulares.1
+1En su ítem 1.1 Ámbito de Aplicación señala que ".son aplicables a las Auditorías Internas del Sector Público, en el ejercicio de las competencias conferidas por ley para el análisis de presuntos hechos irregulares que puedan ser generadores de responsabilidad, a cargo de los sujetos incluidos en su ámbito de acción. Estos Lineamientos constituyen un marco básico para que las Auditorías Internas lleven a cabo sus labores de investigación.
+La competencia investigadora de las Auditorías Internas no puede ser delegada en terceros, sin que ello limite la posibilidad de que durante el desarrollo de una investigación se puedan contratar servicios de asesoría en temas específicos requeridos para el caso concreto.
+II.-Que el artículo N° 6, de la Ley General de Control Interno, N° 8292 y el articulo N° 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N° 8422, establecen que las auditorías internas deberán guardar la confidencialidad respecto de la identidad de los ciudadanos, así como de la información, los documentos y otras evidencias que se recopilen durante la formulación del informe.
+III.-Que en el Ordenamiento Jurídico Costarricense con base en el Principio constitucional de Seguridad Jurídica requiere establecer y comunicar los requisitos indispensables que debe cumplir una persona para interponer una denuncia ante la Auditoría Interna del Instituto Costarricense del Deporte y la Recreación (ICODER) sobre presuntos hechos irregulares referentes al presunto incumplimiento del bloque de legalidad que regula la actividad ICODER.
+IV.-Que la Auditoría Interna del Instituto Costarricense del Deporte y la Recreación (ICODER) para valorar los presuntos hechos irregulares y determinar si procede o no la realización de un producto final deberá realizar una investigación preliminar bajo el estricto cumplimiento del Principio de Legalidad, Principio de celeridad, Principio de independencia, Principio de Objetividad y Principio de Oficiosidad.
+V.-Que la Auditoría Interna del Instituto Costarricense del Deporte y la Recreación (ICODER) debe realizar el análisis de los presuntos hechos irregulares de una forma razonada, mediante un procedimiento sistemático y objetivo orientado a determinar la existencia o no de elementos de juicio necesarios para la eventual apertura de un procedimiento administrativo y/o judicial, donde se deberán considerar las presuntas responsabilidades administrativas, gremiales, civiles o penales, esta investigación corresponde a una actividad de la Auditoría Interna del Instituto Costarricense del Deporte y la Recreación (ICODER) distinta del resto de procedimientos de auditoria definidos como lo son la auditoría financiera, auditoria operativa y las auditorias de carácter especial.
+VI.-Que el objetivo del presente lineamiento es que la Auditoría Interna del Instituto Costarricense del Deporte y la Recreación (ICODER) realice investigaciones preliminares conforme al bloque de legalidad, en claro respeto de los principios generales del derecho, orientada a aportar insumos y elementos probatorios contundentes para determinar por parte de la autoridad competente la verdad real de los hechos, esto como parte del compromiso en la lucha contra la corrupción, y así favorecer la transparencia y rendición de cuentas dentro del ICODER. Por tanto,
+RESUELVE:
+Artículo 1º-Aprobar, emitir y promulgar los siguientes "Lineamientos para el análisis de denuncias de presuntos hechos irregulares presentadas a la Auditoría Interna del Instituto Costarricense del Deporte y la Recreación (ICODER)".
+Artículo 2º-Derogar las "Reglamento de Denuncias presentadas ante la Auditoría Interna del Instituto Costarricense del Deporte y la Recreación", publicadas en el Diario Oficial La Gaceta N° 17 del 24 de enero de 2014.
+Artículo 3º-Los presentes lineamientos entrarán a regir a partir de su publicación en el Diario Oficial La Gaceta y estarán a disposición en el sitio Web del Instituto Costarricense del Deporte y la Recreación (ICODER).
+LINEAMIENTOS PARA EL ANÁLISIS DE DENUNCIAS DE
+PRESUNTOS HECHOS IRREGULARES PRESENTADAS
+A LA AUDITORÍA INTERNA DEL INSTITUTO
+COSTARRICENSE DEL DEPORTE
+Y LA RECREACIÓN (ICODER)
+CAPÍTULO I
+Aspectos Generales
+Artículo 1º-Objetivo: El objetivo de los presentes lineamientos es, establecer una cadena concatenada de instrucciones generales conforme al ordenamiento jurídico, para la correcta ejecución de las Investigaciones Preliminares, producto del análisis de las denuncias de presuntos hechos Irregulares presentadas a la Auditoría Interna del Instituto Costarricense del Deporte y la Recreación (ICODER).

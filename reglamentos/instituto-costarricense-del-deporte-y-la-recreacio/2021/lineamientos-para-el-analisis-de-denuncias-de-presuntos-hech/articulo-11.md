@@ -1,0 +1,2 @@
+Artículo 11.-Archivo sin trámite.
+La Auditoría Interna realizará un análisis de la gestión que le ha sido puesta en conocimiento, y cuando la situación descrita no corresponda a una denuncia, se encuentre fuera del ámbito de competencias en investigación que ostenta la Auditoría Interna, o sea manifiestamente improcedente podrá proceder con su archivo sin mayor trámite.
