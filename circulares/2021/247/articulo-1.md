@@ -1,0 +1,14 @@
+CIRCULAR Nº 247-2021
+ASUNTO: Obligación de mantener información actualizada en los sistemas y depurar datos pendientes sobre cuantía en procesos Civiles y Cobratorios
+A LOS DESPACHOS JUDICIALES DEL PAÍS
+QUE CONOCEN MATERIA CIVIL y COBRO
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión número 96-2021 celebrada el 9 de noviembre de 2021, artículo XL, acogió la propuesta de circular de la Comisión de la Jurisdicción Civil; en cuanto a la obligatoriedad de completar la información referente a la cuantía en materia Civil y Cobro, tanto el tipo de cuantía como el rango. Asimismo, de actualizar los datos incompletos desde el primero de enero 2020 a la actualidad, por lo que se autorizó la divulgación de la circular que dice:
+1. Reiterar a los despachos con competencia en materia Civil y Cobro, incluidos Juzgados, Tribunales Colegiados de Primera Instancia y la Sala Primera que tienen la obligación de completar el dato del tipo de cuantía de los expedientes, y en caso de ser estimable deben indicar el rango en millones de esa estimación.
+2. Reiterar a los despachos con competencia en materia Civil y Cobro, incluidos Juzgados, Tribunales Colegiados de Primera Instancia y la Sala Primera que en tipo de cuantía solo pueden utilizar las opciones "estimable de menor", "estimable de mayor" o "inestimable". Es decir, no deben utilizar la opción "no aplica".
+3. Solicitar a los despachos con competencia en materia Civil y Cobro, incluidos Juzgados, Tribunales Colegiados de Primera Instancia y la Sala Primera que deberán actualizar los datos incompletos desde el primero de enero 2020 a la actualidad. En donde por error indicaron que "no aplica" cuantía o indicaron el tipo de cuantía, pero dejaron "en blanco" el rango por lo que el sistema automáticamente cita "expediente cuantía cero" deben corregir la información e incluir la estimación. El Centro de Apoyo, Coordinación y Mejoramiento de la Función Jurisdiccional dará seguimiento a las oficinas para que concluyan esta tarea de actualización en el plazo máximo de 15 días naturales a partir de la comunicación de esta circular por parte de la Secretaría General de la Corte.
+4. El reporte de cuantía está disponible en el sistema SIGMA, carpeta 8. Informe denominado "Consolidado de cuantías".
+[imagen]
+5. En adelante, será obligación de las oficinas competentes en materia Civil y Cobro generar el reporte de "Consolidado de cuantías" mensualmente y le corresponde a la persona juzgadora coordinadora de la oficina velar porque se realice cualquier corrección necesaria dentro de los primeros 5 días del mes como cualquier otra inconsistencia. El tener esta información actualizada es responsabilidad de las oficinas y fundamental para la toma de decisiones.
+Publíquese una sola vez en el Boletín Judicial.
+San José, 16 de noviembre de 2021.
