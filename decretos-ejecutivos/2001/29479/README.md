@@ -15,3 +15,4 @@ Reglamento de Adquisición de Obras de Arte por parte de las Instituciones Estat
 | --- | --- | --- |
 | 1 | 2001-05-17 | la propia norma |
 | 2 | 2015-10-28 | SINALEVI (sin norma nombrada) |
+| 3 | 2021-11-17 | Decreto Ejecutivo 43420 (2021-11-17) |
