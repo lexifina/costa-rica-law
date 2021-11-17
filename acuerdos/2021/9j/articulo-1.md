@@ -2,29 +2,24 @@ ENTE COSTARRICENSE DE ACREDITACIÓN
 2021-009.-El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad da a conocer la modificación del siguiente documento: ECA-MC-C14 Criterios para organismos de certificación de inocuidad alimentaria, pasa de V01 a V02, no tiene transitorio. ECA-MC-C24 Criterios para la acreditación de organismos de inspección de mercado, version 01, no tiene transitorio. ECA-MC-P07 Procedimiento de quejas, sugerencias y observaciones, pasa de versión 08 a versión 09, no tiene transitorio. ECA-MC-P13 Ejecución de la evaluación, pasa de versión 13 a versión 14, no tiene transitorio. ECA-MC-P23 Conformación y sesión de los órganos colegiados, pasa de versión 07 a versión 08, no tiene transitorio. ECA-MP-P06 Manual de procedimientos para la evaluación y acreditación: Evaluación, pasa de versión 05 a versión 06, no tiene transitorio. ECA-MP-P07 Manual de procedimientos para la evaluación y acreditación: Actividades posteriores a la evaluación, pasa de versión 07 a versión 08, no tiene transitorio. ECA-MP-P08 Manual de procedimientos para la evaluación y acreditación: Toma de decisión, pasa de versión 08 a versión 09, no tiene transitorio. ECA-MP-P08-I01 Instructivo de Grupos de Trabajo, pasa de versión 02 a versión 03, no tiene transitorio. ECA-MC-P21 Procedimiento de Gestión del CEE, pasa de versión 14 a versión 15, no tiene transitorio. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs. php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 horas a 16 horas.
 San José, 2021 julio 14.
 (Nota de Sinalevi: EL presente procedimiento . ECA-MC-P21 Procedimiento de Gestión del CEE se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
-[imagen]
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N 233 del 3 de diciembre del 2021 donde se actualiza la versión 15 existente y se publica la versión 16, y se trascribe a continuación :)
+[imagen] [imagen]
 TABLA DE CONTENIDO
-1 OBJETIVO ........................................................................................................................................ 1
-2. ALCANCE ........................................................................................................................................ 1
-3. DEFINICIONES ................................................................................................................................ 1
-4. PROCESO GESTIÓN PARA EVALUADORES .............................................................................. 4
-5. PROCESO DE EVALUACIÓN INICIAL PARA AUTORIZACIÓN Y CAMBIOS DE CATEGORÍA 6
-6. PROCESO DE INCORPORACIÓN .................................................................................................. 7
-7. IDENTIFICACIÓN DE NECESIDADES DE FORMACIÓN Y SEGUIMIENTO CONTINUO DE LA
-COMPETENCIA. ...................................................................................................................................... 8
-8. PROCESO DE TESTIFICACIÓN A EVALUADORES LÍDERES Y EVALUADORES .................... 9
-9. PROCESO GESTIÓN PARA EXPERTOS TÉCNICOS. ................................................................ 11
-10. PROCESO DE PARTICIPACIÓN Y CONTRATACIÓN DE INTEGRANTES DEL CEE EN
-EVALUACIONES ECA. ......................................................................................................................... 13
-11. PROCESO PARA LA INACTIVACIÓN O EXCLUSIÓN DE EVALUADORES / EVALUADORES
-LIDERES DEL CEE. .............................................................................................................................. 13
-12. ANEXOS ......................................................................................................................................... 15
-12.1 Anexo 1 lineamientos de evaluación técnica ............................................................................ 15
-12.2 Anexo 2 Perfil de entrevistador y testificador ........................................................................... 16
-12.3 Anexo 3 lineamientos generales para la aplicación de examen y entrevistas ...................... 17
-12.4 Anexo 4 lineamientos de entrevista por competencias. .......................................................... 18
-13 TRANSITORIO ............................................................................................................................... 18
-14 IDENTIFICACIÓN DE CAMBIOS .................................................................................................. 18
+1. OBJETIVO.............................................................................................. 1
+2. ALCANCE............................................................................................... 1
+3. DEFINICIONES....................................................................................... 1
+4. PROCESO GESTIÓN PARA EVALUADORES.......................................... 3
+5. PROCESO DE EVALUACIÓN INICIAL PARA AUTORIZACIÓN Y CAMBIOS DE CATEGORÍA
+6
+6. PROCESO DE INCORPORACIÓN........................................................... 7
+7. IDENTIFICACIÓN DE NECESIDADES DE FORMACIÓN Y SEGUIMIENTO CONTINUO DE LA COMPETENCIA....................... 8
+8. PROCESO DE TESTIFICACIÓN A EVALUADORES LÍDERES Y EVALUADORES....................................................................................... 8
+9. PROCESO GESTIÓN PARA EXPERTOS TÉCNICOS............................. 10
+10. PROCESO DE PARTICIPACIÓN Y CONTRATACIÓN DE INTEGRANTES DEL CEE EN EVALUACIONES ECA................ 12
+11. PROCESO PARA LA INACTIVACIÓN O EXCLUSIÓN DE EVALUADORES / INTEGRANTES DEL CEE............................... 13
+12. ANEXOS................................................................................................ 14
+13 TRANSITORIO...................................................................................... 18
+14 IDENTIFICACIÓN DE CAMBIOS............................................................ 18
 1. OBJETIVO
 Establecer los lineamientos para realizar los procesos de selección, incorporación, evaluación del desempeño, ampliación de área de competencia y cambio de categoría al CEE del ECA.
 2. ALCANCE
@@ -52,8 +47,7 @@ Aplica a los postulantes e integrantes del CEE del ECA y los evaluadores de orga
 - Recurso. Petición de cualquier postulante o integrante del CEE para que se impugne la legalidad y/o la oportunidad de cualquier resolución adversa dictada por la Comisión de Acreditación del ECA a través del recurso de revocatoria y/o apelación.
 - Integrante inactivo. Estado mediante el cual un integrante del CEE no realiza evaluaciones, por decisión propia, en un periodo máximo de un año o por decisión establecida por la Comisión de Acreditación; cuando el integrante del CEE no evidencia: actualización, mantenimiento de su competencia, o por resultados insatisfactorios de la valoración del desempeño.
 - Integrante activo. Estado mediante el cual un integrante del CEE puede realizar evaluaciones cuando sea requerido evidencia actualización y mantenimiento de su competencia.
-4. PROCESO GESTIÓN PARA EVALUADORES
-Consideraciones generales
+4. PROCESO GESTIÓN PARA EVALUADORES Consideraciones generales
 4.1 Este procedimiento debe usarse de forma conjunta con el ECA-MC-MA-P23 Identificación y evaluación de las competencias.
 4.2 El Proceso de selección e incorporación de los evaluadores se realiza de manera permanente, atendiendo las necesidades de las Secretarías de Acreditación para dar respuesta a las necesidades de los OEC.
 4.3 El integrante del CEE, se incorpora al Directorio del CEE por un periodo de tres años, cuando su categoría sea evaluador o evaluador líder. Posterior a este periodo el integrante debe realizar una nueva incorporación al Directorio.
@@ -69,9 +63,11 @@ Consideraciones generales
 4.9.4 La Gestoría de Calidad otorga la admisibilidad de la postulación, basada en el cumplimiento de requisitos para la categoría que postula, definidos en este documento.
 4.9.5 La Gestoría de Calidad convoca al postulante a realizar las evaluaciones correspondientes al proceso de selección al CEE, mediante correo electrónico.
 4.9.6 La evaluación se describe en el anexo 1 de este procedimiento y comprende las siguientes etapas:
-? Etapa 1: Examen de criterios ECA y procedimientos ECA de acuerdo al esquema de acreditación.
-? Etapa 2: Entrevista técnica: Una vez aprobada la etapa 1, se procede con la entrevista técnica que consiste en una valoración de los conocimientos de la norma y los procedimientos ECA, realizada por un evaluador, con los conocimientos y habilidades requeridos según lo establecido en el Anexo 2.
-? Etapa 3: Entrevista por competencias: Esta evaluación se realiza al postulante a evaluador para calificar comportamientos, aptitudes y conocimientos adquiridos mediante la aplicación de una entrevista por un profesional de Recursos Humanos de acuerdo a los requisitos establecidos en la norma INTE-ISO/IEC 17011 y según los requerimientos necesarios para formar parte del CEE.
+- Etapa 1: Examen de criterios ECA y procedimientos ECA de acuerdo al esquema de acreditación.
+- Etapa 2: Entrevista técnica: Una vez aprobada la etapa 1, se procede con la entrevista técnica que consiste en una valoración de los conocimientos de la
+norma y los procedimientos ECA, realizada por un evaluador, con los conocimientos y habilidades requeridos según lo establecido en el Anexo 2.
+- Etapa 3: Entrevista por competencias: Esta evaluación se realiza al postulante a evaluador para calificar comportamientos, aptitudes y conocimientos adquiridos
+mediante la aplicación de una entrevista por un profesional de Recursos Humanos de acuerdo a los requisitos establecidos en la norma INTE-ISO/IEC 17011 y según los requerimientos necesarios para formar parte del CEE.
 4.9.7 Las evaluaciones se aplican de manera presencial. En el caso de que el postulante a evaluador no pueda realizarlas de esta forma Gestoría de Calidad valora la situación y procede a hacer efectivo la aplicación del examen de criterios mediante herramientas alternativas como video conferencia.
 4.9.8 Para la aplicación de las pruebas y entrevistas se deben seguir los lineamientos generales para la aplicación de examen y entrevistas en el ECA contenidos en el Anexo 3.
 4.9.9 El postulante que no se presenta a la convocatoria alguna de las entrevistas, puede solicitar por única vez una nueva fecha; la misma quedará sujeta a disponibilidad del entrevistador.
@@ -89,15 +85,16 @@ Consideraciones generales
 5.8 En el caso de la recomendación de retiro del CEE, la Gestoría de Calidad prepara la documentación correspondiente para ser dirigida a la Comisión de Acreditación.
 5.9 Para un proceso de ampliación de área de competencia en otro esquema, el postulante debe realizar lo indicado en la sección 4 de este procedimiento.
 5.10 el En caso de esquemas de acreditación que contienen normas en niveles 4 y 5, el evaluador que quiera ampliar en un subalcance, debe estar integrado en al menos uno de los subalcances que ECA ofrece, es decir, Si el postulante es evaluador de sistemas de gestión en el subalcance calidad, puede optar a la ampliación del subalcance de ambiente, para ello se requiere que lo siguiente:
-5.10.1 El postulante debe llenar ECA-MC-P21-F05 en el anexo que desea ampliar 5.10.2 Gestoría de Calidad convoca a grupo de trabajo que puede estar integrado por alguien de la Secretaría o de I+D+i para el análisis de la información presentada por el postulante.
+5.10.1 El postulante debe llenar ECA-MC-P21-F05 en el anexo que desea ampliar
+5.10.2 Gestoría de Calidad convoca a grupo de trabajo que puede estar integrado por alguien de la Secretaría o de I+D+i para el análisis de la información presentada por el postulante.
 5.10.3 En caso de aprobación se actualiza el ECA-MC-P21-F06 directorio del CEE y notifica a la Secretaría respectiva.
-5.11 Todo integrante del CEE incorporado como evaluador en formación, para continuar con su proceso de integración debe contar con el registro ECA-MC-P21-F22 Términos de referencia firmado.
+5.11 Todo integrante del CEE incorporado como evaluador en formación, para continuar con su proceso de integración debe contar con el documento términos de referencia firmado.
 5.12 En el caso de los integrantes del CEE incorporados previo a la entrada en vigencia de este procedimiento y que se encuentren activos; para garantizar el cumplimiento de los requisitos de competencia establecidos en el ECA-MP-MA-P23-F01 y con el fin de mantener su autorización, se utilizará lo siguiente:
-5.11.1 CV actualizado.
-5.11.2 Resultados de últimas evaluaciones del desempeño por parte del equipo evaluador con quien participó en procesos de evaluación.
-5.11.3 Resultados de últimas evaluaciones del desempeño realizadas por los clientes que fueron evaluados.
-5.11.4 Resultados de las pruebas DISC aplicadas.
-5.11.5 Otros documentos que pueda ser aplicables como por ejemplo resumen ejecutivo, realimentaciones por las Secretarías de Acreditación, realimentaciones de Comités Asesores o Grupos de Trabajo, valoraciones de expertos técnicos, entre otros.
+5.12.1 CV actualizado.
+5.12.2 Resultados de últimas evaluaciones del desempeño por parte del equipo evaluador con quien participó en procesos de evaluación.
+5.12.3 Resultados de últimas evaluaciones del desempeño realizadas por los clientes que fueron evaluados.
+5.12.4 Resultados de las pruebas DISC aplicadas.
+5.12.5 Otros documentos que pueda ser aplicables como por ejemplo resumen ejecutivo, realimentaciones por las Secretarías de Acreditación, realimentaciones de Comités Asesores o Grupos de Trabajo, valoraciones de expertos técnicos, entre otros.
 6. PROCESO DE INCORPORACIÓN
 6.1 La Gestoría de Calidad presenta al grupo de trabajo respectivo el expediente del postulante al CEE incluyendo el ECA-MC-P21-F05 Requerimientos de calificación del CEE, máximo 10 hábiles después de culminado el proceso de selección y cuando se cuente con el resultado de la participación de su proceso de evaluación, para su revisión, análisis y emitir la valoración respectiva de su evaluación inicial.
 6.2 La Gestoría de Calidad presenta a la Comisión de Acreditación el resultado de este proceso de postulación, documentado en el ECA-MC-P21-F05 con la valoración inicial del postulante.
@@ -115,34 +112,43 @@ Consideraciones generales
 7.5 El Evaluador tiene un plazo máximo de un año para completar el Plan de cierre de brechas enviado, este plazo inicia una vez aprobado el plan por la Gestoría de Calidad.
 8. PROCESO DE TESTIFICACIÓN A EVALUADORES LÍDERES Y EVALUADORES
 8.1 La testificación se realiza en los siguientes casos:
-? Para verificar la eficacia de acciones para el cierre de brechas.
-? Para la evaluación inicial, autorización o cambio de categoría.
-? Como cumplimiento del requisito normativo definido en la norma INTE-ISO/IEC 17011 en su versión vigente evaluación de la conformidad - Requisitos generales para los organismos de acreditación que realizan la acreditación de organismos de evaluación de la conformidad, por el cual los evaluadores y evaluadores líderes deben ser testificados al menos una vez, en un periodo de tres años.
-? Por evaluaciones de IAAC.
+- Para verificar la eficacia de acciones para el cierre de brechas.
+- Para la evaluación inicial, autorización o cambio de categoría.
+- Como cumplimiento del requisito normativo definido en la norma INTE-ISO/IEC
+17011 en su versión vigente evaluación de la conformidad - Requisitos generales
+para los organismos de acreditación que realizan la acreditación de organismos de evaluación de la conformidad, por el cual los evaluadores y evaluadores líderes deben ser testificados al menos una vez, en un periodo de tres años.
+- Por evaluaciones de IAAC.
 Nota. La testificación de un evaluador por cambio de categoría o por evaluación de IAAC, es válida como cumplimiento del requisito normativo, siempre que los resultados sean satisfactorios.
 8.2 Proceso de testificación a evaluadores líderes y evaluadores
 8.2.1 La Gestoría de Calidad es la encargada del cumplimiento y seguimiento del programa de testificaciones a evaluadores activos; debe notificar a las SA respectivas cuáles evaluadores corresponden ser testificados durante el año.
 8.2.2 Es obligación de la Secretaría de Acreditación respectiva, informar a la GC la programación de las testificaciones y cambios que ocurran en las mismas, indicando lo siguiente:
-? Fecha de testificación.
-? Nombre de OEC dónde se testifica.
-8.2.3 La testificación es realizada por un Testificador ECA, quien es designado por la el Grupo de Trabajo del CEE, para participar en un proceso de evaluación específico.
-Pueden funcionar como testificadores ECA, los evaluadores que cumplan los requisitos descritos en el Anexo 02 de este procedimiento.
+- Fecha de testificación.
+- Nombre de OEC dónde se testifica.
+8.2.3 La testificación es realizada por un Testificador ECA, quien es designado por la el
+Grupo de Trabajo del CEE, para participar en un proceso de evaluación específico. Pueden funcionar como testificadores ECA, los evaluadores que cumplan los requisitos descritos en el Anexo 02 de este procedimiento.
 8.2.4 Cuando la testificación se da en el periodo de cada 3 años, el testificador ECA en la medida de lo posible, no debe participar en el proceso de evaluación como parte del equipo de evaluación, solamente realiza la función de testificación. En caso de que deba participar, debe ser justificado por la SA respectiva ante Gestoría de Calidad.
 8.2.5 El evaluador que está siendo testificado debe participar en la evaluación en la categoría que está optando para el cambio u autorización.
 8.2.6 Durante la evaluación, el Testificador ECA evalúa el desempeño del testificado mediante el formulario ECA-MC-P21-F13 Testificación a evaluadores y evaluadores líderes indicando claramente el alcance y subalcances (si aplica) que está siendo evaluado.
 8.2.7 Las testificaciones a evaluadores y evaluadores líderes in situ comprenden las siguientes actividades:
-? Coordinación previa a la evaluación, reunión de apertura y cierre; solo aplica para evaluador líder.
-? Revisión de informes documentales, planes de evaluación e informes finales de evaluaciones anteriores.
-? Testificación de al menos 1/3 del total de las horas de desarrollo de la evaluación para el evaluador o evaluador líder testificado.
-? Comunicación asertiva con el equipo evaluador.
-? Testificación de la reunión del grupo evaluador para la preparación del informe final.
+- Coordinación previa a la evaluación, reunión de apertura y cierre; solo aplica para
+evaluador líder.
+- Revisión de informes documentales, planes de evaluación e informes finales de
+evaluaciones anteriores.
+- Testificación de al menos 1/3 del total de las horas de desarrollo de la evaluación
+para el evaluador o evaluador líder testificado.
+- Comunicación asertiva con el equipo evaluador.
+- Testificación de la reunión del grupo evaluador para la preparación del informe
+final.
 8.2.8 Diez días hábiles después de finalizada la evaluación in situ, el Testificador ECA entrega a la Gestoría de Calidad el informe ECA-MC-P21-F13 Testificación a evaluadores y evaluadores líderes.
 8.2.9 Se considera una testificación satisfactoria cuando el criterio del testificador así lo indique.
-8.2.10 El informe de testificación de la evaluación de IAAC sustituye el formulario ECA-MCP21- F13 Testificación a evaluadores y evaluadores líderes.
+8.2.10 El informe de testificación de la evaluación de IAAC sustituye el formulario ECA-MC- P21-F13 Testificación a evaluadores y evaluadores líderes.
 8.2.11 En caso de fuerza mayor o por situación de incapacidad médica no se pueda realizar la testificación en el tiempo programado; la Gestoría de Calidad debe garantizar el seguimiento del desempeño de este evaluador por lo que debe:
-? Evidenciar la justificación de esta situación en el expediente del integrante del CEE.
-? Informar al integrante del CEE que no puede realizar evaluaciones, hasta que sea testificado y tenga un resultado satisfactorio.
-? Programar y realizar la testificación en cuanto le sea posible, e informar a los interesados.
+- Evidenciar la justificación de esta situación en el expediente del integrante del
+CEE.
+- Informar al integrante del CEE que no puede realizar evaluaciones, hasta que
+sea testificado y tenga un resultado satisfactorio.
+- Programar y realizar la testificación en cuanto le sea posible, e informar a los
+interesados.
 8.2.12 Los evaluadores que se encuentren calificados en más de un área de competencia, deben contar con un proceso de testificación completo para al menos un área de competencia; la Secretaría de Acreditación respectiva puede testificar su desempeño en las otras áreas, de la siguiente manera:
 1. Realizando simulaciones de procesos de evaluación específico para una norma de competencia donde se evalué el conocimiento en la aplicación de la evaluación de la norma indicada.
 2. Entrevistas con casos reales de cómo se procede a evaluar a un OEC en específico.
@@ -170,13 +176,13 @@ El interesado en integrarse como experto técnico debe enviar por correo electr�
 9.3.2 La valoración de competencia se realiza cuando el experto técnico participa en la primera evaluación y cada 3 años, según lo indica la norma INTE-ISO/IEC 17011, siempre que mantenga su competencia y buen desempeño en los procesos de evaluación.
 Nota: Para el caso de los expertos que dejan de participar en evaluaciones en un periodo de 3 años o más, se debe valorar el desempeño en su primera participación en un proceso de evaluación, posterior a su reactivación.
 9.3.3 La valoración es realizada por un integrante del equipo evaluador, quien acompaña al ET durante la evaluación.
-9.3.4 Durante la evaluación, la valoración debe ser registrada en el formulario ECA-MCP21- F14 Valoración de competencia técnica a expertos, junto con las notas digitales elaboradas por el Experto técnico y el evaluador responsable de realizar esta valoración. Cinco días hábiles después de finalizada la evaluación in situ, se debe hacer entrega del formulario y las notas digitales a la Gestoría de Calidad.
+9.3.4 Durante la evaluación, la valoración debe ser registrada en el formulario ECA-MC- P21-F14 Valoración de competencia técnica a expertos, junto con las notas digitales elaboradas por el Experto técnico y el evaluador responsable de realizar esta valoración. Cinco días hábiles después de finalizada la evaluación in situ, se debe hacer entrega del formulario y las notas digitales a la Gestoría de Calidad.
 9.3.5 Se considera una valoración satisfactoria cuando los criterios del evaluador así lo indiquen. Cuando se obtiene un resultado no satisfactorio en el proceso de valoración de competencia técnica de los expertos técnicos, se puede proceder a realimentar y sensibilizar o bien a dar la indicación de que este experto no participará más en procesos de evaluación del ECA.
 10. PROCESO DE PARTICIPACIÓN Y CONTRATACIÓN DE INTEGRANTES DEL CEE EN EVALUACIONES ECA.
-10.1 Una vez integrados en el directorio del CEE respectivo, todo integrante del CEE debe con un contrato para la prestación de servicios de expertos técnicos y/o evaluadores / o poseer un convenio con el ECA y la institución que labora los cuales se referencian en alguno de los siguientes formularios: según le aplique. ECA-MC-P21-F09, ECAMC-P21-F10, ECA-MC-P21-F19, ECA-MC-P21-F20 o ECA-MC-P21-F21. Esta documentación debe estar archivada en el expediente correspondiente.
+10.1 Una vez integrados en el directorio del CEE respectivo, todo integrante del CEE debe con un contrato para la prestación de servicios de expertos técnicos y/o evaluadores o poseer un convenio con el ECA o los respectivos términos de referencia, tal como se establece en el procedimiento ECA-MC-P30 Gestión de proveeduría y compras ECA. Esta documentación debe estar archivada en el expediente correspondiente.
 10.2 La participación en los procesos de evaluación de cualquier integrante del CEE está sujeto a las necesidades y requerimientos del ECA la firma del contrato o existencia del convenio interinstitucional no implica la obligación del ECA de contratar a una persona específica para participar de un proceso de evaluación.
 10.3 El proceso de contratación de los integrantes del CEE se realiza tomando en consideración lineamientos de compras y adquisición de servicios con los que cuenta el ECA.
-11. PROCESO PARA LA INACTIVACIÓN O EXCLUSIÓN DE EVALUADORES / EVALUADORES LIDERES DEL CEE.
+11. PROCESO PARA LA INACTIVACIÓN O EXCLUSIÓN DE EVALUADORES / INTEGRANTES DEL CEE.
 11.1 La exclusión / inactivación de un integrante del CEE se realiza cuando se presente alguna o algunas de las siguientes causas:
 - Pérdida de competencia técnica.
 - Falta de ética y/o cuando incumpla con las obligaciones de objetividad, imparcialidad, ética y confidencialidad que asume por medio del ECA-MC-P01 y la firma del ECA-MC-P01-F01Compromiso de confidencialidad, imparcialidad y objetividad para personal que participa en evaluaciones.
@@ -206,9 +212,9 @@ La Gestoría de Calidad y en caso de requerirlo el grupo de trabajo del CEE, ana
 Si un integrante del CEE, desea reintegrarse como evaluador / evaluador lider en el cuerpo de evaluadores y expertos del ECA, debe iniciar un proceso de integración inicial para postulante del CEE. Salvo los casos en que el integrante haya sido excluido por faltas a la etica, imparcialidad, objetividad, fraude o conductas similares.
 Para los casos en que la exclusión sea por conflicto de interés por procesos judiciales y/o administrativos pendientes en contra del ECA, o por la relación familiar o de afinidad, el exintegrante del CEE no podrá realizar un nuevo proceso de integración mientras subsista la causa que lo origina.
 12. ANEXOS
-12.1 Anexo 1 lineamientos de evaluación técnica
-Examen técnico de la norma aplicable
+12.1 Anexo 1 lineamientos de evaluación técnica Examen técnico de la norma aplicable
 1. La Gestoría de Calidad posterior a la revisión de la información del postulante determina si se debe aplicar el examen técnico de la norma aplicable, siguiendo el formulario: ECA-MC-P21-F01, para lo cual puede incluir aspectos teóricos, prácticos y de aplicación de la norma aplicable. La elaboración de este examen se realiza en conjunto la Gestoría de Calidad y la Secretaría de Acreditación respectiva.
+[imagen] [imagen]
 2. Esta evaluación en caso de aplicarse se aprueba con una nota mínima igual o superior a 70.
 3. Si el postulante reprueba este examen, se procede a informa su resultado y se realiza el cierre de su expediente. Si el postulante desea iniciar un nuevo proceso de postulación debe esperar un año calendario posterior a la presentación del examen.
 Examen de criterios y procedimientos ECA
@@ -222,13 +228,13 @@ Entrevista técnica
 Entrevista por competencias
 1. Esta evaluación se realiza al postulante a evaluador para calificar comportamientos, aptitudes y conocimientos adquiridos mediante la aplicación de una entrevista por un profesional de Recursos Humanos de acuerdo a los requisitos establecidos en la norma INTE-ISO/IEC 17011. La cual se registra en el formulario ECA-MC-P21-F04 y siguiendo los lineamientos del anexo 4.
 2. Estos exámenes y entrevistas de cada postulante se encuentran archivados en el expediente respectivo y pueden ser consultados por los integrantes del GRUPO DE TRABAJO DEL CEE o la Comisión de Acreditación, con la debida autorización de la Gestoría de Calidad.
-12.2 Anexo 2 Perfil de entrevistador y testificador
-Perfil de entrevistador
+12.2 Anexo 2 Perfil de entrevistador y testificador Perfil de entrevistador
 El entrevistador debe ser una persona que se encuentre calificada como evaluador en la norma de competencia que se va entrevistar, con capacidad de escucha y de formulación de preguntas.
 Actividades y tareas:
-? Llevar a cabo el proceso de entrevista técnica del postulante
-? Desarrollar las preguntas a realizar durante la entrevista técnica.
-? Enviar a GC, el resultado de la entrevista con el criterio respectivo de aceptación o rechazo.
+- Llevar a cabo el proceso de entrevista técnica del postulante
+- Desarrollar las preguntas a realizar durante la entrevista técnica.
+- Enviar a GC, el resultado de la entrevista con el criterio respectivo de aceptación o
+rechazo.
 Requisitos específicos
 Evaluador activo en la norma de competencia a realizar la entrevista.
 Perfil de testificador
@@ -239,7 +245,8 @@ Actividades y tareas:
 - Utilizar la documentación del ECA en su versión vigente.
 - Entregar a la Gestoría de Calidad la documentación relativa a la testificación realizada.
 - Durante la testificación, ser totalmente imparcial.
-- No interferir, ni con el OEC ni con el equipo evaluador, durante el proceso de evaluación in situ.
+- No interferir, ni con el OEC ni con el equipo evaluador, durante el proceso de evaluación
+in situ.
 - Para testificaciones de evaluadores líderes: observar las tareas específicas que incluyen al menos: dirigir la evaluación documental, reunión de apertura, reunión de cierre o entrevistas a la alta dirección.
 - Para testificaciones de evaluadores las tareas específicas incluyen: el desarrollo de las entrevistas con los representantes de los OEC, la línea de investigación o lineamientos que el Evaluador Líder considere oportunos observar.
 Requisitos específicos
@@ -264,9 +271,6 @@ Requisitos específicos
 13 TRANSITORIO
 No aplica.
 14 IDENTIFICACIÓN DE CAMBIOS
-Motivo: Modificación de documento
-Refiérase a la solicitud de elaboración o modificación del documento número 2021-115
-Se modifica definición de directorio del CEE.
-Apartado 4. Se integran lineamientos generales del proceso de integración al CEE, se define el periodo de integración y el proceso de incorporación. Incisos 4.3 - 4.4 - 4.5 y 4.6.
-Se modifica el apartado 5 para el proceso de evaluación inicial de autorización y cambios de categoría específicamente para procesos de esquemas de acreditación que contienen normas en niveles 4 y 5. Inciso 5.10 (5.10.1 - 5.10.2 - 5.10.3).
-Todos los cambios se subrayan en el documento.
+Motivo: | Modificación de documento
+Refiérase a la solicitud de elaboración o modificación del documento número 2021-153
+Se subraya lo modificado. Se cambia debido al levantamiento del proceso de proveeduría y compras del ECA.
