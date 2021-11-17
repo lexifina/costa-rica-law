@@ -1,0 +1,3 @@
+Artículo 14.-Rige a partir de su publicación definitiva en el Diario Oficial La Gaceta.
+Se acuerda por unanimidad: Primero: no habiendo conocido objeciones a la publicación la propuesta de Reglamento del Sistema para la Adquisición de Bienes y Servicios de la Municipalidad de Belén aprobado en el Artículo 11 del Acta 56-2021 queda el mismo definitivamente aprobado y entra en vigencia a partir la siguiente publicación. Segundo: girar instrucciones a la Secretaría del Concejo Municipal para realizar la respectiva publicación en el Diario Oficial La Gaceta.
+San Antonio de Belén, Heredia, 11 de noviembre del 2021.
