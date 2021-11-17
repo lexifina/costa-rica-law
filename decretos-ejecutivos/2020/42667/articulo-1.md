@@ -1,24 +1,24 @@
 N° 42667-MOPT
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
-En el ejercicio de las facultades y prerrogativas conferidas en los artículos 140 incisos 3) y 18) y 146 de la Constitución Política, Convenio de Aviación Civil Internacional, Apéndice II, Ley número 877 del 04 de julio de 1947, el “Convenio para la Unificación de ciertas reglas para el Transporte Aéreo Internacional (Convenio Montreal 1999)”, Ley número 8928 del 3 de febrero de 2011, Reforma a la Ley de Creación del Ministerio de Obras Públicas y Transportes, Ley número 4786 del 05 de julio de 1971 y sus reformas, Ley General de la Administración Pública, Ley número 6227 del 02 de mayo de 1978 artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2, acápite b), y lo estipulado en la Ley General de Aviación Civil, Ley número 5150 del 14 de mayo de 1973 y sus reformas.
+En el ejercicio de las facultades y prerrogativas conferidas en los artículos 140 incisos 3) y 18) y 146 de la Constitución Política, Convenio de Aviación Civil Internacional, Apéndice II, Ley número 877 del 04 de julio de 1947, el "Convenio para la Unificación de ciertas reglas para el Transporte Aéreo Internacional (Convenio Montreal 1999)", Ley número 8928 del 3 de febrero de 2011, Reforma a la Ley de Creación del Ministerio de Obras Públicas y Transportes, Ley número 4786 del 05 de julio de 1971 y sus reformas, Ley General de la Administración Pública, Ley número 6227 del 02 de mayo de 1978 artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2, acápite b), y lo estipulado en la Ley General de Aviación Civil, Ley número 5150 del 14 de mayo de 1973 y sus reformas.
 CONSIDERANDO:
 I. Que Costa Rica es un país signatario del Convenio sobre Aviación Civil Internacional (Chicago 1944), aprobado en su totalidad por la Asamblea Legislativa de conformidad con lo establecido por la Constitución Política de Costa Rica, ratificado mediante Ley número 877 del 4 de julio de 1947.
 II. Que el Capítulo VI, artículo 37 de dicho Convenio, relativo a las "Normas y Métodos Recomendados Internacionales (SARPS)", establece que cada Estado Contratante se compromete a colaborar, a fin de lograr el más alto grado de uniformidad posible en las reglamentaciones, normas, procedimientos y organización relativos a las aeronaves, personal, aerovías y servicios auxiliares, en todas las cuestiones en que tal uniformidad facilite y mejore la navegación aérea.
 III. Que de conformidad con lo establecido por la Ley de Creación del Ministerio de Obras Públicas y Transportes, Nº 3155 de 5 de agosto de 1963 y sus reformas, corresponde a este Ministerio darse la organización interna que más se adecue al cumplimiento del Convenio de Chicago y sus Anexos.
 IV. Que de acuerdo con lo prescrito por la Ley General de Aviación Civil, Ley número 5150 del 14 de mayo de 1973 y sus reformas, el Consejo Técnico de Aviación Civil y la Dirección General de Aviación Civil, adscritos al Ministerio de Obras Públicas y Transportes, constituyen los órganos competentes en todo lo referente a la regulación y control de la aviación civil dentro del territorio de la República.
-V. Que en el Alcance No. 33 al Diario Oficial La Gaceta No. 175, del 12 de septiembre de 2005, se publicó el Decreto Ejecutivo No. 32587-MOPT “Reglamento RAC OPS 1 denominado “Transporte Aéreo Comercial (Aviones). Sin embargo, en fiel acatamiento a lo establecido por la Organización de Aviación Civil Internacional en el Anexo 6 Parte I, en su enmienda número 43, con fecha de aplicación desde el 08 de noviembre de 2018, así como en los documentos asociados a este Anexo, se debe modificar el RACOPS 1 para el cumplimiento de lo establecido.
+V. Que en el Alcance No. 33 al Diario Oficial La Gaceta No. 175, del 12 de septiembre de 2005, se publicó el Decreto Ejecutivo No. 32587-MOPT "Reglamento RAC OPS 1 denominado "Transporte Aéreo Comercial (Aviones). Sin embargo, en fiel acatamiento a lo establecido por la Organización de Aviación Civil Internacional en el Anexo 6 Parte I, en su enmienda número 43, con fecha de aplicación desde el 08 de noviembre de 2018, así como en los documentos asociados a este Anexo, se debe modificar el RACOPS 1 para el cumplimiento de lo establecido.
 VI. Que su texto es totalmente técnico-aeronáutico, y no es de aplicación a usuarios, sino únicamente al ejercicio técnico continuo de la aviación civil internacional y nacional.
 VII. Que en La Gaceta número 106 de 10 de mayo de 2020, fue publicada la audiencia pública, de conformidad con el artículo 361 de la Ley General de la Administración Pública.
 Durante el proceso se recibieron consultas y propuestas para la reforma en cuestión, mismas que fueron anotadas y respondidas.
-VIII. Que se procedió a llenar el Formulario de Evaluación Costo Beneficio que establece el artículo 12 bis del Decreto Ejecutivo número 37045-MP-MEIC, en la Sección I “Control
-Previo de Mejora Regulatoria”, siendo que el mismo dio resultado negativo pues este Reglamento no contiene trámites ni requisitos para los administrados.
+VIII. Que se procedió a llenar el Formulario de Evaluación Costo Beneficio que establece el artículo 12 bis del Decreto Ejecutivo número 37045-MP-MEIC, en la Sección I "Control
+Previo de Mejora Regulatoria", siendo que el mismo dio resultado negativo pues este Reglamento no contiene trámites ni requisitos para los administrados.
 Por tanto,
 Decretan
 RAC-OPS 1
 REGULACIONES AERONÁUTICAS COSTARRICENSES
 TRANSPORTE AÉREO COMERCIAL (AVIONES)
-Artículo 1°— Se emite Reglamento de Transporte Aéreo Comercial (Aviones), denominado RAC- OPS 1, el cual dirá:
+Artículo 1°- Se emite Reglamento de Transporte Aéreo Comercial (Aviones), denominado RAC- OPS 1, el cual dirá:
 TABLA DE CONTENIDO
 SECCIÓN 1 REQUISITOS
 SUBPARTE A APLICABILIDAD
@@ -42,7 +42,7 @@ SUBPARTE R TRANSPORTE DE MERCANCÍAS PELIGROSAS POR VÍA AÉREA
 SUBPARTE S SEGURIDAD
 ANEXO 1 OPERACIÓN DE AVIONES DE 19 O MENOS PASAJEROS, 5.700
 KG O MENOS, Y MOTOR DE HÉLICE
-SECCIÓN 2 CIRCULAR DE ASESORAMIENTO – CA MEDIO ACEPTABLE DE CUMPLIMIENTO – MAC MATERIAL EXPLICATIVO E INTERPRETATIVO - MEI
+SECCIÓN 2 CIRCULAR DE ASESORAMIENTO - CA MEDIO ACEPTABLE DE CUMPLIMIENTO - MAC MATERIAL EXPLICATIVO E INTERPRETATIVO - MEI
 CA/MAC/MEI A APLICABILIDAD
 CA/MAC/MEI B GENERAL
 CA/MAC/MEI C CERTIFICACIÓN Y SUPERVISIÓN DEL OPERADOR AÉREO
@@ -82,38 +82,43 @@ RAC-OPS 1.001 Aplicabilidad
 (2) Los vuelos de lanzamiento de paracaidistas, contra incendios o la actividad de trabajo aéreo, ni a sus vuelos de ida y regreso asociados, siempre que las personas a bordo estén directamente relacionadas con este tipo de vuelos; ni
 (3) Las operaciones sujetas a un Certificado Operativo (CO).
 (d) En el Anexo 1 al RAC-OPS 1 se establecen los requisitos de la sección 1 para operadores con aviones de hélice con una configuración aprobada de asientos para 19 pasajeros o menos, o con un peso máximo de despegue de 5.700 Kg. o menos. Los requisitos que noestén listados en el Anexo 1 se deben aplicar como están establecidos en la sección 1 deeste RAC-OPS 1. (Ver anexo 1 a la RAC OPS Sección 1)
+(e) Las aeronaves de operadores extranjeros operando comercialmente, pasajeros, carga y correo en el territorio nacional deben cumplir con la norma internacional, así mismo con lo establecido en la normativa aplicable de la Republica de Costa Rica, y estarán incluidos en el sistema de vigilancia de la DGAC.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 RAC-OPS 1.003 Definiciones y Abreviaturas
 (Ver CA OPS 1.003)
 (a) Definiciones:
 Cuando los términos indicados a continuación figuren en estas normas y métodos recomendados para la operación de aeronaves, transporte aéreo comercial internacional, tendrán el significado siguiente:
 Actuación humana. Capacidades y limitaciones humanas que repercuten en la seguridad y eficiencia de las operaciones aeronáuticas.
 Accidente relacionado con Mercancías Peligrosas. Un suceso asociado y relacionado con el transporte de mercancías peligrosas que produce lesiones mortales o graves a una persona o daños importantes a bienes.
-Aclimatado: condición en la cual un tripulante de vuelo ha permanecido en un “teatro” por 72 horas o se le ha concedido al menos 36 horas consecutivas libres de servicio.
+Aclimatado: condición en la cual un tripulante de vuelo ha permanecido en un "teatro" por 72 horas o se le ha concedido al menos 36 horas consecutivas libres de servicio.
 Aeródromo. Área definida de tierra o de agua (que incluye todas sus edificaciones, instalaciones y equipos) destinada total o parcialmente a la llegada, salida y movimiento en superficie de aeronaves.
 Aeródromo aislado. Aeródromo de destino para el cual no hay aeródromo de alternativa de destino adecuado para un tipo de avión determinado.
 Aeródromo de alternativa. Aeródromo al que podría dirigirse una aeronave cuando fuera imposible o no fuera aconsejable dirigirse al aeródromo de aterrizaje previsto o aterrizar en el mismo y que cuenta con las instalaciones y los servicios necesarios, que tiene la capacidad de satisfacer los requisitos de performance de la aeronave y que estará operativo a la hora prevista de utilización. Existen los siguientes tipos de aeródromos de alternativa:
 Aeródromo de alternativa post-despegue. Aeródromo de alternativa en el que podría aterrizar una aeronave si esto fuera necesario poco después del despegue y no fuera posible utilizar el aeródromo de salida.
 Aeródromo de alternativa en ruta. Aeródromo de alternativa en el que podría aterrizar una aeronave en el caso de que fuera necesario desviarse mientras se encuentra en ruta. Aeródromo de alternativa de destino. Aeródromo de alternativa al que podría dirigirse una aeronave si fuera imposible o no fuera aconsejable aterrizar en el aeródromo de aterrizaje previsto.
-Nota. — El aeródromo del que despega un vuelo también puede ser aeródromo de alternativa en ruta o aeródromo de alternativa de destino para dicho vuelo.
+Nota. - El aeródromo del que despega un vuelo también puede ser aeródromo de alternativa en ruta o aeródromo de alternativa de destino para dicho vuelo.
 Aeronave. Toda máquina que puede sustentarse en la atmósfera por reacciones del aire que no sean las reacciones del mismo contra la superficie de la tierra.
 Agente de Carga. Una agencia que lleva a cabo en nombre del operador varias o todas las funciones de éste incluyendo la recepción, carga, descarga, transferencia u otro procesamiento de pasajeros o carga.
 Alcance visual en la pista (RVR). Distancia hasta la cual el piloto de una aeronave que se encuentra sobre el eje de una pista puede ver las señales de superficie de la pista o las luces que la delimitan o que señalan su eje.
 Alojamiento adecuado: Instalación individual con temperatura e iluminación controlada y mitigación sónica, la cual suministra una cama, litera o silla para que el tripulante duerma en una posición horizontal o casi horizontal. El alojamiento adecuado sólo se aplica a las instalaciones en tierra y no para las provistas para el descanso a bordo de una aeronave.
 Altitud de decisión (DA) o altura de decisión (DH). Altitud o altura especificada en una operación de aproximación por instrumentos 3D, a la cual debe iniciarse una maniobra de aproximación frustrada si no se ha establecido la referencia visual requerida para continuar la aproximación.
-Nota 1. — Para la altitud de decisión (DA) se toma como referencia el nivel medio del mar y para la altura de decisión (DH), la elevación del umbral.
-Nota 2. — La referencia visual requerida significa aquella sección de las ayudas visuales o del área de aproximación que debería haber estado a la vista durante tiempo suficiente para que el piloto pudiera hacer una evaluación de la posición y de la rapidez del cambio de posición de la aeronave, en relación con la trayectoria de vuelo deseada. En operaciones de Categoría III con altura de decisión, la referencia visual requerida es aquella especificada para el procedimiento y operación particulares.
-Nota 3. — Cuando se utilicen estas dos expresiones, pueden citarse convenientemente como “altitud/altura de decisión” y abreviarse en la forma “DA/H”.
+Nota 1. - Para la altitud de decisión (DA) se toma como referencia el nivel medio del mar y para la altura de decisión (DH), la elevación del umbral.
+Nota 2. - La referencia visual requerida significa aquella sección de las ayudas visuales o del área de aproximación que debería haber estado a la vista durante tiempo suficiente para que el piloto pudiera hacer una evaluación de la posición y de la rapidez del cambio de posición de la aeronave, en relación con la trayectoria de vuelo deseada. En operaciones de Categoría III con altura de decisión, la referencia visual requerida es aquella especificada para el procedimiento y operación particulares.
+Nota 3. - Cuando se utilicen estas dos expresiones, pueden citarse convenientemente como "altitud/altura de decisión" y abreviarse en la forma "DA/H".
 Altitud de franqueamiento de obstáculos (OCA) o altura de franqueamiento de obstáculos (OCH). La altitud más baja o la altura más baja por encima de la elevación del umbral de la pista pertinente o por encima de la elevación del aeródromo, según corresponda, utilizada para respetar los correspondientes criterios de franqueamiento de obstáculos.
-Nota 1. — Para la altitud de franqueamiento de obstáculos se toma como referencia el nivel medio del mar y para la altura de franqueamiento de obstáculos, la elevación del umbral, o en el caso de procedimientos de aproximación que no son de precisión, la elevación del aeródromo o la elevación del umbral, si éste estuviera a más de 2 m (7 ft) por debajo de la elevación del aeródromo. Para la altura de franqueamiento de obstáculos en procedimientos de aproximación en circuito se toma como referencia la elevación del aeródromo.
-Nota 2. — Cuando se utilicen estas dos expresiones, pueden citarse convenientemente como “altitud/altura de franqueamiento de obstáculos” y abreviarse en la forma “OCA/H”.
+Nota 1. - Para la altitud de franqueamiento de obstáculos se toma como referencia el nivel medio del mar y para la altura de franqueamiento de obstáculos, la elevación del umbral, o en el caso de procedimientos de aproximación que no son de precisión, la elevación del aeródromo o la elevación del umbral, si éste estuviera a más de 2 m (7 ft) por debajo de la elevación del aeródromo. Para la altura de franqueamiento de obstáculos en procedimientos de aproximación en circuito se toma como referencia la elevación del aeródromo.
+Nota 2. - Cuando se utilicen estas dos expresiones, pueden citarse convenientemente como "altitud/altura de franqueamiento de obstáculos" y abreviarse en la forma "OCA/H".
 Altitud presión. Expresión de la presión atmosférica mediante la altitud que corresponde a esa presión en la atmósfera tipo.
 Altitud mínima de descenso (MDA) o altura mínima de descenso (MDH). Altitud o altura especificada en una operación de aproximación por instrumentos 2D o en una operación de aproximación en circuito, por debajo de la cual no debe efectuarse el descenso sin la referencia visual requerida.
-Nota 1.— Para la altitud mínima de descenso (MDA) se toma como referencia el nivel medio del mar y para la altura mínima de descenso (MDH), la elevación del aeródromo o la elevación del umbral, si éste estuviera a más de 2 m (7 ft) por debajo de la elevación de aeródromo. Para la altura mínima de descenso en aproximaciones en circuito se toma como referencia la elevación del aeródromo.
-Nota 2.— La referencia visual requerida significa aquella sección de las ayudas visuales o del área de aproximación que debería haber estado a la vista durante tiempo suficiente para que el piloto pudiera hacer una evaluación de la posición y de la rapidez del cambio de posición de la aeronave, en relación con la trayectoria de vuelo deseada. En el caso de la aproximación en circuito, la referencia visual requerida es el entorno de la pista.
-Nota 3. — Cuando se utilicen estas dos expresiones, pueden citarse convenientemente como “altitud/altura mínima de descenso” y abreviarse en la forma “MDA/H”.
+Nota 1.- Para la altitud mínima de descenso (MDA) se toma como referencia el nivel medio del mar y para la altura mínima de descenso (MDH), la elevación del aeródromo o la elevación del umbral, si éste estuviera a más de 2 m (7 ft) por debajo de la elevación de aeródromo. Para la altura mínima de descenso en aproximaciones en circuito se toma como referencia la elevación del aeródromo.
+Nota 2.- La referencia visual requerida significa aquella sección de las ayudas visuales o del área de aproximación que debería haber estado a la vista durante tiempo suficiente para que el piloto pudiera hacer una evaluación de la posición y de la rapidez del cambio de posición de la aeronave, en relación con la trayectoria de vuelo deseada. En el caso de la aproximación en circuito, la referencia visual requerida es el entorno de la pista.
+Nota 3. - Cuando se utilicen estas dos expresiones, pueden citarse convenientemente como "altitud/altura mínima de descenso" y abreviarse en la forma "MDA/H".
 Análisis de datos de vuelo. Proceso para analizar los datos de vuelo registrados a fin de mejorar la seguridad de las operaciones de vuelo.
+Aprobación específica. Aprobación documentada en las especificaciones relativas a las operaciones para las operaciones de transporte aéreo comercial o en la lista de aprobaciones específicas para operaciones no comerciales.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 Aprobación (mercancías peligrosas). Es la autorización emitida por la DGAC, para el transporte de materiales peligrosos, según se especifica en las Instrucciones Técnicas
-Aproximación final en descenso continuo (CDFA). Técnica de vuelo, congruente con los procedimientos de aproximación estabilizada, para el tramo de aproximación final siguiendo procedimientos de aproximación por instrumentos que no es de precisión en descenso continuo, sin nivelaciones de altura, desde una altitud/altura igual o superior a la altitud/altura del punto de referencia de aproximación final hasta un punto a aproximadamente 15 m (50 ft) por encima del umbral de la pista de aterrizaje o hasta el punto en el que la maniobra de enderezamiento debería comenzar para el tipo de aeronave que se esté operando.
+Aproximación final en descenso continuo (CDFA). Técnica de vuelo, congruente con los procedimientos de aproximación estabilizada, para el tramo de aproximación final (FAS) siguiendo el procedimiento de aproximación por instrumentos que no es de precisión (NPA) en descenso continuo, sin nivelaciones de altura, desde una altitud/altura igual o superior a la altitud/altura del punto de referencia de aproximación final hasta un punto a aproximadamente 15 m (50 ft) por encima del umbral de la pista de aterrizaje o hasta el punto en el que comienza la maniobra de enderezamiento para el tipo de aeronave que se esté operando; para el FAS de un procedimiento NPA seguido por una aproximación en circuito, se aplica la técnica de CDFA hasta que se alcanzan los mínimos de aproximación en circuito (OCA/H en circuito) o la altitud/altura de la maniobra de vuelo visual.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 Aproximación visual. Aproximación en la que no se completa la totalidad o una parte de un procedimiento de aproximación por instrumentos y que se ejecuta la aproximación con referencias visuales al terreno.
 Apto para el servicio: persona preparada fisiológica y mentalmente, capaz de realizar las tareas asignadas con el nivel de seguridad máximo.
 Área de seguridad de extremo de pista (RESA). Área simétrica respecto a la prolongación del eje de la pista y adyacente al extremo de la franja, cuyo objeto principal consiste en reducir el riesgo de daños a un avión que efectúe un aterrizaje demasiado corto o se salga del final de la pista.
@@ -137,7 +142,7 @@ Carta de Cumplimiento. Documento firmado por el Gerente responsable en donde el 
 Certificado del operador de servicios aéreos (COA). Certificado por el que se autoriza a un operador realizar determinadas operaciones de transporte aéreo comercial.
 Circunstancia operacional imprevista: evento no planeado cuya duración no es suficiente para realizar un ajuste en la programación. Incluye imprevistos climáticos, desperfecto del equipo o demoras de tránsito aéreo inesperados desde un punto de vista razonable.
 Circular de asesoramiento. Texto que contiene explicaciones, interpretaciones o medios aceptables de cumplimiento, con la intención de aclarar o de servir de guía para el cumplimiento de requisitos.
-COMAT. Material de la compañía – Piezas y suministros de una empresa aérea transportados en una aeronave de ésta para fines propios del operador.
+COMAT. Material de la compañía - Piezas y suministros de una empresa aérea transportados en una aeronave de ésta para fines propios del operador.
 Combustible crítico para EDTO. Cantidad de combustible suficiente para volar hasta un aeródromo de alternativa en ruta teniendo en cuenta, en el punto más crítico de la ruta, la falla del sistema que sea más limitante.
 Nota. En la CA OPS 1.246 y en el Anexo 2 de la Sección 2 se proporciona orientación sobre los escenarios de combustible crítico para EDTO.
 Comunicación basada en la performance (PBC). Comunicación basada en especificaciones sobre la performance que se aplican al suministro de servicios de tránsito aéreo.
@@ -148,11 +153,12 @@ Nota. Los mínimos especificados para las condiciones de vuelo visual figuran en
 Condiciones meteorológicas de vuelo visual (VMC). Condiciones meteorológicas expresadas en términos de visibilidad, distancia desde las nubes y techo de nubes, iguales o mejores que los mínimos especificados.
 Nota. Los mínimos especificados figuran en el Anexo 2, Capítulo 4 de la OACI.
 Configuración máxima aprobada de asientos para pasajeros. La capacidad máxima de asientos para pasajeros de un avión individual, excluyendo los asientos de los pilotos, los de la cabina de mando y los de la tripulación de cabina, en su caso, que utiliza el operador, aprobada por la Autoridad y especificada en el Manual de Operaciones.
-Conformidad de mantenimiento. Documento por el que se certifica que los trabajos de mantenimiento a los que se refieren han sido concluidos de manera satisfactoria, bien sea de conformidad con los datos aprobados y los procedimientos descritos en el manual de procedimientos del organismo de mantenimiento o según un sistema equivalente.
+Conformidad de mantenimiento. Documento por el que se certifica que los trabajos de mantenimiento a los que se refiere han sido concluidos de manera satisfactoria los requisitos adecuados de aeronavegabilidad.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 Control operacional. La autoridad ejercida respecto a la iniciación, continuación, desviación o terminación de un vuelo en interés de la seguridad de la aeronave y de la regularidad y eficacia del vuelo.
 Combustible de Contingencia: El combustible requerido para compensar por factores imprevistos que pueden influenciar en el consumo de combustible hacia el aeródromo de destino como desviaciones de un aeroplano individual de su consumo esperado de combustible, desviación de las condiciones meteorológicas pronosticadas, desviaciones de la ruta planificada y /o de niveles/altitudes de crucero.
 Contenedor para material radiactivo. Un contenedor de carga para material radiactivo es un elemento del equipo de transporte de materiales radiactivos que se ha diseñado para facilitar el transporte de éstos, embalados o sin embalar, por uno o varios modos de transporte. Véase la definición de Dispositivo de Carga Unitaria (ULD) cuando la mercancía peligrosa no es material radioactivo.
-Descanso fisiológico nocturno: diez (10) horas de descanso en la base principal del tripulante, que comprenden el intervalo de tiempo laborado entre las 01:00 y las 07:00 horas; a menos que el individuo se haya aclimatado en un “teatro” diferente, en cuyo caso, se debe abarcar ese mismo período de horas en la localidad de aclimatación.
+Descanso fisiológico nocturno: diez (10) horas de descanso en la base principal del tripulante, que comprenden el intervalo de tiempo laborado entre las 01:00 y las 07:00 horas; a menos que el individuo se haya aclimatado en un "teatro" diferente, en cuyo caso, se debe abarcar ese mismo período de horas en la localidad de aclimatación.
 Despegue con baja visibilidad (Low Visibility Take-Off - LVTO). Despegue para el cual el alcance visual en la pista (RVR) es menor de 400 m.
 Dispositivo de instrucción para simulación de vuelo. Cualquiera de los tres tipos de aparatos que a continuación se describen, en los cuales se simulan en tierra las condiciones de vuelo:
 Simulador de vuelo, que proporciona una representación exacta del puesto de pilotaje de un tipo particular de aeronave, hasta el punto de que simula positivamente las funciones de los mandos de las instalaciones y sistemas mecánicos, eléctricos, electrónicos, de a bordo, el medio ambiente normal de los miembros de la tripulación de vuelo, y la performance y las características de vuelo de ese tipo de aeronave.
@@ -174,10 +180,12 @@ Especificación para la navegación. Conjunto de requisitos relativos a la aeron
 Especificación para la navegación de área (RNAV). Especificación para la navegación basada en la navegación de área que no incluye el requisito de control y alerta de la performance, designada por medio del prefijo RNAV; por ejemplo, RNAV 5, RNAV 1.
 Especificación para la performance de navegación requerida (RNP). Especificación para la navegación basada en la navegación de área que incluye el requisito de control y alerta de la performance, designada por medio del prefijo RNP; por ejemplo, RNP 4, RNP APCH.
 Nota 1. El Manual sobre sobre la navegación basada en la performance (PBN) (Doc. 9613)) Volumen II, contiene directrices detalladas sobre las especificaciones para la navegación.
-Nota 2. El término RNP, definido anteriormente como “declaración de la performance de navegación necesaria para operar dentro de un espacio aéreo definido”, se ha retirado del Anexo 6 Parte I puesto que el concepto de RNP ha sido remplazado por el concepto de PBN. En dicho Anexo, el término RNP sólo se utiliza ahora en el contexto de especificaciones de navegación que requieren vigilancia de la performance y alerta, p. ej., RNP 4 se refiere a la aeronave y los requisitos operacionales, comprendida una performance lateral de 4 NM, con la vigilancia de performance y alerta a bordo que se describen en el Doc. 9613.
+Nota 2. El término RNP, definido anteriormente como "declaración de la performance de navegación necesaria para operar dentro de un espacio aéreo definido", se ha retirado del Anexo 6 Parte I puesto que el concepto de RNP ha sido remplazado por el concepto de PBN. En dicho Anexo, el término RNP sólo se utiliza ahora en el contexto de especificaciones de navegación que requieren vigilancia de la performance y alerta, p. ej., RNP 4 se refiere a la aeronave y los requisitos operacionales, comprendida una performance lateral de 4 NM, con la vigilancia de performance y alerta a bordo que se describen en el Doc. 9613.
 Especificación de performance de comunicación requerida (RCP). Conjunto de requisitos para el suministro de servicios de tránsito aéreo y el equipo de tierra, las capacidades funcionales de la aeronave y las operaciones correspondientes que se necesitan para apoyar la comunicación basada en la performance.
 Especificación de performance de vigilancia requerida (RSP). Conjunto de requisitos para el suministro de servicios de tránsito aéreo y el equipo de tierra, las capacidades funcionales de la aeronave y las operaciones correspondientes que se necesitan para apoyar la vigilancia basada en la performance.
-Especificaciones relativas a las operaciones. Las autorizaciones, condiciones y limitaciones relacionadas con el certificado del operador de servicios aéreos, y sujetas a las condiciones establecidas en el manual de operaciones.
+Especificaciones relativas a las operaciones. Las autorizaciones, incluidas las aprobaciones específicas, condiciones y limitaciones relacionadas con el certificado de operador de servicios aéreos y sujetas a las condiciones establecidas en el manual de operaciones.
+Nota. - Los términos autorización, aprobación específica, aprobación y aceptación se describen con más detalle en la CA OPS 1.175..
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 Estado de matrícula. Estado en el cual está matriculada la aeronave.
 Nota. En el caso de matrícula de aeronaves de una agencia internacional de explotación sobre una base que no sea nacional, los Estados que constituyan la agencia están obligados conjunta y solidariamente a asumir las obligaciones que, en virtud del Convenio de Chicago, corresponden al Estado de matrícula. Véase al respecto la resolución del Consejo del 14 de diciembre de 1967, sobre nacionalidad y matrícula de aeronaves explotadas por agencias internacionales de explotación que figura en los Criterios y texto de orientación sobre la reglamentación económica del transporte aéreo internacional (Doc. 9587).
 Estado del aeródromo. Estado en cuyo territorio está situado el aeródromo.
@@ -208,7 +216,8 @@ Lista de equipo mínimo (MEL). Lista del equipo que basta para el funcionamiento
 Lista de Verificación para la aceptación de mercancías peligrosas. Documento que se utiliza en la verificación del aspecto exterior de bultos de mercancías peligrosas y sus documentos asociados para determinar si se ha cumplido con todos los requisitos correspondientes.
 Lista maestra de equipo mínimo (MMEL). Lista establecida para un determinado tipo de aeronave por el organismo responsable del diseño del tipo de aeronave con aprobación del Estado de diseño, en la que figuran elementos del equipo, de uno o más de los cuales podrían prescindirse al inicio de un vuelo. La MMEL puede estar asociada a condiciones de operación, limitaciones o procedimientos especiales.
 Maletín de vuelo electrónico (EFB). Sistema electrónico de información que comprende equipo y aplicaciones y está destinado a la tripulación de vuelo para almacenar, actualizar, presentar visualmente y procesar funciones de EFB para apoyar las operaciones o tareas de vuelo.
-Mantenimiento. Realización de las tareas requeridas para asegurar el mantenimiento de la aeronavegabilidad de una aeronave, incluyendo, por separado o en combinación, la revisión general, inspección, sustitución, rectificación de defecto y la realización de una modificación o reparación.
+Mantenimiento. Realización de las tareas requeridas en una aeronave, motor, hélice o pieza conexa para asegurar el mantenimiento de la aeronavegabilidad de una aeronave, motor, hélice o pieza conexa incluyendo, por separado o en combinación, la revisión general, inspección, sustitución, rectificación de defecto y la realización de una modificación o reparación.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 Mantenimiento de la aeronavegabilidad. Conjunto de procedimientos que permite asegurar que una aeronave, motor, hélice o pieza cumple con los requisitos aplicables de aeronavegabilidad y se mantiene en condiciones de operar de modo seguro durante toda su vida útil.
 Manual de manejo de mercancías peligrosas: Documento presentado por el operador para la aprobación o aceptación por parte de la DGAC, el cual contiene los procedimientos, métodos y técnicas de aceptar, estibar, notificar, almacenar, inspeccionar, entrenar, conservación de archivos apropiada con toda mercancía peligrosa transportable por vía aérea.
 Manual de operaciones. Manual que contiene procedimientos, instrucciones y orientación que permiten al personal encargado de las operaciones desempeñar sus obligaciones.
@@ -227,7 +236,7 @@ Mínimos de utilización de aeródromo. Las limitaciones de uso que tenga un aer
 (ii) el aterrizaje en operaciones de aproximación por instrumentos 2D, expresadas en términos de visibilidad o alcance visual en la pista, altitud/altura mínima de descenso (MDA/H) y, de ser necesario, condiciones de nubosidad; y
 (iii) el aterrizaje en operaciones de aproximación por instrumentos 3D, expresadas en términos de visibilidad o de alcance visual en la pista y altitud/altura de decisión (DA/H), según corresponda al tipo y/o categoría de la operación.
 Modificación. Un cambio en el diseño de tipo de una aeronave, motor o hélice.
-Nota. Una modificación también puede comprender la incorporación de la modificación, que es una tarea de mantenimiento que está sujeta a una conformidad de mantenimiento. En el Manual de aeronavegabilidad (Doc. 9760) se proporciona más orientación sobre mantenimiento de aeronaves — modificaciones y reparaciones.
+Nota. Una modificación también puede comprender la incorporación de la modificación, que es una tarea de mantenimiento que está sujeta a una conformidad de mantenimiento. En el Manual de aeronavegabilidad (Doc. 9760) se proporciona más orientación sobre mantenimiento de aeronaves - modificaciones y reparaciones.
 Motor. Unidad que se utiliza o se tiene la intención de utilizar para propulsar una aeronave.
 Consiste, como mínimo, en aquellos componentes y equipos necesarios para el funcionamiento y control, pero excluye las hélices/los rotores (si corresponde).
 Navegación basada en la performance (PBN), Requisitos para la navegación de área basada en la performance que se aplican a las aeronaves que realizan operaciones en una ruta ATS,en un procedimiento de aproximación por instrumentos o en un espacio aéreo designado.
@@ -254,6 +263,8 @@ Nota. Guía de navegación lateral y vertical se refiere a la guía proporcionad
 (ii) datos de navegación generados por computadora a partir de ayudas terrestres, con base espacial, autónomas para la navegación o una combinación de las mismas.
 Operación de aproximación y aterrizaje que no es de precisión. Aproximación y aterrizaje por instrumentos que utiliza guía lateral pero no utiliza guía vertical.
 Operación de aproximación y aterrizaje de precisión. Aproximación y aterrizaje por instrumentos que utiliza guía de precisión lateral y vertical con mínimos determinados por la categoría de la operación.
+Operaciones en condiciones de baja visibilidad (LVO). Operaciones de aproximación con un RVR inferior a 550 m y/o con una DH inferior a 60 m (200 ft) u operaciones de despegue con un RVR inferior a 400 m.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 Operador. Persona, organismo o empresa que se dedica, o propone dedicarse, a la explotación de aeronaves.
 Performance. Para efectos de esta regulación se entiende como Rendimiento de la aeronave.
 Performance de comunicación requerida (RCP). Declaración de los requisitos de performance para comunicaciones operacionales en apoyo a funciones ATM específicas.
@@ -261,7 +272,7 @@ Periodo de descanso. Periodo continuo y determinado de tiempo que sigue y/o prec
 Período de disponibilidad de reserva: período de servicio durante el cual un titular del COA requiere que un tripulante bajo notificación de reserva de corta anticipación esté disponible para que se le asigne una tarea por un período de servicio de vuelo.
 Periodo de Servicio. Periodo que se inicia cuando el operador exige que un miembro de la tripulación de vuelo o de cabina se presente o comience un servicio y que termina cuando la persona queda libre de todo servicio.
 Período de servicio de reserva en el aeropuerto/de guardia: un período de servicio definido durante el cual el titular de un COA requiere que un tripulante se encuentre en un aeropuerto para desempeñar una posible función.
-Periodo de servicio de vuelo. (FDP por sus siglas en inglés): período que comienza cuando se requiere que un tripulante se presente para el servicio con la intención de realizar un vuelo, una serie de vuelos, vuelos de posicionamiento “ferry”, y culmina cuando la aeronave se aparca después del último vuelo y ese mismo tripulante no tiene intención de moverla posteriormente. Un período de servicio de vuelo incluye las tareas realizadas por el tripulante en representación del titular del COA, las cuales se llevan a cabo antes de los segmentos de vuelo o entre estos, sin que intervenga un período de descanso requerido. Algunos ejemplos de tareas que forman parte del período de servicio de vuelo son el traslado de tripulantes (deadheading), la capacitación realizada en una aeronave o en un simulador de vuelo y el período de servicio de reserva en el aeropuerto, si las funciones anteriores se realizan antes de los segmentos de vuelo o entre estos, sin que intervenga un período de descanso requerido.
+Periodo de servicio de vuelo. (FDP por sus siglas en inglés): período que comienza cuando se requiere que un tripulante se presente para el servicio con la intención de realizar un vuelo, una serie de vuelos, vuelos de posicionamiento "ferry", y culmina cuando la aeronave se aparca después del último vuelo y ese mismo tripulante no tiene intención de moverla posteriormente. Un período de servicio de vuelo incluye las tareas realizadas por el tripulante en representación del titular del COA, las cuales se llevan a cabo antes de los segmentos de vuelo o entre estos, sin que intervenga un período de descanso requerido. Algunos ejemplos de tareas que forman parte del período de servicio de vuelo son el traslado de tripulantes (deadheading), la capacitación realizada en una aeronave o en un simulador de vuelo y el período de servicio de reserva en el aeropuerto, si las funciones anteriores se realizan antes de los segmentos de vuelo o entre estos, sin que intervenga un período de descanso requerido.
 Período de servicio de vuelo extendido: período de servicio de vuelo que incluye un descanso programado durante el ejercicio de las funciones, el cual es menor que un período de descanso requerido.
 Piloto al mando. Piloto designado por el operador, o por el propietario en el caso de la aviación general, para estar al mando y encargarse de la realización segura de un vuelo.
 Piloto de relevo en crucero. Miembro de la tripulación de vuelo designado para realizar tareas de piloto durante vuelo de crucero para permitir al piloto al mando o al copiloto el descanso previsto.
@@ -299,9 +310,12 @@ Registrador de vuelo. Cualquier tipo de registrador instalado en la aeronave a f
 Registrador de vuelo de desprendimiento automático (ADFR). Registrador de vuelo combinado instalado en la aeronave que puede desprenderse automáticamente de la aeronave.
 Registros de mantenimiento de la aeronavegabilidad. Registros que se relacionan con el estado en que se encuentra el mantenimiento de la aeronavegabilidad de aeronaves, motores, hélices o piezas conexas.
 Reglamentación Sobre Mercancías Peligrosas de la IATA. Documento equivalente a las Instrucciones Técnicas para el Transporte Sin Riesgos de Mercancías Peligrosas por Vía Aérea (Doc. 9284-AN/905)
-Reparación. Restauración de un producto aeronáutico a su condición de aeronavegabilidad para asegurar que la aeronave sigue satisfaciendo los aspectos de diseño que corresponden a los requisitos de aeronavegabilidad aplicados para expedir el certificado de tipo para el tipo de aeronave correspondiente, cuando esta haya sufrido daños o desgaste por el uso.
+Reparación. Restauración de una aeronave, motor, hélice o pieza conexa a su condición de aeronavegabilidad de conformidad con los requisitos adecuados de aeronavegabilidad, cuando haya sufrido daños o desgaste por el uso.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 Requisitos adecuados de aeronavegabilidad. Códigos de aeronavegabilidad completos y detallados establecidos, adoptados o aceptados por un Estado contratante para la clase de aeronave, de motor o de hélice en cuestión.
 RVR de Control. Se refiere a los valores notificados de uno o más emplazamientos de notificación RVR (punto de toma de contacto, punto medio, extremo de parada) que se utilizan para determinar si se cumplen o no los mínimos de utilización. Cuando se emplea el RVR, el RVR de control es el RVR del punto de toma de contacto, salvo que lo prescriban de otro modo los criterios del Estado.
+Resumen del acuerdo. Cuando una aeronave opera bajo un acuerdo en virtud del Artículo 83 bis concertado entre el Estado de matrícula y otro Estado, el resumen del acuerdo es un documento que se transmite junto con el acuerdo en virtud del Artículo 83 bis registrado ante el Consejo de la OACI, en el que se especifican de manera sucinta y clara las funciones y obligaciones que el Estado de matrícula transfiere a ese otro Estado.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 Seguimiento de aeronaves. Proceso establecido por el operador que mantiene y actualiza, a intervalos normalizados, un registro basado en tierra de la posición en cuatro dimensiones de cada aeronave en vuelo.
 Servicio. Cualquier tarea que el operador exige realizar a los miembros de la tripulación de vuelo o de cabina, incluido, por ejemplo, el servicio de vuelo, el trabajo administrativo, la instrucción, el viaje para incorporarse a su puesto y el estar de reserva, cuando es probable que dicha tarea induzca a fatiga.
 Servicios de escala. Servicios necesarios para la llegada de una aeronave a un aeropuerto y su salida de este, con exclusión de los servicios de tránsito aéreo.
@@ -323,7 +337,7 @@ Sustancias psicoactivas. El alcohol, los opiáceos, los canabinoides, los sedant
 Teatro: área geográfica en la cual la distancia entre el punto de salida y llegada del tripulante durante su período de servicio de vuelo no difiere de más de 60 grados de longitud. Tiempo de desviación máximo. Intervalo admisible máximo, expresado en tiempo, desde un punto en una ruta hasta un aeródromo de alternativa en ruta.
 Tiempo de presentación al servicio: el tiempo durante el cual un tripulante debe presentarse para una función, según lo requiera el titular del COA.
 Tiempo de vuelo - aviones. Tiempo total transcurrido desde que el avión comienza a moverse con el propósito de despegar, hasta que se detiene completamente al finalizar el vuelo.
-Nota. Tiempo de vuelo, tal como aquí se define, es sinónimo de tiempo “entre calzos” de uso general, que se cuenta a partir del momento en que el avión comienza a moverse con el propósito de despegar, hasta que se detiene completamente al finalizar el vuelo.
+Nota. Tiempo de vuelo, tal como aquí se define, es sinónimo de tiempo "entre calzos" de uso general, que se cuenta a partir del momento en que el avión comienza a moverse con el propósito de despegar, hasta que se detiene completamente al finalizar el vuelo.
 Trabajos aéreos. Operación de aeronave en la que ésta se aplica a servicios especializados tales como carga externa, agricultura, construcción, fotografía, levantamiento de planos, observación y patrulla, búsqueda y salvamento, anuncios aéreos.
 Titular de certificado COA: persona que posee o requiere poseer un Certificado del operador Aéreo COA emitido de conformidad con la Subparte C de la RAC-OPS 1.
 Tramo de aproximación final (FAF). Fase de un procedimiento de aproximación por instrumentos durante la cual se ejecutan la alineación y el descenso para aterrizar.
@@ -338,10 +352,11 @@ Tripulante: En esta Subparte Q la palabra tripulante se refiere tanto a los trip
 Tripulación de vuelo aumentada: una tripulación de vuelo que contiene más de la cantidad mínima de tripulantes de vuelo requeridos por el certificado de tipo del avión para operar la aeronave, tal que sea posible reemplazar a un tripulante por otro cualificado, para el descanso durante el vuelo.
 Tripulante de reserva: un tripulante a quien el titular del COA requiere estar disponible para que se le asigne una tarea de servicio.
 Tripulante en servicio: tripulante con un período de servicio de vuelo asignado y que no actúa como tripulante de reserva
-Umbral de tiempo. Intervalo, expresado en tiempo, establecido por el Estado del operador hasta un aeródromo de alternativa en ruta, respecto del cual para todo intervalo de tiempo superior se requiere una aprobación EDTO del Estado del operador.
+Umbral de tiempo. Intervalo, expresado en tiempo, establecido por el Estado del operador hasta un aeródromo de alternativa en ruta, respecto del cual para todo intervalo de tiempo superior se requiere una aprobación específica para EDTO del Estado del operador.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 Ventana del mínimo circadiano: período de máxima somnolencia que ocurre entre las 02:00 y 05:59 horas durante el período fisiológico nocturno.
 Vigilancia basada en la performance (PBS). Vigilancia que se basa en las especificaciones de performance que se aplican al suministro de servicios de tránsito aéreo.
-Nota. — Una especificación RSP comprende los requisitos de performance de vigilancia que se aplican a los componentes del sistema en términos de la vigilancia que debe ofrecerse y del tiempo de entrega de datos, la continuidad, la disponibilidad, la integridad, la precisión de los datos de vigilancia, la seguridad y la funcionalidad correspondientes que se necesitan para la operación propuesta en el contexto de un concepto de espacio aéreo particular.
+Nota. - Una especificación RSP comprende los requisitos de performance de vigilancia que se aplican a los componentes del sistema en términos de la vigilancia que debe ofrecerse y del tiempo de entrega de datos, la continuidad, la disponibilidad, la integridad, la precisión de los datos de vigilancia, la seguridad y la funcionalidad correspondientes que se necesitan para la operación propuesta en el contexto de un concepto de espacio aéreo particular.
 Visualizador de ¨cabeza alta¨ (HUD). Sistema de presentación visual de la información de vuelo en el campo visual frontal externo del piloto.
 Vuelo Circulando (circling) Fase visual de una aproximación por instrumentos que sitúa a un avión en posición de aterrizaje en una pista que no está adecuadamente situada para una aproximación directa.
 (b) Abreviaturas:
@@ -349,7 +364,7 @@ AC Corriente alterna
 ACAS Sistema anticolisión de a bordo
 ADRS Sistema registrador de datos de aeronave
 ADS Vigilancia dependiente automática
-ADS-C Vigilancia dependiente automática — contrato
+ADS-C Vigilancia dependiente automática - contrato
 AEO Todos los motores en marcha
 AFCS Sistema de mando automático de vuelo
 AGA Aeródromos, rutas aéreas y ayudas terrestres
@@ -373,6 +388,7 @@ CAS Velocidad aerodinámica calibrada
 CAT I Categoría I
 CAT II Categoría II
 CAT III Categoría III
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 CAT IIIA Categoría IIIA
 CAT IIIB Categoría IIIB
 CAT IIIC Categoría IIIC
@@ -417,7 +433,7 @@ GCAS Sistema de prevención de colisión con el terreno
 GNSS Sistema mundial de navegación por satélite
 GPWS Sistema de advertencia de la proximidad del terreno
 hPa Hectopascal
-HUD Visualizador de “cabeza alta”
+HUD Visualizador de "cabeza alta"
 IFR Reglas de vuelo por instrumentos
 ILS Sistema de aterrizaje por instrumentos
 IMC Condiciones meteorológicas de vuelo por instrumentos
@@ -502,14 +518,15 @@ RAC-OPS 1.005 General
 (b) El operador debe cumplir los requisitos aplicables establecidos en este Reglamento relativos a requisitos adicionales de aeronavegabilidad en los aviones que se operen con fines de transporte aéreo comercial.
 (c) Cada avión se debe operar de acuerdo con los términos de su Certificado de Aeronavegabilidad, Certificado Tipo y dentro de las limitaciones aprobadas y contenidas en el Manual de la Aeronave (AFM).
 (d) Todos los Dispositivos Sintéticos de Entrenamiento (STD), tales como Simuladores de Vuelo o Dispositivos de Entrenamiento de Vuelo (FSTD), que sustituyan a un avión para la realización de entrenamiento y/o verificaciones deben ser previamente aprobados o aceptados por la DGAC para los ejercicios que vayan a ser realizados en los mismos.
-RAC – OPS 1.007 Efectividad.
+RAC - OPS 1.007 Efectividad.
 Hasta la fecha de entrada en vigencia establecida en el párrafo (a) siguiente, los operadores existentes se regirán de acuerdo a las regulaciones nacionales vigentes en la materia.
-(a) La RAC – OPS 1 entrará en vigencia:
+(a) La RAC - OPS 1 entrará en vigencia:
 (1) Para Operadores con aprobación en vigencia, o para aquellas solicitudes de aprobación realizadas antes de la fecha de publicación de esta RAC, a partir de su publicación; o
 (2) Para nuevas solicitudes de aprobación de Operadores aéreos, o modificación de la aprobación existente, a partir de la fecha de publicación oficial de esta RAC.
-(b) Disposiciones transitorias
-(1) La sección RAC-OPS 1.220 (c) Autorización de Aeródromos por el Operador; será aplicable a partir de noviembre de 2020.
-(2) La sección RAC-OPS 1.475 (c) General; será aplicable a partir de noviembre de 2020.
+(*)(b) Disposiciones transitorias
+(1) La sección RAC OPS 1.430(e)(iii) Mínimos de Operación de Aeródromos - General; será aplicable a partir de noviembre de 2022.
+(2) La sección RAC OPS 1.326 Seguridad operacional del compartimiento de carga; será aplicable a partir de noviembre de 2022.
+(*)(Así reformado el inciso b) anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 RAC-OPS 1.010 Exenciones
 (Ver CA OPS 1.010)
 (a) La DGAC, con carácter excepcional y temporal, podrá conceder una exención al cumplimiento de las disposiciones de la RAC-OPS 1, cuando haya constatado la existencia de tal necesidad, y sujeta al cumplimiento de cualquier condición adicional que la DGAC considere necesario a fin de garantizar un nivel aceptable de seguridad en cada caso particular.
@@ -696,16 +713,29 @@ RAC-OPS 1.120 Puesta en peligro de la seguridad
 (2) Se cause o permita que el avión ponga en peligro personas o bienes.
 (b) El operador debe establecer los procedimientos que garanticen la presentación ante la Autoridad competente de la correspondiente denuncia contra las personas que hayan incurrido en los hechos enumerados en el apartado (a) anterior.
 RAC-OPS 1.125 Documentos de a bordo.
-(Ver Apéndice 1 a la RAC-OPS 1.125) y (Ver CA a la RAC OPS 1.125 (a)(4)
+(Ver Apéndice 1 a la RAC-OPS 1.125), (Ver Apéndice 2 al RAC-OPS 1.125) (Ver CA a la RAC OPS 1.125 (a)(4) y (Ver CA a la RAC OPS 1.125 (a)(7)
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (a) El operador debe garantizar que se lleva a bordo, en cada vuelo, los siguientes documentos originales o copias autenticadas:
 (1) El Certificado de Registro de Matricula;
 (2) El Certificado de Aeronavegabilidad;
 (3) Certificado de niveles de ruido, si es aplicable. Cuando ese documento, o una declaración apropiada que atestigüe la homologación en cuanto al ruido, contenida en otro documento aprobado por el estado de matrícula, cuando se expida en un idioma distinto del inglés, se debe incluir una traducción al inglés;
-(4) Se llevará a bordo una copia auténtica certificada del certificado de operador aéreo y una copia de las especificaciones y limitaciones de operación relativas a las operaciones pertinentes al tipo de avión, expedidas conjuntamente con el certificado.
+(4) Se llevará a bordo una copia auténtica certificada del certificado de operador aéreo y una copia de las especificaciones y limitaciones de operación relativas a las operaciones pertinentes al avión, expedidas conjuntamente con el certificado.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (5) La Licencia de Radio de la Aeronave, y
 (6) Certificado/s o Póliza de Seguro de Responsabilidad a terceros.
 (b) Cada miembro de la tripulación debe llevar en cada vuelo, una licencia válida con las habilitaciones requeridas para el tipo de vuelo.
 (c) Cuando el Estado del operador haya expedido el certificado y sus especificaciones relativas a las operaciones en un idioma que no sea el inglés, se debe incluir una traducción oficial a dicho idioma.
+(7) Cuando un avión que opere bajo un acuerdo en virtud del artículo 83 bis concertado entre el estado de matrícula y el estado costarricense, deberá llevar a bordo una copia auténtica certificada del resumen del acuerdo, ya sea en formato electrónico o impreso. Cuando el resumen esté en idioma distinto al inglés, se incluirá una traducción al inglés.
+(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(*)Apéndice 2 al RAC-OPS 1.125 Documentos de a bordo. (Ver RAC-OPS 1.125)
+(a) RESUMEN DEL ACUERDO EN VIRTUD DEL ARTICULO 83 bis
+(1) El RAC-OPS 1.125 requiere que el operador lleve a bordo una copia auténtica certificada del resumen del acuerdo en virtud del Artículo 83 bis, la cual deberá contener la información que figura en el siguiente cuadro:
+(2) Resumen del acuerdo en virtud del Artículo 83 bis:
+Clave:
+(1) dd/mm/aaaa.
+(2) dd/mm/aaaa o N/A si no se aplica.
+(3) Los corchetes indican que hay que incluir información.
+(*)(Así adicionado el apéndice 2) anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 RAC-OPS 1.130 Manuales a bordo.
 (a) El operador debe garantizar que:
 (1) En cada vuelo se lleven a bordo las partes vigentes del Manual de Operaciones relativas a las funciones de la tripulación,
@@ -743,14 +773,15 @@ RAC-OPS 1.140 Información a conservar en tierra
 RAC-OPS 1.145 Autoridad para inspeccionar
 El operador debe garantizar que a toda persona autorizada por la DGAC, se le permita, en cualquier momento, acceder y volar en cualquier avión operado de acuerdo con un COA emitido por la DGAC, entrar y permanecer en la cabina de mando, teniendo en cuenta que el piloto al mando puede rehusar el acceso a la misma si, en su opinión, por ello pudiera ponerse en peligro la seguridad del vuelo. En caso de que el operador, o piloto al mando, denieguen el acceso a una persona autorizada por la DGAC, deben remitir a dicha Autoridad un informe al respecto en el plazo máximo de 48 horas, justificando e indicando los pormenores de dicha decisión. La DGAC evaluará dicho informe y de considerarlo necesario, iniciará un proceso sancionatorio.
 RAC-OPS 1.150 Presentación de documentación y registros
-(a) El operador debe:
-(1) Permitir el acceso a cualquier documento y registro que tenga relación con las operaciones de vuelo o mantenimiento a cualquier persona autorizada por la DGAC; y
-(2) Presentar a solicitud de la DGAC todos los documentos y registros mencionados enun plazo no superior a 72 horas.
+(*)(a) El operador debe:
+(1) Permitir el acceso a cualquier documento y registro que tenga relación con las operaciones de vuelo o mantenimiento a cualquier persona autorizada por la DGAC;
+(2) Cuando un avión que opere bajo un acuerdo en virtud del artículo 83 bis deberá permitir a los inspectores de la DGAC acceder al resumen del acuerdo, para determinar las funciones y obligaciones que conforme al acuerdo el Estado de matrícula ha transferido al estado costarricense cuando realicen actividades de supervisión.
+(*)(Así reformado el inciso a) anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (b) El piloto al mando debe presentar la documentación que se requiere a llevar a bordo, en un período de tiempo razonable, desde que le haya sido requerida por una persona autorizada por la DGAC.
 RAC-OPS 1.155 Conservación de documentos
 (a) El operador debe garantizar que:
 (1) Se conserve cualquier documento original, o copia del mismo, que tenga la obligación de conservar durante un plazo requerido, aunque deje de ser el operador del avión; y
-(2) Cuando un tripulante, del que el operador ha llevado un registro de acuerdo con la Subparte P “Manuales, Bitácoras y Registros”, pase a ser tripulante de otro operador, dicho registro esté disponible para ese tripulante o al nuevo operador.
+(2) Cuando un tripulante, del que el operador ha llevado un registro de acuerdo con la Subparte P "Manuales, Bitácoras y Registros", pase a ser tripulante de otro operador, dicho registro esté disponible para ese tripulante o al nuevo operador.
 RAC-OPS 1.160 Conservación, presentación y utilización de grabaciones de los registradores de vuelo.
 (Ver CA OPS 1.160(a)
 Conservación de grabaciones
@@ -767,13 +798,16 @@ Los términos utilizados en este apartado tienen el siguiente significado:
 (1) Arrendamiento. - Arreglo contractual por el cual un transportista aéreo con la licencia apropiada obtiene el control comercial de toda una aeronave sin transferencia de la propiedad.
 (2) Arrendamiento de un avión sin tripulación (dry lease).- Cuando el avión va a ser operado bajo el Certificado del operador Aéreo (COA) del arrendatario.
 (3) Arrendamiento de un avión con tripulación (wet lease). - Cuando el avión va a ser operado bajo el Certificado del operador Aéreo (COA) del arrendador.
-(4) Fletamento – Entiéndase en esta regulación que el fletamento es un arrendamiento con tripulación para efectos de cubrir operaciones eventuales por tiempo limitado.
+(4) Fletamento - Entiéndase en esta regulación que el fletamento es un arrendamiento con tripulación para efectos de cubrir operaciones eventuales por tiempo limitado.
 (5) Intercambio de aviones- Es el acuerdo, aprobado por las autoridades correspondientes entre dos operadores para intercambiar sus aviones en puntos aprobados, obligándose entre los operadores a operar dichos aviones bajo los procedimientos de operación mantenimiento y MEL aprobados a cada uno en sus especificaciones de operación. (OpSpecs)
 (b) Arrendamiento de aviones.
 (1) Cesión en arrendamiento de aeronaves con tripulación (wet lease out). - El operador que proporcione un avión con su tripulación completa a otro el operador, pero manteniendo todas las funciones y responsabilidades establecidas en la Subparte C del RAC-OPS 1, sigue siendo a todos los efectos el operador del avión.
 (2) Resto de arrendamientos:
 (i) Excepto lo establecido en el apartado (b) (1) anterior, un operador que pretenda utilizar, o ceder, un avión de/a otro operador de un Estado, debe obtener previamente la aprobación de su Autoridad. Cualquier condición que imponga la Autoridad dentro de la aprobación, debe incluirse en el acuerdo de arrendamiento mismo que debe inscribirse en el Registro Aeronáutico correspondiente.
-(ii) Aquellos elementos de los acuerdos de arrendamiento que sean aprobados por la Autoridad, (que sean acuerdos distintos a los de arrendamiento de aviones con tripulación completa y donde no existe transferencia de funciones y responsabilidades), deben considerarse, con relación al avión arrendado, variaciones del COA bajo el que van a operarse los vuelos.
+(ii) Cuando un avión que opere bajo un acuerdo en virtud del artículo 83 bis, el estado de matrícula y/o el estado costarricense deberá transmitir a la OACI el resumen del acuerdo junto con el acuerdo en virtud del Artículo 83 bis para su registro ante el Consejo de la OACI. El resumen del acuerdo deberá incluir la información que figura en el Apéndice 2 al RAC OPS 1.125 con respecto a la aeronave específica y deberá seguir el formato de dicho apéndice.
+(Así reformado el punto ii) anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(iii) Aquellos elementos de los acuerdos de arrendamiento que sean aprobados por la Autoridad, (que sean acuerdos distintos a los de arrendamiento de aviones con tripulación completa y donde no existe transferencia de funciones y responsabilidades), deben considerarse, con relación al avión arrendado, variaciones del COA bajo el que van a operarse los vuelos.
+(Así adicionado el punto iii) anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (3) Lo referente a los requisitos legales que se exijan y los plazos que se establezcan para cada uno de los tipos de contratos de arrendamiento aquí regulados, los establecerácada Estado en su legislación interna.
 (c) Arrendamiento de aviones entre un operador concesionado, otro operador u otro propietario del avión:
 (1) Adquisición de aviones en arrendamientos sin tripulación (drylease-in).
@@ -852,9 +886,10 @@ El operador debe elaborar y mantener un programa de instrucción en seguridad op
 El operador debe elaborar y mantener un medio formal para la comunicación sobre seguridad operacional que asegure que todo el personal tenga pleno conocimiento del SMS, difunda información crítica respecto de la seguridad operacional y explique por qué se toman determinadas medidas sobre seguridad operacional y por qué se introducen o modifican procedimientos de seguridad operacional
 Apéndice 1 al RAC-OPS 1.125 Documentos de a bordo. (Ver RAC-OPS 1.125)
 En el caso de pérdida o robo de los documentos especificados en RAC OPS 1.125, se permite continuar la operación hasta que el vuelo alcance la base principal de operaciones o algún lugar donde los documentos puedan ser repuestos.
-SUBPARTE C – CERTIFICACIÓN Y VIGILANCIA DEL OPERADOR AÉREO
+SUBPARTE C - CERTIFICACIÓN Y VIGILANCIA DEL OPERADOR AÉREO
 RAC-OPS 1.175 Reglas generales para la certificación de un operador (operador) aéreo
-(Ver Apéndice 1 a la RAC OPS 1.175), (Ver Apéndice 2 a la RAC OPS 1.175), (Ver Apéndice 3 a la RAC OPS 1.175), (Ver CA OPS 1.175), (Ver CA OPS 1.175(d) (2)), (Ver CA OPS 1.175(q))
+(Ver Apéndice 1 a la RAC OPS 1.175), (Ver Apéndice 2 a la RAC OPS 1.175), (Ver Apéndice 3 a la RAC OPS 1.175), (Ver CA OPS 1.175), (Ver CA OPS 1.175(d) (2)), (Ver CA OPS 1.175(h), (Ver CA OPS 1.175(q))
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (a) Un operador debe operar un avión con el propósito de realizar transporte aéreo comercial si no es bajo un Certificado de Operador Aéreo (COA) y de acuerdo con los términos y condiciones del mismo, emitido por la DGAC.
 (b) El solicitante de un COA, o de una variación del mismo, debe permitir a la Autoridad examinar todos los aspectos relativos a la seguridad de la operación propuesta que demuestre la idoneidad técnica para la operación.
 (c) El Certificado de Operador Aéreo (COA) autoriza al operador a realizar operaciones de transporte aéreo comercial de conformidad con las especificaciones y limitaciones de operación.
@@ -907,7 +942,7 @@ Director o Gerente del Sistema de Calidad de Mantenimiento y/o Operaciones, o po
 (B) Experiencia con operadores aéreos en acuerdo con lo establecido en el párrafo (k)(5) anterior (Auditor, instructor, supervisor, entre otros.)
 (C) Debe demostrar conocimiento general de las regulaciones generales
 (iii) Mantenimiento
-El responsable del Sistema de Calidad de Mantenimiento, o posición equivalente debe acreditar cumplimiento con los requisitos establecidos en la MRAC–145.30 Requisitos del Personal Gerencial.
+El responsable del Sistema de Calidad de Mantenimiento, o posición equivalente debe acreditar cumplimiento con los requisitos establecidos en la MRAC-145.30 Requisitos del Personal Gerencial.
 (iv) Otros casos
 (A) La DGAC en circunstancias especiales determinará los requisitos en base y equivalencia a lo expuesto en (i), (ii) y (iii) anteriores.
 (o) Capacitación:
@@ -921,15 +956,16 @@ El responsable nominado debe tener un conocimiento profundo del concepto de oper
 (s) El operador debe garantizar que cada vuelo se lleve a cabo de acuerdo con el Manual de Operaciones.
 (t) El operador debe disponer de los medios adecuados para garantizar la asistencia segura en tierra de sus vuelos.
 (u) El operador debe garantizar que sus aviones estén equipados y sus tripulaciones calificadas, según sea requerido, para cada zona y tipo de operación.
-(v) El operador debe cumplir los requisitos de mantenimiento, de acuerdo con la Subparte M “Mantenimiento del Avión”, para todos los aviones operados bajo los términos de su COA.
-(w) El operador debe facilitar para su aceptación y/o aprobación a la DGAC una copia de su Manual de Operaciones, según se especifica en la Subparte P “ Manuales, Bitácoras y Registros” así como de todas sus modificaciones y revisiones.
+(v) El operador debe cumplir los requisitos de mantenimiento, de acuerdo con la Subparte M "Mantenimiento del Avión", para todos los aviones operados bajo los términos de su COA.
+(w) El operador debe facilitar para su aceptación y/o aprobación a la DGAC una copia de su Manual de Operaciones, según se especifica en la Subparte P " Manuales, Bitácoras y Registros" así como de todas sus modificaciones y revisiones.
 (x) El operador debe mantener medios de apoyo operativo adecuados para el área y tipo de operación en la base principal de operaciones.
 (y) El COA es un documento personal e intransferible a cualquier otra entidad física o jurídica.
-(z) En caso de realizarse evaluaciones técnicas conjuntas, las actividades que deban ser realizadas por la DGAC de acuerdo con lo establecido en esta RAC OPS 1, deben ser llevadas a cabo por el equipo conjunto.
+(z) La CA OPS 1.175 contiene información adicional que debe ser utilizada como guía para todo el proceso de la emisión de un Certificado de Operador Aéreo (COA).
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 RAC-OPS 1.180 Emisión, variación y continuidad de la validez de un COA
 (a) No se debe emitir o variar un COA y éste no debe continuar siendo válido, a menos que:
 (1) Los aviones que se operen tengan un Certificado de Aeronavegabilidad estándar que se haya emitido de acuerdo con el Anexo 8 de OACI y el RAC 21 Decreto Ejecutivo N° 28642, Procedimientos Aceptación Certificados Productos Aeronáuticos y sus reformas.
-(2) El sistema de mantenimiento haya sido aprobado por la DGAC de acuerdo con la Subparte M “Mantenimiento del Avión” ; y
+(2) El sistema de mantenimiento haya sido aprobado por la DGAC de acuerdo con la Subparte M "Mantenimiento del Avión" ; y
 (3) El operador haya demostrado a satisfacción de la DGAC que es capaz de:
 (i) Establecer y mantener una organización adecuada;
 (ii) Establecer y mantener un sistema de calidad de acuerdo con la RAC-OPS 1.035;
@@ -991,7 +1027,7 @@ Apéndice 2 del RAC-OPS 1.175, Gestión y organización del titular de un COA
 (3) Una persona nominada como Gerente o Responsable de área nombrado por el titular de un COA, no puede ser nominado como Gerente de área de otro COA, a menos que sea aceptable para las Autoridades afectadas.
 (4) Las personas nominadas como Gerentes o Responsables de área deben ser contratadas para trabajar las horas suficientes de forma que puedan desarrollar completamente las funciones de gestión asociadas con el alcance y escala de la operación.
 (c) Idoneidad y supervisión de personal
-(1) Miembros de la tripulación. El operador debe contratar un número suficiente de tripulantes de vuelo y de cabina de pasajeros para la operación prevista, que se hayan entrenado y verificado, según corresponda, de acuerdo con lo establecido en la Subparte N “Tripulación de vuelo” y la Subparte O “Tripulación de cabina”.
+(1) Miembros de la tripulación. El operador debe contratar un número suficiente de tripulantes de vuelo y de cabina de pasajeros para la operación prevista, que se hayan entrenado y verificado, según corresponda, de acuerdo con lo establecido en la Subparte N "Tripulación de vuelo" y la Subparte O "Tripulación de cabina".
 (2) Personal de tierra:
 (i) La cantidad del personal de tierra dependerá de la naturaleza y de la magnitud de las operaciones. En particular los departamentos de operaciones y asistencia en tierra, deben estar dotados de personal entrenado y con un minucioso conocimiento de sus responsabilidades en la organización.
 (ii) El operador que contrate a otras organizaciones para prestar determinados servicios, debe de elaborar políticas y procedimientos para los trabajos que realicen en su nombre y además debe conservar la responsabilidad del cumplimiento de los estándares adecuados. En estas circunstancias, debe ser obligación de uno de los responsables garantizar que cualquier contratista cumpla los estándares requeridos.
@@ -1005,7 +1041,8 @@ Apéndice 2 del RAC-OPS 1.175, Gestión y organización del titular de un COA
 (e) Documentación. El operador debe realizar los acuerdos necesarios para la elaboración de manuales, sus enmiendas y otra documentación.
 Apéndice 3 del RAC OPS 1.175. Certificado de Operador Aéreo (COA)
 (a) El Certificado de Operador Aéreo (COA) y sus especificaciones relativas a las operaciones, específicas para cada modelo deben contener la información mínima requerida en los cuadros (1) y (2) respectivamente.
-(b) El Certificado de Operador Aéreo y sus especificaciones relativas a las operaciones deben definir las operaciones que está autorizado a realizar el operador.
+(b) El Certificado de Operador Aéreo y sus especificaciones relativas a las operaciones deben definir las operaciones que está autorizado a realizar el operador, incluidas las aprobaciones específicas, condiciones y limitaciones.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (1) Plantilla del COA
 CERTIFICADO DE OPERADOR AÉREO (COA)
 (3) | Estado del operador (1) | (3)
@@ -1031,46 +1068,48 @@ Clave:
 (13) Insertar referencia a las normas de aviación civil pertinentes.
 (14) Fecha de la expedición del COA (dd,mm,aaaa)
 (15) Título, nombre y firma del representante de la autoridad expedidora. El COA también podrá llevar un sello oficial.
-(c) Especificaciones relativas a las operaciones para cada modelo de aeronave.
-(1) Para cada modelo de aeronave de la flota del operador, identificado por marca, modelo y serie de la aeronave, se debe incluir la siguiente lista de autorizaciones, condiciones y limitaciones; información de contacto de la autoridad expedidora, nombre y número de COA del operador, fecha de expedición y firma del representante de la autoridad expedidora, modelo de la aeronave, tipos y área de operaciones, limitaciones y autorizaciones especiales.
+(*)(c) Especificaciones relativas a las operaciones para cada modelo de aeronave.
+(1) Para cada modelo de aeronave de la flota del operador, identificado por marca, modelo y serie de la aeronave, se debe incluir la información siguiente: información de contacto de la autoridad expedidora, nombre y número de COA del operador, fecha de expedición y firma del representante de la autoridad expedidora, modelo de la aeronave, tipos y área de operaciones, limitaciones y aprobaciones específicas.
+(i) Si las aprobaciones específicas y limitaciones son idénticas para dos o más modelos, esos modelos podrán agruparse en una lista única.
 (2) El formato de las especificaciones relativas a las operaciones al que se hace referencia en el punto (b) anterior, debe ser el siguiente:
-ESPECIFICACIONES DE LAS OPERACIONES (sujetas a las condiciones aprobadas en el Manual de operaciones)
-Información de contacto de la autoridad expedidora.(1) Teléfono: Fax: Correo-e:
-COA Número. :(2) Nombre del operador: (3) Fecha (4) Dba Razón social Firma:
+ESPECIFICACIONES RELATIVAS A LAS OPERACIONES (sujetas a las condiciones aprobadas en el Manual de operaciones)
+Información de contacto de la autoridad expedidora. (1) Teléfono: Fax: Correo-e:
+COA Número. :(2) Nombre del operador: (3) Fecha (4) Firma: Dba Razón social: (3)
 Modelo de aeronave: (5)
-Tipos de operaciones: Transporte aéreo comercial ❑ Pasajeros; ❑ Carga; ❑ otros ......... (6)
+Tipos de operaciones: Transporte aéreo comercial q Pasajeros; q Carga; q otros....(6)
 Área de operaciones: (7)
 Limitaciones especiales: (8)
 Aprobación Específica | Si | No | Descripción (9) | Comentarios
-Mercancías peligrosas | ❑ | ❑ | |
-Operaciones con baja visibilidad Aproximación y aterrizaje | ❑ ❑ | ❑ ❑ | CAT1 ....(10) RVR: m DH: ft RVR: (11) m |
-Créditos Operacionales | ❑ | ❑ | (12) |
-RVSM(13) ❑ N/A | ❑ | ❑ | |
-EDTO(14) ❑ N/A | | ❑ | Umbral de tiempo (15): minutos Tiempo de desviación máximo:(15) minutos |
-Especificaciones de navegación AR para las operaciones PBN (16) | ❑ | ❑ | |
+Mercancías peligrosas | q | q | |
+Operaciones con en condiciones de baja visibilidad Aproximación y aterrizaje Despegue | q q | q q | CAT1 . (10) RVR: m DH: ft RVR: (11) m |
+Créditos Operacionales | q | q | (12) |
+RVSM (13) q N/A | q | q | |
+EDTO (14) q N/A | q | q | Umbral de tiempo (15): minutos Tiempo de desviación máximo:(15): minutos |
+Especificaciones de navegación AR para las operaciones PBN | q | q | (16) |
 Mantenimiento de la Aeronavegabilidad | | | (17) |
-EFB | | | (18) |
-Otros (19) | ❑ | ❑ | |
+EFB | q | q | (18) |
+Otros (19) | q | q | |
 Clave:
-(1) Números de teléfono y fax de la autoridad, incluido el código de área. Incluir también dirección de correo-e, si posee.
+(1) Números de teléfono de la Autoridad, incluido el código de área. Incluir también dirección de correo-e, y número de fax, si posee.
 (2) Insertar número de COA correspondiente.
-(3) Insertar el nombre registrado del El operador y su razón social. Si difiere de aquel Insértese la abreviatura "Dba " (abreviatura de la locución inglesa "Doing business as", que significa "realiza sus actividades bajo la razón social siguiente") antes de la razón social
+(3) Insertar el nombre registrado del El operador y su razón social. Si difiere de aquel Insértese la abreviatura "Dba " (abreviatura de la locución inglesa "Doing business as", que significa "realiza sus actividades bajo la razón social siguiente") antes de la razón social.
 (4) Fecha de expedición de las especificaciones relativas a las operaciones (dd-mm-aaaa) y firma del representante de la autoridad expedidora.
-(5) Insertar la designación asignada por el Equipo de taxonomía común CAST (Equipo de Seguridad de la Aviación Comercial) /OACI de la marca, modelo y serie, o serie maestra, de la aeronave, si se ha designado una serie (p. ej., Boeing-737-3K2 o Boeing-777-232). La taxonomía CAST/OACI está disponible en el sitio web: http://wwwintlaviationstandards.orgt
+(5) Insertar la designación asignada por el Equipo de taxonomía común CAST (Equipo de Seguridad de la Aviación Comercial) /OACI de la marca, modelo y serie, o serie maestra, de la aeronave, si se ha designado una serie (p. ej., Boeing-737-3K2 o Boeing-777-232). La taxonomía CAST/OACI está disponible en el sitio web: http://www.intlaviationstandards.org/.
 (6) Otro tipo de transporte (especificar) (p. ej., servicio médico de emergencia).
-(7) Enumerar las aéreas geográficas en que se realizara la operación autorizada (por coordenadas geográficas o rutas específicas, región de información de vuelo o límites nacionales o regionales).
+(7) Enumerar las aéreas geográficas en que se realizara la operación autorizada (por coordenadas geográficas o rutas específicas, región de información de vuelo o límites nacionales o regionales) definidas por la autoridad expedidora.
 (8) Enumerar las limitaciones especiales aplicables (p. ej., VFR únicamente, de día únicamente).
-(9) Enumerar en esta columna los criterios más permisivos para cada aprobación o tipo de aprobación (con los criterios pertinentes).
-(10) Insertar la categoría de la operación de aproximación por instrumentos (CATII, IIIA, IIIB o IIIC). Insertar la RVR mínima en metros y la altura de decisión en pies. Se utiliza una línea por categoría de aproximación enumerada.
-(11) Insertar la RVR mínima de despegue aprobada en metros. Se puede utilizar una Línea por aprobación si se otorgan aprobaciones diferentes.
-(12) Lista de las capacidades de a bordo (es decir, aterrizaje automático, HUD, EVS, SVS, CVS) y créditos operacionales conexos otorgados.
-(13) El casillero “No se aplica (N/A)” solo puede tildarse si el techo máximo de la aeronave es inferior a FL 290.
-(14) Si la aprobación de los vuelos con tiempo de desviación extendido (EDTO) no se aplica con base en la disposición del seleccione “N/A”. De otro modo, deben especificarse el umbral de tiempo y el tiempo de desviación máximo.
-(15) El umbral de tiempo y el tiempo de desviación máximo también pueden indicarse en distancia (NM) así como el tipo de motor.
-(16) Navegación basada en la performance (PBN): se utiliza una línea para cada aprobación de las especificaciones de navegación PBN AR (p. ej., RNP AR APCH) con las limitaciones pertinentes enumeradas en la columna "Descripción".
+(9) Enumerar en esta columna los criterios más permisivos para cada aprobación específica (con los criterios pertinentes).
+(10) Insertar la categoría de la operación de aproximación de precisión (CAT II o III). Insertar el RVR mínimo en metros y la altura de decisión en pies. Se utiliza una línea por categoría de aproximación enumerada.
+(11) Insertar el RVR mínimo de despegue aprobado en metros., o la visibilidad horizontal equivalente si no se usa RVR. Se puede utilizar una Línea por aprobación si se otorgan aprobaciones diferentes.
+(12)Lista de las capacidades de a bordo (es decir, aterrizaje automático, HUD, EVS, SVS, CVS) y créditos operacionales conexos otorgados.
+(13) El casillero "No se aplica (N/A)" solo puede tildarse si el techo máximo de la aeronave es inferior a FL 290.
+(14) Si la aprobación específica de los vuelos con tiempo de desviación extendido (EDTO) no se aplica con base en la disposición del RAC-OPS 1.246 seleccione "N/A". De otro modo, deben especificarse el umbral de tiempo y el tiempo de desviación máximo.
+(15)El umbral de tiempo y el tiempo de desviación máximo también pueden indicarse en distancia. Los detalles de cada combinación aeronave-motor para la cual se ha establecido el umbral de tiempo y se ha otorgado el tiempo de desviación máximo pueden incluirse bajo "Comentarios". Se puede utilizar una línea por aprobación si se otorgan aprobaciones diferentes.
+(16)Navegación basada en la performance (PBN): se utiliza una línea para cada aprobación de las especificaciones de navegación PBN AR (p. ej., RNP AR APCH) con las limitaciones pertinentes enumeradas en la columna "Descripción".
 (17) Insertar el nombre de la persona/organización responsable de garantizar el mantenimiento de la aeronavegabilidad de la aeronave, así como el reglamento que el trabajo exige, es decir, el de la normatividad COA o una aprobación especifica (p. ej., EC2042/2003, Parte M, Subparte G).
-(18) Lista de las funciones EFB con cualesquiera de las limitaciones aplicables.
-(19) En este espacio pueden ingresarse otras autorizaciones o datos, utilizando una línea (o cuadro de varias líneas) por autorización (p.ej., autorización especial de aproximación MNPS, performance de navegación aprobada).
+(18)Lista de las funciones EFB utilizadas para la operación segura de los aviones y cualesquiera de las limitaciones aplicables.
+(19)En este espacio pueden ingresarse otras autorizaciones o datos, utilizando una línea (o cuadro de varias líneas) por autorización (p.ej., autorización especial de aproximación, performance de navegación aprobada).
+(*)(Así reformado el inciso c) anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 SUBPARTE D PROCEDIMIENTOS OPERACIONALES
 RAC-OPS 1.195 Control operacional y despacho de vuelos. Funciones y responsabilidades.
 (Ver Apéndice 1 al RAC-OPS 1.195),(Ver CA OPS 1.195),(Ver CA OPS 1.195(e)),(Ver CA OPS 1.195(c))
@@ -1128,7 +1167,7 @@ RAC OPS 1.198 Comunicación de aeronaves con CCOD
 (2) Deben mantener radiocomunicación apropiada en doble sentido, entre cada aeronave y la dependencia de control de tránsito aéreo
 (b) El sistema de comunicación entre la aeronave y la oficina de despacho debe ser independiente de los sistemas de comunicación de la dependencia ATC.
 RAC-OPS 1.200 Manual de Operaciones
-El operador debe proporcionar un ejemplar del manual de operaciones elaborado de acuerdo con la Subparte P “Manuales, Bitácoras y Registros”, junto con todas las enmiendas y revisiones para someterlo a revisión y aceptación y, donde se requiera, a aprobación, además debe proporcionar dicho Manual de Operaciones, para uso y guía del personal de operaciones. El Manual de Operaciones se modificará o revisará, siempre que sea necesario, a fin de asegurar que este al día la información en el contenida. Todas estas modificaciones o revisiones se comunicarán al personal que deba usar dicho manual. El operador debe incorporar en el Manual de Operaciones todo texto obligatorio que la DGAC le pueda exigir.
+El operador debe proporcionar un ejemplar del manual de operaciones elaborado de acuerdo con la Subparte P "Manuales, Bitácoras y Registros", junto con todas las enmiendas y revisiones para someterlo a revisión y aceptación y, donde se requiera, a aprobación, además debe proporcionar dicho Manual de Operaciones, para uso y guía del personal de operaciones. El Manual de Operaciones se modificará o revisará, siempre que sea necesario, a fin de asegurar que este al día la información en el contenida. Todas estas modificaciones o revisiones se comunicarán al personal que deba usar dicho manual. El operador debe incorporar en el Manual de Operaciones todo texto obligatorio que la DGAC le pueda exigir.
 RAC-OPS 1.205 Competencia del personal de operaciones
 El operador debe garantizar que todo el personal asignado, o que tenga una participación directa en las operaciones de tierra y de vuelo esté debidamente instruido, haya demostrado su capacidad para desempeñar sus funciones particulares, conozca sus responsabilidades y la relación entre sus obligaciones y la operación en su conjunto.
 RAC-OPS 1.210 Establecimiento de procedimientos.
@@ -1175,11 +1214,14 @@ RAC-OPS 1.240 Rutas y áreas de operación
 (b) El operador debe garantizar que se lleven a cabo las operaciones de acuerdo con cualquier restricción que haya impuesto la DGAC en cuanto a rutas o áreas de operación.
 RAC-OPS 1.241 Operación en espacio aéreo definido con separación vertical mínima reducida (RVSM).
 (Ver Apéndice 1 al RAC OPS 1.241),
-(Ver Anexo 2, Sección 2 al RAC-OPS 1 – Operaciones Especiales)
-Una autorización RVSM es válida a escala mundial en el entendido de que los procedimientos para la operación específica en una región dada estarán indicados en el manual de operaciones o en las orientaciones correspondientes a la tripulación, se consignan las siguientes disposiciones:
-(a) El operador no debe operar un avión en aquellas partes definidas del espacio aéreo donde, basado en acuerdos regionales de navegación aérea, se aplique una separación vertical mínima de 300 m (1000 pies) a no ser que esté aprobado por la DGAC (Aprobación operacional RVSM).(Ver RAC-OPS 1.872)
-(b) Para obtener la aprobación operacional RVSM, El operador debe demostrar que:
-(1) La capacidad de performance de navegación vertical de la aeronave satisface los requisitos especificados en el Anexo 2 Sección 2 del RAC-OPS 1 “Operaciones Especiales”;
+(Ver Anexo 2, Sección 2 al RAC-OPS 1 - Operaciones Especiales)
+Una aprobación específica de RVSM es válida a escala mundial en el entendido de que los procedimientos para la operación específica en una región dada estarán indicados en el manual de operaciones o en las orientaciones correspondientes a la tripulación, se consignan las siguientes disposiciones:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(a) El operador no debe operar un avión en aquellas partes definidas del espacio aéreo donde, basado en acuerdos regionales de navegación aérea, se aplique una separación vertical mínima de 300 m (1000 pies) a no ser que esté aprobado por la DGAC (Aprobación operacional RVSM). (Ver RAC-OPS 1.872)
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(b) Para obtener la aprobación específica RVSM, El operador debe demostrar que:
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(1) La capacidad de performance de navegación vertical de la aeronave satisface los requisitos especificados en el Anexo 2 Sección 2 del RAC-OPS 1 "Operaciones Especiales";
 (2) El operador ha establecido procedimientos adecuados con respecto a las prácticas y programas de aeronavegabilidad (mantenimiento y reparación) continuos; y
 (3) El operador ha establecido procedimientos y entrenamiento adecuados (inicial, recurrente) respecto a la tripulación de vuelo para operaciones en espacio aéreo RVSM
 (4) El operador ha establecido procedimientos y entrenamiento adecuados (inicial, recurrente, entre otros.) respecto a los despachadores y personal de mantenimiento.
@@ -1192,8 +1234,11 @@ Una autorización RVSM es válida a escala mundial en el entendido de que los pr
 (2) Adoptar las medidas correctivas inmediatas en la forma que lo establece el apartado d) de la RAC OPS 1.241.
 (f) El operador aprobado en sus Especificaciones de Operación para operar en espacio aéreo RVSM deberá someter a vigilancia de la performance de mantenimiento de altitud, una vez cada dos años, o a intervalos de 1000 horas de vuelo por avión, de ambos intervalos, el que sea más largo, como mínimo a dos aviones de cada grupo de tipos de aeronaves aprobadas. En el caso de que los grupos de tipos de aeronaves consistan en un solo avión, dicho avión deberá someterse a vigilancia en el período especificado.
 (g) Para satisfacer el requisito en los párrafos (e) y (f) se podrán utilizar los datos de vigilancia de cualquier programa de vigilancia regional establecido de conformidad con3.3.5.2 del Anexo 11 de la OACI.
-(h) El Estado de Costa Rica a través de la DGAC responsables de espacios aéreos en que se aplica RVSM, y habiendo emitido autorizaciones RVSM a los Operadores Aéreos, tomará las medidas necesarias para aquellos operadores que operen en espacio aéreo RVSM sin una autorización validada.
+(h) El Estado de Costa Rica a través de la DGAC responsables de espacios aéreos en que se aplica RVSM, y habiendo emitido aprobaciones específicas de RVSM a los Operadores Aéreos, tomará las medidas necesarias para aquellos operadores que operen en espacio aéreo RVSM sin una aprobación específica de RVSM válida.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 Nota: Estas disposiciones y procedimientos toman en cuenta tanto la situación en que la aeronave en cuestión está operando sin aprobación en el espacio aéreo del Estado, como las situaciones en que un el operador de cuya supervisión en materia de reglamentación sea responsable el Estado de Costa Rica se encuentra operando sin la aprobación necesaria en el espacio aéreo de otro Estado.
+(i) Estas disposiciones y procedimientos toman en cuenta tanto la situación en que la aeronave en cuestión está operando sin aprobación específica en el espacio aéreo del Estado, como las situaciones en que un el operador de cuya supervisión en materia de reglamentación sea responsable el Estado de Costa Rica se encuentra operando sin la aprobación específica necesaria en el espacio aéreo de otro Estado.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 RAC-OPS 1.243 Operaciones en zonas con requisitos específicos de performance de navegación (PBN).
 (Ver CA OPS 1.243), (Ver Anexo 2, Sección 2 al RAC OPS 1 Operaciones Especiales)
 (a) El operador no debe operar un avión en zonas definidas o en porciones definidas de un espacio aéreo especifico, basado en acuerdos regionales de navegación aérea, donde estén establecidas especificaciones de performance mínima de navegación, a no ser que haya:
@@ -1203,7 +1248,7 @@ RAC-OPS 1.243 Operaciones en zonas con requisitos específicos de performance de
 (4) Requisitos en cuanto a las calificaciones y las competencias de la tripulación de vuelo, de acuerdo con las especificaciones apropiadas de navegación;
 (5) Un programa de instrucción para el personal pertinente, que sea congruente con las operaciones previstas; y
 (6) Procedimientos de mantenimiento apropiados para garantizar el mantenimiento de la aeronavegabilidad, de acuerdo con las especificaciones apropiadas de navegación.
-(b) La capacidad de performance de navegación de la aeronave satisface los requisitos especificados en el Anexo 2 Sección 2 del RAC OPS 1 “Operaciones Especiales”.
+(b) La capacidad de performance de navegación de la aeronave satisface los requisitos especificados en el Anexo 2 Sección 2 del RAC OPS 1 "Operaciones Especiales".
 (c) El operador debe establecer un programa de entrenamiento y material adecuado (inicial, recurrente), para las tripulaciones de vuelo que muestre que las prácticas y procedimientos operacionales y el entrenamiento relacionado a operaciones en espacio aéreo definido como se establece en las especificaciones y limitaciones de operación.
 (d) El operador ha establecido procedimientos y entrenamiento adecuados (inicial, recurrente) respecto a los despachadores y personal de mantenimiento respecto a operaciones en espacio aéreo definido como se establece en las especificaciones y limitaciones de operación.
 (e) El operador debe establecer un sistema de aeronavegabilidad continuada para las instalaciones de equipos de navegación abordo para operaciones en espacio aéreo definido como se establece en las especificaciones y limitaciones de operación.
@@ -1245,7 +1290,7 @@ RAC-OPS 1.245 Distancia máxima desde un aeródromo adecuado para aviones bimoto
 (2) La distancia máxima a un aeródromo adecuado determinada de acuerdo con los subpárrafos (a) y (b) anteriores.
 (d) Las velocidades y altitudes (niveles de vuelo) especificados anteriormente se entiende que deben ser empleadas únicamente para establecer la distancia máxima desde un aeródromo adecuado.
 RAC-OPS 1.246. Requisitos adicionales para los vuelos de más de 60 minutos en aviones con motores de turbina hasta un aeródromo de alternativa en ruta, comprendidas las operaciones con tiempo de desviación extendido (EDTO).
-(Ver Anexo 2 Sección 2 al RAC OPS 1 – Operaciones Especiales-), (Ver CA OPS 1.246).
+(Ver Anexo 2 Sección 2 al RAC OPS 1 - Operaciones Especiales-), (Ver CA OPS 1.246).
 (a) Requisitos para los vuelos de más de 60 minutos hasta un aeródromo de alternativa en ruta. Los operadores que realicen vuelos de más de 60 minutos desde un punto en una ruta hasta un aeródromo de alternativa en ruta, se deben asegurar de que:
 (1) para todos los aviones:
 (i) se identifiquen los aeródromos de alternativa en ruta; y
@@ -1256,9 +1301,13 @@ RAC-OPS 1.246. Requisitos adicionales para los vuelos de más de 60 minutos en a
 (2) procedimientos operacionales; y
 (3) programas de instrucción.
 (b) Requisitos para operaciones con tiempo de desviación extendido (EDTO)
-(1) Salvo que la DGAC haya aprobado de manera específica la operación, ningún avión con dos o más motores de turbina debe realizar operaciones en una ruta en la que el tiempo de desviación hasta un aeródromo de alternativa en ruta desde un punto en la ruta, calculado en condiciones ISA y de aire en calma a la velocidad de crucero con un motor inactivo para aviones con dos motores de turbina y a la velocidad de crucero con todos los motores en marcha para los aviones con más de dos motores de turbina, exceda del umbral de tiempo establecido por dicha DGAC para tales operaciones.
-(2) El tiempo de desviación máximo para el operador de un tipo de avión en particular que realiza operaciones con tiempo de desviación extendido, debe ser aprobado por la DGAC.
-(3) Al aprobar el tiempo de desviación máximo apropiado para un el operador de un tipo de avión en particular que realiza operaciones con tiempo de desviación extendido, la DGAC se debe asegurar de que:
+(Así reformado el inciso b) por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(1) Salvo que la DGAC haya expedido una aprobación específica para EDTO, ningún avión con dos o más motores de turbina debe realizar operaciones en una ruta en la que el tiempo de desviación hasta un aeródromo de alternativa en ruta desde un punto en la ruta, calculado en condiciones ISA y de aire en calma a la velocidad de crucero con un motor inactivo para aviones con dos motores de turbina y a la velocidad de crucero con todos los motores en marcha para los aviones con más de dos motores de turbina, exceda del umbral de tiempo establecido por dicha DGAC para tales operaciones. En la aprobación específica se indicará el umbral de tiempo aplicable establecido para cada avión y combinación de motores en particular.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(2) Al expedir una aprobación específica para realizar operaciones con tiempo de desviación extendido, la DGAC especificará el tiempo máximo de desviación otorgado al operador para cada avión y combinación de motores en particular.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(3) Al especificar el tiempo de desviación máximo apropiado para un el operador de un tipo de avión en particular que realiza operaciones con tiempo de desviación extendido, la DGAC se debe asegurar de que:
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (i) para todos los aviones, no se sobrepase la limitación de tiempo más restrictiva de un sistema significativo para EDTO, si corresponde, indicada en el manual de vuelo del avión (directamente o por referencia) y correspondiente a esa operación en particular; y
 (ii) para los aviones con dos motores de turbina, el avión tenga certificación para EDTO.
 (4) No obstante, lo dispuesto en la RAC-OPS 1.246(b)(3)(i)), la DGAC, basándose en los resultados de una evaluación de riesgos de seguridad operacional específica realizada por el operador mediante la cual se demuestre cómo se debe mantener un nivel de seguridad operacional equivalente, puede aprobar los vuelos que superan los límites de tiempo del sistema con mayor limitación de tiempo. La evaluación de riesgos de seguridad operacional específica debe incluir, como mínimo, lo siguiente:
@@ -1269,7 +1318,8 @@ RAC-OPS 1.246. Requisitos adicionales para los vuelos de más de 60 minutos en a
 (v) medidas de mitigación específicas.
 (5) Para los aviones que se utilizan en EDTO, el combustible adicional que se requiere en el Apéndice 1 al RAC-OPS 1.255(a) se debe incluir el combustible necesario para cumplir con la situación de combustible crítico para EDTO según lo establecido por la DGAC.
 (6) No se debe proseguir con un vuelo más allá del umbral de tiempo conforme al RAC-OPS 1.246(b) a menos que se haya revaluado la disponibilidad de los aeródromos de alternativa en ruta identificados y la información más reciente indique que, para la hora prevista de utilización, las condiciones en esos aeródromos corresponderán o serán superiores a los mínimos de utilización de aeródromo establecidos por el operador para la operación. Si se identifican condiciones que pudieran impedir una aproximación y un aterrizaje seguros en ese aeródromo para la hora prevista de utilización, se debe determinar la adopción de medidas alternativas.
-(7) Al aprobar el tiempo de desviación máximo para aviones con dos motores de turbina, la DGAC se debe asegurar de que se tome en cuenta lo siguiente para proporcionar el nivel general de seguridad operacional:
+(7) Al especificar el tiempo de desviación máximo para aviones con dos motores de turbina, la DGAC se debe asegurar de que se tome en cuenta lo siguiente para proporcionar el nivel general de seguridad operacional:
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (i) fiabilidad del sistema de propulsión;
 (ii) certificado de aeronavegabilidad para EDTO del tipo de avión; y
 (iii) programa de mantenimiento para EDTO.
@@ -1391,6 +1441,9 @@ RAC-OPS 1.290 Preparación del vuelo
 (12) La carga está distribuida correctamente y asegurada;
 (13) El peso del avión, al inicio de la carrera de despegue, debe ser tal que se puede llevar a cabo el vuelo de acuerdo con las Subpartes desde F hasta I, según sea aplicable; y
 (14) Se puede cumplir con cualquier limitación operativa además de las que se indican en los anteriores subpárrafos (9) y (14).
+(*)(c) El operador debe asegurarse de que no se inicie o continúe un vuelo según lo previsto a menos que se haya determinado, por todos los medios razonables al alcance, que el espacio aéreo en la ruta prevista, desde el aeródromo de salida hasta el aeródromo de llegada, incluidos los aeródromos de despegue, de destino y de alternativa en ruta previstos, pueda utilizarse de manera segura para la operación planificada. Cuando se prevea operar sobre zonas de conflicto o cerca de ellas, se llevará a cabo una evaluación del riesgo y se tomarán medidas de mitigación del riesgo apropiadas para preservar la seguridad operacional del vuelo.
+(i) En esta norma, por "medios razonables" se entiende el uso, en el punto de salida o mientras la aeronave está en vuelo, de la información de que disponga el operador, ya sea la publicada oficialmente por los servicios de información aeronáutica o la que pueda conseguirse fácilmente de otras fuentes.
+(*)(Así adicionado el inciso c) anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 RAC OPS 1.292 Requisitos adicionales para las operaciones con un solo piloto con reglas de vuelo por instrumentos (IFR) o de noche
 (a) Un avión no será operado en condiciones IFR o de noche por una tripulación de vuelo constituida por un solo piloto, salvo que la operación haya sido específicamente aprobada por la DGAC.
 (b) Un solo piloto no debe realizar operaciones IFR o de noche, a menos que:
@@ -1404,9 +1457,11 @@ RAC-OPS 1.295 Selección de aeródromos.
 (Ver CA OPS 1.295), (Ver CA OPS 1.295 (c)(1)(ii))
 (a) Al planificar un vuelo el operador debe establecer procedimientos para la selección de aeródromos de destino y/o alternos de acuerdo con el RAC-OPS 1.220.
 (b) El operador debe seleccionar y especificar en el plan operacional de vuelo un aeródromo alterno para el despegue si no fuera posible volver al aeródromo de salida por motivos meteorológicos o de performance. El aeródromo alterno de despegue debe estar situado dentro de los tiempos de vuelo siguientes del aeródromo de salida:
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (1) para aviones bimotores una hora a la velocidad de crucero, con un motor inoperativo de acuerdo con el AFM, en condiciones estándar con aire en calma, basadas en el peso actual de despegue; o
 (2) para los aviones de tres y cuatro motores, un tiempo de vuelo de dos horas a la velocidad de crucero con un motor inoperativo, de acuerdo con el AFM, en condiciones estándar, con aire en calma, basadas en el peso real de despegue; y
-(3) para los aviones que se utilizan en operaciones con tiempo de desviación extendido (EDTO), cuando no está disponible ningún aeródromo de alternativa que cumpla los criterios de distancia de 1 y 2 anteriores, el primer aeródromo de alternativa disponible situado dentro de la distancia equivalente al tiempo de desviación máximo aprobado del operador considerando el peso de despegue real.
+(3) para los aviones que se utilizan en operaciones con tiempo de desviación extendido (EDTO), cuando no está disponible ningún aeródromo de alternativa que cumpla los criterios de distancia de 1 y 2 anteriores, el primer aeródromo de alternativa disponible situado dentro de la distancia equivalente al tiempo de desviación máximo especificado del operador considerando el peso de despegue real.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (4) si el AFM no estipula una velocidad de crucero con un motor inoperativo, la velocidad que se debe emplear para hacer los cálculos debe ser la que se logre con el/los restantes/s motor/es ajustados a la máxima potencia continua (MCT).
 (c) Para un vuelo que haya de efectuarse de acuerdo con las reglas de vuelo por instrumentos, se debe seleccionar y especificar al menos un aeródromo de alternativa de destino en el plan operacional de vuelo y en el plan de vuelo ATS, a no ser que:
 (1) la duración del vuelo desde el aeródromo de salida, o desde el punto de nueva planificación en vuelo al aeródromo de destino sea tal que, teniendo en cuenta todas las condiciones meteorológicas y la información operacional relativa al vuelo, a la hora prevista de su utilización, exista certidumbre razonable de que:
@@ -1444,7 +1499,7 @@ Nota 1 RVR. Nota 2 El techo debe estar en o por encima de la MDH.
 (c) Mínimos de planificación para un aeródromo alterno de ruta. El operador no debe seleccionar un aeródromo como aeródromo alterno de ruta a menos que los correspondientes informes o predicciones meteorológicos, o cualquier combinación de los mismos, indiquen que durante un período que comienza 1 hora antes y termina 1 hora después del tiempo previsto de llegada al aeródromo, las condiciones meteorológicas deben estar en, o por encima, de los mínimos de planificación de acuerdo con la Tabla 1 anterior.
 (d) Mínimos de planificación para un alterno EDTO de ruta. Los aeródromos de alternativa en ruta, para los vuelos a grandes distancias de aviones con dos motores de turbina, se deben seleccionar y se deben especificar en el plan operacional de vuelo y en el plan de vuelo para los servicios de tránsito aéreo (ATS).
 (e) El operador no debe seleccionar un aeródromo como aeródromo alterno EDTO de ruta a menos que los correspondientes informes o predicciones meteorológicos, o cualquier combinación de los mismos, indiquen que durante un período que comienza 1 hora antes y termina 1 hora después de la hora prevista de llegada al aeródromo, las condiciones meteorológicas deben estar en, o por encima, de los mínimos de planificación que se estipulan en la Tabla 2 siguiente, y de acuerdo con la aprobación EDTO concedida al operador.
-Tabla 2 Mínimos de planificación – EDTO
+Tabla 2 Mínimos de planificación - EDTO
 Tipo de Aproximación | Mínimos de planificación (RVR/visibilidad requerida y techo de nubes, si es aplicable)
 | Aeródromo con
 Al menos, 2 procedimientos distintos de aproximación basados en 2 radio ayudas distintas que sirven a 2 pistas independientes (Ver CA OPS 1.295(c)(1)(ii)) | Al menos 2 procedimientos distintos de aproximación basados en 2 radio ayudas distintas que sirven a 1 pista, o Al menos 1 procedimiento de aproximación basado en 1 radio ayuda que sirve a 1 pista
@@ -1484,13 +1539,13 @@ RAC-OPS 1.310 Miembros de la tripulación en sus puestos.
 (b) Miembros de la tripulación de cabina de pasajeros.
 (1) En todas las cubiertas del avión que estén ocupadas por pasajeros, los miembros requeridos de la tripulación de cabina de pasajeros deben estar sentados en sus puestos designados durante el despegue y el aterrizaje, y siempre que lo considere necesario el piloto al mando en beneficio de la seguridad. (Ver CA OPS 1.310(b)).
 RAC-OPS 1.313 Uso de Auriculares.
-(a) Todo miembro de la tripulación que este en servicio en la cabina de mando, debe utilizar un auricular con micrófono tipo “Boom” incorporado o equivalente y utilizarlo como el dispositivo primario de escucha a las comunicaciones de voz de los servicios de tránsito aéreo;
+(a) Todo miembro de la tripulación que este en servicio en la cabina de mando, debe utilizar un auricular con micrófono tipo "Boom" incorporado o equivalente y utilizarlo como el dispositivo primario de escucha a las comunicaciones de voz de los servicios de tránsito aéreo;
 (1) En tierra
 (i) Cuando esté recibiendo la autorización de salida ATC vía comunicación de voz.
 (ii) Cuando los motores estén encendidos.
 (2) En vuelo por debajo de la altitud de transición o 10.000 pies, lo que sea mayor y
 (3) Cuando así lo considere conveniente el piloto al mando.
-(b) En las condiciones del párrafo anterior (a) el micrófono “boom” o equivalente debe estar en una posición que permita su uso en una comunicación de doble vía.
+(b) En las condiciones del párrafo anterior (a) el micrófono "boom" o equivalente debe estar en una posición que permita su uso en una comunicación de doble vía.
 RAC-OPS 1.315 Dispositivos de asistencia para evacuación de emergencia
 El operador debe establecer procedimientos para garantizar que antes del rodaje, despegue y aterrizaje, y cuando sea seguro y posible hacerlo, los dispositivos de asistencia para evacuación de emergencia que se despliegan de forma automática, estén armados.
 RAC-OPS 1.317 Demostración de los Procedimientos de Evacuación de Emergencia
@@ -1524,11 +1579,26 @@ RAC-OPS 1.320 Asientos, cinturones de seguridad y arneses
 RAC-OPS 1.325 Aseguramiento de la cabina de pasajeros y cocinas (galleys)
 (a) El operador debe establecer procedimientos para garantizar que antes del rodaje, despegue y aterrizaje todas las salidas y vías de evacuación no estén obstruidas.
 (b) El piloto al mando se debe asegurar que antes del despegue y el aterrizaje, y siempre que se considere necesario en beneficio de la seguridad, todos los equipos y equipaje están correctamente asegurados.
+(*)RAC-OPS 1.326 SEGURIDAD OPERACIONAL DEL COMPARTIMIENTO DE CARGA
+(a) Para el transporte de artículos en el compartimiento de carga, el operador debe:
+(1) Establezca políticas y procedimiento para el transporte de artículos en el compartimiento de carga, que incluyan la realización de una evaluación específica de riesgos de seguridad operacional. La evaluación incluirá como mínimo lo siguiente:
+(i) peligros relacionados con las propiedades de los artículos que se van a transportar;
+(ii) capacidades del operador;
+(iii) consideraciones operacionales (p. ej. área de operaciones, tiempo de desviación);
+(iv) capacidades del avión y de sus sistemas (p. ej. capacidad de supresión de incendios en el compartimiento de carga);
+(v) características de contención de los dispositivos de carga unitarizada;
+(vi) bultos y embalajes;
+(vii) seguridad de la cadena de suministro de los artículos que se van a transportar; y
+(viii) cantidad y distribución de las mercancías peligrosas que se van a transportar.
+(b) Para la protección contra incendios, el operador debe:
+(1) Verificar que el manual de vuelo del avión u otro documento para la operación del avión contenga los elementos del sistema de protección contra incendios del compartimiento o los compartimientos de carga aprobados por el Estado de diseño o el Estado de matrícula, y un resumen de las normas de certificación de la protección contra incendios del compartimiento de carga que se hayan demostrado.
+(2) Establecer políticas y procedimientos con respecto a los artículos que se transportarán en el compartimiento de carga. Esto dará un grado de certeza razonable de que, en el caso de un incendio en el que intervengan esos artículos, los elementos de diseño del avión para la protección contra incendios en el compartimiento de carga lo pueden detectar y extinguir o contener suficientemente hasta que el avión haga un aterrizaje seguro.
+(*)(Así adicionado el punto RAC-OPS 1.326 anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 RAC-OPS 1.327 Capacidad de tiempo de respuesta del sistema de supresión de incendios en el compartimiento de carga. (Ver CCA OPS 1.327)
 Todos los vuelos deben de planificarse de manera que el tiempo de desviación hacia un aeródromo donde puede realizarse un aterrizaje seguro no exceda la capacidad de tiempo de respuesta para la supresión de incendios en el compartimiento de carga del avión, cuando dicha capacidad se indique en la documentación pertinente del avión, reducida por un margen de seguridad operacional especificado por el Estado del operador. 1.720
-Nota 1.— Las capacidades de tiempo de supresión de incendios en el compartimiento de carga se indicarán en la documentación pertinente del avión cuando deban considerarse para la operación.
-Nota 2.— Quince minutos es un margen de seguridad operacional que se aplica comúnmente para dicho fin.
-Nota 3.— Véase el Capítulo 4, 4.7 y el Adjunto B en lo que respecta a consideraciones sobre la capacidad de tiempo de respuesta de los sistemas de supresión de incendios en el compartimiento de carga para aviones que se utilizan en EDTO.
+Nota 1.- Las capacidades de tiempo de supresión de incendios en el compartimiento de carga se indicarán en la documentación pertinente del avión cuando deban considerarse para la operación.
+Nota 2.- Quince minutos es un margen de seguridad operacional que se aplica comúnmente para dicho fin.
+Nota 3.- Véase el Capítulo 4, 4.7 y el Adjunto B en lo que respecta a consideraciones sobre la capacidad de tiempo de respuesta de los sistemas de supresión de incendios en el compartimiento de carga para aviones que se utilizan en EDTO.
 RAC-OPS 1.330 Accesibilidad a los equipos de emergencia
 El piloto al mando debe garantizar que los equipos de emergencia pertinentes se mantengan fácilmente accesibles para su utilización inmediata.
 RAC-OPS 1.335 Prohibición de fumar a bordo
@@ -1719,14 +1789,14 @@ El operador debe garantizar que cada despachador de vuelo supere:
 Apéndice 1 al RAC OPS 1.241
 Requisitos de performance del sistema altimétrico para operaciones en
 espacio aéreo RVSM
-(a) Con respecto a los grupos de aviones cuyo diseño y fabricación sean nominalmente idénticos en todos los aspectos que podrían afectar a la exactitud de la performance de mantenimiento de altitud, la capacidad de performance de mantenimiento de altitud será tal que el error vertical total (TVE) para el grupo de aviones no sobrepase la media de 25 m (80 ft) en magnitud y tendrá una desviación característica que no exceda de 28 – 0,013z2 para 0 < z < 25 donde z es la magnitud del TVE promedio en metros, o 92 – 0,004z2 para 0 < z < 80 donde z está expresado en pies. Además, los componentes del TVE tendrán las siguientes características:
+(a) Con respecto a los grupos de aviones cuyo diseño y fabricación sean nominalmente idénticos en todos los aspectos que podrían afectar a la exactitud de la performance de mantenimiento de altitud, la capacidad de performance de mantenimiento de altitud será tal que el error vertical total (TVE) para el grupo de aviones no sobrepase la media de 25 m (80 ft) en magnitud y tendrá una desviación característica que no exceda de 28 - 0,013z2 para 0 < z < 25 donde z es la magnitud del TVE promedio en metros, o 92 - 0,004z2 para 0 < z < 80 donde z está expresado en pies. Además, los componentes del TVE tendrán las siguientes características:
 (1) el error medio del sistema altimétrico (ASE) del grupo no deberá exceder de 25 m (80 ft) en magnitud;
 (2) la suma del valor absoluto del ASE medio y de tres desviaciones características del ASE no deberán exceder de 75 m (245 ft); y
 (3) las diferencias entre el nivel de vuelo autorizado y la altitud de presión indicada efectivamente registrada durante el vuelo serán simétricas respecto a una media de 0 m, con una desviación estándar que no excederá de 13,3 m (43,7 ft), y además, la disminución de la frecuencia de las diferencias con un aumento de la amplitud será al menos exponencial.
 (b) Los aviones con respecto a los cuales las características de la célula y del montaje del sistema altimétrico sean singulares, y por lo tanto no puedan clasificarse como pertenecientes a un grupo de aviones abarcados por lo dispuesto en el párrafo (a), la capacidad de performance de mantenimiento de altitud será tal que los componentes del TVE del avión tengan las características siguientes:
 (1) el ASE del avión no excederá de 60 m (200 ft) en magnitud en todas las condiciones de vuelo; y
 (2) las diferencias entre el nivel de vuelo autorizado y la altitud de presión indicada efectivamente registrada durante el vuelo serán simétricas respecto a una media de 0 m, con una desviación característica que no excederá de 13,3 m (43,7 ft), y además, la disminución de la frecuencia de las diferencias con un aumento de la amplitud será al menos exponencial.
-Apéndice 1 al RAC-OPS 1.255 – Política de Combustible.
+Apéndice 1 al RAC-OPS 1.255 - Política de Combustible.
 (Ver RAC-OPS 1.255)
 El operador debe basar su política de combustible de la compañía, incluyendo cálculos de la cantidad de combustible a bordo para la salida, en los siguientes criterios de planificación:
 (a) Procedimiento básico: El combustible utilizable abordo para la salida debe ser la cantidad de:
@@ -1767,7 +1837,6 @@ No obstante lo dispuesto en el Apéndice 1 a la RAC OPS 1.255(a) la DGAC, basán
 (ii) utilización avanzada de aeródromos de alternativa; y
 (3) medidas de mitigación específicas.
 (c) El uso del combustible después del inicio del vuelo para fines distintos de los previstos originalmente durante la planificación previa al vuelo exigirá un nuevo análisis y, si corresponde, un ajuste de la operación prevista.
-[imagen]
 Apéndice 1 al RAC-OPS 1.270 Almacenaje de equipaje y carga
 (a) Los procedimientos que establezca el operador para garantizar que el equipaje de mano y la carga se estiben de forma adecuada y segura, tendrán en cuenta lo siguiente:
 (1) Cada bulto que se lleve en la cabina se debe estibar solamente en un lugar que lo pueda contener;
@@ -1801,12 +1870,14 @@ Apéndice 1 al RAC-OPS 1.375. Administración del combustible en vuelo
 (1) Si como resultado de una comprobación del combustible en vuelo, el remanente previsto a la llegada al destino es menor que el combustible al alterno requerido más la reserva final de combustible, el piloto al mando debe tener en cuenta el tráfico y las condiciones operativas prevalecientes en el aeródromo de destino, así como las condiciones a lo largo de la ruta a un aeródromo alterno y al aeródromo alterno de destino, cuando tome la decisión de proceder al aeródromo de destino o de desviarse, de modo que no aterrice con menos del combustible de reserva final.
 (2) En un vuelo a un aeródromo aislado: Se debe determinar el último punto de desviación posible hacia cualquier aeródromo alterno disponible en ruta. Antes de alcanzar este punto, el piloto al mando evaluará el combustible remanente previsto sobre el aeródromo aislado, las condiciones meteorológicas y el tráfico y las condiciones operacionales predominantes en el aeródromo aislado, y en cualquiera de los aeródromos en ruta, antes de decidir si se procede al aeródromo aislado o se desvía a un aeródromo alterno en ruta.
 (Ver CA al Apéndice 1 del RAC-OPS 1.375(b)(2)).
-SUBPARTE E – OPERACIONES TODO TIEMPO
+SUBPARTE E - OPERACIONES TODO TIEMPO
 RAC-OPS 1.430 Mínimos de Operación de Aeródromo - General
 (Ver Apéndice 1 de RAC-OPS 1.430), (Ver Apéndice 2 al RAC-OPS 1.430(c)), (Ver CA OPS 1.430), (Ver CA OPS 1.430(b) (4)), (Ver CA al Apéndice 1 del RAC OPS 1.430),(Ver CA al Apéndice 1 de RAC OPS 1.430 (d) y (e)), (Ver CA OPS al Apéndice 1 del RAC OPS 1.430 (e)(5)), (Ver CA OPS al Apéndice 1 del RAC OPS 1.430(f))
 (a) El operador debe establecer, para cada aeródromo que planifique utilizar, mínimos de operación de aeródromo que no deben ser inferiores a los especificados en el Apéndice 1 al RAC OPS 1.430. El método para la determinación de esos mínimos debe ser aprobados por la DGAC. Estos mínimos no deben ser inferiores a cualquiera que pudiera establecerse para cada aeródromo por el Estado en el que esté localizado, excepto que se apruebe específicamente por ese Estado. Este párrafo no prohíbe el cálculo en vuelo de mínimos para un aeródromo alterno no planificado, si se efectúa de acuerdo con un método aceptado.
 (b) Al establecer los mínimos de operación de aeródromo que se deben utilizar a cualquier operación concreta, el operador debe tener en cuenta totalmente:
-(1) El tipo, performance y características de maniobra del avión;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(1) el tipo, performance y características de maniobra del avión y las condiciones o limitaciones que se especifiquen en el manual de vuelo;
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (2) La composición de la tripulación de vuelo, su competencia y experiencia;
 (3) Las dimensiones y características de las pistas que puedan ser seleccionadas para su uso;
 (4) La idoneidad y performance de las ayudas visuales y no visuales disponibles en tierra; (Ver CA OPS 1.430(b) (4)).
@@ -1814,32 +1885,48 @@ RAC-OPS 1.430 Mínimos de Operación de Aeródromo - General
 (6) Los obstáculos en las zonas de aproximación, aproximación frustrada y ascenso, que se requieren para la ejecución de procedimientos de contingencia y el necesario franqueamiento de obstáculos;
 (7) La altitud/altura de franqueamiento de obstáculos para el ascenso y los procedimientos de aproximación por instrumentos; y
 (8) Los medios para determinar e informar de las condiciones meteorológicas.
+(9) los obstáculos situados en el área de ascenso inicial y los márgenes necesarios de franqueamiento de obstáculos;
+(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(10) las condiciones prescritas en las especificaciones relativas a las operaciones; y (11) todo mínimo que esté promulgado en el AIP del Estado del Aeródromo.
+(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (c) Las categorías de aviones que se mencionan en esta Subparte se obtendrán de acuerdo con el método establecido en el Apéndice 2 de RAC-OPS 1.430(c).
-(d) El operador puede solicitar créditos operacionales a la DGAC para operaciones de aviones equipados con sistemas de aterrizaje automático, un HUD o visualizadores equivalentes, EVS, SVS o CVS. Dichas aprobaciones no afectarán a la clasificación del procedimiento de aproximación por instrumentos. (Ver CA OPS 1.430(d)).
+(d) La DGAC autorizará créditos operacionales para operaciones de aviones equipados con sistemas de aterrizaje automático, un HUD o visualizadores equivalentes, EVS, SVS o CVS. Cuando los créditos operacionales tengan que ver con operaciones en condiciones de baja visibilidad, la DGAC expedirá una aprobación específica. Dichas autorizaciones no afectarán a la clasificación del procedimiento de aproximación por instrumentos. (Ver CA OPS 1.430(d)).
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (e) Las operaciones de aproximación por instrumentos se clasificarán basándose en los mínimos de utilización más bajos por debajo de los cuales la operación de aproximación deberá continuarse únicamente con la referencia visual requerida, de la manera siguiente:
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (1) tipo A: una altura mínima de descenso o altura de decisión igual o superior a 75 m (250 ft); y
 (2) tipo B: una altura de decisión inferior a 75 m (250 ft). Las operaciones de aproximación por instrumentos de Tipo B están categorizadas de la siguiente manera:
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (i) Categoría I (CAT I): una altura de decisión no inferior a 60 m (200 ft) y con visibilidad no inferior a 800 m o alcance visual en la pista no inferior a 550 m;
-(ii) Categoría II (CAT II): una altura de decisión inferior a 60 m (200 ft), pero no inferior a 30 m (100 ft) y alcance visual en la pista no inferior a 300 m;
-(iii) Categoría IIIA (CAT IIIA): una altura de decisión inferior a 30 m (100 ft) o sin limitación de altura de decisión y alcance visual en la pista no inferior a 175 m;
+(ii) Categoría II (CAT II): una altura de decisión inferior a 60 m (200 ft), pero no inferior a 30 m (100 ft) y alcance visual en la pista no inferior a 300 m; y
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(iii) Categoría III (CAT III): una altura de decisión inferior a 30 m (100 ft) o sin limitación de altura de decisión y alcance visual en la pista no inferior a 300 m; o sin limitaciones de alcance visual en la pista.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (iv) Categoría IIIB (CAT IIIB): una altura de decisión inferior a 15 m (50 ft) o sin limitación de altura de decisión y alcance visual en la pista inferior a 175 m pero no inferior a 50 m; y
 (v) Categoría IIIC (CAT IIIC): sin altura de decisión ni limitaciones de alcance visual en la pista.
 (f) Los mínimos de utilización para las operaciones de aproximación por instrumentos 2D con procedimientos de aproximación por instrumentos se determinarán estableciendo una altitud mínima de descenso (MDA) o una altura mínima de descenso (MDH), visibilidad mínima y, de ser necesario, condiciones de nubosidad.
 (g) Los mínimos de utilización para las operaciones de aproximación por instrumentos 3D con procedimientos de aproximación por instrumentos se determinarán estableciendo una altitud de decisión (DA) o una altura de decisión (DH) y la visibilidad mínima o el RVR.
-RAC-OPS 1.440 Operaciones con baja visibilidad – Normas Generales de Operación
+RAC-OPS 1.440 Operaciones con baja visibilidad - Normas Generales de Operación
 (Ver Apéndice 1 de RAC-OPS 1.440). (Ver CA OPS al Apéndice 1 al RAC OPS 1.440)
 (Ver CA OPS al Apéndice 1 al RAC OPS 1.440(b))
 (a) El operador no debe efectuar operaciones de Categoría II o III a menos que:
-(1) Cada avión afectado esté certificado para operaciones con alturas de decisión por debajo de 200 pies, o sin altura de decisión, y esté equipado de acuerdo con el Anexo 2 al RAC-OPS 1, Sección 2 “Operaciones Especiales” y la Subparte K de esta regulación, o estándar equivalente aceptado por la DGAC (en tanto se adopta el Anexo 2 al RAC OPS 1, Sección 2), deben debe ser de aplicación las regulaciones nacionales de aviación en la materia);
+(1) Cada avión afectado esté certificado para operaciones con alturas de decisión por debajo de 200 pies, o sin altura de decisión, y esté equipado de acuerdo con el Anexo 2 al RAC-OPS 1, Sección 2 "Operaciones Especiales" y la Subparte K de esta regulación, o estándar equivalente aceptado por la DGAC (en tanto se adopta el Anexo 2 al RAC OPS 1, Sección 2), deben debe ser de aplicación las regulaciones nacionales de aviación en la materia);
 (2) Se establezca y mantenga un sistema adecuado para el seguimiento completo de la seguridad de la operación, que registre los resultados positivos y negativos de las aproximaciones y/o aterrizajes automáticos, a fin de monitorear la seguridad global de la operación;
 (3) Las operaciones estén aprobadas por la DGAC;
 (4) La tripulación de vuelo esté formada por 2 pilotos, como mínimo; y
 (5) La altura de decisión se determine mediante un radio-altímetro.
 (b) El operador no debe efectuar despegues con baja visibilidad con un RVR menor de 150 m (aviones de Categoría A, B y C), o un RVR menor de 200 m (aviones de Categoría D) a no ser que lo apruebe la DGAC.
-RAC-OPS 1.445 Operaciones con baja visibilidad – Consideraciones acerca del aeródromo
+RAC-OPS 1.445 Operaciones con baja visibilidad - Consideraciones acerca del aeródromo
 (a) El operador no debe utilizar un aeródromo para las operaciones de Categoría II o III a menos que el aeródromo esté aprobado para esas operaciones por el Estado en que esté situado.
-(b) No se autorizarán operaciones de aproximación y aterrizaje por instrumentos de las Categorías II y III a menos que se proporcione información RVR.
-(c) El operador debe verificar que se han establecido, y están en vigor, procedimientos de baja visibilidad (LVP), en aquellos aeródromos en que se van a llevar a cabo tales operaciones.
+(b) La DGAC expedirá una aprobación específica para operaciones de aproximación y aterrizaje por instrumentos en condiciones de baja visibilidad, que únicamente se realizarán cuando se proporcione información RVR.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(*)(c) Para el despegue con baja visibilidad, la DGAC expedirá una aprobación específica para el RVR mínimo de despegue.
+(i) En general, la visibilidad para el despegue se define en términos de RVR. Puede también utilizarse una visibilidad horizontal equivalente.
+(*)(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(d) La DGAC no se autorizará mínimos de utilización de aeródromo por debajo de una visibilidad de 800 m para operaciones de aproximación por instrumentos a menos que se proporcione información RVR.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(e) El operador debe verificar que se han establecido, y están en vigor, procedimientos de baja visibilidad (LVP), en aquellos aeródromos en que se van a llevar a cabo tales operaciones.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 RAC-OPS 1.450 Operaciones con baja visibilidad - Entrenamiento y calificaciones
 (Ver Apéndice 1 de RAC-OPS 1.450), (Ver CA OPS 1.450(g) (1)))
 (a) El operador debe garantizar que, antes de efectuar operaciones de despegue con baja visibilidad, y de Categoría II y III:
@@ -1936,14 +2023,14 @@ VDF (QDM y QGH) | 300 pies
 (ix) Las luces de borde de pista; u
 (x) Otras referencias visuales aceptadas por la DGAC.
 (4) RVR requerido. Los mínimos más bajos que empleará el operador para las aproximaciones de no precisión deben ser:
-Tabla 4a - RVR para la aproximación de no precisión –
+Tabla 4a - RVR para la aproximación de no precisión -
 Instalaciones completas.
 [imagen]
 Tabla 4b- RVR para la aproximación de no precisión - instalaciones intermedias
 [imagen]
 Tabla 4c- RVR para la aproximación de no precisión - instalaciones básicas
 [imagen]
-Tabla 4d- RVR para la aproximación de no precisión –
+Tabla 4d- RVR para la aproximación de no precisión -
 instalaciones sin luces de aproximación
 [imagen]
 i. Las instalaciones completas incluyen las marcas de pista, 720 m. o más de luces de aproximación HI/MI, luces de borde de pista, luces de umbral y luces de extremo de pista. Las luces deben estar encendidas.
@@ -2058,7 +2145,7 @@ Visibilidad meteorológica mínima | 1500 m | 1600 m | 2400 m | 3600 m
 (2) El vuelo circulando con tramos prescritos es un procedimiento aceptable dentro de lo establecido en este párrafo (Ver CA al Apéndice 1 del RAC-OPS 1.430 (f))
 (g) Aproximación visual. El operador no debe usar un RVR menor de 800 m. para una aproximación visual.
 (h) Conversión de visibilidad meteorológica notificada en RVR
-(1) El operador debe garantizar que no se utilice la conversión de visibilidad meteorológica en RVR para calcular los mínimos de despegue, mínimos para Categoría II o III, o cuando se disponga de un RVR reportado. Si el RVR reportado está por encima del máximo valor fijado por el operador del aeródromo, por ejemplo “RVR superior a 1.500m.”, no se considerará en este contexto como RVR reportado, y puede utilizarse la Tabla de Conversión.
+(1) El operador debe garantizar que no se utilice la conversión de visibilidad meteorológica en RVR para calcular los mínimos de despegue, mínimos para Categoría II o III, o cuando se disponga de un RVR reportado. Si el RVR reportado está por encima del máximo valor fijado por el operador del aeródromo, por ejemplo "RVR superior a 1.500m.", no se considerará en este contexto como RVR reportado, y puede utilizarse la Tabla de Conversión.
 (2) Cuando se convierta la visibilidad meteorológica en RVR en las demás circunstancias que no sean las del anterior subpárrafo (h) (1), El operador debe garantizar que se utilice la siguiente tabla:
 Tabla 9 - Conversión de visibilidad en RVR
 Luces en funcionamiento | RVR = Visibilidad meteorológica notificada multiplicada por
@@ -2081,7 +2168,7 @@ La configuración de aterrizaje que se debe tomar en cuenta debe ser aquella que
 (b) Cambio permanente de categoría (peso máximo de aterrizaje)
 (1) Un operador puede imponer un peso menor de aterrizaje de manera permanente, y usar este peso para determinar el VAT, si fuera aprobado por la DGAC.
 (2) La categoría que define a un determinado avión debe de ser un valor permanente y por lo tanto independiente de las condiciones cambiantes de las operaciones día a día.
-Apéndice 1 de RAC-OPS 1.440. Operaciones de baja visibilidad –
+Apéndice 1 de RAC-OPS 1.440. Operaciones de baja visibilidad -
 Reglas generales de operación.
 (Ver RAC-OPS 1.440)
 (a) General. Para la introducción y aprobación de las operaciones de baja visibilidad deben ser de aplicación los siguientes procedimientos.
@@ -2114,7 +2201,7 @@ Al conceder tales aprobaciones, la DGAC puede imponer mínimos mayores que el me
 (2) Para pistas con terreno irregular antes del umbral u otras deficiencias conocidas o previsibles se debe verificar cada combinación tipo de avión/equipo a bordo/pista mediante la finalización de manera satisfactoria de operaciones de Categoría I, o mejores condiciones, antes del comienzo de operaciones de Categoría II o III.
 (3) Si el operador tiene diferentes variantes de un mismo tipo de avión, que utilicen los mismos sistemas de presentación y control de vuelo básico, o diferentes sistemas de presentación y control de vuelo básico en el mismo de tipo de avión, el operador debe demostrar que las diversas variantes tienen performance satisfactoria, pero no necesitara llevar a cabo una demostración operacional completa para cada combinación variante/pista.
 (4) Los operadores que utilicen los mismos tipos/variantes de avión y combinación de equipo a bordo y procedimientos pueden obtener créditos de la experiencia y registros de otros operadores para cumplir con este párrafo.
-Apéndice 1 del RAC-OPS 1.450 Operaciones de baja visibilidad –
+Apéndice 1 del RAC-OPS 1.450 Operaciones de baja visibilidad -
 Entrenamiento y calificaciones.
 (Ver RAC OPS 1.450)
 (a) General. El operador debe garantizar que los programas de entrenamiento de los miembros de la tripulación de vuelo para las operaciones de baja visibilidad incluyan cursos estructurados de entrenamiento en tierra, en simulador de vuelo y/o en vuelo. El operador puede abreviar el contenido del curso que se indica en los subpárrafos (2) y (3) siguientes, siempre que el contenido del curso abreviado sea aceptable para la DGAC:
@@ -2147,7 +2234,7 @@ Entrenamiento y calificaciones.
 (vii) Guía referente a las señales visuales requeridas en la altura de decisión, junto con la información de la máxima desviación de la senda de planeo o localizador que se permite; y
 (viii) La importancia y significado de la Alerta de altitud, si es de aplicación, y acciones a tomar en caso de cualquier falla por encima y por debajo de la misma.
 (2) El operador debe garantizar que cada miembro de la tripulación de vuelo esté entrenado para llevar a cabo sus funciones, he instruido sobre la coordinación requerida con otros miembros de la tripulación. Se debe hacer el máximo uso de simuladores de vuelo.
-(3) El entrenamiento se debe dividir en fases que cubran la operación normal, sin fallas del avión o de los equipos, pero en todas las condiciones meteorológicas que se puedan encontrar y con escenarios detallados de fallas del avión y de los equipos que pudieran afectar a las operaciones de Categoría II o III. Si el sistema del avión incluye la utilización de sistemas híbridos u otros sistemas especiales (tales como las pantallas “Head-Up” o equipos de visión mejorada), los miembros de la tripulación de vuelo deben practicar la utilización de esos sistemas en los modos normal y anormal, durante la fase del entrenamiento en simulador de vuelo.
+(3) El entrenamiento se debe dividir en fases que cubran la operación normal, sin fallas del avión o de los equipos, pero en todas las condiciones meteorológicas que se puedan encontrar y con escenarios detallados de fallas del avión y de los equipos que pudieran afectar a las operaciones de Categoría II o III. Si el sistema del avión incluye la utilización de sistemas híbridos u otros sistemas especiales (tales como las pantallas "Head-Up" o equipos de visión mejorada), los miembros de la tripulación de vuelo deben practicar la utilización de esos sistemas en los modos normal y anormal, durante la fase del entrenamiento en simulador de vuelo.
 (4) Se deben practicar procedimientos de incapacitación que sean adecuados para los despegues de baja visibilidad y las operaciones de Categoría II y III.
 (5) Para aviones de los que no existan simuladores de vuelo capaces de representar este avión especifico, El operador debe garantizar que la fase de entrenamiento en vuelo específica de los escenarios visuales de las operaciones en Categoría II, se lleve a cabo en un simulador de vuelo específicamente aprobado para este fin. Este entrenamiento debe incluir un mínimo de 4 aproximaciones. El entrenamiento y procedimientos que sean específicos del tipo de avión se deben practicar en el avión.
 (6) El entrenamiento para Categoría II y III debe incluir como mínimo los siguientes ejercicios:
@@ -2161,7 +2248,7 @@ Entrenamiento y calificaciones.
 (iii) Aproximaciones en las que, debido a fallas de los equipos de vuelo automático, a bajo nivel de vuelo, se requiera:
 (A) Reversión a manual para controlar la nivelada, aterrizaje y guiado de la carrera de aterrizaje (roll-out) o aproximación frustrada; o
 (B) Reversión a manual, o un modo automático degradado, para controlar la aproximación frustrada desde, en o por debajo de la altura de decisión, incluyendo las que puedan dan lugar a una toma de tierra con la pista;
-(iv) Fallas de sistemas que ocasionen una desviación excesiva del localizador y/o de la senda de planeo, tanto por encima como por debajo de la altura de decisión, en las condiciones visuales mínimas autorizadas para la operación. Además, se debe practicar una reversión a aterrizaje manual si la pantalla “Head-up” muestra un modo degradado del sistema automático o si esa pantalla constituye el único modo de mostrar la nivelada; y
+(iv) Fallas de sistemas que ocasionen una desviación excesiva del localizador y/o de la senda de planeo, tanto por encima como por debajo de la altura de decisión, en las condiciones visuales mínimas autorizadas para la operación. Además, se debe practicar una reversión a aterrizaje manual si la pantalla "Head-up" muestra un modo degradado del sistema automático o si esa pantalla constituye el único modo de mostrar la nivelada; y
 (v) Fallas y procedimientos específicos del tipo o variante de avión.
 (8) El programa de entrenamiento debe incluir prácticas en el tratamiento de fallas que requieran la reversión a mínimos más altos.
 (9) El programa de entrenamiento debe incluir la operación del avión cuando, durante una aproximación de Categoría III con falla pasiva, ésta falla produzca la desconexión del piloto automático en o por debajo de la altura de decisión, cuando el último RVR reportado es de 300 m o menos.
@@ -2171,7 +2258,7 @@ Entrenamiento y calificaciones.
 (2) Entrenamiento en Simulador de Vuelo y/o en Vuelo.
 (i) Un mínimo de 8 aproximaciones y/o aterrizajes en un simulador de vuelo.
 (ii) Cuando no se disponga de ningún simulador de vuelo capaz de representar ese avión específico, se requiere un mínimo de 3 aproximaciones, incluyendo al menos una aproximación frustrada, en el avión.
-(iii) El correspondiente entrenamiento adicional si se requiere cualquier tipo de equipos especiales, tales como pantallas “Head-up” o equipos de visión mejorada.
+(iii) El correspondiente entrenamiento adicional si se requiere cualquier tipo de equipos especiales, tales como pantallas "Head-up" o equipos de visión mejorada.
 (3) Calificaciones de la tripulación de vuelo. Los requisitos de calificación de la tripulación de vuelo son específicos para cada él operador y cada tipo de avión que se opere.
 (i) El operador debe garantizar que cada miembro de la tripulación de vuelo complete una verificación antes de efectuar operaciones de Categoría II o III.
 (ii) La verificación prescrita en el subpárrafo (i) anterior, puede ser sustituida por la superación satisfactoria del entrenamiento en simulador de vuelo y/o en vuelo que se estipula en el subpárrafo (d) (2) anterior.
@@ -2194,7 +2281,7 @@ Entrenamiento y calificaciones.
 (2) Para las operaciones de Categoría III, el operador utilizará un simulador de vuelo.
 (3) El operador debe garantizar que, para las operaciones de Categoría III en aviones con un sistema de control de vuelo pasivo ante fallas, al menos se complete una aproximación frustrada como resultado de una falla del piloto automático en o por debajo de la altura de decisión cuando el último RVR notificado sea de 300 m o menor. Dicha maniobra se realizará en el periodo que abarque 3 verificaciones de competencia consecutivas del operador.
 (4) La DGAC puede autorizar el entrenamiento recurrente y la verificación para las operaciones de Categoría II y LVTO en un tipo de avión del que no esté disponible un simulador de vuelo que represente a ese tipo específico de avión, ni alternativa aceptable. La experiencia reciente para LVTO y CAT II/III, basada en aproximaciones automáticas y/o aterrizajes automáticos, se mantendrá con el entrenamiento recurrente y las verificaciones prescritas en este párrafo.
-Apéndice 1 de RAC-OPS 1.455 Operaciones de Baja Visibilidad –
+Apéndice 1 de RAC-OPS 1.455 Operaciones de Baja Visibilidad -
 Procedimientos operativos
 (Ver RAC OPS 1.455)
 (a) General. Las operaciones de baja visibilidad incluyen:
@@ -2248,7 +2335,7 @@ RAC-OPS 1.475 General
 (f) La DGAC como Estado de matrícula debe tomar las precauciones razonablemente posibles para que se mantenga el nivel general de seguridad establecido en estas disposiciones, bajo todas las condiciones de utilización previstas, incluyendo las que no estén específicamente tratadas en las disposiciones de esta Subparte F, o Sub parte correspondiente de conformidad a la Clase de Performance de la aeronave que se trate.
 (g) El operador debe publicar instrucciones para las operaciones y proporcionar información sobre la performance ascensional del avión con todos los motores en funcionamiento, para que el piloto al mando pueda determinar la pendiente ascensional que puede alcanzarse durante la fase de salida en las condiciones de despegue existentes y con el procedimiento de despegue previsto. Esta información debe incluirse en el manual de operaciones.
 (h) El operador debe cerciorarse que, en ningún caso, el peso al comenzar el despegue o a la hora prevista de aterrizaje en el aeródromo en que se pretende aterrizar y en cualquier otro de alternativa de destino, excederá de las masas máximas pertinentes para las que se haya demostrado el cumplimiento de las normas aplicables de homologación en cuanto al ruido contenidas en la normativa de homologación de ruido correspondiente. Salvo disposición en contraria o en circunstancias excepcionales para un cierto aeródromo o pista donde no exista problema de perturbación debida al ruido.
-SUBPARTE G – PERFORMANCE CLASE A
+SUBPARTE G - PERFORMANCE CLASE A
 RAC-OPS 1.485 General.
 (Ver CA OPS 1.485(b))
 (a) El operador debe garantizar que, para determinar el cumplimiento con los requisitos de esta Subparte, se complementen, cuando los datos aprobados de performance del AFM sean insuficientes, con otros datos que sean aceptables a la DGAC, en relación a:
@@ -2373,8 +2460,8 @@ Apéndice 1 de RAC-OPS 1.515 (a) (4) Operaciones de aterrizaje corto
 Apéndice 2 del RAC-OPS 1.515 (a)(4) Criterios del aeródromo para
 operaciones de aterrizaje corto.
 (a) El uso del área de seguridad debe estar aprobado por la Autoridad del aeródromo.
-(b) La longitud utilizable del área de seguridad declarada, de acuerdo con lo previsto en RAC-OPS 1.515 (a) (4) y este Apéndice, será de hasta por lo menos 90 metros.
-(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 67 del 8 de abril del 2021, página N°2 que eliminó la palabra” “no excederá”)
+(b) La longitud utilizable del área de seguridad declarada, de acuerdo con lo previsto en RACOPS 1.515 (a) (4) y este Apéndice, será de hasta por lo menos 90 metros.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (c) El ancho del área de seguridad de extremo de pista no debe ser menor que 2 veces el ancho de la pista o dos veces la envergadura del avión, la que sea mayor, centrado en el eje extendido de la misma.
 (d) El área de seguridad de extremo de pista debe estar libre de obstáculos o depresiones que pudieran poner en peligro a un avión que aterrice antes de la pista y no se permitirán objetos móviles en el área de seguridad de extremo de pista cuando la pista está siendo usada para operaciones de aterrizaje corto.
 (e) La pendiente del área de seguridad de extremo de pista no excederá del 5% hacia arriba, ni el 2% hacia abajo en el sentido del aterrizaje.
@@ -2584,7 +2671,7 @@ La DGAC puede aprobar estas operaciones de acuerdo con los siguientes criterios:
 (8) Los mínimos meteorológicos deben especificarse y estar aprobados para cada pista de vuelo que se use, y no deben ser menores que los mayores para VFR, o mínimos de aproximación de no precisión;
 (9) Deben especificarse los requisitos a cumplir por los pilotos (Ver RAC-OPS 1.975(a));
 (10) La DGAC puede imponer condiciones adicionales, si son necesarias para una operación segura, tomando en consideración las características del tipo de avión, las ayudas a la aproximación y las consideraciones de aproximación/aterrizaje frustrado.
-SUBPARTE I – PERFORMANCE CLASE C
+SUBPARTE I - PERFORMANCE CLASE C
 RAC-OPS 1.560 General
 El operador debe garantizar que, para determinar el cumplimiento de los requisitos de esta Subparte, se complementen los datos de performance aprobados del AFM, con otros datos que sean aceptables a la DGAC según sea necesario, si los del AFM son insuficientes.
 RAC-OPS 1.565 Despegue.
@@ -2667,7 +2754,7 @@ RAC-OPS 1.595 Aterrizaje - Pistas secas.
 RAC-OPS 1.600 Aterrizaje Pistas mojadas y contaminadas
 (a) El operador debe garantizar que cuando los correspondientes informes o predicciones meteorológicos, o una combinación de los mismos, indiquen que la pista pueda estar mojada a la hora estimada de llegada, la distancia de aterrizaje disponible sea igual o exceda a la distancia de aterrizaje requerida, determinada de acuerdo con RAC-OPS 1.595, multiplicada por un factor de 1.15.
 (b) El operador debe garantizar que cuando los correspondientes informes o predicciones meteorológicos, o una combinación de los mismos, indiquen que la pista pueda estar contaminada a la hora estimada de llegada, la distancia de aterrizaje, determinada utilizando datos que sean aceptables para la DGAC en estas condiciones, no exceda la distancia de aterrizaje disponible.
-SUBPARTE J – PESO Y BALANCE
+SUBPARTE J - PESO Y BALANCE
 RAC-OPS 1.605 General.
 (Ver CA OPS 1.605), (Ver CA OPS 1.605(j)), (Ver Apéndice 1 al RAC-OPS 1.605)
 (a) Limitaciones de masa:
@@ -2677,8 +2764,8 @@ RAC-OPS 1.605 General.
 (4) En ningún caso, la masa al comenzar el despegue o a la hora prevista de aterrizaje en el aeródromo en que se pretende aterrizar y en cualquier otro de alternativa de destino, debe exceder de las masas máximas pertinentes para las que se haya demostrado el cumplimiento de las normas aplicables de homologación en cuanto al ruido contenidas en el Anexo 16, Volumen I, a no ser que otra cosa autorice, en circunstancias excepcionales, para un cierto aeródromo o pista donde no exista problema de perturbación debida al ruido, la autoridad competente del Estado en que está situado el aeródromo.
 (b) Despegue. En caso de falla de un motor crítico, o por otros motivos, en cualquier punto del despegue, el avión podrá interrumpir el despegue y parar dentro de la distancia disponible de aceleración-parada, o continuar el despegue y salvar con una distancia vertical u horizontal adecuada todos los obstáculos situados a lo largo de toda la trayectoria de vuelo, hasta que el avión pueda cumplir con RAC OPS 1.605(c). Al determinar la zona resultante que tiene obstáculos que deben tenerse en cuenta en el despegue, deben considerarse las condiciones de vuelo, como la componente transversal del viento y la precisión de navegación. (Ver CA OPS 1.605(b)).
 (1) Para determinar la longitud de la pista disponible se debe tener en cuenta la pérdida de la longitud de pista, si la hubiere, debido a la alineación del avión antes del despegue.
-(c) En ruta — un motor inactivo. En caso de que el motor crítico quede inactivo en cualquier punto a lo largo de la ruta o de las desviaciones proyectadas respecto de la misma, el avión debe poder continuar el vuelo hasta un aeródromo en el que pueda cumplirse con la norma de RAC OPS 1.605(e), sin que tenga que volar en ningún punto a una altitud inferior a la mínima de vuelo.
-(d) En ruta — dos motores inactivos. En caso de aviones con tres o más motores, cuando en cualquier parte de la ruta la ubicación de los aeródromos de alternativa en ruta y la duración total del vuelo sean tales que haya que prever la probabilidad de que un segundo motor quede inactivo, si se desea mantener el nivel general de seguridad operacional correspondiente a las normas de esta sección, el avión debe poder continuar el vuelo, en caso de falla de dos motores, hasta un aeródromo de alternativa en ruta y aterrizar.
+(c) En ruta - un motor inactivo. En caso de que el motor crítico quede inactivo en cualquier punto a lo largo de la ruta o de las desviaciones proyectadas respecto de la misma, el avión debe poder continuar el vuelo hasta un aeródromo en el que pueda cumplirse con la norma de RAC OPS 1.605(e), sin que tenga que volar en ningún punto a una altitud inferior a la mínima de vuelo.
+(d) En ruta - dos motores inactivos. En caso de aviones con tres o más motores, cuando en cualquier parte de la ruta la ubicación de los aeródromos de alternativa en ruta y la duración total del vuelo sean tales que haya que prever la probabilidad de que un segundo motor quede inactivo, si se desea mantener el nivel general de seguridad operacional correspondiente a las normas de esta sección, el avión debe poder continuar el vuelo, en caso de falla de dos motores, hasta un aeródromo de alternativa en ruta y aterrizar.
 (e) Aterrizaje. El avión podrá aterrizar en el aeródromo de aterrizaje previsto y en cualquier otro de alternativa, después de haber salvado, con un margen seguro, todos los obstáculos situados en la trayectoria de aproximación con la seguridad de que puede detenerse, o, en el caso de un hidroavión, disminuir la velocidad hasta un valor satisfactorio, dentro de la distancia disponible de aterrizaje. Se deben tener en cuenta las variaciones previstas en las técnicas de aproximación y aterrizaje, si no se han tenido en cuenta al indicar los datos relativos a performance.
 (f) El operador debe garantizar que, durante cualquier fase de la operación, la carga, peso y centro de gravedad del avión cumplan con las limitaciones especificadas en el AFM aprobado, o en el Manual de Operaciones si es más restrictivo.
 (g) El operador debe determinar el peso y balance de cualquier avión mediante un pesaje real antes de la entrada inicial en servicio y, posteriormente, a intervalos de 3 años si se emplean pesos individuales para cada avión, y de 5 años si se emplean pesos para cada flota. Los efectos acumulativos de las modificaciones y reparaciones en el peso y balance se deben reflejar y documentar adecuadamente. Asimismo, los aviones se deben volver a pesar si no se conoce con precisión el efecto de las modificaciones en el peso y el balance.
@@ -2700,8 +2787,8 @@ RAC-OPS 1.620 Valores de peso para pasajeros y equipaje.
 (b) Si se determina el peso real mediante pesaje, El operador debe garantizar que se incluyan los efectos personales y el equipaje de mano de los pasajeros. Ese pesaje se debe llevar a cabo inmediatamente antes del embarque y en un lugar adyacente.
 (c) Si se determina el peso de los pasajeros utilizando valores estándar de peso, se deben emplear los mismos valores de peso de las Tablas 1 y 2 siguientes. Los pesos estándares incluyen el equipaje de mano y el peso de cualquier infante de menos de 2 años de edad llevado por un adulto en su asiento. Se considerará a los infantes que ocupen asientos individuales como niños, a los efectos de este subpárrafo.
 (d) Valores de peso para pasajeros - 20 asientos o más
-(1) Cuando la configuración de asientos instalados en el avión es para 20 o más pasajeros debe ser aplicable la tabla 1; donde deben ser aplicables los valores de pesos estándares para hombres y mujeres de la Tabla 1. Alternativamente, en los casos en que el número total de asientos instalados para pasajeros es de 30 o más, deben ser aplicables los valores de peso para “todos adultos” de la Tabla 1.
-(2) A los efectos de la Tabla 1, un vuelo chárter para vacaciones significa un vuelo chárter que se prevé únicamente como un elemento de un paquete de viaje de vacaciones. Se aplican los valores de peso de “chárter de vacaciones” siempre que no más del 5% de los asientos de pasajeros instalados en el avión, sean usados para transporte gratuito de ciertas categorías de pasajeros (Ver CA-OPS 1.620(d) (2))
+(1) Cuando la configuración de asientos instalados en el avión es para 20 o más pasajeros debe ser aplicable la tabla 1; donde deben ser aplicables los valores de pesos estándares para hombres y mujeres de la Tabla 1. Alternativamente, en los casos en que el número total de asientos instalados para pasajeros es de 30 o más, deben ser aplicables los valores de peso para "todos adultos" de la Tabla 1.
+(2) A los efectos de la Tabla 1, un vuelo chárter para vacaciones significa un vuelo chárter que se prevé únicamente como un elemento de un paquete de viaje de vacaciones. Se aplican los valores de peso de "chárter de vacaciones" siempre que no más del 5% de los asientos de pasajeros instalados en el avión, sean usados para transporte gratuito de ciertas categorías de pasajeros (Ver CA-OPS 1.620(d) (2))
 Tabla 1
 Asientos de pasajeros: | 20 y más | 30 y más
 Hombre | Mujer | Todos Adultos
@@ -2790,7 +2877,7 @@ peso revisados para pasajeros y equipaje.
 (a) Pasajeros
 (1) Método de muestreo de peso. Se determinará el peso medio de los pasajeros y su equipaje de mano mediante el pesaje, tomando muestras aleatorias. La selección de muestras aleatorias debe, por su carácter y alcance, ser representativo del volumen de pasajeros, teniendo en cuenta el tipo de operación, la frecuencia de vuelos en diversas rutas, vuelos de llegada y salida, temporada aplicable y número de asientos del avión.
 (2) Tamaño de la muestra. El plan de estudio debe cubrir como mínimo el pesaje del mayor de:
-(i) El número de pasajeros calculado de una muestra piloto, empleando procedimientos estadísticos habituales y basándose en un margen de confianza relativo (precisión) del 1% para “todos adultos” y 2% para pesos medios individuales de hombres y mujeres (el procedimiento estadístico, complementado con un ejemplo, para determinar el tamaño mínimo de la muestra y peso medias se incluye en el CA OPS 1.620 (g)); y
+(i) El número de pasajeros calculado de una muestra piloto, empleando procedimientos estadísticos habituales y basándose en un margen de confianza relativo (precisión) del 1% para "todos adultos" y 2% para pesos medios individuales de hombres y mujeres (el procedimiento estadístico, complementado con un ejemplo, para determinar el tamaño mínimo de la muestra y peso medias se incluye en el CA OPS 1.620 (g)); y
 (ii) Para aviones:
 (A) Con un número de asientos para pasajeros de 40 o más, un total de 2000 pasajeros; o
 (B) Con un número de asientos para pasajeros de menos de 40, un número total de 50 x (el número de asientos para pasajeros).
@@ -2808,9 +2895,9 @@ Número de asientos de pasajeros | Incremento requerido de peso
 1-5 inclusive | 16 kg
 6-9 inclusive | 8 kg
 10-19 inclusive | 4 kg
-Como alternativa, se pueden aplicar en aviones de 30 o más asientos para pasajeros, todos los valores de peso estándar (medios) revisados para “todos adultos”. Deben ser aplicables los valores estándar (medios) revisados para equipaje facturado a los aviones con 20 o más asientos para pasajeros.
+Como alternativa, se pueden aplicar en aviones de 30 o más asientos para pasajeros, todos los valores de peso estándar (medios) revisados para "todos adultos". Deben ser aplicables los valores estándar (medios) revisados para equipaje facturado a los aviones con 20 o más asientos para pasajeros.
 (4) El operador tiene la opción de someter a la DGAC para su aprobación un plan de estudio detallado y con posterioridad una desviación del valor estándar de peso revisado siempre que esta desviación se determine mediante el empleo del procedimiento que se detalla en este Apéndice. Esas desviaciones se deben revisar a intervalos que no excedan de 5 años (Ver CA 1 al Apéndice 1 del RAC-OPS 1.620(g)).
-(5) Los valores estándar de peso revisados “todo adultos” deben basarse en una proporción de hombres a mujeres de 80/20 con respecto a todos los vuelos, excepto los “chárter de vacaciones” cuya proporción debe ser de 50/50. Si un operador desea obtener la aprobación para utilizar otra relación para rutas o vuelos específicos, proporcionará datos a la DGAC que muestren que la proporción alternativa de hombres a mujeres es conservadora y que cubre el 84%, como mínimo, de las proporciones reales de hombres a mujeres, en una muestra de un mínimo de 100 vuelos representativos.
+(5) Los valores estándar de peso revisados "todo adultos" deben basarse en una proporción de hombres a mujeres de 80/20 con respecto a todos los vuelos, excepto los "chárter de vacaciones" cuya proporción debe ser de 50/50. Si un operador desea obtener la aprobación para utilizar otra relación para rutas o vuelos específicos, proporcionará datos a la DGAC que muestren que la proporción alternativa de hombres a mujeres es conservadora y que cubre el 84%, como mínimo, de las proporciones reales de hombres a mujeres, en una muestra de un mínimo de 100 vuelos representativos.
 (6) Los valores medios de peso que se obtengan, se redondearán al número de kilos entero más próximo. Los valores de peso para el equipaje facturado se redondearán a la cifra más próxima de 0,5 kg, según proceda.
 Apéndice 1 del RAC-OPS 1.625. Documentación de peso y balance.
 (Ver CA al Apéndice 1 al RAC OPS 1.625)
@@ -2836,7 +2923,7 @@ Si se excede este límite debe prepararse una nueva documentación de peso y bal
 (c) Sistemas de abordo de peso y balance.
 El operador debe obtener la aprobación de la DGAC para utilizar un sistema computarizado a bordo de peso y balance como fuente primaria de despacho.
 (d) Enlace de datos. Cuando la documentación de peso y balance se transmita a los aviones por enlace de datos, debe disponerse en tierra de una copia de la documentación final de peso y balance aceptada por el piloto al mando.
-SUBPARTE K – INSTRUMENTOS Y EQUIPOS
+SUBPARTE K - INSTRUMENTOS Y EQUIPOS
 RAC-OPS 1.630 Introducción general.
 (Ver CA OPS 1.630)
 (a) El operador debe garantizar que no se comience un vuelo en una aeronave sin que ésta se encuentre equipada con instrumentos para que los miembros de la tripulación de vuelo puedan verificar la trayectoria de vuelo del avión, llevar a cabo cualquier maniobra requerida y observar las limitaciones de utilización de la aeronave; además los instrumentos y equipos requeridos en esta Subparte estén:
@@ -2943,11 +3030,12 @@ RAC-OPS 1.660 Sistema de alerta de altitud
 (a) Un operador no debe operar un avión turbohélice con un peso máximo certificado de despegue superior a 5,700 Kg, o con una configuración de más de 9 pasajeros, o un avión turborreactor a no ser que esté equipado con un sistema de alerta de altitud capaz de:
 (1) Alertar a la tripulación de vuelo al aproximarse a la altitud preseleccionada; y
 (2) Alertar a la tripulación de vuelo, como mínimo, mediante una señal audible al desviarse por encima o por debajo de una altitud preseleccionada.
-RAC-OPS 1.665 Sistema de advertencia de la proximidad del terreno (GPWS)
-(a) El operador no debe operar un avión de turbina con un peso máximo certificado de despegue de más de 5.700 kg. o con una configuración máxima aprobada de más de 9 asientos para pasajeros, a no ser que esté equipado con un sistema de advertencia de la proximidad del terreno que tenga una función frontal (alerta anticipada) de prevención del impacto contra el terreno.
-(b) Todos los aviones con motor a pistón (embolo), con un peso máximo certificado de despegue superior a 5700 Kg. o autorizado para transportar más de 9 pasajeros deben estar equipados con un sistema de advertencia de la proximidad del terreno que proporcione las advertencias previstas en el párrafo (d)(1) y (d)(3), la advertencia del margen vertical sobre el terreno que no es seguro, y que tenga una función frontal para evitar el impacto contra el terreno.
-(c) El sistema de advertencia de la proximidad del terreno debe proporcionar automáticamente una advertencia oportuna y clara que puede ser en forma audible que se pueden complementar con señales visuales a la tripulación de vuelo cuando la proximidad del avión con respecto a la superficie de la tierra sea potencialmente peligrosa.
-(d) El sistema de advertencia de proximidad al terreno debe proporcionar, a menos que se especifique otra cosa, advertencia sobre las siguientes circunstancias:
+(*)RAC-OPS 1.665 Sistema de advertencia de la proximidad del terreno (GPWS)
+(a) El operador no debe operar un avión de turbina con un peso máximo certificado de despegue de más de 5.700 kg. o con una configuración máxima aprobada de más de 9 asientos para pasajeros, a no ser que esté equipado con un sistema de advertencia de la proximidad del terreno que tenga una función de predicción de riesgos del terreno.
+(b) El operador implementará procedimientos de gestión de bases de datos que aseguren la distribución y actualización oportunas de los datos sobre terreno y obstáculos en el sistema de advertencia de la proximidad del terreno.
+(c) Todos los aviones con motor a pistón (embolo), con un peso máximo certificado de despegue superior a 5700 Kg. o autorizado para transportar más de 9 pasajeros deben estar equipados con un sistema de advertencia de la proximidad del terreno que proporcione las advertencias previstas en el párrafo (d)(1) y (d)(3), la advertencia del margen vertical sobre el terreno que no es seguro, y que tenga una función frontal para evitar el impacto contra el terreno.
+(d) El sistema de advertencia de la proximidad del terreno debe proporcionar automáticamente una advertencia oportuna y clara que puede ser en forma audible que se pueden complementar con señales visuales a la tripulación de vuelo cuando la proximidad del avión con respecto a la superficie de la tierra sea potencialmente peligrosa.
+(e) El sistema de advertencia de proximidad al terreno debe proporcionar, a menos que se especifique otra cosa, advertencia sobre las siguientes circunstancias:
 (1) Velocidad de descenso excesiva;
 (2) Velocidad de aproximación al terreno excesiva;
 (3) Pérdida de altitud excesiva después del despegue o ida al aire;
@@ -2955,6 +3043,7 @@ RAC-OPS 1.665 Sistema de advertencia de la proximidad del terreno (GPWS)
 (i) Tren de aterrizaje en posición abajo no asegurado;
 (ii) Flaps no configurado en posición de aterrizaje;
 (5) Descenso excesivo de la trayectoria de planeo por instrumentos.
+(*)(Así reformado el punto RAC-OPS 1.665 anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 RAC-OPS 1.668 Sistema anticolisión de a bordo.
 (Ver CA OPS 1.668)
 (a) El operador no debe operar un avión de turbina cuyo peso máximo certificado de despegue sea superior a 5700 kg, o que estén autorizados para transportar más de 19 pasajeros a no ser que esté equipado con un sistema de anticolisión de a bordo con un nivel mínimo de performance de al menos ACAS II. El cual debe funcionar de conformidad con las disposiciones pertinentes del anexo 10 de OACI, volumen IV.
@@ -3013,10 +3102,14 @@ RAC-OPS 1.700 Registradores de voz de cabina de mando (CVR) y sistemas registrad
 (Ver CA OPS 1.700 (h)/(i))
 (a) El operador debe garantizar que todos sus aviones de turbina con un peso máximo certificado de despegue de más de 2 250 Kg, hasta 5 700 Kg inclusive, cuya solicitud de certificación de tipo se haya presentado a un Estado contratante el 1 de enero de 2016, o a partir de esa fecha, y que requieran de más de un piloto para su operación estén equipados con un CVR o un CARS.
 (b) Todos los operadores deben garantizar, con respecto a los aviones a operar, lo siguiente:
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (1) Todos los aviones que tengan una masa máxima certificada de despegue superior a 5 700 kg y cuyo certificado de aeronavegabilidad individual se haya expedido por primera vez el 1 de enero de 1987, o a partir de esa fecha, estarán equipados con CVR.
 (2) Todos los aviones de turbina cuyo certificado de aeronavegabilidad individual se haya expedido por primera vez antes del 1 de enero de 1987, que tengan una masa máxima certificada de despegue superior a 27 000 kg y cuyo prototipo haya sido certificado por la autoridad nacional competente después del 30 de septiembre de 1969, estarán equipados con un CVR.
 (3) Los CVR, requeridos en los párrafos (a), (b) (1) y (b) (2) anteriores, deben ser capaces de conservar la información registrada durante al menos las últimas dos horas de su funcionamiento.
-(4) Todos los aviones que tengan una masa máxima certificada de despegue de más de 27 000 kg y cuyo certificado de aeronavegabilidad individual se haya expedido por primera vez el 1 de enero de 2021, o a partir de esa fecha, deberán estar equipados con un CVR capaz de conservar la información registrada durante al menos las últimas veinticinco horas de su funcionamiento.
+(4) Todos los aviones que tengan una masa máxima certificada de despegue de más de 27 000 kg y cuyo certificado de aeronavegabilidad individual se haya expedido por primera vez el 1 de enero de 2022, o a partir de esa fecha, deberán estar equipados con un CVR capaz de conservar la información registrada durante al menos las últimas veinticinco horas de su funcionamiento.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(5) Todos los aviones que deban estar equipados con un CARS y cuyo certificado de aeronavegabilidad individual se hayan expedido por primera vez el 1 de enero de 2025 o después contarán con un CARS capaz de conservar la información registrada durante al menos las dos últimas horas de su funcionamiento.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (c) El CVR con referencia a la escala de tiempo debe registrar:
 (1) Comunicaciones orales transmitidas o recibidas por radio en la cabina de mando;
 (2) El sonido ambiente de la cabina de mando, incluyendo, sin interrupción, las señales recibidas de cada micrófono de boom y de máscara que se utilice;
@@ -3066,14 +3159,17 @@ RAC OPS 1.720 Recuperación de los datos de los registradores de vuelo.
 RAC OPS 1.725 Registradores de vuelo- comunicaciones por enlace de datos
 (Ver Apéndice 1 al RAC OPS 1.715)
 El operador debe garantizar que sus aviones cumplan con lo siguiente:
-(a) Los aviones cuyo certificado de aeronavegabilidad individual se haya expedido por primera vez el 1 de enero de 2016, o a partir de esa fecha, que utilicen cualquiera de las aplicaciones para establecer comunicaciones por enlace de datos enumeradas en el párrafo (a) (2) del Apéndice 1 al RAC OPS 1.715 y que deban llevar un CVR, deben grabar en un registrador de vuelo todos los mensajes de comunicaciones por enlace de datos.
-(b) Los aviones que el 1 de enero de 2016, o a partir de esa fecha, hayan sido modificados para poder instalar y utilizar en ellos cualquiera de las aplicaciones para establecer comunicaciones por enlace de datos enumeradas en el párrafo (a)(2) del Apéndice 1 al RAC OPS 1.715 y que deban llevar un CVR deben grabar en un registrador de vuelo los mensajes de comunicaciones por enlace de datos.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(a) Los aviones cuyo certificado de aeronavegabilidad individual se haya expedido por primera vez el 1 de enero de 2016, o a partir de esa fecha, que usen cualquiera de las aplicaciones para establecer comunicaciones por enlace de datos mencionadas en el párrafo (a) (2) del Apéndice 1 al RAC OPS 1.715 y que deban llevar un CVR, deben grabar en un registrador de vuelo protegido contra accidentes los mensajes de comunicaciones por enlace de datos.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(b) Los aviones cuyo certificado de aeronavegabilidad individual se haya expedido por primera vez antes del 1 de enero de 2016, que deban llevar un CVR y que hayan sido modificados el 1 de enero de 2016, o a partir de esa fecha, para poder instalar y utilizar en ellos cualquiera de las aplicaciones para establecer comunicaciones por enlace de datos mencionadas en el párrafo (a)(2) del Apéndice 1 al RAC OPS 1.715 deben grabar en un registrador de vuelo protegido contra accidentes los mensajes de comunicaciones por enlace de datos a menos que el equipo de comunicaciones usado para ese propósito sea compatible con un certificado de tipo o modificación de aeronave que se haya aprobado por primera vez en fecha anterior al 1 de enero de 2016.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (c) La duración mínima del registro debe ser equivalente a la duración del CVR.
 (d) Los registros de enlace de datos deben poder correlacionarse con los registros de audio de la cabina de mando.
 (e) Los datos se deben obtener de fuentes en el avión que permitan su correlación precisa con la información que se presenta a la tripulación y se debe grabar la información que sea suficiente para inferir el contenido del mensaje y cuando sea posible, la hora en que el mensaje se presentó a la tripulación o bien la hora en que ésta lo generó.
 RAC-OPS 1.727 Registradores de Vuelo
 (Ver Apéndice 1 a la RAC-OPS 1.715)
-Los requisitos generales que los registradores de vuelo deben cumplir en concordancia con las disposiciones de OACI en esta materia se encuentran en el Apéndice 1 a la RAC – OPS 1.715. La DGAC de Costa Rica considera de obligatorio cumplimiento para estos dispositivos. Los requisitos contenidos en esta RAC-OPS 1 y sus apéndices sustituyen a los requisitos contenidos en la RAC OPS 1 vigente, a la fecha de publicación de la presente.
+Los requisitos generales que los registradores de vuelo deben cumplir en concordancia con las disposiciones de OACI en esta materia se encuentran en el Apéndice 1 a la RAC - OPS 1.715. La DGAC de Costa Rica considera de obligatorio cumplimiento para estos dispositivos. Los requisitos contenidos en esta RAC-OPS 1 y sus apéndices sustituyen a los requisitos contenidos en la RAC OPS 1 vigente, a la fecha de publicación de la presente.
 RAC-OPS 1.728 Registros de la interfaz tripulación de vuelo-máquina
 (Ver Apéndice 1 a la RAC-OPS 1.715)
 (a) Todos los aviones con una masa máxima de despegue de más de 27 000 kg cuya solicitud de certificación de tipo se presente a un Estado contratante el 1 de enero de 2023, o a partir de esa fecha, deben estar equipados con un registrador de vuelo protegido contra accidentes, el cual registrará la información que se muestra a la tripulación de vuelo en las pantallas electrónicas, así como la operación por parte de la tripulación de vuelo de los interruptores y selectores, como se define en el Apéndice 1 de 1.715.
@@ -3093,7 +3189,7 @@ RAC-OPS 1.731 Señales de uso de cinturones y de no fumar
 El operador no debe operar un avión en el que todos los asientos de los pasajeros no sean visibles desde la cabina de mando a no ser que esté equipado con medios que permitan indicar a todos los pasajeros, y a la tripulación de cabina, cuándo se deben usar los cinturones y cuándo no se permite fumar.
 RAC-OPS 1.735 Puertas interiores y cortinas
 (a) El operador no debe operar un avión a no ser que esté instalado el siguiente equipo:
-(1) En un avión con una configuración máxima aprobada de más de 19 asientos para pasajeros, una puerta entre el compartimiento de pasajeros y la cabina de mando con un letrero en español e inglés que diga "sólo tripulación/crew only” y un sistema de cierre que impida a los pasajeros abrirla sin la autorización de un miembro de la tripulación de vuelo;
+(1) En un avión con una configuración máxima aprobada de más de 19 asientos para pasajeros, una puerta entre el compartimiento de pasajeros y la cabina de mando con un letrero en español e inglés que diga "sólo tripulación/crew only" y un sistema de cierre que impida a los pasajeros abrirla sin la autorización de un miembro de la tripulación de vuelo;
 (2) Un medio para abrir cada puerta que separe un compartimiento de pasajeros de otro compartimiento que esté provisto de salida de emergencia. El sistema de apertura debe ser de fácil acceso;
 (3) Si es necesario pasar por una puerta o cortina que separe la cabina de pasajeros de otras zonas para llegar a cualquier salida de emergencia requerida, de cualquier asiento para pasajeros, la puerta o cortina debe disponer de un medio para sujetarla en posición abierta;
 (4) Un letrero en cada puerta interna o al lado de una cortina por la que se acceda a una salida de emergencia para pasajeros, que indicará que se debe sujetar en posición abierta durante el despegue y el aterrizaje; y
@@ -3147,7 +3243,7 @@ Bajo estas circunstancias, esta altitud de presión máxima demostrada de la cab
 (iii) En los aviones que pretendan operar a altitudes presión arriba de 25 000 pies, se dispondrá de una unidad dispensadora de oxígeno conectada a las terminales de suministro de oxígeno inmediatamente disponibles para cada ocupante, con independencia de dónde esté sentado. El número total de equipos de distribución y tomas excederá el número de asientos al menos en un 10%. Las unidades adicionales estarán distribuidas uniformemente por la cabina.
 (iv) Todos los aviones que pretendan operar a altitudes presión por encima de 25 000 pies o hasta 25 000 pies y que no puedan descender con seguridad en 4 minutos hasta 13 000 pies, estarán provistos de equipos de oxígeno desplegables automáticamente, disponibles inmediatamente para cada ocupante, en cualquier sitio donde estén sentados. El número total de unidades dispensadoras y tomas excederá al menos en un 10% al número de asientos. Las unidades extra estarán distribuidas uniformemente a lo largo de la cabina.
 (v) Los requisitos de suministro de oxígeno, según se especifican en el Apéndice 1 de esta sección, para aviones que no estén certificados para volar a altitudes presión arriba de 25000 pies, se puede reducir al tiempo de vuelo total entre las altitudes presión de la cabina de 10 000 pies y 13 000 pies, para todos los miembros de la tripulación de cabina de pasajeros requeridos y para el 10% de los pasajeros como mínimo, siempre que, en todos los puntos de la ruta, el avión pueda descender con seguridad en 4 minutos a una altitud de presión de cabina de 13.000 pies. (Ver CA OPS 1.770 (b) (2) (v)).
-RAC-OPS 1.775 Oxígeno suplementario – Aviones-no presurizados.
+RAC-OPS 1.775 Oxígeno suplementario - Aviones-no presurizados.
 (Véase Apéndice 1 de RAC-OPS 1.775)
 (a) Generalidades.
 (1) El operador no debe operar un avión no presurizado por encima de 10 000 pies, a no ser que disponga de equipos de oxígeno suplementario, que sean capaces de almacenar y dispensar el oxígeno requerido, si está instalado.
@@ -3192,7 +3288,6 @@ RAC-OPS 1.795 Hacha y palanca de pivote (crowbar)
 RAC-OPS 1.800 Marcas de puntos de rotura.
 (Ver CA OPS 1.800)
 El operador debe garantizar que, si el fabricante ha designado áreas del fuselaje adecuadas para que penetren las brigadas de salvamento en caso de emergencia, éstas se marquen según se indica a continuación. Las marcas deben ser de color rojo o amarillo, y si fuera necesario se deben perfilar en blanco para contrastar con el fondo. Si las marcas de esquina distan más de 2 metros entre sí, se deben insertar líneas intermedias de 9 cm. x 3 cm. para que las marcas adyacentes no disten más de 2 metros entre sí.
-[imagen]
 Esta regulación no exige que un avión tenga zonas de penetración del fuselaje.
 RAC-OPS 1.805 Medios para la evacuación de emergencia
 (a) El operador no debe operar un avión con alturas de salidas de emergencia de pasajeros:
@@ -3237,15 +3332,18 @@ RAC-OPS 1.820 Transmisor de localización de emergencia (ELT)
 (3) Estén registrados en la entidad nacional responsable del inicio de las operaciones de búsqueda y salvamento, o la entidad correspondiente del Estado.
 RAC-OPS 1.822 Localización de un avión en peligro
 (Ver Apéndice 1 al RAC-OPS 1.822) (Ver CA OPS 1.822)
-(a) Todos los aviones con una masa máxima certificada de despegue superior a 27 000 kg, cuyo certificado de aeronavegabilidad individual se haya expedido por primera vez el 1 de enero de 2021, o a partir de esa fecha, cuando se encuentren en peligro, deben transmitir de forma autónoma información a partir de la cual el operador pueda determinar su posición por lo menos una vez por minuto, de conformidad con el Apéndice 1 al RAC-OPS 1.822.
+(a) Todos los aviones con una masa máxima certificada de despegue superior a 27 000 kg, cuyo certificado de aeronavegabilidad individual se haya expedido por primera vez el 1 de enero de 2023, o a partir de esa fecha, cuando se encuentren en peligro, deben transmitir de forma autónoma información a partir de la cual el operador pueda determinar su posición por lo menos una vez por minuto, de conformidad con el Apéndice 1 al RAC-OPS 1.822.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (b) El operador debe poner a disposición de las organizaciones competentes la información relativa a la posición de un vuelo en peligro, según lo establecido por el Estado del operador.
 RAC-OPS 1.825 Chalecos salvavidas
 (Ver CA OPS 1.825)
-(a) Aviones terrestres. El operador no debe operar un avión terrestre:
-(1) Cuando sobrevuele el agua y a una distancia mayor de 50 millas náuticas de la costa; en el caso de aviones terrestres que operen de conformidad con RAC-OPS 1.500 o RAC-OPS 1.505, o
+(*)(a) Aviones terrestres. El operador no debe operar un avión terrestre:
+(1) Cuando sobrevuele el agua y a una distancia mayor de 50 millas náuticas de la costa; en el caso de aviones terrestres que operen de conformidad con RAC-OPS 1.500 o RACOPS 1.505, o
 (2) Cuando vuelen en ruta sobre el agua a una distancia de la costa superior a la de planeo, en el caso de todos los demás aviones terrestres; o
 (3) Cuando despegue o aterrice en un aeródromo cuya trayectoria de despegue o aproximación esté situada por encima del agua, de forma tal que en el caso de un problema exista la probabilidad de ser necesario un acuatizaje forzoso.
 A no ser que esté equipado, para cada persona a bordo, con chalecos salvavidas provisto con una luz de localización de supervivientes. Cada chaleco salvavidas debe estar situado en una posición de fácil acceso desde el asiento o litera de la persona que lo ha de utilizar. Los chalecos salvavidas para infantes deben abordarse cuando se transporten infantes, los que pueden sustituirse por otros dispositivos de flotación aprobados y equipados con una luz de localización de supervivientes.
+En el caso de los asientos o literas de los compartimientos de descanso de la tripulación se requerirán chalecos salvavidas accesibles desde esos puntos únicamente si los asientos o literas en cuestión están certificados para ser usados durante el despegue o el aterrizaje.
+(*)(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (b) Hidroaviones y aviones anfibios. El operador debe operar un hidroavión, o avión anfibio en el agua a no ser que esté equipado con chalecos salvavidas provistos de una luz de localización de supervivientes, para cada persona a bordo. Cada chaleco salvavidas debe estar situado en una posición de fácil acceso desde el asiento o litera de la persona que lo ha de utilizar. Los chalecos salvavidas para infantes se pueden sustituir por otros dispositivos de flotación aprobados y equipados con una luz de localización de supervivientes.
 RAC-OPS 1.830 Balsas salvavidas y ELTs de supervivencia para vuelos prolongados sobre agua
 (Ver CA OPS 1.830(b) (2)). (Ver CA OPS 1.830 (c) CA OPS 1.830 (e))
@@ -3275,7 +3373,7 @@ RAC-OPS 1.840 Hidroaviones y aviones anfibios - Equipos varios.
 (2) Equipos para efectuar las señales acústicas prescritas en el Reglamento Internacional para evitar colisiones en el mar, en su caso.
 RAC- OPS 1.843 Sistema de aviso de altitud de cabina
 Los aviones con cabina presurizada que vuelan a altitudes en las cuales la presión atmosférica es menor de presión para volar a altitudes en las cuales la presión atmosférica es menor de 376 hPa (mayor de 7 600 metros o 25 000 pies) deben estar equipados con un dispositivo que proporcione a la tripulación de vuelo una inconfundible y positiva señal de advertencia en caso de pérdida peligrosa de la presurización.
-RAC- OPS 1.844 Sistemas de aterrizaje automático, Pantalla de visualización frontal “HUD head up display” o visualizadores equivalentes, sistemas de visión mejorada (EVS), sistemas de visión sintética (SVS) o sistemas de visión combinados (CVS). (Ver CA OPS 1.844)
+RAC- OPS 1.844 Sistemas de aterrizaje automático, Pantalla de visualización frontal "HUD head up display" o visualizadores equivalentes, sistemas de visión mejorada (EVS), sistemas de visión sintética (SVS) o sistemas de visión combinados (CVS). (Ver CA OPS 1.844)
 (a) El operador no debe operar aviones equipados con sistemas de aterrizaje automático, HUD o visualizadores equivalentes, EVS, SVS o CVS o cualquier combinación de esos sistemas en un sistema híbrido, a no ser que estén aprobados por la DGAC para el uso de estos sistemas para la operación segura de sus aviones.
 (b) Al aprobar el uso operacional de sistemas de aterrizajes automáticos, HUD o visualizadores equivalentes, EVS, SVS o CVS, el Estado del operador se asegurará de que:
 (1) el equipo satisface los requisitos apropiados en materia de certificación de la aeronavegabilidad;
@@ -3287,7 +3385,8 @@ RAC- OPS 1.848 Maletines de Vuelo electrónicos (EFB).
 (1) evaluar los riesgos de seguridad operacional relacionados con cada función EFB;
 (2) establecer y documentar los procedimientos de uso y los requisitos de instrucción correspondientes al dispositivo y a cada función EFB; y
 (3) asegurarse de que, en caso de falla del EFB, la tripulación de vuelo dispone rápidamente de información suficiente para que el vuelo se realice en forma segura.
-(c) Aprobación Operacional. La DGAC verificará mediante un proceso de aprobación para el uso de EFB, que:
+(c) La DGAC expedirá una aprobación específica para el uso operacional de las funciones EFB que se emplearán para la operación segura de los aviones, verificando que:
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (1) el equipo EFB y su soporte físico de instalación conexo, incluyendo la interacción con los sistemas del avión si corresponde, satisfacen los requisitos de certificación de la aeronavegabilidad apropiados;
 (2) el operador ha evaluado los riesgos de seguridad relacionados con las operaciones apoyadas por las funciones EFB;
 (3) el operador ha establecido requisitos para la redundancia de la información (si corresponde) contenidos en las funciones EFB y presentados por las mismas;
@@ -3301,21 +3400,20 @@ Cuando se utilicen las siguientes expresiones en este Apéndice tendrán los sig
 (2) El ángulo de cobertura F es el formado por dos planos verticales que se cortan, formando ángulos de 110E a la derecha y 110E a la izquierda, respectivamente, con el plano vertical que pasa por el eje longitudinal cuando se mira hacia adelante a lo largo del eje longitudinal.
 (3) El ángulo de cobertura L es el formado por dos planos verticales que se cortan, uno de ellos paralelo al eje longitudinal del avión y el otro, 110E a la izquierda del primero, cuando se mira hacia adelante a lo largo del eje longitudinal.
 (4) El ángulo de cobertura R es el formado por dos planos verticales que se cortan, uno de ellos paralelo al eje longitudinal del avión y el otro 110E a la derecha del primero, cuando se mira hacia adelante a lo largo del eje longitudinal.
-Avanzando. Se dice que un avión que se halle sobre la superficie del agua está “avanzando” cuando se halla en movimiento y tiene una velocidad respecto al agua.
-Bajo mando. Se dice que un avión que se halle sobre la superficie del agua está “bajo mando”, cuando puede ejecutar las maniobras exigidas por el Reglamento internacional para prevenir los abordajes en el mar, a fin de evitar otras naves.
+Avanzando. Se dice que un avión que se halle sobre la superficie del agua está "avanzando" cuando se halla en movimiento y tiene una velocidad respecto al agua.
+Bajo mando. Se dice que un avión que se halle sobre la superficie del agua está "bajo mando", cuando puede ejecutar las maniobras exigidas por el Reglamento internacional para prevenir los abordajes en el mar, a fin de evitar otras naves.
 Eje longitudinal del avión. Es el eje que se elija paralelo a la dirección de vuelo a la velocidad normal de crucero, y que pase por el centro de gravedad del avión.
-En movimiento. Se dice que un avión que se halle sobre la superficie del agua está “en movimiento” cuando no está varado ni amarrado a tierra ni a ningún objeto fijo en tierra o en el agua.
+En movimiento. Se dice que un avión que se halle sobre la superficie del agua está "en movimiento" cuando no está varado ni amarrado a tierra ni a ningún objeto fijo en tierra o en el agua.
 Plano horizontal. Es el plano que comprende el eje longitudinal y es perpendicular al plano de simetría del avión.
 Planos verticales. Son los planos perpendiculares al plano horizontal. Visible. Dícese de un objeto visible en una noche oscura con atmósfera diáfana.
 (b) Luces de navegación que deben ostentarse en el aire
-Nota. — Las luces que aquí se especifican tienen por objeto satisfacer los requisitos del RAC- 20 Reglas del Aire en materia de luces de navegación. Como se ilustra en la Figura 1, deberán ostentarse las siguientes luces sin obstrucción:
+Nota. - Las luces que aquí se especifican tienen por objeto satisfacer los requisitos del RAC- 20 Reglas del Aire en materia de luces de navegación. Como se ilustra en la Figura 1, deberán ostentarse las siguientes luces sin obstrucción:
 (1) una luz roja proyectada por encima y por debajo del plano horizontal en el ángulo de cobertura L;
 (2) una luz verde proyectada por encima y por debajo del plano horizontal en el ángulo de cobertura R;
 (3) una luz blanca proyectada por encima y por debajo del plano horizontal, hacia atrás, en el ángulo de cobertura A.
-[imagen]
 (c) Luces que deben ostentar los aviones en el agua.
 (1).Generalidades
-Nota. — Las luces que aquí se especifican tienen por objeto satisfacer los requisitos del Anexo 2 correspondientes a las luces que deben ostentar los aviones en el agua.
+Nota. - Las luces que aquí se especifican tienen por objeto satisfacer los requisitos del Anexo 2 correspondientes a las luces que deben ostentar los aviones en el agua.
 El Reglamento internacional para prevenir los abordajes en el mar exige que se ostenten luces distintas en cada una de las siguientes circunstancias:
 (i) cuando el avión esté en movimiento,
 (ii) cuando remolque otra nave o avión;
@@ -3332,51 +3430,52 @@ Como se ilustra en la Figura 2, las siguientes luces aparecen como luces fijas s
 (iii) una luz blanca proyectada por encima y por debajo del plano horizontal, a través del ángulo de cobertura A; y
 (iv) una luz blanca proyectada a través del ángulo de cobertura F.
 Las luces descritas en (2)(i), (ii) y (iii) deberían ser visibles a una distancia de por lo menos 3,7 km (2 NM). La luz descrita en (2) (iv) debería ser visible a una distancia de 9,3 km (5 NM) cuando se fije a un avión de 20 m o más de longitud, o visible a una distancia de 5,6 km (3 NM) cuando se fije a un avión de menos de 20 m de longitud.
-[imagen]
 (3) Cuando remolque otra nave o avión
 Como se ilustra en la Figura 3, las siguientes luces aparecen como luces fijas sin obstrucción:
 (i). las luces descritas en (2);
 (ii). una segunda luz que tenga las mismas características de la luz descrita en (2)(iv) y que se encuentre montada en una línea vertical por lo menos 2 m por encima o por debajo de la misma; y
 (iii). una luz amarilla que tenga, en otra forma, las mismas características de la luz descrita en (2) (iii) y que se encuentre montada sobre una línea vertical por lo menos 2 m por encima de la misma
-[imagen]
 (4) Cuando el avión sea remolcado
 Las luces descritas en (2)(i),(ii) y (iii) aparecen como luces fijas sin obstrucción.
 (5) Cuando el avión no esté bajo mando y no esté avanzando
 Como se ilustra en la Figura 4, dos luces rojas fijas colocadas donde puedan verse mejor, una verticalmente sobre la otra y a no menos de 1 m de distancia una de otra, y de dicha característica como para ser visible alrededor de todo el horizonte a una distancia de por lo menos 3,7 km (2 NM).
-[imagen]
 (6) Cuando el avión esté avanzando, pero no bajo mando
 Como se ilustra en la Figura 5, las luces descritas en (5) más las descritas en (2)(i),(ii) y (iii).
-Nota. — La presentación de las luces prescritas en (5) y (6) anteriores, ha de ser considerada por las demás aeronaves como señales de que el avión que las ostenta no se encuentra bajo mando y no puede, por lo tanto, salirse del camino. No son señales de avión en peligro que requiere ayuda.
-[imagen]
+Nota. - La presentación de las luces prescritas en (5) y (6) anteriores, ha de ser considerada por las demás aeronaves como señales de que el avión que las ostenta no se encuentra bajo mando y no puede, por lo tanto, salirse del camino. No son señales de avión en peligro que requiere ayuda.
 (7) Cuando el avión esté anclado
 (i) Si el avión tiene menos de 50 m de longitud, ostentará una luz blanca fija (Figura 6) en el lugar que sea más visible desde todos los puntos del horizonte, a una distancia de por lo menos 3,7 km (2 NM).
 [imagen]
 (ii) Si el avión tiene 50 m de longitud, o más, ostentará en los lugares en que sean más visibles una luz blanca fija, en la parte delantera y otra luz blanca fija en la trasera (Figura 7), ambas visibles desde todos los puntos del horizonte, a una distancia de por lo menos 5,6 km (3 NM).
-[imagen]
 (iii) Si el avión tiene 50 m o más de envergadura, ostentará una luz blanca fija a cada lado (Figuras 8 y 9) para señalar su envergadura máxima, ambas luces visibles, en lo posible, desde todos los puntos del horizonte a una distancia de por lo menos1,9 km (1 NM).
-[imagen]
-[imagen]
 (8) Cuando esté varado
 Ostentará las luces prescritas en (7) y además dos luces rojas fijas colocadas verticalmente una sobre la otra a una distancia no menor de 1 m y de manera que sean visibles desde todos los puntos del horizonte.
-Apéndice 1 al RAC-OPS 1.715 Registradores de Vuelo
+(*)Apéndice 1 al RAC-OPS 1.715 Registradores de Vuelo
 En este Apéndice al RAC-OPS 1.715 se presentan los requisitos que los registradores de datos de vuelo deben cumplir en concordancia con las disposiciones de OACI en esta materia, la DGAC de Costa Rica considera de obligatorio cumplimiento para estos dispositivos.
-El texto del presente apéndice se aplica a los registradores de vuelo que se instalen en aviones que participen en operaciones de navegación aérea internacional. Los registradores de vuelo protegidos contra accidentes comprenden uno o más de los siguientes sistemas:
-• un registrador de datos de vuelo (FDR),
-• un registrador de la voz en el puesto de pilotaje (CVR),
-• un registrador de imágenes de a bordo (AIR),
-• un registrador de enlace de datos (DLR).
-Los registradores de vuelo livianos comprenden uno o más de los siguientes sistemas:
-• un sistema registrador de datos de aeronave (ADRS),
-• un sistema registrador de audio en el puesto de pilotaje (CARS),
-• un sistema registrador de imágenes de a bordo (AIRS),
-• un sistema registrador de enlace de datos (DLRS).
+El texto del presente apéndice se aplica a los registradores de vuelo que se instalen en aviones que participen en operaciones de navegación aérea internacional. Los registradores de vuelo protegidos contra accidentes comprenden uno o más de los siguientes:
+. un registrador de datos de vuelo (FDR),
+. un registrador de la voz en el puesto de pilotaje (CVR),
+. un registrador de imágenes de a bordo (AIR),
+. un registrador de enlace de datos (DLR).
+La información de imágenes y enlace de datos podrá registrarse en el CVR o en el FDR.
+Los registradores de vuelo livianos comprenden uno o más de los siguientes:
+. un sistema registrador de datos de aeronave (ADRS),
+. un sistema registrador de audio en el puesto de pilotaje (CARS),
+. un sistema registrador de imágenes de a bordo (AIRS),
+. un sistema registrador de enlace de datos (DLRS).
+La información de imágenes y enlace de datos podrá registrarse en el CARS o en el ADRS.
 (a) REQUISITOS GENERALES
-(1) Los recipientes que contengan los registradores de vuelo no desprendibles estarán pintados de un color anaranjado distintivo.
-(2) Los recipientes que contengan los registradores de vuelo no desprendibles protegidos contra accidentes:
+(1) Los recipientes que contengan los registradores de vuelo no desprendibles estarán
+pintados de un color anaranjado distintivo.
+(2) Los recipientes que contengan los registradores de vuelo no desprendibles protegidos
+contra accidentes:
 (i) llevarán materiales reflectantes para facilitar su localización; y
-(ii) llevarán perfectamente sujetado a ellos un dispositivo automático de localización subacuática que funcione a una frecuencia de 37,5 kHz. Lo antes posible, pero a más tardar el 1 de enero de 2018, este dispositivo funcionará durante un mínimo de 90 días.
+(ii) llevarán perfectamente sujetado a ellos un dispositivo automático de localización
+subacuática que funcione a una frecuencia de 37,5 kHz. Lo antes posible, pero a más
+tardar el 1 de enero de 2018, este dispositivo funcionará durante un mínimo de 90
+días.
 (3) Los recipientes que contengan los registradores de vuelo de desprendimiento automático:
-(i) estarán pintados de un color anaranjado distintivo; sin embargo, la superficie visible desde afuera de la aeronave podrá ser de otro color;
+(i) estarán pintados de un color anaranjado distintivo; sin embargo, la superficie visible
+desde afuera de la aeronave podrá ser de otro color;
 (ii) llevarán materiales reflectantes para facilitar su localización; y
 (iii) llevarán un ELT integrado de activación automática.
 (4) Los sistemas registradores de vuelo se instalarán de manera que:
@@ -3384,23 +3483,26 @@ Los registradores de vuelo livianos comprenden uno o más de los siguientes sist
 (ii) exista un dispositivo auditivo o visual para comprobar antes del vuelo que los sistemas registradores de vuelo están funcionando bien;
 (iii) si los sistemas registradores de vuelo cuentan con un dispositivo de borrado, la instalación procurará evitar que el dispositivo funcione durante el vuelo o durante un choque; y
 (iv) en los aviones cuyo certificado individual de aeronavegabilidad se expida por primera vez el 1 de enero de 2023, o a partir de esa fecha, se disponga en el puesto de pilotaje de una función de borrado accionada por la tripulación de vuelo que, al ser activada, modifique la grabación de un CVR y un AIR de manera que no pueda recuperarse la información utilizando técnicas normales de reproducción o copia. La instalación se diseñará de manera que no pueda activarse durante el vuelo. Asimismo, se reducirá al mínimo la probabilidad de que se active inadvertidamente la función de borrado durante un accidente.
-Nota. — La función de borrado tiene por objeto evitar el acceso a los registros de CVR y AIR utilizando los medios normales de reproducción o copia, pero no impediría el acceso de las autoridades de investigación de accidentes a tales registros mediante técnicas especializadas de reproducción o copia.
-(5) Los sistemas registradores de vuelo se instalarán de manera que reciban energía eléctrica de una barra colectora que ofrezca la máxima confiabilidad para el funcionamiento de los sistemas registradores de vuelo sin comprometer el servicio de las cargas esenciales o de emergencia.
-(6) Cuando los sistemas registradores de vuelo se sometan a ensayos mediante los métodos aprobados por la autoridad certificadora competente, deberán demostrar que se adaptan perfectamente a las condiciones ambientales extremas en las que se prevé que funcionen.
-(7) Se proporcionarán medios para lograr una precisa correlación de tiempo entre los registros de los sistemas registradores de vuelo.
-(8) El fabricante proporcionará a la autoridad certificadora competente la siguiente información relativa a los sistemas registradores de vuelo:
-(i) instrucciones de funcionamiento, limitaciones del equipo y procedimientos de
-instalación establecidos por el fabricante;
-(ii) origen o fuente de los parámetros y ecuaciones que relacionen los valores con unidades de medición; y
-(iii) informes de ensayos realizados por el fabricante.
-(b) REGISTRADOR DE DATOS DE VUELO (FDR) Y SISTEMAS REGISTRADORES DE DATOS DE AERONAVE (ADRS)
+Nota. - La función de borrado tiene por objeto evitar el acceso a los registros de CVR y AIR utilizando los medios normales de reproducción o copia, pero no impediría el acceso de las autoridades de investigación de accidentes a tales registros mediante técnicas especializadas de reproducción o copia.
+(5) Los registradores de vuelo protegidos contra accidentes se instalarán de manera que reciban energía eléctrica de una barra colectora que ofrezca la máxima confiabilidad para el funcionamiento de los registradores de vuelo sin comprometer el servicio de las cargas esenciales o de emergencia.
+(6) Los registradores de vuelo livianos se conectarán a una fuente de alimentación que tenga características que garanticen el registro apropiado y fiable en el entorno operacional.
+(7) Cuando los sistemas registradores de vuelo se sometan a ensayos mediante los métodos aprobados por la autoridad certificadora competente, deberán demostrar que se adaptan perfectamente a las condiciones ambientales extremas en las que se prevé que funcionen.
+(8) Se proporcionarán medios para lograr una precisa correlación de tiempo entre los registros de los sistemas registradores de vuelo.
+(9) El fabricante proporcionará a la autoridad certificadora competente la siguiente información relativa a los sistemas registradores de vuelo:
+(i)instrucciones de funcionamiento, limitaciones del equipo y procedimientos de instalación establecidos por el fabricante;
+(ii)origen o fuente de los parámetros y ecuaciones que relacionen los valores con unidades de medición; y
+(iii)informes de ensayos realizados por el fabricante.
+(b) REGISTRADOR DE DATOS DE VUELO (FDR) Y SISTEMAS REGISTRADORES DE
+DATOS DE AERONAVE (ADRS)
 (1) ¿Cuándo iniciar y detener el registro?
 Los FDR o los ADRS comenzarán a registrar antes de que el avión empiece a desplazarse por su propia potencia y continuarán registrando hasta la finalización del vuelo cuando el avión ya no pueda desplazarse por su propia potencia.
 (2) Parámetros que han de registrarse
-(i) Los parámetros que satisfacen los requisitos para FDR se enumeran en la Tabla A8-1. El número de parámetros que han de registrarse dependerá de la complejidad del avión. Los parámetros que no llevan asterisco (*) son obligatorios y deberán registrarse, independientemente de la complejidad del avión. Además, los parámetros indicados con asterisco (*) se registrarán si los sistemas del avión o la tripulación de vuelo emplean una fuente de datos de información sobre el parámetro para la operación del avión. No obstante, dichos parámetros podrán sustituirse por otros teniendo en consideración el tipo de avión y las características del equipo registrador.
-(ii) Si se dispone de más capacidad de registro FDR, deberá considerarse el registro de la siguiente información suplementaria: (A) información operacional de los sistemas de presentación electrónica en pantalla, tales como los sistemas electrónicos de instrumentos de vuelo (EFIS), el monitor electrónico centralizado de aeronave (ECAM), y el sistema de alerta a la tripulación y sobre los parámetros del motor (EICAS). Utilícese el siguiente orden de prioridad:
+(i) Los parámetros que satisfacen los requisitos para FDR se enumeran en la Tabla A8-
+1. El número de parámetros que han de registrarse dependerá de la complejidad del avión. Los parámetros que no llevan asterisco (*) son obligatorios y deberán registrarse, independientemente de la complejidad del avión. Además, los parámetros indicados con asterisco (*) se registrarán si los sistemas del avión o la tripulación de vuelo emplean una fuente de datos de información sobre el parámetro para la operación del avión. No obstante, dichos parámetros podrán sustituirse por otros teniendo en consideración el tipo de avión y las características del equipo registrador.
+(ii) Si se dispone de más capacidad de registro FDR, deberá considerarse el registro de la siguiente información suplementaria:
+(A) información operacional de los sistemas de presentación electrónica en pantalla, tales como los sistemas electrónicos de instrumentos de vuelo (EFIS), el monitor electrónico centralizado de aeronave (ECAM), y el sistema de alerta a la tripulación y sobre los parámetros del motor (EICAS). Utilícese el siguiente orden de prioridad:
 a. los parámetros seleccionados por la tripulación de vuelo en relación con la trayectoria de vuelo deseada; por ejemplo, reglaje de la presión barométrica, altitud seleccionada, velocidad aerodinámica seleccionada, altura de decisión, y las indicaciones sobre acoplamiento y modo del sistema de piloto automático, si no se registran a partir de otra fuente;
-(B) selección/condición del sistema de presentación en pantalla, por ejemplo, SECTOR, PLAN, ROSE, NAV, WXR, COMPOSITE, COPY.;
+(B) selección/condición del sistema de presentación en pantalla, por ejemplo, SECTOR, PLAN, ROSE, NAV, WXR, COMPOSITE, COPY;
 (C) los avisos y las alertas;
 (D) la identidad de las páginas presentadas en pantalla para los procedimientos de emergencia y listas de verificación; y
 (iii) información sobre los sistemas de frenado, comprendida la aplicación de los frenos, con miras a utilizarla en la investigación de aterrizajes largos y despegues interrumpidos.
@@ -3417,8 +3519,9 @@ a. los parámetros seleccionados por la tripulación de vuelo en relación con l
 (x) Datos de navegación*: ángulo de deriva, velocidad del viento, dirección del viento,
 (xi) latitud/longitud
 (xii) Radio altitud*
-(4) Los parámetros que cumplen los requisitos para los ADRS se enumeran en la Tabla A8-3.
-(5) Información adicional
+(4) Los parámetros que cumplen los requisitos para los ADRS son los primeros siete que se enumeran en la Tabla A8-3.
+(5) De disponerse de mayor capacidad de registro en los ADRS, se considerará el registro de los parámetros 8 en adelante que figuran en la Tabla A8-3.
+(6) Información adicional
 (i) El intervalo de medición, el intervalo de registro y la precisión de los parámetros del equipo instalado se verificarán normalmente aplicando métodos aprobados por autoridad certificadora del equipo competente.
 (ii) El operador conservará la documentación relativa a la asignación de parámetros, ecuaciones de conversión, calibración periódica y otras informaciones sobre el funcionamiento/mantenimiento. La documentación debe ser suficiente para asegurar que las autoridades encargadas de la investigación de accidentes dispongan de la información necesaria para efectuar la lectura de los datos en unidades de medición técnicas.
 (c) REGISTRADOR DE LA VOZ EN EL PUESTO DE PILOTAJE (CVR) Y SISTEMA REGISTRADOR DE AUDIO EN EL PUESTO DE PILOTAJE (CARS)
@@ -3426,8 +3529,7 @@ a. los parámetros seleccionados por la tripulación de vuelo en relación con l
 El CVR o el CARS comenzarán a registrar antes de que el avión empiece a desplazarse por su propia potencia y continuarán registrando hasta la finalización del vuelo, cuando el avión ya no pueda desplazarse por su propia potencia. Además, dependiendo de la disponibilidad de energía eléctrica, el CVR o el CARS comenzarán a registrar lo antes posible durante la verificación del puesto de pilotaje previa al arranque del motor, al inicio del vuelo, hasta la verificación del puesto de pilotaje que se realiza al finalizar el vuelo, inmediatamente después de que se apaga el motor.
 (2) Señales que se registrarán
 (i) 3.2.1 El CVR registrará simultáneamente, en cuatro o más canales separados, por lo menos, lo siguiente:
-(A) comunicaciones orales transmitidas o recibidas en el avión por radio;
-(B) ambiente sonoro del puesto de pilotaje;
+(A) comunicaciones orales transmitidas o recibidas en el avión por radio; (B) ambiente sonoro del puesto de pilotaje;
 (C) comunicaciones orales de los miembros de la tripulación de vuelo en el puesto de pilotaje transmitidas por el intercomunicador del avión, cuando esté instalado dicho sistema;
 (D) señales orales o auditivas que identifiquen las ayudas para la navegación o la aproximación, recibidas por un auricular o altavoz; y
 (E) comunicaciones orales de los miembros de la tripulación de vuelo por medio del sistema de altavoces destinado a los pasajeros, cuando esté instalado dicho sistema.
@@ -3435,7 +3537,7 @@ El CVR o el CARS comenzarán a registrar antes de que el avión empiece a despla
 (A) tablero de audio del piloto al mando;
 (B) tablero de audio del copiloto;
 (C) puestos adicionales de la tripulación de vuelo y referencia horaria; y
-(D) micrófono del área del puesto de pilotaje.
+(D)micrófono del área del puesto de pilotaje.
 (iii) El CARS registrará simultáneamente, en dos o más canales separados, por lo menos lo siguiente:
 (A) comunicaciones orales transmitidas o recibidas en el avión por radio;
 (B) ambiente sonoro del puesto de pilotaje; y
@@ -3457,76 +3559,64 @@ Los siguientes requisitos se aplicarán al ADFR:
 (ix) la tripulación de vuelo no dispondrá de medios para desactivar el desprendimiento del ADFR cuando la aeronave esté en vuelo;
 (x) el ADFR contendrá un ELT integrado, que se activará automáticamente durante la secuencia de desprendimiento. Dicho ELT puede ser de un tipo que sea activado en vuelo y proporcione información a partir de la cual puede determinarse la posición; y
 (xi) el ELT integrado de un ADFR satisfará los mismos requisitos del ELT que debe instalarse en un avión. El ELT integrado tendrá, como mínimo, la misma performance que el ELT fijo para maximizar la detección de la señal transmitida.
-Nota 1.— Véase el Manual sobre localización de aeronaves en peligro y recuperación de los datos de los registradores de vuelo (Doc. 10054) para más amplia información sobre ADFR.
-Nota 2. — Si se utiliza dentro de un ADFR un ELT integrado de un tipo que se activa en vuelo, podría constituir un medio para satisfacer los requisitos del Capítulo RAC OPS 1.196
-(e) REGISTRADOR DE ENLACE DE DATOS (DLR)
+Nota 1.- Véase el Manual sobre localización de aeronaves en peligro y recuperación de los datos de los registradores de vuelo (Doc. 10054) para más amplia información sobre ADFR.
+Nota 2. - Si se utiliza dentro de un ADFR un ELT integrado de un tipo que se activa en vuelo, podría constituir un medio para satisfacer los requisitos del Capítulo RAC OPS 1.196 (e) REGISTRADOR DE ENLACE DE DATOS (DLR)
 (1) Aplicaciones que se registrarán
 (i) Cuando la trayectoria de vuelo de la aeronave haya sido autorizada o controlada mediante el uso de mensajes de enlace de datos, se registrarán en la aeronave todos los mensajes de enlace de datos, tanto ascendentes (enviados a la aeronave) como descendentes (enviados desde la aeronave). En la medida en que sea posible, se registrará la hora en la que se mostraron los mensajes en pantalla a los miembros de la tripulación de vuelo, así como la hora de las respuestas.
-Nota. — Es necesario contar con información suficiente para inferir el contenido de los mensajes de las comunicaciones por enlace de datos, y es necesario saber a qué hora se mostraron los mensajes a la tripulación de vuelo para determinar con precisión la secuencia de lo sucedido a bordo de la aeronave.
+Nota. - Es necesario contar con información suficiente para inferir el contenido de los mensajes de las comunicaciones por enlace de datos, y es necesario saber a qué hora se mostraron los mensajes a la tripulación de vuelo para determinar con precisión la secuencia de lo sucedido a bordo de la aeronave.
 (ii) Se registrarán los mensajes relativos a las aplicaciones que se enumeran en la Tabla A8-2. Las aplicaciones que aparecen sin asterisco (*) son obligatorias y deberán registrarse independientemente de la complejidad del sistema. Las aplicaciones que tienen asterisco (*) se registrarán en la medida en que sea factible, según la arquitectura del sistema.
 (f) REGISTROS DE LA INTERFAZ TRIPULACIÓN DE VUELO-MÁQUINA
 (1) ¿Cuándo iniciar y detener el registro?
 El AIR o AIRS comenzará a registrar antes de que el avión empiece a desplazarse por su propia potencia y continuará registrando hasta la finalización del vuelo, cuando el avión ya no pueda desplazarse por su propia potencia. Además, dependiendo de la disponibilidad de energía eléctrica, el AIR o AIRS comenzará a registrar lo antes posible durante la verificación del puesto de pilotaje previa al arranque del motor, al inicio del vuelo, hasta la verificación del puesto de pilotaje que se realiza al finalizar el vuelo, inmediatamente después de que se apaga el motor.
 (2) Clases
 (i) 6.2.1 Un AIR o AIRS de Clase A capta el área general del puesto de pilotaje para suministrar datos complementarios a los de los registradores de vuelo convencionales.
-Nota 1. — Para respetar la privacidad de la tripulación, la imagen que se captará del puesto de pilotaje podrá disponerse de modo tal que no se vean la cabeza ni los hombros de los miembros de la tripulación mientras están sentados en su posición normal durante la operación de la aeronave.
-Nota 2. — No hay disposiciones para los AIR o AIRS de Clase A en este documento.
+Nota 1. - Para respetar la privacidad de la tripulación, la imagen que se captará del puesto de pilotaje podrá disponerse de modo tal que no se vean la cabeza ni los hombros de los miembros de la tripulación mientras están sentados en su posición normal durante la operación de la aeronave.
+Nota 2. - No hay disposiciones para los AIR o AIRS de Clase A en este documento.
 (ii) 6.2.2 Un AIR o AIRS de Clase B capta las imágenes de los mensajes de enlace de datos.
 (iii) 6.2.3 Un AIR o AIRS de Clase C capta imágenes de los tableros de mandos e instrumentos.
-Nota. — Un AIR o AIRS de Clase C podrá considerarse como un medio para registrar datos de vuelo cuando no sea factible o bien cuando sea prohibitivamente oneroso registrarlos en un FDRo en un ADRS, o cuando no se requiera un FDR.
+Nota. - Un AIR o AIRS de Clase C podrá considerarse como un medio para registrar datos de vuelo cuando no sea factible o bien cuando sea prohibitivamente oneroso registrarlos en un FDR o en un ADRS, o cuando no se requiera un FDR.
 (3) Aplicaciones que se registrarán
 (i) La operación de los interruptores y selectores y la información que se muestra a la tripulación de vuelo en las pantallas electrónicas será captada por sensores u otros medios electrónicos.
 (ii) Los registros de la operación de los interruptores y selectores por parte de la tripulación de vuelo incluirán lo siguiente:
 a. cualquier interruptor o selector que afecte a la operación y la navegación de la aeronave; y
 b. la selección de sistemas normales y de reserva.
 (iii) Los registros de la información que se muestra a la tripulación de vuelo en las pantallas electrónicas incluirán:
-(A) pantallas principales de vuelo y navegación;
+(A)pantallas principales de vuelo y navegación;
 (B) pantallas de monitorización de los sistemas de la aeronave;
 (C) pantallas de indicación de los parámetros de los motores;
-(D) pantallas de presentación del tránsito, el terreno y las condiciones meteorológicas;
+(D)pantallas de presentación del tránsito, el terreno y las condiciones meteorológicas;
 (E) pantallas de los sistemas de alerta a la tripulación;
 (F) instrumentos de reserva; y
-(G) EFB instalados, en la medida en que resulte práctico.
+(G)EFB instalados, en la medida en que resulte práctico.
 (iv) Si se usan sensores de imagen, los registros de dichas imágenes no captarán la cabeza ni los hombros de los miembros de la tripulación de vuelo cuando estén sentados en su posición normal de operación.
 (g) INSPECCIONES DE LOS SISTEMAS REGISTRADORES DE VUELO
 (1) Antes del primer vuelo del día, los mecanismos integrados de prueba de los registradores de vuelo y el equipo de adquisición de datos de vuelo (FDAU), cuando estén instalados, se controlarán por medio de verificaciones manuales y/o automáticas.
-(2) Los sistemas FDR o ADRS, los sistemas CVR o CARS y los sistemas AIR o AIRS tendrán intervalos de inspección del registro de un año; con sujeción a la aprobación por parte de la DGAC de Costa Rica o del Estado de Registro según corresponda, este período puede extenderse a dos años, siempre y cuando se haya demostrado la alta integridad de estos sistemas en cuanto a su buen funcionamiento y autocontrol.
-Los sistemas DLR o DLRS tendrán intervalos de inspección del registro de dos años; con sujeción a la aprobación de la DGAC de Costa Rica o del Estado de Registro según corresponda, este período puede extenderse a cuatro años, siempre y cuando se haya demostrado la alta integridad de estos sistemas en cuanto a su buen funcionamiento y autocontrol.
+(2) Los sistemas FDR o ADRS, los sistemas CVR o CARS y los sistemas AIR o AIRS tendrán intervalos de inspección del registro de un año; con sujeción a la aprobación por parte de la DGAC de Costa Rica o del Estado de Registro según corresponda, este período puede extenderse a dos años, siempre y cuando se haya demostrado la alta integridad de estos sistemas en cuanto a su buen funcionamiento y autocontrol. Los sistemas DLR o DLRS tendrán intervalos de inspección del registro de dos años; con sujeción a la aprobación de la DGAC de Costa Rica o del Estado de Registro según corresponda, este período puede extenderse a cuatro años, siempre y cuando se haya demostrado la alta integridad de estos sistemas en cuanto a su buen funcionamiento y autocontrol.
 (3) Las inspecciones del registro se llevarán a cabo de la siguiente manera:
 (i) el análisis de los datos registrados en los registradores de vuelo garantizará que el registrador funcione correctamente durante el tiempo nominal de grabación;
-(ii) con el análisis de los registros del FDR o ADRS se evaluará la calidad de los datos registrados para determinar si la proporción de errores en los bits (incluidos los introducidos por el registrador, la unidad de adquisición, la fuente de los datos del avión y los instrumentos utilizados para extraer los datos del registrador) está dentro de límites aceptables y determinar la índole y distribución de los errores;
-(iii) los registros del FDR o ADRS de un vuelo completo se examinarán en unidades de medición técnicas para evaluar la validez de los parámetros registrados. Se prestará especial atención a los parámetros procedentes de sensores dedicados exclusivamente al FDR o ADRS. No es necesario verificar los parámetros obtenidos del sistema ómnibus eléctrico de la aeronave si su buen funcionamiento puede detectarse mediante otros sistemas de la aeronave;
-(iv) el equipo de lectura tendrá el soporte lógico necesario para convertir con precisión los valores registrados en unidades de medición técnicas y determinar la situación de las señales discretas;
-(v) se realizará un examen de la señal registrada en el CVR o CARS reproduciendo la grabación del CVR o CARS. Instalado en la aeronave, el CVR o CARS registrará señales de prueba de cada fuente de la aeronave y de las fuentes externas pertinentes para comprobar que todas las señales requeridas cumplan las normas de inteligibilidad;
-(vi) siempre que sea posible, durante el examen se analizará una muestra de las grabaciones en vuelo del CVR o CARS para determinar si es aceptable la inteligibilidad de la señal en condiciones de vuelo reales; y
-(vii) se realizará un examen de las imágenes registradas en el AIR o AIRS reproduciendo la grabación del AIR o AIRS. Instalado en la aeronave, el AIR o AIRS registrará imágenes de prueba de todas las fuentes de la aeronave y de las fuentes externas pertinentes para asegurarse de que todas las imágenes requeridas cumplan con las normas de calidad del registro.
+(ii) los registros del FDR o ADRS de un vuelo completo se examinarán en unidades de medición técnicas para evaluar la validez de los parámetros registrados. Se prestará especial atención a los parámetros procedentes de sensores dedicados exclusivamente al FDR o ADRS. No es necesario verificar los parámetros obtenidos del sistema ómnibus eléctrico de la aeronave si su buen funcionamiento puede detectarse mediante otros sistemas de la aeronave;
+(iii) el equipo de lectura tendrá el soporte lógico necesario para convertir con precisión los valores registrados en unidades de medición técnicas y determinar la situación de las señales discretas;
+(iv) se realizará un examen de la señal registrada en el CVR o CARS reproduciendo la grabación del CVR o CARS. Instalado en la aeronave, el CVR o CARS registrará señales de prueba de cada fuente de la aeronave y de las fuentes externas pertinentes para comprobar que todas las señales requeridas cumplan las normas de inteligibilidad;
+(v) siempre que sea posible, durante el examen se analizará una muestra de las grabaciones en vuelo del CVR o CARS para determinar si es aceptable la inteligibilidad de la señal en condiciones de vuelo reales; y
+(vi) se realizará un examen de las imágenes registradas en el AIR o AIRS reproduciendo la grabación del AIR o AIRS. Instalado en la aeronave, el AIR o AIRS registrará imágenes de prueba de todas las fuentes de la aeronave y de las fuentes externas pertinentes para asegurarse de que todas las imágenes requeridas cumplan con las normas de calidad del registro.
+(vii) se realizará un examen de los mensajes registrados en el DLR o el DLRS reproduciendo la grabación del DLR o DLRS.
 (4) El sistema registrador de vuelo se considerará fuera de servicio si durante un tiempo considerable se obtienen datos de mala calidad, señales ininteligibles, o si uno o más parámetros obligatorios no se registran correctamente.
 (5) Se remitirá a las autoridades normativas, a petición, un informe sobre las inspecciones del registro para fines de control.
 (6) Calibración del sistema FDR:
 (i) para los parámetros con sensores dedicados exclusivamente al FDR y que no se controlan por otros medios, se hará una recalibración por lo menos cada cinco años o de acuerdo con las recomendaciones del fabricante de los sensores para determinar posibles discrepancias en las rutinas de conversión a valores técnicos de los parámetros obligatorios y asegurar que los parámetros se estén registrando dentro de las tolerancias de calibración; y
 (ii) cuando los parámetros de altitud y velocidad aerodinámica provengan de sensores dedicados al sistema FDR, se efectuará una nueva calibración según lo recomendado por el fabricante de los sensores o por lo menos cada dos años.
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
+Nota: Esta Directiva Operacional no introduce cambios en las Tablas A8-1, A8-2 y A8- 3. de este Apéndice. Las mismas deben consultarse en el RAC OPS 1.
+(*)(Así reformado el Apéndice 1 al RAC-OPS 1.715 Registradores de Vuelo anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 Notas:
 (i) Vso = velocidad de pérdida o velocidad mínima de vuelo uniforme en configuración de aterrizaje;
-(ii) figura en la Sección “Abreviaturas y símbolos”.
+(ii) figura en la Sección "Abreviaturas y símbolos".
 (iii) VD = velocidad de cálculo para el picado.
 (iv) Regístrense suficientes datos para determinar la potencia.
-(v) Se aplicará el “o” en el caso de aviones con sistemas de mando en los cuales el movimiento de las superficies de mando hace cambiar la posición de los mandos en el puesto de pilotaje (back-drive) y el “y” en el caso de aviones con sistemas de mando en los cuales el movimiento de las superficies de mando no provoca un cambio en la posición de los mandos. En el caso de aviones con superficies partidas, se acepta una combinación adecuada de acciones en vez de registrar separadamente cada superficie. En aviones en los que los pilotos pueden accionar los mandos primarios en forma independiente, se deben registrar por separado cada una de las acciones de los pilotos en los mandos primarios.
+(v) Se aplicará el "o" en el caso de aviones con sistemas de mando en los cuales el movimiento de las superficies de mando hace cambiar la posición de los mandos en el puesto de pilotaje (back-drive) y el "y" en el caso de aviones con sistemas de mando en los cuales el movimiento de las superficies de mando no provoca un cambio en la posición de los mandos. En el caso de aviones con superficies partidas, se acepta una combinación adecuada de acciones en vez de registrar separadamente cada superficie. En aviones en los que los pilotos pueden accionar los mandos primarios en forma independiente, se deben registrar por separado cada una de las acciones de los pilotos en los mandos primarios.
 (vi) Si se dispone de señal en forma digital.
 (vii) El registro de la latitud y la longitud a partir del INS u otro sistema de navegación es una alternativa preferible.
 (viii) Si se dispone rápidamente de las señales.
 (ix) No es la intención que los aviones con certificado de aeronavegabilidad individual expedido antes del 1 de enero de 2016 deban modificarse para ajustarse al intervalo de medición, al intervalo máximo de muestreo y registro, a los límites de precisión o a la descripción de la resolución del registro que se detallan en este Apéndice.
-[imagen]
-[imagen]
-[imagen]
-[imagen]
 Apéndice 1 de RAC-OPS 1.770. Oxígeno - Requisitos mínimos de oxígeno
 suplementario para aviones presurizados
 | Ver (a)
@@ -3560,7 +3650,7 @@ Se debe alertar al operador cuando una aeronave se encuentre en situación pelig
 (ii) centro(s) coordinador(es) de salvamento SAR (RCC) y otros centros secundarios.
 (5) Cuando se ha activado la transmisión autónoma de información relativa a la posición, sólo se podrá desactivar utilizando el mismo mecanismo que la activó.
 (6) La precisión de la información relativa a la posición debe satisfacer, como mínimo, los requisitos relativos a la precisión de la posición prescritos para los ELT.
-SUBPARTE L – EQUIPOS DE COMUNICACIÓN Y NAVEGACIÓN
+SUBPARTE L - EQUIPOS DE COMUNICACIÓN Y NAVEGACIÓN
 RAC-OPS 1.845 Introducción general.
 (a) El operador debe garantizar que no se inicie ningún vuelo a no ser que los equipos de comunicación y navegación requeridos en esta Subparte se encuentren:
 (1) Aprobados e instalados de acuerdo con los requisitos/párrafos aplicables a los mismos, incluyendo los estándares de performance mínimos y los requisitos operacionales y de aeronavegabilidad;
@@ -3648,15 +3738,16 @@ RAC-OPS 1.871 Equipo de vigilancia.
 (1) recibir los informes de la performance de vigilancia observada emitidos por los programas de vigilancia establecidos de conformidad con el Anexo 11, Capítulo 3, 3.3.5.2; y
 (2) tomar medidas correctivas inmediatas para cada aeronave, cada tipo de aeronaves o cada operador que se haya determinado en dichos informes que no cumple la especificación RSP.
 (e) Instalación. La instalación del equipo será tal que, si falla cualquier unidad que se requiera para fines de comunicaciones, de navegación o, de vigilancia, o para cualquier combinación de esos fines, no se generará una falla en otra de las unidades necesarias para dichos fines.
-RAC-OPS 1.872 Equipo para la operación en espacio aéreo definido con Separación Vertical Mínima Reducida (RVSM).
+(*)RAC-OPS 1.872 Equipo para la operación en espacio aéreo definido con Separación Vertical Mínima Reducida (RVSM).
 (Ver Anexo 2 sección 2 al RAC OPS 1)
-(a) El operador debe garantizar que los aviones operados en espacio aéreo RVSM estén dotados de equipo que:
+(*)(a) El operador debe garantizar que los aviones operados en espacio aéreo RVSM estén dotados de equipo que:
 (1) indique a la tripulación el nivel de vuelo en el que está volando;
-(2) alerte a la tripulación de desviaciones con respecto al nivel de vuelo seleccionado.
-El umbral para la alerta no excederá de ±90 m (300 ft);
+(2) alerte a la tripulación de desviaciones con respecto al nivel de vuelo seleccionado. El umbral para la alerta no excederá de ±90 m (300 ft);
 (3) mantenga automáticamente el nivel de vuelo seleccionado;
 (4) indique automáticamente la altitud de presión;
-(b) El operador no debe operar ningún avión en espacio aéreo designado RVSM, a menos que cuente con la correspondiente aprobación operacional RVSM emitida por la DGAC responsable de la emisión de su COA, conforme se establece en el Anexo 2 de la sección 2 de esta Regulación.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(b) El operador no debe operar ningún avión en espacio aéreo designado RVSM, a menos que cuente con la correspondiente aprobación específica RVSM expedida por la DGAC, conforme se establece en el Anexo 2 de la sección 2 de esta Regulación.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (c) El operador debe demostrar una performance de navegación vertical de conformidad con el apéndice 1 al RAC OPS 1.241 para recibir la correspondiente aprobación operacional
 RAC-OPS 1.873 Equipos para los vuelos en que se proyecte aterrizar en condiciones meteorológicas de vuelo por instrumentos
 El operador no debe operar un avión para los vuelos en que se proyecte aterrizar en condiciones meteorológicas de vuelo por instrumentos, a menos que el avión disponga de equipo que permita recibir las señales que sirvan de guía hasta un punto desde el cual pueda efectuarse un aterrizaje visual. Este equipo debe permitir obtener tal guía respecto a cada uno de los aeródromos en que se proyecte aterrizar en condiciones meteorológicas de vuelo por instrumentos y cualquier aeródromo de alternativa designado.
@@ -3664,18 +3755,20 @@ RAC-OPS 1.874 Gestión de datos electrónicos de navegación.
 (Ver CA OPS 1.874)
 (a) El operador no debe emplear datos electrónicos de navegación que hayan sido procesados para su aplicación en vuelo o en tierra, a menos que la DGAC o el Estado del operador haya aprobado los procedimientos del operador para asegurar que el proceso aplicado y los datos entregados cumplen con normas aceptables de integridad y que los datos son compatibles con la función prevista del equipo que los utilizará. El operador debe vigilar tanto el proceso como los datos mediante la actualización de dicha información.
 (b) El operador debe implantar procedimientos que aseguren la distribución e inserción oportuna de datos electrónicos de navegación actualizados e inalterados a todas las aeronaves que los necesiten.
-SUBPARTE M – MANTENIMIENTO DEL AVIÓN
+SUBPARTE M - MANTENIMIENTO DE LA AERONAVEGABILIDAD DEL AVIÓN
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 RAC-OPS 1.875 General. (Ver CA OPS 1.875)
 (a) El Operador no debe operar un avión a menos que su mantenimiento y retorno al servicio sea realizado por una organización de mantenimiento aprobada/aceptada de acuerdo al MRAC-145 o cuando sea aplicable, conforme al RAC OPS 1.895 (e), excepto las inspecciones pre vuelo que no tienen que ser realizadas necesariamente por una OMA MRAC-145. En este caso puede ser realizada por un mecánico calificado con la licencia emitida por el Estado de matrícula del avión, con habilitación o entrenamiento necesario de acuerdo a los procedimientos del operador al tipo de avión a que preste el servicio.
 (b) Esta Subparte establece los requisitos para el mantenimiento de la aeronavegabilidad del avión necesarios para cumplir con los requisitos de certificación del operador establecidos en el RAC-OPS 1.180.
 RAC-OPS 1.880 Terminología.
 (Ver CA OPS 1.880(a))
 La siguiente definición es aplicable a esta Subparte:
-“Inspección pre vuelo”: La inspección que se lleva a cabo antes del vuelo para asegurar que el avión reúne las condiciones para realizar el vuelo previsto. No incluye la certificación de defectos. (Ver CA-OPS 1.880 (a)).
+"Inspección pre vuelo": La inspección que se lleva a cabo antes del vuelo para asegurar que el avión reúne las condiciones para realizar el vuelo previsto. No incluye la certificación de defectos. (Ver CA-OPS 1.880 (a)).
 RAC-OPS 1.885 Solicitud y aprobación del sistema de mantenimiento del operador
 (Ver CA OPS 1.885)
 Para la aprobación del sistema de mantenimiento del operador el solicitante de la emisión inicial, modificación y renovación de un COA debe cumplir con los requisitos de esta Subparte y presentar los documentos que se especifican en RAC-OPS 1.185 (b). (Ver CAOPS 1.885)
-RAC-OPS 1.890 Responsabilidad del mantenimiento.
+RAC-OPS 1.890 Responsabilidades del operador respecto del mantenimiento de la aeronavegabilidad.
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (Ver CA OPS 1.890(a)), (Ver CA OPS 1.890(a) (1) (MAC)), (Ver CA OPS 1.890(a) (1) (MEI)), (Ver CA OPS 1.890(a) (2)), (Ver CA OPS 1.890(a) (3)), (Ver CA OPS 1.890(a) (4)),
 (Ver CA OPS 1.890(a) (5)) (Ver CA OPS 1.890(a) (6))
 (a) El operador debe garantizar la aeronavegabilidad del avión, así como la aptitud para el servicio del equipamiento operacional y el de emergencia mediante: (Ver CA-OPS 1.890
@@ -3773,7 +3866,8 @@ RAC-OPS 1.915 Bitácora de mantenimiento.
 (5) Cualquier información necesaria relativa a los acuerdos de asistencia para mantenimiento, y.
 (6) Mapeo para el seguimiento de golpes, daños, encontrados durante la operación diaria.
 (b) El sistema de bitácora de mantenimiento del avión y cualquier modificación posterior debe ser aprobada por la DGAC.
-RAC-OPS 1.920 Registros de Mantenimiento.
+RAC-OPS 1.920 Registros de Mantenimiento de la aeronavegabilidad.
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (Ver CA-OPS 1.920),(Ver CA-OPS 1.920 (b)(6)), (Ver CA-OPS 1.920 (c)), (Ver Apéndice 1 al RAC- OPS 1.1065)
 (a) El operador debe garantizar que la bitácora de mantenimiento del avión se conserve durante un período de 24 meses a partir de la fecha de la última anotación.
 (b) El operador debe garantizar que se ha establecido un sistema para conservar, de una forma aceptable para la DGAC, los siguientes registros durante los períodos que se especifican:
@@ -3795,7 +3889,7 @@ RAC-OPS 1.930 Validez continuada del certificado del operador aéreo (COA) respe
 El operador debe cumplir con RAC-OPS 1.175 y RAC-OPS 1.180 para garantizar la validez continuada de su certificado del operador aéreo (COA) con respecto al sistema de mantenimiento.
 RAC-OPS 1.935 Caso de seguridad equivalente. (Ver CA OPS 1.935)
 El operador no debe introducir procedimientos alternativos a lo establecido en esta Subparte, a no ser que sean necesarios y que este caso de seguridad equivalente haya sido aprobado previamente por la DGAC.
-Apéndice 1 al RAC OPS 1.910 Responsabilidad – Inspecciones.
+Apéndice 1 al RAC OPS 1.910 Responsabilidad - Inspecciones.
 (Ver RAC OPS 1.910)
 (a) Inspecciones y prueba de sistemas de altímetro y equipos de aviso de altitud Ninguna persona puede operar una aeronave en el espacio aéreo controlado en IFR (Reglas de Vuelo por Instrumentos) a menos que:
 (1) Dentro de los 24 meses calendario precedentes, todo sistema de presión estático, altímetro y sistema automático de reporte de altitud presión, haya sido probado, inspeccionado al menos conforme a lo establecido en la RAC-43; y
@@ -3816,7 +3910,7 @@ Apéndice 1 al RAC OPS 1.910 Responsabilidad – Inspecciones.
 (d) Verificación del equipo VOR para operaciones IFR Ninguna persona puede operar una aeronave IFR empleando el sistema VOR de radio navegación, a menos que el equipo VOR de dicha aeronave:
 (1) Sea mantenido, verificado e inspeccionado bajo un procedimiento aprobado; y
 (2) Haya sido verificado operacionalmente dentro de los treinta días precedentes y esté en los límites de error permisible de rumbo conforme a la regulación establecida para tal efecto.
-SUBPARTE N – TRIPULACIÓN DE VUELO
+SUBPARTE N - TRIPULACIÓN DE VUELO
 RAC-OPS 1.940 Composición de la Tripulación de Vuelo
 (Ver Apéndices 1 y 2 de RAC-OPS 1.940). (Ver CA OPS 1.940(a)(4))
 (a) El operador debe garantizar que:
@@ -3977,8 +4071,8 @@ RAC-OPS 1.978 Entrenamiento Alternativo y Programa de Calificación
 (1) La LOE se realizará en un simulador y podrá realizarse junto con otros elementos aprobados del AQP.
 (2) El período de validez de una LOE será de 12 meses naturales contados a partir del último día del mes en que se realizó. Si la siguiente verificación se realiza dentro de los últimos tres meses naturales del período de validez de la anterior LOE, el nuevo período de validez empezará a contar en la fecha de la última LOE y se prolongará hasta cumplidos 12 meses naturales de la fecha de expiración de la LOE anterior.
 (e) Tras operar dos años en un AQP aprobado, el operador podrá ampliar, con la aprobación de la Autoridad, los períodos de validez de los OPS 1.965 y 1.970 de la forma siguiente:
-(1) Verificación de competencia del operador— 12 meses naturales a partir del último día del mes en que se realizó; si la siguiente verificación se realiza durante los últimos tres meses naturales de validez de la anterior verificación, el nuevo período de validez se extenderá desde la fecha de realización hasta transcurridos 12 meses naturales a partir de la fecha de expiración de la anterior verificación de competencia del operador.
-(2) Verificación en línea — 24 meses naturales a partir del último día del mes en que se realizó; si la siguiente verificación se realiza durante los últimos 6 meses naturales de validez de la anterior verificación en línea, el nuevo período de validez se extenderá desde la fecha de realización hasta transcurridos 24 meses naturales a partir de la fecha de expiración de la anterior verificación en línea; si la Autoridad lo aprueba, la verificación en línea puede combinarse con una evaluación de la calidad orientada a la línea (LOQE).
+(1) Verificación de competencia del operador- 12 meses naturales a partir del último día del mes en que se realizó; si la siguiente verificación se realiza durante los últimos tres meses naturales de validez de la anterior verificación, el nuevo período de validez se extenderá desde la fecha de realización hasta transcurridos 12 meses naturales a partir de la fecha de expiración de la anterior verificación de competencia del operador.
+(2) Verificación en línea - 24 meses naturales a partir del último día del mes en que se realizó; si la siguiente verificación se realiza durante los últimos 6 meses naturales de validez de la anterior verificación en línea, el nuevo período de validez se extenderá desde la fecha de realización hasta transcurridos 24 meses naturales a partir de la fecha de expiración de la anterior verificación en línea; si la Autoridad lo aprueba, la verificación en línea puede combinarse con una evaluación de la calidad orientada a la línea (LOQE).
 (3) 24 meses naturales a partir del último día del mes en que se realizó; si la siguiente verificación se realiza dentro de los últimos tres meses naturales del período de validez de la anterior verificación, el nuevo período de validez empezará a contar en la fecha de la última verificación y se prolongará hasta cumplidos 24 meses naturales de la fecha de expiración de la verificación anterior.
 RAC-OPS 1.980 Operación en más de un tipo o variante.
 (Ver Apéndice 1 del RAC-OPS 1.980) (Ver CA-OPS 1.980) (Ver CA OPS 1.980(b)(MAC)),
@@ -4087,7 +4181,7 @@ Apéndice 1 de RAC-OPS 1.945. Curso de Conversión del Operador.
 (xi) Estudio de casos reales;
 (xii) Áreas adicionales que justifican una atención extra, de acuerdo a lo identificado en el programa de prevención de accidentes y seguridad de vuelo (Véase RACOPS 1.037).
 (d) Cuando un miembro de la tripulación de vuelo no haya completado con anterioridad el curso de conversión del operador, El operador debe garantizar que, además de lo establecido en el anterior subpárrafo (a), el miembro de la tripulación de vuelo reciba entrenamiento general de primeros auxilios y, en su caso, entrenamiento sobre los procedimientos en el caso de amaraje forzoso utilizando los equipos en el agua.
-Apéndice 1 de RAC-OPS 1.965. Entrenamiento y verificaciones recurrentes – Pilotos
+Apéndice 1 de RAC-OPS 1.965. Entrenamiento y verificaciones recurrentes - Pilotos
 ((Ver CA OPS 1.965), (Ver CA OPS 1.943/1.945(a)(9)/1.955(b)(6) /1.965(e))
 (Ver CA OPS 1.943/1.945(a)(9)/1.955(b)(6) /1.965(e)), (Ver CA OPS 1.965(MEI))
 (Ver CA al Apéndice 1 al RAC OPS 1.965)
@@ -4159,7 +4253,7 @@ Apéndice 1 de RAC-OPS 1.965. Entrenamiento y verificaciones recurrentes – Pil
 (v) Las verificaciones en línea se deben superar en el avión.
 (vi) Las verificaciones en línea deben efectuarse por pilotos calificados designados por el operador y que sean aceptables para la DGAC. Las personas que realicen las verificaciones en línea, de acuerdo a lo establecido en RACOPS 1.965(a) (4) (ii), deben haber sido entrenadas en conceptos CRM y evaluación de pericia CRM, y ocuparán un asiento de observador cuando esté instalado. En el caso de operaciones de larga distancia en la que hay miembros operativos adicionales de la tripulación de vuelo, la persona puede cumplir la función de piloto de relevo en crucero y no ocupará ningún asiento de piloto durante las fases de despegue, ascenso, crucero inicial, descenso, aproximación y aterrizaje. Su evaluación CRM se basará únicamente en las observaciones realizadas en los briefings: inicial, de cabina, de cabina de mando, y en aquellas fases en las que haya ocupado el asiento del observador.
 Apéndice 2 al RAC-OPS 1.965
-Entrenamiento y verificaciones recurrentes – Ingeniero de vuelo
+Entrenamiento y verificaciones recurrentes - Ingeniero de vuelo
 (a) El entrenamiento y verificaciones recurrentes para los ingenieros de vuelo debe tener los mismos requisitos que para los pilotos así como cualquier tarea adicional, omitiendo aquellos elementos que no sean aplicables a los ingenieros de vuelo.
 (b) El entrenamiento y verificaciones recurrentes de los ingenieros de vuelo debe tener lugar, siempre que sea posible, a la vez que los pilotos realicen su entrenamiento y verificaciones recurrentes.
 (c) Debe realizarse una verificación en línea por un piloto al mando designado por el operador y aceptable para la DGAC, o por un instructor o examinador de habilitación de tipo de ingeniero de vuelo.
@@ -4200,7 +4294,7 @@ El proceso de elaboración de los programas deberá ser aceptado por la Autorida
 (7) un sistema integrado de control de la calidad que garantice la conformidad con todos los requisitos, los procesos y los procedimientos del programa;
 (8) un proceso que describa el método a seguir si los programas de supervisión y evaluación no garantizan el respeto de las normas de competencia y de cualificación establecidas para la tripulación de vuelo;
 (9) un programa de supervisión y análisis de datos.
-(c) Aplicación — El operador pondrá a punto una estrategia de evaluación y aplicación aceptable para la Autoridad; deberán cumplirse los siguientes requisitos:
+(c) Aplicación - El operador pondrá a punto una estrategia de evaluación y aplicación aceptable para la Autoridad; deberán cumplirse los siguientes requisitos:
 (1) el proceso de aplicación deberá incluir los componentes siguientes:
 (i) Un expediente de seguridad que demuestre la validez de:
 (A) los niveles revisados de entrenamiento y cualificación en relación con los niveles alcanzados en el marco del OPS 1 antes de introducir el AQP;
@@ -4241,7 +4335,7 @@ demostrado procedimientos específicos y/o restricciones operativas que sean ace
 (iii) El entrenamiento y verificación anual sobre equipo de emergencia y seguridad debe cubrir todos los requisitos para cada tipo
 (8) Con RAC-OPS 1.965 para cada tipo o versión operado, a no ser que la DGAC haya permitido créditos de acuerdo con el subpárrafo (7) anterior.
 (e) Cuando un miembro de la tripulación de vuelo opere combinaciones de tipos o versiones de avión tal como se define en las licencias de la tripulación de vuelo y los procedimientos asociados para la clase con un solo piloto y el tipo-multi-piloto, El operador debe demostrar que los procedimientos específicos y/o las restricciones operativas están aprobadas de acuerdo con RAC-OPS 1.980 (d).
-SUBPARTE O – TRIPULACIÓN DE CABINA
+SUBPARTE O - TRIPULACIÓN DE CABINA
 RAC-OPS 1.988 Aplicación
 (a) El operador debe garantizar que todos los miembros de la tripulación de cabina cumplan los requisitos de la presente Subparte y cualesquiera otros requisitos de seguridad que les sean aplicables.
 (b) Para los fines del presente Reglamento, por «miembro de la tripulación de cabina de pasajeros» se entiende cualquier miembro de la tripulación, que no sea miembro de la tripulación de vuelo y que desempeñe, en la cabina de pasajeros de un avión, las funciones que le hayan asignado el operador o el piloto al mando, en beneficio de la seguridad de los pasajeros.
@@ -4550,7 +4644,7 @@ iv. manejo de desechos clínicos;
 v. desinfección de la aeronave;
 vi. manejo de alerta, efectos psicológicos de la fatiga, psicología del sueño, el ritmo circadiano y el cambio de usos horarios.
 (6) El uso apropiado de los equipos de la aeronave incluyendo botiquín de primeros auxilios, botiquín de emergencias médicas, oxígeno para primeros auxilios y equipode emergencias médicas.
-SUBPARTE P – MANUALES, BITÁCORAS Y REGISTROS
+SUBPARTE P - MANUALES, BITÁCORAS Y REGISTROS
 RAC-OPS 1.1040 Reglas Generales para los Manuales de Operaciones.
 (Ver CA OPS 1.1040 (b)), (Ver CA OPS 1.1040(c))
 (a) El operador debe garantizar que el Manual de Operaciones contenga todas las instrucciones e información necesaria para que el personal de operaciones realice sus funciones.
@@ -4592,7 +4686,7 @@ RAC-OPS 1.1055 Bitácora de vuelo del avión.
 (4) Asignación de funciones a los miembros de la tripulación;
 (5) Lugar de salida;
 (6) Lugar de llegada;
-(7) Hora de salida -hora fuera de calzos – (off-block time);
+(7) Hora de salida -hora fuera de calzos - (off-block time);
 (8) Hora de llegada- hora en calzos-(block time) ;
 (9) Horas de vuelo;
 (10) Tipo de vuelo;
@@ -5031,7 +5125,7 @@ Documentación de información NOTAM/AIS específica para la ruta si el operador
 Documentación de peso y balance | 3 meses
 Notificación de cargas especiales incluyendo información escrita al piloto al mando relativa a mercancías peligrosas | 3 meses
 Registros de Combustible y aceite | 3 meses
-Tabla 2 – Reportes
+Tabla 2 - Reportes
 Reportes
 Bitácora de vuelo | 6 meses
 Reporte/s de vuelo en los que se registren detalles de cualquier suceso, según lo prescrito en RAC-OPS 1.420, o cualquier suceso que el piloto al mando considere necesario reportar/registrar. | 3 meses
@@ -5131,7 +5225,7 @@ RAC OPS 1.1120 Período de servicio de vuelo, tripulación de vuelo aumentada
 (a) Para operaciones de vuelo que se llevan a cabo con una tripulación aumentada y aclimatada, ningún titular de un COA puede asignar, ni los miembros de la tripulación deben aceptar que se les asigne tareas, si el período de servicio de vuelo programado excede los límites que se especifican en la Tabla C de esta Subparte.
 (b) Si el miembro de la tripulación no está aclimatado:
 (1) El período de servicio de vuelo máximo que indica la Tabla C de esta parte se reduce en 30 minutos.
-(2) El período de servicio de vuelo aplicable se basa en el tiempo local del “teatro” en que el miembro de la tripulación fue aclimatado por última vez.
+(2) El período de servicio de vuelo aplicable se basa en el tiempo local del "teatro" en que el miembro de la tripulación fue aclimatado por última vez.
 (c) Ningún titular de un COA puede asignar y ningún miembro de la tripulación puede aceptar que se le asigne una tarea de conformidad con esta sección, a menos que durante el período de servicio de vuelo:
 (1) El piloto que vuela la aeronave durante el aterrizaje cuente con dos horas de descanso ininterrumpidas durante el vuelo, en la segunda mitad del período de servicio de vuelo.
 (2) El piloto que realiza las labores de monitoreo durante el aterrizaje cuente con noventa minutos de descanso ininterrumpido durante el vuelo.
@@ -5172,7 +5266,7 @@ RAC OPS 1.1135 Limitaciones acumulativas
 RAC OPS 1.1140 Período de descanso
 (a) Ningún titular de un COA puede asignar y ningún tripulante puede aceptar que se le asigne un servicio o período de reserva con el titular del COA durante cualquier período de descanso requerido.
 (b) Antes de comenzar cualquier período de servicio de vuelo o de reserva, se le debe otorgar al tripulante al menos 30 horas consecutivas libres de todo servicio, dentro del último período de 168 horas consecutivas.
-(c) Si un tripulante que se encuentra operando en un nuevo “teatro” ha recibido 36 horas consecutivas de descanso, ese tripulante se encuentra aclimatado y el período de descanso cumple los requisitos del párrafo (b) de esta sección.
+(c) Si un tripulante que se encuentra operando en un nuevo "teatro" ha recibido 36 horas consecutivas de descanso, ese tripulante se encuentra aclimatado y el período de descanso cumple los requisitos del párrafo (b) de esta sección.
 (d) Al regresar a la base principal, se le debe otorgar un mínimo de 56 horas consecutivas de descanso a un tripulante, si este: (1) Viaja más de 60° de longitud durante uno o varios períodos de servicio de vuelo, y (2) se encuentra lejos de la base principal por más de 168 horas consecutivas durante este viaje. Las 56 horas de descanso especificadas en esta sección deben abarcar tres períodos de descanso fisiológico nocturno, según la hora local.
 (e) Ningún titular de un COA puede programar y ningún tripulante puede aceptar que se le asigne ningún período de servicio de vuelo o de reserva, a menos que se le otorgue un período de descanso de al menos 10 horas consecutivas inmediatamente antes del comienzo del período mencionado, medido a partir del momento en que el tripulante de vuelo salga del servicio. El período de descanso de 10 horas debe proporcionarle al tripulante la oportunidad de obtener un mínimo de ocho (8) horas ininterrumpidas de sueño.
 (f) Si un tripulante determina que un período de descanso de conformidad con el párrafo (e) de esta sección no proporcionará la oportunidad de obtener ocho horas ininterrumpidas de sueño, el tripulante debe notificarlo al titular del COA. El tripulante no se puede presentar a realizar el período de vuelo asignado hasta que reciba el período de descanso que se especifica en el párrafo (e) de esta sección.
@@ -5197,13 +5291,13 @@ RAC OPS 1.1147 Limitaciones de tiempo en servicio para los Despachadores
 (c) A pesar de lo establecido en los párrafos (a) y (b) de esta sección, el titular de un COA puede bajo aprobación de la DGAC, programar un despachador por más de diez horas de servicio en un periodo de veinticuatro horas, si el despachador es liberado de servicio por el titular del COA por lo menos por ocho horas durante cada periodo de veinticuatro horas consecutivas.
 RAC OPS 1.1148 Limitaciones de tiempo de servicio para el personal de mantenimiento
 El personal de mantenimiento de un operador quien realice mantenimiento en sus aviones, debe gozar de por lo menos un día calendario de descanso dentro de cada siete días consecutivos.
-Tabla A – Tabla de límites máximos de tiempo de vuelo para las operaciones no
+Tabla A - Tabla de límites máximos de tiempo de vuelo para las operaciones no
 Ampliadas
 Hora de presentación al servicio (en condiciones de aclimatación) | Tiempo de vuelo máximo (horas)
 00:00-04:59 | 8
 05:00-19:59 | 9
 20:00-23:59 | 8
-Tabla B – Período de servicio de vuelo para operaciones no ampliadas
+Tabla B - Período de servicio de vuelo para operaciones no ampliadas
 Tiempo programado de inicio (hora en condiciones de aclimatación) | Período de servicio de vuelo máximo (horas) para tripulantes en servicio según el número de segmentos de vuelo
 1 | 2 | 3 | 4 | 5 | 6 | 7 +
 00:00-03:59 | 9 | 9 | 9 | 9 | 9 | 9 | 9
@@ -5216,7 +5310,7 @@ Tiempo programado de inicio (hora en condiciones de aclimatación) | Período de
 17:00-21:59 | 12 | 12 | 11 | 11 | 10 | 9 | 9
 22:00-22:59 | 11 | 11 | 10 | 10 | 9 | 9 | 9
 23:00-23:59 | 10 | 10 | 10 | 9 | 9 | 9 | 9
-Tabla C – Período de servicio de vuelo para operaciones ampliadas
+Tabla C - Período de servicio de vuelo para operaciones ampliadas
 Tiempo programado de inicio (hora en condiciones de aclimatación) | Período de servicio de vuelo máximo (horas) según las instalaciones de descanso y la cantidad de pilotos
 Instalación de descanso de clase 1 | Instalación de descanso de clase 2 | Instalación de descanso de clase 3
 3 pilotos | 4 pilotos | 3 pilotos | 4 pilotos | 3 pilotos | 4 pilotos
@@ -5299,18 +5393,22 @@ El operador debe elaborar y mantener actualizada la documentación relativa al F
 (ii) un plan de comunicación FRMS eficaz que:
 (A) explique los criterios, procedimientos, y responsabilidades de FRMS a todos los que participan; y
 (B) describa las vías de comunicación empleadas para recopilar y divulgar la información relacionada con el FRMS.
-SUBPARTE R – TRANSPORTE DE MERCANCÍAS
+SUBPARTE R - TRANSPORTE DE MERCANCÍAS
 PELIGROSAS POR VÍA AÉREA
-RAC-OPS 1.1152 Operadores sin aprobación operacional para transportar mercancías peligrosas como carga
-El operador que no está aprobado para transportar mercancías peligrosas debe:
+RAC-OPS 1.1152 Operadores sin aprobación específica para transportar mercancías peligrosas como carga
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+El operador sin una aprobación específica para transportar mercancías peligrosas debe:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (a) establecer un programa de instrucción sobre mercancías peligrosas que satisfaga los requisitos pertinentes en la regulación de mercancías peligrosas correspondiente y de las Instrucciones Técnicas de la OACI Doc. 9284, según corresponda. Los detalles del programa de instrucción sobre mercancías peligrosas se deben incluir en el manual de operaciones;
 (b) establecer en su manual de operaciones políticas y procedimientos sobre mercancías peligrosas que satisfagan, como mínimo, los requisitos de la regulación de mercancías peligrosas correspondiente, para permitir al personal del operador:
 (1) identificar y rechazar mercancías peligrosas no declaradas, incluyendo COMAT clasificados como mercancías peligrosas; y
 (2) notificar a las autoridades pertinentes del Estado del operador y del Estado en el que haya ocurrido cualquier:
 (i) caso en el que se descubran en la carga o el correo mercancías peligrosas no declaradas; y
 (ii) accidentes e incidentes con mercancías peligrosas.
-RAC-OPS 1.1153 Operadores que transportan mercancías peligrosas como carga
-El operador que esté aprobado para el transporte de mercancías peligrosas debe:
+RAC-OPS 1.1153 Operadores con una aprobación específica para el transporte de mercancías peligrosas como carga
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+El operador con una aprobación específica para el transporte de mercancías peligrosas debe:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (a) establecer un programa de instrucción sobre mercancías peligrosas que satisfaga los requisitos de la regulación de mercancías peligrosas correspondiente y de las Instrucciones Técnicas de la OACI Doc. 9284, según corresponda. Los detalles del programa de instrucción sobre mercancías peligrosas se deben incluir en el manual de operaciones del operador.
 (b) establecer en su manual de operaciones políticas y procedimientos sobre mercancías peligrosas para satisfacer, como mínimo, los requisitos de la regulación de mercancías peligrosas correspondiente y las Instrucciones Técnicas de la OACI Doc. 9284, que permitan al personal del operador:
 (1) identificar y rechazar mercancías peligrosas no declaradas o mal declaradas, incluyendo COMAT clasificados como mercancías peligrosas;
@@ -5322,12 +5420,13 @@ El operador que esté aprobado para el transporte de mercancías peligrosas debe
 (ii) sin que se haya proporcionado información al piloto al mando;
 (4) aceptar, tramitar, almacenar, transportar, cargar y descargar mercancías peligrosas, incluyendo COMAT clasificados como mercancías peligrosas como carga a bordo de una aeronave; y
 (5) proporcionar al piloto al mando información escrita o impresa exacta y legible relativa a las mercancías peligrosas que han de transportarse como carga.
-RAC-OPS 1.1155 Suministro de Información
-El operador se debe asegurar de que todo el personal, incluyendo el personal de terceras partes, que participa en la aceptación, manipulación, carga y descarga de la carga aérea está informado sobre la aprobación operacional del operador y las limitaciones con respecto al transporte de mercancías peligrosas.
+(*)RAC-OPS 1.1155 Suministro de Información
+El operador se debe asegurar de que todo el personal, incluyendo el personal de terceras partes, que participa en la aceptación, manipulación, carga y descarga de la carga aérea está informado sobre la aprobación específica del operador y las limitaciones con respecto al transporte de mercancías peligrosas.
+(*)(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 RAC-OPS 1.1160 Operaciones de transporte aéreo comercial en territorio nacional.
 (Ver CA OPS 1.1160)
 Todos los operadores que realicen operaciones de transporte aéreo comercial dentro del territorio nacional, deben aplicar las normas y métodos recomendados internacionales establecidos en esta Subparte.
-SUBPARTE S – SEGURIDAD DE LA AVIACIÓN
+SUBPARTE S - SEGURIDAD DE LA AVIACIÓN
 RAC-OPS 1.1235 Requisitos de seguridad
 El operador debe garantizar que todo el personal involucrado en las operaciones que rigen esta regulación, estén familiarizados y cumplan con los requisitos pertinentes de los programas de seguridad nacional del Estado del operador y la regulación AVSEC correspondiente.
 RAC-OPS 1.1240 Seguridad del compartimiento de la tripulación de vuelo
@@ -5355,7 +5454,7 @@ RAC-OPS 1.1250 Programas de Instrucción
 (b) El operador también debe establecer y mantener un programa de instrucción para familiarizar a los empleados apropiados con las medidas y técnicas preventivas correspondientes a los pasajeros, equipajes, carga, correo, equipo, repuestos y suministros que se hayan de transportar, de manera que dichos empleados contribuyan a la prevención de actos de sabotaje u otras formas de interferencia ilícita de acuerdo la regulación AVSEC correspondiente.
 RAC-OPS 1.1255 Notificación de actos de interferencia ilícita
 Después de ocurrido un acto de interferencia ilícita a bordo de un avión, el piloto al mando o en su ausencia el operador, debe presentar sin demora y por escrito, un reporte de tal acto a la autoridad local designada, según lo establecido en la regulación AVSEC correspondiente.
-ANEXO 1 – SECCIÓN 1
+ANEXO 1 - SECCIÓN 1
 SUBPARTE A - APLICABILIDAD
 RAC OPS 1.001 Aplicabilidad.
 (a) Este Anexo 1 al RAC-OPS 1 es aplicable a aviones de hélice, que operan comercialmente, con una configuración máxima de asientos para pasajeros de 19 o menos, o con un peso máximo certificado de despegue de 5.700 Kg o menos.
@@ -5448,12 +5547,12 @@ RAC-OPS 1. 530 Despegue
 (5) Se debe limitar a los aviones cuyo primer certificado de tipo se haya expedido antes del 1 de enero del 2005
 (6) La calificación de la tripulación
 (d) La operación debe ser aceptada por el Estado en el que esté ubicado el aeródromo.
-RAC-OPS 1.535 Franqueamiento de obstáculos – Aviones multimotor
+RAC-OPS 1.535 Franqueamiento de obstáculos - Aviones multimotor
 (a) Los apartados (a) (3), (a) (4), (a) (5), (b) (2), (c) (1) y (c) (2) no se aplican a operaciones VFR diurnas.
 (b) Para operaciones nocturnas IFR o VFR, los subpárrafos (b) y (c) se aplican añadiendo lo siguiente:
 (1) Se puede hacer un guiado de curso visual cuando la visibilidad de vuelo sea igual omayor de 1500 m.
 (2) El ancho máximo del corredor requerido es de 300 m cuando la visibilidad de vuelo es igual o mayor de 1500 m.
-RAC-OPS 1.545 Aterrizaje – Aeródromos de destino y alterno
+RAC-OPS 1.545 Aterrizaje - Aeródromos de destino y alterno
 (a) Se aplica el apartado añadiendo lo siguiente: Cuando no pueden cumplirse los requisitos de este apartado debido a limitaciones físicas de longitud de la pista, y exista un claro interés público y la necesidad de esa operación, la DGAC puede aceptar, caso por caso, otros datos de performance producidos por el operador relativos a procedimientos especiales que no estén en contradicción con el manual de vuelo, estos deben estar basados en una demostración y/o experiencia documentada.
 (b) El operador que quiera realizar operaciones de acuerdo a lo establecido en el punto (a) anterior debe obtener con anterioridad la aprobación de la DGAC. La aprobación debe especificar:
 (1) Tipo de avión
@@ -5540,7 +5639,7 @@ RAC-OPS 1.1240 Programas de entrenamiento.
 Los programas de entrenamiento deben ajustarse al tipo de operación realizada. Un programa de entrenamiento de auto estudio puede ser aceptable para operaciones VFR.
 RAC-OPS 1.1250 Listas de verificación para el procedimiento de búsqueda del avión
 No aplicable a operaciones VFR diurnas.
-SECCIÓN 2 – CIRCULARES DE ASESORAMIENTO (CA)
+SECCIÓN 2 - CIRCULARES DE ASESORAMIENTO (CA)
 MEDIOS ACEPTABLES DE CUMPLIMIENTO (MAC)
 MATERIAL EXPLICATIVO E INTERPRETATIVO (MEI)
 PRESENTACIÓN
@@ -5554,7 +5653,7 @@ Circulares de Asesoramiento (CA) ilustran los medios o las alternativas, pero no
 Medios Aceptables de Cumplimiento (MAC) ilustran los medios o las alternativas, pero no necesariamente los únicos medios posibles, para cumplir con un párrafo específico de la
 RAC-OPS 1.
 Material Explicativo e Informativo (MEI) ayudan a explicar el significado de una regulación.
-SUBPARTE A – APLICABILIDAD
+SUBPARTE A - APLICABILIDAD
 CA OPS 1.003 NOTAS EXPLICATIVAS SOBRE LAS DEFINICIONES
 Esta CA es material explicativo e interpretativo que provee información sobre las definiciones de la Sección 1
 Altitud de decisión (DA) o altura de decisión (DH)
@@ -5563,7 +5662,7 @@ Altitud de decisión (DA) o altura de decisión (DH)
 (c) Cuando se utilicen estas dos expresiones, pueden citarse convenientemente como "altitud/altura de decisión" y abreviarse en la forma "DA/H".
 Altitud de franqueamiento de obstáculos (OCA) o altura de franqueamiento de obstáculos (OCH)
 (a) Para la altitud de franqueamiento de obstáculos se tome como referencia el nivel medio del mar y para la altura de franqueamiento de obstáculos, la elevación del umbral, o en el caso de aproximaciones que no son de precisión, la elevación del aeródromo o la elevación del umbral, si este estuviera a más de 2 m (7 ft) por debajo de la elevación del aeródromo. Para la altura de franqueamiento de obstáculos en aproximaciones en circuito se tome como referencia la elevación del aeródromo.
-(b) Cuando se utilicen estas dos expresiones, pueden citarse convenientemente como "altitud/altura de franqueamiento de obstáculos" y abreviarse en la forma "OCA/H”.
+(b) Cuando se utilicen estas dos expresiones, pueden citarse convenientemente como "altitud/altura de franqueamiento de obstáculos" y abreviarse en la forma "OCA/H".
 Altitud mínima de descenso (MDA) o altura mínima de descenso (MDH).
 (a) Para la altitud mínima de descenso (MDA) se toma como referencia el nivel medio del mar y para la altura mínima de descenso (MDH), la elevación del aeródromo o la elevación del umbral, si este estuviera a más de 2 m (7 ft) por debajo de la elevación de aeródromo. Para la altura mínima de descenso en aproximaciones en circuito se toma como referencia la elevación del aeródromo.
 (b) La referencia visual requerida significa aquella sección de las ayudas visuales o del área de aproximación que debería haber estado a la vista durante tiempo suficiente para que el piloto pudiera hacer una evaluación de la posición y de la rapidez del cambio de posición de la aeronave, en relación con la trayectoria de vuelo deseada. En el caso de la aproximación en circuito, la referencia visual requerida es el entorno de la pista.
@@ -5584,8 +5683,9 @@ Operaciones de aproximación y aterrizaje que utilizan procedimientos de aproxim
 Guía lateral y vertical significa guía proporcionada por:
 (a) una radioayuda terrestre para la navegación; o
 (b) datos de navegación generados mediante computadora.
-Categorías de las operaciones de aproximación y aterrizaje de precisión
-Cuando los valores de la altura de decisión (DH) y del alcance visual en la pista (RVR) corresponden a categorías de operación diferentes, las operaciones de aproximación y aterrizaje por instrumentos han de efectuarse de acuerdo con los requisitos de la categoría más exigente (p. ej., una operación con una DH correspondiente a la CAT IIIA, pero con un RVR de la CAT IIIB, se consideraría operación de la CAT IIIB, y una operación con una DH correspondiente a la CAT II, pero con un RVR de la CAT I, se consideraría operación de la CAT II).
+(*)Categorías de las operaciones de aproximación y aterrizaje de precisión
+Cuando los valores de la altura de decisión (DH) y del alcance visual en la pista (RVR) corresponden a categorías de operación diferentes, las operaciones de aproximación y aterrizaje por instrumentos han de efectuarse de acuerdo con los requisitos de la categoría más exigente (p. ej., una operación con una DH correspondiente a la CAT IIIA, pero con un RVR de la CAT IIIB, se consideraría operación de la CAT IIIB, y una operación con una DH correspondiente a la CAT II, pero con un RVR de la CAT I, se consideraría operación de la CAT II). Esto no se aplica si el RVR o la DH se han aprobado como créditos operacionales.
+(*)(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 Performance de navegación requerida (RNP).
 La performance y los requisitos de navegación se definen para un tipo o aplicación de RNP en particular.
 Tiempo de vuelo - aviones.
@@ -5605,14 +5705,14 @@ CA al RAC-OPS 1.010 Exenciones
 2. Procedimientos.
 (a) A los efectos de esta RAC, se considera una exención a corto plazo, aquella que se concede por un período no superior a 180 días, y a largo plazo, aquella que se concede por más de 180 días.
 (b) Una exención a corto o largo plazo se debe solicitar en el formulario correspondiente, para facilitar la gestión de datos.
-SUBPARTE B – GENERAL
+SUBPARTE B - GENERAL
 CA OPS 1.020 LEYES, DISPOSICIONES Y PROCEDIMIENTOS.
 (Ver RAC OPS 1.020) a) (1)
 En los PANS-OPS (Doc. 8168), Volumen I, figura información para los pilotos y el personal de operaciones de vuelo sobre los parámetros relativos a los procedimientos de vuelo y sobre los procedimientos operacionales. Los criterios para la construcción de procedimientos de vuelo visual y por instrumentos figuran en los PANS-OPS (Doc. 8168), Volumen II. Los criterios sobre el franqueamiento de obstáculos y los procedimientos empleados en ciertos Estados pueden diferir de los que se encuentran en los PANS-OPS y, por motivos de seguridad, es importante conocer estas diferencias.
 CA OPS 1.020 LEYES, DISPOSICIONES Y PROCEDIMIENTOS.
 (Ver RAC OPS 1.020) a) (4)
 En el Manual sobre procedimientos para la inspección, certificación y supervisión permanente de las operaciones (Doc. 8335), se ofrece orientación sobre la organización del control operacional y la función del encargado de operaciones de vuelo/despachador de vuelo. En la Preparación de un manual de operaciones (Doc. 9376), figura orientación detallada sobre la autorización, obligaciones y responsabilidades del encargado de operaciones de vuelo/despachador de vuelo. Los requisitos de edad, competencia, conocimientos y experiencia de los encargados de operaciones de vuelo/ despachadores de vuelo con licencia figuran en el RAC-LPTA vigente.
-CA OPS 1.030 LISTA DE EQUIPO MÍNIMO – RESPONSABILIDADES DEL OPERADOR. (Ver RAC-OPS 1.030)
+CA OPS 1.030 LISTA DE EQUIPO MÍNIMO - RESPONSABILIDADES DEL OPERADOR. (Ver RAC-OPS 1.030)
 Esta CA es un método aceptable de cumplimiento para el cumplimiento para la elaboración del MEL:
 (a) El operador se debe asegurar que ningún vuelo se inicie cuando varios elementos de la lista de equipo mínimo no funcionen, si previamente no se ha llegado a la conclusión de que la interrelación que exista entre los sistemas o componentes inactivos no dará lugar a una degradación inaceptable del nivel de seguridad o a un aumento indebido de la carga de trabajo de la tripulación de vuelo.
 (b) El operador debe tomar en cuenta la posibilidad de que surjan otras fallas durante la operación continuada con sistemas o equipo inactivo también debe considerarse cuando se trate de determinar que se mantendrá un nivel de seguridad aceptable. La lista de equipo mínimo no debe apartarse de los requisitos estipulados en la sección atinente a limitaciones de la performance en el manual de vuelo, de los procedimientos de emergencia, o de otros requisitos de aeronavegabilidad establecidos por el Estado de matrícula o la DGAC, a menos que existan disposiciones en contrario establecidas por la autoridad de aeronavegabilidad competente o especificadas en el manual de vuelo.
@@ -5645,7 +5745,7 @@ La MEL no puede tener en consideración todos los casos de fallas múltiples de 
 4.1 Debe hacerse todo el esfuerzo posible por parte de Mantenimiento para corregir todos los defectos técnicos tan pronto como sea posible y que la aeronave sea devuelta al servicio por parte del centro de mantenimiento en completa condición operacional.
 4.2 El piloto al mando debe, ser informado por Mantenimiento tan pronto como sea factible, en el caso de que fuera imposible la rectificación del elemento inoperativo antes de la salida.
 4.3 Siempre que la aeronave sea retornada al servicio por Mantenimiento para su despacho con elementos inoperativos se requiere lo siguiente:
-4.3.1 La bitácora de mantenimiento (technical log book) debe contener una descripción detallada de los elementos inoperativos, información especial para la tripulación de vuelo, “si fuera necesario” e información sobre la acción correctiva tomada.
+4.3.1 La bitácora de mantenimiento (technical log book) debe contener una descripción detallada de los elementos inoperativos, información especial para la tripulación de vuelo, "si fuera necesario" e información sobre la acción correctiva tomada.
 4.3.2 Cuando sean accesibles para la tripulación de vuelo los controles y/o indicadores relacionados con los componentes o unidades inoperativas deben estar claramente rotulados.
 4.3.3 Si la operación inadvertida de un equipo pudiera producir un riesgo, tal equipo debe ponerse en estado inoperativo (físicamente) como se indique en el Procedimiento de Mantenimiento apropiado.
 4.3.4 Los Procedimientos Operativos y de Mantenimiento relevantes se hallan contenidos en identificar el Manual, Sección, Capítulo o parte donde se encuentren y que hayan sido autorizados por la DGAC.
@@ -5668,7 +5768,7 @@ Sin embargo el Permiso para estos vuelos debe ser solicitado a la DGAC o permiti
 Para el propósito de esta MEL se aplicarán las siguientes definiciones:
 7.1 "Condiciones Meteorológicas Visuales" (VMC) significa que el entorno atmosférico es tal que permitiría que un vuelo se realizara bajo las Reglas de Vuelo Visual aplicables a ese vuelo. Esto no impide operar bajo las Reglas de Vuelo Instrumental.
 7.2 "Operación Diurna" es cualquier vuelo, llevado a cabo, desde el punto del despegue hasta el del aterrizaje, en el intervalo de tiempo que va desde los treinta (30) minutos anteriores a la salida del sol, hasta los treinta (30) minutos posteriores a la puesta del sol.
-7.3 “Guion"-" en las columnas 3 y 4 indica una cantidad variable de los ítems instalados.
+7.3 "Guion"-" en las columnas 3 y 4 indica una cantidad variable de los ítems instalados.
 7.4 "Condiciones de formación de hielo" significa que las condiciones atmosféricas son tales que es posible la formación de hielo en la aeronave o en sus motores.
 7.5 "Inoperativo" en relación con un elemento, función, componente o sistema significa que ese elemento, función, componente o sistema no funciona de manera correcta de manera que no cumple su propósito previsto o no funciona constantemente dentro de los límites o tolerancias de su diseño.
 NOTA: Algunos sistemas han sido diseñados para ser tolerantes ante las fallas y son monitoreados por computadores digitales que transmiten mensajes de la falla a un computador central a los efectos de mantenimiento. La presencia de este tipo de mensajes no significa que el sistema esté inoperativo.
@@ -5676,7 +5776,6 @@ NOTA: Algunos sistemas han sido diseñados para ser tolerantes ante las fallas y
 NOTA: Esta no es una lista exhaustiva y los operadores deben incluir en su MEL toda definición que se considere relevante.
 8. SISTEMAS DE MENSAJES CENTRALIZADOS (si es aplicable)
 Esta aeronave está equipada con un sistema [aquí ha de aparecer el nombre de su sistema ECAM/EICAS] que suministra diferentes niveles de mensajes de información sobre sistemas. (Avisos de peligro, precaución, recomendación, estado, mantenimiento). Cualquier mensaje de discrepancia de la aeronave que afecte al despacho será normalmente de nivel "Estado (Status)" o superior. Por tanto, las condiciones en los sistemas que den lugar únicamente mensajes de Mantenimiento (Maintenance) no aparecen reflejados en la MEL, dado que por sí solos no prohíben el despacho de la aeronave. Sin embargo los mensajes de discrepancia de mantenimiento deben ser anotados y corregidos de acuerdo con el programa de mantenimiento aprobado.
-[imagen]
 CA OPS 1 a la RAC-OPS 1.035 SISTEMA DE CALIDAD.
 (Ver RAC-OPS 1.035)
 Esta CA es un método aceptable de cumplimiento para establecer un Sistema de Calidad
@@ -5690,7 +5789,7 @@ Esta CA es un método aceptable de cumplimiento para establecer un Sistema de Ca
 (iii) Gerente de Calidad: Gerente aceptable para la Autoridad, responsable de gestionar el Sistema de Calidad, la función de seguimiento y requerir acciones correctivas.
 2.2 Política de Calidad
 2.2.1 Todo operador debe hacer una declaración por escrito de la Política de Calidad que suponga un compromiso por parte del Gerente Responsable de que es lo que se pretende conseguir con el Sistema de Calidad. La Política de Calidad debe reflejar la consecución y el cumplimiento continuado de los requisitos establecidos tanto en la RAC-OPS 1 así como en cualquier otro estándar adicional especificados por el operador.
-2.2.2 El Gerente Responsable es una pieza esencial de la organización titular de un Certificado de Operador Aéreo (COA). Con respecto a lo establecido en la RAC-OPS 1.175(i), y el apartado anterior la, el término “Gerente Responsable” alude al presidente, Gerente, Director General/, de la organización del operador, sobre quien -en virtud de su cargo- recae toda la responsabilidad global de gestionar (incluso financieramente) toda la organización.
+2.2.2 El Gerente Responsable es una pieza esencial de la organización titular de un Certificado de Operador Aéreo (COA). Con respecto a lo establecido en la RAC-OPS 1.175(i), y el apartado anterior la, el término "Gerente Responsable" alude al presidente, Gerente, Director General/, de la organización del operador, sobre quien -en virtud de su cargo- recae toda la responsabilidad global de gestionar (incluso financieramente) toda la organización.
 2.2.3 El Gerente Responsable ostentará responsabilidad global sobre el Sistema de Calidad de la organización titular de un Certificado de Operador Aéreo (COA), incluyendo la frecuencia, forma y estructura de las revisiones de la dirección descritas en el apartado 4.9 siguiente.
 2.3 Propósito del Sistema de Calidad
 2.3.1 El Sistema de Calidad debe permitir al operador dar seguimiento a su cumplimiento con la RAC-OPS 1, el Manual de Operaciones, Manual de Control de mantenimiento del operador, así como con cualquier otro estándar especificado por el operador o la Autoridad, a fin de garantizar operaciones seguras y aviones aeronavegables.
@@ -5707,7 +5806,7 @@ Esta CA es un método aceptable de cumplimiento para establecer un Sistema de Ca
 3.1 Introducción
 3.1.1 El Sistema de Calidad del operador deber garantizar el cumplimiento y adecuación de requisitos, estándares y procedimientos operacionales aplicados a las actividades operativas y de mantenimiento.
 3.1.2 El operador deber especificar la estructura básica del Sistema de Calidad aplicable a la operación.
-3.1.3 El Sistema de Calidad debería estructurarse de acuerdo a la dimensión y el grado de complejidad de la organización a dar seguimiento (para “pequeños operadores” ver apartado 7 siguiente).
+3.1.3 El Sistema de Calidad debería estructurarse de acuerdo a la dimensión y el grado de complejidad de la organización a dar seguimiento (para "pequeños operadores" ver apartado 7 siguiente).
 3.2 Ámbito
 3.2.1 Como mínimo, el Sistema de Calidad debería extenderse a:
 (a) Lo establecido en la RAC-OPS 1;
@@ -5770,7 +5869,7 @@ Esta CA es un método aceptable de cumplimiento para establecer un Sistema de Ca
 4.4.1 El operador debe decidir, dependiendo de la complejidad de su operación, si utilizará un equipo de auditoría dedicado, o solamente a un único auditor. En cualquier caso, tanto el auditor como el equipo de auditores deben poseer experiencia relevante en materia de operaciones y/o mantenimiento.
 4.4.2 Las responsabilidades de los auditores deben definirse con claridad en la documentación relevante.
 4.5 Independencia del auditor (o de los auditores)
-4.5.1 Los auditores no deberían intervenir en las actividades del “día a día” del área de operaciones y/o mantenimiento que vayan a ser auditadas. El operador podría, además de hacer uso del personal de plena dedicación adscrito a un departamento independiente de calidad, o realizar el seguimiento de aquellas áreas o actividades específicas mediante auditores contratados a tiempo parcial. Un operador cuya estructura y tamaño no justifique el establecimiento de auditores a tiempo completo, podría e realizar las funciones de auditoría utilizando personal a tiempo parcial de su propia organización o de origen externas bajo los términos de un acuerdo aceptable para la DGAC. En cualquier caso, el operador debe desarrollar los procedimientos adecuados para garantizar que los responsables directos de las actividades a auditar no sean seleccionados para formar parte del equipo de auditoría.
+4.5.1 Los auditores no deberían intervenir en las actividades del "día a día" del área de operaciones y/o mantenimiento que vayan a ser auditadas. El operador podría, además de hacer uso del personal de plena dedicación adscrito a un departamento independiente de calidad, o realizar el seguimiento de aquellas áreas o actividades específicas mediante auditores contratados a tiempo parcial. Un operador cuya estructura y tamaño no justifique el establecimiento de auditores a tiempo completo, podría e realizar las funciones de auditoría utilizando personal a tiempo parcial de su propia organización o de origen externas bajo los términos de un acuerdo aceptable para la DGAC. En cualquier caso, el operador debe desarrollar los procedimientos adecuados para garantizar que los responsables directos de las actividades a auditar no sean seleccionados para formar parte del equipo de auditoría.
 Cuando se recurra al concurso de auditores externos, resulta esencial que cualquiera de ellos esté familiarizado con el tipo de operación y/o mantenimiento realizado por el operador.
 4.5.2 En el Programa de Aseguramiento de Calidad del operador se deben identificar aquellas personas de la compañía que posean experiencia, responsabilidad y autoridad para:
 (a) Realizar auditorías e inspecciones de calidad como parte del Programa de Aseguramiento de Calidad.
@@ -5874,21 +5973,19 @@ Los operadores con una plantilla suficientemente calificada deberían considerar
 El requisito de establecer y documentar un Sistema de Calidad y emplear a un Gerente de Calidad es aplicable a todos los operadores. En algunos requisitos se han establecido discriminantes para diferenciar a los operadores grandes de los pequeños basados en la capacidad del avión (como más o menos de 20 asientos) o en el peso (como más o menos de 10 toneladas de peso máximo al despegue), sin embargo, estos discriminantes no son relevantes a la hora de considerar el tamaño de la operación y el sistema de calidad requerido.
 Debido a ello, el sistema de calidad del operador debería categorizarse de acuerdo al número de empleados a tiempo completo.
 7.2 Tamaño de la operación
-7.2.1 Operadores que empleen 5 o menos personas a tiempo completo serán denominados “muy pequeños”, mientras que los que empleen entre 6 y 20 personas a tiempo completo se denominaran “pequeños” a los únicos efectos del sistema de calidad del operador. En este contexto, tiempo completo, debería entenderse como empleados por no menos de 35 horas por semana, excluidos los periodos de vacaciones.
+7.2.1 Operadores que empleen 5 o menos personas a tiempo completo serán denominados "muy pequeños", mientras que los que empleen entre 6 y 20 personas a tiempo completo se denominaran "pequeños" a los únicos efectos del sistema de calidad del operador. En este contexto, tiempo completo, debería entenderse como empleados por no menos de 35 horas por semana, excluidos los periodos de vacaciones.
 7.2.2 Sistemas de calidad complejos podrían resultar inapropiados para operadores muy pequeños o pequeños, y además el esfuerzo administrativo para confeccionar los manuales y procedimientos de calidad de un sistema complejo podría estrangular sus recursos. Por todo ello es aceptable que este tipo de operadores deberían adaptar el sistema de calidad al tamaño y complejidad de su operación, a la vez que asignar sus recursos humanos de manera adecuada.
-7.3 Sistemas de calidad para operadores “pequeños” / “muy pequeños”.
+7.3 Sistemas de calidad para operadores "pequeños" / "muy pequeños".
 7.3.1 Para este tipo de operadores parece apropiado que el de aseguramiento de calidad esté basado en la utilización de listas de verificación. La implementación del contenido de las listas de verificación debe planificarse de forma que se asegure la aplicación de todos los elementos de las mismas dentro de un plazo de tiempo especificado, y la emisión de una declaración que acredite su finalización para su revisión por la Dirección. Deberían asimismo realizarse ocasionalmente revisiones independientes del contenido de las listas de verificación y de los logros alcanzados por el sistema de aseguramiento de calidad.
-7.3.2 Un operador “pequeño” puede decidir entre utilizar auditores externos o internos, o una combinación de ambos. En este caso sería aceptable que especialistas externos u organizaciones calificadas realizaran las auditorias de calidad en nombre del Gerente de Calidad.
+7.3.2 Un operador "pequeño" puede decidir entre utilizar auditores externos o internos, o una combinación de ambos. En este caso sería aceptable que especialistas externos u organizaciones calificadas realizaran las auditorias de calidad en nombre del Gerente de Calidad.
 7.3.3 Si la función de auditoría de calidad independiente está siendo realizada por auditores externos, la programación de auditorías debe incluirse en la documentación relevante.
 7.3.4 Con independencia de los acuerdos realizados, el operador es el responsable último del sistema de calidad, y especialmente del cierre y seguimiento de las acciones correctivas.
-CA OPS 2 a la RAC-OPS 1.035 SISTEMA CALIDAD – EJEMPLOS.
+CA OPS 2 a la RAC-OPS 1.035 SISTEMA CALIDAD - EJEMPLOS.
 (Ver RAC-OPS 1.035)
 Esta CA es material explicativo e interpretativo que provee información sobre los Sistemas de Calidad.
 Los siguientes diagramas ilustran dos ejemplos típicos de organizaciones de calidad.
 1. Sistema de calidad de un operador aéreo que a la vez es organización de mantenimiento aprobada bajo la MRAC 145.
-[imagen]
 2. Sistema de calidad de un operador aéreo que no es organización de mantenimiento aprobada MRAC 145
-[imagen]
 Nota. El sistema de calidad y el programa de aseguramiento de calidad del titular de un Certificado de Operador Aéreo (COA), debería garantizar que el mantenimiento realizado por la organización de mantenimiento aprobada bajo la MRAC-145 esté de acuerdo con los requisitos especificados por el titular del COA.
 CA a la RAC OPS 1.037 Sistema de Gestión de la Seguridad Operacional.
 (Ver RAC-OPS 1.037)
@@ -5957,8 +6054,8 @@ Angulo de cabeceo (Pitch) en el aterrizaje | Actitud de ángulo de ataque (Pitch
 Ángulos de Banqueo | Banqueo excesivo debajo de 100 ft AGL Banqueo excesivo 100 ft AGL a 500 ft AGL Banqueo excesivo arriba de 500 ft AGL Banqueo excesivo cerca del terreno (por debajo de 20 ft AGL)
 Aceleración Normal | Alta aceleración normal (High normal acceleration) en tierra Alta aceleración normal (High normal acceleration) en vuelo flaps arriba(+/- incremento) Alta aceleración normal (High normal acceleration) en vuelo flaps abajo(+/- incremento) Alta aceleración normal (High normal acceleration) durante el aterrizaje
 Configuración Anormal | Alerta de configuración de despegue Cambia de configuración temprana después del despegue (flap) Speedsbrake con flaps Speedbrake en aproximación debajo de 800 ft AAL Speedbrake sin armar debajo de 800 ft AAL
-Sistema de Advertencia de Proximidad del terreno (Ground Proximity Warning) (GPWS) | Operación GPWS - hard warning Operación GPWS - soft warning Operación GPWS – Alerta de cortante de viento (windshear) Operación GPWS – falsas alertas (false warnings)
-Advertencia del Sistema anticolisión de abordo (TCAS Warning) | Operación TCAS – Resolution Advisory
+Sistema de Advertencia de Proximidad del terreno (Ground Proximity Warning) (GPWS) | Operación GPWS - hard warning Operación GPWS - soft warning Operación GPWS - Alerta de cortante de viento (windshear) Operación GPWS - falsas alertas (false warnings)
+Advertencia del Sistema anticolisión de abordo (TCAS Warning) | Operación TCAS - Resolution Advisory
 Margen al Stall/Buffet | Alerta de stall (Stickshake) Alerta de stall falsa (False stickshake) Margen de sustentación reducido excepto cerca del terreno (Reduced lift margin except near ground) Márgen de sustentación reducido al despegue (Reduced lift margin at take-off)
 Limitaciones del Manual de Vuelo | Bajo margen de buffet (Low buffet margin) (arriba de 20 000 ft) Exceder Vmo exceedance Exceder Mmo exceedance Exceder velocidades establecidas de Flap (placard speed exceedence) Exceder velocidad de tren de aterrizaje abajo. Exceder velocidad de selección de Tren de aterrizaje arriba/abajo Exceder altitud de Flap/ Slat Exceder altitud operativa máxima (Maximum operating altitude)
 CA OPS 1.037 (e) PROGRAMA DE ANÁLISIS DE DATOS
@@ -5972,7 +6069,7 @@ El propósito de esta CA es proporcionar orientación para evaluar el nivel de S
 1.2 Conceptos básicos
 1.2.1 Aun cuando todos los operadores de aviones deberían tener como meta el nivel de protección SSEI que se requiere en el Anexo 14 de la OACI, Volumen I, Capítulo 9, 9.2, algunos de los aeródromos que se utilizan actualmente no cumplen estos requisitos.
 Más aún, las disposiciones del Anexo 14, Volumen I, se refieren al nivel de SSEI que ha de proporcionarse en el aeródromo a los aviones que normalmente lo utilizan.
-1.2.2 Si un aeródromo está expuesto a una reducción temporal de su capacidad SSEI, en el Anexo 14, Volumen I, 2.11.3, figura el requisito siguiente: “Los cambios del nivel de protección de que se dispone normalmente en un aeródromo para el salvamento y extinción de incendios se notificarán a las dependencias apropiadas de servicios de tránsito aéreo y de servicios de información aeronáutica para permitir que dichas dependencias faciliten la información necesaria a las aeronaves que llegan y que salen. Cuando el nivel de protección vuelva a las condiciones normales, se informará de ello a las dependencias mencionadas anteriormente”.
+1.2.2 Si un aeródromo está expuesto a una reducción temporal de su capacidad SSEI, en el Anexo 14, Volumen I, 2.11.3, figura el requisito siguiente: "Los cambios del nivel de protección de que se dispone normalmente en un aeródromo para el salvamento y extinción de incendios se notificarán a las dependencias apropiadas de servicios de tránsito aéreo y de servicios de información aeronáutica para permitir que dichas dependencias faciliten la información necesaria a las aeronaves que llegan y que salen. Cuando el nivel de protección vuelva a las condiciones normales, se informará de ello a las dependencias mencionadas anteriormente".
 1.2.3 La orientación siguiente se ofrece para asistir a los operadores en la evaluación que se requiere en el Capítulo 4, 4.1.4. Esta orientación no tiene por objeto limitar ni reglamentar el funcionamiento de los aeródromos.
 2. Glosario
 Categoría SSEI. La categoría de los servicios de salvamento y extinción de incendios, según se define en el Anexo 14, Volumen I, Capítulo 9.
@@ -6072,37 +6169,202 @@ Armas deportivas pueden incluir cuchillos de caza, arcos y otros artículos simi
 CA OPS 1.085 (e) (3) Responsabilidad de las Tripulaciones
 (Ver RAC-OPS 1.085 (e) (3))
 Esta CA es material explicativo e interpretativo que provee información sobre la Responsabilidad de las Tripulaciones Información sobre los efectos de medicamentos, drogas, otros tratamientos y alcohol, aplicables al otorgamiento de licencias se encuentran en la normativa de licencias correspondientes a requisitos médicos en el RAC LPTA Capítulo 6.
-CA OPS 1.125(a) (4) DOCUMENTOS DE ABORDO. COPIA FIEL CERTIFICADA DEL COA
-Existen diversas maneras de certificar una copia de un COA. En todos los casos, la declaración de certificación acreditará que la copia es copia fiel del original, estará firmada y presentará el sello oficial. La declaración de certificación se adjuntará en forma permanente a la copia, colocándola en la primera página del documento en sí o en cada página del documento, o adjuntándola a la totalidad del documento. A continuación, se reproduce un modelo de declaración de certificación.
-CERTIFICACIÓN
-Por la presente certifico que la que se adjunta es copia fiel del [título del COA], extendido en [lugar] el [fecha] por [la autoridad de emisión].
+(*)CA OPS 1.125(a)(4) DOCUMENTOS DE ABORDO. COPIA FIEL CERTIFICADA DEL COA
+Existen diversas maneras de certificar una copia de un COA. En todos los casos, la declaración de certificación acreditará que la copia es copia fiel del original, estará autenticada y certificada por un notario público o por la DGAC. La declaración de certificación se adjuntará en forma permanente a la copia, colocándola en la primera página del documento en sí o en cada página del documento, o adjuntándola a la totalidad del documento. A continuación, se reproduce un modelo de declaración de certificación.
+(*)(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(*)CERTIFICACIÓN
+Por la presente certifico que la que se adjunta lleva el sello de esta oficina y es copia fiel y exacta del [título del COA], es todo.
+Se emite la presente a petición de [nombre del Operador], extendido en [lugar] el [fecha] por [la autoridad de emisión].
 Firmado en [lugar] el [fecha].
-[Firmada por la autoridad correspondiente en virtud de las leyes de su Estado]
+[Firmada por la autoridad correspondiente en virtud de las leyes de Costa Rica]
 [Sello oficial]
+(*)(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+(*)CA OPS 1.125(a)(7) DOCUMENTOS DE ABORDO. COPIA FIEL CERTIFICADA DEL ACUERDO EN VIRTUD DEL ARTÍCULO 83 BIS CONCERTADO ENTRE EL ESTADO DE MATRÍCULA Y EL ESTADO COSTARRICENSE.
+Existen diversas maneras de certificar una copia de un acuerdo en virtud del artículo 83 bis concertado entre el estado de matrícula y el estado costarricense. En todos los casos, la declaración de certificación acreditará que la copia es copia fiel del original, estará autenticada y certificada por un notario público o por la DGAC. La declaración de certificación se adjuntará en forma permanente a la copia, colocándola en la primera página del documento en sí o en cada página del documento, o adjuntándola a la totalidad del documento. A continuación, se reproduce un modelo de declaración de certificación.
+CERTIFICACIÓN
+Por la presente certifico que la que se adjunta lleva el sello de esta oficina y es copia fiel y exacta del [título del ACUERDO 83 BIS], es todo.
+Se emite la presente a petición de [nombre del Operador], extendido en [lugar] el [fecha] por [la autoridad de emisión].
+Firmado en [lugar] el [fecha].
+[Firmada por la autoridad correspondiente en virtud de las leyes de Costa Rica]
+[Sello oficial]
+(*)(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 CA OPS 1.160 (a) Conservación, presentación y utilización de grabaciones de los registradores de vuelo
 (Ver RAC-OPS 1.160)
 Esta CA es material explicativo e interpretativo que provee información sobre la conservación de grabaciones.
-En el RAC-OPS 1.160 (a), la frase “en la medida de lo posible” significa que:
+En el RAC-OPS 1.160 (a), la frase "en la medida de lo posible" significa que:
 (1) Existen razones técnicas por las que los datos no pueden ser preservados, o
 (2) El aeroplano puede haber sido despachado con el registrador de datos inoperativo según lo permitido por las políticas de la MEL.
-SUBPARTE C– CERTIFICACIÓN Y VIGILANCIA DEL OPERADOR
-CA OPS 1.175 Organización administrativa del titular de un COA
-(Ver RAC-OPS 1.175)
-Esta CA es un método aceptable de cumplimiento sobre la organización administrativa del titular de un COA.
-1. Objetivo y funciones
-1.1 La realización de operaciones seguras se consigue mediante la colaboración de manera armoniosa y con un objetivo común entre el operador y la Autoridad. Las funciones de ambas organizaciones son diferentes, bien definidas, pero complementarias. En esencia el operador cumple con las normas establecidas mediante el establecimiento de una estructura de gestión adecuada y competente. La Autoridad, dentro de su marco jurídico, establece y supervisa los estándares esperados de los operadores.
-2. Responsabilidades administrativas
-2.1 Las responsabilidades de administración en lo relativo a RAC-OPS 1 deberían incluir, al menos, las siguientes cinco funciones principales:
-a. Establecimiento de la política de seguridad de vuelo del operador
-b. Asignación de funciones y responsabilidades, y emisión de instrucciones a los individuos, suficientes para la implantación de la política de la compañía y el mantenimiento de los estándares de seguridad.
-c. Vigilancia de los estándares de seguridad de vuelo
-d. Archivo y análisis de cualquier desviación de los estándares de la compañía, y asegurar acciones correctivas;
-e. Evaluación de los registros de seguridad de la compañía a fin de evitar el desarrollo de tendencias no deseadas.
+(*)CA OPS 1.165 (b)(2)(ii). ARRENDAMIENTO DE AVIONES.
+Véase RAC-OPS 1.165 (b)(2)(ii)
+Esta CA es material explicativo e interpretativo que provee información adicional sobre el acuerdo 83 bis.
+1. El resumen del acuerdo transmitido con el acuerdo en virtud del Artículo 83 bis registrado ante el Consejo de la OACI contiene la lista de todas las aeronaves afectadas por el acuerdo. No obstante, la copia auténtica certificada que debe llevarse a bordo conforme a lo dispuesto en el RAC OPS 1.150, únicamente tendrá que indicar la aeronave específica que lleve la copia.
+(*)(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+SUBPARTE C- CERTIFICACIÓN Y VIGILANCIA DEL OPERADOR
+(*)CA OPS 1.175 Certificación y Vigilancia del Operador aéreo
+Esta CA contiene información adicional que debe ser utilizada como guía para todo el proceso de la emisión de un Certificado de Operador Aéreo (COA).
+1. PROPÓSITO Y ALCANCE
+1.1 Introducción
+El propósito de esta CA es proporcionar orientación sobre las medidas que exige la DGAC al respecto de los requisitos de la Subparte C, para la Certificación de Operadores Aéreos. (COA)
+1.2 Necesidad de certificación previa
+De acuerdo con la Subparte C, la emisión de un certificado de un operador aéreo (COA) "dependerá de que dicho operador demuestre" a la DGAC que su organización, políticas y programas de instrucción, operaciones de vuelo, y arreglos de servicios de escala y de mantenimiento son adecuados al considerar la naturaleza y amplitud de las operaciones que se llevarán a cabo. La certificación supone la evaluación de cada operador por parte de la DGAC y la determinación de que es capaz de llevar a cabo operaciones seguras antes del otorgamiento inicial de un COA.
+1.3 Métodos de certificación normalizados
+En la Subparte C la DGAC, establece el proceso de certificación que garantiza el cumplimiento de las normas pertinentes para el tipo de operación que realizará el operador. El proceso de Certificación establecido por la DGAC, cumple con las disposiciones emitidas por la OACI.
+2. EVALUACIONES TÉCNICAS DE SEGURIDAD OPERACIONAL REQUERIDAS
+2.1 Aprobación específica, Aprobación y aceptación
+2.1.1 La certificación y supervisión permanente de los operadores de servicios aéreos supone la adopción de medidas por la DGAC con respecto a los asuntos que se le presentan para su revisión. Las medidas pueden categorizarse como aprobaciones específicas, aprobaciones y aceptaciones, según el tipo de respuesta de la DGAC ante el asunto sometido para su revisión.
+2.1.2 Una aprobación específica es una aprobación que se documenta en las especificaciones relativas a las operaciones de transporte aéreo comercial.
+2.1.3 Una aprobación es una respuesta activa de la DGAC a un asunto que se le presenta para revisar. La aprobación constituye una constatación o determinación de cumplimiento de las normas pertinentes. La aprobación se demostrará mediante la firma del funcionario que aprueba, la expedición de un documento o certificado, u otra medida oficial que adopte la DGAC.
+2.1.4 Una aceptación no exige necesariamente una respuesta activa de la DGAC respecto de un asunto que se le presenta para examen. La DGAC puede aceptar que el asunto sometido a examen cumple con las normas pertinentes si no rechaza específicamente todo el asunto objeto de examen o parte de él, generalmente después del período definido después de la presentación.
+2.1.5 La frase "aprobado por la DGAC" u otras similares en las que se utiliza el término "aprobación" se emplean con frecuencia en esta regulación (RAC OPS 1). Las disposiciones que indican una revisión y que implican aprobación o por lo menos "aceptación" por la DGAC figuran incluso más a menudo. Además de estas frases específicas, figuran numerosas referencias a requisitos que, como mínimo, crearían la necesidad de una revisión técnica por la DGAC. En esta CA se agrupan y describen normas y métodos recomendados concretos para facilitar su utilización por la DGAC.
+2.1.6 La DGAC debe hacer arreglos para llevar a cabo una evaluación técnica de la seguridad operacional antes de otorgar la aprobación específica, la aprobación o aceptación. La evaluación debe:
+(a) ser realizada por una persona con aptitudes específicas para efectuar ese tipo de evaluación técnica;
+(b) concordar con métodos establecidos por escrito y normalizados; y
+(c) incluir cuando se considere necesario para la seguridad operacional, una demostración práctica de la capacidad real del operador de servicios aéreos para llevar a cabo el tipo de operación en cuestión.
+2.2 Demostraciones previas a la expedición de algunas aprobaciones específicas y aprobaciones
+2.2.1 Según la Subparte C, la DGAC debe, antes de la certificación de un operador, requerir a éste último demostraciones que le permitan evaluar la idoneidad de la organización, método de control y supervisión de las operaciones de vuelo, arreglos de servicios de escala y de mantenimiento del operador. A estas demostraciones debe añadirse la revisión o las inspecciones de manuales, registros, instalaciones y equipo. Algunas de las aprobaciones específicas y aprobaciones que se requieren en el RAC OPS 1, como la aprobación específica para las operaciones en condiciones de baja visibilidad, tienen repercusiones significativas en la seguridad operacional y deben validarse mediante demostración antes de que la DGAC autorice las operaciones en cuestión.
+2.2.2 Si bien los métodos concretos y el alcance de las demostraciones y evaluaciones requeridas varían, los procedimientos de certificación de la DGAC cuyos operadores tienen un buen expediente en cuanto a seguridad operacional son generalmente coherentes. Los inspectores técnicamente cualificados evalúan una muestra representativa de la inspección, mantenimiento y operaciones reales antes de expedir el COA o nuevas autorizaciones del COA.
+2.3 Registro de medidas para la certificación
+2.3.1 Es importante que la certificación, aprobación específica, aprobación y aceptación de la DGAC se documenten adecuadamente. La DGAC debe emitir un documento por escrito, como una carta o documento formal, a modo de registro oficial de la certificación.
+Estos instrumentos por escrito deben conservarse mientras el operador siga utilizando las autorizaciones para las cuales se expidió aprobación específica, la aprobación o aceptación. Estos documentos proporcionan constancia inequívoca de las autorizaciones del operador y sirven de prueba en el caso de que la DGAC y el operador no estén de acuerdo respecto de las operaciones que el último está autorizado a realizar.
+2.3.2 La DGAC debe mantener los registros de certificación, como inspecciones, demostraciones, aprobaciones específicas, aprobaciones e instrumentos de aceptación, en un solo archivo que se conserva mientras el operador esté en servicio o mantener estos registros en archivos según la medida de certificación efectuada y revisar el archivo pertinente cuando las aprobaciones específicas, aprobaciones o instrumentos de aceptación se actualizan. Independientemente del método, estos registros de certificación son prueba convincente de que la DGAC cumple con las obligaciones que prescribe la OACI respecto de la certificación de operadores.
+2.4 Coordinación de las evaluaciones de operaciones y aeronavegabilidad
+En algunas de las referencias a aprobaciones específicas, aprobación o aceptación en el RAC OPS 1, se requerirá la evaluación de las operaciones y de la aeronavegabilidad. La aprobación específica de operaciones en condiciones de baja visibilidad por ejemplo, exige una evaluación previa coordinada por especialistas en operaciones y en aeronavegabilidad. Los especialistas en operaciones de vuelo deben evaluar los procedimientos operacionales, la instrucción y la competencia. Los especialistas en aeronavegabilidad deben evaluar la aeronave, la fiabilidad del equipo y los procedimientos de mantenimiento. Estas evaluaciones pueden llevarse a cabo en forma separada, pero deben coordinarse para asegurar que se consideren todos los aspectos que exige la seguridad operacional antes de otorgar aprobación específica, aprobación o aceptación.
+2.5 Responsabilidades de la DGAC y del Estado de matrícula
+2.5.1 La DGAC tiene la responsabilidad de la primera certificación, la expedición del COA y la supervisión permanente de los operadores de servicios aéreos además requiere que la DGAC considere las aprobaciones y aceptaciones del Estado de matrícula, o bien actúe de acuerdo con ellas. De conformidad con estas disposiciones, la DGAC debe asegurar que las medidas que emprende concuerdan con las aprobaciones y aceptaciones del Estado de matrícula y que el operador de servicios aéreos cumple con los requisitos de éste.
+2.5.2 Es esencial que los arreglos en virtud de los cuales los operadores utilizan aeronaves con matrícula de otro Estado sean de la entera satisfacción de la DGAC, en particular con respecto al mantenimiento y a la instrucción de la tripulación. La DGAC debe examinar estos arreglos en coordinación con el Estado de matrícula. Cuando corresponda, debe concertarse un acuerdo para transferir las responsabilidades de vigilancia del Estado de matrícula a la DGAC en virtud del Artículo 83 bis del Convenio sobre Aviación Civil Internacional a fin de evitar malentendidos en cuanto al Estado que es responsable de obligaciones de vigilancia específicas.
+Nota. - En el Manual sobre procedimientos para la inspección, certificación y supervisión permanente de las operaciones (Doc. 8335) figura orientación sobre las responsabilidades del Estado del operador y el Estado de matrícula en relación con el arrendamiento, vuelos chárter y operaciones de intercambio. En el Manual sobre la aplicación del Artículo 83 bis del Convenio sobre Aviación Civil Internacional (Doc. 10059) se proporciona orientación sobre la transferencia de las responsabilidades del Estado de matrícula al Estado del operador de conformidad con dicho artículo.
+3. AUTORIZACIONES
+Una autorización faculta a un operador, propietario o piloto al mando para realizar las operaciones autorizadas. Las autorizaciones pueden ser en forma de aprobaciones específicas, aprobaciones o aceptaciones.
+3.1 Medidas de aprobación específica
+3.1.1 El término "aprobación específica" indica una medida oficial por parte de la DGAC que conlleva una adición a las especificaciones relativas a las operaciones.
+3.1.2 Las siguientes disposiciones hacen referencia explícita a la necesidad de una aprobación específica:
+(a) créditos operacionales por HUD, EVS, SVS, CVS, sistemas de aterrizaje automático;
+(b) operaciones en condiciones de baja visibilidad;
+(c) operaciones con tiempo de desviación extendido;
+(d) maletines de vuelo electrónicos;
+(e) especificaciones de navegación para operaciones PBN con AR;
+(f) separación vertical mínima reducida; y
+(g) mercancías peligrosas.
+3.1.3 El Apéndice 3 del RAC OPS 1.175 contiene un ejemplo de formato para las especificaciones relativas a las operaciones.
+3.2 Certificado de operador de servicios aéreos (COA)
+3.2.1 El COA que se requiere en la Subparte C, es un instrumento oficial. En el Apéndice 1 de la RAC-OPS 1.175, se enumera la información que ha de incluirse en el COA.
+3.2.2 Además de los ítems incluidos en el Apéndice 3 del RAC OPS 1.175, las especificaciones relativas a las operaciones podrán incluir otras aprobaciones específicas, tales como:
+(a) operaciones especiales de aeródromo (p. ej., operaciones de despegue y
+aterrizaje cortos u operaciones de aterrizaje y espera antes de la intersección);
+(b) procedimientos especiales de aproximación (p. ej., aproximación con pendiente pronunciada, aproximación con monitor de precisión en las pistas y sistema de aterrizaje por instrumentos, aproximación con monitor de precisión en las pistas y asistencia direccional de tipo localizador);
+(c) transporte monomotor de pasajeros durante la noche o en condiciones meteorológicas de vuelo por instrumentos; y
+(d) en áreas con procedimientos especiales (p. ej., operaciones en áreas que utilizan diferentes unidades de altimetría o diferentes procedimientos de reglaje del altímetro).
+3.3 Medidas para la Aprobación
+3.3.1 El término "aprobación" indica una medida más oficial por parte de la DGAC con respecto a una certificación que el término "aceptación".
+3.3.2 Disposiciones que exigen aprobación
+Las disposiciones siguientes exigen o fomentan la aprobación la DGAC. La aprobación del Estado del operador se requiere en todas las medidas de certificación que se numeran a continuación y que no van precedidas de un asterisco o más. Las medidas de certificación que figuran a continuación precedidas de un asterisco o más exigen la aprobación del Estado de matrícula (un solo asterisco o "*"), o bien del Estado de diseño (asterisco doble o "**"). No obstante, la DGAC debe adoptar las medidas necesarias para asegurar que los operadores de los cuales es responsable cumplan con las aprobaciones pertinentes expedidas por el Estado de matrícula o el Estado de diseño, además de sus propios requisitos.
+Nota. - No se incluyen aquí las disposiciones que requieren una aprobación específica. La lista de estas disposiciones figura en el párrafo 3.1.2.
+(a) **Lista de desviaciones con respecto a la configuración CDL) (Definiciones);
+(b) **Lista maestra de equipo mínimo (MMEL) (Definiciones);
+(c) Método para establecer las altitudes mínimas de vuelo;
+(d) Método para determinar los mínimos de utilización de aeródromo;
+(e) Requisitos adicionales para operaciones con un solo piloto según reglas de vuelo por instrumentos (IFR) de noche;
+(f) Gestión de fatiga;
+(g) **Documento de configuración, mantenimiento y procedimiento (CMP) de EDTO para aviones con dos motores de turbina;
+(h) Requisitos adicionales para operaciones de aviones monomotores de turbina por la noche o en condiciones meteorológicas de vuelo por instrumentos (IMC);
+(i) Lista de equipo mínimo (MEL) para cada tipo de aeronave;
+(j) Uso de HUD, EVS, SVS o CVS;
+(k) Operaciones de la navegación basada en la performance;
+(l) Operaciones MNPS;
+(m)Procedimientos para la gestión de datos electrónicos de navegación;
+(n) *Programa de mantenimiento para cada tipo de aeronave;
+(o) *Organismo de mantenimiento reconocido;
+(p) *Metodología de garantía de calidad del mantenimiento;
+(q) Programas de instrucción para los miembros de la tripulación de vuelo;
+(r) Instrucción relativa al transporte de mercancías peligrosas;
+(s) Margen adicional de seguridad operacional de aeródromos;
+(t) Zona, ruta de viajes en que se ha desempeñado el piloto al mando y competencia en aeródromos;
+(u) Empleo de dispositivos de instrucción para simulación de vuelo;
+(v) Método de control y supervisión de operaciones de vuelo;
+(w)**Tareas y plazos obligatorios de mantenimiento;
+(x) Programas de instrucción de miembros de la tripulación de cabina;
+(y) Uso de HUD, EVS, SVS o CVS.
+3.4 Disposiciones que exigen evaluación técnica
+La DGAC requiere que otras disposiciones lleven a cabo una evaluación técnica. En estas disposiciones figuran frases como "aceptable para la DGAC", "satisfactorio para la DGAC", "determinado por la DGAC", "que la DGAC considera aceptable", y "prescrito por la DGAC".
+Aunque no exigen necesariamente una aprobación, requieren que la DGAC acepte al menos el asunto en cuestión después de revisarlo o evaluarlo.
+Estas disposiciones son:
+(a) detalles de las listas de verificación de cada aeronave;
+(b) detalles sobre los sistemas de cada aeronave;
+(c) texto obligatorio del manual de operaciones;
+(d) sistemas de supervisión de tendencias en materia de motores;
+(e) equipo de aviones que vuelan con un solo piloto con reglas de vuelo por instrumentos o de noche;
+(f) requisitos de aprobación para volar en espacio aéreo RVSM;
+(g) vigilancia de la performance de mantenimiento de altitud de aviones con aprobación para volar en espacio aéreo RVSM;
+(h) procedimientos para la distribución e inserción de datos electrónicos de navegación a las aeronaves;
+(i) *responsabilidades del operador en cuanto al mantenimiento de cada aeronave;
+(j) *método de mantenimiento y visto bueno;
+(k) *manual de control de mantenimiento;
+(l) *textos obligatorios del manual de control de mantenimiento;
+(m) *notificación de la información sobre la experiencia de mantenimiento;
+(n) *aplicación de las medidas correctivas de mantenimiento necesarias;
+(o) *requisitos de modificaciones y reparaciones;
+(p) *nivel de competencia mínimo del personal de mantenimiento;
+(q) requisitos del navegante;
+(r) instalaciones de instrucción;
+(s) competencia de los instructores;
+(t) necesidad de instrucción periódica;
+(u) empleo de cursos por correspondencia y exámenes escritos;
+(v) empleo de dispositivos de instrucción para simulación de vuelo;
+(w) registros de la capacitación de la tripulación de vuelo;
+(x) representante designado del Estado del operador;
+(y) requisitos de experiencia, conocimientos recientes y formación en operaciones con un solo piloto realizadas con reglas de vuelo por instrumentos (IFR) o de noche;
+(z) *cambios del manual de vuelo;
+(aa) número mínimo de miembros de tripulación de cabina asignados a cada aeronave;
+(bb)requisitos de performance del sistema altimétrico para operaciones en espacio aéreo RVSM; Operaciones de aviones monomotores
+(cc) fiabilidad de los motores de turbina para operaciones aprobadas de aviones monomotores con turbina de noche o en condiciones meteorológicas de vuelo por instrumentos (IMC);
+(dd)sistemas y equipo;
+(ee) lista de equipo mínimo;
+(ff) información del manual de vuelo;
+(gg)notificación de sucesos;
+(hh)planificación del operador;
+(ii) experiencia, instrucción y verificación de la tripulación de vuelo;
+(jj) limitaciones en cuanto a rutas por encima de extensiones del agua; y
+(kk)certificación o validación del operador.
+3.5 MEDIDAS DE ACEPTACIÓN
+3.5.1 Aceptación
+3.5.1.1 El alcance real de la evaluación técnica que realiza la DGAC respecto de la preparación del operador para llevar a cabo algunas operaciones de vuelo debe ser mucho más amplio que aquel de las normas que requieren o suponen aprobación. Durante la certificación, el Estado debe asegurarse de que el operador cumplirá con todos los requisitos del RAC OPS 1, antes de realizar operaciones de transporte aéreo comercial internacional.
+3.5.1.2 La DGAC utiliza el concepto de "aceptación" como método oficial para garantizar que ha examinado todos los aspectos críticos de la certificación del operador antes de la expedición oficial del COA. Según este concepto, la DGAC ejerce su prerrogativa de que inspectores técnicos examinen todas las políticas y procedimientos de los operadores que repercuten en la seguridad operacional. La ejecución real de un instrumento que refleje esta aceptación (suponiendo que se expide dicho documento) puede delegarse en el inspector técnico asignado a la certificación.
+3.5.2 Informe de conformidad
+La DGAC emplea un informe de conformidad para documentar las aceptaciones que llevan a cabo con respecto a un operador en particular. Este informe es un documento que el operador presenta con información detallada de la forma en que cumplirá la reglamentación aplicable, con referencias concretas a manuales de operaciones o de mantenimiento. En el Doc. 8335 y el Manual de aeronavegabilidad (Doc. 9760), Volumen I, 6.2.1 c) 4), se hace referencia a ese tipo de documento. Este informe de conformidad debe utilizarse durante la certificación y revisarse en la medida que se requiera para reflejar las modificaciones que precise la DGAC en las políticas y procedimientos del operador.
+Seguidamente, se incluye un informe de conformidad final en los registros de certificación de la DGAC, conjuntamente con otros registros de certificación. El informe de conformidad representa un excelente método de demostrar que el operador está apropiadamente certificado con respecto a todos los requisitos normativos aplicables.
+3.5.3 Manuales de operaciones y de mantenimiento
+3.5.3.1 La DGAC establece el contenido mínimo de estos manuales. Las partes pertinentes del manual del operador que se someten a evaluación deberían señalarse en los textos de orientación técnica de la DGAC, por ejemplo, manual
+de políticas de operaciones, manual de operación de aeronaves, manual de la tripulación de cabina, guía de rutas, y manual de instrucción.
+3.5.3.2 Además de asegurar que se aborda todo el contenido necesario, la evaluación técnica por la DGAC debe considerar si las políticas y procedimientos concretos darán el resultado deseado. Por ejemplo, las especificaciones del plan de vuelo operacional deben ofrecer la orientación por pasos necesaria para cumplir con el contenido y mantenimiento de estos planes.
+3.5.3.3 Es posible que durante la certificación el evaluador técnico de la DGAC requiera también información sobre las prácticas comprobadas de la industria, como un ejemplo de plan de vuelo operacional real y completo para referencia de la tripulación de vuelo y los despachadores. Este aspecto de la evaluación técnica debe estar a cargo de inspectores con experiencia en certificación de operadores.
+El empleo de evaluadores que estén cualificados en la práctica que se va a evaluar es una consideración importante cuando se trata de la evaluación de prácticas comprobadas de la industria para una aeronave en particular, equipo específico o que tienen aplicaciones limitadas.
+4. OTRAS CONSIDERACIONES RELATIVAS A APROBACIÓN O ACEPTACIÓN
+La DGAC considera la aprobación o aceptación de ciertos documentos críticos, registros o procedimientos que se especifican en el RAC OPS 1. Se pueden citar los ejemplos siguientes:
+a) programa de análisis de datos de vuelo;
+b) método para obtener datos aeronáuticos;
+c) registros de combustible y de aceite;
+d) registros de tiempo de vuelo, períodos de servicio de vuelo y períodos de descanso;
+e) libro de mantenimiento de la aeronave;
+f) manifiesto de carga;
+g) plan operacional del vuelo;
+h) método para obtener datos meteorológicos;
+i) método para cumplir con requisitos de embarque de equipaje de mano;
+j) limitaciones operacionales de performance del avión;
+k) método de obtener y aplicar datos sobre obstáculos de aeródromos;
+l) tarjetas de información para pasajeros;
+m) contenido del libro de a bordo; y
+n) contenido del programa de instrucción sobre seguridad.
+5. VALIDACIÓN DE LAS NORMAS DE OPERACIONES
+La validez de un COA dependerá de que dicho operador demuestre que cuenta con una organización adecuada, un método de control y supervisión de las operaciones de vuelo, un programa de instrucción y arreglos de servicios de escala y de mantenimiento acordes con la naturaleza y la amplitud de las operaciones especificadas, bajo la supervisión de la DGAC. Esta supervisión exige que se establezca un sistema de supervisión permanente para asegurar el mantenimiento de las normas de operaciones. Un buen punto de partida en el desarrollo de dicho sistema consiste en requerir inspecciones, observaciones y pruebas anuales y semestrales para convalidar las medidas de aprobación específica, aprobación y aceptación de certificación requeridas.
+6. ENMIENDA DE LOS CERTIFICADOS DE OPERADOR DE SERVICIOS AÉREOS
+La certificación del operador es un procedimiento permanente. Con el tiempo, muy pocos operadores estarán satisfechos con las autorizaciones inicialmente expedidas con su COA. Las oportunidades que ofrece el mercado en evolución harán que el operador cambie modelos de aeronave y pida aprobación en nuevas áreas operacionales que requieren nuevas capacidades. La DGAC debe pedir evaluaciones técnicas adicionales antes de expedir instrumentos oficiales or
+escrito para aprobar cambios del COA original y otras autorizaciones. Cuando sea posible, en cada solicitud debe utilizarse la autorización original como base para determinar el alcance de la evaluación inminente de la DGAC antes de expedir el instrumento oficial.
+(*)(Así reformado punto CA OPS 1.175 Certificación y Vigilancia del Operador aéreo anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 CA OPS 1.175(d) (2) SEDE PRINCIPAL.
 (Ver RAC-OPS 1.175(d) (2))
 Esta CA es un método aceptable de cumplimiento sobre la sede principal del operador.
 La RAC-OPS 1.175(d) (2) requiere que el operador tenga su sede principal ubicada en el Estado responsable de la emisión del COA.
-A fin de asegurar la adecuada jurisdicción sobre el operador por parte del Estado, el término “sede principal” se interpreta como el Estado en el que están ubicadas las oficinas administrativas centrales, la gerencia financiera, operacional y de mantenimiento.
+A fin de asegurar la adecuada jurisdicción sobre el operador por parte del Estado, el término "sede principal" se interpreta como el Estado en el que están ubicadas las oficinas administrativas centrales, la gerencia financiera, operacional y de mantenimiento.
 CA OPS 1.175(q) COMBINACIÓN DE RESPONSABILIDADES ENTRE RESPONSABLES NOMINADOS.
 (Ver RAC-OPS 1.175 (q))
 Esta CA es un método aceptable de cumplimiento sobre la combinación de responsabilidad entre Responsables Nominados.
@@ -6111,13 +6373,13 @@ Esta CA es un método aceptable de cumplimiento sobre la combinación de respons
 (3) La capacidad de un individuo para cumplir con sus responsabilidades dependerá, en primera instancia, del tamaño de la operación. Sin embargo, la complejidad de la organización o de la operación puede impedir, o limitar, combinaciones de puestos, que en otras circunstancias pueden ser aceptables.
 (4) En la mayoría de los casos las responsabilidades de un responsable nominado corresponderán a un único individuo. Por otro lado, en el área de operaciones terrestres, puede ser aceptable que estas responsabilidades sean divididas, siempre que las responsabilidades de cada individuo afectado estén claramente definidas.
 (5) La intención de la norma OPS 1.175 no es la de establecer un modelo organizativo dentro de la estructura de un operador, ni el de impedir que la DGAC requiera una cierta jerarquización en la estructura antes de considerar que la misma es adecuada.
-(6) En el contexto de la RAC-OPS 1.175 (q), la expresión “dedicación completa”, indica un empleado que labora por no menos de 35 horas por semana, excluyendo los periodos de vacaciones.
+(6) En el contexto de la RAC-OPS 1.175 (q), la expresión "dedicación completa", indica un empleado que labora por no menos de 35 horas por semana, excluyendo los periodos de vacaciones.
 CA OPS 1.185(b) DETALLES DEL MANUAL DE CONTROL DE MANTENIMIENTO.
 (Ver RAC-OPS 1.185(b)).
 Esta CA es un método aceptable de cumplimiento sobre el MGM.
 (1) El manual MGM (Manual General de Mantenimiento) de la organización MRAC-145 debe reflejar los detalles de todos los subcontratos
 (2) Un cambio en el tipo de avión, o de la organización de mantenimiento MRAC-145 puede requerir el envío a la Autoridad de una enmienda aceptable al manual MGM de la organización MRAC-145.
-SUBPARTE D – PROCEDIMIENTOS OPERACIONALES
+SUBPARTE D - PROCEDIMIENTOS OPERACIONALES
 CA OPS 1.195 CONTROL OPERACIONAL.
 (Ver RAC-OPS 1.195(a))
 Esta CA es un método aceptable de cumplimiento sobre el control operacional.
@@ -6170,8 +6432,8 @@ CA OPS 1.195(g) INSTRUCCIONES OPERACIONALES DURANTE EL VUELO
 Cuando no sea posible llevar a efecto tal coordinación, las instrucciones sobre operaciones no eximen al piloto de la responsabilidad de obtener la debida autorización de la dependencia ATS, si corresponde, antes de alterar el plan de vuelo.
 CA OPS 1.196 Seguimiento de aeronaves
 En la Circular 347, Normal Aircraft Tracking Implementation Guidelines (Directrices para la implantación del seguimiento normal de aeronaves) se proporciona orientación acerca de las capacidades de seguimiento de aeronaves.
-Nota 1. — Para los fines del seguimiento de aeronaves, el área oceánica es el espacio aéreo por encima de las aguas que están fuera del territorio de un Estado.
-Nota 2.— Las disposiciones sobre la coordinación entre el explotador y los servicios de tránsito aéreo en lo relativo a los mensajes de notificación de la posición figuran en el Capítulo 2 del Anexo 11.
+Nota 1. - Para los fines del seguimiento de aeronaves, el área oceánica es el espacio aéreo por encima de las aguas que están fuera del territorio de un Estado.
+Nota 2.- Las disposiciones sobre la coordinación entre el explotador y los servicios de tránsito aéreo en lo relativo a los mensajes de notificación de la posición figuran en el Capítulo 2 del Anexo 11.
 CA OPS 1.210(a) ESTABLECIMIENTO DE PROCEDIMIENTOS.
 (Ver RAC-OPS 1.210(a))
 Esta CA es un método aceptable de cumplimiento sobre el establecimiento de procedimientos.
@@ -6195,7 +6457,7 @@ ELEMENTO | Antes del Despegue | En Vuelo | Antes del Aterrizaje | Después del A
 6 | Asegurar cocinas (galleys) y guardar el equipaje ( RAC-OPS 1.325). | x | | x |
 7 | Armado de toboganes | x | | x |
 8 | Información de seguridad a los pasajeros (RAC-OPS 1.285). | x | x | x | x
-9 | Informar a la tripulación de vuelo “Cabina asegurada” | x | Si se requiere | x |
+9 | Informar a la tripulación de vuelo "Cabina asegurada" | x | Si se requiere | x |
 10 | Operación de las luces de cabina | x | Si se requiere | x |
 11 | Tripulación de cabina en sus estaciones para el despegue y aterrizaje (RAC- OPS 1.310, RAC-OPS 1.1210(c)/ CA OPS 1.1210(c)). | x | | x | x
 12 | Vigilancia de la cabina de pasajeros | x | x | x | x
@@ -6244,14 +6506,14 @@ CA OPS 1.245(a) (2) OPERACIÓN DE AVIONES BIMOTORES TURBOJET QUE NO CUMPLEN ETOP
 (2))
 Esta CA es un método aceptable de cumplimiento sobre operación ETOPS.
 1. Tal como se establece en la RAC-OPS 1.245(a) (2) un operador no puede operar un avión bimotor turbojet de MAPSC de 19 o menos, y un MTOM de menos de 45.360 Kg., a más distancia de 120 minutos de un aeródromo adecuado a la velocidad de crucero con un motor inoperativo, calculada de acuerdo a la RAC-OPS 1.245(b), a menos que esté aprobado (Aprobación ETOPS) por la DGAC. Este límite de 120 minutos puede ser excedido en no más de 60 minutos. Para poder aprobar operaciones entre 120 y 180 minutos, se debe tener en cuenta el diseño y capacidades del avión (como se detalla posteriormente) y la experiencia del operador en este tipo de operaciones. El operador debe garantizar que los siguientes elementos han sido evaluados. Cuando sea necesario, se incluirá la información pertinente en el Manual de Operaciones y el Manual de General de Mantenimiento del Operador (MGM).
-NOTA La mención en el párrafo 1 anterior al “diseño del avión” no implica ningún requisito adicional de aprobación del diseño de tipo (excepto los requisitos aplicables del Certificado de Tipo original) antes de que la DGAC permita operaciones más allá de 120 minutos.
+NOTA La mención en el párrafo 1 anterior al "diseño del avión" no implica ningún requisito adicional de aprobación del diseño de tipo (excepto los requisitos aplicables del Certificado de Tipo original) antes de que la DGAC permita operaciones más allá de 120 minutos.
 2. Capacidades de los sistemas. - Los aviones deben haber sido certificados FAR/JAR- 25, según corresponda. Con respecto a las capacidades de los sistemas del avión, el objetivo es que el avión sea capaz de una desviación segura desde la máxima distancia de desviación, con especial atención a la operación con un motor inoperativo o con sistemas con capacidades degradadas. Además, el operador debe considerar las capacidades de los siguientes sistemas de apoyar este tipo de desviación:
 a. Sistema de propulsión: La planta de potencia del avión debe cumplir los requisitos aplicables establecidos en FAR/JAR-25, JAR-E o equivalente, relativos a la certificación de tipo del motor, instalación y operación de sistemas. Además, los estándares de performance establecidos por la DGAC a la fecha de la certificación del motor, estos deben cumplir con todos los estándares de seguridad obligatorios posteriores establecidos por la DGAC, incluyendo aquellos necesarios para mantener un nivel aceptable de confiabilidad. Adicionalmente, debe prestarse especial atención a los efectos de la operación con un solo motor durante gran tiempo (p.ej. los efectos de la demanda de mayor potencia tanto de sangrado del motor como eléctrica).
 b. Sistemas del fuselaje: Con respecto a la potencia eléctrica, deben estar disponibles tres o más fuentes de potencia eléctrica independientes y fiables (tal y como se definen en FAR/JAR-25), cada una de las cuales debería ser capaz de alimentar todos los servicios esenciales (Ver Apéndice 1). Para operaciones con un solo motor, la potencia remanente (eléctrica, hidráulica, neumática) debe continuar estando disponible a los niveles necesarios que permitan un vuelo y aterrizaje seguro. Como mínimo, después del fallo de dos de las tres fuentes de potencia, la fuente remanente debe ser capaz de proporcionar energía para todos los elementos necesarios durante el tiempo que dure cualquier desviación. Si una o más de las fuentes de energía eléctrica requeridas son suministrados por el APU, sistema hidráulico,Generador de Impacto (Air Drive Generator (ADG)), o Turbina de Impacto (Ram Air Turbine (RAT)), deben aplicarse, según corresponda, los siguientes criterios:
 i Garantizar la confiabilidad de la energía hidráulica (Hydraulic Motor Generator), puede ser necesario proporcionar dos o más fuentes de energía independientes.
 ii Si están instaladas las ADG/RAT, no deben requerir energía suministrada por el motor para desplegarse.
 iii El APU debería cumplir los criterios del subpárrafo (c) siguiente
-c APU: Si se requiere el APU para operación de alcance extendido, debe estar certificado como “APU esencial” y cumplir los requisitos aplicables del FAR/JAR-25 (Subparte J-APU Partes A y B, o equivalente).
+c APU: Si se requiere el APU para operación de alcance extendido, debe estar certificado como "APU esencial" y cumplir los requisitos aplicables del FAR/JAR-25 (Subparte J-APU Partes A y B, o equivalente).
 d Sistema de suministro de combustible: Debe evaluarse la capacidad que tiene el sistema de suministro de combustible de proporcionar el combustible suficiente para el tiempo total de desviación, teniendo en cuenta aspectos tales como la alimentación de combustible (booster) y transferencia (transfer) de combustible.
 3. Eventos en el motor y acciones correctivas
 a Debe informarse al fabricante del avión y motor, así como a la Autoridad de la DGAC, de todos los eventos del motor y de sus horas de operación.
@@ -6261,7 +6523,7 @@ d La evaluación o valoración estadística, cuando esté disponible, puede dar 
 Nota: Pueden considerarse como eventos de la planta de potencia los siguientes: paradas de motor (tanto en tierra como en vuelo), excluyendo aquellas realizadas con fines de entrenamiento, incluyendo apagado (flameout), situaciones en las que no se alcance el empuje pretendido, o cuando la tripulación ha tenido que actuar para reducir el empuje por debajo del nivel normal por cualquier motivo, y desmontajes no programados.
 4. Mantenimiento: Los requisitos de mantenimiento del operador deben tener en cuenta lo siguiente:
 a Puesta en servicio: Debe reflejarse en el Manual General de Procedimientos de Mantenimiento del Operador (MGM), la necesidad de realizar una inspección previa al comienzo de un vuelo de alcance extendido, adicional a la inspección prevuelo requerida por la RAC-OPS 1.890(a) (1). Estas inspecciones deben ser realizadas y certificadas por una organización de mantenimiento adecuadamente aprobada/aceptada de acuerdo a la MRAC- 145, o por un miembro de la tripulación de vuelo entrenado específicamente para ello, a fin de garantizar que todas las acciones de mantenimiento han sido finalizadas y los niveles de todos los fluidos están de acuerdo a lo establecido para la duración prevista del vuelo.
-b Programas de consumo de aceite del motor: Estos programas deben estar diseñados para soportar el “seguimiento de tendencias de la condición del motor” (Engine Condition Trend Monitoring - ECTM) (Ver párrafos siguientes).
+b Programas de consumo de aceite del motor: Estos programas deben estar diseñados para soportar el "seguimiento de tendencias de la condición del motor" (Engine Condition Trend Monitoring - ECTM) (Ver párrafos siguientes).
 c Programa de seguimiento de tendencias de la condición del motor. (ECTM): Debe establecerse un programa de este tipo para cada motor. Programa que supervise los parámetros de performance del motor y las tendencias de degradación, de manera que indique qué acciones de mantenimiento deben ser tomadas, antes de que se produzca un descenso significativo en el performance o fallos mecánicos.
 d Acuerdos para garantizar que todas las acciones correctivas requeridas por la Autoridad del Estado de diseño de tipo sean realizadas.
 5. Entrenamiento de la tripulación de vuelo: El entrenamiento de la tripulación de vuelo para este tipo de operación debe poner especial énfasis, además de lo establecido en la Subparte N de la RAC-OPS 1, en los siguientes elementos:
@@ -6295,8 +6557,10 @@ Aproximación de precisión Cat I (ILS, MLS) | Mínimos de aproximación de no p
 Aproximación de no precisión | El mínimo de aproximación de no precisión más 300 metros/1000 pies, o el mínimo circulando, lo que sea menor | El mínimo circulando, o el mínimo de aproximación de no precisión más 300 metros/1000 pies, lo que sea mayor
 Aproximación circulando | Mínimo circulando
 CA OPS 1.246 (a) ORIENTACIÓN SOBRE LOS VUELOS DE MÁS DE 60 MINUTOS DE AVIONES CON MOTORES DE TURBINA HASTA UN AERÓDROMO DE ALTERNATIVA EN RUTA, COMPRENDIDAS LAS OPERACIONES CON TIEMPO DE DESVIACIÓN EXTENDIDO (EDTO)
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 1. Introducción
-1.1 La finalidad de esta CA es proporcionar orientación sobre las disposiciones generales relativas a los vuelos de más de 60 minutos de aviones con motores de turbina hasta un aeródromo de alternativa en ruta y operaciones con tiempo de desviación extendido, que figuran en la RAC-OPS 1.246. Esta orientación ayudará también a la DGAC en el establecimiento de un umbral de tiempo y la aprobación del tiempo de desviación máximo para un operador determinado con un tipo de avión específico. Las disposiciones en la RAC OPS 1.246, se dividen en:
+1.1 La finalidad de esta CA es proporcionar orientación sobre las disposiciones generales relativas a los vuelos de más de 60 minutos de aviones con motores de turbina hasta un aeródromo de alternativa en ruta y operaciones con tiempo de desviación extendido, que figuran en la RAC-OPS 1.246. Esta orientación ayudará también a la DGAC en el establecimiento de un umbral de tiempo y la aprobación del tiempo de desviación máximo para un operador determinado con un tipo de avión específico, además en el Anexo 6 Parte I Adjunto C y en el Manual de operaciones con tiempo de desviación extendido (Doc. 10085) contienen orientación acerca del cumplimiento de los requisitos de esta disposición para el establecimiento de un valor apropiado del umbral de tiempo, la aprobación específica de operaciones con tiempo de desviación extendido, sobre las condiciones que deben aplicarse al convertir los tiempos de desviación en distancias. Las disposiciones en la RAC OPS 1.246, se dividen en:
+(Así reformado el punto 1.1) anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 a) las disposiciones básicas que se aplican a todos los aviones en vuelos de más de 60 minutos hasta un aeródromo de alternativa en ruta; y
 b) las disposiciones para volar más allá del umbral de tiempo y hasta un tiempo de desviación máximo, con la aprobación de la DGAC, que pueden ser diferentes para cada combinación de operador y tipo de avión.
 En esta CA se proporciona orientación sobre los medios que permiten lograr el nivel de seguridad operacional requerido.
@@ -6306,7 +6570,6 @@ En esta CA se proporciona orientación sobre los medios que permiten lograr el n
 2. Vuelos de más de 60 minutos de aviones con motores de turbina hasta un aeródromo de alternativa en ruta
 2.1 Generalidades
 2.1.1 Todas las disposiciones relativas a vuelos de más de 60 minutos de duración de aviones con motores de turbina hasta un aeródromo de alternativa en ruta se aplican igualmente a las operaciones con tiempo de desviación extendido (EDTO). La Figura D-1 ilustra en forma genérica la integración de vuelos de más de 60 minutos a un aeródromo de alternativa en ruta y EDTO.
-[imagen]
 2.1.2 Para la aplicación de los requisitos de la RAC OPS 1.246, relativos a aviones con motores de turbina, debería entenderse que:
 a) control de operaciones se refiere a la responsabilidad que corresponde al operador con respecto al inicio, continuación, término o desviación de un vuelo;
 b) procedimientos de despacho de los vuelos se refiere al método de control y supervisión de las operaciones de vuelo. Esto no supone un requisito específico de despachadores de vuelo titulares de licencia o un sistema de seguimiento del vuelo completo;
@@ -6315,14 +6578,12 @@ d) programa de instrucción se refiere a la instrucción para pilotos y encargad
 2.1.3 Para los aviones con motores de turbina que vuelan durante más de 60 minutos hasta un aeródromo de alternativa en ruta no se requiere una aprobación adicional específica de la DGAC, a menos que se trate de operaciones con tiempo de desviación extendido.
 2.2 Condiciones que deben aplicarse al convertir tiempo de desviación en distancia
 2.2.1 A los fines de esta orientación, velocidad aprobada con un motor inactivo (OEI) o velocidad aprobada con todos los motores en marcha (AEO) se refiere a una velocidad dentro de las condiciones de vuelo certificadas del avión.
-2.2.2 Determinación de la distancia a 60 minutos de vuelo — aviones con dos motores de turbina
+2.2.2 Determinación de la distancia a 60 minutos de vuelo - aviones con dos motores de turbina
 2.2.2.1 Para determinar si un punto en la ruta está a más de 60 minutos respecto de un aeródromo de alternativa en ruta, el operador debería seleccionar una velocidad aprobada OEI. La distancia se calcula desde el punto de la desviación seguido de vuelo en crucero durante 60 minutos, en condiciones ISA y de aire en calma, como se ilustra en la Figura D- 2. Para el cálculo de las distancias, puede considerarse la deriva hacia abajo.
-[imagen]
-2.2.3 Determinación de la distancia a 60 minutos de vuelo — aviones con más de dos motores de turbina
+2.2.3 Determinación de la distancia a 60 minutos de vuelo - aviones con más de dos motores de turbina
 2.2.3.1 Para determinar si un punto en la ruta está a más de 60 minutos respecto de un aeródromo de alternativa en ruta, el operador debería seleccionar una velocidad aprobada AEO. La distancia se calcula desde el punto de la desviación seguido de vuelo en crucero durante 60 minutos, en condiciones ISA y de aire en calma, como se ilustra en la Figura D- 3.
 2.3 Instrucción
 2.3.1 Los programas de instrucción deberían asegurar el cumplimiento de los requisitos del Capítulo 9, 9.4.3.2, incluyendo, entre otras cosas, calificación de rutas, preparación de vuelos, concepto de operaciones con tiempo de desviación extendido y criterios para las desviaciones.
-[imagen]
 2.4 Requisitos de despacho de los vuelos y operacionales
 2.4.1 Al aplicar los requisitos generales de despacho de los vuelos de la Sub parte D de la RAC OPS 1, deberían considerarse en particular las condiciones que puedan prevalecer en cualquier momento durante el vuelo de más de 60 minutos hasta un aeropuerto de alternativa en ruta, p. ej., degradación de los sistemas y altitud de vuelo reducida. Para cumplir con los requisitos de la RAC OPS 1.246, deberían considerarse, como mínimo, los siguientes aspectos:
 (a) identificación de los aeródromos de alternativa en ruta;
@@ -6337,7 +6598,7 @@ d) programa de instrucción se refiere a la instrucción para pilotos y encargad
 2.4.2 Además, para las operaciones que realizan los aviones con dos motores de turbina se requiere que antes de la salida y durante el vuelo, las condiciones meteorológicas en los aeródromos de alternativa en ruta identificados correspondan o sean superiores a los mínimos de utilización de aeródromo requeridos para el vuelo en la hora prevista de utilización.
 2.5 Aeródromos de alternativa en ruta
 2.5.1 Los aeródromos a los que podría dirigirse una aeronave cuando es necesario realizar una desviación mientras se encuentra en ruta, que cuentan con las instalaciones y servicios necesarios, que tienen la capacidad de satisfacer los requisitos de performance de la aeronave y que se prevé que estarán disponibles para ser utilizados cuando sea necesario, deben poder identificarse en cualquier momento durante el vuelo de más de 60 minutos hasta el aeródromo de alternativa en ruta.
-Nota. — Los aeródromos de alternativa en ruta pueden ser también los aeródromos de despegue o de destino.
+Nota. - Los aeródromos de alternativa en ruta pueden ser también los aeródromos de despegue o de destino.
 3. Requisitos de las operaciones con tiempo de desviación extendido (EDTO)
 3.1 Concepto básico
 3.1.1 Además de las disposiciones de la Sección 2, en esta sección se abordan las disposiciones que se aplican a los vuelos de los aviones con dos o más motores de turbina en que el tiempo de desviación hasta un aeródromo de alternativa en ruta es mayor que el umbral de tiempo establecido por la DGAC (operaciones con tiempo de desviación extendido).
@@ -6366,8 +6627,7 @@ sistema significativo para EDTO, si corresponde, indicada en el manual de vuelo 
 3.2 EDTO para aviones con más de dos motores de turbina
 3.2.1 Generalidades
 3.2.1.1 Además de las disposiciones de las Secciones 2 y 3.1 de esta CA, en esta sección se abordan las disposiciones que se aplican a los aviones con más de dos motores de turbina, en particular (véase la Figura D-4).
-Nota. — Es posible que, en algunos documentos, al referirse a EDTO diga ETOPS.
-[imagen]
+Nota. - Es posible que, en algunos documentos, al referirse a EDTO diga ETOPS.
 3.2.2 Principios operacionales y de planificación de desviaciones
 3.2.2.1 Al planificar o realizar operaciones con tiempo de desviación extendido, el operador y el piloto al mando deberían asegurarse de que:
 a) la lista de equipo mínimo, las instalaciones y servicios de comunicaciones y navegación, la reserva de combustible y aceite, los aeródromos de alternativa en ruta y la performance del avión, se consideren apropiadamente;
@@ -6383,7 +6643,7 @@ c) en el caso de una sola falla o de fallas múltiples de un sistema o sistemas 
 (d) combustible para tener en cuenta espera, y aproximación y aterrizaje por instrumentos en el aeródromo de alternativa en ruta;
 (e) combustible para tener en cuenta el deterioro en el rendimiento del consumo de combustible en crucero; y
 (f) combustible para tener en cuenta utilización del APU (de ser necesario).
-Nota. — En el Manual de planificación de vuelo y gestión del combustible de la OACI (Doc. 9976) se proporciona orientación sobre la planificación requerida con respecto al combustible crítico para EDTO.
+Nota. - En el Manual de planificación de vuelo y gestión del combustible de la OACI (Doc. 9976) se proporciona orientación sobre la planificación requerida con respecto al combustible crítico para EDTO.
 3.2.2.3 Para determinar si el aterrizaje en un aeródromo determinado es la medida más apropiada, pueden considerarse los factores siguientes:
 (a) configuración, masa, estado de los sistemas y combustible restante del avión;
 (b) condiciones del viento y meteorológicas en ruta a la altitud de desviación, altitudes mínimas en ruta y consumo de combustible hasta el aeródromo de alternativa en ruta;
@@ -6413,7 +6673,7 @@ Nota. — En el Manual de planificación de vuelo y gestión del combustible de 
 3.2.6.1 Además de las disposiciones sobre aeródromos de alternativa en ruta, descritas en 2.5, se aplica lo siguiente:
 (a) para la planificación de la ruta, los aeródromos de alternativa en ruta identificados deben estar emplazados a una distancia dentro del tiempo de desviación máximo respecto de la ruta y deben poder utilizarse cuando sea necesario; y
 (b) en las operaciones con tiempo de desviación extendido, antes de que el avión cruce su umbral de tiempo durante el vuelo, debería haber siempre un aeródromo de alternativa en ruta dentro del tiempo de desviación máximo aprobado cuyas condiciones correspondan o sean superiores a los mínimos de utilización de aeródromo establecidos por el operador para el vuelo durante el tiempo previsto de utilización. Si se identifican condiciones, p. ej., condiciones meteorológicas inferiores a los mínimos para el aterrizaje que pudieran impedir una aproximación y un aterrizaje seguros en ese aeródromo durante el tiempo de utilización previsto, debería determinarse la adopción de medidas alternativas, tales como la selección de otro aeródromo de alternativa en ruta, dentro del tiempo de desviación máximo aprobado del operador.
-Nota. — Los aeródromos de alternativa en ruta pueden ser también los aeródromos de despegue o de destino.
+Nota. - Los aeródromos de alternativa en ruta pueden ser también los aeródromos de despegue o de destino.
 3.2.7 Procedimiento de aprobación operacional
 3.2.7.1 Para otorgar a un operador con un tipo de avión específico la aprobación para que realice operaciones con tiempo de desviación extendido, la DGAC debe establecer un umbral de tiempo apropiado y un tiempo de desviación máximo y, además de los requisitos ya establecidos en esta DGAC, asegurarse de que:
 (a) se otorgue una aprobación operacional específica (por la DGAC);
@@ -6426,17 +6686,15 @@ Nota. — Los aeródromos de alternativa en ruta pueden ser también los aeródr
 2) toda otra condición que la DGAC considere que constituye un riesgo equivalente para la aeronavegabilidad y la actuación.
 3.2.8 Condiciones que deben aplicarse al convertir tiempo de desviación en distancia para la determinación de la zona geográfica más allá del umbral y dentro de la distancia de desviación máxima
 3.2.8.1 Para los fines de esta orientación, la velocidad aprobada AEO es toda velocidad con todos los motores en marcha dentro de las condiciones de vuelo certificadas del avión.
-Nota. — Véase 3.2.5.2.2 relativo a consideraciones operacionales.
+Nota. - Véase 3.2.5.2.2 relativo a consideraciones operacionales.
 3.2.8.2 Al presentar una solicitud relativa a EDTO, el operador debe identificar y la DGAC debe aprobar la(s) velocidad(es) AEO que se utilizará(n) para calcular el umbral y las distancias de desviación máximas, considerando las condiciones ISA y de aire en calma. La velocidad que se utilizará para calcular la distancia de desviación máxima puede ser diferente de la velocidad utilizada para determinar los umbrales de 60 minutos y EDTO.
 3.2.8.3 Determinación del umbral EDTO
 3.2.8.3.1 Para determinar si un punto de la ruta está más allá del umbral EDTO para llegar a un aeródromo de alternativa en ruta, el operador debería utilizar la velocidad aprobada (véase
 3.2.8.1 y 3.2.8.2). La distancia se calcula desde el punto de la desviación seguido de vuelo en crucero para el umbral de tiempo, según lo determine la DGAC, como se ilustra en la Figura D-5.
-[imagen]
 3.2.8.4 Determinación de la distancia correspondiente al tiempo de desviación máximo
 3.2.8.4.1 Para determinar la distancia correspondiente al tiempo de desviación máximo para llegar a un aeródromo de alternativa en ruta, el operador debería utilizar la velocidad aprobada (véase 3.2.8.1 y 3.2.8.2). La distancia se calcula desde el punto de desviación seguido de vuelo en crucero para el tiempo de desviación máximo aprobado por la DGAC, según se ilustra en la Figura D-6.
 3.2.9 Requisitos de certificación de la aeronavegabilidad para las operaciones con tiempo de desviación extendido que sobrepasan el umbral de tiempo
 3.2.9.1 No hay requisitos adicionales de certificación de la aeronavegabilidad EDTO para los aviones con más de dos motores.
-[imagen]
 3.2.10 Mantenimiento de la aprobación operacional
 3.2.10.1 Para mantener el nivel requerido de seguridad operacional en las rutas en que se permite que estos aviones vuelen más allá del umbral de tiempo establecido, es necesario que:
 (a) se cumplan los requisitos de despacho de vuelo específicos;
@@ -6477,7 +6735,7 @@ Una vez que el operador adquiera experiencia con esta operación y los procedimi
 el aeródromo de alternativa en ruta;
 (e) combustible para tener en cuenta el deterioro en el rendimiento del consumo de combustible en crucero; y
 (f) combustible para tener en cuenta utilización del APU (de ser necesario).
-Nota. — En el Manual de planificación de vuelo y gestión del combustible de la OACI (Doc. 9976) se proporciona orientación sobre la planificación requerida con respecto al combustible crítico para EDTO.
+Nota. - En el Manual de planificación de vuelo y gestión del combustible de la OACI (Doc. 9976) se proporciona orientación sobre la planificación requerida con respecto al combustible crítico para EDTO.
 3.3.2.3 Para determinar si el aterrizaje en un aeródromo determinado es la medida más apropiada, pueden considerarse los factores siguientes:
 (a) configuración, masa, estado de los sistemas y combustible restante del avión;
 (b) condiciones del viento y meteorológicas en ruta a la altitud de desviación, altitudes mínimas en ruta y consumo de combustible hasta el aeródromo de alternativa en ruta;
@@ -6501,7 +6759,7 @@ Nota. — En el Manual de planificación de vuelo y gestión del combustible de 
 3.3.5 Sistemas significativos para EDTO
 3.3.5.1 Además de las disposiciones de 3.1.1, en esta sección se abordan las disposiciones específicas para los aviones con dos motores de turbina.
 3.3.5.1.1 La fiabilidad del sistema de propulsión para la combinación avión/motor que se está certificando es tal que el riesgo de que fallen dos motores simultáneamente a raíz de causas independientes se evalúa según lo dispuesto en el Manual de aeronavegabilidad de la OACI (Doc. 9760) y se considera aceptable para cubrir el tiempo de desviación que se aprueba.
-Nota. — En algunos documentos, el término ETOPS se refiere a EDTO.
+Nota. - En algunos documentos, el término ETOPS se refiere a EDTO.
 3.3.5.2 Consideración de las limitaciones de tiempo
 3.3.5.2.1 Para todas las operaciones por encima del umbral EDTO, determinado por la DGAC, el operador debe considerar, al despachar el vuelo y de acuerdo con lo que se describe a continuación, la capacidad certificada para EDTO del avión y la limitación de tiempo más restrictiva de un sistema significativo para EDTO, si corresponde, indicada en el manual de vuelo del avión (directamente o por referencia)y correspondiente a ese vuelo en particular.
 3.3.5.2.2 El operador debe verificar que desde cualquier punto en la ruta, el tiempo de desviación máximo a la velocidad aprobada según se describe en 3.3.8.2, no supere la limitación de tiempo más restrictiva de un sistema significativo para EDTO, excepto por el sistema de supresión de incendio en la carga, con una reducción de un margen de seguridad operacional, habitualmente de 15 minutos, según especificación de la DGAC.
@@ -6513,7 +6771,7 @@ Nota. — En algunos documentos, el término ETOPS se refiere a EDTO.
 (a) para la planificación de la ruta, los aeródromos de alternativa en ruta identificados, que puedan utilizarse de ser necesario, deben estar emplazados a una distancia dentro del tiempo de desviación máximo respecto de la ruta; y
 (b) en las operaciones con tiempo de desviación extendido, antes de que el avión cruce su umbral de tiempo durante el vuelo, debería haber siempre un aeródromo de alternativa en ruta dentro del tiempo de desviación máximo aprobado cuyas condiciones correspondan o sean superiores a los mínimos de utilización de aeródromo establecidos por el operador para el vuelo durante el tiempo previsto de utilización. Si se identifican condiciones, p. ej., condiciones meteorológicas inferiores a los mínimos para el aterrizaje, que pudieran impedir una aproximación y un aterrizaje seguros en ese aeródromo durante el tiempo de utilización previsto, debería determinarse la adopción de medidas alternativas, tales como la selección de otro aeródromo de alternativa en ruta, dentro del tiempo de desviación máximo aprobado del operador.
 3.3.6.2 Durante la preparación del vuelo y toda la duración del mismo, debería proporcionarse a la tripulación de vuelo la información más reciente sobre los aeródromos de alternativa en ruta identificados, incluyendo la situación operacional y las condiciones meteorológicas.
-Nota. — Los aeródromos de alternativa en ruta pueden ser también los aeródromos de despegue o de destino.
+Nota. - Los aeródromos de alternativa en ruta pueden ser también los aeródromos de despegue o de destino.
 3.3.7 Procedimiento de aprobación operacional
 3.3.7.1 Para otorgar a un operador con un tipo de avión específico la aprobación para que realice operaciones con tiempo de desviación extendido, la DGAC debe establecer un umbral de tiempo apropiado y aprobar un tiempo de desviación máximo y, además de los requisitos ya establecidos en esta DGAC, asegurarse de que:
 (a) se otorgue una aprobación operacional específica (por la DGAC);
@@ -6528,21 +6786,19 @@ Nota. — Los aeródromos de alternativa en ruta pueden ser también los aeródr
 (4) toda otra condición que la DGAC considere que constituye un riesgo equivalente para la aeronavegabilidad y la actuación.
 3.3.8 Condiciones que deben aplicarse al convertir tiempo de desviación en distancia para la determinación de la zona geográfica más allá del umbral y dentro de las distancias de desviación máximas
 3.3.8.1 A los fines de esta orientación, la velocidad aprobada OEI es toda velocidad con un motor inactivo dentro de las condiciones de vuelo certificadas del avión.
-Nota. — Véase 3.3.5.2.2 relativo a las consideraciones operacionales.
+Nota. - Véase 3.3.5.2.2 relativo a las consideraciones operacionales.
 3.3.8.2 Al presentar una solicitud relativa a EDTO, el operador debe identificar y la DGAC debe aprobar la(s) velocidad(es) OEI, considerando las condiciones ISA y de aire en calma, que se utilizará(n) para calcular el umbral y las distancias de desviación máximas. La velocidad en cuestión que se utilizará para calcular la distancia de desviación máxima debe ser igual a la que se utilizó para determinar la reserva de combustible para desviaciones OEI.
 Esta velocidad puede ser diferente de la velocidad utilizada para determinar los umbrales de 60 minutos y EDTO.
 3.3.8.3 Determinación del umbral EDTO
 3.3.8.3.1 Para determinar si un punto en la ruta está más allá del umbral EDTO para llegar a un aeródromo de alternativa en ruta, el operador debería utilizar la velocidad aprobada (véase
 3.3.8.1 y 3.3.8.2). La distancia se calcula desde el punto de la desviación seguido de vuelo en crucero para el umbral de tiempo, según lo determine la DGAC y como se ilustra en la Figura D-8. Para el cálculo de las distancias, puede considerarse la deriva hacia abajo.
-[imagen]
 3.3.8.4 Determinación de la distancia correspondiente al tiempo de desviación máximo
 3.3.8.4.1 Para determinar la distancia correspondiente al tiempo de desviación máximo para llegar a un aeródromo de alternativa en ruta, el operador debería utilizar la velocidad aprobada (véase 3.3.8.1 y 3.3.8.2). La distancia se calcula desde el punto de desviación seguido de vuelo en crucero para el tiempo de desviación máximo aprobado por la DGAC, según se ilustra en la Figura D-9. Para el cálculo de las distancias, puede considerarse la deriva hacia abajo.
-[imagen]
 3.3.9 Requisitos de certificación de la aeronavegabilidad para las operaciones con tiempo de desviación extendido que sobrepasan el umbral de tiempo
 3.3.9.1 Durante el procedimiento de certificación de la aeronavegabilidad para un tipo de avión que realizará operaciones con tiempo de desviación extendido, debería prestarse atención especial a asegurar el mantenimiento del nivel requerido de seguridad operacional en las condiciones que puedan experimentarse durante dichos vuelos, p. ej., vuelo por períodos prolongados después de falla de un motor y/o de sistemas significativos para EDTO de los aviones. En el manual de vuelo del avión, el manual de mantenimiento, el documento EDTO de configuración, mantenimiento y procedimiento (CMP) u otro documento apropiado, debería incorporarse la información o los procedimientos específicamente relacionados con las operaciones con tiempo de desviación extendido.
 3.3.9.2 Los fabricantes de aviones deberían proporcionar información en la que se especifiquen los sistemas significativos para EDTO de los aviones y, cuando corresponda, los factores de limitación de tiempo asociados a dichos sistemas.
-Nota 1. — En el Manual de aeronavegabilidad de la OACI (Doc. 9760) figuran los criterios relativos a la actuación y fiabilidad de los sistemas de avión para las operaciones con tiempo de desviación extendido.
-Nota 2. — En algunos documentos, el término ETOPS se refiere a EDTO.
+Nota 1. - En el Manual de aeronavegabilidad de la OACI (Doc. 9760) figuran los criterios relativos a la actuación y fiabilidad de los sistemas de avión para las operaciones con tiempo de desviación extendido.
+Nota 2. - En algunos documentos, el término ETOPS se refiere a EDTO.
 3.3.10 Mantenimiento de la aprobación operacional
 3.3.10.1 Para mantener el nivel requerido de seguridad operacional en las rutas en que se permite que estos aviones vuelen más allá del umbral de tiempo establecido, es necesario que:
 (a) la certificación de la aeronavegabilidad del tipo de avión permita específicamente los vuelos que superan el umbral de tiempo, teniendo en cuenta el diseño y los aspectos de fiabilidad del sistema de avión;
@@ -6551,8 +6807,8 @@ Nota 2. — En algunos documentos, el término ETOPS se refiere a EDTO.
 (d) se cumplan los requisitos de despacho de vuelo específicos;
 (e) se cuente con los procedimientos operacionales en vuelo necesarios; y
 (f) la DGAC otorgue una aprobación operacional específica.
-Nota 1. — Las consideraciones de aeronavegabilidad aplicables a las operaciones con tiempo de desviación extendido figuran en el Manual de aeronavegabilidad de la OACI (Doc. 9760), Parte IV, Capítulo 2.
-Nota 2. — En algunos documentos, el término ETOPS se refiere a EDTO.
+Nota 1. - Las consideraciones de aeronavegabilidad aplicables a las operaciones con tiempo de desviación extendido figuran en el Manual de aeronavegabilidad de la OACI (Doc. 9760), Parte IV, Capítulo 2.
+Nota 2. - En algunos documentos, el término ETOPS se refiere a EDTO.
 3.3.11 Requisitos para modificaciones de aeronavegabilidad y programa de mantenimiento
 3.3.11.1 En todo programa de mantenimiento de los operadores debe garantizarse que:
 (a) se proporcionen al Estado de matrícula y, cuando corresponda, a la DGAC los títulos y números de todas las modificaciones de la aeronavegabilidad, las adiciones y los cambios que se hayan introducido para que los sistemas de avión puedan calificar para operaciones con tiempo de desviación extendido;
@@ -6562,7 +6818,7 @@ Nota 2. — En algunos documentos, el término ETOPS se refiere a EDTO.
 (e) se establezcan procedimientos para impedir que se despache una operación con tiempo de desviación extendido después de que se haya parado un motor o haya ocurrido una falla de un sistema significativo para EDTO en un vuelo anterior, hasta que se haya identificado positivamente la causa de la falla y se hayan adoptado las medidas correctivas necesarias. Para confirmar que se adoptaron en forma eficiente dichas medidas correctivas puede ser necesario, en algunos casos, completar con éxito un vuelo antes de despachar un vuelo con tiempo de desviación extendido;
 (f) se establezca un procedimiento para garantizar que el equipo de a bordo seguirá manteniéndose a los niveles de actuación y fiabilidad necesarios para las operaciones con tiempo de desviación extendido; y
 (g) se establezca un procedimiento para minimizar, en el curso de la misma visita de mantenimiento, el mantenimiento programado o no programado de más de un sistema significativo para EDTO paralelo o similar. Esta minimización puede lograrse escalonando las tareas de mantenimiento, haciendo que distintos técnicos lleven a cabo y/o supervisen el mantenimiento, o verificando las medidas correctivas de mantenimiento antes de que el avión alcance un umbral EDTO.
-Nota. — Las consideraciones de mantenimiento aplicables a las operaciones con tiempo de desviación extendido figuran en el Manual de aeronavegabilidad de la OACI (Doc. 9760).
+Nota. - Las consideraciones de mantenimiento aplicables a las operaciones con tiempo de desviación extendido figuran en el Manual de aeronavegabilidad de la OACI (Doc. 9760).
 3.3.12 Ejemplos
 3.3.12.1 Al establecer el umbral apropiado y el tiempo de desviación máximo aprobado para un operador con un tipo de avión en particular, la DGAC debe considerar, entre otras cosas, lo siguiente: la certificación de la aeronavegabilidad del avión, la experiencia del operador en la realización de vuelos que superan el umbral de 60 minutos, la experiencia de la tripulación de vuelo para llevar a cabo dichos vuelos, la madurez del sistema de despacho de vuelos del operador, la capacidad de comunicaciones con el centro de control de operaciones de los operadores (ACARS, SATCOM, HF), la solidez de los procedimientos operacionales normalizados del operador y la familiaridad de las tripulaciones con dichos procedimientos, la madurez del sistema de gestión de la seguridad operacional del operador, el programa de instrucción de la tripulación y la fiabilidad del sistema de propulsión. Los ejemplos siguientes se basan en estas consideraciones y se han tomado de situaciones reales en los Estados:
 (a) Estado A: Este Estado ha establecido un umbral de tiempo a 60 minutos basado en la capacidad del operador y el tipo de avión para un avión con dos motores y un tiempo de desviación máximo aprobado de 180 minutos. El operador necesitará tener una aprobación específica para volar durante más de 60 minutos a un aeródromo de alternativa en ruta (en condiciones ISA y de aire en calma a la velocidad de crucero con un motor inactivo), mantenerse sin sobrepasar 180 minutos hasta un aeródromo de alternativa en ruta y satisfacer los requisitos de la RAC OPS 1.246(a) hasta la RAC OPS 1.246(b) (7). Si el operador con el tipo de avión específico planifica una ruta dentro del umbral de tiempo establecido por la DGAC (en el ejemplo anterior, ese umbral es de 60 minutos) hasta un aeródromo de alternativa en ruta, ese operador, por definición, no realizaría una operación con tiempo de desviación extendido y, por ende, no necesitaría cumplir con las disposiciones de la RAC OPS 1.246(a).
@@ -6590,9 +6846,7 @@ ii. 1000 pies para una elevación de hasta 6000 pies, inclusive; o
 iii. 2000 pies para una elevación mayor de 6000 pies redondeada hasta los siguientes 100 pies.
 2.1.1 La MOCA mínima será de 2000 pies.
 2.1.2 Desde una estación de VOR, el ancho del corredor se define como un límite que comienza a una distancia de 5 mn. a ambos lados del VOR, que diverge 4 grados del eje hasta alcanzar una anchura de 20 mn. a una distancia de 70 mn., y a partir de esa distancia, paralela al eje hasta una distancia de 140 mn., y a partir de esa distancia, que diverge de nuevo 4 grados hasta alcanzar una anchura máxima de 40 mn. a una distancia de 280 mn. A partir de esa distancia la anchura permanece constante.
-[imagen]
 2.1.3 Desde un NDB, de manera análoga, la anchura del corredor se define como un límite que comienza a una distancia de 5 mn. a ambos lados del NDB, que diverge 7 grados hasta alcanzar una anchura de 20 mn. a una distancia de 40 mn., y a partir de esa distancia, paralela al eje hasta una distancia de 80 mn., y a partir de esta distancia, que diverge de nuevo 7 grados hasta alcanzar una anchura máxima de 60 mn. a una distancia de 245 MN. A partir de esa distancia la anchura permanece constante.
-[imagen]
 2.1.4 MOCA no cubre la superposición (solapamiento) del corredor.
 2.2 Altitud mínima fuera de ruta (MORA). MORA se calcula para cada cuadrícula definida por cada segundo de LAT y LONG en la Carta de Instalaciones de Ruta (RFC)/ Carta de Aproximación Terminal (TAC) y está basada en una altura mínima sobre el terreno de la siguiente forma:
 (i) Terreno con una elevación de hasta 6000 pies (2000 m): 1000 pies por encima del terreno y obstáculos más altos;
@@ -6605,7 +6859,6 @@ ii. MORA de cuadrícula, (p.e. 98).
 3.3 Los valores MORA franquean todo el terreno y los obstáculos artificiales en 1000 pies en zonas cuya elevación del terreno u obstáculos más altos son de hasta 5000 pies. Se proporciona un franqueamiento de 2000 pies por encima de todo el terreno u obstáculos de una altura de 5001 pies o mayores.
 3.4 Una MORA cuadrícula es una altitud computada por Jeppesen y los valores se muestran en cada cuadrícula formada por líneas trazadas de latitud y longitud. Las cifras se expresan en miles y cientos de pies (omitiendo los últimos dos dígitos para no congestionar la carta). Los valores seguidos de + no rebasan las altitudes mostradas. Son aplicables losmismos criterios de franqueamiento que se indican en el anterior párrafo 3.3.
 FIGURA 3
-[imagen]
 4 Fórmula ATLAS
 4.1 Altitud mínima de seguridad en ruta (MEA). Se calcula la MEA basándose en la elevación del punto más alto en el segmento de ruta afectado (que se extiende de una radio ayuda a otra) dentro de una distancia a ambos lados de la trayectoria según se especifica a continuación:
 i. | Longitud de segmento hasta 100 MN. | 10 MN. (Véase Nota 1 a continuación).
@@ -6810,7 +7063,7 @@ Las siguientes categorías de pasajeros están entre las que no deben ser ubicad
 (e) Niños (tanto solos como acompañados) e infantes
 (f) Personas bajo custodia o que están siendo deportadas; y
 (g) Pasajeros con animales
-Nota.- “Acceso directo” indica un asiento desde el que el pasajero puede proceder directamente a la salida sin entrar a un pasillo o pasar alrededor de una obstrucción.
+Nota.- "Acceso directo" indica un asiento desde el que el pasajero puede proceder directamente a la salida sin entrar a un pasillo o pasar alrededor de una obstrucción.
 CA OPS 1.295 LOCALIZACIÓN DE UN AERÓDROMO ALTERNO EN RUTA.
 (Ver RAC-OPS 1.295)
 Esta CA es un método aceptable de cumplimiento sobre alterno en ruta.
@@ -6825,11 +7078,10 @@ CA OPS 1.297 USO DE LAS PREDICCIONES METEOROLÓGICAS,
 (Ver RAC-OPS 1.297)
 Esta CA es un método aceptable de cumplimiento sobre uso de las predicciones meteorológicas, de los aeródromos.
 Ver la tabla siguiente:
-[imagen]
 CA OPS 1.297(b) (2) MÍNIMOS DE PLANIFICACIÓN PARA AERÓDROMOS ALTERNOS.
 (Ver RAC-OPS 1.297(b) (2))
 Esta CA es material explicativo e interpretativo que provee información adicional sobre mínimos de planificación para aeródromos alternos.
-Los “mínimos de no precisión” de la RAC-OPS 1.297, Tabla 1, indican el mínimo más alto siguiente que está disponible en las condiciones serviciabilidad y de viento prevaleciente. Si están publicadas, las aproximaciones “Sólo Localizador” se considerarán como de no precisión en este contexto. Se recomienda que los operadores seleccionen de las tablas de mínimos de planificación, aquellos valores que sean los más apropiados en la mayoría de las ocasiones (p.ej. sin importar la dirección del viento). No obstante, deben tenerse en cuenta los equipos no disponibles.
+Los "mínimos de no precisión" de la RAC-OPS 1.297, Tabla 1, indican el mínimo más alto siguiente que está disponible en las condiciones serviciabilidad y de viento prevaleciente. Si están publicadas, las aproximaciones "Sólo Localizador" se considerarán como de no precisión en este contexto. Se recomienda que los operadores seleccionen de las tablas de mínimos de planificación, aquellos valores que sean los más apropiados en la mayoría de las ocasiones (p.ej. sin importar la dirección del viento). No obstante, deben tenerse en cuenta los equipos no disponibles.
 CA OPS 1.300 PRESENTACIÓN DE UN PLAN DE VUELO ATS.
 (Ver RAC-OPS 1.300)
 Esta CA es un método aceptable de cumplimiento sobre plan de vuelo ATS:
@@ -6848,10 +7100,10 @@ Esta CA es un método aceptable de cumplimiento sobre carga y descarga de combus
 CA OPS 1.307 CARGA/DESCARGA DE COMBUSTIBLE DE ALTA VOLATILIDAD (wide-cut fuel)
 (Ver RAC-OPS 1.307)
 Esta CA es un método aceptable de cumplimiento sobre carga y descarga de combustible de alta volatilidad.
-1 “Wide cut fuel” (tal como JET B, JP-4 o AVTAG) son combustibles de aviación para motores de turbina, que están dentro de proceso de destilación, entre gasolina y queroseno, y por tanto si se comparan al queroseno (JET A o JET A1), tiene las propiedades de una mayor volatilidad (presión de vapor), y menor punto de inflamación y de congelamiento.
+1 "Wide cut fuel" (tal como JET B, JP-4 o AVTAG) son combustibles de aviación para motores de turbina, que están dentro de proceso de destilación, entre gasolina y queroseno, y por tanto si se comparan al queroseno (JET A o JET A1), tiene las propiedades de una mayor volatilidad (presión de vapor), y menor punto de inflamación y de congelamiento.
 2 Siempre que sea posible, el operador debe evitar el uso de este tipo de combustibles.
 Si se da una situación en donde únicamente está disponible este tipo de combustible para su carga/descarga, el operador debe ser consciente de que la mezcla de combustibles wide-cut con queroseno puede dar lugar a que la mezcla de aire/combustible en el tanque, esté a temperatura ambiente, y esté en el rango de combustión. Las precauciones extras que se listan a continuación son aconsejables para evitar un arco eléctrico en el tanque debido a una descarga electroestática. El riesgo de este tipo de arco eléctrico puede ser minimizado por el uso de un aditivo de disipación estática en el combustible. Cuando este aditivo está presente en las proporciones citadas en la especificación de combustible, las precauciones normales de abastecimiento siguientes se consideran adecuadas.
-3 Se dice que estamos en un caso de “Wide.-cut fuel” cuando está siendo suministrado o cuando ya esté presente en los tanques de combustible del avión.
+3 Se dice que estamos en un caso de "Wide.-cut fuel" cuando está siendo suministrado o cuando ya esté presente en los tanques de combustible del avión.
 4 Cuando se hayan utilizado combustibles wide-cut, debe de ser anotado en la Bitácora de Mantenimiento del avión. Las dos recargas siguientes deben de tratarse como si también se hubiera utilizado combustible wide-cut.
 5 Cuando se está reabasteciendo/descargando combustible de turbina que no contenga un disipador estático, y en cuando se esté utilizando combustible wide-cut, es aconsejable una reducción sustancial en el flujo de combustible. Un régimen del flujo reducido, como se recomienda por los suministradores de combustible y/o fabricantes del avión, tiene los siguientes beneficios:
 a Permite más tiempo para que cualquier creación de carga estática en el equipo de abastecimiento de combustible se disipe antes de que el combustible entre al tanque.
@@ -6870,7 +7122,7 @@ Esta CA es un método aceptable de cumplimiento sobre descanso controlado en la 
 Aunque los tripulantes de vuelo deben estar alertas todo el tiempo durante el vuelo, se puede sufrir de fatiga inesperadamente como resultado de alteración del sueño o alteración del ciclo circadiano. Para contrarrestar esta fatiga inesperada, y para retomar un alto nivel de alerta, puede utilizarse un procedimiento de descanso controlado en la cabina de mando. Además, se ha demostrado que la utilización del descanso controlado incrementa significativamente el nivel de alerta durante las fases finales de vuelo, particularmente después del inicio del descenso, y es considerado como un buen uso de los principios de CRM. El descanso controlado podrá usarse en conjunto con otros medios de manejo de la fatiga, como ejercicio físico, luminosidad de la cabina en el momento oportuno, una dieta balanceada, y actividad intelectual. El tiempo máximo de descanso controlado se ha escogido para limitar el sueño profundo y el consecuente largo tiempo de recuperación. (Inercia de sueño)
 1. Es responsabilidad de los tripulantes el estar debidamente descansados antes de cada vuelo (Ver RAC-OPS 1.085).
 2. Esta CA concierne al descanso controlado tomado por la tripulación de vuelo certificada mínima. No concierne al descanso de tripulantes en una tripulación reforzada.
-3. El descanso controlado significa el período “Sin tareas (off task)”, el cual puede incluir dormir.
+3. El descanso controlado significa el período "Sin tareas (off task)", el cual puede incluir dormir.
 4. El descanso controlado puede usarse a discreción del Piloto al mando para manejar ambas, fatiga súbita inesperada y fatiga que se espera sea mayor durante períodos de carga de trabajo alta al final del vuelo. El descanso controlado no puede planificarse antes del vuelo.
 5. El descanso controlado podrá tomarse solo durante esa parte del vuelo que involucre períodos de baja carga de trabajo.
 6. Los períodos de descanso controlados deben ser de común acuerdo dependiendo de las necesidades individuales y los principios aceptados de CRM; Donde se involucre a la tripulación de cabina, se debe considerar el nivel de trabajo que tengan durante ese período.
@@ -6894,12 +7146,12 @@ CA OPS 1.310(b) UBICACIÓN DE LOS ASIENTOS DE LOS TRIPULANTES DE CABINA.
 (2) Proporcionen una buena visión de la(s) zona(s) de la cabina de la que es responsable el miembro de la tripulación de cabina de pasajeros; y
 (3) Estén distribuidos uniformemente a lo largo de la cabina
 (b) No se debe interpretar el anterior párrafo 1 en el sentido de que si hay más asientos para tripulantes de cabina que el número de tripulantes mínimo requeridos, se deba aumentar el número de miembros de la tripulación de cabina.
-CCA OPS 1.327 Capacidad de tiempo de respuesta del sistema de supresión de incendios en el compartimiento de carga.
+(*)CA OPS 1.327 Capacidad de tiempo de respuesta del sistema de supresión de incendios en el compartimiento de carga.
 Todos los vuelos deberían planificarse de manera que el tiempo de desviación hacia un aeródromo donde puede realizarse un aterrizaje seguro no exceda la capacidad de tiempo de respuesta para la supresión de incendios en el compartimiento de carga del avión, cuando dicha capacidad se indique en la documentación pertinente del avión, reducida por un margen de seguridad operacional especificado por el Estado del operador.
-Nota 1. — Las capacidades de tiempo de supresión de incendios en el compartimiento de carga se indicarán en la documentación pertinente del avión cuando deban considerarse para la operación.
-Nota 2. — Quince minutos es un margen de seguridad operacional que se aplica comúnmente para dicho fin.
-Nota 3. — Véase el (*)RAC-OPS 1.246 y la CCA-OPS 1.246 en lo que respecta a consideraciones sobre la capacidad de tiempo de respuesta de los sistemas de supresión de incendios en el compartimiento de carga para aviones que se utilizan en EDTO.
-(*) (Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 67 del 8 de abril de 2021, página N° 3, que corrigió las siglas “MRAC”)
+Nota 1. - Las capacidades de tiempo de supresión de incendios en el compartimiento de carga se indicarán en la documentación pertinente del avión cuando deban considerarse para la operación.
+Nota 2. - Quince minutos es un margen de seguridad operacional que se aplica comúnmente para dicho fin.
+Nota 3. - Véase el RAC-OPS 1.246 y la CCA-OPS 1.246 en lo que respecta a consideraciones sobre la capacidad de tiempo de respuesta de los sistemas de supresión de incendios en el compartimiento de carga para aviones que se utilizan en EDTO.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 CA OPS 1.345 HIELO Y OTROS CONTAMINANTES
 Procedimientos
 Esta CA es un método aceptable de cumplimiento sobre los procedimientos con hielo y otros contaminantes.
@@ -6919,13 +7171,13 @@ y/o antihielo.
 (3) Bajo ciertas condiciones meteorológicas los procedimientos de antihielo/deshielo pueden ser inefectivos en dar una protección suficiente para una operación continua. Ejemplos de estas condiciones son lluvia congelada, granizo, precipitación fuerte denieve, alta velocidad del viento, caída de temperatura muy rápida y en cualquier otromomento cuando haya precipitación helada con alto contenido de agua presente.
 (4) Material para establecer procedimientos operacionales pueden encontrarse en:
 - OACI Anexo 3, Servicio Meteorológico para la Navegación Aérea Internacional;
-- OACI Doc. 9640-AN/940 “Manual of aircraft ground de-icing/anti-icing operations”;
+- OACI Doc. 9640-AN/940 "Manual of aircraft ground de-icing/anti-icing operations";
 - ISO 11075 (*) ISO Type I fluid;
 - ISO 11076 (*) Aircraft de-icing/anti-icing methods with fluids;
 - ISO 11077 (*) Self propelled de-icing/anti-icing vehicles-functional requirements;
 - ISO 11078 (*) ISO Type II fluid;
-- AEA “Recommendations for de-icing/anti-icing of aircraft on the ground”;
-- AEA “Training recommendations and background information for de-icing/anti-icing of aircraft on the ground”;
+- AEA "Recommendations for de-icing/anti-icing of aircraft on the ground";
+- AEA "Training recommendations and background information for de-icing/anti-icing of aircraft on the ground";
 - EUROCAE ED-104/SAE AS 5116 Minimum operational performance specification for ground ice detection systems;
 - SAE ARP 4737 Aircraft de-icing/anti-icing methods;
 - SAE AMS 1424 Type I fluids;
@@ -6982,12 +7234,12 @@ Nota: Las propiedades aerodinámicas y de antihielo de fluidos espesos se pueden
 (1) Antes del tratamiento de la aeronave. Cuando la aeronave se va a tratar con la tripulación a bordo, el personal de tierra y la tripulación de vuelo deben confirmar que tipo de fluido se va a usar, el alcance del tratamiento requerido, y los procedimientos específicos del aeroplano a ser usados. Cualquier otra información requerida para la aplicación de las tablas de HOT debe intercambiarse.
 (2) Código Antihielo
 (i) Los procedimientos del operador deben incluir un código antihielo, que indicará el tratamiento que el aeroplano ha recibido. Este código le dará a la tripulación de vuelo los detalles mínimos necesarios para estimar el HOT y confirmar que el aeroplano está libre de contaminación.
-(ii) Los procedimientos para el “release” del avión después del tratamiento de la aeronave deben proveer al Piloto al mando con el código antihielo.
+(ii) Los procedimientos para el "release" del avión después del tratamiento de la aeronave deben proveer al Piloto al mando con el código antihielo.
 (iii) Ejemplo de códigos Antihielo a usarse:
-(A). ”Tipo I“ a la hora de inicio- A ser usado si el tratamiento antihielo se hizo con fluido Tipo I;
-(B). ”Tipo II/100“ a la hora de inicio- A ser usado si el tratamiento se hizo con fluido Tipo II no diluido;
-C). ”Tipo II/75“ a la hora de inicio- A ser usado si el tratamiento antihielo se hizo con una mezcla del 75% de fluido Tipo II y 25% de agua;
-(D). ”Tipo IV/50“ a la hora de inicio- A ser usado si el tratamiento antihielo se hizo con una mezcla de 50% de fluido Tipo IV y 50% de agua.
+(A). "Tipo I" a la hora de inicio- A ser usado si el tratamiento antihielo se hizo con fluido Tipo I;
+(B). "Tipo II/100" a la hora de inicio- A ser usado si el tratamiento se hizo con fluido Tipo II no diluido;
+C). "Tipo II/75" a la hora de inicio- A ser usado si el tratamiento antihielo se hizo con una mezcla del 75% de fluido Tipo II y 25% de agua;
+(D). "Tipo IV/50" a la hora de inicio- A ser usado si el tratamiento antihielo se hizo con una mezcla de 50% de fluido Tipo IV y 50% de agua.
 Nota 1: Cuando una operación de 2 fases de deshielo/antihielo se ha llevado a cabo, El código antihielo estará determinado por la segunda etapa de fluido. La marca del fluido se puede incluir.
 (3) Después del tratamiento
 Antes de reconfigurar o mover el aeroplano, la tripulación de vuelo debe recibir la confirmación de parte del personal de tierra que todas las operaciones de deshielo/antihielo han sido completadas y que todo el personal y el equipo se han removido de la vecindad del avión.
@@ -7001,7 +7253,7 @@ El HOT se termina si:
 (ii) La aeronave y sus alrededores, como ángulo de inclinación de componentes, contorno y lo áspero de la superficie, operación cercana a otras aeronaves y estructuras y equipo de tierra.
 (3) El HOT no implica que el vuelo es seguro bajo las condiciones imperantes y que este no ha sido excedido. Ciertas condiciones meteorológicas como llovizna o lluvia congelante, pueden estar fuera del marco de certificación de la aeronave.
 (4) El operador debe publicar en su Manual de Operaciones los HOT en forma de tablas o diagramas tomando en cuenta las diferentes condiciones de hielo en tierra y los diferentes tipos y concentraciones de fluidos utilizados. Sin embargo, los tiempos de protección mostrados en esas tablas deben utilizarse como guías solamente y ser utilizadas en conjunto con las listas de predespegue.
-(5) Referencia a las tablas HOT utilizables se pueden encontrar en las recomendaciones “AEA” para des/antihielo de aeronaves en tierra.
+(5) Referencia a las tablas HOT utilizables se pueden encontrar en las recomendaciones "AEA" para des/antihielo de aeronaves en tierra.
 (f) Procedimientos a utilizarse
 Los procedimientos del operador asegurarán que:
 (1) Cuando las superficies del aeroplano estén contaminadas con hielo, escarcha, aguanieve (slush) o nieve, se deshielen antes del despegue, de acuerdo a las condiciones predominantes. La remoción de los contaminantes podrá hacerse con herramientas mecánicas, fluidos (incluida el agua caliente), calor infrarrojo o aire caliente, tomando en cuenta los requisitos específicos de Tipo del avión.
@@ -7112,7 +7364,7 @@ Esta CA es material explicativo e interpretativo que provee información adicion
 (a) Anexo 10 de OACI, Volumen 4
 (b) OACI Doc. 8168 PANS OPS, Volumen 1
 (c) OACI Doc. 4444 PANS RAC, Part X, apartado 3.1.2, y
-(d) OACI, material de guía “ACAS Performance – Based Training Objetives (publicado como Anexo E en carta dirigida a los Estados: AN 7/1.3.7.2-97/77.)
+(d) OACI, material de guía "ACAS Performance - Based Training Objetives (publicado como Anexo E en carta dirigida a los Estados: AN 7/1.3.7.2-97/77.)
 CA OPS 1.400 CONDICIONES DE APROXIMACIÓN Y ATERRIZAJE.
 (Ver RAC-OPS 1.400)
 Esta CA es un método aceptable de cumplimiento sobre la determinación de la distancia de aterrizaje.
@@ -7139,8 +7391,7 @@ l. Protección contra hielo adecuada incluyendo antihielo de parabrisas, y
 m. Controles adecuados en la cabina de vuelo y pasajeros incluyendo calefacción y presurización.
 (2) El equipo (incluyendo aviónica) necesario para tiempos de desviación extendidos debe tener la capacidad de operar de manera aceptable después de fallos en el sistema de refrigeración o sistemas de energía eléctrica.
 Apéndice 1 al CA OPS 1.295 POLÍTICA DE COMBUSTIBLE: LOCALIZACIÓN DE ALTERNATIVO EN RUTA
-[imagen]
-SUBPARTE E – OPERACIONES TODO TIEMPO
+SUBPARTE E - OPERACIONES TODO TIEMPO
 CA OPS 1.430 DOCUMENTOS QUE CONTIENEN INFORMACIÓN RELACIONADA CON LAS OPERACIONES DE TODO TIEMPO.
 (Ver RAC-OPS 1.430)
 1. El objetivo de este MEI es suministrar a los operadores con una lista de documentos relacionados con AWO:
@@ -7164,14 +7415,14 @@ CA OPS 1.430(b) (4) EFECTOS SOBRE LOS MÍNIMOS DE ATERRIZAJE DE FALLAS TEMPORALE
 (i) RVR. Al menos se debe disponer de un valor de RVR en el aeródromo.;
 (ii) Luces de pista
 a Sin luces de borde de pista, o sin luces de eje.- (Día: RVR 200m); (Noche: No permitido);
-b Sin luces de TDZ – (Sin restricciones);
+b Sin luces de TDZ - (Sin restricciones);
 c Sin alimentación de reserva para las luces de pista.- (Día: RVR 200 m); (Noche: No permitido).
 4 Condiciones aplicables a las Tablas 1A y 1B
 (i) No son aceptables fallas múltiples de las luces de pista distintos de las que se indican en la Tabla 1B.
 (ii) Se tratan individualmente las deficiencias de las luces de aproximación y de pista.
 (iii) Operaciones de Categoría II o III. No se permite una combinación de deficiencias en las luces de pista y los equipos de evaluación del RVR.
 (iv) Fallas distintas a las del ILS sólo afectan al RVR y no a la DH.
-TABLA 1 A- Equipos con fallas o degradados – Efectos en los mínimos de aterrizaje
+TABLA 1 A- Equipos con fallas o degradados - Efectos en los mínimos de aterrizaje
 EQUIPOS CON FALLAS O DEGRADADOS | EFECTOS SOBRE LOS MÍNIMOS DE ATERRIZAJE
 CAT III B (Nota 1) | CAT III A | CAT II | CAT I | DE NO PRECISIÓN
 Transmisor ILS de reserva | No se permite | Ningún efecto
@@ -7182,7 +7433,7 @@ RVR del Punto Medio o Punto Final | Ningún efecto
 Anemómetro para R/W en uso | Ningún efecto si hay otra fuente disponible en tierra
 Medidor de Techo de Nubes | Ningún efecto
 Nota 1: Para las operaciones Cat III B sin DH, véase también en el párrafo 3 anterior.
-TABLA 1B - Equipos con fallas o degradados – Efectos en los mínimos de aterrizaje
+TABLA 1B - Equipos con fallas o degradados - Efectos en los mínimos de aterrizaje
 EQUIPOS CON FALLAS O DEGRADADOS | EFECTOS SOBRE LOS MÍNIMOS DE ATERRIZAJE
 CAT III B(Nota 1) | CAT III A | CAT II | CAT I | DE NO PRECISIÓN
 Luces de aproximación | NO SE PERMITE para operaciones con DH mayor a 50 pies | NO SE PERMITE | Mínimos como si no hubiera instalaciones.
@@ -7197,13 +7448,13 @@ Luces de la zona de Toma de Contacto | Día: RVR 200 m Noche: 300 m | Día: RVR 
 Alimentación de reserva para luces de pista | NO SE PERMITE | Ningún efecto
 Sistema de luces de calle de rodaje | Ningún efecto-excepto demoras debidas a la tasa reducida de movimientos
 Nota 1: Para las operaciones CAT III B sin DH, véase también el párrafo 3 anterior.
-CA OPS 1.430(d) VISUALIZADOR DE “CABEZA ALTA” (HUD), VISUALIZADORES EQUIVALENTES Y SISTEMAS DE VISIÓN
+CA OPS 1.430(d) VISUALIZADOR DE "CABEZA ALTA" (HUD), VISUALIZADORES EQUIVALENTES Y SISTEMAS DE VISIÓN
 Introducción
 En esta DGAC se proporciona orientación sobre HUD y sistemas de visión certificados destinados a uso operacional en aeronaves de la navegación aérea internacional. Los HUD, sistemas de visión y sistemas híbridos pueden instalarse y utilizarse para proporcionar orientación, mejorar la toma de conciencia de la situación u obtener un crédito operacional estableciendo mínimos por debajo de los mínimos de utilización de aeródromo, para fines de prohibición de aproximaciones, o reduciendo los requisitos de visibilidad así como exigiendo menos instalaciones terrestres porque éstas serían compensadas por capacidades de a bordo.
 Los HUD y sistemas de visión pueden instalarse en forma separada o conjunta como parte de un sistema híbrido. Todo crédito operacional que se obtuviera de su uso exige la aprobación de la DGAC.
-Nota 1.— “Sistemas de visión” es un término genérico que se refiere a sistemas actuales dirigidos a proporcionar imágenes, es decir, sistemas de visión mejorada (EVS), sistemas de visión sintética (SVS) y sistemas de visión combinados (CVS).
-Nota 2.— Los créditos operacionales sólo pueden otorgarse dentro de los límites de la aprobación de diseño.
-Nota 3.— Actualmente, los créditos operacionales se han otorgado solamente a sistemas de visión que contienen un sensor de imágenes que proporciona en el HUD una imagen en tiempo real de la escena externa real.
+Nota 1.- "Sistemas de visión" es un término genérico que se refiere a sistemas actuales dirigidos a proporcionar imágenes, es decir, sistemas de visión mejorada (EVS), sistemas de visión sintética (SVS) y sistemas de visión combinados (CVS).
+Nota 2.- Los créditos operacionales sólo pueden otorgarse dentro de los límites de la aprobación de diseño.
+Nota 3.- Actualmente, los créditos operacionales se han otorgado solamente a sistemas de visión que contienen un sensor de imágenes que proporciona en el HUD una imagen en tiempo real de la escena externa real.
 1. HUD y visualizadores equivalentes
 1.1 Generalidades
 1.1.1 Un HUD presenta información de vuelo en el campo visual frontal externo del piloto sin restringir significativamente la vista hacia el exterior.
@@ -7229,10 +7480,10 @@ Nota 3.— Actualmente, los créditos operacionales se han otorgado solamente a 
 (1) el piloto puede utilizar la información presentada por el HUD en vez de observar las pantallas bajando la cabeza. La aprobación operacional del HUD para este uso permite al piloto controlar la aeronave tomando como referencia la información del HUD para operaciones en tierra o en vuelo aprobadas; y
 (2) la información presentada por el HUD puede utilizarse como medio para lograr una performance adicional de navegación o de mando. La información requerida se visualiza en el HUD. Puede aprobarse un crédito operacional, en forma de mínimos más reducidos, para los HUD utilizados con esta finalidad para una determinada aeronave o sistema de mando automático de vuelo. También pueden permitirse créditos adicionales al realizar operaciones HUD en situaciones en que normalmente se utilizarían otros sistemas automáticos.
 1.2.3 Un HUD, como sistema único e independiente, puede aplicarse a operaciones con visibilidad o RVR reducidos o para sustituir algunas partes de las instalaciones terrestres como la zona de toma de contacto o las luces de eje de pista. En el Manual de operaciones todo tiempo (Doc. 9365) figuran ejemplos y referencias a publicaciones a este respecto.
-1.2.4 Un visualizador equivalente a un HUD tiene por lo menos las características siguientes: una presentación de “cabeza alta” que no exige transición a la atención visual desde la posición “cabeza baja” a la “cabeza alta”; visualizaciones de imágenes obtenidas de sensores que se ajustan a la visión externa de los pilotos; permite la visualización simultánea de las imágenes de sensores EVS, simbología de vuelo de aeronave requerida y visión exterior, así como características y dinámica de la visualización adecuadas al control manual de la aeronave. Antes de utilizarse estos sistemas, deben obtenerse las correspondientes aprobaciones de aeronavegabilidad y operacional.
+1.2.4 Un visualizador equivalente a un HUD tiene por lo menos las características siguientes: una presentación de "cabeza alta" que no exige transición a la atención visual desde la posición "cabeza baja" a la "cabeza alta"; visualizaciones de imágenes obtenidas de sensores que se ajustan a la visión externa de los pilotos; permite la visualización simultánea de las imágenes de sensores EVS, simbología de vuelo de aeronave requerida y visión exterior, así como características y dinámica de la visualización adecuadas al control manual de la aeronave. Antes de utilizarse estos sistemas, deben obtenerse las correspondientes aprobaciones de aeronavegabilidad y operacional.
 1.3 Instrucción en HUD
 1.3.1 La DGAC debería establecer, controlar y aprobar los requisitos de instrucción. Los requisitos de instrucción deberían incluir condiciones de experiencia reciente si el Estado determina que los requisitos son significativamente distintos de aquellos aplicables al uso de instrumentos convencionales observables bajando la cabeza.
-1.3.2 La instrucción HUD debería abordar todas las operaciones de vuelo para las que el HUD está diseñado y operacionalmente aprobado. Para algunos elementos de instrucción pueden requerirse ajustes dependiendo de si la aeronave tiene una instalación HUD sencilla o doble. La instrucción debería incluir los procedimientos de contingencia necesarios en caso de que la presentación del visualizador de “cabeza alta” se degrade o falle. La instrucción relativa al HUD debería incluir los siguientes elementos, según se apliquen al uso proyectado:
+1.3.2 La instrucción HUD debería abordar todas las operaciones de vuelo para las que el HUD está diseñado y operacionalmente aprobado. Para algunos elementos de instrucción pueden requerirse ajustes dependiendo de si la aeronave tiene una instalación HUD sencilla o doble. La instrucción debería incluir los procedimientos de contingencia necesarios en caso de que la presentación del visualizador de "cabeza alta" se degrade o falle. La instrucción relativa al HUD debería incluir los siguientes elementos, según se apliquen al uso proyectado:
 (a) plena comprensión del HUD, sus conceptos de trayectoria de vuelo y gestión de la energía y su simbología. Esto debería incluir operaciones durante sucesos críticos del vuelo (p.ej., avisos de tránsito/de resolución del ACAS, recuperación del control de la aeronave y restablecimiento en caso de cizalladura del viento, falla de motor o de sistemas);
 (b) limitaciones y procedimientos normales del HUD, comprendidas las verificaciones de mantenimiento y operacionales que se realizan para garantizar el funcionamiento normal del sistema antes de su uso. Estas verificaciones comprenden el ajuste del asiento del piloto para alcanzar y mantener los ángulos de visión apropiados y la verificación de los modos de operación del HUD;
 (c) uso del HUD durante operaciones con escasa visibilidad, incluyendo rodaje, despegue, y aproximación y aterrizaje por instrumentos en condiciones diurnas y nocturnas. Esta instrucción debería comprender la transición de operaciones en las que se necesita bajar la cabeza a operaciones con la cabeza alta y viceversa;
@@ -7245,7 +7496,7 @@ Nota 3.— Actualmente, los créditos operacionales se han otorgado solamente a 
 2. Sistemas de visión
 2.1 Generalidades
 2.1.1 Los sistemas de visión pueden presentar imágenes electrónicas en tiempo real de la escena exterior real obtenidas mediante el uso de sensores de imágenes (EVS) o presentar imágenes sintéticas, obtenidas de los sistemas de aviónica de a bordo (SVS). Los sistemas de visión también pueden ser una combinación de estos dos sistemas o sistemas de visión combinados (CVS). Estos sistemas pueden presentar imágenes electrónicas en tiempo real de la escena exterior utilizando el componente EVS del sistema. Sin embargo, la fusión de EVS y SVS en un CVS depende del propósito de la función (por ejemplo, si se tiene o no la intención de lograr un crédito operacional).
-2.1.2 La información de los sistemas de visión puede presentarse en un visualizador de “cabeza alta” o “cabeza baja”. Cuando se presentan imágenes de visión mejorada en el HUD, éstas deben mostrarse en el campo visual frontal exterior del piloto sin restringir considerablemente dicha visión externa.
+2.1.2 La información de los sistemas de visión puede presentarse en un visualizador de "cabeza alta" o "cabeza baja". Cuando se presentan imágenes de visión mejorada en el HUD, éstas deben mostrarse en el campo visual frontal exterior del piloto sin restringir considerablemente dicha visión externa.
 2.1.3 Las determinaciones de la posición mejorada y la guía proporcionadas por el SVS pueden significar una seguridad operacional adicional para todas las etapas de vuelo especialmente en las operaciones de rodaje, despegue, aproximación y aterrizaje.
 2.1.4 Las luces de los diodos electroluminiscentes (LED) pueden no resultar visibles para los sistemas de visión basados en infrarrojo debido al hecho de que no son incandescentes y no tienen una firma térmica significativa. Los operadores de estos sistemas de visión deberán adquirir información sobre los programas de implantación de LED en los aeródromos en que trabajan.
 2.2 Aplicaciones operacionales
@@ -7277,16 +7528,16 @@ La aproximación continua al aterrizaje desde MDA/H o DA/H se realizará utiliza
 2.5 Referencias visuales
 2.5.1 Las referencias visuales requeridas no cambian debido al uso de EVS o CVS, pero pueden adquirirse mediante cualquiera de esos sistemas de visión hasta una cierta altura durante la aproximación (véase la Figura I-1).
 [imagen]
-Figura I-1. Operaciones EVS — transición desde las referencias por instrumentos a las referencias visuales
+Figura I-1. Operaciones EVS - transición desde las referencias por instrumentos a las referencias visuales
 2.5.2 En las regiones que han elaborado requisitos para operaciones con sistemas de visión, las referencias visuales se indican en la Tabla I-1.
 Tabla I-1. Ejemplos de créditos operacionales
 OPERACIONES POR DEBAJO DE DA/DH O MDA/MDH
 Ejemplo 1 | Ejemplo 2
-Para los procedimientos dirigidos a apoyar operaciones de tipo A, las siguientes referencias visuales para la pista prevista deben ser claramente visibles e identificables: ❑ el sistema de iluminación de aproximación; o ❑ el umbral de la pista, identificado por lo menos mediante uno de los siguientes: — el inicio de la superficie de aterrizaje de la pista; — las luces de umbral; o — las luces identificadoras de extremo depista; y • la zona de toma de contacto, identificada mediante por lo menos uno de los siguientes: — la superficie de aterrizaje de la zona de toma de contacto de la pista; — luces de zona de toma de contacto; — señales de zona de toma de contacto; o — luces de pista. | Para los procedimientos dirigidos a apoyar operaciones CAT I de tipo A y tipo B 3D, las siguientes referencias visuales deberían presentarse al piloto en la imagen EVS y resultar identificables: • elementos del sistema de iluminación de aproximación; o • el umbral de la pista, identificado por lo menos mediante uno de los siguientes: — el inicio de la superficie de aterrizaje de la pista; — las luces de umbral; — las luces identificadoras de umbral; o • la zona de toma de contacto, identificada mediante por lo menos uno de los siguientes: – la superficie de aterrizaje de la zona de toma de contacto de la pista; – luces de zona de toma de contacto; – señales de zona de toma de contacto; o – luces de pista.
+Para los procedimientos dirigidos a apoyar operaciones de tipo A, las siguientes referencias visuales para la pista prevista deben ser claramente visibles e identificables: ❑ el sistema de iluminación de aproximación; o ❑ el umbral de la pista, identificado por lo menos mediante uno de los siguientes: - el inicio de la superficie de aterrizaje de la pista; - las luces de umbral; o - las luces identificadoras de extremo depista; y . la zona de toma de contacto, identificada mediante por lo menos uno de los siguientes: - la superficie de aterrizaje de la zona de toma de contacto de la pista; - luces de zona de toma de contacto; - señales de zona de toma de contacto; o - luces de pista. | Para los procedimientos dirigidos a apoyar operaciones CAT I de tipo A y tipo B 3D, las siguientes referencias visuales deberían presentarse al piloto en la imagen EVS y resultar identificables: . elementos del sistema de iluminación de aproximación; o . el umbral de la pista, identificado por lo menos mediante uno de los siguientes: - el inicio de la superficie de aterrizaje de la pista; - las luces de umbral; - las luces identificadoras de umbral; o . la zona de toma de contacto, identificada mediante por lo menos uno de los siguientes: - la superficie de aterrizaje de la zona de toma de contacto de la pista; - luces de zona de toma de contacto; - señales de zona de toma de contacto; o - luces de pista.
 Operaciones por debajo de 60 m (200 ft) sobre la elevación de la zona de toma de contacto | Operaciones por debajo de 60 m (200 ft) sobre la elevación del umbral
 No se aplican requisitos adicionales a los 60 m (200 ft). | Para los procedimientos dirigidos a apoyar operaciones de tipo A 3D, las referencias visuales son las mismas que las especificadas más abajo para las operaciones de CAT I tipo B.
 Operaciones por debajo de 30 m (100 ft) sobre la elevación de la zona de toma de contacto | Operaciones por debajo de 30 m (100 ft) sobre la elevación del umbral
-La visibilidad debe ser suficiente para que los elementos siguientes resulten claramente visibles e identificables para el piloto sin basarse en el EVS: • las luces o señales del umbral; o • las luces o señales de la zona de toma de contacto. | Para los procedimientos dirigidos a apoyar operaciones CAT II del tipo B, por lo menos una de las referencias visuales especificadas a continuación debería resultar claramente visibles e identificables por el piloto sin basarse en el EVS: • las luces o señales del umbral; o • las luces o señales de la zona de toma de contacto.
+La visibilidad debe ser suficiente para que los elementos siguientes resulten claramente visibles e identificables para el piloto sin basarse en el EVS: . las luces o señales del umbral; o . las luces o señales de la zona de toma de contacto. | Para los procedimientos dirigidos a apoyar operaciones CAT II del tipo B, por lo menos una de las referencias visuales especificadas a continuación debería resultar claramente visibles e identificables por el piloto sin basarse en el EVS: . las luces o señales del umbral; o . las luces o señales de la zona de toma de contacto.
 3. Sistemas híbridos
 3.1 Un sistema híbrido significa genéricamente que se han combinado dos o más sistemas.
 El sistema híbrido normalmente tiene una mejor actuación que la de cada sistema componente, que a su vez pueden merecer créditos operacionales. Los sistemas de visión constituyen normalmente parte de un sistema híbrido, p. ej., el EVS se combina por lo general con un HUD. La inclusión de más componentes en el sistema híbrido mejora normalmente la actuación del sistema.
@@ -7327,9 +7578,9 @@ b) la forma en que los créditos operacionales afectan a los elementos siguiente
 6.1.5 Los operadores deberían ser conscientes de que algunos Estados pueden exigir cierta información sobre los créditos operacionales que han sido otorgados por la DGAC o el Estado de matrícula para la aviación general. Normalmente, deberá presentarse la aprobación de ese Estado y, en algunos casos, el Estado del aeródromo quizás pueda expedir una aprobación o validar la aprobación original.
 6.2 Aprobaciones para crédito operacional
 Para obtener un crédito operacional el operador deberá especificar el crédito operacional deseado y presentar una solicitud adecuada. La solicitud adecuada debería incluir:
-a) Detalles del solicitante — requeridos para todas las solicitudes de aprobación. Nombre oficial y nombre de la empresa o comercial, dirección, dirección postal, dirección electrónica y números de teléfono/fax de contacto del solicitante.
-Nota. — Para los titulares de COA, deberían requerirse el nombre de la compañía, el número COA y la dirección electrónica.
-b) Detalles de la aeronave — requeridos para todas las solicitudes de aprobación. Marcas, modelos y marcas de matrícula de las aeronaves.
+a) Detalles del solicitante - requeridos para todas las solicitudes de aprobación. Nombre oficial y nombre de la empresa o comercial, dirección, dirección postal, dirección electrónica y números de teléfono/fax de contacto del solicitante.
+Nota. - Para los titulares de COA, deberían requerirse el nombre de la compañía, el número COA y la dirección electrónica.
+b) Detalles de la aeronave - requeridos para todas las solicitudes de aprobación. Marcas, modelos y marcas de matrícula de las aeronaves.
 c) Lista de cumplimiento del sistema de visión del operador. El contenido de la lista de cumplimiento se incluye en la Tabla I-3. La lista de cumplimiento debería comprender la información pertinente a la aprobación solicitada y las marcas de matrícula de las aeronaves involucradas. Si se incluye más de un tipo de aeronave/flota en una sola solicitud, debería incluirse una lista de cumplimiento completa para cada aeronave/flota.
 d) Documentos que deben incluirse en la solicitud. Deberían incluirse copias de todos los documentos indicados en la columna 4 de la lista de cumplimiento del sistema de visión del operador (Tabla I-3) al devolver el formulario de solicitud completado a la autoridad de aviación civil. No deben enviarse manuales completos; sólo se requieren las secciones/páginas pertinentes.
 e) Nombre, título y firma.
@@ -7338,21 +7589,21 @@ Encabezamiento principal | Áreas amplias que han de tratarse en la solicitud | 
 1.0 Documentos de referencia utilizados para presentar la solicitud | La solicitud debería basarse en textos normativos actualizados de uso corriente. Una declaración de cumplimiento indicando cómo se han satisfecho los criterios de los reglamentos y requisitos aplicables. | |
 2.0 Manual de vuelo de la aeronave (AFM) | Copia de la anotación pertinente en el AFM indicando la base para la certificación de la aeronave correspondiente al | |
 | sistema de visión en cualquier condición operacional. | |
-3.0 Información y notificación de problemas importantes | Esbozo del proceso para notificar fallas en el uso operacional de los procedimientos. Nota. — En particular, problemas importantes con el sistema de visión/HUD, notificación de las circunstancias/lugares en que el sistema de visión resultó insatisfactorio. | |
+3.0 Información y notificación de problemas importantes | Esbozo del proceso para notificar fallas en el uso operacional de los procedimientos. Nota. - En particular, problemas importantes con el sistema de visión/HUD, notificación de las circunstancias/lugares en que el sistema de visión resultó insatisfactorio. | |
 4.0 Proveedor de cartas de aproximación por instrumentos y mínimos de utilización | El nombre del proveedor de las cartas de aproximación por instrumentos pertinentes. Confirmación de que todos los mínimos operacionales de aeródromos se han establecido con arreglo al método aceptable o a los criterios especificados (según corresponda) por la autoridad | |
 5.0 Anotaciones del manual de operaciones y procedimientos operacionales normalizados | Elaborados por el fabricante/ operador. Se recomiendan los procedimientos del fabricante como punto de partida y éstos deberían incluir por lo menos los elementos indicados en la | Definiciones. Verificar que los miembros de la tripulación están cualificados para operaciones con sistemas de visión/HUD. Tramitación MEL. |
 | columna de subrequisitos. | Equipo requerido para operaciones con sistemas de visión |
 Encabezamiento principal | Áreas amplias que han de tratarse en la solicitud | Subrequisitos | Referencia del manual de operaciones del operador o documento de referencia
 | | Tipos de aproximación en que pueden utilizarse sistemas de visión. Declaración de que el piloto automático/dispositivo director de vuelo debería utilizarse cuando sea posible. Referencias visuales mínimas para el aterrizaje. Prohibición de aproximación, y RVR en la aproximación. Criterios para aproximaciones estabilizadas. Posiciones correctas de asientos y ojos. Coordinación de la tripulación, p. ej., tareas del piloto a los mandos y del piloto que no está a los mandos: ❑ limitaciones; ❑ designación de piloto encargado y piloto no encargado; |
-| | ❑ uso de sistema de mando automático de vuelo; ❑tramitación de la lista de verificación; ❑ información para la aproximación; ❑ manejo de las radiocomunicaciones; ❑ vigilancia y verificación de instrumentos y radioayudas; y ❑ uso de la pantalla repetidora por el piloto que no está a los mandos. Procedimientos de contingencia incluyendo: ❑ fallas por encima y por debajo de la altura de decisión; ❑ advertencia de desviación del ILS; ❑ piloto automático desconectado; ❑ mando de gases automático desconectado; ❑ fallas eléctricas; ❑ fallas del motor; ❑ fallas y pérdidas de referencias visuales a la altura de decisión o por debajo; |
+| | ❑ uso de sistema de mando automático de vuelo; ❑ tramitación de la lista de verificación; ❑ información para la aproximación; ❑ manejo de las radiocomunicaciones; ❑ vigilancia y verificación de instrumentos y radioayudas; y ❑ uso de la pantalla repetidora por el piloto que no está a los mandos. Procedimientos de contingencia incluyendo: ❑ fallas por encima y por debajo de la altura de decisión; ❑ advertencia de desviación del ILS; ❑ piloto automático desconectado; ❑ mando de gases automático desconectado; ❑ fallas eléctricas; ❑ fallas del motor; ❑ fallas y pérdidas de referencias visuales a la altura de decisión o por debajo; |
 Encabezamiento principal | Áreas amplias que han de tratarse en la solicitud | Subrequisitos | Referencia del manual de operaciones del operador o documento de referencia
-| | — falla del sistema de visión/HUD por debajo de la altura de decisión |
+| | - falla del sistema de visión/HUD por debajo de la altura de decisión |
 | | normal; ❑ cizalladura del viento; ❑ advertencias ACAS; ❑ advertencias EGPWS. |
 6.0 Evaluación de riesgos de la seguridad operacional | | Evaluación de riesgos de seguridad operacional por el operador. |
-CA OPS 1.435 VISUALIZADORES DE “CABEZA ALTA” (HUD) Y SISTEMAS DE VISIÓN MEJORADA (EVS)
+CA OPS 1.435 VISUALIZADORES DE "CABEZA ALTA" (HUD) Y SISTEMAS DE VISIÓN MEJORADA (EVS)
 Introducción
 En esta CA se proporciona orientación acerca de los HUD y EVS que se prevé instalar y utilizar operacionalmente en las aeronaves de la navegación aérea internacional. Los HUD y EVS pueden instalarse y utilizarse para tomar más conciencia de la situación o para obtener un crédito operacional, por ejemplo, mínimos más reducidos en operaciones de aproximación y aterrizaje. Los HUD y los EVS pueden instalarse por separado o juntos, como parte de un sistema híbrido. Todo uso de estos sistemas y todo crédito operacional que se derive de su utilización exigen la aprobación de la DGAC.
-Nota. — Los créditos operacionales sólo pueden otorgarse dentro de los límites de la aprobación del diseño.
+Nota. - Los créditos operacionales sólo pueden otorgarse dentro de los límites de la aprobación del diseño.
 1. HUD
 1.1 Generalidades
 1.1.1 Los HUD presentan información de vuelo en el campo visual frontal externo de los pilotos sin restringir significativamente la vista hacia el exterior.
@@ -7379,19 +7630,19 @@ b) como la presentación principal de pilotaje:
 (ii) la información presentada por el HUD puede utilizarse como medio para mejorar la performance de navegación o de mando. La información que se requiere se visualiza en el HUD. Para los HUD que se utilizan con este propósito, puede aprobarse un crédito operacional, en la forma de mínimos más reducidos, para una aeronave o sistema de mando automático de vuelo en particular. Otro crédito que puede obtenerse es la realización de operaciones con HUD en situaciones en las que normalmente se utilizan sistemas automatizados.
 1.3 Instrucción HUD
 1.3.1 La DGAC debería establecer, controlar y aprobar los requisitos de instrucción. Si el Estado determina que los requisitos son significativamente distintos de aquellos aplicables al uso de instrumentos convencionales observables bajando la cabeza, los requisitos de instrucción deberían incluir condiciones de experiencia reciente.
-1.3.2 La instrucción HUD debería abordar todas las operaciones de vuelo para las que el HUD está diseñado y operacionalmente aprobado. Para algunos elementos de instrucción pueden requerirse ajustes dependiendo de si la aeronave tiene una instalación HUD sencilla o doble. La instrucción debería incluir los procedimientos de contingencia necesarios en caso de que la presentación del visualizador de “cabeza alta” se degrade o falle. La instrucción relativa al HUD debería incluir los siguientes elementos, según se apliquen al uso proyectado:
+1.3.2 La instrucción HUD debería abordar todas las operaciones de vuelo para las que el HUD está diseñado y operacionalmente aprobado. Para algunos elementos de instrucción pueden requerirse ajustes dependiendo de si la aeronave tiene una instalación HUD sencilla o doble. La instrucción debería incluir los procedimientos de contingencia necesarios en caso de que la presentación del visualizador de "cabeza alta" se degrade o falle. La instrucción relativa al HUD debería incluir los siguientes elementos, según se apliquen al uso proyectado:
 (a) plena comprensión del HUD, sus conceptos de trayectoria de vuelo y gestión de la energía y su simbología. Esto debería incluir operaciones durante sucesos críticos del vuelo (TA/RA del ACAS, recuperación del control de la aeronave y restablecimiento en caso de cizalladura del viento, falla de motor o de sistemas);
 (b) limitaciones y procedimientos normales del HUD, comprendidas las verificaciones de mantenimiento y operacionales que se realizan para garantizar el funcionamiento normal del sistema antes de su uso. Estas verificaciones incluyen el ajuste del asiento del piloto para alcanzar y mantener los ángulos de visión apropiados y la verificación de los modos de operación del HUD;
 (c) uso del HUD durante operaciones con escasa visibilidad, incluyendo rodaje, despegue, y aproximación y aterrizaje por instrumentos en condiciones diurnas y nocturnas. Esta instrucción debería comprender la transición de operaciones en las que se necesita bajarla cabeza a operaciones con la cabeza alta y viceversa;
 (d) modos de falla del HUD y el efecto de los modos de falla o de las limitaciones en la actuación de la tripulación;
 (e) procedimientos de coordinación, supervisión y anuncios verbales de la tripulación para instalaciones HUD sencillas con vigilancia bajando la cabeza por el piloto que no cuenta con HUD y vigilancia con la cabeza alta por el piloto equipado con HUD;
 (f) procedimientos de coordinación, supervisión y anuncios verbales de la tripulación para instalaciones HUD dobles con uso de HUD por el piloto a los mandos de la aeronave y con vigilancia ya sea con cabeza alta o bajando la cabeza por el otro piloto;
-(g) consideración de la posibilidad de que se pierda conciencia de la situación debido a la “visión de túnel” (también conocida como efecto túnel cognitivo o efecto túnel de la atención); y
+(g) consideración de la posibilidad de que se pierda conciencia de la situación debido a la "visión de túnel" (también conocida como efecto túnel cognitivo o efecto túnel de la atención); y
 (h) todo efecto que las condiciones meteorológicas, como techos de nubes bajos y visibilidad escasa, puedan tener en la actuación del HUD; e
 (i) requisitos de aeronavegabilidad del HUD.
 2. EVS
 2.1 Generalidades
-2.1.1 Los EVS presentan una imagen electrónica en tiempo real de la escena exterior mediante el uso de sensores de imágenes. Esta información puede exhibirse en un visualizador de “cabeza alta” o en una pantalla observable bajando la cabeza. Cuando las imágenes con visión mejorada se visualizan en un HUD, deberían presentarse en el campo visual frontal externo del piloto sin restringir significativamente la vista exterior.
+2.1.1 Los EVS presentan una imagen electrónica en tiempo real de la escena exterior mediante el uso de sensores de imágenes. Esta información puede exhibirse en un visualizador de "cabeza alta" o en una pantalla observable bajando la cabeza. Cuando las imágenes con visión mejorada se visualizan en un HUD, deberían presentarse en el campo visual frontal externo del piloto sin restringir significativamente la vista exterior.
 2.1.2 Es posible utilizar una variedad de sensores de imágenes en forma individual o en combinación para presentar una imagen electrónica en tiempo real de la escena exterior.
 Entre los sensores de imágenes pueden incluirse los que emplean intensificación luminosa de bajo nivel, emisiones térmicas, radar u otras emisiones electrónicas.
 2.2 Aplicaciones operacionales
@@ -7416,11 +7667,11 @@ La instrucción sobre los EVS que se emplean para tomar conciencia de la situaci
 (g) transición de imágenes mejoradas a condiciones visuales durante la adquisición visual de la pista;
 (h) aterrizaje interrumpido: pérdida de las indicaciones visuales del área de aterrizaje, de la zona de toma de contacto o de la zona de recorrido en tierra; y
 (i) todo efecto que las condiciones meteorológicas, como techos de nubes bajos y visibilidad escasa, puedan tener en la actuación del EVS.
-Nota. — La iluminación de pistas con LED quizá no sea visible para las tripulaciones que usan HUD/EVS debido a que los LED no son luces incandescentes. Se está evaluando el efecto que tiene en los HUD/EVS la iluminación de las pistas mediante LED y los resultados se incluirán en una revisión ulterior del Adjunto J de Anexo 6 Parte 1.
+Nota. - La iluminación de pistas con LED quizá no sea visible para las tripulaciones que usan HUD/EVS debido a que los LED no son luces incandescentes. Se está evaluando el efecto que tiene en los HUD/EVS la iluminación de las pistas mediante LED y los resultados se incluirán en una revisión ulterior del Adjunto J de Anexo 6 Parte 1.
 CA OPS al Apéndice 1 de la RAC-OPS 1.430 MÍNIMOS DE OPERACIÓN DE AERÓDROMO.
 (Ver Apéndice 1 a la RAC-OPS 1.430)
 Esta CA es material explicativo e interpretativo que provee información adicional sobre los mínimos de operación de aeródromo
-Los mínimos que se indican en este Apéndice se basan en la experiencia de radio ayudas para la aproximación que se emplean habitualmente. Esto no impide la utilización de otros sistemas de guiado tales como las pantallas “head-up display” (HUD) y los sistemas visuales mejorados (EVS) pero los mínimos aplicables a estos sistemas se tendrán que desarrollar según se requiera
+Los mínimos que se indican en este Apéndice se basan en la experiencia de radio ayudas para la aproximación que se emplean habitualmente. Esto no impide la utilización de otros sistemas de guiado tales como las pantallas "head-up display" (HUD) y los sistemas visuales mejorados (EVS) pero los mínimos aplicables a estos sistemas se tendrán que desarrollar según se requiera
 CA al Apéndice 1 de la RAC-OPS 1.430, (d) y (e) ESTABLECIMIENTO DE RVR MÍNIMOS PARA OPERACIONES DE CATEGORÍA II Y III.
 (Ver Apéndice 1 al RAC-OPS 1.430, (d) y (e))
 Esta CA es material explicativo e interpretativo que provee información adicional sobre el establecimiento de los mínimos RVR:
@@ -7436,33 +7687,33 @@ e Con respecto a la estructura de niebla, la información recopilada en el Reino
 2.1 La selección de dimensiones de los segmentos visuales requeridos que se usan para operaciones de Categoría II está basada en los siguientes requisitos visuales
 a Un segmento visual de no menos de 90 metros debe estar a la vista en y por debajo de la altura de decisión para que un piloto pueda monitorear un sistema automático;
 b Un segmento visual de no menos de 120 metros debe estar a la vista para que un piloto pueda mantener manualmente la actitud de cabeceo en y por debajo de la altura de decisión; y
-c Para un aterrizaje manual usando solamente referencias visuales externas, se requerirá un segmento visual de 225 metros a la altitud en que inicia la nivelada “flare” (posición dela aeronave previa al aterrizaje), a fin de proporcionar al piloto la visión en tierra de un punto de escaso movimiento relativo.
+c Para un aterrizaje manual usando solamente referencias visuales externas, se requerirá un segmento visual de 225 metros a la altitud en que inicia la nivelada "flare" (posición dela aeronave previa al aterrizaje), a fin de proporcionar al piloto la visión en tierra de un punto de escaso movimiento relativo.
 3 operaciones de Categoría III con sistemas de control de vuelo pasivo ante fallas
 3.1 Las operaciones de Categoría III utilizando el equipo de aterrizaje automático pasivo ante fallas fueron introducidas a finales de los 60 y es deseable que los principios que gobiernan el establecimiento de los mínimos RVR para estas operaciones sean tratados con cierto detalle.
 3.2 Durante un aterrizaje automático, el piloto necesita vigilar el performance de los sistemas del avión con el propósito no de detectar una falla en los sistemas internos del avión, que puede hacerse mejor utilizando dispositivos de vigilancia del sistema, sino para conocer de manera precisa la situación del vuelo. En las etapas finales debería establecer contacto visual y, al alcanzar la altura de decisión, ya debe haber verificado la posición del avión con respecto a las luces de aproximación o luces de eje de pista. Para esto necesitará ver elementos horizontales (para la referencia de alabeo) y parte del área de toma de contacto.
 Debería verificar la posición lateral y la velocidad de trayectoria cruzada y, si no está dentro de los límites laterales establecidos, debería realizar una ida al aire (go-around). También debería verificar el progreso longitudinal para lo cual es útil tener a la vista el umbral de aterrizaje así como las luces de la zona de la toma de contacto.
-3.3 En el caso de una falla en el sistema de guiado del vuelo automático por debajo de la altura de decisión, existen dos acciones posibles: la primera es un procedimiento que permita al piloto completar el aterrizaje manualmente si hubiera referencia visual adecuada que se lo permita, o iniciar una ida al aire “go-around” si no la hubiera; la segunda sería realizar una ida al aire “go-around” obligatoria si hubiera una desconexión del sistema, sin importar la referencia visual disponible del piloto.
+3.3 En el caso de una falla en el sistema de guiado del vuelo automático por debajo de la altura de decisión, existen dos acciones posibles: la primera es un procedimiento que permita al piloto completar el aterrizaje manualmente si hubiera referencia visual adecuada que se lo permita, o iniciar una ida al aire "go-around" si no la hubiera; la segunda sería realizar una ida al aire "go-around" obligatoria si hubiera una desconexión del sistema, sin importar la referencia visual disponible del piloto.
 a Si se selecciona la primera opción, entonces el requisito en la determinación de los RVR mínimos es que estén disponibles suficientes indicaciones visuales en, y por debajo, de la altura de decisión, de manera que el piloto pueda llevar a cabo un aterrizaje manual. Los datos establecidos en el CEAC Doc. 17 demuestran que un valor mínimo de 300 metros daría una alta probabilidad de que estén disponibles las referencias visuales que necesita el piloto para evaluar el avión en el cabeceo y alabeo, y este debería de ser el RVR mínimo para este procedimiento.
-b La segunda opción requiere que se realice una ida al aire “go-around”, si falla el sistema de guiado de vuelo automático por debajo de la altura de decisión, permitiendo un RVR mínimo menor debido a que los requisitos de referencia visual serán menores ya que no existirá la posibilidad de un aterrizaje manual. Sin embargo, esta opción sería aceptable solamente si se pudiera mostrar que la probabilidad de una falla del sistema por debajo de la altura de decisión fuera aceptablemente baja. Debería reconocerse que la tendencia de un piloto que experimenta dicha falla sería la de continuar el aterrizaje manualmente pero los resultados de pruebas de vuelo en condiciones reales y pruebas en simulador han demostrado que los pilotos no siempre reconocen que, en estas condiciones, las referencias visuales son inadecuadas y los datos actuales disponibles revelan que la performance de aterrizaje de los pilotos se reduce progresivamente conforme el RVR es reducido por debajo de los 300 metros. También hay que reconocer que existe riesgo en llevar a cabo una ida al aire “goaround” manual por debajo de 50 pies con muy poca visibilidad y por lo tanto debería aceptarse que si se autoriza un RVR menor a 300 metros, el procedimiento de la cabina de vuelo no debería permitir al piloto, de manera general, continuar con un aterrizaje manual en dichas condiciones y el sistema del avión debe ser suficientemente confiable para que el régimen de ida al aire “go-around” sea bajo.
-3.4 Estos criterios pueden relajarse en el caso de un avión con un sistema de aterrizaje automático pasivo ante fallas suplementado con un “head-up display”, lo cual no califica como un sistema operativo ante fallas, pero proporciona asesoramiento que permite al piloto completar un aterrizaje en el caso de una falla del sistema de aterrizaje automático. En este caso cuando el RVR es menor de 300 m, no es necesario realizar una ida al aire “go-around”obligatoria ante una falla del sistema de aterrizaje automático.
+b La segunda opción requiere que se realice una ida al aire "go-around", si falla el sistema de guiado de vuelo automático por debajo de la altura de decisión, permitiendo un RVR mínimo menor debido a que los requisitos de referencia visual serán menores ya que no existirá la posibilidad de un aterrizaje manual. Sin embargo, esta opción sería aceptable solamente si se pudiera mostrar que la probabilidad de una falla del sistema por debajo de la altura de decisión fuera aceptablemente baja. Debería reconocerse que la tendencia de un piloto que experimenta dicha falla sería la de continuar el aterrizaje manualmente pero los resultados de pruebas de vuelo en condiciones reales y pruebas en simulador han demostrado que los pilotos no siempre reconocen que, en estas condiciones, las referencias visuales son inadecuadas y los datos actuales disponibles revelan que la performance de aterrizaje de los pilotos se reduce progresivamente conforme el RVR es reducido por debajo de los 300 metros. También hay que reconocer que existe riesgo en llevar a cabo una ida al aire "goaround" manual por debajo de 50 pies con muy poca visibilidad y por lo tanto debería aceptarse que si se autoriza un RVR menor a 300 metros, el procedimiento de la cabina de vuelo no debería permitir al piloto, de manera general, continuar con un aterrizaje manual en dichas condiciones y el sistema del avión debe ser suficientemente confiable para que el régimen de ida al aire "go-around" sea bajo.
+3.4 Estos criterios pueden relajarse en el caso de un avión con un sistema de aterrizaje automático pasivo ante fallas suplementado con un "head-up display", lo cual no califica como un sistema operativo ante fallas, pero proporciona asesoramiento que permite al piloto completar un aterrizaje en el caso de una falla del sistema de aterrizaje automático. En este caso cuando el RVR es menor de 300 m, no es necesario realizar una ida al aire "go-around"obligatoria ante una falla del sistema de aterrizaje automático.
 4 Categoría III. Sistema operativo ante fallas- con Altura de Decisión.
 4.1 Para operaciones de Categoría III utilizando un sistema de aterrizaje operativo ante fallas con Altura de Decisión, el piloto debería ser capaz de ver, al menos, una luz de eje de pista.
 4.2 Para operaciones de Categoría III utilizando un sistema de aterrizaje híbrido operativo ante fallas con Altura de Decisión, el piloto debería tener una referencia visual conteniendo un segmento de por lo menos 3 luces consecutivas de las luces de eje de pista.
 5 Categoría III. Sistema operativo ante fallas - sin Altura de Decisión.
 5.1 Para Operaciones de Categoría III sin una Altura de Decisión el piloto no requiere ver la pista antes de la toma de contacto. El RVR permitido dependerá del nivel de los equipos del avión.
 5.2 Una pista de Categoría III puede soportar operaciones sin Altura de Decisión a menos que se restrinja específicamente en el AIP o mediante NOTAM.
-CA OPS al Apéndice 1 de la RAC-OPS 1.430, (e) (5) – TABLA 7 ACCIONES DE LA TRIPULACIÓN EN EL CASO DE FALLA DEL PILOTO AUTOMÁTICO EN O POR DEBAJO DE LA ALTURA DE DECISIÓN, EN OPERACIONES DE CAT III CONSISTEMAS PASIVOS ANTE FALLAS.
-(Ver Apéndice 1 al RAC-OPS 1.430, (e)(5) – Tabla 7)
+CA OPS al Apéndice 1 de la RAC-OPS 1.430, (e) (5) - TABLA 7 ACCIONES DE LA TRIPULACIÓN EN EL CASO DE FALLA DEL PILOTO AUTOMÁTICO EN O POR DEBAJO DE LA ALTURA DE DECISIÓN, EN OPERACIONES DE CAT III CONSISTEMAS PASIVOS ANTE FALLAS.
+(Ver Apéndice 1 al RAC-OPS 1.430, (e)(5) - Tabla 7)
 Esta CA es material explicativo e interpretativo que provee información adicional sobre fallas del piloto automático.
-En operaciones con valores de RVR menores de 300 m, se asume la realización de una ida al aire “go-around” en el caso de falla del piloto automático en, o por debajo, de la Altura de Decisión.
-Esto indica que la ida al aire “go-around” es la acción normal. Sin embargo se reconoce que puede haber circunstancias en la que acción más segura es continuar con el aterrizaje. Estas circunstancias incluyen la altura a la que ocurre la falla, las referencias visuales actuales, y otras deficiencias. Esto debería aplicarse generalmente a las últimas etapas de la nivelada (flare).
+En operaciones con valores de RVR menores de 300 m, se asume la realización de una ida al aire "go-around" en el caso de falla del piloto automático en, o por debajo, de la Altura de Decisión.
+Esto indica que la ida al aire "go-around" es la acción normal. Sin embargo se reconoce que puede haber circunstancias en la que acción más segura es continuar con el aterrizaje. Estas circunstancias incluyen la altura a la que ocurre la falla, las referencias visuales actuales, y otras deficiencias. Esto debería aplicarse generalmente a las últimas etapas de la nivelada (flare).
 En resumen, no se prohíbe continuar la aproximación y completar el aterrizaje cuando el piloto al mando o el piloto al que se haya delegado la realización del vuelo, determine que esa es la acción más segura.
 Las instrucciones operacionales deberían reflejar la información de esta MEI y la política del operador.
 CA OPS al Apéndice 1 de la RAC-OPS 1.430, (f) MANIOBRAS VISUALES (CIRCULANDO)
 (Ver Apéndice 1 a la RAC-OPS 1.430(f))
 Esta CA es material explicativo e interpretativo que provee información adicional sobre maniobras visuales.
 1 El objetivo de este MEI es suministrar a los operadores información complementaria con respecto a la aplicación de los mínimos de operación de aeródromos en las aproximaciones circulando.
-2 Realización de Vuelo – General
+2 Realización de Vuelo - General
 2.1 Para estos procedimientos, la visibilidad aplicable es la visibilidad meteorológica (VIS)
 2.2 Los mínimos de MDA/H y OCA/H incluidos en el procedimiento están relacionados con la elevación del aeródromo.
 3 Aproximación frustrada
@@ -7513,7 +7764,7 @@ Esta CA es material explicativo e interpretativo que provee información adicion
 1 El objetivo de este MEI es el de suministrar a los operadores información complementaria con respecto a los criterios de una aproximación y aterrizaje satisfactorio, al objeto de facilitar el cumplimiento con los requisitos establecidos en el Apéndice 1 de la RAC-OPS 1.440, párrafo (b).
 2 Una aproximación se puede considerar satisfactoria si:
 2.1 Desde 500 pies hasta el inicio de la nivelada (flare):
-a La velocidad es mantenida como se especifica en ACJ-AWO 231, párrafo 2 “Control de velocidad; y
+a La velocidad es mantenida como se especifica en ACJ-AWO 231, párrafo 2 "Control de velocidad; y
 b No ocurren fallas relevantes del sistema; y
 2.2 Desde 300 pies hasta DH:
 a No ocurre una desviación excesiva; y
@@ -7521,22 +7772,22 @@ b Ningún aviso (warning) centralizado dé una orden de ida la aire (go-around) 
 3 Un aterrizaje automático se considera satisfactorio si:
 a No ocurren fallas significativos en el sistema;
 b No ocurre una falla en la nivelada (flare);
-c No ocurre ninguna falla en el “de-crab” (si está instalado);
+c No ocurre ninguna falla en el "de-crab" (si está instalado);
 d Longitudinalmente la toma de contacto se produce entre un punto situado a 60 metros después del umbral y otro situado antes del final de la zona de luces de la toma de contacto (900 metros del umbral);
 e Lateralmente, en la toma de contacto el tren de aterrizaje principal no esté fuera del borde de las luces del eje de la zona de la toma de contacto;
 f El régimen de descenso (sink rate) no es excesivo;
 g El ángulo de alabeo no excede un límite de ángulo de alabeo; y
-h No ocurre ninguna falla de “roll-out” o desviación (si está instalado).
+h No ocurre ninguna falla de "roll-out" o desviación (si está instalado).
 CA al Apéndice de la RAC-OPS 1.450 (g) (1) OPERACIONES DE BAJA VISIBILIDAD - ENTRENAMIENTO Y CALIFICACIONES.
 (Ver Apéndice 1 a la RAC-OPS 1.450)
 Esta CA es material explicativo e interpretativo que provee información adicional sobre entrenamiento para operaciones de baja visibilidad.
 El número de aproximaciones a los que se hace referencia en el Apéndice 1 a la RAC-OPS 1.450 (g) (1) incluye una aproximación y aterrizaje que puede ser llevado a cabo en el avión usando procedimientos aprobados de Categoría II/III. Estas aproximaciones y aterrizajes pueden ser llevados a cabo en operaciones normales de línea o en vuelos de entrenamiento.
 Se asume que dichos vuelos serán llevados a cabo por pilotos calificados de acuerdo con la RAC-OPS 1.940 y habilitados para la categoría particular de operación.
-SUBPARTE F – PERFORMANCE GENERAL
-CA 1 a la RAC-OPS 1.475(b) ATERRIZAJE – CRÉDITOS POR USO DE REVERSIBLES.
+SUBPARTE F - PERFORMANCE GENERAL
+CA 1 a la RAC-OPS 1.475(b) ATERRIZAJE - CRÉDITOS POR USO DE REVERSIBLES.
 (Ver RAC-OPS 1.475(b))
 Esta CA es un método aceptable de cumplimiento sobre uso de reversibles.
-Los datos de distancia de aterrizaje incluidos en el AFM (o POH) con créditos por uso de reversibles únicamente pueden ser considerados para aprobación a los efectos de demostrar cumplimiento con los requisitos aplicables, si contienen una declaración especifica de la Autoridad que emitió el Certificado de Tipo, de que cumple con un código de aeronavegabilidad reconocido (p.ej. JAR/FAR 25, JAR/FAR 23, Secciones “D/F” de la BCAR de la UK CAA)
+Los datos de distancia de aterrizaje incluidos en el AFM (o POH) con créditos por uso de reversibles únicamente pueden ser considerados para aprobación a los efectos de demostrar cumplimiento con los requisitos aplicables, si contienen una declaración especifica de la Autoridad que emitió el Certificado de Tipo, de que cumple con un código de aeronavegabilidad reconocido (p.ej. JAR/FAR 25, JAR/FAR 23, Secciones "D/F" de la BCAR de la UK CAA)
 CA 2 a la RAC-OPS 1.475(b) ASPECTOS QUE AFECTEN LOS DATOS DE PERFORMANCE DE DISTANCIA DE ATERRIZAJE AUTOMÁTICO (SÓLO AVIONES DE PERFORMANCE CLASE A).
 (Ver RAC-OPS 1.475(b))
 Esta CA es material explicativo e interpretativo que provee información adicional sobre distancia de aterrizaje.
@@ -7544,7 +7795,7 @@ Esta CA es material explicativo e interpretativo que provee información adicion
 a. El peso de aterrizaje determinada de acuerdo con las RAC-OPS 1.515(a)(1) o RACOPS 1.520 según corresponda; o
 b. El peso de aterrizaje correspondiente a la distancia con aterrizaje automático para la condición apropiada de la superficie tal como figure en el AFM, o documento equivalente.
 También deben incluirse incrementos debidos a las características del sistema tal como localización del haz de luz o elevaciones, o procedimientos tales como el uso de sobre velocidad.
-SUBPARTE G – PERFORMANCE CLASE A
+SUBPARTE G - PERFORMANCE CLASE A
 CA OPS 1.485(b) GENERAL - DATOS DE PISTA MOJADA Y CONTAMINADA.
 (Ver RAC-OPS 1.485(b))
 Esta CA es material explicativo e interpretativo que provee información adicional sobre pista mojada y contaminada.
@@ -7560,17 +7811,14 @@ CA OPS 1.490(c) (6) PÉRDIDA DE LONGITUD DE PISTA DEBIDO AL ALINEAMIENTO-
 Esta CA es material explicativo e interpretativo que provee información adicional sobre alineamiento.
 1 Introducción
 1.1 La longitud de pista que se declara para el cálculo de TODA, ASDA, y TORA, no tiene en cuenta el alineamiento del avión en la dirección del despegue de la pista en uso. Esta distancia de alineamiento depende de la geometría del avión y de la posibilidad de acceso de la pista en uso. De manera general se requiere acceder a una pista desde una calle de rodaje a 90 grados, y hacer un giro de 180 grados en la pista. Se deben considerar dos distancias:
-a “L” distancia mínima desde el tren principal hasta el inicio de la pista para determinar TODA y TORA; y
-b “N” distancia mínima desde el tren delantero hasta el inicio de la pista para determinarASDA.
-[imagen]
+a "L" distancia mínima desde el tren principal hasta el inicio de la pista para determinar TODA y TORA; y
+b "N" distancia mínima desde el tren delantero hasta el inicio de la pista para determinarASDA.
 Cuando el fabricante del avión no ha proporcionado los datos adecuados, puede utilizarse el método de cálculo especificado en el apartado 2 para determinar la distancia de alineamiento
 2 Cálculo de la distancia de alineamiento
-[imagen]
 Las distancias mencionadas en (a) y (b) del apartado 1 anterior son:
 | ENTRADA A 90° | GIRO DE 180°
 L= | RM + X | RN + Y
 N= | RM + X + WB | RN + Y + WB
-[imagen]
 NOTA: Las distancias mínimas al eje de seguridad para X e Y están especificadas en FAA AC 150/5300- 13 y OACI Anexo 14, párrafo 3.8.3
 RN = Radio de giro del tren de nariz externo.
 RM = Radio de giro del tren principal externo.
@@ -7611,15 +7859,14 @@ d Deberían especificarse las condiciones limitantes del ambiente (tales como vi
 CA OPS 1.495 (f) PROCEDIMIENTOS EN CASO DE FALLA DE MOTOR.
 (Ver RAC-OPS 1.495 (f))
 Esta CA es material explicativo e interpretativo que provee información adicional sobre procedimientos con falla de motor.
-Si el cumplimiento con RAC-OPS 1.495 (f) se basa en una falla de motor en ruta, que difiere de la ruta de salida con todos los motores operativos, o salida normal SID, se debe identificar un "punto de desviación” como aquel en el que la ruta con un motor inoperativo se desvía de la ruta de salida normal. Normalmente debería estar disponible el franqueamiento de obstáculos adecuado a lo largo de la salida normal con falla del motor crítico en el punto de desviación. Sin embargo, en ciertas situaciones el franqueamiento del obstáculo a lo largo de la ruta de la salida normal podría ser marginal y debería verificarse para garantizar que, en caso de un motor después del punto de la desviación, el vuelo puede seguir con seguridad a lo largo de la salida normal.
-CA OPS 1.500 EN RUTA – UN MOTOR INOPERATIVO.
+Si el cumplimiento con RAC-OPS 1.495 (f) se basa en una falla de motor en ruta, que difiere de la ruta de salida con todos los motores operativos, o salida normal SID, se debe identificar un "punto de desviación" como aquel en el que la ruta con un motor inoperativo se desvía de la ruta de salida normal. Normalmente debería estar disponible el franqueamiento de obstáculos adecuado a lo largo de la salida normal con falla del motor crítico en el punto de desviación. Sin embargo, en ciertas situaciones el franqueamiento del obstáculo a lo largo de la ruta de la salida normal podría ser marginal y debería verificarse para garantizar que, en caso de un motor después del punto de la desviación, el vuelo puede seguir con seguridad a lo largo de la salida normal.
+CA OPS 1.500 EN RUTA - UN MOTOR INOPERATIVO.
 (Ver RAC-OPS 1.500)
 Esta CA es un método aceptable de cumplimiento sobre motor inoperativo en ruta.
 1. El análisis de obstáculos o elevación del terreno requerido para mostrar el cumplimiento con la RAC-OPS 1.500 se puede efectuar de dos maneras, según se explica en los tres párrafos siguientes:
 2. Un análisis detallado de la ruta se debe efectuar utilizando mapas con curvas de nivel de elevación del terreno y trazando, a lo largo de la ruta, los puntos más elevados en el ancho requerido del corredor. El siguiente paso es determinar de si es posible mantener el nivel de vuelo con un motor inoperativo a 1000 pies por encima del punto más alto de la travesía. Si ello no fuera posible, o si las penalizaciones de carga asociadas fueran inaceptables, se debería calcular un procedimiento de deriva de descenso (driftdown), basándose en la falla del motor en el punto más crítico y franqueando los obstáculos críticos durante la deriva de descenso, como mínimo por 2000 pies. La altitud mínima de crucero se determina por la intersección de las dos trayectorias de deriva de descenso, teniendo en cuenta las tolerancias para la toma de decisión (véase Figura 1). Este método es laborioso y requiere la disponibilidad de mapas del terreno detallados.
 3. Alternativamente, se podrían utilizar las altitudes mínimas de vuelo publicadas (Altitud Mínima de Ruta, MEA o Altitud Mínima fuera de la Ruta, MORA) para determinar si es posible mantener el nivel de vuelo con un motor inoperativo a la altitud mínima de vuelo, o si es necesario utilizar las altitudes mínimas de vuelo publicadas como base para la construcción de la deriva de descenso (ver Figura 1). Este procedimiento evita un análisis detallado de las curvas de nivel de la elevación del terreno, pero puede producir mayores penalizaciones que cuando se tiene en cuenta el perfil real del terreno según se indica en el párrafo 2.
 4 Para cumplir con RAC-OPS 1.500(c), un medio de cumplimiento aceptable es la utilización de la MORA y, con RAC-OPS 1.500(d), la MEA, siempre que el avión cumpla con los estándares de equipo de navegación implícitos en la definición de la MEA.
-[imagen]
 Nota: MEA o MORA normalmente proporcionan el franqueamiento de obstáculos requerido de 2000 pies para el descenso en crucero. Sin embargo, en y por debajo de una altitud de 6000 pies, MEA y MORA no se pueden utilizar directamente puesto que sólo se asegura un franqueamiento de 1000 pies.
 CA OPS 1.510(b) y (c) ATERRIZAJE - AERÓDROMOS DE DESTINO Y ALTERNOS.
 (Ver RAC-OPS 1.510(b) y(c)
@@ -7636,7 +7883,7 @@ Esta CA es material explicativo e interpretativo que provee información adicion
 2. Primero, el peso del avión será tal que a la llegada pueda aterrizar en el 60% o 70% (según el caso) de la distancia de aterrizaje disponible en la pista más favorable (normalmente la más larga) con aire en calma. Con independencia de las condiciones del viento, no se podrá exceder el peso máximo de aterrizaje para una configuración aeródromo / avión en un aeródromo determinado.
 3 Segundo, se deben tener en cuenta las condiciones y circunstancias esperadas. El viento esperado, o procedimientos ATC y el procedimiento de atenuación de ruido, pueden aconsejar la utilización de otra pista. Estos factores pueden dan lugar a un peso de aterrizaje inferior de la que se permite en el anterior párrafo 2, en cuyo caso, para demostrar cumplimiento con RAC-OPS 1.515(a), el despacho debería basarse en esta peso menor.
 4. El viento esperado al que se hace referencia en el párrafo 3 es el viento que se espera que exista en el momento de la llegada.
-SUBPARTE H – PERFORMANCE CLASE B
+SUBPARTE H - PERFORMANCE CLASE B
 CA OPS 1.527 ORIENTACIÓN ADICIONAL PARA OPERACIONES APROBADAS DE AVIONES MONOMOTORES DE TURBINA POR LA NOCHE O EN CONDICIONES METEOROLÓGICAS DE VUELO POR INSTRUMENTOS (IMC)
 1. Objetivo y alcance
 El objetivo de la presente CA es proporcionar orientación adicional relativa a los requisitos de aeronavegabilidad y operacionales descritos en la RAC-OPS 1.527 y su apéndice, que ha sido concebido para satisfacer el nivel general de seguridad operacional previsto en operaciones aprobadas de aviones monomotores de turbina por la noche o en IMC.
@@ -7670,7 +7917,7 @@ especificada en el Certificado de Operador Aéreo (COA), o documento equivalente
 6.1 Los Operadores de aviones monomotores de turbina que realicen operaciones nocturnas o en IMC deben efectuar una evaluación de las limitaciones aplicables a rutas sobre extensiones de agua. Debe determinarse la distancia a la que el avión está autorizado a realizar operaciones desde una masa terrestre conveniente para un aterrizaje forzoso en condiciones de seguridad, la cual es igual a la distancia de planeo desde la altitud de crucero hasta el área de aterrizaje forzoso segura después de falla del motor, suponiéndose condiciones de aire en calma. La DGAC puede añadir a esta distancia una longitud adicional teniendo en cuenta la probabilidad de las condiciones reinantes y el tipo de operación. En esto debe tenerse en cuenta las condiciones probables del estado del mar, el equipo de supervivencia transportado, la fiabilidad del motor lograda y la disponibilidad de servicios de búsqueda y salvamento.
 6.2 Cualquier distancia adicional autorizada más allá de la distancia de planeo no debería exceder de una distancia equivalente a 15 minutos de vuelo a la velocidad normal de crucero del avión.
 CA 1 al Apéndice 1 de la RAC-OPS 1.527(f) PLANIFICACIÓN DEL OPERADOR
-(a) En este contexto un aterrizaje forzoso en condiciones de “seguridad” significa un aterrizaje en un área en la que pueda razonablemente esperarse que no conduzca a graves lesiones o pérdida de vidas, incluso cuando el avión pueda sufrir amplios daños.
+(a) En este contexto un aterrizaje forzoso en condiciones de "seguridad" significa un aterrizaje en un área en la que pueda razonablemente esperarse que no conduzca a graves lesiones o pérdida de vidas, incluso cuando el avión pueda sufrir amplios daños.
 (b) En la planificación del Operador, no se exige, para aviones aprobados de conformidad con el RAC OPS 1.527, una operación a lo largo de rutas en condiciones meteorológicas que permitan un aterrizaje forzoso en condiciones de seguridad en caso de falla de motor, como se indica en el RAC OPS 1.525(a)(1) y (2). Para estos aviones no se especifica la disponibilidad de zonas seguras para efectuar aterrizajes forzosos en todos los puntos a lo largo de una ruta debido al alto grado de fiabilidad del motor, así como a los sistemas y equipo operacional adicionales, procedimientos y requisitos de instrucción que se especifican en esta DGAC.
 CA 1 a la RAC-OPS 1.530(c) (4) FACTORES DE CORRECCIÓN DE PERFORMANCE EN EL DESPEGUE-
 (Ver RAC-OPS 1.530(c) (4))
@@ -7702,7 +7949,6 @@ Esta CA es un método aceptable de cumplimiento sobre franqueamiento de obstácu
 1. Introducción. Para demostrar que un avión franquea verticalmente todos los obstáculos, se debería construir una trayectoria de vuelo que consista en un segmento con todos los motores operativos hasta la altura en que se supone la falla de motor, seguido de un segmento con motor inoperativo. Cuando el Manual de vuelo del avión no contiene los datos adecuados, se podrá utilizar la aproximación que se da en el párrafo 2 siguiente para el segmento con todos los motores operativos, asumiendo que la altura en la que se supone la falla del motor es de 200 pies, 300 pies o mayor.
 2 Construcción de la trayectoria de vuelo
 2.1 Segmento con todos los motores operativos (50 pies a 300 pies). El gradiente medio con todos los motores operativos para el segmento de trayectoria de vuelo con todos los motores operativos comienza a una altitud de 50 pies al final de la distancia de despegue y termina en, o pasa por, el punto a 300 pies se obtiene con la siguiente fórmula:
-[imagen]
 NOTA: El factor de corrección de 0.77 que requiere RAC-OPS 1 .535(a) (4) ya está incluido, siendo:
 Y300 = Gradiente medio con todos los motores operativos entre 50 pies y 200 pies
 YERC = Gradiente bruto de ascenso en ruta programado con todos los motores operativos
@@ -7710,7 +7956,6 @@ VERC = Velocidad de ascenso en ruta, todos los motores operativos (en nudos, TAS
 V2 = Velocidad de despegue a 50 pies (en nudos, TAS)
 (Véase CA OPS 1.535(a), Figura 1a para una presentación gráfica)
 2.2 Segmento con todos los motores operativos (50 pies a 200 pies). (Se podrá utilizar como alternativa a 2.1 cuando lo permitan los mínimos meteorológicos). El gradiente medio con todos los motores operativos para el segmento de trayectoria de vuelo con todos los motores operativos comienza a una altitud de 50 pies al final de la distancia de despegue y termina en, o pasa por, el punto a 200 pies se obtiene con la siguiente fórmula:
-[imagen]
 NOTA: El factor de corrección de 0.77 que requiere RAC-OPS 1 .535(a) (4) ya está incluido, siendo:
 Y300 = Gradiente medio con todos los motores operativos entre 50 pies y 200 pies
 YERC = Gradiente bruto de ascenso en ruta programado con todos los motores operativos
@@ -7730,30 +7975,25 @@ Velocidad de ascenso en ruta, VERC: | 120 nudos
 Gradiente de ascenso en ruta con todos los motores operativos, YERC: | 0,200
 Gradiente de ascenso en ruta con un motor inoperativo, YERC-1: | 0,032
 a Suponiendo que la falla del motor se produce a 300 pies. El gradiente medio con todos motores operativos desde 50 pies a 300 pies puede leerse en la Figura 1a, o calcularse con la siguiente fórmula:
-[imagen]
 NOTA: El factor de corrección de 0.77 que requiere RAC-OPS 1 .535(a) (4) ya está incluido, siendo
 Y300 = Gradiente medio con todos los motores operativos entre 50 pies y 300 pies
 YERC = Gradiente bruto de ascenso en ruta programado con todos los motores operativos
 VERC = Velocidad de ascenso en ruta, todos los motores operativos (en nudos, TAS)
 V2 = Velocidad de despegue a 50 pies (en nudos, TAS)
-[imagen]
 b Suponiendo que la falla del motor se produce a 200 pies. El gradiente medio con todos motores operativos desde 50 pies a 200 pies puede leerse en la Figura (1b) o calcularse con la siguiente fórmula:
-[imagen]
 NOTA: El factor de corrección de 0.77 que requiere RAC-OPS 1 .535(a)(4) ya está incluido, siendo:
 Y200 = Gradiente medio con todos los motores operativos entre 50 pies y 200 pies
 YERC = Gradiente bruto de ascenso en ruta programado con todos los motores operativos
 VERC = Velocidad de ascenso en ruta, todos los motores operativos (en nudos, TAS)
 V2 = Velocidad de despegue a 50 pies (en nudos, TAS)
-[imagen]
 c Suponiendo que la falla del motor se produce a una altura menor de 200 pies. Sólo será posible la construcción de una trayectoria de vuelo de despegue si el AFM contiene los datos requeridos para la trayectoria de vuelo.
 d Suponiendo que la falla del motor se produce a una altura de más de 300 pies. Se muestra a continuación la construcción de una trayectoria de vuelo para una altura supuesta de falla de motor de 400 pies.
-[imagen]
 CA OPS 1.540 EN RUTA.
 (Ver RAC-OPS 1.540)
 Esta CA es material explicativo e interpretativo que provee información adicional sobre franqueamiento de obstáculos.
 1 La altitud en la que el régimen de ascenso sea de 300 pies por minuto, no es una restricción de la altitud máxima de crucero a la que el avión puede volar en la práctica, es solamente la altitud máxima desde la que se puede planificar el inicio del procedimiento de deriva de descenso (drift-down).
 2 Se puede planificar el franqueamiento de obstáculos en ruta suponiendo un procedimiento de deriva de descenso (drift-down), si primero se incrementa con un gradiente del 0.5% los datos programados de descenso en ruta con un motor inoperativo.
-CA OPS 1.542 EN RUTA – AVIONES MONO-MOTORES.
+CA OPS 1.542 EN RUTA - AVIONES MONO-MOTORES.
 (Ver RAC-OPS 1.542)
 Esta CA es material explicativo e interpretativo que provee información adicional sobre falla de motor en ruta
 1 En caso de una falla de motor, los aviones monomotores tienen que planear hasta un punto adecuado para un aterrizaje forzoso seguro. Este procedimiento es claramente incompatible con volar por encima de una capa de nubes que se extiende por debajo de la altitud mínima de seguridad correspondiente.
@@ -7790,8 +8030,6 @@ CA OPS 1.555(a) ATERRIZAJE SOBRE PISTAS DE ZACATE MOJADO.
 Esta CA es material explicativo e interpretativo que provee información adicional sobre aterrizaje en pistas de zacate.
 1 Cuando se aterriza sobre zacate muy corto, y está mojado, y con un subsuelo firme, la superficie podría estar resbaladiza por lo que las distancias se podrían aumentar hasta un 60% (factor 1.60).
 2 En el caso de que el piloto tenga dificultades en determinar hasta qué punto está mojado el zacate, especialmente desde el aire, en casos de duda, se recomienda el uso del factor (1.15) para zacate mojado.
-[imagen]
-[imagen]
 SUBPARTE I - PERFORMANCE CLASE C
 CA OPS 1.565(d) (3) DESPEGUE.
 (Ver RAC-OPS 1. 565(d)(3))
@@ -7806,9 +8044,8 @@ CA OPS 1.565(d) (6) PÉRDIDA DE LONGITUD DE PISTA DEBIDO AL ALINEAMIENTO.
 Esta CA es material explicativo e interpretativo que provee información adicional sobre alineamiento.
 1 Introducción
 1.1 La longitud de pista que se declara para el cálculo de TODA, ASDA, y TORA, no tiene en cuenta el alineamiento del avión en la dirección del despegue de la pista en uso. Esta distancia de alineamiento depende de la geometría del avión y de la posibilidad de acceso dela pista en uso. De manera general se requiere ingresar a una pista desde una calle de rodaje a 90 grados, y hacer un giro de 180 grados en la pista. Se deben considerar dos distancias:
-a “L” distancia mínima desde el tren principal hasta el inicio de la pista para determinar TODA y TORA; y
-b “N” distancia mínima desde el tren delantero hasta el inicio de la pista para determinar ASDA.
-[imagen]
+a "L" distancia mínima desde el tren principal hasta el inicio de la pista para determinar TODA y TORA; y
+b "N" distancia mínima desde el tren delantero hasta el inicio de la pista para determinar ASDA.
 Cuando el fabricante del avión no ha proporcionado los datos adecuados, puede utilizarse el método de cálculo especificado en el apartado 2 para determinar la distancia de alineamiento.
 2. Cálculo de la distancia de alineamiento
 [imagen]
@@ -7817,7 +8054,6 @@ Las distancias que se mencionan en (a) y (b) del párrafo 1 anterior son:
 | ENTRADA A 90° | GIRO DE 180°
 L= | RM + X | RN + Y
 N= | RM + X + WB | RN + Y + WB
-[imagen]
 y RM = B + WM = WB tan (90°-α) + WM
 X = Distancia de seguridad desde el tren principal externo durante el giro al borde de la pista
 Y = Distancia de seguridad desde el tren de nariz externo durante el giro al borde de la pista
@@ -7853,7 +8089,6 @@ CA OPS 1.580 EN RUTA - UN MOTOR INOPERATIVO.
 Esta CA es un método aceptable de cumplimiento sobre cálculos en ruta, un motor inoperativo.
 El análisis de elevación del terreno u obstáculos que se requiere para demostrar cumplimiento con la RAC-OPS 1.580 se puede efectuar mediante un análisis detallado de la ruta utilizando mapas con curvas de nivel de elevación del terreno y trazando, a lo largo de la ruta, los puntos más elevados en la anchura requerida del corredor. El siguiente paso es determinar si es posible mantener el nivel de vuelo con un motor inoperativo a 1000 pies por encima del punto más alto del cruce. Si ello no fuera posible, o si las penalizaciones de carga asociadas fueran inaceptables, se debería calcular un procedimiento de deriva de descenso (driftdown), basándose en la falla del motor en el punto más crítico y franqueando los obstáculos críticos durante la deriva de descenso, como mínimo, en 2000 pies. La altitud mínima de crucero se determina desde la trayectoria de la deriva de descenso, teniendo en cuenta las tolerancias
 para la toma de decisión y la reducción del régimen de ascenso programado (véase Figura 1).
-[imagen]
 CA OPS 1.590 y 1.595 ATERRIZAJE - AERÓDROMOS DE DESTINO Y ALTERNOS ATERRIZAJE - PISTAS SECAS.
 (Ver RAC-OPS 1.590 y 1.595)
 Esta CA es un método aceptable de cumplimiento sobre aterrizaje en pistas secas.
@@ -7876,17 +8111,17 @@ Esta CA es material explicativo e interpretativo que provee información adicion
 2. Primero, el peso del avión será tal que a la llegada pueda aterrizar en el 70% de la distancia de aterrizaje disponible en la pista más favorable (normalmente la más larga) con el aire en calma. Independientemente de las condiciones del viento, no se podrá exceder el peso máximo de aterrizaje para una configuración de aeródromo/avión en un aeródromo determinado.
 3. Segundo, se deben tener en cuenta las condiciones y circunstancias esperadas. El viento esperado, o procedimientos ATC y de atenuación de ruido, pueden aconsejar la utilización de otra pista. Estos factores pudieran dar lugar a un peso de aterrizaje inferior que la permitida de acuerdo con el anterior párrafo 2, en cuyo caso, para demostrar cumplimiento con la RAC-OPS 1.595(a), el despacho debería basarse en ese peso menor.
 4. El viento esperado al que se hace referencia en el párrafo 3 es el viento cuya existencia se espera que exista en el momento de la llegada.
-SUBPARTE J – PESO Y BALANCE
+SUBPARTE J - PESO Y BALANCE
 CA OPS 1.605 VALORES DE PESO.
 (Ver RAC-OPS 1.605)
 Esta CA es material explicativo e interpretativo que provee información adicional sobre valores de peso.
-De acuerdo con OACI Anexo 5 y el Sistema de Unidades Internacional (SI), el peso actual y pesos límites de los aviones, la carga de pago (payload) y sus elementos constituyentes, la carga de combustible, son expresados en la RAC-OPS 1 en unidades de peso (kg.). Sin embargo, en la mayoría de Manuales de Vuelo aprobados y otros documentos operacionales, estas cantidades son publicadas como “pesos” de acuerdo con el lenguaje común. En el sistema SI, un peso es una fuerza y no un peso. Ya que el uso del término “peso” no es causa de ningún problema en el manejo del día a día de los aviones, se acepta su uso continuo en aplicaciones y publicaciones operacionales.
+De acuerdo con OACI Anexo 5 y el Sistema de Unidades Internacional (SI), el peso actual y pesos límites de los aviones, la carga de pago (payload) y sus elementos constituyentes, la carga de combustible, son expresados en la RAC-OPS 1 en unidades de peso (kg.). Sin embargo, en la mayoría de Manuales de Vuelo aprobados y otros documentos operacionales, estas cantidades son publicadas como "pesos" de acuerdo con el lenguaje común. En el sistema SI, un peso es una fuerza y no un peso. Ya que el uso del término "peso" no es causa de ningún problema en el manejo del día a día de los aviones, se acepta su uso continuo en aplicaciones y publicaciones operacionales.
 CA OPS 1.605(b) LIMITACIONES DE UTILIZACIÓN DE LA PERFORMANCE DEL AVIÓN
 La finalidad de esta CA es proporcionar orientación en cuanto al nivel de performance, aplicables a los aviones subsónicos de transporte propulsados por turbinas, de más de 5 700 kg de masa máxima certificada de despegue con dos o más motores. Sin embargo, en los casos pertinentes, puede aplicarse a todos los aviones subsónicos, bien sean de turbina o de motores de émbolo con dos, tres o cuatro motores. Los aviones con motor de pistón que tienen dos, tres o cuatro motores y que no puedan cumplir con esta CA pueden seguirse operando de acuerdo con los Ejemplos 1 o 2 de esta DGAC.
 Nota. Esta CA no está destinada a aplicarse a los aviones de despegue y aterrizaje cortos (STOL), ni a los de despegue y aterrizaje verticales (VTOL).
 2. Definiciones
 Altura. Distancia vertical entre un nivel, punto u objeto considerado como punto, y una referencia especificada.
-Nota. — Para los fines de este ejemplo, el punto a que anteriormente se hace referencia es la parte más baja del avión, y la referencia especificada es la superficie de despegue o aterrizaje, según el caso.
+Nota. - Para los fines de este ejemplo, el punto a que anteriormente se hace referencia es la parte más baja del avión, y la referencia especificada es la superficie de despegue o aterrizaje, según el caso.
 CAS (velocidad aerodinámica calibrada). Es igual a la lectura del indicador de velocidad aerodinámica corregida por error de posición y de instrumento. (Como resultado de la corrección de compresibilidad adiabática al nivel del mar, aplicada a las lecturas del anemómetro, CAS es igual a la velocidad aerodinámica verdadera (TAS) en la atmósfera tipo al nivel del mar).
 Condición de la superficie de la pista. El estado en el que se encuentra la superficie de la pista: seca, mojada o contaminada:
 a) Pista contaminada. Una pista está contaminada cuando más del 25% de su superficie (en una sola zona o en zonas aisladas), dentro de la longitud y anchura requeridas en uso, está cubierto de:
@@ -7912,15 +8147,15 @@ Superficie de aterrizaje. La parte de la superficie del aeródromo que la jefatu
 Superficie de despegue. La parte de la superficie del aeródromo que la jefatura del mismo haya declarado como utilizable para el recorrido normal, en tierra o en el agua, de las aeronaves que despeguen en un sentido determinado.
 TAS (velocidad aerodinámica verdadera). La velocidad del avión en relación con el aire en calma.
 Temperatura declarada. Temperatura seleccionada en una forma tal que cuando se utiliza para fines de performance, en una serie de operaciones, el nivel medio de seguridad operacional no es inferior al que se obtendría utilizando temperaturas de pronósticos oficiales.
-Vs0. Velocidad de pérdida o velocidad mínima de vuelo uniforme en configuración de aterrizaje. (Nota.— Véase el Ejemplo 1, 2.4).
-Vs1. Velocidad de pérdida o velocidad mínima de vuelo uniforme. (Nota. — Véase el Ejemplo 1, 2.5).
-Nota 1. — Véanse otras definiciones en el Capítulo 1 y en los Anexos 8 y 14, Volumen I de la OACI.
-Nota 2. — Los términos de “distancia de aceleración-parada”, “distancia de despegue”, “V1”, “recorrido de despegue”, “trayectoria neta de vuelo en el despegue”, “trayectoria neta de vuelo en ruta con un motor inactivo” y “trayectoria neta de vuelo en ruta con dos motores inactivos”, en lo que atañen al avión, son conceptos cuyo significado se define en los requisitos de aeronavegabilidad respecto de los cuales se certificó el avión. Si se encuentra que alguna de estas definiciones es inadecuada, deberá utilizarse una definición que especifique la DGAC.
+Vs0. Velocidad de pérdida o velocidad mínima de vuelo uniforme en configuración de aterrizaje. (Nota.- Véase el Ejemplo 1, 2.4).
+Vs1. Velocidad de pérdida o velocidad mínima de vuelo uniforme. (Nota. - Véase el Ejemplo 1, 2.5).
+Nota 1. - Véanse otras definiciones en el Capítulo 1 y en los Anexos 8 y 14, Volumen I de la OACI.
+Nota 2. - Los términos de "distancia de aceleración-parada", "distancia de despegue", "V1", "recorrido de despegue", "trayectoria neta de vuelo en el despegue", "trayectoria neta de vuelo en ruta con un motor inactivo" y "trayectoria neta de vuelo en ruta con dos motores inactivos", en lo que atañen al avión, son conceptos cuyo significado se define en los requisitos de aeronavegabilidad respecto de los cuales se certificó el avión. Si se encuentra que alguna de estas definiciones es inadecuada, deberá utilizarse una definición que especifique la DGAC.
 3. Generalidades
 3.1 Se deben cumplir las disposiciones de las Secciones 4 a 7, a menos que la DGAC autorice específicamente diferencias respecto de ellas en caso de que circunstancias especiales hagan innecesaria para la seguridad operacional la aplicación literal de dichas disposiciones.
 3.2 Para el cumplimiento de las disposiciones de las Secciones 4 a 7, se debe determinar utilizando los datos relativos a la performance consignados en el manual de vuelo y de conformidad con otros requisitos de utilización aplicables. En ningún caso se excederán las limitaciones establecidas en el manual de vuelo. Sin embargo, podrán aplicarse limitaciones adicionales cuando se encuentren condiciones operacionales que no se hayan incluido en el manual de vuelo. Los datos relativos a la performance que figuran en el manual de vuelo pueden complementarse con otros datos que resulten aceptables para la DGAC, de ser necesario, a fin de cumplir con las secciones 4 a 7. Al aplicar los factores prescritos en este adjunto, deberán considerarse los factores operacionales ya incorporados a los datos del manual de vuelo para evitar duplicar la aplicación de los factores.
 3.3 Deben seguir los procedimientos consignados en el manual de vuelo, excepto cuando las circunstancias operacionales exijan el uso de procedimientos modificados a fin de mantener el grado de seguridad operacional deseado.
-Nota. — Véase el Manual de aeronavegabilidad de la OACI (Doc. 9760), en lo relativo al texto de orientación sobre performance de aeronavegabilidad correspondiente.
+Nota. - Véase el Manual de aeronavegabilidad de la OACI (Doc. 9760), en lo relativo al texto de orientación sobre performance de aeronavegabilidad correspondiente.
 4. Limitaciones en la performance de despegue del avión
 4.1 Ningún avión debe iniciar el despegue con una masa que exceda de la masa de despegue especificada en el manual de vuelo para la altitud del aeródromo y para la temperatura ambiente en el momento del despegue.
 4.2 Ningún avión debe iniciar el despegue con una masa tal que, teniendo en cuenta el consumo normal de combustible y de aceite para llegar al aeródromo de destino y a los aeródromos de alternativa de destino, la masa a la llegada sobrepase la masa de aterrizaje especificada en el manual de vuelo para la altitud de cada uno de los aeródromos considerados y para las temperaturas ambientes previstas en el momento del aterrizaje.
@@ -7960,7 +8195,7 @@ Excepto en los casos en que un avión de tres o más motores cumpla con las disp
 6.2.1.2.3 Se permite el vaciado de combustible en vuelo en la medida que ello no impida llegar al aeródromo con suficientes reservas de combustible, y si se utiliza un procedimiento que no ofrezca peligro.
 6.2.1.2.4 El aeródromo en el que se supone ha de aterrizar el avión después de la falla de motor se especifica en el plan de vuelo, y ha de satisfacer los mínimos apropiados de utilización del aeródromo para el tiempo de uso previsto.
 6.2.1.2.5 El consumo de combustible y de aceite después de que se ha parado un motor es el que se ha tenido en cuenta para establecer los datos relativos a la trayectoria neta de vuelo consignados en el manual de vuelo.
-6.3 Dos motores inactivos — aviones con tres o más motores
+6.3 Dos motores inactivos - aviones con tres o más motores
 6.3.1 Los aviones que no cumplan las disposiciones de 6.1 deberían cumplir las de 6.3.1.1.
 6.3.1.1 Ningún avión debe iniciar el despegue con una masa que exceda de la que, de acuerdo con los datos relativos a la trayectoria neta de vuelo en ruta con dos motores inactivos, indicados en el manual de vuelo, permita al avión continuar su vuelo, desde el punto en el que se supone que los dos motores fallan simultáneamente hasta un aeródromo que se ajuste a la especificación de distancia de aterrizaje prevista para los aeródromos de alternativa (véase 7.3) y donde ha de esperarse que se pueda efectuar un aterrizaje sin peligro, franqueando dicha trayectoria neta de vuelo, con un margen vertical de por lo menos 600 m (2 000 ft), todo el terreno y los obstáculos situados a lo largo de la ruta hasta 9,3 km (5 NM) a cada lado de la derrota prevista. La trayectoria neta de vuelo considerada corresponde a las temperaturas atmosféricas previstas a lo largo de la ruta. En altitudes y condiciones meteorológicas en que puede que haya que utilizar los sistemas antihielos, han de tenerse en cuenta los efectos de su utilización en los datos relativos a la trayectoria neta de vuelo. Son aplicables las disposiciones de 6.3.1.1.1 a 6.3.1.1.5 inclusive.
 6.3.1.1.1 Se supone que los dos motores fallan en el punto más crítico de la parte de la ruta en que el avión está a más de 90 minutos de vuelo, a la velocidad normal de crucero, de un aeródromo que se ajuste a la especificación de distancia de aterrizaje prevista para los aeródromos de alternativa (véase 7.3) donde se espera que podrá hacerse un aterrizaje seguro.
@@ -7969,7 +8204,7 @@ Excepto en los casos en que un avión de tres o más motores cumpla con las disp
 6.3.1.1.4 Se considera que la masa del avión en el punto en que se supone que fallan los dos motores no es inferior a la masa que incluya una cantidad de combustible suficiente para proseguir el vuelo, y llegar hasta el aeródromo a una altitud de por lo menos 450 m (1 500 ft) directamente sobre el área de aterrizaje y después poder volar durante 15 minutos a la potencia o empuje de crucero.
 6.3.1.1.5 El consumo de combustible y de aceite después de que se paren los motores es el que se ha tenido en cuenta para establecer los datos relativos a la trayectoria neta de vuelo consignados en el manual de vuelo.
 7. Limitaciones de aterrizaje
-7.1 Aeródromo de destino — pistas secas
+7.1 Aeródromo de destino - pistas secas
 7.1.1 Ningún avión debe iniciar el despegue con una masa que exceda de la que permita que el avión realice un aterrizaje completo en el aeródromo de destino provisto de 15,2 m (50 ft) por encima del umbral:
 a) para aviones impulsados por turborreactor, dentro del 60% de la distancia de aterrizaje disponible; y
 b) para aviones de turbohélice, dentro del 70% de la distancia de aterrizaje disponible.
@@ -7981,7 +8216,7 @@ Se supone que la masa del avión se ha reducido en la masa del combustible y ace
 a) la altitud de presión del aeródromo;
 b) la pendiente de la pista en la dirección del aterrizaje si es mayor que +-2,0%; y
 c) no más del 50% de la componente de viento de frente y no menos del 150% de la componente de viento de cola.
-7.2 Aeródromo de destino — pistas mojadas o contaminadas
+7.2 Aeródromo de destino - pistas mojadas o contaminadas
 7.2.1 Cuando los informes o pronósticos meteorológicos apropiados o una combinación de ellos indiquen que a la hora estimada de llegada la pista puede encontrarse mojada, la distancia de aterrizaje disponible será 115% de la distancia de aterrizaje requerida que se determina de conformidad con 7.1.
 7.2.2 Puede utilizarse una distancia de aterrizaje en una pista mojada más corta de lo que se requiere en 7.2.1, pero no más corta de lo que se estipula en 7.1, si el manual de vuelo incluye información adicional específica sobre la distancia de aterrizaje en pistas mojadas.
 7.2.3 Cuando los informes o pronósticos meteorológicos apropiados o una combinación de ellos indiquen que a la hora estimada de llegada la pista puede encontrarse contaminada, la distancia de aterrizaje disponible será la mayor de las siguientes:
@@ -7996,16 +8231,16 @@ Ejemplo núm. 1
 1. Finalidad y alcance
 La finalidad del ejemplo citado a continuación es ilustrar el nivel de performance, aplicable a los tipos de aviones descritos a continuación.
 Las normas y métodos recomendados del Anexo 6 de la OACI que surtieron efecto el 14 de julio de 1949, contenían especificaciones similares a las adoptadas por algunos Estados contratantes para inclusión en sus códigos nacionales de performance. Se ha construido un número apreciable de aviones de transporte civil y se utilizan de acuerdo con estos códigos.
-Dichos aviones están propulsados por motores alternativos, incluso los “turbo-compound”. Comprenden aviones bimotores y cuatrimotores, con una masa que fluctúa de 4 200 kg a 70 000 kg aproximadamente, con una velocidad de pérdida, VS0 de 100 a 175 km/h (55 a 95 kt) aproximadamente y una carga alar de aproximadamente 120 a 360 kg/m2. La gama de velocidades de crucero sobrepasa los 555 km/h (300 kt). Estos aviones se han empleado en una amplia gama de condiciones de altitud, temperatura y humedad del aire. En fecha posterior, el código se ha aplicado con respecto a la evaluación u homologación de la denominada primera generación de aviones propulsados por turbohélices y turborreactores.
+Dichos aviones están propulsados por motores alternativos, incluso los "turbo-compound". Comprenden aviones bimotores y cuatrimotores, con una masa que fluctúa de 4 200 kg a 70 000 kg aproximadamente, con una velocidad de pérdida, VS0 de 100 a 175 km/h (55 a 95 kt) aproximadamente y una carga alar de aproximadamente 120 a 360 kg/m2. La gama de velocidades de crucero sobrepasa los 555 km/h (300 kt). Estos aviones se han empleado en una amplia gama de condiciones de altitud, temperatura y humedad del aire. En fecha posterior, el código se ha aplicado con respecto a la evaluación u homologación de la denominada primera generación de aviones propulsados por turbohélices y turborreactores.
 Aun cuando sólo la experiencia adquirida puede garantizar el hecho de que este ejemplo ilustra el nivel de performance perseguido, se considera que es aplicable a una amplia gama de características del avión y de condiciones atmosféricas. No obstante, deben hacerse reservas en cuanto a la aplicación de este ejemplo en los casos en que la temperatura del aire sea elevada. En ciertos casos extremos, se ha considerado conveniente aplicar correcciones adicionales por temperatura o humedad, o ambas cosas, especialmente respecto a la trayectoria de vuelo de despegue limitada por obstáculos.
 Este ejemplo no está destinado a aplicarse a los aviones de despegue y aterrizaje cortos (STOL) ni a los de despegue y aterrizaje verticales (VTOL).
 No se ha efectuado ningún estudio detallado acerca de las posibilidades de aplicar este ejemplo a la performance en las operaciones todo tiempo. Tampoco se ha determinado su validez para las operaciones con alturas de decisión bajas, especialmente las que exigen técnicas y procedimientos operativos relacionados con mínimos reducidos.
-2. Velocidad de pérdida — Velocidad mínima de vuelo uniforme
+2. Velocidad de pérdida - Velocidad mínima de vuelo uniforme
 2.1 Para los fines de este ejemplo, velocidad de pérdida es la velocidad en que se alcanza un ángulo de ataque mayor que el de sustentación máxima, o, si fuese mayor, la velocidad en que se producen movimientos de cabeceo y de balanceo de gran amplitud, que no son controlables de modo inmediato, cuando se ejecuta la maniobra descrita en 2.3.
-Nota. — Debe notarse que un movimiento de cabeceo de pequeña amplitud que no pueda dominarse, acompañado de las sacudidas que se producen antes de entrar en pérdida, no indica forzosamente que se ha alcanzado la velocidad de pérdida.
+Nota. - Debe notarse que un movimiento de cabeceo de pequeña amplitud que no pueda dominarse, acompañado de las sacudidas que se producen antes de entrar en pérdida, no indica forzosamente que se ha alcanzado la velocidad de pérdida.
 2.2 La velocidad mínima de vuelo uniforme es la obtenida cuando el mando de profundidad se mantiene en la posición más retrasada posible, cuando se ejecuta la maniobra descrita en
 2.3. Esta velocidad no se aplica cuando la velocidad de pérdida definida en 2.1 se produce antes de que el mando de profundidad llegue hasta el tope.
-2.3 Determinación de la velocidad de pérdida — Velocidad mínima de vuelo uniforme
+2.3 Determinación de la velocidad de pérdida - Velocidad mínima de vuelo uniforme
 2.3.1 El avión está centrado para una velocidad aproximada de 1,4VS1. A fin de lograr un retardo uniforme, se reduce la velocidad, volando en línea recta, desde un valor que exceda lo suficiente al de la velocidad de pérdida, en proporción que no pase de 0,5 m/s2 (1 kt/s) hasta alcanzar la velocidad de pérdida o la velocidad mínima de vuelo uniforme, definidas en 2.1 y 2.2.
 2.3.2 Los instrumentos para medir la velocidad de pérdida y la mínima de vuelo uniforme son tales que permiten conocer el error probable de la medición.
 2.4 VS0
@@ -8029,13 +8264,13 @@ La masa del avión al despegar no debe exceder de la masa máxima de despegue es
 La performance del avión, determinada conforme a la información contenida en el manual de vuelo es tal que:
 a) la distancia de aceleración-parada requerida no excede de la distancia de aceleración parada disponible;
 b) la distancia de despegue requerida no excede de la distancia de despegue disponible;
-c) la trayectoria de despegue proporciona un margen vertical de no menos de 15,2 m hasta D = 500 m (50 ft hasta D = 1 500 ft) y después de 15,2 + 0,01 [D – 500] m (50 + 0,01 [D – 1 500] ft), sobre todos los obstáculos comprendidos dentro de 60 m más la semienvergadura del avión, más 0,125D a cada lado de la trayectoria de vuelo, aunque no hay que salvar los obstáculos situados a más de 1 500 m a cada lado de la trayectoria de vuelo.
+c) la trayectoria de despegue proporciona un margen vertical de no menos de 15,2 m hasta D = 500 m (50 ft hasta D = 1 500 ft) y después de 15,2 + 0,01 [D - 500] m (50 + 0,01 [D - 1 500] ft), sobre todos los obstáculos comprendidos dentro de 60 m más la semienvergadura del avión, más 0,125D a cada lado de la trayectoria de vuelo, aunque no hay que salvar los obstáculos situados a más de 1 500 m a cada lado de la trayectoria de vuelo.
 La distancia D es la distancia horizontal que ha recorrido el avión desde el extremo de la distancia de despegue disponible.
-Nota. — No hace falta llevarla más allá del punto en el que el aeroplano podría, sin ganar más altura, comenzar un procedimiento de aterrizaje en el aeródromo de despegue, o alternativamente haya alcanzado la altitud mínima de seguridad para comenzar el vuelo hacia otro aeródromo.
+Nota. - No hace falta llevarla más allá del punto en el que el aeroplano podría, sin ganar más altura, comenzar un procedimiento de aterrizaje en el aeródromo de despegue, o alternativamente haya alcanzado la altitud mínima de seguridad para comenzar el vuelo hacia otro aeródromo.
 No obstante, el margen lateral sobre los obstáculos puede reducirse (a valores inferiores a los antes mencionados) cuando lo justifiquen disposiciones o condiciones especiales que ayuden al piloto a evitar desviaciones laterales inadvertidas respecto a la trayectoria de vuelo prevista. Por ejemplo, especialmente en condiciones meteorológicas adversas, una radio ayuda de precisión puede ayudar al piloto a mantener su trayectoria de vuelo prevista.
 Además, cuando se hace el despegue en condiciones de suficiente visibilidad, es posible, en algunos casos, evitar obstáculos que son claramente visibles pero que pueden estar comprendidos dentro de los límites laterales indicados en 3.2 c).
-Nota 1. — Los procedimientos utilizados para definir la distancia de aceleración-parada y distancia para los despegues necesarios, así como la trayectoria de vuelo para el despegue, se describen en el apéndice de este ejemplo.
-Nota 2. — En algunos códigos nacionales similares a este ejemplo la especificación de “performance” en el despegue es tal que no puede tenerse en cuenta ningún aumento de longitud de la distancia de aceleraciónparada disponible ni de la distancia de despegue disponible que exceda de la longitud especificada en la Sección 1 para el recorrido de despegue disponible. Estos códigos especifican un margen vertical de 15,2 m (50 ft) como mínimo sobre todos los obstáculos comprendidos dentro de 60 m a cada lado de la trayectoria de vuelo mientras se halla todavía dentro de los límites del aeródromo y 90 m a cada lado de la trayectoria de vuelo cuando se halle fuera de dichos límites. Hay que observar que esos códigos tienen la característica de que no proporcionan la alternativa del método de los elementos (véase el Apéndice de este ejemplo) en la determinación de la trayectoria de despegue. Se considera que esos códigos son compatibles con lo que en general se persigue con este ejemplo.
+Nota 1. - Los procedimientos utilizados para definir la distancia de aceleración-parada y distancia para los despegues necesarios, así como la trayectoria de vuelo para el despegue, se describen en el apéndice de este ejemplo.
+Nota 2. - En algunos códigos nacionales similares a este ejemplo la especificación de "performance" en el despegue es tal que no puede tenerse en cuenta ningún aumento de longitud de la distancia de aceleraciónparada disponible ni de la distancia de despegue disponible que exceda de la longitud especificada en la Sección 1 para el recorrido de despegue disponible. Estos códigos especifican un margen vertical de 15,2 m (50 ft) como mínimo sobre todos los obstáculos comprendidos dentro de 60 m a cada lado de la trayectoria de vuelo mientras se halla todavía dentro de los límites del aeródromo y 90 m a cada lado de la trayectoria de vuelo cuando se halle fuera de dichos límites. Hay que observar que esos códigos tienen la característica de que no proporcionan la alternativa del método de los elementos (véase el Apéndice de este ejemplo) en la determinación de la trayectoria de despegue. Se considera que esos códigos son compatibles con lo que en general se persigue con este ejemplo.
 3.3 Condiciones
 Para los fines de 3.1 y 3.2, la performance es la correspondiente:
 a) a la masa del avión al comenzar el despegue;
@@ -8050,11 +8285,9 @@ En el caso de que la trayectoria de vuelo incluya un viraje con una inclinación
 4. En ruta
 4.1 Un motor inactivo
 4.1.1 En todos los puntos a lo largo de la ruta a seguir y desviaciones proyectadas de la misma, el avión, a las altitudes mínimas en ruta, puede alcanzar una velocidad vertical de ascenso constante con un motor inactivo, según se determina en el manual de vuelo, de por lo menos en que N es el número de motores instalados.
-[imagen]
 Debe observarse que las altitudes de vuelo mínimas se consideran, generalmente, que no son inferiores a 300 m (1 000 ft) sobre el terreno a lo largo de la trayectoria de vuelo y sus proximidades.
 4.1.2 Como alternativa de 4.1.1 el avión vuela con todos los motores en marcha a una altitud de utilización tal que, en el caso de que falle un motor, sea posible continuar el vuelo hasta un aeródromo en el que pueda hacerse un aterrizaje de acuerdo con 5.3, de manera que la trayectoria de vuelo mantenga un margen vertical, sobre todo el terreno y obstáculos a lo largo de la ruta, dentro de 8 km (4,3 NM) a cada lado de la trayectoria prevista, de 600 m (2 000 ft) como mínimo. Además, si se utiliza dicho procedimiento, se cumplen las disposiciones siguientes:
 a) la velocidad de ascenso, determinada por el manual de vuelo respecto a la masa y altitud apropiadas, usada para calcular la trayectoria de vuelo, se disminuye en una cantidad igual a en que N es el número de motores instalados;
-[imagen]
 b) el avión cumple con lo prescrito en 4.1.1 a 300 m (1 000 ft) sobre el aeródromo usado como de alternativa en este procedimiento;
 c) después de la indicada falla del motor se toma en consideración el efecto de los vientos y temperaturas en la trayectoria de vuelo;
 d) se supone que la masa del avión a medida que va recorriendo la ruta prevista se reduce progresivamente debido al consumo normal de combustible y aceite;
@@ -8073,7 +8306,7 @@ b) en cualquier otra superficie de aterrizaje que pueda necesitarse para aterriz
 La distancia de aterrizaje en un aeródromo de alternativa, determinada según el manual de vuelo, no debe exceder del 70% de la distancia de aterrizaje disponible:
 a) en la superficie de aterrizaje más adecuada para un aterrizaje en condiciones de aire en calma; y, si son más severas,
 b) en cualquier otra superficie de aterrizaje que pueda necesitarse para aterrizar debido a condiciones de viento que se esperen en el momento de la llegada.
-Nota. — En el Apéndice de este ejemplo se describe el procedimiento utilizado para determinar la distancia de aterrizaje.
+Nota. - En el Apéndice de este ejemplo se describe el procedimiento utilizado para determinar la distancia de aterrizaje.
 5.3 Condiciones
 Para los fines de 5.2, las distancias de aterrizaje requeridas no deben exceder de las correspondientes:
 a) a la masa calculada del avión a la hora prevista de aterrizaje;
@@ -8082,7 +8315,7 @@ c) para los fines de 5.2.1 a) y 5.2.2 a), aire en calma;
 d) para los fines de 5.2.1 b) y 5.2.2 b), no más del 50% de la componente prevista del viento a lo largo de la trayectoria de aterrizaje y en dirección opuesta a la de aterrizaje y no menos del 150% de la componente prevista del viento en la dirección de aterrizaje.
 APÉNDICE DEL EJEMPLO NÚMERO 1
 SOBRE LIMITACIONES DE UTILIZACIÓN DE LA PERFORMANCE DEL
-AVIÓN — PROCEDIMIENTOS UTILIZADOS PARA DETERMINAR LA
+AVIÓN - PROCEDIMIENTOS UTILIZADOS PARA DETERMINAR LA
 PERFORMANCE DE DESPEGUE Y DE ATERRIZAJE
 1. Generalidades
 1.1 A menos que se especifique otra cosa, se aplican las condiciones de la atmósfera tipo y del aire en calma.
@@ -8222,10 +8455,10 @@ b) el recorrido de despegue requerido no excede del recorrido de despegue dispon
 c) la distancia de despegue requerida no excede de la distancia de despegue disponible;
 d) la trayectoria neta de vuelo en el despegue, iniciada en el punto situado a 10,7 m (35 ft) sobre el terreno, al final de la distancia de despegue requerida proporciona un margen vertical no menor de 6 m (20 ft) más 0,005D, sobre todos los obstáculos situados dentro de 60 m más la semienvergadura del avión más 0,125D a cada lado de la trayectoria proyectada hasta haber alcanzado la correspondiente altitud establecida en el manual de operaciones para el vuelo en ruta, aunque no hay que salvar los obstáculos situados a más de 1 500 m a cada lado de la trayectoria de vuelo.
 La distancia D es la distancia horizontal que ha recorrido el avión desde el extremo de la distancia de despegue disponible.
-Nota. — No hace falta llevarla más allá del punto en el que el avión podría, sin ganar más altura, comenzar un procedimiento de aterrizaje en el aeródromo de despegue, o alternativamente haya alcanzado la altitud mínima de seguridad para comenzar el vuelo hacia otro aeródromo.
+Nota. - No hace falta llevarla más allá del punto en el que el avión podría, sin ganar más altura, comenzar un procedimiento de aterrizaje en el aeródromo de despegue, o alternativamente haya alcanzado la altitud mínima de seguridad para comenzar el vuelo hacia otro aeródromo.
 No obstante, el margen lateral sobre los obstáculos puede reducirse (a valores inferiores a los antes mencionados) cuando lo justifiquen disposiciones o condiciones especiales que ayuden al piloto a evitar desviaciones laterales inadvertidas respecto a la trayectoria de vuelo prevista. Por ejemplo, especialmente en condiciones meteorológicas adversas, una radio ayuda de precisión puede ayudar al piloto a mantener su trayectoria de vuelo prevista.
 Además, cuando se hace el despegue en condiciones de suficiente visibilidad, es posible, en algunos casos, evitar obstáculos que son claramente visibles pero que pueden estar comprendidos dentro de los límites laterales indicados en 2.2 d).
-Nota. — El procedimiento utilizado para determinar la distancia de aceleración-parada requerida, el recorrido de despegue requerido, la distancia de despegue requerida y la trayectoria neta de vuelo en el despegue, se describen en el Apéndice de este ejemplo.
+Nota. - El procedimiento utilizado para determinar la distancia de aceleración-parada requerida, el recorrido de despegue requerido, la distancia de despegue requerida y la trayectoria neta de vuelo en el despegue, se describen en el Apéndice de este ejemplo.
 2.3 Condiciones
 Para los fines de 2.1 y 2.2, la performance es la correspondiente:
 a) a la masa del avión al comenzar el despegue;
@@ -8246,7 +8479,7 @@ En cada punto a lo largo de la ruta y desviaciones proyectadas de la misma, el t
 Desde cada punto a lo largo de la ruta y desviaciones proyectadas de la misma, es posible, en caso de un motor inactivo, continuar el vuelo hasta un aeródromo de alternativa en ruta donde pueda hacerse un aterrizaje de conformidad con 4.2 y, al llegar a tal aeródromo, la pendiente ascensional neta no es inferior a cero a la altura de 450 m (1 500 ft) sobre la elevación del aeródromo.
 3.3 Dos motores inactivos (aplicable solamente a los aviones con cuatro motores)
 Para cada punto a lo largo de la ruta o desviaciones proyectadas de la misma, en que el avión está a más de 90 minutos de tiempo de vuelo a la velocidad de crucero con todos los motores en marcha, de un aeródromo de alternativa en ruta, la trayectoria neta de vuelo con dos motores inactivos es tal que hasta llegar a dicho aeródromo, puede mantenerse una altura sobre el terreno de 300 m (1 000 ft) como mínimo.
-Nota. — La trayectoria neta de vuelo es la que se consigue con la pendiente ascensional o de descenso prevista, reducida en un 0,2%.
+Nota. - La trayectoria neta de vuelo es la que se consigue con la pendiente ascensional o de descenso prevista, reducida en un 0,2%.
 3.4 Condiciones
 La capacidad para cumplir 3.1, 3.2 y 3.3 se determina:
 a) bien sea a base de las temperaturas pronosticadas, o bien a base de temperaturas declaradas que den un nivel medio equivalente de performance;
@@ -8274,13 +8507,13 @@ e) para los fines de 4.2 a), aire en calma;
 f) para los fines de 4.2 b), no más del 50% de la componente prevista del viento a lo largo de la trayectoria de aterrizaje y en sentido opuesto al de aterrizaje y no menos del 150% de la componente prevista del viento en el sentido de aterrizaje.
 APÉNDICE DEL EJEMPLO NÚMERO 2
 SOBRE LIMITACIONES DE UTILIZACIÓN DE LA PERFORMANCE DEL
-AVIÓN— PROCEDIMIENTOS UTILIZADOS PARA DETERMINAR
+AVIÓN- PROCEDIMIENTOS UTILIZADOS PARA DETERMINAR
 LA PERFORMANCE DE DESPEGUE Y DE ATERRIZAJE
 1. Generalidades
 1.1 A menos que se estipule lo contrario, se aplican la humedad de referencia y las condiciones de aire en calma.
 1.2 La performance del avión se determina en tal forma que no se excedan las limitaciones de aeronavegabilidad aprobadas para el avión y sus instalaciones.
 1.3 Se seleccionan las posiciones de los flaps, para demostrar el cumplimiento de las especificaciones de performance.
-Nota — Si se desea, se puede disponer de posiciones alternativas de los flaps siempre que sean compatibles con técnicas de operaciones sencillas y aceptables.
+Nota - Si se desea, se puede disponer de posiciones alternativas de los flaps siempre que sean compatibles con técnicas de operaciones sencillas y aceptables.
 1.4 La posición del centro de gravedad se elige dentro del margen permitido de modo que la performance obtenida en la configuración y potencia indicada en las especificaciones de que se trata, sea la mínima.
 1.5 La performance del avión se determina de tal modo que en todas las condiciones no se excedan las limitaciones aprobadas para el motor.
 1.6 Aun cuando ciertas configuraciones de aletas de refrigeración se han basado específicamente en la temperatura máxima prevista, el uso de otras posiciones es aceptable siempre que se mantenga un nivel de seguridad equivalente.
@@ -8315,7 +8548,7 @@ Nota. Los incisos (b) y (c) están relacionados con los incisos (d)(e) y (f)
 (b) 1,15 VS1 , para aviones con más de dos motores;
 (c) 1,10 veces la velocidad mínima con dominio del avión (VMC), establecida de acuerdo con 2.3;
 (d) la velocidad mínima prescrita en 2.9.7.6; en que VS1 es apropiada a la configuración de despegue.
-Nota. — Véase la definición de VS1 en el Ejemplo núm. 1.
+Nota. - Véase la definición de VS1 en el Ejemplo núm. 1.
 2.3 Velocidad mínima con dominio del avión
 2.3.1 La velocidad mínima con dominio del avión es tal que, cuando cualquiera de los motores queda inactivo a dicha velocidad, permita recobrar el dominio del avión con el motor aún inactivo y mantener el vuelo en línea recta, a tal velocidad, bien sea sin guiñada o bien con una inclinación lateral que no exceda de 5°.
 2.3.2 Desde el momento en que se deja inactivo un motor hasta el momento en que el restablecimiento es completo, no se requiere del piloto habilidad, vigilancia o esfuerzo excepcionales para evitar toda pérdida de altura, que o sea la implícita en la reducción de performance, o ningún cambio de rumbo superior a 20°. El avión tampoco adoptará una posición que pueda resultar peligrosa.
@@ -8334,7 +8567,7 @@ El recorrido de despegue requerido es el mayor de los valores siguientes: la dis
 2.7 Distancia de despegue requerida
 2.7.1 La distancia de despegue requerida es la necesaria para alcanzar una altura de: 10,7 m (35 ft) para aviones con dos motores, 15,2 m (50 ft) para aviones con cuatro motores, sobre la superficie de despegue cuando el motor crítico falla en el punto de falla de motor.
 2.7.2 Las alturas mencionadas son las que apenas puede salvar el avión al seguir la trayectoria de vuelo pertinente en una posición sin inclinación lateral y con el tren de aterrizaje desplegado.
-Nota.— El párrafo 2.8 y los requisitos de utilización correspondientes, al establecer que el punto en que comienza la trayectoria neta de vuelo en el despegue está situado a 10,7 m (35 ft) de altura, aseguran que se alcancen los márgenes de altura netos apropiados.
+Nota.- El párrafo 2.8 y los requisitos de utilización correspondientes, al establecer que el punto en que comienza la trayectoria neta de vuelo en el despegue está situado a 10,7 m (35 ft) de altura, aseguran que se alcancen los márgenes de altura netos apropiados.
 2.8 Trayectoria neta de vuelo en el despegue
 2.8.1 La trayectoria neta de vuelo en el despegue es la trayectoria, con un motor inactivo, que comienza a una altura de 10,7 m (35 ft) al final de la distancia de despegue requerida, y se extiende hasta una altura de 450 m (1 500 ft) como mínimo, calculada de acuerdo con las condiciones de 2.9; disminuyéndose en cada punto la pendiente supuesta de subida en un valor igual a:
 0,5% para aviones con dos motores,
@@ -8342,7 +8575,6 @@ Nota.— El párrafo 2.8 y los requisitos de utilización correspondientes, al e
 2.8.2 Se dispone de la performance supuesta que se estima posee el avión con los flaps en posición de despegue y con potencia de despegue a la velocidad de despegue sin peligro elegida, y fundamentalmente se dispone de ella a 9 km/h (5 kt) por debajo de dicha velocidad.
 2.8.3 Además, el efecto de los virajes significativos se indica de la manera siguiente:Radio. Se indica un radio de un viraje uniforme de Régimen 1 (180°/min) con aire en calma a las diversas velocidades aerodinámicas verdaderas, correspondientes a las velocidades de despegue sin peligro para cada posición de flaps utilizada, al establecer la trayectoria neta devuelo en el despegue por debajo de un punto situado a una altura de 450 m (1 500 ft).
 Cambio de performance. Se indica una reducción aproximada de la performance debida a los virajes antes mencionados, y que corresponde a un cambio de pendiente del
-[imagen]
 2.9 Condiciones
 2.9.1 Velocidad aerodinámica
 2.9.1.1 Al determinar la distancia de despegue requerida, la velocidad de despegue sin peligro elegida se alcanza antes de llegar al extremo de la distancia requerida de despegue.
@@ -8372,7 +8604,7 @@ No se inicia la puesta en bandera ni el paso más largo (a menos que esto se rea
 2.9.7.4 Se obtiene y registra toda la información que pueda ser necesario suministrar al piloto si el avión ha de volar de acuerdo con la performance estipulada.
 2.9.7.5 El avión se mantiene sobre el suelo, o próximo a él hasta llegar al punto en que está permitido iniciar el repliegue del tren de aterrizaje.
 2.9.7.6 No se intenta despegar del suelo mientras no se alcance una velocidad, por lo menos: del 15% sobre la velocidad mínima posible en el punto de despegue con todos los motores funcionando; del 7% sobre la velocidad mínima posible en el punto de despegue con el motor crítico inactivo; salvo que estos márgenes de velocidad de despegue pueden reducirse al 10 y 5% respectivamente, cuando la limitación se deba a la configuración del tren de aterrizaje y no a las características de pérdida cerca del suelo.
-Nota. — El cumplimiento de esta especificación se determina al tratar de despegar a velocidades progresivamente más bajas (mediante el uso normal de los mandos, excepto que se levante el timón de profundidad antes y más bruscamente que de ordinario) hasta que se demuestre que es posible despegar a una velocidad que esté de acuerdo con estas especificaciones, y completar el despegue. Se reconoce que durante la maniobra de prueba no se dispondrá del margen usual de mando correspondiente a las técnicas normales de operación, ni de la información de performance prevista.
+Nota. - El cumplimiento de esta especificación se determina al tratar de despegar a velocidades progresivamente más bajas (mediante el uso normal de los mandos, excepto que se levante el timón de profundidad antes y más bruscamente que de ordinario) hasta que se demuestre que es posible despegar a una velocidad que esté de acuerdo con estas especificaciones, y completar el despegue. Se reconoce que durante la maniobra de prueba no se dispondrá del margen usual de mando correspondiente a las técnicas normales de operación, ni de la información de performance prevista.
 2.10 Obtención de resultados
 2.10.1 Generalidades
 Las longitudes de rumbo requeridas se determinan a partir de mediciones de despegues y recorridos en tierra, reales. La trayectoria neta de vuelo en el despegue se determina calculando cada sección separadamente, basándose en datos de performance obtenidos en vuelo uniforme.
@@ -8399,15 +8631,15 @@ La distancia de aterrizaje se determina:
 (8) fuerza de la corriente (hidroaviones).
 3.2 Distancia de aterrizaje requerida
 La distancia de aterrizaje requerida es la distancia horizontal medida entre el punto de la superficie de aterrizaje en que el avión queda completamente parado, o, cuando se trata de hidroaviones, el punto en que la velocidad de éstos queda reducida en unos 9 km/h (5 kt) y el punto de la superficie de aterrizaje sobre el cual el avión pasó a una altura de 15,2 m (50 ft), multiplicada por el factor 1/0,7.
-Nota. — Algunos Estados han considerado necesario usar el factor 1/0,6 en lugar de 1/0,7.
+Nota. - Algunos Estados han considerado necesario usar el factor 1/0,6 en lugar de 1/0,7.
 3.3 Técnica de aterrizaje
 3.3.1 Al determinar la distancia medida de aterrizaje:
 (a) se mantiene una aproximación no acelerada con el tren de aterrizaje completamente desplegado, y a una velocidad aerodinámica no menor de 1,3 VS0 inmediatamente antes de alcanzar la altura de 15,2 m (50 ft);
-Nota. — Véase la definición de VS0 en el Ejemplo núm. 1.
+Nota. - Véase la definición de VS0 en el Ejemplo núm. 1.
 (b) no se baja en vuelo la proa del avión ni se aumenta la tracción por aplicación de la potencia de los motores después de llegar a la altura de 15,2 m (50 ft);
 (c) la potencia se reduce en una forma tal que la potencia que se utiliza para satisfacer el requisito relativo al ascenso, después de un aterrizaje frustrado, pueda obtenerse dentro de un intervalo de 5 segundos, en caso de que se seleccione en cualquier punto del descenso hasta el punto de contacto;
 (d) cuando se emplea este método para establecer la distancia de aterrizaje y el factor de longitud del campo, no se utilizan el paso inverso ni la tracción negativa. Se utiliza el paso corto si la relación resistencia efectiva/peso, en la parte de la distancia de aterrizaje en que el avión está en el aire, no es menos satisfactoria que la de un avión convencional con motores alternativos;
-Nota. — Esto no quiere decir que no deba utilizarse el paso inverso, la tracción negativa o el paso corto.
+Nota. - Esto no quiere decir que no deba utilizarse el paso inverso, la tracción negativa o el paso corto.
 (e) el mando de los flaps se pone en la posición de aterrizaje y ésta no se altera durante la aproximación final, ni al enderezar y al tocar tierra, ni tampoco al rodar sobre la superficie de aterrizaje a velocidades aerodinámicas superiores a 0,9VS0. Cuando el avión se encuentra sobre la superficie de aterrizaje y la velocidad aerodinámica sea inferior a 0,9 VS0 , se puede variar la posición del mando de los flaps;
 (f) el aterrizaje se lleva a cabo de modo que la aceleración vertical no sea excesiva ni lo sea la tendencia al rebote, y que no se presente ninguna otra característica poco deseable de manejo. Se efectúa de tal forma que la repetición del mismo no requiera una habilidad extraordinaria por parte del piloto ni condiciones excepcionalmente favorables;
 (g) no se emplean los frenos de las ruedas de tal modo que produzcan excesivo desgaste de los mismos o de los neumáticos, y que las presiones de funcionamiento de la instalación de frenos excedan de las aprobadas.
@@ -8430,53 +8662,40 @@ b. Para el equipaje de mano - 6 kg.
 CA OPS 1.620(d) (2) CHÁRTER DE VACACIONES.
 (Véase RAC-OPS 1.620(d) (2))
 Esta CA es material explicativo e interpretativo que provee información adicional sobre vuelos chárter.
-Un “Vuelo chárter únicamente concebido como un elemento de un paquete vacacional “es un vuelo donde la capacidad entera de pasajeros es contratada por uno o más Agencias de Viajes para el transporte de pasajeros que viajan, total o parcialmente por aire, ida y vuelta con propósitos vacacionales. Las categorías de los pasajeros como personal de la compañía, agentes de viajes, representantes de prensa, funcionarios de la Autoridad o delegados, pueden ser incluidos en el 5% permitido, sin negar el uso de los valores de peso de los chárter de vacaciones.
+Un "Vuelo chárter únicamente concebido como un elemento de un paquete vacacional "es un vuelo donde la capacidad entera de pasajeros es contratada por uno o más Agencias de Viajes para el transporte de pasajeros que viajan, total o parcialmente por aire, ida y vuelta con propósitos vacacionales. Las categorías de los pasajeros como personal de la compañía, agentes de viajes, representantes de prensa, funcionarios de la Autoridad o delegados, pueden ser incluidos en el 5% permitido, sin negar el uso de los valores de peso de los chárter de vacaciones.
 CA OPS 1.620(g) EVALUACIÓN ESTADÍSTICA DE LOS DATOS DE PESO DE PASAJEROS Y EL EQUIPAJE.
 (Véase RAC-OPS 1.620(g))
 Esta CA es material explicativo e interpretativo que provee información adicional sobre peso de pasajeros y equipaje.
 1. Tamaño de la muestra (véase también Apéndice 1 de la RAC-OPS 1.620 (g)).
 1.1 Para calcular el tamaño requerido de la muestra, es preciso estimar la desviación estándar sobre la base de las desviaciones estándares calculadas para poblaciones similares o para estudios preliminares. La precisión de una estimación de muestra se calcula para el 95% de confiabilidad, es decir, que haya una probabilidad del 95% de que el valor real se encuentre dentro del intervalo de confianza especificado alrededor del valor estimado. Este valor de la desviación estándar se utiliza también para calcular el peso estándar de los pasajeros.
 1.2 Como consecuencia, para los parámetros de la distribución de peso, es decir, la desviación media y estándar, hay que distinguir tres casos:
-a. [imagen] = valores verdaderos del peso media del pasajero y desviación estándar, los cuales son desconocidos y que deben ser estimados pesando muestras de pasajeros.
-b. [imagen] Valores estimados a “priori” del peso medio del pasajero y la desviación estándar, como, los valores resultantes de una encuesta previa, que se necesitan para determinar el tamaño de la muestra actual.
+a. = valores verdaderos del peso media del pasajero y desviación estándar, los cuales son desconocidos y que deben ser estimados pesando muestras de pasajeros.
+b. Valores estimados a "priori" del peso medio del pasajero y la desviación estándar, como, los valores resultantes de una encuesta previa, que se necesitan para determinar el tamaño de la muestra actual.
 c. s = Estimados para los valores verdaderos actuales de m y s, calculados de la muestra.
 El tamaño de la muestra puede ser calculado usando la siguiente fórmula:
-[imagen]
 donde:
 n = número de pasajeros que se tienen que pesar (tamaño de la muestra)
-e’r = rango de confianza relativa permisible (precisión) para el estimado de m por x (ver también la ecuación en el párrafo 3).
-Nota: El rango de confianza relativa permisible, especifica la precisión que se debe lograr cuando se estima la media verdadera. Por ejemplo, si se supone que debe estimar la verdadera entre + 1%, entonces e’r será 1 en la fórmula de anterior.
+e'r = rango de confianza relativa permisible (precisión) para el estimado de m por x (ver también la ecuación en el párrafo 3).
+Nota: El rango de confianza relativa permisible, especifica la precisión que se debe lograr cuando se estima la media verdadera. Por ejemplo, si se supone que debe estimar la verdadera entre + 1%, entonces e'r será 1 en la fórmula de anterior.
 1.96 = valor de la distribución Gaussiana para un nivel de confiabilidad del 95 % del intervalo de confianza resultante.
 2 Cálculo de la peso medio y la desviación estándar. Si se elige aleatoriamente la muestra de pasajeros para pesar, la media aritmética de la muestra (x) es una estimación no sesgada del peso medio real (μ) de la población. Media aritmética de la muestra donde: xj = valores de peso de pasajeros individuales (unidades de muestreo).
 2.1
-[imagen]
 3 Desviación estándar donde: xj = desviación del valor individual de la media de muestreo.
-[imagen]
 4 Comprobación de la precisión de la media de la muestra. La precisión (rango de confianza) que se puede asignar a la media de la muestra como indicador de la media real es función de la desviación estándar de la muestra, que se debe comprobar después de haber evaluado la muestra. Esto se hace con la fórmula:
-[imagen]
 En donde (er) no debe exceder el 1% para el peso medio todo adulto y no exceder el 2% para el peso medio de hombres y/o mujeres. El resultado de este cálculo da la precisión relativa de la estimación de μ al 95% de nivel de precisión. Esto significa que con un 95% de probabilidades, el peso medio real μ cae en el intervalo:
-[imagen]
 4 Ejemplo de la determinación del tamaño de muestra y peso media de pasajeros requeridos.
 4.1 Introducción. Los valores estándar para el peso de pasajeros a los efectos de peso y balance requieren que se lleven a cabo programas de pesaje. El siguiente ejemplo muestra los diversos pasos que se requieren para establecer el tamaño de la muestra y evaluar los datos de la muestra. Se facilita principalmente para los que no están muy familiarizados con los cálculos estadísticos. Las cifras de peso que se emplean en el ejemplo son totalmente ficticias.
 4.2 Determinación del tamaño da la muestra requerida. Para calcular el tamaño requerido de la muestra, se necesitan estimaciones del peso estándar (media) de los pasajeros y la desviación típica. Las estimaciones a priori de otro estudio se podrán utilizar para ello. Si no se dispone de esas estimaciones, será preciso pesar una pequeña muestra representativa de aproximadamente 100 pasajeros para poder calcular los valores requeridos. Esto último se ha supuesto para el ejemplo.
-[imagen]
 Paso 3: Tamaño de muestra requerida
 El número de pasajeros requeridos para ser pesados debe ser tal que el rango de confianza er´, no exceda el 1 % como se especifica en el párrafo 3.
-[imagen]
-[imagen]
-[imagen]
 El resultado muestra que al menos se deben pesar un mínimo de 3145 pasajeros para lograr la precisión requerida. Si se selecciona el 2% para (e.ej.), el resultado sería ≥786.
 Paso 4: Después de haber establecido el tamaño de la muestra requerida, se debe establecer un plan para pesar los pasajeros, según se especifica en el Apéndice 1 de la RAC-OPS 1.620(g).
 4.3 Determinación del peso medio de los pasajeros
 Paso 1: Habiendo obtenido el número requerido de valores de peso para los pasajeros, se puede calcular el peso medio de los pasajeros. Para efectos de este ejemplo, se ha supuesto que se han pesado 3180 pasajeros. La suma de los pesos individuales asciende a 231,186.2 kg.
-[imagen]
 Paso 2: Cálculo de la desviación estándar.
 Para calcular la desviación estándar debe aplicarse el método mostrado en el párrafo 4.2 paso 2.
-[imagen]
 Paso 3: Cálculo de precisión de la media de la muestra.
-[imagen]
 Paso 4: Cálculo del rango de confianza de la media de la muestra.
-[imagen]
 El resultado de este cálculo muestra que hay una probabilidad del 95% de que la media real de todos los pasajeros se encuentre entre 72.2 kg. y 73.2 kg.
 CA OPS 1.620(h) e (i) AJUSTE DEL PESO ESTÁNDAR.
 (Véase RAC-OPS 1.620(h) e (i))
@@ -8519,7 +8738,7 @@ CA 2 al Apéndice 1 de la RAC-OPS 1.620(g) GUÍA SOBRE ENCUESTAS DE PESAJE DE LO
 3.2 Un plan representativo de la encuesta significa un plan de pesaje especificado en cuanto a los lugares, fechas y números de vuelo del pesaje que reflejen de forma razonable los horarios y/o área de operación del operador (véase Apéndice 1 de la RAC-OPS 1.620(g), subpárrafo (a) (1)).
 3.3 El número mínimo de pasajeros que se deben pesar es el mayor de los siguientes (véase Apéndice 1 de la RAC-OPS 1.620(g) subpárrafo (a)):
 a. El número que se deriva del requisito general de que la muestra debe ser representativa de la operación total a la que se aplicarán los resultados; con frecuencia este requisito resultará ser determinante; o
-b. El número que se deriva del requisito estadístico que especifica la precisión de los valores medios resultantes que debe ser un mínimo de 2% para pesos estándar de hombres y mujeres y 1% para todos los pesos estándar “todos adultos”, en su caso. El tamaño requerido de la muestra se puede estimar sobre la base de una muestra piloto (como mínimo 100 pasajeros) o de una encuesta anterior. Si el análisis de los resultados de la encuesta muestra que los requisitos de precisión de los valores medios para los pesos estándar para hombres o mujeres o “todos adultos”, según proceda, no se cumplen, se debe pesar un número adicional de pasajeros representativos para satisfacer los requisitos estadísticos.
+b. El número que se deriva del requisito estadístico que especifica la precisión de los valores medios resultantes que debe ser un mínimo de 2% para pesos estándar de hombres y mujeres y 1% para todos los pesos estándar "todos adultos", en su caso. El tamaño requerido de la muestra se puede estimar sobre la base de una muestra piloto (como mínimo 100 pasajeros) o de una encuesta anterior. Si el análisis de los resultados de la encuesta muestra que los requisitos de precisión de los valores medios para los pesos estándar para hombres o mujeres o "todos adultos", según proceda, no se cumplen, se debe pesar un número adicional de pasajeros representativos para satisfacer los requisitos estadísticos.
 3.4 Para evitar muestras no representativas, demasiado pequeñas, también se requiere una muestra mínima de 2000 pasajeros (hombres + mujeres), excepto para pequeños aviones en los que, a la vista de la dificultad que plantea el gran número de vuelos que se debe pesar para cubrir 2000 pasajeros, se considera aceptable un número menor.
 4 Ejecución del programa de pesaje
 4.1 Al inicio del programa de pesaje, es importante observar, y tener en cuenta, los requisitos de datos del informe de la encuesta de pesaje (véase el párrafo 7 a continuación).
@@ -8530,7 +8749,7 @@ b. El número que se deriva del requisito estadístico que especifica la precisi
 6 Resultados de la encuesta de pesaje
 6.1 Se deben resumir los resultados de la encuesta de pesaje. Se deben justificar las conclusiones y cualquier desviación propuesta de los valores estándar de peso publicados.
 Los resultados de una encuesta de pesaje de los pasajeros son pesos medios para los pasajeros, incluyendo el equipaje de mano, que pueden resultar en propuestas para ajustar los valores estándar de peso que se indican en la RAC-OPS 1.620 Tablas 1 y 2. Según se indica en el Apéndice 1 de la RAC-OPS 1 .620(g), subpárrafo (c), estos medios, redondeados al número entero más cercano pueden, en principio, aplicarse como valores estándar de peso para hombres y mujeres en aviones con 20 o más asientos para pasajeros. Debido a variaciones en los pesos reales de los pasajeros, la carga total de los pasajeros también varía y un análisis estadístico indica que el riesgo de una sobrecarga significativa se hace inaceptable para aeronaves con menos de 20 asientos. Este es el motivo de los aumentos en el peso de los pasajeros en aeronaves pequeñas.
-6.2 Los pesos medios de hombres y mujeres difieren en 15 kg. o más y debido a incertidumbres en la proporción entre hombres y mujeres, la variación de la carga total de pasajeros es mayor si se emplean todos los pesos estándar para “todos adultos” en lugar de los pesos estándar individuales para hombres y mujeres. El análisis estadístico indica que el empleo de todos los valores estándar de peso para adultos se debe limitar a aeronaves con 30 asientos para pasajeros o más.
+6.2 Los pesos medios de hombres y mujeres difieren en 15 kg. o más y debido a incertidumbres en la proporción entre hombres y mujeres, la variación de la carga total de pasajeros es mayor si se emplean todos los pesos estándar para "todos adultos" en lugar de los pesos estándar individuales para hombres y mujeres. El análisis estadístico indica que el empleo de todos los valores estándar de peso para adultos se debe limitar a aeronaves con 30 asientos para pasajeros o más.
 6.3 Según se indica en el Apéndice 1 de la RAC-OPS 1.620(g), los valores estándar para el peso cuando todos los pasajeros son adultos se deben basar en las medias de los hombres y mujeres que se encuentran en la muestra, teniendo en cuenta una relación de referencia entre hombres y mujeres de 80/20 para todos los vuelos excepto los chárter de vacaciones, en cuyo caso es aplicable una relación 50/50. Basándose en los datos de su programa de pesaje, o mediante la demostración de otra relación entre hombres y mujeres, los operadores podrán solicitar autorización para emplear otra relación para rutas o vuelos específicos.
 7. Informe sobre el estudio de pesaje
 7.1 El informe sobre el estudio de pesaje, que refleja el contenido de los anteriores párrafos desde 1 hasta 6, se debe preparar en un formato normalizado, de la siguiente forma:
@@ -8560,8 +8779,8 @@ SUBPARTE K - INSTRUMENTOS Y EQUIPOS
 CA OPS 1.630. INSTRUMENTOS Y EQUIPOS - INSTALACIÓN Y APROBACIÓN.
 (Ver RAC-OPS 1.630)
 Esta CA es material explicativo e interpretativo que provee información sobre los instrumentos y equipo, su instalación y aprobación.
-1. Para los instrumentos y equipos requeridos por la Subparte K de la RAC OPS 1, “Aprobado” indica que se ha demostrado cumplimiento con las especificaciones de performance y los requisitos de diseño tales como ETSO/TSO aplicables o equivalentes y en vigor a la fecha de la aprobación del equipo. Cuando no exista una ETSO /TSO se utilizará el estándar de aeronavegabilidad aplicable, excepto que la RAC OPS 1 establezca otra cosa.
-2. “Instalado” indica que la instalación de instrumentos y equipos ha demostrado cumplimiento con los requisitos de aeronavegabilidad aplicables acuerdo a las normas aceptables por el RAC 21 o el código utilizado para la certificación de tipo, así como con cualquier otro requisito establecido en la RAC OPS 1.
+1. Para los instrumentos y equipos requeridos por la Subparte K de la RAC OPS 1, "Aprobado" indica que se ha demostrado cumplimiento con las especificaciones de performance y los requisitos de diseño tales como ETSO/TSO aplicables o equivalentes y en vigor a la fecha de la aprobación del equipo. Cuando no exista una ETSO /TSO se utilizará el estándar de aeronavegabilidad aplicable, excepto que la RAC OPS 1 establezca otra cosa.
+2. "Instalado" indica que la instalación de instrumentos y equipos ha demostrado cumplimiento con los requisitos de aeronavegabilidad aplicables acuerdo a las normas aceptables por el RAC 21 o el código utilizado para la certificación de tipo, así como con cualquier otro requisito establecido en la RAC OPS 1.
 CA OPS 1.650 / 1.652 INSTRUMENTOS DE VUELO, NAVEGACIÓN Y EQUIPOS ASOCIADOS.
 (Ver RAC-OPS 1.650/1.652)
 Esta CA es un método aceptable de cumplimiento para el cumplimiento con la RAC OPS 1.650.
@@ -8650,9 +8869,9 @@ Con tal que el CRD se pueda instalar correctamente en el asiento respectivo del 
 (ii) CRDs aprobados para ser usados en un vehículo automotor y aviones de acuerdo con UN Standard ECE R 44, -03 o posteriores series de enmiendas; o
 (iii)CRDs aprobados para ser usados en vehículo automotor y aviones de acuerdo con Canadian CMVSS 213/213.1; o
 (iv) CRDs aprobados para ser usados en vehículo automotor y aviones de acuerdo con US FMVSS No. 213 y son fabricados de acuerdo a este estándar en o después del 26 de febrero de 1985. CRDs aprobados por los Estados Unidos (US) fabricados después de esta fecha deben llevar la etiqueta siguiente inscripción en rojo:
-A. “THIS CHILD RESTRANIT SYSTEM CONFORMS TO ALL APPLICABLE FEDERAL MOTOR VEHICLE SAFETY STANDARS” Y.
-B. “THIS RESTRAINT IS CERTIFICATED FOR USE IN MOTOR VEHICLES AND AIRCRAFT”.
-(v) CRDs calificados para ser usados en aviones de acuerdo con “German Qualification Procedure for Child Restraint Systems for Use in Aircraft” (TÜ Doc.: TÜV /958 – 01/2001).
+A. "THIS CHILD RESTRANIT SYSTEM CONFORMS TO ALL APPLICABLE FEDERAL MOTOR VEHICLE SAFETY STANDARS" Y.
+B. "THIS RESTRAINT IS CERTIFICATED FOR USE IN MOTOR VEHICLES AND AIRCRAFT".
+(v) CRDs calificados para ser usados en aviones de acuerdo con "German Qualification Procedure for Child Restraint Systems for Use in Aircraft" (TÜ Doc.: TÜV /958 - 01/2001).
 (vi) CRD aprobados para utilización en automóviles, fabricados y probados en estándares equivalentes a aquellos listados en (b)(1)(i) al (v) inclusive, que sean aceptables para la autoridad. Estos dispositivos deben estar marcados con un aviso de calificación asociado, que muestre el nombre de la organización calificadora y un número de identificación específico, relacionado al proyecto de calificación asociado.
 (c) Localización
 (1) CRDs los cuales al ubicar al niño este queda viendo hacia delante (forward facing), pueden ser instalados en asientos de pasajeros cuya dirección sea hacia adelante o hacia atrás pero solamente cuando el CRDs esté fijado en la misma dirección del asiento de pasajero en el cual esté posicionado. CRDs los cuales al ubicar el niño este queda viendo hacia atrás (rearward facing) solamente pueden ser instalados en asientos de pasajeros que estén en dirección hacia delante. Un CRDs no puede ser instalado dentro del radio de acción de una bolsa de aire (airbag), al menos que sea obvio que la bolsa de aire es desactivada o se pueda demostrar que no puede haber impacto negativo por parte de la bolsa de aire.
@@ -8669,7 +8888,7 @@ B. “THIS RESTRAINT IS CERTIFICATED FOR USE IN MOTOR VEHICLES AND AIRCRAFT”.
 (5) CRDs los cuales al ubicar al niño, este queda viendo hacia delante (forward facing), con arnés integral no deben ser instalados de manera que el cinturón de seguridad de adulto sea asegurado sobre el niño.
 (e) Operación.
 (1) Cada CRD debe permanecer asegurado al asiento de pasajero durante todas las fases del vuelo, al menos que este adecuadamente guardado cuando no esté en uso.
-(2) Cuando un CRD puede ser ajustable en una posición reclinada, este debe ser colocado en posición vertical para todas las ocasiones cuando sea requerido el uso de dispositivos de sujeción de acuerdo con la RAC – OPS 1.320 (b) (1)0.
+(2) Cuando un CRD puede ser ajustable en una posición reclinada, este debe ser colocado en posición vertical para todas las ocasiones cuando sea requerido el uso de dispositivos de sujeción de acuerdo con la RAC - OPS 1.320 (b) (1)0.
 CA OPS 1.745 BOTIQUÍN DE PRIMEROS AUXILIOS.
 (Ver RAC-OPS 1.745)
 La siguiente CA es un método aceptable de cumplimiento sobre los requisitos relativos a los botiquines de primeros auxilios.
@@ -8765,18 +8984,18 @@ La siguiente CA es material explicativo e interpretativo que provee información
 (c) Por todo lo anterior, la cantidad de oxígeno de primeros auxilios debería calcularse para la parte del vuelo, después de una despresurización de cabina, en la cual altitud de cabina esté entre 8.000 y 15.000 pies, y se haya agotado el oxígeno suplementario.
 (d) Además, después de una despresurización de cabina debe realizarse un descenso de emergencia hasta la altitud más baja compatible con la seguridad del vuelo. En estas circunstancias, el avión debe aterrizar tan pronto como fuera posible en el primer aeródromo disponible.
 (e) Las condiciones anteriores deberían reducir el periodo de tiempo durante el cual el oxígeno de primeros auxilios puede ser requerido y, en consecuencia, debería limitarse la cantidad de oxígeno de primeros auxilios a bordo.
-CA OPS 1.770 OXIGENO SUPLEMENTARIO – AVIONES PRESURIZADOS.
+CA OPS 1.770 OXIGENO SUPLEMENTARIO - AVIONES PRESURIZADOS.
 (Ver RAC-OPS 1.770)
-La siguiente CA es un método aceptable de cumplimiento sobre los requisitos relativos al oxígeno suplementario – aviones presurizados.
+La siguiente CA es un método aceptable de cumplimiento sobre los requisitos relativos al oxígeno suplementario - aviones presurizados.
 (a) Una máscara de tipo rápido es una que:
 (1) Puede ser colocada en la cara desde su posición lista, asegurada y sellada adecuadamente con una sola mano en 5 segundos, y que proporcione oxígeno a la demanda; y que a partir de ese momento permanecerá en su posición con ambas manos libres.
 (2) Puede colocarse sin interferir con las gafas y sin retrasar a los miembros de la tripulación de vuelo en el cumplimiento de las tareas de emergencia asignadas;
 (3) Después de haber sido colocada, no impida la inmediata comunicación entre los miembros de la tripulación de vuelo y de otros tripulantes mediante el sistema de intercomunicación del avión.
 (4) No impide realizar comunicaciones por radio.
 (b) Al determinar la cantidad de oxígeno suplementario para las rutar a ser voladas, se asume que el avión descenderá de acuerdo al procedimiento de emergencia especificado en el Manual de Operaciones, sin exceder las limitaciones operacionales, hasta una altitud de vuelo que permita la continuación del vuelo con seguridad. (por ejemplo altitudes de vuelo que aseguren adecuado franqueamiento de obstáculos, precisión de navegación, evitar condiciones meteorológicas peligrosas).
-CA OPS 1.770 (b)(2)(v) OXÍGENO SUPLEMENTARIO – AVIONES PRESURIZADOS (NO CERTIFICADOS PARA VOLAR POR ENCIMA DE 25.000 PIES).
+CA OPS 1.770 (b)(2)(v) OXÍGENO SUPLEMENTARIO - AVIONES PRESURIZADOS (NO CERTIFICADOS PARA VOLAR POR ENCIMA DE 25.000 PIES).
 (Ver RAC-OPS 1.770(b) (2) (v))
-La siguiente CA es un método aceptable de cumplimiento sobre los requisitos relativos al oxígeno suplementario – aviones presurizados (no certificados para volar por encima de 25.000 pies):
+La siguiente CA es un método aceptable de cumplimiento sobre los requisitos relativos al oxígeno suplementario - aviones presurizados (no certificados para volar por encima de 25.000 pies):
 (a) Respecto a la RAC-OPS 1.770(b) (2) (v), la máxima altitud a la que un avión puede operar sin un sistema de oxígeno de pasajeros instalado, y capaz de proporcionar oxígeno a cada ocupante de la cabina, debería establecerse utilizando un perfil de descenso de emergencia que tenga en cuenta las siguientes condiciones:
 (1) 17 segundos de retraso para reconocimiento y reacción del piloto, incluyendo colocación de la máscara, determinación de la avería, y configuración del avión para el descenso de emergencia.
 (2) Máxima velocidad operacional (Vmo), o la velocidad aprobada en el Manual de Vuelo para descenso de emergencia, la que sea menor;
@@ -8821,7 +9040,6 @@ La siguiente CA es material explicativo e interpretativo que provee información
 Existen varios protocolos que están establecidos en el anexo 10 volumen III dependiendo del protocolo usado se transmitirán: datos del formato del mensaje, protocolo usado, el código del país, información de identificación y de localización según corresponda
 Dependiendo de si se transmite información de localización el mensaje digital pude ser corto (de 1 a 112 pulsos) o largo (de 1 a 144 pulsos). La información que se codifica está incluida en los pulsos del 25 al 85.
 El Protocolo de Usuario con número de serie de la radio baliza es el más simple y solamente deben codificarse el código del país y el número de serie de la radiobaliza que le asignó el fabricante conforma a la siguiente asignación de pulsos.
-[imagen]
 Si un protocolo diferente es usado la autoridad SAR debe controlar y asignar los números de acuerdo a lo establecido en Anexo 10.
 De conformidad con la asignación de códigos que determinó COSPAS SARSAT para los países de la región son los siguientes:
 Belice | 312
@@ -8836,16 +9054,16 @@ Esto puede incluir el tipo de navío o avión, nombre del navío, el número de 
 CA-OPS 1.822 Localización de un avión en peligro
 Todos los aviones con una masa máxima certificada de despegue superior a 5 700 kg cuyo certificado de aeronavegabilidad individual se haya expedido por primera vez el 1 de enero de 2021, o a partir de esa fecha, cuando se encuentren en peligro, deberían transmitir de forma autónoma información a partir de la cual el operador pueda determinar su posición por lo menos una vez por minuto, de conformidad con el Apéndice 1 a la RAC-OPS 1.822.
 Los sucesos relacionados con la actuación de la aeronave pueden abarcar, entre otros, actitudes o condiciones de velocidad inhabituales, colisión con el terreno y pérdida total de empuje o propulsión en todos los motores, así como advertencias de la proximidad del terreno.
-Una alerta de socorro puede activarse aplicando criterios que pueden variar según la posición de la aeronave y la fase de vuelo. En la norma EUROCAE ED-237 — “Minimum Aviation System Performance Specification (MASPS) for Criteria to Detect In-Flight Aircraft Distress Events to Trigger Transmission of Flight Information” figura orientación sobre la detección de un suceso en vuelo y los criterios de activación. Véanse en el Anexo 11 los criterios de la fase de emergencia y en el Anexo 12 las notificaciones requeridas en el caso de una fase de emergencia.
+Una alerta de socorro puede activarse aplicando criterios que pueden variar según la posición de la aeronave y la fase de vuelo. En la norma EUROCAE ED-237 - "Minimum Aviation System Performance Specification (MASPS) for Criteria to Detect In-Flight Aircraft Distress Events to Trigger Transmission of Flight Information" figura orientación sobre la detección de un suceso en vuelo y los criterios de activación. Véanse en el Anexo 11 los criterios de la fase de emergencia y en el Anexo 12 las notificaciones requeridas en el caso de una fase de emergencia.
 Orientación para la localización de un avión en peligro
 (a) Introducción
 (1) El texto siguiente proporciona orientación sobre la localización de un avión en peligro.
-El Grupo de trabajo sobre desencadenamiento de la transmisión de datos de vuelo (TTFDWG) examinó 42 accidentes para determinar una indicación de la distancia desde la última posición conocida del avión y la localización del lugar del accidente. El informe concluyó que en aproximadamente el 95% de los casos, cuando se conoce la posición de la aeronave un minuto antes de que ocurra el accidente, el lugar del accidente se encuentra dentro de un radio de 6 NM de esa posición. (Para consultar el informe del TTFDWG hágase clic aquí y en la sección “Publications” o visítese el sitio https://www.bea.aero/en/).
+El Grupo de trabajo sobre desencadenamiento de la transmisión de datos de vuelo (TTFDWG) examinó 42 accidentes para determinar una indicación de la distancia desde la última posición conocida del avión y la localización del lugar del accidente. El informe concluyó que en aproximadamente el 95% de los casos, cuando se conoce la posición de la aeronave un minuto antes de que ocurra el accidente, el lugar del accidente se encuentra dentro de un radio de 6 NM de esa posición. (Para consultar el informe del TTFDWG hágase clic aquí y en la sección "Publications" o visítese el sitio https://www.bea.aero/en/).
 (2) Cuando un avión tiene un accidente en que cae al agua y se hunde, resulta más importante localizar el lugar del accidente dentro de un radio de 6 NM sobre la superficie. Cuando se comienza la búsqueda inicial en un área superior a un radio de 6 NM disminuye el plazo disponible para la búsqueda y localización del avión. Con las actuales capacidades de búsqueda subacuática que se estiman en 100 km2/día, la búsqueda en un área de 6 NM de radio puede realizarse en cuatro días. Teniendo en cuenta que los navíos han de llegar al área de búsqueda y realizar la búsqueda en cuestión, se estima que es posible realizar una búsqueda en un área de 2 300 km2, equivalente a un radio de 14 NM, antes de que la batería del ULD se degrade. Si se comienza en un área superior a 6 NM de radio se reduce la probabilidad de localización satisfactoria durante la búsqueda inicial, mientras que la ampliación de la localización a un área superior a un radio de 6 NM reduce el tiempo disponible para la búsqueda sin que ello represente ninguna ventaja considerable en las probabilidades de recuperación.
 (b) Aclaración sobre el propósito del equipo.
 (1) Información a partir de la cual puede determinarse la posición: Información proveniente de un sistema de aeronave que esté activo o se active automática o manualmente que puede proporcionar información relativa a la posición que incluye un indicador de hora.
 Este es un requisito basado en el rendimiento que no es específico a un sistema y que también puede proporcionar ventajas operacionales.
-(2) Transmisor de localización de emergencia (ELT): Los ELT de la actual generación fueron diseñados para proporcionar la posición del impacto en un accidente en que hay sobrevivientes. Los ELT de la próxima generación pueden tener la capacidad de activar una transmisión en vuelo cuando se satisfaga cualquiera de las condiciones detalladas en la norma EUROCAE ED-237 — “Minimum Aviation System Performance Specification for Criteria to Detect In-Flight Aircraft Distress Events to Trigger Transmission of Flight Information”. Cuando un ELT se hunde en el agua, no es posible detectar su señal.
+(2) Transmisor de localización de emergencia (ELT): Los ELT de la actual generación fueron diseñados para proporcionar la posición del impacto en un accidente en que hay sobrevivientes. Los ELT de la próxima generación pueden tener la capacidad de activar una transmisión en vuelo cuando se satisfaga cualquiera de las condiciones detalladas en la norma EUROCAE ED-237 - "Minimum Aviation System Performance Specification for Criteria to Detect In-Flight Aircraft Distress Events to Trigger Transmission of Flight Information". Cuando un ELT se hunde en el agua, no es posible detectar su señal.
 (3) Registrador de vuelo de desprendimiento automático (ADFR): El propósito de los ADRF consiste en disponer de datos del registrador de vuelo poco después de un accidente, en particular de accidentes que ocurran en la superficie del agua. El ELT integrado permite localizar el lugar del accidente y disponer de datos para fines de investigación y de búsqueda y salvamento. Al ser un elemento que flota, el registrador ayudará a localizar el lugar del accidente transmitiendo una señal ELT cuando los restos de la aeronave se hunden en el agua. También garantiza redundancia para un ELT.
 (4) Dispositivo localizador subacuático (ULD). Un ULD que opera en la frecuencia de 8.8 kHz se fija en la célula para localizar los restos del avión debajo de la superficie del agua cuando no es posible detectar una señal de ELT. Los ULD que operan en 37.5 kHz se fijan en los registradores de vuelo y se utilizan para localizar los registradores de vuelo que se encuentran bajo agua.
 (c) Cumplimiento respecto al equipamiento.
@@ -8855,10 +9073,12 @@ Presente | Después del 1 de enero de 2021
 En servicio | La solicitud de certificación de tipo se presenta a un Estado contratante
 Dos ELT Dos registradores fijos | Ejemplo: Un sistema a partir del cual puede determinarse la posición; y un ADFR con un ELT integrado; y un registrador combinado; O Un sistema a partir del cual puede determinarse la posición y un ELT y dos registradores fijos y un medio adicional para recuperar los datos del registrador de vuelo oportunamente.
 Nota. ― Un sistema a partir del cual puede determinarse una posición que se utilice para cumplir lo prescrito en RAC-OPS 1.822, puede reemplazar uno de los ELT requeridos en la disposición RAC-OPS 1.820.
-CA OPS 1.825 CHALECOS SALVAVIDAS.
+(*)CA OPS 1.825 Chalecos salvavidas.
 (Ver RAC-OPS 1.825)
 La siguiente CA es material explicativo e interpretativo que provee información sobre el uso de los chalecos salvavidas.
+En referencia al RAC OPS 1.825 (a), la expresión aviones terrestres incluye los anfibios utilizados como aviones terrestres.
 A los efectos de la RAC-OPS 1.825, los cojines de los asientos no se consideran dispositivos de flotación.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 CA OPS 1.830(b) (2) BALSAS SALVAVIDAS Y ELT PARA VUELOSPROLONGADOS SOBRE AGUA.
 (Ver RAC-OPS 1.830(b) (2)
 La siguiente CA es un método aceptable de cumplimiento sobre el uso de Balsas salvavidas y ELT para vuelos prolongados sobre agua.
@@ -8882,7 +9102,7 @@ La siguiente CA es un método aceptable de cumplimiento sobre el uso de Transmis
 CA OPS 1.835 EQUIPO DE SUPERVIVENCIA.
 (Ver RAC-OPS 1.835)
 La siguiente CA es material explicativo e interpretativo que provee información sobre el equipo de supervivencia:
-(a) La expresión “Áreas en las que la búsqueda y salvamento podrían ser especialmente difíciles” debe interpretarse en el contexto de este RAC como sigue:
+(a) La expresión "Áreas en las que la búsqueda y salvamento podrían ser especialmente difíciles" debe interpretarse en el contexto de este RAC como sigue:
 (1) Áreas así designadas por el Estado responsable de gestionar la búsqueda y salvamento; o
 (2) Áreas en su mayor parte deshabitadas y donde:
 (i) El Estado responsable de la búsqueda y salvamento no haya publicado ninguna información para confirmar que la búsqueda y salvamento no sería especialmente difícil; y
@@ -8898,7 +9118,7 @@ La siguiente CA es un método aceptable de cumplimiento sobre el uso de equipo d
 (5) Sacos para dormir para la utilización de un tercio (1/3) de todas las personas a bordo, y mantas de tipo espacial (space blankets) para los restantes, o mantas de tipo espacial para todos los pasajeros a bordo.
 (6) Un traje ártico/polar para cada tripulante a bordo.
 (b) Si cualquier elemento de esta lista ya se lleva a bordo como consecuencia de cumplir con otro requisito, no es necesario duplicar dicho elemento.
-CA OPS 1.844 PANTALLA DE VISUALIZACIÓN FRONTAL “HUD-HEAD UPDISPLAY” Y/O SISTEMAS DE VISIÓN MEJORADA.
+CA OPS 1.844 PANTALLA DE VISUALIZACIÓN FRONTAL "HUD-HEAD UPDISPLAY" Y/O SISTEMAS DE VISIÓN MEJORADA.
 (Ver RAC OPS 1.844).
 Reservado
 SUBPARTE L- EQUIPOS DE COMUNICACIÓN Y NAVEGACIÓN
@@ -8954,7 +9174,10 @@ Esta CA es material explicativo e interpretativo que provee información sobre l
 (c) El solicitante debería informar a la DGAC dónde se realizará el mantenimiento programado tanto de base como línea, así como dar detalles de cualquier mantenimiento contratado además del que se proporciona en respuesta a la RAC-OPS 1.895(a) o (c).
 (d) A la fecha de la solicitud, el operador debería tener ya establecidos acuerdos para la realización de todo el mantenimiento programado tanto base como línea para un periodo de tiempo apropiado, aceptable para la DGAC. El operador debería establecer a su debido tiempo, además, otros acuerdos para la realización del mantenimiento antes ser realizado.
 (e) Los contratos de mantenimiento base para la realización de inspecciones/chequeos, cuyos periodos de inspección sean de muy largo plazo, pueden estar basados en contratos a la demanda, cuando la DGAC considera que esto es compatible con el tamaño de la flota del operador.
-CA OPS 1.890 (a). RESPONSABILIDAD DEL MANTENIMIENTO.
+SUBPARTE M - Mantenimiento de la aeronavegabilidad del avión
+(Así adicionado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+CA OPS 1.890 (a). Responsabilidades del operador respecto del mantenimiento de la aeronavegabilidad.
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (Ver RAC-OPS 1.890(a))
 La siguiente CA es un método aceptable de cumplimiento sobre la responsabilidad del mantenimiento.
 (a) El requisito indica que el operador, a fin de asegurar la aeronavegabilidad continuada de los aviones operados, es responsable de determinar QUÉ TIPO de mantenimiento se requiere, CUANDO debe realizarse, POR QUIÉN, y CON ARREGLO A QUÉ estándar.
@@ -8962,7 +9185,8 @@ La siguiente CA es un método aceptable de cumplimiento sobre la responsabilidad
 (c) El operador debería establecer la adecuada coordinación entre operaciones de vuelo y mantenimiento para asegurar que ambos reciben toda la información del avión necesaria para que realicen sus tareas.
 (d) El requisito no significa que el operador mismo realice el mantenimiento (este debe ser realizado por una organización de mantenimiento aprobada MRAC-145 (Ver RAC-OPS 1.895)), sino que el operador es responsable del estado de aeronavegabilidad del avión que opera, y la ejerce asegurándose que todo el mantenimiento requerido por el avión ha sido realizado adecuadamente antes de la realización de cualquier vuelo.
 (e) Cuando el operador no esté adecuadamente aprobado de acuerdo con MRAC-145, el operador debería proporcionar una clara orden de trabajo al contratista de mantenimiento. El hecho de que un operador haya contratado con una organización de mantenimiento aprobada MRAC-145 no debería impedirle supervisar el cualquier aspecto del mantenimiento contratado en las instalaciones de mantenimiento si así lo desea a fin de cumplir con su responsabilidad acerca de la aeronavegabilidad del avión.
-CA OPS 1.890 (a) (1). RESPONSABILIDAD DEL MANTENIMIENTOINSPECCIONES DE PREVUELO.
+CA OPS 1.890 (a) (1). Responsabilidades del operador respecto del mantenimiento de la aeronavegabilidad- inspecciones de prevuelo.
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (Ver RAC-OPS 1. 890(a) (1))
 La siguiente CA es un método aceptable de cumplimiento sobre la responsabilidad del mantenimiento- Inspecciones de prevuelo
 (a) Respecto a la inspección prevuelo se pretende indicar todas las acciones necesarias para asegurar que el avión se encuentra en condiciones para realizar el vuelo previsto. Estas incluyen de manera general, pero no limitadas, las siguientes:
@@ -8976,27 +9200,33 @@ La siguiente CA es un método aceptable de cumplimiento sobre la responsabilidad
 Las instrucciones relativas a la inspección prevuelo siempre y cuando estas actividades sean realizadas por personal técnico poseedor de una licencia del estado de Matricula.
 Se deben establecer los procedimientos para determinar cuando la necesidad de rellenar o inflar es debido a un consumo anormal y posiblemente requiera acciones de mantenimiento adicionales por la organización de mantenimiento aprobada bajo la MRAC-145.
 (c) El operador debería publicar guías para el personal de mantenimiento y personal de vuelo, y, si es aplicable, a cualquier otro personal que realice tareas de la inspección prevuelo definiendo las responsabilidades de estas acciones y cuando se contraten tareas a otras organizaciones, cómo su cumplimiento estará sujeta al sistema de calidad de la RAC-OPS 1.900. Se debería demostrar a la DGAC que el personal que realiza tareas de las inspecciones prevuelo ha recibido el entrenamiento adecuado correspondiente a dichas tareas. Los estándares de instrucción para el personal que realiza inspecciones prevuelo deberían estar descritos en el Manual de Control de Mantenimiento del operador (MCM).
-CA OPS 1.890(a) (1). RESPONSABILIDAD DEL MANTENIMIENTO.
+CA OPS 1.890 BIS (a) (1). Responsabilidades del operador respecto del mantenimiento de la aeronavegabilidad.
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (Ver RAC-OPS 1.890(a) (1))
 Esta CA es material explicativo e interpretativo que provee información sobre la responsabilidad del mantenimiento.
 El hecho de que la realización de las inspecciones prevuelo sea una responsabilidad de mantenimiento del operador, no implica necesariamente que el personal que realiza estas inspecciones prevuelo reporte al responsable de mantenimiento del operador, sino que el Responsable de mantenimiento es responsable de determinar el contenido de las inspecciones prevuelo y el establecer los niveles de calificación del personal involucrado en las mismas. Además, el Sistema de Calidad del Operador debe dar seguimiento al cumplimiento con los niveles de calificación establecidos para este personal.
-CA OPS 1.890(a) (2). RESPONSABILIDAD DEL MANTENIMIENTO.
+CA OPS 1.890(a) (2). Responsabilidades del operador respecto del mantenimiento de la aeronavegabilidad.
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (Ver RAC-OPS 1.890(a) (2))
 La siguiente DGAC es un método aceptable de cumplimiento sobre la responsabilidad del mantenimiento.
 El operador debe tener establecido un sistema que asegure que todos los defectos que afectan a la seguridad de la operación sean rectificados dentro de los plazos establecidos por la MEL o CDL aprobada, según corresponda, y que no se permite el aplazamiento en la rectificación de estos defectos, a menos que se disponga del acuerdo del operador y se realice de acuerdoa un procedimiento aprobado por la DGAC.
-CA OPS 1.890(a) (3). RESPONSABILIDAD DEL MANTENIMIENTO.
+CA OPS 1.890(a) (3). Responsabilidades del operador respecto del mantenimiento de la aeronavegabilidad.
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (Ver RAC-OPS 1.890(a) (3))
 La siguiente CA es un método aceptable de cumplimiento sobre la responsabilidad del mantenimiento.
 El operador debe haber establecido un sistema que asegure que todos los chequeos de mantenimiento sean realizados dentro de los límites establecidos en el programa de mantenimiento del avión aprobado el operador, y que cuando un chequeo de mantenimiento no pueda ser realizado dentro de los límites establecidos, su aplazamiento ha sido permitido con el acuerdo del operador, y se realice de acuerdo a un procedimiento aprobado por la DGAC.
-CA OPS 1.890(a) (4). RESPONSABILIDAD DEL MANTENIMIENTO.
+CA OPS 1.890(a) (4). Responsabilidades del operador respecto del mantenimiento de la aeronavegabilidad.
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (Ver RAC-OPS 1.890(a) (4))
 La siguiente CA es un método aceptable de cumplimiento sobre la responsabilidad del mantenimiento.
 El operador debe tener establecido un sistema para analizar la efectividad del programa de mantenimiento, en relación a repuestos, defectos repetitivos, componentes, fallas y daños, así como para enmendar el programa de mantenimiento (esta enmienda del programa de mantenimiento debe involucrar la aprobación del Estado de Matrícula, a menos, que el operador disponga de una aprobación que le permita enmendar el programa de mantenimiento sin intervención del Estado de Matrícula).
-CA OPS 1.890(a) (5). RESPONSABILIDAD DEL MANTENIMIENTO.
+CA OPS 1.890(a) (5). Responsabilidades del operador respecto mantenimiento de la aeronavegabilidad.
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (Ver RAC-OPS 1.890(a) (5))
 Esta CA es material explicativo e interpretativo que provee información sobre la responsabilidad del mantenimiento.
-“Cualquier otro requisito de aeronavegabilidad continuada hecho mandatario por la Autoridad” indica requisitos relativos a Certificación de Tipo tales como: Requisitos de mantenimiento de certificación (CMR´s), Partes de vida limite, Limitaciones de aeronavegabilidad.
-CA OPS 1.890(a) (6). RESPONSABILIDAD DEL MANTENIMIENTO.
+"Cualquier otro requisito de aeronavegabilidad continuada hecho mandatario por la Autoridad" indica requisitos relativos a Certificación de Tipo tales como: Requisitos de mantenimiento de certificación (CMR´s), Partes de vida limite, Limitaciones de aeronavegabilidad.
+CA OPS 1.890(a) (6). Responsabilidades del operador respecto del mantenimiento de la aeronavegabilidad.
+(Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 (Ver RAC-OPS 1.890(a) (6))
 La siguiente CA es un método aceptable de cumplimiento sobre la responsabilidad del mantenimiento.
 El operador debería establecer una política de evaluación de información no-obligatoria relativa a la aeronavegabilidad del avión, tales como Boletines de Servicio (Service Bulletins), Cartas de Servicio (Service Letters) y otra información relativa al avión o sus componentes de la organización de diseño, el fabricante o de las Autoridades de aeronavegabilidad afectadas.
@@ -9009,14 +9239,14 @@ La siguiente CA es un método aceptable de cumplimiento sobre la administración
 (3) El operador no está aprobado de acuerdo con la MRAC-145 para realizar mantenimiento.
 (b) El operador puede solicitar cualquiera de estas tres opciones, pero será la Autoridad la que determine que opción puede aceptarse en cada caso particular.
 (1) Para determinar lo anterior, la DGAC utilizará como criterio básico la experiencia del operador en el mantenimiento de todo o parte del mantenimiento en aviones comparables. Por tanto, cuando un operador solicite la opción (a) - todo el mantenimiento - la DGAC necesita estar convencida de que el operador tiene suficiente experiencia en la realización de todo el mantenimiento en un avión comparable. Por ejemplo, si la experiencia es considerada aceptable, entonces, desde el punto de vista de mantenimiento es razonable añadir un tipo diferente de avión de ancho (Wide body) a una flota existente de aviones de ancho. Por otro lado, si la experiencia se ha considerado no satisfactoria o demasiado limitada, la Autoridad puede escoger entre requerir personal de administración de mantenimiento de más alta experiencia y/o más personal certificador, o bien no aceptar la propuesta para mantener un nuevo tipo de avión de ancho (wide body) si no puede encontrarse más personal experimentado. En este caso se debe estudiar la viabilidad de las opciones (b) y (c) anteriores.
-(2) Cuando un operador solicita la opción (b)- realización de parte del mantenimiento, o la DGAC no ha considerado aceptable la solicitud de opción (a) – la experiencia sigue siendo el factor clave, pero en este caso la experiencia se ve reducida al tipo de mantenimiento parcial solicitado. Si la experiencia se considera no satisfactoria o demasiado limitada, la DGAC puede escoger entre requerir personal para la administración del mantenimiento de más alta experiencia, o bien no aceptar la solicitud si no puede encontrarse este tipo de personal. En este caso la alternativa puede ser la opción (c). La opción (c) acepta que el operador no tiene experiencia satisfactoria o tiene únicamente limitada experiencia en algún mantenimiento.
+(2) Cuando un operador solicita la opción (b)- realización de parte del mantenimiento, o la DGAC no ha considerado aceptable la solicitud de opción (a) - la experiencia sigue siendo el factor clave, pero en este caso la experiencia se ve reducida al tipo de mantenimiento parcial solicitado. Si la experiencia se considera no satisfactoria o demasiado limitada, la DGAC puede escoger entre requerir personal para la administración del mantenimiento de más alta experiencia, o bien no aceptar la solicitud si no puede encontrarse este tipo de personal. En este caso la alternativa puede ser la opción (c). La opción (c) acepta que el operador no tiene experiencia satisfactoria o tiene únicamente limitada experiencia en algún mantenimiento.
 (3) La Autoridad requerirá al operador establecer contratos con una organización de mantenimiento MRAC-145, excepto que en los casos donde la Autoridad considere que es posible obtener suficiente personal experimentado para la administración del mantenimiento que proporcione el soporte de mantenimiento mínimo para la opción (b); en tales casos se podría solicitar la opción b.
-(4) En relación a este apartado “experimentado” indica personal para la administración del mantenimiento que tiene experiencia probada de haber estado directamente involucrados, al menos, en mantenimiento línea de tipos de aviones similares en no menos de 12 meses. Esta experiencia debería acreditarse a satisfacción de la DGAC.
+(4) En relación a este apartado "experimentado" indica personal para la administración del mantenimiento que tiene experiencia probada de haber estado directamente involucrados, al menos, en mantenimiento línea de tipos de aviones similares en no menos de 12 meses. Esta experiencia debería acreditarse a satisfacción de la DGAC.
 Con independencia de la opción elegida, se requiere que el operador tenga suficiente personal que cumpla los requisitos de la RAC-OPS 1.895(b) para gestionar la responsabilidad del mantenimiento.
 CA OPS 1.895(b). ADMINISTRACIÓN DEL MANTENIMIENTO.
 (Ver RAC-OPS 1.895(b))
 La siguiente CA es un método aceptable de cumplimiento sobre la administración del mantenimiento.
-(a) La persona o grupos de personas empleadas deberían representar la estructura de administración del mantenimiento del operador (en lo relativo a mantenimiento), y ser responsables de todas las funciones de mantenimiento. Dependiendo del tamaño de la operación y del tipo de organización establecida, las funciones de mantenimiento pueden ser subdividas en gerentes individuales o combinarse de otro modo. Esto incluye combinar las funciones de “gerente responsable” (ver RAC-OPS 1.175(h)), el “responsable nominado” (Ver RAC-OPS 1.175(i)), y las funciones de seguimiento de calidad (Ver RAC-OPS 1.900), siempre que la función de seguimiento de calidad permanezca independiente de las funciones a ser supervisadas. Esto puede dar lugar a que en las organizaciones más pequeñas la función de seguimiento de la sea realizada por el gerente responsable, siempre que esté adecuadamente calificado. Por tanto, las organizaciones más pequeñas estarán constituidas al menos por dos personas, excepto que la DGAC acepte que la función de supervisión de calidad pueda ser subcontratada al departamento de calidad de otro operador o a una persona independiente adecuadamente cualificada y que sea aceptable para la DGAC.
+(a) La persona o grupos de personas empleadas deberían representar la estructura de administración del mantenimiento del operador (en lo relativo a mantenimiento), y ser responsables de todas las funciones de mantenimiento. Dependiendo del tamaño de la operación y del tipo de organización establecida, las funciones de mantenimiento pueden ser subdividas en gerentes individuales o combinarse de otro modo. Esto incluye combinar las funciones de "gerente responsable" (ver RAC-OPS 1.175(h)), el "responsable nominado" (Ver RAC-OPS 1.175(i)), y las funciones de seguimiento de calidad (Ver RAC-OPS 1.900), siempre que la función de seguimiento de calidad permanezca independiente de las funciones a ser supervisadas. Esto puede dar lugar a que en las organizaciones más pequeñas la función de seguimiento de la sea realizada por el gerente responsable, siempre que esté adecuadamente calificado. Por tanto, las organizaciones más pequeñas estarán constituidas al menos por dos personas, excepto que la DGAC acepte que la función de supervisión de calidad pueda ser subcontratada al departamento de calidad de otro operador o a una persona independiente adecuadamente cualificada y que sea aceptable para la DGAC.
 (b) El número real de personas que deben emplearse y sus calificaciones necesarias dependerán de las tareas a realizar, y por tanto, dependientes del tamaño y complejidad de la operación (red de rutas, regular o chárter, EDTO, número y tipo de aviones, complejidad del avión y su antigüedad), número y ubicaciones de las instalaciones de mantenimiento y de la cantidad y complejidad del mantenimiento contratado. Por tanto, el número de personas y sus calificaciones podrá diferir mucho de un operador a otro, y no existe una formula sencilla que cubra la totalidad de posibilidades.
 (c) Para que la DGAC pueda aceptar el número de personas y sus calificaciones, el operador debería hacer un análisis de las tareas que deben ser realizadas, la forma en la pretende dividir o combinar estas tareas, cómo pretende asignar responsabilidades, establecer el número de horas-hombre y calificaciones necesarias para realizarlas. Este análisis se debe actualizar cada vez que se produzcan cambios significativos en el número y calificaciones del personal necesario.
 (d) La DGAC no espera recibir necesariamente las credenciales individuales de cada persona perteneciente al grupo de personas que constituidas para administrar el mantenimiento para su aceptación. Sin embargo, deberían ser aceptados individualmente por la Autoridad tanto el responsable de mantenimiento como cualquier otro responsable que le reporte directamente.
@@ -9034,7 +9264,7 @@ La siguiente DGAC es un método aceptable de cumplimiento sobre la administraci�
 (a) Cuando el operador no esté aprobado de acuerdo con MRAC-145, o la organización de mantenimiento del operador sea una organización independiente, debería establecerse un contrato entre el operador y la organización de mantenimiento MRAC-145 que especifique, con detalle el trabajo que debe ser realizado por la Organización de mantenimiento MRAC-145.
 (b) Tanto la especificación del trabajo como la asignación de responsabilidades debería ser clara, sin ambigüedades y lo suficientemente detallada para asegurar que no se presenten mal entendidos entre las partes afectadas (operador, organización de mantenimiento y la Autoridad) que pudieran dar lugar a situaciones en las que los trabajos relacionados con la aeronavegabilidad del avión no sean, o no vayan a ser, adecuadamente realizados.
 (c) Debería ponerse especial atención a los procedimientos y responsabilidades que aseguren que todo el trabajo de mantenimiento es realizado, los boletines de servicio no mandatorios son analizados y se toman decisiones en relación a su cumplimiento, las directivas de aeronavegabilidad se cumplen en tiempo, y que todo el trabajo incluyendo las modificaciones no mandatorios son realizadas con datos aprobados y con los últimos estándares.
-(d) Puede utilizarse como contrato base el “contrato tipo de servicios en tierra de IATA”, pero esto no impide a la Autoridad asegurarse de que el contenido del contrato es aceptable para ella, y especialmente que el contrato permite al Operador ejercer adecuadamente sus responsabilidades en cuanto al mantenimiento. Aquellas partes del contrato que no tienen relación con aspectos técnicos u operacionales de la aeronavegabilidad están fuera del alcance de este párrafo.
+(d) Puede utilizarse como contrato base el "contrato tipo de servicios en tierra de IATA", pero esto no impide a la Autoridad asegurarse de que el contenido del contrato es aceptable para ella, y especialmente que el contrato permite al Operador ejercer adecuadamente sus responsabilidades en cuanto al mantenimiento. Aquellas partes del contrato que no tienen relación con aspectos técnicos u operacionales de la aeronavegabilidad están fuera del alcance de este párrafo.
 CA OPS 1.895(e). ADMINISTRACIÓN DEL MANTENIMIENTO.
 (Ver RAC-OPS 1.895(e))
 La siguiente CA es un método aceptable de cumplimiento para la administración del mantenimiento.
@@ -9054,17 +9284,17 @@ El objetivo de este párrafo es el de clarificar que no se requieren establecer 
 CA OPS 1.895(h). ADMINISTRACIÓN DEL MANTENIMIENTO.
 (Ver RAC-OPS 1.895(h))
 Esta CA es material explicativo e interpretativo que provee información sobre la administración del mantenimiento.
-“Espacio para de oficinas” significa lugares de trabajo adecuados para que los ocupantes, ya sean de administración del mantenimiento, planificación, registros técnicos o personal de calidad, puedan realizar las tareas que les sean asignadas de una manera que las buenas prácticas de mantenimiento se vean favorecidas. Para pequeños operadores, la Autoridad puede aceptar que estas tareas sean realizadas en una única oficina siempre que esté garantizado el espacio suficiente y que cada una de esas tareas puede ser realizada sin molestias. El área destinada a oficinas debería también incluir una adecuada biblioteca y habitáculos para consulta de documentación.
+"Espacio para de oficinas" significa lugares de trabajo adecuados para que los ocupantes, ya sean de administración del mantenimiento, planificación, registros técnicos o personal de calidad, puedan realizar las tareas que les sean asignadas de una manera que las buenas prácticas de mantenimiento se vean favorecidas. Para pequeños operadores, la Autoridad puede aceptar que estas tareas sean realizadas en una única oficina siempre que esté garantizado el espacio suficiente y que cada una de esas tareas puede ser realizada sin molestias. El área destinada a oficinas debería también incluir una adecuada biblioteca y habitáculos para consulta de documentación.
 CA OPS 1.900 SISTEMA DE CALIDAD.
 (Ver RAC-OPS 1.900)
 La siguiente CA es un método aceptable de cumplimiento sobre el sistema de calidad.
 (a) El operador debe planificar de forma aceptable para la Autoridad el seguimiento de las actividades requeridas en la RAC OPS 1.890 incluyendo cuando y con qué frecuencia se efectuará. Además, se deben emitir informes a la terminación de cada actividad de seguimiento que incluyan detalles de las no conformidades relacionadas con no cumplimientos tanto con procedimientos como con los requisitos.
 (b) La parte del sistema de calidad que cubra la retroalimentación debe contemplar que se establezcan las personas responsables de rectificar los defectos y las no conformidades para cada caso concreto, así como el procedimiento a seguir si la rectificación de los defectos detectados no se completa en los plazos establecidos. El procedimiento debe señalar principalmente al Gerente Responsable especificado en la RAC-OPS 1.175(h).
 (c) Para asegurar el cumplimiento efectivo con la RAC-OPS 1.900, se debe demostrar que los siguientes elementos del sistema de calidad funcionan adecuadamente:
-(1) Muestreo de producto – inspección parcial de una muestra representativa de la flota de aviones.
-(2) Muestreo de defectos – seguimiento del desempeño en la rectificación de defectos
-(3) Muestreo de concesiones – seguimiento de cualquier concesión otorgada para no realizar el mantenimiento en tiempo.
-(4) Muestreo de plazos de mantenimiento en tiempo – el seguimiento de cuándo son sometidos a mantenimiento el avión y sus componentes (horas/ciclos de vuelo, tiempo de calendario.)
+(1) Muestreo de producto - inspección parcial de una muestra representativa de la flota de aviones.
+(2) Muestreo de defectos - seguimiento del desempeño en la rectificación de defectos
+(3) Muestreo de concesiones - seguimiento de cualquier concesión otorgada para no realizar el mantenimiento en tiempo.
+(4) Muestreo de plazos de mantenimiento en tiempo - el seguimiento de cuándo son sometidos a mantenimiento el avión y sus componentes (horas/ciclos de vuelo, tiempo de calendario.)
 (5) Muestreo de reportes de condiciones de no aeronavegabilidad y de errores de mantenimiento.
 Nota. - La RAC-OPS 1.900 incluye otros elementos de seguimiento auto explicativos.
 CA OPS 1.900. SISTEMA DE CALIDAD.
@@ -9081,7 +9311,7 @@ Parte 1 Organización
 Parte 2 Procedimientos de mantenimiento
 Parte L2 Procedimientos adicionales de mantenimiento línea
 Parte 3 Procedimientos del sistema de calidad
-Nota: La Parte 3 también debería cubrir las funciones especificadas en la norma OPS 1.900 “Sistema de calidad”
+Nota: La Parte 3 también debería cubrir las funciones especificadas en la norma OPS 1.900 "Sistema de calidad"
 Parte 4 Operadores RAC-OPS 1 contratados
 Parte 5 Apéndices (ejemplos de formatos)
 Parte 6 Procedimientos de mantenimiento RAC-OPS
@@ -9094,13 +9324,13 @@ Parte 3 Mantenimiento contratado
 (e) El operador debe especificar en el MCM qué persona es responsable de enmendar el MCM, en particularmente cuando este dividido en varias partes.
 (f) La persona Responsable de la gestión del Sistema de Calidad debería ser responsable del monitorizar y enmendar el MCM, a menos que se acuerde otra cosa con la DGAC, incluyendo los manuales de procedimientos asociados, y el envío de propuestas de enmiendas a la DGAC para su aprobación. La DGAC puede acordar un procedimiento, que debe estar incluido en la sección de control de enmiendas al Manual MCM, definiendo que tipo de enmiendas pueden ser incorporadas al Manual sin el consentimiento previo de la Autoridad
 (g) El operador puede publicar el MCM utilizando soporte electrónico pero debe estar disponible para la DGAC en un formato que le sea aceptable. Debería ponerse especial atención a la compatibilidad del uso de este MCM en forma electrónica y su distribución al personal afectado, tanto interna como externamente.
-(h) La Parte 0 “Organización General” del MCM incluirá una declaración del Gerente Responsable, confirmando que el MCM, y sus manuales asociados, definen que la organización cumple y cumplirá en todo momento con la Subparte M del RAC-OPS.
+(h) La Parte 0 "Organización General" del MCM incluirá una declaración del Gerente Responsable, confirmando que el MCM, y sus manuales asociados, definen que la organización cumple y cumplirá en todo momento con la Subparte M del RAC-OPS.
 (i) El compromiso corporativo del Gerente Responsable debe adaptarse, de la manera más aproximada posible, a lo establecido a continuación; de hecho podría utilizarse el texto que figura a continuación sin variaciones. En el caso de que produzcan modificaciones al texto de Compromiso estas no deberían afectar su propósito:
-“Este MCM define la organización y los procedimientos en los que se basa la aprobación del Estado del operador de acuerdo a la Subparte M del RAC-OPS. Estos procedimientos han sido aprobados por el abajo firmante y deben cumplirse, cuando sean aplicables, a fin de asegurar que todo el mantenimiento de los aviones del (nombre del operador).es realizado dentro de los plazos establecidos y de acuerdo a estándares aprobados. Se acepta que estos procedimientos no afectan a la necesidad de cumplir con cualquier regulación nueva o enmendada publicada por la DGAC cuando estas regulaciones nuevas o enmendadas entren en conflicto con estos procedimientos.
+"Este MCM define la organización y los procedimientos en los que se basa la aprobación del Estado del operador de acuerdo a la Subparte M del RAC-OPS. Estos procedimientos han sido aprobados por el abajo firmante y deben cumplirse, cuando sean aplicables, a fin de asegurar que todo el mantenimiento de los aviones del (nombre del operador).es realizado dentro de los plazos establecidos y de acuerdo a estándares aprobados. Se acepta que estos procedimientos no afectan a la necesidad de cumplir con cualquier regulación nueva o enmendada publicada por la DGAC cuando estas regulaciones nuevas o enmendadas entren en conflicto con estos procedimientos.
 La DGAC aprobará esta organización, mientras este satisfecha de que se están siguiendo los procedimientos y se mantiene los estándares de trabajo. Se asume que la Autoridad se reserva el derecho de suspender, variar, o revocar la aprobación del sistema de mantenimiento RAC-OPS Subparte M si tiene evidencias de que no se siguen los procedimientos y no se mantienen los estándares. Además se asume que la suspensión o revocación de la aprobación del sistema de mantenimiento podría invalidar el COA.
 Firmado:......
 Fecha:........
-Gerente responsable (indicar denominación utilizada): .... ”
+Gerente responsable (indicar denominación utilizada): .... "
 (j) Cuando exista un cambio en la persona del Gerente Responsable es importante que el nuevo Gerente firme a la primera oportunidad el compromiso corporativo como parte de su aceptación por la Autoridad. El no realizar esta acción invalidará la aprobación RACOPS Subparte M.
 (k) Los Apéndices 1 y 2 contienen ejemplos de índices de MCM.
 CA OPS 1.910 (a). PROGRAMA DE MANTENIMIENTO DE LOS AVIONES DEL OPERADOR.
@@ -9114,7 +9344,7 @@ La siguiente CA es un método aceptable de cumplimiento sobre la elaboración de
 (f) Cuando un tipo de avión haya sido objeto de un proceso de MRBR, generalmente el programa de mantenimiento inicial del operador debería estar basado en el MRBR.
 (g) La documentación que soporta el desarrollo de los programas de mantenimiento, para los tipos de aviones que hayan sido objeto de procesos de MRBR debería contener una relación cruzada identificando las tareas del MRBR con las del programa de mantenimiento de aviones aprobado al operador actualmente en vigor. Esto no impide que se desarrolle el programa de mantenimiento a la vista de la experiencia en servicio además de las recomendaciones del MRBR, pero debe mostrar la relación con estas recomendaciones.
 (h) Algunos programas de mantenimiento, no desarrollados a partir de procesos MRB, utilizan programas de confiabilidad. Estos programas de confiabilidad deberían ser considerados como parte del programa de mantenimiento aprobado al operador.
-(i) Deberían desarrollarse programas de confiabilidad para programas de mantenimiento basados en la lógica MSG (Meeting Steering Group), o aquellos en los que incluyan componentes en “condition monitoring” o que no contengan periodos para repaso mayor (overhaul) para todos los componentes significativos de los sistemas.
+(i) Deberían desarrollarse programas de confiabilidad para programas de mantenimiento basados en la lógica MSG (Meeting Steering Group), o aquellos en los que incluyan componentes en "condition monitoring" o que no contengan periodos para repaso mayor (overhaul) para todos los componentes significativos de los sistemas.
 (j) Se necesita desarrollar programas de confiabilidad para programas de mantenimiento de aviones iguales o menores a 5.700 Kg. o que tengan definido un repaso mayor (overhaul) para todos los componentes significativos de los sistemas.
 (k) El objetivo del programa de confiabilidad es garantizar que las tareas del programa de mantenimiento del avión son efectivas y su periodicidad adecuada. Consecuencias derivadas de la existencia de un programa de confiabilidad podrían ser tanto escalar o eliminar una tarea de mantenimiento.
 (l) El programa de confiabilidad proporciona un medio adecuado para monitorear la efectividad del programa de mantenimiento.
@@ -9209,7 +9439,7 @@ Ensayo de pérdida de cápsula | +/- 30,4
 Ensayo de Histéresis: Primer Punto de Ensayo (50% de la altitud máxima) | 22,8
 Segundo Punto de Ensayo (40% de la altitud máxima de Ensayo) | 22,8
 Ensayos de efectos Posteriores | 9,1
-TABLA III – FRICCIÓN
+TABLA III - FRICCIÓN
 ALTITUD (Pies) | TOLERANCIAS (Pies)
 1000 | +/- 70
 2000 | 70
@@ -9223,7 +9453,7 @@ ALTITUD (Pies) | TOLERANCIAS (Pies)
 35000 | 160
 40000 | 250
 50000 |
-TABLA III – FRICCIÓN
+TABLA III - FRICCIÓN
 ALTITUD (Metros) | TOLERANCIAS (Metros)
 304,8 | +21,3
 609,6 | 21,3
@@ -9288,9 +9518,9 @@ Sección 3 Debería contener detalles de toda la información considerada necesa
 (iii) Horas a las que el avión despegó y aterrizó
 (iv) El total acumulado de horas de vuelo de forma que puedan determinarse las horas remanentes para el siguiente mantenimiento programado.
 NOTA.- La tripulación de vuelo no necesita recibir estos detalles, si la próxima revisión programada de mantenimiento se controla por otros medios aceptables para la DGAC.
-(v) Detalles de cualquier fallo, defecto o mal funcionamiento del avión que pudiera afectar a la aeronavegabilidad u operación segura del avión, incluyendo sistemas de emergencia y cualquier fallo, defecto o mal funcionamiento en la cabina de pasajeros o cocinas (galleys) que afecte a la seguridad del avión o de sus ocupantes y que sea conocida por el piloto al mando. Debería disponer de espacio para que el piloto al mando pueda introducir dicha anotación, fecha y firma, incluyendo cuando sea apropiado, la expresión “SIN DEFECTOS” para la continuidad del registro. Debería disponerse de espacio para el Certificado de retorno al servicio después de la rectificación de un defecto, un diferido o la realización de un chequeo de mantenimiento. El certificado, debe identificar claramente el/los defecto/s o chequeos concretos de mantenimiento, según proceda.
-Si la DGAC lo aprueba, se podría utilizar el certificado de retorno al servicio abreviado. El certificado de retorno al servicio abreviado consiste en la siguiente declaración “CERTIFICADO DE RETORNO AL SERVICIO MRAC-145.50”, en lugar de la declaración completa establecida en CA 145.50(b), párrafo 1.
-Cuando la DGAC está de acuerdo en la utilización del certificado de retorno al servicio abreviado, la sección de introducción del registro técnico debería incluir un ejemplo de una declaración completa de certificación de retorno al servicio, de acuerdo al CA 145.50 (b), párrafo 1, con una nota indicando “El certificado de retorno al servicio abreviado usado en esta bitácora de mantenimiento cumple únicamente con MRAC-145.50(a). Deben de cumplimentarse el resto de aspectos establecidos en MRAC-145.50 (b)”.
+(v) Detalles de cualquier fallo, defecto o mal funcionamiento del avión que pudiera afectar a la aeronavegabilidad u operación segura del avión, incluyendo sistemas de emergencia y cualquier fallo, defecto o mal funcionamiento en la cabina de pasajeros o cocinas (galleys) que afecte a la seguridad del avión o de sus ocupantes y que sea conocida por el piloto al mando. Debería disponer de espacio para que el piloto al mando pueda introducir dicha anotación, fecha y firma, incluyendo cuando sea apropiado, la expresión "SIN DEFECTOS" para la continuidad del registro. Debería disponerse de espacio para el Certificado de retorno al servicio después de la rectificación de un defecto, un diferido o la realización de un chequeo de mantenimiento. El certificado, debe identificar claramente el/los defecto/s o chequeos concretos de mantenimiento, según proceda.
+Si la DGAC lo aprueba, se podría utilizar el certificado de retorno al servicio abreviado. El certificado de retorno al servicio abreviado consiste en la siguiente declaración "CERTIFICADO DE RETORNO AL SERVICIO MRAC-145.50", en lugar de la declaración completa establecida en CA 145.50(b), párrafo 1.
+Cuando la DGAC está de acuerdo en la utilización del certificado de retorno al servicio abreviado, la sección de introducción del registro técnico debería incluir un ejemplo de una declaración completa de certificación de retorno al servicio, de acuerdo al CA 145.50 (b), párrafo 1, con una nota indicando "El certificado de retorno al servicio abreviado usado en esta bitácora de mantenimiento cumple únicamente con MRAC-145.50(a). Deben de cumplimentarse el resto de aspectos establecidos en MRAC-145.50 (b)".
 vi Las cantidades de combustible y aceite cargados, y la cantidad de combustible disponible en cada tanque, o combinación de tanques, al comienzo y final de cada vuelo; provisiones para anotar, en las mismas unidades, la cantidad de combustible previsto cargar y el finalmente cargado; provisión para anotar la hora de comienzo de las operaciones deshielo, antihielo, y el tipo de fluido aplicado, incluyendo la relación fluido/agua.
 vii La firma de la inspección prevuelo
 Además de lo anterior puede ser necesario registrar la siguiente información suplementaria:
@@ -9312,17 +9542,14 @@ CA OPS 1.915 (a) (6). MAPEO DE GOLPES, DAÑOS Y REPARACIONES ESTRUCTURALES DEL A
 Propósito
 La siguiente CA es un método aceptable de cumplimiento sobre la elaboración del control para mapeo de golpes, daños y reparaciones estructurales del avión.
 Este MAC expone una forma de llevar el control de golpes, daños y reparaciones estructurales del avión (mapeo de golpes, daños y reparaciones estructurales), encontrados durante la operación diaria del avión, los cuales deben formar parte del sistema de registro técnico que se refleja en la bitácora de mantenimiento. Ejemplo de formato:
-[imagen]
 DESCRIPCIÓN:
 1. ÍTEM: Indica el número consecutivo de reparación o daño en el avión, dicho número se debe indicar en una vista (dibujo) del área afectada del avión (, empenajes, alas), señalando la ubicación de la reparación o daño; esta vista o dibujo es una portada para cada área afectada del avión.
-2. ATA: Indica el código de las áreas estructurales del avión Ej.: 51 – Estructuras General, 52 – Puertas, 53 – , 54 – Capotas de motor, Pilones, 55 – Estabilizadores, 57
-– Alas
+2. ATA: Indica el código de las áreas estructurales del avión Ej.: 51 - Estructuras General, 52 - Puertas, 53 - , 54 - Capotas de motor, Pilones, 55 - Estabilizadores, 57
+- Alas
 3 REFERENCIAS: Indica toda la documentación técnica de soporte utilizada para efectuar la Reparación, definir el daño, aprobaciones de la autoridad, Orden de Ingeniería para la ejecución en el avión.
 4. ASUNTO: Describe el tipo de daño o reparación en el avión.
 5. CUMPLIMIENTO: Indica si la reparación se ha efectuado en forma permanente, temporal o si el daño se encuentra dentro de límites y no requiere acción correctiva o el daño requiere acción correctiva pero no inmediata, entonces indica la programación para cuando se debe efectuar dicha acción correctiva.
 6. COMENTARIOS: Indica cualquier información adicional pertinente al daño o reparación en el avión que brinde más detalle sobre su estatus.
-[imagen]
-[imagen]
 La Tabla de Mapeo Estructural es una información que debe estar como documento adjunto a la bitácora de vuelo, que permita dar seguimiento rápido al estatus estructural del avión.
 Cada ÍTEM descrito en la Tabla de Mapeo Estructural debe tener un file que el operador debe conservar como parte de los registros del estatus estructural del avión con toda la documentación técnica de soporte.
 CA OPS 1.920. REGISTROS DE MANTENIMIENTO.
@@ -9334,7 +9561,7 @@ La siguiente CA es un método aceptable de cumplimiento sobre los registros de m
 (d) Cuando se utilicen registros en papel, este debería tener la suficiente robustez para permitir su uso y archivo. El registro debería permanecer legible durante el periodo de archivo requerido.
 (e) Los registros en formato electrónico deberían tener, como mínimo, un sistema para realizar copias de seguridad que deberían actualizarse al menos a las 24 horas de la realización de la tarea de mantenimiento. Cada terminal utilizado a estos fines debería tener protecciones a fin de evitar la posibilidad de que personas no autorizadas modifiquen las bases de datos.
 (f) La microfilmación o almacenamiento óptico de los registros de mantenimiento puede realizarse en cualquier momento. Los registros deberían ser tan legibles como el original y permanecer legibles durante el periodo de tiempo de almacenamiento requerido.
-(g) La información sobre horas, ciclos, fechas, requerida por la RAC-OPS 1.920, de aquí en adelante denominado “resumen de registros de mantenimiento” son aquellos registros que dan una visión general de estado de mantenimiento del avión y de sus componentes de vida límite. El estatus de componentes de vida límite debería contener, la vida límite del componente, el número total de horas/ciclos/tiempo calendario acumulado, y el número total de horas/ciclos/tiempo calendario remanente hasta el desmontaje de cada componente con vida limite.
+(g) La información sobre horas, ciclos, fechas, requerida por la RAC-OPS 1.920, de aquí en adelante denominado "resumen de registros de mantenimiento" son aquellos registros que dan una visión general de estado de mantenimiento del avión y de sus componentes de vida límite. El estatus de componentes de vida límite debería contener, la vida límite del componente, el número total de horas/ciclos/tiempo calendario acumulado, y el número total de horas/ciclos/tiempo calendario remanente hasta el desmontaje de cada componente con vida limite.
 (h) El estatus actual de directivas de aeronavegabilidad (ADs) debería incluir: la identificación de la directiva, incluyendo su número de revisión o enmienda. Cuando una AD sea aplicable a un tipo de aviones o componentes, pero no lo sea a los aviones o componentes específicos del operador debería especificarse el motivo (NA por número de serie, NA por número de parte). También debería incluir la fecha en la que se cumplimentó la AD, y en los casos en los que la AD sea controlada por horas/ciclos, debería incluirse las horas/ciclos totales de avión o componente, según corresponda. En el caso de ADs repetitivas, en el estatus solo debería incluirse el último cumplimiento.
 Asimismo el estatus debería especificar qué parte o partes de una AD se han cumplimentado, y cuando existan en la AD distintos métodos de cumplimiento, el método realmente utilizado.
 (i) Detalles de las reparaciones o modificaciones vigentes indica los datos justificativos del cumplimiento con los requisitos de aeronavegabilidad. Esto puede ser en forma de Suplemento al Certificado de Tipo, Boletín de Servicio, Manual de Reparación Estructural o documentos similares. Si los datos de aeronavegabilidad son producidos por una organización de mantenimiento MRAC-145, de acuerdo con las regulaciones nacionales vigentes, también debería retenerse toda la documentación necesaria para definir el cambio y su aprobación.
@@ -9352,12 +9579,12 @@ Asimismo el estatus debería especificar qué parte o partes de una AD se han cu
 CA OPS 1.920(b) (6). REGISTROS DE MANTENIMIENTO.
 (Ver RAC-OPS 1.920(b) (6).
 Esta CA es material explicativo e interpretativo que provee información sobre los registros de mantenimiento.
-A los efectos de este párrafo “componente vital para la seguridad de vuelo” indica un Componente de vida limite, u objeto de una limitación de aeronavegabilidad (Airworthiness Limitations), o componente mayor tales como trenes aterrizaje y controles de vuelo.
+A los efectos de este párrafo "componente vital para la seguridad de vuelo" indica un Componente de vida limite, u objeto de una limitación de aeronavegabilidad (Airworthiness Limitations), o componente mayor tales como trenes aterrizaje y controles de vuelo.
 CA OPS 1.920(c). REGISTROS DE MANTENIMIENTO.
 (VER RAC-OPS 1.920(C))
 La siguiente CA es un método aceptable de cumplimiento sobre los registros de mantenimiento
 (a) Cuando un operador cierra su operación, debería pasar todos los registros de mantenimiento al nuevo operador, o si no hay operador, almacenarse de acuerdo con lo establecido por la Autoridad.
-(b) La “transferencia permanente de registros”, generalmente, no incluye la cesión de la documentación en el arrendamiento de avión sin tripulación (dry-lease out) cuando la duración del arrendamiento es inferior a 6 meses. Sin embargo, la Autoridad debería estar satisfecha de que todos los registros de mantenimiento necesarios durante el tiempo de duración del arrendamiento son transferidos al arrendatario o se han puesto a su disposición.
+(b) La "transferencia permanente de registros", generalmente, no incluye la cesión de la documentación en el arrendamiento de avión sin tripulación (dry-lease out) cuando la duración del arrendamiento es inferior a 6 meses. Sin embargo, la Autoridad debería estar satisfecha de que todos los registros de mantenimiento necesarios durante el tiempo de duración del arrendamiento son transferidos al arrendatario o se han puesto a su disposición.
 CA OPS 1.930 VALIDEZ CONTINUADA DEL CERTIFICADO DE OPERADOR AÉREO CON RESPECTO AL SISTEMA DE MANTENIMIENTO.
 (Ver RAC-OPS 1.930)
 Esta CA es material explicativo e interpretativo que provee información sobre la validez continuada del Certificado de Operador Aéreo con respecto al sistema de mantenimiento
@@ -9372,7 +9599,7 @@ PARTE 0 ORGANIZACIÓN GENERAL
 0.2 Información General
 - Breve descripción de la organización
 - Relación con otras organizaciones
-- Composición de la flota – Tipo de operación
+- Composición de la flota - Tipo de operación
 - Localización de estaciones línea
 0.3 Personal de la Administración del Mantenimiento
 - Gerente responsable
@@ -9394,7 +9621,7 @@ NOTA.- Deben tenerse también en cuenta los procedimientos del sistema de calida
 Estas partes están incluidas en el Manual MOM de la organizaciónMRAC-145
 PARTE 6 PROCEDIMIENTOS DE MANTENIMIENTO RAC-OPS
 6.1 Utilización de la bitácora de mantenimiento y uso de la MEL
-6.2 Programa de mantenimiento del avión – Desarrollo y enmiendas
+6.2 Programa de mantenimiento del avión - Desarrollo y enmiendas
 6.3 Registros de tiempos y mantenimiento. Responsabilidades, archivo y acceso
 6.4 Cumplimiento y control de directivas de aeronavegabilidad
 6.5 Análisis de la efectividad del programa de mantenimiento de los aviones
@@ -9470,7 +9697,7 @@ Nota.- Para evitar variaciones inadvertidas de estas tareas o intervalos, estos 
 (e) Revisión periódica del contenido del programa de mantenimiento.
 (1) Los programas de mantenimiento aprobados al operador deberían ser objeto de revisiones periódicas a fin de asegurar que reflejan las recomendaciones del titular de los certificados de tipo, revisiones al MRBR, requisitos obligatorios y necesidades de mantenimiento del avión.
 (2) El operador debería revisar con detalle el programa de mantenimiento, al menos, anualmente.
-SUBPARTE N – TRIPULACIÓN DE VUELO
+SUBPARTE N - TRIPULACIÓN DE VUELO
 CA OPS 1.940(a) (4) MIEMBROS DE LA TRIPULACIÓN DE VUELO SIN EXPERIENCIA
 (Ver MAC-OPS 1.940(a) (4))
 Esta CA es un método aceptable de cumplimiento sobre tripulantes sin experiencia.
@@ -9491,8 +9718,8 @@ La RAC OPS 1.370 prohíbe el simulacro en vuelo de situaciones de emergencia o n
 (e) Los textos de orientación para diseñar programas de instrucción destinados a desarrollar conocimientos y habilidades relacionados con la actuación humana pueden encontrarse en el Manual de instrucción sobre factores humanos de la OACI (Doc. 9683).
 (f) En los PANS-OPS de la OACI (Doc. 8168), Volumen I, figura información para los pilotos y el personal de operaciones de vuelo sobre los parámetros relativos a los procedimientos de vuelo y sobre los procedimientos operacionales. Los criterios para la construcción de procedimientos de vuelo visual y por instrumentos figuran en los PANSOPS de la OACI (Doc. 8168), Volumen II. Los criterios sobre el franqueamiento de obstáculos y los empleados en ciertos Estados pueden diferir de los que se encuentran en los PANS-OPS y, por motivos de seguridad operacional, es importante conocer estas diferencias.
 (g) El documento Manual de instrucción basada en datos comprobados de la OACI (Doc. 9995), contiene textos de orientación para diseñar programas de instrucción para la tripulación de vuelo.
-(h) En el adjunto al Capítulo 2 del documento Procedimientos para los servicios de navegación aérea — Instrucción de la OACI (PANS-TRG, Doc. 9868), pueden consultarse textos de orientación sobre los diferentes medios empleados en la evaluación de la competencia.
-(i) En los Procedimientos para los servicios de navegación aérea — Instrucción de la OACI (PANS-TRG, Doc. 9868) figuran los procedimientos para la instrucción relativa a la prevención y recuperación de la pérdida de control en un dispositivo de instrucción para simulación de vuelo.
+(h) En el adjunto al Capítulo 2 del documento Procedimientos para los servicios de navegación aérea - Instrucción de la OACI (PANS-TRG, Doc. 9868), pueden consultarse textos de orientación sobre los diferentes medios empleados en la evaluación de la competencia.
+(i) En los Procedimientos para los servicios de navegación aérea - Instrucción de la OACI (PANS-TRG, Doc. 9868) figuran los procedimientos para la instrucción relativa a la prevención y recuperación de la pérdida de control en un dispositivo de instrucción para simulación de vuelo.
 (j) En el Manual de instrucción para la prevención y recuperación de la pérdida del control de la aeronave de la OACI (Doc. 10011) figura orientación sobre la instrucción para la prevención y recuperación de la pérdida de control en un dispositivo de instrucción para simulación de vuelo.
 CA OPS 1.943/1.945 (a) (9) / 1.955 (b) (6) / 1.965 (e) ADMINISTRACIÓN DE RECURSOS DE LA TRIPULACIÓN (CRM)
 (Ver RAC-OPS 1.943 / 1.945 (a) (9) / 1.955 (b) (6) / 1.965 (a) (3) (iv), (ver CA-OPS 1.943 / 1.945 (a) (9) / 1.955 (b) /6) / 1.965 (e) (MEI).
@@ -9573,8 +9800,8 @@ iii. La evaluación debe incluir comportamientos que contribuyan a fallas técni
 iv. La tripulación, y cuando así se requiera, el individuo será oralmente aleccionado.
 4.4 Resúmenes sin identificación de todas las evaluaciones CRM del operador deben utilizarse para dar retroalimentación para actualizar y mejorar el entrenamiento CRM del operador.
 5 Niveles de entrenamiento
-a. General. - Cuando se requiere un entrenamiento del tipo “general”, este será de tipo instructivo. Este entrenamiento debe refrescar el conocimiento obtenido en el primer entrenamiento.
-b En profundidad. - Cuando se requiere un entrenamiento “en profundidad”, generalmente será de tipo interactivo, y debe incluir, cuando sea apropiado, estudio de casos, discusión en grupo, desarrollo de actuaciones, y consolidación de conocimientos y pericia.
+a. General. - Cuando se requiere un entrenamiento del tipo "general", este será de tipo instructivo. Este entrenamiento debe refrescar el conocimiento obtenido en el primer entrenamiento.
+b En profundidad. - Cuando se requiere un entrenamiento "en profundidad", generalmente será de tipo interactivo, y debe incluir, cuando sea apropiado, estudio de casos, discusión en grupo, desarrollo de actuaciones, y consolidación de conocimientos y pericia.
 Los elementos esenciales deben ajustarse a las necesidades específicas de la fase de entrenamiento que se estén desarrollando.
 CA OPS 1.945(MAC) PROGRAMA DEL CURSO DE CONVERSIÓN.
 (Ver RAC-OPS 1.945 y Apéndice 1 a la RAC-OPS 1.945)
@@ -9627,7 +9854,7 @@ i. Total, acumulado de 100 horas o un mínimo de 40 sectores
 b Ascenso de copiloto a piloto al mando;
 i. Mínimo de 20 sectores al comenzar en un nuevo tipo;
 ii. Mínimo de 10 sectores cuando ya está calificado en el tipo de avión.
-CA OPS 1.945 (a) (9). ADMINISTRACIÓN DE RECURSOS DE LA TRIPULACIÓN – USO DE AUTOMATIZACIÓN
+CA OPS 1.945 (a) (9). ADMINISTRACIÓN DE RECURSOS DE LA TRIPULACIÓN - USO DE AUTOMATIZACIÓN
 (Ver RAC-OPS 1.945(a) (9))
 Esta CA es un método aceptable de cumplimiento sobre automatización.
 1. El curso de conversión debe incluir entrenamiento en el uso y conocimiento de la automatización, en el reconocimiento de los sistemas y limitaciones humanas asociadas con el uso de la misma. Por tanto, el operador debe garantizar que los miembros de la tripulación reciban entrenamiento en:
@@ -9642,7 +9869,7 @@ Esta CA es material explicativo e interpretativo que provee información adicion
 2. La verificación en línea se efectúa en el avión. El resto de entrenamiento y verificaciones se deben efectuar en un avión del mismo tipo o en un STD o un simulador de vuelo aprobado o, en el caso del entrenamiento en el equipo de seguridad y emergencia, en un dispositivo de entrenamiento representativo. El tipo de equipo que se utiliza para el entrenamiento y las verificaciones debe ser representativo de la instrumentación, equipos y distribución del tipo de avión operado por el miembro de la tripulación de vuelo.
 3. Verificaciones en Línea
 3.1 La verificación en línea se considera un factor especialmente importante para el desarrollo, mantenimiento y mejora de altos niveles de operación, y pueden proporcionar al operador una indicación valiosa de la utilidad de sus políticas y métodos de entrenamiento.
-Las verificaciones en línea son una prueba de la capacidad del miembro de la tripulación de vuelo de llevar a cabo satisfactoriamente una operación completa en línea, incluyendo los procedimientos prevuelo y postvuelo, uso de los equipos previstos, y se constituye como una oportunidad de valoración global de su capacidad para cumplir con las responsabilidades que se requieren, según se especifica en el Manual de Operaciones. Se debe seleccionar una ruta que proporcione una representación adecuada del alcance de las operaciones normales del piloto. Cuando las condiciones meteorológicas impidan la realización de un aterrizaje manual, se acepta un aterrizaje automático. La verificación en línea no está diseñada para determinar la competencia en ninguna ruta en particular. El piloto al mando, o cualquier piloto que pueda ser requerido para relevarlo, también deben demostrar su capacidad para “administrar” la operación y tomar las decisiones apropiadas como piloto al mando.
+Las verificaciones en línea son una prueba de la capacidad del miembro de la tripulación de vuelo de llevar a cabo satisfactoriamente una operación completa en línea, incluyendo los procedimientos prevuelo y postvuelo, uso de los equipos previstos, y se constituye como una oportunidad de valoración global de su capacidad para cumplir con las responsabilidades que se requieren, según se especifica en el Manual de Operaciones. Se debe seleccionar una ruta que proporcione una representación adecuada del alcance de las operaciones normales del piloto. Cuando las condiciones meteorológicas impidan la realización de un aterrizaje manual, se acepta un aterrizaje automático. La verificación en línea no está diseñada para determinar la competencia en ninguna ruta en particular. El piloto al mando, o cualquier piloto que pueda ser requerido para relevarlo, también deben demostrar su capacidad para "administrar" la operación y tomar las decisiones apropiadas como piloto al mando.
 4. Entrenamiento y Verificaciones de competencia
 a. Cuando se utiliza un STD, se debe aprovechar la oportunidad, cuando sea posible, de utilizar el Entrenamiento de Vuelo Orientado a la Línea (LOFT).
 b. El entrenamiento y verificaciones de competencia para los ingenieros de vuelo, cuando sea posible, debe tener lugar mientras el piloto está realizando el entrenamiento y verificaciones de competencia.
@@ -9716,10 +9943,10 @@ b Nivel B
 i Entrenamiento. El entrenamiento del nivel B puede ser realizado de manera adecuada mediante ayudas a la enseñanza tales como presentaciones con transparencias/cintas, enseñanza por computador, que puede ser interactiva, enseñanza por video o en aulas. Este entrenamiento es usado típicamente en sistemas de tareas compartidas que requieren el conocimiento y el entrenamiento con posibles aplicaciones parciales de procedimientos (por ejemplo, combustible, o sistemas hidráulicos).
 ii Verificación. Se requiere la realización de una verificación, escrita u oral, tanto para el entrenamiento de diferencias inicial como el periódico.
 c Nivel C
-i Entrenamiento. El entrenamiento del nivel C debe realizarse mediante prácticas en STDs calificados de acuerdo al RAC-STD 2 A, nivel 1 o mayor. Las diferencias afectan a la pericia, habilidades así como al conocimiento, pero no requieren el uso de dispositivos de “tiempo real”. Dicho entrenamiento abarca tanto procedimientos normales como anormales (por ejemplo, para sistemas de gestión de vuelo - FMS).
-ii Verificación. El STD usado para el entrenamiento del nivel C, o mayor, es el que se usa para la verificación del curso de conversión y el entrenamiento periódico. En la prueba se debe utilizar un entorno de vuelo “en tiempo real” tal como la demostración del uso de un sistema de gestión de vuelo. No se requiere verificar las maniobras no relacionadas con la tarea específica.
+i Entrenamiento. El entrenamiento del nivel C debe realizarse mediante prácticas en STDs calificados de acuerdo al RAC-STD 2 A, nivel 1 o mayor. Las diferencias afectan a la pericia, habilidades así como al conocimiento, pero no requieren el uso de dispositivos de "tiempo real". Dicho entrenamiento abarca tanto procedimientos normales como anormales (por ejemplo, para sistemas de gestión de vuelo - FMS).
+ii Verificación. El STD usado para el entrenamiento del nivel C, o mayor, es el que se usa para la verificación del curso de conversión y el entrenamiento periódico. En la prueba se debe utilizar un entorno de vuelo "en tiempo real" tal como la demostración del uso de un sistema de gestión de vuelo. No se requiere verificar las maniobras no relacionadas con la tarea específica.
 d Nivel D
-i Entrenamiento. El entrenamiento del nivel D se dirige a las diferencias que afectan a los conocimientos, pericia y habilidades para los cuales el entrenamiento debe ser realizado en un entorno de vuelo simulado con maniobras de vuelo en “tiempo real” para las cuales el uso de un STD calificado como nivel 1 de acuerdo al RAC-STD 2A, o equivalente, no será suficiente, pero para las que no se requiere sistema visual o de movimiento. Este entrenamiento se realizaría, de manera general, en un STD nivel 2 de acuerdo con el RACSTD 2A., o equivalente.
+i Entrenamiento. El entrenamiento del nivel D se dirige a las diferencias que afectan a los conocimientos, pericia y habilidades para los cuales el entrenamiento debe ser realizado en un entorno de vuelo simulado con maniobras de vuelo en "tiempo real" para las cuales el uso de un STD calificado como nivel 1 de acuerdo al RAC-STD 2A, o equivalente, no será suficiente, pero para las que no se requiere sistema visual o de movimiento. Este entrenamiento se realizaría, de manera general, en un STD nivel 2 de acuerdo con el RACSTD 2A., o equivalente.
 ii Verificación. Debe realizarse una verificación de competencia para cada tipo o variante, tanto después del entrenamiento inicial como del periódico. Sin embargo, pueden darse créditos a las maniobras comunes en cada tipo o variante y no necesitan ser repetidas.
 Los elementos entrenados al nivel D de diferencias pueden ser verificados en STDs calificados nivel 2 de acuerdo al RAC-STD 2A. o equivalente Por tanto las verificaciones del nivel D constan, al menos, de verificación de competencia completa en un tipo o variante y de una verificación parcial en el otro.
 e Nivel E
@@ -9731,7 +9958,7 @@ Esta CA es un método aceptable de cumplimiento sobre el uso de las tablas de re
 1 General
 1.1 El uso de la metodología descrita seguidamente es aceptable para la DGAC como un medio de evaluación de las diferencias y similitudes para justificar la operación de más de un tipo o variante, y cuando se busca crédito para ello.
 2 Tablas ODR
-2.1 Antes de requerir a los miembros de la tripulación de vuelo que operen más de un tipo o variante, los operadores deben nominar en primer lugar un avión como Avión Base donde pueden mostrar las diferencias con el segundo tipo o variante de avión, las “diferencias de avión” en términos de: tecnología (sistemas), procedimientos, manejo de pilotos y administración del avión. Estas diferencias, conocidas como Requisitos de Diferencias del Operador (ODR), preferiblemente presentadas en formato tabular, constituyen parte de la justificación para operar más de un tipo o variante y también la base para el entrenamiento de la tripulación de vuelo asociado con las diferencias/familiarización
+2.1 Antes de requerir a los miembros de la tripulación de vuelo que operen más de un tipo o variante, los operadores deben nominar en primer lugar un avión como Avión Base donde pueden mostrar las diferencias con el segundo tipo o variante de avión, las "diferencias de avión" en términos de: tecnología (sistemas), procedimientos, manejo de pilotos y administración del avión. Estas diferencias, conocidas como Requisitos de Diferencias del Operador (ODR), preferiblemente presentadas en formato tabular, constituyen parte de la justificación para operar más de un tipo o variante y también la base para el entrenamiento de la tripulación de vuelo asociado con las diferencias/familiarización
 3 Las Tablas ODR deben ser presentadas de la siguiente manera:
 3.1 Tabla 1-ODR 1- General
 AVIÓN BASE: AVIÓN DIFERENTE: | MÉTODO DE CUMPLIMIENTO
@@ -9806,20 +10033,20 @@ c. Características de manejo. La consideración de las características de mane
 Se permite alternar el entrenamiento y las verificaciones de competencia si los datos proporcionados para operar más de un tipo o variante muestran claramente que existen suficientes similitudes en tecnología, procedimientos operacionales y características de manejo.
 4 Un ejemplo de las Tablas ODR completas para la propuesta de un operador para que las tripulaciones de vuelo operen más de un tipo o variante aparecen de la siguiente forma:
 Tabla 1-ODR 1-Avión General
-AVIÓN BASE: “X” AVIÓN DIFERENTE: “Y” | MÉTODO DE CUMPLIMIENTO
+AVIÓN BASE: "X" AVIÓN DIFERENTE: "Y" | MÉTODO DE CUMPLIMIENTO
 General | Diferencias | Características de Vuelo | Cambio de procedimie ntos | Entrenamiento | Verificación | Experiencia reciente
-Cabina de vuelo | Mismo arreglo de la cabina de mando, 2 asientos de observadores en “Y”. | No | No | A | / | /
-Cabina | “Y” capacidad máxima certificada de pasajeros: 335,”X”: 179 | No | No | A | / | /
+Cabina de vuelo | Mismo arreglo de la cabina de mando, 2 asientos de observadores en "Y". | No | No | A | / | /
+Cabina | "Y" capacidad máxima certificada de pasajeros: 335,"X": 179 | No | No | A | / | /
 | | | | | | |
 Tabla 2-ODR 2- Sistemas
-Avión Base: “X” Avión diferente: “Y” | Método de Cumplimiento
+Avión Base: "X" Avión diferente: "Y" | Método de Cumplimiento
 Sistemas | Diferencias | Características de Vuelo | Cambio de Procedimientos | Entrenamiento | Verificación | Experiencia reciente
 21 Aire acondicio nado | -Sistema de ajuste del aire -Paquetes Temperatura de la cabina | No No No | Sí No Sí | B | B | B
 22 Vuelo automátic o | Arquitectura FMGS Funciones FMGES Modos de reversión | No No No | | B C D | B C D | B B D
 23 Comunica ciones | | | | | |
 | | | | | | |
 Tabla 3- ODR 3- Maniobras
-Avión Base: “X” Avión diferente: “Y” | Método de Cumplimiento
+Avión Base: "X" Avión diferente: "Y" | Método de Cumplimiento
 Maniobras | Diferencias | Características de Vuelo | Cambio de procedimiento s | Entrenamiento | Verificación | Experiencia reciente
 Rodaje | -Altura a los ojos del piloto, radio de viraje -Rodaje con 2 motores (1 y 4) | Sí No | No No | D A | D / | / /
 Despegue | Características de vuelo de acuerdo a las leyes en tierra | Sí | No | E | E | E
@@ -9836,7 +10063,7 @@ CA al Apéndice 1 a la RAC-OPS 1.965. ENTRENAMIENTO SOBRE LA INCAPACITACIÓN DEL
 Esta CA es un método aceptable de cumplimiento sobre incapacitación.
 1. Se deben establecer procedimientos de entrenamiento a la tripulación de vuelo para reconocer y administrar la incapacitación de un piloto. Este entrenamiento debe realizarse cada año y puede formar parte de otro entrenamiento recurrente. Debe ser en forma de instrucción en aula, exposición, discusión, video u otros medios similares.
 2. Si está disponible un STD para el tipo de avión operado, se debe realizar un entrenamiento práctico relativo a la incapacitación del piloto a intervalos que no excedan de 3 años.
-SUBPARTE O – TRIPULACIÓN DE CABINA
+SUBPARTE O - TRIPULACIÓN DE CABINA
 CA OPS 1.989. MIEMBROS ADICIONALES DE LA TRIPULACIÓN DE CABINA ASIGNADOS A TAREAS ESPECIALIZADAS.
 (Ver RAC-OPS 1.989)
 Esta CA es material explicativo e interpretativo que provee información adicional sobre tripulantes de cabina.
@@ -9994,7 +10221,7 @@ Esta CA es un método aceptable de cumplimiento que provee información adiciona
 (1) Distribución de la cabina en cuanto a salidas, área de cocinas (galleys) y almacenamiento de los equipos de emergencia;
 (2) Tipo y ubicación de los asientos de los pasajeros y de la tripulación de cabina;
 (3) Cuando sea posible, salidas en todo tipo de operaciones (especialmente en relación con el modo de operación, su peso y balance y fuerzas de operación); y
-(4) Equipos de emergencia del tipo que se lleva en el avión (esos equipos podrán ser elementos “sólo para entrenamiento” y, en el caso de los equipos de oxígeno y protectores de la respiración (PBE), se podrán utilizar equipos cargados con o sin oxígeno).
+(4) Equipos de emergencia del tipo que se lleva en el avión (esos equipos podrán ser elementos "sólo para entrenamiento" y, en el caso de los equipos de oxígeno y protectores de la respiración (PBE), se podrán utilizar equipos cargados con o sin oxígeno).
 (c) Cuando se determine si una salida es una variante de otro tipo, los siguientes factores deben evaluarse:
 (1) Armado/desarmado de la salida
 (2) Dirección del movimiento de la manija de operación
@@ -10131,7 +10358,36 @@ a La naturaleza de las operaciones, así como los procedimientos operativos asoc
 También se deben tratar las condiciones climatológicas adversas y peligros poco frecuentes;
 b La gestión de la tripulación de cabina debe estar consciente, de diversas situaciones de emergencia y sus efectos consiguientes sobre la operación del avión; y
 c Cuando sea posible, se recomienda la participación del Jefe de Cabina en los ejercicios de Entrenamiento de Vuelo Orientado a la Línea (LOFT) en el simulador de vuelo.
-SUBPARTE P – MANUALES, BITÁCORAS Y REGISTROS
+(*)RAC OPS 1.1036 Instructores de tripulantes de cabina para un COA.
+(a) Un instructor tripulante de cabina es una persona que está calificada para impartir instrucción a los miembros de la tripulación de cabina en el tipo de avión que se va a operar;
+(b) Todos los candidatos deben de tener las calificaciones como miembro de la tripulación de cabina para iniciarse y mantenerse como instructor siempre que esté al servicio del operador.
+(c) Haber aprobado el examen teórico de Fundamentos de Instrucción evaluado por ésta DGAC.
+(d) Para ejercer como instructor tripulante de cabina en un programa de instrucción establecido en esta subparte, con respecto al tipo de avión, cada postulante debe cumplir con lo siguiente:
+(1) El Operador deberá presentar la solicitud a la DGAC para la respectiva aprobación:
+(2) Ser titular de la licencia de tripulante de cabina emitida conforme al RAC LPTA y las correspondientes habilitaciones vigentes.
+(3) tener como mínimo 5 años de experiencia como tripulante de cabina en el tipo de avión en el que se va a impartir instrucción.
+(4) La DGAC podrá considerar la experiencia anterior (5 años) en el caso de que el tipo de avión sea nuevo en la flota del operador;
+(5) Estos requisitos no impiden que se autorice a un experto en una materia determinada a impartir instrucción relacionada con su especialidad.
+(6) Cada instructor para mantener sus competencias en el tipo de avión y procedimientos de la compañía, debe realizar como mínimo una operación de 4 sectores, como tripulante de cabina titular, cada 3 meses en los equipos habilitados.
+(7) haber completado satisfactoriamente las fases de instrucción apropiadas para el avión, incluyendo el entrenamiento periódico y las evaluaciones pertinentes de aptitud académica y las verificaciones de la competencia apropiadas, exigidas para servir como tripulante de cabina; y
+(8) haber completado satisfactoriamente los requisitos de instrucción y verificación prescritos en el Apéndice 1 al RAC OPS 1.1036, requeridos para desempeñarse como instructor de tripulante de cabina.
+(e) El período de validez del entrenamiento recurrente y sus correspondientes verificaciones, que se requieren en RAC OPS 1.1005, RAC OPS 1.1010, RAC OPS 1.1015, RAC OPS 1.1020, RAC OPS 1.1025 debe ser de 12 meses calendario contados a partir del último día del mes en que se realizaron.
+(f) La experiencia y calificaciones de los instructores autorizados por la DGAC, se establecerá en el programa de instrucción del operador.
+(g) El período de validez del entrenamiento recurrente como Instructor Tripulante de cabina establecido el Apéndice 1 al RAC OPS 1.1036 será de 24 meses calendario con la finalidad de mantener actualizados sus conocimientos, en correspondencia a las tareas y responsabilidades asignadas y basado en el Programa de instrucción establecido en el Manual de Operaciones.
+(h) La instrucción señalada en el Párrafo (e) anterior, deberá incluir la capacitación en el conocimiento y aptitudes relacionadas con el desempeño humano, cursos de actualización en nueva tecnología y técnicas de formación para los conocimientos impartidos o verificados.
+Apéndice 1 al RAC OPS 1.1036 Requisitos de instrucción
+(a) La instrucción inicial y recurrente para instructores tripulantes de cabina debe incluir lo siguiente:
+(1) deberes, funciones, responsabilidades y limitaciones del instructor tripulante de cabina;
+(2) los reglamentos aplicables y las políticas y procedimientos del operador;
+(3) métodos, procedimientos y técnicas apropiadas para conducir la instrucción tanto presencial como virtual si procede;
+(4) principios fundamentales del proceso de aprendizaje;
+(5) evaluación apropiada del desempeño del tripulante de cabina.
+(6) características personales del tripulante de cabina que podrían afectar adversamente la seguridad de vuelo.
+(7) acción correctiva apropiada en caso de verificaciones no satisfactorias.
+(8) instrucción sobre gestión de los recursos de la tripulación (CRM) y mercancías peligrosas;
+(*)(Así adicionad el punto RAC OPS 1.1036 Instructores de tripulantes de cabina para un COA anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
+RAC OPS 1.1036 Instructores de tripulantes de cabina para un COA.
+SUBPARTE P - MANUALES, BITÁCORAS Y REGISTROS
 CA OPS 1.1040 (b) Elementos del Manual de Operaciones sujetos a aprobación
 (Ver RAC-OPS 1.1040 (b))
 Esta CA es material explicativo e interpretativo que provee información adicional sobre el Manual de Operaciones.
@@ -10160,7 +10416,7 @@ A 8.3.2(b) | MNPS | 1.243
 A 8.3.2(c) | Navegación basada en Performance | 1.243
 A 8.3.2(f) | RVSM | 1.241
 B 1.1(b) | Configuración máxima aprobada de asientos para pasajeros | 1.003 (a) Configuración máxima aprobada de asientos para pasajeros
-B 2(g) | Método alternativo para verificar el peso en la aproximación (DH menor de 200 pies) – Performance Clase A) | 1.510(b)
+B 2(g) | Método alternativo para verificar el peso en la aproximación (DH menor de 200 pies) - Performance Clase A) | 1.510(b)
 B 4.1(h) | Procedimiento para una aproximación de descenso pronunciado ( Steep Approach) Performance Clase B | 1.515(a) (3) y (a)(4) y 1.550(a)
 B 6 (b) | Uso de sistemas de peso y balance de a bordo | Apéndice 1 a la RAC-OPS 1.625
 B 9 | MEL | 1.030(a)(2)
@@ -10198,7 +10454,7 @@ Esta CA es material explicativo e interpretativo que provee información adicion
 CA OPS 1.1055 (b). BITÁCORA DE VUELO.
 (Ver RAC-OPS 1.1055 (b))
 Esta CA es material explicativo e interpretativo que provee información adicional sobre la bitácora de vuelo.
-La “otra documentación” que se menciona en este párrafo podría incluir elementos tales como, por ejemplo, el plan de vuelo operacional, la bitácora de mantenimiento, informe del vuelo, listas de la tripulación.
+La "otra documentación" que se menciona en este párrafo podría incluir elementos tales como, por ejemplo, el plan de vuelo operacional, la bitácora de mantenimiento, informe del vuelo, listas de la tripulación.
 CA al Apéndice 1 de la RAC-OPS 1.1045. CONTENIDO DEL MANUAL DE OPERACIONES. (Ver Apéndice 1 a la RAC-OPS 1.1045)
 Esta CA es material explicativo e interpretativo que provee información adicional sobre el contenido del manual de operaciones.
 1. Con respecto al Manual de Operaciones Sección A, párrafo 8.3.17, sobre la radiación cósmica, sólo se deben publicar los valores límite en el Manual de Operaciones después de que los resultados de la investigación científica estén disponibles y aceptados internacionalmente.
@@ -10224,8 +10480,8 @@ Estos valores se deben basar en principios y conocimientos científicos, con suj
 (4) facilitar el control permanente y la evaluación periódica de la mitigación de los riesgos relacionados con la fatiga que se logra con dichas medidas; y
 (5) facilitar el mejoramiento continuo de la actuación global del FRMS.
 (f) El operador debe mantener registros de tiempo de vuelo, períodos de servicio de vuelo, períodos de servicio y períodos de descanso para todos los miembros de sus tripulaciones de vuelo y de cabina, durante un período especificado en el Apéndice 1 a la RAC OPS 1.1065.
-Nota. — El Manual para la supervisión de los enfoques de gestión de la fatiga (Doc. 9966) contiene orientación para la elaboración y aplicación de reglamentos sobre FRMS.
-Nota. — Las desviaciones significativas se describen en el Manual para la supervisión de los enfoques de la fatiga (Doc. 9966).
+Nota. - El Manual para la supervisión de los enfoques de gestión de la fatiga (Doc. 9966) contiene orientación para la elaboración y aplicación de reglamentos sobre FRMS.
+Nota. - Las desviaciones significativas se describen en el Manual para la supervisión de los enfoques de la fatiga (Doc. 9966).
 Cuando los explotadores tienen un FRMS, los Estados deberían requerir que esté integrado con sus SMS.
 La integración del FRMS con el SMS se describe en el Manual de sistemas de gestión de riesgos asociados a la fatiga para los encargados de la reglamentación (Doc. 9966).
 En el Manual de gestión de la seguridad operacional (Doc. 9859) se describe la notificación efectiva de seguridad operacional.
@@ -10326,7 +10582,7 @@ La definición de tiempo de vuelo, en el contexto de las limitaciones del tiempo
 2.2 Períodos de servicio
 Todo el tiempo que se pasa en servicio puede inducir fatiga en los miembros de la tripulación de vuelo y de cabina y, por consiguiente, esto debe tenerse en cuenta al disponer los períodos de descanso para su restablecimiento. Cuando los miembros de la tripulación están en espera, deberá considerarse que están en servicio si esto les produce fatiga.
 2.3 Períodos de servicio de vuelo
-2.3.1 Se trata de que la definición de período de servicio de vuelo comprenda un período continuo de servicio que siempre incluya un vuelo o una serie de vuelos para un miembro de la tripulación de vuelo o de cabina. Es decir, que incluya todos los trabajos que se requiera que desempeñe un miembro de la tripulación, desde el momento en que se presenta a trabajar hasta que concluye el vuelo o la serie de vuelos y el avión queda detenido y sus motores se paran. Se considera necesario que un período de servicio de vuelo esté sujeto a limitaciones porque las actividades de un miembro de la tripulación durante períodos prolongados ocasionarían, con el tiempo, fatiga — transitoria o acumulativa — que puede afectar en forma adversa a la seguridad operacional del vuelo.
+2.3.1 Se trata de que la definición de período de servicio de vuelo comprenda un período continuo de servicio que siempre incluya un vuelo o una serie de vuelos para un miembro de la tripulación de vuelo o de cabina. Es decir, que incluya todos los trabajos que se requiera que desempeñe un miembro de la tripulación, desde el momento en que se presenta a trabajar hasta que concluye el vuelo o la serie de vuelos y el avión queda detenido y sus motores se paran. Se considera necesario que un período de servicio de vuelo esté sujeto a limitaciones porque las actividades de un miembro de la tripulación durante períodos prolongados ocasionarían, con el tiempo, fatiga - transitoria o acumulativa - que puede afectar en forma adversa a la seguridad operacional del vuelo.
 2.3.2 Un período de servicio de vuelo no incluye el período de tiempo para trasladarse desde la casa hasta el punto donde debe presentarse a trabajar. Es responsabilidad del miembro de la tripulación de vuelo o de cabina presentarse a trabajar después de haber descansado en forma adecuada.
 2.3.3 El tiempo que, a instancias del operador, se invierte en el viaje para incorporarse al puesto de trabajo, forma parte del período de servicio de vuelo cuando este tiempo precede inmediatamente (es decir, sin que medie un período de descanso) a un período de servicio de vuelo en el que la persona en cuestión participa como miembro de la tripulación de vuelo o de cabina.
 2.3.4 Una importante salvaguardia es que los Estados y los operadores reconozcan la responsabilidad de un miembro de la tripulación a negarse a prestar un nuevo servicio de vuelo si la fatiga que sufre es de tal naturaleza que pueda perjudicar la seguridad del vuelo.
@@ -10351,8 +10607,8 @@ Miembro de la tripulación de cabina. Miembro de la tripulación que, en interé
 Miembro de la tripulación de vuelo. Miembro de la tripulación, titular de la correspondiente licencia, a quien se asignan obligaciones esenciales para la operación de una aeronave durante un período de servicio de vuelo.
 Tripulación de vuelo aumentada. Tripulación de vuelo constituida por más del número mínimo requerido para operar el avión y que posibilita que cada miembro de la tripulación de vuelo pueda abandonar el puesto asignado y ser sustituido por otro miembro de la tripulación de vuelo adecuadamente cualificado para fines de descanso en vuelo.
 4.2.2 Tiempos de vuelo o entre calzos
-Tiempo de vuelo — aviones. Tiempo total transcurrido desde que el avión comienza a moverse con el propósito de despegar, hasta que se detiene completamente al finalizar el vuelo.
-Nota. — “Tiempo de vuelo”, como aquí se define, es sinónimo de tiempo “entre calzos”; de uso general y se cuenta a partir del momento en que el avión comienza a moverse con el propósito de despegar, hasta que se detiene completamente al finalizar el vuelo.
+Tiempo de vuelo - aviones. Tiempo total transcurrido desde que el avión comienza a moverse con el propósito de despegar, hasta que se detiene completamente al finalizar el vuelo.
+Nota. - "Tiempo de vuelo", como aquí se define, es sinónimo de tiempo "entre calzos"; de uso general y se cuenta a partir del momento en que el avión comienza a moverse con el propósito de despegar, hasta que se detiene completamente al finalizar el vuelo.
 4.2.3 Tiempos de servicio y de servicio de vuelo
 Período de servicio. Período que se inicia cuando el operador exige que un miembro de la tripulación de vuelo o de cabina se presente o comience un servicio y que termina cuando la persona queda libre de todo servicio.
 Período de servicio de vuelo. Período que comienza cuando se requiere que un miembro de la tripulación se presente al servicio, en un vuelo o en una serie de vuelos, y termina cuando el avión se detiene completamente al finalizar el último vuelo del cual forma parte como miembro de la tripulación.
@@ -10366,8 +10622,8 @@ Miembro de la tripulación de cabina. Miembro de la tripulación que, en interé
 Miembro de la tripulación de vuelo. Miembro de la tripulación, titular de la correspondiente licencia, a quien se asignan obligaciones esenciales para la operación de una aeronave durante un período de servicio de vuelo.
 Tripulación de vuelo aumentada. Tripulación de vuelo constituida por más del número mínimo requerido para operar el avión y que posibilita que cada miembro de la tripulación de vuelo pueda abandonar el puesto asignado y ser sustituido por otro miembro de la tripulación de vuelo adecuadamente cualificado para fines de descanso en vuelo.
 4.2.2 Tiempos de vuelo o entre calzos
-Tiempo de vuelo — aviones. Tiempo total transcurrido desde que el avión comienza a moverse con el propósito de despegar, hasta que se detiene completamente al finalizar el vuelo.
-Nota. — “Tiempo de vuelo”, como aquí se define, es sinónimo de tiempo “entre calzos”; de uso general y se cuenta a partir del momento en que el avión comienza a moverse con el propósito de despegar, hasta que se detiene completamente al finalizar el vuelo.
+Tiempo de vuelo - aviones. Tiempo total transcurrido desde que el avión comienza a moverse con el propósito de despegar, hasta que se detiene completamente al finalizar el vuelo.
+Nota. - "Tiempo de vuelo", como aquí se define, es sinónimo de tiempo "entre calzos"; de uso general y se cuenta a partir del momento en que el avión comienza a moverse con el propósito de despegar, hasta que se detiene completamente al finalizar el vuelo.
 4.2.3 Tiempos de servicio y de servicio de vuelo
 Período de servicio. Período que se inicia cuando el operador exige que un miembro de la tripulación de vuelo o de cabina se presente o comience un servicio y que termina cuando la persona queda libre de todo servicio.
 Período de servicio de vuelo. Período que comienza cuando se requiere que un miembro de la tripulación se presente al servicio, en un vuelo o en una serie de vuelos, y termina cuando el avión se detiene completamente al finalizar el último vuelo del cual forma parte como miembro de la tripulación.
@@ -10382,9 +10638,9 @@ Base de domicilio. El lugar designado por el operador al miembro de la tripulaci
 Circunstancia operacional imprevista. Un suceso no planificado, como condiciones meteorológicas no pronosticadas, mal funcionamiento del equipo o demora de tránsito aéreo que está fuera del control del operador.
 Hora de presentación. La hora a la que el operador exige que los miembros de la tripulación de vuelo y de cabina se presenten para prestar sus servicios.
 Horario de trabajo. Una lista proporcionada por el operador de las horas a las que se requiere que un miembro de la tripulación desempeñe funciones.
-Nota. — “Horario de trabajo”, como aquí se define, es sinónimo de “itinerario”, “servicio horario”, “pauta de servicios” y “turnos de servicio”.
+Nota. - "Horario de trabajo", como aquí se define, es sinónimo de "itinerario", "servicio horario", "pauta de servicios" y "turnos de servicio".
 Viaje para incorporarse al puesto. La transferencia de un miembro de la tripulación que no está en funciones desde un lugar a otro, como pasajero, a solicitud del operador.
-Nota. — “Viaje para incorporarse al puesto”, como aquí se define, es sinónimo de “traslado”.
+Nota. - "Viaje para incorporarse al puesto", como aquí se define, es sinónimo de "traslado".
 4.3 Responsabilidades del Estado
 4.3.1 El objetivo de cualquier limitación prescriptiva del reglamento sobre gestión de la fatiga es garantizar que los miembros de las tripulaciones de vuelo y de cabina se mantengan suficientemente alertas para realizar sus operaciones con un grado satisfactorio de desempeño y seguridad operacional en todas las circunstancias. El principio fundamental es disponer lo necesario para que cada miembro de la tripulación de vuelo y de cabina esté adecuadamente descansando cuando inicie un período de servicio de vuelo y, durante el vuelo, esté suficientemente alerta para realizar sus funciones con un grado satisfactorio de desempeño y seguridad operacional en todas las situaciones normales y anormales.
 4.3.2 La finalidad de este ejemplo es ilustrar cómo pueden definirse las limitaciones en cuanto a las variables que pueden influir en el estado de alerta de los miembros de la tripulación de vuelo y de cabina (p. ej., horas de vuelo, períodos de servicio y de servicio de vuelo y períodos mínimos de descanso admisibles) y que pueden aplicarse al planificar los horarios de trabajo de las tripulaciones de vuelo y de cabina. Puede preverse que se excedan algunas de estas limitaciones, pero sólo en los casos que no se hayan podido prever razonablemente al planificar el vuelo.
@@ -10451,92 +10707,90 @@ Todo el tiempo empleado para incorporarse al puesto se cuenta como servicio y es
 4.11.3 Los operadores también deben de guardar registros de las ocasiones en las que un piloto al mando haya tomado una decisión (según lo dispuesto en 4.9.1). Si la decisión ha de aplicarse por motivos similares en más del ( ) por ciento de las ocasiones, cuando se vuela a lo largo de una ruta o una configuración de rutas en particular, es muy probable que la finalidad de este texto de orientación no se haya cumplido y que pueda originarse una fatiga indebida. Se deben hacer arreglos para modificar el itinerario o los arreglos de designación de la tripulación para reducir la frecuencia de estos sucesos. El Estado puede exigir que se presenten, además, copias de ciertos registros.
 4.11.4 Los miembros de la tripulación de vuelo deben mantener un registro personal de sus horas diarias de vuelo.
 4.11.5 Soporte Evidencia Científica
-El presente documento está directamente orientado a las tripulaciones de vuelo, pero también puede ser de interés para todos aquellos que trabajan en relación con estas, y cuyas actuaciones afectan a sus periodos de actividad aérea y descanso, así como a cualquier otro aspecto de la “operación”. El contenido de este informe se basa fundamentalmente en investigaciones científicas desarrollas por la FAA, la NASA, CASA y BASI de Australia, CAA de Nueva Zelanda, CAA de Canadá, CAA de Sudáfrica, así como por otros investigadores de reputado prestigio internacional. Por otra parte, se hacen referencias expresas a las normativas nacionales e internacionales de limitaciones de tiempo de vuelo, máximos de actividad aérea y periodos de descanso, establecidas de acuerdo con los requisitos del Anexo 6 de OACI.
+El presente documento está directamente orientado a las tripulaciones de vuelo, pero también puede ser de interés para todos aquellos que trabajan en relación con estas, y cuyas actuaciones afectan a sus periodos de actividad aérea y descanso, así como a cualquier otro aspecto de la "operación". El contenido de este informe se basa fundamentalmente en investigaciones científicas desarrollas por la FAA, la NASA, CASA y BASI de Australia, CAA de Nueva Zelanda, CAA de Canadá, CAA de Sudáfrica, así como por otros investigadores de reputado prestigio internacional. Por otra parte, se hacen referencias expresas a las normativas nacionales e internacionales de limitaciones de tiempo de vuelo, máximos de actividad aérea y periodos de descanso, establecidas de acuerdo con los requisitos del Anexo 6 de OACI.
 El enfoque de esta investigación es meramente práctico. Su pretensión es únicamente ser una guía consultiva para las tripulaciones y como tal ha de ser tomada. Los objetivos que se pretenden alcanzar son aquellos que se consideran útiles y necesarios para evitar, eliminar, prever, detectar, paliar y combatir la fatiga en las operaciones de vuelo.
 De acuerdo con lo anterior, la información que se proporciona se estructura en los ámbitos que ocasionan la Fatiga, inicialmente se trata de exponer una serie de conocimientos genéricos relativos a los Ritmos Biológicos y al Sueño, posteriormente se proporcionan medidas concretas para reconocer, paliar y evitar situaciones de Fatiga.
 a) Antecedentes
 Habitualmente, como pilotos, estamos acostumbrados a estudiar con profundidad y con todo tipo de detalles las aeronaves que volamos, ya sea durante los cursos de calificación, reentrenamiento y a lo largo de la operación de las máquinas. Terminamos conociendo a la perfección el funcionamiento, limitaciones y actuaciones de las aeronaves en todo tipo de condiciones, conduciendo de esta forma su operación en las mejores condiciones de rendimiento, eficiencia y seguridad.
-Sin embargo, no estamos nada habituados a estudiar y valorar esa otra máquina que somos nosotros mismos, “el Ser Humano”. Parece que con pasar los reconocimientos médicos obligatorios es suficiente, lo máximo que podemos decir en un momento dado es que estamos cansados o no nos encontramos bien. Al igual que las “maquinas voladoras”, las maquinas Humanas” necesitan un mantenimiento “preventivo y reactivo” y un entorno de trabajo dentro de unas condiciones medioambientales apropiadas a sus imitaciones.
-Todo este planteamiento, tiene un valor importantísimo para garantizar un determinado nivel de seguridad en el “Sistema de la Aviación”. Es por ello que en otros países distintos al nuestro, como los Estados Unidos, se tomó conciencia temprana de esta situación, iniciándose investigaciones científicas al respecto, actuaciones regulatorias en lo relativo a la programación de las actividades aéreas de las tripulaciones y programas educativos para las tripulaciones. En el país citado, las anteriores actuaciones fueron a requisito del propio Congreso de los Estados Unidos en 1980, y desde esa fecha existe el actualmente denominado “Programa de Medidas contra la Fatiga” (NASA Ames Research Center).
-Este asunto, tiene varias vertientes aparte de la Seguridad en el Transporte Aéreo, todas ellas tienen en común un factor inalienable, el “económico”. Hoy en día, la competitividad del sector es muy elevada y las compañías aéreas tienden a sacar la mayor productividad de sus tripulaciones, empleándose sistemas de programación informáticos que respetando las regulaciones oficiales “exprimen” literalmente las posibilidades físicas de las tripulaciones. Indudablemente se cumple la norma, pero existen aspectos que ocasionan a largo y medio plazo “costes” muy elevados, tanto en el aspecto de la seguridad, como en el de la salud, la eficiencia y eficacia de las operaciones aéreas. Esta última perspectiva, puede ser controlable a través de toda una serie de políticas basadas en investigaciones científicas y datos empíricos, por supuesto respetando la normativa vigente, y que en cualquier caso conllevan a medio y largo plazo una mejor productividad de la compañía.
+Sin embargo, no estamos nada habituados a estudiar y valorar esa otra máquina que somos nosotros mismos, "el Ser Humano". Parece que con pasar los reconocimientos médicos obligatorios es suficiente, lo máximo que podemos decir en un momento dado es que estamos cansados o no nos encontramos bien. Al igual que las "maquinas voladoras", las maquinas Humanas" necesitan un mantenimiento "preventivo y reactivo" y un entorno de trabajo dentro de unas condiciones medioambientales apropiadas a sus imitaciones.
+Todo este planteamiento, tiene un valor importantísimo para garantizar un determinado nivel de seguridad en el "Sistema de la Aviación". Es por ello que en otros países distintos al nuestro, como los Estados Unidos, se tomó conciencia temprana de esta situación, iniciándose investigaciones científicas al respecto, actuaciones regulatorias en lo relativo a la programación de las actividades aéreas de las tripulaciones y programas educativos para las tripulaciones. En el país citado, las anteriores actuaciones fueron a requisito del propio Congreso de los Estados Unidos en 1980, y desde esa fecha existe el actualmente denominado "Programa de Medidas contra la Fatiga" (NASA Ames Research Center).
+Este asunto, tiene varias vertientes aparte de la Seguridad en el Transporte Aéreo, todas ellas tienen en común un factor inalienable, el "económico". Hoy en día, la competitividad del sector es muy elevada y las compañías aéreas tienden a sacar la mayor productividad de sus tripulaciones, empleándose sistemas de programación informáticos que respetando las regulaciones oficiales "exprimen" literalmente las posibilidades físicas de las tripulaciones. Indudablemente se cumple la norma, pero existen aspectos que ocasionan a largo y medio plazo "costes" muy elevados, tanto en el aspecto de la seguridad, como en el de la salud, la eficiencia y eficacia de las operaciones aéreas. Esta última perspectiva, puede ser controlable a través de toda una serie de políticas basadas en investigaciones científicas y datos empíricos, por supuesto respetando la normativa vigente, y que en cualquier caso conllevan a medio y largo plazo una mejor productividad de la compañía.
 b) Ritmos Biológicos y Sueño
-Los seres humanos están “cargados” con una determinada necesidad biológica, genéticamente determinada, de sueño y con un ritmo “circadiano” que nos programa para dormir de noche y estar despiertos durante el día, durante un horario de 24 horas. Las operaciones aéreas durante las 24 horas del día, desafían a los anteriores principios fisiológicos. Los cambios de turno, los horarios alterados y cambiantes, cruzar zonas con diferentes husos horarios, tiempos muy prolongados de vigilia continua y la pérdida de sueño, pueden crear trastornos en el sueño y en el ritmo circadiano que degraden nuestra “funcionalidad” durante la vigilia. De una forma individual esto se convierte en fatiga y adormecimiento mientras se opera una aeronave; degradándose nuestra capacidad de vigilancia y decisión; y otros muchos aspectos de nuestra capacidad de actuación que pueden eliminar el margen de seguridad de las operaciones. Abordando los factores fisiológicos subyacentes a la fatiga, tendremos el potencial para mantener o mejorar el margen de seguridad y concomitantemente, incrementar la eficiencia y productividad.
+Los seres humanos están "cargados" con una determinada necesidad biológica, genéticamente determinada, de sueño y con un ritmo "circadiano" que nos programa para dormir de noche y estar despiertos durante el día, durante un horario de 24 horas. Las operaciones aéreas durante las 24 horas del día, desafían a los anteriores principios fisiológicos. Los cambios de turno, los horarios alterados y cambiantes, cruzar zonas con diferentes husos horarios, tiempos muy prolongados de vigilia continua y la pérdida de sueño, pueden crear trastornos en el sueño y en el ritmo circadiano que degraden nuestra "funcionalidad" durante la vigilia. De una forma individual esto se convierte en fatiga y adormecimiento mientras se opera una aeronave; degradándose nuestra capacidad de vigilancia y decisión; y otros muchos aspectos de nuestra capacidad de actuación que pueden eliminar el margen de seguridad de las operaciones. Abordando los factores fisiológicos subyacentes a la fatiga, tendremos el potencial para mantener o mejorar el margen de seguridad y concomitantemente, incrementar la eficiencia y productividad.
 (1) Ritmos, pautas horarias y capacidades de actuación
-El ritmo biológico más conocido es el “circadiano” o de 24 horas (dependiendo del individuo varía entre 24 y 27 horas), y está relacionado con el periodo de rotación de la tierra. Este ciclo se mantiene a través de los denominados “Zeitbergers”, como la luz y la oscuridad, las comidas y las actividades físicas y sociales. Este reloj biológico que tenemos en el cerebro regula funciones fisiológicas y de conducta sobre una pauta de 24 horas. En este periodo regula el ciclo de sueño/vigilia, la temperatura del cuerpo, las hormonas, la capacidad de actuación, el humor, la digestión, etc.
-Cuando al reloj circadiano se le traslada a un ciclo distinto de sueño/vigilia o a un entorno con otro uso horario, no se ajusta inmediatamente. Esta es la causa de la perturbación circadiana asociada con el “Jet Lag”. El tiempo de reajuste necesario puede llevar desde varios días hasta semanas, y no todos los ritmos fisiológicos lo hacen sincronizadamente.
+El ritmo biológico más conocido es el "circadiano" o de 24 horas (dependiendo del individuo varía entre 24 y 27 horas), y está relacionado con el periodo de rotación de la tierra. Este ciclo se mantiene a través de los denominados "Zeitbergers", como la luz y la oscuridad, las comidas y las actividades físicas y sociales. Este reloj biológico que tenemos en el cerebro regula funciones fisiológicas y de conducta sobre una pauta de 24 horas. En este periodo regula el ciclo de sueño/vigilia, la temperatura del cuerpo, las hormonas, la capacidad de actuación, el humor, la digestión, etc.
+Cuando al reloj circadiano se le traslada a un ciclo distinto de sueño/vigilia o a un entorno con otro uso horario, no se ajusta inmediatamente. Esta es la causa de la perturbación circadiana asociada con el "Jet Lag". El tiempo de reajuste necesario puede llevar desde varios días hasta semanas, y no todos los ritmos fisiológicos lo hacen sincronizadamente.
 Para el reloj circadiano es más difícil ajustarse a un periodo más corto (21 horas de ciclo o día) que a uno más largo (25 o más horas), lo cuál es su ritmo natural. Por eso, es más difícil cruzar husos horarios hacia el este que hacia el oeste.
 El sueño es también cíclico e influye en los ritmos biológicos. Un ejemplo de lo anterior es la relación entre el ciclo de la temperatura del cuerpo y el sueño. La temperatura del organismo humano asciende desde las 0500 hasta aproximadamente las 1530 horas, para luego iniciar un descenso progresivo hasta las 0300 horas donde encuentra su mínimo que se mantiene hasta las 0500. Pues bien, el sueño ocurre normalmente cuando se inicia este descenso y termina cuando empieza a subir.
-[imagen]
 Los estudios científicos han revelado que existen dos periodos de aletargamiento máximo durante las 24 horas del día. Uno ocurre durante la noche entre las 3 y las 5 AM, y el otro a mediodía entre las 3 y 5 PM. Sin embargo, la capacidad de actuación y atención pueden verse afectadas entre las 12 AM y las 8 AM.
-De acuerdo con lo anterior, se establece una relación de todos estos ritmos con la medición de la capacidad de las actuaciones humanas en un momento dado del ciclo de 24 horas. En resumidas cuentas podemos decir, que el periodo del día en que el ser humano se encuentra más disminuido” para realizar cualquier tarea coincide con la temperatura más baja del organismo, que la situamos en la banda de las 0200 horas a 0600 horas.
-Este último periodo de tiempo tratado, se denomina” ventana de mínimos circadianos” (window of circadian low) y está referido a aquellos individuos adaptados al horario normal de trabajo diurno. Esta ventana está calculada desde datos científicos en los mínimos de circadianos de capacidad de actuación, alerta, y temperatura del cuerpo.
-Para periodos de actividad aérea que crucen 3 o menos husos horarios, la “ventana de mínimos” se encuentra entre las 0200 a las 0600 del horario local del domicilio habitual/Base.
-Sin embargo, si el periodo de actividad aérea conlleva el cruce de 4 o más husos horarios, la referencia de la “ventana de mínimos” será la misma que la anterior solo durante las primeras 48 horas, y a partir de ahí habrá referenciarla al horario local del lugar en que se encuentre el tripulante [Figura 1].2.
-Esta situación se puede ver influenciada y desviada por otros factores como la motivación y el incremento de un esfuerzo. El carácter de las personas, ya sea extrovertido o introvertido, desvía la banda horaria hacia atrás o hacia delante. En cualquier caso, se estima que la diferencia entre el momento de máxima y mínima capacidad de actuación arroja una diferencia entre un 30–50% en los resultados de la medición3.
+De acuerdo con lo anterior, se establece una relación de todos estos ritmos con la medición de la capacidad de las actuaciones humanas en un momento dado del ciclo de 24 horas. En resumidas cuentas podemos decir, que el periodo del día en que el ser humano se encuentra más disminuido" para realizar cualquier tarea coincide con la temperatura más baja del organismo, que la situamos en la banda de las 0200 horas a 0600 horas.
+Este último periodo de tiempo tratado, se denomina" ventana de mínimos circadianos" (window of circadian low) y está referido a aquellos individuos adaptados al horario normal de trabajo diurno. Esta ventana está calculada desde datos científicos en los mínimos de circadianos de capacidad de actuación, alerta, y temperatura del cuerpo.
+Para periodos de actividad aérea que crucen 3 o menos husos horarios, la "ventana de mínimos" se encuentra entre las 0200 a las 0600 del horario local del domicilio habitual/Base.
+Sin embargo, si el periodo de actividad aérea conlleva el cruce de 4 o más husos horarios, la referencia de la "ventana de mínimos" será la misma que la anterior solo durante las primeras 48 horas, y a partir de ahí habrá referenciarla al horario local del lugar en que se encuentre el tripulante [Figura 1].2.
+Esta situación se puede ver influenciada y desviada por otros factores como la motivación y el incremento de un esfuerzo. El carácter de las personas, ya sea extrovertido o introvertido, desvía la banda horaria hacia atrás o hacia delante. En cualquier caso, se estima que la diferencia entre el momento de máxima y mínima capacidad de actuación arroja una diferencia entre un 30-50% en los resultados de la medición3.
 Un aspecto importante a resaltar, es que la diferencia de capacidades de actuación, es mayor entre los periodos de máximos y mínimos del ritmo biológico de 24 horas, que por la falta de sueño de una sola noche. Sin embargo, aquí hay que dejar muy claro una cosa, la pérdida de capacidades por falta de sueño es acumulativa. Es decir, que el sueño que vamos perdiendo va sucesivamente mermando nuestras facultades, pudiendo llegar la ocasión que estas se encuentren por debajo de los mínimos indispensables para realizar una actividad con seguridad, como pilotar una aeronave.
-En relación con lo anterior, es muy ilustrativo mencionar un accidente que marca un antes y un después en la relación Fatiga/Seguridad de Vuelo. El 18-8-1993 un DC-8 de American International Airways, sufrió una pérdida de control y colisionó contra el terreno a ¼ de milla de la pista de Guantánamo, durante la aproximación en condiciones visuales. La NTSB en su investigación (DCA93RA060) determinó por primera vez que “la fatiga ocasionada por la acumulación de falta de sueño y perturbación de los ritmos circadianos de la tripulación fue el factor causante del accidente”. La importancia de la anterior conclusión, estriba en que hasta la fecha, la fatiga solo había sido considerada como “factor contributivo” [Anexo B Accidentes e Incidentes relacionados con la fatiga].(disritmia circadiana o desincronización).
+En relación con lo anterior, es muy ilustrativo mencionar un accidente que marca un antes y un después en la relación Fatiga/Seguridad de Vuelo. El 18-8-1993 un DC-8 de American International Airways, sufrió una pérdida de control y colisionó contra el terreno a ¼ de milla de la pista de Guantánamo, durante la aproximación en condiciones visuales. La NTSB en su investigación (DCA93RA060) determinó por primera vez que "la fatiga ocasionada por la acumulación de falta de sueño y perturbación de los ritmos circadianos de la tripulación fue el factor causante del accidente". La importancia de la anterior conclusión, estriba en que hasta la fecha, la fatiga solo había sido considerada como "factor contributivo" [Anexo B Accidentes e Incidentes relacionados con la fatiga].(disritmia circadiana o desincronización).
 La aviación de largo alcance: la perturbación de los ritmos biológicos, el Jet Lag .
 La aviación de largo alcance, con el cruce de muchos husos horarios (a partir de 3 husos) es una actividad que distorsiona los ritmos biológicos de los tripulantes (disritmia circadiana o desincronización).
-En este tipo de aviación, el trastorno es consecuencia de horarios de trabajo irregulares con múltiples cambios husos horarios, que junto a la fatiga, producen en las tripulaciones el efecto que comúnmente se denomina “jet lag”.
-Los efectos del “Jet Lag” después de un vuelo transmeridiano son muy reales y se deben a numerosos factores que incluyen las actividades previas al viaje, las realizadas en el mismo y en particular al nuevo ciclo de día/noche en el lugar de destino en relación con el que el organismo se encontraba habituado anteriormente.
-Los efectos del “Jet Lag” son de dos componentes:
+En este tipo de aviación, el trastorno es consecuencia de horarios de trabajo irregulares con múltiples cambios husos horarios, que junto a la fatiga, producen en las tripulaciones el efecto que comúnmente se denomina "jet lag".
+Los efectos del "Jet Lag" después de un vuelo transmeridiano son muy reales y se deben a numerosos factores que incluyen las actividades previas al viaje, las realizadas en el mismo y en particular al nuevo ciclo de día/noche en el lugar de destino en relación con el que el organismo se encontraba habituado anteriormente.
+Los efectos del "Jet Lag" son de dos componentes:
 1. Aquellos que se deben a la distorsión del reloj biológico interno.
 2. Los que se derivan de los aspectos fisiológicos y psicológicos del vuelo en sí mismo.
 Estos últimos, incluyen el cansancio, malestar y toda una variedad de dolores. Frecuentemente no duran más de unas pocas horas después de finalizar el viaje, y están más en relación con la duración del vuelo que con el número de husos horarios que se cruzan.
 Otros efectos que proceden de la necesidad de adaptar nuestro reloj biológico al nuevo huso horario, son mucho más persistentes, y para algunos individuos pueden durar días.
-Esta readaptación de nuestro “reloj biológico” se obtiene a través de la combinación del ciclo noche/día y la actividad social. Por tanto, lo primero será ajustar nuestro ciclo del sueño dentro del periodo diurno.
-Una vez que se produce la distorsión del “ritmo” original, se tiende a un proceso de readaptación al nuevo entorno. Este proceso es muy complejo, existen cuatro factores a considerar:
-• Cada sistema del organismo tiene un ritmo de adaptación distinto, mientras esto se produce
+Esta readaptación de nuestro "reloj biológico" se obtiene a través de la combinación del ciclo noche/día y la actividad social. Por tanto, lo primero será ajustar nuestro ciclo del sueño dentro del periodo diurno.
+Una vez que se produce la distorsión del "ritmo" original, se tiende a un proceso de readaptación al nuevo entorno. Este proceso es muy complejo, existen cuatro factores a considerar:
+. Cada sistema del organismo tiene un ritmo de adaptación distinto, mientras esto se produce
 el organismo se encuentra fuera de fase del horario de procedencia y del nuevo entorno.
-• El ritmo de desincronización depende de múltiple factores destacándose si el vuelo fue hacia el oeste o el este (es más fácil resincronizarse en un vuelo hacia el oeste), la hora del día a la que se realizó el vuelo.
-• El ritmo de re sincronización no es constante.
-• Cada individuo tiene una capacidad de adaptación distinta. Generalmente son factores positivos la juventud, las personalidades vespertinas y extrovertidas y con una forma física mejor.
+. El ritmo de desincronización depende de múltiple factores destacándose si el vuelo fue hacia el oeste o el este (es más fácil resincronizarse en un vuelo hacia el oeste), la hora del día a la que se realizó el vuelo.
+. El ritmo de re sincronización no es constante.
+. Cada individuo tiene una capacidad de adaptación distinta. Generalmente son factores positivos la juventud, las personalidades vespertinas y extrovertidas y con una forma física mejor.
 Abordando este problema desde una amplia perspectiva, vemos que aunque hay un solo reloj biológico en el organismo, existen muchos elementos fisiológicos y psicológicos que tienen sus propios ritmos.
-Últimamente está muy de moda el considerar la “Melatonina” como una sustancia que acelera y favorece la re sincronización del organismo a través de la adaptación de las pautas de sueño.
+Últimamente está muy de moda el considerar la "Melatonina" como una sustancia que acelera y favorece la re sincronización del organismo a través de la adaptación de las pautas de sueño.
 La Melatonina es la principal hormona de la glándula pineal del cerebro. Su secreción se ve influenciada por la ausencia de luz detectada por el ojo, y su sus consecuencias son la bajada de la temperatura corporal la cual facilita el sueño.
-La oficina de medicina aeronáutica de la FAA realizó un estudio en 1986, en dicho estudio se concluye que “el uso indiscriminado de la melatonina por tripulantes, puede acarrear riesgos inaceptables para la seguridad”. Se recogen las siguientes consideraciones:
-• La melatonina tomada en dosis de 2-3mg. Después de llegar al destino puede tener un efecto beneficioso acelerando la resincronización. Es importantísimo ingerirla a la hora de irse a dormir habitualmente.
-• Si se ingiere melatonina durante el vuelo transmeridiano, ocasiona un efecto contraproducente y desestabilizante.
-• Es inaceptable que un tripulante ejerza sus funciones con residuos de melatonina en la sangre, los cuales se mantienen hasta 24 horas después de ingerir una dosis.
+La oficina de medicina aeronáutica de la FAA realizó un estudio en 1986, en dicho estudio se concluye que "el uso indiscriminado de la melatonina por tripulantes, puede acarrear riesgos inaceptables para la seguridad". Se recogen las siguientes consideraciones:
+. La melatonina tomada en dosis de 2-3mg. Después de llegar al destino puede tener un efecto beneficioso acelerando la resincronización. Es importantísimo ingerirla a la hora de irse a dormir habitualmente.
+. Si se ingiere melatonina durante el vuelo transmeridiano, ocasiona un efecto contraproducente y desestabilizante.
+. Es inaceptable que un tripulante ejerza sus funciones con residuos de melatonina en la sangre, los cuales se mantienen hasta 24 horas después de ingerir una dosis.
 Por su parte la CAA británica solo impone una restricción de 12 horas antes del servicio de vuelo y durante el mismo al consumo de melatonina.
-Hoy en día se considera imprescindible para aquellas personas a las que su trabajo le impone cambios continuos de horarios y pérdidas de sueño, que adopten todas aquellas medidas que potencien su capacidad de dormir. Es la teoría denominada “Higiene para el Sueño”[Anexo A].
+Hoy en día se considera imprescindible para aquellas personas a las que su trabajo le impone cambios continuos de horarios y pérdidas de sueño, que adopten todas aquellas medidas que potencien su capacidad de dormir. Es la teoría denominada "Higiene para el Sueño"[Anexo A].
 Pautas para controlar los efectos del Jet Lag.
 Durante el proceso de resincronización, se dan una serie de síntomas que pueden ser experimentados, estos incluyen la fatiga, insomnio, perturbaciones en los ciclos de sueño/vigilia, ansiedad, depresión y molestias estomacales. Como ya se apuntó anteriormente, la razón de las molestias aludidas, se encuentra en que bajo un ciclo constante de luz/oscuridad, los ritmos de nuestro organismo mantienen una relativa sincronización entre ellos y con el ciclo diario de amanecer y atardecer. Sin embargo, un viaje transmeridiano estos ritmos pierden su sincronización y se producen los síntomas del Jet Lag.
 Los efectos físicos del Jet Lag, son menos críticos que los psicológicos y los cambios en la capacidad de actuación.
 Se estima que el organismo necesita aproximadamente un día para reajustarse por cada zona horaria que se cruce.
 Las personalidades vespertinas y extrovertidas se adaptan mejor en los vuelos hacia el oeste, mientras que la matutinas e introvertidas lo hacen hacia el este.
-El reloj interno que controla los ritmos del organismo se encuentra en el cerebro, este reloj se puede alterar utilizando medicamentos. Entre estos se puede destacar el “Temazepam”, el cuál ayuda al individuo a conciliar el sueño, su absorción máxima por la sangre se realiza a la hora de su ingesta. El efecto del “Temazepam” sobre nuestro reloj biológico depende mucho de la hora de su administración.
+El reloj interno que controla los ritmos del organismo se encuentra en el cerebro, este reloj se puede alterar utilizando medicamentos. Entre estos se puede destacar el "Temazepam", el cuál ayuda al individuo a conciliar el sueño, su absorción máxima por la sangre se realiza a la hora de su ingesta. El efecto del "Temazepam" sobre nuestro reloj biológico depende mucho de la hora de su administración.
 A pesar de todo, no existe la panacea para aliviar los efectos del Jet Lag. Sin embargo, existen una serie de principios que pueden aplicarse y ser de ayuda:
-• Descansar debidamente antes del vuelo.
-• Intentar obtener el máximo de sueño en 24 horas cuando se encuentre de viaje, al igual que haría en su casa.
-• Debe evitarse fumar.
-• Beber mucho líquido, pero evitar comer pesadamente y beber alcohol o bebidas con cafeína antes de acostarse.
-• Debe confiarse en sus propios sentimientos. Si siente sueño y las circunstancias lo permiten, duerma. De la misma forma si se despierta espontáneamente y no puede dormirse en 30 minutos, levántese.
-• Puede utilizar técnicas de relajación física o mentales para dormirse, pero si no lo consigue en 30 minutos salga de la cama.
-• Una siesta puede serle útil para mejorar su capacidad de atención, pero si se produce inmediatamente antes de un periodo de actividad, entonces restrínjala a 45 minutos.
+. Descansar debidamente antes del vuelo.
+. Intentar obtener el máximo de sueño en 24 horas cuando se encuentre de viaje, al igual que haría en su casa.
+. Debe evitarse fumar.
+. Beber mucho líquido, pero evitar comer pesadamente y beber alcohol o bebidas con cafeína antes de acostarse.
+. Debe confiarse en sus propios sentimientos. Si siente sueño y las circunstancias lo permiten, duerma. De la misma forma si se despierta espontáneamente y no puede dormirse en 30 minutos, levántese.
+. Puede utilizar técnicas de relajación física o mentales para dormirse, pero si no lo consigue en 30 minutos salga de la cama.
+. Una siesta puede serle útil para mejorar su capacidad de atención, pero si se produce inmediatamente antes de un periodo de actividad, entonces restrínjala a 45 minutos.
 (2) El sueño, función fisiológica vital
 El síntoma fisiológico más común del vuelo de largo alcance es la distorsión que produce en los periodos de sueño habituales.
-El sueño es una función fisiológica vital, cuando se priva del sueño al organismo, la respuesta de este es “el letargo o adormecimiento”, la cuál es la señal del cerebro para obligar al individuo a conciliar el sueño. Cuando se priva de sueño al organismo, el cerebro puede reaccionar espontáneamente, en una alternancia incontrolada de vigilia y letargo para conseguir su necesidad fisiológica de sueño. Estos espontáneos episodios de sueño pueden ser muy cortos (micro sueños, solo segundos). Estos microsueños, se asocian con lapsos espontáneos del individuo cuando no recibe o responde a información exterior.
+El sueño es una función fisiológica vital, cuando se priva del sueño al organismo, la respuesta de este es "el letargo o adormecimiento", la cuál es la señal del cerebro para obligar al individuo a conciliar el sueño. Cuando se priva de sueño al organismo, el cerebro puede reaccionar espontáneamente, en una alternancia incontrolada de vigilia y letargo para conseguir su necesidad fisiológica de sueño. Estos espontáneos episodios de sueño pueden ser muy cortos (micro sueños, solo segundos). Estos microsueños, se asocian con lapsos espontáneos del individuo cuando no recibe o responde a información exterior.
 (i) Naturaleza del sueño
 El sueño lo podemos dividir en dos clases, ortodoxo (NREM) y paradójico (REM). Cada tipo de sueño tiene sus características, el sueño REM (Rapid Eye Movement) es aquel en que se producen los sueños (el cerebro está casi tan activo como cuando estamos despiertos), los músculos están paralizados y el cuerpo apenas se mueve; su proporción alcanza el 20% del sueño total de un adulto. El sueño REM desarrolla un papel protagonista para facilitar la actuación de nuestra memoria. El sueño NREM, se divide a su vez en cuatro fases que se caracterizan porque se produce una progresiva disminución de la frecuencia de ondas cerebrales conforme se entra en una etapa superior.
-• Fase 1. Dura como máximo 10 minutos, una persona que se despierta en esta fase apenas tiene la sensación de haber dormido. Es un estado de relajación general.
-• Fase 2. Es un poco más profunda y dura entre 10 y 45 minutos. Aquí empieza realmente el sueño con ondas cerebrales irregulares.
-• Fase 3 y 4. Caracterizan al sueño profundo, con ondas cerebrales de muy baja frecuencia.
+. Fase 1. Dura como máximo 10 minutos, una persona que se despierta en esta fase apenas tiene la sensación de haber dormido. Es un estado de relajación general.
+. Fase 2. Es un poco más profunda y dura entre 10 y 45 minutos. Aquí empieza realmente el sueño con ondas cerebrales irregulares.
+. Fase 3 y 4. Caracterizan al sueño profundo, con ondas cerebrales de muy baja frecuencia.
 Estas fases son las que proporcionan en efecto más restaurador para el organismo, incremento del riego sanguíneo en los músculos, disminución de la actividad metabólica.
 El sueño REM sucede aproximadamente cada 90 minutos de sueño, con lo cual tenemos que dormir más de 90 minutos para tener sueño REM.
-Las investigaciones arrojan el resultado que se necesita un mínimo de 4 horas de sueño ininterrumpido “a la hora en que un individuo duerme habitualmente” para que el sueño sea realmente reparador.
-Los tripulantes suelen padecer un trastorno del sueño denominado “insomnio situacional”, que no es otra cosa que la dificultad para dormir en una situación particular, por ejemplo cuando los ritmos biológicos están distorsionados. Esto ocurre normalmente cuando se intenta dormir en periodos en los que el cerebro y el organismo no se encuentran en la fase de sueño. Esta situación no la sufren por igual todos los individuos, depende de varios factores tales como los emocionales en un momento dado y los propiamente fisiológicos de cada persona. En cualquier caso, está comprobado que la peor situación se produce para aquellos tripulantes que operan rutas de largo alcance con una parada entre el vuelo este y oeste de aproximadamente 24 horas, ya que durante todo el tiempo de la operación su organismo se encuentra desfasado e inadaptado.
+Las investigaciones arrojan el resultado que se necesita un mínimo de 4 horas de sueño ininterrumpido "a la hora en que un individuo duerme habitualmente" para que el sueño sea realmente reparador.
+Los tripulantes suelen padecer un trastorno del sueño denominado "insomnio situacional", que no es otra cosa que la dificultad para dormir en una situación particular, por ejemplo cuando los ritmos biológicos están distorsionados. Esto ocurre normalmente cuando se intenta dormir en periodos en los que el cerebro y el organismo no se encuentran en la fase de sueño. Esta situación no la sufren por igual todos los individuos, depende de varios factores tales como los emocionales en un momento dado y los propiamente fisiológicos de cada persona. En cualquier caso, está comprobado que la peor situación se produce para aquellos tripulantes que operan rutas de largo alcance con una parada entre el vuelo este y oeste de aproximadamente 24 horas, ya que durante todo el tiempo de la operación su organismo se encuentra desfasado e inadaptado.
 Hoy en día está reconocido que la principal causa de insomnio se encuentra en el stress. El trabajo conceptual contribuye a ese stress psicológico que se reactiva en nuestra mente en el momento d acostarnos y dificulta el sueño. Ha sido nuestro sistema nervioso el que a través del sistema endocrino ha aumentado la concentración de adrenalina en la sangre, acelerado el ritmo cardiaco y tensado los músculos.
-Un desorden de sueño que merece la pena tratar es el denominado como “apnea del sueño”, el cual se caracteriza por la interrupción de la respiración durante el sueño, la cual causa que el individuo se despierte repetidamente para respirar. Las interrupciones en la respiración pueden durar desde 10 segundos hasta varios minutos y puede sucederse cientos de veces a lo largo de la noche. Un síntoma destacado de la apnea del sueño es el ronquido (aunque el ronquido puede resultar de otras causas). Este desorden de sueño, puede ser una causa fisiológica de una capacidad reducida de actuación y alerta. Respecto a la ingestión de cualquier tipo de producto químico o medicamento para favorecer o impedir el sueño, se puede asegurar que su administración no es aconsejable en la operación de la aviación civil, fundamentalmente por los efectos secundarios y porque su vida media puede estar presente en el próximo periodo de servicio con efectos muy negativos para la capacidad de actuación.
+Un desorden de sueño que merece la pena tratar es el denominado como "apnea del sueño", el cual se caracteriza por la interrupción de la respiración durante el sueño, la cual causa que el individuo se despierte repetidamente para respirar. Las interrupciones en la respiración pueden durar desde 10 segundos hasta varios minutos y puede sucederse cientos de veces a lo largo de la noche. Un síntoma destacado de la apnea del sueño es el ronquido (aunque el ronquido puede resultar de otras causas). Este desorden de sueño, puede ser una causa fisiológica de una capacidad reducida de actuación y alerta. Respecto a la ingestión de cualquier tipo de producto químico o medicamento para favorecer o impedir el sueño, se puede asegurar que su administración no es aconsejable en la operación de la aviación civil, fundamentalmente por los efectos secundarios y porque su vida media puede estar presente en el próximo periodo de servicio con efectos muy negativos para la capacidad de actuación.
 Para los tripulantes aéreos con unos horarios de trabajo cambiantes, es obligado muchas veces el dormir a unas horas no habituales debido a los periodos de actividad y descanso obligatoriamente impuestos. Sin embargo, hay que considerar que la duración del sueño y el tiempo que tardamos en dormirnos, es variable de acuerdo con la hora del día en que se vaya a realizar [Figura 2]
-[imagen]
 ii) La necesidad del sueño
 Básicamente, un individuo necesita una cantidad de sueño para lograr la completa capacidad de atención (o alerta) y su máximo nivel de actividad durante sus horas de vigilia. La mayor parte de los adultos necesita 8 horas diarias, aunque dependiendo de los individuos esta puede oscilar entre 6 y 8 horas.
 El sueño es un proceso dinámico que tiene tanta importancia para el cuerpo como la mente.
 La actividad cerebral durante el sueño regula funciones gastrointestinales, cardiovasculares e inmunológicas del cuerpo, así mismo en proceso cognoscitivo se produce el almacenamiento, reorganización y recuperación eventual de sueño. Sin embargo, es un hecho constatado que existen efectos psicológicos como la degradación en la motivación, la cual representa la diferencia entre lo que una persona puede hacer y lo que realmente hace en unas circunstancias determinadas. El sueño es esencial para mantener nuestra capacidad de actuación psicológica, la cual sufre un grave deterioro por la falta del mismo.
-Es indudable, el efecto reparador que el sueño tiene en el organismo humano y que sus consecuencias dependen más de la calidad que de la cantidad. Es por tanto que aquellos que desarrollen más tiempo de “fase 4” (NREM) tendrán un sueño de mejor calidad, y esto suele coincidir con aquellas personas que por su actividad hayan subido la temperatura del cuerpo (deportistas).
+Es indudable, el efecto reparador que el sueño tiene en el organismo humano y que sus consecuencias dependen más de la calidad que de la cantidad. Es por tanto que aquellos que desarrollen más tiempo de "fase 4" (NREM) tendrán un sueño de mejor calidad, y esto suele coincidir con aquellas personas que por su actividad hayan subido la temperatura del cuerpo (deportistas).
 El deterioro general de nuestra capacidad de actuación por la falta de sueño es progresivo conforme se acumula la pérdida información en el cerebro. En realidad, durante el sueño nuestra actividad neuronal apenas decrece un 10 %.
-A pesar de las investigaciones, no se han constatado daños fisiológicos como consecuencia de la privación acumulativa del mismo. La acumulación de pérdidas sucesivas de sueño constituye la denominada “deuda de sueño”. La recuperación de una deuda de sueño requiere un sueño más profundo durante 2 o 3 noches, más que una cantidad superior de horas.
+A pesar de las investigaciones, no se han constatado daños fisiológicos como consecuencia de la privación acumulativa del mismo. La acumulación de pérdidas sucesivas de sueño constituye la denominada "deuda de sueño". La recuperación de una deuda de sueño requiere un sueño más profundo durante 2 o 3 noches, más que una cantidad superior de horas.
 Lapsos y actuaciones inconsecuentes son característicos de las personas con falta de sueño.
 Esta situación se agrava con el incremento de la altitud y la carga de trabajo (características del entorno de la aviación). Después de 17 horas despierto, nuestra capacidad de actuación es equivalente a la que se tiene con una concentración de alcohol de 0.05 en la sangre. Uno de los aspectos más peligrosos de esta degradación, es que las personas somos incapaces de percibir por sí mismas, hasta qué punto y de qué forma nos encontramos disminuidos.
 En esta degradación general que se produce por la falta de sueño, hay que constatar el deterioro o degradación en la toma de decisiones, vigilancia, tiempo de reacción, memoria, coordinación psicomotora y procesamiento de información. Las investigaciones demuestran que conforme se incremente la pérdida de sueño ( a partir de la pérdida de 2 horas en una noche, la capacidad de actuación vigilancia se ve disminuida), los individuos presentan actuaciones más pobres a pesar del incremento del esfuerzo, pudiendo presentarse una indiferencia del propio individuo ante el resultado de su actuación. En este estado, se producen menos emociones positivas y más negativas con un empeoramiento del humor.
@@ -10544,45 +10798,44 @@ En esta degradación general que se produce por la falta de sueño, hay que cons
 El adormecimiento fisiológico es el resultado directo de la pérdida de sueño. Sin embargo el subjetivo, es una valoración intrínseca del estado del propio individuo por esa pérdida de sueño. Esta última valoración puede verse afectada por muchos factores, tales como la cafeína, actividad física y un entorno estimulante.
 El problema radica, en que todos estos factores pueden enmascarar el nivel fisiológico de adormecimiento. La tendencia es que los individuos se consideren más despiertos de lo que fisiológicamente se encuentran Obviamente, en el aspecto operacional todo esto es muy significativo, puesto que un individuo se puede considerar ligeramente adormecido sin embargo, cuando arrastra una deuda de sueño y fisiológicamente tiene un nivel de letargo muy elevado. Esta situación da lugar a la ocurrencia de episodios espontáneos e incontrolados de sueño y a la disminución de la capacidad de actuación asociada.
 iv) Signos y Síntomas de la Fatiga
-[imagen]
 (v) Técnicas para controlar las perturbaciones del sueño en la aviación de largo alcance
 El efecto inmediato de un vuelo transatlántico, está determinado por el retraso en obtener el primer periodo de descanso y si el vuelo ha sido durante el día o la noche, con la consiguiente perturbación debida principalmente a la dirección del vuelo.
 Si consideramos ahora los denominados vuelos de ultra largo alcance, entonces los periodos de vigilia son potencialmente mayores. Como consecuencia, se deben considerar los efectos de partir el periodo habitual de las 8 horas de sueño, en varios episodios cuando los tripulantes duerman durante el vuelo. Este concepto de la siesta puede ayudar a mantener el ritmo circadiano del individuo a un periodo de 24 horas y por otra parte proporcionar una recuperación de la fatiga causada por el trabajo efectuado durante las horas normales de sueño. En consecuencia es normal que los tripulantes realicen pequeñas siestas durante el vuelo y posteriormente a él tomen una de 1 hora, en lugar de tomar un sueño largo inmediatamente después del vuelo.
 Esta estrategia, permite al tripulante adecuar su sueño a los cambios horarios y permitir que se encuentre en condiciones para el próximo vuelo, que si es por la noche se puede superar sin adormecimiento si se ha realizado en la tarde previa una siesta de 4 horas mínimas.
 c. El Programa Científico de la NASA
-(1) Antecedentes: En 1980, como respuesta a un requisito del Congreso, el Centro de Investigación Científica Ames de la NASA creó un programa para examinar “si existía un problema de seguridad de una magnitud indeterminada, debido al vuelo transmeridiano y a un problema potencial debido a la fatiga en asociación con varios factores encontrados en la operaciones de transporte aéreo”. El Programa Fatiga/Jet Lag de la NASA/Ames fue creado para recoger sistemáticamente, información científica sobre fatiga, sueño, ritmos circadianos y actuaciones en las operaciones de vuelo. Se establecieron tres metas para el Programa y continúan guiando la investigación:
-• Determinar hasta dónde llega la fatiga, la pérdida de sueño y la perturbación circadiana en
+(1) Antecedentes: En 1980, como respuesta a un requisito del Congreso, el Centro de Investigación Científica Ames de la NASA creó un programa para examinar "si existía un problema de seguridad de una magnitud indeterminada, debido al vuelo transmeridiano y a un problema potencial debido a la fatiga en asociación con varios factores encontrados en la operaciones de transporte aéreo". El Programa Fatiga/Jet Lag de la NASA/Ames fue creado para recoger sistemáticamente, información científica sobre fatiga, sueño, ritmos circadianos y actuaciones en las operaciones de vuelo. Se establecieron tres metas para el Programa y continúan guiando la investigación:
+. Determinar hasta dónde llega la fatiga, la pérdida de sueño y la perturbación circadiana en
 las operaciones de vuelo.
-• Determinar el impacto de estos factores en las actuaciones de las tripulaciones. • Desarrollar y evaluar contramedidas para mitigar los efectos adversos de estos factores y maximizar las actuaciones y capacidad de alerta de las tripulaciones.
+. Determinar el impacto de estos factores en las actuaciones de las tripulaciones. . Desarrollar y evaluar contramedidas para mitigar los efectos adversos de estos factores y maximizar las actuaciones y capacidad de alerta de las tripulaciones.
 Desde 1980, se han desarrollado estudios en una gran variedad de entornos aeronáuticos, laboratorios, así como el desarrollo de misiones completas en simuladores de vuelo.
-En 1991, el nombre del programa se cambió por el de “Medidas contra la Fatiga”, con el fin de proporcionar un mayor énfasis en el desarrollo y evaluación de contramedidas.
+En 1991, el nombre del programa se cambió por el de "Medidas contra la Fatiga", con el fin de proporcionar un mayor énfasis en el desarrollo y evaluación de contramedidas.
 El estudio de medidas de descanso en la cabina de vuelo fue el primero probado con éxito mediante su aplicación en un entorno operacional. Todos los aspectos relacionados con la seguridad y la salud, y que tienen contacto con la fatiga son abordados y demandan un gran esfuerzo de investigación. Algunas preguntas al respecto son:
-• ¿Qué es seguro?
-• ¿Cuál es el límite de tiempo de vuelo?
-• ¿Cuántos cambios de horarios diurnos y nocturnos son demasiados en una línea?
-• ¿Cuál es el límite de actividad en una operación con cambios de diurnos/nocturnos?
-• ¿Cuántos días seguidos se puede trabajar con seguridad?
-• ¿Cuánto tiempo lleva recuperarse después de una prolongada actividad o de un periodo de cambios de horarios diurno/nocturno?
-• ¿Cuánto tiempo lleva recobrarse después de cambios bruscos producidos por cruzar varios husos horarios? ¿Una noche o dos de sueño? • ¿Cómo se pueden utilizar las siestas para mejorar la situación, cuantas y cuándo? • ¿Cómo se puede definir recuperación, por adaptación fisiológica, actuación, estado de soñolencia? • Después de empezar con un nuevo cambio horario, ¿cuánto tiempo llevará adaptarse fisiológicamente?
-• ¿Cuáles son los efectos del cambio de un horario de trabajo nocturno a un horario diurno regular los fines de semana, y después volver a cambiar?
-• ¿Cómo se deberían evaluar las normativas actuales de actividad?
+. ¿Qué es seguro?
+. ¿Cuál es el límite de tiempo de vuelo?
+. ¿Cuántos cambios de horarios diurnos y nocturnos son demasiados en una línea?
+. ¿Cuál es el límite de actividad en una operación con cambios de diurnos/nocturnos?
+. ¿Cuántos días seguidos se puede trabajar con seguridad?
+. ¿Cuánto tiempo lleva recuperarse después de una prolongada actividad o de un periodo de cambios de horarios diurno/nocturno?
+. ¿Cuánto tiempo lleva recobrarse después de cambios bruscos producidos por cruzar varios husos horarios? ¿Una noche o dos de sueño? . ¿Cómo se pueden utilizar las siestas para mejorar la situación, cuantas y cuándo? . ¿Cómo se puede definir recuperación, por adaptación fisiológica, actuación, estado de soñolencia? . Después de empezar con un nuevo cambio horario, ¿cuánto tiempo llevará adaptarse fisiológicamente?
+. ¿Cuáles son los efectos del cambio de un horario de trabajo nocturno a un horario diurno regular los fines de semana, y después volver a cambiar?
+. ¿Cómo se deberían evaluar las normativas actuales de actividad?
 Áreas potenciales para una actividad futura del Programa, incluyen el desarrollo de un sistema de programación que incorpore datos científicos y fisiológicos para guiar las prácticas regulares de programación en las aerolíneas, y un futuro desarrollo y evaluación de medidas contra la fatiga.
 (3) Efectos de la fatiga
 La NASA en su Programa de medidas contra la fatiga ha establecido que la fatiga degrada:
-• La fuerza muscular y la coordinación.
-• La visión y la percepción.
-• La memoria.
-• La capacidad de vigilancia.
-• El error de gestión.
-• La toma de decisiones.
-• La motivación y actitudes.
-• La comunicación.
-• La habilidad para cooperar.
+. La fuerza muscular y la coordinación.
+. La visión y la percepción.
+. La memoria.
+. La capacidad de vigilancia.
+. El error de gestión.
+. La toma de decisiones.
+. La motivación y actitudes.
+. La comunicación.
+. La habilidad para cooperar.
 La fatiga hace al piloto ser menos vigilante, más tendente a aceptar actuaciones por debajo de los mínimos estándar y empezar a presentar síntomas de mal juicio.
 El piloto puede ver incrementadas las dificultades para tomar decisiones y tener que verificar la información varias veces a causa de deterioro de memoria o imposibilidad de procesamiento de información. El estado de alerta y los tiempos de reacción están también disminuidos.
 La irritabilidad y las maneras de comportamiento fácilmente bloquean la comunicación y estorban a los principios CRM.
 Adicionalmente, la fatiga impone unos tiempos de reacción físicos y mentales mayores, más errores a pesar de un mayor esfuerzo, variabilidad y falta de predicción en la capacidad de actuación, preocupaciones con una sola tarea o fijación en una sola fuente de información, y perseverar en soluciones ineficaces, todas con el potencial de crear un vuelo inconsistente.
-Según estudios desarrollados en el Centro de Investigación “Ames” de la NASA, la fatiga puede considerarse tan peligrosa como el alcohol. Estas investigaciones demuestran que una persona sin dormir durante 18-20 horas actuará como si se hubiera tomado dos o tres cervezas.
+Según estudios desarrollados en el Centro de Investigación "Ames" de la NASA, la fatiga puede considerarse tan peligrosa como el alcohol. Estas investigaciones demuestran que una persona sin dormir durante 18-20 horas actuará como si se hubiera tomado dos o tres cervezas.
 Estas personas demostraban encontrarse sin empuje, con más largos tiempos de respuesta, habilidades de control motoras reducidas y capacidad de pensamiento deteriorada.
 3) Factores específicos de la fatiga a examinar en investigaciones
 El primero es la pérdida acumulada de sueño. Se parte como referencia del sueño necesario, el obtenido por el individuo en su domicilio. De esta forma, la cantidad de sueño obtenida durante un periodo de tiempo determinado puede usarse para calcular la perdida de sueño acumulada (deuda de sueño) o potencialmente el sueño ganado.
@@ -10594,45 +10847,45 @@ Se pueden dividir en dos categorías: aquellas que se usan antes del trabajo y d
 Las estrategias preventivas, se dirigen a las causas fisiológicas de la fatiga, están diseñadas para conseguir que las pérdidas de sueño y la perturbación de los ritmos circadianos sean mínimas. Las contramedidas operacionales, que proporcionan un alivio temporal de los síntomas de la fatiga, están designadas para minimizar el impacto de la pérdida de sueño y la perturbación de los ritmos circadianos en la capacidad de alerta y actuación en el trabajo.
 Estas medidas ayudan a que una persona realice un trabajo de forma tan segura y eficiente como sea posible.
 Estrategias preventivas:
-• Minimizar la pérdida de sueño; para ello es fundamental que durante los días libres y el descanso se duerma adecuadamente, ya que durante el trabajo se suele perder sueño, y como estos efectos son acumulativos hay que partir desde 0 en déficit de sueño. Para cumplir con ello se necesitan dos noches de sueño normal, pero con ello no obtendremos nunca un margen de sueño extra.
+. Minimizar la pérdida de sueño; para ello es fundamental que durante los días libres y el descanso se duerma adecuadamente, ya que durante el trabajo se suele perder sueño, y como estos efectos son acumulativos hay que partir desde 0 en déficit de sueño. Para cumplir con ello se necesitan dos noches de sueño normal, pero con ello no obtendremos nunca un margen de sueño extra.
 Durante los días de trabajo hay que lograr tanto sueño como en una noche normal de sueño.
 Si el horario de trabajo nos impide lograr este sueño durante el horario circadiano normal, entonces tendremos que utilizar más de un episodio de sueño.
-• Siestas; Pueden mejorar nuestra capacidad de alerta. Si se toman antes del trabajo o pueden ser interrumpidas de improviso, deben limitarse a un máximo de 45 minutos, ya que así se evita entrar en un sueño más profundo y al despertar se evita esa desorientación y letargo que dura varios minutos y que se denomina “Inercia del sueño”.
-En otras circunstancias distintas a las anteriores, siesta más largas pueden ser muy beneficiosas. Una siesta de 2 horas antes de un periodo de trabajo nocturno que incluya la “ventana de mínimos circadianos”, permitirá su desarrollo en buenas condiciones.
+. Siestas; Pueden mejorar nuestra capacidad de alerta. Si se toman antes del trabajo o pueden ser interrumpidas de improviso, deben limitarse a un máximo de 45 minutos, ya que así se evita entrar en un sueño más profundo y al despertar se evita esa desorientación y letargo que dura varios minutos y que se denomina "Inercia del sueño".
+En otras circunstancias distintas a las anteriores, siesta más largas pueden ser muy beneficiosas. Una siesta de 2 horas antes de un periodo de trabajo nocturno que incluya la "ventana de mínimos circadianos", permitirá su desarrollo en buenas condiciones.
 (5) Contramedidas Operacionales:
-Una vez que se está en el trabajo, el abanico de estrategias disponibles para combatir la fatiga es más limitado. Una restricción adicional en aviación comercial, que los tripulantes deben permanecer en sus puestos excepto por “necesidades fisiológicas”, que actualmente no incluyen el sueño:
-• Interacción social y conversación; debe ser activa, los estudios demuestran que la ausencia de conversación es un factor predictivo del decaimiento de la capacidad de alerta.
-• Actividad física; ejercicios de elasticidad e isométricos pueden hacerse en el mismo asiento.
-• Uso estratégico de la cafeína; no debe usarse justo al iniciar el periodo de trabajo ni después de una siesta. Más bien, debe tomarse una hora antes de los momentos en que se espere la menor capacidad de alerta (3 a 5 AM) y no consumirla tres horas antes de la hora en la que se estime dormir.
-• Dieta; los alimentos ricos en glucosa potencian la capacidad de alerta y actuación, mientras se mantiene un alto nivel de glucosa en la sangre.
-• Siestas en el puesto de pilotaje; la NASA ha desarrollado un estudio operacional real con el resultado que siestas de hasta 40 minutos, proporcionan una mayor capacidad de actuación y alerta durante los últimos 90 minutos del vuelo.
+Una vez que se está en el trabajo, el abanico de estrategias disponibles para combatir la fatiga es más limitado. Una restricción adicional en aviación comercial, que los tripulantes deben permanecer en sus puestos excepto por "necesidades fisiológicas", que actualmente no incluyen el sueño:
+. Interacción social y conversación; debe ser activa, los estudios demuestran que la ausencia de conversación es un factor predictivo del decaimiento de la capacidad de alerta.
+. Actividad física; ejercicios de elasticidad e isométricos pueden hacerse en el mismo asiento.
+. Uso estratégico de la cafeína; no debe usarse justo al iniciar el periodo de trabajo ni después de una siesta. Más bien, debe tomarse una hora antes de los momentos en que se espere la menor capacidad de alerta (3 a 5 AM) y no consumirla tres horas antes de la hora en la que se estime dormir.
+. Dieta; los alimentos ricos en glucosa potencian la capacidad de alerta y actuación, mientras se mantiene un alto nivel de glucosa en la sangre.
+. Siestas en el puesto de pilotaje; la NASA ha desarrollado un estudio operacional real con el resultado que siestas de hasta 40 minutos, proporcionan una mayor capacidad de actuación y alerta durante los últimos 90 minutos del vuelo.
 Contramedidas operacionales en estudio:
-• La luz brillante; (más de 2500 lux) tiene la capacidad de resincronizar el reloj circadiano, además suprime la secreción de la hormona pineal, melatonina, y por tanto potencia la capacidad de alerta.
-• El ejercicio físico; realizado durante la mañana avanza el reloj circadiano, durante la tarde lo atrasa.
-• Dietas; Hidratos de carbono (pasta, legumbres y patatas) inducen el sueño por su elevado contenido de serotonina. A su vez, las comidas ricas en proteínas (carne, huevos, etc.) yciertos aminoácidos, inducen la actividad y evitan el sueño.
+. La luz brillante; (más de 2500 lux) tiene la capacidad de resincronizar el reloj circadiano, además suprime la secreción de la hormona pineal, melatonina, y por tanto potencia la capacidad de alerta.
+. El ejercicio físico; realizado durante la mañana avanza el reloj circadiano, durante la tarde lo atrasa.
+. Dietas; Hidratos de carbono (pasta, legumbres y patatas) inducen el sueño por su elevado contenido de serotonina. A su vez, las comidas ricas en proteínas (carne, huevos, etc.) yciertos aminoácidos, inducen la actividad y evitan el sueño.
 ANEXO A.- HIGIENE PARA DORMIR
 Se denomina así a un grupo de prácticas cuyo objetivo es bloquear las preocupaciones o el stress emocional, con una capa de aislamiento psicológico que aísla el sueño y la vigilia.
 Hay que partir de considerar y utilizar el dormitorio única y exclusivamente para dormir.
-Son muy aconsejables la utilización de una serie de “rituales rutinarios” previos al momento de acostarse (baño caliente, tomar algo ligero, o 10 minutos de lectura). En términos generales, se aconseja evitar cualquier tipo de actividad extenuante o excitante (con excepción del sexo), así como cualquier otra que nos pueda entretener y “enganchar” nuestra atención en algo más interesante o atractivo que el dormir.
+Son muy aconsejables la utilización de una serie de "rituales rutinarios" previos al momento de acostarse (baño caliente, tomar algo ligero, o 10 minutos de lectura). En términos generales, se aconseja evitar cualquier tipo de actividad extenuante o excitante (con excepción del sexo), así como cualquier otra que nos pueda entretener y "enganchar" nuestra atención en algo más interesante o atractivo que el dormir.
 Tomar un baño caliente (38ºC) unos 90 minutos antes de acostarse tiene un efecto positivo para conciliar el sueño. El beneficio de esta medida no viene del calentamiento por el baño sino del enfriamiento posterior del cuerpo que potencia el sueño y proporciona más SWS (Slow-Wave Sleep).
 Si no se es capaz de conciliar el sueño en un tiempo determinado, es aconsejable no permanecer en la cama. Es preferible levantarse y realizar cualquier otro tipo de actividad que sea rutinaria e incluso poco agradable. Acostarse siempre que se pueda a la misma hora y levantarse sin despertador, contribuye a ajustar el reloj biológico y las pautas de sueño.
 La siesta ayuda a bajar el stress y el cansancio. Sin embargo, deben tomarse con cautela su duración ya que pueden llegar a ser contraproducentes. Una siesta de 15 o 20 minutos nos ayuda a refrescarnos y recuperarnos sin perturbar nuestras pautas de sueño habituales o provocar insomnio nocturno.
 El entorno o ambiente en el que vamos a dormir es muy importante para facilitarlo o fomentarlo:
-• Temperatura: 16ºC-18ºC.
-• Humedad: 60%-70%
-• Colchón: Debe ser lo suficientemente firme para permitir que los músculos de la espalda puedan mantener a la columna relajada y alineada. El tamaño debe ser como mínimo 15 centímetros más largo que el sujeto y lo suficientemente ancho para permitir darse la vuelta mientras se duerme sin despertarse.
-• Almohada: Se debe ajustar a la constitución de cada individuo, los materiales naturales como el plumón son los más aconsejables.
-• Sabanas: Deben dar una sensación confortable. Las de algodón suelen ser las más aceptadas.
-• Luz: El ambiente debe ser lo más oscuro posible. Por tanto son imprescindibles las cortinas consistentes o las persianas.
-• Ruido: produce un incremento de la frecuencia cardiaca y de la presión sanguínea en algunas personas. Una medida a utilizar frente al estruendo o ruido aleatorio elevado, es utilizar ruidos monótonos de ambientes relajados como la lluvia o el mar creados por un cassette o CD. Otro tipo de ruido perturbador es el permanente y de multifrecuencia. Este tipo de ruido es fácil de enmascarar sintonizando una radio entre dos frecuencias o conectando el fan del climatizador de la habitación.
-• Relojes: No deben colocarse relojes con esferas prominentemente iluminadas a la vista, ya que tienden a atraer la atención y producir una ansiedad por la duración del sueño o el tiempo en alcanzarlo.
-• Ejercicio: La actividad física puede incrementar la necesidad de un sueño reparador y profundo (fase 3 y 4). El ejercicio eleva la temperatura del cuerpo y a las 5 o 6 horas se produce una disminución de la misma que hace propicio el sueño. El ejercicio más recomendado es el aeróbico (continuo en sesiones de 20 a 30 minutos, de 3 a 5 veces por semana, precedidas de un calentamiento de 10 minutos). Cualquier tipo de ejercicio como caminar, correr o nadar son muy aconsejables para conciliar el sueño. La mejor hora para realizar ejercicio y que fomente el sueño es entre medio día y primera horas de la tarde. Hay que evitar el ejercicio físico extenuante en las 3 o 4 horas previas a acostarse.
-• Técnicas de Relajación: Existen numerosas técnicas para relajar los músculos y tranquilizar la mente. Son recomendables los denominados “ejercicios respiratorios”, respirando primero por el abdomen y después por los pulmones, posteriormente se respira normalmente y se procede a relajar cada grupo muscular concentrándose mentalmente en los mismos. Esta técnica proporciona una disminución de la actividad cerebral y laxitud general.
-• Dieta: lo que se come afecta profundamente en nuestra calidad de sueño. Algunas recomendaciones son, comer fruta, verduras y alimentos con fibra. Otros alimentos aconsejables con los hidratos de carbono como cereales, pasta, patatas y arroz; los cuales fomentan la calma al incrementar la producción de serotonina (neuro transmisor asociado con el sueño). Hay que evitar el exceso de consumir proteínas, especies, fritos, grasas y dulces en las horas próximas a acostarse. En resumidas cuentas un fuerte desayuno, una moderada comida y una ligera cena.
-• Medicamentos: Siempre que se pueda hay que evitar el consumo de píldoras para dormir, y se toman debe ser bajo prescripción médica y de forma temporal. En cualquier caso el consumo diario de vitamina B, B3, B6, B12 y ácido fólico, fomentan el sueño.
-• Alcohol: Hay que evitar el consumo de bebidas alcohólicas en las tres horas previas a dormir. El alcohol tiene un efecto sedativo, pero este efecto desaparece a las pocas horas y después se suceden efectos contrarios denominados “Insomnio retroactiva”, tanto el sueño restaurativo como el REM son perturbados con un resultado de inquietud general.
-• Cafeína: Produce un efecto de incremento del ritmo cardiaco, tensión muscular, dolor de cabeza y ansiedad. Se ha comprobado, que apenas 5 minutos después de ingerirla en bebidas, se puede detectar en la sangre y como mínimo perduran hasta 3 horas y media después. La cafeína perturba significativamente la fase 4 del sueño REM (él más reparador).
-• Nicotina: Eleva la presión sanguínea, el ritmo cardiaco y estimula la actividad cerebral. Hay que evitar su consumo de 4 a 6 horas antes de acostarse.
+. Temperatura: 16ºC-18ºC.
+. Humedad: 60%-70%
+. Colchón: Debe ser lo suficientemente firme para permitir que los músculos de la espalda puedan mantener a la columna relajada y alineada. El tamaño debe ser como mínimo 15 centímetros más largo que el sujeto y lo suficientemente ancho para permitir darse la vuelta mientras se duerme sin despertarse.
+. Almohada: Se debe ajustar a la constitución de cada individuo, los materiales naturales como el plumón son los más aconsejables.
+. Sabanas: Deben dar una sensación confortable. Las de algodón suelen ser las más aceptadas.
+. Luz: El ambiente debe ser lo más oscuro posible. Por tanto son imprescindibles las cortinas consistentes o las persianas.
+. Ruido: produce un incremento de la frecuencia cardiaca y de la presión sanguínea en algunas personas. Una medida a utilizar frente al estruendo o ruido aleatorio elevado, es utilizar ruidos monótonos de ambientes relajados como la lluvia o el mar creados por un cassette o CD. Otro tipo de ruido perturbador es el permanente y de multifrecuencia. Este tipo de ruido es fácil de enmascarar sintonizando una radio entre dos frecuencias o conectando el fan del climatizador de la habitación.
+. Relojes: No deben colocarse relojes con esferas prominentemente iluminadas a la vista, ya que tienden a atraer la atención y producir una ansiedad por la duración del sueño o el tiempo en alcanzarlo.
+. Ejercicio: La actividad física puede incrementar la necesidad de un sueño reparador y profundo (fase 3 y 4). El ejercicio eleva la temperatura del cuerpo y a las 5 o 6 horas se produce una disminución de la misma que hace propicio el sueño. El ejercicio más recomendado es el aeróbico (continuo en sesiones de 20 a 30 minutos, de 3 a 5 veces por semana, precedidas de un calentamiento de 10 minutos). Cualquier tipo de ejercicio como caminar, correr o nadar son muy aconsejables para conciliar el sueño. La mejor hora para realizar ejercicio y que fomente el sueño es entre medio día y primera horas de la tarde. Hay que evitar el ejercicio físico extenuante en las 3 o 4 horas previas a acostarse.
+. Técnicas de Relajación: Existen numerosas técnicas para relajar los músculos y tranquilizar la mente. Son recomendables los denominados "ejercicios respiratorios", respirando primero por el abdomen y después por los pulmones, posteriormente se respira normalmente y se procede a relajar cada grupo muscular concentrándose mentalmente en los mismos. Esta técnica proporciona una disminución de la actividad cerebral y laxitud general.
+. Dieta: lo que se come afecta profundamente en nuestra calidad de sueño. Algunas recomendaciones son, comer fruta, verduras y alimentos con fibra. Otros alimentos aconsejables con los hidratos de carbono como cereales, pasta, patatas y arroz; los cuales fomentan la calma al incrementar la producción de serotonina (neuro transmisor asociado con el sueño). Hay que evitar el exceso de consumir proteínas, especies, fritos, grasas y dulces en las horas próximas a acostarse. En resumidas cuentas un fuerte desayuno, una moderada comida y una ligera cena.
+. Medicamentos: Siempre que se pueda hay que evitar el consumo de píldoras para dormir, y se toman debe ser bajo prescripción médica y de forma temporal. En cualquier caso el consumo diario de vitamina B, B3, B6, B12 y ácido fólico, fomentan el sueño.
+. Alcohol: Hay que evitar el consumo de bebidas alcohólicas en las tres horas previas a dormir. El alcohol tiene un efecto sedativo, pero este efecto desaparece a las pocas horas y después se suceden efectos contrarios denominados "Insomnio retroactiva", tanto el sueño restaurativo como el REM son perturbados con un resultado de inquietud general.
+. Cafeína: Produce un efecto de incremento del ritmo cardiaco, tensión muscular, dolor de cabeza y ansiedad. Se ha comprobado, que apenas 5 minutos después de ingerirla en bebidas, se puede detectar en la sangre y como mínimo perduran hasta 3 horas y media después. La cafeína perturba significativamente la fase 4 del sueño REM (él más reparador).
+. Nicotina: Eleva la presión sanguínea, el ritmo cardiaco y estimula la actividad cerebral. Hay que evitar su consumo de 4 a 6 horas antes de acostarse.
 ANEXO B.- ACCIDENTES E INCIDENTES RELACIONADOS CON LA FATIGA
 El 18-8-93 un DC-8 de la compañía American International Airways colisionó con el terreno aproximadamente a ¼ de milla de la cabecera de la pista 10 durante la aproximación, después de que el comandante perdiera el control del avión.
 La tripulación había sufrido una perturbación de su ritmo circadiano y pérdida de sueño; había estado en actividad durante 18 horas y volado durante 9 horas. El comandante no reconoció el deterioro de la senda de vuelo y la alteración de la velocidad debido a la fijación en localizar una luz estroboscópica en tierra. Esta luz, se usaba como referencia durante la aproximación visual, pero se encontraba inoperativa; la tripulación no fue avisada de ello.
@@ -10650,72 +10903,72 @@ La pérdida de sueño acumulada es evidente para todos los tripulantes si consid
 En último lugar hay que remarcar que el accidente sucedió a las 04:56 PM, dentro del ciclo diurno de más soñolencia (03:00-05.00 PM).
 Todo lo anterior nos lleva a la conclusión de que la capacidad de actuación de una tripulación se encontraba totalmente disminuida por debajo de los niveles requeridos para la operación.
 Esta circunstancia ocasionó toda la cadena de errores:
-• Toma de decisiones incorrecta (solicitar la aproximación en circuito a la pista 10).
-• Falta de conciencia de la situación y atención focalizada.
-• Fallos CRM (consultar con la tripulación la toma de decisiones y hacer caso omiso a los avisos de baja velocidad del mecánico).
-• Incapacidad de reacción ante el aviso de pérdida.
-• Fallos CRM (consultar con la tripulación la toma de decisiones y hacer caso omiso a los avisos de baja velocidad del mecánico).
-• Incapacidad de reacción ante el aviso de pérdida.
+. Toma de decisiones incorrecta (solicitar la aproximación en circuito a la pista 10).
+. Falta de conciencia de la situación y atención focalizada.
+. Fallos CRM (consultar con la tripulación la toma de decisiones y hacer caso omiso a los avisos de baja velocidad del mecánico).
+. Incapacidad de reacción ante el aviso de pérdida.
+. Fallos CRM (consultar con la tripulación la toma de decisiones y hacer caso omiso a los avisos de baja velocidad del mecánico).
+. Incapacidad de reacción ante el aviso de pérdida.
 INCIDENTES RELACIONADOS CON LA FATIGA
 Nota: Todas las narrativas que a continuación se reproducen, son traducciones literales resumidas de las relatadas por los protagonistas.
-La siesta del comandante: “Un segundo piloto con muy poca experiencia se le deja a cargo del vuelo cuando el comandante decide tomar una siesta en ruta. El segundo piloto es sobrepasado por la carga de trabajo durante la aproximación”. Avión: Regional Jet CL 65.
+La siesta del comandante: "Un segundo piloto con muy poca experiencia se le deja a cargo del vuelo cuando el comandante decide tomar una siesta en ruta. El segundo piloto es sobrepasado por la carga de trabajo durante la aproximación". Avión: Regional Jet CL 65.
 Narración: Yo estaba en el salón de descanso de pilotos en reserva, esperando a ser convocado para un viaje. Cuando la llamada vino, supuse que iba a rodar un avión del aparcamiento al hangar y después otro del hangar al aparcamiento. Cuando llegué al aparcamiento, me encontré un comandante diferente, uno con el que nunca había volado, y fuimos asignados para volar a MEM y vuelta. Una de las primeras cosas que salió de su boca fue "¿qué has estado haciendo tanto tiempo en el hangar?" yo pensé que había tardado lo normal, realmente no supe qué decir. Entonces, y antes de rodar, vi un mensaje de precaución de refrigeración en la pantalla y avisé al comandante. Él dijo que era un " mensaje inducido por el piloto". Él había apagado intencionalmente el fan de refrigeración en tierra para las 6 pantallas CRT porque era demasiado ruidoso. "él comentó que si las pantallas empezaran automáticamente a apagarse, entonces él conectaría de nuevo el fan ante este aviso. Entonces procedimos a rodar sin auriculares, usando el altavoz de cabina en su lugar. Después de la salida, y en el momento que fuimos autorizados para ascender a FL180, el comandante reclinó su asiento, se recostó, puso su cabeza en su mano derecha, y cerrando sus ojos, dijo, " espero que no le importe si apenas tomo una siesta. " yo no fui capaz de haber dicho cómo apreciaría que se quedara despierto, y él parecía estar completamente dormido. (él me dijo después que se había levantado a las xx00 para venir con su familia en el único vuelo disponible desde ORD donde habían estado veraneando durante los días anteriores). Otra cosa que debería haber hecho, era decirle que solamente llevaba en la compañía 10 meses y tenía aproximadamente 17:00 hrs en el avión. Normalmente esto es parte del briefing previo al vuelo, pero yo no creí que él estuviera interesado en conocer mi situación. Así que allí estaba haciendo de único piloto con todas las radios, radar, y TCAS II, etc. Cuando empezamos el descenso inicial en la llegada WLDER UNO, vi algunos cúmulos y pedí desviarse, ATC autorizó el desvío a la derecha de la ruta y me autorizó directo aMEM cuando fuera posible con el descenso a mi discreción. Yo encendí la señal de cinturones, supervisé la necesidad de antihielo, y usé el radar y FMS para empezar a descender y continuar hacia MEM. Entonces fue cuando debí despertar al comandante, pero no lo hice porque pensé que tenía todo bajo control, pero cuando entré en IMC y control autorizó sucesivos descensos y la aproximación esperada, mi carga de trabajo se incrementó dramáticamente. El comandante se despertó y yo le dije que me vendría bien algo de ayuda. "estábamos manteniendo 310 KIAS a 10000 FT cuando ATC nos autorizó para volver al radial, que yo interpreté como el radial de la llegada WLDER UNO. Por suerte yo no había borrado la llegada del FMS y puesto directo a MEM como había sido autorizado porque no había tenido tiempo para reprogramar el FMS. Al mismo tiempo, me dijeron que volviera al radial, fui autorizado a abandonar 10000 FT por segunda vez. Esto tuvo que ser repetido porque todavía estaba volando y saturado de trabajo, perdiendo la comunicación. Dado el aumento súbito de carga de trabajo, seleccioné el piloto automático para descenso, y aproximadamente 5 segundos me di cuenta que me encontraba por encima de 250 KIAS, siendo así desconecté el piloto automático y desaceleré a 250 KIAS a 9800 FT antes de continuar descendiendo. Al mismo tiempo, el FLT MGMNT SYS pasó el último punto de la llegada, y con el piloto automático puesto empezó a virar a rumbo 175. Miré la pantalla de navegación y no vi ningún fijo hacia donde virábamos, y pregunté al comandante que estaba escuchando el ATIS ¿A dónde me estaba llevando el avión? él contestó que no lo sabía, pero que no le dejara continuar, así que desconecté el piloto automático y nivelé las alas. En ese momento, el comandante y ATC me dijeron que virara por la izquierda a rumbo 175. Cuando finalicé el viraje, vi que el rumbo estaba publicado en la carta de llegadas como vector para interceptar la aproximación final.
 Así que, continué la aproximación, hicimos las listas rápidamente y aterrizamos. La próxima vez discutiré mi nivel de experiencia y en mi opinión no debe haber ningún durmiendo, y en ningún caso descendiendo por debajo de FL180.
-Entrar como sea: “Exceder la velocidad máxima de flaps en aproximación final, la altitud asignada en la aproximación frustrada, y no bajar el tren hasta oír la sirena de aviso. Además, el GPWS emitió aviso de “pull up” debido al elevado régimen de descenso en final”. Avión Airbus 320.
-Narración: Era mi pata, así que despegué y volé desde SJC a DEN. En crucero, verificamos la “meteo” de DEN y encontramos que existía turbulencia y vientos racheados. Recibimos un mensaje de Operaciones desde DEN, donde decía que un avión había frustrado la aproximación porque ganaba y perdía velocidad en final. Hablamos de la necesidad de tomar tierra en DEN ya que el comandante se encontraba limitado por acumular 100 horas de vuelo en los últimos 30 días, y por otra parte de la cizalladura que había. Después de comprobar el ATIS sucesivas veces, parecía que la situación estaba más calmada. Iniciamos el descenso, y aproximación nos advirtió de la posibilidad de turbulencia y que nos mantendría a FL 190 durante unas 15 millas. La situación era de viento del Sur y la pista 35L en servicio, el tráfico precedente (DC-10) se le autorizó a base y a nosotros a ajustar en visual al precedente (último descenso autorizado 9000 FT), estábamos separados por 5 millas. Se nos dijo que mantuviéramos 170 KIAS hasta la baliza. Yo inmediatamente pedí el tren y 3º de flaps para perder toda la altitud que pudiéramos, realmente estábamos muy altos pues manteníamos una componente de viento en cola de 25 KTS. Pensando que disminuíamos la separación con el DC-10, pedí todo el flaps y reduje velocidad. Después de configurar el avión, el comandante dijo que continuara con la aproximación, que si era necesario hiciéramos “S” para continuar descendiendo y podíamos solicitar la pista 35R para distanciarnos más. Estábamos experimentando turbulencia ligera, la velocidad oscilaba, una vez que inicié la primera “S”,el comandante toma los mandos diciendo que existe una forma mejor de perder más altura.
-El comandante picó y la velocidad se incrementó rápidamente, se lo advertí que estábamos a punto de sobrepasar la limitación de flaps y redujo el descenso, pero ya habíamos alcanzado el límite. Continuábamos demasiado altos y el comandante pidió la pista 35R. Fuimos autorizados, el comandante volvió a picar súbitamente y escuchamos “whoop, whoop pull up”, teníamos excesivo régimen de descenso (2100 FPM). El comandante corrigió, y dijo que a 500 FT determinaríamos si continuábamos o frustrábamos, yo dije que no deberíamos continuar y el comandante inició la frustrada. Le comuniqué a la TWR la maniobra y se nos autorizó a 8000 FT con rumbo 120 y contactar en 123.85. Yo estaba concentrado en la maniobra y no escuché la frecuencia, así que cuando limpiamos el avión llamé en una frecuencia errónea y nadie me contestó. Tuve que llamar de nuevo a la Twr para solicitar la nueva frecuencia, donde se nos ordenó virar a rumbo 170 y mantener 170 KTS. Me di cuenta que la velocidad estaba cayendo y se lo dije al comandante dos veces, al no ver respuesta avancé los gases a la posición de crucero. Simultáneamente vi que estábamos a 8350 FT, en ese momento el comandante conectó el piloto automático y el avión comenzó a descender a 8000 FT. El comandante pidió 1º de flaps, yo lo seleccioné y vi que estábamos 10 KTS por debajo de la velocidad límite de flaps. La turbulencia era moderada y la velocidad oscilaba alrededor de 10 KTS. El comandante pidió 2º de flaps y la velocidad se mantenía 12 KTS por debajo del límite. Inmediatamente, la velocidad saltó a la máxima de límite de flaps y volvió a caer. Le pregunté al comandante si quería que volase la aproximación y sin contestarme me pareció entender que así era, así que programé el FMC para la 35R mientras él hablaba por el PA. Con la pista a la vista y rumbo 260 se nos autorizó una nueva aproximación. Entonces desconecté el piloto automático y pedí 3º de flaps y después todo el flaps. A 750 FT AGL sonó el aviso de “tren no bajado” y el comandante lo bajó y leyó entonces la lista antes de que el tren estuviera verde, todo estuvo completado a los 500 Ft AGL. Aterrizamos, y entonces el comandante me dijo que era la primera vez que le había pasado una cosa así, lo mismo que a mí.
-Interpretación de la normativa: “La tripulación de un B-727 excede la limitación de tiempo de vuelo en 72 horas debido a la presión de la compañía, interpretación de las regulaciones y a factores meteorológicos”.
+Entrar como sea: "Exceder la velocidad máxima de flaps en aproximación final, la altitud asignada en la aproximación frustrada, y no bajar el tren hasta oír la sirena de aviso. Además, el GPWS emitió aviso de "pull up" debido al elevado régimen de descenso en final". Avión Airbus 320.
+Narración: Era mi pata, así que despegué y volé desde SJC a DEN. En crucero, verificamos la "meteo" de DEN y encontramos que existía turbulencia y vientos racheados. Recibimos un mensaje de Operaciones desde DEN, donde decía que un avión había frustrado la aproximación porque ganaba y perdía velocidad en final. Hablamos de la necesidad de tomar tierra en DEN ya que el comandante se encontraba limitado por acumular 100 horas de vuelo en los últimos 30 días, y por otra parte de la cizalladura que había. Después de comprobar el ATIS sucesivas veces, parecía que la situación estaba más calmada. Iniciamos el descenso, y aproximación nos advirtió de la posibilidad de turbulencia y que nos mantendría a FL 190 durante unas 15 millas. La situación era de viento del Sur y la pista 35L en servicio, el tráfico precedente (DC-10) se le autorizó a base y a nosotros a ajustar en visual al precedente (último descenso autorizado 9000 FT), estábamos separados por 5 millas. Se nos dijo que mantuviéramos 170 KIAS hasta la baliza. Yo inmediatamente pedí el tren y 3º de flaps para perder toda la altitud que pudiéramos, realmente estábamos muy altos pues manteníamos una componente de viento en cola de 25 KTS. Pensando que disminuíamos la separación con el DC-10, pedí todo el flaps y reduje velocidad. Después de configurar el avión, el comandante dijo que continuara con la aproximación, que si era necesario hiciéramos "S" para continuar descendiendo y podíamos solicitar la pista 35R para distanciarnos más. Estábamos experimentando turbulencia ligera, la velocidad oscilaba, una vez que inicié la primera "S",el comandante toma los mandos diciendo que existe una forma mejor de perder más altura.
+El comandante picó y la velocidad se incrementó rápidamente, se lo advertí que estábamos a punto de sobrepasar la limitación de flaps y redujo el descenso, pero ya habíamos alcanzado el límite. Continuábamos demasiado altos y el comandante pidió la pista 35R. Fuimos autorizados, el comandante volvió a picar súbitamente y escuchamos "whoop, whoop pull up", teníamos excesivo régimen de descenso (2100 FPM). El comandante corrigió, y dijo que a 500 FT determinaríamos si continuábamos o frustrábamos, yo dije que no deberíamos continuar y el comandante inició la frustrada. Le comuniqué a la TWR la maniobra y se nos autorizó a 8000 FT con rumbo 120 y contactar en 123.85. Yo estaba concentrado en la maniobra y no escuché la frecuencia, así que cuando limpiamos el avión llamé en una frecuencia errónea y nadie me contestó. Tuve que llamar de nuevo a la Twr para solicitar la nueva frecuencia, donde se nos ordenó virar a rumbo 170 y mantener 170 KTS. Me di cuenta que la velocidad estaba cayendo y se lo dije al comandante dos veces, al no ver respuesta avancé los gases a la posición de crucero. Simultáneamente vi que estábamos a 8350 FT, en ese momento el comandante conectó el piloto automático y el avión comenzó a descender a 8000 FT. El comandante pidió 1º de flaps, yo lo seleccioné y vi que estábamos 10 KTS por debajo de la velocidad límite de flaps. La turbulencia era moderada y la velocidad oscilaba alrededor de 10 KTS. El comandante pidió 2º de flaps y la velocidad se mantenía 12 KTS por debajo del límite. Inmediatamente, la velocidad saltó a la máxima de límite de flaps y volvió a caer. Le pregunté al comandante si quería que volase la aproximación y sin contestarme me pareció entender que así era, así que programé el FMC para la 35R mientras él hablaba por el PA. Con la pista a la vista y rumbo 260 se nos autorizó una nueva aproximación. Entonces desconecté el piloto automático y pedí 3º de flaps y después todo el flaps. A 750 FT AGL sonó el aviso de "tren no bajado" y el comandante lo bajó y leyó entonces la lista antes de que el tren estuviera verde, todo estuvo completado a los 500 Ft AGL. Aterrizamos, y entonces el comandante me dijo que era la primera vez que le había pasado una cosa así, lo mismo que a mí.
+Interpretación de la normativa: "La tripulación de un B-727 excede la limitación de tiempo de vuelo en 72 horas debido a la presión de la compañía, interpretación de las regulaciones y a factores meteorológicos".
 Narración: Este informe se ha efectuado para mostrar como la fatiga de la tripulación puede afectar a su capacidad de juicio e interpretación de las FARs. Los tripulantes incluidos en este informe son el comandante, segundo piloto y mecánico de vuelo. La línea empezó un sábado de marzo del 98, e incluía un vuelo MMMZ-MSP-MMMZ el primer y segundo día.
 También incluyó una escala técnica imprevista para repostar en ELP en la pata de regreso.
 El tercer día ya estaba planificado como de muy larga actividad, incluyendo la pata MMMZSTL, la vuelta se suponía que era a MMMZ, sin embargo debido a un extenso sistema frontal con cumulonimbos hasta FL 350 así como a vientos en cara imprevistos, nuevamente se tuvo que efectuar escala para repostar en ELP. En ese lugar todos los vuelos se vieron demorados entre 1-2 horas antes de continuar a MMMZ.
 Después de aterrizar en MMMZ no se pudo conseguir alimentos para la tripulación para los restantes vuelos. Los últimos alimentos ingeridos por la tripulación fueron 12 horas antes. La tripulación partió para DEN ya entrada la noche. Durante este tramo, la tripulación discutió sobre el tiempo máximo de vuelo permitido en 24 horas, considerando un periodo de actividad de 72 horas.
 Todos coincidimos que no podíamos continuar desde DEN. Al llegar, notifiqué a la compañía que no podíamos continuar de acuerdo con la FAR 121.521. La interpretación de la compañía fue, que el próximo vuelo a PHX era continuación del anterior con el mismo número, y por tanto la regulación que mencionábamos no era aplicable, así que podíamos continuar volando. Segundo, la compañía aseguró que no importaba cuanto tiempo por encima de las 24 horas de actividad realizábamos si habíamos descansado 18 horas previamente; la tripulación podía realizar el siguiente vuelo legalmente. Las condiciones fisiológicas de la tripulación, eran: 20 horas de vigilia continuada, 11 horas de vuelo, una sola comida en todo este periodo. Era la opinión de toda la tripulación que nos encontrábamos sufriendo fatiga antes de partir de DEN. También se daba un factor de stress importante, al ir con retraso en la operación e intentar recuperar el tiempo perdido. Después de aterrizar en PHX, el tiempo de vigilia de la tripulación era 22 horas, 12 horas de vuelo y seguíamos con una sola comida.
 Aunque ninguna otra regulación se violó, (excepto FAR 121.521) y todos los vuelos se realizaron sin incidentes, la tripulación tenía la certeza de que no deberían haber realizado la última etapa, y ni tan siquiera deberían habérselo pedido. Debido a su estado fisiológico, la tripulación tomó una decisión errónea, aceptando que todo era correcto, cuando en realidad no lo era.
-Sobrecarga de trabajo en el rodaje: “Un B-757 recibió numerosas instrucciones durante el rodaje, produciéndose distracciones. La tripulación olvidó seleccionar flaps en posición de despegue y en plana carrera recibieron la alarma de aviso de configuración errónea.”
+Sobrecarga de trabajo en el rodaje: "Un B-757 recibió numerosas instrucciones durante el rodaje, produciéndose distracciones. La tripulación olvidó seleccionar flaps en posición de despegue y en plana carrera recibieron la alarma de aviso de configuración errónea."
 Narración: En el cuarto día de una línea de 5, todos ellos con vuelos a primera hora de la mañana, nos encontrábamos en DTW esperando ya 3 horas para realizar el primer vuelo del día. El comandante realizaba su segunda línea este mes, mientras que el segundo piloto que se encontraba de reserva realizaba la última acumulando 78 horas en 17 días. Ese día recibimos instrucciones de rodaje no estándar, con numerosos tráficos en movimiento. Había cola para despegar y cuando llegó nuestro turno, la Twr nos urgió a entrar y alinear a pesar de que el precedente prácticamente no había iniciado su carrera de despegue todavía y el espacio para maniobrar era muy ajustado. Al avanzar los gases a la posición de despegue recibimos un aviso de alarma de configuración por flaps. Tuvimos que salir de pista y volver a seleccionar flaps correctamente antes de volver a alinear.
-La tripulación falló debido: A que las instrucciones de rodaje atrajeron toda nuestra atención y nos olvidamos de seleccionar flaps antes de rodar como es la costumbre. Posteriormente durante la realización de la “lista” nuevamente estábamos pendientes de otros tráficos rodando. Los “final ítems” previos al despegue no se realizaron debido a la premura que nos imprimió la Twr para alinear. La tripulación sufría de fatiga por los sucesivos “madrugones”, el segundo piloto llevaba acumulada mucha actividad en los últimos días. Por otra parte, la saturación de comunicaciones influyó en que la tripulación se desviara de sus procedimientos habituales.
-Aterrizaje sin autorización: “La tripulación de un BAE 146 aterrizó sin contactar con la TWR para pedir autorización. Se dieron cuenta de su error cuando después de aterrizar, intentaron obtener instrucciones de rodaje y descubrieron que todavía estaban en frecuencia de aproximación”.
-Narración: Autorizados para aproximación visual a la pista 31R. El piloto automático cruzaba curso de aproximación final, a pesar de que señalaba haber capturado el localizador. El comandante y yo nos preguntábamos por qué estaba haciendo eso el piloto automático. Como aproximación nos había autorizado para una maniobra visual, no sabíamos si nos habían dicho que pasáramos con la TWR o no. De cualquier forma, después de aterrizar nos dimos cuenta que todavía estábamos en frecuencia de aproximación. Inmediatamente cambié de frecuencia y la TWR nos dijo “autorizados al aparcamiento conmigo”. No se hizo ninguna mención más a por qué no contestamos cuando la TWR nos autorizó a aterrizar o si nos llegó a autorizar a aterrizar. Asumimos que nos autorizó a aterrizar porque no se nos dijo nada más.
+La tripulación falló debido: A que las instrucciones de rodaje atrajeron toda nuestra atención y nos olvidamos de seleccionar flaps antes de rodar como es la costumbre. Posteriormente durante la realización de la "lista" nuevamente estábamos pendientes de otros tráficos rodando. Los "final ítems" previos al despegue no se realizaron debido a la premura que nos imprimió la Twr para alinear. La tripulación sufría de fatiga por los sucesivos "madrugones", el segundo piloto llevaba acumulada mucha actividad en los últimos días. Por otra parte, la saturación de comunicaciones influyó en que la tripulación se desviara de sus procedimientos habituales.
+Aterrizaje sin autorización: "La tripulación de un BAE 146 aterrizó sin contactar con la TWR para pedir autorización. Se dieron cuenta de su error cuando después de aterrizar, intentaron obtener instrucciones de rodaje y descubrieron que todavía estaban en frecuencia de aproximación".
+Narración: Autorizados para aproximación visual a la pista 31R. El piloto automático cruzaba curso de aproximación final, a pesar de que señalaba haber capturado el localizador. El comandante y yo nos preguntábamos por qué estaba haciendo eso el piloto automático. Como aproximación nos había autorizado para una maniobra visual, no sabíamos si nos habían dicho que pasáramos con la TWR o no. De cualquier forma, después de aterrizar nos dimos cuenta que todavía estábamos en frecuencia de aproximación. Inmediatamente cambié de frecuencia y la TWR nos dijo "autorizados al aparcamiento conmigo". No se hizo ninguna mención más a por qué no contestamos cuando la TWR nos autorizó a aterrizar o si nos llegó a autorizar a aterrizar. Asumimos que nos autorizó a aterrizar porque no se nos dijo nada más.
 No había ningún otro avión esperando para despegar ni ningún otro posible conflicto existía.
 El comandante y yo nos distrajimos con el piloto automático, y cuando nos decidimos a recuperar el control manual, hacer las listas y demás, olvidamos cambiar la frecuencia. Yo actuaba como PNF con descanso reducido durante la noche anterior con solo 5 horas de sueño. La fatiga pudo ser un factor en mi capacidad de alerta. El control de aproximación no verificó si todavía estábamos en su frecuencia.
-Invasión de pista: “La tripulación de un avión reactor de carga no cumplió las instrucciones de mantener corto de pista durante un rodaje y el control de rodaje tuvo que intervenir y dar nuevas instrucciones”.
-Narración: Abandonando el aparcamiento, y mientras hacía la lista “después de la puesta en marcha” el segundo piloto obtuvo la autorización de rodaje. Ambos entendimos “Ruede por la calle 6, pista 30 y mantenga corto de la pista 4R”, la cuál es la autorización normal durante operaciones nocturnas. El error fue que en realidad se nos autorizó “rodar por la calle 6 y mantenga corto de la pista 30”. Durante el rodaje entramos en la pista 30 que se encontraba en servicio. El controlador inmediatamente nos ordenó que saliéramos de pista por la izquierda a la pista 4R. Después de disculparnos se nos autorizó a despegar.
+Invasión de pista: "La tripulación de un avión reactor de carga no cumplió las instrucciones de mantener corto de pista durante un rodaje y el control de rodaje tuvo que intervenir y dar nuevas instrucciones".
+Narración: Abandonando el aparcamiento, y mientras hacía la lista "después de la puesta en marcha" el segundo piloto obtuvo la autorización de rodaje. Ambos entendimos "Ruede por la calle 6, pista 30 y mantenga corto de la pista 4R", la cuál es la autorización normal durante operaciones nocturnas. El error fue que en realidad se nos autorizó "rodar por la calle 6 y mantenga corto de la pista 30". Durante el rodaje entramos en la pista 30 que se encontraba en servicio. El controlador inmediatamente nos ordenó que saliéramos de pista por la izquierda a la pista 4R. Después de disculparnos se nos autorizó a despegar.
 Factores contribuyentes: Este era el último de los cuatro saltos, de un día de 14 horas de actividad muy fatigoso. El segundo piloto obtuvo la autorización de rodaje en un momento de distracción de los otros dos tripulantes. Se dio complacencia debido al conocimiento rutinario de este aeropuerto. Entendimos la autorización que esperábamos escuchar.
 Acciones correctivas: Ambos pilotos deben copiar la autorización de rodaje. Esperar a obtener la autorización hasta que se acabe cualquier otra tarea. Verificar cualquier autorización que implique el cruce de una pista cuando se den autorizaciones largas o complicadas.
-Violación del nivel autorizado: “Durante el descenso y volando el segundo piloto se pasan del nivel autorizado porque no se seleccionó el QNH local en el altímetro. El comandante y el mecánico no detectan el error hasta que se viola el nivel autorizado”.
+Violación del nivel autorizado: "Durante el descenso y volando el segundo piloto se pasan del nivel autorizado porque no se seleccionó el QNH local en el altímetro. El comandante y el mecánico no detectan el error hasta que se viola el nivel autorizado".
 Narración. Estando a los mandos el segundo piloto, no seleccionó el QNH local al pasar por el FL180. El comandante y el mecánico no realizaron la comprobación de altímetros y descendieron hasta una altitud de 10700 FT en lugar de 11000 FT tal y como fue autorizado.
 A pesar de haber completado la lista de aproximación, el error no fue detectado a tiempo.
 Creo que fue a causa de la fatiga que sufría por mi parte, la falta de pericia del segundo piloto y el hecho de que el mecánico era nuevo. Me encontraba en mi quinto día consecutivo de línea y en el tercero tuve 12 horas de actividad. El segundo piloto realizaba su segundo vuelo del mes, y el mecánico estaba recién contratado.
-No seguir la lista: “Un MD80 se encontraba aparcado y completando la lista de final.
-El comandante actuó la realizó de memoria y sin comprobación no cortando el motor izquierdo. El mecánico de tierra tuvo que avisar al comandante”.
-Yo actuaba como segundo piloto, después de un día de muy larga actividad. Después de seleccionar los interruptores, empecé a leer la lista y el comandante respondía sin verificar el estado de los interruptores. Respondió “desconectadas” al estado de las válvulas de combustible. Al momento me di cuenta que no era correcto, coincidiendo con la intervención del mecánico de tierra que preguntaba si había algún problema con el APU que no entraba en barras.
-Mirar sin ver en la revisión exterior: “La tripulación no se percató durante la inspección previa al vuelo que la puerta de servicio del aceite del motor se encontraba abierta. El avión despegó en estas condiciones y en el siguiente aeropuerto la nueva tripulación se dio cuenta que faltaba la puerta”.
+No seguir la lista: "Un MD80 se encontraba aparcado y completando la lista de final.
+El comandante actuó la realizó de memoria y sin comprobación no cortando el motor izquierdo. El mecánico de tierra tuvo que avisar al comandante".
+Yo actuaba como segundo piloto, después de un día de muy larga actividad. Después de seleccionar los interruptores, empecé a leer la lista y el comandante respondía sin verificar el estado de los interruptores. Respondió "desconectadas" al estado de las válvulas de combustible. Al momento me di cuenta que no era correcto, coincidiendo con la intervención del mecánico de tierra que preguntaba si había algún problema con el APU que no entraba en barras.
+Mirar sin ver en la revisión exterior: "La tripulación no se percató durante la inspección previa al vuelo que la puerta de servicio del aceite del motor se encontraba abierta. El avión despegó en estas condiciones y en el siguiente aeropuerto la nueva tripulación se dio cuenta que faltaba la puerta".
 Narración: Yo actuaba como segundo piloto, era de noche, verifiqué el libro del avión y vi que mantenimiento acababa de realizar una revisión. En la revisión exterior no vi nada anormal. Al llegar a Boston y mientras realizábamos el relevo de tripulaciones, el nuevo segundo piloto me dijo que faltaba la puerta de servicio de aceite del motor número 1.
 También observamos que faltaba el tapón del aceite.
 Pensando en la revisión exterior que realicé antes del vuelo no podía acordarme de haber mirado la puerta del aceite. La respuesta al problema debió ser que el mecánico no cerró la puerta y yo no me di cuenta. En los últimos 4 años he encontrado dos veces abierta la puerta de servicio del aceite, en ambas ocasiones mantenimiento había actuado previamente. ¿Cómo no me pude percatar algo tan obvio?
 Creo que la causa principal de mi error, es la inapropiada política de la FAA en lo relativo al descanso de las tripulaciones. El día anterior tenía programada una actividad de 11 horas y 15 minutos, después de numerosas demoras llegamos a las 15 horas 35 minutos de actividad.
 Posteriormente, solo tuvimos 8 horas de descanso. Pienso que con este cansancio ninguno delos miembros de la tripulación se encontraba al máximo de su capacidad de actuación.
-Selección incorrecta de ayudas: “La tripulación de un DC-10 realiza una salida instrumental con las ayudas seleccionadas en una frecuencia equivocada”.
+Selección incorrecta de ayudas: "La tripulación de un DC-10 realiza una salida instrumental con las ayudas seleccionadas en una frecuencia equivocada".
 Narración: Autorizados para la salida requerida, tanto el comandante como el segundo piloto teníamos seleccionados el VOR FLL en el radial 335 para interceptarlo en alejamiento. Esto era incorrecto puesto que teníamos que seguir la salida autorizada que requería el VOR DPH, nos desviamos de 8-10 NM de la ruta autorizada, control nos ordenó entonces virar a rumbo270 para continuar la salida.
 No hay excusas. Solo un comentario ambos pilotos llevaban 5 noches consecutivas de vuelo con 10 horas de actividad cada una. La fatiga es un factor definitivo.
-Una cabina calurosa: “La tripulación de un ATR 72 vuela el radial equivocado de PHK durante 20 NM antes de que ATC se dé cuenta del error”.
+Una cabina calurosa: "La tripulación de un ATR 72 vuela el radial equivocado de PHK durante 20 NM antes de que ATC se dé cuenta del error".
 Narración: Volamos en alejamiento el R-342 de PHK VOR en lugar del R-002 de acuerdo con nuestra ruta.
 Miami vio el error después de 20 NM. Llevábamos en cambios de avión y hacía mucho calor en cabina. Pensamos que la fatiga fue la razón del incidente.
-El cansancio del extra-crew: “Un avión de carga descendió por debajo de la altitud inicial de aproximación de 2650 FT cuando se encontraba realizando una aproximación back course durante la noche”.
-Narración: Un martes de junio de 1998, volaba como extra en el transportín hacia JFK, después dormí por la tarde en el hotel y a continuación volé como copiloto desde JFK hacia ILN y dormí en la sala de espera de pilotos. Después partimos hacia COU, yo actuaba de PNF, el comandante daba cabezadas a cada rato. Él había venido como “extra” desde Mississippi para hacer el vuelo. Él eligió volar el curso reverso del localizador debido al viento en cola excesivo para la otra pista. Se nos dirigió con vectores para interceptar la aproximación final manteniendo 3000 FT, una vez interceptada se inició el descenso hacia mínimos. Un punto de descenso visual a 1.2 DME y otro para bajar el tren a 8 DME.
+El cansancio del extra-crew: "Un avión de carga descendió por debajo de la altitud inicial de aproximación de 2650 FT cuando se encontraba realizando una aproximación back course durante la noche".
+Narración: Un martes de junio de 1998, volaba como extra en el transportín hacia JFK, después dormí por la tarde en el hotel y a continuación volé como copiloto desde JFK hacia ILN y dormí en la sala de espera de pilotos. Después partimos hacia COU, yo actuaba de PNF, el comandante daba cabezadas a cada rato. Él había venido como "extra" desde Mississippi para hacer el vuelo. Él eligió volar el curso reverso del localizador debido al viento en cola excesivo para la otra pista. Se nos dirigió con vectores para interceptar la aproximación final manteniendo 3000 FT, una vez interceptada se inició el descenso hacia mínimos. Un punto de descenso visual a 1.2 DME y otro para bajar el tren a 8 DME.
 Configuramos el avión con 15º de flaps y descendimos a 2650 FT (fijo de aproximación final). A 10 DME ya nos encontrábamos a 2450 FT y continuábamos descendiendo cuando recibimos el aviso de altitud seleccionado a 2650 FT. El comandante inmediatamente ascendió hasta los 2650 FT y completamos la aproximación sin novedad.
-Ambos estábamos muy cansados. Yo siempre había estado orgulloso de ser un buen piloto, y no acierto a comprender como no advertí al comandante del descenso inapropiado. El comandante pensó en principio que el aviso de altitud era porque la había dejado seleccionada en 3000 FT en lugar de 2650 FT. Cuando volamos en contra de nuestro “reloj biológico”, a pesar del incremento de nuestro esfuerzo somos incapaces de actuar efectivamente.
-Aterrizando en un aeropuerto equivocado: “La tripulación de un B-727 recibe vectores para interceptar la aproximación final de ATW, comunican aeropuerto a la vista y son autorizados para aproximación visual. Durante el rodaje se dan cuenta que estaban en OSH: El comandante reconoce que estaba fatigado. Los otros tripulantes ocupados en sus tareas, no se dieron cuenta que aterrizaban en un aeropuerto equivocado”.
-Narración: Me llamó programación para que hiciera un vuelo extra. Me habían enviado en situación la noche anterior y estaba fatigado. El vuelo era MEM-MKE-ATW. Advertí a la tripulación que me encontraba cansado y estresado, si veían algo inusual o se sentían incómodos por algo que hiciera, me lo dijeran y lo corregiría. Yo volé el primer salto y el 2ºpiloto el siguiente. Fuimos dirigidos por aproximación hasta 3000 01 septiembre 2017 2 – Q - 34 Edición: Segunda FT puesto que laTWR Y APCH de LCL todavía no estaban abiertas, decidimos solicitar una aproximación visual, fuimos autorizados a visual de la pista 3 de ATW, que notificáramos el campo a la vista y se nos daría una frecuencia de UNICOM para que cerráramos el plan de vuelo cuando estuviésemos en tierra.
-Pensé que debíamos estar muy cerca del aeropuerto, pero había perdido totalmente mi “Situational Awareness”, vi un aeropuerto a unas 8-10 NM. No comprobé con las ayudas de navegación si era ATW, el copiloto tampoco lo hizo, notifiqué campo a la vista y nos metimos. Durante el rodaje me di cuenta que no estábamos en ATW, sino en OSH.
+Ambos estábamos muy cansados. Yo siempre había estado orgulloso de ser un buen piloto, y no acierto a comprender como no advertí al comandante del descenso inapropiado. El comandante pensó en principio que el aviso de altitud era porque la había dejado seleccionada en 3000 FT en lugar de 2650 FT. Cuando volamos en contra de nuestro "reloj biológico", a pesar del incremento de nuestro esfuerzo somos incapaces de actuar efectivamente.
+Aterrizando en un aeropuerto equivocado: "La tripulación de un B-727 recibe vectores para interceptar la aproximación final de ATW, comunican aeropuerto a la vista y son autorizados para aproximación visual. Durante el rodaje se dan cuenta que estaban en OSH: El comandante reconoce que estaba fatigado. Los otros tripulantes ocupados en sus tareas, no se dieron cuenta que aterrizaban en un aeropuerto equivocado".
+Narración: Me llamó programación para que hiciera un vuelo extra. Me habían enviado en situación la noche anterior y estaba fatigado. El vuelo era MEM-MKE-ATW. Advertí a la tripulación que me encontraba cansado y estresado, si veían algo inusual o se sentían incómodos por algo que hiciera, me lo dijeran y lo corregiría. Yo volé el primer salto y el 2ºpiloto el siguiente. Fuimos dirigidos por aproximación hasta 3000 01 septiembre 2017 2 - Q - 34 Edición: Segunda FT puesto que laTWR Y APCH de LCL todavía no estaban abiertas, decidimos solicitar una aproximación visual, fuimos autorizados a visual de la pista 3 de ATW, que notificáramos el campo a la vista y se nos daría una frecuencia de UNICOM para que cerráramos el plan de vuelo cuando estuviésemos en tierra.
+Pensé que debíamos estar muy cerca del aeropuerto, pero había perdido totalmente mi "Situational Awareness", vi un aeropuerto a unas 8-10 NM. No comprobé con las ayudas de navegación si era ATW, el copiloto tampoco lo hizo, notifiqué campo a la vista y nos metimos. Durante el rodaje me di cuenta que no estábamos en ATW, sino en OSH.
 La incapacidad de reconocer que la fatiga estaba afectando a mis actuaciones fue el factor determinante de este incidente. En cualquier caso, si se sabe que se está cansado debemos actuar con mucha más precaución y no dejar que la premura de las operaciones nos haga cometer errores. Debemos verificar todas nuestras conclusiones con los medios técnicos a nuestro alcance, así como utilizar la redundancia en las tomas de decisiones.
-SUBPARTE R – TRANSPORTE DE MERCANCÍAS PELIGROSAS POR VÍA AÉREA
+SUBPARTE R - TRANSPORTE DE MERCANCÍAS PELIGROSAS POR VÍA AÉREA
 CA OPS 1.1155. APROBACIÓN PARA EL TRANSPORTE DE MERCANCÍAS PELIGROSAS.
 (Ver RAC-OPS 1.1155)
 Esta CA es material explicativo e interpretativo que provee información adicional sobre transporte de mercancías peligrosas.
 (1) La aprobación permanente para el transporte de mercancías peligrosas debe reflejarse en el Certificado de Operador Aéreo (COA). En el resto de las circunstancias la aprobación puede emitirse de manera separada.
 (2) Antes de la emisión de una aprobación para el transporte de mercancías peligrosas, el operador debe acreditar ante la DGAC que se ha impartido el entrenamiento adecuado, que toda la documentación relacionada ( p.ej. manipulación en tierra, atención al avión en tierra, entrenamiento) contiene información e instrucciones sobre mercancías peligrosas, y que se han implantado procedimientos para asegurar el manejo seguro delas mercancías peligrosas en todas las etapas de su transporte por vía aérea.
-(3) La exención o aprobación indicada en RAC-OPS 1.1165 (b) (1) o (2) son adicionales a lo establecido en la RAC-OPS 1.1155.
+(3) (Derogado este inciso por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 CA OPS 1.1160 (b) AYUDA MÉDICA A UN PACIENTE.
 (Ver RAC-OPS 1.1160(a))
 Esta CA es material explicativo e interpretativo (MEI) que provee información adicional sobre transporte de mercancías peligrosas.
@@ -10740,7 +10993,7 @@ CA OPS 1.1160 (c) (2). AYUDAS VETERINARIAS PARA LA EUTANASIA DE UN ANIMAL.
 (Ver RAC-OPS 1.1160)
 Esta CA es material explicativo e interpretativo que provee información adicional sobre ayudas veterinarias.
 Las mercancías peligrosas referidas en la RAC-OPS 1.1160 (c) (2), pueden también ser transportadas en un vuelo realizado por el mismo avión, o en el vuelo anterior al que se transporta el animal y/o un vuelo realizado por el mismo avión después de que el animal haya sido transportado, cuando no sea posible cargar o descargar la mercancía peligrosa en el vuelo en el que se transporta al animal.
-CA OPS 1.1160 (d) (1) ALCANCE –MERCANCÍAS PELIGROSAS LLEVADAS POR PASAJEROS O LA TRIPULACIÓN.
+CA OPS 1.1160 (d) (1) ALCANCE -MERCANCÍAS PELIGROSAS LLEVADAS POR PASAJEROS O LA TRIPULACIÓN.
 (Ver RAC-OPS 1.1160)
 Esta CA es material explicativo e interpretativo que provee información adicional sobre mercancías peligrosas.
 1 Las Instrucciones Técnicas excluyen algunas mercancías peligrosas de los requisitos que normalmente les son aplicables cuando son llevadas por pasajeros o la tripulación, sujetas a ciertas condiciones.
@@ -10749,7 +11002,7 @@ Esta CA es material explicativo e interpretativo que provee información adicion
 a Bebidas alcohólicas conteniendo más del 24% sin exceder el 70% de graduación alcohólica en volumen, cuando su envase sea menor de 5 litros, y el total por persona no exceda de 5 litros.
 b Artículos medicinales no radiactivos o de aseo (incluyendo aerosoles, lacas, perfumes, medicinas que contengan alcohol); y exclusivamente en equipaje facturado, aerosoles que no sean inflamables, no tóxicos y sin riesgos secundarios, cuando se empleen con fines deportivos o domésticos (las válvulas de alivio en los aerosoles deben estar protegidas por una tapa u otro medio aceptable para prevenir un derrame involuntario). La cantidad neta de cada artículo individual no debe exceder de 0,5 litros o 0,5 kilos, y la cantidad total neta de todos los artículos no debe ser superior a 2 litros o 2 kilos.
 c Fósforos de seguridad o un encendedor para uso personal cuando se lleva consigo.
-No se permite llevar fósforos del tipo “enciende en cualquier sitio”, encendedores que contengan fluido líquido no absorbido (distinto al gas licuado), gas o recambio para encendedores.
+No se permite llevar fósforos del tipo "enciende en cualquier sitio", encendedores que contengan fluido líquido no absorbido (distinto al gas licuado), gas o recambio para encendedores.
 d un rizador de pelo alimentado por hidrocarburos, siempre que esté ajustada firmemente la cubierta de seguridad sobre el calentador. No se permiten los recambios de
 gas.
 e pequeños cilindros de gas de dióxido de carbono llevados para funcionamiento de prótesis mecánicas y cilindros de repuesto de igual tamaño si se requiere para garantizar el suministro adecuado durante la totalidad del viaje.
@@ -10760,7 +11013,7 @@ i Cuando se permita por el operador, pequeños cilindros de oxígeno gaseoso o d
 j Cuando se permita por el operador, no más de dos pequeños cilindros de dióxido de carbono por chaleco salvavidas autoinflables y no más de dos cilindros de repuesto.
 k Cuando se permita por el operador, sillas de ruedas u otras ayudas a la movilidad energizadas con baterías que no produzcan derrames, siempre que el equipo sea transportado como equipaje facturado. La batería debe estar unida de forma segura al equipo, estar desconectada y con los terminales aislados para impedir cortocircuitos accidentales;
 l Cuando se permita por el operador, sillas de ruedas y otras ayudas a la movilidad energizadas con baterías que puedan producir derrames, siempre que el equipo sea transportado como equipaje facturado. Cuando el equipo se pueda cargar, almacenar y descargar siempre en posición vertical, la batería debe estar unida de forma segura al equipo, estar desconectada y con los terminales aislados para impedir cortocircuitos accidentales.
-Cuando el equipo no pueda ser mantenido en posición vertical, la batería debe desmontarse y transportarse en un embalaje fuerte y rígido, que debe ser impermeable y que soporte la acción del líquido de la batería. La batería en su embalaje debe protegerse contra cortocircuitos accidentales, mantenerse en posición vertical y envuelta en material absorbente, en la suficiente cantidad para absorber la totalidad del líquido. El embalaje conteniendo la batería debe etiquetarse como “Batería húmeda con silla de ruedas”, o “Batería húmeda con dispositivo de ayuda al movimiento”, llevar una etiqueta de “Corrosivo” y marcada para indicar su correcta orientación. El embalaje debe estar protegido contra vuelcos mediante su fijación en el compartimiento de carga del avión. El piloto al mando debe ser informado de la ubicación de la silla de ruedas o dispositivo de ayuda a la movilidad con batería instalada, o de la ubicación del embalaje de la batería.
+Cuando el equipo no pueda ser mantenido en posición vertical, la batería debe desmontarse y transportarse en un embalaje fuerte y rígido, que debe ser impermeable y que soporte la acción del líquido de la batería. La batería en su embalaje debe protegerse contra cortocircuitos accidentales, mantenerse en posición vertical y envuelta en material absorbente, en la suficiente cantidad para absorber la totalidad del líquido. El embalaje conteniendo la batería debe etiquetarse como "Batería húmeda con silla de ruedas", o "Batería húmeda con dispositivo de ayuda al movimiento", llevar una etiqueta de "Corrosivo" y marcada para indicar su correcta orientación. El embalaje debe estar protegido contra vuelcos mediante su fijación en el compartimiento de carga del avión. El piloto al mando debe ser informado de la ubicación de la silla de ruedas o dispositivo de ayuda a la movilidad con batería instalada, o de la ubicación del embalaje de la batería.
 m Cuando se permita por el operador, cartuchos para armas deportivas, (UN0012 y UN0014 solamente), siempre que estén incluidos en la División 1.4S (ver nota), sean para uso personal, estén empaquetadas en una caja, y en cantidades que no excedan de 5 kilos de peso bruto, y sean transportados como equipaje facturado. Cartuchos con explosivos o proyectiles incendiarios no están permitidos. Lo permitido para más de una persona no debe combinarse en un solo paquete.
 Nota: La División 1.4S es una clasificación asignada a un explosivo. Se refiere a cartuchos empaquetados o diseñados de modo que cualquier efecto peligroso del funcionamiento accidental de uno o más cartuchos está confinado dentro del propio paquete, a menos que, se haya degradado por la acción del fuego, cuando los efectos peligrosos estén limitados de manera que no impidan la acción de lucha contra incendios u otras respuestas de emergencia en la proximidad del embalaje. Generalmente, los cartuchos para uso deportivo estarán en la División 1.4S.
 n Cuando lo permita el operador, un barómetro de mercurio (termómetro de mercurio) en el equipaje de mano (cabina de pasajeros) cuando sea transportado por un representante de un servicio meteorológico publico u otra agencia similar. El barómetro, o termómetro, debe ir embalado en un paquete fuerte que en su interior tenga un envoltorio sellado, o bolsa de material impermeable y resistente a las perforaciones a prueba de mercurio, y cerrado de manera que impida de la fuga de mercurio independientemente de su posición. Se debe informar al piloto al mando si se transporta un barómetro o termómetro.
@@ -10791,7 +11044,7 @@ CA OPS 1.1215 (c) (1) INFORMACIÓN AL PILOTO AL MANDO.
 Si el volumen de información proporcionado al piloto al mando es tal que no sería práctico transmitirla en caso de una emergencia en vuelo, un resumen de la información debe entregarse al piloto al mando por el operador, la cual tendrá al menos la cantidades y clase o división de las mercancías peligrosas en cada compartimiento de carga.
 CA OPS 1.1215 (e). INFORMACIÓN EN EL CASO DE UNA EMERGENCIA EN VUELO. (Ver RAC-OPS 1.1215 (e))
 Esta CA es un método aceptable de cumplimiento sobre mercancías peligrosas.
-(1) Para asistir a los servicios en tierra en la preparación del aterrizaje de un aeroplano en una situación de emergencia, es esencial que la información adecuada y exacta sobre materiales peligrosos que se transportan a bordo se dé a la unidad adecuada de servicios de tránsito aéreo. Siempre que sea posible esta información debe incluir el “proper shipping name” y el número de identificación UN/ID, la clase/división y para la Clase 1 el grupo de compatibilidad, cualquier riesgo subsidiario identificado, la cantidad y la ubicación a bordo de la aeronave.
+(1) Para asistir a los servicios en tierra en la preparación del aterrizaje de un aeroplano en una situación de emergencia, es esencial que la información adecuada y exacta sobre materiales peligrosos que se transportan a bordo se dé a la unidad adecuada de servicios de tránsito aéreo. Siempre que sea posible esta información debe incluir el "proper shipping name" y el número de identificación UN/ID, la clase/división y para la Clase 1 el grupo de compatibilidad, cualquier riesgo subsidiario identificado, la cantidad y la ubicación a bordo de la aeronave.
 (2) Cuando no es posible incluir toda la información, aquellas partes que sean más importantes en las circunstancias dadas deben de darse, como el número de identificación UN/ID o las clases/divisiones y cantidades o un resumen de las cantidades y clase/división en cada compartimiento de carga. Como una alternativa, un número telefónico puede darse en donde una copia de la información al piloto al mando puede obtenerse durante el vuelo.
 (3) Se acepta que, debido a la naturaleza de la emergencia en vuelo, la situación puede no permitir al piloto al mando informar a los servicios de tránsito aéreo de los materiales peligrosos transportados como carga a bordo del aeroplano.
 CA OPS 1.1220 (MAC). ENTRENAMIENTO.
@@ -10842,11 +11095,11 @@ CA OPS 1.1225. REPORTE DE ACCIDENTES E INCIDENTES CON MERCANCÍAS PELIGROSAS.
 (Ver RAC-OPS 1.1225)
 Esta CA es un método aceptable de cumplimiento sobre informes de accidentes e incidentes con mercancías peligrosas.
 La utilización de un formulario estándar para el reporte de incidentes y accidentes con mercancías peligrosas ayudará a las Autoridades y les permite establecer rápidamente los detalles esenciales de un evento. El formato se ha desarrollado con esa intención y su llenado completo y correcto significa que todos los detalles requeridos por el Apéndice 1 a la RACOPS 1.1225 se han cubierto. Este puede ser enviado a la Autoridad pertinente por cualquier medio adecuado, incluyendo fax, correo, correo electrónico.
-SUBPARTE S – SEGURIDAD
+SUBPARTE S - SEGURIDAD
 CA OPS 1.1240. PROGRAMAS DE ENTRENAMIENTO.
 (Ver RAC-OPS 1.1240)
 Esta CA es material explicativo e interpretativo que provee información adicional sobre entrenamientos de seguridad.
-El conocimiento y competencia individual del tripulante debe basarse en los elementos pertinentes descritos en el doc. 9811 de OACI, “Manual de la implementación de las disposiciones de seguridad del Anexo 6” y el documento ECAC DOC. 30, parte de “Entrenamiento para Tripulantes de cabina y de vuelo”.
+El conocimiento y competencia individual del tripulante debe basarse en los elementos pertinentes descritos en el doc. 9811 de OACI, "Manual de la implementación de las disposiciones de seguridad del Anexo 6" y el documento ECAC DOC. 30, parte de "Entrenamiento para Tripulantes de cabina y de vuelo".
 Esta CA es un método aceptable de cumplimiento sobre la puerta de acceso a la cabina de pilotos.
 De acuerdo a lo establecido en la RAC-OPS 1.1255 (b), a partir del 1 de noviembre de 2003, todos los aviones que transporten pasajeros, con una masa máxima certificada de despegue mayor de 45.000 Kg, o con una configuración máxima aprobada de asientos de más de 60 pasajeros, y que tengan instalada una puerta con dispositivo de bloqueo entre el compartimiento de pilotos y el de pasajeros, deben cumplir los siguientes requisitos:
 (a) Protección de la cabina de vuelo. Si por regulaciones de operación se requiere la instalación de una puerta de acceso a la cabina de vuelo, la instalación de la puerta debe estar diseñada para:
@@ -10857,7 +11110,7 @@ ii. Demostración con Proyectil n.2.- Proyectil Magnun 44 de punta hueca (JHP) c
 (b) Incapacitación de la tripulación de vuelo.
 Cada operador debe establecer procedimientos para permitir a los tripulantes de cabina entrar en la cabina de vuelo en el caso de incapacitación de un miembro de la tripulación de vuelo.
 Cualquier señal asociada o sistema de confirmación debe poder operarse por cada miembro de la tripulación de vuelo desde su posición de trabajo como miembro de la tripulación de vuelo.
-ANEXO 1 – SECCIÓN 2
+ANEXO 1 - SECCIÓN 2
 CA a la RAC-OPS 1.003. DÍA/NOCHE.
 (Ver Anexo 1 a la RAC-OPS 1)
 El crepúsculo termina en la tarde cuando el centro del disco solar está 6 grados por debajo del horizonte y comienza en la mañana cuando el centro del disco solar está 6 grados por encima del horizonte.
@@ -10890,7 +11143,8 @@ EN ESPACIO AÉREO RVSM
 1. INTRODUCCIÓN
 El establecimiento de las operaciones con Separación Vertical Mínima Reducida (RVSM) en diferentes espacios aéreos exigirá a aquellos aviones que no sean de Estado el cumplimiento de la normativa y requisitos que a tal efecto han establecido la Organización de Aviación Civil Internacional (OACI) y las Autoridades Aeronáuticas de los Estados afectados.
 La implantación de una separación vertical mínima de 300 m (1000 pies) entre los niveles de vuelo FL290 a FL410 permitirá establecer niveles de vuelo adicionales, incrementando de manera significativa la capacidad del espacio aéreo afectado, optimizando la asignación de perfiles de vuelo con el consiguiente ahorro en combustible y tiempo de vuelo, y proporcionando una mayor flexibilidad a las unidades de control de tránsito aéreo responsables de proporcionar los servicios ATC en las regiones designadas RVSM.
-Para la elaboración inicial de este Anexo 2 al RAC-OPS 1, se utilizó el DOC. 9574 de la OACI, en el DOC. CA: 6.425 del proyecto de regional LAR, en la TGL nº 6 rev.1 y sus enmiendas, de las Autoridades Conjuntas de Aviación (JAA), y en el Interim Guidance Material 91-RVSM emitido por la FAA. Las enmiendas posteriores a la primera edición, se actualizan en acuerdo a los cambios de dichos documentos, nuevas guías de la FAA, EASA u estándares de otras autoridades en acuerdo a los cambios en la aviación.
+Para la elaboración inicial de este Anexo 2 al RAC-OPS 1, se utilizó el DOC. 9574 de la OACI "Manual sobre una separación vertical mínima de 300 m (1 000 ft) entre FL 290 y FL 410 inclusive".
+(Así reformado el párrafo anterior anterior por el artículo 1° del decreto ejecutivo N° 43357 del 17 de noviembre del 2021)
 2. OBJETIVO
 Este Anexo 2 establece los requisitos y procedimientos para obtener la aprobación operacional RVSM que permita operar en el espacio aéreo designado RVSM , además, de proporcionar orientación para la validez continuada de esta aprobación y de los procedimientos operacionales a utilizar en este espacio RVSM.
 3. APLICABILIDAD
@@ -10901,7 +11155,7 @@ No necesitaran aprobación operacional RVSM:
 - Los aviones que realicen vuelos de carácter humanitario, ni
 - Los aviones que realicen vuelos ferry ( por mantenimiento oentrega)
 Serán acomodados dentro del espacio aéreo RVSMde acuerdo a los procedimientos regionales.
-En estos vuelos deberá incluirse en el plan de vuelo ATS la frase “vuelo no aprobado RVSM”, añadiendo el motivo (Estado, humanitario o ferry)
+En estos vuelos deberá incluirse en el plan de vuelo ATS la frase "vuelo no aprobado RVSM", añadiendo el motivo (Estado, humanitario o ferry)
 El Estado del operador o el Estado de matrícula deben formular criterios y directrices respecto a las aeronaves y los operadores que efectúan operaciones en espacio aéreo RVSM sin la aprobación correspondiente, lo que podría comprometer la seguridad de otros usuarios delespacio aéreo.
 4. DOCUMENTACIÓN DE REFERENCIA
 ORGANIZACIÓN | CÓDIGO | TÍTULO
@@ -11044,7 +11298,7 @@ Lista de Equipo Mínimo. Los operadores presentarán a la DGAC una Lista de Equi
 Mantenimiento. El operador someterá a aprobación una revisión de su programa de mantenimiento de los aviones afectados, según el contenido de la sección 9 de este Anexo.
 Plan de participación en un programa de monitorización de altitud. El operador deberá proporcionar un Plan para participar en un programa de monitorización de altitud. Para ello el operador deberá contactar con la Agencia Regional de Monitorización de Altitud (RMA)correspondiente al espacio aéreo RVSM que pretenda volar.
 6.3.1.2 Aviones privados u operadores no dedicados a transporte aéreo comercial
-Los operadores de aviones no comerciales o de aviones privados que pretendan operar en espacio aéreo RVSM deberán hacer su solicitud de acuerdo con el Formulario RVSM-4, y si acreditan el cumplimiento con los requisitos, la DGAC emitirá la aprobación operacional RVSM en forma de una CARTA DE APROBACIÓN que también, aparece el FormularioRVSM-4, en la parte “para uso exclusivo de la DGAC”.
+Los operadores de aviones no comerciales o de aviones privados que pretendan operar en espacio aéreo RVSM deberán hacer su solicitud de acuerdo con el Formulario RVSM-4, y si acreditan el cumplimiento con los requisitos, la DGAC emitirá la aprobación operacional RVSM en forma de una CARTA DE APROBACIÓN que también, aparece el FormularioRVSM-4, en la parte "para uso exclusivo de la DGAC".
 6.3.2 Vuelo de verificación
 La solicitud de Aprobación Operacional RVSM y documentación asociada pueden bastar para verificar las performances del avión y procedimientos del operador. Sin embargo, el último paso del proceso de aprobación puede exigir la realización de un vuelo de verificación. En caso de considerarse oportuno, la DGAC realizará un vuelo de verificación en ruta programado a fin comprobar que se aplican todos los procedimientos pertinentes.
 6.3.3 Orden de eventos en la obtención de la aprobación operacional RVSM
@@ -11096,10 +11350,10 @@ Durante la planificación del vuelo, la tripulación y el despachador prestarán
 El plan de vuelo presentado para operar a través de los límites laterales del espacio aéreo RVSM incluirá:
 (a) El nivel de vuelo específico solicitado para la parte de la ruta que se inicia inmediatamente después del punto de entrada en los límites laterales del espacio aéreo RVSM, en acuerdo con la Tabla de Asignación de Niveles de Vuelo (FLAS), si está publicada;
 (b) El nivel de vuelo específico solicitado para la parte de la ruta que se inicia inmediatamente después del punto de salida en los límites laterales del espacio aéreo, de acuerdo con el FLAS, si está publicado;
-(c) La letra “W” en el formulario del plan de vuelo, indicando que se dispone de la aprobación operacional RVSM para el avión afectado;
-(d) Para los planes de vuelo repetitivos (RPL), con altitudes de vuelo correspondientes a FL 290 o superior, incluirán en el formulario del plan de vuelo: las letras “EQPT/W” para vuelos con aprobación operacional RVSM, y “EQPT” para vuelos sin aprobación operacional RVSM, independientemente del nivel de vuelo asociado;
+(c) La letra "W" en el formulario del plan de vuelo, indicando que se dispone de la aprobación operacional RVSM para el avión afectado;
+(d) Para los planes de vuelo repetitivos (RPL), con altitudes de vuelo correspondientes a FL 290 o superior, incluirán en el formulario del plan de vuelo: las letras "EQPT/W" para vuelos con aprobación operacional RVSM, y "EQPT" para vuelos sin aprobación operacional RVSM, independientemente del nivel de vuelo asociado;
 (e) El operador deberá remitir un mensaje de modificación del plan de vuelo (CHG) si como consecuencia de un cambio de avión, se ve afectada la aprobación RVSM; y
-(f) Los operadores de aviones no aprobados RVSM, con nivel de vuelo solicitado de FL 290 o superior, incluirán en el formulario de plan de vuelo la frase “STS/NON-RVSM”
+(f) Los operadores de aviones no aprobados RVSM, con nivel de vuelo solicitado de FL 290 o superior, incluirán en el formulario de plan de vuelo la frase "STS/NON-RVSM"
 8 PROCEDIMIENTOS OPERACIONALES
 8.1 General
 Las tripulaciones de vuelo y despachadores deberán estar familiarizadas con los criterios para la operación en espacio aéreo RVSM mediante el entrenamiento adecuado. El contenido de esta sección se incorporará a los programas de entrenamiento del operador, así como, al manual de operaciones. Se reconoce que algunos de los elementos descritos en esta sección pueden encontrarse ya recogidos en los procedimientos de operación existentes. Asimismo, la incorporación de nuevas tecnologías puede eliminar la necesidad de algunas acciones a realizar por las tripulaciones.
@@ -11134,7 +11388,7 @@ Nota: Siempre que sea posible la nivelación se llevará a cabo utilizando la fu
 (g) Si el ATC notifica al piloto una desviación respecto a la altitud asignada que sobrepasa los +90m (300 pies), el piloto tomará las medidas oportunas para volver al nivel de vuelo autorizado tan rápidamente como sea posible.
 8.5. Procedimientos de contingencia después de entrar en el espacio aéreo RVSM
 Ante cualquier situación imprevista durante la operación RVSM, la tripulación realizará las siguientes acciones:
-(a) Notificación al ATC de la contingencia (fallas de equipos, condiciones meteorológicas, u otras) que afecta la capacidad para mantener el nivel de vuelo autorizado, y coordinar plan de acción adecuado para el espacio aéreo en el que se vuela. Para ello el operador garantizará que las tripulaciones reciben entrenamiento en los procedimientos de contingencia específicos de cada espacio aéreo designado RVSM sobre el que pretenda operar, que se encuentran establecidos en el Doc. 7030 de la OACI – Procedimientos suplementarios regionales.
+(a) Notificación al ATC de la contingencia (fallas de equipos, condiciones meteorológicas, u otras) que afecta la capacidad para mantener el nivel de vuelo autorizado, y coordinar plan de acción adecuado para el espacio aéreo en el que se vuela. Para ello el operador garantizará que las tripulaciones reciben entrenamiento en los procedimientos de contingencia específicos de cada espacio aéreo designado RVSM sobre el que pretenda operar, que se encuentran establecidos en el Doc. 7030 de la OACI - Procedimientos suplementarios regionales.
 Algunas fallas de equipos que deben notificarse al ATC:
 (1) Falla de todos los sistemas automáticos de control de altitud a bordo del avión;
 (2) Pérdida de redundancia de los sistemas de altimetría;
@@ -11158,7 +11412,7 @@ Se registrará en su caso la siguiente información:
 El operador revisará sus procedimientos de mantenimiento y tratará todos los aspectos de aeronavegabilidad continuada que puedan ser pertinentes, verificando la integridad de las características de diseño necesarias para asegurar que los sistemas de altimetría satisfacen los requisitos de aeronavegabilidad RVSM mediante pruebas e inspecciones programadas incluidas en el programa de mantenimiento aprobado por la DGAC al operador-propietario.
 El operador-propietario, dispondrá de las instalaciones adecuadas de mantenimiento, o establecerá los acuerdos contratos de mantenimiento, para permitir el cumplimiento con los requisitos de mantenimiento RVSM.
 9.2. Programa de Mantenimiento
-El Operador – propietario que soliciten una aprobación operacional RVSM debe presentar, en su programa de mantenimiento, un programa de inspecciones y de acciones de mantenimiento RVSM, incluyendo cualquier requisito de mantenimiento especificado en el paquete de datos RVSM (Véase Apéndice 1).
+El Operador - propietario que soliciten una aprobación operacional RVSM debe presentar, en su programa de mantenimiento, un programa de inspecciones y de acciones de mantenimiento RVSM, incluyendo cualquier requisito de mantenimiento especificado en el paquete de datos RVSM (Véase Apéndice 1).
 Los siguientes documentos deben ser revisados, según aplique, a los efectos de obtener la aprobación correspondiente al mantenimiento RVSM:
 (a) Manual de Mantenimiento (MM)
 (b) Manual de Reparaciones Estructurales (SRM)
@@ -11220,7 +11474,7 @@ La combinación de los datos de performance y analíticos, boletín/es de servic
 Si la Autoridad del Estado de diseño tiene suscrito un Acuerdo Bilateral de Aeronavegabilidad con la DGAC, o se trata de una aprobación emitida por FAA o por un Estado EASA, la DGAC aceptará directamente la aprobación de aeronavegabilidad RVSM emitida por esa Autoridad.
 2.1.2. Etapa 2. Justificación de Aeronavegabilidad de un avión Individual
 Un operador demostrará a la DGAC el cumplimiento los requisitos de aeronavegabilidad dentro del procedimiento de obtención de la Aprobación Operacional RVSM de aviones individuales descrito en el apartado 3 de este Apéndice. La demostración se justificará en pruebas que confirmen que el avión ha sido inspeccionado, modificado en acuerdo con los Boletines de Servicio aplicables, y que se corresponde con un tipo y configuración que satisface los criterios de aeronavegabilidad RVSM. El operador confirmará que dispone de las instrucciones de aeronavegabilidad continuada correspondientes y que ha incorporado la enmienda o suplemento aprobado en el Manual de Vuelo. El Manual de Vuelo incluirá una declaración de cumplimiento con este Anexo 2, TGL nº 6 de la EASA(antes JAA) o material FAA equivalente, con referencia explícita al Boletín de Servicio o configuración del avión.
-Adicionalmente, se incluirá la siguiente cita: “El cumplimiento de los requisitos de aeronavegabilidad no autoriza el vuelo en espacio aéreo designado RVSM, requiriéndose una Aprobación Operacional RVSM en cumplimiento de los Acuerdos Regionales de Navegación de la OACI”.
+Adicionalmente, se incluirá la siguiente cita: "El cumplimiento de los requisitos de aeronavegabilidad no autoriza el vuelo en espacio aéreo designado RVSM, requiriéndose una Aprobación Operacional RVSM en cumplimiento de los Acuerdos Regionales de Navegación de la OACI".
 2.2. Paquete de Datos para la Aprobación de Aeronavegabilidad
 El paquete de datos contendrá, como mínimo, los siguientes elementos:
 (a) Declaración de pertenencia (o no) del avión a un grupo y configuración de fabricación aplicable a los que corresponde el paquete de datos.
@@ -11290,7 +11544,7 @@ El sistema de desviación de altitud señalará una alerta cuando la altitud pre
 Deberá instalarse como mínimo, un único sistema de control automático de altitud con capacidad para mantener la altitud y que cumpla con los criterios establecidos.
 Cuando el sistema proporcione la función de selección/adquisición de altitud, el panel de control deberá configurarse de tal modo que exista un error máximo de +8 m (25 pies) entre el valor seleccionado y presentado a la tripulación de vuelo, y la salida correspondiente al sistema de control.
 4.5 Limitaciones del Sistema altimétrico
-El Manual de Vuelo incluirá una declaración de cumplimiento con este Anexo, o con el material equivalente FAA/EASA, con referencia explícita al Boletín de Servicio o configuración del avión. Adicionalmente, se incluirá la siguiente cita: “El cumplimiento de los requisitos de aeronavegabilidad no autoriza el vuelo en espacio aéreo designado RVSM, requiriéndose una Aprobación Operacional RVSM por parte del Estado del operador en cumplimiento de los Acuerdos Regionales de Navegación de la OACI”.
+El Manual de Vuelo incluirá una declaración de cumplimiento con este Anexo, o con el material equivalente FAA/EASA, con referencia explícita al Boletín de Servicio o configuración del avión. Adicionalmente, se incluirá la siguiente cita: "El cumplimiento de los requisitos de aeronavegabilidad no autoriza el vuelo en espacio aéreo designado RVSM, requiriéndose una Aprobación Operacional RVSM por parte del Estado del operador en cumplimiento de los Acuerdos Regionales de Navegación de la OACI".
 Se deberá identificar en el Manual de Vuelo, y en las partes aplicables del Manual de Operaciones del operador, cualquier limitación asociada al sistema altimétrico instalado en el avión, o cualquier no cumplimento del mismo con lo establecido en este Anexo.
 APÉNDICE 2
 FRASEOLOGÍA RVSM
@@ -11324,7 +11578,7 @@ PARTE A DESPACHADORES
 (f) Conocimiento y comprensión de la fraseología ATC en operaciones RVSM.
 (g) Conocimiento de las restricciones de operación de aviones del operador en relación con la aprobación de aeronavegabilidad RVSM.
 (h) Verificación de que el avión dispone de aprobación operacional RVSM
-(i) Conocimiento sobre el funcionamiento y requisitos en espacio aéreo MNPS y en espacio aéreo oceánico (la anotación en el bloque 10 del plan de vuelo, de la letra “W” indica que el avión dispone de aprobación operacional RVSM).
+(i) Conocimiento sobre el funcionamiento y requisitos en espacio aéreo MNPS y en espacio aéreo oceánico (la anotación en el bloque 10 del plan de vuelo, de la letra "W" indica que el avión dispone de aprobación operacional RVSM).
 (j) Requisitos de equipo mínimo relacionado con sistemas para mantener de altitud;
 (k) Planificación en espacio aéreo RVSM
 (1) Cumplimiento del avión con los requisitos RVSM.
@@ -11362,7 +11616,7 @@ El operador garantizará que las tripulaciones reciben entrenamiento en los proc
 Condiciones que pueden afectar la operación en el espacio aéreo RVSM, que comprenda:
 (a) Verificación de la aprobación del avión y del operador para realizar operaciones RVSM;
 (b) Registro del plan de vuelo para ser archivado en la estación de servicios de tránsito aéreo (ATS);
-(c) Operación y requisitos mínimos de navegación aérea en el MNPS (la anotación en el casilla Nº 10 del plan de vuelo con la letra “W” confirma la aprobación para operaciones RVSM
+(c) Operación y requisitos mínimos de navegación aérea en el MNPS (la anotación en el casilla Nº 10 del plan de vuelo con la letra "W" confirma la aprobación para operaciones RVSM
 (d) Información y pronósticos de las condiciones meteorológicas en la ruta de vuelo;
 (e) Requisitos de equipo mínimo relacionado con los sistemas para mantener la altitud;
 (f) De ser requerido para el grupo de aviones específicos, las restricciones de cualquier avión relacionadas con la aprobación de aeronavegabilidad RVSM.
@@ -11514,7 +11768,7 @@ Los pilotos deberían usar cualquier medio disponible (ej. TCAS, comunicaciones,
 5. Debido la frecuencia de tráfico en dirección contraria en la FIR NY Oceánica, es recomendable que la aeronave vuele normalmente en offset de 1 o 2NM a la derecha.
 6. El offset puede ser aplicado fuera de límites al momento en que se termina el contacto con el radar. La aeronave debe retornar a la línea central cuando el contacto con el radar es reestablecido.
 7. No se necesita una autorización ATC para este procedimiento ni es necesario que el ATC sea recomendado. (ATP).
-NOTA: Favor referirse al NOTAM original en inglés referente a “los procedimientos operacionales RVSM dentro del sistema de rutas del atlántico occidental (WATRS)”
+NOTA: Favor referirse al NOTAM original en inglés referente a "los procedimientos operacionales RVSM dentro del sistema de rutas del atlántico occidental (WATRS)"
 APÉNDICE 5 - PROCEDIMIENTOS SUPLEMENTARIOS REGIONALES EN EL
 ESPACIO AÉREO DEL CARIBE, AMÉRICA CENTRAL Y SURAMÉRICA
 (CAR/SAM)
@@ -11564,8 +11818,8 @@ Nota.- En el caso de sistemas de derrotas múltiples donde la separación entre 
 (ii) Si se requiere que el avión se desvíe de la derrota para evitar condiciones meteorológicas adversas y no puede obtenerse una autorización previa, se obtendrá una autorización ATC tan pronto como sea posible. Hasta que reciba la autorización ATC, el avión seguirá los procedimientos estipulados en (1) (e) (iv).
 (iii) El piloto notificará al ATC cuando ya no requiere una ulterior desviación por condiciones meteorológicas o cuando se haya completado la desviación y el avión haya vuelto al eje de su ruta autorizada.
 (2) Obtención de prioridad del ATC cuando se requiere efectuar una desviación por condiciones meteorológicas:
-(i) Cuando el piloto inicia las comunicaciones con el ATC, puede obtenerse una respuesta rápida indicando “DESVIACIÓN REQUERIDA POR CONDICIONES METEOROLÓGICAS” para indicar que se desea prioridad en la frecuencia y para la respuesta del ATC.
-(ii) El piloto conserva aún la opción de iniciar las comunicaciones empleando la llamada de urgencia “PAN PAN” (preferiblemente repetida tres veces) para dar la alerta a todas las partes en escucha acerca de una condición de tramitación especial que recibirá la prioridad del ATC para la expedición de una autorización o asistencia.
+(i) Cuando el piloto inicia las comunicaciones con el ATC, puede obtenerse una respuesta rápida indicando "DESVIACIÓN REQUERIDA POR CONDICIONES METEOROLÓGICAS" para indicar que se desea prioridad en la frecuencia y para la respuesta del ATC.
+(ii) El piloto conserva aún la opción de iniciar las comunicaciones empleando la llamada de urgencia "PAN PAN" (preferiblemente repetida tres veces) para dar la alerta a todas las partes en escucha acerca de una condición de tramitación especial que recibirá la prioridad del ATC para la expedición de una autorización o asistencia.
 (3) Medidas por adoptar cuando se establecen comunicaciones controlador-piloto
 (i) El piloto notifica al ATC y pide autorización para desviarse de la derrota, indicando, de ser posible, la amplitud de la desviación prevista.
 (ii) El ATC adopta una de las siguientes medidas:
@@ -11576,7 +11830,7 @@ Nota.- En el caso de sistemas de derrotas múltiples donde la separación entre 
 2. proporcionará información al piloto sobre el tránsito con el que pueda entrarse en conflicto; y
 3. pedirá al piloto que comunique sus intenciones.
 EJEMPLO DE FRASEOLOGÍA
-“IMPOSIBLE (desviación solicitada), EL TRÁNSITO ES (distintivo de llamada, posición, altitud, dirección), NOTIFIQUE INTENCIONES”
+"IMPOSIBLE (desviación solicitada), EL TRÁNSITO ES (distintivo de llamada, posición, altitud, dirección), NOTIFIQUE INTENCIONES"
 (iii) El piloto adoptará las siguientes medidas:
 (A) Notificará al ATC sus intenciones; y
 (B) deberá cumplir la autorización del ATC expedida; o
@@ -11613,12 +11867,12 @@ Dentro de dichas zonas puede aplicarse una separación mínima de 300 m (1 000 f
 (ii) La suma del valor absoluto del ASE medio y de tres desviaciones características del ASE será inferior a 75 m (245 ft);
 (3) Para los aviones que no formen parte de un grupo y cuyas características de célula y ajuste de sistema de altimetría sean particulares y, por lo mismo, no puedan clasificarse como pertenecientes a un grupo de aviones, el ASE será inferior a 61 m (200 ft) en la envolvente de vuelo RVSM (FL 290 a FL 410 inclusive); y
 (4) Se aplicarán los criterios siguientes para la evaluación operacional de la seguridad del sistema de espacio aéreo: el error vertical total (TVE), que es la diferencia entre la altura geométrica del avión y la del nivel de vuelo asignado, debe ser tal que:
-(i) La probabilidad de que un TVE igual o superior a 90 m (300 ft) es igual o inferior a 2,0 x 10-3’;
+(i) La probabilidad de que un TVE igual o superior a 90 m (300 ft) es igual o inferior a 2,0 x 10-3';
 (ii) La probabilidad de que un TVE igual o superior a 150 m (500 ft) es igual o inferior a 3,5 x 10-6;
 (iii) La probabilidad de que un TVE igual o superior a 200 m (650 ft) es igual o inferior a 1,6 x 10-7;
 (iv) La probabilidad de que un TVE entre 290 m y 320 m (950 ft y 1 050 ft) inclusive es igual o inferior a 1,7 x 10-8; y
 Nota.- En el Texto de orientación sobre la implantación de una separación vertical mínima (VSM) de 300 m (1 000 ft) para aplicación en el corredor CAR/SAM figura orientación relativa al logro inicial y mantenimiento de la performance de mantenimiento de altitud que se indican en (2) (d) anterior.
-(e) Nivel de seguridad deseado (TLS). La aplicación de la RVSM en el espacio aéreo designado en (2) (a) satisfará un TLS de 5 x 10 –9 accidentes mortales por hora de vuelo de aeronave debido a todas las causas de riesgo en la dimensión vertical.
+(e) Nivel de seguridad deseado (TLS). La aplicación de la RVSM en el espacio aéreo designado en (2) (a) satisfará un TLS de 5 x 10 -9 accidentes mortales por hora de vuelo de aeronave debido a todas las causas de riesgo en la dimensión vertical.
 (f) Situación de la aprobación y matrícula del avión. Se indicará la letraW en la casilla 10 del plan de vuelo (Equipo) si el avión y el operador han recibido aprobación operacional RVSM del Estado. Además, en la casilla 18 del plan de vuelo se indicará la matrícula del avión.
 (g) Operaciones de aviones no aprobados para la RVSM.-
 (1) Salvo en las regiones en que se hayan establecido zonas de transición, no se permitirá efectuar operaciones en el espacio aéreo RVSM CAR/SAM a las aviones que no satisfacen los requisitos en (2) (d).
@@ -11732,7 +11986,7 @@ A continuación, se proporciona una tabla de grupos de monitoreo. La tabla muest
 (g) Grupos de aviones no incluidos en la tabla
 Se debe contactar con la CARSAMMA para aclaraciones sobre cualquier grupo de aeronave no incluido en la tabla de requisitos mínimos de monitoreo, o para aclarar si existen otros requisitos. Un grupo de aeronave que no esté incluido en la tabla de requisitos mínimos de monitoreo probablemente se le exigirán los requisitos de monitoreo de la Categoría 2.
 (h) Información del cono remolcado
-Las estimaciones de errores del sistema altimétrico (ASE) obtenidos mediante el método del “cono remolcado” durante los vuelos de aprobación RVSM pueden ser utilizadas para cumplir con los requisitos de monitoreo. Sin embargo, deberá registrarse que el sistema RVSM del avión se encontraba en esa configuración para el vuelo de aprobación RVSM.
+Las estimaciones de errores del sistema altimétrico (ASE) obtenidos mediante el método del "cono remolcado" durante los vuelos de aprobación RVSM pueden ser utilizadas para cumplir con los requisitos de monitoreo. Sin embargo, deberá registrarse que el sistema RVSM del avión se encontraba en esa configuración para el vuelo de aprobación RVSM.
 Nota.- El método de cono remolcado es un tipo de calibración de comparación directa. Mediante el remolque de una sonda más allá del avión, se puede tomar una medida muy aproximada de la presión estática libre del flujo. Aunque en principio un cono remolcado puede ser utilizado a través de la envolvente de una aeronave, el mismo puede tener algunas zonas de inestabilidad dinámica.
 (i) Monitoreo de células con cumplimiento RVSM al momento de su presentación.-
 (1) Si un operador añade nuevas células con cumplimiento RVSM, de un tipo para el cual ya existe certificación operacional RVSM, y ha completado los requisitos de monitoreo para el tipo, de acuerdo con la tabla que se muestra a continuación, dichas células no requieren ser monitoreadas. Si un operador añade nuevas células para un grupo de aviones que no han recibido certificación operacional RVSM previamente, deberá completar el programa de monitoreo de acuerdo con la tabla de requisitos mínimos de monitoreo.
@@ -11747,16 +12001,13 @@ Las direcciones del sitio web de la CARSAMMA son:
 http://www.cgna.gov.br/carsam/Espanhol/index.htm
 http://www.cgna.gov.br/carsam/Ingles/index.htm
 [imagen]
-[imagen]
 [imagen] APÉNDICE 7 - FORMATO DE NOTIFICACIÓN DE INCIDENTES RVSM
-[imagen]
-[imagen]
 EXPLICACIÓN DEL FORMULARIO RVSM-1, DE NOTIFICACIÓN DE INCIDENTES RVSM
 1. El ATC/Piloto debería completar la mayor cantidad posible de casillas.
 2. Se pueden adjuntar datos adicionales.
 3. La notificación de cualquier desviación (vertical o lateral) deberá ser clasificada, cuando sea posible, de acuerdo a los siguientes tipos de desviaciones:
 3.1 Para Grandes Desviaciones de Altura (desviación vertical)
-a. Errores durante el proceso de comunicaciones / coordinaciones (“loop error”) del sistema ATC.
+a. Errores durante el proceso de comunicaciones / coordinaciones ("loop error") del sistema ATC.
 b. Acción de contingencia debido a falla de motor.
 c. Acción de contingencia debido a falla de presurización.
 d. Acción de contingencia debido a otras causas.
@@ -11767,7 +12018,7 @@ i. Desviación debido al ACAS/TCAS.
 j. Avión incapaz de mantener el nivel.
 k. Otros.
 3.2 Para desviaciones laterales
-a. Errores durante el proceso de comunicaciones / coordinaciones ( “loop error” ) del sistema ATC.
+a. Errores durante el proceso de comunicaciones / coordinaciones ( "loop error" ) del sistema ATC.
 b. Error en el equipo de control incluyendo error inadvertido en el punto de recorrido.
 c. Error de inserción del punto de recorrido debido a la inserción correcta de una posición equivocada.
 d. Con falla notificada al ATC a tiempo para tomar acción.
@@ -11776,8 +12027,8 @@ f. Con falla notificada /recibida por el ATC.
 g. Desviaciones laterales debido a las condiciones meteorológicas cuando no es posible obtener previamente autorización del ATC.
 Notas:
 1. Hay datos que tienen que ser notificados por el piloto.
-2. Cuando deban ejecutarse Procedimientos de Contingencia, si se contestó NO en “¿Se ejecutaron los Procedimientos de Contingencia?”, deberá explicarse porqué en “Comentarios”.
-3. Errores durante el proceso de comunicaciones / coordinaciones (“loop error”) del sistema ATC: Cualquier error ocasionado por un malentendido entre el piloto y controlador respecto al nivel vuelo asignado, al número Mach o a la ruta por seguir. Tales errores pueden provenir de errores de coordinación entre dependencias ATC o por una interpretación errónea por parte de los pilotos acerca de una autorización o de una renovación de la autorización. (Doc. 9689-NA/953. Manual sobre la metodología de planificación del espacio aéreo para determinar las mínimas de separación).
+2. Cuando deban ejecutarse Procedimientos de Contingencia, si se contestó NO en "¿Se ejecutaron los Procedimientos de Contingencia?", deberá explicarse porqué en "Comentarios".
+3. Errores durante el proceso de comunicaciones / coordinaciones ("loop error") del sistema ATC: Cualquier error ocasionado por un malentendido entre el piloto y controlador respecto al nivel vuelo asignado, al número Mach o a la ruta por seguir. Tales errores pueden provenir de errores de coordinación entre dependencias ATC o por una interpretación errónea por parte de los pilotos acerca de una autorización o de una renovación de la autorización. (Doc. 9689-NA/953. Manual sobre la metodología de planificación del espacio aéreo para determinar las mínimas de separación).
 APÉNDICE 8 - SOLICITUD DE APROBACIÓN RVSM PARA AVIONES QUE NO
 DISPONEN DE APROBACIÓN
 FORMULARIO RVSM-2
@@ -11870,8 +12121,8 @@ Esta aprobación certifica que se cumplen todas las condiciones para las operaci
 operación, esta Carta de aprobación (LOA) también pierde su validez y la persona que la ha firmado debe notificar inmediatamente a la oficina emisora del cambio producido. La Carta de aprobación se puede renovar mediante una solicitud previa enviada a la DGAC que la otorgó por lo menos treinta (30) días antes de la fecha de su vencimiento, si no se ha realizado ningún cambio desde que se otorgó la original. De haberse producido algún cambio, se debe iniciar un proceso de aprobación nuevamente.
 Fecha de otorgamiento: [imagen] D M A | Fecha de vencimiento [imagen] D M A
 Firma de la autoridad responsable
-Explicación del Formulario RVSM-4 – Carta de aprobación para operar en espacio aéreo designado RVSM (LOA).-
-1 Propósito.- Estas disposiciones proporcionan orientación a las DGAC de los Estados pertenecientes a la Región CAR/SAM de la OACI, en la emisión de una Carta de aprobación (LOA) para los propietarios/operadores de aviones en la aviación general que pretenden realizar operaciones en espacio aéreo designado RVSM de acuerdo a los requisitos que se publican en el Doc. 7030 de la OACI – Procedimientos suplementarios regionales de la OACI.
+Explicación del Formulario RVSM-4 - Carta de aprobación para operar en espacio aéreo designado RVSM (LOA).-
+1 Propósito.- Estas disposiciones proporcionan orientación a las DGAC de los Estados pertenecientes a la Región CAR/SAM de la OACI, en la emisión de una Carta de aprobación (LOA) para los propietarios/operadores de aviones en la aviación general que pretenden realizar operaciones en espacio aéreo designado RVSM de acuerdo a los requisitos que se publican en el Doc. 7030 de la OACI - Procedimientos suplementarios regionales de la OACI.
 2 Alcance.- Este documento contiene orientación concerniente al proceso de aprobación de aviones y propietarios/operadores. El formato correspondiente a la LOA forma parte de esta sección. Para la emisión de la correspondiente LOA, solicitada por un propietario/operador de aviones de aviación general a la DGAC de su Estado, se utilizarán los procedimientos de aprobación descritos en este documento
 3 Orientación.-
 (a) Para operaciones en espacio aéreo designado RVSM se requiere una Carta de aprobación (LOA) para los propietarios de aviones en la aviación general o las especificaciones para las operaciones apropiadas para los operadores de servicios aéreos comerciales.
@@ -11920,7 +12171,6 @@ REGISTRO DE APROBACIÓN PARA OPERAR EN EL ESPACIO AÉREO RVSM
 DE LAS REGIONES CAR/SAM
 1. Cuando un Estado de Registro aprueba o rectifica la aprobación de un(a) operador/aeronave para operaciones adentro del espacio aéreo de las regiones CAR/SAM, detalles de la aprobación deben ser registrados y enviados a CARSAMMA hasta el décimo día del mes siguiente al mes que fue emitida la aprobación.
 2. Antes de providenciar las informaciones según pedidas abajo, se debe hacer referencia a las anotaciones de acompañamiento (USE LETRAS MAYÚSCULAS, POR FAVOR).
-[imagen]
 Después de rellenar, favor regresarlo a la siguiente dirección, en el primer día útil:
 Centro de Gerenciamento da Navegação Aérea
 Agência de Monitoração do Caribe e América do Sul (CARSAMMA)
@@ -11928,10 +12178,10 @@ Avenida General Justo, 876 - Centro, Río de Janeiro - RJ, 20021-130.
 Teléfonos +55 (21) 2101-6868 y +55 (21) 2101-6358.
 E-Mail: carsamma@cgna.gov.br
 Explicación del Formulario F2 de CARSAMMA
-Si los contactos no son capaces de pasar la información pedida en el formulario CARSAMMA F2 a través del Internet, de transferencia electrónica directa, o de datos colocados en un disquete 3,5”, una copia del formulario CARSAMMA F2 deberá ser hecha para cada avión aprobado RVSM. Los números abajo se refieren a los números sobrescritos en los campos del formulario CARSAMMA F2.
+Si los contactos no son capaces de pasar la información pedida en el formulario CARSAMMA F2 a través del Internet, de transferencia electrónica directa, o de datos colocados en un disquete 3,5", una copia del formulario CARSAMMA F2 deberá ser hecha para cada avión aprobado RVSM. Los números abajo se refieren a los números sobrescritos en los campos del formulario CARSAMMA F2.
 1. Llene con una letra de identificación OACI, según contenida en el Doc. 7910 OACI.
 Caso sea necesario más de un identificador designado por la OACI, usar apenas la primera letra.
-2. Llene con tres letras de identificación OACI del operador, conforme contenido en el Doc. 8585. Para la aviación general internacional, coloque “IGA”. Para aviones militares, coloque “MIL”. En otra situación, coloque una X en este campo y escriba el nombre del operador/propietario en la columna Observaciones.
+2. Llene con tres letras de identificación OACI del operador, conforme contenido en el Doc. 8585. Para la aviación general internacional, coloque "IGA". Para aviones militares, coloque "MIL". En otra situación, coloque una X en este campo y escriba el nombre del operador/propietario en la columna Observaciones.
 3. Llene con el designativo OACI, conforme contenido en el Doc. 8643 OACI, por ejemplo, para Airbus A320-211, llene A322; para Boeing B747-438, llene B744.
 4. Llene con la serie del tipo de aviones o designativo del fabricante, por ejemplo, para Airbus A320-211, llene 211; para Boeing B747-438, llene 400 o 438.
 5. Llene con el código Modo S de aeronave designado por la OACI.
@@ -11939,14 +12189,13 @@ Caso sea necesario más de un identificador designado por la OACI, usar apenas l
 7. Ejemplo: para 26 de octubre de 1998, llene 26/10/98.
 8. Complete de ser necesario, utilice una hoja de papel aparte si el espacio no fuera suficiente.
 APÉNDICE 13 FORMULARIO CARSAMMA F3
-[imagen]
 Explicación del Formulario F3 de CARSAMMA
 Información para el registro correcto de los formularios de registro de aprobación y de
 revocación para operar en el espacio aéreo RVSM en la Región CAR/SAM
-1 Estado de registro.- Inserte una o dos letras del código de identificación OACI correspondiente al Estado, que aparecen en la última edición del Doc. 7910 de la OACI – Indicadores de lugar. Si existiera más de un código identificador para designar al Estado, use el identificador de la letra que aparece primero.
-2 Nombre del operador.- Inserte el código identificador de tres letras de la OACI contenido en versión más reciente del Doc. 8585 de la OACI –. Para aviones de aviación general, inserte las letras "IGA". Para aviones militares, escriba las letras "MIL". Si no fuera ninguno de los casos anteriores, inserte una “X” en este espacio y el nombre del operador / propietario en el espacio para comentarios.
-3 Estado del operador.- Inserte una o dos letras que figuran en la última edición del Doc. 7910 de la OACI –. En el caso de existir más de un identificador designado para el Estado, use el identificador de la letra que aparece primero.
-4 Tipo de avión Inserte el código de designación de OACI que aparece en la edición más reciente del Doc. 8643 de la OACI –, por ejemplo para Airbus A320-211, inserte A320; para Boeing B747-438, inserte B744.
+1 Estado de registro.- Inserte una o dos letras del código de identificación OACI correspondiente al Estado, que aparecen en la última edición del Doc. 7910 de la OACI - Indicadores de lugar. Si existiera más de un código identificador para designar al Estado, use el identificador de la letra que aparece primero.
+2 Nombre del operador.- Inserte el código identificador de tres letras de la OACI contenido en versión más reciente del Doc. 8585 de la OACI -. Para aviones de aviación general, inserte las letras "IGA". Para aviones militares, escriba las letras "MIL". Si no fuera ninguno de los casos anteriores, inserte una "X" en este espacio y el nombre del operador / propietario en el espacio para comentarios.
+3 Estado del operador.- Inserte una o dos letras que figuran en la última edición del Doc. 7910 de la OACI -. En el caso de existir más de un identificador designado para el Estado, use el identificador de la letra que aparece primero.
+4 Tipo de avión Inserte el código de designación de OACI que aparece en la edición más reciente del Doc. 8643 de la OACI -, por ejemplo para Airbus A320-211, inserte A320; para Boeing B747-438, inserte B744.
 5 Número serie del avión.- Inserte el número de serie del avión, o la designación de cliente del fabricante, por ejemplo para Airbus A320-211 inserte 211; para Boeing B747- 438, inserte 400 o 438.
 6 Número de serie del fabricante.- Inserte el número de serie del fabricante.
 7 Número de registro.- Inserte la marca de nacionalidad y matrícula del avión, por ejemplo para AA-XYZ, inserte AAXYZ.
@@ -11959,8 +12208,8 @@ revocación para operar en el espacio aéreo RVSM en la Región CAR/SAM
 14 Fecha de la cancelación.- DD/MM/AA. Ejemplo: el 15 de abril de 2003, se escribe 15/04/03.
 15 Razón para la cancelación - Indique el(los) motivo(s) de la revocatoria.
 16 Comentarios.- Escriba los comentarios pertinentes.
-SUBPARTE B – AWO
-SUBPARTE B – AWO- PROCESO DE APROBACIÓN PARA OPERACIONES TODO TIEMPO (ALL WEATHER OPERATIONS (AWO))
+SUBPARTE B - AWO
+SUBPARTE B - AWO- PROCESO DE APROBACIÓN PARA OPERACIONES TODO TIEMPO (ALL WEATHER OPERATIONS (AWO))
 0. PROCESO DE APROBACIÓN PARA CAT I/ II/III y LVTO
 1. INTRODUCCIÓN
 El despegue y aterrizaje con baja visibilidad son ciertamente muy exigentes. Este progreso en aviación civil se ha dado por grandes mejoras en los sistemas de control automático de los aviones durante los últimos años, aunado a requisitos más rigurosos para el equipo de los aeropuertos y la calificación de las tripulaciones. En una aproximación Categoría III, el piloto verá la pista unos segundos (aproximadamente 5 segundos) antes del aterrizaje; por lo que no se deja margen al error. Las bases para operaciones Categoría II y III, como la certificación de la aeronave o demostraciones operacionales, aseguran un alto grado de seguridad.
@@ -11968,7 +12217,7 @@ Esta guía analizará todos los aspectos de operación para CAT. I, CAT. II, CAT
 2. OBJETIVOS
 Este documento establece los requisitos de aeronavegabilidad y procedimientos operacionales, y las políticas de la DGAC para operadores en procedimientos CAT II, CAT III y LVTO. La guía dará recomendaciones para cumplir los requisitos operacionales y de fiabilidad para obtener la aprobación de la DGAC.
 Esta guía resume el propósito y los conceptos de las operaciones con baja visibilidad, así como del proceso de aprobación requerido.
-El objetivo de las operaciones CAT II / CAT III es proporcionar un nivel aceptable de seguridad cuando se aterriza en baja visibilidad, equiparable a operaciones en condiciones “normales”.
+El objetivo de las operaciones CAT II / CAT III es proporcionar un nivel aceptable de seguridad cuando se aterriza en baja visibilidad, equiparable a operaciones en condiciones "normales".
 La Categoría II y III constituyen la parte principal de las Operaciones Todo Tiempo (AWO), el cual también consiste en la CAT I, el despegue y el rodaje en condiciones donde las referencias visuales están limitadas por condiciones meteorológicas.
 3. RESUMEN
 A pesar de que las operaciones CAT II / CAT III representan una inversión significativa para el operador, esta es la manera más efectiva en que una aerolínea puede mantener su itinerario a lo largo del año sin desvío hacia alternos debido al mal tiempo. Esto redundará en menores costos y en una mejor imagen para la aerolínea.
@@ -12011,10 +12260,10 @@ El operador debe solicitar la reunión de presolicitud con la DGAC. La razón de
 3- Limitaciones (si hubiera) en la aprobación; y
 4- Condiciones bajo las cuales la aprobación operacional podría cancelarse por la DGAC.
 10.2 FORMA DE APLICACIÓN
-Un ejemplo de la “Carta de Solicitud” del operador para obtener la aprobación operacional para AWO se muestra en el Apéndice 1.
+Un ejemplo de la "Carta de Solicitud" del operador para obtener la aprobación operacional para AWO se muestra en el Apéndice 1.
 10.3 DETERMINANDO LA ELEGIBILIDAD Y APROBACIÓN DE UNA AERONAVE PARA AWO
 Cuando un avión ha de volar según las reglas de vuelo por instrumentos (IFR) debe estar dotado de los instrumentos de vuelo y de los equipos de comunicaciones y navegación que permitan a la tripulación ejecutar los procedimientos requeridos para la salida, la llegada o la aproximación por instrumentos, que sean apropiados a esa operación. Los requisitos básicos relativos a los instrumentos de vuelo del avión y al equipo de radiocomunicaciones y navegación están incluidos en el RAC-OPS 1. El operador incluirá en el Manual de Operaciones el equipo mínimo que debe estar operativo al comienzo de un despegue con baja visibilidad o una aproximación Cat II o III, de acuerdo con el AFM u otro documento aprobado. El piloto deberá asegurarse de que el estado del avión y de los sistemas de a bordo necesarios son adecuados para la operación específica que se va a realizar.
-La aeronave debe estar certificada para aterrizaje automático y el Manual de Vuelo (AFM) debe indicar el mínimo equipo que satisface los requisitos de certificación –por ejemplo, el número de pilotos automáticos operacionales, radio-altímetros, entre otros.
+La aeronave debe estar certificada para aterrizaje automático y el Manual de Vuelo (AFM) debe indicar el mínimo equipo que satisface los requisitos de certificación -por ejemplo, el número de pilotos automáticos operacionales, radio-altímetros, entre otros.
 11 SOLICITUD
 11.1 CONTENIDO DE LA SOLICITUD DEL OPERADOR PARA AWO
 11.1.1 DOCUMENTOS DE AERONAVEGABILIDAD
@@ -12040,7 +12289,7 @@ Una vez que la aplicación ha sido entregada, la DGAC iniciará el proceso de re
 La aprobación para operar en AWO se emitirá en las especificaciones de operación (OPSPECS).
 Ahí se identificará cualquier condición o limitación en las operaciones Todo Tiempo (AWO).
 11.2.2 INVESTIGACIÓN DE ERRORES
-El operador debe iniciar un sistema de “reporte de piloto”, en donde las tripulaciones anotarán cualquier falla del equipo en la aproximación. La forma a utilizarse (Ver Apéndice 2) debe mostrar si el aterrizaje automático fue exitoso o no. Esto proveerá asistencia para la rectificación de fallas y dará información sobre tendencias de fallas al sistema de mantenimiento.
+El operador debe iniciar un sistema de "reporte de piloto", en donde las tripulaciones anotarán cualquier falla del equipo en la aproximación. La forma a utilizarse (Ver Apéndice 2) debe mostrar si el aterrizaje automático fue exitoso o no. Esto proveerá asistencia para la rectificación de fallas y dará información sobre tendencias de fallas al sistema de mantenimiento.
 11.2.3 CANCELACIÓN DE LA APROBACIÓN PARA OPERACIONES TODO TIEMPO
 Cuando sea apropiado, la DGAC podrá considerar cualquier reporte de fallas en el equipo de aproximación y determinar las acciones para remediarlo. El acontecimiento repetido de fallas en una parte específica del equipo de aproximación y aterrizaje, podría resultar en la cancelación de la aprobación para operar en AWO.
 Con respecto a las tripulaciones, si hay información que indica el potencial para errores repetitivos, se podrá requerir modificaciones al programa de entrenamiento del operador. Información que atribuye errores múltiples a una tripulación específica, se requerirá entrenamiento adicional o evaluación de la licencia.
@@ -12059,7 +12308,7 @@ Antes de iniciar operaciones AWO y aterrizajes automáticos, la DGAC debe estar 
 13 MÍNIMOS DE OPERACIÓN DE AEROPUERTO
 Mínimos de Operación de un aeropuerto se define como: los límites de utilización de un aeródromo ya sea para despegue o aterrizaje, generalmente expresados en términos de visibilidad o alcance visual de la pista (RVR), altitud/altura de decisión (DA/DH) o altitud/altura mínimos de descenso (MDA/MDH) y condición de nubosidad.
 El operador debe establecer los mínimos de operación del aeródromo para cada aeródromo que se planee utilizar. El método de determinación de estos mínimos debe ser aprobado por la Autoridad. Estos mínimos no serán inferiores a cualquiera que pudiera establecerse para cada aeródromo por el Estado en el que esté localizado, excepto que se apruebe específicamente por ese Estado. (Ver Apéndice 11)
-APÉNDICE 1 - EJEMPLO DE “CARTA DE SOLICITUD” PARA APROBACIÓN EN
+APÉNDICE 1 - EJEMPLO DE "CARTA DE SOLICITUD" PARA APROBACIÓN EN
 OPERACIONES TODO TIEMPO
 Jefe de Operaciones de Vuelo
 Autoridad de Aviación Civil de (Estado)
@@ -12068,7 +12317,6 @@ Estimado Señor:
 APLICACIÓN PARA LA APROBACIÓN OPERACIONAL PARA OPERACIONES TODO TIEMPO (AWO)
 (Nombre del operador) solicita que la aprobación operacional se dé para conducir operaciones de baja visibilidad: LVTO, CAT II (III).
 Las siguientes aeronaves de (nombre del operador) cumplen los requisitos y tienen las capacidades según se define/especifica en el AFM para operaciones AWO.
-[imagen]
 Las tripulaciones de vuelo serán entrenadas de acuerdo a los requisitos del RAC-OPS 1 y el material guía en el MIO AWO
 Atentamente
 Firma
@@ -12076,9 +12324,6 @@ Firma
 (Título)
 (Fecha)
 APÉNDICE 2 - -EJEMPLO DE REPORTES DE TRIPULACIÓN
-[imagen]
-[imagen]
-[imagen]
 APÉNDICE 3 - UTILIZACIÓN DE AERÓDROMO
 1. MÍNIMOS DE UTILIZACIÓN DE AERÓDROMO
 Un operador no debe usar un aeródromo para operaciones CAT II y CAT III a menos que ese aeródromo esté aprobado para dichas operaciones por el Estado del aeródromo. El operador verificará que se han establecido, y están en vigor, procedimientos de baja visibilidad (LVP), en aquellos aeródromos en que se van a llevar a cabo tales operaciones.
@@ -12104,7 +12349,7 @@ Se recomienda que para pistas que se van a utilizar para aproximaciones CAT II y
 2.5 MANTENER POSICIÓN DURANTE EL RODAJE
 Se debe establecer puntos de espera en cada intersección de las pistas de rodaje y de la pista.
 La distancia entre estas posiciones y el eje central de la pista no debe ser menor a 90 mts. (Será mayor para pistas cuya elevación excede los 700 mts.)
-3. AYUDAS VISUALES – MARCAS EN LA PISTA
+3. AYUDAS VISUALES - MARCAS EN LA PISTA
 3.1 MARCAS DE CENTRO DE PISTA
 Para operaciones CAT II y III, las marcas del centro de pista, como se muestran en el apéndice 12, deben tener un ancho no menor a 0.90 mts (no menor a 0.45 par CAT I)
 3.2 MARCAS EN LA ZONA DE TOQUE
@@ -12112,9 +12357,9 @@ Las marcas en la zona de toque, como se muestran en el apéndice 12, son requeri
 Estas marcas están pintadas en la zona de toque (esta zona se extiende desde el inicio de la pista hasta una distancia de 900 mts.)
 3.3 MARCAS HACIA PISTAS DE RODAJE
 Estas marcas no son requisitos específicos para CAT II y III, pero la experiencia ha demostrado que son una manera eficiente de guiar las aeronaves en condiciones de baja visibilidad durante el día.
-3.4 MARCAS DE “POSICIÓN A MANTENER” DURANTE EL RODAJE
-La “Posición a mantener” durante el rodaje debe mostrarse en el patrón A para la marca más cercana a la pista, y el patrón B para todas las otras (ver apéndice 12). CAT II o CAT III se escribirán en la superficie en donde el ancho del área exceda los 60 mts. Signos de CAT II o CAT III se pondrán en cualquiera de los lados de la pista de rodaje en el punto de “posición a mantener”, y los signos de CAT III se acompañarán por luces de destello. Estas marcas y signos son un medio eficiente para evitar que aeronaves se introduzcan en la zona libre de obstáculos o en el área critica / sensitiva del ILS.
-4. AYUDAS VISUALES – LUCES DE PISTA
+3.4 MARCAS DE "POSICIÓN A MANTENER" DURANTE EL RODAJE
+La "Posición a mantener" durante el rodaje debe mostrarse en el patrón A para la marca más cercana a la pista, y el patrón B para todas las otras (ver apéndice 12). CAT II o CAT III se escribirán en la superficie en donde el ancho del área exceda los 60 mts. Signos de CAT II o CAT III se pondrán en cualquiera de los lados de la pista de rodaje en el punto de "posición a mantener", y los signos de CAT III se acompañarán por luces de destello. Estas marcas y signos son un medio eficiente para evitar que aeronaves se introduzcan en la zona libre de obstáculos o en el área critica / sensitiva del ILS.
+4. AYUDAS VISUALES - LUCES DE PISTA
 Las luces de pista para operaciones CAT II o CAT III consiste en: luces de alta intensidad de inicio de pista, luces de final de pista, luces de zona de toque, luces de borde de pista y luces de eje central de la pista.
 4.1 LUCES DE BORDE DE PISTA
 Las luces de borde de pista se ubican a lo largo de la pista en dos filas paralelas equidistantes del centro de la pista, con una distancia de no más de 3 mts del borde de pista. Estas luces estarán espaciadas a no más de 60 mts y se pueden omitir en las intersecciones. Las luces son blancas fijas.
@@ -12213,7 +12458,7 @@ Los servicios de mantenimiento utilizan fotografías del sistema completo de luc
 Un suplidor de potencia auxiliar para ayudas visuales con un máximo tiempo de cambio se indica en la siguiente tabla (Anexo 14).
 Tiempo máximo de cambio
 1 segundo | 15 segundos
-❑ Sistema de luces de aproximación ❑ Luces de umbral ❑ Luces de final de pista ❑ Luces de centro de pista ❑ Luces de área de toma de contacto ❑ Barras de parada en las posiciones de parada en el rodaje (CAT II) ❑ Todas las barras de parada (CAT III) | — Luces de borde de pista — Luces de calles de rodaje esenciales incluyendo barras de parada diferentes a las requeridas para CAT II
+❑ Sistema de luces de aproximación ❑ Luces de umbral ❑ Luces de final de pista ❑ Luces de centro de pista ❑ Luces de área de toma de contacto ❑ Barras de parada en las posiciones de parada en el rodaje (CAT II) ❑ Todas las barras de parada (CAT III) | - Luces de borde de pista - Luces de calles de rodaje esenciales incluyendo barras de parada diferentes a las requeridas para CAT II
 9.4 MANTENIMIENTO DEL ILS
 Las instalaciones del ILS deben ser evaluadas a intervalos regulares tanto en tierra como en vuelo de acuerdo al Anexo 10 de la OACI. Además, los usuarios deben reportar tan pronto como sea posible, y de acuerdo a los procedimientos ATC, de cualquier degradación del performance del ILS.
 10 PROCEDIMIENTOS ATC
@@ -12303,7 +12548,7 @@ El operador debe asegurar que si se requiere de cualquier equipo especial (ej. H
 9.1 SUPERVISIÓN DE VUELO EN LÍNEA
 El operador debe asegurar que:
 - Cuando aterrizajes manuales en CAT II sean requeridos, un mínimo de tres aterrizajes con desconexión del piloto automático sean llevadas a cabo.
-- Para operaciones CAT III, un mínimo de tres aterrizajes automáticos se lleven a cabo; solo uno se requerirá si el entrenamiento requerido en simulador se ha llevado a cabo en un simulador para conversión con “tiempo de vuelo cero”.
+- Para operaciones CAT III, un mínimo de tres aterrizajes automáticos se lleven a cabo; solo uno se requerirá si el entrenamiento requerido en simulador se ha llevado a cabo en un simulador para conversión con "tiempo de vuelo cero".
 9.2 EXPERIENCIA EN COMANDO Y EN EL TIPO
 Los siguientes requisitos serán aplicables a los comandantes que son nuevos en el tipo:
 a. 50 horas o 20 sectores como piloto en comando en el tipo de avión incluyendo vuelo en línea bajo supervisión antes de llevar a cabo cualquier operación CAT II o III.
@@ -12429,7 +12674,7 @@ f. La importancia de sentarse correctamente y la posición de los ojos.
 g. Acciones que podrían ser necesarias si hay deterioro de las referencias visuales.
 h. Asignación de tareas cuando se lleven a cabo procedimientos de los subpárrafos (a) al (d) y
 (f) arriba, para permitir al piloto al mando dedicarse principalmente a la supervisión y toma de decisiones.
-i. Los requisitos para todas los “call outs” por debajo de 200 ft a ser basadas en RA y para un piloto que continúe monitoreando los instrumentos de la aeronave hasta que el aterrizaje se complete.
+i. Los requisitos para todas los "call outs" por debajo de 200 ft a ser basadas en RA y para un piloto que continúe monitoreando los instrumentos de la aeronave hasta que el aterrizaje se complete.
 j. Los requisitos para protección del área sensitiva del localizador.
 k. La utilización de la información relativa a la velocidad del viento, cortante de viento, turbulencia, contaminación de la pista y el uso de y evaluación de múltiples RVR.
 l. Procedimientos a usarse para practicar aproximaciones y aterrizajes en pistas en las que los procedimientos para CAT II y III no están en funcionamiento.
@@ -12482,16 +12727,16 @@ La referencia visual requerida en el DH en operaciones CAT II para continuar la 
 La selección de dimensiones de los segmentos visuales requeridos que se usan para operaciones de Categoría II está basada en los siguientes requisitos visuales:
 a- Un segmento visual de no menos de 90 metros deberá estar a la vista en y por debajo de la altura de decisión para que un piloto pueda monitorear un sistema automático;
 b- Un segmento visual de no menos de 120 metros deberá estar a la vista para que un piloto pueda mantener manualmente la actitud de cabeceo en y por debajo de la altura de decisión; y
-c- Para un aterrizaje manual usando solamente referencias visuales externas, se requerirá un segmento visual de 225 metros a la altitud en que inicia la nivelada “flare” (posición de la aeronave previa al aterrizaje), a fin de proporcionar al piloto la visión en tierra de un punto de escaso movimiento relativo.
+c- Para un aterrizaje manual usando solamente referencias visuales externas, se requerirá un segmento visual de 225 metros a la altitud en que inicia la nivelada "flare" (posición de la aeronave previa al aterrizaje), a fin de proporcionar al piloto la visión en tierra de un punto de escaso movimiento relativo.
 Operaciones CAT III: en operaciones CAT III con DH, las condiciones requeridas en el DH son de que debe haber referencias visuales, lo que confirmará que la aeronave está sobre la zona de toque (TDZ). La ida al aire es mandataria si la referencia visual no confirma esto.
 Operaciones CAT III sin DH: para esta categoría de operación, la decisión de continuar no depende de referencias visuales, a pesar que se especifica un RVR mínimo. Aun así, es buena práctica de pilotaje el confirmar la posición de la aeronave con las referencias visuales disponibles. Sin embargo, la decisión depende solamente del estatus del equipo de tierra y de la aeronave. Si ocurre una falla antes del AH, se iniciará una aproximación frustrada. Una ida al aire se iniciará si se dispara una alarma del sistema de aterrizaje automático.
 Operaciones de Categoría III con sistemas de control de vuelo pasivo ante fallas
 Las operaciones de Categoría III utilizando el equipo de aterrizaje automático pasivo ante fallas fueron introducidas a finales de los 60 y es deseable que los principios que gobiernan el establecimiento de los mínimos RVR para estas operaciones sean tratados con cierto detalle.
 Durante un aterrizaje automático, el piloto necesita vigilar el performance de los sistemas del avión con el propósito no de detectar una falla en los sistemas internos del avión, que puede hacerse mejor utilizando dispositivos de vigilancia del sistema, sino para conocer de manera precisa la situación del vuelo. En las etapas finales debería establecer contacto visual y, al alcanzar la altura de decisión, ya debe haber verificado la posición del avión con respecto a las luces de aproximación o luces de eje de pista. Para esto necesitará ver elementos horizontales (para la referencia de alabeo) y parte del área de toma de contacto. Debería verificar la posición lateral y la velocidad de trayectoria cruzada y, si no está dentro de los límites laterales establecidos, debería realizar una ida al aire (go-around). También debería verificar el progreso longitudinal para lo cual es útil tener a la vista el umbral de aterrizaje así como las luces de la zona de la toma de contacto.
-En el caso de una falla en el sistema de guiado del vuelo automático por debajo de la altura de decisión, existen dos acciones posibles: la primera es un procedimiento que permita al piloto completar el aterrizaje manualmente si hubiera referencia visual adecuada que se lo permita, o iniciar una ida al aire “go-around” si no la hubiera; la segunda sería realizar una ida al aire “go-around” obligatoria si hubiera una desconexión del sistema, sin importar la referencia visual disponible del piloto.
+En el caso de una falla en el sistema de guiado del vuelo automático por debajo de la altura de decisión, existen dos acciones posibles: la primera es un procedimiento que permita al piloto completar el aterrizaje manualmente si hubiera referencia visual adecuada que se lo permita, o iniciar una ida al aire "go-around" si no la hubiera; la segunda sería realizar una ida al aire "go-around" obligatoria si hubiera una desconexión del sistema, sin importar la referencia visual disponible del piloto.
 Si se selecciona la primera opción, entonces el requisito en la determinación de los RVR mínimos es que estén disponibles suficientes indicaciones visuales en, y por debajo, de la altura de decisión, de manera que el piloto pueda llevar a cabo un aterrizaje manual. Los datos que demuestren que un valor mínimo de 300 metros daría una alta probabilidad de que estén disponibles las referencias visuales que necesita el piloto para evaluar el avión en el cabeceo y alabeo, debería de ser el RVR mínimo para este procedimiento.
-La segunda opción requiere que se realice una ida al aire “go-around”, si falla el sistema de guiado de vuelo automático por debajo de la altura de decisión, permitiendo un RVR mínimo menor debido a que los requisitos de referencia visual serán menores ya que no existirá la posibilidad de un aterrizaje manual. Sin embargo, esta opción sería aceptable solamente si se pudiera mostrar que la probabilidad de una falla del sistema por debajo de la altura de decisión fuera aceptablemente baja. Debería reconocerse que la tendencia de un piloto que experimenta dicha falla sería la de continuar el aterrizaje manualmente pero los resultados de pruebas de vuelo en condiciones reales y pruebas en simulador han demostrado que los pilotos no siempre reconocen que, en estas condiciones, las referencias visuales son inadecuadas y los datos actuales disponibles revelan que la performance de aterrizaje de los pilotos se reduce progresivamente conforme el RVR es reducido por debajo de los 300 metros. También hay que reconocer que existe riesgo en llevar a cabo una ida al aire “go-around” manual por debajo de 50 pies con muy poca visibilidad y por lo tanto debería aceptarse que si se autoriza un RVR menor a 300 metros, el procedimiento de la cabina de vuelo no debería permitir al piloto, de manera general, continuar con un aterrizaje manual en dichas condiciones y el sistema del avión debe ser suficientemente confiable para que el régimen de ida al aire “go-around” sea bajo.
-Estos criterios pueden disminuirse en el caso de un avión con un sistema de aterrizaje automático pasivo ante fallas suplementado con un “head-up display”, lo cual no califica como un sistema operativo ante fallas, pero proporciona asesoramiento que permite al piloto completar un aterrizaje en el caso de una falla del sistema de aterrizaje automático. En este caso cuando el RVR es menor de 300 m, no es necesario realizar una ida al aire “go-around” obligatorio.
+La segunda opción requiere que se realice una ida al aire "go-around", si falla el sistema de guiado de vuelo automático por debajo de la altura de decisión, permitiendo un RVR mínimo menor debido a que los requisitos de referencia visual serán menores ya que no existirá la posibilidad de un aterrizaje manual. Sin embargo, esta opción sería aceptable solamente si se pudiera mostrar que la probabilidad de una falla del sistema por debajo de la altura de decisión fuera aceptablemente baja. Debería reconocerse que la tendencia de un piloto que experimenta dicha falla sería la de continuar el aterrizaje manualmente pero los resultados de pruebas de vuelo en condiciones reales y pruebas en simulador han demostrado que los pilotos no siempre reconocen que, en estas condiciones, las referencias visuales son inadecuadas y los datos actuales disponibles revelan que la performance de aterrizaje de los pilotos se reduce progresivamente conforme el RVR es reducido por debajo de los 300 metros. También hay que reconocer que existe riesgo en llevar a cabo una ida al aire "go-around" manual por debajo de 50 pies con muy poca visibilidad y por lo tanto debería aceptarse que si se autoriza un RVR menor a 300 metros, el procedimiento de la cabina de vuelo no debería permitir al piloto, de manera general, continuar con un aterrizaje manual en dichas condiciones y el sistema del avión debe ser suficientemente confiable para que el régimen de ida al aire "go-around" sea bajo.
+Estos criterios pueden disminuirse en el caso de un avión con un sistema de aterrizaje automático pasivo ante fallas suplementado con un "head-up display", lo cual no califica como un sistema operativo ante fallas, pero proporciona asesoramiento que permite al piloto completar un aterrizaje en el caso de una falla del sistema de aterrizaje automático. En este caso cuando el RVR es menor de 300 m, no es necesario realizar una ida al aire "go-around" obligatorio.
 Categoría III. Sistema operativo ante fallas- con Altura de Decisión.
 Para operaciones de Categoría III utilizando un sistema de aterrizaje operativo ante fallas con Altura de Decisión, el piloto debería ser capaz de ver, al menos, una luz de eje de pista.
 Para operaciones de Categoría III utilizando un sistema de aterrizaje híbrido operativo ante fallas con Altura de Decisión, el piloto debería tener una referencia visual conteniendo un segmento de por lo menos 3 luces consecutivas de las luces de eje de pista.
@@ -12500,15 +12745,15 @@ Para Operaciones de Categoría III sin una Altura de Decisión el piloto no requ
 Una pista de Categoría III puede soportar operaciones sin Altura de Decisión a menos que se restrinja específicamente en el AIP o mediante NOTAM.
 j- Pérdida de referencias visuales
 Operación con DH- antes del aterrizaje: Si la decisión de continuar ya se ha tomado y las referencias visuales se pierden, o la trayectoria de vuelo se desvía de manera inaceptable, se debe iniciar una ida al aire (una ida al aire después del DH puede resultar en contacto con el terreno).
-Operación con o sin DH – posterior al aterrizaje: Si las referencias visuales se pierden después del aterrizaje, no se debe iniciar una ida al aire. Se debe continuar la carrera de aterrizaje en modo de “Rollout” hasta la velocidad de rodaje.
+Operación con o sin DH - posterior al aterrizaje: Si las referencias visuales se pierden después del aterrizaje, no se debe iniciar una ida al aire. Se debe continuar la carrera de aterrizaje en modo de "Rollout" hasta la velocidad de rodaje.
 1.4 LLAMADAS DE ATENCIÓN DE DESVIACIÓN DE PARÁMETROS DE VUELO
 PARÁMETRO | SI LA DESVIACIÓN SE EXCEDE EN | LLAMADA
-IAS | + 10 kt - 5 kt | “SPEED”
-RÉGIMEN DE DESCENSO | - 1000 ft/min | “SINKRATE”
-ACTITUD DE PITCH | 10° nariz arriba 2.5° nariz abajo | “PITCH”
-ANGULO DE BANQUEO | 7° | “BANK”
-LOCALIZADOR | ¼ DOT | “LOCALIZER”
-TRAYECTORIA DE PLANEO | 1 DOT | “GLIDESLOPE”
+IAS | + 10 kt - 5 kt | "SPEED"
+RÉGIMEN DE DESCENSO | - 1000 ft/min | "SINKRATE"
+ACTITUD DE PITCH | 10° nariz arriba 2.5° nariz abajo | "PITCH"
+ANGULO DE BANQUEO | 7° | "BANK"
+LOCALIZADOR | ¼ DOT | "LOCALIZER"
+TRAYECTORIA DE PLANEO | 1 DOT | "GLIDESLOPE"
 Estas llamadas las hará normalmente el PNF y serán reconocidas por el PF. Sin embargo, cualquier tripulante que vea una desviación fuera de los límites arriba indicados debe hacer la llamada adecuada.
 Si alguno de estos límites se exceden aproximando el DH, se debe considerar una ida al aire.
 1.5 FALLAS Y ACCIONES ASOCIADAS
@@ -12520,7 +12765,7 @@ La naturaleza de la falla y el punto en donde ocurre determinarán cual respuest
 Como regla general, si una falla ocurre sobre 1000 ft AGL, la aproximación puede continuarse, siempre y cuando las condiciones adecuadas se cumplan y se terminen todas las listas de verificación.
 Por debajo de 1000 ft, si ocurre una falla implica una ida al aire y una reevaluación de la capacidad del sistema. Otra aproximación se puede iniciar hasta los mínimos adecuados para un estatus dado de la aeronave.
 Se debe considerar que por debajo de los 1000 ft, no hay suficiente tiempo disponible para que la tripulación ejecute los cambios necesarios, el chequeo de la configuración y las limitaciones y haga un briefing de los nuevos mínimos.
-TABLA 1 A- Equipos con fallas o degradados – Efectos en los mínimos de aterrizaje
+TABLA 1 A- Equipos con fallas o degradados - Efectos en los mínimos de aterrizaje
 EQUIPOS CON FALLAS O DEGRADADOS | EFECTOS SOBRE LOS MÍNIMOS DE ATERRIZAJE
 CAT III B (Nota 1) | CAT III A | CAT II | CAT I | DE NO PRECISIÓN
 Transmisor ILS de reserva | No se permite | Ningún efecto
@@ -12530,7 +12775,7 @@ Sistema de evaluación del RVR de la Zona de Toma de Contacto | Se puede sustitu
 RVR del Punto Medio o Punto Final | Ningún efecto
 Anemómetro para R/W en uso | Ningún efecto si hay otra fuente disponible en tierra
 Medidor de Techo de Nubes | Ningún efecto
-TABLA 1B- Equipos con fallas o degradados – Efectos en los mínimos de aterrizaje
+TABLA 1B- Equipos con fallas o degradados - Efectos en los mínimos de aterrizaje
 EQUIPOS CON FALLAS O DEGRADADOS | EFECTOS SOBRE LOS MÍNIMOS DE ATERRIZAJE
 CAT III B (Nota 1) | CAT III A | CAT II | CAT I | DE NO PRECISIÓN
 Luces de aproximación | NO SE PERMITE para operaciones con DH mayor a 50 pies | NO SE PERMITE | Mínimos como si no hubiera instalaciones.
@@ -12547,8 +12792,8 @@ Sistema de luces de calle de rodaje | Ningún efecto-excepto demoras debidas a l
 1.6 PROCEDIMIENTOS ANORMALES
 Los procedimientos requeridos posterior a una falla durante aproximaciones CAT II o III están dados en el AFM. Estos procedimientos se establecieron y aprobaron durante la certificación de la aeronave para CAT II/CAT III y deberán incluirse en el Manual de Operaciones del operador.
 1.7 ACCIONES ANTE FALLA DEL PILOTO AUTOMÁTICO POR DEBAJO DEL DH
-En operaciones con valores de RVR menores de 300 m, se asume la realización de una ida al aire “go-around” en el caso de falla del piloto automático en, o por debajo, de la Altura de Decisión.
-Esto indica que la ida al aire “go-around” es la acción normal. Sin embargo se reconoce que puede haber circunstancias en la que acción más segura es continuar con el aterrizaje. Estas circunstancias incluyen la altura a la que ocurre la falla, las referencias visuales actuales, y otras deficiencias. Esto debería aplicarse generalmente a las últimas etapas de la nivelada (flare).
+En operaciones con valores de RVR menores de 300 m, se asume la realización de una ida al aire "go-around" en el caso de falla del piloto automático en, o por debajo, de la Altura de Decisión.
+Esto indica que la ida al aire "go-around" es la acción normal. Sin embargo se reconoce que puede haber circunstancias en la que acción más segura es continuar con el aterrizaje. Estas circunstancias incluyen la altura a la que ocurre la falla, las referencias visuales actuales, y otras deficiencias. Esto debería aplicarse generalmente a las últimas etapas de la nivelada (flare).
 En resumen, no se prohíbe continuar la aproximación y completar el aterrizaje cuando el piloto al mando o el piloto al que se haya delegado la realización del vuelo, determine que esa es la acción más segura.
 1.8 APROXIMACIÓN FRUSTRADA
 Si la decisión de realizar una aproximación frustrada se toma cuando el avión está posicionado en el eje de aproximación definido por las ayudas de radio-navegación (track), debe seguirse el procedimiento de aproximación frustrada publicado. Si se pierde la referencia visual mientras se está circulando para aterrizar mediante una aproximación por instrumentos, se debe seguir la aproximación especificada para esa aproximación instrumental en particular. Se espera que el piloto realice inicialmente un viraje ascendente hacia la pista de aterrizaje y sobrevolar el aeródromo donde establecerá el avión en un ascenso sobre la trayectoria de aproximación frustrada. Cuando la maniobra para circular pueda completarse en más de una dirección, se requerirán diferentes patrones para establecer el avión en el curso de aproximación frustrada prescrita, dependiendo de la posición en la que perdió la referencia visual, a menos que se prescriba otra cosa.
@@ -12567,7 +12812,7 @@ El aterrizaje automático en condiciones meteorológicas para CAT I o mejores, s
 El operador debe establecer sus propios estándares para autorizar a pilotos a efectuar aterrizajes automáticos. Solo pilotos autorizados por el operador pueden efectuar aterrizajes automáticos.
 APÉNDICE 7 - DEMOSTRACIÓN OPERACIONAL
 1- GENERAL
-El operador debe demostrar que puede efectuar operaciones CAT II o CAT III con un régimen de éxito y un nivel de seguridad. Para este propósito, debe llevar a cabo un programa de prueba llamado “Demostración Operacional” para demostrar que, en línea, el performance y la fiabilidad de la aeronave y sus sistemas cumplen con los criterios de certificación. Atención muy particular debe prestarse a los procedimientos de vuelo según se han establecido por el operador y de la manera que el operador utiliza los reportes de piloto y los aplica a los procedimientos de mantenimiento.
+El operador debe demostrar que puede efectuar operaciones CAT II o CAT III con un régimen de éxito y un nivel de seguridad. Para este propósito, debe llevar a cabo un programa de prueba llamado "Demostración Operacional" para demostrar que, en línea, el performance y la fiabilidad de la aeronave y sus sistemas cumplen con los criterios de certificación. Atención muy particular debe prestarse a los procedimientos de vuelo según se han establecido por el operador y de la manera que el operador utiliza los reportes de piloto y los aplica a los procedimientos de mantenimiento.
 El propósito de este apéndice es presentar el proceso de demostración operacional.
 2- APROXIMACIONES Y ATERRIZAJES EXITOSOS
 La Autoridad tomará en cuenta los reportes de vuelo o registros y el régimen de éxito de las aproximaciones /aterrizajes. Es necesario conocer la definición de una aproximación o aterrizaje exitoso.
@@ -12588,7 +12833,7 @@ Un aterrizaje es considerado exitoso si:
 - El ángulo de banqueo al momento del toque no excede los 7 grados.
 - El ángulo de pitch no excede el valor máximo para que no toque la cola del avión.
 - Las desviaciones laterales durante la carrera de aterrizaje no excede 8 mts (27 ft)
-- No ocurren fallas de “rollout”.
+- No ocurren fallas de "rollout".
 Generalmente, aproximaciones no exitosas debido a factores particulares de ATC, dificultades con las facilidades de tierra, u otras razones específicas podrían excluirse del análisis de datos después de evaluar las razones
 3- RECOLECCIÓN DE DATOS
 El operador debe proveer de formas para reporte a la tripulación de vuelo o un registro automático de vuelo durante todas las demostraciones operacionales. La siguiente lista del RAC-OPS puede utilizarse como referencia de los datos a ser registrados. El apéndice 2 muestra un ejemplo de forma de reporte. Todos estos datos se pondrán a disposición de la Autoridad para su evaluación. Los datos que deben reportarse son:
@@ -12605,7 +12850,7 @@ Datos registrados automáticamente:
 - Desviación del localizador al momento del toque
 - Tiempo para nivelar
 - Régimen de descenso al momento del toque
-- Ángulos de “pitch y bank” al aterrizaje
+- Ángulos de "pitch y bank" al aterrizaje
 - Pérdida de velocidad en la nivelada (flare)
 - Desviación máxima durante la carrera de aterrizaje
 4- DEMOSTRACIÓN OPERACIONAL
@@ -12644,7 +12889,7 @@ El operador sin experiencia previa en CAT II o IIIA, podrá ser aprobado para op
 Una vez trascurridos 6 meses de operación en CAT II o IIIA con el tipo de avión, el operador puede optar por una aprobación CAT IIIB.
 Nota: La autoridad podrá imponer mínimos mayores que el menor aplicable durante un período de tiempo adicional.
 8. OPERADORES CON EXPERIENCIA PREVIA EN CAT II O III Y LVTO
-Los operadores con experiencia previa podrán obtener autorización para una “Demostración Operacional Reducida” mediante una solicitud a la Autoridad.
+Los operadores con experiencia previa podrán obtener autorización para una "Demostración Operacional Reducida" mediante una solicitud a la Autoridad.
 APÉNDICE 8 - REQUISITOS DE LA AERONAVE
 1. ESTATUS DE CERTIFICACIÓN
 Esta documentación se presentará a las autoridades para apoyar la solicitud del operador y obtener la aprobación operacional para conducir operaciones AWO. Esta solicitud es la aplicación inicial del operador para efectuar operaciones CAT II, III y LVTO.
@@ -12828,21 +13073,18 @@ Concepto de DH: DH es un punto específico en el espacio en el cual el piloto de
 Sin embargo, el piloto puede decidir ejecutar la aproximación frustrada si hay una degradación de las referencias visuales o una desviación súbita de la trayectoria de aproximación.
 En operaciones CAT II, el DH siempre estará limitado a 100ft o la Altura de Libramiento de Obstáculos (OCH), la que sea más alta. En operaciones CAT III con DH, el DH es menor de 100ft (típicamente igual a 50ft para un sistema automático de aterrizaje de falla-pasiva y de 15- 20ft para un sistema automático de aterrizaje de falla-operacional).
 El DH es medido con el radioaltímetro.
-[imagen]
 Cuando es necesario, el DH publicado toma en cuenta el perfil del terreno antes del umbral de la pista.
 Concepto AH: Es una altura definida para operaciones CAT III con un sistema automático de aterrizaje de falla-operacional.
 - Sobre el AH, se iniciará una aproximación frustrada si ocurre una falla que afecta el sistema automático de aterrizaje de falla-operacional (fail-operational). Una lista de estas fallas es mencionada en el AFM de la aeronave.
 - Por debajo del AH, se continuará con la aproximación (excepto si la luz de AUTOLAND se encendiera).
-[imagen]
 El AH se evalúa durante la certificación de la aeronave.
 El AH está conectado solamente con la probabilidad de falla(s) del sistema automático de aterrizaje. Los operadores pueden elegir un AH más bajo que el AH indicado en el AFM, pero nunca un valor más alto.
 ALCANCE VISUAL DE LA PISTA (Runway visual Range (RVR))
 Distancia hasta la cual el piloto de una aeronave que se encuentra sobre el eje de una pista puede ver las señales de superficie de la pista o las luces que la delimitan o que señalan su eje.
-ALCANCE VISUAL DE LA PISTA – CONCEPTO
+ALCANCE VISUAL DE LA PISTA - CONCEPTO
 Las operaciones de CAT II y III requieren una actualización rápida y reportes fidedignos de las condiciones de visibilidad que el piloto puede esperar en la zona de toque y a lo largo de la pista.
 La medida RVR remplaza la medida RVV (Valor de visibilidad Reportada) el cual no es adecuado para las condiciones a encontrarse en aproximación final y aterrizaje en baja visibilidad, porque las observaciones de visibilidad se hacen cientos de metros del umbral de la pista en uso y de su zona de toque.
 Nota: el RVR no es el alcance de visibilidad inclinada (SVR). El SVR es el alcance visual que va a tener el piloto de una aeronave en las etapas finales de una aproximación y aterrizaje desde donde puede ver marcas o luces según se describe en la definición de RVR.
-[imagen]
 ALCANCE VISUAL DE LA PISTA (RVR)- MEDIDA
 Para operaciones CAT II y III, la medida RVR es proporcionada por un sistema de transmisores calibrados que toman en cuenta la luz ambiental y la intensidad de las luces de pista.
 Este sistema de transmisores están localizados estratégicamente para dar medidas asociadas con tres porciones básicas de la pista:
@@ -12850,7 +13092,6 @@ Este sistema de transmisores están localizados estratégicamente para dar medid
 - La porción media de la pista (MID)
 - La porción de rodamiento de aterrizaje y de parada o el final de pista.
 Para operaciones CAT II la medida del TDZ es requerida, y para operaciones CAT III, la medida TDZ y MID son obligatorias. Para operaciones CAT III con los mínimos menores, las tres medidas son normalmente requeridas. Para CAT III sin DH, el RAC-OPS 1 requiere solamente un punto de medida de RVR en la pista.
-[imagen]
 Transmisor RVR
 Aproximación en circuito.
 Prolongación de un procedimiento de aproximación por instrumentos, que permite maniobrar alrededor del aeródromo, con referencias visuales, antes de aterrizar.
@@ -12914,7 +13155,7 @@ Aproximación y aterrizaje de precisión por instrumentos, con una altura de dec
 Operación de Categoría II (CAT II)
 Es una aproximación de precisión con mínimos meteorológicos como se mencionan seguidamente:
 Una aproximación Categoría II es una aproximación instrumental de precisión con una Altura de Decisión (DH) menor a 200 ft (60 mts) pero no inferior a 100 pies (30 metros), y un alcance visual en la pista (RVR) no inferior a 300 mts (1000 ft).
-CAT II – OBJETIVOS.
+CAT II - OBJETIVOS.
 El objetivo principal de operaciones CAT II es dar un nivel de seguridad equivalente a otras operaciones, pero en condiciones meteorológicas adversas y con menor visibilidad.
 El nivel deseado de seguridad se alcanza a través de:
 - Equipo abordo
@@ -12994,7 +13235,7 @@ Vuelo circulando (circling).
 Fase visual de una aproximación por instrumentos que sitúa a un avión en posición de aterrizaje en una pista que no está adecuadamente situada para una aproximación directa.
 Zona de toma de contacto (TDZ).
 Parte de la pista, situada después del umbral, destinada a que los aviones que aterrizan hagan el primer contacto con la pista.
-SUBPARTE C – EDTO
+SUBPARTE C - EDTO
 PROCESO DE APROBACIÓN PARA OPERACIONES EDTO
 1. OBJETIVO.
 Las operaciones realizadas con aviones de dos o más motores de turbina están sujetas a determinadas limitaciones peculiares, en cuanto a la separación máxima de la ruta con respecto a los posibles aeródromos alternativos de desviación.
@@ -13051,7 +13292,7 @@ El operador solicitante elevará una propuesta técnico-operativa, donde se cont
 La presentación se llevará a cabo con antelación suficiente para permitir el adecuado proceso de análisis y su eventual discusión, con vistas a definir la autorización en tiempo útil.
 Simultáneamente, se tramitarán las documentaciones referentes a los Manuales de Operaciones y de Mantenimiento, así como la MEL específica, incluyendo las revisiones de esta documentación que estará sujeta al proceso y análisis y aprobación subsiguiente.
 Como parte final si procede, se llevará a cabo el vuelo de evaluación o simulador, según la propuesta aceptada y su selección de tripulaciones.
-Cualquier modificación pretendida en las condiciones de la autorización –comprendiendo también las referidas a áreas de operación-, así como variaciones en las otorgadas con anterioridad a esta fecha, requerirán un trámite de aprobación similar a este.
+Cualquier modificación pretendida en las condiciones de la autorización -comprendiendo también las referidas a áreas de operación-, así como variaciones en las otorgadas con anterioridad a esta fecha, requerirán un trámite de aprobación similar a este.
 Los cambios de fase dentro del programa aprobado, serán notificados a la autoridad, previamente a su implementación.
 En la medida que corresponda, todo el personal involucrado en la operación EDTO será debidamente informado.
 La aprobación, en las condiciones que sea otorgada y de no indicar otra cosa, tendrá carácter indefinido -vinculada al Certificado de Operador Aéreo (COA), salvo suspensión o revocación expresas.
@@ -13218,7 +13459,7 @@ Diversas regiones del mundo están introduciendo los criterios RNP (Required Nav
 Según establecen los acuerdos regionales de navegación aérea coordinados por OACI, los operadores deben obtener aprobación RNP-10 emitida por el Estado del operador de la aeronave o Estado de matrícula para sobrevolar espacios aéreos oceánicos designados RNP-10.
 La implantación de la separación mínima de 50 MN con RNP-10 ha sido implementada satisfactoriamente, y mayores reducciones en estos mínimos serán introducidos en futuro, con parámetros RNP más rigurosos, lo que proporcionará beneficios a los operadores en términos de mayor número de rutas óptimas, reducción de demoras, incremento de flexibilidad y reducción de costos derivados de un uso más eficiente del espacio aéreo y del aumento del flujo de tráfico.
 2. OBJETIVO
-Este documento establece los requisitos de aeronavegabilidad y procedimientos operacionales, y las políticas de la DGAC para operadores en la utilización de los sistemas de navegación en las rutas o el espacio aéreo oceánico designado para operaciones RNP-10. Este documento no trata sobre requisitos de comunicación o seguimiento que pueden especificarse para operar en una ruta o área en particular. Estos requisitos pueden encontrarse en documentos como “Publicación de Información Aeronáutica” (AIP) y el Doc. 7030 de la OACI, “Regional Supplementary Procedures”.
+Este documento establece los requisitos de aeronavegabilidad y procedimientos operacionales, y las políticas de la DGAC para operadores en la utilización de los sistemas de navegación en las rutas o el espacio aéreo oceánico designado para operaciones RNP-10. Este documento no trata sobre requisitos de comunicación o seguimiento que pueden especificarse para operar en una ruta o área en particular. Estos requisitos pueden encontrarse en documentos como "Publicación de Información Aeronáutica" (AIP) y el Doc. 7030 de la OACI, "Regional Supplementary Procedures".
 Este documento provee material guía para explicar los conceptos y requisitos del espacio aéreo RNP.
 3. ALCANCE
 El ámbito de aplicación de este documento se extenderá a aeronaves con matrícula de los Estados asociados al sistema RAC, así como aquellas con matrícula extranjera que sean operados bajo un COA del Estado y que operen en el espacio aéreo o rutas oceánicas designadas RNP-10.
@@ -13297,7 +13538,7 @@ El operador debe solicitar la reunión de pre solicitud con la DGAC. La razón d
 (3) Limitaciones (si hubiera) en la aprobación; y
 (4) condiciones bajo las cuales la aprobación operacional podría cancelarse por la DGAC.
 9.3 FORMA DE APLICACIÓN
-Un ejemplo de la “Carta de Aplicación” del operador para obtener aprobación operacional RNP 10 se muestra en el Apéndice 3-A.
+Un ejemplo de la "Carta de Aplicación" del operador para obtener aprobación operacional RNP 10 se muestra en el Apéndice 3-A.
 9.4 DETERMINANDO ELEGIBILIDAD Y APROBACIÓN DE UNA AERONAVE PARA RNP 10
 Muchas aeronaves y sistemas de navegación se encuentran en uso en operaciones áreas oceánicas y remotas que califican para RNP 10 basados en cualquiera de los criterios de certificación. Así, no será necesaria para la mayoría de las aeronaves una certificación adicional para la aprobación RNP 10. En este caso, una certificación adicional será necesaria solamente si el operador solicita performance adicional del certificado como se establece en el Manual de Vuelo de la Aeronave (AFM) y el operador no puede demostrar a través de recolección de datos el performance requerido.
 10. APLICACIÓN
@@ -13322,7 +13563,7 @@ Los Manuales de la aeronave y una lista de los equipos de navegación del fabric
 10.1.6 Historia Operacional
 La historia operacional del aplicante deberá incluirse en la aplicación. El aplicante deberá incluir cualquier evento o incidente relacionado con errores de navegación, el(los) cual(es) ha(n) sido cubierto(s)/corregido(s) con entrenamiento, procedimientos, mantenimiento, o modificaciones al sistema de la aeronave/equipo de navegación que se va a utilizar. .
 10.1.7 Lista de Equipo Mínimo (MEL)
-La revisión necesaria del MEL para cumplir los requisitos del material guía para el RNP 10 deberá ser aprobada (Ej. si la aprobación es basada en “Triple-Mix”, el MEL debe reflejar que los tres sistemas de navegación deberán estar operativos).
+La revisión necesaria del MEL para cumplir los requisitos del material guía para el RNP 10 deberá ser aprobada (Ej. si la aprobación es basada en "Triple-Mix", el MEL debe reflejar que los tres sistemas de navegación deberán estar operativos).
 10.1.8 Mantenimiento
 Cuando aplique, el operador deberá someter un programa de mantenimiento para su aprobación, de acuerdo a RACS correspondientes al momento de su aplicación.
 10.2 EVALUACIÓN, INVESTIGACIÓN Y CANCELACIÓN
@@ -13333,7 +13574,7 @@ Después de concluido el proceso satisfactoriamente la aprobación para operar R
 La precisión de navegación demostrada dará las bases para determinar la separación lateral en ruta y separación mínima requerida por tráfico operando en una ruta dada. Así, errores laterales y longitudinales son investigados para evitar que ocurran nuevamente. Observaciones de radar de la proximidad de cada aeronave a su trayectoria y altitud, antes de llegar a cobertura de radio ayudas de corto alcance al final de un segmento oceánico, son reportadas por los Servicios de Tránsito Aéreo (ATS). Si una de estas observaciones indica que una aeronave no está dentro de los límites establecidos, la(s) razón(es) para la aparente desviación de la trayectoria o altitud deberán determinarse y tomar medidas para prevenir que esta(s) vuelva(n) a ocurrir.
 Adicionalmente, es una condición para la aprobación es que los pilotos/operadores notifiquen a la DGAC de cualquier desviación de navegación lateral de 15 MN o más, errores de navegación longitudinal de 10 MN o más o una variación de 3 minutos o más entre el tiempo estimado de llegada de la aeronave a un punto de reporte y su tiempo actual de llegada, o fallas en el equipo de navegación.
 10.2.3 Cancelación de la Aprobación de RNP 10
-Cuando sea apropiado, la DGAC podrá considerar cualquier reporte de error de navegación y determinar las acciones para remediarlo. El acontecimiento repetido de errores de navegación atribuidos a una parte específica del equipo de navegación, podría resultar en la cancelación de la aprobación para RNP 10 en los “OPSPECS” o de la Carta de Aprobación para operadores privados para el uso de este equipo. Es obligatorio para los operadores reportar errores de navegación ocasionados por fallas del equipo o de procedimientos (ver Apéndice 4 para reportes de errores de navegación).
+Cuando sea apropiado, la DGAC podrá considerar cualquier reporte de error de navegación y determinar las acciones para remediarlo. El acontecimiento repetido de errores de navegación atribuidos a una parte específica del equipo de navegación, podría resultar en la cancelación de la aprobación para RNP 10 en los "OPSPECS" o de la Carta de Aprobación para operadores privados para el uso de este equipo. Es obligatorio para los operadores reportar errores de navegación ocasionados por fallas del equipo o de procedimientos (ver Apéndice 4 para reportes de errores de navegación).
 Si hay información que indica el potencial para errores repetitivos, se podrá requerir modificaciones al programa de entrenamiento del operador. Información que atribuye errores múltiples a una tripulación específica se requerirá entrenamiento adicional o evaluación de la licencia.
 11. REQUISITOS RNP 10
 11.1 Requisitos Longitudinales y Transversales a la Trayectoria
@@ -13373,7 +13614,7 @@ Aeronaves no agrupadas son aquellas con las que el operador busca la aprobación
 NOTA: La recolección de datos por uno o más operadores podrá ser usada como base para la aprobación de otro operador y podría reducir el número de pruebas requeridas para obtener la aprobación para RNP 10. El Apéndice 6 da un ejemplo del procedimiento para recolección de datos y las formas a usarse.
 13. DETERMINANDO ELEGIBILIDAD DEL EQUIPO DE LA AERONAVE
 13.1 INTRODUCCIÓN
-Es importante anotar que las siguientes agrupaciones son diferentes de las discutidas en la sección 12. Los siguientes grupos son de “elegibilidad”. Estos grupos se establecieron para asistir en la discusión y no tienen una definición precisa. Las definiciones se usaron para asistir en determinar el método que podría usarse para la aprobación de la aeronave y su sistema de navegación. Debe agregarse que el sistema Doppler no puede aprobarse para RNP 10.
+Es importante anotar que las siguientes agrupaciones son diferentes de las discutidas en la sección 12. Los siguientes grupos son de "elegibilidad". Estos grupos se establecieron para asistir en la discusión y no tienen una definición precisa. Las definiciones se usaron para asistir en determinar el método que podría usarse para la aprobación de la aeronave y su sistema de navegación. Debe agregarse que el sistema Doppler no puede aprobarse para RNP 10.
 13.2 ELEGIBILIDAD DE LA AERONAVE A TRAVÉS DE CERTIFICACIÓN RNP (GRUPO 1)
 Aeronaves del Grupo 1 son aquellas que han obtenido certificación formal y aprobación RNP integrado a la aeronave (AFM).
 13.2.1 Cumplimiento RNP
@@ -13408,14 +13649,14 @@ Los sistemas multi-sensor que integran GPS con función RAIM, FDE o sistema equi
 Un programa de recolección de datos debe tratar los requisitos de precisión de navegación requeridos para RNP 10. La recolección de datos debe asegurar que el aplicante demuestre a la DGAC que la aeronave y el sistema de navegación proporcionen conciencia situacional de navegación (situational awareness) a la tripulación relativa a la ruta RNP 10 propuesta.
 La recolección de datos debe asegurar que se dé un entendimiento claro del estatus del sistema de navegación, y las indicaciones de falla y los procedimientos son consistentes para mantener el performance requerido de navegación.
 Dos tipos de recolección de datos se describen en este documento:
-(1) El método secuencial: es un programa de recolección de datos que cumple con el apéndice 1. Este método permite al operador recolectar datos y plotearlos contra los gráficos de “Aprueba / Falla” para determinar si el sistema de la aeronave del operador cumple con los requisitos RNP 10 por el período de tiempo solicitado por el operador; y
+(1) El método secuencial: es un programa de recolección de datos que cumple con el apéndice 1. Este método permite al operador recolectar datos y plotearlos contra los gráficos de "Aprueba / Falla" para determinar si el sistema de la aeronave del operador cumple con los requisitos RNP 10 por el período de tiempo solicitado por el operador; y
 (2) El método periódico: es un método de recolección de datos que utiliza un receptor GPS portátil como la base para recolectar datos INS, el cual se describe en el Apéndice 6. Los datos recolectados son entonces analizados para determinar si el sistema es capaz de mantener RNP 10 por el período de tiempo solicitado por el operador.
 13.5 OBTENCIÓN DE LA APROBACIÓN CON TIEMPO LÍMITE EXTENDIDO
 El tiempo límite base RNP 10 para aeronaves equipadas con INS y/o IRU, una vez que el equipo es puesto en modo de navegación se ha fijado en 6.2 horas, como se detalla en las Secciones 12.3.1, 12.3.2 and 12.3.3.
 Este tiempo límite puede extenderse por uno de los siguientes métodos:
 (1) Puede establecerse un tiempo límite extendido cuando el RNP está integrado dentro del sistema de navegación de la aeronave mediante la declaración de aeronavegabilidad expresa documentada en el Manual de Vuelo de la Aeronave (AFM) o Suplemento del mismo (según se describe en la Sección 13.2);
 (2) Cuando un INS o IRU ha sido aprobado utilizando un estándar de aprobación existente (según se detalla en las Secciones 13.3.1, 13.3.2 y 13.3.3), puede establecerse un límite de tiempo extendido mediante la correspondiente solicitud acompañada de datos justificativos para la DGAC;
-(3) Puede establecerse un tiempo límite extendido, mediante el empleo de múltiples sensores de navegación, demostrando que mezcla o promedia el error de navegación justifica tal extensión (por ejemplo, INS “triple mix”). Si el solicitante utiliza un tiempo límite mixto, entonces la disponibilidad de capacidad mixta debe encontrarse operativa desde el instante del despegue para operaciones RNP 10. Si la función mixta o media no está disponible en el despegue, entonces el solicitante debe utilizar un tiempo límite no mixto. El tiempo límite extendido se apoyará en un programa de recolección y análisis de datos; o
+(3) Puede establecerse un tiempo límite extendido, mediante el empleo de múltiples sensores de navegación, demostrando que mezcla o promedia el error de navegación justifica tal extensión (por ejemplo, INS "triple mix"). Si el solicitante utiliza un tiempo límite mixto, entonces la disponibilidad de capacidad mixta debe encontrarse operativa desde el instante del despegue para operaciones RNP 10. Si la función mixta o media no está disponible en el despegue, entonces el solicitante debe utilizar un tiempo límite no mixto. El tiempo límite extendido se apoyará en un programa de recolección y análisis de datos; o
 (4) Cuando un INS o IRU han sido aprobados con un estándar existente, el aplicante puede establecer un tiempo límite extendido conduciendo un programa de recolección de datos de acuerdo a las guías en los Apéndices 1 o 6.
 13.6 EFECTO DE ACTUALIZACIÓN EN RUTA
 Los operadores pueden aumentar la duración de la capacidad de navegación RNP 10 mediante procedimientos de actualización de la posición. Los incrementos de tiempo límite obtenidos por las diferentes técnicas de actualización se obtienen restando al tiempo límite aprobado los factores de tiempo indicados a continuación:
@@ -13434,7 +13675,7 @@ Si una actualización manual no está específicamente aprobada, esta no se perm
 (3) El operador proporcionará datos para establecer la precisión con la que el sistema de navegación podrá actualizarse manualmente con radio-ayudas representativas. Los datos proporcionados deberán mostrar la precisión de actualizaciones obtenidas en la operación. Este factor debe considerarse cuando se establezca el límite de tiempo para RNP 10 para sistemas INS o IRU (ver sección 13.6); y
 (4) Se verifica que el programa de calificación de tripulaciones de vuelo proporciones entrenamiento efectivo para pilotos.
 14. LISTA DE EQUIPO MÍNIMO (MEL)
-Si la aprobación de la operación RNP 10 está basada en procedimientos específicos (como el “triple-mix”), los operadores deberán ajustar el MEL y especificar los requisitos de despacho para la aeronave. Este deberá ser aprobado por la DGAC.
+Si la aprobación de la operación RNP 10 está basada en procedimientos específicos (como el "triple-mix"), los operadores deberán ajustar el MEL y especificar los requisitos de despacho para la aeronave. Este deberá ser aprobado por la DGAC.
 15. AERONAVEGABILIDAD CONTINUADA (REQUISITOS DE MANTENIMIENTO)
 El poseedor de la aprobación del diseño, incluyendo ya sea el certificado de tipo (TC) o certificado de tipo suplementario (STC) para cada instalación de sistemas de navegación, deberá proporcionar al menos un juego completo de instrucciones para aeronavegabilidad continuada, de acuerdo a los FARs/JARs sección 1529 Partes 23, 25, 27, 29, para requisitos de mantenimiento para operaciones conducidas de acuerdo a este documento y de acuerdo a cualquier requisito establecido en los RACs correspondientes.
 16. REQUISITOS OPERACIONALES
@@ -13444,7 +13685,7 @@ Aeronaves con capacidad RNP 10 deben mantener una precisión transversal y longi
 Todas las aeronaves operando en espacio aéreo oceánico o remoto RNP 10, excepto si así fuera aprobado por la DGAC, deberán tener al menos dos sistemas de navegación independiente, y de tal integridad, que no den información errónea.
 16.3 PLAN DE VUELO
 Los operadores deberán indicar la habilidad para alcanzar RNP 10 para la ruta o área de acuerdo al Doc. 4444 Apéndice 2, ítem 10 de OACI: equipamiento.
-La letra “R” deberá ponerse en el espacio 10 del plan de vuelo lo que indicará que el piloto ha:
+La letra "R" deberá ponerse en el espacio 10 del plan de vuelo lo que indicará que el piloto ha:
 (1) Revisado la ruta planificada de vuelo, incluyendo la(s) ruta(s) hacia aeródromos de alternativa, para identificar el tipo de RNP implicado;
 (2) Confirma que el operador y la aeronave han sido aprobados por la DGAC para operaciones RNP; y
 (3) Confirma que la aeronave puede ser operada de acuerdo a los requisitos RNP para la ruta de vuelo planeada, incluyendo la(s) ruta(s) a cualquier alterno(s).
@@ -13482,7 +13723,7 @@ El Doc. 9613 de OACI proporciona un medio aceptable de cumplimiento con los requ
 El Doc. 9613 de OACI proporciona un medio aceptable de cumplimiento con sistemas de navegación multisensores que incorporan GPS. Aeronaves que usarán GPS como el único sistema de navegación (Ej. sin INS o IRS) en rutas o espacio aéreo RNP 10, deben cumplir con los requisitos RAC y AIP, y cualquier otra documentación o circular operativa.
 17.2 CONFIGURACIÓN DEL EQUIPO - MEL
 La configuración del equipo utilizado para demostrar la precisión requerida debe ser idéntica a la configuración que se especifica en el MEL.
-17.3 CONFIGURACIÓN DEL EQUIPO – PRECISIÓN
+17.3 CONFIGURACIÓN DEL EQUIPO - PRECISIÓN
 La configuración del equipo utilizado para demostrar la precisión requerida debe de mantenerse en áreas remotas y oceánicas RNP 10. Por ejemplo, el beneficio estadístico de estimar la posición usando datos de posición INS filtrada con datos DME no se considerara.
 17.4 EQUIPAMIENTO- REGULACIONES
 El diseño de la instalación debe cumplir con los estándares de diseño que apliquen. Refiérase al RAC correspondiente.
@@ -13517,10 +13758,10 @@ Suponga por ejemplo, que un operador desea obtener aprobación RNP 10 para una a
 (b) Han pasado al menos 6 horas desde la última actualización del INS; y
 (c) La aeronave ha estado volando en línea recta por varios minutos, y se espera que la aeronave vuele en línea recta por varios minutos más; la tripulación registrará:
 (1) La hora;
-(2) La trayectoria deseada (desired track) o los puntos (waypoints) “de” y “para”;
+(2) La trayectoria deseada (desired track) o los puntos (waypoints) "de" y "para";
 (3) La posición reportada por el INS; y
 (4) La posición reportada por el sistema de múltiples DME. El operador calculará después el error lateral ci y longitudinal ai.
-El siguiente es un resumen no técnico en los pasos usados al recolectar, graficar y analizar los datos con el propósito de usar los gráficos de “Aceptación-Rechazo” en este apéndice. Los datos recolectados indican la diferencia entre el sistema de navegación de la aeronave y un sistema de referencia de mucha exactitud. La posición determinada desde el sistema de referencia es la posición actual de la aeronave. El punto en el que se deben tomar los datos es cuando se deja el espacio aéreo designado al final del vuelo.
+El siguiente es un resumen no técnico en los pasos usados al recolectar, graficar y analizar los datos con el propósito de usar los gráficos de "Aceptación-Rechazo" en este apéndice. Los datos recolectados indican la diferencia entre el sistema de navegación de la aeronave y un sistema de referencia de mucha exactitud. La posición determinada desde el sistema de referencia es la posición actual de la aeronave. El punto en el que se deben tomar los datos es cuando se deja el espacio aéreo designado al final del vuelo.
 (a) El operador recolecta los siguientes datos independientes en cada vuelo elegible:
 (1) En la trayectoria deseada de vuelo, el último punto de reporte y el siguiente punto de reporte (estos se deben tomar del plan de vuelo);
 (2) La posición computada de la aeronave por el sistema de referencia (Ej. DME/DME); y
@@ -13532,9 +13773,9 @@ NOTA: las mediciones (b) y (c) deben hacerse simultáneamente.
 (2) Error longitudinal (ai).
 (d) Error Lateral de Desviación (ci). Calcule la distancia perpendicular desde la posición computada de la aeronave calculada por el sistema de referencia a la posición de trayectoria deseada (La trayectoria deseada es una línea de círculo máximo entre el punto de reporte anterior y el punto de reporte siguiente).
 (e) Error Longitudinal (ai). Calcule la distancia entre la posición computada de la aeronave del sistema de referencia y la del sistema guía (INS, etc.), sobre una línea paralela a la trayectoria deseada de vuelo.
-(f) “Aceptación/Rechazo” en el Error Lateral de Desviación. Posterior al primer vuelo, los errores se suman (Ej. si el error fue de 2 MN en el primer vuelo y 3 MN en el segundo vuelo, entonces el error acumulativo será de 5). El error acumulativo es el valor de las coordenadas (el eje “y” en el sistema de coordenadas Cartesianas) y el número de pruebas es el valor en las coordenadas de la abscisa (el eje “x” en el sistema de coordenadas Cartesianas). La intersección de estos valores se grafica en la figura 1. Los requisitos de RNP 10 para el Error Lateral de Desviación se pasan cuando el punto de intersección de los dos valores cae debajo de la línea inferior “Aceptación” y no pasa si cae sobre la línea superior “Rechazo” para RNP 10.
-(g) “Aceptación/Rechazo” en el Error Longitudinal. Posterior al primer vuelo, los errores se elevan al cuadrado y luego del primer vuelo, los errores se suman (Ej. Si el error fue de 2 MN en el primer vuelo y de 3 MN en el segundo vuelo, entonces el error acumulativo es igual a 4 + 9 = 13). El error acumulado al cuadrado es el valor de las ordenadas (eje “y” en el sistema de coordenadas Cartesianas) y el número de pruebas es el valor de la abscisa (eje “x” en el sistema de coordenadas Cartesianas). La intersección de estos valores se grafica en la figura 2.
-Los requisitos para RNP 10 sobre el error longitudinal se pasan cuando el punto de intersección de los dos valores cae debajo de la línea inferior “Aceptación”, y no pasa si cae sobre la línea superior “Rechazo” para RNP 10.
+(f) "Aceptación/Rechazo" en el Error Lateral de Desviación. Posterior al primer vuelo, los errores se suman (Ej. si el error fue de 2 MN en el primer vuelo y 3 MN en el segundo vuelo, entonces el error acumulativo será de 5). El error acumulativo es el valor de las coordenadas (el eje "y" en el sistema de coordenadas Cartesianas) y el número de pruebas es el valor en las coordenadas de la abscisa (el eje "x" en el sistema de coordenadas Cartesianas). La intersección de estos valores se grafica en la figura 1. Los requisitos de RNP 10 para el Error Lateral de Desviación se pasan cuando el punto de intersección de los dos valores cae debajo de la línea inferior "Aceptación" y no pasa si cae sobre la línea superior "Rechazo" para RNP 10.
+(g) "Aceptación/Rechazo" en el Error Longitudinal. Posterior al primer vuelo, los errores se elevan al cuadrado y luego del primer vuelo, los errores se suman (Ej. Si el error fue de 2 MN en el primer vuelo y de 3 MN en el segundo vuelo, entonces el error acumulativo es igual a 4 + 9 = 13). El error acumulado al cuadrado es el valor de las ordenadas (eje "y" en el sistema de coordenadas Cartesianas) y el número de pruebas es el valor de la abscisa (eje "x" en el sistema de coordenadas Cartesianas). La intersección de estos valores se grafica en la figura 2.
+Los requisitos para RNP 10 sobre el error longitudinal se pasan cuando el punto de intersección de los dos valores cae debajo de la línea inferior "Aceptación", y no pasa si cae sobre la línea superior "Rechazo" para RNP 10.
 Los operadores que planeen el uso de su aeronave en un sistema de rutas en particular, deben reunir datos de errores de vuelos que usen ese sistema de rutas (Ejemplos NAT, NOPAC, CEPAC, etc.). Si las operaciones se planean para un área donde no se recolecte datos, el operador debe demostrar que el performance de la navegación no será degradado en esa área.
 El operador debe desarrollar un formulario donde se documente cada vuelo. Este debe incluir:
 (1) Fecha;
@@ -13559,8 +13800,8 @@ Procedimientos para muestras secuénciales se usan para determinar si una aerona
 Un procedimiento para muestras secuénciales típicamente requiere menos pruebas que la prueba estadística con un número fijo de pruebas y tiene la misma probabilidad de llegar a la decisión correcta. En general, mientras mejor navegue una aeronave, la menor cantidad de pruebas se necesitarán. Sin embargo, para que la DGAC tenga una muy alta confianza en el resultado de la prueba, aún si la aeronave navega perfectamente, se necesitará llevar a cabo al menos 13 pruebas para así demostrar que se cumple el criterio de Precisión Lateral para RNP 10 y al menos 19 pruebas para demostrar que cumple con el criterio de Precisión Longitudinal.
 Una aeronave que navega mal, necesitará también pocas pruebas antes de fallar la prueba. Esta prueba ha sido diseñada de manera que el promedio de número de pruebas para llegar a una decisión es aproximadamente de 100.
 3.2 PRUEBA DE CONFORMIDAD LATERAL
-Para establecer si el sistema de navegación cumple o no con los criterios de precisión lateral para RNP 10, el operador debe usar el proceso matemático descrito en este párrafo o usar los gráficos en la Figura 1. Después de llevar a cabo al menos 13 pruebas, el operador debe sumar todas las desviaciones laterales obtenidas hasta ese momento. Suponga que un número de pruebas n han sido hechas. Si la suma de desviaciones laterales no excede 2.968n – 37.853, la aeronave y sistema de navegación candidato han demostrado cumplimiento con el criterio de precisión lateral para RNP 10, y el operador debe parar de computar data de desviación lateral.
-Si la suma de la desviación lateral es igual o excede 2.968n + 37.853, la aeronave y el sistema de navegación candidato han demostrado que no cumplen con el criterio de precisión Lateral, y el operador debe parar de computar data de desviación lateral. Si la suma de la desviación lateral está entre 2.968n – 37.853 y 2.968n + 37.853, la prueba no lleva a ninguna decisión. El operador debe hacer otra prueba para obtener datos de desviación lateral adicionales. Esta nueva desviación se agrega a la suma obtenida previamente, y luego se compara con 2.968(n+1) - 37.853 y 2.968(n+1) + 37.853.
+Para establecer si el sistema de navegación cumple o no con los criterios de precisión lateral para RNP 10, el operador debe usar el proceso matemático descrito en este párrafo o usar los gráficos en la Figura 1. Después de llevar a cabo al menos 13 pruebas, el operador debe sumar todas las desviaciones laterales obtenidas hasta ese momento. Suponga que un número de pruebas n han sido hechas. Si la suma de desviaciones laterales no excede 2.968n - 37.853, la aeronave y sistema de navegación candidato han demostrado cumplimiento con el criterio de precisión lateral para RNP 10, y el operador debe parar de computar data de desviación lateral.
+Si la suma de la desviación lateral es igual o excede 2.968n + 37.853, la aeronave y el sistema de navegación candidato han demostrado que no cumplen con el criterio de precisión Lateral, y el operador debe parar de computar data de desviación lateral. Si la suma de la desviación lateral está entre 2.968n - 37.853 y 2.968n + 37.853, la prueba no lleva a ninguna decisión. El operador debe hacer otra prueba para obtener datos de desviación lateral adicionales. Esta nueva desviación se agrega a la suma obtenida previamente, y luego se compara con 2.968(n+1) - 37.853 y 2.968(n+1) + 37.853.
 En otras palabras, Sc,n = c1 + c2 + ... + cn es la suma de los valores absolutos de las desviaciones lateras obtenidas en las primeras n pruebas. Si Sc,n ≤ 2.968n - 37.853, la aeronave y su sistema de navegación pasaron la prueba de Conformidad Lateral. Si Sc,n ≥ 2.968n + 37.853, la aeronave y su sistema de navegación fallaron la prueba de Conformidad Lateral. Si 2.968n - 37.853 < Sc,n < 2.968n + 37.853, el operador debe:
 (1) Hacer otra prueba para obtener cn+1;
 (2) Computar Sc,n +1 = c1 + c2 + ... + cn + cn+1 (=Sc,n + cn+1);
@@ -13568,7 +13809,6 @@ En otras palabras, Sc,n = c1 + c2 + ... + cn es la suma de los valores absolutos
 (4) Determinar si la aeronave y el sistema de navegación candidato pasaron o fallaron la prueba, o si otra prueba (n + 2) es requerida.
 La Figura 1 muestra estas reglas para la prueba de Conformidad Lateral. El operador puede graficar los valores en la Figura 1 conforme los datos sean recolectados. La abscisa (componente horizontal) de cada punto graficado es n, el número de pruebas completadas; y las ordenadas (componente vertical) de cada punto es Sc,n , la suma de los valores absolutos de la desviación lateral observada en la n pruebas. La prueba finaliza tan pronto como el punto de intersección de estos valores cae en la región inferior derecha o superior izquierda del gráfico.
 Si el punto de intersección está en la región inferior, la aeronave y el sistema de navegación han demostrado que cumplen con el criterio de precisión lateral requerido para RNP 10. Si el punto está en la región superior izquierda, la aeronave y el sistema de navegación demostraron que no cumplen con el criterio de precisión lateral requerido para RNP 10. Cuando el punto cae en la región intermedia, el operador necesita acumular más data. En el caso de que la prueba de Sc,n no brinde una decisión sobre el rendimiento lateral de la aeronave después de 200 pruebas, el operador debe hacer los siguientes cálculos:
-[imagen]
 Si Dc2 no excede 18.649, la aeronave y el sistema de navegación cumplen con el criterio de precisión lateral para RNP 10. Si Dc2 excede 18.649, la aeronave y el sistema de navegación no cumplen con el criterio de precisión lateral para RNP 10 y no califica para aprobación RNP 10.
 3.3 PRUEBA DE PRECISIÓN LONGITUDINAL
 Para establecer si el sistema de navegación cumple con el criterio de Precisión Longitudinal para RNP 10, el operador puede utilizar el proceso matemático descrito abajo, o usar el gráfico mostrado como Figura 2.
@@ -13580,13 +13820,10 @@ En otras palabras, Sa,n = a2 + a12 +... + a22 es la suma de los cuadrados de los
 (4) Determinar si la aeronave y el sistema de navegación pasaron o fallaron la prueba, o si una prueba adicional (n + 2) es requerida.
 La Figura 2 muestra las reglas para la prueba de Precisión Longitudinal. El operador puede graficar los datos recopilados en la Figura 2. La abscisa (componente horizontal) de un punto trazado es n, el número de pruebas completadas; y la ordenada (componente vertical) de un punto trazado es Sa,n, ,la suma de los cuadrados de los errores longitudinales observados en las n pruebas. La prueba termina tan pronto el punto cae en la región inferior derecha o la región superior izquierda del gráfico. Si el punto cae en la región inferior derecha, la aeronave y el sistema de navegación han mostrado que cumplen con el criterio de precisión longitudinal para RNP 10. Si el punto cae en la región superior izquierda, la aeronave y su sistema de navegación han demostrado que no cumplen con el criterio de precisión longitudinal para RNP 10. Si el punto cae en la región intermedia, el operador necesita recolectar más data.
 En el caso de que con el procedimiento secuencial descrito arriba no se llegue a una decisión con respecto al performance longitudinal requerido después de 200 pruebas, el operador debe efectuar los siguientes cálculos:
-[imagen]
 Si Da 2 no excede 21.784, la aeronave y el sistema de navegación cumple con el criterio de Precisión Longitudinal para RNP 10. Si D 2 no excede 21.784, la aeronave y el sistema de navegación no cumplen con dicho criterio y no califica para una aprobación RNP 10.
 Figura 1: Aceptación, Rechazo, y Continuación Regiones de la Prueba Secuencial de Conformidad Lateral
-[imagen]
 Figura 2: Aceptación, Rechazo y Continuación
 Regiones de Prueba Secuencial de Precisión Longitudinal
-[imagen]
 APÉNDICE 2 - PROGRAMAS DE ENTRENAMIENTO, PRÁCTICAS Y
 PROCEDIMIENTOS OPERATIVOS
 1. INTRODUCCIÓN
@@ -13596,7 +13833,7 @@ Durante la etapa de planificación, la tripulación de vuelo de poner especial a
 Esto incluye pero no está limitado a:
 (1) Verificar que la aeronave está aprobada para operaciones RNP 10;
 (2) Que se tomó en cuenta el Tiempo Límite aprobado para RNP 10 ;
-(3) Verificar que la letra ‘R’ esté anotada en el Espacio 10 del plan de vuelo OACI;
+(3) Verificar que la letra 'R' esté anotada en el Espacio 10 del plan de vuelo OACI;
 (4) Confirmar los requisitos de GPS, como el FDE, si estos fueran adecuados para la operación; y
 (5) Tomar en cuenta cualquier restricción relacionada a la aprobación RNP 10, si se requiere para un sistema de navegación específico.
 3. PROCEDIMIENTOS DE PREVUELO EN LA AERONAVE PARA CADA VUELO
@@ -13614,7 +13851,7 @@ Las tripulaciones deben avisar al ATC de cualquier deterioro o fallo del equipo 
 El poseedor del COA debe asegurar que sus tripulaciones de vuelo han sido entrenadas y tienen conocimiento de los tópicos contenidos en este documento, los límites y capacidades de navegación RNP 10, los efectos de actualización del sistema de navegación, y los procedimientos de contingencia RNP 10.
 Los operadores privados deben demostrar a la DGAC que los pilotos tienen conocimiento de la operación en RNP 10. Este documento provee un material guía apropiado.
 Se debe establecer por el operador un procedimiento para asegurar el entrenamiento recurrente y competencia de las tripulaciones para RNP10, el cual debe incluirse en el programa de entrenamiento y aprobarse por la Autoridad.
-APÉNDICE 3-A - EJEMPLO DE “CARTA DE SOLICITUD”
+APÉNDICE 3-A - EJEMPLO DE "CARTA DE SOLICITUD"
 PARA APROBACIÓN RNP 10
 Jefe de Operaciones de Vuelo
 Autoridad de Aviación Civil de (estado)
@@ -13634,13 +13871,13 @@ Firma
 (Nombre)
 (Título)
 (Fecha)
-APÉNDICE 3-B - EJEMPLO DE “CARTA DE APROBACIÓN” PARA
+APÉNDICE 3-B - EJEMPLO DE "CARTA DE APROBACIÓN" PARA
 OPERACIONES RNP 10
 CARTA DE APROBACIÓN N° RNP10-.................. (Insertar número de secuencia)
 Yo,. .........................................................., Jefe del Departamento de Operaciones de la DGAC de .................... (Estado), estoy satisfecho que el operador, aeronave(s) y equipos de navegación, cumplen los requisitos para operar en rutas y espacio aéreo designado RNP 10 con el tiempo límite establecido de (horas), de acuerdo con los Procedimientos Suplementario Regionales de OACI (Doc. 7030)
 OPERADOR: ....................................................................................................
-AERONAVE: (Marca, Modelo y Registro)………………………......................... …......................................................................................................................
-SISTEMAS DE NAVEGACIÓN: (Tipo, Fabricante, Modelo y Tiempo Límite).. ......................................................................................................................... ......................................................................................................................... ……………………………………………………………………………………….. ………………………………………………..
+AERONAVE: (Marca, Modelo y Registro).................................. .......................................................................................................................
+SISTEMAS DE NAVEGACIÓN: (Tipo, Fabricante, Modelo y Tiempo Límite).. ......................................................................................................................... ......................................................................................................................... ................................... ....................
 Por la Autoridad de Aviación Civil
 (Fecha)
 APÉNDICE 4 - FORMULARIO DE NOTIFICACIÓN DE
@@ -13702,27 +13939,27 @@ El operador entrega la aplicación formal de acuerdo con lo esperado después de
 1.5 ENTRENAMIENTO DE TRIPULACIONES
 El espacio aéreo RNP 10 es un espacio aéreo especial. No existen requisitos especiales para los operadores privados para tener un entrenamiento específico para operaciones RNP 10, sin embargo, las reglas OACI demandan a los Estados asegurar que los tripulantes de vuelo estén calificados en espacios aéreos especiales; de manera que a las tripulaciones de los operadores privados se les requerirá estar debidamente calificados para operar en especio/rutas RNP 10 a satisfacción de la DGAC.
 1.6 EL OPERADOR RECIBE LA AUTORIZACIÓN PARA OPERAR RNP 10
-La aprobación para operación en espacio aéreo y rutas RNP 10 se incluirá en las especificaciones de operación “OP-SPECS”. Para operadores privados se emitirá una “Carta de Aprobación” la cual deberá portarse abordo todo el tiempo.
+La aprobación para operación en espacio aéreo y rutas RNP 10 se incluirá en las especificaciones de operación "OP-SPECS". Para operadores privados se emitirá una "Carta de Aprobación" la cual deberá portarse abordo todo el tiempo.
 1.7 TRIPULACIONES AUTORIZADAS PARA OPERAR RNP 10
 Las tripulaciones están autorizadas a operaciones en RNP 10 por el tiempo autorizado y dentro de los parámetros establecidos de la configuración de su sistema de navegación.
 2. FUNCIONES DEL INSPECTOR DE OPERACIONES
-Estas se describen en forma de “lista de verificación”.
+Estas se describen en forma de "lista de verificación".
 LISTA DE VERIFICACIÓN DEL INSPECTOR DE OPERACIONES
-APLICANTE …………………………………………………………. | SECCIÓN | INICIALES IO | FECHA
+APLICANTE ....................... | SECCIÓN | INICIALES IO | FECHA
 1. Familiarización del IO con el proceso de aprobación | Sección 8 | |
 2. Establecer la reunión de presolicitud | Sección 8.2 | |
-❑ Reunión de aplicación: IO………………………………………… • conocimiento del aplicante de este documento • Verificar la documentación • Límite de tiempo solicitado para la operación RNP • Documentación de Aeronavegabilidad • OP-SPECS actuales • Copia de las secciones pertinentes del AFM • Listado del número y tipo del sistema de navegación de larga distancia (LRNS) (Ej. 3 x Litton 92, INS) • Descripción de la integración del LRNS • Descripción del procedimiento de actualización del sistema si se utiliza • Revisión del programa de entrenamiento • Asuntos relacionados a la operación en RNP 10 • Procedimientos de contingencia RNP 10 • Procedimiento de actualización del sistema y sus implicaciones en la navegación. | | |
-— Evaluación del sistema LRNS del operador • Escoger uno de los siguiente medio por el cual se va a emitir la autorización • El operador tiene una entrada en el AFM u otra documentación dando la certificación para RNP 10 o mejor para un Tiempo Límite específico (Grupo I). • Plan para aprobar al operador para navegación RNP 10 sin límite de tiempo si uno o ambos sistemas de navegación LRNS requeridos es una unidad GPS y la unidad es integrada a instrumento de guía primario de la tripulación. • Aprobación del operador por el valor y tiempo especificado en el AFM. • Aprobación del operador para RNP 10 por 6.2 horas basado en el Apéndice 8 de esta guía. b- Si el operador solicita aprobación para un tiempo límite extendido, se discutirá sobre uno de los procedimientos para la extensión de tiempo límite. • Solicitar que datos de performance operacional de navegación sean presentaos (Grupo III). • Determinar si el operador tiene procedimientos de actualización (update). Si la respuesta es afirmativa, el procedimiento para su utilización debe estar en el programa de entrenamiento y las tripulaciones deben de conocer su uso y su efecto en la navegación. Si la respuesta es negativa, se debe advertir al operador que el programa de recolección de datos basado en uno de los siguientes será requerido antes de la aprobación: Recolección de datos secuenciales–Apéndice 1 de esta guía. Recolección de datos periódicos- Apéndice 6 de esta guía. | Sección 12 Sección 12.2 Sección 12.3 Sección 12.4 | |
+❑ Reunión de aplicación: IO................ . conocimiento del aplicante de este documento . Verificar la documentación . Límite de tiempo solicitado para la operación RNP . Documentación de Aeronavegabilidad . OP-SPECS actuales . Copia de las secciones pertinentes del AFM . Listado del número y tipo del sistema de navegación de larga distancia (LRNS) (Ej. 3 x Litton 92, INS) . Descripción de la integración del LRNS . Descripción del procedimiento de actualización del sistema si se utiliza . Revisión del programa de entrenamiento . Asuntos relacionados a la operación en RNP 10 . Procedimientos de contingencia RNP 10 . Procedimiento de actualización del sistema y sus implicaciones en la navegación. | | |
+- Evaluación del sistema LRNS del operador . Escoger uno de los siguiente medio por el cual se va a emitir la autorización . El operador tiene una entrada en el AFM u otra documentación dando la certificación para RNP 10 o mejor para un Tiempo Límite específico (Grupo I). . Plan para aprobar al operador para navegación RNP 10 sin límite de tiempo si uno o ambos sistemas de navegación LRNS requeridos es una unidad GPS y la unidad es integrada a instrumento de guía primario de la tripulación. . Aprobación del operador por el valor y tiempo especificado en el AFM. . Aprobación del operador para RNP 10 por 6.2 horas basado en el Apéndice 8 de esta guía. b- Si el operador solicita aprobación para un tiempo límite extendido, se discutirá sobre uno de los procedimientos para la extensión de tiempo límite. . Solicitar que datos de performance operacional de navegación sean presentaos (Grupo III). . Determinar si el operador tiene procedimientos de actualización (update). Si la respuesta es afirmativa, el procedimiento para su utilización debe estar en el programa de entrenamiento y las tripulaciones deben de conocer su uso y su efecto en la navegación. Si la respuesta es negativa, se debe advertir al operador que el programa de recolección de datos basado en uno de los siguientes será requerido antes de la aprobación: Recolección de datos secuenciales-Apéndice 1 de esta guía. Recolección de datos periódicos- Apéndice 6 de esta guía. | Sección 12 Sección 12.2 Sección 12.3 Sección 12.4 | |
 | Sección 12.5 y 12.6 Apéndice 1 Apéndice 6 | |
-❑ Reunión de Análisis de Datos • Chequear todos los datos requeridos y discutidos en la reunión se solicitud • Estar atento que la documentación sea consistente con el equipo instalado en la aeronave. • Chequear el currículo de entrenamiento y en el caso de operadores privados, el conocimiento de la persona que certifica el conocimiento de los tripulantes. • Si se requiere recolección de datos, estos deben examinarse cuidadosamente. Si existe alguna duda sobre la validez o integridad de los datos, se debe contactar un especialista de la DGAC. | Apéndices 1 y 6 | |
-6- Emisión de los “OP-SPECS” o de la “Carta de Aprobación” | Apéndice 3B | |
+❑ Reunión de Análisis de Datos . Chequear todos los datos requeridos y discutidos en la reunión se solicitud . Estar atento que la documentación sea consistente con el equipo instalado en la aeronave. . Chequear el currículo de entrenamiento y en el caso de operadores privados, el conocimiento de la persona que certifica el conocimiento de los tripulantes. . Si se requiere recolección de datos, estos deben examinarse cuidadosamente. Si existe alguna duda sobre la validez o integridad de los datos, se debe contactar un especialista de la DGAC. | Apéndices 1 y 6 | |
+6- Emisión de los "OP-SPECS" o de la "Carta de Aprobación" | Apéndice 3B | |
 APÉNDICE 6 - PROCESO DE RECOLECCIÓN DE DATOS (MÉTODO
 PERIÓDICO)
 1. INTRODUCCIÓN
 Esta sección describe los procedimientos de recolección de datos aprobados en base al análisis de datos y múltiples vuelos de validación.
 Hay dos métodos por los que estos datos pueden ser recolectados. Un procedimiento se basa en la utilización de un GPS de mano como la base para determinar la posición correcta con lecturas del GPS y datos recolectados por un miembro de la tripulación no esencial. Solo miembros autorizados de la tripulación pueden operar el sistema de navegación. A pesar de no tener especificaciones técnicas para el uso de la unidad GPS, se solicitará al operador utilizar una unidad de la mejor calidad disponible. Unidades de baja calidad pueden fallar o mostrar datos erróneos que distorsionará la recolección de datos y hará el proceso más largo y caro.
 El segundo método utiliza la posición de una puerta sin actualizar (update), como un punto de datos para hacer los cálculos al final del apéndice para determinar los límites RNP 10.
-Los operadores que quieran utilizar este proceso de “posición de puerta”, no necesitan usar las páginas de datos y pueden ir directamente a la página de destino y recoger los datos de posición en la puerta y el tiempo desde la última actualización (update).
+Los operadores que quieran utilizar este proceso de "posición de puerta", no necesitan usar las páginas de datos y pueden ir directamente a la página de destino y recoger los datos de posición en la puerta y el tiempo desde la última actualización (update).
 2. INSTRUCCIONES GENERALES
 2.1 ACTUALIZACIÓN GPS
 Los pilotos no deben actualizar el INS con la posición del GPS. Hacer esto invalidará la recolección de datos
@@ -13735,8 +13972,8 @@ Refiérase a la página 1 de las páginas de datos después de esta sección y:
 (1) Registrar cualquier movimiento inusual de la aeronave durante la inicialización del INS antes de seleccionar el modo de NAV, como ráfagas de viento, vehículos de servicio moviendo el avión, etc.
 (2) Si hubiera algún movimiento inusual durante el alineamiento del INS, registrar la trayectoria de INS (TK/GS) luego de seleccionar el modo de NAV;
 (3) Registrar las coordenadas de la puerta y/o la posición del GPS donde el INS se inicializó.
-(4) Se seleccionó “triple-mix”? Chequear “si” o “no”; y
-(5) Chequear si la actualización es por radionavegación. Contestar “si” o “no”.
+(4) Se seleccionó "triple-mix"? Chequear "si" o "no"; y
+(5) Chequear si la actualización es por radionavegación. Contestar "si" o "no".
 2.5 HORAS
 Refiérase a la página 1 de las páginas de datos después de esta sección y:
 (1) Antes de la salida, registrar la hora en que se observó a los pilotos seleccionar el modo de NAV en los INS;
@@ -13745,21 +13982,21 @@ Refiérase a la página 1 de las páginas de datos después de esta sección y:
 (4) Registrar hora de llegada a la puerta (IN).
 2.6 POSICIÓN DE LA PUERTA DE DESTINO
 Refiérase a las páginas 4 y 5 de las páginas de datos después de esta sección y:
-(1) Los pilotos no deben remover la actualización del INS hasta que se haya registrado la actualización INS /posición “triple-mix”.
+(1) Los pilotos no deben remover la actualización del INS hasta que se haya registrado la actualización INS /posición "triple-mix".
 (2) Registrar el número de puerta del destino, la posición publicada, el número de satélites a la vista, valores GPS DOP y EPE, y la posición del GPS;
-(3) Registrar la posición actualizada / “triple-mix”;
+(3) Registrar la posición actualizada / "triple-mix";
 (4) Remover la actualización del INS;
 (5) Registrar la posición no actualizada del INS y la distancia de la posición de la puerta; y
 (6) Los datos del INS deberán registrarse en la bitácora de mantenimiento.
 2.7 LECTURAS DE POSICIÓN CADA 1/2 HORA
 Refiérase a la página 2 y posterior de las páginas de datos después de esta sección y:
-(1) Cada 30 minutos posterior al despegue (tiempo OFF del ACARS), más / menos 5 minutos, registre la posición GPS e INS. No registrar datos durante el ascenso o descenso, durante cambios de “waypoint” o a cualquier otro momento en que la tripulación esté ocupada con otras tareas, como ATC o comunicación con cabina;
+(1) Cada 30 minutos posterior al despegue (tiempo OFF del ACARS), más / menos 5 minutos, registre la posición GPS e INS. No registrar datos durante el ascenso o descenso, durante cambios de "waypoint" o a cualquier otro momento en que la tripulación esté ocupada con otras tareas, como ATC o comunicación con cabina;
 (2) Registrar la trayectoria deseada del INS (DSRTK/STS);
-(3) Registrar el último y el siguiente “waypoint”, la latitud/longitud y los nombres;
+(3) Registrar el último y el siguiente "waypoint", la latitud/longitud y los nombres;
 (4) Congelar la posición del INS y del GPS simultáneamente.
 (5) Registrar la posición GPS;
-(6) Registrar la posición del INS actualizada /”triple-mix” (seleccionar HOLD y POS);
-(7) Registrar la posición no actualizada del INS (Inercial). (HOLD y WAY PT, selector de “waypoint” diferente a 0); y
+(6) Registrar la posición del INS actualizada /"triple-mix" (seleccionar HOLD y POS);
+(7) Registrar la posición no actualizada del INS (Inercial). (HOLD y WAY PT, selector de "waypoint" diferente a 0); y
 (8) Liberar el congelamiento del INS y del GPS.
 2.8 ACTUALIZACIÓN EN RUTA DEL INS
 NOTA: No hay ejemplo de actualización con radionavegación.
@@ -13768,7 +14005,7 @@ Use esta sección solo si se va a evaluar la actualización manual:
 (2) Registrar el número de satélites GPS a la vista en el GPS PDOP; (3) Registrar la hora cuando las coordenadas del INS se congelan antes de que la
 actualización se haga; y
 (4) Después de congelar la posición del INS y antes de la posición se actualice:
-(a) Registrar la posición INS actualizada / “triple-mix” y la posición no actualizada (inercial) de INS; y
+(a) Registrar la posición INS actualizada / "triple-mix" y la posición no actualizada (inercial) de INS; y
 (b) Registrar la posición del GPS.
 2.9 ACTUALIZACIÓN DEL INS POR RADIO NAVEGACIÓN
 NOTA: No hay ejemplo de actualización con radionavegación.
@@ -13785,9 +14022,9 @@ Aeródrom o de Salida | | Aeródromo de Destino | | |
 Tipo de Aeronave | | # de Aeronave | | Registro |
 Capitán | | # Empleado | | |
 INICIALIZACIÓN DEL INS
-Hubo eventos de movimiento durante el alineamiento | Si No | Si la respuesta fue “Si” indique la trayectoria (track)(TK/GS) | TK:
+Hubo eventos de movimiento durante el alineamiento | Si No | Si la respuesta fue "Si" indique la trayectoria (track)(TK/GS) | TK:
 De una breve descripción del evento
-Inicialización del INS (publicado o GPS) | N/S | E/W | “Triple Mix” seleccionado | Si No
+Inicialización del INS (publicado o GPS) | N/S | E/W | "Triple Mix" seleccionado | Si No
 Actualización por Radio navegación | Si No | | |
 HORAS
 OFF | : Z | Tiempo en modo NAV antes del despegue | Hrs M in |
@@ -13803,7 +14040,7 @@ Capitán | | # Empleado | | |
 PUNTO DE DATOS 1 | Hora | : Z EPE: | Altitud |
 GPS | # de SV: | DOP: | |
 Posición GPS | N/S: | E/W:
-Posición Actualizada/”Triple Mix” | | Posición No Actualizada |
+Posición Actualizada/"Triple Mix" | | Posición No Actualizada |
 | INS 1 | |
 | INS 2 | |
 | INS3 | |
@@ -13813,7 +14050,7 @@ Siguiente punto de Chequeo (Waypoint) | Nombre: | N/S: E/W:
 PUNTO DE DATOS 2 | Hora | : Z EPE: | Altitud |
 GPS | # de SV: | DOP: | |
 Posición GPS | N/S: | E/W:
-Posición Actualizada/”Triple Mix” | | Posición No Actualizada |
+Posición Actualizada/"Triple Mix" | | Posición No Actualizada |
 | INS 1 | |
 | INS 2 | |
 | INS3 | |
@@ -13828,7 +14065,7 @@ Capitán | | # Empleado | | |
 PUNTO DE DATOS 3 | Hora | : Z EPE: | Altitud |
 GPS | # de SV: | DOP: | |
 Posición GPS | N/S: | E/W:
-Posición Actualizada/”Triple Mix” | | Posición No Actualizada |
+Posición Actualizada/"Triple Mix" | | Posición No Actualizada |
 | INS 1 | |
 | INS 2 | |
 | INS3 | |
@@ -13837,7 +14074,7 @@ Siguiente punto de Chequeo (Waypoint) | Nombre: | N/S: E/W:
 PUNTO DE DATOS 4 | Hora | : Z EPE: | Altitud |
 GPS | # de SV: | DOP: | |
 Posición GPS | N/S: | E/W:
-Posición Actualizada/”Triple Mix” | | Posición No Actualizada |
+Posición Actualizada/"Triple Mix" | | Posición No Actualizada |
 | INS 1 | |
 | INS 2 | |
 | INS3 | |
@@ -13850,7 +14087,7 @@ Tipo de Aeronave | | # de Aeronave | | Registro |
 Capitán | | # Empleado | | |
 Nota: Copie las páginas previas para recolectar puntos de datos en exceso de 4 según se necesite para las horas totales de vuelo. Utilice los procedimientos que siguen a la página de destino para analizar los datos.
 Página de Datos / Destino
-Nota: No remueva la posición actualizada/”Triple Mix” hasta que estas sean registradas.
+Nota: No remueva la posición actualizada/"Triple Mix" hasta que estas sean registradas.
 Vuelo # | | UTC | | Fecha |
 Aeródromo de Salida | | Aeródromo de Destino | | |
 Tipo de Aeronave | | # de Aeronave | | Registro |
@@ -13868,7 +14105,7 @@ Posición | | Compañía |
 Dirección |
 Teléfono Oficina | | Teléfono Residencia | | Fax |
 Dirección electrónica |
-3.0 Recolección de Datos, Método Periódico – Técnica de reducción de datos para RNP10
+3.0 Recolección de Datos, Método Periódico - Técnica de reducción de datos para RNP10
 a. Recolecte los datos de referencia (GPS) y INS/IRU al menos cada 30 minutos después de alcanzar la altitud de crucero inicial. (Lat, Long, Altitud y hora al mismo tiempo para cada sistema)
 b. Determine el error Norte-Sur y Este, Oeste en MN. (La diferencia entre la posición del GPS y el INS/IRU en MN)
 c. Grafique el error de posición (usando el GPS como referencia) contra la hora para cada vuelo
@@ -13876,21 +14113,19 @@ d. Debido a que la hora actual de la medida y el intervalo de tiempo de la prueb
 e. A cada intervalo de tiempo, calcule el error de posición de radial para cada vuelo. (Esto requiere interpolación de los datos de Norte-Sur, Este-Oeste de los gráficos)
 f. Estos datos de error de radial son los que utilizaremos para determinar el nivel de error porcentual de 95. El nivel de error de 95 es utilizado aquí para significar que es un 95% probable que el error en un vuelo en particular caerá por debajo de este nivel o que el error estará por debajo de este nivel en el 95% de los vuelos si el número de vuelos es grande.
 g. Luego de recolectar los datos para todos los vuelos, calcule la raíz cuadrada media (RMS) y la media geométrica(GM) del error de radial para cada punto de datos de tiempo transcurrido. También determine la relación de GM/RMS para cada punto de datos de tiempo transcurrido.
-[imagen]
 Donde:
 r = error radial en puntos de posición; y
 n= número de observaciones de errores de radial a intervalos de tiempo espaciados de manera igual.
 H Utilizando la curva P=95 de la figura 3
-[imagen]
 4.0 Ejemplo Método Periódico
-Como un ejemplo, un conjunto de datos de 6 vuelos es utilizado (en la práctica, una cantidad mayor de datos deberá utilizarse para más seguridad). Para simplificar la ilustración, este ejemplo utiliza solo la posición de “Triple Mix” después de 10 horas en modo “nav”(este tiempo es una selección arbitraria para ilustrar la manera de hacer el cálculo). Datos de las unidades individuales de navegación no se incluyen en este ejemplo; si se utilizaran, su cálculo se haría exactamente de la misma manera que el “Triple Mix” calculado en este ejemplo. Si un operador decide utilizar la posición de puerta, solo se debe usar la Figura 4.
+Como un ejemplo, un conjunto de datos de 6 vuelos es utilizado (en la práctica, una cantidad mayor de datos deberá utilizarse para más seguridad). Para simplificar la ilustración, este ejemplo utiliza solo la posición de "Triple Mix" después de 10 horas en modo "nav"(este tiempo es una selección arbitraria para ilustrar la manera de hacer el cálculo). Datos de las unidades individuales de navegación no se incluyen en este ejemplo; si se utilizaran, su cálculo se haría exactamente de la misma manera que el "Triple Mix" calculado en este ejemplo. Si un operador decide utilizar la posición de puerta, solo se debe usar la Figura 4.
 Símbolos utilizados en los cálculos:
 r = Error de Radial
 r2 = El cuadrado del Error de Radial
 IIr = Producto de los errores de radial
 £ = Sumatoria
 £r2 = Sumatoria de los cuadrados de los Errores de Radial
-Figura 4. Tabla de Errores de Radial “r” (Utilizando datos recolectados en vuelo)
+Figura 4. Tabla de Errores de Radial "r" (Utilizando datos recolectados en vuelo)
 Vuelo | Error de Radial = r | r2
 1 | 6.5 | 42.25
 2 | 5.5 | 30.25
@@ -13901,7 +14136,6 @@ Vuelo | Error de Radial = r | r2
 El producto (II) de errores de radial (columna 2) = 320,360
 La suma de los errores de radial al cuadrado (r2)(columna 3) = 530.63
 Calculo:
-[imagen]
 Relación: GM/RMS = 8.27 / 9.40 = 0.88
 Encontrar este valor (0.88) en el eje de las abscisas de la figura 3 e intercepte la curva de 95% y el r(95) /RMS (en el eje de las ordenadas).
 Entonces r(95) /RMS = 1.47 (para este ejemplo)
@@ -13916,7 +14150,6 @@ Nota: No se da recolección de datos, pero los cálculos se realizarían exactam
 (2) La cantidad de II (Cantidad de vuelo) = = GM
 (3) La sumatoria de los errores de radial al cuadrado (£r2)(columna 4)=
 (4)
-[imagen]
 Después de calcular (2) y (4) use la figura 3 para determinar r(95). Multiplique este factor por el RMS para determinar la desviación en NM. Si este valor es menor de 10 MN, entonces el sistema de navegación podrá aprobarse para RNP 10 por el tiempo en NAV de este vuelo. Note que estos datos son para un solo vuelo, y estos deben ser recolectados de la misma manera e idénticos intervalos de tiempo para un mínimo de 20 vuelos.
 APÉNDICE 7 - PROCEDIMIENTO APROBADO PARA ACTUALIZACIÓN
 PARA OPERACIONES RNP 10
@@ -13931,7 +14164,7 @@ Las condiciones bajo las cuales uno de los métodos se utilizará son las siguie
 (4) La tripulación de vuelo debe tener en su posesión la información especificada en este apéndice.
 2. DATOS REQUERIDOS MANDATORIOS QUE DEBEN ACOMPAÑAR LOS MÉTODOS DE ACTUALIZACIÓN (REQUERIDO PARA CADA VUELO JUNTO CON LA CARTA DE PLOTEO)
 [imagen]
-INICIALIZACIÓN – INS
+INICIALIZACIÓN - INS
 Hubo algún evento de movimiento durante el alineamiento? | Si No |
 Si la respuesta es Si, trayectoria del INS | (TK/GS) | ° |
 Breve descripción del evento
@@ -13962,13 +14195,13 @@ Los operadores privados que utilicen procedimientos de actualización manual deb
 (2) La tripulación de vuelo debe sintonizar la facilidad VOR/DME o TACAN de referencia y preseleccionar el curso adecuado en el CDI. Cuando el CDI se centra, la tripulación de vuelo anotará la distancia desde la facilidad VOR/DME o TACAN y la marcará en la carta de ploteo.
 La tripulación anotará la posición inercial de cada uno de los INS operativos. La tripulación comparará la posición inercial y la posición derivada. La tripulación utilizará la posición derivada (expresada en latitud/longitud) para actualizar la posición inercial. Este procedimiento dará un medio para arrancar nuevamente el reloj de RNP 10 por un tiempo adicional predeterminado.
 (3) Para realizar esta actualización manual, la tripulación de vuelo debe tener una carta para plotear que muestre el fijo en la ruta y los fijos DME en incrementos de una milla, localizados sobre la línea perpendicular o casi perpendicular a la ruta sobre el eje de la radial VOR/TACAN utilizada para definir el fijo. Cada fijo se mostrará en distancia DME y coordenadas de latitud/longitud.
-(4) Se utilizarán dos fijos a lo largo de la ruta, uno a cada lado del fijo “de actualización” y se anotarán las coordenadas en la carta de ploteo. La tripulación usará estos fijos para validar la actualización de la posición. Este método es similar al utilizado cuando se vuelo en una ruta que pase sobre una facilidad VOR/DME o TACAN. Es imperativo para las tripulaciones recordar que estos fijos adicionales se usan solamente para verificación, no para actualización.
+(4) Se utilizarán dos fijos a lo largo de la ruta, uno a cada lado del fijo "de actualización" y se anotarán las coordenadas en la carta de ploteo. La tripulación usará estos fijos para validar la actualización de la posición. Este método es similar al utilizado cuando se vuelo en una ruta que pase sobre una facilidad VOR/DME o TACAN. Es imperativo para las tripulaciones recordar que estos fijos adicionales se usan solamente para verificación, no para actualización.
 Ellos proveen, sin embargo, de un medio de verificación de la actualización.
 5. MÉTODO 2: ACTUALIZACIÓN MANUAL CUANDO SE VUELE UNA RUTA DEFINIDA POR UNA FACILIDAD VOR/DME O TACAN
-(1) La exactitud de la actualización manual cuando se vuele sobre una facilidad VOR/DME o TACAN es dudosa debido al “cono de confusión” sobre la facilidad y varía en función de la altitud de la aeronave. Para incrementar la exactitud de la actualización manual en esta situación, se recomienda crear una carta de ploteo que indique fijos sobre la ruta a una distancia mínima de 50 MN de la facilidad y no mayor de 60 MN. Estos fijos mostrarán la distancia y curso a la facilidad y su latitud/longitud expresadas en décimas de grado. Las distancias especificadas minimizan el error de distancia y el ancho de la radial.
+(1) La exactitud de la actualización manual cuando se vuele sobre una facilidad VOR/DME o TACAN es dudosa debido al "cono de confusión" sobre la facilidad y varía en función de la altitud de la aeronave. Para incrementar la exactitud de la actualización manual en esta situación, se recomienda crear una carta de ploteo que indique fijos sobre la ruta a una distancia mínima de 50 MN de la facilidad y no mayor de 60 MN. Estos fijos mostrarán la distancia y curso a la facilidad y su latitud/longitud expresadas en décimas de grado. Las distancias especificadas minimizan el error de distancia y el ancho de la radial.
 (2) En esta situación el procedimiento sugerido para las tripulaciones será el descontinuar el uso del INS cuando reciba el VOR/DME o TACAN y traten de alinear la aeronave 898 exactamente en la radial deseada hacia o desde la estación. Cuando se pase sobre el fijo especificado, la tripulación comparará la posición de cada INS con la posición de referencia en lat/long del fijo. La actualización manual se hará si el error sobre la trayectoria es mayor de 1 MN. Después de que la actualización manual esté completa, la tripulación debe continuar la navegación con la radial del VOR al próximo fijo designado y comparar las coordenadas para verificar que la actualización ha sido correcta.
 (3) Como un requisito mínimo para el uso de estos procedimientos, la tripulación debe tener a bordo la carta de ploteo adecuada con la información especificada, y el operador debe demostrar que las tripulaciones saben cómo usar las cartas y el procedimiento.
-(4) Estos procedimientos se basan en la suposición de que la posición “triple-mix” no se usa, y cada inercial debe ser actualizado adecuadamente. La tripulación debe notificar al ATC cuando sean conscientes de que la aeronave no puede mantener el performance RNP10 basado en la evaluación de la verificación de la posición.
+(4) Estos procedimientos se basan en la suposición de que la posición "triple-mix" no se usa, y cada inercial debe ser actualizado adecuadamente. La tripulación debe notificar al ATC cuando sean conscientes de que la aeronave no puede mantener el performance RNP10 basado en la evaluación de la verificación de la posición.
 6. MÉTODO 3: UTILIZANDO UNA INSTALACIÓN GPS APROBADA COMO REFERENCIA PARA LA ACTUALIZACIÓN
 (1) Utilizando el método 3, la actualización se hace comparando la posición del INS con la posición del GPS en un fijo predeterminado.
 (2) Antes de la salida los datos mandatorios deben de registrarse.
@@ -13980,7 +14213,7 @@ Ellos proveen, sin embargo, de un medio de verificación de la actualización.
 (e) De los datos se determinará la deriva por hora volada, se hacen las correcciones adecuadas y se continúa navegando; y
 (f) Si los datos indican que la capacidad RNP 10 no se puede mantener, el ATS deberá ser notificado tan pronto como las condiciones de vuelo lo permitan.
 (4) Al completar la navegación Clase II y el postsuelo: Esta etapa es importante ya que verifica la exactitud del proceso de actualización y advierte al operador si hay problemas de equipo o procedimiento que pueden afectar vuelos futuros. Adicionalmente, Se debe utilizar la forma del anexo 4 de esta guía para reportar cualquier fallo del equipo o de procedimiento. Los requisitos son:
-(a) Registre la hora dejando navegación Clase II cuando esté en contacto de radar por primera vez o cuando esté dentro de las 150 MN de un VOR. Registre el tiempo de calzos “IN”;
+(a) Registre la hora dejando navegación Clase II cuando esté en contacto de radar por primera vez o cuando esté dentro de las 150 MN de un VOR. Registre el tiempo de calzos "IN";
 (b) Posición de Puerta en el Destino: No remueva la actualización de los INS hasta que se registren en la puerta;
 (c) Registre el número de puerta, el número de GPS SVs (Satellite Vehicles) a la vista y los valores GPS DOP y EPE;
 (d) Registre la posición actualizada INS;
@@ -13995,12 +14228,12 @@ Aeronaves equipadas con Sistema de Administración de Vuelo (FMS) con Navegació
 (1) Doble FMS (especificación de la FAA AC 25-15), Aprobación de Aeronavegabilidad para Navegación Vertical (especificación de la FAA AC 129), o criterio equivalente aprobado por la DGAC.
 (2) Un sistema de Director de Vuelo y de Piloto Automático capaz de seguir la trayectoria de vuelo lateral y vertical.
 (3) Al menos dos unidades inerciales de referencia (IRU);
-(4) Una base de datos que contenga “waypoints” y restricciones de velocidad/altitud en ruta y en los procedimiento a ser volados que son automáticamente cargados en el plan de vuelo del FMS; y
+(4) Una base de datos que contenga "waypoints" y restricciones de velocidad/altitud en ruta y en los procedimiento a ser volados que son automáticamente cargados en el plan de vuelo del FMS; y
 (5) Un mapa electrónico.
 SUBPARTE E
 RNAV/RNP
 Reservado
-SUBPARTE F – MNPS
+SUBPARTE F - MNPS
 Reservado
-SUBPARTE G– GPS
+SUBPARTE G- GPS
 Reservado
