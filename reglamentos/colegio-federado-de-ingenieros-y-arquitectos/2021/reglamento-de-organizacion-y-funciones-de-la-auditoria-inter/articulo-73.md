@@ -1,0 +1,1 @@
+Artículo 73.-Promulgación y vigencia. El presente Reglamento una vez aprobado por la Contraloría General de la República se debe publicar en el Diario Oficial La Gaceta. Rige a partir de su publicación.

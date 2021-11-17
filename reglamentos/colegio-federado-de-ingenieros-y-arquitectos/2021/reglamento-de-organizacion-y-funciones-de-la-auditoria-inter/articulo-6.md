@@ -1,0 +1,1 @@
+Artículo 6º-Única Auditoría Interna. En el Colegio Federado existirá una única Auditoría Interna, la cual será regulada de acuerdo con las disposiciones, normas, políticas, procedimientos y otros preceptos emitidos, o que en el futuro emita la Junta Directiva General.

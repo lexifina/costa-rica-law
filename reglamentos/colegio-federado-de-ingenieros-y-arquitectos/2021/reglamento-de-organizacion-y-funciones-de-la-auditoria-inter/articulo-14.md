@@ -1,0 +1,1 @@
+Artículo 14.-Nombramiento del Auditor Interno. El Auditor Interno será nombrado por la Junta Directiva General dependerá orgánicamente de ella, y le establecerá las regulaciones de tipo administrativo que le serán aplicables. Lo nombrará de acuerdo con los lineamientos sobre los requisitos de los cargos de Auditor Interno y Sub-Auditor.

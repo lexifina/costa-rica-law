@@ -1,0 +1,1 @@
+Artículo 51.-Revisión de papeles de trabajo. Los documentos de trabajo serán revisados por el Auditor(a) Interno(a) o a quien designe para asegurar que sustentan adecuadamente los resultados del estudio y que todos los procedimientos de auditoría han sido correctamente aplicados. Deberán incorporarse al legajo del estudio de acuerdo con las normas establecidas.

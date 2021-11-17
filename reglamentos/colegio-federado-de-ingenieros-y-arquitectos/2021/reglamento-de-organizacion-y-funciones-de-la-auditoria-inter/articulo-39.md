@@ -1,0 +1,1 @@
+Artículo 39.-Informes de Resultados. La Auditoría Interna en acuerdo con el Contralor de la Junta Directiva General deberá comunicar los resultados de sus intervenciones estudios especiales, mediante informes dirigidos a la Junta Directiva General, la cual emitirá las resoluciones correspondientes.

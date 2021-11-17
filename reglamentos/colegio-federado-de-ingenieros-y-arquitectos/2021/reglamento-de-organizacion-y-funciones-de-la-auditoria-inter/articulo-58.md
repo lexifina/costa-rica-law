@@ -1,0 +1,3 @@
+CAPÍTULO IX.
+Trámite de denuncias
+Artículo 58.-Derecho y deber de denunciar. Los colaboradores del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, los ciudadanos en general y los habitantes del país, tienen el derecho y el deber de denunciar ante la Auditoría Interna, supuestos actos de corrupción que conozcan y que se den en ejercicio de la función pública dentro de la organización, o en función de los contratos y servicios brindados, conforme lo señalado en la Ley General de Control Interno y en la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública. La denuncia podrá presentarse en forma escrita, verbal o por cualquier otro medio. Deberá dejarse constancia escrita en los archivos privados de la Auditoría, si fuera verbal.

@@ -1,0 +1,1 @@
+Artículo 57.-Resultado de seguimiento de recomendaciones. La Auditoría Interna emite al menos una vez al año en el informe de labores el resultado del seguimiento de las recomendaciones, sin perjuicio que pueda generar informes parciales sobre la ejecución de recomendaciones, según lo considere conveniente.

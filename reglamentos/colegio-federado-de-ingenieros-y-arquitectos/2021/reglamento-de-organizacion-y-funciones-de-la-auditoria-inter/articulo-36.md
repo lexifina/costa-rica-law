@@ -1,0 +1,1 @@
+Artículo 36.-Plazo para remitir información adicional a la conferencia final. Si lo considera necesario, la Auditoría Interna otorgará un plazo máximo de 5 días hábiles para que luego de realizar la conferencia final sobre los resultados de un estudio de auditoría, la Administración activa remita información adicional de previo a emitir el informe final.

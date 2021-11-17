@@ -1,0 +1,1 @@
+Artículo 4º-Función de la Auditoría Interna del CFIA. La Auditoría Interna será parte integral del control de los Colegios Miembros, Régimen de Mutualidad y la Administración del CFIA y tendrá como función principal la comprobación de la correcta utilización los recursos provenientes del presupuesto aprobado por la Asamblea de Representantes del Colegio Federado.
