@@ -1,0 +1,1 @@
+Artículo 15.-Cancelación de las garantías. La obligación de rendir garantía cesará por la renuncia, despido o traslado del funcionario a otro puesto donde no se exija la caución, así como un cambio en las funciones que extinga el tener que recaudar, custodiar o administrar fondos y valores. Lo anterior sin detrimento de lo regulado en el artículo 7 del presente reglamento.

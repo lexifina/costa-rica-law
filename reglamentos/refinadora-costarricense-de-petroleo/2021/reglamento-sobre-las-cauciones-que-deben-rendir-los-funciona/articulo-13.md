@@ -1,0 +1,1 @@
+Artículo 13.-Del control de las garantías. El Departamento de Reclutamiento y Compensación mantendrá un registro actualizado con la información de las garantías aportadas por los(as) funcionarios(as) obligados(as) a rendir caución.

@@ -1,0 +1,1 @@
+Artículo 11.-De la actualización del monto de las garantías. Para cada nivel definido en los artículos 9 y 10, la actualización del monto de la garantía se realizará al momento del vencimiento de las pólizas vigentes.
