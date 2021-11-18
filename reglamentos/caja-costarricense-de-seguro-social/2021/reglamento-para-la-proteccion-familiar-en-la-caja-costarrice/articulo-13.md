@@ -1,0 +1,2 @@
+Artículo 13.-Del cambio en la modalidad de protección familiar
+El cambio en la condición de aseguramiento que pueda sufrir el trabajador asalariado, trabajador independiente, asegurado voluntario o pensionado o asegurado por cuenta, no afectará por sí mismo, la modalidad de aseguramiento del protegido familiar, en el tanto esta sea simultánea o se dé dentro del periodo de cesantía cuando corresponda. La administración debe adoptar toda acción necesaria para garantizar la continuidad de dicha protección.

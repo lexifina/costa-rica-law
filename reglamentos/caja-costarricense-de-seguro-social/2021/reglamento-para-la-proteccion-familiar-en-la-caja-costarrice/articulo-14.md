@@ -1,0 +1,2 @@
+Artículo 14.-De la protección familiar tratándose de poblaciones indígenas
+En el caso de que el solicitante y/o destinatario de la protección familiar, pertenezca a una población indígena, la verificación de las condiciones y requisitos para optar por la misma, deberán considerar y de ser necesario adecuarse a las situaciones geográficas, sociales y culturales propias de esas poblaciones indígenas. Asimismo, quedan autorizadas las Gerencias Médica y Financiera, para emitir de forma conjunta regulaciones que permita poner en operativa el accionar en las situaciones descritas.

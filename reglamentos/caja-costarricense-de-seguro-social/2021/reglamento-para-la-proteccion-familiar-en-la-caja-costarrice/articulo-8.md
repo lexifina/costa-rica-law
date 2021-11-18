@@ -1,0 +1,3 @@
+Artículo 8º-De la emisión de normativa en materia de Protección Familiar
+Compete a la unidad prestadora de servicios financieros como instancia rectora en la materia, la emisión de lineamientos asociados con los aspectos operativos del manejo de protección familiar, individualmente o bien en conjunto con la Gerencia Médica, así como el someter a su consideración y aprobación, propuestas de circulares, manuales, protocolos o procedimientos que se estimen necesarios para la correcta gestión de la protección familiar.
+En el desarrollo de su labor deberá considerar la emisión de nuevas normativas o la modificación de las existentes, por disposición legislativa y de la Sala Constitucional de la Corte Suprema de Justicia.

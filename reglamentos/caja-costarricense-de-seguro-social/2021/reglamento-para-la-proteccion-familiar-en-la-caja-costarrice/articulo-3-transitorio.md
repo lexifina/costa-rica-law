@@ -1,0 +1,2 @@
+Transitorio III
+Instruir a la Gerencias Médica, Financiera y la Dirección de Tecnologías de Información y Comunicación para que, en un plazo de nueve meses contados a partir de la publicación en el Diario Oficial La Gaceta del Reglamento para Protección Familiar, se realicen los desarrollos tecnológicos, los ajustes administrativos, el proceso de sensibilización y capacitación relacionados con la aplicación del citado Reglamento".

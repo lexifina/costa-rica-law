@@ -1,0 +1,4 @@
+Artículo 18º-De la conservación de los derechos a la Protección Familiar
+La conservación de los derechos que otorga la protección familiar se rige por las siguientes reglas:
+1. En caso de muerte del trabajador asalariado, trabajador independiente, pensionado o asegurado voluntario, del cual deriva la protección, el protegido conservará su derecho por un plazo máximo de 6 meses, siempre que no se encuentre obligado (a) a contribuir a los seguros sociales que administra la institución y se cumpla con lo establecido en el artículo 60 del Reglamento del Seguro de Salud.
+2. En caso de separación de hecho, separación judicial o ruptura de la unión de hecho judicialmente reconocida, el (la) cónyuge o compañero (a), separado (a), conservará los derechos como protegido familiar, mientras se mantenga tal condición y no esté obligado(a) a contribuir a los seguros sociales que administra la Institución.

@@ -1,0 +1,2 @@
+Artículo 10.-De la utilización de las tecnologías de la información
+Compete a la Gerencia Financiera en coordinación con la Gerencia Médica y otras instancias correspondientes, realizar desarrollos tecnológicos y de seguridad para la consolidación, integración, interoperabilidad y validación de bases de datos que contengan información relacionada para la efectiva gestión automatizada de la protección familiar.

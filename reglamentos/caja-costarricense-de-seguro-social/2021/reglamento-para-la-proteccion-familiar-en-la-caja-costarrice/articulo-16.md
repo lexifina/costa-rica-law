@@ -1,0 +1,4 @@
+Artículo 16º-De la declaratoria de discapacidad severa permanente
+En los casos en los que el supuesto por acreditar sea la existencia de discapacidad severa permanente, y esta no haya sido declarada, la determinación de dicha condición corresponderá a la unidad que defina la Institución.
+La unidad prestadora de servicios financieros responsable de emitir la resolución que otorga o deniega la protección, será la encargada de requerir a los Establecimientos de Salud, el llenado de los protocolos médicos, así como una vez recibidos estos, de su envío a la unidad encargada de determinar la existencia o no de la condición de discapacidad.
+Los Establecimientos de Salud en los que la persona en relación con la cual se haya requerido la determinación de tal condición haya recibido atención y exista evidencia clínica de su condición, están obligadas a llenar y remitir los protocolos médicos respectivos.
