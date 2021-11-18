@@ -1,0 +1,3 @@
+Artículo 3º-Refórmese el artículo 8 del Decreto Ejecutivo N° 41568-MTSS-MIDEPLAN-MAGMDHIS del 17 de febrero de 2019, denominado "Creación de la Mesa Caribe: por el diálogo, el desarrollo económico y la inclusión social de la provincia de Limón", para que en adelante se lea de la siguiente manera:
+"Artículo 8º-Sesiones de la Plenaria. El Segundo Vicepresidente de la República convocará a sesión plenaria tres veces al año, como espacio de índole estratégico para el seguimiento, rendición de cuentas y cumplimiento de los compromisos asumidos en cada uno de los ejes.
+Le corresponderá al Segundo Vicepresidente de la República canalizar los acuerdos que surjan de la plenaria a las respectivas instituciones y velar por su cumplimiento."
