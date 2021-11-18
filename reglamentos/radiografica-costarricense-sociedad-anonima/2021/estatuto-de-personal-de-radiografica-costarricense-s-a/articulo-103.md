@@ -1,0 +1,1 @@
+ARTÍCULO 103: El ingreso y el ascenso a puestos en la Empresa están sujetos a la comprobación previa de la idoneidad de los aspirantes a desempeñarlos; calidad que se demostrará conforme los criterios técnicos y objetivos que el Departamento de Talento Humano y Cultura determine necesarios para el puesto particular.

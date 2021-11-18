@@ -1,0 +1,1 @@
+ARTÍCULO 29: No tienen derecho a compensación de ninguna naturaleza los trabajadores que a la fecha de decretarse un período de asueto estén disfrutando de vacaciones, o que por cualquier causa tengan suspendido su contrato de trabajo.

@@ -1,0 +1,1 @@
+ARTÍCULO 122: Los puestos se clasificarán de acuerdo con la metodología que defina la Empresa, estableciendo el conjunto de rangos que ubican las diferentes referencias salariales del mercado para cada uno de los puestos en diferentes percentiles, o cualquier otra establecida en la metodología para la clasificación y valoración de puestos.

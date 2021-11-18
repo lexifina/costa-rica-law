@@ -1,0 +1,1 @@
+ARTÍCULO 179: Todo trabajador de la Empresa se encuentra sujeto a una prohibición absoluta de incurrir en actos discriminatorios en contra de otra persona o grupos de personas, dentro o fuera de las instalaciones de la Empresa.

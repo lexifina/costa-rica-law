@@ -1,0 +1,1 @@
+ARTÍCULO 176: Las personas encargadas del proceso de reclutamiento y selección, sea del Departamento de Talento Humano y Cultura o los trabajadores quienes participen en la búsqueda y selección de los nuevos trabajadores, deberán velar porque la selección de personal se haga respetando el derecho de igualdad, evitando cualquier forma de discriminación.

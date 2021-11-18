@@ -1,0 +1,1 @@
+ARTÍCULO 47: Todo permiso que se conceda de acuerdo con las estipulaciones de este capítulo debe ser comunicado por escrito al Departamento de Talento Humano y Cultura para efecto de su correspondiente registro.

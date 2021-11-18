@@ -1,0 +1,1 @@
+ARTÍCULO 105: Todo aspirante debe cumplir con los requisitos indispensables establecidos en el perfil del puesto vigente para continuar en las etapas de evaluación establecidas en el pliego de condiciones del proceso de selección.

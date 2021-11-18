@@ -1,0 +1,2 @@
+SECCIÓN VII. PAGO DE DISPONIBILIDAD
+ARTÍCULO 54: RACSA por medio de la Gerencia General podrá reconocer, un monto que remunere la obligación del trabajador respectivo de encontrarse expectante y localizable fuera de su jornada, para la atención de casos imprevistos y emergencias que surjan de manera repentina y que ameriten una atención inmediata, entendiéndose dicho reconocimiento como disponibilidad.

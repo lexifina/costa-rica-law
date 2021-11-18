@@ -1,0 +1,1 @@
+ARTÍCULO 185: Para la imposición de la sanción, la Empresa se reserva la posibilidad de aplicar la sanción directamente conforme a los procedimientos de la sección de "Orden y Disciplina", cuando esta fuere verificada presencial o documentalmente por un representante patronal, o cuando conste documentalmente (lo cual comprende fotos, videos, audios o manifestaciones escritas).

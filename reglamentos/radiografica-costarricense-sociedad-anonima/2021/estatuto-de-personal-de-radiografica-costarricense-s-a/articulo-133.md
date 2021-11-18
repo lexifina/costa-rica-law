@@ -1,0 +1,1 @@
+ARTÍCULO 133: El índice salarial está constituido por una serie de rangos expresados en números, asociado a una valoración en colones en la cual se ubican uno o a varios puestos por la prestación de servicios durante la jornada laboral, según el sistema de administración de salarios en uso en la Empresa.

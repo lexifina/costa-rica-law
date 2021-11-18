@@ -1,0 +1,1 @@
+ARTÍCULO 180: La Empresa, a través de sus representantes patronales, procurará tomar decisiones en temas laborales en un marco de igualdad y objetividad, no pudiendo considerar aspectos personales o prejuicios como criterios determinantes para cualquier decisión.

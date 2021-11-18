@@ -1,0 +1,1 @@
+ARTÍCULO 161: Toda propuesta de despido sin responsabilidad patronal que sea de conocimiento del Comité Asesor Laboral, debe ser acompañada de las pruebas que justifiquen la causal en que incurrió el trabajador.

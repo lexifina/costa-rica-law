@@ -1,0 +1,1 @@
+ARTÍCULO 16: Por ser excepcional, la aprobación de la jornada extraordinaria de trabajo deberá estar plenamente justificada y autorizada de previo a realizarse y en ningún caso podrá ejecutarse o autorizarse de manera permanente.

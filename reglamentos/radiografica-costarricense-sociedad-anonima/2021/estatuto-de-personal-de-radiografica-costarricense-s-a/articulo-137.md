@@ -1,0 +1,1 @@
+ARTÍCULO 137: Para todos los puestos con salario variable podrán considerarse incentivos especiales en todos los casos en los que las metas establecidas se superen, conforme los criterios técnicos y objetivos que resulten pertinentes y así lo defina la Gerencia General; todo esto en apego a los límites establecidos en el artículo 44 de la Ley Nº9635.

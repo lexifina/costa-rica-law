@@ -1,0 +1,2 @@
+CAPÍTULO XVII DISPOSICIONES TRANSITORIAS
+Transitorio I. Durante el período en que se debe normalizar a toda la población trabajadora con contrato de trabajo, en aquellos casos donde, por omisión, no se cuente con un contrato de trabajo escrito en el expediente del trabajador, se acudirá a la acción de personal, reconociendo toda la antigüedad que acumule el trabajador. Se dará un plazo de seis meses al Departamento de Talento Humano y Cultura para la normalización de los contratos de trabajo que no hayan sido suscritos a la fecha de entrada en vigencia del presente Estatuto.

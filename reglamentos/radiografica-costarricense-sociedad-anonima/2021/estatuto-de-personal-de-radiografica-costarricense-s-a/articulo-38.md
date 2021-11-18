@@ -1,0 +1,1 @@
+ARTÍCULO 38: Cuando no se haya cumplido el derecho a disfrutar de un período completo de vacaciones y el trabajador necesite ausentarse de su trabajo para asuntos de necesidad calificada o emergencia y el jefe correspondiente pueda reorganizar su unidad de trabajo, podrá adelantarse el disfrute de parte de las vacaciones.

@@ -1,0 +1,6 @@
+ARTÍCULO 195: Son atribuciones específicas del Comité Asesor Laboral:
+a. Fungir como instancia de consulta en los procedimientos por despido sin responsabilidad patronal o suspensión sin goce de salario, de acuerdo con el procedimiento que se disponga en su reglamento. Si el Comité Asesor Laboral no llegare a un acuerdo de mayoría, cada posición sobre el caso deberá redactarse por aparte para ser presentada a la Gerencia General responsable de la resolución definitiva.
+b. Las resoluciones del Comité Asesor Laboral serán de carácter recomendativo para las partes, pero las jefaturas o autoridades de la Gerencia General según corresponda, deberán justificar mediante resolución debidamente motivada las razones que invocan para apartarse de la recomendación dada por el Comité.
+c. Recopilar la información necesaria para lograr la verdad real de los hechos, lo cual incluye convocar por una única vez a los involucrados en los hechos objeto de análisis, para que si lo desean manifiesten lo que consideren pertinente.
+d. Recomendar a la administración el establecimiento de medidas cautelares en los casos que se consideren necesarias para el desarrollo adecuado del proceso.
+e. Cualquier otra que se establezca en el presente Estatuto.

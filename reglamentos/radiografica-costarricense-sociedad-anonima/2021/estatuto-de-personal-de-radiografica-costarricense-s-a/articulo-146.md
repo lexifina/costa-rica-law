@@ -1,0 +1,2 @@
+ARTÍCULO 146: En materia de relaciones de trabajo, se establecerá un vínculo entre el desempeño e idoneidad de los trabajadores y sus condiciones laborales.
+Los resultados de las evaluaciones del desempeño podrán estar ligados a incentivos o reconocimiento de condiciones a sus trabajadores, en los casos de promociones de puestos, ascensos, traslados, incentivos o incrementos salariales, becas, pasantías capacitaciones, desarrollo profesional dentro de la Empresa u otros.

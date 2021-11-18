@@ -1,0 +1,1 @@
+ARTÍCULO 191: Las resoluciones del Departamento de Talento Humano y Cultura, dentro del campo de sus atribuciones, serán de acatamiento obligatorio para todos los jefes y trabajadores de RACSA, estando sujetas a revisión por parte de la Gerencia General.

@@ -1,0 +1,3 @@
+ARTÍCULO 135: El porcentaje de incremento salarial al que cada trabajador tendrá derecho será el resultado de la combinación de la Escala Salarial y los Resultados de la Evaluación del Desempeño, conforme lo regulado en la normativa que para tales efectos emita la Empresa.
+A los trabajadores que se mantengan con la modalidad de salario base más sobresueldos, se les aplicará una metodología de reajuste salarial que les garantice un trato igual al que reciben los trabajadores de modalidad de salario global.
+Para todos los esquemas salariales, la Empresa realizará los análisis técnicos para determinar la aplicación del incremento por costo de vida, el cual será aprobado por la Junta Directiva.

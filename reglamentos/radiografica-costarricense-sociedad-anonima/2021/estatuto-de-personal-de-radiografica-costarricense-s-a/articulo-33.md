@@ -1,0 +1,1 @@
+ARTÍCULO 33: Las fechas programadas para las vacaciones de cada trabajador deben ser cumplidas estrictamente y sólo en casos justificados y de excepción se harán modificaciones, siempre en función al interés empresarial.

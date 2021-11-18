@@ -1,0 +1,1 @@
+ARTÍCULO 200: RACSA se compromete a no ejercer actos de persecución o discriminación contra ningún trabajador por su afiliación sindical, así como a no perjudicar de forma alguna a ningún trabajador por su condición de representante sindical.

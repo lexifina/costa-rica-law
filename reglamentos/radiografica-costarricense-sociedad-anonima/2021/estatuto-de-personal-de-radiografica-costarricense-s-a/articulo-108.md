@@ -1,0 +1,1 @@
+ARTÍCULO 108: Para preparación o confección, administración y calificación de los exámenes, "test" y pruebas específicas de selección, el Departamento de Talento Humano y Cultura podrá solicitar la colaboración técnica de la dependencia que requiere los puestos que están siendo concursados.

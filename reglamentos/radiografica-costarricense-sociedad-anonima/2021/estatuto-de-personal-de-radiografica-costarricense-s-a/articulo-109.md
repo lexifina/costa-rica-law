@@ -1,0 +1,2 @@
+ARTÍCULO 109: Cuando un nombramiento recaiga en un trabajador que presta servicios en otra dependencia de la Empresa, deberá darse un término máximo de un mes, en caso necesario, antes de que el trabajador se haga cargo de su nuevo puesto, con el propósito de que la plaza vacante pueda ser sustituida y se haga entrega del trabajo pendiente, así como del informe final de labores a la jefatura.
+En caso de conflicto entre dos jefes, la fecha del nombramiento la decidirá el Departamento de Talento Humano y Cultura.

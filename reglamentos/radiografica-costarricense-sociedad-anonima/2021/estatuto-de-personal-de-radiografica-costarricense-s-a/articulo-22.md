@@ -1,0 +1,1 @@
+ARTÍCULO 22: Los días de descanso semanal, conforme a la respectiva jornada de cada trabajador, se encuentran remunerados dentro de la modalidad de pago mensual con adelantos quincenales bajo la cual se paga el salario en la Empresa.

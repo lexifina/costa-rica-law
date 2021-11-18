@@ -1,0 +1,1 @@
+ARTÍCULO 124: El Departamento de Talento Humano y Cultura podrá efectuar, periódicamente, la actualización del Manual Descriptivo de Puestos y efectuar los comparativos de mercado necesarios. Dicha instancia, será responsable de determinar si proceden reclasificaciones, reasignaciones o revaloraciones, o bien proponer modificaciones al Manual Descriptivo de Puestos.

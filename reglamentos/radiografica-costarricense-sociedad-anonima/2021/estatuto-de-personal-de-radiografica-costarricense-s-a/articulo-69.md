@@ -1,0 +1,2 @@
+SECCIÓN XII. ASOCIACIÓN SOLIDARISTA DE LOS EMPLEADOS DE RACSA (ASTRACSA)
+ARTÍCULO 69: RACSA reconoce la importancia de los principios de la filosofía del solidarismo, cuyos postulados son los de alcanzar la justicia y la paz social, la armonía obrero patronal, el desarrollo integral de sus asociados, los niveles de unión y de cooperación solidaria, estimular el ahorro y facilitar al trabajador mejores posibilidades para la adquisición de bienes y servicios, implementar programas de salud y recreación.

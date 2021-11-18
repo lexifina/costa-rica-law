@@ -1,0 +1,1 @@
+ARTÍCULO 183: Si un trabajador presencia un acto o patrón de discriminación en contra de otro trabajador de la Empresa, deberá de informar a su superior directo o, en su defecto, al Departamento de Talento Humano y Cultura, para que se tomen las medidas necesarias.

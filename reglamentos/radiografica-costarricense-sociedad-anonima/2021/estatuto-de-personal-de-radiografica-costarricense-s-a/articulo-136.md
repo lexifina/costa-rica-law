@@ -1,0 +1,2 @@
+ARTÍCULO 136: Para el caso de los puestos con salario fijo más componente variable se deberá asegurar un salario fijo de acuerdo con las condiciones de mercado para puestos comparables y se complementará con una porción variable que, sumada a la primera, completarán el ingreso total del trabajador.
+La parte variable se deberá relacionar al cumplimiento de una serie de metas o indicadores que la persona que ocupa el puesto debe alcanzar en su gestión.

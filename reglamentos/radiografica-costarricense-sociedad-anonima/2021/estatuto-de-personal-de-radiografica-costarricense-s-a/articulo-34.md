@@ -1,0 +1,1 @@
+ARTÍCULO 34: En casos de excepción, como incapacidades del interesado o de los compañeros de trabajo, o ausencias temporales prolongadas o definitivas del personal del mismo Centro Funcional, que no permitan cumplir con el programa de vacaciones, el jefe correspondiente lo comunicará por escrito al Departamento de Talento Humano y Cultura.

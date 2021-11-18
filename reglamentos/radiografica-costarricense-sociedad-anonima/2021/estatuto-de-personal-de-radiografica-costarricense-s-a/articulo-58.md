@@ -1,0 +1,2 @@
+SECCIÓN VIII. AGUINALDO
+ARTÍCULO 58: Todo trabajador de RACSA tiene derecho a percibir anualmente el aguinaldo, el cual corresponde al promedio de los salarios ordinarios y extraordinarios devengados en los doce meses anteriores al primero de diciembre de un año y el treinta de noviembre del año siguiente. Si el trabajador no ha cumplido el año por cualquier causa, le corresponderá una suma proporcional al tiempo laborado.

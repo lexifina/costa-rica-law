@@ -1,0 +1,5 @@
+SECCIÓN IX. RECONOCIMIENTO DE GASTOS
+ARTÍCULO 61: RACSA pagará a los trabajadores todos los gastos que en el desempeño de sus funciones incurran por concepto de viajes dentro o fuera del territorio nacional. Todo de conformidad con la reglamentación periódica que emite la Contraloría General de la República y previo cumplimiento de requisitos formales que permitan comprobar el gasto.
+Los gastos pueden ser por concepto de alimentación, hospedaje, transporte, gastos de estacionamiento y otros, que de acuerdo con las funciones del trabajador y la norma que emita la Contraloría General de la República, se consideren indispensables en el desempeño del puesto.
+Queda entendido que, en ningún caso, esos montos se considerarán parte del salario, por lo que no se tomarán en cuenta para el cálculo de otros derechos o prestaciones, como horas extraordinarias, aguinaldo, antigüedad, vacaciones u otros aspectos.
+Estos gastos deberán ser liquidados y reembolsados de conformidad con los lineamientos de la Contraloría General de la República y los que a lo interno la Empresa pueda emitir, siendo deber del trabajador aportar los respaldos documentales para el respectivo pago.

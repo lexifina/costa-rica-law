@@ -1,0 +1,1 @@
+ARTÍCULO 88: En caso de que el trabajador que cuente con uniformes, ropa de trabajo o equipos de seguridad sea desvinculado de la Empresa con o sin responsabilidad, deberá coordinar con su jefatura inmediata la devolución de los implementos en un plazo no mayor a cinco días hábiles.

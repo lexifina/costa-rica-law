@@ -1,0 +1,1 @@
+ARTÍCULO 115: Si un trabajador ocupa por sustitución temporal un puesto superior que haya quedado vacante de manera indefinida, RACSA procederá a formalizar el nombramiento en la plaza vacante mediante un concurso interno o mixto.

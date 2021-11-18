@@ -1,0 +1,3 @@
+ARTÍCULO 9: RACSA podrá implementar por necesidad de la Empresa o a solicitud de los trabajadores, siempre considerando el interés empresarial, jornadas a tiempo parciales o disminuidas, siendo que la respectiva jornada diaria y semanal se definirá en proporción al número de horas contratadas por RACSA para cada caso concreto.
+Toda disminución de la jornada de trabajo implica la disminución salarial, salvo que por razones técnicas o productivas la empresa disminuya la jornada laboral y no el salario, sin que dicha disminución de jornada implique un derecho adquirido para el trabajador.
+Para todos los casos en que se disminuya la jornada del trabajador, deberá suscribirse previamente un acuerdo voluntario entre partes que regule las nuevas condiciones laborales.

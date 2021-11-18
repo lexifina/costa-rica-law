@@ -1,0 +1,1 @@
+ARTÍCULO 81: El área de Salud Ocupacional, investigará las causas de los riesgos profesionales ocurridos, propondrá las medidas convenientes para evitar que sucedan en el futuro y vigilará para que esas medidas se cumplan, además colaborará en la organización de actividades de información y motivación sobre la prevención de los riesgos laborales.

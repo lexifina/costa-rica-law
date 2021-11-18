@@ -1,0 +1,2 @@
+ARTÍCULO 39: El adelanto de vacaciones no podrá ser superior al número de días que corresponda a los meses trabajados, contados a partir de la fecha de inicio de las cincuenta semanas que dan derecho a un período completo.
+Para aquellos casos en los que el trabajador tenga derecho al disfrute de más de dos semanas, el adelanto de vacaciones se realizará de forma proporcional a los días que le correspondan según los años laborados.

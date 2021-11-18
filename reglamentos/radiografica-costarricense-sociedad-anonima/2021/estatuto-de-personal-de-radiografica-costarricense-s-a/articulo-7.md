@@ -1,0 +1,1 @@
+ARTÍCULO 7: La jornada nocturna es la que se presta entre las diecinueve horas (19:00) y las cinco horas (5:00) con un límite diario de 6 horas. El máximo semanal de la jornada nocturna será de 36 horas.

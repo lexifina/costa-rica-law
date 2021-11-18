@@ -1,0 +1,1 @@
+ARTÍCULO 68: La Gerencia General de la Empresa podrá establecer procesos de retiro voluntario, por plazos determinados, en función de la estrategia y conveniencia empresarial, comunicando en ese momento los parámetros, plazos y mecanismos de aplicación que regirían en cada caso.

@@ -1,0 +1,2 @@
+CAPÍTULO XIII ASAMBLEA DE TRABAJADORES
+ARTÍCULO 192: Los representantes patronales no podrán participar y votar en las Asambleas Generales de los trabajadores, ni fungir como representantes de estos, en negociaciones colectivas. Tampoco podrán integrar el Comité Asesor Laboral, Juntas Directivas que representen el ejercicio de los derechos colectivos de los trabajadores ni beneficiarse de cualquier acuerdo o negociación en la que hayan participado como asesores o representantes patronales.

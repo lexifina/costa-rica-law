@@ -1,0 +1,1 @@
+ARTÍCULO 70: La asociación solidarista de los trabajadores de RACSA (ASTRACSA) y la Empresa, regirán sus relaciones conforme a lo determinado en el presente Estatuto y las leyes vigentes y aplicables que regulen el solidarismo.

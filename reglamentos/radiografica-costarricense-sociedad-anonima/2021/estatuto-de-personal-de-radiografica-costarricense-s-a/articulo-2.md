@@ -1,0 +1,2 @@
+CAPÍTULO II CONTRATO DE TRABAJO
+ARTÍCULO 2: El contrato de trabajo es aquel mediante el cual una persona se obliga a prestar sus servicios a RACSA, bajo la dependencia y dirección delegada de ésta, quien a su vez se obliga a pagar una remuneración determinada por los servicios prestados. Toda persona que trabaje en RACSA estará amparada por un contrato de trabajo escrito, que contendrá, entre otros aspectos dispuestos en el Código de Trabajo o la normativa de RACSA, las cláusulas y estipulaciones que regulan la prestación de servicios.

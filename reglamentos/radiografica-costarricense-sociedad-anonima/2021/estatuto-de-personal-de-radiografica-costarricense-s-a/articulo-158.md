@@ -1,0 +1,3 @@
+ARTÍCULO 158: La sanción de amonestación escrita se aplicará, cuando incumpla alguna de las obligaciones establecidas en el artículo 71 y 72 del Código de Trabajo, o las dispuestas en este Estatuto o en la normativa interna o externa aplicable.
+La amonestación será aplicada siempre que la falta cometida, no amerite una sanción mayor, por su gravedad.
+En el caso de que el trabajador incumpla lo señalado en el artículo 72 del Código de Trabajo se impondrá una amonestación escrita en la primera ocasión en que se incurra advirtiéndose en el mismo acto que de volver a cometer la misma falta, podrá ser objeto de despido conforme al artículo 81 inciso i) del Código de Trabajo.

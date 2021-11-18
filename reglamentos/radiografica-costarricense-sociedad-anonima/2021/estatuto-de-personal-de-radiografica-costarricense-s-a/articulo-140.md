@@ -1,0 +1,1 @@
+ARTÍCULO 140: No se podrá pagar ningún salario cuyo monto no esté específicamente dentro de los rangos, salvo los casos de excepción regulados en este Estatuto o bien cualquier otra normativa que sobre el tema se aplique en la Empresa.

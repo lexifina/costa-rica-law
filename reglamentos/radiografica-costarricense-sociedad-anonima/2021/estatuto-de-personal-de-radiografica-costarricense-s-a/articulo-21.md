@@ -1,0 +1,1 @@
+ARTÍCULO 21: Todo trabajador de RACSA tiene derecho a disfrutar mínimo de un día de descanso absoluto por semana de trabajo, de acuerdo con su jornada laboral. La semana laboral de un trabajador puede comenzar o terminar en cualquier día de la semana, según sea el día asignado para descanso semanal, todo esto sin perjuicio de sus derechos.

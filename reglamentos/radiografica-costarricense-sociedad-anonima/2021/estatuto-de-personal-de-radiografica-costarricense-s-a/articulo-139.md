@@ -1,0 +1,2 @@
+ARTÍCULO 139: Todo trabajador devengará un salario acorde a las funciones y responsabilidades del puesto que desempeña, no inferior al mínimo del rango definido para ese puesto, salvo las siguientes excepciones:
+Cuando por inopia de candidatos elegibles para un puesto se nombre a un trabajador que, de acuerdo con la especificación correspondiente no reúna los requisitos exigidos, se pagará el salario definido para el puesto respectivo, hasta después de que el trabajador haya cumplido satisfactoriamente su período de prueba de tres meses.

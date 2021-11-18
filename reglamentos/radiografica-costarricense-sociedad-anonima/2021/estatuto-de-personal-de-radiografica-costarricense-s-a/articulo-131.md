@@ -1,0 +1,6 @@
+ARTÍCULO 131: La política salarial de RACSA tiene como objetivos principales los siguientes:
+a. Retribuir de manera equitativa en relación con el puesto que se desempeña y que desempeñan los trabajadores de la Empresa, de acuerdo con los deberes, responsabilidades, competencias y otros factores generales estipulados en los perfiles de cada puesto, resguardando siempre el equilibrio salarial interno.
+b. Establecer salarios que estén relacionados con los que paguen en puestos similares de otras empresas de la competencia e instituciones, de conformidad con los criterios técnicos aplicables y que proporcionen un medio de vida decoroso que sea estímulo para la eficiencia, dedicación y conducta al trabajador.
+c. Motivar un alto desempeño y enfoque de los trabajadores hacia la eficiencia y productividad basada en el trabajo en equipo, la calidad y excelencia en el servicio al cliente.
+d. Realizar el pago salarial con una periodicidad quincenal, bajo una modalidad mensual que incluye los siete días de la semana y las cincuenta y dos semanas del año.
+e. Que los salarios asignados a los trabajadores estén en armonía con las condiciones y posibilidades económicas y financieras de la Empresa.

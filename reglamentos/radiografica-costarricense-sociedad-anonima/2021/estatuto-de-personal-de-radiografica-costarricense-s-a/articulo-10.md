@@ -1,0 +1,1 @@
+ARTÍCULO 10: RACSA de acuerdo con las necesidades empresariales podrá establecer jornadas especiales distintas a las definidas anteriormente, sin que se pueda sobrepasar el número máximo de horas definidas para la respectiva jornada ordinaria de trabajo semanal.

@@ -1,0 +1,1 @@
+ARTÍCULO 57: Durante los períodos en que los trabajadores se encuentren en vacaciones, incapacidades, licencias, permisos con goce o sin goce de salario y cualquier otra causa que impida la prestación efectiva de labores, se suspenderá la participación en el rol respectivo y por consiguiente el pago relacionado con la condición de disponibilidad.

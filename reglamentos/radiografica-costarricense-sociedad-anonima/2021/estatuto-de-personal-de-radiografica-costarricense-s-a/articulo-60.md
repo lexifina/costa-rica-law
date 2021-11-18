@@ -1,0 +1,1 @@
+ARTÍCULO 60: El trabajador que por cualquier motivo deje de prestar servicios en RACSA, antes de diciembre del período a que se refieren los artículos anteriores, recibirá el aguinaldo en la proporción al tiempo trabajado y salarios devengados y la suma que corresponda se hará efectiva en la fecha de la liquidación de su contrato de trabajo.

@@ -1,0 +1,1 @@
+ARTÍCULO 40: En caso de terminación del contrato de trabajo antes de cumplir el período de las cincuenta semanas, el trabajador tendrá derecho, como mínimo, a un día de vacaciones por cada mes trabajado, que se le pagará en el momento del retiro de su trabajo.

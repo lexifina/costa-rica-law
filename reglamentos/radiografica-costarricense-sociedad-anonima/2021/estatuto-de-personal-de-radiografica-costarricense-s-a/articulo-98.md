@@ -1,0 +1,2 @@
+SECCIÓN XVII. INVALIDEZ, VEJEZ Y MUERTE
+ARTÍCULO 98: Todos los trabajadores de RACSA, con la sola excepción de los excluidos expresamente por la Ley y los reglamentos correspondientes de la Caja Costarricense de Seguro Social, están amparados por los beneficios que como contraprestación al pago de las cuotas obrero-patronales se conceden dentro del régimen obligatorio de Seguros Sociales denominado Invalidez, Vejez y Muerte.

@@ -1,0 +1,2 @@
+ARTÍCULO 159: La sanción de suspensión del trabajo sin goce de salario, que podrá ser de hasta ocho días hábiles, será aplicada por la Gerencia General, previa determinación de la falta, según la normativa interna y externa aplicable. Esa sanción se aplicará cuando el trabajador cometa una falta cuya gravedad no dé mérito para el despido sin responsabilidad patronal, siendo obligación del patrono aplicar la suspensión sin goce de salario como sanción.
+Para la aplicación de esta sanción debe de previo seguirse el procedimiento ante el Comité Asesor Laboral.

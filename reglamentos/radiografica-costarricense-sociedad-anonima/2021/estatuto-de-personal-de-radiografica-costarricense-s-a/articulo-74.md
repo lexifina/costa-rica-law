@@ -1,0 +1,1 @@
+ARTÍCULO 74: El área de Salud Ocupacional es la responsable de realizar el informe de aviso de accidente y la investigación de la situación que afecte a alguno de los trabajadores, lo cual se comunicará con la jefatura inmediata.

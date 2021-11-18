@@ -1,0 +1,2 @@
+CAPÍTULO VI SISTEMA DE EVALUACIÓN DEL DESEMPEÑO
+ARTÍCULO 144: RACSA establece la eficiencia y productividad como principios orientadores fundamentales de su actividad empresarial. Para ello aplicará estrategias que generen una cultura de excelencia, calidad en el servicio y el negocio, que estarán alineadas con su estrategia comercial y la política de remuneración. Lo anterior con el propósito de mantener un alto nivel competitivo y garantizar la sostenibilidad empresarial.

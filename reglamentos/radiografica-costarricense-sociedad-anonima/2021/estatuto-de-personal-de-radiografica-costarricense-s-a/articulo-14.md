@@ -1,0 +1,1 @@
+ARTÍCULO 14: La jornada extraordinaria, sumada a la ordinaria, no podrá exceder de doce horas diarias, salvo casos excepcionales de siniestro ocurrido o peligro para las personas, para el establecimiento, para las máquinas o las instalaciones y que, sin evidente perjuicio, no puedan sustituirse los trabajadores o suspenderse las labores de los que están trabajando.

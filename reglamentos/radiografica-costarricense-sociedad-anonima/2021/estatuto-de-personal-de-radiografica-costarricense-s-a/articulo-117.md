@@ -1,0 +1,1 @@
+ARTÍCULO 117: El trabajador interesado en un traslado, podrá solicitarlo por escrito al Departamento de Talento Humano y Cultura, el cual deberá incluir al solicitante en el registro de elegibles en la clase de puesto que corresponda.

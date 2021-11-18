@@ -1,0 +1,1 @@
+ARTÍCULO 23: El descanso semanal debe ser absoluto, sin ninguna obligación de trabajar ni estar a disposición de RACSA a menos que se establezca la obligación de disponibilidad para el trabajador, lo cual puede comprender su respectivo día de descanso y será remunerado con el rubro correspondiente conforme lo que dispone la normativa aplicable.

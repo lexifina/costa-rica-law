@@ -1,0 +1,1 @@
+ARTÍCULO 62: RACSA podrá reconocer gastos por alquiler de vehículo, parqueo y teléfono celular, en aquellos casos en que por necesidad empresarial se requiera para el ejercicio de las funciones y que RACSA no pueda brindar la herramienta. Estos rubros no forman parte del salario.

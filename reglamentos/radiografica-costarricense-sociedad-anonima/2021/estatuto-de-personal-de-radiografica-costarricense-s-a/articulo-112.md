@@ -1,0 +1,1 @@
+ARTÍCULO 112: Al ocupar un nuevo puesto por ascenso, el trabajador deberá cumplir un período de prueba de tres meses. La Jefatura inmediata deberá realizar una evaluación del del período de prueba e informar al Departamento de Talento Humano y Cultura quien emitirá una recomendación al superior inmediato para que éste determine la continuidad o no del ascenso.

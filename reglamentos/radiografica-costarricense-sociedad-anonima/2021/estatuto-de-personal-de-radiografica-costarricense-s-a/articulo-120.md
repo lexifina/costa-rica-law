@@ -1,0 +1,4 @@
+CAPÍTULO V CLASIFICACIÓN DE PUESTOS Y POLÍTICA SALARIAL
+SECCIÓN I. SISTEMA DE CLASIFICACIÓN Y VALORACIÓN DE PUESTOS
+ARTÍCULO 120: RACSA establecerá y aprobará las disposiciones normativas correspondientes a la clasificación y valoración de puestos, considerando para ello las necesidades empresariales del momento y los criterios técnicos y objetivos aplicables.
+La normativa que regule el sistema de clasificación y valoración de puestos se sujetará a los principios de idoneidad, transparencia, objetividad, la igualdad de oportunidades reales, la dignidad de las personas, así como el fomento de la eficiencia, productividad y excelencia en el cumplimiento de las funciones empresariales, todo conforme a las disposiciones contenidas en este Estatuto, la normativa y las mejores prácticas que para estos efectos dicte RACSA.

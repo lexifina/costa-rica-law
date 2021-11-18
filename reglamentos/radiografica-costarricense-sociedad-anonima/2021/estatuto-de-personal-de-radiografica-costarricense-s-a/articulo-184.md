@@ -1,0 +1,1 @@
+ARTÍCULO 184: De conformidad con las disposiciones del artículo 410 del Código de Trabajo, todo trabajador que en el ejercicio de sus funciones incurra en actos de discriminación en contravención de la legislación vigente, incurrirá en una falta grave en los términos del artículo 81 del Código de Trabajo.

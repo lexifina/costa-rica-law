@@ -1,0 +1,2 @@
+ARTÍCULO 92: En caso de que un trabajador que hubiese sufrido un riesgo laboral, no pudiere desempeñar el puesto que ocupaba cuando ocurrió el accidente o se le diagnosticó la enfermedad, RACSA dentro de las posibilidades de su estructura administrativa; le podrá reasignar funciones que pueda desempeñar. Si esto último no fuere posible podrá dar por finalizado el contrato de trabajo con responsabilidad patronal.
+Todo lo anterior de conformidad con lo previsto en el artículo 254 del Código de Trabajo.

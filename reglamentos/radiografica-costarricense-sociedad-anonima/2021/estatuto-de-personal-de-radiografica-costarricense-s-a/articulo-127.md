@@ -1,0 +1,1 @@
+ARTÍCULO 127: En materia de reasignación y reclasificación de puestos a que se refiere este capítulo, aplicará lo establecido en el presente Estatuto, el Manual Descriptivo de Puestos y las demás disposiciones normativas que RACSA establezca.
