@@ -1,1 +1,0 @@
-Artículo 5º—Toda actividad que se va a realizar en un ecosistema de manglar va a requerir de un estudio de impacto ambiental además de las disposiciones citadas anteriormente y aquellas otras que la legislación establezca.

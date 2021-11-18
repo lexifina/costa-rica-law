@@ -1,1 +1,0 @@
-Artículo 3º—Queda prohibida la construcción de diques y otras obras que eviten el flujo normal de las mareas así como canales de que provoquen su desecamiento, el relleno o cualquier otra alteración que eventualmente afecte la viabilidad del ecosistema, de igual forma no se permite otras actividades que no estén contempladas en el plan de manejo.
