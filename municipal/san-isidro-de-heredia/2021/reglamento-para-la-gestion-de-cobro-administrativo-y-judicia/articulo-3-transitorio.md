@@ -1,0 +1,1 @@
+Transitorio III.-Todo procedimiento de cobro administrativo o judicial que se encuentre activo a la fecha en que entre en vigencia el presente reglamento, deberá regirse de acuerdo a lo dispuesto en el presente reglamento en lo subsiguiente. De existir algún impedimento legal para reajustar el procedimiento a lo aquí dispuesto, deberá dejarse constancia escrita del mismo.

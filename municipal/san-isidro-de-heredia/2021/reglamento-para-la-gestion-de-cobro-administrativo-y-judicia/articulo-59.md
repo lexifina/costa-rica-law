@@ -1,0 +1,1 @@
+Artículo 59.-Vigencia. El presente reglamento entrará a regir una vez se lleve a cabo su publicación en el diario oficial La Gaceta, para consulta pública en los términos del artículo 43 del Código Municipal.

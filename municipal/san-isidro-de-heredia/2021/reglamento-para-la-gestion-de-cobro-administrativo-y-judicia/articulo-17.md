@@ -1,0 +1,7 @@
+Artículo 17.-Contenido del requerimiento de pago. Tratándose de un acto formal emitido por el Departamento de Gestión de Cobro, esta segunda comunicación deberá contener como mínimo la siguiente información:
+a) Información del sujeto pasivo. Nombre, cédula de identidad, número de finca que genera el cobro cuando corresponda, dirección fiscal.
+b) Concepto. Impuesto, tasa, contribución especial u obligación no tributaria que se encuentra al cobro.
+c) Monto. En esta comunicación deberán detallarse con claridad los montos que corresponden a cada rubro que se encuentra al cobro, así como la separación entre el principal e intereses.
+d) Periodos al cobro. Deberá indicarse cuales son los periodos al cobro que generan el pendiente, bastando en tal caso un rango donde se incluya el periodo vencido más antiguo (trimestre, mes, entre otro) y el periodo vencido más actual.
+e) Apercibimiento. Se otorgará un plazo de 15 días hábiles para presentarse a la institución a realizar el pago de la deuda, requerir un aplazamiento o suscribir un arreglo de pago, bajo el apercibimiento de que en el momento en que alguno de los rubros al cobro tenga un atraso de ocho o más trimestres, se procederá con la remisión de la cuenta a cobro judicial, sin que para ello se requiera una nueva comunicación.
+f) Medios de impugnación. Como todo acto administrativo, este requerimiento de pago debe indicar los recursos administrativos que pueden presentarse contra el mismo (revocatoria y apelación), así como los plazos y la dependencia administrativa que habrá de conocerlos.

@@ -1,0 +1,1 @@
+Transitorio I.-Una vez publicado el presente reglamento en el Diario Oficial La Gaceta, la Dirección de Hacienda Municipal contará con un plazo de tres meses para ajustar los procedimientos internos a lo aquí dispuesto en caso de que resulte necesario.

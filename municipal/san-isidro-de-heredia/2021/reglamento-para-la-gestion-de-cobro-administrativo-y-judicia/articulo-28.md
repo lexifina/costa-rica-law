@@ -1,0 +1,1 @@
+Artículo 28.-Procesos dirigidos por personal de planta. Cuando de forma excepcional un cobro judicial deba ser tramitado por un profesional en Derecho que sea funcionario de la Municipalidad, regirán las mismas reglas en cuanto al pago de honorarios y arreglos extrajudiciales.

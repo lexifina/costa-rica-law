@@ -1,0 +1,2 @@
+Artículo 48.-Condonación. Las deudas de naturaleza tributaria solo pueden ser condonadas por ley.
+Mediante resolución administrativa, procede la condonación de intereses únicamente cuando se demuestre que tuvieron como causa un error imputable a la Administración Tributaria. En tales casos, el sujeto pasivo deberá presentar la solicitud escrita ante el Departamento de Gestión de Cobros donde indique en qué consiste el error en que incurrió la Administración Tributaria, solicitud que será resuelta dentro del plazo de diez días hábiles.

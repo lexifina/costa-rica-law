@@ -1,0 +1,1 @@
+Artículo 46.-Pagos en exceso. La acción de repetición por pagos en exceso prescribirá en un plazo de cuatro años y se ajustará a las reglas previstas en el Código de Normas y Procedimientos Tributarios.

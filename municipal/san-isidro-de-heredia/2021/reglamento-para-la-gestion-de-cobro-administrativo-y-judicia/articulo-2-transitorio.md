@@ -1,0 +1,1 @@
+Transitorio II.-Los arreglos de pago que se hayan suscrito previo a la entrega en vigencia del presente reglamento mantendrán su valor jurídico de acuerdo a los términos en que fueron suscritos aunque contradigan lo aquí dispuesto.

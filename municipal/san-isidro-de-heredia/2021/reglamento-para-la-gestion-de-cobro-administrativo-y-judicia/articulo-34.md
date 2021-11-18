@@ -1,0 +1,5 @@
+Artículo 34.-Formalización. De aprobarse por parte de la Administración Tributaria arreglo de pago, se elaborará un documento formal donde queden consignadas las condiciones del mismo, indicándose al menos:
+a) Cantidad de tractos pactados.
+b) Monto a pagarse mensualmente por parte de la obligada tributaria.
+c) Fechas de vencimiento.
+Dicho documento para su validez requerirá de la firma de la persona coordinadora del Departamento de Gestión de Cobros y del sujeto pasivo de la obligación tributaria (o su representante), teniéndose por aceptados de esta forma las condiciones del mismo. La suscripción de un arreglo de pago, implicará que el contribuyente podrá realizar cualquier trámite administrativo municipal como si mantuviera una condición de "al día" en lo que respecta al impuesto o impuestos contemplados en el arreglo. En todo caso, las certificaciones de adeudos indicarán expresamente que la persona contribuyente se encuentra en arreglo de pago y no podrán indicar que se encuentran "al día".
