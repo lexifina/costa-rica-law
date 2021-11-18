@@ -14,3 +14,4 @@ Comunica emisión de resolución de la Dirección General de Servicio Civil (DG-
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-03 | la propia norma |
+| 2 | 2021-11-18 | Circular 9 (2021-11-18) |
