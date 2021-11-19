@@ -1,0 +1,4 @@
+SECCIÓN SEGUNDA
+Razón de cierre
+Artículo 12.-Procedimiento para solicitud de cierre del libro. Se recibirán para trámite de cierre aquellos libros que previamente fueron autorizados en la Auditoría Interna. La Dependencia encargada del libro, una vez finalizado su uso, deberá hacer llegar el libro a la Auditoría Interna, solicitando en forma escrita el cierre respectivo, deberá consignar en la misma: fecha de la solicitud, nombre de la dependencia solicitante, tipo de libro, número de tomo del libro a cerrar, la cantidad de folios que contiene, número y fecha del acta inicial y del acta final y firmar la solicitud.
+Para el cierre de libros de hojas sueltas, deberán venir debidamente empastados, salvo justificación debidamente acreditada en la que se hará con posterioridad, bajo responsabilidad del funcionario respectivo.

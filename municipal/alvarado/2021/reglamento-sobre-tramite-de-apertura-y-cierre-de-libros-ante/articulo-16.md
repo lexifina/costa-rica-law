@@ -1,0 +1,1 @@
+Artículo 16.-Plazo para resolver el cierre del libro. La Auditoría Interna resolverá la solicitud del cierre del libro en un plazo de diez (10) días hábiles, a partir del cumplimiento por parte de la dependencia interesada de los requerimientos establecidos en este Reglamento.

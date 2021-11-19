@@ -1,0 +1,1 @@
+Artículo 27.-Situaciones no previstas. Cualquier situación no prevista en este Reglamento se someterá a consulta escrita a la Auditoría Interna, quien resolverá de acuerdo con la legislación aplicable.

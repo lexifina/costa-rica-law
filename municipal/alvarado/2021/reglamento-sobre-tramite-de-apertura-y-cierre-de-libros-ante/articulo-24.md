@@ -1,0 +1,1 @@
+Artículo 24.-Archivo de libros. Los libros de actas antes citados, utilizados y con su razón de cierre incorporado por parte de la Auditoría Interna, deberán permanecer en la Secretaria del Concejo Municipal, que se encargará de su custodia, consulta, inspección y archivo.

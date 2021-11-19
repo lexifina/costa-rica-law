@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Este Reglamento regula el trámite establecido por el artículo 22 inciso e) de la Ley General de Control Interno artículo N°8292, que le otorga competencia a la Auditoría Interna, para la autorización de apertura y cierre de libros contables, de actas u otros, que legal o reglamentariamente deben llevar las diferentes dependencias municipales.
