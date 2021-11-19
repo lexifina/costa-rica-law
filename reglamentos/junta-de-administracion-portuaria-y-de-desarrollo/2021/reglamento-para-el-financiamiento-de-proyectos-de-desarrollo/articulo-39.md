@@ -1,0 +1,1 @@
+Artículo 39. Aprobación final de proyectos. Los proyectos que cuenten con la viabilidad técnica, económica, social, ambiental, legal, una vez realizados los estudios de preinversión, serán sometidos a aprobación final por parte del Consejo de Administración de JAPDEVA. Una vez aprobados pasarán a su etapa de formalización.

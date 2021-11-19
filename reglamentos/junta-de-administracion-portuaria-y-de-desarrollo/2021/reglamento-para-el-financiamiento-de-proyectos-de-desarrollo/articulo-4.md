@@ -1,0 +1,7 @@
+Artículo 4. Naturaleza de los proyectos. Los proyectos objeto a financiamiento a través de los fondos provenientes del Canon de Explotación de la Concesión y del Fondo de Contribución al Desarrollo serán aquellos que generen un mayor impacto en las condiciones de desarrollo socioeconómico en la Región Huetar Caribe.
+Los proyectos deberán ser factibles y viables para ser financiados con los recursos provenientes del canon; tomando en consideración los siguientes aspectos:
+i. Proyectos estratégicos dinamizadores para promover el desarrollo regional mediante la generación de ingresos y empleo de calidad.
+ii. Proyectos que impulsen la incorporación de las mujeres, adultos mayores, grupos étnicos, personas con discapacidad, jóvenes emprendedores, asociaciones de desarrollo, cooperativas, entre otros, localizadas en la Región Huetar Caribe.
+iii. Proyectos formulados y evaluados de acuerdo con la metodología aprobada por MIDEPLAN e inscritos en el Banco de Proyectos de Inversión Pública (BPIP) del Sistema Nacional de Inversión Pública (SNIP).
+iv. Proyectos impulsados y manejados en forma efectiva y transparente en beneficio del desarrollo económico, social y ambiental de la región.
+v. Proyectos potenciados por instituciones, entidades y organizaciones posicionadas en la Región Huetar Caribe y aportando recursos de contrapartidas para el desarrollo regional que garanticen la sostenibilidad de los proyectos y permita potenciar el alcance de las metas y objetivos propuestos.

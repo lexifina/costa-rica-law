@@ -1,0 +1,1 @@
+Artículo 25. Criterios para la conformación de la propuesta de Portafolio. La propuesta de Portafolio se conformará con aquellos proyectos que hayan cumplido con todos los requisitos. En caso contrario se dejará una constancia en el expediente y se hará de conocimiento del Consejo de Administración.

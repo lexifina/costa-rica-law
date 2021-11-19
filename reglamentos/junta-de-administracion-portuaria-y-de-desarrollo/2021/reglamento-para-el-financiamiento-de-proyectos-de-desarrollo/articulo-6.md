@@ -1,0 +1,2 @@
+Artículo 6. Proponentes de proyectos. Cualquier persona física o jurídica sean éstas de Derecho público o privado, podrá plantear propuestas de proyectos según los parámetros indicados en el presente Reglamento.
+Se excluyen de esta disposición los proponentes que contravengan las normas legales y reglamentarias, con las cuales podrían beneficiarse de los recursos públicos que se pretenden invertir en el Desarrollo de la zona.

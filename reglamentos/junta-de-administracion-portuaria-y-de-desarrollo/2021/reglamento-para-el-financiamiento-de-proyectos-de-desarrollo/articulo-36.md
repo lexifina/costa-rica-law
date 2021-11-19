@@ -1,0 +1,1 @@
+Artículo 36. Valoración de riesgos. En la fase de pre-inversión, el proyecto deberá considerar las amenazas naturales, socio-naturales y antrópicas, para prevenir y mitigar sus posibles impactos y costos asociados. Asimismo, se deberá contemplaren esta fase lo relacionado con el Sistema Específico de Valoración del Riesgo Institucional (SEVRI), según lo señalado por MIDEPLAN.
