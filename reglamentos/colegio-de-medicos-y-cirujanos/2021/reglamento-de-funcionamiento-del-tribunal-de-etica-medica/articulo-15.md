@@ -1,0 +1,1 @@
+Artículo 15.-Aprobación de orden del día. Confirmado el quorum reglamentario el Tribunal aprobará el orden del día de la agenda. No podrá ser objeto de conocimiento ningún tema que no esté contenido en el orden del día. Los acuerdos se tomarán por mayoría absoluta de los miembros presentes. En caso de empate, el presidente o quien ejerza dicha condición tendrá voto de calidad.

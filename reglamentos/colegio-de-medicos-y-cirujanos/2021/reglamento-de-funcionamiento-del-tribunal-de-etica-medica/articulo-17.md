@@ -1,0 +1,1 @@
+Artículo 17.-Sesiones extraordinarias. El Tribunal de Ética Médica podrá sesionar en forma extraordinaria cuando así sea acordado por sus miembros. Asimismo, por razones de urgencia el Presidente del Tribunal de Ética Médica podrá convocar por vía telefónica o verbal a dichas sesiones con veinticuatro horas de antelación.

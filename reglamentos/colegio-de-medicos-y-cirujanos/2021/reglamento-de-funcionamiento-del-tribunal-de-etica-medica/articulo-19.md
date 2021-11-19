@@ -1,0 +1,1 @@
+Artículo 19.-Privacidad. Las sesiones ordinarias y extraordinarias del Tribunal de Ética Médica serán privadas. Sin embargo, a las audiencias orales y privadas podrán asistir las partes, sus abogados y asistentes, los testigos y peritos que se requieran.

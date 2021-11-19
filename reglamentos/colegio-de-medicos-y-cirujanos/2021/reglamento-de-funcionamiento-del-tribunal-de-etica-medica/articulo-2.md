@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Las normas contenidas en este reglamento son de aplicación a los miembros del Tribunal de Ética Médica y al personal administrativo de apoyo que presta sus servicios en lo que corresponda.

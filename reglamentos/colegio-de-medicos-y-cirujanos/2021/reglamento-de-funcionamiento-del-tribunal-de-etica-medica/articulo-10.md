@@ -1,0 +1,1 @@
+Artículo 10.-Ausencia del Presidente. En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa, el Presidente será sustituido por un Presidente ad-hoc nombrado por mayoría absoluta en la sesión en que se encuentre ausente y a falta de acuerdo, la presidencia recaerá en el miembro de mayor edad.

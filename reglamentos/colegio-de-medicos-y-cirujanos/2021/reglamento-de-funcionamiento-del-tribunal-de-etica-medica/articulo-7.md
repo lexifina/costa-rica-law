@@ -1,0 +1,1 @@
+Artículo 7º-Servicios profesionales. La Junta de Gobierno nombrará a los médicos que ejercerán el cargo de miembros del Tribunal de Ética Médica del Colegio de Médicos y Cirujanos de Costa Rica. Los miembros designados deberán firmar un contrato por servicios profesionales y de confidencialidad por el término señalado en la Ley Orgánica del Colegio de Médicos y Cirujanos.

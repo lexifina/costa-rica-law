@@ -1,0 +1,1 @@
+Artículo 3º-Principios. El Tribunal de Ética Médica ejercerá sus competencias de conformidad con los principios de legalidad, debido proceso, informalismo, oficiosidad, proporcionalidad, razonabilidad, motivación, comunicación de los actos e igualdad procesal de las partes.

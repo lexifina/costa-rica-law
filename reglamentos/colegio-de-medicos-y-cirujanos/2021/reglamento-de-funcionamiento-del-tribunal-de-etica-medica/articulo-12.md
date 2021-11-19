@@ -1,0 +1,1 @@
+Artículo 12.-Voto Salvado. En el caso de que existan votos salvados de los miembros del Tribunal de Ética Médica, éstos podrán hacerlos constar al final del documento aprobado a efectos de hacer constar su razonamiento.

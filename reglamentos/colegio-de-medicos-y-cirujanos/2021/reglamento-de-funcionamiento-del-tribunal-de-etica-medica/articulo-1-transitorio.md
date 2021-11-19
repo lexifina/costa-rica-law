@@ -1,0 +1,1 @@
+Transitorio.-La persona electa como Presidente del Tribunal de Ética Médica antes de la entrada en vigencia de este Reglamento podrá ser electa por un periodo de dos años y se tomará como inicio para el cómputo del plazo la entrada en vigencia de este reglamento.
