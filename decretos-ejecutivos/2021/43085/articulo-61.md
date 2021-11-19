@@ -1,0 +1,1 @@
+Artículo 61°-Derogatorias. El presente reglamento deroga Decreto Ejecutivo 36789-C "Reglamento a la Ley de Creación del Centro Nacional de la Música y sus reformas" del 1 de agosto del 2011; y cualquier otra norma de igual o menor rango que se le oponga, o regule materias similares a las reguladas en éste.

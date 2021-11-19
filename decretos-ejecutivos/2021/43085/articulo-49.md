@@ -1,0 +1,1 @@
+Artículo 49°-De las reglamentaciones académicas. El INM podrá elaborar los reglamentos necesarios para el desarrollo académico de la institución, y deberá someterlos a conocimiento y aprobación de la Junta Directiva del Centro.

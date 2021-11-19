@@ -1,0 +1,1 @@
+Artículo 24°-De la delegación de funciones. De conformidad con el artículo 5 inciso ñ de la Ley, la Junta Directiva podrá delegar funciones en el Director General, que considere pertinentes para el mejor funcionamiento de la Institución

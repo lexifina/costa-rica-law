@@ -1,0 +1,1 @@
+Artículo 58°-De la generación de recursos propios. Para la generación de recursos propios de conformidad con los incisos b), c) y d) del artículo anterior, se deberá contar con el acuerdo previo de la Junta Directiva. Todos los ingresos generados por este concepto, deberán ser incorporados a las arcas institucionales según la normativa vigente en materia presupuestaria.

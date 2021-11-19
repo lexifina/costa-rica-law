@@ -1,0 +1,1 @@
+Transitorio Único.-Los derechos de los funcionarios que, a la entrada en vigencia del presente reglamento, ocupen alguno de los cargos establecidos, y que no cumplen con los nuevos requisitos señalados, serán respetados hasta tanto cese su relación con la institución, por cualquier causa.
