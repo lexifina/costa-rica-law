@@ -14,3 +14,4 @@ Reglamento de Reclutamiento, Selección y Promoción de los Recursos Humanos del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-25 | la propia norma |
+| 2 | 2021-11-22 | Reglamento 81 (2021-11-22) |

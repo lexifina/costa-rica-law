@@ -1,2 +1,2 @@
-Articulo 57.— Los oferentes que participen en concursos externos y no alcancen la nota mínima establecida en este reglamento, contarán con un mes, a partir de la fecha en que se les comunica el resultado del concurso, para retirar los documentos que aportaron a Recursos Humanos.
-Transcurrido este lapso y a juicio de Recursos Humanos, podrán ser destruidos sin ninguna responsabilidad para la Institución o bien archivarse si se estiman de interés.
+Artículo 57°: Los oferentes externos que participen en concursos externos y no alcancen la nota mínima establecida en este reglamento, contarán con un mes, a partir de la fecha en que se les comunica el resultado del concurso, para retirar los documentos que aportaron a Recursos Humanos. Transcurrido este lapso y a juicio de Recursos Humanos, podrán ser destruidos sin ninguna responsabilidad para la Institución o bien archivarse si se estiman de interés.
+(Así reformado en sesión N° 81 del 22 de noviembre de 2021)

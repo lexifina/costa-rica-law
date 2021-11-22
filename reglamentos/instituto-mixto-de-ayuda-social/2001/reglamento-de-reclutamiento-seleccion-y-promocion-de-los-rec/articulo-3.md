@@ -1,4 +1,4 @@
-Articulo 3°—Para todos los efectos legales que se deriven de la aplicación del presente Reglamento, se entenderá por:
+Artículo 3°-Para todos los efectos legales que se deriven de la aplicación del presente Reglamento, se entenderá por:
 Reclutamiento de personal: Proceso que se sigue con el objeto de atraer candidatos aptos para el desempeño del puesto.
 Selección de personal: Proceso mediante el cual, se escoge entre los candidatos reclutados al idóneo para ocupar un determinado puesto en la Institución, con el propósito de aumentar o mantener la eficiencia en el desempeño institucional, de tal forma que se asegure el desarrollo y realización efectiva del trabajador en el desempeño de su puesto y el logro de los objetivos por parte del 1MAS.
 Ascenso: Paso de un funcionario a un puesto de mayor categoría salaria!, dificultad y responsabilidad que el que ocupa, para el que reúne los requisitos establecidos y que se ha sometido al proceso de selección respectivo, cuando corresponda.
@@ -22,8 +22,11 @@ Inopia: Condición que se presenta, luego de realizar los concursos respectivos 
 Puesto: Conjunto de tareas, deberes y responsabilidades, asignadas por una autoridad competente para que sean atendidas por un servidor durante su jomada laboral, para el cual existe el contenido presupuestario del respectivo pago-
 Cargo: Nomenclatura interna con la cual en el IMAS se conoce a cada uno de sus puestos.
 Concurso: Procedimiento en que varias personas compiten para ocupar una plaza.
+CONCURSO DESIERTO: Concurso interno o externo en el que se presente al menos alguna de las siguientes condiciones: - se dispone de personas oferentes elegibles, pero ninguna de ellas se considera idónea, según el criterio escrito expuesto por la persona titular subordinada peticionaria o la Gerencia General, - no existe participación de personas oferentes, ninguna de las personas oferentes se considera elegible; ninguna las personas candidatas se interesan en continuar en el proceso.
+(Así adicionada la definición anterior en sesión N° 81 del 22 de noviembre de 2021)
 Concurso interno: Proceso que se realiza para llenar una plaza vacante libre o temporal, en el cual únicamente podrán participar funcionarios del IMAS.
-Concurso externo: Proceso que se efectúa posterior a la realización del concurso interno, con el objeto de obtener candidatos externos a fin de llenar una plaza vacante libre o temporal, salvo las excepciones que se disponen en el presente reglamento.
+Concurso externo: Proceso que se efectúa con el objeto de obtener personas candidatas para ocupar una plaza vacante libre, una vez realizado el respectivo concurso interno, en el cual pueden participar candidatos internos del IMAS o personas externas a este, salvo las excepciones que se disponen en el presente reglamento.
+(Así reformada la definición anterior en sesión N° 81 del 22 de noviembre de 2021)
 Nómino: Propuesta que hace Recursos Humanos al superior jerárquico peticionario, de un solo candidato elegible, en este caso para ser promovido o contratado, por no haber más elegibles, de conformidad con los criterios técnicos definidos.
 Dupla: Lista de dos candidatos elegibles que Recursos Humanos presenta al superior jerárquico peticionario para efectos de escogencia y recomendación de nombramiento.
 Nómina: Lista de tres candidatos elegibles que hayan obtenido el mayor puntaje en relación con los prediclures de selección aplicados, y que Recursos Humanos presenta al superior jerárquico peticionario para efectos de escogencia y recomendación de nombramiento, sin embargo podrá integrarse con más candidatos si existieren calificaciones iguales.
