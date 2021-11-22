@@ -1,4 +1,0 @@
-Artículo 11.-Custodia de la mercadería. Habiéndose cumplido con el procedimiento anterior, procederá el funcionario municipal a depositar la mercadería decomisada en el espacio físico destinado para estos fines por la Dirección Administrativa.
-En el caso de productos perecederos, los propietarios deberán retirarlos, conforme dispone este Reglamento, sin que sea responsabilidad de la administración municipal el deterioro de los mismos.
-La mercadería no será movilizada de dicho sitio hasta tanto no se haya cumplido con el procedimiento para su retiro, destrucción o entrega a las autoridades judiciales o administrativas pertinentes.
-El sitio para albergar bienes decomisados se encontrará bajo llave, la cual manejarán en forma exclusiva la Jefatura de Inspecciones y la Dirección Administrativa.

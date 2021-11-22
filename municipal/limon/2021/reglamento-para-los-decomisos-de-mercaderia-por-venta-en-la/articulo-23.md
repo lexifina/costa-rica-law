@@ -1,1 +1,0 @@
-Artículo 23.-Bebidas alcohólicas. En el decomiso de bebidas alcohólicas en lugares no autorizado se pondrá de inmediato en manos de las autoridades judiciales, por infringir la Ley de Patentes de Actividades Lucrativas del cantón.
