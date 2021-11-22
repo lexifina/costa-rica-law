@@ -15,3 +15,4 @@ Reglamento para el juego Nuevos Tiempos
 | --- | --- | --- |
 | 1 | 2019-12-04 | la propia norma |
 | 2 | 2021-09-23 | Reglamento 56 (2021-09-23) |
+| 3 | 2021-11-22 | Reglamento 69 (2021-11-22) |

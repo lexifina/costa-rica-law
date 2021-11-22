@@ -18,5 +18,6 @@ Comprobante de transacción: Tiquete impreso por una terminal ubicada en un punt
 Jugada multi-sorteos: El jugador tendrá la oportunidad de hacer apuestas a sorteos consecutivos tanto para mediodía, noche o ambos hacia el futuro, hasta un límite de 10 sorteos incluyendo el vigente.
 Jugadas en avance: Apuestas en sorteos que ocurrirán en el futuro, a partir de un sorteo que ocurre después del próximo, tanto para mediodía, noche o ambos, siempre y cuando la apuesta se realice para uno de los sorteos contenidos en los siguientes 8 días naturales contados a partir del momento de la compra.
 Jugadas multi-sorteo en avance: Apuestas multi-sorteo (10 sorteos) en avance (a futuro), siempre y cuando el primer sorteo seleccionado de esa compra, esté contenido en uno de los siguientes 8 días naturales contados a partir del momento de la compra.
-Promoción: Otorgamiento de premios especiales en especie, en efectivo o ambas, según corresponda, adicionales y asociados con el Juegos Nuevos y sus modalidades, por un período determinado, con la finalidad de incentivar la venta del producto.
+Promoción: Otorgamiento de premios especiales en especie, en efectivo o ambas, según corresponda, adicionales y asociados con el Juego Nuevos Tiempos y sus modalidades, por un período determinado, con la finalidad de incentivar la venta del producto.
 (Así adicionada la definición anterior mediante sesión N° 56-2021 del 23 de setiembre de 2021)
+(Así reformado la definición anterior mediante sesión N° 69-2021 del 22 de noviembre de 2021)
