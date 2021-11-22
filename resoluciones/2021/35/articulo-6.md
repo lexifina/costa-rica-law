@@ -1,0 +1,1 @@
+Artículo 6º-Derogatoria: Esta resolución deroga la Directriz N° DGH-D-03-12 de 30 de octubre de 2012, "Directriz de simplificación de trámites relacionados con requisitos para reconocer la exención del impuesto creado mediante artículo 9 de la Ley N° 7088 de 30 de noviembre de 1987, a las aeronaves utilizadas para fumigación".

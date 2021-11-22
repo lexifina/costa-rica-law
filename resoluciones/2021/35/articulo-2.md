@@ -1,0 +1,1 @@
+Artículo 2º-Solicitud de exención en el sistema Exonet: Todo beneficiario, que se haya registrado en el sistema Exonet y que haya creado la contraseña, deberá ingresar al sistema EXONET mediante la siguiente página web: http://www.hacienda.go.cr/exenciones/exinicio.aspx para llenar su solicitud de exención correspondiente.
