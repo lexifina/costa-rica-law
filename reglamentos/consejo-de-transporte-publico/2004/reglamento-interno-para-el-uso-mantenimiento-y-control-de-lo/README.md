@@ -16,3 +16,4 @@ Reglamento Interno para el Uso, Mantenimiento y Control de los Vehículos del Co
 | 1 | 2004-06-18 | la propia norma |
 | 2 | 2005-08-09 | Reglamento 58 (2005-08-09) |
 | 3 | 2009-01-20 | Reglamento 3 (2009-01-20) |
+| 4 | 2021-11-22 | Reglamento 0 (2021-11-22) |
