@@ -1,0 +1,1 @@
+Artículo 4º-Regulación de la comercialización del azúcar para uso industrial. El azúcar para uso industrial se podrá vender únicamente por el titular de la notificación de materia prima y los importadores autorizados a establecimientos que cuenten con Permiso Sanitario de Funcionamiento para la elaboración de alimentos.

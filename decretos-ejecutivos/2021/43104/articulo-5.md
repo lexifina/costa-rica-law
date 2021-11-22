@@ -1,0 +1,1 @@
+Artículo 5º-Infracciones. En caso de detectarse la venta, donación, suministro o puesta a disposición al público o clientes específicos del azúcar, que incumpla las disposiciones del presente Decreto, el Ministerio de Salud procederá con la aplicación de las medidas especiales según el artículo 355 y siguientes de la Ley General de Salud.

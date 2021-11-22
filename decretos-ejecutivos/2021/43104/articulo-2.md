@@ -1,0 +1,1 @@
+Artículo 2º-Definición de azúcar para uso industrial. Entiéndase por azúcar para uso industrial como la materia prima procedente de caña de azúcar (saccharum officinarum) o la remolacha azucarera (beta vulgaris L) que se emplea en el proceso de fabricación de alimentos. No destinada a la venta directa al consumidor.
