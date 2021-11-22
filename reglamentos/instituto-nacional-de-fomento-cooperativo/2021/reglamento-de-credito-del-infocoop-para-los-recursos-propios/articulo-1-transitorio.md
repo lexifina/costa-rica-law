@@ -1,0 +1,1 @@
+TRANSITORIO 1: En virtud de la modificación hecha al artículo 16, se concede un plazo de 18 meses a la administración para que realice los ajustes internos y externos necesarios para que se defina todo lo relacionado al apoyo logístico y secretarial y mientras tanto seguirá el Departamento de Financiamiento, brindando el apoyo mencionado durante el plazo señalado.

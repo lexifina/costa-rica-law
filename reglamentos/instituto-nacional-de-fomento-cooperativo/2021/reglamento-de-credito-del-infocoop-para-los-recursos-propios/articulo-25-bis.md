@@ -1,0 +1,4 @@
+Artículo 25 bis. Crédito sindicado
+Se podrán otorgar Créditos Sindicados, a través de un Convenio Marco entre el INFOCOOP y Bancos del Estado o Banco Popular y de Desarrollo Comunal.
+En dicho Crédito se compartirán los costos de Formalización y eventual Ejecución Administrativa, Fiduciaria o Judicial, en proporción a la participación en las Garantía sindicada. Así mismo, los porcentajes de participación de cada uno de los acreedores en la masa del financiamiento, será establecida por mutuo acuerdo, respaldado a través de un Criterio Técnico del área de Financiamiento de INFOCOOP.
+En caso de que alguno de los acreedores participantes de los Bancos del Estado o el Banco Popular y de Desarrollo Comunal cuenten con un Análisis de Crédito con no más de tres meses de emitido, el mismo podrá ser usado por el INFOCOOP para determinar su participación y dictaminar el Crédito.
