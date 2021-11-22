@@ -14,3 +14,4 @@ Reforma Reglamento para el Juego Nuevos Tiempos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-05 | la propia norma |
+| 2 | 2021-11-22 | Reglamento 69 (2021-11-22) |
