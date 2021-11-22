@@ -1,0 +1,6 @@
+Artículo 12°:- Requisitos para el trámite de la transferencia monetaria condicionada.
+Los requisitos para que el IMAS pueda realizar la valoración profesional son los siguientes:
+a. Contar con la FIS, FISI o Ficha de Inclusión Social de SINIRUBE.
+b. Presentar los requisitos generales para beneficios individuales, así como los requisitos específicos para el Programa que dispone el Reglamento para la Prestación de Servicios y Otorgamiento de Beneficios del IMAS.
+c. En caso de ser una persona estudiante de un centro educativo privado o instituciones privadas que reciben estímulo estatal que sean autorizados por el MEP se solicita a la familia presentar una vez al año, la constancia emitida por la entidad educativa que especifique los beneficios que recibe la persona estudiante matriculada, y una nota aclaratoria de la persona encargada del núcleo familiar que indique si existen o no otros aportes económicos para financiar su permanencia en la institución.
+Una vez que se tengan los requisitos anteriormente descritos, la persona solicitante, deberá acceder al Sistema de Atención a la Ciudadanía del IMAS, mediante llamada telefónica o correo electrónico para gestionar una cita, o por medio del mecanismo que el IMAS determine.

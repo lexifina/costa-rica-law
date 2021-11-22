@@ -1,0 +1,1 @@
+Artículo 14°- De la aprobación, suspensión, revocatoria o denegatoria de la transferencia monetaria condicionada. Para la aprobación, suspensión, revocatoria o denegatoria de la transferencia monetaria del programa, se seguirá lo establecido en el Reglamento para la Prestación de Servicios y Otorgamiento de Beneficios del IMAS.

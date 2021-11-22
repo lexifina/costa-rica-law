@@ -1,0 +1,1 @@
+Artículo 13°- Del ajuste del monto del beneficio. El IMAS deberá realizar los ajustes a los montos según el nivel académico en que definitivamente quedó matriculada la persona estudiante de acuerdo a lo establecido por la institución.

@@ -1,0 +1,1 @@
+TRANSITORIO I. En los casos en que las personas beneficiarias del Programa Crecemos del IMAS a la fecha de publicación de este reglamento requieran la actualización o la aplicación de la Ficha de Información Social, esta deberá ser aplicada a más tardar un año posterior a la entrada en vigencia de este Reglamento.
