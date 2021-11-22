@@ -1,0 +1,1 @@
+Artículo 45.- En caso de fallecimiento del licenciatario. En caso de muerte una persona física (no jurídica), la licencia comercial quedará sujeta a previa determinación del beneficiario de la misma (Este estará estipulado en el formulario de solicitud de la licencia comercial).

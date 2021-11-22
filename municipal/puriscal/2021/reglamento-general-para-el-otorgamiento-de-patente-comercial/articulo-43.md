@@ -1,0 +1,6 @@
+Artículo 43.- Del destino de la mercadería decomisada. La mercadería decomisada podrá ser dispuesta por la Municipalidad de la siguiente manera:
+a) Solo podrá ser devuelta al vendedor cuando cumpla con lo establecido en el artículo 42, inciso c) del presente reglamento.
+b) Si el vendedor no acude a reclamar la mercadería o no cumple con los requisitos establecidos en el artículo 42, inciso c) del presente reglamento se procederá de la siguiente manera:
+b.1) En caso de tratarse de mercadería orgánica, comestible, perecedera y empacada será entregada a las siguientes instituciones: Asilos de Ancianos, Escuelas, Hogar Crea o cualquier otra institución de beneficencia sin fines de lucro.
+b.2) En caso de flores o de artículos ornamentales serán utilizados por la Municipalidad para el embellecimiento, ornamentación y decoración del Cantón de Puriscal.
+b.3) En caso de alimentos de dudosa procedencia o con riesgo de salubridad y/o manipulación, será desechado por medio de un acta de descarte (el acta deberá ser levantada por el encargado de la oficina de Licencias Municipales, Departamento Legal y el coordinador de Seguridad Ciudadana y Control Vial; y deberá incluir el inventario de la mercadería desechada, fotografías y la información que se considere pertinente).

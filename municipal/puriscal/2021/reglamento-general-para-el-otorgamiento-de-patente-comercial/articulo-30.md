@@ -1,0 +1,1 @@
+Artículo 30.- Determinación parcial del impuesto. El total del ingreso bruto o la venta bruta anual de las actividades económicas que hayan operado solo una parte del período fiscal anterior, se determinará tomando como base, el promedio mensual del período real de la actividad.

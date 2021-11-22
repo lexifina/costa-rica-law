@@ -1,0 +1,1 @@
+Artículo 22.- Cancelación de la Licencia Comercial. Las resoluciones de la Administración que ordene la cancelación de la licencia o la clausura del negocio, por el vencimiento o revocatoria del permiso de funcionamiento, tendrán los recursos establecidos en el Código Municipal.

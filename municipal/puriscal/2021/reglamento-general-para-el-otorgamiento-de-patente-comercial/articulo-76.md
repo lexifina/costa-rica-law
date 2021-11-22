@@ -1,0 +1,1 @@
+Artículo 76.- Sobre la multa por falta de pago. Según lo estipulado en el artículo 3º de la Ley de Impuestos a Espectáculos Públicos, N.º 6844, La Municipalidad de Puriscal, impondrá una multa equivalente a diez veces el monto dejado de pagar, a los contribuyentes que incurran en la falta de pago de este impuesto.

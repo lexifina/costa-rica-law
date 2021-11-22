@@ -1,0 +1,1 @@
+Artículo 26.- Obligación de suministro de información. Para fijar el monto del impuesto, la Municipalidad de Puriscal solicitará al contribuyente, la información necesaria para establecer los factores de la imposición, datos que están obligados a brindar a la Municipalidad para la verificación de la imposición tributaria.

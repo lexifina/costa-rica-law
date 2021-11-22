@@ -1,0 +1,1 @@
+Artículo 74.- Del pago anticipado. Los contribuyentes podrán efectuar pagos anticipados del impuesto. Para este efecto presentarán una declaración anticipada, en el formulario confeccionado por la Municipalidad; procediendo en el caso de espectáculos públicos permanentes, a hacer la liquidación definitiva, según lo describe el artículo anterior.

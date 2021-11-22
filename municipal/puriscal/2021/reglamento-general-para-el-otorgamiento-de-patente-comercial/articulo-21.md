@@ -1,0 +1,1 @@
+Articulo 21.- Condicionamiento del permiso de funcionamiento. Cuando el permiso de funcionamiento esté condicionado a plazo fijo, el vencimiento del mismo obliga al interesado a la renovación de la licencia comercial. Únicamente se tramitarán las solicitudes que presenten todos los requisitos que se exigen.

@@ -1,0 +1,1 @@
+Artículo 41.- Renuncia Tácita. Se considerará una renuncia tácita cuando el administrado no pague tres trimestres consecutivos el monto de la patente otorgada. Esto generará la pérdida del derecho de ejercer la actividad comercial y mantendrá pendiente el cobro el tiempo que estuvo activa la misma.

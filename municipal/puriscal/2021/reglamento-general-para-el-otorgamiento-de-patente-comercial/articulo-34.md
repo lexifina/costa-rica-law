@@ -1,0 +1,1 @@
+Artículo 34.- Vigencia y Forma de Pago del Impuesto de Patentes. El impuesto de patente tendrá vigencia para el año natural siguiente a la declaración, y se pagará por trimestre adelantado, durante los primeros 5 días hábiles de: enero, abril, julio y octubre de cada año.

@@ -1,0 +1,1 @@
+Artículo 46.- Revocatoria Especial de la Licencia Comercial. En los casos que en las personas jurídicas exista: disolución, quiebra o insolvencia judicialmente declarada, la Municipalidad de Puriscal procederá a efectuar la revocatoria de la licencia comercial.
