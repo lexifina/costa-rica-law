@@ -1,7 +1,5 @@
-Artículo N° 11- Del pago.
-Todo gasto o pago efectuado mediante fondo de la caja chica deberá ser al contado y contra presentación de la respectiva factura electrónica. (Toda factura debe ser enviada al correo electrónico facturaelectronica@correos.go.cr y solicitarlas posteriormente para su trámite de reintegro.)
-Para los casos de servicios como desayuno, almuerzo, cena y hospedaje por concepto de viáticos las facturas presentadas debe estar a nombre de Correos de Costa Rica S.A.
-Excepcionalmente, las facturas que no cumplan los requisitos establecidos por el ordenamiento jurídico vigente, se podrán cancelar de acuerdo a lo dispuesto por la Tributación Directa (contribuyentes inscritos al régimen simplificado, o que no están obligados a emitir factura electrónica).
+Artículo N° 11.—Del pago. Todo gasto o pago efectuado mediante fondo de la caja chica deberá ser al contado y contra presentación de la respectiva factura electrónica. (Toda factura debe ser enviada al correo electrónico facturaelectronica@ correos.go.cr y solicitarlas posteriormente para su trámite de reintegro.).
+Para los casos de servicios como desayuno, almuerzo, cena y hospedaje por concepto de viáticos las facturas presentadas deben estar a nombre de Correos de Costa Rica S. A.
+Excepcionalmente, las facturas que no cumplan los requisitos establecidos por el ordenamiento jurídico vigente se podrán cancelar de acuerdo a lo dispuesto por la Tributación Directa (contribuyentes inscritos al régimen simplificado, o que no están obligados a emitir factura electrónica).
 Para la cancelación de las facturas y viáticos que no haya mediado un adelanto o vale, la fecha del documento no podrá sobrepasar los 30 días naturales desde su emisión.
 La Administración puede hacer el reconocimiento de viáticos cuando por conveniencia la gira inicie en otro punto diferente a la sede laboral, disponiendo de los mecanismos de control interno que permitan comprobar la ejecución de la gira, horas de inicio, finalización y cualquier otro aspecto.
-(Así reformado mediante acuerdo N° 9098 y publicado en el Alcance Digital N° 77 a La Gaceta N° 65 del 2 de abril del 2019)

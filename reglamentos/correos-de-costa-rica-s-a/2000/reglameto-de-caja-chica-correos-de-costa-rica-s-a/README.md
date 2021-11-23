@@ -19,3 +19,4 @@ Reglameto de Caja Chica, Correos de Costa Rica, S.A.
 | 4 | 2008-07-14 | Reglamento 888 (2008-07-14) |
 | 5 | 2017-10-10 | Reglamento 0 (2017-10-10) |
 | 6 | 2019-04-02 | Reglamento 0 (2019-04-02) |
+| 7 | 2021-11-23 | Reglamento 1706 (2021-11-23) |

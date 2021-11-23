@@ -1,0 +1,1 @@
+Artículo N° 22.—De la vigencia. El presente reglamento fue modificado por la Junta Directiva de Correos de Costa Rica S. A., mediante Acuerdo N° 10122 tomado en Sesión N° 1706 del día 23 de noviembre de 2021.
