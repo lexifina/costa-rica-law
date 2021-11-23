@@ -1,1 +1,0 @@
-Artículo 7º—Recibo de la denuncia. La Auditoría Interna recibirá las denuncias en la oficina central de la Municipalidad de Tibás, las cuales deberán venir dirigidas directamente hacia la Auditoría Interna. El Auditor Interno valorará la admisibilidad de las denuncias presentadas.
