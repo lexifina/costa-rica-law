@@ -15,3 +15,4 @@ Reglamento para la administración y el uso de los espacios para estacionamiento
 | --- | --- | --- |
 | 1 | 2014-04-01 | la propia norma |
 | 2 | 2015-09-24 | Reglamento 47 (2015-09-24) |
+| 3 | 2021-11-23 | Resolución 213 (2021-11-23) |
