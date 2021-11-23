@@ -1,0 +1,1 @@
+ARTÍCULO 2- Corresponde al Consejo Superior de Educación la realización de actos de celebración que realcen el valor de la poesía en la sociedad costarricense, a efectuarse en los centros educativos públicos y privados del país, e en los niveles de Educación Básica y Diversificada.

@@ -1,0 +1,1 @@
+ARTÍCULO 3- Corresponde al Ministerio de Cultura la promoción de actividades culturales que festejen a los literatos y a quienes, durante sus mejores años, han dedicado su talento a la creación poética.
