@@ -1,0 +1,1 @@
+Artículo 8º-De las decisiones. Las decisiones se adoptarán por unanimidad o en su defecto por mayoría simple (mitad más uno). En caso de empate la persona nombrada como Representante de Fiscalía contará con voto de calidad de conformidad con el numeral 49 de la Ley General de Administración Pública.

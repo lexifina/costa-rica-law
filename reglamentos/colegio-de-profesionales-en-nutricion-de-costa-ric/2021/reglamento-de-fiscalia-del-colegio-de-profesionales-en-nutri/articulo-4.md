@@ -1,0 +1,1 @@
+Artículo 4º-De los miembros de Fiscalía. Estará integrada por cuatro miembros que serán elegidos por la Asamblea General conforme a los artículos 22 y 23 de la Ley Orgánica, deben ser miembros activos del Colegio de Profesionales en Nutrición de Costa Rica en pleno uso de sus derechos y al día con sus obligaciones.

@@ -1,0 +1,1 @@
+Artículo 5º-De las sesiones ordinarias y extraordinarias. La Fiscalía sesionará ordinariamente los segundos lunes de cada mes, a partir de las diecisiete horas y en forma extraordinaria, cuando la situación así lo amerite, a criterio de quien figure como Representante de Fiscalía ante la Junta Directiva o por solicitud de al menos dos de las personas Fiscales.
