@@ -1,0 +1,3 @@
+Artículo 53 bis- El Instituto Nacional de Estadística y Censos (INEC) incluirá, en los costos de los proyectos que se sufragan con los fondos reservados a que se refiere el párrafo primero del artículo 53 de esta ley, los gastos que se empleen en la ejecución de estos. En este caso, dada la naturaleza excepcional de los fondos reservados, el INEC estará eximido de someterse a la regla fiscal establecida en la Ley 9635, Fortalecimiento de las Finanzas Públicas, de 3 de diciembre de 2018.
+A los efectos de lo dispuesto en el presente artículo y en el artículo 53 de esta ley, el INEC se sujetará a los procedimientos de aprobación presupuestaria ante la Contraloría General de la República.
+(Así adicionado por el artículo único de la ley N° 10084 del 12 de noviembre de 2021)
