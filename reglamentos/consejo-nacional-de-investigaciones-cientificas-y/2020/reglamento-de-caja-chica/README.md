@@ -14,3 +14,4 @@ Reglamento de caja chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-26 | la propia norma |
+| 2 | 2021-11-23 | Reglamento 0 (2021-11-23) |
