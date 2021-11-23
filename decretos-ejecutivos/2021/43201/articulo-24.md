@@ -1,0 +1,1 @@
+Artículo 24.-Plan anual de Trabajo. La Contraloría de Servicios deberá presentar al Jerarca de la Institución un plan anual de trabajo que sirva de base para evaluar el informe anual de labores. Una copia de dicho plan deberá presentarse a la Secretaría Técnica de MIDEPLAN, a más tardar el 30 de noviembre de cada año.

@@ -1,0 +1,1 @@
+Artículo 5º-Obligación de Colaboración. Para los efectos de este Reglamento y su aplicación, todos los funcionarios de la Procuraduría General de la República deberán prestar colaboración a la Contraloría de Servicios cuando así se requiera, con el fin de cumplir con las funciones y atribuciones establecidas en la Ley N° 9158 y su Reglamento.

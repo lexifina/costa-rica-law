@@ -1,0 +1,1 @@
+Artículo 26.-Normas de aplicación supletoria. Las violaciones a los deberes impuestos por este reglamento serán sancionadas de conformidad con lo regulado en el Estatuto del Servicio Civil y su Reglamento, Código de Trabajo, Ley Orgánica de la Procuraduría General de la República y el Reglamento Interno de Trabajo de la Procuraduría General de la República y demás normas conexas.
