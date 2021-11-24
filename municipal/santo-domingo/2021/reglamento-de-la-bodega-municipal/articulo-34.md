@@ -1,0 +1,1 @@
+Artículo 34.-Prohibición de realizar ajustes de oficio. El encargado de la bodega municipal, por ningún motivo podrán efectuar ajustes sin seguir los procedimientos establecidos en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 23.-Plazo de validez del formulario "Requisición de Materiales en Existencia". El formulario "Requisición de Materiales en Existencia", tendrán una validez de treinta días calendario a partir de su confección y una vez transcurrido dicho lapso, sin su efectiva utilización, quedará sin efecto y se deberá iniciar de nuevo con el trámite.

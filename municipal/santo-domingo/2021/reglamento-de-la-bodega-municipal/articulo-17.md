@@ -1,0 +1,7 @@
+CAPÍTULO V
+Control de salida de bienes de la bodega
+municipal hacia los centros de costos
+Artículo 17.-Registro de nombres y firmas: La Bodega Municipal contará con un "Registro de Nombres y Firmas" de los funcionarios autorizados para firmar los formularios de requisición de materiales en existencia para los Centros de Costos cuando estén habilitados y para los así como los funcionarios autorizados para el retiro de éstos
+Para los efectos del referido registro, deberá cumplirse con los siguientes requisitos: La Alcaldía y/o directores de áreas, designarán a los funcionarios autorizados para solicitar y para retirar bienes en la bodega municipal, esta designación se efectuará en el formulario oficializado para ello, en el cual se consignará el nombre y firma de los funcionarios autorizados, así como el visto bueno del director y/o jefe de área asignado de la unidad usuaria a la que pertenece, este formulario será remitido al encargado de la bodega municipal, en enero de cada año, de los cual remitirá una copia a la Proveeduría Institucional.
+El registro de firmas tendrá validez por un año y deberá renovarse durante el mes de enero de cada año. En caso de que sea necesario sustituir a algún funcionario autorizado, deberá utilizarse el mismo procedimiento para el registro de su firma.
+El encargado de la bodega municipal verificará que dicha designación se realice de forma oportuna, estando facultado para efectuar las acciones que correspondan al efecto, ante los funcionarios responsables.

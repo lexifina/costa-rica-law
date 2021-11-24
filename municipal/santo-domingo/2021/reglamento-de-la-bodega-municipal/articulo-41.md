@@ -1,0 +1,1 @@
+Artículo 41.-Prohibición de traslado de bienes directamente a obras. Queda prohibido el traslado de bienes directamente a obras o proyectos, sin antes haber sido reportados al encargado de la bodega municipal.

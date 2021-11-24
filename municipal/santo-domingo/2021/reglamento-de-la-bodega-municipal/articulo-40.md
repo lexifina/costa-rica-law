@@ -1,0 +1,1 @@
+Artículo 40.-Desvió de bienes hacia terceras personas u otras instituciones. Se prohíbe al encargado de la bodega, despachar bienes cuyo destino sea para una persona o institución distinta a la Municipalidad, exceptuando los casos en que ello resulte factible conforme a lo dispuesto en el presente Reglamento y autorizado por la administración superior.

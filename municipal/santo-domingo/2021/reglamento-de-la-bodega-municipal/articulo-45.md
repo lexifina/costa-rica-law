@@ -1,0 +1,2 @@
+Artículo 45.-Sanciones por inobservancia al Reglamento. La violación, omisión, encubrimiento, negligencia o cualquier otro tipo de conducta ilícita, culposa o dolosa por parte de los funcionarios de esta Municipalidad, en contra del debido acatamiento a las disposiciones contempladas en este Reglamento, se considerará falta y su gravedad será sancionada conforme corresponda de acuerdo con las regulaciones contenidas en el ordenamiento jurídico, según se trate.
+En todos los casos el funcionario investigado tendrá derecho al debido proceso constitucional.

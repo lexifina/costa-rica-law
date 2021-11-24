@@ -1,0 +1,11 @@
+Artículo 2º-Definiciones. Para efectos del presente reglamento los siguientes términos se definen así:
+a. Bodega Municipal: Inmueble o espacio físico destinado para el almacenamiento de los diversos bienes, materiales e insumos pertenecientes a la Municipalidad de Santo Domingo de Heredia.
+b. Área: Sección dentro de la bodega destinada a almacenar bienes, materiales e insumos del mismo tipo o clase.
+c. Bienes: Son todos los bienes, materiales e insumos que forman parte del patrimonio de la municipalidad y registrados en el inventario municipal.
+d. Bienes no patrimoniales: Son los materiales y suministros que posee la Municipalidad de Santo Domingo para ser utilizados en labores de oficina, aseo, limpieza; así como para la ejecución de las obras y demás actividades que le corresponde desarrollar en el ejercicio de sus competencias
+e. Bienes patrimoniales: Los activos que adquiere la Municipalidad de Santo Domingo, ya sea por compra, donación, aporte en convenios de cooperación o por cuenta de terceros, catalogados como bienes duraderos, que se deben registrar, rotular y valorar de acuerdo con el precio que corresponda según las disposiciones técnicas y que conformen el patrimonio de la institución
+f. Catálogo de materiales y repuestos: Instrumento que normaliza la codificación y control de los bienes utilizados por la Municipalidad de Santo Domingo ofrece una descripción de los atributos de cada artículo y permite la individualización de estos.
+g. Centro de costos: Es un fraccionamiento que genera costos para la institución, pero solo indirectamente le añade beneficio o utilidad y permite tener un mejor control presupuestario al poder medir a cada dependencia, para poder obtener un estado de resultados por cada centro.
+h. Localización: Determinación del lugar en el cual se halla una persona o una cosa. I.
+i. Formulario de Requisición de materiales en existencia: Documento mediante el cual se solicita la salida de los materiales almacenados en la bodega municipal.
+j. Unidad Usuaria: Unidad administrativa incorporada en la estructura organizativa de la Municipalidad de Santo Domingo, con competencia determinada en el área del conocimiento técnico y ejecutor de un programa.

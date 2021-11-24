@@ -1,0 +1,2 @@
+Artículo 20.-Conteo y verificación de las características de los bienes a despachar. El encargado de la bodega municipal deberá efectuar el conteo y revisión minuciosos que corresponda, a fin de verificar que los bienes que se entreguen coinciden con los que se indican en el formulario "Requisición de Materiales en Existencia". Lo anterior deberá ser corroborado además por el funcionario que se apersona al retirar el bien(es).
+Dicho formulario deberá estar firmado por el encargado de la bodega municipal, así como del funcionario que efectúa el retiro.

@@ -1,0 +1,1 @@
+Artículo 21.-Registro en el sistema informático y demás sistemas de control. El encargado de la bodega municipal registrará las entradas y salidas de materiales en el sistema que se tenga para tales efectos.
