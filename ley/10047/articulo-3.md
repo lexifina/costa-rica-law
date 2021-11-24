@@ -1,0 +1,1 @@
+ARTÍCULO 3- La Municipalidad de Oreamuno podrá realizar una adecuada campaña de divulgación de la condonación tributaria, para sensibilizar a la población sobre la necesidad del aprovechamiento de esta condonación tributaria y que permita alcanzar el objetivo de disminuir el pendiente y procurar el pago del principal adeudado.
