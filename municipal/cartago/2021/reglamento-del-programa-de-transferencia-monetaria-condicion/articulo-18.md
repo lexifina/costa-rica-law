@@ -1,0 +1,1 @@
+Artículo 18.-En cumplimiento a la Convención Colectiva de la Municipalidad de Cartago, los hijos de las personas funcionarias municipales y estos, podrán optar por ser beneficiarios de las transferencias monetarias condicionadas, siempre y cuando cumplan con todos los requisitos establecidos en este Reglamento y el Código Municipal.

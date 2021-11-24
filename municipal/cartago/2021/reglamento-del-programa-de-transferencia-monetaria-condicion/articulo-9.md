@@ -1,0 +1,3 @@
+Artículo 9º-El programa de transferencias monetarias será financiado por las sumas que destine con ese fin el Concejo Municipal en los presupuestos municipales, por las donaciones y aportes que brinden personas, entidades u organismos, públicos o privados.
+La Alcaldía Municipal deberá incluir en el presupuesto ordinario los recursos para el financiamiento del presente programa. Eventualmente, se podrán reforzar los recursos del Programa, mediante los presupuestos extraordinarios.
+El Concejo Municipal en atención a las posibilidades presupuestarias la Municipalidad deberá definir anualmente el monto para la atención de este programa.

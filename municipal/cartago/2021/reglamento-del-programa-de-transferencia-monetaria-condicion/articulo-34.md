@@ -1,0 +1,1 @@
+Artículo 34.-La Municipalidad será la encargada coordinar con la dirección del MEP o el centro de estudio superior, el suministro y actualización de la información que demuestre que las personas beneficiarias se mantienen matriculados y asistiendo al Sistema, para lo cual creara los convenios necesarios.

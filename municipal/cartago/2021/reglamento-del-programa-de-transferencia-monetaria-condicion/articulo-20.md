@@ -1,0 +1,2 @@
+Artículo 20.-Las familias beneficiarias recibirán una transferencia monetaria condicionada otorgada a la familia del estudiante para satisfacer necesidades básicas, que se aprobará mediante una resolución administrativa y se suscribirá una carta de compromiso.
+Los montos de la transferencia serán definidos mediante dictamen fundado de la Comisión Permanente de Asuntos Sociales (CPAS) tomando como referencia el presupuesto Municipal y debidamente aprobados por el Concejo Municipal del Cantón Central de Cartago.

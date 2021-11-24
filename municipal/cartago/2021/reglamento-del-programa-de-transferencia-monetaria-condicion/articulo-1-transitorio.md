@@ -1,0 +1,1 @@
+Transitorio I.-En el caso de las transferencias monetarias de estudiantes en el programa de primera infancia otorgadas con anterioridad a la entrada en vigencia del presente reglamento, la Municipalidad deberá garantizar la continuidad de la misma en este programa, siempre que cumpla con los requisitos.

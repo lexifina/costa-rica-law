@@ -1,0 +1,1 @@
+Artículo 21.-La municipalidad a través de los miembros de los Consejos de Distrito y del Concejo Municipal, velarán porque los recursos para la ejecución del Programa Transferencia Monetaria se giren a las personas beneficiarias oportunamente y sean utilizados para realizar los estudios académicos para el que califico.

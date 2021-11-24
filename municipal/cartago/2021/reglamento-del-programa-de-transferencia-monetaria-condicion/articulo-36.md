@@ -1,0 +1,1 @@
+Artículo 36.-La información suministrada se incluirá en el sistema informático, al cual tendrá acceso exclusivo el Departamento de Secretaria Municipal y estará disponible para consulta cuando se solicite la información necesaria para realizar el monitoreo y evaluación del Programa.
