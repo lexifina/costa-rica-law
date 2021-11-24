@@ -1,3 +1,0 @@
-(Derogado)
-(Esta norma fue derogada por el artículo 8° de la ley N° 10077 del 5 de noviembre del 2021, "Ley para fusionar el Patronato Nacional de Rehabilitación con el Consejo Nacional de Personas con Discapacidad”)
-Artículo 1º.- Créase el Patronato Nacional de Rehabilitación como organismo de servicio público con personalidad jurídica, el cual tendrá a su cargo la administración del "Hogar de Rehabilitación, Santa Ana", para los niños lisiados por la poliomielitis u otras enfermedades que produzcan secuelas similares. Estará bajo la fiscalización técnica y económica de la Dirección General de Asistencia Médico Social del Ministerio de Salubridad Pública.
