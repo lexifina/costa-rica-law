@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE SANTA ANA
+De conformidad con lo dispuesto en los artículos 3 y 12 de la Ley de Impuesto Sobre Bienes Inmuebles N° 7509 y sus reformas, con la sentencia N° 1073-2010 de la Sección III del Tribunal Contencioso Administrativo y con el voto de Sala Constitucional N° 2011-003075; la Municipalidad de Santa Ana, en su condición de administración tributaria, hace pública su adhesión al nuevo "Manual de Valores Base Unitarios por Tipología Constructiva 2021", publicado por el Órgano de Normalización Técnica del Ministerio de Hacienda en el Alcance N° 213 a La Gaceta N° 202 del miércoles 20 de octubre del 2021. La aplicación de dicho manual en la Municipalidad de Santa Ana empezará a regir a partir del 01 de enero de 2022.
+Santa Ana, 16 de noviembre de 2021.
