@@ -1,0 +1,3 @@
+Transitorio II- Para implementar las disposiciones del inciso e) del artículo 21 de la Ley 7531, Reforma Integral del Sistema de Pensiones y Jubilaciones del Magisterio Nacional, de 10 de julio de 1995, modificado en el artículo único, las inversiones en proyectos de infraestructura serán graduales, iniciando hasta con un cinco por ciento (5%) el primer año y aumentando en hasta un cinco por ciento (5%) cada cinco años hasta alcanzar su máximo, previa evaluación de los resultados obtenidos en las inversiones realizadas.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los cinco días del mes de noviembre del año dos mil veintiuno.
