@@ -1,1 +1,0 @@
-ARTÍCULO 3.- Créase el Consejo Regional de Desarrollo de Heredia como instancia coordinadora y supervisora para formular y planificar políticas, estrategias, planes, programas y proyectos de desarrollo provincial, ante las autoridades nacionales, provinciales, cantonales y locales.
