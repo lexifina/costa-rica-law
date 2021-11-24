@@ -17,3 +17,4 @@ Suspensión de la ejecución del Reglamento para la Explotación de Servicios Es
 | 2 | 2019-02-27 | Decreto Ejecutivo 41573 (2019-02-27) |
 | 3 | 2019-10-30 | Decreto Ejecutivo 42033 (2019-10-30) |
 | 4 | 2020-11-16 | Decreto Ejecutivo 42719 (2020-11-16) |
+| 5 | 2021-11-24 | Decreto Ejecutivo 43335 (2021-11-24) |
