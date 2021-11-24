@@ -1,0 +1,3 @@
+Artículo 14.-Aprobación Previa de Estudios de Especialización.
+La Gerencia General, de conformidad con las áreas de interés Institucional y de los criterios estipulados en este Reglamento, aprobará previamente las solicitudes de estudios de Especialización de las personas funcionarias que se impartan a nivel nacional.
+Aquellos que se ejecuten a nivel internacional o requeridos por los Jerarcas Institucionales (persona encargada de la Presidencia Ejecutiva, Gerencia General o Subgerencias) serán aprobados por la Junta Directiva y deberán contar con el presupuesto requerido, no afectando así, los recursos previstos para la ejecución del PMAC.

@@ -1,0 +1,5 @@
+Artículo 34.-Actas y acuerdos.
+De cada sesión del CFC se confeccionará un acta en la que se hará constar las personas asistentes a la Sesión; la hora y el lugar donde se ha celebrado la misma; los temas principales de la deliberación; la forma y el resultado de las votaciones y el contenido de los acuerdos debidamente motivados, de conformidad con la Ley General de la Administración Pública.
+Las actas deberán ser aprobadas en la siguiente Sesión Ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes hayan acordado darle un carácter de firmeza inmediata por votación de dos tercios de la totalidad de los miembros de la CFC, de conformidad con lo establecido en el 56.2 de la Ley General de la Administración Pública.
+Las actas serán firmadas por la persona que preside la CFC y los miembros que hubieren hecho constar su voto contrario.
+Los acuerdos firmes no podrán ser revisados, aunque sí podrán ser anulados e impugnados por los interesados, conforme a la Ley General de la Administración Pública y este a Reglamento.

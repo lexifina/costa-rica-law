@@ -1,0 +1,3 @@
+Artículo 56.-Procedimientos por incumplimiento de contrato.
+El PDRH o COOPEX informará a la CFC sobre el incumplimiento incurrido por la persona funcionaria beneficiaria y adjuntará toda la prueba del caso.
+La CFC conocerá del asunto y si encuentra mérito suficiente, solicitará a la Presidencia Ejecutiva la instauración de un procedimiento de cobro administrativo mediante el cual se determine si la persona funcionaria beneficiaria deberá pagar al INA el monto total o en tractos de los beneficios concedidos. y un procedimiento disciplinario de conformidad con lo dispuesto en el Reglamento Autónomo del INA, Ley General de la Administración Pública y el ordenamiento jurídico vigente.

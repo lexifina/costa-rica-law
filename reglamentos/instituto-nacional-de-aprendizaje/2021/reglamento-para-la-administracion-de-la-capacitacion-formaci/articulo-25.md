@@ -1,0 +1,9 @@
+Artículo 25.-Sesiones Ordinarias y Extraordinarias.
+La CFC se reunirá ordinariamente dos veces al mes; la primera y la tercera semana de cada mes. Extraordinariamente cuando sea necesario.
+Para reunirse en Sesión Ordinaria se hará mediante una convocatoria oficial.
+Las sesiones extraordinarias serán convocadas por la Presidencia o la Secretaría de la CFC, sea de oficio o a solicitud de tres de sus miembros. Para reunirse en Sesión Extraordinaria será necesaria una convocatoria, con una antelación mínima de veinticuatro horas. A la convocatoria se le acompañará el orden del día.
+No obstante, la CFC quedará constituida válidamente sin cumplir todos los requisitos referentes a la convocatoria cuando asistan todos sus miembros y así lo acuerden por unanimidad.
+Las sesiones podrán ser presenciales, mixtas o virtuales, y se entenderá por:
+Sesión presencial: donde concurran a sesionar físicamente todos los miembros de la comisión, en el lugar que fueron convocados.
+Sesión mixta: cuando unos miembros sesionan físicamente en el lugar convocado y otros virtualmente; estos últimos deberán garantizar la comunicación simultánea entre los miembros del órgano colegiado durante toda la sesión, utilizando cualquiera de las tecnologías de información y comunicación asociadas a la red de Internet que garanticen una comunicación fluida y eventual emisión de votos sobre los acuerdos.
+Sesión virtual: aquella en donde participen todos los miembros de la comisión y se realiza utilizando cualquiera de las tecnologías de información y comunicación asociadas a la red de Internet, que garanticen tanto la posibilidad de una comunicación simultánea entre los miembros del órgano colegiado durante toda la sesión, como su expresión mediante documentación electrónica que permita el envío de la imagen, sonido, datos y emisión de votos sobre los acuerdos.

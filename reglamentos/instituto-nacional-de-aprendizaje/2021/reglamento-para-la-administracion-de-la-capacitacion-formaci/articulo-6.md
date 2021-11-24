@@ -1,0 +1,5 @@
+CAPÍTULO II
+Del Plan Maestro Anual de Capacitación
+de Personas Funcionarias
+Artículo 6°-Áreas de interés para la capacitación de las personas funcionarias.
+Las Autoridades Superiores establecerán las áreas de mayor interés institucional en las cuales se impulsará la capacitación de las personas funcionarias del INA y los recursos que se destinarán para ello. Asimismo, dispondrán las prioridades para su atención.

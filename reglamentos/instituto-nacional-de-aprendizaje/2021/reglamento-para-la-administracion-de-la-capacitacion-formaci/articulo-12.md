@@ -1,0 +1,2 @@
+Artículo 12.-Aprobación del Plan Maestro Anual de Capacitación.
+Una vez diseñado el Plan, con base en lo dispuesto en los artículos anteriores, el PDRH lo presenta ante la CFC, para su revisión, ajustes y aprobación. Posteriormente lo envía a la Gerencia General, para la presentación y aprobación por parte de la Junta Directiva. La presentación del Plan Maestro Anual de Capacitación debe ser coincidente con la aprobación del Plan Operativo Anual que la Junta Directiva aprueba.

@@ -1,0 +1,2 @@
+Artículo 9°-Competencia del PDRH. en la ejecución del Plan Maestro Anual de Capacitación.
+El PDRH gestiona la ejecución de las acciones de capacitación en el país contenidas en el PMAC para el periodo respectivo. Implica la coordinación, evaluación y certificación de los servicios de capacitación para el personal de la institución contenidos en el Plan aprobado y de los servicios de capacitación aprobados por la CFC.

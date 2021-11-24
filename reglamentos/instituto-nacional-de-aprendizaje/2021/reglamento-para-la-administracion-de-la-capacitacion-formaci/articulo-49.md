@@ -1,0 +1,2 @@
+Artículo 49.-Cambio de universidad o centro de estudios.
+En caso de acciones de formación, la persona funcionaria beneficiaria deberá permanecer matriculada en la carrera y en la Universidad o Centro de estudios en que fue aceptado. El cambio de carrera o de Universidad sólo podrá autorizarlo la CFC siempre y cuando guarde coherencia con las prioridades institucionales.

@@ -1,0 +1,4 @@
+Artículo 11.-Competencia de las Unidades en la ejecución del Plan.
+Corresponderá a la totalidad de las unidades que conforman la estructura organizativa de la institución, priorizar las solicitudes de las necesidades de capacitación. Lo anterior siguiendo los criterios relativos a las prioridades institucionales.
+Las capacitaciones dentro el país, serán coordinadas por el PDRH, por su parte COOPEX coordinará con los Núcleos Tecnológicos y las Unidades Técnico - Administrativas estratégicas definidas por las Autoridades Superiores, la solicitud de iniciativas de cooperación internacional o las necesidades de capacitación técnica en el exterior, las cuales deberán ser priorizadas de acuerdo con los objetivos estratégicos institucionales definidos en el PEI para la elaboración del PACE.
+La Determinación de Necesidades de Capacitación del PDRH, como el Plan Anual de Capacitación de COOPEX conformarán el Plan maestro Anual de Capacitación.

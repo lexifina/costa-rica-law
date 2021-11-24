@@ -1,0 +1,2 @@
+Artículo 50.-Obligación de trabajar para el INA.
+Una vez concluidos sus estudios, la persona funcionaria beneficiaria quedará obligada a prestar sus servicios al INA por el doble del período concedido para sus estudios, lo anterior de acuerdo a las disposiciones establecidas en el contrato y el presente reglamento. No obstante, la obligación no podrá ser inferior a un año. Lo anterior bajo pena de aplicar lo contenido en el artículo referido al incumplimiento de obligaciones

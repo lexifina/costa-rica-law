@@ -1,0 +1,3 @@
+Artículo 52.-Autorización para laborar en otra institución estatal.
+La Gerencia General podrá eximir a la persona funcionaria beneficiaria de la obligación de laborar en el INA y autorizar que ésta cumpla la totalidad o parte de su obligación en otra entidad pública o empresa estatal, sin perjuicios de lo dispuesto en presente Reglamento y disposiciones sobre Licencias establecidas en el Reglamento Autónomo de Servicios del INA. Los casos de permisos con o sin goce de salario también serán resueltos por parte de la Gerencia General.
+La Gerencia General enviará la comunicación para conocimiento de la CFC o COOPEX, según la naturaleza del beneficio.
