@@ -1,0 +1,1 @@
+Artículo 5°-El nombramiento de la Junta Administradora se hará en el mes de diciembre, por un período de cuatro años, a fin de que entren en posesión en el mes de enero siguiente, una vez juramentada y, será ad honoren.

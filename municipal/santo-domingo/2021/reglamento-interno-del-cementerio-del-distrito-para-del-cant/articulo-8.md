@@ -1,0 +1,1 @@
+Artículo 8°-La Junta deberá sesionar ordinariamente una vez al mes pudiendo reunirse extraordinariamente cuando el caso lo amerite. El quórum estará establecido por la mitad más uno de los integrantes de la Junta Administradora, el cual no podrá estar conformado por menos de tres integrantes.

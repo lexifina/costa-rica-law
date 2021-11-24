@@ -1,0 +1,1 @@
+Artículo 9°-Los acuerdos tomados por la Junta Administradora deberán serán aprobados por mayoría simple de los integrantes presentes de dicha Junta. En caso de empate, el presidente de la Junta Administradora tendrá derecho a doble voto.

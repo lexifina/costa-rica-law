@@ -1,0 +1,1 @@
+Artículo 59.-Este Reglamento de la Junta Administradora del Cementerio del Distrito Pará del Cantón Santo Domingo de la Provincia de Heredia, es oficial y rige a partir de su publicación en el Diario Oficial La Gaceta.

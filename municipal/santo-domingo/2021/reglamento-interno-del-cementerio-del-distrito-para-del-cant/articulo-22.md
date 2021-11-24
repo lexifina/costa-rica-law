@@ -1,0 +1,1 @@
+Artículo 22.-Las autoridades administrativas del cementerio están obligadas a suministrar al personal la indumentaria requerida para su protección, así como, el equipo indispensable para llevar a cabo sus labores en forma correcta y segura, además, deberán vetar por el correcto uso de la indumentaria y el equipo dentro del cementerio,

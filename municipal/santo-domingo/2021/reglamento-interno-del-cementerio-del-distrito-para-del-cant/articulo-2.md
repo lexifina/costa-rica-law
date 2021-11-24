@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. La presente regulación reglamentaria tiene como fines primordiales la ubicación, construcción, ampliación y funcionamiento del Cementerio del Distrito Pará del Cantón Santo Domingo de la Provincia de Heredia.

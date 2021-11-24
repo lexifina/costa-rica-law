@@ -1,0 +1,1 @@
+Artículo 21.-Cuando en el cementerio existan trabajadores permanentes, ya sea de oficina o de campo, deberá disponerse un lugar para la ingesta de alimentos, con su respectivo lavamanos habilitado y jabón.
