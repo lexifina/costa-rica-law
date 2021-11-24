@@ -1,0 +1,2 @@
+Artículo 21.Participación en procesos administrativos
+Los funcionarios de Auditoría General, responsables de la investigación y confección de un informe de Relación de Hechos u otro, podrán comparecer en las audiencias del Órgano Director, en carácter exclusivo de experto calificado y serán cuestionados únicamente en relación con las dudas que puedan surgir, en el curso del procedimiento administrativo en el ámbito de la materia en investigación.

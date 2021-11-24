@@ -1,0 +1,3 @@
+Artículo 7. Estrategia y ética
+La Auditoría General mantiene alineación con la estrategia corporativa, a través de postulados estratégicos, garantizando la actualización de la aspiración, misión, valores, enunciados éticos y principales lineamientos, que rigen su accionar.
+Los funcionarios de la Auditoría General mantienen su comportamiento, tanto dentro como fuera del Banco Nacional de Costa Rica, bajo los principios de integridad, objetividad, confidencialidad y competencia propios de la profesión, y acatan de forma obligatoria el Código de Conducta del Conglomerado Financiero Banco Nacional de Costa Rica.
