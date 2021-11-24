@@ -1,0 +1,2 @@
+Artículo 123- Personas jurídicas y solidaridad. Las personas jurídicas, las entidades o colectividades que constituyan una unidad económica, dispongan de patrimonio y autonomía funcional, aunque estas últimas tengan o no personalidad jurídica, responderán solidariamente por las acciones o las omisiones violatorias de esta ley, cometidas por los representantes en el ejercicio de sus funciones.
+(Así adicionado por el artículo único de la ley N° 10078 del 5 de noviembre de 2021)
