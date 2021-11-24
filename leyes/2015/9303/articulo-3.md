@@ -16,3 +16,5 @@ n) Desarrollar procesos que animen el involucramiento de los medios de comunicac
 ñ) Todas aquellas otras funciones y obligaciones derivadas de la Ley N.º 7600, Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996, y la demás normativa nacional e internacional vigente.
 o) Todas aquellas otras funciones y obligaciones derivadas de la Ley N.º 8661, Aprobación de la Convención sobre los Derechos de las Personas con Discapacidad, de 19 de agosto de 2008, y su Protocolo, por lo que será el órgano coordinador de su aplicación.
 p) Las demás que establezca el reglamento de esta ley.
+q) Ejecutará programas y funciones que por ley se le asignen.
+(Así adicionado el inciso anterior por el artículo 7° de la ley N° 10077 del 5 de noviembre del 2021, "Ley para fusionar el Patronato Nacional de Rehabilitación con el Consejo Nacional de Personas con Discapacidad”)
