@@ -1,0 +1,1 @@
+ARTÍCULO 4- Los terrenos cedidos en esta norma, que se les destine otra finalidad o uso no autorizado por la presente ley, procederán de pleno derecho a la inmediata reversión de la propiedad del inmueble, al Consejo Nacional de Personas con Discapacidad (Conapdis).

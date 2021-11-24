@@ -1,0 +1,1 @@
+ARTÍCULO 9- Cualquier otra disposición normativa que se refiera al Patronato Nacional de Rehabilitación (Panare) deberá entenderse que se refiere al Consejo Nacional de Personas con Discapacidad (Conapdis).
