@@ -1,0 +1,1 @@
+Artículo 27.-El recurso de revisión procederá contra los acuerdos que no hubieren sido declarados firmes y deberá presentarse antes de ser aprobada el acta. La misma mayoría requerida para dictar el acuerdo sobre el que se solicita revisión será necesaria para acordar ésta. Aceptada la revisión, la Presidencia Municipal pondrá en discusión el asunto a que se refiere el acuerdo.

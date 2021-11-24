@@ -1,0 +1,1 @@
+Artículo 12.-Todas las sesiones del Concejo Municipal serán públicas. El Concejo Municipal deberá reglamentar la intervención y formalidad de los particulares. En caso de no haberse emitido esta reglamentación específica, corresponderá a la Presidencia Municipal de forma discrecional la regulación e intervención de los particulares.

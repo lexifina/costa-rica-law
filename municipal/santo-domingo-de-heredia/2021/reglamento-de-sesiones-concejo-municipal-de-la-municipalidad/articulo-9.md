@@ -1,0 +1,1 @@
+Artículo 9º-Si en el curso de la sesión se rompiera el quórum, la Presidencia por medio de la Secretaría, instará a las regidurías que se hubieren retirado sin permiso para que ocupen sus curules. Transcurridos diez minutos sin que pueda restablecerse el quórum, se levantará la sesión. Las personas regidoras remisas perderán el derecho a devengar la dieta correspondiente.

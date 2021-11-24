@@ -1,0 +1,1 @@
+Artículo 24.-Los acuerdos del Concejo Municipal deberán ser cumplidos fielmente en tiempo y forma por la Corporación Municipal, salvo que se deroguen o sean vetados. Para lo cual se podrá llamar a cuentas a las personas encargadas del cumplimiento, a la Alcaldía Municipal y cualquier otra persona que así lo determine el Concejo Municipal.

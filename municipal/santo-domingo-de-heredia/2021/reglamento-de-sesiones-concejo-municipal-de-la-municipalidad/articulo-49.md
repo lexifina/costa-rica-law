@@ -1,0 +1,1 @@
+Artículo 49.-Corresponde a la Presidencia moderar las intervenciones de los particulares, llamarlos al orden y suspenderles si el caso lo amerita en caso de irrespeto o por referirse a temas para los que no fue convocado, otorgarles un tiempo máximo para realizar las exposiciones.

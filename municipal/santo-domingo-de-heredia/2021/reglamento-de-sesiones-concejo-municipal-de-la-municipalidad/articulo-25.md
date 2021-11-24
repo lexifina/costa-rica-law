@@ -1,0 +1,2 @@
+Artículo 25.-Los acuerdos del Concejo Municipal originados por iniciativa de la Alcaldía Municipal o las regidurías, se tomarán previa moción o proyecto escrito y firmado por los proponentes.
+Los acuerdos se tomarán previo dictamen de una Comisión y deliberación subsiguientes, sólo el trámite de dictamen podrá dispensarse por medio de una votación calificada de los presentes conforme el artículo 44 del Código Municipal.

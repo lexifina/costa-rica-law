@@ -1,0 +1,1 @@
+Artículo 56.-Cualquier Funcionario Municipal, podrá ser llamado a asistir a las Sesiones del Concejo, mediante acuerdo municipal, sin que por ello puedan cobrar remuneración alguna, esta asistencia no será permanente, únicamente cuando las circunstancias o temas a tratar lo requieran.

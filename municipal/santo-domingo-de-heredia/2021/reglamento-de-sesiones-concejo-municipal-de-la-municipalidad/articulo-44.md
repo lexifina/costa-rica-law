@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la Intervención de los Particulares
+Artículo 44.-Cuando la índole de algún asunto lo amerita, previo acuerdo al respecto, podrá el Concejo Municipal invitar a personas particulares para que asistan a sesiones. Toda persona particular que tenga interés en los asuntos de la Municipalidad podrá solicitar ser oído por el Concejo Municipal, para tal efecto deberá presentar a la Secretaría solicitud escrita o mediante correo electrónico en la que indicará brevemente el asunto a exponer. El planteamiento deberá contener nombre, firma, número de cédula, número telefónico y lugar para notificaciones, de preferencia un medio digital.

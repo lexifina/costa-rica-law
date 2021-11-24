@@ -1,0 +1,1 @@
+Artículo 13.-Las sesiones del Concejo Municipal se desarrollarán conforme con el Orden del Día previamente elaborado, el cual podrá ser modificado o alterado mediante acuerdo aprobado por las dos terceras partes de los miembros presentes. El mismo será elaborado y comunicado preferiblemente con 48 horas de anticipación, por decisión de la Presidencia.

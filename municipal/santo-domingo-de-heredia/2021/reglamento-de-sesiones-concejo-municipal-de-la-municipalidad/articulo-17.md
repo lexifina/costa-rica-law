@@ -1,0 +1,1 @@
+Artículo 17.-La Presidencia Municipal calificará los asuntos de trámite urgente y ordenará a la Secretaría incluirlos en el orden del día. En sesiones podrán incluirse asuntos de trámite urgente por iniciativa de la Presidencia o de una o más regidurías, si el Concejo Municipal así lo acuerda por simple mayoría.

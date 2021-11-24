@@ -1,0 +1,2 @@
+Artículo 36.-Las Comisiones Permanentes estarán integradas por tres miembros como mínimo de los cuales deberán escogerse necesariamente de entre los Regidores Propietarios de conformidad con lo estipulado en el Código Municipal.
+Las personas funcionarias municipales y los particulares podrán participar en las sesiones con carácter de asesores cuando se les convoque previo acuerdo del Concejo Municipal. El Concejo Municipal deberá procurar la participación de la sociedad civil, personas vecinas y las sindicaturas.

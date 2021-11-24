@@ -1,0 +1,1 @@
+Artículo 39.-Los dictámenes de las Comisiones deberán presentarse por escrito y firmados por la presidencia y/o secretaría de la Comisión que lo emite. Cuando no existiere acuerdo unánime sobre un dictamen, los miembros de la Comisión que no aprueben el Dictamen de Mayoría, sea negativo o positivo, podrán rendir dictamen de minoría por separado, si lo estiman conveniente.

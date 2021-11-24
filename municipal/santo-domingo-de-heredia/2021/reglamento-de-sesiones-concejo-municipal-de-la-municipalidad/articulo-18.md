@@ -1,0 +1,1 @@
+Artículo 18.-La Secretaría del Concejo Municipal presentará como correspondencia recibida para la Sesión Ordinaria; aclarando a quien va dirigida, con fecha, número de trámite correspondiente toda aquella documentación que ingrese hasta las 12 horas del día hábil inmediato anterior, excepto lo que sea considerada de trámite urgente.

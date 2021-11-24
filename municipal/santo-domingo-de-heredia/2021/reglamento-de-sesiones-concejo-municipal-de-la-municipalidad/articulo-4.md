@@ -1,0 +1,1 @@
+Artículo 4º-El Concejo Municipal podrá convocar a sesiones solemnes para actividades conmemorativas, reconocimientos y otros fines ceremoniales-protocolarios cantonales o nacionales. No se recibirá dieta por esta sesión y la participación de los miembros del concejo municipal (regidurías y sindicatura) no será obligatoria.

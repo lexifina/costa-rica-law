@@ -1,0 +1,1 @@
+Artículo 37.-Una vez designadas las Comisiones por la presidencia municipal, sus miembros, en la sesión de instalación, que deberá celebrarse dentro de los quince días siguientes, nombrarán una presidencia que asumirá la coordinación y una secretaría.
