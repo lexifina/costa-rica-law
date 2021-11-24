@@ -1,0 +1,1 @@
+Artículo 5º-Abastecimiento de combustible estación de servicio: al pagar la cuenta de combustible con la tarjeta electrónica en estaciones de servicio, se solicitará la factura y el comprobante de pago (voucher), así como que se le anote en la factura el número autorización del voucher.

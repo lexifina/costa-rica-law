@@ -1,0 +1,1 @@
+Artículo 25.-Cada dirección de área, a través de sus funcionarios serán los responsables de promover el uso adecuado de las tarjetas de pago: mediante un programa de inducción de usuarios y charlas programadas para los nuevos usuarios. A su vez tendrá un registro de usuarios que le facilite mantenerlos identificados y de esta forma administrar mejor la seguridad del sistema.

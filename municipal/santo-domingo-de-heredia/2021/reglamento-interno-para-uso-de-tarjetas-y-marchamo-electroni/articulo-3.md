@@ -1,0 +1,1 @@
+Artículo 3º-La utilización y el buen uso de la tarjeta como medio de pago y del marchamo electrónico de radiofrecuencia, será responsabilidad de cada usuario y de la jefatura correspondiente, toda vez que no se ejerza una adecuada supervisión en el uso y aplicación de este mecanismo de pago.

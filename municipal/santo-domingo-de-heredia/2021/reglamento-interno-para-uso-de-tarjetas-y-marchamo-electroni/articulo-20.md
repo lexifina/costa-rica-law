@@ -1,0 +1,1 @@
+Artículo 20.-EI uso de la tarjeta de pago será exclusivamente para el abastecimiento de combustible quedando excluido de su uso, la compra de repuestos o adquisición de productos o insumos, ajenos al combustible.

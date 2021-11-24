@@ -1,0 +1,1 @@
+Artículo 18.-Ningún usuario podrá presentarse a un centro de servicio, a solicitar el suministro de combustible con la tarjeta de pago de otro funcionario, ya que ésta tiene carácter personal e intransferible.
