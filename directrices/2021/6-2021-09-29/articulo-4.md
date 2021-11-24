@@ -1,0 +1,2 @@
+Artículo 4º-Rige a partir de treinta días naturales a partir de su adopción. Publíquese en el Diario Oficial La Gaceta. Publíquese igualmente en la Página Web del Servicio Nacional de Salud Animal. Comuníquese a través de la Dirección de Alimentos para Animales a los establecimientos de rendering autorizados.
+Dada en Barreal de Ulloa, Heredia a las once horas con treinta minutos del veintinueve de setiembre del dos mil veintiuno.
