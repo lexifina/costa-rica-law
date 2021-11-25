@@ -1,0 +1,3 @@
+Artículo 18: Los nombramientos de tipo discrecional se harán por un tiempo máximo igual a aquel para el que fueron designados los jerarcas, a menos que uno nuevo decida ratificarlos en sus puestos por el plazo que él dure en sus funciones. La discrecionalidad se aplica para efectos de remoción de esos servidores, quienes podrán ser empleados regulares de la Comisión o provenir de fuera de la Institución.
+En cuanto a los empleados regulares de la Comisión que desempeñen esa clase de funciones, una vez terminadas éstas serán reinstalados en el cargo que ocupaban antes de su designación en la dependencia de que se trate.
+Los empleados regulares una vez que se de? por finalizado el nombramiento interino, serán reinstalados en el cargo que ocupaban antes de su designación.

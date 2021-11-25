@@ -1,0 +1,1 @@
+Artículo 96: Se exceptúa de la marca de puntualidad a los Comisionados, funcionarios de confianza; a los que expresamente señale el Órgano Superior en virtud de las funciones que realizan y los que hayan alcanzado 20 años de servicio en la Comisión y que tengan un buen record de asistencia.

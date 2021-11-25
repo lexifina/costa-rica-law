@@ -1,0 +1,1 @@
+Artículo 151: En defecto de disposiciones propias de este Reglamento deberá tenerse como supletorias la Ley General de La Administración Pública, el Código de Trabajo y el Estatuto del Servicio Civil y su Reglamento.

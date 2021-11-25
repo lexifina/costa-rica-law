@@ -1,0 +1,1 @@
+Artículo 141: El procedimiento deberá realizarse dentro del plazo de cuatro meses, a partir de la fecha de recibo de la denuncia o la subsanación de sus defectos, cuando aplique. Los plazos establecidos son ordenatorios, no perentorios.

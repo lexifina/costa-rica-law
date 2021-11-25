@@ -1,0 +1,1 @@
+Artículo 84: Queda prohibido a los servidores acumular las vacaciones, pero podrán serlo por una sola vez cuando el trabajador desempeñare labores técnicas, de dirección, de confianza u otras análogas, que dificulten especialmente su reemplazo.

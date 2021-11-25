@@ -1,0 +1,6 @@
+Artículo 44: Las jefaturas tendrán las responsabilidades que le corresponden en su relación laboral ordinaria, regidos por las normas de derecho público que le atañen, teniendo, que acatarlas de la misma forma como si prestara sus servicios dentro de las instalaciones de la Comisión, así como siguientes responsabilidades, y las que sean pactadas en el acuerdo de teletrabajo o su adenda:
+a) Determinar que los puestos de trabajo sean aptos para la modalidad del teletrabajo.
+b) Elaborar y divulgar entre las personas trabajadoras, un documento en el que se indiquen las condiciones del entorno que debe tener la persona trabajadora para desempeñarse en la modalidad de teletrabajo.
+a) Capacitar para el adecuado manejo y uso de los equipos y programas necesarios para desarrollar sus funciones.
+b) Coordinar la forma de restablecer las funciones de la persona teletrabajadora, ante situaciones en las que no pueda realizar sus labores o estas se vean interrumpidas.
+Asimismo, deberá respetar tanto la Ley para Regular el Teletrabajo, Ley N° 9738 del 18 de setiembre de 2019 y su Reglamento, Decreto Ejecutivo N° 42083 del 20 de diciembre de 2019; así como la Directriz denominada: "MEDIDAS DE ATENCIÓN Y COORDINACIÓN INTERINSTITUCIONAL ANTE LA ALERTA SANITARIA POR CORONAVIRUS (COVID-19)"

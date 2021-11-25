@@ -1,0 +1,1 @@
+Artículo 122: La COPROCOM deberá dar aviso al Instituto Nacional de Seguros de cualquier riesgo del trabajo que le ocurra a sus servidores dentro del término de cinco días hábiles a partir de su acaecimiento.

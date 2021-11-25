@@ -1,0 +1,2 @@
+Artículo 140: El órgano decisor deberá emitir el acto final dentro del plazo de un mes, conforme con las reglas de la lógica, la experiencia y la sana crítica y deberá razonar y justificar su decisión.
+Este acto administrativo será notificado a las partes del procedimiento, contra este acto final cabrán los Recursos ordinarios de revocatoria y apelación, indicándose el plazo para presentarlos y ante quién o quienes podrán ser interpuestos.

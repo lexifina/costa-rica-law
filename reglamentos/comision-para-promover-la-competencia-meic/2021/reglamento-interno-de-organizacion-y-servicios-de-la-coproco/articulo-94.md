@@ -1,0 +1,1 @@
+Artículo 94: El servidor que cometa alguno de los actos señalados en el artículo anterior, o que incumpla alguna de las obligaciones a que se refiere el artículo 91 de este Reglamento, o el 93 de este Reglamento si se trata de un jefe, será sancionado conforme a este Reglamento.

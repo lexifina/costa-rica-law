@@ -1,0 +1,1 @@
+Artículo 128: Para la institución es reprochable y sancionable cualquier conducta que revista carácter de acoso laboral o sexual, para lo cual se llevará a cabo el procedimiento disciplinario respectivo.

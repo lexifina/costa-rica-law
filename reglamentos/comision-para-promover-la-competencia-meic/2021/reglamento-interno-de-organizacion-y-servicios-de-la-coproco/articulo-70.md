@@ -1,0 +1,1 @@
+Artículo 70: Cuando como resultado de un proceso de reorganización administrativa se crean plazas pero no se varían y/o suprimen las existentes según la estructura organizacional y de puestos aprobada antes de ese proceso, las nuevas plazas serán puestas a concurso en los términos definidos en este Reglamento.

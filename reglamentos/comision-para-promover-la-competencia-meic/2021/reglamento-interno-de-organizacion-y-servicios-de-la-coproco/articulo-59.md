@@ -1,0 +1,1 @@
+Artículo 59: Las Escalas de Salarios Globales están integradas por categorías, dispuestas verticalmente y numeradas en forma ascendente del número uno en delante de acuerdo con los principios de competitividad externa y equidad interna.

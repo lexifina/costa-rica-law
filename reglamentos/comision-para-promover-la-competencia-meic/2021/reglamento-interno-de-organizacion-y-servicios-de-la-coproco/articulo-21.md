@@ -1,0 +1,1 @@
+Artículo 21: Todo servidor de la COPROCOM deberá estar amparado por un contrato de trabajo o acción de personal que contendrá, en términos amplios, las cláusulas y estipulaciones particulares que regulen la prestación del servicio, así como el nombre del puesto, salario, jornada de trabajo, lugar de prestación de servicios y cualquier otro aspecto de interés.

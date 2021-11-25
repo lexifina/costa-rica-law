@@ -1,0 +1,1 @@
+Artículo 56: La información que contienen los Descriptivos de Puestos será de aplicación obligatoria para determinar la idoneidad de los candidatos elegibles para llenar las plazas vacantes en la Institución.

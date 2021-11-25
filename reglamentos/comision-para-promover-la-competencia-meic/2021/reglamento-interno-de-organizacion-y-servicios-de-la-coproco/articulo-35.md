@@ -1,0 +1,1 @@
+Artículo 35: Cuando necesidades imperiosas de la COPROCOM lo requieran, los servidores quedan en la obligación de laborar en horas extraordinarias, conforme lo estable el artículo 139 del Código de Trabajo.

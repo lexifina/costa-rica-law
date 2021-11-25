@@ -1,0 +1,2 @@
+Artículo 134: El órgano director efectuará el traslado de cargos a la parte denunciada, que será notificada de forma personal.
+La persona denunciada contará con un plazo de ocho días hábiles a fin de referirse de forma escrita sobre todos los hechos imputados, oponiendo las excepciones previas y de fondo que estime pertinente, ofreciendo la prueba de descargo que considere procedente y señalando un medio para recibir notificaciones.

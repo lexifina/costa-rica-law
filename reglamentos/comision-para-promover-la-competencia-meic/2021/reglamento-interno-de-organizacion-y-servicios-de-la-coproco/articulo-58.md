@@ -1,0 +1,1 @@
+Artículo 58: El Departamento de Recursos Humanos será el encargado de administrar y emitir criterio técnico respecto a las solicitudes de modificación a los Perfiles de Puestos que presenten las dependencias. El Director del Órgano Técnico será el responsable de velar para que estos instrumentos técnicos se mantengan actualizados.

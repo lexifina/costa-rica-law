@@ -1,0 +1,1 @@
+Artículo 137: Al finalizar la evacuación de toda la prueba, se consignará en un acta, junto con la conclusión de la audiencia. Las partes podrán realizar su alegato de conclusiones al finalizar la comparecencia o contarán con un plazo de tres días hábiles, contados a partir del siguiente día hábil de la conclusión de esta, para su presentación de forma escrita.

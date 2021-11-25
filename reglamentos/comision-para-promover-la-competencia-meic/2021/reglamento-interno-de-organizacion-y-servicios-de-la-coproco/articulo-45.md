@@ -1,0 +1,1 @@
+Artículo 45: La eficiencia y cumplimiento en las labores encomendadas al a la persona teletrabajadora se medirá de acuerdo con la producción-meta que establezca para ese efecto quien ejerza su Jefatura o Dirección, según corresponda, en cuanto a calidad y cantidad, según los informes que al efecto se presentarán y aprobarán oportunamente.

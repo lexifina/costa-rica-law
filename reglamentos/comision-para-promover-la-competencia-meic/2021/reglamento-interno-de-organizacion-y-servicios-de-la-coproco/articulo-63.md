@@ -1,0 +1,1 @@
+Artículo 63: Recursos Humanos remitirá el resultado del estudio al Órgano Superior quien podrá aceptar o denegar la valoración y reclasificación de un puesto. En caso de que no se apruebe la propuesta, se puede archivar la gestión o solicitar las aclaraciones y reconsideraciones que considere pertinentes del estudio técnico.

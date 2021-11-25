@@ -1,0 +1,1 @@
+Artículo 103: La Comisión concederá a toda servidora y colaboradora que haya concebido un hijo y este se encuentre en periodo de lactancia materna, una licencia con goce de salario equivalente a una hora diaria de la jornada laboral, hasta el cumplimiento del primer año del lactante, salvo que por prescripción médica esta licencia deba extenderse.

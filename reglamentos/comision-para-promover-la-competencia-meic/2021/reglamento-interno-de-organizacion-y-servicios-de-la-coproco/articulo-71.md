@@ -1,0 +1,1 @@
+Artículo 71: En los casos de reorganizaciones administrativas en donde no sea posible realizar las reubicaciones contempladas, el servidor o colaborador será cesado con derecho a recibir una única indemnización de conformidad con las reglas del Código de Trabajo.

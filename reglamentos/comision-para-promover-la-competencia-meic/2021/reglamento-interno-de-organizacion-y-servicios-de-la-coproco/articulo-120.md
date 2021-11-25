@@ -1,0 +1,1 @@
+Artículo 120: En la COPROCOM se designará a uno o varios funcionarios para que de manera periódica evalúen las condiciones de salud ocupacional de la Comisión y formulen recomendaciones preventivas o de mejora al Órgano Superior.

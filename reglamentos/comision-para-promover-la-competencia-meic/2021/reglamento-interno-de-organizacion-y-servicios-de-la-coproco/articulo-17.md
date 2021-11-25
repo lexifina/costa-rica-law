@@ -1,0 +1,1 @@
+Artículo 17: Compete en forma exclusiva al Órgano Superior, dictar el acto de nombramiento y firmar la documentación correspondiente de todo servidor o colaborador que ingrese a laborar a la Institución.

@@ -1,0 +1,1 @@
+Artículo 22: Los contratos de trabajo o acciones de personal se harán en tres tantos uno para la COPROCOM para efectos de trámite interno, otro para el funcionario interesado, y el tercero para el expediente de personal.

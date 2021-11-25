@@ -1,0 +1,1 @@
+Artículo 33: El tiempo para la alimentación y descanso dentro de la jornada ordinaria de trabajo será de 15 minutos al desayuno, 50 minutos al almuerzo, y 10 minutos para el café, en el horario que se determine de común acuerdo con la Jefatura inmediata.

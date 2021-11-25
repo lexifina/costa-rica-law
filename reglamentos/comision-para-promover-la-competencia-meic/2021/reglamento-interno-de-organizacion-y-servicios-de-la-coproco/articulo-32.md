@@ -1,0 +1,2 @@
+Artículo 32: El Órgano Superior podrá modificar temporalmente el horario oficial para la prestación del servicio, dentro de la jornada ordinaria de trabajo indicada en el artículo anterior, de forma que se ajuste a las necesidades particulares de operación y servicio de la Comisión, siempre que circunstancias especiales así lo exijan y no se cause grave perjuicio a los servidores.
+El cambio deberá ser comunicado a los funcionarios afectados con un mínimo de un día hábil de anticipación.

@@ -1,0 +1,1 @@
+Artículo 76: La forma de pago será quincenal para todo el Personal, y si el día de pago coincide con día feriado se hará el pago el día inmediato anterior. El pago se hará mediante depósito a la cuenta electrónica designada por el funcionario.

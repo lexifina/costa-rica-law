@@ -1,0 +1,1 @@
+Artículo 85: En el caso de periodos de vacaciones acumulados, la Comisión deberá tomar las acciones pertinentes para que los empleados disfruten de los periodos acumulados por encima del máximo permitido, considerando en cada caso que la acción tomada no tenga como efecto una desmejora o paralización en el servicio público que brinda la institución.

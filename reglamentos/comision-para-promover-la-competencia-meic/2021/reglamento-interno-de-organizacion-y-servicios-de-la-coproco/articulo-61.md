@@ -1,0 +1,12 @@
+Artículo 61: La realización de un estudio técnico integral de puestos de servicio deberá tramitarse por el Director del Área Técnica con las justificaciones que estime pertinentes ante el Órgano Superior. Lo anterior cuando considere que debería tener variaciones sustanciales y permanentes, para mejorar el servicio público que la Comisión brinda, cumpliendo más eficientemente con las funciones asignadas por ley. Para esos efectos, se deberá presentar ante el Órgano Superior al menos los procedimientos operativos afectados, así como un análisis razonado de los cambios que tendrá cada puesto.
+En caso de que dicha propuesta sea avalada por el Órgano Superior, éste ordenará la realización de un estudio de clasificación y valoración de estos puestos, con el objeto de determinar la correcta ubicación y remuneración.
+También podrá el Órgano Superior solicitar directamente la realización de un estudio técnico integral de los puestos de servicio que considere deberían tener variaciones sustanciales y permanentes para mejorar el servicio público que se brinda.
+En caso de que el Órgano Superior avale la propuesta del Órgano Técnico o la formule directamente, la remitirá a Recursos Humanos para que sea analizada e inicie el estudio de clasificación y valoración de puestos; o en su defecto, emita criterio técnico denegando dicha propuesta si se presenta alguna de las siguientes razones:
+a) Si la propuesta implica la clasificación y valoración de plazas nuevas que no sean parte de un informe de reorganización administrativa.
+b) Si las variaciones que se consideran procedentes en la solicitud del estudio de clasificación y valoración, no han sido debidamente incorporadas y contempladas en los procedimientos operativos de la dependencia donde se ubica el puesto.
+c) Si las variaciones al puesto descritas en la propuesta no están debidamente justificadas para iniciar el estudio.
+d) Cualquier otro motivo que mediante un acto debidamente razonado estime que existe por parte de Recursos Humanos.
+Se eximen de lo estipulado anteriormente, los estudios de clasificación y valoración de puestos que deban realizarse de forma inmediata, por los siguientes motivos:
+a) Por una disposición legal o reglamentaria, que imponga nuevas funciones o servicios que deba brindar la Comisión.
+b) Por el acatamiento de una resolución judicial.
+c) Lo anterior, bajo el entendido que es temporal, mientras se realizan los estudios técnicos y se gestiona la aprobación de los cambios correspondientes, para la adopción de estas variaciones en forma permanente.

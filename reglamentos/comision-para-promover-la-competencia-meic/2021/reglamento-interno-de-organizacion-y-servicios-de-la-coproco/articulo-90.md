@@ -1,0 +1,3 @@
+CAPÍTULO DÉCIMO TERCERO
+Aguinaldo
+Artículo 90: Todos los servidores de la COPROCOM de cualquier clase que sean y cualquiera que sea la forma en que desempeñen sus labores y en que se le pague el salario, tendrán derecho a un sueldo adicional anual en el mes de diciembre conforme a las disposiciones de la Ley de Pago de Aguinaldo para los Servidores Públicos N°1835 del 11 de diciembre de 1954 y sus reformas. Dicho beneficio deberá ser entregado dentro de los primeros veinte días del mes de Diciembre de cada año, salvo terminación del contrato o relación de servicio antes del vencimiento del período respectivo, caso en el cual se le pagará proporcionalmente.

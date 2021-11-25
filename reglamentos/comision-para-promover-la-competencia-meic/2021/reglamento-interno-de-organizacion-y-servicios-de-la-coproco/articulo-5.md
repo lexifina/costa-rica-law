@@ -1,0 +1,2 @@
+Artículo 5: El Órgano Superior o el integrante designado de su seno para tal efecto en conjunto con un funcionario encargado de los temas de Recursos Humanos controlará todo lo concerniente a nombramientos, despidos, cambios de puesto, ascensos, vacaciones, y permisos del personal de la Comisión, entre otros mediante acción de personal. Mientras dicho funcionario es designado se harán los trámites con el apoyo del área de Recursos Humanos correspondiente.
+Lo relativo a los miembros del Órgano Superior, será definido en el capítulo vigésimo sexto de este Reglamento.
