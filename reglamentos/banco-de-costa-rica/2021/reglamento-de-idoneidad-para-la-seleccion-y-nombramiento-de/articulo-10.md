@@ -1,0 +1,5 @@
+Artículo 10.-Nombramientos contingentes en las juntas directivas Para los miembros que conforman la Junta Directiva General del Banco de Costa Rica, aplica lo establecido en la Ley Orgánica del Sistema Bancario Nacional.
+En los casos de ausencias temporales superiores a tres meses, pero en ningún caso mayores a seis meses, de cualquiera de los integrantes de las juntas directivas de las subsidiarias o de los fiscales de estas, la Junta Directiva General del Banco de Costa Rica en su condición de asamblea de accionistas de la empresa correspondiente, designa a una persona que sustituya temporalmente la ausencia por un período no mayor a seis meses.
+Para las juntas directivas locales aplica lo establecido en Reglamento para el funcionamiento de las juntas directivas locales del Banco de Costa Rica.
+Para la sustitución de ausencias definitivas, corresponde al Comité Corporativo de Nominaciones y Remuneraciones ejecutar el procedimiento establecido para analizar y proponer candidatos a la Junta Directiva General del Banco de Costa Rica, en un plazo no mayor a seis meses.
+San José, 19 de noviembre de 2021.

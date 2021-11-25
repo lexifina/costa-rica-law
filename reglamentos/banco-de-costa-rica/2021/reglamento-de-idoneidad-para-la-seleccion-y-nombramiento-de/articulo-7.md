@@ -1,0 +1,2 @@
+Artículo 7º-Auditoría del proceso. El CFBCR debe gestionar con la Auditoría Externa que se contrata anualmente, la revisión independiente del proceso de autoevaluación de los órganos colegiados, sus miembros, y de la alta gerencia.
+El informe con los resultados de la auditoría del proceso de autoevaluación debe ser presentado al órgano de dirección directamente o a través del Comité Corporativo de Auditoría y se debe remitir a la Sugef dentro de los cuarenta días hábiles siguientes al cierre anual.

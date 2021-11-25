@@ -1,0 +1,4 @@
+CAPÍTULO III
+La idoneidad
+Artículo 4º-Los requisitos. Las personas postulantes a integrar o que integren los órganos colegiados, cargos en la alta gerencia y fiscalización superior del CFBCR, deben cumplir con los criterios de idoneidad en el periodo de selección y durante el ejercicio de sus cargos, según lo establecido en el anexo de este Reglamento.
+La Junta Directiva General del Banco de Costa Rica debe procurar que la integración de cada junta directiva de las subsidiarias sea de forma balanceada en cuanto a formación académica, conocimiento técnico y experiencia, para la buena dirección del órgano colegiado que conforman; así como cumplir con lo establecido en la Política declaración de igualdad, equidad e inclusión y proscripción general de cualquier forma de discriminación y manifestaciones conexas de intolerancia, presentes o futuras en contra de todas las personas trabajadoras en el Conglomerado Financiero BCR.

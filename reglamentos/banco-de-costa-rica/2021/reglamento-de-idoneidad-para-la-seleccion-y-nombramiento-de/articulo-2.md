@@ -1,0 +1,6 @@
+CAPÍTULO II
+Los candidatos
+Artículo 2º-Análisis y selección. Los miembros de la Junta Directiva General del Banco de Costa Rica, son seleccionados por el Consejo de Gobierno según lo establecido en la Ley Orgánica del Sistema Bancario Nacional.
+Para los miembros de las juntas directivas de las subsidiarias y las juntas directivas locales, le corresponde al Comité Corporativo de Nominaciones y Remuneraciones analizar y recomendar los candidatos, según las regulaciones internas y externas para este fin.
+Los miembros de la Junta Directiva de BICSA son seleccionados conforme el Libro de Registro de Acciones de la sociedad, el socio mayoritario elige tres directores, el socio minoritario elige dos directores, cada banco socio propone un director independiente, y para la selección de los directores independientes debe estar presente la totalidad de los accionistas en la asamblea, según lo establecido en el Código de Gobierno Corporativo.
+Para la postulación de la alta gerencia y fiscalización superior del CFBCR, le corresponde al Comité Corporativo de Nominaciones y Remuneraciones analizar y recomendar los candidatos, según el marco legal aplicable y estatutos de cada subsidiaria según corresponda.

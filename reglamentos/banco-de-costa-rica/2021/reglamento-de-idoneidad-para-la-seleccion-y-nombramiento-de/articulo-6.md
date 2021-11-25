@@ -1,0 +1,8 @@
+CAPÍTULO IV
+La autoevaluación
+Artículo 6º-Del desempeño. El CFBCR debe aplicar una vez al año durante el último trimestre del año, la autoevaluación del desempeño de los órganos colegiados y sus miembros, y la evaluación cualitativa de la alta gerencia.
+La evaluación cuantitativa de la alta gerencia se aplica posterior al cierre anual.
+Dicha autoevaluación debe ser gestionada mediante una contratación externa o internamente por la oficina de Gobierno Corporativo para los órganos colegiados y la Gerencia Corporativa de Capital Humano en el caso de la alta gerencia.
+Los resultados de las autoevaluaciones deben ser presentados por la oficina de Gobierno Corporativo y la Gerencia Corporativa de Capital Humano según corresponde, a todas las partes interesadas a más tardar durante el mes de marzo posterior al cierre anual. En ese mismo mes la Secretaría General de la Junta Directiva debe enviar los resultados obtenidos de la autoevaluación de los órganos colegiados al Consejo de Gobierno.
+El proceso de evaluación a cargo de la Gerencia Corporativa de Capital Humano se detalla en la Política para la evaluación del desempeño organizacional para el CFBCR y en las Disposiciones administrativas del Sistema de Gestión del Desempeño (Siged) para el CFBCR, en el caso de la oficina de Gobierno Corporativo se localiza en la Metodología de autoevaluación del desempeño a los miembros de los órganos colegiados del Conglomerado Financiero BCR.
+Las evaluaciones del desempeño y las evaluaciones de aseguramiento de la calidad de la fiscalización superior, se rigen por la normativa aplicable emitida por la Contraloría General de la República, cuyos resultados deben someterse a conocimiento de las juntas directivas respectivas.
