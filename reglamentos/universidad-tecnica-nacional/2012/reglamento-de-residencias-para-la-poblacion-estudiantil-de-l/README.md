@@ -14,3 +14,4 @@ Reglamento de Residencias para la población estudiantil de la Universidad Técn
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-23 | la propia norma |
+| 2 | 2021-11-25 | Reglamento 26 (2021-11-25) |
