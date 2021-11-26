@@ -1,0 +1,5 @@
+Artículo 21. De las infracciones. Se considerarán infracciones todos los actos u omisiones, contrarios a las disposiciones aquí contempladas.
+La Municipalidad podrá aplicar lo estipulado en la normativa legal vigente para establecer cualquier otro tipo de sanción a las personas que desacaten lo aquí señalado, así como también lo señalado en las Leyes N° 8839 sobre la Gestión Integral de Residuos y la N° 9047 en cuanto al consumo y venta de bebidas con contenido alcohólico, y en los Decretos Ejecutivos N° 31626- S sobre Tenencia Responsable de Animales de Compañía y N° 37185S-MEICMTSSMP- H-SP sobre Control del Tabaco. Así como lo dispuesto en el artículo 1045 del Código Civil.
+Tanto la Fuerza Pública, Policía Municipal o funcionarios asignados por la Municipalidad de Garabito pueden levantar partes e informes sobre los comportamientos inapropiados de las personas usuarias.
+También podrán ordenar a las personas usuarias que, con sus actos u omisiones, violenten las normas del presente reglamento y en general, el orden público; que se retiren del parques o sitios públicos.
+Garabito, 23 de noviembre 2021.

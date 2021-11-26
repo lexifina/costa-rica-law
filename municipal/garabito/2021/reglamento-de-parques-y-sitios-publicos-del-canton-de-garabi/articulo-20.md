@@ -1,0 +1,1 @@
+Artículo 20.-Convenios con entes interesados Para el cumplimiento de los objetivos de este reglamento la Municipalidad de Garabito puede celebrar convenios, asociaciones-público privadas y otras figuras contempladas en la legislación nacional.

@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Este reglamento será de aplicación obligatoria para todos los usuarios de parques, playas y sitios públicos, así como a todos los contribuyentes a los que se les brinde el servicio de mantenimiento y limpieza de parques, sitios públicos y zonas verdes en el cantón de Garabito.

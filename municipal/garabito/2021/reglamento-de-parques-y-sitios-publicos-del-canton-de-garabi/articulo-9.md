@@ -1,0 +1,13 @@
+CAPÍTULO 3
+Normas de uso público y permisos
+Artículo 9º-El mobiliario urbano. Todos los ciudadanos tienen derecho al uso y disfrute de los parques y espacios públicos, de acuerdo a su naturaleza y respetando el destino para el que se hayan designado y de acuerdo a lo establecido en este reglamento y demás normativa aplicable.
+Así mismo deben de seguir normas para el mobiliario urbano como se detalla a continuación:
+Bancas: No se permitirá el uso de las bancas de forma contraria a su utilización o todo acto que perjudique o deteriore su conservación y, en particular arrancar, los que estén fijos o trasladarlos, realizar inscripciones, pinturas o ensuciarlas.
+Juegos infantiles: Su utilización se realizará por infantes con las indicadas en las señales que para tal efecto se establezcan en cada sitio. No permitiéndose su utilización por personas de edades superiores. Así como tampoco se permite la utilización de los juegos, de forma distinta a la que están destinados.
+Separadores de residuos. Se prohíbe cualquier manipulación sobre los basureros, como moverlos, prenderles fuego, volcarlos y arrancarlos, así como hacer inscripciones en los mismos, adherirle objetos y cualquier otro acto que deteriore su presentación.
+Señalizaciones, faroles, estatuas y elementos decorativos. En estos elementos de mobiliario urbano no se permitirá subirse, columpiarse o realizar cualquier acto que ensucie, perjudique y deteriore o menoscabe su uso y nadie podrá manipular la parte eléctrica sin la previa autorización escrita de la Municipalidad.
+Fuentes de agua. Las personas usuarias deben de abstenerse de realizar cualquier manipulación en las cañerías y elementos de las fuentes que no sean las propias de su funcionamiento normal. No se permite introducirse en sus aguas, practicar juegos o realizar cualquier tipo de manipulación, en las fuentes decorativas, surtidoras, bocas de riego.
+Duchas públicas. Las duchas públicas están ubicadas en playas y son para el disfrute de bañistas. Se prohíbe la utilización para usos distintos como lavar carros, ropa u objetos incompatibles a los utilizados por los bañistas.
+Gimnasios al aire libre: Los usuarios deberán de cuidar las maquinas destinadas para el ejercicio, no rasparlas y utilizarlas con el fin diseñado.
+Sanitarios Públicos: Los sanitarios públicos serán instalaciones especiales y en ubicaciones estratégicas para el uso de los usuarios de parques y sitios públicos. Estos serán ubicados en sitios estratégicos y controlados para su uso en actividades especiales.
+Lavamanos Públicos: Son estructuras para mantener y mejorar el aseo de las personas y condiciones higiénicas.

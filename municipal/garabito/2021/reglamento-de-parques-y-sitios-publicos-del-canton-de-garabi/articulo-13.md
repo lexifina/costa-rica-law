@@ -1,0 +1,1 @@
+Artículo 13.-Sobre el manejo de residuos. Los residuos de cualquier tipo deben ser depositados en los basureros y depósitos establecidos. Y cuando el parque o sitio público no cuente con estos recipientes, la persona usuaria tiene la obligación de llevarse consigo los residuos generados, para darle un adecuado tratamiento.

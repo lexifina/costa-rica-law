@@ -1,0 +1,2 @@
+Artículo 15.-Sobre la presencia de mascotas y sus deposiciones. Las mascotas deben estar provistas de correa y ser conducidas en todo momento por sus responsables. Estos últimos deben evitar que sus mascotas causen molestias a otras personas usuarias y demás animales presentes.
+Así mismo deben recoger y disponer adecuadamente las deposiciones de sus mascotas. Además, impedirán que estas evacúen en las áreas de canchas, equipos biomecánicos, juegos y zonas para infantes.

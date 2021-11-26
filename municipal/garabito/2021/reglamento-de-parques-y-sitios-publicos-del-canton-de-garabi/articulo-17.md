@@ -1,0 +1,2 @@
+Artículo 17.-Los permisos para celebración de eventos. Eventos culturales, deportivos, recreativos o de cualquiera otra naturaleza, en los citados parques pertenecientes a la Municipalidad de Garabito, los otorgará la Alcaldía Municipal.
+Para otorgar los permisos de actividades de concurrencia masiva, deberán gestionarse con un mínimo de dos meses de antelación a la realización del evento considerando lo dispuesto en el presente Reglamento y demás normativa institucional y nacional. Así como las respectivas licencias municipales.
