@@ -1,0 +1,1 @@
+Artículo 7º-De la plataforma tecnológica. La Proveeduría Institucional de la Dirección Nacional de Centros de Educación y Nutrición y Centros Infantiles de Atención Integral utilizará la plataforma tecnológica que designe el Estado, con el fin de tramitar todos los procedimientos de contratación administrativa que requiera la Dirección.

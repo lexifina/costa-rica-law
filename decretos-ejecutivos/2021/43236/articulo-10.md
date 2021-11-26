@@ -1,0 +1,3 @@
+CAPÍTULO II
+Función y estructura organizativa básica de la Proveeduría Institucional
+Artículo 10.-Función General de la Proveeduría Institucional. Contará con una estructura organizativa básica que le permita cumplir en forma eficiente y oportuna con las funciones de tramitación de los procedimientos de contratación administrativa, de almacenamiento y distribución de bienes, y de levantamiento y confección del inventario permanente de todos sus bienes, para lo cual la institución debe adoptar las medidas correspondientes para dotar a la Proveeduría Institucional de los recursos humanos y materiales indispensables para el cumplimiento de la labor encomendada al amparo del artículo 230 del Reglamento a la Ley de Contratación Administrativa.

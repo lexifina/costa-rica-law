@@ -1,0 +1,1 @@
+Artículo 5º-Definición funcional de la Proveeduría Institucional. Será la competente para tramitar los procedimientos de contratación administrativa que interesen a la Dirección Nacional de Centros de Educación y Nutrición y Centros Infantiles de Atención Integral, así como para realizar los procesos de almacenamiento y distribución.
