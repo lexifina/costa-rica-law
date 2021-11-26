@@ -1,0 +1,1 @@
+Artículo 12.-Anulación de concurso para venta de bien. La Institución podrá retirar del cartel uno o varios ítem, si lo considera conveniente a sus intereses, en un plazo no mayor a cinco días hábiles antes de la fecha dada para la apertura de ofertas.

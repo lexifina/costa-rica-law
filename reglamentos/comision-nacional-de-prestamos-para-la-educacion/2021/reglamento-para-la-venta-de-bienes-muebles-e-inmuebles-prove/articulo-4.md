@@ -1,0 +1,1 @@
+Artículo 4°-Proceso vinculado. La administración de los bienes muebles e inmuebles adquiridos mediante ejecución hipotecaria o pago de obligaciones relacionadas con el crédito otorgado, estará a cargo del proceso de Gestión de Servicios Generales, que incluye el levantamiento del inventario actualizado de los bienes que se encuentren en condición legal de venta.

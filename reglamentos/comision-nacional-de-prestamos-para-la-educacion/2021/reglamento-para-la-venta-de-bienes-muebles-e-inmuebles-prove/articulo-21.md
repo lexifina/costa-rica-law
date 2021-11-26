@@ -1,0 +1,1 @@
+Artículo 21.-Disposición del bien. Una vez firmada la escritura pública, el adjudicatario podrá tomar posesión del bien, para lo cual se ejecutará un acta de entrega por parte de la Sección Administrativa, en la cual se indicará entre otros aspectos el estado del bien que se entrega y el cumplimiento de las condiciones establecidas que perfeccionan la entrega.

@@ -1,0 +1,1 @@
+Artículo 6º Gastos adicionales para administración de bienes - Según el proceso Gestión de Servicios Generales se llevará un detalle de los gastos realizados por mantenimiento, vigilancia, pagos de servicios públicos e impuestos municipales, publicaciones para procesos de venta y cualquier otro costo o gasto adicional relacionado con los bienes.

@@ -1,0 +1,1 @@
+Artículo 24.-Donación de los bienes. En caso de bienes con limitaciones legales para su venta, se podrá analizar posibilidades de donación a alguna entidad pública que la pueda requerir, previo acuerdo del Comité de Cobro para dicha acción. El procedimiento se incluye en el proceso de Gestión de Servicios Generales.

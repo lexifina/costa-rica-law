@@ -1,0 +1,1 @@
+Artículo 16.-Garantía de cumplimiento. El adjudicatario deberá cancelar como garantía de cumplimiento el equivalente a un cinco por ciento (5%) del precio del bien adjudicado, según condiciones establecidas el cartel de la venta.

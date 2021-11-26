@@ -1,0 +1,1 @@
+Artículo 18.-Insubsistencia de la adjudicación. En el momento de constatarse la falta de cancelación del precio de los bienes por parte del adjudicatario, se readjudicará al segundo mejor postor el bien, siempre y cuando éste manifieste su anuencia y se presente a depositar la garantía de cumplimiento.

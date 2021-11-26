@@ -1,0 +1,1 @@
+Artículo 7°-Avalúo. De previo a proceder a cualquier modalidad de enajenación, la Sección Administrativa solicitará a la Dirección General de Tributación Directa, la actualización del avalúo de los bienes, a fin de determinar el valor real de mercado del mismo, que servirá como precio base para ejecutar la venta de los bienes.

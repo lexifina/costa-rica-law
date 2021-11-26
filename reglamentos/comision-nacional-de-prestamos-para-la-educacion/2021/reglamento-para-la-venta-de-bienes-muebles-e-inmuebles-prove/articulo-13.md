@@ -1,0 +1,1 @@
+Artículo 13.-Remate. El Remate consiste en la venta a través de una puja, entre los oferentes del ítem del cartel publicado, hasta que no haya quien mejore la última oferta, cerrándose el acto del remate, declarando adjudicatario a quien formuló la última mejor oferta que no fue superada.
