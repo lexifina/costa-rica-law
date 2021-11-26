@@ -1,0 +1,1 @@
+Artículo 5°-Dependencia responsable. Corresponderá al proceso de Servicios Ambientales y Municipales de la Municipalidad a través de sus profesionales, técnicos y personal de campo, llevar a cabo la prestación de dicho servicio y el ejercicio de las actividades indicadas en el artículo anterior. El servicio se brindará a través del subproceso de Limpieza de Vías.

@@ -1,0 +1,1 @@
+Artículo 8°-Sujeto pasivo. La tasa por el servicio de limpieza de vías deberán pagarla todos los propietarios o poseedores por cualquier título de bienes inmuebles ubicados en el cantón de Garabito donde se brinde el servicio.
