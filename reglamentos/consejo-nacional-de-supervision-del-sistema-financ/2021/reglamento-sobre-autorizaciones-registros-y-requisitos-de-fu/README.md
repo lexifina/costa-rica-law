@@ -14,3 +14,4 @@ Reglamento sobre autorizaciones, registros y requisitos de funcionamiento de ent
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-28 | la propia norma |
+| 2 | 2021-11-28 | Reglamento 1701 (2021-11-22) |

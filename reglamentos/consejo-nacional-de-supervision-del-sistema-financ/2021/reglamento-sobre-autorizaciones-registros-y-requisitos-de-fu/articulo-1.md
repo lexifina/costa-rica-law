@@ -72,10 +72,12 @@ En resumen, teniendo como fin último, el interés y beneficio de los participan
 25. El plazo de la consulta pública finalizó el 3 de junio de 2021 y se recibieron comentarios del Ministerio de Economía, Industria y Comercio, el Instituto Nacional de Seguros, la Asociación de Aseguradoras Privadas de Costa Rica y el Banco Nacional de Costa Rica, los cuales fueron valorados por la Superintendencia e incorporados en el texto final cuando correspondía, por lo cual lo que procede ahora es la aprobación de la versión definitiva.
 dispuso en firme:
 1. Modificar, integralmente, el Acuerdo SUGESE 01-08 Reglamento sobre autorizaciones, registros y requisitos de funcionamiento de entidades supervisadas por la Superintendencia General de Seguros, para que en adelante se lea:
-"ACUERDO SUGESE 01-08
-REGLAMENTO SOBRE AUTORIZACIONES, REGISTROS Y REQUISITOS DE
-FUNCIONAMIENTO DE ENTIDADES SUPERVISADAS POR LA SUPERINTENDENCIA
-GENERAL DE SEGUROS
+"ACUERDO SUGESE 01-21
+REGLAMENTO SOBRE AUTORIZACIONES, REGISTROS
+Y REQUISITOS DE FUNCIONAMIENTO DE ENTIDADES
+SUPERVISADAS POR LA SUPERINTENDENCIA
+GENERAL DE SEGUROS"
+(Así modificada la denominación del título anterior en sesión N° 1701 del 22 de noviembre de 2021)
 CAPÍTULO I
 DISPOSICIONES GENERALES
 Artículo 1. Objetivos y alcance
