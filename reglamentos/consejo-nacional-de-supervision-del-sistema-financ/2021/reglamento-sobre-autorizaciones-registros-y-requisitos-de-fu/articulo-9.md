@@ -1,0 +1,1 @@
+Artículo 9. Vigencia de los documentos. Al momento de presentación de la solicitud, los documentos que la acompañan no pueden tener una antigüedad mayor de tres (3) meses, excepto en el caso de documentos oficiales que explícitamente señalen una vigencia diferente. Cuando se deba presentar información financiera auditada o dictaminada, la antigüedad no podrá ser mayor de un año.

@@ -1,0 +1,4 @@
+Artículo 43. Criterios para valorar las solicitudes de registro de proveedores transfronterizos de servicios de seguros y su renovación. Las solicitudes de registro de proveedores transfronterizos de servicios de seguros y su renovación, serán valoradas de acuerdo con los siguientes criterios:
+a) Existe un tratado internacional, suscrito por Costa Rica, que ampara las actividades del proveedor transfronterizo de servicios de seguros.
+b) Los servicios de seguros, así como la condiciones en que se ofrecerán, se encuentran establecidas en el respectivo tratado.
+c) La entidad extranjera es regulada en su jurisdicción de origen y se encuentra autorizada para realizar las operaciones propuestas; adicionalmente, el supervisor de origen no objeta la operación transfronteriza en Costa Rica y manifiesta su anuencia a suscribir un convenio de intercambio de información con la Superintendencia. En el caso de renovación del registro, se mantienen estas condiciones.

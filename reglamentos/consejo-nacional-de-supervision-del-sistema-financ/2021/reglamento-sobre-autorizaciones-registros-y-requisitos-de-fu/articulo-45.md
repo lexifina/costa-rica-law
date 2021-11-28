@@ -1,0 +1,5 @@
+CAPÍTULO V
+REQUISITOS MÍNIMOS DE FUNCIONAMIENTO
+Artículo 45. Calificación de riesgo. Las entidades de seguros deben mantener actualizada una calificación de riesgo. La primera calificación debe ser emitida en el plazo máximo de dieciocho (18) meses a partir de la notificación de la licencia otorgada y posteriormente se debe actualizar, al menos, una vez al año.
+Los cambios en la calificación o perspectiva, así como en la nota de su fundamental, deberán notificarse al mercado, de conformidad con las disposiciones del Reglamento sobre Remisión de Información Periódica y Revelación de Hechos Relevantes por Entidades Supervisadas por SUGESE. La documentación de la empresa calificadora asociada al cambio deberá, además, estar disponible para consulta en el sitio web de la entidad supervisada o ponerse a disposición a solicitud del interesado.
+Las entidades aseguradoras constituidas con arreglo a las leyes de otro país, que operan en Costa Rica por medio de sucursal, deben cumplir en forma sostenida el requisito de nivel mínimo de calificación que dispone el inciso i) del Artículo 31 de este Reglamento.

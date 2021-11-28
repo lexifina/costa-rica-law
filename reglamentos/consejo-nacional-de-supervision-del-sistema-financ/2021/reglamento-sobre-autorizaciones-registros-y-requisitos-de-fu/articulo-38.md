@@ -1,0 +1,3 @@
+Artículo 38. Criterios para valorar la des-inscripción de seguro obligatorio. Los criterios para valorar solicitudes de autorización para la des-inscripción de un seguro obligatorio, son los siguientes:
+1) Se cumplen los requisitos y revelaciones establecidas en el Anexo 9 de este Reglamento.
+2) El mecanismo propuesto para atender las obligaciones con asegurados y beneficiarios, garantiza el cumplimiento de las obligaciones en los términos dispuestos por ley. Este mecanismo debe establecerse mediante la revelación adecuada y pormenorizada de dichas obligaciones y el mantenimiento de las provisiones respectivas.

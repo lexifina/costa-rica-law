@@ -1,0 +1,2 @@
+Artículo 25. Plazo para el inicio de operaciones. Las entidades autorizadas según los incisos a), b) y c) del Artículo 4, deberán iniciar operaciones dentro de los doce (12) meses siguientes a la notificación de la resolución de autorización condicionada a la que se refiere el Artículo 22.
+Dentro de ese plazo, deben cumplirse y verificarse las condiciones que se indican en los Artículos 22, 23 y 24 de este Reglamento.

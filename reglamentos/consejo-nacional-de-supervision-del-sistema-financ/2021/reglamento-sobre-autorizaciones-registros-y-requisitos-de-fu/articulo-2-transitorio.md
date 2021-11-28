@@ -1,0 +1,1 @@
+TRANSITORIO 2. Las garantías de las sociedades corredoras que, a la fecha de entrada en vigencia de este Reglamento, no cumplan con lo señalado en el Artículo 27 de este Reglamento, deberán ajustarse según lo señalado en ese Artículo, a más tardar en la fecha de vencimiento o renovación del contrato respectivo.

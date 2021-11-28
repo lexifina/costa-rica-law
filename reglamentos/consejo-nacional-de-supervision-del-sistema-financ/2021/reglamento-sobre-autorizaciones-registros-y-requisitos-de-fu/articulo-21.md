@@ -1,0 +1,1 @@
+Artículo 21. Recursos. Contra los actos referidos en los Artículos 19 y 20, cabrán los recursos dispuestos en la Ley General de Administración Pública y la Ley Reguladora del Mercado de Seguros. Los plazos para interponer los recursos dependerán del acto que se impugne, según lo establecido en la respectiva ley.

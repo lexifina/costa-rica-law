@@ -1,0 +1,3 @@
+Artículo 15. Corrección, aclaración o sustitución de la documentación por requerimiento de la SUGESE en solicitudes de autorización. Para el caso de solicitudes de autorización, dentro del plazo de la etapa resolutiva, el Superintendente puede, por única vez, prevenir al solicitante sobre la corrección, la aclaración o la sustitución de la documentación presentada.
+El solicitante debe presentar la información a que refiere el párrafo anterior en el plazo de diez (10) días hábiles a partir de la notificación. Este plazo puede ser ampliado por el Superintendente.
+El plazo de la etapa resolutiva del trámite se suspende por el lapso utilizado por el solicitante para cumplir lo prevenido.

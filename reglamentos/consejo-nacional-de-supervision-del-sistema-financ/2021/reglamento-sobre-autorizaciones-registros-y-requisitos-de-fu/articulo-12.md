@@ -1,0 +1,2 @@
+Artículo 12. Confidencialidad. Los funcionarios de la Superintendencia deben mantener la confidencialidad de la información aportada por los administrados para el trámite de las autorizaciones y registros que se indican en este Reglamento.
+El incumplimiento de esta obligación por parte del funcionario tendrá los efectos dispuestos en el Artículo 166 de la Ley Reguladora del Mercado de Valores, Ley 7732, por remisión expresa del Artículo 29 de la Ley Reguladora del Mercado de Seguros, Ley 8653.
