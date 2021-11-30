@@ -1,0 +1,6 @@
+ANEXO N° 1
+DECLARACIÓN JURADA
+YO, Portador de la cédula de identidad #, vecino de, con grado de licenciatura (conforme se muestra en su título expedido por la universidad), declaro bajo juramento que todos los documentos y lo que he afirmado en ellos, los cuales anexo en mi Solicitud de Admisión para incorporación que he completado para realizar mi trámite ante el Colegio de Contadores Públicos de Costa Rica; son verídicos, completos, correctos y que en todos sus aspectos se consigna información verdadera. Igualmente, manifiesto que he leído con detalle, acepto y aplicaré lo establecido en el Manual del Seminario Deontología en Contaduría Pública emitido por el Colegio de Contadores Públicos de Costa Rica. También por medio de la presente acepto sin restricción que el Colegio de Contadores Públicos de Costa Rica pueda realizar las confirmaciones correspondientes para validar la información aquí consignada.
+En caso, de comprobarse alguna información o documentación falsa, es mi completa responsabilidad, y en consecuencia, el Colegio de Contadores Públicos de Costa Rica no tramitará mi solicitud pudiendo denunciar ante las autoridades correspondientes.
+FIRMA DEL SOLICITANTE:
+Número de cédula o documento de identidad:
