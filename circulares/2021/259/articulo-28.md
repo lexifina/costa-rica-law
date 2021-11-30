@@ -1,0 +1,1 @@
+Artículo 28.-Plazo máximo para ejercer la acción disciplinaria. Salvo disposición legal en contrario, la Corte no iniciará procedimientos disciplinarios, después de transcurridos cinco años a partir de la comisión de la falta.

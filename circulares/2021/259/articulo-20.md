@@ -1,0 +1,1 @@
+Artículo 20.-Perpetuidad de la competencia. La intervención de los Magistrados y Magistradas sustitutas a consecuencia de la inhibitoria o la recusación será definitiva, aunque posteriormente desaparezcan los motivos determinantes de la separación. Salvo la existencia de una causal sobrevenida.

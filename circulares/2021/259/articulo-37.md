@@ -1,0 +1,1 @@
+Artículo 37.-Recursos. Contra la resolución que decida sobre una medida cautelar, procede reposición o reconsideración, sin efecto suspensivo de la decisión adoptada. Deberá interponerse dentro de tercero día, contado a partir del día siguiente a la notificación de la medida impuesta. La Corte deberá resolver en la sesión inmediata siguiente.

@@ -1,0 +1,1 @@
+Artículo 21.-Recursos. Las resoluciones que se dicten con motivo de las inhibitorias o abstenciones no tendrán recurso alguno, las que emitan pronunciamiento sobre recusaciones tendrán recurso de reposición o de reconsideración.

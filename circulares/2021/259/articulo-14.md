@@ -1,0 +1,3 @@
+Artículo 14.-Causales de impedimento. En el procedimiento disciplinario, son causales de impedimento y abstención las establecidas en la Ley Orgánica del Poder Judicial y la normativa procesal civil.
+También será motivo de inhibitoria y/o abstención, sin perjuicio de lo dispuesto por el numeral 212 de la Ley Orgánica del Poder Judicial, toda aquella circunstancia que, aunque no esté expresamente establecida, comprometa seriamente la imparcialidad y objetividad de la persona llamada a intervenir en el trámite y resolución del asunto.
+De no existir causal de impedimento o abstención fundada, es deber de todas y todos los integrantes de Corte Plena ejercer el régimen disciplinario conforme la normativa aplicable y según se establece en las presentes Reglas Prácticas.

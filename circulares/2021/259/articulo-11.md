@@ -1,0 +1,1 @@
+Artículo 11.-Coadyuvantes. Podrán intervenir, como coadyuvantes, las personas, entidades o grupos con interés legítimo, indirecto, en la resolución del asunto, o cuando así se disponga por ley o reglamento".

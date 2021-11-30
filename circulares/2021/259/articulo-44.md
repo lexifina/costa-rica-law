@@ -1,0 +1,5 @@
+Artículo 44.-Medios de prueba. En el procedimiento disciplinario, serán admisibles todos los medios de prueba que prevé el ordenamiento común; en la medida en que resulten idóneos para la averiguación de la verdad real y bajo las siguientes reglas:
+1. El Magistrado o la Magistrada instructora, deberá disponer la recepción de todas las medidas probatorias pertinentes o necesarias, aún si no han sido propuestas por las partes y aun en contra de la voluntad de éstas últimas.
+2. La admisibilidad de la prueba debe hacerla el órgano director, una vez contestado el traslado de cargos y ofrecida la prueba de descargo, a cuyos efectos, dictará un auto de admisión de prueba, donde resolverá sobre la necesidad, pertinencia y utilidad de la prueba de cargo y descargo que se encuentra ofrecida por las partes.
+3. Es posible admitir prueba ofrecida en el curso de la comparecencia oral.
+4. En la audiencia final para conclusiones, también es posible ofrecer elementos probatorios adicionales, empero, éstos serán valorados conforme a las reglas de la prueba para mejor resolver.

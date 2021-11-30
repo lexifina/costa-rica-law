@@ -1,0 +1,1 @@
+Artículo 19.-Oportunidad para resolver la recusación. La recusación deberá quedar resuelta antes de la comparecencia oral y privada. De haberse superado esa etapa, antes de que se dicte el acto final del procedimiento.

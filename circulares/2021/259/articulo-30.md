@@ -1,0 +1,3 @@
+Artículo 30.-Órgano competente y contenido de la notificación. Las notificaciones, se realizarán a través de las personas notificadoras de la Secretaría General de la Corte. También podrá realizarlas el órgano director del procedimiento.
+Sólo excepcionalmente es posible la publicación, la que deberá hacerse por tres veces consecutivas en el Diario Oficial y dentro de los plazos legales.
+Toda comunicación -notificación o publicación- debe contener, bajo pena de nulidad, además del texto íntegro del acto, la indicación de los recursos procedentes, del órgano que los resolverá, de aquél ante el cual deben interponerse y del plazo para interponerlos.

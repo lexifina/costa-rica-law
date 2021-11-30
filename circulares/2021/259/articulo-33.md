@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Medidas Cautelares
+Artículo 33.-Potestades cautelares de la Corte Plena. Corresponderá a la Corte Plena adoptar en resolución fundada, por mayoría absoluta de los miembros presentes, las medidas cautelares que resulten oportunas, razonables e indispensables, para garantizar la averiguación de la verdad real, para no afectar gravemente la normal prestación del servicio público o para garantizar la situación jurídica de terceras personas.
+Tales medidas podrán dictarse de oficio o a solicitud del órgano director del procedimiento o de cualquier interviniente, en cualquier momento: una vez recibida la denuncia, durante el curso de la investigación preliminar, luego de iniciado el procedimiento e incluso con posterioridad al acto final, en este último caso, si resultaren indispensables para la efectiva ejecución de lo dispuesto por la Corte.
