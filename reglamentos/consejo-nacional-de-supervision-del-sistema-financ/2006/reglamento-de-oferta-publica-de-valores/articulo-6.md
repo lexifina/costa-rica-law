@@ -1,8 +1,7 @@
-Artículo 6°—Presunciones de oferta pública de valores. Se presumirá Oferta Pública de Valores:
-(Modificada su denominación por el artículo 62 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
-a) El ofrecimiento de valores que se realice en medios de comunicación colectiva, tales como prensa, radio, televisión e intemet o cualquier otro procedimiento de divulgación.
-b) El ofrecimiento por parte de un emisor de valores accionarios de una misma emisión o de características análogas a otros valores de oferta pública del mismo emisor.
-c) El ofrecimiento de valores emitidos de conformidad con lo establecido en el Capítulo I del Título II de este Reglamento, independientemente del medio utilizado.
-(Así reformado el inciso anterior por el artículo 62 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
-d) La colocación de valores entre un número mayor de cincuenta inversionistas que no formen parte del grupo de interés económico del emisor, de conformidad con la definición contenida en el Reglamento general sobre sociedades administradoras y fondos de inversión, independientemente del porcentaje que representen de la emisión.
-(Así reformado el inciso anterior por el artículo 62 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
+Artículo 6. Presunciones de oferta pública de valores. Se presume que se está ante una oferta pública de valores cuando se presenten las siguientes situaciones, por sí solas o de forma conjunta:
+a. El ofrecimiento de valores que se realice a través de medios de comunicación o difusión masiva.
+b. El ofrecimiento por parte de un emisor de valores accionarios de una misma emisión o de características análogas a otros valores autorizados de oferta pública del mismo emisor.
+c. Derogado
+d. La colocación de valores entre un número mayor de cincuenta inversionistas. Para el cómputo de la cantidad de inversionistas, se consideran las colocaciones a personas físicas o jurídicas en forma directa o por interpósita persona, así como el uso de sociedades u otro tipo de vehículos jurídicos.
+Las presunciones anteriores aplican independientemente del medio por el cual se coloque la oferta.
+(Así reformado en sesión N° 1702 del 30 de noviembre de 2021)
