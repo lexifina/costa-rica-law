@@ -1,2 +1,0 @@
-Artículo 23.-Seguridad. La Municipalidad de Heredia o la Junta Administradora no tendrá responsabilidad en cuanto a la conservación o seguridad de la mercadería y otros bienes propiedad de los arrendatarios o prestatarios; así como, por los accidentes que sufran los usuarios, arrendatarios o prestatarios, dentro de las instalaciones cuando se realizan actividades privadas.
-Para las actividades que sean organizadas por la Municipalidad de Heredia, se mantendrá vigente una póliza de responsabilidad civil y riesgos profesionales.
