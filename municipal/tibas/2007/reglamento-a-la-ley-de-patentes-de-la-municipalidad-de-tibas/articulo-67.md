@@ -1,1 +1,0 @@
-Artículo 67.—Las resoluciones del Departamento de Patentes que ordenen la suspensión de actividad por falta de pago, no tendrá recurso alguno, y su tramitación no admitirá prueba en contrario, salvo la excepción de pago.

@@ -1,1 +1,0 @@
-Artículo 47.—Aquellas personas físicas o jurídicas que para efectos del impuesto sobre la renta tengan responsabilidades separadas, pero que operen en un mismo establecimiento, deberán presentar cada una de ellas la declaración de renta por separado, para efectos del impuesto de patentes.

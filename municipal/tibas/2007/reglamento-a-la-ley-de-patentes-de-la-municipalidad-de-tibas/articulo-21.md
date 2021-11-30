@@ -1,1 +1,0 @@
-Artículo 21.—La licencia caducará cuando se abandone la actividad y así sea comunicado al Departamento de Patentes por el interesado; o cuando venza el plazo para el que se haya dado, tratándose de comercio o industrias temporales.

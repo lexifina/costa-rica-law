@@ -1,1 +1,0 @@
-Artículo 54.—Las recalificaciones de oficio del impuesto de patentes se podrán practicar de manera inmediata, desde el periodo en que se haya detectado la diferencia de montos reportados, hasta el trimestre vigente.

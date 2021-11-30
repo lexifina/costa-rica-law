@@ -1,1 +1,0 @@
-Artículo 22.—Cuando resultare evidente el abandono de una actividad, y previo informe del Departamento de Patentes, se procederá a suspender la licencia del patentado en cuestión; sin que ello le exima de la suma que adeude a la fecha por esa actividad lucrativa.

@@ -1,1 +1,0 @@
-Artículo 45.—Para efectos de la declaración jurada de establecimientos financieros y de compra venta de bienes raíces, se consideran como ventas o ingresos brutos lo percibido por concepto de comisiones e intereses.

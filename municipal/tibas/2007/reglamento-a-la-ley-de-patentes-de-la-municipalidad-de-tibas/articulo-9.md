@@ -1,1 +1,0 @@
-Artículo 9º—El impuesto de patente, deberá ser cancelado por trimestres adelantados. El atraso en la cancelación además de las sanciones que se contemplan por éste concepto, se le aplicará un recargo, sin que pueda exceder en cada caso del 24% del monto adeudado.

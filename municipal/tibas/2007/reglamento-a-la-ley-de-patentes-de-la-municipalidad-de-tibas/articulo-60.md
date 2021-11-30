@@ -1,1 +1,0 @@
-Artículo 60.—Las resoluciones del Departamento de Patentes tendrán los recursos de revocatoria y apelación para ante el Alcalde Municipal, salvo las de calificación y recalificación cuyas alzadas serán de conocimiento del Concejo Municipal.

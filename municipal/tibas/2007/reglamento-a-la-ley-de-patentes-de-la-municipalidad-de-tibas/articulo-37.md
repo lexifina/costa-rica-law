@@ -1,1 +1,0 @@
-Artículo 37.—Los patentados deberán presentar la declaración jurada de patentes cada año a más tardar quince días hábiles después de la fecha límite de entrega del formulario de declaración del Impuesto de Renta establecido por la Dirección General de Tributación Directa.
