@@ -1,0 +1,2 @@
+Artículo 9º-Los contribuyentes y los responsables tienen la obligación de comunicar a la Administración Tributaria su domicilio fiscal, dando la referencia necesaria para su fácil y correcta localización, Dicho domicilio se considera legal en tanto fuere comunicado su cambio.
+En caso de incumplimiento de la obligación que establece el presente artículo, el domicilio se debe determinar aplicando las presunciones a que se refieren los artículos del 26 al 29 del Código de Normas y Procedimientos Tributarios.

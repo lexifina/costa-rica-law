@@ -1,0 +1,1 @@
+Artículo 31.-Una vez que el cobro judicial haya sido iniciado, solo podrá darse por terminado por el pago total de la suma adeudada a la Municipalidad, incluyendo las costas procesales y personales y cualquier otro gasto generado durante su tramitación o con ocasión del mismo, o bien por la formalización de un arreglo de pago.

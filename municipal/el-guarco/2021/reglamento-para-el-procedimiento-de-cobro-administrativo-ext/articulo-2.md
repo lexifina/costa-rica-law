@@ -1,0 +1,1 @@
+Artículo 2º-Este Reglamento será de aplicación obligatoria, tanto para la Administración Tributaria Municipal como para las abogadas (os) externos que sean contratados por la Municipalidad de El Guarco.

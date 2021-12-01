@@ -1,0 +1,1 @@
+Artículo 5º-El personal de la Municipalidad en el cumplimiento de sus funciones y sus tareas, guardará el debido respeto a los interesados y al público en general e informará a aquéllos, tanto de sus derechos como de sus deberes, al igual que sobre la conducta que deben seguir en sus relaciones con la Municipalidad, orientándolos en el cumplimiento de sus obligaciones.

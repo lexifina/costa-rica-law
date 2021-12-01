@@ -1,0 +1,1 @@
+Artículo 19.-Toda la documentación para la suscripción del arreglo de pago, que haya sido requerida por la Municipalidad, así como el compromiso de pago, será agregado al expediente y debidamente foliado para su conservación.

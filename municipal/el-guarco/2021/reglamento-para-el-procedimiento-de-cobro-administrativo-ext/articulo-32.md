@@ -1,0 +1,1 @@
+Artículo 32.-Procederá únicamente la condonación de los honorarios profesionales cuando así lo haya determinado el abogado director del proceso, el cual lo hará constar mediante nota dirigida a la Municipalidad.

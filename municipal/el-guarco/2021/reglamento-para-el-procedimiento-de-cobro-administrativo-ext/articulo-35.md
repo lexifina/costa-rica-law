@@ -1,0 +1,1 @@
+Artículo 35.-El día hábil siguiente al remate el abogado deberá informar por escrito a la Municipalidad el resultado del remate, si pasado un lapso de ocho días no cumpliera con lo anterior, se le enviará una nota informándole sobre la aplicación del artículo 36 de este Reglamento.
