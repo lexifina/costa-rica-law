@@ -1,2 +1,1 @@
-ARTÍCULO 906.- DEROGADO.
-(Derogado por el artículo 8º de la ley Nº 7130 del 16 de agosto de 1989)
+ARTÍCULO 906.- (Derogado por el artículo 8º de la ley Nº 7130 del 16 de agosto de 1989. Posteriormente se deroga nuevamente este artículo por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

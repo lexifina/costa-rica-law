@@ -1,6 +1,1 @@
-ARTÍCULO 908.- Vencido el plazo para legalizar, procederá:
-a) (Derogado por el artículo 183 aparte 5) del Código Procesal Civil, N° 9342 del 3 de febrero de 2016).
-b) Autorizar, cuando fuere del caso, al curador para que lleve a cabo alguno o algunos de los actos comprendidos en el artículo 877. El curador no necesitará autorización para apersonarse en el juicio de calificación de la quiebra.
-c) Acordar la continuación de algún negocio del quebrado para facilitar la liquidación. Este acuerdo no se ejecutará en tanto no esté firme el auto que lo autorice.
-d) Conocer y resolver las consultas o cuestiones que proponga el curador.
-(Así reformado por el artículo 3º de la ley Nº 7130 de 16 de agosto de 1989)
+ARTÍCULO 908.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

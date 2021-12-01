@@ -1,1 +1,1 @@
-ARTÍCULO 958.- Con la rehabilitación del quebrado cesan todas las interdicciones legales que produce la declaratoria de quiebra.
+ARTÍCULO 958.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

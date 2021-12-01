@@ -1,1 +1,1 @@
-ARTÍCULO 907.- También se convocará a los acreedores cuando el deudor, un acreedor o un tercero quieran proponer un arreglo. En ese caso debe acompañarse el proyecto de arreglo para que lo conozcan los acreedores antes de celebrar la junta.
+ARTÍCULO 907.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 “Ley Concursal de Costa Rica”)

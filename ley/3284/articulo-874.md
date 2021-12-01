@@ -1,1 +1,1 @@
-ARTÍCULO 874.- No obstante lo dicho en el artículo anterior, cuando el Juez así lo considere conveniente a los intereses del concurso, podrá nombrar como curador una institución bancaria o una sociedad comercial, en cuyo caso las funciones del curador serán ejercidas por el administrador bajo la dirección de un abogado.
+ARTÍCULO 874.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

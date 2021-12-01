@@ -1,1 +1,1 @@
-ARTÍCULO 953.- El pago íntegro a que aluden los artículos anteriores, se refiere al efectuado con el haber de la quiebra o mediante entregas posteriores.
+ARTÍCULO 953.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

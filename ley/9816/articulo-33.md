@@ -1,4 +1,7 @@
-ARTÍCULO 33- Inicio del proceso de resolución
-Cuando corresponda iniciar un proceso de resolución de los intermediarios financieros supervisados, conforme a lo dispuesto en el artículo anterior, el Conassif, tras informe razonado y a propuesta del interventor, declarará el inicio del proceso de resolución de la entidad conforme lo establece, en lo que corresponda, el artículo 139 bis de la Ley 7558, Ley Orgánica del Banco Central, de 03 de noviembre de 1995.
+Artículo 33- Inicio del proceso de resolución
+Cuando corresponda iniciar un proceso de resolución de los intermediarios financieros supervisados, conforme a lo dispuesto en el artículo anterior, el Consejo Nacional de Supervisión del Sistema Financiero (Conassif), tras informe razonado
+y a propuesta del interventor, declarará el inicio del proceso de resolución de la entidad conforme lo establece, en lo que corresponda, el artículo 139 bis de la Ley 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995.
 En el acuerdo de inicio del proceso de resolución, el Consejo designará al administrador o los administradores de la resolución que llevarán a cabo las actividades de resolución de la entidad, en los términos que indica esta ley.
 Con esa designación cesan automáticamente en sus funciones los órganos sociales y directivos de la entidad.
+Asimismo, en el mismo acuerdo de inicio del proceso de resolución, el Conassif podrá ordenar la suspensión de cualquier obligación de pago o entrega que se derive de contratos de operaciones con instrumentos financieros derivados celebrados por la entidad en resolución, por un plazo máximo hasta de dos días hábiles luego de aprobado en firme dicho acuerdo, en cuyo caso las obligaciones de pago o entrega de las contrapartes de la entidad con arreglo a dichos contratos también se suspenderán por el mismo período.
+(Así reformado por el artículo 74 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica)

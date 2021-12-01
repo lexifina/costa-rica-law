@@ -1,1 +1,1 @@
-ARTÍCULO 875.- Si para determinado caso estuviere inhabilitado o impedido el curador propietario y el suplente, el Juez nombrará una persona que como curador específico supla la falta. Para desempeñar esa función deberá reunir las condiciones requeridas para ser curador.
+ARTÍCULO 875.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

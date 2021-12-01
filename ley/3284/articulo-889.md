@@ -1,2 +1,1 @@
-Artículo 889.- En la legalización de créditos se seguirá el procedimiento establecido para el concurso civil de acreedores. Al hacer la legalización, el acreedor deberá presentar el documento en el que conste la obligación. Mientras el acreedor no compruebe la calidad de tal en forma satisfactoria, no se dará curso a su legalización, ni a gestión suya, ni tendrá voz ni voto, ni le será acordado dividendo alguno. El curador, bajo su responsabilidad, deberá informar al juzgado acerca de la procedencia o improcedencia de los créditos presentados.
-(Así reformado por el artículo 184 aparte 6) del Código Procesal Civil, N°9342 del 3 de febrero del 2016)
+Artículo 889.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

@@ -1,0 +1,23 @@
+SECCIÓN II
+GRUPOS DE INTERÉS ECONÓMICO Y PERSONAS
+ILIMITADAMENTE RESPONSABLES
+ARTÍCULO 63- Procesos concursales de grupos económicos
+63.1. Solicitud conjunta
+Cuando dos o más personas físicas o jurídicas constituyan en forma permanente un grupo económico, deberán formular de manera conjunta la solicitud de apertura del proceso concursal, incluyendo a todos los integrantes. Se expondrán los hechos en los cuales fundan la existencia del agrupamiento y su exteriorización, además de cumplir los requisitos establecidos por esta ley para la solicitud de inicio. Se indicará, además de la situación patrimonial de cada uno de los integrantes, aquella consolidada del agrupamiento y la forma en la cual se propone integrarlos en la propuesta de solución a la crisis patrimonial.
+63.2. Inclusión de integrantes del grupo en solicitud de acreedores u otros entes legitimados
+En la solicitud de apertura del proceso concursal, formulada por acreedores u otros entes legitimados, cuando se incluyan otros integrantes de un grupo económico, deberán especificarse los hechos que evidencien las condiciones necesarias para la configuración del conjunto y la prueba respectiva.
+63.3. Supuestos de constitución de grupos de interés económico
+Para los efectos de un proceso concursal, se consideran integrantes de un mismo grupo de interés económico:
+1) La persona física o jurídica que, bajo la apariencia de la actuación de la persona deudora, ha efectuado los actos en su interés personal y dispuesto de los bienes como si fueran propios, en perjuicio de sus acreedores.
+2) La persona controlante de la persona jurídica concursada, cuando ha desviado indebidamente el interés social de la controlada, sometiéndola a una dirección unificada a favor de la controlante o del grupo económico del que forma parte.
+3) Las personas jurídicas controladas por el concursado o por las personas que conforme a esta ley se consideran especialmente relacionadas con él, o bien, por sus administradores de hecho o de derecho, cuando los controlantes hayan desviado indebidamente el interés de las controladas, sometiéndolas a una dirección unificada a su favor o del grupo económico del que forman parte.
+4) Toda persona respecto de la cual existe confusión patrimonial con el concursado, que impida la clara delimitación de sus activos y pasivos o de la mayor parte de ellos.
+63.4. Personas controlantes
+Para los fines del proceso concursal, se consideran controlantes de un grupo:
+1) Aquella persona que en forma directa o por intermedio de otra persona, a su vez controlada, ostenta participación, por cualquier título, que otorgue los votos necesarios para formar la voluntad social.
+2) Cada una de las personas que, actuando conjuntamente, ostenten participación con los votos suficientes para formar la voluntad social y sean responsables de desviar indebidamente el interés de la controlada, sometiéndola a una dirección unificada a favor de la controlante o del grupo económico del que forma parte.
+63.5. Efectos de la determinación del grupo
+La sentencia que declare la existencia de un grupo de interés, conforme a esta ley, determinará la extensión del concurso a sus integrantes.
+Cuando esté fundada en la confusión patrimonial habrá masas activa y pasiva únicas, considerándose para todos los efectos el concurso como de un único deudor. De llegarse a la liquidación del patrimonio, se hará en forma unificada y se hará la repartición del producto entre todos los acreedores concursales, sin distinción de origen.
+En los demás casos, cuando se formulen propuestas de solución a la crisis, estas deberán especificar la forma cómo participarán cada uno de los integrantes del grupo, con la debida justificación. Los acreedores concursales de cada uno tendrán derecho a votar lo relativo a la aprobación de las propuestas que los afecten. Si se tuviera que realizar la liquidación, la correspondiente a cada integrante del grupo se tramitará separadamente y también se considerarán como separados los bienes y créditos pertenecientes a cada concursado. Los remanentes de cada masa separada, luego de las liquidaciones independientes, se integrarán en un fondo común en el proceso original, el cual será distribuido entre los acreedores no satisfechos por la liquidación de la masa en que participaron, con respecto a las reglas de prelación y de proporcionalidad entre acreedores de una misma clase.
+Todos los procesos deberán contar con un único interventor, administrador o liquidador, salvo que, por la complejidad de las actividades o por otra causa justificada, el tribunal estime necesario nombrar interventores, administradores o liquidadores específicos para algún integrante del grupo.

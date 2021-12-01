@@ -1,1 +1,1 @@
-ARTÍCULO 934.- El fallido condenado por quiebra culpable será hábil para celebrar convenio con los acreedores, siempre que la proposición consista en el pago total de los créditos.
+ARTÍCULO 934.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

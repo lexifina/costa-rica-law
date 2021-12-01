@@ -1,2 +1,3 @@
-ARTÍCULO 63.- Además de las causas por las cuales terminan las sociedades en general, la sociedad en comandita termina por la muerte, quiebra, interdicción o imposibilidad para administrar del socio comanditado.
+Artículo 63- Además de las causas por las cuales terminan las sociedades en general, la sociedad en comandita termina por la muerte, apertura de su liquidación en un proceso concursal, interdicción o imposibilidad para administrar del socio comanditado.
+(Así reformado el párrafo anterior por el artículo 74 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica”)
 Pero si fueren varios los socios comanditados y el caso estuviere previsto en la escritura social, la sociedad podrá continuar bajo la administración de los otros socios, debiendo modificarse, si fuere del caso, la razón social.

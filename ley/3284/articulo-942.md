@@ -1,1 +1,1 @@
-ARTÍCULO 942.- El convenio se ejecutará por el curador, pero si los acreedores lo deciden, podrán nombrarse uno o varios interventores.
+ARTÍCULO 942.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

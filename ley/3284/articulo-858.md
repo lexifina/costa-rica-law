@@ -1,1 +1,1 @@
-ARTÍCULO 858.- La declaratoria de quiebra de una sucesión suspenderá, en cuanto a la adjudicación de los bienes hereditarios, la tramitación del juicio mortuorio mientras no se termine legalmente la quiebra.
+ARTÍCULO 858.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")
