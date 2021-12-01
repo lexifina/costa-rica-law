@@ -1,1 +1,1 @@
-ARTÍCULO 932.- Si el deudor hubiere sido condenado por quiebra culpable o fraudulenta, los acreedores podrán dirigir acción judicial en cobro del saldo inmediatamente.
+ARTÍCULO 932.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

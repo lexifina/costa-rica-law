@@ -1,1 +1,1 @@
-ARTÍCULO 909.- (Derogado por el artículo 183 aparte 5) del Código Procesal Civil, N° 9342 del 3 de febrero de 2016)
+ARTÍCULO 909.- (Derogado por el artículo 183 aparte 5) del Código Procesal Civil, N° 9342 del 3 de febrero de 2016. Posteriormente se deroga nuevamente este artículo por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

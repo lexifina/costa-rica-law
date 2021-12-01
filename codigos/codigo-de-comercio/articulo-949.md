@@ -1,1 +1,1 @@
-ARTÍCULO 949.- Las garantías que el deudor hubiere otorgado para asegurar las estipulaciones del convenio, una vez cumplido éste en todas sus partes, se cancelarán por los acreedores; y en defecto de éstos, por el juez.
+ARTÍCULO 949.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

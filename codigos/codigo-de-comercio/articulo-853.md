@@ -1,1 +1,1 @@
-ARTÍCULO 853.- El comerciante que cesare en el pago de una obligación, deberá, dentro de los diez días siguientes, ponerlo en conocimiento del Juez Civil de su domicilio, para que se declare la quiebra.
+ARTÍCULO 853.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

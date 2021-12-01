@@ -1,1 +1,1 @@
-ARTÍCULO 862.- Cuando la solicitud de quiebra fuere hecha por el deudor o por el representante de la sociedad, debidamente autorizado al efecto, el Juez la decretará sin más trámite, si se han cumplido los requisitos de los artículos 854 y 855.
+ARTÍCULO 862.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

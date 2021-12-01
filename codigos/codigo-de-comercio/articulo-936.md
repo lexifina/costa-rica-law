@@ -1,1 +1,1 @@
-ARTÍCULO 936.- Toda proposición formal de convenio deberá ser hecha y discutida en junta general, especialmente convocada al efecto. Esa proposición deberá presentarse al juzgado con la solicitud de convocatoria a la junta, y estará a disposición de los acreedores para su estudio.
+ARTÍCULO 936.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

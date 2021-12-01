@@ -1,1 +1,1 @@
-ARTÍCULO 880.- El curador aparte de su carácter de mandatario con poder general, se considerará depositario de los bienes del concurso que queden bajo su custodia; y de consiguiente, cabe contra él, orden de apremio cuando al cesar en sus funciones, no entregue al Juez o a su sucesor, según esté ordenado, algún bien del concurso, que debe tener en su poder. La misma medida cabrá contra el depositario que no entregue el bien confiado a su custodia.
+ARTÍCULO 880.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

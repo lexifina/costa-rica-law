@@ -1,1 +1,1 @@
-ARTÍCULO 952.- Los quebrados fraudulentos sólo podrán ser rehabilitados si hubiesen pagado íntegramente sus deudas y después de transcurrir tres años desde el cumplimiento de la pena que les fuere impuesta o de la fecha en que hubieren sido indultados.
+ARTÍCULO 952.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

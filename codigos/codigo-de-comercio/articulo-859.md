@@ -1,1 +1,1 @@
-ARTÍCULO 859.- También podrá declararse la quiebra de un comerciante o sociedad que ha cerrado sus operaciones, si la declaratoria se demanda dentro de los dos años siguientes al cierre de los negocios, y si la cesación de pagos ha ocurrido durante el tráfico mercantil, o en el año siguiente por consecuencia de obligaciones dependientes o derivadas del mismo tráfico.
+ARTÍCULO 859.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

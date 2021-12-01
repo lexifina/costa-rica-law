@@ -1,5 +1,6 @@
-Artículo 488.- Los asuntos laborales no estarán sujetos a fuero de atracción por los procesos universales. Su trámite se podrá iniciar o continuar con el albacea, curador o interventor.
+Artículo 488-
+Cuando el crédito laboral se pretenda ante una sucesión, concurso o persona jurídica disuelta pendiente de liquidación, se podrá iniciar o continuar un proceso judicial en los tribunales de trabajo competentes, con la participación del albacea, interventor, administrador concursal, liquidador o por el propio deudor, cuando proceda de acuerdo con la ley concursal vigente.
 El órgano de la jurisdicción ordenará, de oficio o a solicitud de parte, la anotación en el proceso universal, tanto de la demanda como de la sentencia y de las liquidaciones, en su momento oportuno.
 El órgano que conoce del proceso universal remitirá al tribunal laboral el producto de la liquidación necesario para cubrir el principal y los accesorios fijados. La parte actora estará legitimada para gestionar en el proceso universal la liquidación de bienes y el traslado del producto necesario a su proceso, para la satisfacción de los derechos dentro de este, o su pago directo, según el orden de preferencia establecido en la ley.
 Los créditos laborales no soportarán gastos de la masa, a menos que del producto de la liquidación no sobre lo suficiente para cubrirlos.
-(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)
+(Así reformado por el artículo 74 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica)

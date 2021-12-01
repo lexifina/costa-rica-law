@@ -1,1 +1,1 @@
-ARTÍCULO 879.- El curador tendrá las facultades del artículo 1255 del Código Civil; en consecuencia, del acta de aceptación deberá extenderse certificación e inscribirse en la Sección Mercantil del Registro Público. Ese poder general queda modificado en lo que expresamente dispone este capítulo.
+ARTÍCULO 879.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

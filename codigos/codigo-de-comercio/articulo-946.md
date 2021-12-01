@@ -1,1 +1,1 @@
-ARTÍCULO 946.- Cualesquiera que sean los términos del convenio, no afectará el procedimiento penal a que diere lugar la declaratoria de quiebra.
+ARTÍCULO 946.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

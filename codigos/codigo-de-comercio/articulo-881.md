@@ -1,1 +1,1 @@
-ARTÍCULO 881.- El curador continuará la contabilidad, para los efectos de la liquidación de la quiebra.
+ARTÍCULO 881.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

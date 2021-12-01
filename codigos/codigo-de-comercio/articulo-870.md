@@ -1,2 +1,1 @@
-ARTÍCULO 870.-
-(Derogado por el artículo 8º de la ley No. 7130 del 16 de agosto de 1990)
+ARTÍCULO 870.- (Derogado por el artículo 8º de la ley No. 7130 del 16 de agosto de 1990. Posteriormente se deroga nuevamente este artículo por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

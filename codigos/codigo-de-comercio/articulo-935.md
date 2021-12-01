@@ -1,1 +1,1 @@
-ARTÍCULO 935.- El convenio celebrado con el deudor quedará sin efecto si se dictare sentencia condenatoria por el delito de quiebra fraudulenta. Si al cumplimiento de lo convenido se hubieren otorgado garantías de cualquier naturaleza, éstas se mantendrán respaldando todos los actos de deudor garantizado por ellos.
+ARTÍCULO 935.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

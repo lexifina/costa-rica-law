@@ -1,1 +1,1 @@
-ARTÍCULO 914.- De toda junta se levantará acta que firmará el juez con los asistentes, el curador y el secretario.
+ARTÍCULO 914.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")

@@ -10,6 +10,8 @@ f) Las patentes de corredores jurados;
 g) Las capitulaciones matrimoniales que afecten a un comerciante, cuando en virtud de ellas se establezca comunidad de bienes con el otro cónyuge;
 h) Las escrituras en que un comerciante reconozca cualquier deuda o derecho en favor de su cónyuge;
 i) La sentencia de divorcio o separación de cuerpos que afecte a un comerciante, así como la escritura o sentencia en que se defina la liquidación de sus haberes en la sociedad conyugal;
-j) Los mandamientos librados por autoridad judicial en que conste la declaración de quiebra de un comerciante o de una sociedad, así como la reposición de la misma o la rehabilitación del quebrado;
-k) El nombramiento de curador en una quiebra; y
+j) La declaración de apertura de un proceso concursal de un comerciante o de una sociedad, así como su conclusión;
+(Así reformado el inciso anterior por el artículo 74 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica)
+k) El nombramiento de interventores, administradores o liquidadores concursales de comerciantes o sociedades; y
+(Así reformado el inciso anterior por el artículo 74 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica)
 l) La habilitación concedida al menor o incapaz para ejercer el comercio y la modificación o revocación de ésta.

@@ -1,1 +1,1 @@
-ARTÍCULO 867.- Si se tratare de la quiebra de una sucursal o agencia de comerciantes o sociedad domiciliada en el extranjero, será competente el Juez del lugar donde esté radicada la sucursal o agencia. Si hubiere varias en la República, lo será uno de los jueces de la capital, si en esta provincia hubiere alguna; de lo contrario, será competente el Juez del lugar donde se halle cualquiera de ellas.
+ARTÍCULO 867.- (Derogado por el artículo 73 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica")
