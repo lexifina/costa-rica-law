@@ -1,0 +1,1 @@
+Artículo 8°-Derogatoria. Deróguese el Decreto Ejecutivo número 42665-H del siete de octubre de 2020, publicado en el Alcance número 289 a La Gaceta número 262 del 30 de octubre de 2020 así como los tomos del I al V.
