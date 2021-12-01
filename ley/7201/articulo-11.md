@@ -1,1 +1,0 @@
-Artículo 11.- La Comisión elaborará su propio presupuesto, el cual será sometido a la aprobación de la Junta Directiva del Banco Central de Costa Rica; su financiación estará íntegramente a cargo del Banco Central de Costa Rica.
