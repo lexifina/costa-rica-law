@@ -14,3 +14,4 @@ Condiciones especiales para la adquisición y precalificación institucional de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-03 | la propia norma |
+| 2 | 2021-12-01 | Reglamento 47 (2021-12-01) |
