@@ -1,0 +1,1 @@
+Artículo 2.- Deróguense los artículos 4° y 6° del Decreto Ejecutivo número 42221-S del 10 de marzo de 2020, denominado "Medidas administrativas temporales para la atención de actividades de concentración masiva debido a la alerta sanitaria por COVID-19".
