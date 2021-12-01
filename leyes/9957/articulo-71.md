@@ -1,0 +1,3 @@
+ARTÍCULO 71- Especialización de tribunales concursales
+Los procesos concursales serán de competencia exclusiva de los tribunales especializados en esta materia, independientemente de la naturaleza de la actividad realizada o el tipo de persona que se someta a concurso, tales como personas físicas o jurídicas dedicadas a actividades industriales, profesionales, comerciales, agrícolas, deportivas, tecnológicas y de cualquier otra naturaleza privada, siempre que no estén expresamente excluidas por esta ley.
+Se autoriza a la Corte Suprema de Justicia para que, cuando lo considere pertinente y con fundamento en el volumen de trabajo, establezca los tribunales especializados que sean necesarios para la tramitación de los procesos concursales.

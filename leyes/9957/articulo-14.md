@@ -1,0 +1,42 @@
+ARTÍCULO 14- Solicitud del acreedor y otros entes legitimados
+14.1. Legitimación de la condición de acreedor
+Podrá gestionar el concurso, el acreedor que presente un título legalmente válido de cualquier naturaleza en el que conste una obligación dineraria a cargo del demandado, sin que necesariamente esté vencida.
+El título deberá ser original, copia certificada cuando lo admita la ley para su cobro judicial o estar contenido en un soporte en el que aparezca como indubitable quién es el deudor y su firma o la de sus representantes legítimos. Si se presenta un título ejecutivo, la firma del deudor o su representante legal será indispensable únicamente cuando la ley lo exija.
+Cuando se presente el título físico original, se le insertará una razón de haber sido presentado al proceso concursal, con la fecha y hora exactas, y se incorporará una copia fiel a la carpeta. El original será devuelto al gestionante, quien deberá custodiarlo debidamente y tendrá la obligación de presentarlo, si el tribunal así lo requiere. De no hacerlo antes de la declaratoria de concurso, según las circunstancias, podrá decretarse la inadmisibilidad del proceso. Luego de la declaratoria de la apertura del concurso, por razones justificadas el tribunal podrá requerir la presentación del título original. Si el acreedor solicitante del concurso no lo aporta en el plazo que se le conceda al efecto, se podrá tener por rechazado su crédito, cuando haya sido objetado oportunamente.
+Un acreedor favorecido con resolución firme, laudo o acuerdo homologado judicialmente, que contenga obligaciones dinerarias exigibles, solo podrá gestionar la declaratoria de concurso en las mismas condiciones dispuestas para los demás acreedores, cuando demuestre que concurre alguno de los hechos que hace presumir la insuficiencia patrimonial.
+Los acreedores con garantías prendarias, hipotecarias, mobiliarias, reales o equiparables solo podrán solicitar la apertura del concurso, si renuncian a su privilegio o cuando los bienes que respondan por la obligación hayan resultado insuficientes para satisfacer la totalidad del crédito, incluido el desmejoramiento de las garantías debidamente acreditado.
+14.2. Legitimación de entes públicos de supervisión o regulación
+Cuando la solicitud la formule una entidad pública encargada legalmente de la supervisión o regulación de actividades de empresarios susceptibles de concurso, deberá presentarse el acuerdo firme mediante el cual se decidió requerir la apertura concursal.
+14.3. Demanda
+Además de los requisitos generales que establece la legislación procesal civil, la demanda de declaratoria de concurso, deberá indicar:
+1) La causal que hace presumir el estado de insuficiencia patrimonial.
+2) Si se trata de una insuficiencia actual o inminente, la exposición de los motivos que justifiquen la apertura del concurso.
+3) La solución que estime adecuada para solventar la insuficiencia patrimonial.
+No será necesario estimar la demanda.
+Podrá solicitar la adopción de las medidas cautelares que considere idóneas para tutelar sus intereses o los del concurso.
+14.4. Demanda defectuosa
+Si la demanda no cumple los requisitos legales, el tribunal puntualizará todos los defectos de una vez y ordenará su corrección en el plazo de cinco días. Si la prevención no se cumple, se declarará su inadmisibilidad. No obstante, por única vez, se podrá hacer una segunda prevención en casos excepcionales, cuando haya sido evidente la intención de subsanar los defectos señalados en el plazo conferido.
+14.5. Demanda improponible
+Además de los supuestos que establezca la legislación procesal civil, mediante sentencia anticipada, se declararán improponibles las demandas concursales cuando sea evidente cualquiera de los siguientes supuestos:
+1) La falta de legitimación concursal de quien demanda de acuerdo con lo previsto en esta ley.
+2) Que no se configuran los presupuestos objetivos o subjetivos concursales.
+3) Que el deudor o el patrimonio autónomo que se pretendan concursar, carecen de pluralidad de acreedores.
+14.6. Emplazamiento y medidas cautelares
+Si la demanda es admisible, se le dará curso y se concederá a la parte demandada el plazo de diez días para contestar.
+Aun de oficio, el tribunal adoptará las medidas cautelares necesarias para tutelar los derechos de los eventuales acreedores, la preservación del patrimonio del deudor y cualquier otra medida típica o atípica que asegure los fines del concurso.
+14.7. Allanamiento y falta de contestación
+Si el demandado acepta expresamente el estado de insuficiencia patrimonial y se allana a la pretensión, o si no contesta dentro del plazo concedido; si fuera procedente, el tribunal emitirá sentencia que declare abierto el concurso.
+En caso de allanamiento, dentro de los diez días siguientes contados a partir de la fecha en que haya presentado la contestación, el demandado deberá cumplir con los requisitos establecidos en esta ley para la solicitud de concurso del propio deudor o del patrimonio autónomo.
+El incumplimiento injustificado de la presentación de los requisitos en el plazo o la falta de contestación oportuna de la demanda, no impedirán la continuación del proceso concursal. Se adoptarán las medidas necesarias para obtener la información y documentación que se considere indispensable. Se decidirá acerca de la solución a la crisis patrimonial que se estime adecuada, con los elementos probatorios que se logre recabar.
+14.8. Contestación negativa
+Si el demandado contesta negativamente dentro del emplazamiento y se hubiera ofrecido prueba, el tribunal admitirá únicamente la que conduzca a esclarecer el objeto de lo debatido. Asimismo, podrá ordenar, de oficio, la que estime estrictamente necesaria.
+Cuando se requiera practicar prueba, adoptará las medidas que considere pertinentes y citará a las partes a una sola audiencia oral para ese fin, en un plazo no mayor de diez días. En esta audiencia, se tramitarán y resolverán todas las excepciones procesales que hayan sido opuestas. La formulación de defensas que puedan incidir en la competencia no suspenderá el curso del proceso ni impedirá la celebración de la audiencia oral, pero deberá ser resuelta al iniciarse. Si se declaran improcedentes las excepciones procesales, se continuará con las demás actividades propias de la audiencia, exceptuando la fijación de la cuantía por tratarse de un proceso inestimable.
+Si no hubiera prueba que practicar en audiencia, se concederá un plazo de tres días a la parte actora para que se refiera a la contestación negativa y excepciones opuestas; vencido el cual, el tribunal decidirá en una sola resolución primero las defensas que puedan incidir sobre la competencia, de seguido las demás excepciones de carácter procesal y, finalmente, si resultaran improcedentes las anteriores, lo concerniente a la apertura o rechazo del concurso.
+14.9. Prejudicialidad
+La existencia de un proceso penal en ningún caso dará lugar a prejudicialidad en cuanto a la solicitud de apertura del concurso. La falsedad del título base de la demanda, así como cualquier otra defensa en cuanto a la validez de la obligación o los presupuestos para la apertura del concurso, podrán ser invocadas como excepciones materiales dentro del emplazamiento y serán resueltas en sentencia.
+Cuando, para resolver sobre la apertura del concurso, sea necesario decidir alguna cuestión que constituya el objeto de otro proceso no penal anterior a la solicitud inicial, de oficio o a solicitud de parte, podrá decretarse la suspensión del curso del proceso concursal hasta que se decida aquel en firme. El proceso concursal se suspenderá previo a la celebración de la audiencia oral, cuando esta sea necesaria. De no serlo, la suspensión únicamente impedirá el dictado de la sentencia.
+En ningún caso la prejudicialidad impedirá el conocimiento de la constitución, modificación o extinción de medidas cautelares en el concurso.
+14.10. Desistimiento
+Quien haya demandado la apertura del concurso de otra persona, sucesión o patrimonio autónomo, no podrá desistir de la demanda. Sin embargo, si antes de la declaratoria de apertura se aporta prueba que determine la insubsistencia del procedimiento en relación con los presupuestos objetivos, se podrá dar por terminado el proceso sin más trámite.
+14.11. Prohibición de enervar mediante pago la solicitud de concurso
+El demandado no podrá enervar la demanda de concurso haciendo pago de lo adeudado respecto de los créditos que le sirvieron de fundamento.
