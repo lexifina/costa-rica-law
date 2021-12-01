@@ -1,0 +1,2 @@
+Artículo 7º-En el caso de las dependencias bajo la jerarquía presupuestaria de la Junta Directiva del BCCR, será responsabilidad de la División de Gestión y Desarrollo (DGD) elaborar, para las modificaciones presupuestarias y presupuestos extraordinarios, un documento, en el que se rinda criterio acerca de los efectos o cambios que tienen sobre el cumplimiento de los objetivos y metas definidos en los planes correspondientes.
+Este documento formará parte del expediente respectivo y el resultado de su pronunciamiento será vinculante para realizar dicha gestión.

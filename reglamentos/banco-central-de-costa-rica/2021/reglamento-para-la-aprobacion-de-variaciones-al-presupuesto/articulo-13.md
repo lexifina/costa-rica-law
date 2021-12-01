@@ -1,0 +1,6 @@
+Artículo 13.-Ajustes internos. En el caso del presupuesto del Banco, corresponde a las direcciones de división o sus órganos equivalentes con potestad de decisión en materia presupuestaria, la aprobación de ajustes internos.
+Cada subpartida no podrá variar anualmente por ajustes internos más allá del 25% del monto total inicial asignado.
+Los directores de división podrán realizar nueve ajustes internos durante el año.
+En caso de requerirse una mayor cantidad de ajustes o un monto mayor al límite indicado, se deberá contar con el visto bueno de la Gerencia.
+En los casos que la solicitud considere programas de financiación relacionados con proyectos, el ajuste procede siempre que no existan cambios en el tiempo, costo o alcance del proyecto o cuando se cuente con la debida carta de autorización de cambio aprobada.
+En el caso del presupuesto de los ODM, los superintendentes podrán realizar hasta un máximo de seis ajustes internos al año. En caso de requerirse más ajustes internos de los ya citados, el Superintendente podrá solicitar al Consejo la autorización para exceder ese tope, justificándolo plenamente. Todo ajuste interno debe someterse al conocimiento del Consejo oportunamente.
