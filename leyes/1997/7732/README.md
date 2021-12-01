@@ -1,6 +1,6 @@
 # Ley Reguladora del Mercado de Valores
 
-Ley N° 7732 del 1997-12-17. SINALEVI, ficha 29302: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=29302&param2=118244&param3=1>.
+Ley N° 7732 del 1997-12-17. SINALEVI, ficha 29302: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=29302&param2=128065&param3=1>.
 
 Publicada en La Gaceta N° 18 del 1998-01-27.
 
@@ -18,3 +18,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 8 de 14 | 2019-08-29 | Ley 9695 | 2019-06-07 |
 | 9 de 14 | 2019-10-22 | Ley 9746 | 2019-10-16 |
 | 10 de 14 | 2019-11-04 | Ley 9768 | 2019-10-16 |
+| 11 de 14 | 2021-12-01 | Ley 9957 | 2021-04-14 |
