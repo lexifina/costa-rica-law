@@ -3,7 +3,8 @@ Artículo 116.-Los bancos comerciales podrán efectuar las siguientes comisiones
 2) Actuar como agentes financieros y comprar o vender, por orden y cuenta de sus clientes, toda clase de valores y bienes;
 3) Hacer cobros y pagos por cuenta ajena y efectuar otras operaciones por encargo de sus clientes, siempre que sean compatibles con su naturaleza de bancos comerciales;
 4) Actuar como depositarios judiciales o extrajudiciales o como interventores en negocios o asuntos bancarios;
-5) Actuar como liquidadores de toda clase de personas siempre que no se hallaren en estado de quiebra o de insolvencia;
+5) Actuar como liquidadores de toda clase de personas siempre que no se hallaren en estado de fase concursal liquidatoria (*) o de insolvencia;
+(Así modificada su denominación por el artículo 74 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica. Anteriormente indicaba " quiebra")
 6) Actuar como mandatarios y, especialmente, como Administradores de bienes sucesorios o que pertenezcan a menores, incapaces o ausentes;
 7) Realizar contratos de fideicomiso, conforme a lo dispuesto en el Código de Comercio y las demás normas legales y reglamentarias aplicables."
 (Así reformado el párrafo anterior por el artículo 189 de la Ley Reguladora del Mercado de Valores, N° 7732 del 17 de diciembre de 1997)

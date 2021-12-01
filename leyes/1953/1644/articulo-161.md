@@ -1,3 +1,4 @@
 Artículo 161-Los bancos y las demás entidades financieras supervisados por la Superintendencia General de Entidades Financieras (Sugef) estarán sometidos al procedimiento de intervención y resolución establecido en los artículos 139 bis y siguientes de la Ley 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995.
-Si algún acreedor de un banco o entidad financiera o el propio establecimiento se presentara ante los tribunales pidiendo la declaración de quiebra, el juez dará aviso al superintendente general de entidades financieras.
+Si algún acreedor de un banco o entidad financiera o el propio establecimiento se presentara ante los tribunales pidiendo la declaración de fase concursal liquidatoria (*), el juez dará aviso al superintendente general de entidades financieras.
+(*)(Así modificada su denominación por el artículo 74 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica. Anteriormente indicaba " quiebra")
 (Así reformado por el artículo 55 aparte b) de la Ley de creación del fondo de garantía de depósitos y de mecanismos de resolución de los intermediarios financieros, N° 9816 del 11 de febrero de 2020)

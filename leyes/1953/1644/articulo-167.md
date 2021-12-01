@@ -17,5 +17,6 @@ Artículo 167-Son deberes de la junta liquidadora:
 16) Formular una cuenta distributiva cada vez que haya fondos suficientes para repartir un dos por ciento (2%), por lo menos, entre los acreedores cuyos créditos hayan sido aprobados.
 17) Convocar a reuniones de acreedores para conocer de la legalización de créditos y para el examen, la discusión y aprobación del estado de liquidación, por medio de un aviso que será publicado en el Boletín Judicial y en dos periódicos matutinos de San José, por lo menos tres veces consecutivas, debiendo mediar entre la primera publicación del aviso en el Boletín Judicial y el día de la reunión no menos de quince días hábiles.
 18) Ejecutar todos los actos que estime convenientes, con el fin de llevar a cabo la liquidación de la mejor forma posible.
-Los actos que impliquen disposición de bienes de la quiebra, no previstos en esta ley, los resolverán los acreedores en una junta convocada al efecto.
+Los actos que impliquen disposición de bienes de la fase concursal liquidatoria (*), no previstos en esta ley, los resolverán los acreedores en una junta convocada al efecto.
+(*)(Así modificada su denominación por el artículo 74 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica. Anteriormente indicaba " quiebra")
 (Así reformado por el artículo 55 aparte h) de la Ley de creación del fondo de garantía de depósitos y de mecanismos de resolución de los intermediarios financieros, N° 9816 del 11 de febrero de 2020)
