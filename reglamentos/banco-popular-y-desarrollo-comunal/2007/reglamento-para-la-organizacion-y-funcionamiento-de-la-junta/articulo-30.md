@@ -1,1 +1,1 @@
-Artículo 30.—Del quórum. En las reuniones de comisión se formará quórum con la asistencia de dos integrantes, excepto cuando esté conformada por más de tres miembros en cuyo caso se conformará con la mayoría absoluta de los integrantes.
+Artículo 30.-Recursos contra los acuerdos. La persona interesada podrá interponer recurso de reconsideración, así como otros que la ley autorice, contra los acuerdos de la Junta Directiva Nacional, dentro del plazo legal establecido al efecto.

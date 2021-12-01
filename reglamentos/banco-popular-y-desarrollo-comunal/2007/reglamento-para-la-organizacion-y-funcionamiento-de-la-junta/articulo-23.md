@@ -1,1 +1,7 @@
-Artículo 23.—Antecedentes y documentos relativos a las sesiones. Con el fin de facilitar los debates en el curso de las sesiones y con el propósito de procurar resolver todos los puntos del orden del día, la Gerencia General Corporativa, la Auditoria y la Secretaría de Junta Directiva Nacional están obligadas a presentar todos los antecedentes y documentos relativos a aquellos. Cuando dichos antecedentes y documentos no se acompañen con los asuntos que figuren en el orden del día, la Junta podrá no conocer de ellos hasta tanto no se cumpla con lo ordenado en este artículo.
+CAPÍTULO III
+Rol de la Presidencia de la Junta Directiva Nacional
+Artículo 23.-Rol de la Presidencia. La Presidencia deberá aportar su liderazgo y su responsabilidad para el correcto y efectivo funcionamiento de la Junta Directiva Nacional. Entre otros aspectos deberá:
+. Dedicar el tiempo que el Conglomerado Financiero demande para el cumplimiento de sus funciones.
+. Hacer un manejo efectivo del tiempo durante las sesiones.
+. Promover y motivar la discusión crítica y asegurar que los criterios disidentes se puedan expresar y discutir libremente para la toma de decisiones.
+. Velar por que las decisiones de la Junta Directiva Nacional sean tomadas sobre una base de información oportuna, sólida y correcta.

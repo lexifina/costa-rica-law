@@ -1,4 +1,2 @@
-Artículo 12.—De la mayoría para adoptar acuerdos. Salvo disposición legal en contrario, los acuerdos se tomarán por mayoría simple de votos, y por mayoría no inferior a cinco miembros en los siguientes casos:
-a) La designación en propiedad del Gerente General, los Subgerentes Generales, el Auditor y el Subauditor.
-b) La remoción del Gerente General, Subgerentes Generales, Auditor y Subauditor.
-c) Para la creación de sucursales u oficinas auxiliares en cualquier parte del país.
+Artículo 12.-Privacidad de las sesiones. Las sesiones de la Junta Directiva Nacional serán siempre privadas, salvo que los miembros presentes acuerden por unanimidad, que el público en general o ciertas personas, puedan tener acceso a la sesión concediéndole o no el derecho de participar en las deliberaciones con voz, pero sin voto.
+Asimismo, la Junta Directiva Nacional podrá ordenar, según la gravedad o relevancia de los temas planteados, el carácter de sesión cerrada con las personas que estime convenientes y hacer resguardo de la información que allí se genere. Cualquier funcionario o empleado del Conglomerado Financiero está obligado a asistir a las sesiones de Junta Directiva Nacional, cuando fuere citado por este órgano o el Presidente, con el propósito de verter criterio técnico sobre algún asunto o simplemente brindar más información.

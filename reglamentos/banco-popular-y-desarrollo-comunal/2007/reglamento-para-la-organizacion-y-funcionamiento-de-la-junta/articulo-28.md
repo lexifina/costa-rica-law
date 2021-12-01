@@ -1,1 +1,1 @@
-Artículo 28.—Otorgamiento de poderes a funcionarios del Banco. La Junta Directiva concederá los poderes necesarios a los funcionarios cuando ello sea requerido para el cumplimiento de las respectivas funciones. Sin detrimento de los poderes que la Gerencia General pueda otorgar.
+Artículo 28.-Revisión de los acuerdos. Cada Director (a) podrá, por una sola vez, solicitar la revisión de una determinada actuación de la Junta Directiva Nacional, ello antes de que el acuerdo haya sido adoptado en firme.

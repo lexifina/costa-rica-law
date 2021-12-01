@@ -1,3 +1,2 @@
-CAPÍTULO II
-De los acuerdos
-Artículo 21.—De los acuerdos. Los acuerdos tomados por la Junta Directiva, quedarán firmes al aprobarse el acta respectiva en la siguiente sesión ordinaria o al haberse declarado así en la misma sesión por votación de las dos terceras partes de sus miembros. Los acuerdos de Junta Directiva serán ejecutivos y comunicables desde que se adoptan en firme.
+Artículo 21.-Dietas. La Junta Directiva Nacional, de conformidad con las disposiciones legales aplicables, señalará la dieta que sus miembros devengarán por su asistencia a las sesiones de dicho órgano, a las sesiones de las Juntas Directivas de las Sociedades que conforman el Conglomerado Financiero y a las reuniones de Comités y Comisiones que así les corresponda. En todo caso, no podrá pagarse más del diez por ciento (10%) del salario base del Contralor General de la República.
+La inasistencia o llegada tardía de más de treinta minutos después de iniciada la sesión o el abandono de la misma, sin la debida justificación avalada por la Presidencia de la Junta Directiva Nacional, ocasionará la pérdida de la dieta respectiva.
