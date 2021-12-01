@@ -1,2 +1,1 @@
-Artículo 50.-
-Las funciones de la Junta Directiva local y del Gerente de cada sucursal serán análogas a las desempeñadas por la Junta directiva y el Gerente del Banco, en cuanto fueren racionalmente aplicables al gobierno propio de la sucursal, y sin perjuicio de la sujeción jerárquica que deberá existir entre unos y otros organismos y funcionarios. El reglamento establecerá las relaciones que existirán entre ellos.
+Artículo 50.- (Derogado por el artículo 2° de la ley que elimina las Juntas Directivas locales de los Banco del Estado, N° 10023 del 26 de octubre de 2021)
