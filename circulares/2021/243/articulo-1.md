@@ -1,0 +1,11 @@
+CIRCULAR N° 243-2021
+ASUNTO: Requisitos presentados por el Colegio de Médicos y Cirujanos de Costa Rica de previo a cualquier gestión de solicitud de ternas o integración de profesionales para las ternas dentro de los distintos procesos judiciales en las diferentes materias.
+A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión No. 88-2021 celebrada el 12 de octubre de 2021, artículo XLVII dispuso hacer de conocimiento de todas las autoridades judiciales del país, la solicitud del Colegio de Médicos y Cirujanos de Costa Rica, que previo a cualquier gestión de solicitud de integración de profesionales para las ternas dentro de los distintos procesos judiciales en las diferentes materias, lo siguiente:
+1. Sea requerido a la parte solicitante de la terna se especifique: la especialidad, subespecialidad o disciplina a solicitar.
+2. Solicitar información privada o sensible de nuestros profesionales solamente por autoridad judicial (Juez) o del Ministerio Público (Fiscal) ya que muchas gestiones son firmadas o gestionadas por parte de auxiliares judiciales y no por autoridad judicial competente.
+3. Se requiere por parte de este Colegio Profesional para respuesta, sea claramente identificado el nombre del Juez o Fiscal requirente, dirección electrónica, despacho y número de causa.
+4. Las solicitudes sean remitidas sin excepción a la Fiscalía del Colegio de Médicos y Cirujanos si la solicitud es mediante oficio o mandato en forma física o al correo electrónico recepcionfiscalia@medicos.cr rotulados a nombre del Fiscal General en ejercicio del Colegio de Médicos y Cirujanos (por el momento el nombramiento recae en la Dra. Cecilia Bolaños Loria). Dicho oficio puede confeccionarse con firma holográfica o digital y no se requiere del original si se tramita por correo electrónico oficial del Poder Judicial.
+5. Se aclara que esta Corporación gremial no maneja un detalle de las ubicaciones laborales activas de nuestros agremiados pues a éstos se les autoriza su ejercicio profesional a nivel nacional sin restricción por área de trabajo; así mismo se aclara que bajo el principio de imparcialidad, esta Fiscalía no emite ternas en favor de partes procesales, y solo se emiten a solicitud de autoridad judicial competente.
+San José, 2 de diciembre de 2021.
