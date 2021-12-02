@@ -5,7 +5,8 @@ Los Términos de Referencia se formulan para el desarrollo de las siguientes eta
 Segunda etapa: Diagnóstico territorial
 Tercera etapa: Formulación de la propuesta
 Cuarta etapa: Asesoría, revisión y adopción de un Plan Regulador nuevo
-Además, implican el abordaje de los ejes físico espacial, social, económico, político institucional, jurídico, así como el eje ambiental. Entendiendo que el eje ambiental se refiere al desarrollo de la variable ambiental, por lo que supone la generación, análisis e integración de los productos solicitados por la SETENA y por el SENARA en el Plan Regulador y los Reglamentos de Desarrollo Urbano.
+Además, implican el abordaje de los ejes físico espacial, social, económico, político institucional, jurídico, así como el eje ambiental. Entendiendo que el eje ambiental se refiere al desarrollo de la variable ambiental, por lo que supone la generación, análisis e integración de los productos solicitados por la SETENA en el Plan Regulador y los Reglamentos de Desarrollo Urbano.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 Los Términos de Referencia deben contemplar lo dispuesto en la Ley de Planificación Urbana. Además, es recomendable que los Términos de Referencia incluyan al menos lo indicado seguidamente:
 Objetivos de la contratación
 Conformación del Equipo Planificador de acuerdo a la dimensión y complejidad del Área de Planificación delimitada preliminarmente

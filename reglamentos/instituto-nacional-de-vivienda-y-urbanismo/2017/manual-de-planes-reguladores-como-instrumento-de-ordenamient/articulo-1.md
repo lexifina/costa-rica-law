@@ -1,4 +1,5 @@
-[imagen]
+Manual de planes reguladores como instrumento de ordenamiento territorial
+[imagen] |
 Tabla de contenidos
 INTRODUCCIÓN
 CAPÍTULO 1. ASPECTOS GENERALES
@@ -42,17 +43,18 @@ Anexo 8: Matriz de Seguimiento del Plan Regulador ..............................
 INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
 MANUAL DE PLANES REGULADORES
 COMO INSTRUMENTO DE ORDENAMIENTO TERRITORIAL
-La Junta Directiva del Instituto Nacional de Vivienda y Urbanismo, en uso de las facultades que le confiere el Artículo 5, inciso f) de la Ley Orgánica del Instituto Nacional de Vivienda y Urbanismo Nº1788 del 24 de agosto de 1954, así como el Artículo 7, inciso 3) de la Ley de Planificación Urbana Nº4240 del 15 de noviembre de 1968, acuerda en Sesión Ordinaria Nº 6296, Artículo II, inciso 1) del 14 de diciembre del año 2017 derogar el “Manual de procedimientos para la elaboración y redacción de Planes Reguladores”, oficializado en La Gaceta N°58 del 22 de marzo del 2007 y aprobar el “Manual de Planes Reguladores como instrumento de ordenamiento territorial”, que textualmente dice lo siguiente:
+La Junta Directiva del Instituto Nacional de Vivienda y Urbanismo, en uso de las facultades que le confiere el Artículo 5, inciso f) de la Ley Orgánica del Instituto Nacional de Vivienda y Urbanismo Nº1788 del 24 de agosto de 1954, así como el Artículo 7, inciso 3) de la Ley de Planificación Urbana Nº4240 del 15 de noviembre de 1968, acuerda en Sesión Ordinaria Nº 6296, Artículo II, inciso 1) del 14 de diciembre del año 2017 derogar el "Manual de procedimientos para la elaboración y redacción de Planes Reguladores", oficializado en La Gaceta N°58 del 22 de marzo del 2007 y aprobar el "Manual de Planes Reguladores como instrumento de ordenamiento territorial", que textualmente dice lo siguiente:
 INTRODUCCIÓN
-El “Manual de Planes Reguladores como instrumento de ordenamiento territorial” orienta sobre los procedimientos para la elaboración y gestión de Planes Reguladores, que actúen como instrumentos clave para el ordenamiento territorial en Costa Rica. Asimismo, se señalan una serie de conceptos, fundamentados en el ordenamiento jurídico vigente, cuya comprensión es necesaria para la implementación del presente Manual.
-El Manual consiste en una actualización del “Manual de procedimientos para la elaboración y redacción de Planes Reguladores”, oficializado en La Gaceta N°58 del 22 de marzo del 2007 por el Instituto Nacional de Vivienda y Urbanismo (INVU). Por lo tanto, se basa en el planteamiento contenido en dicho documento e incorpora las modificaciones necesarias para responder adecuadamente a las transformaciones conceptuales, normativas, procedimentales, entre otras, que en materia de planificación urbana y ordenamiento territorial se han experimentado en el país. Además, indica los lineamientos de acatamiento obligatorio establecidos en la Ley de Planificación Urbana N°4240 y demás normativa vigente en la materia, así como aquellos de carácter orientador.
+El "Manual de Planes Reguladores como instrumento de ordenamiento territorial" orienta sobre los procedimientos para la elaboración y gestión de Planes Reguladores, que actúen como instrumentos clave para el ordenamiento territorial en Costa Rica. Asimismo, se señalan una serie de conceptos, fundamentados en el ordenamiento jurídico vigente, cuya comprensión es necesaria para la implementación del presente Manual.
+El Manual consiste en una actualización del "Manual de procedimientos para la elaboración y redacción de Planes Reguladores", oficializado en La Gaceta N°58 del 22 de marzo del 2007 por el Instituto Nacional de Vivienda y Urbanismo (INVU). Por lo tanto, se basa en el planteamiento contenido en dicho documento e incorpora las modificaciones necesarias para responder adecuadamente a las transformaciones conceptuales, normativas, procedimentales, entre otras, que en materia de planificación urbana y ordenamiento territorial se han experimentado en el país. Además, indica los lineamientos de acatamiento obligatorio establecidos en la Ley de Planificación Urbana N°4240 y demás normativa vigente en la materia, así como aquellos de carácter orientador.
 Entre los antecedentes que impulsaron el desarrollo del presente Manual se encuentran los indicados a continuación:
 Informe N°DFOE-AE-IF-12-2014, Disposición 4.3, de la Contraloría General de la República (CGR)
-Indica a las Instituciones con competencias en materia de ordenamiento territorial lo siguiente: “Restructurar, de conformidad con el marco legal, el proceso de elaboración y aprobación de los Planes Reguladores, así como sus procedimientos y requisitos, de acuerdo con las competencias de cada institución. Lo anterior, con criterios de eficacia, eficiencia, integralidad en el ordenamiento territorial y la planificación del territorio, simplificación en los trámites, participación social (…)”
+Indica a las Instituciones con competencias en materia de ordenamiento territorial lo siguiente: "Restructurar, de conformidad con el marco legal, el proceso de elaboración y aprobación de los Planes Reguladores, así como sus procedimientos y requisitos, de acuerdo con las competencias de cada institución. Lo anterior, con criterios de eficacia, eficiencia, integralidad en el ordenamiento territorial y la planificación del territorio, simplificación en los trámites, participación social (.)"
 Decreto Ejecutivo N° 39150-MINAE-MAG-MIVAH-PLAN-TUR, Artículo 32
 Plantea la necesidad de que haya uniformidad en los Manuales para la elaboración de Planes Reguladores, incluyendo lineamientos de carácter técnico que garanticen un adecuado ordenamiento territorial cantonal y su concordancia con las políticas de desarrollo nacionales.
 Promulgación de normativa y votos de la Sala Constitucional en materia ambiental
-Indican las respectivas competencias de la Secretaría Técnica Nacional Ambiental (SETENA) y el Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA) en materia ambiental, con relación a los Planes Reguladores.
+Indican las respectivas competencias de la Secretaría Técnica Nacional Ambiental (SETENA) en materia ambiental, con relación a los Planes Reguladores.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 En atención a los antecedentes señalados y con el objetivo general de actualizar el Manual vigente a la fecha, el INVU conforma una comisión interna encargada de desarrollar dicha tarea, coordinando con las demás instituciones con competencias en la materia. Mediante la actualización señalada se busca alcanzar los siguientes objetivos específicos:
 1. Fortalecer la participación activa, consciente y democrática de diversos actores sociales en la elaboración y gestión de los Planes Reguladores, con el fin de fomentar su incorporación en los procesos de toma de decisiones, ejecución de acciones y rendición de cuentas con relación al territorio.
 2. Actualizar el marco conceptual y legal del Manual vigente, con el fin de fomentar la elaboración de Planes Reguladores efectivos que respondan adecuadamente a su contexto e impulsen el desarrollo sostenible, así como una óptima utilización del suelo en beneficio del interés común.
@@ -64,15 +66,15 @@ En atención a los antecedentes señalados y con el objetivo general de actualiz
 El documento actualizado se compone de cinco capítulos. En el Primer Capítulo: Aspectos Generales se indican elementos tales como el objetivo estratégico, el ámbito de aplicación y el alcance del Manual; así como las definiciones y acrónimos necesarias para efectos de interpretación y aplicación del mismo.
 En el Segundo Capítulo: Marco Jurídico se hace referencia a las normas marco o generales, así como a algunas normas específicas que regulan la materia de planificación urbana y ordenamiento territorial en el país.
 En el Tercer Capítulo: Marco Conceptual se señalan una serie de conceptos vinculados al tema de planificación urbana y ordenamiento territorial, cuya comprensión es fundamental para la implementación del presente Manual.
-En el Cuarto Capítulo: Fase de Elaboración del Plan Regulador se detalla el procedimiento para elaborar un Plan Regulador ; incluyendo las principales actividades, insumos y productos que conforman las etapas denominadas “Preparación preliminar”, “Diagnóstico Territorial”, “Formulación de la propuesta”, así como “Asesoría, revisión y adopción de un Plan Regulador nuevo”.
-En el Quinto Capítulo: Fase de Gestión del Plan Regulador se detalla el procedimiento para gestionar un Plan Regulador ; incluyendo las principales actividades, insumos y productos que conforman las etapas denominadas “Implementación, seguimiento y evaluación”, “Modificación, suspensión y derogación”, así como “Asesoría, revisión y adopción de la modificación, suspensión y derogación de un Plan Regulador ”.
-Por último, en los Anexos se incluyen una serie de instrumentos cuya aplicación es complementaria al Manual, entre los que se encuentran los siguientes: “Contenidos de los Términos de Referencia”, “Perfil del Equipo Planificador”, “Requisitos documentales para revisión”, “Especificaciones del Atlas Cartográfico”, “Coberturas cartográficas del Mapa Base”, “Zonas de Uso del Suelo” y “Matriz de Seguimiento del Plan Regulador ”.
+En el Cuarto Capítulo: Fase de Elaboración del Plan Regulador se detalla el procedimiento para elaborar un Plan Regulador ; incluyendo las principales actividades, insumos y productos que conforman las etapas denominadas "Preparación preliminar", "Diagnóstico Territorial", "Formulación de la propuesta", así como "Asesoría, revisión y adopción de un Plan Regulador nuevo".
+En el Quinto Capítulo: Fase de Gestión del Plan Regulador se detalla el procedimiento para gestionar un Plan Regulador ; incluyendo las principales actividades, insumos y productos que conforman las etapas denominadas "Implementación, seguimiento y evaluación", "Modificación, suspensión y derogación", así como "Asesoría, revisión y adopción de la modificación, suspensión y derogación de un Plan Regulador ".
+Por último, en los Anexos se incluyen una serie de instrumentos cuya aplicación es complementaria al Manual, entre los que se encuentran los siguientes: "Contenidos de los Términos de Referencia", "Perfil del Equipo Planificador", "Requisitos documentales para revisión", "Especificaciones del Atlas Cartográfico", "Coberturas cartográficas del Mapa Base", "Zonas de Uso del Suelo" y "Matriz de Seguimiento del Plan Regulador ".
 CAPÍTULO I
 ASPECTOS GENERALES
 1.1. OBJETIVO DEL MANUAL
 Promover la planificación y gestión urbana en el país, facilitando a los gobiernos municipales y otros actores sociales un instrumento orientador sobre los conceptos y procedimientos para la elaboración y gestión de Planes Reguladores eficientes, eficaces e integrales, que actúen como instrumentos de ordenamiento territorial.
 1.2. ÁMBITO DE APLICACIÓN
-La aplicación del Manual es facultativa en aquellos cantones cuyos gobiernos municipales cuenten o no con Plan Regulador , total o parcial vigente1. Las áreas comprendidas por la Zona Marítimo Terrestre se regulan por el “Manual para la Elaboración de Planes Reguladores Costeros en la Zona Marítimo Terrestre”.2
+La aplicación del Manual es facultativa en aquellos cantones cuyos gobiernos municipales cuenten o no con Plan Regulador , total o parcial vigente1. Las áreas comprendidas por la Zona Marítimo Terrestre se regulan por el "Manual para la Elaboración de Planes Reguladores Costeros en la Zona Marítimo Terrestre".2
 1 Artículo 169 de la Constitución Política y Artículos 15 y 17 de la Ley de Planificación Urbana N°4240
 2 Publicado en La Gaceta 296 del 8 de noviembre de 2017
 1.3. DEFINICIONES
@@ -80,37 +82,43 @@ Para los efectos de interpretación y aplicación del presente Manual se incluye
 1) Área Bajo Régimen Especial: Porción del territorio sujeta a algún régimen particular de planificación y administración, incluido el Patrimonio Natural del Estado, las Áreas Silvestres Protegidas, los Territorios Indígenas, las Zonas Fronterizas, la Zona Marítimo Terrestre, los territorios del Instituto Nacional de Desarrollo Rural susceptibles a ser titulados, entre otros.
 2) Actores sociales: Actores vinculados a un territorio, tales como actores institucionales, gobiernos municipales, sociedad civil, organismos no gubernamentales, agrupaciones o colectivos que aglutinen diversos intereses, ya sean económicos, sociales, culturales, religiosos, políticos, ambientales, etarios, étnicos, corporativos, empresariales, gremiales, entre otros.
 3) Actores institucionales: Actores pertenecientes al sector público, incluyendo instituciones públicas, autónomas y semiautónomas.
-4) Altura: Distancia vertical medida desde el mínimo rasante del terreno en contacto con la edificación hasta la viga corona del último nivel, excluyendo los sótanos; se clasifica en altura máxima y mínima.
-5) Amanzanamiento: Tamaño y forma de las manzanas o bloque de lotes.
+4. Altura de edificación: Distancia vertical medida desde el nivel mínimo del terreno en contacto con la edificación, hasta la viga corona del último nivel. No se consideran los sótanos ni semisótanos como parte de dicho cálculo."5) Amanzanamiento: Tamaño y forma de las manzanas o bloque de lotes.
+(Así reformada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 6) Área de piso: Área de construcción correspondiente a la suma total de las áreas de los diversos pisos que constituyen una edificación, excluyendo azoteas, balcones abiertos y pórticos.
 7) Área de Planificación: Territorio sujeto a planificación mediante un Plan Regulador .
 8) Área de Protección: Porción de terreno que presenta restricciones de uso debido a aspectos técnicos o jurídicos, en la medida de que sirve para proteger un recurso natural dado.
 9) Área rural: Porción del territorio destinado a usos distintos al urbano, abocados en mayor proporción al uso agrícola, ganadero, forestal, agroecológico u otras actividades semejantes.
-10) Área urbana: Ámbito territorial de desenvolvimiento de un centro de población que, partiendo de su centro, presenta continuidad en el tejido urbano en todas direcciones, hasta su evidente ruptura por terrenos de uso no urbano.
+10. Área urbana: El ámbito territorial de desenvolvimiento de un centro de población. Incluye el cuadrante urbano o cualquier otro sistema de ciudad desarrollado radial o poligonalmente. Puede estar ubicado dentro o fuera del Gran Área Metropolitana.
+(Así reformada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 11) Atlas cartográfico: Documento que forma parte del Plan Regulador que incluye un conjunto de mapas georreferenciados con proyección CRTM-05 o proyección vigente.
 12) Audiencia Pública: Acto político, administrativo y legal establecido en el artículo 17 de la Ley de Planificación Urbana N°4240 mediante el cual el gobierno municipal lleva a consulta pública un Plan Regulador .
 13) Cantón: Jurisdicción territorial de la municipalidad, cuya cabecera es la sede del gobierno municipal.
 14) Circulación: Tránsito o desplazamiento de vehículos, personas, mercancías, carga o semovientes sobre las vías públicas.
-15) Cobertura: Proyección horizontal de una estructura o el área de terreno cubierta por tal. Comprende todo lo que está construido sobre la superficie del suelo y constituye la huella constructiva de cualquier edificación.
+15. Cobertura: Es la proyección horizontal de una estructura o el área de un terreno cubierta por tal estructura.
+(Así reformada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 16) Cobertura cartográfica: Modelo de datos digital compuesto por elementos cartográficos georreferenciados espacialmente en el territorio y con atributos que describen su identidad geográfica.
 17) Comisión de Plan Regulador: Órgano especializado de planificación local designado o creado por la municipalidad, encargado de participar en las Fases de Elaboración y Gestión del Plan Regulador , así como brindar acompañamiento al Equipo Planificador en el desempeño de sus labores. Puede estar conformado por una dependencia de la municipalidad, una oficina municipal creada para dicho fin o una comisión o junta.
 18) Construcción: Toda estructura que se fije o se incorpore a un terreno; incluye cualquier obra de edificación, reconstrucción, alteración o ampliación que implique permanencia.
 19) Costarrican Transversal Mercator 2005: Sistema de coordenadas geográficas oficial para Costa Rica.
-20) Cuadrante Urbano: Distribución del espacio en forma de cuadrícula en donde se encuentra la mayoría de bienes y servicios, la estructura vial y su área de influencia inmediata.
-21) Densidad: Número de habitantes por hectárea en una superficie destinada a uso residencial.
+20. Cuadrante Urbano: Es el área urbana o ámbito territorial de desenvolvimiento de un centro de población, en donde se encuentra la mayoría de bienes y servicios, la estructura vial y su área de influencia inmediata; los cuadrantes urbanos se encuentran ubicados dentro de los distritos urbanos. Para efectos de la aplicación del Artículo 40 de la Ley de Planificación Urbana, se considera cuadrante de la ciudad al cuadrante urbano.
+(Así reformada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
+21. Densidad: Relación entre número de habitantes por hectárea en una superficie destinada a uso residencial.
+(Así reformada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 22) Desarrollo sostenible: Modelo de desarrollo territorial basado en el equilibrio entre las dimensiones económica, social y ambiental, que plantea alternativas que satisfagan las necesidades de la generación presente, sin comprometer la capacidad de las generaciones futuras para satisfacer sus propias necesidades.
 23) Elemento cartográfico: Componente vectorial que compone una cobertura cartográfica, incluye puntos, líneas, polígonos, entre otros.
 24) Equipo Planificador: Equipo multidisciplinario designado o contratado por la municipalidad, encargado del desarrollo de ciertas actividades de la Fases de Elaboración o la Fase de Gestión del Plan Regulador , según corresponda.
 25) Escala: Relación de proporción entre las medidas reales de un territorio y las representadas en un mapa.
 26) Escenario: Modelo de desarrollo urbano futuro que es posible alcanzar en el Área de Planificación, tras la ejecución de diversas acciones estratégicas.
-27) Facilidades comunales: Instalaciones, áreas o servicios comunales destinados al uso público necesarios para el bienestar de los habitantes de un territorio, cuyos fines son educativos, de salud, culto, recreación, beneficencia y similares. También son conocidos como “servicios comunales”.
+27) Facilidades comunales: Instalaciones, áreas o servicios comunales destinados al uso público necesarios para el bienestar de los habitantes de un territorio, cuyos fines son educativos, de salud, culto, recreación, beneficencia y similares. También son conocidos como "servicios comunales".
 28) Fraccionamiento: División de cualquier predio con el fin de vender, traspasar, negociar, repartir, explotar o utilizar en forma separada, las parcelas resultantes; incluye tanto particiones de adjudicación judicial o extrajudicial, localizaciones de derechos indivisos y meras segregaciones en cabeza del mismo dueño, como los situados en urbanizaciones o construcciones nuevas que interesan al control de la formación y uso urbano de los bienes inmuebles.
 29) Geoespacial: Información de tipo alfanumérica almacenada por medio de bases de datos y que adicionalmente cada componente está asociado a una ubicación geográfica por medio de coordenadas y un sistema de proyección.
 30) Georreferenciar: Consiste en la asignación de coordenadas geográficas en un sistema de proyección a una imagen, mediante la utilización de puntos de control cuyas coordenadas se conocen tanto en la imagen como en la cartografía y que sirve de referencia para realizar la ubicación espacial en algún punto sobre la superficie de la Tierra.
 31) Geoservicio: Medio o interfaz para visualizar, editar, descargar y crear bases de datos geoespaciales utilizando un sistema abierto en una plataforma virtual en la web.
 32) Gestión del suelo: Conjunto de intervenciones que promueve el gobierno municipal mediante instrumentos de gestión del suelo, dirigidos a optimizar y potencializar el aprovechamiento y la utilización del suelo urbano en beneficio del interés común, de acuerdo con las iniciativas del municipio y las políticas de desarrollo de nivel nacional, regional y local. Se lleva a cabo a través de instrumentos de gestión de suelo, los cuales son mecanismos legales, técnicos, administrativos y financieros, tales como prácticas incentivables, concesión de potencial edificable por inversión en espacio público, reajuste de terrenos, constitución de sociedades públicas de economía mixta para la renovación urbana, contribuciones especiales, entre otros.
-33) Gobierno municipal: Ente encargado del gobierno y administración de los intereses y servicios cantonales, compuesto por un cuerpo deliberativo denominado Concejo e integrado por los regidores que determine la Ley, además, por un alcalde y su respectivo suplente, todos de elección popular.
-34) Lote: Terreno de uso público o privado, deslindado de las propiedades vecinas con acceso a uno o vías.
+33. Gobierno municipal: Cuerpo deliberativo denominado Concejo e integrado por las regidurías que determine la ley, además, por un alcalde y su respectivo suplente, todos de elección popular.
+(Así reformada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
+34. Lote: Parte en que se divide un todo para su distribución.
+(Así reformada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 35) Mapa Base: Representación cartográfica del Área de Planificación que incluye información básica sobre los elementos existentes en el territorio, los límites geográficos y político-administrativos y las coordenadas geográficas correspondientes, utilizando el sistema CRTM-05 o proyección vigente.
 36) Mapa de Capacidad de Uso de la Tierra: Representación cartográfica en la cual se clasifica el Área de Planificación en áreas homogéneas según las condiciones físicas de los suelos, considerando aspectos tales como geología, geomorfología, amenazas, hidrología, biología y cambio climático, con el fin de determinar la capacidad de soporte del suelo para el desarrollo de actividades.
 37) Mapa de Modalidad de Uso de la Tierra: Representación cartográfica en la cual se clasifica el Área de Planificación en las categorías de uso conforme o adecuado, subuso y sobreuso del suelo, con el fin de identificar donde existen conflictos de uso o bien uso correcto del suelo con relación a las actividades existentes.
@@ -131,22 +139,40 @@ Para los efectos de interpretación y aplicación del presente Manual se incluye
 52) Planificación urbana: Proceso continuo e integral de análisis y formulación de planes y reglamentos sobre desarrollo urbano, tendiente a procurar la seguridad, salud, comodidad y bienestar de la comunidad.
 53) Plan Regulador de Ordenamiento Territorial Regional: Instrumento mediante el cual se aborda la planificación y administración de un territorio de nivel regional.
 54) Plan Nacional de Desarrollo Urbano: Conjunto de mapas, gráficos y documentos, que describen la política general de distribución demográfica y usos del suelo, fomento de la producción, prioridades de desarrollo físico, urbano-regional y coordinación de las inversiones públicas de interés nacional.
-55) Plan Regulador: Instrumento de planificación y gestión de nivel local, en el que se define en un conjunto de planos, mapas, reglamentos y cualquier otro documento, gráfico o suplemento, la política de desarrollo urbano y los planes de distribución de la población, usos del suelo, vías de circulación, servicios públicos, facilidades comunales, construcción, renovación urbana, entre otros.
+55. Plan Regulador: Es el instrumento de planificación local que define en un conjunto de planos, mapas, reglamentos y cualquier otro documento gráfico o suplemento, la política de desarrollo y planes para distribución de la población, usos de la tierra, vías de circulación, servicios públicos, facilidades comunales y construcción, conservación y rehabilitación de áreas urbanas.
+(Así reformada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 56) Planificación en cascada: Enfoque que integra todos los niveles de planificación, a través de la articulación y complementariedad de los instrumentos de planificación territorial.
 57) Política de Desarrollo Urbano: Línea de acción que adopta el gobierno municipal como orientación para el desarrollo urbano en el Área de Planificación; incluye los principios y normas en que se fundamenta, así como objetivos de desarrollo que respondan a la problemática identificada.
 58) Reglamentos de Desarrollo Urbano: Cuerpos de normas que adoptan los gobiernos municipales, con el fin de hacer efectivo el Plan Regulador. Los principales Reglamentos de Desarrollo Urbano son Zonificación, Fraccionamiento y Urbanización, Mapa Oficial, Renovación Urbana y Construcciones. Adicionalmente se pueden adoptar otros que aborden temas tales como vialidad, movilidad, espacio público, paisaje, imagen urbana, forma urbana, instrumentos de gestión de suelo, entre otros.
 59) Renovación Urbana: Proceso de mejoramiento dirigido a erradicar las zonas de tugurios y rehabilitar las áreas urbanas en decadencia o en estado defectuoso y la conservación de áreas urbanas y la prevención de su deterioro.
 60) Retiro: Espacio abierto no edificado comprendido entre una edificación y los linderos del respectivo lote; se clasifica en retiro frontal, lateral y posterior.
-61) Servicios comunales: Instalaciones, áreas o servicios comunales destinadas al uso público necesarios para el bienestar de los habitantes de un territorio, cuyos fines son educativos, de salud, culto, recreación, beneficencia y similares. También son conocidos como “facilidades comunales”.
-62) Servicios públicos: Instalaciones indispensables para el desarrollo y funcionamiento normal de la comunidad y que atiende a las necesidades colectivas de higiene, comunicación comodidad y seguridad. Incluye red eléctrica, gas, agua potable, telecomunicaciones, transporte, residuos sólidos, alcantarillado sanitario, alcantarillado pluvial, entre otros.
+61) Servicios comunales: Instalaciones, áreas o servicios comunales destinadas al uso público necesarios para el bienestar de los habitantes de un territorio, cuyos fines son educativos, de salud, culto, recreación, beneficencia y similares. También son conocidos como "facilidades comunales".
+62. Servicios públicos: Son aquellos servicios que permiten resolver las necesidades de la población, como alumbrado, agua potable, limpieza, salud, teléfono y transporte, administrados por el Estado o por empresas privadas.
+(Así reformada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 63) Sistema de información geográfica: Interfaz digital en la cual se integra información geográfica, que posibilita al usuario crear, examinar, estudiar, editar, desplegar coberturas cartográficas georreferenciadas en representación vectorial o raster.
 64) Territorio: Sistema conformado por una compleja red en la que se interrelacionan en un mismo espacio físico, ya sea continental o marino, diversas unidades, elementos y procesos territoriales de índole físico espacial, social, económico, político, ambiental, jurídico, entre otros.
-65) Urbanización: Fraccionamiento o habilitación de un terreno para fines urbanos, mediante apertura de calles y provisión de servicios adecuados.
-66) Uso del suelo: Utilización del suelo en una zona, lote o edificación, considerando aspectos tales como clase, forma o intensidad de su aprovechamiento, entre otros.
-67) Variable Ambiental: Generación, análisis e integración de los productos solicitados por la Secretaría Técnica Nacional Ambiental y por el Servicio Nacional de Riesgo y Avenamiento en el Plan Regulador.
-68) Ventanilla Única: Dependencia de la Dirección de Urbanismo del INVU encargada de la recepción de Planes Reguladores.
-69) Vialidad: Conjunto de vías o espacios geográficos destinados a la circulación o desplazamiento de vehículos y peatones.
-70) Zonificación: División de una circunscripción territorial en zona de uso, para efecto de su desarrollo racional.
+65. Urbanización: Es el fraccionamiento y habilitación de un terreno para fines urbanos, mediante apertura de calles y provisión de servicios.
+(Así reformada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
+66) Uso condicional: Corresponde a aquel uso sujeto a autorizaciones expresas, no solo de la municipalidad respectiva, sino de otras instancias, según facultades brindadas por leyes o reglamentos.
+(Así adicionada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
+67) Uso conforme: Es todo aquel uso listado como permitido, asociado a las zonas definidas en el Plan Regulador.
+(Así adicionada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
+68. Uso del suelo: Es la utilización de un terreno, de la estructura física asentada o incorporada a él, o de ambos casos, en cuanto a clase, forma o intensidad de su aprovechamiento.
+(Así modificada la numeración del punto anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021 que lo traspasó del antiguo inciso 66 al 68.)
+(Así reformada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
+69) Uso no conforme: Es todo aquel que no se encuentre listado como permitido ni condicional y que, sin embargo, existía de hecho previo a la entrada en vigencia del Plan Regulador.
+(Así adicionada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
+70) Uso prohibido: Corresponde a aquel que no puede constituirse como "no conforme" ni como "condicional", por lo que no es admitida su implementación.
+(Así adicionada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
+71. Variable Ambiental: Generación, análisis e integración de los productos solicitados por la Secretaría Técnica Nacional Ambiental en el Plan Regulador.
+(Así modificada la numeración del punto anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021 que lo traspasó del antiguo inciso 67 al 71)
+(Así reformada la definición anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
+72) Ventanilla Única: Dependencia de la Dirección de Urbanismo del INVU encargada de la recepción de Planes Reguladores.
+(Así modificada la numeración del punto anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021 que lo traspasó del antiguo inciso 68 al 72)
+73) Vialidad: Conjunto de vías o espacios geográficos destinados a la circulación o desplazamiento de vehículos y peatones.
+(Así modificada la numeración del punto anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021 que lo traspasó del antiguo inciso 69 al 73)
+74) Zonificación: División de una circunscripción territorial en zona de uso, para efecto de su desarrollo racional.
+(Así modificada la numeración del punto anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021 que lo traspasó del antiguo inciso 70 al 74)
 1.4. ACRÓNIMOS
 Para los efectos de interpretación y aplicación del presente Manual se incluyen los acrónimos indicados a continuación:
 1) ABRE: Áreas Bajo Régimen Especial
@@ -172,7 +198,7 @@ Para los efectos de interpretación y aplicación del presente Manual se incluye
 21) PNE: Patrimonio Natural del Estado
 22) PSA: Pagos por Servicios Ambientales
 23) SETENA: Secretaría Técnica Nacional Ambiental
-24) SENARA: Servicio Nacional de Riego y Avenamiento
+24) (Derogada mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 25) SIG: Sistema de Información geográfica
 26) SNIT: Sistema Nacional de Información Territorial
 CAPÍTULO II
@@ -192,7 +218,7 @@ La Ley Orgánica del Ambiente, N°7554 de 1995, introduce en la legislación nac
 Además, dentro del marco jurídico se considera la siguiente normativa:
 · Código Municipal, N°7794 de 30 de abril de 1998
 · Ley de Catastro Nacional, N°6545 de 25 de marzo de 1981 y su Reglamento, Decreto Ejecutivo N°34331 del 27 de setiembre del 2008
-· Ley de Creación de SENARA, N°6877 de18 de junio de 1983
+· Ley de Creación de SENARA (Derogado este punto mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 · Ley de Uso, Manejo y Conservación de Suelos, N°7779 de 30 de abril de 1998 y su Reglamento, Decreto Ejecutivo N°29375-MAG-MINAE-S-HACIENDA-MOPT del 21 de marzo del 2001
 · Ley de Biodiversidad, N°7788 de 30 de abril de 1998
 · Ley Forestal, N°7575 de 13 de febrero de 1996 y su Reglamento, Decreto Ejecutivo N°25721 del 23 de enero del 1997
@@ -216,11 +242,13 @@ Además, dentro del marco jurídico se considera la siguiente normativa:
 · Manual de Instrumentos Técnicos para el Proceso de Evaluación del Impacto Ambiental (Manual de EIA)-Parte III, Decreto Ejecutivo N°32967-MINAE de 04 de mayo del 2006
 · Política Nacional de Ordenamiento Territorial 2012-2040, Decreto Ejecutivo N°37623-PLAN-MINAET-MIVAH de 10 de mayo del 2013
 · Creación del Sistema Nacional de Información Territorial, Decreto Ejecutivo N°37773-JP-H-MINAE-MICITT de 12 de julio del 2013
-· Metodología General para la Elaboración de los Estudios Hidrogeológicos para los Planes Reguladores, Acuerdo N°4975 de SENARA
+· Metodología General para la Elaboración de los Estudios Hidrogeológicos para los Planes Reguladores (Derogado este punto mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 · Metodología Determinación Capacidad Uso de Tierras en Costa Rica, Decreto Ejecutivo N°23214-MAG-MIRENEM de 05 de setiembre de 2007
 · Reglamento sobre Clasificación Funcional de Caminos Públicos, Decreto Ejecutivo N°13041-T de 21 de octubre de 1981
 · Declara inalienables las montañas en que tienen su origen las aguas que abastecen a Heredia y Alajuela, Decreto N°LXV de 30 de julio de 1888
 · Guía de requisitos para la presentación de planos y documentos ante la ventanilla única de la Dirección de Urbanismo, publicada en La Gaceta N°156 del 16 de agosto del 2002
+· Reglamento de Coordinación Interinstitucional para la Protección de los Recursos Hídricos Subterráneos, Decreto Ejecutivo N°42015- MAG-MINAE-S-MIVAH del 25 de octubre de 2019
+(Así adicionada la definición anterior sesión ordinaria N°6520 del 02 de diciembre de 2021)
 CAPÍTULO III
 MARCO CONCEPTUAL
 En el presente capítulo se aborda el marco conceptual sobre planificación urbana y ordenamiento territorial, el cual se fundamenta en el marco jurídico que integra dicha materia, presentado en el capítulo anterior. Se señala una serie de conceptos cuya comprensión es fundamental para la implementación del Manual.
@@ -230,9 +258,9 @@ Alrededor del mundo, las áreas urbanas se encuentran en un proceso de crecimien
 3 Instituto Nacional de Estadística y Censos. (2011). X Censo Nacional de Población y VI de Vivienda: Resultados Generales. Costa Rica: INEC
 Las áreas urbanas proveen oportunidades para la innovación en el abordaje de los complejos retos que implica la transformación sostenible del territorio. En gran medida, el desarrollo sostenible del territorio costarricense depende de la capacidad de los gobiernos municipales para planificar y administrar sus áreas urbanas, adaptándose a los retos que plantea el contexto actual. La planificación y gobernanza son centrales para alcanzar metas de sostenibilidad, descarbonización, resiliencia, prosperidad, entre otras.
 El Artículo 1 de la Ley de Planificación Urbana define el concepto de planificación urbana como:
-“(…) el proceso continuo e integral de análisis y formulación de planes y reglamentos sobre
-desarrollo urbano, tendiente a procurar la seguridad, salud, comodidad y bienestar de la comunidad.”
-Al respecto, la Procuraduría General de la República (PGR) indica4 que la planificación urbana: “(…) Constituye una función pública de primer nivel a cargo (…) de las municipalidades, el Estado y el INVU” (…) Constituye una herramienta de suma importancia para la toma de decisiones fundamentales a corto, mediano o largo plazo, por parte de la Administración Pública (…) definiendo los grandes objetivos, metas y fines por alcanzar, así como los métodos para lograrlos eficientemente.”
+"(.) el proceso continuo e integral de análisis y formulación de planes y reglamentos sobre
+desarrollo urbano, tendiente a procurar la seguridad, salud, comodidad y bienestar de la comunidad."
+Al respecto, la Procuraduría General de la República (PGR) indica4 que la planificación urbana: "(.) Constituye una función pública de primer nivel a cargo (.) de las municipalidades, el Estado y el INVU" (.) Constituye una herramienta de suma importancia para la toma de decisiones fundamentales a corto, mediano o largo plazo, por parte de la Administración Pública (.) definiendo los grandes objetivos, metas y fines por alcanzar, así como los métodos para lograrlos eficientemente."
 4 Dictamen C-001-2004 del 5 de enero del 2004, Apartado III de la PGR
 A través de la planificación urbana se acuerdan las acciones que se llevarán a cabo en un área urbana como parte de un territorio, para orientar su transformación sostenible, hacia el cumplimiento de los objetivos y metas propuestos conjuntamente con el municipio.
 En los procesos de planificación urbana es indispensable considerar lo siguiente:
@@ -254,7 +282,7 @@ Equilibrar el desarrollo sostenible de las diferentes zonas del país
 Promover la participación ciudadana en la planificación de los territorios
 Dicha Ley indica en su Artículo 31 que, para alcanzar el cumplimiento de los fines señalados se debe promover el desarrollo y reordenamiento de las ciudades, mediante el uso intensivo del espacio urbano. Lo anterior destaca el papel de la planificación urbana como un componente central en el ordenamiento territorial.
 3.3. EL TERRITORIO DE COSTA RICA
-El territorio costarricense se clasifica en continental y marino. Para efectos del presente Manual, el término “territorio” se refiere únicamente al territorio continental, excluyendo el territorio marino.
+El territorio costarricense se clasifica en continental y marino. Para efectos del presente Manual, el término "territorio" se refiere únicamente al territorio continental, excluyendo el territorio marino.
 En Costa Rica el territorio se ordena en tres niveles7, según la dimensión del espacio geográfico abarcado. Dicha clasificación incluye los niveles nacional, regional y local.
 7 Artículo 2 del Reglamento General del Sistema Nacional de Planificación Decreto ejecutivo Nº37735-PLAN y Ley de Planificación Urbana N°4240
 Nivel nacional
@@ -263,8 +291,8 @@ Nivel regional
 Corresponde a las áreas equivalentes a una región8
 8 Según la regionalización oficial de MIDEPLAN
 Nivel local
-Corresponde a áreas equivalentes o menores a un cantón, tales como distritos o localidades Asimismo, el territorio nacional9 se ordena en varias categorías para efectos de su planificación y gestión. Dichas categorías abarcan la totalidad del territorio nacional y se conforman por diversas
-unidades territoriales de índole político administrativo y geográfico.
+Asimismo, el territorio nacional se ordena en varias categorías para efectos de su planificación y gestión. Dichas categorías abarcan la totalidad del territorio nacional y se conforman por diversas unidades territoriales de índole político- administrativo y geográfico.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 Entre las categorías de planificación y gestión territorial existentes se encuentran las siguientes:
 3.3.1. División Territorial Administrativa
 Corresponde a la división de todo el territorio nacional en unidades político-administrativas, tales como provincias, cantones y distritos. Actualmente el territorio nacional se divide en 7 provincias, las cuales a su vez se dividen en 82 cantones y éstos en 483 distritos10.
@@ -288,8 +316,7 @@ Territorios del Instituto Nacional de Desarrollo Rural
 3.4. PLANIFICACIÓN Y GESTIÓN TERRITORIAL INTEGRAL EN COSTA RICA
 La planificación y gestión del territorio costarricense, se basa en el principio de integración, tanto entre los diferentes niveles territoriales, como entre las diferentes categorías y unidades que lo conforman.
 3.4.1. Planificación en cascada
-La integración entre los niveles territoriales nacional, regional y local se aborda mediante la
-planificación en cascada, es decir, mediante la gestión del territorio a través de diferentes planes jerarquizados según el nivel que abarcan. Cada plan aborda lo que le corresponde según su nivel, respetando las competencias de otros niveles. Por lo tanto, cada plan considera y responde a lo establecido en otros planes de nivel superior, acatando lo que le corresponda según la normativa vigente, ya que éstos brindan orientación sobre el abordaje del territorio desde una perspectiva de mayor amplitud. Así mismo, cada plan considera y responde a lo planteado en otros planes de nivel inferior, ya que estos ofrecen una perspectiva más detallada sobre un territorio particular.
+La integración entre los niveles territoriales nacional, regional y local se aborda mediante la planificación en cascada, es decir, mediante la gestión del territorio a través de diferentes planes jerarquizados según el nivel que abarcan. Cada plan aborda lo que le corresponde según su nivel, respetando las competencias de otros niveles. Por lo tanto, cada plan considera y responde a lo establecido en otros planes de nivel superior, acatando lo que le corresponda según la normativa vigente, ya que éstos brindan orientación sobre el abordaje del territorio desde una perspectiva de mayor amplitud. Así mismo, cada plan considera y responde a lo planteado en otros planes de nivel inferior, ya que estos ofrecen una perspectiva más detallada sobre un territorio particular.
 Por consiguiente, la planificación en cascada implica el intercambio multidireccional entre actores sociales de nivel nacional, regional y local.
 A continuación, se indican las principales competencias en materia de planificación urbana y ordenamiento territorial, así como los planes existentes para cada nivel:
 Nivel nacional15
@@ -299,9 +326,7 @@ Nivel regional16
 16 Artículo 2 de la Ley de Planificación Urbana N°4240 y Artículos 19 inciso h) y l), 58 y 59 del Reglamento General del Sistema Nacional de Planificación Decreto Ejecutivo N°37735-PLAN
 El INVU y MIDEPLAN son los encargados del cumplimiento de las funciones que requiere la planificación urbana en éste nivel, para lo cual deben implementar el Plan Regulador de Ordenamiento Territorial Regional. Dichos planes consideran en su planteamiento lo indicado en el PNDU y orientan la planificación a nivel local en el país.
 A nivel regional la SETENA tiene la responsabilidad de estudiar y avalar lo referente a la variable de impacto ambiental, velando por la planificación del desarrollo de actividades humanas potencialmente lesivas del medio ambiente, siendo la encargada de otorgar la Viabilidad Ambiental, por medio del procedimiento vigente para dicho fin.
-La competencia de SENARA17 en la materia, consiste en proteger el recurso hídrico. Por lo tanto, las decisiones en torno a la explotación, mantenimiento y protección del recurso hídrico que adopte de manera fundamentada esta institución, serán definitivas y de acatamiento obligatorio.
-17 Artículo 3 incisos 3 y h de la Ley de Creación de SENARA N°6877, Voto Constitucional 2004-1923, Voto Constitucional
-2008-2109, Voto Constitucional 2012-8892 y Voto Constitucional 2017-6340.
+(Derogado este párrafo mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 Nivel local18
 18 Artículo 169 de la Constitución Política y Artículos 15 y 19 de la Ley de Planificación Urbana
 El gobierno municipal19 es el encargado de planificar y controlar el desarrollo urbano dentro de los límites de su territorio jurisdiccional, para lo cual debe implantar un Plan Regulador y los Reglamentos de Desarrollo Urbano conexos.
@@ -310,7 +335,7 @@ El INVU20 es el ente encargado de asesorar a los gobiernos municipales en la mat
 20 Artículo 5 inciso a) de la Ley Orgánica del INVU N°1788; aArtículos 7, 10, 17, 61 y Transitorio II de la Ley de Planificación Urbana Nº4240, Voto Constitucional 1993-6706, Voto Constitucional 1996-4205, Voto Constitucional 1996-4205 y Voto Constitucional 2003-11397.
 La competencia de la SETENA21 a nivel local consiste en estudiar y avalar lo referente a la variable de impacto ambiental en los Planes Reguladores, velando por la planificación del desarrollo de actividades humanas potencialmente lesivas del medio ambiente, siendo la encargada de otorgar la Viabilidad Ambiental, por medio del procedimiento vigente para dicho fin.
 21 Capítulos IV y VI de la Ley Orgánica del Ambiente N°7554, Artículo 52 de la Ley de Biodiversidad N°7788, Voto Constitucional 2003-6311, Voto Constitucional 2006-6343 y Artículo 67 del Reglamento sobre los Procedimientos de Evaluación de Impacto Ambiental Decreto Ejecutivo N°31849-MINAE-MOPT-MAG-MEIC.
-El SENARA tiene entre sus funciones desarrollar y administrar los distritos de riego, avenamiento y control de las inundaciones en los mismos. Asimismo, realizar, coordinar, promover y mantener actualizadas las investigaciones hidrológicas, hidrogeológicas, agrológicas y otras que considere necesarias en las cuencas hidrográficas del país, así como las socioeconómicas y ambientales en las áreas y regiones en que sea factible establecer distritos de riego y avenamiento. Además, para el aprovechamiento de las aguas de dominio público, toda entidad pública, tiene la obligación de obtener del SENARA el permiso correspondiente para la explotación del recurso hídrico.
+(Derogado este párrafo mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 3.4.2. Integración de planes de nivel local
 La integración entre las diferentes categorías y unidades que conforman un territorio local se lleva a cabo articulando los diferentes planes que inciden en dicho nivel, velando por la homologación de los principios, objetivos, acciones estratégicas, metas planteadas, entre otros aspectos.
 A continuación, se señalan algunos de los planes cuya integración es clave debido a su incidencia en el desarrollo local:
@@ -363,9 +388,10 @@ Fomento en el acceso a vivienda, infraestructura y servicios urbanos
 Generación de oportunidades de inversión
 Gestión del riesgo y recursos hídricos
 3.6. PRINCIPIOS
-A continuación, se indican los principios que orientan la elaboración y gestión de Planes Reguladores y Reglamentos de Desarrollo Urbano con base en el presente Manual. Los gobiernos municipales, el INVU, la SETENA, el SENARA y las demás instituciones con competencias en la materia deben velar por la aplicación de dichos principios.
-Principio de coordinación interinstitucional26 26 Artículo 5.b del Reglamento General del Sistema Nacional de Planificación Decreto ejecutivo Nº37735-PLAN, Artículo 5 del Código Municipal Nº7794, artículo 4.2, lineamiento 20 de la Política Nacional de Ordenamiento Territorial 2012 a 2040 Decreto Ejecutivo Nº 37623-PLAN-MINAET-MIVAH, Artículo 6 del Reglamento a la Ley N°8220 de Protección al Ciudadano del Exceso de Trámites y Requisitos Administrativos Decreto Ejecutivo N°37045-MP-MEIC, Voto N°6706-93 del 21 de diciembre de 1993 y Voto N°5445-99 de del 14 de julio de 1999 | Principio de integración27 27 Artículo 5.f del Reglamento General del Sistema Nacional de Planificación Decreto ejecutivo Nº37735-PLAN, Artículo 4.1 y lineamiento 21 de la Política Nacional de Ordenamiento Territorial 2012 a 2040 Decreto Ejecutivo Nº37623-PLAN-MINAET-MIVAH. | Principio de participación ciudadana28 28 Artículo 5 del Código Municipal Nº7794, Artículos 2 y 16 del Reglamento General del Sistema Nacional de Planificación Decreto ejecutivo Nº37735-PLAN y Artículos 6 y 29 inciso d) de la Ley Orgánica del Ambiente N°7554 | Principio de interés general | Principio de desarrollo sostenible29 29 Artículos 2 y 29 inciso c) de la Ley Orgánica del Ambiente N°7554
-La planificación y gestión de acciones en el territorio debe ser concertada de manera conjunta entre los actores institucionales, respetando las competencias correspondientes, con el fin de actuar de manera coordinada haciendo confluir esfuerzos hacia un mismo fin. | Los instrumentos de planificación y gestión territorial deben articularse y complementarse entre sí, tanto entre los diferentes niveles territoriales, como entre las diferentes categorías y unidades que inciden en un territorio. | La participación activa, consciente y democrática de los diversos actores sociales debe ser fomentada, favoreciendo su incorporación en los procesos de toma de decisiones, ejecución de acciones y rendición de cuentas. | La prevalencia del interés general sobre el particular debe primar en aspectos tales como la óptima utilización del suelo y los recursos naturales, así como en otros temas centrales para el desarrollo urbano y territorial. | La planificación y gestión urbana deben promover la transformación sostenible del territorio, buscando el equilibrio entre las dimensiones económica, social y ambiental, planteando alternativas que satisfagan las necesidades de la generación presente, sin comprometer la capacidad de las generaciones futuras para satisfacer sus propias necesidades.
+A continuación, se indican los principios que orientan la elaboración y gestión de Planes Reguladores y Reglamentos de Desarrollo Urbano con base en el presente Manual. Los gobiernos municipales, el INVU, la SETENA, y las demás instituciones con competencias en la materia deben velar por la aplicación de dichos principios.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
+Principio de coordinación interinstitucional26 26 Artículo 5.b del Reglamento General del Sistema Nacional de Planificación Decreto ejecutivo Nº37735-PLAN, Artículo 5 del Código Municipal Nº7794, artículo 4.2, lineamiento 20 de la Política Nacional de Ordenamiento Territorial 2012 a 2040 Decreto Ejecutivo Nº 37623-PLAN-MINAET-MIVAH, Artículo 6 del Reglamento a la Ley N°8220 de Protección al Ciudadano del Exceso de Trámites y Requisitos Administrativos Decreto Ejecutivo N°37045-MP-MEIC, Voto N°6706-93 del 21 de diciembre de 1993 y Voto N°5445-99 de del 14 de julio de 1999 | Principio de integración27 27 Artículo 5.f del Reglamento General del Sistema Nacional de Planificación Decreto ejecutivo Nº37735-PLAN, Artículo 4.1 y lineamiento 21 de la Política Nacional de Ordenamiento Territorial 2012 a 2040 Decreto Ejecutivo Nº37623-PLAN-MINAET-MIVAH. | Principio de participación ciudadana28 28 Artículo 5 del Código Municipal Nº7794, Artículos 2 y 16 del Reglamento General del Sistema Nacional de Planificación Decreto ejecutivo Nº37735-PLAN y Artículos 6 y 29 inciso d) de la Ley Orgánica del Ambiente N°7554 | | Principio de interés general | Principio de desarrollo sostenible29 29 Artículos 2 y 29 inciso c) de la Ley Orgánica del Ambiente N°7554
+La planificación y gestión de acciones en el territorio debe ser concertada de manera conjunta entre los actores institucionales, respetando las competencias correspondientes, con el fin de actuar de manera coordinada haciendo confluir esfuerzos hacia un mismo fin. | Los instrumentos de planificación y gestión territorial deben articularse y complementarse entre sí, tanto entre los diferentes niveles territoriales, como entre las diferentes categorías y unidades que inciden en un territorio. | La participación activa, consciente y democrática de los diversos actores sociales debe ser fomentada, favoreciendo su incorporación en los procesos de toma de decisiones, ejecución de acciones y rendición de cuentas. | | La prevalencia del interés general sobre el particular debe primar en aspectos tales como la óptima utilización del suelo y los recursos naturales, así como en otros temas centrales para el desarrollo urbano y territorial. | La planificación y gestión urbana deben promover la transformación sostenible del territorio, buscando el equilibrio entre las dimensiones económica, social y ambiental, planteando alternativas que satisfagan las necesidades de la generación presente, sin comprometer la capacidad de las generaciones futuras para satisfacer sus propias necesidades.
 Tabla N°1. Principios
 3.7. ENFOQUE
 Seguidamente se indican los enfoques que orientan la elaboración y gestión de Planes Reguladores con base en el presente Manual.
@@ -414,7 +440,7 @@ La municipalidad puede elaborar los Términos de Referencia para el desarrollo d
 La municipalidad puede revisar propuestas para llevar a cabo las etapas indicadas en la Actividad 31 Artículos 7, 8, 9 y 10 de la Ley de Planificación Urbana Nº4240 1.3; con base en lo indicado en los Términos de Referencia. Las propuestas pueden ser presentadas por oferentes tales como el INVU o firmas particulares. Tras la revisión de las ofertas, la municipalidad puede designar o contratar un equipo multidisciplinario en adelante denominado Equipo Planificador, encargado de las funciones definidas en los Términos de Referencia.
 En la designación o contratación del Equipo Planificador, se puede optar por alguna de las
 siguientes opciones33:
-33 Artículo 61 de la Ley de Planificación Urbana Nº4240 Figura N°3: Flujograma de la Segunda etapa “Diagnóstico territorial”
+33 Artículo 61 de la Ley de Planificación Urbana Nº4240 Figura N°3: Flujograma de la Segunda etapa "Diagnóstico territorial"
 1. Designar como Equipo Planificador a la Comisión de Plan Regulador (dependencia municipal, oficina municipal, junta o comisión)
 2. Contratar como Equipo Planificador al INVU, mediante la formalización de un convenio.
 3. Contratar como Equipo Planificador a una o varias firmas particulares.
@@ -435,7 +461,7 @@ sesiones de trabajo durante todas las etapas del procedimiento, hasta su conclus
 Los productos resultantes tras la ejecución de las diversas actividades que componen esta etapa son los siguientes:
 Designación de la Comisión de Plan Regulador
 Descripción textual del Área de Planificación delimitada preliminarmente
-Documento titulado “Presupuesto Global”
+Documento titulado "Presupuesto Global"
 Fuente de financiamiento asegurada
 Términos de Referencia
 Selección del Equipo Planificador
@@ -469,7 +495,7 @@ Dentro de un proceso de investigación, independientemente de cual sea su objeto
 Por lo tanto, una adecuada formulación, aplicación, seguimiento y control de la propuesta
 metodológica aplicada a la planificación urbana y ordenamiento territorial, coadyuva a mejorar sustancialmente los resultados obtenidos. En primera instancia, orienta el análisis desarrollado por el Equipo Planificador durante la Etapa de Diagnóstico territorial, al mejorar el contacto y comprensión de la realidad actual del territorio objeto de análisis y facilitar la reflexión sobre las posibles causas generadoras de las limitantes, potencialidades, necesidades e impactos territoriales identificados. Posteriormente, durante la Etapa de Formulación de la propuesta, la metodología permite proponer soluciones dirigidas a la atención de las limitantes, potencialidades, necesidades e impactos territoriales identificados en el Área de Planificación específicamente e integrarlas en el Plan Regulador y los Reglamentos de Desarrollo Urbano.
 Finalmente, siendo que la planificación urbana y el ordenamiento territorial son procesos de investigación longitudinales, que se sostienen durante un período de tiempo determinado, requieren adaptarse a las constantes transformaciones territoriales. Durante la Etapa de gestión del Plan Regulador, la propuesta metodológica permite establecer mecanismos de seguimiento y evaluación a la implementación del Plan Regulador y los Reglamentos de Desarrollo Urbano, con el fin de verificar sus impactos dentro del Área de Planificación y determinar las necesidades de modificación, suspensión o derogación.
-Por lo tanto, es recomendable que el Equipo Planificador formule una propuesta metodológica, basada en el enfoque multidisciplinario y sistémico, así como en el principio de participación ciudadana, que funcione como herramienta complementaria al Plan de Trabajo y Cronograma desarrollados en la Actividad 2.2. La propuesta metodológica se consolida en un documento denominado “Marco Metodológico”, en el cual se abordan las siguientes etapas de la Fase de elaboración del Plan Regulador :
+Por lo tanto, es recomendable que el Equipo Planificador formule una propuesta metodológica, basada en el enfoque multidisciplinario y sistémico, así como en el principio de participación ciudadana, que funcione como herramienta complementaria al Plan de Trabajo y Cronograma desarrollados en la Actividad 2.2. La propuesta metodológica se consolida en un documento denominado "Marco Metodológico", en el cual se abordan las siguientes etapas de la Fase de elaboración del Plan Regulador :
 Segunda etapa: Diagnóstico territorial
 Tercera etapa: Formulación de la propuesta
 Cuarta etapa: Asesoría, revisión y adopción de un Plan Regulador nuevo
@@ -479,7 +505,8 @@ Eje Físico-Espacial
 Eje Económico
 Eje Político Institucional
 Eje Jurídico
-Además, debe integrar aquellos instrumentos, estudios, técnicas, variables y procedimientos definidas por el SENARA y la SETENA en su normativa vigente para el abordaje del Eje Ambiental (Variable Ambiental).
+Además, debe integrar aquellos instrumentos, estudios, técnicas, variables y procedimientos definidas por la SETENA en su normativa vigente para el abordaje del Eje Ambiental (Variable Ambiental)
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 Enfoque multidisciplinario y sistémico en la propuesta metodológica
 Es recomendable que el Marco Metodológico contenga, tanto una metodología general, como las metodologías individualizadas para el abordaje de los ejes antes indicados; así como para el desarrollo de los estudios específicos que corresponda.
 La responsabilidad de la formulación, aplicación, control y seguimiento de la metodología general es de la persona coordinadora del Equipo Planificador. Asimismo, es responsabilidad de la persona coordinadora definir a las personas integrantes del Equipo Planificador, responsables del abordaje de cada eje o estudio específico, durante todas las etapas indicadas al inicio de esta Actividad. En la metodología general se plantean los instrumentos, estudios, técnicas y procedimientos para el desarrollo de las Actividades 2.5, 2.6, 2.7, todas las actividades de la Tercera etapa, así como las que corresponda de la Cuarta etapa del presente Manual (análisis de todos los ejes, análisis unificado, formulación de la propuesta, gestión de la viabilidad ambiental, Audiencia Pública e incorporación de cambios o inclusiones a la propuesta, entre otras). Además, se contemplan e integran las metodologías individualizadas para el abordaje de cada uno de los ejes y estudios especializados requeridos.
@@ -516,7 +543,7 @@ Ciencia ciudadana
 Minería de datos
 Encuestas
 ü Actividad N°2.2. Formulación del Plan de Trabajo y Cronograma
-Es recomendable que el Equipo Planificador formule un documento denominado “Plan de Trabajo y Cronograma”, en el cual se detallen las actividades, tareas y programación para el abordaje de cada uno de los ejes y del desarrollo de los estudios específicos requeridos, durante las etapas indicadas en la Actividad 2.1.
+Es recomendable que el Equipo Planificador formule un documento denominado "Plan de Trabajo y Cronograma", en el cual se detallen las actividades, tareas y programación para el abordaje de cada uno de los ejes y del desarrollo de los estudios específicos requeridos, durante las etapas indicadas en la Actividad 2.1.
 La persona coordinadora del Equipo Planificador es responsable de la formulación un Plan de Trabajo y Cronograma, complementarios al Marco Metodológico; asimismo es responsable de su
 seguimiento.
 ü Actividad N°2.3. Recopilación y sistematización de datos
@@ -538,8 +565,8 @@ La selección de las escalas depende de la extensión del Área de Planificació
 ü Actividad N°2.5. Análisis por Eje
 Una vez que se cuente con suficientes datos recopilados, los profesionales responsables de cada uno de los ejes indicados en la Tabla N°3 del presente Manual, así como de los estudios específicos, pueden llevar a cabo el Análisis por Eje, tomando como base las metodologías individualizadas planteadas en la Actividad 2.1. para el abordaje de cada uno de los ejes. La persona coordinadora del Equipo Planificador es responsable de supervisar y revisar el análisis de cada uno de los ejes, así como los estudios específicos.
 Se recomienda utilizar la técnica FODA u alguna otra que resulte atinente, con el fin de desarrollar el análisis de cada eje, contemplando la relación entre las variables que conforman cada tema particular, así como la relación entre los diversos temas.
-El desarrollo del Análisis por Eje se sistematiza en un documento denominado “Diagnóstico
-Territorial” en el cual se describe textualmente el estado de la situación actual de cada uno de los temas que conforman los ejes, incluyendo los elementos gráficos que refuercen dichos contenidos (tablas, diagramas, ilustraciones, fotografías, cartogramas, histogramas, líneas de tiempo, entre otros).
+El desarrollo del Análisis por Eje se sistematiza en un documento denominado "Diagnóstico
+Territorial" en el cual se describe textualmente el estado de la situación actual de cada uno de los temas que conforman los ejes, incluyendo los elementos gráficos que refuercen dichos contenidos (tablas, diagramas, ilustraciones, fotografías, cartogramas, histogramas, líneas de tiempo, entre otros).
 Adicionalmente, el análisis de los temas que conforman cada eje se representa en el Atlas Cartográfico en los Mapas Temáticos tomando en consideración lo indicado en el Anexo 5 del presente Manual.
 En el Diagnóstico territorial de todo Plan Regulador se deben abarcar los temas indicados seguidamente35:
 35 Artículo 16 de la Ley de Planificación Urbana Nº4240
@@ -553,9 +580,11 @@ Renovación urbana
 Ambiente
 Además, se puede abarcar otros temas adicionales tales como los que se incluyen en las Tablas N°4-9 del presente Manual.
 Tal como se indicó en la Actividad 2.1; para el análisis de los ejes Social, Físico espacial, Económico y Político Institucional se pueden utilizar las técnicas y procedimientos definidos por el Equipo Planificador en el Marco Metodológico.
-Mientras que para el análisis del Eje Ambiental se deben utilizar los establecidos por SETENA y SENARA en su normativa vigente.
+Mientras que para el análisis del Eje Ambiental se deben utilizar los establecidos por SETENA en su normativa vigente.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 Es recomendable que durante esta actividad se lleve a cabo una amplia participación de diversos actores sociales vinculados al Área de Planificación, con el fin de fortalecer la incorporación de múltiples y pertinentes perspectivas en el análisis de la situación actual del territorio. Es recomendable socializar los hallazgos identificados mediante informes de avance periódicos, así como utilizar técnicas participativas tales como: grupos focales, talleres, mesas redondas, comités de asesores, mapeos participativos, pensamiento de diseño, minería de datos, entre otras.
-A continuación, se amplía sobre cada uno de los ejes, indicando los temas por considerar en cada uno. También se señalan algunas variables asociadas a cada tema. Dicho listado no es taxativo y es recomendable que se adecúe a los requerimientos particulares de cada territorio; con excepción del Eje Ambiental, cuyas variables deben responder a las definidas por SETENA y SENARA en su normativa vigente.
+A continuación, se amplía sobre cada uno de los ejes, indicando los temas por considerar en cada uno. También se señalan algunas variables asociadas a cada tema. Dicho listado no es taxativo y es recomendable que se adecúe a los requerimientos particulares de cada territorio; con excepción del Eje Ambiental, cuyas variables deben responder a las definidas por SETENA en su normativa vigente.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 Eje Físico espacial
 El análisis del Eje Físico espacial contempla los aspectos naturales y artificiales que caracterizan actualmente el sistema territorial, considerando las diversas unidades, elementos y procesos que lo conforman, entre ellos los procesos de apropiación, ocupación y uso del territorio. Por lo tanto, abarca la ubicación, formas, patrones de crecimiento, características y funciones de las áreas urbanas y otros centros de población en el territorio.
 Asimismo, incluye la conectividad entre dichos centros, así como la infraestructura, canales, ubicación, acceso y condiciones para la movilización en el territorio, tanto de la población, como de bienes. Además, abarca el análisis en cuanto a la cobertura, estado, demanda y calidad de las facilidades comunales, servicios públicos, así como las áreas verdes, y su relación con la calidad de vida de la población. Este eje también contempla el uso actual del suelo, el cual constituye uno de los temas centrales del Diagnóstico territorial.
@@ -569,22 +598,28 @@ A continuación, se indican los temas, variables y productos contemplados en el 
 [imagen]
 Eje Económico
 El análisis del Eje Económico contempla el modelo de desarrollo y competitividad del territorio objeto de estudio, incluyendo su usufructo. Además, abarca el análisis del mercado del suelo como un componente central en la planificación urbana y el ordenamiento territorial, al ser determinante en aspectos tales como acceso a la vivienda, tenencia de la tierra, informalidad, entre otros. Asimismo, abarca el tema de tributación como un elemento central para la inversión municipal.
-Contrario a la práctica tradicional que tiende a invisibilizar el análisis de eje económico a través del concepto hibrido de “socioeconómico”, se recomienda su abordaje de forma individual en un primer momento, con el fin de comprender en su justa dimensión su impacto con relación a calidad de vida de la población.
+Contrario a la práctica tradicional que tiende a invisibilizar el análisis de eje económico a través del concepto hibrido de "socioeconómico", se recomienda su abordaje de forma individual en un primer momento, con el fin de comprender en su justa dimensión su impacto con relación a calidad de vida de la población.
 A continuación, se indican los temas, variables y productos contemplados en el análisis del Eje Económico:
 [imagen]
 Eje Jurídico
-El análisis del Eje Jurídico contempla la compilación del marco jurídico – legal vigente y su relación con la estructura jurídica, que permite una interpretación analítica de la materia legal vinculada a la planificación urbana y el ordenamiento territorial en sus diferentes ámbitos.
+El análisis del Eje Jurídico contempla la compilación del marco jurídico - legal vigente y su relación con la estructura jurídica, que permite una interpretación analítica de la materia legal vinculada a la planificación urbana y el ordenamiento territorial en sus diferentes ámbitos.
 A continuación, se indican los temas, variables y productos contemplados en el análisis del Eje Jurídico:
+TABLA N° 8 Eje Institucional
+(Así modificado el nombre anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 [imagen]
 Eje Político institucional
 El análisis del Eje Político institucional contempla el funcionamiento y operatividad, en términos de eficiencia y eficacia, de las instancias de nivel local, regional y nacional con respecto al territorio y sus habitantes.
 A continuación, se indican los temas, variables y productos contemplados en el análisis del Eje Político Institucional:
+TABLA N° 7 Eje Jurídico
+(Así modificado el nombre anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 [imagen]
 Eje Ambiental
-El análisis del Eje Ambiental (Variable Ambiental) realizado en esta actividad corresponde al solicitado por la SETENA y el SENARA, por lo que deben acatarse los procedimientos establecidos por dichas instituciones en su normativa vigente.
+El análisis del Eje Ambiental (Variable Ambiental) realizado en esta actividad corresponde al solicitado por la SETENA, por lo que deben acatarse los procedimientos establecidos por dicha institución en su normativa vigente.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 Debido a que el análisis del Eje Ambiental forma parte integral de Diagnóstico territorial, es recomendable que el responsable de llevarlo a cabo asista con la misma frecuencia que el resto del Equipo Planificador a las sesiones de trabajo multidisciplinario y socialice los hallazgos identificados durante el análisis.
 A continuación, se indican los temas, variables y productos contemplados en el análisis del Eje Ambiental:
 [imagen]
+Hidrogeología (Derogado este tema mediante sesión ordinaria N°6520 del 02 de diciembre de 2021) | - Cuencas hidrográficas (Derogado este tema mediante sesión ordinaria N°6520 del 02 de diciembre de 2021) | - Mapa hidrogeológico - Matriz Genérica de SENARA - Descripción prosa del análisis de la variable cuencas hidrográfica del tema "Hidrogeología) (Derogado este tema mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 [imagen]
 ü Actividad N°2.6. Identificación de resultados por eje
 Para completar el Análisis por eje llevado a cabo en la Actividad 2.5; es recomendable que el Equipo Planificador identifique, represente y georreferencie en el Área de Planificación los hallazgos identificados en cada uno de los ejes, incluido el Eje Ambiental (Variable Ambiental), con relación a lo siguiente:
@@ -593,14 +628,14 @@ Limitantes: Condiciones que limiten el desarrollo territorial
 Necesidades: Requerimientos indispensables para el desarrollo territorial
 Impactos territoriales: Consecuencias positivas y negativas derivadas de la ocupación, uso y usufructo del Área de Planificación por diversos factores, agentes y actores sociales.
 Es responsabilidad de la persona responsable del abordaje de cada eje seleccionar, clasificar y jerarquizar los hallazgos que es recomendable tomar en consideración durante el Análisis Unificado, con base en criterios técnicos y científicos.
-Al igual que el desarrollo del Análisis por Eje, los hallazgos identificados se describen textualmente en el documento denominado “Diagnóstico Territorial”; incluyendo los elementos gráficos que refuercen dichos contenidos, tales como tablas, diagramas, ilustraciones, fotografías, cartogramas, histogramas, líneas de tiempo, entre otros.
+Al igual que el desarrollo del Análisis por Eje, los hallazgos identificados se describen textualmente en el documento denominado "Diagnóstico Territorial"; incluyendo los elementos gráficos que refuercen dichos contenidos, tales como tablas, diagramas, ilustraciones, fotografías, cartogramas, histogramas, líneas de tiempo, entre otros.
 Adicionalmente, los hallazgos identificados se representan y georreferencian en el Atlas Cartográfico, en los Mapas de Resultados del Diagnóstico por eje; tomando en consideración lo indicado en el Anexo 5 del presente Manual y resultando en al menos un mapa de este tipo para los ejes Social, Físico espacial, Económico y Ambiental.
 ü Actividad N°2.7. Análisis Unificado
 En las Actividades 2.5 y 2.6, la aplicación de las metodologías individualizadas, permite la especificidad en el análisis del territorio desde los seis ejes indicados. No obstante, es recomendable que el Equipo Planificador realice un ejercicio de análisis unificado, basado en la metodología general planteada en la Actividad 2.1.
 A través del Análisis Unificado se analiza la interacción de temas que pertenecen a diferentes ejes, en términos de sus potencialidades, limitantes, necesidades e impactos territoriales; lo que permite comprender el territorio como una unidad sistémica, en la que se interrelacionan en un mismo espacio físico, diversas unidades, elementos y procesos territoriales de índole físico espacial, social, económico, político, ambiental y jurídico. Por lo tanto, el Análisis Unificado depende de una constante transferencia de conocimiento entre las personas que conforman el Equipo Planificador.
 Es recomendable que a lo interno del Equipo Planificador se socialice, discuta y desarrolle un análisis cruzado de los hallazgos seleccionados, clasificados y jerarquizados durante la Actividad 2.6. (incluido el Eje Ambiental). Además, que se lleve a cabo la sobre posición de los Mapas de Resultados del Diagnóstico por eje y la correspondiente álgebra de mapas utilizando un SIG.
 Como resultado del Análisis Unificado se obtiene la identificación, representación y georreferenciación de los principales hallazgos que es recomendable tomar en consideración para elaborar la propuesta durante la Tercera etapa.
-Los hallazgos identificados en el Análisis Unificado se describen textualmente en el documento denominado “Diagnóstico Territorial”, incluyendo los elementos gráficos que refuercen dichos contenidos, tales como tablas, diagramas, ilustraciones, fotografías, mapas temáticos, cartogramas, histogramas, líneas de tiempo, entre otros. Adicionalmente, los hallazgos identificados en esta actividad se representan y georreferencian en el Atlas Cartográfico, en el Mapa Unificado del Diagnóstico Territorial.
+Los hallazgos identificados en el Análisis Unificado se describen textualmente en el documento denominado "Diagnóstico Territorial", incluyendo los elementos gráficos que refuercen dichos contenidos, tales como tablas, diagramas, ilustraciones, fotografías, mapas temáticos, cartogramas, histogramas, líneas de tiempo, entre otros. Adicionalmente, los hallazgos identificados en esta actividad se representan y georreferencian en el Atlas Cartográfico, en el Mapa Unificado del Diagnóstico Territorial.
 Es recomendable que, de manera paralela al trabajo multidisciplinario desarrollado por el Equipo Planificador, se incorpore activamente a diversos actores sociales durante esta Actividad, con la finalidad de fortalecer su participación en la definición de las potencialidades, limitantes, necesidades e impactos territoriales sobre las que se basa el desarrollo de la propuesta de Plan Regulador y Reglamentos de Desarrollo Urbano.
 A través de un riguroso proceso participativo durante esta actividad, el Equipo Planificador
 puede enriquecer su comprensión integral del territorio, al obtener retroalimentación tanto del Análisis por eje, como del Análisis Unificado, por parte de diversos actores sociales con un conocimiento directo y estrecho del objeto de estudio. Además, puede validar los hallazgos identificados con el fin de verificar su veracidad.
@@ -608,9 +643,9 @@ Cabe destacar, que la apertura de espacios de participación de diversos actores
 abiertas, grupos focales o mesas redondas.
 4.2.2. Productos de la Segunda Etapa
 Los productos resultantes tras la ejecución de las diversas actividades que componen esta etapa son los siguientes:
-Documento titulado “Marco Metodológico”
-Documento titulado “Plan de Trabajo y Cronograma”
-Documento titulado “Diagnóstico Territorial” que incluye:
+Documento titulado "Marco Metodológico"
+Documento titulado "Plan de Trabajo y Cronograma"
+Documento titulado "Diagnóstico Territorial" que incluye:
 - Desarrollo y hallazgos del análisis para los siguientes ejes: Social, Físico espacial, Ambiental, Económico, Político institucional y Jurídico (incluyendo los productos indicados en las Tablas 4-9)
 - Desarrollo y hallazgos del Análisis Unificado
 Atlas Cartográfico36 que incluye:
@@ -619,7 +654,7 @@ Atlas Cartográfico36 que incluye:
 - Mapas Temáticos
 - Mapas de Resultados del Diagnóstico de los ejes Social, Físico Espacial, Económico, Ambiental
 - Mapa Unificado del Diagnóstico
-4.3. Tercera etapa: Formulación de la propuesta Corresponde a las actividades que desarrolla el Equipo Planificador, con el fin de formular una propuesta, denominada “Plan Regulador y Reglamentos de Desarrollo Urbano”, mediante los cuales se planifique y gestione el desarrollo urbano en el Área de Planificación. Dicha propuesta se conforma de los siguientes componentes:
+4.3. Tercera etapa: Formulación de la propuesta Corresponde a las actividades que desarrolla el Equipo Planificador, con el fin de formular una propuesta, denominada "Plan Regulador y Reglamentos de Desarrollo Urbano", mediante los cuales se planifique y gestione el desarrollo urbano en el Área de Planificación. Dicha propuesta se conforma de los siguientes componentes:
 Política de Desarrollo Urbano
 Acciones Estratégicas
 Reglamentos de Desarrollo Urban
@@ -637,7 +672,7 @@ productos esperados resultantes del desarrollo de cada actividad.
 4.3.1. Actividades de la Tercera Etapa
 A continuación, se amplía sobre las actividades que conforman la Tercera etapa:
 ü Actividad N°3.1. Formulación de la Política de Desarrollo Urbano
-El Equipo Planificador debe formular una Política de Desarrollo Urbano37 para el Área de Planificación, fundamentada en los hallazgos obtenidos en el Análisis Unificado desarrollado durante la Etapa de Diagnóstico territorial. Para la redacción del documento denominado “Política de Desarrollo Urbano” se recomienda considerar las guías que en la materia publique MIDEPLAN.
+El Equipo Planificador debe formular una Política de Desarrollo Urbano37 para el Área de Planificación, fundamentada en los hallazgos obtenidos en el Análisis Unificado desarrollado durante la Etapa de Diagnóstico territorial. Para la redacción del documento denominado "Política de Desarrollo Urbano" se recomienda considerar las guías que en la materia publique MIDEPLAN.
 37 Artículo 16 de la Planificación Urbana Nº4240
 Los componentes de la Política de Desarrollo Urbano son:
 Objetivos de desarrollo urbano
@@ -648,7 +683,7 @@ Los objetivos de desarrollo urbano responden a los hallazgos (potencialidades, l
 En la determinación de los objetivos de desarrollo urbano se deben tomar en consideración los aportes realizados por diversos actores sociales vinculados al Área de Planificación, con el fin de velar porque el interés general sea plasmado en la Política de Desarrollo Urbano.
 El plazo establecido para el cumplimiento de la totalidad de los objetivos de desarrollo urbano, corresponde al horizonte temporal del Plan Regulador . Se recomienda que dicho plazo no exceda un período de veinte años a partir de su aprobación por parte del INVU.
 ü Actividad 3.2. Pronóstico Territorial
-ü Mediante el pronóstico territorial se pueden prever “modelos” o “escenarios” de desarrollo urbano futuros que es posible alcanzar en el Área de Planificación, tras la ejecución de diversas Acciones Estratégicas.
+ü Mediante el pronóstico territorial se pueden prever "modelos" o "escenarios" de desarrollo urbano futuros que es posible alcanzar en el Área de Planificación, tras la ejecución de diversas Acciones Estratégicas.
 Los diversos escenarios o modelos proyectados, pueden ser analizados de manera comparativa por el Equipo Planificador, junto con los diversos actores sociales mediante técnicas participativas tales como grupos focales, talleres, mesas redondas, mapeos participativos, pensamiento de diseño, entre otras.
 Por lo tanto, el Pronóstico Territorial posibilita fundamentar técnicamente y validar la toma de decisiones con relación a la selección de la alternativa más viable para llevar a cabo los objetivos propuestos en la Política de Desarrollo Urbano.
 Se recomienda que el desarrollo del pronóstico territorial se apoye en métodos y técnicas de representación gráfica y cartográfica, con el fin de facilitar la comprensión de los escenarios
@@ -684,7 +719,8 @@ Reglamento de Zonificación41
 41 Capítulo Tercero de la Ley de Planificación Urbana N°4240
 Consiste en la división del Área de Planificación en zonas de uso, abarcando al menos el área urbana.
 La división planteada debe ser representada en un Mapa de Zonificación. Entre los temas regulados por este reglamento se encuentran los siguientes:
-Uso de terrenos, edificios y estructuras
+Uso de terrenos, edificios y estructuras; indicando usos conformes, no conformes, condicionales y prohibidos.
+(Así reformado el punto anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 Localización, altura máxima y área de piso de edificaciones
 Cobertura, superficie, dimensiones, retiros, patios y demás espacios abiertos de los lotes Características, tamaño y ubicación de publicidad
 Cualquier otro elemento urbanístico, arquitectónico, entre otros, relativo al uso del suelo
@@ -750,24 +786,24 @@ Es recomendable que el Equipo Planificador elabore una estrategia para dar segui
 El seguimiento es una función continua cuyo principal objetivo es proporcionar a las municipalidades y otros actores sociales indicadores tempranos de progreso en cuanto al cumplimiento de los objetivos de desarrollo urbano planteados en la Política de Desarrollo.
 La evaluación determina objetivamente, con base en resultados periódicos, los impactos del Plan Regulador y los Reglamentos de Desarrollo Urbano. Por lo tanto, es un ejercicio integrado a su implementación, que permite identificar los ajustes requeridos en términos de modificación, suspensión o derogación.
 Tanto para el seguimiento, como para la evaluación, es necesario establecer o elaborar instrumentos de medición y monitoreo que permitan aplicarse de una manera práctica y objetiva por la municipalidad.
-Se recomienda que, para realizar el seguimiento y la evaluación de la Política de Desarrollo Urbano, así como de las Acciones Estratégicas se complete la información solicitada en la “Matriz de Seguimiento del Plan Regulador ” adjunta en el Anexo 8 del presente Manual.
-Para dar seguimiento y valorar lo relacionado a la Variable Ambiental, se deben aplicar los
-instrumentos de seguimiento y monitoreo ambiental que definan SETENA y SENARA en su normativa vigente.
+Se recomienda que, para realizar el seguimiento y la evaluación de la Política de Desarrollo Urbano, así como de las Acciones Estratégicas se complete la información solicitada en la "Matriz de Seguimiento del Plan Regulador " adjunta en el Anexo 8 del presente Manual.
+Para dar seguimiento y valorar lo relacionado a la Variable Ambiental, se deben aplicar los instrumentos de seguimiento y monitoreo ambiental que definan SETENA en su normativa vigente.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 Adicionalmente, para dar seguimiento y valorar la aplicación de los Reglamentos de Desarrollo Urbano se pueden plantear instrumentos de medición, métodos, y procedimientos adicionales.
 Se recomienda que el seguimiento se realice anualmente, durante todo el horizonte temporal del Plan Regulador y que la evaluación se realice quinquenalmente.
 4.3.2. Productos de la Tercera Etapa
 Los productos resultantes tras la ejecución de las diversas actividades que componen esta etapa son los siguientes:
-Documento titulado “Política de Desarrollo Urbano” que incluye lo siguiente:
+Documento titulado "Política de Desarrollo Urbano" que incluye lo siguiente:
 - Objetivos de desarrollo urbano
 - Horizonte temporal del Plan Regulador
 - Principios y normativa en que se fundamenta el Plan Regulador
-Documento titulado “Escenarios de Desarrollo Urbano”
-Documento titulado “Acciones estratégicas”
-Documento titulado “Reglamentos de Desarrollo Urbano” que incluya, al menos lo siguiente:
+Documento titulado "Escenarios de Desarrollo Urbano"
+Documento titulado "Acciones estratégicas"
+Documento titulado "Reglamentos de Desarrollo Urbano" que incluya, al menos lo siguiente:
 - Reglamento de Zonificación
 - Reglamento de Fraccionamiento y Urbanización
 - Reglamento de Renovación Urbana - Reglamento de Construcciones
-Documento titulado “Estrategia de Seguimiento y Evaluación del Plan Regulador ”
+Documento titulado "Estrategia de Seguimiento y Evaluación del Plan Regulador "
 Atlas Cartográfico que incluya lo siguiente:
 - Mapa Oficial
 - Mapa de Zonificación
@@ -790,6 +826,8 @@ Mapa de Zonificación
 4.4. Cuarta etapa: Asesoría, revisión y adopción de un Plan Regulador nuevo Corresponde a las actividades desarrolladas por el gobierno municipal para recibir asesoría, someter a revisión la propuesta de Plan Regulador y los Reglamentos de Desarrollo Urbano y posteriormente proceder a su adopción. En la revisión de la propuesta participan coordinadamente el SENARA, la SETENA y el INVU46, según sus competencias en la materia.
 46 En atención al principio de coordinación institucional e interinstitucional, según el Artículo 6 del Reglamento a la Ley N°8220 de Protección al Ciudadano del Exceso de Trámites y Requisitos Administrativos Decreto Ejecutivo N°37045-MPMEIC
 [imagen]
+(Nota de Sinalevi: Mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021 se reforma la figura anterior en los siguiente puntos: "
+[imagen] ")
 En la Figura N°5 se indican las actividades que conforman la Cuarta Etapa, así como los productos esperados resultantes del desarrollo de cada actividad.
 4.4.1. Actividades de la Cuarta Etapa
 A continuación, se amplía sobre las actividades que conforman la Cuarta etapa:
@@ -845,7 +883,7 @@ Posterior a su adopción, el gobierno municipal debe publicar en La Gaceta el av
 4.4.2. Productos de la Cuarta Etapa
 Los productos vinculantes resultantes tras la ejecución de las diversas actividades que
 componen esta etapa son los siguientes:
-Resolución hidrogeológica de SENARA
+(Derogado este punto mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 Resolución ambiental de SETENA
 Publicación en La Gaceta de convocatoria para la Audiencia Pública
 Propuesta de Plan Regulador y Reglamentos de Desarrollo Urbano con cambios o inclusiones producto de la Audiencia Pública incorporados
@@ -880,8 +918,7 @@ Designar a alguna dependencia de la municipalidad
 Crear una oficina municipal para dicho fin
 Crear una comisión o junta
 ü Actividad N°5.2. Implementación del Plan Regulador y los Reglamentos de Desarrollo Urbano vigentes
-Para poner en práctica el Plan Regulador y los Reglamentos de Desarrollo Urbano vigentes es fundamental ejecutar las Acciones Estratégicas planteadas, en cumplimiento de la metas anuales indicadas en la “Matriz de Seguimiento del Plan Regulador ”. Además, debe aplicar y hacer
-cumplir los Reglamentos de Desarrollo.
+Para poner en práctica el Plan Regulador y los Reglamentos de Desarrollo Urbano vigentes es fundamental ejecutar las Acciones Estratégicas planteadas, en cumplimiento de la metas anuales indicadas en la "Matriz de Seguimiento del Plan Regulador ". Además, debe aplicar y hacer cumplir los Reglamentos de Desarrollo.
 Es recomendable que la ejecución de las Acciones Estratégicas se realice con un enfoque participativo, facilitando a los actores sociales ejercer su derecho a involucrarse activamente en la administración del territorio.
 Como parte de la implementación, se recomienda que la municipalidad realice una amplia divulgación y socialización de los contenidos del Plan Regulador y los Reglamentos de Desarrollo Urbano vigentes, dirigida a los actores sociales que de alguna forma participaron durante la Fase de Elaboración, así como con el municipio en general. Para ello se recomienda utilizar medios de comunicación accesibles e inclusivos, entre ellos medios digitales, impresos y presenciales, dando especial énfasis a los que tienen presencia local.
 Asimismo, se recomienda que la municipalidad brinde acompañamiento y asesoría a los actores sociales que así lo soliciten, con relación a la implementación del Plan Regulador y los Reglamentos de Desarrollo Urbano vigentes.
@@ -889,15 +926,15 @@ Resulta de vital importancia la coordinación que debe mediar entre todos los en
 ü Actividad N°5.3. Seguimiento Anual
 Es recomendable que de manera paralela a la implementación indicada en la Actividad 5.2, la municipalidad realice el respectivo seguimiento a la implementación del Plan Regulador y los Reglamentos de Desarrollo Urbano vigentes.
 Para ello puede aplicar, con una periodicidad anual durante el Horizonte Temporal del Plan
-Regulador , los instrumentos definidos en la “Estrategia de Seguimiento y Evaluación del Plan Regulador ” para dicho fin.
+Regulador , los instrumentos definidos en la "Estrategia de Seguimiento y Evaluación del Plan Regulador " para dicho fin.
 Entre los instrumentos que conforman dicha Estrategia se encuentran los siguientes:
 Matriz de Seguimiento del Plan Regulador incluida en el Anexo 8
 Instrumentos de seguimiento y monitoreo ambiental definidos por SETENA y SENARA en
 su normativa vigente
 Instrumentos de medición, métodos, o procedimientos adicionales planteados para el seguimiento en la aplicación de los Reglamentos de Desarrollo Urbano, tales como encuestas, entrevistas, conversatorios, grupos focales, análisis de actas del gobierno municipal relacionadas con la temática del Plan Regulador, indicadores de seguimiento, entrevistas con informantes claves (encargados de Departamentos o Unidades de visados, desarrollo urbano, entre otros), análisis estadístico de certificado de uso del suelo, permisos de construcción, patentes, entre otros.
-La información requerida para completar los instrumentos antes indicados se obtiene a partir de la implementación del Plan Regulador y Reglamentos de Desarrollo Urbano, así como los procesos participativos. Los resultados obtenidos a partir de la aplicación de los instrumentos definidos en la Estrategia de Seguimiento y Evaluación del Plan Regulador , se incluyen en un documento denominando “Informe anual de seguimiento al Plan Regulador ”.
+La información requerida para completar los instrumentos antes indicados se obtiene a partir de la implementación del Plan Regulador y Reglamentos de Desarrollo Urbano, así como los procesos participativos. Los resultados obtenidos a partir de la aplicación de los instrumentos definidos en la Estrategia de Seguimiento y Evaluación del Plan Regulador , se incluyen en un documento denominando "Informe anual de seguimiento al Plan Regulador ".
 ü Actividad N°5.4. Evaluación Quinquenal
-Se recomienda que al menos cada 5 años la municipalidad evalúe la implementación del Plan Regulador y los Reglamentos de Desarrollo Urbano vigentes, analizando los resultados incluidos en los “Informes anuales de seguimiento al Plan Regulador ”, de manera cruzada con otros
+Se recomienda que al menos cada 5 años la municipalidad evalúe la implementación del Plan Regulador y los Reglamentos de Desarrollo Urbano vigentes, analizando los resultados incluidos en los "Informes anuales de seguimiento al Plan Regulador ", de manera cruzada con otros
 instrumentos con los que disponga la municipalidad, tales como:
 Plan Quinquenal Municipal
 Plan de Desarrollo Cantonal
@@ -912,23 +949,22 @@ Desempeño de los responsables de la ejecución de las Acciones Estratégicas en
 Disponibilidad presupuestaria para el cumplimiento de las metas anuales
 Resultados obtenidos durante el proceso participativo desarrollado en la Actividad 5.2.
 Cumplimiento de las disposiciones de los Reglamentos de Desarrollo Urbano
-Los resultados obtenidos a partir de la evaluación desarrollada en esta actividad se plasman en un documento denominado “Informe quinquenal de evaluación del Plan Regulador ”, en el cual se incluyen las recomendaciones y propuestas de modificación, suspensión o derogación que correspondan, con fundamento técnico y legal.
-Es recomendable que durante esta actividad se brinden espacios para la participación de diversos actores sociales vinculados al Área de Planificación, con el fin de recabar información primaria con relación al impacto real del Plan Regulador y los Reglamentos de Desarrollo Urbano en el cumplimiento de los objetivos de desarrollo urbanos consensuados colectivamente. Además, dichos espacios facilitan la validación de los resultados obtenidos mediante la aplicación de los instrumentos de medición y monitoreo planteados en la Estrategia de Seguimiento y Evaluación. Durante esta actividad, es recomendable utilizar técnicas participativas como asambleas, talleres, conversatorios, foros, difusión de información, ciencia ciudadana, encuestas, entrevistas con
-informantes clave, entre otros.
+Los resultados obtenidos a partir de la evaluación desarrollada en esta actividad se plasman en un documento denominado "Informe quinquenal de evaluación del Plan Regulador ", en el cual se incluyen las recomendaciones y propuestas de modificación, suspensión o derogación que correspondan, con fundamento técnico y legal.
+Es recomendable que durante esta actividad se brinden espacios para la participación de diversos actores sociales vinculados al Área de Planificación, con el fin de recabar información primaria con relación al impacto real del Plan Regulador y los Reglamentos de Desarrollo Urbano en el cumplimiento de los objetivos de desarrollo urbanos consensuados colectivamente. Además, dichos espacios facilitan la validación de los resultados obtenidos mediante la aplicación de los instrumentos de medición y monitoreo planteados en la Estrategia de Seguimiento y Evaluación. Durante esta actividad, es recomendable utilizar técnicas participativas como asambleas, talleres, conversatorios, foros, difusión de información, ciencia ciudadana, encuestas, entrevistas con informantes clave, entre otros.
 5.1.2. Productos de la Quinta Etapa
 Los productos vinculantes resultantes tras la ejecución de las diversas actividades que componen esta etapa son los siguientes:
 Acciones Estratégicas ejecutadas
 Reglamentos de Desarrollo Urbano aplicados
 Los productos optativos resultantes tras la ejecución de las diversas actividades que componen esta etapa son los siguientes:
 Designación de la Comisión de Plan Regulador
-Documento titulado “Informe anual de seguimiento al Plan Regulador” elaborado anualmente durante el Horizonte Temporal del Plan Regulador
-Documento titulado “Informe quinquenal de evaluación del Plan Regulador” elaborado cada cinco años durante el Horizonte Temporal del Plan Regulador.
+Documento titulado "Informe anual de seguimiento al Plan Regulador" elaborado anualmente durante el Horizonte Temporal del Plan Regulador
+Documento titulado "Informe quinquenal de evaluación del Plan Regulador" elaborado cada cinco años durante el Horizonte Temporal del Plan Regulador.
 5.2. Sexta etapa: Modificación, suspensión y derogación
 La municipalidad puede modificar, suspender o derogar, total o parcialmente, el Plan Regulador y los Reglamentos de Desarrollo Urbano vigentes, en acatamiento a lo establecido en el artículo 17 de la Ley de Planificación Urbana. Para llevar a cabo las actividades de esta Etapa, puede seleccionar el Equipo Planificador.
 A continuación, se amplía sobre el concepto y justificantes para la modificación, suspensión o derogación:
 a. Modificación
 Corresponde al proceso a través del cual la municipalidad realiza la transformación, alteración o adición parcial de los contenidos del Plan Regulador o Reglamentos de Desarrollo Urbano vigentes.
-Es recomendable que las modificaciones parciales se realicen al menos cada 5 años, a partir de su aprobación, con base en lo indicado en el “Informe quinquenal de evaluación del Plan Regulador ”.
+Es recomendable que las modificaciones parciales se realicen al menos cada 5 años, a partir de su aprobación, con base en lo indicado en el "Informe quinquenal de evaluación del Plan Regulador ".
 Entre las posibles modificaciones se encuentran las siguientes:
 Conformar, calzar o acomodar un elemento cartográfico en cuanto a su ubicación geográfica con respecto a otro elemento cartográfico de referencia
 Hacer ajustes cartográficos para adecuar elementos al sistema de coordenadas geográficas CRTM-05 o al sistema vigente
@@ -946,6 +982,10 @@ Objetivos de desarrollo urbano
 Horizonte temporal del Plan Regulador
 Principios
 Normativa en que se fundamenta
+Para aquellas modificaciones parciales que se encuentren referidas a la transformación del espacio físico, se debe señalar su ubicación en un distrito, o en su defecto en un elemento territorial más pequeño, siempre que se ajuste a unidades geoestadísticas. Lo anterior con la intención que permitan establecer su justificación técnica, así como identificar su impacto en el entorno.
+(Así adicionado el párrafo anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
+Si la modificación planteada abarca la totalidad del cantón, se entenderá como actualización del instrumento como tal, y por tanto se someterá a la totalidad de las actividades planteadas en la sección 4.2. Segunda etapa: Diagnóstico territorial.
+(Así adicionado el párrafo anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 b. Suspensión
 Consiste en el proceso a través del cual la municipalidad detiene parcialmente, durante un periodo de tiempo definido la aplicación del Plan Regulador y los Reglamentos de Desarrollo Urbano vigentes. El período de tiempo durante el cual rige la suspensión debe ser justificado técnica y legalmente. Se recomienda que todo proceso de suspensión se realice de forma simultánea a un proceso de modificación.
 La suspensión puede ser motivada, entre otras, por condiciones tales como las indicadas a continuación:
@@ -966,7 +1006,6 @@ Caducidad de una norma específica dentro del Plan Regulador o los Reglamentos d
 Cuando una norma quede sin efecto por su falta de aplicación práctica
 Promulgación de una norma que deja sin efecto la aplicación del Plan Regulador o los Reglamentos de Desarrollo Urbano
 En la Figura N°7 se indican las actividades que conforman la Quinta Etapa, así como los productos esperados resultantes del desarrollo de cada actividad.
-[imagen]
 5.2.1. Actividades de la Sexta Etapa
 A continuación, se indican las actividades que conforman la Sexta etapa.
 ü Actividad N°6.1. Estimación del Presupuesto Global
@@ -975,35 +1014,45 @@ La municipalidad puede elaborar un Presupuesto Global sobre el costo del desarro
 Una vez que cuente con un Presupuesto Global, la municipalidad puede gestionar los recursos financieros requeridos para llevar a cabo la Sexta y Sétima Etapas de la Fase de Gestión del Plan Regulador , ante el IFAM, el MIDEPLAN, así como ante otras entidades que ofrezcan financiamiento para dicho fin. Es recomendable que previo a dar inicio a las etapas subsiguientes, la municipalidad cuente con una fuente de financiamiento asegurada para llevar a conclusión el
 procedimiento.
 Actividad N°6.3. Formulación de la propuesta de modificación, suspensión o derogación
-La municipalidad puede formular una propuesta de modificación, suspensión o derogación del Plan Regulador y los Reglamentos de Desarrollo Urbano vigentes, de conformidad con los resultados indicados en el “Informe quinquenal de evaluación del Plan Regulador ” desarrollado en la Actividad 5.4.
+La municipalidad puede formular una propuesta de modificación, suspensión o derogación del Plan Regulador y los Reglamentos de Desarrollo Urbano vigentes, de conformidad con los resultados indicados en el "Informe quinquenal de evaluación del Plan Regulador " desarrollado en la Actividad 5.4.
 En todos los casos la propuesta se debe justificar técnica y legalmente e incluye la delimitación puntual de los aspectos a modificar, suspender o derogar, así como el Área de Planificación afectada.
+De manera congruente con lo anterior, la municipalidad respectiva debe presentar ante el Departamento de Urbanismo de INVU mediante nota escrita en físico o digital, una breve justificación técnica de la propuesta de modificación, suspensión o derogación, indicando si la misma es parcial o total. Lo anterior con la intención de contar con el Visto Bueno del Departamento de Urbanismo, y continuar posteriormente con el desarrollo de los productos resultantes. Para lo anterior, el Instituto contará con un plazo de 10 días hábiles para emitir el Visto Bueno.
+(Así adicionado el párrafo anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
+Este Visto Bueno consignará el alcance de la modificación que se propone, así como los estudios necesarios para llevarla a cabo, de modo que la municipalidad pueda tener claridad sobre los productos a entregar.
+(Así adicionado el párrafo anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 5.2.2. Productos de la Sexta Etapa
 Los productos vinculantes resultantes tras la ejecución de las diversas actividades que
 componen esta etapa son los siguientes:
-Documento titulado “Modificación del Plan Regulador ”; “Suspensión del Plan Regulador ” o “Derogación del Plan Regulador ”
+Documento titulado "Modificación del Plan Regulador "; "Suspensión del Plan Regulador " o "Derogación del Plan Regulador "
 Los productos optativos resultantes tras la ejecución de las diversas actividades que componen esta etapa son los siguientes:
-Documento titulado “Presupuesto Global”
+Documento titulado "Presupuesto Global"
 Fuente de financiamiento asegurada
 Términos de Referencia
 Selección del Equipo Planificador
+(*)Para el caso específico de las modificaciones de elementos físicos y reglamentarios, dicho documento debe contener dentro del Diagnóstico Territorial, un análisis físico espacial, social, económico, político institucional, jurídico y ambiental, según lo indicado en la Actividad 2.5. Análisis por Eje del presente Manual, contemplando los temas, variables y productos señalados desde la Tabla N°4 hasta la Tabla N°9, aspectos que deben ser consignados en la nota de justificación para gestionar el Visto Bueno ante el INVU, según lo señalado en la actividad N°6.3. Además, dentro del documento citado debe incluirse la formulación de la propuesta de modificación, indicando según el caso, lo siguiente:
+- Modificaciones a los Reglamentos de Construcciones, Renovación Urbana, Fraccionamiento y Urbanizaciones, u otros adicionales.
+- Modificaciones de los Mapas del Atlas Cartográfico: Zonificación, Vialidad y Mapa Oficial.
+(*)(Así adicionado el párrafo anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
+El Plan Regulador a modificar debe contar con la viabilidad ambiental emitida por SETENA, de manera que ésta funcione como base para el ajuste. En caso que la modificación corresponda a un Plan Regulador que no tenga viabilidad ambiental, debe cumplir a cabalidad lo establecido en el Capítulo IV. Fase de Elaboración del Plan Regulador del presente Manual.
+(Así adicionado el párrafo anterior mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 5.3. Sétima etapa: Asesoría, revisión y adopción de la modificación, suspensión o derogación de un Plan Regulador
 Corresponde a las actividades desarrolladas por el gobierno municipal para recibir asesoría, someter a revisión la propuesta de modificación, suspensión y derogación del Plan Regulador y los Reglamentos de Desarrollo Urbano vigentes y posteriormente proceder a su adopción.
-En la revisión de la propuesta la realiza el INVU, en caso de ser necesario se coordina con el SENARA y la SETENA58, según sus competencias en la materia.
-58 En atención al principio de coordinación institucional e interinstitucional, según el Artículo 6 del Reglamento a la Ley N°8220 de Protección al Ciudadano del Exceso de Trámites y Requisitos Administrativos Decreto Ejecutivo N°37045-MPMEIC
-[imagen]
+La revisión de la propuesta la realiza el INVU, en caso de ser necesario se coordina con la SETENA, según sus competencias en la materia.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 5.3.1. Actividades de la Sexta Etapa
 A continuación, se indican las actividades que conforman la Sétima etapa.
 ü Actividad N°7.1. Solicitud de asesoría en la formulación de la propuesta de modificación, suspensión o derogación
 La municipalidad puede solicitar al INVU, mediante oficio o correo electrónico, asesoría y
 asistencia durante la Fase de Gestión del Plan Regulador . Esta actividad no corresponde a la revisión ni aprobación del Plan Regulador .
-ü Actividad N°7.2. Asesoría del INVU en coordinación con la SETENA y el SENARA
-Según la responsabilidad institucional de asesorar y prestar asistencia a diferentes actores sociales en la materia, cuando se considere necesario, el INVU puede convocar a representantes de la SETENA, el SENARA y a la municipalidad a una o varias sesiones de trabajo para aclarar aspectos relacionados al Plan Regulador . En caso de que alguna de las entidades mencionadas requiera sesionar, puede enviar la solicitud al INVU para que éste realice la respectiva convocatoria.
-Durante esta actividad, cada institución se puede pronunciar de acuerdo a sus competencias59, en cumplimiento de la normativa vigente. En caso de que alguna institución competente recomiende hacer cambios o inclusiones a la propuesta, lo puede comunicar mediante oficio al gobierno municipal, incluyendo la respectiva justificación técnica y legal.
-59 El criterio emitido por el INVU durante la Actividad 4.2 no corresponde a una resolución de aprobación o rechazo.
-ü Actividad N°7.3. Gestión de la Viabilidad Ambiental para modificaciones
-En caso de ser necesario, la municipalidad debe gestionar lo correspondiente ante la SETENA con relación a la resolución ambiental, y ante el SENARA con relación a la resolución en materia hidrogeológica. Una vez que se cuente con ambas resoluciones positivas puede proseguir con la Actividad 7.4.
-Los lineamientos emitidos por ambas instituciones en sus resoluciones deben incluirse en las modificaciones o actualizaciones que se efectúen al Plan Regulador. Dichos lineamientos no pueden variar, salvo nuevo estudio técnico que justifique el cambio aprobado por los entes competentes.
-Para los trámites de suspensión y derogación se omite el desarrollo de esta Actividad.
+ü Actividad 7.2. Asesoría del INVU en coordinación con la SETENA
+(Así reformado el punto anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
+Según la responsabilidad institucional de asesorar y prestar asistencia a diferentes actores sociales en la materia, cuando se considere necesario, el INVU puede convocar a representantes de la SETENA y a la municipalidad a una o varias sesiones de trabajo para aclarar aspectos relacionados al Plan Regulador.
+(Así reformado el punto 7.2 anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
+ü 7.3. Gestión de la Viabilidad Ambiental para modificaciones:
+(Así reformado el punto anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
+En caso de ser necesario, la municipalidad debe gestionar lo correspondiente ante la SETENA en relación con la resolución ambiental. Una vez que se cuente con ambas resoluciones positivas puede proseguir con la Actividad 7.4.
+Los lineamientos emitidos por dicha Institución en su resolución deben incluirse en las modificaciones o actualizaciones que se efectúen al Plan Regulador. Dichos lineamientos no pueden variar, salvo nuevo estudio técnico que justifique el cambio aprobado por los entes competentes.
+(Así reformado el punto 7.3 anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 ü Actividad 7.4. Audiencia Pública
 El gobierno municipal debe divulgar y convocar a una Audiencia Pública con la finalidad de dar a conocer la propuesta de modificación, suspensión o derogación de Plan Regulador y Reglamentos de Desarrollo Urbano, así como recibir las observaciones verbales y escritas de los vecinos o interesados60.
 60 Artículo 17, Inciso 1) y 23 de la Ley de Planificación Urbana Nº4240
@@ -1035,22 +1084,24 @@ Es recomendable que la propuesta sea adoptada de manera inmediata una vez que se
 temporal definido en la Política de Desarrollo Urbano66.
 Actividad 4.5, se recomienda que lo comunique mediante oficio a los entes competentes en la materia y que dicho plazo no exceda los dos años, con la finalidad de que los estudios no pierdan vigencia.
 ü Actividad N°7.8. Publicación
-Posterior a su adopción, el gobierno municipal debe publicar en La Gaceta el aviso de adopción acordado, así como el documento titulado “Modificación del Plan Regulador ”; “Suspensión del Plan Regulador ” o “Derogación del Plan Regulador ” según corresponda debidamente firmado y sellado por el INVU, indicando la fecha a partir de la cual entra en vigencia su aplicación67.
+Posterior a su adopción, el gobierno municipal debe publicar en La Gaceta el aviso de adopción acordado, así como el documento titulado "Modificación del Plan Regulador "; "Suspensión del Plan Regulador " o "Derogación del Plan Regulador " según corresponda debidamente firmado y sellado por el INVU, indicando la fecha a partir de la cual entra en vigencia su aplicación67.
 67 Artículo 17, Incisos 3) y 4) de la Ley de Planificación Urbana Nº4240
 5.3.2. Productos de la Sétima Etapa
 Los productos vinculantes resultantes tras la ejecución de las diversas actividades que
 componen esta etapa son los siguientes:
-Resolución hidrogeológica de SENARA
+(Derogado este punto mediante sesión ordinaria N°6520 del 02 de diciembre de 2021)
 Resolución ambiental de SETENA
 Publicación en La Gaceta de convocatoria para la Audiencia Pública
 Acuerdo del gobierno municipal avalando la remisión de la propuesta de modificación, suspensión o derogación del Plan Regulador y Reglamento de Desarrollo Urbano para revisión
 Oficio del INVU, dirigido al gobierno municipal que incluye la resolución de aprobación o rechazo68 de la propuesta, con fundamento técnico y legal
 68 Artículos 10 inciso 1), 17, inciso 2) y 18 de la Ley de Planificación Urbana Nº4240
-Copias digitales y físicas del documento titulado “Modificación del Plan Regulador”; “Suspensión del Plan Regulador” o “Derogación del Plan Regulador” según corresponda debidamente firmados y sellados (en caso de aprobación)
+Copias digitales y físicas del documento titulado "Modificación del Plan Regulador"; "Suspensión del Plan Regulador" o "Derogación del Plan Regulador" según corresponda debidamente firmados y sellados (en caso de aprobación)
 Acuerdo Municipal de adopción del Plan Regulador y Reglamentos de Desarrollo Urbano aprobados (en caso de aprobación)
-Publicación en La Gaceta sobre el aviso de adopción acordado, así como el documento titulado “Modificación del Plan Regulador ”; “Suspensión del Plan Regulador” o “Derogación del Plan Regulador” según corresponda (en caso de aprobación)
+Publicación en La Gaceta sobre el aviso de adopción acordado, así como el documento titulado "Modificación del Plan Regulador "; "Suspensión del Plan Regulador" o "Derogación del Plan Regulador" según corresponda (en caso de aprobación)
 Los productos optativos resultantes tras la ejecución de las diversas actividades que componen esta etapa son los siguientes:
 Oficio o correo electrónico del gobierno municipal dirigido al INVU solicitando asesoría y asistencia.
-Oficios del INVU, la SETENA y la SENARA indicando recomendaciones sobre cambios e inclusiones a la propuesta, en caso de haberlas
+Oficios del INVU y la SETENA indicando recomendaciones sobre cambios e inclusiones a la propuesta, en caso de haberlas
+(Así reformado el punto anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
 Informe de la Comisión de Plan Regulador dirigido al gobierno municipal, con la valoración de las observaciones recibidas en Audiencia Pública, señalando cuales se estima conveniente incorporar y desestimar.
-Oficios de la SETENA y el SENARA dirigido al gobierno municipal indicando si debe gestionar la elaboración o actualización de la Viabilidad Ambiental y recomendaciones sobre cambios e inclusiones a la propuesta (únicamente para el caso de modificación)
+Oficios de la SETENA dirigido al gobierno municipal indicando si debe gestionar la elaboración o actualización de la Viabilidad Ambiental, y recomendaciones sobre cambios e inclusiones a la propuesta (únicamente para el caso de modificación)
+(Así reformado el punto anterior mediante sesión ordinaria N° 6520 del 2 de diciembre del 2021)
