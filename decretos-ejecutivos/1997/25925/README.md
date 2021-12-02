@@ -20,3 +20,4 @@ Reglamento sobre Criterios Objetivos de Selección de Contribuyentes para Fiscal
 | 5 | 2001-03-22 | Decreto Ejecutivo 29465 (2001-03-22) |
 | 6 | 2001-12-17 | Decreto Ejecutivo 30073 (2001-12-17) |
 | 7 | 2005-01-14 | Resolución 2 (2005-01-14) |
+| 8 | 2021-12-02 | Decreto Ejecutivo 43388 (2021-12-02) |

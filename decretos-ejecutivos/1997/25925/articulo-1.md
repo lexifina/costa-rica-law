@@ -3,21 +3,23 @@ EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA,
 Con fundamento en el artículo 140, incisos 3) y 18) de la Constitución Política, y
 Considerando:
-1°—Que el artículo 103 de la ley No 4755 del 29 de abril de 1971 y sus reformas. Código de Normas y Procedimientos Tributarios, faculta a la Administración Tributaria para verificar el correcto cumplimiento de las obligaciones tributarias por parte de los sujetos pasivos por todos los medios y procedimientos legales.
-2°—Que el Decreto Ejecutivo N° 25050-H de los veintiséis días del mes de marzo de mil novecientos noventa y seis, en su artículo 2°, establece que la lista de criterios establecida en el artículo 1° de dicho decreto se revisará anualmente y se publicará, a más tardar en la última semana de enero de cada año. Por tanto,
+1°-Que el artículo 103 de la ley No 4755 del 29 de abril de 1971 y sus reformas. Código de Normas y Procedimientos Tributarios, faculta a la Administración Tributaria para verificar el correcto cumplimiento de las obligaciones tributarias por parte de los sujetos pasivos por todos los medios y procedimientos legales.
+2°-Que el Decreto Ejecutivo N° 25050-H de los veintiséis días del mes de marzo de mil novecientos noventa y seis, en su artículo 2°, establece que la lista de criterios establecida en el artículo 1° de dicho decreto se revisará anualmente y se publicará, a más tardar en la última semana de enero de cada año. Por tanto,
 DECRETAN:
 El siguiente,
 REGLAMENTO SOBRE CRITERIOS OBJETIVOS DE SELECCIÓN DE CONTRIBUYENTES PARA FISCALIZACIÓN
-Articulo 1°—La selección de contribuyentes para fiscalización de los impuestos que administra el Ministerio de Hacienda, por medio de la Dirección General de la Tributación Directa, se fundamentará en al menos uno de los siguientes criterios:
-a) Todos los contribuyentes clasificados como Grandes Contribuyentes Nacionales o como Grandes Empresas Regionales podrán, cuando así lo defina y convenga a los intereses de la Administración Tributaria, ser seleccionados para ser fiscalizados, corresponde a la Dirección General de Tributación emitir los criterios para la clasificación de los contribuyentes dentro de las categorías de Grandes Contribuyentes y de Grandes Empresas Regionales.
+Articulo 1°-La selección de contribuyentes para fiscalización de los impuestos que administra el Ministerio de Hacienda, por medio de la Dirección General de la Tributación Directa, se fundamentará en al menos uno de los siguientes criterios:
+a) Todos los contribuyentes clasificados como Grandes Contribuyentes Nacionales podrán, cuando así lo defina y convenga a los intereses de la Administración Tributaria, ser seleccionados para ser fiscalizados, corresponde a la Dirección General de Tributación emitir los criterios para la clasificación de los contribuyentes dentro de la categoría de Grandes Contribuyentes.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43388 del 2° de diciembre de 2021)
 b) Que la información consignada en las declaraciones tributarias correspondientes a los distintos impuestos administrados por la Dirección General, registre valores diferentes a los detectados por medio de información interna o externa.
 c) Que sus indicadores tributarios o financieros se desvíen significativamente de los indicadores promedio de la actividad económica en que se desempeñan.
-d) Que generen saldos a favor en el impuesto sobre las Ventas, durante tres o más meses consecutivos o alternos del periodo comprendido entre octubre de un año y setiembre del siguiente. También se podrá aplicar este criterio de selección en aquellos casos en que los créditos aplicados en la declaración de un mes determinado, representen un monto significativo en relación con el impuesto declarado.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 27651 de 05 de febrero de 1999. públicado en La Gaceta N° 42 de 02 de marzo de 1999, el cual reformó el inciso d) del presente artículo.)
+d) Que generen saldos a favor en el impuesto sobre las Ventas, durante tres o más meses consecutivos o alternos del periodo comprendido de octubre de un año a setiembre del siguiente, y tratándose del Impuesto sobre el Valor Agregado, de enero a diciembre de un mismo año. También se podrá aplicar este criterio de selección en aquellos casos en que los créditos aplicados en la declaración de un mes determinado, representen un monto significativo en relación con el impuesto declarado.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43388 del 2° de diciembre de 2021)
 e) Que gocen de beneficios fiscales amparados a contratos especiales (forestales, industriales, turísticos, de exportación y otros que se lleguen a dar).
 f) Que hubieren incurrido en alguno de los siguientes incumplimientos a sus deberes tributarios:
 1. Que hubieren omitido la presentación de alguna de las declaraciones impositivas o informativas, a que estuvieren obligados.
-2. Que no hubieren atendido adecuadamente los requerimientos de información de trascendencia tributaria que se le hubieren formulado, incluyendo el incumplimiento del deber de presentar, ante el requerimiento que expresamente le formule la Administración Tributaria, todos los estados financieros y notas explicativas, a que se refiere el párrafo 6 del apartado A de la Resolución de la Dirección General de Tributación, 52-01 de las 8 horas del 6 de diciembre del 2001.
+2. Que no hubieren atendido adecuadamente los requerimientos de información de trascendencia tributaria que se le hubieren formulado.
+(Así reformado el subinciso anterior por el artículo 1° del decreto ejecutivo N° 43388 del 2° de diciembre de 2021)
 3. Que no hubieren practicado las retenciones que establecen las leyes impositivas o que las practicadas muestren diferencias con respecto a los valores detectados por la Administración Tributaria.
 4. Que, previamente requerido para que presente las declaraciones tributarias que hubiere omitido, las presente igualando los ingresos que se le imputan con los costos y deducciones o cuando estos últimos superen a aquellos.
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 29465 de 22 de marzo de 2001 públicado en La Gaceta N° 95 de 18 de mayo de 2001, el cual reformó el inciso a), d) y f) del presente artículo.)
@@ -29,31 +31,31 @@ h) Que no apliquen correctamente las tarifas de impuesto del cual sean sujetos p
 (Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 26796 de 04 de marzo de 1998, publicado en La Gaceta N° 65 de 02 de abril de 1998, el cual adicionó el inciso h) del presente artículo.)
 i) Que haya presentado declaración rectificativa mediante la cual se hubiese disminuido el impuesto o aumentado el saldo a favor, determinados en declaraciones anteriores.
 j) Que hubiera tenido o que mantenga, operaciones económicas con las entidades no sujetas al impuesto sobre las utilidades establecidas en el inciso ch) del artículo 3º de la Ley del Impuesto sobre la Renta, Nº 7092 del 21 abril de 1988.
-k)Que pertenezca a los sectores o actividades económicas que establezca la Dirección General de Tributación, mediante resolución publicada con antelación al inicio del Plan Anual de Fiscalización.
-(Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 28455 de 12 de enero de 2000, publicado en La Gaceta N° 38 de 23 de febrero de 2000, el cual adicionó el inciso i), j) y k) del presente artículo.)
-l) Que hubieren efectuado la revaluación de sus activos para el periodo 2000 del impuesto sobre las utilidades, utilizando métodos diferentes a los establecidos por la Dirección General de Tributación, mediante resolución 30/200 de las 8,00 horas del 20 de noviembre del 2000, publicada en La Gaceta Nº 233 del 5 de diciembre del 2000.
+k) Que pertenezca a los sectores o actividades económicas que establezca la Dirección General de Tributación, mediante resolución establecida al efecto. En el tanto en que no se efectúe la publicación de una nueva resolución, seguirán rigiendo los criterios en vigencia.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43388 del 2° de diciembre de 2021)
+l) (Derogado por el artículo 3° del decreto ejecutivo N° 43388 del 2° de diciembre de 2021)
 (Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 29465 de 22 de marzo de 2001 públicado en La Gaceta N° 95 de 18 de mayo de 2001.)
-m) Que estuvieren vinculados con sujetos pasivos que sean objeto de actuaciones fiscalizadoras. Se considerarán personas o entidades vinculadas las siguientes:
-1. Una sociedad y sus socios.
-2. Una sociedad y sus consejeros o administradores.
-3. Una sociedad y los cónyuges, ascendientes o descendientes de los socios, consejeros o administradores.
-4. Una sociedad y los socios de otra sociedad, cuando ambas sociedades pertenezcan al mismo grupo de sociedades.
-5. Una sociedad y los consejeros o administradores de otra sociedad, cuando ambas pertenezcan al mismo grupo de sociedades.
-6. Una sociedad y los cónyuges, ascendientes o descendientes de los socios o consejeros de otra sociedad, cuando ambas sociedades pertenezcan al mismo grupo de sociedades.
-7. Una sociedad y otra sociedad participada por la primera indirectamente en, al menos, el 25 por 100 del capital social.
-8. Dos sociedades en las cuales los mismos socios o sus cónyuges, ascendientes o descendientes participen, directa o indirectamente en, al menos, el 25 por 100 del capital social.
-9. Dos sociedades, cuando una de ellas ejerce el poder de decisión sobre la otra.
-n) Que los intereses y otros gastos financieros deducidos superen el 50% de la renta imponible. Este criterio no se aplicará a entidades financieras.
+m) Que estuvieren m) Que estuvieren vinculados con sujetos pasivos que sean objeto de actuaciones fiscalizadoras. Se considerarán personas o entidades vinculadas las personas físicas o jurídicas que califiquen en alguna de las siguientes situaciones:
+i. Una de ellas dirija o controle a la otra o posea, directa o indirectamente, al menos el 25% de su capital social o de sus derechos a voto.
+ii. Cuando cinco o menos personas dirijan o controlen ambas personas jurídicas, o posean en su conjunto, directa o indirectamente, al menos el 25% de participación en el capital social o los derechos a voto de ambas personas.
+iii. Cuando se trate de personas jurídicas que constituyan una misma unidad de decisión. En particular, se presumirá que existe unidad de decisión cuando una persona jurídica sea socia o partícipe de otra y se encuentre en relación con ésta en alguna de las siguientes situaciones:
+a. Que posea la mayoría de los derechos de voto.
+b. Que tenga facultad de nombrar o destituir a la mayoría de los miembros del órgano de administración.
+c. Que pueda disponer, en virtud de acuerdos celebrados con otros socios, de la mayoría de los derechos de voto.
+d. Que haya designado exclusivamente con sus votos a la mayoría del órgano de administración.
+e. Que la mayoría de los miembros del órgano de administración de la persona jurídica dominada, sean miembros del órgano de administración o altos ejecutivos de la persona jurídica dominante o de otra dominada por esta.
+iv. Cuando dos o más personas jurídicas formen cada una de ellas, una unidad de decisión respecto de una tercera persona jurídica, en cuyo caso todas ellas integrarán una unidad de decisión.
+A los efectos de este apartado, también se considera que una persona física posee una participación en el capital social o derechos de voto, cuando la titularidad de la participación, directa o indirectamente, corresponde al cónyuge o persona unida por relación de parentesco, en línea directa o colateral, por consanguinidad hasta el cuarto grado o por afinidad hasta el segundo grado.
+También se considerarán partes relacionadas:
+a) En un contrato de colaboración empresarial o un contrato de asociación en participación, cuando alguno de los contratantes o asociados participe directa o indirectamente en más del 25% en el resultado o utilidad del contrato o de las actividades derivadas de la asociación.
+b) Una persona residente en el país y sus establecimientos permanentes en el exterior.
+c) Un establecimiento permanente situado en el país y su casa matriz residente en el exterior, otro establecimiento permanente de la misma o una persona con ella relacionada.
+v. El beneficiario final de una persona o estructura jurídica.
+(Así reformado el inciso m) anterior por el artículo 1° del decreto ejecutivo N° 43388 del 2° de diciembre de 2021)
+n) (Derogado este inciso por el artículo 3° del decreto ejecutivo N° 43388 del 2° de diciembre de 2021)
 o) Que le hubieren sido practicadas liquidaciones previas como producto de actuaciones de comprobación abreviada o formal.
 (Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 30073 de 17 de diciembre de 2001 públicado en La Gaceta N° 10 de 15 de enero de 2002, el cual adicionó los incisos m), n) y o) del presenta artículo.)
-p) También se podrá seleccionar a aquellos comprendidos dentro de los siguientes sectores y actividades económicas:
-1. Importación y comercialización de vehículos automotores y sus repuestos.
-2. Venta y alquiler de bienes inmuebles.
-3. Prestación de servicios de educación.
-4. Ejercicio liberal de profesiones.
-5. Servicios relacionados con el turismo tales como hoteles, transporte, operadores turísticos, agencias de viaje, excursiones, esparcimiento, y similares.
-6. Centros de colocación de apuestas, de juegos de azar, casinos virtuales y explotación de máquinas tragamonedas.
-7. Extracción y comercialización de piedra, arcilla y arena.
-8. Imprentas y litografías.
-9. Sujetos pasivos de cualquier sector o actividad económica que, como consecuencia de haber sido objeto de actuaciones abreviadas, o que al iniciárseles dicho procedimiento, hubieren presentado las declaraciones tributarias o hubieren recti.cado las presentadas inicialmente.
+p) (Derogado por el artículo 3° del decreto ejecutivo N° 43388 del 2° de diciembre de 2021)
 (Así ampliado el inciso p), mediante el artículo 1° de la resolución No. DGT-02, de las ocho horas del 14 de enero del 2005.)
+q) Manifestaciones de signos de riqueza sin renta conocida.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 43388 del 2° de diciembre de 2021)
