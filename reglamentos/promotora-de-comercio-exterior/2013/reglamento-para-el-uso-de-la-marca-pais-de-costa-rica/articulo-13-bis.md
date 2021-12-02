@@ -1,0 +1,5 @@
+Artículo 13 bis.- Alcance del otorgamiento de la licencia.
+El otorgamiento de la licencia de uso de conformidad con los términos establecidos en el presente Reglamento, no implicará ni podrá interpretarse de que PROCOMER garantiza, avala o respalda la calidad, efectividad o aprueba los productos, servicios, procesos o las opiniones emitidas por la organización licenciataria.
+La entidad que avala que los procesos de la organización licenciataria cumplen con los requisitos e indicadores establecidos en el esquema de evaluación vigente, es el organismo certificador acreditado por el ECA.
+El otorgamiento de una licencia de uso no conferirá al licenciatario ningún derecho de propiedad, titularidad, o disposición de la marca, ni por interpretación ni por ampliación, ni tampoco le conferirá ningún derecho de uso o aprovechamiento distinto o en adición a los indicados expresamente en este Reglamento.
+Así añadido por la Junta Directiva de PROCOMER en la sesión 391-2021 del 08 de noviembre del 2021.

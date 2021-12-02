@@ -16,3 +16,4 @@ Reglamento para el uso de la Marca País de Costa Rica
 | 1 | 2013-11-21 | la propia norma |
 | 2 | 2018-02-05 | Reglamento 350 (2018-02-05) |
 | 3 | 2020-06-14 | Reglamento 368 (2020-06-14) |
+| 4 | 2021-12-02 | Reglamento 391 (2021-12-02) |

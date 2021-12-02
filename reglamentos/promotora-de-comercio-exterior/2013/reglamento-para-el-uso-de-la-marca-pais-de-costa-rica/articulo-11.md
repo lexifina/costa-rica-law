@@ -1,7 +1,7 @@
 CAPÍTULO III
-Del uso de la Marca País Costa Rica
+Del uso de la marca país esencial COSTA RICA
 Artículo 11.- Objetivos del uso de la Marca País
-El uso de la Marca País Costa Rica busca:
+El uso de la marca país esencial COSTA RICA busca:
 a) La promoción de Costa Rica y los valores costarricenses.
 b) La competitividad de las exportaciones costarricenses.
 c) Mejorar la proyección de los productos costarricenses como productos de excelente calidad, innovadores y sostenibles.

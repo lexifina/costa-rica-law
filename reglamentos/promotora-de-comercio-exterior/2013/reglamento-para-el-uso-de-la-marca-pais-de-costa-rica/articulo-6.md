@@ -1,5 +1,5 @@
 Artículo 6.- Objetivos de la Marca País
-La marca país tiene los siguientes objetivos:
+La Marca País tiene los siguientes objetivos:
 a) Posicionar a Costa Rica en los mercados destino con el fin de potenciar la promoción de la atracción de la inversión extranjera directa al país, en sectores estratégicos como la manufactura de alta tecnología y los servicios de alto valor agregado, entre otros.
 b) Promover la exportación de productos de valor agregado en los cuales se aprecie su sentido de exclusividad, distinción y calidad internacional.
 c) Promover la atracción del turismo selectivo para mercados específicos a través de un abanico amplio de productos como turismo de negocios, el de aventura, el sostenible, entre otros.

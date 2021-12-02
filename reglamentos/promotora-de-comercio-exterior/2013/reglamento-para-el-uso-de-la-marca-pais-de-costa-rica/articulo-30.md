@@ -1,5 +1,5 @@
 Artículo 30.-Uso de medios electrónicos
-PROCOMER podrá autorizar que determinados trámites establecidos en el presente reglamento se realicen a través de los medios electrónicos implementados.
+PROCOMER podrá autorizar que determinados trámites establecidos en el presente Reglamento se realicen a través de los medios electrónicos implementados.
 Asimismo, en los diferentes trámites contemplados en el presente Reglamento en los cuales se exija la presentación de documentos físicos, debe entenderse que, si los medios tecnológicos lo permiten, el documento electrónico podrá sustituir el documento físico.
 En tales casos, cualquier manifestación con carácter representativo o declarativo, expresada o transmitida por un medio electrónico o informático, se tendrá por jurídicamente equivalente a los documentos que se otorguen, reciban o transmitan por medios físicos.
 Asimismo, en aquellos casos en que PROCOMER decida realizar la implementación de los trámites electrónicos por etapas se podrá sustituir la presentación física de tales documentos por una remisión electrónica del documento digitalizado. En estos casos los interesados deberán mantener debidamente archivados los documentos físicos originales.
