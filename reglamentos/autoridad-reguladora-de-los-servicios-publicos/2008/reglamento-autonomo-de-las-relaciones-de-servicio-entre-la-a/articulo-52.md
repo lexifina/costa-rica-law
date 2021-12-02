@@ -1,10 +1,5 @@
-Artículo 52. Solicitud de estudios individuales de puestos. La jefatura superior solicitará a Recursos Humanos cuando corresponda, el estudio individual de puestos bajo su responsabilidad.
-El estudio de puestos también podrá ser solicitado por el funcionario interesado a su respectiva jefatura, a fin que ésta lo canalice hacia Recursos Humanos. En caso de que la jefatura no estuviera de acuerdo en que se realice el estudio debe justificarlo en la solicitud.
-En ambos casos, es necesario que haya ocurrido una variación sustancial y permanente en la razón de ser del puesto (su naturaleza, su propósito, sus exigencias y sus funciones), o bien en los productos o entregables, al menos en los últimos seis meses.
-En la solicitud se debe indicar cuáles fueron las razones o hechos que dieron origen a la variación sustancial y permanente del puesto, y aportar los documentos que lo demuestren.
-Además de lo indicado, se debe describir el impacto en la prestación del servicio, en los costos y resultados medidos a través de los indicadores del desempeño, si los hay. Se debe adjuntar a la solicitud una certificación del contenido presupuestario que respalde la posible reasignación.
-En caso de que la solicitud, no cumpla con lo que se dispone para cada caso, no será admisible para estudio y así se dispondrá por parte de Recursos Humanos.
-Recursos Humanos verificará que se haya dado una variación sustancial y permanente en el puesto. Esta dependencia presentará el informe final del estudio del o los puestos, al jerarca superior administrativo, con el análisis de las evidencias documentales que respaldan sus recomendaciones
-El jerarca superior administrativo es quien tiene la competencia de aprobar o improbar mediante resolución motivada, la recomendación emitida por Recursos Humanos. La resolución tendrá los recursos ordinarios dispuestos en la Ley General de Administración Pública.
-Esta disposición será complementada con un procedimiento para realizar los estudios de puestos.
-(Así reformado en sesión N° 27 del 6 de junio de 2017)
+Artículo 52. -Solicitud de estudios individuales de puestos. Los estudios individuales de puestos podrán ser solicitados por:
+1-La jefatura superior.
+2-La persona funcionaria interesada.
+En caso de que la jefatura no estuviera de acuerdo en que se realice el estudio, emitirá su criterio a solicitud de Recursos Humanos.
+En ambos casos, es necesario que haya ocurrido una variación sustancial y permanente en la razón de ser del puesto (su naturaleza, su propósito, sus exigencias, sus funciones y grado de responsabilidad), o bien en los productos o entregables, al menos en los últimos seis meses, salvo que se encuentre vacante.

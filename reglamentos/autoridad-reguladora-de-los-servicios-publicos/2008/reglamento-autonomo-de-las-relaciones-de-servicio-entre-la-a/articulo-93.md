@@ -1,5 +1,1 @@
-Artículo 93.—Impugnación del resultado de la evaluación del desempeño. El(la) funcionario(a) que no esté de acuerdo con el resultado de la evaluación del desempeño, podrá impugnarlo, interponiendo los recursos previstos en la Ley General.
-Los recursos deberán plantearse ante la jefatura superior del(de la) funcionario(a) que los interponga, dentro de los cinco días hábiles siguientes, contados a partir del día hábil siguiente al de la comunicación del resultado de la evaluación, indicando las razones por las que no se está de acuerdo con el resultado de la evaluación, acompañando la documentación que se considere necesario para sustentar los recursos.
-La jefatura a la que corresponda resolver el recurso, dispondrá del plazo de ocho días naturales para resolverlo.
-Si se presentara recurso de apelación, éste será elevado al Jerarca Superior Administrativo que corresponda, quien lo resolverá en forma definitiva, en el plazo de ocho días naturales, contados a partir del mismo día en que les fue elevado.
-(Así reformada el párrafo anterior mediante sesión N° 64 del 26 de agosto de 2013)
+Artículo 93.-Impugnación del resultado de la evaluación del desempeño. La persona funcionaria que no esté de acuerdo con el resultado de la evaluación del desempeño comunicada, podrá impugnarlo interponiendo los recursos previstos en la Ley General de Administración Pública.

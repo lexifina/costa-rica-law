@@ -1,3 +1,3 @@
-Artículo 84.—Comisión de salud ocupacional del trabajo. La Institución fortalecerá el funcionamiento de la Comisión de salud ocupacional del trabajo, de la cual Recursos Humanos formará parte.
+Artículo 84.-Comisión de salud ocupacional del trabajo. La Institución fortalecerá el funcionamiento de la Comisión de salud ocupacional del trabajo, de la cual Recursos Humanos formará parte.
 Los miembros de la comisión se capacitarán en salud ocupacional, emergencias y riesgos del trabajo, transmitirá conocimientos y difundirá en la Institución, el uso de métodos y sistemas técnicos de prevención en materia de salud ocupacional.
 La comisión realizará su labor dentro de la jornada laboral, sin perjuicio o menoscabo de los derechos laborales de las personas que la conforman y de las funciones a ellas asignadas.

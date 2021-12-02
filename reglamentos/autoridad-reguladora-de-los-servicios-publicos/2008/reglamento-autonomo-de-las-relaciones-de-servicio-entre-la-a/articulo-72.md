@@ -1,4 +1,4 @@
-Artículo 72.—Peticiones, propuestas, quejas o reclamos. Todo(a) funcionario(a) u organización de éstos(as) podrá presentar peticiones, propuestas, quejas o reclamos.
+Artículo 72.-Peticiones, propuestas, quejas o reclamos. Todo(a) funcionario(a) u organización de éstos(as) podrá presentar peticiones, propuestas, quejas o reclamos.
 Las peticiones, quejas o reclamos se formularán por escrito a la jefatura inmediata o a Recursos Humanos, dependiendo de la naturaleza del asunto. Por excepción, si la urgencia del hecho lo amerita, podrán presentarse en forma verbal.
 La jefatura inmediata o Recursos Humanos, según corresponda, tendrán el deber de responder dentro del tercer día hábil inmediato siguiente a la presentación de la petición, queja o reclamo.
 Las propuestas para mejorar las condiciones laborales o quejas relativas a salud ocupacional, se le presentarán a la Comisión de salud ocupacional del trabajo, la que deberá pronunciarse en los plazos establecidos en la Ley General.

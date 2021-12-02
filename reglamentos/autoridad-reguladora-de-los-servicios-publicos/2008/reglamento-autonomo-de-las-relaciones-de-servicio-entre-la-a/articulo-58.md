@@ -1,5 +1,1 @@
-Artículo 58.—Pago de anualidades. El pago por concepto de anualidades para los(as) funcionarios(as) que se encuentren bajo el régimen de salario base más pluses, se regirá por las disposiciones siguientes:
-a) Para los(as) funcionarios(as) que ingresaron a trabajar para la Institución estando en vigencia el Estatuto de Servidores del Servicio Nacional de Electricidad, publicado en La Gaceta Nº 77, del 22 de abril de 1988, se mantiene el sistema de cálculo de anualidades que oscila dentro del rango del cuatro al seis por ciento inversamente proporcional al salario base.
-b) Para los(as) funcionarios(as) que ingresaron a trabajar para la Institución después de la vigencia del Estatuto de Trabajo de la Autoridad Reguladora, publicado en La Gaceta Nº 93, del 15 de mayo de 1998, se establece como pago de anualidad un tres por ciento del salario base.
-c) Se reconocerá el máximo de anualidades permitidas en el ordenamiento jurídico.
-A los(as) funcionarios(as) que se encuentren bajo el régimen de salario global no les es aplicable el desglose anterior de pago de anualidades.
+Artículo 58.-Pago de anualidades. El pago de anualidad se aplicará a las personas funcionarias contratadas bajo el régimen de salario base más pluses, de conformidad con el ordenamiento jurídico vigente sobre el tema.

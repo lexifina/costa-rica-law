@@ -1,1 +1,2 @@
-Artículo 11.—Vigencia de las ofertas de servicio. Las ofertas de servicio tendrá una vigencia de un año, plazo contado a partir de la fecha de presentación de la oferta, en la Institución.
+Artículo 11.-Vigencia de las ofertas de servicio y la condición de elegibilidad. La vigencia de las ofertas de servicio será de dos años contados a partir de su incorporación al Registro de Oferentes o de la actualización de la oferta por parte de la persona oferente, por los medios establecidos por la institución, la cual constituirá la fecha de su rige.
+La condición de elegible tendrá una vigencia de dos años, plazo contado a partir de la notificación de elegibilidad a la persona candidata.

@@ -1,7 +1,7 @@
 CAPÍTULO III
 De la jornada laboral, el descanso y, el registro
 y control de asistencia
-Artículo 19, Jornada laboral.
+Artículo 19.- Jornada laboral.
 La jornada ordinaria será continua de 40 horas semanales de lunes a viernes. La jornada inicia a las 8:00 horas y concluye a las 16:00 horas para todos los(as) funcionarios(as), sin perjuicio de los ajustes y las modificaciones que se realicen debido a las necesidades de la Institución y a la naturaleza de las labores del (de la) funcionario(a) de que se trate.
 En casos especiales y excepcionales, para la atención de tareas imprevistas o especiales y cuando el buen servicio público y el interés institucional lo justifiquen, el jerarca superior administrativo podrá autorizar con carácter ocasional la modificación temporal de la jornada laboral a 20 horas semanales o a 48 horas semanales, previa solicitud de la jefatura superior, en la cual se justifique el (los) motivo(s), objetivo (s) y plazo de la misma. Bajo ninguna circunstancia la modificación de la jornada puede constituirse en permanente o habitual y los salarios se ajustarán en proporción directa a la jornada de 40 horas.
 En el caso de ampliación de la jornada se deberá contar, de previo a su autorización, con la verificación de contenido presupuestario y bajo ninguna circunstancia se considerará la misma como un derecho adquirido. La jefatura superior del (de la) funcionario(a) será la encargada de verificar el cumplimiento de los términos de la ampliación de jornada y de brindar un informe de resultados al jerarca superior administrativo dentro del plazo ocho días contados a partir del cese de la jornada. Los(as) funcionarios(as) cuya jornada sea variada, podrán negociar con la jefatura superior el horario de la misma, pretendiendo la mayor compatibilidad entre los intereses personales de los funcionarios y los intereses institucionales.
@@ -11,8 +11,7 @@ Serán hábiles para el trabajo, todos los días del año de lunes a viernes, ex
 El Jerarca Superior Administrativo correspondiente, podrá:
 a) Autorizar a las jefaturas superiores para que, de común acuerdo con los(as) funcionarios(as), modifiquen el horario de la jornada laboral a fin de que la Institución preste un mejor servicio.
 b) Modificar los horarios establecidos, mediante acto motivado, siempre que no se perjudique la función pública o a los(as) funcionarios(as). En todo caso, se dará aviso con cinco días hábiles, como mínimo, de anticipación, a los(as) funcionarios(as) que resulten afectados por la modificación de horarios.
-La jornada ordinaria sumada a la extraordinaria no podrá exceder de doce horas diarias.
-El trabajo remunerado por realizar fuera de la jornada ordinaria solo podrá ser autorizado en situaciones excepcionales y en concordancia con la legislación vigente. No se reconocerá como jornada extraordinaria aquella que no hubiere sido debidamente autorizada.
+La jornada ordinaria sumada a la extraordinaria no podrá exceder de doce horas diarias. El trabajo remunerado por realizar fuera de la jornada ordinaria solo podrá ser autorizado en situaciones excepcionales y en concordancia con la legislación vigente. No se reconocerá como jornada extraordinaria aquella que no hubiere sido debidamente autorizada.
 Los(as) funcionarios(as) están obligados a ocupar el tiempo necesario, fuera de la jornada ordinaria, para subsanar los errores que se le hayan imputado en el desempeño de sus funciones, sin que ese tiempo pueda considerarse como extraordinario.
 (Así reformado mediante sesión N° 080 del 17 de diciembre del 2009)
 (Así reformado mediante sesión N° 38-2013 del 13 de mayo del 2013)

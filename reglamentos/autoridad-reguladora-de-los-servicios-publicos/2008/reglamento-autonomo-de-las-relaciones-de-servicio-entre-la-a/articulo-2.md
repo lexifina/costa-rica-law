@@ -1,3 +1,3 @@
-Artículo 2º—Legislación aplicable. Serán aplicables a los(as funcionarios(as), las normas atinentes a la función pública contenidas en la Constitución Política, en la Ley General de la Administración Pública, en la Ley 7593 y su reglamento y, en el presente reglamento.
+Artículo 2º-Legislación aplicable. Serán aplicables a los(as funcionarios(as), las normas atinentes a la función pública contenidas en la Constitución Política, en la Ley General de la Administración Pública, en la Ley 7593 y su reglamento y, en el presente reglamento.
 A falta de disposición en este reglamento y en los cuerpos de normas precitados, se aplicarán por su orden, los principios generales de derecho público, la legislación laboral y sus leyes conexas, los decretos ejecutivos y la jurisprudencia.
 En caso de duda en cuanto a la interpretación de los artículos de este reglamento, se aplicará el Principio de la norma más favorable al trabajador.

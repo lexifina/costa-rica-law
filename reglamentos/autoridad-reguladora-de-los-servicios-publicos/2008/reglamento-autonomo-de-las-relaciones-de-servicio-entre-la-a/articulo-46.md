@@ -1,1 +1,4 @@
-Artículo 46.—Contenido del estudio de puestos. El estudio de clasificación y valoración de puestos que se implemente en la Institución, incluirá al menos la redacción o actualización del manual descriptivo de clases y del manual descriptivo de cargos.
+Artículo 46.-Actualizacion de los manuales de clases y cargos. Recursos Humanos deberá proponer al Jerarca Superior Administrativo la actualización de los manuales de clases y cargos cuando haya cambios normativos, organizacionales u otros que lo justifiquen.
+Cuando los cambios que se realicen en los manuales de clases y de cargos sean comunes para la Aresep y la Sutel, deben ser analizados en forma conjunta, previo a ser sometido para su aprobación a Junta Directiva. En caso de no ser comunes, en el caso de manual de cargos, no se requerirá analizarse conjuntamente.
+El control de cambios y la divulgación del manual de clases será responsabilidad de Recursos Humanos de la Aresep.
+Podrá establecerse un manual de cargos de forma separada para distinguir los cargos específicos de la Aresep y su órgano desconcentrado, sobre la base de la metodología común acordada entre ambas.

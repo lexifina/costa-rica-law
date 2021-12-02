@@ -1,1 +1,1 @@
-Artículo 92.—Período de evaluación del desempeño. Anualmente, la jefatura inmediata o la superior evaluará el desempeño del(de la) funcionario(a).
+Artículo 92.-Período de evaluación del desempeño. El periodo de evaluación del desempeño comprende de enero a diciembre. La jefatura inmediata o la superior evaluará el desempeño de la persona funcionaria de conformidad con la normativa vigente.

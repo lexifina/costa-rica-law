@@ -1,2 +1,1 @@
-Artículo 8º—Oferta de servicios. El(la) interesado(a) en establecer una relación de servicio con la Institución, solicitará, llenará y entregará la oferta de servicios ante Recursos Humanos.
-Recursos Humanos mantendrá actualizado, permanentemente, el registro de elegibles para cada clase de puestos.
+Artículo 8º-Oferta de servicios. Formulario autorizado por Recursos Humanos, mediante el cual los oferentes internos o externos manifiestan su interés para ser considerados en una plaza en la institución, y que haya sido recibida por Recursos Humanos.

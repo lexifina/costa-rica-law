@@ -1,0 +1,7 @@
+Artículo 30 bis- Proceso para ocupar plazas por ausencia del titular. Recursos Humanos gestionará los nombramientos para ocupar plazas por ausencia del titular, de acuerdo con lo establecido en los instrumentos de reclutamiento y selección vigentes.
+Para ocupar plazas por ausencia de titular se aplicará:
+1. Recursos Humanos remitirá a la jefatura la nómina del registro de elegibles internos si los hubiese, como la primera fuente de personas candidatas a ocupar las plazas por ausencia de titular.
+2. Si no hubiese registro de elegibles internos, se remitirá la nómina de elegibles externos, de conformidad con las reglas establecidas al efecto, en el procedimiento correspondiente.
+3. En cuanto a la nómina que se conforme a partir de los puntos anteriores, en aquellos casos en los que no fuera posible que la misma contenga al menos un candidato interno, se podrá completar con elegibles externos con el fin de contar con el mínimo requerido. Si a pesar de lo anterior, la nómina no alcanza la cantidad de candidatos necesaria, esta podrá ser completada con oferentes que cumplen con los requisitos para la plaza.
+4. En caso de que la jefatura justifique no optar por los elegibles, o los oferentes o no existan estos, Recursos Humanos deberá realizar el concurso que corresponda.
+5. Si como resultado del concurso interno, no resultara ninguna persona candidata con la idoneidad requerida para ocupar la plaza por ausencia de titular, se realizará un concurso externo.

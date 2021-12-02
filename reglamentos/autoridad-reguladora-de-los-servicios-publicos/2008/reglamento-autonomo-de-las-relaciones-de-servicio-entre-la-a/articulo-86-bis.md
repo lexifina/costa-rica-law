@@ -1,0 +1,3 @@
+Artículo 86 bis.- Ambiente laboral. La institución procurará un ambiente de satisfacción y desempeño laboral unido a la eficacia organizacional.
+Recursos Humanos realizará periódicamente estudios e intervenciones que considere necesarios para evaluar los factores que inciden en el ambiente laboral; de ser necesario se propondrán acciones requeridas ante la jefatura del área y al Jerarca Superior Administrativo.
+Recursos Humanos asesorará a las jefaturas de cada dependencia, para que de acuerdo con los resultados obtenidos o necesidades detectadas, desarrollen estrategias que mejoren el ambiente laboral e incentiven la participación del personal a su cargo.

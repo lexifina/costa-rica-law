@@ -1,2 +1,2 @@
-Artículo 39.—Suspensión o revocación del permiso. Si la Institución requiere de los servicios del (la) funcionario(a) que se encuentre disfrutando de un permiso, con o sin goce de salario; la persona u órgano que otorgó el permiso, podrá suspenderlo o revocarlo, mediante acto motivado.
-El acto por el que se suspende o se revoca el permiso, deberá comunicarse, con al menos un día hábiles de antelación, al(a la) funcionario(a), para que se reincorpore a sus labores.
+Artículo 39.-Suspensión o revocación del permiso. Si la Institución requiere de los servicios del (la) funcionario(a) que se encuentre disfrutando de un permiso, con o sin goce de salario; la persona u órgano que otorgó el permiso, podrá suspenderlo o revocarlo, mediante acto motivado.
+El acto por el que se suspende o se revoca el permiso, deberá comunicarse, con al menos un día hábil de antelación, al(a la) funcionario(a), para que se reincorpore a sus labores.

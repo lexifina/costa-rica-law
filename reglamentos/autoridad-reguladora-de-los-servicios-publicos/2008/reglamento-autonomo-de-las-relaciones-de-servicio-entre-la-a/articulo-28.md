@@ -1,7 +1,6 @@
-Artículo 28.—Permutas o traslados. Las permutas o traslados se regirán por las disposiciones siguientes:
-a) Los(as) funcionarios(as) deben ocupar puestos situados en la misma categoría de la escala salarial correspondiente.
-b) El (la) funcionario(a) que permute a otro puesto distinto del suyo, debe cumplir los requisitos mínimos del puesto de que se trate.
-Las jefaturas de las dependencias en las que se ubican los puestos sujetos a permuta, deben manifestar por escrito su anuencia a esos movimientos.
-ch) Los(as) funcionarios(as) interesados(as) en la permuta, deberán manifestar por escrito su anuencia a ese movimiento.
-d) Los(as) funcionarios(as) que opten por la permuta, deberán presentar solicitud conjunta, al(a la) Jerarca Superior Administrativo, a quien le corresponderá resolverlo, previo cumplimiento de las disposiciones de los incisos precedentes de este artículo
-(Así reformado el inciso anterior mediante sesión N° 64 del 26 de agosto de 2013)
+Artículo 28.-Permutas. Las permutas se regirán por las disposiciones siguientes:
+1.Toda permuta deberá ser solicitada a Recursos Humanos por las jefaturas, quienes deberán justificar la necesidad y conveniencia institucional del movimiento propuesto.
+2. Las permutas pueden ser de plazas, de personas funcionarias o ambas, podrán ser plazas con diferente categoría.
+3. Las jefaturas de las dependencias en las que se ubican los puestos sujetos a permuta, deben manifestar por escrito su anuencia a esos movimientos.
+4. Contar con el consentimiento informado de las personas funcionarias que opten por la permuta, el cual deberá contener un detalle de las funciones a desempeñar.
+5. Corresponderá a Recursos Humanos verificar en caso de permutas de personas funcionarias, que cumplan todos los requisitos para desempeñar la plaza a la que permuta, que las funciones por ejecutar correspondan con la clase de puesto en la que se encuentra y emitir el criterio técnico sobre la idoneidad del cambio y comunicarlo al Jerarca Superior Administrativo quien podrá aprobar o no la permuta.

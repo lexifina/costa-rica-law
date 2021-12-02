@@ -1,0 +1,1 @@
+Artículo 17 bis- Inducción. Recursos Humanos coordinará el programa de inducción institucional a la persona funcionaria de nuevo ingreso y el de los nuevos miembros de Junta Directiva o del Consejo de la Sutel.

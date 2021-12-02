@@ -1,1 +1,1 @@
-Artículo 7º—Posibilidad de ingreso a personas con discapacidad. La Institución velará por brindar una posibilidad de ingreso a las personas con discapacidad y porque obtengan un puesto adecuado a sus condiciones y necesidades personales.
+Artículo 7º-Posibilidad de ingreso a personas con discapacidad. La Institución velará por brindar una posibilidad de ingreso a las personas con discapacidad y porque obtengan un puesto adecuado a sus condiciones y necesidades personales.

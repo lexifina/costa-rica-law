@@ -1,2 +1,2 @@
-Artículo 97.—Aprobación de las reestructuraciones organizacionales. Corresponde a la Junta Directiva conocer y aprobar las reestructuraciones organizacionales y de recursos humanos, presentadas por el Jerarca Superior Administrativo correspondiente..
-Para implementar toda reestructuración organizacional y de recursos humanos, se deberá contar con el contenido presupuestario debidamente aprobado.
+Artículo 97.- Aprobación de las reorganizaciones administrativas. Corresponde a la Junta Directiva conocer y aprobar las reorganizaciones administrativas, presentadas por el Jerarca Superior Administrativo conforme estudios técnicos objetivos.
+Para implementar toda reorganización administrativa, se deberá contar con el contenido presupuestario debidamente aprobado, en caso de que implique una erogación adicional.

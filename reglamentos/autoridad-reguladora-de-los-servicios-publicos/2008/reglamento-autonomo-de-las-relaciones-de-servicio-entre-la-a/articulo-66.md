@@ -1,1 +1,1 @@
-Artículo 66.—Objetivo de la carrera administrativa. El objetivo de la carrera administrativa es favorecer la permanencia en la Institución, de los(as) funcionarios(as) mejor calificados(as) en cada especialidad.
+Artículo 66.-Objetivo de la carrera administrativa. El objetivo de la carrera administrativa es favorecer la permanencia en la Institución, de las personas funcionarias mejor calificadas en cada especialidad.

@@ -1,1 +1,1 @@
-Artículo 59.—Interrupción del cómputo de la anualidad. Se interrumpirá el cómputo del plazo para el cumplimiento de anualidad, únicamente en el caso de que el(la) funcionario(a) deje de laborar para el Estado.
+Artículo 59.-Interrupción del cómputo de la anualidad. Se interrumpirá el cómputo del plazo para el cumplimiento de anualidad, únicamente en el caso de que la persona funcionaria deje de laborar para el Estado.

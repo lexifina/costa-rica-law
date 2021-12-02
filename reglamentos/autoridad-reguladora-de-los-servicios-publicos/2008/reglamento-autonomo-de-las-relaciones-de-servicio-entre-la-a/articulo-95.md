@@ -1,9 +1,9 @@
 CAPÍTULO XI
-De las reestructuraciones y los programas
+Del reordenamiento y los programas
 de retiro voluntario
 SECCIÓN I
 De las reestructuraciones
-Artículo 95.—Reordenamiento funcional. Los (as) Jerarcas Superiores Administrativos, podrán efectuar, en sus respectivas dependencias, reordenamientos funcionales como, reasignar actividades de un proceso, fusionar o separar procesos de la dependencia o reubicar a funcionarios(as), previa aprobación del superior jerárquico y por un plazo máximo de seis meses.
-Transcurrido el plazo de seis meses, si resulta exitoso el reordenamiento, los ajustes a la estructura administrativa de la dependencia, serán sometidos a conocimiento y aprobación de la Junta Directiva. Caso contrario se retornará a la situación inicial.
-Los reordenamientos funcionales no podrán afectar derechos adquiridos ni situaciones jurídicas consolidadas de los(as) funcionarios(as)
-(Así reformado y publicado en la Gaceta N° 73 del 16 de abril del 2009)
+Artículo 95.-Reordenamiento. El reordenamiento interno de actividades de una dependencia se someterá a valoración de Recursos Humanos, mediante los instrumentos que se establezcan para el efecto.
+Recursos Humanos emitirá el respectivo informe técnico al Jerarca Superior Administrativo, a quien le corresponderá aprobar o improbar el reordenamiento propuesto.
+En caso de que Recursos Humanos emita una valoración contraria a lo indicado por la jefatura de la dependencia solicitante, será el Jerarca Superior Administrativo quien determinará lo procedente.
+Toda propuesta de reordenamiento interno tendrá como objetivo fundamental lograr una eficaz y eficiente ejecución de las actividades que competen a una dependencia, de conformidad con lo establecido en el RIOF o el mapa de procesos vigentes, por lo que deberá estar debidamente fundamentada y no podrá afectar la estructura organizacional institucional o la estructura ocupacional vigente, ni los derechos adquiridos y situaciones jurídicas consolidadas de las personas funcionarias.

@@ -1,6 +1,6 @@
-Artículo 88.—Obligaciones de los(as) funcionarios(as). Además de las establecidas en la Ley General y en otros cuerpos de normas, todos(as) los(as) funcionarios(as) tendrán las siguientes obligaciones:
+Artículo 88.-Obligaciones de las personas funcionarios. Además de las establecidas en la Ley General y en otros cuerpos de normas, todas las personas funcionarias tendrán las siguientes obligaciones:
 a) Prestar, con eficiencia, diligencia y pericia, durante la jornada laboral, los servicios para los cuales fue contratado.
-b) Asistir puntualmente al trabajo todos los días hábiles y registrar su asistencia, si le correspondiere registrarla.
+b) Cumplir con la jornada de trabajo y registrar el cumplimiento de la jornada laboral cuando proceda.
 c) Guardar una presentación personal decorosa y el debido comportamiento en el ejercicio de sus funciones.
 ch) Rendir liquidación por el dinero recibido como adelanto por cualquier concepto, dentro del plazo establecido en los reglamentos respectivos.
 d) Acatar y cumplir las medidas preventivas de accidentes de trabajo y sobre enfermedades profesionales.
@@ -26,3 +26,5 @@ t) Acatar y cumplir las demás disposiciones que en forma expresa establece este
 u) Prestar apoyo y colaboración a la Comisión de salud ocupacional, para el cumplimiento de su cometido.
 v) Acatar, cumplir y hacer cumplir, las medidas tendentes a prevenir y minimizar los riesgos de trabajo.
 w) Ocupar el tiempo necesario, fuera de la jornada ordinaria, para subsanar los errores que le hayan imputado en el desempeño de sus funciones, sin que ese tiempo pueda considerarse como extraordinario.
+x) Es obligación de la persona funcionaria participar en las actividades de aprendizaje en las que haya sido designado en la Institución.
+y) Es obligación de la jefatura promover la capacitación y desarrollo integral de las personas funcionarias a su cargo, facilitar las herramientas y el tiempo requerido para participar, de manera equitativa y sin discriminación alguna, en las acciones de aprendizaje planeadas y programar el trabajo de su área, de manera que no se obstaculice la participación en las dichas acciones, ya sea dentro o fuera de la jornada de trabajo.

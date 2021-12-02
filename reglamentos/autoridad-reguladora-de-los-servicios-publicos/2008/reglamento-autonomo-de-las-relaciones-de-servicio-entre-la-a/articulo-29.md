@@ -1,6 +1,2 @@
-Artículo 29.—Solicitud para llenar plazas vacantes. Cuando se requiera llenar una plaza vacante, la jefatura inmediata de la dependencia en la cual se ubicará, solicitará a Recursos Humanos que remita la nómina respectiva, de la cual se escogerá uno(a), salvo que existan razones fundadas para objetarlos (as) a todos (as).
-En caso de objeción de la nómina enviada, la jefatura inmediata solicitará una nueva nómina a Recursos Humanos, el cual, luego de analizar las objeciones y de considerarlas atendibles, enviará la nueva nómina solicitada.
-Si Recursos Humanos considera, en forma razonada, que las objeciones de la jefatura inmediata no son atendibles desde el punto de vista técnico, elevará el asunto a decisión del jerarca superior administrativo.
-Si para llenar una plaza vacante existen varios candidatos elegibles, con igual idoneidad, Recursos Humanos conformará la nómina, dando prioridad a los (as) funcionarios (as) de la Institución.
-Los nombramientos a plazo fijo pueden ser prorrogados. Esta prórroga podrá ser hecha sin concurso de antecedentes por una única vez, para lo cual debe justificarse el interés institucional.
-(Así reformado mediante sesión extraordinaria N° 35-2014 del 23 de junio del 2014)
+Artículo 29.-Inicio del proceso para ocupar plazas vacantes. Cuando se requiera ocupar una plaza vacante, Recursos Humanos remitirá a la jefatura correspondiente el requerimiento de personal para dar inicio al proceso de acuerdo con lo establecido en la normativa vigente.
+La jefatura inmediata podrá solicitar a Recursos Humanos, que se realice el proceso para ocupar una plaza sea a tiempo indefinido o a plazo determinado. Recursos Humanos realizará las valoraciones respectivas y determinará lo que procede técnicamente.

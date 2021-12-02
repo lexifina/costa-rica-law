@@ -13,9 +13,11 @@ articulo-11.md
 articulo-12.md
 articulo-13.md
 articulo-14.md
+articulo-14-bis.md
 articulo-15.md
 articulo-16.md
 articulo-17.md
+articulo-17-bis.md
 articulo-18.md
 articulo-19.md
 articulo-20.md
@@ -27,8 +29,10 @@ articulo-25.md
 articulo-26.md
 articulo-27.md
 articulo-28.md
+articulo-28-bis.md
 articulo-29.md
 articulo-30.md
+articulo-30-bis.md
 articulo-31.md
 articulo-32.md
 articulo-33.md
@@ -36,6 +40,7 @@ articulo-34.md
 articulo-35.md
 articulo-36.md
 articulo-36-bis.md
+articulo-36-ter.md
 articulo-37.md
 articulo-38.md
 articulo-39.md
@@ -45,6 +50,7 @@ articulo-42.md
 articulo-43.md
 articulo-44.md
 articulo-45.md
+articulo-45-bis.md
 articulo-46.md
 articulo-47.md
 articulo-48.md
@@ -52,6 +58,7 @@ articulo-49.md
 articulo-50.md
 articulo-51.md
 articulo-52.md
+articulo-52-bis.md
 articulo-53.md
 articulo-54.md
 articulo-55.md
@@ -65,6 +72,7 @@ articulo-62.md
 articulo-63.md
 articulo-64.md
 articulo-65.md
+articulo-65-bis.md
 articulo-66.md
 articulo-67.md
 articulo-68.md
@@ -79,6 +87,7 @@ articulo-76.md
 articulo-77.md
 articulo-78.md
 articulo-79.md
+articulo-79-bis.md
 articulo-80.md
 articulo-81.md
 articulo-82.md
@@ -86,6 +95,7 @@ articulo-83.md
 articulo-84.md
 articulo-85.md
 articulo-86.md
+articulo-86-bis.md
 articulo-87.md
 articulo-88.md
 articulo-89.md
@@ -113,5 +123,9 @@ articulo-110.md
 articulo-111.md
 articulo-112.md
 articulo-113.md
+articulo-113-bis.md
 articulo-114.md
 articulo-115.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md
+articulo-3-transitorio.md

@@ -1,28 +1,36 @@
-Artículo 3º—Definiciones. Para los efectos de este reglamento, los términos que a continuación se consignan, tienen el significado siguiente:
+Artículo 3º-Definiciones. Para los efectos de este reglamento, los términos que a continuación se consignan, tienen el significado siguiente:
 Abandono agravado de trabajo: Cuando por causa del abandono de trabajo, se produzcan efectos negativos trascendentes, debido a la naturaleza particular de las funciones, por los perjuicios ocasionados o por el simple peligro potencial de que aquéllos se hubieran podido producir o llegaren efectivamente a producirse.
+Abandono de Labores: El abandono de trabajo es la dejación, durante la jornada de laboral, de las labores objeto del contrato, sin que medie alguna causa que lo justifique. Este se produce cuando el funcionario deja de realizar las labores que le corresponden, sea de manera presencial, virtual o cualquier otra modalidad que se determine institucionalmente, sin autorización de la respectiva jefatura.
 Abandono injustificado de trabajo: No presentarse a realizar las labores o dejar de realizar tareas antes de tiempo y sin la debida autorización. No es preciso que el(la) funcionario(a) salga del lugar donde presta los servicios, sino que, bastará que de modo evidente haga abandono de la labor encomendada.
 Acción de personal: Formulario de uso múltiple en el que se registran los movimientos salariales y de personal que conforman el historial de trabajo del(de la) funcionario(a).
-Anualidad: Reconocimiento salarial por cada año laborado en el sector público y sujeto a los resultados de la evaluación del desempeño.
-Ausencia: Inasistencia a un día de trabajo o a una fracción de él.
+Anualidad: Incentivo económico concedido a la persona funcionaria, que recibe su compensación en la modalidad de salario base más pluses, como reconocimiento por su desempeño, que se asigna de forma anual en aquellos casos en que se obtenga una calificación mínima según las disposiciones en esta materia en la Administración Pública.
+Ausencia: Se considera ausencia, el inicio de labores por parte de una persona trabajadora, una vez transcurridos sesenta minutos a partir de la hora fijada como inicio de jornada, así como la inasistencia a la jornada completa de trabajo, salvo autorización del superior inmediato, sea de manera presencial, virtual o cualquier otra modalidad que se determine institucionalmente.
+Ausencia del titular: Separación temporal del titular de una plaza, por cualquier causa permitida por la normativa aplicable, y que genera una vacancia temporal.
 Autoridad Reguladora: Autoridad Reguladora de los Servicios Públicos, que excluye a sus órganos desconcentrados.
 Ascenso: Paso de una plaza a otra de categoría superior.
-CDR: Dirección General Centro de Desarrollo de la Regulación , dependencia de la institución
+CDR: Dirección General Centro de Desarrollo de la Regulación , dependencia de la institución.
 (Así reformado y publicado en la Gaceta N° 73 del 16 de abril del 2009)
 Cese: Dejar de desempeñar el cargo por cualquier causa, entre ellas, renuncia, ausencia temporal, incapacidad, negligencia o falta grave debidamente comprobada, contra el ordenamiento jurídico en el cumplimiento de los deberes de su cargo, cualquiera de las incompatibilidades previstas por la ley, condena con sentencia en firme por un delito doloso, durante el ejercicio de su cargo o incurrir en las causales establecidas en la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
 (Así adicionada la definición anterior mediante sesión N° 64 del 26 de agosto de 2013)
 Clasificación de puestos: Técnica aplicable al estudio de la naturaleza de los puestos, para agruparlos en clases, grados, series y grupos ocupacionales.
+Carrera Administrativa: Es el régimen de méritos al que tienen acceso los las personas funcionarias que ingresen a la institución, a ocupar posiciones superiores, por concurso interno o externo; reestructuración o reasignación positivas; de conformidad con sus competencias técnicas, conductuales, por sus aportes y calificaciones periódicas producto del desempeño, siempre que cumplan los requisitos de la clase a la que pueden ser promovidos; todo ello en función de los intereses de la institución
 Concurso: Proceso en el que participan candidatos internos y externos a la institución para llenar una plaza vacante, acorde con los perfiles del puesto y las necesidades específicas señaladas en el Manual de actividades ocupacionales y el Manual descriptivo de puestos.
+Concurso interno: Proceso mediante el cual participan personas funcionarias, para demostrar idoneidad, a fin de ocupar una plaza en la institución, de conformidad con los instrumentos vigentes y las técnicas aplicables en materia de contratación de personal.
+Concurso Externo: Proceso mediante el cual podrán participar las personas funcionarias de la institución y personas externas para demostrar idoneidad a efecto de Página 18 de 69 optar por un cargo para el que han presentado la oferta de servicios; de conformidad con los instrumentos vigentes y las técnicas aplicables en materia de contratación de personal
 Consejo de la Sutel: Consejo de la Superintendencia de Telecomunicaciones. Jerarca Superior Administrativo de la Sutel.
 Descenso: Paso de una plaza a otra de categoría inferior.
 Dependencia: Unidad administrativa que forma parte de la estructura organizacional de la Institución.
 Equipo de trabajo: Grupo de dos o más funcionarios(as) que participan en el desarrollo de las metas de un área administrativa, establecidas en el Plan Anual Operativo.
 Escala salarial: Estructura de salarios integrada por categorías, ordenadas en forma ascendente y configurada de acuerdo con los principios de equidad interna y competitividad externa.
-Evaluación del desempeño: Sistema que evalúa el desempeño de los(as) funcionarios(as) en sus puestos durante un período determinado y que propicia la necesaria y efectiva comunicación entre los niveles de supervisión y los subordinados, para el oportuno reconocimiento de la labor, para el análisis de las diversas situaciones derivadas del trabajo y para la búsqueda conjunta de soluciones en procura de un mayor nivel de eficiencia.
+Estructura Organizacional: Es la distribución formal de las responsabilidades para cada dependencia de la institución, el rol que deben desempeñar y, la relación jerárquica que se establece entre ellas, según lo establecido en el RIOF, con el fin de cumplir los objetivos y metas propuestos.
+Estructura ocupacional: Jerarquización de los puestos que posee una organización o dependencia de ésta, basada en la naturaleza del trabajo, niveles de complejidad, responsabilidad, requisitos, entre otros factores.
+Evaluación del desempeño: Es el proceso de identificación, medición y gestión del rendimiento de todas las personas funcionarias de la organización, que procura el alcance eficiente y eficaz de los resultados y la mejora continua de la gestión pública, así como del desarrollo integral de las personas funcionarias.
 Expediente personal: Documentación del historial completo del trabajador sobre su relación de servicio. La información contenida en él es de carácter confidencial y su acceso restringido.
-Funcionario (a): Persona física que de acuerdo con los trámites establecidos haya sido o llegare a ser nombrado por el(la) Regulador(a) General o por el Consejo de la Sutel según corresponda y preste sus servicios a la Institución o, por la Junta Directiva, en el caso del(de la) Auditor(a) Interno(a) y los miembros del Consejo de la Sutel o, por el Consejo de Gobierno, en el caso del(de la) Regulador(a) General y el(la) Regulador(a) General Adjunto(a).
 Funcionario (a) de confianza: Los Asesores, Jefe de Despacho del Regulador General y todo(a) funcionario(a) que, de acuerdo con el ordenamiento jurídico, pueda ser calificado(a) como tal.
 (Así reformado y publicado en la Gaceta N° 73 del 16 de abril del 2009)
 Incentivo: Reconocimiento al(a la) funcionario(a) por la labor sobresaliente realizada en un período de tiempo determinado, que puede ser de carácter patrimonial o no.
+Inducción: proceso de socialización mediante el cual las personas funcionarias se integran al nuevo entorno laboral y puesto de trabajo y adquieran los conocimientos y habilidades necesarios para convertirse en miembros efectivos de la institución. Incluye el conocimiento general de la institución, así como la orientación en el puesto para el que son contratadas.
+Inicio tardío de labores: Es el inicio tardío de labores o la presentación al sitio de trabajo pasados cinco minutos y hasta sesenta minutos a partir de la hora de entrada.
 Institución: Autoridad Reguladora, incluyendo sus órganos desconcentrados.
 Interés público: Expresión de los intereses individuales coincidentes de los administrados y fin esencial de la Institución.
 Jefatura: Funcionario(a) que ejerce autoridad jerárquica formal sobre otros(as) funcionarios(as) de la Institución, para dirigir y controlar las actividades técnicas y administrativas necesarias para alcanzar los objetivos de la unidad bajo su dirección.
@@ -34,22 +42,32 @@ Jerarca Superior Administrativo: Es el Regulador General para todos los funciona
 Junta Directiva: Junta Directiva de la Autoridad Reguladora.
 Ley General: Ley General de la Administración Pública.
 Lista de elegibles: Enumeración de los (las) candidatos(as) elegibles para llenar una plaza vacante.
-Llegada tardía: Presentación en el lugar de trabajo, después de la hora señalada para el inicio de labores.
 Manual descriptivo de clases: Instrumento técnico del Sistema de Clasificación y Valoración de Puestos compuesto por la descripción de las clases de puestos, establecidas de conformidad con los grados de complejidad y responsabilidad de las funciones y tareas, y sustentada en los principios de equidad interna y de competitividad salarial con respecto a sectores del mercado salarial afines a la Autoridad Reguladora.
-Nómina: Conjunto de personas propuestas para que se designe de entre ellas la que haya de desempeñar un cargo o empleo, en razón de su idoneidad.
+Nombramiento: Acto administrativo emitido por el jerarca superior administrativo, por el que se designa de manera directa en una plaza, a una persona para el ejercicio de un cargo.
+Nombramiento Interino: Nombramiento de una persona que reúne las condiciones y requisitos establecidos en el perfil del cargo y que se realiza de manera provisional o transitoria, cuya prolongación en el tiempo está sujeta a las condiciones que le han dado origen, de conformidad con la normativa vigente.
+Nómina: Lista de personas propuestas para que se designe entre ellas la que ha de desempeñar un puesto, con base en la idoneidad comprobada. Estará conformada, en igualdad de condiciones para efectos de la escogencia por al menos dos personas y un máximo de 5.
 Oferta de servicios: Formulario autorizado por Recursos Humanos, que se entrega a las personas interesadas en prestar servicios en un puesto o cargo determinado.
 (Así reformada la definición anterior mediante sesión N° 64 del 26 de agosto de 2013)
+Persona funcionaria: Persona física que de acuerdo con los trámites establecidos haya sido nombrado por el jerarca superior administrativo o por el Consejo de Gobierno, en el caso del (de la) Regulador(a) General y el(la) Regulador(a) General Adjunto(a). Los términos persona funcionaria, persona servidora pública, persona servidora, colaborador, trabajador, servidor y empleado público, serán equivalentes para todos los efectos de este reglamento y cualquier normativa interna conexa.
+Puesto: Conjunto de deberes y responsabilidades asignadas por una autoridad competente, para que sean atendidos por una persona funcionaria durante la totalidad o una parte de la jornada de trabajo.
 Omisión de marca: Ausencia de la marca en el registro respectivo, dentro de la jornada laboral.
 Órganos desconcentrados: órganos adscritos a la Autoridad Reguladora.
 Pasos: (Derogada la definición anterior mediante sesión N° 64 del 26 de agosto de 2013)
-Permuta: Cambio de puestos entre dos o más funcionarios(as), sin menoscabo de sus condiciones laborales.
-Plaza: Ver puesto.
+Permuta: Intercambio de puestos de igual o diferente clase ocupacional, entre dos miembros del personal o el intercambio de plazas entre dependencias con o sin titular. En ambos casos el movimiento puede ser de manera temporal o permanente, debidamente justificado. Las permutas también podrán aplicarse entre la Aresep y Sutel.
+Plan de desarrollo: Gestión para establecer los mecanismos a fin de mejorar o potenciar el desempeño de la persona funcionaria, e incidir positivamente en el desempeño actual o para ocupar a futuro otros puestos.
+Plan de sucesión: Medio para identificar y desarrollar las personas funcionarias, que, con base en sus competencias técnicas y conductuales, experiencia y evaluación de desempeño, han demostrado la idoneidad requerida para ocupar temporalmente puestos claves en procesos críticos, a fin de garantizar la continuidad del servicio prestado, y la adecuada gestión de los riesgos, según lo establecido en los instrumentos técnicos vigentes.
+Plaza: ver puesto
+Plaza Vacante: Es aquella plaza que no tiene persona funcionaria nombrada en forma interina o en propiedad.
 Puesto: Conjunto de deberes y responsabilidades asignadas por una autoridad competente, para que sean atendidos por un (una) funcionario(a) durante la totalidad o una parte de la jornada de trabajo.
+Puestos Claves: Son aquellos puestos que deben ocuparse de forma inmediata en aras de garantizar la continuidad de los servicios y por la relevancia de las funciones que ejecutan en el cumplimiento de la estrategia o la normativa, el impacto que causa en las decisiones que implican cumplimiento de plazos y de obligaciones hacia los usuarios u operadores de servicios.
+Procesos Críticos: Proceso que afecta de forma directa el cumplimiento de los deberes que constituyen la razón de ser de la institución y aseguran la continuidad de los servicios.
+Proceso de reclutamiento y selección: Es el medio por el cual la institución atrae las personas candidatas del mercado laboral interno o externo y selecciona a la persona idónea para ocupar un puesto, de conformidad con los instrumentos técnicos vigentes en esta materia.
+Prórroga: Acto administrativo mediante el cual el jerarca superior administrativo dispone la ampliación de un nombramiento, recargos de funciones, suplencias, permisos con y sin goce, jornada ampliada, entre otros.
 Pruebas: Exámenes escritos, orales o prácticos y análisis de atestados de estudios, de experiencia y de otros elementos; mediante los cuales se determina la idoneidad de la persona para ocupar una plaza. Esas pruebas pueden ser entrevistas, pruebas psicométricas, pruebas específicas del cargo, diagnósticos psicolaborales y estudios de carácter económico y social.
-Recargo de funciones: Desempeño temporal y parcial de las tareas de una plaza de categoría superior, que realiza un (una) funcionario(a) simultáneamente con las labores propias de su cargo, en razón de la ausencia del titular.
-Recursos Humanos: Dirección de Recursos Humanos de la Institución.
-(Así reformada la definición anterior mediante sesión N° 64 del 26 de agosto de 2013)
-Reestructuración organizacional: Todo proceso debidamente aprobado por la Junta Directiva de la Autoridad Reguladora, que conlleve un cambio en la estructura organizacional y/o en las plazas, de manera integral o por dependencia y en los(as) funcionarios(as); con el propósito de aprovechar mejor los recursos disponibles y de lograr una mayor eficacia en el logro de los objetivos establecidos.
+Reasignación: Cambio que se opera en la clasificación de un puesto con motivo de variación sustancial y permanente en sus tareas y responsabilidades.
+Recargo de funciones: Desempeño temporal y parcial de las tareas de una plaza de categoría superior, que realiza una persona funcionaria simultáneamente con las labores propias de su cargo, debido a la ausencia del titular o por vacancia, por un plazo máximo de seis meses, prorrogable en casos justificados.
+Recursos Humanos: Dependencia de Aresep o Sutel, según corresponda, responsable de la gestión del recurso humano.
+Reorganización Administrativa: es una revisión y modificación parcial o integral de la estructura organizacional, con base en el o los estudios debidamente fundamentados en la técnica aplicable y con el contenido presupuestario correspondiente, en caso de requerirse.
 Régimen salarial: Estructura de sueldos que de conformidad con la naturaleza del puesto, se visualiza por medio de la escala salarial. Este régimen comprende el de salario global y temporalmente, las escalas salariales compuestas por salario base más pluses, respetando derechos adquiridos y situaciones jurídicas consolidadas de los(as) funcionarios(as) de la institución.
 Registro de asistencia: Marcar, en el registro correspondiente, las horas de llegada y de salida al lugar de trabajo.
 Registro de elegibles: Lista de ofertas de potenciales candidatos(as) seleccionados(as) para ocupar una plaza en la Institución.
@@ -57,14 +75,15 @@ Registro de oferentes: Lista de ofertas de servicios que han sido aceptadas para
 Regulador(a) General: Regulador(a) General de la Autoridad Reguladora, presidente de la Junta Directiva y Jerarca Superior Administrativo de la Autoridad Reguladora.
 Relación de servicio: Vínculo estatutario establecido entre la Institución y el(la) funcionario(a) con ocasión de la relación de trabajo.
 Remuneración: Ver salario.
-Reordenamiento funcional: Fase previa a la apertura de un eventual proceso de reestructuración organizacional y del recurso humano, en que una dependencia temporalmente realiza ajustes funcionales a su estructura administrativa, a fin de posibilitar que se alcancen oportuna y eficientemente los objetivos institucionales.
+Reordenamiento interno: Es el proceso mediante el cual una dependencia realiza una modificación técnicamente justificada, en la forma en que organiza sus procesos y asigna las responsabilidades de conformidad con la normativa vigente y con la aprobación de la jefatura superior correspondiente.
 Salario: Remuneración periódica que se otorga por el desempeño de un cargo, con la intensidad, cuidado, esmero y forma que éste requiera, durante la jornada laboral.
 Salario base más pluses: Salario que reconoce un salario base, anualidades y/o beneficios de carrera profesional, prohibición para el ejercicio de la profesión y cualquier plus salarial que jurídicamente corresponda, pudiéndose diferenciar el monto por cada uno de esos componentes.
 Salario global: Será un único monto, en el cual se entienden incorporados pero no desglosados el pago de salario base, anualidades, la prohibición o la función especializada y la carrera profesional, cuando corresponda.
 Serie profesional: Actividades realizadas por funcionarios(as), que requieren de amplia instrucción académica de nivel superior cuyo grado académico mínimo es el de Bachillerato universitario.
 Servidor: Ver funcionaria(o).
+Sistema Informático de evaluación de desempeño: Herramienta tecnológica que facilita la planificación, análisis, seguimiento, evaluación y mejora continua del desempeño de las personas funcionarias.
 Sustitución de funciones: Trabajo realizado por un(una) funcionario(a), durante un tiempo determinado, en una plaza de igual o de superior categoría, por ausencia del titular.
 Sutel: Superintendencia de Telecomunicaciones, órgano de desconcentración máxima, adscrito a la Autoridad Reguladora.
 Tabla de equivalencias: Equiparación de categorías entre la escala de salario global y la escala salarial integrada por salario base más pluses.
-Trabajador: Ver funcionaria(o).
-Traslado: Paso de una plaza a otra de igual categoría, o de una dependencia a otra.
+Trabajador: Ver persona funcionaria.
+Traslado: Movimiento de una persona funcionaria o plaza o ambos de una dependencia a otra de la institución, de manera temporal o permanente, debidamente justificado. Los traslados también podrán aplicarse entre la Aresep y Sutel.

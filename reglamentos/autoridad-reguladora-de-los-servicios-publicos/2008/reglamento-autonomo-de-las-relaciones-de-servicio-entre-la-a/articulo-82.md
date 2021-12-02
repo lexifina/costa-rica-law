@@ -1,1 +1,1 @@
-Artículo 82.—Implementación de programas de salud ocupacional. Recursos Humanos elaborará e implementará el programa de salud ocupacional que abarcará a todas las dependencias de la Institución, como dispone la Ley sobre riegos del trabajo, Ley 6727 y sus reformas.
+Artículo 82.-Implementación de programas de salud ocupacional. Recursos Humanos elaborará e implementará el programa de salud ocupacional que abarcará a todas las dependencias de la Institución, como dispone la Ley sobre riegos del trabajo, Ley 6727 y sus reformas.
