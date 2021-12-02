@@ -1,2 +1,2 @@
-ARTÍCULO 5.- Posadas del turismo rural comunitario
-Las posadas del TRC deberán cumplir todos los requisitos establecidos en la legislación vigente para obtener la declaratoria turística y el contrato turístico, excepto el mínimo de habitaciones; estas podrán obtenerlos con un mínimo de tres habitaciones.
+Artículo 5- Posadas del turismo rural. Para obtener la declaratoria turística y el contrato turístico, las posadas del TRC deberán cumplir los requisitos establecidos en la legislación vigente y en la reglamentación de esta ley emitida por el Instituto Costarricense de Turismo (ICT), a fin de facilitar que los beneficios del turismo rural puedan llegar a más comunidades del país.
+(Así reformado por el artículo 1° de la ley N° 10049 del 15 de noviembre de 2021, "Extender los beneficios del ecoturismo y el turismo rural en las comunidades rurales y costeras")
