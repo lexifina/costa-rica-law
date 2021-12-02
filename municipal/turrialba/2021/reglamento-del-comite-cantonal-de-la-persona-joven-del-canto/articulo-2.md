@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El ámbito de aplicación de las presentes normas se restringe a la jurisdicción del cantón de Turrialba, y es válido para todos los habitantes y organizaciones de jóvenes de la sociedad civil que tengan domicilio en dicho cantón.

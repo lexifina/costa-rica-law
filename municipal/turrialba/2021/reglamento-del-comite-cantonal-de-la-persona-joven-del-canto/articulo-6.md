@@ -1,0 +1,1 @@
+Artículo 6º-Cualquier joven habitante del cantón que haga solicitud verbal o escrita al Comité Cantonal de la Persona Joven puede ser miembro colaborador voluntario y podrá asistir cuando lo desee a las sesiones que dicho Comité realice y cumplirá los deberes o atribuciones que. Le asignen.

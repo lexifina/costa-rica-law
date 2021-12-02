@@ -1,0 +1,3 @@
+Artículo 22.-De los Recursos contra los acuerdos. Los miembros de la junta directiva del CCPJ, podrán presentar recurso de revisión, contra los acuerdos y otras resoluciones excepto los que han adquirido firmeza.
+Los demás miembros del Comité podrán presentar recursos de revocatoria ante la junta directiva y apelación ante el superior jerárquico, Consejo Nacional de la Persona Joven.
+En los demás aspectos sobre, impugnaciones, de actos y resoluciones del CCPJ, no regulados en este reglamento, se aplicará la normativa contenida en la Ley General de Administración Pública, y el Código Municipal.
