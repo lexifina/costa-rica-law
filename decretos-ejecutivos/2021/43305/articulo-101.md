@@ -1,0 +1,1 @@
+Artículo 101.- Notificación de la medida cautelar adoptada. La resolución administrativa que ordena una medida cautelar deberá ser comunicada en forma inmediata, a fin de lograr su pronta y debida ejecución. Para ello, el encargado de la etapa en la que se encuentre el procedimiento podrá disponer todas las medidas adecuadas y necesarias.

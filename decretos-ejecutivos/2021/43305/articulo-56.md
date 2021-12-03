@@ -1,0 +1,1 @@
+Artículo 56.- Protocolos internos. Las autoridades de competencia deberán establecer los respectivos protocolos internos, que deberán seguirse durante la realización de las inspecciones que deban efectuarse en establecimientos de tipo comercial o industrial, u otras propiedades muebles e inmuebles.

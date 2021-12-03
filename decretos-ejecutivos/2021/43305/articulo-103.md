@@ -1,0 +1,3 @@
+Artículo 103.- Recursos. Contra la resolución administrativa que resuelva la medida cautelar cabrá únicamente recurso de apelación ante el Encargado del Órgano Técnico, cuando esta haya sido dictada por el Encargado de la Etapa de Investigación o el Encargado de la Etapa de Instrucción.
+Cabrá recurso de reposición o reconsideración ante el Órgano Superior cuando la resolución administrativa que resuelva la medida cautelar haya sido adoptada por este.
+En ambos casos, el recurso correspondiente deberá interponerse en un plazo de 15 días hábiles, contado a partir del día hábil siguiente a la última comunicación del acto. Dicho recurso deberá ser resuelto en un plazo máximo de 15 días hábiles.

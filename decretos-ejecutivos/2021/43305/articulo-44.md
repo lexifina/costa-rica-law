@@ -1,0 +1,1 @@
+Artículo 44.- Soporte de las pruebas. Las pruebas podrán ser consignadas y aportadas mediante cualquier tipo de soporte documental, electrónico, informático, magnético, óptico, telemático o producido por nuevas tecnologías.

@@ -1,0 +1,2 @@
+Artículo 114.- Reuniones de coordinación. El Órgano Superior podrá celebrar, de oficio o a solicitud de parte, reuniones para aclarar los alcances de los compromisos ofrecidos. De esas reuniones se levantarán actas en las que se indiquen los principales temas tratados, que deberán ser firmadas por todos los participantes.
+La información intercambiada y las opiniones emitidas durante las reuniones de coordinación no se considerarán adelanto de criterio ni podrán ser utilizadas por ninguna de las partes como prueba en el procedimiento.

@@ -1,0 +1,1 @@
+Artículo 94.- Resolución final del procedimiento sumario. El acto final del procedimiento sumario deberá ser concluido en el plazo de un mes, de conformidad con el artículo 325 de la Ley N° 6227, a partir de su iniciación. El Órgano Superior dictará la resolución final y, cuando sea procedente, impondrá las medidas y sanciones que correspondan.

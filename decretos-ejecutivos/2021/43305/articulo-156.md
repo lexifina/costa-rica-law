@@ -1,0 +1,5 @@
+Artículo 156.- Archivo de las notificaciones. El Órgano Superior de cada autoridad de competencia podrá no iniciar un procedimiento de control de concentraciones o acordar el archivo de las actuaciones, en cualquier estado del proceso, en los siguientes casos:
+a) Cuando la operación notificada no sea una concentración sujeta al procedimiento de notificación previa, según lo previsto en la Ley N° 9736 y en la Ley N° 8642.
+b) Cuando las partes de una concentración desistan de su solicitud de autorización o la autoridad de competencia correspondiente tenga información fehaciente de que no tienen intención de realizarla.
+c) Cuando los solicitantes omitan contestar, de forma completa, los requerimientos de documentos o de información que válidamente se le formulen durante la segunda fase del procedimiento, así como en la etapa de compromisos.
+Contra la resolución de archivo cabrán los recursos de reposición ante el Órgano Superior correspondiente, que se deberán interponer dentro del plazo de 15 días hábiles posteriores a la notificación del archivo del expediente. El Órgano Superior deberá resolver dicho recurso dentro de un plazo de 15 días hábiles.

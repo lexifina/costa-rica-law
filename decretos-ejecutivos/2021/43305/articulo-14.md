@@ -1,0 +1,3 @@
+CAPÍTULO IV
+ESTRUCTURA ORGÁNICA DEL ÓRGANO SUPERIOR DE LA SUTEL
+Artículo 14.- Órgano Superior de la Sutel. La Sutel cuenta con un Órgano Superior denominado Consejo, cuya integración; los requisitos e impedimentos para ser miembros; las incompatibilidades con el cargo; las causas de cese; la responsabilidad por lesión patrimonial; los motivos de impedimento, excusa y recusación; las sesiones, el cuórum y las votaciones; la organización; la remuneración y prohibición de prestar servicios; su presupuesto y funciones; la representación y legitimación judicial, se rigen según lo establecido en el Capítulo XI de la Ley N° 7593 y sus reglamentos.

@@ -1,0 +1,2 @@
+Artículo 198.- Prescripción para ejecutar las sanciones. La sanción impuesta por infracciones previstas en la Ley N° 9736, en la Ley N° 7472 en el Capítulo II del Título III de la Ley N° 8642y sus reglamentos, prescribirá en el plazo de cuatro años, contado a partir del día inmediato siguiente a la notificación al infractor de la resolución que la impone.
+Dicho plazo se suspenderá si la resolución administrativa es impugnada en sede judicial, hasta que se dicte sentencia judicial en firme que resuelva tal impugnación.

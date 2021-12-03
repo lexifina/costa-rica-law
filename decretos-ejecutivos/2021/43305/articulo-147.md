@@ -1,0 +1,4 @@
+Artículo 147.- Aprobación concentraciones con efectos anticompetitivos. La autoridad de competencia aprobará aquellas concentraciones que tengan como efecto previsible obstaculizar de forma significativa la competencia en el mercado en los siguientes casos:
+a) Si la concentración es necesaria para generar ganancias de eficiencia, en los términos del artículo 148 de este reglamento, cuyos beneficios superen los efectos anticompetitivos previstos de la concentración.
+b) Si la concentración es necesaria para evitar la salida del mercado de activos productivos de uno de los agentes económicos participantes en la concentración, en los términos del artículo 149 de este reglamento.
+c) Si los efectos anticompetitivos previsibles de la concentración pueden ser contrarrestados por los compromisos ofrecidos por las partes o por las condiciones impuestas por el Órgano Superior correspondiente.

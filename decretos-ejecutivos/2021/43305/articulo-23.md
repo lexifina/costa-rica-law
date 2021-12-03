@@ -1,0 +1,2 @@
+Artículo 23.- Plan anual de promoción y abogacía de competencia. El Órgano Superior de cada autoridad de competencia establecerá de forma anual sus prioridades en materia de promoción y abogacía de la competencia, para asegurar el cumplimiento de sus objetivos en esta materia y una efectiva asignación de los recursos.
+Cada autoridad de competencia establecerá, mediante reglamentación técnica, la metodología que deberá seguir para el establecimiento de las prioridades en materia de promoción y abogacía de la competencia.

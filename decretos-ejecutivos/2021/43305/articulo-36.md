@@ -1,0 +1,1 @@
+Artículo 36.- Sobre la condición de parte. Podrá ser parte en el procedimiento especial, además de la Administración, todo el que tenga interés legítimo o derecho subjetivo que pueda resultar afectado, lesionado o satisfecho de manera total o parcial por el acto final. El interés de la parte deberá ser legítimo y podrá ser moral, económico o de cualquier otra naturaleza.

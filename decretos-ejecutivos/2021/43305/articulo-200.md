@@ -1,0 +1,1 @@
+Artículo 200.- Vencimiento plazos de caducidad y prescripción. En el supuesto del artículo 132 de la Ley N° 9736, el superior jerárquico respectivo deberá determinar si procede o no la responsabilidad disciplinaria del funcionario garantizando el debido proceso.

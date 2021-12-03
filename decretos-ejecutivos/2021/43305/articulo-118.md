@@ -1,0 +1,10 @@
+Artículo 118.- Contenido de la resolución que acoge la solicitud de terminación anticipada del procedimiento especial con ofrecimiento de compromisos. La resolución que acoja la terminación anticipada del procedimiento especial con ofrecimiento de compromisos contendrá al menos:
+a) Indicación de las partes del procedimiento especial.
+b) Resumen de los hechos por los cuales se inició el procedimiento especial, así como los posibles efectos anticompetitivos que pueden preverse de las conductas investigadas; lo anterior conforme a lo dispuesto en el auto de inicio de la etapa de instrucción y el traslado de cargos.
+c) Descripción de las condiciones que deberá cumplir el agente económico involucrado, con indicación de los respectivos plazos para su implementación y de su vigencia.
+d) Indicación de la forma en cómo se verificará el cumplimiento de las condiciones, incluyendo, de ser necesario, los reportes y la información que deberá presentar el agente económico involucrado para esos efectos.
+e) Si fuera el caso, el tipo de garantía y el monto que deberá rendir el agente económico investigado, y el plazo para constituirla.
+f) Prevención de que el incumplimiento de los compromisos establecidos en esta resolución se considerará como una infracción muy grave, de acuerdo con lo establecido en el artículo 118 inciso c) de la Ley N° 9736, y serán sancionados conforme a lo dispuesto en el artículo 119 inciso e) de dicha Ley.
+Los compromisos impuestos podrán ser revisados, a solicitud de parte, por la autoridad de competencia correspondiente, cuando las condiciones en el mercado varíen de tal manera que estos ya no sean necesarios para eliminar los efectos anticompetitivos previstos en la resolución que las impone.
+Corresponde al agente económico solicitante demostrar que los compromisos impuestos ya no resultan necesarios para mantener el nivel de competencia de un determinado mercado.
+La autoridad de competencia correspondiente deberá pronunciarse sobre la solicitud presentada por el agente económico en un plazo de 30 días naturales contados a partir de su presentación.

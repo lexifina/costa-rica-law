@@ -1,0 +1,24 @@
+Nº 43305-MEIC
+EL PRESIDENTE DE LA REPÚBLICA
+Y
+LA MINISTRA DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política del 7 de noviembre de 1949; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2, acápite b), de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública; Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, Ley N° 9736 del 5 de setiembre de 2019, la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley Nº 7472 del 20 de diciembre de 1994; y la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Ley Nº 8220 del 4 de marzo de 2002.
+CONSIDERANDO:
+I. Que, mediante la Ley Nº 9736 del 5 de setiembre de 2019, publicada en el Alcance N° 257 a La Gaceta Nº 219 del 18 de noviembre de 2019, se promulgó la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica.
+II. Que, el artículo 142 de la citada Ley, señala que el Poder Ejecutivo, con la participación de las autoridades de competencia, reglamentará la ley dentro de un plazo de doce meses a partir de su publicación.
+III. Que, mediante aviso publicado en el Diario Oficial La Gaceta N° 235 del 23 de setiembre de 2020, se sometió a consulta pública el presente Decreto Ejecutivo; lo anterior de conformidad con el artículo 361 de la Ley General de la Administración Pública.
+IV. Que, mediante acuerdo número 9 adoptado en la Sesión Ordinaria Nº 39-2020 celebrada a las diecisiete horas con cuarenta minutos, del diez de noviembre del dos mil veinte, la Comisión para Promover la Competencia (Coprocom), solicitó al Ministerio de Economía, Industria y Comercio (MEIC), plazo hasta el 26 de noviembre del 2020, para entregar las observaciones de la Coprocom a la propuesta reglamentaria a la Ley 9736.
+V. Que, mediante los acuerdos cuarto y quinto del acta de la Sesión Ordinaria Nº 41-2020 celebrada a las diecisiete horas con treinta y cinco minutos, del veinticuatro de noviembre del dos mil veinte, de la Comisión para Promover la Competencia se aprobó el borrador de Reglamento propuesto por el Comité Interinstitucional; no obstante, remiten para consideración del Despacho de la Ministra del MEIC, recomendaciones de modificación de algunos artículos propuestos por el referido Comité.
+VI. Que, el Poder Ejecutivo, valoró la recomendación dada por la Coprocom en la Sesión Ordinaria Nº 41-2020, procediendo a acoger las mismas, considerando que le corresponde a dicho órgano la aplicación del presente Decreto Ejecutivo.
+VII. Que el Consejo de la Superintendencia de Telecomunicaciones, en ejercicio de las competencias que le atribuye el inciso b) del artículo 50 de la Ley General de la Administración Pública, ley 6227, y el inciso 10) del artículo 35 del Reglamento Interno de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos y su Órgano Desconcentrado, comunicó al Ministerio de Economía, Industria y Comercio, el acuerdo adoptado en la sesión extraordinaria N° 082-2020 del Consejo de la Superintendencia de Telecomunicaciones, celebrada el 24 de noviembre del 2020, en donde dio por recibido el borrador de Reglamento a la Ley 9736, que el Equipo Interinstitucional presentó el día 23 de noviembre del 2020, vía correo electrónico ante la Asesoría del Despacho de Ministra del MEIC.
+VIII. Que, si bien el Poder Ejecutivo emitió la Directriz N° 052-MP-MEIC del 19 de junio de 2019, publicada en el Diario Oficial La Gaceta N° 118 del 25 de junio de 2019, Directriz de moratoria de trámites, se considera que la presente propuesta se encuentra conforme al párrafo final del artículo 1 de la referida Directriz.
+IX. Que, el presente Decreto Ejecutivo, cumple con los principios de mejora regulatoria de acuerdo con el Informe Nº DMR-DAR-INF-079-2021 del 09 de junio de 2021, emitido por el Departamento de Análisis Regulatorio de la Dirección de Mejora Regulatoria.
+Por tanto;
+DECRETAN
+REGLAMENTO A LA LEY 9736, "FORTALECIMIENTO DE LAS
+AUTORIDADES DE COMPETENCIA DE COSTA RICA"
+TÍTULO I
+DE LAS AUTORIDADES DE COMPETENCIA
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 1.- Del objeto. El presente reglamento tiene por objeto desarrollar la Ley N° 9736, "Fortalecimiento de las Autoridades de Competencia de Costa Rica" del 5 de setiembre de 2019. Este reglamento deberá ser interpretado en la forma que mejor garantice los principios de competencia y libre concurrencia, de conformidad con la Ley N° 9736, "Fortalecimiento de las Autoridades de Competencia de Costa Rica" del 5 de setiembre de 2019; la Ley N° 7472, Promoción de la Competencia y Defensa Efectiva del Consumidor, del 20 de diciembre de 1994; la Ley N° 8642, Ley General de Telecomunicaciones, del 4 de junio de 2008; sus reglamentos y demás normativa que regule la materia.

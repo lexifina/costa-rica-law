@@ -1,0 +1,1 @@
+Artículo 135.- Acceso al expediente de la concentración durante su tramitación. Las partes notificantes de la concentración tendrán acceso al respectivo expediente, pudiendo obtener copia de todos los documentos que integren el mismo, a excepción de la información confidencial presentada por las otras partes o por terceros.

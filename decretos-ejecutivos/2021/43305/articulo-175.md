@@ -1,0 +1,5 @@
+Artículo 175.- Infracciones leves. De conformidad con el artículo 116 de la Ley N° 9736, son infracciones leves:
+a) Brindar información de manera incompleta o retrasar, sin justificación avalada por la autoridad de competencia correspondiente, la entrega de información requerida.
+b) Notificar posterior a su ejecución, una operación de concentración económica, cuando sea exigida por ley.
+c) Dificultar o entorpecer una inspección o investigación, ordenada de acuerdo con lo establecido en la Ley.
+Las infracciones leves serán sancionadas por la Coprocom, mediante una multa equivalente a un monto entre el cero coma uno por ciento (0,1%) y hasta por el tres por ciento (3%) del volumen de negocios total del agente económico en el ejercicio fiscal inmediatamente anterior al de la imposición de la sanción, y por la Sutel mediante una multa de entre cinco (5) a treinta (30) salarios base del cargo de auxiliar judicial 1, según la Ley de Presupuesto de la República, y de conformidad con la Ley N° 8642.

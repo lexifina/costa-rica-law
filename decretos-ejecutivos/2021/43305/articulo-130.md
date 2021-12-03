@@ -1,0 +1,2 @@
+Artículo 130.- Plazo para notificar. La notificación de concentración se deberá realizar ante la respectiva autoridad de competencia, en cualquier momento a partir de que exista algún acto tendiente a concretar la concentración y hasta antes de su ejecución en Costa Rica.
+Si una vez notificada la concentración y previo a la resolución final por parte de la respectiva autoridad, el notificante presenta su desistimiento formal de la transacción, el Órgano Superior de la autoridad de competencia podrá acordar sin más trámite el archivo de la notificación.

@@ -1,0 +1,1 @@
+Artículo 15.- Funciones y potestades del Órgano Superior de la Sutel. El Consejo tiene las funciones y potestades contempladas en el Capítulo II del Título III de la Ley N° 8642; en el artículo 73 de la Ley N° 7593; en la Ley N° 9736; así como en la Ley N° 7472, sus reglamentos y demás normativa que regule la materia.

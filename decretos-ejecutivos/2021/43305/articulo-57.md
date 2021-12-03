@@ -1,0 +1,10 @@
+CAPÍTULO III
+ETAPA DE INVESTIGACIÓN PRELIMINAR
+SECCIÓN I
+ANÁLISIS DE ADMISIBILIDAD
+Artículo 57.- Interposición de la denuncia. La denuncia podrá ser interpuesta por cualquier persona física o jurídica, sea o no agraviada por el hecho denunciado. El denunciante podrá formular la denuncia por escrito y deberá firmarla. En caso de que la denuncia sea presentada por una persona jurídica, deberá acompañarse de la personería jurídica en la que consten las facultades de representación del firmante.
+Asimismo, el denunciante podrá apersonarse ante el Órgano Técnico correspondiente, u oficina habilitada al efecto, para realizar la denuncia verbal. De dicha denuncia se levantará un acta que deberá ser firmada por el denunciante y por el funcionario que la recibió.
+Todas las denuncias deben cumplir con los requisitos establecidos en el artículo 32 de la Ley N° 9736 y en el artículo 34 del presente reglamento.
+En el caso de que se presente una denuncia anónima, la información que se aporte con esta podría ser considerada por el Encargado de Investigaciones del Órgano Técnico de la autoridad de competencia correspondiente, para ordenar de oficio el inicio de una investigación preliminar.
+Cuando la denuncia sea interpuesta ante cualquier otro ente u órgano de la Administración Pública, el funcionario que reciba la denuncia deberá señalar, tanto en el documento original como en el documento de recibido, su nombre completo, número de cédula, la fecha y la hora exacta de recibido, la oficina que brinde el recibido, el número de folios que componen la denuncia y una descripción de los documentos que componen la denuncia. El ente u órgano que lo reciba deberá remitirla en un plazo de hasta cinco días hábiles al Órgano Técnico de la autoridad de competencia correspondiente, en cuyo caso la denuncia se tendrá por interpuesta el día que sea recibida por el Órgano Técnico correspondiente.
+El recibo de la denuncia por parte de un funcionario del Órgano Técnico o de otra oficina pública no prejuzgará sobre su pertinencia o procedencia.

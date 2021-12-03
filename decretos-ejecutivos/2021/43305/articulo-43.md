@@ -1,0 +1,9 @@
+Artículo 43.- Requerimiento de información. Los requerimientos de información se realizarán conforme lo establece el artículo 111 de la Ley N° 9736. Estos requerimientos de información deben contener:
+a) Información y documentos que se solicitan, y el plazo concedido para aportarla.
+b) Motivación de la solicitud que se realiza.
+c) Derecho que le asiste para solicitar que cierta información sea clasificada como confidencial.
+d) Obligación que tiene de proporcionar la información o documentos requeridos, que tendrán el valor de una declaración jurada y dentro del plazo fijado, y las consecuencias del incumplimiento de dicho requerimiento, ya sea por negarse a presentar la información; retrasar su entrega; o por presentar información incompleta, falsa, alterada o engañosa.
+e) Posibilidad de interponer un recurso de revocatoria contra el requerimiento de información dentro de tres días hábiles, contados a partir del día hábil siguiente a la última notificación del acto. Dicho recurso deberá ser resuelto por el Encargado de la etapa correspondiente, en un plazo máximo de 15 días hábiles. La interposición del recurso tendrá el efecto suspensivo de la ejecución de la solicitud de información.
+En ningún caso lo dispuesto por este artículo implica la obligación de la autoridad de competencia de revelar las líneas de investigación, o cualquier otra información relacionada con la etapa de investigación preliminar.
+Lo dispuesto en este artículo no prejuzga sobre el carácter que el requerido tendrá con posterioridad en la investigación, o en un eventual proceso sancionador.
+No se solicitará información que conste en registros públicos a los que tenga acceso la autoridad de competencia correspondiente de forma gratuita, o que no tenga relación directa con el procedimiento especial que esté realizando la autoridad de competencia.

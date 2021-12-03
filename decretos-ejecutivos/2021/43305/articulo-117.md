@@ -1,0 +1,4 @@
+Artículo 117.- Segunda propuesta de compromisos. Cuando el Órgano Superior de la respectiva autoridad de competencia considere que la propuesta de compromisos remitida no elimina la conducta investigada ni contrarresta sus posibles efectos anticompetitivos, solicitará al agente económico presentar una segunda propuesta que corrija o amplíe los compromisos ofrecidos. Esta propuesta deberá presentarse en el plazo de 30 días hábiles.
+Una vez recibida la segunda propuesta de compromisos, el Órgano Superior deberá resolver acerca de dichos compromisos dentro de un plazo de 30 días hábiles.
+De no presentarse la propuesta en el plazo indicado, se tendrá por desistida la solicitud.
+Contra la resolución que solicita al agente económico presentar una nueva propuesta de compromisos no procederá recurso alguno en la vía administrativa.

@@ -1,0 +1,5 @@
+SECCIÓN II
+AUTORIDAD SECTORIAL DE COMPETENCIA
+Artículo 5.- Autoridad Sectorial de Competencia y naturaleza jurídica. La Sutel es la autoridad sectorial encargada de la defensa y promoción de la competencia y la libre concurrencia en el sector de telecomunicaciones y redes que sirvan de soporte a los servicios de radiodifusión sonora y televisiva de acceso libre, según se establece en el artículo 29 y en el Capítulo II del Título III de la Ley N° 8642 y demás normativa que regule la materia.
+La Sutel es un órgano de desconcentración máxima adscrito a la Aresep y tiene personalidad jurídica instrumental propia para realizar la actividad contractual; administrar sus recursos y su presupuesto; suscribir los contratos y convenios que requiera para el cumplimiento de sus funciones; así como para ejercer de forma exclusiva las funciones, atribuciones y competencias que le otorga la normativa que regula esta materia.
+La Sutel será auditada por la Auditoría Interna de la Aresep, conforme al artículo 70 de la Ley N° 7593.

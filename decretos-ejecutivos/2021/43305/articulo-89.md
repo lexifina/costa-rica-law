@@ -1,0 +1,2 @@
+Artículo 89.- Resolución final. El Órgano Superior dictará la resolución final dentro de los 60 días hábiles, contados a partir de la conclusión de la comparecencia oral y privada. Cuando resulte procedente, impondrá las medidas y sanciones que correspondan.
+Contra la resolución final cabrá el recurso de reposición o reconsideración, que tendrá un plazo de 15 días hábiles para ser interpuesto, contados a partir del día hábil siguiente a la última comunicación del acto. Este recurso deberá ser resuelto por el Órgano Superior en un plazo máximo de 15 días hábiles.

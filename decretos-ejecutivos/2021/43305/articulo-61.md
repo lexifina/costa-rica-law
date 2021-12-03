@@ -1,0 +1,2 @@
+Artículo 61.- Orden de inicio de la etapa de investigación preliminar. El Encargado de Investigaciones del Órgano Técnico, dentro de un plazo de 10 días hábiles posteriores a la presentación de la denuncia en forma, ordenará el inicio de la etapa de investigación preliminar sobre los hechos denunciados, mediante resolución motivada.
+Contra la resolución que ordena el inicio de la etapa de investigación preliminar no procederá recurso alguno.
