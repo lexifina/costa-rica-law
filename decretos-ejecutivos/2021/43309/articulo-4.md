@@ -1,0 +1,1 @@
+Artículo 4. La Dirección Nacional de Empleo del Ministerio de Trabajo y Seguridad Social, deberá notificar el motivo de rechazo de aquellas solicitudes de otorgamiento de Bono Proteger, a partir de la publicación del presente Decreto. El Instituto Mixto de Ayuda Social podrá apoyar a la Dirección Nacional de Empleo en este proceso.
