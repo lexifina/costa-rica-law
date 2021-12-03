@@ -1,0 +1,1 @@
+Artículo 15.-Suspensión de la licencia. En el caso de contar con licencia para la actividad ambulante o estacionaria y ser reincidente en la venta en sitios públicos no autorizados; la licencia será suspendida temporalmente por un lapso de tres meses, y suspendiéndose en forma definitiva en la segunda reincidencia.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del procedimiento
+Artículo 7º-Procedimiento de decomiso. Cuando una persona que se dedique a la venta de productos o servicios (incluye ventas ambulantes de bienes y servicios), y ante el requerimiento de los inspectores municipales o de las otras autoridades que los acompañan, no presente su correspondiente patente o licencia municipal que le autorice a ejercer esta actividad específica, sin perjuicio de otras sanciones que se puedan aplicar, se procederá de la siguiente: Se rotulará con un ACTA DE DECOMISO que al efecto se elaborará y en ella se consignará el número de decomiso, la persona a quien se le decomisa, la autoridad administrativa que decomisa, hora, fecha y lugar, además de una descripción y cantidad del bien decomisado.

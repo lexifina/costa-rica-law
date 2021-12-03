@@ -1,0 +1,1 @@
+Artículo 20.-Denuncias ante los órganos jurisdiccionales. La Municipalidad procederá a denunciar ante los órganos jurisdiccionales competentes en los casos contemplados en el incisos c) y d) del artículo 13 de este Reglamento.
