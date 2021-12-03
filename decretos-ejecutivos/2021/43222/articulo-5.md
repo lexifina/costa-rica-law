@@ -1,0 +1,4 @@
+ARTÍCULO 5°.- Dimensiones del componente Puente al Bienestar. El componente Puente al Bienestar permite la atención integral interinstitucional a los hogares beneficiarios, mediante el acompañamiento y la intermediación entre las demandas y necesidades de las familias y el acceso a los programas y servicios articulados en las dimensiones del Índice de Pobreza Multidimensional: educación, vivienda y uso de internet, salud, trabajo y protección social. Lo anterior mediante las siguientes áreas de intervención:
+a) Acompañamiento social y corresponsabilidad familiar mediante Planes Familiares y el Modelo de Intervención del IMAS.
+b) Desarrollo y fortalecimiento de habilidades.
+c) Vinculación de referencia o articulación de oferta institucional mediante protocolos con los otros componentes a saber: Puente al Trabajo (Empresariedad y Empleabilidad), Puente Agro, Puente a la Comunidad, Puente a la Prevención.

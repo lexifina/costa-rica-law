@@ -1,0 +1,1 @@
+ARTÍCULO 29°. - Modelo de cogestión. Implica la articulación entre los diferentes actores para la formulación del PUI, donde se incluye a los gobiernos locales, la comunidad, las instituciones públicas y privadas.

@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Componente Puente Agro
+ARTÍCULO 17°.- Objetivo general del componente Puente Agro. El componente denominado Puente Agro tiene por objetivo general contribuir con el mejoramiento de la economía de los hogares agro productores rurales en condiciones de pobreza o vulnerabilidad, mediante el fortalecimiento de iniciativas agro productivas que incrementen su nivel de ingreso.
+Las instituciones líderes de su implementación serán el Ministerio de Agricultura y Ganadería (MAG), el Instituto de Desarrollo Rural (INDER) y el Consejo Nacional de Producción (CNP), con el apoyo de las demás instituciones del Sector Agropecuario, Pesquero y Rural. Estas entidades están habilitadas para convocar y articular acciones con otras instituciones públicas y organizaciones privadas que contribuyan al cumplimiento de los objetivos planteados en este decreto.

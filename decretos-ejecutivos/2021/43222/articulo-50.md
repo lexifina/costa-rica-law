@@ -1,0 +1,1 @@
+ARTÍCULO 50°. - Orientación de la Oferta del Gobierno Central. Los Ministerios del Gobierno Central deberán orientar la priorización de los programas institucionales (definidos en el artículo 54 de este Decreto Ejecutivo) y dar un trato preferencial a la población en condición de pobreza atendida en el marco de los componentes de Puente al Desarrollo.

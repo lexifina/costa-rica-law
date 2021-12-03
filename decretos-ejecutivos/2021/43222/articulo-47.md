@@ -1,0 +1,1 @@
+ARTÍCULO 47°. - Líderes de componentes. Las personas denominadas líderes de componente, son los jerarcas de los ministerios o instituciones responsables de la implementación de cada componente y tendrán las siguientes responsabilidades:

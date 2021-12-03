@@ -1,0 +1,1 @@
+ARTÍCULO 19°.- Operacionalización del componente Puente Agro. La implementación de este componente de intervención se basa en la articulación y coordinación intersectorial e interinstitucional, para la prestación de servicios dirigidos a hogares agro productores, en condiciones de pobreza o vulnerabilidad que requieren una mejor situación socioeconómica.

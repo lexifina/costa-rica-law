@@ -1,0 +1,1 @@
+ARTÍCULO 52°. - Distritos Prioritarios. Cada componente de la Estrategia Puente al Desarrollo determinará técnicamente los distritos prioritarios donde enfocará su atención, los cuales serán sometidos al conocimiento del Consejo Presidencial Social o instancia equivalente.

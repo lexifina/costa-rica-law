@@ -1,0 +1,4 @@
+ARTÍCULO 8°.- Objetivos específicos del componente Puente al Trabajo. Los objetivos específicos del componente Puente al Trabajo, son los siguientes:
+a) Implementar acciones articuladas que inciden en el nivel de escolaridad, la inserción, formación técnica, capacitación y otras habilidades para el trabajo, acorde a las necesidades de la población beneficiaria, considerando el mercado laboral.
+b) Focalizar las acciones articuladas de los servicios públicos de empleo, que faciliten la intermediación e inserción a un empleo decente y la reducción de los niveles de informalidad de la población beneficiaria.
+c) Elaborar un modelo de gestión para la atención de emprendimientos individuales y emprendimientos asociativos con la oferta formativa y financiera, que permita el fortalecimiento del autoempleo y las ideas de negocio de las personas beneficiarias de la Estrategia Puente al Bienestar.

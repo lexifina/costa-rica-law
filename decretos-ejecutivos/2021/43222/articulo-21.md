@@ -1,0 +1,1 @@
+ARTÍCULO 21°.- Diagnóstico situacional y formulación de plan de intervención. Con la población preseleccionada, se aplicará el instrumento de diagnóstico denominado Ficha Agro, para seleccionar, caracterizar y categorizar a la población beneficiaria. De acuerdo con la caracterización y categorización del hogar agro productivo, se procede a la elaboración del plan de intervención.

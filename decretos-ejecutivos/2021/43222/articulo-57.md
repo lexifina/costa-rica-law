@@ -1,0 +1,1 @@
+ARTÍCULO 57°. – Tratamiento de datos personales. Todo el tratamiento de datos personales requerido para la aplicación de este decreto, se realizará según lo dispuesto en la Ley de Protección de la Persona frente al Tratamiento de sus Datos Personales, Ley Nº 8968 de 7 de julio de 2011.

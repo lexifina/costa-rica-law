@@ -1,0 +1,2 @@
+ARTÍCULO 12°.- Alcance y priorización. Se establecerá un modelo de priorización de las personas referidas por el componente Puente al Bienestar, en condición de pobreza o pobreza extrema, mujeres jefas de hogar, personas con discapacidad, y que residan en las comunidades priorizadas.
+Para la atención de las personas referidas al Sistema Nacional de Empleo (SNE), se utilizará el mecanismo de priorización del Modelo de Gestión y el lineamiento específico desarrollado para este fin por parte del Sistema.

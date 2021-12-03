@@ -1,0 +1,1 @@
+ARTÍCULO 51°. Orientación de la Oferta de instituciones autónomas. Se insta a las instituciones autónomas, a direccionar sus acciones para procurar un trato preferencial a la población en condición de pobreza atendida en el marco de la Estrategia Puente al Desarrollo.

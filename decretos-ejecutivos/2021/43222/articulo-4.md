@@ -1,0 +1,4 @@
+ARTÍCULO 4° .- Objetivos específicos del componente Puente al Bienestar. El componente Puente al Bienestar tendrá los siguientes objetivos específicos:
+a) Identificar de manera proactiva a los hogares en situación de pobreza o pobreza extrema para brindarles una atención integral e interinstitucional basada en la articulación.
+b) Promover la articulación de la oferta programática para la atención integral e interinstitucional de los hogares en pobreza o pobreza extrema y el desarrollo social de los territorios.
+c) Ampliar el uso de tecnologías de información en la atención integral e interinstitucional para la identificación de los hogares en pobreza o pobreza extrema, así como para facilitar el seguimiento y la evaluación como herramientas para la toma de decisiones y la rendición de cuentas.

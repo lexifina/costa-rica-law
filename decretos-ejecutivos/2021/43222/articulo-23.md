@@ -1,0 +1,5 @@
+CAPÍTULO V
+Componente Puente a la Comunidad
+ARTÍCULO 23°- Objetivo general del componente Puente a la Comunidad. El objetivo general del componente denominado Puente a la Comunidad es mejorar las condiciones de hábitat y participación en los territorios con presencia de asentamientos informales y vulnerabilidad mediante la articulación de esfuerzos locales, públicos, privados, no gubernamentales y comunitarios que impulsen procesos de renovación y desarrollo urbano desde el enfoque de seguridad humana y desarrollo integral, con el fin de construir comunidades inclusivas, seguras, resilientes y sostenibles.
+La institución líder de su implementación será el Ministerio de Vivienda y Asentamientos Humanos (MIVAH), según lo establecido en el Decreto Ejecutivo "Oficialización y Declaratoria de Interés Público de la Estrategia Puente a la Comunidad", Decreto N° 41882-MP-MIVAH del 28 de junio de 2019. Esta entidad está habilitada para convocar y articular acciones con otras instituciones públicas y organizaciones privadas que contribuyan al cumplimiento de los objetivos
+planteados en este decreto.

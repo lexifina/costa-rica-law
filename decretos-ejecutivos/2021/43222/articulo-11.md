@@ -1,0 +1,1 @@
+ARTÍCULO 11°.- Subcomponentes. El componente Puente al Trabajo tendrá dos subcomponentes denominados empleabilidad y empresarialidad. Cada una de las instituciones desplegará las distintas ofertas, con el objetivo de priorizar la población derivada de Puente al Bienestar.

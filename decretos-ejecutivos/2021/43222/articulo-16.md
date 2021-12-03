@@ -1,0 +1,5 @@
+ARTÍCULO 16°.- Perfil de salida. Tras el ingreso a los servicios, se espera que la persona beneficiaria cuente con al menos una de cuatro posibles salidas orientadas hacia la mejora de su empleabilidad y capacidad de gestión de sus emprendimientos:
+a) Conclusión de la educación formal, sobre todo primaria, por medio de la oferta del MEP, a través de la permanencia, reincorporación y éxito educativo.
+b) Inclusión a capacitación o formación por medio del INA, MTSS o MEP, con vinculación a la demanda de empleo del país y de acuerdo con el Modelo de Gestión del Sistema Nacional de Empleo, y los lineamientos que apruebe el Consejo de Empleo.
+c) Implementación de la idea de negocio o fortalecimiento del emprendimiento, con apoyo del IMAS, INA mediante la Unidad de Fomento y Desarrollo Empresarial (UFODE) para apoyar en la atención de emprendimientos y empresariedad, la Dirección de Economía Social Solidaria (DESS) del MTSS y el MEIC, y orientación para su formalización.
+d) Inserción laboral a través de los servicios de intermediación de empleo en el marco del Sistema Nacional de Empleo.

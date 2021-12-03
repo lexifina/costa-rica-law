@@ -1,0 +1,1 @@
+ARTÍCULO 37°.- Fases del componente Puente a la Prevención. Para la planificación y gestión de procesos articulados se ha definido como instrumento operativo la Agenda Nacional de Prevención de la Violencia y Promoción de la Paz Social: Alianzas para la Paz.

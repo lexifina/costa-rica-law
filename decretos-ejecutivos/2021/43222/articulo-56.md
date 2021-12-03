@@ -1,0 +1,1 @@
+ARTÍCULO 56°. – Atención preferente de referencias. Las instituciones vinculadas a la Estrategia Puente al Desarrollo, en el proceso de implementación de protocolos de articulación interinstitucionales vigentes, atenderán las referencias de la población, de manera preferente, obligatoria y oportuna con su oferta programática según la normativa aplicable.

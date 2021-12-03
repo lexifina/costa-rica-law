@@ -1,0 +1,1 @@
+ARTÍCULO 33°.- Resultados. El resultado esperado de la implementación de los PUI, es lograr una gestión integrada de espacios territoriales, impactando en mejores condiciones de vivienda y equipamiento urbano con un enfoque de convivencia de cultura de paz y lograr el objetivo de tener comunidades inclusivas, seguras, resilientes y sostenibles.

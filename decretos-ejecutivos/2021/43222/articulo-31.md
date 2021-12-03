@@ -1,0 +1,2 @@
+ARTÍCULO 31°. - Aprobación, ejecución y monitoreo. Para la aprobación del PUI se promueve la suscripción de una Declaratoria de Interés Municipal, asegurando el compromiso político local para su cumplimiento. El PUI puede ser ejecutado entre el Gobierno Central, Gobierno Local, sector privado, organizaciones locales y comunitarias.
+Por medio del modelo de cogestión se realiza el monitoreo, para comprobar la correcta ejecución de las actividades establecidas y de forma que se pueda asegurar la corrección de mejora de las acciones planteadas.
