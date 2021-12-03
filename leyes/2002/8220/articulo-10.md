@@ -1,23 +1,28 @@
-Artículo 10.- Responsabilidad de la Administración y el funcionario
-El administrado podrá exigir responsabilidad tanto a la Administración Pública como al funcionario público y a su superior jerárquico, por el incumplimiento de las disposiciones y los principios de esta ley.
-La responsabilidad de la Administración se regirá por lo establecido en los artículos 190 y siguientes de la Ley General de la Administración Pública; la responsabilidad civil y administrativa del funcionario público, por sus artículos 199 y siguientes, y 358 y siguientes; la responsabilidad penal del funcionario público, conforme lo ordena la legislación penal.
-Se considerarán como faltas graves los siguientes incumplimientos específicos de la presente ley:
-a) No aceptar la presentación única de documentos o exigir más requisitos de los establecidos en la ley, los decretos ejecutivos o los reglamentos, conforme lo establecido en la ley.
-b) No respetar las competencias.
-c) No dar publicidad a los trámites ni sujetarse a la ley.
-d) No informar de forma clara y completa a las personas interesadas sobre el trámite.
-e) No resolver ni calificar las peticiones, gestiones, solicitudes y demás documentos dentro del plazo establecido para cada uno de esos trámites en la Ley General de la Administración Pública o en ley especial.
-f) Incumplir el procedimiento del silencio positivo.
-g) Incumplir el procedimiento de coordinación institucional e interinstitucional.
-h) Irrespetar el trámite ante única instancia administrativa.
-i) Rechazar los documentos expedidos válidamente por otros órganos, entes o instituciones del Estado en el ejercicio de su propia competencia.
-j) No realizar la evaluación costo-beneficio de la regulación, cuando corresponda.
-k) No acatar los criterios realizados por el Ministerio de Economía, Industria y Comercio (MEIC), por medio de la Dirección de Mejora Regulatoria, en cumplimiento de las obligaciones establecidas en esta ley y los principios de mejora regulatoria. Se excluyen los casos en que el criterio del MEIC no sea vinculante.
-En aplicación del inciso i) anterior, cuando un funcionario considere que algún documento expedido por otra institución pueda presentar vicios susceptibles de producir una nulidad, así lo comunicará a la institución que lo emitió, y contará con un plazo perentorio de ocho días hábiles para comprobar los vicios, transcurrido dicho plazo sin tener respuesta tendrá la obligación de aceptar la validez del documento, siempre y cuando este no sea anulado de conformidad con lo dispuesto en el capítulo VI, título VI, libro I de la Ley General de la Administración Pública, N.º 6227, de 2 de mayo de 1978, y sus reformas.
+Artículo 10- Responsabilidad de la Administración y el funcionario. El administrado podrá exigir responsabilidad tanto a la Administración Pública como al funcionario público y a su superior jerárquico, por el incumplimiento de las disposiciones y los principios de esta ley.
+La responsabilidad de la Administración se regirá por lo establecido en los artículos 190 y siguientes de la Ley 6227, Ley General de la Administración Pública; la responsabilidad civil y administrativa del funcionario público, por sus artículos 199 y siguientes, y 358 y siguientes; la responsabilidad penal del funcionario público, conforme lo ordena la legislación penal.
+Se considerarán como faltas graves y muy graves los siguientes incumplimientos específicos de la presente ley:
+1) Faltas graves
+a) Al jerarca de la institución, no brindar publicidad a los trámites.
+b) Al funcionario o el jerarca, incumplir el procedimiento de coordinación institucional e interinstitucional.
+c) Al funcionario, irrespetar el trámite ante única instancia administrativa, no aceptar la presentación única de documentos o exigir más requisitos de los establecidos en la ley, los decretos ejecutivos y los reglamentos.
+d) Al jerarca, no celebrar injustificadamente acuerdos o convenios cuando corresponda entre entidades u órganos de la Administración Pública para compartir información requerida para determinado trámite, según lo dispuesto en esta ley. El intercambio de información se realizará respetando, cuando corresponda, lo dispuesto en la Ley 8968, Protección de la Persona Frente al Tratamiento de sus Datos Personales, de 7 de julio de 2011.
+e) Al oficial de Simplificación de Trámites, no publicar o no mantener actualizado, en el Catálogo Nacional de Trámites, todos los trámites de su institución, incluyendo lo dispuesto en el transitorio II de la presente ley.
+f) Al oficial de Simplificación de Trámites, no presentar el informe sobre cumplimiento de los Planes de Mejora Regulatoria, según lo establecido en el reglamento de esta misma ley.
+g) Al funcionario responsable, no resolver en el plazo otorgado por el ordenamiento jurídico a la Administración para los trámites, las peticiones, gestiones, solicitudes, así como para el otorgamiento de permisos, licencias o autorizaciones, en aquellos casos en los que el silencio positivo no opere, sea por razones de resolución judicial o por disposición legal expresa.
+h) Al jerarca, no presentar el informe de cumplimiento de las herramientas en materia de mejora regulatoria y simplificación de trámites, requeridos por la Rectoría, según lo dispuesto en el artículo 11 de la presente ley.
+i) Al funcionario, no responder a un administrado sobre el estado de un trámite, por los medios establecidos para esa comunicación.
+2) Faltas muy graves
+a) Al funcionario responsable o el jerarca, incumplir el procedimiento para la aplicación del silencio positivo, según lo dispuesto en el artículo 7 de la presente ley.
+b) Al funcionario, rechazar los documentos expedidos válidamente por otros órganos, entes o instituciones del Estado en el ejercicio de su propia competencia.
+c) Al oficial de Simplificación de Trámites, no realizar la evaluación costobeneficio de la regulación, cuando corresponda.
+d) Al funcionario, incumplir los criterios técnicos emitidos por el Ministerio de Economía, Industria y Comercio (MEIC), por medio de la Dirección de Mejora Regulatoria, de conformidad con las obligaciones establecidas en esta ley y los principios de mejora regulatoria.
+e) Al funcionario o el jerarca, no emitir la resolución confirmatoria en aplicación del silencio positivo, en el plazo dispuesto en el artículo 7 de la presente ley.
+f) Al funcionario o el jerarca que sea sancionado en dos o más ocasiones, por una falta grave en un período de un año.
+En aplicación del inciso b) de faltas muy graves, cuando un funcionario considere que algún documento expedido por otra institución pueda presentar vicios susceptibles de producir una nulidad, así lo comunicará a la institución que lo emitió y contará con un plazo perentorio de ocho días hábiles para comprobar los vicios; transcurrido dicho plazo sin tener respuesta, tendrá la obligación de aceptar la validez del documento, siempre y cuando este no sea anulado de conformidad con lo dispuesto en el capítulo VI, título VI, libro I de la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978.
 En la declaratoria de responsabilidad personal del funcionario público en sede administrativa se impondrán, en su orden, según la gravedad del hecho y sin perjuicio de la responsabilidad civil y penal correspondiente, las siguientes sanciones:
-i) Suspensión sin goce de salario o remuneración de cualquier clase o forma de tres a ocho días, ante el primer incumplimiento.
-ii) Suspensión sin goce de salario o remuneración de cualquier clase o forma de ocho días a un mes, ante el segundo incumplimiento.
-iii) Despido sin responsabilidad patronal, para los casos de tres o más incumplimientos.
-Para efectos de responsabilidad personal del funcionario público, se aplicará el procedimiento administrativo ordinario dispuesto en la Ley General de la Administración Pública.
-Las instituciones del Estado en las que el régimen disciplinario está regulado por ley o normativa especial, se ajustarán a dicha regulación específica para el trámite del procedimiento y la aplicación de las sanciones correspondientes.
-(Así reformado por el artículo 1° de la ley N° 8990 del 27 de setiembre del 2011)
+i) Faltas graves: suspensión sin goce de salario o remuneración de cualquier clase o forma de tres a ocho días.
+ii) Faltas muy graves: suspensión sin goce de salario o remuneración de cualquier clase o forma de ocho a treinta días.
+iii) Despido sin responsabilidad patronal, para quien haya sido sancionado en más de dos ocasiones por faltas muy graves, en el plazo de un año.
+Para efectos de responsabilidad personal del funcionario público se aplicará el procedimiento administrativo ordinario o sumario; en este último caso, para aquellas infracciones cuya verificación sea de mera constatación de conformidad con lo dispuesto en los artículos 320, siguientes y concordantes de la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978 y sus reglamentos.
+En las entidades u órganos del Estado en las que el régimen disciplinario está regulado por ley o normativa especial, se ajustarán a dicha regulación específica para el trámite del procedimiento y la aplicación de las sanciones correspondientes.
+(Así reformado por el artículo 1° de la ley N° 10072 del 18 de noviembre del 2021)
