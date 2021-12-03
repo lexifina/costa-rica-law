@@ -1,0 +1,2 @@
+Artículo 10° - Vigencia
+Este procedimiento rige a partir de su publicación en el Diario Oficial La Gaceta y será aplicable a partir del viernes 03 de diciembre del 2021 y hasta el martes 21 de diciembre del 2021 inclusive. La Junta de Protección Social por razones de interés público se reserva el derecho retirar del mercad0 esta promoción, lo cual comunicará con la debida antelación de conformidad con la ley.
