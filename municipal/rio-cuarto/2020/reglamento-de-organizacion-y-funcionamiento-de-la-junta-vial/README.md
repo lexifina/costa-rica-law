@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la Junta Vial Cantonal de Río C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-21 | la propia norma |
+| 2 | 2021-12-06 | Reglamento municipal 117 (2021-12-06) |
