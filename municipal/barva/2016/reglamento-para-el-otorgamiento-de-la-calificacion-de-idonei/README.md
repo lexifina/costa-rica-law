@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de la calificación de idoneidad de sujetos priv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-18 | la propia norma |
+| 2 | 2021-12-06 | Reglamento municipal 74 (2021-12-06) |
