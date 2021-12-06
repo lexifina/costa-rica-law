@@ -14,3 +14,4 @@ Reglamento para el uso de parques y juegos infantiles
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-20 | la propia norma |
+| 2 | 2021-12-06 | Reglamento municipal 49 (2021-12-06) |
