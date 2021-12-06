@@ -30,29 +30,28 @@ B-INSTRUMENTOS FINANCIEROS Y COMERCIALES |
 a) Bono de prenda emitido por un almacén general de depósito. |
 b) Depósitos o instrumentos financieros que respaldan operaciones back to back. | Hasta el 100% de su valor de inversión inicial.
 c) Instrumento de deuda debidamente inscrito en una bolsa de valores autorizada o emitido por el Banco Central de Costa Rica o el Gobierno de Costa Rica o cualquier otro que cumpla con los requisitos del órgano regulador. | Hasta el 85% del precio de mercado cuando la categoría de riesgo es de 4 y el 75% del precio de mercado cuando la categoría de riesgo es 5, todo según el Anexo de esta tabla o cualquier otro que cumpla con todos los requisitos establecidos por los órganos competentes.
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
 ANEXO DE TABLA N°1
 Equivalencias de las calificaciones de las agencias calificadoras de nesgo internacionales.
-[imagen]
 B. Calificaciones de corto plazo:
-[imagen]
 TABLA N° 2
 PLAZOS MÁXIMOS
-[imagen]
+Línea crédito (Según Garantía) | Meses hasta
+a) Crédito personal con garantía hipotecaria que cubra el 100% del monto del crédito | 240
+b) Crédito personal con otras garantías (incluye además crédito para gastos médicos educación). | 180
+c) Crédito ambiental ara personas físicas. | 180
+d) Crédito garantizado con valores emitidos por el Banco Popular. | 360
+e) Crédito Empresarial: (Micro, Pequeños, Medianos, grandes empresas y empresarios y Corporativas). | 360
+f) Crédito Organizaciones Sociales | 360
+g) Vivienda | 360
+|
+h Bienes adjudicados | 360
+(Así reformada la tabla 2) anterior en sesión N° 5878 del 6 de diciembre de 2021)
 TABLA N° 3
 MONTOS MÁXIMOS
-[imagen]
 TABLA N° 4
 BANCA DE PERSONAS
 NIVELES MÁXIMOS DE APROBACIÓN
 Áreas Comerciales y de Procesamiento*
-[imagen]
-[imagen]
-[imagen]
 * Corresponde a las Oficinas Comerciales, el conjunto de entes que brindan servicio al cliente, a saber: BP totales, Agencias, Ventanillas de Servicio, Centros Empresariales, Oficinas transaccionales y cualquier otro tipo de unidad que brinde servicios transaccionales a los clientes.
 El monto es acumulativo por saldo, por cliente y línea de crédito.
 Salvo en el caso del Comisión Permanente, las Comisiones estarán conformados únicamente por funcionarios de la respectiva Oficina. En caso de no ser posible, el superior jerárquico respectivo nombrará al sustituto.
@@ -61,9 +60,6 @@ En todo caso el nivel resolutivo superior podrá resolver sobre créditos corres
 BANCA EMPRESARIAL Y CORPORATIVA
 NIVELES MÁXIMOS DE APROBACIÓN
 Áreas Comerciales y de Procesamiento*
-[imagen]
-[imagen]
-[imagen]
 * Corresponde a las Oficinas Comerciales, el conjunto de entes que brindan servicio al cliente, a saber: BP totales, Agencias, Ventanillas de Servicio, Centros Empresariales, Oficinas transaccionales y cualquier otro tipo de unidad que brinde servicios transaccionales a los clientes.
 El monto es acumulativo por saldo, por cliente y línea de crédito.
 Salvo en el caso del Comisión Permanente, las Comisiones estarán conformados únicamente por funcionarios de la respectiva Oficina. En caso de no ser posible, el superior jerárquico respectivo nombrará al sustituto.
@@ -72,8 +68,6 @@ En todo caso el nivel resolutivo superior podrá resolver sobre créditos corres
 BANCA EMPRESARIAL Y CORPORATIVA
 NIVELES MÁXIMOS DE APROBACIÓN
 Áreas Comerciales y de Procesamiento*
-[imagen]
-[imagen]
 * Corresponde a las Oficinas Comerciales, el conjunto de entes que brindan servicio al cliente, a saber: BP totales, Agencias, Ventanillas de Servicio, Centros Empresariales, Oficinas transaccionales y cualquier otro tipo de unidad que brinde servicios transaccionales a los clientes.
 El monto es acumulativo por saldo, por cliente y línea de crédito.
 Salvo en el caso del Comisión Permanente. Las Comisiones estarán conformados únicamente por funcionarios de la respectiva Oficina. En caso de no ser posible, el superior jerárquico respectivo nombrará al sustituto.
@@ -82,8 +76,6 @@ En todo caso el nivel resolutivo superior podrá resolver sobre créditos corres
 BANCA DESARROLLO SOCIAL
 NIVELES MÁXIMOS DE APROBACIÓN
 Áreas Comerciales y de Procesamiento*
-[imagen]
-[imagen]
 * Corresponde a las Oficinas Comerciales, el conjunto de entes que brindan servicio al cliente, a saber: BP totales, Agencias, Ventanillas de Servicio, Centros Empresariales, Oficinas transaccionales y cualquier otro tipo de unidad que brinde servicios transaccionales a los clientes.
 El monto es acumulativo por saldo, por cliente y línea de crédito.
 Salvo en el caso del Comisión Permanente. Las Comisiones estarán conformados únicamente por funcionarios de la respectiva Oficina. En caso de no ser posible, el superior jerárquico respectivo nombrará al sustituto.
@@ -91,8 +83,6 @@ CRÉDITOS GARANTIZADOS CON TÍTULOS DEL BANCO POPULAR: Los créditos back to bac
 En todo caso el nivel resolutivo superior podrá resolver sobre créditos correspondientes a niveles resolutivos
 COMISIÓN NIVEL GERENCIAL
 (Banca de Personas, Banca Empresarial y Corporativa y Banca de Desarrollo Social)
-[imagen]
-[imagen]
 *EI monto es acumulativo por saldo, por cliente y línea de crédito."
 En todo caso el nivel resolutivo superior podrá resolver sobre créditos correspondientes a niveles resolutivos inferiores.
 *Esta tabla fue modificada por la Junta Directiva Nacional, en sesión 5056 del 9 de abril del 2013.
