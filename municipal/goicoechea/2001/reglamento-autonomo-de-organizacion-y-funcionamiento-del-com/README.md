@@ -20,3 +20,4 @@ Reglamento Autónomo de Organización y Funcionamiento del Comité Cantonal de D
 | 5 | 2009-04-06 | Reglamento municipal 14 (2009-04-06) |
 | 6 | 2009-05-07 | Reglamento municipal 9 (2009-05-07) |
 | 7 | 2021-03-03 | Reglamento municipal 5 (2021-03-03) |
+| 8 | 2021-12-06 | Reglamento municipal 49 (2021-12-06) |
