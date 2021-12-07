@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de ayudas temporales en el cantón San José par
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-07-28 | la propia norma |
+| 2 | 2021-12-07 | Reglamento municipal 83 (2021-12-07) |

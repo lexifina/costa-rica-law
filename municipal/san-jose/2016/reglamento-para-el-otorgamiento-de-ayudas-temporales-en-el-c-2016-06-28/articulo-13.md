@@ -1,1 +1,1 @@
-Artículo 13.—Denegatoria: En caso de denegarse la solicitud la Oficina Municipal de Gestión del Riesgo a Desastres deberá comunicar de manera razonada lo resuelto al administrado, la cual será recurrible en los términos del artículo 162 del Código Municipal.
+Artículo 13.-Denegatoria: en caso de denegarse la solicitud, la Oficina Municipal de Gestión del Riesgo a Desastres deberá comunicar de manera razonada lo resuelto al administrado, la cual será recurrible en los términos del artículo 171 del Código Municipal.
