@@ -14,3 +14,4 @@ Reglamento de netiqueta y uso de internet, correo electrónico, redes sociales, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-04 | la propia norma |
+| 2 | 2021-12-07 | Reglamento 0 (2021-12-07) |
