@@ -1,1 +1,0 @@
-Artículo 39.—Contenido presupuestario. Todas las erogaciones que se realicen por las Caja Chica Central, deben contar con el respectivo contenido presupuestario y la verificación de la existencia de éste y se efectuará en los mismos términos y responsabilidades señalados en el artículo 18°.

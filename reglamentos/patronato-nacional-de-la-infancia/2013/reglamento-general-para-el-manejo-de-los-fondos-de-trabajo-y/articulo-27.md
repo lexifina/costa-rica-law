@@ -1,1 +1,0 @@
-Artículo 27.—Firmas mancomunadas. Los cheques girados contra la cuenta del Fondo tendrán las firmas mancomunadas según lo dispuesto en el artículo 11° del presente Reglamento. En caso de que los pagos se realicen mediante transferencias electrónicas u otros medios, deberán tener las aprobaciones de esos funcionarios.

@@ -1,1 +1,0 @@
-Artículo 58.—Régimen sancionatorio. Los funcionarios o empleados infractores de las disposiciones contenidas en el presente reglamento, se harán acreedores a las sanciones que correspondan de conformidad con las leyes y reglamentos vigentes en la materia.

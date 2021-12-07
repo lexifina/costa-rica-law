@@ -1,1 +1,0 @@
-Artículo 21.—Constancia de cancelado. A las facturas u otros documentos relativos a la compra de bienes y servicios, se le estampará al dorso el sello con la leyenda “pagado con cheque, o transferencia electrónica, número y fecha de pago”.

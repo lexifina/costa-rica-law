@@ -1,1 +1,0 @@
-Artículo 37.—Condiciones de Pago a Proveedores. Todo pago realizado a los proveedores por parte del Responsable de la Caja Central deberá quedar registrado en el sistema electrónico vigente y contar con el respaldo de una factura comercial, tiquete o comprobante y cumplir con los requisitos establecidos para su cancelación.

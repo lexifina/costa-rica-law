@@ -1,1 +1,0 @@
-Artículo 42.—Responsables del manejo de las Cajas Chicas auxiliares. La responsabilidad de las Cajas Chicas auxiliares estará a cargo del Coordinador (a) de la Oficina Local, o a quien haga las veces de éste por delegación escrita.

@@ -1,1 +1,0 @@
-Artículo 36.—Liquidación Pendiente. No se autorizará un anticipo de dinero a un funcionario que tenga una liquidación previa pendiente, debiendo en tal caso el responsable de la Caja Chica Central, solicitar al funcionario la presentación de la liquidación pendiente.
