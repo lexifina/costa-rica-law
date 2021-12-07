@@ -1,1 +1,0 @@
-Artículo 18.—Contenido presupuestario. Los desembolsos que se realicen con el Fondo deberán contar con su correspondiente contenido presupuestario y disponibilidad económica de manera previa a su ejecución y será obligación del responsable velar por el cumplimiento de esta disposición, en apego a las normas administrativas y legales correspondientes.

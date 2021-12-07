@@ -1,1 +1,0 @@
-Artículo 39.—Responsabilidad por pagos improcedentes. Si por negligencia se incurre en pagos improcedentes, el encargado de la Caja Chica respectivo deberá reintegrar el monto erogado. Este monto será considerado como faltante.

@@ -1,1 +1,0 @@
-Artículo 34.—Responsables del manejo de las Cajas Chicas Auxiliares. El manejo de las Cajas Chicas auxiliares estará a cargo de un funcionario designado por el Director Regional o el que haga las veces de éste por delegación escrita.
