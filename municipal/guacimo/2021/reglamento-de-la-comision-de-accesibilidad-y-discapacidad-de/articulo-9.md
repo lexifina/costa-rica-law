@@ -1,0 +1,1 @@
+Artículo 9º-Servicios de Apoyo en las Gestiones Municipales. La COMAD vigilará y colaborará para que la municipalidad preste los servicios de apoyo que requieran las personas con discapacidad, en la realización de las gestiones políticas, administrativas, comunales, cívicas, culturales y de toda índole que sean convocadas, organizadas o administradas por el gobierno local.

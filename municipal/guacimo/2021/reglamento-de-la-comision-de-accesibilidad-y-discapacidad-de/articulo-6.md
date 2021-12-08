@@ -1,0 +1,1 @@
+Artículo 6º-Fiscalización a Cargo de La COMAD. La Comad velará porque la Municipalidad dentro de su ámbito de competencia exige a las instituciones y empresas privadas presentes en el cantón, que ofrezcan las oportunidades y condiciones necesarias para el cumplimiento de todos los derechos y deberes de las personas con discapacidad.

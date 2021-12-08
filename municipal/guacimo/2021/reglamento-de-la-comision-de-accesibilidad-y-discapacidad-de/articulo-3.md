@@ -1,0 +1,1 @@
+Artículo 3º-Planificación Anual. LA COMAD será vigilante de que La Alcaldía y el Concejo Municipal incluyan en sus planes anuales operativos en los periodos correspondientes a su formulación, las acciones y proyectos que garanticen el acceso a sus servicios y la igualdad de oportunidades en todo el cantón.

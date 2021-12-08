@@ -1,0 +1,1 @@
+Artículo 5º-Inversión. La COMAD asesorará para que el Gobierno Local incluya en sus programas de inversión, proyectos cuyo financiamiento requiera recursos extraordinarios no contemplados en sus presupuestos regulares o de funcionamiento.
