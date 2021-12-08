@@ -1,1 +1,0 @@
-Artículo 5º-Se deja sin vigencia la resolución DGH-054- 2020 y DGA-542-2020 de la Dirección General de Hacienda y de la Dirección General de Aduanas del Ministerio de Hacienda, San José, de las once horas con treinta minutos del día siete de diciembre de dos mil veinte, publicada en La Gaceta Nº 296 del viernes 18 de diciembre del 2020.
