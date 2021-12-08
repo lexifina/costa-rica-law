@@ -1,0 +1,14 @@
+N° 43228-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones N° 218 del 8 de agosto de 1939, los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J, publicado en La Gaceta N° 96 del 21 de mayo del 2001, así como lo establecido en el artículo 3, inciso ch) de la Ley de Impuesto sobre la Renta N° 7092 y en los artículos 103 y 104 de Código de Normas y Procedimientos Tributarios N° 4755.
+Considerando:
+I.-Que el artículo 32 de la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y que por ello contribuyan a solventar una necesidad social.
+II.-Que la Asociación Club de Leones de San Vicente de Santo Domingo de Heredia, cédula de persona jurídica número 3-002-530191, se inscribió en el Registro de Asociaciones del Registro Nacional, desde el día 23 de abril de 2008, al tomo 573, asiento 33698.
+III.-Que los fines que persigue la Asociación Club de Leones de San Vicente de Santo Domingo de Heredia, cédula de persona jurídica número 3-002-530191, según sus estatutos son: "(.) Exclusivamente benéficos y de servicio a la comunidad, sin pretender lucro ni para sí, ni para sus asociados. Sus propósitos primordiales serán: a) Crear y fomentar un espíritu de entendimiento entre los pueblos del mundo. b) Promover la teoría y la práctica de los principios del buen gobierno y la buena ciudadanía. c) Tomar parte activa en el bienestar cívico, cultural, social y moral de la comunidad, desarrollando el lema "Nosotros Servimos". d) Unir a los asociados en vínculos de amistad, buen compañerismo y entendimiento mutuo. e) Proveer un foro para la libre y amplia discusión de todo asunto de interés público, excepción hecha de la política partidista, del sectarismo religioso y del sectarismo racial. f) Alentar a individuos responsables a servir en la comunidad sin buscar recompensa financiera personal y estimular la eficiencia y el desarrollo de una ética elevada en el comercio, la industria, las profesiones, las obras públicas y los proyectos privados".
+IV.-Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado costarricense. Por tanto,
+Decretan:
+DECLARATORIA DE UTILIDAD PÚBLICA
+PARA LA ASOCIACIÓN CLUB DE LEONES DE
+SAN VICENTE DE SANTO DOMINGO DE HEREDIA
+Artículo 1º-Declárese de utilidad pública para los intereses del Estado la Asociación Club de Leones de San Vicente de Santo Domingo de Heredia, cédula de persona jurídica número 3-002-530191.
