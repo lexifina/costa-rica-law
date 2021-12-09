@@ -1,0 +1,1 @@
+ARTÍCULO 2- Objeto. Esta ley tiene como objeto regular la desmaterialización y electronificación de la letra de cambio y pagaré, así como su anotación en cuenta en los Registros Centralizados definidos en esta ley.

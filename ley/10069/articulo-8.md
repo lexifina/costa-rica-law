@@ -1,0 +1,3 @@
+ARTÍCULO 8- Efecto jurídico de la anotación en cuenta. Toda letra de cambio o pagaré desmaterializado o emitido por medios electrónicos deberá ser anotado en cuenta ante un Registro Centralizado.
+La desmaterialización, emisión, custodia, administración, endoso, circulación, afectación, gravamen, embargo y cualquier acto cambiario se perfeccionará mediante la anotación en cuenta.
+La inscripción de la letra de cambio y pagaré electrónicos, mediante la anotación en cuenta ante un Registro Centralizado, asigna el derecho de control sobre el título inscrito a favor del tenedor de este, facultando a este el ejercicio de los mismos derechos y facultades que el tenedor de un título en soporte físico puede ejercer sobre el título.

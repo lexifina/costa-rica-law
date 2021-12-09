@@ -1,0 +1,4 @@
+CAPÍTULO III
+DESMATERIALIZACIÓN
+ARTÍCULO 9 - Desmaterialización de la letra de cambio y pagaré. La desmaterialización de una letra de cambio o pagaré la realizará el Registro Centralizado a requerimiento de su legítimo tenedor cambiario, sin necesidad de que comparezca el deudor o terceros intervinientes en el título físico. Tal desmaterialización se ejecutará a través de una anotación en cuenta en la que se indique que el título emitido en soporte físico ha sido desmaterializado y tal soporte en papel ha perdido toda eficacia y validez. El título en soporte físico deberá entregarse al Registro Centralizado mediante un endoso no traslativo de dominio, para su archivo y custodia con el fin de evitar su circulación. Asimismo, en el documento físico deberá consignarse que este ha sido desmaterializado.
+Los cambios de soporte que se realicen no afectarán los derechos ni las obligaciones de las partes.

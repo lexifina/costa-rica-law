@@ -1,0 +1,1 @@
+ARTÍCULO 14- Obligación de reserva. Los Registros Centralizados solo podrán suministrar información sobre los títulos electrónicos al legítimo tenedor y a cualquier obligado, así como a las autoridades competentes en ejercicio de sus funciones establecidas por ley y conforme a la reglamentación que al efecto se emita.
