@@ -1,0 +1,5 @@
+ARTÍCULO 12- Principios de la inscripción electrónica sobre la letra de cambio y pagaré electrónicos. Los Registros Centralizados deberán realizar la inscripción de la letra de cambio y pagaré electrónicos observando los siguientes principios:
+a) Principio de prioridad: una vez producida la inscripción mediante anotación en cuenta, no podrá practicarse ninguna otra inscripción respecto de la misma letra de cambio o pagaré que obedezca a un hecho producido con anterioridad. El acto que se inscriba primero en el Registro Centralizado tendrá prioridad sobre los posteriores.
+b) Principio de tracto sucesivo: las inscripciones sobre un mismo derecho deberán estar encadenadas, cronológica, secuencial e ininterrumpidamente, de modo que quien trasmite la letra de cambio o pagaré electrónico, o el derecho de control sobre estos, aparezca previamente en la inscripción.
+c) Principio de rogación: para la realización de cada inscripción se requerirá solicitud previa del legítimo tenedor.
+d) Principio de buena fe: la persona que aparezca como titular en la anotación en cuenta se presumirá como legítimo tenedor de la letra de cambio o pagaré electrónicos.

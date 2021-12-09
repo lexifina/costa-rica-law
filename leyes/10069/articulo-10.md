@@ -1,0 +1,1 @@
+ARTÍCULO 10- Prohibición de segundo cambio de soporte. Una vez que la letra de cambio o pagaré sean desmaterializados o emitidos electrónicamente, queda prohibido que estos sean posteriormente representados en papel.

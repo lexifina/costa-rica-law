@@ -1,0 +1,1 @@
+ARTÍCULO 7- Legítimo tenedor. Para efectos de la letra de cambio y pagaré electrónicos, será legítimo tenedor quien aparezca como tal en la anotación en cuenta, en el sistema del Registro Centralizado autorizado.
