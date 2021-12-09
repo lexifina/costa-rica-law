@@ -10,8 +10,8 @@ e) Coordinar los planes y programas cantonales con las federaciones municipales 
 (Corrida la numeración del inciso anterior por el artículo 5° del decreto ejecutivo N° 38997 del 19 de mayo de 2015, que lo traspaso del inciso d) al e))
 f) Asesorar y dar apoyo a la Alcaldía Municipal en la ejecución de las políticas y las acciones del cantón.
 (Corrida la numeración del inciso anterior por el artículo 5° del decreto ejecutivo N° 38997 del 19 de mayo de 2015, que lo traspaso del inciso e) al f))
-g) Rendir un informe anual sobre el desarrollo y ejecución de los planes y políticas que han sido desarrollados y ejecutados en el cantón ante los Concejos Municipales, MIDEPLAN y la ciudadanía. Este informe deberá presentarse a más tardar el último día hábil del mes de marzo siguiente al año tomado en consideración y deberá ser elaborado por la Secretaría Técnica del Consejo.
-(Así reformado el inciso anterior por el artículo 4° del decreto ejecutivo N° 38997 del 19 de mayo de 2015)
+g) Rendir un informe anual sobre el desarrollo y ejecución de los planes y políticas que han sido desarrollados y ejecutados en el cantón ante los Concejos Municipales, el Instituto de Fomento y Asesoría Municipal y la ciudadanía. Este informe deberá presentarse a más tardar el último día hábil del mes de marzo siguiente al año tomado en consideración y deberá ser elaborado por la Secretaría Técnica del Consejo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43454 del 9 de diciembre del 2021)
 (Corrida la numeración del inciso anterior por el artículo 5° del decreto ejecutivo N° 38997 del 19 de mayo de 2015, que lo traspaso del inciso f) al g))
 h) Constituir comisiones especiales de trabajo, permanentes o temporales, para desarrollar temas específicos de su competencia.
 (Corrida la numeración del inciso anterior por el artículo 5° del decreto ejecutivo N° 38997 del 19 de mayo de 2015, que lo traspaso del inciso g) al h))

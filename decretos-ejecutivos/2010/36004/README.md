@@ -16,3 +16,4 @@ Reglamento a la Ley General de Transferencia de Competencias del Poder Ejecutivo
 | 1 | 2010-05-13 | la propia norma |
 | 2 | 2014-07-25 | Decreto Ejecutivo 38536 (2014-07-25) |
 | 3 | 2015-05-19 | Decreto Ejecutivo 38997 (2015-05-19) |
+| 4 | 2021-12-09 | Decreto Ejecutivo 43454 (2021-12-09) |
