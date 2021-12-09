@@ -1,0 +1,9 @@
+Artículo 44. Solicitud cambio del voltaje del servicio.
+Para realizar dicha solicitud se debe presentarse en la Plataforma de Servicios de la Empresa de Servicios Públicos de Heredia o en la oficina regional, el usuario deberá cumplir con los siguientes requisitos:
+a) Llenar formulario Solicitud de Trámites disponible en nuestra plataforma de servicios
+b) En caso de persona física, presentación de la cédula de identidad, de residencia o pasaporte vigente
+c) En caso de personas jurídicas, certificación vigente con un máximo de 30 días de emitida. Tratándose de certificaciones digitales, conforme a la vigencia legal respectiva, presentación de cédula de identidad de su representante legal para su verificación
+d) Boleta de solicitud de sellado de planos eléctricos y constancia de recibido del Colegio Federado de Ingenieros y Arquitectos CFIA.
+e) La facturación no podrá tener recibos pendientes (Esta condición se verifica a lo interno de la institución).
+La instalación para el medidor debe estar terminada y en el límite de la propiedad catastral frente a vía pública, en cumplimiento con la norma técnica AR-NT-SUINAC-2015 de la ARESEP
+La ESPH S.A. dispone de cinco (5) días hábiles para la conexión del servicio requerido, la conexión del servicio queda sujeta a la existencia de las condiciones técnicas requeridas en la norma técnica, en caso de no existir dichas condiciones el cliente deberá realizar las mejoras requeridas para lo que cuenta con un plazo de 22 días hábiles y reactivar el número de tramite asignado. Pasado el plazo se cerrará el trámite y deberá iniciar uno nuevo para ello deberá presentar los requisitos, que al momento de la solicitud se encuentren vencidos, pues para otorgar este servicio todas las condiciones deben mantenerse.

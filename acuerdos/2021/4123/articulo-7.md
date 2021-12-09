@@ -1,0 +1,1 @@
+Artículo 7. De las condiciones para prestar el servicio. Es obligación de la Empresa de Servicios Públicos de Heredia, dotar al usuario de un servicio de energía eléctrica con calidad y continuidad, salvo en casos de fuerza mayor, caso fortuito o períodos de mantenimiento debidamente divulgados que afecten la zona donde está localizada la propiedad.

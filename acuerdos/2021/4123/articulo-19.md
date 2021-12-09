@@ -1,0 +1,3 @@
+Artículo 19. De la vigencia y prórroga de la de disponibilidad de servicio.
+La Disponibilidad de Servicios tendrá una vigencia de doce meses, prorrogable a solicitud del interesado, antes de su vencimiento hasta por un período igual adicional.
+Las prórrogas se otorgarán siempre y cuando el interesado demuestre que ha realizado gestiones y acciones relacionadas con el desarrollo real y las condiciones del proyecto y de la disponibilidad del servicio se mantengan, para ello deberá presentar los requisitos, que al momento de la solicitud se encuentren vencidos, pues para otorgar esta prórroga todas las condiciones deben mantenerse. En cuanto a los plazos de resolución para dichas prorrogas se mantendrá lo indicado en el artículo 18.

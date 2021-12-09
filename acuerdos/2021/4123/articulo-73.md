@@ -1,0 +1,2 @@
+Artículo 73. De las obligaciones surgidas por la reunión de fincas.
+Cuando varias propiedades que disfrutan de los servicios de la Empresa de Servicios Públicos de Heredia, Sociedad Anónima, se reúnan en una sola, el nuevo propietario está en la obligación de comunicar dicha reunión a la empresa y de cancelar cualquier deuda. Para todos los efectos, el nuevo propietario será para la Empresa de Servicios Públicos de Heredia, Sociedad Anónima, el responsable del servicio.

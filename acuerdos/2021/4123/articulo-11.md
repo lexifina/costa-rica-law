@@ -1,0 +1,8 @@
+SECCIÓN SEGUNDA
+De la ubicación física de la conexión de los servicios
+Artículo 11. De la ubicación física para conexión de los servicios.
+La conexión de los servicios será efectuada por la Empresa de Servicios Públicos de Heredia, Sociedad Anónima, de acuerdo con lo estipulado por los reglamentos técnicos de Aresep vigentes y bajo el siguiente orden de prioridad, conforme a las condiciones de acceso que presente cada inmueble y en función del criterio técnico que la Empresa de Servicios Públicos de Heredia, Sociedad Anónima defina:
+a) Sobre calle o vía pública y al límite con propiedad para la cual se solicita el servicio.
+b) Sobre servidumbre de redes eléctricas tanto aéreas como subterráneas inscrita a favor de la Empresa de Servicios Públicos de Heredia, Sociedad Anónima, de acuerdo con el Reglamento para la Constitución e Inscripción de Servidumbres.
+c) Sobre calle o vía pública, frente al acceso de una servidumbre de paso inscrita a favor de terceros, en el entendido de que las instalaciones y sistemas internos quedarán bajo la exclusiva responsabilidad del propietario o poseedor.
+d) Sobre calle o vía pública, frente al acceso de la servidumbre de hecho, en el entendido de que las instalaciones y sistemas internos quedarán bajo la exclusiva responsabilidad del propietario o poseedor. Si la red pública no alcanza hasta el frente de la propiedad o frente a la servidumbre, El propietario podrá solicitar la autorización para construir la red de acuerdo con el estudio técnico previamente aprobado y la inspección de la ESPH. O bien, el propietario podrá pagar el monto del presupuesto para que la ESPH lo construya la infraestructura necesaria.

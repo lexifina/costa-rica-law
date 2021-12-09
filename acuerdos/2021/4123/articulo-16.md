@@ -1,0 +1,1 @@
+Artículo 16. La ESPH S.A., promoverá el uso de la movilidad eléctrica, así como la eficiencia energética en el transporte público y privado, mediante la instalación de una red de centros de carga de acuerdo con las condiciones técnicas definidas por Aresep, MINAE y la ley 9518 o la que se encuentre en vigencia en materia de movilidad eléctrica.

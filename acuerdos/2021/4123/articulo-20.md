@@ -1,0 +1,1 @@
+Artículo 20. De la revocación de la constancia de disponibilidad de servicios. Cualquier modificación al uso o a las condiciones establecidas en el documento de disponibilidad, dejará sin efecto la constancia de la disponibilidad otorgada, previo cumplimiento del debido proceso.

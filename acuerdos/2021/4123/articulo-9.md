@@ -1,0 +1,4 @@
+Artículo 9. De las inspecciones por parte de la Empresa de Servicios Públicos de Heredia, Sociedad Anónima.
+La Empresa de Servicios Públicos de Heredia, Sociedad Anónima podrá realizar los estudios e inspecciones necesarias para la adecuada prestación del servicio, dentro de propiedad privada, en desarrollos bajo la figura de condominio o sobre la instalación de generación distribuida, por medio del personal debidamente identificado, previa notificación.
+En caso de que el usuario no permita el ingreso del personal de la Empresa de Servicios Públicos de Heredia, Sociedad Anónima, para realizar los estudios requeridos, se utilizarán los medios legales pertinentes.
+A solicitud del usuario, la Empresa de Servicios Públicos de Heredia, Sociedad Anónima, realizará revisiones para comprobar el adecuado funcionamiento del medidor de energía eléctrica.

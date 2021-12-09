@@ -1,0 +1,2 @@
+Artículo 35. Pago de intereses
+Sobre el monto en colones del depósito de garantía y sus ajustes la Empresa de Servicios Públicos de Heredia S.A le reconocerá al abonado un interés promedio equivalente a la tasa pasiva del Sistema Bancario Nacional, donde pagará los intereses el 30 de junio de cada año, siempre que el deposito haya sido hecho por lo menos cinco años antes y la suma se le acreditará en la factura por energía dentro de los setenta días siguientes.

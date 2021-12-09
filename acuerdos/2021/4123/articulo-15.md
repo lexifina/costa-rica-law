@@ -1,0 +1,1 @@
+Artículo 15. La ESPH desarrollará la infraestructura necesaria de acuerdo con las tarifas aprobadas, condiciones del mercado y políticas públicas para satisfacer las necesidades de recarga de vehículos eléctricos en su zona de concesión.

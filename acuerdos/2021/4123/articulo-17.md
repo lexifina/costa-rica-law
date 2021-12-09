@@ -1,0 +1,1 @@
+Artículo 17. La ESPH S.A., en uso de sus facultades otorgadas por la Ley 7789 y la ley 7593 de la Aresep, facilitará el servicio de carga de baterías para vehículos eléctricos en los centros de carga técnicamente acondicionados para ello. Por este servicio, cobrará la tarifa aprobada para la recarga de cada vehículo.

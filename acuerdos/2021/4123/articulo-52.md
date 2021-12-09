@@ -1,0 +1,1 @@
+Artículo 52. De la actualización de datos del servicio. La Empresa de Servicios Públicos de Heredia, Sociedad Anónima, podrá realizar actualizaciones de oficio en los datos de los servicios registrados en nuestros sistemas comerciales
