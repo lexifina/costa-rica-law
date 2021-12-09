@@ -1,0 +1,1 @@
+Artículo 14.-Notificación del impuesto de las licencias permanentes. El impuesto a pagar producto de la tasación anual quedará notificado en forma automática en el momento en que el contribuyente se presente a cancelar el impuesto por patente municipal del 1° trimestre de cada año.

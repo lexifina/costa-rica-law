@@ -1,0 +1,5 @@
+CAPÍTULO II
+Tipos de Licencias y su Regulación
+Artículo 8°-Tipos de licencia. Las licencias de licor se clasifican como permanentes y temporales, según los tipos que establece la Ley 9047.
+a) Licencias Permanentes: Serán aquellas licencias para la comercialización, expendio o consumo de bebidas con contenido alcohólico emitidas por la dependencia encargada de otorgar las licencias y patentes de funcionamiento para el ejercicio de una actividad o giro específico de forma continua y permanente por el término de 5 años prorrogables mediante el trámite de renovación conforme este reglamento. Su explotación no implica de forma alguna, la puesta en peligro del orden público.
+b) Licencias temporales: Serán aquellas licencias para la comercialización, expendio o consumo de bebidas con contenido alcohólico emitidas por la dependencia encargada de otorgar las licencias y patentes de funcionamiento para el ejercicio de una actividad o giro específico por un plazo no mayor a 30 días naturales, siempre y cuando las actividades cuenten con la autorización previa del Concejo Municipal mediante acuerdo en firme.

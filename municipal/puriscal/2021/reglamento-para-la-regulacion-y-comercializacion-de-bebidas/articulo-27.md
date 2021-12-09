@@ -1,0 +1,1 @@
+Artículo 27.-De la medición. La medición de las distancias a que se refieren a las clases A, B y C, se hará de puerta a puerta entre el establecimiento que expendería licor y el punto de referencia por vías de acceso. Se entenderá por puerta, la entrada o sitio principal de ingreso al público y entiéndase por vías de acceso, únicamente las calles públicas.

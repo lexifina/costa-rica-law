@@ -1,0 +1,4 @@
+CAPÍTULO V
+Fiscalización y Control, Utilización Incorrecta
+de Licencia
+Artículo 26.-Fiscalización y control. La Administración Tributaria por medio de La oficina de Licencias Municipales, inspectores municipales, policía municipal o con el apoyo de la Fuerza Pública, deberá fiscalizar la buena marcha de las actividades autorizadas en aras de controlar la explotación de la actividad, la revocatoria de las licencias, la renovación de las mismas, el pago correcto y oportuno de la patente de licores y licencias, para lo cual dispondrá de las potestades que confieren la Ley, el Código Municipal, además de lo procedente en el Código de Normas y Procedimientos Tributarios, por tanto, la Administración deberá proveer los recursos tecnológicos, materiales y humanos necesarios que le permitan realizar esta labor.

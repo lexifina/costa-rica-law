@@ -1,0 +1,2 @@
+Artículo 6°-Firmas y certificaciones digitales. Documentos Electrónicos. Cuando los medios tecnológicos a disposición de la municipalidad lo permitan, la Ley de Certificados, Firmas Digitales y Documentos Electrónicos,
+ley N° 8454 de 30 de agosto de 2005 y la Ley 8220 y su Reglamento, se aplicará para tramitación de licencias, pago de tributos y otros procedimientos relacionados con la aplicación de la Ley 9047.

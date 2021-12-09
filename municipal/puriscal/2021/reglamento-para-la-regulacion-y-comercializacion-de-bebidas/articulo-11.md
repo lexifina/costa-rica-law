@@ -1,0 +1,1 @@
+Artículo 11.-Plazo para resolver. La Municipalidad se ajustará a los plazos dispuestos en la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, N° 8220 del 04 de marzo de 2002, Reglamento y sus reformas y la Ley General de la Administración Pública.

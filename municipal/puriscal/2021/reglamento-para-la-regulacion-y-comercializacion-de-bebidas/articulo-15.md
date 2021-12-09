@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Puntos a Considerar
+Artículo 15.-Suspensión de licencias. La licencia concedida para la comercialización de bebidas con contenido alcohólico podrá suspenderse por falta de pago de un trimestre, o por incumplimiento de los requisitos ordenados en la Ley y este Reglamento, así como la condición en que se otorgó la licencia y que consta en el expediente, para lo cual deberá prevenirse al patentado, concediendo un plazo de cinco días hábiles para subsanar los incumplimientos o la falta de pago. Si vencido el plazo no cumple con lo solicitado, como medida cautelar, La Oficina de Licencias Municipales procederá al cierre del negocio hasta que cancele la deuda o cumpla con los requisitos.
