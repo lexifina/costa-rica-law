@@ -1,0 +1,2 @@
+Artículo 9º-Servicios de apoyo en las gestiones municipales.9 LA COMAD vigilará y colaborará para que la municipalidad preste los servicios de apoyo que requieran las personas con discapacidad, en la realización de las gestiones políticas, administrativas, comunales, cívicas, culturales y de toda índole que sean convocadas, organizadas o administradas por el gobierno local.
+9Artículo 9 reglamento de la ley 7600. Artículos 28, 29 y 30 de la ley 8661

@@ -1,0 +1,2 @@
+Artículo 7º-Reglamentos internos.7 La Comad revisará permanentemente las disposiciones reglamentarias y acuerdos municipales, así como de funcionamiento, para asegurar que no contengan medidas discriminatorias o que impidan el acceso de las personas con discapacidad a sus programas y servicios. Toda nueva reglamentación deberá ajustarse a lo prescrito en la ley 7600, 8661 y demás normativa vigente.
+7Artículo 6, reglamento de la ley 7600.
