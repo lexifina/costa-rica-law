@@ -1,0 +1,1 @@
+Artículo 4º-Principio de legalidad. Todas las donaciones de los bienes muebles a favor de la Municipalidad de Belén deberán realizarse con fundamento en la norma habilitante se deberá observar lo señalado en el artículo 163 del Reglamento a la Ley de Contratación Administrativa y cumplir con preceptos legales vigentes y concordantes.

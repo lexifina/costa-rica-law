@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Las disposiciones de este reglamento son de acatamiento obligatorio para todas las personas que laboran en la Municipalidad de Belén, y el Proceso de Bienes y Servicios velara por su cumplimiento.
