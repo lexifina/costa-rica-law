@@ -14,3 +14,4 @@ Reglamento para un sistema alternativo de contratación para la compra de boleto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-10 | la propia norma |
+| 2 | 2021-12-10 | Reglamento 64 (2021-12-10) |
