@@ -1,0 +1,1 @@
+Artículo 32.-En la aplicación del régimen disciplinario, se cumplirán los procedimientos que establezca el Reglamento Autónomo de Servicios de la Municipalidad para garantizar el debido proceso a los funcionarios involucrados.

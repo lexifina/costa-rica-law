@@ -1,0 +1,4 @@
+CAPÍTULO V
+Sobre el mantenimiento de vehículos
+Artículo 13.-De las normas de mantenimiento vehicular. Corresponde a Servicios Generales y al encargado de Mantenimiento de la Flotilla las normas de mantenimiento preventivo y correctivo de la misma. Para ello esa dependencia fijará los sistemas y procedimientos que permitan a los conductores y funcionarios que cuenten con permiso de conducir vehículos Institucionales, acatar en forma ágil y eficiente dichas disposiciones, mismas que deberán ser publicadas y publicitadas según la normativa vigente institucional.
+En encargado de la Flotilla Vehicular, deberá a través de Servicios Generales, velar por el mantenimiento adecuado de los vehículos a su cargo, para ello coordinará con la Jefatura para se realice el mantenimiento vehicular adecuado, las reparaciones correctivas y preventivas necesarias de cada unidad.

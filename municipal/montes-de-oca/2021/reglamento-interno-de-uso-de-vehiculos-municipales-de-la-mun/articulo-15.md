@@ -1,0 +1,4 @@
+CAPÍTULO VI
+De la autorización para conducir vehículos
+de la Municipalidad
+Artículo 15.-De la legitimidad para conducir vehículos institucionales. Los vehículos de la Municipalidad solamente serán conducidos por las personas autorizadas y cuya identificación será expedida por el Departamento de Servicios Generales, y que cuente con la autorización de la Dirección Administrativa para tal efecto. En casos extraordinarios, y fundamentados principalmente en la atención de una emergencia, podrá autorizarse a funcionarios municipales que forman parte de la Institución a conducir vehículos de la Municipalidad, para lo cual el Jefe de Servicios Generales y el encargado de la Flotilla Vehicular deberán regular los requisitos y condiciones el cual también tendrá que cumplir los requisitos dispuestos de acatamiento obligatorio estipulados en este reglamento.

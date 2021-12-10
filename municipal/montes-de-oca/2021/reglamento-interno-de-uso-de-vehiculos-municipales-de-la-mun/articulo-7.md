@@ -1,0 +1,1 @@
+Artículo 7º-Sobre la sede o base de los vehículos. Los vehículos y motocicletas oficiales, así como los camiones, vagonetas, recolectores de basura y equipo especial, tendrán como sede o base de pernocto los diferentes estacionamientos de los edificios municipales asignados. Una vez concluido su uso diario, los vehículos se concentrarán en los lugares destinados para tal efecto.
