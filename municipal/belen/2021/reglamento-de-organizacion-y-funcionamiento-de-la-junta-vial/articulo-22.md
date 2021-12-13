@@ -1,0 +1,1 @@
+Artículo 22.-Las sesiones serán privadas, permitiéndose la asistencia de funcionarios de la Unidad Técnica de Gestión Vial que, como Secretaría Técnica de la Junta, se requieran para prestar asistencia o para algún requerimiento en particular. No obstante, por unanimidad de los miembros presentes, se puede acordar la presencia de público en general o de personas determinadas.

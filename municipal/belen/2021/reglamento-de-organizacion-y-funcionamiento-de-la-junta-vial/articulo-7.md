@@ -1,0 +1,1 @@
+Artículo 7º-El Concejo Municipal, mediante acuerdo firme, podrá valorar la conveniencia de solicitar a la Administración o a la Unidad de Gestión Vial Municipal el apoyo necesario para la realización de los actos previos que se requieran para obtener la debida conformación de la Junta Vial Cantonal.

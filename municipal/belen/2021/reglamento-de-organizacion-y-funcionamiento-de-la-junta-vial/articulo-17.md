@@ -1,0 +1,1 @@
+Artículo 17.-La Junta Vial sesionará ordinariamente, como mínimo, una vez al mes, y extraordinariamente cada vez que lo acuerde la Junta Vial Cantonal o sea convocada por el presidente del Directorio. En ambos casos habrá quórum con mayoría absoluta, tres de los integrantes, indistintamente de que tengan o no derecho a voto.

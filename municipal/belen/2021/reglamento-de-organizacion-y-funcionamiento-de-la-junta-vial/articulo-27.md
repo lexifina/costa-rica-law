@@ -1,0 +1,1 @@
+Artículo 27.-Las actas pueden ser transcritas en forma manuscrita, mecanografiada o mediante procesador informático; no deben contener tachaduras, borrones ni alteraciones y deben ser de lectura corrida, es decir no deben dejarse espacios o renglones en blanco. Los errores deben ser corregidos mediante nota al final del acta, antes de las firmas correspondientes.

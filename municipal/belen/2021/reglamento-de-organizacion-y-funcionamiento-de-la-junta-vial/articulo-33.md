@@ -1,0 +1,1 @@
+Artículo 33.-El libro de actas deberá reponerse, según corresponda, por finalización, pérdida o deterioro. Para el primer caso, será suficiente la gestión del secretario de la Junta Vial; para los dos últimos deberá solicitarse la autorización de reposición ante el Concejo Municipal de Belén, acuerdo que deberá publicarse en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 2º-La Junta Vial es un órgano público nombrado por el Concejo Municipal de Belén y adscrito a él, ante el cual responde por su gestión, la cual será de consulta obligatoria en materia de planificación y evaluación de la obra pública vial cantonal y de servicio vial municipal, independientemente de la procedencia u origen de los recursos destinados a esos efectos.
