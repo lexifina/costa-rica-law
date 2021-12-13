@@ -1,0 +1,6 @@
+JUNTA DE PROTECCIÓN SOCIAL
+INSTITUCIÓN BENEMÉRITA
+Comunica al público en general que a partir del lunes 06 de diciembre del 2021 se da por finalizado los juegos Nº 2063 "Fiesta de Millones" y Nº 2064 "Bananas Regalonas".
+En cuanto a la participación por medio de activaciones en el programa Rueda de la Fortuna para ambos juegos, es hasta el sábado 18 de diciembre del 2021 y el último día de activación, así como, la participación a través de llamada telefónica es el sábado 11 de diciembre de 2021.
+En cuanto a la participación a través de raspa directa de los juegos 2063 y 2064 queda abierta para las personas que se encuentran en lista de espera para ir a girar la rueda y para las personas que se presenten a validar su participación dentro del plazo de los 60 días naturales una vez publicada la finalización de los juegos en el Diario Oficial La Gaceta, esto debido a la rotación de los juegos, y que producto de la crisis sanitaria que atraviesa el país por el Covid-19 por un tiempo el programa fue suspendido en atención a la emergencia, y que por consiguiente la lista de participantes por raspa directa se extendió en el tiempo.
+Asimismo, los vendedores deben efectuar la devolución de los juegos Nº 2063 "Fiesta de Millones" y Nº 2064 "Bananas Regalonas" el viernes 26 de noviembre, 2021 y el viernes 03 de diciembre, 2021.
