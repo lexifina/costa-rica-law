@@ -1,0 +1,4 @@
+Artículo 5º-Detalle de los premios
+Los premios especiales "Sorteo Extraordinario de Navidad N° 4676" que ganen los participantes en las diferentes mecánicas de juego que se desarrollen durante las entrevistas en los medios de comunicación y en los programas de la Rueda de La Fortuna consisten en tiras de 10 fracciones, medios enteros y enteros de dicho sorteo.
+Se entregará un total de 13 enteros del Sorteo Extraordinario de Navidad N° 4676, en total en las diferentes mecánicas de juego que se desarrollen durante las entrevistas en los medios de comunicación y en los programas de la Rueda de La Fortuna.
+La cantidad del premio a obtener por el ganador o ganadores (10 fracciones, medios enteros o enteros) será informado por los funcionarios de la Junta que asisten a las entrevistas en los medios de comunicación y a los diferentes programas de la Rueda de La Fortuna.

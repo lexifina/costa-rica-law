@@ -1,0 +1,2 @@
+Artículo 7º-Caducidad
+Los premios que obtengan los ganadores en las mecánicas de juego que se realicen en los medios de comunicación y en los diferentes programas de la Rueda de La Fortuna podrán ser reclamados a partir del primer día hábil siguiente a la realización de cada mecánica que se realice y hasta el último día hábil antes de realizarse el sorteo. Si transcurrido el plazo de caducidad el ganador no se presenta, la Junta procederá a efectuar la destrucción respectiva.
