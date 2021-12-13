@@ -18,3 +18,4 @@ Reglamento para el régimen de puestos de confianza para el Concejo Municipal de
 | 3 | 2017-03-13 | Reglamento municipal 11 (2017-03-13) |
 | 4 | 2020-12-01 | Reglamento municipal 48 (2020-12-01) |
 | 5 | 2021-11-30 | Reglamento municipal 48 (2021-11-30) |
+| 6 | 2021-12-13 | Reglamento municipal 50 (2021-12-13) |

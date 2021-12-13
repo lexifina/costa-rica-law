@@ -6,5 +6,5 @@ DE GOICOECHEA
 El Concejo Municipal de Goicoechea, en uso de las facultades que le confieren los artículos 169 y 170 de la Constitución Política, artículos 1º, 2º, 3º, 4º inciso a), 13, 43 y 118 del Código Municipal, aprueba el Reglamento de Régimen de Puestos de Confianza para el Concejo Municipal de este cantón.
 CAPÍTULO I
 De los principios generales
-Artículo 1º-Relación especial de confianza. El presente Reglamento establece el régimen especial de puestos de confianza para la presidencia, la vicepresidencia y las fracciones de partidos políticos que conforman el Concejo Municipal, cuyo desempeño exige requisitos especiales por el tipo de vínculo entre ellos y sus jerarcas.
-(Nota de Sinalevi: Mediante sesión N° 48 del 30 de noviembre de 2021, la Municipalidad de Goicoechea, acordó reformar el numeral anterior con el texto publicado antes de la modificación realizada en sesión Ordinaria N° 48-2020 del 1° de diciembre del 2020. Dado lo anterior el texto que se muestra es el que se publicó originalmente)
+Artículo 1º-Relación especial de confianza. El presente Reglamento establece el régimen especial de puestos de confianza para la Presidencia, la Vicepresidencia y las Fracciones de partidos políticos que conforman el Concejo Municipal, cuyo desempeño exige requisitos especiales por el tipo de vínculo entre ellos y sus jerarcas.
+(Así reformado mediante sesión N°50-2021 del 13 de diciembre de 2021)
