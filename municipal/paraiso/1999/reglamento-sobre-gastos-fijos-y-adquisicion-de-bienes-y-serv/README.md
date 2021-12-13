@@ -19,3 +19,4 @@ Reglamento sobre Gastos Fijos y Adquisición de Bienes y Servicios de Competenci
 | 4 | 2008-10-07 | Reglamento municipal 197 (2008-10-07) |
 | 5 | 2011-04-26 | Reglamento municipal 76 (2011-04-26) |
 | 6 | 2014-11-11 | Reglamento municipal 353 (2014-11-11) |
+| 7 | 2021-12-13 | Reglamento municipal 131 (2021-12-13) |
