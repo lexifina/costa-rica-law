@@ -1,0 +1,1 @@
+ARTÍCULO 7- Servicio al costo. Para financiar las actividades que le corresponden en esta ley, la Promotora del Comercio Exterior de Costa Rica (Procomer) queda habilitada para cobrar un canon por cada proyecto fílmico, con base en el principio de servicio al costo.
