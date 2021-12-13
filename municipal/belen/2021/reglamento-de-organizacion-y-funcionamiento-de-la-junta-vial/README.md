@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la Junta Vial Cantonal de Belén
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-12-13 | la propia norma |
+| 2 | 2021-12-13 | Reglamento municipal 47 (2021-08-10) |
