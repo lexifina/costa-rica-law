@@ -59,3 +59,4 @@ Reglamento del Seguro de Invalidez Vejez y Muerte de la Caja Costarricense de Se
 | 44 | 2019-06-20 | Reglamento 9038 (2019-06-20) |
 | 45 | 2019-12-09 | Reglamento 9069 (2019-12-09) |
 | 46 | 2020-07-20 | Reglamento 9112 (2020-07-20) |
+| 47 | 2021-12-14 | Reglamento 9229 (2021-12-14) |

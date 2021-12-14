@@ -1,3 +1,2 @@
-Transitorio * XII.—Todos los casos de pensión que se encuentren pendientes de resolver y los que se presentaren en el curso de los próximos 18 meses contados a partir de la vigencia de la presente reforma reglamentaria, se regirán por las disposiciones vigentes antes del 28 de abril del año 2005.
+Transitorio * XII.-(Derogado mediante sesión N° 9229 del 14 de diciembre de 2021)
 * (Así corrida la numeración tácitamente, al adicionarse el artículo 10 transitorio en sesión N° 7744 del 3 de abril del 2003, que lo pasó del N° 10 transitorio al 12 transitorio actual del artículo).
-(Así reformado en el artículo 12 de la sesión N° 7950 y en el artículo 7 de la sesión N° N° 7952 celabradas 21 y el 28 de abril del 2005)

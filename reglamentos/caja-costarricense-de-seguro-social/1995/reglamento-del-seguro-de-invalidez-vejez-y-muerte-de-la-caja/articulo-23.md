@@ -1,6 +1,7 @@
 CAPÍTULO IV
 De los montos de las pensiones Monto de las pensiones por vejez e invalidez
-Artículo 23.—La pensión por vejez o invalidez se calculará con base en el promedio de los últimos 240 (doscientos cuarenta) salarios o ingresos mensuales devengados y cotizados por el asegurado, actualizados por inflación, tomando como base el índice de precios al consumidor.
-Cuando el derecho a pensión por invalidez o muerte se consolida sin que el asegurado hubiere aportado 240 (doscientas cuarenta) cuotas mensuales, se tomarán en cuenta para el cálculo del salario o ingreso promedio la totalidad de salarios o ingresos reportados, actualizados por inflación.
+Artículo 23.-Fórmula de cálculo del salario promedio, periodicidad del pago de la pensión y aguinaldo.
+La pensión por vejez o invalidez se calculará con base en el promedio de los mejores 300 (trescientos) salarios o ingresos mensuales devengados y cotizados por el asegurado, seleccionados posterior a su actualización por inflación, tomando como base de actualización el índice de precios al consumidor calculado mensualmente por el Instituto Nacional de Estadística y Censos de Costa Rica.
+Cuando el derecho a pensión por invalidez o muerte se consolida sin que el asegurado hubiere aportado 300 (trescientas) cuotas mensuales, se tomarán en cuenta para el cálculo del salario o ingreso promedio la totalidad de salarios o ingresos reportados, actualizados por inflación.
 Las pensiones se pagarán por mensualidades vencidas. El primer pago comprenderá el período o fracción del mes desde la fecha de vigencia de la pensión. La pensión incluirá un pago adicional por concepto de aguinaldo (treceavo mes), el cual corresponde a una duodécima parte del total de pensiones efectivamente pagadas durante el año (el cual se entenderá como el período comprendido entre el 1° de noviembre del año anterior al 31 de octubre del año en curso). El aguinaldo se pagará en la primera semana de diciembre.
-(Así reformado mediante sesión N° 8683 del 5 de diciembre del 2013)
+(Así reformado mediante sesión N° 9229 del 14 de diciembre de 2021)

@@ -1,9 +1,27 @@
-Artículo 5º—Tiene derecho a pensión por vejez el asegurado que alcance los 65 años de edad, siempre que haya contribuido a este Seguro con al menos 300 (trescientas) cuotas. En el caso de aquellos asegurados que, habiendo alcanzado esa edad, no cumplen con el número de cuotas requeridas, pero tengan aportadas al menos 180 (ciento ochenta) cuotas, tienen derecho a una pensión proporcional, según se establece en el artículo 24° del presente Reglamento.
-El asegurado podrá anticipar su retiro con derecho a pensión de vejez, siempre que cumpla los requisitos y condiciones que se indican en la siguiente tabla:
-[imagen]
-[imagen]
-Alternativamente, el asegurado(a) que haya aportado 300 (trescientas) cotizaciones mensuales podrá acceder a un retiro anticipado respecto al correspondiente en la tabla anterior, a partir de los 62 años de edad los hombres y de los 60 años de edad las mujeres y tendrá derecho a una pensión reducida, de acuerdo con lo que se indica en el artículo 24° del presente Reglamento.
-A partir del mes dieciocho (18), contado a partir de la entrada en vigencia de la reforma de este artículo, el número de cotizaciones requerido para acceder a un retiro anticipado y obtener una pensión reducida será 360 (trescientas sesenta) cuotas, manteniendo el requisito de edad Una vez transcurridos treinta y seis (36) meses de la entrada en vigencia de la reforma de este artículo, el número de cotizaciones requerido para acceder a un retiro anticipado y obtener una pensión reducida será 420 (cuatrocientas veinte) cuotas, manteniendo el requisito de edad Una vez transcurridos treinta y seis (36) meses de la entrada en vigencia de la reforma de este artículo, se tendrá por derogado el beneficio de retiro anticipado con derecho a pensión reducida.
-Asimismo, el asegurado podrá anticipar su retiro de este Régimen, utilizando los recursos acumulados en el Régimen Voluntario de Pensiones Complementarias, de acuerdo con lo dispuesto en el Reglamento que para tales efectos aprueba la Junta Directiva.
-En el caso de las personas con Síndrome de Down afiliadas al Régimen, dada su condición genética que conlleva a un envejecimiento prematuro, se establece como edad mínima de retiro por vejez 40 (cuarenta) años, siempre y cuando hayan aportado al menos 180 (ciento ochenta) cotizaciones mensuales.
-(Así reformado en sesión N° 8931 del 12 de octubre de 2017)
+Artículo 5º-Alternativas de pensión por vejez.
+El Régimen de Invalidez, Vejez y Muerte establece las siguientes alternativas de pensión por vejez:
+I.-Pensión por vejez ordinaria:
+El asegurado que alcance los 65 años de edad, siempre que haya contribuido a este Seguro con al menos 300 (trescientas) cuotas, tendrá derecho a esta alternativa de pensión.
+II.-Pensión por vejez proporcional:
+Aquellos asegurados que habiendo alcanzado 65 años de edad, no hayan aportado 300 (trescientas) cuotas, pero acumularon al menos 180 (ciento ochenta), tienen derecho a una pensión proporcional, según el cálculo que se establece en el artículo 24° del presente Reglamento.
+III.-Pensión por vejez anticipada para mujeres:
+Las mujeres podrán anticipar su retiro con derecho a pensión de vejez, de acuerdo con los requisitos y condiciones que se indican en la siguiente tabla:
+Edad (años y meses) | Cuotas | Edad (años y meses) | Cuotas
+63-00 | 405 | 64-01 | 353
+63-01 | 401 | 64-02 | 349
+63-02 | 397 | 64-03 | 345
+63-03 | 393 | 64-04 | 341
+63-04 | 389 | 64-05 | 337
+63-05 | 385 | 64-06 | 333
+63-06 | 381 | 64-07 | 327
+63-07 | 377 | 64-08 | 321
+63-08 | 373 | 64-09 | 315
+63-09 | 369 | 64-10 | 310
+63-10 | 365 | 64-11 | 305
+63-11 | 361 | ? 65 | 300
+64-00 | 357 | |
+IV.-Pensión por vejez anticipada según el artículo 26 de la Ley N° 7983, Ley de Protección al Trabajador:
+El asegurado podrá anticipar su retiro por vejez del Régimen de Invalidez, Vejez y Muerte, utilizando los recursos acumulados en el Régimen Voluntario de Pensiones Complementarias, de acuerdo con lo dispuesto en el Reglamento que para tales efectos aprueba la Junta Directiva.
+V.-Pensión por vejez para personas con Síndrome de Down:
+En el caso de las personas con Síndrome de Down afiliadas al Régimen de Invalidez, Vejez y Muerte, dada su condición genética que conlleva a un envejecimiento prematuro, se establece como edad mínima de retiro por vejez, 40 (cuarenta) años, siempre y cuando hayan aportado al menos 180 (ciento ochenta) cotizaciones mensuales.
+(Así reformado mediante sesión N° 9229 del 14 de diciembre de 2021)
