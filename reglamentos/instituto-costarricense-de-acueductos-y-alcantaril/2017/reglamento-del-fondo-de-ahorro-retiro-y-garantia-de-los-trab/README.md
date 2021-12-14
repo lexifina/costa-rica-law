@@ -14,3 +14,4 @@ Reglamento del fondo de ahorro, retiro y garantía de los trabajadores del Insti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-30 | la propia norma |
+| 2 | 2021-12-14 | Reglamento 82 (2021-12-14) |
