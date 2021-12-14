@@ -1,4 +1,6 @@
+(Derogado)
 MUNICIPALIDAD DE SAN JOSÉ
+(Esta norma se dejó sin efecto mediante resolución N° 00150 del 14 de diciembre de 2021)
 SECCIÓN DE COMUNICACIÓN INSTITUCIONAL
 RESOLUCIÓN
 MANUAL DE VALORES UNITARIOS

@@ -14,3 +14,4 @@ Adhesión de la Municipalidad de San José al Manual de Valores Unitarios por Ti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-19 | la propia norma |
+| 2 | 2021-12-14 | Resolución 150 (2021-12-14) |
