@@ -1,0 +1,15 @@
+CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO
+El Consejo Nacional de Supervisión del Sistema Financiero, en el artículo 7, del acta de la sesión 1702-2021, celebrada el 30 de noviembre del 2021,
+considerando que:
+1. El Consejo Nacional de Supervisión del Sistema Financiero, en el artículo 9, del acta de la sesión 1697-2021, del 1° de noviembre del 2021, dispuso en firme y por unanimidad, en torno a la modificación regulatoria relacionada con la continuidad o suspensión de las medidas de flexibilización regulatoria, a raíz de la emergencia sanitaria provocada por el COVID-19, modificar, entre otros cuerpos normativos, el Reglamento sobre gestión y evaluación del riesgo de crédito para el Sistema de Banca para el Desarrollo, Acuerdo SUGEF 15-16.
+2. En las modificaciones al Reglamento sobre gestión y evaluación del riesgo de crédito para el Sistema de Banca para el Desarrollo, Acuerdo SUGEF 15-16, se le adicionó un transitorio al cual se le asignó el número XIX, cuando lo correcto era IX. Asimismo, debe precisarse la referencia al plazo de 12 meses indicado en el Transitorio.
+3. Con fundamento en el marco considerativo del artículo 9, del acta de la sesión 1697-2021 celebrada el 1° de noviembre del 2021 y siendo el presente acuerdo una corrección al Acuerdo, se prescinde de la consulta pública dispuesta en el numeral 2, artículo 361, de la Ley General de Administración Pública, Ley 6227.
+resolvió:
+modificar el inciso "i. Adicionar el Transitorio XIX, de conformidad con el siguiente texto", del literal "b. En el Acuerdo SUGEF 15-16, Reglamento sobre gestión y evaluación del riesgo de crédito para el Sistema de Banca para el Desarrollo", del numeral "3. Adoptar las siguientes medidas regulatorias, con vigencia a partir del primero de enero de 2022, inclusive," para que en adelante se lea de la siguiente manera:
+"i. Adicionar el Transitorio IX, de conformidad con el siguiente texto:
+Transitorio IX. A partir del primero de enero de 2022 se aplicarán plenamente los criterios de clasificación de deudores según lo dispuesto en la Sección 2.2 Metodología de clasificación para cartera de banca de desarrollo y Sección 2.3 Metodología de clasificación para cartera de banca de segundo piso, del Anexo 3 "Metodología Estándar".
+Para estos efectos, su aplicación seguirá las siguientes consideraciones:
+a) La cantidad de restructuraciones comenzará a computarse desde cero a partir del primero de enero de 2022,
+b) El plazo de 12 meses aplicable en las secciones 2.2 "Metodología de clasificación para cartera de banca de desarrollo" y 2.3 "Metodología de clasificación para cartera de banca de segundo piso", comenzará a contarse a partir del primero de enero de 2022, para todos los deudores que figuren en la cartera de créditos de la entidad al 31 de diciembre de 2021,
+c) Subsecuentemente para los deudores indicados en el punto anterior, y para deudores nuevos a partir del primero de enero de 2022, el referido plazo de 12 meses seguirá computándose según lo dispuesto en la regulación, de conformidad con la situación particular de cada deudor."
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
