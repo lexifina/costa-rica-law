@@ -1,0 +1,1 @@
+Artículo 15.-Para obtener la licencia comercial temporal para actividades ocasionales, deberá hacerse completando todos los datos requeridos por el formulario que elaborará y proporcionará al efecto el Departamento de Patentes, el cual contendrá los requisitos legales y reglamentarios mínimos para el ejercicio de la actividad.

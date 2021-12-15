@@ -1,0 +1,1 @@
+Artículo 36.-La Municipalidad facilitará a los patentados el uso de formularios con la información necesaria para que puedan presentar la declaración jurada que se refiere el artículo anterior, en forma adecuada a los fines de la Ley y de este Reglamento.

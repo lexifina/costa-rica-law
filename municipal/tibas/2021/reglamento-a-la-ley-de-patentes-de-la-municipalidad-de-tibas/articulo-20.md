@@ -1,0 +1,1 @@
+Artículo 20.-La cancelación del impuesto asignado debe efectuarse antes del inicio de las actividades por cualquiera de los medios de pago definidos por la Municipalidad de Tibás, u ocho días después de efectuado el evento en casos calificados y a criterio de la municipalidad.

@@ -1,0 +1,1 @@
+Artículo 16.-En el caso de ferias, turnos o similares, la solicitud de la actividad en general, la realizará la persona o entidad responsable del evento, pero el impuesto se aplicará de manera individual para cada local o sitio asignado de acuerdo a la distribución presentada.

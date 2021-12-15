@@ -1,0 +1,1 @@
+Artículo 43.-Para gravar toda actividad lucrativa recientemente establecida, que no pueda cumplir o no haya cumplido, con lo estipulado en el presente Reglamento para la determinación de la base imponible, la Municipalidad podrá hacer una estimación tomando como parámetro otros negocios similares.

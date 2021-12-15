@@ -1,0 +1,1 @@
+Artículo 12.-La Municipalidad verificará el cumplimiento de la normativa que aplique según el trámite de licencia gestionada, los resultados deberán ser incorporados al expediente que a los efectos lleve el municipio.

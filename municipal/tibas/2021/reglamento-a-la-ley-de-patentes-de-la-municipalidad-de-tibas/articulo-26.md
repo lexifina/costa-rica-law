@@ -1,0 +1,1 @@
+Artículo 26.-Todo certificado de licencia municipal deberá ubicarse en un espacio visible y accesible al inspector municipal. En la ubicación de venta de los bienes y/o servicios de la actividad permitida.

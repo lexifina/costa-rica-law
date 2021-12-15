@@ -1,0 +1,1 @@
+Artículo 18.-Los negocios que expendan licores y cerveza, deberán cancelar el impuesto correspondiente a este rubro mediante el sistema de analogía, con negocios similares del sistema de patentados permanentes que sean declarantes del impuesto sobre la renta durante el período vigente a que se realiza la actividad.
