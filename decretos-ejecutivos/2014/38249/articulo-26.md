@@ -1,1 +1,1 @@
-Artículo 26.— La investigación sumaria deberá concluirse en el plazo máximo de un mes calendario, contado a partir de la recepción de la denuncia. La inacción u omisión por parte del Supervisor del Centro Educativo, según lo indicado en el artículo anterior, será considerado incumplimiento de funciones.
+Artículo 26.- (Anulado mediante resolución de la Sala Constitucional N° 028022 del 15 de diciembre de 2021)

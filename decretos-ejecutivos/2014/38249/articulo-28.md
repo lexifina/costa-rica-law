@@ -1,1 +1,1 @@
-Artículo 28.—En caso que se reciba una recomendación de destitución de la Junta o de alguno de sus miembros, el Jefe de Servicios Administrativos y Financieros verificará el cumplimiento del procedimiento establecido en los artículos precedentes. Asimismo, en un plazo máximo de cinco días hábiles, remitirá el expediente al Concejo Municipal con la solicitud de destitución, para que el Concejo Municipal proceda según corresponda.
+Artículo 28.- (Anulado mediante resolución de la Sala Constitucional N° 028022 del 15 de diciembre de 2021)
