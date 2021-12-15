@@ -1,0 +1,1 @@
+Artículo 6°- Coordinación. El Comité de Aval elegirá una persona coordinadora durante la primera sesión ordinaria, la cual será propuesta ante la Junta Directiva, quien deberá ratificarla. En caso de que la Junta Directiva lo rechace, la persona coordinadora será definida por este último órgano.

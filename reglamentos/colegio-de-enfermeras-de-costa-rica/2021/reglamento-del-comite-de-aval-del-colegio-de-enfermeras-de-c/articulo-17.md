@@ -1,0 +1,1 @@
+Artículo 17.- Para la concesión de aval a actividades de educación continua, estas deberán de cumplir con lo estipulado en el numeral 9 punto 1 inciso b) del Decreto Ejecutivo N.º 18190S, para lo cual el Comité de Aval tomará en cuenta la duración mínima de 20 horas, así como lo contenido en el presente Reglamento.

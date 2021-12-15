@@ -1,0 +1,1 @@
+Artículo 25.- El Comité no concederá aval a profesionales inactivos o suspendidos durante el desarrollo de la actividad académica o publicación, con excepción de quienes cuentan con el permiso de suspensión temporal por salida del país (para estudio), o estén en algún régimen especial acorde con la normativa imperante que sea compatible, así acordado por la Junta Directiva.

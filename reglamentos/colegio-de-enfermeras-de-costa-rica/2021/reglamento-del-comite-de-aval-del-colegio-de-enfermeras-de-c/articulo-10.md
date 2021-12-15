@@ -1,0 +1,1 @@
+Artículo 10.- Responsabilidades del Comité de Aval. La actividad de aval y asignación de puntajes encomendada por la Junta Directiva a los miembros de El Comité se enmarca dentro de las actividades propias del ejercicio profesional, según lo establecido en el artículo 28 inciso b) del Decreto Ejecutivo N° 37286-S y el numeral 105 del Código de Ética y Moral Profesional.

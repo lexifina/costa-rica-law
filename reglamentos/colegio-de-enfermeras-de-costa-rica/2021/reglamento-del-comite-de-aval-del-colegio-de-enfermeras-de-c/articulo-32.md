@@ -1,0 +1,1 @@
+Artículo 32.- El Comité dispondrá de 30 días hábiles a partir de la recepción completa de la Solicitud de Concesión Aval (anexo 1), para someter los atestados presentados al proceso de verificación de la calidad y aprobar o negar la concesión del respectivo aval.

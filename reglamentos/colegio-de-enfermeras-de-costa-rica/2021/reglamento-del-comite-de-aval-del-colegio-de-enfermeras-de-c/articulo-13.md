@@ -1,0 +1,2 @@
+Artículo 13.- Limitaciones. El Comité no puede conocer ni conceder aval a actividades organizadas o avaladas por otras entidades competentes, sea el CENDEISSS, la Universidad de Costa Rica o la Dirección General del Servicio Civil.
+Estas entidades serán responsables del aval dado a las mismas, salvo lo correspondiente a la asignación de puntaje en caso de que las actividades avaladas u organizadas por dichos entes, hayan generado un aporte o contribución al progreso científico y al desarrollo profesional de la enfermería.

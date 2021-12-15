@@ -1,0 +1,1 @@
+Artículo 19.- Para la concesión de aval en publicaciones, estas deberán cumplir con lo estipulado en el numeral 9 punto 4 del Decreto Ejecutivo N° 18190-S, para lo cual deberá considerarse como parámetro de calidad, el prestigio de la publicación, así como lo contenido en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 48.- El reconocimiento del aporte o contribución y su correspondiente puntaje no puede ser objetado por las Comisiones Técnicas de Enfermería, toda vez que su otorgamiento es competencia exclusiva del Colegio de Enfermeras de Costa Rica en los términos indicados en el presente reglamento.

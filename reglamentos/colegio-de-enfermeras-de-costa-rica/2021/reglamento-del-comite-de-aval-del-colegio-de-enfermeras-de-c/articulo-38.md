@@ -1,0 +1,1 @@
+Artículo 38.- El Comité de Aval someterá al proceso de reconocimiento de puntaje por contribución al progreso científico y al desarrollo profesional de la enfermería, únicamente los atestados de los y las colegiadas que se encuentren activos(as) y al día con sus obligaciones con el Colegio de Enfermeras de Costa Rica.

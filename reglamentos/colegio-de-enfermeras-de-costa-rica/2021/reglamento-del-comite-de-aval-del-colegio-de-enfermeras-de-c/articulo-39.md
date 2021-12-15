@@ -1,0 +1,1 @@
+Artículo 39.- El Comité no asignará puntajes a profesionales inactivos o suspendidos durante el desarrollo del aporte o contribución, con excepción de quienes cuenten con el permiso de suspensión temporal por salida del país (para estudio), o estén en algún régimen especial acorde con la normativa imperante que sea compatible, así acordado por la Junta Directiva.

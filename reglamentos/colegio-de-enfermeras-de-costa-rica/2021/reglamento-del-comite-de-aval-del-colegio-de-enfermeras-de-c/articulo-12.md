@@ -1,0 +1,4 @@
+Artículo 12.- Abstenciones. Deben de abstenerse de participar de todo proceso de verificación de la calidad sobre atestados y asignación de puntajes, las integrantes del Comité de Aval que:
+a) Guarden relación laboral, por servicios profesionales o voluntaria, como facilitadores, supervisores, coordinadores, directores o similar, miembros de comité editorial o ético, de las actividades de educación continua o publicación u otras similares no contempladas expresamente.
+b) Guarden relación hasta un tercer grado de consanguinidad o afinidad, con los organizadores, facilitadores o solicitantes de la revisión de los atestados sometidos al proceso de aval.
+c) Guarden relación hasta un tercer grado de consanguinidad, afinidad o que, de algún modo tengan un interés directo indebido en el reconocimiento y asignación de puntaje por la contribución al progreso científico y desarrollo profesional.

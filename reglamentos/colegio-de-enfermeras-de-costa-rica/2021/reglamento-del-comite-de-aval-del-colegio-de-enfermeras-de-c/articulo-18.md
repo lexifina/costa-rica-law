@@ -1,0 +1,11 @@
+Artículo 18.- Parámetros de calidad de las actividades de educación continua. Para conceder el aval a las actividades de educación continua, se utilizarán los siguientes parámetros para determinar la calidad de estos:
+a) Contenido. La actividad de educación continua debe de estar relacionada a alguna de las áreas del quehacer o saber de la enfermería, en el campo de las funciones independientes, interdependientes o dependientes, o bien, sean conocimientos en ciencias físicas, biológicas o sociales para la prevención de enfermedades, la conservación de la salud o el cuidado de las personas con y sin patologías.
+b) Prestigio. Para los efectos de educación continua y del presente reglamento, se entiende por prestigio de estas, aquellas que cumplan con alguna de las siguientes características:
+i) ser impartidas y organizadas por alguna escuela o facultad de Enfermería universitaria reconocida por el Estado costarricense.
+ii) ser impartidas y organizadas por alguna entidad formal, de renombre nacional o internacional reconocida por el Estado costarricense.
+iii) ser organizada y ejecutada por algún organismo internacional reconocido por el Estado costarricense.
+c) Ético-legal: Para considerar que una actividad de educación continua cumple con parámetros éticos, se debe de demostrar que los docentes, instructores, panelistas, conferencias o similares, cuando sean enfermeros inscritos ante el Colegio, sean miembros activos o que estén incluidos o pertenezcan a algún régimen especial acorde con la normativa imperante que sea compatible.
+Asimismo, que el solicitante de la concesión de aval:
+i) no guarde relación laboral, por servicios profesionales o voluntaria, como facilitadores, supervisores, coordinadores, directores o similar, socios o propietarios, o vínculos similares con las personas que brindan las actividades de educación continua, y
+ii) no guarden relación hasta un segundo grado de consanguinidad o afinidad, de los organizadores o facilitadores de los atestados sometidos al proceso de aval.
+d) Relevancia. La actividad cursada, se considera como relevante cuando el tema abordado, siendo parte de la formación académica de grado o postgrado, representa una actualización, refrescamiento o nuevo enfoque de abordaje, o bien, sea un tema innovador y actual que no forma parte de la formación de grado o postgrado.

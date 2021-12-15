@@ -1,0 +1,1 @@
+Artículo 42.- Trámite de la solicitud. Recibida la solicitud, el Comité procederá de inmediato con la revisión y el análisis correspondiente en la sesión ordinaria agendada o en la sesión extraordinaria convocada para tales efectos.

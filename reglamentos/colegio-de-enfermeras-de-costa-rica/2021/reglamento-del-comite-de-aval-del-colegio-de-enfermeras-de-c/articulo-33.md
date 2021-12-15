@@ -1,0 +1,1 @@
+Artículo 33.- El proceso de verificación de la calidad, se realizará por parte de El Comité, verificando que cada atestado cumpla con los respectivos parámetros de calidad descritos en el Capítulo III. Para lo anterior, completará el formulario "Verificación de la Calidad" (anexo2) por cada atestado presentado.
