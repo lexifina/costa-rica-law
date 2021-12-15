@@ -15,3 +15,4 @@ Establece disposiciones sanitarias dirigidas a las personas encargadas de establ
 | --- | --- | --- |
 | 1 | 2021-12-01 | la propia norma |
 | 2 | 2021-12-01 | Resolución 9003 (2021-11-18) |
+| 3 | 2021-12-15 | Resolución 9441 (2021-12-15) |
