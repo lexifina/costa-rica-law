@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito de Competencia: El Concejo Municipal dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en asuntos relacionados con su competencia funcional, establecida según el artículo 13 del Código Municipal y las leyes especiales que le otorguen competencias específicas.

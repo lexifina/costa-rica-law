@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo del Reglamento: El presente Reglamento tiene como objetivo informar, regular la forma y los requisitos que las personas deben considerar al presentar una denuncia ante el Concejo Municipal de Tibás.

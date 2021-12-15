@@ -1,0 +1,1 @@
+Artículo 12.-De la atención de denuncias trasladadas por la contraloría general de la República: El Concejo Municipal atenderá bajo los mismos criterios, antes indicados las denuncias que le sean remitidas por el Órgano Contralor, podrá dar prioridad a su atención de conformidad con el contenido de las mismas.
