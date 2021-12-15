@@ -40,3 +40,4 @@ Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio de Segu
 | 25 | 2017-05-15 | Decreto Ejecutivo 40421 (2017-05-15) |
 | 26 | 2018-11-23 | Decreto Ejecutivo 41595 (2018-11-23) |
 | 27 | 2021-06-09 | Decreto Ejecutivo 43065 (2021-06-09) |
+| 28 | 2021-12-15 | SINALEVI (sin norma nombrada) |
