@@ -388,6 +388,8 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de m�
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Medicina Paliativa Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+Se reconoce como sinónimos de esta especialidad el siguiente termino: Cuidado Paliativo Pediátrico.
+(Así adicionado el párrafo anterior en sesión N° 2021-12-15 del 15 de diciembre de 2021)
 16.20.14. Nefrología Pediátrica.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
