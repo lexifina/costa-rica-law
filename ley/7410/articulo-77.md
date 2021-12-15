@@ -1,8 +1,6 @@
-(*)CAPITULO VII
-Del régimen disciplinario
-(*)(Así corrida la numeración del capítulo anterior por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo capítulo VI al VII actual)
-Artículo 77°—Normativa aplicable
-El régimen disciplinario aplicable a los miembros de los cuerpos de policía, se ajustará a los principios de actuación policial previstos en la presente Ley.
-(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 61 al 64 actual)
-(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 64 al 71 actual)
-(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 71 al 77 actual)
+Artículo 77°-Descensos
+El Consejo de Personal autorizará los descensos de los funcionarios. Estos descensos solo procederán por impericia, imprudencia, negligencia o deficiencia en el servicio, siempre que no constituyan causales de despido, previa valoración del expediente que se levante. Al servidor afectado se le conferirá audiencia previa y podrá apelar ante el ministro quien resolverá en última instancia.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 57 al 60 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 60 al 67 actual)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 67 al 73 actual)
+(Así modificada su numeración por el artículo 2° de la ley Creación de la Dirección del Servicio de Vigilancia Aérea como cuerpo policial adscrito al Ministerio de Seguridad Pública, N° 10061 del 15 de noviembre del 2021, que lo traspasó del antiguo artículo 73 al 77)

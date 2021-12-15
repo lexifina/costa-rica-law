@@ -1,9 +1,6 @@
-Artículo 95°—Requisitos para becas
-Para aprobar becas en el extranjero, deberá comprobarse que:
-a) El país oferente no esté regido por un gobierno de facto o que no se encuentre seriamente cuestionado, por violaciones graves de los derechos humanos, denunciadas o en trámite de denuncia, ante los organismos competentes, regionales o mundiales.
-b) Se trata de cursos de formación eminentemente policial.
-c) Se aportan los programas con sus objetivos y contenidos.
-(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 77 al 80 actual)
-(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 80 al 87 actual)
-(Así corrida su numeración por el artículo 3° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 87 al 89 actual)
-(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 89 al 95 actual)
+Artículo 95.- Riesgo policial. Créase un incentivo denominado riesgo policial, el cual consiste en un plus salarial equivalente a un dieciocho por ciento (18%) del salario base; corresponderá a todos los funcionarios que desarrollen funciones policiales que impliquen riesgo a su integridad física, independientemente de la ubicación en la estructura administrativa.
+(Así reformado el párrafo anterior de acuerdo con la anulación parcial ordenada por resolución de la Sala Constitucional N° 12017 del 16 de agosto de 2006).
+El otorgamiento de este incentivo salarial deberá fundamentarse, en cada caso concreto, definiendo las razones por las cuales las funciones del empleado correspondiente encuadran dentro del supuesto de peligrosidad definido.
+(Así adicionado por el artículo 3° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 85 al 91 actual)
+(Así modificada su numeración por el artículo 2° de la ley Creación de la Dirección del Servicio de Vigilancia Aérea como cuerpo policial adscrito al Ministerio de Seguridad Pública, N° 10061 del 15 de noviembre del 2021, que lo traspasó del antiguo artículo 91 al 95)
