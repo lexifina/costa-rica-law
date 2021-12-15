@@ -1,0 +1,3 @@
+Artículo 8º—Cobro. La Municipalidad realizará el cobro mensual del servicio de manejo de residuos sólidos ordinarios, que incluirá los costos para realizar una gestión integral de estos, a todos los sujetos pasivos que se encuentren dentro del área del cantón de San Carlos en que se preste dicho servicio.
+El cobro de la tarifa se realizará de conformidad a la cantidad de unidades habitacionales, comerciales, industriales que se encuentren ubicadas dentro de un inmueble sin importar si se encuentran en uso o no y a los cuales la Municipalidad les presta efectivamente el servicio.
+El cobro se realizará independientemente de si el sujeto pasivo desea ser prestatario o no del servicio público de manejo de residuos sólidos ordinarios.

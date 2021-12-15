@@ -1,0 +1,1 @@
+Artículo 16.—Cumplimiento de horario establecido. Los usuarios deberán sacar sus residuos sólidos al lugar de recolección de conformidad con lo establecido en el artículo anterior, en los días y horario establecidos.

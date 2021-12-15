@@ -1,0 +1,2 @@
+Artículo 14.—Residuos autoclavados: Cuando el usuario haga entrega de residuos autoclavados, estos deberán ser dispuestos y entregados en una bolsa roja para que el personal municipal verifique que tiene trato especial.
+Es obligación del contribuyente hacer entrega al personal recolector del certificado de auto clavado, ya que este es indispensable para su posterior entrega en el relleno sanitario.

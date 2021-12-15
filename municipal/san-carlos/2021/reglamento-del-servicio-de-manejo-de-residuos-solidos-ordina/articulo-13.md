@@ -1,0 +1,1 @@
+Artículo 13.—Intereses a cargo del sujeto pasivo. En caso de que el pago se realice fuera del término establecido en el artículo anterior, generará el cobro de los intereses, el cual será fijado según lo dispuesto en los artículos 78 de Código Municipal y 57 del Código de Normas y Procedimientos Tributarios.

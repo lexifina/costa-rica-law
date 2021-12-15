@@ -1,0 +1,1 @@
+Artículo 33.—Área servida. Se considera área servida del servicio de Manejo de residuos sólidos, tanto los sitios de prestación directa sobre la vía pública como aquellos que se comunican con ésta, siempre y cuando se dé la prestación efectiva del servicio.

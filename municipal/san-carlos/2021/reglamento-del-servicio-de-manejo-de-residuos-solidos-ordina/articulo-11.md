@@ -1,0 +1,1 @@
+Artículo 11.—Deber de informar. La Municipalidad, deberá asegurar y establecer los medios idóneos para que la información pertinente sobre la gestión de residuos sólidos no valorizables, misma sea de acceso público, según se establece en el principio de derecho a la información.

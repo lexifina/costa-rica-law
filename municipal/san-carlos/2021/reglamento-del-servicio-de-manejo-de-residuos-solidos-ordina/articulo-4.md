@@ -1,0 +1,1 @@
+Artículo 4º—Ente acreedor de la tarifa. La Municipalidad constituye el ente acreedor de la tarifa y sujeto activo a quien corresponde su cobro y administración por la prestación del servicio de manejo de residuos sólidos ordinarios.

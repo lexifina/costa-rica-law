@@ -1,0 +1,1 @@
+Artículo 23.—Categoría Mixta. En toda unidad habitacional, en cuyo espacio físico (localización) exista una patente, es decir que se lleve a cabo una actividad comercial, el monto de la tasa a cobrar se calculará de acuerdo a la categoría de mayor rango.
