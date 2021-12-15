@@ -15,3 +15,4 @@ Procedimiento ECA-MC-MA-P20 Procedimiento Aval Técnico para la Exo Ley 7447 (Ve
 | --- | --- | --- |
 | 1 | 2019-08-22 | la propia norma |
 | 2 | 2020-05-05 | Acuerdo 5 (2020-05-05) |
+| 3 | 2021-12-15 | Acuerdo 13 (2021-12-15) |
