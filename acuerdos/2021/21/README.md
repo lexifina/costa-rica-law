@@ -13,3 +13,4 @@
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-12-01 | la propia norma |
+| 2 | 2021-12-15 | Acuerdo 23 (2021-12-15) |

@@ -1,4 +1,5 @@
 REPRODUCCIÓN POR ERROR EN LO SUBRAYADO Y NEGRITA
+(Nota de Sinalevi: Mediante aviso 23-2021 del 15 de diciembre de 2021, y publicado en el Boletín Judicial N° 7 del 13 de enero de 2022, se dispuso aclarar que la apertura efectiva de los Tribunales Penales, es unipersonal, es decir, una persona juzgadora, con una persona técnico, para atender medidas cautelares, y asuntos urgentes, únicamente, no para realizar debates.)
 AVISO No. 21-2021
 Asunto: 1) Plan de Vacaciones Colectivas del Poder Judicial 2021-2022. 2) Lineamientos para la atención de asuntos y detalle de las oficinas que permanecerán abiertas durante los períodos de vacaciones colectivas".-
 A LAS INSTITUCIONES, ABOGADOS, ABOGADAS, PERSONAS SERVIDORAS JUDICIALES DEL PAÍS Y PÚBLICO EN GENERAL
