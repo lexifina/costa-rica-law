@@ -1,0 +1,3 @@
+Artículo 10- Puntos de control.
+Dirección de Agua establecerá puntos de control, con enfoque de cuenca, sub cuenca o microcuenca hidrográfica, con el fin de tener una visión y control integral de los aprovechamientos, de la disponibilidad de agua y del caudal ambiental. En estos se realizará el monitoreo de la cantidad, temporalidad y calidad de agua.
+Esto se realizará progresivamente conforme la disponibilidad de recursos financieros. El MINAE publicará en el Sistema Nacional de Información para la Gestión Integrada del Recurso Hídrico (SINIGIRH) a inicio de todos los años, la información de los puntos de control.
