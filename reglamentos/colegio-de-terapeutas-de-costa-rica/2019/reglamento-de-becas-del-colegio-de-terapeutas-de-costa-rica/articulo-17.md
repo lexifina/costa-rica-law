@@ -1,1 +1,1 @@
-Artículo 17.—Sujeción al presupuesto anual. La concesión de becas, está supeditada a la aprobación de los montos correspondientes a estas, por parte de la asamblea general del Colegio de Terapeutas de Costa Rica.
+Artículo 17.-Sujeción al presupuesto anual. La concesión de becas está supeditada a la aprobación de los montos correspondientes a estas, por parte de la Asamblea General del Colegio de Terapeutas de Costa Rica.

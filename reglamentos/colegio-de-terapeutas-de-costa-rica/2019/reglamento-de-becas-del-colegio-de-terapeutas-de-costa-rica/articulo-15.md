@@ -1,1 +1,1 @@
-Artículo 15.—Limitaciones al beneficio. El agremiado que haya sido beneficiario de una beca, no podrá solicitar una nueva, hasta tanto haya terminado el plazo del contrato firmado con el Colegio y este se haya cumplido a cabalidad.
+Artículo 15.-Limitaciones al beneficio. El agremiado que haya sido beneficiario de una beca no podrá solicitar una nueva, hasta tanto haya terminado el plazo del contrato firmado con el Colegio y este se haya cumplido a cabalidad.

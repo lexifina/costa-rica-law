@@ -1,4 +1,3 @@
 CAPÍTULO IV
 Obligaciones del beneficiario
-Artículo 9°—Una vez definido el beneficiario de cada beca, la Dirección Académica notificará al agremiado, indicándole el monto aprobado y le informará los gastos a cubrir con el mismo.
-Asimismo, el beneficiario deberá comprometerse al cumplimiento de las obligaciones estipuladas en el presente reglamento, con la firma de la documentación correspondiente.
+Artículo 9º-Una vez definidos el o los beneficiarios de la respectiva convocatoria para optar por una beca, la Dirección Académica les notificará individualmente, indicándoles el monto aprobado y le informará sobre los gastos a cubrir con el mismo. Asimismo, cada beneficiario deberá comprometerse al cumplimiento de las obligaciones estipuladas en el presente reglamento, con la firma de la documentación correspondiente.
