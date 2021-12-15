@@ -1,5 +1,6 @@
-CAPITULO III
-De la Reserva de las Fuerzas de Policía
-Artículo 39º—Naturaleza de la Reserva
-El Presidente de la República podrá organizar y convocar, con carácter transitorio, a la Reserva de las fuerzas de policía, como cuerpo auxiliar extraordinario, con carácter ad honórem, para atender estados de emergencia o situaciones excepcionales.
-(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 33 al 39 actual)
+SECCIÓN XI
+Dirección del Servicio de Vigilancia Aérea
+(Así adicionada la sección anterior por el artículo 2° de la ley Creación de la Dirección del Servicio de Vigilancia Aérea como cuerpo policial adscrito al Ministerio de Seguridad Pública, N° 10061 del 15 de noviembre del 2021)
+Artículo 39- Competencia
+La Dirección del Servicio de Vigilancia Aérea del Ministerio de Seguridad Pública garantizará el orden público en materia de seguridad de la aviación civil internacional, vigilará y resguardará el espacio aéreo costarricense. De conformidad con los principios que determinen la Constitución Política, los tratados internacionales, las leyes y sus reglamentos.
+(Así adicionado por el artículo 2° de la ley Creación de la Dirección del Servicio de Vigilancia Aérea como cuerpo policial adscrito al Ministerio de Seguridad Pública, N° 10061 del 15 de noviembre del 2021)

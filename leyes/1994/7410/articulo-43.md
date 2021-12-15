@@ -1,7 +1,6 @@
-CAPÍTULO IV
-DIRECCIÓN POLICIAL DE APOYO LEGAL
-Artículo 43.- Creación. Créase la Dirección Policial de Apoyo Legal como una unidad bajo el mando de la Dirección General de la Fuerza Pública; estará conformada administrativamente por una dirección, una subdirección y una delegación para cada región programática policial.
-Dicha unidad técnica operacional estará integrada por profesionales en Derecho incorporados al Colegio respectivo, los cuales estarán bajo el régimen del estatuto policial.
-La Dirección de Apoyo Legal Policial podrá celebrar convenios con las universidades públicas y privadas del país para incluir, en dicha dependencia, el servicio ad honórem de estudiantes de Derecho, cuyo tiempo les será acreditado para su trabajo comunal universitario. Estas personas no estarán bajo el régimen del Estatuto Policial ni gozarán de los beneficios establecidos en el artículo 39 de esta Ley.
-(Así adicionado por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)
-(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 37 al 43 actual)
+CAPITULO III
+De la Reserva de las Fuerzas de Policía
+Artículo 43º-Naturaleza de la Reserva
+El Presidente de la República podrá organizar y convocar, con carácter transitorio, a la Reserva de las fuerzas de policía, como cuerpo auxiliar extraordinario, con carácter ad honórem, para atender estados de emergencia o situaciones excepcionales.
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 33 al 39 actual)
+(Así modificada su numeración por el artículo 2° de la ley Creación de la Dirección del Servicio de Vigilancia Aérea como cuerpo policial adscrito al Ministerio de Seguridad Pública, N° 10061 del 15 de noviembre del 2021, que lo traspasó del antiguo artículo 39 al 43)

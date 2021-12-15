@@ -1,8 +1,7 @@
-(*)CAPITULO X
-Adiestramiento y capacitación
-(*)(Así corrida la numeración del capítulo anterior por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo capítulo IX al X actual)
-Artículo 93°—Entes encargados de brindarlos: (Derogado por el artículo 31 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”)
-(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 75 al 78 actual)
-(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 78 al 85 actual)
-(Así corrida su numeración por el artículo 3° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 85 al 87 actual)
-(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 87 al 93 actual)
+Artículo 93°-Efectos del despido justificado. Todo despido justificado se entenderá sin responsabilidad patronal.
+El servidor despedido por causa justificada queda inhabilitado para reingresar a cualquier otro cuerpo de policía, durante un período de diez (10) años.
+(Así reformado por el artículo 7 aparte c) de la ley Reforma parcial de la Ley de Tránsito por Vías Públicas Terrestres, N° 7331, de 13 de abril de 1993, N° 8696 del 17 de diciembre de 2008)
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 73 al 76 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 76 al 83 actual)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 83 al 89 actual)
+(Así modificada su numeración por el artículo 2° de la ley Creación de la Dirección del Servicio de Vigilancia Aérea como cuerpo policial adscrito al Ministerio de Seguridad Pública, N° 10061 del 15 de noviembre del 2021, que lo traspasó del antiguo artículo 89 al 93)

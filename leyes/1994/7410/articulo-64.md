@@ -1,9 +1,7 @@
-Artículo 64.- Escalafón de Oficiales Superiores . Créase el escalafón de oficiales superiores de policía, el cual se compone de los comisarios, comisionados y comandantes debidamente inscritos en él de acuerdo con las disposiciones reglamentarias que se designen al efecto.
-Dicho escalafón será la lista de elegibles para los nombramientos del director de la Fuerza Pública, los directores y subdirectores regionales de esta, el director del Servicio Nacional de Guardacostas y el director del Servicio de Vigilancia Aérea.
-Los integrantes del escalafón de oficiales superiores, una vez ingresados al servicio activo, gozarán de todos los beneficios del Estatuto Policial establecidos por el artículo 69 de esta Ley, salvo la inamobilidad en los puestos.
-Los directores regionales de la Fuerza Pública deberán ostentar, como mínimo, el grado de comisionado. Los subdirectores regionales de la Fuerza Pública deberán tener como requisito mínimo el grado de comandante.
-Los directores del Servicio Nacional de Guardacostas, del Servicio de Vigilancia Aérea y de la Policía de Control de Drogas, deberán ostentar el grado de comisionado, como mínimo.
-El director general de la Fuerza Pública, los directores y subdirectores regionales de esta, así como los directores del Servicio Nacional de Guardacostas, del Servicio de Vigilancia Aérea y de la Policía de Control de Drogas, serán de libre nombramiento y remoción por el Ministro de Seguridad Pública, únicamente con sujeción a la pertenencia al escalafón de oficiales superiores creado por esta Ley.
-Al ser removidos de sus puestos, los funcionarios antes indicados, serán acreedores al pago de los extremos laborales a los cuales tengan derecho.
+Artículo 64.- Grados y plazas dentro de la Fuerza Pública
+El Ministerio de Seguridad Pública emitirá un reglamento para establecer la correspondencia entre los grados policiales y las plazas existentes en la estructura de la Fuerza Pública.
+Ese reglamento determinará el número mínimo de subalternos que se encontrarán bajo el mando de cada uno de los grados policiales establecidos por esta Ley.
+Durante el mes de abril de cada año, el Ministerio de Seguridad Pública deberá determinar las necesidades de nuevas plazas de oficiales para el año calendario siguiente, a fin de incluir en su presupuesto anual la creación de dichas plazas.
 (Así adicionado por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)
-(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 58 al 64 actual)
+(Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 54 al 60 actual)
+(Así modificada su numeración por el artículo 2° de la ley Creación de la Dirección del Servicio de Vigilancia Aérea como cuerpo policial adscrito al Ministerio de Seguridad Pública, N° 10061 del 15 de noviembre del 2021, que lo traspasó del antiguo artículo 60 al 64)
