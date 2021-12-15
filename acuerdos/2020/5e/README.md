@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-MA-P20 Procedimiento Aval técnico para la exonerac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-05-08 | la propia norma |
+| 2 | 2021-12-15 | Acuerdo 13 (2021-12-15) |
