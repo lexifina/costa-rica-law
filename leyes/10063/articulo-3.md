@@ -1,0 +1,4 @@
+ARTÍCULO 3- Las instituciones indicadas en el artículo 240 de la Ley 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012, que tengan vehículos en condición de inservibles, desecho o pérdida total, a la entrada en vigencia de esta ley, harán la declaratoria de dicha condición según lo defina el reglamento respectivo y procederán a la solicitud de desinscripción ante el Registro Nacional, y le serán condonadas todas las deudas por derechos de circulación pendientes de pago, aplicándose como único requisito la presentación de la declaratoria.
+Las instituciones que desinscriban vehículos, conforme a los parámetros establecidos en la presente ley, no podrán reinscribir dichos bienes a su nombre.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veinticinco días del mes de octubre del año dos mil veintiuno.
