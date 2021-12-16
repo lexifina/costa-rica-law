@@ -10,3 +10,4 @@ Artículo 6°:Apruébense los siguientes Egresos Ordinarios y Extraordinarios de
 (Así reformado por el artículo 2° de la ley N° 10035 del 1° de setiembre del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43265 del 11 de octubre del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43332 del 22 de noviembre de 2021)
+(Así reformado por el artículo 5° de la ley N° 10104 del 16 de diciembre de 2021)

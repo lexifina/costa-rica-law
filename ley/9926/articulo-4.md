@@ -6,3 +6,4 @@ Artículo 4°:Apruébense los siguientes Egresos Ordinarios y Extraordinarios de
 (Modificado por el artículo 1° del decreto ejecutivo N° 43069 del 24 de junio del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43141 del 7 de julio del 2021)
 (Modificado por el artículo 1° del decreto ejecutivo N° 43265 del 11 de octubre del 2021)
+(Así reformado por el artículo 3° de la ley N° 10104 del 16 de diciembre de 2021)
