@@ -1,0 +1,1 @@
+Artículo 33.-Ingreso de Equipo y Mobiliario. El ingreso de mobiliario o equipo para actividades de magnitud considerable; así como, escenografía, deberá hacerse por la puerta de emergencia ubicada al costado sur del CCHOD, presentándose primero por la puerta principal y reportando el ingreso a la administración.

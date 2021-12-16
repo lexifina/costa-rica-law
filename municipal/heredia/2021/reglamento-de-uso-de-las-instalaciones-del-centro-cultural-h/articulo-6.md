@@ -1,0 +1,1 @@
+Artículo 6°-De los Usuarios. Los espacios del CCHOD sólo podrán ser utilizadas por funcionarios del CCHOD y personas miembros de la comunidad que pretendan utilizarlas para los fines descritos anteriormente y cumplan con los otros requisitos establecidos en este Reglamento. Los permisos para el uso del espacio se pueden otorgar de dos maneras: gratuita u onerosa.

@@ -1,0 +1,1 @@
+Artículo 14.-Canon de Mantenimiento. Para el uso y préstamo de los espacios, deberá pagarse el canon de mantenimiento establecido por la administración previo a un estudio financiero que lo respalde, independientemente si esta está a cargo de la Municipalidad o de una Junta Administradora.

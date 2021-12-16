@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. Las disposiciones contenidas en este Reglamento serán aplicables para la Administración del Centro Cultural Herediano Omar Dengo del cantón de Heredia, personas arrendatarias, prestatarias y usuarias del inmueble.
