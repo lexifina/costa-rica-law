@@ -1,0 +1,1 @@
+Artículo 2.- En lo demás, se mantiene incólume el Decreto Ejecutivo N° 41925-MEIC del 07 de junio de 2019, "Reglamento técnico RTCR 497:2018 Materiales Eléctricos, tableros y disyuntores termomagnéticos, interruptores de uso general, tomacorrientes, enchufes y conectores de cordón para ser usados con tensiones hasta de 1000 v"
