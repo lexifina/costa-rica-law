@@ -15,3 +15,4 @@ Comunica la emisión de resoluciones de la Dirección General de Servicio Civil:
 | --- | --- | --- |
 | 1 | 2009-05-19 | la propia norma |
 | 2 | 2012-06-25 | Ley 9046 |
+| 3 | 2021-12-16 | Resolución 11 (2021-12-16) |
