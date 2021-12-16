@@ -1,0 +1,1 @@
+ARTÍCULO 10. La Regiduría suplente que sustituya a un propietario tendrá derecho a permanecer como miembro del Concejo Municipal, en caso de que exista la sustitución, el Regidor que la ejerza será quien reciba su dieta como propietario. Lo anterior de conformidad con lo dispuesto por el Código Municipal.

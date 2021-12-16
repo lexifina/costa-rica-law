@@ -1,0 +1,1 @@
+ARTÍCULO 97. El Concejo Municipal se regirá por el articulado estipulado en este reglamento, en lo dispuesto por el Código Municipal, en los acuerdos del mismo, demás leyes, reglamentos, normas concordantes y usuales para el manejo de la materia municipal, la Ley General de la Administración Pública y la Constitución Política de la República de Costa Rica.

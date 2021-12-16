@@ -1,0 +1,1 @@
+Artículo 79. Dentro de las comisiones municipales están las que se establezcan para analizar, discutir y dictaminar sobre un tema o situación especial. También están las comisiones especiales de recolección de información o quejas que se presenten dentro del Concejo Municipal.

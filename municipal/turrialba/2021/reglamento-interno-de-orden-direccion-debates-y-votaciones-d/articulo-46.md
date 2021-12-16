@@ -1,0 +1,6 @@
+ARTÍCULO 46. Además de los derechos y facultades que establece el artículo veintisiete del Código Municipal, la Regiduría tiene derecho:
+a. Que se les otorgue el uso de la palabra, para exponer su posición sobre cada asunto que se someta al conocimiento y resolución del Concejo, por el periodo que este Reglamento fije.
+b. Solicitar que sus palabras, o las de cualquier otro miembro del Concejo Municipal, la Alcaldía, la asesoría, o cualquier otra persona que haya intervenido en una sesión, consten en el acta. Esa solicitud debe ser acatada por la Secretaría del Concejo municipal, sin necesidad de acuerdo específico. Incurrirá en una omisión el funcionario o funcionaria de la Secretaría del Concejo Municipal que no cumpla con esta obligación.
+c. Asistir libremente a cualquier Sesión de las Comisiones Municipales ordinarias o especiales, aunque no sea integrante de ellas, lo que hará con derecho a voz, pero sin derecho a voto.
+d. La Alcaldía Municipal y la Sindicatura en lo conducente, tienen los mismos derechos y facultades indicados en estos incisos.
+e. Llamar al orden a la Presidencia Municipal, cada vez en su desempeño de su cargo, se separe de las disposiciones de este código o los reglamentos internos de la municipalidad.

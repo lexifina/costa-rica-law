@@ -1,0 +1,1 @@
+ARTICULO 49. La presidencia de consejos de Distritos, deben hacer entrega de los libros de actas, sellos respectivos y documentación, a la Secretaría Municipal, una vez concluido su periodo constitucional. El cumplimiento de esta disposición es competencia de la Unidad de Auditoría Interna de la Municipalidad de Turrialba.

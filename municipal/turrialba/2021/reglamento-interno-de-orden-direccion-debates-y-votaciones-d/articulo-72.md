@@ -1,0 +1,1 @@
+ARTÍCULO 72. En caso de que una Comisión no pueda sesionar por falta de quórum de los miembros del Concejo, regidores propietarios y suplentes, síndicos, o la Presidencia de la Comisión, elaborará un informe al Concejo Municipal, indicando las razones de la falta de quórum.

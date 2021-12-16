@@ -1,0 +1,1 @@
+ARTÍCULO 11. La Regidurías propietarias presentes debe encontrarse ocupando sus respectivas curules para que dé inicio la sesión y para que se les reciba el voto, cuando se someta a votación un asunto determinado.

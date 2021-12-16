@@ -1,0 +1,1 @@
+ARTÍCULO 86. Las modificaciones presupuestarias, deberán ser entregadas a la Presidencia Municipal y a los miembros del Concejo Municipal, antes de iniciada la sesión del Concejo Municipal en la que serán conocidas. Debe haber sido discutida y aprobada por la Comisión de Hacienda y Presupuesto previamente con 8 días naturales de anticipación.

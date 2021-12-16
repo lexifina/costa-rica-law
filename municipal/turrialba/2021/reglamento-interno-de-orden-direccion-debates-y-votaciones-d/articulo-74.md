@@ -1,0 +1,1 @@
+ARTÍCULO 74. Iniciado cada cuatrimestre la presidencia de cada comisión deberá enviar a la Secretaria o Secretario Municipal, los documentos de asuntos resueltos, para que estos sean enviados al Archivo Municipal; con nota suscrita por la Presidencia Municipal en forma conjunta, de la cual remitirán copia a la Auditoría.

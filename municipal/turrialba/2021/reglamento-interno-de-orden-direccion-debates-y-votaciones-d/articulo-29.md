@@ -1,0 +1,2 @@
+ARTÍCULO 29. Cuando en una votación se produzca un empate, esta se hará de nuevo inmediatamente o en la sesión del Concejo Municipal ordinaria siguiente según lo decida el Concejo Municipal. Si decide repetir la votación inmediatamente, podrá otorgar un plazo prudencial a su criterio, para que se vuelva a discutir el asunto antes de la nueva votación.
+En caso de que se produzca de nuevo el empate el asunto puesto a votación se tendrá por desechado. Debe tenerse en cuenta que se da esta situación de empate pues la ley no establece voto de calidad.

@@ -1,0 +1,1 @@
+ARTÍCULO 35. Cuando se presente una moción sin dispensa de trámite de comisión, se podrá hacer uso de la palabra por los miembros del Concejo Municipal que la soliciten, para referirse al fondo del asunto. Esto por un plazo no mayor de cinco minutos, una vez discutido la Presidencia remitirá la moción a quien corresponda.

@@ -1,0 +1,1 @@
+ARTÍCULO 47. Las Regidurías y Sindicaturas sean propietarias o suplentes tienen derecho de hacer uso de la palabra para referirse a cualquier asunto en discusión en el Concejo, con los mismos derechos y facultades conferidos a los Regidores Propietarios.

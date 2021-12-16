@@ -1,0 +1,1 @@
+ARTÍCULO 76. Las comisiones deberán sesionar en forma ordinaria mínimo una ocasión por mes, y extraordinariamente cuando sea necesario. Se procurará que las sesiones de una no coincidan con las de otras en las que también participen algunos de los mismos integrantes. Las sesiones se realizarán en el Edificio Municipal o bien conforme lo determine la comisión respectiva.

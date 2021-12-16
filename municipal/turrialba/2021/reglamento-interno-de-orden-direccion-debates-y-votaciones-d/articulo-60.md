@@ -1,0 +1,1 @@
+ARTÍCULO 60: Cada comisión sea permanente o especial, designará en el seno de dicha comisión presidencia y vicepresidencia para el funcionamiento de la misma. De igual manera, regidurías y sindicaturas, podrán formar parte de diferentes Comisiones. En el caso de los suplentes serán designados únicamente en comisiones especiales.

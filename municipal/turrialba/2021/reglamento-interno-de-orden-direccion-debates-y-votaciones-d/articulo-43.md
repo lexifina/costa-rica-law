@@ -1,0 +1,1 @@
+ARTÍCULO 43. Las sesiones del Concejo Municipal transcurrirán y se desarrollarán dentro del área de curules así asignadas únicamente para sus miembros, a saber, la Regiduría, Sindicatura, Alcaldía, los suplentes de ellos, la Secretaría del Concejo Municipal y miembros asesores del Concejo o de las fracciones si existieren acreditados.

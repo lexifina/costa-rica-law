@@ -1,0 +1,1 @@
+ARTICULO 78. Por vía moción de orden aprobada por mayoría calificada, se podrá dispensar del trámite de lectura de un dictamen de comisión. Previo a este acto deberá ser enviado a todos los miembros del concejo. De igual forma, el dictamen debe ser incluido íntegramente en el acta municipal.

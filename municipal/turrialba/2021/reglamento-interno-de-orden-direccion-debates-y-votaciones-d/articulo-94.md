@@ -1,0 +1,2 @@
+ARTICULO 94. Los Regidores y síndicos, propietarios o suplentes, así como los presentes deberán tener una actitud de decoro y prudencia durante las sesionesMunicipales, evitando hablar por celular, y colocar el mismo en estado de vibración, igualmente evitando las conversaciones fuera de contexto entre compañeros de curul.
+Tampoco se debe ingerir alimentos en la sala de sesiones durante la sesión municipal. Si necesita consumir alimentos deberá salir del recinto de sesiones municipales.

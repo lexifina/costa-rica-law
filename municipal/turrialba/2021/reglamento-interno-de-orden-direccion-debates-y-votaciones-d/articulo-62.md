@@ -1,0 +1,1 @@
+ARTÍCULO 62. Si alguna comisión municipal solicita a la Presidencia Municipal el apoyo técnico para sus cometidos, la Presidencia procederá a transmitir dicha petición a la Alcaldía Municipal para que designe los funcionarios administrativos necesarios y para que puedan ejercer como asesores de las Comisiones.

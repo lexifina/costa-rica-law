@@ -1,0 +1,1 @@
+ARTÍCULO17.Durante el transcurso de una sesión ordinaria, uno o varios regidores pueden proponer por la vía de moción de orden que se modifique o altere el orden del día. Para que la misma sea aprobada, requiere del voto afirmativo de al menos las dos terceras partes de la regiduría propietaria presente.

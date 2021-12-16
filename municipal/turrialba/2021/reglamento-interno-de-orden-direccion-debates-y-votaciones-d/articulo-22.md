@@ -1,0 +1,1 @@
+Artículo 22. Será obligación de todos los miembros del Concejo Municipal y los particulares, guardar el debido respeto en todas las sesiones que se realice, así como acatar las disposiciones contenidas en este Reglamento.
