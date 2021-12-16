@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE ESPARZA
+El Concejo Municipal de Esparza, según lo establecido en los artículos 169 y 170 de la Constitución Política, 3, 4 inciso a), 13 inciso d), y 43 del Código Municipal, mediante acuerdo tomado en sesión de fecha 30 de noviembre de 2021, según Artículo I, Inciso 2, del Acta Nº 125- 2021, acuerda aprobar en forma definitiva la Reforma al Reglamento de Inversiones Financieras de la Municipalidad de Esparza.
+REFORMA AL REGLAMENTO DE INVERSIONES FINANCIERAS DE LA MUNICIPALIDAD DE ESPARZA
+Artículo 1º-Se modifican los artículos 8 y 11 del Reglamento de Inversiones Financieras de la Municipalidad de Esparza, para que se lean de la siguiente manera:
+"Artículo 8-La Municipalidad podrá destinar los excedentes financieros de la operación a inversiones transitorias, siempre y cuando no se entorpezcan los compromisos económicos que debe cumplir. De igual forma no se pueden utilizar recursos de las partidas específicas y las transferencias del Estado para realizar inversiones financieras.
+Artículo 11-La colocación de los instrumentos financieros antes mencionados sólo podrá realizarse en el mercado primario en forma directa con respaldo estatal. Queda expresamente prohibido invertir en el Banco Popular y de Desarrollo Comunal (SAFI), a menos que una Ley específica así lo autorice".
