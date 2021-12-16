@@ -1,0 +1,1 @@
+Artículo 8°-Los procesos unidades ejecutoras deberán contemplar dentro del Presupuesto el contenido para realizar aquellas acciones que contribuyan al mejoramiento del sistema de control interno y la mitigación de riesgos, como resultado del proceso de autoevaluación anual, según lo dispuesto en la Ley General de Control Interno.
