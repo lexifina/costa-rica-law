@@ -37,3 +37,4 @@ Restricción vehicular en horario nocturno para mitigar los efectos del Covid-19
 | 22 | 2021-09-14 | Decreto Ejecutivo 43214 (2021-09-14) |
 | 23 | 2021-10-14 | Decreto Ejecutivo 43264 (2021-10-14) |
 | 24 | 2021-10-28 | Decreto Ejecutivo 43284 (2021-10-28) |
+| 25 | 2021-12-16 | Decreto Ejecutivo 43372 (2021-12-16) |
