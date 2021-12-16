@@ -1,0 +1,1 @@
+Transitorio I. Para los efectos del trámite de homologación de los contratos dispuesta en Capítulo III del presente Reglamento, los proveedores de servicios de crédito contarán con un plazo de tres meses a partir de la entrada en vigencia del presente reglamento para realizar dicha gestión.

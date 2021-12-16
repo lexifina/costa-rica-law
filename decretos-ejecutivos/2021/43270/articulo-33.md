@@ -1,0 +1,1 @@
+Artículo 33º-. Del suministro de información. Como parte de la metodología del Índice de competencia financiera se definirán las obligaciones de la información que deberán suministrar los proveedores de servicios de crédito para su construcción y actualización semanal.

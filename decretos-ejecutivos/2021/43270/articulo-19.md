@@ -1,0 +1,2 @@
+Artículo 19º-. Premios y promociones. Los proveedores de servicios de crédito deberán utilizar en todos los documentos promocionales y los comunicados dirigidos al cliente, un lenguaje claro y simple, explicando el significado de cualquier tecnicismo.
+Los premios y promociones que promuevan los acreedores deberán ser reglamentados y contemplar las condiciones, restricciones, plazos, naturaleza y cumplimiento de los beneficios adicionales. Dicha información deberá ser previa, clara, veraz y oportuna.

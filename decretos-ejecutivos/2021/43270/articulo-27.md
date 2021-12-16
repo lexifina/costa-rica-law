@@ -1,0 +1,2 @@
+Artículo 27º-. Responsabilidad de corrección de oficio. Los proveedores de servicios de crédito, de oficio o a petición de cualquier consumidor, deberán revisar y asegurarse que los contratos de crédito suscritos no contengan cláusulas abusivas, que violenten las disposiciones del artículo 36 bis de la Ley Nº 7472, sin necesidad de acudir a la CNC.
+En caso de que el proveedor de servicios de crédito no atienda la solicitud de modificación del contrato, el consumidor podrá acudir a la vía judicial correspondiente.

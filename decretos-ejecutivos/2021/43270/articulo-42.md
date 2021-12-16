@@ -1,0 +1,1 @@
+Artículo 42º-. Requisitos mínimos de la denuncia por usura ante la CNC. Toda denuncia deberá presentarse cumpliendo con los requisitos establecidos en el artículo 147 del Decreto Ejecutivo N° 37899-MEIC, Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley N° 7472.

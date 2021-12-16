@@ -1,0 +1,3 @@
+CAPÍTULO VII
+DISPOSICIONES FINALES
+Artículo 38º-. Sobre las prácticas abusivas en las cobranzas. Los proveedores de servicios de crédito, abogados, gestores, agencias de cobranza, apoderados y representantes legales, para llevar adelante las gestiones de cobro, deberán hacerlo directamente con el deudor, su representante legal y sus fiadores. No se podrá realizar dicha gestión con personas distintas a las ya indicadas, pudiendo únicamente informarles en los casos en que el bien en garantía pertenezca a un tercero. Tampoco podrán utilizar prácticas de acoso u hostigamiento para el cobro de las acreencias.

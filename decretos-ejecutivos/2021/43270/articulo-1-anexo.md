@@ -1,0 +1,4 @@
+ANEXO I
+MODELO DE ESTADO DE CUENTA PARA CRÉDITO
+[imagen]
+[imagen]

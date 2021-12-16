@@ -1,0 +1,23 @@
+N° 43270-MEIC
+EL PRESIDENTE DE LA REPÚBLICA
+Y
+LA MINISTRA DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En uso de las facultades conferidas en los artículos 46, 140 numerales 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) de la Ley N° 6227 del 2 de mayo de 1978, Ley General de la Administración Pública; la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley Nº 6054 del 14 de junio de 1977; y la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley Nº 7472 del 20 de diciembre de 1994.
+Considerando:
+I.- Que mediante el artículo 46 de la Constitución Política se elevó a rango constitucional la protección de los derechos de los consumidores y usuarios en materia de salud, ambiente, seguridad e intereses económicos. Además, se establece la obligación del Estado de apoyar los organismos que constituyan aquellos en defensa de sus Derechos.
+II.- Que dicho precepto fue desarrollado por el Legislador mediante el artículo 32 de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley Nº 7472 del 20 de diciembre de 2004, que establece entre otros, como derechos fundamentales e irrenunciables de los consumidores, que la propaganda sea adecuada y veraz para evitar daños a la salud, a su seguridad y al medio ambiente; la protección de sus intereses económicos y sociales; la libertad de elección y un trato equitativo.
+III.- Que el artículo 34 de la Ley Nº 7472 obliga al comerciante y al productor, entre otras cosas, a informar suficientemente al consumidor de manera clara y veraz, acerca de los elementos que incidan en forma directa sobre su decisión de consumo; garantizar todo bien o servicio y abstenerse de realizar publicidad que induzca a error o engaño al consumidor.
+IV.- Que mediante la Ley Nº 9859 del 11 de junio de 2020, publicada en el Diario Oficial La Gaceta N° 147 del 20 de junio de 2020, Alcance N° 150, se procedió a reformar la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, adicionándose los artículos 36 bis, 36 ter, 36 quater; 44 ter y los literales g) y h) al artículo 53; asimismo, se reforma el artículo 44 bis.
+V.- Que mediante la Ley N° 9918 del 11 de noviembre de 2020, publicada en el Diario Oficial La Gaceta N° 275 del 18 de noviembre de 2020, Alcance N° 305, se procedió a reformar los artículos 44 bis y 44 ter, y adición de un transitorio al artículo 44 ter de la Ley N° 7472.
+VI.- Que, dada la reforma a la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, es necesario proceder a la reglamentación respectiva; de manera que se emita un reglamento que contemple las reglas para su adecuada implementación, esto como complemento al Reglamento de Tarjetas de Crédito y Débito, Decreto Ejecutivo N° 35867-MEIC, del 24 de marzo de 2010.
+VII.- Que mediante aviso publicado en el Diario Oficial La Gaceta N° 256 del 22 de octubre de 2020 se sometió a consulta pública el presente Decreto Ejecutivo; lo anterior de conformidad con el artículo 361 de la Ley General de la Administración Pública.
+VIII.- Que mediante aviso publicado en el sitio web del Ministerio de Economía, Industria y Comercio (MEIC) del 17 de mayo de 2021, se sometió a consulta pública por segunda vez el presente Decreto Ejecutivo, lo anterior de conformidad con el artículo 361 de la Ley General de la Administración Pública, recibiéndose observaciones las cuales fueron valoradas por el equipo técnico del MEIC.
+IX.- Que, si bien el Poder Ejecutivo emitió la Directriz N° 052-MP-MEIC del 19 de junio de 2019, publicada en el Diario Oficial La Gaceta N° 118 del 25 de junio de 2019, Directriz de moratoria de trámites, se considera que la presente reforma se encuentra conforme al artículo 1 párrafo segundo, por cuanto el artículo 53 inciso g) de la Ley N° 9859, otorga la potestad a la Comisión Nacional del Consumidor de homologar las propuestas de contrato tipo que los proveedores de servicios financieros trasladan al solicitante de un crédito.
+X.- Que el presente Decreto Ejecutivo, cumple con los principios de mejora regulatoria de acuerdo con el Informe Nº DMR-DAR-INF-130-2021 del 28 de setiembre del año en curso, emitido por el Departamento de Análisis Regulatorio de la Dirección de Mejora Regulatoria.
+Por tanto;
+DECRETAN
+REGLAMENTO DE LAS OPERACIONES FINANCIERAS, COMERCIALES Y
+MICROCRÉDITOS QUE SE OFREZCAN AL CONSUMIDOR
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 1º-. Objetivo. Este Reglamento tiene por objetivo reglamentar las disposiciones vinculadas a las operaciones financieras, comerciales y microcréditos que se ofrezcan al consumidor, todo en el marco de la Ley N° 7472 y sus reformas.

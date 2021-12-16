@@ -1,0 +1,1 @@
+Transitorio II. Los proveedores de servicios de crédito dispondrán de hasta cinco meses a partir de la publicación del presente Reglamento, para efectuar los ajustes relacionados a los contenidos y presentación de los estados de cuenta al consumidor.

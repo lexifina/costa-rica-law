@@ -1,0 +1,1 @@
+Artículo 40º-. Sobre el régimen de responsabilidad. Todo proveedor de servicios de crédito debe responder concurrente e independientemente de la existencia de culpa, frente al consumidor de un crédito por el daño que le cause; lo que incluye, además, la sustracción de datos de seguridad y los cobros de cargos no autorizados.
