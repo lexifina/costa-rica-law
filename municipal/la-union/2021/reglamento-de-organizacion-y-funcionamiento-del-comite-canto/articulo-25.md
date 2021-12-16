@@ -1,0 +1,1 @@
+Artículo 25: No podrán ser parte de la Junta Directiva del Comité Distrital o Comités Vecinales de Deportes los regidores, Consejo de distrito, alcalde, vice alcaldes, auditor, tesorero, contador, sus cónyuges o parientes en línea directa o colateral hasta el 3er grado inclusive.

@@ -1,0 +1,1 @@
+Artículo 70.-Todo directivo, funcionario, empleado o delegado del Comité Cantonal y sus diferentes órganos, encargados de recibir, custodiar o pagar bienes o valores relacionados con el deporte y la recreación o cuyas atribuciones a la que la ley lo permitan.

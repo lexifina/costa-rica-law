@@ -1,0 +1,5 @@
+Artículo 31: Para el nombramiento de las Juntas Directivas de los Comités Comunales se recurre al siguiente procedimiento:
+a. Se utilizará el padrón de organizaciones deportivas que lleva la Secretaría del Comité Cantonal de Deportes.
+b. Para efectos de la elección de los Comités Comunales de Deportes y Recreación se requerirá necesariamente que la organización participante de la asamblea esté inscrita en el padrón deportivo cantonal, sea una asociación deportiva o recreativa vigente debidamente, legalizada o una asociación de desarrollo integral vigente, debidamente inscrita y legalizada ante la Dirección Nacional de Desarrollo de la Comunidad incluir a las juntas de educación para que tengan voz y voto. Derecho a 2 representantes.
+c. Se convocará a Asamblea para la elección del Comité Comunal de Deportes a las organizaciones del respectivo distrito mediante acuerdo de Junta Directiva del Comité Cantonal de Deportes y Recreación.
+d. La Asamblea se realizará en primera convocatoria con al menos la mitad de los presentes y en caso de ser necesario, en segunda convocatoria con los miembros presente 30 minutos después de la hora de inicio fijada.

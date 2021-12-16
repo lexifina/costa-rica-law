@@ -1,0 +1,1 @@
+Artículo 84: Variación en el monto del fondo. El monto a que asciende el fondo podrá ser ajustado una vez al año, de tal forma que su monto no se vea afectado por las variaciones en el poder adquisitivo.

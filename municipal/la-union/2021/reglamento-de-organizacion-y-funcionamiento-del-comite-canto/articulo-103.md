@@ -1,0 +1,8 @@
+Artículo 103: Sanciones
+a. Faltas Los incumplimientos leves se corregirán con apercibimiento por escrito o la perdida de condición de usuario por un periodo de 5 a 30 días.
+b. Los incumplimientos graves se corregirán con la perdida de la condición de usuario por un periodo comprendido entre 30 días y 5 años, si la gravedad del mismo lo hiciera necesario. Procedimientos:
+c. El Administrador de la instalación será la persona responsable de tramitar el procedimiento.
+d. Las propuestas de sanciones se comunicarán por escrito, previa audiencia del interesado en plazo de diez días máximo, haciendo constar en la comunicación de audiencia la fecha y hechos que la motiva; de tal manera que el interesado pueda efectuar alegaciones y presentar los documentos e informaciones que estimen pertinentes.
+e. Una vez concluido el plazo de audiencia y a la vista de las alegaciones presentadas por el usuario, la Junta Directiva del Comité Cantonal de Deportes y Recreación de La Unión; como órgano competente, resolverá y notificará al afectado, dentro del plazo que le refiere la legislación administrativa.
+f. Contra los acuerdos adoptados, podrán interponerse los recursos que se estimen oportunos, de conformidad con lo dispuesto en la Ley General de Administración Pública.
+g. No obstante, en el caso de que el usuario actúe de forma notoriamente contraria al presente reglamento, el personal del Comité Cantonal de Deportes y Recreación de La Unión está autorizado a exigir el abandono inmediato de la instalación, o requerir la presencia de las fuerzas de seguridad, si la gravedad del caso así lo exigiese; sin perjuicio de las posteriores acciones aplicables al caso.

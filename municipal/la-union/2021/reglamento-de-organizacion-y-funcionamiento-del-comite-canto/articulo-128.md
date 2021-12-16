@@ -1,0 +1,1 @@
+Artículo 128: En caso de que la Junta directiva no se encuentre en capacidad legal de autorizar los pagos de gastos fijos del comité, que el consejo nombre una comisión temporal para el pago de salarios. servicios públicos, pólizas con el fin de mantener el funcionamiento básico del Comité

@@ -1,0 +1,1 @@
+Artículo 106: Mantenimiento. En cada Instalación Recreativa y Deportiva del Comité Cantonal de Deportes y Recreación de La Unión existirá una Plan de Mantenimiento en la que figurarán, todos los trabajos que periódicamente, requiera cada infraestructura o bien material adscrito a ella para su conservación y mantenimiento.

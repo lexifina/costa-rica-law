@@ -1,0 +1,1 @@
+Artículo 87: Asignaciones máximas. Las sumas establecidas para gastos a que se refiere este Reglamento son asignaciones máximas; y no se podrán realizar erogaciones por montos superiores a ¢125.000 (ciento veinticinco mil colones exactos) por transacción.

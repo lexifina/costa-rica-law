@@ -1,0 +1,1 @@
+Artículo 112: Deber de solventar la caución. Es deber del caucionante gestionar y sufragar de su propio peculio el costo de la garantía a favor del Comité Cantonal de Deportes y Recreación de La Unión.

@@ -1,0 +1,1 @@
+Artículo 2: Lo regirá el presente reglamento, de manera que sus actuaciones serán de conformidad con las facultades y obligaciones que este y la Ley le señalen, podrá trabajar en coordinación con las autoridades locales, regionales, nacionales e internacionales con el objetivo de cumplir los fines para los que por ley ha sido creado.

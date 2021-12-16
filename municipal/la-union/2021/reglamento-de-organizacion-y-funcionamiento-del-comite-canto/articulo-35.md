@@ -1,0 +1,1 @@
+Artículo 35: La respectiva Junta Directiva escogerá en su primera sesión, entre sus integrantes, un presidente, un vicepresidente, un secretario, un tesorero y un vocal, para todo el periodo del nombramiento y dos miembros menores de edad que, como lo indica el Código Municipal, no podrán ostentar a ninguno de los puestos antes mencionados.

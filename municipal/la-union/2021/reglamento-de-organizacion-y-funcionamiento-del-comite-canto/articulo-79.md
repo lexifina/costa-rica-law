@@ -1,0 +1,5 @@
+CAPÍTULO XI
+DE LA CONTABILIDAD
+Artículo 79: Los ingresos y egresos que realice el Comité deberán ser asentados en los libros contables que para tal efecto legalice la Auditoría Municipal.
+Todos los egresos deberán respaldarse en acuerdos firmes y con expedientes individualizados por cada acuerdo, conforme dispone el Manual de Normas Públicas y la Ley de Control Interno. Los mismos deberán constar en las actas registradas en los libros autorizados por la Auditoría y asimismo la constancia de cuántos votos fueron salvados, cuántos aprobaron y cuántos votaron negativamente. Esto a los fines de deslindar las eventuales responsabilidades
+Deberá garantizarse, además, el soporte documental de los pagos efectuados, que al menos debe contener la codificación del contenido presupuestario, la identificación de la transferencia o número de cheque con que se efectuó y las firmas de control de revisión y recibo conforme.

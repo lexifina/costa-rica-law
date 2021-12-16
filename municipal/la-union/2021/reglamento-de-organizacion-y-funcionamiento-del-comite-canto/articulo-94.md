@@ -1,0 +1,1 @@
+Artículo 94: El custodio del Fondo Fijo de Caja Chica deberá estar anuente a ser arqueado en cualquier momento por su superior inmediato, o por la persona a quien éste designe, así como por los representantes de la Auditoría municipal, a fin de garantizar una seguridad razonable de la gestión y administración del Fondo.

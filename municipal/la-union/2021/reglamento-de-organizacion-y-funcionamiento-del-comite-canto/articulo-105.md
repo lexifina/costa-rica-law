@@ -1,0 +1,1 @@
+Artículo 105: Devoluciones. Sólo procederá la devolución del precio cuando no se preste aquel servicio por causas no imputables al obligado al pago y en el caso de las garantías cuando el informe por escrito de la actividad no reporte daños en la instalación según contrato.

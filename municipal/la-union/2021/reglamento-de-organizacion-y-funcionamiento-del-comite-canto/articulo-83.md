@@ -1,0 +1,1 @@
+Artículo 83: Concepto. Por gastos menores debe entenderse aquella suma máxima, destinada a la atención de gastos que por su naturaleza no puedan ser determinados de previo y se requiera incurrir en ellos para no afectar el buen funcionamiento de las actividades desarrolladas por el Comité de Deportes.

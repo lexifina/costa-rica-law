@@ -1,0 +1,1 @@
+Artículo 11: Cuando un miembro de la Junta Directiva del Comité renuncie a su cargo, deberá comunicarlo por escrito a la Asociación o grupo que represente dentro del plazo de 30 días previo a la efectividad de la renuncia. De dicha comunicación remitirá copia al Concejo y a la Junta Directiva del Comité.

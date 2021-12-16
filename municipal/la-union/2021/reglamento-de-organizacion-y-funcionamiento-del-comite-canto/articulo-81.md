@@ -1,0 +1,1 @@
+Artículo 81: La contabilidad del Comité deberá seguir el procedimiento establecidos en las Normas Internacionales de Contabilidad del Sector Público (NICSP) de acuerdo con lo dispuesto para entidades públicas por la Contraloría General de la República y la Contabilidad Nacional del Ministerio de Hacienda.
