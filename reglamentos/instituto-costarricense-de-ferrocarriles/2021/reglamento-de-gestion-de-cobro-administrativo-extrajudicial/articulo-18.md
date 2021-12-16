@@ -1,0 +1,6 @@
+Artículo 18.-En la etapa judicial. Se deberá cumplir con lo siguiente:
+a. El Departamento Legal, custodiará el expediente administrativo mientras el asunto se encuentre en trámite judicial. En caso de acuerdos extrajudiciales, donde se solicita la suspensión de cobro al Despacho Judicial, el expediente será devuelto al Departamento de Tesorería, para el seguimiento de cobro.
+b. El Departamento Legal, colaborará con el Departamento de Tesorería, respecto de brindar información sobre el estado de las gestiones que se encuentran en cobro judicial, para conseguir un control cruzado de la cartera de cuentas en cobro por esta vía y cumplir con el principio de información.
+c. El Departamento de Tesorería informará al Departamento Legal, cuando se cumpla por completo el arreglo extrajudicial, para que se informe de esto al Despacho Judicial y se solicite el archivo del caso.
+d. El Departamento Legal realizará oportunamente las gestiones de cobro judicial, con el respaldo de la información que suministra el Departamento de Tesorería.
+e. El Departamento Legal, informará al Departamento de Tesorería y Gerencia Administrativa cuando se notifique al INCOFER sobre sentencias, gestiones recursivas o cualquier otra actuación que se considere de relevancia, sean dictadas a favor o en contra de este Instituto, para el control correspondiente.

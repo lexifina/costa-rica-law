@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. Este Reglamento es de aplicación obligatoria para el Departamento de Tesorería, así como para el Departamento Legal, los cuales son los encargados de gestionar el cobro extrajudicial y/o judicial de las obligaciones dinerarias que se adeuden a la Institución.

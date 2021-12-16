@@ -1,0 +1,6 @@
+CAPÍTULO VII
+Seguimiento de los procesos de cobro
+Artículo 17.-En la etapa administrativa. Se deberá cumplir con lo siguiente:
+a. El Departamento de Tesorería custodiará el expediente administrativo debidamente conformado, verificando el cumplimiento de las obligaciones dinerarias que tenga cada persona deudora con el INCOFER, así como fiscalizar que los arreglos de pago, que sean planteados mientras persista el cobro en vía administrativa o extrajudicial. En los casos de arreglos extrajudiciales, el Departamento de Tesorería coordinará con el Departamento Legal, para efectuar las diligencias correspondientes ante el Despacho Judicial por el surgimiento o incumplimiento de éstos.
+b. El Departamento de Tesorería, procederá con la devolución del expediente administrativo al Departamento Legal, para la continuación del proceso de cobro en la vía judicial, cuando resulte el incumplimiento del arreglo de pago extrajudicial.
+c. El Departamento de Tesorería, al constatar que se han completado los pagos dará por terminado el proceso de cobro, dando previo aviso a la Gerencia Administrativa, siendo emitida una certificación de cierre por parte de esa Gerencia, la cual deberá ser incorporada en el expediente del deudor.

@@ -1,0 +1,1 @@
+Artículo 5°-Deberes del personal. El personal del Departamento de Tesorería y del Departamento Legal en el cumplimiento de sus funciones, bajo estricto apego al ordenamiento jurídico y al debido proceso, realizará sus acciones en el marco del respeto de las personas físicas y jurídicas, que tengan obligaciones dinerarias con el INCOFER.
