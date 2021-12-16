@@ -1,0 +1,3 @@
+CAPÍTULO II
+Valoración de riesgos
+Artículo 27.-Implementación del sistema específico de valoración de riesgos (SEVRI). La implementación del SEVRI en la Municipalidad de La Cruz, se realizará basada en la metodología y herramienta tecnológica de uso y aplicación institucional, que exista para ese efecto. Por lo tanto, se constituyen estas, en los instrumentos que guíen a las jefaturas en la valoración de los riesgos de su área de competencia. Asimismo, se define en el marco orientador del SEVRI, los elementos que dirigirán el compromiso institucional de su implementación y los parámetros básicos para valorar los riesgos de la Municipalidad de La Cruz.
