@@ -1,8 +1,8 @@
-Artículo 4º—Los objetivos de conservación que orientarán la planificación y gestión del Área Marina de Manejo Montes Submarinos son los siguientes:
-a) Conservar una muestra representativa del ecosistema marino característico de la cordillera submarina de cocos.
-b) Conservar sitios de agregación (descanso, reproducción, limpieza, alimentación) de especies de peces de importancia pesquera, tanto comercial como deportiva.
-c) Conservar áreas de tránsito y sitios de agregación de peces pelágicos, cetáceos y tortugas marinas, especialmente las especies que se encuentran amenazadas y en peligro de extinción.
-d) Conservar áreas de tránsito y sitios de agregación de rayas, mantas y tiburones pelágicos y demersales.
-e) Conservar áreas de tránsito y agregación de especies migratorias como el atún y el dorado.
-f) Conservar formaciones coralinas profundas.
-g) Conservar áreas de tránsito y agregación de aves marinas.
+Artículo 4.—Los objetivos de conservación que orientarán la planificación y gestión del Área Marina de Manejo del Bicentenario son los siguientes:
+1- Promover la conservación y el uso sostenible de una de las marinas de mayor productividad en el Pacífico Oriental Tropical.
+2- Manejar de manera integral una parte representativa del ecosistema marino de la Cordillera Submarina del Coco.
+3- Conservar sitios de agregación (descanso, reproducción, limpieza, y alimentación) de especies vulnerables, amenazadas o en peligro, tales como quelonios, cetáceos, elasmobranquios, y especies pelágicas, algunas de importancia comercial.
+4- Conservar ecosistemas de profundidad como formaciones coralinas mesofíticas, comunidades de corales azooxantelados, llanuras abisales, dorsales, y sus comunidades bentónicas, especies endémicas, y posibles especies nuevas para la ciencia.
+5- Conservar áreas de alimentación y tránsito de aves marinas.
+6- Promover la conectividad estructural y funcional de especies altamente migratorias a nivel del Corredor del Pacífico Este Tropical.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 43368 del 17 de diciembre de 2021)
