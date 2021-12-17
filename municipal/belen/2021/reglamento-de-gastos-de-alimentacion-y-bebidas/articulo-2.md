@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de Aplicación: Este reglamento es aplicable a las personas funcionarias de la Municipalidad de Belén, incluida la Secretaría del Concejo Municipal y el personal de la Auditoría Interna. El incumplimiento de a sus disposiciones acarrea responsabilidad administrativa, civil o penal según corresponda.
