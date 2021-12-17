@@ -1,3 +1,2 @@
-Artículo 4º-Créase una nueva Área de Conservación denominada Área de Conservación Marina Cocos, la cual incluye los ecosistemas asociados al Parque Nacional Isla del Coco, al Área Marina de Manejo Montes Submarinos, y cualesquiera áreas marinas que el país defina como de significancia ecológica o biológica en el Pacifico, procurando la adecuada salud de los ecosistemas o estabilidad de los recursos marinos.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40479 del 29 de junio del 2017)
-(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 78 del 4 de mayo de 2018, página N° 72.)
+Artículo 4°-Créese una nueva Área de Conservación denominada "Área de Conservación Marina Coco", la cual incluye los ecosistemas asociados al Parque Nacional Isla del Coco, al Área Marina de Manejo del Bicentenario, y cualesquiera áreas silvestres protegidas marinas que el país defina como de significancia ecológica o biológica en el Océano Pacífico, procurando la adecuada salud de los ecosistemas o estabilidad de los recursos marinos.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 43368 del 17 de diciembre de 2021)
