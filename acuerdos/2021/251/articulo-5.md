@@ -1,0 +1,7 @@
+Artículo 5. Actualización. En el momento en que cambien las condiciones en que fue otorgada la inscripción del auditor externo independiente o la firma auditora en el Registro Nacional de Valores e Intermediarios, el auditor externo independiente o la firma auditora debe remitir los cambios correspondientes, en un plazo de cinco días hábiles posteriores a la fecha del evento.
+En el caso de que la firma auditora solicite la inscripción adicional de un socio como responsable de firmar informes de auditoría o de un profesional en Tecnologías de Información, deberá remitir la siguiente información:
+a) Solicitud de inscripción firmada o suscrita mediante certificado digital válido por parte del representante legal de la firma de auditoria.
+b) Currículo del profesional que se habilita para firmar los informes de auditoría o del profesional en tecnologías de información. Se debe utilizar como base el formato establecido en el Anexo 1 de estos lineamientos.
+c) Certificación extendida por el Colegio de Contadores Públicos de Costa Rica, en el caso de que se incorporare algún socio responsable de firmar informes de auditoría, donde conste que el profesional es miembro activo. En el caso de solicitudes para brindar servicios de auditorías de TI, se debe presentar la certificación CISA del profesional.
+d) Declaración jurada rendida por el representante legal de la firma del cumplimiento de los requisitos y experiencia
+profesional establecidos en el artículo 11 inciso g) del Reglamento General de Auditores Externos.

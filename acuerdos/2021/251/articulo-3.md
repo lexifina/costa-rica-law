@@ -1,0 +1,1 @@
+Artículo 3. Declaraciones. La declaración jurada del cumplimiento de los requisitos y experiencia profesional establecidos en el artículo 11 inciso g) del Reglamento General de Auditores Externos, debe considerar el contenido establecido en el Anexo 4 de este acuerdo.
