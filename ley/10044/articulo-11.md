@@ -1,0 +1,3 @@
+ARTÍCULO 11- Financiamiento creativo
+El Sistema de Banca para el Desarrollo apoyará con distintas herramientas de acceso a financiamiento y de apoyo empresarial para el impulso de la economía cultural y creativa.
+Asimismo, el Consejo Nacional de Economía Creativa y Cultural identificará otros mecanismos alternativos de financiamiento, apalancamiento, comercialización y apoyo, con el fin de promover los emprendimientos creativos y culturales. Con este fin, sugerirá las reformas a la normativa reglamentaria y legal que considere pertinente.

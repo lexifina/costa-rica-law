@@ -1,0 +1,10 @@
+ARTÍCULO 7- Funciones del Consejo Nacional de Economía Creativa y Cultural.
+El Consejo Nacional de Economía Creativa tendrá las siguientes funciones, para lo cual podrá crear las instancias de coordinación y seguimiento necesarias para la implementación de la Política Nacional de Economía Creativa y Cultural:
+a) Analizar los informes realizados por el Ministerio de Cultura y Juventud, en seguimiento a las acciones y programas derivados de la política.
+b) Analizar los informes elaborados por la Unidad de Cultura y Economía (UCE) sobre el aporte de la cultura a la economía, como motor de desarrollo, mediante los indicadores monetarios y no monetarios generados anualmente por la Cuenta Satélite de Cultura de Costa Rica, y otros informes prospectivos derivados del Sistema de Información Cultural.
+c) Analizar, retroalimentar y evaluar anualmente los planes de trabajo y programas definidos para la implementación de la estrategia. El Ministerio de Cultura y Juventud tendrá a su cargo la aprobación final de dichos planes de trabajo.
+d) Crear y definir la orientación estratégica de los grupos de trabajo que considere pertinentes para la implementación de los modelos de atención y acompañamiento de la política.
+e) Procurar una articulación activa y cooperación entre las instituciones del ecosistema para la definición y ejecución de los programas definidos a partir de las áreas de intervención.
+f) Proponer los programas y acciones necesarias para el impulso de emprendimientos creativos y culturales en el país, incluyendo mecanismos de financiamiento, apalancamiento, comercialización y apoyo, así como facilitación de exportación e importación de los bienes y servicios creativos.
+g) Promover mecanismos de coordinación y cooperación entre el sector público y el sector privado, para a debida ejecución de la política y proyectos en la materia.
+h) Cualquier otro tema que sea de interés y que se encuentre dentro de las competencias de coordinación estratégica que le corresponden al Consejo.
