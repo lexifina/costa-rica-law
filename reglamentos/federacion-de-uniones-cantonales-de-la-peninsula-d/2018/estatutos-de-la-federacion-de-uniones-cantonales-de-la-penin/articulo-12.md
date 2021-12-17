@@ -1,0 +1,2 @@
+Artículo N° 12
+La Asamblea General de delegados es el órgano máximo de la Federación de Uniones Cantonales de la Península de Nicoya y estará constituida por 7 representantes propietarios y 3 suplentes de cada una de las Uniones Cantonales asociadas, autorizadas por sus respectivas organizaciones integrantes conforme al Artículo 73 (inciso a) del Reglamento a la Ley 3859 sobre el desarrollo de la comunidad.

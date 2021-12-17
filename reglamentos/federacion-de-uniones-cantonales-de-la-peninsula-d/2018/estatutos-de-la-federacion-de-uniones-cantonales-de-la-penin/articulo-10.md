@@ -1,0 +1,2 @@
+Artículo N° 10
+Pueden afiliarse las Uniones Cantonales sin perder su individualidad y todos aquellos organismos dedicado a las actividades cívicas, culturales, deportivas, insertando el acuerdo de sus respectivas entidades, en el cual se acordó su afiliación. Desde el momento que su solicitud es aceptada pueden colaborar conjuntamente con las Uniones de las actividades de la Federación y beneficiarse de sus ventajas. Así mismo tienen derecho a nombrar cada una un representante ante la Junta Directiva que tendrá derecho a voz pero no a votar.

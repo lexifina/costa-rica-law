@@ -1,0 +1,2 @@
+Artículo N° 5
+Uniones Cantonales afiliadas: Se consideran afiliadas a aquellas cuyos representantes hayan firmado el Acta Constitutiva o las que posteriormente hagan la solicitud de afiliación a la Junta Directiva de la Federación presentando una copia del acuerdo de la respectiva Asamblea General que la autorizó. Desde el momento que son aceptados entraran a formar parte de la Federación, con todos los derechos y deberes.

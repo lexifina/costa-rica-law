@@ -1,0 +1,2 @@
+Artículo N° 13
+La Asamblea General Ordinaria se reunirá una vez al año en el sitio, fecha y hora que establezca la Junta Directiva, para cumplir las funciones que se indicaran a continuación: Sesionar también extraordinariamente, convocada por la Junta Directiva, fiscalía o el 10% de las Uniones afiliadas, comunicando en el aviso el asunto que se desea que se conozca, las convocatorias da la Asamblea General deben hacerse con 15 días de anticipación.
