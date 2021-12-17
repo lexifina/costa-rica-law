@@ -1,0 +1,2 @@
+Artículo 49. - Contribuyentes que obtengan únicamente rentas del capital mobiliario. Los contribuyentes que obtengan únicamente rentas de capital mobiliario establecidos en el artículo 27 ter, numeral 2, inciso a), subinciso ii) de la Ley, deben tributar y declarar conforme a las disposiciones del capítulo XI de la Ley, debido a que no se encuentran afectos a otra actividad lucrativa.
+Estos contribuyentes tienen la opción de tributar conforme lo establecido en el artículo 6 de este Reglamento.

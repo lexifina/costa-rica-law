@@ -1,0 +1,1 @@
+Artículo 34.- Definición de rentas del capital inmobiliario. Tendrán la consideración de rentas del capital inmobiliario procedentes de la titularidad de bienes inmuebles, todas las que se deriven del arrendamiento, subarrendamiento o de la constitución o cesión de derechos o facultades de uso o goce de bienes inmuebles, cualquiera que sea su denominación o naturaleza.

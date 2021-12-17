@@ -1,0 +1,1 @@
+Artículo 41.- Base imponible del capital mobiliario. En lo que respecta a las rentas del capital mobiliario, cualquiera que sea el tipo de estas, la base imponible corresponderá al monto total de la contraprestación obtenida por el contribuyente, sin que exista posibilidad alguna de deducción de gastos ni de otras reducciones.

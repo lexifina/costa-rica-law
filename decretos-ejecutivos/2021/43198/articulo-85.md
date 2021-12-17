@@ -1,0 +1,4 @@
+CAPITULO II
+DE LOS CERTIFICADOS PARA EFECTOS TRIBUTARIOS
+Artículo 85.- Certificación de estados financieros. Los estados financieros incluidos en la declaración pueden ser certificados por contadores públicos autorizados, según lo dispone el artículo 43 de la ley. A tal fin, la certificación para efectos tributarios debe contener la opinión del contador público, sustentada en el examen y evaluación de los estados financieros, con aplicación de las normas de auditoría generalmente aceptadas y con estricto apego a las disposiciones legales que regulan la materia.
+En caso de situaciones no previstas en la ley, deben observarse las disposiciones emitidas por la Dirección, en uso de las facultades que le confiere el Código de Normas y Procedimientos Tributarios, la jurisprudencia y los principios de contabilidad generalmente aceptados.

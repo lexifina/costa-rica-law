@@ -1,0 +1,1 @@
+Artículo 62.- Remuneraciones a diplomáticos nacionales. A efectos de aplicar el impuesto a que se refiere el artículo 32 de la ley, los sueldos que perciben los diplomáticos nacionales se consideran iguales a los devengados por los funcionarios pertenecientes al servicio interno de igual categoría.

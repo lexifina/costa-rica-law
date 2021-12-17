@@ -1,0 +1,17 @@
+Artículo 43.- Normas generales de valoración de la base imponible de las ganancias y pérdidas de capital para transmisiones a título oneroso. En general y sin perjuicio de las normas especiales de valoración para determinadas transacciones establecidas en el artículo 44 de este Reglamento, los valores de transmisión y adquisición con base en los cuales se determinarán las ganancias o pérdidas de capital, han de cuantificarse con arreglo a las siguientes disposiciones:
+a) Valor de transmisión. El valor de transmisión, salvo en el caso de bienes inmuebles, cuyas reglas se especifican más adelante, estará conformado por el importe realmente satisfecho por la enajenación de los bienes y derechos, del cual se deducirán los gastos y tributos inherentes a la transacción, cuando estuviesen a cargo del transmitente.
+Tratándose de transacciones de bienes inmuebles, el valor de transmisión estará constituido por el mayor de los dos importes siguientes:
+i) El monto realmente satisfecho por la enajenación, o
+ii) Sujeto a prueba en contrario del contribuyente, el valor que se determine a través de las plataformas de valores de terrenos por zonas homogéneas del Manual de Valores Base Unitarios por Tipología Constructiva, utilizados para la gestión del impuesto sobre bienes inmuebles, según lo indicado en el inciso 3) del artículo 30 bis de la Ley.
+b) Valor de adquisición. El valor de adquisición estará constituido por la suma de:
+i) El importe real por el que la adquisición fue efectuada.
+ii) El costo de las inversiones y mejoras que se hubieren efectuado a los bienes adquiridos. No se incluirán los intereses por la financiación ajena.
+iii) Los gastos y tributos inherentes a la adquisición que hayan sido satisfechos por el adquirente. No se incluirán los intereses por la financiación ajena. Se entiende por financiación ajena cualquier préstamo realizado por terceros, sean estos vinculados o independientes.
+Al resultado de dicha sumatoria se debe restar, cuando se trate de activos depreciables, el monto correspondiente a la depreciación acumulada al momento de la transmisión.
+Las reglas de valoración indicadas en los párrafos anteriores podrán aplicarse para la determinación de la ganancia obtenida por la venta de terrenos fraccionados en lotes urbanizados.
+Tratándose de intangibles que no cuenten con un valor de adquisición, por ser desarrollados por el contribuyente, se entenderá como valor del intangible aquel que conste en los libros y registros contables, respaldados por comprobantes fehacientes que demuestren el desarrollo y los estudios técnicos correspondientes.
+La actualización del valor de adquisición, ordenada en el inciso 2) del artículo 30 bis de la Ley del Impuesto sobre la Renta, será el resultado de la sumatoria del valor actualizado del importe real del valor de adquisición, del valor de las inversiones y del valor de las mejoras, según correspondan. Para definir cada uno de estos valores actualizados se aplicará la siguiente fórmula:
+𝑉𝑎𝑙𝑜𝑟 𝑑𝑒 𝑎𝑑𝑞𝑢𝑖𝑠𝑖𝑐𝑖ó𝑛 𝑎𝑐𝑡𝑢𝑎𝑙𝑖𝑧𝑎𝑑𝑜 = 𝑉(1 + 𝐷1)(1 + 𝐷2)(1 + 𝐷3)(1 + 𝐷𝑛)
+En donde:
+V= importe real del valor de adquisición, valor de las inversión o valor de las mejoras, según correspondan.
+𝐷1,𝐷2,𝐷3,𝐷𝑛= variación del Índice de Precios al Consumidor (IPC) publicado por el Instituto Nacional de Estadística y Censos para los meses correspondientes, partiendo del mes del año en que se hayan satisfecho el importe real o las inversiones y mejoras, los cuales se utilizarán como factores para la actualización hasta el último mes del año a aquel en que se realice la transmisión.

@@ -1,0 +1,1 @@
+Artículo 105.- Declaración sobre créditos de impuesto. Para efectos de la prueba de los créditos a que se refiere el inciso c) del artículo 15 y del artículo 34 de la Ley, los contribuyentes presentarán una certificación del Registro Civil o de notario público.

@@ -1,0 +1,2 @@
+Artículo 68.- Contribuyentes. Son contribuyentes de este impuesto las personas físicas o jurídicas domiciliadas en el exterior que perciban rentas o beneficios de fuente costarricense.
+Son responsables solidarios de las obligaciones establecidas en la ley, las personas físicas o jurídicas, de hecho o de derecho, públicas o privadas, domiciliadas en Costa Rica, que efectúen el crédito, pago o pongan a disposición rentas de fuente costarricense a personas domiciliadas en el exterior.

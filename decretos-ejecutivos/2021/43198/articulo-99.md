@@ -1,0 +1,2 @@
+Artículo 99.- Sistemas contables computadorizados. Los contribuyentes que posean sistemas de contabilidad computarizados también deberán cumplir con la obligación de llevar los libros citados en el artículo 96 anterior, con anotaciones de resumen que tengan respaldo en los datos que contenga el sistema computarizado, así como en los documentos originales.
+Asimismo, deberán conservar copias de los soportes magnéticos que contengan información tributaria, por igual periodo que los comprobantes que respaldan los asientos contables.

@@ -1,0 +1,1 @@
+Artículo 46.- Hecho generador en el impuesto sobre ganancias y pérdidas de capital. Tratándose de ganancias de capital, el impuesto se entenderá configurado al momento en que se produzca la alteración en la composición del patrimonio del contribuyente.

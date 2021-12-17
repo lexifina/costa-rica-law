@@ -1,0 +1,1 @@
+Artículo 67.- Hecho generador. Se entiende ocurrido el hecho generador cuando la renta de fuente costarricense se pague, acredite o se ponga a disposición de personas no domiciliadas en el país, el acto que se realice primero.
