@@ -1,0 +1,2 @@
+ARTÍCULO 14- Autorización para destinar recursos y prestar colaboración
+Se autoriza a todas las instituciones de la Administración central, gobiernos municipales y entes descentralizados para que voluntariamente destinen recursos y presten colaboración para los proyectos que desarrolle el Consejo Nacional de Economía Creativa y Cultural. El Ministerio de Cultura y Juventud (MCJ) estará autorizado para apoyar iniciativas de otras instituciones estatales, municipales o descentralizadas, vinculadas con los temas tutelados en la presente ley.

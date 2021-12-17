@@ -1,0 +1,2 @@
+ARTÍCULO 5- Rectoría
+Le corresponderá al Ministerio de Cultura y Juventud (MCJ) la coordinación de los procesos de implementación derivados de la presente ley, para lo cual, en reconocimiento a las rectorías que según la normativa vigente se tiene, se entenderá que esta estrategia está subordinada a una rectoría compartida entre el Ministerio de Economía Industria y Comercio (MEIC), en materia de desarrollo empresarial, y el Ministerio de Cultura y Juventud, en materia de impulso a los emprendimientos creativos y culturales.
