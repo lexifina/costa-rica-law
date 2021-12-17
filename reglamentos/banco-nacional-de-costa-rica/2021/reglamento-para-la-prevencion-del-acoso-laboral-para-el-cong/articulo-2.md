@@ -1,0 +1,1 @@
+Artículo 2º-Principios Regentes. Este Reglamento se basa en los principios constitucionales del respeto por la libertad y la vida humana, el derecho al trabajo y el principio de igualdad ante la ley, los cuales obligan al Estado a condenar, y a establecer políticas para prevenir, sancionar y erradicar la discriminación y violencia en los centros de trabajo.

@@ -1,0 +1,1 @@
+Artículo 22.-Normativa complementaria. En todo aquello no previsto en el presente reglamento se aplicará lo establecido en la Ley General de la Administración Pública, Convención Colectiva vigente del Banco Nacional (aplicable para el Banco), el Código de Trabajo y demás normativa aplicable.

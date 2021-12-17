@@ -1,0 +1,2 @@
+Artículo 19.-Orientación Profesional. Conforme a lo establecido en el presente reglamento, las partes involucradas en un aparente o Acoso Laboral podrán solicitar a la Dirección Corporativa de Desarrollo Humano o bien a las Unidades encargadas en las Subsidiarias, asesoría profesional psicológica o trabajo social, para canalizar su situación personal.
+Las personas asignadas para dicha orientación estarán obligadas a proporcionar información y asesoría en condiciones de absoluta confidencialidad.

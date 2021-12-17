@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito de aplicación y alcance. El reglamento aplica en las relaciones laborales establecidas entre el Banco y su personal, así como entre las Subsidiarias que conforman el Conglomerado Financiero Banco Nacional y el personal, sea que esté contratado a tiempo determinado o por tiempo indefinido.

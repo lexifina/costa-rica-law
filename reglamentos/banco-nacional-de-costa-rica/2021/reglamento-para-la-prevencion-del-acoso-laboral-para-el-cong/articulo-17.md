@@ -1,0 +1,1 @@
+Artículo 17.-Recursos. Contra las resoluciones dictadas durante el procedimiento por el Órgano Director del Procedimiento cabrá recurso de revocatoria ante el mismo Órgano Director y contra el acto final cabrá el recurso de reposición ante la Gerencia General.
