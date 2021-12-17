@@ -1,0 +1,8 @@
+Artículo 2° : Apruébense los siguientes Egresos Ordinarios y Extraordinarios del Gobierno de la República para el Ejercicio Económico de 2022.
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 249 a La Gaceta N° 235 del 7 de diciembre de 2021, tomo I)
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 249 a La Gaceta N° 235 del 7 de diciembre de 2021, tomo II)
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 249 a La Gaceta N° 235 del 7 de diciembre de 2021, tomo III)
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 249 a La Gaceta N° 235 del 7 de diciembre de 2021, tomo IV)
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 249 a La Gaceta N° 235 del 7 de diciembre de 2021, tomo V)
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 249 a La Gaceta N° 235 del 7 de diciembre de 2021, tomo VI)
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 249 a La Gaceta N° 235 del 7 de diciembre de 2021, tomo VII)
