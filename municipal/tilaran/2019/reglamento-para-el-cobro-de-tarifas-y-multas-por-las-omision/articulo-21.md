@@ -1,0 +1,1 @@
+Artículo 21.-Franjas verdes y arcos de esquinas. Las franjas verdes solo se permitirán en aceras con un ancho igual o superior a 2 m. Para el diseño y dimensionamiento deberá consultarse a la Municipalidad. El diámetro para conformar el arco de las esquinas deberá tener la menor longitud posible.

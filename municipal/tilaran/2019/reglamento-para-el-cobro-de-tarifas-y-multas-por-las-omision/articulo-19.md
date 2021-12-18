@@ -1,0 +1,2 @@
+Artículo 19.-Inclusión de la multa. Una vez aplicada la multa en el sistema de cómputo, esta se reflejará en el sistema de cobros de la Municipalidad, junto con los tributos municipales que trimestralmente debe pagar el propietario, hasta tanto este no cumpla con su deber.
+Vencido el plazo otorgado por el inspector, en cualquier momento este mismo departamento verificará el cumplimiento o incumplimiento, para la aplicación de las correspondientes medidas dispuestas por el presente reglamento.
