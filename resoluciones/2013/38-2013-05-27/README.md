@@ -18,3 +18,4 @@ Reglamento interno de organización y funciones de la Autoridad Reguladora de lo
 | 3 | 2014-08-21 | Reglamento 49 (2014-08-21) |
 | 4 | 2017-06-02 | Reglamento 26 (2017-06-02) |
 | 5 | 2020-07-07 | Reglamento 0 (2020-07-07) |
+| 6 | 2021-12-20 | Resolución 236 (2021-12-20) |
