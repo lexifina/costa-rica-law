@@ -1,0 +1,1 @@
+Artículo 3º-Alcance de este Reglamento. Este reglamento será aplicable sin excepción, a todos los procedimientos de contratación que promueva el Comité Cantonal de Deportes y Recreación de Oreamuno de Cartago, por medio de su ERMS, así como a los procesos de almacenamiento y distribución o tráfico interno de bienes que promueva la Municipalidad de Oreamuno.

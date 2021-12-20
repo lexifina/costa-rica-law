@@ -1,0 +1,1 @@
+Artículo 38.-Contrato Adicional. El contrato adicional se regirá conforme a lo establecido en el Artículo 12 bis de la LCA y 209 de su Reglamento. Conforme a lo dispuesto en RSRCAP, este contrato no requiere refrendo contralor ni aprobación interna.

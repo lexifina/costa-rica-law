@@ -1,0 +1,1 @@
+Artículo 45.-Sanciones Administrativas a particulares. Existen dos tipos de sanciones administrativas a particulares: el apercibimiento y la inhabilitación, contenidas en la Ley de Contratación Administrativa.

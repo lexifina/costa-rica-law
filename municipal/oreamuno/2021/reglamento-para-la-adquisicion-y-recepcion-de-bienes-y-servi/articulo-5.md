@@ -1,0 +1,1 @@
+Artículo 5º-Las dependencias administrativas de la Institución (técnico, jurídico, financiero) colaborarán con el ERMS, para el cumplimiento de sus cometidos, todo conforme a las competencias propias de cada dependencia.

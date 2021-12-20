@@ -1,0 +1,1 @@
+Artículo 20.-Comunicación del Acuerdo o Resolución de Adjudicación. El Departamento de Secretaría Municipal deberá remitir el acuerdo municipal firme de adjudicación dentro de los dos días hábiles siguientes a su dictado al ERMS para la respectiva notificación.

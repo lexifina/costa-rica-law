@@ -1,0 +1,10 @@
+SECCIÓN SEGUNDA
+Modificaciones, prórrogas y aclaraciones al cartel
+Artículo 14.-Modificaciones, prórrogas y aclaraciones al cartel. En esta materia se contempla la posibilidad de modificar, aclarar el cartel y la posibilidad de prorrogar el plazo de recepción de las ofertas.
+a) Modificaciones no esenciales al Cartel. Por modificaciones no esenciales se entenderán aquellas que no cambien el objeto ni que impliquen una variación importante en la concepción de este. Deberán comunicarse por los mismos medios en que se cursó la invitación con al menos tres días de anticipación al vencimiento del plazo para recibir ofertas.
+b) Modificaciones esenciales al Cartel. En cuanto a las modificaciones esenciales, el plazo para recibir ofertas será ampliado en un plazo no mayor al 50% del plazo mínimo que corresponde a cada tipo de contratación. El ERMS cuenta con tres oportunidades para modificar de oficio el cartel, en cada modificación podrán variarse todas las condiciones que así lo ameriten.
+c) Aclaraciones al Cartel. Pueden darse dos tipos de aclaraciones al cartel; las aclaraciones a solicitud de parte y las acordadas de oficio.
+d) Las aclaraciones a solicitud de parte. Las aclaraciones a solicitud de parte se presentarán ante la administración dentro del primer tercio del plazo para recibir ofertas y serán atendidas en un plazo de cinco días hábiles después de su presentación;
+las que se presenten fuera de ese plazo, el ERMS en coordinación con las demás áreas responsables, valorarán el fondo de la misma, mas no impedirá la apertura de ofertas señaladas.
+e) En cuanto a las aclaraciones acordadas de oficio. Las aclaraciones acordadas de oficio siempre que no impliquen modificación al cartel, serán incorporadas de inmediato al expediente, con la debida difusión dentro de las 24 horas siguientes.
+f) Las prórrogas en el plazo para la recepción de ofertas. Las prórrogas en el plazo para la recepción de ofertas, deberán estar divulgadas a más tardar el día anterior al que previamente se hubiere señalado como límite para la presentación de ofertas y se dispone de tres oportunidades de oficio para conferir prórrogas al plazo de recepción de ofertas.

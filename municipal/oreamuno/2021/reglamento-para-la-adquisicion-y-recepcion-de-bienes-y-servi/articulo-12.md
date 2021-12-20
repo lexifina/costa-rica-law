@@ -1,0 +1,1 @@
+Artículo 12.-Criterios de Evaluación. El ERMS, en coordinación con la parte técnica del C.C.D.R.O., definirá los elementos que se incorporarán en el cartel como criterios de evaluación, los cuales se basarán en los principios de igualdad, libre competencia, eficiencia y transparencia que establece la Ley de Contratación Administrativa y su Reglamento.
