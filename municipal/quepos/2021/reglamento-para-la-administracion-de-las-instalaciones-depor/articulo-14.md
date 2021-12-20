@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del personal encargado de las instalaciones deportivas
+Artículo 14.-Obligaciones legales. El personal encargado del mantenimiento de las instalaciones deberá cumplir todas las obligaciones legales establecidas en materia de Seguridad e Higiene en el Trabajo. El personal encargado de la administración de la instalación deportiva deberá mantener un comportamiento adecuado ante los usuarios, brindando el debido respeto que se merecen. Una conducta inadecuada del administrador será motivo para que el usuario presente una queja ante el Comité Cantonal y este órgano previa investigación, pueda sustituirlo de su cargo, así sea miembro de la Junta Directiva del Comité Comunal o miembro de la Comisión de Instalaciones Deportivas.

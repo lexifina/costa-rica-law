@@ -1,0 +1,2 @@
+Artículo 11.-Reclamaciones. Los usuarios de las instalaciones podrán manifestar sus quejas por el servicio brindado en las instalaciones deportivas, directamente en las oficinas administrativas del Comité Cantonal mediante la redacción de una hoja de reclamaciones que a tal efecto existirán a su disposición en las dichas oficinas o una nota firmada por el usuario.
+Sólo serán cursadas aquellas reclamaciones que contengan todos los datos personales de la persona que presenta la reclamación y vengan firmadas.

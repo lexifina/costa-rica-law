@@ -1,0 +1,4 @@
+Artículo 35.-Del deporte estudiantil. Acceso de los centros escolares a las Instalaciones Deportivas
+Las instalaciones y equipamientos deportivos dedicarán una parte de su estructura a paliar la falta de la misma en los centros estudiantiles del cantón.
+Durante el horario escolar las instalaciones deportivas estarán principalmente dedicadas a acoger las clases de educación física estudiantil de las escuelas y colegios del Cantón de Quepos.
+Por dicho motivo los Centros Educativos del Cantón podrán acceder a las instalaciones deportivas de acuerdo a las condiciones del convenio suscrito de forma individualizada por cada uno de ellos con el Comité Cantonal a tal efecto, y siempre que lo hagan durante el horario lectivo, autorizados expresamente por Centro Educativo y cada estudiante acompañados de un profesor, que será responsable tanto de la educación física como del comportamiento de los asistentes y las instalaciones.

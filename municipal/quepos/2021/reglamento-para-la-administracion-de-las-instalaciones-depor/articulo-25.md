@@ -1,0 +1,2 @@
+Artículo 25.-Aplicación de las normas particulares. Serán de aplicación a cada una de las Instalaciones Deportivas Municipales, además de las normas genéricas contenidas en el presente Reglamento, las que seguidamente se especifican de forma individualizada.
+Asimismo, cada instalación deportiva debe brindar espacios para la recreación y el desarrollo del deporte por medio de las escuelas deportivas si las hubiera, o bien programas de recreación comunitarios organizados por Asociaciones o Comités comunales o Escuelas cercanas.

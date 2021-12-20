@@ -1,0 +1,1 @@
+Artículo 22.-Acceso a zonas reservadas. Queda prohibido el acceso de los usuarios a las instalaciones de mantenimiento, almacenes, oficina de control, y demás zonas y locales en los que no se permita la práctica de deportes y se encuentren reservadas al personal de mantenimiento, servicios o administrativo.

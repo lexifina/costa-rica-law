@@ -1,0 +1,4 @@
+Artículo 36.-Criterios y condiciones de cesión de las instalaciones. Los criterios y condiciones de cesión de las instalaciones a los centros estudiantiles se fijarán cada año en el mes de marzo teniendo en cuenta los intereses del Comité Cantonal y de los centros educativos.
+Para ello, con la antelación necesaria al inicio de las competiciones deportivas, y en el plazo establecido para los equipos, asociaciones deportivas y federaciones, se formulará la solicitud de reservas de horario y días para la práctica de deportes, por la dirección del Centro Educativo,
+suscribiéndose un acuerdo que se reflejará en un Convenio con el Comité Cantonal que poseerá una vigencia anual sin perjuicio de las posibles prórrogas a que dé lugar.
+El deporte estudiantil fuera del horario lectivo también contará con la cesión de las instalaciones por parte del Comité Cantonal en unas condiciones de uso que cada año se establecerá antes del comienzo de la campaña de deporte estudiantil.
