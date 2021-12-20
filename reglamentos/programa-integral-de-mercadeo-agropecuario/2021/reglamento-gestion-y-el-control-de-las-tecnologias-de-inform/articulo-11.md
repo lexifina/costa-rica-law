@@ -1,0 +1,1 @@
+Artículo 11.-Del registro. Es responsabilidad del Proceso de Tecnologías de Información, llevar un registro actualizado del software con que cuenta la institución, de forma tal que pueda verificar la eficacia de la herramienta, así como la caducidad de aquellas que requieran licencias temporales.

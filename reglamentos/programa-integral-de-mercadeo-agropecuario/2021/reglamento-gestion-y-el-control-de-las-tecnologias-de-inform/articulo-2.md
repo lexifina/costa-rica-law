@@ -1,0 +1,14 @@
+Artículo 2º-De las definiciones. Para efectos del presente reglamento se procede a definir:
+Comisión: será el grupo interdisciplinario encargado principalmente de promover, establecer y controlar lo atinente a las tecnologías de la información a nivel institucional.
+Hardware: todas las partes tangibles de un sistema informático; sus componentes son: eléctricos, electrónicos, electromecánicos y mecánicos. Son cables, gabinetes o cajas, periféricos de todo tipo y cualquier otro elemento físico involucrado. Se entiende además de las computadoras de escritorio, computadoras personales, dispositivos móviles, impresoras, los dispositivos universal serial bus "USB", datacards, y otros que por su naturaleza tengan esa condición.
+Información confidencial: toda aquella información declarada así por normativa vigente, o por el Jerarca Superior Administrativo, así como los proyectos de resolución, los informes para órganos consultivos y los dictámenes de estos antes de que hayan sido rendidos.
+Infraestructura de comunicaciones: se refiere al hardware y software que permite la comunicación interna y externa.
+Infraestructura: conjunto de dispositivos físicos, aplicaciones de software y servicios que requiere para operar toda la Institución. Se compone de elementos como hardware, software, bases de datos, telecomunicaciones, personas y procedimientos, todos configurados para recolectar, manipular, almacenar y procesar datos para ser convertidos en información.
+Internet: red internacional que conecta miles de redes enlazadas y que utiliza el grupo de protocolos TCP/IP.
+Licencia: contrato entre el titular del derecho de autor (propietario) y el usuario del programa informático (usuario final), para utilizar éste, en una forma determinada y de conformidad con unas condiciones convenidas.
+Sistema: conjunto de elementos orientados al tratamiento y administración de datos e información, organizados y listos para su uso posterior, generados para cubrir una necesidad u objetivo.
+Software: conjunto de los programas de cómputo, procedimientos, reglas, documentación y datos asociados, que forman parte de las operaciones de un sistema de computación.
+USB: estándar industrial que define los cables, conectores y protocolos usados en un bus para conectar, comunicar y proveer de alimentación eléctrica entre computadoras y dispositivos electrónicos.
+Usuario: toda persona autorizada por el PIMA que requiera la utilización de algún recurso tecnológico.
+Virus: software malicioso (Malware), que tiene por objeto alterar el normal funcionamiento de la computadora, sin el permiso o el conocimiento del usuario.
+Plan estratégico en TI: aquellas acciones y proyectos relacionados con la modernización y actualización de los elementos en TI que debe realizar el PIMA, todo en concordancia estricta con el Plan Estratégico Institucional.

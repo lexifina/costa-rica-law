@@ -1,0 +1,1 @@
+Artículo 21.-Del del plan estratégico en TI. Toda adquisición de software y hardware deberá ajustarse al plan estratégico en TI, en caso de no estar contemplado se requerirá un visto bueno del CTI. Queda a salvo las contrataciones que por emergencia o necesidad decida la Gerencia General.

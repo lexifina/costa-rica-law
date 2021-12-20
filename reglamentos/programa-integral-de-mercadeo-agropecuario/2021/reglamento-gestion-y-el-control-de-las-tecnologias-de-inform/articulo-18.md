@@ -1,0 +1,1 @@
+Artículo 18.-Desconexión: aquellos equipos programas o elementos de TI que representen un riesgo al funcionamiento de los recursos tecnológicos del PIMA, serán desconectados por Tecnologías de Información sin necesidad de que exista previa comunicación al usuario.

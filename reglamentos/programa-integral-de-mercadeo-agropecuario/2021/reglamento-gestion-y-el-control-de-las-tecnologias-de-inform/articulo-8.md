@@ -1,0 +1,1 @@
+Artículo 8º-De las actas: de cada sesión deberá redactarse un acta con los acuerdos tomados, así como con los asuntos tratados. Estas actas deberán tener un capítulo de seguimiento de acuerdos que deberán revisarse periódicamente según se acuerde por la CTI. Estas actas se llevarán de manera digital.

@@ -1,0 +1,1 @@
+Artículo 17.-Reparaciones o mantenimiento del hardware: en caso de requerirse reparaciones o mantenimiento, se debe coordinar con Tecnologías de Información, a fin de considerar los períodos de garantía que aplican, así como las condiciones de la misma.

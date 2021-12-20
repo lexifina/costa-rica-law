@@ -1,0 +1,1 @@
+Artículo 15.-Uso de hardware: todo hardware adquirido por la Institución bajo licencia, por contrato con terceros, donación u obtenido por algún otro medio, será usado en concordancia con lo que permiten las licencias, acuerdos, contratos, normativa vigente y este Reglamento.
