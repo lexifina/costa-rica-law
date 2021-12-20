@@ -14,3 +14,4 @@ Reglamento del Sistema Institucional de archivos (SIA) de la Autoridad Regulador
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-16 | la propia norma |
+| 2 | 2021-12-20 | Resolución 237 (2021-12-20) |
