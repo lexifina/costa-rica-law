@@ -1,0 +1,4 @@
+Artículo 21 bis.- Para efectos de la renovación de la Condición Pyme, el interesado deberá realizar el llenado del Formulario establecido en el Anexo N° 2 del presente Reglamento y remitirlo mediante la Plataforma del SIEC.
+Una vez recibido el Formulario se procederá por parte de la DIGEPYME a la revisión del mismo, si dicho Formulario se encuentra incompleto se le prevendrá al solicitante para que en un plazo de 10 días hábiles complete el mismo. Transcurrido el plazo antes señalado, sin que se aporte Formulario debidamente completo, se procederá al archivo de la gestión.
+En los casos en que el Formulario de Renovación se encuentre debidamente lleno, la DIGEPYME contará con un plazo de 5 días hábiles a partir de su recibido, para resolver la gestión. El referido plazo regirá también cuando el administrado complete la solicitud conforme a la prevención efectuada.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 43387 del 21 de diciembre del 2021)
