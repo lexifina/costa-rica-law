@@ -22,3 +22,4 @@ Estatuto Autónomo de Servicio de la Defensoría de los Habitantes
 | 7 | 2016-03-01 | Reglamento 0 (2016-03-01) |
 | 8 | 2019-07-02 | Reglamento 0 (2019-07-02) |
 | 9 | 2019-07-15 | Reglamento 0 (2019-07-15) |
+| 10 | 2021-12-21 | Reglamento 0 (2021-12-21) |

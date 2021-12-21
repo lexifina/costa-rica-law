@@ -1,4 +1,4 @@
-Artículo 43.—De las obligaciones de los servidores (as). Son obligaciones de los servidores (as) de la Defensoría de los Habitantes las siguientes:
+Artículo 43.-De las obligaciones de los servidores (as). Son obligaciones de los servidores (as) de la Defensoría de los Habitantes las siguientes:
 a) Cumplir la jornada de trabajo que este Estatuto establece.
 b) Asistir puntualmente a su lugar de trabajo todos los días hábiles y los demás días que por circunstancias especiales el servicio lo requiera.
 c) Ejecutar su trabajo con capacidad, dedicación y diligencia para el mejor desempeño de sus funciones y utilizando las técnicas y procedimientos ccorrespondientes.
@@ -17,3 +17,9 @@ o) Llevar consigo el carné de identificación en todo momento e identificarse c
 p) Prestar temporalmente sus servicios fuera de la sede de la Defensoría cuando las funciones de la institución así lo exigieren.
 q) Aportar al Departamento de Recursos Humanos la información personal que sea requerida y notificar a éste departamento cualquier variación de la misma.
 r) Cumplir las demás obligaciones que se establecen en la Ley de la Defensoría de los Habitantes de la República y su Reglamento, en el presente Estatuto Autónomo y en las demás directrices que emita el Defensor (a) de los Habitantes y demás disposiciones conexas.
+s) Vigilar que sus intereses privados no afecten las funciones, la confianza y credibilidad institucional. Deberá evitar colocarse en situaciones de conflictos de interés que menoscaben o pongan en riesgo su imparcialidad, independencia e integridad para el ejercicio de las funciones de su cargo o puedan generar dudas razonables acerca de su objetividad o independencia o la Defensoría de los Habitantes.
+(Así adicionado el inciso anterior mediante acuerdo N° 2365 publicado en La Gaceta N° 13 del 22 de enero del 2022)
+t) Informar formalmente a su instancia superior jerárquica, sobre los intereses privados, que sean potencialmente generadores de incompatibilidad propias o a favor de terceros, que deriven conflictos de interés en el ejercicio de sus funciones, de manera transparente, oportuna y oficiosa.
+(Así adicionado el inciso anterior mediante acuerdo N° 2365 publicado en La Gaceta N° 13 del 22 de enero del 2022)
+u) Informar de las situaciones sobrevinientes de parentescos por afinidad hasta tercer grado.
+(Así adicionado el inciso anterior mediante acuerdo N° 2365 publicado en La Gaceta N° 13 del 22 de enero del 2022)
