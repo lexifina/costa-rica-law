@@ -14,3 +14,4 @@ Medidas administrativas temporales prestación adecuada y responsable de los ser
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-04 | la propia norma |
+| 2 | 2021-12-21 | Resolución 197 (2021-12-21) |
