@@ -1,0 +1,1 @@
+Artículo 10.-Las integrantes de la Comisión, deberán reunirse por lo menos una vez al mes para discutir los asuntos y planes de trabajo, las necesidades del Cantón, así como cualquier otro aspecto que sea de interés a la Comisión, los cuales deben hacerse constar en una acta, donde se consignará los acuerdos tomados.
