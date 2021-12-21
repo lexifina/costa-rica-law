@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación: El presente reglamento es aplicable a todas aquellas entidades u órganos que otorgan subsidios o beneficios sociales con recursos provenientes del presupuesto nacional.

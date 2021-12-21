@@ -1,0 +1,1 @@
+Artículo 21.-Suscripción de acuerdos de servicio. El Ministerio de Hacienda y las entidades ejecutoras de programas sociales, deberán suscribir acuerdos de servicio para los pagos que tramiten por medio del SUPRES.

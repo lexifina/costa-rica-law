@@ -1,0 +1,1 @@
+Artículo 22.-Plazo para conformar la Comisión. Con la entrada en vigencia del presente reglamento, el Ministerio de Hacienda notificará a los miembros de la Comisión y procederá con la convocatoria de inicio, en el plazo de quince días calendario.

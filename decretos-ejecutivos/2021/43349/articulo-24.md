@@ -1,0 +1,1 @@
+Artículo 24.-Plazo para la ejecución de los pagos en la Tesorería Nacional. Posterior a la entrada en vigencia del presente reglamento las Entidades Ejecutoras de Programas Sociales, contará con un plazo de sesenta días naturales para ejecutar los pagos por medio de las plataformas tecnológicas que establezca la Tesorería Nacional.

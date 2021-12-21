@@ -1,0 +1,1 @@
+Artículo 17.-Presentación de informe semestral. La Tesorería Nacional deberá presentar un informe semestral a la Comisión sobre el cumplimiento de los objetivos del SUPRES, cuyos lineamientos de presentación serán establecidos por la misma Comisión.

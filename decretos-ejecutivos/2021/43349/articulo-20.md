@@ -1,0 +1,2 @@
+Artículo 20.-Responsabilidades de la Ejecución Presupuestaria y Manejo de Superávit. Las entidades ejecutoras de programas sociales, serán responsables de los controles presupuestarios para la ejecución de los recursos incluyendo el manejo de los superávits cuando la normativa lo habilite.
+Para el caso de manejos de superávits, los recursos que se encuentren depositados en las cuentas de caja única de la Tesorería Nacional son de titularidad exclusiva de la entidad y podrá ejecutarse por medio del SUPRES.
