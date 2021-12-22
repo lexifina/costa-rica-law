@@ -1,0 +1,1 @@
+ARTÍCULO 5- Elección de los miembros del Concejo de Distrito y síndicos. La elección de los miembros del Concejo de Distrito y de los síndicos, del distrito de Lagunillas será organizada y dirigida por el Tribunal Supremo de Elecciones (TSE), en el marco de las próximas elecciones municipales a realizarse el 6 de febrero de 2024.
