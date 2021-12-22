@@ -1,0 +1,1 @@
+Artículo 17.-Retenciones fiscales. La Dirección de Finanzas acatará toda retención fiscal que sea cobrada por emisión o liquidación de inversiones y que se encuentre sustentada en la Ley correspondiente.

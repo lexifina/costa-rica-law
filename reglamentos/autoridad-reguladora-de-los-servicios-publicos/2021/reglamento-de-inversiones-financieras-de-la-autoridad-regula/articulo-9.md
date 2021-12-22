@@ -1,0 +1,1 @@
+Artículo 9º-Riesgo de tasa de interés. La Dirección de Finanzas deberá velar, por mitigar el riesgo de que los flujos futuros de efectivo de un instrumento financiero fluctúen, como resultado de cambios en las tasas de mercado.
