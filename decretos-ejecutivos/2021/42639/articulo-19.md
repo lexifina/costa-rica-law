@@ -1,0 +1,1 @@
+Artículo 19.-Suspensión de la tramitación de un asunto presentado ante la Contraloría. La Contraloría deberá suspender la atención de cualquier asunto que corresponda a hechos u omisiones que estén siendo conocidos por otra instancia administrativa o judicial, competente para resolver. De lo cual deberá dejar constancia en el expediente y notificar a la parte interesada.

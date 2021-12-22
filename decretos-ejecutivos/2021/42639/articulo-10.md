@@ -1,0 +1,1 @@
+Artículo 10.-Ubicación física de la Contraloría. La Contraloría del MTSS debe estar ubicada físicamente en un área cercana a las oficinas que prestan atención directa al público. El espacio físico contará al menos con las adecuadas condiciones de ventilación, limpieza, comodidad, privacidad, iluminación y accesibilidad para las personas usuarias.

@@ -1,0 +1,6 @@
+Artículo 5°-Obligación de las dependencias o personas funcionarias de rendir informes y otros. Como parte de las responsabilidades derivadas de su relación laboral con la institución, todas las dependencias, así como las personas funcionarias del MTSS, deberán rendir los informes que les solicite la Contraloría, cuando así lo requiera, además de brindar y/o facilitar la documentación que les solicite.
+Dichos informes o documentación deberán ser presentados en un plazo perentorio de 5 días hábiles. En los casos en que la rendición del informe implique una mayor complejidad o investigación, la Contraloría a solicitud de la dependencia ministerial que corresponda, podrá conceder un plazo mayor, el cual podrá ser hasta de un mes máximo.
+En caso de contravenir lo indicado en el párrafo anterior, el funcionario responsable podrá incurrir en responsabilidad disciplinaria, de acuerdo con lo dispuesto en el Reglamento Autónomo, cuando se le demuestre haber incurrido en las siguientes faltas:
+a) Negarse injustificadamente a rendir los informes o, a aportar la documentación solicitada por la Contraloría.
+b) Atender de manera negligente la solicitud de informes o de documentación, efectuada por la Contraloría.
+c) Incurrir en el incumplimiento de lo dispuesto en la Ley Reguladora del SNCS o el presente Reglamento.

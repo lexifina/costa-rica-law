@@ -1,0 +1,2 @@
+Artículo 20. Acceso electrónico a los servicios de la Contraloría.
+Sin perjuicio de la implementación de esfuerzos y estrategias de regionalización, el Jerarca Ministerial promoverá la utilización de herramientas tecnológicas que faciliten la interposición de las gestiones de la población en general, de manera que los servicios de la Contraloría puedan ser accesados mediante fax, correo electrónico o formularios visibles en la página web institucional y no sea necesario un desplazamiento personal de la persona usuaria a las sedes del Ministerio.

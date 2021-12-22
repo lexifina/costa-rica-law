@@ -1,0 +1,1 @@
+Artículo 11.-Asesoría. El Contralor o Contralora de Servicios podrá requerir de las personas funcionarias del MTSS y de la Secretaría Técnica, la asesoría técnica que estime necesaria para dar apoyo a su labor.
