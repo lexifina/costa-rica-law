@@ -446,6 +446,8 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de un
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Psiquiatría, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad en Psiquiatría de Niños y Adolescentes, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+Se reconoce como sinónimos de esta subespecialidad el siguiente término: Psiquiatría Infantil.
+(Así adicionado el párrafo anterior en sesión ordinaria 2021-12-22, celebrada el 22 de diciembre del 2021)
 16.21.6. Psiquiatría Forense.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Psiquiatría, en el Colegio de Médicos y Cirujanos.
