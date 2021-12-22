@@ -14,3 +14,4 @@ Reforma Manual de políticas y procedimientos (uso de los centros de recreo)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-12-22 | la propia norma |
+| 2 | 2021-12-22 | Reglamento 0 (2021-03-01) |
