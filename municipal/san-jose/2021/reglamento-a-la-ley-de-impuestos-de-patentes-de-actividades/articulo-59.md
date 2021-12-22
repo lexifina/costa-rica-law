@@ -1,0 +1,1 @@
+Artículo 59.-Clausura por utilización de rótulos antirreglamentarios. En caso de rótuIos antirreglamentarios ligados a una patente comercial, la municipalidad sancionará a los infractores de conformidad con lo dispuesto en el Reglamento de Publicidad Exterior de los Reglamentos de Desarrollo Urbano (RDU).

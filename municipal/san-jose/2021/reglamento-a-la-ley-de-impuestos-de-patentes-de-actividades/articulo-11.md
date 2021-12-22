@@ -1,0 +1,1 @@
+Artículo 11.-Obligaciones de la Municipalidad. La Municipalidad deberá hacer cumplir la Ley y las otras normas relacionadas con ella, para el ejercicio efectivo eficaz y oportuno de esta obligación podrá acudir a las otras instituciones del Estado, las cuales están obligadas a colaborar en ese sentido, y coordinar con ellas la ejecución de la normativa.

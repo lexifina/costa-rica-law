@@ -1,0 +1,2 @@
+Artículo 15.-Plazo para resolver. La Municipalidad deberá resolver las solicitudes de licencia dentro del término máximo de diez días hábiles contados a partir del día siguiente de su presentación, salvo que por razones técnicas justificadas y debidamente notificadas al interesado, sea necesario prorrogar dicho plazo hasta por un máximo de veinte días hábiles adicionales.
+En cualquiera de los casos, si no se diere respuesta a la solicitud, dentro del término de cinco días posteriores al vencimiento del plazo se deberá cumplir con lo que establece la Ley N° 8220.

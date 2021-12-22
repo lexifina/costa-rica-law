@@ -1,0 +1,1 @@
+Artículo 33.-Desinscripción por abandono de actividad. Cuando se resuelva en firme el procedimiento por cancelación de la patente ante el abandono de la actividad por parte del patentado, se procederá a la desinscripción en el RUTM de los datos de quien deja de ser sujeto pasivo.

@@ -1,0 +1,2 @@
+Artículo 42.-Instrumentos para declarar. La Municipalidad pondrá a disposición de los patentados, ya sea en forma física o electrónica, los formularios y la información necesaria para la presentación de la declaración jurada del impuesto.
+La declaración jurada del impuesto que deban presentar los patentados ante esta municipalidad, quedará sujeta a las disposiciones del artículo 122 del Código de Normas y Procedimientos Tributarios.

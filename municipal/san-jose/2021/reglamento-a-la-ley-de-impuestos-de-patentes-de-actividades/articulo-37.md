@@ -1,0 +1,1 @@
+Artículo 37.-Pago del impuesto. El impuesto se cancelará por trimestre adelantado en los meses de diciembre, marzo, junio y setiembre, de manera tal que, si el pago no se hiciera efectivo en el mes correspondiente, los intereses correrán a partir del primer día hábil siguiente.

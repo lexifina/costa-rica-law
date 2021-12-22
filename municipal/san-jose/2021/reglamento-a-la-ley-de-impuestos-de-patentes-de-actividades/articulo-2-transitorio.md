@@ -1,0 +1,2 @@
+Transitorio II.- En el caso de los patentados que cuenten con licencia municipal ya autorizada, previo a la promulgación del presente reglamento, tendrán la obligación de inscribirse en el RUTM, cuando la Administración Tributaria lo oficialice, mediante la publicación en un diario de circulación nacional y en el Diario Oficial La Caceta, obligación que, de no cumplirse, implicará que la inscripción la haga la Administración Tributaria de oficio".
+San José, 15 de diciembre del 2021.

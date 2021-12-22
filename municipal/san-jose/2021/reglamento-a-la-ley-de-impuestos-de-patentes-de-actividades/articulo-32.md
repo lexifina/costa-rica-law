@@ -1,0 +1,1 @@
+Artículo 32.-Omisión en la obligación de modificación y actualización de datos. Ante la omisión de los patentados de comunicar cualquier modificación de datos de trascendencia tributaria, la Administración Tributaria está facultada para modificar de oficio, aquellos datos que no se conformen con la realidad del patentado tributario.
