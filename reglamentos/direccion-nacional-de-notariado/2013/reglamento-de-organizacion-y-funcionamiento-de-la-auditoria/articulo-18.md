@@ -1,1 +1,2 @@
-Artículo 18.—Remoción del Auditor Interno. El Auditor Interno podrá ser removido o suspendido de su puesto, según lo establecido en el artículo 15 de la Ley Orgánica de la Contraloría General de la República Nº 7428, así como lo regulado por el órgano contralor en la normativa correspondiente.
+Artículo 18.-Remoción del Auditor Interno. El Auditor Interno podrá ser removido o suspendido de su puesto, según lo establecido en el artículo N° 31 de la Ley General de Control Interno, articulo N° 15 de la Ley Orgánica de la Contraloría General de la República Nº 7428, así como lo regulado por el órgano contralor en la normativa correspondiente.
+(Así reformado y publicado en La Gaceta N° 246 del 22 de diciembre de 2021)

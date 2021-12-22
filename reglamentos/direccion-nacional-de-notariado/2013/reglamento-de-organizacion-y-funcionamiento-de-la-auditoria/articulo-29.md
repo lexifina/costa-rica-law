@@ -1,1 +1,2 @@
-Artículo 29.—Suministro de información: El Auditor Interno tendrá la potestad de proveer e intercambiar información con la Contraloría General República, así como con otros entes y órganos de control que conforma a la Ley correspondan, sin perjuicio de la coordinación que al respecto deba darse y sin que ello implique una limitación al respecto.
+Artículo 29.-Suministro de información. El Auditor Interno tendrá la potestad de proveer e intercambiar información con la Contraloría General República, así como con otros entes y órganos de control que conforme a la Ley correspondan, sin perjuicio de la coordinación que al respecto deba darse y sin que ello implique una limitación al respecto.
+(Así reformado y publicado en La Gaceta N° 246 del 22 de diciembre de 2021)

@@ -1,1 +1,1 @@
-Artículo 20.—Delegación de funciones. El Auditor Interno podrá delegar en su personal sus funciones, utilizando criterios de idoneidad y conforme lo establece la Ley General de la Administración Pública, quedando el personal obligado a cumplir con el marco legal reglamentario y técnico que regula su accionar. Para tal delegación el Auditor Interno implantará los mecanismos que estime pertinentes.
+Artículo 20.-Delegación de funciones. (Derogado y publicado en La Gaceta N° 246 del 22 de diciembre de 2021)

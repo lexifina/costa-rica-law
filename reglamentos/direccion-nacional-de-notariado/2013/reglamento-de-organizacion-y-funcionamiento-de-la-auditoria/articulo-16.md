@@ -1,5 +1,5 @@
-Artículo 16.—De los requisitos para ocupar el cargo de Auditor Interno. El Auditor Interno deberá cumplir en todo momento con los siguientes requisitos:
-a) Ser contador público autorizado.
-b) Cumplir con los requisitos establecidos en los lineamientos sobre los requisitos de los cargos de auditor interno y subauditor emitido por la Contraloría General de la República.
-c) Deberá caracterizarse por su idoneidad para el puesto correspondiente.
-d) Será un profesional altamente capacitado en materia de auditoría que cuenten con cinco años de experiencia en la materia atinente al cargo.
+Artículo 16.-De los requisitos para ocupar el cargo de Auditor Interno. El Auditor Interno deberá cumplir en todo momento con los siguientes requisitos:
+a. Formación académica. Título universitario de Licenciatura en Contaduría Pública o similar.
+b. Incorporado al colegio profesional respectivo. Certificación de miembro activo del colegio profesional respectivo. Certificación de miembro activo del colegio profesional respectivo que habilite al participante para el ejercicio de la profesión.
+c. Experiencia mínima de tres años en el ejercicio de la auditoría Interna o externa en el sector público o en el sector privado. Los documentos probatorios deben indicar los períodos de trabajo, los puestos ocupados y las funciones desempeñadas, según corresponda, así como cualquier otra información indispensable para acreditar la experiencia en el ejercicio de la auditoría interna o externa en el sector público o en el sector privado.
+(Así reformado y publicado en La Gaceta N° 246 del 22 de diciembre de 2021)
