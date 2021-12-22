@@ -1,0 +1,2 @@
+Artículo 7°-Conformación del expediente. Una vez que la Auditoría Interna tiene conocimiento de hechos presuntamente irregulares, deberá documentar en un expediente individual las acciones realizadas para la atención de cada caso, velando por la integridad e integralidad de la documentación que lo conforme, el cual deberá estar foliado y ordenado de manera cronológica.
+El expediente se podrá conformar por cualquier tipo de soporte permitido por el ordenamiento jurídico (documental, electrónico, informático, telemático o producido por nuevas tecnologías).

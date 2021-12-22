@@ -1,0 +1,1 @@
+Artículo 22.-Procedimiento interno. El Auditor Interno establecerá el procedimiento interno que aplicará la Auditoría Interna, para la Investigación de Presuntas Irregularidades, en concordancia con este reglamento y con la demás normativa aplicable.

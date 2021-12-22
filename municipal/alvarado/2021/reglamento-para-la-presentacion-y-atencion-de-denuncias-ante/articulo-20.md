@@ -1,0 +1,1 @@
+Artículo 20.-Procedimiento interno. El Auditor Interno establecerá el procedimiento interno que aplicará la Auditoría Interna, para la Recepción, Análisis y Custodia de Denuncias, en concordancia con este reglamento y con la demás normativa aplicable.

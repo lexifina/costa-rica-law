@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De la fase de análisis
+Artículo 14.-Del análisis y abordaje de la denuncia. Recibida la denuncia, la Auditoría Interna realizará un análisis previo de los hechos, para efectos de admisibilidad, dentro del plazo de diez días hábiles, después de recibida. Con base en el análisis realizado se determinará el abordaje que se le dará a cada caso en particular, si la denuncia o presunto hecho irregular se desestima y archiva, o se traslada o se acepta para iniciar la investigación o se incluye en un estudio de auditoría en ejecución o se programa un nuevo estudio o proceso de auditoría.
+La decisión que se tome sobre la desestimación y archivo, traslado o investigación u otro estudio de auditoria, deberá quedar debidamente motivada y razonada. Se deberá comunicar -en la medida de lo posible- lo resuelto al denunciante.

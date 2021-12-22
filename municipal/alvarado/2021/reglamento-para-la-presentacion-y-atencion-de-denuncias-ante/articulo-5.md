@@ -1,0 +1,1 @@
+Artículo 5°-Principios generales. En concordancia con el marco jurídico aplicable, para el abordaje de las denuncias se atenderán los principios de legalidad, celeridad, independencia, objetividad y oficiosidad.

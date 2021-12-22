@@ -1,0 +1,1 @@
+Artículo 13.-Admisión de denuncias anónimas. En casos excepcionales, a criterio del Auditor Interno, serán admitidas y se podrá realizar el estudio correspondiente, cuando las denuncias anónimas, aporten elementos suficientes y se encuentren soportadas en medios probatorios idóneos que permitan iniciar la investigación, de lo contrario se archivará la denuncia sin más trámite.
