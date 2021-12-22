@@ -1,0 +1,1 @@
+Artículo 24.-En todos los programas de capacitación interna, el personal municipal, departamento o área responsable que facilitará el proceso de formación, instrucción o capacitación, deberá entregar con una semana de anticipación del evento, los temas y actividades a desarrollar al Departamento de Recursos Humanos para su respectivo análisis.

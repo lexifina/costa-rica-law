@@ -1,0 +1,1 @@
+Artículo 25.-En todos los programas de capacitación tanto internos como externos que organice la Municipalidad de Zarcero o el área del Talento Humano, colaborará con las personas responsables (si así lo solicita) de atender los requerimientos de material de apoyo y equipo necesario para su realización.

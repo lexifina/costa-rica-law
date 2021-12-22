@@ -1,0 +1,1 @@
+Artículo 30.-Con un plazo máximo de un mes de haber recibido la capacitación, el personal municipal deberá presentar una copia y el original de la certificación o título para la verificación correspondiente, al Departamento de Recursos Humanos.

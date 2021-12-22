@@ -1,0 +1,1 @@
+Artículo 14.-Los Planes y Programas de Capacitación deberán ejecutarse según el diagnóstico de necesidades, Plan Estratégico Municipal, la misión y visión institucional, evaluaciones de desempeño, o bien, cuando así lo disponga la Alcaldía Municipal, Coordinadora de Recursos Humanos o personas que ocupan puestos de Jefatura de área.

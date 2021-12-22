@@ -1,0 +1,1 @@
+Artículo 22.-El Alcalde/Alcaldesa en conjunto con las Jefaturas y el área de Recursos Humanos, seleccionará al personal municipal que participará de las capacitaciones impartidas o contratadas por la institución de acuerdo a las necesidades de capacitación y formación.

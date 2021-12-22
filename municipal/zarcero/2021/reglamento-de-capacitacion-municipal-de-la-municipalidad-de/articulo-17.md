@@ -1,0 +1,1 @@
+Artículo 17.-El seguimiento de los planes y programas de capacitación será uno de los mecanismos necesarios que implementará el área de Recursos Humanos, para actualizar y registrar los resultados obtenidos.

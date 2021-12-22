@@ -1,0 +1,1 @@
+Artículo 9º-Para la identificación de estas necesidades se tomará en consideración tanto los conocimientos y habilidades del personal, así como todos los temas y demás conocimientos que una persona deba tener, adquirir, reafirmar y actualizar para desempeñar satisfactoriamente las tareas o funciones a su cargo.

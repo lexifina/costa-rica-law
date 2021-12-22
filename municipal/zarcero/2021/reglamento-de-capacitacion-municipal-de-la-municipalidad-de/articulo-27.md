@@ -1,0 +1,1 @@
+Artículo 27.-La Municipalidad de Zarcero puede aprovechar los beneficios para capacitaciones y demás facilidades que otorguen los gobiernos y otros organismos internacionales y nacionales siempre y cuando las capacitaciones convengan con la institución y las necesidades del personal municipal.
