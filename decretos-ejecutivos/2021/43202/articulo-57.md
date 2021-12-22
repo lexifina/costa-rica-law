@@ -1,0 +1,1 @@
+Artículo 57-Derogatoria. Se deroga y deja sin efecto el Reglamento de Organización y Funciones de la Auditoría Interna del TRA, Decreto Ejecutivo N° 40386-JP del 20 de marzo de 2017, publicado en La Gaceta Nº 143 del 28 de julio del 2017, Alcance digital Nº 183.

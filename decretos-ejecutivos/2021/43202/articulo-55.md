@@ -1,0 +1,1 @@
+Artículo 55-Denuncias. Toda denuncia que se tramite en la Auditoría Interna del TRA deberá acogerse a lo estipulado en el Manual para la Atención de Denuncias presentadas en la Auditoría Interna del TRA.

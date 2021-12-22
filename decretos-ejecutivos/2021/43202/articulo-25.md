@@ -1,0 +1,4 @@
+Artículo 25? Funciones referentes al personal. En cuanto al personal de la Auditoría Interna, el Auditor tendrá las siguientes potestades:
+a) Autorizar los movimientos de personal de conformidad con lo que establecen los artículos 24 y 28 de la Ley General de Control Interno, N° 8292, y lo dispuesto en los Lineamientos sobre Gestiones que Involucran a la Auditoría Interna presentadas ante la Contraloría General de la República, Resolución número R-CO-83-2018 del 09 de julio del 2018.
+b) Gestionar oportunamente lo relativo a las plazas vacantes de la unidad a su cargo.
+c) Vigilar y tomar las decisiones que correspondan para que los funcionarios a su cargo cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas.

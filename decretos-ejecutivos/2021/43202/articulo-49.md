@@ -1,0 +1,1 @@
+Artículo 49-Informes dirigidos al jerarca. Cuando el informe de auditoría esté dirigido al jerarca, éste se regirá por lo establecido en el artículo 37 de la Ley General de Control Interno, Nº 8292. Si la resolución del Tribunal ordena soluciones distintas de las recomendadas por la Auditoría Interna, éstas se regirán por lo establecido en el artículo 38 de la citada Ley N°8292.

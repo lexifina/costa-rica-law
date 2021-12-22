@@ -1,0 +1,1 @@
+Artículo 53-Incumplimiento injustificado de recomendaciones aceptadas por la administración activa. De comprobar la Auditoría Interna un incumplimiento injustificado respecto de la implementación de las recomendaciones aceptadas por parte de un funcionario del TRA, lo pondrá, en conocimiento del jerarca correspondiente hasta agotar la vía administrativa.

@@ -1,0 +1,1 @@
+Artículo 9-Responsabilidad del Auditor Interno. La Auditoría Interna estará bajo la responsabilidad del Auditor Interno, a quien le corresponde dictar los lineamientos, políticas, directrices e instrucciones según la normativa legal y técnica.
