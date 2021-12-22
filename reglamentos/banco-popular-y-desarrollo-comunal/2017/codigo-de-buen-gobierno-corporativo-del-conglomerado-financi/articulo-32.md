@@ -1,10 +1,5 @@
-Artículo 32.-Comités de Apoyo creados por normativa externa. El Conglomerado cuenta con los siguientes Comités de Apoyo:
-1) Comité Corporativo de Auditoría,
-2) Comité de Riesgo del Banco,
-3) Comité de Cumplimiento para la Ley 8204 y actividades conexas
-4) Comité Corporativo de Tecnología de Información.
-5) Comité de Nominación.
-6) Comité de Remuneración.
-Todos con la integración, organización, objetivos y funciones generales y específicas, establecidas por el "Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y Subsidiarias" y la normativa externa que le sea aplicable.
-En cuanto a la idoneidad de las personas que integren el respectivo Comité, se debe aplicar lo indicado en el artículo 9º del presente Código, "Requisitos de idoneidad de las personas que integren las Juntas Directivas del Banco Popular, sus Sociedades y Fiscalía."
-Cuando así lo llegare a determinar la normativa externa aplicable, el Conglomerado debe disponer de la conformación de cualquier otro Comité que sea necesario.
+CAPÍTULO IV
+OTROS LINEAMIENTOS GENERALES DE GOBIERNO CORPORATIVO
+Los lineamientos generales establecidos en este Código de Gobierno Corporativo son de acatamiento obligatorio, siendo responsabilidad de las áreas competentes garantizar su entendimiento, implementación y mejora.
+Artículo 32°. Sobre los conflictos de interés.
+En el Conglomerado Financiero, los directores de Juntas Directivas, Comités y Comisiones, los Altos Ejecutivos, los Auditores Internos, los colaboradores y terceros contratados actúan de manera honesta y ética, en busca de la protección de los intereses corporativos; para lo cual identifican, previenen y gestionan los conflictos de interés según lo definido en el Código de Conducta y en la Política de Conflictos de Interés.

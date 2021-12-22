@@ -1,3 +1,2 @@
-Artículo 25.-Política sobre el trato con los/las copropietarios(as) del Banco. El Banco Popular es propiedad de los trabajadores y las trabajadoras del país por partes iguales y el derecho a la copropiedad estará sujeto a que hayan tenido una cuenta de ahorro obligatorio durante un año continuo o en períodos alternos.
-Como consecuencia del principio de transparencia e igualdad que guía la actuación del Conglomerado, el Banco Popular debe procurar que todos sus copropietarios y copropietarias puedan tener acceso a una información correcta, veraz, oportuna y sustancialmente igual dentro del mismo espacio de tiempo.
-Tratándose de las Sociedades que integran el Conglomerado, el Banco Popular es su único accionista.
+Artículo 25°. Modelo de las líneas de defensa.
+Dentro de las prioridades estratégicas del Conglomerado Financiero se encuentra la gestión de riesgos, por lo que implica velar por el cumplimiento de los estándares regulatorios y adoptar las mejores prácticas para la adecuada gobernanza. Debido a esto, el Conglomerado Financiero ha definido un modelo basado en líneas de defensa.

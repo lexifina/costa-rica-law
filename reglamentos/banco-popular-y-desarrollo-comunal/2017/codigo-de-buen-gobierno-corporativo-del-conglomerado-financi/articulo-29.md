@@ -1,1 +1,6 @@
-Artículo 29.-lnforme de Gobierno Corporativo. La Junta Directiva Nacional debe aprobar, la revelación en el sitio web institucional o por medio de otro mecanismo de fácil acceso a los grupos de interés, así definido por ella, aquellos asuntos de interés corporativo en los términos dispuestos por el artículo 43 del Acuerdo SUGEF 16-16. Vía reglamento la Junta Directiva Nacional establecerá al menos: El formato, la periodicidad, el área responsable de preparar la información, así como el área responsable de presentar dicha información a la Junta Directiva Nacional, y el área responsable de proceder con la publicación de aquella información cuya revelación haya sido previamente aprobada por la Junta Directiva Nacional.
+Artículo 29° . Contraloría General de la República, Entes Reguladores y Auditorías Externas.
+La Contraloría General de la República, los Entes Reguladores y las Auditorías Externas no forman parte de la estructura de la organización.
+Las Auditorías Externas por su parte, contribuyen con la evaluación y asesoramiento en asuntos de vital importancia, tales como:
+• Estados Financieros
+• Proceso de Gestión y Control de Riesgos
+• Control Interno

@@ -1,2 +1,7 @@
-Artículo 8°—Integración de la Junta Directiva de cada Sociedad. La Junta Directiva de cada Sociedad debe estar integrada por cinco (5) miembros, salvo la Junta Directiva de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A., que se conformará con siete (7) miembros, de los cuales el 40% deben ser directores independientes.
-(Así reformado mediante sesión N° 5762 del 26 de agosto del 2020)
+Artículo 8°. Gestión Política y Estratégica del Conglomerado Financiero.
+Los siguientes órganos conforman la Gestión Política y Estratégica del Conglomerado Financiero:
+• Asamblea de Trabajadores y Trabajadoras
+• Junta Directiva Nacional
+• Comités Técnicos, de Apoyo y Comisiones
+• Juntas Directivas de las Sociedades
+En los siguientes artículos se detalla la integración y las funciones de cada uno de estos órganos.
