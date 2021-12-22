@@ -1,0 +1,1 @@
+Artículo 5º-El Timbre Electrónico se debe pagar y añadir en documentos individuales, por tanto, se debe consignar a través de la misma plataforma virtual el tipo de documento emitido, la persona física o jurídica de quien se emite el documento, el Contador Privado Incorporado emisor y la entidad receptora cuando corresponda a instituciones financieras o Juntas Directivas.
