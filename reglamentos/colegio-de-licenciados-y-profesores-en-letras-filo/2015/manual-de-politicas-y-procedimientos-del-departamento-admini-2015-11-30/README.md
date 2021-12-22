@@ -17,3 +17,4 @@ Manual de Políticas y Procedimientos del Departamento Administrativo (Uso de lo
 | 2 | 2017-05-09 | Reglamento 43 (2017-05-09) |
 | 3 | 2020-05-14 | Reglamento 0 (2020-05-14) |
 | 4 | 2020-11-12 | Reglamento 0 (2020-11-12) |
+| 5 | 2021-12-22 | Reglamento 0 (2021-12-22) |
