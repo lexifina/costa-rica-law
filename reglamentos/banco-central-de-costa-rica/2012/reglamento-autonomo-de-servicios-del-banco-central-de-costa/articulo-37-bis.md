@@ -1,0 +1,6 @@
+Artículo 37 bis.
+El teletrabajo será de naturaleza voluntaria, cuando se realice de común acuerdo entre la Institución y los funcionarios o colaboradores, o de naturaleza obligatoria para el personal que al ingresar a la Institución tenga esta definición como parte de su descriptivo de puesto, además, estará bajo el amparo de lo dispuesto en la Ley para Regular el Teletrabajo, Ley 9738, y su Reglamento.
+Las jefaturas inmediatas son responsables de establecer la cantidad de días de teletrabajo, de común acuerdo con los funcionarios o colaboradores que así lo soliciten y cumplan con los requisitos establecidos.
+Corresponderá a cada Jerarca Superior Administrativo definir las políticas y los procesos necesarios para su correcta implementación, para lo cual podrá considerar adoptar lo definido en ese sentido por la Gerencia del Banco.
+El Jerarca Superior Administrativo debe establecer la política o mecanismo de resolución de conflictos para atender los casos en los que la jefatura y el funcionario o colaborador no lograron un acuerdo. Además, tendrá la potestad, mediante acto debidamente razonado, de establecer una cantidad mínima de días teletrabajables para la atención de situaciones fortuitas”.
+(Así adicionado mediante sesión N° 6040-2021 del 22 de diciembre del 2021)

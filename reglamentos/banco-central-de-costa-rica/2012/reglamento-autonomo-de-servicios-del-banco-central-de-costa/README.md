@@ -19,3 +19,4 @@ Reglamento Autónomo de Servicios del Banco Central de Costa Rica y sus Órganos
 | 4 | 2016-05-18 | Reglamento 5722 (2016-05-18) |
 | 5 | 2016-05-18 | Reglamento 5722 (2016-05-18) |
 | 6 | 2018-08-08 | Reglamento 5837 (2018-08-08) |
+| 7 | 2021-12-22 | Reglamento 6040 (2021-12-22) |
