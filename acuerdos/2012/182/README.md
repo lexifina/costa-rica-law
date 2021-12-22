@@ -18,3 +18,4 @@ Instrucciones para la remisión de prospectos de entidades emisoras y documentos
 | 3 | 2013-01-04 | Acuerdo 185 (2013-01-04) |
 | 4 | 2014-11-10 | Acuerdo 193 (2014-11-10) |
 | 5 | 2016-04-07 | Acuerdo 212 (2016-04-07) |
+| 6 | 2021-12-22 | Acuerdo 254 (2021-12-22) |

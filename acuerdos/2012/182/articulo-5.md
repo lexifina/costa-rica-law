@@ -1,5 +1,5 @@
-Artículo 5. Procedimiento para la modificación de emisiones sin colocar
-De conformidad con lo establecido en el artículo 35 del Reglamento sobre oferta pública de valores, la entidad emisora selecciona en la Ventanilla Virtual la opción para crear un trámite de “Modificación de emisión” y procede a ingresar la siguiente documentación:
+Artículo 5. Procedimiento para la modificación de emisiones sin colocar. De conformidad con lo establecido en el artículo 35 del Reglamento sobre Oferta Pública de Valores, la entidad emisora selecciona en la Ventanilla Virtual la opción para crear un trámite de "Modificación de emisión" y procede a ingresar la siguiente documentación:
+(Así reformado el párrafo anterior por el artículo 1° del acuerdo N° SGV-A-254 del 22 de diciembre del 2021)
 a) Documento en formato MS Word que contenga la solicitud que describa el tipo de trámite que se desea realizar, las características de la emisión que se modifican y la indicación de cualquier otra variación al prospecto que se derive de dicha modificación.
 b) Documento en formato MS Word que contenga el borrador del prospecto actualizado con la modificación de la emisión.
 c) Imagen digital escaneada de la carta de la empresa calificadora en que se valida la calificación de riesgo otorgada a partir del impacto de la modificación de la emisión.
@@ -7,4 +7,6 @@ d) Imagen digital escaneada de la certificación notarial del acta del consejo d
 e) (Derogado por acuerdo SGV-A-193 del 10 de noviembre de 2014)
 f) Imagen digital escaneada de los documentos en que consta la garantía para las emisiones, cuando aplique, según lo dispuesto en el inciso d. del artículo 4.
 g) Imagen digital escaneada de la declaración jurada original rendida ante notario público en la que el representante legal del emisor señale que no se han colocado valores de la emisión a modificar, según el contenido mínimo establecido en el artículo 16.
+h) Imagen digital escaneada o documento en formato digital de la revisión externa en caso de emisiones que califiquen como verdes, sociales o sostenibles, si aplica.
+(Así adicionado el inciso anterior por el artículo 1° del acuerdo N° SGV-A-254 del 22 de diciembre del 2021)
 El procedimiento de autorización se lleva a cabo según lo dispuesto en el último párrafo del artículo 4.
