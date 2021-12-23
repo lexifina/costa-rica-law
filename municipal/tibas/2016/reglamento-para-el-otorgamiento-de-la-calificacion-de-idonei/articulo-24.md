@@ -1,0 +1,1 @@
+Artículo 24. Dirección v sesiones de la Comisión Administrativa. La Comisión será presidida por el Alcalde Municipal o su representante y sesionará como minino una vez al mes. Estas serán convocadas por el Alcalde.

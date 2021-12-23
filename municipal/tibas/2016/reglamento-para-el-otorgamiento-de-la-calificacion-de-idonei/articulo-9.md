@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del Procedimiento para la declaratoria de idoneidad
+Artículo 9. De la recepción de documentos. La Plataforma de Servicios de la Municipalidad de Tibás recibirá la documentación aportada por los sujetos privados que servirá para confeccionar el respectivo expediente en el acto, mismo que será revisado para corroborar por medio de formulario hecho para el efecto, que estén presentes todos los requisitos; de existir faltante de documentación (por no tratarse de un análisis por el fondo) le notificará al sujeto privado para que en el plazo de ocho días hábiles subsane la presentación del documento faltante, caso contrario se archivará el expediente.

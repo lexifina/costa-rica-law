@@ -1,0 +1,1 @@
+Artículo 22. Miembros de la Comisión Administrativa. La Comisión Administrativa estará conformada por cinco miembros designados formalmente mediante resolución administrativa: uno del Departamento Legal, uno de la Alcaldía Municipal, uno de la Dirección de Hacienda, uno de la Plataforma de Servicios y uno de la Planificación Municipal.

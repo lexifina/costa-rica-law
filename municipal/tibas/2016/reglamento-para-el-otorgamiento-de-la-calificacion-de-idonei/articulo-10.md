@@ -1,0 +1,1 @@
+Artículo 10. De la revisión por el fondo. Una vez llevado a cabo el análisis de fondo, la Comisión emitirá la recomendación no vinculante con el fin de que el Concejo Municipal emita el respectivo acuerdo aprobando o improbando dicha solicitud.
