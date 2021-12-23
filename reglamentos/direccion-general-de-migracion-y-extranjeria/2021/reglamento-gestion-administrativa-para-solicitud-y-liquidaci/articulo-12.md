@@ -1,0 +1,6 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 12.-Prohibiciones.
+1. La Gestión de Trata de Personas y Tráfico Ilícito de Migrantes de la Dirección General de Migración y Extranjería en su calidad de apoyo Técnico de la Secretaría Técnica de la CONATT, es quien solicitará, los desembolsos de subsidios sociales en favor de las personas víctimas-sobrevivientes de trata de personas acreditadas y sus dependientes, con fundamento en lo solicitado por la institución responsable de la persona.
+2. No podrá darse ningún otro uso al dinero girado que no sea el indicado en el informe técnico realizado por la persona profesional en Trabajo Social, para lo cual las personas víctimas de trata de personas acreditadas firmarán un consentimiento informado que será parte de la solicitud inicial del depósito del subsidio, el cual se encuentra estipulado en la Estrategia de Atención Integral.
+3. No se podrán realizar otros giros por concepto de subsidios a las personas víctimas-sobrevivientes de trata de personas y sus dependientes sin que se haya presentado y aprobado las respectivas liquidaciones de gastos por parte del Fideicomitente, excepto que el mismo Fideicomitente mediante los mecanismos formales gire una autorización específica.

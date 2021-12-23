@@ -1,0 +1,6 @@
+Responsabilidades del Fiduciario
+Artículo 7º-Responsabilidades del Fiduciario. Será responsabilidad del Fiduciario lo siguiente:
+1. Tramitar las solicitudes de desembolso de subsidios sociales a las personas víctimas-sobrevivientes de trata de personas y sus dependientes remitidas por la Gestión de Trata de Personas y Tráfico Ilícito de la Dirección General de Migración y Extranjería en su calidad de apoyo técnico de la Secretaría Técnica de la CONATT y de las personas que se les delegó autoridad para autorizar el desembolso de subsidios. Para tal efecto el Fiduciario aplicará los desembolsos en estricto apego al calendario de pagos que se establecerá para tal fin.
+2. Revisar y validar que las liquidaciones hayan sido realizadas conforme al presente Reglamento. En caso de detectarse alguna inconsistencia deberá de forma inmediata comunicarla y devolverla a la Gestión de Trata de Personas y Tráfico Ilícito de Migrantes en su labor de apoyo técnico a la secretaria técnica de la CONATT, para que se proceda con su corrección o aclaración.
+3. Velar que el uso de los recursos se realice de conformidad con lo establecido en este Reglamento y en cumplimiento de la Ley N° 9095 y su Reglamento.
+4. Cumplir con los mandatos establecidos por la Ley N° 9095 en cuanto a la confidencialidad de la información según los artículos números 26, 27, 28, 41, 46.
