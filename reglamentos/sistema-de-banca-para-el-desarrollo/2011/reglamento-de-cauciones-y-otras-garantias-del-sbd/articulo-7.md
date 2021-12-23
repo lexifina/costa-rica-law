@@ -1,1 +1,14 @@
-Artículo 7º—Caucionantes del nivel A. En este nivel deben rendir caución para el ejercicio de sus cargos, los Miembros del Consejo Rector durante todo el tiempo de su nombramiento.
+Artículo 7. Clasificación por nivel de responsabilidad:
+Deberán rendir garantía todos aquellos funcionarios que recauden, custodien o administren fondos y valores públicos, según los siguientes niveles:
+a) Nivel A - Superior. Este nivel referirá a los integrantes del Consejo Rector; así como a quienes integren las comisiones u órganos - unipersonales o colegiados - que funjan como asesores directos del Consejo Rector.
+Los integrantes del Consejo Rector estarán incluidos en una Póliza de Responsabilidad Civil Directores y Oficiales, seguro que será cubierto por la Secretaría Técnica.
+b) Nivel B - Gerencial. Refiere al Director Ejecutivo, los Directores de Área y la Auditora General.
+c) Nivel C - Jefaturas. Refiere a los puestos con nivel de jefatura o de coordinador
+d) Nivel D - Operativo. Demás funcionarios que, sin ostentar condición gerencial, dentro de sus funciones se encuentren labores asociadas a la recaudación, custodia o administración de fondos y valores públicos; incluyendo, pero no limitándose, a aquellos funcionarios relacionados con la administración y fiscalización de contratos públicos, los encargados de inversiones y aquellos asociados a la colocación de crédito.
+Cargo sujeto para rendir garantía | Salario base como parámetro para ren- dir garantía
+Nivel A | 5
+Nivel B | 4
+Nivel C | 3
+Nivel D | 2
+Para efectos del cálculo de la caución o garantía se considerará el salario base que el Consejo Superior del Poder Judicial haya definido como el Salario Base para un Auxiliar Administrativo 1 para el año que rige.
+También deberán rendir la respectiva garantía los funcionarios que suplan por ausencias a dichos niveles durante un plazo igual o mayor a un mes. La obligación de rendir garantía se mantiene aun cuando la nomenclatura del puesto varíe, siempre que las funciones se mantengan análogas; cualquier ajuste, en tal sentido, deberá indicarse en el correspondiente manual de puestos, resaltándose el deber de rendir garantía. Por resolución razonada, previo estudio o informe técnico que al respecto elabore la coordinación de Capital Humano, la Dirección Ejecutiva podrá obligar a rendir garantía otro puesto o función adicional a los ya contemplados; así como generar los ajustes que resulten pertinentes para salvaguardar los intereses institucionales. En caso de ser necesario se podrá crear por medio de este estudio técnico un nuevo nivel de caucionante, si los actuales no se integran adecuadamente a la realidad Institucional. El estudio técnico deberá contemplar entre otros aspectos: el nivel de responsabilidad del funcionario, monto de los recursos que maneja el funcionario, salario del funcionario, el nivel de riesgo versus las medidas de control implantadas y su efectividad y el costo - beneficio entre otros. Firme la resolución, el funcionario contará con un máximo de treinta días hábiles para cumplir con la respectiva obligación.

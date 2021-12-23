@@ -14,3 +14,4 @@ Reglamento de cauciones y otras garantías del SBD
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-23 | la propia norma |
+| 2 | 2021-12-23 | Reglamento 0 (2021-12-23) |
