@@ -1,0 +1,1 @@
+Artículo 6º-La resolución del trámite por parte de la Administración se realizará de la siguiente manera: en caso de que el trámite presentado cumpla adecuadamente las disposiciones fundamentadas en lo indicado en los apartados de este reglamento, la Administración dará el resultado de SÍ CUMPLE y en caso de incumplir se dará el resultado NO CUMPLE.

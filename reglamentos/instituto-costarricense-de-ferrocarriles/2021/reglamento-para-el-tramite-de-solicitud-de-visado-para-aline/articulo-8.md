@@ -1,0 +1,1 @@
+Artículo 8º-El resultado de esta solicitud se entregará al propietario registral o persona debidamente autorizada por éste y autenticada por un abogado, según el número de solicitud o nombre del solicitante.
