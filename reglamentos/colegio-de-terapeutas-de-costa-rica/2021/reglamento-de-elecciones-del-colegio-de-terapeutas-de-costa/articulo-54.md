@@ -1,0 +1,1 @@
+Artículo 54.-De la normativa supletoria. Para interpretar o integrar este Reglamento, se aplicará el Decreto Ejecutivo N° 37517-S, Reglamento a la Ley del Colegio de Terapeutas, la Ley N° 8989 de creación del Colegio de Terapeutas y la normativa electoral nacional, siempre y cuando sea aplicable por su naturaleza y demás circunstancias.

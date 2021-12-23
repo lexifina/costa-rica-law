@@ -1,0 +1,8 @@
+Artículo 29.-De las obligaciones de los postulantes y miembros de papeletas en relación con la publicidad. Quienes participen en el proceso de elección deberán:
+a. Abstenerse de utilizar pinturas, colorantes, tintas, marcadores y cualquier otro material que dañe las instalaciones del Colegio.
+b. Abstenerse de adherir signos externos en postes del tendido eléctrico, señales de tránsito y en otros espacios públicos prohibidos por ley.
+c. Corresponde al Tribunal de Elecciones regular el uso de parqueo de la sede central del Colegio para facilitar la movilización de los colegiados, así como la distribución de los espacios asignados para cada grupo o candidato.
+d. Es absolutamente prohibido que los postulantes o papeletas reciban contribuciones, de cualquier tipo de personas físicas o jurídicas ajenas al Colegio, para gastos de propaganda, movilización y en general cualquier ayuda de organizaciones políticas, asociaciones, fundaciones, sindicatos, entidades religiosas y empresas comerciales o privadas.
+e. Queda prohibida la participación de personas ajenas al CTCR en cualquier actividad del proceso electoral, salvo el personal de apoyo que requiera el Tribunal de Elecciones para cumplir sus responsabilidades.
+f. Dentro de los recintos de votación no se permitirá ningún tipo de propaganda de los grupos, ni el ingreso con bebidas alcohólicas o de personas en estado de ebriedad o bajo la influencia de sustancias psicoactivas.
+g. El empleo y la orientación de la propaganda es responsabilidad de los candidatos que integran la papeleta. La propaganda debe ser dirigida a exaltar los méritos de los candidatos y a la exposición de programas e ideas que se propongan desarrollar en beneficio institucional.

@@ -1,0 +1,1 @@
+Artículo 53.-Facultad para trasladar irregularidades a Fiscalía. Queda facultado el Tribunal de Elecciones para poner en conocimiento de la Fiscalía del Colegio, cualquier irregularidad que se presente durante el proceso electoral por parte de algún agremiado, postulante o miembro de una papeleta, con el fin de que se lleve a cabo el procedimiento que corresponda.

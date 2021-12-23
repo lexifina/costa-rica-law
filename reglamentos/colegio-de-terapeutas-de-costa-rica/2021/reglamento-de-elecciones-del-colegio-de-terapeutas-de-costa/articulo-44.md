@@ -1,0 +1,1 @@
+Artículo 44.-Consignación de resultados. Los resultados de las elecciones se consignarán en el acta de Asamblea General y en un acta del Tribunal de Elecciones, en la cual se indicarán los nombres, números de cédula, carné y área profesional de los agremiados electos en cada puesto, así como cualquier otro dato relevante en relación con el proceso electoral.

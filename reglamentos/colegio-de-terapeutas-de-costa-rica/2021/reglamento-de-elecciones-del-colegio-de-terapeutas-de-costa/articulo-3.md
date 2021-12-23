@@ -1,0 +1,9 @@
+Artículo 3°-Definiciones. Para efectos de este Reglamento, se establecen las siguientes definiciones:
+a. Acta de Asamblea General: Documento en el que se hace constar la celebración de Asamblea General Ordinaria o Extraordinaria del Colegio de Terapeutas y los acuerdos que ahí se toman.
+b. Acta del Tribunal de Elecciones: Documento en el que se hace constar la celebración del proceso electoral que es levantada por el Tribunal de Elecciones.
+c. Colegiado: Profesional en Audiología, Imagenología Diagnóstica y Terapéutica, Terapia Física, Terapia del Lenguaje, Terapia Ocupacional y Terapia Respiratoria o cualquier otra profesión que forma parte de conformidad con el numeral 17 inciso g) de la Ley N° 8989, que se encuentren debidamente incorporado al Colegio.
+d. Colegio de Terapeutas de Costa Rica: En adelante "el Colegio" o "el CTCR". Ente público no estatal con capacidad, personalidad jurídica y patrimonio propios que ejerce la potestad disciplinaria sobre sus agremiados de conformidad con la Ley N° 8989 y su Reglamento respectivo.
+e. Padrón: Registro oficial, elaborado por el Colegio de Terapeutas de los agremiados que cumplen con los requisitos para ejercer su voto en las Asambleas Generales. Contendrá el nombre completo, el número de cédula o de documento de identidad y el número de carné profesional de cada integrante.
+f. Papeleta: Documento donde constan las postulaciones de uno o varios agremiados para un puesto que se elige en Asamblea General.
+g. Postulante: Persona agremiada que forma parte de una papeleta. Colegiado que se postula para un puesto que se elige en Asamblea General.
+h. Tribunal de Elecciones: Es el ente encargado de planificar y ejecutar todo lo referente a los procesos electorales del Colegio de Terapeutas conforme se prevé en la Ley N° 8989 y sus reglamentos.

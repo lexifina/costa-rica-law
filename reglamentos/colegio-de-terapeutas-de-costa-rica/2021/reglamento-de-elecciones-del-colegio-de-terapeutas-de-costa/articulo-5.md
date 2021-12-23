@@ -1,0 +1,2 @@
+Artículo 5°-Conformación del Tribunal de Elecciones. El Tribunal de Elecciones estará compuesto por 3 miembros electos en Asamblea General: un(a) Presidente(a), un(a) Vicepresidente(a) y un(a) Fiscal(a).
+Dichas personas deberán ser agremiadas activas y podrán ser de cualquiera de las áreas que incorpora el Colegio de Terapeutas. Ocuparán sus puestos por un periodo de cuatro (4) años. La elección se realizará en años impares y los miembros podrán ser reelectos en sus puestos.

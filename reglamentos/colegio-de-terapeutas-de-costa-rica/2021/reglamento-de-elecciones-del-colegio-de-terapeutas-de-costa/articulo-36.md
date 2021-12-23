@@ -1,0 +1,1 @@
+Artículo 36.-Votación. Solamente podrán ejercer su voto aquellos miembros del Colegio que se hallen presentes en la Asamblea General y que hayan sido debidamente acreditados, según el padrón electoral.

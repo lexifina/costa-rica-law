@@ -1,0 +1,1 @@
+Artículo 8°-Acciones en caso de renuncia o fallecimiento de miembros del Tribunal de Elecciones. En caso de que un miembro del Tribunal de Elecciones renuncie o fallezca, dicho puesto será electo en la siguiente sesión de Asamblea General, bajo el mismo procedimiento establecido en el Decreto Ejecutivo N° 37517-S, Reglamento a la Ley del Colegio de Terapeutas.

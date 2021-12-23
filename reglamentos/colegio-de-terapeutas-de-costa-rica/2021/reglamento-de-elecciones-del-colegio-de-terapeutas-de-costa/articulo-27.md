@@ -1,0 +1,1 @@
+Artículo 27.-Sobre el uso de signos y colores. Queda absolutamente prohibido el uso de banderas, colores, emblemas y otros símbolos nacionales, así como emblemas oficiales del Colegio, con fines propagandísticos para las elecciones internas del CTCR.

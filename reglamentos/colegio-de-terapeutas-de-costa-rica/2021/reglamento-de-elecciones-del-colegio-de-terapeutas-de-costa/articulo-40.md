@@ -1,0 +1,1 @@
+Artículo 40.-Conteo de votos. El Tribunal de Elecciones realizará el conteo de votos. La papeleta o postulante que obtenga la mayoría simple de los votos emitidos por los asambleístas quedará designada como electa. La declaratoria de elección la realizará el Presidente(a) del Tribunal de Elecciones.

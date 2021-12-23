@@ -1,0 +1,1 @@
+Artículo 49.-Las personas electas ordinariamente en los puestos de Junta Directiva, Fiscalía y Tribunal de Ética, entrarán en funciones el 08 de enero del año inmediato siguiente a su elección. Las personas electas en votaciones extraordinarias entrarán en funciones de manera inmediata.

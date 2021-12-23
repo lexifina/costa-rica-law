@@ -1,0 +1,4 @@
+Artículo 17.-Sobre la postulación de quienes forman parte de la Junta Directiva u otro órgano colegiado elegible en Asamblea General. En caso de que un miembro de la Junta Directiva u otro órgano que se elige en Asamblea General quiera postularse para algún puesto diferente al que ocupa, deberá renunciar a su cargo el día de la inscripción de la papeleta o postulación, para poder optar por el nuevo puesto.
+En caso de que un miembro de la Junta Directiva u otro órgano quiera reelegirse en el cargo que ostenta, no necesita renunciar.
+Cada miembro de Junta Directiva u otro órgano que desee reelegirse en el puesto que ocupa, tendrá derecho a escoger su papeleta sin que se le pueda imponer el tener en su papeleta a un compañero anterior.
+Cada agremiado podrá postularse únicamente en una papeleta y/o puesto elegible.

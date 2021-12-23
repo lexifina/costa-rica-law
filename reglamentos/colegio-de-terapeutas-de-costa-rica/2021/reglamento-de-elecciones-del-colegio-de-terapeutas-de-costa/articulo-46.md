@@ -1,0 +1,1 @@
+Artículo 46.-Credenciales. Los miembros de la Junta Directiva, la Fiscalía y el Tribunal de Ética recibirán un carné en el cual se indicará su cargo y el periodo por el cual fungirán en este. La entrega de dicha credencial se hará al momento del inicio de sus funciones.

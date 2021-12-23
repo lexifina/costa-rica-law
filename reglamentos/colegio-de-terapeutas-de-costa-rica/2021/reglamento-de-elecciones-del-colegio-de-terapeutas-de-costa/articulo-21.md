@@ -1,0 +1,1 @@
+Articulo 21.-Examen y verificación de requisitos. El Tribunal de Elecciones o quienes estos designen, examinará la documentación presentada por los postulantes y verificará el cumplimiento de los requisitos establecidos. Las papeletas inscritas constarán en un acta del Tribunal de Elecciones.

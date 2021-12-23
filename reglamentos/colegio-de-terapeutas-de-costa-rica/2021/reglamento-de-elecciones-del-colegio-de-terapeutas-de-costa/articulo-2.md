@@ -1,0 +1,2 @@
+Artículo 2°-Ejercicio del sufragio. El voto que se ejerza por quienes integran la Asamblea General del CTCR es libre, igualitario, secreto, universal, único, personal e indelegable.
+Únicamente podrán ejercer el sufragio las personas colegiadas que se hallen activas en el ejercicio pleno de sus derechos como tales, particularmente encontrándose al día en el pago de sus cuotas de colegiatura, de conformidad con la Ley N° 8989 y su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 7°-Elección del Tribunal de Elecciones. El Tribunal de Elecciones se elegirá de conformidad con las disposiciones del Capítulo V del Decreto Ejecutivo N° 37517- S, Reglamento a la Ley del Colegio de Terapeutas.

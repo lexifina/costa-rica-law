@@ -1,0 +1,1 @@
+Artículo 31.-Regulación de la propaganda. El Tribunal de Elecciones tiene la facultad para regular la propaganda electoral. Sus disposiciones son de obligatorio cumplimiento y la falta a estas, se sancionará de conformidad con lo que disponga el Código de Ética del CTCR.

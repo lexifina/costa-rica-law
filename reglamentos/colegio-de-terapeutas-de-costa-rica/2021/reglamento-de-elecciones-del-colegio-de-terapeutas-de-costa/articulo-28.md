@@ -1,0 +1,1 @@
+Artículo 28.-Sobre el contenido de la propaganda. Los postulantes y miembros de papeletas tienen derecho a realizar propaganda para la elección, de manera lícita y acorde a la moral y a las buenas costumbres, debiendo de respetar en todo momento a los demás postulantes.

@@ -1,0 +1,1 @@
+Artículo 9°-Sesiones del Tribunal de Elecciones. El Tribunal de Elecciones sesionará ordinariamente dos veces al mes en periodo electoral (de la segunda semana de agosto a la primera semana de noviembre) y extraordinariamente cuando así lo considere necesario.
