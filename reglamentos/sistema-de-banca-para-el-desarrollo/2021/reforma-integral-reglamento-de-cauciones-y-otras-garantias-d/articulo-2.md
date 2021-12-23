@@ -1,0 +1,2 @@
+SEGUNDO: Contratación de Seguros.
+Se autoriza a la Dirección Ejecutiva para que proceda con la contratación de una Póliza de Fidelidad de Posición y se deduzca de los salarios, asociados a los puestos sujetos a la obligación de rendir caución o garantía, la parte proporcional del costo del seguro colectivo, según el nivel en que se ubique, de acuerdo con lo establecido en el artículo 7 del Reglamento de Cauciones y otras garantías del SBD; asimismo, contratar una Póliza de Responsabilidad Civil Directores y Oficiales.
