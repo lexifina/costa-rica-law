@@ -1,0 +1,1 @@
+Artículo 15.- Vigencia del Permiso. Cada permiso será otorgado por un plazo de vigencia de diez años prorrogable por periodos iguales a solicitud del interesado, en los términos dispuestos en el Plan General de Manejo y en el presente reglamento.

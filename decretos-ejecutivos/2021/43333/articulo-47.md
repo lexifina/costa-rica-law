@@ -1,0 +1,1 @@
+Artículo 47.- Disposición del canon. El SINAC invertirá los recursos provenientes del canon del permiso de uso en las investigaciones sobre los procesos ecológicos en las zonas de manglar como parte del PNE; y en proyectos de restauración y rehabilitación ecosistémica de áreas de manglar.

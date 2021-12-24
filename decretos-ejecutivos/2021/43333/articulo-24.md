@@ -1,0 +1,1 @@
+Artículo 24.- Imposibilidad de cambio de uso. Queda prohibido para la Administración autorizar el cambio del uso permitido en el permiso otorgado. En ninguna circunstancia el permisionario podrá utilizar el área geográfica otorgada en permiso de uso para una actividad distinta a la autorizada en el Plan General de Manejo aprobado por SINAC.

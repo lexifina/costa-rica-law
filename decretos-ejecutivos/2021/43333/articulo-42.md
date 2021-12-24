@@ -1,0 +1,1 @@
+Artículo 42.- Desalojo administrativo. En aquellos casos en que vencido el plazo para la presentación del Plan de Cierre Técnico, el permisionario no lo haya presentado se procederá con el desalojo administrativo.

@@ -1,0 +1,1 @@
+Artículo 52.- Sobre la reactivación económica. Con el fin de contribuir con la reactivación económica, la no entrada en entrada en vigor de los Planes referidos en los artículos 50 y 51, no limitará la aprobación de renovaciones de los permisos de uso vigentes que venzan desde la fecha de entrada en rigor del presente reglamento y hasta la aprobación de dichos planes.

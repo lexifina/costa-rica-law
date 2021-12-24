@@ -1,0 +1,1 @@
+Artículo 53.- Sobre el trámite. Mientras se encuentre en trámite el permiso ante las autoridades del SINAC, no puede verse afectada la actividad económica de producción de camarón o sal que se encuentre en funcionamiento, salvo que se incumpla con las disposiciones legales que garanticen la sostenibilidad del recurso natural.

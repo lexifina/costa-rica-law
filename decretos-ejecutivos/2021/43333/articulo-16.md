@@ -1,0 +1,1 @@
+Artículo 16.- Canon. El permisionario deberá efectuar el pago del canon anual por el permiso de uso en el primer trimestre de cada año y presentar copia del comprobante respectivo dentro de ese mismo periodo. El canon se ajustará anualmente de acuerdo con la inflación del año anterior y será calculado por hectárea.

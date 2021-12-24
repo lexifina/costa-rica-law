@@ -1,0 +1,3 @@
+Artículo 29.- Requisitos para la autorización de mantenimiento y mejoras. Para la realización de actividades de mantenimiento o mejoras útiles en el área del permiso de uso para la acuicultura de camarón y producción de sal, el permisionario deberá solicitar autorización a la Dirección del Área de Conservación correspondiente cumpliendo con los siguientes requisitos:
+a) Solicitud y descripción de las obras de mantenimiento y/o mejoras debidamente firmada por el permisionario.
+b) Informe del Regente Ambiental que demuestre la necesidad técnica de realizar las actividades de mantenimiento que se requieren.

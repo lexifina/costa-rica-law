@@ -1,0 +1,3 @@
+Artículo 28. Actividades de mantenimiento o mejoras útiles. Se consideran mejoras útiles todas aquellas que vayan dirigidas a incrementar el valor de la actividad, ya sea que innoven alguna instalación o infraestructura o provean una modificación útil. Se consideran como tales las siguientes:
+a) Instalación de infraestructuras temporales requeridas para el proceso de producción o la seguridad laboral.
+b) Mejoras relacionadas al sistema o método de producción que se implementen con el objetivo de asegurar un manejo sostenible de los recursos naturales y, bienes y servicios ecosistémicos involucrados en la actividad y que estén previamente aprobadas en el Plan de Manejo Integral del Sistema de Cultivo.

@@ -1,0 +1,3 @@
+Artículo 45.- Control Regencial. Será responsabilidad del Regente Ambiental del Permiso de Uso realizar:
+a) Inspecciones anuales para la verificación del cumplimiento del Plan de Manejo Integral del Sistema de Cultivo aprobado por la Administración y brindar un informe respectivo ante la Dirección del Área de Conservación correspondiente para lo que resulte procedente y se harán constar en el expediente administrativo.
+b) Las evaluaciones bianuales del Plan de manejo Integral del Sistema de Cultivo donde se describa la evaluación biológica y socioeconómica del beneficio de los servicios ecosistémicos que son producidos en el Patrimonio Natural del Estado.

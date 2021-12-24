@@ -1,0 +1,2 @@
+Artículo 26.- Regencia Ambiental. Todo permiso de uso deberá contar con un regente ambiental que deberá ser un profesional debidamente incorporado al Colegio Profesional respectivo, con experiencia en la implementación de prácticas sostenibles para la producción de camarón en modalidades convencional u orgánica y producción de sal.
+Además, deberá cumplir con las obligaciones que estipula el presente reglamento.

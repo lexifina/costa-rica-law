@@ -1,0 +1,2 @@
+Artículo 40.- Aval del Plan de Cierre Técnico. La Dirección del Área de Conservación correspondiente avalará el Plan de Cierre Técnico en un plazo no mayor a ocho días naturales después de su presentación.
+En caso de que, bajo criterio técnico de la Administración, el Plan deba ser modificado para la no afectación ambiental, deberá comunicarlo mediante prevención administrativa al permisionario y otorgarle un plazo de diez días hábiles para que se realicen las modificaciones requeridas.
