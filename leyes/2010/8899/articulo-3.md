@@ -1,2 +1,3 @@
-ARTÍCULO 3.- Atención educativa
-La atención educativa específica a los educandos con alta dotación, talentos y creatividad se iniciará desde el momento de la identificación de sus necesidades intelectuales, sea cual sea su edad, y tendrá por objeto el desarrollo pleno y equilibrado tanto de su intelecto como de su personalidad, logrando con ello potenciar al máximo sus aptitudes y capacidades.
+Artículo 3- Atención educativa.
+La atención educativa específica a la población estudiantil con alto potencial se iniciará desde el momento de la identificación de sus capacidades, sea cual sea su edad, y tendrá por objeto el desarrollo pleno, tanto de su intelecto, de sus habilidades, como de su personalidad, logrando con ello potenciar al máximo sus aptitudes; esta atención debe estar regulada y monitoreada, con el apoyo de las entidades públicas de educación superior que tengan, en su campus, un departamento destacado sobre el tema y recurso humano calificado para tal fin.
+(Así reformado por el artículo 1° de la Ley de Promoción de la calidad en la atención educativa de la población estudiantil con alto potencial, N° 10080 del 14 de diciembre del 2021)
