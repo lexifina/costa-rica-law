@@ -1,1 +1,1 @@
-Artículo 8º—Recaudación. Este gravamen debe ser pagado directamente a nombre de la Municipalidad de Esparza, y esta debe encargarse de la debida incorporación dentro del presupuesto municipal, cumpliendo con la normativa vigente que regula esta materia.
+Artículo 8º-Recaudación. Este gravamen debe ser pagado directamente a nombre de la Municipalidad de Esparza, y esta debe encargarse de la debida incorporación dentro del presupuesto municipal, cumpliendo con la normativa vigente que regula esta materia.

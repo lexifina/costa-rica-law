@@ -1,1 +1,1 @@
-Artículo 5º—Modalidad: La Municipalidad otorgará becas consistentes en dinero en forma mensual, durante el período lectivo por el que hayan sido aprobadas mediante acuerdo del Concejo Municipal, una vez finalizado el procedimiento establecido en esta normativa reglamentaria.
+Artículo 5º-Modalidad: La Municipalidad otorgará becas consistentes en dinero en forma mensual, durante el período lectivo por el que hayan sido aprobadas mediante acuerdo del Concejo Municipal, una vez finalizado el procedimiento establecido en esta normativa reglamentaria.
