@@ -1,3 +1,4 @@
 CAPÍTULO 3
-De los recurso
-Artículo 26.—De conformidad con el artículo 162 del Código Municipal, el administrado se encuentra en la facultad de interponer los recursos administrativos contra la multa que realicen los inspectores. En caso de presentarse recurso de revocatoria, el Jefe de Estacionamiento Autorizado contará con 5 días hábiles para su resolución.
+De los recursos
+Artículo 26.-Contra la multa que impongan los inspectores de Estacionamiento Autorizado cabrán los recursos de revocatoria ante el Departamento de Estacionamiento Autorizado y Apelación ante la Alcaldía, deberán presentarse dentro del quinto día y en las condiciones que dispone el artículo 171 del Código Municipal. Los recursos deberán ser presentados por el titular del vehículo al cual se le impone la multa.
+(Así reformado mediante publicación en La Gaceta N° 248 del 24 de diciembre del 2021)
