@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE ESPARZA
+REGLAMENTO DE USO DE CERTIFICADOS, FIRMA DIGITAL Y
+DOCUMENTOS ELECTRÓNICOS DE LA MUNICIPALIDAD DE ESPARZA
+El Concejo Municipal de Esparza, mediante acuerdo tomado en sesión de fecha 26 de abril de 2021, según Artículo VI, Inciso 2, del Acta Nº 76-2020, y con la respectiva sanción y promulgación de la Alcaldía Municipal mediante Resolución N° 016, acordó aprobar El siguiente reglamento se fundamenta tanto en la Ley N° 8454 de Certificados, Firmas Digitales y Documentos Electrónicos, así como en el Decreto N° 33018 reglamento a dicha ley, Decreto 067MICIT-H-MEIC (03/04/2014), Modificación de la implementación y el uso de Firma Digital en el sector público costarricense, Políticas (MICIT 20/05/2013), formatos oficiales de los Documentos Electrónicos Firmados Digitalmente versión 1.0, Certificados para la Jerarquía nacional de Certificaciones Registrados Versión 1.1. Siendo que la Firma Digital es un asunto netamente personal, se acepta como certificador registrado al ente que cada funcionario designe de acuerdo con su criterio y conveniencia. Y en amplio apego al cumplimiento de lo establecido en la Ley N° 8454 de Certificados, Firma Digital y Documentos Electrónicos.
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1. Objeto. Este Reglamento tiene por objeto regular el uso de certificados, la firma digital certificada y certificados de sello electrónico debidamente emitidos por un certificador registrado y los documentos electrónicos que serán confeccionados y utilizados por los funcionarios de la Municipalidad de Esparza.

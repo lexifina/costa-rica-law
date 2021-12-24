@@ -1,0 +1,1 @@
+Artículo 7: Presunción de autoría y responsabilidad. Para efectos legales y administrativos, todos los documentos electrónicos a nombre de la Municipalidad, asociados a una Firma Digital Certificada son, al momento de su emisión: vigentes, íntegros, auténticos y de la autoría y responsabilidad del funcionario que lo emite.

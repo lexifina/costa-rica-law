@@ -1,0 +1,1 @@
+Artículo 12. Régimen disciplinario. Para la imposición de sanciones se aplicará el régimen establecido por la Municipalidad de Esparza, Ley General de Administración Pública, Ley de la Administración Financiera, Ley de Certificados, Firmas Digitales y Documentos Electrónicos y Código de Trabajo, según corresponda.
