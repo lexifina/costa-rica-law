@@ -24,8 +24,7 @@ Permisos temporales navideños (Así adicionado el párrafo anterior en sesión 
 Horario de atención mercado municipal de Heredia (Así adicionado el párrafo anterior en sesión N° 157 del 9 de abril de 2012) | . Lunes a viernes de las 6:00 horas a las 18:30 horas. . Sábados de las 6:00 horas a las 19:30 horas. . Domingos de las 7:00 horas a las 13:0 horas. . Únicos días en el cual el mercado permanecerá cerrado al público: jueves, viernes y domingo de semana santa, 25 de diciembre y 1 de enero. (Así adicionado los requsitos en sesión N° 157 del 9 de abril de 2012)
 Horario de atención al público oficina administración mercado (Así adicionado el párrafo anterior en sesión N° 157 del 9 de abril de 2012) | . Lunes a Viernes de las 07:00 horas a las 16:00 horas. .Para atención de quejas favor llenar el correspondiente formulario en la oficina de la administración del mercado. (Así adicionado los requsitos en sesión N° 157 del 9 de abril de 2012)
 |
-ESTACIONAMIENTO AUTORIZADO
-Atención a reclamos de boletas de estacionamiento | Llenar el formulario
+ESTACIONAMIENTO AUTORIZADO (Derogado el trámite anterior por el artículo 30 del Reglamento para la Administración y Operación de los Sistemas de Estacionamiento Autorizado y publicado en La Gaceta N° 71 del 12 de abril de 2012)
 |
 PROVEEDURÍA
 Registro de Proveedores | Llenar el formulario Adjuntar copia de la cédula jurídica, en caso de empresa. Adjuntar copia de la cédula de identidad en caso de persona física. Declaración de que cumple con los artículos 22, 53 de la Ley General de Contratación Administrativa.
