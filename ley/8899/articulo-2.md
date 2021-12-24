@@ -1,2 +1,3 @@
-ARTÍCULO 2.- Criterios de identificación de los estudiantes con alta dotación, talentos y creatividad
-El Consejo Superior de Educación establecerá los criterios, elementos y mecanismos de evaluación psicopedagógicos que permitan identificar a los estudiantes con alta dotación, talentos y creatividad en los diferentes niveles, materias y ciclos, en todo el Sistema Educativo Nacional.
+Artículo 2- Criterios de identificación de la población estudiantil con alto potencial.
+El Ministerio de Educación Pública (MEP), en conjunto con otras entidades públicas de educación superior, presentarán al Consejo Superior de Educación, para su aprobación, los criterios, elementos y mecanismos de evaluación que permitan identificar a la población estudiantil con alto potencial en todos los niveles, ciclos, modalidades y asignaturas del sistema educativo nacional.
+(Así reformado por el artículo 1° de la Ley de Promoción de la calidad en la atención educativa de la población estudiantil con alto potencial, N° 10080 del 14 de diciembre del 2021)
