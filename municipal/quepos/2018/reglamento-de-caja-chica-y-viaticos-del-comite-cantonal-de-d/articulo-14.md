@@ -1,0 +1,2 @@
+Artículo 14.-Plazo para liquidar adelantos de viáticos. Los adelantos para gastos de traslado, alimentación y permanencia se podrán entregar hasta dos días hábiles antes del viaje y deberán ser liquidados hasta tres días hábiles después del viaje.
+En caso de que no se produzca la gira que originó el adelanto, el dinero deberá ser devuelto al fondo respectivo justificando expresamente las razones que impidieron su utilización.

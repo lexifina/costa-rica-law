@@ -1,0 +1,3 @@
+Artículo 23.-Incumplimiento y trámite disciplinario. El incumplimiento de cualquiera de las obligaciones contenidas en el presente Reglamento se comunicará a la Junta Directiva del CCDRQ en un plazo no mayor de cinco días hábiles desde que la Administración tuvo conocimiento del hecho, para el inicio de la aplicación de las medidas disciplinarias correspondientes.
+Artículo 23.-El Administrador podrá autorizar trámites de caja chica que no estén regulados en el presente reglamento, en casos excepcionales y de urgencia apremiante, y deberá comunicarlo a la Junta Directiva en su próxima sesión dando las justificaciones del caso.
+(Nota de Sinalevi: En la publicación de este reglamento se publica dos veces el artículo N° 23)

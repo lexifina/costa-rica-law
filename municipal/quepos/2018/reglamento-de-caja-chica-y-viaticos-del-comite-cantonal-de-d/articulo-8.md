@@ -1,0 +1,1 @@
+Artículo 8º-Cierre de los fondos de caja chica. El cierre de los fondos de Caja Chica será responsabilidad exclusiva de la Junta Directiva, quien deberá tomar la decisión con indicación clara de las razones que justifican el cierre.

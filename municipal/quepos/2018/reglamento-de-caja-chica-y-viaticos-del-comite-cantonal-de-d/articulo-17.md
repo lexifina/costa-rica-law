@@ -1,0 +1,3 @@
+Artículo 17.-Arqueos. Se deberán efectuar verificaciones o arqueos sorpresivos totales a la Caja Chica al menos una vez al mes, para lo cual se podrá solicitar la colaboración de los funcionarios de la Municipalidad de Quepos o el vocal de la Junta Directiva.
+El responsable del fondo de la Caja Chica, en caso de detectar alguna inconsistencia lo comunicará de inmediato y emitirá un informe al respecto.
+Todo arqueo al fondo de caja chica se realizará en presencia del funcionario responsable del fondo, quién tendrá el derecho de pedir una segunda verificación, si albergara dudas sobre el resultado obtenido.

@@ -1,0 +1,1 @@
+Artículo 16.-Manejo de fondos. El fondo de Caja Chica debe estar bajo la custodia de una sola persona. En caso de ausencia del encargado del fondo, el Presidente de la Junta Directiva será el responsable de asumir o asignar la suplencia, previo arqueo de los fondos.

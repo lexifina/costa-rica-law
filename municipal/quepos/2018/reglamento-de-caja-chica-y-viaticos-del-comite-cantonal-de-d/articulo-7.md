@@ -1,0 +1,7 @@
+Artículo 7º-Montos de la Caja Chica. La asignación del monto de la Caja Chica, así como su aumento lo establecerá la Junta Directiva, de acuerdo con el comportamiento del gasto real o potencial a realizarse por medio de dicho mecanismo y de las necesidades del CCDRQ. Ver punto "b".
+La rotación de los fondos para el reintegro de las sumas asignadas se hará periódicamente de acuerdo con la necesidad de reponer los adelantos y cancelaciones girados.
+Para efectos de establecer el monto de los fondos se debe considerar:
+a) Los montos de cada Caja Chica se establecerá, de acuerdo con el comportamiento del gasto real o proyectado del Comité.
+b) El CCDRQ actualizará cada año el monto de Caja Chica. Como parámetro utilizará el monto establecido por la Contraloría General de la República para Compra Directa de Escasa Cuantía (artículo 136 del RLCA), y tomando en cuenta la tabla que excluye obra pública, donde se establecerá un 6% del monto correspondiente para este comité.
+c) La suma máxima a autorizar por concepto de viáticos en el país, será el equivalente de una semana hábil de viáticos totales con base en la tarifa diaria más alta establecida en el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos emitido por la Contraloría General de la República.
+f) El Monto de autorización para trámite de vale de caja chica por funcionario del CCDRQ, será de un 12% sobre el fondo de caja chica.
