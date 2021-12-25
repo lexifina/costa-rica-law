@@ -14,3 +14,4 @@ Reglamento de notificaciones y comunicaciones administrativas del Ministerio de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-12-25 | la propia norma |
+| 2 | 2021-12-25 | Decreto Ejecutivo 43313 (2021-10-22) |
