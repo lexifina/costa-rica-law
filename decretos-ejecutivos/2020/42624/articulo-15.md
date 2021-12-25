@@ -1,0 +1,1 @@
+Artículo 15.-De la imposibilidad del envío de una notificación. Cualquier imposibilidad con el envío a la cuenta de correo electrónico aportada por el interesado(a) por causas no imputables a la Administración, es responsabilidad del interesado(a) que aporta dicha dirección de correo electrónico, para lo cual deberá dejar constancia de dicha situación.

@@ -1,0 +1,1 @@
+Artículo 17.-Validez de la firma mediante certificado digital. Los documentos firmados digitalmente tendrán plena validez, de conformidad con la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, su Reglamento y reformas.

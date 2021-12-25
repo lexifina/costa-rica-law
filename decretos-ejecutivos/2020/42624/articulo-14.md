@@ -1,0 +1,1 @@
+Artículo 14.-Cómputo del plazo. Cuando se señale el correo electrónico, la persona se tendrá por notificada el día hábil siguiente del envío, por lo que el cómputo del plazo otorgado empezará a correr el día hábil siguiente en que se tuvo por notificado.

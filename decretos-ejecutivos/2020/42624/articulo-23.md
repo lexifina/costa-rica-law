@@ -1,0 +1,1 @@
+Artículo 23.-Notificación a disposición del interesado. El acto administrativo notificado, deberá estar a disposición del interesado por medios digitales en la respectiva Dirección, Departamento, Dependencia, Oficina, Misión Diplomática, Oficina Consular u Órgano Desconcentrado de este Ministerio que lo tenga bajo custodia.

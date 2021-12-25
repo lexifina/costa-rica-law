@@ -1,0 +1,1 @@
+Artículo 19.-Interrupción del sistema. Cuando el sistema de envío del correo electrónico de notificaciones o del servidor emisor se interrumpa por cualquier motivo, la notificación se hará una vez restablecido el sistema o bien en caso de urgencia se podrá realizar la notificación por otros medios previstos en la Ley.

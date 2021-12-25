@@ -1,0 +1,2 @@
+Artículo 13.-Sobre el tiempo y plazos para la Administración. Para practicar las notificaciones previstas en este reglamento, los días y horas serán hábiles, salvo que la demora pueda causar graves perjuicios a la Administración o al interesado, o se haga ilusoria la eficacia del acto administrativo, previa autorización del órgano director.
+Los plazos por días para la Administración incluyen los inhábiles.
