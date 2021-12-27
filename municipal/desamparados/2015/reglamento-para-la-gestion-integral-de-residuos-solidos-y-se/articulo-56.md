@@ -1,1 +1,0 @@
-Artículo 56.—Descripción del servicio. El servicio de mantenimiento de zonas verdes consiste en corte de césped, recolección de residuos producto de la limpieza de áreas de parque, juegos infantiles y áreas de facilidades comunales sin construir.

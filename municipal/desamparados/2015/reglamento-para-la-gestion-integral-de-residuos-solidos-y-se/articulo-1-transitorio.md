@@ -1,2 +1,0 @@
-Disposiciones transitorias
-Transitorio I.—La Municipalidad de Desamparados iniciará la recolección y tratamiento de los residuos biodegradables una vez que tenga una tecnología adecuada y los recursos necesarios para su operación. Mientras esto sucede, el generador podrá hacer uso de este tipo de residuos en la fuente de generación para la elaboración de compost casero. Si esto no es posible, deberá disponerlos con los residuos sólidos ordinarios no valorizables hasta que la Municipalidad comunique el inicio del proyecto para su recolección y tratamiento.

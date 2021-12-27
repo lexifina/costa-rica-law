@@ -1,1 +1,0 @@
-Artículo 28.—Facilidades para la recolección de los residuos. El usuario no podrá colocar obstáculos, temporales y/o permanentes frente a su propiedad o al contenedor comunitario, que dificulten la labor de recolección o que pongan en riesgo la integridad del operario recolector.

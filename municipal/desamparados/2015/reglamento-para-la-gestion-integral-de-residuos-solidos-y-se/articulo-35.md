@@ -1,1 +1,0 @@
-Artículo 35.—Llenado máximo. El empaque no deberá llenarse por encima de tres cuartas partes de su volumen para que puedan entregarse debidamente cerradas y no permitan la entrada de agua, vectores, ni el escape de líquidos. El peso máximo permitido es de 25 kg por empaque.

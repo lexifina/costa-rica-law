@@ -1,1 +1,0 @@
-Artículo 46.—Mecanismos de verificación de cumplimiento del servicio. La Municipalidad establecerá mecanismos que permitan el seguimiento, control y verificación del servicio de manejo de residuos sólidos, de manera que sea una herramienta ante reclamos de usuarios o ante los organismos fiscalizadores (por ejemplo, uso de GPS en los camiones recolectores, entre otros).

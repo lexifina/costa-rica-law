@@ -1,1 +1,0 @@
-Artículo 32.—Prohibición de mezclar en el camión recolector. Se prohíbe a la entidad recolectora (sea municipal o concesionada) mezclar para su transporte los residuos sólidos que han sido separados por los generadores. En caso de ser una entidad autorizada, esto será causal para que se dé por finalizado su contrato, previo cumplimiento del debido proceso.

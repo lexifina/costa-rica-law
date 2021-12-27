@@ -1,1 +1,0 @@
-Artículo 78.—Denuncias. Se considera infractor a toda persona mayor de edad que cometa cualquiera de las infracciones descritas en el artículo 73° de este reglamento. En contraposición, cualquier persona, física o jurídica podrá presentar denuncias por violaciones a este reglamento ante la Contraloría de Servicios de esta Municipalidad dirigido al Área de Servicios Públicos.

@@ -1,1 +1,0 @@
-Artículo 20.—Llantas y neumáticos. El servicio de Manejo de residuos no incluye la recolección de llantas y neumáticos. El generador deberá atender la normativa establecida por el Ministerio de Salud en el Reglamento sobre Llantas de Desecho (Gaceta N°92, 15 de mayo de 2007).

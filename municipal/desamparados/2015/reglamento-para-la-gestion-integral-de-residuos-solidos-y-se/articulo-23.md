@@ -1,1 +1,0 @@
-Artículo 23.—Restos de animales. La Municipalidad proveerá el manejo sanitario de animales muertos que se encuentren en la vía pública, tales como perros, gatos o animales de características y tamaños similares a los anteriores. La Municipalidad no cuenta con equipo para movilizar animales muertos de mayor tamaño y peso.

@@ -1,5 +1,0 @@
-Artículo 29.—Componentes del Servicio de manejo de residuos. El servicio se compone de los siguientes procesos:
-a) Recolección de residuos sólidos ordinarios: Recolección de los residuos sólidos ordinarios residenciales y comerciales que no son valorizables, y que no son peligrosos. Este servicio se prestará con camiones compactadores de carga trasera y en casos específicos de difícil acceso, con camiones livianos de cajón.
-b) Recolección de residuos sólidos valorizables: Recolección de los residuos valorizables que la Municipalidad establezca dentro de su estrategia de recuperación. Se usarán camiones livianos de cajón cerrado para brindar este servicio.
-c) Recolección de residuos no tradicionales: Recolección de los residuos sólidos voluminosos o no tradicionales. Los camiones usados para este servicio se asignarán de acuerdo al tipo de material a recolectar.
-d) Centros de recuperación de residuos valorizables: Estos centros serán usados para almacenar de manera temporal los residuos valorizables recolectados en las rutas de recolección de residuos sólidos valorizables y/o aquellos materiales llevados directamente al lugar por los generadores del Cantón.

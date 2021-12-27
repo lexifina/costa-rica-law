@@ -1,3 +1,0 @@
-CAPÍTULO VI
-Tasas por el servicio de manejo de residuos sólidos
-Artículo 47.—Fijación. La Municipalidad fijará las tasas por los servicios de manejo de residuos que incluya los costos para realizar una gestión integral de los mismos en proporción a la cantidad y calidad de residuos generados, asegurando el fortalecimiento de la infraestructura necesaria para brindar dichos servicios garantizando su autofinanciamiento. La tasa fijada contempla todos los servicios otorgados dentro de lo nombrado como manejo de residuos sólidos (recolección de residuos no valorizables, recolección de residuos valorizables y campañas de recolección de residuos no tradicionales).

@@ -1,1 +1,0 @@
-Artículo 64.—Incumplimiento por parte del usuario. Cuando se verifique el incumplimiento de las disposiciones contenidas en el artículo anterior, se mantendrá el cobro del servicio de limpieza de vías, por no ser responsabilidad de la Municipalidad, la imposibilidad material para poder brindar el servicio de limpieza de vías.

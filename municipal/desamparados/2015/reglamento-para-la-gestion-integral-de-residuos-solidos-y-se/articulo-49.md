@@ -1,1 +1,0 @@
-Artículo 49.—Prestación potencial del servicio de manejo de residuos sólidos. Se considera bajo prestación potencial el servicio municipal que se da de forma efectiva en vía pública, pero que no es requerido de forma directa por el generador quien no demuestra interés en el mismo. En esta condición, es siempre sujeto pasivo por lo que está obligado a pagarlo.

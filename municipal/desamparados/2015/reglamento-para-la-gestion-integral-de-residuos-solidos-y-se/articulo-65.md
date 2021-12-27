@@ -1,3 +1,0 @@
-Artículo 65.—Tasa por el servicio. El servicio de limpieza de vías se cobra a las unidades servidas localizadas en el área de cobertura del servicio, cuando cuenten con acera, cordón y caño frente a su propiedad. El cobro del servicio de limpieza de vías se calcula de conformidad con la cantidad de metros lineales de frente de cada propiedad.
-En el caso de las servidumbres y similares, la tasa de cobro se calcula por la cantidad de metros lineales de frente del lote que tiene acceso frente a calle pública y se divide de manera proporcional entre las unidades servidas que se encuentran dentro de dicha servidumbre.
-La Municipalidad calculará esta tasa en forma anual y las cobrará en tractos trimestrales sobre saldo vencido.

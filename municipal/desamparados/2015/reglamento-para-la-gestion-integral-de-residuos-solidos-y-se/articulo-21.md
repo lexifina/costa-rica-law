@@ -1,1 +1,0 @@
-Artículo 21.—Chatarra. El servicio de Manejo de residuos no incluye la recolección de chatarra. Las actividades que procesen y produzcan este tipo de residuos deberán realizar la movilización por medio de recolección privada como mínimo una vez al mes.

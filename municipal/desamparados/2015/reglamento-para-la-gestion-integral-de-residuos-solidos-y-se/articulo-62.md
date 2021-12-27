@@ -1,1 +1,0 @@
-Artículo 62.—Ampliación de la cobertura del servicio. La Municipalidad decidirá de acuerdo a criterios establecidos a cuáles distritos se ampliará la cobertura del servicio y en qué momento. Se considerarán los recursos disponibles y los niveles de recaudación y morosidad del distrito, entre otros factores para realizar dicha ampliación.

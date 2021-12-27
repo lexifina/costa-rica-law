@@ -1,1 +1,0 @@
-Artículo 27.—Sitios en los que se prohíbe arrojar residuos sólidos. Es prohibido arrojar residuos sólidos en riberas de ríos, lotes baldíos, edificaciones abandonadas y cualquier otro lugar no apto para este fin. También queda prohibido disponer los residuos de manera inadecuada sobre la vía pública.

@@ -1,3 +1,0 @@
-Artículo 58.—Tasa por el servicio. El servicio de mantenimiento de zonas verdes se cobrará a cada unidad servida localizada en el distrito que tenga cobertura del servicio. El monto de la tasa por el servicio de mantenimiento de zonas verdes se facturará al propietario o poseedor, de acuerdo a la cantidad de usuarios ubicados en su propiedad.
-El servicio de mantenimiento de zonas verdes tiene un cobro colectivo, el cual es determinado por distrito (en los cuales se brinda el servicio). Por lo tanto, todas las unidades servidas de un mismo distrito tienen asignado el mismo monto para dicha tasa.
-La Municipalidad calculará esta tasa en forma anual y las cobrará en tractos trimestrales sobre saldo vencido.

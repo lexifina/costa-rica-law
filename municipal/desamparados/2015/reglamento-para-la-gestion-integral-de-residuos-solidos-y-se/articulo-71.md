@@ -1,3 +1,0 @@
-Artículo 71.—Tasa por el servicio. El servicio de limpieza y mantenimiento del alcantarillado pluvial se cobrará a cada unidad servida localizada en el distrito que tenga cobertura del servicio. El monto de la tasa por este servicio se facturará al propietario o poseedor, de acuerdo a la cantidad de usuarios ubicados en su propiedad.
-El servicio de limpieza y mantenimiento del alcantarillado pluvial tiene un cobro colectivo, el cual es determinado por distrito (en los cuales se brinda el servicio). Por lo tanto, todas las unidades servidas de un mismo distrito tienen asignado el mismo monto por dicha tasa.
-La Municipalidad calculará esta tasa en forma anual y la cobrará en tractos trimestrales sobre saldo vencido.
