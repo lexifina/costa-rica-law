@@ -1,0 +1,2 @@
+Artículo 4º bis.-En caso de estado de necesidad y urgencia, ocasionado por circunstancias sanitarias, de guerra, conmoción interna y calamidad pública exista una declaración de estado de emergencia nacional o cantonal el Concejo Municipal queda facultado de acuerdo a los numerales 37 y 37 bis del Código Municipal a realizar las sesiones ordinarias o extraordinarias en cualquier lugar del cantón, así como realizar las sesiones virtuales de acuerdo a los requerimientos del artículo 37 bis del Código Municipal.
+(Así adicionado en sesión N° 87 del 28 de diciembre de 2021)

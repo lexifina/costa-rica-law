@@ -14,3 +14,4 @@ Reglamento de sesiones y funcionamiento del Concejo Municipal de Montes de Oro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-06 | la propia norma |
+| 2 | 2021-12-28 | Reglamento municipal 87 (2021-12-28) |

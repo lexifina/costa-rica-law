@@ -1,0 +1,2 @@
+Artículo 60.-En caso de que un edil se incorpore en tiempo y forma a la sesión virtual del Concejo y durante la celebración tiene un problema técnico que ocasiona su desconexión dispondrá de un plazo de quince minutos para informar dicha situación al secretario del concejo municipal a efectos de que le asista con la reconexión. Si transcurridos los quince minutos de gracia, el edil no pudo conectarse a la sesión virtual no podrá gozar del pago de dieta.
+(Así adicionado en sesión N° 87 del 28 de diciembre de 2021)

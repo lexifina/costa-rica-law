@@ -1,0 +1,2 @@
+Artículo 62º- En lo no contemplado por este Reglamento, el Concejo se regirá por las disposiciones del Código Municipal, Ley de Administración Financiera, Código Procesal Contencioso Administrativo, Ley de Control Interno y Ley General de Administración Pública y demás normativa conexa.
+(Así modificada su numeración en sesión N° 87 del 28 de diciembre de 2021, que lo traspaso del antiguo artículo 54 al 62)
