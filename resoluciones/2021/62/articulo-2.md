@@ -1,0 +1,1 @@
+Artículo 2º-El monto del impuesto específico ¢0.27202 (cero coma dos siete dos cero dos colones), indicado en el artículo anterior, se aplicará sobre cada mililitro de alcohol absoluto a partir del 01 de enero de 2022.
