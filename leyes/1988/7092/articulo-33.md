@@ -2,20 +2,20 @@ CAPITULO XIII
 De la tarifa del impuesto
 (Así modificada su numeración por el artículo 1º de ley No.7551 del 22 de setiembre de 1995, del antiguo XII al actual)
 ARTICULO 33.- Escala de tarifas. El empleador o el patrono retendrá el impuesto establecido en el artículo anterior y lo aplicará sobre la renta total percibida mensualmente por el trabajador. En los casos de los incisos a), b) y c) del artículo anterior lo aplicará el Ministerio de Hacienda y, en el caso del inciso ch) de ese mismo artículo, todas las demás entidades, públicas o privadas, pagadoras de pensiones. La aplicación se realizará según la siguiente escala progresiva de tarifas:
-a) Las rentas de hasta ¢842.000,00 (ochocientos cuarenta y dos mil colones) mensuales no estarán sujetas al impuesto.
-(Así modificado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42733 del 10 de noviembre del 2020, mediante un ajuste del cero coma veintiocho por ciento (0,28%))
-b) Sobre el exceso de ¢842.000,00 (ochocientos cuarenta y dos mil colones) mensuales y hasta ¢1.236.000,00 (un millón doscientos treinta y seis mil colones) mensuales, se pagará el diez por ciento (10%).
-(Así modificado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42733 del 10 de noviembre del 2020, mediante un ajuste del cero coma veintiocho por ciento (0,28%))
-c) Sobre el exceso de ¢1.236.000,00 (un millón doscientos treinta y seis mil colones) mensuales y hasta ¢2.169.000,00 (dos millones ciento sesenta y nueve mil colones) mensuales, se pagará el quince por ciento (15%).
-(Así modificado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42733 del 10 de noviembre del 2020, mediante un ajuste del cero coma veintiocho por ciento (0,28%))
+a) Las rentas de hasta ¢863.000,00 (ochocientos sesenta y tres mil colones) mensuales no estarán sujetas al impuesto.
+(Así modificado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43375 del 14 de diciembre del 2021, “Actualización de los tramos del impuesto sobre la renta-salario y utilidades-y sus créditos fiscales a partir del 01 de enero del 2022, mediante un ajuste del 2.50% por ciento”)
+b) Sobre el exceso de ¢863.000,00 (ochocientos sesenta y tres mil colones) mensuales y hasta ¢1.267.000,00 (un millón doscientos sesenta y siete mil colones) mensuales, se pagará el diez por ciento (10%).
+(Así modificado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43375 del 14 de diciembre del 2021, “Actualización de los tramos del impuesto sobre la renta-salario y utilidades-y sus créditos fiscales a partir del 01 de enero del 2022, mediante un ajuste del 2.50% por ciento”)
+c) Sobre el exceso de ¢1.267.000,00 (un millón doscientos sesenta y siete mil colones) mensuales y hasta ¢2.223.000,00 (dos millones doscientos veintitrés mil colones) mensuales, se pagará el quince por ciento (15%).
+(Así modificado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43375 del 14 de diciembre del 2021, “Actualización de los tramos del impuesto sobre la renta-salario y utilidades-y sus créditos fiscales a partir del 01 de enero del 2022, mediante un ajuste del 2.50% por ciento”)
 ch) Las personas que obtengan rentas de las contempladas en los incisos b) y c) del artículo 32 pagarán sobre el ingreso bruto, sin deducción alguna, el quince por ciento (15%).
 (Así reformado por inciso i) del artículo 19 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).
-d) Sobre el exceso de ¢2.169.000,00 (dos millones ciento sesenta y nueve mil colones) mensuales y hasta ¢4.337.000,00 (cuatro millones trescientos treinta y siete mil colones) mensuales, se pagará el veinte por ciento (20%).
+d) Sobre el exceso de ¢2.223.000,00 (dos millones doscientos veintitrés mil colones) mensuales y hasta ¢4.445.000,00 (cuatro millones cuatrocientos cuarenta y cinco mil colones) mensuales, se pagará el veinte por ciento (20%).
 (Así adicionado el inciso d) anterior por el título II aparte 15) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)
-(Así modificado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42733 del 10 de noviembre del 2020, mediante un ajuste del cero coma veintiocho por ciento (0,28%))
-e) Sobre el exceso de ¢4.337.000,00 (cuatro millones trescientos treinta y siete mil colones) mensuales, se pagará el veinticinco por ciento (25%).
+(Así modificado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43375 del 14 de diciembre del 2021, “Actualización de los tramos del impuesto sobre la renta-salario y utilidades-y sus créditos fiscales a partir del 01 de enero del 2022, mediante un ajuste del 2.50% por ciento”)
+e) Sobre el exceso de ¢4.445.000,00 (cuatro millones cuatrocientos cuarenta y cinco mil colones) mensuales, se pagará el veinticinco por ciento (25%).
 (Así adicionado el inciso e) anterior por el título II aparte 15) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)
-(Así modificado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42733 del 10 de noviembre del 2020, mediante un ajuste del cero coma veintiocho por ciento (0,28%))
+(Así modificado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43375 del 14 de diciembre del 2021, “Actualización de los tramos del impuesto sobre la renta-salario y utilidades-y sus créditos fiscales a partir del 01 de enero del 2022, mediante un ajuste del 2.50% por ciento”)
 El impuesto establecido en este artículo, que afecta a las personas que solamente obtengan ingresos por los conceptos definidos en este artículo, tendrá el carácter de único, respecto a las cantidades a las cuales se aplica.
 (Así reformado su penúltimo párrafo por inciso i) del artículo 19 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).
 Los excesos de dicho monto deberán ser tratados conforme se establece en el párrafo segundo del artículo 46(*) de esta Ley.
