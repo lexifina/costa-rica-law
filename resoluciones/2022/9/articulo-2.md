@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. La presente resolución aplica exclusivamente a las entidades sujetas a la vigilancia e inspección de la Superintendencia General de Entidades Financieras (SUGEF) y la Superintendencia General de Valores (SUGEVAL).
