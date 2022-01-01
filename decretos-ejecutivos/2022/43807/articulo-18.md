@@ -1,0 +1,1 @@
+Artículo 18. Código de identidad. El operador del servicio identificará a las instituciones usuarias mediante un código de identidad para operar el sistema digital unificado, pudiendo ser éste la cédula jurídica de la entidad.

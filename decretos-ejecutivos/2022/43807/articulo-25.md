@@ -1,0 +1,1 @@
+Artículo 25. Procedimiento para la inclusión de interfases. La Dirección de Contratación Pública, con base en los criterios definidos al efecto, determinará los sistemas considerados de importancia para el desarrollo de interfases.

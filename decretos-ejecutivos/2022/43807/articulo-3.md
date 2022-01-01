@@ -1,0 +1,9 @@
+Artículo 3. Principios. El presente reglamento de modelo tarifario para el uso del sistema digital unificado deberá ser interpretado a la luz de los siguientes principios:
+a) Igualdad: Las normas referentes al cobro de tarifas deberán ser aplicadas garantizando un trato igualitario y equitativo en lo procedente a las instituciones usuarias, de acuerdo a lo regulado en el presente Reglamento y los lineamientos emitidos por la Dirección de Contratación Pública.
+b) Publicidad: La información referida al modelo tarifario y los respectivos mecanismos de cobro a las instituciones usuarias serán de acceso público, salvo acreditación de condiciones de confidencialidad.
+c) Universalidad: El acceso al sistema digital unificado se debe garantizar a todas las instituciones usuarias.
+d) Buena fe: Las actuaciones desplegadas por la Dirección de Contratación Pública y demás participantes del modelo tarifario se presumirán en todo momento de buena fe.
+e) Eficiencia: La gestión asociada a la prestación de los servicios de plataforma electrónica, deberá garantizar los requisitos de volumen, oportunidad, continuidad y confiabilidad necesarios para la utilización óptima del sistema digital unificado.
+f) Principio de subvención del gasto: En todo momento deberá garantizarse los recursos necesarios para la debida viabilidad del sistema digital unificado.
+g) Solidaridad: Como regla general toda institución usuaria del Sistema estará afecta a una tarifa proporcional a su necesidad de servicio, no obstante, podrá darse un trato distinto y adecuado a instituciones usuarias que por circunstancias concurrentes se encuentren imposibilitadas a cubrir la totalidad de la tarifa definida.
+h) Transparencia: Debe ser de acceso público lo que pagan todas las instituciones usuarias, así como indicadores comparativos sobre el uso y el costo que estas asumen en el uso del sistema.

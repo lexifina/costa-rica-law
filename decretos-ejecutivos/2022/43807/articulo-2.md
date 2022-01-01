@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Las disposiciones del presente Reglamento se aplicarán a todas las instituciones usuarias del servicio en los términos indicados en el artículo 4 del presente Reglamento, asimismo se aplicará al operador del servicio, pudiendo fungir como tal, tanto la Dirección de Contratación Pública como un tercero.

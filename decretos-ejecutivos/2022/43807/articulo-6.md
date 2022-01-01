@@ -1,0 +1,21 @@
+CAPÍTULO II
+SECCIÓN I
+Funciones y atribuciones de la Dirección de Contratación Pública
+Artículo 6. Funciones de la Dirección de Contratación Pública. Son funciones de la Dirección de Contratación Pública velar por el cumplimiento de las actividades asociadas con la administración de la información, su seguridad, el cumplimiento de los niveles de servicio definidos y gestión de riesgos asociados al servicio, así como cualquier función necesaria para mantener la seguridad y el buen funcionamiento del sistema digital unificado, conforme lo dispone el artículo 16 y el 129, incisos d) y e) de la Ley No. 9986, para lo cual se apoyará en la Dirección de Tecnologías de Información y Comunicación del Ministerio de Hacienda, sin perjuicio de gestionar el aporte de las dependencias que puedan colaborar en materia de sus competencias.
+De conformidad con lo anterior, las funciones específicas, de la Dirección de Contratación Pública, asociadas al sistema digital unificado, son las siguientes:
+a. Ejercer la dirección en el uso de medios electrónicos aplicados en materia de contratación pública, conforme a las disposiciones de la Ley No. 9986.
+b. Ejercer la administración del sistema digital unificado y podrá proponer a la Autoridad de Contratación Pública su tercerización.
+c. Administrar el catálogo electrónico de bienes, el banco de precios y el registro de proveedores.
+d. Velar por la determinación, implementación, uso y mejoramiento del modelo tarifario aplicable a los servicios ofrecidos a través del sistema digital unificado, conforme las disposiciones emitidas al efecto.
+e. Establecer el mecanismo para la determinación de la tarifa vigente por el uso del sistema.
+f. Gestionar tareas de apoyo al operador del sistema en materia de cumplimiento de pago de las instituciones usuarias del sistema digital unificado.
+g. Crear canales de comunicación seguros y accesibles para atender las solicitudes de las instituciones usuarias del sistema digital unificado, así como las que presenten las autoridades nacionales en relación con éste.
+h. Autorizar o habilitar, según corresponda, los mecanismos que permitan a los usuarios realizar consultas y registrar solicitudes de trámites, bajo condiciones adecuadas de seguridad y cumpliendo con el ordenamiento jurídico aplicable al manejo de información privada o sensible. Esta autorización o habilitación, según corresponda, deberá garantizar el suministro al operador del sistema digital unificado y a las instituciones usuarias de la información administrada por el sistema que requieran para atender sus funciones.
+i. Emitir los lineamientos para que el operador del sistema digital unificado garantice la seguridad, gestión de los riesgos de información e integridad de los datos que procesa, transmite y almacena, con el apoyo de la Dirección de Tecnologías de Información y Comunicación del Ministerio de Hacienda.
+j. Requerir los desarrollos tecnológicos y operativos necesarios para que el sistema digital unificado atienda adecuadamente las necesidades de los usuarios, así como la dinámica del sector al cual dirige sus servicios.
+k. Emitir los lineamientos y procedimientos para el uso del sistema digital unificado, poniéndolos a disposición de los usuarios por los medios que faciliten su acceso.
+l. Vigilar y dar seguimiento al cumplimiento de los lineamientos y procedimientos emitidos.
+m. Velar por la capacitación sin costo a los colaboradores, funcionarios de las unidades de control o fiscalización, así como al personal administrativo de las instituciones usuarias que lo requieran, en aspectos relacionados con el funcionamiento y la ejecución de operaciones del sistema digital unificado.
+n. Autorizar al operador del sistema como requisito previo para operar el sistema digital unificado.
+o. Disponer de mecanismos de atención a usuarios, así como de canales ágiles y de fácil acceso que permitan a los funcionarios evacuar sus consultas.
+p. Establecer indicadores de gestión y mecanismos de seguimiento para evaluar el desempeño del operador del sistema digital unificado con relación a la prestación del servicio, debiendo elaborar un informe anual con los resultados de dicha evaluación, para ser presentado a la Autoridad de Contratación Pública.

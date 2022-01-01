@@ -1,0 +1,1 @@
+Artículo 31. Condición de uso del servicio. Las instituciones usuarias deben habilitar a sus funcionarios para el uso de las funcionalidades en el sistema digital unificado, a efectos realizar las gestiones que les competen, de acuerdo con las funciones asignadas, así como definir los roles respectivos en el sistema para cada uno de ellos.

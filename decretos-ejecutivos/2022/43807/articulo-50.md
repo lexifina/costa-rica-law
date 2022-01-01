@@ -1,0 +1,1 @@
+Artículo 50. Veracidad de la información. El funcionario deberá garantizar la veracidad de la información que registre en el sistema digital unificado, por lo que la Dirección de Contratación Pública y el operador del sistema asumen que dicha información registrada en el sistema digital unificado por los funcionarios es legítima, completa y se encuentra exenta de vicios.

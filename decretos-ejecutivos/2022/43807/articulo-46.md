@@ -1,0 +1,1 @@
+Artículo 46. Normativa aplicable por incumplimiento en el pago. Las sanciones aplicables a los funcionarios por el incumplimiento en el pago de la tarifa por el uso del sistema digital unificado se regirán de acuerdo con la normativa disciplinaria aplicable para la institución de que se trate.

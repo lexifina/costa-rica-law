@@ -1,0 +1,1 @@
+Artículo 28. Horario del servicio. El servicio contratado del sistema digital unificado deberá estar en operación bajo un esquema veinticuatro horas al día, siete días a la semana, los 365 días del año (24/7/365) con una disponibilidad mensual igual o superior al 99,9%, salvo excepciones previamente autorizadas por la Dirección de Contratación Pública.

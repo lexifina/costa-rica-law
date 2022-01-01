@@ -1,0 +1,1 @@
+Artículo 40. Condiciones sobre las tarifas. Toda institución usuaria que realice transacciones en el sistema digital unificado debe realizar el pago del monto establecido por el uso del sistema, con las excepciones establecidas, todo ello de conformidad con los lineamientos que la Dirección de Contratación Pública emita al efecto.

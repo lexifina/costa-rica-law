@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Modelo tarifario
+Artículo 35. Fijación de tarifas. Las tarifas por los servicios que se provean por medio del sistema digital unificado son fijadas por la Dirección de Contratación Pública. El cobro de tarifas aplica a partir del momento en que la institución inicia su operación en el Sistema, haciéndose efectivo el primer cobro el primer día hábil del mes siguiente al inicio de la operación. No se considerará para el cobro, el período requerido para la implementación. En los casos del retiro de servicios, los cobros por suscripción se harán por el mes completo en que la entidad requiera retirarse como participante del servicio.
+El Ministerio de Hacienda promoverá el proceso de implementación para todas las instituciones del sector público que por imperativo legal deben hacer uso de la plataforma.
+El servicio brindado por medio del sistema digital unificado deberá procurar un esquema de costos óptimos en función de evitar que los usuarios asuman tarifas por encima del costo para su adecuado funcionamiento.

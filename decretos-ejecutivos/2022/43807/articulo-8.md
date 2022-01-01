@@ -1,0 +1,1 @@
+Artículo 8. Coordinación. La coordinación de los asuntos relacionados con los requerimientos del sistema digital unificado será llevada a cabo directamente entre la Dirección de Contratación Pública, con el apoyo de la Dirección de Tecnologías de Información y Comunicación del Ministerio de Hacienda y el operador del sistema.

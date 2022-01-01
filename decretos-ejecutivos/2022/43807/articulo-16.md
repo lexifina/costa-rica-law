@@ -1,0 +1,1 @@
+Artículo 16. Actualización del servicio. El operador del sistema digital unificado deberá periódicamente actualizar, dar mantenimiento, evaluar y monitorear la plataforma tecnológica, debiendo rendir los informes a la Dirección de Contratación Pública, conforme a los lineamientos que emita al efecto.
