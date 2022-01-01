@@ -1,0 +1,1 @@
+Artículo 5º-Derogar el inciso d) y correr la numeración de los siguientes incisos de la norma 3 denominada "Ámbito de aplicación" de la resolución N°. R-DC-54-2010, Directrices generales a los sujetos pasivos de la Contraloría General de la República para el adecuado registro y validación de información en el sistema de información sobre planes y presupuestos.

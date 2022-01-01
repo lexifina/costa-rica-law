@@ -1,0 +1,1 @@
+Artículo 4º-Derogar la sección número 6 de las Normas Técnicas sobre Presupuesto Público (R-DC-24-2012), denominada "Aspectos de relevancia relacionados con el presupuesto y el proceso presupuestario de los contratos de fideicomisos suscritos con fondos públicos"; por lo que se derogan las normas 6.1, 6.2, 6.3, 6.4 y 6.5.
