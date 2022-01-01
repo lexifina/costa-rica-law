@@ -1,0 +1,3 @@
+Artículo 8) Evidencias para orígenes de fondos
+El sujeto obligado debe agregar o aprobar en el CICAC, el respaldo del origen de fondos registrados en el expediente del cliente de conformidad con lo establecido en la sección II ‘Evidencias para orígenes de fondos’ de los Lineamientos; para lo cual deben considerar el umbral establecido en el artículo 28 del Reglamento de prevención del riesgo de LC/FT/FPDAM, para requerirle al cliente la evidencia correspondiente.
+Para el caso en que el titular de la información sea quien incluya la documentación de respaldo del origen de los fondos, el estado de la evidencia se mantendrá ‘Por validar’ hasta que un sujeto obligado autorizado por el titular de la información valide y apruebe la evidencia correspondiente.

@@ -1,0 +1,2 @@
+Artículo 11) Derecho a rectificación de los datos
+Cuando el cliente considere que la información contenida en el expediente conozca a su cliente no refleja su situación real, puede autogestionar la corrección de la información o bien solicitar su corrección ante un sujeto obligado, previa presentación de la documentación probatoria. En caso de ser información que provenga de una fuente oficial de información, el reclamo debe ser presentado por el cliente ante la fuente correspondiente.
