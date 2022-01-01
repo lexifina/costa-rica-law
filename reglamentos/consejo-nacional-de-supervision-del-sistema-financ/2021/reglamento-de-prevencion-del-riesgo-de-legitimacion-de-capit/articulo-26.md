@@ -1,0 +1,4 @@
+Artículo 26) Nuevas tecnologías, productos y servicios
+El sujeto obligado, debe identificar y evaluar los riesgos de LC/FT/FPADM que pudieran surgir con respecto al desarrollo de nuevos productos o servicios y nuevas prácticas comerciales, incluyendo nuevos canales de distribución y el uso de nuevas tecnologías o tecnologías en desarrollo de productos o servicios, tanto los nuevos como los existentes. Esta evaluación del riesgo debe hacerse previo al lanzamiento de los nuevos productos o servicios, prácticas comerciales o en el uso de nuevas tecnologías, determinando las medidas para administrar y mitigar esos riesgos.
+Los resultados de este proceso de identificación y evaluación deben ser conocidos y aprobados por el órgano de dirección.
+Corresponde a la unidad o función de riesgo realizar evaluaciones independientes sobre la evaluación del riesgo de LC/FT/FPADM efectuada.

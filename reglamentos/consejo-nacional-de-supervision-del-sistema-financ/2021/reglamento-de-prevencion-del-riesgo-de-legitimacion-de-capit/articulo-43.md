@@ -1,0 +1,5 @@
+Artículo 43) Cuentas de expediente simplificado (CES)
+Las CES son cuentas de fondos que los sujetos obligados pueden abrir a las personas físicas con un perfil de riesgo bajo mediante un trámite simplificado.
+Para la apertura de CES los sujetos obligados deben cumplir con los requerimientos de identificación e información que se definen en el Reglamento del Sistema de Pagos del Banco Central de Costa Rica.
+Cuando el sujeto obligado determine que un cliente con cuentas CES no se ajusta a los límites establecidos en el Reglamento del sistema de pagos, debe requerirles información adicional a efectos de determinar la razonabilidad de las variaciones presentadas y valorar la reclasificación del nivel de la CES o clasificarla como una cuenta tradicional. Esta información debe formar parte del expediente del cliente.
+El sujeto obligado debe establecer en sus políticas los niveles de tolerancia al riesgo, en cuanto a la apertura de nuevas cuentas CES para clientes que ya disponen de este tipo de cuenta en otros sujetos obligados del sistema financiero nacional.

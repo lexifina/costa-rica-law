@@ -1,0 +1,2 @@
+Artículo 50) Políticas de acción inmediata para los ROS
+El sujeto obligado debe establecer políticas de actuación inmediatas como consecuencia de la emisión de un ROS. Estas políticas deben considerar la calificación de riesgo del cliente, el mantenimiento de la relación comercial, la ampliación del análisis y toma de decisiones hacia las personas físicas y jurídicas relacionadas con la persona que fue objeto del ROS y que sea cliente de la entidad.

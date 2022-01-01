@@ -1,0 +1,3 @@
+Artículo 49) Registro de los estudios de operaciones inusuales y de los ROS
+El sujeto obligado debe llevar un registro de los estudios de operaciones inusuales y de los ROS, así como de los resultados de los análisis realizados, los cuales deben estar a disposición de la superintendencia respectiva y de las autoridades competentes.
+Este registro es confidencial y debe contener al menos información del número de oficio y fecha del reporte, cuando corresponda; personas involucradas con las transacciones, zonas geográficas involucradas, productos o servicios de la institución utilizados, y cualquier otra información que el sujeto obligado considere importante para sus análisis, señales de alerta y estadísticas.

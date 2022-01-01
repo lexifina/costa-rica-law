@@ -1,0 +1,2 @@
+Artículo 57) Conocimiento de directivos, miembros de comités, socios y beneficiarios finales
+El sujeto obligado debe establecer y aplicar políticas y procedimientos con base en riesgos que permitan asegurar un alto nivel de integridad de sus socios, beneficiarios finales, miembros del órgano de dirección, miembros externos de comités, mediante la evaluación de al menos antecedentes personales, judiciales, laborales y patrimoniales.

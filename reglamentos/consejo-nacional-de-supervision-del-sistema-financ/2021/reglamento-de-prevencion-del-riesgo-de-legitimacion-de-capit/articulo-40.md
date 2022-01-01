@@ -1,0 +1,3 @@
+Artículo 40) Partidos políticos
+Los sujetos obligados deben contar con políticas y procedimientos con base en riesgo para la aceptación y mantenimiento de la relación comercial con clientes partidos políticos y aplicar una diligencia debida reforzada sobre los flujos de dinero en sus cuentas. Estas políticas y procedimientos deben permitir al menos la identificación de los contribuyentes (nombre y número de identificación), así como el origen de los fondos provenientes de las contribuciones, donaciones o aportes que reciban los partidos políticos.
+Para establecer relaciones comerciales con partidos políticos, el sujeto obligado debe obtener la aprobación expresa de la alta gerencia.

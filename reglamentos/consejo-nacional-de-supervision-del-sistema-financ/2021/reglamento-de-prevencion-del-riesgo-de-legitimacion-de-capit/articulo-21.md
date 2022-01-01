@@ -1,0 +1,17 @@
+Artículo 21) Requisitos para disponer de la oficialía de cumplimiento corporativa
+Para poder contar con una oficialía de cumplimiento corporativa, el órgano de dirección de la
+entidad controladora de los grupos o conglomerados financieros debe verificar y documentar que cumple con:
+a) Las políticas de gobierno corporativo son aplicables a todas las empresas del grupo o conglomerado financiero.
+b) Cuenta con políticas y procedimientos para la oficialía de cumplimiento corporativa.
+c) El oficial de cumplimiento titular corporativo y el oficial de cumplimiento adjunto corporativo dependen jerárquicamente del órgano de dirección de la controladora, salvo en las entidades públicas con norma expresa en contrario, y administrativamente de la gerencia
+general o puesto equivalente de la empresa con mayor representación de activos totales del
+grupo o conglomerado financiero, o de las empresas solicitantes.
+d) La oficialía de cumplimiento cuenta con los recursos humanos y presupuesto que le permita ejecutar sus labores de forma eficiente.
+e) Cada una de las empresas del grupo o conglomerado financiero cuenta con la metodología de evaluación del riesgo del sujeto obligado y con la metodología de clasificación de riesgo de los clientes que se establece en este reglamento, y se presentan informes periódicos al órgano de dirección.
+f) Se cuenta con un proceso de monitoreo, sistemas de monitoreo y herramientas especializadas de monitoreo, para todas las empresas del grupo o conglomerado financiero de acuerdo con lo requerido en este reglamento.
+g) Todas las empresas del grupo o conglomerado financiero cuentan con la estructura de control que requiere este reglamento para dar seguimiento a la gestión de los riesgos y prácticas de LC/FT/FPADM, entre otros, el comité de cumplimiento, la función de auditoría interna y la auditoría externa.
+h) Se cuenta con el acuerdo del órgano de dirección de cada una de las entidades integrantes del grupo o conglomerado financiero y de la controladora, autorizando el nombramiento del oficial de cumplimiento titular y/o adjunto corporativo.
+i) Se cuenta con un informe de análisis de riesgo, ratificado por el área de riesgos y aprobado por el órgano de dirección, que demuestre la viabilidad técnica y operativa, así como el fortalecimiento del sistema de prevención de LC/FT/FPADM.
+j) Se encuentra al día en la ejecución de los planes correctivos sobre las debilidades reportadas por las superintendencias, función de auditoría interna y la auditoría externa.
+El nombramiento del oficial de cumplimiento titular corporativo y del oficial de cumplimiento adjunto corporativo debe atender los requisitos de idoneidad establecidos en este reglamento para el oficial de cumplimiento, constar en actas del órgano de dirección y ser remitido a las superintendencias relacionadas con el grupo o conglomerado financiero, dentro de los tres días hábiles posteriores a que el acuerdo se encuentre en firme.
+Cuando la superintendencia responsable de la supervisión de un sujeto obligado integrante del grupo o conglomerado financiero determine que no se ejecutan las actividades de control y prevención; se ejecutan de manera inadecuada; o bien, cuando estas no resulten eficaces, eficientes u oportunas, podrá recomendar de manera fundamentada el nombramiento de un oficial de cumplimiento titular y un oficial de cumplimiento adjunto para el sujeto obligado.

@@ -1,0 +1,14 @@
+Sección III
+Monitoreo y Sistemas de Monitoreo
+Artículo 46 Monitoreo y sistemas de monitoreo
+El sujeto obligado debe implementar un proceso de monitoreo y aplicar sistemas de monitoreo, que consideren al menos lo siguiente:
+a) Se deben establecer políticas, procedimientos y programas de monitoreo continuo e intensificado de clientes, según sus características, perfil de riesgo y perfil transaccional.
+Asimismo, el programa debe incluir rutinas para dar seguimiento oportuno a: i) transacciones de alta cuantía (por ejemplo, que con una única transacción o con varias durante un día se supere el perfil transaccional mensual declarado), ii) uso de productos y servicios (por ejemplo, transferencias internacionales), iii) tipo de transacciones (por ejemplo, alto volumen de efectivo), localizaciones geográficas, actividades económicas, entre otras, basadas en su nivel de riesgo.
+b) El o los sistemas de monitoreo deben estar en capacidad de alertar cuando el perfil transaccional real del cliente supera el perfil transaccional mensual declarado, de forma que se proceda con la revisión y análisis de las transacciones asociadas y la solicitud del respaldo o justificación del cambio en el comportamiento. En complemento, se deben implementar procedimientos y controles para asegurar un adecuado y permanente análisis sobre la razonabilidad del perfil transaccional mensual declarado del cliente, en la fase de vinculación y mientras permanezca la relación.
+En los casos en que aplique, el o los sistemas de monitoreo deben estar en la capacidad de alertar cuando el perfil transaccional del cliente no es congruente con la capacidad de inversión.
+c) El o los sistemas de monitoreo deben estar en capacidad de identificar el vínculo entre clientes que mantengan relación de tipo patrimonial o de representación legal, con el fin de fortalecer el monitoreo sobre grupos económicos, así como otro tipo de vínculos, tales como
+direcciones o teléfonos comunes.
+d) El o los sistemas de monitoreo deben operar en herramientas informáticas especializadas, que permitan un monitoreo confiable, oportuno y efectivo para la prevención de los riesgos de LC/FT/FPADM.
+e) Las herramientas informáticas especializadas deben estar parametrizadas con reglas acordes al negocio, que permitan un monitoreo continuo de las cuentas y servicios ofrecidos a los clientes, de forma que genere alertas oportunas y reportes para identificar comportamientos transaccionales inusuales.
+f) Se debe realizar la revisión constante de las publicaciones de organizaciones como el GAFI, ONU, OFAC, y organismos internacionales e intergubernamentales reconocidos en materia de LC/FT/FPADM, para mantener actualizadas sus señales de alerta.
+g) La evidencia de la revisión, resultados y conclusiones de cada una de las alertas y reportes debe quedar documentada.

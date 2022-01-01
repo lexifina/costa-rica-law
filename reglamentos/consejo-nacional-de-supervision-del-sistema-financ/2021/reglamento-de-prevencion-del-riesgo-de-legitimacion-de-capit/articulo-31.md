@@ -1,0 +1,4 @@
+Artículo 31) Dependencia en terceros
+La dependencia en terceros es la posibilidad de delegar los procesos de identificación del cliente y del beneficiario final y la comprensión de la naturaleza de la actividad comercial de los clientes en un tercero supervisado, con base en las políticas y procedimientos de ese tercero.
+Para los sujetos obligados del sistema financiero nacional, no es aceptable la dependencia en terceros.
+En consecuencia, los sujetos obligados son los responsables únicos y directos de establecer y aplicar sus políticas y procedimientos de debida diligencia en el conocimiento del cliente y el origen de los fondos; esta responsabilidad es indelegable en un tercero, excepto cuando ese tercero se trate de una entidad supervisada que pertenezca a un mismo grupo o conglomerado financiero costarricense.

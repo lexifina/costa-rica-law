@@ -1,0 +1,4 @@
+Artículo 10) Conformación del Comité de cumplimiento
+Corresponde al órgano de dirección definir la cantidad de miembros del Comité de cumplimiento y realizar su nombramiento. Este comité debe estar conformado por personas con un balance de habilidades, competencias y conocimientos, que de forma colectiva posean las aptitudes necesarias para atender sus responsabilidades y debe ser presidido por un miembro del órgano de dirección.
+El Oficial de Cumplimiento y el Gerente General son miembros permanentes de este comité, el oficial de cumplimiento solo con derecho a voz. Además, debe formar parte de este comité un funcionario de alto nivel del área de negocios.
+El órgano de dirección debe considerar la rotación periódica de los miembros no permanentes del comité para evitar la concentración excesiva de poder y promover nuevas perspectivas. Esta rotación debe tomar en cuenta las competencias y experiencia de los miembros nominados.

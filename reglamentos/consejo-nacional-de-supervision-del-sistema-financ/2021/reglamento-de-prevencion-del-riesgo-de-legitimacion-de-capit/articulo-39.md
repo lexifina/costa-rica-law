@@ -1,0 +1,5 @@
+Sección II
+Medidas adicionales para clientes y actividades específicas
+Artículo 39) Personas expuestas políticamente (PEP)
+Los sujetos obligados deben establecer procedimientos para la identificación de PEP, según las pautas determinadas en el Reglamento general sobre legislación contra el narcotráfico, actividades conexas, legitimación de capitales, financiamiento al terrorismo y delincuencia organizada, Decreto 36948-MP-SP-JP-H-S y sus reformas, en adelante referido como Reglamento general de la Ley 7786. Para el caso de personas jurídicas, se debe identificar si cuenta con miembros catalogados como una PEP en el órgano de dirección, socios o beneficiarios finales.
+Para establecer relaciones comerciales con PEP en los términos descritos en el Reglamento general de la Ley 7786 y sus reformas, se debe obtener la aprobación expresa de la alta gerencia. Cuando un cliente ha sido aceptado y posteriormente se determina que el cliente o beneficiario final de una cuenta es, o pasa a ser un PEP, se debe contar con la aprobación de la alta gerencia para continuar con su relación comercial.

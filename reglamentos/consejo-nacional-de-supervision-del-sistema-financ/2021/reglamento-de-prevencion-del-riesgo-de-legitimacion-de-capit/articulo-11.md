@@ -1,0 +1,2 @@
+Artículo 11) Comité de cumplimiento corporativo
+Los grupos y conglomerados financieros pueden constituir un comité de cumplimiento corporativo, que debe atender lo establecido para el comité de cumplimiento. Este comité debe estar conformado por personas con un balance de habilidades, competencias y conocimientos, que de forma colectiva posean las aptitudes necesarias para atender las responsabilidades y necesidades específicas de cada área del mercado financiero en que participen los sujetos obligados miembros del grupo o conglomerado financiero.
