@@ -1,0 +1,4 @@
+ARTÍCULO 79. Amonestación con apercibimiento escrito. La amonestación con apercibimiento escrito se podrá aplicar en los siguientes casos:
+1) Cuando la persona trabajadora incurra en alguna de las prohibiciones establecidas en los incisos a), b), c), d) y e) del artículo 72 del Código de Trabajo, o cuando el incumplimiento de las obligaciones y prohibiciones establecidas en este reglamento sea de tal gravedad que no admita la aplicación de una amonestación escrita. Lo anterior siempre y cuando la conducta no dé mérito para una sanción mayor.
+2) Cuando la persona trabajadora reincida, dentro del plazo de tres meses desde que se le entregó la primera sanción de amonestación, en la comisión de una falta por la cual fue sancionada con una amonestación escrita. Lo anterior siempre y cuando la conducta no dé mérito para una sanción mayor.
+3) Cualquier otra que así lo amerite.

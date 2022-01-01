@@ -1,0 +1,1 @@
+ARTÍCULO 100. Regulación. Todo lo referente a la figuras y los procedimientos disciplinarios tendientes a determinar si existe falta por acoso, de naturaleza sexual o laboral, se regulará en los reglamentos específicos que para ello se encuentren vigentes en el Patronato, por las leyes especiales sobre la materia y cualquier otra normativa que resulte vigente y aplicable.

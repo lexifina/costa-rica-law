@@ -1,0 +1,1 @@
+Artículo 110. Uso de correo institucional. Los sindicatos podrán utilizar el correo institucional para desarrollar acción sindical, atendiendo a principios de buena fe, proporcionalidad y razonabilidad. El uso de la herramienta podrá ser regulado por el Patronato a través de directrices u otros medios.

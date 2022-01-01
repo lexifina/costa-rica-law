@@ -1,0 +1,3 @@
+SECCIÓN III. DE LOS RECARGOS DE FUNCIONES Y SUSTITUCIONES
+ARTÍCULO 51. Implementación. El trabajo de los funcionarios y funcionarias que se encuentren gozando de sus vacaciones, así como el de aquellos que no se presenten a laborar por incapacidad médica, licencia o alguna otra causa análoga, será recargado en el resto del personal de la misma categoría y unidad de trabajo, cuando ello resulte posible, oportuno y conveniente, a criterio del Patronato.
+Cuando no sea posible u oportuno distribuir las labores, el PANI podrá implementar la figura de recargo de funciones, de sustitución y cualquier otra que resulte aplicable.

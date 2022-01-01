@@ -1,0 +1,1 @@
+ARTÍCULO 65. De los permisos que otorga el Patronato. Con las excepciones indicadas en este reglamento, en la normativa interna de la Institución, o expresamente establecidas en la ley, todo permiso que se conceda a los servidores y las servidoras del Patronato será sin goce de salario.

@@ -1,0 +1,1 @@
+ARTÍCULO 85. Forma y momento para contabilizar las ausencias y tardías. Para efectos disciplinarios, las ausencias y las llegadas tardías serán contabilizadas al final de un mismo mes calendario. El PANI notificará los traslados de cargos de dichas faltas dentro del mes calendario siguiente a aquel con respecto al cual se contabilizan.

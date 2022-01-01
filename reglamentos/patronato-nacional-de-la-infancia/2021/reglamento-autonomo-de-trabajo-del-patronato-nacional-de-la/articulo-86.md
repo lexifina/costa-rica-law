@@ -1,0 +1,1 @@
+ARTÍCULO 86. Faltas simultáneas. Cuando un funcionario o una funcionaria haya cometido simultáneamente dos o más faltas que merezcan sanción disciplinaria distinta, se podrá aplicar la sanción correspondiente a la falta de mayor gravedad. No obstante, entre otros posibles factores, la sanción se podrá ver agravada por la concurrencia.

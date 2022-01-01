@@ -1,0 +1,1 @@
+ARTICULO 25. Límite. La suma de la jornada ordinaria y la extraordinaria, no podrá exceder de doce horas diarias, salvo por las excepciones que establezca el ordenamiento jurídico. La eventual superación del límite no exonerará al Patronato del pago de las horas laboradas en la jornada extraordinaria que superen ese límite.

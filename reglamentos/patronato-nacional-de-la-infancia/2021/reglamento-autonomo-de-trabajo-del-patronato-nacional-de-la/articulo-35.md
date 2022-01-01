@@ -1,0 +1,1 @@
+ARTÍCULO 35. Registro en teletrabajo. Cuando el trabajo se desarrolle bajo la modalidad de teletrabajo, el registro de inicio y fin de jornada se realizará a través de los medios que establezca la Institución, de conformidad con el Reglamento que regule esta modalidad de prestación de servicios y su respectivo contrato de trabajo.

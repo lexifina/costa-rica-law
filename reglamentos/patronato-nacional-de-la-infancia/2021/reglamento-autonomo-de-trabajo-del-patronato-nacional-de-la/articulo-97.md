@@ -1,0 +1,2 @@
+ARTÍCULO 97. Publicidad. La Institución tendrá la obligación de dar a conocer a sus funcionarios y funcionarias las disposiciones contenidas en el presente Capítulo y aquellas que le resulten conexas, con el fin de informarles sobre la protección que el Patronato brinda a su personal como parte de su filosofía de trabajo.
+Como parte de las medidas para cumplir con la obligación indicada, el Patronato deberá incluir información referida a los temas indicados dentro del programa de inducción para las personas funcionarias de nuevo ingreso.

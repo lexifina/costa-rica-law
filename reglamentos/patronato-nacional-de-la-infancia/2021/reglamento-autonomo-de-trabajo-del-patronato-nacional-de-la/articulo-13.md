@@ -1,0 +1,1 @@
+ARTÍCULO 13. Base de elegibles. Luego de cada concurso, la Institución podrá mantener una base de datos de elegibles, de conformidad con la Ley de Protección de la Persona frente al tratamiento de sus datos personales, con el consentimiento informado de quienes concursan, para efectos de facilitar y agilizar los futuros procesos de reclutamiento.

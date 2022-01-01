@@ -1,0 +1,1 @@
+Artículo 108. Representación. A efecto de que sus intereses sean debidamente tutelados, las personas trabajadoras del PANI, tendrán derecho a hacerse representar o acompañar de una persona representante sindical, sus gestiones individuales o colectivas, conforme a las disposiciones del artículo 360 del Código de Trabajo.

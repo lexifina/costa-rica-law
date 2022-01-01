@@ -1,0 +1,3 @@
+SECCIÓN II. DEL AGUINALDO
+ARTÍCULO 50. Derecho al aguinaldo. Todas las personas trabajadoras del Patronato tendrán derecho a un beneficio económico anual, equivalente a un mes de salario.
+Dicho beneficio será pagado dentro de los primeros diez días del mes de diciembre de cada año y será calculado con base en el promedio de los salarios ordinarios y extraordinarios recibidos por el funcionario o la funcionaria durante el período utilizado para el cálculo. En el caso de personas trabajadoras que hubieren laborado menos de un año, el pago será proporcional a los salarios ordinarios y extraordinarios percibidos en el tiempo laborado durante dicho período.

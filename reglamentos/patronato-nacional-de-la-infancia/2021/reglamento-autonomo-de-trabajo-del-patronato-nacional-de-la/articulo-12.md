@@ -1,0 +1,1 @@
+ARTÍCULO 12. Período de prueba. Todo nombramiento por traslado, permuta, en ascenso o en propiedad, estará sujeto a un período de prueba de tres meses. Respecto al nombramiento en propiedad, el período de prueba también aplicará cuando la persona trabajadora sea funcionario o funcionaria de la Institución nombrado a tiempo determinado en la misma plaza de la que se trate.

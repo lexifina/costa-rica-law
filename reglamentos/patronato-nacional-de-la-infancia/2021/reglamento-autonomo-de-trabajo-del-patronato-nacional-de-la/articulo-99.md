@@ -1,0 +1,2 @@
+ARTÍCULO 99. Obligaciónes de las jefaturas y las personas trabajadoras. Las jefaturas serán responsables de promover la convivencia respetuosa, con acciones enfocadas a la prevención y atención de las manifestaciones de acoso y/o discriminación que se presenten en las dependencias a su cargo.
+Las personas trabajadoras del Patronato son responsables de no incurrir en comportamientos de acoso y/o discriminación en el lugar de trabajo e informar de casos que, razonablemente, crean que se están presentando.

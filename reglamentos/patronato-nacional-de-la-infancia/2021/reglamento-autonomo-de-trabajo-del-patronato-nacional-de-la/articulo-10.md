@@ -1,0 +1,1 @@
+ARTÍCULO 10. Regulación interna. El procedimiento de reclutamiento y selección de personal será regulado mediante reglamento interno, que establecerá los lineamientos para seleccionar a los funcionarios y funcionarias del Patronato.
