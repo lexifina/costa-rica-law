@@ -1,0 +1,1 @@
+Artículo 6.- De conformidad con el numeral 2 de la parte dispositiva de la Resolución N° 450-2021 (COMIECO-EX) de fecha 22 de julio de 2021; Costa Rica aplica un arancel de 0% a los incisos arancelarios contenidos en el Decreto Ejecutivo N° 31565-COMEX de fecha 01 de diciembre de 2003, publicado en el Alcance N° 63-A al Diario Oficial La Gaceta N° 245 del 19 de diciembre de 2003.

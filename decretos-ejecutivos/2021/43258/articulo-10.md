@@ -1,0 +1,3 @@
+Artículo 10.- El presente Decreto Ejecutivo rige a partir del 01 de enero de 2022.
+Dado en la Presidencia de la República, a los dieciséis días del mes de setiembre del año dos mil veintiuno.
+PUBLÍQUESE.
