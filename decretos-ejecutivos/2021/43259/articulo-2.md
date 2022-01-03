@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Deróguese el Decreto Ejecutivo N° 38414-COMEX-MEIC-S del 28 de febrero de 2014, que publicó la Resolución N° 333-2013 (COMIECO-LXVI) de fecha 12 de diciembre de 2013, todo de conformidad con el numeral 3 de la parte dispositiva de la Resolución N° 446-2021 (COMIECO-XCIV) de fecha 28 de abril de 2021.
