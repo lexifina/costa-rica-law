@@ -14,3 +14,4 @@ Creación de la Comisión Institucional de Ética y Valores del Ministerio de Se
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-01 | la propia norma |
+| 2 | 2022-01-05 | Acuerdo 2 (2022-01-05) |
