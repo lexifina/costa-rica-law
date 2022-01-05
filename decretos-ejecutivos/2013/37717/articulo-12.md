@@ -19,7 +19,7 @@ Farmacología Clínica.
 Fisiología Humana.
 Gerontología. (Nota de Sinalevi: Mediante sesión N° 2021-04-28 del 28 de abril del 2021 se acordó reconocer el sinónimo de la Maestría en Gerontología Social como sinónimo de la Maestría en Gerontología)
 Gerencia de la Calidad (Así adicionada la maestría anterior mediante sesión ordinaria N° 2021-06.30 del 30 de junio del 2021)
-Gerencia de la Salud.
+Gerencia de la Salud. Se reconoce como sinónimo de esta maestría el siguiente termino: Gerencia Hospitalaria y Servicios de Salud. (Así reformada la maestría anterior mediante sesión ordinaria N° 2022-01-05 del 05 de enero del 2022)
 Homeopatía.
 Informática Médica.
 Maestría Académica en Ciencias Médicas y Quirúrgicas (Así adicionada la maestría anterior mediante sesión ordinaria N° 2017-09-27 del 27 de setiembre del 2017)
