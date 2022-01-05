@@ -13,3 +13,4 @@ Adición a la circular Nº 176-2013, denominada “Protocolo sobre el procedimie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-08 | la propia norma |
+| 2 | 2022-01-05 | Circular 2 (2022-01-05) |
