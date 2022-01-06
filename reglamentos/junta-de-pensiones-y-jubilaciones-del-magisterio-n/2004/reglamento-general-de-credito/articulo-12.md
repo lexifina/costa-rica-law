@@ -5,7 +5,8 @@ c) Debe tener disponibilidad y autorizar la pignoración de la póliza de la Soc
 d) Debe presentar cédula de identidad vigente y en buen estado.
 e) Los trabajadores en servicio deben presentar el documento de calificación de riesgo de la SUGEF.
 f) Debe proporcionar satisfactoriamente los datos de contactos requeridos solicitados por la Unidad de Crédito.
-g) Debe presentar y cumplir con los documentos y requisitos adicionales, que le solicite la Unidad de Crédito, en caso de considerarse necesario.
+g) Las cuotas del crédito, incluyendo amortización, pago de intereses y pólizas, son deducidas del salario, la pensión o jubilación, previa autorización del interesado.
+(Así reformado el inciso anterior mediante sesión N° 0004-2022 del 6 de enero de 2022)
 h) Garantía: Esta línea de crédito puede aprobarse con o sin fiador, según se detalla:
 Pensionados y jubilados (as):
 Hasta | ¢5.000.000,00 | Sin fiador
@@ -17,3 +18,8 @@ Hasta | ¢2.000.000,00 | 1 fiador
 Trabajadores en Servicio: Centros Educativos Privados (en Propiedad e Interinos)
 Hasta | ¢2.000.000,00 | 1 fiador
 ¢2.000.001,00 | ¢5.000.000,00 | 2 fiadores
+(*)i) Garantía: Esta línea de crédito puede aprobarse con o sin fiador, según se detalla:
+Trabajadores en Servicio: Centros Educativos Privados (en Propiedad e Interino) con al menos 36 cotizaciones aportadas al régimen en los últimos 48 meses.
+Hasta | ¢2.000.000,00 | 1 fiador
+¢2.000.001,00 | ¢5.000.000,00 | 2 fiadores
+(*) (Así adicionado el inciso anterior mediante sesión N° 0004-2022 del 6 de enero de 2022)

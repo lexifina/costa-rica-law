@@ -43,3 +43,4 @@ Reglamento General de Crédito
 | 28 | 2021-04-29 | Reglamento 47 (2021-04-29) |
 | 29 | 2021-06-18 | Reglamento 69 (2021-06-18) |
 | 30 | 2021-11-05 | Reglamento 124 (2021-11-05) |
+| 31 | 2022-01-06 | Reglamento 4 (2022-01-06) |

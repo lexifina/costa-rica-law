@@ -1,7 +1,8 @@
 Artículo 5°-Tasas de interés. La tasa de interés vigente para cada línea de crédito es la siguiente:
 a) Línea de gastos personales: 10,88% anual fija sobre saldos.
 b) Línea de pago de deuda al fondo de pensión: 9% anual fija sobre saldos.
-c) Línea de microempresa: 9% anual fija sobre saldos, los primeros 5 años. Posterior a este plazo Tasa Básica Pasiva + 4 puntos porcentuales.
+c) Línea MYPIME: 8,5% anual fija sobre saldos, durante todo el plazo.
+(Así reformado el inciso anterior mediante sesión N° 0004-2022 del 6 de enero de 2022)
 d) Línea para entidades sociales y financieras del Magisterio Nacional: según acuerdo en sesión de Junta Directiva de JUPEMA.
 e) Línea de salud: 8% anual fija sobre saldos.
 f) Derechos sucesorios: 11% anual fija sobre saldos.

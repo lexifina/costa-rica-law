@@ -1,2 +1,2 @@
-Artículo 15.-Coberturas en caso de fallecimiento. Como garantía en el proceso de formalización del crédito, el solicitante debe autorizar la suscripción de las coberturas según se detalla en cada línea, de conformidad con el tipo de patrono y condición laboral del deudor, por la totalidad del monto adeudado. Este proceso debe ser ejecutado en el acto del registro de la solicitud de crédito.
-(Así reformado en Sesión Ordinaria N° 0124-2021 del 5 de noviembre del 2021)
+Artículo 15.-Coberturas en caso de fallecimiento. Como garantía en el proceso de formalización del crédito, el solicitante debe autorizar la suscripción de las coberturas mediante pólizas o seguros, según se detalla en cada línea, de conformidad con el tipo de patrono y condición laboral del deudor, por la totalidad del monto adeudado. Este proceso debe ser ejecutado en el acto del registro de la solicitud de crédito
+(Así reformado mediante sesión N° 0004-2022 del 6 de enero de 2022)

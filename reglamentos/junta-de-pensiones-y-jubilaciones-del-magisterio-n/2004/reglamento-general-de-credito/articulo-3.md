@@ -1,7 +1,8 @@
 Artículo 3°-Plazos. El plazo máximo para financiar cada línea de crédito es el siguiente:
 a. Línea de gastos personales 5 años.
 b. Línea de pago de deuda de pensión 15 años.
-c. Línea de microempresa 18 años.
+c. Línea MYPIME 20 años
+(Así reformado el inciso anterior mediante sesión N° 0004-2022 del 6 de enero de 2022)
 d. Línea para entidades sociales y financieras del Magisterio Nacional, según se acuerde en sesión de Junta Directiva de JUPEMA.
 e. Línea de salud 8 años.
 f. Derechos sucesorios 8 años.

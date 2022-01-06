@@ -3,7 +3,8 @@ Toda solicitud de crédito debe ser presentada ante la Unidad de Crédito de JUP
 El monto que debe depositarse a favor de JUPEMA, para cubrir el pago de los servicios profesionales que se requieran en el estudio del crédito se determinará según las cotizaciones que se realicen con los profesionales asignados y según se indique en los Colegios Profesionales correspondientes. Podrá la Junta Directiva de JUPEMA decidir si asume estos costos.
 Debe indicarse que la realización de estos estudios y el depósito de la suma indicada no implica la aprobación del crédito.
 El expediente debe contar, al menos, con los siguientes documentos:
-a) Solicitud detallada: presentada por escrito y firmada por el representante legal, donde se exponga el plan de inversión con la información de soporte correspondiente, indicando al menos: monto, número telefónico, correo electrónico, nombre completo y cargo que ocupa el que firma la nota.
+a) Solicitud detallada: presentada y firmada por el representante legal, donde se exponga el plan de inversión con la información de soporte correspondiente, indicando al menos: monto, número telefónico, correo electrónico, nombre completo y cargo que ocupa el que firma la nota.
+(Así reformado el inciso anterior mediante sesión N° 0004-2022 del 6 de enero de 2022)
 b) Copia del acuerdo de la Junta Directiva o Asamblea, donde se tomó la decisión de solicitar el crédito y nombrar a la persona que realizará y dará seguimiento al respectivo trámite ante JUPEMA, así como cualquier otra información que consideren relevante.
 c) Copia del convenio celebrado entre JUPEMA y la Institución solicitante, donde conste el plan de beneficios a ofrecer a los afiliados al Régimen del Magisterio Nacional, a través del crédito solicitado.
 d) Certificación original reciente de la personería jurídica, donde indique los nombres de los integrantes de la Junta Directiva, el Representante Legal y sus respectivas facultades.
