@@ -1,0 +1,1 @@
+Artículo 2º-Esta Política estará disponible en el sitio web de la Dirección de Energía (DE), en la dirección electrónica https://energia.minae.go.cr/, La versión impresa del documento se custodiará en la Dirección de Energía (DE), en el piso segundo del edificio anexo del Ministerio de Ambiente y Energía (MINAE).
