@@ -66,3 +66,4 @@ Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería
 | 51 | 2017-11-13 | Decreto Ejecutivo 41011 (2017-11-13) |
 | 52 | 2019-02-15 | Resolución 6 (2019-02-15) |
 | 53 | 2020-03-06 | Resolución 16 (2020-03-06) |
+| 54 | 2022-01-06 | Resolución 1 (2022-01-06) |
