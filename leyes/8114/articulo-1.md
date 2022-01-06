@@ -3,7 +3,8 @@ LA ASAMBLEA LEGISLATIVA
 CAPÍTULO I
 Modificación de la carga tributaria
 que pesa sobre los combustibles
-Artículo 1º-Objeto, hecho generador y sujetos pasivos. Establécese un impuesto único por tipo de combustible, tanto de producción nacional como importado, según se detalla a continuación:
+Artículo 1ºObjeto, hecho generador y sujetos pasivos. Se establece un impuesto único por tipo de combustible, tanto de producción nacional como importado, según se detalla a continuación:
+(Así reformado el párrafo anterior por el artículo único de la ley N° 10110 del 5 de enero del 2022, "Reducción del impuesto único al Gas LPG, contenido en el artículo 1 de la ley N° 8114 Ley de Simplificación y Eficacia Tributaria”)
 Tipo de combustible por litro | Impuesto en colones (¢)
 Gasolina regular | ¢255,75
 Gasolina súper | ¢267,75
@@ -11,7 +12,7 @@ Diésel | ¢151,25
 Asfalto | ¢52,00
 Emulsión asfáltica | ¢39,25
 Búnker | ¢24,75
-LPG | ¢52,00
+LPG | ¢ 24 (Así reformado el monto anterior por el artículo único de la ley N° 10110 del 5 de enero del 2022 "Reducción del impuesto único al Gas LPG, contenido en el artículo 1 de la ley N° 8114 Ley de Simplificación y Eficacia Tributaria”)
 Jet Fuel A1 | ¢153,50
 Av. Gas | ¢255,75
 Queroseno | ¢73,00
