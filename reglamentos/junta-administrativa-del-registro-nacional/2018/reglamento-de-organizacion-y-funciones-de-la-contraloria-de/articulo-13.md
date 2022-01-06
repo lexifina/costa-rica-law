@@ -1,1 +1,0 @@
-Artículo 13.—Presentación de gestiones ante la Contraloría de Servicios. Las consultas, sugerencias, felicitaciones, inconformidades, denuncias y solicitudes de información pública presentadas deberán ser tramitadas en los plazos establecidos por el ordenamiento jurídico.

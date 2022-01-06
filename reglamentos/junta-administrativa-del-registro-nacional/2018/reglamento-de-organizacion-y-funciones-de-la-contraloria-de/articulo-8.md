@@ -1,1 +1,0 @@
-Artículo 8º—De sus atribuciones. La Contraloría de Servicios es la instancia que le corresponde asesorar, canalizar y mediar en las gestiones presentadas por las personas usuarias, con relación a los servicios que brinda la Institución.

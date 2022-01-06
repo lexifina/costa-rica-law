@@ -1,2 +1,0 @@
-Artículo 21.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
-San José, 07 de agosto del 2018.
