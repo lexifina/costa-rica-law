@@ -1,1 +1,0 @@
-Art 2°.- Cada vez que se soliciten beneficios de franquicias y concesiones de orden administrativos y económicos, originados en esta declaratoria de utilidad pública deberá la solicitud contar con la aprobación previa del Ministerio de Hacienda.
