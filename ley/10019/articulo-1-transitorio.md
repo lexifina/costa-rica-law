@@ -1,0 +1,1 @@
+TRANSITORIO I- Hasta que no sean elegidos los regidores, síndicos, concejales, la alcaldía y las vicealcaldías, se autoriza a los actuales concejales, intendente y viceintendente del Concejo Municipal de Distrito de Monteverde para que tomen las decisiones para continuar administrando los intereses y servicios locales del cantón de Monteverde.

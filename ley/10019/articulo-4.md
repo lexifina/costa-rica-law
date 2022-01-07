@@ -1,0 +1,2 @@
+ARTÍCULO 4- Proceso de transición
+El Concejo Municipal de Distrito de Monteverde, en caso de que así lo considere necesario, coordinará el proceso de transición con el Ministerio de Planificación Nacional y Política Económica (Mideplí3n) y el Instituto de Fomento y Asesoría Municipal (IFAM), en conjunto con la Municipalidad de Puntarenas. La Contraloría General de la República deberá brindar al nuevo cantón, en coordinación con Mideplán y el IFAM, cada uno en el ámbito de sus competencias, la asesoría necesaria que facilite la transición presupuestaria correspondiente.
