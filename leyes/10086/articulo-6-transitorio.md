@@ -1,0 +1,3 @@
+TRANSITORIO VI- Los contratos vigentes con anterioridad a la entrada en vigencia de esta ley, emitidos al amparo del "Reglamento generación distribuida para autoconsumo con fuentes renovables modelo de contratación medición neta sencilla", Decreto Ejecutivo 39 220, seguirán rigiéndose bajo la normativa actual hasta la aprobación del reglamento de esta ley, el cual deroga el actual en lo que LEY N.º 10086 12 se le oponga, así como la aprobación por parte de Aresep de los instrumentos regulatorios que prevé esta.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los ocho días del mes de diciembre del año dos mil veintiuno.
