@@ -1,0 +1,2 @@
+ARTÍCULO 10- Trámite municipal y habilidad ambiental
+La instalación, la conexión, la interacción y el control de recursos energéticos distribuidos, basados en fuentes de energías renovables de los abonados interconectados a la red del SEN y en operación en isla, no requerirán permiso u autorización municipal, ni viabilidad ambiental ante la Secretaría Técnica Nacional Ambiental (Setena), en los, siguientes casos: se trate de potencias menores a 500 kVA o que la estructura existente que soporta la instalación de los sistemas cuente con la licencia de viabilidad ambiental.

@@ -1,0 +1,6 @@
+ARTÍCULO 12- Condiciones aplicables a la operación con entrega de excedentes a la red y prestación de servicios auxiliares
+A efectos de la presente ley, en la compensación económica de excedentes de energía eléctrica en esta modalidad se deberán atender las siguientes condiciones:
+a) Respetar la equivalencia económica del momento en que fueron entregados según la estructura tarifaría horaria y período estacional, que corresponda en el momento de la entrega.
+b) Exista interés de la empresa distribuidora en la que el generador distribuido está conectado en adquirir dichos excedentes y siempre que dicha adquisición de excedentes suponga un beneficio económico para la empresa distribuidora y el resto de sus abonados, y sin que sea obligatorio para la empresa distribuidora.
+c) Las compras de excedentes de energía eléctrica y la prestación de servicios auxiliares deberán responder a criterios de oportunidad, necesidad, eficiencia y conveniencia que, en forma motivada y razonada técnica y económicamente, definan las empresas distribuidoras de energía eléctrica.
+d) Las empresas distribuidoras podrán comprar excedentes de energía y servicios auxiliares a los generadores distribuidos pertenecientes a la zona de competencia territorial de la empresa distribuidora, para la atención de sus necesidades.

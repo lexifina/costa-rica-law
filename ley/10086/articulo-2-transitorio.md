@@ -1,0 +1,1 @@
+TRANSITORIO II- La Aresep tendrá un plazo no superior a doce meses, contado a partir de la publicación de la presente ley, para fijar las tarifas y los instrumentos regulatorios que sean necesarios para la adecuada integración de los recursos energéticos distribuidos que se interconecten a las redes del SEN.
