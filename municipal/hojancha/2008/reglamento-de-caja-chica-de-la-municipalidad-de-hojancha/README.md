@@ -15,3 +15,4 @@ Reglamento de Caja Chica de la Municipalidad de Hojancha
 | --- | --- | --- |
 | 1 | 2008-02-15 | la propia norma |
 | 2 | 2021-03-08 | Reglamento municipal 45 (2021-03-08) |
+| 3 | 2022-01-10 | Reglamento municipal 89 (2022-01-10) |
