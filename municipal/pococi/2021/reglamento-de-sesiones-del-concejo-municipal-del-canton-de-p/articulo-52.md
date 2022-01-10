@@ -1,0 +1,1 @@
+Artículo 52.-Los dictámenes de las comisiones deberán presentarse por escrito y firmados por el presidente de la comisión y el secretario (a) de esta. Cada dictamen debe tener un número consecutivo que haga referencia al número de dictamen, el año en que se emite y las siglas de la respectiva comisión.

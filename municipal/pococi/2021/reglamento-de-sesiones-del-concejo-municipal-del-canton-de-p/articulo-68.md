@@ -1,0 +1,1 @@
+Artículo 68.-Todo acuerdo del Concejo Municipal que resuelva una situación jurídica de una o un particular, necesariamente deberá indicar los recursos que le caben al acuerdo, el plazo para presentarlos y el lugar donde debe presentarlos.

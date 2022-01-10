@@ -1,0 +1,2 @@
+Artículo 89.-De igual manera no devengarán dietas, aquellos que se retiren temporalmente de la conexión sin autorización de la presidencia, quienes se hayan retirado virtualmente previo a su finalización y quienes no permanezcan conectados durante toda la sesión virtual y con la cámara encendida.
+Se exceptúa de lo anterior, lo establecido en el presente reglamento, respecto al uso del período de lactancia a favor de las ediles que así lo requieran y lo hayan solicitado expresamente a la presidencia municipal.

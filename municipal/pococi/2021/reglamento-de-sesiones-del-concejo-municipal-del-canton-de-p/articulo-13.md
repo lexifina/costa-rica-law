@@ -1,0 +1,1 @@
+Artículo 13.-El cuórum para las sesiones será la mitad más uno de todos y todos los miembros del Concejo. Deberán encontrarse en el salón de sesiones, ocupando sus respectivas curules al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

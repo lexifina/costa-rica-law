@@ -1,0 +1,1 @@
+Artículo 53.-Los acuerdos de comisión se aprobarán por simple mayoría de votos, pero cuando no existiere un acuerdo unánime sobre un dictamen, los miembros de minoría deberán rendir dictamen justificando su posición.

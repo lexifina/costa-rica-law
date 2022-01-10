@@ -1,0 +1,1 @@
+Artículo 83.-La presidencia consignará los votos de cada uno de los regidores, para lo que deberán indicar de viva voz, si su voto es positivo o negativo, y el nombre completo de la regiduría que emite el voto. Igual se procederá con la declaratoria de firmeza de los acuerdos.

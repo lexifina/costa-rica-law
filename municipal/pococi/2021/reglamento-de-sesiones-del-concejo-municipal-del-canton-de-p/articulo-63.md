@@ -1,0 +1,1 @@
+Artículo 63.-La Secretaría remitirá al Concejo Municipal, las solicitudes que presente la ciudadanía de acuerdo con el orden de presentación. El Concejo decidirá si acepta o no la petición formulada, tomando en cuenta el interés municipal, la oportunidad y sobre todo si lo solicitado se ajusta al principio de legalidad.

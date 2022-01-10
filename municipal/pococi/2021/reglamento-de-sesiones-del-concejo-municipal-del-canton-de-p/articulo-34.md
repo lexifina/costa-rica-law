@@ -1,0 +1,1 @@
+Artículo 34.-Cualquier funcionaria o funcionario municipal podrá ser llamado a las sesiones del Concejo Municipal cuando este lo acuerde, y sin que para ello deba pagársele remuneración alguna, todo de conformidad con lo establecido en el artículo 40 del Código Municipal, respetando sus derechos laborales.

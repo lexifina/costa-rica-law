@@ -1,0 +1,1 @@
+Artículo 67.-Finalizadas las exposiciones de los particulares la Presidencia concederá la palabra a las regidurías propietarias y suplentes, a las sindicaturas propietarios y a la alcaldía, si lo solicitan, con el fin de intercambiar brevemente opiniones con los visitantes sobre el asunto de que se trate. Dichas intervenciones no podrán más de tres minutos.

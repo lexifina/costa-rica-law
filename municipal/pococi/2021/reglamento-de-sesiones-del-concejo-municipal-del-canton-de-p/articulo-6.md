@@ -1,0 +1,1 @@
+Artículo 6º-De las sindicaturas propietarias y suplentes. Deberán asistir a todas las sesiones del Concejo Municipal, en representación de su distrito, con derecho a voz, pero sin voto. Podrán participar en las comisiones permanentes en calidad de asesores y también podrán formar parte de las comisiones especiales.

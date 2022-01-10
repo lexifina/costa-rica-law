@@ -1,0 +1,1 @@
+Artículo 93.-En todo lo no previsto en el presente reglamento regirán las disposiciones del Código Municipal, la Ley General de Administración Pública, y toda la normativa aplicable a la materia aquí regulada.

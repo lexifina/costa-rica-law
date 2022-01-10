@@ -1,0 +1,2 @@
+Artículo 11.-Las sesiones ordinarias se efectuarán en la sede de la municipalidad, sin embargo, con fundamento en el artículo 37 del Código Municipal, podrán celebrarse en cualquier lugar del cantón, cuando vayan a tratarse asuntos relativos a los intereses de los vecinos de la localidad donde se vaya a celebrar.
+En este último caso, previo a la sesión debe de invitarse a las y los vecinos del lugar donde se realizará la sesión a efectos de que los interesados hagan llegar sus propuestas de temas a tratar en la sesión correspondiente.

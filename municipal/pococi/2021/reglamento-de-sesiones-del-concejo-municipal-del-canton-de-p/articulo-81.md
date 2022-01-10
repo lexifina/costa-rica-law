@@ -1,0 +1,1 @@
+Artículo 81.-Para garantizar la simultaneidad, colegialidad y deliberación, cada uno de los asistentes a las sesiones, deberán mantener su cámara activada durante toda la sesión, salvo que pidan permiso a la presidencia para los tiempos de receso.

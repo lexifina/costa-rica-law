@@ -1,0 +1,1 @@
+Artículo 87.-La presencia virtual de los ediles por medio de videoconferencia será remunerada mediante la dieta correspondiente. Sin embargo, al igual que en el caso de sesiones presenciales, es indispensable que la sesión se haya celebrado sin interrupciones técnicas, de manera continua y que los miembros hayan estado presentes virtualmente en la totalidad de la reunión.

@@ -1,0 +1,1 @@
+Artículo 44.-Durante la discusión de los asuntos, todos y todas las intervinientes, deberán de referirse en forma respetuosa sobre los temas en discusión y en especial a las personas presentes en el salón de sesiones.

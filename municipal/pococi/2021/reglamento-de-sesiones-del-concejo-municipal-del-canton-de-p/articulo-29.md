@@ -1,0 +1,1 @@
+Artículo 29.-De las sesiones extraordinarias. Las sesiones extraordinarias deberán celebrarse el día y la hora que se indique en la convocatoria. La convocatoria debe hacerse con un mínimo de veinticuatro horas de anticipación a su celebración, y se señalará el objeto de la sesión, mediante el acuerdo municipal o según el artículo 17, inciso m) del Código Municipal.

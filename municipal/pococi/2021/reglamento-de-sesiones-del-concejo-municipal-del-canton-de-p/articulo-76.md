@@ -1,0 +1,1 @@
+Artículo 76.-Las sesiones ordinarias virtuales se realizarán el mismo día y hora que el Concejo Municipal acordó para las presenciales, con un período de gracia máximo de quince minutos, tal y como está establecido en el artículo 38 del Código Municipal y serán remuneradas.

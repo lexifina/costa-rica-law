@@ -1,0 +1,1 @@
+Artículo 2º-El Concejo Municipal es un órgano colegiado con las funciones que al efecto establece el artículo 13 del Código Municipal. La Alcaldía es un órgano ejecutivo con las atribuciones y obligaciones que establece el artículo 17 del Código Municipal.
