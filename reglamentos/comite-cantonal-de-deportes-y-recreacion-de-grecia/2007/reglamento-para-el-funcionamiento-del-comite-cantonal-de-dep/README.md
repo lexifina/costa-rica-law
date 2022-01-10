@@ -15,3 +15,4 @@ Reglamento para el Funcionamiento del Comité Cantonal de Deportes y Recreación
 | --- | --- | --- |
 | 1 | 2007-11-22 | la propia norma |
 | 2 | 2020-07-09 | Reglamento municipal 0 (2020-07-09) |
+| 3 | 2022-01-10 | Reglamento municipal 135 (2022-01-10) |
