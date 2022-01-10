@@ -26,4 +26,5 @@ articulo-14-transitorio.md
 articulo-15-transitorio.md
 articulo-16-transitorio.md
 articulo-17-transitorio.md
+articulo-18-transitorio.md
 articulo-12.md
