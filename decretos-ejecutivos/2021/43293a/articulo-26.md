@@ -1,0 +1,4 @@
+Artículo 26. Marcado general de mercancías.
+1. La leyenda a que se refiere el Artículo 25, deberá figurar en forma clara directamente sobre las mercancías que se comercialicen entre las Partes. No obstante, si dichas mercancías, ya sea por su tamaño, naturaleza, o por la forma en que se comercialicen no se prestaren a ello, la leyenda en cuestión deberá figurar claramente en las envolturas, cajas, envases, empaques o recipientes que las contengan.
+2. En las mercancías que se comercialicen a granel o sin empaque, caja o envoltura de ninguna clase, bastará la identificación de país de origen en la DUCA-F que los ampare al ser objeto de importación.
+3. Cuando no se cumpla con las disposiciones del marcado de país de origen establecidas en este Artículo, la Autoridad competente o cualquier persona natural o jurídica de la Parte importadora podrá iniciar o solicitar, según corresponda, un proceso de verificación de origen.

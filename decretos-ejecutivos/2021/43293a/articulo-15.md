@@ -1,0 +1,3 @@
+Artículo 15. Envases y materiales de empaque en que una mercancía se presente para la venta al por menor.
+1. Cuando los envases y materiales de empaque en que una mercancía se presente para la venta al por menor estén clasificados en el SAC con la mercancía que contienen, no se tomarán en cuenta para determinar si todos los materiales no originarios utilizados en la producción de la mercancía cumplen con el cambio correspondiente de clasificación arancelaria establecido en el Anexo de Reglas de Origen Específicas.
+2. Cuando la mercancía esté sujeta a un requisito de valor de contenido regional, los envases y materiales de empaque se considerarán como originarios o no originarios, según sea el caso, para calcular el valor de contenido regional de la mercancía.

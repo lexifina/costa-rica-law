@@ -1,0 +1,4 @@
+Artículo 11. De minimis.
+1. Una mercancía se considerará originaria, si el valor de todos los materiales no originarios utilizados en la producción de dicha mercancía, que no cumplen con el cambio de clasificación arancelaria, establecido en el Anexo de este Reglamento, no excede del diez por ciento (10%) del valor de transacción de la mercancía, determinado de conformidad con el Artículo 10.
+2. Cuando se trate de mercancías que clasifican en los capítulos 50 al 63 del SAC, el porcentaje señalado en el párrafo 1 se referirá al peso de las fibras e hilados respecto al peso de la mercancía producida.
+3. Para efectos de la aplicación de este Artículo, se debe entender que el de minimis se aplica tanto a los materiales no originarios que no cumplen con un cambio de clasificación arancelaria como a los materiales que están exceptuados en la Regla de Origen Específica establecida en el Anexo, según el caso.

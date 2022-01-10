@@ -1,0 +1,2 @@
+Artículo 24. Omisión o errores en la certificación de origen.
+Cuando el exportador omita información o certifique incorrectamente el origen de determinada mercancía, la autoridad aduanera de la Parte importadora concederá quince (15) días de plazo para la presentación de la corrección correspondiente. De no presentarse dicha corrección en el plazo establecido, la Parte importadora exigirá el pago de los derechos arancelarios correspondientes.
