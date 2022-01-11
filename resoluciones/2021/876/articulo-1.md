@@ -41,20 +41,18 @@ Fichas de emergencia para el transporte terrestre de residuos peligrosos | Direc
 Fichas de emergencia para el transporte terrestre de mercancías peligrosas | Dirección de Regulación de Productos de Interés Sanitario
 Buenas Prácticas de Manufactura de productos de interés sanitario | Dirección de Regulación de Productos de Interés Sanitario
 *Se mantiene para calderas la obligación reglamentaria de realizar la inspección por el Profesional Inspector de Calderas (registrado ante el Ministerio de Salud) de manera anual.
-PRIMERO: Se prorroga la vigencia de los Permisos Sanitarios de Funcionamiento, Certificados de Habilitación, Licencias y Autorizaciones de manera progresiva, de los establecimientos, servicios y personas que cuentan con éstos y que están por vencerse antes del 31 de octubre de 2021, según lo indicado en el siguiente cuadro:
+PRIMERO: Se prorroga la vigencia de los Permisos Sanitarios de Funcionamiento, Certificados de Habilitación, Licencias y Autorizaciones de manera progresiva, de los establecimientos, servicios y personas que cuentan con éstos y que están por vencerse antes del 31 de marzo de 2021, según lo indicado en el siguiente cuadro:
 Periodo de vencimiento actual | Nueva fecha de vencimiento
-Entre la vigencia de la presente resolución y el 31 de Mayo 2021 | 30 de noviembre 2021
-Junio 2021 | 31 de diciembre 2021
-Julio 2021 | 31 de enero 2022
-Agosto 2021 | 28 de febrero 2022
-Setiembre 2021 | 31 de marzo 2022
-Octubre 2021 | 30 de abril 2022
+Entre la vigencia de la presente resolución y el 31 de enero 2022 | 30 de abril 2022
+Entre el 01 y el 28 de febrero 2022 | 31 de mayo 2022
+Entre el 01 y el 31 de marzo 2022 | 30 de junio 2022
 Específicamente para la Habilitación de Centros de Atención Integral regirán estas fechas:
 Periodo de vencimiento actual | Nueva fecha de vencimiento
-Entre el 01 de julio de 2020 y el 30 de setiembre de 2020 | 30 de junio 2021
-Entre el 01 de octubre de 2020 y el 04 de enero de 2021 | 30 de julio 2021
-Entre el 05 de enero del 2021 y el 30 de abril 2021 | 31 de agosto 2021
-Entre el 01 de mayo del 2021 y el 29 de junio 2021 | 30 de setiembre 2021
+Entre el 01 de julio de 2020 y el 30 de setiembre de 2020 | 30 de abril de 2022
+Entre el 01 de octubre de 2020 y el 04 de enero de 2021 | 30 de abril de 2022
+Entre el 05 de enero del 2021 y el 30 de abril 2021 | 30 de abril de 2022
+Entre el 01 de mayo del 2021 y el 29 de junio 2021 | 30 de abril de 2022
+(Así reformado el punto primero anterior mediante resolución N° DM-RM-1221-2022 del 11 de enero del 2022)
 SEGUNDO: Las solicitudes de renovación de los Permisos Sanitarios de Funcionamiento, Certificados de Habilitación, Licencias y Autorizaciones que se encuentran en la situación anterior, deberán ser tramitadas en las respectivas oficinas responsables de la gestión, un mes antes de su vencimiento prorrogado, según la tabla previa, y no antes. Al ser renovados se establecerá la vigencia a partir de la fecha de vencimiento original.
 TERCERO: Las solicitudes nuevas y las modificaciones de los Permisos Sanitarios de Funcionamiento y los Certificados de Habilitación, las Licencias y las Autorizaciones, requeridas durante la vigencia de esta Disposición, deberán tramitarse por correo electrónico mientras no se cuente con un sistema digital; siendo que la lista de correos electrónicos está disponible en la página web del Ministerio de salud en siguiente enlace: https://www.ministeriodesalud.go.cr/index.php/tramites-ms/permisos-a-establecimientos-ms
 Las solicitudes respectivas deberán ser firmadas digitalmente por el interesado, señalar un correo electrónico para las notificaciones y aportar todos los requisitos establecidos en la normativa correspondiente. En estos casos, si la autoridad encargada de la firma de los certificados en el ARS cuenta con firma digital, puede emitir dicho documento en formato digital y notificarlo vía correo electrónico.
