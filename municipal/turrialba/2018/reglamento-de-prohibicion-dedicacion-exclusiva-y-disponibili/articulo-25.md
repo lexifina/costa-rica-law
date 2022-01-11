@@ -1,3 +1,6 @@
 CAPÍTULO XII
 La Prohibición
-Artículo 25.—Para la aplicación de este régimen debe existir en una ley que lo establezca y que una ley defina el pago.
+Artículo 25.-Prohibición y porcentajes de compensación. Los funcionarios públicos a los que por vía legal se les ha impuesto la restricción para el ejercicio liberal de su profesión, denominada prohibición, y que cumplan con los requisitos establecidos en el artículo 31 de la presente ley, recibirán una compensación económica calculada sobre el salario base del puesto que desempeñan, de conformidad con las siguientes reglas:
+1. Un treinta por ciento (30%) para los servidores en el nivel de licenciatura u otro grado académico superior.
+2. Un quince por ciento (15%) para los profesionales en el nivel de bachiller universitario.
+(Así reformado en sesión N° 089 del 11 de enero de 2022)

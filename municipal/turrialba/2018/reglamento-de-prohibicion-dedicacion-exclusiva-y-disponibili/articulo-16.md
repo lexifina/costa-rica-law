@@ -1,1 +1,4 @@
-Artículo 16.—Compensación: Todo servidor amparado al régimen de Dedicación Exclusiva recibirá una compensación económica a su favor, por la limitación al ejercicio profesional que será de 35% sobre el salario base para el grado de bachiller universitario y un 55% para grado de licenciatura universitaria, lo anterior sujeto a que exista contenido presupuestado.
+Artículo 16.-Porcentajes de compensación por dedicación exclusiva. Se establecen las siguientes compensaciones económicas sobre el salario base del puesto que desempeñan los funcionarios profesionales que suscriban contratos de dedicación exclusiva con la Administración:
+1. Un veinticinco por ciento (25%) para los servidores con el nivel de licenciatura u otro grado académico superior.
+2. Un diez por ciento (10%) para los profesionales con el nivel de bachiller universitario.
+(Así reformado en sesión N° 089 del 11 de enero de 2022)

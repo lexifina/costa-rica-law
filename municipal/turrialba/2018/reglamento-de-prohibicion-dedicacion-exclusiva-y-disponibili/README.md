@@ -14,3 +14,4 @@ Reglamento de prohibición, dedicación exclusiva y disponibilidad, en la Munici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-12 | la propia norma |
+| 2 | 2022-01-11 | Reglamento municipal 89 (2022-01-11) |
