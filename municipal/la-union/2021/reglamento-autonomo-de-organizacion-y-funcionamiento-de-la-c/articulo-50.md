@@ -1,0 +1,1 @@
+Artículo 50.-Los recursos de revocatoria deberán conocerse y resolverse dentro de la sesión inmediata siguiente y si es de suma urgencia deberá el presidente de la Junta convocar a sesión ordinaria para conocer y resolver el asunto. La apelación la conocerá y resolverá el Concejo como superior a la Junta, dentro de los ocho días posteriores a su presentación ante este órgano.

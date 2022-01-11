@@ -1,0 +1,1 @@
+Artículo 10.-La Casa de la Cultura de la Unión se organizará y funcionará al tenor de las normas contenidas en el presente reglamento, en concordancia con el marco legal aplicable, teniendo una Junta Directiva y una estructura organizativa propia.

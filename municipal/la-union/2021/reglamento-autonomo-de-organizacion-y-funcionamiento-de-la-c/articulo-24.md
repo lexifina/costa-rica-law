@@ -1,0 +1,1 @@
+Artículo 24.-Los miembros de la junta directiva no podrán intervenir en la discusión y votación de los asuntos en que tenga interés directo su cónyuge, o alguno de sus parientes dentro del tercer grado de consanguineidad o segundo grado de afinidad.

@@ -1,0 +1,2 @@
+Artículo 57.-La Junta ejercerá las funciones del administrador con amplia libertad y autonomía, pudiendo a su criterio contratar personal, empresas y otros que requieran para la buena marcha y funcionamiento de la Casa de la Cultura.
+Rige a partir de su publicación en el Diario Oficial La Gaceta La Unión, Tres Ríos, Cartago.

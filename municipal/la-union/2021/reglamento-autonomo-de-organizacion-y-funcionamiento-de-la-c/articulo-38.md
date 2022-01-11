@@ -1,0 +1,1 @@
+Artículo 38.-El presupuesto de egresos no podrá ser mayor que el de los ingresos y tanto uno como el otro deberá ser puestos a conocimiento del Concejo Municipal para su aprobación, sin cuyo acuerdo no se podrá ejecutar.

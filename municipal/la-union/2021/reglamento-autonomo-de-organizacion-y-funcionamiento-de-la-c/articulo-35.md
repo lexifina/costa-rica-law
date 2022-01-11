@@ -1,0 +1,1 @@
+Artículo 35.-De los Acuerdos en Firme: Los acuerdos que se tomasen por mayoría absoluta quedaran en firme en ese momento, todos los demás acuerdos adoptados por mayoría simple deberán ser ratificados en la sesión inmediata siguiente. La Presidencia y la Secretaría suscribirán los acuerdos.

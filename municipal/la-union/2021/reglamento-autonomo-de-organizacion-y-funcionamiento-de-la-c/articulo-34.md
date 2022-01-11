@@ -1,0 +1,1 @@
+Artículo 34.-Toda ausencia de cualquiera de los integrantes a la Junta Directiva, tiene que justificarse, salvo que haya sido registrada con antelación en el acta anterior, indicando las razones de inasistencia. Ninguna sesión podrá durar más de tres horas, quedando los asuntos pendientes para la próxima sesión.

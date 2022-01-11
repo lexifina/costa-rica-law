@@ -1,0 +1,1 @@
+Artículo 2º-Por su medio, el artista local y nacional, así como el profesional y técnico, podrá dar a conocer su técnica y conocer la de los demás, enseñar y aprender, capacitar para lograr cada vez engrandecer el arte y la cultura del cantón.

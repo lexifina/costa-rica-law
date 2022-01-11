@@ -1,0 +1,1 @@
+Artículo 49.-Los interesados podrán presentar recurso de revocatoria con apelación en subsidio para ante la autoridad superior a los acuerdos que tome la Junta, dentro de los cinco días siguientes a la aprobación definitiva de estos.

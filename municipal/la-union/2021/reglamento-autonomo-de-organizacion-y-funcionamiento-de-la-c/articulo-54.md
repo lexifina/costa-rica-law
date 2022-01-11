@@ -1,0 +1,1 @@
+Artículo 54.-En los primeros quince días del año siguiente, la Junta deberá rendir un informe general de las actividades realizadas conforme al Plan de trabajo establecido, ante el Concejo, quien de ser necesario requerirá de la presencia de los miembros que estime conveniente para su análisis.

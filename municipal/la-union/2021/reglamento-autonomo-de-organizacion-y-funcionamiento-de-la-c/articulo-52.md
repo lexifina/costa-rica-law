@@ -1,0 +1,1 @@
+Artículo 52.-El Concejo Municipal sustituir a cualquier miembro de la Junta, que incurra en cualquiera de las causas apuntadas en el artículo anterior escogiéndolo en las ternas que solicitará a las entidades involucradas, situación que deberá quedar resuelta a los diez días siguientes de haberse provocado la destitución.

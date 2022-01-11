@@ -1,0 +1,1 @@
+Artículo 56.-El cargo de miembros de la Junta es Honorifico, pero los cubre las restricciones, limitaciones y demás de la administración Pública, toda una vez que se trata de un cuerpo colegiado que administrara un ente público.
