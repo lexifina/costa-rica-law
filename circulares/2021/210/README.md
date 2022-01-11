@@ -13,3 +13,4 @@ Acuerdo de Corte Plena. Sesión N° 39-2021 del 20 de setiembre de 2021, en aten
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-06 | la propia norma |
+| 2 | 2022-01-11 | Circular 15 (2022-01-11) |
