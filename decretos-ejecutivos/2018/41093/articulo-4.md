@@ -1,1 +1,0 @@
-Artículo 4º—Los miembros de las entidades no gubernamentales, deberán ser designados por el órgano competente de la entidad que representan y comunicarlo mediante nota escrita, al coordinador de la Comisión.
