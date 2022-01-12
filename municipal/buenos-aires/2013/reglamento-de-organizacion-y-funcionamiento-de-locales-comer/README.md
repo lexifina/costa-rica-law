@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de locales comerciales y de la term
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-15 | la propia norma |
+| 2 | 2022-01-12 | Reglamento municipal 0 (2022-01-12) |
