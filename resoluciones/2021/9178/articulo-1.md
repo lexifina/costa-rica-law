@@ -20,27 +20,29 @@ PRIMERO: Emitir la presente resolución con el objetivo de mitigar la exposició
 SEGUNDO: Con fundamento en las consideraciones de hecho y de derecho citadas en la presente resolución, particularmente del artículo 147 incisos b) y c) de la Ley General de Salud, Ley número 5395 del 30 de octubre de 1973, en cuanto a que las personas están en la obligación de acatar las medidas giradas por este Ministerio sobre "(.) b) Las medidas preventivas que la autoridad de salud ordene cuando se presente una enfermedad en forma esporádica, endémica o epidémica. c) Las medidas preventivas que la autoridad sanitaria ordene a fin de ubicar y controlar focos infecciosos, vehículos de transmisión, huéspedes y vectores de enfermedades contagiosas o para proceder a la destrucción de tales focos y vectores, según proceda. (.)", y en atención del artículo tercero del Decreto Ejecutivo número 43314-S, se establece la siguiente lista de actividades que seguirán suspendidas en razón del riesgo sanitario:
 1. Actividades ecuestres, topes en vías y/o espacios públicos.
 2. Pasacalles, procesiones religiosas, en vías y/o espacios públicos.
-TERCERO: Las siguientes actividades podrán autorizarse siempre y cuando dentro de su plan operativo acrediten los mecanismos por los cuales se garantiza el control de aforo, así como las disposiciones del Decreto Ejecutivo número 43314-S del 09 de noviembre de 2021 y la resolución número MS-DM-8817-2021 y sus respectivas reformas.
-1. Conciertos.
-2. Espectáculos públicos.
-3. Campos feriales.
-4. Festejos populares.
-5. Turnos comunitarios.
-6. Actividades taurinas y ecuestres en establecimientos o inmuebles que cuenten con Permiso Sanitario de Funcionamiento vigente para dicha actividad.
-7. Actividades de bien social y culturales.
-8. Bingos.
-9. Actividades de entretenimiento en centros comerciales.
-10. Festival Internacional de Cine.
-11. Festival Nacional de las Artes.
-12. Actividades deportivas, con protocolo debidamente aprobado por MIDEPOR.
+TERCERO: Los eventos de concentración masiva podrán realizarse en lugares que cuenten con permiso sanitario de funcionamiento para la actividad específica o en lugares que tramiten una autorización sanitaria para la realización de la actividad específica. En ambos supuestos deberán acreditarse los mecanismos por los cuales se garantiza el control de aforo, así como las disposiciones del Decreto Ejecutivo número 43314-S del 09 de noviembre de 2021 y la resolución número MS-DM-8817-2021 y sus respectivas reformas. Las actividades habilitadas son:
+1.Conciertos.
+2.Espectáculos públicos.
+3.Campos feriales.
+4.Festejos populares.
+5.Turnos comunitarios.
+6.Actividades taurinas y ecuestres en establecimientos o inmuebles que cuenten con Permiso Sanitario de Funcionamiento vigente para dicha actividad.
+7.Actividades de bien social y culturales.
+8.Bingos.
+9.Actividades de entretenimiento en centros comerciales.
+10.Festival Internacional de Cine.
+11.Festival Nacional de las Artes.
+12.Actividades deportivas, con protocolo debidamente aprobado por MIDEPOR.
+(Así reformado la disposición tercera anterior mediante resolución N° MS-DM-2277-2022 del 12 de enero de 2022)
 CUARTO: El porcentaje de aforo autorizado de manera mensual será el establecido de manera progresiva en la resolución MS-DM-8817-2021 y sus respectivas reformas.
-QUINTO: Todo organizador de eventos que solicite autorizaciones sanitarias, deberá garantizar las condiciones sanitarias seguras de la actividad, cumplir con los lineamientos sanitarios establecidos en el protocolo sectorial correspondiente para la prevención de la enfermedad ocasionada por el COVID-19, garantizar por parte del organizador la posibilidad de controlar el aforo y la verificación del estado de vacunación.
+QUINTO: Todo organizador de eventos deberá garantizar las condiciones sanitarias seguras de la actividad, cumplir con los lineamientos sanitarios establecidos en el protocolo sectorial correspondiente para la prevención de la enfermedad ocasionada por el COVID-19, garantizar por parte del organizador la posibilidad de controlar el aforo y la verificación del estado de vacunación.
 Además, deberá cumplir con los requisitos ordinarios de este tipo de trámite, a saber:
-1. Plan de atención de emergencias debidamente firmado.
-2. Plan de seguridad del evento donde se describan claramente los procedimientos de seguridad que serán aplicados antes, durante y después del evento para el control de la multitud y debidamente avalado por la autoridad competente.
-3. Aportar certificación de capacidad de ocupantes para el sitio, recinto o inmueble, emitida por un profesional en ingeniería civil o en construcción, miembro del Colegio Federado de Ingenieros y Arquitectos.
-4. Aportar certificación emitida por un profesional en ingeniería civil o en construcción, miembro del Colegio Federado de Ingenieros y Arquitectos si se van a instalar estructuras temporales en el lugar.
-5. Si adicional a la autorización sanitaria de concentración masiva de personas, se pretende desarrollar la preparación, distribución y/o venta de alimentos, deberá contar con la respectiva autorización sanitaria para estos efectos.
+1.Plan de atención de emergencias debidamente firmado.
+2.Plan de seguridad del evento donde se describan claramente los procedimientos de seguridad que serán aplicados antes, durante y después del evento para el control de la multitud y debidamente avalado por la autoridad competente.
+3.Aportar certificación de capacidad de ocupantes para el sitio, recinto o inmueble, emitida por un profesional en ingeniería civil, en construcción no arquitectura, miembro del Colegio Federado de Ingenieros y Arquitectos.
+4.Aportar certificación emitida por un profesional en ingeniería civil, en construcción o arquitectura, miembro del Colegio Federado de Ingenieros y Arquitectos si se van a instalar estructuras temporales en el lugar.
+5.Si adicional a la autorización sanitaria de concentración masiva de personas, se pretende desarrollar la preparación, distribución y/o venta de alimentos ,deberá contar con la respectiva autorización sanitaria para estos efectos.
+(Así reformado la disposición quinta anterior mediante resolución N° MS-DM-2277-2022 del 12 de enero de 2022)
 SEXTO: Las disposiciones de la presente resolución se revisarán y se actualizarán de conformidad con el comportamiento epidemiológico del COVID-19 en el territorio nacional.
 SÉTIMO: La presente resolución rige a partir del 01 de diciembre de 2021.
 COMUNIQUESE:
