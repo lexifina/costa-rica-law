@@ -1,0 +1,1 @@
+ARTÍCULO 11- Impuesto a las remesas al exterior. Se exoneran del pago del impuesto a las remesas al exterior, exclusivamente, a las personas jurídicas contempladas en el artículo 5 de la presente ley. Las personas jurídicas internacionales lo estarán en concordancia con los patrocinios previstos en el artículo 4 de esta ley.

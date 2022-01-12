@@ -1,0 +1,3 @@
+ARTÍCULO 17- Presentación de informe por parte de la Federación Costarricense de Fútbol. La Federación Costarricense de Fútbol deberá presentar, a la Comisión Permanente Especial de Control y el Gasto Públicos de la Asamblea Legislativa, un informe detallado sobre la aplicación de esta ley en todos sus alcances, que incluya los beneficios económicos, sociales y deportivos de la realización de la Copa Mundial Femenina Sub - 20 de la FIFA 2022. Dicho informe será presentado a más tardar seis meses después de terminada la Copa Mundial.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los trece días del mes de diciembre del año dos mil veintiuno.

@@ -1,0 +1,1 @@
+ARTÍCULO 3- Exenciones en el impuesto sobre la renta. Están exentas del impuesto sobre la renta, la FIFA y la Federación Costarricense de Fútbol, respecto de las utilidades generadas directamente de la celebración de la copa Mundial Femenina Sub - 20 de la FIFA 2022.
