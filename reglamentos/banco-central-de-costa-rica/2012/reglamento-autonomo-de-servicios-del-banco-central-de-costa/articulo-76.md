@@ -1,3 +1,5 @@
-Artículo 76.—La capacitación cubrirá a todos los servidores y colaboradores de la Institución, excepto a los miembros de la Junta Directiva del Banco y del CONASSIF, de la siguiente forma:
-a. En materia de capacitación, desde el momento en que se inicia la relación de servicio o relación laboral con la Institución.
+Artículo 76. La capacitación cubrirá a todos los servidores y colaboradores de la Institución, excepto
+a los miembros de la Junta Directiva del Banco y del CONASSIF, de la siguiente forma: a. En materia de capacitación, desde el momento en que se inicia la relación de servicio o relación laboral con la Institución.
 b. En las actividades de desarrollo, después de que cumplan seis meses de prestar sus servicios a la Institución.
+c. Las personas nombradas a tiempo determinado podrán recibir entrenamiento, desarrollo o capacitación con recursos de la Institución cuando, en las labores asignadas, el anteproyecto, proyecto o las funciones permanentes de la Institución, incorporen conocimientos nuevos o requieran actualización; y el dominio de estas sea indispensable para la continuidad de las funciones. La jefatura del área respectiva deberá justificar la necesidad de capacitación para funcionarios que hayan sido contratados en plazas a tiempo determinado.
+(Así reformado en sesión N° 6043 del 12 de enero del 2022)
