@@ -1,0 +1,13 @@
+CIRCULAR Nº 17-2022
+Asunto: Reiteración de la circular N°99-2021, referente a la integración y deberes de los Equipos del Sistema Específico de Valoración de Riesgo Institucional.
+A LOS EQUIPOS DEL SISTEMA ESPECÍFICO DE
+VALORACIÓN DE RIESGO INSTITUCIONAL.
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión 97-21, celebrada el 11 de noviembre de 2021, artículo LIII, dispuso-entre otras cosas-reiterar la circular N°99-09, publicada en el Boletín Judicial 118 del 28 de setiembre de 2009, referente a la integración y deberes de los Equipos del Sistema Específico de Valoración de Riesgo Institucional que indica:
+El Consejo Superior, en sesión Nº 80-09, celebrada el 25 de agosto del año en curso, artículo LXXX, dispuso informarles que tienen el deber legal de cumplir con lo siguiente:
+Remitir a la Unidad de Control Interno los informes que ésta solicita, de forma que se garantice la continuidad de las operaciones en esta metodología. Además, definir las responsabilidades por el incumplimiento de esta directriz.
+Cuando un integrante del Equipo SEVRI se traslade a otro puesto, el Despacho estará en la obligación de continuar trabajando en el desarrollo del Sistema referido. Asimismo, se deberá comunicar a la Unidad de Control Interno el nombre de la persona que lo sustituirá. Además, en casos que el suplente no haya recibido el taller de capacitación, se deberá solicitar la inclusión ante la Unidad de Control Interno en los próximos cursos que serán impartidos.
+Los servidores y servidoras capacitados en SEVRI, que se trasladen a otras oficinas judiciales, deberán realizar las actividades necesarias para instaurar el SEVRI en la nueva oficina y gestionar la capacitación del personal.
+Los equipos SEVRI deben confeccionar actas, bitácoras o minutas numeradas para efectos de conservar el histórico de la gestión llevada a cabo y de cada una de las reuniones celebradas, y en las que indiquen los acuerdos y acciones dispuestas.
+La Unidad de Control Interno velará por el cumplimiento de estas disposiciones e informará lo que corresponda al Consejo Superior.
+San José, 12 de enero de 2022.
