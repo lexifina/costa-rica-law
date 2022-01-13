@@ -1,0 +1,1 @@
+Artículo 35.-Si las partes llegan a un acuerdo conciliatorio respecto de la pretensión patrimonial de la denuncia, deberán suscribirlo o presentarlo por escrito, con la firma de todas las partes involucradas, ante el órgano correspondiente, para que este conozca de los alcances del acuerdo y se continúe el procedimiento administrativo sobre lo no conciliado o lo no patrimonial.

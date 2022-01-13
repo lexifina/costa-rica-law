@@ -1,0 +1,1 @@
+Artículo 59.-En lo no regulado expresamente en este reglamento, se aplicará supletoriamente la Ley Orgánica del Colegio de Cirujanos Dentistas de Costa Rica, el Código de Ética, así como la Ley General de la Administración Pública.

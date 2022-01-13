@@ -1,0 +1,1 @@
+Artículo 22.-Si la denuncia no cumple los requisitos del artículo 19, la Fiscalía prevendrá por escrito al interesado para que llene todos los requisitos de la denuncia en un plazo de diez días hábiles a partir de la notificación de la prevención, y lo apercibirá de que, en caso de no cumplir en tiempo y forma se decretará su archivo definitivo.

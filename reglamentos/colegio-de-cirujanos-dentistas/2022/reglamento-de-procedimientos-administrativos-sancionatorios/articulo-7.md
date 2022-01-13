@@ -1,0 +1,1 @@
+Artículo 7°-Sujeción al ordenamiento jurídico. La Junta Directiva, el Tribunal de Honor, así como el órgano director del procedimiento, actuando como órganos del Colegio de Cirujanos Dentistas de Costa Rica, deberán adoptar sus resoluciones dentro del procedimiento con estricto apego al ordenamiento jurídico.

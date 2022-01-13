@@ -1,0 +1,1 @@
+Artículo 56.-Recurso contra el acto final. Contra la resolución final del procedimiento emitida por el Tribunal de Honor que imponga una pena o sanción, tendrán el recurso ordinario de reposición. El recurso se presentará dentro de los ocho días hábiles contados a partir de la notificación del acto final.

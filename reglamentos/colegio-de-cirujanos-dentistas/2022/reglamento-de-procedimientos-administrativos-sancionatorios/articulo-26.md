@@ -1,0 +1,1 @@
+Artículo 26.-Corresponde a la Fiscalía del Colegio de Cirujanos Dentistas de Costa Rica efectuar toda investigación preliminar en razón de las denuncias interpuestas por terceros interesados o de oficio. El fiscal puede delegar la investigación preliminar en cualquiera de sus auxiliares de fiscalía.

@@ -1,0 +1,4 @@
+CAPÍTULO V
+Aplicación de métodos de resolución alterna
+de conflictos y/o justicia restaurativa
+Artículo 34.-En aquellas denuncias que tengan una pretensión patrimonial y que no hayan sido iniciadas de oficio, la Fiscalía del Colegio de Cirujanos Dentistas de Costa Rica o el órgano director, al inicio del procedimiento, en el mismo auto de apertura este o en la apertura de la audiencia oral y privada, hará saber a las partes que en cualquier momento pueden llegar a un acuerdo conciliatorio sobre ese particular. El proceso conciliatorio podrán llevarlo a cabo ante el Centro de Resolución Alterno de Conflictos del Colegio de Cirujanos Dentistas de Costa Rica, o los conciliadores capacitados que el Colegio Colegio de Cirujanos Dentistas de Costa Rica tiene a la disposición de las partes, o bien, pueden celebrarlo ante cualquier centro de resolución alterna de conflictos debidamente autorizado por el Ministerio de Justicia.

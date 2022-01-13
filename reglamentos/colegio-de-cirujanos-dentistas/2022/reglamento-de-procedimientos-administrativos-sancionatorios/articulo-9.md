@@ -1,0 +1,1 @@
+Artículo 9°-Buena fe procesal. Los intervinientes del procedimiento administrativo disciplinario del Colegio de Cirujanos Dentistas de Costa Rica ajustarán su conducta a la buena fe, al respeto, a la lealtad y la probidad.

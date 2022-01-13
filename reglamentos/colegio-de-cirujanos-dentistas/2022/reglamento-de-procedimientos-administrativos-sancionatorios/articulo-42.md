@@ -1,0 +1,1 @@
+Artículo 42.-Para efectos de caducidad, el procedimiento administrativo comenzará formalmente con la presentación o inicio de la denuncia. Para efectos de prescripción, con la notificación de la resolución inicial que dicta el órgano director.

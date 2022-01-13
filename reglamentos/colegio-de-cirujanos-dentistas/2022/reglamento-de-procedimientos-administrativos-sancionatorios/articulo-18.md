@@ -1,0 +1,1 @@
+Artículo 18.-Resoluciones. Las resoluciones de mero trámite dentro del procedimiento podrán ser firmadas por quien coordine el Órgano Director. La recomendación final del Órgano Director en el marco de la instrucción de un procedimiento deberá ser firmada por los miembros de dicho órgano que participen en esa instrucción y que hayan participado de la audiencia oral y privada.

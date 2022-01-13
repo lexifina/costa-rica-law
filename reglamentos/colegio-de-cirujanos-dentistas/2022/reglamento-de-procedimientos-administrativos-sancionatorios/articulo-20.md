@@ -1,0 +1,1 @@
+Artículo 20.-La denuncia se deberá presentar ante la Fiscalía del Colegio de Cirujanos Dentistas de Costa Rica. Se hará constar, mediante leyenda o razón de la hora, día, nombre y firma del funcionario que la recibe y sello del departamento, cuando se presente en la sede del Colegio de Cirujanos Dentistas de Costa Rica.

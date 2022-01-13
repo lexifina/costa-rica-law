@@ -1,0 +1,1 @@
+Artículo 48.-Evacuada las pruebas, en el acto el órgano director concederá a las partes un espacio de tiempo prudencial para que rindan sus conclusiones. En situaciones excepcionales, se le concederá al denunciado un plazo común de cinco días hábiles para formular por escrito sus conclusiones.

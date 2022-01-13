@@ -1,0 +1,1 @@
+Artículo 28.-Durante el trámite de la investigación, la Fiscalía podrá solicitar la colaboración de otras áreas, instituciones o empresas públicas o privadas en los aspectos relacionados con su competencia.

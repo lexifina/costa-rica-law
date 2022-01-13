@@ -1,0 +1,1 @@
+Artículo 33.-El informe final del resultado de la investigación no tendrá recursos. La recomendación dada en el informe de resultado de la investigación preliminar no es vinculante para la Junta Directiva.
