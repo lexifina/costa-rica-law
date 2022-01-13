@@ -16,3 +16,4 @@ Reforma Sistema de Registro del Ministerio de Agricultura y Ganadería, para Cer
 | 1 | 2020-08-05 | la propia norma |
 | 2 | 2020-12-04 | Decreto Ejecutivo 42773 (2020-12-04) |
 | 3 | 2021-05-11 | Decreto Ejecutivo 43013 (2021-05-11) |
+| 4 | 2022-01-13 | Decreto Ejecutivo 43395 (2022-01-13) |
