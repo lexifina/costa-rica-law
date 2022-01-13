@@ -1,2 +1,0 @@
-Artículo 26.—El presente Reglamento regirá 60 días naturales después de su publicación en el Diario Oficial La Gaceta, plazo dentro del cual la Administración Municipal, deberá diseñar los procedimientos necesarios para su aplicación.
-Se acuerda por unanimidad: primero: Aprobar el Reglamento para Ayudas Temporales y Subvenciones. Segundo: Encargar a la Secretaria Municipal su publicación en el Diario Oficial La Gaceta.

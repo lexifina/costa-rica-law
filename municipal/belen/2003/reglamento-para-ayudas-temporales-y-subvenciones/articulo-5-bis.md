@@ -1,2 +1,0 @@
-Artículo 5 bis: Para poder otorgar una ayuda de víveres, en el marco de la situación de emergencia originada por el COVID-19, la Municipalidad dará por debidamente demostrado la situación de desgracia o infortunio mediante la recepción de documentación de la persona solicitante y la revisión de datos en el sistema SINIRUBE, quedando a juicio de las trabajadoras sociales emitir la recomendación final.
-(Así adicionado mediante sesión ordinaria N° 40-2020 del 28 de julio del 2020)
