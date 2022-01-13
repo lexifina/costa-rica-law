@@ -14,3 +14,4 @@ Reglamento del fondo de pensiones y jubilaciones para los miembros del Beneméri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-18 | la propia norma |
+| 2 | 2022-01-13 | Reglamento 0 (2022-01-13) |
