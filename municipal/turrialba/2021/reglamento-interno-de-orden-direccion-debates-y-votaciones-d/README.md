@@ -14,3 +14,4 @@ Reglamento interno de orden, dirección, debates y votaciones del Concejo Munici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-12-16 | la propia norma |
+| 2 | 2022-01-13 | Reglamento municipal 0 (2022-01-13) |
