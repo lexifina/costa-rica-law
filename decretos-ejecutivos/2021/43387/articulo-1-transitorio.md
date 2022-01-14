@@ -1,0 +1,1 @@
+Transitorio Único: La reforma al artículo 24 del Reglamento de la Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, Ley N° 8262 del 2 de mayo de 2002, relacionada con la vigencia de la Condición PYME a 2 años, regirás a partir del 01 de enero de 2022, dicho plazo abarca tanto las nuevas solicitudes como las renovaciones de dicha Condición.
