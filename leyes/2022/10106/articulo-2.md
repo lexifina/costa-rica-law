@@ -1,0 +1,2 @@
+ARTÍCULO 2- Creación y alcance
+Se crea el Fondo Nacional de Avales para el otorgamiento de avales en moneda nacional o extranjera, en apoyo a nuevos financiamientos o modificación de créditos vigentes que concedan las entidades financieras supervisadas por la Superintendencia General de Entidades Financieras (Sugef), a las personas físicas o jurídicas que realizan actividades comerciales o empresariales, afectadas en su desempeño económico - financiero como consecuencia de la pandemia del COVID- 19.
