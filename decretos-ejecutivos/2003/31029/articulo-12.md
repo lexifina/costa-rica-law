@@ -1,4 +1,0 @@
-CAPÍTULO IV
-Análisis, garantías y condiciones de aprobación de los créditos
-Artículo 12.—Análisis de los créditos. El análisis de la solicitud de crédito se iniciará una vez completados los requisitos por parte del productor. Cuando CORBANA requiera al solicitante que complete algún requisito faltante, tal prevención deberá cumplirse en un plazo no mayor a quince días hábiles, después del requerimiento.
-Todo análisis de crédito deberá reunir la siguiente información: datos generales del cliente, antecedentes, fuente de comercialización, situación agronómica, análisis financiero, análisis del plan de inversión propuesto y de las garantías (muebles o inmuebles y/ o fianzas) flujo de caja proyectado por el plazo del préstamo, historial crediticio, conclusiones, recomendaciones y cualquier otra información que se considere pertinente de ser conocida por el órgano de aprobación correspondiente.

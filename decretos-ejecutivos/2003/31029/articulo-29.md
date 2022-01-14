@@ -1,3 +1,0 @@
-CAPÍTULO VII
-Reducción de costos y otras disposiciones
-Artículo 29.—De la reducción de costos. El Departamento de Asistencia Técnica, conjuntamente con el Departamento de Investigaciones de CORBANA, deberán ejecutar un plan de reducción de costos en las unidades productivas de los beneficiarios del Plan que aquí se regula, para lo cual en los documentos de formalización de los créditos se deberán pactar y prever las autorizaciones y obligaciones necesarias a cargo del productor. Dicho programa se hará a partir de una investigación empírica, a partir de las investigaciones agrícolas ya desarrolladas y que estén en vigencia y a partir el desarrollo de tecnología apropiada a ello. Este plan podrá hacerse extensivo a todos aquellos productores que lo soliciten.
