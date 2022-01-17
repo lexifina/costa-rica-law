@@ -1,1 +1,0 @@
-Artículo 4º—La Junta Directiva del Teatro Popular Melico Salazar, nombrará una comisión organizadora, integrada por especialistas en este tipo de eventos, que garantice el desarrollo del mismo y establezca las bases de participación en cada eje de acción.

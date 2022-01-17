@@ -1,1 +1,0 @@
-Artículo 6º—El “Encuentro Nacional de Teatro” será financiado del superávit del Teatro Popular Melico Salazar, de acuerdo con la justificación presupuestaria de los tres ejes de acción referidos en el artículo 3°, y el Ministerio de Cultura, Juventud y Deportes gestionará lo correspondiente al aumento del límite de gasto presupuestario con ese fin.

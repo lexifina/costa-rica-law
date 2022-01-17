@@ -1,1 +1,0 @@
-Artículo 2º—Dicho encuentro tendrá como finalidad propiciar el crecimiento y la calidad del teatro costarricense, mediante la realización de actividades de capacitación, de análisis y reflexión crítica y de intercambio artístico.
