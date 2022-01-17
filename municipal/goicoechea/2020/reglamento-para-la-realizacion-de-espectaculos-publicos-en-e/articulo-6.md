@@ -1,1 +1,0 @@
-Artículo 6º—La Municipalidad de Goicoechea, podrá suspender y hasta revocar la Licencia de Espectáculos Públicos emitida cuando se realicen actividades contrarias a las autorizadas que atenten contra la moral y las buenas costumbres.
