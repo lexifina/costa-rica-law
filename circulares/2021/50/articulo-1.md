@@ -22,15 +22,7 @@ o Notario (a) Público (a)
 o Personal de Correos de Costa Rica
 Dado lo anterior, es necesario hacer énfasis en analizar el acto que se debe realizar en la notificación personal, por lo que, a continuación, se describe un esquema en donde se detalla las formas en que se puede realizar la notificación tanto a la persona física como personas jurídicas
 [imagen]
-1.3 Notificaciones Personales:
-Las notificaciones personales se deben entender como aquella que se realiza directamente con la persona, por lo cual el lugar donde se realice la misma carece de importancia.
-Cuando se trate de notificaciones para personas que se encuentran en su lugar de trabajo, estas se deben llevar a cabo, única y exclusivamente en forma personal. Se causa una indefensión a la parte o partes a notificar, si se deja con el jefe o con un compañero, secretaria, etc.).
-Por otro lado; todas las personas físicas y jurídicas deben actualizar sus direcciones, casa de habitación y sede social en los respectivos registros, caso contrario, se les podrá nombrar eventualmente un curador que los represente.
-Tratándose de personas jurídicas, la notificación se tendrá por bien efectuada cuando se notifique a uno solo de sus personeros o representantes, ya sea en la casa de habitación de unos de los representantes o en la dirección donde se encuentra la empresa. Aun cuando estos tengan una representación conjunta.
-Adicional a lo anterior, se debe analizar los conceptos de: Domicilio real, registral y casa de habitación, ya que en la actualidad los tres conceptos deben ser coincidentes unos de otros, ello en virtud de que la propia ley estableció como requisito la obligación de mantener actualizado su domicilio en el registro respectivo, el cual debe coincidir con la casa de habitación, que a su vez, corresponde al domicilio real de la persona a notificar.
-En estos casos, la cédula de notificación podrá ser entregada a cualquier persona que aparente ser mayor de quince años, y se halle en la casa de habitación. En cuanto a materia de Familia, Violencia Doméstica y Pensiones Alimentarías por ser conflictos de orden familiar la certeza de que el notificado habite en ese lugar debe ser aún mayor.
-Cuando se trata de un menor de edad, es recomendable efectuar una pequeña descripción de la persona.
-El domicilio contractual de una persona física necesariamente debe ser su casa de habitación y de una persona jurídica su sede social. Por ende, no es posible indicar como domicilio contractual un bufete, oficinas, o cualquier otro lugar.
+1.3 Notificaciones Personales: (Este punto fue derogado mediante sesión N° 101- 2021 del 25 de noviembre de 2021 publicado en el Boletín Judicial N° 19 del 31 de enero del 2022 mediante circular N° 266-2021 del 17 de enero del 2022)
 1.4 Notificaciones a Personas Jurídicas (Art 20 LNJ)
 Algunos aspectos que son fundamentales de considerar para la realización de las notificaciones a personas jurídicas son las siguientes:
 a) Personalmente al apoderado: Al igual que en las notificaciones de carácter personal, no interesa el lugar cuando el apoderado es notificado personalmente y a él se le hace entrega de la notificación.

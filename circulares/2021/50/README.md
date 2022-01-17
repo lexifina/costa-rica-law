@@ -13,3 +13,4 @@
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-10 | la propia norma |
+| 2 | 2022-01-17 | Circular 266 (2022-01-17) |
