@@ -1,8 +1,8 @@
 Artículo 140.- Se le otorgará la categoría especial, condición restringida, a la persona menor de edad que se encuentre bajo la representación legal del Patronato Nacional de la Infancia (PANI), entendiéndose como tal a la persona menor de edad que está ubicada en una alternativa de protección ya sea pública o privada, institucional o familiar, declarada o no judicialmente en estado de abandono; y que no pueda optar por otra categoría migratoria que le genere derechos de permanencia definitiva o temporal. Ello, por un periodo de hasta por dos años prorrogables por el tiempo que se mantenga bajo dicha representación estatal. El Patronato deberá presentar los siguientes requisitos:
-a) Formulario de filiación de la persona extranjera debidamente completo con letra imprenta legible y firmado.
+a) (Derogado por el artículo 1° del decreto ejecutivo N° 42389 del 17 de enero de 2022)
 b) Solicitud de permanencia legal de la persona extranjera.
 c) Dos fotografías recientes tamaño pasaporte.
-d) Comprobante de inscripción consular en caso de que exista registro en ese consulado. Los requisitos para dicha inscripción serán determinados en el Consulado correspondiente.
+d) (Derogado por el artículo 1° del decreto ejecutivo N° 42389 del 17 de enero de 2022)
 e) Certificación de nacimiento de la persona extranjera emitida en el país de origen debidamente legalizada y autenticada o apostillada.
 f) Certificación de antecedentes penales de la persona extranjera mayor de doce años, de su país de origen o del lugar donde haya residido legalmente los últimos tres años, debidamente legalizada y autenticada o apostillada.
 g) Fotocopia de todas las páginas del pasaporte vigente de la persona extranjera, la cual deberá certificarse ya sea confrontadas con el original ante funcionario de la plataforma de servicios o sede regional, o mediante Notario Público.
@@ -18,7 +18,8 @@ c) Nacionalidad de la persona menor de edad.
 d) Fecha y lugar de nacimiento de la persona menor de edad.
 e) Fecha estimada de ingreso de la persona menor de edad al país, en caso de contar con esa información.
 f) Número de pasaporte o documento de identificación de la persona menor de edad.
-g) Domicilio y datos de contacto de la alternativa de protección donde se encuentra la persona menor de edad.
+g) Fotocopia de las páginas de su pasaporte donde se encuentren las calidades de la persona extranjera, el sello de ingreso a Costa Rica y la visa de ingreso, en caso de que por su nacionalidad así lo requiriera, las cuales deberán certificarse por medio de notario público o ser confrontadas contra su original por el funcionario de la Plataforma de Servicios o sede regional donde se presente el trámite."
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42389 del 17 de enero de 2022)
 h) Lugar para recibir notificaciones.
 i) Opinión de la persona menor de edad, en concordancia con su autonomía progresiva y su derecho a la participación.
 j) En el caso de personas mayores de 15 años, la solicitud también debe ir firmada por ellas.

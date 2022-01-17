@@ -5,5 +5,6 @@ b) Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su
 c) Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, por la emisión del documento que acredite la permanencia legal, según lo dispuesto en el artículo 253 de la Ley.
 d) En el caso de cónyuge deberá presentar comprobante de pago anual a favor del Gobierno por veinticinco dólares (US$25,00) el cual será destinado al Fondo Social de Migración, según lo dispuesto en el artículo 33 inciso 4) de la Ley.
 e) Comprobante de pago único por concepto de depósito de garantía según el monto indicado en la resolución, de conformidad con el artículo 133 de la Ley.
-f) Comprobante de afiliación al sistema de aseguramiento de la CCSS.
+f) Estar afiliados al sistema de aseguramiento de la CCSS, situación que vía sistema será revisada de previo a la documentación del solicitante
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42389 del 17 de enero de 2022. Este numeral había sido derogado por el artículo 1° del decreto ejecutivo N° 42389 del 17 de enero de 2022)
 g) Pasaporte vigente y en buen estado de la persona extranjera.

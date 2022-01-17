@@ -1,14 +1,15 @@
 ARTISTAS, DEPORTISTAS E INTEGRANTES DE ESPECTÁCULOS PÚBLICOS, PROFESIONALES Y TÉCNICOS DESTACADOS O PERSONAS INVITADAS PARA QUE REALICEN ACTIVIDADES DE IMPORTANCIA EN EL PAÍS
 Artículo 129.- La Dirección General mediante la Gestión de Extranjería otorgará autorización de categoría especial para Artistas, deportistas e integrantes de espectáculos públicos, profesionales y técnicos destacados o personas invitadas para que realicen actividades de importancia para el país, por un periodo de un año prorrogable; a aquellas personas extranjeras que cumplan con los siguientes requisitos:
-a) Formulario de filiación debidamente completo con letra imprenta legible y firmado.
+a) (Derogado por el artículo 1° del decreto ejecutivo N° 42389 del 17 de enero de 2022)
 b) Solicitud de permanencia legal donde se indiquen las calidades del interesado(a), pretensión, domicilio actual y lugar o medio para notificaciones; la cual deberá venir firmada por la persona extranjera en presencia de Funcionario Público o debidamente autenticada por Abogado.
 c) Comprobante de pago a favor del Gobierno por concepto de especies fiscales (¢ 125 + ¢ 2,50 por cada folio) de conformidad con la Ley para el Equilibrio Financiero del Sector Público.
 d) Dos fotografías recientes tamaño pasaporte.
-e) Comprobante de huellas emitido por el Ministerio de Seguridad Pública, para personas mayores de 12 años.
-f) Comprobante de inscripción consular. Los requisitos para dicha inscripción serán determinados en el Consulado correspondiente.
+e) (Derogado por el artículo 1° del decreto ejecutivo N° 42389 del 17 de enero de 2022)
+f) (Derogado por el artículo 1° del decreto ejecutivo N° 42389 del 17 de enero de 2022)
 g) Certificación de nacimiento de la persona extranjera emitida en el país de origen debidamente legalizada y autenticada o apostillada.
 h) Certificación de antecedentes penales de la persona extranjera de su país de origen o del lugar donde haya residido legalmente los últimos tres años, debidamente legalizada y autenticada o apostillada. Para esos efectos deberá demostrar adicionalmente la legalidad de su permanencia en ese país mediante copia certificada del documento migratorio obtenido en el plazo indicado.
-i) Fotocopia de todas las páginas del pasaporte vigente de la persona extranjera, la cual deberá certificarse ya sea confrontadas con el original ante funcionario de la plataforma de servicios o sede regional, o mediante Notario Público.
+i) Fotocopia de las páginas de su pasaporte donde se encuentren las calidades de la persona extranjera, el sello de ingreso a Costa Rica y la visa de ingreso, en caso de que por su nacionalidad así lo requiriera, las cuales deberán certificarse por medio de notario público o ser confrontadas contra su original por el funcionario de la Plataforma de Servicios o sede regional donde se presente el trámite.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42389 del 17 de enero de 2022)
 j) Certificación emitida por la institución, persona física o jurídica o empresa interesada y firmada por el representante legal, en la que se indique las razones por las cuales la persona extranjera permanecerá en el país, las actividades que realizará y el periodo de permanencia.
 k) Carta del Ministerio de Cultura y Juventud o de la UNAFUT, o de quien este delegue para estos efectos, tratándose de artistas, deportistas e integrantes de espectáculos públicos, o de algún Ministro de Estado en el caso de profesionales o técnicos destacados o personas invitadas de importancia para el país. En dicho documento se deberá indicar el respaldo a la actividad para la que ingresarán las personas extranjeras al país.
 l) En caso de espectáculos públicos, deberá aportar las autorizaciones expedidas por la Oficina de Espectáculos Públicos del Ministerio de Justicia y Paz y por la Fiscalía de Espectáculos Públicos del Teatro Nacional, ambas para todo el plazo del evento.

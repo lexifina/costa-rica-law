@@ -4,8 +4,8 @@ a) Comprobante de pago a favor del Gobierno por correspondiente a lo establecido
 b) Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, según lo dispuesto en el artículo 253 de la Ley
 c) Comprobante de pago a favor del Gobierno por veinticinco dólares (US$25,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, por la emisión del documento que acredite la permanencia legal, según lo dispuesto en el artículo 33 inciso 4) de la Ley
 d) Comprobante de pago a favor del Gobierno por cinco dólares (US$5,00) el cual será destinado al Fondo Social de Migración, según lo dispuesto en el artículo 33 inciso 5 de la Ley.
-e) Comprobante vigente de aplicación a los seguros de la CCSS, demostrando su adscripción desde el momento de la aprobación de la permanencia legal en el país en forma ininterrumpida.
-f) Pasaporte vigente y en buen estado de la persona extranjera.
+e) (Derogado por el artículo 1° del decreto ejecutivo N° 42389 del 17 de enero de 2022).
+f) (Derogado por el artículo 1° del decreto ejecutivo N° 42389 del 17 de enero de 2022).
 g) En el caso de la categoría especial por vínculo con ciudadano costarricense, residente permanente, residente temporal, deberá verificarse que el titular ostenta esa categoría.
 h) En el caso de la categoría especial por vínculo con tutor o curador residente permanente, temporal o costarricense, deberá aportar documentoque acredite que el titular sigue ejerciendo la representación.
 i) En el caso de la categoría especial por vínculo con investigador, docente, profesor y voluntarios, deberá verificarse que el titular ostenta esa categoría.

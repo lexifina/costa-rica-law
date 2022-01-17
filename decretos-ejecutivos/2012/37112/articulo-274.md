@@ -1,2 +1,2 @@
-Artículo 274.- La vigencia del documento de acreditación migratoria de personas indígenas transfronterizas se otorgará por un periodo de dos años prorrogable por períodos iguales, tanto para residentes temporales como para los permanentes.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42814 del 14 de enero del 2021)
+Artículo 274.- Toda persona extranjera a las que se le otorgue la permanencia legal bajo alguna categoría migratoria de las contempladas en la Ley General de Migración y Extranjería o el presente Reglamento, deberá adscribirse y/o afiliarse a los seguros de la CCSS según corresponda, previo a que solicite la emisión de su documento de acreditación migratoria, situación que será verificada por la Gestión de Extranjería de manera previa a la emisión del mismo.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 42389 del 17 de enero de 2022)

@@ -3,5 +3,5 @@ a) Comprobante de pago a favor del Gobierno por el monto indicado en la resoluci
 b) Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, por la emisión del documento que acredite la permanencia legal de conformidad con el artículo 253 de la Ley.
 c) Comprobante de pago anual a favor del Gobierno por veinticinco dólares (US$25,00) el cual será destinado al Fondo Social de Migración, de conformidad con el artículo 33 inciso 4) de la Ley.
 d) Comprobante de pago a favor del Gobierno por cinco dólares (US$5,00) el cual será destinado al Fondo Social de Migración de conformidad con el artículo 33 inciso (5 de la Ley.
-e) Las personas extranjeras que no sean asegurados directos deberán aportar comprobante de afiliación al sistema de aseguramiento de la CCSS, como mínimo desde el momento que se le otorgó la categoría especial. A excepción de la categoría especial del artículo 137 inciso h, del presente Reglamento.
+e) (Derogado por el artículo 1° del decreto ejecutivo N° 42389 del 17 de enero de 2022).
 f) Pasaporte vigente y en buen estado de la persona extranjera.

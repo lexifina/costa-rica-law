@@ -5,5 +5,5 @@ b) Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su
 c) Comprobante de pago a favor del Gobierno por treinta dólares (US$30,00) o su equivalente en colones al tipo de cambio de referencia del Banco Central, por la emisión del documento que acredite la permanencia legal, según lo dispuesto en el artículo 253 de la Ley
 d) Comprobante de pago anual a favor del Gobierno por veinticinco dólares (US$25,00) el cual será destinado al Fondo Social de Migración, según lo dispuesto en el artículo 33 inciso 4) de la Ley.
 e) Comprobante de pago único por concepto de depósito de garantía según el monto establecido en la resolución.
-f) Las personas extranjeras que no sean asegurados directos deberán aportar comprobante de afiliación al sistema de aseguramiento de la CCSS, como mínimo desde el momento que se le otorgó la residencia temporal.
+f) (Derogado por el artículo 1° del decreto ejecutivo N° 42389 del 17 de enero de 2022)
 g) Pasaporte vigente y en buen estado de la persona extranjera.
