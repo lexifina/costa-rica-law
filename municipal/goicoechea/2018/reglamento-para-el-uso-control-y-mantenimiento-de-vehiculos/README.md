@@ -15,3 +15,4 @@ Reglamento para el uso, control y mantenimiento de vehículos de la Municipalida
 | --- | --- | --- |
 | 1 | 2018-06-29 | la propia norma |
 | 2 | 2019-09-16 | Reglamento municipal 36 (2019-09-16) |
+| 3 | 2022-01-17 | Reglamento municipal 3 (2022-01-17) |
