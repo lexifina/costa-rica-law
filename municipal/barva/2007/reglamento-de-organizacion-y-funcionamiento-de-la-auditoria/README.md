@@ -15,3 +15,4 @@ Reglamento de Organización y Funcionamiento de la Auditoria Interna de la Munic
 | --- | --- | --- |
 | 1 | 2008-01-10 | la propia norma |
 | 2 | 2017-11-29 | Reglamento municipal 0 (2017-11-29) |
+| 3 | 2022-01-17 | Reglamento municipal 4 (2022-01-17) |
