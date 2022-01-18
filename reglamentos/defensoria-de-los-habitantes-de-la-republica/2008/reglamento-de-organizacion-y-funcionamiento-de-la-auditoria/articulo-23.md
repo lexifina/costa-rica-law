@@ -1,3 +1,0 @@
-CAPÍTULO III
-Del funcionamiento de la auditoría interna
-Artículo 23.—De la Dirección y Administración. La Auditoría Interna deberá cumplir con sus funciones de acuerdo con lo establecido en este Reglamento, la normativa emanada por la Contraloría General de la República así como también con las disposiciones contenidas en el Manual sobre Normas Técnicas de Auditoría para la Contraloría General de la República y las Entidades y Órganos Sujetos a su Fiscalización, el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público y cualquiera otras disposiciones que dicte el órgano contralor.

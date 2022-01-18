@@ -1,1 +1,0 @@
-Artículo 35.—Comunicación de los servicios preventivos. La comunicación de estos servicios preventivos en cuanto a su contenido, formato y medios de hacerlo, se hará de conformidad con el criterio profesional del Auditor Interno y la naturaleza de los asuntos a que se refiera.

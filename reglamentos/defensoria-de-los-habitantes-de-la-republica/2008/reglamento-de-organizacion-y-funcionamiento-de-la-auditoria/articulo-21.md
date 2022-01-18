@@ -1,1 +1,0 @@
-Artículo 21.—Independencia funcional y de criterio. Los y las funcionarios(as) de la auditoria interna ejercerán sus atribuciones con total independencia funcional y de criterio respecto del jerarca y de los demás órganos de la administración activa.

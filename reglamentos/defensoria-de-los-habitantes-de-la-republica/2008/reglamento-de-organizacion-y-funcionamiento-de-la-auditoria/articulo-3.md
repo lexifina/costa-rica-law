@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación. Lo dispuesto en este Reglamento es de obligatorio cumplimiento para el personal de la Auditoría Interna y para el resto del personal de la Defensoría de los Habitantes en la materia que les resulte aplicable.

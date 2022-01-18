@@ -1,1 +1,0 @@
-Artículo 34.—Nota al Jerarca. La Auditoría debe enviar una nota al Jerarca al vencimiento del plazo de 30 días hábiles, en caso que no se haya pronunciado, comunicándole que se reputan como aceptadas las recomendaciones y solicitándole que ordene su puesta en práctica.

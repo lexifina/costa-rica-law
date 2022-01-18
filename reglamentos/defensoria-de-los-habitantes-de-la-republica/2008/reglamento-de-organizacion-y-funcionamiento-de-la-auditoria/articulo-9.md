@@ -1,1 +1,0 @@
-Artículo 9º—Organización. La Auditoría Interna está conformada por una sola unidad funcional, dentro de la estructura organizativa de la Defensoría de los Habitantes y estará en principio a cargo de un Auditor Interno, además podrá en un futuro contar con un SubAuditor y personal de apoyo, cuando así lo requieran las necesidades institucionales.

@@ -1,1 +1,0 @@
-Artículo 39.—Trámite de informes de servicios de auditoría. Estos informes se tramitarán conforme a lo dispuesto en los artículos 35,36 y 37 de la Ley General de Control Interno, las regulaciones que establezcan la Defensoría de los Habitantes y el Manual para el Ejercicio de la Auditoría Interna emitido por la Contraloría General de la República.
