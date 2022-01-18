@@ -14,3 +14,4 @@ Reglamento interno de organización y funcionamiento del Comité Cantonal de Dep
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-16 | la propia norma |
+| 2 | 2022-01-18 | Reglamento municipal 138 (2022-01-18) |
