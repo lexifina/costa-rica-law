@@ -1,1 +1,0 @@
-Artículo 7º—Derogatorias. Se deroga el Modelo de Facultades y Niveles de Adjudicación por Instancia Administrativa aprobado por esta Junta Directiva en el artículo 6 de la sesión Nº 8124, celebrada el 18 de enero del año 2007, así como toda aquella disposición institucional que se oponga a este Modelo.

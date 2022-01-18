@@ -1,5 +1,0 @@
-Transitorio I.—Los procedimientos de contratación iniciados antes de la vigencia de este Modelo, se concluirán conforme a las disposiciones vigentes al momento en que se adoptó la decisión de inicio del respectivo concurso.
-Vigencia.—El artículo primero rige seis meses después de la publicación del presente Modelo en el Diario Oficial La Gaceta, fecha para la cual cada Gerencia debe garantizar que las unidades con facultad para realizar procedimientos de contratación administrativa y que actualmente ejecutan procesos de compras, cumplan con lo dispuesto en el artículo 1 inciso c) del presente Modelo.
-Los restantes artículos del presente modelo rigen a partir de su publicación en el Diario Oficial La Gaceta.
-Acuerdo segundo: derogar el Modelo de facultades y Niveles de Adjudicación por Instancia Administrativa de la Caja Costarricense de Seguro Social, que fue aprobado en el artículo 15º de la sesión número 8022, celebrada el 5 de enero del año 2006 y modificado mediante el artículo 6º de la sesión Nº 8124, celebrada el 18 de enero del año 2007.
-Acuerdo firme”.
