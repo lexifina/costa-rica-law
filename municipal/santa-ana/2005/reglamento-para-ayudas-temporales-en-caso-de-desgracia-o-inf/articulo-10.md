@@ -1,1 +1,0 @@
-Artículo 10.—La Municipalidad se reserva el derecho de solicitar y realizar toda clase de pruebas técnicas para determinar la necesidad real de la persona que solicita la ayuda, para ello podrá realizar visitas, entrevistas y pedir la información necesaria.

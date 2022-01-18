@@ -1,1 +1,0 @@
-Artículo 18.—El beneficiario -que no sea persona física- de un aporte extraordinario deberá presentar a la Municipalidad, los informes sobre el cumplimiento de los objetivos y fines para los que se giró la subvención, así como la respectiva liquidación de gastos.

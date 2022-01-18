@@ -1,1 +1,0 @@
-Artículo 2º—Para otorgar esta clase de beneficios, la Municipalidad de Santa Ana presupuestará anualmente los recursos necesarios que serán administrados por la Comisión de Asuntos Sociales del Concejo Municipal.
