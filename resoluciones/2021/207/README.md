@@ -14,3 +14,4 @@ Metodología de fijación de tarifas ordinarias y extraordinarias del servicio d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-03 | la propia norma |
+| 2 | 2022-01-18 | Resolución 2 (2022-01-18) |

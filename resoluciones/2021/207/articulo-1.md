@@ -880,10 +880,13 @@ El reconocimiento del costo por concepto de comisión por el acceso y uso de la 
 6.5.1. Precios de los insumos
 Los precios de los insumos de reparación y mantenimiento y de llantas y lubricantes, incluidos en las secciones 6.4.6, 6.3.7, respectivamente, se actualizarán mediante indexación con subcategorías del Índice de Precios de Insumos para el Servicio de Transporte Público (IPi-TRP) en Taxis calculado por el Banco Central de Costa Rica (BCCR) o el que lo sustituya y sea equivalente al momento de aplicación de la vigente metodología. Para este fin, se ajustarán los valores de los precios con el último índice trimestral que esté disponible a la fecha de audiencia pública de la aplicación ordinaria de la presente metodología, y como base el índice IPi-TRP del segundo trimestre del 2016. Cada uno de los precios de los insumos se actualizará según la Subcategoría del IPi-TRP de Taxis que se detalla en el siguiente cuadro:
 Cuadro 13. Subcategoría del IPi-TRP de Taxis para actualizar los precios de los insumos
+Cuadro 13. Subcategoría del IPi-TRP de Taxis para actualizar los precios de los insumos.
 [imagen]
+(Así reformado el cuadro 13) anterior mediante resolución N° RE-0002-JD-2022 del 18 de enero de 2022)
 Los precios base que serán indexados según el procedimiento anterior serán los disponibles en el Cuadro 14.
 Cuadro 14. Precio de los insumos de insumos
 [imagen]
+(Así reformado el cuadro 14) anterior mediante resolución N° RE-0002-JD-2022 del 18 de enero de 2022)
 Luego, los precios base de los insumos se actualizarán como mínimo una vez cada cinco años con base en información proporcionada por el BCCR y derivada del proceso de cálculo y actualización del IPi-TRP.
 En caso de que dicha información no se encuentre disponible, la actualización se hará mediante la aplicación de un estudio técnico y una encuesta de precios. El desarrollo de cualquiera de estas alternativas estará a cargo de la Intendencia de Transportes, bajo la responsabilidad y dirección de un profesional en estadística. Este profesional tendrá a su cargo el planeamiento, coordinación, ejecución y validación de los resultados, de conformidad con las reglas unívocas de la ciencia y la técnica aplicables, según lo establecido en los artículos 15, 16, 17, 136, 158, párrafo 4º, 160 y 216 de la LGAP, y numerales 36.b), 42.f), 122.f), 128 del CPCA. La actualización de los precios deberá someterse previamente al trámite de consulta pública establecido en el artículo 361 de la citada Ley General de Administración Pública.
 6.5.2. Procedimiento para la convertir en colones valores expresados en otras monedas
