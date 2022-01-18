@@ -1,0 +1,9 @@
+UNIVERSIDAD TÉCNICA NACIONAL
+CONSEJO UNIVERSITARIO
+El Consejo Universitario de la Universidad Técnica Nacional comunica:
+I. La adición del transitorio XXI al "Reglamento del sistema de becas y beneficios estudiantiles de la Universidad Técnica Nacional", mediante acuerdo N° 4-28-2021 de la sesión ordinaria N° 28-2021, artículo 6, celebrada el jueves 15 de diciembre de 2021.
+Las reformas a reglamentos anteriores rigen a partir de su publicación.
+El Reglamento del sistema de becas y beneficios estudiantiles de la Universidad Técnica Nacional, en su versión completa y actualizada, se encuentra disponibles en el portal electrónico de la Universidad Técnica Nacional www. utn.ac.cr, sección "Normativa Universitaria".
+(Notaa de Sinalevi: La presente reforma se extrajo del sitio Web de la Universidad Técnica Nacional, y se transcribe a continuación:)
+TRANSITORIO XXI. A las personas estudiantes que se les aprueba alguna categoría de beca socioeconómica por primera vez y que les sea asignado algún o algunos de los beneficios complementarios temporales; el pago de los mismos se realizará en caso de que no exista ninguna situación de morosidad con la universidad. En caso de presentarse esta condición, el o los beneficios aprobados no serán depositados hasta tanto no se subsane la morosidad con la universidad. El pago de estos beneficios complementarios no se realizará retroactivo por el tiempo en que la persona estudiante haya mantenido la condición de moroso.
+(Adicionado mediante Acuerdo 4 tomado por el Consejo Universitario en la Sesión Ordinaria No. 28-2021, celebrada el miércoles 15 de diciembre de 2021 a las nueve horas, según el Artículo 6 del Capítulo V. Vicerrectoría de Vida Estudiantil. Publicado en el diario oficial La Gaceta No. 10 del 18 de enero del año 2022, sección de Reglamentos).
