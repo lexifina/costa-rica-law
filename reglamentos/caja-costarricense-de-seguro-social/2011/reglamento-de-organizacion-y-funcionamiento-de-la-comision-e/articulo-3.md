@@ -1,1 +1,0 @@
-Artículo 3º—Integración. La Comisión estará integrada por todos los Gerentes de la Caja. El Gerente de Logística actuará como Coordinador de la Comisión Especial de Licitaciones y su participación será obligatoria. En caso de ausencia justificada del Coordinador se elegirá por mayoría absoluta un Gerente sustituto en dicho cargo.

@@ -1,2 +1,0 @@
-Artículo 10.—De la convocatoria. La Comisión Especial de Licitaciones definirá los días y horas en que sesionará en forma ordinaria, lo cual dependerá de los asuntos por resolver y de los plazos definidos por el procedimiento de compra respectivo. La Secretaría Ejecutiva diligenciará las convocatorias por simple memorando donde se incluirá el orden del día.
-En los casos de urgencia la convocatoria privará sobre el resto de asuntos a su cargo. Para esos efectos la convocatoria la podrá realizar la Secretaría, el Coordinador o en su defecto dos de los miembros de la Comisión.

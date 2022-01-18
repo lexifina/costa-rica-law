@@ -1,3 +1,0 @@
-Artículo 7º—Competencia de la Secretaría Ejecutiva
-a) Recibir los expedientes administrativos y comunicación pertinente por parte de cada Gerente que deban ser conocidos por la Comisión. De previo a que la Comisión Especial de Licitaciones conozca de cualquier solicitud y de acuerdo con los lineamientos que al efecto se emitan, la Secretaría podrá rechazar ad portas aquellas solicitudes en que no se encuentren completos en sus antecedentes.
-b) Le corresponde a la Secretaría Ejecutiva como órgano auxiliar de la Comisión Especial de Licitaciones brindar asesoría y colaboración en materia de su competencia.

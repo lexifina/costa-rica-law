@@ -1,1 +1,0 @@
-Artículo 16.—Aplicación supletoria. En lo aquí no previsto se aplicará lo dispuesto por la Ley General de la Administración Pública, la Ley General de Control Interno, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento, y Ley de Contratación Administrativa y su Reglamento.
