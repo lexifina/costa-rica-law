@@ -1,0 +1,1 @@
+Artículo 5°-Declaración de salvaguarda. Es obligación expresar por escrito cualquier circunstancia que implique un impedimento o limite la independencia y objetividad para la prestación de un servicio de auditoría.

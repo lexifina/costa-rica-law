@@ -1,0 +1,1 @@
+Artículo 3°-Alcance. Este Código procura fomentar la conducta ética de las personas de la Auditoría Interna, por lo que se desprenden una serie de principios y reglas de conductas que deben formar parte fundamental de su quehacer, sin menoscabo de la independencia funcional y de criterio bajo la cual se deben desarrollar las actividades propias de su competencia.

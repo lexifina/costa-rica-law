@@ -1,0 +1,1 @@
+Artículo 7°-Responsabilidad de los funcionarios de la Auditoría Interna. Las personas de Auditoría Interna deben conocer los términos de este Código y comprometerse a cumplir con las disposiciones contenidas en este.

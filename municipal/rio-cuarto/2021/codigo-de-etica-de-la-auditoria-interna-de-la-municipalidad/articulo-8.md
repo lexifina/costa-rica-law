@@ -1,0 +1,2 @@
+Artículo 8°-Neutralidad Política. El personal de la Auditoría Interna debe ser neutrales en lo referido a influencias políticas, con el fin de desempeñar sus labores con total imparcialidad.
+Es trascendental observar neutralidad política en los ámbitos públicos y privados del personal de la Auditoría Interna, de acuerdo con el régimen de prohibiciones legales existente. Por lo tanto, es importante que el personal conserve su independencia respecto de influencias políticas partidistas o electorales, para desempeñar con imparcialidad sus responsabilidades de fiscalización.
