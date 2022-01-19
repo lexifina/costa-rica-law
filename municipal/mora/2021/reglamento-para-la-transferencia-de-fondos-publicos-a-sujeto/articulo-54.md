@@ -1,1 +1,0 @@
-Artículo 54º.- Finiquito del convenio. Una vez finiquitado el proyecto los Departamento de Planificación Presupuesto y Control y Dirección de Hacienda Municipal procederán a remitir el expediente administrativo a la Dirección de Asuntos Jurídicos de la Municipalidad, a fin de que se proceda a otorgar el finiquito del convenio de cooperación suscrito las partes.

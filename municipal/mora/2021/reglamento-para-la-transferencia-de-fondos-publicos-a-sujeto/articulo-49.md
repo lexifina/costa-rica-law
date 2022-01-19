@@ -1,3 +1,0 @@
-Artículo 49.- Vigencia de la prórroga
-Una vez otorgada la prórroga, la organización privada beneficiaria dispondrá de un plazo máximo de treinta días naturales para reiniciar los trabajos, caso contrario, la Municipalidad, procederá legalmente a realizar las gestiones que estime convenientes para recuperar el dinero transferido cuando considere que se pone en alto riesgo los recursos públicos, siendo la organización privada beneficiaria la responsable de reponer los fondos trasladados.
-En caso de rechazarse la prórroga solicitada, la organización privada deberá reiniciar la ejecución del programa o proyecto en el plazo de 8 días hábiles contados a partir de la comunicación por parte del Órgano Competente.

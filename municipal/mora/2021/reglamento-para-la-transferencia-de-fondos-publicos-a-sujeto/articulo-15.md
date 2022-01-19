@@ -1,3 +1,0 @@
-Artículo 15.- Funciones de la Comisión Técnica de Idoneidad.
-La Comisión Técnica de Idoneidad será la responsable de estudiar las solicitudes presentadas por los sujetos privados, así como de elaborar un dictamen de recomendación debidamente fundamentado y justificado dirigido a la Alcaldía Municipal, a través del cual emitirá la recomendación para el otorgamiento o el rechazo de la calificación de idoneidad.
-Deberá también la Comisión de Idoneidad elaborar dentro del expediente administrativo un listado, en el cual conste la verificación de la presentación de los requisitos, con indicación del folio del expediente administrativo donde consta cada uno de ellos.

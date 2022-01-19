@@ -1,4 +1,0 @@
-Artículo 20.- Omisión de requisitos por parte del sujeto privado.
-Si la solicitud presentada por el sujeto privado no contempla la totalidad de requisitos establecidos en el presente reglamento para el otorgamiento de la calificación de idoneidad, la Comisión Técnica de Idoneidad prevendrá mediante resolución a la Alcaldía Municipal sobre los requisitos omitidos o información faltante necesaria para continuar con el trámite.
-La Alcaldía Municipal en un plazo no mayor de veinticuatro horas notificará formalmente al sujeto privado la prevención hecha por parte de la Comisión Técnica de Idoneidad, otorgando un plazo improrrogable de diez días hábiles, para su cumplimiento, de no realizarse dentro del plazo establecido, la Alcaldía informará a la Comisión Técnica de Idoneidad, quien ante el incumplimiento declarará incompleto el trámite y consecuentemente la inadmisibilidad del mismo, ordenando su archivo.
-La resolución emitida al efecto carecerá de recurso.

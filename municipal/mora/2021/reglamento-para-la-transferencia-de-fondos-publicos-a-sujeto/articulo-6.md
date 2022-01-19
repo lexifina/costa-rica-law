@@ -1,2 +1,0 @@
-Artículo 6- Finalidad de las transferencias.
-Los fondos públicos transferidos por la municipalidad a favor de sujetos privados serán destinados a la ejecución de proyectos o programas que cumplan con el fin público previsto por ley y a su vez que respondan directamente al Plan de Desarrollo Humano Cantonal vigente y las prioridades presentadas a través de los Concejos de Distrito, en procura del desarrollo social del cantón.
