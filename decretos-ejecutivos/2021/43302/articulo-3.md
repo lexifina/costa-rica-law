@@ -1,0 +1,1 @@
+Artículo 3º-Las instituciones tanto del sector público como del sector privado, junto a los gobiernos locales, contribuirán, en la medida de sus posibilidades, a la realización anual de actividades y podrán participar en el plan de trabajo para la salvaguardia de esta importante manifestación tradicional costarricense.
