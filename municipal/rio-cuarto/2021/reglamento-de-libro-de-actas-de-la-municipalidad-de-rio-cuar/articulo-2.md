@@ -1,0 +1,3 @@
+Artículo 2º-Alcance: Este documento forma parte de la documentación del Proceso de Legalización de Libros de la Auditoría Interna de la Municipalidad de Río Cuarto; así como los lineamientos dictados por la Contraloría General de la República, y otras normas concordantes y atinentes.
+Los lineamientos expuestos en este documento son de acatamiento obligatorio por parte de la Administración Activa y la Auditoría Interna. Su incumplimiento injustificado acarreará al infractor las sanciones previstas en el capítulo V de la Ley General de Control Interno, Nº 8292.
+El presente Reglamento resulta aplicable a la Municipalidad de Río Cuarto.

@@ -1,0 +1,1 @@
+Artículo 15.-Libros Nuevos: Para la apertura de un libro o de un tomo es indispensable que la totalidad de los folios que lo integran se encuentren sin uso. De lo contrario no se autorizará la apertura.

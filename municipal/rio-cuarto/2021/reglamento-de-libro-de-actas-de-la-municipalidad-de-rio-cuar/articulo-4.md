@@ -1,0 +1,1 @@
+Artículo 4º-Libros de Actas de comisiones y otros entes. El proceso de apertura, autorización, reposición y en general manejo de los libros de las Actas del Concejo Municipal, de las comisiones nombradas en el seno del Concejo sean permanentes o especiales u otras comisiones que se establezcan, se regirán por lo indicado en el presente reglamento.

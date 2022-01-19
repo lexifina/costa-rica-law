@@ -1,0 +1,1 @@
+Artículo19.-Registro de libros: La Auditoría Interna llevará un control individual de cada tipo de libro, se llevará un registro digital denominado "Control Individual por Departamento y Clase de Libro Legalizado" y físico que se actualizará con las respectivas aperturas y cierres.

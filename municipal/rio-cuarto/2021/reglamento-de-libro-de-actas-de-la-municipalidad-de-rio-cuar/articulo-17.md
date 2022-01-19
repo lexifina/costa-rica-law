@@ -1,0 +1,1 @@
+Artículo 17.-Uso del sello de Legalización de Libro. La Auditoría Interna deberá plasmar en la parte superior derecha frente de cada hoja el sello del departamento de Auditoría; esto con el fin de asegurar razonablemente que no se utilizaran hojas distintas que puedan alterar la información, sin que se obstaculice la lectura de la numeración.

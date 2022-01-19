@@ -1,0 +1,1 @@
+Artículo 8º-Concepto libro digital: Un libro digital es el resultado o producto de un proceso de registro, desarrollo intelectual o normativo, integrado mediante sistemas electrónicos o equipo tecnológico, que permite conservar todas las características de autenticidad e integridad de un libro físico o impreso.

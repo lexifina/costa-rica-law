@@ -1,0 +1,1 @@
+Artículo 24.-Archivo. Los libros de eventos contables, actas del Concejo Municipal, comisiones y otros utilizados, debidamente oficializados y con su razón de cierre incorporado, deberán ser custodiados adecuadamente en el Archivo Municipal o bien, en el sitio que se designe para tal fin, según lo establecido en la Ley del Sistema Nacional de Archivos y su Reglamento.

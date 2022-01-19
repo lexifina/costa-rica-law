@@ -1,0 +1,1 @@
+Artículo 13.-Uso de libros. La unidad de Auditoría Interna, indicará cuales dependencias y órganos que forman pare de la Municipalidad de Río Cuarto (M.R.C.), debe de presentar los libros para de la Auditoría Interna; según lo indicado en el artículo 22 inciso e) de la Ley General de Control Interno.
