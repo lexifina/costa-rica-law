@@ -15,3 +15,4 @@ Medidas de carácter administrativo para las solicitudes de prórroga de permiso
 | --- | --- | --- |
 | 1 | 2021-04-19 | la propia norma |
 | 2 | 2022-01-11 | Resolución 1221 (2022-01-11) |
+| 3 | 2022-01-19 | Resolución 1364 (2022-01-19) |
