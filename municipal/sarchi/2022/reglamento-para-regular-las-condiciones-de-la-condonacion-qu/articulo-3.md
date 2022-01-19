@@ -1,0 +1,1 @@
+Artículo 3º-Solicitud de condonación: El beneficio de la condonación que establece la Ley N°10026 se resolverá a solicitud de parte de los contribuyentes en condición de morosidad que presenten el formulario correspondiente y la información requerida ante la Administración Tributaria de la Municipalidad.

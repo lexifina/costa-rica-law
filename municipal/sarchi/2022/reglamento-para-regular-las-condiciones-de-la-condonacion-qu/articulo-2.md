@@ -1,0 +1,7 @@
+Artículo 2º-Definiciones: Para efectos de este reglamento, se entenderá por:
+a. Condonación: Acto jurídico con el que la municipalidad expresa la voluntad de extinguir una deuda por recargos, intereses y multas, que puede ser total o parcial, de manera gratuita.
+b. Condonación total: En este caso, es el perdón o remisión del pago de recargos, intereses y multas que recaen sobre las obligaciones pendientes por concepto de impuestos, tasas y precios municipales, cuando se propone la cancelación total de la deuda tributaria en un sólo pago, o por medio de un arreglo de pago hasta su cumplimiento.
+c. Condonación parcial: Es el beneficio de la condonación de recargos, intereses y multas que recaen sobre las obligaciones pendientes por concepto de impuestos, tasas y precios municipales, cuando la cancelación total de la deuda tributaria se propone en tractos por medio de un arreglo de pago y el contrato se incumple.
+d. Condiciones para la implementación: Son las reglas particulares y requisitos a los que se deben acoger los solicitantes del beneficio de la condonación, en el cantón de Sarchí.
+e. Arreglo de pago: Acuerdo formal suscrito por los contribuyentes morosos que soliciten el beneficio de la condonación y la Municipalidad, para cancelar la deuda tributaria en tractos.
+f. Administración Tributaria: Para los efectos de este reglamento, entiéndase el Departamento de Gestión de Cobro y la Dirección de Hacienda de la Municipalidad de Sarchí.

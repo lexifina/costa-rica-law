@@ -1,0 +1,1 @@
+Artículo 5º-Presentación de la solicitud: El formulario de solicitud de condonación con la información y requisitos necesarios, se debe presentar en forma física al Departamento de Gestión de Cobro, o enviar como archivos adjuntos a los correos electrónicos: cobros@munisarchi.go.cr, la fecha límite para acogerse a la condonación será el 8 de julio del 2022.
