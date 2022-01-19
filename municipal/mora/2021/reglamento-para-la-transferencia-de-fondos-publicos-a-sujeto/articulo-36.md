@@ -1,0 +1,3 @@
+Artículo 36.-. Responsabilidad de seguimiento
+Durante la vigencia de la calificación de idoneidad otorgada, la Alcaldía Municipal deberá verificar, previa transferencia de nuevos recursos al sujeto calificado como idóneo.
+Será responsabilidad de la Alcaldía de cumplir con lo estipulado en los párrafos final y segundo de los artículos 7 y 25 de la Ley Orgánica de la Contraloría General de la República y en las Normas de Control Interno para el Sector Público, en lo referente a la implementación de los mecanismos de control necesarios y suficientes para verificar el correcto uso y destino de los beneficios otorgados a sujetos privados.

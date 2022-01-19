@@ -1,0 +1,3 @@
+Artículo 44- Suscripción de convenios
+Una vez constatado por parte del departamento de Planificación Presupuesto y Control , el cumplimiento de todos y cada uno de los requisitos establecidos en el presente reglamento, previo a realizar el giro de los recursos públicos al sujeto privado, solicitará a la Administración Municipal la suscripción del convenio de cooperación entre la Municipalidad y el sujeto privado, documento legal mediante el cual se constatara el compromiso y obligaciones específicas de las partes, el plazo, motivo u objeto del mismo y demás aspectos legales.
+El mismo deberá ser llevado para su aprobación al Concejo Municipal.

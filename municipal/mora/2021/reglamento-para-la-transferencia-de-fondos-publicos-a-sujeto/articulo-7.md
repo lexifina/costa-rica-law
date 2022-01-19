@@ -1,0 +1,1 @@
+Artículo 7.-La Administración Municipal podrá conceder una o más transferencias de efectivo al mismo sujeto privado en un mismo año para cubrir proyectos de distinta naturaleza, siempre que se cuente con capacidad administrativa para llevarlos a cabo, previa autorización del Concejo Municipal.
