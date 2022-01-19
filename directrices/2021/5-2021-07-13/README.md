@@ -14,3 +14,4 @@ Poderes y autorizaciones otorgadas por personas jurídicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-07-19 | la propia norma |
+| 2 | 2022-01-19 | Directriz 1 (2022-01-19) |
