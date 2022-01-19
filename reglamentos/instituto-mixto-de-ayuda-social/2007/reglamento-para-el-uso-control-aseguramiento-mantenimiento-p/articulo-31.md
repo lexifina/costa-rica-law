@@ -1,0 +1,3 @@
+Artículo 31.—Ningún acompañante está autorizado para:
+a) Exigir la conducción del vehículo a una velocidad mayor o menor de la permitida en la zona. En el primer caso no podrá aducirse urgencia en el servicio. Tampoco podrá obligarlo a maniobrar en contra de lo que dispone la Ley, su reglamento, esta normativa, o las instrucciones que gire el gerente o encargado que tiene a cargo el vehículo, las que fueren indicadas por las autoridades de tránsito o en contra de condiciones de circulación manifiestamente adversas para la seguridad de los otros ocupantes y del vehículo.
+(Así adicionado mediante sesión N° 001-2022 del 19 de enero de 2022)

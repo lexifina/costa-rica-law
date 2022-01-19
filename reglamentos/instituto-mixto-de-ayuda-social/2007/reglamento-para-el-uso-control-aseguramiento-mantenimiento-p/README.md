@@ -14,3 +14,4 @@ Reglamento para el uso, control, aseguramiento, mantenimiento preventivo y corre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-18 | la propia norma |
+| 2 | 2022-01-19 | Reglamento 1 (2022-01-19) |
