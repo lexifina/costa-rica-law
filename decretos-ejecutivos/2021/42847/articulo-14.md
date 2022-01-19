@@ -19,7 +19,8 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Anatomía Patológica, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad.
 14.5. Especialidad Médica en Anestesiología y Recuperación.
-Se reconoce como sinónimo de esta Especialidad, el siguiente término: Anestesiología y Reanimación.
+Se reconoce como sinónimo de esta Especialidad, los siguientes términos: Anestesiología y Reanimación, Anestesiología.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 2022-01-19 del 19 de enero del 2022)
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Anestesiología y Recuperación, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad. Este programa de estudios debe contemplar y garantizar, al menos una rotación en Anestesiología Pediátrica con una duración mínima de 6 meses."
 2. Que en acuerdo del Acta N° 2019-02-13, tomado en sesión ordinaria de la Junta de Gobierno del Colegio de Médicos y Cirujanos de Costa Rica, celebrada el 13 de febrero del 2019, se aprobó la inclusión de "Medicina Cardiovascular" como sinónimo de la Especialidad en Cardiología.
