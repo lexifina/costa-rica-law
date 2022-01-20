@@ -1,0 +1,1 @@
+ARTÍCULO 8- Tarifa del impuesto. La tarifa sobre las operaciones de venta o importación de los Sistemas Electrónicos de Administración de Nicotina (SEAN), los Sistemas Similares sin Nicotina (SSSN), los dispositivos electrónicos que utilizan tabaco calentado y tecnologías similares, sus accesorios y sus líquidos para uso, será de veinte por ciento (20%) sobre la base imponible.
