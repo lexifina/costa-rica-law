@@ -14,3 +14,4 @@ Política y Normativa de los Programas de Educación Abierta
 | --- | --- | --- |
 | 1 | 1998-05-20 | la propia norma |
 | 2 | 2020-09-04 | Decreto Ejecutivo 42617 (2020-09-04) |
+| 3 | 2022-01-20 | Decreto Ejecutivo 43311 (2022-01-20) |
