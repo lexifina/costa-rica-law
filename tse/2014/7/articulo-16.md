@@ -1,2 +1,3 @@
-Artículo 16.—Rige a partir de su publicación.
-Dado en San José, a los dos días del mes de diciembre de dos mil catorce.
+Artículo 16.-De la comunicación del egreso o revocación del beneficio. La Unidad de Género será la responsable de decidir y comunicar al funcionario/a beneficiado/a, el egreso o la revocación del beneficio. En cualquiera de los casos, el acto será debidamente fundamentado, con la indicación de los motivos y la causal acreditada que determinó esa decisión. Asimismo, contra ese acto cabe recurso de revocatoria ante la Unidad de Género y apelación ante la Dirección Ejecutiva, que podrá interponerse dentro de los tres días hábiles siguientes a la comunicación de la decisión.
+(Así reformado por el artíuclo 3° del decreto del Tribunal Supremo de Elecciones, N° 9 del 9 de abril de 2019)
+(Así modificada su numeración por el artículo 2° del decreto del Tribunal Supremo de Elecciones N° 1-2022 del 20 de enero del 2022, que lo trasapasó del antiguo artículo 15 al 16)
