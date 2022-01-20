@@ -1,0 +1,4 @@
+ARTÍCULO 9- Liquidación y pago del impuesto. Este impuesto se liquidará y pagará de la siguiente manera:
+a) En la producción nacional, durante los primeros quince días naturales de cada mes, salvo si el día en que se vence este plazo no es hábil, en cuyo caso se entenderá como prorrogado hasta el próximo día hábil.
+b) El fabricante presentará la declaración por todas las ventas efectuadas en el mes anterior, respaldadas debidamente mediante los comprobantes autorizados por la Administración Tributaria; para ello, utilizará el formulario de declaración jurada que apruebe la Dirección General de Tributación. La presentación de esta declaración y el pago del impuesto son simultáneos.
+c) En las importaciones o internaciones, en el momento previo al desalmacenaje del producto, efectuado por las aduanas. No se autorizará desalmacenar los productos, si los interesados no han realizado el pago del impuesto por los medios que defina la Administración Tributaria.

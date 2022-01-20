@@ -1,0 +1,1 @@
+ARTÍCULO 16- Recaudación y destino de multas. Las multas serán recaudadas por el Ministerio de Salud. Los recursos que se recauden por este rubro deberán destinarse a las labores de control y fiscalización para el cumplimiento efectivo de esta ley y se deberán distribuir regionalmente de manera proporcional al monto de las multas recaudadas por cada región rectora de salud.

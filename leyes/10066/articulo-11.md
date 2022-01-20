@@ -1,0 +1,1 @@
+ARTÍCULO 11- Administración del impuesto. La administración de este impuesto corresponderá a la Dirección General de Tributación. En materia tributaria, respecto a las sanciones y multas, son aplicables a este impuesto las disposiciones de la Ley 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971.
