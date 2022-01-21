@@ -1,0 +1,16 @@
+# Reglamento (2021-12-07)
+
+Política corporativa de confidencialidad de la información
+
+- Tipo: Reglamento
+- Número: 6490
+- Fecha: 2021-12-07
+- Ente emisor: Instituto Costarricense de Electricidad
+- Publicación: La Gaceta N° 13 del 2022-01-21
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=96130&param2=128612&param3=1 (ficha 96130)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2022-01-21 | la propia norma |
