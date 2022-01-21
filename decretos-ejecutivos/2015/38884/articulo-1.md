@@ -38,5 +38,5 @@ DECRETAN:
 EL PRECIO DE REFERENCIA DEL ARROZ EN GRANZA; Y EL PRECIO
 MÁXIMO Y MÍNIMO DE TODAS LAS CALIDADES DE ARROZ PILADO
 QUE SE COMERCIALIZAN EN EL TERRITORIO NACIONAL
-Artículo 1°.- De conformidad con la actualización de la estructura del modelo de costo de producción agrícola se establece el precio de referencia de compra del industrial al productor nacional de arroz, el cual será de ?24.255 colones con IVA (1%) incluido por saco de arroz en granza seca y limpia de 73,6 kilogramos con 13% de humedad y 1,5% de impurezas, puesto en planta. Todo esto en concordancia con los mecanismos de evaluación de la conformidad implementados por CONARROZ. Asimismo, se define a CONARROZ como el ente encargado del cumplimiento del precio de referencia.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43140 del 29 de julio del 2021)
+Artículo 1°.- De conformidad con la actualización de la estructura del modelo de costo de producción agrícola se establece el precio de referencia de compra del industrial al productor nacional de arroz, el cual será de ?27.253 colones con IVA (1%) incluido por saco de arroz en granza seca y limpia de 73,6 kilogramos con 13% de humedad y 1,5% de impurezas, puesto en planta. Todo esto en concordancia con los mecanismos de evaluación de la conformidad implementados por CONARROZ. Asimismo, se define a CONARROZ como el ente encargado del cumplimiento del precio de referencia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43402 del 21 de enero de 2022)
