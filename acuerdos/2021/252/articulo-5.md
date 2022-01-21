@@ -1,0 +1,3 @@
+Artículo 5. Productos autorizados para la emisión de valores temáticos
+Las emisiones temáticas poseen la misma estructura financiera y legal que una emisión ordinaria y, por ende, siguen el mismo proceso para su autorización, colocación y negociación en mercado de valores.
+Las estructuras posibles y requisitos para emitir valores temáticos son las establecidas en el Reglamento sobre oferta pública de valores, el Reglamento sobre procesos de titularización, el Reglamento sobre financiamiento de proyectos y el Reglamento general sobre sociedades administradoras y fondos de inversión, según aplique.

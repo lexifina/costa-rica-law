@@ -1,0 +1,3 @@
+Artículo 7. Gestión operativa de los recursos captados
+A efectos de procurar que los recursos provenientes de este tipo de emisiones se manejen de forma transparente, cuenten con una mayor trazabilidad y sean utilizados de acuerdo con los principios convenidos al momento de su emisión, los emisores o los fondos de inversión deberán distinguir en las notas de los estados financieros auditados anuales y de los estados financieros trimestrales la partida de los pasivos y los activos que corresponde a las emisiones verdes, sociales y sostenibles.
+Por otra parte, cuando se trata de refinanciación, el emisor debe garantizar permanentemente la existencia de una cartera de proyectos o activos elegibles que corresponda por lo menos al monto emitido.
