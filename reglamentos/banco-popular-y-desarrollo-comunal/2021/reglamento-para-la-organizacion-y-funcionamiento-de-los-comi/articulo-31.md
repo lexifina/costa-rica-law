@@ -1,0 +1,3 @@
+Articulo 31 °. Fundamento del Comité Corporativo de Riesgo.
+El Comité Corporativo de Riesgo tiene su fundamento en el Acuerdo SUGEF 2-1 O, Reglamento sobre la Administración Integral de Riesgos y debe apoyar y asesorar a la Junta Directiva Nacional en lo referente a la estrategia de gestión integral de riesgos del Conglomerado Financiero.
+Deberá proponer políticas, criterios y lineamientos destinados a establecer el apetito, tolerancia y la capacidad de riesgo. Asimismo, deberá velar porque el Conglomerado Financiero realice sus operaciones dentro de un marco controlado de riesgos, que garantice su sostenibilidad económica y operativa.
