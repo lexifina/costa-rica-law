@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna de la Prom
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-26 | la propia norma |
+| 2 | 2022-01-24 | Reglamento 394 (2022-01-24) |
