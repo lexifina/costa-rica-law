@@ -1,0 +1,2 @@
+Artículo 146.- Etapa recursiva. Tanto en procedimientos disciplinarios como en procedimientos de despido, contra la resolución final que dicte la Presidencia Ejecutiva, será admisible el recurso de revocatoria o reposición, previsto en la Ley General de la Administración Pública, el cual se interpondrá dentro de los tres días hábiles siguientes a la notificación del acto.
+Contra los demás actos del procedimiento sólo cabrán los recursos que sean admisibles de acuerdo con la Ley General de la Administración Pública y dentro de los plazos indicados en esa normativa

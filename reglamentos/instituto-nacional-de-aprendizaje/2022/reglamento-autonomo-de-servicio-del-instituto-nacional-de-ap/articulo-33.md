@@ -1,0 +1,5 @@
+Artículo 33.- Reclasificación, recalificación o reasignación de puesto. Cuando una dependencia determine que uno o varios de sus puestos amerite de una reclasificación, recalificación o reasignación de puesto, se deberá realizar el estudio correspondiente en aras de que se valide la necesidad del cambio propuesto para el puesto o puestos en cuestión, para lo cual, dicha dependencia deberá justificar y motivar la necesidad del ajuste. Para ello se deben seguir las siguientes disposiciones:
+a) El estudio deberá ser realizado por la Unidad de Recursos Humanos una vez solicitado el cambio por la dependencia interesada, para lo cual esta deberá contar con el procedimiento respectivo.
+b) Los resultados de dicho estudio estarán a disposición de su solicitante una vez que estos finalicen y den como resultado la denegatoria o recomendación de aprobación.
+c) Los cambios en el puesto deberán ser aprobados por la Gerencia General.
+d) En caso de ser aprobada la reclasificación, su vigencia será a partir del momento en que esta cuente, de forma eficaz, con el contenido presupuestario necesario.

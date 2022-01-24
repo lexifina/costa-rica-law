@@ -1,0 +1,1 @@
+Artículo 76.-Modificación de horario. El Instituto podrá modificar los horarios establecidos en este Reglamento, siempre que circunstancias especiales así lo exijan y no cause grave perjuicio a las personas servidoras.

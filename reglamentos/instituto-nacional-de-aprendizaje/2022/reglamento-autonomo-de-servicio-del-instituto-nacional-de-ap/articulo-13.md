@@ -1,0 +1,7 @@
+Artículo 13.- Plaza. Cada puesto de trabajo con su respectiva codificación y nomenclatura para ser ocupado por una persona a fin de ejercer un determinado cargo como parte de su relación laboral será denominado Plaza. Cada plaza del INA deberá contar con su respectiva numeración y podrá ser vacante pura, vacante interina u ocupada, cuya condición no variará la numeración de la plaza, a excepción de cuando se requiera una plaza subsidiaria, en cuyo caso se generará un nuevo número de plaza.
+La creación de plazas nuevas en el Servicio Autónomo del INA deberá ser aprobada por la Presidencia Ejecutiva, su eficacia quedará sujeta a la dotación y aprobación de contenido presupuestario por parte de la Junta Directiva y podrá darse en los siguientes casos:
+a) Para solventar necesidades propias del quehacer institucional.
+b) Para aumentar la capacidad institucional en la prestación de servicios.
+c) Para ejecutar proyectos institucionales específicos y temporales, en cuyo caso las plazas serán únicamente para modalidad de contratación por tiempo determinado.
+En todos los casos anteriores, la solicitud de creación de plazas deberá ser justificada por la jefatura de la dependencia que las requiere o por sus jefaturas superiores jerárquicas, mediante la solicitud correspondiente tramitada ante la Presidencia Ejecutiva
+No se requerirá la aprobación de la Presidencia Ejecutiva para la creación de plazas subsidiarias.

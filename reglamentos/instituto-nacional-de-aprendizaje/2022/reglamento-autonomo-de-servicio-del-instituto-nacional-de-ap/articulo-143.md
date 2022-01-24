@@ -1,0 +1,1 @@
+Artículo 143.- Sesiones y sede del Consejo Superior Disciplinario del INA. El Consejo Superior Disciplinario tendrá su sede en la Gerencia General y deberá convocar a sesión dentro de los siguientes 3 días después de recibido el expediente por parte del Órgano Director del Procedimiento.

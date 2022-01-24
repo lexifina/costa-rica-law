@@ -1,0 +1,3 @@
+Artículo 4.- Normas aplicables a la relación de empleo: Las personas servidoras del Instituto Nacional de Aprendizaje, en adelante INA, estará sujeto a este reglamento, al artículo 24 de la Ley Orgánica del Instituto Nacional de Aprendizaje, Ley No. 6868 y sus reformas, y a cualquier normativa vigente y aplicable en virtud de la naturaleza de empleo público de la relación laboral de este.
+Asimismo, el personal que esté sujeto al Régimen de Servicio Civil se regirá por el Estatuto y su Reglamento, por las demás leyes y reglamentos aplicables, por este Reglamento y cualquier otro aprobado por la Junta Directiva.
+En todos los casos, se aplicará el Código de Trabajo supletoriamente en cuanto resulte compatible con la naturaleza jurídica de la relación.

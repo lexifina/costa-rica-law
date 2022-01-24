@@ -1,0 +1,4 @@
+CAPÍTULO II
+PROCESOS ESPECIALES PARA LA CONTRATACIÓN DE PERSONAL DE
+CONFIANZA Y AUDITORÍA
+Artículo 47.- Proceso excepcional. Los procesos de nombramiento que se regulan en el presente capítulo son excepcionales y no deben darse a través del proceso regular para la contratación de personal que se dispone en el Capítulo I del presente título y, por consiguiente, no se realizan mediante el concurso y registro de oferentes que se disponen en él, no obstante, sí les serán aplicables los requisitos e incompatibilidades que se definen en este. Asimismo, para el nombramiento de una persona en cualquier cargo, mediante este proceso excepcional, se deberán contar con los requisitos académicos, de experiencia, competencias y otros que se determinen en los instrumentos técnicos respectivos del Sistema de Clasificación y Valoración de Puestos.

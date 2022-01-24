@@ -1,0 +1,4 @@
+Artículo 55.- Nombramientos interinos. Para la realización de nombramientos interinos se deben seguir las siguientes disposiciones:
+a) No se requerirá la aplicación del proceso regular de contratación de personal.
+b) Podrán contratarse personas que ya laboren con la institución o personas externas a esta. No obstante, se deberá validar inicialmente si las personas que ya laboran para la institución y cumplen con los requisitos de la plaza tienen interés, en cuyo caso se deberá dar prioridad a estas. En caso de oposición al nombramiento de una persona interesada que ya labore para la institución, deberá darse una justificación razonada en el perfil que se busca para el nombramiento.
+c) En caso de contratarse una persona externa, esta podrá nombrarse de forma directa, siempre y cuando cumpla con los requisitos de la plaza y se haga constar el mecanismo de selección utilizado.

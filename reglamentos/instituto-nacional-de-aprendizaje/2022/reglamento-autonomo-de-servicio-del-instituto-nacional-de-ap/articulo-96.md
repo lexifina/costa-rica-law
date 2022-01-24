@@ -1,0 +1,1 @@
+Artículo 96.- Prestaciones legales de las personas con nombramiento interino. Las personas servidoras nombrados como interinos en o por plazo fijo, cuando, por cualquier causa su trabajo exceda de un año, tendrán derecho al pago de los beneficios del preaviso y del auxilio de cesantía, salvo cese por justa causa.

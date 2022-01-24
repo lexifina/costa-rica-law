@@ -1,0 +1,3 @@
+Artículo 63.- Recargos. Se podrán acordar recargos de puestos de mayor categoría, si el servidor a quien se le hiciere el recargo reúne los requisitos del cargo superior, en cuyo caso se le reconocerá la diferencia salarial. Dichos recargos deberán ser aprobados por la Gerencia General.
+En el caso de personas servidoras sujetas al Régimen de Servicio Civil, será necesario contar, además, con la autorización previa de la Dirección General de Servicio Civil, cuando el recargo exceda de un mes.
+En ningún caso se hará remuneración adicional por recargos que no excedan de 15 días naturales continuos.

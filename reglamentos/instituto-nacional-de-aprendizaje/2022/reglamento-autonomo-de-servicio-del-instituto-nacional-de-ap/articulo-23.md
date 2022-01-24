@@ -1,0 +1,1 @@
+Artículo 23.- Régimen de prohibición. Las personas funcionarias que, por la naturaleza de sus cargos y por regulación expresa de ley, tengan prohibición para el ejercicio liberal de su profesión, recibirán una compensación de conformidad con la legislación vigente, la cual estará contemplada dentro del salario global y no como un rubro adicional de compensación.

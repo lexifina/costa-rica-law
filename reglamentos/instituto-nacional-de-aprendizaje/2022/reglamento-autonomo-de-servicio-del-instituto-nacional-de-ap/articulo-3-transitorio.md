@@ -1,0 +1,1 @@
+III. La persona nombrada en el cargo de Presidencia Ejecutiva pasará a ser parte del Servicio Autónomo del INA una vez que entre en vigencia el presente reglamento, sin embargo, el salario se mantendrá en las mismas condiciones actuales hasta el 7 de mayo de 2022.

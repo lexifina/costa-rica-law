@@ -1,0 +1,2 @@
+Artículo 134.- Análisis e investigación de los hechos y revisión documental.
+Nombrado el órgano director, este evaluará el mérito de los autos y determinará si la prueba aportada es suficiente para acreditar las faltas atribuidas. Caso contrario, realizará una investigación sumaria con el fin de incorporar al expediente la prueba adicional que estime necesaria para sustentar los cargos, que en ningún caso podrá prolongarse por más de quince días.

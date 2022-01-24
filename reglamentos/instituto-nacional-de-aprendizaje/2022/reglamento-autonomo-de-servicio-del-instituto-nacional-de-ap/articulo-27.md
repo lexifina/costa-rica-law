@@ -1,0 +1,1 @@
+Artículo 27.- Revaloraciones. El INA podrá poner en vigencia inmediatamente, cuando las condiciones económicas lo permitan y sin perjuicio de la respectiva aprobación presupuestaria de la Contraloría General de la República, los aumentos de sueldos que impliquen las revaloraciones generales de clases acordadas para las personas servidoras sujetas al Régimen de Servicio Civil.

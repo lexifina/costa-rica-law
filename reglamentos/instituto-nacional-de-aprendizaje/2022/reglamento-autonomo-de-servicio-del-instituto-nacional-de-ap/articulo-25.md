@@ -1,0 +1,1 @@
+Artículo 25.- Normas aplicables. Los salarios de las personas servidoras sujetas al Servicio Civil se regirán por la Ley de Salarios de la Administración Pública y demás normas complementarias, así como por este Reglamento.

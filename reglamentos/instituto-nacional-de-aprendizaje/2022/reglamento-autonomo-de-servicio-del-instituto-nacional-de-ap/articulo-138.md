@@ -1,0 +1,1 @@
+Artículo 138.- Informe del Consejo Superior Disciplinario del INA. En los procedimientos administrativos para despido, el informe será elaborado por el Consejo Superior Disciplinario del INA. Asimismo, el Consejo dará audiencia a la persona servidora investigada para que esta brinde sus conclusiones. El contenido del informe debe ser el mismo que indica el artículo 137 anterior.

@@ -1,0 +1,1 @@
+Artículo 60.- Custodia de información durante el periodo de prueba. La documentación respectiva será valorada y custodiada por el la Unidad de Recursos Humanos que ejecutará las acciones administrativas correspondientes.

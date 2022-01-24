@@ -1,0 +1,2 @@
+Artículo 39.- Registro de Oferentes. El INA contará con un registro de personas oferentes en la plataforma www.ane.cr, en el que cualquier persona interesada podrá registrarse y aplicar a las plazas vacantes de la institución. Asimismo, las plazas vacantes serán publicadas por el INA en esa misma plataforma, lo cual estará a cargo de la Unidad de Recursos Humanos.
+Asimismo, las personas podrán realizar el registro en la plataforma ane.cr, de forma presencial en la Unidad de Recursos Humanos o en las localidades que esta defina.

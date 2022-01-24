@@ -1,0 +1,1 @@
+Artículo 139.- Supletoriedad para los procedimientos administrativos disciplinarios y de despido. Para todo lo no previsto en estas disposiciones, serán de aplicación supletoria las disposiciones de la Ley General de la Administración Pública y el Código de Trabajo.

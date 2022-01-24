@@ -1,0 +1,1 @@
+Artículo 19.- Esquema de remuneración. El esquema de remuneración para las personas servidoras con relaciones de empleo bajo el Servicio Autónomo del INA, será el de Salario Global, el cual será fijado tomando en cuenta, al menos, los criterios de costo de vida y valoración de mercado en aras de garantizar la competitividad de las remuneraciones y del personal.

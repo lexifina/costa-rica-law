@@ -1,0 +1,1 @@
+Artículo 56.- Responsabilidad. Cualquier nombramiento que se realice en contravención de la normativa aplicable, se considerará nulo y constituirá falta grave para aquellas personas funcionarias que teniendo la responsabilidad de su gestión no advirtieran sobre sus vicios.

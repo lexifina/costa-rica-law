@@ -1,0 +1,1 @@
+Artículo 115.- Denuncias falsas: Podrá incurrir en responsabilidad penal, toda persona que interponga una denuncia falsa, asimismo la persona que haya comparecido como testigo y falte a la verdad podría incurrir en el delito de falso testimonio, en concordancia con lo estipulado en el Código Penal.

@@ -1,0 +1,1 @@
+Artículo 3.- Naturaleza de la relación de empleo: La relación de empleo entre el Instituto Nacional de Aprendizaje y todas sus personas servidoras será de naturaleza pública, aún respecto del personal no cubierto por el Régimen de Servicio Civil.

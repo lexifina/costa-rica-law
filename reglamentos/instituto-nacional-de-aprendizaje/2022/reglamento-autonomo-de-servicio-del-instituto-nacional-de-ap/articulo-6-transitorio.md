@@ -1,0 +1,1 @@
+VI. Los procedimientos disciplinarios y las gestiones de despido que al momento de entrada en vigor de este Reglamento se encuentran en trámite, continuarán gestionándose con las disposiciones legales vigentes al inicio de su tramitación hasta su finalización.

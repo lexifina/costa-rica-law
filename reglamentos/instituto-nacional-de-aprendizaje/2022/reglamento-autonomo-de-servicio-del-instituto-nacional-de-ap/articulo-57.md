@@ -1,0 +1,6 @@
+CAPITULO IV
+PERIODO DE PRUEBA
+Artículo 57.- Periodo de prueba y firmeza del nombramiento. A excepción de los puestos nombrados mediante procesos especiales para la contratación de personal de confianza que se definen en el Capítulo II del presente título, toda persona servidora ya sea nombrado como interino o en propiedad, deberá cumplir con un período de prueba de tres meses de servicio continuo, contados a partir de la fecha de su ingreso o a partir del momento en que ocupa otro puesto, luego del cual, si la evaluación realizada por su superior inmediato es satisfactoria, será ratificada su condición de servidora regular o titular del nuevo puesto asumido.
+La evaluación referida la harán la Unidad de Recursos Humanos con la jefatura inmediata de la persona servidora, mediante la aplicación de los instrumentos técnicos establecidos al efecto.
+En caso de que no se realice la evaluación respectiva, será ratificado el nombramiento de la persona so pena de responsabilidad administrativa para la jefatura a cargo de realizar la evaluación.
+El periodo de prueba no aplica para las personas que se encuentran nombradas actualmente en propiedad y que decidan trasladarse del Régimen del Servicio Civil al Régimen Autónomo del INA.

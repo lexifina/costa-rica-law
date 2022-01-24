@@ -1,0 +1,1 @@
+Artículo 94.- Zonaje. Todo servidor trasladado a otro lugar distinto al de su domicilio o del que fue contratado tendrá derecho a un sobresueldo denominado "zonaje", que será cancelado de conformidad con el respectivo reglamento.

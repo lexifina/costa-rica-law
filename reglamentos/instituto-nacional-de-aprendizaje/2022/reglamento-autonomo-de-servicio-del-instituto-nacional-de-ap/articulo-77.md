@@ -1,0 +1,1 @@
+Artículo 77.- Registro de asistencia. Deberán registrar asistencia todas las personas funcionarias, con excepción de aquellas excluidas del límite de la jornada ordinaria de trabajo y de aquellas dispensadas por disposición escrita de la Gerencia General.

@@ -1,0 +1,1 @@
+Artículo 26.- Escala de Sueldos de la Administración Pública. Para el caso de las personas sujetas al Servicio Civil, los reajustes de salarios obligados por la Escala de Sueldos de la Administración Pública, siempre y cuando los recursos económicos del INA lo permitan y la Contraloría General de la República apruebe la modificación presupuestaria correspondiente.

@@ -1,0 +1,4 @@
+CAPÍTULO V
+SERVICIO CIVIL
+Artículo 24.- Servicio Civil: Las personas servidoras del INA cuyo ingreso y nombramiento a la institución se haya dado previo a la entrada en vigor del presente reglamento y que no se hayan trasladado al Servicio Autónomo del INA estarán sujetas a las condiciones y disposiciones Régimen de Servicio Civil, de las regulaciones de la Ley 1581, Estatuto de Servicio Civil, de 30 de mayo de 1953, y su reglamento. Asimismo, el esquema de remuneración para el Servicio Civil será el que dicte la legislación vigente y aplicable.
+Estas personas servidoras en el Servicio Civil mantendrán todos los derechos, condiciones y beneficios laborales establecidos en el Reglamento Autónomo de Servicios y cualquier otra disposición dictada por la Junta Directiva, previas a la vigencia de este Reglamento y conforme a la legislación vigente.

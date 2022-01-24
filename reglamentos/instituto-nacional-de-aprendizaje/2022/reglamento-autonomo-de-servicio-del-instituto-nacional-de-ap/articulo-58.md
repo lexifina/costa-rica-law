@@ -1,0 +1,1 @@
+Artículo 58.- Deber de informar. Independientemente del artículo anterior, la jefatura inmediata deberá informar la Unidad de Recursos Humanos por escrito, de cualquier deficiencia que note en el desempeño de las funciones de la persona servidora durante el periodo de prueba.

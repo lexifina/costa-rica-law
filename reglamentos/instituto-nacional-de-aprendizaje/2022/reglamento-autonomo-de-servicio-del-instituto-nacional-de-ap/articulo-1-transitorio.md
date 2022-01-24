@@ -1,0 +1,2 @@
+NORMAS TRANSITORIAS
+I. Las personas que, al momento de entrada en vigencia del presente reglamento, se encuentren nombradas en propiedad o de forma interina en plazas cuya clase pase a ser de nombramiento de confianza, se mantendrán nombradas con su modalidad y tipo de nombramiento original hasta que dejen su plaza por cese debido a vencimiento de nombramiento interino, jubilación, renuncia o nombramiento de otra persona a través del proceso de contratación respectivo.
