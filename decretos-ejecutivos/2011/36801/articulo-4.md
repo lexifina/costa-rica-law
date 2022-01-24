@@ -1,1 +1,1 @@
-Artículo 4º—Misión del SFE. El SFE tiene como misión servir como Autoridad Nacional, que protege los recursos agrícolas de las plagas y contribuye con la protección de la salud humana y el ambiente, mediante el establecimiento de las medidas fitosanitarias y sanitarias en el ámbito de su competencia, en aras de un desarrollo competitivo y sostenible del sector agrícola y del bienestar social de la población.
+Artículo 4º-Misión del SFE. (Derogado por el artículo 1° del decreto ejecutivo N° 43399 del 24 de enero de 2022)

@@ -1,1 +1,1 @@
-Artículo 5º—Visión del SFE. La visión del SFE es ser una organización líder y con prestigio nacional e internacional, reconocida por la eficiencia, credibilidad y confianza de sus servicios a nivel de los usuarios, socios comerciales y partes interesadas, acorde con los cambios del entorno global, que contribuye con el desarrollo de la agricultura sostenible y competitiva del país.
+Artículo 5º-Visión del SFE. (Derogado por el artículo 1° del decreto ejecutivo N° 43399 del 24 de enero de 2022)
