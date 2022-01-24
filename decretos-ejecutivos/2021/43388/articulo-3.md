@@ -1,0 +1,1 @@
+Artículo 3º-Derogatoria. Deróguense los incisos l), n) y p) del artículo 1 del Reglamento sobre Criterios Objetivos de Selección de Contribuyentes para Fiscalización, Decreto Ejecutivo N° 25925-H del 13 de marzo de 1997 y sus reformas.
