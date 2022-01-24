@@ -1,0 +1,1 @@
+Artículo 3º-Finalidad de la caución. La caución tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que el caucionante responsable pueda producir al patrimonio de la Dirección General de Migración y Extranjería, sin que ello limite la eventual responsabilidad civil, penal y administrativa que de la acción dañosa se deriven.

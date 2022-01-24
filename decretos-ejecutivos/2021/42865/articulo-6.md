@@ -1,0 +1,1 @@
+Artículo 6º-Plazo de las Garantías. Las cauciones ofrecidas a favor de la Dirección General de Migración y Extranjería deberán mantenerse vigentes durante todo el tiempo que el caucionante ocupe el cargo que originó la suscripción de tal garantía, sin perjuicio de lo dispuesto en el numeral 120 de la Ley de la Administración Financiera de la República y Presupuestos Públicos.

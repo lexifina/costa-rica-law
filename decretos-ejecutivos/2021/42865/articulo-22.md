@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Responsabilidades y sanciones
+Artículo 22.-Responsabilidad por la no presentación o renovación de la caución. De conformidad con lo establecido en el numeral 120 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, la falta de presentación de la caución, así como la falta de renovación de la misma, serán causales para el cese del cargo sin responsabilidad patronal, de manera tal que cuando un funcionario incumpla con estas obligaciones en los plazos establecidos en este reglamento, la Gestión de Recursos Humanos emitirá de inmediato un informe de lo sucedido a la Asesoría Jurídica, a efecto de que se inicien las acciones pertinentes para proceder al despido del funcionario.

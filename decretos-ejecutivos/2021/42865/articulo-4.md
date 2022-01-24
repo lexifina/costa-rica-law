@@ -1,0 +1,1 @@
+Artículo 4º-Forma de rendir la caución. La caución a favor de la Dirección General de Migración y Extranjería se deberá rendir mediante la suscripción de una póliza de fidelidad suscrita ante una aseguradora regulada por la Superintendencia General de Seguros (SUGESE) con cargo al peculio del caucionante ante las entidades o empresas aseguradoras autorizadas para tal fin.

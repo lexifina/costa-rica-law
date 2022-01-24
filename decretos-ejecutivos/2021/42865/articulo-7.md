@@ -1,0 +1,1 @@
+Artículo 7._ Momento para rendir la caución. La caución deberá ser rendida una vez que la persona conozca la designación en el puesto que le obliga a rendirla, por lo cual, el caucionante deberá presentar ante la Gestión de Recursos Humanos de la Dirección General de Migración y Extranjería los documentos que acrediten la suscripción de tal garantía antes de asumir su cargo.

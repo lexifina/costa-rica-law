@@ -1,0 +1,1 @@
+Artículo 11.-Coincidencia de Funciones Sujetas a Caucionar. La persona servidora que por decreto, Ley o disposición interna realice funciones en más de un puesto donde se recauden, custodien y/o administren fondos o valores públicos, deberá rendir caución por el monto de mayor valor que le corresponda según la clasificación que establece este reglamento.
