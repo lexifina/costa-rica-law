@@ -14,3 +14,4 @@ Establecimiento de las tarifas mínimas de cobro de honorarios para los Ingenier
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-04-09 | la propia norma |
+| 2 | 2022-01-24 | Decreto Ejecutivo 43400 (2022-01-24) |
