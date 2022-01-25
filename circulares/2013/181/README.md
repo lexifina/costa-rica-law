@@ -13,3 +13,4 @@ Reiteración de la circular 43-98, sobre “Procesos con elevación a juicio en 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-29 | la propia norma |
+| 2 | 2022-01-25 | Circular 260 (2022-01-25) |
