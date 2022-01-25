@@ -1,0 +1,1 @@
+Artículo 28.-Periodicidad de las publicaciones en el Sitio Web y otros medios digitales oficiales. Los enlaces de área serán responsables de publicar la información al menos una vez al mes. La periodicidad estará en función de los requerimientos indicados en la normativa citada (Artículo 2) de este Reglamento y de las necesidades propias del área donde se generé la información.

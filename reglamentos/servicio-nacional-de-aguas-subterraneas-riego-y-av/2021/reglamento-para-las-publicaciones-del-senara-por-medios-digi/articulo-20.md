@@ -1,0 +1,1 @@
+Artículo 20.-Conocimiento de la Normativa. Será responsabilidad de los funcionarios(as) de Tecnología de Información que le dan acompañamiento al Comité conocer la normativa vigente en materia de publicación de información en sitios Web emitida por la Contraloría General de República, de la Defensoría de los Habitantes o toda norma que esté vinculada al tema.

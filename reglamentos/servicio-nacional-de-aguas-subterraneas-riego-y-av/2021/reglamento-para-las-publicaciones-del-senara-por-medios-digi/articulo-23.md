@@ -1,0 +1,1 @@
+Artículo 23.-Acerca de la capacitación: Será responsabilidad de los funcionarios de TI dar capacitación a los miembros del Comité y a los enlaces por área en aquellos temas que no sean de competencia del Administrador Externo del Sitio Web de Senara y otros medios digitales oficiales. Cualquier capacitación que se realice debe quedar documentada y firmada por ambas partes.
