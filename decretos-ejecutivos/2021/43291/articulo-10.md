@@ -1,0 +1,1 @@
+ARTÍCULO 10-. DEROGATORIA. Deróguese el Decreto Ejecutivo Nº 39471-S del 22 de enero de 2016 "Procedimiento para Registro Simplificado de Productos Cosméticos y Alimentos de Bajo Riesgo, Requisitos, Control y Vigilancia", publicado en el Alcance 14 a La Gaceta No. 26 del 08 de febrero del 2016.

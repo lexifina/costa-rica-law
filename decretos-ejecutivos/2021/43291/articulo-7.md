@@ -1,0 +1,5 @@
+CAPITULO III
+VERIFICACION Y VIGILANCIA
+ARTÍCULO 7. DE VERIFICACIÓN. El Ministerio verificará mediante control a posteriori (Ex - post) en la plataforma REGISTRELO que se haya presentado toda la documentación requerida que corresponda al producto objeto del registro sanitario simplificado por notificación según los reglamentos aplicables. Que la misma esté vigente, emitida por quien legalmente la puede emitir y que el solicitante esté legalmente autorizado para hacerlo.
+En caso de que se verifique que el alimento o cosmético objeto del registro sanitario simplificado por notificación no se encuentre en el listado del ANEXO I de este Reglamento, se procederá a cancelar el registro otorgado y se aplicarán las sanciones pertinentes según la legislación nacional.
+La veracidad de la información y de la documentación presentada en la plataforma REGISTRELO para los registros sanitarios simplificados por notificación, podrá también ser verificada mediante controles a posteriori ( ex - post) del producto en el mercado o lugar de fabricación o distribución.
