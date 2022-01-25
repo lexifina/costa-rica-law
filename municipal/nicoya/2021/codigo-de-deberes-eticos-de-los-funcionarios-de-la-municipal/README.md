@@ -14,3 +14,4 @@ Código de deberes éticos de los funcionarios de la Municipalidad de Nicoya
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-15 | la propia norma |
+| 2 | 2022-01-25 | Reglamento municipal 91 (2022-01-25) |

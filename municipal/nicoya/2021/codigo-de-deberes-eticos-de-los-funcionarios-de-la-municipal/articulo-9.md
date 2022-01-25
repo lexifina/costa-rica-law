@@ -1,2 +1,3 @@
-Disposiciones finales
-Artículo 9º-Responsabilidad de aplicación. Será responsabilidad de la Alcaldía Municipal, los Directores, los Coordinadores de Departamentos y cualquier otro perfil laboral con personal subalterno a cargo, asegurar el cumplimiento de los deberes establecidos en el presente Código de Deberes Éticos de los Funcionarios de la Municipalidad de Nicoya.
+COMISIÓN INSTITUCIONAL DE VALORES
+Artículo 9°—Créase la Comisión institucional de valores, la cual será nombrada por el Alcalde Municipal y estará compuesta por cinco miembros. Durarán en sus cargos dos años y su organización y funcionamiento se regirá de conformidad con la Ley General de la Administración Pública.
+(Así adicionado mediante sesión N° 091 del 25 de enero del 2022)
