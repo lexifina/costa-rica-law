@@ -1,1 +1,0 @@
-Artículo 13.—Evaluación independiente de la Auditoría Interna. La Auditoría Interna sólo será objeto de evaluaciones por un revisor o equipo de revisión calificado e independiente, externo a la municipalidad, el cual informará los resultados al jerarca y al Auditor Interno. Éste último deberá presentar al Jerarca, de ser procedente, el plan de mejoras correspondiente.
