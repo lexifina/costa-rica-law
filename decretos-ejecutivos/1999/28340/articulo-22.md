@@ -1,1 +1,0 @@
-Artículo 22.- Plazo para el préstamo de documentación. El préstamo de documentos no podrá exceder el plazo de ocho días hábiles, salvo en casos de excepción debidamente acreditados y autorizados por el responsable del Archivo.

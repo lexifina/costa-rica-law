@@ -1,1 +1,0 @@
-Artículo 31.- Acuerdo del comité: Los acuerdos del Comité se tomarán por mayoría y se consignará en el libro de actas que se llevará al efecto, el cual será responsabilidad del secretario. Los acuerdos tomados se comunicarán a las dependencias donde correspondan.

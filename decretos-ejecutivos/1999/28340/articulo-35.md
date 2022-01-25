@@ -1,1 +1,0 @@
-Artículo 35.- Obligación del Ministerio. El Ministerio deberá dotar al Archivo de los instrumentos y herramientas necesarias para que pueda llevar adelante su cometido y establezca los procedimientos y mecanismos de control adecuados a efecto de que esta Dependencia esté en capacidad de manejar en forma apropiada la documentación que tiene en custodia.
