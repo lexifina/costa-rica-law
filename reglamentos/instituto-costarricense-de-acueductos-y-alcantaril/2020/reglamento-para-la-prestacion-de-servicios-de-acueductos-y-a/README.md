@@ -17,3 +17,4 @@ Reglamento para la prestación de servicios de Acueductos y Alcantarillados
 | 2 | 2021-03-24 | Reglamento 21 (2021-03-24) |
 | 3 | 2021-05-25 | Reglamento 35 (2021-05-25) |
 | 4 | 2021-12-21 | Reglamento 84 (2021-12-21) |
+| 5 | 2022-01-25 | Reglamento 3 (2022-01-25) |
