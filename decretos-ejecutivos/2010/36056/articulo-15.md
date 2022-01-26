@@ -1,1 +1,0 @@
-Artículo 15.—Nombramiento ad hoc del Presidente del Consejo. Cuando existan ausencias, enfermedad o alguna causa justa que imposibilite al Presidente y al Vicepresidente simultáneamente de presentarse a sesión, en el seno del Consejo se designará un Presidente ad hoc.

@@ -1,1 +1,0 @@
-Artículo 29.—Intervenciones. Se concederá la palabra en el orden en que se haya solicitado y solo se podrá ejercer ese derecho después de que el Presidente le haya concedido la autorización para ello.

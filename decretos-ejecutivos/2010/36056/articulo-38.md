@@ -1,3 +1,0 @@
-De las dietas
-Artículo 38.—Asignación de dietas. Los miembros del Consejo serán remunerados mediante dietas que serán conforme lo regulado en los artículos 7 y 9 de la Ley General de Aviación Civil. Para efectos del importe de la dieta, se tomará como referencia el monto fijado a cancelar por ese concepto a los miembros del Consejo de Transporte Público, regulado en el artículo 10 de la Ley Nº 7969, “Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la Modalidad Taxi”.
-El monto para la cancelación de estas dietas será incluido en el presupuesto anual de la institución. Al mes no se podrá remunerar más de ocho sesiones, entre ordinarias y extraordinarias, siempre y cuando estas últimas sean necesarias.

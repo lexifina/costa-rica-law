@@ -1,1 +1,0 @@
-Artículo 18.—De la Secretaría del Consejo: La secretaría del Consejo estará a cargo de un (a) secretario (a) que deberá contar con la preparación profesional adecuada para el ejercicio del puesto. Las ausencias temporales del secretario de actas serán suplidas por la persona que el Consejo designe, desempeñándose como secretario de actas a. i.

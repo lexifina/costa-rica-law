@@ -1,1 +1,0 @@
-Artículo 12.—Sustituciones. Las sustituciones permanentes serán realizadas por la institución o ente que inicialmente hizo el nombramiento y utilizando el mismo procedimiento que el establecido para el nombramiento del miembro sustituido.

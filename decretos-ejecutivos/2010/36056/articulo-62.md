@@ -1,1 +1,0 @@
-Artículo 62.—Decisión. En la siguiente sesión ordinaria, el proyecto será sometido a discusión y votación. Se tendrá por aprobada una propuesta de reforma al presente Reglamento únicamente si así lo acuerdan al menos dos tercios del total de integrantes del Consejo.

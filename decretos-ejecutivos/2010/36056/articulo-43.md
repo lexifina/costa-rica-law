@@ -1,3 +1,0 @@
-CAPÍTULO V
-De las actas
-Artículo 43.—Redacción de las actas. De cada sesión del Consejo se levantará una acta por el (la) Secretario (a), que deberá asentarse en el Libro de Actas del Consejo, que contendrá la identificación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos. También se hará mención de los documentos vistos en sesión, los cuales se archivarán en el respectivo expediente de la sesión, poniendo el (la) Secretario (a) una nota de constancia o certificación de que es el documento a que hace referencia el acta.

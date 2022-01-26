@@ -1,1 +1,0 @@
-Artículo 57.—Eximiente de responsabilidad. Quienes razonen el voto negativo o se abstengan de votar, serán ajenos a las responsabilidades que competan en relación con el asunto particular para el cual ejercieron estas acciones.
