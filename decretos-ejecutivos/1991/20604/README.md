@@ -19,3 +19,4 @@ Reglamento Ley Promoción Desarrollo Científico y Tecnológico Nº 7169
 | 5 | 2005-07-26 | Decreto Ejecutivo 32613 (2005-07-26) |
 | 6 | 2011-05-06 | Decreto Ejecutivo 36575 (2011-05-06) |
 | 7 | 2012-06-25 | Ley 9046 |
+| 8 | 2022-01-26 | Decreto Ejecutivo 43523 (2022-01-26) |

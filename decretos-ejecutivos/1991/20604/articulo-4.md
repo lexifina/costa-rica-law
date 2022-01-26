@@ -1,2 +1,1 @@
-ARTÍCULO 4°.-Los miembros de la Comisión de Incentivos serán nombrados por un período de dos años, pudiendo prorrogarse su nombramiento por períodos iguales.
-(Así reformado parcialmente por el artículo 1° del decreto ejecutivo N° 30491 de 14 de mayo del 2002, el cual eliminó la frase "hasta por otro período igual" por "por períodos iguales")
+ARTÍCULO 4°.-(Derogado por el artículo 21 aparte c) del Reglamento del título II de la ley N° 7169 Ley Promoción del Desarrollo Científico y Tecnológico: mecanismos Organizativos para el Desarrollo Científico y tecnológico, aprobado mediante decreto ejecutivo N° 43523 del 26 de enero de 2022)

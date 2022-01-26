@@ -1,1 +1,1 @@
-ARTICULO 6°.- El quórum para la realización de las sesiones de la Comisión será de la mitad, más uno de los miembros acreditados. Los acuerdos se tomarán por mayoría simple, decidiendo en caso de empate el Presidente con doble voto.
+ARTICULO 6°.- (Derogado por el artículo 21 aparte c) del Reglamento del título II de la ley N° 7169 Ley Promoción del Desarrollo Científico y Tecnológico: mecanismos Organizativos para el Desarrollo Científico y tecnológico, aprobado mediante decreto ejecutivo N° 43523 del 26 de enero de 2022)
