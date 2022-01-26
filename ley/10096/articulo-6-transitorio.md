@@ -1,0 +1,1 @@
+TRANSITORIO VI- En un plazo no mayor a tres años, el Ministerio de Hacienda deberá ajustar sus estructuras presupuestarias a efectos de que la presupuestación refleje la asignación regional de los presupuestos.

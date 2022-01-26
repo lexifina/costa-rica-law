@@ -1,0 +1,11 @@
+TÍTULO V
+REFORMAS Y DEROGACIONES
+CAPÍTULO I
+REFORMAS
+ARTÍCULO 40- Reformas. Se reforman los artículos 11 y 13, y los incisos g) y k) del artículo 16 de la Ley 9036, Transformación del Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (Inder), de 11 de mayo de 2012. Los textos son los siguientes.
+Artículo 11- Apoyo del Inder a los planes de desarrollo rural territorial. El Inder y las instituciones públicas implicadas en el desarrollo territorial rural, de acuerdo con la disponibilidad presupuestaria de cada una de ellas, podrán facilitar el acceso a recursos materiales y financieros para la formulación y ejecución de los planes de desarrollo rural territorial, en concordancia con su presupuesto, así como los recursos necesarios para el funcionamiento de los consejos de desarrollo territorial rural. A su vez, podrán asesorar en la ejecución del proceso de promoción y brindar la capacitación de los distintos actores participantes, así como el apoyo y seguimiento organizativo que estos requieran.
+Artículo 13- Formulación de los planes de desarrollo rural territorial. El Inder, con la participación de los actores rurales tanto públicos como de la sociedad civil, agrupados en los consejos territoriales de desarrollo rural, apoyará y facilitará la formulación de los planes de desarrollo territorial rural de cada uno de los territorios, los cuales deberán estar armonizados con los planes reguladores elaborados por las municipalidades que orientarán la acción del sector público implicado, de acuerdo con los objetivos establecidos en la presente ley.
+Artículo 16- Competencias y potestades del Inder. Para el cumplimiento de sus fines, el Inder contará con las siguientes potestades y competencias:
+[...]
+g) Gestionar, coordinar e impulsar el desarrollo de los territorios rurales del país, en forma directa, con sus propios recursos, mediante la coordinación con otras instituciones, el de los asentamientos y de los territorios rurales; para ello, promoverá la elaboración de planes de desarrollo de los territorios rurales del país en el ámbito territorial y nacional.
+k) Formular, ejecutar y evaluar el Plan Operativo Institucional, de conformidad con las políticas de desarrollo rural, los planes de desarrollo territorial rural, el Plan Nacional de Desarrollo Rural y el Plan Nacional de Desarrollo.

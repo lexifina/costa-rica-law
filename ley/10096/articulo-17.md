@@ -1,0 +1,1 @@
+ARTÍCULO 17- Índices económicos. El Banco Central de Costa Rica deberá calcular un PIB regional, además cualquier otra información, a solicitud de Mideplán, que permita analizar el comportamiento económico en cada una de las regiones oficiales de planificación.

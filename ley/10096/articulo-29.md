@@ -1,0 +1,1 @@
+ARTÍCULO 29- Finalidad. El Fonader tendrá a su cargo la asignación de recursos complementarios para favorecer el desarrollo regional y la reducción de las asimetrías socioeconómicas interregionales e intrarregionales.

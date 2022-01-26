@@ -1,0 +1,1 @@
+ARTÍCULO 9- Rectoría. El Mideplán, en su calidad de ente rector del Sistema Nacional de Planificación, dirigirá y coordinará el Subsistema por medio del Área de Planificación Regional y sus direcciones regionales.

@@ -1,0 +1,2 @@
+ARTÍCULO 20- Servicios institucionales. Considerando criterios de eficacia, eficiencia y en equilibrio con la demanda de los usuarios del servicio, las instituciones públicas cuyas funciones coadyuven al desarrollo regional tendrán sedes regionales.
+Los jerarcas institucionales, en los procesos de rendición de cuentas, informarán de manera detallada la gestión realizada para el cumplimiento de la obligación descrita.

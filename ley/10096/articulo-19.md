@@ -1,0 +1,1 @@
+ARTÍCULO 19- Homogeneidad de modelos de regionalización institucional. Las instituciones centralizadas y descentralizadas deberán ajustar su organización regional a la regionalización oficial emitida por el Mideplán. A lo interno de cada región las instituciones se organizarán de la manera más conveniente para la prestación de sus servicios.
