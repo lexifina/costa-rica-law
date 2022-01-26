@@ -1,0 +1,1 @@
+TRANSITORIO V- En un plazo máximo de dos años, a partir de la publicación de esta ley, las instituciones deberán incluir en sus presupuestos anuales un apartado que precise, por cada una de las regiones, los gastos y las inversiones a desarrollar en estas.

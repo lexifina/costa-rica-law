@@ -1,0 +1,1 @@
+TRANSITORIO II- A partir de la vigencia de esta ley y hasta un plazo de tres años permanecerá vigente la actual división regional establecida en el Decreto N° 16068, hasta que el Ministerio de Planificación Nacional y Política Económica (Mideplán) defina la nueva división regional del país.

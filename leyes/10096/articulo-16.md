@@ -1,0 +1,1 @@
+ARTÍCULO 16- Estadísticas e información. Todas las instituciones públicas, de acuerdo con su naturaleza, deben producir, registrar, procesar, presentar, actualizar y facilitar periódicamente sus estadísticas, de acuerdo con las regiones de planificación vigentes en el país y en los espacios territoriales, cantonales y distritales.

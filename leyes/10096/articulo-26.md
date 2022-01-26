@@ -1,0 +1,7 @@
+CAPÍTULO IV
+MECANISMOS DE ACUERDOS Y COORDINACIÓN
+INTERSECTORIAL CON LAS AREDES
+ARTÍCULO 26- Mesas de Acuerdo para el Desarrollo Regional. Se crea, en cada región una Mesa de Acuerdos para el Desarrollo Regional, en adelante Mesas de Acuerdo, como espacio de encuentro y negociación entre autoridades nacionales y los interlocutores regionales.
+Los programas y proyectos derivados de los acuerdos serán de carácter obligatorio para las instituciones, en tanto correspondan con sus competencias y funciones establecidas en el marco jurídico, y que los proyectos y programas correspondan con toda la regulación vigente. Las instituciones públicas vinculadas con la ejecución de esos proyectos deberán asignar de los recursos correspondientes para su ejecución, en el presupuesto ordinario y extraordinario inmediato siguiente. Mediante reglamento de esta ley se deberá definir el mecanismo de funcionamiento y la toma de decisiones por parte de las Mesas de Acuerdo para el Desarrollo Regional.
+Las Mesas de Acuerdo estarán constituidas por una delegación de ministros o ministras, o viceministros o viceministras en su representación, presidentes o presidentas ejecutivos o gerentes en su representación y el directorio de las Aredes de cada región. En caso de asistir a las Mesas de Acuerdos funcionarios en calidad de representación, lo harán con voz, voto y poder de decisión en el acto.
+La presidencia de la Mesa de Acuerdo corresponderá a la presidencia de las Aredes y se reunirá, en cada una de las regiones, al menos una vez por semestre.
