@@ -26,7 +26,8 @@ Del posgrado en Derecho Notarial y Registral.
 3. Fotografía tamaño pasaporte, reciente y de buena calidad.
 4. Presentación del documento de identificación legalmente válido y vigente, con su respectiva fotocopia.
 5. Certificación de antecedentes penales.
-6. Acreditar el pago de la primera cuota del Fondo de Garantía.
+6. Acreditar la suscripción del seguro de responsabilidad civil profesional para notarios.
+(Así reformado el inciso anterior en sesión N° 003 del 26 de enero de 2022)
 7. Declaración jurada rendida ante notario público (testimonio de ESCRITURA PÚBLICA) con los timbres correspondientes (¢125 en timbre fiscal y ¢250 en timbre del Colegio de Abogados, artículos 243 del Código Fiscal y artículo 106 inciso g), del Arancel de Profesionales en Derecho, Decreto Ejecutivo Nº 32493-J, respectivamente) donde el solicitante manifieste expresamente si le asisten o no los impedimentos para el ejercicio de la función notarial, establecidos en el artículo 4º del Código Notarial, refiriéndose a cada uno de ellos de forma individual, tal y como se dispuso en resolución Nº 2000-1287 de las 08:00 horas, del 29 de setiembre del 2000. Respecto al inciso f), específicamente se deberá indicar si se ejerce un cargo público y en caso afirmativo, indicar el nombre de la institución.
 8. Para el caso del extranjero, de conformidad con el inciso d) del artículo 3º del Código Notarial, deberá acreditar mediante documento idóneo, que los notarios costarricenses pueden ejercer el notariado en su país de procedencia, en condiciones iguales a las que se otorgan a su persona por nuestro régimen jurídico (reciprocidad). También deberá aportar documento oficial extendido por su país de origen, en el cual conste su récord de antecedentes penales.
 9. Recibo o entero de cancelación de la tarifa correspondiente a este servicio, setenta y cinco mil colones (¢50.000,00 por la inscripción y ¢25.000,00 por la habilitación vigentes a partir del 13 de noviembre del 2010).
@@ -36,7 +37,8 @@ Rehabilitación de notario inscrito, inactivo por cese voluntario o forzoso o su
 3. Certificación de antecedentes penales.
 4. Declaración jurada rendida ante notario público (ESCRITURA PÚBLICA) con los timbres correspondientes (¢125 en timbre fiscal y ¢250 en timbre del Colegio de Abogados, artículos 243 del Código Fiscal y artículo 106 inciso g), del Arancel de Profesionales en Derecho, Decreto Ejecutivo Nº 32493-J, respectivamente) donde el solicitante manifieste expresamente si le asisten o no los impedimentos para el ejercicio de la función notarial, establecidos en el artículo 4º del Código Notarial, refiriéndose a cada uno de ellos de forma individual, tal y como se dispuso en resolución Nº 2000-1287 de las 08:00 horas, del 29 de setiembre del 2000. Respecto al inciso f), específicamente se deberá indicar si ejerce un cargo público y en caso afirmativo, indicar el nombre de la institución.
 5. Constancia del Departamento de Archivo Notarial del Archivo Nacional, de estar al día en la presentación de los índices, salvo en el caso de un notario inscrito.
-6. Encontrarse al día en el pago del Fondo de Garantía de los Notarios Públicos, en caso de adeudar cotizaciones, presentar recibo de cancelación.
+6. Acreditar la suscripción del seguro de responsabilidad civil profesional para notarios.
+(Así reformado el inciso anterior en sesión N° 003 del 26 de enero de 2022)
 7. Recibo o entero de cancelación de la tarifa correspondiente a este servicio, veinticinco mil colones (¢25.000,00 vigente a partir del 13 de noviembre del 2010).
 Aquéllos notarios que se encontraban inactivos antes de entrada en vigencia del Código Notarial y no hubieren gestionado posteriormente, deberán aportar también original y fotocopia de los títulos de licenciado en Derecho y de abogado inscrito en el Colegio de Abogados de Costa Rica.
 Cese o inhabilitación voluntaria en el ejercicio del notariado
@@ -50,7 +52,8 @@ En cualquiera de los tres casos anteriores, para ser habilitado como notario del
 1. Documento original del acuerdo que dispuso su nombramiento.
 2. Indicar la dirección exacta donde se desempeñará como notario (provincia, cantón, distrito y otras señas que faciliten la ubicación).
 3. Constancia del Departamento de Archivo Notarial del Archivo Nacional de que se encuentra al día en la presentación de los índices notariales, salvo que únicamente se encontrara inscrito como notario.
-4. Encontrarse al día en sus cotizaciones al Fondo de Garantía, por lo que, en caso de adeudar algunas cuotas, se debe aportar copia del recibo de pago, salvo que únicamente se encontrara inscrito como notario.
+4. Acreditar la suscripción del seguro de responsabilidad civil profesional para notarios.
+(Así reformado el inciso anterior en sesión N° 003 del 26 de enero de 2022)
 5. Recibo o entero de cancelación de la tarifa correspondiente a este servicio, veinticinco mil colones (¢25.000,00 vigente a partir del 13 de noviembre del 2010).
 Cese de notario del estado (Procuraduría) o institucional (administración pública incluyendo los entes públicos no estatales). En caso de que el notario del Estado o institucional sea cesado en sus funciones notariales, deberá informarlo a la Dirección Nacional de Notariado a efecto de realizar la registración correspondiente y proceder a depositar su tomo de protocolo en uso. El ente público que requirió su nombramiento, también debe comunicarlo a la Dirección.
 Habilitación de cónsul con funciones notariales. En estas gestiones se debe tomar en consideración lo siguiente:
@@ -59,7 +62,8 @@ Si el solicitante se encuentra activo como notario pleno, debe solicitar su cese
 En cualquiera de los dos casos anteriores, para ser habilitado como cónsul con funciones notariales, deberá aportar:
 1. Solicitud escrita con el acuerdo que dispuso su nombramiento y la circunscripción territorial donde fue nombrado.
 2. Cuando el solicitante fue notario pleno activo, deberá aportar constancia del Departamento de Archivo Notarial del Archivo Nacional de que se encuentra al día en la presentación de los índices notariales.
-3. Suscribir un nuevo contrato con la operadora del Fondo de Garantía, a fin de cancelar la primera cuota como cónsul con funciones notariales.
+3. Acreditar la suscripción del seguro de responsabilidad civil profesional para notarios.
+(Así reformado el inciso anterior en sesión N° 003 del 26 de enero de 2022)
 4. Recibo o entero de cancelación de la tarifa correspondiente a este servicio, veinticinco mil colones (¢25.000,00 vigente a partir del 13 de noviembre del 2010).
 Traslado de circunscripción o cese de cónsul con funciones notariales. En caso de que el cónsul con funciones notariales sea trasladado a otro Consulado, éste o el Departamento de Servicio Consular deberán comunicarlo a la Dirección Nacional de Notariado a efecto de realizar la registración correspondiente.
 Si el Cónsul es cesado en sus funciones notariales, además de la comunicación ante dicha, el cónsul debe proceder a depositar su tomo de protocolo en uso.
@@ -72,20 +76,23 @@ En ambos casos, la reproducción de los instrumentos públicos a reponer deberá
 Yo XXX, notario(a) público(a), de conformidad con lo establecido en el artículo sesenta y tres del Código Notarial, hago constar que lo anterior es copia fiel y auténtica del texto del instrumento público número XXX, iniciado al folio XXX y concluido al folio XXX del tomo número X de mi protocolo y la expido para tramitar su reposición ante la Dirección Nacional de Notariado. San José, a las XXX horas XXX minutos del XXX de XXX de dos mil diez.
 Tener presente que el texto debe ser idéntico al que se encontraba en la matriz. De haberse corregido errores en la matriz, deberá transcribirse el texto corregido y advertirse dicha circunstancia en el documento.
 5. Recibo o entero de cancelación de la tarifa correspondiente a este servicio (¢50.000,00, de 1 a 10 folios, si la reposición es de más de diez folios, deberá cancelarse ¢5.000,00 adicionales por cada folio utilizado y ¢1.000,00 adicionales por cada folio en blanco, vigente a partir del 13 de noviembre del 2010).
-Devolución de cuotas del Fondo de Garantía a notario inactivo
-1. Solicitud escrita con señalamiento de medio para notificaciones.
-2. Los únicos requisitos para gestionar dicha devolución son: a) encontrarse inactivo como notario; b) no existir proceso disciplinario con acción civil resarcitoria en su contra ante el juzgado notarial; y.
-3. El notario inactivo a quien se le hubiera aprobado la devolución de sus aportes al Fondo de Garantía Notarial, debe tener en cuenta que en caso de solicitar posteriormente su habilitación para ejercer nuevamente el notariado, deberá reintegrar el MONTO TOTAL entregado por la operado del fondo (Resolución Nº 427-2006, publicada en el Boletín Judicial Nº 94 del 17 de mayo del 2006).
-Devolución de cuotas del Fondo de Notario fallecido a sus beneficiarios
-1. Solicitud escrita de los beneficiarios designados con señalamiento de medio para notificaciones.
-2. En caso de que la solicitud, no sea presentada personalmente por los beneficiarios, su firma deberá ser autenticada por abogado.
-3. Adjuntar certificación de defunción del notario.
-4. Acreditar que el último tomo de protocolo que mantenía el notario en uso, fue depositado en el Archivo Notarial, Departamento del Archivo Nacional.
-Devolución de cuotas del Fondo de Notario fallecido sin beneficiarios
-1. Solicitud escrita del albacea del sucesorio del notario con señalamiento de medio para notificaciones.
+(*)Devolución de cuotas del Fondo de Garantía a notario Inhabilitado
+1. Solicitud escrita mediante el Formulario Oficial debidamente lleno.
+2. Declaración jurada ante Notario Público al día en todos sus deberes funcionales (según el modelo de declaración aportado por la DNN) declarando si tiene o no conocimiento directo o indirecto, mediato o inmediato, personal o por interpuesta persona, de que existan en su contra procesos judiciales tramitados o en trámite ante alguna autoridad jurisdiccional, que posean reclamos, acciones o pretensiones resarcitorias fundadas o derivadas directa o indirectamente de sus actuaciones notariales.
+(*) (Así reformado el inciso anterior en sesión N° 003 del 26 de enero de 2022)
+(*)Devolución de cuotas del Fondo de Notario fallecido a sus beneficiarios
+1. Solicitud escrita del beneficiario mediante el Formulario Oficial debidamente lleno.
+2. En caso de que la solicitud, no sea presentada personalmente, su firma deberá ser autenticada por abogado o notario público.
+(*) (Así reformado el inciso anterior en sesión N° 003 del 26 de enero de 2022)
+(*)Devolución de cuotas del Fondo de Notario fallecido sin beneficiarios
+1. Solicitud escrita del del albacea del sucesorio del notario, mediante el Formulario Oficial debidamente lleno.
 2. Certificación de inscripción del albaceazgo en el Registro Público.
-3. En caso de que la solicitud, no sea presentada personalmente, su firma deberá ser autenticada por abogado.
-4. Acreditar que el último tomo de protocolo que mantenía el notario en uso, fue depositado en el Archivo Notarial, Departamento del Archivo Nacional.
+3. En caso de que la solicitud, no sea presentada personalmente, su firma deberá ser autenticada por abogado o notario público.
+(*) (Así reformado el inciso anterior en sesión N° 003 del 26 de enero de 2022)
+(*)Devolución de cuotas del Fondo de Notario Habilitado:
+1. Solicitud escrita mediante el Formulario Oficial debidamente lleno.
+2. Comprobante de la suscripción del seguro de Responsabilidad Civil Profesional.
+(*) (Así adicionado el inciso anterior en sesión N° 003 del 26 de enero de 2022)
 Cotejo de instrumentos públicos. Cuando se gestione el cotejo de instrumentos públicos, deberá presentarse solicitud escrita, con señalamiento para atender notificaciones, la cual contendrá lo siguiente:
 1. Nombre completo del notario o notarios -en caso de conotariado- que autorizaron el instrumento público que se solicita cotejar.
 2. Número del instrumento público, del tomo de protocolo y fecha de autorización.
@@ -101,7 +108,8 @@ Razón de apertura en los tomos de protocolo. Los notarios públicos que requier
 1. Recibo original de depósito del tomo de protocolo anterior, extendido por el Archivo Notarial. Si se trata del trámite de un nuevo tomo de protocolo originado de un proceso de habilitación por primera vez o de una rehabilitación, no se exigirá el recibo de depósito de tomo.
 2. Todos los folios frente del tomo de protocolo deberán ser sellados en su extremo superior derecho con el sello de tinta del notario (sin tapar la foliatura, ni el espacio para escribir sobre la primera línea).
 3. El tomo de protocolo deberá contener timbre fiscal de un mil doscientos cincuenta colones, adherido en el folio uno frente, al margen superior izquierdo (artículo 248 del Código Fiscal, incrementado en un 25% por la Ley de Equilibrio Financiero del Sector Público, Nº 7088).
-4. Estar AL DÍA en sus cotizaciones al Fondo de Garantía Notarial. Razón apertura.
+4. Estar AL DÍA con la suscripción y pago del seguro de responsabilidad civil profesional para notarios habilitados en la Dirección Nacional de Notariado.
+(Así reformado en sesión N° 003 del 26 de enero de 2022)
 5. Recibo o entero de cancelación de la tarifa correspondiente a este servicio, veinticinco mil colones (¢25.000,00 vigente a partir del 13 de noviembre del 2010).
 La entrega del tomo para la consignación de la razón de apertura NO es personal, pero su retiro SÍ.
 Custodia temporal de tomo de protocolo (máximo tres meses)
@@ -117,7 +125,8 @@ Adjuntar a la solicitud en forma separada:
 2. Timbre del Archivo Nacional: ¢5,00.
 3. Recibo o entero de cancelación de la tarifa correspondiente a este servicio, diez mil colones (¢10.000,00 vigente a partir del 13 de noviembre del 2010).
 El plazo mínimo de entrega es de cinco días hábiles posteriores al recibo de la solicitud.
-Autenticación de firma del notario en documentos a utilizar en el exterior para su posterior legalización en el Ministerio de Relaciones Exteriores. El notario debe estar ACTIVO y AL DÍA en sus cotizaciones al Fondo de Garantía Notarial y adjuntar recibo o entero de cancelación de la tarifa correspondiente a este servicio, veinticinco mil colones (¢10.000,00 vigente a partir del 13 de noviembre del 2010).
+Autenticación de firma del notario en documentos a utilizar en el exterior para su posterior legalización en el Ministerio de Relaciones Exteriores. El notario debe estar AL DÍA con la suscripción y pago del seguro de responsabilidad civil profesional y adjuntar recibo o entero de cancelación de la tarifa correspondiente a este servicio.
+(Así reformado el inciso anterior en sesión N° 003 del 26 de enero de 2022)
 Documentos notariales. Los documentos que requieran la autenticación de la firma del notario a fin de legalizarlos, deberán cumplir con la normativa contenida en el Código Notarial, de acuerdo al tipo de documento notarial de que se trate (Testimonios, Traducciones, Certificaciones, Actas Extraprotocolares) todos éstos deben confeccionarse en español (artículo 71 Código Notarial).
 Testimonio. Si en el testimonio de un instrumento público no se indicó el país de destino, el notario lo consignará por nota al final (después del engrose) con su firma y sello al pie.
 Deberán cancelarse: a) timbre fiscal: ¢250,00 (¢125,00 por la expedición del testimonio y ¢125,00 por la autenticación) y si se otorgan poderes, deberán adicionarse ¢125,00 en timbre fiscal por cada uno; b) timbre del Colegio de Abogados ¢250,00.
