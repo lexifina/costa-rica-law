@@ -1,6 +1,6 @@
 # Creación de la Región de Heredia
 
-Ley N° 7775 del 1998-04-29. SINALEVI, ficha 43685: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43685&param2=103957&param3=1>.
+Ley N° 7775 del 1998-04-29. SINALEVI, ficha 43685: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43685&param2=128672&param3=1>.
 
 Publicada en La Gaceta N° 97 del 1998-05-21.
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 4 | 1998-05-21 | Ley 7775 | 1998-04-29 |
 | 2 de 4 | 1998-05-21 | SINALEVI | 1998-04-29 |
 | 3 de 4 | 1998-05-21 | Ley 7794 | 1998-04-30 |
+| 4 de 4 | 2022-01-26 | Ley 10096 | 2021-11-24 |
