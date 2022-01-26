@@ -2,7 +2,9 @@ CAPÍTULO SEGUNDO
 GLOSARIO DE TÉRMINOS
 Artículo 02.- Para la aplicación del presente Reglamento se entenderá por:
 AGENTE VIAJERO: Persona extranjera, representante de una compañía transnacional que ingresa al país.
-APÁTRIDA: Persona extranjera que carece de patria y a quien el Ministerio de Relaciones Exteriores y Culto le ha reconocido tal condición conforme los convenios internaciones sobre la materia.
+Apátrida: Aquella persona a quien el Ministerio de Relaciones Exteriores y Culto le haya reconocido y declarado tal condición o quien haya sido declarado como tal por otro Estado de conformidad con las convenciones internacionales vigentes.
+Solicitante de reconocimiento de la condición de persona apátrida: Aquella persona con un expediente abierto de solicitud de reconocimiento de la condición de persona apátrida ante el Ministerio de Relaciones Exteriores y Culto.
+(Así reformada la definición anterior el artículo 14 del decreto Ejecutivo N° 43448 del 26 de enero del 2022 )
 APODERADO: Persona a favor de quien se ha extendido un poder especial a efectos de que actúe en su nombre y representación conforme lo establecido en nuestra legislación.
 ARBITRAJE: En el derecho internacional significa la resolución de una diferencia entre Estados a través de una decisión jurídica de un o más árbitros o de un tribunal, aparte del Tribunal Internacional de Justicia, elegidos por las partes.
 ÁRBITRO: Juez designado por las partes, sea por propia determinación o por imposición legal, con el objeto de determinar o resolver una situación conforme a derecho.
@@ -38,7 +40,8 @@ PERSONAL ADSCRITO A LOS SERVICIOS POSTERIORES A LA VENTA: Persona extranjera que
 PERSONAL DE TRANSFERENCIA DENTRO DE UNA EMPRESA: Persona extranjera que le une una relación laboral con una empresa, y es enviado a Costa Rica pretendiendo desempeñar funciones gerenciales, ejecutivas o que conlleven conocimientos especializados en esa empresa o en una de sus subsidiarias o filiales.
 PERSONA EXTRANJERA EN TRÁNSITO: Persona extranjera que viaja en un medio de transporte internacional, que ingresa a puerto costarricense por el plazo determinado por la Dirección General con el fin de dirigirse a un tercer país.
 PERSONA JURÍDICA: Entidad, asociación o empresa, con capacidad suficiente para contraer obligaciones y realizar actividades que generan plena responsabilidad jurídica, frente a sí mismos y frente a terceros.
-PERSONA FÍSICA: individuo susceptible de adquirir derechos y contraer obligaciones. PROFESIONAL: Persona extranjera que ejerce una profesión.
+PERSONA FÍSICA: individuo susceptible de adquirir derechos y contraer obligaciones.
+PROFESIONAL: Persona extranjera que ejerce una profesión.
 PRÓRROGA DE TURISMO: Autorización para extender el plazo de estadía en el país a la persona extranjera que ingresó como turista, este trámite no genera derechos de permanencia.
 RUEBA DOCUMENTAL: Medio a través del cual los cónyuges demuestran el conocimiento recíproco o bien, las personas que ostentan una categoría especial por razones humanitarias, demuestran su situación especial, a saber, certificaciones de autoridad competente que indique el domicilio, estado de salud, arraigo, recibos, fotografías, entre otros.
 RAZÓN HUMANITARIA: Circunstancia en la que se encuentra una persona extranjera con alto grado de vulnerabilidad en detrimento de su condición de persona humana.
@@ -49,6 +52,8 @@ RESIDENTE PERMANENTE: Persona extranjera a quien la Dirección General le otorgu
 RESIDENTE TEMPORAL: Persona extranjera a quien la Dirección General le otorgue autorización de permanencia por tiempo definido.
 SALVOCONDUCTO: Documento de viaje que presentan las personas extranjeras extendida por las autoridades competentes de su país, en sustitución de su pasaporte.
 SOLICITANTE: Persona extranjera que solicite a la Dirección una autorización de permanencia legal, estadía en el país o cualquier otro trámite para el que esté facultado.
+Solicitante de reconocimiento de la condición de persona apátrida: Aquella persona con un expediente abierto de solicitud de reconocimiento de la condición de persona apátrida ante el Ministerio de Relaciones Exteriores y Culto.
+(Así adicionada la definición anterior por el artículo 14 del decreto ejecutivo N° 43448 del 26 de enero del 2022)
 TÉCNICO: Persona que posee los conocimientos especiales de una ciencia, arte u oficio.
 TURISTA: Persona extranjera a quien se le autoriza su ingreso al país únicamente con fines de descanso o esparcimiento y que cuenta con medios económicos de subsistencia suficientes para el plazo de estadía autorizado.
 TRABAJADOR LIGADO A PROYECTOS ESPECÍFICOS Y DE INTERES PÚBLICO: Las personas extranjeras que las empresas requieran contratar para proyectos y obras especiales.

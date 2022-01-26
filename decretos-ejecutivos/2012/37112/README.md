@@ -20,3 +20,4 @@ Reglamento de Extranjería y Créa Día del Costarricense en el Exterior, cuyo f
 | 5 | 2018-07-27 | Decreto Ejecutivo 41310 (2018-07-27) |
 | 6 | 2021-01-14 | Decreto Ejecutivo 42814 (2021-01-14) |
 | 7 | 2022-01-17 | Decreto Ejecutivo 42389 (2022-01-17) |
+| 8 | 2022-01-26 | Decreto Ejecutivo 43448 (2022-01-26) |
