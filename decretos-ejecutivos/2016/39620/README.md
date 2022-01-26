@@ -14,3 +14,4 @@ Reglamento para la Declaratoria de la Condición de Persona Apátrida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-14 | la propia norma |
+| 2 | 2022-01-26 | Decreto Ejecutivo 43448 (2022-01-26) |
