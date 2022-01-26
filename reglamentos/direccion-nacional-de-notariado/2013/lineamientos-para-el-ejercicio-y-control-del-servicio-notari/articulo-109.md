@@ -1,1 +1,2 @@
-Artículo 109. Suscripción del Contrato. Todo notario que desee ejercer la función notarial debe suscribir el contrato respectivo con la Operadora del Fondo designada, en cuyo caso se le consignará una cuenta individual que se manejará como fondo de capitalización, donde podrá designar sus beneficiarios en caso de fallecimiento.
+Artículo 109. Suscripción del seguro. Todo notario que desee ejercer la función notarial debe suscribir el seguro de responsabilidad civil profesional, el cual debe adquirirse como mínimo de forma anual, sin perjuicio de que se pueda suscribir por un plazo mayor, el cual debe de estar vigente durante todo el ejercicio de la función notarial.
+(Así reformado en sesión N° 003 del 26 de enero de 2022)

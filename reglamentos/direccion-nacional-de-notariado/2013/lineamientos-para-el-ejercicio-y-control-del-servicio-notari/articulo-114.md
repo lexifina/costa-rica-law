@@ -1,1 +1,2 @@
-Artículo 114. Pluralidad de responsabilidades. Cuando dos o más notarios fueren hallados responsables del hecho generador de la obligación indemnizatoria, y la sentencia no estableciere una proporción de responsabilidad para el pago de la indemnización, la Dirección procurará satisfacer el monto total, tomando además la suma de cada una de las cuentas individuales de los notarios de manera equitativa.
+Artículo 114. Pluralidad de responsabilidades. Cuando dos o más notarios fueren hallados responsables del hecho generador de la obligación indemnizatoria, cada notario responderá con su propio seguro.
+(Así reformado en sesión N° 003 del 26 de enero de 2022)

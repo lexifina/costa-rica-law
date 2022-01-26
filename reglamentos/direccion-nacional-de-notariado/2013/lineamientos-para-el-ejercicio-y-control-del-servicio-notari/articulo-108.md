@@ -1,1 +1,2 @@
-Artículo 108. Concepto de Salario base. Para los efectos de los presentes lineamientos, se entenderá como “Salario base” el definido en el artículo 2 de la ley número 7337, del cinco de mayo de 1993.
+Artículo 108. Monto mínimo de cobertura. El monto mínimo de cobertura del seguro de responsabilidad civil profesional, por periodo póliza, será el equivalente a 55 salarios base de un oficinista 1; lo anterior sin perjuicio de que se pueda suscribir por un monto mayor. Para los efectos de los presentes lineamientos, se entenderá como "Salario base de un oficinista 1" el definido en el artículo 2 de la ley número 7337, del 05 de mayo de 1993.
+(Así reformado en sesión N° 003 del 26 de enero de 2022)
