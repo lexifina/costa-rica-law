@@ -1,1 +1,1 @@
-Artículo 18.- Para llenar las plazas vacantes de la Escuela Nacional de Policía, podrá recurrirse a concurso interno o externo, observando en forma estricta el nivel de requisitos y exigencias del puesto según la Ley General de Policía y el Manual de Puestos de la Escuela Nacional de Policía.
+Artículo 18.- (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)

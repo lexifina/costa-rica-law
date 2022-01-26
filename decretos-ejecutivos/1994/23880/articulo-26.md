@@ -1,1 +1,1 @@
-Artículo 26.- La evaluación del desempeño de los servidores de la Escuela Nacional de Policía, será una apreciación del rendimiento del servidor en cada uno de los factores que influyen en su desempeño general. La evaluación intermedia tendrá como fin hacer correcciones, motivar y aconsejar al servidor y será promediada con el resultado final.
+Artículo 26.- (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)

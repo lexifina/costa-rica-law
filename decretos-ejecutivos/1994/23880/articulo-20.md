@@ -1,1 +1,1 @@
-Artículo 20.- Para resolver una terna previamente el Director de la Escuela Nacional de Policía realizará las entrevistas pertinentes y completará los formularios que para ese efecto se tenga y las remitirá al Consejo Asesor con su recomendación.
+Artículo 20.- (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)

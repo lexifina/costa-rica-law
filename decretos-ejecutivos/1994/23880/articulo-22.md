@@ -1,3 +1,1 @@
-Artículo 22.- El personal docente estará conformado por:
-a) Instructores pertenecientes a los cuerpos de policía.
-b) Profesores y expositores invitados.
+Artículo 22.- (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)

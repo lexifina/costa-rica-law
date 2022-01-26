@@ -1,1 +1,1 @@
-Artículo 17.- La Unidad de Personal deberá disponer de un registro de elegibles para satisfacer las necesidades de personal de la Escuela Nacional de Policía.
+Artículo 17.- (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)
