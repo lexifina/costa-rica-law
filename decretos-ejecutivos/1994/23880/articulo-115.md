@@ -1,9 +1,10 @@
-Artículo 115.-Los roles de servicio correspondientes a los funcionarios policiales que se encuentren destacados en la Dirección de Policía de Fronteras son los siguientes:
+Artículo 115.-Los roles de servicio correspondientes a las personas funcionarias policiales que se encuentren destacadas en la Dirección de Policía de Fronteras son los siguientes:
 a) 10x10: Diez días de trabajo de día, por diez días de descanso.
 b) 8x8: Ocho días de trabajo de día, por ocho días de descanso.
 c) 12x12: Doce días de trabajo de día, por doce días de descanso.
 d) 6x6: Tres días de trabajo de día, por tres días de trabajo de noche, por seis días de descanso.
 e) 3x3: Tres días de trabajo de día, por tres días de descanso, por tres días de trabajo de noche, por tres días de descanso.
 f) 5x2: Cinco días de trabajo de día o mixto, por dos días de descanso.
+g) 4x3x3x10: Cuatro días de trabajo de día en jornada de doce horas, tres días de trabajo en jornada mixta de doce horas, tres días de trabajo en jornada de noche de diez horas, por diez días de descanso.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 43441 del 26 de enero del 2022)
 (Así corrida su numeración por el artículo 2° del decreto ejectivo N° 34752 del 13 de agosto de 2008, que lo traspaso del antiguo artículo 107 al 115 actual)
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43065 del 9 de junio de 2021)
