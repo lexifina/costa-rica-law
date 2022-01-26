@@ -1,0 +1,1 @@
+Artículo 5°-El Ministerio de Ambiente y Energía y el Sistema Nacional de Áreas de Conservación, deberán llevar a cabo las mejores gestiones para apoyar al Área de Conservación Marina Coco, mediante la movilización de recursos para su fortalecimiento humano, técnico y financiero.
