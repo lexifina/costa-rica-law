@@ -1,0 +1,1 @@
+Artículo 2º-Responsable. El Área de Desarrollo Social será la responsable de la aplicación del presente reglamento. A las demás dependencias municipales les corresponderá colaborar, apoyar y asesorar en la ejecución y seguimiento.

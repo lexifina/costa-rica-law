@@ -1,0 +1,1 @@
+Artículo 11.-Plazo para la recomendación. La Administración dispondrá de un plazo de un mes, una vez que la persona solicitante entrego todos los requisitos correspondientes, prorrogable por un plazo igual, en casos muy calificados, a juicio del Dirección del Área de Desarrollo Social, para la emisión de la recomendación final.

@@ -1,0 +1,17 @@
+Artículo 4º-Definiciones:
+Ayuda temporal: subsidio económico o producto específico que se le concede a una persona física o su familia para atender una situación de desgracia o infortunio.
+Persona solicitante: persona residente del cantón de Belén, que presenta una solicitud de ayuda temporal a través de la Unidad de Servicio al Cliente de la Municipalidad.
+Ingreso per cápita: ingreso por persona.
+Canasta básica alimentaria (CBA): según definición del Instituto Nacional de Estadísticas y Censo (INEC) se entiende como el conjunto de alimentos, expresados en cantidades suficientes para satisfacer las necesidades de calorías de un hogar promedio.
+Línea de pobreza: según definición del Instituto Nacional de Estadísticas y Censo (INEC) representa el monto mínimo requerido para que una persona pueda satisfacer las necesidades "alimentarias y no alimentarias".
+Familia o persona beneficiaria: familia o persona que recibe una ayuda temporal para dar respuesta a una situación de desgracia o infortunio.
+Desgracia o infortunio: condición que se determinará por medio del estudio socioeconómico basado en el método de línea de pobreza establecido por el INEC o por su condición de vulnerabilidad y/o riesgo.
+Método de línea de pobreza: clasificación de las familias de acuerdo con su ingreso per cápita, en pobreza extrema, pobreza básica y no pobres. Centralizada en la variable económica.
+Pobreza extrema: son aquellos hogares cuyo ingreso per cápita sea inferior o igual al costo per cápita de la canasta básica Alimentaria (CBA) o línea de extrema pobreza.
+Pobreza básica: son aquellos hogares con ingreso per cápita inferior o igual al costo per cápita de la Línea de Pobreza establecida por el INEC.
+No pobre: aquellos hogares cuyo ingreso per cápita supera el costo de la línea de pobreza establecida por el INEC.
+Vulnerabilidad y/o riesgo: situación económica, social, familiar o individual que posiciona a una persona al margen de las posibilidades óptimas de desarrollo humano y superación.
+Solicitud para ayudas temporales: formulario retirado y entregado en la Unidad de Servicio al Cliente por la persona solicitante.
+Visita domiciliar: técnica de investigación social utilizada por una persona profesional en Trabajo Social que incluye la observación y entrevista, para obtener, verificar y ampliar datos sobre el ambiente social, estructural y familiar.
+Estudio socioeconómico: Informe en el que utilizan técnicas de investigación social, permite realizar la valoración de las condiciones de una familia e identificar situaciones a ser transformadas por medio de la planificación de acciones y recursos. Se aplica mediante la visita domiciliar o la entrevista por una persona profesional en Trabajo Social y hace referencia a la composición familiar, ingresos, egresos, necesidades, problemáticas, particularidades y recomendaciones. Este informe tendrá una vigencia máxima de 2 años, siempre y cuando la persona no se haya traslado de vivienda. La información de este estudio se actualizará ante cada nueva solicitud presentada por la persona beneficiaria.
+Expediente: toda persona o familia a la que se le haya otorgado un beneficio a través del Programa de Ayudas Temporales estará registrada en un expediente administrativo, el cual debe estar foliado y actualizado y con documentación de respaldo de la asignación de una ayuda temporal y los documentos probatorios del uso efectivo del recurso.
