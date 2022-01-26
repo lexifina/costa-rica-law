@@ -1,2 +1,1 @@
-Artículo 29.- RESOLUCIÓN.- La Dirección General de la Escuela resolverá sobre el reconocimiento de títulos y equiparación o convalidación de estudios, previo estudio, análisis y recomendación del Dirección Académica(*).
-(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 42542 del 7 de setiembre del 2020)
+Artículo 29.- RESOLUCIÓN.- (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)

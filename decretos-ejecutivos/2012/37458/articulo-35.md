@@ -1,9 +1,1 @@
-Artículo 35.- EQUIPARACIÓN: Para la equiparación de un curso a otro impartido por la Escuela, el interesado deberá cumplir con los siguientes requisitos:
-1. Formulario de solicitud de equiparación de curso, debidamente lleno.
-2. Título o certificado emitido por la institución donde realizó sus estudios. En todo caso, estos estudios deberán estar acreditados o reconocidos por las instancias nacionales correspondientes.
-3. Fotocopias certificadas o acompañadas de los originales para efectos de confrontación, de los certificados de los cursos de formación o capacitación que presenta para equiparación.
-4. Programa de estudios con indicación de sus contenidos temáticos y su carga horaria debidamente certificados por la institución que los expide. Cuando los cursos sometidos a equiparación hayan sido impartidos por la Academia Nacional de Policía (*), no será exigible el cumplimiento de este requisito. Podrá exonerarse de los contenidos temáticos y la carga horaria, cuando éstos ya sean conocidos por el Departamento Académico de esta Escuela, por contar la misma con información oficial suficiente y actualizada al respecto.
-(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
-5. Cuando se trate de títulos o certificados de estudios o cursos emitidos en idioma extranjero, el interesado deberá presentar traducción al idioma español realizado por un traductor oficial avalado por el Ministerio de Relaciones Exteriores y Culto. Lo mismo deberá hacer con relación al programa y sus contenidos, con indicación de la carga horaria.
-Ninguno de los requisitos o documentos antes descritos podrá ser sustituido por una declaración jurada del solicitante.
-No se tramitará ninguna solicitud en que falte algún documento o requisitos anteriores.
+Artículo 35.- EQUIPARACIÓN: (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)

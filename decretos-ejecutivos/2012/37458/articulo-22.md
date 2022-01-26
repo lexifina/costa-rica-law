@@ -1,1 +1,1 @@
-Artículo 22.- ESCALA EJECUTIVA.- Está conformada por los cursos de Sub-Intendente, Intendente y Capitán de Policía y tienen como objeto habilitar al funcionario policial para asumir cargos en mandos medios por la vía de la carrera policial.
+Artículo 22.- ESCALA EJECUTIVA.- (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)

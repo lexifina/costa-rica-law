@@ -1,1 +1,1 @@
-Artículo 32.- PLAZOS PARA LA SOLICITUD DEL RECONOCIMIENTO Y EQUIPARACIÓN.- Los plazos para recibir la solicitud de reconocimiento y equiparación, serán en el primer trimestre que comprende los días laborales de los meses de enero a marzo y último trimestre del año que comprende de los meses de setiembre a diciembre.
+Artículo 32.- PLAZOS PARA LA SOLICITUD DEL RECONOCIMIENTO Y EQUIPARACIÓN.- (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)

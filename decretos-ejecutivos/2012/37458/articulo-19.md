@@ -1,3 +1,1 @@
-Artículo 19.- MODALIDADES DE ESTUDIO.- Para el desarrollo de los programas de estudio se implementarán dos modalidades:
-1. Presencial: Cuando los estudiantes asistan personalmente durante todo el período académico en forma permanente.
-2. A distancia: Se adelanta en forma desescolarizada con apoyo de material auto instructivo, mediaciones pedagógicas y soporte de tutorías.
+Artículo 19.- MODALIDADES DE ESTUDIO.- (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)

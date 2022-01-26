@@ -1,2 +1,1 @@
-Artículo 13.- CONDICIÓN DE ESTUDIANTES. Son estudiantes quienes habiendo superado el proceso de selección, se encuentren dentro de los programas de formación, capacitación y especialización ofrecidos por la Academia Nacional de Policía (*).
-(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
+Artículo 13.- CONDICIÓN DE ESTUDIANTES. (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)

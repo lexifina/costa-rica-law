@@ -1,1 +1,1 @@
-Artículo 80.- NO EXCLUSIÓN DE LAS SANCIONES.- Las sanciones de carácter administrativas son independientes de las responsabilidades de orden y disciplina, penales y civiles. Cualquier sentencia judicial o auto con este carácter no es excluyente de la aplicación o exclusión de sanciones administrativas.
+Artículo 80.- NO EXCLUSIÓN DE LAS SANCIONES.- (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)

@@ -1,1 +1,1 @@
-Artículo 70.- ACONDICIONAMIENTO FÍSICO Y ORDEN CERRADO.- Las clases de acondicionamiento físico y orden cerrado serán obligatorias para todos los educandos, salvo casos especiales, de prescripción médica, debidamente justificados ante las autoridades correspondientes.
+Artículo 70.- ACONDICIONAMIENTO FÍSICO Y ORDEN CERRADO.- (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)

@@ -1,3 +1,1 @@
-Artículo 25.- CURSOS DE CAPACITACIÓN.- Los cursos de capacitación son aquellos diseñados con el fin de fortalecer las habilidades, conocimientos y aptitudes que necesita la población policial.
-La Academia Nacional de Policía (*) implementará los cursos de capacitación de acuerdo a su capacidad logística y profesional. Se atenderán de manera integral las necesidades educativas de los diferentes subprogramas.
-(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
+Artículo 25.- CURSOS DE CAPACITACIÓN.- (Derogado por el artículo 87 del Reglamento a la ley N° 9552 Creación de la Academia Nacional de Policía, aprobado mediante decreto ejecutivo N° 43440 del 26 de enero de 2022)
