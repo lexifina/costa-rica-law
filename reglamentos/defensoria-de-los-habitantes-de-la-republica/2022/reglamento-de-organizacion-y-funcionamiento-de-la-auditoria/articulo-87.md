@@ -1,0 +1,1 @@
+Artículo 87°-Autoevaluación de la calidad. La Auditoría Interna realizará una autoevaluación anual de calidad, con el fin de verificar si las políticas y metodologías están diseñadas de conformidad con la normativa técnica y jurídica relacionada, determinar si efectivamente se están aplicando y tomar las medidas correctivas que correspondan.

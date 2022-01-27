@@ -1,0 +1,3 @@
+CAPÍTULO V
+PROGRAMA DE ASEGURAMIENTO DE LA CALIDAD
+Artículo 85°-Establecimiento del programa. La Auditoría Interna mantendrá un programa de aseguramiento de la calidad para la actividad de Auditoría Interna que incluya evaluaciones continuas, autoevaluaciones anuales y evaluaciones externas. El programa alcanzará todos los servicios y procesos internos de la Auditoría, incluidos los mecanismos existentes para la atención de denuncias, a fin de identificar mejoras y asegurar la calidad en la prestación de sus servicios; todo de conformidad con las directrices y herramientas para la autoevaluación anual y evaluación externa de calidad de las auditorías internas, de la Contraloría General de la República y demás normativa aplicable.

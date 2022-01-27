@@ -1,0 +1,2 @@
+SECCIÓN B. SERVICIOS DE LA AUDITORÍA INTERNA
+Artículo 42°-Servicios de la Auditoría Interna. Los servicios que presta la Auditoría Interna conforme a sus competencias se clasifican en: servicios de auditoría, servicios de investigación y servicios preventivos. Estos servicios se regularán y ejecutarán por parte de la Auditoría Interna de conformidad con la normativa legal, las disposiciones de la Contraloría General de la República y las Normas Internacionales de Auditoría.

@@ -1,0 +1,2 @@
+Artículo 57°-Materias sujetas a informes de Auditoría. Los Informes de Auditoría tratarán sobre diversos asuntos de su competencia y constarán de hallazgos, conclusiones y recomendaciones, de conformidad con la normativa aplicable.
+Corresponde a la Auditoría Interna definir al jerarca o titular subordinado al que se dirigirá el informe, el cual debe poseer la competencia y autoridad para ordenar la implementación de las respectivas recomendaciones y rendir cuentas sobre su adecuada implantación.

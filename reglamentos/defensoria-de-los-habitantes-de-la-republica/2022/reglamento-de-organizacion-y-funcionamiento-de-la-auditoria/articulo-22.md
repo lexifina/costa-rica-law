@@ -1,0 +1,1 @@
+Artículo 22°-Modificaciones presupuestarias. Las modificaciones presupuestarias que afecten los recursos asignados al desarrollo de las actividades de la Auditoría Interna deberán contar con la autorización del o la Auditora Interna, de conformidad con lo establecido en la Ley General de Control Interno.

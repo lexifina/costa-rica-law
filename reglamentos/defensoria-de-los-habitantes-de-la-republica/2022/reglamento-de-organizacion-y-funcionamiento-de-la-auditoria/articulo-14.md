@@ -1,0 +1,2 @@
+SECCIÓN C: UBICACIÓN Y ESTRUCTURA ORGANIZATIVA
+Artículo 14°-Ubicación en la Estructura Organizativa. La Auditoría Interna es un órgano asesor de alto nivel, con independencia funcional y de criterio, dentro de la estructura organizacional se ubica con dependencia orgánica del o la Defensora de los Habitantes; en cuanto a su actividad la Auditoría Interna es única en la Defensoría de los Habitantes.

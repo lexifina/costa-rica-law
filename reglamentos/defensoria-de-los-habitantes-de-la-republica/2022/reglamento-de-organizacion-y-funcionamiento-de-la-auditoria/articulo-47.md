@@ -1,0 +1,1 @@
+Artículo 47°-Comunicaciones de resultados, errores y omisiones. La Auditoría Interna comunicará sus resultados oficiales mediante informes, oficios y otros documentos físicos o digitales. Si una comunicación final contiene un error u omisión significativos, el o la Auditora Interna comunicará la información corregida a todas las personas que recibieron la comunicación.

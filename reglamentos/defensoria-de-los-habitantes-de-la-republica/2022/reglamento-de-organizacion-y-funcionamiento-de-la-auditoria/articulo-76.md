@@ -1,0 +1,1 @@
+Artículo 76°-Admisión de denuncias anónimas. Se recibirán y analizarán las denuncias anónimas cuyo contenido dé mérito para su análisis, cuando falten elementos de prueba, la Auditoría hará las indagaciones necesarias a fin de obtenerlas en el ámbito de su competencia y hasta donde sea factible, dar curso a la investigación.

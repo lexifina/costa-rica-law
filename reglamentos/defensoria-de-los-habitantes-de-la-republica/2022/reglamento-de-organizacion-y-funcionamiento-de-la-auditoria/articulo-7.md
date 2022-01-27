@@ -1,0 +1,1 @@
+Artículo 7°-Archivo Permanente. La Auditoría Interna dispondrá de un archivo permanente sobre la información y regulaciones externas e internas que afecten su ámbito de acción y su actividad, en sistemas de información y archivos, físicos, digitales, electrónicos y otros que proporcionen la seguridad y confiabilidad, para lo cual contará con el apoyo de las áreas pertinentes.

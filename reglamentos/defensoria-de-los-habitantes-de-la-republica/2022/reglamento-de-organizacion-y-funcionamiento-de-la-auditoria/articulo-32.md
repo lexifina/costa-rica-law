@@ -1,0 +1,2 @@
+SECCIÓN G. RELACIONES Y COORDINACIONES
+Artículo 32°—Relaciones y coordinaciones. Las relaciones, coordinaciones y demás manifestaciones de la Auditoría Interna corresponden al o la Auditora Interna, quien regulará el manejo de éstas en la Auditoria Interna, contemplando el marco jurídico aplicable. El personal de auditoría se abstendrá de realizar manifestaciones, relaciones y coordinaciones sobre el trabajo que realizan o han efectuado, a personas ajenas a las unidades que auditan, asesoran o advierten, sin contar con previa autorización del o la Auditora Interna.

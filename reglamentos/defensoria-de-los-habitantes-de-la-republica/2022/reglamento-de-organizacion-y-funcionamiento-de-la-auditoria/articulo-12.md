@@ -1,0 +1,6 @@
+Artículo 12°-Medidas de resguardo. Todos en la unidad de Auditoría Interna, en resguardo de su independencia de criterio y objetividad, y en coherencia con la normativa aplicable, como medidas de resguardo, se abstendrán de realizar las siguientes actuaciones:
+a) Ser parte de grupos de trabajo, comisiones o similares que ejerzan función propia de la administración activa. Cuando su participación sea solicitada por el o la Defensora o titular subordinado, previa aprobación del o la Auditora Interna, se podrá, pero exclusivamente en su función asesora, en asuntos de su competencia y no podrán comprometer a la unidad, estas participaciones no podrán ser con carácter permanente.
+b) Asesorar, advertir o auditar operaciones específicas de las cuales hayan sido responsables, en los últimos doce meses contados a partir de la fecha de su ingreso a la Auditoría Interna.
+c) Ser miembros de órganos colegiados o de la administración de un sujeto u órgano que administre fondos públicos relacionados con el ámbito de competencia de la Auditoría Interna.
+d) Superponer sus intereses particulares, a los fines de la Auditoría y a las actuaciones necesarias para brindar un servicio con total independencia y objetividad.
+e) Dejar de informar al o la Auditora Interna toda situación anormal o irregular de cualquier índole que detecten en el desempeño de sus funciones.

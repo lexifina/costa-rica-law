@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. Lo dispuesto en este Reglamento es de obligatorio cumplimiento para el personal de la Auditoría Interna, el personal de la Defensoría de los Habitantes y del Mecanismo Nacional de Prevención de la Tortura y Otros Tratos o Penas Crueles, Inhumanos o Degradantes, en la materia que les resulte aplicable.

@@ -1,0 +1,1 @@
+Artículo 39°-Deberes y prohibiciones de la Auditoría Interna. Los deberes de la Auditoría Interna obedecen principalmente a los preceptuados en el artículo 32 de la Ley General de Control Interno. Las prohibiciones de las personas que laboran en la Auditoría Interna se indican en el artículo 34 de la Ley General de Control Interno.

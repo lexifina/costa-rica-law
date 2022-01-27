@@ -1,0 +1,1 @@
+Artículo 44°-Servicios de Auditoría. Los servicios de auditoría son los referidos a: las auditorías financieras, operativas y de carácter especial, establecidos en las Normas Generales de Auditoría, emitidas por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 51°-Comunicación y seguimiento de Informes preventivos. La Auditoría Interna definirá las regulaciones para la prestación de los servicios preventivos, sus informes y cuando corresponda, seguimiento de lo actuado, de manera que sean procesos ágiles de baja complejidad, de excelencia y oportunidad, en cada caso, según su naturaleza.

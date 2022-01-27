@@ -1,0 +1,1 @@
+Artículo 10°-Objetividad individual. Es obligación de todos en la Auditoría Interna mantener una actitud imparcial, objetiva, profesional, neutral y evitar conflictos de intereses, de hecho y de apariencia en todas las actuaciones relacionadas con su trabajo y en general.

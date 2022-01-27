@@ -1,0 +1,1 @@
+Artículo 69°-Procedimiento para la investigación. La Auditoría Interna establecerá un procedimiento de investigación para la atención de presuntos hechos irregulares de conformidad con los Lineamientos Generales para el Análisis de Presuntos Hechos Irregulares. Resolución R-DC-102- 2019, del 14 de octubre, 2019 y demás normativa aplicable.

@@ -1,0 +1,3 @@
+Artículo 53°-Servicio de auditoría financiera. La auditoría financiera se enfoca en determinar si la información financiera de una entidad se presenta en conformidad con el marco de referencia de emisión de información financiera y regulatorio aplicable. Esto se logra obteniendo evidencia de auditoría suficiente y apropiada que le permita expresar una opinión acerca de la razonabilidad de la información financiera. Otros objetivos de las auditorías financieras, pueden ser:
+a) La revisión de informes especiales para elementos, cuentas o partidas específicas de un estado financiero.
+b) La revisión de información financiera intermedia.

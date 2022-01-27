@@ -1,0 +1,1 @@
+Artículo 56°-Sobre la Comunicación de resultados. La Auditoría Interna comunicará los resultados de sus auditorías, conforme con las normas y directrices emitidas por la Contraloría General de la República, mediante informes escritos con el propósito de que la Administración atienda las recomendaciones de manera oportuna.

@@ -1,0 +1,1 @@
+Artículo 94°-Aprobación. Este Reglamento fue aprobado por Catalina Crespo Sancho, Defensora de los Habitantes de la República, a las once horas del día 18 de enero de 2022 y Oficio N° DFOE- GOB-0007 (163)-2022 del Área de Fiscalización para el Desarrollo de la Gobernanza de la Contraloría General de la República, del día 6 de enero de 2022.
