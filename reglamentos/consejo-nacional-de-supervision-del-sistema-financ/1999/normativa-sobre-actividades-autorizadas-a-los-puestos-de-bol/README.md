@@ -18,3 +18,4 @@ Normativa sobre Actividades Autorizadas a los Puestos de Bolsa
 | 3 | 2008-11-21 | Reglamento 757 (2008-11-21) |
 | 4 | 2016-06-17 | Reglamento 1259 (2016-06-17) |
 | 5 | 2019-03-05 | Reglamento 1486 (2019-03-05) |
+| 6 | 2022-01-27 | Reglamento 1711 (2022-01-27) |

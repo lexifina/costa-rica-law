@@ -28,8 +28,9 @@ En los casos en que el puesto no esté autorizado para actuar como intermediario
 (Así reformado el inciso anterior mediante sesión N°1486 del 5 de marzo del 2019)
 e)Participar en las operaciones de reporto u otras figuras similares que el Banco Central de Costa Rica realice con fundamento en sus Regulaciones de Política Monetaria.
 (Así adicionado el inciso anterior mediante sesión N° 757 del 21 de noviembre de 2008)
-f) Transmitir órdenes para su ejecución en mercados internacionales.
+f) Transmitir órdenes para su ejecución en mercados internacionales, siempre y cuando se negocien en un mercado organizado, que se entiende como aquel que cuenta con un conjunto de normas y reglamentos que determinan su funcionamiento y que cuente con un órgano de regulación que sea miembro de la International Organization of Securities Commissions (IOSCO). (.)
 (Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
+(Así reformado el inciso anterior mediante sesión N° 1711-2022 del 27 de enero del 2022)
 g) Prestar servicios de recepción automatizada de órdenes.
 (Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
 h) Prestar servicios de acceso a plataformas de negociación directa.
@@ -40,8 +41,9 @@ j) Suscribir contratos de colocación.
 (Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
 k) Prestar servicios de estructuración de emisiones.
 (Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
-l) Ejecutar órdenes de compra venta de valores no inscritos en el Registro Nacional de Valores e Intermediarios, según las limitaciones que se definan en el Reglamento sobre Oferta Pública de Valores.
+l) Ejecutar órdenes de compra venta de valores de oferta privada no inscritos en el Registro Nacional de Valores e Intermediarios (RNVI) según lo establecido en el Reglamento sobre Oferta Pública de Valores, siempre y cuando el emisor no pertenezca al grupo de interés económico del puesto de bolsa, de conformidad con lo dispuesto en el artículo 120 del Reglamento General sobre Sociedades Administradoras y Fondos de Inversión.
 (Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
+(Así reformado el inciso anterior mediante sesión N° 1711-2022 del 27 de enero del 2022)
 m) Comprar o vender valores o instrumentos financieros de mercados internacionales para su gestión de cuenta propia, de conformidad con las políticas que autorice su Junta Directiva.
 (Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
 n) Comprar o vender valores de oferta privada para su gestión de cuenta propia, de conformidad con las políticas que autorice su Junta Directiva y según las limitaciones que se definan en el Reglamento sobre Oferta Pública de Valores.
