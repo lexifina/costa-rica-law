@@ -1,0 +1,1 @@
+ARTÍCULO 3- El terreno será utilizado por la Asociación Centro Diurno Tarrazú para la construcción del Centro Diurno para la Atención Integral del Adulto Mayor. En caso de que la asociación donataria llegue a disolverse o el inmueble se destine a otro uso no autorizado en la presente ley, el bien donado volverá de pleno derecho a ser propiedad de la Municipalidad de Tarrazú.
