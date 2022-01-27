@@ -1,0 +1,2 @@
+Artículo 29.-Firma de actas. Las actas serán firmadas por el Presidente y el Secretario del Consejo, así como por aquellos miembros que hubieren hecho constar su voto disidente.
+Anualmente, la Secretaría de Actas deberá enviar a los miembros del Consejo una reproducción del Libro Oficial de Actas, en forma electrónica, bajo un formato que impida la alteración del contenido, pero permita su impresión o copia.

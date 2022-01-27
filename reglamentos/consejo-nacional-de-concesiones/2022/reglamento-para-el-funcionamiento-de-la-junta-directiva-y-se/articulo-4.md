@@ -1,0 +1,1 @@
+Artículo 4º-Principios. Los principios rectores para el funcionamiento de la Junta Directiva del Consejo Nacional de Concesiones y la debida formación de la voluntad de este órgano serán los de colegialidad, simultaneidad y deliberación.

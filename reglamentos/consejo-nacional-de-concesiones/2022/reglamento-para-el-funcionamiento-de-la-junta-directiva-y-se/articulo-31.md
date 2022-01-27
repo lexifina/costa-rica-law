@@ -1,0 +1,1 @@
+Artículo 31.-Certificación de Acuerdos. Se podrá solicitar, en forma escrita y ante la Secretaría de Actas, la certificación de acuerdos de la Junta Directiva, mediante indicación específica del o los asuntos en que el solicitante tenga interés y los fines de su solicitud.

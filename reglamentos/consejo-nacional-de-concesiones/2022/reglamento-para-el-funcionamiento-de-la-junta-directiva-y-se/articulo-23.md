@@ -1,0 +1,1 @@
+Artículo 23.-Consignación textual. Cuando así lo solicite expresamente un miembro del Consejo, o algún invitado a la sesión, la Secretaría de Actas deberá consignar en el acta, de manera textual, las manifestaciones que aquel hubiere hecho en el desarrollo de la sesión.

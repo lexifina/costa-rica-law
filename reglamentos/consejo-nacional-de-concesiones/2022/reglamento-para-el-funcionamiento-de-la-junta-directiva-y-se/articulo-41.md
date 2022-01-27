@@ -1,0 +1,2 @@
+Artículo 41.-Integración. La comisión deberá estar integrada por no menos de dos directores de la Junta, uno de los cuales la presidirá, pudiendo también formar parte funcionarios de la Administración y miembros independientes. En caso de que se requiera la participación de funcionarios de la Auditoria, ésta será con carácter de asesoría en asuntos propios de su competencia, y que no socave su objetividad e independencia de criterio.
+Por la participación en estas comisiones no se percibirá dieta alguna.

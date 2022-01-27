@@ -1,0 +1,1 @@
+Artículo 32.-Libro de Actas. La Secretaría de Actas tendrá la obligación de mantener al día el Libro de Actas de Junta Directiva, en el entendido que todas las actas que se encuentren debidamente aprobadas por la Junta Directiva y en firme deberán ser transcritas en él.

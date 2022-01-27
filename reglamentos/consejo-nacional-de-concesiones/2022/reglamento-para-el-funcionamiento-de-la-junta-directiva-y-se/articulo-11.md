@@ -1,0 +1,3 @@
+Artículo 11.-Sesiones ordinarias. El Consejo deberá reunirse, en forma ordinaria, el día y la hora acordado por mayoría absoluta de la totalidad de los miembros del Consejo al iniciarse el cuatrienio, sin perjuicio de que más adelante, y por la misma mayoría, se disponga su modificación.
+Preferiblemente, se procurará sesionar de forma semanal, en la medida en que la cantidad de temas agendados lo amerite.
+Para reunirse el Consejo en sesión ordinaria no hará falta convocatoria especial, más que la hecha por los medios idóneos para ello. Las sesiones deberán grabarse en audio y video y ser respaldadas en un medio digital que garantice su integridad y archivo de conformidad con la legislación vigente.

@@ -1,0 +1,2 @@
+Artículo 21.-Acuerdos. Los acuerdos del Consejo se adoptarán por mayoría absoluta de los miembros presente (mitad más uno) y adquirirán firmeza con la aprobación del acta en la Sesión siguiente, a menos que se declaren firmes por votación de dos tercios de la totalidad de los miembros del Consejo (5 miembros).
+La Secretaría de Actas deberá incluir en el acta respectiva el resultado de las votaciones referentes a una propuesta de acuerdo, indicando los votos a favor, y los votos en contra; o si por el contrario el acuerdo es tomado por unanimidad.

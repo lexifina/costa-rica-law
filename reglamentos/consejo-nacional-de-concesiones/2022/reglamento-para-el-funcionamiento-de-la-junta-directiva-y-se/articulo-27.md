@@ -1,0 +1,1 @@
+Artículo 27.-Privacidad de las sesiones. Las sesiones del Consejo serán siempre privadas, pero éste podrá disponer, acordándolo por unanimidad de sus miembros presentes, que tenga acceso a ella el público o bien ciertas personas, concediéndoles o no el derecho a participar en las deliberaciones con voz, pero sin voto.

@@ -1,0 +1,1 @@
+Artículo 36.-De la correspondencia. El Secretario de Actas deberá someter a conocimiento del Presidente del Consejo, de forma previa, toda la documentación, ya sea externa o interna, que ingrese a la Secretaría de Actas, para determinar su inclusión en el Orden del Día correspondiente.

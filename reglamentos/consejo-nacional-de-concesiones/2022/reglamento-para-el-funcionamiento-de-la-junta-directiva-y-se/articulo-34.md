@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Sobre la Secretaría de Actas
+Artículo 34.-De la Secretaría de Actas. La Secretaría de Actas es una dependencia auxiliar de carácter administrativo de la Junta Directiva en el cumplimiento de sus deberes y atribuciones y para esto contará con el personal y los recursos necesarios para el cumplimiento de sus funciones. Para efectos administrativos y de gestión de personal, todo el personal de la Secretaría de Actas será subordinado directo del presidente de la Junta Directiva del Consejo Nacional de Concesiones.
+La Secretaría de Actas será la encargada de tramitar, gestionar y comunicar todos los asuntos que se sometan a conocimiento de la Junta Directiva del Consejo Nacional de Concesiones con las funciones que se indican en este reglamento.
+Durante las ausencias temporales de quien ocupe el cargo de Secretario de Actas de la Junta Directiva del Consejo, este será sustituido por un funcionario de confianza del presidente de la Junta Directiva. En caso de que el señor Ministro en su condición de Presidente de la Junta Directiva se encuentre imposibilitado de dar respuesta oportuna a la solicitud de la Secretaria de Actas, deberá la Secretaria Técnica, y solo para ese caso, atender y resolver, con copia al señor Ministro.
+La Junta Directiva podrá contratar un Asesor Legal que será parte de la Secretaría de Actas.

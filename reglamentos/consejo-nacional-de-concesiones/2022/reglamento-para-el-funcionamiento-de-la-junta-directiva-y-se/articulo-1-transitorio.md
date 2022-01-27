@@ -1,0 +1,1 @@
+Transitorio I.-Lo dispuesto en el artículo 36 de este reglamento, en cuanto a la transcripción literal de la sesión en el acta correspondiente, aplicará a partir del 10 de noviembre de 2022. Entre tanto, es suficiente un resumen de la sesión para el levantamiento del acta.

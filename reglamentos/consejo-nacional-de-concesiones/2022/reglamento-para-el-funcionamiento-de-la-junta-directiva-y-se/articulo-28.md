@@ -1,0 +1,1 @@
+Artículo 28.-Aprobación de actas. Los miembros del Consejo aprobarán las actas en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros del Consejo (5 miembros).

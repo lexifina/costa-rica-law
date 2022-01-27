@@ -1,0 +1,1 @@
+Artículo 16.-Celebración las sesiones virtuales. La celebración de sesiones virtuales podrá realizarse siempre que sea necesario para dar continuidad y regularidad al funcionamiento, actuación y gestión de la Junta Directiva del Consejo Nacional de Concesiones y las reuniones presenciales no resulten viables, particularmente en situaciones calificadas de fuerza mayor.

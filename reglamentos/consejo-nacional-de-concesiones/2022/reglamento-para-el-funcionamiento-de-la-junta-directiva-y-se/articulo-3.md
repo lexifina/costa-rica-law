@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito de aplicación. El presente Reglamento regulará el correcto desarrollo de las sesiones ordinarias y extraordinarias del Consejo Nacional de Concesiones, sus actos preparatorios, deliberativos y ejecutivos, así como la actividad de la Secretaría de Actas sujeta a este.

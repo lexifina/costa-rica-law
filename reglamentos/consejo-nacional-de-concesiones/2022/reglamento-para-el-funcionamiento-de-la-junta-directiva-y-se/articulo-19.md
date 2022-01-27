@@ -1,0 +1,1 @@
+Artículo 19.-Principios que rigen las sesiones virtuales. Los principios que rigen la celebración de sesiones virtuales, serán los mismos que rigen las sesiones presenciales, es decir los principios de colegialidad, simultaneidad y deliberación. El incumplimiento de cualquiera de estos principios viciará la validez de la sesión, la que se tendrá como nula.

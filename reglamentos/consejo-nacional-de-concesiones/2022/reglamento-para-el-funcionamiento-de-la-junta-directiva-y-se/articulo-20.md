@@ -1,0 +1,1 @@
+Artículo 20.-Asistencia y quórum. El quórum para que pueda sesionar válidamente el órgano será el de la mayoría absoluta de la totalidad de sus miembros (4 miembros). En cada sesión deberá levantarse un récord de asistencia que firmarán los presentes, sea en forma física o por medio de firma digital, según el tipo de sesión presencial o virtual.

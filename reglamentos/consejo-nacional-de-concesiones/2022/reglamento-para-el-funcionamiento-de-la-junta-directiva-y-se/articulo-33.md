@@ -1,0 +1,1 @@
+Artículo 33.-Presidente y Secretario ad hoc. En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa, quienes ejerzan la Presidencia y la Secretaría de los órganos colegiados, serán sustituidos por el Vicepresidente, o un Presidente ad hoc y un Secretario suplente, respectivamente, por medio de acuerdo que se consignará en el acta correspondiente.

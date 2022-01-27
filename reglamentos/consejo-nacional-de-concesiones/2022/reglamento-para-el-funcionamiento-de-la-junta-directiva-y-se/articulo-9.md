@@ -1,0 +1,2 @@
+Artículo 9º-De la Vicepresidencia y de la Secretaría de la Junta Directiva. El Vicepresidente sustituirá al Presidente durante sus ausencias.
+El secretario se encargará de firmar, junto con el Presidente, las Actas del Consejo y tendrá las funciones que le asigne el Consejo mediante acuerdo, las cuales no podrán incluir funciones propias de otros órganos de la administración, incluidas las demás funciones que le asigne el ordenamiento jurídico aplicable.
