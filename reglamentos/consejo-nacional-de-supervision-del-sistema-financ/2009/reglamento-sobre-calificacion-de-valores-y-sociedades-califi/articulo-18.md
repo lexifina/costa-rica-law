@@ -5,8 +5,9 @@ En este sentido, cuando la sociedad calificadora tenga conocimiento de hechos qu
 Si de la revisión se deriva que el Consejo de calificación tome una decisión que mantenga o modifique la calificación otorgada, la sociedad calificadora debe realizar de inmediato un comunicado de Hecho Relevante, que contenga la información requerida en este artículo.
 En todo caso, la revisión ordinaria de la calificación debe ser efectuada al menos una vez cada seis meses.
 (Así reformado el párrafo anterior por el artículo 65 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
-El resultado de las revisiones semestrales y anuales debe ser divulgado mediante Comunicado de Hechos Relevantes. En el caso de entidades aseguradoras y reaseguradoras autorizadas bajo la legislación costarricense, de conformidad con lo dispuesto en la Ley Reguladora del Mercado de Seguros, el comunicado de hecho relevante lo dirigen las aseguradoras o reaseguradoras a la Superintendencia General de Seguros, en los términos dispuestos en el Reglamento sobre Remisión de Información Periódica y Revelación de Hechos Relevantes por Entidades Supervisadas por SUGESE.
-(Así reformado el párrafo anterior mediante sesión N°1655-2021 del 12 de abril del 2021)
+El resultado de las revisiones semestrales debe ser divulgado mediante Comunicado de Hechos Relevantes.
+(Así reformado el párrafo anterior mediante sesión N° 1711-2022 del 27 de enero del 2022)
+En el caso de entidades aseguradoras y reaseguradoras autorizadas bajo la legislación costarricense, de conformidad con lo dispuesto en la Ley Reguladora del Mercado de Seguros, el comunicado de hecho relevante lo dirigen las aseguradoras o reaseguradoras a la Superintendencia General de Seguros, en los términos dispuestos en el Reglamento sobre Remisión de Información Periódica y Revelación de Hechos Relevantes por Entidades Supervisadas por SUGESE.
 Una de las revisiones semestrales debe basarse en la información financiera auditada más reciente disponible.
 En todos los casos, el comunicado de hecho relevante debe contener al menos la siguiente información:
 a) Identificación de los valores, productos o entidad calificados.
