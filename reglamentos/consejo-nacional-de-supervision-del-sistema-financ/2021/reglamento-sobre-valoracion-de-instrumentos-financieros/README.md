@@ -14,3 +14,4 @@ Reglamento sobre valoración de instrumentos financieros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-18 | la propia norma |
+| 2 | 2022-01-27 | Reglamento 1711 (2022-01-27) |
