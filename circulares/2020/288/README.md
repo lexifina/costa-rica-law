@@ -13,3 +13,4 @@ Protocolo de atención sobre las medidas que deben de ejecutar los despachos Agr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-17 | la propia norma |
+| 2 | 2022-01-27 | Circular 21 (2022-01-27) |
