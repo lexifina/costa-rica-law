@@ -15,3 +15,4 @@ Reglamento de Intermediación y Actividades Complementarias y reforma varios Reg
 | --- | --- | --- |
 | 1 | 2016-06-17 | la propia norma |
 | 2 | 2019-02-26 | Reglamento 1483 (2019-02-26) |
+| 3 | 2022-01-27 | Reglamento 1711 (2022-01-27) |
