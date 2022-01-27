@@ -1,0 +1,1 @@
+ARTÍCULO 4- Titulares de los derechos. Para los efectos de la presente ley, son titulares de derechos las mujeres embarazadas, los recién nacidos y las familias gestantes, nacionales o extranjeras, que tengan su embarazo c parto en Costa Rica.

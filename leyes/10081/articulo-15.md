@@ -1,0 +1,1 @@
+ARTÍCULO 15-1 Los recursos recaudados a partir de las multas establecidas en esta ley serán destinados a las funciones de fiscalización del cumplimiento de esta ley, así como a los programas de capacitación e información para hacer efectivos los fines y objetivos que establece esta lay.
