@@ -1,0 +1,2 @@
+ARTÍCULO 16- Criterios de valoración
+Para imponer las multas a que se refiere el artículo anterior, el Ministerio de Salud deberá tomar en cuenta corno criterios de valoración: la gravedad de la infracción, la amenaza o el daño causado, los indicos de intencionalidad, la participación del infractor, la duración de la práctica contraria a los derechos de las madres y los recién nacidos, la reincidencia del infractor y su capacidad de pago.

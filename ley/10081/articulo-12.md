@@ -1,0 +1,3 @@
+CAPÍTULO III
+RÉGIMEN SANCIONATORIO Y FISCALIZADOR
+ARTÍCULO 12- Sanciones en instituciones públicas. El incumplimiento de las disposiciones de la presente ley, por parte de profesionales de la salud, sus colaboradores o de las instituciones públicas en que estos presten sus servicios, será considerado como falta, cuya gravedad será determinada en el correspondiente procedimiento administrativo, con fines sancionatorios, sin perjuicio de la responsabilidad civil o penal que le pudiera corresponder al infractor. En el caso de las instituciones la responsabilidad será dirimida respecto a la conducta de los jerarcas por la no prestación del servicio o por deficiente prestación de este.

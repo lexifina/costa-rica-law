@@ -1,0 +1,2 @@
+ARTÍCULO 17- Prescripción de la acción
+La acción para iniciar el procedimiento con el fin de perseguir las infracciones, prescribe en un plazo de cuatro años, que se debe contar desde que se produjo la falta o desde su conocimiento efectivo por parte de la persona agraviada, cuando haya permanecido oculta para esta. Sin embargo, para los hechos continuados, comienza a correr a partir del acaecimiento del último hecho.

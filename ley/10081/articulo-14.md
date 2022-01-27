@@ -1,0 +1,13 @@
+ARTÍCULO 14- Reglamentación disciplinaria. El Ministerio de Salud reglamentará el régimen disciplinario aplicable, incluyendo el incumplimiento de las instituciones y la responsabilidad de los jerarcas por la no prestación del servicio o por la deficiente prestación de este.
+En los establecimientos particulares el régimen disciplinario incluirá el apercibimiento para la adecuación a la normativa mediante amonestación escrita.
+Las faltas de los establecimientos particulares se sancionarán, según la gravedad del hecho, con multa del siguiente modo
+a) Las faltas leves, entendiendo por tales todas las que no se encuentren expresamente previstas en los incisos b) y c) de este artículo. Dichas faltas se sancionarán con amonestación escrita.
+b) Lasfaltasgraves, quecomprendenaquelloscomportamientos u omisiones de los que pueda derivarse algún riesgo para la salud integral o el incumplimiento de los estándares de calidad reglamentados o fijados en los protocolos de funcionamiento. Las faltas graves se sancionarán con multa de una a nueve veces el menor salario mínimo mensual establecido en la ley de presupuesto ordinario de la República.
+c) Las faltas muy graves, que comprendan:
+i) reincidir en las infracciones de tres faltas graves a lo largo de un año calendario;
+ii) poner en riesgo serio la vida de algún paciente; o
+iii) lesionar, directa o potencialmente, el bienestar de los usuarios de los servicios de salud. La lesión potencia será aquella que no causó lesión como resultado de la intervención del ministerio fiscalizador.
+Se sancionarán con multa de diez a veinte veces el menor salario mínimo mensual fijado en la ley de presupuesto ordinario de la República, por las infracciones muy graves de la presente ley.
+Debe aplicarse el máximo de la sanción administrativa indicada en el párrafo anterior cuando, de la infracción contra esta ley, se deriven daños para la salud y cuando se reitere la conducta infractora, en cada ocasión en que se pruebe la infracción reiterada.
+Para imponer tales sanciones deben respetarse los principios del debido proceso, el informalismo, la búsqueda de la verdad real, el impulso de oficio, la imparcialidad y la publicidad, los cuales informan el procedimiento administrativo estipulado en el libro segundo de la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978.
+Si el infractor se niega a pagar la suma establecida por el Ministerio de Salud, para velar por la ejecución de esta ley, el ministro del ramo certificará el adeudo, que constituye título ejecutivo, a fin de que, con base en él, se plantee el proceso de ejecución en vía judicial, en los términos de la Ley 9342, Código Procesal Civil, de 3 de febrero de 2016.
