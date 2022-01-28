@@ -1,0 +1,9 @@
+CAPÍTULO II
+De los derechos y obligaciones
+Artículo 4º-Obligaciones de la persona empleadora previas a la implementación del Teletrabajo: sin perjuicio de las demás obligaciones que acuerden las partes en el contrato de teletrabajo, serán obligaciones para las personas empleadoras las siguientes:
+a. Determinar los puestos de trabajo aptos para la modalidad del teletrabajo.
+b. Elaborar y divulgar entre las personas trabajadoras, un documento en el que se indiquen las condiciones del entorno que debe tener la persona trabajadora para desempeñarse en la modalidad de teletrabajo.
+c. Proveer y garantizar el mantenimiento de los equipos y los programas. La disposición anterior podrá ser variada en aquellos casos en que la persona teletrabajadora, solicite la posibilidad de realizar teletrabajo con su equipo personal y la persona empleadora acepte, lo cual debe quedar claro en el contrato o adenda y así eximir de responsabilidad a la persona empleadora sobre el uso del equipo propiedad de la persona teletrabajadora.
+En estos casos, dado que el equipo informático es propiedad de la persona teletrabajadora, esta deberá permitir a la persona empleadora el libre acceso a la información propiedad del patrono, ya sea durante el desarrollo de la relación laboral, o bien, al momento de finalizar el vínculo contractual. Dicho acceso a la información debe darse en presencia de la persona teletrabajadora, respetando sus derechos de intimidad. Con independencia de la propiedad de la herramienta informática, la persona teletrabajadora deberá guardar confidencialidad respecto a la información propiedad de la persona empleadora.
+d. Capacitar para el adecuado manejo y uso de los equipos y programas necesarios para desarrollar sus funciones.
+e. Informar sobre el cumplimiento de las normas y demás disposiciones relacionadas con el uso de las tecnologías de información y comunicación.

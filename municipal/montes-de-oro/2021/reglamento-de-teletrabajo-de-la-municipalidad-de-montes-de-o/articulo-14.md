@@ -1,0 +1,1 @@
+Artículo 14.-Regulaciones adicionales. Lo no regulado expresamente por este reglamento se aplicará Ley para Regular el Teletrabajo N° 9738 del 18 de setiembre de 2019, y Decreto Ejecutivo N° 37695 "Promoción del Teletrabajo en las Instituciones Públicas" del 11 de febrero del 2013 y las disposiciones que emita el Ministerio de Trabajo en esta materia.

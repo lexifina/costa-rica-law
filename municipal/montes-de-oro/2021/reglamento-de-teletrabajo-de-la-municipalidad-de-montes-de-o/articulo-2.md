@@ -1,0 +1,1 @@
+Artículo º-Ámbito de aplicación: este reglamento es aplicable a las personas funcionarias de la Municipalidad de Montes de Oro que realicen labores que la administración determine como teletrabajables en el lugar donde existan las condiciones tecnológicas requeridas.

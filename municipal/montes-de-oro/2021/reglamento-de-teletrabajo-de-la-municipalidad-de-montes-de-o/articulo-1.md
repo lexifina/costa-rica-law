@@ -1,0 +1,13 @@
+MUNICIPALIDAD DE MONTES DE ORO
+CONCEJO MUNICIPAL
+El Concejo Municipal de Montes de Oro mediante la Sesión Ordinaria N°872021 de fecha 28 de diciembre del 2021 aprueba el Reglamento de Teletrabajo de la Municipalidad que literalmente dice:
+REGLAMENTO DE TELETRABAJO
+DE LA MUNICIPALIDAD DE MONTES DE ORO
+El Concejo Municipal de la Municipalidad de Montes De Oro, conforme a las potestades conferidas por los artículos 169, 170 de la Constitución Política, 13 incisos c) del Código Municipal, Ley N° 7794, Ley para Regular el Teletrabajo N° 9738 del 18 de setiembre de 2019, y Decreto Ejecutivo N° 37695 "Promoción del Teletrabajo en las Instituciones Públicas" del 11 de febrero del 2013.
+Considerando:
+I.-Que mediante el Decreto N° 37695-MP-MTSS el Poder Ejecutivo emitió "Promoción del Teletrabajo en las Instituciones Públicas"; el cual tiene por objeto promover y regular el Teletrabajo en las Instituciones del Estado, como instrumento para promover la modernización de las organizaciones, la inserción laboral, reducir el gasto en las Instituciones Públicas, incrementar la productividad del funcionario, el ahorro de combustibles, la protección del medio ambiente, y favorecer la conciliación de la vida personal, familiar y laboral, mediante la utilización de las Tecnologías de la Información y Comunicación.
+II.-Que la figura del Teletrabajo se define como aquella modalidad de prestación de servicios de carácter no presencial, en virtud de la cual un funcionario público, puede desarrollar parte de su jornada laboral mediante el uso de medios telemáticos desde su propio domicilio, u otro lugar habilitado al efecto, siempre que las necesidades y naturaleza del servicio lo permitan, y en el marco de la política de conciliación de la vida personal, familiar y laboral de los funcionarios públicos.
+III.-Que la Municipalidad de Montes de Oro, apoya el esfuerzo que hace el Estado Costarricense, razón por la cual se suma a las instituciones que han decidido aplicar la técnica del teletrabajo, con la finalidad de obtener beneficios para el país colaborando en la reducción del consumo de combustible, en el impacto positivo en el medio ambiente.
+CAPÍTULO I
+De las disposiciones generales
+Artículo 1º-Objeto: el presente reglamento tiene por objeto contribuir con la modernización, establecer los lineamientos técnicos y administrativos necesarios para aplicar el teletrabajo de conformidad con las tecnologías de información, con la finalidad de mejorar la prestación de los servicios a los administrados, aumentar la productividad, reducir costos y mejorar la calidad de vida de las personas que le prestan servicios a la institución y la sociedad, de conformidad con los Principios de Eficiencia, Eficacia, Economía y Celeridad.
