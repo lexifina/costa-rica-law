@@ -17,3 +17,4 @@ Reglamento de Oficialización del Código Eléctrico de Costa Rica para la Segur
 | 2 | 2013-11-13 | Decreto Ejecutivo 38440 (2013-11-13) |
 | 3 | 2018-10-29 | Decreto Ejecutivo 41505 (2018-10-29) |
 | 4 | 2021-06-03 | Decreto Ejecutivo 43105 (2021-06-03) |
+| 5 | 2022-01-28 | Decreto Ejecutivo 43418 (2022-01-28) |

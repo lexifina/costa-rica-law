@@ -1,9 +1,10 @@
-Artículo 3º—Apruébese la siguiente Tabla de Equivalencia para Motores Eléctricos, como parte integral del “Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad”.
+Artículo 3º-Apruébese la siguiente Tabla de Equivalencia para Motores Eléctricos, como parte integral del "Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad".
 Tabla de Equivalencia para motores eléctricos
 Conversión de caballos de fuerza (Hp) a kilowatts (kW) (1)
 (1) Entiéndase verificación como la constatación ocular o comprobación mediante muestreo, medición, pruebas de laboratorio o análisis de documentos, que se lleva a cabo para evaluar la conformidad de la instalación eléctrica con el Código Eléctrico de Costa Rica para la Seguridad de la Vida y la Propiedad.NOTA:
 1. Equivalencia de la potencia mecánica del motor.
-NLM: Obtener la potencia eléctrica de acuerdo a los datos de la placa del motor.”
+Nota Informativa(*): Obtener la potencia eléctrica de acuerdo a los datos de la placa del motor."
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 4318 del 28 de enero de 2022. Anteriormente se indicaca: "NLM")
 Potencia nominal
 Caballos de fuerza (Hp) | Kilowatts (kW)
 1/6 | 0.124

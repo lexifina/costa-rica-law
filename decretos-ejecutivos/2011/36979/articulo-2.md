@@ -1,14 +1,17 @@
-Artículo 2°—Apruébense el artículo 90, los numerales (1) y (2) del artículo 200.10(B), el artículo 210.12(B), el artículo 220.14(M), el artículo 240.81 y los numerales (1), (2) y (3) del artículo 250.126, el artículo 404.9(B), el artículo 404.9(C), el artículo 406.5(A) y artículo 406.5(B) correspondientes al “Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad” (CECR), para que en adelante se lean de la siguiente manera:
+Artículo 2°- Apruébense el artículo 90, los numerales (1) y (2) de la sección 200.10(B), la sección 220.14(M), la sección 240.81, los numerales (1), (2) y (3) de la sección 250.126, la sección 404.9(B), la sección 404.9(C), la sección 406.5(A) y la sección 406.5(B) correspondientes al "Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad" (CECR), para que en adelante se lean de la siguiente manera:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43418 del 28 de enero de 2022)
 ARTÍCULO 90
 Introducción
 Para Uso Exclusivo en Costa Rica
 90.1 Propósito.
 (A) Salvaguarda. El propósito de este Código es la salvaguarda práctica de las personas y de los bienes, de los riesgos que se derivan de una inadecuada instalación eléctrica o del uso de materiales y equipos para el uso de la electricidad.
 (B) Suficiencia en relación con la seguridad. Este Código contiene disposiciones que se consideran necesarias para la seguridad. El cumplimiento de las mismas y el mantenimiento adecuado darán lugar a una instalación prácticamente libre de riesgos, pero no necesariamente eficiente, conveniente o apta para un buen servicio o para ampliaciones futuras de la instalación eléctrica.
-NLM: Los riesgos ocurren frecuentemente debido a la sobrecarga en instalaciones eléctricas, debido a que no se utilizan de acuerdo con las disposiciones de este Código. Esto ocurre porque en la instalación inicial no se prevén incrementos en el consumo de la energía eléctrica. Una instalación inicial adecuada y las previsiones razonables para cambios en el sistema permitirán aumentos futuros del consumo de la energía eléctrica.
+Nota Informativa(*): Los riesgos ocurren frecuentemente debido a la sobrecarga en instalaciones eléctricas, debido a que no se utilizan de acuerdo con las disposiciones de este Código. Esto ocurre porque en la instalación inicial no se prevén incrementos en el consumo de la energía eléctrica. Una instalación inicial adecuada y las previsiones razonables para cambios en el sistema permitirán aumentos futuros del consumo de la energía eléctrica.
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 4318 del 28 de enero de 2022. Anteriormente se indicaca: "NLM")
 (C) Intención. Este Código no tiene la intención de ser una especificación de diseño ni la de servir como manual de instrucciones para personal no calificado.
 (D) Relación con Otros Estándares Internacionales. Los requisitos de este Código están orientados hacia los principios fundamentales de protección para la seguridad contenidos en la Sección 131 de la norma IEC 60364-1 Instalaciones Eléctricas para Edificaciones de la Comisión Electrotécnica Internacional (IEC por sus siglas en inglés).
-NLM: La Sección 131 de la norma IEC 60364-1 Instalaciones Eléctricas para Edificaciones contiene los principios fundamentales de protección para seguridad que comprenden: protección contra descargas eléctricas, protección contra efectos térmicos, protección contra sobre corriente, protección contra corrientes de falla y protección contra sobre tensión. Todos estos peligros potenciales están contemplados en los requisitos de este Código.
+Nota Informativa(*): La Sección 131 de la norma IEC 60364-1 Instalaciones Eléctricas para Edificaciones contiene los principios fundamentales de protección para seguridad que comprenden: protección contra descargas eléctricas, protección contra efectos térmicos, protección contra sobre corriente, protección contra corrientes de falla y protección contra sobre tensión. Todos estos peligros potenciales están contemplados en los requisitos de este Código.
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 4318 del 28 de enero de 2022. Anteriormente se indicaca: "NLM")
 (E) Uso de otras normas de instalación. Se aceptarán instalaciones para uso final de la electricidad que cumplan otras normas técnicas de instalación adicionales a las mencionadas en el Código Eléctrico de Costa Rica; siempre que no se generen combinaciones de estas normas de instalación en un mismo sistema y se de estricto cumplimiento a la norma aplicable en toda la instalación. Quedará bajo la responsabilidad del profesional a cargo del proyecto eléctrico el fiel cumplimiento de esta disposición.
 90.2 Alcance.
 (A) Ámbito de Aplicación. El presente Código se aplicará, a toda instalación eléctrica nueva y a toda ampliación y remodelación de una instalación eléctrica.
@@ -26,7 +29,8 @@ NLM: La Sección 131 de la norma IEC 60364-1 Instalaciones Eléctricas para Edif
 a. Constan de bajada de acometida aérea o acometida lateral y los medidores asociados.
 b. Están localizadas en servidumbres legalmente establecidas o derechos de paso designados o reconocidos por comisiones de acometidas públicas, comisiones de servicios públicos u otras agencias de control con jurisdicción para tales instalaciones.
 c. Están en propiedades que pertenecen o están rentadas por una compañía de electricidad con propósitos de comunicaciones, medición, generación, control, transformación, transmisión o distribución de energía eléctrica.
-NLM para (4) y (5): Ejemplos de compañías eléctricas pueden incluir aquellas entidades que son típicamente designadas o reconocidas por la ley o los reglamentos gubernamentales para comisiones de empresas de servicios públicos y que instalan, operan y mantienen el suministro eléctrico (como los sistemas de generación, transmisión o distribución) o los sistemas de comunicación (tales como teléfono, antenas comunales de televisión, Internet, satélite, o servicios de datos). Las compañías de servicios públicos pueden estar sujetas al cumplimiento de los códigos y las normas que cubren sus actividades reguladas tal como estén aprobadas por la ley o los reglamentos gubernamentales. Se puede encontrar información adicional consultando con los organismos gubernamentales correspondientes como las comisiones de reglamentación estatal.
+Nota Informativa(*) para (4) y (5): Ejemplos de compañías eléctricas pueden incluir aquellas entidades que son típicamente designadas o reconocidas por la ley o los reglamentos gubernamentales para comisiones de empresas de servicios públicos y que instalan, operan y mantienen el suministro eléctrico (como los sistemas de generación, transmisión o distribución) o los sistemas de comunicación (tales como teléfono, antenas comunales de televisión, Internet, satélite, o servicios de datos). Las compañías de servicios públicos pueden estar sujetas al cumplimiento de los códigos y las normas que cubren sus actividades reguladas tal como estén aprobadas por la ley o los reglamentos gubernamentales. Se puede encontrar información adicional consultando con los organismos gubernamentales correspondientes como las comisiones de reglamentación estatal.
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 4318 del 28 de enero de 2022. Anteriormente se indicaca: "NLM")
 90.3 Organización del Código. El Código está dividido en una introducción, nueve Capítulos y una Adenda. Los Capítulos 1, 2, 3 y 4 son de aplicación general; los Capítulos 5, 6 y 7 se refieren a lugares especiales, equipos especiales u otras condiciones especiales. Estos últimos Capítulos complementan o modifican las reglas generales. Los Capítulos 1 a 4 se aplican en todo, excepto en lo modificado por los Capítulos 5, 6 y 7 para las condiciones particulares.
 El Capítulo 8 trata de los sistemas de comunicaciones y no está sujeto a los requisitos de los Capítulos 1 a 7, excepto donde dichos requisitos están específicamente referenciados en el Capítulo 8.
 El Capítulo 9 consta de tablas que son aplicables según se hace referencia a ellas. La Adenda contiene modificaciones, aclaraciones a los artículos y tablas que son aplicables exclusivamente en Costa Rica.
@@ -34,9 +38,10 @@ Los anexos no son parte de los requisitos de este Código sino que se incluyen c
 90.4 Exigencia de cumplimiento. Este Código es de acatamiento obligatorio para todos los profesionales responsables con competencia para diseñar, instalar, renovar, modificar, adicionar, supervisar, aprobar, verificar y revisar los sistemas eléctricos de acuerdo a las infraestructuras señaladas en 90.2(B) de este Código y el Reglamento para el Trámite de Planos y la Conexión de los Servicios Eléctricos, Telecomunicaciones y de otros en Edificios del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, publicado el Diario Oficial La Gaceta N° 217 del 5 de noviembre del 2004.
 De igual manera es de acatamiento obligatorio para los técnicos calificados con competencia para instalar, renovar, modificar, adicionar y revisar los sistemas eléctricos de acuerdo a las infraestructuras señaladas en 90.2 (B) de este Código, así como para las personas físicas y jurídicas que fabriquen, importen, comercialicen materiales, equipos y demás dispositivos que se utilicen en las instalaciones eléctricas, de conformidad con las exigencias de este Código.
 90.5 Reglas obligatorias, reglas permisivas y material explicativo.
-(A) Reglas obligatorias. Las reglas obligatorias de este Código son aquellas que identifican acciones exigidas o prohibidas específicamente y que se caracterizan por el uso de los términos “debe” o “no debe”.
-(B) Reglas permisivas. Las reglas permisivas de este Código son aquellas que identifican acciones que se permiten pero que no se exigen; normalmente se usan para describir opciones o métodos alternativos, y se caracterizan por el uso de los términos “se permitirá” o “no se exigirá”.
-(C) Material explicativo. El material explicativo, tal como referencias a otras normas, referencias a secciones relacionadas de este Código, o información relacionada con una regla del Código, se incluye en el presente Código en forma de notas de letra menuda (NLM). Estas NLM son de carácter informativo únicamente y no son de obligatorio cumplimiento como requisitos de este Código.
+(A) Reglas obligatorias. Las reglas obligatorias de este Código son aquellas que identifican acciones exigidas o prohibidas específicamente y que se caracterizan por el uso de los términos "debe" o "no debe".
+(B) Reglas permisivas. Las reglas permisivas de este Código son aquellas que identifican acciones que se permiten pero que no se exigen; normalmente se usan para describir opciones o métodos alternativos, y se caracterizan por el uso de los términos "se permitirá" o "no se exigirá".
+(C) Material explicativo. El material explicativo, tal como referencias a otras normas, referencias a secciones relacionadas de este Código, o información relacionada con una regla del Código, se incluye en el presente Código en forma de notas de letra menuda (Nota Informativa(*)). Estas Nota Informativa(*) son de carácter informativo únicamente y no son de obligatorio cumplimiento como requisitos de este Código.
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 4318 del 28 de enero de 2022. Anteriormente se indicaca: "NLM")
 Los corchetes que contienen referencias de secciones a otro documento de la NFPA tienen únicamente propósito informativo y se brindan como guía para indicar la fuente del texto extraído. Estas referencias entre corchetes están inmediatamente después del texto extraído.
 90.6 Planeación del alambrado.
 (A) Ampliación y comodidad futuras. Los planos y las especificaciones que prevean espacios amplios en las canalizaciones, canalizaciones de reserva y espacios adicionales, permitirán futuros incrementos en las instalaciones eléctricas y de telecomunicaciones. Los centros de distribución situados en lugares fácilmente accesibles permitirán la operación cómoda y segura.
@@ -45,36 +50,36 @@ Los corchetes que contienen referencias de secciones a otro documento de la NFPA
 Los valores derivados de conversiones de unidades utilizadas en el texto original de NFPA 70, se presentan con el número mínimo de decimales y redondeados al valor más cercano.
 Donde aplique, los valores de medida en el texto del Código irán seguidos por un valor equivalente entre paréntesis, aproximado en unidades del sistema inglés.
 A los tamaños de conductos, de los conductores, a la designación de la potencia de los motores y a los tamaños comerciales que no reflejen medidas existentes, por ejemplo: tamaños de cajas, se les asignará el valor SI más cercano. La Adenda contiene modificaciones, aclaraciones a los artículos y tablas que son aplicables exclusivamente en Costa Rica.
-[…]
+[.]
 200.10 Identificación de terminales:
-[…]
-(B) Receptáculos, clavijas y conectores.…
-(1) La identificación se debe hacer por un metal o recubrimiento metálico de color fundamentalmente blanco o con palabra “Blanco”, “White”, “Neutro” o la letra “B”,”W” o “N” situada cerca del terminal identificado.
-(2) Si el terminal no es visible, el orificio de entrada para la conexión del conductor debe ser de color blanco o se debe marcar con la palabra “blanco”, “White”, “Neutro” o la letra “B”,”W” o “N”.
-[…]
-210.12 Protección con interruptor de circuito por falla de arco (AFCI)
-[…]
-(B) Unidades de vivienda. Todos los circuitos ramales que alimentan salidas monofásicas de 120 volts, 15 y 20 amperes instaladas en habitaciones familiares, comedores, salas de estar, salones, bibliotecas, cuartos de estudio, alcobas, solarios, salones de recreación, armarios, pasillos o habitaciones o áreas similares en unidades de vivienda, se deben proteger con un interruptor listado de circuito por fallas de arco, tipo combinación, instalado para brindar protección al circuito ramal. Este requisito será exigible en una aplicación escalonada tal como se indica en el Transitorio Único de este Decreto.
-[…]
+[.]
+(B) Receptáculos, clavijas y conectores..
+(1) La identificación se debe hacer por un metal o recubrimiento metálico de color fundamentalmente blanco o con palabra "Blanco", "White", "Neutro" o la letra "B","W" o "N" situada cerca del terminal identificado.
+(2) Si el terminal no es visible, el orificio de entrada para la conexión del conductor debe ser de color blanco o se debe marcar con la palabra "blanco", "White", "Neutro" o la letra "B","W" o "N".
+[.]
+210.12 Protección con interruptor de circuito por falla de arco (AFCI) (Derogado este punto por el artículo 4° del decreto ejecutivo N° 43418 del 28 de enero de 2022)
+[.]
+(B) Unidades de vivienda. (Derogado este punto por el artículo 4° del decreto ejecutivo N° 43418 del 28 de enero de 2022)
+[.]
 220.14 Otras cargas para todo tipo de ocupaciones.
-[…]
-(M) Viviendas de Interés Social. “Para el cálculo de la carga de una vivienda de interés social se deben considerar al menos los siguientes circuitos:
+[.]
+(M) Viviendas de Interés Social. "Para el cálculo de la carga de una vivienda de interés social se deben considerar al menos los siguientes circuitos:
 a. Un circuito de iluminación cuya carga no sea inferior a 10 voltios-amperios por metro cuadrado.
 b. Dos circuitos de tomas para el área de cocina de 1500 voltios-amperios cada uno.
 c. Un circuito de tomas para uso general de 1500 voltios-amperios.
 d. Si tiene un calentador de agua, un circuito de 4500 voltios-amperios o la capacidad nominal de la placa de características, la que sea mayor.
 e. Si tiene cocina eléctrica ésta no tendrá una carga inferior a 8000 voltios-amperios a 240 voltios.
-[…]
-240.81. Indicación. Los interruptores automáticos deben indicar claramente si están en posición abierta (circuito desconectado “OFF”, “0”) o cerrada (circuito conectado “ON”, “I”).
-Cuando las palancas de los interruptores automáticos se accionen verticalmente y no de forma rotacional u horizontalmente, la posición de circuito cerrado (“ON”,”I”) debe ser con la palanca hacia arriba.
-[…]
+[.]
+240.81. Indicación. Los interruptores automáticos deben indicar claramente si están en posición abierta (circuito desconectado "OFF", "0") o cerrada (circuito conectado "ON", "I").
+Cuando las palancas de los interruptores automáticos se accionen verticalmente y no de forma rotacional u horizontalmente, la posición de circuito cerrado ("ON","I") debe ser con la palanca hacia arriba.
+[.]
 250.126. Identificación de los terminales de alambrado de dispositivos. El terminal para la conexión del conductor de puesta a tierra del equipo se debe identificar mediante uno de los siguientes medios:
 1) Un terminal de tornillo de color verde, no fácilmente removible, con cabeza hexagonal o similar, que asegure una conexión firme para la fijación del conductor de puesta a tierra.
 2) Un terminal de tuerca de color verde, hexagonal o similar que asegure una conexión firme para la fijación del conductor de puesta a tierra y que no sea removible fácilmente.
-3) Un conector de alambre de presión de color verde. Si el terminal para el conductor de puesta a tierra no es visible, el agujero de entrada del conductor se debe marcar con las palabras “verde”, “tierra”, “green” o “ground”, las letras V, T, G, GR, un símbolo de puesta a tierra, o con otra identificación mediante un color verde distintivo. Si el terminal para el conductor de puesta a tierra del equipo es fácilmente removible, el área adyacente al terminar se debe marcar en forma similar.
-[…]
+3) Un conector de alambre de presión de color verde. Si el terminal para el conductor de puesta a tierra no es visible, el agujero de entrada del conductor se debe marcar con las palabras "verde", "tierra", "green" o "ground", las letras V, T, G, GR, un símbolo de puesta a tierra, o con otra identificación mediante un color verde distintivo. Si el terminal para el conductor de puesta a tierra del equipo es fácilmente removible, el área adyacente al terminar se debe marcar en forma similar.
+[.]
 404.9. Disposiciones para interruptores de resorte de uso general.
-[…]
+[.]
 (B) Puesta a tierra. Los interruptores de resorte, incluyendo los reguladores de intensidad e interruptores similares de control, se deben conectar a un conductor de puesta a tierra de equipos y deben proporcionar un medio para conectar las placas frontales metálicas al conductor de puesta a tierra del equipo, se instale o no una placa frontal metálica. Los interruptores de resorte se deben considerar como parte de una trayectoria de corriente eficaz de falla a tierra, si se cumple cualquiera de las condiciones siguientes:
 (1) El interruptor está montado con tornillos metálicos a una caja metálica o una cubierta metálica que está conectada a un conductor de puesta a tierra del equipo, o a una caja no metálica con medios integrados para la conexión a un conductor de puesta a tierra del equipo.
 (2) Un conductor de puesta a tierra del equipo o un puente de unión del equipo está conectado a una terminación de puesta a tierra de equipos del interruptor de resorte.
@@ -86,11 +91,11 @@ Excepción 2 para (B): N° se exigirá que los ensambles o equipos aprobados sea
 (4) Todas las partes del interruptor manipulables para su operación están fabricadas de materiales no metálicos.
 Excepción 3 para (B); Se permitirá un interruptor de resorte con envolvente no metálico integrado que cumple con 300.15 (E) sin una conexión al conductor de puesta a tierra del equipo.
 (C) Construcción. Las placas frontales metálicas deben ser de metal ferroso con espesor no menor a 0.76 mm (0.030 pulgadas) o de metal no ferroso con espesor no menor a 1.02 mm (0.040 pulgadas), cuando la placa tenga una cubierta decorativa el espesor se medirá en conjunto. Las placas frontales de material aislante deben ser no combustibles y tener un espesor no menor a 2.54 mm (0.010 pulgadas), pero se permitirá un espesor menor a 2.54 mm (0.010 pulgadas) si están moldeadas o reforzadas de modo que brinden una resistencia mecánica adecuada.
-[…]
+[.]
 406.5. Placas frontales (placas para cubierta) de los receptáculos.
-[…]
+[.]
 (A) Espesor de las placas frontales metálicas. Las placas frontales metálicas deben ser de metal ferroso con espesor no menor a 0.76 mm (0.030 pulgadas) o de metal no ferroso con espesor no menor a 1.02 mm (0.040 pulgadas), cuando la placa tenga una cubierta decorativa el espesor se medirá en conjunto.
 (B) Puesta a tierra. Una placa frontal que pueda llegar a energizarse, debe estar puesta a tierra.
 Excepción: Cuando todas las partes expuestas al usuario no estén en contacto con partes energizadas.
-[…]”
+[.]"
 (Así reformado por el artículo 1° del decreto ejecutivo N° 38440 del 13 de noviembre del 2013)
