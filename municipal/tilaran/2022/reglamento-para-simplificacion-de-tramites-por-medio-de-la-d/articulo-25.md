@@ -1,0 +1,1 @@
+Artículo 25.-El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, de conformidad con lo dispuesto en el artículo 43 del Código Municipal y deroga cualquier disposición municipal que se le oponga; está sujeto a cualquier modificación normativa de conformidad con los fines de la Ley 8220.

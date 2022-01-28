@@ -1,0 +1,1 @@
+Artículo 22.-Para esta municipalidad el documento digitalizado, se validará como un documento fiel, íntegro y autentico presentado por el usuario, a quien se devolverá el documento físico, firmado y sellado.

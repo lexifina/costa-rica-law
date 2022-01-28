@@ -1,0 +1,1 @@
+Artículo 3º-Este Reglamento rige para todos los usuarios de los servicios municipales, constituye los parámetros técnicos y legales necesarios para la formalización de los trámites indicados en el artículo segundo anterior, a través de plataforma de servicios o el correo electrónico oficial para trámites de la Municipalidad de Tilarán.

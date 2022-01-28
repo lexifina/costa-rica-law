@@ -1,0 +1,1 @@
+Artículo 5º-La unidad de Informática, en coordinación con las unidades correspondientes de la institución, deberán establecer los canales tecnológicos de comunicación para el aprovechamiento oportuno de la información obtenida, producto de los trámites resultantes.
