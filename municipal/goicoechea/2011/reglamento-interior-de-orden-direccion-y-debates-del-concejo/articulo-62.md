@@ -1,4 +1,4 @@
-Artículo 62.—Las comisiones analizarán, dictaminarán y recomendarán, sobre los siguientes asuntos:
+Artículo 62.-Las comisiones analizarán, dictaminarán y recomendarán, sobre los siguientes asuntos:
 1. COMISIÓN DE HACIENDA Y PRESUPUESTO
 1.1 La formulación, el análisis, la planificación, la evaluación y seguimiento del Pan Anual Operativo, del presupuesto ordinario, los extraordinarios, las modificaciones presupuestarias y todo lo relacionado con la Hacienda Municipal.
 1.2 Los Relacionados con la Contraloría General de la República, en tanto sea materia presupuestaria, hacendaria o financiera.
@@ -6,6 +6,8 @@ Artículo 62.—Las comisiones analizarán, dictaminarán y recomendarán, sobre
 1.4 Las donaciones que provengan de instituciones públicas o privadas o que la Municipalidad haga a instituciones públicas o privadas.
 1.5 La solicitud de exoneración de impuestos y tasas municipales ante la Asamblea Legislativa.
 1.6 Los otros asuntos relacionados o afines o que le asigne el Concejo Municipal para su conocimiento.
+1.7 Una vez sea entregado el presupuesto ordinario por parte de la administración municipal el mismo deberá ser ampliamente discutido en la comisión en sesiones ordinarias o extraordinarias llamando a cada Dirección de la Municipalidad y Concejos de Distrito para realizar la respectiva justificación de sus partidas asignadas.
+(Así adicionado el inciso anterior mediante Sesión Ordinaria N° 09-2022 del 28 de enero de 2022)
 2. COMISIÓN DE OBRAS PÚBLICAS
 2.1 Las obras públicas que se construyan en la jurisdicción del cantón.
 2.2 El ordenamiento urbano y el Plan Director Urbano.

@@ -22,3 +22,4 @@ Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal del Can
 | 7 | 2020-11-16 | Reglamento municipal 46 (2020-11-16) |
 | 8 | 2021-08-23 | Reglamento municipal 34 (2021-08-23) |
 | 9 | 2021-11-04 | Reglamento municipal 21 (2021-11-04) |
+| 10 | 2022-01-28 | Reglamento municipal 9 (2022-01-28) |
