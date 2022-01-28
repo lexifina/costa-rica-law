@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. Este reglamento resulta aplicable a la Auditoría Interna para la autorización de libros de actas, contables y otros que se enmarquen en el ámbito de su competencia, así como para aquellas instancias del Tribunal Supremo de Elecciones que, por disposición normativa, deban llevarlos para la gestión administrativa.

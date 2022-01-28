@@ -1,0 +1,1 @@
+Artículo 11.- Entrega del libro autorizado. La Auditoría Interna entregará, formalmente y dentro del plazo establecido, el libro sujeto a razón de apertura, a la instancia del Tribunal que lo solicitó.

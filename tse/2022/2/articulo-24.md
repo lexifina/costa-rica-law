@@ -1,0 +1,3 @@
+CAPÍTULO VI
+LIBROS DIGITALES
+Artículo 24.- Autorización de libros legales digitales. Será responsabilidad de la Administración que, el sistema informático para el registro y soporte electrónico de libros en formato digital, cumpla con los requisitos y formalidades determinados en este reglamento para la realización de la razón de cierre y apertura correspondiente; adicionalmente, deberá disponer de los controles necesarios que garanticen la exactitud, inalterabilidad, confidencialidad, disponibilidad y respaldo de la información que será contenida en este, en observancia del marco normativo que regula la materia. La disposición de estos libros para la razón de apertura y cierre se regirá por lo señalado en el presente reglamento.

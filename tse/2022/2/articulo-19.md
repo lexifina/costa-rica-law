@@ -1,0 +1,7 @@
+Artículo 19.- Requisitos para el cierre de los libros. El libro sujeto a razón de cierre deberá reunir los siguientes requisitos:
+a) Encontrarse en buen estado, sin alteraciones de cualquier índole que afecten su encuadernación o foliación y que no presente folios con tachaduras, borrones y correcciones que hagan dudar de la autenticidad de la información que contiene.
+b) Contener la totalidad de los folios y estar ordenados de forma consecutiva. Las hojas anuladas o inutilizadas deben continuar figurando en el lugar que les corresponde a efectos de no alterar el orden de los folios.
+c) Cuando uno o varios folios se anulen, consignar en esos folios el sello o anotación de anulación. Además, inmediatamente después de la última anotación que se realice en el tomo y antes de la razón de cierre, indicar los motivos que generaron la correspondiente anulación, fecha en que se anula y la firma responsable del uso del libro.
+d) Para realizar la razón de cierre de un libro bajo la modalidad de "hojas sueltas", será necesario que la instancia solicitante proceda de previo a la adecuada encuadernación del libro.
+e) La información que contiene el libro debe encontrarse en orden cronológico de fechas, sin espacios en blanco, ni entrelíneas.
+f) La instancia correspondiente deberá guardar espacio suficiente -de por lo menos un folio- para que se pueda estampar el sello de cierre luego de la última anotación efectuada.

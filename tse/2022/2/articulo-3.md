@@ -1,0 +1,1 @@
+Artículo 3.- Contenido. Este reglamento contiene los requisitos y formalidades que se deben cumplir para la apertura, cambio en la modalidad, reposición y cierre, por parte de la Auditoría Interna, de los libros de actas, contables y otros que deban llevarse en el Tribunal.
