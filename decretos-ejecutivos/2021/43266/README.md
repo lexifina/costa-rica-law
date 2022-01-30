@@ -14,3 +14,4 @@ Autoriza la importación de cuota de arroz en granza por desabastecimiento en el
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-05 | la propia norma |
+| 2 | 2022-01-30 | Decreto Ejecutivo 43410 (2022-01-31) |
