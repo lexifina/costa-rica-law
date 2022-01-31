@@ -1,2 +1,1 @@
-Artículo 6º—Estructura organizativa. La estructura organizativa de la entidad supervisada debe contar con las características necesarias para que la estrategia de la administración del riesgo de liquidez pueda ser efectivamente implementada. Debe establecer líneas claras de responsabilidad junto con los procedimientos adecuados para cada nivel jerárquico dentro de la entidad supervisada, que permita asegurar su eficacia y que sea operacionalmente adecuada.
-Asimismo, debe evitarse conflictos de interés, separando las áreas operativas de las áreas de control.
+Artículo 6º-Estructura organizativa. (Derogado por el artículo 87(actual 88) del Reglamento sobre Administración Integral de Riesgos (ACUERDO SUGEF 2-10), aprobado en sesión N° 862 del 25 de junio de 2010)

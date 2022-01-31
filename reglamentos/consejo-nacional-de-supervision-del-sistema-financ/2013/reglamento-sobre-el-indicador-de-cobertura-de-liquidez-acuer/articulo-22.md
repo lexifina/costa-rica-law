@@ -1,1 +1,1 @@
-Artículo 22.—Reportes para la SUGEF. La entidad supervisada debe remitir a la SUGEF, con la periodicidad, el formato y los medios que ésta determine, la información relacionada con la administración de riesgo de liquidez. Adicionalmente deberá tener a disposición la información relacionada con el cumplimiento de este reglamento.
+Artículo 22.-Reportes para la SUGEF. (Derogado por el artículo 87(actual 88) del Reglamento sobre Administración Integral de Riesgos (ACUERDO SUGEF 2-10), aprobado en sesión N° 862 del 25 de junio de 2010)

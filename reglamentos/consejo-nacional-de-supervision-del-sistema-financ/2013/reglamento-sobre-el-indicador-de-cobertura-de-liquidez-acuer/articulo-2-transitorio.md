@@ -1,7 +1,1 @@
-Transitorio II.—El Indicador de Cobertura de Liquidez (ICL) entrará en vigencia a partir del primero de enero de 2015, con la siguiente gradualidad para la aplicación del nivel mínimo de cumplimiento:
-| Nivel del ICL
-A partir del 01/01/2015 | 60%
-A partir del 01/01/2016 | 70%
-A partir del 01/01/2017 | 80%
-A partir del 01/01/2018 | 90%
-A partir del 01/01/2019 | 100%
+Transitorio II.- (Derogado por el artículo 87(actual 88) del Reglamento sobre Administración Integral de Riesgos (ACUERDO SUGEF 2-10), aprobado en sesión N° 862 del 25 de junio de 2010)

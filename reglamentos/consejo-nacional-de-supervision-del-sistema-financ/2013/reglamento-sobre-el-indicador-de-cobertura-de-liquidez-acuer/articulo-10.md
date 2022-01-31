@@ -1,1 +1,1 @@
-Artículo 10.—Mecanismos internos de control y cumplimiento. En el marco de sus funciones de control y cumplimiento, la auditoría interna o el órgano de control equivalente de la entidad supervisada, debe verificar el cumplimiento de las disposiciones del presente reglamento.
+Artículo 10.-Mecanismos internos de control y cumplimiento. (Derogado por el artículo 87(actual 88) del Reglamento sobre Administración Integral de Riesgos (ACUERDO SUGEF 2-10), aprobado en sesión N° 862 del 25 de junio de 2010)
