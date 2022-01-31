@@ -1,0 +1,4 @@
+SECCIÓN SEXTA - SEGUIMIENTO DE RECOMENDACIONES Y DE
+SERVICIOS PREVENTIVOS
+Artículo 67º - Programa de Seguimiento de Recomendaciones
+La Auditoría Interna formulará y ejecutará un programa de seguimiento de recomendaciones emitidas en sus informes de auditoría, para verificar la efectividad de su implementación, así como de las disposiciones de la Contraloría General dela República y de las recomendaciones de otros órganos de control que hayan sido puestas en su conocimiento.

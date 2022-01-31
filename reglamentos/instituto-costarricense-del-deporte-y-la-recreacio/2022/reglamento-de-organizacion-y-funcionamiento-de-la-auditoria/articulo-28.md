@@ -1,0 +1,2 @@
+Artículo 28º - Programa de Teletrabajo en la Auditoría Interna
+Los funcionarios de la Auditoría Interna con funciones teletrabajables a criterio del Auditor Interno, podrán incorporarse al Programa de Teletrabajo Institucional, para lo cual se requerirá de su aprobación previa conforme a las potestades que le confieren la Ley General de Control Interno 8292 y el Reglamento de Organización y Funcionamiento de la Auditoría Interna.

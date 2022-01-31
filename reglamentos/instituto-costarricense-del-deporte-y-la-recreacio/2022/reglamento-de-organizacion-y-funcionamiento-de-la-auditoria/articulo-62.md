@@ -1,0 +1,2 @@
+Artículo 62º - Obligación de implementar las recomendaciones de la Auditoría Interna
+Una vez aceptadas las recomendaciones de la Auditoría Interna, el Consejo Nacional del Deporte y la Recreación o el titular subordinado deberá girar la orden de su implementación al funcionario responsable, por escrito y con copia a la Auditoría Interna, dentro de los plazos señalados en los artículos 36 y 37 de la Ley General de Control Interno 8292, según corresponda.

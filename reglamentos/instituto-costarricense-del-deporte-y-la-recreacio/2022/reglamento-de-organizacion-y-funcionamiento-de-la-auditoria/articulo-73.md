@@ -1,0 +1,2 @@
+Artículo 73º - Modificación del Plan de Trabajo Anual
+Compete a la Auditoría Interna elaborar y modificar sus Planes de Trabajo Anuales de conformidad con la normativa vigente, sin perjuicio de incorporar sugerencias que le manifiesten el Consejo Nacional del Deporte y la Recreación y la Contraloría General de la República.

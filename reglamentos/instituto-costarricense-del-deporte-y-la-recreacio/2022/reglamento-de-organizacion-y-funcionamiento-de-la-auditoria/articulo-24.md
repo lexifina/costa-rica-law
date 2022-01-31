@@ -1,0 +1,2 @@
+Artículo 24º - Normativa en el ejercicio de funciones en la Auditoría Interna
+El personal de la Auditoría Interna ejercerá sus funciones conforme lo dispuesto en este Reglamento, en las Normas Generales de Auditoría para el Sector Público (R-DC-064- 2014), publicadas en La Gaceta 184 del 25de setiembre de 2014; en las Normas para el ejercicio de la auditoría interna en el Sector Público(R-DC-119- 2009), publicadas en La Gaceta 28 del 10 de febrero de 2010 y en Lineamientos que emita la Contraloría General de la República.
