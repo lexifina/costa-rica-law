@@ -1,4 +1,0 @@
-CAPÍTULO II
-MARCO GENERAL PARA LA GESTIÓN DEL RIESGO OPERATIVO
-Artículo 4°—Contexto de la gestión del riesgo operativo. La entidad, de conformidad con lo dispuesto en el Acuerdo SUGEF 2-10, debe contar con una estructura organizativa que le permita implementar efectivamente su estrategia para la gestión del riesgo operativo.
-La Junta Directiva o autoridad equivalente, junto con la Administración Superior, deben velar por que las acciones y herramientas que desarrolle la entidad para la gestión del riesgo operativo, estén plenamente integradas a su proceso institucional de administración integral de riesgos y que sean acordes con su tamaño, complejidad, volumen de sus operaciones y perfil de riesgo. En este sentido deben asignar los recursos necesarios para su implementación, sostenibilidad y mejora a través del tiempo.
