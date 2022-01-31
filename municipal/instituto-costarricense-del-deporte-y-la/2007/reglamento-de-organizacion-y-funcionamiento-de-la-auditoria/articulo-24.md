@@ -1,3 +1,0 @@
-CAPÍTULO V
-Del funcionamiento de la Auditoría Interna
-Artículo 24.—De la Dirección y Administración. La Auditoría Interna deberá ejecutar su trabajo de acuerdo con lo que establece el presente Reglamento, las normas de ejecución de la Auditoría, contenidas en el Manual sobre Normas Técnicas de Auditoría para la Contraloría General de la República y las Entidades y Órganos Sujetos a su Fiscalización, el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público, ambos emitidos por la Contraloría General de la República y cualesquiera otras disposiciones que dicte el órgano contralor.
