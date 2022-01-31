@@ -1,0 +1,11 @@
+TÍTULO IV.
+ADMINISTRACIÓN DEL RIESGO DE MERCADO, TASA DE INTERÉS Y TIPO DE CAMBIO
+(Así adicionado el título anterior en sesión N° 1712-2022 del 31 de enero de 2022)
+CAPÍTULO I.
+GOBIERNO CORPORATIVO DE LA GESTIÓN DEL RIESGO DE MERCADO TASA DE INTERÉS Y TIPO DE CAMBIO
+(Así adicionado el capítulo anterior en sesión N° 1712-2022 del 31 de enero de 2022)
+Artículo 35. Sistema de organización Las entidades deben establecer una estructura organizacional o funcional adecuada a su modelo de negocios, el cual debe ser proporcional a su tamaño, así como el volumen, las características y la complejidad de sus operaciones relacionadas con el riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio.
+El sistema de organización debe delimitar claramente las funciones y responsabilidades, así como los niveles de dependencia e interrelación que les corresponden a cada una de las áreas involucradas en la realización de actividades relativas al riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio.
+La estrategia para la gestión del riesgo de mercado, el riesgo de tasas de interés y riesgo de tipos de cambio debe contemplar las pautas generales que las entidades aplicarán para gestionar dicho riesgo, así como el grado de capacidad de la entidad a los mismos.
+Todos estos aspectos de gestión del riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio deben estar contemplados en el Manual de Gestión Integral de Riesgos, aprobado por el Órgano de Dirección de la entidad.
+(Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)

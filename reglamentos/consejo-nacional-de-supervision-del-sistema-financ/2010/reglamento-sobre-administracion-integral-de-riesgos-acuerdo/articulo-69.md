@@ -1,0 +1,2 @@
+Artículo 69. Reportes para la SUGEF
+La entidad supervisada debe remitir a la SUGEF, con la periodicidad, el formato y los medios que ésta determine, la información relacionada con la administración de riesgo de liquidez. Adicionalmente deberá tener a disposición la información relacionada con el cumplimiento de este reglamento.

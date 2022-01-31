@@ -1,0 +1,3 @@
+Artículo 82. Base de Datos
+La entidad debe conformar una base de datos para incidencias y una base de datos para eventos potenciales. Ambas bases deben contener, al menos, la información que establezca el Superintendente mediante Lineamientos Generales. La entidad, adicionalmente, puede incluir otros campos que requiera para su gestión; asimismo, la Órgano de Dirección de la entidad debe definir en sus políticas un monto mínimo de pérdida a partir del cual se registra una incidencia o evento potencial en la base de datos. En este último caso, la entidad debe definir los criterios que le permitan imputar un valor al evento en función de la información que se disponga.
+(Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)

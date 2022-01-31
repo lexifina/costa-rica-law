@@ -1,0 +1,11 @@
+Artículo 36. Responsabilidades del Órgano de Dirección Es responsabilidad del Órgano de Dirección:
+a) Aprobación de la estrategia para la gestión del riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio, que debe contemplar la estructura administrativa de la entidad.
+b) Aprobación de las políticas, procesos para la gestión del riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio y las prácticas significativas, estableciendo una frecuencia para su revisión / actualización.
+c) Aprobar los criterios y los procedimientos sobre las excepciones a las políticas mencionadas que impliquen un desvío significativo a los límites establecidos.
+d) Asegurar que la Gerencia gestiona adecuadamente el riesgo de mercado, el riesgo de tasas de interés y el riesgo de tipos de cambio y que el mismo es adecuadamente comunicado.
+e) Recibir periódicamente información sobre la exposición al riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio, especialmente cuando se presentan situaciones adversas. Estar al tanto de las pruebas de tensión y los planes de contingencia.
+f) Recibir informes periódicos sobre la exposición al riesgo de mercado, riesgo de tasa de interés y riesgos de tipos de cambio, los que deberán tener mayor frecuencia ante situaciones de tensión.
+g) Dictar las reglas para garantizar que el personal involucrado en la gestión del riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio cuenta con la capacidad e idoneidad para administrar los riesgos mencionados de acuerdo con el perfil de riesgo de la entidad.
+h) Aprobar y revisar las metodologías y los informes que permiten evaluar si la suficiencia patrimonial de la entidad resulta suficiente para soportar la exposición de la entidad al riesgo de mercado y al riesgo de tasa de interés. Ello independientemente del cumplimiento de las relaciones técnicas establecidas en el "Reglamento de Suficiencia Patrimonial".
+i) Garantizar que la política de incentivos económicos al personal es consistente con la estrategia adoptada para el riesgo de mercado, riesgo de tasas de interés y riesgo de tipos de cambio.
+(Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)

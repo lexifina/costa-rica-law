@@ -1,0 +1,2 @@
+Artículo 84. Riesgo de Tecnologías de Información (TI) La entidad, en su gestión del riesgo operativo, debe considerar el riesgo de Tecnologías de Información (TI). Para ello, la Alta Gerencia debe velar que el marco de trabajo de administración de riesgos de TI esté alineado a su proceso de administración de riesgos. Dicho marco de trabajo debe cumplir con los requerimientos dispuestos por el respectivo proceso de conformidad con lo dispuesto en el Acuerdo SUGEF 14-17.
+(Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
