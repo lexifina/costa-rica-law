@@ -15,3 +15,4 @@ Reglamento interno de organización y funcionamiento del Comité Cantonal de Dep
 | --- | --- | --- |
 | 1 | 2019-01-15 | la propia norma |
 | 2 | 2020-01-27 | Reglamento municipal 270 (2020-01-27) |
+| 3 | 2022-01-31 | Reglamento municipal 135 (2022-01-31) |
