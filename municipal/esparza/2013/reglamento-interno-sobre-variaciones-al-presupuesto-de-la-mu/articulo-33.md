@@ -1,1 +1,0 @@
-Artículo 33.—Divulgación. El Alcalde Municipal será el encargado de divulgar el presente reglamento, así como sus variaciones, entre todos los funcionarios de la institución y ponerlo a disposición para consulta, tanto de usuarios internos como de personas externas a la institución.

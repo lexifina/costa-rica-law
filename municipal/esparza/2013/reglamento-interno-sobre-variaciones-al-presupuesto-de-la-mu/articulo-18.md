@@ -1,1 +1,0 @@
-Artículo 18.—Informe de resultado de las solicitudes de variaciones al presupuesto. El encargado de Planificación entregará una nota indicándole a cada una de las personas que ha solicitado una modificación o inclusión de recursos en cualquiera de las variaciones al presupuesto, si fue aprobada o no su solicitud.
