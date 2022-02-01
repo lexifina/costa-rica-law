@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 490:2017 Equipos para la industria de petróleo, cilind
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-18 | la propia norma |
+| 2 | 2022-02-01 | Decreto Ejecutivo 43417 (2022-02-01) |
