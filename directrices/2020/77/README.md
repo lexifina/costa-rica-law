@@ -35,3 +35,4 @@ Funcionamiento de las instituciones estatales durante la declaratoria de emergen
 | 20 | 2021-10-29 | Directriz 125 (2021-10-29) |
 | 21 | 2021-11-30 | Directriz 126 (2021-11-30) |
 | 22 | 2021-12-16 | Directriz 129 (2021-12-16) |
+| 23 | 2022-02-01 | Directriz 130 (2022-01-31) |
