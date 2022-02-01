@@ -14,3 +14,4 @@ Reglamento de Administración y Venta de Bienes Adjudicados o Dación de Pago de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-27 | la propia norma |
+| 2 | 2022-02-01 | Reglamento 13 (2022-02-01) |

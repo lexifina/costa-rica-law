@@ -1,3 +1,2 @@
-Artículo 7º—Descuentos del precio base. El precio base de venta, tanto de la primera como de la segunda publicación, será el del avalúo.
-En la tercera publicación, el precio base tendrá un descuento del 15% sobre el precio base anterior.
-La Dirección Ejecutiva con fundamento en estudios técnicos, podrá autorizar ventas con descuentos en el precio base mayor al 15%. De esto deberá informar previamente a la Junta Directiva para su conocimiento.
+Artículo 7º-Prohibición de participación. Están inhibidas de participar como oferentes, en los procesos de venta de bienes, en forma directa o indirecta, las personas físicas o jurídicas que se señalan en el Capítulo VII artículos 21 y 22 del Reglamento de Contratación Administrativa de JUPEMA, vigente.
+(Así reformado mediante sesión N° 00013-2022 del 1° de febrero del 2022)

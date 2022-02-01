@@ -1,7 +1,5 @@
-Artículo 8º—Venta directa. JUPEMA puede proceder a la venta de los bienes en cualquier momento, una vez realizada la publicación en su Sitio Web siguiendo el siguiente procedimiento:
-a) Después de realizada la publicación, se reciben ofertas en un plazo de diez días hábiles.
-b) Vencido el plazo para recepción de ofertas, JUPEMA procede a emitir, en el plazo de 15 días hábiles el acto resolutivo. La adjudicación debe hacerse a la mejor oferta financiera según estudio debidamente acreditado.
-En caso de empate, la JUPEMA procede a invitar a las personas oferentes a mejorar su oferta en un plazo máximo de tres días hábiles, a partir de la comunicación respectiva.
-Los bienes adjudicados o en dación de pago podrán venderse a personas no afiliadas a la JUPEMA solo con pago de contado. Cuando concurran a la oferta, en iguales condiciones, un tercero y un afiliado de la JUPEMA, se preferirá a este último.
-c) De recibir solo una oferta JUPEMA adjudicará el bien siempre y cuando se cumplan las condiciones de precio y forma de pago, estipuladas en este Reglamento.
-d) En cualquier tiempo y hasta 5 días hábiles antes de la próxima publicación, quedará abierta la recepción de ofertas por cualquier persona interesada, siempre y cuando ofrezca al menos el precio base establecido.
+Artículo 8º-Recepción de Ofertas. Las ofertas deben entregarse mediante correo electrónico, fax, sitio web o en sobre cerrado en el Departamento Administrativo de JUPEMA o en sus Sucursales.
+Las Sucursales deben remitir los documentos originales al Departamento Administrativo dentro de un día hábil a su recibo.
+Las personas participantes deben presentar su oferta según la invitación a cotizar que JUPEMA establezca y adjuntar la documentación requerida.
+Para ofertar, es indispensable que la persona brinde una garantía de participación igual al 1% del precio base del bien ofertado aportando el comprobante de depósito, con la oferta, la cual se ejecuta cuando proceda.
+(Así reformado mediante sesión N° 00013-2022 del 1° de febrero del 2022)
