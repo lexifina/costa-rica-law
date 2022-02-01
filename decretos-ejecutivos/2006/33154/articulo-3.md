@@ -1,1 +1,0 @@
-Artículo 3º—Financiamiento del Programa. El programa será financiado mediante una combinación de recursos provenientes del Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF), el Instituto Mixto de Ayuda Social (IMAS) y el Fondo Nacional de Becas (FONABE), así como de aportes de la cooperación internacional.

@@ -1,1 +1,0 @@
-Artículo 4º—Definición de la población objetivo. La población objetivo del programa son adolescentes de ambos sexos en condición de pobreza que necesiten apoyo económico para mantenerse en el sistema educativo y/o formativo.

@@ -1,2 +1,0 @@
-Artículo 5º—Instituciones participantes. Bajo la rectoría del Ministro Rector del Sector Social y de Lucha contra la Pobreza, participarán en este programa el Ministerio de Educación Pública, el Instituto Nacional de Aprendizaje (INA), el Instituto Mixto de Ayuda Social (IMAS), la Dirección de Asignaciones Familiares (DESAF) del Ministerio de Trabajo y Seguridad Social y La Caja Costarricense de Seguro Social (CCSS).
-(Así reformado mediante el artículo 20 del decreto ejecutivo N°33203 del 08 de junio del 2006).
