@@ -1,1 +1,0 @@
-Transitorio I.—Hasta tanto los recursos financieros no hayan sido trasladados al IMAS, para continuar otorgando los subsidios de la población inicialmente seleccionada por FONABE, ésta última institución continuará girando los beneficios como lo ha estado haciendo a favor de la población que tenga seleccionada a la fecha de publicación del presente decreto.

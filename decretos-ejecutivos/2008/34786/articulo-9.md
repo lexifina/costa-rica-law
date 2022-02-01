@@ -1,1 +1,0 @@
-Artículo 9º—Del monto de los beneficios: los montos de la transferencia serán definidos por el IMAS en coordinación con la Rectoría del Sector Social, para lo cual deberá realizar las modificaciones a su presupuesto y Plan Operativo Institucional, así como a cualquier otro documento de vigencia interna y vinculante.

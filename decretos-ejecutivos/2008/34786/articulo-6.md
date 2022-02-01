@@ -1,2 +1,0 @@
-Artículo 6 º- De los beneficiarios del Programa: La Población Objetivo del Programa son personas adolescentes, jóvenes y adultas en el Sistema Educativo de Secundaria, a partir de los once años, que sean pertenecientes a familias que viven en situación de pobreza o vulnerabilidad educativa que necesiten apoyo económico para mantenerse en el sistema educativo a nivel de secundaria.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40314 del 30 de marzo de 2017)
