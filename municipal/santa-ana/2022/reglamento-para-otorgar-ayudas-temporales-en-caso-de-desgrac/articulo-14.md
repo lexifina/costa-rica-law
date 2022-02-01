@@ -1,0 +1,1 @@
+Artículo 14.-El Proceso de Vulnerabilidad y Riesgo Social estará a cargo de la supervisión de la entrega efectiva de la ayuda para lo que podrá solicitar el apoyo y/o presencia del síndico(a) del Concejo de Distrito respectivo.

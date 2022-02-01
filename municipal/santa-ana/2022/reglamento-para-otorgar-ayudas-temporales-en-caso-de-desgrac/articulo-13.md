@@ -1,0 +1,1 @@
+Artículo 13.-Al terminar el plazo de la ayuda; la Comisión de Asuntos Sociales podrá revalorar los casos que, previamente cuenten con el estudio técnico del Proceso de Vulnerabilidad y Riesgo Social y recomendar mediante dictamen al Concejo, la extensión de la ayuda o rechazo de la misma.

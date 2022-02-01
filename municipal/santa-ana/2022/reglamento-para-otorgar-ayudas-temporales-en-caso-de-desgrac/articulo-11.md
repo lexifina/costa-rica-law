@@ -1,0 +1,1 @@
+Artículo 11.-La Comisión de Asuntos Sociales dará un tratamiento expedito a los casos remitidos por la Comisión Municipal de Emergencia; debido a las circunstancias de crisis referenciada, cantidad de personas impactadas por emergencia, afectación material y emocional, necesidad de tramite urgente, entre otras.

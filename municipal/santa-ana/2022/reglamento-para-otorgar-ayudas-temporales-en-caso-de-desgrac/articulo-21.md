@@ -1,0 +1,1 @@
+Artículo 21.-Es obligación de las personas beneficiarias de una ayuda, destinar la ayuda en solventar la necesidad para la que fue concedida. Al Proceso de Vulnerabilidad y Riesgo Social le corresponde la fiscalización. El desvío generará el cese inmediato de la ayuda.

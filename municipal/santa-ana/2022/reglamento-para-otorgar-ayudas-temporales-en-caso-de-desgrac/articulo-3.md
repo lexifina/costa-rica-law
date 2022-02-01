@@ -1,0 +1,1 @@
+Artículo 3º-En situaciones como emergencias, desastres, epidemias y similares, el Concejo Municipal, podrá acordar un incremento del presupuesto para el programa de ayudas temporales, previo estudio de factibilidad financiera.

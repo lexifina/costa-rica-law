@@ -1,0 +1,1 @@
+Artículo 6º-El Proceso de Vulnerabilidad y Riesgo Social, al recibir las solicitudes realizará los estudios, coordinaciones y trámites internos para calificar la solicitud y rendirá un informe para el Concejo Municipal, con una recomendación.

@@ -1,0 +1,1 @@
+Artículo 9º-Al recibir el informe, la Presidencia solicitará dictamen a la Comisión de Asuntos Sociales o bien, mediante acuerdo por mayoría calificada, el Concejo podrá dispensarlo de dicho trámite y ponerlo a votación.

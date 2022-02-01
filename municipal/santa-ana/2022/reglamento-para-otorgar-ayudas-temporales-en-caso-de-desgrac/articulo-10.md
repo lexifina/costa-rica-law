@@ -1,0 +1,1 @@
+Artículo 10.-La Municipalidad resolverá en 15 días hábiles, después de que la persona interesada aporte los documentos y/o información que el Proceso de Vulnerabilidad y Riesgo Social solicite. En casos muy calificados, este plazo podría prorrogarse por única vez a criterio de la Comisión de Asuntos Sociales.
