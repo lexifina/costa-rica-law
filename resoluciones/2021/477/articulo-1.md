@@ -1,0 +1,19 @@
+SERVICIO NACIONAL DE ADUANAS
+RES-DGA-477-2021.-Dirección General de Aduanas.- San José, a las dos y cuarenta horas del veinte de diciembre del año dos mil veintiuno.
+Considerando:
+1º-Que el artículo 2 del Código Aduanero Centroamericano, Resolución N° 223-2008(COMIECO-XLIX), publicado en el Alcance N° 51 a La Gaceta N° 49 del 11 de marzo de 2021, establece el ámbito de aplicación del Código y su reglamento en el territorio aduanero.
+2º-Que el artículo 30 de la Ley General de Aduanas establece en su literal h) como obligaciones de los auxiliares, el cumplir con lo que disponga esta dirección mediante resolución administrativa o convenio.
+3º-Que en el artículo 243 del Reglamento del Código Aduanero Uniforme Centroamericano, publicado en el Alcance N° 51 a La Gaceta N° 49 del jueves 11 de marzo del 2021, relativo a la "Información del manifiesto de carga", establece que el manifiesto de carga contendrá entre otros, según el tipo de tráfico, los datos siguientes:
+"e) Clase, contenido de los bultos y su peso bruto expresado en kilogramos; estado físico de las mercancías; indicación de si la mercancía viene a granel, especificando separadamente los lotes de una misma clase de mercancías, en cuyo caso se considerarán los lotes como un solo bulto. Asimismo, deberá indicarse si transporta mercancías peligrosas, tales como: explosivas, inflamables, corrosivas, contaminantes y radiactivas. El Servicio Aduanero podrá establecer otras mercancías cuya indicación sea obligatoria;
+h) Peso total de la carga, en kilogramos".
+4º-Que en el artículo 218 del Reglamento a la Ley General de Aduanas sobre los "Datos del manifiesto de carga" se indica, entre otros que, el manifiesto de carga, cualquiera que sea el tráfico, deberá contener la siguiente información: "i. Peso bruto o volumen de las mercancías, expresado en kilogramos".
+5º-Que mediante oficio DGA-1423-2020, de fecha 03 de diciembre de 2020, se le solicita a Sociedad Portuaria de Caldera el envío por medio electrónico de la información sobre el pesaje de las unidades contenedoras que salen de Puerto Caldera con el fin de cumplir con los controles necesarios por parte de la Autoridad Aduanera.
+6º-Que mediante oficio DGA-1453-2020, de fecha 11 de diciembre de 2020, se le solicita a APM TERMINALS MOIN, S. A. el envío por medio electrónico de la información sobre el pesaje de las unidades contenedoras que salen del puerto para fines de control aduanero.
+7º-Que le corresponde a la Dirección de Gestión Técnica preparar las directrices, normas, formatos y documentos que, asociados a los procesos aduaneros, estandaricen los criterios y unifiquen la aplicación de las normas técnicas vigentes, tendientes a facilitar el comercio. Por tanto,
+Con base en las potestades otorgadas en el Código Aduanero Centroamericano IV y su Reglamento, en la Ley General de Aduanas, Ley Nº 7557 del 20 de octubre de 1995 y sus reformas, el Reglamento a la Ley General de Aduanas, Decreto Nº 25270-H del 14 de junio de 1996 y sus reformas,
+EL DIRECTOR GENERAL DE ADUANAS,
+RESUELVE:
+1º-Que las autoridades portuarias deben enviar la información del pesaje de las unidades contenedoras que salen del puerto
+2º-Que mediante documento del "Mensaje para el envío de Ingresos y Salidas", específicamente en el Bloque YCGLIN ("LINEAS de Conocimientos de Embarque"), campo N° 9, nombre YCGLINPESB P, relativo al peso bruto, debe estar expresado, únicamente, en kilogramos, cualquier unidad de medida distinta debe hacerse la conversión a kilogramos, este peso se expresará incluyendo el embalaje asociado a cada línea. Para validar este control se ajustará el sistema informático para que no permita el registro de otra unidad de medida.
+La presente resolución rige 03 días hábiles posteriores a partir de su publicación.
+Comuníquese y publíquese en el Diario Oficial La Gaceta.
