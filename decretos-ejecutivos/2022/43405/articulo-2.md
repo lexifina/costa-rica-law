@@ -1,0 +1,1 @@
+Artículo 2º- Deróguese el Decreto Ejecutivo número 43267-H de fecha 02 de noviembre de 2021, publicado en el Alcance número 228 a La Gaceta número 214 de fecha 05 de noviembre 2021, a partir de la vigencia del presente decreto.
