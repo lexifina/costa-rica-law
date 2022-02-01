@@ -1,0 +1,7 @@
+Artículo 5º-Pautas de conducta relacionadas con el ejercicio de su puesto. Las personas sometidas a éste Código en el ejercicio de su puesto no podrán:
+a. Usar el poder oficial o la influencia que surja para conferir o procurar servicios privilegiados, nombramientos en la Administración Pública o cualquier otro beneficio ya sea personal, o para alguno de sus familiares hasta el cuarto grado de afinidad o consanguinidad, amigos o cualquier otra persona, obteniendo o no remuneración por ello.
+b. Emitir, modificar o derogar normativas en su propio beneficio.
+c. Poner a su servicio el personal subalterno, o aprovecharse de los servicios que presta la Institución en beneficio propio, de familiares o amigos.
+d. Participar directa o indirectamente en transacciones financieras o bursátiles aprovechándose de información confidencial o privilegiada de la cual tenga conocimiento en razón de su cargo, de manera tal que ello le confiera un privilegio o ventaja de cualquier carácter, para sí o para terceros.
+e. Solicitar o recibir de personas privadas directa o indirectamente, contribuciones, aportes en dinero o cualquier otra variedad de bienes o servicios para su propio beneficio, para otra persona trabajadora o para un tercero. No aplica esta prohibición cuando las colaboraciones se otorguen para actividades o instituciones de beneficencia.
+f. Aceptar remuneraciones de cualquier especie por discursos, conferencias o actividades a las que haya sido invitado a participar en razón de su cargo o en representación del Conglomerado Financiero BCR.

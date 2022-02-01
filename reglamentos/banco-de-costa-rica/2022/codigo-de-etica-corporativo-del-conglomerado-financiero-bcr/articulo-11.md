@@ -1,0 +1,2 @@
+Artículo 11.-Relación con autoridades
+Las personas sometidas a de este Código deben mantener con los representantes de las autoridades de Gobierno y entes reguladores, una actitud de respeto y colaboración en el marco de sus competencias. Los requerimientos de información u órdenes de ejecución deben ser registrados tan pronto se reciban y su tramitación debe ser de acuerdo al plazo estipulado por la autoridad que lo requiere.

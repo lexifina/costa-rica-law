@@ -1,0 +1,4 @@
+Artículo 3º-Ámbito de aplicación
+Los principios y normas contenidos en el presente Código de Ética son aplicables a los miembros de Juntas Directivas del Conglomerado Financiero BCR, Asambleas de Cuotistas, personas trabajadoras del Conglomerado Financiero BCR, asesores y auditores externos, miembros externos de Comités de Apoyo a la Junta Directiva y Administración y proveedores.
+Asimismo, se aplican a aquellas personas que representen al Conglomerado Financiero BCR en horas no hábiles y cuando por asuntos laborales se encuentren representando al Conglomerado Financiero BCR, dentro o fuera del país; así como para aquellos que laboran en el negocio de derivados financieros.
+Las personas a las que se aplica este Código deben actuar con afán de servicio, integridad, objetividad, rendición de cuentas, transparencia, honradez, racionalidad, liderazgo y deben comunicar toda situación que pueda dar lugar a un conflicto de interés.

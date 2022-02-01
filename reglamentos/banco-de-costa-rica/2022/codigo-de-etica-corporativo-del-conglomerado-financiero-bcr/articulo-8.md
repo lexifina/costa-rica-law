@@ -1,0 +1,9 @@
+TÍTULO III
+Control de la información y confidencialidad
+Artículo 8º-Deber general del secreto profesional
+Las personas sometidas a este Código deben guardar secreto profesional respecto a datos o información no pública o privilegiada que conozcan como consecuencia del ejercicio de su actividad en el Conglomerado Financiero BCR, ya sea que se refieran a clientes, personas trabajadoras, directivos o negocios del Conglomerado Financiero BCR.
+La violación del principio del secreto bancario y bursátil se debe considerar una falta grave a las obligaciones de toda persona trabajadora del Conglomerado Financiero BCR y, además; puede ser sancionada con penas de prisión, multas y el pago de daños y perjuicios. Asimismo, las excepciones al deber de confidencialidad están estrictamente reguladas y permitidas por la ley y deben ser las únicas excepciones admitidas por el Conglomerado Financiero BCR.
+Lo anterior se aplica sin perjuicio del derecho de información pública del que disfrutan todos los ciudadanos conforme al ordenamiento jurídico vigente y la obligación legal y moral de denunciar hechos ilícitos de carácter punible.
+En consecuencia:
+i. Todos los datos de carácter personal deben ser tratados de manera especialmente restrictiva, de manera que únicamente se deben recabar aquellos que sean necesarios y se debe aplicar a los mismos y a los archivos en que se registren, los criterios de seguridad, veracidad y exactitud que resulten de la normativa aplicable, procurando el máximo respeto a la intimidad.
+ii. Los datos e informaciones relativos a cuentas, posiciones financieras, estados financieros, negocios y en general, actividades de los clientes serán tratados con confidencialidad y únicamente se trasladarán a terceros ajenos al Conglomerado; salvo autorización expresa del cliente o de acuerdo con los procedimientos legalmente regulados.
