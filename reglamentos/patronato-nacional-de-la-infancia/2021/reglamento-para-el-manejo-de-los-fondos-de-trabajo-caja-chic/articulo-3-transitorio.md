@@ -1,0 +1,2 @@
+Tránsito III.—El Departamento Financiero Contable contará con un plazo de un mes a partir de la entrada en vigencia del presente Reglamento, para gestionar el cierre de las cuentas corrientes cuya finalidad era cubrir gastos de compras de alimentos para los albergues.
+Aprobado por Junta Directiva mediante acuerdo PANI-JD-OF-0246-2021, de la sesión ordinaria 2021-045, del martes 07 de diciembre del 2021, artículo 006 aparte 01).

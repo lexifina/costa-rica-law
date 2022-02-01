@@ -1,0 +1,20 @@
+Artículo 5º-Gastos impredecibles, indispensables, urgentes y de escasa cuantía. Son gastos para cubrir una necesidad de manera rápida, cuya solución no puede esperar a un procedimiento ordinario de contratación administrativa, por motivo de la atención expedita que requiere la atención de las personas menores de edad y demás accionar institucional. Estos gastos no podrán exceder el monto máximo autorizado por la Gerencia de Administración.
+Además, se contemplan los siguientes casos excepcionales:
+I. Cuando se haya tramitado la adquisición de un bien y servicio mediante decisión inicial ante el Departamento de Proveeduría, y se presenten las siguientes situaciones:
+a. El procedimiento de contratación administrativa se encuentra en alguna de las siguientes etapas: elaboración de cartel, recepción de ofertas, análisis de ofertas o dictado del acto final, fase recursiva y la unidad usuaria logra acreditar la imperiosa necesidad de contar con el bien o servicio de forma inmediata.
+b. El contratista incumpla con los plazos de entrega pactados mediante procedimientos de contratación administrativa, y la unidad usuaria logra acreditar la imperiosa necesidad de contar con el bien o servicio de forma inmediata.
+c. El contratista incumpla con las especificaciones técnicas pactadas mediante procedimientos de contratación administrativa, y la unidad usuaria logra acreditar la imperiosa necesidad de contar con el bien o servicio de forma inmediata.
+d. El bien o servicio, sea de uso continuo a nivel institucional, pero no se encuentre dentro de los catálogos del Departamento de Proveeduría.
+e. El Departamento de Proveeduría realice de forma consecutiva dos procedimientos de contratación administrativa para adquirir el bien o servicio solicitado por la unidad usuaria y los mismos se declaren infructuosos o desiertos.
+Para los anteriores supuestos se deberá solicitar una certificación ante el Departamento de Proveeduría, que acredite según sea el caso. Para el caso del punto e), se autorizará la contratación de bienes o servicios iguales a los que no se lograron adjudicar.
+II. Aval para exceder el monto máximo autorizado por la Gerencia de Administración.
+Para solicitar este aval la Presidencia Ejecutiva, Gerencia Técnica, Dirección Regional o Departamento técnico o administrativo, debe remitir oficio a la Gerencia de Administración con la respectiva justificación y documentación que respalde y motive la necesidad de exceder el monto máximo autorizado y el apartarse de los procedimientos ordinarios de contratación administrativa, dicho oficio debe estar suscrito por la Jefatura de la Dependencia solicitante, adicionalmente debe adjuntarse como mínimo 2 facturas proformas del bien o servicio que se necesita adquirir, en casos particulares por falta de oferentes o imperiosa necesidad, se podrá aportar 1 factura proforma, junto con las consultas que evidencian que los proveedores se encuentran al día con sus obligaciones sociales y tributarias, según el siguiente detalle:
+a. Caja Costarricense del Seguro Social.
+b. Instituto Mixto de Ayuda Social.
+c. Instituto Nacional de Aprendizaje
+d. Ministerio de Hacienda.
+e. FODESAF
+f. Impuesto a la persona jurídica (este último aplica si corresponde a una persona jurídica).
+g. Cualquier otro que la normativa vigente en el momento solicite.
+La cancelación de la factura que derive de un aval por exceder el monto máximo autorizado para el Fondo de Trabajo, deberá la Dependencia solicitante tramitarla mediante oficio suscrito por la jefatura, ante el Departamento Administración de Presupuesto, adjuntando el oficio con la respectiva autorización que otorgó la Gerencia de Administración, a efectos de que sea cancelada mediante transferencia con cargo al presupuesto del centro funcional respectivo.
+Cuando la compra corresponda a un activo fijo, la Dependencia solicitante debe adjuntar al trámite de pago por transferencia o liquidación, según corresponda, el comprobante de registro del activo emitido por el Departamento Financiero Contable.

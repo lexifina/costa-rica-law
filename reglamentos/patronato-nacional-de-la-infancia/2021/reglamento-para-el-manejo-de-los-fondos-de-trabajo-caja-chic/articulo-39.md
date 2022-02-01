@@ -1,0 +1,1 @@
+Artículo 39.—Arqueos de las Cajas Chicas Auxiliares. Las Cajas Chicas Auxiliares estarán sujetas a arqueos periódicos y sin previo aviso por parte del Director Regional, el Administrador del Fondo, la Auditoría Interna, el Departamento Financiero Contable y Auditorías Externas cuando corresponda, según la conveniencia institucional.

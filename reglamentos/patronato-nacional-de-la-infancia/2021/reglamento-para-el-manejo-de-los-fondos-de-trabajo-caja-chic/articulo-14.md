@@ -1,0 +1,1 @@
+Artículo 14.-Faltantes de dinero. Los faltantes de dinero determinados en los arqueos respectivos, serán cubiertos a más tardar dentro de los 5 días hábiles siguientes de conocido el hecho por el funcionario responsable. Los faltantes se depositarán en la cuenta corriente del Fondo.

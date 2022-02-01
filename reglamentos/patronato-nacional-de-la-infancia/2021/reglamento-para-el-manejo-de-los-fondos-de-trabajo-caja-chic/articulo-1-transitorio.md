@@ -1,0 +1,1 @@
+Tránsito I.—A partir del 01 de febrero de 2022, las compras de los alimentos se regirán por el presente Reglamento para el manejo de los Fondos de Trabajo, Caja Chica Central y Cajas Auxiliares del PANI, de acuerdo con lo estipulado en el Manual del presente Reglamento.

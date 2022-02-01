@@ -1,0 +1,1 @@
+Tránsito II.—Las Direcciones Regionales, Aldea Arthur Gough y el Departamento de Atención Inmediata contarán con un plazo de un mes, a partir de la entrada en vigencia del presente Reglamento, para gestionar ante la Auditoría Interna el cierre de los libros legales.

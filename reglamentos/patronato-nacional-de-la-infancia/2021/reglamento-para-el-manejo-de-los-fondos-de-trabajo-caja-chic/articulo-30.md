@@ -1,0 +1,1 @@
+Artículo 30.—Caja Chica Auxiliar y sus componentes. El Director Regional podrá asignar por escrito a sus dependencias adscritas, Cajas Chicas Auxiliares, cuya distribución total no podrá sobrepasar el setenta por ciento de la totalidad del Fondo. Las Cajas Chicas Auxiliares quedan sometidas a las disposiciones del presente reglamento.
