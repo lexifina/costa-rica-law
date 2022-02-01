@@ -1,0 +1,1 @@
+Artículo 2°-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución N° RES-DGH-032-2021, del 07 de octubre de 2021, publicada en La Gaceta N° 199 del 15 de octubre de 2021.
