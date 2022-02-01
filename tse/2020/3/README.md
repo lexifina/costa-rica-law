@@ -14,3 +14,4 @@ Prórroga de la fecha de vigencia de las cédulas de identidad vencidas e inicio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-18 | la propia norma |
+| 2 | 2022-02-01 | Decreto TSE 3 (2022-02-01) |
