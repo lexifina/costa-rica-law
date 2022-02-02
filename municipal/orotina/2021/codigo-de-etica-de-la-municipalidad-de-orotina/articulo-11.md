@@ -1,0 +1,1 @@
+Artículo 11.-La información que disponga el funcionario en razón de su cargo, se debe manejar de manera confidencial y ser utilizada exclusivamente para atender asuntos internos, con excepción de aquellos documentos que están tipificados como públicos.

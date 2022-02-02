@@ -1,0 +1,1 @@
+Artículo 4º-Las actuaciones contrarias a las disposiciones de este código son consideradas como faltas laborales, y su gravedad o persistencia se tratarán según lo establecido en el Reglamento Autónomo de Organización y Servicios de la Municipalidad de Orotina.

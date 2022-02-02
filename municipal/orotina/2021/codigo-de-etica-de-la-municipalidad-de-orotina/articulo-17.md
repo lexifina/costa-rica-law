@@ -1,0 +1,1 @@
+Artículo 17.-Los celulares se deben mantener en estado de vibración y en silencio, cuando se esté en reuniones o atendiendo a funcionarios o contribuyentes. Su uso será restringido a situaciones laborales o a situaciones personales urgentes e ineludibles.

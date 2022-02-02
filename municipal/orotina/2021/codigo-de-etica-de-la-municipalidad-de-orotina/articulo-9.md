@@ -1,0 +1,6 @@
+Artículo 9º-El Jerarca, titulares subordinados y demás funcionarios de la Municipalidad de Orotina, deberán abstenerse de:
+a) Utilizar su cargo oficial con propósitos privados o personales, y mantener relaciones y actos que impliquen un riesgo de corrupción o que puedan suscitar dudas razonables acerca de su objetividad e independencia.
+b) Aprovecharse indebidamente, de los servicios que presta la institución en beneficio propio, de familiares o amigos, directa o indirectamente.
+c) Participar directa o indirectamente en transacciones financieras, aprovechándose de información confidencial de la cual tengan conocimiento en razón de su cargo, de forma tal que ello les confiera una situación de privilegio de cualquier carácter, para sí, o para terceros, directa o indirectamente.
+d) Usar las instalaciones físicas, el equipo de oficina, vehículos o demás bienes públicos a que tengan acceso, para propósitos ajenos al fin para el que están destinados.
+e) Dirigir, administrar, patrocinar, representar o prestar servicios gratuitos o no, a personas que gestionen ante la Municipalidad el otorgamiento de licencias, autorizaciones, concesiones, permisos o cualquier derecho, o la obtención de beneficios o remuneraciones en calidad de proveedores o contratistas por parte del gobierno local.

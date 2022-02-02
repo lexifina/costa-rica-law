@@ -1,0 +1,1 @@
+Artículo 3º-El presente código se aplica al Jerarca, Titulares subordinados y demás funcionarios (servicios especiales, en propiedad, interinos, confianza y Jornales Ocasionales) de la Municipalidad de Orotina. Lo anterior sin perjuicio de otra normativa aplicable a los funcionarios de la institución.

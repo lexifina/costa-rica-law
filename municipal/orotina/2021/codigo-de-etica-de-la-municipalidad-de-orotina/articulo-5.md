@@ -1,0 +1,1 @@
+Artículo 5º-Se consideran valores institucionales los que se asumen para interiorizar y vivir, guiar la conducta y el quehacer cotidiano, cuyas acciones están dirigidas a la satisfacción de las necesidades e interés de los clientes (internos y externos) y el cumplimiento de la normativa existente.

@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Uso del celular y otro medio electrónico
+Artículo 16.-Se debe dar un uso razonable al tiempo laboral. El funcionario no se debe distraerse por el uso de celular en asuntos ajenos al trabajo. No se le permite el uso del internet, de las redes sociales, del correo electrónico institucional u otros instrumentos similares, para asuntos ajenos a sus funciones. La infracción de las anteriores disposiciones podrá considerarse abandono del trabajo o desviación del uso de recursos públicos, con las responsabilidades correspondiente según el debido proceso y las normas sancionatorias aplicables.
