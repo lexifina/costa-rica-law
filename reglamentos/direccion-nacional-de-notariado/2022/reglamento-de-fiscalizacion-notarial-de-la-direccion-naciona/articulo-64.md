@@ -1,0 +1,2 @@
+Capitulo II: Diligencias de verificación
+Artículo 64. Actos de verificación. Por medio de la verificación, la UFN realimrá de manera expedita una comprobación específica de cumplimiento de requisitos e impedimentos para ejercer la función notarial, así como la localización de oficinas notariales abiertas al público. Esta gestión podrá iniciar de oficio, a instancia de parte interesada, dependencias de la DNN u otras autoridades.

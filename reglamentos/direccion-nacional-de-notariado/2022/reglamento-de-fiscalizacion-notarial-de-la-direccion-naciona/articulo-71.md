@@ -1,0 +1,1 @@
+Artículo 71 Plazo para depósito definitivo. Cuando proceda el depósito definitivo de un tomo, y no se compruebe el cumplimiento oportuno de dicha obligación, la UFN le dará un plazo máximo al notario de cinco días hábiles para que entregue el tomo a la DNN; advirtiéndosele que igualmente deberá correr con los gastos por concepto de depósito.

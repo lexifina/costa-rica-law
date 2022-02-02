@@ -1,0 +1,2 @@
+Artículo 4. Jerarquía de normas. Los actos de comprobación que ejecute la UFN para efectos de ejercer el control y fiscalización de la función notarial, se regirán por los principios de la investigación preliminar, de conformidad con lo dispuesto primordialmente por Código Notarial, los LECSN , las Políticas de Fiscalización que emita el CSN y este reglamento, los pronunciamientos de la Sala Constitucional que resulten aplicables, y en lo no dispuesto, se regirá por las normas del procedimiento
+administrativo sumario y demás normas del acto administrativo reguladas por LGAP.

@@ -1,0 +1,1 @@
+Artículo 40. Informe. El informe final dará cuenta de todas las actuaciones anteriores, refiriéndose de manera sucinta a la situación actual del notario titular del tomo, incluyendo deberes funcionales; y primordialmente se referirá a los hechos relevantes objeto del estudio realizado.

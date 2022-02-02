@@ -1,0 +1,1 @@
+Artículo 32. Inicio de las diligencias. Los fiscales así como el personal de apoyo de la DNN se apersonarán ante las oficinas notariales en la hora y fecha estipulada, diligencia que podrá iniciarse con antelación de común acuerdo con el notario, o con posterioridad si así lo imponen las circunstancias, lo cual deberá informarse al notario.

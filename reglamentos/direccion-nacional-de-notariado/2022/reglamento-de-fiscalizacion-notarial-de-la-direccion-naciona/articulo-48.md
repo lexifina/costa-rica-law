@@ -1,0 +1,2 @@
+Artículo 48. Firma de actas y constancias. Al finalizar se dejará constancia de las diligencias realizadas con la firma electrónica del notario y del fiscal participantes. En caso de que el notario no firme el documento el mismo día de la diligencia, se dejará así constando en el acta, y se adjuntará el comprobante de habérsele remitido el mismo para tal efecto.
+Lo correspondiente a la comunicación del informe y acto final dispuesto para la inspección de oficinas, le resultarán aplicables a estos casos.

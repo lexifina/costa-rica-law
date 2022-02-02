@@ -1,0 +1,2 @@
+Capitulo II: Normas generales de procedimiento
+Artículo 12. Responsables de instrucción. La DNN designará los fiscales quienes serán los instructores responsables del impulso del acto fiscalizador, así como de velar por la conservación y custodia de los documentos que se incorporen a los expedientes asignados, vigilando que se encuentren legibles, agregados en orden cronológico y que se realice la respectiva foliación o numeración electrónica, según proceda.

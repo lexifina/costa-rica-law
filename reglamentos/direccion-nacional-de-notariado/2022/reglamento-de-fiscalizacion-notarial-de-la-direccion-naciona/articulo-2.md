@@ -1,0 +1,1 @@
+Artículo 2. Alcance. Las siguientes disposiciones administrativas son de orden interno, están dirigidas a las unidades operativas que realizan funciones sustantivas de control y fiscalización de los notarios públicos, dentro del marco de competencias establecidas por artículo el 23 incisos f), g) y h) del Código Notarial, Ley N 0 7764.

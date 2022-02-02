@@ -1,0 +1,2 @@
+Artículo 11. Fuentes de información. Para cumplir sus fines, la DNN por medio de la unidad encargada UFN, podrá visitar las oficinas notariales para efectos de inspección, verificación y notificaciones, e igualmente podrá requerir información
+respecto de sus actuaciones a los mismos notarios que originaron I os hechos, a las oficinas públicas que reciban, custodien, investiguen o tramiten los documentos públicos notariales de interés; así como de cualquier lugar del que se origine la noticia o reporte a partir del cual se inicia el acto de comprobación.

@@ -1,0 +1,1 @@
+Artículo 14. Plazos. En materia de términos y plazos para todas las actuaciones se sujetará a lo dispuesto en este reglamento, y en lo no dispuesto, por el CN y los Lineamientos, así como por la LGAP, en particular respecto de las reglas dispuestas para el procedimiento sumario. En cuanto la vía recursiva, prevalece lo estipulado al respecto en el Código Notarial.

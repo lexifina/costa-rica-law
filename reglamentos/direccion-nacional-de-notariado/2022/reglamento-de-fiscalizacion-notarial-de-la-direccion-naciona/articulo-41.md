@@ -1,0 +1,1 @@
+Articulo 41. Conclusión de las diligencias. Rendido el informe se dispondrá por acto final el archivo del procedimiento, sin perjuicio de que, como resultado de la inspección, resulte necesario el testimonio o remisión de piezas para efectos de denuncia, para lo cual se atenderá el procedimiento correspondiente.

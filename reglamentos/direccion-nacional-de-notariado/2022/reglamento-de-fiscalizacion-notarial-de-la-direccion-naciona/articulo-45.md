@@ -1,0 +1,2 @@
+Artículo 45. Aviso previo y señalamiento. Constatado el cumplimiento de las condiciones mínimas necesarias para disponer una inspección a distancia, se procederá a programar la cita con una antelación de cinco días hábiles, y se remitirá
+al notario dentro del mismo señalamiento, el vínculo de acceso, la hora y la fecha en la cual deberá ingresar a efectos de llevar a cabo la diligencia a través de los medios y plataforma de acceso será la que provea la DNN.

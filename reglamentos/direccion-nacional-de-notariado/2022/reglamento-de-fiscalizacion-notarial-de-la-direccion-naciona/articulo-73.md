@@ -1,0 +1,1 @@
+Artículo 73. Acta de recuperación. Al momento de recibirse un tomo de protocolo por medio de la UFN, se levantará un acta de recuperación en la que dejará constancia de la identidad de quien entrega el tomo, el estado en que se encuentra dicho documento, la cantidad de folios utilizados y/o en blanco, así como la fecha del último instrumento autorizado.

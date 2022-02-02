@@ -1,0 +1,2 @@
+Capítulo VII: Interposición de procesos judiciales y administrativos
+Artículo 49. Unidad responsable. Corresponde a la UFN interponer los procesos penales y disciplinarios judiciales, así como referir las gestiones para dar inicio con las causas administrativas en contra de los notarios públicos, que resulten consecuentes de las fiscalizaciones o de cualquier otro asunto que conozca la DNN con arreglo al ordenamiento.

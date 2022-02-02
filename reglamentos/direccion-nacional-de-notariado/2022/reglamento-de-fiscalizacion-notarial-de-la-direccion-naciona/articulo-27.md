@@ -1,0 +1,1 @@
+Artículo 27. Recursos contra el acto final. En materia de recursos, se estará a lo dispuesto en el Código Notarial. La UFN rechazará de plano cualquier gestión abiertamente impertinente, o que resulte improcedente en aplicación de los alcances del articulo 24 bis del CN.

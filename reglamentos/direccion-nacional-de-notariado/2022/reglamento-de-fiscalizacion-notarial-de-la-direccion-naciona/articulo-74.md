@@ -1,0 +1,1 @@
+Artículo 74. Depósito directo ante Archivo Notarial. En el supuesto de que el notario realice el depósito del tomo de protocolo directamente en el Archivo Notarial, cubriendo el notario los costos correspondientes, se dispondrá sin más trámite el archivo del procedimiento de recuperación, no obstante, deberá disponerse la fiscalización del tomo correspondiente.

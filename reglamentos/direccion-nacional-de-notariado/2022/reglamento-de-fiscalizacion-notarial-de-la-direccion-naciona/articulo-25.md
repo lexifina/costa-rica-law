@@ -1,0 +1,2 @@
+Artículo 25. Emisión del acto final. La UFN por delegación de la Dirección Ejecutiva, acogerá el informe rendido por el fiscal, así como la ejecución de las acciones allí recomendadas; de lo cual solo podrá separarse mediante resolución razonada.
+En todo acto final se ordenará al Registro de Notarios tomar nota de lo actuado, así como la subsanación de cualquier dato omiso o desactualizado que la UFN hubiere constatado en los registros que lleva esta institución, y finalmente, el archivo del expediente.

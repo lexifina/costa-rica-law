@@ -1,0 +1,1 @@
+Artículo 37. Informe y acto final. Se verificará lo dispuesto en este reglamento en cuanto a la conformación del expediente, informe y acto final de la fiscalización de oficio, sin perjuicio de las demás reglas que le resulten aplicables.

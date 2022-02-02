@@ -1,0 +1,2 @@
+Artículo 75. Tomos en custodia de autoridad judicial. Cuando un tomo sea recuperado y deba quedar a la orden de un despacho judicial, la UFN así lo advertirá al notario, e igualmente comunicará a la autoridad requirente, el destino que deba darse al tomo una vez finalizadas las pericias requeridas, con arreglo a las disposiciones del CN. En todo caso, si una autoridad judicial lo devuelve a la DNN, se devolverá al notario, o en su caso, remitirlo al Archivo Notarial, una vez fiscalizado
+el tomo si ello no se hubiera hecho.
