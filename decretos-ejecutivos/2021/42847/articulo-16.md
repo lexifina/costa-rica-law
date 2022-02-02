@@ -354,6 +354,8 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Gastroenterología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+Se reconoce como sinónimos de esta especialidad el siguiente término: Gastroenterología, Hepatología y Nutrición Pediátrica.
+(Así adicionado el párrafo anterior en sesión ordinaria N° 2022-02-02, celebrada el 02 de febrero del 2022)
 16.20.6. Genética Infantil.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
