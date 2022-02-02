@@ -1,0 +1,1 @@
+Artículo 3º-Los permisos otorgados por la municipalidad para ejercer las ventas en la feria de emprendedores y artesanos serán intransferibles, por cualquier título y serán ejercidas exclusivamente por el asignatario.

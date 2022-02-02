@@ -1,0 +1,1 @@
+Artículo 15.-Las solicitudes de permisos de ciudadanos que residan fuera del cantón de Quepos quedaran a la espera de la valoración municipal y a los espacios del campo ferial en cuyo caso se debe dar prioridad a los habitantes del Cantón de Quepos.

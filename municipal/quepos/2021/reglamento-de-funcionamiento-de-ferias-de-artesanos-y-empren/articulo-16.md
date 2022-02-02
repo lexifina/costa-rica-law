@@ -1,0 +1,1 @@
+Artículo 16.-La municipalidad llevara un registro de los permisos otorgados, así como un registro de solicitudes pendientes de resolución, en la oficina de Licencias Municipales las cuales se resolverán según el grado de antigüedad de dicha solicitud.
