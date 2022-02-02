@@ -1,0 +1,1 @@
+Artículo 4°-Alcance. Las disposiciones establecidas aplican a la Secretaría Técnica, al FONADE, a los Ejecutores y a los beneficiarios de los recursos provenientes del Fondo de Servicios no Financieros y de Desarrollo Empresarial, en sus diferentes modalidades.

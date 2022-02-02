@@ -1,0 +1,9 @@
+CAPÍTULO III
+De las modalidades para el uso de recursos
+del fondo de servicios no financieros
+y de desarrollo empresarial
+Artículo 5°-Modalidades. Los recursos del Fondo de Servicios no Financieros y de Desarrollo Empresarial, podrán ser empleados en las siguientes modalidades:
+1. Modalidad 1. Contraprestación de Servicios de Desarrollo Empresarial: modalidad mediante la cual se contrata a un tercero para que brinde una prestación de Servicios de Desarrollo Empresarial (SDE) en calidad de Ejecutor, para apoyo directo o indirecto a los beneficiarios de la Ley 8634, dentro de las actividades del objeto del presente lineamiento.
+2. Modalidad 2. Otorgamiento de recursos para un proyecto o programa específico: modalidad mediante la cual se contrata a un tercero para que desarrolle un proyecto en calidad de Ejecutor, para apoyo directo o indirecto a los beneficiarios de la Ley 8634, dentro de las actividades objeto del presente lineamiento. Bajo esta modalidad los fondos son otorgados a un tercero, en calidad de administrador, para que ejecute los recursos en los términos en los que fue autorizado el proyecto o programa. El ejecutor podrá solicitar el reembolso de recursos ejecutado o en caso de que haya recursos adelantados, los mantendrá en su custodia, mientras se ejecutan en cumplimiento del proyecto aprobado.
+3. Modalidad 3. Transferencias corrientes para el apoyo a sujetos con proyectos específicos: modalidad mediante la cual el FONADE o la Secretaría Técnica del SBD otorga beneficios patrimoniales mediante transferencia a sujetos privados, sin que exista contraprestación de bienes, servicios o derechos a favor del propio FONADE o la Secretaría Técnica del SBD.
+4. Modalidad 4. Esquemas análogos a Capital Semilla, mediante los cuales, se otorgan recursos a un beneficiario de ley SBD, canalizados a través de una Agencia Operadora de Capital Semilla, para la contratación de servicios específicos.

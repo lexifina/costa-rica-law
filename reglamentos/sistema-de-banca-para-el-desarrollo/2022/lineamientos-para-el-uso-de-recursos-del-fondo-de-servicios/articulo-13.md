@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De la modalidad 4
+Artículo 13.-De la modalidad 4. Esta modalidad podrá ser operada únicamente por Agencias Operadoras de Capital Semilla, en la cual se otorgan recursos a beneficiarios de Ley SBD para la contratación de Servicios Específicos. En lo aplicable, deberá alinearse a lo establecido en el ACUERDO AG-022-05-2021: "Lineamientos para el apoyo a Proyectos de Capital Semilla Y Lineamientos sobre las liquidaciones de gastos y adquisición de bienes y servicios con fondos de Capital Semilla no Reembolsables A todos las Agencias Operadoras Acreditadas por el SBD", así como sus modificaciones.

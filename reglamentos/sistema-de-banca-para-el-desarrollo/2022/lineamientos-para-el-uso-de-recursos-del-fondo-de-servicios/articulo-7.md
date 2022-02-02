@@ -1,0 +1,1 @@
+Artículo 7°-De la vigencia de la inscripción. La inscripción tendrá una vigencia de 4 años, plazo después del cual el Ejecutor deberá presentar nuevamente la solicitud de inscripción ante la Secretaría Técnica del SBD.

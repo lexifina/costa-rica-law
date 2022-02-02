@@ -1,0 +1,1 @@
+Artículo 19.-De los activos. Al finalizar el programa o proyecto, los activos que sean adquiridos en el marco del presente lineamiento serán de propiedad del beneficiario, el sujeto privado o el ejecutor, según corresponda.

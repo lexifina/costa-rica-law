@@ -1,0 +1,6 @@
+CAPÍTULO VI
+De la solicitud y aprobación para el uso
+de recursos en modalidades 1, 2 y 3
+Artículo 9.-De la Solicitud de recursos del Fondo de Servicios no Financieros y de Desarrollo Empresarial del FONADE. Una vez que los Ejecutores, bajo modalidades 1 y 2, hayan sido inscritos según lo establecido en el presente lineamiento, y durante la vigencia de esta inscripción, podrán solicitar recursos del Fondo de Servicios no Financieros y de Desarrollo Empresarial para ejecutar programas o proyectos. Esta solicitud podrá presentarse también de manera conjunta con la inscripción, de manera autónoma, o el marco de un Programa o Proyecto previamente aprobado por el Consejo Rector.
+Los sujetos privados que requieran acceder a recursos de Fondo de Servicios no Financieros y de Desarrollo Empresarial del FONADE, deberán presentar la solicitud directamente ante la Secretaría Técnica del SBD, para lo cual no requerirán inscribirse como Ejecutores.
+En cualquier caso, tanto el Consejo Rector como la Secretaría Técnica del SBD tendrán discrecionalidad de resolver las solicitudes de recursos individuales y de asignarlos de acuerdo con la disponibilidad presupuestaria, así como criterios de oportunidad, razonabilidad y conveniencia; previa valoración de la Secretaría Técnica.
