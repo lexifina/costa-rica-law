@@ -1,0 +1,1 @@
+Artículo 9º-Pluralidad de Estados competentes. En el caso de que, además de Costa Rica, haya uno o más Estados de Lanzamiento competentes para realizar una inscripción, se obrará conforme a lo establecido en el artículo segundo punto 2 del Convenio Sobre el Registro de Objetos Lanzados al Espacio Ultraterrestre del 12 de noviembre de 1974.

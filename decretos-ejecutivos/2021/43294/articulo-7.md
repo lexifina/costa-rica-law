@@ -1,0 +1,2 @@
+Artículo 7º-Autoridad certificante de los datos. Los datos contenidos en el formulario de inscripción deberán ser acreditados oficialmente mediante un informe técnico adjunto expedido por la Agencia Especial Costarricense conforme al artículo 4 inciso n) de la Ley Creación de la Agencia Espacial Costarricense.
+Las empresas e instituciones que estén en posesión de los datos a que se refiere el artículo anterior estarán obligados a comunicarlos a dicha entidad, la cual podrá, a su vez, recabar cuanta información complementaria estime necesaria para llevar a cabo su informe.
