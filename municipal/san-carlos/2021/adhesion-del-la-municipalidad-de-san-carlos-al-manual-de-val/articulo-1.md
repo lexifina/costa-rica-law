@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE SAN CARLOS
+La Administración Tributaria de la Municipalidad de San Carlos; de conformidad con lo que disponen los artículos 3 y 12 de la Ley de Impuesto sobre Bienes Inmuebles Nº7509 y su reformas, la Sentencia 1073-2010 del Tribunal Contencioso Administrativo, Sección III y la Resolución de la Sala Constitucional Nº2011-003075 del 9 de marzo de 2011, en aras de dar cumplimiento a su competencia, procede a publicar su adhesión al Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el Alcance Digital Nº 213 al Diario Oficial La Gaceta N° 202 de miércoles 20 de octubre 2021, documento procedente del Órgano de Normalización Técnica, Dirección General de Tributación, Ministerio de Hacienda.
+Quesada 05 de noviembre de 2021
