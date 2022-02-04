@@ -1,0 +1,1 @@
+Artículo 34.—Propiedad de las cuentas. Las cuentas autorizadas en las entidades financieras estarán a nombre de la Municipalidad de Escazú, quien tendrá el control total de estos fondos y responderá por el uso adecuado de los mismos conforme el motivo por el que fueran autorizadas.

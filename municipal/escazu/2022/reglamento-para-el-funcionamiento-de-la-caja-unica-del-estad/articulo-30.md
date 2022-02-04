@@ -1,0 +1,1 @@
+Artículo 30.-Fecha de traslado de fondos. La Municipalidad de Escazú deberá trasladar todos los recursos provenientes del Gobierno Central a la Caja Única según el cronograma de trabajo coordinado con la Tesorería Nacional.

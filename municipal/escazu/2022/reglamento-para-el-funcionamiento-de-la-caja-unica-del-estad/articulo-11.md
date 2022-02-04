@@ -1,0 +1,3 @@
+Artículo 11.—Tipos de Saldo. Las CCU mantendrán dos tipos de saldos:
+a)Saldo contable: Este saldo especifica el importe total depositado en la CCU. Equivale al monto registradopor la Contabilidad Nacional como Pasivo (cuenta por pagar a la entidad participante), así como al montoregistrado por la propia Municipalidad de Escazú como Activo en sus registros contables.
+b)Saldo disponible: Este saldo especifica el saldo a la vista que tiene la Municipalidad de Escazú. Este saldoestará en función de la programación financiera realizada por la propia entidad participante, así como lospagos efectivamente realizados durante el período en cuestión y equivale al límite de gasto en determinadomomento, independientemente del monto especificado en el saldo contable de la CCU.

@@ -1,0 +1,3 @@
+CAPÍTULO X
+Incorporación de recursos a la caja única
+Artículo 29.—Cierre de cuentas existentes en entidades financieras. La Municipalidad de Escazú deberá gestionar el cierre de todas sus cuentas corrientes o de ahorro de los fondos provenientes del Gobierno Central. Los saldos existentes al momento del cierre deberán ser trasladados a la Caja Única debiendo dejarse constancia precisa de la razón del traslado. Será responsabilidad de la Municipalidad de Escazú coordinar todas estas acciones con suficiente antelación ante la respectiva entidad financiera, con el objetivo de hacer los traslados de fondos según se haya coordinado con la Tesorería Nacional.

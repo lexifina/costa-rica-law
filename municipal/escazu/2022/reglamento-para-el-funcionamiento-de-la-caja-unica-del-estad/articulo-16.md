@@ -1,0 +1,1 @@
+Artículo 16.—Contingencia. Para casos contingentes en los que la Municipalidad de Escazú no cuente con acceso al Sistema de Caja Única desde sus instalaciones, la Tesorería Nacional en coordinación con el Banco Central mantendrá operando un Centro Alterno de Operación, al cual la Municipalidad de Escazú tendrá acceso y podrá realizar su operativa normal.

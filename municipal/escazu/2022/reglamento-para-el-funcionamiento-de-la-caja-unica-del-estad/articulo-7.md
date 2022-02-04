@@ -1,0 +1,1 @@
+Artículo 7°—Las Cuentas de Caja Única. Para la administración clara y transparente de los fondos; la Tesorería Nacional definirá mediante resolución las normas de procedimiento para el funcionamiento y operación de las Cuentas de Caja Única (CCU). Mediante estas cuentas se administrarán contablemente las disponibilidades financieras de la Municipalidad de Escazú.

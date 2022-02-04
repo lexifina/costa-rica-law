@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la estrategia para la implementación
+Artículo 4°—Proceso para la Implementación del Principio de Caja Única. A efecto de llevar a cabo la implementación eficaz y eficiente del principio de Caja Única se desarrollará un proceso gradual y ordenado bajo a coordinación de la Tesorería Nacional en su papel de Ente Rector del Subsistema de tesorería. Para la definición de las etapas del proceso y de las instituciones que se incorporarán en cada una de ellas se tomará en consideración los requerimientos de sistemas de información, equipo, capacitación y demás aspectos que resulten necesarios, tanto para el Ente Rector como para la Municipalidad de Escazú.

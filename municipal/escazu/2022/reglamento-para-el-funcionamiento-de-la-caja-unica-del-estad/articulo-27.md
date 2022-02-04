@@ -1,0 +1,1 @@
+Artículo 27.—Presentación anual. La Municipalidad de Escazú deberá presentar ante la Tesorería Nacional su programación financiera anual, la cual abarcará el periodo del 1 de enero al 31 de diciembre del año en cuestión. Esta información se enviará por los medios que defina la Tesorería Nacional.

@@ -1,0 +1,1 @@
+Artículo 39.—Cierre de cuentas no autorizadas. La Tesorería Nacional podrá ordenar a la Municipalidad de Escazú el cierre de una cuenta que no ha sido autorizada por ésta, o bien que no opere de acuerdo con lo establecido en el presente Reglamento.

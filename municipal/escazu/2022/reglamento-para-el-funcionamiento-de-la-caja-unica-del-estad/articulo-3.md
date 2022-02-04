@@ -1,0 +1,16 @@
+CAPÍTULO II
+Definiciones
+Artículo 3°—Definiciones. Para los fines del presente Reglamento, se tendrán las siguientes definiciones:
+a)CCU (Cuenta de Caja Única): Cuentas de depósito mantenidas por la Municipalidad de Escazú del Sistema de Caja Única en la Tesorería Nacional del Ministerio de Hacienda, cuyo objetivo es contabilizar los saldos y movimientos de fondos de la entidad propietaria.
+b)Cliente: Persona física o jurídica que recibe los servicios y/o productos que brinda la Municipalidad de Escazú.
+c)Cuenta Cliente (CC) o Cuenta IBAN: Domicilio financiero del cliente, representado por una estructura estandarizada que identifica el número de la cuenta de fondos a la vista en cualquier entidad financiera. Todas las cuentas corrientes, de ahorros y en general cuentas de saldos a la vista, tienen un número de Cuenta Cliente o Cuenta IBAN asociada.
+d)Entidades Financieras: Bancos comerciales, Banco Popular y de Desarrollo Comunal, empresas financieras no bancarias, Mutuales, Cooperativas de Ahorro y Crédito, Uniones de Cooperativas de Ahorro y Crédito y otras entidades financieras creadas por leyes especiales, que pueden participar en la prestación de servicios de pago o de recaudación de fondos públicos por medio del SINPE.
+e)Horario Bancario: Período de tiempo ordinario en el cual opera el Sistema de Pagos del Banco Central, comprendido entre las 8:00 a. m. y las 5:00 p. m. de un mismo día hábil, pero en el caso de Tesorería Nacional los pagos se deben realizar antes de las 3:30 p. m., porque el sistema ya está parametrizado y no permite pagos posteriores.
+f)Municipalidad de Escazú: Ente público no estatal, que recibe recursos públicos por concepto de transferencias por parte de la Administración Central, dichos recursos públicos se encuentran dentro del Alcance de la Caja Única del Estado.
+REGLAMENTOS
+g)Área técnica: Dependencia municipal responsable de tramitar su proceso específico en relación con el funcionamiento de la Caja Única del Estado.
+h)Reglamento del Sistema de Pagos: Reglamento emitido por el Banco Central de Costa Rica, el cual define los lineamientos generales del Sistema de Pagos y las bases sobre las cuales operan los diversos servicios el SINPE.
+i)Proveedor: Persona física o jurídica que mantiene una relación contractual con la Municipalidad de Escazú, mediante la cual esta persona se compromete a brindar un servicio o entregar un producto, a cambio de un importe determinado.
+j)SINPE (Sistema Interbancario de Negociación y Pagos Electrónicos): Plataforma tecnológica desarrollada por el Banco Central de Costa Rica para facilitar la prestación de los servicios del Sistema de Pagos.
+k)Sistema de Caja Única: Plataforma tecnológica desarrollada por el Ministerio de Hacienda y el Banco Central de Costa Rica, para la administración de la Cuenta Única y facilitar a la Municipalidad de Escazú la prestación de los servicios financieros de pago y cobro.
+I)Sistema de Pagos: Mecanismo mediante el cual se posibilitan las operativas de pago interbancario en el país. Está compuesto por las diversas entidades financieras, el Banco Central de Costa Rica, las leyes, reglamentos y normativas que definen los modelos de operación, así como las herramientas tecnológicas disponibles.

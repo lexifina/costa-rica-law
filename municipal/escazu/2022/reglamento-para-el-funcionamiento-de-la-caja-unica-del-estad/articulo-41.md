@@ -1,0 +1,1 @@
+Artículo 41.—Cierre de cuentas sin movimientos. La Tesorería Nacional podrá ordenar a la Municipalidad de Escazú el cierre de aquellas cuentas que no hayan tenido movimientos durante 2 años a partir de la aprobación del presente reglamento.

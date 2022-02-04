@@ -1,0 +1,1 @@
+Artículo 32.—Formalización de traslado de fondos. La Municipalidad de Escazú deberá notificar formalmente a la Tesorería Nacional la fecha oficial de su incorporación a la Caja Única, así como el monto inicial depositado.

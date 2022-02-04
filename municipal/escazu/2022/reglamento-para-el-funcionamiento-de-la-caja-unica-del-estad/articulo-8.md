@@ -1,0 +1,1 @@
+Artículo 8°—Naturaleza contable de las cuentas. Los saldos existentes en las CCU pertenecerán a la Municipalidad de Escazú. La Contabilidad Nacional deberá clasificar estos importes como pasivos; en la contabilidad patrimonial del Gobierno Central.

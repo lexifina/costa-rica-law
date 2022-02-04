@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE ESCAZÚ
+Le comunico el acuerdo adoptado por el Concejo Municipal de Escazú en la sesión ordinaria N° 088, acta N° 107 del 03 de enero del 2022, que indica lo siguiente:
+Acuerdo AC-007-2022 "Se acuerda: con fundamento en las disposiciones de los artículos 11, 169 y 170 de la Constitución Política; 11, 13, 16, 121 y 136 inciso e) de la Ley General de la Administración Pública; 2, 3, 4 y 13 inciso d), y 43 del Código Municipal; los oficios COR-AL-2281-2021 de la Alcaldía Municipal, COR-GHA-384-2021 de la Gerencia Hacendaria y COR-AJ-916-2021 del Subproceso Asuntos Jurídicos; y en atención a la motivación contenida en el Punto Quinto del Dictamen C-AJ-44-21-BIS de la Comisión de Asuntos Jurídicos la cual hace suya este Concejo y la toma como fundamento para motivar este acuerdo se dispone: Primero: acoger el visto bueno legal al texto del "Reglamento para el Funcionamiento de la Caja Única del Estado de la Municipalidad de Escazú", otorgado mediante oficio COR-AJ-916-2021 suscrito por el Lic. Carlos Herrera Fuentes del Subproceso Asuntos Jurídicos. Segundo: aprobar el texto del "Reglamento para el Funcionamiento de la Caja Única del Estado de la Municipalidad de Escazú". Tercero: autorizar a la Administración Municipal a su publicación en el Diario Oficial La Gaceta.
+REGLAMENTO PARA EL FUNCIONAMIENTO
+DE LA CAJA ÚNICA DEL ESTADO
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1°-Objeto. El presente Reglamento regula la organización y el funcionamiento de los recursos públicos producto de transferencias provenientes del Gobierno Central o de los presupuestos de la República, para el cumplimiento de los objetivos y las metas institucionales establecidos para cada ejercicio económico administrado por la Municipalidad de Escazú.
