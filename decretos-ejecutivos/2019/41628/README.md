@@ -14,3 +14,4 @@ Oficialización de la definición de caso sospechoso y caso de paciente confirma
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-13 | la propia norma |
+| 2 | 2022-02-04 | Decreto Ejecutivo 43503 (2022-02-04) |
