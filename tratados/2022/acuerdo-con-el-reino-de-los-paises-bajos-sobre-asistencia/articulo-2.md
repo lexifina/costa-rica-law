@@ -1,0 +1,8 @@
+CAPÍTULO II
+Artículo 2
+Alcance del Acuerdo
+1.Las Partes Contratantes se prestarán asistencia administrativa mutua en virtud de los términos establecidos en este Acuerdo, a través de sus Administraciones Aduaneras, para la correcta aplicación de la legislación aduanera y para prevenir, investigar y combatir las infracciones aduaneras, y para garantizarla seguridad de la cadena logística del comercio internacional.
+2.Toda asistencia prestada por cada Parte Contratante en virtud de este Acuerdo, lo será de acuerdo con sus disposiciones legales y administrativas y dentro de los límites de la competencia de sus administraciones aduaneras y de los recursos disponibles.
+3.Este Acuerdo será sin perjuicio de las obligaciones del Reino de los Países Bajos en virtud de la normativa de la Unión Europea relativa a sus obligaciones presentes y futuras como Estado Miembro de la Unión Europea y de cualquier normativa adoptada en ejecución de esas obligaciones, así como también sin perjuicio de sus obligaciones presentes y futuras resultantes de acuerdos internacionales entre los Estados Miembros de la Unión Europea.
+4.Este Acuerdo cubrirá la asistencia administrativa mutua entre las Partes Contratantes y no pretende tener ningún impacto sobre los acuerdos de asistencia jurídica mutua entre ellas. Si otras autoridades de la Parte Requerida deben proporcionar asistencia mutua, la Administración Requerida indicará las autoridades que correspondan y, si se conoce, el acuerdo o convenio que fuera aplicable.
+5.Las disposiciones de este Acuerdo no darán derecho a ninguna persona para que impida la ejecución de una petición de asistencia.
