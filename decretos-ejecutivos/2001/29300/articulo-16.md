@@ -1,1 +1,0 @@
-Artículo 16.—Concesión de explotación. El área máxima permisible otorgable para concesiones de explotación minera, será de 10 kilómetros cuadrados, con las características establecidas en el artículo 29 del Código de Minería.

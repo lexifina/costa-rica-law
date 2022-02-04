@@ -1,1 +1,0 @@
-Artículo 52.—De las oposiciones a la solicitud de ampliación de área. Serán tramitadas las oposiciones que se presenten de conformidad con los artículos 77 de y 78 del Código de Minería. En caso de presentarse oposiciones a la solicitud de ampliación de área, las mismas serán tramitadas de conformidad con el procedimiento incidental señalado en el Código Procesal Civil.

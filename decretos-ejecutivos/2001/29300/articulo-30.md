@@ -1,1 +1,0 @@
-Artículo 30.—Formalización de la solicitud de permiso de exploración o concesión de explotación. Formalizada la solicitud ante el RNM, se asignará un número de expediente, habiendo corroborado que se realizó el trámite indicado en el artículo anterior y el cumplimiento de los demás requisitos contenidos en el Código de Minería y en el presente Reglamento.

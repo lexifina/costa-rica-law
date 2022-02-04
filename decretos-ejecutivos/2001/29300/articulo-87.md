@@ -1,2 +1,0 @@
-Artículo 87.—Informe sobre cambio de acciones. Cuando el permisionario o concesionario sea persona jurídica, deberá cada seis meses presentar al expediente certificación notarial o registral de personería de la sociedad y de sus representantes. Asimismo deberá informar al RNM de cualquier cambio de acciones de la sociedad o de representantes.
-El incumplimiento a lo anterior, será causal de cancelación de conformidad con los artículos 62 ó 63 del Código de Minería, según corresponda.

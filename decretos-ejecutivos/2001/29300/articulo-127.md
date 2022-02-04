@@ -1,2 +1,0 @@
-Artículo 127.—Resolución de la solicitud de prórroga. La Dirección de Geología y Minas remitirá al Poder Ejecutivo su recomendación sobre el otorgamiento de la prórroga máximo en quince días después de solicitada, de estar completa. En caso que se otorgue la misma, en la resolución que la autorice, se indicará las condiciones técnicas que deberá acatar el ente.
-Además la DGM comunicará a la SETENA en un plazo de tres días la resolución que otorgue o deniegue la prórroga.

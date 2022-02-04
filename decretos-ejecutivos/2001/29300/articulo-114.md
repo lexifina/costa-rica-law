@@ -1,6 +1,0 @@
-Artículo 114.—De los planos topográficos. Toda solicitud de autorización deberá presentar un plano topográfico que contenga:
-a. En caso de canteras, cuando se pretende explotar la totalidad de una finca se aportará plano original o copia certificada por el Catastro Nacional del plano catastrado de la finca. Si es sólo parte del total de la finca, se debe confeccionar un plano topográfico del área de interés, con curvas de nivel cada metro, aportando también la ubicación de esta área dentro del plano catastrado que la contiene.
-b. En caso de no existir plano catastrado se procederá a la confección de un plano basado en el levantamiento topográfico del área.
-c. En caso de explotación en cauce de dominio público, se debe confeccionar y presentar un plano topográfico del área de interés.
-d. En todos los planos se debe indicar el tipo de acceso (público o privado), en caso de ser privado se debe aportar permiso del propietario de la finca por donde se va ha accesar, así como certificación de propiedad emitida por el Registro Público o notarial y copia del plano catastrado de la finca.
-e. Todo plano topográfico debe contener al menos, derrotero, ubicación cartográfica y geográfica, grado de precisión, área, firma del topógrafo responsable y demás anotaciones que considere necesarias.

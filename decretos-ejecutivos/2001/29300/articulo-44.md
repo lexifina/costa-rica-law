@@ -1,1 +1,0 @@
-Artículo 44.—Trámite a la solicitud de prórroga del plazo de vigencia. Cumplidos los requisitos, la DGM analizará los mismos y en un plazo no mayor de treinta días a partir del cumplimiento de los requisitos de la gestión de prórroga, dictará la recomendación dirigida al Poder Ejecutivo.

@@ -1,1 +1,0 @@
-Artículo 61.—Avalúo del inmueble. Una vez concluido el trámite anterior la DGM solicitará a la Administración Tributaria la realización del avalúo correspondiente al área objeto de la constitución de la servidumbre. En caso necesario solicitará los servicios de un perito al Colegio Profesional respectivo, cuyos honorarios serán cubiertos por el interesado.

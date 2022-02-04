@@ -1,1 +1,0 @@
-Artículo 117.—Consulta al departamento de aguas del MINAE. En caso que el área solicitada se ubique en un cauce de dominio público, la DGM remitirá en consulta la misma al Departamento de Aguas del MINAE, el que dentro de un plazo máximo de quince días, remitirá a la DGM su criterio.

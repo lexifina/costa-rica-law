@@ -1,1 +1,0 @@
-Artículo 108.—Violación artículo 9 del Código de Minería. Los funcionarios que violentaren lo dispuesto en el artículo 9 del Código, se harán acreedores a las sanciones establecidas en la legislación, además la DGM archivará la solicitud liberando el área correspondiente.

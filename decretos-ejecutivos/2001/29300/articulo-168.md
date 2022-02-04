@@ -1,1 +1,0 @@
-Artículo 168.—Sanción. En caso que no se presente el informe de labores indicado o su anexo, no se otorgará ninguna autorización más al órgano del Estado que contrate con la empresa incumpliente. Además se presentará denuncia contra el geólogo o ingeniero en minas responsable, ante el Colegio de Geólogos o de Ingenieros, según corresponda.

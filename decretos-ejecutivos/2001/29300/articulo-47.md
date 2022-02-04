@@ -1,7 +1,0 @@
-Artículo 47.—Requisitos para la ampliación de área. La solicitud de ampliación del área, debe presentarse ante el RNM e incorporarse al expediente administrativo, con todos los requisitos, caso contrario no se admitirá a tramite. La solicitud debe constar de original y dos copias y debe contener:
-a) Solicitud por escrito, debidamente firmada por el titular, o su representante legal y autenticada por un abogado.
-b) Resolución de aprobación emitida por la SETENA del Estudio de Impacto Ambiental del área solicitada para ampliación y copia del estudio de impacto ambiental aprobado por la SETENA.
-c) Justificación técnica.
-d) Croquis o plano topográfico según sea el caso.
-e) Adendum al proyecto técnico, describiendo las labores a realizar en el área que se pretende ampliar, con detalle de maquinaria, presupuesto disponible. El adendum debe contener lo requerido en el artículo 27 para el caso de exploración, artículo 28 para el caso de concesión de explotación, artículo 29 para el caso de concesión de explotación en cauces de dominio público, y artículo 31 en los casos de concesión de explotación artesanal. Además debe justificar la razón técnico – económica de la solicitud de ampliación.
-f) Certificación del Ministerio de Agricultura y Ganadería indicando que la actividad propuesta en la ampliación de área, no permite que el suelo pierda la capacidad productiva de conformidad con el artículo 66 de la Ley 7779. ( Ley de Uso, Manejo y Conservación de Suelos.)

@@ -1,1 +1,0 @@
-Transitorio II.—Para los permisos y concesiones ya otorgados la DGM a través del RNM, comunicará a los titulares y concederá un plazo de hasta tres meses, para que manifiesten su conformidad o no de ser cubiertos por la nueva reglamentación.

@@ -1,1 +1,0 @@
-Artículo 148.—Del informe de labores. Inspección. La Dirección de Geología y Minas revisará el informe presentado y en un plazo de 15 días, a partir de su presentación deberán realizar una inspección a efecto de verificar la información suministrada.

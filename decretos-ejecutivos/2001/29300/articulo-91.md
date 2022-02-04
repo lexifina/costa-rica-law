@@ -1,3 +1,0 @@
-Artículo 91.—Señalamiento de lugar para atender notificaciones. Es obligación de todo permisionario y concesionario, señalar dentro del expediente administrativo lugar para atender notificaciones dentro del perímetro del primer circuito judicial de San José.
-Si no hubiere domicilio señalado, las resoluciones se tendrán notificadas por el transcurso de cuarenta y ocho (48) horas desde la fecha de su expedición, de lo que se dejará constancia en la misma.
-Si en el domicilio señalado no recibieren la notificación o bien no se encuentre persona alguna que la reciba, el notificador de la DGM levantará el acta correspondiente consignado la situación, en tal caso la resolución se tendrá por notificada a partir del día siguiente del levantamiento del acta.

@@ -1,1 +1,0 @@
-Artículo 98.—Del análisis de muestras por la D.G.M. El solicitante cubrirá los costos de análisis de las muestras colectadas por la DGM, para lo cual esa Dirección dentro del mes siguiente a la entrada en vigencia del presente reglamento, realizará los trámites ante la Proveeduría del MINAE a fin de formar una lista de laboratorios proveedores de este servicios.

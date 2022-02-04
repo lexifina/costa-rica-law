@@ -1,1 +1,0 @@
-Artículo 36.—Trámite de las oposiciones. En caso de presentarse oposición la misma debe ser resuelta de acuerdo con lo establecido en los artículos 77 al 79 del Código de Minería, antes de la emisión de la recomendación de resolución al Ministro. Las oposiciones se tramitaran bajo el procedimiento que señala el Código Procesal Civil para los incidentes.

@@ -1,1 +1,0 @@
-Artículo 149.—Sanción. Por no presentación de informe de labores. La no presentación en tiempo del informe semestral, causará la cancelación de la autorización por parte de la Dirección de Geología y Minas observando el debido proceso. Además se trasladará denuncia contra el geólogo o ingeniero en minas responsable al Colegio de Geólogos o de Ingenieros según corresponda.

@@ -1,1 +1,0 @@
-Artículo 22.—Potestad de la DGM de recomendar plazo de vigencia. En todo caso la D.G.M. podrá recomendar al Ministro el plazo de vigencia de un permiso de exploración o de una concesión de explotación, siempre que no exceda de los límites máximos, anteriormente establecidos, con base en las labores propuestas, el financiamiento aportado y las reservas de la fuente de materiales.
