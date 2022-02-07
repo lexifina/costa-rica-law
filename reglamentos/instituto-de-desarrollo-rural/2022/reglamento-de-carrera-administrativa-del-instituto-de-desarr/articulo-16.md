@@ -1,0 +1,1 @@
+Artículo 16.-Agotamiento de la vía administrativa. La decisión adoptada por la Presidencia Ejecutiva en caso de inconformidad, o la resolución de la reconsideración interpuesta por el interesado dará por agotada la vía administrativa.

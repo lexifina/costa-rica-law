@@ -1,0 +1,1 @@
+Artículo 19.-Nombramiento de la Coordinación y la Secretaría. Una vez establecida la conformación de la Comisión, la Presidencia Ejecutiva nombrará dentro de los miembros propietarios a una persona que ocupe la Coordinación y otra para la Secretaría, quienes durarán dos años en sus funciones, pudiendo ser reelectos, de acuerdo al artículo 18 de este reglamento.

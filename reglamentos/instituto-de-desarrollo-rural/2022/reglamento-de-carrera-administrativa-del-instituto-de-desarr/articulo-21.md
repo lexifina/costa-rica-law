@@ -1,0 +1,3 @@
+Artículo 21.-Obligaciones de asistir a reuniones. Es obligación de los miembros de la Comisión de Carrera Administrativa asistir a las reuniones, salvo ausencia justificada.
+Tres ausencias consecutivas injustificadas a las sesiones de la Comisión se considerarán suficientes para que la Comisión solicite la remoción del representante y solicitar a UNEINDER o a la Administración, su sustitución. En el caso de los representantes de la Administración Superior, esta deberá valorar la posibilidad de iniciar un Procedimiento Administrativo ante dichas ausencias injustificadas.
+La Comisión se reunirá cada vez que tenga asuntos que conocer.

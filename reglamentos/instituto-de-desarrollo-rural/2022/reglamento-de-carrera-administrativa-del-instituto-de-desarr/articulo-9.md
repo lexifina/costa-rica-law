@@ -1,0 +1,1 @@
+Artículo 9.-Del proceso de participación. Este responderá a la normativa que regule el procedimiento de reclutamiento y selección institucional, donde se establecen las diferentes actividades a desarrollar, para el cumplimiento de la norma en cuanto a dicha temática, y que estará a cargo de Capital Humano.
