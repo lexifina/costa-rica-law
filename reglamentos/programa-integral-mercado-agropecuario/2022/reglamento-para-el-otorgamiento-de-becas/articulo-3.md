@@ -1,0 +1,1 @@
+Artículo 3º-De las políticas: El Proceso de Recursos Humanos y la Comisión de Desarrollo de Personal, son responsables de proponer las políticas y objetivos sobre entrenamientos y capacitación del PIMA a la Gerencia General, quien lo remitirá al Consejo Directivo para su correspondiente aprobación.

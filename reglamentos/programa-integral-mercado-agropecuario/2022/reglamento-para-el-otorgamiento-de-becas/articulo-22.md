@@ -1,0 +1,1 @@
+Artículo 22.-Incumplimiento: El incumplimiento de un contrato de beca o beneficio, será reportado por el Proceso de Recursos Humanos al departamento o jefe que corresponda y a la Unidad de Asesoría Legal, para que determine las acciones a seguir. Será necesario un dictamen previo de la Comisión.

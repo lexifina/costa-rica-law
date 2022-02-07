@@ -1,0 +1,1 @@
+Artículo 7º-Requisitos Fundamentales: Para que el funcionario se haga acreedor de cualquiera de los subsidios establecidos en el presente Reglamento, deberá estar nombrado en propiedad, o bien tener al menos seis meses de servicio continuo en el PIMA y además contar con una calificación igual o superior a 80 puntos en la evaluación de su desempeño.

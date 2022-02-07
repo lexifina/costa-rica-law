@@ -1,0 +1,1 @@
+Artículo 21.-Modificación del contrato de beca: Toda modificación que pudiere afectar a alguno de los contratos deberá constar por adenda formal, tramitada según los principios y procedimientos de este capítulo. Deberá la misma tener la aprobación previa de la Comisión de Desarrollo de Personal.

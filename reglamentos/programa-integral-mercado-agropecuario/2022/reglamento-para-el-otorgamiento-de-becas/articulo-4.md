@@ -1,0 +1,2 @@
+Artículo 4º-Del Plan Anual de Capacitación: Conforme a las políticas y objetivos de entrenamiento, el Proceso de Recursos Humanos, deberá presentar a la Gerencia General un plan anual de capacitación y entrenamiento, tendiente a satisfacer las necesidades de conocimiento que demandan los distintos procesos que desarrollan los miembros de la organización.
+Se establecerá, por parte del Proceso de Recursos Humanos, una partida anual en el presupuesto, para atender los requerimientos establecidos en el Plan Anual de Capacitación.

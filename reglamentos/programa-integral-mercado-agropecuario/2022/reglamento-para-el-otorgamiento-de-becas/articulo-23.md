@@ -1,0 +1,1 @@
+Artículo 23.-Traspaso del contrato: En casos calificados, previo dictamen de la Comisión, el PIMA podrá traspasar los derechos y obligaciones provenientes de contratos de desarrollo de personal, a otras entidades públicas, bajo el criterio de "Patrono Único". Para lo cual se mantendrán vigentes las garantías otorgadas por el término del contrato.

@@ -1,0 +1,1 @@
+Artículo 24.-Del trámite de pago del beneficio. Para efectos del beneficiario el trámite de pago para dicho beneficio se realizará mediante Recursos Humanos, quien a su vez realizará todos los trámites a lo interno de la institución.

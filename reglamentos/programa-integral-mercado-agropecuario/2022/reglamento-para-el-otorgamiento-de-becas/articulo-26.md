@@ -1,0 +1,1 @@
+Artículo 26.-Cláusula Penal: Si el beneficiario perdiera la beca por cualquier causal establecido en este reglamento, deberá devolver las sumas en él invertidas por el otorgamiento de beca más un 25%. El funcionario deberá esperar un año calendario para ostentar por otra beca similar.

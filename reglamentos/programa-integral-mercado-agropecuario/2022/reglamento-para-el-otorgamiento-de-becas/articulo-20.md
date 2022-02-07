@@ -1,0 +1,2 @@
+Artículo 20.-Estimación y Garantías: En todos los contratos se incluirá una estimación, según los aportes económicos del PIMA, al valor equivalente del tiempo concedido, y al valor del tiempo a que estará obligado el beneficiario a prestar sus servicios a la Institución. Se incluirá expresamente un 25% adicional como cláusula penal para el caso de incumplimiento.
+El total estimado será asegurado por medio de garantía fiduciaria suficiente a juicio de la Unidad de Asesoría Legal. Los gastos por timbres y papel del contrato se tendrán como gastos de operación del PIMA.

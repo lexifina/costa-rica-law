@@ -1,0 +1,2 @@
+Artículo 15.-Financiamiento para Trabajos de Graduación: El PIMA, podrá conceder un subsidio a sus funcionarios para la presentación de trabajos de graduación para optar a títulos de nivel universitario y para universitario, siempre y cuando el tema sea de interés para los objetivos y funciones de la institución.
+El monto del subsidio será recomendado por la Comisión según presupuesto disponible, el programa de ejecución del trabajo y sus costos, el nivel de ingresos del interesado y el grado de interés institucional.
