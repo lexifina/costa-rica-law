@@ -1,3 +1,0 @@
-Artículo 5º—Las personas emprendedoras que califiquen en condición de pobreza y pobreza extrema serán eximidas del pago de las tarifas establecidas en el artículo 3 del presente reglamento. A efectos de verificar la condición de pobreza, el Ministerio de Salud consultará durante la realización del trámite solicitado, el registro del IMAS que acredita dicha condición.
-En caso de que la persona no esté registrada como beneficiario de ayuda social, la misma deberá cancelar el 100% de la tarifa, según se dispone en el artículo 3 del presente reglamento.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42587 del 10 de setiembre del 2020)
