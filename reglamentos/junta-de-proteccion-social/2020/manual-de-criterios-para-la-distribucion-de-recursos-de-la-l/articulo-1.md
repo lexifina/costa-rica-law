@@ -33,41 +33,41 @@ Artículo 9.- Inclusión o exclusión de organizaciones en la distribución de l
 Será potestad de la Junta de Protección Social, incluir o excluir organizaciones como beneficiarias de las utilidades netas. La Junta Directiva emitirá el Manual de criterios para la distribución de los recursos, en el cual se establecerán los criterios de selección y exclusión de beneficiarios, así como la distribución de los recursos en cada una de las categorías de programas u organizaciones. Para elaborar el Manual, deberán tomarse en cuenta los criterios técnicos, legales, sociales y presupuestarios de los diferentes departamentos de la Junta de Protección Social, así como los criterios técnicos de la entidad rectora en cada área de atención.
 Deberá considerarse, al menos, el cumplimiento de las obligaciones legales y registrales, la población atendida, los servicios prestados y las facilidades de acceso a los medios, servicios y recursos.
 Como marco legal de referencia se debe considerar la siguiente normativa nacional e internacional:
-• Ley 7935. Ley Integral de la Persona Adulta Mayor (1999). Asamblea Legislativa de la Republica. San José, Costa Rica.
-• Ley 7600 de Igualdad de Oportunidades para las Personas con Discapacidad (1996) Asamblea Legislativa de la Republica. San José, Costa Rica.
-• Ley 7739. Código de la Niñez y la Adolescencia (1997) Asamblea Legislativa de la Republica. San José, Costa Rica.
-• Ley 7771. Ley General sobre VIH-SIDA (1998) Asamblea Legislativa de la Republica. San José, Costa Rica. Reglamento de la Ley general sobre VIH-SIDA (1999).
-• Ley 7899. Ley contra la explotación sexual comercial de las personas menores de edad (1999). Asamblea Legislativa de la Republica. San José, Costa Rica.
-• Ley 7997. Autorización a JPSSJ Donar Superávits a Asociaciones y Fundaciones Pro-Hospitales de la CCSS.
-• Ley 8661. Convención sobre los derechos de las personas con discapacidad (2008). Asamblea Legislativa de la Republica. San José, Costa Rica.
-• Ley 9379 Ley para la Promoción de la Autonomía Personal de las Personas con Discapacidad.
-• Política Nacional para la Niñez y la Adolescencia 2009-2021
-• Convención sobre los derechos de niño (1990). Asamblea General de las Naciones Unidas. París, Francia.
-• Convención Interamericana sobre la Protección de los Derechos Humanos de las Personas Mayores.
-• Norma Nacional para la Atención en Salud libre de estigma y discriminación a personas lesbianas, gais, bisexuales, trans, intersex (LGBTI y otros hombres que tienen sexo con hombres (HSM) (2016). Ministerio de Salud.
-• Plan Estratégico Nacional VIH-SIDA 2016-2021
+. Ley 7935. Ley Integral de la Persona Adulta Mayor (1999). Asamblea Legislativa de la Republica. San José, Costa Rica.
+. Ley 7600 de Igualdad de Oportunidades para las Personas con Discapacidad (1996) Asamblea Legislativa de la Republica. San José, Costa Rica.
+. Ley 7739. Código de la Niñez y la Adolescencia (1997) Asamblea Legislativa de la Republica. San José, Costa Rica.
+. Ley 7771. Ley General sobre VIH-SIDA (1998) Asamblea Legislativa de la Republica. San José, Costa Rica. Reglamento de la Ley general sobre VIH-SIDA (1999).
+. Ley 7899. Ley contra la explotación sexual comercial de las personas menores de edad (1999). Asamblea Legislativa de la Republica. San José, Costa Rica.
+. Ley 7997. Autorización a JPSSJ Donar Superávits a Asociaciones y Fundaciones Pro-Hospitales de la CCSS.
+. Ley 8661. Convención sobre los derechos de las personas con discapacidad (2008). Asamblea Legislativa de la Republica. San José, Costa Rica.
+. Ley 9379 Ley para la Promoción de la Autonomía Personal de las Personas con Discapacidad.
+. Política Nacional para la Niñez y la Adolescencia 2009-2021
+. Convención sobre los derechos de niño (1990). Asamblea General de las Naciones Unidas. París, Francia.
+. Convención Interamericana sobre la Protección de los Derechos Humanos de las Personas Mayores.
+. Norma Nacional para la Atención en Salud libre de estigma y discriminación a personas lesbianas, gais, bisexuales, trans, intersex (LGBTI y otros hombres que tienen sexo con hombres (HSM) (2016). Ministerio de Salud.
+. Plan Estratégico Nacional VIH-SIDA 2016-2021
 2.- Fundamento Técnico.
 a- ENFOQUES Y PRINCIPIOS RECTORES.
 Para los efectos del presente manual, los lineamientos se sustentan en los siguientes enfoques transversales y paradigmas:
-• Enfoque de Derechos Humanos: El eje central de este enfoque, parte del reconocimiento y respeto por la dignidad inherente a las personas, así como de que estas son titulares activos de derechos, los cuales son universales, inalienables, intransferibles, irrenunciables, imprescriptibles, irreversibles, jurídicamente exigibles, progresivos e inacabados, interdependientes, complementarios e indivisibles entre sí. En virtud de lo anterior; asume que todas las personas, deben tener asegurado el goce pleno de sus derechos y el ejercicio de sus deberes; sin distinción alguna, respecto de otras personas. Ratifica la responsabilidad del Estado en la toma de medidas pertinentes para promover, respetar, proteger y hacer efectivos los derechos humanos. (CONAPDIS,2019).
-• Enfoque de Género: este enfoque reconoce la existencia de relaciones desiguales entre mujeres y hombres y, por lo tanto, busca la transformación para alcanzar la igualdad y equidad. (INAMU,2019).
-• Enfoque de Diversidades: “reconoce que todos los cuerpos, comportamientos, pensamientos, sensaciones, deseos, expresiones y manifestaciones sexuales, forman parte de un amplio espectro que está disponible para toda persona y para la construcción de su identidad y forma parte de este abanico de posibilidad sexuales, que tiene igual derecho de existir y presentarse siempre que no atente contra su integridad o los derechos de terceros” (Norma Nacional para la Atención en Salud libre de estigma y discriminación, Ministerio de Salud (2016).
-• Enfoque de derechos de las personas con discapacidad: parte del modelo social de la discapacidad, planteado por la Convención sobre los Derechos de las Personas con Discapacidad, de 19 de agosto de 2008, que tutela los derechos de esta población. Plantea que la discapacidad no es atribuible a las personas, sino que resulta de la interacción entre las personas con deficiencias que limitan su funcionamiento y las barreras que el entono les plantea. Por tanto, se concluye que la construcción de un entorno inclusivo en toda su extensión, necesario para la eliminación de estas barreras; es responsabilidad de la sociedad en su conjunto; y que es menester y urgente su construcción, para que todas las personas, puedan participar y acceder en igualdad de condiciones, a todos los ámbitos del mismo, sin barrera alguna. (CONAPDIS,2019).
-• Paradigma de Protección Integral para personas menores de edad: El Modelo de Atención del PANI, 2019 establece:
-“La Doctrina de Protección Integral considera a las personas menores de edad como sujetos sociales plenos de derechos y responsabilidades. Por su parte el artículo 20 (inciso 1) de la Convención de los Derechos del Niño plantea: “Los niños temporal o permanentemente privados de su medio familiar, o cuyo superior interés exija que no permanezcan en ese medio, tendrán derecho a la protección y asistencia especiales del Estado”. (p.5).
-• Paradigma de Atención Centrada en la Persona (ACP): se basa en considerar a las PAM como agentes activos de sus propios cambios. Sus principios rectores son: la autonomía en la diversidad; la participación, accesibilidad e interdisciplinariedad; la integralidad y globalidad; la individualidad, atención personalizada y flexibilidad; la inclusión social, proximidad y enfoque comunitario, la independencia, prevención y rehabilitación; y la continuidad, coordinación y convergencia de los distintos niveles asistenciales. (CONAPAM)
-• Planificación Centrada en la Persona (PCP). La Planificación Centrada en la Persona sigue siendo el principal enfoque en el apoyo a personas con distintas discapacidades, ya que ofrece estrategias, basadas en valores y en el empoderamiento de las personas, para ayudarlas a construir su propio proyecto de vida plena, de felicidad. El punto de partida de estos enfoques es el reconocimiento de la dignidad de cada persona, independientemente de las condiciones que acompañen su vida. (MEP)
+. Enfoque de Derechos Humanos: El eje central de este enfoque, parte del reconocimiento y respeto por la dignidad inherente a las personas, así como de que estas son titulares activos de derechos, los cuales son universales, inalienables, intransferibles, irrenunciables, imprescriptibles, irreversibles, jurídicamente exigibles, progresivos e inacabados, interdependientes, complementarios e indivisibles entre sí. En virtud de lo anterior; asume que todas las personas, deben tener asegurado el goce pleno de sus derechos y el ejercicio de sus deberes; sin distinción alguna, respecto de otras personas. Ratifica la responsabilidad del Estado en la toma de medidas pertinentes para promover, respetar, proteger y hacer efectivos los derechos humanos. (CONAPDIS,2019).
+. Enfoque de Género: este enfoque reconoce la existencia de relaciones desiguales entre mujeres y hombres y, por lo tanto, busca la transformación para alcanzar la igualdad y equidad. (INAMU,2019).
+. Enfoque de Diversidades: "reconoce que todos los cuerpos, comportamientos, pensamientos, sensaciones, deseos, expresiones y manifestaciones sexuales, forman parte de un amplio espectro que está disponible para toda persona y para la construcción de su identidad y forma parte de este abanico de posibilidad sexuales, que tiene igual derecho de existir y presentarse siempre que no atente contra su integridad o los derechos de terceros" (Norma Nacional para la Atención en Salud libre de estigma y discriminación, Ministerio de Salud (2016).
+. Enfoque de derechos de las personas con discapacidad: parte del modelo social de la discapacidad, planteado por la Convención sobre los Derechos de las Personas con Discapacidad, de 19 de agosto de 2008, que tutela los derechos de esta población. Plantea que la discapacidad no es atribuible a las personas, sino que resulta de la interacción entre las personas con deficiencias que limitan su funcionamiento y las barreras que el entono les plantea. Por tanto, se concluye que la construcción de un entorno inclusivo en toda su extensión, necesario para la eliminación de estas barreras; es responsabilidad de la sociedad en su conjunto; y que es menester y urgente su construcción, para que todas las personas, puedan participar y acceder en igualdad de condiciones, a todos los ámbitos del mismo, sin barrera alguna. (CONAPDIS,2019).
+. Paradigma de Protección Integral para personas menores de edad: El Modelo de Atención del PANI, 2019 establece:
+"La Doctrina de Protección Integral considera a las personas menores de edad como sujetos sociales plenos de derechos y responsabilidades. Por su parte el artículo 20 (inciso 1) de la Convención de los Derechos del Niño plantea: "Los niños temporal o permanentemente privados de su medio familiar, o cuyo superior interés exija que no permanezcan en ese medio, tendrán derecho a la protección y asistencia especiales del Estado". (p.5).
+. Paradigma de Atención Centrada en la Persona (ACP): se basa en considerar a las PAM como agentes activos de sus propios cambios. Sus principios rectores son: la autonomía en la diversidad; la participación, accesibilidad e interdisciplinariedad; la integralidad y globalidad; la individualidad, atención personalizada y flexibilidad; la inclusión social, proximidad y enfoque comunitario, la independencia, prevención y rehabilitación; y la continuidad, coordinación y convergencia de los distintos niveles asistenciales. (CONAPAM)
+. Planificación Centrada en la Persona (PCP). La Planificación Centrada en la Persona sigue siendo el principal enfoque en el apoyo a personas con distintas discapacidades, ya que ofrece estrategias, basadas en valores y en el empoderamiento de las personas, para ayudarlas a construir su propio proyecto de vida plena, de felicidad. El punto de partida de estos enfoques es el reconocimiento de la dignidad de cada persona, independientemente de las condiciones que acompañen su vida. (MEP)
 Por otra parte, en el campo de la salud se toman como base los principios orientadores, contemplados en Plan Nacional de Salud 2016-2020.
-• Equidad: La equidad corresponde a la justa distribución de las posibilidades y oportunidades de acceso información, conocimientos, recursos, bienes y servicios, para promover, mejorar y mantener la salud individual y colectiva, dando más a quien más necesita, además busca disminuir las diferencias en salud. El principio de equidad reconoce que, si bien todos los seres humanos deben ser considerados iguales, hay condiciones sociales, del entorno y culturales que comprometen y generan brechas que ponen en desventaja a ciertos grupos y poblaciones.
-• Universalidad: Es la responsabilidad del Estado de garantizar, bajo un enfoque de derechos el acceso al sistema de salud con calidad y oportunidad a toda la población, sin hacer distinción en los límites geográficos, sociales, económicos y culturales.
-• Solidaridad: La solidaridad, asegura la protección de la salud para toda la población mediante un modelo de financiamiento compartido, que para el caso de nuestro país es tripartito (Estado, patrono, trabajador) que permite el acceso al sistema de salud de aquellos grupos con menos recursos.
-• Ética: La ética es el conjunto de reglas, normas, mandatos, que guían y regulan el comportamiento humano dentro de una determinada colectividad. Orienta hacia el respeto a la dignidad, integridad y autonomía de todas las personas, así como al logro del bienestar humano y la justicia social.
-• Inclusión social: Es la condición en la que se reconocen los derechos, deberes, igualdades y equidades de las personas y grupos sociales en situación de desventaja y vulnerabilidad, sin distinción de género, etnia, orientación sexual o ideología. Una persona o grupo social incluido significa que está integrado social e institucionalmente en las redes creadas por la sociedad, abarcando las dimensiones: política, económica, social y cultural.
-• Interculturalidad: La interculturalidad plantea la necesidad de reconocer las diversidades culturales en las sociedades y en los individuos. Por medio del reconocimiento de la diversidad cultural y de las diferentes formas de vida que existen en el país es posible fortalecer la identidad nacional y promover la convivencia pacífica y respetuosa entre los grupos culturalmente, étnicamente y en general, socialmente distintos.
+. Equidad: La equidad corresponde a la justa distribución de las posibilidades y oportunidades de acceso información, conocimientos, recursos, bienes y servicios, para promover, mejorar y mantener la salud individual y colectiva, dando más a quien más necesita, además busca disminuir las diferencias en salud. El principio de equidad reconoce que, si bien todos los seres humanos deben ser considerados iguales, hay condiciones sociales, del entorno y culturales que comprometen y generan brechas que ponen en desventaja a ciertos grupos y poblaciones.
+. Universalidad: Es la responsabilidad del Estado de garantizar, bajo un enfoque de derechos el acceso al sistema de salud con calidad y oportunidad a toda la población, sin hacer distinción en los límites geográficos, sociales, económicos y culturales.
+. Solidaridad: La solidaridad, asegura la protección de la salud para toda la población mediante un modelo de financiamiento compartido, que para el caso de nuestro país es tripartito (Estado, patrono, trabajador) que permite el acceso al sistema de salud de aquellos grupos con menos recursos.
+. Ética: La ética es el conjunto de reglas, normas, mandatos, que guían y regulan el comportamiento humano dentro de una determinada colectividad. Orienta hacia el respeto a la dignidad, integridad y autonomía de todas las personas, así como al logro del bienestar humano y la justicia social.
+. Inclusión social: Es la condición en la que se reconocen los derechos, deberes, igualdades y equidades de las personas y grupos sociales en situación de desventaja y vulnerabilidad, sin distinción de género, etnia, orientación sexual o ideología. Una persona o grupo social incluido significa que está integrado social e institucionalmente en las redes creadas por la sociedad, abarcando las dimensiones: política, económica, social y cultural.
+. Interculturalidad: La interculturalidad plantea la necesidad de reconocer las diversidades culturales en las sociedades y en los individuos. Por medio del reconocimiento de la diversidad cultural y de las diferentes formas de vida que existen en el país es posible fortalecer la identidad nacional y promover la convivencia pacífica y respetuosa entre los grupos culturalmente, étnicamente y en general, socialmente distintos.
 b- ESTRUCTURA POBLACIONAL Y SITUACIONES ASOCIADAS.
 Resulta importante analizar la situación demográfica del país y las tendencias, con el fin de respaldar los lineamientos, en procura de brindar una respuesta acorde con la realidad nacional.
 Según los resultados de la Encuesta Nacional de Hogares 2018 publicada por el INEC:
-“…el 21,1 % de los hogares del país se encuentra en situación de pobreza por LP, esto equivale a 328 848 hogares, 23,617 hogares más que el año anterior, en términos porcentuales representa un incremento de 1,1 pp en el nivel pobreza, lo cual es una variación estadísticamente significativa. El porcentaje de hogares en pobreza extrema presenta un aumento de 0,6 pp, pasando de 5,7 % en el 2017 a 6,3 % en este año, en términos absolutos representa un aumento de 12 371 hogares, pasa de 86 663 hogares en el 2017 a 99 034 en el 2018.
+".el 21,1 % de los hogares del país se encuentra en situación de pobreza por LP, esto equivale a 328 848 hogares, 23,617 hogares más que el año anterior, en términos porcentuales representa un incremento de 1,1 pp en el nivel pobreza, lo cual es una variación estadísticamente significativa. El porcentaje de hogares en pobreza extrema presenta un aumento de 0,6 pp, pasando de 5,7 % en el 2017 a 6,3 % en este año, en términos absolutos representa un aumento de 12 371 hogares, pasa de 86 663 hogares en el 2017 a 99 034 en el 2018.
 Los datos revelan además que 18,2% de la población mayor de edad en Costa Rica son personas en situación de discapacidad, es decir, cerca de 700.000 habitantes, la mayoría está en el Pacífico Central, del total 61% son mujeres y 39,1% son hombres. La investigación indica que esta condición se presenta más entre los quintiles de menores ingresos; más de 50% vive en pobreza o pobreza extrema. Del total, 61% son mujeres y 39,1% son hombres.
 La Encuesta Nacional sobre Discapacidad 2018, destaca que del total de personas adultas con discapacidad en el país hay un mayor porcentaje de mujeres respecto a los hombres: un 39.1 % son hombres y el 60.9 % mujeres.
 En cuanto al grado de discapacidad, se revela que el 3.8 % corresponde a discapacidad de leve a moderada y el 14.4 % a discapacidad severa.
@@ -80,9 +80,9 @@ discapacidad por región:
 [imagen]
 Fuente: CONAPDIS, INEC-Costa Rica. Encuesta sobre Discapacidad, 2018
 Según datos del Instituto Costarricense de Estadística y Censos (INEC) para el año 2018:
-… “la población adulta mayor representaba el 8,2% del total y estaba constituida por 47,2% de hombres y 58,2% de mujeres. En Costa Rica, la esperanza de vida se extiende a 82,4 años en la mujer y 77,4 en hombres, sumado a esto, la tasa de natalidad va en disminución representando 1,75 hijos por mujer. La población se encuentra en proceso de transición demográfica avanzada, con una disminución de la base pirámide poblacional y un incremento en los grupos de edades mayores”.
-La tendencia es que “Costa Rica seguirá teniendo una tasa de crecimiento positiva y por tanto año con año, más población, hasta alcanzar los 6,1 millones de habitantes en el 2050.
-El segmento poblacional que más crecerá corresponderá a los adultos mayores. El tamaño de esta población se triplicará en los próximos 40 años, pasando de 316 mil personas en el 2012 a más de 1 millón en el 2050”.
+. "la población adulta mayor representaba el 8,2% del total y estaba constituida por 47,2% de hombres y 58,2% de mujeres. En Costa Rica, la esperanza de vida se extiende a 82,4 años en la mujer y 77,4 en hombres, sumado a esto, la tasa de natalidad va en disminución representando 1,75 hijos por mujer. La población se encuentra en proceso de transición demográfica avanzada, con una disminución de la base pirámide poblacional y un incremento en los grupos de edades mayores".
+La tendencia es que "Costa Rica seguirá teniendo una tasa de crecimiento positiva y por tanto año con año, más población, hasta alcanzar los 6,1 millones de habitantes en el 2050.
+El segmento poblacional que más crecerá corresponderá a los adultos mayores. El tamaño de esta población se triplicará en los próximos 40 años, pasando de 316 mil personas en el 2012 a más de 1 millón en el 2050".
 El país experimenta un envejecimiento acelerado de su población, tal como se muestra en el siguiente cuadro:
 [imagen]
 Según datos de la Unidad de Servicios de Salud de Atención Directa a las Personas del Ministerio de Salud para el año 2017 en el país se registraban 92 Hogares de larga estancia y 66 centros diurnos. En la primera modalidad se atendían 3.379 personas adultas mayores; y en la segunda un total de 1.782.
@@ -90,31 +90,31 @@ La distribución de esa población por sexo se muestra en el gráfico siguiente:
 [imagen]
 Fuente: Ministerio de Salud, Unidad de Servicios de Salud de Atención Directa a las Personas, 2017.
 Con respecto a población menor de edad, según lo mencionado por Unicef en el último informe anual del año 2018:
-“En Costa Rica hay alrededor de 1,4 millones de niños, de los cuales un 34% vive en condición de pobreza, 14 puntos porcentuales más que el promedio del país en los últimos cuatro años, y un 12% en pobreza extrema. En nuestro país el porcentaje de familias en condición de pobreza se ha mantenido estable en los últimos años y actualmente hay 328 mil, sin embargo, las familias pobres con jefatura femenina aumentaron tres puntos porcentuales en el 2018 y alcanzó un 48% del total”.
-Según la última Encuesta de Mujeres, Niñez y Adolescencia, publicada en julio 2019 por el Instituto Nacional de Estadísticas y Censos (INEC) indica que: “de las adolescentes entre los 15 y 19 años están casadas, o en unión libre con hombres que las superan en promedio en unos 10 años, y del total de ellas tienen al menos un hijo. En general, el 16% de las jóvenes menores de 18 años ya son madres, la mayoría pertenecientes a los sectores poblaciones más pobres”.
+"En Costa Rica hay alrededor de 1,4 millones de niños, de los cuales un 34% vive en condición de pobreza, 14 puntos porcentuales más que el promedio del país en los últimos cuatro años, y un 12% en pobreza extrema. En nuestro país el porcentaje de familias en condición de pobreza se ha mantenido estable en los últimos años y actualmente hay 328 mil, sin embargo, las familias pobres con jefatura femenina aumentaron tres puntos porcentuales en el 2018 y alcanzó un 48% del total".
+Según la última Encuesta de Mujeres, Niñez y Adolescencia, publicada en julio 2019 por el Instituto Nacional de Estadísticas y Censos (INEC) indica que: "de las adolescentes entre los 15 y 19 años están casadas, o en unión libre con hombres que las superan en promedio en unos 10 años, y del total de ellas tienen al menos un hijo. En general, el 16% de las jóvenes menores de 18 años ya son madres, la mayoría pertenecientes a los sectores poblaciones más pobres".
 Con base en datos suministrados por el área de Administración del Departamento de Protección, del PANI, específicamente de los datos que arroja el SIAP:
-“Desde enero a julio del año 2019 han sido protegidos un total de 1099 personas menores de edad en alternativas de protección institucional; mensualmente se atiende un promedio de 500 PME en albergues y aldeas PANI. El Patronato Nacional de la Infancia mantiene con permiso de funcionamiento un total de 62 ONG de carácter residencial. Estas ONG de enero a julio han protegido a un total de 2708 personas menores de edad”.
+"Desde enero a julio del año 2019 han sido protegidos un total de 1099 personas menores de edad en alternativas de protección institucional; mensualmente se atiende un promedio de 500 PME en albergues y aldeas PANI. El Patronato Nacional de la Infancia mantiene con permiso de funcionamiento un total de 62 ONG de carácter residencial. Estas ONG de enero a julio han protegido a un total de 2708 personas menores de edad".
 Los anteriores datos evidencian que a mayor nivel de pobreza en la niñez y adolescencia es más alta la exclusión, la exposición a la negligencia en el cuido y el involucramiento en actividades ilícitas por parte de las personas menores de edad.
 En el campo de la salud la demanda de servicios y la incidencia de enfermedades no tradicionales es otro aspecto relevante. Según estudio de la Contraloría General de la República (2019).
-… “El cambio demográfico representa un desafío complejo para el sistema de salud pública, pues se espera un aumento en la demanda por parte de una PAM creciente, junto a los cambios en el perfil de salud que muestran una mayor prevalencia de enfermedades no transmisibles (ENT) como neoplasias (cáncer), diabetes, enfermedades cardiovasculares, respiratorias y neurodegenerativas. Estas enfermedades tienen en común el requerir una atención médica prolongada y costosa, paralelo a un deterioro progresivo en la salud. En síntesis, como mínimo probable, el cambio demográfico podría generar un aumento del 86% en el gasto para 2030 y del 129% hacia 2035. Adicionalmente, el aumento podría ser mayor como resultado de la transición epidemiológica del país, el aumento de la estancia hospitalario promedio, y factores externos que redunden en un deterioro de las condiciones de salud de la población (deterioro ambiental, por ejemplo)”.
+. "El cambio demográfico representa un desafío complejo para el sistema de salud pública, pues se espera un aumento en la demanda por parte de una PAM creciente, junto a los cambios en el perfil de salud que muestran una mayor prevalencia de enfermedades no transmisibles (ENT) como neoplasias (cáncer), diabetes, enfermedades cardiovasculares, respiratorias y neurodegenerativas. Estas enfermedades tienen en común el requerir una atención médica prolongada y costosa, paralelo a un deterioro progresivo en la salud. En síntesis, como mínimo probable, el cambio demográfico podría generar un aumento del 86% en el gasto para 2030 y del 129% hacia 2035. Adicionalmente, el aumento podría ser mayor como resultado de la transición epidemiológica del país, el aumento de la estancia hospitalario promedio, y factores externos que redunden en un deterioro de las condiciones de salud de la población (deterioro ambiental, por ejemplo)".
 Aunado al aumento en el índice de suicidios que obliga a las instituciones estatales y sociedad civil a intervenir en materia de prevención.
 Por otra parte, en el tema de salud sexual, de acuerdo con el Plan Estratégico Nacional en VIH y SIDA 2016-2021:
-“Costa Rica cuenta con una población total de 4.947.481 habitantes. La prevalencia general de VIH es de 0,1 y es caracterizada como una epidemia concentrada. Según las estimaciones de ONUSIDA, en el año 2017, 36,9 millones (31,1 millones–43,9 millones) de personas vivían con el VIH en todo el mundo, 21,7 millones (19,1millones-22,6 millones) de personas tenían acceso a la terapia antirretroviral, 1,8 millones (1,4 millones–2,4 millones) de personas contrajeron la infección por el VIH y 940.000 [670.000–1,3 millones] de personas fallecieron a causa de enfermedades relacionadas con el sida. Estimaciones de ONUSIDA (2017), muestra para nuestro país que la prevalencia de VIH en personas mayores de 15 años es de 0.34 y hay aproximadamente 12.845 personas mayores de 15 años viviendo con VIH.
+"Costa Rica cuenta con una población total de 4.947.481 habitantes. La prevalencia general de VIH es de 0,1 y es caracterizada como una epidemia concentrada. Según las estimaciones de ONUSIDA, en el año 2017, 36,9 millones (31,1 millones-43,9 millones) de personas vivían con el VIH en todo el mundo, 21,7 millones (19,1millones-22,6 millones) de personas tenían acceso a la terapia antirretroviral, 1,8 millones (1,4 millones-2,4 millones) de personas contrajeron la infección por el VIH y 940.000 [670.000-1,3 millones] de personas fallecieron a causa de enfermedades relacionadas con el sida. Estimaciones de ONUSIDA (2017), muestra para nuestro país que la prevalencia de VIH en personas mayores de 15 años es de 0.34 y hay aproximadamente 12.845 personas mayores de 15 años viviendo con VIH.
 Estimación de Nuevos Diagnósticos de VIH Por Año
 Según Sexo
 Costa Rica 2002-2018
 Tasa 100.000 Habitantes
 [imagen]
 Fuente: Vigilancia de la Salud. UAPSS- Ministerio de Salud. Spectrum 2018.
-“Costa Rica tiene una epidemia concentrada de VIH, según datos de la encuesta de prevalencia del año 2017; en las mujeres trans se encontró una prevalencia del VIH de 24.6% (IC 95% 19.3 -29.9), de sífilis activa 12.9% (IC 95% 8.7- 17.0), de Hepatitis B, 2.4% (IC 95% 0.5-4.3) y de Hepatitis C, 1.2% (IC 95% 0-2.6) En hombres que tienen relaciones sexuales con hombres la prevalencia de VIH fue de 15.4% (IC: 7.2%-23.6%), de sífilis activa de 10.5% (IC 95% 5.1-16.8), de Hepatitis B de 0.4% (un solo caso) y de Hepatitis C no se encontró ningún caso. La prevalencia de VIH en las mujeres trabajadoras sexuales fue de 1.3% (IC 95%: 0.10-2.5), de 1.4% (IC 95%: 0.1-2.6) de sífilis activa, de Hepatitis B, 0.22% (IC 95%: 0-0.68) y no se encontró ningún caso de Hepatitis C”.
+"Costa Rica tiene una epidemia concentrada de VIH, según datos de la encuesta de prevalencia del año 2017; en las mujeres trans se encontró una prevalencia del VIH de 24.6% (IC 95% 19.3 -29.9), de sífilis activa 12.9% (IC 95% 8.7- 17.0), de Hepatitis B, 2.4% (IC 95% 0.5-4.3) y de Hepatitis C, 1.2% (IC 95% 0-2.6) En hombres que tienen relaciones sexuales con hombres la prevalencia de VIH fue de 15.4% (IC: 7.2%-23.6%), de sífilis activa de 10.5% (IC 95% 5.1-16.8), de Hepatitis B de 0.4% (un solo caso) y de Hepatitis C no se encontró ningún caso. La prevalencia de VIH en las mujeres trabajadoras sexuales fue de 1.3% (IC 95%: 0.10-2.5), de 1.4% (IC 95%: 0.1-2.6) de sífilis activa, de Hepatitis B, 0.22% (IC 95%: 0-0.68) y no se encontró ningún caso de Hepatitis C".
 En cuanto a farmacodependencia, según datos del Instituto de Alcoholismo y Farmacodependencia, del año 2014 al 2018 se ha presentado un aumento en la cantidad de pacientes atendidos, en su mayoría hombres, tal y como lo indica el siguiente cuadro:
 Pacientes atendidos por IAFA 2014-2018
 [imagen]
 [imagen]
 Un informe del Instituto Costarricense sobre drogas (ICD) del año 2018 menciona con respecto al consumo de sustancias psicoactivas en población general en Costa Rica, lo siguiente:
-… “según la última encuesta en población general del 2015, la sustancia con mayor prevalencia de consumo en el último mes es el alcohol 27.9%, 7,4 puntos porcentuales más alto que la prevalencia reportada en el 2015 lo que se explica como resultado de las modificaciones normativas que se realizaron a la Ley 9047 de Regulación y Comercialización de Bebidas con Contenido Alcohólico en el año 2012”.
+. "según la última encuesta en población general del 2015, la sustancia con mayor prevalencia de consumo en el último mes es el alcohol 27.9%, 7,4 puntos porcentuales más alto que la prevalencia reportada en el 2015 lo que se explica como resultado de las modificaciones normativas que se realizaron a la Ley 9047 de Regulación y Comercialización de Bebidas con Contenido Alcohólico en el año 2012".
 Con respecto al tratamiento del consumo de drogas por parte de organizaciones no gubernamentales se menciona:
-… “En el año 2017 se contó con 1567 camas disponibles en ONG para la atención de pacientes decreciendo esta cantidad en un 0,3% con respecto al año anterior. La cantidad de atenciones brindadas en ONG durante el año 2017 (6012 atenciones) se mantuvieron semejantes a las del año 2016 (6097), dado que de un año a otro la oferta de ONG brindando tratamiento aumentó únicamente en un centro, pasando de 63 a 64”.
+. "En el año 2017 se contó con 1567 camas disponibles en ONG para la atención de pacientes decreciendo esta cantidad en un 0,3% con respecto al año anterior. La cantidad de atenciones brindadas en ONG durante el año 2017 (6012 atenciones) se mantuvieron semejantes a las del año 2016 (6097), dado que de un año a otro la oferta de ONG brindando tratamiento aumentó únicamente en un centro, pasando de 63 a 64".
 3.- Fundamento Administrativo.
 La ley No. 8718 establece la distribución de utilidades de una manera general, mediante la definición de áreas de atención, donde el Manual de Criterios que la misma normativa establece viene a delimitar el marco de acción para que la administración cuente con los criterios necesarios para recomendar los beneficiarios idóneos de los recursos disponibles.
 El Manual le permite a la administración definir cómo desarrollará el proceso de la distribución de las utilidades, los requisitos que solicitará a las organizaciones, cómo se califican para la asignación de los recursos y además incorpora elementos que le permiten a la administración la toma de decisiones, con una base técnica.
@@ -262,7 +262,7 @@ De 101 a 110 | 33 |
 B- Facilidades de acceso a medios, servicios y recursos: (valor máximo de 14%)
 La valoración de estos aspectos pretende compensar las limitaciones de acceso que se presentan a las organizaciones, por su ubicación geográfica y entorno socioeconómico:
 Categoría | % | Puntaje asignado
-a) Según el “Índice de Desarrollo Social Distrital 2013, se ubica en: | |
+a) Según el "Índice de Desarrollo Social Distrital 2013, se ubica en: | |
 Primer quintil | 8 | 8,00
 Segundo quintil | 6 |
 Tercer quintil | 4 |
@@ -357,7 +357,7 @@ De 201 a 220 | 36 | 36,00
 B- Facilidades de acceso a medios, servicios y recursos: (valor máximo de 14%)
 La valoración de estos aspectos pretende compensar las limitaciones de acceso que se presentan a las organizaciones, por su ubicación geográfica y entorno socioeconómico:
 Categoría | % | Puntaje asignado
-a) Según el “Índice de Desarrollo Social Distrital 2013, se ubica en: | |
+a) Según el "Índice de Desarrollo Social Distrital 2013, se ubica en: | |
 Primer quintil | 8 | 8,00
 Segundo quintil | 6 |
 Tercer quintil | 4 |
@@ -505,7 +505,7 @@ No | 0,1 |
 C- Facilidades de acceso a medios, servicios y recursos: (valor máximo 9%)
 La valoración de estos aspectos pretende compensar las limitaciones de acceso que se presentan a las organizaciones, por su ubicación geográfica y entorno socioeconómico:
 Categoría | % | Puntaje asignado
-a) Según el “Índice de Desarrollo Social Distrital 2013, se ubica en: | |
+a) Según el "Índice de Desarrollo Social Distrital 2013, se ubica en: | |
 Primer quintil | 5 | 5,00
 Segundo quintil | 4 |
 Tercer quintil | 3 |
@@ -584,7 +584,7 @@ No | 0,1 |
 C- Facilidades de acceso a medios, servicios y recursos (valor máximo 12%)
 La valoración de estos aspectos pretende compensar las limitaciones de acceso que se presentan a las organizaciones, por su ubicación geográfica y entorno socioeconómico:
 Categoría | % | Puntaje asignado
-a) Según el “Índice de Desarrollo Social Distrital 2013, se ubica en: | |
+a) Según el "Índice de Desarrollo Social Distrital 2013, se ubica en: | |
 Primer quintil | 5 | 5,00
 Segundo quintil | 4 |
 Tercer quintil | 3 |
@@ -671,7 +671,7 @@ Dos o más tiempos de alimentación | 2 | 2,00
 C- Facilidades de acceso a medios, servicios y recursos (valor máximo 8%)
 La valoración de estos aspectos pretende compensar las limitaciones de acceso que se presentan a las organizaciones, por su ubicación geográfica y entorno socioeconómico:
 Categoría | % | Puntaje asignado
-a) Según el “Índice de Desarrollo Social Distrital 2013, se ubica en: | |
+a) Según el "Índice de Desarrollo Social Distrital 2013, se ubica en: | |
 Primer quintil | 4 | 4,00
 Segundo quintil | 3 |
 Tercer quintil | 2 |
@@ -729,7 +729,7 @@ No | 0,1 |
 C- Facilidades de acceso a medios, servicios y recursos (valor máximo 8%)
 La valoración de estos aspectos pretende compensar las limitaciones de acceso que se presentan a las organizaciones, por su ubicación geográfica y entorno socioeconómico:
 Categoría | % | Puntaje asignado
-a) Según el “Índice de Desarrollo Social Distrital 2013, se ubica en: | |
+a) Según el "Índice de Desarrollo Social Distrital 2013, se ubica en: | |
 Primer quintil | 5 | 5,00
 Segundo quintil | 4 |
 Tercer quintil | 3 |
@@ -820,7 +820,7 @@ Categoría | % | Puntaje asignado
 a) Acceso a recursos por disposiciones legales específicas | |
 No recibe recursos por ley específica | 1 | 1,00
 Recibe recursos de ley específica | 0,25 |
-b) Según el “Índice de Desarrollo Social Distrital 2013, se ubica en: | |
+b) Según el "Índice de Desarrollo Social Distrital 2013, se ubica en: | |
 Primer quintil | 5 | 5,00
 Segundo quintil | 4 |
 Tercer quintil | 3 |
@@ -895,7 +895,7 @@ No | 0,1 |
 C- Facilidades de Acceso a Medios, servicios y recursos: (valor máximo 9 %):
 La valoración de estos aspectos pretende compensar las limitaciones de acceso que se presentan a las organizaciones, por su ubicación geográfica y entorno socioeconómico.
 Categoría | % | Puntaje asignado
-a) Según el “Índice de Desarrollo Social Distrital 2013, se ubica en: | |
+a) Según el "Índice de Desarrollo Social Distrital 2013, se ubica en: | |
 Primer quintil | 5 | 5,00
 Segundo quintil | 4 |
 Tercer quintil | 3 |
@@ -948,7 +948,7 @@ Categoría | % | Puntaje asignado
 a) Acceso a recursos por disposiciones legales específicas | |
 No recibe recursos por ley específica | 1 | 1,00
 Recibe recursos de ley específica | 0,25 |
-b) Según el “Índice de Desarrollo Social Distrital 2013, se ubica en: | |
+b) Según el "Índice de Desarrollo Social Distrital 2013, se ubica en: | |
 Primer quintil | 5 | 5,00
 Segundo quintil | 4 |
 Tercer quintil | 3 |
@@ -1061,7 +1061,7 @@ La valoración de estos aspectos pretende compensar las limitaciones de acceso q
 | a) Acceso a recursos por disposiciones legales específicas | |
 | No recibe recursos por ley específica | 1 | 1,00
 | Recibe recursos de ley específica | 0,25 |
-b) Según el “Índice de Desarrollo Social Distrital 2013, se ubica en: | | |
+b) Según el "Índice de Desarrollo Social Distrital 2013, se ubica en: | | |
 Primer quintil | 5 | 5,00 |
 Segundo quintil | 4 | |
 Tercer quintil | 3 | |
@@ -1232,7 +1232,7 @@ No tiene apoyos | 0.1 |
 C- Facilidades de Acceso a Medios, servicios y recursos: (valor máximo 11 %):
 La valoración de estos aspectos pretende compensar las limitaciones de acceso que se presentan a las organizaciones, por su ubicación geográfica y entorno socioeconómico:
 Categoría | % |
-a) Según el “Índice de Desarrollo Social Distrital 2013, se ubica en: | |
+a) Según el "Índice de Desarrollo Social Distrital 2013, se ubica en: | |
 Primer quintil | 5 | 5,00
 Segundo quintil | 4 |
 Tercer quintil | 3 |
@@ -1274,7 +1274,7 @@ Para ingresar al Programa de Apoyo a la Gestión las organizaciones privadas sin
 Este documento se solicita por una única vez considerando su vigencia indefinida.
 2. Certificación literal de personería jurídica.
 3. Copia registral de los estatutos, reglamento o ley de creación según corresponda y reformas inscritas en el Registro Público.
-4. Documento emitido por el respectivo “Ente Rector” donde conste su “Aval” del Programa o actividad.
+4. Documento emitido por el respectivo "Ente Rector" donde conste su "Aval" del Programa o actividad.
 5. Copia del permiso de funcionamiento vigente por parte del Ministerio de Salud, o bien certificado de habilitación o de acreditación según corresponda.
 6. En el caso del área de menores el criterio de Patronato Nacional de la Infancia respecto a su criterio técnico sobre la conveniencia del programa a desarrollar.
 1.4.2 Una vez presentados y aceptados por la JPS, los requisitos anteriores se deberán cumplir con los siguientes para optar al ingreso del Programa de Apoyo a la Gestión:
@@ -1293,7 +1293,7 @@ Este documento se solicita por una única vez considerando su vigencia indefinid
 Las certificaciones deben haber sido emitidas con no más de tres meses de antigüedad.
 Nota: En caso de que el formulario de solicitud y documentos no sean entregados por el representante legal de la organización, se requiere una fotocopia de la cédula de identidad de quien ostente el cargo.
 1.5.- Rubros para utilización de los recursos.
-Las organizaciones deberán emplear los recursos transferidos mediante el programa “Apoyo a la Gestión” en la atención directa de los usuarios y en los rubros que se anotan de seguido:
+Las organizaciones deberán emplear los recursos transferidos mediante el programa "Apoyo a la Gestión" en la atención directa de los usuarios y en los rubros que se anotan de seguido:
 a) Alimentación.
 b) Salud (los medicamentos deben ser prescritos por el médico).
 c) Mantenimiento y seguridad de planta Física.
@@ -1483,25 +1483,25 @@ Se apoyarán los proyectos dirigidos a mejorar los servicios, las condiciones de
 2.1.3.2. En los proyectos de prevención presentados por organizaciones que no reciben recursos de apoyo a la gestión, se podrá valorar la adquisición de equipo de cómputo, cuando sea necesario para la labor de capacitación.
 2.1.3.3. Compra de vehículo, siempre y cuando existan recursos disponibles posteriores a la atención de las solicitudes prioritarias, de acuerdo con las políticas definidas por la Junta Directiva.
 Se atenderán las organizaciones que:
-• No lo posean y cuyos beneficiarios residan en el programa.
-• Apoyan las unidades de cuidados paliativos, que no cuentan con vehículo para que el equipo interdisciplinario efectúe las visitas domiciliarias al paciente.
-• Cuenten con programas de atención diurna de población adulta mayor, menores de edad y con discapacidad, que no dispongan de medio de transporte y requieran de este medio para brindar condiciones de mayor seguridad durante el traslado diario de los beneficiarios. En dichos casos, las organizaciones no podrán cobrar a los usuarios por el servicio de transporte que les brinden.
-• Atienden personas adultas mayores y tienen programa de atención en comunidad, para el traslado del equipo técnico que brinda el servicio.
+. No lo posean y cuyos beneficiarios residan en el programa.
+. Apoyan las unidades de cuidados paliativos, que no cuentan con vehículo para que el equipo interdisciplinario efectúe las visitas domiciliarias al paciente.
+. Cuenten con programas de atención diurna de población adulta mayor, menores de edad y con discapacidad, que no dispongan de medio de transporte y requieran de este medio para brindar condiciones de mayor seguridad durante el traslado diario de los beneficiarios. En dichos casos, las organizaciones no podrán cobrar a los usuarios por el servicio de transporte que les brinden.
+. Atienden personas adultas mayores y tienen programa de atención en comunidad, para el traslado del equipo técnico que brinda el servicio.
 Para el financiamiento de un segundo vehículo con recursos de la Junta, deben haber transcurrido mínimo 8 años de la compra del anterior, y en casos calificados según criterio técnico de la Junta, 5 años.
 2.1.3.4. Proyectos de autogestión que demuestren rentabilidad económica.
 2.1.3.5. En los proyectos de prevención, capacitación, investigación se consideran los siguientes aspectos:
-• Se podrá incluir el pago a un coordinador o administrador, profesionales, técnicos, personal capacitado y trabajadores denominados PAR y/o navegadores, que brindan atención directa y/o se desempeñen como capacitadores o investigadores, previa definición del alcance, el tiempo y el costo del proyecto y adjuntando un cronograma de actividades para cada recurso humano. Sólo se podrán considerar otros pagos de recurso humano muy calificados a criterio de Junta Directiva.
-• El personal anterior, se podrá contratar por planilla o servicios profesionales según necesidad de la organización y criterio de la profesional responsable de la valoración del proyecto.
-• En cuanto a salarios, se tomará como referencia los salarios establecidos por el Ministerio de Trabajo y Seguridad Social (no se apoyará el pago de pluses salariales).
-• Se podrá incluir el pago de servicios profesionales para cubrir el costo del contador requerido para la elaboración de la liquidación del proyecto.
-• En caso de ser necesario para el desarrollo del proyecto, se podrá incluir el pago total o parcial de alquileres de locales necesarios para dar la capacitación, durante la ejecución de este.
-• En caso de incluir gastos por concepto de viáticos dentro del país, deberá regirse por la Tabla de Viáticos aprobada por la Contraloría.
-• Deben estar enmarcados en un periodo no superior a un año, en caso de trascender, deberá ser formulado por etapas.
-• Las organizaciones deberán demostrar capacidad para la administración de recursos financieros del Estado, a través de sus estados financieros.
-• Las organizaciones deberán presentar documento de aval o refrendo de la entidad donde se va a ejecutar el proyecto.
-• Los recursos de los proyectos que sean aprobados se transferirán en tractos con el fin de dar seguimiento al mismo. Las organizaciones deberán remitir informes técnicos y liquidaciones del tracto ejecutado en la periodicidad especificada en el Manual de Criterios para la Distribución de Recursos. La presentación y aprobación de informes es requisito indispensable para el desembolso de los tractos subsiguientes.
-• El contenido del material de divulgación será responsabilidad de la organización.
-• Las Organizaciones deben haber trabajado al menos un proyecto en dicha temática y demostrar el efecto obtenido con el mismo.
+. Se podrá incluir el pago a un coordinador o administrador, profesionales, técnicos, personal capacitado y trabajadores denominados PAR y/o navegadores, que brindan atención directa y/o se desempeñen como capacitadores o investigadores, previa definición del alcance, el tiempo y el costo del proyecto y adjuntando un cronograma de actividades para cada recurso humano. Sólo se podrán considerar otros pagos de recurso humano muy calificados a criterio de Junta Directiva.
+. El personal anterior, se podrá contratar por planilla o servicios profesionales según necesidad de la organización y criterio de la profesional responsable de la valoración del proyecto.
+. En cuanto a salarios, se tomará como referencia los salarios establecidos por el Ministerio de Trabajo y Seguridad Social (no se apoyará el pago de pluses salariales).
+. Se podrá incluir el pago de servicios profesionales para cubrir el costo del contador requerido para la elaboración de la liquidación del proyecto.
+. En caso de ser necesario para el desarrollo del proyecto, se podrá incluir el pago total o parcial de alquileres de locales necesarios para dar la capacitación, durante la ejecución de este.
+. En caso de incluir gastos por concepto de viáticos dentro del país, deberá regirse por la Tabla de Viáticos aprobada por la Contraloría.
+. Deben estar enmarcados en un periodo no superior a un año, en caso de trascender, deberá ser formulado por etapas.
+. Las organizaciones deberán demostrar capacidad para la administración de recursos financieros del Estado, a través de sus estados financieros.
+. Las organizaciones deberán presentar documento de aval o refrendo de la entidad donde se va a ejecutar el proyecto.
+. Los recursos de los proyectos que sean aprobados se transferirán en tractos con el fin de dar seguimiento al mismo. Las organizaciones deberán remitir informes técnicos y liquidaciones del tracto ejecutado en la periodicidad especificada en el Manual de Criterios para la Distribución de Recursos. La presentación y aprobación de informes es requisito indispensable para el desembolso de los tractos subsiguientes.
+. El contenido del material de divulgación será responsabilidad de la organización.
+. Las Organizaciones deben haber trabajado al menos un proyecto en dicha temática y demostrar el efecto obtenido con el mismo.
 2.1.3.6. En el caso de cuidados paliativos se atenderán proyectos y necesidades que busquen mejorar las condiciones de las unidades de conformidad con los lineamientos de atención que defina el Ministerio de Salud en cada periodo presupuestario.
 2.2. Disposiciones generales.
 2.2.1. Se financian proyectos únicamente a organizaciones e instituciones sin fines de lucro. No se tendrán en cuenta proyectos de entidades privadas que venden servicios a la CCSS.
@@ -1702,7 +1702,7 @@ El juego de planos deberá incluir, por medio de notas y/o tablas, las especific
 Se deberá indicar con claridad el nombre y número de código CFIA, del profesional o grupo de profesionales que participó en el diseño del juego de planos.
 2. Un presupuesto detallado por actividades o elementos constructivos, en el que se reflejen los costos directos (materiales y mano de obra); costos indirectos (para materiales y mano de obra), imprevistos, administración y utilidad.
 Se deberá utilizar el formato suministrado por el DGS y que se incluya el respectivo IVA después del valor final.
-3. La construcción de la obra se deberá realizar bajo la modalidad “llave en mano”, por lo cual la Organización deberá presentar el borrador del documento de términos de contratación a utilizar para elegir a un oferente como constructor. El documento deberá contener al menos:
+3. La construcción de la obra se deberá realizar bajo la modalidad "llave en mano", por lo cual la Organización deberá presentar el borrador del documento de términos de contratación a utilizar para elegir a un oferente como constructor. El documento deberá contener al menos:
 3.1. Descripción del objeto a construir.
 3.2. Lugar de entrega de ofertas.
 3.3. Requisitos para la presentación de ofertas.
@@ -1868,7 +1868,7 @@ SEGUIMIENTO Y CONTROL
 a) Los recursos girados y/o transferidos por la Junta de Protección Social y los bienes muebles e inmuebles o cualquier otro bien adquirido con éstos, son inembargables y no podrán ser vendidos, dados en alquiler, hipotecados, donados, cedidos, prestados, traspasados ni dados en garantía en cualquier forma, excepto con la autorización previa de la Junta Directiva de esta Institución.
 b) Es obligación de las organizaciones que adquieran bienes muebles e inmuebles inscribibles, solicitar la incorporación de esta limitación en las escrituras públicas correspondientes; lo anterior con la finalidad de que el Registro Nacional de la Propiedad tome nota de ella.
 c) En casos de cierre o liquidación de la organización o por causa sobreviniente, los recursos y bienes adquiridos con dineros de la Junta de Protección Social se revertirán a ella. Para tales efectos y de conformidad con lo establecido en el artículo 11 de la Ley No. 8718, el oficio DFOE-SOC-0557 del 18 de julio de 2011 y el oficio AL 856 del 03 de agosto del 2011 emitido por la Asesoría Jurídica de la Junta de Protección Social, las organizaciones deberán estipular en sus estatutos lo siguiente:
-“…En casos de cierre, disolución o liquidación de la organización o por causa sobreviniente, los recursos y bienes adquiridos con dineros de la Junta de Protección Social se revertirán a ella…”
+".En casos de cierre, disolución o liquidación de la organización o por causa sobreviniente, los recursos y bienes adquiridos con dineros de la Junta de Protección Social se revertirán a ella."
 En caso cierre o liquidación las organizaciones deberán seguir el procedimiento establecido por la Junta para tales efectos.
 De la anterior disposición, se exceptúan:
 1) Las Juntas Administrativas de las Escuelas de Enseñanza Especial de conformidad con el Reglamento General de Juntas de Educación y Juntas Administrativas, Decreto Ejecutivo No. 38249-MEP, publicado en el Alcance de La Gaceta No.52 del 14 de marzo del 2014.
@@ -1877,8 +1877,8 @@ De la anterior disposición, se exceptúan:
 Las organizaciones que reciben fondos de la Junta sean por transferencia o giro directo, deben firmar anualmente el Convenio de Utilización de Recursos, en éste se establecen los derechos, obligaciones y trámites referidos al manejo de los recursos, que en forma obligatoria deben observar; así como las eventuales sanciones para la organización y sus representantes en caso de incumplimiento.
 Para formalizar la firma, es deber de las organizaciones realizar la gestión ante la Asesoría Jurídica, a partir de la tercera semana del mes de noviembre de cada año y hasta el 31 de marzo del año siguiente. En casos de excepción dicho plazo podrá ser prorrogado por la Gerencia de Desarrollo Social, previa solicitud del interesado antes de la fecha de vencimiento.
 El representante legal, para firmar el convenio debe cumplir con los siguientes requisitos:
-• Certificación literal de la personería jurídica vigente.
-• Estar al día en el pago de las cuotas obrero-patronales, condición que será verificada
+. Certificación literal de la personería jurídica vigente.
+. Estar al día en el pago de las cuotas obrero-patronales, condición que será verificada
 por la Asesoría Jurídica en la página WEB de la CCSS.
 3. Sobre el Uso de los Recursos.
 El uso correcto de los recursos será fiscalizado por la UFRT, para ello las organizaciones deben observar y atender lo siguiente:
@@ -1909,7 +1909,7 @@ Si el remanente es menor al monto definido por la Junta Directiva mediante acuer
 Por el objetivo de este programa de transferencia de fondos, no se aceptarán modificaciones al plan de inversión, a excepción de aquellos casos en que, por resultar los recursos insuficientes para la ejecución, sea necesaria la exclusión de algún ítem de los originalmente autorizados o bien que concurran causas de caso fortuito y fuerza mayor debidamente comprobadas y documentadas que determinen la necesidad de modificar los alcances del proyecto. Las solicitudes fundamentadas en esta excepción deben ser valoradas por el área técnica de la Junta y aprobadas por la Gerencia de Desarrollo Social.
 5. Liquidación y Remanentes.
 5.1. Liquidación.
-Una vez ejecutados los recursos, la organización beneficiaria debe presentar la liquidación correspondiente ante la UFRT conforme se señala en el capítulo III del presente manual, denominado “Seguimiento y Control”.
+Una vez ejecutados los recursos, la organización beneficiaria debe presentar la liquidación correspondiente ante la UFRT conforme se señala en el capítulo III del presente manual, denominado "Seguimiento y Control".
 En caso de existir remanentes de proyectos o necesidades específicas la organización deberá devolver los recursos a la Junta. De requerir tales recursos, deberá como máximo en el plazo de un mes a partir de la presentación de la liquidación, presentar solicitud por escrito dirigida al Departamento de Gestión Social con el plan de inversión propuesto para su utilización.
 La definición de los rangos de aprobación, por parte de Junta Directiva, Gerencia General o Gerencia de Desarrollo Social, serán definidos por la Junta Directiva.
 El plazo para liquidar el remanente es de cuatro meses que rigen a partir de la aprobación por parte del órgano competente. En casos de excepción dicho plazo podrá ser prorrogado por la Gerencia de Desarrollo Social, previa solicitud del interesado antes de su vencimiento.
@@ -2000,63 +2000,69 @@ f) Se niegue a suministrar información administrativa solicitada por alguna dep
 g) No cuente con la acreditación del Ministerio de Salud o el documento que se determine entre la JPS y el ente rector.
 Esta medida debe ser emitida por escrito, estar motivada y constituye una prevención para la organización para que, en un plazo de dos meses, subsane o corrija el motivo que impide el giro de los recursos. Si transcurre el plazo conferido y la organización no cumple con lo prevenido, el Departamento de Gestión Social deberá comunicar lo pertinente al Gerente de Desarrollo Social, para que se remita el caso a la Junta Directiva. Este órgano valorará la procedencia de decretar la apertura del procedimiento administrativo para determinar si procede la exclusión de la organización como beneficiaria y la suspensión de la entrega de recursos.
 En casos debidamente justificados, la GDS podrá otorgar prórroga para el cumplimiento de los requisitos.
-CAPÍTULO IV
-Lineamientos para el giro de recursos a la Asociación Gerontológica Costarricense
-a. Del destino de los recursos
-Los programas, rubros o proyectos que se financien con los recursos correspondientes al inciso t) del artículo 8) de la Ley No. 8718, deben orientarse a la promoción de una vejez digna, activa y participativa, según las políticas y disposiciones definidas por el Consejo Nacional de la Persona Adulta Mayor (CONAPAM).
-AGECO debe garantizar que la población adulta mayor que participa en los programas que financia la Junta de Protección Social, tendrán acceso gratuito a los mismos.
+(*) CAPÍTULO IV
+Lineamientos para el giro de recursos
+a la Asociación Gerontológica Costarricense
+a. Del destino de los recursos. Los programas, rubros o proyectos que se financien con los recursos correspondientes al inciso t) del artículo 8) de la Ley N° 8718, deben orientarse a la promoción de una vejez digna, activa y participativa, según las políticas y disposiciones definidas por el Consejo Nacional de la Persona Adulta Mayor (CONAPAM). AGECO debe garantizar que la persona adulta mayor que quiera participar en los programas que se financian con los recursos que transfiere la Junta de Protección Social, y no cuenten con los medios económicos para pagar su costo, tengan acceso gratuito o subvencionado a los mismos.
+Toda persona adulta mayor que requiera de sus servicios debe ser atendida y aquellos casos que su situación económica sea una limitante para acceder de manera adecuada, debe realizarse un estudio socioeconómico que lo determine y que además indique si es necesaria una subvención o beca, entendiéndose como:
+Beca cobertura parcial o total de los costos por parte de AGECO con el otorgamiento de un monto para que la persona se ayude a cubrir materiales requeridos, transporte u otros para su acceso y pleno disfrute del servicio.
+Subvención acceso gratuito o con pago parcial de los servicios que brinda AGECO.
+AGECO deberá definir el procedimiento a utilizar para otorgar dichos beneficios a las personas que lo requieran y mantener actualizado el programa de subvenciones y becas, en el cual debe definir el procedimiento a utilizar para otorgar dichos beneficios a las personas adultas mayores que lo requieran.
+Adicionalmente AGECO deberá informar en la liquidación que presenta a la JPS, la cantidad de personas que se beneficiaron con dicho programa y especificar el beneficio otorgado.
 El uso de los recursos girados a AGECO, estará sujeto a los lineamientos y disposiciones que se incluyan en el convenio que anualmente debe suscribir esta organización.
-b. Requisitos para el giro de los recursos
-Para el giro de los recursos, además, de suscribir el convenio anual que para tal efecto disponga la Junta, AGECO deberá presentar la documentación señalada a continuación:
+b. Requisitos para el giro de los recursos. Para el giro de los recursos, además, de suscribir el convenio anual que para tal efecto disponga la Junta, AGECO deberá presentar la documentación señalada a continuación:
 1. Certificación de Personería jurídica al día.
 2. Copia de Estatutos vigentes.
-3. Copia de los Estados Financieros certificados. *
-4. Copia del plan de trabajo y presupuesto anual, donde incorpore el uso que se dará a los recursos asignados según la Ley No. 8718*
-5. Declaración de que se cuenta con la organización administrativa adecuada para desarrollar el programa o proyecto, de manera eficiente y eficaz;
-6. Declaración de que el programa o proyecto será ejecutado bajo su exclusiva responsabilidad y que los gastos que se consignan en el presupuesto no han sido ejecutados ni existen sobre ellos compromisos legales de ninguna naturaleza.
-7. Estar al día con el pago de las cuotas obrero-patronales ante la CCSS.
+3. Copia de los Estados Financieros certificados.
+4. Copia del plan de trabajo y presupuesto anual, donde incorpore el uso que se dará a los recursos asignados según la Ley N° 8718*.
+5. Declaración de que se cuenta con la organización administrativa adecuada para desarrollar el programa o proyecto, de manera eficiente y eficaz.
+6. Declaración de que el programa o proyecto será ejecutado bajo su exclusiva responsabilidad y que los gastos que se consignan en el presupuesto no han sido ejecutados ni existen sobre ellos compromisos legales de ninguna naturaleza. 7. Estar al día con el pago de las cuotas obrero-patronales ante la CCSS.
 8. Suscribir el convenio anual que regula la utilización de los fondos establecidos en la Ley No. 8718 y cumplir con las obligaciones que el mismo establece.
-9. Otros que indique la Contraloría General de la República para optar por la transferencia de fondos sin contraprestación alguna (Circulares No. 14299 y 14300 y sus reformas).
-*Requisitos que deben presentarse en el mes de enero de cada año, el resto de documentación solo en caso de vencimiento.
-c. Rubros de gastos autorizados.
-Para la determinación de los gastos autorizados se deberá atender lo dispuesto en lo siguiente:
-Alimentación.
-Alimentos y bebidas para el consumo de los beneficiarios que participan en las distintas actividades que organiza la asociación.
-1. Planta Física.
-a. Mantenimiento de planta física en inmuebles inscritos a nombre de la organización en los cuales se desarrollen actividades dirigidas a los beneficiarios.
+9. Otros que indique la Contraloría General de la República para optar por la transferencia de fondos sin contraprestación alguna. (Normas Técnicas sobre el presupuesto de los beneficios patrimoniales otorgados mediante transferencia del Sector Público a Sujetos Privados R-DC-00122-2019. Contraloría General de la República del 2019.)
+*Requisitos que deben presentarse como máximo el 28 de febrero de cada año, el resto de documentación solo en caso de vencimiento.
+c. Rubros de gastos autorizados. Para la determinación de los gastos autorizados se deberá atender lo dispuesto en lo siguiente:
+1. Alimentación. Alimentos y bebidas para el consumo
+de los beneficiarios que participan en las distintas
+actividades que organiza la asociación.
+2. Planta Física.
+a. Mantenimiento de planta física en inmuebles inscritos a nombre de la organización en los cuales se
+desarrollen actividades dirigidas a los beneficiarios.
 b. Seguridad del inmueble, instalación de dispositivos de seguridad, pólizas de incendio, robo y desastres naturales.
 c. Alquiler de locales para brindar un servicio determinado a los beneficiarios.
 d. Construcciones, adiciones y mejoras.
-e. Compra de lote. Para lo que dispone de hasta un 10% del total de recursos que se reciben anualmente
+e. Compra de lote. Para lo que dispone de hasta un 10% del total de recursos recibidos que se reciben anualmente.
 f. Compra y recarga de extintores contra incendios.
-2. Sensibilización y educación hacia la población.
-Realización de cursos, talleres, foros, conferencias, conversatorios, además: campañas, impresos y publicaciones en medios de comunicación y otras actividades dirigidas a promover el envejecimiento activo y productivo, que potencien la vejez digna, activa y participativa.
-3. Gastos administrativos.
-Útiles, materiales y suministros de oficina y artículos de limpieza.
-4. Servicios públicos.
-Pago de recibos de agua, luz, teléfono (llamadas nacionales hasta un máximo del equivalente a $750 según el tipo de cambio de referencia del Banco Central de Costa Rica). Servicios municipales, impuestos territoriales, internet (hasta un máximo del equivalente a $1500 según el tipo de cambio de referencia del Banco Central de Costa Rica), no se autoriza el pago de teléfonos móviles.
-5. Seguros.
-Pago de pólizas por riesgos profesionales y responsabilidad civil únicamente del personal pagado con recursos de la Junta de Protección Social y responsabilidad civil para personas beneficiarias.
-6. Menaje.
-Compra y/o alquiler de mobiliario y equipo requerido para la atención directa de los beneficiarios.
-7. Textiles y vestuario.
-Compra de todo tipo de hilados, tejidos de fibras artificiales y naturales, para grupos representativos de la organización.
-8. Capacitación en el país.
-Cursos de corto plazo dentro del país para beneficiarios y personal de atención directa siempre que éstos tiendan a mejorar el desempeño en la atención directa.
-Becas para personas adultas mayores a efecto de que participen en actividades educativas, formativas, recreativas, culturales y artísticas, para lo cual AGECO deberá contar con un reglamento de becas.
+3. Sensibilización y educación hacia la población.
+Realización de:
+a. Cursos, talleres, foros, conferencias y conversatorios.
+b. Campañas, impresos y publicaciones en medios de comunicación.
+c. Otras actividades dirigidas a promover el envejecimiento activo y productivo, que potencien la vejez digna, activa y participativa.
+4. Gastos administrativos. Útiles, materiales y suministros de oficina y artículos de limpieza.
+5. Servicios públicos. Pago de recibos de agua, luz, teléfono (llamadas nacionales hasta un máximo del equivalente a $750 mensuales según el tipo de cambio de referencia del Banco Central de Costa Rica). Internet (hasta un máximo del equivalente a $1500 mensuales, según el tipo de cambio de referencia del Banco Central de Costa Rica), no se autoriza el pago de teléfonos móviles. Servicios municipales, impuestos territoriales.
+6. Seguros. Pago de pólizas por riesgos profesionales y responsabilidad civil únicamente del personal pagado con recursos de la Junta de Protección Social y responsabilidad civil para personas beneficiarias.
+7. Menaje. Compra y/o alquiler de mobiliario y equipo requerido para la atención directa de los beneficiarios.
+8. Textiles y vestuario. Compra de todo tipo de hilados, tejidos de fibras artificiales y naturales, para grupos representativos de la organización.
+9. Capacitación en el país. Cursos de corto plazo dentro del país para beneficiarios y personal de atención directa siempre que éstos tiendan a mejorar el desempeño en la atención directa.
+Becas completas o parciales, para personas
+adultas mayores a efecto de que participen en actividades educativas, formativas, recreativas, culturales y artísticas, para lo cual AGECO deberá contar con un reglamento de becas donde se establezca el procedimiento y los requisitos para su aprobación.
 Material didáctico y literatura, además, el diseño y desarrollo de plataformas virtuales para la capacitación en línea.
-9. Recreación y actividades ocupacionales: Todo lo referente a las actividades recreativas y ocupacionales que se realizan con los beneficiarios de los programas.
-10. Transporte y viáticos dentro del país.
-Viáticos del personal de atención directa pagado con recursos de la Junta de Protección Social y de las personas adultas mayores que colaboran en el desarrollo de las actividades de las organizaciones únicamente dentro del territorio nacional conforme con la tabla de viáticos autorizada por la Contraloría General de la República.
+10. Recreación y actividades ocupacionales. Todo lo referente a las actividades recreativas y ocupacionales que se realizan con los beneficiarios de los programas.
+11. Transporte y viáticos dentro del país. Viáticos del personal de atención directa pagado con recursos de la Junta de Protección Social y de las personas adultas mayores que colaboran en el desarrollo de las actividades de las organizaciones únicamente dentro del territorio nacional conforme con la tabla de viáticos autorizada por la Contraloría General de la República.
 Combustible, mantenimiento, marchamos, revisión técnica, pólizas que garanticen la protección de usuarios, terceros y del propio vehículo, para vehículos adquirido con recursos de la Junta de Protección Social que sean de uso del personal de atención directa y personas adultas mayores que colaboran con el programa y/o acompañan al personal. AGECO deberá contar con normas de control para el uso de los vehículos.
 Las multas por infracciones de tránsito y/o condenatorias judiciales no pueden ser cubiertas con recursos de la Junta de Protección Social.
 Se autoriza la compra de un vehículo para la atención directa de los beneficiarios, previa autorización de la Junta Directiva de la Junta de Protección Social. Para la solicitud de compra de un nuevo vehículo deberán de haber transcurrido al menos 5 años contados a partir de la compra del anterior vehículo, en casos calificados podrá a criterio de la Junta Directiva de la Junta de Protección Social disminuirse el plazo a 3 años.
-11. Pago de salarios y contrataciones por servicios profesionales para la atención directa de los beneficiarios, hasta un 50% del ingreso total. Incluye gastos en campos legal y contable únicamente cuando dicha erogación sea necesaria para obtener apoyo económico de instituciones públicas.
-d. Sobre la obligación de presentar informes
-En el mes de enero de cada año, AGECO debe presentar un informe que considere los siguientes aspectos:
+12. Pago de salarios y contrataciones por servicios profesionales. Para la atención directa de los beneficiarios, hasta un 50% del ingreso total. Incluye gastos en campos legal y contable únicamente cuando dicha erogación sea necesaria para obtener apoyo económico de instituciones públicas.
+d. Sobre la obligación de presentar informes. En el mes de enero de cada año, AGECO debe presentar un informe que considere los siguientes aspectos:
 - Evaluación del efecto de los programas o proyectos financiados con los recursos de la Ley No. 8718 ante el Departamento de Gestión Social.
 - Rendición de cuentas sobre el cumplimiento de las metas propuestas en el Plan de Trabajo para el ejercicio fiscal, ante el Departamento de Gestión Social.
 - Liquidación de la utilización de recursos ante la Unidad de Fiscalización de Recursos Transferidos.
+Glosario:
+Gratuito: que se hace o se recibe sin cobrar o pagar por ello.
+Subvención: acción y resultado de subvenir. Pagar los gastos ocasionados por una persona o una cosa.
+Beca: cantidad de dinero que recibe una persona para pagar los gastos que le supone cursar unos estudios, realizar una investigación, preparar una actividad deportiva u otra similar.
+b) Se solicita a la Gerencia General tramitar la publicación de esta modificación en el Diario Oficial La Gaceta.
+c) Se le solicita a la Gerencia Desarrollo Social que, una vez sea publicado el nuevo texto del Capítulo IV Lineamientos para el giro de recursos a la Asociación Gerontológica Costarricense, Manual de Criterios para la Distribución de Recursos según Ley 8718, sea socializado con AGECO y se suba a la página Web institucional, así como socializar con el Departamento de Gestión Social y Unidad de Fiscalización de Recursos Transferidos para su conocimiento y aplicación. Acuerdo firme.
+(*)(Así reformado el capítulo iv) anterior mediante sesión ordinaria N° 07-2022 del 07 de febrero de 2022)
 CAPÍTULO V
 Lineamientos para el giro de fondos a instituciones públicas indicadas en los
 artículos 8) y 13) de la Ley No. 8718
@@ -2084,7 +2090,7 @@ Deberán ser utilizados para financiar programas sin fines de lucro que benefici
 - Hogares Crea para los programas de atención de farmacodependencia.
 1) Las personas que se beneficien de los servicios que brinden las organizaciones financiadas con los recursos aportados por la Junta, no deben pagar por el disfrute de estos.
 2) En cuanto al pago de salarios o servicios profesionales, se puede incluir únicamente el del recurso humano necesario para brindar el servicio de atención directa a los beneficiarios y no se pueden incluir salarios del personal administrativo.
-En el caso de la Asociación Costarricense para el Tamizaje y la Prevención de Discapacidades en el Niño, se permite el pago de personal de atención directa, así como aquel considerado “administrativo”, siempre y cuando se justifique debidamente su necesidad para la prestación de sus servicios.
+En el caso de la Asociación Costarricense para el Tamizaje y la Prevención de Discapacidades en el Niño, se permite el pago de personal de atención directa, así como aquel considerado "administrativo", siempre y cuando se justifique debidamente su necesidad para la prestación de sus servicios.
 3) En caso de incurrir en gastos por concepto de viáticos para los beneficiarios y el personal que los acompaña, deberán regirse por la tabla de viáticos aprobada por la Contraloría General de la República. No se pueden cubrir viáticos fuera del territorio nacional.
 b. Requisitos previos al giro.
 Para el giro de recursos, estas organizaciones privadas además de suscribir el convenio que disponga anualmente la Junta deben cumplir con los siguientes requisitos:
@@ -2107,7 +2113,7 @@ Apoyo a la Gestión: Programa mediante el que se hacen transferencias de recurso
 Atención Directa: Atención individualizada que brinda el personal de la organización en procura de satisfacer las necesidades de las personas beneficiarias.
 Atención domiciliaria y/o ambulatoria: Se refiere al servicio que prestan organizaciones de atención a personas adultas mayores, a pacientes en fase terminal o a personas portadoras del virus VIH/SIDA, en su propio domicilio, como una extensión del programa. Como mínimo se brindan los servicios de atención de la salud, apoyo para la alimentación o compra de suplementos alimenticios y se integra a los servicios que brinda la organización. (Ministerio de Salud-CCSS).
 Atención domiciliaria (PAM): Se refiere al servicio que prestan organizaciones a personas adultas mayores, en su propio domicilio. Se pueden brindar los servicios de terapia física, enfermería, psicología, trabajo social, apoyo para la alimentación o compra de suplementos alimenticios y se integra a los servicios que brinda la organización. (Norma para la habilitación de servicios residenciales de atención integral a la persona adulta mayor)
-Atención Integral: Conjunto de actividades tendientes a brindarles a las personas menores de edad, atención en salud, educación, formación permanente y atención terapéutica cuando sea necesario, con el fin de asegurarles gozar de mayores niveles de autonomía, participación, protección y cuidado, así como el máximo disfrute de sus derechos cuando residan tanto en el seno de sus familias, como en establecimientos especialmente creados para su atención y cuidado. (PANI, Reglamento para transferencia, uso, control y liquidación de recursos girados a sujetos privados…). (Ente rector/Departamento de Gestión Social).
+Atención Integral: Conjunto de actividades tendientes a brindarles a las personas menores de edad, atención en salud, educación, formación permanente y atención terapéutica cuando sea necesario, con el fin de asegurarles gozar de mayores niveles de autonomía, participación, protección y cuidado, así como el máximo disfrute de sus derechos cuando residan tanto en el seno de sus familias, como en establecimientos especialmente creados para su atención y cuidado. (PANI, Reglamento para transferencia, uso, control y liquidación de recursos girados a sujetos privados.). (Ente rector/Departamento de Gestión Social).
 Atención Integral para personas adultas mayores: Satisfacción de las necesidades físicas, materiales, biológicas, emocionales, sociales, laborales, productivas y espirituales de las personas adultas mayores. Para facilitarles una vejez plena y sana, se considerarán sus hábitos, capacidades funcionales y preferencias. (Ley Integral para la Persona Adulta Mayor; Ley n°7935, Capítulo II, artículo 2)
 Casa Cuna: Programa desarrollado por la Dirección General de Adaptación Social, en un Centro Penitenciario de Mujeres, con el fin de permitir la permanencia de los hijos e hijas menores de tres años con sus madres
 Caso fortuito: Corresponde a un hecho humano que impide el cumplimiento de una obligación, que se constituye en un evento imprevisible aún bajo una conducta diligente.
@@ -2157,11 +2163,11 @@ Personas Menores de edad en condición de Vulnerabilidad: Niños, niñas y adole
 Recursos económicos familiares muy limitados para atender las necesidades básicas. Estructurales y sociales del entorno que implican riesgo para el adecuado desarrollo de las personas menores de edad. De salud graves tales como enfermedades terminales, degenerativas, progresivas, neurológicas no progresivas, por las que requieran el apoyo deuna unidad de cuidado paliativo pediátrico. (PANI/ Departamento de Gestión Social)."
 Personas Menores de edad en situación de Abandono: Niños, niñas y adolescentes menores de 18 años, que carecen de padre y madre responsables de su cuidado y manutención; sea huérfano de padre y madre y no se encuentre bajo tutela; se halle en riesgo social debido a la insatisfacción de sus necesidades básicas, materiales, morales, jurídicas y psico-afectivas, a causa de negligencia por parte de quienes ejercen legalmente los derechos y los deberes inherentes a la patria potestad.
 Plan de inversión: se refiere al objeto de atención al cual se destinarán los recursos. El destino de los recursos deberá ser congruente con los rubros autorizados en este Manual para cada modalidad de atención: Programa de Apoyo a la Gestión, Programa de Atención de Necesidades Específicas y Proyectos Específicos.
-Población privada de libertad: Se refiere a la población penal menor de edad femenina y masculina, que están en ejecución de una sanción, medida o sentencia definida por alguna autoridad judicial, bajo la atención, control y seguimiento de la Dirección General de Adaptación Social. Para ello la institución cuenta con: Programa Institucional, ProgramaSemi-institucional (…) y Población Penal Juvenil.
+Población privada de libertad: Se refiere a la población penal menor de edad femenina y masculina, que están en ejecución de una sanción, medida o sentencia definida por alguna autoridad judicial, bajo la atención, control y seguimiento de la Dirección General de Adaptación Social. Para ello la institución cuenta con: Programa Institucional, ProgramaSemi-institucional (.) y Población Penal Juvenil.
 Productos y servicios de apoyo: dispositivos, equipos, instrumentos, tecnologías, software y todas aquellas acciones y productos diseñados o disponibles en el mercado para propiciar la autonomía personal de las personas con discapacidad (Ley 9379 para la Promoción de la Autonomía Personal de las Personas con Discapacidad).
 Programa de Atención de Necesidades Específicas: Programa dirigido a apoyar con recursos adicionales, a las organizaciones que reciben recursos para Apoyo a la Gestión, de modo que puedan atender en forma ágil y oportuna la reposición y/o adquisición de mobiliario, equipo (incluye vehículo) y material didáctico, entre otros, así como obras de mantenimiento y mejoras de planta física.
 Programa de prevención: Aquellos ejecutados con el objetivo de promover acciones para la prevención y detección temprana del cáncer, prevención del alcoholismo, farmacodependencia, enfermedades de transmisión sexual y VIH-sida, explotación sexualcomercial, el abuso y el maltrato infantil. Departamento de Gestión Social
-Programas especializados en atención y prevención dirigidos a personas con VIH y grupos vulnerables: establecidos en el Plan Estratégico Nacional de VIH y sida, con el objetivo de disminuir la incidencia de VIH y las enfermedades de transmisión sexual, a través de la atención, información, educación y comunicación para la promoción decondiciones, comportamientos y actitudes saludables y de la prevención en el marco de los derechos humanos, y con un enfoque de equidad, género – generacional y diversidad sexual. Ministerio de Salud/Departamento Gestión Social.
+Programas especializados en atención y prevención dirigidos a personas con VIH y grupos vulnerables: establecidos en el Plan Estratégico Nacional de VIH y sida, con el objetivo de disminuir la incidencia de VIH y las enfermedades de transmisión sexual, a través de la atención, información, educación y comunicación para la promoción decondiciones, comportamientos y actitudes saludables y de la prevención en el marco de los derechos humanos, y con un enfoque de equidad, género - generacional y diversidad sexual. Ministerio de Salud/Departamento Gestión Social.
 Programas de Protección Especial Residencial con o sin énfasis en tratamiento: albergues donde se brinda atención integral a las personas menores de edad separadas de sus núcleos familiares debido a la violación de sus derechos, brindando atención integral en cuidado diario, salud, recreación, educación y atención profesional. PANI.
 Programas Especializados: Programas de atención residencial de niñas, niños y adolescentes con problemática que requiere trato especializado, por ejemplo, adicción a drogas, alcohol, o bien menores con discapacidad. Igualmente se consideran especializados los programas de atención residencial dedicados a la capacitación de menores en condiciones de vulnerabilidad.
 Programas Hogar Escuela: Centros de atención diurna a niños, niñas mayores de 6 años, y adolescentes menores 18 años, que cursan la educación primaria o secundaria y que necesitan apoyo académico en las horas extraescolares, que se consideren programas de prevención del abandono y del riesgo social. Ente Rector/ Departamento de Gestión Social.

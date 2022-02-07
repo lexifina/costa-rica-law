@@ -14,3 +14,4 @@ Manual de criterios para la distribución de recursos de la Ley N° 8718 (Artíc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-15 | la propia norma |
+| 2 | 2022-02-07 | Reglamento 7 (2022-02-07) |
