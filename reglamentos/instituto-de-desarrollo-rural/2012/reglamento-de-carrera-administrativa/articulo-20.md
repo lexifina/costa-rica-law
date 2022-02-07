@@ -1,1 +1,0 @@
-Artículo 20.—La decisión adoptada por la Presidencia Ejecutiva en relación a los beneficios solicitados o en caso de inconformidad, o la resolución de la reconsideración interpuesta por el interesado dará por agotada la vía administrativa.

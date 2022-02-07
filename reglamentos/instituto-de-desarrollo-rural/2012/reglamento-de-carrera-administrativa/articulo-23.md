@@ -1,1 +1,0 @@
-Artículo 23.—Del período para realizar las pruebas médicas. Luego de analizados los atestados y de valorados los factores relacionados al régimen disciplinario, antigüedad y experiencia, así como las pruebas teórico-prácticas se realizarán las pruebas de aptitud médica para el cargo.

@@ -1,1 +1,0 @@
-Artículo 17.—Quórum. La Comisión podrá sesionar válidamente con cuatro de sus miembros, que corresponden al número de los miembros propietarios o suplentes presentes. Para tal efecto, al menos dos de sus miembros deben ser representantes por la Administración y dos miembros de la representación sindical.
