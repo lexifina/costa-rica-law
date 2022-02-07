@@ -1,2 +1,0 @@
-Artículo 42.- Podrá concederse licencia hasta por una semana con goce de sueldo, en caso de matrimonio del servidor , o fallecimiento de cualquiera de sus padres, hijos, hermanos o cónyuge.
-Todos los demás permisos con goce de sueldo que de concedieren, serán deducidos del período de vacaciones, sin que el número de días de licencia pueda exceder el número de días de vacación que corresponden al servidor al momento de otorgarse el permiso, salvo disposición en contrario conforme el caso del Estatuto de Servicio Civil, su Reglamento y Código de Trabajo.

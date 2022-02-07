@@ -1,2 +1,0 @@
-Artículo 20.—Corresponde al Prosecretario General:
-1) Sustituir al Secretario General en sus ausencias. Colaborar con él en el ejercicio de sus funciones. Llevar el control y distribución de los asuntos sometidos a estudio de los funcionarios de la Institución. Proveer a las oficinas de la utilería indispensable, y custodiarla. Atender el índice de Escrituras. Atender y custodiar el archivo general de la Institución.

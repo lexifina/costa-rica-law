@@ -1,2 +1,0 @@
-Artículo 27.—La Procuraduría podrá modificar transitoriamente los horarios anteriores, siempre que circunstancias especiales así lo exijan y no se cause grave perjuicio a los trabajadores. En este caso la Institución dará aviso a los trabajadores afectados con un mínimo de tres días de anticipación.
-La modificación definitiva de los horarios deberá ser sometida previamente al trámite de aprobación por parte de la División de Asesoría Jurídica del Ministerio de Trabajo y Seguridad Social.

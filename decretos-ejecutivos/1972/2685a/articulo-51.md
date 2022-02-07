@@ -1,2 +1,0 @@
-Artículo 51.- El presente Reglamento no perjudica los derechos adquiridos de los trabajadores y previa aprobación de la División de Asesoría Jurídica del Ministerio de Trabajo y Seguridad Social, entrará en vigencia quince días después de haber sido puesto en conocimientos de los trabajadores.
-Para los efectos del artículo 67 del Código de Trabajo , sen tendrá colocado permanentemente por lo menos en dos de los sitios más visibles del centro de trabajo.

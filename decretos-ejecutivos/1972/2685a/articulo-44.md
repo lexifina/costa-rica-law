@@ -1,1 +1,0 @@
-Artículo 44.- La amonestación verbal se aplicará cuando el trabajador cometa alguna falta leve a sus obligaciones expresas o tácitas que le impone el contrato de trabajo y en los demás casos previstos por este Reglamento.
