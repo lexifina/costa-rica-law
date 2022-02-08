@@ -7,7 +7,7 @@ Junta Directiva Fondos de Inversión, sesión 24-10, artículo IV del 25 de octu
 Aprobaron la Política institucional contra el hostigamiento sexual en el conglomerado BCR y el Reglamento contra el hostigamiento sexual en el conglomerado BCR.
 Aprobaron la Política institucional contra el hostigamiento sexual en el conglomerado BCR y el Reglamento contra el hostigamiento sexual en el conglomerado BCR.
 (Corregido los párrafos anteriores mediante Fe de Erratas y publicada en La Gaceta N° 251 del 27 de diciembre de 2010)
-(Nota de Sinalevi: Por tener articulado propio la “Política institucional contra el hostigamiento sexual en el conglomerado BCR”, pueden consultarse en el sistema de forma independiente)
+(Nota de Sinalevi: Por tener articulado propio la "Política institucional contra el hostigamiento sexual en el conglomerado BCR", pueden consultarse en el sistema de forma independiente)
 Reglamento contra el hostigamiento
 sexual en el conglomerado BCR
 Propósito. El propósito de este Reglamento es prevenir, prohibir y sancionar el hostigamiento sexual como práctica contra la dignidad, integridad y bienestar de todos los servidores del conglomerado BCR.
@@ -32,7 +32,8 @@ La víctima siempre debe ser considerada como parte del proceso.
 Principio pro víctima: implica que, en caso de duda, se interpretará en favor de la víctima.
 Persona denunciada: a quien se le atribuye una presunta conducta constitutiva de hostigamiento sexual.
 Órgano decisor: el órgano competente para dictar el acto final del procedimiento disciplinario. El gerente general del BCR o la Junta Directiva General, de conformidad con su competencia, para el caso del Banco; el gerente o la Junta Directiva de cada subsidiaria, de acuerdo con su competencia.
+(Nota de Sinalevi: Esta norma fue reformada parcialmente y reproducido su texto en forma íntegra en sesión 05-22 del 8 de febrero del 2022 y publicada en La Gaceta N° 34 del 21 de febrero del 2022, por lo que se reproduce a continuación:)
 CAPÍTULO I
 Fundamento, objetivo y manifestaciones
-Artículo 1º—Principios rectores. Este Reglamento se basa en los principios constitucionales del respeto por la libertad y la vida humana, el derecho al trabajo y el principio de igualdad ante la ley.
+Artículo 1°—Principios rectores. Este Reglamento se basa en los principios constitucionales del respeto por la libertad y la vida humana, el derecho al trabajo y el principio de igualdad ante la ley.
 Además, se fundamenta en el principio de no discriminación por razones de género, en especial, la erradicación de la discriminación contra la mujer, en cualquiera de sus formas, con el fin de combatir, prevenir, sancionar y erradicar la violencia contra la mujer, de conformidad con la Convención de las Naciones Unidas sobre la eliminación de todas las formas de discriminación contra la mujer y la Convención Interamericana para prevenir, sancionar y erradicar la violencia contra la mujer.

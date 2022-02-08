@@ -14,3 +14,4 @@ Reglamento contra el hostigamiento sexual en el conglomerado BCR
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-09 | la propia norma |
+| 2 | 2022-02-08 | Reglamento 5 (2022-02-08) |

@@ -1,1 +1,1 @@
-Artículo 12.—Prohibición de conciliar en sede administrativa. En materia de acoso u hostigamiento sexual queda prohibida la aplicación de la figura de la conciliación en la sede administrativa del conglomerado BCR.
+Artículo 12. Prohibición de conciliar en sede administrativa. En materia de acoso u hostigamiento sexual queda prohibida la aplicación de la figura de la conciliación en la sede administrativa del Conglomerado Financiero BCR.

@@ -4,6 +4,6 @@ b. Que la persona denunciada se abstenga de interferir en el uso y disfrute de l
 c. La reubicación laboral de la presunta persona hostigadora.
 d. La permuta del cargo.
 e. Excepcionalmente, la separación temporal del cargo con goce de salario.
-En la aplicación de las medidas cautelares deberán respetarse los derechos laborales de los obligados a la disposición preventiva, pudiendo ser aplicadas a ambas partes de la relación procesal, debiendo procurarse mantener la seguridad de la víctima, fundamentalmente.
-Las medidas cautelares deberán resolverse de manera prevalente y con carácter de urgencia en un plazo no mayor de 48 horas a partir de su solicitud. La vigencia será determinada por su instrumentalidad para el proceso.
+En la aplicación de las medidas cautelares deben respetarse los derechos laborales de los obligados a la disposición preventiva, pudiendo ser aplicadas a ambas partes de la relación procesal, debiendo procurarse mantener la seguridad de la víctima, fundamentalmente.
+Las medidas cautelares se deben resolver de manera prevalente y con carácter de urgencia en un plazo no mayor de 48 horas a partir de su solicitud. La vigencia será determinada por su instrumentalidad para el proceso.
 La resolución del superior carecerá de ulterior recurso, excepto el de adición o aclaración.
