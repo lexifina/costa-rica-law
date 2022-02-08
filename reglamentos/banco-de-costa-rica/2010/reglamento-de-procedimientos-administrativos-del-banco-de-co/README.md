@@ -15,3 +15,4 @@ Reglamento de Procedimientos Administrativos del Banco de Costa Rica
 | --- | --- | --- |
 | 1 | 2011-03-11 | la propia norma |
 | 2 | 2012-11-30 | Reglamento 0 (2012-11-30) |
+| 3 | 2022-02-08 | Reglamento 23 (2010-11-01) |

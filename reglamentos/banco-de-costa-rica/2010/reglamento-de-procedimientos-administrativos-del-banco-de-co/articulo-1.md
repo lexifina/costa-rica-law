@@ -1,4 +1,5 @@
 BANCO DE COSTA RICA
+(Nota de Sinalevi: Mediante el artículo 43 del Reglamento contra el hostigamiento sexual en el conglomerado BCR, aprobado en sesión N° 23 del 1° de noviembre de 2010, se acordó derogar en su totalidad la Sección II denominada Del Procedimiento en caso de quejas o denuncias por acoso u hostigamiento sexual del Capítulo II del presente reglamento. No obstante; al no tener sección II el capítulo II, no se puedo realizar la respectiva abrogación)
 La Junta Directiva General del Banco en sesión Nº 61-10, artículo V del 20 de diciembre del 2010, y sesión Nº 05-11, artículo VII del 7 de febrero del 2011, aprobó el siguiente documento:
 (Nota de Sinalevi: El texto de este reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en el Alcance Digital N° 201 de La Gaceta N° 239 del 11 de diciembre del 2012 y se transcribe a continuación:)
 Reglamento de Procedimientos Administrativos del Banco de Costa Rica
