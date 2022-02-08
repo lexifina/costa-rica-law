@@ -1,0 +1,1 @@
+Artículo 107. La Gestión de Saneamiento Ambiental, en coordinación con el Proceso de Embellecimiento de Parques y otros, deberán levantar un inventario de los sitios de disposición clandestinos, a fin de elaborar las políticas de control y erradicación de estas áreas.
