@@ -1,2 +1,0 @@
-5 CRITERIO PARA ORGANISMOS VALIDADORES VERIFICADORES DE GEI
-Debido a la necesidad de dar respuesta a los Organismos de Validación/Verificación (OV/V) para ampliar sus sectores acreditados y con la finalidad de no cerrar la oportunidad de nuevos OV/V, el ECA ha establecido criterios con base técnica en el Dictamen Jurídico ECA-AJ-2007-009 del 27 de julio del 2007 y están establecidos en el ECA-MC-C10.
