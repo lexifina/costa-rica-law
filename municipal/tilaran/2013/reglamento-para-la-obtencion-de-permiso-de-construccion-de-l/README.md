@@ -14,3 +14,4 @@ Reglamento para la Obtención de Permiso de Construcción de la Municipalidad de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-04 | la propia norma |
+| 2 | 2022-02-08 | Reglamento municipal 93 (2022-02-08) |
