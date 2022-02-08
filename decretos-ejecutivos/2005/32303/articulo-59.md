@@ -1,2 +1,2 @@
-Artículo 59.—El sistema de tuberías para cualquier tipo de servicios hidráulicos, eléctricos y similares deben ser impermeables; podrán ser o no forrados a criterio del diseñador de acuerdo con las especificaciones técnicas del fabricante y la legislación vigente en materia de seguridad estructural del edificio e instalaciones eléctricas, hidráulicas y sanitarias. Estos sistemas serán considerados como áreas comunes y deberán ser registrables desde áreas privadas o comunes.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41152 del 3 de mayo de 2018)
+Artículo 59.-Todas las obras que se vayan a realizar en las áreas comunes, deberán indicarse en forma clara y explícita en los planos que se tramitan para la aprobación oficial.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 49 al 59)

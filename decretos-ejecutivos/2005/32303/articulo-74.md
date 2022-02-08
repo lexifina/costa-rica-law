@@ -1,1 +1,2 @@
-Artículo 74.—La aprobación mencionada en el artículo anterior debe indicar además a nombre de quién o quienes se inscribirá la o las concesiones resultantes, así como cualquier modificación al contrato original de otorgamiento. Para su plena validez, dicho acuerdo deberá protocolizarse e inscribirse en la Sección de Concesiones del Registro Público.
+Artículo 74.-Las redes de telecomunicaciones y distribución eléctrica, podrán ser colocadas de forma aérea o mediante ductos subterráneos. En el caso de las redes eléctricas, éstas deben tener las respectivas cajas de registro, conforme al Código Nacional Eléctrico.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 64 al 74)

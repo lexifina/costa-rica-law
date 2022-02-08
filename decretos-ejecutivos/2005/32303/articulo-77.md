@@ -1,1 +1,4 @@
-Artículo 77.—La modificación de la cabida de una finca filial o de la totalidad de las fincas filiales que implique cambios sobre los porcentajes o en sus áreas comunes, deberá contar con la aprobación unánime de todos los condóminos y consignarse así en el libro respectivo de actas. Lo anterior deberá constar en un plano general que contenga el nuevo diseño así como las tablas de distribución y porcentajes, para lo cual deberán contar con el visado de las entidades competentes en los planos catastrados de cada finca filial.
+CAPÍTULO IX
+Acerca de la extinción del condominio
+Artículo 77.-En el caso de los condominios horizontales, ya sea por acuerdo unánime de condóminos, orden judicial o cualquier otro mecanismo legal, la desafectación del régimen de condominio deberá especificar claramente la nueva distribución y propiedad de la totalidad del inmueble, con fundamento en los planos individuales de las nuevas fincas, así como en el plano general confeccionado al efecto.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 67 al 77)

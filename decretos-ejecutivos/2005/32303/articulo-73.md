@@ -1,1 +1,2 @@
-Artículo 73.—En el caso de los bienes de dominio público otorgados en concesión y sometidos al régimen de propiedad en condominio, para su desafectación del régimen, deberá contarse además con la aprobación expresa del ente, institución y/o autoridad que autorizó la concesión.
+Artículo 73.-Los medidores y tableros de control eléctrico y de telecomunicaciones, deben ubicarse en un área común y en sitios de fácil acceso, con el propósito de que el Instituto Costarricense de Electricidad, la Compañía Nacional de Fuerza y Luz o la Empresa que brinde el servicio en el lugar, pueda proveer esos servicios.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 63 al 73)

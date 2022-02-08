@@ -1,2 +1,2 @@
-Artículo 58.—Los sistemas de agua potable, aguas residuales, aguas pluviales, instalaciones eléctricas, telecomunicaciones y cualquier otro sistema de servicios, deberán conducirse, cuando se trate de edificaciones a nivel de terreno, a través de áreas comunes; cuando se trate de condominios verticales deberán instalarse en ductos que pueden ser horizontales o verticales.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41152 del 3 de mayo de 2018)
+Artículo 58.-No se podrán colocar muros, verjas o setos que segreguen una porción del área común para el uso exclusivo de algún propietario, salvo cuando el proyecto del complejo contemple espacios de terreno para uso exclusivo de uno o más propietarios. Estas áreas mantendrán su calidad de bienes comunes de uso restringido.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 48 al 58)

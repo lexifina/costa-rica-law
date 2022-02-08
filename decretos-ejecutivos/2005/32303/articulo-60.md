@@ -1,8 +1,6 @@
-Artículo 60.—Los planos mecánicos referidos en el Capítulo III de este Reglamento deberán ajustarse a lo siguiente:
-a. Sistemas de agua potable: El agua potable deberá acceder al condominio por medio de acometidas generales. Hacia el interior de la propiedad, deberán hacerse las derivaciones necesarias para que cada finca filial, cuente con la suya propia y otra para las áreas de uso común.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41152 del 3 de mayo de 2018)
-b. Sistemas de aguas residuales: Cuando existan sistemas de colectores sanitarios generales en funcionamiento, la conexión desde el condominio a dicho sistema podrá ser única. La salida de cada finca filial del condominio deberá conectarse a un colector general interno, con registros individuales. En el caso de unidades de condominios con frente a la vía pública, la salida podrá realizarse directamente al colector público. Cuando no exista un sistema de colector público en funcionamiento, las salidas se conectarán a sistemas de tratamientos de aguas, ya sea individuales o colectivos para dos o más unidades del condominio. Dichos sistemas de tratamiento de aguas serán obligatorios y deberán cumplir con los requerimientos y características exigidas por el ordenamiento jurídico, incluyendo las regulaciones del Ministerio de Salud.
-c. Sistemas de aguas pluviales: En el caso de condominios horizontales de edificaciones, se podrán instalar tuberías para evacuar aguas pluviales bajo el piso de la misma finca filial.
-En el caso de condominios verticales, cuando existan patios internos, terrazas o azoteas en niveles superiores al terreno los mismos deberán conducirse según lo indicado en los artículos 58 y 59 del presente reglamento.
-(Así reformado el inciso c) anterior por el artículo 1° del decreto ejecutivo N° 41152 del 3 de mayo de 2018)
-d. Cumplir con la normativa referente a sistemas contra incendio.
+Artículo 60.-Para condominios mayores de treinta o más filiales, o de más de tres mil quinientos metros cuadrados, incluyendo el área de estacionamientos, se requerirá una caseta o local de vigilancia con un área mínima de seis metros cuadrados que incluya servicio sanitario y un área para la preparación de alimentos.
+(*)Para los casos de condominios de interés social, se aplicarán las siguientes reglas según corresponda:
+a. Una caseta o local de vigilancia para condominios horizontales y mixtos que cuenten con más de treinta filiales o bien, con un área superior a los tres mil quinientos metros cuadrados.
+b. Una caseta o local de vigilancia, para condominios verticales que cuenten con más de sesenta filiales.
+(*) (Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 41152 del 3 de mayo de 2018)
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 50 al 60)

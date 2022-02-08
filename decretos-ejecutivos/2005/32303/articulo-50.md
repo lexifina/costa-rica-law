@@ -1,5 +1,4 @@
-Artículo 50.—Para condominios mayores de treinta o más filiales, o de más de tres mil quinientos metros cuadrados, incluyendo el área de estacionamientos, se requerirá una caseta o local de vigilancia con un área mínima de seis metros cuadrados que incluya servicio sanitario y un área para la preparación de alimentos.
-(*)Para los casos de condominios de interés social, se aplicarán las siguientes reglas según corresponda:
-a. Una caseta o local de vigilancia para condominios horizontales y mixtos que cuenten con más de treinta filiales o bien, con un área superior a los tres mil quinientos metros cuadrados.
-b. Una caseta o local de vigilancia, para condominios verticales que cuenten con más de sesenta filiales.
-(*) (Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 41152 del 3 de mayo de 2018)
+CAPÍTULO VII
+Acerca de los derechos y obligaciones de los Condóminos
+Artículo 50-En el Reglamento de Condominio y Administración de cada condominio, podrán establecerse derechos y obligaciones adicionales para los condóminos a las establecidas en la Ley Reguladora de la Propiedad en Condominio y este Reglamento, en el entendido que éstas no pueden ser violatorias a dichas disposiciones legales o de alguna otra que sea aplicable y no se desnaturalice la posibilidad de uso y goce independiente de cada unidad privativa por parte de su propietario. Cuando se transmita la titularidad de las unidades, se debe entender siempre, conforme al artículo 34 de dicha Ley, que el adquirente conoce el Reglamento de Condominio y Administración propio de cada condominio sin que deba el notario dar fe de lo anterior.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 40 al 50)

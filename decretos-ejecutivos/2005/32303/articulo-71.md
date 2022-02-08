@@ -1,1 +1,2 @@
-Artículo 71.—En el caso de condominios verticales, horizontales, mixtos y/o combinados, que no cumplan con lo que señala el artículo anterior, la desafectación implicará la conversión de la totalidad del inmueble al régimen de propiedad tradicional. En estos casos la cabida del nuevo inmueble será la que señale el respectivo plano catastrado del terreno.
+Artículo 71.-Todo inmueble que se encuentre amparado a este reglamento y a la Ley Reguladora de la Propiedad en Condominio, deberá contar con redes para los servicios de telecomunicaciones y electricidad.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 61 al 71)

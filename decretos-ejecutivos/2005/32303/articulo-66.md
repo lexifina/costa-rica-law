@@ -1,1 +1,3 @@
-Artículo 66.—Las redes de telecomunicaciones y eléctricas antes mencionadas, deben ser construidas, de conformidad con las normas vigentes sobre la materia.
+Artículo 66.-En el condominio de condominios, el porcentaje para áreas verdes, parques, zonas recreativas y juegos infantiles se calculará de manera global, considerando tanto el área del condominio matriz inicial como el área de los condominios filiales matrices. De tal forma que la suma de los porcentajes de los condominios filiales matrices, aunada a la del condominio matriz inicial, cumplan con las disposiciones del artículo 54.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 42831 del 18 de enero del 2021)
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 56 al 66)

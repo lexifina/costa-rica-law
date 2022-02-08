@@ -1,3 +1,2 @@
-CAPÍTULO XII
-De las sanciones administrativas
-Artículo 81.—Al incumplimiento a lo dispuesto en el capítulo octavo del presente reglamento, se le aplicarán, dependiendo del caso en particular, las sanciones correspondientes contenidas en la Ley de Construcciones, Ley General de Salud, Ley de Igualdad de Oportunidades para las Personas con Discapacidad, Ley Orgánica del Ambiente, Ley de Aguas, Ley Forestal y cualesquiera otra normativa sobre la materia.
+Artículo 81.-En el caso de condominios verticales, horizontales, mixtos y/o combinados, que no cumplan con lo que señala el artículo anterior, la desafectación implicará la conversión de la totalidad del inmueble al régimen de propiedad tradicional. En estos casos la cabida del nuevo inmueble será la que señale el respectivo plano catastrado del terreno.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 71 al 81)

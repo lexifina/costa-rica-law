@@ -17,3 +17,4 @@ Reglamento a la Ley Reguladora de la Propiedad en Condominio
 | 2 | 2008-06-06 | Decreto Ejecutivo 34708 (2008-06-06) |
 | 3 | 2018-05-03 | Decreto Ejecutivo 41152 (2018-05-03) |
 | 4 | 2021-01-18 | Decreto Ejecutivo 42831 (2021-01-18) |
+| 5 | 2022-02-08 | Decreto Ejecutivo 43511 (2022-02-08) |

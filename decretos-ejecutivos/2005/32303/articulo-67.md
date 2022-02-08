@@ -1,3 +1,2 @@
-CAPÍTULO IX
-Acerca de la extinción del condominio
-Artículo 67.—En el caso de los condominios horizontales, ya sea por acuerdo unánime de condóminos, orden judicial o cualquier otro mecanismo legal, la desafectación del régimen de condominio deberá especificar claramente la nueva distribución y propiedad de la totalidad del inmueble, con fundamento en los planos individuales de las nuevas fincas, así como en el plano general confeccionado al efecto.
+Artículo 67.-Las instalaciones mecánicas como ascensores, bombas elevadoras de agua y afines, que produzcan ruidos que sean molestos para los moradores de la edificación, deberán contar con el aislamiento acústico necesario para que el ruido quede confinado y se instalarán en condiciones que impidan la transmisión de trepidaciones. Su ubicación e instalación deberá hacerse en áreas comunes.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 43511 del 8 de febrero de 2022, que lo traspaso del antiguo artículo 57 al 67)
