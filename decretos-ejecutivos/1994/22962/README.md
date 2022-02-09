@@ -16,3 +16,4 @@ Declara Refugio Nacional de Vida Silvestre al corredor fronterizo conformado por
 | 1 | 1994-03-09 | la propia norma |
 | 2 | 1994-04-20 | Decreto Ejecutivo 23248 (1994-04-20) |
 | 3 | 2012-05-11 | Ley 9036 |
+| 4 | 2022-02-09 | Ley 10127 |
