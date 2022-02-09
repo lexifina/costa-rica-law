@@ -1,0 +1,9 @@
+ARTÍCULO 14- Reforma de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial
+Se reforma el artículo 131 de la Ley 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012. El texto es el siguiente:
+Artículo 131- Cierre o clausura de vías sin autorización
+Se prohíbe clausurar, total o parcialmente, las vías públicas o usarlas para fines distintos de los de circulación de peatones o vehículos, salvo que se proceda en virtud de un permiso escrito dado con anterioridad por la Dirección General de Ingeniería de Tránsito, en el caso de la red vial nacional, o se cuente con la autorización de la municipalidad correspondiente para el uso de estos espacios, en el caso de la red vial cantonal. En caso de vías bajo la competencia municipal bastará una comunicación formal del municipio a la Dirección General de Tránsito, para su debida coordinación.
+Para el caso de eventos deportivos en vías públicas terrestres, se aplicará lo establecido en ley especial. Del mismo modo, se prohíbe ocupar las vías públicas urbanas y suburbanas para:
+a) La construcción de tramos o puestos, con motivo de festejos populares, patronales o de otra índole.
+b) Ser usadas como lugar permanente de reparación de vehículos u otros menesteres que obstaculicen el libre tránsito.
+c) La construcción de obras públicas y privadas en la superficie de un derecho de vía que no reúna las condiciones mínimas de seguridad establecidas en esta ley y su reglamento. Se exceptúa de dicha disposición el cierre temporal de vía que amerite la atención de incidentes donde deban participar cuerpos de emergencia.
+La Dirección General de Ingeniería de Tránsito, previa realización de los estudios del caso, está facultada para clausurar las vías cuyo cierre se determine conveniente para los intereses públicos.
