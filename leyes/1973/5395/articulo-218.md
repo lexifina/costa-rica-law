@@ -1,10 +1,4 @@
-ARTICULO 218.- Queda prohibido a las autoridades competentes otorgar
-patentes comerciales o industriales o cualquier clase de permiso a
-establecimientos de alimentos que no hayan obtenido previamente la
-correspondiente autorización sanitaria de instalación extendida por le
-Ministerio.
-Queda prohibido el establecimiento de puestos fijos o transitorios
-de elaboración o venta de alimentos en calles, parques o aceras, u otros
-lugares públicos, con excepción de las ventas en ferias debidamente
-autorizadas de conformidad con las disposiciones reglamentarias
-correspondientes.
+Artículo 218- Queda prohibido a las autoridades competentes otorgar patentes comerciales o industriales o cualquier clase de permiso a establecimientos de alimentos que no hayan obtenido previamente la correspondiente autorización sanitaria de instalación extendida por el Ministerio.
+Queda prohibido el establecimiento de puestos fijos o transitorios de elaboración o venta de alimentos en calles, parques o aceras, u otros lugares públicos, con excepción de las ventas en ferias debidamente autorizadas, de conformidad con las disposiciones reglamentarias correspondientes.
+Se autoriza la venta de alimentos en calles, parques o aceras, u otros lugares públicos, a aquellos establecimientos comerciales que, además de la patente y/o licencia municipal, cuenten con la autorización municipal para el desarrollo de la actividad comercial en estos espacios, de conformidad con la Ley de Comercio al Aire Libre.
+(Así reformado por el artículo 12 de la ley de comercio al aire libre, N° 10126 del 25 de enero del 2022)
