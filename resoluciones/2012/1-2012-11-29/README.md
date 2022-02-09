@@ -50,3 +50,4 @@ Establece que los fabricantes e importadores de jarabes utilizados para la elabo
 | 35 | 2021-06-07 | Resolución 56 (2021-06-07) |
 | 36 | 2021-08-10 | Resolución 60 (2021-08-10) |
 | 37 | 2021-11-09 | Resolución 64 (2021-11-09) |
+| 38 | 2022-02-09 | Resolución 16 (2022-02-09) |
