@@ -1,6 +1,6 @@
 # Ley de Regulación y Comercialización de bebidas con contenido alcohólico
 
-Ley N° 9047 del 2012-06-25. SINALEVI, ficha 73058: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=73058&param2=125074&param3=1>.
+Ley N° 9047 del 2012-06-25. SINALEVI, ficha 73058: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=73058&param2=128922&param3=1>.
 
 Publicada en La Gaceta N° 152 del 2012-08-08.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 6 | 2016-10-04 | Ley 9384 | 2016-08-24 |
 | 4 de 6 | 2020-09-11 | Ley 9883 | 2020-08-21 |
 | 5 de 6 | 2021-04-15 | Ley 9961 | 2021-03-24 |
+| 6 de 6 | 2022-02-09 | Ley 10126 | 2022-01-25 |

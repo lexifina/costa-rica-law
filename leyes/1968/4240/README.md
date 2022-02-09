@@ -1,6 +1,6 @@
 # Ley de Planificación Urbana
 
-Ley N° 4240 del 1968-11-15. SINALEVI, ficha 35669: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35669&param2=80861&param3=1>.
+Ley N° 4240 del 1968-11-15. SINALEVI, ficha 35669: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35669&param2=128924&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 9 | 1996-08-20 | Sala Constitucional, resolución 4205-96 (1996-08-20) | 1996-08-20 |
 | 6 de 9 | 2008-06-24 | Ley 8641 | 2008-06-11 |
 | 7 de 9 | 2010-06-01 | Ley 8823 | 2010-05-05 |
+| 8 de 9 | 2022-02-09 | Ley 10126 | 2022-01-25 |
