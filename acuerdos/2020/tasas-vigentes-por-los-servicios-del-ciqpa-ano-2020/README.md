@@ -14,3 +14,4 @@ Tasas vigentes por los servicios del CIQPA año 2020
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-05 | la propia norma |
+| 2 | 2022-02-09 | Acuerdo 0 (2022-02-09) |
