@@ -1,2 +1,0 @@
-Artículo 3°. - Donaciones a la Fundación para la Restauración de la Catedral Metropolitana y otros templos y monumentos católicos, al amparo de la Ley N°7266 del 11 de noviembre de 1991.
-El donante puede realizar este tipo de donaciones una sola vez en su vida jurídica (plazo social) y para tal efecto no requiere de autorización por parte de la Administración Tributaria, de acuerdo con lo establecido en la Ley N°7266 y los criterios de la Dirección General de Tributación, emitidos al respecto.
