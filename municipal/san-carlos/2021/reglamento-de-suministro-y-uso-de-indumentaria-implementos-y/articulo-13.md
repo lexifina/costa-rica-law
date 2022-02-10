@@ -1,0 +1,1 @@
+Artículo 13.-En las reuniones o actividades en representación de la Institución, siempre se deberá vestir el uniforme completo (lo que defina la Administración en su momento como uniforme completo). Siempre que el colaborador se encuentre laborando, deberá portar el uniforme en todo momento dentro de horario de trabajo.

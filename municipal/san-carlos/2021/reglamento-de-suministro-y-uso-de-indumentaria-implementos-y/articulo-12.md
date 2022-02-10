@@ -1,0 +1,1 @@
+Artículo 12.-No está permitido realizarles modificaciones a los uniformes otorgados al personal en general, tales como: cambios del diseño, cortar el largo de las enaguas, ajustar extremadamente el talle autorizado, retirar cintas refractivas o logotipos.

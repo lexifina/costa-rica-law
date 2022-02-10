@@ -1,0 +1,1 @@
+Artículo 25.-Las muestras que sean adjudicadas permanecerán en el Departamento de Salud Ocupacional hasta que ingresen los artículos adquiridos a la Bodega o Almacén Municipal y así verificar que los artículos corresponden a las muestras presentadas.

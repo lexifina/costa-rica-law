@@ -1,0 +1,1 @@
+Artículo 11.-En caso que se conceda un permiso especial para que el funcionario se presente a la oficina con ropa particular como para fechas importantes o alusivas a alguna celebración aprobada por la Administración, se deben presentar con el adecuado decoro al vestir, cumpliendo también con lo establecido en el presente reglamento.

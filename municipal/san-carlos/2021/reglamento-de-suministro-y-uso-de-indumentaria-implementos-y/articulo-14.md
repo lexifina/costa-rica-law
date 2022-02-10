@@ -1,0 +1,1 @@
+Artículo 14.-En los casos de aumento o pérdida de peso, extravío del uniforme y manchas irreparables, la institución no se hará responsable y correrá al 100% por cuenta del personal la reparación, reposición o cualquier modificación señalada.

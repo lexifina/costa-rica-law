@@ -1,0 +1,1 @@
+Artículo 18.-Todo trabajador, deberá cumplir con las medidas de seguridad correspondientes; pero además deberá de realizar todas las acciones pertinentes para que cuente con los mecanismos de prevención y reducción del riesgo laboral.

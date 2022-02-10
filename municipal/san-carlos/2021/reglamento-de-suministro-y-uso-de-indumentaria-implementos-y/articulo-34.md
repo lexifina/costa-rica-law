@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Disposiciones finales
+Artículo 34.-Para cualquier efecto y en particular para la aplicación del presente Reglamento, se entenderá que los uniformes, capas, jackets, calzado, así como cualquier otro equipo, herramienta, implementos o prenda, facilitado en fundamento en este Reglamento y la Convención Colectiva de Trabajo Vigente, tiene la condición de herramientas de trabajo, bajo ninguna circunstancia dejarán de ser propiedad de la Municipalidad de San Carlos, concediéndose a quienes se les asigna dichos uniformes o implementos en derecho de uso y posesión a nombre de esta Municipalidad, por lo que serán responsables de su debido uso y conservación.

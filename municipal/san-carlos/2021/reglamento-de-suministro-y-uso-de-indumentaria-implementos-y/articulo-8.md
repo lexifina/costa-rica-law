@@ -1,0 +1,2 @@
+Artículo 8º-La Municipalidad dotará a los trabajadores los implementos de conformidad con lo dispuesto en la Convención Colectiva y el Reglamento Autónomo de Organización y Servicio.
+También, la Municipalidad se compromete a dotar de los implementos y equipo de seguridad ocupacional, requerido a todos sus trabajadores, que por la índole de sus actividades deban protegerse contra los riesgos del trabajo.

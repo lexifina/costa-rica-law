@@ -1,0 +1,1 @@
+Artículo 2º-Las normas, reglas disposiciones y procedimientos establecidos en este Reglamento y las políticas que se originan de los mismos, son de aplicación obligatoria para todos los servidores destinados de estos beneficios durante toda la jornada de trabajo, incluso en horas extraordinarias.
