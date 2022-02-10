@@ -1,0 +1,2 @@
+Artículo 4º-Propiedad intelectual y derechos del sistema informático INFINITO. INFINITO el cual incluye, el sistema de gestión municipal y las aplicaciones de conectividad y comercio electrónico pertenecen exclusivamente al IFAM.
+Las municipalidades no pueden, copiar, modificar, alterar, o ceder parcial ni totalmente el sistema y sus aplicaciones sin autorización expresa del IFAM. El sistema se instalará una vez formalizada la relación mediante el convenio suscrito al efecto.

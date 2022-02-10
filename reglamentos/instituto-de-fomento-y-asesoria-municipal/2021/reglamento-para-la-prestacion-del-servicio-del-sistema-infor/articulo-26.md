@@ -1,0 +1,1 @@
+Artículo 26.-Enlaces de comunicación. Corresponde a la municipalidad proveer el enlace de telecomunicación entre la municipalidad y el IFAM y de mantener actualizados los equipos de telecomunicaciones.

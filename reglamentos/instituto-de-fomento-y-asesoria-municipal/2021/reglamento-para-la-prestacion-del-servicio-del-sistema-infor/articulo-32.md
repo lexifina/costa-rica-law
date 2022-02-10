@@ -1,0 +1,2 @@
+Artículo 32.-Recepción del sistema. Concluida la implementación, la municipalidad deberá remitir un oficio de aceptación y recibido a satisfacción del sistema, dentro de un plazo máximo de 15 días hábiles.
+Si por algún motivo la municipalidad no se encontrara anuente a recibir el sistema, de igual manera rendirá el informe dentro del mismo plazo establecido en el párrafo anterior y justificará las razones del rechazo.

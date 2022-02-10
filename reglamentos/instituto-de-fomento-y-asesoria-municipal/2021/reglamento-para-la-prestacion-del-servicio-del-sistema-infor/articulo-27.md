@@ -1,0 +1,1 @@
+Artículo 27.-No terceros que alteren el sistema. La municipalidad se encargará de coordinar en forma exclusiva el soporte técnico con el personal de la UTI, por los medios establecidos en este reglamento; ningún tercero no autorizado por el IFAM podrá alterar el sistema.

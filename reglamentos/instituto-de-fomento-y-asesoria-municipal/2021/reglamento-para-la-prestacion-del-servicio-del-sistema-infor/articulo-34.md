@@ -1,0 +1,3 @@
+Artículo 34.-Del costo de módulos nuevos. El IFAM determinará el costo de desarrollo de nuevos módulos y analizará si afecta la cuota mensual de cada municipalidad por medio de una adenda al convenio.
+Siempre que sus recursos lo permitan, el IFAM asumirá el costo de desarrollo, sin embargo, cuando no sea posible, deberá trasladar el saldo al descubierto a la cuota mensual de forma inmediata o para el siguiente año presupuestario, de conformidad con las posibilidades del gobierno local. Esto se establecerá en la adenda al convenio.
+En ambos casos, el IFAM notificará a la municipalidad interesada si puede asumir el referido costo o no, para que ésta resuelva internamente lo que considere oportuno.

@@ -1,0 +1,1 @@
+Artículo 13.-Seguridad de la información. Para resguardar la información, la UTI establecerá la estrategia de respaldo necesaria, según la normativa institucional, esto deberá garantizar la reducción de amenazas de ciberseguridad y evitar la pérdida de información.

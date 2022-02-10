@@ -1,0 +1,1 @@
+Artículo 17.-Migración de datos. El IFAM nombrará un equipo de trabajo que se encargará de coordinar con la municipalidad la estrategia necesaria para realizar la migración de datos del sistema actual a INFINITO. Posteriormente, el IFAM será el que ejecute dicha estrategia con el apoyo y facilidades que le brinde la municipalidad para la debida ejecución del proyecto.

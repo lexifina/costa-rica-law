@@ -1,0 +1,2 @@
+Artículo 40.-Retiro Anticipado. Si durante la vigencia de un ejercicio anual presupuestario, la municipalidad decide terminar el convenio, sin que exista algún incumplimiento por parte del IFAM, la municipalidad deberá cancelar el equivalente a los meses restantes a la finalización de dicho ejercicio.
+Si la municipalidad notifica el retiro en junio del año anterior al inicio del ejercicio presupuestario siguiente, no existirá ningún tipo de penalización. Esto aún y cuando el periodo del convenio de actualización y mantenimiento referido en el Artículo 33- no haya finalizado.

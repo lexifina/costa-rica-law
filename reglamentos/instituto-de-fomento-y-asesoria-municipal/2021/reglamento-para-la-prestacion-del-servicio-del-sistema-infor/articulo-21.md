@@ -1,0 +1,1 @@
+Artículo 21.-Capacitación. Como parte de la cuota de actualización y mantenimiento, El IFAM capacitará a los funcionarios municipales y dará seguimiento hasta por un máximo de 15 días naturales después de implementado el sistema. Esta capacitación, incluye material de estudio y un taller de trabajo.

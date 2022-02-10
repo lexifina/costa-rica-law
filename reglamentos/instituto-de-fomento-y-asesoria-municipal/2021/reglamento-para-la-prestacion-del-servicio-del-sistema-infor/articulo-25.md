@@ -1,0 +1,1 @@
+Artículo 25.-Convenios y contratos con entes externos. Para los servicios que se requiera la firma de contratos o convenios con bancos u otro tipo de organizaciones, la municipalidad se encargará de gestionarlos, previo a su implementación.

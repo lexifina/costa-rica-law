@@ -1,0 +1,1 @@
+Artículo 12.-Valoración de aspectos técnicos y administrativos previos a la implementación. Se deberán observar los principios establecidos en la metodología del Sistema de Valoración de Riesgos (SEVRI) del IFAM, con el objetivo de identificar, valorar, y establecer las estrategias de mitigación durante la implementación en cada municipalidad.

@@ -1,0 +1,3 @@
+Artículo 39.-Prórroga de pagos. En caso de presentarse una situación de emergencia, desastre, amenaza natural o antrópica que justifique una suspensión temporal del pago, la municipalidad solicitará la prórroga de la cuota de la actualización y mantenimiento con indicación de los motivos que la sustentan y cualquier evidencia necesaria. La prórroga no devengará intereses.
+El IFAM determinará la viabilidad de la solicitud y otorgará la prórroga por un periodo no mayor a tres meses; el monto pendiente se distribuirá en los próximos seis meses siguientes a la finalización de la prórroga.
+No podrá otorgarse una nueva prórroga hasta transcurridos dos años.

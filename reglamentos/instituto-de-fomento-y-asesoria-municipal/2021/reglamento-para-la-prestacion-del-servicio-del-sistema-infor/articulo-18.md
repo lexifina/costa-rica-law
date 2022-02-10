@@ -1,0 +1,1 @@
+Artículo 18.-Mantenimiento y actualización del sistema. El IFAM lo brindará en caso de fallas o errores en cálculos que deben reportarse a través de la plataforma de la Mesa de Servicio y de conformidad con el Acuerdo de Nivel de Servicio, cómo máximo 6 horas hábiles después de detectado el error.
