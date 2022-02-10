@@ -1,0 +1,1 @@
+Artículo 3º-Que en lo no modificado expresamente se mantiene incólume el Decreto Ejecutivo N° 43266-MAGMEIC- COMEX del 18 de octubre de 2021, publicado en el Diario Oficial La Gaceta N° 214 del 05 de noviembre de 2021.
