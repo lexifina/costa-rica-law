@@ -1,0 +1,1 @@
+Artículo 2°-Objetivo General. El Plan Nacional de Residuos Marinos, tiene como objetivo coordinar de forma intersectorial la prevención y la gestión integral de los residuos marinos, orientado al mejoramiento de la calidad de los ecosistemas y la salud de las personas.

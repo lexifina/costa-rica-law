@@ -1,0 +1,1 @@
+Transitorio Único. El Ministerio de Ambiente y Energía y el Ministerio de Salud tendrán un plazo máximo de seis meses a partir de la publicación del presente Decreto Ejecutivo en el Diario Oficial La Gaceta, para convocar al ECPNRM, a fin de iniciar la respectiva fase de implementación.

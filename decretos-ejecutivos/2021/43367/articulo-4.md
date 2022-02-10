@@ -1,0 +1,1 @@
+Artículo 4°-Ámbito de aplicación. El presente Plan será de aplicación por parte de todas las instituciones de la Administración Pública que estén vinculadas con sus ejes y acciones estratégicas en todo el territorio nacional.
