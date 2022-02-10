@@ -1,0 +1,3 @@
+Artículo 22.-Acuerdos. Los acuerdos de las Comisiones y desempate en la votación, se gestionarán de la siguiente manera.
+a) Los acuerdos serán tomados por mayoría simple de los miembros presentes, quedando en firme en la misma sesión. En caso de disentimiento en la minuta se indicarán los argumentos de cada miembro que no estuviere de acuerdo.
+b) Los Coordinadores de las Comisiones deberán comunicar a todos los miembros los acuerdos tomados tanto por la Comisión como por el CAISI y debe divulgarlos a lo interno del MH en los casos donde se requiera, utilizando para ello los medios tecnológicos.

@@ -1,0 +1,1 @@
+Artículo 25.-Derogatoria. Se deroga el Decreto N° 40060-H del 04 de noviembre del 2016 denominado "Reglamento de Creación del Consejo Institucional de Tecnología de Información del Ministerio de Hacienda", publicado en La Gaceta N° 2 del 03 de enero de 2017.

@@ -1,0 +1,2 @@
+Artículo 12.-Control de actas. El CAISI debe mantener un libro de actas o formatos electrónicos debidamente autorizado por la Dirección General de Auditoria Interna, de las sesiones realizadas, donde consten los temas tratados y los acuerdos tomados. Este libro de actas se mantendrá en custodia del Secretario del CAISI.
+El acta de la sesión debe ser distribuida por el Secretario, con el fin de que los miembros revisen su contenido, redacción y terminología para que posteriormente sea firmada por el Presidente y el Secretario.
