@@ -1,0 +1,1 @@
+Artículo 3º-El CONAVI deberá cumplir con los requerimientos de la Secretaría Técnica Nacional Ambiental, así como con las obligaciones contraídas en el Estudio de Impacto Ambiental, la Declaración Jurada de Compromisos Ambientales y las medidas ambientales de mitigación y compensación aprobadas.
