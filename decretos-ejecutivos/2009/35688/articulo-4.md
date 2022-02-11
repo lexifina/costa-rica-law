@@ -1,4 +1,4 @@
-Artículo 4º—Ubicación y estructura. La Dirección es una dependencia del Área de Ingresos del Ministerio que depende directa y jerárquicamente del Viceministro (a) de Ingresos.
+Artículo 4º-Ubicación y estructura. La Dirección es una dependencia del Área de Ingresos del Ministerio que depende directa y jerárquicamente del Viceministro (a) de Ingresos.
 Está constituida por una Dirección General y Subdirección General, de esta última dependen dos áreas;
 a. El área de Administración de Acuerdos de Compromisos
 b. El área de Comunicación Institucional
@@ -49,10 +49,11 @@ a. Negociación y Aplicación de Convenios Tributarios Internacionales
 b. Coordinación y Actualización de Normas y Procedimientos
 c. Acuerdos Previos sobre Precios de Transferencia
 d. Consulta Tributaria.
-13. Dirección de Grandes Contribuyentes Nacionales, conformada por las Subdirecciones de:
-a. Investigación de Estudios Económicos y Tributarios de Grandes Contribuyentes
-b. Recaudación, Control y Servicios Tributarios
-c. Fiscalización.
+(*)13. Dirección de Grandes Contribuyentes Nacionales, conformada por los Departamentos de:
+a) Departamento de Gestión Tributaria de Industria y Comercio.
+b) Departamento de Gestión Tributaria de Servicios y Gobierno.
+c) Departamento de Fiscalización.
+(*)(Así reformado el apartado 13) anterior por el artículo 1° del decreto ejecutivo N° 43442 del 11 de febrero del 2022)
 14. Dirección Regional Pacífico, conformada por las Subdirecciones de:
 a. Control del Cumplimiento Tributario Regional y de Relaciones con el Contribuyente y Entes Locales
 b. La Administración Tributaria Puntarenas

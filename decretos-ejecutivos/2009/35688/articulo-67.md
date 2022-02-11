@@ -1,5 +1,5 @@
-Artículo 67.—Administraciones Tributarias Territoriales. Se adscriben a las Direcciones Regionales las Administraciones Tributarias Territoriales existentes, con los siguientes cambios: La Administración Tributaria de San José, se segmenta en Administración Tributaria San José Este y Administración Tributaria San José Oeste y se crean Oficinas de Servicios que se ubicarán previo estudio técnico, en la jurisdicción de alguna de las Administraciones Tributarias Territoriales.
-Estas Administraciones contarán con un Gerente Tributario y las siguientes unidades organizativas (denominadas subgerencias”), estarán a cargo de un Subgerente: Recaudación, Control Extensivo, Servicio al Contribuyente, Fiscalización, Valoraciones y Oficina de Servicios, estas últimas solo en aquellas Administraciones Tributarias en las que se hayan creado dichas oficinas mediante resolución de la Dirección General de Tributación.
+Artículo 67.-Administraciones Tributarias Territoriales. Se adscriben a las Direcciones Regionales las Administraciones Tributarias Territoriales existentes, con los siguientes cambios: La Administración Tributaria de San José, se segmenta en Administración Tributaria San José Este y Administración Tributaria San José Oeste y se crean Oficinas de Servicios que se ubicarán previo estudio técnico, en la jurisdicción de alguna de las Administraciones Tributarias Territoriales.
+Estas Administraciones contarán con un Gerente Tributario y las siguientes unidades organizativas (denominadas subgerencias"), estarán a cargo de un Subgerente: Recaudación, Control Extensivo, Servicio al Contribuyente, Fiscalización, Valoraciones y Oficina de Servicios, estas últimas solo en aquellas Administraciones Tributarias en las que se hayan creado dichas oficinas mediante resolución de la Dirección General de Tributación.
 Las Administraciones Tributarias de San José Oeste y San José Este, contarán además, con un Coordinador de procesos, a cargo de cada una de las Unidades Organizativas, que conforman cada una de sus subgerencias.
 1. Recaudación.
 Estará constituida por los siguientes procesos:
@@ -259,9 +259,11 @@ correspondiente, sobre aspectos requeridos para resolver los casos propios de la
 30. Preparar y hacer entrega de informes en las fechas establecidas.
 31. Utilizar de forma eficiente y eficaz los recursos que se asignen.
 32. Cualquier otra función que se le asigne según sus competencias.
-C. Subgerencia de Fiscalización estará conformada por las siguientes unidades organizativas:
-i. Para la Administración Tributaria San José Oeste, se crean las siguientes unidades organizativas denominadas: Grandes Empresas Territoriales 1 (GETES 1), Grandes Empresas Territoriales 2 (GETES 2), Demás Contribuyentes 1, Demás Contribuyentes 2, Demás Contribuyentes 3, Demás Contribuyentes 4 y Resolutiva de Fiscalización.
-ii. En la Administración Tributaria San José Este, se crean las siguientes unidades organizativas denominadas: Grandes Empresas Territoriales 1 (GETES 1), Demás Contribuyentes 1, Demás Contribuyentes 2 y Resolutiva de Fiscalización.
+(C. Subgerencia de Fiscalización estará conformada por las siguientes unidades organizativas:
+i. Para la Administración Tributaria San José Oeste, se crean las siguientes unidades organizativas denominadas: Demás Contribuyentes N°1, Demás Contribuyentes N°2, Demás Contribuyentes N°3, Demás Contribuyentes N°4 y Resolutiva de Fiscalización.
+(Así reformado el punto anterior por el artículo 2° del decreto ejecutivo N° 43442 del 11 de febrero del 2022)
+ii. En la Administración Tributaria San José Este, se crean las siguientes unidades organizativas denominadas: Demás Contribuyentes N°1, Demás Contribuyentes N°2 y Resolutiva de Fiscalización.
+(Así reformado el punto anterior por el artículo 2° del decreto ejecutivo N° 43442 del 11 de febrero del 2022)
 Los auditores asignados a estas unidades organizativas, independientemente de la unidad organizativa a la que pertenezcan, les corresponden realizar las siguientes funciones:
 1. Realizar actuaciones fiscalizadoras con la calidad necesaria, en cuanto al fondo de la investigación y forma del procedimiento, en los plazos establecidos, de acuerdo con el grado de complejidad particular que se presente en cada caso.
 2. Mantenerse en constante estudio tanto de los cambios en la normativa tributaria, como de las diferentes formas en que evoluciona el fraude y la evasión fiscal.
