@@ -1,0 +1,10 @@
+CIRCULAR N° 33-2022
+ASUNTO: "Utilización del Sistema de Depósitos y Pagos Judiciales".
+A TODAS LAS JEFATURAS DE DESPACHOS JUDICIALES
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 3-2022 celebrada el 11 de enero de 2022, artículo XIV, dispuso aprobar las recomendaciones emitidas por la Dirección Ejecutiva en oficio N° 4257-DE-2021 de 16 de diciembre de 2021, en que remitió el resumen de los resultados finales del procedimiento para la evaluación del sistema de control interno del Sistema de Depósitos y Pagos Judiciales (SDJ); en consecuencia, se dispuso comunicar lo siguiente:
+Los despachos a nivel nacional que utilizan el Sistema de Depósitos y Pagos Judiciales, deberán de acatar las recomendaciones de las Administraciones Regionales con el fin de maximizar el Control Interno de cada oficina y el adecuado manejo de los recursos de terceros.
+Deberán los despachos judiciales considerar que las recomendaciones que les fueron giradas producto del seguimiento de las pruebas, serán verificadas durante el inicio de la evaluación del año 2022; de manera que de la revisión del informe 2022, se remitirá un listado al Consejo Superior de las oficinas que reiteren el resultado de recomendaciones "No aplicadas" en más de una misma prueba y a la cual se le haya remitido las recomendaciones para mejor dicho hallazgo. Esto, para que se tomen las medidas respectivas.
+Instar a las Administraciones Regionales a programar las fechas para la realización de las pruebas en el sistema SDJ, considerando los tiempos y tareas requeridas, entre ellas: la visita a los despachos, obtención de evidencia, respaldo de documentos, revisión en el sistema SDJ, oficio de hallazgos al despacho, comunicado del oficio y oficio resumen a la Dirección Ejecutiva. Lo anterior, para que se logré el cumplimiento de los plazos, manteniendo un distanciamiento entre las pruebas y no afectar el calendario establecido de las pruebas, así como de otras labores que se deben ejecutar anualmente."
+Publíquese una sola vez en el Boletín Judicial.
+San José, 11 de febrero del 2022.
