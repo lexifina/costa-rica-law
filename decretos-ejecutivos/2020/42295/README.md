@@ -65,3 +65,4 @@ Restricción vehicular diurna ante el estado de emergencia nacional en todo el t
 | 50 | 2021-12-16 | Decreto Ejecutivo 43372 (2021-12-16) |
 | 51 | 2022-01-10 | Decreto Ejecutivo 43389 (2022-01-10) |
 | 52 | 2022-01-21 | Decreto Ejecutivo 43396 (2022-01-21) |
+| 53 | 2022-02-11 | Decreto Ejecutivo 43414 (2022-02-11) |
