@@ -1,0 +1,17 @@
+Artículo 8º-De los deberes u obligaciones de las personas administradoras de fondos fijos institucionales. Son deberes u obligaciones de las personas administradoras de fondos fijos institucionales, los siguientes:
+a. Mantener actualizado el listado de personas Titulares Subordinadas que están autorizadas para aprobar solicitudes de adelantos de caja chica.
+b. Administrar la cuenta corriente donde se custodian los recursos de los fondos fijos, de modo que exista liquidez para atender los requerimientos de los usuarios del fondo fijo, solicitando la reposición del fondo fijo, al menos una vez al mes o cuando el monto autorizado se haya utilizado al menos en un 40%.
+c. Verificar que la solicitud de adelanto de caja chica cuente con las autorizaciones técnicas respectivas y los requisitos, según corresponda.
+d. Verificar el contenido presupuestario e imputación del gasto, para las solicitudes de adelantos de las Áreas Regionales y Empresas Comerciales.
+e. Verificar que la suma del adelanto no sobrepase los límites autorizados para el uso de adelantos de caja chica y que cumpla con todos los requisitos aplicables a la ejecución de los fondos fijos institucionales.
+f. Tramitar la solicitud de transferencia de los recursos autorizados por caja chica a la cuenta de la persona funcionaria o trabajadora del IMAS.
+g. Archivar los documentos digitales en los sistemas informáticos definidos por la Institución, que comprueban el giro de las transferencias para adelantos.
+h. Verificar que todos los documentos que respaldan los adelantos de caja chica se encuentren correctamente archivados, en los sistemas institucionales definidos para tal efecto.
+i. Realizar intimación por escrito, por medio de oficio o correo electrónico, a la persona funcionaria o trabajadora del IMAS que realizó el gasto de caja chica, con copia a su Titular Subordinado, el primer día hábil posterior al vencimiento del plazo para liquidar, conforme lo establecido en el Manual respectivo.
+j. Revisar la liquidación de los adelantos de caja chica y solicitar las correcciones que sean necesarias.
+k. Compensar y registrar en el Sistema SAP, todas las liquidaciones de los adelantos, a más tardar el día hábil siguiente de su recepción.
+l. Realizar los arqueos del fondo fijo en los plazos establecidos en el presente Reglamento y emitir un informe que debe firmar digitalmente la persona administradora del fondo fijo y la persona Titular Subordinada de ésta, o a quien designe e indicar los hallazgos detectados.
+m. Atender las recomendaciones emitidas por el Área de Administración Financiera o sus Unidades.
+n. Rendir garantía con cargo a su propio peculio, conforme lo establecido en la Ley de Administración Financiera y Presupuestos Públicos y su Reglamento o normativa equivalente. El monto y tipo de garantía a rendir estarán definidos en el "Reglamento para la Rendición de Cauciones a favor del Instituto Mixto de Ayuda Social".
+o. Proceder de acuerdo con lo establecido en el procedimiento denominado "Contingencia cuando SAP sea inaccesible" o normativa equivalente, en el caso de que el sistema informático utilizado para las solicitudes de caja chica se encuentre fuera de servicio.
+p. Comprobar el cumplimiento de las regulaciones establecidas para el trámite de gastos de viaje y transporte emitido por la Contraloría General de la República y lo dispuesto en el Reglamento Autónomo de Servicios del Instituto Mixto de Ayuda Social.
