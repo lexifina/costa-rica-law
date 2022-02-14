@@ -24,3 +24,4 @@ Reglamento sobre Administración Integral de Riesgos (ACUERDO SUGEF 2-10)
 | 9 | 2021-02-08 | Reglamento 1642 (2021-02-08) |
 | 10 | 2021-11-16 | Reglamento 1700 (2021-11-16) |
 | 11 | 2022-01-31 | Reglamento 1712 (2022-01-31) |
+| 12 | 2022-02-14 | Reglamento 1715 (2022-02-14) |

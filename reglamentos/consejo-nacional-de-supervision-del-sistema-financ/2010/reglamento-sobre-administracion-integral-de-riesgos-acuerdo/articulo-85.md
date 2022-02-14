@@ -1,3 +1,2 @@
-Artículo 85. Divulgación
-La entidad debe incluir, en su informe anual de riesgos, los aspectos referidos a su gestión del riesgo operativo, de conformidad con lo dispuesto por el artículo 18 de este Reglamento.
-(Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+Artículo 85. Riesgos operativos asociados a actividades específicas. La entidad debe considerar, en el ámbito de la gestión del riesgo operativo, los riesgos operativos asociados a las actividades de titularización, fideicomiso y de toma u ofrecimiento de productos derivados. En tales casos, la entidad debe considerar las leyes y reglamentos que al respecto regulan dichas actividades.
+(Así modificada la numeración en sesión N° 1715 del 14 de febrero de 2022)

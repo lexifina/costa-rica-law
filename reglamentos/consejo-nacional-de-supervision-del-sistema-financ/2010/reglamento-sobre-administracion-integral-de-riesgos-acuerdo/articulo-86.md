@@ -1,3 +1,4 @@
-Artículo 86. Reporte para la SUGEF
-La entidad debe remitir anualmente, por el medio y en el plazo que defina la SUGEF en el Manual de Información SICVECA, los datos sobre incidencias y eventos potenciales contenidos en las respectivas bases de datos a que hace mención este reglamento en el artículo 82."
+Artículo 86. Divulgación
+La entidad debe incluir, en su informe anual de riesgos, los aspectos referidos a su gestión del riesgo operativo, de conformidad con lo dispuesto por el artículo 18 de este Reglamento.
 (Así adicionado en sesión N° 1712-2022 del 31 de enero de 2022)
+(Así modificada la numeración en sesión N° 1715 del 14 de febrero de 2022)
