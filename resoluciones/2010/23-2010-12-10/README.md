@@ -60,3 +60,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | 45 | 2021-08-17 | Resolución 6 (2021-08-17) |
 | 46 | 2021-09-21 | Resolución 7 (2021-09-21) |
 | 47 | 2021-10-12 | Resolución 8 (2021-10-12) |
+| 48 | 2022-02-14 | Resolución 3 (2022-02-14) |
