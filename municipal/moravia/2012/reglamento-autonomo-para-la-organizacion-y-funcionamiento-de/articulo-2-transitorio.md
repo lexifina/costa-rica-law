@@ -1,1 +1,0 @@
-Transitorio II.—Para el cumplimiento de lo dispuesto en el artículo 10 de este Reglamento y considerando que con el mismo se incorpora la figura del vicepresidente, la Junta Directiva procederá a elegir entre sus dos vocales uno para que ejerza el cargo de Vicepresidente del Comité por el resto del periodo de su nombramiento.

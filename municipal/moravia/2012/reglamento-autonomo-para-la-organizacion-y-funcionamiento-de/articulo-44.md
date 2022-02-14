@@ -1,5 +1,0 @@
-Artículo 44.—Se establece que, para los efectos de contratación administrativa, el Comité se regirá por la Ley de la Contratación administrativa y su reglamento, dentro de los límites que establece el artículo 173 del Código Municipal.
-La administración Municipal, a través de sus unidades administrativas apoyará permanentemente al Comité Cantonal en el cumplimiento de sus tareas y obligaciones debiendo responder con prontitud y diligencia.
-En el caso de las contrataciones administrativas, la proveeduría institucional de la Municipalidad deberá asesorar al Comité cuando así le sea solicitado conforme a las especificaciones técnicas que se le indiquen y deberá trasladar las ofertas recibidas en su momento a la Junta Directiva para su análisis, estudio y adjudicación; lo anterior sin perjuicio de que el Comité pueda avocarse la tramitación completa del proceso.
-Conforme la Ley Nº 9395, todo procedimiento de contratación administrativa que despliegue el Comité deberá tramitarse mediante el Sistema Integrado de Compras Públicas SICOP obligatoriamente.
-(Así reformado mediante sesión N° 188 del 9 de diciembre del 2019)

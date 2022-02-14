@@ -1,4 +1,0 @@
-CAPÍTULO XII
-De las instalaciones deportivas
-Artículo 49.—El Comité Cantonal será el administrador de las instalaciones deportivas y recreativas inscritas a nombre de la Municipalidad de Moravia, para lo cual se elaborará el convenio respectivo; y podrá cederlas en administración a los Comités Comunales, asociaciones deportivas y recreativas, asociaciones de desarrollo comunal, organizaciones comunales, o cualquier otra entidad jurídica que tenga orientación altruista, siempre que sus fines constitutivos sean afines al deporte y/o la recreación. Todos los anteriores deberán estar debidamente inscritos en el Comité y a la vez deben contar con todos los requisitos que para su funcionamiento que exige el presente Reglamento para su administración y mantenimiento, sin que por esta razón ceda su responsabilidad.
-Los convenios que el Comité Cantonal suscriba con terceros deberán hacerse del conocimiento del Concejo Municipal.

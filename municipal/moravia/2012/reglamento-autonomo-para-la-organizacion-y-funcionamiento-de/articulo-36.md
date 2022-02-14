@@ -1,2 +1,0 @@
-Artículo 36.—El proyecto de acta de cada sesión, deberá entregarse a los miembros del Comité Cantonal o Comités Comunales a más tardar veinticuatro horas antes de la sesión en que serán discutidas y aprobadas.
-La Secretaría de la Junta Directiva, será responsable de levantar las actas, con apoyo de personal administrativo y en ellas se harán constar los acuerdos tomados y sucintamente, las deliberaciones habidas, así como las transcripciones de las intervenciones de los directivos o personas que asistan a la sesión y así lo hayan solicitado.

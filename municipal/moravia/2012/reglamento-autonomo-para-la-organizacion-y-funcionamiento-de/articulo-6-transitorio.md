@@ -1,4 +1,0 @@
-Transitorio VI.—Para la elaboración y materialización de los convenios a que hace referencia el artículo 49 se establece un plazo de seis meses naturales a partir de la publicación de este Reglamento. Lo anterior sin detrimento de que se puedan elaborar convenios específicos con anterioridad al vencimiento del plazo.
-Rige a partir de su publicación en La Gaceta.
-Ø Toman el siguiente acuerdo, votan a favor los regidores Yanina Soto, Mauricio Quirós, Grisel Picado, Sonia Altamirano vota en lugar de Roberto Zoch, Cindy Quesada, María de los Ángeles Rodríguez y Jorge Obando.
-El Concejo Municipal de Moravia en sesión ordinaria ciento nueve del veintiocho de mayo del año dos mil doce, acuerda aprobar el primer dictamen de la Comisión de Jurídicos. Publíquese en el Diario Oficial La Gaceta. Acuerdo definitivamente aprobado.

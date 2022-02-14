@@ -1,6 +1,0 @@
-CAPÍTULO X
-Estructura administrativa
-Artículo 39.—La estructura administrativa del Comité Cantonal podrá, de acuerdo con sus posibilidades presupuestarias contar con tres áreas de trabajo: la primera denominada área administrativa, la segunda denominada área técnica y la tercera denominada área operativa.
-a) El Área Administrativa, estará integrado por los procesos administrativo y el financiero, el primero estará a su vez, integrado por los subprocesos de proveeduría, recursos humanos y Secretaría del Comité Cantonal. El segundo estará integrado por los subprocesos de presupuesto, Tesorería y contabilidad.
-b) El Área Técnica, estará a cargo de todas las actividades deportivas y recreativas que programe el Comité Cantonal, tendrá a cargo los procesos: deportivo, recreativo y de promoción de la salud, y buscará la coordinación con los entrenadores de las diferentes ramas deportivas y diferentes organizaciones relacionadas, así como con los instructores de los programas recreativos.
-c) El Área Operativa, estará conformado por los subprocesos de mantenimiento, instalaciones deportivo-recreativas y de seguridad, quienes se encargan del cuido y mantenimiento de las instalaciones del Comité de Deportes.

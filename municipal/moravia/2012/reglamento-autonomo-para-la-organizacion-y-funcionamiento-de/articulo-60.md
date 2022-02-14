@@ -1,2 +1,0 @@
-Artículo 60.—En lo que resulte aplicable a la elección, las funciones, excepciones y prohibiciones a ejercer por los miembros de la Junta Directiva del Comité Comunal serán aplicable las mismas funciones al Comité Comunal, siempre y cuando no contravengan el actuar del Comité Cantonal. La vigencia de un Comité Comunal será la misma que dure la Junta Directiva del Comité Cantonal y podrán reelegirse los cargos que le componen.
-(Así reformado mediante sesión N° 193 del 9° de enero del 2020)

@@ -1,1 +1,0 @@
-Artículo 55.—El Comité Cantonal o el Comité Comunal, según sea el caso podrán podrá autorizar la colocación de rótulos de en las instalaciones siempre y cuando la normativa vigente así lo permita. Tales rótulos no podrán hacer alusión a publicidad para bebidas alcohólicas, anuncio de cigarrillos o aquellos que por su contenido atenten contra la moral y las buenas costumbres.

@@ -1,2 +1,0 @@
-Transitorio VII.—Los miembros de la Junta Directiva del CCDR Moravia del periodo 2020-2022 que a la fecha de entrada en vigencia de la reforma al artículo 15 de este Reglamento se encuentren ejerciendo el cargo y ya hayan ostentado el cargo en un periodo anterior inmediato (2018- 2020) no podrán ser reelectos para el periodo 2022-2024, siendo que deberán esperar al menos dos años una vez vencido su nombramiento para poder volver a optar por la calidad de miembros de la Junta Directiva.
-(Así adicionado en sesión N° 207 del 13 de abril del 2020)

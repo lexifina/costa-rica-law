@@ -1,1 +1,0 @@
-Artículo 56.—El Comité Cantonal será el único facultado para regular y establecer las cuotas de uso o alquiler de las instalaciones deportivas y recreativas del cantón tanto de su administración como las que hayan sido cedidas en administración a Comités Comunales, asociaciones, organizaciones o cualquier otro de naturaleza física o jurídica.

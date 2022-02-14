@@ -1,1 +1,0 @@
-Artículo 80.—Este Reglamento deroga el Reglamento Operativo del Comité Cantonal de Deportes y Recreación de Moravia, publicado en La Gaceta número ochenta y seis del cuatro de mayo del dos mil cuatro.

@@ -1,1 +1,0 @@
-Artículo 27.—Todo miembro deberá comunicar en forma escrita cuando proceda, las razones de su inasistencia a las sesiones, a más tardar dentro de las veinticuatro horas siguientes de celebrada la sesión por los medios oficiales que haya establecido el Comité Cantonal, caso contrario será catalogada la inasistencia como injustificada y sancionable.

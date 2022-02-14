@@ -1,2 +1,0 @@
-Artículo 11 bis.—En el caso de que las personas menores de edad a las que refiere el artículo 11, inciso d) cumplan su mayoría de edad encontrándose en el ejercicio del cargo, podrán ejercerlo hasta finalizar su periodo de nombramiento; no obstante, no podrán ser reelectos al amparo de dicho artículo cuando sean mayores de edad. Siempre deberá garantizarse que las personas electas con base en dicho artículo al momento de su elección tuvieran entre 15 y 17 años.
-(Así adicionado mediante sesión N° 193 del 9° de enero del 2020)

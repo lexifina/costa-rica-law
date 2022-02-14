@@ -1,1 +1,0 @@
-Artículo 34.—Existen dos tipos de votación: nominal y secreta. Es nominal la votación cuando cada uno de los miembros de la Junta Directiva exprese en forma oral su voto; es secreta aquella votación se haga mediante el uso papeletas o por cualquier otro medio que por acuerdo se establezca.
