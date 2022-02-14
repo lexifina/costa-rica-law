@@ -1,2 +1,0 @@
-Artículo 5. De los criterios de selección a considerar para la emisión de avisos de cobro a patronos y trabajadores independientes
-. La Subárea de Cobro Administrativo a Patronos, el Área Gestión de Cobro a Trabajadores Independientes y las Sucursales, emitirán los avisos de cobro a patronos y/o trabajadores independientes, según corresponda, de conformidad con los criterios de selección que defina previamente la Gerencia Financiera.
