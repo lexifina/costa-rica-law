@@ -67,7 +67,7 @@ Pruebas (mínimo dos) | 35%
 Asistencia | 10%
 (*) Consiste en la organización de una serie de actividades variadas, para presentarlas a la comunidad, muestra lo que el estudiantado ha aprendido durante cada período y la aplicabilidad que estos aprendizajes tienen.
 La asignatura de Educación Cívica en telesecundarias se rige por lo establecido en el inciso c) de este artículo.
-n) En los liceos rurales, en Actividades de Desarrollo Personal – Social:
+n) En los liceos rurales, en Actividades de Desarrollo Personal - Social:
 Trabajo cotidiano | 50%
 Tareas | 10%
 Prueba (mínimo una) | 30%
@@ -81,3 +81,8 @@ Trabajo cotidiano | 50%
 Tareas | 10%
 Prueba (mínimo una) | 30%
 Asistencia | 10%
+q) En las subáreas de las especialidades técnicas correspondientes a programas de estudio aprobados por el Consejo Superior de Educación que se implementan en modalidad dual, se calificará de la siguiente manera.
+Trabajo cotidiano | 30%
+Portafolio de evidencias | 30%
+Pruebas (mínimo dos) | 40%
+(Así adicionado el inciso q) anterior por el artículo 5° del decreto ejecutivo N° 43424 del 14 de febrero de 2022)

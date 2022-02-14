@@ -25,3 +25,4 @@ Reglamento de evaluación de los aprendizajes
 | 10 | 2020-07-28 | Decreto Ejecutivo 42365 (2020-07-28) |
 | 11 | 2021-04-16 | Decreto Ejecutivo 42968 (2021-04-16) |
 | 12 | 2021-07-27 | Decreto Ejecutivo 43171 (2021-07-27) |
+| 13 | 2022-02-14 | Decreto Ejecutivo 43424 (2022-02-14) |
