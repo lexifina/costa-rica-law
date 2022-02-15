@@ -1,1 +1,0 @@
-Artículo 38. Calculo de Unidades equivalentes: Para obtener las unidades equivalentes se procede a multiplicar las unidades de ocupación (comercio/vivienda/servicios) por el factor de ponderación correspondiente y se suman todas las unidades equivalentes.

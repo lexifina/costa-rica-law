@@ -1,1 +1,0 @@
-Artículo 25. Todas las personas físicas o jurídicas, públicas o privadas, que acumulen residuos de manejo especial y no cuenten con la Unidad de Cumplimiento la Municipalidad recogerá los residuos y cobrara según los gastos incurridos más un 10% de gastos administrativos.

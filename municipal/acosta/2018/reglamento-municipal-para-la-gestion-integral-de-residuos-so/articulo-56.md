@@ -1,5 +1,0 @@
-Artículo 56. Incentivos. La Municipalidad utilizara los programas institucionales o nacionales avalados por el Departamento de Gestión Ambiental como mecanismo de incentivo para otorgar un reconocimiento a las viviendas, instituciones públicas y privadas que logren demostrar la reducción de los residuos generados desde la fuente
-a. Validez de los incentivos. Los incentivos tendrán una validez de un año a partir de su otorgamiento.
-b. Suspensión del incentivo otorgado. La Municipalidad puede suspender el incentivo otorgado a algún generador si comprueba la no continuidad de la acción por la cual lo recibió o se presente un incumplimiento a este reglamento.
-c. Solicitud de incentivo: Todo generador que desee solicitar el incentivo debe de presentar ante el Departamento de Gestión Ambiental copia de la inscripción de acuerdo al presente artículo.
-d. Tipo de incentivo: La Municipalidad aplicara una tarifa menor en relación con la tasa correspondiente, si el contribuyente tiene la tarifa menor, se le otorgara un reconocimiento simbólico.

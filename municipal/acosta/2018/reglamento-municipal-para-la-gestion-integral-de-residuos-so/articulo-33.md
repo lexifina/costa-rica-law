@@ -1,1 +1,0 @@
-Artículo 33. Estudios Tarifarios: Los estudios tarifarios se realizaran conforme al Manual para la definición de un Modelo Tarifario para la Gestión Municipal de Residuos Sólidos del Programa CYMA y será presentado por la Administración ante el Concejo Municipal durante el III trimestre de cada año para su aprobación.

@@ -1,2 +1,0 @@
-Artículo 27. Toda persona física o jurídica podrá presentar su respectivo reclamo si considera que el factor de ponderación que se le aplica no está acorde con el promedio de generación de residuo ante el Departamento de Gestión Ambiental.
-Para la debida presentación de un reclamo por parte del administrado a la ponderación aplicada debe de llenar formulario del Anexo 2: Boleta de Solicitud de Inspección de Servicios Públicos.

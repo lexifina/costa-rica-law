@@ -1,1 +1,0 @@
-Artículo 29. Plazos: Todo reclamo y/o solicitud de recalificación debe de presentarse el último día hábil de mayo de cada año para considerar dicho cambio en la elaboración del Presupuesto Ordinario del año siguiente.

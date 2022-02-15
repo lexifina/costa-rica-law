@@ -1,1 +1,0 @@
-Artículo 30. Incorporación de contribuyentes. Sera potestad del Departamento de Gestión de Cobros mediante la coordinación con la Unidad de Gestión Ambiental la incorporación de los contribuyentes previa notificación masiva o individual de incorporación.

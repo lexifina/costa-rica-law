@@ -1,3 +1,0 @@
-Artículo 17.Bis: De los residuos orgánicos. Los residuos orgánicos fácilmente degradables separados en la fuente pueden ser:
-a) Sujetos a compostaje directamente por el generador en su propiedad, siempre que éste disponga de las condiciones adecuadas para realizar esta tarea, específicamente de un espacio suficiente y que garantiza por su localización y la forma del tratamiento del material que no contamina el ambiente y no molesta a los habitantes vecinos.
-b) Entregados en la fecha definida por la Municipalidad y en las condiciones reguladas por este reglamento al servicio de recolección específica de dicho material.
