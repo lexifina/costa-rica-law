@@ -1,2 +1,0 @@
-Artículo 8. Para el pleno desarrollo del Premio al Educador o Educadora del Año “Mauro Fernández Acuña”, como apoyo operativo y logístico a la Comisión, el Ministerio de Educación Pública creará un equipo de trabajo, a continuación denominado: Equipo Operativo; y Jurados en cada Dirección Regional, a continuación denominado: Jurado Regional.
-(Así reformado por el artículo 6° del decreto ejecutivo N° 38622 del 19 de agosto del 2014)
