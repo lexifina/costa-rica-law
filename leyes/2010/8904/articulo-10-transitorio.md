@@ -1,0 +1,6 @@
+Transitorio X- A partir de la entrada en vigencia de la presente ley, y durante un plazo de dieciocho meses, queda habilitada la explotación y el procesamiento del oro por parte de los trabajadores mineros debidamente asociados a las cooperativas de mineros a las que hace referencia el artículo 8 del Código de Minería, que tengan presentadas solicitudes de concesión para el área de reserva minera de este cantón, para lo cual deberán hacer la solicitud correspondiente ante la Dirección de Geología y Minas del Ministerio de Ambiente y Energía, indicando:
+a) Que el material proviene únicamente del cantón de Abangares, del área concesionada o del área solicitada en concesión, según corresponda.
+b) El tipo de material a exportar, la cantidad y el peso, tanto bruto como neto, que pertenezcan exclusivamente a las partidas arancelarias del Sistema Arancelario Centroamericano (SAC), a saber, las partidas 710811000000, 710812000000, 710813000000, 710820000000.
+c) El país, lugar de destino y medio de transporte a utilizar.
+d) La estimación del valor comercial.
+(Así adicionado por el artículo único de la Ley de Fortalecimiento y mejoramiento ambiental de la minería artesanal de Abangares, N° 10132 del 10 de febrero del 2022)
