@@ -1,0 +1,1 @@
+Artículo 3º-Acuerdos y conducción. Las sesiones y acuerdos se regirán en función del reglamento de sesiones, acuerdos y comisiones, publicado en La Gaceta N° 129 del 5 de julio de 2005. Esto para garantizar el adecuado funcionamiento del Concejo Municipal, ajustando los señalamientos presenciales a la virtualidad.

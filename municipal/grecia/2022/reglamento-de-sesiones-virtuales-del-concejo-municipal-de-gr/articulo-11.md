@@ -1,0 +1,6 @@
+2- Artículo 11º- deberes de la Secretaría de Comisiones:
+1- La secretaría de comisiones llevará un registro de los datos completos (nombre completo, cédula, número telefónico, correo electrónico) de los miembros de las comisiones y personal de apoyo debidamente autorizado por la alcaldía, la presidencia del Concejo Municipal o la coordinación de la comisión, donde cada uno de ellos consignará un medio oficial para recibir notificaciones.
+2- De forma previa al inicio de la sesión virtual y no menor a tres horas antes del inicio de la sesión, la titular de la Secretaría de Comisiones deberá enviar al correo electrónico consignado, el enlace o acceso para que los miembros de la comisión y demás personal de apoyo puedan acceder a la sesión virtual a la hora programada.
+3- Solicitar a la coordinación de la comisión el nombre y el modo de contacto de las terceras personas, autorizadas por esta o el Concejo Municipal, para facilitarles el enlace de acceso para participar en la sesión respectiva.
+4- Realizar, conservar y enviar al correo consignado por los miembros de la comisión el acta de la sesión de la comisión.
+5- Colaborar a la coordinación de la comisión con la verificación de la presencia o ausencia de los miembros de la comisión durante la sesión virtual.
