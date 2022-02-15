@@ -14,3 +14,4 @@ Formato y enlace al Marco Geodésico para la georreferenciación de levantamient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-09 | la propia norma |
+| 2 | 2022-02-15 | Directriz 1 (2022-02-15) |

@@ -1,4 +1,5 @@
 JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+(Nota de Sinalevi: Mediante directriz N° DRI-001-2022 del 15 de febrero de 2022, "Sobre el formato y enlace al Marco Geodésico para la georreferenciación de levantamientos con fines catastrales", se acordó indicar que la entrada en vigencia en que se exigirá que los planos de agrimensura se presenten georreferenciados en el Sistema CR-SIRGAS en formato shape (shp) se definirá mediante Directriz.)
 REGISTRO INMOBILIARIO
 DIRECTRIZ DRI-003-2021
 DE: MSc. Mauricio Soley Pérez.
