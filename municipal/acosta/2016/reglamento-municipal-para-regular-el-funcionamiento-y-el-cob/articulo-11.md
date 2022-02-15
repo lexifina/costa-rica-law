@@ -1,6 +1,0 @@
-CAPÍTULO IV
-De los usuarios
-Artículo XI. -Obligaciones: Con el fin de garantizar el buen estado de los sistemas pluviales superficiales como el cordón de caño, zanjas o canales a cielo abierto, los usuarios tendrán las siguientes obligaciones:
-a) Garantizar que las rampas de acceso vehicular a predios, construidas desde el cordón de caño, no constituyan un cuello de botella producido por el uso de tubería con diámetros inadecuados para tal fin; cumpliendo además con los establecido en la Ley 7600 referente a la construcción de aceras y rampas.
-b) Dar mantenimiento a las zanjas, canales a cielo abierto o acequias no administradas consideradas como colectores pluviales que atreviesen sus propiedades, a fin de eliminar la vegetación, los sedimentos o los desechos que disminuyan su cauce y puedan ser causantes de desbordamiento.
-c) Dar aviso a la Municipalidad en el momento que se visualice o presuma una situación de peligrosidad relacionada con árboles de gran altura y/o con peligro inminente de caída o arbustos con densidad importante del follaje que dificulten la visibilidad para conductores o peatones, o puedan señalar otras situaciones de inseguridad ciudadana.

@@ -1,1 +1,0 @@
-Artículo XIV. el monto de la Tarifa de la Limpieza de zonas verdes y espacios públicos se actualizara cada año y será publicado en el Diario La Gaceta conforme lo establecido en el art 74 del Código Municipal

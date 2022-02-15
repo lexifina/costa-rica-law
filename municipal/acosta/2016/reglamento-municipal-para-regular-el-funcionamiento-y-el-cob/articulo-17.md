@@ -1,1 +1,0 @@
-Artículo XVII. De conformidad con el artículo 75 del Código Municipal inciso d), es responsabilidad de los propietarios o poseedores de Bienes Inmuebles la construcción y mantenimiento de las aceras frente a sus propiedades.

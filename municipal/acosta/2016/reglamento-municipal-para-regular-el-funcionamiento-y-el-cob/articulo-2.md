@@ -1,1 +1,0 @@
-Artículo II. Ámbito de aplicación. Este Reglamento será de aplicación obligatoria para todos los contribuyentes a los que se les brinde el servicio de Limpieza de vías públicas, mantenimiento y limpieza de parques, sitios públicos y zonas verdes en el cantón de Acosta.
