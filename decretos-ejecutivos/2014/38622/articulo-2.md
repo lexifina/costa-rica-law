@@ -1,2 +1,0 @@
-Artículo 2º—Modifíquese el artículo 1 del Decreto Ejecutivo, N° 37729-MEP, del 1 de febrero del 2013, para que se lea de la siguiente manera:
-Artículo 1º—El Premio a la Educadora o al Educador del Año “Mauro Fernández Acuña”, se entregará anualmente a la funcionaria o el funcionario docente del Ministerio de Educación Pública, cuyos aportes significativos mejoren en forma extraordinaria la calidad de los Centros Educativos donde laboran.
