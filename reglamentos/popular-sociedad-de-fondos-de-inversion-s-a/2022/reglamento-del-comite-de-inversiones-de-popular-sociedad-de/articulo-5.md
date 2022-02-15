@@ -1,0 +1,15 @@
+Artículo 5º-Funciones y requisitos de los miembros independientes.
+Los requisitos que deben cumplir los miembros independientes son:
+a) Ser personas de reconocida y probada honorabilidad y con amplia experiencia en materia económica, financiera, inversiones no financieras y bursátil, la cual debe quedar comprobada ante Popular SAFI.
+b) Ser personas que no hayan sido declaradas culpables, en sentencia judicial firme, en los últimos cinco años, contados a partir de su designación en firme, por la comisión de un delito doloso o bien que no hayan sido sancionadas administrativamente en firme por actos fraudulentos o ilegales.
+c) Ser personas que, en los últimos cinco años, contados a partir de su designación en firme, no hayan sido inhabilitadas en firme, judicial o administrativamente, para ocupar cargos administrativos o de dirección en entidades públicas.
+d) No ser representante legal, integrante de la junta directiva, fiscal o gerente, o bien poseer acciones, cuotas u otras participaciones de capital iguales o superiores al 50% de calificadoras de riesgo o emisores.
+e) No ser empleado, funcionario o miembro de la junta directiva de Popular SAFI o de alguna de las entidades o empresas integrantes del CFBPDC o grupo económico, incluyendo aquellas personas que hubieren tenido tal calidad durante el año inmediatamente anterior a la designación.
+f) No haber desempeñado la función de miembro independiente en el comité de inversiones del fondo de inversión durante nueve años en los últimos doce años.
+g) No ser socio, miembro de la junta directiva o empleado de empresas que presten servicios a la sociedad administradora o a los fondos de inversión bajo su responsabilidad, incluyendo aquellas personas que hubieren tenido tal calidad durante el año inmediatamente anterior a la designación.
+h) No ser socio, miembro de la junta directiva o empleado de empresas que presten servicios a entidades o empresas que pertenezcan al CFBPDC o grupo económico del cual forme parte la sociedad administradora, cuando los ingresos por dicho concepto representen para los proveedores, el diez por ciento (10%) o más de sus ingresos operacionales durante el año inmediatamente anterior a la designación.
+i) No haber recibido de la sociedad administradora alguna remuneración diferente a los honorarios como miembro del comité de inversiones de fondos de inversión bajo su responsabilidad.
+j) No tener consanguinidad y afinidad hasta segundo grado con directores o miembros de la Alta Gerencia de la Sociedad Administradora y su grupo de interés económico.
+k) No mantener, ni haber mantenido, relaciones comerciales, financieras o profesionales significativas con la entidad, directores o miembros de Alta Gerencia durante el año anterior a su nombramiento.
+Se presume que una relación es significativa si se realizan transacciones que representen un porcentaje igual o superior al 10% del patrimonio de la persona.
+Las transacciones se pueden generar por operaciones activas; pasivas; contratos para la prestación servicios; o la compra, venta o arrendamiento de activos y pasivos.
