@@ -1,0 +1,2 @@
+Artículo 12. - Prevención ante el incumplimiento de requisitos.
+De verificarse el incumplimiento de alguno o varios de los requisitos o condiciones señalados en la presente resolución, se prevendrá al interesado para que, en un plazo de 10 días hábiles, subsane su incumplimiento. Además, se le indicará que, si no subsana el incumplimiento en el plazo señalado, se archivará la gestión sin que medie notificación alguna al respecto, sin perjuicio de que pueda gestionar posteriormente una nueva solicitud.

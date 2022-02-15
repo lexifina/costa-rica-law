@@ -1,0 +1,2 @@
+Artículo 14. - Plazo para resolver la solicitud de autorización o de renovación.
+En razón de que tanto la solicitud de autorización para recibir donaciones como su renovación son peticiones fundamentadas en los artículos 102 del Código de Normas y Procedimientos Tributarios y 55 del Reglamento de Procedimiento Tributario, el plazo para resolverlas es de dos meses, contados a partir de la fecha de presentación de una u otra solicitud.

@@ -1,0 +1,2 @@
+Artículo 4°. - Donaciones al Comité Olímpico, al amparo de la Ley N°7800 del 30 de abril de 1998.
+Para realizar donaciones al Comité Olímpico, no se requiere de la autorización por parte de la Administración Tributaria. Cualquier cambio que se realice a la personería jurídica del Comité Olímpico debe ser informado a la Administración Tributaria e indicar el número y fecha del periódico oficial "La Gaceta" en que se publicó.
