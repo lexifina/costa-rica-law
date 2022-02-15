@@ -1,0 +1,3 @@
+Artículo 4°-Servicio de registro y actualización de Roles. Las entidades deben ingresar la información que se requiera, según el tipo de entidad y rol. Son responsables de la veracidad y exactitud de la información consignada en dicho sistema.
+Los representantes legales de las entidades deben cumplir con las funciones de aprobación establecidas en este Acuerdo para lo cual deben ser asignados como usuarios de Roles.
+Los empleados o funcionarios que sean asignados como usuarios por la propia entidad, así como el representante legal, deberán previamente haber participado en el proceso de capacitación correspondiente.

@@ -1,0 +1,1 @@
+Artículo 3°-Responsable de Seguridad Total. Corresponde al Responsable de Seguridad Total, como perfil asignado en el AES, la asignación de los perfiles y permisos a los usuarios que participan en la carga de información en Roles y definir los Responsables de la Seguridad Parcial (RSP) que velan por la administración de Roles.

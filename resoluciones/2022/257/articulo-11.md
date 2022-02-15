@@ -1,0 +1,4 @@
+Artículo 11.-Declaración jurada del representante legal. La siguiente declaración digital será rendida en Roles por el representante legal para los casos que corresponda según el artículo 10 de este acuerdo:
+"Yo, (nombre del representante legal), con la identificación (número de identificación), representante legal de (nombre de la entidad), declaro que la información que se ha consignado en este registro es completa y exacta de (nombre de la persona registrada) como (rol registrado).
+Adicionalmente, la documentación de respaldo que conforma el expediente se encuentra bajo el resguardo de mi representada.
+A la vez me comprometo a que mi representada mantendrá los datos que demuestran la idoneidad de la persona registrada en SUGEVAL en Línea, debidamente compilados y actualizados y que dicha información estará a disposición de la Superintendencia General de Valores para que la pueda solicitar o consultar en el momento en que lo considere necesario."

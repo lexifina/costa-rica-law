@@ -1,0 +1,4 @@
+Artículo 2°-Servicio de administración de esquemas de seguridad. A través de la plataforma Sugeval Directo los participantes mediante Roles, efectuarán el registro de la información requerida.
+Cada entidad deben contar con personal certificado por la Autoridad Certificadora del SINPE del Banco Central de Costa Rica en el uso del sistema Administración de Esquemas de Seguridad (en adelantes AES), como requisito indispensable para la administración de los perfiles de seguridad de Roles.
+El sistema AES es el sistema que deberán utilizar cada entidad para la administración interna de los usuarios así como la administración de los perfiles de seguridad del sistema Roles.
+Es requisito que cada entidad nombre al menos dos Responsables de Seguridad Total, los cuales actúan de manera mancomunada y son los encargados de la administración de los perfiles de seguridad de Roles.
