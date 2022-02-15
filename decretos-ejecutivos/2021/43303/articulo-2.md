@@ -1,0 +1,1 @@
+Artículo 2º-Las dependencias del Sector Público y del Sector Privado, dentro del marco legal respectivo, podrán colaborar, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la correcta, exitosa, eficaz y eficiente realización de los aspectos descritos en el artículo anterior.
