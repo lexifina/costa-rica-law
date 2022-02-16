@@ -14,3 +14,4 @@ Reglamento pago de dietas para los miembros de los órganos colegiados del Coleg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-03-23 | la propia norma |
+| 2 | 2022-02-16 | Decreto Ejecutivo 43512 (2022-02-16) |
