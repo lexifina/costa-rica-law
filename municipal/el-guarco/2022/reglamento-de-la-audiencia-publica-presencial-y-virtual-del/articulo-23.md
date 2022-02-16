@@ -1,0 +1,3 @@
+Artículo 23.-Informe final de la audiencia. En respuesta a las preguntas recibidas, el equipo consultor presentará un informe final, señalando aquellas observaciones que se estima procedente incorporar en el proyecto, así como aquellas que se aconseja desestimar, indicándose en todo caso el sustento técnico. Dicho informe deberá ser conocido por el Concejo Municipal y será publicado en el sitio web de la municipalidad.
+Vigencia. Rige a partir de su publicación.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
