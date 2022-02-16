@@ -1,9 +1,10 @@
-Artículo 10.—Predictores de selección
+Artículo 10.-Predictores de selección
 Los predictores de selección se definirán de la siguiente forma:
 a) Actividades de capacitación: los cursos, seminarios, talleres y similares recibidos, que tengan relación con las actividades y funciones del puesto.
 b) Entrevistas: técnica que consiste en una conversación previamente estructurada, con el propósito de obtener información objetiva y evaluar aspectos tales como características de personalidad, compromiso, intereses, preferencias, actitudes, aptitudes, motivación, experiencia laboral y estudios de la persona entrevistada.
 c) Experiencia: el conocimiento que se acumula por el desempeño en Instituciones del Estado u Organismos Internacionales, la Defensoría de los Habitantes y por el desempeño en puestos similares o relacionados con el que está sometido a concurso.
-d) Experiencia en el ejercicio profesional: Conocimiento adquirido en su especialidad posterior a la obtención del respectivo grado académico.
+d) Experiencia en el ejercicio profesional: Conocimiento adquirido en su especialidad posterior a la obtención del respectivo grado académico exigido en el puesto.
+(Así reformado el inciso anterior y publicado en el Alcance Digital N° 37 a La gaceta N° 34 del 21 de febrero de 2022)
 e) Experiencia en la supervisión de personal: en los casos correspondientes a los puestos de Director (a) de Asesoría Jurídica, Director (a) Administrativo (a), Defensor Especial, Contralor de Servicios y Auditor (a) Interno (a) así como los puestos de Jefatura de Departamento o similares y de Coordinadores de Sede Regional será requerida la experiencia en supervisión de personal.
 f) Grado o condición académica: enseñanza recibida en centros de educación formal extendidos o reconocidos y equiparados por el Ministerio de Educación Pública o las instituciones estatales de educación superior legalmente facultadas, que llevan a la obtención de un diploma, certificado o grado o condición académica. Pueden ser otorgados por un centro universitario o para-universitario, centros de educación secundaria o primaria.
 g) Pruebas de conocimiento: el instrumento a través del cual se mide lo que ha aprendido un candidato(a) a partir de muestras objetivas del respectivo proceso de aprendizaje.

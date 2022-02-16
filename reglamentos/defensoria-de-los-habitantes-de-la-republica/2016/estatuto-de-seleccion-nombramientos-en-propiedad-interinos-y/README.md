@@ -14,3 +14,4 @@ Estatuto de Selección, Nombramientos en Propiedad Interinos y Ascensos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-03-10 | la propia norma |
+| 2 | 2022-02-16 | Reglamento 0 (2022-02-16) |
