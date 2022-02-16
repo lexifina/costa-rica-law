@@ -1,3 +1,0 @@
-Artículo decimoquinto.-Del Resguardo a que Deben Someterse los Vehículos: exceptuando los vehículos de uso discrecional, los demás vehículos deberán permanecer al final de la jornada ordinaria de trabajo, en el garaje de estos organismos electorales.
-En la hipótesis de que el vehículo se encuentre en gira éste debe ser guardado en estacionamiento público del lugar y si no lo hubiese se pondrá a buen recaudo en las instalaciones de la Guardia Civil o de la Guardia Rural y en cualquier caso se pedirá la colaboración de dichos cuerpos de seguridad para brindar adecuada protección al vehículo.
-(Así reformado por Decreto del Tribunal Supremo de Elecciones N° 2, publicado en La Gaceta N ° 140 del 23 de julio de 1996)

@@ -1,1 +1,0 @@
-VIGESIMO SEGUNDO: PO LIZA PARA LOS VEHlCULOS: todos los vehículos propiedad de estos organismos electorales estarán cubiertos por una póliza de seguros contra todo riesgo, la cual será contratada por esta administración con el Instituto Nacional de Seguros.

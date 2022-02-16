@@ -1,3 +1,0 @@
-ARTICULO NOVENO: DE LA UNIDAD DE TRANSPORTES: al tenor de lo que ordenan los artículos 228 y 229 de la ley, la responsabilidad por el correcto y adecuado uso de los vehículos de estos organismos electorales es el Tribunal Supremo de Elecciones, quien será auxiliado en estos menesteres por una unidad de Transportes.
-Dicha unidad administrativa estará adscrita a la Sección de Servicios Generales y ejercerá las acciones de control establecidas en el artículo 12º de este Reglamento, así como aquellas que el Tribunal llegare a emitir en el futuro.
-(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo del TSE N° 05 del 7 de octubre de 2008)

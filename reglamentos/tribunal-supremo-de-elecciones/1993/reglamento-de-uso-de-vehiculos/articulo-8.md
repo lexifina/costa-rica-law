@@ -1,1 +1,0 @@
-ARTICULO OCTAVO: DEL USO DE LA BANDERA : de conformidad con lo que dispone el artículo 26 de la ley, sólo podrán usar los colores de la Bandera de Costa Rica como placa, con la respectiva leyenda y el número correspondiente, los vehículos de uso discrecional de los señores magistrados, así como los vehículos particulares o privados que sean propiedad de éstos.

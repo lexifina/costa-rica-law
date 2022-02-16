@@ -1,2 +1,0 @@
-ARTICULO SEPTIMO: DE LOS DISTINTIVOS
-QUE DEBEN PORTAR LOS VEHICULOS DE USO ADMINISTRATIVO GENERAL: de conformidad con lo que establecen los artículos 26, 222 Y 223 de la ley, los artículos de uso administrativo general deberán portar placa oficial. Asimismo, con rotulación que tendrá veinte centímetros de largo por diez centímetros ancho, llevarán en ambas puertas delanteras la inscripción TRIBUNAL SUPRUPREMO DE ELECCIONES SECRETARIA, o TRIBUNAL SUPREMO DE ELECCIONES REGISTRO CIVIL, según estén asignados los carros al Tribunal propiamente o al Registro Civil.
