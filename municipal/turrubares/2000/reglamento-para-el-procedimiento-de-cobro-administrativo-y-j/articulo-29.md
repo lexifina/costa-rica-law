@@ -1,1 +1,0 @@
-Artículo 29.-La oficina de cobro analizará, avalará y recomendará al Alcalde la firma de los arreglos de pago; también será responsable de su seguimiento y deberá verificar la firma de un documento con título ejecutivo, el cual garantizará el cumplimiento del pago respectivo.

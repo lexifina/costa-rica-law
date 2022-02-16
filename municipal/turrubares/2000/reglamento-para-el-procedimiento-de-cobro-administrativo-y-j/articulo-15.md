@@ -1,2 +1,0 @@
-Artículo 15.-La selección del o los abogados se tramitará mediante el proceso de contratación administrativa correspondiente de conformidad con las disposiciones de la Ley de la Contratación Administrativa , Ley número 7794 y sus reformas; y el Reglamento General de Contratación Administrativa. El profesional designado deberá firmar un contrato especificando la naturaleza de la contratación, sus finalidades, alcances y las obligaciones y responsabilidades firmadas entre las partes.
-(Así reformado mediante sesión N° 39 del 31 de agosto de 2007)
