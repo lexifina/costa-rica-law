@@ -1,0 +1,3 @@
+Artículo 15.-Admisibilidad y revisión. La CONASIPAN será la responsable de validar la admisibilidad de las propuestas. Para ello, debe asegurar que estas cumplan los requisitos establecidos para dicho fin.
+Tras recibir las candidaturas por parte de los postulantes, la CONASIPAN valorará si estas cumplen con los criterios mínimos solicitados en un plazo de un mes calendario, se podrá solicitar información adicional en caso de valorarlo necesario o rechazarlas si tras una primera revisión, consideran que no contiene los elementos de fondo necesarios para seguir el proceso.
+En caso de ser necesario el apoyo técnico de otras instituciones, se solicitará apoyo y se conformará un Consejo Técnico Especialistas.

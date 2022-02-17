@@ -1,0 +1,2 @@
+Artículo 6º-Del nombramiento de los representantes: cada representante será nombrado por el correspondiente jerarca institucional, quien a su vez nombrará un suplente que asistirá únicamente cuando el titular, por motivos justificados,
+no pueda participar. Todas las personas representantes nombradas deben ser funcionarios públicos, los cuales no devengarán ningún tipo de dieta ni remuneración y su nombramiento será oficializado mediante acuerdo ministerial del Ministerio de Agricultura y Ganadería, el cual será publicado en el Diario Oficial.

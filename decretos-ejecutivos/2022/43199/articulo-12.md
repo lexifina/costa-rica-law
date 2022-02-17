@@ -1,0 +1,1 @@
+Artículo 12.-Convocatoria. La CONASIPAN anunciará la recepción de candidaturas dos veces al año, utilizando para ello medios oficiales, digitales y otras plataformas que aúnen al interés de convocar a las partes interesadas, indicando requisitos, fecha límite y forma recepción de los documentos.

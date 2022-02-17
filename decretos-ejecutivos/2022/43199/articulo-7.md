@@ -1,0 +1,1 @@
+Artículo 7º-Período de nombramiento. Los miembros de la CONASIPAN serán nombrados por un período de 4 años, que rigen a partir de la publicación del acuerdo de nombramiento, con la posibilidad de ser prorrogado su nombramiento.

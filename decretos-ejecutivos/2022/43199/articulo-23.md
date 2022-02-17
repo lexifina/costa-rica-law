@@ -1,0 +1,1 @@
+Artículo 23.-Seguimiento. La CONASIPAN deberá dar seguimiento a las propuestas enviadas a la FAO para su valoración. Asimismo, deberá atender cualquier solicitud recibida por parte de esta instancia para ampliar o aportar nueva información.

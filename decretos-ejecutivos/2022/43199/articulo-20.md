@@ -1,0 +1,1 @@
+Artículo 20.-Votación de las propuestas. Una vez conocidas las recomendaciones del Consejo de Especialistas, la CONASIPAN deberá someterlas a votación para determinar si el sitio es nombrado SIPAN o si se sigue el proceso para presentarlo como sitio SIPAM, según corresponda o, si, por el contrario, se desestima la propuesta.

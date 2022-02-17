@@ -1,0 +1,1 @@
+Artículo 13.-Presentación. Las candidaturas de posibles sitios SIPAM o SIPAN, podrán ser presentadas por personas físicas o jurídicas que, habiendo construido el documento del caso, lo hagan llegar al Comité Sectorial Regional Agropecuario respectivo, que será el órgano responsable de remitirlo a la CONASIPAN.

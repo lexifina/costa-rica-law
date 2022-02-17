@@ -1,0 +1,3 @@
+Artículo 21.-Anuncio de decisión. Tras la votación de la CONASIPAN, vía Secretaría, se comunicará a la persona física o jurídica que presentó la propuesta, el resultado del proceso, independientemente de cuál sea. En caso de haber sido valorado como sitio SIPAN o SIPAM, se deberá indicar los pasos a seguir, así como los plazos.
+De no haberse valorado la candidatura para ninguna de las dos figuras, el postulante tiene la potestad de presentar recurso de apelación ante la CONASIPAN en el plazo de 3 días calendario contados a partir de la comunicación del acto.
+Cabe recurso de revocatoria en alzada bajo los términos de la Ley General de la Administración Pública.

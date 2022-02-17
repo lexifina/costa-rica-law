@@ -1,0 +1,1 @@
+Artículo 9º-Organización de la CONASIPAN. La CONASIPAN se regirá por lo establecido en los artículos 49 y siguientes de la Ley General de Administración Pública para órganos colegiados, Título II, Capítulo III de los Órganos Colegiados, y podrá, a lo interno, emitir las regulaciones que permitan su funcionamiento, transparencia, seguimiento y control.

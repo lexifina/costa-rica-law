@@ -1,0 +1,1 @@
+Artículo 22.-Remisión de candidaturas. Si la candidatura recibida fue acogida como propuesta de sitio SIPAM, la CONASIPAN elevará su dictamen al Despacho Ministerial de Agricultura y Ganadería, quien tras su valoración la remitirá al MREC con la solicitud de tramitarlo ante la representación de FAO en Costa Rica, para presentar a la Secretaría SIPAM ubicada en Roma.
