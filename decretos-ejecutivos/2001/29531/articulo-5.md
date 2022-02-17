@@ -1,7 +1,6 @@
-Artículo 5º—De los beneficiarios de la titulación: Serán beneficiarios de una titulación por su orden y con carácter prelativo:
-a) Las personas que posean un contrato de adjudicación suscrito por el IMAS y aquellas que se encontraban dentro del núcleo familiar al momento de que se suscribió dicho instrumento legal, siempre y cuando continúen habitando el inmueble.
-b) Los herederos o legatarios de las personas descritas anteriormente, siempre y cuando estén habitando el inmueble, no posean otro inmueble inscrito a su nombre y no existan cesionarios o terceros de mejor derecho.
-c) Las personas que tuvieren mayor antigüedad de habitar en forma ininterrumpida en el inmueble, excepto si hubiesen renunciado o cedido sus derechos.
-d) Las personas que demostrasen un título válido ante el IMAS, de conformidad con el artículo 6º del presente Reglamento.
-e) Las personas que en el momento de la solicitud de titulación estén habitando el inmueble, si no se demostrase la existencia de terceros de mejor derecho.
-En todo estos casos, en situación de igual, el IMAS buscará proteger ante todo, el interés superior de los niños y niñas que habiten el inmueble, los adultos mayores y las personas que posean una discapacidad.
+Artículo 5°-Requisitos: Para la autorización de los traspasos por parte del Consejo Directivo del IMAS a las personas beneficiarias se deberá de cumplir con los siguientes requisitos para ser incorporados al expediente respectivo:
+a) Contrato de Adjudicación del inmueble o Declaración Jurada (simple) de Posesión del Inmueble indicando el tiempo de ocupación de este (aportado por la persona solicitante, para lo cual deberán completar un formulario institucional destinado para este fin). Se exceptúan de este requisito las familias o personas beneficiaras que sean propuestas directamente por las Áreas Regionales de Desarrollo Social, en casos de terrenos sin ocupación.
+b) Plano Catastrado (con los visados correspondientes), acorde con las dimensiones del inmueble a titular. El cual podrá ser aportado por la persona solicitante, cuando lo tenga, o en su defecto por el IMAS.
+c) Informe de Valoración Técnica de una persona profesional del Área de Titulación, con base en una visita del inmueble donde recomiende la titulación de éste. El cual deberá ser aportado por el IMAS.
+d) Valoración social de las personas beneficiarias, por parte del Área Regional de Desarrollo Social del IMAS, en donde se recomiende el otorgamiento del beneficio, con la respectiva documentación que lo respalde. El cual deberá ser aportado por el IMAS.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43492 del 17 de febrero del 2022)

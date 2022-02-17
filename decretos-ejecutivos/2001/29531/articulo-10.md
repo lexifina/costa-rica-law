@@ -1,7 +1,5 @@
-Artículo 10.—Traspaso a título gratuito: El Consejo Directivo del IMAS podrá autorizar el traspaso del terreno y la vivienda a título gratuito a favor de los beneficiarios en los siguientes casos:
-a) Cuando así lo recomiende la Gerencia Regional respectiva, previo informe técnico.
-b) Cuando los inmuebles hayan sido adquiridos con recursos del Fondo de Desarrollo Social y Asignaciones Familiares, FODESAF.
-c) Cuando los inmuebles hayan sido donados al IMAS por particulares o terceros con el objeto de ser destinados a proyectos de vivienda de interés social.
-En caso de que el beneficiario posea deudas con la Institución por concepto de valor de infraestructura deberá cancelar el monto que le corresponda de previo al momento de la formalización o constituir garantía hipotecaria de primer grado a favor del IMAS, con un plazo máximo de pago de diez años y tasas de interés corriente y moratorio acorde con su situación socioeconómica, de conformidad con las directrices emitidas por el Consejo Directivo del IMAS.
-En caso de los solicitantes que demuestren haber ocupado el inmueble en forma pacífica, pública e ininterrumpida con los integrantes de su núcleo familiar durante un término no inferior a diez años, el traspaso de los inmuebles será a título gratuito, excepto que el beneficiario posea deudas con la Institución.
-(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 33614 del 28 de febrero de 2007)
+Artículo 10.-Traspaso a título gratuito: El Consejo Directivo del IMAS podrá autorizar el traspaso del terreno y la vivienda a título gratuito a favor de las personas beneficiaras, bajo recomendación del Área Regional de Desarrollo Social, en los siguientes casos:
+a) Cuando las personas beneficiarias se encuentren en situación de pobreza, de acuerdo con el resultado de la valoración socioeconómica y parámetros institucionales.
+b) Cuando se demuestre la ocupación del inmueble en forma pacífica, pública e ininterrumpida con los integrantes de su núcleo familiar en situación de pobreza, durante un término no inferior a diez años.
+c) Cuando los inmuebles hayan sido donados al IMAS por particulares o terceros, específicamente con el objeto de ser destinados a proyectos de vivienda de interés social.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43492 del 17 de febrero del 2022)

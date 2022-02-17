@@ -1,12 +1,13 @@
 CAPÍTULO X
-Otorgamiento de beneficios para la compra de lotes
-para vivienda de interés social
-(Así reformado el título del capítulo anterior por el artículo 1° del decreto ejecutivo N° 37380 del 09 de agosto del 2012)
-Artículo 24.—Requisitos que deben cumplir los beneficiarios: Para la autorización de otorgamiento de lotes para vivienda de interés social, estos deberán cumplir los siguientes requisitos:
-a) Fotocopia de cédulas de identidad y constancias de estado civil o declaración jurada con firma cotejada, para los casos en que haya unión de hecho de los postulantes, con una vigencia de tres meses, siempre y cuando estos documentos no se encuentren en el expediente.
-b) Constancia salarial, constancia de pensión o declaración jurada de ingresos con firma cotejada, de todos los integrantes que poseen ingresos económicos.
-c) Constancia de planillas de la Caja Costarricense del Seguro Social de los beneficiarios, que no tengan más de un mes calendario de emitida.
-d) Opción de venta del bien inmueble a adquirir con un plazo mínimo de noventa días hábiles la cual, debe estar suscrita por el propietario del bien. En caso de que sean lotes que formen parte del patrimonio de personas jurídicas, deben tener, además, la certificación de personería de quien firma en calidad de representante de la organización propietaria.
-e) Plano catastrado y visado por la municipalidad respectiva, de conformidad con el Plan Regulador si existiere.
-f) Constancia Municipal y Tributaria en el que se demuestre que el bien a adquirir se encuentra al día en el pago de impuestos territoriales y municipales, que no tengan más de tres meses calendario de emitida.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37380 del 09 de agosto del 2012)
+Otorgamiento de beneficios para compra de lotes
+para vivienda de interés social y compra
+de vivienda de interés social
+(Así modificada la denominación del título anterior por el artículo 1° del decreto ejecutivo N° 43492 del 17 de febrero del 2022)
+Artículo 24°-Otorgamiento de beneficios para compra de lotes para vivienda de interés social y compra de vivienda de interés social: El IMAS otorgará el subsidio a las personas o familias que habitan en terrenos propiedad del IMAS, en aquellos casos en donde no se haya podido articular con la oferta programática de las instituciones del Sistema Financiero Nacional para la Vivienda, o de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, bajo el principio de responsabilidad administrativa, cuando:
+a) Se encuentren ocupando terrenos con destino público.
+b) Se encuentren ocupando terrenos con situación o declaratoria de emergencia por inseguridad habitacional emitida por la CNE.
+c) Se encuentren ocupando terrenos con situación o declaratoria de inhabitabilidad según Orden Sanitaria por parte del Ministerio de Salud.
+d) Cuando se deban resolver problemas o situaciones de habitabilidad por mandato de un Órgano Jurisdiccional.
+e) En casos asociados y referidos a procesos de titulación y adjudicaciones de terrenos propiedad del Instituto Mixto de Ayuda Social (IMAS).
+Para la recepción del beneficio, la persona beneficiaria deberá consignar en la respectiva escritura de traspaso del inmueble, su anuencia a no gravarlo, traspasarlo o donarlo por el término de diez años contados a partir de la fecha de la respectiva escritura. Asimismo, para la ejecución del beneficio las personas afectadas no deben contar con otra vivienda propia ni terrenos inscritos a su nombre aptos para construcción de vivienda.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43492 del 17 de febrero del 2022)

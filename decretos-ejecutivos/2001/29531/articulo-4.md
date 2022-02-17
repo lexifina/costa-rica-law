@@ -1,17 +1,11 @@
 CAPÍTULO II
 De la titulación de inmuebles
-Artículo 4º—Requisitos: Para la autorización de los traspasos por parte del Consejo Directivo se deberá cumplir con los siguientes requisitos:
-Un Profesional Ejecutor realizará un informe técnico o valoración social a la familia eventualmente beneficiaria, en el que se recomiende el traspaso del lote o vivienda a título gratuito u oneroso. En este último caso procederá la constitución de garantía hipotecaria a favor del IMAS según el valor del metro cuadrado en el momento de adquisición del inmueble, más intereses a la tasa de interés legal.
-En caso de que el informe técnico o la valoración social sea realizado por un profesional externo funcionario de otra institución pública o contratado por el IMAS, deberá ser avalado por un profesional ejecutor de la Gerencia Regional correspondiente o del Área de Titulación.
-La familia beneficiaria deberá contar con la Ficha de Información Social debidamente aplicada.
-El beneficiario deberá aportar los siguientes documentos:
-a) Plano topográfico debidamente inscrito en la oficina de Catastro del Registro Nacional y visado por la Municipalidad respectiva. El IMAS podrá otorgar beneficios a las familias con el fin de subsidiar el pago de honorarios, timbres y gastos de implementación e inscripción de dicho documento.
-b) Fotocopia de la cédula de identidad y constancias de estado civil de los beneficiarios que adquieren, emitidas por el Registro Civil y constancia del INVU, del IMAS y IDA, de que a estos no les han sido adjuntados otros bienes inmuebles a su nombre por dichas instituciones.
-c) Declaración jurada de ingresos de los jefes de familia o constancia de salario emitida por el respectivo patrono o certificación de ingresos emitida por Contador Público o Privado.
-El IMAS gestionará la constancia de bienes de cada uno de los beneficiarios, con la cual se verificará la ausencia de bienes inmuebles inscritos a su nombre.
-Revisados los expedientes por el Área de Titulación serán remitidos a la Subgerencia de Desarrollo Social para su posterior presentación ante el Consejo Directivo.
-En el caso de aquellos solicitantes que demuestren haber ocupado el inmueble en forma pacífica, pública e ininterrumpida con los integrantes de su núcleo familiar durante un término no inferior a diez años y cuando no existan terceros de mejor derecho, el trámite de titulación únicamente requerirá el cumplimiento de los siguientes requisitos:
-a) Plano topográfico debidamente inscrito en la oficina de Catastro del Registro Nacional y visado por la Municipalidad respectiva. El IMAS podrá otorgar beneficios a las familias con el fin de subsidiar el pago de honorarios, timbres y gastos de implementación e inscripción de dicho documento.
-b) Fotocopia de la cédula de identidad y constancias de estado civil de los beneficiarios que adquieren, emitidas por el Registro Civil.
-Demostrado el ejercicio de los actos posesorios en el término indicado y revisados los expedientes por el Área de Titulación serán remitidos a la Subgerencia de Desarrollo Social para su posterior presentación ante el Consejo Directivo, con base únicamente en la calificación social original que dio origen a la adjudicación por parte del IMAS.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 33614 del 28 de febrero de 2007)
+Artículo 4°-De los beneficiarios de la titulación: Serán beneficiarios de una titulación por su orden y con carácter prelativo:
+a) Las personas que posean un contrato de adjudicación suscrito por el IMAS. y aquellas que se encontraban dentro del núcleo familiar al momento de que se suscribió dicho instrumento legal, siempre y cuando continúen habitando el inmueble.
+b) Los herederos o legatarios de las personas descritas anteriormente, siempre y cuando estén habitando el inmueble, no posean otro inmueble inscrito a su nombre y no existan cesionarios o terceros de mejor derecho.
+c) Las personas que tuvieren mayor antigüedad de habitar en forma ininterrumpida en el inmueble, excepto si hubiesen renunciado o cedido sus derechos.
+d) Las personas que demostrasen un título válido ante el IMAS., de conformidad con el artículo 6º del presente Reglamento.
+e) Las personas que en el momento de la solicitud de titulación estén habitando el inmueble, si no se demostrase la existencia de terceros de mejor derecho.
+f) Las personas beneficiaras que sean recomendadas directamente por las Áreas Regionales de Desarrollo Social, en los casos en donde el terreno no tenga ocupación alguna.
+En todos estos casos, en situación de igual, el IMAS buscará proteger, ante todo, el interés superior de los niños y niñas que habiten el inmueble, los adultos mayores y las personas que posean una discapacidad."
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43492 del 17 de febrero del 2022)
