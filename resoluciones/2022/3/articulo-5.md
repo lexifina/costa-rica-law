@@ -1,0 +1,3 @@
+Artículo 5. Responsable.
+Corresponderá a la persona directora o figura afín del centro educativo, con la asesoría de la supervisión del circuito y la dirección regional de educación competente, organizar y planificar el proceso de enseñanza aprendizaje y el retorno a lecciones presenciales en el curso lectivo 2022 en el sistema educativo costarricense tomando en consideración las excepcionalidades planteadas en el artículo 1 de esta Resolución.
+Cada institución educativa, debe velar por el estricto cumplimiento de todos los protocolos sanitarios establecidos y de los Lineamientos generales para la reanudación de servicios presenciales en centros educativos públicos y privados ante el coronavirus (COVID-19).
