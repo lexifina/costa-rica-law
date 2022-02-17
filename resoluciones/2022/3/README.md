@@ -14,3 +14,4 @@ Reestablece la obligatoriedad de la educación presencial a partir del curso lec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-17 | la propia norma |
+| 2 | 2022-02-17 | Resolución 398 (2022-02-17) |
