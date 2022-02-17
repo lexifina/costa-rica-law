@@ -1,0 +1,6 @@
+Artículo 21.-Forma de pago y factura: La forma de pago será de 15 días hábiles posteriores a la recepción a satisfacción de la factura por parte del INS. Solo se cancelan los repuestos que hayan sido entregados a satisfacción del INS.
+Dado que el pago del repuesto constituye una indemnización de un reclamo de seguros, la factura deberá ser emitida a nombre del INS, sin embargo, en todos los casos debe indicar el nombre del cliente, número de placa del vehículo y deberá consignar el número de reclamo del INS.
+Además, debe coincidir el monto de lo cotizado y facturado.
+Cualquier atraso en este sentido será responsabilidad de la empresa.
+La factura electrónica junto con los tres archivos que la validan deberá ser remitida por medio al correo electrónico facturascvins@ins-cr.com, deberá cumplir con lo estipulado por la Dirección General de Tributación Directa y deberá traer desglosado el impuesto que aplica.
+El pago se realizará en la misma moneda de la cotización.

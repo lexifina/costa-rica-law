@@ -1,0 +1,1 @@
+Artículo 4º-Responsables: Será responsabilidad de la Dirección de Seguros Automóviles a través del Centro de Gestión de Reclamos de Automóviles desarrollar y conducir los procesos de contratación que regula el presente reglamento.

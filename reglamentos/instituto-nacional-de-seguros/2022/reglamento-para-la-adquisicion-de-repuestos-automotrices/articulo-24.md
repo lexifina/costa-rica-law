@@ -1,0 +1,2 @@
+Artículo 24.-Utilización de medios electrónicos:
+Queda facultado el INS para realizar el presente procedimiento por medio del Sistema que la institución así lo designe o mediante el mecanismo manual y/o electrónico que determine y se ajuste más a la operativa específica.
