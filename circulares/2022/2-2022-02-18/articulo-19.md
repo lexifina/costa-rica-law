@@ -1,0 +1,1 @@
+Artículo 19. Si la visa es autorizada, el Cónsul deberá estampar la misma en el pasaporte. La persona extranjera cuenta con tres meses de plazo improrrogable para realizar este trámite una vez notificada la autorización. La validez para la utilización de la visa, una vez estampada es de sesenta días naturales. En la visa estampada se deberá indicar que es una visa de tránsito.

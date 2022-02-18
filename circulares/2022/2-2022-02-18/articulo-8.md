@@ -1,0 +1,1 @@
+Artículo 8. Las visas por reunificación familiar o las que sean solicitadas por las empresas e instituciones registradas ante la Dirección General de Migración y Extranjería, seguirán el trámite ordinario y podrán realizar las solicitudes ante la Unidad de Visas de la Dirección General de Migración y Extranjería, de acuerdo a la normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 11. Recibido el correo y verificado que el documento se pueda acceder, se procederá con la asignación del número de expediente, y posterior valoración y resolución conforme a derecho, contando la Dirección General con un plazo de treinta días para emitir la resolución final, una vez se haya completado el expediente.

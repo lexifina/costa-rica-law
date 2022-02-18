@@ -1,0 +1,1 @@
+Artículo 18. Las solicitudes de las personas nacionales de Cuba, deberán ser trasladadas por el Cónsul a la Unidad de Visas para ser valoradas y resueltas por la Comisión de Visas Restringidas y Refugio conforme a derecho.
