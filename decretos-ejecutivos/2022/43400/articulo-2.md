@@ -1,0 +1,2 @@
+Artículo 2º-Adiciónese un nuevo artículo 4 y se corre la numeración al Decreto Ejecutivo Nº 29412-MAG del 02 de marzo del 2001, publicado en La Gaceta Nº 70 del lunes 09 de abril del 2001, que dirá lo siguiente:
+"Artículo 4°-La Junta Directiva del Colegio de Ingenieros Agrónomos actualizará, en enero de cada año, el "Monto del avalúo" usando como referencia el "Salario Base derivado de la Ley N° 7337 del 05 de mayo de 1993, Ley Crea Concepto Salario Base para Delitos Especiales del Código Penal".
