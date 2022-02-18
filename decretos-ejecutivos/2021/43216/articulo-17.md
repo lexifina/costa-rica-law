@@ -1,0 +1,2 @@
+Artículo 17.-Reformas. Adiciónese un inciso j al artículo 14 del Decreto Ejecutivo 19016-C del 12 de junio de 1989, denominado Reglamento de la Comisión Arqueológica Nacional, para que se lea de la siguiente manera:
+"j. Velar por el cumplimiento de las disposiciones de la ley número 9500, Aprobación de la Convención sobre la Protección del Patrimonio Cultural Subacuático, del 21 de noviembre del 2017 y las obligaciones y procedimientos impuestos a esta Comisión por su Reglamento."

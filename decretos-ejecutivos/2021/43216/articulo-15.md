@@ -1,0 +1,2 @@
+Artículo 15.-Registro Oficial. Todo objeto que no se encuentre registrado de conformidad con la Ley 9500 y este Reglamento, deberá ser entregado a las autoridades del Museo Nacional de Costa Rica para su debida custodia y disposición.
+La Dirección del Museo Nacional prevendrá al poseedor para que, en un plazo razonable de un mes calendario, haga entrega de los bienes, de no hacerlo voluntariamente el Museo Nacional ejecutará las acciones legales que correspondan.

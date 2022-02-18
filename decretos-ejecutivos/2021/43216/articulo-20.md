@@ -1,0 +1,1 @@
+Artículo 20.-Ajuste regulatorio en materia técnico-arqueológica. Según las funciones que impone el presente reglamento para la Comisión Arqueológica Nacional y para el Museo Nacional de Costa Rica, estas instancias contarán con un plazo máximo de un año para emitir las disposiciones requeridas y realizar los ajustes regulatorios pertinentes en sus normas especiales.

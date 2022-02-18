@@ -1,0 +1,1 @@
+Artículo 5º-Interés Público. De conformidad con el artículo 36 de la Ley N° 6703 sobre Patrimonio Nacional Arqueológico del 28 de diciembre de 1981 se declara de interés público la investigación, gestión, protección, conservación, restauración y recuperación del patrimonio subacuático de Costa Rica.
