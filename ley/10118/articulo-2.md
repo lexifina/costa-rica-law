@@ -1,0 +1,1 @@
+ARTÍCULO 2- El lote resultante de la unión de ambos terrenos segregados se afecta al nuevo uso de centro educativo, con una medida de cuatro mil quinientos ochenta metros cuadrados (4 580m2), de conformidad con el plano catastrado número siete cinco nueve nueve cero ocho-uno nueve ocho ocho (N.º 759908-1988).
