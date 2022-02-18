@@ -14,3 +14,4 @@ Publica resolución N° 450-2021 (COMIECO-EX) de 12/07/2021 y su anexo 1: Sistem
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-01 | la propia norma |
+| 2 | 2022-02-18 | Decreto Ejecutivo 43493 (2022-02-18) |
