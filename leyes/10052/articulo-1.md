@@ -1,0 +1,17 @@
+N° 10052
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA DEL ARTÍCULO 28 DE LA LEY 9504 LICENCIAS PARA
+ACTIVIDADES LUCRATIVAS Y NO LUCRATIVAS DEL CANTÓN
+DE GUÁCIMO, DE 14 DE NOVIEMBRE DE 2017
+ARTÍCULO ÚNICO- Se reforma el artículo 28 de la Ley 9504, Licencias para Actividades Lucrativas y no Lucrativas del Cantón de Guácimo, de 14 de noviembre de 2017. El texto es el siguiente:
+Artículo 28- Impuesto por uso de rótulos, anuncios y vallas
+Los propietarios de bienes inmuebles o licenciatarios de negocios comerciales donde se instalen rótulos o anuncios y las empresas que vendan o alquilen espacios para publicidad de cualquier tipo mediante rótulos, anuncios o vallas pagarán un impuesto anual dividido en cuatro tractos trimestrales. Dicho impuesto se calculará tomando como base el salario base establecido en la Ley 7337, de 5 de mayo de 1993, de forma anual, según el tipo de anuncio o rótulo instalado, de acuerdo con las siguientes categorías:
+a) Anuncios volados: cualquier tipo de rótulo o anuncio permitido por ley, independientemente de su estructura, material o tamaño, excepto los luminosos, colocados en el borde y a lo largo de la marquesina de un edificio o estructura, pagarán un cinco por ciento (5%) anual sobre el salario base.
+b) Anuncios salientes: cualquier tipo de rótulo o anuncio permitido por ley, independientemente de su estructura, material o tamaño, excepto los luminosos, que sobresalgan de la marquesina de un edificio o estructura, pagarán un cinco por ciento (5%) sobre el salario base.
+c) Rótulos bajo o sobre marquesinas: cualquier tipo de rótulo o anuncio permitido por ley, independientemente de su estructura, material y tamaño, excepto los luminosos, colocado bajo o sobre marquesinas de edificios o estructuras, siempre que no sobresalgan de ellas, pagarán un cinco por ciento (5%) sobre el salario base.
+d) Rótulos luminosos: cualquier tipo de rótulo o anuncio permitido por ley que funcione con sistemas de iluminación incorporados a su funcionamiento (rótulos de neón y sistemas similares y rótulos con iluminación interna), pagarán un siete por ciento (7%) sobre el salario base.
+e) Anuncios en predios sin edificaciones contiguos a vías públicas: todo tipo de rótulo o anuncio permitido por ley, independientemente de su estructura, material y tamaño, excepto las vallas publicitarias, ubicados en predios sin edificaciones contiguos a vías públicas, pagarán un diez por ciento (10%) sobre el salario base.
+f) Anuncios en paredes o vallas: cualquier tipo de rótulo o anuncio permitido por ley, instalado sobre paredes de edificios o estructuras, de cualquier material y tamaño, así como las vallas publicitarias de cualquier tipo y tamaño, pagarán un cinco por ciento (5%) sobre el salario base.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veinticinco días del mes de octubre del año dos mil veintiuno.
