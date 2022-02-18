@@ -34,3 +34,4 @@ Publica Resolución N° 372-2015 (COMIECO-LXXIV) del 4 de diciembre de 2015 y su
 | 19 | 2022-02-18 | Decreto Ejecutivo 43493 (2022-02-18) |
 | 20 | 2022-02-18 | Decreto Ejecutivo 43494 (2022-02-18) |
 | 21 | 2022-02-18 | Decreto Ejecutivo 43495 (2022-02-18) |
+| 22 | 2022-02-18 | Decreto Ejecutivo 43496 (2022-02-18) |
