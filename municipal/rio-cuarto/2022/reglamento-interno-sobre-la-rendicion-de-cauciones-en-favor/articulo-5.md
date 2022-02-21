@@ -1,0 +1,1 @@
+Artículo 5º-Momento para rendir la caución. La caución deberá ser rendida, cuando así corresponda, una vez conocida por la persona la designación en el puesto y a más tardar dentro de los diez (10) días hábiles posteriores a la entrada en funciones.

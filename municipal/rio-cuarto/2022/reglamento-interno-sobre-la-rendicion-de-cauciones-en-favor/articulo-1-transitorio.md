@@ -1,0 +1,1 @@
+Transitorio I.-Las personas funcionarias obligadas por el presente reglamento a caucionar, contarán con un plazo máximo de un mes calendario para gestionar la garantía de caución y presentar una copia a Talento Humano.

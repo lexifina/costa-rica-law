@@ -1,0 +1,1 @@
+Artículo 2º-La caución. La caución es una garantía que se rinde en favor del Gobierno Local que permite el resarcimiento de eventuales daños y perjuicios que la persona responsable pueda producir al patrimonio municipal, sin que ello limite la eventual responsabilidad civil o penal.

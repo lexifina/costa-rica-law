@@ -1,0 +1,1 @@
+Artículo 15.-Responsabilidad por la no presentación de la caución. El no rendir o renovar la garantía dentro del plazo previsto al efecto se considera falta grave y originará responsabilidad administrativa, y se sancionará de acuerdo a lo establecido en la normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 10.-Ajuste de la caución. La persona caucionante que por algún motivo sea trasladada a otro puesto que implique una nueva ubicación en la clasificación por niveles de responsabilidad deberá ajustar la caución conforme a la nueva situación, para lo cual contará con un plazo de diez (10) días hábiles.

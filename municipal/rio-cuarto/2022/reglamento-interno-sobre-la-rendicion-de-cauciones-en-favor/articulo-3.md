@@ -1,0 +1,1 @@
+Artículo 3º-Forma de rendir la caución. La caución se rendirá mediante la suscripción de un seguro o póliza de fidelidad ante el Instituto Nacional de Seguros, o las entidades o empresas aseguradoras autorizadas.

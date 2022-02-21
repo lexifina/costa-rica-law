@@ -1,0 +1,1 @@
+Artículo 4º-Deber de solventar la caución. Es deber de la persona funcionaria obligada a rendir la caución gestionar la póliza, así como, pagar el costo de la póliza a suscribir desde su propio peculio.

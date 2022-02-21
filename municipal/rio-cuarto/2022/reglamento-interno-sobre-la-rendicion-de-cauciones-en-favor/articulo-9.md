@@ -1,0 +1,1 @@
+Artículo 9º-Simultaneidad de funciones sujetas a caución. La persona funcionaria obligada a rendir caución que se le asigne una función que genere ese mismo deber, caucionará una sola vez y por el monto de mayor valor.
