@@ -1,0 +1,1 @@
+ARTÍCULO 2- El terreno donado por medio de esta ley mantendrá su destino tal y como actualmente lo indica su naturaleza en el Registro Público de la Propiedad; además, será destinado para construir el nuevo edificio del Palacio Municipal.
