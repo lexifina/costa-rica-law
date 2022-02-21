@@ -1,5 +1,0 @@
-Artículo 14.—Supuestos para el archivo de la denuncia: La denuncia será archivada en los siguientes casos:
-1. Si se tratare de una reiteración o reproducción de denuncias similares, sin que se aporten nuevos elementos o que las mismas hayan sido archivadas anteriormente.
-2. Si el contenido de la denuncia ha sido resuelto con anterioridad por la Auditoría Interna o por otras unidades administrativas y/o judiciales.
-3. Si luego de otorgado el plazo de 3 días para que subsanare los requisitos esenciales establecidos en los artículos 4 y 5 del Reglamento, el denunciado no se apersonare o no hubiere presentado los requisitos a subsanar.
-4. Luego de haber sido admitida la denuncia, se procederá con su respectivo análisis. En caso de que se determine la falta de interés en continuar con su trámite, o bien se llegare a establecer la inexistencia de elementos de hecho o de derecho que determinen la realización de la conducta o hecho denunciado, se procederá a emitir acto donde consten los motivos del respectivo archivo, conforme a los términos establecidos en el artículo 17 del presente reglamento.
