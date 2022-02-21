@@ -1,0 +1,1 @@
+Artículo 18.-Del proceso de votación. Las normas contenidas en el decreto N° 6-2021 "Reglamento para el ejercicio del sufragio en la elección nacional del 6 de febrero de 2022", en cuanto al proceso de votación se refieren, tendrán plena vigencia para la celebración de la segunda votación.

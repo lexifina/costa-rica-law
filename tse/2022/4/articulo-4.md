@@ -1,0 +1,1 @@
+Artículo 4º-Centros de votación. Se utilizarán los mismos centros de votación designados para la votación del 6 de febrero de 2022, tanto en el territorio nacional como en el extranjero, salvo que por situaciones excepcionales, debidamente justificadas por el Departamento de Programas Electorales, sea necesario realizar cambios de ubicación de esos centros de votación.

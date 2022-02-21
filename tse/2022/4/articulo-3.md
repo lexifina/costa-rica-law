@@ -1,0 +1,1 @@
+Artículo 3º-Término de validez de la cédula de identidad. De acuerdo con el decreto Nº 3-2022, las cédulas de identidad, cuyo vencimiento haya ocurrido entre el 4 de febrero de 2020 y el 30 de abril de 2022, ambas fechas inclusive, conservarán su validez hasta el 1° de mayo de 2022.

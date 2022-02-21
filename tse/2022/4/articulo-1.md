@@ -1,0 +1,6 @@
+N° 4-2022
+EL TRIBUNAL SUPREMO DE ELECCIONES
+De conformidad con lo dispuesto en los artículos 99, 102 y 138 de la Constitución Política, el numeral 209 del Código Electoral, los decretos Nº 6-2021 "Reglamento para el ejercicio del sufragio en la Elección Nacional del 6 de febrero de 2022", N° 13-2021 "Decreto de Convocatoria a Elecciones" y la resolución de este Tribunal N° 135-E-2002 de las dieciséis horas del treinta de enero del dos mil dos. Decreta el siguiente.
+REGLAMENTO PARA LA CELEBRACIÓN DE LA
+SEGUNDA VOTACIÓN DEL PROCESO ELECTORAL 2022
+Artículo 1º-Fecha de celebración. Si una vez concluido el escrutinio definitivo de los sufragios emitidos el 6 de febrero de 2022 para presidencia y vicepresidencias de la República se confirma el supuesto previsto en el párrafo tercero del artículo 138 constitucional, el Tribunal Supremo de Elecciones (TSE) ordenará la celebración de una segunda votación para su elección, la cual se celebrará el domingo 3 de abril de 2022. La votación deberá efectuarse sin interrupción, durante el período comprendido entre las seis y las dieciocho horas del día señalado en el territorio nacional, y entre las nueve y las diecinueve horas de ese mismo día, en las juntas receptoras de votos instaladas en el extranjero.

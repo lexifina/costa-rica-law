@@ -1,0 +1,1 @@
+Artículo 9º-Envío de los materiales y documentación electoral. Para la entrega de los materiales y documentación electoral se aplicarán los plazos establecidos en el artículo 158 del Código Electoral.

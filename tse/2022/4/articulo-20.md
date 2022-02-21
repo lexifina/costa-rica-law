@@ -1,0 +1,1 @@
+Artículo 20.-Clubes políticos. Únicamente los partidos políticos que participan en la segunda votación podrán solicitar la inscripción de nuevos locales, de conformidad con el artículo 141 del Código Electoral y el "Reglamento sobre la autorización y utilización de los locales para uso de los partidos políticos", decreto N° 15-2012.

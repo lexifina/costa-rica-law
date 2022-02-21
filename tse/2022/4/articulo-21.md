@@ -1,0 +1,1 @@
+Artículo 21.-Declaratoria de elección. El escrutinio definitivo de las votaciones del 3 de abril de 2022 y la respectiva declaratoria de elección, deberán producirse dentro de los quince días hábiles siguientes al día de los comicios.
