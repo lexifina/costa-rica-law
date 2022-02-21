@@ -1,1 +1,0 @@
-Artículo 18.—Dentro del plazo establecido en la convocatoria, deberán presentarse las postulaciones en sobres cerrados, en el lugar que el INAMU designe para tal efecto, cuya vigencia será únicamente durante el plazo estipulado en la convocatoria.

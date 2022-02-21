@@ -1,1 +1,0 @@
-Artículo 11.—Las personas integrantes de la Comisión de la Galería, durante el ejercicio de sus funciones y de acuerdo a lo establecido en el artículo 5°, no podrán postularse para ingresar a la Galería de las Mujeres y tampoco podrán postular a otras mujeres.

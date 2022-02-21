@@ -1,1 +1,0 @@
-Artículo 19.—El INAMU, entregará la documentación al Jurado a más tardar en la segunda semana del mes de agosto, luego de que los sobres sellados sean abiertos en sesión de la Comisión de la Galería con la asistencia de todas las personas integrantes.

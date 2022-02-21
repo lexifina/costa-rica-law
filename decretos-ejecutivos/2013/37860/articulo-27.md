@@ -1,1 +1,0 @@
-Artículo 27.—La fotografía de las personas que formarán parte de la Galería de las Mujeres será en blanco y negro, y tendrá las siguientes dimensiones: 50 centímetros de alto por 30 centímetros de ancho, al pie de la cual figurará su nombre.

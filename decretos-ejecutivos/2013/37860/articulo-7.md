@@ -1,1 +1,0 @@
-Artículo 7°—Durante el período en que se lleva a cabo el proceso de reconocimiento e ingreso a la Galería de las Mujeres, la Comisión de la Galería sesionará de forma ordinaria una vez al mes y, extraordinariamente, cuando sea necesario; previa convocatoria por parte de la Presidencia de la Comisión.

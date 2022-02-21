@@ -1,2 +1,0 @@
-Artículo 20.—El Jurado contará con un plazo máximo de dos meses y medio para la deliberación y dará a conocer el nombre de las mujeres seleccionadas el último día hábil del mes de octubre. El fallo del Jurado será inapelable.
-Previo a dar a conocer públicamente el nombre de las mujeres seleccionadas, la Comisión deberá presentar un informe a la Junta Directiva del INAMU, acerca del proceso de selección de las mujeres que ingresarán a la Galería de las Mujeres.

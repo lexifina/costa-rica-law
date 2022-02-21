@@ -1,1 +1,0 @@
-Artículo 6º—Constituida la Comisión de la Galería, sus integrantes elegirán una persona para que ejerza la Secretaría, quien levantará las actas y tramitará la correspondencia. La Presidencia de la comisión de la Galería, será ejercida por una de las personas representantes del INAMU, elegida por la Presidencia Ejecutiva de dicha institución.

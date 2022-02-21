@@ -1,3 +1,0 @@
-Artículo 8°—Los acuerdos se considerarán aprobados por mayoría absoluta de las personas integrantes presentes y adquirirán firmeza con la aprobación del acta en la sesión siguiente. En caso de empate, luego de dos rondas de votación, la persona que ejerza la presidencia de la Comisión de la Galería ejercerá el voto de calidad.
-Los acuerdos de la Comisión podrán ser aprobados y adquirir firmeza en la misma sesión en que fueron adoptados, únicamente en casos de urgencia y cuando así se decida por votación de dos tercios de la totalidad de los miembros de la Comisión.
-Las actas deberán ser firmadas por las personas que ocupen la Presidencia y la Secretaría de la Comisión y, en caso de darse un voto salvado, por quien lo emite.

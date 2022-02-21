@@ -1,1 +1,0 @@
-Artículo 22.—El ingreso a la Galería de las Mujeres se hará el 8 de marzo del año siguiente a la convocatoria, en el marco de la celebración del Día Internacional de las Mujeres, en una ceremonia especial.

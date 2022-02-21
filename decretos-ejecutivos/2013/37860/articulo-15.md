@@ -1,1 +1,0 @@
-Artículo 15.—Para cada postulación, se deberá aportar la hoja de vida debidamente documentada de la persona propuesta, en el plazo establecido, el cual dará a conocer el INAMU, mediante publicación en un medio de comunicación masiva.

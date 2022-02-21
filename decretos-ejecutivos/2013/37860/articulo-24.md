@@ -1,1 +1,0 @@
-Artículo 24.—La documentación de las personas que no ingresen a la Galería deberá ser retirada por los postulantes, dentro de los siguientes treinta días naturales, caso contrario, el INAMU dispondrá lo que considere pertinente.

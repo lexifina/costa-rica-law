@@ -1,1 +1,0 @@
-Artículo 12.—Para efectos de la selección de las mujeres postuladas, la Comisión de la Galería se constituirá en Jurado en la primera semana de agosto cada dos años y finalizará en sus funciones al emitir el fallo final del reconocimiento.
