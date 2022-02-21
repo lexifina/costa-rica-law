@@ -1,0 +1,5 @@
+Artículo 29.-De la tasa de interés corriente. La tasa de interés corriente para los créditos será calculada sobre el saldo de la deuda, en el porcentaje que apruebe el Consejo Ejecutivo para cada cartera de crédito individual por el plazo de la deuda o arreglos de pago. La metodología para el cálculo de los intereses en las carteras de crédito será la siguiente: días aproximados / año comercial: 360/360. Para la fijación de las tasas de interés que aplica a las líneas de crédito de FONASCAFE, se debe tomar en cuenta los siguientes aspectos:
+a) Serán establecidos por el Consejo Ejecutivo conforme a las políticas de créditos y avales previamente establecidos para FONASCAFE.
+b) Requerirá del acuerdo del Consejo Ejecutivo de FONASCAFE, la cual estará sustentada en los estudios técnicos y financieros correspondientes.
+c) Deberá determinarse las características de la tasa de interés corriente a aplicar tales como vigencia, tasa fija o móvil, si es indexada, u otras que le sean aplicables.
+d) Toda modificación que se practique a las tasas de interés será efectiva a partir del acuerdo firme del Consejo Ejecutivo de FONASCAFE.

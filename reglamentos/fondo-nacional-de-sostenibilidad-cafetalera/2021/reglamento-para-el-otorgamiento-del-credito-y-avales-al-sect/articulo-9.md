@@ -1,0 +1,11 @@
+Artículo 9º-Unidad de Apoyo al Financiamiento Cafetalero. es la dependencia administrativa a cargo de la implementación de las estrategias y programas en materia de crédito y avales, del análisis de las solicitudes de crédito presentadas por los productores y el trámite de solicitudes de avales presentadas por las firmas beneficiadoras en el marco de los programas de crédito y avales aprobados. Le competen las siguientes funciones específicas:
+a) La recepción y pre-análisis de las solicitudes de préstamos, avales, readecuaciones, arreglos de pago, novaciones, prórrogas y cualquier otro tipo de gestión que presenten los deudores a FONASCAFE.
+b) Verificar el cumplimiento de requisitos y la remisión de la información básica requerida para dar trámites a las solicitudes de crédito.
+c) Elaborar y remitir al Comité de Crédito la respectiva sugerencia derivado del análisis las solicitudes de créditos, avales u otros movimientos, conforme a lo establecido en los reglamentos, lineamientos, políticas y procedimientos internos.
+d) Coordinar la oportuna formalización y desembolso de las operaciones de crédito con los deudores que son aprobadas por el Consejo Ejecutivo.
+e) Efectuar la gestión de cobro y readecuación de la cartera de crédito, de conformidad con las condiciones contractuales correspondientes.
+f) Identificar situaciones de incumplimiento de obligaciones de los deudores que justifiquen la activación de las cláusulas de vencimiento anticipado o resolución contractual, según corresponda y coordinar las acciones administrativas o legales aplicables.
+g) Velar porque la formalización y administración posterior de la cartera crediticia se ajuste a la normativa emitida por el Consejo Ejecutivo.
+h) Preparar y remitir al Consejo Ejecutivo información periódica respecto de la gestión de cartera crediticia y el otorgamiento de avales.
+i) Proponer a las instancias correspondientes la actualización de los reglamentos, lineamientos, políticas y procedimientos vinculados con la gestión de crédito y avales.
+j) En conjunto con la Unidad Financiera Contable realizar el proceso de generar la base de identificación de deudores, aplicación de pagos y emisión de recibos sobre depósitos de recursos percibidos a través de retención en las firmas beneficiadoras y depósitos directos de los deudores en las cuentas corrientes de FONASCAFE.

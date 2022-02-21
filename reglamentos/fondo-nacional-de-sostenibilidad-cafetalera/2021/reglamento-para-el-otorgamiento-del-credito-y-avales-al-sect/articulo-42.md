@@ -1,0 +1,1 @@
+Articulo 42.-Gastos administrativos de formalización: FONASCAFE podrá previo estudio técnico aprobado por el Consejo Ejecutivo aplicar el rubro de gasto administrativo en la labor de formalización con cargo al deudor.

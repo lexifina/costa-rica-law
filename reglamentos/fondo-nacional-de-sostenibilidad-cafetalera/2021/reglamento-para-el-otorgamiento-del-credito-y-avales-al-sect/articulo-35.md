@@ -1,0 +1,4 @@
+Artículo 35.-Póliza de saldos deudores colectiva o individual.
+a) FONASCAFE deberá exigir y contratar a nombre de sus deudores, los seguros colectivos o individuales que considere necesarios para salvaguardar el crédito otorgado y las garantías recibidas, exigiendo al menos las coberturas mínimas.
+b) Si el seguro no es pagado por el deudor, FONASCAFE estará facultado para realizar el pago y cargar el monto a la deuda. La vigencia de las pólizas debe ser por el plazo del crédito otorgado.
+c) El prestatario será incluido por FONASCAFE en la póliza colectiva sobre saldos deudores durante la vida del crédito. El costo de dicha póliza será rebajado de los desembolsos del prestatario, de conformidad con la periodicidad que establezca FONASCAFE durante el período de crédito. En el período de pago, el monto respectivo debe ser cubierto por el prestatario.

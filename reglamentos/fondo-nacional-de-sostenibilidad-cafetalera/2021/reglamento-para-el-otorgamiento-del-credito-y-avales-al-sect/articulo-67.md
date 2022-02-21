@@ -1,0 +1,4 @@
+Artículo 67.-Ejecución del aval. Las entidades financieras autorizadas podrán solicitar a FONASCAFE la ejecución del aval cuando cuenten con evidencia formal que un crédito fue registrado como incobrable. Para este fin deben presentar la siguiente información para la determinación de la existencia de pérdida, asociada a los montos no recuperados de capital, intereses corrientes y moratorios, gastos administrativos, de cobro, de ejecución de la garantía y avalúos en caso de existir una garantía hipotecaria:
+a) Oficio de solicitud formal de ejecución del aval.
+b) Constancia con el detalle del saldo adeudado de principal e intereses de la operación hasta la fecha que fue registrado como incobrable, incluyendo el valor de la propiedad dada en garantía.
+c) Avalúo de la propiedad en caso de una garantía hipotecaria.

@@ -1,0 +1,1 @@
+Artículo 51.-De la declaratoria de vencimiento. El incumplimiento de alguna de las obligaciones contraídas por los deudores dará derecho a FONASCAFE a dar por vencida la operación y exigir en su totalidad el pago de dicha deuda, y proceder con el envío a cobro judicial.

@@ -1,0 +1,6 @@
+Artículo 66.-Información periódica de las entidades autorizadas. Las entidades financieras autorizadas deberán remitir a FONASCAFE la información que a continuación se detalla, considerando las periodicidades indicadas en cada caso y los formatos que serán establecidos para tales efectos por parte de administración de FONASCAFE.
+a) Información electrónica sobre el saldo actualizado de las operaciones de crédito avaladas vigentes al cierre, incluyendo el detalle de pagos efectuados, tasas de interés, plazos restantes, días de atraso.
+b) Reporte digitalizado de las gestiones de cobro realizadas respecto a operaciones que presentan morosidad superior a 60 días y que aún no han sido remitidas para cobro judicial.
+c) Reporte mensual digitalizado de las gestiones de cobro en trámite.
+d) Notificación mensual sobre la cancelación total de los créditos avalados por vía electrónica o en su defecto por medio de oficio, la comunicación de cancelación deberá ser remitida a al FONASCAFE únicamente por parte del personal designado formalmente por cada entidad autorizada.
+e) Solicitar a las entidades autorizadas un reporte digitalizado sobre la ejecución de garantías correspondientes al último mes, producto de procesos judiciales o por dación de pago de los deudores de las operaciones avaladas.

@@ -1,0 +1,3 @@
+Artículo 55.-De la contratación de abogados externos, que se encarguen de los cobros judiciales. Se autoriza a FONASCAFE a utilizar abogados externos en caso de requerirlos, para que realicen estas labores, sin menoscabo de que pueda ser realizado por abogados y notarios del ICAFE.
+El monto de honorarios y otros costos, por estos conceptos, deberán ser cubiertos por los deudores; por lo que se autoriza al FONASCAFE, para que los costos de honorarios, timbres y otros, se puedan cancelar con recursos del Fondo e incluirlos como un recargo adicional al financiamiento por este concepto.
+Si el proceso de cobro judicial es llevado a cabo por abogados y notarios del ICAFE, se autoriza incluir un 20% de recargo de acuerdo con el monto adeudado.

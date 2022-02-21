@@ -1,0 +1,1 @@
+Artículo 39.-Disponibilidad de desembolso: Los desembolsos de los créditos aprobados están sujetos a la disponibilidad de recursos en las cuentas bancarias de FONASCAFE, debiendo ser esto coordinado entre la Unidad de Apoyo al Financiamiento Cafetalero y la Unidad Financiera Contable.

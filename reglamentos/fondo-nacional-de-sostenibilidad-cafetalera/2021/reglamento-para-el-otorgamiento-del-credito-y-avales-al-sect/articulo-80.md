@@ -1,0 +1,1 @@
+Artículo 80.-Suministro doloso de información falsa. Cuando se compruebe que el productor solicitante u obligado dolosamente ha suministrado información falsa, sin perjuicio de la obligación de FONASCAFE de presentar la denuncia correspondiente, se tendrá por vencida la obligación, conforme procedimiento establecido por FONASCAFE.

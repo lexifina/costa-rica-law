@@ -1,0 +1,1 @@
+Artículo 41.-Suspensión de desembolsos. Sin perjuicio de lo indicado en el artículo 81 de este Reglamento, ante incumplimiento por parte de deudor debidamente comprobado de alguna de las cláusulas del contrato del crédito, FONASCAFE se reserva el derecho de suspender total o parcialmente los desembolsos del crédito.

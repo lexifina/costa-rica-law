@@ -1,0 +1,1 @@
+Artículo 58.-De la contratación de abogados externos para ejecución de las garantías. Se autoriza a FONASCAFE a utilizar abogados externos en caso de requerirlos, para que realicen la labor de ejecución de garantías de crédito, el costo de los honorarios y rubros legales incurrido será agregado a la liquidación de la deuda del productor.

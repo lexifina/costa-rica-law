@@ -1,0 +1,1 @@
+Artículo 38.-Desembolso del crédito: El crédito se desembolsará de conformidad con los montos estipulados en las condiciones de la línea de crédito y el documento de formalización, salvo casos excepcionales aprobados por el Consejo Ejecutivo.

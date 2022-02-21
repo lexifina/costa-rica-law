@@ -1,0 +1,1 @@
+Artículo 40.-Autorización de desembolsos parciales: En aquellos créditos que por su naturaleza sea necesario girar en más de un desembolso, los desembolsos se harán previo informe técnico del desarrollo del proyecto financiado por parte del personal autorizado por FONASCAFE para ejecutar la supervisión.

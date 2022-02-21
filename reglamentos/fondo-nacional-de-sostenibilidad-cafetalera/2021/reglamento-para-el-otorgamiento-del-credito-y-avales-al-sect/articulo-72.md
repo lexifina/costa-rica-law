@@ -1,0 +1,1 @@
+Artículo 72.-Los expedientes de avales. Las entidades autorizadas conformarán los expedientes de las operaciones de crédito que serán postuladas al otorgamiento del aval, de conformidad con lo que establece la normativa establecida por FONASCAFE sobre esta materia, y los requisitos y condiciones que se establezcan en los contratos o convenios que se suscriban para este fin.

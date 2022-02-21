@@ -1,0 +1,1 @@
+Artículo 57.-Extinción de deuda. En caso de muerte del deudor, si la deuda estuviera cubierta por una póliza de saldos deudores, una vez cancelado el monto de indemnización por parte de la entidad aseguradora, se dará por extinta conforme sea establecido por el Consejo Ejecutivo en las políticas y procedimientos que apruebe en esta materia.

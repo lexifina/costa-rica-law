@@ -1,0 +1,1 @@
+Artículo 33.-Aceptación de pólizas: Las condiciones de las pólizas de seguro, sus coberturas y demás características deberán ser previamente aceptadas por escrito por el deudor antes de la formalización del crédito.

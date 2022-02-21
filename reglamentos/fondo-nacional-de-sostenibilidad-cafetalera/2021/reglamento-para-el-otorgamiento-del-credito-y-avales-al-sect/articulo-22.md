@@ -1,0 +1,1 @@
+Artículo 22.-De la Prenda Cafetalera. A fin de respaldar los créditos cafetaleros, se constituirá la prenda cafetalera sobre las líneas de crédito que apruebe el Consejo Ejecutivo con recursos de FONASCAFE, las cuales deberán ser anotadas en los registros del ICAFE.

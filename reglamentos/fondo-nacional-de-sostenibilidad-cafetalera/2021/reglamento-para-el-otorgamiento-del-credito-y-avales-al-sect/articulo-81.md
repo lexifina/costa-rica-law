@@ -1,0 +1,3 @@
+Artículo 81.-Suministro sin dolo de información falsa. Cuando se compruebe que el productor solicitante u obligado sin mediar dolo ha suministrado información incorrecta, FONASCAFE, considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta podrá aplicar una de las siguientes opciones:
+a) Efectuar las correcciones del caso y mantener las condiciones del crédito,
+b) Variar la tasa de interés hasta la tasa básica pasiva del Banco Central de Costa Rica más los puntos adicionales que el Consejo Ejecutivo apruebe mediante acuerdo basado en un estudio técnico y en la respectiva moneda que rija al momento de emitirse la resolución entre las partes o, c) Dar por vencida la obligación y exigir su cancelación inmediata.

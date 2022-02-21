@@ -1,0 +1,1 @@
+Artículo 75.-Traslado de Expedientes. En caso de ser necesario el traslado de expedientes a otras instancias de FONASCAFE o ICAFE para trámites en materia de formalización, cobro administrativos y judiciales o fiscalización, deberá mantenerse una bitácora de la trazabilidad de la documentación en la Unidad de Apoyo al Financiamiento Cafetalero.
