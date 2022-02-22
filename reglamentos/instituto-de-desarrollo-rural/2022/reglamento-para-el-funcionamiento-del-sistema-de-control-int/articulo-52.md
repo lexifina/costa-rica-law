@@ -1,0 +1,2 @@
+Artículo 52.-Comunicación de Riesgos. El personal titular subordinado en coordinación con los ECII, serán las responsables de divulgar la información del proceso de Valoración de Riesgos en su área de trabajo, mediante los informes del SEVRI que se elaborarán periódicamente y también mediante cumplimiento a solicitud de los sujetos interesados
+La Seteder y la CICI mediante los informes correspondientes a los resultados institucionales de riesgos, brindará la información requerida a la Administración Superior, o entes internos o externos que requieran de esta.

@@ -1,0 +1,1 @@
+Artículo 27.-Cuestionario. El diseño del cuestionario de autoevaluación se fundamenta en los objetivos y alcances del seguimiento del SCII. La Seteder será responsable de su diseño, mismo que deberá ser validado por la CICI.

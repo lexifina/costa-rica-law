@@ -1,0 +1,1 @@
+Artículo 38.-Mapa de Calor. La Seteder, a través del Proceso de Control Interno diseñará el Mapa de Calor y asignará escalas de medición cualitativa y cuantitativamente. El mapa de calor será utilizado por las unidades administrativas en el análisis de riesgos, a la vez será de utilidad en la toma de decisiones dependiendo de su probabilidad e impacto.

@@ -1,0 +1,1 @@
+Artículo 33.-Objetivo. Facilitar el cumplimiento de la misión, objetivos y metas institucionales, mediante la prevención y administración de los riesgos que se pueden presentar en los diferentes niveles del Inder. Todas las unidades deberán realizar la identificación de eventos generadores de riesgos, con el fin de mantener a la institución en un nivel de riesgo aceptable.

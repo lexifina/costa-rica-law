@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Autoevaluación
+Artículo 25.-Objetivo. El objetivo de la Autoevaluación es verificar el cumplimiento, la validez y la suficiencia del SCII en el Inder. Se realiza como parte del seguimiento del Sistema, de manera que permita la visualización, creación, ejecución y perfeccionamiento de acciones de mejora y reducir la probabilidad de desvíos de la institución, en el cumplimiento de sus objetivos. La autoevaluación del SCII no solo perfecciona el Sistema, sino que además compromete a la Administración Superior y todos sus colaboradores, en la toma de medidas de control para mejorar la calidad en el desempeño de la institución, logrando mayores resultados con eficiencia y eficacia en el uso de los recursos institucionales.

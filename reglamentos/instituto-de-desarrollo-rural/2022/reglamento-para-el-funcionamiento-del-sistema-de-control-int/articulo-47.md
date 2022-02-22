@@ -1,0 +1,1 @@
+Artículo 47.-Análisis de Riesgos. Corresponderá a las unidades administrativas, una vez identificados los riesgos, realizar el análisis de riesgos, para determinar el nivel de riesgo existente a partir de la probabilidad y el impacto de la consecuencia de los eventos identificados, para ello se utilizará el Mapa de Calor definido y brindado por la Seteder.

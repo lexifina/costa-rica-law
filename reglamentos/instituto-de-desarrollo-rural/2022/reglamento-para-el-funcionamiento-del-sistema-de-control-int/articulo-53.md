@@ -1,0 +1,7 @@
+CAPÍTULO VI
+Sanciones
+Artículo 53.-Causales de responsabilidad. Tal como versa el artículo 39 de la Ley General de Control Interno, indica que se incurrirá en responsabilidad administrativa, civil y penal cuando:
+a) La persona responsable de ejecutar las labores como jerarca y las personas titulares subordinadas, si incumplen injustificadamente los deberes asignados en la Ley General de Control Interno y el presente reglamento.
+b) La persona responsable como jerarca, las personas titulares subordinadas y el personal institucional del Inder que debiliten, con acciones, el Sistema de Control Interno, u omitan las actuaciones necesarias para establecerlo, mantenerlo, perfeccionarlo y evaluarlo, según la normativa técnica aplicable.
+c) El personal institucional del Inder que injustificadamente incumpla los deberes y las funciones que en materia de control interno le asigne la persona responsable como jerarca o el personal titular subordinado, incluso las acciones para instaurar las recomendaciones emitidas por la Auditoría Interna, sin perjuicio de las responsabilidades que les puedan ser imputadas civil y penalmente.
+d) La persona responsable como jerarca, las personas titulares subordinadas y el personal institucional del Inder también incurrirán en responsabilidad administrativa y civil, cuando corresponda, por obstaculizar o retrasar el cumplimiento de las potestades de la Auditoría Interna del Inder.

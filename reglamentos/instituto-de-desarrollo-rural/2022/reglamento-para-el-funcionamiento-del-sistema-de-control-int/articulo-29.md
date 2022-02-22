@@ -1,0 +1,1 @@
+Artículo 29.-Resultados. La Seteder elaborará un informe anual contemplando los resultados de las autoevaluaciones del SCII. Este informe deberá ser validado por la CICI para posteriormente ser remitido a la Junta Directiva para lo que corresponda.

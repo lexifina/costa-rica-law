@@ -1,0 +1,5 @@
+Artículo 35.-Acciones para la implementación del Sistema. La implementación del Sistema se desarrolla en las siguientes etapas:
+a) Establecimiento del SEVRI: se utilizará el presente reglamento como marco orientador y los lineamentos establecidos en este, tales como: ambiente de apoyo, recursos, sujetos interesados y el Módulo Informático de Control Interno para el registro de la información y su documentación.
+b) Funcionamiento del SEVRI: todas las unidades operativas ejecutarán las siguientes etapas: identificación de riesgos, análisis de riesgos, evaluación de riesgos y administración de riesgos. De esta fase se obtendrán dos productos: 1) la valoración de riesgos y 2) el plan de administración de riesgos. Con el objetivo de mantener al Inder en un nivel de riesgo aceptable.
+c) Evaluación y seguimiento: todas las unidades operativas ejecutarán las etapas de revisión de riesgos, documentación de riesgos y comunicación de riesgos. Se obtendrán dos productos: 1) Evaluación sobre la eficacia y la eficiencia de las medidas para la administración de riesgos ejecutadas y propuestas de ajuste y 2) Medidas necesarias tendientes a fortalecer y perfeccionar el
+SEVRI.

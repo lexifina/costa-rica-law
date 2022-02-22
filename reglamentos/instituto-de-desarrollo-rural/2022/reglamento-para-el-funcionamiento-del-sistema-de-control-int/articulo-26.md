@@ -1,0 +1,1 @@
+Artículo 26.-Ejecución. La autoevaluación del SCII se aplicará en el Inder una vez al año, como parte del seguimiento del Sistema, será asesorada por el Proceso de Control Interno de la Seteder, en la fecha prevista de conformidad con la programación aprobada por la CICI.

@@ -1,0 +1,4 @@
+Artículo 22.-Sesiones. La CICI sesiona de forma ordinaria cada dos meses, y podrá sesionar de forma extraordinaria cada vez que sea necesario. Todas las sesiones serán convocadas por la Gerencia General.
+Para que exista quórum, es necesaria la presencia de la mayoría simple de las personas integrantes de la Comisión, por cuanto los acuerdos se adoptarán por el voto de la mayoría simple. En caso de empate decidirá quien coordina la CICI.
+Quien en la votación decidiera salvar su voto consignará su firma en el apartado respectivo del acta.
+En cada sesión, sea ordinaria o extraordinaria, la Secretaría de la CICI es asumida por la persona que coordina el Proceso de Control Interno en la Seteder, quien se ocupa de confeccionar el acta correspondiente y transferir la misma para sus respectivas observaciones y correspondientes firmas.

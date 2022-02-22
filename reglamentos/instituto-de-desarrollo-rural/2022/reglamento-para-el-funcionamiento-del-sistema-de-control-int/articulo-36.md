@@ -1,0 +1,2 @@
+Artículo 36.-Estructura del Riesgo. La Seteder a través del Proceso de Control Interno elaborará un listado de categorías de riesgo, con el propósito de facilitar la clasificación de los eventos, cuyo mantenimiento será una actividad bajo su responsabilidad. Para ello se utilizará la técnica PESTEL.
+Cada unidad administrativa deberá remitir a esta misma unidad las solicitudes de incorporación, actualización y eliminación de categorías, como parte del seguimiento y monitoreo del SEVRI.
