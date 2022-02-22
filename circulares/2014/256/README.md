@@ -13,3 +13,4 @@ Lineamientos para el seguimiento de los nombramientos y pago de honorarios, de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-12-10 | la propia norma |
+| 2 | 2022-02-22 | Circular 36 (2022-02-22) |
