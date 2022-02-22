@@ -1,3 +1,1 @@
-Artículo 72.—En caso de que la Oficina de Transferencias y Control reciba una comunicación de exclusión de una persona menor de edad de un Hogar Solidario cuando ya se ha realizado el pago, la Oficina Local correspondiente deberá gestionar ante el representante del Hogar Solidario el reintegro inmediato, para lo cual la Oficina Local deberá remitir a la Oficina de Transferencias y Control los siguientes documentos:
-a) Acta de devolución debidamente firmada por el depositario (a) y el representante legal de la Oficina Local, y;
-b) Copia del depósito bancario.
+Artículo 72.- (Derogado por el artículo 91 del Reglamento para el otorgamiento de beneficios a sujetos privados y personas físicas con convenio de Cooperación con el Patronato Nacional de la Infancia para el desarrollo de programas atencionales en beneficio de la niñez y la adolescencia, aprobado mediante sesión ordinaria N° 2022-006 del 22 de febrero del 2022)

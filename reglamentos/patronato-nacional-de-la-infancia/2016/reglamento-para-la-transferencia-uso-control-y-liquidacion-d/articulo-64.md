@@ -1,5 +1,5 @@
 CAPÍTULO XI
 DE LA TRANSFERENCIA DE RECURSOS A LOS HOGARES SOLIDARIOS
 SUBVENCIONADOS
-Artículo 64.—La transferencia de recursos a los Hogares Solidarios será formalizada a través de convenios de transferencia de recursos. Dichos convenios o sus adendas serán suscritos por parte del representante legal de la Oficina Local del PANI competente de acuerdo con el domicilio del Hogar y por el representante del Hogar Solidario.
-Será obligación de la Oficina Local brindar el seguimiento mensual a cada uno de los Hogares Solidarios Subvencionados, que estén bajo su competencia, así como controlar en la medida de sus posibilidades, que los bonos navideños y extraordinarios que se giren sean utilizados conforme a los fines dispuestos y las necesidades propias de las personas menores de edad beneficiarias.
+(Derogado el capítulo anterior por el artículo 91 del Reglamento para el otorgamiento de beneficios a sujetos privados y personas físicas con convenio de Cooperación con el Patronato Nacional de la Infancia para el desarrollo de programas atencionales en beneficio de la niñez y la adolescencia, aprobado mediante sesión ordinaria N° 2022-006 del 22 de febrero del 2022)
+Artículo 64.- (Derogado por el artículo 91 del Reglamento para el otorgamiento de beneficios a sujetos privados y personas físicas con convenio de Cooperación con el Patronato Nacional de la Infancia para el desarrollo de programas atencionales en beneficio de la niñez y la adolescencia, aprobado mediante sesión ordinaria N° 2022-006 del 22 de febrero del 2022)
