@@ -13,3 +13,4 @@ Establecimiento de protocolos ante el cierre de despachos por limpieza profunda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-17 | la propia norma |
+| 2 | 2022-02-22 | Circular 37 (2022-02-22) |
