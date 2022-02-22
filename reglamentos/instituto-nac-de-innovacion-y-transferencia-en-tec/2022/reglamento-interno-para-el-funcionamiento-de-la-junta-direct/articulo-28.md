@@ -1,0 +1,1 @@
+Artículo 28.-El presente Reglamento podrá ser reformado en todo o en parte mediante acuerdo tomado por unanimidad de los miembros de la Junta Directiva del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria.

@@ -1,0 +1,1 @@
+Artículo 23.-Cuando hubiere empate en la votación de un acuerdo, resolución, moción o de cualquier otra disposición de la Junta Directiva, el Presidente resolverá conforme y para ello tendrá doble voto.

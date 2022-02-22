@@ -1,0 +1,5 @@
+Artículo 10.-La persona que ocupe la Fiscalía de la Junta Directiva, tendrá las siguientes funciones:
+a) Asegurar que los acuerdos, actos y resoluciones adoptados por la Junta Directiva se ajusten a los principios y regulaciones de las leyes y reglamentos vigentes y al accionar del Instituto para lo cual se podrá apoyar en la Asesoría Jurídica del instituto cuando lo requiera.
+b) Dar seguimiento al cumplimiento de los acuerdos de la Junta Directiva y el ajuste del contenido de los mismos. En caso de determinar que existen acuerdos sin ejecutar que superan un plazo definido o razonable, consultar al Director Ejecutivo cuando proceda e informar a los Directores para que estos sean valorados y se tome la decisión que corresponda.
+c) Llamar la atención según su determinación, si en el curso de las deliberaciones o adopción de acuerdos o resoluciones, los mismos se pudieren apartar de los lineamentos y disposiciones legales, normativas o reglamentarias aplicables en la materia.
+d) Cualesquiera otras compatibles con sus funciones y competencias, según la naturaleza del cargo.

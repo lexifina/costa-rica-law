@@ -1,0 +1,3 @@
+Artículo 22.-La actuación de los miembros de Junta Directiva debe estar dirigida a la satisfacción del interés general, para lo cual debe actuar con objetividad e imparcialidad. Serán motivos de abstención los establecidos de conformidad con el artículo 230 de la Ley General de la Administración Pública.
+Cuando los motivos concurran en un miembro de un órgano colegiado, la abstención no se hará extensiva a los demás miembros, salvo casos calificados en que éstos la consideren procedente.
+Es deber de todos los miembros de la Junta Directiva mantener la imparcialidad e independencia, por lo que estará prohibido que participe en la deliberación y decisión de los asuntos en que se manifieste el conflicto de intereses.

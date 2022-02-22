@@ -1,0 +1,1 @@
+Artículo 27.-Todas aquellas situaciones no previstas en este Reglamento, serán resueltas de conformidad con las disposiciones del Título Segundo, Capítulo Tercero de la Ley General de la Administración Pública, así como cualquier otra normativa vigente que resulte aplicable y las demás fuentes del Derecho según corresponda.

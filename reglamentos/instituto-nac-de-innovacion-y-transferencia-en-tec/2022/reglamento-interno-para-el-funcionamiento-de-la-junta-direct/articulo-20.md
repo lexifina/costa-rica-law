@@ -1,0 +1,1 @@
+Artículo 20.-Los miembros de La Junta Directiva votarán afirmativa o negativamente, los asuntos sometidos a su conocimiento. No obstante, lo anterior, cuando tres Directores manifiesten su deseo de estudiar más un asunto, petición o proposición sometida a conocimiento de la Junta Directiva, se postergará por una sola vez la votación, hasta la sesión siguiente.

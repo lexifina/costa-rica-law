@@ -1,0 +1,1 @@
+Artículo 18.-Las comisiones deberán solicitar plazo adicional con la debida antelación y justificación, cuando se trate de asuntos en que, por falta de datos, o por ser estos complicados, extensos o de gran importancia, no haya sido posible finalizar el estudio para lo cual concederá la prórroga que estime conveniente.

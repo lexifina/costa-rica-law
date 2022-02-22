@@ -1,0 +1,1 @@
+Artículo 29.-Se deroga el Reglamento para el funcionamiento de la Junta Directiva del INTA aprobado en la sesión N° 6, artículo N° 4, acuerdo N° 2, celebrada por la Junta Directiva el 11 de noviembre del 2002.

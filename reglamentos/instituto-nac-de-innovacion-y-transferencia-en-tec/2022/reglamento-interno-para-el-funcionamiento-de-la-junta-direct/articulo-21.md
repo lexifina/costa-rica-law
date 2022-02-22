@@ -1,0 +1,1 @@
+Artículo 21.-Para efectos de votación de acuerdos, ninguno de los miembros presentes en la sala de sesiones el momento de efectuarse la votación, podrá negarse a emitir su voto, salvo que concurran en él los motivos de abstención, lo que se tramitará conforme a las reglas establecidas en el artículo 234 de la Ley General de la Administración Pública.
