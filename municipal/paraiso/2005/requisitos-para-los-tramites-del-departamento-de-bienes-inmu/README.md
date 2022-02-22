@@ -15,3 +15,4 @@ Requisitos para los trámites del Departamento de Bienes Inmuebles y Catastro de
 | --- | --- | --- |
 | 1 | 2005-04-21 | la propia norma |
 | 2 | 2012-05-11 | Ley 9036 |
+| 3 | 2022-02-22 | Acuerdo municipal 24 (2022-02-22) |
