@@ -14,3 +14,4 @@ Lineamientos Generales para el Reglamento sobre Administración Integral de Ries
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-18 | la propia norma |
+| 2 | 2022-02-22 | Resolución 359 (2022-02-22) |
