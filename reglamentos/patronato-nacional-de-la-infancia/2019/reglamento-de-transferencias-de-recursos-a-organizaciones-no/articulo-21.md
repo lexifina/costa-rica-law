@@ -1,1 +1,0 @@
-Artículo 21.- Comprobante de pago de salario. El comprobante de pago de salario por planilla deberá cumplir con los requisitos que establezca el Departamento Financiero. Las únicas deducciones permitidas en un comprobante de salario serán las establecidas por la Caja Costarricense del Seguro Social o las emitidas por un juez competente.

@@ -1,1 +1,0 @@
-Artículo 16. Reclamos Administrativos. Las ONG podrán presentar reclamos administrativos en relación con cualquier disconformidad que tengan sobre aspectos financieros o técnicos. Se presentarán ante la Presidencia Ejecutiva debidamente firmados por el representante legal, con indicación clara de los hechos que motivan el reclamo y señalar medio para recibir notificaciones.
