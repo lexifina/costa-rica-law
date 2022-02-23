@@ -1,4 +1,5 @@
 CIRCULAR N° 15-2022
+(Nota de Sinalevi: Mediante circular N° 40 del 23 de febrero de 2022, publicada en el Boletín Judicial N° 42 del 3 de marzo de 2022, se acordó prorrogar la presente norma, por lo partir del día 01 de marzo del 2022 y hasta el día 31 de marzo de 2022, para todos despachos administrativos y jurisdiccionales del Poder Judicial y en el entendido de que las medidas necesarias para continuar operativizando las disposiciones adoptadas por esta Corte y por el Ministerio de Salud con motivo de la pandemia y asegurar la continuidad del servicio y la protección de la vida y salud de personas servidoras y usuarias, corresponderán al Consejo Superior.)
 ASUNTO: Acuerdo de Corte Plena. Sesión N° 1-2022 del 10 de enero de 2022, en atención a la declaratoria de emergencia nacional, debido a la situación de emergencia sanitaria provocada por la enfermedad COVID-19.
 A LOS DESPACHOS JUDICIALES DEL PAÍS,
 ABOGADOS, ABOGADAS Y PÚBLICO EN GENERAL

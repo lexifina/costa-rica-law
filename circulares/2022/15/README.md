@@ -13,3 +13,4 @@ Acuerdo de Corte Plena. Sesión N° 1-2022 del 10 de enero de 2022, en atención
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-11 | la propia norma |
+| 2 | 2022-02-23 | Circular 40 (2022-02-23) |
