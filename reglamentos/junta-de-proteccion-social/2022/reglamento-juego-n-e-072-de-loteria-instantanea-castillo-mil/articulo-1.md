@@ -1,0 +1,5 @@
+JUNTA DE PROTECCIÓN SOCIAL
+REGLAMENTO JUEGO Nº E072 DE LOTERIA INSTANTÁNEA
+"CASTILLO MILLONARIO"
+Artículo N° 1: Objeto: El objeto del presente Reglamento es establecer las condiciones que rigen la mecánica, plan de premios y de pago de premios del Juego de Lotería Instantánea denominado
+"Castillo Millonario" y la participación en La Rueda de la Fortuna asociada a este producto.
