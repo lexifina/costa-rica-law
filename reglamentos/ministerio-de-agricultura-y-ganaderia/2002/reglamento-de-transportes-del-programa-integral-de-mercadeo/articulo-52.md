@@ -1,1 +1,0 @@
-Artículo 52.—Investigar todo accidente de tránsito, percance, robo, hurto o malversación en que se involucre un vehículo de la institución y rendir un informe con recomendaciones a la autoridad competente y a los servidores involucrados.
