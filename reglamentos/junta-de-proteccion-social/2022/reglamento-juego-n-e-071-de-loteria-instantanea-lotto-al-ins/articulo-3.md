@@ -1,0 +1,1 @@
+Artículo Nº 3: Mecánica de Juego: Raspar toda el área de juego. Compare los "Números Ganadores" con "Sus Números" y gane el premio indicado según la cantidad de "aciertos" indicados en la leyenda de premios en el frente del boleto. Se puede ganar 1 vez en este boleto acertando 1, 2, 3, 4 o 5 números según la leyenda de premios.
