@@ -1,0 +1,1 @@
+Artículo 9°-Forma de recaudación del canon de fiscalización de IVE. Para efectos de la recaudación del canon de fiscalización de la IVE que deban pagar los regulados, le corresponde al CIVE autorizado, trasladar los montos por concepto de dicho canon al Consejo.
