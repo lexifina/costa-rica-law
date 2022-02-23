@@ -1,0 +1,3 @@
+ARTÍCULO 3- Declaratoria de ociosidad
+Cada órgano y entidad de la Administración Pública tendrá la obligación de realizar un inventario anual de todos sus bienes muebles e inmuebles y remitir un informe al Ministerio de Hacienda, a más tardar el 31 de marzo de cada año, en el cual identificará, además, los bienes que catalogarían como ociosos. En caso de no existir bienes de este tipo, el jerarca deberá hacerlo constar en el respectivo informe. Corresponderá al máximo jerarca del órgano o ente emitir la resolución razonada
+por la cual declara el bien como ocioso, así como acreditar que desprenderse de este no generará afectación al servicio público ni a derechos de terceras personas sobre estos.

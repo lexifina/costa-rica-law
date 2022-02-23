@@ -1,0 +1,2 @@
+ARTÍCULO 8- Facultad de los órganos o entes de la Administración Pública para participar
+Los órganos o entes de la Administración Pública, en ejercicio de sus potestades y competencias, podrán declarar la ociosidad de sus bienes, autorizar el traspaso y solicitar al Poder Ejecutivo, en los casos que corresponda, la presentación del proyecto para la desafectación del bien público, en los términos dispuestos por la presente ley.
