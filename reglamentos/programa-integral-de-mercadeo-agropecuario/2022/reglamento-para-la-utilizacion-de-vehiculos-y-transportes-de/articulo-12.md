@@ -1,0 +1,1 @@
+Artículo 12.-La Dirección Administrativa Financiera, a través del Proceso de Servicios Generales y de Transportes, el director de la regional correspondiente y el encargado de área, serán quienes ejecuten las medidas de control en cuanto al uso de los vehículos, las reparaciones y al mantenimiento de los automotores.

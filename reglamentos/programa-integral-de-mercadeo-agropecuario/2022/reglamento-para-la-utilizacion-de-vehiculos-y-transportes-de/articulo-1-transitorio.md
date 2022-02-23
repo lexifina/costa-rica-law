@@ -1,0 +1,1 @@
+Transitorio único: Se otorga a Servicios Generales un plazo no mayor a seis meses para realizar los cambios necesarios en el sistema para lograr brindar a las regionales las herramientas de control, uso y asignación establecidas en el presente reglamento.

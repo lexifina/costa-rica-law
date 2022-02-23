@@ -1,0 +1,1 @@
+Artículo 3º-Los vehículos oficiales de PIMA se utilizarán para atender servicios regulares de transporte de funcionarios de la institución, queda absolutamente prohibido su uso en asuntos personales o distintos a los propios del PIMA.

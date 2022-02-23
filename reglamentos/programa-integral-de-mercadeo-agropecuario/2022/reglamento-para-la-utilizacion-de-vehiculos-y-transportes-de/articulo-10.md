@@ -1,0 +1,1 @@
+Artículo 10.-Se considera falta grave el uso de los vehículos de la institución para fines no expresamente autorizados, conforme con lo dispuesto en los reglamentos del PIMA y la legislación vigente. Los funcionarios conductores y usuarios de los vehículos de la Institución, serán sancionados según la gravedad y su participación en la falta.

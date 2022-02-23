@@ -1,0 +1,1 @@
+Artículo 4º-Los vehículos propiedad de la Institución están al servicio del Consejo Directivo, la Administración y la Auditoría, así como terceras personas previamente autorizadas por la Administración, según lo establecido en el artículo 27, inciso 2, todo lo anterior de acuerdo con las actividades propias de la Institución.

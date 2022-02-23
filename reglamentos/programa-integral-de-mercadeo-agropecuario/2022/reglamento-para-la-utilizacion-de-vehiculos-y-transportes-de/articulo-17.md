@@ -1,0 +1,1 @@
+Artículo 17.-La Gerencia General con la debida motivación y justificación podrá aprobar la utilización de otros medios de transporte cuando las circunstancias y necesidades de la institución lo requieran.

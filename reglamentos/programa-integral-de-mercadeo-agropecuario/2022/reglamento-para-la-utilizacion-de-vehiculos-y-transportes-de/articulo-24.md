@@ -1,0 +1,1 @@
+Artículo 24.-Se podrá asignar vehículos de uso administrativo a unidades o dependencias por períodos prolongados de tiempo cuando existan necesidades institucionales, las cuales hayan sido justificadas y debidamente autorizadas.

@@ -1,0 +1,1 @@
+Artículo 29.-El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deroga el Reglamento de Transportes del Programa Integral de Mercadeo Agropecuario, publicado en la Gaceta 105 del 3-6-2002.

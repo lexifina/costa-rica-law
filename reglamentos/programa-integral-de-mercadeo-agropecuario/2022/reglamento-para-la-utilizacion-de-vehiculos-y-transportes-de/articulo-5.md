@@ -1,0 +1,1 @@
+Artículo 5º-El PIMA a través de la Dirección Administrativo Financiera, el proceso de Servicios Generales y la unidad de Trasportes velará por el uso racional de los vehículos al servicio de la institución. En el caso que el vehículo sea asignado a una regional, será el director y quien este designe, los responsables de este control.

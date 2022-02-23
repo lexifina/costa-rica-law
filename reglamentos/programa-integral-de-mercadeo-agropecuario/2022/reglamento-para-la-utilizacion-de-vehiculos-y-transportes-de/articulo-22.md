@@ -1,0 +1,1 @@
+Artículo 22.-Para el uso de un automotor en horario ordinario, se debe disponer de una autorización de la jefatura correspondiente que motive y justifique el uso. Con respecto al Gerente, los Directores, el Asesor Legal y el Auditor, podrán aprobárselos por sí mismos. En el caso del artículo 27, inciso 2, requerirá aprobación de la Dirección correspondiente.
