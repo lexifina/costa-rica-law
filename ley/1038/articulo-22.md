@@ -1,4 +1,3 @@
-Artículo 22.- La Junta Directiva se reunirá en sesión ordinaria por
-lo menos una vez al mes, y en sesión extraordinaria todas la veces que
-sea necesario, a juicio del Presidente, o cuando lo pidieren por lo menos
-tres de sus miembros.
+Artículo 22- La Junta Directiva se reunirá, presencialmente o virtualmente en la plataforma de su elección, en sesión ordinaria por lo menos una vez al mes y, en sesión extraordinaria, todas las veces que sea necesario, a juicio del presidente, o cuando lo pidan por lo menos tres de sus miembros.
+La Junta Directiva reglamentará todo lo relacionado con el uso de la virtualidad para sus asambleas generales o sesiones de Junta Directiva, asegurando, en ambos casos, el cumplimiento de los principios de participación, inmediatez, simultaneidad, integridad, interactividad, colegialidad y deliberación, guardando registro de todos los acuerdos, sea en formato físico o digital
+(Así reformado por el artículo único de la ley N° 10130 del 10 de febrero de 2022)
