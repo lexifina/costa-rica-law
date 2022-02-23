@@ -1,0 +1,1 @@
+Artículo N° 11: Se aprueban los siguientes reglamentos E069, E070, E071, E072, E073, E074 según acuerdo de Junta Directiva JD-092 correspondiente al Capítulo Vll), artículo 10) de la sesión ordinaria 09-2022, celebrada el 14 de febrero de 2022.
