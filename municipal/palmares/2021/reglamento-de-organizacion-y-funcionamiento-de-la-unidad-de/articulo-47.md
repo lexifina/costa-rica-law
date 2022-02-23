@@ -1,0 +1,2 @@
+Artículo 47.-Comunicación respecto a las Relaciones de Hecho. La comunicación de este tipo de informes se realizará bajo medidas de estricta confidencialidad, tanto del informe como de los documentos que se utilizarán como
+prueba de los hechos señalados, además los informes de Relaciones de Hechos se ajustarán en su procedimiento y contenido a las disposiciones establecidas por la Contraloría General de la República, al respecto.

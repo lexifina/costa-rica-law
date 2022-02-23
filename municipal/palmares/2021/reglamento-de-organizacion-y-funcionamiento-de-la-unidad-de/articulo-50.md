@@ -1,0 +1,3 @@
+Artículo 50.-Seguimiento de informes de control interno. Los informes de control interno como parte del programa de seguimiento de recomendaciones, se verificará lo siguiente:
+a) Que el jerarca o el titular subordinado, implemente las recomendaciones de la Auditoría Interna, gire por escrito las instrucciones al o los responsables designados, para lo cual deberá disponer en sus instrucciones las fechas de inicio y de finalización para dicha implementación.
+b) Una vez superados los plazos definidos, según lo establecido en la Ley N° 8292 "Ley General de Control Interno", la ejecución de las recomendaciones se deberá de cumplir en un plazo no mayor al estipulado en cada una de las recomendaciones.

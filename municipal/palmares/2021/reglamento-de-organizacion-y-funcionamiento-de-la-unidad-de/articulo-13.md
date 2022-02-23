@@ -1,0 +1,1 @@
+Artículo 13.-Responsabilidades de la Auditora Interna. El cargo de Auditora Interna corresponde al máximo nivel de fiscalización superior, de responsabilidad y autoridad de la Auditoría Interna. Así mismo debe velar por el logro final de los planes, objetivos y metas de la Unidad.

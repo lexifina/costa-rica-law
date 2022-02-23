@@ -1,0 +1,1 @@
+Artículo 35.-Potestades. Las potestades de la Auditoría Interna están establecidas en la Ley N° 8292 "Ley General de Control Interno", tales potestades serán ejercidas con debido cuidado profesional y efectividad. Todos los funcionarios institucionales deberán brindar la colaboración requerida para efectos del ejercicio de las actividades de la Auditoría Interna.

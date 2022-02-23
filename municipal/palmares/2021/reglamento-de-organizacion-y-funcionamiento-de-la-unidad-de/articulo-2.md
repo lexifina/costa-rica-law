@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El presente reglamento aplica a todo el personal de la Auditoría Interna, el Concejo Municipal, Alcalde, titulares subordinados, demás funcionarios de la Municipalidad de Palmares y demás Órganos sujetos a la fiscalización, en la materia que les fuere aplicable.

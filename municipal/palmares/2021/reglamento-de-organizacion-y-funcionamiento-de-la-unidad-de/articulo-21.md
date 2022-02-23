@@ -1,0 +1,1 @@
+Artículo 21.-Desempeño de funciones. Los funcionarios de la Auditoría Interna, en el desempeño de sus funciones, deben cumplir con lo descrito en el Manual de Puestos y la normativa aplicable a la Auditoría Interna.

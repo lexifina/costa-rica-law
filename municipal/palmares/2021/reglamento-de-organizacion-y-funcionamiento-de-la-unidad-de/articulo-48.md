@@ -1,0 +1,1 @@
+Artículo 48.-Comunicación de resultados de los servicios preventivos. Se hará conforme al procedimiento establecido por la Auditora Interna, quien definirá su contenido y la estructura de la misma, en razón de la naturaleza y su criterio profesional.

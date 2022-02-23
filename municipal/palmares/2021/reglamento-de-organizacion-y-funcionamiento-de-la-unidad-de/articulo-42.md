@@ -1,0 +1,1 @@
+Artículo 42.-Control del Plan de Trabajo Anual. La Auditora Interna y los funcionarios de la Auditoría Interna, según proceda, deben ejercer un control continuo de la ejecución del plan anual de trabajo, en procura de medir los resultados, la detección oportuna de eventuales desviaciones y la adopción de las medidas correctivas pertinentes.
