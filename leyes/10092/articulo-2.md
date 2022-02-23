@@ -1,0 +1,2 @@
+ARTÍCULO 2- Definición
+Para efectos de esta ley, se entenderá por activo ocioso aquel bien mueble o inmueble que, estando disponible para su uso, en la ubicación y en las condiciones esperadas, requeridas y necesarias para utilizarlo, no genere utilidades, beneficios o rentabilidad alguna, ni se le pueda dar el uso previsto para el que fue adquirido o algún otro que sea en función de su naturaleza.
