@@ -1,0 +1,6 @@
+Artículo 15.-Conductas sancionables. Serán sancionados con la multa dispuesta en el artículo 13 de este reglamento los contribuyentes que, por medio de la realización de cualquiera de las conductas que se describen a continuación, dejen de ingresar, dentro de los términos establecidos, los impuestos que correspondan:
+a) No realicen las emisiones de los boletos según lo dispuesto por este Reglamento.
+b) No presenten a la Municipalidad, dentro del plazo establecido, los boletos para su autorización.
+c) Adulteren en el boleto el precio real.
+d) Admitan asistentes sin la entrega del tiquete correspondiente.
+La detección, por parte de los inspectores de Cobros, Licencias y Patentes espectáculos públicos, de cualquier irregularidad en la realización de espectáculos públicos, venta de entradas, su recolección o en la admisión de clientes a los espectáculos o diversiones, facultará al Departamento de Cobros, Licencias y Patentes para realizar una tasación de oficio del impuesto y de la multa, de acuerdo con la información y antecedentes que estén a su alcance y de conformidad con lo establecido por el Código de Normas y Procedimientos Tributarios, y siempre observando el debido procedimiento administrativo
