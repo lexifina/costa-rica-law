@@ -1,0 +1,1 @@
+Artículo 6°-El estudiante, padre o encargado que tenga dos o más tractos adeudados podrá solicitar un arreglo de pago a la Dirección Académica del Instituto y deberá de firmar una letra de cambio a favor del Centro Nacional de la Música con un compromiso de pago no mayor a seis meses, aplicando el porcentaje moratorio según el artículo 5 de la presente Directriz.

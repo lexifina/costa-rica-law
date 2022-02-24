@@ -1,0 +1,1 @@
+Artículo 7°-El estudiante, padre o encargado que incumpla con el periodo del arreglo de pago, quedará inhabilitado de matricular el siguiente semestre y deberá solicitar reingreso al Instituto previo pago de los montos adeudados, aplicando el porcentaje moratorio según el artículo 5 de la presente Directriz.

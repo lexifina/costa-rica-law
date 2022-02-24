@@ -1,0 +1,1 @@
+Artículo 3°-Los estudiantes deberán de cancelar los aranceles en los tractos antes de la fecha establecida por el Instituto a la cuenta debidamente autorizada a nombre del Centro Nacional de la Música y podrán utilizar cualquier medio electrónico disponible para la realización de dichos pagos.

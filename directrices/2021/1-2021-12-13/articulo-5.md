@@ -1,0 +1,1 @@
+Artículo 5°-El estudiante que no cancele los tractos en la fecha establecida, tendrá un periodo de gracia de siete días naturales para realizar el pago, de lo contrario se le establecerá un interés moratorio del 10% del tracto adeudado.
