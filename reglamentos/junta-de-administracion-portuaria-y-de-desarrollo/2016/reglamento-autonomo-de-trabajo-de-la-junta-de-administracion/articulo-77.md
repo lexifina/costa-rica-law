@@ -1,1 +1,0 @@
-Artículo 77°—La institución se reserva el derecho de adicionar o modificar en cualquier momento las disposiciones de este Reglamento, con sujeción en cada caso concreto de las disposiciones legales vigentes que fueren aplicables, dichas adiciones o reformas deberán someterse al trámite de aprobación de la División de Asesoría Jurídica del Ministerio de Trabajo y Seguridad Social.

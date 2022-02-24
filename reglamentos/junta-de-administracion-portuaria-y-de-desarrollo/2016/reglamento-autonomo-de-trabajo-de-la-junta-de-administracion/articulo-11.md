@@ -1,1 +1,0 @@
-Artículo 11º—En la Institución regirán los horarios de trabajo que para cada departamento, dependencia o cuadrilla se señale, los que podrán ser variados si las necesidades del servicio prestado efectivamente lo exigen; y de conformidad a los artículos 11, 58 y 140 inciso 8, de la Constitución Política, y Artículo 4 de la Ley General de la Administración Pública.

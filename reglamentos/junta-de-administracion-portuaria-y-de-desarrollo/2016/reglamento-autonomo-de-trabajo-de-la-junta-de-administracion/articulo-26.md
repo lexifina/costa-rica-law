@@ -1,1 +1,0 @@
-Artículo 26º.—El trabajador tendrá derecho al disfrute de sus vacaciones anuales remuneradas después de cada 50 semanas de labores continuas, sin embargo JAPDEVA señalará la época en que las gozará, para lo cual cada jefatura remitirá en el mes de diciembre a la Oficina de Personal el programa de vacaciones del personal bajo su cargo.

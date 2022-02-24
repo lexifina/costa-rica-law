@@ -1,1 +1,0 @@
-Artículo 9º— Pese a lo dispuesto en los artículos anteriores, se presume la existencia del Contrato y de la Relación de Trabajo, entre la Institución y quienes le presenten sus servicios personales, en forma subordinada y a cambio de una retribución o salario de cualquier clase o forma.

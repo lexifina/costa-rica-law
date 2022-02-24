@@ -1,5 +1,0 @@
-Artículo 7º— Los contratos de trabajo serán:
-a) Por tiempo indefinido: que se llevarán a cabo con aquellos trabajadores indispensables para satisfacer las necesidades propias y permanentes de la Institución.
-b) Por tiempo determinado: que se celebrarán con los trabajadores que vengan temporalmente a ejecutar las labores de quien o quienes se encuentran incapacitados o disfrutando de vacaciones, permiso o licencia, así como en aquellos casos excepcionales en que su celebración resulte procedente conforme a la naturaleza de los servicios que se van a prestar.
-c) Para obra determinada: cuando el trabajador conviene en prestar sus servicios para la realización de una obra específica, en cuyo caso se conoce la fecha de iniciación, pero se ignora la de su terminación.
-d) De aprendizaje: que se formalicen por escrito de acuerdo con las disposiciones de la Ley de Aprendizaje, su reglamento y disposiciones conexas y supletorias, y que tiendan a la formación profesional metódica y completa del individuo.

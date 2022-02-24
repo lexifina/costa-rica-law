@@ -1,1 +1,0 @@
-Artículo 68°—En el plazo irrevocable de cuarenta y ocho horas, siguientes a la denuncia, el coordinador o coordinadora de la Comisión Institucional contra el Hostigamiento Sexual, procederá a convocar a los integrantes de la misma, para dar a conocer el caso, para todo efecto legal este ente será el órgano disciplinario.

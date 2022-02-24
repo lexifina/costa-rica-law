@@ -1,2 +1,0 @@
-Artículo 78°—El presente Reglamento no perjudica los derechos jurídicamente adquiridos por los trabajadores, y previa aprobación de la División de Asesoría Jurídica del Ministerio de Trabajo y Seguridad Social, entrará en vigencia quince días hábiles después de haber sido puesto en conocimiento de los trabajadores.
-Para los efectos del artículo 67 del Código de Trabajo se tendrá expuesto permanentemente por los menos en dos de los sitios más visibles del centro de trabajo.

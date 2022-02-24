@@ -1,1 +1,0 @@
-Artículo 12º—La jornada ordinaria de trabajo efectiva para todos los trabajadores de la Institución, excepto los incluidos dentro de las disposiciones de los artículos Nos. 143 y 146 del Código de Trabajo, será de ocho horas diarias en trabajo diurno, siete horas en trabajo mixto y seis horas de trabajo nocturno.

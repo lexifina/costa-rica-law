@@ -1,1 +1,0 @@
-Artículo 70°—Se dará traslado de la denuncia a la persona denunciada, concediéndole un plazo de cinco días hábiles para que se refiera a todos y cada uno de los hechos que denunciados y ofrezca la prueba de descargo. De no contestar la misma en el plazo establecido, el proceso continuará hasta el informe final por parte de la Comisión Institucional contra el Hostigamiento Sexual.

@@ -1,4 +1,0 @@
-CAPITULO VII
-De los días de descanso semanal y de los feriados
-Artículo 30º —Todo trabajador tiene derecho a disfrutar de un día de descanso absoluto después de cada semana o cada seis días de trabajo continuo.
-Por regla general se darán los días domingos como descanso semanal, excepto para aquellos trabajadores que por la índole del servicio que presten, deban laborar durante esos días, a quienes se les dará el descanso durante cualquier otro día de la semana. Asimismo la institución se reserva el derecho de cambiar el día de descanso, a cualquier otro grupo de trabajadores, cuando existan necesidades de que trabajen durante el día domingo, al tenor de lo dispuesto en los artículos 150 y 151 del Código de Trabajo. En estos casos se le señalará el descanso durante cualquier otro día que disponga la administración.

@@ -1,1 +1,0 @@
-Artículo 23º —El sistema de pago de salarios a los trabajadores se realizará mediante depósito bancario a la cuenta de cada trabajador, y para tal fin, el trabajador está obligado a reportar a la Oficina de Personal el nombre de la entidad bancaria y el número de su cuenta.

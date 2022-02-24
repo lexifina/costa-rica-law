@@ -1,2 +1,0 @@
-Artículo 29º —Las vacaciones son incompensables a menos que se trate de labores que no sean pesadas, insalubres o peligrosas y que exijan continuidad por la índole de las necesidades que satisfacen, caso en el cual el trabajador puede consentir en prestar sus servicios durante el período de las mismas mediante la remuneración ordenada por la Ley.
-Las vacaciones son incompensables, salvo en las excepciones establecidas en el artículo 156 del Código de Trabajo y Ley 7939 y sus reformas.

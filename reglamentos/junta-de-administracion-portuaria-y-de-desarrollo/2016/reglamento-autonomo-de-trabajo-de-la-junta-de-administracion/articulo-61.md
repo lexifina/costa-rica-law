@@ -1,4 +1,0 @@
-Artículo 61°—Sin perjuicio de lo establecido en el Código de Trabajo, para los efectos de los artículos anteriores se entenderá por:
-a) Riesgos Profesionales: Los accidentes a que están expuestos los trabajadores a causa de las labores que ejecuten por cuenta ajena.
-b) Accidentes de Trabajo: Es toda lesión corporal que el trabajador sufra en ocasión o por consecuencia del trabajo y durante el tiempo que lo realice o debiera realizarlo, siempre y cuando dicha lesión sea producida por la acción repentina y violenta de una causa exterior.
-c) Riesgo Profesional: Es toda lesión, enfermedad o agravación que sufra posteriormente el trabajador como consecuencia directa, inmediata e indudable de un accidente de trabajo o enfermedad profesional de que haya sido víctima, de acuerdo con lo dicho en el párrafo anterior.
