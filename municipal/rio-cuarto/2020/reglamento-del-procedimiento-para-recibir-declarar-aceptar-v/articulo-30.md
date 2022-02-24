@@ -1,1 +1,0 @@
-Artículo 30.—La Administración se reserva la aplicación del Debido Proceso, regulado mediante la Ley General de Administración Pública, artículos 308 siguientes y concordantes, como un instrumento de aplicación supletoria en aquellos casos en los cuales la Administración por la complejidad del asunto así lo requiera.

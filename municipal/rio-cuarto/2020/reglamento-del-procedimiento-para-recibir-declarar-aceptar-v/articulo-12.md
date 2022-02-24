@@ -1,3 +1,0 @@
-Artículo 12.—El Concejo Municipal, remitirá la solicitud a la Unidad Técnica de Gestión Vial Municipal, a la Asesoría Legal y a Catastro, para que cada una de estas dependencias realice la valoración y análisis de los requisitos según sus competencias.
-La Asesoría Legal y Catastro contará con un plazo de hasta cinco (5) días hábiles para realizar a las valoraciones que le correspondan y remitirlas a la Unidad Técnica de Gestión Vial Municipal.
-La Unidad Técnica de Gestión Vial Municipal podrá solicitar la subsanación cuando así corresponda, según las valoraciones realizadas. Una vez que el interesado cumplió con todos los requisitos, se recibe la documentación y se adjunta al expediente original, acusando recibo al interesado.

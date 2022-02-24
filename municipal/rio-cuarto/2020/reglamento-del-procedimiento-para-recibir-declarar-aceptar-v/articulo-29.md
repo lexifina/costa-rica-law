@@ -1,1 +1,0 @@
-Artículo 29.—La Resolución que emita la Administración, tendrá los Recursos Administrativos dentro de los tres días siguientes a su notificación, sin que tal recurso impida la ejecutoriedad del acto administrativo.

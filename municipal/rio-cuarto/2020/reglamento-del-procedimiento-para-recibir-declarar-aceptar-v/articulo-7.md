@@ -1,2 +1,0 @@
-Artículo 7º—El terreno para ser destinado a Vía Pública de la Red Vial Cantonal deberá contar con la infraestructura necesaria para el tránsito de peatones y evacuación de aguas pluviales. Como mínimo, deberá contar con una acera que cumpla con los requisitos establecidos en la Ley N°7600 y cordón y caño según lo establecido en el CR-2010.
-Siempre que medie un criterio técnico de la Unidad Técnica de Gestión Vial y la oficina de Control Urbano, el Concejo Municipal podrá eximir este requisito.

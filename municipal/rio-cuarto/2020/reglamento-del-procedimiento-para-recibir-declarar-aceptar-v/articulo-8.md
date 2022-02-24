@@ -1,3 +1,0 @@
-Artículo 8º—La superficie de rodamiento del terreno para ser destinado a la Vía Pública de la Red Vial Cantonal deberá estar acorde con lo que establezca la normativa vigente relacionada con el fraccionamiento urbano y rural, según corresponda.
-Si el proceso de declaratoria de camino público surge de una iniciativa privada, la superficie de rodamiento de los caminos que se encuentren dentro de la zona de cuadrantes urbanos, deberá presentarse en una superficie duradera, como mínimo, con tratamiento superficial.
-Cuando los caminos que se pretendan donar se encuentren fuera de la zona de cuadrantes urbanos, la superficie de rodamiento podrá presentarse en lastre.

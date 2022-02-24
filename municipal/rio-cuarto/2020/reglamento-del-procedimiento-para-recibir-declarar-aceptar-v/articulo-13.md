@@ -1,1 +1,0 @@
-Artículo 13.—La Unidad Técnica de Gestión Vial Municipal procederá con los estudios previos de la vía una vez que le sean presentados los informes de valoración realizados según el artículo 12 del presente Reglamento.

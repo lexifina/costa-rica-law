@@ -1,1 +1,0 @@
-Artículo 27.—La Alcaldía, una vez elaborados todos los estudios y levantamiento de actas de información, confeccionará también la Resolución Administrativa conforme a la Ley de Construcciones N° 833, Ley General de Caminos Públicos y sus Reformas N° 5060 y demás normativa conexa.
