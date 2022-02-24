@@ -1,0 +1,1 @@
+Artículo 11.-Todo adelanto de gastos de Caja Chica deberá ser liquidado a más tardar dentro de los tres días hábiles siguientes a su giro, salvo que en cumplimiento de las tareas para los que fueron solicitados los recursos, impliquen ausencia del solicitante del recinto de trabajo.

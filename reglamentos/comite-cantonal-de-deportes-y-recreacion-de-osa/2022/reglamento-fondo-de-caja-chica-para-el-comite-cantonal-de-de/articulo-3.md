@@ -1,0 +1,2 @@
+Artículo 3º-El uso de estos fondos será de forma exclusiva para la adquisición de bienes y servicios indispensables o que se dé una necesidad de conveniencia o imprevisto. También se incluyen gastos menores que no representen un costo importante para este Comité Cantonal de Deportes y Recreación de Osa.
+No podrán realizarse compras de activos, ni gastos que ya estén incluidos dentro de la planificación de este Comité.

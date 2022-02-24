@@ -1,0 +1,1 @@
+Artículo 20.-Cualquier faltante que ese produzca al momento de practicarse un arqueo, deberá cubrirse con un depósito en las cuentas oficiales del Comité Cantonal de Deportes y Recreación de Osa de manera inmediata.

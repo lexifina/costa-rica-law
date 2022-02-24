@@ -1,0 +1,1 @@
+Artículo 21.-El Presidente del Comité Cantonal de Deportes y Recreación de Osa, podrá pedir en cualquier momento un informe de saldos, manejo y demás situaciones que se lleven con el Fondo de Caja Chica.

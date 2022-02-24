@@ -1,0 +1,1 @@
+Artículo 13.-Si la Tesorera del Comité Cantonal de Deportes y Recreación de Osa, se ausentara por un periodo mayor a un día, deberá entregar el fondo de Caja Chica al Presidente mediante un arqueo que respalde el recibo de los documentos y fondos disponible. Una vez que se realice la devolución se deberá realizar el mismo procedimiento.

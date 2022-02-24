@@ -1,0 +1,1 @@
+Artículo 15.-Los adelantos para gastos de viaje por adelantado deben ser liquidados a más tardar dentro de los próximos 7 días hábiles después de finalizar la gira en el formulario "Liquidación por Anticipo de Gastos".

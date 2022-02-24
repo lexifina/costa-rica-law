@@ -1,0 +1,1 @@
+Artículo 12.-Ningún servidor podrá hacer un nuevo adelanto, sino ha cancelado el adelanto anterior, quedando facultada la Presidencia del Comité Cantonal de Deportes y Recreación de Osa, para exigir el reintegro del importe del adelanto.

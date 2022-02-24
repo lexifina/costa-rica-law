@@ -1,0 +1,1 @@
+Artículo 18.-El responsable del fondo de caja chica deberá procurar una adecuada rotación del fondo a fin de que éste no se agote. El monto mínimo estimado que deberá mantenerse en el fondo para solicitar los reintegros será de un 15 % del total asignado.
