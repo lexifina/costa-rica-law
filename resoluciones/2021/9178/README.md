@@ -15,3 +15,4 @@ Disposiciones sanitarias dirigidas a las personas encargadas de solicitar autori
 | --- | --- | --- |
 | 1 | 2021-12-01 | la propia norma |
 | 2 | 2022-01-12 | Resolución 227 (2022-01-12) |
+| 3 | 2022-02-25 | Resolución 2030 (2022-02-25) |

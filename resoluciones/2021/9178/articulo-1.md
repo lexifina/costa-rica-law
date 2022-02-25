@@ -17,23 +17,23 @@ Por tanto,
 EL MINISTRO DE SALUD
 RESUELVE
 PRIMERO: Emitir la presente resolución con el objetivo de mitigar la exposición de las personas al riesgo de contagio del SARS-Cov2 que ocasiona la enfermedad COVID-19, en determinados espacios de contacto público y evitar un daño a la salud pública ante los efectos de dicha enfermedad debido a su estado epidemiológico en el territorio nacional. Asimismo, esta medida se deriva del estado de emergencia nacional dado mediante el Decreto Ejecutivo número 42227-MP-S del 16 de marzo de 2020 y sus reformas, en procura del bienestar de todas las personas que radican en el territorio costarricense.
-SEGUNDO: Con fundamento en las consideraciones de hecho y de derecho citadas en la presente resolución, particularmente del artículo 147 incisos b) y c) de la Ley General de Salud, Ley número 5395 del 30 de octubre de 1973, en cuanto a que las personas están en la obligación de acatar las medidas giradas por este Ministerio sobre "(.) b) Las medidas preventivas que la autoridad de salud ordene cuando se presente una enfermedad en forma esporádica, endémica o epidémica. c) Las medidas preventivas que la autoridad sanitaria ordene a fin de ubicar y controlar focos infecciosos, vehículos de transmisión, huéspedes y vectores de enfermedades contagiosas o para proceder a la destrucción de tales focos y vectores, según proceda. (.)", y en atención del artículo tercero del Decreto Ejecutivo número 43314-S, se establece la siguiente lista de actividades que seguirán suspendidas en razón del riesgo sanitario:
-1. Actividades ecuestres, topes en vías y/o espacios públicos.
-2. Pasacalles, procesiones religiosas, en vías y/o espacios públicos.
-TERCERO: Los eventos de concentración masiva podrán realizarse en lugares que cuenten con permiso sanitario de funcionamiento para la actividad específica o en lugares que tramiten una autorización sanitaria para la realización de la actividad específica. En ambos supuestos deberán acreditarse los mecanismos por los cuales se garantiza el control de aforo, así como las disposiciones del Decreto Ejecutivo número 43314-S del 09 de noviembre de 2021 y la resolución número MS-DM-8817-2021 y sus respectivas reformas. Las actividades habilitadas son:
-1.Conciertos.
-2.Espectáculos públicos.
-3.Campos feriales.
-4.Festejos populares.
-5.Turnos comunitarios.
-6.Actividades taurinas y ecuestres en establecimientos o inmuebles que cuenten con Permiso Sanitario de Funcionamiento vigente para dicha actividad.
-7.Actividades de bien social y culturales.
-8.Bingos.
-9.Actividades de entretenimiento en centros comerciales.
-10.Festival Internacional de Cine.
-11.Festival Nacional de las Artes.
-12.Actividades deportivas, con protocolo debidamente aprobado por MIDEPOR.
-(Así reformado la disposición tercera anterior mediante resolución N° MS-DM-2277-2022 del 12 de enero de 2022)
+SEGUNDO: (Derogado mediante resolución N° MS-DM-2030-2022 de 25 de febrero del 2022)
+TERCERO: Los eventos de concentración masiva podrán realizarse en lugares que cuenten con permiso sanitario de funcionamiento para la actividad específica o en lugares que tramiten una autorización sanitaria para la realización de la actividad específica. En ambos supuestos deberán acreditarse los mecanismos por los cuales se garantiza el control de aforo, así como las disposiciones del Decreto Ejecutivo número 43314-S del 09 de noviembre de 2021 y la resolución número MS-DM-2030-2022. Las actividades habilitadas son:
+1. Conciertos.
+2. Espectáculos públicos.
+3. Campos feriales.
+4. Festejos populares.
+5. Turnos comunitarios.
+6. Actividades taurinas y ecuestres en establecimientos o inmuebles que cuenten con Permiso Sanitario de Funcionamiento vigente para dicha actividad.
+7. Actividades ecuestres, topes en vías y/o espacios públicos.
+8. Pasacalles, procesiones religiosas, en vías y/o espacios públicos.
+9. Actividades de bien social y culturales.
+10. Bingos.
+11. Actividades de entretenimiento en centros comerciales.
+12. Festival Internacional de Cine.
+13. Festival Nacional de las Artes.
+14. Actividades deportivas, con protocolo debidamente aprobado por MIDEPOR.
+(Así reformado la disposición tercera anterior mediante resolución N° MS-DM-2030-2022 de 25 de febrero del 2022)
 CUARTO: El porcentaje de aforo autorizado de manera mensual será el establecido de manera progresiva en la resolución MS-DM-8817-2021 y sus respectivas reformas.
 QUINTO: Todo organizador de eventos deberá garantizar las condiciones sanitarias seguras de la actividad, cumplir con los lineamientos sanitarios establecidos en el protocolo sectorial correspondiente para la prevención de la enfermedad ocasionada por el COVID-19, garantizar por parte del organizador la posibilidad de controlar el aforo y la verificación del estado de vacunación.
 Además, deberá cumplir con los requisitos ordinarios de este tipo de trámite, a saber:
