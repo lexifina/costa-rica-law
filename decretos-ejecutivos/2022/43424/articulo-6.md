@@ -1,0 +1,2 @@
+Artículo 6º-Vigencia. El presente Decreto Ejecutivo rige a partir del día de su publicación.
+Dado en la Presidencia de la República.-San José, a los catorce días del mes de febrero del año dos mil veintidós.
