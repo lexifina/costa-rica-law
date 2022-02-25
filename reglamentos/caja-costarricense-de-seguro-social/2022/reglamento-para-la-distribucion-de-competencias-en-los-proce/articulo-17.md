@@ -1,0 +1,1 @@
+Artículo 17.-Del refrendo interno en los procedimientos de la CCSS: La Dirección Jurídica Institucional es la única instancia competente para el otorgamiento del refrendo interno en los procedimientos que lo requieran, independientemente del órgano que dicta el acto final de la compra.

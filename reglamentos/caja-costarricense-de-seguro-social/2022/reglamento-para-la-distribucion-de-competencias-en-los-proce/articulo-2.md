@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Este reglamento es aplicable a toda la gestión institucional que se relacione con la adquisición de bienes, servicios y proyectos de obra pública requeridos para el ejercicio de todas las actividades institucionales.
