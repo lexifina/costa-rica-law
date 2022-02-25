@@ -1,0 +1,1 @@
+Artículo 19.-Mapeo de riesgos. La gestión corporativa de riesgos está liderada por el área correspondiente y según normativa asociada. Participarán en la actualización, seguimiento y control del mapeo de riesgos reputacionales del Grupo ICE, las Gerencias Generales de las empresas o bien sus representantes y la DC.

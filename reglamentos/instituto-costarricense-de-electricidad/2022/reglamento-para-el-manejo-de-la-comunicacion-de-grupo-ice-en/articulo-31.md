@@ -1,0 +1,1 @@
+Artículo 31.-Atención de medios. De acuerdo con el alcance de la crisis, la dependencia responsable de la comunicación de la empresa correspondiente, atiende todas las consultas de los medios de comunicación y canaliza la eventual participación de los voceros.

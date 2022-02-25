@@ -1,0 +1,1 @@
+Artículo 28.-Activación de canales de comunicación. El Equipo para el Manejo de Comunicación en Situaciones de Crisis activa la logística correspondiente para el envío de información oportuna hacia los diferentes involucrados.

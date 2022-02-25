@@ -1,0 +1,1 @@
+Artículo 27.-Activación del monitoreo. El Equipo para el Manejo de Comunicación en Situaciones de Crisis coordina el seguimiento y monitoreo de dicha situación, tanto en las fuentes de origen de la información como en los medios.

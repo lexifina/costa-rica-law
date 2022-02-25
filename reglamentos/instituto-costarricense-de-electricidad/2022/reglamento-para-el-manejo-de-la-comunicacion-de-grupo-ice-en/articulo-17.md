@@ -1,0 +1,6 @@
+Artículo 17.-Se pueden utilizar los siguientes formatos para el manejo de comunicación oficial ante una situación de crisis, los cuales no son excluyentes. La información se debe transmitir, considerando el canal de mayor alcance, oportunidad y eficiencia, de acuerdo con la naturaleza y desarrollo de la crisis.
+1. Declaración. Mensaje corto, de enfoque informativo. Posee datos puntuales y precisos. Grabación de audio o video. Recomendada para dar aviso de lo ocurrido de manera oportuna y ágil.
+2. Comunicado de prensa. Mensaje escrito. Información detallada y estructurada. Puede acompañarse de audio y video como complemento. Permite mayor control de la información saliente y es recomendado para dar seguimiento a todo el proceso de crisis.
+3. Entrevista. Responde a las necesidades de un medio específico. No se recomienda al inicio de una situación de crisis, cuando existe información limitada y altos niveles de incertidumbre.
+4. Conferencia de prensa. Responde a una necesidad de la empresa o Grupo ICE por dar un aviso de gran trascendencia. Debido a que este formato exige una preparación exhaustiva, no se recomienda al inicio de una crisis, cuando existe información limitada y altos niveles de incertidumbre.
+Grupo ICE puede utilizar para la difusión de sus mensajes, canales como WhatsApp, correo electrónico y sus redes sociales corporativas y empresariales.

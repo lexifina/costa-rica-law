@@ -1,0 +1,1 @@
+Artículo 23.-Divulgación sobre el manejo de comunicación en situaciones de crisis. La DC debe propiciar espacios de sensibilización con el fin de enterar a los diferentes involucrados sobre mejores prácticas y actualizaciones para el manejo de comunicación en situaciones de crisis que pueda impactar la reputación del Grupo ICE.

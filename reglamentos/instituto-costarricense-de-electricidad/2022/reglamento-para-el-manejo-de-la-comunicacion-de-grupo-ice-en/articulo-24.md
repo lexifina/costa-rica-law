@@ -1,0 +1,3 @@
+Artículo 24.-Conformación de Equipo para el Manejo de Comunicación en Situaciones de Crisis. Se integra un equipo técnico interdisciplinario para proponer la estrategia de comunicación a seguir ante una eventual situación de crisis de opinión pública o bien para atender de manera inmediata una situación de crisis materializada, que pueda impactar la reputación del Grupo ICE.
+Una vez definido este equipo, debe contactarse de forma urgente para brindar la información correspondiente.
+Los temas abordados por el equipo se manejan bajo términos de reserva, hasta que la información oficial se haga pública.
