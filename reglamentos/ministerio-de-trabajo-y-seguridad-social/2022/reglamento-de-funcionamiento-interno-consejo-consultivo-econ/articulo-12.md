@@ -1,0 +1,2 @@
+Artículo 12. Designaciones, remociones y sustituciones. Las designaciones, remociones y sustituciones serán comunicadas a la Presidencia del CCES y a la Secretaría Técnica, mediante carta formal de la respectiva organización. Esta disposición no será aplicada a quien ejerza la Presidencia del Consejo Pleno y a los Ministros(as) y Viceministros(a).
+Todas las personas representantes serán juramentadas por quien ejerza la Presidencia de la República en un plazo máximo de un mes después del nombramiento respectivo. La juramentación podrá ser de forma presencial o virtual.

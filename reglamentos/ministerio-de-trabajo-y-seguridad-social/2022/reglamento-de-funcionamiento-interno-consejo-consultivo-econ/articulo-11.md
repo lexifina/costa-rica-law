@@ -1,0 +1,1 @@
+Artículo 11. Sustitución Interna. En los casos en que una persona consejera se ausente, posterior a comunicarlo por escrito o a viva voz a la Presidencia del CCES, este o esta podrán ser sustituidos por su respectiva suplencia, siempre informando a la Presidencia previo a que se lleve a cabo la sustitución.

@@ -1,0 +1,3 @@
+Artículo 29. Uso de la palabra. Para hacer uso de la palabra, se requerirá que ésta haya sido concedida por parte de la Presidencia del CCES según en el orden que fue pedida. La secretaría técnica llevará un registro de las solicitudes.
+La Presidencia del CCES podrá llamar al orden a cualquier persona consejera cuando al usar la palabra, no se concrete al tema objeto de discusión, se desvíe de él, o se manifieste de manera irrespetuosa.
+Será facultad de la Presidencia del CCES determinar cuándo esto se incumpla y podrá llamar al orden a quien esté faltando. Si la persona consejera insiste en su conducta irregular, se le suspenderá por la Presidencia del CCES inmediatamente el uso de la palabra.

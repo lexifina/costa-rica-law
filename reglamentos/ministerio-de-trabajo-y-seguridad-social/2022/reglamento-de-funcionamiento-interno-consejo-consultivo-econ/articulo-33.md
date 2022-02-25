@@ -1,0 +1,1 @@
+Artículo 33. Receso. La Presidencia del Consejo podrá establecer un receso en cualquier momento del debate. Cualquier persona consejera podrá solicitar un receso del debate, ante lo cual por el voto de la mayoría simple de las personas consejeras presentes se concederá el receso.

@@ -1,0 +1,4 @@
+Artículo 32. Tipos de mociones
+a. Por el orden. Cualquier persona consejera podrá plantear una cuestión de orden relativa a la aplicación del presente Reglamento, la cual será inmediatamente conocida y decidida por la Presidencia. Quien plantee la cuestión de orden no podrá referirse al fondo del tema en discusión, sino solamente a la moción de orden presentada. Algunas de estas mociones podrán ser relativas al receso, cierre del debate y levantamiento de la sesión, sin menoscabo de cualquier otro tipo que surja en el debate.
+La decisión de la Presidencia podrá apelarse con un voto de tres cuartas partes de los miembros del Consejo Pleno.
+b. Por el fondo. Cualquier persona consejera podrá plantear una propuesta para modificación del contenido de los temas en discusión, las cuales tendrán cabida en cualquier momento del debate previo a su votación.

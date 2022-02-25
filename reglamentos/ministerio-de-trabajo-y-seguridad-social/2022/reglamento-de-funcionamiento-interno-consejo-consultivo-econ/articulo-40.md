@@ -1,0 +1,3 @@
+TÍTULO IV: Disposiciones Finales
+Artículo 40. Alcance y modificación del Reglamento. El presente Reglamento regirá el funcionamiento del CCES y, en cuanto sea aplicable, el de sus comisiones. Cualquier aspecto procedimental no previsto en el presente Reglamento, deberá resolverse por medio del propio Consejo. El presente Reglamento podrá ser modificado por el Consejo Pleno. Las modificaciones propuestas deberán adoptarse por el voto de dos terceras partes de las personas consejeras del Consejo Pleno juramentados.
+El presente reglamento rige a partir de su aprobación por el Consejo Pleno, en la sesión ordinaria llevada a cabo el 25 de febrero de 2022.

@@ -1,0 +1,1 @@
+Artículo 39. Asistencia de personas expertas. Podrán asistir a las sesiones personas expertas en temas especializados, siempre y cuando sea aprobado por la mayoría simple de las personas consejeras presentes.

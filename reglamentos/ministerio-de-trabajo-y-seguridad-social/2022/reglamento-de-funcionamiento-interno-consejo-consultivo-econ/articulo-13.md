@@ -1,0 +1,1 @@
+Artículo 13. Incompatibilidades. Las personas que integren el Consejo Pleno del CCES deberán ser parte de la organización o sector que representen y bajo ningún modo podrán integrar el Consejo Pleno quienes no sean parte de la organización o sector que indiquen representar.

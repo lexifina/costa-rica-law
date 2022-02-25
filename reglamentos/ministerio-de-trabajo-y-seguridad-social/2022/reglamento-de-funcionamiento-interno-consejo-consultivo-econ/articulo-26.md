@@ -1,0 +1,1 @@
+Artículo 26. Quórum. El quórum del consejo pleno se conformará a partir de la presencia de la mayoría simple de las personas consejeras juramentadas y la representación de al menos la mayoría simple de los sectores que conforman el CCES. La Presidencia del CCES no formará parte del quórum.

@@ -1,0 +1,1 @@
+Artículo 10. Suplencias. Cada persona consejera tendrá una persona suplente nombrada de la misma forma que la persona titular, para que pueda sustituirle en las sesiones del Consejo Pleno, y que participará con voz y voto sólo en ausencia de la persona titular. Podrán asistir como observador(a) cuando no sustituya a la persona titular, sin voz y sin voto.

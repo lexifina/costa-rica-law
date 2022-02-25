@@ -1,0 +1,1 @@
+Artículo 24. Quórum de las Comisiones. Para sesionar las comisiones permanentes y especiales se requiere de un quórum mínimo de la mitad más uno de las personas consejeras que integren la comisión. Los acuerdos se tomarán por mayoría simple de la totalidad de las personas integrantes de la comisión presentes.

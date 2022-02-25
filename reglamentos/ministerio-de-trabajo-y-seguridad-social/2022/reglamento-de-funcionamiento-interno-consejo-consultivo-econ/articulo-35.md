@@ -1,0 +1,1 @@
+Artículo 35. Levantamiento de la sesión. En cualquier momento durante la sesión, la Presidencia o cualquier persona consejera podrán solicitar el levantamiento de la sesión. Dicha propuesta se declarará aprobada por el voto de las dos terceras partes de las personas consejeras presentes.

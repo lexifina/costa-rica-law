@@ -1,0 +1,9 @@
+Artículo 31. Propuestas. Las personas consejeras podrán realizar propuestas para la consideración del Consejo Pleno, cumpliendo con todos los siguientes requisitos:
+a- Presentar la propuesta en forma física o electrónica a la Presidencia y la Secretaría Técnica,
+b- Toda propuesta debe ser firmada por al menos una persona consejera, excepto las que sean remitidas por la Presidencia de la República.
+c-Toda propuesta debe ser de interés multisectorial, explicitando cómo dicha propuesta es de interés de más de un sector representado en el Consejo Pleno.
+d- La propuesta debe contener: tema, la exposición de motivos, objetivo preliminar, fundamento y análisis técnico de la propuesta y explicitar cómo la propuesta es de interés de varios sectores.
+e- Las propuestas para discusión del Consejo Pleno se deben remitir a la Presidencia y Secretaría Técnica con al menos 15 días hábiles previa a la celebración de la sesión del Consejo Pleno donde se conocerán.
+Una vez la Secretaria Técnica verifiqué que la propuesta cumple con los requisitos de formato previamente señalados, trasladará a la Presidencia y las Vicepresidencias del Consejo para su conocimiento e inclusión en el orden del día de sesiones futuras. Toda propuesta deberá ser remitida a las personas consejeras para su conocimiento con una anticipación no menor de 10 días hábiles a la celebración de la sesión en que se discutirá el asunto.
+Todas las propuestas presentadas por la Presidencia de la República serán admitidas para conocimiento y pronunciamiento del Consejo Pleno.
+Sin perjuicio de lo anterior, el Consejo, por el voto de los dos tercios de las personas consejeras y la mayoría simple de los sectores presentes, podrá autorizar la discusión de una propuesta cuya urgencia no haya permitido cumplir con el procedimiento anterior.
