@@ -1,0 +1,1 @@
+Artículo 28.-Quejas y sugerencias de los usuarios. Los usuarios podrán manifestar sus sugerencias y quejas por el servicio brindado en las instalaciones directamente en las oficinas administrativas de la Asociación, mediante los medios que estimen pertinentes.

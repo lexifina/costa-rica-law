@@ -1,0 +1,4 @@
+Artículo 19.-Usos de las instalaciones. Las instalaciones del Skatepark podrán ser destinadas al deporte a la recreación, educación, al ocio, la competición y, de forma puntual, a actividades de carácter social que cumplan los requisitos que para cada caso establezca la Asociación.
+Será también posible la práctica de otros deportes, siempre que sea factible según sus requerimientos y previa autorización del administrador de la instalación.
+También podrán destinarse las instalaciones, de forma puntual, a actividades de carácter social y cultural que cumplan los requisitos que para cada caso se contemplen y cuenten con la correspondiente autorización de la Junta Directiva.
+Las instalaciones no podrán utilizarse para actividades deportivas, culturales y sociales que no se enmarquen dentro de la naturaleza propia del inmueble, o de las condiciones para la debida protección y conservación de la infraestructura existente.

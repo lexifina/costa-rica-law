@@ -1,0 +1,1 @@
+Artículo 4º-Prioridades. En el uso de las instalaciones se deberá dar participación a todos los grupos deportivos y recreativos organizados de la comunidad, teniendo preferencia en tal uso, los equipos o grupos que representen al distrito en campeonatos oficiales.

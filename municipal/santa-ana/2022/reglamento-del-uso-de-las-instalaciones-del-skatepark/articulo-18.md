@@ -1,0 +1,2 @@
+Artículo 18.-Cierre de las instalaciones. ElAdministrador se reserva el derecho a cerrar las instalaciones, mediante acuerdo debidamente motivado, por cuestión de razones sanitarias, de orden público y seguridad, programaciones propias como competiciones, partidos, cursos o cualesquiera otra debidamente justificada.
+En caso de emergencia o de extrema necesidad, el personal podrá desalojar o evacuar a los usuarios de las instalaciones.

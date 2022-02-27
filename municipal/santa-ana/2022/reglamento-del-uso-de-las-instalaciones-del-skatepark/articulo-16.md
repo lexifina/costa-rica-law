@@ -1,0 +1,1 @@
+Artículo 16.-Derecho de acceso a las instalaciones. Tienen derecho a acceder y usar las instalaciones del Skatepark para el fin que le son propias, todas las personas, asociaciones deportivas, equipos deportivos, centros de enseñanza públicos o privados u otras entidades.
