@@ -1,5 +1,5 @@
 INSTITUTO NACIONAL DE APRENDIZAJE
-(Nota de Sinalevi: Mediante sesión N° 6-2021 del 22 de febrero del 2021, se acordó prorrogar por un año más la vigencia del presente reglamento.)
+(Nota de Sinalevi: Mediante sesión N° 11-2022 del 28 de febrero del 2022, se acordó prorrogar por dos años más la vigencia del presente reglamento.)
 REGLAMENTO DE FONDOS ROTATIVOS DE TRABAJO,
 CAJA CHICA Y VIÁTICOS DEL INSTITUTO
 NACIONAL DE APRENDIZAJE
