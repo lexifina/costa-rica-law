@@ -1,0 +1,1 @@
+Artículo 3º-Estructura para la implementación del PNC. La implementación del Programa Nacional de Clústeres (PNC) estará a cargo de una instancia superior de coordinación política compuesta por los (as) Jerarcas de los Ministerio de Trabajo y Seguridad Social y de Economía, Industria y Comercio; y una instancia técnica conformada por representantes de ambas instituciones.

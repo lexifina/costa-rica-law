@@ -1,0 +1,1 @@
+Artículo 6º-Las dependencias del sector público podrán, en la medida de sus posibilidades jurídicas y materiales, apoyar para lograr los objetivos del PNC y de las iniciativas Clúster en el país, mediante el aporte de recursos, la designación de recurso humano, y la suscripción de convenios interinstitucionales.
