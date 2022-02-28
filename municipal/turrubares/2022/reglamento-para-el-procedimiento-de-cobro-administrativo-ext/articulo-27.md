@@ -1,0 +1,1 @@
+Artículo 27.-Le corresponderá al proceso de gestión de cobro, verificar mediante los informes que los procesos judiciales están activos, de lo contrario, se aplicaran las sanciones que regulan este reglamento contra los Despachos Jurídicos, que incumpla con esta obligación.

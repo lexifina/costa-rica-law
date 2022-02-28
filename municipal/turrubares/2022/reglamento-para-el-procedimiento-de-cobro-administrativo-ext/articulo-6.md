@@ -1,0 +1,1 @@
+Artículo 6º-Horario de actualizaciones. El personal que labora en la Administración Tributaria Municipal actuará normalmente en horas y días hábiles. Sin embargo, podrán actuar fuera de esas horas y días cuando sea necesario para lograr el cumplimiento de sus deberes de gestión, fiscalización o recaudación tributaria, previa autorización de la persona jerárquica correspondiente.

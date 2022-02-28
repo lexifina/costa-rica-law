@@ -1,0 +1,9 @@
+CAPÍTULO V
+De los remates
+Artículo 36.-A fin de proteger al máximo los intereses de la institución, se fija el siguiente procedimiento en caso de remates.
+a. En caso de que los montos adeudados sean superiores a cuatro salarios base, según lo establecido en el artículo dos de la ley Nº 7337, del 15 de mayo de 1993 y sus reformas según corresponda, la municipalidad debe tratar de recuperar, esa cantidad por medio de un juicio hipotecario, según lo estipula el artículo 70 del Código Municipal.
+b. Al inicio de un cobro judicial, la unidad encargada de cobros deberá solicitar se realice un avalúo de los bienes del contribuyente para lo cual se solicitará la colaboración de la oficina correspondiente, o se contratará personal técnico para la realización del avalúo; esta información servirá de base para que la unidad de cobro pueda resolver en el momento preciso si procede a gravar el bien inmueble, por la suma adeudada a la municipalidad.
+c. Cuando el avalúo sobrepasa el monto de la base del remate y hubiere postores, la Municipalidad ofrecerá el monto del avalúo, siempre y cuando este no sobrepase el monto del total adeudado a la Municipalidad.
+d. Cuando el avalúo fuere menor que la base de lo adeudado a las municipalidades el abogado hará puja en el remate sujetos a lo que al efecto le indique el proceso de gestión de cobro.
+Artículo 35.-El profesional en derecho responsable, está obligado a cotejar el edicto antes y después de su publicación en el Boletín Judicial, con los documentos que fundamentan la demanda y será responsable ante la Municipalidad de cualquier perjuicio que por error al respecto pudiera causar su omisión.
+(Nota de Sinalevi: En la publicación de este reglamento municipal, se publicó después del numeral 36 el artículo 35. No obstante ya existe un artículo 35 con contenido diferente)

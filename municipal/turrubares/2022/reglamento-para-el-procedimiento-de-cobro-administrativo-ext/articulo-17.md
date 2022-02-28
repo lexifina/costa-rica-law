@@ -1,0 +1,2 @@
+Artículo 17.-Arreglos de pago. El arreglo de pago es el compromiso que adquiere la persona sujeta pasiva con El proceso de Gestión de Cobros de la municipalidad de pagar dentro del tiempo convenido por ambos, que no podrá exceder de seis meses, salvo casos especiales que deberán ser analizados y aprobados por la Jefatura de Cobros, la obligación vencida adeudada a la municipalidad.
+Únicamente procederá cuando el cobro se encuentre en la etapa administrativa, o en los casos que el cobro extrajudicial logre que el cliente se apersone a formalizar un arreglo.

@@ -1,0 +1,1 @@
+Artículo 26.-Formalización de la contratación. Las personas oferentes elegidas firmarán un contrato con la municipalidad, así como cualquier otro documento que requiera la institución, necesario para la prestación eficiente de estos servicios, y para cumplir con las normas que regulan este tipo de contratación.

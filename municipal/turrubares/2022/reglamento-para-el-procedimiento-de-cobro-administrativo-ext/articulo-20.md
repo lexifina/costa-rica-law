@@ -1,0 +1,1 @@
+Artículo 20.-Resolución del arreglo de pago. El convenio de arreglo de pago que se haya retrasado diez días hábiles en el cumplimiento de su obligación, en cuyo caso, vencido dicho plazo, se le iniciará nuevamente el procedimiento de gestión administrativa de cobro.

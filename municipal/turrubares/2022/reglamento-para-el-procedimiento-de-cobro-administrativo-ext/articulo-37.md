@@ -1,0 +1,1 @@
+Artículo 37.-El día hábil siguiente al remate, el profesional en derecho responsable, deberá informar por escrito a la Municipalidad el resultado del remate. Si pasado un lapso de ocho días no cumpliere lo anterior, el Proceso de Cobro le enviará una nota solicitando el informe, con copia al Alcalde para que se proceda de conformidad.
