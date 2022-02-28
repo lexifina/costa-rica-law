@@ -1,1 +1,0 @@
-Artículo 14.—Antes de la aprobación del acta de cada sesión, los acuerdos tomados en cada una de ellas carecerán de firmeza, a menos de que con su voto cuatro miembros acuerden su firmeza al momento de tomarlos. Un director puede votar afirmativamente la firmeza de un acuerdo aunque haya votado negativamente sobre su contenido.

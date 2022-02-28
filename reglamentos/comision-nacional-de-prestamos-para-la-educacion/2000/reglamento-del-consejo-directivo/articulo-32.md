@@ -1,2 +1,0 @@
-Artículo 32.—Los debates y las deliberaciones de los miembros del Consejo Directivo, deben realizarse de forma sucesiva, simultánea, alternativa, bidireccional e inmediata, de modo que todos y cada uno de los presentes y no presentes puedan escuchar las manifestaciones cuando hagan uso de la palabra. Se deberá dejar constancia de las manifestaciones así como del voto, sea este afirmativo o negativo.
-(Así adicionado en sesión N° 03-01-2017 del 23 de enero de 2017)

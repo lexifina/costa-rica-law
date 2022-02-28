@@ -1,1 +1,0 @@
-Artículo 28.—Aprobado por el Consejo Directivo en Sesión No 46- 11-2001, de fecha 8 de noviembre del 2000, artículo 6 y analizado en las sesiones No 14-4-2001, No 16-5-2001, No 17-5-2001, No 18-5-2001, No 41-9-2001, No 43-10-2001. Rige a partir de su publicación en el Diario Oficial La Gaceta.
