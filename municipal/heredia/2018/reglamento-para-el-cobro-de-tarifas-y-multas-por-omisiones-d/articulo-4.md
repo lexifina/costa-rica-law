@@ -1,1 +1,0 @@
-Artículo 4 — Deberes y obligaciones. Los propietarios o poseedores de los inmuebles ubicados en el cantón de Heredia, o de quienes aparezcan como titulares de la cuenta en servicios urbanos tendrán los deberes y obligaciones descritos en el artículo 75 del Código Municipal.

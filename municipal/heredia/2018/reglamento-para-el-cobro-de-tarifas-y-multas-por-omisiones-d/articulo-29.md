@@ -1,1 +1,0 @@
-Artículo 29 — Parrillas de tragantes o cajas de registro. En el caso de ser necesaria la ubicación de parrillas de tragantes o cajas de registro para la evacuación de aguas pluviales, la abertura de los orificios no podrá ser mayor a 15 milímetros. Esta especificación podrá ser modificada precio estudios hidráulicos que justifique la modificación de la norma.

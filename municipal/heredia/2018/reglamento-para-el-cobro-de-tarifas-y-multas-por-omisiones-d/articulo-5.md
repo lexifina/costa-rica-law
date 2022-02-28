@@ -1,1 +1,0 @@
-Artículo 5 — Omisión de deberes. Se entenderá por omisión de deberes del propietario o poseedor por cualquier título de bienes inmuebles cuando se incurra el incumplimiento de los deberes contenidos en el artículo 4 este reglamento.
