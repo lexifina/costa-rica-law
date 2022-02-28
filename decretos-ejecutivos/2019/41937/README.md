@@ -15,3 +15,4 @@ Reglamento del Consejo Fiscal
 | --- | --- | --- |
 | 1 | 2019-08-28 | la propia norma |
 | 2 | 2021-02-16 | Decreto Ejecutivo 42879 (2021-02-16) |
+| 3 | 2022-02-28 | Decreto Ejecutivo 43428 (2022-02-28) |
