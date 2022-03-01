@@ -1,0 +1,3 @@
+Artículo 16.-Plazos de respuesta. La Contraloría de Servicios, deberá atender las gestiones presentadas en los siguientes plazos:
+Las consultas, inconformidades, felicitaciones, solicitudes de información pública y demás peticiones puras y simples deberán ser resueltas en el plazo máximo de quince días hábiles a partir de la fecha de la recepción de la solicitud. Salvo complejidad de lo requerido para atender la gestión, para lo cual se le informará al solicitante que ese plazo se ampliará, sin que se exceda del plazo de cincuenta días naturales.
+En el caso de materia regulada por normativa especial, se atenderá según los plazos que cada una disponga.

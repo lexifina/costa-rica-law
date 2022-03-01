@@ -1,0 +1,1 @@
+Artículo 4º-Deberes de las personas usuarias. Las personas usuarias que requieran los servicios que presta el Registro Nacional, deberán atender lo indicado en la Ley Reguladora del Sistema Nacional de Contralorías de Servicios, Ley N° 9158; y su Reglamento.
