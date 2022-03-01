@@ -1,1 +1,0 @@
-Artículo 7. Del Registro de oferentes. Todas aquellas personas que presenten ofertas de servicios a la institución pasarán a formar parte de un registro de oferentes levantado por el Departamento de Recursos Humanos.

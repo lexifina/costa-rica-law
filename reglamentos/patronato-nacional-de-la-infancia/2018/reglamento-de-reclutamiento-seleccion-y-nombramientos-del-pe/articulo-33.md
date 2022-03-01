@@ -1,3 +1,0 @@
-CAPÍTULO III. DISPOSICIONES FINALES.
-SECCIÓN ÚNICA.
-Artículo 33. Responsabilidades del oferente. Toda persona que aspire a prestar servicios en la institución deberá cumplir con los requisitos previstos en el presente reglamento y se entenderá que toda documentación e información suministrada será recibida bajo fe de juramento, y por consiguiente, cualquier inexactitud o alteración, además de las responsabilidades penales inherentes, constituye falta grave y da lugar a que la persona aspirante no obtenga el empleo o sea destituido sin responsabilidad patronal en caso de estar ya nombrado en algún puesto, previa determinación de la responsabilidad disciplinaria mediante debido proceso.

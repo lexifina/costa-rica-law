@@ -1,1 +1,0 @@
-Artículo 21. Nombramiento de parientes. No podrá nombrarse en propiedad a personas que sean parientes por consanguinidad o afinidad hasta en cuarto grado, de los funcionarios que pertenezcan a la dependencia que requiere llenar la plaza.
