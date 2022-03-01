@@ -14,3 +14,4 @@ Sobre el formato y enlace al Marco Geodésico para la georreferenciación de lev
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-03-01 | la propia norma |
+| 2 | 2022-03-01 | Directriz 2 (2021-01-21) |

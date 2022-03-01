@@ -1,4 +1,6 @@
+(Suspendida)
 JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+(Nota de Sinalevi: Mediante directriz N° DRI-002-2021 del 21 de enero del 2021, se acordó suspender la entrada en vigencia de la presente norma. Asimismo se indica que la entrada en vigencia de esta directriz será el 1° de julio del 2021)
 REGISTRO INMOBILIARIO
 DIRECTRIZ DRI-001-2020
 De: MSc. Mauricio Soley Pérez
