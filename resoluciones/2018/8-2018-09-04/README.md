@@ -18,3 +18,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | 3 | 2019-07-12 | Resolución 12 (2019-07-12) |
 | 4 | 2020-01-29 | Resolución 1 (2020-01-29) |
 | 5 | 2022-01-07 | Resolución 1 (2022-01-07) |
+| 6 | 2022-03-01 | Resolución 4 (2022-03-01) |
