@@ -15,3 +15,4 @@ Comunica emisión de resolución de la Dirección General de Servicio Civil (DG-
 | --- | --- | --- |
 | 1 | 2021-02-03 | la propia norma |
 | 2 | 2021-11-18 | Circular 9 (2021-11-18) |
+| 3 | 2022-03-01 | Resolución 4 (2022-03-01) |
