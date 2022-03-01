@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil: (
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-30 | la propia norma |
+| 2 | 2022-03-01 | Resolución 4 (2022-03-01) |
