@@ -1,0 +1,1 @@
+ARTÍCULO 38. EFICACIA PARA LOS GASTOS IMPREVISTOS: Los gastos indicados en artículo anterior quedan sujetos a que exista disponibilidad presupuestaria al momento de solicitar el reintegro para que puedan hacerse efectivos.

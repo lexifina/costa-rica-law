@@ -1,0 +1,1 @@
+ARTÍCULO 34. TIPO DE MONEDA: En el caso de que los proveedores tengan los precios establecidos en otro tipo de moneda que no sea la moneda de curso legal vigente le debe solicitar que indiquen en la factura el tipo de cambio que está aplicando.

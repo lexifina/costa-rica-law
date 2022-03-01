@@ -1,0 +1,2 @@
+ARTÍCULO 63. TRANSITORIO I: Las erogaciones que se encuentren en trámite al momento de la publicación y entrada en vigencia de este Reglamento, se regirán con las regulaciones contenidas en la normativa anterior.
+Comuníquese y publíquese por el Despacho de la Defensoría de los Habitantes de la República, mediante acuerdo No 2402, de las doce horas y cuarenta minutos del día 21 de diciembre de 2021.

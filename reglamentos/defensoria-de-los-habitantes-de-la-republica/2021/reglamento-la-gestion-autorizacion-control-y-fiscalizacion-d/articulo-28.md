@@ -1,0 +1,1 @@
+ARTÍCULO 28. EXCLUSIÓN A LA EXCEPCIÓN ANTERIOR: Se excluyen del artículo anterior las vacaciones, incapacidades por maternidad, permisos con o sin goce de salario, suspensiones y giras programadas, siendo necesario la presentación de la liquidación respectiva en plazo y forma señalada.

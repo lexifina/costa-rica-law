@@ -1,0 +1,1 @@
+ARTÍCULO 19. CONTROL Y VERIFICACIÓN: La Jefatura inmediata, el responsable del Fondo de trabajo o a quién éste haya designado formalmente para autorizar adelantos de Gastos de Viaje y de transporte, será responsable de verificar y controlar que la suma adelantada esté en concordancia con la programación de la gira establecida y de acuerdo a la normativa vigente.

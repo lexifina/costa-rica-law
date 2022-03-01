@@ -1,0 +1,1 @@
+ARTÍCULO 56. INFORMES A LA JEFATURA: Es responsabilidad del responsable del Fondo de Trabajo, elaborar los informes que requieran la Jefatura del Departamento Financiero - Contable, la Dirección Administrativa Financiera y/o cualquier dependencia de control, sobre los aspectos relacionados a las funciones a su cargo.

@@ -1,0 +1,1 @@
+ARTÍCULO 2. ASIGNACIÓN DEL FONDO: Dicho fondo lo asignará la Tesorería Institucional, donde su monto será definido de acuerdo a la recomendación que al respecto establezca la Dirección Administrativa Financiera.

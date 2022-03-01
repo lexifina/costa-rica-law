@@ -1,0 +1,3 @@
+CAPITULO SEXTO
+REINTEGROS DEL FONDO DE TRABAJO Y CAJAS CHICAS
+ARTÍCULO 40. TRAMITE Y AUTORIZACIÓN PARA SOLICITAR EL REINTEGRO DEL FONDO DE TRABAJO: Todo reintegro al Fondo de Trabajo deberá tramitarse mediante una factura de gobierno u otro documento autorizado por la Dirección Administrativa Financiera, con el detalle de las subpartidas presupuestarias, nombre del proveedor, número de la factura, comprobante, número de cheque o transferencia, monto que se pagó y acuerdo de pago. Toda solicitud de reintegro al Fondo de Trabajo debe ser autorizada por el Departamento Financiero-Contable y la Dirección Administrativa Financiera.

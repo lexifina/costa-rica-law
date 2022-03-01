@@ -1,0 +1,1 @@
+ARTÍCULO 33. FECHAS DE LAS FACTURAS: Las facturas o los comprobantes y en general todos los documentos que respalden la liquidación de un adelanto de gastos no pueden tener fecha anterior a la del recibido de los recursos.

@@ -1,0 +1,1 @@
+ARTÍCULO 39. LA NO REALIZACIÓN DEL GASTO: Si por algún motivo, el gasto para el cual se solicitó el adelanto del Fondo de Trabajo no se realizó, o la gira no se lleva a cabo, después de haber recibido los recursos, el funcionario solicitante debe hacer devolución inmediata del mismo dentro del término máximo de 3 días hábiles.

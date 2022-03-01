@@ -1,0 +1,1 @@
+ARTÍCULO 41. LA POSIBLE RETENCION DE JUSTIFICANTES: Cuando el encargado del Fondo considere necesario, podrá retener los justificantes de pago con el fin de conformar un grupo de comprobantes con el mismo del gasto y proceder a su reintegro a más tardar el mes siguiente.

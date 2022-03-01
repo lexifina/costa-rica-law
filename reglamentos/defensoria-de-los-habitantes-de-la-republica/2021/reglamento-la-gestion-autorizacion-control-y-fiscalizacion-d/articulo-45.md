@@ -1,0 +1,1 @@
+ARTÍCULO 45. CUSTODIA DE LOS DOCUMENTOS QUE RESPALDAN LOS REINTEGROS: Toda la documentación que respalda los gastos autorizados debe ser custodiada por la persona responsable de los recursos. Asimismo, deberán estar a disposición para efectos de fiscalización.

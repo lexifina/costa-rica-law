@@ -1,0 +1,1 @@
+ARTÍCULO 5. ALCANCE: El presente reglamento servirá de instrumento normativo para la gestión de los recursos destinados en la adquisición de bienes y servicios urgentes e indispensables y del reconocimiento de viáticos y transporte. Lo anterior sin menoscabo de la observancia que se le deba prestar a cualquier otra normativa externa que regule la materia.

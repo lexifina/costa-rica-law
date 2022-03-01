@@ -1,0 +1,1 @@
+ARTÍCULO 62. VIGENCIA: El presente reglamento, previo a su publicación deberá ser sometido a la aprobación de las Dependencias Internas correspondientes y su vigencia empezará a regir a partir de su publicación en el Diario Oficial "La Gaceta".

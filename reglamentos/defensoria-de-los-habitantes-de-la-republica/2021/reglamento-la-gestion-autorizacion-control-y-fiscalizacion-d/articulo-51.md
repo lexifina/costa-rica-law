@@ -1,0 +1,1 @@
+ARTÍCULO 51. OBLIGACIONES DEL RESPALDO DOCUMENTAL DE LOS ARQUEOS: Los funcionarios que realicen arqueos a las Cajas Chicas ubicadas en Oficinas Centrales deben dejar constancia formal de los hallazgos detectados, mediante documento firmado por el funcionario que lo realiza y el responsable de dicha Caja Chica.

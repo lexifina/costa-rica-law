@@ -1,0 +1,1 @@
+ARTÍCULO 14. SUPERVISIÓN Y FISCALIZACIÓN: Es responsabilidad de la Jefatura del Departamento Financiero - Contable ejercer supervisión y fiscalización permanente sobre la custodia de la Caja Chica autorizada para tal efecto, velando por el fiel cumplimiento de lo que establece el presente reglamento.

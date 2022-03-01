@@ -1,0 +1,1 @@
+ARTÍCULO 36. RECONOCIMIENTO DE GASTOS PARA LA ADQUISICIÓN DE BIENES Y SERVICIOS SIN ADELANTO: En la adquisición de bienes y servicios no se reconocerán gastos por medio del Fondo de Trabajo y Caja Chica, cuando previo a su realización no haya solicitado la respectiva autorización a la Dirección Administrativa Financiera.

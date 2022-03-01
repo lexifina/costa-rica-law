@@ -1,0 +1,1 @@
+ARTÍCULO 18. SUMA MÁXIMA A ADELANTAR POR CONCEPTO DE GASTOS DE VIATICOS Y TRANSPORTE: Por ningún motivo, los adelantos para Gastos de Viaje y Transporte podrán exceder el monto máximo autorizado por Ley.

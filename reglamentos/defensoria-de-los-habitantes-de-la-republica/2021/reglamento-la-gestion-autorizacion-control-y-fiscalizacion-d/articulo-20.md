@@ -1,0 +1,1 @@
+ARTICULO 20 RECONOCIMIENTO DE VIÁTICOS EN DÍAS FERIADOS, SÁBADOS Y DOMINGOS: En las giras que se incluyan días feriados, sábados y domingos, éstos deberán contener una justificación debidamente razonada y autorizada por el Jefatura inmediata, donde se detalle claramente las razones por las cuales fueron incluidos esos días en la gira programada.

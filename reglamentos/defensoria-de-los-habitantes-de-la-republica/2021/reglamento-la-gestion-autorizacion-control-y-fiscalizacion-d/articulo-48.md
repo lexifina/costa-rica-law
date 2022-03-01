@@ -1,0 +1,1 @@
+ARTÍCULO 48. TIEMPOS REQUERIDOS POR LAS UNIDADES RESPONSABLES DE REALIZAR LOS REINTEGROS: La Unidad de Tesorería contará con cinco días hábiles para realizar las acciones de su competencia en el trámite de reintegros que soliciten las unidades respectivas.

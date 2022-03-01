@@ -1,0 +1,1 @@
+ARTÍCULO 60. DEROGACIONES: A partir de la entrada en vigencia del presente reglamento queda derogado cualquier otro reglamento que se haya publicado al respecto, así como toda aquella normativa interna igual o de rango inferior.

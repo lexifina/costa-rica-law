@@ -1,0 +1,1 @@
+ARTÍCULO 30. DOCUMENTOS DE RESPALDO PARA LA LIQUIDACIÓN: Para realizar la liquidación, será requisito indispensable presentar todos los documentos que comprueben y justifiquen la realización del gasto, los cuales, sin excepción deben ser originales, estar en buen estado y claramente legibles.

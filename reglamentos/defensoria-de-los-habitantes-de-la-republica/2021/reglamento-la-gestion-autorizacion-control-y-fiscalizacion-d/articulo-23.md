@@ -1,0 +1,1 @@
+ARTÍCULO 23. RECONOCIMIENTO DE VIÁTICOS Y TRANSPORTE FUERA DEL PAIS. La solicitud, trámite y aprobación del reconocimiento de viáticos y transporte fuera del país se hará atendiendo lo establecido en el Reglamento de Gastos de Viaje emitido por la Contraloría General de la República.
