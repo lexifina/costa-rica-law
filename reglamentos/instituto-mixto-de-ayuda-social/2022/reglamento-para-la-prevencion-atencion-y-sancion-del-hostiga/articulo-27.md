@@ -1,0 +1,4 @@
+Artículo 27- De los deberes de acatamiento, colaboración e información
+Toda oficina, persona funcionaria o trabajadora y usuaria de la Institución, está en la obligación de brindar colaboración y suministrar la información que le sea solicitada por el Órgano Director del Procedimiento (ODP), para la debida tramitación del procedimiento por hostigamiento sexual, dentro de los plazos establecidos.
+En el caso de las citaciones, el Órgano Director del Procedimiento (ODP) podrá citar a la o las personas, con conocimiento de causa, para que declaren o realicen cualquier acto necesario para el desenvolvimiento normal del procedimiento o para su decisión final
+La persona citada podrá hacerse venir por la Fuerza Pública sino compareciere a la primera citación, de conformidad con lo establecido en el artículo 248 de la Ley General de la Administración Pública.

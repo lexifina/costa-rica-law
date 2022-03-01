@@ -1,0 +1,2 @@
+Artículo 44-Del levantamiento del acta
+Se levantará un acta de la comparecencia, la cual se leerá a las partes una vez finalizada la diligencia. Esa acta será firmada por las personas que conforman el ODP y por todas las personas parte. Cuando la comparecencia sea grabada, el acta, que consistirá en la transcripción íntegra de la audiencia, se levantará con posterioridad, validada con la firma de las personas integrantes del ODP. De esa transcripción se otorgará audiencia por el plazo de tres días hábilesa las partes para lo que a bien tengan manifestar con relación a ella.

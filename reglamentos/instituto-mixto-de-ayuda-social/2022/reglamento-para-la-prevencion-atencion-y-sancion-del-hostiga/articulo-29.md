@@ -1,0 +1,2 @@
+Artículo 29- Del plazo del procedimiento
+El procedimiento deberá desarrollarse en un plazo de dos meses, incluyendo el dictado de la resolución final, contados a partir de la interposición de la denuncia. Ese plazo podrá prorrogarse cuando concurran las circunstancias previstas en el artículo 263 de la Ley General de la Administración Pública y según el procedimiento establecido en esa norma.

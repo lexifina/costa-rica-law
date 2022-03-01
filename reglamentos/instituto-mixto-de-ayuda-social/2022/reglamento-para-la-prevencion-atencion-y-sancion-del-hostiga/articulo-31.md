@@ -1,0 +1,2 @@
+Artículo 31- De la integración y aplicación de leyes
+En casos de hostigamiento sexual, se deberá observar el procedimiento establecido en este Reglamento, el cual se ajusta a lo establecido en la Ley de Hostigamiento Sexual en el Empleo y la Docencia. En caso de conflicto entre ambas normativas prevalecerá por jerarquía de normas, el establecido en la Ley de Hostigamiento Sexual.Supletoriamente en lo no previsto por este Reglamento, se aplicará la Ley General de la Administración Pública y el Código de Trabajo.

@@ -1,0 +1,3 @@
+Artículo 49- De la comunicación de la resolución final
+Una vez firme la resolución que se dicte en el respectivo procedimiento disciplinario, el Órgano que decide la comunicará mediante copia a la Unidad de Desarrollo Humano con el fin de que se incluya en el respectivo expediente. La resolución original se remitirá al ODP, para que sea incorporada al respectivo expediente.
+Cuando la persona denunciada sea profesional, y en el acto final del procedimiento se halle responsable, este resultado se informará al Colegio Profesional respectivo, para que proceda de conformidad con lo dispuesto en el artículo 11 de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, o a la normativa interna del Colegio respectivo.

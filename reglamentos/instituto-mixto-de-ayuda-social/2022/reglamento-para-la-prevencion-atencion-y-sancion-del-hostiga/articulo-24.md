@@ -1,0 +1,3 @@
+Artículo 24- Del inicio e impulso procesal de oficio
+En materia de hostigamiento sexual, el procedimiento administrativo-disciplinario, se iniciará con la denuncia, pero se desarrollará por impulso procesal de oficio, sin perjuicio del que puedan darle las partes.
+En aquellos casos en los que la persona denunciada renuncie a su puesto y manifieste su interés de no formar parte dentro del procedimiento seguido por hostigamiento sexual, el trámite continuará hasta la emisión del correspondiente Acto Final, donde se indicará si se lograron demostrar los hechos denunciados o no. Todas las actuaciones del procedimiento serán archivadas en el expediente administrativo de la persona denunciada.

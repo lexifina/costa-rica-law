@@ -1,0 +1,2 @@
+Artículo 43- De la recepción de la declaración y pruebas
+Durante el desarrollo de la audiencia, corresponderá a las partes hacer los alegatos que estimen pertinentes a su defensa o acusación, ofrecer la prueba pertinente y obtener su admisión y trámite, pedir testimonio a la contraparte, preguntar y repreguntar a las personas que testificano especialistas, aclarar o ampliar su defensa o denuncia inicial, formular conclusiones de hecho y de derecho sobre la prueba ofrecida y el resultado de la audiencia.

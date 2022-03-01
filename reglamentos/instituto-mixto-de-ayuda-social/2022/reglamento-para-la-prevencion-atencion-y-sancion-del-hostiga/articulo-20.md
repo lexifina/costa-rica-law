@@ -1,0 +1,3 @@
+Artículo 20- De la remisión de las denuncias
+Una vez formalizada la respectiva denuncia por hostigamiento sexual, la instancia receptora de la denuncia debe guardar total confidencialidad y ponerla en conocimiento del Órgano que decide en el día hábil siguiente a su recepción, mediante sobre cerrado.
+Una vez recibida la denuncia, el Órgano que decide, deberá proceder a la apertura del correspondiente procedimiento administrativo dentro del plazo establecido para materia disciplinaria en el artículo 414 del Código de Trabajo. En caso de no hacerlo y prescribir el procedimiento, podrá enfrentar las responsabilidades propias de no haber realizado la gestión en tiempo y en forma.
