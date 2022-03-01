@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De la Jornada y horario de trabajo.
+Artículo 20. -Duración de la jornada laboral y horario. - La jornada semanal de prestación de servicios es de lunes a viernes y su horario iniciará a las 7:30 a.m. y concluirá a las 4:30 p.m.
+Dentro de esta jornada, los servidores disfrutarán de un lapso de 1 hora para el almuerzo de 12:00 horas a 13:00 horas y 15 minutos en la mañana, entre las 7:30 am y las 10:00 am y 15 minutos en la tarde, entre las 15:00 y 16:15 para tomarse un descanso. La jornada laboral no es acumulativa. Lo anterior, sin perjuicio de los servidores que deban atender procesos judiciales en horario vespertino o ante los Tribunales de Flagrancia. Los Procuradores Directores, Jefes de Departamento, y todos los servidores que ostenten cargos de Jefatura serán responsables de vigilar y hacer cumplir los horarios establecidos.

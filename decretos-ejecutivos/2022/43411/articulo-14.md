@@ -1,0 +1,1 @@
+Artículo 14. -Agotamiento de la vía administrativa en ascensos directos y concursos internos. La fase recursiva que se produjere cuando se presuma violación a las normas y procedimientos establecidos para los ascensos directos y concursos internos serán resueltos por el superior jerárquico.

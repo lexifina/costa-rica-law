@@ -1,0 +1,3 @@
+Artículo 33. -Procedencia de la exención de la obligación del registro de asistencia. Se podrá eximir de la obligación de registrar la asistencia en el siguiente caso:
+. A los servidores que posean como mínimo quince años de servicio en la Administración Pública.
+Para ello el Departamento de Gestión Institucional de Recursos Humanos hará un estudio de expediente de los últimos dos años de trabajo, valorándose la puntualidad y disciplina del servidor, requiriéndose en todo caso el informe respectivo y hará una recomendación al Procurador General o al Procurador General Adjunto quienes resolverán lo que corresponda con vista a lo indicado en el informe.

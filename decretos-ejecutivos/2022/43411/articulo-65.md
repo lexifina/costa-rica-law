@@ -1,0 +1,1 @@
+Artículo 65. -Presentación de los reclamos. Las gestiones de los servidores señaladas en el artículo anterior deberán ser planteadas por escrito, pero, podrán hacerse en forma verbal, cuando por la naturaleza del asunto no sea necesario para resolverlo, la emisión de una resolución o que por la importancia del asunto no amerite un procedimiento escrito.

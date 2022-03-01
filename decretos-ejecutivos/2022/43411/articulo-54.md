@@ -1,0 +1,1 @@
+Artículo 54. -Aplicación de recomendaciones. Es de conveniencia institucional la implementación de las recomendaciones que sobre salud, seguridad e higiene formule la Comisión de Salud Ocupacional, para lo cual el Superior Jerárquico valorará de manera justificada la ejecución de las mismas, en concordancia con lo dispuesto en el artículo anterior.

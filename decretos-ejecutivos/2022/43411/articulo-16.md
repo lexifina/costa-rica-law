@@ -1,0 +1,3 @@
+Artículo 16. -Beneficios de los funcionarios: Además de los derechos establecidos en el artículo anterior, la Procuraduría General de la República podrá reconocer los siguientes beneficios:
+1. Disponer del último viernes del mes de septiembre para la celebración del día del Funcionario de la Procuraduría General de la República.
+2. Cuando no hayan cumplido el período de disfrute, el servidor podrá solicitar vacaciones, la cuales se rebajarán del saldo proporcional, con la condición de que tengan como mínimo un año de prestar servicios para la institución. En caso de que solicite medio día de vacaciones, el saldo o los saldos de fracción resultante deberá programarlos antes de cumplir el siguiente período.

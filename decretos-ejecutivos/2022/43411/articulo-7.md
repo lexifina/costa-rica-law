@@ -1,0 +1,2 @@
+Artículo 7. -Período de prueba. En toda relación de servicio por tiempo indeterminado habrá un período de prueba mínimo de tres meses, de conformidad con lo establecido en el inciso c) del Artículo 33 de la Ley Orgánica de la Procuraduría General de la República. En el caso de los Procuradores, el período de prueba será de dos años.
+El período de prueba se aplicará a juicio de la Administración también en los casos de ascenso o traslado, tal y como lo establece este Reglamento y lo dispuesto por el artículo 24 del Reglamento del Estatuto de Servicio Civil.

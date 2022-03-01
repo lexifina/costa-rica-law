@@ -1,0 +1,1 @@
+Artículo 51. -Elección de los representantes de la Comisión Institucional de Salud Ocupacional. La elección de los representantes de la Comisión Institucional de Salud Ocupacional se hará de conformidad con lo establecido en el Decreto Ejecutivo N° 39408- MTSS del 23 de noviembre del 2015.

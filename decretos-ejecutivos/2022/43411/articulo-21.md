@@ -1,0 +1,1 @@
+Artículo 21. -Modificación temporal de los horarios preestablecidos. La Procuraduría General de la República podrá modificar transitoriamente los horarios anteriores, siempre que circunstancias especiales así lo exijan y no se cause perjuicio a los trabajadores. En este caso la Institución dará aviso a los trabajadores afectados con un mínimo de tres días de anticipación

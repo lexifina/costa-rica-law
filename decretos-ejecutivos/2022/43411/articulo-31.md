@@ -1,0 +1,1 @@
+Artículo 31. -Sobre el mal estado del dispositivo de control de asistencia. Cuando no funcione el dispositivo de control de asistencia en alguno de los lugares de prestación de servicios, el Departamento de Gestión Institucional de Recursos Humanos indicará la forma en que se llevará a cabo el control de asistencia y puntualidad.

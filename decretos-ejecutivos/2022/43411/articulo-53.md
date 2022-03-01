@@ -1,0 +1,1 @@
+Artículo 53. -Dotación de recursos en aras de la salud ocupacional. La Procuraduría General de la República deberá proveer los recursos humanos, materiales y financieros necesarios para el adecuado cumplimiento de las disposiciones establecidas en este capítulo, de acuerdo a la disponibilidad presupuestaria.

@@ -1,0 +1,1 @@
+Artículo 37. -Sobre la justificación de las llegadas tardías. Con fundamento en lo dispuesto en el artículo anterior, en casos muy calificados, el Jefe Inmediato podrá justificar hasta un máximo de tres llegadas tardías dentro del mismo mes calendario.

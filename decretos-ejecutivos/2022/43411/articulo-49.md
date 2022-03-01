@@ -1,0 +1,2 @@
+Artículo 49. -De las sesiones de la Comisión Institucional de Salud Ocupacional. El quórum para iniciar las sesiones y deliberar se formará con la asistencia mínima de cuatro de los miembros de la Comisión. Los acuerdos se tomarán por mayoría simple de los presentes.
+En caso de que no exista acuerdo sobre algún asunto sometido a consideración de la Comisión de Salud Ocupacional se someterá al Consejo de Salud Ocupacional del Ministerio de Trabajo y Seguridad Social, para su resolución definitiva.

@@ -1,0 +1,7 @@
+Artículo 32. -De la omisión del registro de asistencia. Salvo los casos de excepción previstos en este Reglamento, cuando la jefatura inmediata asigne labores que se realicen en regiones alejadas del sitio donde se marca, el superior inmediato deberá presentar las debidas justificaciones en el plazo de dos días hábiles a partir del momento en que se haya producido la omisión.
+De no ser así se presumirá la inasistencia a la correspondiente jornada o fracción. La jefatura inmediata podrá justificar una sola omisión, con excepción de las que justifiquen por motivos estrictamente laborales, lo cual será valorado por el Departamento de Gestión Institucional de Recursos Humanos. En aquellos casos en los que no sean justificables las omisiones del registro de asistencia se procederá a la aplicación de sanciones disciplinarias con base en las siguientes causales:
+1. Media jornada conlleva amonestación escrita.
+2. Dos medias jornadas alternas conlleva la suspensión sin goce de salario del servidor por tres días.
+3. Tres medias jornadas alternas, implica suspensión sin goce de salario del servidor por seis días.
+4. Más de tres medias jornadas, conlleva el despido con causa justificada por parte de la administración.
+Para todos los tiempos de registro, quedan excluidos de la obligación de registrar su asistencia únicamente el Procurador General, el Procurador General Adjunto, Directores de Área, los Procuradores, y Jefes de Departamento.

@@ -1,0 +1,1 @@
+Artículo 30. -Del registro de asistencia defectuoso o confuso. Salvo desperfectos del dispositivo para el registro de marca o del sistema que se utilice, según el caso, el registro defectuoso o confuso de la asistencia a labores deberá ser justificado por el jefe inmediato, para los efectos legales correspondientes.

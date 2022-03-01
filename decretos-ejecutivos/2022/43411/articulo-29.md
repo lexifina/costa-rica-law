@@ -1,0 +1,1 @@
+Artículo 29. -Responsables del control de tiempo efectivo de labores. El control de la entrada y salida para el tiempo destinado al almuerzo o refrigerios, así como la permanencia efectiva del personal atendiendo sus labores queda bajo la responsabilidad de cada jefe inmediato.

@@ -1,0 +1,4 @@
+Artículo 75. -De los casos en que procede el despido del funcionario. El despido sin responsabilidad patronal procede en los siguientes casos:
+1) Cuando al servidor, en tres ocasiones, se le imponga suspensión disciplinaria dentro de un período de tres meses, ya que se considerará la repetición de infracciones como conducta irresponsable y contraria a las obligaciones del contrato o relación de servicio
+2) Cuando el funcionario incurra en alguna de las causales previstas en el Estatuto de Servicio Civil y su Reglamento, Código de Trabajo, la Ley de la Administración Financiera de la República, Ley Orgánica de la Contraloría General de la República, Ley Orgánica de la Procuraduría General de la República y demás normativa que regule las relaciones de servicios.
+3) En los casos especiales previstos en este Reglamento.

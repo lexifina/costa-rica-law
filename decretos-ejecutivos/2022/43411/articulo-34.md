@@ -1,0 +1,7 @@
+Artículo 34. -Requisitos para la solicitud de exención de marca de asistencia y suspensión de dicha exoneración. La exención del registro de marca de asistencia, se considera como beneficio y podrá otorgarse al servidor siempre y cuando:
+1. Lo solicite por escrito con recomendación de su jefe inmediato.
+2. No haya sido sancionado por irregularidades en la asistencia en los últimos dos años.
+3. Sus evaluaciones de servicio durante los últimos tres años sean iguales o superiores a "Muy Bueno".
+La concesión de dicho beneficio de ninguna manera faculta para una asistencia irregular y los Jefes inmediatos dispondrán los mecanismos de verificación correspondientes. Este beneficio podría ser suspendido o revocado por la Administración, a través de la solicitud planteada tanto por el Superior Jerárquico, el Jefe inmediato o por el Departamento de Gestión Institucional de Recursos Humanos, por asistencia irregular o porque la evaluación de los servicios sea inferior a "muy bueno".
+Transcurrido un año después de la revocación del beneficio, el servidor podrá solicitarlo de nuevo siempre que cumpla con los requisitos establecidos
+Los funcionarios quienes a la entrada en vigencia de la presente normativa se encuentren exentos de la obligación de registrar su asistencia podrán continuar gozando de dicho beneficio, sin perjuicio de que la asistencia irregular al centro de trabajo sea motivo para revocar esa exención, debiéndose el servidor afectado por esa disposición ajustarse a lo dispuesto en el presente Reglamento.

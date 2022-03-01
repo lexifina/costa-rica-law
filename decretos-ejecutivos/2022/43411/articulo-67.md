@@ -1,0 +1,1 @@
+Artículo 67. -Competencia para conocer el reclamo administrativo. Los reclamos administrativos de los servidores de la Procuraduría General de la República referentes a extremos pecuniarios, deberán ser interpuestos ante el Despacho del Procurador General.

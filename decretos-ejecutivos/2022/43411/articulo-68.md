@@ -1,0 +1,1 @@
+Artículo 68. -Emisión de resolución final. Una vez dictada la resolución final por parte del Despacho del Procurador General o del General Adjunto deberá remitir dicha resolución a las instancias y dependencias para la aplicación económica de rigor.

@@ -1,0 +1,1 @@
+Artículo 39. -Determinación de una ausencia. Se considerará como media ausencia, deducible del salario, la llegada tardía que exceda en treinta minutos la hora de ingreso establecida y que, a juicio del jefe superior inmediato, carezca de justificación. Al trabajador se le aplicará la sanción disciplinaria correspondiente según lo dispuesto en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 13. -Confidencialidad de los expedientes. La confidencialidad de los expedientes personales deberá ser garantizada por el Departamento de Gestión Institucional de Recursos Humanos. Tendrán acceso a la información contenida en estos: el interesado y quienes de previo acrediten interés legítimo.
