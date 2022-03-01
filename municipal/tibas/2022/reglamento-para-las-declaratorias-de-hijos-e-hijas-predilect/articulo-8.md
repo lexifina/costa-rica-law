@@ -1,0 +1,1 @@
+Artículo 8º-Para el estudio de la Declaratoria, el Concejo Municipal nombrará una Comisión Especial que estará integrada por al menos tres representantes del Concejo Municipal. En caso de que exista más de una propuesta al año la comisión emitirá su recomendación debidamente justificada al concejo, para que este tome el acuerdo.
