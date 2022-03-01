@@ -1,5 +1,4 @@
-Artículo 21.—Proceso para el recibimiento de proyectos urbanísticos.
-Requisitos: Los interesados en obtener el recibimiento de proyectos urbanísticos, deberán presentar:
+Artículo 21.-Proceso para el recibimiento de proyectos urbanísticos. Requisitos: Los interesados en obtener el recibimiento de proyectos urbanísticos, deberán presentar:
 1. Solicitud de recibimiento firmado por el profesional responsable del proyecto.
 2. Carta de recibimiento por parte del Instituto Costarricense de Electricidad de la línea de distribución eléctrica.
 3. Carta de aceptación por parte del Instituto Costarricense de Electricidad de la red telefónica.
@@ -13,8 +12,9 @@ Requisitos: Los interesados en obtener el recibimiento de proyectos urbanístico
 11. Garantía de cumplimiento por obras faltantes que deberá consistir en una garantía real hipotecaria o bancaria.
 12. Presupuesto detallado de las obras faltantes, considerando un porcentaje de depreciación.
 13. Cronograma de ejecución de las obras faltantes.
+14 Presentación y aprobación del anteproyecto.
+(Así adicionado el punto anterior en sesión N° 09 del 1° de marzo de 2022)
 NOTAS:
 a) El requisito Nº 7 deberá cumplirse únicamente cuando el servicio de agua potable sea surtido mediante pozo.
 b) Los requisitos 11, 12 y 13, deberán presentarse únicamente cuando el recibimiento se solicite existiendo aún obras faltantes por construir.
-c) En ningún caso se autorizará la recepción de urbanizaciones con obras faltantes cuando el avance de la obra no sea de al menos un 80%.
-Departamento responsable: Departamento de Urbanismo.
+c) En ningún caso se autorizará la recepción de urbanizaciones con obras faltantes cuando el avance de la obra no sea de al menos un 80%. Departamento responsable: Departamento de Urbanismo.

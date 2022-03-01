@@ -14,3 +14,4 @@ Requisitos y Trámites que se realizan en la Municipalidad de Alajuela
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-04 | la propia norma |
+| 2 | 2022-03-01 | Acuerdo municipal 0 (2022-03-01) |
