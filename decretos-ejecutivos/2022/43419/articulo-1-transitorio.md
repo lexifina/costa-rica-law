@@ -1,0 +1,1 @@
+Transitorio único.-Los acuerdos tomados a la fecha, bajo el marco del Decreto Ejecutivo N° 41093-MINAE del 16 de abril de 2018, se mantendrán vigentes, dándoles seguimiento o pudiendo ser actualizados a la luz del presente Decreto.

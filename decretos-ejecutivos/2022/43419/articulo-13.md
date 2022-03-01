@@ -1,0 +1,1 @@
+Artículo 13.-Deróguese el Decreto Ejecutivo N° 41093-MINAE del 16 de abril de 2018 denominado "Crea Comisión para el manejo integrado del Acuífero Nimboyores y Acuíferos Costeros de Santa Cruz de Guanacaste (CONIMBOCO)".
