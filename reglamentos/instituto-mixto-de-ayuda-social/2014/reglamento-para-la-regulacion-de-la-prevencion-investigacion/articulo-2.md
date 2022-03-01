@@ -1,1 +1,0 @@
-Artículo 2º—De la responsabilidad de aplicación. Será responsabilidad de todos los jerarcas, titulares subordinados, y todas las personas funcionarias del IMAS el cumplimiento del presente reglamento.

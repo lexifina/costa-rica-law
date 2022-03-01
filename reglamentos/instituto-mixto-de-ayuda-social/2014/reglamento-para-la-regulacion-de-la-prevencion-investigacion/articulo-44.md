@@ -1,1 +1,0 @@
-Artículo 44.—De la prueba para mejor resolver. En cualquier fase del procedimiento, el ODP podrá ordenar la práctica o el recibo de cualquier prueba pertinente y útil, o la ampliación de la que existe siempre que sea esencial al resultado de la investigación. El ODP deberá dar audiencia de esa prueba a las partes.

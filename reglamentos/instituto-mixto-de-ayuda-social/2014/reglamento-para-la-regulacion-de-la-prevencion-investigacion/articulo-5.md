@@ -1,1 +1,0 @@
-Artículo 5º—Del ámbito de aplicación. Estarán sujetas a la aplicación del presente reglamento, todas aquellas personas supuestas de hostigamiento sexual que se desarrolle en el marco de las actividades de que se ocupa el IMAS.

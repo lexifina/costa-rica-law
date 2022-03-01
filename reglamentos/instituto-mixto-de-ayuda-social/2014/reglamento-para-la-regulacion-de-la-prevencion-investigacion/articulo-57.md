@@ -1,1 +1,0 @@
-Artículo 57.—De la vigencia de la normativa interna. La aprobación del presente Reglamento fue realizada por el Consejo Directivo del IMAS, en la Sesión celebrada el 4 de setiembre del 2014, mediante Acuerdo CD.375-09-2014 y rige a partir de su publicación en el Diario Oficial La Gaceta. Publica el licenciado Gerardo Alvarado Blanco, Gerente General.

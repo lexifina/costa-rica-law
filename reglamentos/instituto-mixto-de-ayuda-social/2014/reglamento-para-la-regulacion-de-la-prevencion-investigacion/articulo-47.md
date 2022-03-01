@@ -1,2 +1,0 @@
-Artículo 47.—De los recursos, contra el acto final que se dicte, serán admisibles los siguientes recursos. Contra la resolución final, procederá el recurso de reposición, previsto en el artículo 343 y siguientes de la Ley General de la Administración Pública, el cual deberá interponerse y será resuelto por la Gerencia General.
-Los recursos deberán interponerse dentro de los tres días hábiles siguientes a la notificación del acto impugnado.

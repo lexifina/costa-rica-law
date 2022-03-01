@@ -1,1 +1,0 @@
-Artículo 39.—Del interrogatorio de las personas testigos/ as deberá realizarse en forma separada ante la presencia al ODP. Las y los testigos serán interrogados únicamente en relación con los hechos sobre los que versa la denuncia y nunca podrá versar sobre los antecedentes de la persona denunciante o de la persona denunciada.
