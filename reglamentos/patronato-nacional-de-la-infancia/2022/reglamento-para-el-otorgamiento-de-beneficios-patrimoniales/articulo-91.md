@@ -1,0 +1,3 @@
+Artículo 91. Derogatorias.
+a) Deróguese el "Reglamento de transferencia de recursos a Organizaciones No Gubernamentales (O.N.G.) para la atención de personas menores de edad", publicado en el Alcance N°123 a La Gaceta N°104 del 04 de junio de 2019.
+b) Deróguese el Capítulo XI Sobre "Hogares Solidarios", del "Reglamento para la Transferencia, Uso, Control y Liquidación de los recursos girados a sujetos privados con convenio de cooperación y transferencia de recursos vigente con el Patronato Nacional de la Infancia para la prevención, protección y atención de personas menores de edad", publicado en el Alcance 240 a La Gaceta Nº 209, del 1 de noviembre de 2016 y la reforma al mismo publicada en la Gaceta 165 del 31 de agosto de 2017.

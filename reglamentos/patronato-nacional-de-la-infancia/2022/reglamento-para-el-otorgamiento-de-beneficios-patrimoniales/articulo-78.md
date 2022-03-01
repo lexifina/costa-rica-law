@@ -1,0 +1,8 @@
+Artículo 78. Procedimiento de elaboración de convenio. La elaboración de los convenios y adendas de transferencia de beneficios patrimoniales tendrá el siguiente trámite:
+a) La Asesoría Jurídica confeccionará y presentará a la Junta Directiva la propuesta de formato de convenio o adenda para su aprobación. En la elaboración de dicha propuesta podrá requerir los criterios técnicos del Departamento de Protección y Departamento Financiero Contable.
+b) La Junta Directiva aprobará la propuesta, la cual deberá ser comunicada por la Gerencia Técnica a nivel regional y local.
+c) La Oficina Local, por medio de la persona profesional encargada de la situación de la persona menor de edad deberá gestionar el cumplimiento de los requisitos indicados en la presente sección.
+d) Una vez completos los requisitos deberá remitirse el expediente de la persona menor de edad a la persona Representante Legal, para la elaboración del convenio o adenda verificando previamente el cumplimiento de los requisitos.
+e) El Representante Legal gestionará las firmas de los convenios en dos tantos de igual naturaleza y valor, con la o las personas titulares del acogimiento familiar.
+Una vez firmado, el Representante Legal devolverá el expediente según corresponda.
+f) Para su inclusión por parte del Departamento Financiero Contable en la planilla del programa, la coordinación de la Oficina Local deberá remitir a la Dirección Regional en los primeros tres días hábiles del mes a realizar el giro del beneficio, certificación y documentos indicados en el artículo anterior, del cumplimiento de la totalidad de los requisitos para que sea verificada por esta y remitidas por Región a más tardar los primeros diez días hábiles, para proceder con la transferencia de los recursos.

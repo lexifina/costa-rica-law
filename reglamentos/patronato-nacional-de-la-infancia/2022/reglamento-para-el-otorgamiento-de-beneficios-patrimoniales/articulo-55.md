@@ -1,0 +1,5 @@
+Sección quinta. De los requerimientos, arreglos de pago y recuperación de
+activos.
+Artículo 55. Arreglos de pago. Sin perjuicio de la obligación de cumplimiento establecida en el presente reglamento y de las sanciones que puedan surgir por la falta de liquidación de recursos transferidos, los Sujetos Privados Beneficiarios podrán solicitar a la Presidencia Ejecutiva la realización de arreglos de pago a fin de normalizar su condición de morosidad o de incumplimiento de obligaciones financieras con el PANI.
+La Presidencia Ejecutiva, solicitará los criterios técnicos correspondientes a los Departamentos de Protección, Financiero Contable y Asesoría Jurídica con el fin de valorar la confección y suscripción del acuerdo correspondiente, el cual será elaborado por la Asesoría Jurídica.
+Corresponderá al Departamento Financiero Contable llevar el seguimiento y control del pago de sumas convenidas a través de los arreglos de pago, siendo que el incumplimiento del arreglo conllevará el inicio de un procedimiento administrativo de resolución del convenio por incumplimiento al mismo.

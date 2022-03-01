@@ -1,0 +1,7 @@
+o Sección segunda. De las modalidades de atención a niños, niñas y adolescentes.
+Artículo 20. Programas en modalidad No Residencial. La atención no residencial de niños, niñas y adolescentes, podrá consistir en las siguientes modalidades de atención:
+a) Centros Infantiles de Desarrollo y Atención Integral (CIDAI): Se trata de una modalidad de atención de carácter preventivo para personas menores de edad de cero a doce años, inclusive, en el apoyo a la familia para procesos educativos y laborales, donde las personas menores de edad asisten para su cuido y procesos de desarrollo infantil, en horarios diurno.
+Estos centros brindarán servicios a personas menores de edad, acordes con las áreas de cuido diario, atención profesional, educación, recreación, deporte, arte, cultura, salud y vinculación con la comunidad, para lo cual cuentan con un permiso de funcionamiento otorgado por el Concedente.
+Esta modalidad de atención forma parte de la Red Nacional de Cuido, siendo el PANI una de las unidades ejecutoras de dicha red, quien supervisa y transfiere beneficios patrimoniales para la atención directa de personas menores de edad.
+b) Centros de Atención Integral de Niños, Niñas y Adolescentes (CAINNA):
+Modalidad de atención fundamentada en un modelo de atención integral para personas menores de edad de seis y hasta la mayoría de edad, que podrá desarrollar programas de apoyo o formación educativa, académica y/o técnica, salud, desarrollo humano, tratamientos ambulatorios, socioeducativos y proyecto de vida.

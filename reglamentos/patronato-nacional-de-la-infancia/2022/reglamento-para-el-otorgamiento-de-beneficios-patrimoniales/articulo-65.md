@@ -1,0 +1,2 @@
+Artículo 65. Limitaciones a la ubicación en familias de acogimiento. Según valoración de idoneidad, el PANI sólo podrá ubicar como máximo a un grupo de hermanos y hermanas, siendo que, de darse esta situación, dicha familia no podrá ser considerada para asumir nuevas ubicaciones, con excepción de hermanos adicionales.
+La ubicación máxima permitida cuando no se trate de grupos de hermanos será de tres personas menores de edad.

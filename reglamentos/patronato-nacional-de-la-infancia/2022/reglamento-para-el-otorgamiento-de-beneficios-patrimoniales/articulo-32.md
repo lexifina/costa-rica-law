@@ -1,0 +1,6 @@
+Artículo 32. Procedimiento para la aprobación de convenios o adendas. Las distintas instancias del PANI deberán tomar en cuenta las siguientes reglas para la tramitación de convenios o adendas:
+a) El Departamento de Protección deberá elaborar el listado que contendrá: la propuesta del costo total de la atención por persona menor de edad atendida que subsidiará la institución según las modalidades de atención, de acuerdo con la determinación previa que haya realizado el Departamento Financiero Contable de acuerdo a sus competencias, así como el número de cupos propuesto para cada programa y plazo de cada convenio.
+b) El Departamento de Administración de Presupuesto remitirá al Departamento de Protección la certificación de recursos que garantice la existencia de los recursos correspondientes para el período de ejecución.
+c) La Asesoría Jurídica confeccionará la propuesta de formato de convenio o adenda.
+d) La Junta Directiva aprobará la propuesta presentada por el Departamento de Protección y la comunicará a este, al Departamento Financiero Contable y al Departamento de Administración de Presupuesto.
+e) El Departamento de Protección elaborará el convenio o la adenda verificando previamente el cumplimiento de los requisitos.

@@ -1,0 +1,4 @@
+Sección cuarta. Particularidades para el proceso de formación de convenios o
+adendas para otorgar beneficios ordinarios o extraordinarios.
+Artículo 31. Plazo de los convenios o adendas. El PANI como ente concedente podrá suscribir convenios de transferencias de beneficio patrimoniales para la operación de Programas operados por sujetos privados, por un plazo de hasta dos años. La determinación del plazo deberá realizarse de conformidad con la recomendación técnica que emita el Departamento de Protección, de acuerdo con el cumplimiento de recomendaciones.
+En el caso de suscribir adendas para finalidades o transferencias extraordinarias, la adenda contendrá el detalle de la vigencia del beneficio, siendo que podrán establecerse condiciones resolutorias previas al indicado en la misma adenda, de requerirse por tratarse de finalidades que pueden constatarse previamente como satisfechas de acuerdo al caso concreto.

@@ -1,0 +1,1 @@
+Artículo 8. Vigencia del presupuesto del beneficio patrimonial. La vigencia del presupuesto del beneficio patrimonial inicia con la aprobación externa realizada por la Contraloría General de la República y concluye una vez cumplida la finalidad para la cual fue otorgado el beneficio, de conformidad con el plazo de ejecución acordado en el instrumento de convenio.

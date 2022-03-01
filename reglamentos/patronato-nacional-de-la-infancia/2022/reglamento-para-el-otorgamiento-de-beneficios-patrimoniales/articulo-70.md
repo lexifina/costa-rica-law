@@ -1,0 +1,5 @@
+Artículo 70. Competencias del Departamento Financiero Contable.
+c) Realizar la transferencia del beneficio patrimonial al banco estatal elegido por los responsables o encargados de las familias de Acogimiento Familiar (Banco Nacional de Costa Rica y Banco de Costa Rica), según planillas, referidas por las Direcciones Regionales en los plazos establecidos.
+d) Recibir, tramitar y procesar la planilla de pago final en formato Excel aportada por las Direcciones Regionales, referente a inclusiones y exclusiones de planilla de personas menores de edad que han sido ubicadas en la modalidad de acogimiento familiar por las Oficinas Locales.
+e) Una vez finalizado el proceso de pago de planilla para la modalidad de acogimiento a través de Oficina Local, el Departamento Financiero deberá enviar a la Dirección Regional reporte de la planilla procesada y al Departamento de Protección reporte a nivel nacional de los recursos girados.
+f) Participar en sesiones de análisis para la revisión de montos de subsidios para las modalidades de acogimiento familiar, para el apoyo del Departamento de Protección. g) Cualquier otra que indique el presente Reglamento.

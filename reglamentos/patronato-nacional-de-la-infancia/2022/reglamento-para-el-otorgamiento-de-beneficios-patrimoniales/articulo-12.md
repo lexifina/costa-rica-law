@@ -1,0 +1,9 @@
+Sección segunda. De la aprobación presupuestaria de los beneficios por parte del
+ente concedente.
+Artículo 12. Aprobación de los presupuestos que incorporan la transferencia de beneficios patrimoniales. El PANI incorporará las transferencias del beneficio patrimonial en la aprobación interna ordinaria o extraordinaria de sus presupuestos, sometiéndolo posteriormente a la aprobación externa de la Contraloría General de la República, según corresponda.
+Cuando se requiera de dicha aprobación externa, la Contraloría General de la República comunicará al PANI la aprobación respectiva tanto del presupuesto del concedente como el del sujeto privado. En caso de realizarse modificaciones presupuestarias donde se incluyan presupuestos para beneficios patrimoniales adicionales, el PANI quedará sujeto a la comunicación por el ente contralor del resultado del análisis efectuado. La improbación del presupuesto del beneficio patrimonial implicará la imposibilidad jurídica para el PANI de realizar la transferencia particular.
+El PANI deberá considerar como mínimo los siguientes aspectos, para presentar el presupuesto del beneficio patrimonial para aprobación de la Contraloría General de la República:
+a) Incorporar dentro de sus presupuestos las transferencias referidas a los beneficios patrimoniales asignados a sujetos privados.
+b) Que el presupuesto del beneficio patrimonial otorgado a sujetos privados se presente conforme a los requerimientos del ente contralor.
+c) Valorar si procede el otorgamiento de nuevos beneficios cuando el sujeto privado beneficiario no se encuentre al día con la presentación de la información física y financiera que compruebe la correcta utilización y destino de los beneficios otorgados con anterioridad por el mismo, asimismo, el comportamiento y la recomendación técnica pertinente para recomendar nueva asignación de beneficios.
+d) Cualquier otro que por los medios oficiales establezca el ente contralor.

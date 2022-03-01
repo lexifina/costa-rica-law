@@ -1,0 +1,2 @@
+Artículo 44. Inventario de equipos y mobiliarios. Los Sujetos Privados Beneficiarios estarán en la obligación de mantener adecuados controles sobre el inventario del equipo y mobiliario adquirido, mediante un libro auxiliar físico o digital, que deberá cumplir con lo indicado por el Departamento Financiero Contable.
+Todos los activos adquiridos deben estar debidamente registrados y plaqueados, siendo que cuando se requiera desechar un activo, se deberá cumplir con lo indicado en la Guía de Desecho de Bienes del Departamento Financiero Contable.

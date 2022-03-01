@@ -1,0 +1,5 @@
+Sección segunda. De la supervisión técnica y financiera del cumplimiento de las
+finalidades para el uso de los beneficios transferidos.
+Artículo 46. De la supervisión financiera. Los sujetos privados beneficiarios estarán sujetos a la fiscalización financiera-administrativa por parte del Departamento Financiero Contable, que establecerán un plan de supervisión anual en conjunto con el Departamento de Protección. Dicho departamento financiero elaborará informes ejecutivos de los resultados del proceso de fiscalización y asesoría, siendo que las recomendaciones serán de acatamiento obligatorio para el sujeto privado.
+Se podrá hacer uso de cualquier tecnología para el control sobre los recursos otorgados para el beneficio de la población menor de edad atendida, mediante el mecanismo de supervisión establecido por dicho departamento.
+El Departamento Financiero Contable además de contar con el plan de supervisión anual, deberá establecer los procedimientos de supervisión correspondientes que servirán para desarrollar la supervisión financiera.

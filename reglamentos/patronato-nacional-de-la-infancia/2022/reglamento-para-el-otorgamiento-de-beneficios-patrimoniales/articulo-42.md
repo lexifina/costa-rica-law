@@ -1,0 +1,3 @@
+Artículo 42. Comprobantes de respaldo. Toda erogación que realicen los Sujetos Privados Beneficiarios será respaldada por la factura comercial generada por un proveedor inscrito en la Dirección General de Tributación del Ministerio de Hacienda. Las facturas deberán cumplir con lo indicado en la normativa vigente emitida por este Ministerio.
+Toda factura electrónica o de régimen simplificado y comprobante de salario deberá contener los requisitos que al efecto establecerá el Departamento Financiero Contable.
+Tratándose de facturas emitidas en dólares de los Estados Unidos de América, el Concedente reconocerá su pago al tipo de cambio de venta oficial del Banco Central de Costa Rica al día de la fecha de emisión de la factura.
