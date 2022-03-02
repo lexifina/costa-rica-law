@@ -497,6 +497,8 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de un
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Radiología Torácica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+Se reconoce como sinónimos de esta especialidad el siguiente término: Imagenología Torácica
+(Así adicionado el párrafo anterior mediante sesión N° 2022-03.02 del 2° de marzo del 2022)
 16.23. Subespecialidades Médicas de Oncología Radioterápica
 (*)(Así Así modificada su denominación mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021. Anteriormente indicaba "Subespecialidades Médicas de Radioterapia")
 16.23.1. Radioterapia Pediátrica.
