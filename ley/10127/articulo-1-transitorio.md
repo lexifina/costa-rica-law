@@ -1,0 +1,1 @@
+TRANSITORIO I- Se le otorgará un plazo de ocho meses contado a partir de la publicación de la presente ley al Poder Ejecutivo, para que se actualicen los reglamentos en favor del cumplimiento de la presente ley.
