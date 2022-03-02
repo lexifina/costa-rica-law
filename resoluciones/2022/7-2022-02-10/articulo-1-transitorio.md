@@ -1,0 +1,3 @@
+Transitorio único: En el caso de los sujetos pasivos que ya hayan cumplido con su obligación formal de presentar la declaración jurada del impuesto de patentes de conformidad con el Reglamento a la Ley del Impuesto a las actividades lucrativas del Cantón Central de San José, para el período fiscal 2021 y según el Reglamento a la Ley de Regularización y Comercialización de Bebidas de Contenido Alcohólico también para el período fiscal 2021, por los medios permitidos por esta Administración Tributaria antes de la publicación de la presente resolución, se tiene por cumplida la obligación formal tributaria.
+Es todo. Publíquese.
+San José, 25 de febrero de dos mil veintidós
