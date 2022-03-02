@@ -1,0 +1,1 @@
+Artículo 28.-Reconocimiento a la excelencia académica: A partir del seguimiento de control elaborado por el Proceso de Vulnerabilidad y Riesgo Social, la Comision seleccionará 2 estudiante de primaria (hombre y mujer) y 2 estudiantes de secundaria (hombre y mujer), para otorgarles un reconocimiento por su excelencia académica, cuyo premio será en especié y de índole educativo.

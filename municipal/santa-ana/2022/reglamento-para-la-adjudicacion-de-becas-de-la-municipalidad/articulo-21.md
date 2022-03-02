@@ -1,0 +1,1 @@
+Artículo 21.-Red interinstitucional: El Proceso de Vulnerabilidad y Riesgo Social conformará una red interinstitucional que valide y certifique la cancelación de los beneficios a estudiantes desde cada centro educativo

@@ -1,0 +1,2 @@
+Artículo 20.-Seguimiento de control: El Proceso de Vulnerabilidad y Riesgo Social realizará un seguimiento de becas en el mes de setiembre, mediante el cual se revisará que el becado continúa escolarizado y el rendimiento académico, para calificar la continuidad de la beca.
+El encargado tiene la obligación de presentar los documentos que se le soliciten, de lo contrario la beca puede ser suspendida mientras perdure la omisión o perderla en los casos de falta total de respuesta.

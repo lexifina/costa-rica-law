@@ -1,0 +1,1 @@
+Artículo 27.-Acuerdo municipal: Con base en el dictamen de la Comisión, el Concejo Municipal adjudicará las becas mediante acuerdo. Ese acuerdo estará sujeto a los recursos establecidos en el Código Municipal.

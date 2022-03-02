@@ -1,0 +1,1 @@
+Artículo 12.-Presentación: El formulario lleno junto con los requisitos deben ser enviados a tramites.becas@santaana.go.cr dentro del periodo indicado en el correo electrónico donde se envió el formulario. Aquellas personas que no puedan enviar el formulario por correo, les será asignada una cita presencial a la que debe presentarse el encargado con los requisitos.

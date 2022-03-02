@@ -1,0 +1,1 @@
+Artículo 31.-Materias aplazadas: Los estudiantes becados que soliciten la renovación y hayan aplazado materias, serán colocados en lista de espera mientras realizan las pruebas. Corresponde al estudiante demostrar ante el Proceso de Vulnerabilidad y Riesgo Social que aprobó las materias, para que le sea renovada la beca.

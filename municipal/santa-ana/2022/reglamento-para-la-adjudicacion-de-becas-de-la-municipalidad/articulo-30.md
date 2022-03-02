@@ -1,0 +1,1 @@
+Artículo 30.-Excepción: El Concejo Municipal tiene la facultad de admitir solicitudes de renovación extemporáneas, cuando la causa de la presentación tardía sea por caso fortuito o fuerza mayor debidamente comprobadas.
