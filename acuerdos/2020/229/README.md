@@ -14,3 +14,4 @@ Medidas adicionales de protección, para las personas con discapacidad de carác
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-08 | la propia norma |
+| 2 | 2022-03-03 | Acuerdo 4 (2022-03-03) |
