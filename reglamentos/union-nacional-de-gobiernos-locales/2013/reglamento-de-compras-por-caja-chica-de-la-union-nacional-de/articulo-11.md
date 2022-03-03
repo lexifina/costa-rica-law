@@ -1,8 +1,2 @@
-Artículo 11.—Las solicitudes de dinero para efectuar compras se tramitarán con el formulario denominado “Confección de vale provisional”, el cual será numerado en forma consecutiva al ser tramitado por el encargado del fondo y contendrá la siguiente información:
-a. Nombre completo, con los dos apellidos del funcionario solicitante, quien será a su vez el responsable de la compra y deberá liquidar en forma personal el adelanto,
-b. Objeto del gasto, (Descripción)
-c. Detalle del destino (observaciones) que se le dará al material o servicio comprado, cuando a criterio del encargado de caja chica esto sea necesario.
-d. Firma del Jefe Inmediato autorizando el egreso, o de la persona a quien delegue en su ausencia.
-e. Código presupuestario y visto bueno del Departamento de Administrativo Financiero.
-g. Firma de la persona que recibe el adelanto.
-h. Fecha de entrega del dinero, utilizando firma del Departamento encargado de la caja chica.
+Artículo 11.-Las solicitudes de dinero para efectuar compras se tramitarán con el formulario denominado "Confección de vale provisional" incluido en el SIFUNGL o cualquier otro mecanismo que la organización por control interno implemente para tal efecto.
+(Así reformado mediante sesión N° 06-2022 del 3 de marzo del 2022)

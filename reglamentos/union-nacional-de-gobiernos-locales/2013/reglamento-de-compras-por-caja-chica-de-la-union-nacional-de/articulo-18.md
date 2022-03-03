@@ -1,11 +1,8 @@
-Artículo 18.—Las facturas o comprobantes que se presenten al encargado de caja chica, deben reunir como mínimo los siguientes requisitos:
-a. Factura original en tinta, bolígrafo o impreso, debidamente timbrada o autorizada por la Administración Tributaria.
-b. Emitida a nombre de la Unión Nacional de Gobiernos Locales.
-c. Indicar la fecha de compra.
-d. Debe presentar la indicación de cancelada, por parte de la firma proveedora.
-e. Valor en números y letras (opcional).
-f. No debe tener borrones ni tachaduras,
-g. Indicar el detalle de la compra realizada.
-h. Nombre y firma de recibido conforme en el comprobante (funcionario que retiró el efectivo), además obligatoriamente la firma del jefe de la Sección o Dirección.
-Cuando por la índole de la compra, fuere imposible obtener los justificantes estipulados en el inciso a), se aceptarán como comprobantes de pago los tiquetes de caja autorizados por la Administración Tributaria.
-Si la factura no posee el logotipo debe indicarse el nombre y cédula de la persona física que suministró el bien o servicio.
+Artículo 18.-Los comprobantes (facturas, recibos o tiquetes) de las adquisiciones que se hagan con fondos de caja chica y que son el comprobante del egreso, deberán cumplir con los siguientes requisitos:
+a. Ser documentos originales, estar timbrados, membretados, o dispersados del mismo por la Dirección General de la Tributación del Ministerio de Hacienda y estar emitidos a favor de la UNGL.
+b. Especificar claramente la fecha y detalle de la compra o servicio recibido, la cual deberá ser igual o mayor a la fecha de emisión del vale.
+c. Indicar claramente y con detalle la compra o servicio recibido, la cual debe coincidir con lo estipulado en el vale y traer impreso, el sello de cancelado de la casa proveedora o tiquete de caja y por ningún motivo, deben contener tachaduras ni borrones.
+d. Si la factura no tiene logotipo debe indicarse el nombre, el número de cédula de la persona física o jurídica que suministra el bien o servicio y sus especificaciones.
+e. Si son facturas, recibos o tiquetes electrónicos, los mismos deberán ser remitidos por los establecimientos comerciales a un correo electrónico del funcionario que solicitó el vale, quien deberá imprimirlo y presentarlo en el momento de realizar la respectiva liquidación ante la Tesorería Institucional.
+f. Se deberá contar en el reverso de la factura las firmas tanto de la persona que realizó la solicitud mediante el SIFUNGL o cualquier otro mecanismo que la organización por control interno implemente para tal efecto, así como de su jefatura inmediata.
+(Así reformado mediante sesión N° 06-2022 del 3 de marzo del 2022)

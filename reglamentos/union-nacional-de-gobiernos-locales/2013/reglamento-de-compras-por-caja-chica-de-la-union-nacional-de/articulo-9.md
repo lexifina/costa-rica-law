@@ -1,1 +1,3 @@
-Artículo 9°—El encargado de la caja chica preparará el reembolso correspondiente en los formularios diseñados al efecto, indicando el número de factura, fecha, monto, dirección, departamento o sección que efectuó el gasto, número de la solicitud de caja chica, el detalle del servicio, el bien adquirido y la partida presupuestaria afectada.
+Artículo 9°-El encargado Artículo 9º-El encargado del fondo de la caja chica podrá preparar reintegros del fondo, en donde el solicitante deberá efectuar el trámite ordinario mediante la plataforma SIFUNGL en el apartado "Comprobante de Caja Chica". Se debe indicar objeto del gasto (Descripción), detalle de productos y códigos presupuestarios, además deberá ser aprobado por la jefatura inmediata y el departamento administrativo financiero.
+La presentación del comprobante de pago debe cumplir con lo establecido en el artículo 18 del presente reglamento.
+(Así reformado mediante sesión N° 06-2022 del 3 de marzo del 2022)

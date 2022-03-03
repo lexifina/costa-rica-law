@@ -1,2 +1,2 @@
-Artículo 16.—Cuando un solicitante por motivo de enfermedad o gira emergente no pudiese cancelar el adelanto dentro del término estipulado, deberá notificar a su jefe inmediato, para que éste en forma escrita, así lo indique al encargado de caja chica.
-En tales casos, el primer día hábil de su ingreso a la UNGL, procederá a efectuar la liquidación correspondiente.
+Artículo 16.-Cuando un solicitante por motivo de enfermedad o gira supere el plazo estipulado en el artículo anterior no pudiese cancelar el adelanto dentro del término estipulado, deberá notificar a su jefe inmediato, para que éste lo aprueba y lo notifique en forma escrita al encargado de caja chica. En tales casos, el primer día hábil de su ingreso a la UNGL, procederá a efectuar la liquidación correspondiente.
+(Así reformado mediante sesión N° 06-2022 del 3 de marzo del 2022)
