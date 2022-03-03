@@ -1,1 +1,0 @@
-ARTÍCULO 3°.- Suspensión temporal del Decreto Ejecutivo número 37370-MOPT. Durante el período de vigencia de la medida de restricción vehicular dispuesta en el Decreto Ejecutivo número 42295-MOPT-S del 11 de abril de 2020 y debido a la presente reforma, se suspende en su totalidad la aplicación del Decreto Ejecutivo número 37370- MOPT del 26 de octubre de 2012.
