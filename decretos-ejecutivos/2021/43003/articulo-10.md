@@ -1,3 +1,0 @@
-ARTÍCULO 10°.-Temporalidad de la medida.
-La medida de restricción vehicular especial consignada en el presente Decreto Ejecutivo se aplicará a partir de las 05:00 horas del día 19 de mayo y hasta las 20:59 horas del 13 de junio de 2021.
-(Así reformado por el artículo 4° del decreto ejecutivo N° 43035 del 4 de junio del 2021)
