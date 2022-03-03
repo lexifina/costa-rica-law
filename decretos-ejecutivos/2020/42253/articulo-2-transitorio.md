@@ -1,2 +1,0 @@
-TRANSITORIO II.- Durante los días sábado 28 y domingo 29 de marzo de 2020, inclusive, la regulación horaria de la restricción vehicular nocturna establecida en el artículo 30 del presente Decreto Ejecutivo será en el período comprendido entre las 20:00 horas y las 05:00 horas; en esa franja horaria no se permitirá e/tránsito vehicular en todo el territorio nacional, salvo las excepciones contempladas en el artículo 40 del presente Decreto Ejecutivo.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 42270 del 27 de marzo del 2020)

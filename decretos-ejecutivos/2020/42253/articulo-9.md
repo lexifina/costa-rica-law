@@ -1,1 +1,0 @@
-ARTÍCULO 9°.- Temporalidad de la medida. La medida de restricción vehicular consignada en el presente Decreto Ejecutivo, se mantendrá durante el estado de emergencia nacional debido a la situación de emergencia sanitaria provocada por el COVID-19 y será revisada y actualizada de conformidad con el comportamiento epidemiológico de dicha enfermedad.
