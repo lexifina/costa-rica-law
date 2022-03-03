@@ -33,3 +33,4 @@ Reglamento a la Ley de Contratación Administrativa
 | 18 | 2018-03-05 | Decreto Ejecutivo 41098 (2018-03-05) |
 | 19 | 2018-07-10 | Decreto Ejecutivo 41243 (2018-07-10) |
 | 20 | 2020-02-06 | Decreto Ejecutivo 42202 (2020-02-06) |
+| 21 | 2022-03-03 | Decreto Ejecutivo 43433 (2022-03-03) |
