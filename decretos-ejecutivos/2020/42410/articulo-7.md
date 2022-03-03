@@ -1,2 +1,0 @@
-ARTICULO 7°.- Cumplimiento de lineamientos sanitarios en los casos del artículo 4°.
-Las personas físicas y jurídicas propietarias de vehículos automotores y las personas conductoras de los mismos que circulen durante el día autorizado correspondiente o con ocasión del artículo 4° del presente Decreto Ejecutivo, deberán cumplir con los lineamientos sanitarios girados por el Ministerio de Salud sobre el COVID-19.
