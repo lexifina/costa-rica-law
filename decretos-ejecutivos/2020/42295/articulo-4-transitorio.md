@@ -1,2 +1,0 @@
-Transitorio IV.- Durante el período comprendido del 31 de agosto al 30 de septiembre de 2020, toda constancia laboral o todo documento de comprobación de la excepción a la presente medida de restricción vehicular mantendrá su validez según el contenido del artículo 5 de este Decreto Ejecutivo que estuvo vigente con anterioridad al 31 de agosto de 2020.
-(Así adicionado por el artículo 6° del decreto ejecutivo N° 42576 del 27 de agosto del 2020)

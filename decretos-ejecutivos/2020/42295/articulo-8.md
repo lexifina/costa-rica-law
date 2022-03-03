@@ -1,2 +1,0 @@
-ARTICULO 8°.- Cumplimiento de lineamientos sanitarios en los casos del artículo 5°. Las personas físicas y jurídicas propietarias de vehículos automotores y las personas conductoras de los mismos que circulen en la franja horaria establecida en el artículo 3° con ocasión de alguna de las excepciones dispuestas en el artículo 5° del presente Decreto Ejecutivo, deberán cumplir con los lineamientos sanitarios girados por el Ministerio de Salud sobre el COVID- 19.
-(Así reformado por el artículo 7° del decreto ejecutivo N° 42666 del 16 de octubre del 2020)

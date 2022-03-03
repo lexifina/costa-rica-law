@@ -1,3 +1,0 @@
-TRANSITORIO II.- Durante los días sábado 4 de julio al domingo 19 de julio de 2020, inclusive, la regulación horaria de la restricción vehicular diurna establecida en el artículo 3 del presente Decreto Ejecutivo será en el período comprendido entre las 05:00 horas y las 16:59 horas, en los términos establecidos por dicho artículo. Para los efectos correspondientes, los demás artículos del presente Decreto Ejecutivo deberán aplicarse bajo la franja horaria temporal comprendida entre las 05:00 horas y las 18:59 horas durante los días lunes a viernes.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 42436 del 2° de julio del 2020)
-(Así reformado por el artículo 3° del decreto ejecutivo N° 42455 del 10 de julio del 2020)
