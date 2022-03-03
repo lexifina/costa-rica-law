@@ -1,3 +1,0 @@
-ARTÍCULO 3°.- Reforma al transitorio VII del Decreto Ejecutivo número 42295-MOPTS del 11 de abril de 2020.
-Refórmese el primer párrafo del Transitorio VII al Decreto Ejecutivo número 42295-MOPT-S del 11 de abril de 2020, a efectos de que en adelante se consigne lo siguiente:
-"TRANSITORIO VII.- Durante los días sábado y domingo en el período comprendido entre las 05:00 horas y las 20:59 horas, no se permitirá el tránsito vehicular en todo el territorio nacional según el número final (último dígito) de la placa de circulación vehicular o del permiso especial de circulación AGV, conforme se detalla a continuación (.)"
