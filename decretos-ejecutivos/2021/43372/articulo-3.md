@@ -1,2 +1,0 @@
-ARTÍCULO 3°.- Adiciónese el transitorio XII al Decreto Ejecutivo número 42253- MOPT-S del 24 de marzo de 2020. Adiciónese el transitorio XII al Decreto Ejecutivo número 42253-MOPT-S del 24 de marzo de 2020, para que se consigne lo siguiente:
-"Transitorio XII.- Durante los días 25 de diciembre de 2021 y 1 de enero de 2022, no se aplicará la restricción vehicular nocturna establecida en el presente Decreto Ejecutivo."
