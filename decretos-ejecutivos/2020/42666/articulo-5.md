@@ -1,6 +1,0 @@
-ARTÍCULO 5°.- Reforma al artículo 5° del Decreto Ejecutivo número 42295-MOPT-S del 11 de abril de 2020. Refórmese el artículo 5° del Decreto Ejecutivo número 42295-MOPT-S del 11 de abril de 2020, para que se ajuste el primer párrafo y el inciso c) y se adicione el inciso r), de modo que en adelante se consigne lo siguiente:
-“ARTÍCULO 5°.- Excepciones a la medida de restricción vehicular diurna. Se exceptúa de la restricción vehicular establecida en el artículo 3° de este Decreto Ejecutivo, a los siguientes casos:
-(…)
-c) La persona del sector público o privado, con jornada laboral comprendida o que coincida con el día respectivo de restricción y/o con la franja horaria establecida en el artículo 3°, sea por ingreso, salida o necesidad de desplazamiento durante el horario laboral, debidamente acreditada. Para el caso del ingreso o la salida de la jornada laboral, la movilización podrá hacerse en vehículo particular, motocicleta particular o en alguna de las modalidades consignadas en el inciso b) del presente artículo, cualquiera de ellos debidamente demostrado
-(…)
-r) Los vehículos de las personas que deban trasladarse estrictamente para asistir a la cita de Revisión Técnica Vehicular, debidamente acreditado con el comprobante de la cita programada.”
