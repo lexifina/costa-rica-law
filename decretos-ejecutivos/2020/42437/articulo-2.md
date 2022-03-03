@@ -1,3 +1,0 @@
-ARTÍCULO 2°.-Reforma temporal de la regulación horaria de la restricción vehicular nocturna.
-Adiciónese el Transitorio V al Decreto Ejecutivo número 42253-MOPT-S del 24 de marzo de 2020, a efectos de que se consigne lo siguiente:
-“TRANSITORIO V.- Durante los días viernes 3 de julio al martes 14 de julio de 2020, inclusive, la regulación horaria de la restricción vehicular nocturna establecida en el artículo 3° del presente Decreto Ejecutivo será en el período comprendido entre las 19:00 horas y las 04:59 horas, en los términos establecidos por dicho artículo. Para los efectos correspondientes, los demás artículos del presente Decreto Ejecutivo deberán aplicarse bajo la franja horaria temporal comprendida entre las 19:00 horas y las 04:59 horas.”.
