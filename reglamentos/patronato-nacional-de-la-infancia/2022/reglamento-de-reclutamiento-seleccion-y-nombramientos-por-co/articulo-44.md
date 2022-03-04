@@ -1,0 +1,2 @@
+Artículo 44. Imposibilidad de ser oferente.
+La persona que haya perdido el periodo de prueba, no podrá constituirse como oferente para el PANI dentro de los 3 años siguientes a la pérdida de dicho periodo de prueba. Así mismo, será excluido de funcionaria, esta evaluación se podrá hacer en cualquier momento antes de finalizar el periodo de prueba y deberá hacerse de manera objetiva, con base en competencias y objetivos cumplidos, medibles y preestablecidos.

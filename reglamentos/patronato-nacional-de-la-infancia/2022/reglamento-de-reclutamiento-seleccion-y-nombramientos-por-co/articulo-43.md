@@ -1,0 +1,2 @@
+Artículo 43. Recurso contra la resolución de cese de nombramiento por pérdida del periodo de prueba.
+Contra la resolución de cese de nombramiento por la no aprobación del periodo de prueba cabrá únicamente recurso de reposición o reconsideración, el cual deberá interponerse en el plazo de 3 días hábiles posteriores a la notificación, ante la Presidencia Ejecutiva. Dicho recurso deberá ser resuelto en los ocho días siguientes a la presentación y notificado a la persona interesada en los tres días siguientes a su resolución.

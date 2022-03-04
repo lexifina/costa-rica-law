@@ -1,0 +1,16 @@
+Artículo 26. Causales de la pérdida de la condición de elegible y exclusión de la lista de elegibles.
+La condición de elegible se perderá por las siguientes razones:
+1) Haber sido despedido sin responsabilidad patronal, según acto final en firme, por infracción de las disposiciones del Reglamento Autónomo del PANI o normas conexas, por cuanto, no podrá concursar para volver a obtener la condición de elegibilidad. Lo anterior deberá consignarse en el acto final que resuelva el despido.
+2) Por pérdida de periodo de prueba en un nombramiento en la misma clase de puesto en el PANI. Por cuanto, no podrá concursar para obtener la condición de elegible en un lapso de tres años. Se considerará como inelegible indefinidamente el oferente que por segunda vez haya perdido el periodo de prueba. Lo anterior deberá consignarse en la resolución que determine la pérdida del periodo de prueba.
+3) Cuando la persona elegida, mediante la resolución de un proceso de selección, que no se presente al trabajo, sin justa causa, durante los dos primeros días hábiles contados a partir de la fecha en que se acordó iniciar la prestación de sus servicios, sin perjuicio de las responsabilidades laborales correspondientes.
+4) Por renuncia por jubilación.
+5) Por solicitud expresa de la persona oferente.
+6) Por haber transcurrido cinco años desde que se declaró la condición de elegible. El oferente en ese caso deberá volver a concursar para determinar nuevamente su condición de elegible.
+7) Por imposibilidad comprobada de localizar a la persona elegida en el domicilio o demás medios de notificación indicados en su Oferta de Servicio.
+8) Cuando la persona oferente, suministre datos falsos en cualesquiera de los documentos aportados o solicitados, lo mismo que la realización o intento de fraude en las pruebas para obtener la elegibilidad.
+9) Cuando la persona en condición de elegible deje de reunir cualquiera de los requisitos exigidos para el cargo.
+10) Cuando la persona oferente haya sido inhabilitada para el ejercicio de la función pública, mediante sentencia judicial; u otra.
+11) Incurrir en las anteriores causales darán como resultado la exclusión de la persona oferente del registro de elegibles.
+Cuando la condición de elegible se pierda por las causales 3, 6, 8, 9 y 10 anteriormente citadas, el Departamento de Recursos Humanos, previo a realizar la exclusión deberá emitir acto motivado otorgándole una audiencia de 3 días hábiles a la persona oferente. Cuando la condición de elegible se pierda por las causales 1 y 2, el procedimiento anteriormente señalado no será necesario, dado que la exclusión se estará contemplando dentro de la resolución del cese, la cual tiene la posibilidad de ser recurrida.
+Por último, cuando la pérdida de la condición de elegible sea por la causal número 7, al existir una imposibilidad de localizarlo en los medios de notificación, el Departamento de Recursos Humanos levantará un acta donde conste lo actuado y procederá a realizar la exclusión de forma inmediata. En tal caso se deberá hacer la respectiva comunicación por edicto.
+La pérdida de la condición de elegible se comunicará a la persona interesada mediante notificación del Departamento de Recursos Humanos efectuada al correo electrónico señalado para los efectos por parte del mismo.

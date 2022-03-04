@@ -1,0 +1,1 @@
+TRANSITORIO I. Todas las personas oferentes participantes de los concursos realizados previo a la aprobación del presente reglamento y que adquirieron la condición de elegibles con los reglamentos anteriores, mantendrán su condición de elegibles.

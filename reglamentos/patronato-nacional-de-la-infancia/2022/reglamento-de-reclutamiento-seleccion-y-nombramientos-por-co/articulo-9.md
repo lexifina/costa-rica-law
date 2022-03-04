@@ -1,0 +1,2 @@
+Artículo 9. Nombramiento de parientes.
+No podrán nombrarse, en propiedad o interinamente, a personas que sean parientes por consanguinidad o afinidad hasta en tercer grado, de los funcionarios y/o funcionarias que pertenezcan a la dependencia que requiere llenar la plaza, o cuando exista un grado de subordinación, con personas funcionarias de otra instancia, que pueda conllevar a que se presente un conflicto de intereses. Para estos efectos, la persona oferente estará obligada a completar la Declaración de Parentesco, suministrada por el Departamento de Recursos Humanos.

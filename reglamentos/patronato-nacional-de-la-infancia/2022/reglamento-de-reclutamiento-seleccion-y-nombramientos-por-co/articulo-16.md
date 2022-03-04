@@ -1,0 +1,7 @@
+Artículo 16. De los tipos de concurso.
+La Presidencia Ejecutiva, solicitará al Departamento de Recursos Humanos, los criterios técnicos para determinar el tipo de concurso para integrar el registro de personas elegibles para optar por un nombramiento en propiedad, siendo posible los siguientes:
+a. Concurso interno: Proceso que se realiza mediante la participación de personas funcionarias con nombramiento vigente a la fecha de la apertura del concurso, sea interino o en propiedad.
+b. Concurso externo: Proceso que se realiza mediante la participación de personas oferentes externos a la institución.
+c. Concurso mixto: Proceso que se realiza mediante la participación tanto de personas oferentes internos, como personas oferentes externos a la institución.
+Cuando corresponda realizar un nombramiento en propiedad, se realizará un concurso mixto de acuerdo con el procedimiento que se establece en este Reglamento en el artículo 30.
+Cuando corresponda realizar un nombramiento interino en plazas vacantes temporales de acuerdo con lo que establece el presente Reglamento en los artículos 32 y 35, con el fin de favorecer la estabilidad, la motivación y el bienestar de las personas trabajadoras del PANI, así como fortalecer la retención del talento humano se procederá a realizar en primera instancia un concurso interno, cuando la cantidad de oferentes internos que cumplan con los requisitos del cargo, no supere los 3 para conformar la terna, se realizará la convocatoria para incrementar la lista de oferentes, convirtiéndose en un concurso mixto.

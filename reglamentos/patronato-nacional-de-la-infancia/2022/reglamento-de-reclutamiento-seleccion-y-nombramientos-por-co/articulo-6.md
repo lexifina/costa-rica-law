@@ -1,0 +1,3 @@
+Artículo 6. Del carácter confidencial de los documentos de evaluación.
+Los instrumentos utilizados para evaluar a las personas oferentes, tales como pruebas psicológicas, pruebas de conocimiento o pruebas por competencia, entre otros tendrán carácter de datos personales o sensibles de cualquier índole y por tanto serán revestidos de confidenciales en relación a terceras personas, de acuerdo con lo establecido en la Ley de Protección de la Persona frente al Tratamiento de sus Datos Personales No. 8968.
+Dicha documentación será propiedad del PANI y no podrán ser entregadas ni original ni copia a los participantes, ni a terceras personas salvo orden judicial. De requerirlo la persona oferente, se podrá dar una devolución general de los resultados obtenidos.
