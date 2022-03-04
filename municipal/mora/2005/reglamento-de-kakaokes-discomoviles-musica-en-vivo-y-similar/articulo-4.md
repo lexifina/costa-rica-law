@@ -1,0 +1,1 @@
+Artículo 4º-Para presentar la solicitud de permiso se requerirá de pre la autorización del Ministerio de Salud. Esta institución fijará el máximo de decibeles autorizados haciéndola constar por escrito en la solicitud del interesado con la finalidad de que pueda ser constatada en cualquier momento por los inspectores municipales.

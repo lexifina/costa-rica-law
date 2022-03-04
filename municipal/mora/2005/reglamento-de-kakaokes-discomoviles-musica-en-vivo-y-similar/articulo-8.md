@@ -1,0 +1,2 @@
+Artículo 8º-La actividad de discomóviles deberá respetar en todo momento lo dispuesto en el artículo anterior, además de disponer de salidas de en debidamente habilitadas, así como extractores de humo, extinguidores y todos aquellos elementos necesarios para salvaguardar la seguridad de las personas.
+Deberán cuando se realicen este tipo de eventos contarse con las respectivas pólizas de riesgos otorgadas por el Instituto Nacional de Seguros.

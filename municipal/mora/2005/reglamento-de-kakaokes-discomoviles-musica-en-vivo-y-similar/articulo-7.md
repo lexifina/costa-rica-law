@@ -1,0 +1,1 @@
+Artículo 7º-La actividad de karaoke deberá respetar en todo momento la normativa que establece la Ley General de Salud, referente a los niveles autorizados de sonido y confinamiento de ruido, por lo que el local deberá tener condiciones mínimas en su estructura. En las puertas deberán instalarse "trampas para atrapar el ruido" y en las ventanas, cuando se pretenda abrirlas.
