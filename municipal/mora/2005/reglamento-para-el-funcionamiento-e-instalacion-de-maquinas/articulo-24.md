@@ -1,0 +1,1 @@
+Artículo 24.-De los permisos otorgados antes de la entrada en vigencia del presente reglamento. Los permisos otorgados antes de la entrada en vigencia del presente reglamento deberán ajustarse a lo dispuesto en él, de previo a proseguir con la actividad.

@@ -1,0 +1,1 @@
+Artículo 20.-Del cambio de máquinas. El solicitante deberá informar a la Municipalidad de cualquier cambio de máquinas que pretenda realizar. Toda máquina nueva deberá cumplir con todos los requisitos exigidos por este reglamento y la legislación vigente, entendiéndose que se trata de un procedimiento, una licencia y una inspección nueva por cada máquina.

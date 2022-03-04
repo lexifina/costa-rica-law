@@ -1,0 +1,3 @@
+Artículo 26.-De la vigencia. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, una vez aprobado por el Concejo Municipal, previa consulta pública no vinculante, conforme lo estipulado por el artículo 43 del Código Municipal.
+Ciudad Colón, 24 de julio del 2007.
+"Reglamento para el funcionamiento e instalación de máquinas electrónicas o mecánicas, pin ball, saca peluches, tragamonedas y similares, en locales permanentes u ocasionales en el cantón de Mora", aprobado en sesión Nº 75 del 1 de octubre de 2007, publicado en La Gaceta Nº 207 del 29 de octubre de 2007.
