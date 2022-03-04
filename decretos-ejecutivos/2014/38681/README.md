@@ -22,3 +22,4 @@ Establece medidas de ordenamiento para el aprovechamiento de atún y especies af
 | 7 | 2020-12-10 | Decreto Ejecutivo 42771 (2020-12-10) |
 | 8 | 2021-06-29 | Decreto Ejecutivo 43099 (2021-06-29) |
 | 9 | 2022-01-14 | Decreto Ejecutivo 43391 (2022-01-14) |
+| 10 | 2022-03-04 | Decreto Ejecutivo 43438 (2022-03-04) |
