@@ -1,0 +1,17 @@
+Nº 43353-RE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+En uso de las facultades conferidas en el artículo 141 de la Constitución Política; los artículos 1, 2 y 4 del Código de Trabajo, Ley Nº 2 del 27 de agosto de 1943; los artículos 5 y 10 de la Ley Orgánica del Ministerio de Relaciones Exteriores y Culto, Ley Nº 3008 del 18 de julio de 1962; los artículos 11, 13, 25 inciso 2), 28 inciso 2, 103 inciso 1) y 121 de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; el artículo 29, inciso c) de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social, Ley Nº 1860 del 21 de abril de 1955; el artículo 5 así como el Transitorio Único de la Ley para Regular el Teletrabajo, Ley Nº 9738 del 18 de setiembre de 2019 y; el Reglamento para Regular el Teletrabajo, Decreto Ejecutivo número 42083-MP-MTSS-MIDEPLAN-MICITT, del 20 de diciembre de 2019.
+Considerando:
+I.-Que mediante Directriz N°304-2017 de fecha 22 de agosto de 2017, el Ministerio de Relaciones Exteriores y Culto (en adelante Ministerio), reguló en forma temporal el teletrabajo en la institución, y desde entonces ha venido aplicando la modalidad de teletrabajo, permitiendo a un sector de las personas trabajadoras, realizar sus labores bajo la modalidad de teletrabajo, lo cual ha derivado en beneficios a la Administración y a la persona trabajadora.
+II.-Que el legislador promulgó la Ley para Regular el Teletrabajo, Ley Nº 9738 del 18 de setiembre de 2019, así como el Reglamento para Regular el Teletrabajo, Decreto Ejecutivo número 42083-MP-MTSS-MIDEPLAN-MICITT, del 20 de diciembre de 2019, con el objetivo de promover, regular e implementar el teletrabajo como una modalidad de trabajo que coadyuve a la generación de empleo y modernización de las organizaciones públicas y privadas, a través de la utilización de tecnologías de la información y comunicación.
+III.-Que la normativa interna del Ministerio de Relaciones Exteriores y Culto requiere su actualización, para ajustarla no solo a las nuevas disposiciones previstas en la Ley N° 9738 y su Reglamento, sino también a la necesidad de hacer frente a los retos de la cuarta revolución industrial, como señala el artículo 2°, inciso e) del Reglamento Orgánico del Poder Ejecutivo, (Decreto Ejecutivo número 41187-MP-MIDEPLAN del 20 de junio de 2018).
+IV.-Que mediante oficio N° DAJ-AER-OFP-470-2021, suscrito el día 26 de mayo del 2021, el Departamento Asesoría Externa y Reglamentación del Ministerio de Trabajo y Seguridad Social, emitió criterio sobre el Teletrabajo en el Extranjero, el cual establece lineamientos para su implementación en los centros de trabajo.
+V.-Que la práctica del teletrabajo en el Ministerio de Relaciones Exteriores y Culto, requiere establecer una serie de principios, reglas, procedimientos y roles que permitan su aplicación de forma clara y uniforme para todas las instancias, tanto en el Régimen del Servicio Civil como en el Régimen del Servicio Exterior de la República, así como a las personas servidoras nombradas en puestos de confianza. Por tanto,
+Decretan:
+Reglamento para la aplicación
+de Teletrabajo en el Ministerio
+de Relaciones Exteriores y Culto
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º-Objeto. El objeto del presente Reglamento es establecer los lineamientos técnicos y administrativos que deben regir el desarrollo de la modalidad de teletrabajo en el Ministerio.

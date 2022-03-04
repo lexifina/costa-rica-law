@@ -1,0 +1,1 @@
+Artículo 21.-Asignación de equipo. En el caso de las personas funcionarias que retornen parcial o definitivamente a las labores presenciales, la Administración se reserva un plazo de al menos diez (10) días hábiles para la asignación del equipo, contabilizados desde el momento en que comunique la firmeza del cambio de modalidad de trabajo.

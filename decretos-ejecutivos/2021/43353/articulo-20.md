@@ -1,0 +1,5 @@
+Artículo 20.-Soporte técnico. El Ministerio le brindará el soporte técnico a los sistemas informáticos y equipos aportados por ésta, para que la persona teletrabajadora desarrolle sus funciones, con excepción de lo establecido en el párrafo segundo del artículo 18. El Ministerio se encuentra exento de brindar soporte a los problemas provocados por el mal uso de los recursos, tales como:
+a) Saturación de disco duro o detrimento del rendimiento del equipo de cómputo por descargas o copias de música, videos, paquetes de software, fotos, instalación indebida de aplicaciones no necesarias para el teletrabajo o cualquier elemento ajeno a las actividades teletrabajables que provoque dicho problema.
+b) No actualización del sistema operativo y el antivirus de la computadora con las últimas versiones aportadas por el proveedor.
+c) En caso de que el equipo aportado por la institución sea manipulado de manera inadecuada.
+Para los casos anteriores, la persona teletrabajadora es responsable dar mantenimiento al equipo, cubriendo cualquier costo que ello implique, y velar por su buen funcionamiento.

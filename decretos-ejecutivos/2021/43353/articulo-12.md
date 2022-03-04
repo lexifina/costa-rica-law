@@ -1,0 +1,1 @@
+Artículo 12.-Reincorporación al trabajo presencial. Revocado el teletrabajo, en los términos del artículo 11, el superior inmediato autorizará la incorporación y comunicará a la Comisión y a la Oficina de Gestión Institucional de Recursos Humanos para lo que corresponda, adjuntando copia de la nota de solicitud de reincorporación del funcionario.

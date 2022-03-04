@@ -1,0 +1,1 @@
+Artículo 10.-Centro de trabajo. Las personas teletrabajadoras mantendrán su centro de trabajo en el cual han sido contratados, independientemente del lugar donde realice las actividades, y esto no implica que la institución deba reconocer algún tipo de incentivo económico tal como pago de zonaje, viáticos y pasajes.

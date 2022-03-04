@@ -1,0 +1,1 @@
+Artículo 26.-Confidencialidad. La persona teletrabajadora es responsable directa de la confidencialidad, respaldo y seguridad de la información que utilice y pueda acceder, y evitará por todos los medios su uso inapropiado, según se establece en la normativa institucional. Para lo cual deberá utilizar los medios establecidos por el Ministerio.

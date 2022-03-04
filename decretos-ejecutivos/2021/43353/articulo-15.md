@@ -1,0 +1,1 @@
+Artículo 15.-Programa de teletrabajo. El Ministerio mantendrá la modalidad de teletrabajo activa, y se reserva la facultad de incorporar a sus trabajadores en esta forma de trabajo, dependiendo de las condiciones, actividades, la conectividad disponible y otros aspectos que estime pertinentes.

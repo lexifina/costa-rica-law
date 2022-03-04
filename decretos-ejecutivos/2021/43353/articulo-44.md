@@ -1,0 +1,3 @@
+Artículo 44.-Dirección General de Servicio Exterior. La Dirección General de Servicio Exterior tendrá entre sus funciones:
+a) Realizar el proceso de inducción al programa y seguimiento de la persona teletrabajadora cuyo centro de trabajo se encuentre en las misiones diplomáticas u oficinas consulares y brindar los informes que la Comisión solicite en dicha materia.
+b) Resolver las situaciones de orden laboral que, en virtud de la relación de teletrabajo, se presenten entre la persona teletrabajadora y el superior inmediato de la misión diplomática u oficina consular, de acuerdo con la normativa vigente.

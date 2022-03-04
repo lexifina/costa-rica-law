@@ -1,0 +1,1 @@
+Artículo 30.-Cumplimiento de horario y jornada. La persona teletrabajadora debe cumplir con la jornada y horario establecidos en el acuerdo de teletrabajo. De común acuerdo, entre la persona teletrabajadora y el superior inmediato, podrá modificarse el horario de teletrabajo, siempre que ello no afecte el normal desarrollo de las actividades y los procesos de trabajo.

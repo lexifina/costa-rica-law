@@ -1,0 +1,1 @@
+Artículo 46.-Planificación. La Unidad de Planificación Institucional coordinará el alineamiento del programa de teletrabajo con Plan Estratégico Institucional y los planes de acción de cada una de las áreas involucradas, proponiendo las mejoras de los procesos y acciones de modernización institucional.

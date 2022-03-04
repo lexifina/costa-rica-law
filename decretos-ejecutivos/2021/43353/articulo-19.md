@@ -1,0 +1,1 @@
+Artículo 19.-Características del equipo de cómputo. Las computadoras utilizadas para el teletrabajo deben cumplir con todas las características de seguridad y especificaciones técnicas, establecidas en la Guía para la Implementación del Teletrabajo en el Ministerio de Relaciones Exteriores y Culto.

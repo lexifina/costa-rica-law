@@ -1,0 +1,1 @@
+Artículo 47.-Estrategia de comunicación. La Oficina de Comunicación Institucional diseñará, en coordinación con la Comisión, la estrategia de comunicación y sensibilización dirigida a todo el personal del Ministerio.

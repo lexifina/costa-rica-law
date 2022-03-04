@@ -1,0 +1,1 @@
+Artículo 29.-Capacitación. El teletrabajador deberá participar en las capacitaciones brindadas por el Ministerio en el uso de las herramientas tecnológicas para el buen desempeño de sus funciones y se encontrará obligado a utilizar dichas herramientas para su trabajo.

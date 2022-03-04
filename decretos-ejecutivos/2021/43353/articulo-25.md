@@ -1,0 +1,1 @@
+Artículo 25.-Uso de telecentros. La persona teletrabajadora indistintamente en la modalidad en que se encuentre, puede hacer uso de telecentros y salas de videoconferencias disponibles para realizar sus funciones y debe acatar las normas de uso que se establezcan.

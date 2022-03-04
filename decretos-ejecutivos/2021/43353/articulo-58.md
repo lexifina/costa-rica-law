@@ -1,0 +1,1 @@
+Artículo 58.-Elaboración de la Guía. La Comisión de Teletrabajo emitirá una Guía para la Implementación del Teletrabajo en el Ministerio de Relaciones Exteriores y Culto, para la aplicación del presente instrumento normativo, en un plazo de seis (6) meses contados a partir de la entrada en vigencia de este Reglamento.

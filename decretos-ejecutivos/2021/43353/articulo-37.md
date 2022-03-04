@@ -1,0 +1,1 @@
+Artículo 37.-Espacio físico. El superior inmediato, en conjunto con la Coordinación Administrativa, deben garantizar un espacio físico a la persona teletrabajadora cuando éste desarrolle actividades presenciales en la institución.

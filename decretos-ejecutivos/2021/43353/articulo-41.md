@@ -1,0 +1,1 @@
+Artículo 41.-Actas y acuerdos. Los acuerdos que se adopten y las actas de las sesiones de la Comisión se regirán por las normas y principios atinentes establecidas en la Ley General de la Administración Pública.

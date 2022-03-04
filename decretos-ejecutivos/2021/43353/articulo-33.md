@@ -1,0 +1,1 @@
+Artículo 33.-Veracidad de la información. La persona teletrabajadora debe brindar información verídica y oportuna en todos los procesos de investigación, evaluación del desempeño y medición a los que deba someterse. En caso de comprobarse un incumplimiento, se procederá según lo establecido en el artículo 11 de este reglamento.

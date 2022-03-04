@@ -1,0 +1,1 @@
+Artículo 9º-Póliza de Riesgos de Trabajo. Las personas teletrabajadoras están protegidas por la Póliza de Riesgos del Trabajo que tiene el Ministerio, siempre que se encuentren ejerciendo las labores propias de su cargo y en los lugares debidamente autorizados para ello, de conformidad con lo establecido en este reglamento.
