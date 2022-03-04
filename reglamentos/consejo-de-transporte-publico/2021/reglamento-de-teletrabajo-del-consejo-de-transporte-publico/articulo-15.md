@@ -1,0 +1,6 @@
+ARTÍCULO 15.-Seguimiento de las labores teletrabajables: La jefatura inmediata del funcionario será el responsable de definir y dar seguimiento a los compromisos adquiridos, así como la entrega oportuna de los trabajos desarrollados bajo esta modalidad de trabajo. De acuerdo con las siguientes pautas:
+a) Definir y evaluar el cumplimiento de las metas del teletrabajador y recomendar las acciones que permitan mejorar el desempeño. Para este fin, se deberán llevar los registros correspondientes.
+b) Cuando el rendimiento de los o las teletrabajadores no cumpla con lo programado, le corresponde al Jefe superior inmediato realizar un análisis de la situación y emitir las recomendaciones que estime pertinentes para mejorar el desempeño del trabajador.
+c) En caso de determinarse mediante un debido proceso, que las causas de bajo desempeño son atribuibles al teletrabajador, se le aplicará lo dispuesto en el Reglamento y Estatuto de Servicio Civil.
+d) Podrá requerir de la realización de actividades presenciales en las oficinas, para lo cual el teletrabajador realizará sus funciones de forma transitoria en su oficina.
+e) Velar porque se mantenga el ambiente laboral adecuado, las retribuciones, oportunidades de desarrollo e integración social de los teletrabajadores que participan en la modalidad de teletrabajo.
