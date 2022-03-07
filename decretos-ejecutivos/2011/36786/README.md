@@ -14,3 +14,4 @@ Manual para la clasificación de tierras dedicadas a la conservación de los rec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-11-11 | la propia norma |
+| 2 | 2022-03-07 | Decreto Ejecutivo 42760 (2022-03-07) |
