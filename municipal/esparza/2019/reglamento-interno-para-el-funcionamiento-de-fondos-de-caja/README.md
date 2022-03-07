@@ -14,3 +14,4 @@ Reglamento interno para el funcionamiento de fondos de caja chica de la Municipa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-06-19 | la propia norma |
+| 2 | 2022-03-07 | Reglamento municipal 0 (2022-03-07) |
