@@ -1,4 +1,4 @@
-ARTICULO 90.-
-Las prohibiciones anteriores comprenderán asimismo los siguientes casos:
-El ejercicio por cuenta propia o ajena de un oficio que se practique en las calles o sitio públicos, siempre que lo haga un varón menor de quince años o una mujer soltera menor de dieciocho.
-El trabajo de menores de quince años en la venta de objetos en teatros y establecimientos análogos, o para que figuren como actores o de alguna otra manera en representaciones públicas, que tengan lugar en casas de diversión de cualquier género, estaciones radiodifusoras o teatros, con excepción de las que se verifiquen en fiestas escolares, veladas de beneficencia o reuniones dedicadas al culto religioso.
+ARTICULO 90.-Las prohibiciones anteriores comprenderán, asimismo, los siguientes casos:
+a- El ejercicio por cuenta propia o ajena de un oficio que se practique en las calles o sitios públicos, siempre que lo haga una persona menor de quince años.
+b- El trabajo de personas menores de quince años en la venta de objetos en teatros y establecimientos análogos o para que figuren como actores o de alguna otra manera en representaciones públicas, que tengan lugar en casas de diversión de cualquier género, estaciones radiodifusoras o teatros, con excepción de las que se verifiquen en fiestas escolares, veladas de beneficencia o reuniones dedicadas al culto religioso.
+(Así reformado por el artículo único de la Ley libertad de elección de empleo de las mujeres, Ley N° 10131 del 10 de febrero del 2022)
