@@ -1,0 +1,2 @@
+Artículo 45.-Plazos: La Auditoría Interna deberá señalar a la Administración Activa, en función de la razonabilidad, complejidad, urgencia y la oportunidad, el plazo en el cual debe de suministrarse la documentación requerida. La ampliación del plazo queda a criterio de la Auditoría, conforme a la normativa vigente, previa solicitud antes del vencimiento y por escrito de la Administración Activa.
+El incumplimiento de lo anterior, deberá ser informado al Jerarca por parte de la Auditoría Interna, para que ordene las medidas disciplinarias que correspondan.

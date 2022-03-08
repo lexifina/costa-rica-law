@@ -1,0 +1,4 @@
+Sección II
+De los servicios de Auditoría e Investigaciones de Hechos Presuntamente Irregulares
+Artículo 38.-Servicios de la Auditoría Interna. Los servicios de fiscalización de la actividad de la Auditoría Interna conforme con sus competencias se clasifican en: servicios de auditoría y servicios preventivos. Durante el desarrollo de esos servicios, así como toda aquella información que se recopile debe ser tratada con el mayor cuidado ya que la misma puede contener documentos de carácter privado confidencial y empresarial, los cuales serán analizados por el personal encargado del trabajo.
+En el proceso de estudio (planificación) se establece un costo estimado del estudio, que contenga como mínimo: el salario de los funcionarios que participan en el proceso, conforme a las horas o días estimados de cada uno, viáticos, recursos (vehículo, combustible), giras.

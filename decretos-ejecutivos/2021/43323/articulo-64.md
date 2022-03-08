@@ -1,0 +1,2 @@
+Artículo 64.-Plan de Trabajo Anual de la Auditoría Interna. El Auditor Interno preparará el Plan de Trabajo Anual conforme a los Lineamientos de la Contraloría General de la República, lo elevará a conocimiento al Jerarca, y posteriormente se incorporará en el Sistema de Planes de Trabajo de las Auditorías Internas que lleva el órgano contralor.
+Dicho Plan de Trabajo Anual entrará en vigencia a partir del primer mes del año al que corresponde.

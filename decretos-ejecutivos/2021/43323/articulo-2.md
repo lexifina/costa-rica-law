@@ -1,0 +1,1 @@
+Artículo 2.-Ámbito de aplicación. El presente Reglamento es de carácter obligatorio para todos los funcionarios de la Auditoría Interna, y para los servidores y funcionarios de la Administración Activa y terceros que mantengan contratos con Conavi en lo que sea aplicable.

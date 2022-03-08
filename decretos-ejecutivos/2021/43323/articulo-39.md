@@ -1,0 +1,2 @@
+Artículo 39.-Servicios de auditoría. Son los referidos a los distintos tipos de auditoría (auditorías financieras, de carácter especial y auditorías operativas). Proporcionan exámenes objetivos de evidencia, en relación con la administración del riesgo, de control interno y de dirección, así como de asuntos específicos de la Institución con el fin de proveer evaluaciones independientes orientadas a promover mejoras en la gestión, en la responsabilidad pública y facilitar la toma de decisiones.
+Los resultados de los servicios de auditoría se comunicarán mediante informes.

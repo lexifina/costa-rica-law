@@ -1,0 +1,1 @@
+Artículo 58.-Sobre la presentación del informe. El informe de la Relación de Hechos será presentado al Jerarca, para que disponga de acuerdo con la normativa vigente y valore el inicio del respectivo procedimiento administrativo. En caso de que las faltas tuvieran connotaciones penales, la Auditoría Interna deberá actuar conforme a las normas citadas en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 36.-Prohibiciones del Auditor Interno y demás funcionarios de la Auditoría Interna: El Auditor Interno y los funcionarios de la Auditoría Interna acatarán lo señalado en el artículo 34 de la Ley Nº 8292 "Ley General de Control Interno" del 31 de julio del 2002, respecto de las prohibiciones en razón de sus cargos.

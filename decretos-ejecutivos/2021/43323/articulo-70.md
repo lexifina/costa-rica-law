@@ -1,0 +1,1 @@
+Artículo 70.-Capacitación de funcionarios. El Auditor (a) Interno (a) establecerá y actualizará el programa de capacitación para los funcionarios y funcionarias de la Auditoría, conforme con las necesidades de capacitación determinadas para fortalecer y actualizar las competencias de la Auditoría Interna.

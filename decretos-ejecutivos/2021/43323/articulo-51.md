@@ -1,0 +1,5 @@
+Artículo 51.-Plazos para que la Administración acepte las Recomendaciones de la Auditoría Interna.
+Cuando los informes finales de Auditoría contengan recomendaciones dirigidas a los titulares subordinados, se procederá según lo normado en el artículo 36 de la Ley N°8292.
+Cuando los informes finales de Auditoría contengan recomendaciones dirigidas al Jerarca, se procederá de conformidad con el artículo 37 de la Ley Nº 8292 "Ley General de Control Interno" del 31 de julio del 2002.
+Los plazos establecidos en los incisos anteriores, se contarán a partir de la fecha de recibido el informe final.
+Una vez transcurrido el plazo respectivo, sin recibirse objeciones al informe final, el Jerarca o la Administración Activa, según corresponda, deberá remitir un programa de trabajo que incluya un cronograma con responsables y/o funcionario enlace para realizar la implementación de las recomendaciones de la Auditoría Interna; de incumplirse deben presentar una justificación técnica y legal, de lo contrario se abrirá un procedimiento administrativo respaldado en la Ley General de Control Interno

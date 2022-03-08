@@ -1,0 +1,1 @@
+Artículo 37.-Otras atribuciones o potestades. La Dirección de Auditoría Interna puede ejercer, dentro de su ámbito de acción, cualquier atribución o potestad, no incluida en este reglamento, que le otorgue el Consejo de Administración, para facilitar el cumplimiento de su labor.

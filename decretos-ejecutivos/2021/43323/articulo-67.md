@@ -1,0 +1,2 @@
+Artículo 67.-Programa de aseguramiento de la calidad de los servicios. El Auditor Interno deberá formular criterios mínimos para implementar, divulgar y mantener un programa continuo de aseguramiento de la calidad y la mejora de los principales procesos de la Auditoría Interna, que considere normativa jurídica y técnica aplicable.
+Este programa será evaluado periódicamente, conforme a la normativa técnica aplicable.
