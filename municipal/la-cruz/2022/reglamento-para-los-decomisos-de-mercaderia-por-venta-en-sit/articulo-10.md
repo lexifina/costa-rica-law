@@ -1,0 +1,1 @@
+Artículo 10.-Suspensión de la licencia. En el caso de contar con licencia para la actividad desplegada y ser reincidente (más de una vez) en la venta en sitios públicos o de mercadería no autorizada; la licencia comercial se cancelará en forma definitiva.
