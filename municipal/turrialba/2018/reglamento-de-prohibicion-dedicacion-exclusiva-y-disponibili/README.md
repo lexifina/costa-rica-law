@@ -15,3 +15,4 @@ Reglamento de prohibición, dedicación exclusiva y disponibilidad, en la Munici
 | --- | --- | --- |
 | 1 | 2018-07-12 | la propia norma |
 | 2 | 2022-01-11 | Reglamento municipal 89 (2022-01-11) |
+| 3 | 2022-03-08 | Reglamento municipal 79 (2022-03-08) |

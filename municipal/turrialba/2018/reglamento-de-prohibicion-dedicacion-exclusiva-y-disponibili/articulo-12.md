@@ -1,1 +1,2 @@
-Artículo 12.—El plazo de los contratos de dedicación exclusiva no podrá ser mayor de 12 meses. Siempre que exista contenido presupuestario, ya que si no se puede hacer por menos meses.
+Artículo 12.-El plazo de este contrato no podrá ser menor de un año, ni mayor de cinco
+(Así reformado mediante sesión N° 079-2022 del 8 de marzo del 2022)
