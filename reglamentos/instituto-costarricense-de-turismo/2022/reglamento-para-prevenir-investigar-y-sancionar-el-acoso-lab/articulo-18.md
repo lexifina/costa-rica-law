@@ -1,0 +1,5 @@
+Creación, funciones y competencias
+de la comisión de acoso laboral
+Artículo 18.-Del nombramiento de la Comisión de Permanente de Prevención de Acoso Laboral. Con el objetivo de brindar las mejores prácticas en materia de acoso laboral, de conformidad con lo externado en los considerandos de este instrumento y en consonancia con las competencias que por imperativo legal ostenta el Gerente General del ICT, al tenor de lo establecido en el artículo 32 de la Ley Orgánica del Instituto Costarricense de Turismo, número 1917, créase la Comisión Permanente de Prevención de Acoso Laboral.
+La Gerencia General, nombrará a los miembros de la Comisión Permanente de Prevención de Acoso Laboral y estará conformada por tres integrantes titulares y tres suplentes, por un plazo de dos años prorrogables por periodos iguales.
+La administración superior podrá remover de forma discrecional a cualquiera de los miembros y nombrar a su sustituto, respetando la conformación de la comisión descrita en este instrumento.

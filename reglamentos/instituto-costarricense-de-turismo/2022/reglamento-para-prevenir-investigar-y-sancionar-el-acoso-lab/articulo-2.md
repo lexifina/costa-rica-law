@@ -1,0 +1,2 @@
+Artículo 2º-Ámbito de cobertura. Este instrumento, regula lo relativo a la prevención, investigación y sanción respecto de las conductas que constituyan acoso laboral en las relaciones de empleo entre los colaboradores del ICT, incluyendo relaciones de confianza y entre los funcionarios del ICT con personal externo contratado.
+Las políticas en materia de acoso laboral son de orden público y serán aplicables a personas que, en virtud de una contratación con el ICT, deban permanecer por un tiempo prolongado dentro de las instalaciones del ICT.

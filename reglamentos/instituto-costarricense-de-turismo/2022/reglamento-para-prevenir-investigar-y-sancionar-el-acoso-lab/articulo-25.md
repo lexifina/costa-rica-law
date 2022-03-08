@@ -1,0 +1,1 @@
+Artículo 25.-Impedimentos. En caso de abstención o recusación de alguno de los miembros del órgano director del procedimiento debidamente fundadas y posterior al procedimiento que establecen los artículos 230 a 238 de la LGAP; el órgano que ejerza la competencia, en el plazo máximo de tres días, deberá realizar la sustitución o sustituciones correspondientes.

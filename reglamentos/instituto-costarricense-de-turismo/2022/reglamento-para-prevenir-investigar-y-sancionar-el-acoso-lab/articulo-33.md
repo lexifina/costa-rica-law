@@ -1,0 +1,1 @@
+Artículo 33.-Contrataciones externas de servicios: En las contrataciones externas de servicios que tenga la institución, deberán incluirse una cláusula donde el contratista se compromete al cumplimiento de la normativa en materia de acoso laboral.

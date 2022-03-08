@@ -1,0 +1,1 @@
+Artículo 17.-Denuncia temeraria o falsa. Sin perjuicio de las posibles consecuencias penales y civiles, quien denuncie por acoso laboral de forma temeraria, falsa o abusiva podrá ser sancionado disciplinariamente, previa apertura de causa y observancia del debido proceso, conforme a las disposiciones aplicables de la Ley General de la Administración Pública.

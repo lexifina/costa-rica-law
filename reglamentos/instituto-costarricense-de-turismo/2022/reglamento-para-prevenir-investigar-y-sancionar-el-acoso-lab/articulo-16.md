@@ -1,0 +1,4 @@
+De las instancias competentes
+para la recepción de denuncias
+Artículo 16.-Procedimiento. Las denuncias deberán ser presentadas por escrito ante la Comisión Permanente de Prevención del Acoso Laboral. Si la denuncia se interpusiera en cualquier otra dependencia del Instituto, ésta será responsable de remitir la misma en el plazo no mayor de tres días hábiles a la Comisión Permanente de Prevención del Acoso Laboral, resguardando la confidencialidad de la información contenida en la misma.
+Una vez recibida la denuncia, ante la Comisión Permanente de Prevención del Acoso Laboral y verificado el cumplimiento de los requisitos establecidos en el artículo 12 de este Reglamento, en el plazo de tres días hábiles deberá remitir la denuncia al órgano competente quien en su condición de Órgano Decisor deberá nombrar el órgano director responsable de instruir el procedimiento; salvo que el órgano competente considere necesaria la realización de una investigación previa.

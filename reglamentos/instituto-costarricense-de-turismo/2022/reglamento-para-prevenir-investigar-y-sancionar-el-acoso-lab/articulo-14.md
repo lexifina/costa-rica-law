@@ -1,0 +1,2 @@
+Artículo 14.-Admisibilidad de la denuncia: Recibida la denuncia, la Comisión de Prevención de Acoso Laboral realizará la valoración objetiva de la misma para evaluar la procedencia. En caso de admisibilidad, la Comisión Permanente Institucional, elevará a conocimiento de quien ostente la potestad sancionadora, dentro del plazo de cinco (5) días hábiles, para que el órgano competente valore la apertura del Procedimiento Administrativo.
+De considerar el jerarca competente la necesidad de investigación preliminar, la devolverá ante la citada comisión para lo procedente.

@@ -1,0 +1,31 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+JUNTA DIRECTIVA
+De conformidad con lo acordado por la Junta Directiva del Instituto Costarricense de Turismo, en Sesión Ordinaria Virtual N° 6202, Apartado 1, artículo 4, Inciso III (B), celebrada el 24 de enero de 2022, se publica el siguiente reglamento interno:
+REGLAMENTO PARA PREVENIR, INVESTIGAR
+Y SANCIONAR EL ACOSO LABORAL EN EL INSTITUTO
+COSTARRICENSE DE TURISMO (ICT)
+Considerando:
+I.-Que, los artículos 188 y 189 de la Constitución Política de la República de Costa Rica, establece la independencia administrativa de las Instituciones Autónomas.
+II.-Que, la Ley Orgánica del Instituto Costarricense de Turismo (en adelante ICT), número 1917, en su artículo 26, establece que, la Junta Directiva del Instituto Costarricense de Turismo tendrá como atribuciones dictar, promulgar, reformar e interpretar los reglamentos internos necesarios para el mejor desarrollo de los fines del Instituto.
+III.-Que, la Ley Orgánica del Instituto Costarricense de Turismo, número 1917, en su artículo 32 establece las prerrogativas del Gerente General del Instituto Costarricense de Turismo.
+IV.-Que, la Ley Reguladora del Desarrollo y Ejecución del Proyecto Turístico Golfo de Papagayo 6758, en el artículo 9, señala que, el Instituto Costarricense de Turismo creará una oficina ejecutora, la cual, estará adscrita al Instituto y dependerá directamente de su Junta Directiva.
+V.-Que, la Ley Reguladora del Desarrollo y Ejecución del Proyecto Turístico Golfo de Papagayo 6758, en el artículo 10, señala que, la Oficina Ejecutora tendrá un Consejo Director, presidido por el (la) presidente (a) ejecutivo del Instituto Costarricense de Turismo.
+VI.-Qué, la Ley Reguladora del Desarrollo y Ejecución del Proyecto Turístico Golfo de Papagayo 6758, en el artículo 11, indica que, el Consejo Director, nombrará un director ejecutivo, así como el personal.
+VII.-Que, la Ley de Concesión de Marinas y Atracaderos Turísticos, N° 7744, en el artículo 6 creó la Comisión de Marinas y Atracaderos Turísticos (CIMAT), como un órgano de desconcentración en grado máximo del ICT. La Comisión tendrá su sede en el ICT y tiene una Dirección Ejecutiva y cuenta actualmente con el personal técnico y administrativo que se requiere según lo dispuesto en la Ley 7744.
+VIII.-Que, de conformidad con lo dispuesto en el artículo 33 de la Constitución Política, toda persona es igual ante la ley y no se puede practicar discriminación alguna en contra de su dignidad.
+IX.-Que, de conformidad con lo dispuesto en el artículo 56 de la Constitución Política, el Estado debe respetar la libertad y la dignidad de los trabajadores.
+X.-Que, con fundamento en el Principio de la Buena Fe que debe regir en toda relación laboral, el cual se encuentra tutelado en el artículo 19 del Código de Trabajo; la finalidad del presente reglamento es que se prevenga el acoso laboral y se resuelvan los casos que eventualmente se presenten. En este mismo sentido, el inciso c) del artículo 69 de dicho cuerpo normativo, establece que el patrono tiene la obligación de guardar a los trabajadores la debida consideración, absteniéndose de maltratarlos de palabra o de obra.
+XI.-Qué, el artículo 14 del Código de Trabajo, señala que dicho cuerpo normativo es de orden público y a sus disposiciones se sujetarán todas las empresas, explotaciones o establecimientos, de cualquier naturaleza que sean, públicos o privados, existentes o que en lo futuro se establezcan en Costa Rica, lo mismo que todos los habitantes de la República, sin distinción de sexos ni de nacionalidades.
+XII.-Que, el artículo 404 del Código de Trabajo, establece taxativamente la prohibición de toda discriminación por razones de razones de edad, etnia, sexo, religión, raza, orientación sexual, estado civil, opinión política, ascendencia nacional, origen social, filiación, discapacidad, afiliación sindical, situación económica o cualquier otra forma análoga de discriminación.
+XIII.-Que, el artículo 91
+1 http://www.pgrweb.go.cr/scij/Busqueda/Normativa/Normas/nrm_texto_ completo.aspx?nValor1=1&nValor2=6581de la Ley General de Salud, incorpora como parte de los derechos y deberes concernientes a la salud física y mental de las personas, lo relativo al acoso laboral.
+XIV.-Que, la Sala Segunda de la Corte Suprema de Justicia, mediante la Resolución Nº 692 de las 9:20 horas del 27 de agosto del 2004, definió el acoso laboral como "(.) un proceso de destrucción; se compone de una serie de actuaciones hostiles que, tomadas en forma aislada, podrán parecer anodinas, pero cuya repetición constante tiene efectos perniciosos.". (.) Se ha conceptualizado también, como "el conjunto de acciones sistemáticamente realizadas, con manifiesta intención de afectar el bienestar y enfocadas sobre un individuo o grupo de individuos en la organización, a fin de ocasionar molestia". (.). Se trata, en definitiva, de conductas agresivas y abusivas, especialmente de palabra, actos y gestos que pueden atentar contra la personalidad, la dignidad, o la integridad psíquica de una persona, o que puedan hacer peligrar su puesto de trabajo o degradar el clima laboral (.)".
+XV.-Que, el capítulo XI del Reglamento Autónomo de Trabajo de los funcionarios del ICT establece en el artículo 45 inciso r) establece la prohibición a todo funcionario de la Institución, de "ejecutar cualquier acto o manifestación de acoso u hostigamiento sexual contra los compañeros de trabajo."
+XVI.-Qué, en virtud de lo expuesto, el Instituto Costarricense de Turismo, en su condición de patrono, tiene la obligación ética, moral y legal, de adoptar las medidas necesarias para garantizar la salud ocupacional de sus colaboradores, en consonancia con lo anterior; se aprueba el siguiente reglamento para prevenir, investigar y sancionar el acoso laboral en el Instituto Costarricense de Turismo (ICT) Por tanto.
+RESUELVE:
+Emitir el siguiente:
+REGLAMENTO PARA PREVENIR, INVESTIGAR
+Y SANCIONAR EL ACOSO LABORAL EN EL INSTITUTO
+COSTARRICENSE DE TURISMO (ICT)
+Disposiciones generales
+Artículo 1º-Objetivo. Proteger la dignidad, la igualdad ante la ley, la integridad personal y el derecho al trabajo digno de todos los colaboradores, para que la prestación del servicio se desarrolle en condiciones sanas, dignas y sin discriminación alguna.
