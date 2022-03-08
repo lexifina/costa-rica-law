@@ -1,9 +1,17 @@
-Capítulo IV
-REQUISITOS PARA OPTAR POR EL BENEFICIO
-ARTICULO 6°.—Los grados y condiciones académicas que presenten los profesionales para efectos de Carrera Profesional deberán ser:
-a) Relacionados directamente con la especialidad del puesto.
+CAPÍTULO IV
+Requisitos para optar por el beneficio
+Artículo 6º-Los títulos o grados académicos que presenten los profesionales para efectos de Carrera Profesional deben ser:
+a) Propios del área de actividad del puesto o afines con ésta determinado mediante un estudio de la Oficina de Recursos Humanos respectiva.
 b) Extendidos por alguna de las universidades oficialmente reconocidas en el país.
-c) Reconocidos y equiparados por una universidad estatal de acuerdo con las disposiciones y procedimientos establecidos por el Consejo Nacional de Rectores (CONARE).
-La Especialidad y Maestría deben haber sido obtenidas después de la Licenciatura; en caso contrario recibirán el puntaje concedido a la Licenciatura.
-Los grados y títulos académicos conferidos por universidades privadas existentes en el país serán aceptados siempre y cuando la respectiva universidad esté debidamente autorizada por el Consejo Nacional de Educación Superior (CONESUP).
-Solo se reconocerá un grado o especialidad adicional a cada servidor, siempre y cuando no se haya tornado en consideración para los efectos del artículo 5 inciso a).
+c) Correspondientes a carreras autorizadas por el Consejo Nacional de Educación Superior (CONESUP) cuando se trate de títulos extendidos por universidades privadas existentes en el país.
+d) Reconocidos y equiparados por una universidad estatal, cuando se trate de títulos obtenidos en el extranjero, de acuerdo con las disposiciones y procedimientos establecidos por el Consejo Nacional de Rectores (CONARE), aportando la certificación respectiva emitida por el Departamento de Registro o instancia administrativa competente.
+Los grados, posgrados y títulos académicos obtenidos antes de la promulgación de las normas sobre el reconocimiento y equiparación de los grados o títulos por parte del CONARE (19 de agosto de 1986), serán aceptados de acuerdo con la condición con que los haya reconocido el Colegio Profesional respectivo.
+e) Propios o afines al área de actividad del puesto o cargo que ocupa el/la funcionario/a.
+No obstante, si con posterioridad al reconocimiento del título universitario respectivo, dado en virtud exclusivamente de un criterio de afinidad con el área de actividad del puesto o cargo, el servidor cambia de puesto o cargo y como consecuencia de dicho movimiento, el grado o posgrado pierde esa correspondencia, el mismo deberá excluirse del régimen de Carrera Profesional y con ello los puntos que signifique.
+En procura de una atención oportuna de situaciones que puedan encuadrarse en los supuestos anteriores, las Oficinas de Recursos Humanos, de manera oficiosa o a solicitud del interesado, previo al nombramiento correspondiente, deberán realizar la revisión de los puntajes y títulos académicos que le hayan sido reconocidos al servidor en el régimen de Carrera Profesional, y emitir la decisión correspondiente.
+Sea superior o adicional al requisito académico establecido para la clase de puesto ocupada por el servidor interesado. Esto implica que no podrá sumarse, para efectos de la remuneración de Carrera Profesional, el título académico a nivel de grado o posgrado mediante el cual el servidor cumplió con los requisitos para su nombramiento en el puesto que ocupe.
+Cuando a un servidor se le haya reconocido un título académico en el régimen de Carrera Profesional, siendo que ese no representó requisito del puesto que ocupase en ese momento, pero si con posterioridad el servidor interesado cambia su puesto de trabajo por traslado, ascenso, permuta u otra figura, y ese mismo título se convierte en requisito de la clase del puesto a ocupar de manera futura, deberá excluirse del régimen de Carrera Profesional y con ello los puntos que signifique, evitando duplicidad remunerativa. En caso de que un grado académico deje de ser requisito, si ocurriera un cambio de puesto del interesado/a, éste podrá solicitar a la Oficina de Recursos Humanos correspondiente, el estudio para su reconocimiento como grado adicional.
+La especialidad académica se computará conforme con lo indicado en el artículo 4 de esta resolución, si además fue obtenida ulterior y con base en un bachillerato o licenciatura, y no como requisito o título simultáneo de esos, o en la modalidad de énfasis, pues en tales escenarios se considerará únicamente el grado base respectivo, siempre que así corresponda".
+Si con posterioridad al reconocimiento de puntos por títulos o grados académicos superiores o adicionales, la persona interesada presenta otro título superior al ya acreditado, se otorgará la diferencia de puntos existente entre uno y otro.
+La maestría debe haber sido obtenida después de la licenciatura, en caso de haber sido obtenida con base en un bachillerato será equiparada como una licenciatura.
+(Así reformado por acuerdo N° 0016 del 8 de marzo de 2022)

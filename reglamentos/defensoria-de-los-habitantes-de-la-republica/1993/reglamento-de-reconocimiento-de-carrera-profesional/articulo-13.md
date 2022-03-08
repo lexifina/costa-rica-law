@@ -1,1 +1,1 @@
-ARTICULO 13.—La experiencia laboral acumulada antes de la obtención del grado profesional requerido podrá reconocerse cuando además de la condición de egresado, el servidor hubiere sido nombrado en un puesto de nivel profesional.
+ARTICULO 13.- (Derogado por acuerdo N° 0016 del 8 de marzo de 2022)

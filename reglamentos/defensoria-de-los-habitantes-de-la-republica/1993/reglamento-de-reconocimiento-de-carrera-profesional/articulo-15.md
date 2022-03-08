@@ -1,2 +1,2 @@
-ARTICULO 15.—Si por alguna razón justificada el servidor no fuere calificado en sus servicios, se considerará el último período acreditado, el cual no debe ser inferior a “muy bueno” u otro criterio cuantitativo comparable.
-Los puestos que por su naturaleza no sean susceptibles de calificación estarán exentos de este requisito.
+Artículo 15.-Cada punto que se considere en cualquier factor de Carrera Profesional, tendrá una vigencia única e independiente, y retribución salarial, por un plazo de cinco (5) años a partir de la fecha en la cual rige el respectivo reconocimiento. Las Oficinas de Gestión Institucional de Recursos Humanos deberán establecer los controles correspondientes, a fin de que, al cumplirse dicho plazo, se proceda a caducar los puntajes respectivos y cesar los pagos inherentes.
+(Así reformado por acuerdo N° 0016 del 8 de marzo de 2022)

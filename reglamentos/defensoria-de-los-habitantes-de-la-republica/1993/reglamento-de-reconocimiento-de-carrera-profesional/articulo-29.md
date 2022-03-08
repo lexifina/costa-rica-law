@@ -1,1 +1,1 @@
-ARTICULO 29.—La Unidad de Recursos Humanos tendrá la obligación de controlar y aplicar, luego de efectuada la calificación de servicios, lo dispuesto en el artículo 16 de este reglamento y presentará una lista de los profesionales afectados a la Comisión de Carrera Profesional para que procedan de conformidad con los principios y objetivos de la Institución.
+ARTICULO 29.- (Derogado por acuerdo N° 0016 del 8 de marzo de 2022)

@@ -1,1 +1,1 @@
-ARTICULO 26.—Las decisiones que adopte la Comisión serán aprobadas por mayoría simple y se harán constar en actas que llevará el Jefe de Recursos Humanos en calidad de Secretario de la Comisión. En caso de empate, el Presidente decidirá por medio de doble voto.
+ARTICULO 26.- (Derogado por acuerdo N° 0016 del 8 de marzo de 2022)

@@ -1,1 +1,1 @@
-ARTICULO 8°.—Por la naturaleza de las funciones se reconocerán 5 puntos por dominio de un idioma extranjero, por una sola vez.
+ARTICULO 8°.-(Derogado por acuerdo N° 0016 del 8 de marzo de 2022)

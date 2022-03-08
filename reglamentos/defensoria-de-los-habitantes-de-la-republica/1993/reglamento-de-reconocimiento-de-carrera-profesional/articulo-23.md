@@ -1,1 +1,1 @@
-ARTICULO 23.—Cuando los beneficios deriven de la condición de Bachiller Universitario -experiencia y estudios- se aplicarán de inmediato y de oficio por la Unidad de Recursos Humanos. En caso de duda, los beneficios no se aplicarán antes de que exista un pronunciamiento de la Comisión de la Carrera Profesional.
+ARTICULO 23.- (Derogado por acuerdo N° 0016 del 8 de marzo de 2022)

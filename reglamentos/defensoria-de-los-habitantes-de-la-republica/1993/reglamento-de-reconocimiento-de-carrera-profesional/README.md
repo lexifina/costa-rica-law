@@ -14,3 +14,4 @@ Reglamento de reconocimiento de carrera profesional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-07-16 | la propia norma |
+| 2 | 2022-03-08 | Reglamento 0 (2022-03-08) |

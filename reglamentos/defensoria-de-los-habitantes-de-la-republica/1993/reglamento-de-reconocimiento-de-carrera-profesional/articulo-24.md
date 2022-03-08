@@ -1,2 +1,2 @@
-ARTICULO 24.—El Defensor de los Habitantes, en segunda instancia, atenderá y resolverá los reclamos de los solicitantes sobre las decisiones de la Comisión de Carrera Profesional.
-Las resoluciones se comunicarán al Jefe de Recursos Humanos para el trámite correspondiente.
+Artículo 24.-El/la Defensor/a de los Habitantes, en segunda instancia, atenderá y resolverá los reclamos de los/as solicitantes sobre las decisiones que adopte el Departamento de Recursos Humanos en materia de Carrera Profesional. El/la jerarca contará con un plazo de ocho días hábiles para resolver el asunto. Dicha resolución dará por agotada la vía administrativa.
+(así reformado por acuerdo N° 0016 del 8 de marzo de 2022)

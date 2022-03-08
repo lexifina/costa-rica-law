@@ -1,1 +1,1 @@
-ARTICULO 21.—Las solicitudes de reconocimiento o reajuste de Carrera Profesional se tramitarán, a gestión expresa del interesado, por la Unidad de Recursos Humanos, será responsable del estudio y control de la aplicación de este Reglamento y de los incentivos por Carrera Profesional.
+ARTICULO 21.- (Derogado por acuerdo N° 0016 del 8 de marzo de 2022)
