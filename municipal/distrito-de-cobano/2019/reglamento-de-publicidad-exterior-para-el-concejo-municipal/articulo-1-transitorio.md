@@ -1,1 +1,0 @@
-Transitorio I.—Las licencias otorgadas por pago recibido, por Publicidad Exterior, se mantendrán vigentes por seis meses, transcurrido dicho plazo deberán cumplir con las disposiciones establecidas en el presente Reglamento.

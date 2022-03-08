@@ -1,1 +1,0 @@
-Transitorio II.—Todas aquellas personas físicas o jurídicas que tengan rótulos y anuncios de publicidad instalados antes de la vigencia de este Reglamento deberán ajustarse a las disposiciones del mismo en un plazo no mayor de seis meses. Caso contrario serán retirados por el Concejo, un mes después de vencido dicho plazo.

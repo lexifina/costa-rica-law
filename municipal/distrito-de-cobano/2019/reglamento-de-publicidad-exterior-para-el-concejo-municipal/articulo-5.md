@@ -1,1 +1,0 @@
-Artículo 5°—El propietario de la patente del comercio que será anunciado por el rótulo para el que se pide la licencia y del predio donde se colocará, deberá estar al día con los impuestos, contribuciones y tasas del Concejo.
