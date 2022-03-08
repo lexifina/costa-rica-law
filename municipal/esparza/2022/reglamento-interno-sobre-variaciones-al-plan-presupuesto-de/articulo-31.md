@@ -1,0 +1,1 @@
+Artículo 31.-Normativa supletoria. A las materias que son objeto del presente Reglamento, resultan aplicables las disposiciones contenidas sobre las mismas en el Reglamento Interno Sobre Variaciones al Presupuesto Inicial de la Municipalidad de Esparza y Normas Conexas, así como cualquier otra norma que guarde relación con este Reglamento.

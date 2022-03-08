@@ -1,0 +1,2 @@
+Artículo 5º-Concepto de variaciones presupuestarias. Corresponden a los ajustes cuantitativos y cualitativos al Plan Presupuesto Inicial aprobado por las instancias internas y externas competentes, necesarias para el cumplimiento de los objetivos y metas, derivados de cambios en el ámbito interno y externo de índole económico, financiero, administrativo y legal, que pueden ocurrir durante el desarrollo del proceso presupuestario.
+Dichas variaciones deberán cumplir con los principios presupuestarios definidos en la Normas Técnicas sobre Presupuesto Público, según corresponda.

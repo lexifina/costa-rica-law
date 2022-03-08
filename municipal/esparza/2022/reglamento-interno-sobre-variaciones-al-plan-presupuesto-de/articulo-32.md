@@ -1,0 +1,1 @@
+Artículo 32.-Derogaciones. Este Reglamento deroga cualquier otra disposición administrativa, o reglamentaria que se contraponga a lo aquí regulado. Principalmente el Reglamento Interno sobre Variaciones al Presupuesto de la Municipalidad de Esparza en La Gaceta N° 18 del 27/01/2014 y sus reformas.

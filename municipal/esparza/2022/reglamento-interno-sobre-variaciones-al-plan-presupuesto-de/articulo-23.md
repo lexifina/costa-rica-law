@@ -1,0 +1,1 @@
+Artículo 23.-Periodicidad y medio para someter las modificaciones a la aprobación del Concejo Municipal. Para la elaboración de las modificaciones presupuestaria el superior inmediato del encargado de presupuesto, deberá elaborar el cronograma respectivo y hacerlo de conocimiento de todas las unidades ejecutoras del Plan Operativo Anual.

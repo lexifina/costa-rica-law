@@ -1,0 +1,1 @@
+Artículo 17.-Información complementaria. Toda variación presupuestaria deberá Incluir la información complementaria requerida en la norma Normas Técnicas sobre Presupuesto Público, lo cual deberá ser verificado por el Encargado de Presupuesto.
