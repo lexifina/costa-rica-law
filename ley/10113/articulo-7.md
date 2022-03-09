@@ -1,0 +1,1 @@
+ARTÍCULO 7- Reglamentación. El Poder Ejecutivo emitirá las regulaciones necesarias y dictará los reglamentos técnicos correspondientes, a fin de permitir el desarrollo ordenado y seguro de las actividades autorizadas de producción, industrialización y comercialización del cáñamo y sus productos y subproductos.

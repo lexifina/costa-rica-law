@@ -1,0 +1,1 @@
+ARTÍCULO 24- Interés público. Se declaran de interés público las investigaciones que realicen la Caja Costarricense de Seguro Social (CCSS) y las Universidades públicas para desarrollar nuevos medicamentos, productos y tratamientos terapéuticos que permitan aprovechar los beneficios del cannabis, en aras de mejorar la salud integral y la calidad de vida de toda la población.

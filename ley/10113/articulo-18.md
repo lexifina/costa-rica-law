@@ -1,0 +1,1 @@
+ARTÍCULO 18- Si las actividades autorizadas para el cannabis de uso médico o terapéutico, por parte de personas físicas o personas jurídicas, se realizan bajo el Régimen de Zonas Francas, igualmente deberán pagar el impuesto especial a la realización de actividades autorizadas para, el cannabis medicinal que se crea en esta ley.

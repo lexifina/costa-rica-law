@@ -1,8 +1,4 @@
-ARTICULO 127.- Queda prohibido y sujeto a destrucción, por la
-autoridad competente el cultivo, de la adormidera (papaver somniferum) de
-la coca (erythroxilon coca) y del cáñamo o marihuana (cannabis índica y
-cannabis sativa) y de toda otra planta de efectos similares así declarado
-por el Ministerio.
-Queda asimismo prohibida la importación, exportación, tráfico y uso
-de las plantas antes mencionadas, así como sus semillas cuando tuvieren
-capacidad germinadora.
+Artículo 127- Queda prohibido y sujeto a destrucción, por la autoridad competente, el cultivo de la adormidera (Papaver somniferum), de la coca (Erythroxilon coca), de la marihuana (Canabis indica y Canabis sativa) no autorizada de conformidad con la Ley del Cannabis para Uso Medicinal y Terapéutico y del Cáñamo para Uso Alimentario e Industrial, y de toda otra planta de efectos similares así declarado por el Ministerio.
+Queda prohibida, asimismo, la importación, la exportación, el tráfico y uso de las plantas antes mencionadas, así corno sus semillas, cuando tengan capacidad germinadora y no estén autorizados por ley y autoridad competente.
+(Así reformado por el artículo 45 de la Ley del cannabis para uso medicinal y terapéutico y del cáñamo para uso alimentario e industrial, N° 10113 del 2 de marzo de 2022)
+(Nota de Sinalevi: El Dictamen C-079-2018 de 19 de abril de 2018, concluyó que este numeral ha sido tácitamente derogado por los cánones 1° y 2° de la ley N° 7786, del 30 de abril de 1998, cuerpo legal que se ajusta de mejor manera al régimen de autorización excepcional del uso de la cannabis y otras drogas para fines médicos y científicos, a efectos de garantizar el respeto al artículo 7° de nuestra Constitución Política, los principios “pacta sunt servanda” y “observancia de los convenios internacionales”, consagrados en la Convención de Viena sobre el Derecho de los Tratados y del marco regulatorio establecido en los tratados internacionales que sobre la materia de drogas han sido firmados por Costa Rica.)
