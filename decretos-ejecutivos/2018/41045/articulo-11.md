@@ -1,1 +1,0 @@
-Artículo 11- Presentación y trámite de la solicitud. La solicitud de habilitación junto con sus requisitos, deberán ser presentados ante la Dirección de Área Rectora de Salud del Ministerio de Salud correspondiente. Lo anterior sin perjuicio de los sistemas informáticos en línea, que el Ministerio de Salud pueda implementar eventualmente, para la presentación de estos trámites.

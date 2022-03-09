@@ -1,1 +1,0 @@
-Transitorio II —El interesado que haya iniciado el trámite de solicitud de certificado de habilitación con anterioridad a la entrada en vigor del presente reglamento, se regirá al tenor de lo dispuesto en el Decreto Ejecutivo No. 39728-S del 10 de mayo del 2016 "Reglamento General para la Habilitación de Servicios de Salud y Afines .
