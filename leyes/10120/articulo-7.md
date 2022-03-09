@@ -1,0 +1,2 @@
+ARTÍCULO 7- Programas para las mujeres afrodescendientes. El Instituto Nacional de las Mujeres (lnamu) deberá incorporar en sus programas existentes, o por medio de Nuevos programas, las acciones afirmativas específicas relativas a la participación política, la autonomía económica y el acceso a la salud para las mujeres afrodesC19ndientes, y medir sus resultados.
+Esta medida se aplicará por un plazo de diez años, contado a partir de la entrada en vigencia de esta ley.

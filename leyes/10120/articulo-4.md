@@ -1,0 +1,3 @@
+ARTÍCULO 4- Medidas afirmativas en educación. El Instituto Nacional de Aprendizaje (INA) destinará un siete por ciento (7%) de los cupos en cada una de sus ofertas educativas a la población afrodescendiente y así lo divulgará en sus programas, sedes regionales y en toda publicidad sobre su oferta curricular.
+En caso de que el porcentaje destinado a las ofertas educativas a la población afrodescendiente no sea ocupado por estas poblaciones, el Instituto Nacional de Aprendizaje (INA) podrá distribuirlo entre el resto de la población ofertante.
+Esta medida se aplicará por un plazo de diez años, contado a partir de la entrada en vigencia de esta ley.
