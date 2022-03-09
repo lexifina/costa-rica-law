@@ -1,0 +1,1 @@
+ARTÍCULO 36- Procedimiento administrativo. Todas las actuaciones y acciones de esta ley se tramitarán de conformidad con el procedimiento ordinario establecido en la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978.

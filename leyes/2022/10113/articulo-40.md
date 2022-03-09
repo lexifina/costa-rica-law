@@ -1,0 +1,4 @@
+CAPÍTULO VI
+INCENTIVOS PARA ORGANIZACIONES DE PRODUCTORES
+Y PEQUEÑAS EMPRESAS
+ARTÍCULO 40- Asistencia técnica para pequeños productores agropecuarios. El Ministerio de Agricultura y Ganadería (MAG), a través del Programa Nacional de Extensión Agropecuaria y del Instituto Nacional de Innovación y Transferencia de Tecnología Agropecuaria (INTA), en coordinación con el Instituto Nacional de Aprendizaje (INA) y las universidades públicas, brindará capacitación, asistencia técnica, desarrollará investigaciones relacionadas con el cultivo del cáñamo y el cannabis de uso médico o terapéutico y facilitará la transferencia de tecnología a las organizaciones de personas micro, pequeñas y medianas productoras agropecuarias, a fin de que puedan obtener las licencias para cultivo e incursionar con éxito en las actividades autorizadas por esta ley.

@@ -1,0 +1,1 @@
+ARTICULO 30- Transferencia de recursos. Los montos recaudados por concepto de la sobretasa creada en el artículo anterior serán transferidos a las instituciones definidas en el artículo siguiente, de forma integral y en un solo tracto trimestral, en un plazo no mayor de quince días hábiles luego del cierre del pago del impuesto en cada período trimestral.
