@@ -1,0 +1,1 @@
+Artículo 2º-Principios Fundamentales. En materia de establecimiento y ajustes de las tarifas institucionales regirán los principios fundamentales del servicio público como son los principios de eficiencia, eficacia, calidad, continuidad, publicidad, transparencia, igualdad de trato a los usuarios y servicio al costo.
