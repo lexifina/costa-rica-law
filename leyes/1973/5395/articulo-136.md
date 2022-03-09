@@ -1,8 +1,2 @@
-ARTICULO 136.- Toda persona queda obligada a permitir la entrada
-inmediata de los funcionarios del Ministerio, debidamente identificados,
-a su establecimiento industrial, comercial o de depósito y a los
-inmuebles de su cuidado con el fin de tomar las muestras que haya
-menester y para controlar las condiciones de la producción, tráfico,
-tenencia, almacenamiento o suministro de medicamentos y especialmente de
-estupefacientes y sustancias o productos psicotrópicos, declarados de uso
-restringido.
+Artículo 136- Toda persona queda obligada a permitir la entrada inmediata de los funcionarios del Ministerio y de las autoridades sanitarias, en el ámbito de su competencia y en los lugares autorizados, debidamente identificados, a su establecimiento agroindustrial, laboratorio, invernadero, locales industriales, comerciales o de depósito y a los inmuebles de su cuidado, con el fin de tomar las muestras, realizar mediciones de rangos autorizados, calidad, bioseguridad, inocuidad y para controlar las condiciones del cultivo, la producción, el tráfico, la tenencia, el almacenamiento o el suministro de medicamentos y especialmente de semillas, raíces, plantas, flores y estupefacientes y sustanciéis o productos psicotrópicos, declarados de uso restringido o regulado, según corresponda.
+(Así reformado por el artículo 45 de la Ley del cannabis para uso medicinal y terapéutico y del cáñamo para uso alimentario e industrial, N° 10113 del 2 de marzo de 2022)
