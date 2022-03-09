@@ -1,4 +1,0 @@
-ARTÍCULO 3- Acción afirmativa para el empleo. Toda institución pública está obligada a destinar al menos un siete por ciento (7%) de los puestos de trabajo vacantes al año, para ser ocupados por las personas afrodescendientes, siempre que estas cumplan, en igualdad de condiciones, con los requisitos legales y constitucionales para acceder a ellos.
-Para nombrar en esas plazas a las personas no afrodescendientes deberá documentarse, de forma fehaciente, que en el respectivo proceso de reclutamiento y selección se divulgó el porcentaje y que no hubo participación de las personas afrodescendientes o que las participantes no cumplen los requisitos exigidos para el puesto.
-Esta medida se aplicará por un plazo de diez años, contado a partir de la entrada en vigencia de la presente ley.
-(Modificado mediante Fe de Erratas publicada en La Gaceta N° 175 del 10 de setiembre de 2021, página N° 2, que corrigió el contenido del presente artículo)
