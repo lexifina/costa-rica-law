@@ -1,0 +1,2 @@
+ARTÍCULO 35- Plazo para pago de multas. Las sanciones pecuniarias establecidas deben pagarse en un término máximo de treinta días hábiles a partir de su firmeza. La resolución administrativa en firme constituye título ejecutivo para el cobro en sede judicial, en caso de incumplimiento de la obligación.
+Para efectos de la renovación de los títulos habilitantes regulados en esta ley, será requisito encontrarse al día en el pago de las multas establecidas en la presente sección, lo que podrá comprobarse mediante certificación debidamente emitida por la autoridad competente.
