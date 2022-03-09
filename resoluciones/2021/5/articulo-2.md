@@ -1,1 +1,0 @@
-Artículo 2º-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número RES-DGH-020-2020 de las catorce horas treinta y cinco minutos del 6 de marzo de 2020, publicada en La Gaceta N° 49 del 12 de marzo de 2020.
