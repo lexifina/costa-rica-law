@@ -1,4 +1,0 @@
-Artículo 4º—Para el correspondiente trámite de otorgamiento o renovación del Permiso Sanitario de Funcionamiento por parte del Área Rectora de Salud correspondiente, la persona interesada deberá cancelar el importe de US$ 5000,00 (cinco mil dólares americanos) o el equivalente en moneda nacional. Lo anterior conforme a las disposiciones contenidas en el artículo 48 bis de la Ley Orgánica del Ministerio de Salud, adicionado por la Ley Nº 7554 de 4 de octubre de 1995, “Ley Orgánica del Ambiente” Dichos fondos serán destinados para financiar las actividades que desarrollan los programas y subprogramas del Ministerio de Salud.
-Dicho pago deberá depositarse a favor del Fideicomiso 872-BN -Ministerio de Salud en las siguientes cuentas:
-1) Cuenta en colones 000-213715-6 Fideicomiso 872 BNCR- Ministerio de Salud.
-2) Cuenta en dólares estadounidenses 000-617477-5 Fideicomiso 872- BNCR Ministerio de Salud.

@@ -1,1 +1,0 @@
-Artículo 13.—El funcionario público que incumpla la disposición contenida en el artículo precedente, será acreedor de una sanción disciplinaria, previa instauración del órgano director de procedimiento correspondiente. En caso de reincidencia en un período de tres meses, podrá llegar hasta el despido sin responsabilidad patronal.

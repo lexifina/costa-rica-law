@@ -1,1 +1,0 @@
-Artículo 12.—A ningún permisionario se le concederá o renovará el permiso sanitario de funcionamiento cuando existan órdenes sanitarias de cumplimiento, previa verificación en expediente o inspección en sitio que demuestre el incumplimiento de lo ordenado por la autoridad de salud.
