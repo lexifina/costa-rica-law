@@ -1,0 +1,1 @@
+Artículo 17.-Los miembros del Consejo serán remunerados mediante dietas, las cuales no podrán exceder de tres al mes y se ajustarán conforme al artículo 60 de la Ley Nº 7138, Ley de Presupuesto Extraordinario, de 16 de noviembre de 1989, según lo dispuesto en la Ley de creación.

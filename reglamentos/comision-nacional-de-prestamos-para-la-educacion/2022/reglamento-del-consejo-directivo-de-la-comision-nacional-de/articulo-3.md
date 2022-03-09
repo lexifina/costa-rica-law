@@ -1,0 +1,1 @@
+Artículo 3º-El Consejo podrá sesionar válidamente con la presencia de tres de sus miembros nombrados y acreditados y las decisiones serán tomadas, en todos los casos, por el voto de por lo menos tres de ellos.

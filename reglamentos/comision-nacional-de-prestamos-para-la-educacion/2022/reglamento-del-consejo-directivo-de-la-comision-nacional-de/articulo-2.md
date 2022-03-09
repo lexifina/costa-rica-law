@@ -1,0 +1,1 @@
+Artículo 2º-La integración del Consejo se hará conforme a la ley. El Secretario Ejecutivo notificará la fecha de vencimiento de los períodos de los directores, la eventualidad de una vacante o sustitución, de forma oportuna, con el objeto de que oportunamente las entidades procedan a efectuar los nuevos nombramientos.

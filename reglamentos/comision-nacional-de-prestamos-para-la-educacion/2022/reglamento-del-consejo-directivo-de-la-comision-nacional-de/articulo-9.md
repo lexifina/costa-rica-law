@@ -1,0 +1,1 @@
+Artículo 9º-Cuando por motivos técnicos se pierda la interacción en tiempo real entre los participantes en la sesión, superior a quince minutos, se considerará interrumpida la participación de ese o esos directores. Esta circunstancia deberá consignarse en el acta. No obstante, se mantendrá la sesión mientras permanezca el quórum mínimo requerido.

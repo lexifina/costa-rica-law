@@ -1,0 +1,1 @@
+Artículo 5º-Este reglamento solo podrá ser reformado con el voto afirmativo de al menos tres de los miembros presentes en sesión en que se agende la modificación. La Secretaría Ejecutiva cada cuatro años deberá realizar una revisión del presente reglamento, con el propósito de mantenerlo actualizado y proponer al Consejo su modificación.

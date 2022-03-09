@@ -1,0 +1,1 @@
+Artículo 12.-La administración de CONAPE, debe implementar a lo interno, los requerimientos de seguridad, los mecanismos de control y de recepción de manera que sean compatibles entre sí, permitiendo la plena interacción entre los distintos miembros, lo que implica la visibilidad y la audibilidad de las personas participantes.

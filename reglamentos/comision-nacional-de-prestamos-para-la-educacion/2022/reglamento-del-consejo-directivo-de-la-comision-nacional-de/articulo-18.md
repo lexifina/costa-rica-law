@@ -1,0 +1,1 @@
+Artículo 18.-Antes de la aprobación del acta de cada sesión, los acuerdos tomados en cada una de ellas carecerán de firmeza, salvo los que con el voto de cuatro miembros acuerden su firmeza al momento de tomarlos.

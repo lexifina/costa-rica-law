@@ -1,0 +1,4 @@
+Artículo 13.-Las sesiones serán ordinarias y extraordinarias, debiendo iniciarse a más tardar quince minutos después de la hora convocada. Ante la falta de quorum, se dará un espacio de treinta minutos después de la hora fijada para conformar el mismo. La hora de inicio podrá ser modificada por acuerdo de tres miembros presentes.
+El consejo sesionará tres veces al mes, dos sesiones ordinarias y una extraordinaria.
+a. De las sesiones ordinarias: El Consejo sesionará ordinariamente dos veces al mes, en la primera y la tercera semana, sin que sea necesaria convocatoria especial.
+b. De las Sesiones Extraordinarias: Las sesiones extraordinarias deberán ser convocadas por escrito, por el Secretario Ejecutivo o por lo menos tres de los miembros del Consejo, con una antelación mínima de veinticuatro horas. A la convocatoria se adjuntará el orden del día, salvo casos de urgencia.
