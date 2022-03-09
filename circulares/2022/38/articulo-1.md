@@ -1,0 +1,9 @@
+CIRCULAR N° 38-2022
+ASUNTO: Reiteración de la circular N° 239-2020, del 20 de octubre de 2020, relativa a la "Obligación de las oficinas en las cuales se esté implementando el Modelo de Sostenibilidad y Seguimiento de los Proyectos de Rediseño, incluir en el Sistema de Proposición Electrónica de Nombramientos (PIN), como días no laborados solamente vacaciones, incapacidades, permisos con o sin goce de salario.
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 13-2022, celebrada el 15 de febrero de 2022, artículo XLVI, dispuso reiterar la circular N° 239-2020, del 20 de octubre de 2020, mediante la cual se indicó a todos los despachos jurisdiccionales en donde se está implementando el Modelo de Sostenibilidad y Seguimiento de los Proyectos de Rediseño, y en general a todos los despachos donde se cuenta con matrices de indicadores diseñadas por la Dirección de Planificación, que:
+Como días no laborados en las matrices solamente es posible incluir aquellos que igualmente implican un registro en el Sistema de Proposición Electrónica de Nombramientos (PIN), es decir, vacaciones, incapacidades, permisos con o sin goce de salario. Además, se les indica que el único ajuste en las cuotas que se puede realizar es en razón de la cantidad de días hábiles de cada mes. De ahí se calcula el rendimiento considerando la cantidad de días hábiles laborados, el cual se aplicará para planes de trabajo, ya que en las matrices la cuota se ajusta automáticamente.
+El informe N° 1395-PLA-MI-2020 de la Dirección de Planificación, se encuentra disponible en el siguiente enlace: https://secretariacorte.poder-judicial.go.cr/ index.php/documentos?download=5059:1395-pla-mi-2020
+Publíquese una sola vez en el Boletín Judicial.
+San José, 09 de marzo de 2022.
