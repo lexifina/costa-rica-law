@@ -1,4 +1,6 @@
+(Derogado)
 N° 10001
+(Esta norma fue derogada por el artículo 8° de la ley de Acciones afirmativas a favor de las personas afrodescendientes, N° 10120 del 2 de febrero de 2022)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 ACCIONES AFIRMATIVAS A FAVOR DE LAS
