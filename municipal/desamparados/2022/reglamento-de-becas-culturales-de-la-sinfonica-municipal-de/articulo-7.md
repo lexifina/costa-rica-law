@@ -1,0 +1,1 @@
+Artículo 7°-Ausencias. Cada persona integrante de la Sinfónica Municipal, en caso de que no pueda asistir a un ensayo o presentación, deberá justificar su ausencia o llegada tardía con la presentación de un comprobante idóneo dentro de los dos días hábiles siguientes a la ausencia o tardía.

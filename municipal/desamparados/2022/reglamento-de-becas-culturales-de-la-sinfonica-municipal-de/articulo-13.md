@@ -1,0 +1,1 @@
+Artículo 13.-Vigencia y derogaciones. El presente Reglamento rige a partir del día siguiente a su segunda publicación en el Diario Oficial La Gaceta y deroga todas las disposiciones reglamentarias sobre esta materia que se hayan aprobado con anterioridad.
