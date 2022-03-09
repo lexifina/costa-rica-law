@@ -1,1 +1,0 @@
-Artículo 39.—Traslado de actividades. En el caso que un permisionario decida trasladar las actividades de su establecimiento que cuenta con PSF a un nuevo edificio, deberá cumplir con lo establecido para el trámite de PSF por primera vez, conforme a lo que señala el artículo 10º de este Reglamento.

@@ -1,5 +1,0 @@
-CAPÍTULO VIII
-Del Otorgamiento de la Autorización Sanitaria
-Artículo 43.—Autorización sanitaria para actividades temporales sin establecimiento. Las personas interesadas en realizar una actividad o evento temporal que implique la concentración de personas, tales como actividades pirotécnicas, ferias, turnos, festejos populares, actividades taurinas o ecuestres, unidades móviles y similares, u otras actividades de esparcimiento o recreativas, que se realizan en lugares que no cuenten con infraestructura física permanente, deberán solicitar ante la DARS, una autorización sanitaria para llevar a cabo el evento específico, para lo cual deberá cumplir con los requisitos contenidos en los reglamentos específicos que regulan dichas actividades.
-De igual forma, cada unidad móvil y toda la infraestructura temporal que brinde servicio en la actividad, debe también solicitar la autorización de forma individual a la DARS, previo a su instalación y funcionamiento.
-La solicitud deberá presentarse de acuerdo a lo establecido en el Decreto Ejecutivo N° 28643 del 7 de abril del 2000 “Crea el Comité Técnico en Concentraciones Masivas del Ministerio de Salud”.

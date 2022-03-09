@@ -1,1 +1,0 @@
-Artículo 36.—Modificaciones no sustanciales por cambio de propietario del inmueble. En caso que la actividad permisionada opere en un inmueble que cambie de propietario, el solicitante deberá presentar autorización emitida por el nuevo propietario para operar en dicho sitio. Lo mismo operará en el caso de subarriendo del inmueble.

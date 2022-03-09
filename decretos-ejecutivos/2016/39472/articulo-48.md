@@ -1,1 +1,0 @@
-Artículo 48.—Solicitudes presentadas luego del vencimiento del PSF. La autoridad de salud de la DARS respectiva, está facultada para clausurar el establecimiento cuando el PSF esté vencido y cuyo trámite de renovación no se haya iniciado.

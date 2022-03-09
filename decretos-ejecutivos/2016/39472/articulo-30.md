@@ -1,1 +1,0 @@
-Artículo 30.—Vigencia del nuevo PSF. La vigencia del nuevo documento de PSF, emitido en virtud de las modificaciones o reposiciones señaladas en este capítulo, serán por el tiempo que le reste al PSF otorgado originalmente.

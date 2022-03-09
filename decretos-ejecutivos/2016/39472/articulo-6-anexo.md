@@ -1,5 +1,0 @@
-ANEXO 6.
-CERTIFICADO PERMISO SANITARIO DE FUNCIONAMIENTO
-[imagen]
-[imagen] [imagen]
-[imagen]

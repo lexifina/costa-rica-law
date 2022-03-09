@@ -1,1 +1,0 @@
-TRANSITORIO II.—Con el fin de promover el crecimiento económico de la microempresa, se establece un plazo de dos años a partir de la entrada en vigencia de este decreto, para que las actividades contempladas en el artículo 15 del presente reglamento, se ajusten y cumplan con lo establecido en la legislación correspondiente.
