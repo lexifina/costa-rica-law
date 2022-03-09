@@ -14,3 +14,4 @@ Oficializa y declara de interés público y nacional la "Norma para la Habilitac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-19 | la propia norma |
+| 2 | 2022-03-09 | Decreto Ejecutivo 43432 (2022-03-09) |
