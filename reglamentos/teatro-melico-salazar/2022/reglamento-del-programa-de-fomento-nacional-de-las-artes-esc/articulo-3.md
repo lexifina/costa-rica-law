@@ -1,0 +1,7 @@
+Artículo 3°-De los Objetivos del Proceso. El Proceso tendrá como objetivo:
+a) Fomentar y apoyar la investigación y el desarrollo de estudios de impacto económico, mercadeo cultural, audiencias, conservación, protección y difusión del patrimonio artístico escénico, entre otros, para mejorar el conocimiento del sector cultural y la definición de estrategias orientadas a fortalecer el impacto en la implementación y desarrollo de los procesos creativos apoyados por el Programa.
+b) Impulsar procesos de capacitación, formación, profesionalización e intercambio artístico que contribuyan a elevar el estándar de calidad de los procesos creativos y el nivel de excelencia artística de la oferta programática del país.
+c) Promover acciones orientadas al fomento de las artes escénicas articulando instrumentos de apoyo económico para el desarrollo de proyectos de artes escénicas en las etapas de gestación, investigación y desarrollo, creación, producción, difusión y circulación.
+d) Promover la disponibilidad, adecuación y equipamiento de espacios culturales públicos y privados para el desarrollo de las artes escénicas.
+e) Apoyar la difusión, visibilidad e inserción de las producciones de artes escénicas a nivel nacional e internacional.
+f) Apoyar el desarrollo de festivales, encuentros y seminarios de artes escénicas a nivel nacional y regional para el fortalecimiento del sector de artes escénicas, o que estimulen y ayuden a la consolidación de las organizaciones artísticas.
