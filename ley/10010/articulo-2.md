@@ -1,0 +1,1 @@
+ARTÍCULO 2- El inmueble donado será utilizado para las instalaciones del Centro Agrícola Cantonal de Alajuela. En caso de que el Centro Agrícola Cantonal de Alajuela llegara a disolverse o el inmueble se destine a otro uso no autorizado en la presente ley, el bien donado volverá de pleno derecho a ser propiedad de la Municipalidad de Alajuela.
