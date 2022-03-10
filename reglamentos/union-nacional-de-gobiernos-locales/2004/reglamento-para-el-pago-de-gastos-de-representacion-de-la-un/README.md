@@ -14,3 +14,4 @@ Reglamento para el pago de gastos de representación de la Unión de Gobiernos L
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-23 | la propia norma |
+| 2 | 2022-03-10 | Reglamento 7 (2022-03-10) |
