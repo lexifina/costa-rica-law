@@ -1,0 +1,1 @@
+Artículo 15.—Memoria de diseño: Toda planta de tratamiento instalada en el cantón, debe contar con una memoria de diseño, de la cual, es necesario presentar copia digital ante la administración y el departamento de construcciones, de esta Municipalidad.

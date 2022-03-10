@@ -1,0 +1,15 @@
+Artículo 9º—Otras disposiciones de los Sistemas Alcantarillado Sanitario para la sesión a la Municipalidad. Se establecen las siguientes disposiciones a cargo de las personas o empresas desarrolladoras:
+a. Hacer presentación formal de copia del Manual de Operación y de Mantenimiento ante la administración municipal.
+b. Anexo a los planos constructivos que se presenten para efecto de permisos de construcción de todas las obras del sistema del alcantarillado sanitario, debe presentarse ante la administración del Acueducto Municipal y el Departamento de construcciones de la Municipalidad, copia de la Memoria de Cálculo y de la Memoria de Operación y de Mantenimiento.
+c. Llevar a cabo la operación y el mantenimiento de la planta de tratamiento hasta que la urbanización esté habitada en un 80%. O al menos un año de operación.
+d. Durante el período que recaiga la responsabilidad de la operación y mantenimiento de la Planta de Tratamiento de Aguas Residuales de una urbanización sobre la empresa constructora o encargados, ésta deberá presentar los reportes operacionales ante el Ministerio de Salud, en forma escrita con copia a la Municipalidad, que demuestre el funcionamiento de la planta de acuerdo al cumplimiento de los rangos de
+los parámetros exigidos por ley. Así mismo se debe presentar el permiso de funcionamiento de la red de alcantarillado y la planta de tratamiento.
+e. Brindar capacitación al personal municipal que asumirá la operación y mantenimiento de la planta de tratamiento en caso de ser de orden público posterior a la entrada de operación de la planta.
+f. La entrega de la planta de tratamiento a la Municipalidad debe de hacerse demostrando el perfecto estado de funcionamiento.
+g. Para entrega y recepción de las plantas de tratamiento de Aguas Residuales se aplicará supletoriamente los trámites, requisitos y procedimientos definidos por Instituto Costarricense de Acueductos y Alcantarillados en su normativa más reciente.
+h. En caso de requerirse equipo electromecánico debe entregarse con duplicado de todas las partes que sean necesarios de sustituir en caso de desperfecto o emergencia.
+i. Todo equipo a instalar en las obras de alcantarillado sanitario y en la Planta de Tratamiento de Aguas Residuales debe contar con asesoría técnica y de suministro de repuestos.
+j. La vigencia de garantía de cualquier equipo utilizado debe ser de al menos un año, contado a partir de recibidas las obras por parte de la Municipalidad.
+k. En los manuales de operación y de mantenimiento de toda planta de tratamiento de aguas residuales se debe especificar todas las actividades de limpieza indicando el tiempo para realizar cada actividad, el día y la hora.
+l. Todas las actividades de operación y mantenimiento a realizar en una planta de tratamiento de aguas residuales deberán quedar registradas en el cuaderno de Bitácora.
+m. Se debe entregar el permiso de vertidos, así como los comprobantes de pago del Canon correspondiente al periodo de operación previo a la recepción de la planta de tratamiento.

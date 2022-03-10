@@ -1,0 +1,1 @@
+Artículo 14.—Manual de operación y mantenimiento: Toda planta de tratamiento construida en el cantón, sea ésta de origen público o privado, debe contar con un manual de operación y de mantenimiento, el cual contendrá los procedimientos y labores a ejecutar, que deben considerarse en el tratamiento del agua residual para cumplir los parámetros exigidos por ley.

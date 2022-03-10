@@ -1,0 +1,3 @@
+CAPÍTULO V
+Garantías
+Artículo 19.—Las Garantías de cumplimiento: Se exigirán garantías de cumplimiento de obras que deben aportar las personas o empresas desarrolladoras en materia de alcantarillado sanitario, Plantas de Tratamiento de Aguas Residuales del Cantón de Jiménez, las cuales deberán ser calculadas en forma independiente como sigue: Un monto para obras de Urbanización esto incluye el alcantarillado sanitario, y un monto para obras de la Planta de Tratamiento de Aguas Residuales. Las garantías de cumplimiento deben ser un monto del doble del costo de las obras de la planta de tratamiento, de tal forma que cubran el costo de las mismas en caso de incumplimiento y cubran la inflación si fuera requerido.

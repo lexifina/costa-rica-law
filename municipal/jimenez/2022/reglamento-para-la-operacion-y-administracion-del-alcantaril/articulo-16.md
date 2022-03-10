@@ -1,0 +1,1 @@
+Artículo 16.—Tipos de Operación: Los tipos de operación del alcantarillado sanitario y las plantas de tratamiento de aguas residuales son por gravedad o utilizando equipos electromecánicos o combinación de éstos. En cualquiera de estos tipos de operación, las tuberías a utilizar deberán contar con una resistencia adecuada.
