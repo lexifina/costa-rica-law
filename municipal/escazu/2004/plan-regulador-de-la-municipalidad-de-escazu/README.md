@@ -17,3 +17,4 @@ Plan Regulador de la Municipalidad de Escazú
 | 2 | 2006-04-24 | Reglamento municipal 208 (2006-04-24) |
 | 3 | 2019-06-17 | Reglamento municipal 164 (2019-06-17) |
 | 4 | 2020-10-05 | Reglamento municipal 23 (2020-10-05) |
+| 5 | 2022-03-10 | Reglamento municipal 0 (2022-03-10) |

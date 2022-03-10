@@ -1,19 +1,19 @@
-Artículo 11.—Zonas residenciales. Las siguientes normas incluyen las urbanizaciones existentes ubicadas en las zonas de baja, media y alta densidad, así como las zonas definidas como residenciales por este plan.
+Artículo 11.-Zonas residenciales. Las siguientes normas incluyen las urbanizaciones existentes ubicadas en las zonas de baja, media y alta densidad, así como las zonas definidas como residenciales por este plan.
 11.1. Usos conexos o complementarios a vivienda. Las zonas residenciales son los terrenos destinados predominantemente al uso de vivienda; sin embargo, se contempla dentro del Plan Regulador que existan algunos usos complementarios o conexos a los sectores de vivienda, que llenen las necesidades cotidianas de la comunidad, pero bajo ciertas restricciones de tamaño y ubicación, así como de uso, para que no vayan a producir problemas de estacionamiento, ruido u olores. Se contemplan dentro de estos usos condicionales los siguientes:
-• Salón de belleza.
-• Tienda.
-• Bazar.
-• Librería.
-• Pulpería.
-• Venta de repostería.
+. Salón de belleza.
+. Tienda.
+. Bazar.
+. Librería.
+. Pulpería.
+. Venta de repostería.
 En general, comercio y servicios pequeños que puedan mantener confinadas las molestias dentro de la propiedad.
 Estos usos solo se podrán ubicar en terrenos frente a la calle principal de la zona residencial (ruta nacional o vía primaria de 14 metros) y no podrán tener más de 30 metros de área. Solo se permitirán estos usos siempre y cuando tengan como mínimo dos espacios de parqueo dentro del lote para uso exclusivo del comercio.
 Se permitirán también dentro de esta categoría oficinas de servicios profesionales, siempre y cuando sean del propietario de la vivienda y disponga como mínimo de un espacio de parqueo interno para uso exclusivo de los clientes, tales como:
-• Abogado.
-• Ingeniero.
-• Arquitecto.
-• Dentista.
-• Médico.
+. Abogado.
+. Ingeniero.
+. Arquitecto.
+. Dentista.
+. Médico.
 Igualmente, en estos casos las oficinas no podrán tener más de 30 m2 de área. No se admiten oficinas en zonas residenciales salvo las mencionadas anteriormente.
 No se admitirán dentro de zonas residenciales los siguientes usos: clínicas de servicio médico, clínicas veterinarias, pooles, billares y juegos electrónicos, asilos, albergues, iglesias, juzgados, alcaldías, guarderías infantiles, escuelas y centros de enseñanza privada, teatros, sedes corporativas, clubes nocturnos y diurnos, salas de masajes, cafeterías, panaderías y similares.
 En urbanizaciones nuevas deberá quedar definido en el plano de conjunto aprobado por la Municipalidad, el uso conforme con el Plan Regulador que se le dará a cada lote, el cual no podrá ser modificado ni fraccionado posteriormente.
@@ -21,7 +21,9 @@ Cuando la actividad comercial sea complemento de una residencia y no el único f
 En las zonas residenciales únicamente se permiten los rótulos funcionales, con una área no mayor a 0.5 metro cuadrado (1 metro x 0,50 metros), cuyo propósito sea llamar la atención sobre la actividad que se ofrece en el mismo sitio donde este está ubicado. Se permite un solo aviso por fachada del local; sin embargo, en lotes esquineros se permitirá la instalación de uno por cada costado.
 El rótulo debe alinearse paralelamente al frente del terreno y no puede salir de la línea de propiedad. Su altura máxima de colocación será de 3 metros.
 En las Zonas Residenciales de Media Alta Densidad (ZRMAD), Zona Residencial de Alta Densidad (ZRAD) y Zona Residencial de Alta Densidad (ZRAAD), en el sector urbano de San Antonio, se permitirán usos comerciales de no más de 100 m2 y oficinas de no más de 120 m2, siempre y cuando tengan un mínimo de un espacio de parqueo por cada 50 m2 para ambos usos. No se admitirán dentro de estas zonas usos que no sean complementarios al uso residencial tales como bares, video juegos, pooles, salas de masaje, salas de fiesta y similares.
-11.2. Zona Residencial Baja Densidad (ZRBD). En el plano de zonificación de Escazú se reconocen cuatro sectores con estas características: uno corresponde a la zona este de Bello Horizonte; otro a la zona comprendida entre Cerro Coyote y Cerro Palomas, extendiéndose hasta el sector de "Le Monastére". Las pendientes son fuertes, del 20% al 30%; la escorrentía es rápida, por lo que se debe tener cuidado en el uso del terreno. Por tanto, se debe manejar una densidad baja (17 viv/ha), de manera que esta zona mantenga bajos impactos por el uso residencial. Otra zona abarca la urbanización Los Laureles y Los Rosales, la cual a lo largo de los años ha preservado la característica de residencial unifamiliar y esta condición se mantiene dentro del Plan Regulador. Igualmente, el sector del barrio Maynard, Calle Lanford y Calle Los Faroles, se mantiene como de baja densidad, dadas las características actuales de dichos barrios.
+11.2. Zona Residencial Baja Densidad (ZRBD).
+En el plano de zonificación de Escazú se reconocen cuatro sectores con estas características: uno corresponde a la zona este de Bello Horizonte; otro a la zona comprendida entre Cerro Coyote y Cerro Palomas, extendiéndose hasta el sector de "Le Monastére". Las pendientes son fuertes, del 20% al 30%; la escorrentía es rápida, por lo que se debe tener cuidado en el uso del terreno. Por tanto, se debe manejar una densidad baja (17 viv/ha), de manera que esta zona mantenga bajos impactos por el uso residencial. Otra zona abarca la urbanización Los Laureles y Los Rosales, la cual a lo largo de los años ha preservado la característica de residencial unifamiliar y esta condición se mantiene dentro del Plan Regulador. Igualmente, el sector del barrio Maynard y Calle Lanford, se mantiene como de baja densidad, dadas las características actuales de dichos barrios.
+(Así reformado el punto 11.2 anterior mediante publicación en el Alcance Digital N° 51 a La Gaceta N° 47 del 10 de marzo del 2022)
 11.2.1. Requisitos. La superficie mínima del lote será de 600 metros cuadrados, pero en caso de existencia de servicio de cloaca, será de 500 metros cuadrados; el frente mínimo es de 15 metros; la cobertura máxima es de 50% y la altura máxima de las edificaciones será de 7 metros.
 11.2.2. Retiros. El retiro frontal no será menor de 3 metros; para los laterales y posterior, ver artículo 9.5.
 11.2.3. Usos conformes.
@@ -137,9 +139,10 @@ f. Talleres automotrices.
 g. Pooles y billares.
 h. Moteles y casas de citas.
 Las urbanizaciones consolidadas ubicadas dentro del área zonificada dentro de ZRMAD se les aplicarán las normas de Zona Residencial de Alta Densidad (ZRAD), con excepción de la altura que se mantiene en 10,5 m.
-11.5. Zona Residencial Alta Densidad (ZRAD). Según el plano de zonificación, esta se ubica en la parte Norte del cantón y además abarca las áreas comerciales con el afán de reglamentar las zonas residenciales dentro de las comerciales, y se concibe como una área de concentración poblacional, ya que posee las mejores condiciones para el crecimiento urbano; las pendientes son bajas y la posibilidad de lograr una excelente infraestructura es aún mayor. Esta zona tendrá una densidad de 50 viviendas por hectárea. Comprende el sector de Trejos Montealegre, el sector al Sur de la ruta nacional 105 (sector Vista Alegre, Anonos, una parte de Bello Horizonte), y el sector al Norte de la misma ruta, antigua carretera a Santa Ana hasta el sector del Centro Comercial La Paco.
-Dentro de estas zonas, en el sector que aparece afectado por la proximidad a cauces de ríos, deberá dejarse un retiro mínimo de 10 metros de no construcción desde la margen del río; además, para urbanizar esas zonas deben realizarse obras de infraestructura protectoras y rellenos que incrementen la altura del terreno para evitar que posibles avalanchas inunden el terreno urbanizado.
+11.5. Zona Residencial Alta Densidad (ZRAD).
+Según el plano de zonificación, esta se ubica en la parte Norte del cantón y además abarca las áreas comerciales con el afán de reglamentar las zonas residenciales dentro de las comerciales, y se concibe como un área de concentración poblacional, ya que posee las mejores condiciones para el crecimiento urbano; las pendientes son bajas y la posibilidad de lograr una excelente infraestructura es aún mayor. Esta zona tendrá una densidad de 50 viviendas por hectárea. Comprende el sector al Sur de la ruta nacional 105 (sector Vista Alegre, Anonos, una parte de Bello Horizonte), y el sector al Norte de la misma ruta, antigua carretera a Santa Ana hasta el sector del Centro Comercial La Paco. Dentro de estas zonas, en el sector que aparece afectado por la proximidad a cauces de ríos, deberá dejarse un retiro mínimo de 10 metros de no construcción desde la margen del río; además, para urbanizar esas zonas deben realizarse obras de infraestructura protectoras y rellenos que incrementen la altura del terreno para evitar que posibles avalanchas inunden el terreno urbanizado.
 Los sectores en Bello Horizonte dentro de esta categoría, propensos a inundarse por la Quebrada Quebradillas, serán objeto de un estudio especial hidrológico para evaluar la aceptación o no de los proyectos propuestos dentro de esas zonas. Además, los desarrollos que se hagan en la parte central de Bello Horizonte, al tener problemas de capacidad de desfogue de las aguas pluviales dentro de la cuenca de la Quebrada Quebradillas, deberán resolver el problema de conducción de aguas pluviales fuera de la cuenca de la mencionada quebrada.
+(Así reformado el punto 11.5 anterior mediante publicación en el Alcance Digital N° 51 La Gaceta N° 47 del 10 de marzo del 2022)
 11.5.1. Requisitos. La superficie mínima del lote será de 200 m2, pero en caso de existir servicio de cloaca, será de 180 m2. El frente mínimo será de 10 metros; la altura de edificación máxima, de 14 metros frente a vías de ese ancho y de 11 metros cuando la vía tenga asignado ese derecho de vía, salvo si está frente a la ruta nacional Nº 121 (antigua carretera a Santa Ana), cuya altura máxima podrá llegar hasta 21 metros. La cobertura máxima será del 70%.
 11.5.2. Retiros. El retiro frontal no será menor de 2 metros; para los laterales y el posterior, ver el artículo 9.5. Frente a bulevares, el retiro será de 3 m de antejardín. En las calles nacionales, el retiro frontal será indicado por el Ministerio de Obras Públicas y Transportes (MOPT).
 11.5.3. Usos conformes.
@@ -201,16 +204,16 @@ En las zonas de comercio donde se permita vivienda de alta densidad privan las n
 11.6. Zona Residencial de Alta Alta Densidad (ZRAAD). Se concibe como una serie de zonas de alta concentración poblacional para dar cabida a soluciones habitacionales de interés social, para la población económicamente menos favorecida del cantón. Estas zonas tendrán una densidad máxima de 150 viviendas por hectárea.
 Esta categoría incluye los siguientes sectores que por sus características actuales socioeconómicas y de densidad requieren de normas especiales que permitan consolidarlos como zonas de una densidad más alta que la ZRAD.
 Los siguientes sectores estarían sujetos a la reglamentación de esta zona, a saber:
-• En Guachipelín: Calle Boquerón (lotes de familias Jiménez Herrera y Jiménez Segura), Calle Los Herrera (alrededores de Iglesia San Gabriel), Calle Los Azofeifa (lotes Chino Wong y Enoc Azofeifa).
-• Sector Carrizal Medio: del puente a Barrio Corazón de Jesús.
-• Sector Urbanización Zárate.
-• Calle León en Bello Horizonte.
-• Lotes Protti: alrededores de La Hulera.
-• Calle Los Reyes: entre la Calle San Miguel y el Abastecedor Buenos Aires.
-• Urbanización Manuel Antonio: entre calle Sabanillas y lotes Toño León.
-• Sector Calle Entierrillos: alrededores del antiguo tanque Municipal y familia Arias Alvarado.
-• Sector Acave 1 y 2.
-• Calle Bernabé León y sectores aledaños.
+. En Guachipelín: Calle Boquerón (lotes de familias Jiménez Herrera y Jiménez Segura), Calle Los Herrera (alrededores de Iglesia San Gabriel), Calle Los Azofeifa (lotes Chino Wong y Enoc Azofeifa).
+. Sector Carrizal Medio: del puente a Barrio Corazón de Jesús.
+. Sector Urbanización Zárate.
+. Calle León en Bello Horizonte.
+. Lotes Protti: alrededores de La Hulera.
+. Calle Los Reyes: entre la Calle San Miguel y el Abastecedor Buenos Aires.
+. Urbanización Manuel Antonio: entre calle Sabanillas y lotes Toño León.
+. Sector Calle Entierrillos: alrededores del antiguo tanque Municipal y familia Arias Alvarado.
+. Sector Acave 1 y 2.
+. Calle Bernabé León y sectores aledaños.
 Entre estas zonas, para el sector que aparece afectado por la mancha de amenaza de avalanchas (de acuerdo con el mapa de Amenazas Naturales que acompaña este Plan Regulador), deberá dejarse un retiro de no construcción de 20 metros de la margen del río; además, en caso de urbanizar estas zonas en terrenos colindantes con esta franja de 20 metros, deben realizarse obras de infraestructura protectoras y rellenos que incrementen la altura del terreno, para evitar que posibles avalanchas inunden los terrenos urbanizados. Los sectores dentro de esta categoría, propensos a inundarse por la Quebrada Quebradillas, serán objeto de un estudio especial hidrológico, para evaluar la aceptación o no de los proyectos propuestos dentro de estas zonas. Además, los desarrollos que se hagan en la parte central de Bello Horizonte, al tener problemas de capacidad de desfogue pluvial dentro de la cuenca de la quebrada antes mencionada, deberán resolver adecuadamente el problema de conducción de aguas pluviales fuera de esta cuenca.
 Para efectos del Plan Regulador se define el término "interés social" para los casos de fraccionamientos, segregaciones y/o construcciones de núcleos familiares que por las características del terreno o construcción no cumplan con la norma mínima fijada en el sector donde se encuentren, y que se trate de la única propiedad en posesión del solicitante de la declaratoria.
 11.6.1. Requisitos. La superficie mínima de lote será de 150 metros, pero en caso de existir servicio de cloaca, será de 120 metros. El frente mínimo será de seis metros, la altura de la edificación máxima, de 10,5 m frente a calle pública, independientemente del ancho del derecho de vía, o frente a servidumbre, de 5 o más metros de ancho. Sobre servidumbre de menos de 5 metros la altura máxima será de 7 metros. El 80% del terreno deberá tener una pendiente igual o menor al 10%. La cobertura máxima será del 75%. Los rótulos no podrán medir más de 1,5 m2.
