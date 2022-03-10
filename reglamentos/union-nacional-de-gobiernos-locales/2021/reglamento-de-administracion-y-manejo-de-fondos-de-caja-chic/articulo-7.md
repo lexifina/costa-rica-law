@@ -1,5 +1,2 @@
-Artículo 7º-Utilización de La Caja Chica. El monto máximo para realizar solicitud de adelanto de fondos de la caja chica no deberá de superar 30% del fondo establecido y de acuerdo a lo estipulado en el presupuesto del proyecto mUEve.
-Los fondos de caja chica para la ejecución del proyecto mUEve será permitidos siempre y cuando se cumpla con las siguientes directrices:
-a) Estar indicados en el presupuesto total estimado de la acción: Todo bien o servicios que se requiera y sea tramitado mediante el fondo de caja chica deberá de estar considerados dentro del presupuesto del proyecto mUEve, los mismos podrán estar indicados en alguna partida presupuestaria definida o bien podrán considerarse dentro de los costos indirectos respetado lo indicado en las condiciones generales del proyecto.
-b) Ser necesarios para la ejecución de la acción: La adquisición de los bienes y servicios que tramiten mediante los fondos de caja chica deberán de ser dispensables para la ejecución del proyecto.
-c) Ser identificables y comprobables: Todos las facturas deberán de estar registrados en la contabilidad del beneficiario y determinados conforme a las normas de contabilidad y las prácticas habituales de contabilidad de costes aplicables al beneficiario.
+Artículo 7º-Se fija el límite máximo para la compra de bienes y servicios con dicho fondo, en la suma ¢300.000,00 (trescientos mil colones exactos).
+(Así reformado mediante Sesión N° 07-2022 del 10 de marzo de 2022)

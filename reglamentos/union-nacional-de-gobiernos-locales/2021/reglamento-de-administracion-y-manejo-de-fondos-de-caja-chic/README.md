@@ -14,3 +14,4 @@ Reglamento de administración y manejo de fondos de caja chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-09-30 | la propia norma |
+| 2 | 2022-03-10 | Reglamento 7 (2022-03-10) |
