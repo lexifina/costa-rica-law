@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE TURRUBARES
+ALCALDÍA MUNICIPAL
+La Municipalidad de Turrubares, en su condición de Administración Tributaria y en aras de dar cumplimiento a sus competencias, acuerda adherirse al "Manual de Valores Base Unitarios por Tipología Constructiva", publicado por el Órgano de Normalización Técnica del Ministerio de Hacienda en el Alcance Digital N° 213, Diario Oficial La Gaceta N° 202 de fecha 20 de octubre del 2021, para efectos de lo que indica la Ley N° 7509 y sus reformas - Ley del Impuesto sobre Bienes Inmuebles. La aplicación de dicho Manual en la Municipalidad del cantón de Turrubares, empezará a regir desde su publicación.
