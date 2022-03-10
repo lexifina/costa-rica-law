@@ -15,9 +15,9 @@ Sistema: Software en línea y tiempo real que administra cada una de las transac
 Terminal: Dispositivo de entrada y salida remoto de datos, producción de documentos impresos y comunicación de mensajes originados en un sistema remoto de cómputo central (dispositivo físico - equipo - utilizado para la venta y procesamiento transaccional del pago de premios de lotería electrónica).
 Premio fijo: Premio que asegura a los ganadores un monto de dinero fijo sin importar la cantidad de ganadores.
 Comprobante de transacción: Tiquete impreso por una terminal ubicada en un punto de venta autorizado en donde se indican las características de las apuestas o pago de premios realizados al jugador, incluyendo pero no limitado a, nombre del producto comprado, monto en dinero apostado, números seleccionados por el jugador, fechas, número de sorteo, entre otros.
-Jugada multi-sorteos: El jugador tendrá la oportunidad de hacer apuestas a sorteos consecutivos tanto para mediodía, noche o ambos hacia el futuro, hasta un límite de 10 sorteos incluyendo el vigente.
-Jugadas en avance: Apuestas en sorteos que ocurrirán en el futuro, a partir de un sorteo que ocurre después del próximo, tanto para mediodía, noche o ambos, siempre y cuando la apuesta se realice para uno de los sorteos contenidos en los siguientes 8 días naturales contados a partir del momento de la compra.
-Jugadas multi-sorteo en avance: Apuestas multi-sorteo (10 sorteos) en avance (a futuro), siempre y cuando el primer sorteo seleccionado de esa compra, esté contenido en uno de los siguientes 8 días naturales contados a partir del momento de la compra.
+Jugada multi-sorteos: (Derogada esta definidión mediante sesión N° 15-2022 del 10 de marzo de 2022)
+Jugadas en avance: (Derogada esta definidión mediante sesión N° 15-2022 del 10 de marzo de 2022)
+Jugadas multi-sorteo en avance: (Derogada esta definidión mediante sesión N° 15-2022 del 10 de marzo de 2022)
 Promoción: Otorgamiento de premios especiales en especie, en efectivo o ambas, según corresponda, adicionales y asociados con el Juego Nuevos Tiempos y sus modalidades, por un período determinado, con la finalidad de incentivar la venta del producto.
 (Así adicionada la definición anterior mediante sesión N° 56-2021 del 23 de setiembre de 2021)
 (Así reformado la definición anterior mediante sesión N° 69-2021 del 22 de noviembre de 2021)
