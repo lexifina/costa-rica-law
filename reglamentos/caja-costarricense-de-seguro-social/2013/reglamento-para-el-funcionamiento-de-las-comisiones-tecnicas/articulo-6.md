@@ -1,2 +1,2 @@
-Artículo 6º—Obligatoriedad. El funcionario designado y su jefatura formal inmediata no podrán rechazar el nombramiento, salvo que el funcionario se encuentre cubierto por las excepciones dispuestas en este Reglamento.
-En todos los casos, la Gerencia de Logística coordinará las acciones pertinentes con el órgano o instancia a la que pertenece el funcionario con el ánimo de no afectar la continuidad del servicio de atención directa.
+Artículo 6º-Obligatoriedad. El funcionario designado y su jefatura formal inmediata no podrán rechazar el nombramiento, salvo que el funcionario se encuentre cubierto por las excepciones dispuestas en este Reglamento.
+En todos los casos, la Gerencia correspondiente, o el superior jerárquico de la unidad, coordinará las acciones pertinentes con el órgano o instancia a la que pertenece el funcionario con el ánimo de no afectar la continuidad del servicio de atención directa.

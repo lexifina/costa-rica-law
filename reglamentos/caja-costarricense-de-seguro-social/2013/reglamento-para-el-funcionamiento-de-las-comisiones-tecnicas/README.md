@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de las comisiones técnicas de normalización 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-10 | la propia norma |
+| 2 | 2022-03-10 | Reglamento 9245 (2022-03-10) |
