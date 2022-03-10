@@ -1,4 +1,0 @@
-Artículo 9º—De los días de sorteos. Los sorteos de 3 Monazos se realizarán en el horario y frecuencia que determine el Calendario de Sorteos aprobado por la Junta Directiva, en las instalaciones de la Junta o en el lugar que ésta defina. Se realizarán los días lunes, miércoles, jueves y sábado, desde su lanzamiento y durante un período de seis meses. Una vez concluido este período, los sorteos se realizarán de lunes a domingo.
-El día, la hora o el lugar de realización de estos sorteos podrá ser modificado por la Junta Directiva, previa comunicación al público general por los medios correspondientes según la Ley.
-Así mismo se reserva el derecho de eliminar o suprimir sorteos, siempre y cuando existan razones de fuerza mayor o caso fortuito que impidan su realización.
-Los sorteos serán fiscalizados conforme lo dispone el artículo 75 del Reglamento a la Ley de Loterías.”

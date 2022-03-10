@@ -1,2 +1,0 @@
-Artículo 13.—Premios no cambiados.. Los premios disponibles en cada sorteo que no hayan sido cambiados al finalizar el plazo para hacer efectivos los premios, se considerarán parte de las utilidades del juego.
-De conformidad con lo indicado en los Acuerdos JD- 1054 correspondiente al Capítulo IV) artículo 7) de la sesión extraordinaria No. 65-2018 celebrada el 15 de noviembre de 2018 y JD-563 correspondiente al Capítulo II), artículo 2) de la Sesión Ordinaria 44-2019 celebrada el 29 de julio de 2019.
