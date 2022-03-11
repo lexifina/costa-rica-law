@@ -1,0 +1,1 @@
+Artículo 22 - Corresponde al obligado urbanístico coordinar con los proveedores de servicios tales como AyA, ESPH, CNFL y similares, la instalación de las cajas, los registros, llaves de paso, medidores, o cualquier otro dispositivo similar, de modo que no sobrepasen o estar inferiores al nivel final de la acera, además de contar con la respectiva tapa.

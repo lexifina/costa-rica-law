@@ -1,0 +1,1 @@
+Artículo 30 - Franjas verdes: Las franjas verdes solo se permitirán en aceras con un ancho igual o superior a 1.20 metros, para el diseño y dimensionamiento deberá consultarse a la Municipalidad y tramitar para tal fin el respectivo alineamiento.

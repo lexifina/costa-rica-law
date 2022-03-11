@@ -1,0 +1,4 @@
+CAPÍTULO III
+DEL PROCEDIMIENTO PARA EL COBRO POR OBRAS REALIZADAS POR LA
+MUNICIPALIDAD
+Artículo 9 - Una vez efectuadas las obras o servicios por parte de la Municipalidad, la Sección de Servicios Tributarios comunicará al propietario o poseedor el aviso de cobro donde se le informa de los costos efectivos del servicio o la obra. El munícipe deberá reembolsar el costo efectivo en el plazo máximo de ocho días hábiles a partir del momento en que se notificó. En caso de que el munícipe no cancele el costo del servicio u obra en el plazo establecido, se le cobrará un recargo por concepto de multa equivalente al cincuenta por ciento (50%) de los costos y obras efectivos y se trasladará a cobro administrativo y de no cancelarse o realizarse arreglo de pago ante la Sección de Servicios Tributarios se remitirá a cobro judicial.

@@ -1,0 +1,1 @@
+Artículo 20 - Dimensiones de las aceras. La construcción de aceras se realizará preferiblemente mediante losas de concreto, en paños de 1.50 m a 2,00 m de largo. Las juntas entre los paños se deberán hacer de una profundidad entre 3 a 4 cm y un ancho de 6 a 8 mm. La resistencia del concreto deberá ser de 175 kg/cm2 a 210 kg/cm2.

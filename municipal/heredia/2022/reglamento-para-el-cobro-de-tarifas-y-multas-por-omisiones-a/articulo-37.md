@@ -1,0 +1,1 @@
+Artículo 37 - Efectos del incumplimiento. El incumplimiento del artículo anterior será causal de suspensión de las obras por parte de la Sección de Control Fiscal y Urbano seguido de la eliminación de los obstáculos mediante el procedimiento establecido en el presente reglamento, con costo a cargo del propietario del inmueble.
