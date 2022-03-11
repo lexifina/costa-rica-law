@@ -1,0 +1,1 @@
+Artículo 18. Queda prohibido mantener rótulos en estado de deterioro o abandono evidente, desde el punto de vista estético o que represente un peligro para la integridad fisica de personas, animales, bienes muebles o inmuebles.

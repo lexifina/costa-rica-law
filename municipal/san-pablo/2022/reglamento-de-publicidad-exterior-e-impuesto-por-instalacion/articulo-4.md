@@ -1,0 +1,15 @@
+Artículo 4. Los requisitos para obtener la licencia son los siguientes:
+a) Encontrarse al día con las obligaciones municipales, tanto el solicitante de la licencia así como el dueño del predio donde será ubicada la estructura.
+b) Llenar formulario de solicitud del permiso.
+c) )Aportar el visto bueno del departamento de Infraestructura Privada de la Municipalidad. Dicho visto bueno deberá referirse no solo a aspectos técnicos de la estructura del rotulo, sino también a su estética; de conformidad con lo indicado en el inciso x) del presente artículo. Para obtener dicho visto bueno deberá presentar la siguiente documentación a dicho departamento:
+i. Copia del plano catastrado visado del lote donde se va a ubicar el rótulo, con el alineamiento oficial otorgado por la Municipalidad o el MOPT.
+ii. Croquis del rótulo, incluyendo el arte de la propaganda o anuncio.
+iii. Plano constructivo del rótulo, si este requiere de estructura de soporte o anclaje especial y si tiene más de 6 m2 de área de publicidad. El plano deberá indicar además de la estructura de anclaje o soporte, los materiales de construcción y el sistema de iluminación, así como su intensidad lumínica, si lo incluye, con las especificaciones técnicas y diseño eléctrico, con la firma del profesional responsable (Arquitecto o Ingeniero).
+iv. Para rótulos adosados a la fachada y que formen parte de esta, se debe adjuntar un levantamiento de la fachada con medidas a escala, especificando la ubicación exacta y un boceto del contenido del mensaje o imagen del rótulo.
+v. Para los rótulos con soporte independiente debe incluirse un plano de ubicación que muestre la distancia a las colindancias y al alineamiento oficial, así como hasta la edificación, si esta existiera.
+vi. En los rótulos que requieran plano constructivo, de acuerdo con los incisos anteriores, se exigirá póliza para cubrir daños a terceros. El monto de la póliza la determinará el Departamento de Infraestructura privada, tomando en cuenta el tamaño, la altura y la complejidad del rótulo.
+vii. Todos los rótulos deberán presentar un satisfactorio aspecto estético y no contendrán expresiones obscenas o contrarias a la moral, al orden público o a las buenas costumbres, ni términos que directamente dañen o injurien los derechos consagrados en la Constitución o en las leyes. El visto bueno del departamento de infraestructura privada deberá referirse a este tema también.
+viii. Haber cancelado el rubro correspondiente al permiso de construcción del rótulo.
+ix. Observancia de lo dispuesto en artículo 10 del presente reglamento.
+d) Una vez otorgada la licencia de publicidad exterior, la secc10n de Licencias Municipales suministrará al titular un certificado de licencia de rótulo que haga constar la vigencia del mismo el cual deberá mantenerse en el sitio o local donde se instalare el rótulo en forma visible y accesible al inspector municipal.
+e) El titular de la licencia deberá colocar o insertar en la publicidad exterior, en el ángulo inferior izquierdo, una calcomanía suministrada por las autoridades municipales la cual hará constar que cuenta con la licencia respectiva.

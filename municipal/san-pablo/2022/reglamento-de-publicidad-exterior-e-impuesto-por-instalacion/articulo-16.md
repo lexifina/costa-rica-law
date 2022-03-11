@@ -1,0 +1,1 @@
+Artículo 16. Cuando en una construcción nueva se pretenda instalar publicidad exterior, el interesado deberá gestionar este permiso, de acuerdo con los lineamientos de este reglamento, desde el momento en que tramite el permiso de construcción correspondiente.

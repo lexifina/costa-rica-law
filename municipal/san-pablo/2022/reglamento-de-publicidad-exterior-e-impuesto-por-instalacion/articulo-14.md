@@ -1,0 +1,3 @@
+Artículo 14. Rótulos temporales: Se otorgarán por un plazo de un mes como mínimo y tres meses como máximo con el propósito de anunciar, publicitar o informar sobre actividades temporales. Se incluye en esta categoría todo tipo de manta, líneas de banderolas, y rótulos de cualquier tipo de acabado.
+Deberán ser de materiales livianos. Estos se incluyen en los rótulos de venta o alquiler, rótulos de obras en construcción, etc. Si vencido el plazo otorgado para la licencia temporal continúa el rótulo colocado, la Municipalidad procederá desmantelamiento del mismo.
+Los rótulos temporales deberán pagar el impuesto correspondiente por el tiempo en que vayan a ser colocados y adecuarse a las condiciones establecidas en este reglamento.
