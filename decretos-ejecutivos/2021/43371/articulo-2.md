@@ -1,0 +1,1 @@
+Artículo 2º-Competencias. Este Arancel es de acatamiento obligatorio para las personas traductoras e intérpretes oficiales aquí reguladas, para los particulares en general y para las personas funcionarias públicas de toda índole, y contra él no podrán oponerse acuerdos o disposiciones de entidades públicas o privadas en relación con honorarios y la oportunidad de su pago.
