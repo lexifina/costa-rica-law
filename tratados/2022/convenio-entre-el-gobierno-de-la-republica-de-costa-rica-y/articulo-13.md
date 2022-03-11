@@ -1,0 +1,4 @@
+Artículo 13
+Ejecución de la sanción en el Estado Receptor
+1. El Estado receptor queda obligado por la naturaleza y la duración de la sanción en los términos determinados por el Estado trasladante.
+2. Si la sanción es por su naturaleza o duración, o por ambas, incompatible con las leyes del Estado receptor, o si así lo requieren sus leyes, dicho Estado podrá, por orden judicial o administrativa, adaptar la sentencia a una pena o medida prescrita por sus propias leyes para las infracciones de igual naturaleza. En cuanto a su naturaleza y duración, la sanción o medida deberá, en lo posible, corresponderse con la impuesta en la sentencia del Estado trasladante. No podrá agravar por su naturaleza o por su duración la sanción impuesta en el Estado trasladante ni exceder del máximo previsto por la ley del Estado Receptor.

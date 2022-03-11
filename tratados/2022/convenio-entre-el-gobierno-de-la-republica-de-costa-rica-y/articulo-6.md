@@ -1,0 +1,8 @@
+Artículo 6
+Solicitudes y respuestas
+1. La persona sancionada p:Jede presentar la solicitud de traslado directamente al Estado trasladante, o ante su representación diplomática o consular, o a través de un representante legal o de sus familiares.
+2. El traslado puede ser también solicitado por el Estado trasladante o por el Estado receptor. La autoridad competente del Estado solicitante trasladará la solicitud a la autoridad competente del Estado solicitado, la cual responderá sin demora, estableciéndose la comunicación por la vía diplomática.
+3. Toda solicitud de traslado y toda respuesta deberá ser formulada por escrito y por la vía diplomática, sin perjuicio de lo acordado en el Artículo 3 incisos g) y h).
+4. Para tomar la decisión relativa al traslado de una persona sancionada, la autoridad de cada una de las Partes tendrá en cuenta todos los factores pertinentes y la probabilidad de que el traslado contribuya a la rehabilitación social del sancionado, incluyendo la índole y gravedad del delito y los antecedentes penales del sancionado, si los tuviere, las condiciones de su salud, la edad, los vínculos que por residencia, presencia en el territorio, relaciones familiares u otros motivos, pueda tener con la vida social del Estado receptor.
+5. El Estado trasladante deberá informar, a la mayor brevedad posible, al Estado receptor, su decisión de aceptar o denegar el traslado solicitado.
+6. En el momento que resulte pertinente, la persona sancionada deberá ser informada del estado de su traslado, así como de las decisiones adoptadas en relación con este, por el Estado trasladante y el Estado receptor.
