@@ -1,0 +1,2 @@
+ARTÍCULO 4- Cláusula interpretativa
+Con el propósito de facilitar la aplicación del presente convenio, la República de Costa Rica interpreta que, en relación con el artículo 4, las funciones de coordinación asignadas por este tratado a la Dirección General de Adaptación Social del Ministerio de Justicia y Paz se realizarán por ese Ministerio, sin menoscabo de las funciones que le corresponden al juez de ejecución de la pena, de acuerdo con la legislación interna.

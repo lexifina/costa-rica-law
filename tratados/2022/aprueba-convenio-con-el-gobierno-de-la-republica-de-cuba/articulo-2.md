@@ -1,0 +1,2 @@
+ARTÍCULO 2- Cláusula interpretativa
+Con el propósito de facilitar la comprensión del presente convenio, el Gobierno de Costa Rica entiende que en el artículo 1, inciso a), donde se hace alusión a "Estado trasladante" se interprete "Estado sentenciador" y en el inciso c) donde se hace alusión a "persona sancionada" se interprete "persona sentenciada", con el fin de precisar técnicamente los conceptos que se definen.
