@@ -1,0 +1,12 @@
+ARTÍCULO 2- Se adiciona un nuevo capítulo V titulado "Centro Operativo de Atención a la Violencia Intrafamiliar y la Violencia contra las Mujeres" a la Ley 7801, Ley del Instituto Nacional de las Mujeres, de 30 de abril de 1998 y se corra la numeración de los capítulos y artículos existentes. El texto es el siguiente:
+Capítulo V
+Centro Operativo de Atención a la Violencia Intrafamiliar y
+la Violencia contra las Mujeres
+Artículo 23- Centro Operativo de Atención a la Violencia Intrafamiliar y la Violencia contra las Mujeres
+Se crea el Centro Operativo de Atención a la Violencia Intrafamiliar y la Violencia contra las Mujeres, en adelante Coavifmu, que será la unidad especializada de apoyo al Sistema de Emergencia 9-1-1 dentro del Departamento de Violencia de Género del Instituto Nacional de las Mujeres (Inamu) de conformidad con el artículo 6 de la Ley 7566, Creación del Sistema de Emergencias 911, de 18 de diciembre de 1995, cuyo objetivo es satisfacer la demanda de atención de situaciones de violencia intrafamiliar y violencia contra las mujeres, por vía telefónica tradicional o móvil o VolP, o por cualquier otro medio propio de las tecnologías de la comunicación e información, entre ellas, -pero no exclusivamente-, internet (fijo y móvil) y líneas dedicadas, así como los diferentes tipos de mensajería, en procura del bienestar social y los derechos humanos de todas las personas.
+Artículo 24- Financiamiento del Coavifmu
+El Coavifmu se financiará con:
+1. Las asignaciones presupuestarias y los recursos dotados para este fin por el Instituto Nacional de las Mujeres (Inamu) e incluidos en su presupuesto ordinario anual, así como los provenientes del superávit libre o específico del Inamu.
+2. Las asignaciones presupuestarias, los recursos y las transferencias que ingresen al Inamu.
+3. Las donaciones y los legados de cualquier naturaleza, que sean de entes públicos o personas físicas y jurídicas, que se reciban para utilizarse específicamente para el financiamiento de este servicio y que ingresen a las arcas del presupuesto del Inamu.
+Lo anterior, sin perjuicio de los recursos que según la Ley 7566, Creación del Sistema de Emergencias 911, debe aportar el Sistema 9-1-1 y de cualquier convenio de colaboración que suscriba el Inamu con otros entes o personas públicas o privadas, que dote de recursos de cualquier clase al Coavifmu o coadyuve a su operación y objetivo.
