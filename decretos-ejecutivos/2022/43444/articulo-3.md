@@ -1,0 +1,1 @@
+Artículo 3--. Los consumidores, en el marco de la Ley N°7472, tendrán derecho a la información conforme al artículo anterior, así como a ser informados del procedimiento a seguir para solicitar la devolución del dinero pagado, tanto para compras efectuadas en efectivo, como aquellas realizadas con tarjeta de crédito o débito.
