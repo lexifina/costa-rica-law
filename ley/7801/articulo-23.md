@@ -1,23 +1,6 @@
-CAPÍTULO V
-RÉGIMEN PATRIMONIAL
-ARTÍCULO 23.- Patrimonio
-Formarán el patrimonio del Instituto:
-a) Los terrenos, los edificios, los equipos, el material rodante y,
-en general, todos los bienes muebles e inmuebles que componen el
-patrimonio del Centro Nacional para el Desarrollo de la Mujer y la
-Familia.
-b) Los bienes y recursos donados por personas físicas y jurídicas,
-nacionales o extranjeras. Para tal efecto, se autoriza a todas las
-instituciones públicas para que donen bienes y recursos al Instituto.
-c) Los ingresos provenientes de la venta de servicios o del ejercicio
-de actividades productivas de la Institución, para lo cual queda
-debidamente autorizado.
-d) En general, todos los bienes muebles e inmuebles que puedan
-adquirir por cualquier título.
-e) El dos por ciento (2%) de todos los ingresos anuales, ordinarios
-y extraordinarios, percibidos por el Fondo de Desarrollo Social y
-Asignaciones Familiares.
-f) El Instituto tendrá plena libertad para presupuestar, como
-propios, los recursos que reciba de cualquier Institución o fondo estatal,
-con la debida aprobación de la Contraloría General de la República, y
-asignarlos a las partidas cuando lo estime oportuno.
+Capítulo V
+Centro Operativo de Atención a la Violencia Intrafamiliar y la Violencia contra las Mujeres
+(Así adicionado el capítulo anterior por el artículo 2° de la ley N° 10158 del 8 de marzo del 2022, "Consolidación del Centro Operativo de atención a la Violencia Intrafamiliar y la Violencia contra las Mujeres (COAVIFMU) y declaratoria de los servicios de atención de la violencia contra las mujeres como servicio esencial")
+Artículo 23- Centro Operativo de Atención a la Violencia Intrafamiliar y la Violencia contra las Mujeres
+Se crea el Centro Operativo de Atención a la Violencia Intrafamiliar y la Violencia contra las Mujeres, en adelante Coavifmu, que será la unidad especializada de apoyo al Sistema de Emergencia 9-1-1 dentro del Departamento de Violencia de Género del Instituto Nacional de las Mujeres (Inamu) de conformidad con el artículo 6 de la Ley 7566, Creación del Sistema de Emergencias 911, de 18 de diciembre de 1995, cuyo objetivo es satisfacer la demanda de atención de situaciones de violencia intrafamiliar y violencia contra las mujeres, por vía telefónica tradicional o móvil o VolP, o por cualquier otro medio propio de las tecnologías de la comunicación e información, entre ellas, -pero no exclusivamente-, internet (fijo y móvil) y líneas dedicadas, así como los diferentes tipos de mensajería, en procura del bienestar social y los derechos humanos de todas las personas.
+(Así adicionado por el artículo 2° de la ley N° 10158 del 8 de marzo del 2022, "Consolidación del Centro Operativo de atención a la Violencia Intrafamiliar y la Violencia contra las Mujeres (COAVIFMU) y declaratoria de los servicios de atención de la violencia contra las mujeres como servicio esencial")

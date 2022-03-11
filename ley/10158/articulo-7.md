@@ -1,0 +1,1 @@
+ARTÍCULO 7- El Instituto Nacional de las Mujeres (Inamu) deberá incorporar en su planificación y presupuesto institucional los recursos humanos, financieros y materiales necesarios para el funcionamiento y sostenibilidad del Centro Operativo de Atención a la Violencia Intrafamiliar y Violencia contra las Mujeres (Coavifmu), a partir de la vigencia de esta ley.
