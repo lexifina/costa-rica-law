@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El ámbito de aplicación de este Reglamento será tanto para él o la secretaria del Concejo Municipal como para el personal de apoyo y su interrelación con el Concejo Municipal y con las demás instancias técnicas y administrativas de la municipalidad de San Pablo de Heredia.

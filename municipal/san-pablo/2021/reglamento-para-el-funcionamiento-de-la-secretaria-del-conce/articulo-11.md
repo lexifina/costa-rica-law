@@ -1,0 +1,1 @@
+Artículo 11.—De la confección de los dictámenes de las comisiones. Será responsabilidad del coordinador y el personal técnico que integren las diferentes comisiones, la redacción de la información que contendrá cada dictamen, para que así la asistente de la Secretaría proceda a incluir el mismo en la corriente del Concejo Municipal para el trámite que corresponda.

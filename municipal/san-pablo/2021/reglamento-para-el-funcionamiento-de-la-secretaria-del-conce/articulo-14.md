@@ -1,0 +1,3 @@
+CAPÍTULO V
+De las capacitaciones
+Artículo 14.—Inclusión de partida dentro del Presupuesto Ordinario. Se podrá incluir una partida dentro del Presupuesto Ordinario respectivo para destinarla a capacitación tanto de la secretaria o secretario del Concejo Municipal, así como del personal de apoyo de dicha unidad, monto que se establecerá con base a las necesidades que presenten. Además, podrán asistir a las charlas y cursos específicos atinentes a sus funciones que puedan impartiese en instituciones como la Contraloría General de la República, Unión Nacional de Gobiernos Locales (UNGL), Instituto de Fomento y Asesoría Municipal (IFAM) y demás instituciones autónomas y semiautónomas del Estado.

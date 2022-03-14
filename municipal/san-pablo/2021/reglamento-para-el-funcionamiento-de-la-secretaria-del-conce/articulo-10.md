@@ -1,0 +1,1 @@
+Artículo 10.—De la cancelación de las reuniones de las comisiones. Si cuatro horas antes de llevarse a cabo la reunión de la comisión, no se cuenta con los informes necesarios para el desarrollo de la misma, así como el quórum requerido, se podrá requerir su cancelación.

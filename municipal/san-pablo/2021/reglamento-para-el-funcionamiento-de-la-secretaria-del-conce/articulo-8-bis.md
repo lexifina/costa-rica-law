@@ -1,0 +1,2 @@
+Artículo 8 bis.—En caso de incapacidad, vacaciones, permiso sin goce de salario o emergencia de la persona que ocupa el puesto de la secretaría municipal, la Municipalidad deberá nombrar a la persona que de forma interina ocupará dicho cargo, para evitar la afectación y continuidad en la prestación del servicio público.
+El puesto lo asumirá de forma interina la persona que ocupe el cargo de asistente de la secretaría del concejo municipal, siempre y cuando cumpla los requisitos mínimos de acuerdo al Manual Descriptivo de Puestos.

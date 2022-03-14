@@ -1,0 +1,14 @@
+CAPÍTULO VI
+Emisión de certificaciones
+Artículo 15.—Extensión de certificaciones de documentos. La persona en el puesto de la Secretaría del Concejo Municipal procederá a extender las certificaciones respectivas dentro del plazo de ocho días hábiles establecido en el artículo 53 del Código Procesal Contencioso Administrativo, aplicando el siguiente procedimiento:
+1. La solicitud debe presentarse por escrito y firmada, mediante oficio dirigido directamente a la secretaria del Concejo Municipal.
+2. En el caso de solicitudes internas de certificación requeridas por la Administración Municipal, deberán ser tramitadas directamente por medio del (la) alcalde (sa). El requerimiento de certificación de expediente deberá contemplar que la secretaria cuenta con el plazo legal de ocho días hábiles para rendir la copia certificada, so pena de que la mora administrativa que se pueda incurrir por el retardo en la entrega de la certificación del expediente le sea imputable directamente al funcionario que no contempló los plazos legales establecidos en el artículo 53 del Código Procesal Contencioso Administrativo con los que cuenta la secretaria para cumplir dicha solicitud. Asimismo, la solicitud de certificación de expediente requerida por parte de la Administración Municipal, deberá dejar contener necesariamente de los siguientes datos:
+a) Nombre con el que se identifica el expediente remitido.
+b) Referencia del nombre de la oficina que custodia el expediente original.
+c) Número de folios que conforman el expediente: Para mejor proceder, cada folio del expediente original debe estar numerado por el encargado de la unidad administrativa donde se custodia, en la esquina superior derecha, siempre que el documento lo permita, es decir, cuando no se afecte el texto o contenido; si esto pasara, considérese ubicar los folios, lo más arriba y a la derecha posible. No debe haber duda del número que se folia ni se deben hacer correcciones con lapiceros o marcadores sobre la impresión del número que se hizo con el foliador.
+d) Referencia a la causa o razón que motiva la solicitud de la certificación:
+e) Se debe adjuntar una copia fiel y exacta del expediente que se requiere certificar.
+f) Se debe aportar, además, el expediente original, a efecto de que pueda ser confrontado con la copia que se certificará.
+3. Salvo en aquellos casos que la situación lo amerite, se extenderá la certificación en un menor plazo.
+4. Para el caso de solicitud de trámite de certificaciones requeridas por parte de los administrados o personas fuera de la institución, se exime la solicitud de timbres, con base en el artículo 8 del Código Municipal.
+Si el administrado desea incorporar timbres de forma voluntaria, deberá comprar un entero de 15 fiscales y 25 de archivo por medio de la plataforma digital del Banco de Costa Rica, o en su defecto, solicitándolo en cajas de dicho banco comercial.
