@@ -1,0 +1,2 @@
+Artículo 39 bis- Modalidades contractuales. Para el otorgamiento de concesiones y contrataciones de servicios y actividades no esenciales, dentro de las áreas silvestres protegidas, la Administración utilizará las modalidades contractuales que mejor satisfagan el interés público, siguiendo los procedimientos ordinarios, extraordinarios y especiales establecidos en la ley.
+(Así adicionado por el artículo 2° de la ley N° 10133 del 14 de marzo de 2022)
