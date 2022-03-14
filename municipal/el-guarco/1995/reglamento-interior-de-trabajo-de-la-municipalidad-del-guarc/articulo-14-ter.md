@@ -1,0 +1,2 @@
+Artículo 14 Ter: Se autoriza a los funcionarios municipales por vía excepcional flexibilizar el horario para el caso de atención de asuntos personales tales como citas médicas, tramites y gestiones en instituciones y otras, hasta por dos horas como máximo, pero cumpliendo siempre el número de horas de servicio efectivo establecido en el presente reglamento, previo análisis y visto bueno por parte de la Jefatura Inmediata donde se tome en consideración el no perjudicar el buen servicio público.
+(Así adicionado mediante sesión ordinaria N° 143-2022 del 14 de marzo de 2022)
