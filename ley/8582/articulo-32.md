@@ -7,4 +7,15 @@ Los propietarios de bienes inmuebles o patentados de negocios comerciales donde 
 3) Rótulos bajo o sobre marquesinas: cualquier tipo de rótulo o anuncio permitido por ley independientemente de su estructura, material y tamaño, excepto los luminosos, colocado bajo o sobre marquesinas de edificios o estructuras, siempre que no sobresalgan de ellas, seis por ciento (6%) del salario mínimo.
 4) Rótulos luminosos: cualquier tipo de rótulo o anuncio permitido por ley que funcione con sistemas de iluminación incorporados a su funcionamiento (rótulos de neón y sistemas similares y rótulos con iluminación interna), diez por ciento (10%) del salario mínimo.
 5) Anuncios en predios sin edificaciones contiguos a vías públicas: todo tipo de rótulo o anuncio permitido por ley, independientemente de su estructura, material y tamaño, excepto las vallas publicitarias, ubicados en predios sin edificaciones contiguos a vías públicas, cincuenta por ciento (50%) del salario mínimo.
-6) Anuncios en paredes o vallas: cualquier tipo de rótulo o anuncio permitido por ley, instalado sobre paredes de edificios o estructuras, de cualquier material y tamaño o pintados directamente sobre las paredes, así como las vallas publicitarias de cualquier tipo y tamaño, cincuenta por ciento (50%) del salario mínimo.
+6) Los rótulos, anuncios y vallas instalados en el cantón de Pococí serán tasados y clasificados según el siguiente detalle:
+Anuncios en paredes o vallas: es cualquier tipo de rótulo o anuncio permitido por ley instalado sobre paredes de edificio o estructuras, de cualquier material o tamaño, pintado directamente sobre paredes, así como vallas publicitarias de cualquier tipo y tamaño; pagarán conforme la siguiente distribución:
+f.1 Anuncios en paredes: se distribuye en cuatro categorías (P.1, P.2, P.3 y P.4), pagarán de la siguiente manera según sus dimensiones:
+P.1 : Uno por ciento (1%) del salario mínimo cuando mida hasta 3 metros cuadrados.
+P.2: Un seis por ciento (6%) del salario mínimo cuando el tamaño sea mayor de 3 hasta 10 metros cuadrados.
+P.3: Un veinticinco por ciento (25% del salario mínimo cuando el tamaño sea mayor de 10 hasta 15 metros cuadrados.
+P.4: Un cincuenta por ciento (50%) del salario mínimo cuando el tamaño sea mayor a 15 metros cuadrados.
+f.2 Anuncios en vallas: se distribuye en tres categorías (V.1, V.2 y V3), pagarán de la siguiente manera según sus dimensiones:
+V.1 Un veinte por ciento (20%) del salario mínimo, cuando el tamaño sea inferior o igual a los cinco metros cuadrados.
+V.2 Un treinta por ciento (30%) del salario mínimo, cuando el tamaño sea superior a los cinco metros cuadrados hasta los diez metros cuadrados.
+V.3 Un cincuenta por ciento (50%) del salario mínimo, cuando el tamaño de la valla supere los diez metros cuadrados.
+(Así reformado el inciso 6) anterior por el artículo único de la ley N° 10153 del 14 de marzo del 2022)
