@@ -1,0 +1,2 @@
+Transitorio VI- Para el cumplimiento de lo dispuesto en el inciso a) del artículo 2, referente a la declaración informativa de las sociedades inactivas, estas contarán con una prórroga de tres meses a partir de la entrada en vigencia de la presente ley.
+(Así adicionado por el artículo 2° de la ley N° 10160 del 11 de marzo del 2022 "Ley de simplificación de trámites tributarios para personas jurídicas sin actividad lucrativa")
