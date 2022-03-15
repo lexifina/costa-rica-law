@@ -14,3 +14,4 @@ Requisitos para la autorización temporal para el ejercicio de enfermería por e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-03 | la propia norma |
+| 2 | 2022-03-15 | Reglamento 0 (2022-03-15) |
