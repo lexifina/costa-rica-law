@@ -1,3 +1,2 @@
-Sección 4
-De la vigencia
-Artículo 8°—Este Reglamento rige a partir de su aprobación y deberá ser publicado en el periódico oficial.
+Artículo 8°- Las resoluciones de la Presidencia, en las que se rechacen las solicitudes a que se refieren los artículos anteriores, deberán ser motivadas, se consignarán por escrito y se comunicarán a los interesados y a los correspondientes servicios administrativos de la Asamblea Legislativa.
+Esas resoluciones son apelables ante el Plenario de la Asamblea Legislativa, en los términos establecidos en el Reglamento de la Asamblea Legislativa.

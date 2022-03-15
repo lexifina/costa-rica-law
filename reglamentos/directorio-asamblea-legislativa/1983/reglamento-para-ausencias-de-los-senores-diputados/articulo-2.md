@@ -1,1 +1,1 @@
-Artículo 2°—La solicitud de licencia, a que se refiere el párrafo primero del artículo anterior, se presentará por escrito y firmada por el Diputado que formula la gestión. Únicamente en caso de fuerza mayor, podrá firmarla otra persona, que esté autorizada para ello.
+Artículo 2°- La solicitud de licencia a que se refiere el párrafo primero del artículo anterior, se presentará por escrito y firmada por el diputado o la diputada que formula la gestión. Únicamente en caso de fuerza mayor, podrá firmarla otra persona que esté autorizada para ello.

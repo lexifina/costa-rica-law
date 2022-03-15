@@ -1,3 +1,2 @@
-Sección 3
-De las resoluciones del Presidente
-Artículo 6°—El Presidente de la Asamblea Legislativa resolverá las solicitudes, a que se refieren los artículos anteriores, dentro de los quince días hábiles siguientes a su solicitud. El silencio del Presidente implicará que la gestión se ha aprobado.
+Artículo 6°- La solicitud de justificación, en la que se indicarán los motivos de la ausencia, deberá presentarse por escrito ante la Presidencia, a más tardar, dentro de los cinco días hábiles después de realizada la sesión correspondiente.
+Si por razón de fuerza mayor, la petición se presenta fuera de ese plazo, la Presidencia podrá recibirla, sin perjuicio de lo establecido en el artículo 1° de este Reglamento.

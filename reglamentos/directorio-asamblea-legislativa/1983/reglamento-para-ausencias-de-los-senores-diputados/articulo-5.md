@@ -1,2 +1,4 @@
-Artículo 5°—La solicitud de justificación, en la que se indicarán los motivos de la ausencia, deberá presentarse por escrito ante la Secretaría de la Presidencia a más tardar dentro de los cinco días hábiles después del regreso.
-Si por razón de fuerza mayor, la petición se presenta fuera de ese plazo, el Presidente podrá recibirla, sin perjuicio de lo establecido en el artículo 1° de este Reglamento.
+Sección 2
+De las solicitudes de justificación
+Artículo 5°- Cuando un diputado o una diputada haya dejado de asistir a una de las sesiones del Plenario, de Comisión Permanente con Potestad Legislativa Plena o a las otras comisiones de la Asamblea Legislativa, por motivo justificado, conforme con el artículo 3 anterior, y siempre y cuando el número de permisos no haya sido superado, deberá gestionar ante el Presidente de la Asamblea Legislativa que se tenga por justificada su inasistencia.
+No se tendrán por justificadas las ausencias cuando el Plenario, las Comisiones Permanentes con Potestad Legislativa Plena o las Comisiones respectivas, no hayan podido sesionar o hayan tenido que dejar de hacerlo por falta de cuórum. En estos casos y para efectos del pago de dietas, la ausencia no se justificará.

@@ -17,3 +17,4 @@ Reglamento para ausencias de los señores Diputados
 | 2 | 1993-06-21 | Acuerdo 10 (1993-06-21) |
 | 3 | 1993-10-26 | Reglamento 75 (1993-10-26) |
 | 4 | 2013-06-11 | Acuerdo 16 (2013-06-11) |
+| 5 | 2022-03-15 | Reglamento 198 (2022-03-15) |
