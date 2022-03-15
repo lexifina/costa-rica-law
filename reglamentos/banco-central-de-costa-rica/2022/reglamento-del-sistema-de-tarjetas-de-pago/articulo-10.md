@@ -1,0 +1,2 @@
+Artículo 10. Uso de tarjetas prepago. Los emisores podrán emitir tarjetas prepago EMV al portador. El monto máximo de depósito mensual en la cuenta asociada a la tarjeta prepago será de 100 mil colones o su equivalente en moneda extranjera, pudiendo ser recargadas por un tercero, siempre que los fondos provengan de cuentas emitidas por una entidad financiera nacional.
+En tarjetas prepago emitidas para empresas públicas o empresas privadas domiciliadas en Costa Rica, el monto máximo de depósito se definirá según las necesidades de la empresa.
