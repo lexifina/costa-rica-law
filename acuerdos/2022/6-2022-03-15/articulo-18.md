@@ -1,0 +1,2 @@
+Artículo 18. Una vez iniciada la audiencia las partes deberán comunicar al Órgano Director en forma inmediata, cualquier problema técnico que enfrenten y que pueda afectar su intervención en el acto procesal, en caso de pérdida de la comunicación, para procurar restablecerla a la brevedad posible.
+En caso de pérdida de comunicación, se contactará a la parte al número telefónico facilitado para tales fines.

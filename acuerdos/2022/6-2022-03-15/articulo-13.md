@@ -1,0 +1,1 @@
+Artículo 13. Se deberán verificar al menos quince minutos antes de la hora de inicio de la audiencia, por parte del Órgano Director así como por las partes, el correcto funcionamiento del audio y video de su dispositivo y los demás aspectos necesarios para la debida realización del acto procesal.

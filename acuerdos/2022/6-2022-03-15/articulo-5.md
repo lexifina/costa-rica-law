@@ -1,0 +1,4 @@
+Artículo 5. Las partes deberán cumplir con los siguientes requerimientos técnicos mínimos para poder participar en las audiencias de manera virtual:
+1. Cada participante deberá contar con equipo de cómputo u otros dispositivos móviles con acceso a internet (Computadora de escritorio con cámara, laptop, Tablet, Teléfono inteligente) con red de internet con un bando de ancha que permita videoconferencias sin ningún inconveniente, con cámara web y micrófono (manos libres). Se recomienda la utilización de audífonos.
+2. Las partes deberán contar con un navegador como Internet Explorer, Mozilla Firefox, Google Chrome, Microsoft Edge, entre otros; que les permita acceder a la carpeta en Google Drive que al efecto se habilite.
+3. Espacio libre de contaminación sónica, propicio para la participación en la audiencia y que respete la privacidad de la diligencia.

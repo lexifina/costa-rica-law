@@ -1,0 +1,1 @@
+Artículo 2. El presente protocolo aplica para las audiencias que se celebren de manera virtual por parte de la Secretaría del Consejo de Gobierno, determinando los roles de las partes del procedimiento, así como la tramitación de la audiencia. No obstante lo anterior, este protocolo podrá ser usado de guía subsidiariamente por cualquier despacho o departamento de Presidencia.

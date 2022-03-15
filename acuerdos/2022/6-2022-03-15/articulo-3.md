@@ -1,0 +1,1 @@
+Artículo 3. La tramitación del procedimiento administrativo respectivo se desarrollará conforme a la normativa establecida, siendo el presente protocolo adicional y complementario, únicamente para efectos de adecuar la realización de las audiencias y otros actos procesales de la modalidad presencial a la virtual.

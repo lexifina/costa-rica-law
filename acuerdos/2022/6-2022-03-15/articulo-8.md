@@ -1,0 +1,1 @@
+Artículo 8. Una vez notificadas de la audiencia virtual, las partes deberán de aportar al menos un número de teléfono a través del cual puedan ser localizados en caso de que iniciada la audiencia se pierda comunicación.
