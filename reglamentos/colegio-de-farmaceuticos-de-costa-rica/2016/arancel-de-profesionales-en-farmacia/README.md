@@ -15,3 +15,4 @@ Arancel de profesionales en farmacia
 | --- | --- | --- |
 | 1 | 2017-01-03 | la propia norma |
 | 2 | 2019-04-25 | Acuerdo 49 (2019-04-25) |
+| 3 | 2022-03-16 | Acuerdo 0 (2022-03-16) |
