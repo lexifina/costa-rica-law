@@ -1,1 +1,0 @@
-Artículo 2º-Deróguese el Decreto Ejecutivo número 43223-H del 24 de setiembre de 2021, publicado en el Alcance número 200 a La Gaceta Número 191 del 05 de octubre de 2021, a partir de la vigencia del presente decreto.
