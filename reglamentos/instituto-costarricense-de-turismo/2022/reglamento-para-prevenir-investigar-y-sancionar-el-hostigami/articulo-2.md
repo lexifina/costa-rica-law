@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de cobertura. El presente Reglamento es de carácter obligatorio, rige para todas las personas servidoras del ICT, nombradas en propiedad, interinamente y/o en puestos de confianza. De igual manera rige para el personal de contratación externa al servicio de la institución cuando sean presuntas víctimas de hostigamiento sexual por parte de algún funcionario.

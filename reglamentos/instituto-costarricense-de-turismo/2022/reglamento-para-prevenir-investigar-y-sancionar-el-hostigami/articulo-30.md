@@ -1,0 +1,1 @@
+Artículo 30.-La Asesoría Legal del ICT capacitará a un grupo de funcionarios en temas de procesos administrativos disciplinarios referentes a hostigamiento sexual, con el objetivo de tener personas aptas para formar parte de la Comisión Investigadora.

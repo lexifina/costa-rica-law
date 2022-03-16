@@ -1,0 +1,1 @@
+Artículo 25.-De la conciliación. Al constituir el hostigamiento sexual un tipo específico de violencia caracterizada por relaciones de poder asimétricas de género, jerárquica o simbólica, que aumentan los factores de riesgo y re victimización de la persona hostigada, no procede la conciliación en el procedimiento especial por presunto hostigamiento sexual.

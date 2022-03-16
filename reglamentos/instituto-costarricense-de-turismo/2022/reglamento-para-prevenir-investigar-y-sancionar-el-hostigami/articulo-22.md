@@ -1,0 +1,1 @@
+Artículo 22.-Traslado al Colegio Profesional. Cuando la persona denunciada sea profesional colegiado, una vez firme el acto sancionatorio, el resultado del proceso se informará al Colegio Profesional respectivo, para que proceda de conformidad con lo dispuesto en el artículo 11 de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia 7476.

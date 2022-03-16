@@ -1,0 +1,2 @@
+Artículo 20.-Conformación de la Comisión Investigadora. Esta comisión será designada cada vez que se reciba una denuncia por hostigamiento sexual.
+La integración será paritaria y la definirá el órgano competente, será integrada por tres personas, con conocimientos en materia de hostigamiento sexual y régimen disciplinario, además; deberá ser interdisciplinaria y al menos una de las personas integrantes deberá ser abogado (a) y preferiblemente en la integración, habrá un profesional en sicología o trabajo social.

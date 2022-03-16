@@ -1,0 +1,5 @@
+De la instancia competente para la
+recepción de denuncias
+Artículo 16.-Formalización. Las denuncias deberán ser presentadas por escrito ante la Comisión Permanente de Prevención del Hostigamiento Sexual. Si la denuncia se interpusiera en cualquier otra dependencia del Instituto la misma será responsable de remitir en el plazo de tres-3- días hábiles a la Comisión Permanente de Prevención del Hostigamiento Sexual, resguardando la confidencialidad de la información contenida en la misma.
+Es responsabilidad de la persona funcionaria que remite la denuncia a la Comisión Permanente de Prevención del Hostigamiento Sexual, corroborar que dicha denuncia fue recibida en el plazo señalado y será obligación de la persona funcionaria de la Comisión, brindar un acuse de recibido.
+Una vez recibida la denuncia ante la Comisión Permanente de Prevención del Hostigamiento Sexual y verificado el cumplimiento de los requisitos establecidos en el artículo 19 de este Reglamento, deberá remitir en el plazo de tres días hábiles, al órgano competente quien en su condición de Órgano Decisor deberá nombrar el órgano director responsable de instruir el procedimiento.

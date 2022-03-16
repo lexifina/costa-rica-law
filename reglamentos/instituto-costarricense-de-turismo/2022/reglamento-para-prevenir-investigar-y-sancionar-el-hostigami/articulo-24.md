@@ -1,0 +1,2 @@
+Artículo 24.-Del plazo para interponer la denuncia y prescripción del procedimiento. El plazo para interponer la denuncia en sede administrativa, se considerará de ocho años y se computará a partir del último hecho consecuencia del hostigamiento sexual o a partir de que cesó la causa justificada que le impidió denunciar. En caso de las personas menores de edad, el plazo se computará a partir del momento en el que alcancen la mayoría de edad.
+El plazo de prescripción se computará de conformidad con el artículo 414 de la Ley 2, Código de Trabajo.

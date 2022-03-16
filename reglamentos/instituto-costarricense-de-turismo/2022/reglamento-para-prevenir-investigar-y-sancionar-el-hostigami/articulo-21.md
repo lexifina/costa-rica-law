@@ -1,0 +1,1 @@
+Artículo 21.-Impedimento. En caso de abstención o recusación de alguno de los miembros de la Comisión Investigadora debidamente fundadas y posterior al proceso que establece la LGAP, a quien le corresponda la competencia, en el plazo máximo de tres días, deberá realizar la sustitución o sustituciones correspondientes en la Comisión Investigadora.

@@ -1,0 +1,1 @@
+Artículo 17.-Capacitación. La Asesoría Legal, en coordinación con la Comisión Permanente de Prevención del Hostigamiento Sexual, deberá capacitar a las unidades en cuanto a la recepción de denuncias, a efectos de que no se generen atrasos injustificados que puedan perjudicar a la presunta víctima y en general, al normal desarrollo del proceso.
