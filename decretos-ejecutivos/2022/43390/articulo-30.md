@@ -1,0 +1,1 @@
+Artículo 30.-La Comisión deberá presentar un informe a la Junta Directiva del INAMU sobre las mujeres a quienes se otorgó el Reconocimiento y el proceso llevado a cabo. Posterior a ello se hará público el resultado.

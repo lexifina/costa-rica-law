@@ -1,0 +1,1 @@
+Artículo 23.-En caso de que se presentara una candidata que tenga parentesco de consanguinidad o afinidad hasta el tercer grado con cualquiera de las personas titulares integrantes de la Comisión, la Presidencia de la Comisión solicitará la sustitución inmediata de la persona titular por la persona suplente.

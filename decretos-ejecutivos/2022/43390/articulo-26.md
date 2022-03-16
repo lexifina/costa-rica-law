@@ -1,0 +1,1 @@
+Artículo 26.-EI INAMU se compromete a devolver el material original presentado para la postulación a las personas postulantes, en los treinta días naturales posteriores al anuncio del fallo. En caso de no ser retirado, el INAMU dispondrá lo que considere pertinente. Las copias de los materiales originales serán respaldadas por el INAMU para fines de registro del proceso.

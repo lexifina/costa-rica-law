@@ -1,0 +1,1 @@
+Artículo 24.-El INAMU entregará las postulaciones recibidas a la Comisión en la primera sesión ordinaria del mes de junio y se encargará de reproducir copias del material físico y de forma digital cuando corresponda para cada una de las personas integrantes de la Comisión, con el fin de que puedan proceder con la revisión y análisis de las postulaciones.

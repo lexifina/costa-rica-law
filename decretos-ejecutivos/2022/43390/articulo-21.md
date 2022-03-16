@@ -1,0 +1,1 @@
+Artículo 21.-La Comisión podrá solicitar subsanaciones en la etapa inicial de análisis del proceso de estudio de las postulaciones. La persona postulante deberá aportar, en un plazo no mayor a 5 días hábiles, la documentación solicitada; en caso contrario, la información suministrada en la postulación no se tomará en cuenta en la evaluación correspondiente.

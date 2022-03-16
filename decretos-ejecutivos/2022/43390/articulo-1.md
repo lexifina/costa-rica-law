@@ -1,0 +1,22 @@
+N° 43390-MP-MCM
+EL PRESIDENTE DE LA REPÚBLICA,
+LA MINISTRA DE LA PRESIDENCIA
+Y LA MINISTRA DE LA CONDICIÓN DE LA MUJER
+En uso de las facultades y atribuciones que les confieren los Artículos 140, inciso 3), 8), 20) y 146 de la Constitución Política; los numerales 25, 27 inciso 1, 28 inciso 2, acápite b) de la Ley General de la Administración Pública N° 6227, del 02 de mayo de 1978, el artículo 4 inciso j) de la Ley del Instituto Nacional de las Mujeres N° 7801 del 30 de abril de 1998 y el Decreto Ejecutivo N° 36646-MP-PLAN del 14 de junio de 2011 que reforma el Reglamento Orgánico del Poder Ejecutivo, Ley N° 7954 del 21 de diciembre de 1999, reformada por la Ley N° 8871 del 24 de setiembre de 2010 y,
+Considerando:
+I.-Que mediante la Ley N°7954, reformada por la Ley N° 8871 se crea la Galería de las Mujeres, con la finalidad de incentivar y reconocer el aporte de las mujeres, en su diversidad, al desarrollo del país, así como fomentar nuevos paradigmas en torno a la participación de las mujeres en el desarrollo social, económico, político y cultural del país, para que la búsqueda de igualdad de oportunidades entre los géneros sea una realidad.
+II.-Que es importante visibilizar la labor realizada por las mujeres que habitan en el país, distinguiéndolas por sus obras relevantes en la defensa y promoción de los derechos humanos de las mujeres, y en todos los campos que se han destacado, en procura de una sociedad más democrática, justa y plural.
+III.-que fomenten la promoción, avance y consolidación de la participación plena de las mujeres y las niñas, lo cual es parte inalienable, integral e indivisible de los Derechos Humanos Universales.
+IV.-Que la Galería de las Mujeres se constituye en un espacio cultural que rinde homenaje a todas aquellas mujeres que rompen y denuncian las discriminaciones por razones de género y transforman con sus acciones, conductas a favor de la igualdad y equidad entre mujeres y hombres.
+V.-Que la experiencia adquirida en los procesos llevados a cabo en las ediciones 2015, 2017 y 2019 del Reconocimiento de la Galería de las Mujeres ha evidenciado la importancia de contar con un instrumento jurídico más adecuado para regular y orientar la toma de decisiones en un contexto social de cambios sustantivos en el ámbito académico, tecnológico y de seguridad sanitaria. El Decreto Ejecutivo N° 37860-C-CM requiere de una actualización y modificación integral que subsane las limitaciones encontradas en procesos pasados, brindando mayor seguridad jurídica al procedimiento de selección de las mujeres que reciben este importante reconocimiento. La relevancia social y para el cambio cultural que tiene el mismo hacen imprescindible que el mismo se adecue a la modernización del Estado y su innovación tecnológica, así como las realidades de las mujeres que habitan el país.
+VI.-Que a partir de las recomendaciones emitidas por la Comisión Galería de las Mujeres, edición 2019, sobre la metodología de trabajo, gestiones administrativas e integración de la instancia decisoria, y con el objetivo de facilitar la toma de decisiones en las diferentes fases del proceso de selección de las mujeres que serán distinguidas con este reconocimiento, se considera imperativa la derogación del Decreto Ejecutivo N° 37860-CCM, para dar paso a una nueva versión del mismo, por lo que en ese mismo año se inicia la reformulación del mismo para ajustarlo y mejorarlo.
+VII.-Que de conformidad con el artículo 12 del Decreto Ejecutivo N° 37045-MP-MEIC, " Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", adicionado por el Decreto Ejecutivo N° 38898-MP-MEIC, artículo 12 bis y, en virtud de que este instrumento jurídico no contiene trámites, ni requisitos ni procedimientos que perjudiquen al administrado, se exonera del trámite de la evaluación costo -beneficio de la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio. Por tanto,
+Decretan:
+Reglamento a la Ley N° 7954,
+Creación de la Galería de la Mujer
+CAPÍTULO PRIMERO
+Artículo 1º-Para los efectos del presente Reglamento se entenderá por:
+a.- Comisión: Comisión de la Galería de las Mujeres.
+b.- INAMU: Instituto Nacional de las Mujeres.
+c.- Galería de las Mujeres: reconocimiento que preserva la obra y los aportes de las mujeres destacadas, y espacio físico o virtual de conservación visual de las mujeres acreedoras a esta distinción.
+d.- Reconocimiento: distinción y honor que se le otorga a una mujer al hacerse acreedora de ingresar a la Galería de las Mujeres.

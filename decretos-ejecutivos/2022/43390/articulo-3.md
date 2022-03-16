@@ -1,0 +1,1 @@
+Artículo 3º-La Galería de las Mujeres tiene como objetivo incentivar, reconocer y visibilizar el aporte de las mujeres en la defensa, promoción y avance de los derechos humanos de las mujeres. Es un reconocimiento a trayectorias personales y colectivas de mujeres que han dejado huella en la historia del país, en procura de una sociedad justa, equitativa y democrática.

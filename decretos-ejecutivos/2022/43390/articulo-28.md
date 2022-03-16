@@ -1,0 +1,1 @@
+Artículo 28.-Una vez evaluadas las postulaciones, la Comisión escogerá mediante votación secreta y nominal a las nuevas integrantes de la Galería de las Mujeres. En caso de empate y luego de una votación adicional la persona que ejerza la Presidencia de la Comisión ejercerá doble voto.

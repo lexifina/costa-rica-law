@@ -1,0 +1,2 @@
+CAPÍTULO CUARTO
+Artículo 16.-Cada dos años mediante anuncio público el INAMU abrirá la convocatoria a postularse para el Reconocimiento Galería de las Mujeres, para ello se faculta la utilización de medios de comunicación colectiva, medios electrónicos, redes sociales y similares, dirigidos al público en general. La publicación se hará el primer día hábil del mes de abril, fecha en que se abre la inscripción y cierra el último día hábil del mes de mayo del año de la convocatoria.

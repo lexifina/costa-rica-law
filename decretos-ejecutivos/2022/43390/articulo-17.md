@@ -1,0 +1,1 @@
+Artículo 17.-Dentro del plazo establecido en la convocatoria, deberán presentarse las postulaciones físicas en el lugar y horario que el INAMU designe para tal efecto, o bien digitales enviadas al correo oficial que la institución designe para tal fin. No se recibirán postulaciones fuera de ese plazo.

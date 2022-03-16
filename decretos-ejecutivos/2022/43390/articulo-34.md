@@ -1,0 +1,2 @@
+Artículo 34.-La fotografía física de las mujeres que ingresen a la Galería de las Mujeres será en blanco y negro, y tendrá las siguientes dimensiones: 50 centímetros de alto y 30 centímetros de ancho. En el caso de las fotografías para la Galería digital la resolución mínima será de 240 dpi en blanco y negro.
+La fotografía será acompañada de los siguientes datos: nombre, año de ingreso a la Galería, profesión u oficio y las razones por las que recibe el reconocimiento.

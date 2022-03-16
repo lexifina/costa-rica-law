@@ -1,0 +1,1 @@
+Artículo 13.-La Comisión contará con un plazo máximo de cuatro meses para la deliberación. Durante ese plazo sesionará de forma ordinaria una vez al mes, pudiendo sesionar extraordinariamente cuando sea requerido previa convocatoria por parte de la Presidencia de la Comisión.

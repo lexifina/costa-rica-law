@@ -1,0 +1,3 @@
+Artículo 8º-La Presidencia de la Comisión recaerá sobre una de las personas representantes del INAMU, siendo potestad de la Presidenta Ejecutiva de la institución designar a quien ostentará esta posición.
+La Presidencia de la Comisión será la encargada de conducir las reuniones y convocar a las personas integrantes propietarias y sus respectivas suplencias a las sesiones, sean estas ordinarias o extraordinarias.
+En caso de que la persona que ejerza la Presidencia no pueda asistir a alguna sesión, la persona que ostente la suplencia deberá asistir a la sesión de la Comisión y ejercer la Presidencia de esta.

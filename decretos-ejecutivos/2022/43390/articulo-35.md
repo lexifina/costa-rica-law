@@ -1,0 +1,1 @@
+Artículo 35.-La biografía, su fotografía y los materiales presentados para la postulación de las mujeres que ingresen a la Galería de las Mujeres estará disponible en la página web del INAMU, y formará parte del patrimonio institucional. Además, podrán ser utilizados para publicaciones de carácter institucional: documentos, afiches, desplegables y otros similares.
