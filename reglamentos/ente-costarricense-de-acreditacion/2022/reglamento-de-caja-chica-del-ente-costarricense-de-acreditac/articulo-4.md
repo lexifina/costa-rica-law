@@ -1,0 +1,1 @@
+Artículo 4-De la apertura. Una vez aprobada la apertura de una caja chica, el departamento de Contabilidad emitirá un cheque de iniciación a nombre del responsable del fondo y por el monto autorizado. Este movimiento originará la apertura de la correspondiente cuenta en el auxiliar del Balance de Situación.

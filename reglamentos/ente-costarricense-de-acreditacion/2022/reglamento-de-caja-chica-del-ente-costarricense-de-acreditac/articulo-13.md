@@ -1,0 +1,2 @@
+Artículo 13.-De la responsabilidad de la integridad. La caja chica requiere que en todo momento tenga la suma total asignada, ya sea en efectivo, adelantos de dinero (vales), documentos o solicitudes de reintegro en trámite, facturas, tiquetes de caja, adelantos y liquidaciones de gastos de viajes, y otros documentos representativos del efectivo.
+El trabajador a quien se le asigne la caja chica, será responsable de la integridad del fondo, de cualquier pérdida, abuso, daño o uso indebido que se haga del mismo.

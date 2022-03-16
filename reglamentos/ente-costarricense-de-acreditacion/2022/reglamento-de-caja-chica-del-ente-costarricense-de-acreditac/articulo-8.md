@@ -1,0 +1,1 @@
+Artículo 8-De la subdivisión y fraccionamiento. No se permite la subdivisión del fondo de caja chica en otros fondos menores para propósitos internos; si fuera necesaria la creación de subdivisiones deberán solicitarse por los medios indicados en el artículo Nº 2 anterior. Igualmente, se prohíbe el fraccionamiento de compras mediante caja chica.

@@ -1,0 +1,1 @@
+Artículo 12.-De la liquidación del cierre presupuestario. Será obligatorio al último día hábil de diciembre de cada año, realizar por parte de cada encargado, una liquidación con los gastos efectuados a esa fecha y que se encuentren pendientes de reintegro; lo anterior es con el objeto de que los cargos afecten el presupuesto del período en consideración y no al siguiente.

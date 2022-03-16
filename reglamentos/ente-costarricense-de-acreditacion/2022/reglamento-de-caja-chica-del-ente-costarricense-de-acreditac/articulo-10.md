@@ -1,0 +1,1 @@
+Artículo 10.-Del seguro de fidelidad. El fondo de caja chica estará cubierto por un seguro de fidelidad individual, según lo dispone el artículo Nº 13 de la Ley Nº 8131 "Ley de Administración Financiera de la República y Presupuestos Públicos."
