@@ -1,0 +1,3 @@
+Artículo 9.- Coordinación entre Direcciones.
+Las Direcciones de Defensa procurarán realizar una defensa integral e interdependiente de todos los derechos por lo que, cuando sea necesario, coordinarán con las demás direcciones.
+En el supuesto de que un evento vulnere uno o más derechos, para su categorización prevalecerá el indicador de vulneración de población y será, sobre este, que se defina la asignación del registro de intervención; para ello el Departamento de Informática habilitará, en caso que más de una persona profesional lleve el asunto sea o no de la misma dirección, se evidencie en su fase del ciclo, en su carga de trabajo, roles y responsabilidades en su atención; asimismo establecerá los medios de control interno requeridos para el tema en concreto.

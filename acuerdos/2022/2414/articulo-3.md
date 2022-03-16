@@ -1,0 +1,3 @@
+Artículo 3.- Principios Rectores.
+Todos los procedimientos que se regulan la presente Tipología de Derechos deben observar los principios rectores que han sido establecidos para el ejercicio de la función pública, los incorporados dentro del Derecho Internacional, los establecidos en el enfoque basado en los DDHH y aquellos desarrollados en la jurisprudencia nacional e internacional.
+Asimismo, todas las instancias de la Defensoría de los Habitantes de la República coordinarán sus labores para garantizar la observancia de estos principios, así como la aplicación y efectividad de los procedimientos establecidos en la presente herramienta de trabajo.

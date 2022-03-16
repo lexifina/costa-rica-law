@@ -1,0 +1,17 @@
+DEFENSORÍA DE LOS HABITANTES DE LA REPÚBLICA
+ACUERDO 2414
+LA DEFENSORA DE LOS HABITANTES DE LA REPÚBLICA
+Con fundamento en el artículo 1 de la Ley de la Defensoría de los Habitantes de la República, Ley Nº 7319 del 17 de noviembre de 1992 y de conformidad con lo que establecen los artículos 1, 2,3, 6,7, 8 y 9 inciso a) del Reglamento de la Defensoría de los Habitantes de la República, Decreto Ejecutivo Nº 22266-J del 15 de junio de 1993; y, los artículos 4,10,11,64,70,99 inciso 2), 103 inicios 1) y3), 105 inciso 1), 113), 129,130 inciso 1), 136 inciso e) todos de la Ley General de la Administración Pública Ley N° 6227 y sus reformas.
+Considerando:
+I. La actividad desplegada por la Defensoría de los Habitantes en la defensa y promoción de derechos debe regirse por disposiciones y normativa homogénea, en apego al mandato de ley que ha sido encomendado a esta institución, por lo que estas deben oficializarse.
+II. Que la Tipología de Derechos actual, como instrumento que permite la categorización de asuntos que se reciben en la institución según el derecho que está siendo vulnerado y la situación que lo vulnera, debe de ser actualizada para mejorar la eficiencia, eficacia, agilidad y oportunidad de las diferentes intervenciones que realice la institución, además de permitir la obtención información para la toma de decisiones estratégicas institucionales.
+III. Desde el Despacho de la Jerarca se han definido líneas de acción para que la Defensoría sea una institución más eficiente, pertinente y moderna; por ello, se conformó un equipo de trabajo al que se le encomendó la actualización de la Tipología Institucional.
+IV. Para la revisión y actualización de la nueva Tipología de Derechos se estableció un proceso participativo en el cual se sometió la propuesta inicial a consideración de las direcciones de Defensa, Admisibilidad y Oficinas Regionales, a partir de esta se plantearon diversas observaciones, las cuales fueron analizadas e incorporadas en una versión final.
+V. Que el conjunto de variables que componen la categorización de derechos en la Tipología de Derechos permite el establecimiento de indicadores de vulneración que coadyuvará en mejorar la toma de decisiones en cumplimento de los objetivos institucionales generados a partir del mandato de la ley N° 7319 que crea la Defensoría de los Habitantes.
+Por lo tanto,
+Se acuerda:
+Primero. - Dictar la presente Tipología de Derechos, que regulará la clasificación de asuntos sometidos a conocimiento de la institución, en la defensa de derechos e intereses que lleva a cabo la Defensoría de los Habitantes de la República, en los procesos que las componen: Admisión y Defensa.
+Segundo. - La clasificación señalada en la presente Tipología de Derechos será de uso obligatorio para las direcciones de Admisibilidad, Oficinas Regionales, Defensa, y cualquier otro órgano por disposición del o la Jerarca de la institución y se regirá de acuerdo con las siguientes disposiciones:
+POLOGÍA DE DERECHOS
+Artículo 1.- Principio Orientador.
+Establecer una clasificación de derechos a través de un abordaje integral, sobre la temática que se venía efectuando hasta el momento para que: la información generada pueda ser estudiada tanto desde el estado de los derechos, como de la gestión del Estado y las poblaciones afectadas en la formulación de estrategias; asimismo, para el establecimiento de formas de trabajo que optimicen la defensa de los derechos e intereses de las y los habitantes.

@@ -1,0 +1,3 @@
+Artículo 10.- Ajuste de Tipología.
+Cuando una Dirección de Defensa, Dirección de Admisibilidad o Sedes Regionales, de acuerdo a las consideraciones específicas de un evento considere que no existe una tipología que se ajuste al mismo, solicitará a la Dirección de Planificación y Desarrollo Institucional, de manera formal, la valoración de incorporación o modificación de las especificidades en la tipología, quien deberá resolver dentro de un plazo no mayor a cinco días hábiles lo que corresponda.
+La Dirección de Planificación Institucional comunicará, a la Dirección solicitante del ajuste, lo resuelto dentro del plazo citado. En caso de proceder el ajuste, coordinará con el Departamento de Informática institucional las modificaciones necesarias
