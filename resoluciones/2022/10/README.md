@@ -14,3 +14,4 @@ Estandariza la metodología para el cálculo de la tasa de interés efectiva as�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-03-11 | la propia norma |
+| 2 | 2022-03-16 | Resolución 14 (2022-03-16) |
