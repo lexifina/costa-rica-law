@@ -1,0 +1,1 @@
+Artículo 11.-Elementos complementarios. Con base en su conocimiento y experiencia, los funcionarios podrán utilizar elementos técnicos complementarios a las características ecológicas indicadas en los artículos 9 y 10 para fundamentar su criterio de identificación y clasificación.

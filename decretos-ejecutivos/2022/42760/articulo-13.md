@@ -1,0 +1,4 @@
+CAPÍTULO IV
+CONSIDERACIONES TÉCNICAS COMPLEMENTARIAS PARA HUMEDALES
+UBICADOS EN LA ZONA MARÍTIMO TERRESTRE
+Artículo 13.-Consideraciones técnicas complementarias para bosques anegados o inundados por agua dulce. Estos bosques se desarrollan en las márgenes de lagos o lagunas, así como también en algunos ríos. Se caracterizan por una estructura no muy compleja con un sotobosque dominado por palmas, algunos helechos y juveniles (plántulas) de las especies hidrófilas como el cativo (Prioria copaifera), el orey (Campnosperma panamensis), el sangrillo (Ptercarpus officinalis) y muy comúnmente la palma de yolillo (Raphia taedigera), entre otros. Es necesario verificar en el campo las condiciones indicadas anteriormente y la presencia de alguna de las especies vegetales citadas. El límite se demarca hasta donde llegue la presencia de plantas asociadas a este ecosistema.

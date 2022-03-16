@@ -1,0 +1,2 @@
+Artículo 4.-Instrumentos técnicos asociados al inventario nacional de humedales. El inventario deberá elaborarse y actualizarse de conformidad con la metodología creada para esos efectos, la cual es responsabilidad del Sistema Nacional de Áreas de Conservación.
+Como complemento a la metodología, deberá utilizarse la guía práctica para la caracterización y delimitación de suelos hidromórficos asociados a los ecosistemas de humedal, y la guía de plantas comunes de los humedales

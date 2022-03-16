@@ -1,0 +1,1 @@
+Artículo 19.-Derogatoria. Deróguese el Decreto Ejecutivo N°35803-MINAET de 7 de enero de 2010, denominado "Criterios Técnicos para la Identificación, Clasificación y Conservación de Humedales", publicado en La Gaceta N°73 del 16 de abril de 2010.

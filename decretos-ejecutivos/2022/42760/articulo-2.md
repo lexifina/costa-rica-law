@@ -1,0 +1,7 @@
+Artículo 2.-Mandato general. Con independencia del lugar donde se hallen los ecosistemas de humedal, el Estado deberá ejercer una tutela jurídica especial de protección sobre ellos, en virtud de su condición de bienes de interés público y en relación tanto con la dimensión ambiental de la función social de la propiedad, como con el derecho de las personas a un ambiente sano y ecológicamente equilibrado.
+Para estos efectos, el Sistema Nacional de Áreas de Conservación en el ámbito de su competencia, realizará acciones tanto de tutela preventiva como de resguardo activo sobre estos ecosistemas, como las siguientes:
+a) Vigilar para que las medidas de ordenamiento territorial que dicten las municipalidades y demás entes competentes, protejan y conserven los ecosistemas de humedal.
+b) Velar para que en los ecosistemas de humedal no se realicen actividades tales como la construcción de diques que eviten el flujo de aguas marinas o continentales, drenajes, desecamiento, rellenos, o cualquier otra alteración que interrumpa los ciclos naturales de estos ecosistemas y sus componentes, que provoquen su deterioro o eliminación.
+c) Brindar información y orientación a las personas sobre las medidas que deben tomarse para proteger y conservar los ecosistemas de humedal.
+d) Denunciar ante las autoridades administrativas o judiciales aquellas acciones que provoquen afectación a un ecosistema de humedal.
+e) Cualquier otra medida de protección y conservación establecida en el ordenamiento jurídico.

@@ -1,0 +1,2 @@
+Artículo 6.-Validación y publicación. La información del inventario generada por cada Área de Conservación, deberá ser revisada y validada por el Programa Nacional de Humedales y el Departamento de Información y Regularización del Territorio, ambas instancias de la Secretaria Ejecutiva del Sistema Nacional de Áreas de Conservación.
+El SINAC utilizará los procedimientos técnicos existentes, para que la información del inventario sea publicada en el Sistema Nacional de Información Ambiental (SINIA) y en el Sistema Nacional de Información Territorial (SNIT).

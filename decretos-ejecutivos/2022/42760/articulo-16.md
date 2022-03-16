@@ -1,0 +1,1 @@
+Artículo 16.-Consideraciones técnicas complementarias para esteros. Para el caso de las rías y esteros, en ausencia de manglar, de previo a la clasificación, debe existir el alineamiento de la zona pública por parte del Instituto Geográfico Nacional. Las rías y esteros son zona pública y a partir de ellos continúa la zona restringida que debe ser clasificada.
