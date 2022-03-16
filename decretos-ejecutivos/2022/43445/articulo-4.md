@@ -1,0 +1,1 @@
+Artículo 4°-Deróguese el Decreto Ejecutivo N° 38373- S del 21 de abril del 2014 "Oficialización de la Norma para la Atención a Personas con Cáncer de Próstata", publicado en el Diario Oficial La Gaceta N° 94 del día 19 de mayo del 2014.
