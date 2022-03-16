@@ -1,0 +1,1 @@
+Artículo 5º-De los responsables administradores de contenido. El Portal Web y sus diferentes secciones contarán con un Comité Editorial, responsable de alimentar y mantener actualizada la información, imágenes, formularios y todo tipo de contenido en líneas suministradas por los diferentes departamentos municipales.

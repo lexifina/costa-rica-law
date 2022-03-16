@@ -1,0 +1,1 @@
+Artículo 6º-Del código de acceso. A cada miembro del comité editorial se le asignará un código de acceso al portal a fin de que proceda con la actualización del mismo. El código será registrado en el sistema y permitirá verificar cada uno de los ingresos, sus frecuencias y los tipos de actualizaciones.

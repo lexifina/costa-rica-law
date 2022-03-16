@@ -1,0 +1,1 @@
+Artículo 2º-De los responsables. Cada unidad, departamento y áreas municipales que contengan información dentro de la página web, serán los responsables de la información publicada y de que ésta se encuentre actualizada.

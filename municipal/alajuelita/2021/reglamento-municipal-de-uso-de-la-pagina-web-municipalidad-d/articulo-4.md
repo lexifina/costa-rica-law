@@ -1,0 +1,1 @@
+Artículo 4º-De los administradores de contenido. Existe un Comité Editorial conformado por los colaboradores de los departamentos: Prensa y Comunicación, Comunicación Social UTGV y Tecnologías de Información y Comunicación, los cuales fungen como administradores de contenido.

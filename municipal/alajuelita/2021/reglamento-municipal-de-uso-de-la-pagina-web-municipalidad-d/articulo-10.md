@@ -1,0 +1,1 @@
+Artículo 10.-De la calidad e inmediatez de la información. La estructura de la página web debe de satisfacer simultáneamente las necesidades de los usuarios internos y externos, razón por la cual la información contenida en la página web debe de ser de calidad e inmediatez.

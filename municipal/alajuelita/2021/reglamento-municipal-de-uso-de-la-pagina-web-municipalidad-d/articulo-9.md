@@ -1,0 +1,1 @@
+Artículo 9º-Información disconforme con el formato existente. De acuerdo al Artículo 8º si la información enviada no es apta para subirla a la Pagina web, el Comité responderá la solicitud con la justificación del rechazo y/o solicitud de corrección si así lo requiere.
