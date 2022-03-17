@@ -1,0 +1,3 @@
+Artículo 8º-Límites a la reiteración de consultas. Rechazado un asunto en plebiscito o referendo, no podrá volver a ser sometido a consulta popular en un plazo inferior a dos años.
+No se realizarán consultas populares a escala cantonal o distrital dentro de los seis meses anteriores a la celebración de elecciones nacionales o municipales.
+9º-Obligatoriedad del resultado de la consulta. El resultado de la consulta, cuando se trate de plebiscito o referendo, será de acatamiento obligatorio para el Gobierno Municipal y el Concejo Municipal deberá ratificar y avalar obligatoriamente el mismo, por medio de un acuerdo municipal, conforme se tiene establecida su adopción.

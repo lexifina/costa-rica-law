@@ -1,0 +1,1 @@
+Artículo 32.—Convocatoria. El Concejo hará la convocatoria a cabildo abierto por medios idóneos que garanticen su conocimiento por parte de la población, en un tiempo prudencial que no podrá ser menor a un mes anterior a la celebración del cabildo.

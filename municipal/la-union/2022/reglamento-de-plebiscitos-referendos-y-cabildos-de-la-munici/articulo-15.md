@@ -1,0 +1,1 @@
+Artículo 15.—Propaganda. El Concejo Municipal establecerá los límites de la propaganda para las diferentes propuestas, debiendo cerrarse el período tres días antes de la realización del plebiscito o referendo. Asimismo, el Concejo Municipal debe garantizar que la información que circule sea veraz, respetuosa, y no induzca a confusión al electorado.

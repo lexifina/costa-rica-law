@@ -1,0 +1,1 @@
+Artículo 24.—Deberán de seguirse en todo el proceso de plebiscitos y referendos las regulaciones normativas del Tribunal Supremo de Elecciones en materia de acreditación de fiscales de las tendencias a favor y en contra de la consulta.

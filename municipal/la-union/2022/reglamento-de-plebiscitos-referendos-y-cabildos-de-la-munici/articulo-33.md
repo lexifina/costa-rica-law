@@ -1,0 +1,1 @@
+Artículo 33.—Lugar del cabildo. El cabildo deberá realizarse en un lugar público ubicado dentro de la jurisdicción del Cantón La Unión o del distrito involucrado. Cuando se trate de dos o más distritos y hasta de la totalidad del cantón, el acuerdo deberá fijar la o las sedes a utilizar dentro de la jurisdicción cantonal, para tal fin.

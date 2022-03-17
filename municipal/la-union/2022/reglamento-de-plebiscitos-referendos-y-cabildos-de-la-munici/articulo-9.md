@@ -1,0 +1,1 @@
+9º-Obligatoriedad del resultado de la consulta. El resultado de la consulta, cuando se trate de plebiscito o referendo, será de acatamiento obligatorio para el Gobierno Municipal y el Concejo Municipal deberá ratificar y avalar obligatoriamente el mismo, por medio de un acuerdo municipal, conforme se tiene establecida su adopción.

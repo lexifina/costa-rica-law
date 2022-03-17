@@ -1,0 +1,1 @@
+Artículo 37.—Organización. Las consultas populares a escala distrital se realizarán conforme a las normas establecidas para las consultas a escala cantonal con la salvedad que la organización y dirección de la misma, estará a cargo del Concejo Distrital.

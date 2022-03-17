@@ -1,0 +1,1 @@
+Artículo 34.—Propuestas escritas. El Concejo en un término no menor de un mes a partir de la difusión de dicha convocatoria, recibirá propuestas escritas de los ciudadanos referentes al tema a discutir.

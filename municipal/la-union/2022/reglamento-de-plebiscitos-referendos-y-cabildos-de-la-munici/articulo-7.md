@@ -1,0 +1,1 @@
+Artículo 7º-Fecha de las consultas. Las consultas populares deberán realizarse en domingo, o feriado de ley, salvo que por mayoría calificada del Concejo Municipal se disponga lo contrario, pero en su razonamiento, deberá argumentar la forma de garantizar la factibilidad de participación de los electores involucrados en dichas consultas.

@@ -1,0 +1,1 @@
+Artículo 13.—Divulgación de la consulta. El Concejo Municipal tomará todas las medidas necesarias a fin de dar amplia divulgación a la consulta en todo el cantón, y promover la efectiva participación de la ciudadanía en dichas consultas.

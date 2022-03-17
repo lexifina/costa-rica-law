@@ -1,0 +1,1 @@
+Artículo 26.—Destitución de suplentes. El plebiscito de revocatoria de mandato podrá extenderse a los Vicealcaldes, para lo cual se requerirá el acuerdo de tres cuartas partes de los regidores. En tal caso, la pregunta sobre la destitución de los Vicealcaldes será independiente de la del alcalde o alcaldesa propietario.
