@@ -1,0 +1,1 @@
+Artículo 14.-Todas las personas integrantes de La Junta Directiva de la Casa de La Cultura de La Unión actuarán durante el ejercicio de sus funciones en concordancia con este reglamento, la normativa nacional y política municipal cantonal atinente en materia de cultura.

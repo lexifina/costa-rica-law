@@ -1,0 +1,1 @@
+Artículo 39.-Podrá la Junta proponer al Concejo las modificaciones que estime convenientes y los presupuestos extraordinarios que pudieran originarse es especiales de recibirse ingresos por vías contempladas en el proyecto original.

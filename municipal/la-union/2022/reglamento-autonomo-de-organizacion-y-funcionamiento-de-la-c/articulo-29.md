@@ -1,0 +1,1 @@
+Artículo 29.-La Junta Directiva, una vez constituida, acordará la fecha y hora de la sesión inaugural, así como la frecuencia de estas. No obstante, por motivos especiales y a juicio de la mayoría, podrá variarse la fecha y hora, de una o varias sesiones.

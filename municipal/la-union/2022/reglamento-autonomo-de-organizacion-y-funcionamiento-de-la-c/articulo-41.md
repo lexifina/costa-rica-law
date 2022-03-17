@@ -1,0 +1,1 @@
+Artículo 41.-En la primera quincena del mes de agosto de cada año, la Junta Directiva vigente presentará a consideración de la Administración Municipal el Plan Anual Operativo y su Presupuesto para el año siguiente. En el mes de enero presentará el Informe Anual de Actividades y Gastos del año anterior.

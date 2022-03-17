@@ -1,0 +1,1 @@
+Artículo 15.-La Junta, una vez nombrada y juramentada por el Concejo Municipal, elegirá en su seno: un Presidente, un Vicepresidente, un secretario, un Tesorero y un miembro director que funcionará de acuerdo con lo que indica la ley y presente reglamento.

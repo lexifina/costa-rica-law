@@ -1,0 +1,1 @@
+Artículo 40.-Corresponderá a la Auditoría Municipal determinar el tipo de controles y formularios a emplear para garantizar una correcta aplicación y ejecución del presupuesto, el cual deberá reflejarse en los informes previstos anteriormente.

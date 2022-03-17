@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Elección de los miembros de la Junta Administrativa
+de la Casa de la Cultura
+Artículo 6º-Los miembros de la Junta Administradora serán integrados de la siguiente manera: uno provendrá de la terna que proponga la Unión Cantonal de Asociaciones de Desarrollo, otro del sector educativo escogido de la terna que proponga la asesoría y supervisión del circuito 06, este miembro debe tener afinidad con el arte y la cultura, dos miembros serán escogidos por el Concejo Municipal de La Unión de las ternas que propongan los diferentes grupos culturales y artísticos de gran trayectoria en el Cantón de La Unión y un miembro será propuesto directamente por las asociaciones culturales. Estas convocatorias deben hacerse con un mínimo de 15 días de antelación a la misma, y se harán mediante la publicación en los medios oficiales de la Municipalidad de La Unión.

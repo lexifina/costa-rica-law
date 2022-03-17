@@ -1,0 +1,1 @@
+Artículo 28.-Además de los que determine la Junta al momento de votar se requerirá de alcanzarlos en forma definitiva, los acuerdos que aprueben el presupuesto y el plan de trabajo para el año correspondiente.

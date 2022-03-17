@@ -1,0 +1,1 @@
+Artículo 37.-La Administración Municipal destinará un presupuesto inicial con la aprobación del reglamento por un monto acorde al Plan Operativo y al Presupuesto Anual Ordinario de Ingresos Municipales aplicable para el período 2022 para la Casa de La Cultura de La Unión, teniendo un incremento anual.

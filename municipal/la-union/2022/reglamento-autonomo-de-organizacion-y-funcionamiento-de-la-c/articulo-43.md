@@ -1,0 +1,1 @@
+Artículo 43.-Servicios no esenciales regulares como limpieza, jardinería, mantenimiento, reparaciones y mejoras a la infraestructura, dotación y mantenimiento de equipo, mobiliario y afines, serán asumidos por la Municipalidad dentro de su Presupuesto Anual. Eventualmente con fondos propios la Casa de la Cultura podrá contratar servicios menores de esa naturaleza.
