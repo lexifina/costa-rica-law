@@ -1,28 +1,16 @@
-ARTICULO 3
-Designación de Empresas
-1.- Cada Parte Contratante tendrá derecho a designar una empresa de
-transporte aéreo para que explote los servicios contenidos en las rutas
-especificadas, notificándolo por escrito a la otra Parte Contratante.
-2.-Al recibir dicha notificación la otra Parte Contratante deberá
-conceder sin demora a la empresa aérea designada las correspondientes
-autorizaciones de explotación, con arreglo a las disposiciones de los
-párrafos 3 y 4 del presente artículo y del párrafo 1 del artículo IV.
-3.-Las Autoridades Aeronáuticas de una de las Partes Contratantes
-podía exigir que la empresa aérea designada de la otra Parte Contratante,
-demuestre que está en condiciones de cumplir con las obligaciones
-prescritas en las Leyes y Reglamentos normal y razonablemente aplicadas por
-dichas Autoridades a la explotación de los servicios aéreos
-internacionales, de conformidad con las disposiciones del Convenio de
-Chicago.
-4.-Cada Parte Contratante tendrá el derecho de negar la autorización
-de explotación mencionada en el párrafo 2 de este artículo, o de imponer
-las condiciones que estime necesarias para el ejercicio, por parte de una
-empresa de transporte aéreo, de los derechos especificados en el artículo
-II, cuando no esté convencida de que la propiedad y el control efectivo de
-esta empresa se hallen en manos de la Parte Contratante que ha designado a
-la empresa o de sus nacionales.
-5.-Cuando una empresa aérea haya sido de este modo designada y
-autorizada, podrá comenzar, en cualquier momento, a explotar los servicios
-convenidos, siempre que esté en vigor en dichos servicios una tarifa
-establecida de conformidad con las disposiciones del Artículo VI del
-presente Convenio.
+Artículo 3.
+Designación de empresas
+1. Cada Parte Contratante tendrá derecho a designar por escrito a la otra Parte Contratante, a través de la vía diplomática, el número de empresas aéreas que desee, con el fin de explotar los servicios aéreos convenidos en las rutas especificadas, así como a sustituir por otra a una empresa aérea previamente designada.
+2. Las Autoridades Aeronáuticas de una de las Partes Contratantes podrán exigir que las empresas aéreas designadas de la otra Parte Contratante, demuestren que están en condiciones de cumplir con las obligaciones prescritas en las leyes y reglamentos, normal y razonablemente aplicados por dichas Autoridades a la explotación de los servicios aéreos internacionales, de conformidad con las disposiciones del Convenio sobre Aviación Civil Internacional, firmado en Chicago el 7 de diciembre de 1944, que incluye cualquier Anexo adoptado en virtud del Artículo 90 de dicho Convenio, cualquier modificación de los Anexos o del Convenio en virtud de los Artículos 90 y 94 del mismo, siempre que dichos Anexos y modificaciones hayan sido aprobados o ratificados por ambas Partes Contratantes.
+3. Al recibir dicha designación, y previa solicitud de la empresa aérea designada, formulada en la forma requerida, la otra Parte Contratante deberá, con arreglo a las disposiciones de los apartados 3 y 4 del presente Artículo, otorgar sin demora los correspondientes permisos y autorizaciones.
+4. La concesión de las autorizaciones de explotación mencionadas en el apartado 2 de este Artículo requerirá:
+a) En el caso de una empresa aérea designada por el Reino de España:
+1. Que esté establecida en el territorio del Reino de España de conformidad con los Tratados de la Unión Europea y que posea una licencia de explotación válida de conformidad con el Derecho de la Unión Europea; y
+2. Que el control reglamentario efectivo de la compañía aérea lo ejerza y mantenga el Estado Miembro de la Unión Europea responsable de la expedición de su Certificado de Operador Aéreo, apareciendo claramente indicada en la designación la Autoridad Aeronáutica pertinente; y
+3. Que la compañía aérea se encuentre efectivamente bajo el control de Estados Miembros de la Unión Europea o de la Asociación Europea de Libre Comercio, y/o de sus nacionales.
+b) En el caso de una empresa aérea designada por Costa Rica:
+1. Que esté establecida en el territorio de Costa Rica y autorizada conforme a la legislación aplicable en Costa Rica y
+2. Que Costa Rica ejerza y mantenga un control regulador efectivo y continuado de dicha empresa aérea y sea responsable de emitir el Certificado de Operador Aéreo; y
+3. Que la compañía aérea esté efectivamente controlada por Costa Rica y/o nacionales de Costa Rica.
+5. Cuando una empresa aérea haya sido designada y autorizada conforme a este artículo, podrá comenzar, en cualquier momento, a explotar los servicios para los que ha sido designada, siempre que cumpla con las disposiciones de este Convenio.
+(Así reformado por el artículo único de la ley N° 10143 del 8 de marzo del 2022 "Aprueba el canje de notas para las enmienda al Convenio de transporte aéreo entre el Gobierno de la República de Costa Rica y el Reino de España")
