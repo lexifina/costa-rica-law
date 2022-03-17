@@ -1,0 +1,1 @@
+TRANSITORIO l- En un plazo no mayor a un mes, el Ministerio de Hacienda, en coordinación con el Consejo Nacional de Facilitación del Comercio, deberá desarrollar una política nacional que reúna las acciones, los plazos y los recursos necesarios para insertar a Costa Rica en el Sistema de Integración de Información Aduanera Internacional.
