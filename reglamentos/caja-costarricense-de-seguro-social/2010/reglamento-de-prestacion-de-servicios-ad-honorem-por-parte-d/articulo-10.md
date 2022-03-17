@@ -1,1 +1,0 @@
-Artículo 10.—No obligatoriedad de aceptación de prestación del servicio. Por la índole de prestación del servicio, no será obligatorio para la administración aceptar la propuesta del profesional interesado.

@@ -1,1 +1,0 @@
-Artículo 12.—Póliza de fidelidad del Instituto Nacional de Seguros. Bajo ninguna circunstancia se podrá ejercer el servicio ad honorem en actividades o lugares no autorizados previamente y sin el respaldo de las pólizas de fidelidad del Instituto Nacional de Seguros requeridas.

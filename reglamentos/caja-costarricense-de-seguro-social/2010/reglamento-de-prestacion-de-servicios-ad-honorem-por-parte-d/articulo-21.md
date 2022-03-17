@@ -1,1 +1,0 @@
-Artículo 21.—Duración de la prestación del servicio. La prestación del servicio ad honorem aquí regulado, tendrá carácter indefinido, limitándose el tiempo según lo señalado en el artículo 18 de este Reglamento.

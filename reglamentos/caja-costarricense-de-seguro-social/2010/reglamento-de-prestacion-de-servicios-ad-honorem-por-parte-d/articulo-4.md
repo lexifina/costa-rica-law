@@ -1,1 +1,0 @@
-Artículo 4º—Excepcionalidad y gratuidad de la prestación del servicio. La prestación del servicio, dada su naturaleza, será siempre de materia excepcional y gratuita, originándose únicamente los derechos y deberes derivados de la relación establecida y consignados en este Reglamento.

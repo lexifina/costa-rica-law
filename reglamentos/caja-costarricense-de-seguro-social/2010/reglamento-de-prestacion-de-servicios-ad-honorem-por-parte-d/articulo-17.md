@@ -1,1 +1,0 @@
-Artículo 17.—Prohibición de recibir pagos o favorecimientos. Es absolutamente prohibido al profesional ad honorem recibir pagos o cualquier tipo de dádivas, por parte de terceros o de los usuarios, así como brindar o recibir cualquier tipo de favorecimiento personal a pacientes o terceros con ocasión de los servicios prestados

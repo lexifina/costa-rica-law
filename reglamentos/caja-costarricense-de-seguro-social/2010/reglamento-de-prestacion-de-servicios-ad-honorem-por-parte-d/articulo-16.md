@@ -1,3 +1,0 @@
-Artículo 16.—Definición de condiciones y facilidades. El director médico del centro es el responsable de definir las condiciones, requerimientos y facilidades indispensables para el desarrollo de la actividad del profesional ad honorem.
-Cuando la actividad por realizar involucra la utilización de equipo o instrumental de uso delicado o restringido, deberá contarse previamente con el criterio de la jefatura del servicio.
-En caso de requerirse capacitación para la gestión de los servicios ad honorem, la Caja Costarricense de Seguro Social la brindará de manera gratuita, con los recursos en servicio existentes, según las disponibilidades existentes.

@@ -1,2 +1,0 @@
-Artículo 11.—Juramento. Aceptada la propuesta, el director médico de la unidad donde se prestará el servicio, procederá al juramento del profesional para concederle así la investidura de servidor público y le explicará en detalle la gestión por realizar, la cual deberá documentarse en un acta debidamente firmada por las partes.
-La ausencia de juramentación causará nulidad del nombramiento efectuado.

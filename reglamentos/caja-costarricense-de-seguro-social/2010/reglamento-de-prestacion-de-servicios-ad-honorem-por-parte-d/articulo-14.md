@@ -1,1 +1,0 @@
-Artículo 14.—Respeto a disposiciones jerárquicas. El o la profesional que, en condición ad honorem, se acoja a la posibilidad de prestación de servicios gratuitos bajo este Reglamento, deberá acatar las disposiciones jerárquicas que rigen a nivel de la Caja Costarricense de Seguro Social.

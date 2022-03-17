@@ -1,1 +1,0 @@
-Artículo 20.—Horario para la prestación del servicio. La gestión realizada por el profesional en servicio ad honorem deberá enmarcarse en el horario establecido para la prestación del servicio y conforme al nivel resolutivo de la unidad.

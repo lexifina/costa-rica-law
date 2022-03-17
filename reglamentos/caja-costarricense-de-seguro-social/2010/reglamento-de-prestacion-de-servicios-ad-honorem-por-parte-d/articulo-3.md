@@ -1,1 +1,0 @@
-Artículo 3º—Carácter de pensionado o jubilado. Para la prestación de los servicios ad honorem aquí regulados, se requiere que el o la profesional sea pensionado o jubilado y que no cuente con antecedentes penales, de responsabilidad objetiva o sanciones por mala praxis producto del ejercicio de su profesión.
