@@ -14,3 +14,4 @@ Reglamento sobre el acoso laboral en el Tribunal Supremo de Elecciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-04-23 | la propia norma |
+| 2 | 2022-03-17 | Decreto TSE 7 (2022-03-17) |

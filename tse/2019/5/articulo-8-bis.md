@@ -1,0 +1,2 @@
+Artículo 8 bis.-Plazo para interponer la denuncia: El plazo para interponer la denuncia será de un año y se computará a partir del último hecho constitutivo del supuesto hecho de acoso laboral o a partir de que cesó la causa justificada que le impidió a la persona denunciar. Ello de conformidad con lo dispuesto en el artículo 418 del Código de Trabajo.
+(Así adicionado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 7 del 17 de marzo de 2022)
