@@ -1,0 +1,2 @@
+ARTÍCULO 2- Política nacional
+Le corresponderá al Ministerio de Hacienda, como ente rector, definir una política nacional para promover la integración de información aduanera y la instalación de los equipos y los sistemas de la tecnología de inspección no intrusiva en todos los puestos, puertos marítimos, aeropuertos y pasos fronterizos terrestres de Costa Rica. Para la elaboración de dicha política, deberá consultar la opinión del Consejo Nacional de Facilitación del Comercio y al Instituto Costarricense Sobre Drogas (ICD).
