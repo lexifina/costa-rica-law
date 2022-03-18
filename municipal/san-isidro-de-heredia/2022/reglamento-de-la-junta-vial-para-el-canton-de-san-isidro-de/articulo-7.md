@@ -1,0 +1,1 @@
+Artículo 7º-La Junta Vial será presidida por la persona que ostente el cargo de alcalde o alcaldesa de la Municipalidad y en su ausencia, por parte de la persona que ostenta el cargo de la primer vicealcaldía. En la primera sesión del órgano, deberá elegirse además el cargo de secretario o secretaria, persona que se encargará del levantamiento de las actas de cada sesión.

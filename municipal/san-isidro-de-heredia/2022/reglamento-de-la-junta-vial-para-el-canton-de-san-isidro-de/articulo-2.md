@@ -1,0 +1,1 @@
+Artículo 2º-La Junta Vial es un órgano público nombrado por el Concejo Municipal de San Isidro de Heredia, ante quien responderá por su gestión, la cual será de consulta obligatoria en materia de planificación y evaluación de la obra pública vial cantonal y de servicio vial municipal, indistintamente de la proveniencia de los recursos económicos.
