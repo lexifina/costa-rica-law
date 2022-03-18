@@ -13,3 +13,4 @@ Declara Humedal San Vito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-02-22 | la propia norma |
+| 2 | 2022-03-18 | Ley 10124 |
