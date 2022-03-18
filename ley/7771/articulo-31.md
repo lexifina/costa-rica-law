@@ -1,4 +1,0 @@
-CAPÍTULO III
-Atención integral
-Artículo 31- Obligatoriedad
-Las personas trabajadoras de la salud, públicos y privados, deben prestar apoyo y atención integral a las personas usuarias con VIH sin excepción, considerando sus necesidades y condiciones específicas de vulnerabilidad. Esta incluye la atención informada, oportuna, de calidad y libre de estigma y discriminación de la salud, incluyendo la sexual y reproductiva, de la violencia contra las mujeres y las necesidades específicas de asistencia social. Para ello, deben realizarse las referencias pertinentes a servicios especializados de salud, a otras instituciones del Sistema Nacional de Atención y Prevención de la Violencia lntrafamiliar y la Violencia contra las Mujeres, y a otras instituciones, según su mandato y las necesidades de la persona atendida. Asimismo, están obligadas a brindar la atención que requieran las personas con VIH, tomando en cuenta las medidas de bioseguridad aprobadas y disponibles.

@@ -1,3 +1,0 @@
-Artículo 35- Tratamientos
-La Caja Costarricense de Seguro Social deberá investigar, importar, comprar y mantener en existencia y suministrar los tratamientos profilácticos y los medicamentos antirretrovirales, garantizando estándares de calidad, de manera oportuna, de acuerdo con las normas institucionales de seguridad farmacológica y con los respectivos protocolos de atención.
-El tratamiento antirretroviral y todos aquellos otros que sean necesarios para la atención de las personas con VIH no serán suspendidos por ninguna razón administrativa, presupuestaria, financiera, de planificación institucional o de otra índole material, a excepción del criterio médico.

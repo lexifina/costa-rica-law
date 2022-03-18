@@ -1,3 +1,0 @@
-Artículo 37- Ámbito de niñez y adolescencia
-Todas las instituciones públicas y privadas que tengan, dentro de sus competencias esenciales, la protección, defensa o atención de población adolescente y joven, deberán incorporar de forma prioritaria la prevención del VIH en beneficio de esta población, dentro de sus políticas, programas y proyectos, incluyendo información actualizada sobre los diferentes sistemas de prevención de dicha infección.
-Las instituciones educativas procurarán incorporar en su currículo educativo, a partir del segundo ciclo y hasta educación diversificada, todo lo referente a la prevención y el desarrollo del VIH.

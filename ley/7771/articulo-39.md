@@ -1,2 +1,0 @@
-Artículo 39- Atención especializada en salud
-Las personas privadas de libertad que requieran atención sanitaria especializada debido a complicaciones causadas por el VIH, que no puedan ser atendidas en el centro de reclusión respectivo, deberán recibir tratamiento ambulatorio, internamiento hospitalario o la solución que resulte necesaria e indispensable. El Estado debe garantizar la oportunidad en la atención, disminuyendo las barreras de acceso para esta población.

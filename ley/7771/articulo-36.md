@@ -1,4 +1,0 @@
-CAPITULO V
-Educación y capacitación
-Artículo 36- Obligaciones de los centros de educación y centros penitenciarios Se recomienda al Consejo Nacional de Rectores (Conare) y al Consejo Nacional de Enseñanza Superior Universitaria Privada (Conesup), que verifiquen, en el currículo de carreras formadoras de trabajadores de la salud y de las ciencias sociales, la inclusión de contenidos académicos y profesionales relacionados con la prevención, la atención, la consejería y el enfoque de derechos humanos relacionados con el VIH.
-Las instituciones de educación en general, así como la administración de los centros penales del Ministerio de Justicia, contribuirán con la prevención del VIH y otras infecciones de transmisión sexual, proveyendo información y cualesquiera otros mecanismos o soluciones viables que regule el Ministerio de Salud, como ente rector en la materia.
