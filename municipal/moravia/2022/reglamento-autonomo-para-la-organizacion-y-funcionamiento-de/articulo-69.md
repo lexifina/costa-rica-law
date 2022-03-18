@@ -1,0 +1,1 @@
+Artículo 69. —Los Comités Comunales deberán llevar un archivo de gestión administrativo y financiero en el que consten los informes referentes a su gestión, los cuales podrán ser solicitados por el CCDRM en cualquier momento.

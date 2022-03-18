@@ -1,0 +1,1 @@
+Artículo 83. —En lo que resultare omiso, contradictorio o confuso a este Reglamento resultarán aplicables supletoriamente el Código Municipal, la Ley General de Administración Pública y cualquier otra normativa aplicable.

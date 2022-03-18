@@ -1,0 +1,1 @@
+Artículo 74.—Los Comités Comunales deben presentar cada seis meses un informe de rendición de cuentas de la gestión realizada por la Junta Directiva ante el CCDRM, cumpliendo con los mismos requisitos definidos en el artículo 10 de este reglamento.

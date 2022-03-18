@@ -1,0 +1,4 @@
+CAPÍTULO XIII
+De los Comités Comunales
+Artículo 63. — Los Comités Comunales, será el órgano de enlace entre el CCDRM y los tres distritos del cantón. Se encuentran adscritos al CCDRM y estarán integrados por siete miembros residentes del mismo distrito, de los cuales cinco serán nombrados en Asamblea General, convocada para tal efecto por el CCDRM.
+La Asamblea General será presidida por el CCDRM y estará conformada por dos representantes de las organizaciones deportivas y recreativas, dos representantes nombrados por el Concejo Municipal, un miembro de las organizaciones comunales debidamente inscritas ante la Unión Cantonal de Asociaciones de Desarrollo de Moravia (UCAMO) y dos miembros de la población entre los 15 años y menores de 18 años, debiendo todos cumplir con los requisitos definidos en el artículo 15 de este reglamento. Para el nombramiento de las organizaciones se seguirá el procedimiento definido en este reglamento en el mismo artículo 15.

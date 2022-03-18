@@ -1,0 +1,1 @@
+Artículo 72. —Para la satisfacción de sus necesidades, los Comités Comunales deberán organizar actividades para captar recursos económicos efectivos o en especie, pudiendo solicitar para ello la colaboración de la empresa privada, instituciones públicas, y al CCRM.

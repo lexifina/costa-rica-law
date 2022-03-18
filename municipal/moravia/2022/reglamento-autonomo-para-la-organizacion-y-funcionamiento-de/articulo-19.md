@@ -1,0 +1,1 @@
+Artículo 19.-Los miembros de la Junta Directiva durarán en sus cargos dos años y podrán ser reelectos, con vigencia del 1 abril al 31 de marzo, en caso de sustitución o remplazo, la persona que asume el cargo lo hace hasta completar el plazo por el cual fue nombrada la persona que entra a sustituir.

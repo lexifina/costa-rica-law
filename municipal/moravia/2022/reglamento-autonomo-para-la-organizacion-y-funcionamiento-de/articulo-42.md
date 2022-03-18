@@ -1,0 +1,1 @@
+Artículo 42. - Las actas del CCDRM, deberán ser aprobadas en la sesión inmediata posterior, salvo que lo impidan razones de fuerza mayor, en cuyo caso la aprobación se pospondrá para la siguiente sesión ordinaria. Para acordar la revisión se necesitará la misma mayoría requerida para dictar el acuerdo recurrido.

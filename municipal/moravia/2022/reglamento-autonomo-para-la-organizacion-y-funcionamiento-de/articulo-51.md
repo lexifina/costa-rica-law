@@ -1,0 +1,1 @@
+Artículo 51.—El presupuesto debe reflejar las necesidades de las organizaciones deportivas y recreativas, los Comités Comunales, las comisiones que existan y de los munícipes, debiendo ser sometido para conocimiento del Concejo Municipal a más tardar en la primera semana del mes de julio de cada año, según artículo 181 Código Municipal.

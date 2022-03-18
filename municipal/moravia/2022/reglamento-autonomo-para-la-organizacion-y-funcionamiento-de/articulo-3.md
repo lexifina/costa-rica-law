@@ -1,0 +1,1 @@
+Artículo 3-El CCDRM constituye la máxima autoridad deportiva y recreativa del cantón; es el encargado de la atención y vigilancia de la actividad deportiva en todos sus aspectos, promoviendo el deporte y la recreación, procurando el aprovechamiento libre de sus habitantes mediante una recreación saludable y se regirá por las disposiciones del presente Reglamento.

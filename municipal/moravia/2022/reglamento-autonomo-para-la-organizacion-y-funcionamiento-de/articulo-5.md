@@ -1,0 +1,1 @@
+Artículo 5-El CCDRM en ejercicio de sus funciones y para el desempeño de las funciones que deba efectuar, actuará de conformidad con las facultades que la Ley y este Reglamento le señalen. Cada miembro desempeñará sus funciones de conformidad con las disposiciones de esta normativa y será responsable de cualquier actuación contraria a la misma.

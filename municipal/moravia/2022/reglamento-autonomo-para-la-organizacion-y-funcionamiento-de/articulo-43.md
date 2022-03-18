@@ -1,0 +1,1 @@
+Artículo 43. - Las actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y de la Secretaría del CCDRM. El libro de actas será autorizado por la Auditoría Interna de la Municipalidad y las hojas serán selladas y foliadas por esta.

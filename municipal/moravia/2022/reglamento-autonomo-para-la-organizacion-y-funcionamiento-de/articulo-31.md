@@ -1,0 +1,1 @@
+Artículo 31. -Todo miembro deberá comunicar en forma escrita cuando proceda, las razones de su inasistencia a las sesiones, a más tardar dentro de las veinticuatro horas naturales siguientes de celebrada la sesión por los medios oficiales que haya establecido el CCDRM, caso contrario será catalogada la inasistencia como injustificada y sancionable.

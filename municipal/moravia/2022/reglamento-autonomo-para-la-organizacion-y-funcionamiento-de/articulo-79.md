@@ -1,0 +1,1 @@
+Artículo 79. —Para los fines correspondientes a recursos humanos, el CCDRM podrá acudir a la asesoría del Proceso de Recursos Humanos y La Dirección de Gestión y Asesoría Jurídica de la Municipalidad quienes deberán asesorar y acompañar al CCDRM en lo que así le solicite.
