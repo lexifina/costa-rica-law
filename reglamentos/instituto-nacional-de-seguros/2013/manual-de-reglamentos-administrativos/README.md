@@ -24,3 +24,4 @@ Manual de Reglamentos Administrativos
 | 9 | 2021-05-18 | Reglamento 0 (2021-05-18) |
 | 10 | 2021-05-28 | Reglamento 0 (2021-05-28) |
 | 11 | 2021-05-31 | Reglamento 0 (2021-05-31) |
+| 12 | 2022-03-18 | Reglamento 0 (2022-03-18) |
