@@ -1,0 +1,3 @@
+Artículo 23. Las personas trabajadoras de la Empresa nombradas a tiempo indefinido tendrán derecho a recibir una indemnización por concepto de auxilio de cesantía según los supuestos, términos y topes establecidos en el Código de Trabajo (entiéndase tope de 8 años).
+Las personas trabajadoras cuyo nombramiento continuo supere el año, tendrán derecho al pago de cesantía, en los términos que establece el presente reglamento.
+Lo anterior no será aplicable si se trata de la excepción establecida en el Artículo No. 27 del Código de Trabajo: que el nombramiento haya sido superior al plazo indicado por tratarse de servicios que requieran preparación técnica especial, salvo que el plazo de nombramiento continuo sea superior a cinco años.

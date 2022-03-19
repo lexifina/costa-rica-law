@@ -1,0 +1,3 @@
+Sección III. Aguinaldo.
+Artículo 61. Toda persona trabajadora de la Empresa, de cualquier clase que sea y cualquiera que sea la forma que se le pague el salario, tendrá derecho a un beneficio económico anual, de acuerdo con la proporción que al efecto señale la Ley (aguinaldo). El monto responderá al tiempo proporcional que hayan laborado durante el año utilizado para el cómputo.
+Aquellas personas trabajadoras cuyo contrato de trabajo no haya cumplido un año de vigencia por cualquier causa, siempre que hayan prestado sus servicios por un tiempo no menor de un mes, tendrán derecho a que se les pague una parte del beneficio proporcional al tiempo servido y salarios devengados.

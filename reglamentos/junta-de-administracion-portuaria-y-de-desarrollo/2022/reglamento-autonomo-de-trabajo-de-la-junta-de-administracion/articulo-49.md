@@ -1,0 +1,1 @@
+Artículo 49. Toda persona trabajadora tendrá derecho a devengar, estando en igualdad de condiciones, según el esquema salarial aplicable, un salario base igual al de las personas trabajadoras que ocupen un puesto igual (cuando se aplique este esquema de compensación), sin discriminación alguna por razones de sexo, religión, edad y opinión política o de cualquier otra índole.

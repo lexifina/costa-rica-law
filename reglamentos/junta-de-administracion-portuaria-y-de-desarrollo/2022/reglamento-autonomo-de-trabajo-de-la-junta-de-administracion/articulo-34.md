@@ -1,0 +1,1 @@
+Artículo 34. No será tiempo extraordinario el utilizado por la persona trabajadora para subsanar los errores a ella imputables, cometidos durante la jornada ordinaria o bien el tiempo que, de forma voluntaria, utilice para realizar labores fuera de su jornada ordinaria de trabajo.

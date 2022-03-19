@@ -1,0 +1,1 @@
+Artículo 3. Sin perjuicio de otros aplicables, el presente reglamento se inspira en los principios Protector, Buena Fe, Igualdad y demás principios Generales del Derecho del Trabajo; asimismo en los de proporcionalidad, legalidad, probidad, eficiencia y razonabilidad el manejo de fondos públicos.

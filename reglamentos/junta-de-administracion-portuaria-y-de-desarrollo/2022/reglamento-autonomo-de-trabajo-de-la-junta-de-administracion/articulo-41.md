@@ -1,0 +1,1 @@
+Artículo 41. Para calcular el salario que la persona trabajadora deberá? recibir durante sus vacaciones, se tomará el promedio de las remuneraciones ordinarias y extraordinarias devengadas por ella durante las últimas cincuenta semanas. Los respectivos términos se contarán a partir del momento en que la persona trabajadora adquiera su derecho al descanso.

@@ -1,0 +1,2 @@
+Artículo 15. Los traslados y reubicaciones podrán ser acordados unilateralmente por la Empresa, siempre que no se cause grave perjuicio a la persona trabajadora. Cuando el traslado implique el necesario cambio de residencia de la persona trabajadora, éste se podrá realizar siempre y cuando exista acuerdo entre partes.
+En el caso de que la persona trabajadora que ocupa el puesto no esté de acuerdo con el traslado y éste resulte necesario, JAPDEVA podrá proceder con el despido con responsabilidad patronal.

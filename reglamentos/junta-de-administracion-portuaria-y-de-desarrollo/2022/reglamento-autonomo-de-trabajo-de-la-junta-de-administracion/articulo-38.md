@@ -1,0 +1,1 @@
+Artículo 38. En el caso que una persona trabajadora labore en su día de descanso, la Empresa le deberá reconocer el doble del salario que ordinariamente le pague; en el supuesto de que labore jornada extraordinaria el pago de la hora será reconocido considerando el valor de la hora ordinaria de ese día.

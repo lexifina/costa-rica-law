@@ -1,0 +1,1 @@
+Artículo 67. El Secretario-a General del Sindicato que resulte tener mayor representación en JAPDEVA, podrá acogerse a la licencia de medio tiempo laboral (media jornada diaria) con goce de salario durante el tiempo de su nombramiento.

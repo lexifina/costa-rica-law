@@ -1,0 +1,2 @@
+Artículo 14. Cuando una persona trabajadora tenga interés en permutar su plaza con la de alguna otra, podrá solicitar el movimiento a la Empresa, siempre y cuando cumpla con los requisitos del puesto y cuente con la anuencia de las jefaturas inmediatas.
+Las permutas sólo podrán ser solicitadas por la persona trabajadora con contrato por tiempo indefinido y en todo caso dependerán de la aprobación de la Empresa.

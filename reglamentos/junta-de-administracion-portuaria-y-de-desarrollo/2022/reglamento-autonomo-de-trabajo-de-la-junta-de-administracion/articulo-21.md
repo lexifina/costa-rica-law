@@ -1,0 +1,2 @@
+Artículo 21. La Oficina de Personal permitirá a las personas trabajadoras la revisión de su expediente personal; esta revisión deberá hacerse en la Oficina de Personal.
+En caso de que la persona trabajadora solicite fotocopia del expediente, la Empresa se la facilitará, debiendo la persona trabajadora cancelar el costo de las copias respectivas. Para la solicitud y acceso al expediente, así como, para su fotocopiado, se deberá respetar el procedimiento interno establecido.

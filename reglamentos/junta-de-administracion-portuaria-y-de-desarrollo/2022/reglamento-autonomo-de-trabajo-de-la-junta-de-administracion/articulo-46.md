@@ -1,0 +1,1 @@
+Artículo 46. Serán días feriados de pago obligatorio todos aquellos que establezca el Código de Trabajo. En todo lo referente al disfrute y pago de los días feriados, se aplicará lo regulado sobre la materia por dicho cuerpo normativo. Las labores en días de asueto serán remuneradas de igual forma que los feriados.

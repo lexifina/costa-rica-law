@@ -1,0 +1,1 @@
+Artículo 76. Cada persona trabajadora deberá registrar su marca con su carné de identificación; en caso de que el equipo para registro presente algún desperfecto, el trabajador deberá reportar a su jefatura directa su ingreso y salida por el medio que corresponda.

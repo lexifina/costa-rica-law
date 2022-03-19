@@ -1,0 +1,4 @@
+Sección II. Vacaciones
+Artículo 39. Toda persona trabajadora tendrá? derecho a vacaciones anuales remuneradas, cuya duración se fija quince días hábiles por cada cincuenta semanas de labores continuas, al servicio de JAPDEVA (o a la proporción correspondiente en caso de que el contrato termine antes de las cincuenta semanas).
+En caso de terminación del contrato antes de cumplir el período de las cincuenta semanas, la persona trabajadora tendrá derecho a un día de vacaciones por cada mes trabajado, que se le pagará en el momento del retiro de su trabajo.
+Transitorio único a la norma: Lo anterior se aplicará sin perjuicio de los derechos adquiridos y situaciones jurídicas consolidadas, de las personas que disfruten o cumplan las condiciones para disfrutar un período mayor al momento de entrar en vigencia la presente disposición.

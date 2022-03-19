@@ -1,0 +1,2 @@
+ARTÍCULO 102. JAPDEVA dará a conocer las disposiciones contenidas en el presente Capítulo y aquellas que le resulten conexas, con el fin de informarles sobre la protección que brinda a su personal como parte de su filosofía de trabajo.
+Como parte de las medidas para cumplir con la obligación indicada, la Empresa deberá incluir información referida a los temas indicados dentro de cualquier programa de inducción que se brinde a personas trabajadoras de nuevo ingreso.

@@ -1,0 +1,2 @@
+Artículo 114. Para lo no previsto en este Reglamento, se aplicará lo dispuesto en la Constitución Política, los Convenios Internacionales ratificados por Costa Rica, el Código de Trabajo y demás normativa aplicable.
+En lo que resulte necesario, se seguirán las reglas que establece para los procedimientos ordinarios y sumarios, la Ley General de la Administración Pública o, en el caso de procedimientos especiales, como las supuestas faltas de acoso sexual, se aplicará la normativa externa vigente y aplicable.

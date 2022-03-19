@@ -1,0 +1,1 @@
+Artículo 53. Toda persona trabajadora devengará al menos el salario convenido al momento de formalizar el Contrato de Trabajo, el que estará regulado por la estructura interna de salarios, en ningún caso será inferior al mínimo fijado por la Ley.

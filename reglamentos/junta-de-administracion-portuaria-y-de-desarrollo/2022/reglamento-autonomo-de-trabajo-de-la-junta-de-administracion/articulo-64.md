@@ -1,0 +1,1 @@
+Artículo 64. Para ocupar puestos de confianza en el sector público o cargos de elección popular, la persona trabajadora podrá gozar de un permiso sin goce de salario por el tiempo que dure el nombramiento.

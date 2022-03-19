@@ -1,0 +1,1 @@
+Artículo 97. Cuando el examen médico determine que un trabajador ha comenzado a padecer alguna enfermedad profesional, JAPDEVA valorará la posibilidad de aplicar medidas para minimizar el riesgo de que la enfermedad se agrave, pudiendo incluso reubicarlo de común acuerdo.

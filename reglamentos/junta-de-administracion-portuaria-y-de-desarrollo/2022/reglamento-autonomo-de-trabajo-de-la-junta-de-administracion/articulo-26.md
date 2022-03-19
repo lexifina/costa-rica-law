@@ -1,0 +1,2 @@
+Artículo 26. JAPDEVA no rebajará el salario de ninguna persona trabajadora si una vez iniciada la labor ésta se interrumpe por causas que no le sean imputables. Salvo que la Empresa indique lo contrario, la persona trabajadora deberá estar a disposición de su jefatura con el fin de continuar con sus labores dentro del tiempo ordinario de la jornada, cuando ello sea posible.
+Lo anterior será igualmente aplicable para el caso de que no se pueda iniciar la labor, en las mismas condiciones indicadas.

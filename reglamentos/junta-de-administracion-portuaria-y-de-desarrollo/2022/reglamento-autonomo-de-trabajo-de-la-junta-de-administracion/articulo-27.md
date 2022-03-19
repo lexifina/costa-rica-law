@@ -1,0 +1,1 @@
+Artículo 27. Se considerará tiempo de trabajo efectivo, el descanso mínimo obligatorio que deberá darse a las personas trabajadoras durante media hora en la jornada, para que tomen sus alimentos, cuando dicha jornada sea continua.

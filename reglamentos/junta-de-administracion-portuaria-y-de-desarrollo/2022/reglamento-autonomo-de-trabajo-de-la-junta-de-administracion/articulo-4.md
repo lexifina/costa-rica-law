@@ -1,0 +1,1 @@
+Artículo 4. Para interpretar, delimitar e integrar las normas de este reglamento, se acudirá a fuentes no escritas como la jurisprudencia y los principios del derecho que resulten aplicables, de forma que se garantice la realización del fin de JAPDEVA y el respeto a los derechos de sus personas trabajadoras.

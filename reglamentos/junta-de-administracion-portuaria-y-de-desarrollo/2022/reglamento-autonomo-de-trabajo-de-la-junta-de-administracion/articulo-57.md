@@ -1,0 +1,3 @@
+Artículo 57. La Empresa reconocerá, en los casos que corresponda y según el esquema salarial aplicable, el incentivo por anualidad de acuerdo con Ley de Salarios de la Administración Pública y su Reglamento y la Ley de Fortalecimiento de las Finanzas Públicas -9635-, así como cualquier otra normativa que resulte vigente y aplicable.
+Para el reconocimiento del incentivo por anualidad no habrá límite de años y se podrán reconocer años completos laborados dentro del Sector Público. Toda persona trabajadora tendrá por incorporado a su salario el monto nominal fijo que se le reconozca por concepto de anualidad de acuerdo con la normativa aplicable, monto que permanecerá invariable.
+El plus se reconocerá en los casos que corresponda, considerando el esquema de remuneración.

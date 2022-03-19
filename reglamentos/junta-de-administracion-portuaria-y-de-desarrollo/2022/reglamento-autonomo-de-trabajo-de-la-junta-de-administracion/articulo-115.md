@@ -1,0 +1,1 @@
+Artículo 115. Las disposiciones de este Reglamento serán válidas en tanto no contraríen o desvirtúen lo pactado por la Empresa en por medio de negociaciones colectivas de las que deriven Convenciones Colectivas, las cuales tendrán jerarquía superior. Lo anterior mientras dichos instrumentos se encuentren vigentes y/o sean aplicables

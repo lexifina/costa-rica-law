@@ -1,0 +1,1 @@
+Artículo 54. El pago de salarios se realizará mediante depósito bancario a la cuenta de cada persona trabajadora, y para tal fin, cada persona estará obligada a indicar a la Oficina de Personal el nombre de la entidad bancaria y el número de su cuenta.

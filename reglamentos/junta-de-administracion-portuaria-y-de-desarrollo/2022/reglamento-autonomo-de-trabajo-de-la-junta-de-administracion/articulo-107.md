@@ -1,0 +1,1 @@
+ARTÍCULO 107. Todo lo referente a la figura y el procedimiento disciplinario tendiente a determinar si existe falta por acoso sexual, se regulará por lo indicado en el presente Capítulo, en el reglamento específico que para ello se encuentren vigente en JAPDEVA y por las leyes especiales sobre la materia.

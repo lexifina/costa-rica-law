@@ -1,0 +1,2 @@
+Artículo 5. JAPDEVA tomará medidas que tiendan a que en la Empresa sea una realidad la equidad de género y la igualdad de oportunidades; asimismo, a que exista un ambiente libre de cualquier acto de discriminación por razones de edad,
+etnia, sexo, religión, raza, orientación sexual, estado civil, opinión política, ascendencia nacional, origen social, filiación, discapacidad, condición de salud, afiliación sindical, situación económica o cualquier otra forma análoga de discriminación.

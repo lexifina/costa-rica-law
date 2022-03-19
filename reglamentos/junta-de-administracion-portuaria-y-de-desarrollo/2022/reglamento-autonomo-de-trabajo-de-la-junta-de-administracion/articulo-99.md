@@ -1,0 +1,2 @@
+Artículo 99. JAPDEVA mantendrá un servicio de medicina general con el objetivo de brindar servicios preventivos en salud física. Dichos servicios médicos operarán en el Área Administrativa. La Empresa podrá realizar contrataciones o convenios considerando razones de oportunidad, conveniencia y posibilidades presupuestarias.
+Por su parte, con el fin de atender a las personas trabajadoras de JAPDEVA en San José, la Empresa podrá realizar contrataciones o convenios considerando razones de oportunidad, conveniencia y posibilidades presupuestarias.

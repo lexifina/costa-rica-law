@@ -1,0 +1,1 @@
+Artículo 96. Cuando por motivos de trabajo JAPDEVA deba trasladar a sus servidores de un lugar a otro, ésta lo realizará con las unidades de transporte adecuado y que cumpla con las medidas e implementos de seguridad que establezca la normativa nacional vigente. Ningún trabajador estará obligado a utilizar vehículos que no cumplan con dichas medidas.

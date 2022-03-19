@@ -1,0 +1,1 @@
+Artículo 98. JAPDEVA tendrá la obligación de reponer en su trabajo habitual al trabajador que haya sufrido un riesgo del trabajo, cuando éste se encuentre en capacidad de laborar. Si de conformidad con el criterio médico, el trabajador no pudiera desempeñar normalmente el trabajo, la Empresa podrá proceder de conformidad con el artículo 254 del Código de Trabajo
