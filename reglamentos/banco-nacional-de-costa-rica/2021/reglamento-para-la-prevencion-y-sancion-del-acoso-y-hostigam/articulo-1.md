@@ -1,3 +1,0 @@
-BANCO NACIONAL DE COSTA RICA
-El Banco Nacional de Costa Rica comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General, en la Sesión Nº 12.558, artículo 16º, celebrada el 25 de octubre del 2021, en el cual acordó 1) aprobar el Reglamento para la prevención y sanción del acoso y hostigamiento sexual en el Conglomerado Financiero Banco Nacional de Costa Rica (RG01-CGRH01), Edición N° 5. 2) Dejar sin efecto, en consecuencia, lo acordado en el artículo 9.°, numeral 1), sesión 11.866 del 15 de octubre del 2021, en el cual se aprobó el Reglamento contra el Hostigamiento Sexual en el Banco Nacional de Costa Rica.
-La Uruca 09 de diciembre del 2021.
