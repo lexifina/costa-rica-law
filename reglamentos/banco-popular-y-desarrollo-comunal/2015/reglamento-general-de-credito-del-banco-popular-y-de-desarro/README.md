@@ -20,3 +20,4 @@ Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal
 | 5 | 2020-05-27 | Reglamento 5737 (2020-05-27) |
 | 6 | 2021-03-03 | Reglamento 5809 (2021-03-03) |
 | 7 | 2021-12-06 | Reglamento 5878 (2021-12-06) |
+| 8 | 2022-03-21 | Reglamento 5904 (2022-03-21) |
