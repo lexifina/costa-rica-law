@@ -3,15 +3,16 @@ AVISO 2021-011
 El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación del siguiente documento: ECA-MC-PT18 evaluación para transición normas 14064-1, 14064-3 y PPCN, es un documento nuevo el cual estará en versión 01, no tiene transitorio. ECA-MC-C10 criterios para la evaluación de la norma INTE ISO 14065, pasa de versión 08 a versión 09, no tiene transitorio.ECA-MC-C05 criterios para la evaluación de la norma INTE-ISO/IEC 17021-1, pasa de versión 17 a versión 18, no tiene transitorio.ECA-MC-C16 criterios para evaluar la imparcialidad, independencia e integridad, pasa de versión 01 a versión 02, no tiene transitorio. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http:// www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h.
 San José, 2021 setiembre 23
 (Nota de Sinalevi: El presente procedimiento ECA-MC-C05 criterios para la evaluación de la norma INTE-ISO/IEC 17021-1 se extrajo del sitio web del Ente Costarricense de Acreditación y se transcribe a continuación:)
-[imagen] [imagen]
+(Nota de Sinalevi: EL presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 61 del 30 de marzo del 2022, donde se actualiza la versión 18 existente y se publica la versión 19 que se reproduje a continuación:)
+[imagen]
 TABLA DE CONTENIDO
-1. OBJETIVO.................................................................................................................................... 1
-2. ALCANCE.................................................................................................................................... 1
-3. DEFINICIONES............................................................................................................................. 1
-4. DOCUMENTOS MANDATORIOS................................................................................................... 2
-5. ANEXOS...................................................................................................................................... 2
-6. TRANSITORIO............................................................................................................................ 67
-7. IDENTIFICACIÓN DE CAMBIOS.................................................................................................. 67
+1. OBJETIVO......................................................................................... 1
+2. ALCANCE......................................................................................... 1
+3. DEFINICIONES.................................................................................. 1
+4. DOCUMENTOS MANDATORIOS........................................................ 2
+5. ANEXOS........................................................................................... 2
+6. TRANSITORIO................................................................................. 66
+7. IDENTIFICACIÓN DE CAMBIOS....................................................... 66
 1. OBJETIVO
 Establecer criterios de cumplimiento obligatorio para los Organismos de Certificación de Sistemas de Gestión (Calidad y/o Ambiental) acreditados o solicitantes de acreditación ante el ECA. Los criterios aquí definidos se pueden complementar con otros criterios de carácter específico para sistemas de gestión concretos como, por ejemplo: certificación de Firma Digital.
 2. ALCANCE
@@ -28,15 +29,14 @@ así como las siguientes:
 ? Organización: Compañía, corporación, firma, empresa, autoridad o institución, o parte o combinación de éstas, de responsabilidad limitada u otra, pública o privada, que tiene sus propias funciones y administración.
 Nota. Para las organizaciones con más de una unidad operativa, una sola unidad operativa puede ser definida como una organización.
 4. DOCUMENTOS MANDATORIOS
-Este documento incluye los documentos mandatorios de IAF aprobados a la fecha, todos ellos de aplicación obligatoria en las evaluaciones realizadas bajo los requisitos de la Norma INTE-ISO/IEC 17021-1.
+Este documento incluye los documentos mandatorios de IAF aprobados a la fecha, todos ellos de aplicación obligatoria en las evaluaciones realizadas bajo los requisitos de la Norma INTE- ISO/IEC 17021-1.
 A efectos de clarificar la estructura del presente documento se entiende que, la palabra "debería" se utiliza para indicar disposiciones que son consideradas como un medio reconocido para cumplir con los requisitos de la norma. Un OEC puede cumplir estos requisitos por un modo equivalente siempre que esto pueda ser demostrado a un Organismo de Acreditación. La palabra "debe" es usada en este documento para indicar aquellas disposiciones que, reflejando los requisitos de la norma correspondiente, son obligatorias.
 En los Anexos de este documento se incluyen los correspondientes documentos mandatorios de IAF, de cumplimiento obligatorio para aquellos Organismos de Certificación de Sistemas a los cuales aplique.
 5. ANEXOS
 ANEXO I. DOCUMENTO OBLIGATORIO DE IAF PARA LA AUDITORÍA Y CERTIFICACIÓN DE UN SISTEMA DE GESTIÓN OPERADO POR UNA ORGANIZACIÓN MULTISITIO
 (OBLIGATORIO)
 (Tomado del Documento Mandatorio de IAF MD 1:2018)
-Este documento es obligatorio para la aplicación consistente del Apartado 9.1.5. Muestreo Multisitio de INTE-ISO/IEC 17021-1:2015 y se basa en la guía anteriormente brindada en IAF GD2: 2005 Anexo III y IAF GD6:2003, apartado G.5.3.5 - G.5.3.13. Todos los apartados de INTE-ISO/IEC 17021-1:2015 continúan aplicándose y este documento no sustituye ninguno de los requisitos en esta norma. Este documento obligatorio no es exclusivo para los Sistemas de Gestión de Calidad (SGC) ni para los Sistemas de Gestión Ambiental (SGA) y puede utilizarse para otros sistemas de gestión. Sin embargo, las normas relevantes
-pueden brindar los requisitos específicos para los multisitio o excluir el uso del muestreo (por ejemplo: ISO/IEC 27006, INTE-ISO/TS 22003).
+Este documento es obligatorio para la aplicación consistente del Apartado 9.1.5. Muestreo Multisitio de INTE-ISO/IEC 17021-1:2015 y se basa en la guía anteriormente brindada en IAF GD2: 2005 Anexo III y IAF GD6:2003, apartado G.5.3.5 - G.5.3.13. Todos los apartados de INTE-ISO/IEC 17021-1:2015 continúan aplicándose y este documento no sustituye ninguno de los requisitos en esta norma. Este documento obligatorio no es exclusivo para los Sistemas de Gestión de Calidad (SGC) ni para los Sistemas de Gestión Ambiental (SGA) y puede utilizarse para otros sistemas de gestión. Sin embargo, las normas relevantes pueden brindar los requisitos específicos para los multisitio o excluir el uso del muestreo (por ejemplo: ISO/IEC 27006, INTE-ISO/TS 22003).
 El término "debería" se usa en este documento para indicar los medios reconocidos de cumplir con los requisitos de la norma. Un organismo de evaluación de la conformidad (OEC) puede cumplir con estos de una manera equivalente, siempre que esto se pueda demostrar a un organismo de acreditación (OA). El término "debe" se utiliza en este documento para indicar aquellas disposiciones que reflejando los requisitos de la norma pertinente son obligatorias.
 1. INTRODUCCIÓN
 Este documento es para la auditoría y, en su caso, la certificación de los sistemas de gestión de las organizaciones con varios sitios con un único sistema de gestión. Dependiendo del esquema de certificación, puede haber requisitos específicos relacionados con el muestreo permitido, particularmente el muestreo de los sitios. El objetivo de este documento es garantizar que la auditoría brinde la confianza adecuada en la implementación del sistema de gestión al estándar pertinente en todos los sitios enumerados en el documento de certificación y que la auditoría es práctica y factible en términos económicos y operativos.
@@ -55,6 +55,7 @@ Sitio (físico o virtual) donde una organización cliente realiza un trabajo o d
 (Fuente: Adaptado de ISO / IEC TS 17023: evaluación de la conformidad de 2013 - Directrices para determinar la duración de las auditorías de certificación del sistema de gestión).
 3.3 Sitio Temporal
 Sitio (físico o virtual) donde una organización cliente realiza un trabajo específico o desde el que se proporciona un servicio por un período de tiempo finito y que no está destinado a convertirse en un sitio permanente.
+(Fuente: ISO / IEC TS 17023: 2013)
 3.4 Organización de múltiples sitios
 Una organización cubierta por un único sistema de gestión que comprende una función central identificada (no necesariamente la sede de la organización) en la que se planifican y controlan determinados procesos / actividades, y una serie de sitios (permanentes, temporales o virtuales) en los que dichos procesos / las actividades se llevan a cabo total o parcialmente.
 3.5 Función central
@@ -81,7 +82,7 @@ Persona o grupo de personas que dirige y controla una organización al más alto
 3.3.1 Una organización multisitio no necesita ser una entidad legal única, pero todos los sitios deberán tener un vínculo legal o contractual con la función central de la organización y estar sujetos a un sistema de gestión único, que se establece, establece y a la vigilancia continua y auditorías internas por la función central. Esto significa que la función central tiene el derecho de exigir que los sitios implementen acciones correctivas cuando sea necesario en cualquier sitio. Cuando corresponda, esto debería establecerse en el acuerdo formal entre la función central y los sitios.
 4 JUSTIFICACIÓN DEL ENFOQUE PROPUESTO
 4.1 Este documento trata de la auditoría de una organización multisitios con un solo sistema de gestión.
-4.2 Cualquier sitio puede realizar total o parcialmente los procesos / actividades cubiertos por el alcance del sistema de gestión y los diferentes sitios pueden pertenecer a la misma entidad legal o no.
+4.2 Cualquier sitio puede realizar total o parcialmente los procesos / actividades cubiertas por el alcance del sistema de gestión y los diferentes sitios pueden pertenecer a la misma entidad legal o no.
 4.3 Cualquier consideración legal concerniente al sistema de gestión de la organización que se extienda sobre una sola entidad legal o múltiples entidades legales generalmente es irrelevante para la auditoría del sistema de gestión y salvo que se indique lo contrario, no se trata en este documento.
 4.4 Es el sistema de gestión de la organización el que deberá ser auditado y certificado; además, por definición, una auditoría del sistema de gestión solo se basa en una muestra limitada de la información disponible. Sin embargo, deberá demostrarse que el sistema de gestión puede lograr los resultados previstos para todos los sitios involucrados.
 4.5 Por lo tanto, es lógico comenzar por considerar la organización y la implementación de su sistema de gestión, y qué tipo de muestreo puede ser apropiado, si corresponde.
@@ -136,7 +137,8 @@ Nota: La función central es donde el control operativo y la autoridad de la alt
 6.1.3.1 El organismo de certificación deberá tener un procedimiento documentado para determinar el tamaño de la muestra. Esto deberá tener en cuenta todos los factores descritos en esta sección.
 6.1.3.2 El organismo de certificación deberá tener registros de cada aplicación de muestreo para cada organización de sitios múltiples, lo que justifica que está funcionando de acuerdo con este documento.
 6.1.3.3 El número mínimo de sitios que se visitarán por auditoría es:
-Auditoría inicial: el tamaño de la muestra deberá ser la raíz cuadrada del número de sitios: (y = ?x), redondeado al siguiente número entero, donde y = número de sitios de los que se tomarán muestras x = número total de sitios.
+Auditoría inicial: el tamaño de la muestra deberá ser la raíz cuadrada del número de sitios: (y
+= ?x), redondeado al siguiente número entero, donde y = número de sitios de los que se tomarán muestras x = número total de sitios.
 . Auditoría de vigilancia: el tamaño de la muestra anual deberá ser la raíz cuadrada del número de sitios con un coeficiente de 0.6 (y = 0.6 ?x), redondeado al siguiente número entero.
 . Auditoría de recertificación: el tamaño de la muestra deberá ser el mismo que para una auditoría inicial. Sin embargo, cuando el sistema de gestión ha demostrado ser efectivo durante el ciclo de certificación, el tamaño de la muestra podría reducirse a, y = 0.8 ?x, redondeado al siguiente número entero.
 6.1.3.4 La función central (como se detalla en la Sección 5) deberá ser auditada durante la certificación inicial y cada auditoría de recertificación y al menos una vez por año calendario como parte de la vigilancia.
@@ -172,7 +174,7 @@ El Organismo de Certificación deberá tener procedimientos documentados para tr
 ? confirmar que se implementa un único sistema de gestión en toda la organización;
 ? determinar el alcance del sistema de gestión que se está operando y el alcance solicitado de la certificación y, si corresponde, los sub-ámbitos;
 ? comprender los arreglos legales y contractuales para cada sitio;
-? entender "qué sucede donde", es decir, procesos / actividades proporcionados en cada sitio e identificar la función central;
+? entender "qué sucede donde", es decir, procesos / actividades proporcionadas en cada sitio e identificar la función central;
 ? determinar el grado de centralización de procesos / actividades que se entregan a todos los sitios (por ejemplo, compras);
 ? determinar las interfaces entre los diferentes sitios;
 ? determinar qué sitios pueden ser aplicables para el muestreo (es decir, donde se proporcionan procesos / actividades muy similares) y aquellos que no son elegibles;
@@ -323,7 +325,8 @@ Nota 2: Un sitio virtual (por ejemplo, intranet de la empresa) se considera un s
 4. REQUISITOS
 4.1 Seguridad y confidencialidad
 4.1.1 La seguridad y confidencialidad de la información electrónica o transmitida electrónicamente es particularmente importante cuando se utilizan las TIC para fines de auditoría / evaluación.
-4.1.2 El uso de las TIC para fines de auditoría / evaluación debe ser acordado mutuamente por el organismo que se audita / evalúa y el organismo que realiza la auditoría / evaluación de acuerdo con las medidas de seguridad de la información, protección de datos y regulaciones antes de que las TIC se utilicen para fines de auditoría / evaluación.
+4.1.2 El uso de las TIC para fines de auditoría / evaluación debe ser acordado mutuamente por el organismo que se audita / evalúa y el organismo que realiza la auditoría / evaluación de acuerdo con las medidas de seguridad de la información, protección de datos y
+regulaciones antes de que las TIC se utilicen para fines de auditoría / evaluación.
 4.1.3 En caso de incumplimiento de estas medidas o incumplimiento de las medidas de seguridad de la información y protección de datos, el organismo que realiza las actividades de auditoría / evaluación deberá utilizar otros métodos para realizar la auditoría / evaluación.
 4.1.4 Cuando no se llegue a un acuerdo sobre el uso de las TIC para la auditoría / evaluación, se utilizarán otros métodos para cumplir los objetivos de auditoría / evaluación.
 4.2 Requisitos del proceso
@@ -390,8 +393,7 @@ Para SGSST, las disposiciones especificadas en este documento se basan en tres c
 2. APLICACIÓN
 2.1. Tiempo de auditoría
 2.1.1. El tiempo de auditoría para todos los tipos de auditorías incluye el tiempo total en el lugar en que se encuentra el cliente (físico o virtual) (1.7) y el tiempo dedicado fuera del sitio a realizar la planificación, la revisión documental, la interacción con el personal del cliente y la redacción de informes.
-2.1.2. La duración de una auditoría de certificación del sistema de gestión (1.7) no debe ser inferior al 80% del tiempo de auditoría calculado con arreglo a la metodología de la sección
-3. Esto se aplica a las auditorías iniciales, de vigilancia y de recertificación.
+2.1.2. La duración de una auditoría de certificación del sistema de gestión (1.7) no debe ser inferior al 80% del tiempo de auditoría calculado con arreglo a la metodología de la sección 3. Esto se aplica a las auditorías iniciales, de vigilancia y de recertificación.
 2.1.3. Los viajes (en ruta o entre sitios) y cualquier descanso no se incluyen en la duración en sitio de las auditorías de certificación del sistema de gestión.
 Nota: Véase el punto 1.8. Puede haber un requisito legal local para incluir las pausas para almorzar.
 2.2 Día(s) de Auditoría
@@ -516,8 +518,7 @@ En el caso de SGSST, la decisión si se permite o no el muestreo del sitio, se b
 a) Esto puede incluir la recopilación de información sobre el nivel de eficacia de los proveedores, basada en:
 . sobre los criterios aplicados por la organización para la evaluación, selección, monitoreo de desempeño, y reevaluación de estos proveedores externos, en función de su capacidad para desempeñar funciones o procesos de conformidad con los requisitos especificados, de conformidad con los requisitos legales; y
 . sobre el riesgo de que los proveedores externos puedan afectar adversamente la capacidad de la organización para controlar sus propios riesgos de SST.
-b) Aunque el sistema de gestión del proveedor no es requerido de ser auditado, el OEC debe auditar los controles que la organización haya implantado para los procesos o funciones incluidos en el alcance de aplicación del SGSST de la organización, que se han subcontratado a proveedores externos para planificar y completar una auditoría eficaz.
-Se entrevistará al personal del contratista que trabaje en las instalaciones de la organización, en los procesos incluidos en el alcance del SGSST de la organización, para evaluar su conocimiento de la SST.
+b) Aunque el sistema de gestión del proveedor no es requerido de ser auditado, el OEC debe auditar los controles que la organización haya implantado para los procesos o funciones incluidos en el alcance de aplicación del SGSST de la organización, que se han subcontratado a proveedores externos para planificar y completar una auditoría eficaz. Se entrevistará al personal del contratista que trabaje en las instalaciones de la organización, en los procesos incluidos en el alcance del SGSST de la organización, para evaluar su conocimiento de la SST.
 c) La OEC debería poder establecer este punto durante la preparación del programa de certificación y verificarlo posteriormente durante la auditoría inicial y antes de cada auditoría de vigilancia y recertificación.
 Apéndice A: Sistemas de Gestión de Calidad
 Relación entre el número efectivo de personal y la duración de la auditoría (solo auditoría inicial)
@@ -534,12 +535,10 @@ Número efectivo de personal | Duración de la auditoría etapa 1 + etapa 2 (dí
 176-275 | 9 | 6801-8500 | 21
 276-425 | 10 | 8501-10700 | 22
 426-625 | 11 | >10700 | Seguir la progresión
-Nota 1. Nota 1: El número de personal de la Tabla 1 SGC debe ser visto como continuo en lugar de un cambio escalonado. Por ejemplo, se si dibujara como un gráfico, la línea debería comenzar con los valores en la banda inferior y terminar con los puntos finales de cada banda. El punto de partida del gráfico debe ser personal de 1 (1,5 días). Véase la cláusula
-2.2 para entender partes de un día.
+Nota 1. Nota 1: El número de personal de la Tabla 1 SGC debe ser visto como continuo en lugar de un cambio escalonado. Por ejemplo, se si dibujara como un gráfico, la línea debería comenzar con los valores en la banda inferior y terminar con los puntos finales de cada banda. El punto de partida del gráfico debe ser personal de 1 (1,5 días). Véase la cláusula 2.2 para entender partes de un día.
 Nota 2. El procedimiento del OC podrá disponer una duración de la auditoría para un número de empleados superior a 10.700. Dicha duración de auditoría debería seguir la progresión en la tabla SGC 1 de forma consistente.
 Nota 3. Puede ver también la cláusula 1.9 y 2.3
 Figura SGC 1 - Relación entre complejidad y tiempo de auditoría
-[imagen]
 Tabla SGC 2 - Ejemplos de categorías de riesgo
 Estas categorías de riesgo no son decisivos, son sólo ejemplos que podrían ser utilizados por un OEC a la hora de determinar la categoría de riesgo de una auditoría.
 Alto Riesgo
@@ -571,18 +570,16 @@ Númer o efectiv o de person al | Duración de la auditoría etapa 1 + etapa 2 (
 276- 425 | 15 | 11 | 8 | 5.5 | 8501 - 10700 | 34 | 27 | 20 | 14
 426- 625 | 16 | 12 | 9 | 6 | >10700 | Seguir la progresión
 Nota 1. La duración de la auditoría es mostrada para auditorías de complejidad alta. Media, baja y limitada.
-Nota 2. El número de empleados en la tabla SGA 1 debería ser visto como un continuo en vez de un cambio escalonado. Por ejemplo, se si dibujara como un gráfico, la línea debería comenzar con los valores en la banda inferior y terminar con los puntos finales de cada banda. El punto de partida del gráfico debe ser personal de 1 (1,5 días). Véase la cláusula
-2.2 para entender días fraccionados.
+Nota 2. El número de empleados en la tabla SGA 1 debería ser visto como un continuo en vez de un cambio escalonado. Por ejemplo, se si dibujara como un gráfico, la línea debería comenzar con los valores en la banda inferior y terminar con los puntos finales de cada banda. El punto de partida del gráfico debe ser personal de 1 (1,5 días). Véase la cláusula 2.2 para entender días fraccionados.
 Nota 3. El procedimiento del OC podrá disponer una duración de la auditoría para un número de empleados superior a 10 700. Dicha duración de auditoría debería seguir la progresión en la tabla SGA 1 de forma consistente.
 Tabla SGA 2 - Ejemplos de relaciones entre los sectores y las categorías de complejidad de los aspectos ambientales
 Categoría de Complejidad | Sector
-Alta | Minería e industrias extractivas Extracción de petróleo y gas Curtido de pieles y de tejidos Fabricación de pasta de papel incluyendo el proceso de reciclado de papel Refinería de petróleo Químicas (incluyendo fabricación materias primas de goma y plástico) y farmacéuticas Metales-Producción primaria Procesamiento de no metálicos y sus productos cubriendo cerámicos y el cemento Generación de electricidad basada en el carbón Construcción civil y demolición Procesamiento de residuos peligrosos y no peligrosos por ej: incineración, etc. Tratamiento de aguas residuales y vertidos
-Media | Pesca, Agricultura/silvicultura Textiles y ropas excepto el curtido Fabricación de tableros y tratamiento/impregnación de madera
-| Producción de papel y impresión exceptuando la fabricación de pasta Procesamiento de no metálicos y sus productos, cubriendo vidrio, arcilla, cal etc. Tratamiento superficial y otros tratamientos químicos para productos metálicos. Excluye la producción primaria Tratamiento superficial y otros tratamientos químicos para maquinaria y equipo mecánico Producción de circuitos impresos para la industria electrónica Fabricación de equipo de transporte - carretera, tren, aire, barcos Generación y distribución de electricidad que no esté basada en el carbón. Producción de gas, almacenamiento y distribución (excepto la extracción) Captación de agua, purificación y distribución incluyendo gestión de ríos Venta al por mayor y al por menor de combustible fósil Fabricación de comida y tabaco Transporte y distribución - por mar, aire, tierra Agencias de comercio inmobiliario, gestión inmobiliaria, limpieza industrial, limpieza higiénica, limpieza en seco, normalmente son parte de los servicios generales Reciclado, compostura, y vertedero (de residuos no peligrosos) Ensayos técnicos y laboratorios Cuidado de la salud/hospitales/veterinaria Servicios de ocio y servicios personales excluyendo hoteles y restaurantes
+Alta | Minería e industrias extractivas Extracción de petróleo y gas Curtido de pieles y de tejidos Fabricación de pasta de papel incluyendo el proceso de reciclado de papel Refinería de petróleo Químicas (incluyendo fabricación materias primas de goma y plástico) y farmacéuticas Metales-Producción primaria Procesamiento de no metálicos y sus productos cubriendo cerámicos y el cemento Generación de electricidad basada en el carbón
+| Construcción civil y demolición Procesamiento de residuos peligrosos y no peligrosos por ej: incineración, etc. Tratamiento de aguas residuales y vertidos
+Media | Pesca, Agricultura/silvicultura Textiles y ropas excepto el curtido Fabricación de tableros y tratamiento/impregnación de madera Producción de papel y impresión exceptuando la fabricación de pasta Procesamiento de no metálicos y sus productos, cubriendo vidrio, arcilla, cal etc. Tratamiento superficial y otros tratamientos químicos para productos metálicos. Excluye la producción primaria Tratamiento superficial y otros tratamientos químicos para maquinaria y equipo mecánico Producción de circuitos impresos para la industria electrónica Fabricación de equipo de transporte - carretera, tren, aire, barcos Generación y distribución de electricidad que no esté basada en el carbón. Producción de gas, almacenamiento y distribución (excepto la extracción) Captación de agua, purificación y distribución incluyendo gestión de ríos Venta al por mayor y al por menor de combustible fósil Fabricación de comida y tabaco Transporte y distribución - por mar, aire, tierra Agencias de comercio inmobiliario, gestión inmobiliaria, limpieza industrial, limpieza higiénica, limpieza en seco, normalmente son parte de los servicios generales Reciclado, compostura, y vertedero (de residuos no peligrosos) Ensayos técnicos y laboratorios Cuidado de la salud/hospitales/veterinaria Servicios de ocio y servicios personales excluyendo hoteles y restaurantes
 Baja | Hoteles/restaurantes Madera y productos de madera Productos de papel excluyendo impresión, pasta de papel y fabricación de papel Moldeado por inyección de goma y plástico. Conformado y ensamble. Moldeado en caliente y en frío y fabricación de metal Ensamble de maquinaria y equipo mecánico Venta al por mayor y al por menor Ensamble de equipo eléctrico y electrónico de circuitos impresos
 Limitada | Actividades corporativas y de gestión, sedes centrales y gestión de sociedades Transporte y distribución - únicamente servicios de gestión, sin una flota real Telecomunicaciones Servicios generales a los negocios Servicios de enseñanza/educación
-Casos | Nuclear
-[imagen]
+Casos especiales | Nuclear Generación nuclear de electricidad Almacenamiento de grandes cantidades de material peligroso Administración pública Autoridades locales Organizaciones con productos o servicios medioambientalmente sensibles
 Categorías de complejidad de los aspectos ambientales:
 Las disposiciones especificadas en este documento se basan en cinco categorías de complejidad primarias de la naturaleza y gravedad de los aspectos ambientales de una organización que afectan fundamentalmente al tiempo auditor. Estas son:
 - Alta: aspectos ambientales con una naturaleza y gravedad importante (normalmente organizaciones de fabricación o procesamiento con impactos importantes en varios de los aspectos ambientales);
@@ -595,41 +592,9 @@ El OC debería reconocer que no todas las organizaciones de un sector determinad
 ANEXO C - SISTEMAS DE GESTIÓN DE SEGURIDAD Y SALUD EN EL TRABAJO
 Tabla SGSST 1 - Sistemas de gestión de la seguridad y salud en el trabajo Relación entre el número efectivo de personal, categoría de complejidad del riesgo de SST y el tiempo de auditoría
 (solo auditoría inicial - Etapa 1 + Etapa 2)
-[imagen]
 TABLA SGSST 2 - Ejemplos de vinculación entre sectores empresariales y categorías de complejidad de riesgos SST
-[imagen]
-- Alto
-- pesca (mar adentro, dragado costero y buceo)
-- [imagen] minería y explotación de canteras
-- fabricación de coque y productos petrolíferos refinados
-- extracción de petróleo y gas
-- curtido de cuero y productos de cuero
-- teñido de textiles y prendas de vestir
-- parte de la pulpa de la fabricación de papel, incluido el proceso de
-- reciclado de papel
-- refinado de petróleo
-- productos químicos (incluidos los plaguicidas, la fabricación de baterías acumuladores) y productos farmacéuticos
-- fabricación de fibra de vidrio
-- producción, almacenamiento y distribución de gas
-- generación y distribución de electricidad
-- nuclear
-- almacenamiento de grandes cantidades de material peligroso
-- transformación no metálica y productos que cubran cerámica, hormigón, cemento, cal, yeso, etc.
-- producciones primarias de metales
-- formación en caliente y frío y fabricación de metales
-- fabricación y montaje de estructuras metálicas
-- astilleros (dependiendo de las actividades que se realicen)
-- industria aeroespacial
-- industria automotriz
-- fabricación de armas y explosivos
-- reciclado de residuos peligrosos
-- tratamiento de residuos peligrosos y no peligrosos, por ejemplo, incinera
-- tratamiento de efluentes y alcantarillado
-- construcción y demolición industrial y civil (incluidos las actividades de edificios de terminación con instalación eléctrica, hidráulica y de aire aco
-- rastros
-- transporte y distribución de mercancías peligrosas (por tierra, aire y agua
-- actividades de defensa/gestión de crisis
-- asistencia sanitaria/hospitales/veterinarios/trabajos sociales
+Complejidad categoría Riesgo de SST | Sector Empresarial
+- - Alto | - pesca (mar adentro, dragado costero y buceo) - minería y explotación de canteras - fabricación de coque y productos petrolíferos refinados - extracción de petróleo y gas - curtido de cuero y productos de cuero - teñido de textiles y prendas de vestir - parte de la pulpa de la fabricación de papel, incluido el proceso de - reciclado de papel - refinado de petróleo - productos químicos (incluidos los plaguicidas, la fabricación de baterías acumuladores) y productos farmacéuticos - fabricación de fibra de vidrio - producción, almacenamiento y distribución de gas - generación y distribución de electricidad - nuclear - almacenamiento de grandes cantidades de material peligroso - transformación no metálica y productos que cubran cerámica, hormigón, cemento, cal, yeso, etc. - producciones primarias de metales - formación en caliente y frío y fabricación de metales - fabricación y montaje de estructuras metálicas - astilleros (dependiendo de las actividades que se realicen) - industria aeroespacial - industria automotriz - fabricación de armas y explosivos - reciclado de residuos peligrosos - tratamiento de residuos peligrosos y no peligrosos, por ejemplo, incinera - tratamiento de efluentes y alcantarillado - construcción y demolición industrial y civil (incluidos las actividades de edificios de terminación con instalación eléctrica, hidráulica y de aire aco - rastros - transporte y distribución de mercancías peligrosas (por tierra, aire y agua - actividades de defensa/gestión de crisis - asistencia sanitaria/hospitales/veterinarios/trabajos sociales
 MEDIO
 · acuicultura (cría, crianza y cosecha de plantas y animales en todo tipo de animales
 · [imagen] pesca (la pesca en alta mar es alta)
@@ -671,8 +636,7 @@ Tabla SGSST 1 abarca las tres categorías de complejidad de los riesgos de SST.
 Tabla SGSST 2 proporciona el vínculo entre las tres categorías de complejidad de los riesgos de SST y los sectores de la industria que normalmente se incluirían en esa categoría.
 El OEC debería reconocer que no todas las organizaciones de un sector específico estarán siempre en la misma categoría de riesgo de SST. El OEC debería permitir flexibilidad en su procedimiento de examen de contratos para garantizar que las actividades específicas de la organización se tengan en cuenta al determinar las categorías de complejidad de los riesgos de SST.
 Por ejemplo, aunque muchas empresas de construcción naval deberían clasificarse como de "alto riesgo", una organización que sólo tendría pequeñas embarcaciones de fibra de carbono con actividades de menor complejidad podría clasificarse como "mediana".
-El OEC debe documentar todos los casos en que hayan reducido la categoría de complejidad de los riesgos SST de una organización en un sector empresarial específico.
-Nota: La categoría de complejidad del riesgo de SST de una organización también puede estar asociada con las consecuencias de una falla del SGSST para controlar el riesgo:
+El OEC debe documentar todos los casos en que hayan reducido la categoría de complejidad de los riesgos SST de una organización en un sector empresarial específico. Nota: La categoría de complejidad del riesgo de SST de una organización también puede estar asociada con las consecuencias de una falla del SGSST para controlar el riesgo:
 . . Alto - en los casos en que la falta de gestión del riesgo pueda poner en peligro la vida o dar lugar a lesiones o enfermedades graves,
 . . Medio - cuando la falta de gestión del riesgo pueda dar lugar a lesiones o enfermedades, y
 . . Baja - cuando la falta de manejo del riesgo puede dar lugar a lesiones o enfermedades menores.
@@ -682,8 +646,7 @@ ANEXO V APLICACIÓN DE 17021-1:2015 PARA LA AUDITORÍA DE SISTEMAS DE GESTIÓN I
 (Tomado del Documento Mandatorio de IAF MD 11:2013)
 Este documento es obligatorio para la aplicación consistente de INTE ISO/IEC 17021-1 por los Organismos de Certificación (OCs) para el planeamiento y realización de las Auditorías de Sistemas de Gestión Integrados (SGIs)
 1. INTRODUCCIÓN
-1.1. Este documento proporciona los requisitos para la aplicación de INTE ISO/IEC 17021-1 para el planeamiento y la realización de las auditorías de SGI y, si es apropiado, la certificación del (los) sistema(s) de gestión de una organización contra dos o más conjuntos de criterios/normas para auditoría. Todos los apartados de INTE ISO/IEC
-17021-1 continúan aplicando y este documento no agrega ni reemplaza ninguno de los requisitos de ésa norma.
+1.1. Este documento proporciona los requisitos para la aplicación de INTE ISO/IEC 17021- 1 para el planeamiento y la realización de las auditorías de SGI y, si es apropiado, la certificación del (los) sistema(s) de gestión de una organización contra dos o más conjuntos de criterios/normas para auditoría. Todos los apartados de INTE ISO/IEC 17021- 1 continúan aplicando y este documento no agrega ni reemplaza ninguno de los requisitos de ésa norma.
 1.2. Este documento puede no ser aplicable a ISO 9001 según normas de sectores específicos.
 1.3. Se hará notar que el Anexo al final de este documento es también parte de los requisitos y se leerá como tal.
 2. DEFINICIONES
@@ -711,10 +674,10 @@ Los factores para la reducción deberán incluir pero no limitarse a:
 d) Informar al cliente que la duración de una auditoría de SGI según el nivel de integración declarado para el sistema de gestión de la organización puede estar sujeta a ajustes en base a la confirmación del nivel de integración en la etapa uno y auditorías subsecuentes.
 2.1.5.2 La auditoría de un SGI (entiéndase el planeamiento de la auditoría del SGI) podría resultar en incremento de tiempo, pero donde resulte en la reducción, no deberá exceder 20% desde el inicio T (2.3.b).
 2.1.5.3 Se deberá documentar la cifra del punto de inicio y la justificación para el incremento o la reducción.
-2.2 Los documentos de aplicación existentes que se relacionen con las auditorías de normas/especificaciones de los sistemas de gestión (ej. Documentos Obligatorios de IAF) necesitan considerarse al desarrollar el programa de auditoría y los planes de auditoría para un SGI.
+2.2 Los documentos de aplicación existentes que se relacionen con las auditorías de normas/especificaciones de los sistemas de gestión (ej. Documentos Obligatorios de IAF necesitan considerarse al desarrollar el programa de auditoría y los planes de auditoría para un SGI.
 2.3 Todos los requisitos aplicables a cada norma/especificación del sistema de gestión relevante al alcance del SGI deberá ser auditado.
 2.4 Los reportes de auditoría pueden ser integrados o separados con respecto a los sistemas de gestión auditados. Cada hallazgo que surja en un reporte integrado deberá ser trazable a la (las) norma(s)/especificación(es) del sistema de gestión aplicable.
-2.5 El Organismo de Certificación deberá considerar el impacto que el hallazgo de una no-conformidad para una de las normas/especificaciones del sistema de gestión tiene sobre el cumplimiento con otra(s) norma(s)/especificación(es) del sistema de gestión.
+2.5 El Organismo de Certificación deberá considerar el impacto que el hallazgo de una no- conformidad para una de las normas/especificaciones del sistema de gestión tiene sobre el cumplimiento con otra(s) norma(s)/especificación(es) del sistema de gestión.
 4. AUDITORÍA INICIAL Y CERTIFICACIÓN
 3.1 Solicitud del cliente
 Esta deberá incluir la información relacionada al nivel de integración, que incluya el nivel de integración de los documentos, elementos del sistema de gestión y las responsabilidades (ver Anexo 1).
@@ -725,7 +688,6 @@ El Organismo de Certificación deberá confirmar que el nivel de integración si
 6. SUSPENSIÓN, REDUCCIÓN, RETIRO
 Si la certificación para una o más normas/especificaciones del sistema de gestión está(n) sujeta(s) a suspensión, reducción o retiro, el Organismo de Certificación deberá investigar el impacto de éste en la certificación para otra(s) norma(s)/especificación(es) del sistema de gestión.
 Apéndice A: Reducción del tiempo de auditoría
-[imagen]
 Figura 1: Esta imagen ilustra la reducción (%) en la duración de una auditoría integrada y su relación con:
 Eje vertical: el nivel de integración de un sistema de gestión de una organización (ver abajo), que debería incluir una consideración de las habilidades del auditado para responder preguntas sobre aspectos múltiples. Un Sistema de Gestión Integrado resulta cuando una organización utiliza un solo sistema de gestión para manejar múltiples aspectos del desempeño organizacional. Se caracteriza por (pero no se limita a):
 1. Un conjunto de documentación integrado, que incluya instrucciones de trabajo a un buen nivel de desarrollo, según sea apropiado;
@@ -817,7 +779,7 @@ Este documento se relaciona con entidades que realizan y / o gestionan actividad
 1.1 Evaluación de riesgos de las entidades candidatas
 Antes de firmar cualquier acuerdo, el OC debe realizar una evaluación integral del riesgo de la entidad candidata en el país en el que se encuentra y en los países en los que operará en nombre del OC. Si identifica un riesgo inaceptable que no es manejable, el OC no debe proceder con el acuerdo.
 Los riesgos se deben considerar con respecto a la imparcialidad, competencia, consistencia, independencia y niveles de riesgo local para el negocio de certificación en el país donde el OC está planeando que la entidad opere. (Ver Anexo 1.) Se puede tomar en cuenta la acreditación existente de la entidad.
-1.2 Establecimiento del Acuerdo Legalmente Aplicable
+1.2 2 Establecimiento del Acuerdo Legalmente Aplicable
 El OC debe establecer un acuerdo legalmente ejecutable con la entidad candidata para incluir, entre otros:
 i) Que la entidad candidata debe cumplir con los requisitos aplicables, incluidos el estatus legal, imparcialidad, los requisitos de competencia, los requisitos de proceso y el sistema de gestión del OC, esto,
 en la medida en que la entidad candidata participe en la prestación de servicios de certificación.
@@ -863,20 +825,25 @@ i) competencia (debido a la complejidad de los procesos / aspectos ambientales i
 ii) cautela (por el riesgo de no conformidades y su impacto, o por el alto grado de regulación), o
 iii) diligencia (debido a los comportamientos personales deseados que son importantes para el personal involucrado en las actividades de certificación según se requiera en un contexto específico)".
 Con base en la siguiente tabla se realizarán las testificaciones y se documentará eñ alcance de acreditación:
-Clúster | Sectores- Área técnica | Criticidad | Descripción | Uso de energía típico
-Industria | 1. Industria ligera a mediana | No crític o | · Instalaciones manufacture ras de productos de consumo intermedio u orientados al usuario final | Usos típicos de la energía: - proceso de calentamiento (electricidad, gas natural, carbón u otra fuente) - accionamiento de máquina (bombas, ventiladores, aire comprimido, manipulación de materiales) - sistemas de vapor - torres de enfriamiento pequeñas (conocidos como "chillers", se debe tomar como base la capacidad del chiller y consumo energético para clasificarlo como pequeño. - Usos en otros procesos - usos energéticos en edificios (iluminación, climatización2, agua caliente y dispositivos portátiles)
-| 2. Industria pesada | Crítico | · Instalaciones de fabricación que requieren una alta capitalizació n y el consumo de grandes cantidades de materias primas y energía | Usos típicos de la energía: - proceso de calentamiento (electricidad, gas natural, carbón u otra fuente, materias primas, productos intermedios) - procesos de enfriamiento y refrigeración - accionamiento de máquinas (bombas, ventiladores, aire comprimido, manipulación de materiales) - turbinas, condensadores sistemas de vapor - torres de enfriamiento grandes (conocidos como "chillers" se debe tomar como base la capacidad del chiller y consumo - energético para clasificarlo como grande. - transporte
-Edificios | 1. Edificios | No crítico | · Instalaciones con prácticas de construcción comercial estándar | Usos típicos de la energía: - dispositivos portátiles - calentamiento de agua - iluminación - sistemas de calefacción y enfriamiento, ventiladores relacionados - sistemas de bombeo
-2. Complejo s de edificios | Crítico | · Instalacione s con operaciones que requieren experiencia específica debido a la complejidad de las fuentes de energía y usos | Usos típicos de la energía: - sistemas de calentamiento y enfriamiento centralizados y de distritos - dispositivos portátiles - calentamiento de agua - iluminación - climatización local - aire comprimido, sistemas de manipulación de materiales - elevadores / ascensores
-Transporte | 1.Todo tipo de transporte | Crítico | · Sistema o medios para el transporte de personas o mercancías/ca rga: -servicios de pasajeros (vehículo, tren, barco, aviones) municipalidades servicios de transporte por carretera | Usos típicos de la energía: - usos energéticos móviles - climatización - iluminación - dispositivos portátiles - manipulación de materiales
-| | | -operaciones ferroviarias líneas de crucero líneas aéreas, transporte de carga por vía aérea flotas | Usos típicos de la energía: - fuentes (fuel oil, electricidad, carbón, entre otros)
-Minería | 1.Minería | Crítico | Extracción a cielo abierto, subterránea y por fluido de materias primas y su transporte | Usos típicos de la energía: - extracción - transporte (excavadoras, camiones y transportadores) - accionamiento de máquinas (bombeo de agua, ventilación, turbinas, ventiladores) - preparación de materiales (trituración, molienda, separación) - sistemas de vapor, condensador y torres de enfriamiento
-Agricultur a | 1.Agricultura, producción animal | Crítico | Ganado, semillas o productos de cultivos | Usos típicos de la energía: - extracción - fuentes (fueloil, electricidad, gas natural, carbón, entre otros) - fuentes renovables (biomasa, solar, geotérmica, entre otros.) - transporte - motores - accionamientos (para bombas, ventiladores, manejo de materiales) - Bombas - tratamiento de aguas - secadores
+Clúster | Sectores- Área técnica | Criticidad | Descripción | Uso de energía típico |
+Industria | 1. Industria ligera a mediana | No crítico | · Instalaciones manufactureras de productos de consumo intermedio u orientados al usuario final | Usos típicos de la energía: - proceso de calentamiento (electricidad, gas natural, carbón u otra fuente) - accionamiento de máquina (bombas, ventiladores, aire comprimido, manipulación de materiales) - sistemas de vapor - torres de enfriamiento pequeñas (conocidos como "chillers", se debe tomar como base la capacidad del chiller y consumo energético para clasificarlo como |
+2. Industria pesada | Crítico | · Instalaciones de fabricación que requieren una alta capitalización y el consumo de grandes cantidades de materias primas y energía | Usos típicos de la energía: - proceso de calentamiento (electricidad, gas natural, carbón u otra fuente, materias primas, productos intermedios) - procesos de enfriamiento y refrigeración - accionamiento de máquinas (bombas, ventiladores, aire comprimido, manipulación de materiales) - turbinas, condensadores sistemas de vapor |
+Edificios | 1. Edificios | No crítico | · Instalaciones con prácticas de construcción comercial estándar | Usos típicos de la energía: - dispositivos portátiles - calentamiento de agua - iluminación - sistemas de |
+2. Complejos de edificios | Crítico | · Instalaciones con operaciones que requieren experiencia específica debido a la complejidad de las fuentes de energía y usos | Usos típicos de la energía: - sistemas de calentamiento y enfriamiento centralizados y de distritos - dispositivos portátiles - calentamiento de agua - iluminación |
+Transporte | 1.Todo tipo de transporte | Crítico | · Sistema o medios para el transporte de personas o mercancías/carga: -servicios de pasajeros (vehículo, tren, barco, aviones) municipalidades servicios de transporte por carretera flotas | Usos típicos de la energía: - usos energéticos móviles - climatización - iluminación - dispositivos portátiles - manipulación de materiales |
+-operaciones ferroviarias líneas de crucero líneas aéreas, transporte de carga por vía aérea flotas | Usos típicos de la energía: - fuentes (fuel oil, electricidad, carbón, entre otros) |
+Minería | 1.Minería | Crítico | Extracción a cielo abierto, subterránea y por fluido de materias primas y su transporte | Usos típicos de la energía: - extracción - transporte (excavadoras, camiones y transportadores) - accionamiento de máquinas (bombeo de agua, ventilación, turbinas, ventiladores) - preparación de materiales (trituración, molienda, separación) - sistemas de vapor, condensador y torres
+Agricultura | 1.Agricultura, producción animal | Crítico | Ganado, semillas o productos de cultivos | Usos típicos de la energía: - extracción - fuentes (fueloil, electricidad, gas natural, carbón, entre otros) - fuentes renovables (biomasa, solar, geotérmica, entre otros.) - transporte - motores - accionamientos (para bombas, ventiladores, manejo de materiales) - Bombas
 Suministro de energía | 1.Generación de energía (nuclear, cogeneración3 electricidad, renovables, etc.) y transporte (transmisión y distribución) | Crítico | Generación de energía (carbón, petróleo, gas natural, renovable, cogeneración, Ciclo combinado con gasificación integrada4 , etc. | Usos típicos de la energía: - transformación de materias primas - turbinas de transmisión y distribución - combustión - sistemas de vapor - condensador y torres de enfriamiento
-2 Las siglas de climatización para el inglés son HVAC; Heating ventilating and air conditioning. 3 Las siglas de cogeneración para el inglés son CHP; Combined Heat and Power. 4 Las siglas de ciclo combinado con gasificación integrada para el inglés son IGCC; Integrated Gasification Combined Cycle.
+| | | | | | | |
+[imagen]
+ANEXO XI. CRITERIO ECA PARA EVALUAR A LOS OCSG QUE REALIZAN AUDITORIA Y CERTIFICACIÓN DE SISTEMAS DE GESTIÓN ANTISOBORNO
+Los OCSG que se acrediten para certificar bajo la norma INTE/ISO 37001 Sistemas de Gestión Antisoborno. Requisitos con orientación para su uso, en su versión vigente, les será obligatorio el cumplimiento expreso de todos los requisitos dispuestos en la norma INTE/ISO INTE/ISO 17021-9 Evaluación de la conformidad. Requisitos para los organismos que realizan la auditoría y la certificación de sistemas de gestión. Parte 9: Requisitos de competencia para la auditoría y la certificación de sistemas de gestión antisoborno. No existe un Documento mandatorio específico a este esquema, sin embargo, aplican los documentos mandatorios generales que sea aplicables, ejemplo MD 1, MD 2, MD 4, entre otros.
+En cuanto al alcance de acreditación, este esquema no trabaja bajo sectores, subsectores o clústers, por lo que el alcance se regirá bajos los siguientes lineamientos:
+[imagen]
 6. TRANSITORIO
 No aplica.
 7. IDENTIFICACIÓN DE CAMBIOS
 Motivo: | Modificación de documento
-Refiérase a la solicitud de elaboración o modificación del documento número 2021-151
-Observaciones Se elimina del documento la referencia al documentos mandatorio MD 10 y se modifican la numeración de los anexos siguientes.
+Refiérase a la solicitud de elaboración o modificación del documento número 2022-014.
+Observaciones Se agrega el anexo XI por apertura de nuevo esquema de sistemas de gestión antisoborno bajo la norma ISO 37001, cambios se encuentra subrayado.
