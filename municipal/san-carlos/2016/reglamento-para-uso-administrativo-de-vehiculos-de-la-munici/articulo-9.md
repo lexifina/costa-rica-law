@@ -1,1 +1,0 @@
-Artículo 9°.- Pasajero. Cuando las necesidades institucionales así lo requieran y en casos excepcionales los vehículos de uso administrativo municipal, podrá transportar personas ajenas a la Institución, para lo cual deberá contarse con la autorización escrita del Alcalde Municipal o de quien éste delegue.

@@ -1,1 +1,0 @@
-Artículo 3°.- Autorización. Para utilizar un vehículo de uso administrativo municipal los funcionarios municipales deben presentar al Encargado de Servicios Generales de la Municipalidad, la boleta indicando lugar a visitar, hora de salida y llegada aproximada al Plantel Municipal y demás información requerida con la autorización formada por el Jefe Inmediato.
