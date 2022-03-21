@@ -1,10 +1,17 @@
-Anexo 2
-Niveles Resolutivos de aplicación según artículo 16
-Aplica para la Banca de Personas, Banca Empresarial y Corporativa y Banca Social
+ANEXO N° 2
+NIVELES MÁXIMOS DE APROBACIÓN
+PARA NEGOCIACIONES DE PAGO
+Toda las Bancas
 [imagen]
 [imagen]
 [imagen]
 [imagen]
-Aplica para Fondos Especiales (FEDE y FEVI)
+El monto es acumulativo por saldo, por cliente y línea de crédito.
+En todo caso el nivel resolutivo superior podrá resolver sobre créditos correspondientes a niveles resolutivos inferiores.
+COMISIÓN NIVEL GERENCIAL
+(Banca de Personas, Banca Empresarial y
+Corporativa y Banca de Desarrollo Social)
 [imagen]
-(Así reformado mediante sesión ordinaria N° 5809 del 3 de marzo del 2021)
+*El monto es acumulativo por saldo, por cliente y línea de crédito."
+En todo caso el nivel resolutivo superior podrá resolver sobre créditos correspondientes a niveles resolutivos inferiores,
+(Así reformado en sesión N° 5904 del 21 de marzo de 2022)
