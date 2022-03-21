@@ -19,3 +19,4 @@ Procedimiento ECA-MP-P02-I02 Documentos aplicables en los diferentes procesos de
 | 4 | 2020-08-20 | Acuerdo 10 (2020-08-20) |
 | 5 | 2020-12-09 | Acuerdo 13 (2020-12-09) |
 | 6 | 2021-04-06 | Acuerdo 7 (2021-04-06) |
+| 7 | 2022-03-21 | Acuerdo 2 (2022-03-21) |
