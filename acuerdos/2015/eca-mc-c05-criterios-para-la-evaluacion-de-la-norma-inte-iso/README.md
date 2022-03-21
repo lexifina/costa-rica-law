@@ -23,3 +23,4 @@ ECA-MC-C05 Criterios para la evaluaci√≥n de la norma INTE-ISO/ IEC 17021 (versi√
 | 8 | 2020-08-20 | Acuerdo 10 (2020-08-20) |
 | 9 | 2021-04-06 | Acuerdo 7 (2021-04-06) |
 | 10 | 2021-09-23 | Acuerdo 11 (2021-09-23) |
+| 11 | 2022-03-21 | Acuerdo 2 (2022-03-21) |
