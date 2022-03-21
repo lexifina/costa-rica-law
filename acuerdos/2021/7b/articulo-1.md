@@ -3,25 +3,54 @@ AVISO
 Aviso N° 2021-007.-El Ente Costarricense de Acreditación (EGA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación del siguiente documento: ECA-MC-C19 Criterio de Trazabilidad, pasa de versión 01 a versión 02, no tiene transitorio, ECA-MC-C05 Criterios para la evaluación de la norma INTE-ISO/IEC 17021-1, pasa de versión 15 a versión 16, transitorio, no tiene transitorio. ECA-MP-P02- documentos aplicables en los diferentes procesos de evaluación, pasa de versión 05 a versión 06, no tiene transitorio. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez. Responsable: Ing. Fernando Vázquez Dovale, cédula 8-0130-0191 Gerente General, Ente Costarricense de Acreditación.
 San José, 2021 abril 06.-
 (Nota de Sianlevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación y se transcribe a continuación:)
-[imagen]
+(Nota de Sinalevi: EL presente proceimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 61 del 30 de marzo del 2022, donde se actualiza la version 06 y se publica la version 07 y se transcribe a continuación:)
+[imagen] [imagen]
 1. OBJETIVO
 Establecer los documentos aplicables en los diferentes procesos de evaluación para evaluaciones iniciales, seguimientos, reevaluaciones y testificaciones.
 2. ALCANCE
 Aplica a personal de las Secretarías de Acreditación, organismos de evaluación de la conformidad, Evaluadores ECA.
 3. DOCUMENTOS APLICABLES
 Es requisito para la acreditación el cumplimiento de lo establecido en el siguiente cuadro, el que está dividido por áreas de Acreditación.
-Área Documentos aplicables
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
+Área | Documentos aplicables
+Para todas las áreas | Documentos exclusivos para OEC, Secretarías 1. ECA-MC-P08 2. ECA-MC-P07 3. ECA-MC-MA-P03 4. ECA-MP-P09-F02 5. ECA-MP-P09-F05 6. ECA-MC-P16 Documentos requeridos 1. ECA-MP Manual de procedimientos para la evaluación y acreditación. 2. ECA-MC-P13 3. ECA-MC-P13-I06 4. ECA-MC-P13-I01 Instructivo de muestreo 5. ECA-MC-P18 6. Procesos de transición a la norma o guía según el área de acreditación (cuando aplique). Formularios para Equipo Evaluador 1. ECA-MC-P01-F01 2. ECA-MC-P13-F01 3. ECA-MC-P13-F02 4. ECA-MC-P13-F08 5. ECA-MC-P13-F09 6. ECA-MC-P13-F10 7. Google Form de Valoración del desempeño a integrantes del equipo evaluador. (aplica al equipo evaluador). 19. Solicitud de acreditación, según el área de acreditación. 20. ECA-MP-P04-F27 Análisis de recursos (Para iniciales y ampliaciones).
+Organismos de Inspección | Documentos requeridos 1. Norma INTE-ISO/IEC 17020. 2. ECA-MC-P13-F06 3. ECA-MC-C20 4. ECA-MC-C19 5. ECA-MC-C01 6. ECA-MC-C09 7. ECA-MC-C12 Formularios Equipo Evaluador 8. ECA-MC-P13-F25 9. ECA-MC-P13-F06
+Organismos de certificación en general | Documentos requeridos 1. ECA-MC-P11 2. ECA-MC-P11-F02 3. ECA-MC-C04 4. ECA-MC-C04-F01 5. ECA-MC-C16
+OCSG en general | Documentos requeridos 1. Norma INTE-ISO/IEC 17021-1. 2. ECA-MC-P11-I01 3. ECA-MC-C05 Formularios Equipo Evaluador 1. ECA-MC-P11-F01 2. ECA-MC-P13-F32 3. ECA-MC-P13-F33 4. ECA-MC-C05-F01 5. ECA-MC-P13-F35
+Solo esquema OCSG Calidad | Documentos requeridos 1. Norma ISO/IEC 17021-3 (para calidad). 2. INTE-ISO/IEC 9001 en su versión vigente. 3. ECA-MC-C05 Criterios para la evaluación de la norma INTE-ISO/IEC 17021.
+Esquema OCSG Ambiental | Documentos requeridos 1. Norma INTE-ISO/IEC 17021-2 (para ambiente). 2. INTE-ISO/IEC 14001 en su versión vigente.
+Esquema de OCSG Igualdad de Género | Documentos requeridos 1. ECA-MC-C17 2. INTE G38 2015 Sistema de Gestión para la igualdad de género en el ámbito laboral, requisitos.
+Esquema de OCSG Inocuidad Alimentaria | Documentos requeridos 1. INTE-ISO/IEC 22003 en su versión vigente (para inocuidad). 2. ISO 22000 en su versión vigente. 3. ECA-MC-C14 4. Esquema FSSC 22000 en su versión vigente. 5. ISO 22002-X según la categoría: Normas relacionadas con los Programas prerrequisitos sobre seguridad alimentaria (el conocimiento lo debe brindar el Experto Técnico. 6. Requisitos legales aplicables
+Esquema OCSG de la seguridad y salud en el trabajo | Documentos requeridos 1. INTE-ISO 45001:2018. 2. ECA-MC-C22
+Esquema OCGS Seguridad cadena de suministros | Documentos requeridos 1. INTE-ISO 28000 en su versión vigente. 2. ECA-MC-C05 3. ISO 28003 en su versión vigente.
+Solo esquema OCSG Sistemas de Gestión de la Energía | Documentos requeridos 1. INTE ISO 50001 en su versión vigente. 2. INTE ISO 50003 en su versión vigente. 3. ECA-MC-P13-F55 4. ECA-MC-C05
+Sistema de Gestión Antisoborno | Documentos requeridos 1. Norma INTE/ISO 37001 en su versión vigente 2. norma INTE/ISO 17021-9 en su versión vigente 3. ECA-MC-C05
+Alcance Flexible Sistemas de gestión | Documentos requeridos 1- ECA-MC-P25 Formularios 1- ECA-MC-P25-F01
+OCP | Documentos requeridos 1. Norma INTE-ISO/IEC 17065. 2. ECA-MC-C01 3. ECA-MC-C19 Formulario Equipo Evaluador 1. ECA-MC-P11-F03 (versión inglés para esquema Halal) 2. ECA-MC-P13-F16 3. ECA-MC-P13-F19
+Esquema de certificación de productos Halal | Documentos requeridos 1. Norma UAE.S 2055-1 Productos Halal - Parte 1 - Requisitos generales para alimentos Halal, versión vigente. 2. Norma UAE.S 2055-2 Productos Halal - Parte 2 - Requisitos generales para Organismos de Certificación Halal, versión vigente. 3. ECA-MC-C25 4. UAE.S 993 Requisitos para el sacrificio de animales según la ley islámica. 5. UAE.S GSO 713 Regulaciones de higiene para el proceso de matanza de aves y el personal relacionado 6. UAE.S GSO 9 Etiquetado de productos alimenticios pre-empacados Formularios específicos:
+1. ECA-MC-P13-F56 Informe Evaluación y remota OCP HALAL V01 - (Versión Español) 2. ECA-MC-P13-F56 Informe Evaluacion y remota OCP HALAL V01 - (Versión Inglés) 3. ECA-MC-P13-F57 Nota digitales para EXPERTOS TÉCNICO HALAL (English version) 4. 045 ECA-MC-P13-F57 Nota digitales para EXPERTOS TÉCNICO HALAL (Versión español)
+OCH | Documentos requeridos 1. Norma INTE-ISO/IEC 17024. Formularios Equipo Evaluador 1. ECA-MC-P11-F11 2. ECA-MC-P13-F17 3. ECA-MC-P13-F20
+Laboratorios de ensayo y calibración | Documentos requeridos 1. Norma INTE-ISO/IEC 17025. 2. ECA-MC-C20 3. ECA-MC-C19 4. ECA-MC-C18 5. ECA-MC-C09 Formularios Equipo Evaluador 1. ECA-MC-P13-F03 2. ECA-MC-P13-F51 3. ECA-MC-P13-F05
+Proveedores de ensayos de aptitud | Documentos requeridos 1. Norma INTE-ISO/IEC 17043 en su versión vigente. 2. Norma INTE-ISO 13528 en su versión vigente. 3. Normas INTE-ISO/IEC 17025 e INTE-ISO 15189 en su versión vigente, según aplique. 4. Norma ISO-17034 en su versión vigente, si aplica. 5. ECA-MC-C15 6. ECA-MC-C20 7. ECA-MC-C19 8. ECA-MC-C09 Formularios Equipo Evaluador 1. ECA-MC-P13-F41 2. ECA-MC-P13-F42 3. ECA-MC-P13-F43
+Laboratorios Clínicos | Documentos requeridos | |
+1. Norma INTE-ISO 15189. 2. ECA-MC-P13-F18 3. ECA-MC-P13-I01 4. ECA-MC-C20 5.ECA-MC-C19 6.ECA-MC-C18 7.ECA-MC-C09 8.ECA-MC-C13 Formularios Equipo Evaluador
+1. ECA-MC-P13-F23 2. ECA-MC-P13-F26
+Organismos Validadores Verificadores de gases de efecto invernadero | Documentos requeridos 1. Norma INTE/ISO 14065 en su versión vigente. 2. Norma INTE/ISO 14066 en su versión vigente. 3. Norma INTE/ISO 14064-1 en su versión vigente. 4. Norma INTE B5 en su versión vigente. 5. Norma INTE/ISO 14064-2 en su versión vigente. 6. Norma INTE/ISO 14064-3 en su versión vigente. 7. Norma INTE/ISO 17029 en su versión vigente (Cuando aplique). 8. ECA-MC-C10 9. Programa País Carbono Neutralidad: Categoría Organizacional. Versión 2.0. 10. ECA-MC-C10-F01 Formularios Equipo Evaluador 1. ECA-MC-P11-F05 2. ECA-MC-P11-F06 3. ECA-MC-P13-F13 4. ECA-MC-P13-F24
+OVV Esquema Corsia | Documentos requeridos 1. Para Esquema CORSIA de OACI/Aviación Civil: - El Manual Técnico Ambiental (Doc.9501), Volumen IV. (https://www.icao.int/environmental-protection/CORSIA/Pages/ETM-V-IV.aspx). Estándar Internacional y Prácticas Recomendadas de la OACI, Anexo 16, Volumen IV, Esquema de reducción y compensación de carbono para la aviación internacional (CORSIA).
+Etiquetado ambiental: Tipo I | Documentos requeridos 1. Norma INTE/ISO 17065 en su versión vigente. 2. Norma etiquetado tipo I aplicable (ejemplo: Norma de la Alianza Ambiental Américas - AAA, Programa Nacional de Etiquetado Ambiental y Energético de Costa Rica) 3. Esquema definido por el dueño del programa
+Etiquetado ambiental: Tipo III | Documentos requeridos 1.PPCN 2.0 Categoría de producto y Programa Nacional de Etiquetado Ambiental y Energético 2.Norma INTE-ISO/IEC 14067 en su versión vigente 3.Norma ISO 14026 en su versión vigente, cuando aplique 4. Norma INTE/ISO 14040 (ACV) en su versión vigente 5.Norma INTE/ISO 14044 (ACV) en su versión vigente 6.Reglas de categoría de producto (PCR) (que aplique según el producto). 7. Revisión crítica: INTE/ISO 14071 en su versión vigente, cuando aplique
+8. Norma PAS 2050, cuando aplique según el programa |
+9. INTE/ISO 14025:2007 Etiquetas y declaraciones ambientales. Declaraciones tipo III.
+Principios y procedimientos (aplica al dueño del programa)
+Etiquetado ambiental: Huella de agua | Documentos requeridos 1. INTE-ISO 14046: 2014. Gestión Ambiental - huella de agua - Principios, requisitos y directrices. 2. Reglas de categoría de producto (RCPs) según la categoría de producto 3. INTE/ISO 14025:2007 Etiquetas y declaraciones ambientales. Declaraciones tipo
+4. | III. Principios y procedimientos (aplica al dueño del programa) INTE/ISO 14026:2018 Etiquetas y declaraciones ambientales. Principios, requisitos y directrices para la comunicación de información sobre huellas.
+Etiquetado ambiental: Otras huellas | Documentos requeridos 1. Huella de carbono: INTE/ISO 14067 en su versión vigente (a partir de 2018) 2. INTE-ISO 14040: 2007. Gestión Ambiental - Análisis de Ciclo de Vida - Principio y marco de referencia 3. INTE-ISO 14044:2007/Emn 1:2018. Gestión Ambiental. Análisis de Ciclo de Vida. Requisitos y directrices. 4. Reglas de categoría de producto (RCPs) según la categoría de producto 5. INTE/ISO 14025:2007 Etiquetas y declaraciones ambientales. Declaraciones tipo
+5. | III. Principios y procedimientos (aplica al dueño del programa). INTE/ISO 14026:2018 Etiquetas y declaraciones ambientales. Principios,
+requisitos y directrices para la comunicación de información sobre huellas
+Evaluaciones integradas | Documentos requeridos 1. Normas aplicables según esquema. 2. Criterios de evaluación aplicables según esquema 3. ECA-MC-P13-I05 4. ECA-MC-P13-I03 Formularios Equipo Evaluador 1. ECA-P13-F15 2. ECA-P13-F27 3. ECA-P13-F29 4. ECA-P13-F30 5. ECA-P13-F31 6. ECA-P13-F34 7. ECA-MC-P13-F48
+| | | | | |
 4. TRANSITORIO
 No aplica.
 5. IDENTIFICACIÓN DE CAMBIOS
-Motivo:
-Actualización del documento
-Refiérase a la solicitud de elaboración o modificación del documento número 2021-064
-Se actualiza documento con inclusión de esquema de certificación INTE ISO 50001, sistemas de gestión del a energía y actualización de referencias de documentos.
+Motivo: | Actualización del documento
+Refiérase a la solicitud de elaboración o modificación del documento número 2022-014.
+Se actualiza documento con inclusión de esquema de Etiquetado Ambiental, Huella de Carbono en Producto, Esquema de Certificación de Productos Halal, Sistemas de Gestión Antisoborno y actualización de referencias de documentos.
