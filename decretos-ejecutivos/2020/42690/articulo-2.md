@@ -1,2 +1,0 @@
-Artículo 2°- Las personas costarricenses deberán demostrar su nacionalidad mediante su pasaporte, cédula de identidad u otro medio fehaciente, para que les sea autorizado su ingreso al país vía aérea, terrestre, marítima o fluvial; además deberán acatar las medidas sanitarias de ingreso dictadas por el Ministerio de Salud para la atención del COVID-19.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43427 del 28 de febrero de 2022)

@@ -1,1 +1,0 @@
-Artículo 19°- La Dirección General de Migración y Extranjería deberá adoptar las acciones de su competencia para que se cumplan las disposiciones contempladas en el presente Decreto Ejecutivo, así como las medidas sanitarias que gire el Ministerio de Salud.

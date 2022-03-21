@@ -1,1 +1,0 @@
-Artículo 22°- En caso de que no se cumpla con los requisitos que establece el presente Decreto Ejecutivo, la Policía Profesional de Migración y Extranjería encargada de ejercer el control Migratorio, deberá aplicar lo dispuesto en la Ley General de Migración y Extranjería.

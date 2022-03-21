@@ -1,6 +1,0 @@
-ARTÍCULO 3°- Las personas extranjeras que cuenten con una permanencia legal autorizada bajo las categorías migratorias de Residencia Permanente, Residencia Temporal, Categorías Especiales o No Residentes subcategoría Estancia, podrán ingresar al país vía aérea, terrestre, marítima o fluvial, bajo el cumplimiento de los siguientes requisitos:
-a) Acatar las medidas sanitarias dictadas por el Ministerio de Salud para la atención del COVID-19.
-b) Completar el formulario denominado Pase de Salud, disponible en el link https://salud.go.cr.
-c) Presentar el Documento de Identificación Migratorio para Personas Extranjeras vigente (DIMEX) o resolución notificada, en los términos establecidos por la Dirección General de Migración y Extranjería vía resolución para tales efectos. En caso de que la persona no cumpla con dichos términos, no podrá ingresar, salvo que cumpla con las condiciones para ingreso al país mediante la categoría migratoria de No Residentes, subcategoría Turismo.
-En el caso de las personas diplomáticas debidamente acreditadas en Costa Rica por el Ministerio de Relaciones Exteriores y Culto, el requisito establecido en el inciso c) del presente artículo se sustituirá por el documento de acreditación otorgado a su favor por el citado Ministerio.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43337 del 30 de noviembre del 2021)

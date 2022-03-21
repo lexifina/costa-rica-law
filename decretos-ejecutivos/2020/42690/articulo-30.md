@@ -1,1 +1,0 @@
-Articulo 30°- Deróguense el Decreto Ejecutivo número 42238-MGP-S del 17 de marzo 2020 y sus reformas; el Decreto Ejecutivo número 42256-MGP-S del 25 de marzo de 2020 y sus reformas; y el Decreto Ejecutivo número 42513-MGP-S del 31 de julio de 2020 y sus reformas.

@@ -1,2 +1,0 @@
-Artículo 16°- La Dirección General de Migración y Extranjería y la Comisión de Visas Restringidas y Refugio, según corresponda podrán otorgar visas de ingreso para personas solicitantes de regularización migratoria que requieran visa consular o restringida, de conformidad con los trámites ordinarios establecidos para ello en la legislación vigente.
-(Así reformado por el artículo 5° del decreto ejecutivo N° 42917 del 5 de abril del 2021)
