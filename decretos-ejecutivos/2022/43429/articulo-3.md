@@ -1,0 +1,1 @@
+Artículo 3º-Las actividades a desarrollar, así como todos los aspectos relacionados a la organización y ejecución del ENT, deben ser incorporadas en unas bases de convocatoria que elabora el TPMS junto con sus programas CNT y TNT. Estas bases deben ser aprobadas por la Junta Directiva del TPMS.
