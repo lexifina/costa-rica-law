@@ -1,0 +1,3 @@
+Artículo 17.-Uso del Teatro La Danza. El Teatro La Danza se utilizará en la presentación de espectáculos de danza, tanto de la Compañía Nacional de Danza como de otros grupos de danza del país o extranjeros y para llevar a cabo eventos culturales y artísticos promovidos por el Ministerio de Cultura, de común acuerdo y previa coordinación con la Dirección General y Artística de la Institución.
+El Teatro La Danza podrá ser alquilado a terceros para actividades culturales y artísticas, sin afectar su giro fundamental ni el uso prioritario en favor del Ministerio de Cultura o del Teatro Popular Melico Salazar.
+(Así modificada su numeración mediante publicación en La Gaceta N° 55 del 22 de marzo del 2022, que lo traspasó del artículo 14 al 17)

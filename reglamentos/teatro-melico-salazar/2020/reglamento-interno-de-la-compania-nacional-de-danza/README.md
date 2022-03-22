@@ -14,3 +14,4 @@ Reglamento interno de la Compañía Nacional de Danza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-02-19 | la propia norma |
+| 2 | 2022-03-22 | Reglamento 0 (2022-03-22) |

@@ -1,1 +1,2 @@
-Artículo 5º—Intérpretes escénicos. Para el nombramiento de intérpretes escénicos se seguirá el procedimiento del concurso por oposición, para lo cual se realizarán las pruebas y audiciones correspondientes, sin perjuicio de lo establecido en la normativa correspondiente de acuerdo con la modalidad de contratación empleada.
+Artículo 5°-Funciones excluidas. El Director Artístico no será parte del elenco artístico en ninguna de las coreografías que se ejecuten.
+(Así adicionado mediante publicación en La Gaceta N° 55 del 22 de marzo del 2022)
