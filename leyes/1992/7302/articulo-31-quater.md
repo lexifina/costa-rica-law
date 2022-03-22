@@ -1,0 +1,3 @@
+Artículo 31 quater- Las personas pensionadas o jubiladas deberán comunicar por escrito, a la Dirección Nacional de Pensiones, de su ingreso a la función pública.
+De no hacerlo dentro del plazo de cinco días hábiles, contado a partir de su nombramiento o de la declaratoria definitiva de su elección, se les impondrá una multa equivalente al veinticinco por ciento (25%) de lo percibido, en violación a lo dispuesto en los artículos 31 y 31 ter anteriores, sin perjuicio de eventuales sanciones conexas y del cobro de las sumas giradas de más, de conformidad con lo dispuesto en el artículo 31 sexies de esta ley.
+(Así adicionado por el artículo 2° de la Ley para frenar abusos en la revisión de pensiones con cargo al presupuesto nacional, N° 9854 del 2 de setiembre del 2020)

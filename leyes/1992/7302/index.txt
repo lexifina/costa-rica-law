@@ -29,6 +29,11 @@ articulo-28.md
 articulo-29.md
 articulo-30.md
 articulo-31.md
+articulo-31-bis.md
+articulo-31-ter.md
+articulo-31-quater.md
+articulo-31-quinquies.md
+articulo-31-sexies.md
 articulo-32.md
 articulo-33.md
 articulo-34.md
