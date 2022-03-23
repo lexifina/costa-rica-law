@@ -1,0 +1,5 @@
+ARTÍCULO 5
+Las Partes cooperarán en contra del tráfico ilegal de materiales culturales de acuerdo con os instrumentos jurídicos internacionales que sean parle ambos países.
+Las partes cooperarán en la identificación de obras de arte y bienes culturales de la otra Parte que hayan sido ilícitamente vendidos en sus regiones respectivas y facilitará la restitución de esos objetos a su propietario legal.
+Las Partes alentarán el intercambio de información científica y publicaciones en los campos de la arqueología, historia del arte, museología, restauración y conservación del legado cultural y obras de arte. Con este propósito, las Partes intercambiarán a un experto por un periodo de una semana cada uno.
+Las Partes protegerán mutuamente los derechos de autor y derechos conexos de os ciudadanos y de los nacionales de la otra Parte, siempre que dichos derechos estén relacionados con las actividades realizadas en virtud del presente Acuerdo de conformidad con su legislación nacional respectiva así como los Tratados Internacionales en los cuales ambos sean partes contratantes.
