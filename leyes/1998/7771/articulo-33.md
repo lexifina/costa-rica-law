@@ -1,6 +1,0 @@
-CAPITULO IV
-Investigación en materia de VIH-sida
-Artículo 33- Reglas en investigaciones
-De conformidad con las reglas vigentes en la materia, las investigaciones relativas al VIH deberán respetar las consideraciones especiales de las personas con VIH; por esta razón, el protocolo de investigación y los investigadores quedan sujetos a las disposiciones de esta ley, la Ley N.º 5395, Ley General de Salud, de 30 de octubre de 1973, así como a cualquier otra normativa, reglamentación o disposición, nacional o internacional, vigente en el país en materia de investigación.
-Ninguna persona con VIH podrá participar en experimentos o investigaciones biomédicas en seres humanos sin haber sido advertida de la condición experimental y de los riesgos de esta, sin que medie y se formalice su debido consentimiento informado previo, o de quien legalmente esté autorizado para otorgarlo válidamente, y sin cumplir los demás requisitos establecidos en la Ley N.º 9234, Ley Reguladora de Investigación Biomédica, de 22 de abril de 2014.
-Ninguna persona con VIH podrá ser objeto de experimentos científicos, sin haber sido advertida de la condición experimental y de los riesgos de esta, y sin que medie y se formalice su debido consentimiento informado previo, o el de quien legalmente esté autorizado para otorgarlo válidamente.

@@ -1,1 +1,0 @@
-Artículo 6- Derecho a la participación en los procesos de toma de decisiones Conasida promoverá que las personas con VIH, y cualquier organización de la sociedad civil interesada, participen en los diferentes espacios de toma de decisiones relacionados con políticas públicas, planes, programas y proyectos derivados que aborden la temática del VIH.

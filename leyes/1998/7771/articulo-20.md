@@ -1,2 +1,0 @@
-Artículo 20- Derecho al consentimiento informado
-Todas las personas tienen derecho a dar su consentimiento informado en forma objetiva y veraz para la realización de las pruebas de VIH, para la prescripción de tratamientos y medicamentos, y para la aplicación de procedimientos relacionados con la atención integral de su salud y sus efectos secundarios. Este consentimiento deberá constar en el expediente médico y tendrá carácter confidencial.
