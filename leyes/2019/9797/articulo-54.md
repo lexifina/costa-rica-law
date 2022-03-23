@@ -1,0 +1,2 @@
+Artículo 54- Negativa a brindar atención. Se impondrá la inhabilitación para el ejercicio de la profesión de doce meses a tres años, a la persona trabajadora de la salud, pública o privada, o a la persona encargada de la institución que niegue u omita la atención sanitaria a una persona VIH positiva, sin perjuicio de otras responsabilidades en que pueda incurrir.
+(Así adicionado por el artículo 1° de la ley N° 10156 del 18 de marzo de 2022)

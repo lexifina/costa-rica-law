@@ -1,0 +1,3 @@
+Artículo 52- Actuación culposa de la persona trabajadora de la salud. Se impondrá de uno a tres años de prisión a la persona trabajadora de la salud, pública o privada que, por culpa, realice una transfusión de sangre o sus hemoderivados, trasplante de órganos o tejidos, suministre semen, leche materna o utilice un objeto invasivo, de punción o cortante, que se encuentren infectados con el virus del VIH.
+Quedan facultados los jueces para imponer, además de las penas consignadas en cada caso, las de inhabilitación absoluta o especial en el tanto que estimen pertinente, de acuerdo con la gravedad del hecho y dentro de los límites fijados para esta pena.
+(Así adicionado por el artículo 1° de la ley N° 10156 del 18 de marzo de 2022)

@@ -1,0 +1,2 @@
+Artículo 53- Violación de la confidencialidad. Se impondrá la inhabilitación para el ejercicio de la profesión de doce meses a tres años, a la persona trabajadora de la salud, pública o privada, o al que tenga restricción por el secreto profesional que, a sabiendas de que una persona es VIH positivo, sin su consentimiento haga de conocimiento de otra u otras personas este diagnóstico.
+(Así adicionado por el artículo 1° de la ley N° 10156 del 18 de marzo de 2022)

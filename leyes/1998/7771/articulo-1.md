@@ -1,6 +1,8 @@
+(Derogado)
 N° 7771
+(Esta norma fue derogada por el artículo 4° de la ley N° 10156 del 18 de marzo de 2022)
 LEY GENERAL SOBRE EL VIH-SIDA
-(Nota de Sinalevi: La presente norma fue reformada parcialmente y reproducido su texto de forma íntegra mediante la ley N° 9797 del 2 de diciembre del 2019, y publicada en el Alcance Digital N° 277 a La Gaceta N° 238 del 13 de diciembre del 2019, por lo que se reproduce a continuación:)
+(Nota de Sinalevi: La presente norma había sido reformada en su totalidad por la ley N° 9797 del 2 de diciembre del 2019, y publicada en el Alcance Digital N° 277 a La Gaceta N° 238 del 13 de diciembre del 2019. No obstante por el artículo 3° de la ley N° 10156 del 18 de marzo de 2022, se indicó cambiar la denominación de la ley N° 9797 del 2 de diciembre de 2019, para que de ahora en adelante se denominará "Ley General sobre el VIH-SID", y no reforma integral de la Ley N° 7771 del 29 de abril de 1998. Se advierte que la presente norma cuenta con la reforma de ley de la ley N° 9797 del 2 de diciembre de 2019, ya que el ente emisor no indica que como consecuencia de la derogatoria de la ley N° 9797 del 2 de diciembre de 2019, la presente norma recobra su texto antes de la reforma indicada.)
 TITULO I
 DISPOSICIONES GENERALES
 CAPÍTULO ÚNICO
