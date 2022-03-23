@@ -1,0 +1,2 @@
+ARTÍCULO 2- Se adiciona un nuevo artículo 39 bis a la Ley 7788, Ley de Biodiversidad, de 30 de abril de 1998. El texto es el siguiente:
+Artículo 39 bis- Modalidades contractuales. Para el otorgamiento de concesiones y contrataciones de servicios y actividades no esenciales, dentro de las áreas silvestres protegidas, la Administración utilizará las modalidades contractuales que mejor satisfagan el interés público, siguiendo los procedimientos ordinarios, extraordinarios y especiales establecidos en la ley.

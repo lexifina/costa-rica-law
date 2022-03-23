@@ -1,0 +1,1 @@
+Transitorio l- Las concesiones o los contratos que no cumplan con lo establecido en la presente reforma al artículo 39 de la Ley de Biodiversidad, otorgados con anterioridad a la entrada en vigor de esta ley, mantendrán su vigencia en respeto a los derechos adquiridos, siempre que los concesionarios o permisionarios cumplan con todas sus obligaciones legales y contractuales.
