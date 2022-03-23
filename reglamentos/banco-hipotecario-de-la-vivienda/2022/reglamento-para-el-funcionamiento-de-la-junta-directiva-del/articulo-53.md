@@ -1,0 +1,1 @@
+ARTÍCULO 53: INFORMES DE EJECUCIÓN: La Auditoría Interna, como parte de sus labores control y fiscalización, y en cumplimiento de su plan de trabajo, verificará, se cumplan los objetivos del Banco, así como el seguimiento y control ejercido por la Gerencia General.

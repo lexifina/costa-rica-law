@@ -1,0 +1,3 @@
+ARTÍCULO 33: DE LAS VOTACIONES: Las votaciones de las sesiones presenciales se realizarán, por regla general, a mano alzada. Las votaciones de las sesiones virtuales se realizarán, mediante manifestación verbal y de ser posible utilizando los medios que se permitan según los avances tecnológicos. En ningún caso se admite la abstención.
+Quienes rechacen cualquier proyecto de resolución, necesariamente, justificarán su voto negativo de forma inmediata, la cual quedará constando en el acta y en la minuta; quienes lo aprueben, si lo desean, podrán razonar su voto favorable.
+Ni los alegatos para justificar los votos negativos, ni los que pretendan razonar los votos favorables, pueden pretender en ningún caso modificar lo acordado o reanudar la discusión sobre lo ya resuelto.

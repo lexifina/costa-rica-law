@@ -1,0 +1,2 @@
+ARTÍCULO 28: CONFECCIÓN DE LA AGENDA U ORDEN DEL DÍA: La Presidencia de la Junta en coordinación con la Gerencia General, tendrán la responsabilidad de definir los temas a incluir en la agenda para conocimiento y deliberación en cada sesión de Junta; la cual debe ser remitida con la debida anticipación, junto a la documentación del caso, para su conocimiento.
+En la definición de la agenda, se deberán tomar en cuenta las peticiones hechas por los demás miembros de la Junta.

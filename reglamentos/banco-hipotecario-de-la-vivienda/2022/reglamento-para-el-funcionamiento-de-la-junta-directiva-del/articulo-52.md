@@ -1,0 +1,4 @@
+SECCIÓN X
+CONTROL DE ACUERDOS Y SEGUIMIENTO
+ARTÍCULO 52: REGISTRO, CONTROL Y SEGUIMIENTO DE LOS ACUERDOS: Corresponde a la Secretaría de Junta, mediante los mecanismos y/o herramientas establecidas por el Banco, llevar un adecuado registro de los acuerdos, de manera que se puedan identificar fácilmente aquellos que están pendientes de ejecución. Y corresponderá a cada área y/o departamento del Banco, llevar un control actualizado, integro y fehaciente de los acuerdos que le hayan sido asignados en la herramienta que al efecto ha establecido la Administración; así como ejercer el debido seguimiento para su cumplimiento.
+Por su parte corresponderá a la Gerencia General del Banco ejercer el control directo del cumplimiento de los acuerdos tanto de aquellos encomendados a la Administración como a las Entidades Autorizadas.

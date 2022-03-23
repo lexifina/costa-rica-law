@@ -1,0 +1,5 @@
+SECCIÓN III
+DE LAS SESIONES DE JUNTA Y ORDEN DEL DÍA
+ARTÍCULO 13: DE LAS SESIONES ORDINARIAS: De conformidad con lo establecido en artículo 21 de la LFSV, la Junta deberá reunirse en sesión ordinaria una vez por semana, en el lugar, el día y la hora acordado por mayoría absoluta de la totalidad de sus Miembros al iniciarse el cuatrienio, sin perjuicio de que más adelante y por la misma mayoría, se disponga de su modificación, las veces que sea convocada por la Presidencia, la Gerencia General o al menos tres miembros de la Junta.
+En las sesiones ordinarias se conocerán, discutirán y votarán los asuntos ordinarios que le competen al Órgano Colegiado, y cualquier otro asunto que por mayoría así lo decida dicho Órgano.
+En las sesiones ordinarias, al conocerse el orden del día, se resolverán todas las modificaciones o incorporaciones que se pretendan realizar a la agenda que haya sido propuesta junto con la convocatoria a la sesión. Una vez aprobada la agenda y su orden, la alteración del orden del día únicamente procederá en situaciones excepcionales, debiendo contar para ello con el voto favorable de todos los y las miembros de la Junta.

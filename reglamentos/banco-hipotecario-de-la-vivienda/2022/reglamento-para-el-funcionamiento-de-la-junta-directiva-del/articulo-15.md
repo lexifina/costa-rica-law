@@ -1,0 +1,1 @@
+ARTÍCULO 15: LUGAR PARA LAS SESIONES PRESENCIALES: Los o las miembros del Órgano Colegiado celebrarán sus sesiones presenciales en el edificio del BANHVI, o en cualquier otro sitio que haya acordado previa y expresamente el Órgano Colegiado.

@@ -1,0 +1,1 @@
+ARTÍCULO 42: VOTACIÓN DE ACUERDOS: Los acuerdos se tomarán por mayoría simple de los votos presentes, excepto en los casos en que la ley exige una mayoría especial determinada. Cuando se produjere empate, la presidencia tendrá doble voto y resolverá.

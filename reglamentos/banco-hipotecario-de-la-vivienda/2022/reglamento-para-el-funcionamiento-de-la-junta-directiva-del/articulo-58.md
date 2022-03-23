@@ -1,0 +1,1 @@
+ARTÍCULO 58: RESPONSABILIDAD DE LA ASESORÍA LEGAL: Corresponde a la Asesoría Legal del Banco, brindar asesoramiento en las etapas previas a la adopción de los acuerdos cada vez que así se le solicite, sin perjuicio de las funciones de ejecución que le fueran encomendadas expresamente por la Junta.

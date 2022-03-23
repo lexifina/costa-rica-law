@@ -1,0 +1,2 @@
+ARTÍCULO 31: DE LOS ÓRGANOS DELIBERATIVOS: Todos los (as) miembros de Junta participantes en la sesión tendrán voz y voto y serán responsables de todos los acuerdos y decisiones ahí tomadas, salvo cuando quede estipulado en actas su voto en contra sobre un asunto en particular.
+La Gerencia General, las Subgerencias, la Auditoría Interna y la Asesoría Legal, cuya participación en las sesiones es con voz y no con voto, actuarán como asesores de este cuerpo colegiado, debiendo llevar a cabo su asesoría de oficio o a petición de parte.
