@@ -1,0 +1,1 @@
+ARTÍCULO 3- Se reforma el nombre de la Ley 9797, Reforma Integral de la Ley 7771, Ley General sobre VIH- SIDA, de 29 de abril de 1998, de 2 de diciembre de 2019, para que se denomine Ley General sobre VIH.
