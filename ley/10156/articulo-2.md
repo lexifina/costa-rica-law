@@ -1,0 +1,3 @@
+ARTÍCULO 2- Reformas de otras leyes. Se reforma el artículo 380 de la Ley 4573, Código Penal, de 4 de mayo de 1970. El texto es el siguiente:
+Artículo 380- Será sancionado con veinte a sesenta días multa, la persona, el gerente o director de una institución oficial o privada, administrador de un establecimiento industrial o comercial que aplique cualquier medida discriminatoria perjudicial, fundada en consideraciones raciales, de género, orientación sexual, edad, religión, estado civil, opinión pública, origen social, condición de salud o situación económica.
+Al reincidente, el juez podrá imponer, además, como pena accesoria, la suspensión de cargos u oficios públicos por un tiempo no menor de quince ni mayor de sesenta días.
