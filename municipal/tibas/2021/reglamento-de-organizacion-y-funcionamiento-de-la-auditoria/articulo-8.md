@@ -1,0 +1,1 @@
+Artículo 8-Ideas rectoras. La Auditoría Interna debe establecer y asegurarse de mantener actualizados, la planificación estratégica de la Auditoría Interna y la de su labor fiscalizadora, la visión, misión, políticas, directrices, lineamientos y procedimientos, estas últimas como premisas bajo las cuales desplegará las competencias que le atribuye la LGCI.

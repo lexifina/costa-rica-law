@@ -1,0 +1,1 @@
+Artículo 5-Ubicación. La Auditoría Interna se ubica en la estructura organizativa como un órgano asesor de muy alto nivel, dentro de la estructura organizacional de la municipalidad, dependiente orgánicamente del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 45-Reglamento para la atención de denuncias. El Auditor Interno establecerá el reglamento para la atención de denuncias siguiendo el marco normativo aplicable de conformidad con los lineamientos emitidos por la CGR.

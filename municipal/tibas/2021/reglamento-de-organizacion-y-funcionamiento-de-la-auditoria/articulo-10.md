@@ -1,0 +1,1 @@
+Artículo 10-Limitaciones a la independencia y objetividad. El Auditor Interno tiene la responsabilidad de definir los controles formales para prevenir las circunstancias que afecten la independencia y la objetividad del personal.
