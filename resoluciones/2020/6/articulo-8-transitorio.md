@@ -1,0 +1,2 @@
+Transitorio Octavo.-Las organizaciones sin fines de lucro, deben mantener la información dispuesta en el capítulo II de la Ley para Mejorar la Lucha contra el Fraude Fiscal y tenerla disponible para entregarla a la Administración Tributaria y a la Unidad de Inteligencia Financiera del ICD, cuando esta así lo requiera, hasta tanto se establezca el procedimiento para que lo presenten directamente en el sistema.
+(Así adicionado por el artículo 3° de la resolución N° DGT-ICD-R-010-2022 del 24 de marzo del 2022)

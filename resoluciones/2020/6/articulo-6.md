@@ -7,5 +7,6 @@ En los casos de los sujetos obligados que: se constituyan, transformen, fusionen
 (Así adicionado el párrafo anterior por el artículo 1° de la resolución N° DGT-ICD-R-033-2021 del 26 de noviembre de 2021)
 Para los años subsiguientes, les corresponderá presentar la declaración ordinaria en abril de cada año.
 (Así adicionado el párrafo anterior por el artículo 1° de la resolución N° DGT-ICD-R-033-2021 del 26 de noviembre de 2021)
-Una vez enviada la declaración se tiene por agotado el plazo de presentación y solo podrá ser modificada mediante una declaración correctiva atendiendo a lo dispuesto en los artículos 9 y 10 de esta resolución.
+Una vez enviada la declaración se tiene por agotado el plazo de presentación y solo podrá ser modificada mediante una declaración extraordinaria establecida en el artículo 6 bis de esta resolución, o mediante declaración correctiva atendiendo a lo dispuesto en los artículos 9° y 10 de esta resolución, según corresponda.
+(Así reformado el párrafo anterior por el artículo 1° de la resolución N° DGT-ICD-R-010-2020 del 24 de marzo del 2022)
 (Así reformado por el artículo 2° de la resolución N° DGT-ICD-R-012-2021 del 26 de febrero de 2021)

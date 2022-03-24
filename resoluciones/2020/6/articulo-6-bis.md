@@ -1,5 +1,7 @@
-Artículo 6 bis.—Declaración extraordinaria: Se debe presentar una declaración extraordinaria:
+Artículo 6 bis.-Declaración extraordinaria: Se debe presentar una declaración extraordinaria:
 a) Cuando alguno de los propietarios de las participaciones iguale o supere el quince por ciento (15%) del total del respectivo tipo, ya sean comunes, preferentes u otras, o se den variaciones en los beneficiarios finales por otros medios de control, para lo cual se deberá presentar una declaración extraordinaria dentro de los 15 días hábiles siguientes, contados a partir de la anotación en el libro o registro oficial.
 b) Cuando se haya dado una fusión, la persona jurídica que prevalece, deberá presentar una declaración extraordinaria dentro de los 15 días hábiles siguientes a la fecha en la que quedó inscrita la fusión en el Registro Nacional, lo anterior siempre que haya presentado de previo la declaración ordinaria para el mismo periodo correspondiente.
+c) Cuando se den variaciones en las partes del fideicomiso y o sus beneficiarios finales.
+(Así adicionado el inciso anterior por el artículo 2° de la resolución N° DGT-ICD-R-010-2022 del 24 de marzo del 2022)
 (Así adicionado por el artículo 1° de la resolución N° DGT-ICD-R-19-2020 del 6 de agosto del 2020)
 (Así reformado por el artículo 2° de la resolución N° DGT-ICD-R-012-2021 del 26 de febrero de 2021)
