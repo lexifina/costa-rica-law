@@ -1,0 +1,2 @@
+Artículo 5º-Seguimiento y control de dispositivos para el transporte de la madera. Las Áreas de Conservación del país mantendrán las acciones de seguimiento y control dispuestos en la normativa, para sacar de circulación todos los dispositivos de transporte de la madera ya utilizados por los usuarios.
+También deberán mantener las acciones de coordinación con las autoridades policiales competentes para el adecuado seguimiento y control de estos dispositivos en las diferentes vías del país.

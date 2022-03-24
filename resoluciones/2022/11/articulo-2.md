@@ -1,0 +1,1 @@
+Artículo 2º-Validación del certificado de origen y de la guía de transporte de la madera como mecanismos de seguridad. Todas las Áreas de Conservación del país, en atención a lo establecido en la Ley Forestal, tendrán como mecanismo de seguridad y trazabilidad el certificado de origen emitido por el regente forestal y las guías de transporte de la madera según corresponda.
