@@ -1,0 +1,1 @@
+Artículo 4º-Plazo. La condonación de los recargos, los intereses y las multas que se adeuden a por concepto de impuestos y tasas adeudados al primer trimestre del año 2021 podrá ser solicitada desde la fecha de publicación del presente reglamento hasta el día ocho de julio del 2022, inclusive.

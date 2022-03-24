@@ -1,0 +1,4 @@
+Artículo 15.-Excepciones. Se excluye de beneficio de condonación del presente reglamento a aquellos casos en que la Municipalidad haya denunciado o se encuentre ante una situación denunciable ante el Ministerio Público, por estimar que existen irregularidades que pueden ser constitutivas de los delitos tributarios tipificados en los artículos 92 y 93 de la Ley 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971 y en otros cuerpos de aplicación directa o de manera supletoria.
+Se exceptúa igualmente del otorgamiento del beneficio de condonación los recargos, los intereses y las multas que adeuden a la municipalidad por concepto del impuesto de construcción, y por infracción a la Ley 9047, Regulación y Comercialización de Bebidas con Contenido Alcohólico.
+Rige a partir de su publicación.
+Río Cuarto, Alajuela, 15 de marzo del 2022.

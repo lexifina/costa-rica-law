@@ -1,0 +1,1 @@
+Artículo 13.-Informe de aplicación. La Dirección emitirá un informe trimestral a la Alcaldía sobre los resultados de la ejecución de la condonación, por todo el periodo de vigencia de los arreglos de pago formalizados.

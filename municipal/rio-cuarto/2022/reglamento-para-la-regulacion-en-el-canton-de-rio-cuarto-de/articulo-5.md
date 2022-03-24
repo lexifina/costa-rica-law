@@ -1,0 +1,1 @@
+Artículo 5º-Solicitud. Para acceder a la condonación estipulada por la ley 10026, la persona contribuyente deberá presentar solicitud escrita a la Dirección Financiera, Tributaria y Administrativa. Solicitud que se realizará a través del formulario que la Municipalidad habilite para dicho fin.

@@ -1,0 +1,1 @@
+Artículo 14.-Periodos no contemplados. Los contribuyentes que se acojan al beneficio de condonación dispuesto en el presente reglamento que adeuden el segundo, tercer o cuarto trimestre del año 2021 y siguientes podrán acogerse a los arreglos de pago ya establecidos según el Reglamento de arreglos de pago e incentivo tributario de la Municipalidad de Río Cuarto.

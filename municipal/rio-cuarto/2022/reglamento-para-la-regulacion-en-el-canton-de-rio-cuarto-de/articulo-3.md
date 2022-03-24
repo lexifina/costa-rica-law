@@ -1,0 +1,1 @@
+Artículo 3º-Condonación en patentes. Se autoriza el otorgamiento a los patentados comerciales de la condonación por intereses, multas y recargos en el impuesto de patentes comerciales por actividades lucrativas correspondiente a la Ley N°9932, Ley sobre impuestos en el Cantón de Río Cuarto.

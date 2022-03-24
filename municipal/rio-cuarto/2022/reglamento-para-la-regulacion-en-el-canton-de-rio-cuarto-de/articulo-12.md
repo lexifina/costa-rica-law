@@ -1,0 +1,3 @@
+Artículo 12.-Incumplimiento de arreglos de pago. Las personas contribuyentes que hayan obtenido la condonación mediante un arreglo de pago y este se incumpla o no se cancelen las cuotas posteriores a la firma del arreglo de pago, perderán el beneficio de la condonación a partir del incumplimiento y por las cuotas restantes del arreglo de pago.
+Una vez perdido el beneficio de condonación se deberán cancelar los intereses correspondientes a lo adeudado a ese momento.
+En caso de incumplimiento comprobado se notificará la persona contribuyente, la condición de morosidad y la pérdida del beneficio de condonación. Dicha notificación se realizará al medio dispuesto para notificaciones dispuesto en el formulario respectivo.
