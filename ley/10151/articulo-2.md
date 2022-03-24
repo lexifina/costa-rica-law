@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Municipalidad de Turrialba para que done el inmueble descrito en eI párrafo anterior a la Asociación Turrialbeña de Radioaficionados, portadora de la cédula jurídica número tres-cero cero dos-uno dos nueve cero seis cero (N° 3-002-129060), para que se destine a albergar sus instalaciones.
