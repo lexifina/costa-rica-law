@@ -79,3 +79,4 @@ articulo-37-transitorio.md
 articulo-38-transitorio.md
 articulo-39-transitorio.md
 articulo-40-transitorio.md
+articulo-41-transitorio.md
