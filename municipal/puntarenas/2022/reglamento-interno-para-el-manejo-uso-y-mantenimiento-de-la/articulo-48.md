@@ -1,0 +1,1 @@
+Artículo 48. Reforma parcial o total. Para la reforma total o parcial de este reglamento, será necesario para lo anterior, la votación de mayoría simple del Concejo Municipal, y se regirá por las formalidades que rezan en el reglamento de dirección de debates del Concejo Municipal.

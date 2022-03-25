@@ -1,0 +1,3 @@
+Capítulo II: De la administración, control, uso y mantenimiento de los
+vehículos:
+Artículo 4. De la Administración de los vehículos. La administración, mantenimiento y uso de los vehículos asignados a los departamentos específicos, está bajo la responsabilidad de los Coordinadores de esos departamentos. Con relación al mantenimiento de los vehículos (inclúyase motos, lancha, panga, o cualquier otro medio de transporte utilizado para cumplir los fines de la Municipalidad), preventivo, correctivo, pago de pólizas, marchamos que pagan anualmente ante el INS y otras instituciones, se coordine con Servicios Generales el procedimiento a utilizar. Así como la revisión Técnica ante riteve que se realiza todos los años.

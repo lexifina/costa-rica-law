@@ -1,0 +1,7 @@
+Artículo 19. De la Adquisición de Vehículos. Cada departamento administrativo recomendará, conforme a los análisis anuales de la utilización del uso de transportes y con base en las necesidades de transporte existentes a nivel institucional, los requerimientos de nuevas unidades automotrices sean propios o arrendados, para satisfacer la demanda de servicios que brinda la Municipalidad. La anterior recomendación se basará en los siguientes parámetros.
+a) Realizar previo a cualquier contratación de compra de vehículos, un estudio de mercado con el fin de obtener los insumos suficientes para formular el proyecto de contratación debiendo incluirse, además el costo de mantenimiento de los vehículos.
+b) Recomendará la cantidad y especificaciones técnicas de los vehículos necesarios contemplando el Manual para la implementación de compras verdes en el sector público de Costa Rica.
+c) Realizará el estudio técnico de las ofertas presentadas, según sea compra, alquiler o cualquier otro método de contratación.
+d) A instancia de la Proveeduría Municipal colaborará en la verificación de los vehículos que se adquieran y verificará que se ajusten a las condiciones solicitadas y ofrecidas por los oferentes.
+e) Tendrá la responsabilidad de evaluar periódicamente, las alternativas más convenientes desde el punto de vista técnico y económico, que le permitan a la institución resolver sus requerimientos de vehículos en forma oportuna, eficiente y eficaz.
+f) Bajo cualquier otro parámetro que sea pertinente.

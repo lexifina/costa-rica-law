@@ -1,0 +1,1 @@
+Transitorio III: La Municipalidad de Puntarenas, tendrá un período de 2 años para la adquisición de cabezales, plataformas y cualquier otro equipo que considere necesarios, según estudios técnicos; para el cumplimiento de lo dispuesto en el artículo 33 de este reglamento.

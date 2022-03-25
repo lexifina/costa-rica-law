@@ -1,0 +1,1 @@
+Artículo 46. Disposiciones varias. En lo no previsto en este reglamento, la Alcaldía Municipal podrá delegar en el Departamento de Servicios Generales, las situaciones que se presenten, mediante resoluciones concretas o circulares de carácter general, en estricto apego al principio de legalidad.
