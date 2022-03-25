@@ -1,1 +1,0 @@
-Artículo 26.—Contenido de la notificación. La notificación contendrá el texto íntegro del acto con indicación de los recursos procedentes, del órgano que los resolverá, de aquel ante el cual deben interponerse y del plazo para interponerlos.
