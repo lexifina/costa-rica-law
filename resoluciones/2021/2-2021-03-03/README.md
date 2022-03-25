@@ -14,3 +14,4 @@ Adopta e implementa en el Sector Público Costarricense la versión 2018 de las 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-24 | la propia norma |
+| 2 | 2022-03-25 | Resolución 3 (2022-03-25) |
