@@ -25,3 +25,4 @@ Reglamento General de fondos de Jubilaciones y Pensiones de los vendedores de lo
 | 10 | 2018-01-29 | Reglamento 4 (2018-01-29) |
 | 11 | 2022-03-28 | Reglamento 19 (2022-03-28) |
 | 12 | 2022-03-28 | Reglamento 38 (2021-06-21) |
+| 13 | 2022-03-28 | Reglamento 44 (2021-07-22) |
