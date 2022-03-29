@@ -1,1 +1,0 @@
-Artículo 30.—Renuncia o separación. Cuando un abogado renuncie o sea separado en sus servicios, los juicios a su cargo no concluidos, serán asignados a otro abogado siguiendo el rol por el coordinador de la Unidad Administrativa respectiva.

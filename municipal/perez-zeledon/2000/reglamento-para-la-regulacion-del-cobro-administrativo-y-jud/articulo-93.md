@@ -1,3 +1,0 @@
-Artículo 93.—Tercer remate. En caso de tercer remate, si no hubiese oferentes, la Municipalidad deberá adjudicarse el bien por el 25% del avalúo, o por el total adeudado si éste fuere inferior al 25% del avalúo.
-En caso de haberse podido constatar la existencia de los bienes pignorados, y estos no se encuentren en poder de la Municipalidad, o los mismos están muy deteriorados, deberá solicitarse la adjudicación a favor de la Municipalidad del bien que se esté rematando, por la suma de un colón.
-Si la suma ofrecida no llegase al cincuenta por ciento de la base primitiva, y una vez sea notificado el deudor de este resultado ofreciese mejor postor, se realizará la subasta privada.

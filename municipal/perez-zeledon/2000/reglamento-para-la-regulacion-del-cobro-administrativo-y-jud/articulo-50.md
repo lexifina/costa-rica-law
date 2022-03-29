@@ -1,1 +1,0 @@
-Artículo 50.—Requerimientos mínimos del bufete. Todo abogado deberá, como mínimo, contar en su oficina con teléfono, facsímil, correo electrónico y oficina abierta dentro del circuito judicial de Pérez Zeledón.

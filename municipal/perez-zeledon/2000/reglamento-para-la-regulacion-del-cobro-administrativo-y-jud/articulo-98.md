@@ -1,1 +1,0 @@
-Artículo 98.—Entrada en vigencia. El presente Reglamento rige a partir de su publicación. Este Reglamento deroga cualquier otra disposición reglamentaria que exista en el seno de la Municipalidad Pérez Zeledón en materia de cobro administrativo y judicial.

@@ -1,1 +1,0 @@
-Artículo 43.—Deudas municipales de los abogados. Todo abogado al servicio de la Municipalidad, deberá mantener sus deudas personales o de sus representadas, directas o indirectas, al día; así como los requisitos relacionados a las mismas.

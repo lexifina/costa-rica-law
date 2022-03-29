@@ -1,1 +1,0 @@
-Articulo 59.—Remate. Una vez realizado el remate del bien y que el mismo sea adjudicado a la Municipalidad Pérez Zeledón, se presentará el escrito ante el juzgado respectivo a más tardar dos días hábiles posteriores a la realización del mismo en que se solicite la autorización para la protocolización de piezas.

@@ -1,1 +1,0 @@
-Artículo 24.—Nombramiento o destituciones. Corresponde a la Alcaldía Municipal, promover el nombramiento o destituciones de abogados para cualquier caso, cuando las necesidades de la Municipalidad así lo requieran.

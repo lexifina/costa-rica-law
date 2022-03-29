@@ -1,1 +1,0 @@
-Artículo 71.—Audiencia. De previo a resolver, la Alcaldía otorgará una audiencia de tres días hábiles al abogado investigado. Concluido este lapso de tiempo, la Alcaldía resolverá dentro de los cinco días hábiles siguientes. De acuerdo con el resultando final, el Abogado podrá apelar ante el Concejo Municipal si lo considera necesario.

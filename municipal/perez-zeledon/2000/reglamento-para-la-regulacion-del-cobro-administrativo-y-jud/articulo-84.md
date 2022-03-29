@@ -1,2 +1,0 @@
-Artículo 84.—Informe del abogado. En los casos en que realizada la inspección judicial, resultare que los bienes no fueron presentados por el deudor, el Abogado Director deberá confeccionar un informe detallado a la Unidad Administrativa, que deberá contener una recomendación del profesional de si los hechos podrán calificar dentro del delito de estelionato.
-La Unidad Administrativa deberá analizar el caso y la recomendación del profesional y tomar la decisión de iniciar o no la acción penal correspondiente, en coordinación con la Unidad de Asesoría Legal.

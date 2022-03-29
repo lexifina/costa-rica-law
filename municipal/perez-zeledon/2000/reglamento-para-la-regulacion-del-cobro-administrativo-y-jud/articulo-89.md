@@ -1,1 +1,0 @@
-Articulo 89.—Remate con postores. Ajuicio de la Municipalidad, luego de celebrado un remate, en el que no hubo postores, el Abogado Director solicitará al despacho judicial un nuevo señalamiento para realizarlo o en su defecto, la Municipalidad podrá adjudicarse los bienes con base en lo establecido en el párrafo primero del articulo 655 del Código Procesal Civil.

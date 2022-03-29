@@ -1,1 +1,0 @@
-Artículo 74.—Poder Especial Judicial. En el escrito inicial de demanda se incluirá el otorgamiento de un poder especial al abogado director del proceso, el cual deberá contar con la firma del Alcalde Municipal.

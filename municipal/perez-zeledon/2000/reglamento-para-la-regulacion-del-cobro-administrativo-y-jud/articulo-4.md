@@ -1,2 +1,0 @@
-Artículo 4°—Ámbito de las gestiones de cobro. Todas las gestiones de cobro que realice la Municipalidad sobre las obligaciones tributarias o deudas, en cualquiera de las oficinas indicadas en el articulo primero, se efectuarán de conformidad con el presente Reglamento.
-No implica lo anterior imposibilidad para que la Municipalidad, por razones de conveniencia y de forma motivada, pueda recurrir a un procedimiento de cobro más acelerado, cualquiera que éste fuere.

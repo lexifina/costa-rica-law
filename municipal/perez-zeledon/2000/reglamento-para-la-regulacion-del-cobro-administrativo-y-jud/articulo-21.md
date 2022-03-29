@@ -1,1 +1,0 @@
-Artículo 21.—Obligaciones del abogado. El Abogado Director no podrá suspender en forma definitiva el proceso judicial hasta que se la haya manifestado por escrito, la persona u órgano que autorizó el no-seguimiento, lo cual se tramitará por la vía de la Unidad Administrativa conforme a los artículos 79 y siguientes.

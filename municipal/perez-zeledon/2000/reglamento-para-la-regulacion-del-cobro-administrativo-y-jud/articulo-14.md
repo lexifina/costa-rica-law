@@ -1,1 +1,0 @@
-Articulo 14.—Del rol de asignaciones. El rol de asignaciones consistirá en una lista de abogados, ordenada alfabéticamente, que indicara el turno en que se le asignará al profesional determinado caso.

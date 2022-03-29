@@ -1,1 +1,0 @@
-Articulo 26.—Caución. Sin perjuicio de los requisitos que establezca el cartel de procedimiento administrativo, el abogado para cobro judicial deberá rendir una caución no menor a un millón de colones, por el plazo del nombramiento.

@@ -1,1 +1,0 @@
-Artículo 70.—Derecho de defensa. Aún cuando la Municipalidad estime que la prestación de los servicios profesionales del abogado puedan suspenderse en cualquier momento sin responsabilidad de su parte, el abogado tendrá derecho de ser oído en sus justificaciones.

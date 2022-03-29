@@ -1,1 +1,0 @@
-Artículo 91.—Protocolización de piezas del remate. La protocolización de piezas por bienes adjudicados a favor de la Institución estará a cargo del mismo profesional Director del proceso judicial respectivo.

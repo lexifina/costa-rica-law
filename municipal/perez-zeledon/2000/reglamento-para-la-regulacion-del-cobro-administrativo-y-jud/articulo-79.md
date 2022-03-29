@@ -1,1 +1,0 @@
-Articulo 79.—Casos de Perjuicio. En aquellos casos en que se determine que la aprobación de una suspensión sea perjudicial a los intereses de la Municipalidad, la Unidad Administrativa remitirá una nota explicativa a quien la otorgó, a fin de que lo modifique o acepte el riesgo apuntado, bajo su responsabilidad.

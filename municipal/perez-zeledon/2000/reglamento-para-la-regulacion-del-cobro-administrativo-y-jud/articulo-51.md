@@ -1,1 +1,0 @@
-Artículo 51.—Dificultad de notificación. Es responsabilidad del Abogado Director informar por escrito a la Administración, cuales personas físicas o jurídicas no han podido ser notificadas dentro de cada uno de los procesos por falta de una efectiva localización y la Municipalidad con los medios de que dispone, tratará de localizarlos.
