@@ -13,3 +13,4 @@ Listado de circulares emitidas por el Poder Judicial relacionadas con las Poblac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-27 | la propia norma |
+| 2 | 2022-03-29 | Circular 57 (2022-03-29) |
