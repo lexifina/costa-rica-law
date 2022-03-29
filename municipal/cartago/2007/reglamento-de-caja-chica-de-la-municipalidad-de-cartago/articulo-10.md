@@ -1,1 +1,0 @@
-Artículo 10.—Todo justificante que el interesado presente en el momento de liquidación deberá contar con la aprobación del Proveedor Municipal y cuyas características se detallan en el procedimiento adjunto; salvo liquidaciones de viáticos, para lo cual existe otro procedimiento.
