@@ -14,3 +14,4 @@ Forma de solicitar la corrección de errores materiales en edictos y certificado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-01 | la propia norma |
+| 2 | 2022-03-29 | Directriz 1 (2022-03-29) |
