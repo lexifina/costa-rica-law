@@ -1,4 +1,4 @@
 Artículo 3°-De conformidad con las Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión y Endeudamiento, las entidades públicas, ministerios y órganos desconcentrados, enviarán a la STAP, dentro de los primeros cinco días hábiles al vencimiento de cada trimestre, los informes sobre el nivel de empleo que incluye plazas nuevas, ocupadas, vacantes, vacantes por movilidad laboral voluntaria y por reestructuración organizacional, así como el listado de reasignaciones aprobadas, que incluya número de puesto, clase anterior y clase nueva.
-Asimismo, las Oficinas de Recursos Humanos serán las encargadas de ingresar la información correspondiente en la Base de Datos de Empleo del Sector Público, de conformidad con lo establecido en el Decreto No.40736-MP-H-MIDEPLAN, dentro del plazo señalado en el párrafo que antecede.
-También deberán presentar la relación de puestos una vez aplicado el incremento salarial de cada semestre”.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41618 del 8 de marzo del 2019)
+Asimismo, las Oficinas de Recursos Humanos serán las encargadas de ingresar la información correspondiente en la Base de Datos de Empleo del Sector Público, de conformidad con lo establecido en el Decreto N.° 40736-MP-H-MIDEPLAN, dentro del plazo señalado en el párrafo que antecede.
+Una vez aplicado el incremento salarial, también deberán presentar la relación de puestos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43465 del 29 de marzo de 2022)
