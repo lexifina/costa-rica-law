@@ -1,0 +1,1 @@
+Artículo 10.-Toda la información que se indique en el formulario de solicitud del trámite tiene carácter de declaración jurada, de manera que, si el Ministerio de Salud llegase a corroborar alguna falsedad en lo declarado, podrá aplicar las medidas especiales que se encuentran establecidas en la Ley General de Salud.

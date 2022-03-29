@@ -1,0 +1,1 @@
+Artículo 7º-En el caso de microempresas que contratan la fabricación de sus productos a un tercero, podrán gozar del beneficio indicado en el artículo 5, independientemente de si el fabricante es microempresa o no.
