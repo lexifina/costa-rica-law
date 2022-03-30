@@ -1,1 +1,0 @@
-Artículo 14.—El capitán de la embarcación deberá revisar el DS al menos una vez cada veinticuatro horas, verificando que el mismo se encuentre operando con normalidad, de conformidad con las indicaciones exteriores del dispositivo.

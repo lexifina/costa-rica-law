@@ -1,6 +1,0 @@
-Artículo 6º—El SLSC debe garantizar a las autoridades nacionales los datos y la frecuencia de transmisión necesaria para determinar con precisión la trayectoria de las embarcaciones pesqueras, así como los resguardos necesarios referentes a la integridad y confiabilidad de los datos, por los mecanismos y controles técnicamente avalados. La información recabada por medio del SLSC para cada embarcación es de uso exclusivo para el INCOPESCA.
-Las autoridades policiales y judiciales podrán tener acceso a esta información sin restricciones. En caso de que otras instituciones estatales requieran acceso a esta información, las autoridades administrativas o judiciales competentes para la vigilancia y control de las actividades pesqueras podrán tener acceso a la información de manera restringida. Para todos los efectos se deberán coordinar con el Presidente Ejecutivo del INCOPESCA para obtener la siguiente información:
-a. La identificación del buque (Nombre, matrícula y número OMI cuando corresponda).
-b. La posición geográfica del buque (latitud y longitud), con un error de entre 50 a 100 metros en un nivel de confianza de 95%.
-c. La fecha y hora zona horaria (UTC) de la fijación de posición del buque.
-d. La velocidad y rumbo del buque.

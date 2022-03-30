@@ -1,1 +1,0 @@
-Artículo 25.—En caso de disconformidades, la oficina consultante del INCOPESCA deberá recolectar la prueba pertinente, y trasladar el asunto a conocimiento del Ministerio Público, cuando así corresponda según el Decreto Ejecutivo N° 40599-MP-MINAEMOPT- MAG- SP., CAPITULO XXX; Delitos, Infracciones, Sanciones y Recursos.

@@ -1,1 +1,0 @@
-Artículo 13.—El DS no deberá forzarse, golpearse y/o cubrirse para impedir u obstruir su transmisión; tampoco deberá ser desconectado de su fuente de energía, ni ser sometido a cualquier otra manipulación que afecte su correcto funcionamiento.

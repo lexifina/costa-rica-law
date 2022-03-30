@@ -1,2 +1,0 @@
-Artículo 24.—No se autorizará la emisión del formulario de inspección de desembarque de producto pesquero de ninguna embarcación, sea nacional o extranjera, cuando exista disconformidad emitida por el CSC.
-Salvo cuando en virtud de orden judicial se ordene el desembarque de producto que este sujeto a decomiso se emitirá el FID, en tal caso se deberá consignar en el mismo por parte del funcionario responsable de emitirlo, que se extiende en razón de la orden judicial recibida. En ese caso, el producto pesquero deberá disponerse según lo indique el Ministerio Público.
