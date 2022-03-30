@@ -16,5 +16,6 @@ XI.-Que existe el riesgo de desabastecimiento del mercado privado y de la seguri
 EL CONSEJO TÉCNICO DE INSCRIPCIÓN
 DE MEDICAMENTOS
 RESUELVE
-1º-Ampliar por 2 años a partir de la publicación de la presente Resolución, la obligatoriedad de la presentación de este requisito. Se establece la posibilidad de la presentación voluntaria, durante estos dos años, de los estudios de perfiles de disolución y el estudio de bioequivalencia manteniéndose la posibilidad de la presentación voluntaria, durante estos dos años, de los estudios de perfiles de disolución y el estudio de bioequivalencia en un cambio post registro o durante la renovación del Registro Sanitario de los medicamentos ya registrados. También podrá presentarse junto con la solicitud de Inscripción de los medicamentos que contengan principios activos del listado priorizado actualizado.
+1º-Ampliar por dos años a partir de la publicación de la presente Resolución, la obligatoriedad de la presentación de este requisito. Se establece la posibilidad de la presentación voluntaria, durante estos dos años, de los estudios de perfiles de disolución y el estudio de bioequivalencia, en el trámite de inscripción o en el trámite de renovación del registro sanitario de los medicamentos que contengan principios activos del listado priorizado.
+(Así reformado mediante resolución N° MS-CTI-001-2022 del 30 de marzo del 2022)
 2°-Rige a partir de su publicación.

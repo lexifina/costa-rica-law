@@ -14,3 +14,4 @@ Amplía por 2 años la posibilidad de la presentación voluntaria de los estudio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-09-30 | la propia norma |
+| 2 | 2022-03-30 | Resolución 1 (2022-03-30) |
