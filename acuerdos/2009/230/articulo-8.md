@@ -1,1 +1,0 @@
-Artículo 8º—Toda embarcación que esté obligada a utilizar dispositivos de seguimiento satelital, deberá portar los equipos en buen estado y correcto funcionamiento, durante la vigencia de la Licencia de Pesca otorgada por el INCOPESCA, de tal modo que permitan el seguimiento satelital de su actividad pesquera.
