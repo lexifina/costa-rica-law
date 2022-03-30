@@ -1,0 +1,1 @@
+ARTÍCULO 2- Carga consolidada. Para la carga consolidada se tomará el valor del flete, de manera proporcional a la relación peso - volumen, según el valor del flete indicado en la tabla del artículo 1.
