@@ -14,3 +14,4 @@ Procedimiento ECA-MC-P04-I03 Instructivo para llenado del Alcance de la Certific
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-04-15 | la propia norma |
+| 2 | 2022-03-30 | Acuerdo 3 (2022-03-30) |
