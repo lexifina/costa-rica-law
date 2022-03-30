@@ -1,0 +1,2 @@
+Artículo 20.-Incumplimiento. Si durante la ejecución del proyecto, la persona seleccionada incumpliera alguna de las disposiciones del presente reglamento o del respectivo convenio, el MADC podrá resolverlo sin responsabilidad de su parte y proceder en sede administrativa o judicial al cobro de daños y perjuicios en favor del Estado.
+Con la suscripción del convenio, el beneficiario se compromete a ejecutar el proyecto, de lo contrario, deberá reintegrar al MADC la totalidad de los recursos girados hasta ese momento.

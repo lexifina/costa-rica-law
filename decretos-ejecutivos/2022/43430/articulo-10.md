@@ -1,0 +1,1 @@
+Artículo 10.-Comunicación de resultados. Cuando el acuerdo la Junta Administrativa se encuentre firme, la institución contará con 5 días hábiles para comunicar oficialmente los resultados, a los participantes.

@@ -1,0 +1,1 @@
+Artículo 2º-Unidad administrativa competente. La Dirección del MADC, será la instancia competente de vigilar la aplicación y cumplimiento del presente Reglamento y contará con el apoyo de la estructura administrativa de la institución.
