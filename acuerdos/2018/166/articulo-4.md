@@ -1,1 +1,0 @@
-4°—Las oficinas de pesca del INCOPESCA, que realizan inspecciones de desembarque a embarcaciones atuneras de cerco deberán solicitar vía correo electrónico la conformidad del seguimiento satelital al Centro de Monitoreo Satelital del INCOPESCA con al menos 24 horas de anticipación.

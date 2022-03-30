@@ -1,1 +1,0 @@
-3°—Para efectos de la aplicación de lo dispuesto en el artículo primero, las embarcaciones que después de la entrada en vigencia de este acuerdo ingresen por primera vez a puerto nacional, obligatoriamente deberán instalar dicho sistema.
