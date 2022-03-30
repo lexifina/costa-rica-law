@@ -6,7 +6,7 @@ ECA-MC-C10 Criterios para la evaluación de la norma INTE/ISO 14065 | 04 | 05 | 
 Los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www. eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Pavas, Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
 San José, 5 de junio del 2015.
 (Nota de Sinalevi: El Procedimiento ECA-MC-C10 Criterios para la evaluación de la norma INTE/ISO 14065, fue suministrado por el Departamento de Gestoría de Calidad del Ente Costarricense de Acreditación y se transcribe a continuación:)
-(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 195 del 11 de octubre del 2021 donde se actualiza la versión 08 y se publica la versión 09 que se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 67 del 7 de abril del 2022, donde se actualiza la versión 08 y se publica la versión 09, y se transcribe a continuación :)
 [imagen]
 TABLA DE CONTENIDO
 1. OBJETIVO..................................................................................................... 1
@@ -17,9 +17,9 @@ TABLA DE CONTENIDO
 6. Anexo B - Concepto de Planificación en caso de que una declaración de GEI se refiere a un proyecto agrupado o una declaración de GEI esté relacionado con varias instalaciones en un Inventario de GEI de la organización (Anexo Informativo)............................................................ 32
 7. CRITERIOS PARA LOS OV/V ACREDITADOS PARA VERIFICAR EL PPCN 2.0 DEL MINAE.......................................................................... 45
 8. VERIFICACIÓN POR ENTES CON ALCANCES NO ACREDITADOS POR EL ECA EN EL PPCN 2.0............................................................. 46
-9. ESQUEMA CORSIA (Plan de Compensación y Reducción de Carbono para la Aviación Internacional) DE LA OACI Y LA DIRECCIÓN DE AVIACIÓN CIVIL DE COSTA RICA......................................................... 47
+9. ESQUEMA CORSIA (Plan de Compensación y Reducción de Carbono para la Aviación Internacional) DE LA OACI Y LA DIRECCIÓN DE AVIACIÓN CIVIL DE COSTA RICA.......................................................................... 47
 10. TRANSITORIO........................................................................................ 48
-11. CONTROL DE CAMBIOS......................................................................... 48
+11. CONTROL DE CAMBIOS......................................................................... 49
 1. OBJETIVO
 Establecer los criterios de referencia que deben ser aplicados para la evaluación y acreditación de Organismos Validadores/Verificadores, de acuerdo con la Norma INTE/ISO 14065 en su versión vigente y la Directriz IAF MD 6. Asimismo, establecer requisitos complementarios de los esquemas de acreditación.
 2. ALCANCE
@@ -56,8 +56,7 @@ C.1.2a Criterio del ECA: La declaración o publicación por unidad de producto m
 C.1.2b ECA reconoce que el Ministerio de Ambiente y Energía es el único ente autorizado para emitir la Marca País Carbono Neutralidad y sus sinónimos (CO2 neutral, carbono neutral, etc) y que la declaración emitida por un OV/V acreditado debe ser presentada ante la Dirección de Cambio Climático del Ministerio, para el posterior otorgamiento de la marca correspondiente (Modificado por el CAVV-008-2015).
 2. REFERENCIAS NORMATIVAS (Omitir este apartado para procesos de evaluación bajo la norma 14065:2020)
 INTE ISO 14065: 2015 Gases de efecto invernadero: Requisitos para la validación y verificación de organismos para su uso en la acreditación u otras formas de reconocimiento.
-ISO 14066: 2011 Gases de efecto invernadero: Requisitos de competencia para equipos de validación y equipos de verificación de gases de efecto invernadero ISO 14064-3: 2006 Gases de efecto invernadero - Parte 3: Especificación con
-orientación para la validación y verificación de las declaraciones de gases de efecto invernadero
+ISO 14066: 2011 Gases de efecto invernadero: Requisitos de competencia para equipos de validación y equipos de verificación de gases de efecto invernadero ISO 14064-3: 2006 Gases de efecto invernadero - Parte 3: Especificación con orientación para la validación y verificación de las declaraciones de gases de efecto invernadero
 Nota - La bibliografía recoge las referencias a los documentos mencionados en este documento obligatorio que no son referencias normativas.
 3. TÉRMINOS Y DEFINICIONES (Omitir este apartado para procesos de evaluación bajo la norma 14065:2020)
 3.1. Definiciones
@@ -166,10 +165,8 @@ ISO 14064-3 Cláusula 4.3. Nivel de seguridad, materialidad, objetivos, criterio
 4.3.5. Materialidad
 Nota ECA: Para criterios de evaluación que consideren la Norma ISO 14064-3:2018 considerar la Cláusula 5.1
 5.1.3 Nivel de aseguramiento 5.1.4 Objetivos
-5.1.5 Criterios 5.1.6 Alcance
 5.1.7 Umbrales de materialidad
-A.8.2.3.1.&#0;&#0;&#0;&#0;&#0;&#0; El OV / V tendrá un sistema de gestión documentado (según la Cláusula 12) para responder a las solicitudes de validación y / o verificación. Los procedimientos OV
-/ V garantizarán que, antes de cualquier cotización o acuerdo, se obtenga información suficiente sobre el alcance, el objetivo, los criterios, el nivel de seguridad y la importancia relativa de la validación o verificación. La cotización se elaborará sobre la base de la información obtenida teniendo en cuenta las cuestiones clave aplicables a la declaración de GEI y los objetivos de la validación o verificación compatibles con los criterios de validación o verificación (véase A.1.1) y el usuario previsto según corresponda A la declaración de GEI.
+A.8.2.3.1.&#0;&#0;&#0;&#0;&#0;&#0; El OV / V tendrá un sistema de gestión documentado (según la Cláusula 12) para responder a las solicitudes de validación y / o verificación. Los procedimientos OV/ V garantizarán que, antes de cualquier cotización o acuerdo, se obtenga información suficiente sobre el alcance, el objetivo, los criterios, el nivel de seguridad y la importancia relativa de la validación o verificación. La cotización se elaborará sobre la base de la información obtenida teniendo en cuenta las cuestiones clave aplicables a la declaración de GEI y los objetivos de la validación o verificación compatibles con los criterios de validación o verificación (véase A.1.1) y el usuario previsto según corresponda A la declaración de GEI.
 A.8.2.3.2.&#0;&#0;&#0;&#0;&#0;&#0; Al considerar la cotización para la validación o verificación de una afirmación de GEI, el OV / V considera las cuestiones clave relacionadas con el desarrollo de una cotización, según corresponda, incluyendo:
 . nivel propuesto de aseguramiento, materialidad, criterios, objetivos y alcance;
 . Complejidad de la declaración de GEI;
@@ -198,8 +195,8 @@ ISO 14064-3 Cláusula 4.4. Enfoque de validación o verificación
 4.4.3. Plan de muestreo
 Nota ECA: Para criterios de evaluación que consideren la Norma ISO 14064-3:2018 considerar la Cláusula 6.1
 6.1.1 Análisis estratégico 6.1.2 Evaluación de riesgo 6.1.5 Plan de verificación
-6.1.6Plan de recopilación de la evidencia
-6.1.7Aprobación de los planes de verificación y de recopilación de evidencias
+6.1.6 Plan de recopilación de la evidencia
+6.1.7 Aprobación de los planes de verificación y de recopilación de evidencias
 A.8.3.3.1.&#0;&#0;&#0;&#0;&#0;&#0; Los criterios de validación o verificación acordados incluirán una de las opciones de A.1.1.
 A.8.3.3.2.&#0;&#0;&#0;&#0;&#0;&#0; Los principios de los criterios acordados para la validación o verificación se utilizarán durante el proceso de validación o verificación. Los criterios de validación y verificación deberán cumplir los requisitos establecidos en A.1.1.
 A.8.3.3.3.&#0;&#0;&#0;&#0;&#0;&#0; El OV / V y el equipo de validación o verificación utilizarán los principios aplicables a los criterios de validación o verificación acordados (véase A.1.1.) Para guiar el proceso de validación o verificación, incluida la evaluación de los resultados, conclusiones, Opiniones y decisiones sobre la declaración de GEI.
@@ -232,8 +229,8 @@ ISO 14064-3 Cláusulas:
 4.8. Evaluación de la declaración de GEI
 NOTA ECA: Para la aplicación como criterio de evaluación la Norma ISO 14064.3:2018 deben considerarse los apartados;
 6.1.3.3 Sistema de información sobre los GEI y sus controles 6.1.3.4 Datos e información sobre los GEI
-6.1.3.5Proceso de suma de datos
-6.1.3.6Aplicación de actividades y técnicas de verificación seleccionadas 6.3.1.4 Evaluación de la conformidad con los criterios
+6.1.3.5 Proceso de suma de datos
+6.1.3.6 Aplicación de actividades y técnicas de verificación seleccionadas 6.3.1.4 Evaluación de la conformidad con los criterios
 6.3.1.2Evaluación de la suficiencia e idoneidad de la evidencia 6.3.1.3 Evaluación de las declaraciones erróneas materiales
 A.8.4.1. La validación o verificación se llevará a cabo con una actitud de escepticismo profesional, que asume que la información y los datos presentados pueden estar equivocados hasta que se demuestre de manera diferente y tener en cuenta las preocupaciones pertinentes de los interesados o del mercado y los criterios de validación o verificación aplicables y los principios asociados.
 A.8.4.2. El organismo de verificación revisará cualquier cambio en el proyecto de GEI o la estructura de la organización, el plan de proyecto de GEI o el inventario de GEI desde la última verificación. Para la verificación de proyectos de GEI, el organismo de verificación deberá considerar adicionalmente:
@@ -424,8 +421,7 @@ Nota - ISO 14064-3, Anexo A.2.3.6 proporciona una explicación más detallada de
 Nota - ISO 14064-3, Anexo A.2.3.7, proporciona una explicación más detallada del alcance de validación.
 . Materialidad - La expectativa de los usuarios previstos o los criterios de validación de requisitos afectan a la materialidad. Cuanto mayor sea la expectativa o requisitos que una declaración de GEI está libre de errores materiales, omisiones o errores, es necesario el muestreo más detallado y en profundidad de validación (tanto de información y datos).
 Nota 1 - el nivel de seguridad general dicta la profundidad de la muestra / prueba e importancia relativa del tamaño / detalle de muestreo (de datos e información.)
-Nota 2 - ISO 14064-3, Anexo A.2.3.8, proporciona una explicación más detallada de la materialidad. Específicamente - El objetivo de cualquier validación de una
-declaración de GEI es permitir que el organismo de validación de expresar una opinión sobre si la declaración de GEI es, en todos los aspectos materiales, bastante declarado de acuerdo con la intención de los criterios de validación acordados, (referencia A .1.1). La evaluación de la materialidad es una cuestión de criterio profesional. El concepto de importancia relativa reconoce que algunas cuestiones, ya sea individualmente o en forma agregada, son importantes si la declaración de GEI de la parte responsable ha de ser presentados razonablemente de acuerdo con criterios de validación acordados. La determinación de la materialidad implica tanto cualitativos como cuantitativas consideraciones.
+Nota 2 - ISO 14064-3, Anexo A.2.3.8, proporciona una explicación más detallada de la materialidad. Específicamente - El objetivo de cualquier validación de una declaración de GEI es permitir que el organismo de validación de expresar una opinión sobre si la declaración de GEI es, en todos los aspectos materiales, bastante declarado de acuerdo con la intención de los criterios de validación acordados, (referencia A .1.1). La evaluación de la materialidad es una cuestión de criterio profesional. El concepto de importancia relativa reconoce que algunas cuestiones, ya sea individualmente o en forma agregada, son importantes si la declaración de GEI de la parte responsable ha de ser presentados razonablemente de acuerdo con criterios de validación acordados. La determinación de la materialidad implica tanto cualitativos como cuantitativas consideraciones.
 Como resultado de la interacción de estas consideraciones, las discrepancias de cantidades relativamente pequeñas pueden tener un efecto significativo en la declaración de GEI.
 . Las actividades de validación y horarios - recursos disponibles del cliente, logística y tiempo suficiente para la comunicación eficaz de los equipos, incluyendo entrega de validación de información de seguimiento / pruebas para permitir que otro miembro del equipo para el seguimiento de todas las cuestiones afectan el plan de validación.
 ISO 14064-3, Cláusula 4.4.3, Plan de Muestreo (Omitir la aplicación de este apartado para evaluación bajo la versión 14064-3:2018)
@@ -573,11 +569,31 @@ El dueño del esquema CORSIA es la OACI y es a través de la Dirección de Aviac
 Se tomará el siguiente enfoque para los OV/V que deseen estar acreditados para su verificación bajo el esquema CORSIA:
 a) Para los OV/V acreditados por ECA: los OV/V que deseen ampliar a CORSIA deben solicitar una ampliación al alcance mediante la presentación de la Solicitud de acreditación ECA-MP-P04-F16 Solicitud de OVV para CORSIA V01 junto a los anexos solicitados. Además, se requerirá una evaluación de la oficina y una testificación piloto (expediente simulado) para confirmar la competencia y los procesos del OV/V para esta actividad. La evaluación debe confirmar que el organismo de verificación ha identificado los requisitos clave, ha brindado capacitación sobre los requisitos y cualquier cambio en su metodología de verificación, etc. Una vez el OV/V cuente con clientes activos se procede con lo indicado en el procedimiento ECA-MC-P11.
 b) Los OV/V que actualmente no están acreditados: para INTE ISO 14065 deberán recibir una evaluación inicial completa según INTE ISO 14065, INTE ISO 14064-3, 14066:2011, ECA-MC-C10 y el esquema CORSIA, además testificación piloto (expediente simulado) para confirmar la competencia y los procesos del OV/V para esta actividad. Una vez el OV/V cuente con clientes activos se procede con lo indicado en el procedimiento ECA-MC-P11.
-10. TRANSITORIO
-El apartado 4 de este documento que hace referencia al MD6 es únicamente aplicable a procesos de evaluación de OVV, acreditados con la versión INTE ISO 14065: 2015 incluye notas ECA las cuales deben considerarse para procesos de acreditación bajo la versión de Norma ISO 14065:2020 y pierde vigencia a partir del 1 de enero del 2022 para procesos de seguimiento y reevaluación y a partir de 30 de agosto para procesos de solicitud inicial.
-El apartado 7 de este documento, aplican a partir de 30 de agosto 2021, según lo indicado por la Gaceta N 91 que oficializa el Programa País para la Carbono Neutralidad 2.0 mediante Decreto N° 006-2021-MINAE.
-El plan de transición a este programa corresponde al ECA-MC-PT18 PROCESO DE TRANSICIÓN ESQUEMA OVV.
-11. CONTROL DE CAMBIOS
+10. ESQUEMA HCP (HUELLA DE CARBONO DE PRODUCTO) ADMINISTRADO POR EL MINAE
+El ECA ha ampliado el programa de acreditación de la norma INTE ISO 17029:2019 para incorporar la acreditación de verificación de etiquetas y declaraciones ambientales tipo III, específicamente la huella de carbono de producto, basado en el programa administrado por el Comité Técnico de Etiquetado Ambiental y Energético (CTEAE) y la Dirección de Cambio Climático (DCC), ambas dependencias del MINAE. Los administradores o dueños del esquema también están sujetos a evaluación, mediante la norma INTE ISO 14026: 2018 en su versión vigente.
+Los OV/V interesados en la acreditación de este esquema estarán sujetos a la evaluación por parte del ECA en la siguiente normativa y criterios de evaluación:
+1. Programa País Carbono Neutralidad 2.0 Categoría Productos en su versión vigente
+2. Programa Nacional de Etiquetado Ambiental y Energético
+3. Acuerdo-006-2019-MINAE
+4. Norma INTE B12 en su versión vigente
+5. Norma INTE B5 en su versión vigente
+6. Norma INTE ISO 17029: 2019 en su versión vigente
+7. Norma INTE ISO 14065: 2020 en su versión vigente
+8. Norma INTE ISO 14066: 2011 en su versión vigente
+9. Norma INTE ISO 14064-3:2019 en su versión vigente
+10. Norma INTE ISO 14026: 2018 en su versión vigente
+11. Norma INTE ISO 14067:2018 en su versión vigente
+12. ECA-MC-C10 Criterios para la evaluación de la norma INTE/ISO 14065 (IAF MD6).
+13. Regla de categoría de producto aplicable
+14. Solicitud de acreditación/ampliación asociada: ECA-MP-P04-F32 Solicitud certificación etiquetado ambiental, en su versión vigente
+Es importante mencionar que las normas sobre ACV (INTE ISO 14040 e INTE ISO 14044) no se evalúan directamente, sin embargo, deben ser consideradas dentro la matriz de competencias del OVV para la calificación de sus evaluadores y expertos técnicos, y así aplicar de manera adecuada la norma INTE ISO 14067.
+Se tomará el siguiente enfoque para los OV/V que deseen estar acreditados para su verificación bajo el esquema HCP:
+a) Para los OVV que deseen una ampliación: Deben solicitar la ampliación a su alcance de acreditación mediante la presentación del formulario ECA-MP-P04-F32 Solicitud certificación etiquetado ambiental vigente. Se requerirá de una evaluación de
+oficina (con la evaluación de los requisitos aplicables a una ampliación) y una testificación real o piloto (expediente simulado) para confirmar la competencia y los procesos del OV/V para esta actividad. En la a evaluación se debe confirmar que el OVV es competente, tiene una operación coherente y mantiene la imparcialidad de su proceso. En los casos donde se realicen testificaciones piloto, una vez el OV/V cuente con clientes reales/activos se procede con lo indicado en el procedimiento ECA-MC- P11.
+b) Para los OVV sin acreditación: deberán recibir una evaluación inicial completa y una testificación real o piloto (expediente simulado) para confirmar la competencia y los procesos del OV/V para esta actividad En la a evaluación se debe confirmar que el OVV es competente, tiene una operación coherente y mantiene la imparcialidad de su proceso. En los casos donde se realicen testificaciones piloto, una vez el OV/V cuente con clientes reales/activos se procede con lo indicado en el procedimiento ECA-MC- P11.
+11. TRANSITORIO
+No aplica
+12. CONTROL DE CAMBIOS
 Motivo: | Modificación de documento
-Refiérase a la solicitud de elaboración o modificación del documento número 2021- 145
-Se modifican apartados del PPCN indicados en el apartado 7 CRITERIOS PARA LOS OV/V ACREDITADOS PARA VERIFICAR EL PPCN 2.0 DEL MINAE.
+Refiérase a la solicitud de elaboración o modificación del documento número 2022-016
+Se modifica documento por apertura de esquema Huella Carbono de Producto
