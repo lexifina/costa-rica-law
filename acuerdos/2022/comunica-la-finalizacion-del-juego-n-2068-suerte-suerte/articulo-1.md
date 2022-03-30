@@ -1,0 +1,6 @@
+JUNTA DE PROTECCIÓN SOCIAL
+GERENCIA DE PRODUCCIÓN Y COMERCIALIZACIÓN
+Comunica al público en general que a partir del jueves 10 de marzo del 2022 se da por finalizado el juego Nº 2068 "¡Suerte, Suerte!"
+En cuanto a la participación por medio de activaciones en el programa Rueda de la Fortuna para dicho juego, es hasta el sábado 26 de marzo del 2022 y el último día de activación, así como, la participación a través de llamada telefónica sea el sábado 19 de marzo del 2022.
+En cuanto a la participación a través de raspa directa del juego Nº 2068 queda abierta para las personas que se encuentran en lista de espera para ir a girar la rueda y para las personas se presenten a validar su participación dentro del plazo de los 60 días naturales una vez publicada la finalización de los juegos en el Diario Oficial La Gaceta, esto debido a la rotación de los juegos, y que producto de la crisis sanitaria que atraviesa el país por el Covid-19 por un tiempo el programa fue suspendido en atención a la emergencia, y que por consiguiente la lista de participantes por raspa directa se extendió en el tiempo.
+Asimismo, los vendedores deben efectuar la devolución del juego Nº 2068 "¡Suerte, Suerte! el viernes 11 de marzo del 2022 y el martes 15 de marzo del 2022.
