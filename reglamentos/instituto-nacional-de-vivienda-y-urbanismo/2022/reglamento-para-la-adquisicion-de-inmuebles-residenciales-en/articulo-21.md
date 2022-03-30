@@ -1,0 +1,1 @@
+Artículo 21.-La opción de compra - venta, incluirá un Poder Especial al representante familiar para que proceda a realizar los trámites correspondientes, con el propósito de obtener los recursos necesarios, para el pago del valor del lote.

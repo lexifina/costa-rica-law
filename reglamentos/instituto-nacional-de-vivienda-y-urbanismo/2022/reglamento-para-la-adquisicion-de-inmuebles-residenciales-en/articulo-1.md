@@ -1,0 +1,8 @@
+INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+UNIDAD ADQUISICIONES Y CONTRATACIONES
+El Instituto Nacional de Vivienda y Urbanismo comunica que mediante acuerdo adoptado por la Junta Directiva de este Instituto, según consta en el Artículo VI, Inciso 3) del Acta de la Sesión Ordinaria N° 6532 del 10 de marzo de 2022, que textualmente dice: Con los votos a favor de Dr. Erick Solano Coto, Licda. Alicia Borja Rodríguez, Arq. Eugenia Solís Umaña, Arq. Carolina Hernández González, Lic. Rodolfo Freer Campos, Lic. Leonardo Sánchez Hernández y Sr. Alejandro Li Glau, se acuerda: Aprobar el Reglamento para la Asignación de Inmuebles Residenciales en Programas Habitacionales del INVU para que en adelante se lea integralmente como sigue:
+REGLAMENTO PARA LA ASIGNACIÓN DE INMUEBLES
+RESIDENCIALES EN PROGRAMAS
+HABITACIONES DEL INVU
+De conformidad con el artículo 25, inciso f) de la Ley Orgánica del Instituto Nacional de Vivienda y Urbanismo, número 1788, de 24 de agosto de 1954, la Junta Directiva del Instituto Nacional de Vivienda y Urbanismo emite el siguiente reglamento que regulará el proceso para venta de inmuebles que son parte de programas habitacionales o asentamientos consolidados, donde ya se cuenta con la infraestructura de servicios y el equipamiento urbano necesarios para el desarrollo de una solución de vivienda.
+Artículo 1º-Objetivo. Definir la normativa aplicable para la venta de inmuebles ubicados en las fincas propiedad del INVU, a aquellas familias que carecen de vivienda, en las diferentes localidades del país, los que serán traspasados mediante el mecanismo de venta, para lo cual el INVU, podrá disponer líneas de financiamiento y de subsidios del Estado.

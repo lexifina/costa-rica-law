@@ -1,0 +1,1 @@
+Artículo 12.-El Departamento de Programas Habitacionales, es el encargado de la asignación de la opción de compra-venta del inmueble, con base en criterios técnicos y sociales, emitidos por la Unidad Gestora.

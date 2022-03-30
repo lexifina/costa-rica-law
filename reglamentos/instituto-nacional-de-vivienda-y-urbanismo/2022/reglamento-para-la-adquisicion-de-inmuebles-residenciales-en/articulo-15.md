@@ -1,0 +1,3 @@
+Avalúo del inmueble
+Artículo 15.-La venta de los inmuebles, se hará previo avalúo realizado por profesional en arquitectura o ingeniería designado por el INVU, con experiencia en este tipo de labores.
+En casos excepcionales la Junta Directiva definirá el valor del inmueble de acuerdo con la disposición legal que lo ampare o por actualización del índice de Precios al Consumidor (IPC), publicado por el Instituto Nacional de Estadística y Censos. La Junta Directiva definirá el método de valuación para tal efecto, en resguardo del interés institucional. En casos calificados, podrá ser requerida la realización del avalúo por parte de la Dirección General de Tributación Directa.

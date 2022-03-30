@@ -1,0 +1,1 @@
+Artículo 20.-Para los casos donde el subsidio o crédito es gestionado con alguna de las líneas de financiamiento que tenga a disposición a nivel interno el Instituto, la Unidad Gestora correspondiente, sin requerir de la opción de compra - venta, podrá realizar la gestión administrativa para la venta del inmueble.
