@@ -1,4 +1,0 @@
-Artículo 13.—Impedimentos, recusaciones y excusas. Cuando una de las partes directamente involucradas considere necesario recusar a alguno de los integrantes del órgano instructor, o cuando uno de estos integrantes tenga razones para separarse del mismo, deberá manifestarlo por escrito y aportar la prueba de la existencia de la causa. Si la gestión no llenara estas formalidades, se rechazará de plano, y no podrá presentarse nuevamente en relación con la misma persona o los mismos hechos según sea el caso.
-Cualquier gestión por impedimento o excusa deberá plantearse ante la persona que dictará la resolución final antes del inicio de la recepción de pruebas y resolver en un plazo máximo de tres días hábiles.
-En caso de recusación, deberá concederse audiencia al recusado, pero la misma deberá resolverse en el plazo señalado.
-Las causales de impedimentos, recusaciones o excusas serán las contempladas en el Capítulo V del Código Procesal Civil.

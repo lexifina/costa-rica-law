@@ -1,1 +1,0 @@
-Artículo 7º—Participación en actividades de capacitación. Todo el personal tendrá la obligación de participar en las actividades de capacitación, formación y acciones relacionadas con el tema de hostigamiento sexual, a las que sean convocados por la Administración.

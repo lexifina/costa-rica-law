@@ -1,5 +1,0 @@
-Artículo 6º—Formas de divulgación y prevención. Con el objeto de prevenir, desalentar y evitar las conductas de hostigamiento sexual, los Departamentos de Capacitación y Desarrollo de Personal, y de Comunicación y Relaciones Públicas periódicamente deberán:
-1) Divulgar a todo el personal de RECOPE S. A., la Ley Nº 7476 y sus reformas, la política empresarial contra el hostigamiento sexual y este reglamento, a través de medios oficiales establecidos en la Empresa, en forma escrita y oral. Asimismo, darán a conocer dicha política de prevención a terceras personas, cuando así convenga al cumplimiento de los fines establecidos en la Ley 7476.
-2) Desarrollar actividades, tales como charlas, talleres, seminarios, conferencias y otras actividades grupales, tendientes a capacitar y sensibilizar al personal actual y de nuevo ingreso a RECOPE S. A., de esta problemática.
-3) Copia de este reglamento deberá incluirse en todas las contrataciones que realice la Empresa.
-4) La Presidencia designará a una persona que coordine y de seguimiento a las actividades de divulgación requeridas, que quedarán establecidas en el Plan Anual Operativo de la Presidencia.

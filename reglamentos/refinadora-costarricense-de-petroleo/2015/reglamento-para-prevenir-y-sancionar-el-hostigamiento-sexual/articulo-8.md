@@ -1,1 +1,0 @@
-Artículo 8º—Acciones de investigación y evaluación. La Dirección de Recursos Humanos, en coordinación con la Presidencia, llevará a cabo acciones de investigación, que aporten los insumos necesarios para desarrollar las acciones preventivas necesarias contra el hostigamiento sexual.
