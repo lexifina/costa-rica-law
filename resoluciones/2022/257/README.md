@@ -14,3 +14,4 @@ Información básica de las entidades reguladas y supervisadas por la Superinten
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-15 | la propia norma |
+| 2 | 2022-03-31 | Acuerdo 264 (2022-03-31) |
