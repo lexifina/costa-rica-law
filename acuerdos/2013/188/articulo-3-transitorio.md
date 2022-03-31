@@ -1,0 +1,7 @@
+(*)Transitorio 4. Plazos para la puesta en operación de la herramienta HR Automatizados
+Se estima que la herramienta para la remisión de los Hechos Relevantes Automatizados va a estar disponible mediante dos liberaciones cuyo detalle es el siguiente:
+Fecha de liberación | Liberación | Tipos de HR a comunicar
+28 de abril | Liberación No 1 | -Plantilla Estándar -Plantilla para la comunicación de características de emisiones de programas de deuda -Plantilla para la colocación directa -Plantilla para la colocación por subasta -Plantilla para la colocación por suscripción de emisor -Plantilla que permiten comunicar conjuntamente las características y la colocación (mixtas)
+16 de agosto | Liberación no 2 | -Plantilla para la actualización de datos de la herramienta de Roles -Plantillas para las comunicaciones de las calificaciones de riesgo -Otras plantillas para colocación de oferta pública -Plantillas para comunicados de interés
+El Sistema estará en posibilidad de ser utilizado a partir de la primera liberación, de manera tal que cualquier regulado que cumpla con los requisitos establecidos para su autenticación, puede iniciar su operación.
+(*) (Así adicionado por el artículo 1° del acuerdo N° SGV-A-263 del 31 de marzo del 2022. En dicho acuerdo se indica adicionar un transitorio 4, pero al no tener la presente directriz un transitorio 3°, se ha adicionado el mismo como un transitorio 3)
