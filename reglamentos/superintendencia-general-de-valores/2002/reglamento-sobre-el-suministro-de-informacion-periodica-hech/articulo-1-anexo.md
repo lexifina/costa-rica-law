@@ -1,66 +1,101 @@
-ANEXO AL ACUERDO SGV-A-61
-ANEXO LISTA NO EXHAUSTIVA DE HECHOS RELEVANTES | EMISORES DE DEUDA | EMISORES DE VALORES DE CONTENIDO PATRIMONIAL O MIXTO | OTROS1
-1.1 Eventos naturales (huracanes, plagas, entre otros) o macroeconómicos (aumentos en tasas de interés, inflación, entre otros), desfalcos, robos, entre otros. | X | X | -
-1.2 Variaciones relevantes provenientes de la compra o venta de activos, deterioro de la situación financiera de los principales deudores o de las entidades en las cuales mantenga inversiones, deterioro u obsolescencia de existencias o activos y cualquier otra situación que produzca variaciones en su valor. | X | X | -
-1.3 Celebración y cancelación de contratos de distribución, concesión, franquicia o cualquier otro tipo de licencia o contrato comercial. | X | X | -
-1.4 Contingencias y pasivos contingentes: También deberá de informar los resultados una vez materializada la contingencia. | X | X | -
-1.5 Restricción o gravamen de activos que afecte en forma significativa la operación de la entidad. | X | X | -
-1.6 Suscripción de convenios o realización de renegociaciones con deudores y acreedores. | X | X | -
-1.7 Pérdidas incurridas que no sean consideradas como parte normal del negocio, con indicación de las principales causas de la pérdida y las medidas que ha tomado la empresa para normalizar la situación. Se consideran pérdidas normales del negocio las que obedecen a factores previamente descritos en el prospecto. | X | X | -
-1.8 Cualquier nuevo factor de riesgo a que esté sometida la empresa y su actividad económica, no incluidos previamente en el Prospecto, que se susciten por causas internas de la empresa o por cambios en el entorno económico, tecnológico, político, social, legal o normativo etc., que afecten tanto a la empresa como a los mercados que atiende, así como a sus principales proveedores y clientes, tanto a nivel local como internacional. | X | X | -
-1.9 Conclusión de la etapa pre-operativa. | X | X | -
-1.10 Variaciones en las proyecciones financieras de la empresa, presentadas en el prospecto informativo, en los estados financieros, en un comunicado de hechos relevantes o en información difundida por algún medio de comunicación colectiva. | X | X | -
-1.11 Cambios en el marco normativo y de la regulación sectorial que afecten las actividades de la entidad o su grupo. | X | X | -
-1.12 Manifestación de cualquier causa de disolución, liquidación o quiebra con indicación de las medidas que, dado el caso, vayan a ponerse o adoptarse. | X | X | -
-1.13 Iniciación de decisiones para formalizar un acuerdo preventivo extrajudicial con todos o parte de sus acreedores, solicitud de apertura de concurso preventivo, rechazo, homologación, cumplimiento y nulidad del acuerdo; solicitud de concurso por agrupamiento, homologación de los acuerdos preventivos extrajudiciales, pedido de quiebra por la entidad o por terceros, declaración de quiebra o su rechazo explicitando las causas o conversión en concurso, modo de conclusión: pago, avenimiento, clausura, pedidos de extensión de quiebra y responsabilidades derivadas. | X | X | -
-1.14 Avales y fianzas significativos otorgados, con indicación de las causas determinantes, personas afianzadas y monto de la obligación. | X | X | -
-1.15 Variaciones significativas en montos, tasas de interés, plazos y otras condiciones de las deudas, capitalizaciones de créditos y/o condonación parcial o total de las deudas, todas ellas, resultantes de negociaciones o de suscripción de convenios de pago con acreedores. | X | X | -
-1.16 Otorgamiento o cancelación de concesiones o derechos relevantes por parte de entidades estatales, así como su terminación. | X | X | -
-1.17 Cese parcial o total en el pago de sus obligaciones. Deberá indicarse las medidas que, de ser el caso, vayan a proponerse o aplicarse cuando la causa sea subsanable. | X | - | -
-1.18 Deterioro de activos dados en garantía de la emisión o de la situación financiera de las empresas garantes. | X | - | -
-1.19 Incumplimiento del nivel de endeudamiento establecido por la Ley Orgánica del Banco Central de Costa Rica, así como el plan de acción para subsanar el exceso. | X | X | -
-1.20 Incumplimiento de las reglas de protección y términos de las garantías ofrecidas en el prospecto informativo, así como los planes de acción para subsanar la situación. | X | - | -
-1.21 Atraso en la actualización de las calificaciones de riesgo de las emisiones de deuda. | X | - | -
-1.22 Cambios en las calificaciones otorgadas, con indicación de la calificación anterior y la actual y las razones que fundamentaron el cambio. | X | - | -
-1.23 Derogación unilateral o consensuada, del contrato con un la sociedad calificadora de riesgos, explicando los motivos en que se fundamenta. | X | - | -
-1.24 Inscripción anticipada de emisiones e inscripción de programas de emisiones. | X | X | -
-1.25 La creación de un programa de creadores de mercado, los participantes y los valores sujetos al programa. | X | - | -
-1.26 Monto colocado al vencimiento del plazo de colocación de una emisión, ya sea individual o perteneciente a un programa de emisiones. | X | X | -
-1.27 Subastas de emisiones autorizadas que sean declaradas desiertas, identificando el motivo. | X | - | -
-1.28 Convocatoria a asamblea de accionistas o inversionistas. Deberá indicarse la fecha de cierre del libro de accionistas o inversionistas para efectos de determinar cuáles tendrán derecho de asistir a la asamblea. | - | X | -
-1.28 Bis Convocatoria a asamblea de inversionistas de los fondos de inversión de capital de riesgo cuyas participaciones estén registradas para su negociación en un mercado secundario organizado. Deberá indicarse la fecha de cierre del libro de accionistas o inversionistas para efectos de determinar cuáles tendrán derecho de asistir a la asamblea. (Así adicionado el inciso anterior el artículo 3° del acuerdo N° SGV-A-249 del 17 de mayo del 2021) | - | X |
-1.29 Resumen de acuerdos de asamblea de accionistas o inversionistas, ordinarias y extraordinarias. En el caso de que el Acuerdo se refiera a decisiones de aumento o disminución del capital social, desdoblamientos o desdoblamientos inversos de acciones y declaración de dividendos, el hecho relevante deberá incluir en forma clara la fecha fijada para determinar los accionistas o inversionistas sobre los cuales recaerá el Acuerdo. | - | X | -
-1.29 Bis Resumen de acuerdos de asamblea de inversionistas, ordinarias y extraordinarias, de los fondos de inversión de capital de riesgo cuyas participaciones estén registradas para su negociación en un mercado secundario organizado. (Así adicionado el inciso anterior el artículo 3° del acuerdo N° SGV-A-249 del 17 de mayo del 2021) | - | X |
-1.30 Nombramiento y remoción de los miembros de Junta Directiva, gerencia y representantes legales con poderes de apoderados general y generalísimo. | - | X | -
-1.31 Compra de sus propias acciones. Deberá comunicarse la intención de comprar sus propias acciones con indicación del o los puestos por medio de los cuales realizará tales compras. Al final de cada día en que el emisor haya realizado compras, deberá hacer del conocimiento del mercado el porcentaje adquirido ese día, así como el porcentaje acumulado de compras. | - | X | -
-1.32 Variaciones en el tamaño del mercado interno y externo. | - | X | -
-1.33 Situaciones que aumenten significativamente la dependencia de un único mercado o producto. | - | X | -
-1.34 Variaciones en la dependencia de los proveedores de materias primas. | - | X | -
-1.35 Cambios en los patrones de consumo de los compradores. | - | X | -
-1.36 Aprobación de la Junta Directiva u órgano equivalente, de transacciones que involucren la adquisición, venta, hipoteca o prenda de activos de la compañía emisora que representen un porcentaje igual o superior al diez por ciento (10 %) de los activos totales de ésta. | - | X | -
-1.37 Inicio, suspensión o cese de nuevas actividades o líneas del negocio. | - | X | -
-1.38 Cambios en los procesos de producción, tecnología utilizada, sistemas de información y control, entre otros. | - | X | -
+ANEXO 1 AL ACUERDO SGV-A-61
+LISTA NO EXHAUSTIVA DE HECHOS RELEVANTES | EMISORES DE DEUDA | EMISORES DE VALORES DE CONTENIDO PATRIMONIAL O MIXTO | OTROS
+Información financiera
+Prórrogas aprobadas para la presentación de la información periódica o actualización del prospecto, con indicación del plazo otorgado para su presentación. | X | X | X
+Atrasos en la presentación de Información periódica, con indicación de la fecha prevista de presentación. | X | X | X
+Sustitución o reenvío de información periódica trimestral y anual de emisores no financieros e información mensual, trimestral y anual de los fondos de inversión, con indicación de: el nombre del regulado, el nombre del reporte, la fecha de corte del reporte que se sustituye y el motivo de la sustitución. | X | X |
+Cambios en las políticas contables utilizados, cuando se trate de una decisión de la entidad y no de una disposición de carácter general. | X | X |
+Gobierno Corporativo
+Cambio en las horas de corte y plazos para reembolso de las participaciones. | | X |
+Cambio del nombre del fondo de inversión. | X | X |
+En el caso de fondos de inversión: cambio de la entidad que llevará el libro oficial centralizado en el cual se acredita la titularidad de los inversionistas. | | X |
+Convocatoria a Asambleas ordinarias y extraordinarias de accionistas de un Emisor o un Fondo de Inversión. Deberá indicarse la fecha de cierre del libro de accionistas o inversionistas para efectos de determinar cuáles tendrán derecho de asistir a la asamblea, así como la fecha y el lugar donde estará disponible la información que será objeto de la Asamblea. En el caso de fondos de capital de riesgo, esto aplica solo para aquellos cuyas participaciones estén registradas para su negociación en un mercado secundario organizado. | | X |
+Resultados de la Asamblea de Accionistas de un Emisor o Fondo de Inversión, con indicación del número o el porcentaje de votos a favor, en contra y/o abstención obtenidos. En el caso de que el Acuerdo se refiera a decisiones de aumento o disminución del capital social, desdoblamientos o desdoblamientos inversos de acciones y declaración de dividendos, el hecho relevante deberá incluir en forma clara la fecha fijada para determinar los accionistas o inversionistas sobre los | | X |
+cuales recaerá el Acuerdo. En el caso de fondos de capital de riesgo, esto aplica solo para aquellos cuyas participaciones estén registradas para su negociación en un mercado secundario organizado. | | |
+Nombramiento y remoción de los miembros de Junta Directiva, alta gerencia y representantes legales con poderes de apoderados general y generalísimo; comité de inversiones, gestor de portafolios y comité de riesgos. | X | X | X (Solo SAFIS)
+Nombramiento y remoción de alta gerencia y representantes legales con poderes de apoderados general y generalísimo. | | | X (Entidades diferentes a SAFIS)
+Cambios en las participaciones significativas. Cambios en la propiedad o toma de control de la entidad. El alcance de este ítem está acotado a cambios en la propiedad de la entidad informante. | | X |
+Pagos de dividendos o beneficios con indicación del monto por acción o participación, la fecha de pago y la fecha de corte, de manera que exista total claridad de cuáles acciones o inversionistas tendrán derecho al pago. | | X |
+Establecimiento o cambio en la política de remuneraciones y pago de remuneraciones del Órgano de Dirección y Alta Gerencia. Decisiones adoptadas que establezcan o modifiquen planes, sistemas o modalidades de recompensas y reconocimientos que estructuran la remuneración total de los integrantes del órgano de administración, de fiscalización, comités especiales y empleados, con presentación de copia de tales documentos. | | X |
+Acuerdos de OPA´s | | X |
+Cambios en la firma de auditores externos una vez que éstos han iniciado el proceso de auditoria para el cual fueron contratados. | X | X | X
+Aprobación de la Junta Directiva u órgano equivalente, de transacciones que involucren la adquisición, venta, hipoteca o prenda de activos de la compañía emisora que representen un porcentaje igual o superior al diez por ciento (10 %) de los activos totales de ésta. | | X |
+Recompra de acciones mediante un programa de recompra, con indicación de: la fecha de inicio del programa, la cantidad de acciones o el monto total a recomprar, el período de duración del programa, así como el puesto de bolsa representante. El comunicado se realiza al menos un día hábil antes del inicio de la recompra. | | X |
+Recompra de acciones mediante subasta inversa, con indicación de: la fecha de la subasta inversa, la cantidad de acciones o el monto a recomprar, la regla para la asignación, así como los casos en que se considerará desierta una subasta. El comunicado se realiza al menos tres días hábiles antes de la subasta. | | X |
+Recompra de acciones a un socio estratégico, con indicación de: la fecha o fechas de la recompra, la cantidad de acciones a recomprar, el monto total de la transacción y la identificación del socio estratégico. El comunicado se realiza al menos un día hábil antes del inicio de la recompra. | | X |
+Recompras de acciones: adicional a los HR sobre recompras, deberá informarse sobre: la cantidad de acciones readquiridas cada día, el precio pagado por acción, así como el monto o cantidad acumulado pendiente de recompra del programa o al socio estratégico. En el caso de subastas inversas y recompras a socios estratégicos, el comunicado se realiza a más tardar un día hábil después de cada día en que el emisor realizó transacciones con sus propias acciones. En el caso de recompras a través de un programa, el comunicado se realiza a | | X |
+más tardar el día hábil siguiente de finalizada la semana en que hubiera realizado compras. | | |
+Transacciones realizadas en forma directa o indirecta por el Emisor a través de una empresa subsidiaria o filial, tendiente a adquirir valores acciones que posteriormente redistribuirá como parte de un programa de remuneración a los miembros de su Junta Directiva u otro personal, el comunicado deberá indicar: la cantidad de acciones adquiridas, el precio y el monto pagado, la entidad que realizó la recompra (si es el emisor directamente o si es través de una subsidiaria) y el día en que se llevó a cabo la operación. Dicho comunicado deberá remitirse a más tardar al día hábil siguiente a la fecha de la transacción. | | X |
+Contratos de cualquier naturaleza que establezcan limitaciones a la distribución de utilidades o a las facultades de los órganos sociales, con presentación de copia de tales contratos. | | X |
+Venta por cuenta de los fondos inmobiliarios y de desarrollo de proyectos, de activos inmobiliarios o sus títulos representativos a socios, directores, empleados y entidades del grupo de interés económico de la sociedad administradora. | | X |
+Revelación de los contratos de arrendamiento entre fondos de inversión inmobiliarios y los fondos de inversión de desarrollo de proyectos con la Safi o entidades de su grupo económico. | | X |
+Nombramiento y remoción del gestor de portafolios en Fondos de Inversión de Capital de Riesgo. | | X |
+Informar sobre las condiciones del crédito cuando provenga de una empresa relacionada con la sociedad administradora. | | X |
+Aclaración de consultas planteadas por los accionistas de previo a la realización de una asamblea en la que se vaya a acordar la desinscripción de una emisión de acciones, en caso de que el emisor | | X |
+considere necesario utilizar este mecanismo. | | |
+Calificaciones de Riesgo
+La calificación inicial así como el resultado de las revisiones semestrales, y/o producto de la ocurrencia o no de eventos especiales (tanto si se mantiene como si se modifica la calificación otorgada). | | | X
+Atrasos en la actualización de la calificación de riesgo. | X | | X
+Derogación unilateral o consensuada, del contrato con la sociedad calificadora de riesgos, explicando los motivos en que se fundamenta. | X | | X
+Revelación semestral por parte de las Calificadoras de Riesgo en caso de que los honorarios profesionales provenientes de un mismo cliente o su grupo económico exceda el equivalente al 10% de sus ingresos totales de los últimos doce meses (el HR debe realizarse en los primeros 10 días hábiles del mes de enero y julio de cada año). | | | X
+Características, condiciones y colocación de la emisión o fondo
+Autorización de oferta pública de un Emisor o producto | X | X |
+Definición de características de emisiones. | X | X |
+Convocatoria de una colocación, que contenga el mecanismo de colocación seleccionado, las condiciones y las reglas aplicables a éste. | X | X |
+Revelación del monto colocado de una emisión al finalizar el plazo máximo para su colocación, en el caso de series colocadas parcialmente. | X | |
+Colocación con sobresuscripción: El día hábil siguiente a la colocación, el emisor deberá remitir un Comunicado de Hecho Relevante informando sobre la sobresuscripción efectuada, con la indicación expresa del nombre de la | X | |
+serie, monto colocado en exceso al nominal de la emisión, así como el monto nominal de la serie antes y después de la sobresuscripción. | | |
+Redención anticipada o de conversión de una emisión (1.58), en caso de que las emisiones cuenten con dicha opción y esta se ejecute, a más tardar el día hábil siguiente a la fecha de redención, con indicación de: el nombre de la emisión, la fecha de ejecución de la redención, el monto redimido y el saldo en circulación después de ejecutada la redención. | X | |
+Subastas de emisiones autorizadas que sean declaradas desiertas, identificando el motivo. | X | |
+Amortizar una emisión. Este punto aplica cuando la fecha de la amortización no se encuentra establecida como parte de las características de la emisión. | X | |
+Cambios en el tratamiento tributario de las emisiones. | X | X |
+La creación de un programa de creadores de mercado, los participantes y los valores sujetos al programa. | X | |
+Incumplimiento de las reglas de protección y términos de las garantías ofrecidas en el prospecto informativo, así como los planes de acción para subsanar la situación. | X | X |
+Cualquier cambio en las comisiones cobradas al fondo de inversión, dentro de las bandas establecidas en el prospecto. | | X |
+Suspensión de la suscripción o reembolso de las participaciones de fondos de inversión. | | X |
+Plazo para acatamiento de porcentajes definidos en el Prospecto de inversión: a) informar si el proceso de corrección para ajustarse a los límites establecidos en la política de inversión del prospecto requerirá de un plazo superior a diez días; b) informar si no se alcanzan los porcentajes de diversificación de activos y de ingresos de fondos inmobiliarios en el plazo indicado en la normativa. | | X |
+Pérdida de la denominación verde social o sostenible de una emisión, programa de emisiones o fondos de inversión, que incluya las razones por las cuales perdió su denominación. | X | X (fondo de inversión) |
+Desinscripción de un fondos abierto: informar de la decisión de la junta directiva. | | X |
+Modificación a los mecanismos de colocación así como la incorporación o exclusión de la posibilidad de realizar colocaciones en mercados extranjeros. | X | X |
+Límites a la suscripción de nuevas participaciones: informar sobre la suspensión de suscripción de participaciones y la reapertura del fondo. | | X |
+Disminución del mínimo de inversión, aportes adicionales, saldo mínimo en la cuenta, inversión inicial. | | X |
+Desinscripción de emisiones sobre las cuales no se haya realizado colocación alguna dentro del plazo dispuesto o programas que no hayan definido emisiones en el plazo establecido en la normativa | X | X |
+Prospecto
+Modificación o ampliación en la revelación de los riesgos (que se susciten por causas internas de la empresa o por cambios en el entorno económico, tecnológico, político, social, legal o normativo etc., que afecten tanto a la empresa como a los mercados que atiende, así como a sus principales proveedores y clientes, tanto a nivel local como internacional. | X | X |
+La actualización de la información sobre los activos subyacentes cedidos al vehículo de propósito especial, para las emisiones provenientes de procesos de titularización. | X | X |
+Incorporación posterior de activos subyacentes que no implique la realización de nuevas emisiones por parte del vehículo de propósito especial de titularización. | X | X |
+Inclusión o eliminación de costos o gastos que asume directamente el fondo. | | X |
 [imagen]
-ANEXO LISTA NO EXHAUSTIVA DE HECHOS RELEVANTES | EMISORES DE DEUDA | EMISORES DE VALORES DE CONTENIDO PATRIMONIAL O MIXTO | OTROS1 1Puestos de bolsa, sociedades administradoras de fondos de inversión, sociedades titularizadoras y sociedades fiduciarias, entidades que brindan el servicio de custodia, y otros autorizados para actuar en la prestación de servicios en el mercado de valores.
-1.39 Alianzas estratégicas con otras entidades o grupos. | - | X | -
-1.40 Fusiones, escisiones o adquisición o venta de empresas relacionadas y subsidiarias, con indicación del monto y porcentaje de la inversión o venta. | - | X | -
-1.41 Adopción de decisiones y ejecución de planes de inversión como por ejemplo ofertas públicas de adquisición (OPA). | - | X | -
-1.42 Adquisición de otro tipo de activos financieros u otorgamiento de garantías sobre esos activos. | - | X | -
-1.43 Cambios en las políticas contables utilizados, cuando se trate de una decisión de la entidad y no de una disposición de carácter general. | - | X | -
-1.44 Cualquier cambio en las comisiones cobradas al fondo de inversión, dentro de las bandas establecidas en el prospecto. | - | X | -
-1.45 Situaciones de desocupación en el caso de los fondos inmobiliarios. | - | X | -
-1.46 Suspensión de la suscripción o reembolso de las participaciones de fondos de inversión. | - | X | -
-1.47 Distribución de dividendos o beneficios, con indicación del monto por acción o participación, la fecha de pago y la fecha de corte, de manera que exista total claridad de cuáles acciones o inversionistas tendrán derecho al pago. | - | X | -
-1.48 Contratos de cualquier naturaleza que establezcan limitaciones a la distribución de utilidades o a las facultades de los órganos sociales, con presentación de copia de tales contratos. | - | X | -
-1.49 Modificaciones a prospectos del emisor que se realizan mediante comunicado de hecho relevante. | X | X | -
-1.50 Decisiones adoptadas que establezcan o modifiquen planes, sistemas o modalidades de recompensas y reconocimientos que estructuran la remuneración total de los integrantes del órgano de administración, de fiscalización, comités especiales y empleados, con presentación de copia de tales documentos. | - | X | -
-1.51 La venta por cuenta de los fondos inmobiliarios y de desarrollo de proyectos, de activos inmobiliarios o sus títulos representativos a socios, directores, empleados y entidades del grupo de interés económico de la sociedad administradora. (Así reformado el párrafo anterior por acuerdo SGV-218 del 19 de agosto de 2016) | - | X | -
-1.52 Suspensión de la negociación de los valores afectados por una oferta pública de adquisición de valores. | - | X | -
-1.53 Las entidades autorizadas para actuar en la prestación de servicios en el mercado de valores, respecto a todo hecho concreto o situación no habitual que por su importancia esté afectando o pueda esperarse razonablemente que afecte el desenvolvimiento de sus operaciones o responsabilidades frente a los servicios que presta. | - | - | X
-1.54 Cambios en la propiedad o toma de control de la entidad. El alcance de este ítem está acotado a cambios en la propiedad de la entidad informante. | - | - | X
-1.55 Atrasos en la presentación de información periódica de carácter público solicitada por la Superintendencia General de Valores. | X | X | X
-1.56 Sanciones de importancia económica significativa o de trascendencia para el desenvolvimiento de sus actividades impuestas por autoridades de control, incluyendo autoridades competentes de control ambiental, aun cuando no se encuentren firmes. | X | X | X
-1.57 Prórrogas aprobadas para la presentación de la información periódica o actualización del prospecto, con indicación del plazo otorgado para su presentación. | X | X | X
-1.58 Ejecutar una opción de redención anticipada o de conversión de una emisión. | X | |
-1.59 Amortizar una emisión. Este punto aplica cuando la fecha de la amortización no se encuentra establecida como parte de las características de la emisión. | X | |
-1.60 Cualquier otro hecho que produzca o pueda producir influencia positiva o negativa en la marcha de la empresa, en sus valores o en la oferta de ellos." | X | X | X
+En el caso de Fondos de Proyectos la estrategia de inversión y desinscripción del proyecto: informar sobre la actualización de proyecciones, plan de inversión y autorizaciones o permisos. | X | X |
+Modificaciones en la revelación sobre políticas y/o conflictos de interés aplicables al vehículo de propósito especial de financiamiento de proyectos de infraestructura o de titularización. | X | X |
+Cambio en la revelación de la metodología de valoración de los activos de la cartera del fondo. | | X |
+Asuntos que afectan el desempeño económico y financiero de la Entidad o Fondo
+Pérdidas incurridas que no sean consideradas como parte normal del negocio, producto de: eventos naturales, macroeconómicos, estafas, robos, etc. con indicación de las principales causas y las medidas que ha tomado la empresa para normalizar la situación. Se consideran pérdidas normales del negocio las que obedecen a factores previamente descritos en el prospecto. | X | X |
+Contingencias y pasivos contingentes: También deberá de informar los resultados una vez materializada la contingencia. | X | X |
+Fusiones, escisiones o adquisición o venta de empresas relacionadas y subsidiarias, con indicación del monto y porcentaje de la inversión o venta. Alianzas estratégicas con otras entidades o grupos | X | X |
+Inicio, suspensión o cese de nuevas actividades o líneas del negocio. Cambios en los procesos de producción, tecnología utilizada, sistemas de información y control, entre otros. | | X |
+Cambios significativos en variables como: tamaño del mercado interno y externo; dependencia de un único mercado o producto; dependencia de los proveedores de materias primas o modificaciones en los patrones de consumo de los compradores. | | X |
+Celebración y cancelación de contratos de distribución, concesión, franquicia o cualquier otro tipo de licencia o contrato comercial. | | X |
+Manifestación de cualquier causa de disolución, liquidación o quiebra con indicación de las medidas que, dado el caso, vayan a ponerse o adoptarse. | X | X |
+Cese parcial o total en el pago de sus obligaciones. Deberá indicarse las medidas que, de ser el caso, vayan a proponerse o aplicarse cuando la causa sea subsanable. | X | X |
+Suscripción de convenios o realización de renegociaciones con deudores y acreedores. Iniciación de decisiones para formalizar un acuerdo preventivo extrajudicial con todos o parte de sus acreedores, solicitud de apertura de concurso preventivo, rechazo, homologación, cumplimiento y nulidad del acuerdo; solicitud de concurso por agrupamiento, homologación de los acuerdos preventivos extrajudiciales, pedido de quiebra por la entidad o por terceros, declaración de quiebra o su rechazo explicitando las causas o conversión en concurso, modo de conclusión: pago, avenimiento, clausura, pedidos de extensión de quiebra y responsabilidades derivadas. | X | |
+Cambios en el marco normativo y de la regulación sectorial que afecten las actividades de la entidad o su grupo. | X | X |
+Variaciones en las proyecciones financieras de la empresa, presentadas en el prospecto informativo, en los estados financieros, en un comunicado de hechos relevantes o en información difundida por algún medio de comunicación colectiva. | X | X |
+Variaciones significativas en montos, tasas de interés, plazos y otras condiciones de las deudas, capitalizaciones de créditos y/o condonación parcial o total de las deudas, todas ellas, resultantes de negociaciones o de suscripción de convenios de pago con acreedores. | X | X |
+Otorgamiento o cancelación de concesiones o derechos relevantes por parte de entidades estatales, así como su terminación. | X | X |
+Restricción o gravamen de activos que afecte en forma significativa la operación de la entidad. Avales y fianzas significativos otorgados, con indicación de las causas determinantes, personas afianzadas y monto de la obligación. Adquisición de otro tipo de activos financieros u otorgamiento de garantías sobre esos activos. | X | X |
+Conclusión de la etapa pre-operativa. | X | X |
+Situaciones de desocupación en el caso de los fondos inmobiliarios. | X | X |
+Informar sobre la segregación de la cartera de valores, las razones de su actuación y la forma en que serán administrados los activos separados. | | X |
+Los honorarios totales que perciba un Proveedor de precios por los servicios que presta a un mismo sujeto supervisado, no podrán ser superiores al veinticinco por ciento de sus ingresos totales de los últimos doce meses. | | | X
+Incumplimiento de normativa / Procesos sancionatorios y disciplinarios / Medidas precautorias emitidas por SUGEVAL
+Nivel de endeudamiento de previo a la colocación, cuando al momento de registro de las emisiones se sobrepasaba el nivel de endeudamiento. Incumplimiento posterior del nivel de endeudamiento establecido en la Ley Orgánica del Banco Central de Costa Rica. | X | |
+Sanciones impuestas por autoridades de control locales o internacionales de importancia o trascendencia económica para la entidad regulada por esta Superintendencia que impacte el desenvolvimiento de sus actividades. | X | X | X
+Otros
+Las entidades autorizadas para actuar en la prestación de servicios en el mercado de valores, respecto a todo hecho concreto o situación no habitual que por su importancia esté afectando o pueda esperarse razonablemente que afecte el desenvolvimiento de sus operaciones o responsabilidades frente a los servicios que presta. | | | X
+Desinscripción de un puesto de bolsa, sociedad titularizadora, sociedad de compensación y liquidación, sociedades calificadoras de riesgo | | | X
+Cualquier otro hecho que produzca o pueda producir influencia positiva o negativa en la marcha de la empresa, en sus valores o en la oferta de ellos. | X | X | X
+LISTA NO EXHAUSTIVA DE COMUNICADOS DE INTERES | EMISORES DE DEUDA | EMISORES DE VALORES DE CONTENIDO PATRIMONIAL O MIXTO | OTROS
+Cualquier sustitución o reenvío de información periódica distinto al establecido en el apartado de "Información Financiera" de la lista no exhaustiva de comunicados de hechos relevantes. | X | X | X
+Atrasos en la presentación de Información periódica, con indicación de la fecha prevista de presentación. | | | X
+(Así reformado por el artículo 1° del acuerdo N° SGV-A-259 del 31 de marzo del 2022)
