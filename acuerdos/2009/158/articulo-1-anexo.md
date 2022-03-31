@@ -30,6 +30,10 @@ a. Horizonte de inversión
 b. Capacidad de soportar pérdidas, temporales o incluso permanentes en el valor de sus inversiones.
 c. Necesidades de liquidez presentes y futuras del inversionista, así como perspectivas de ingresos adicionales en el futuro.
 d. Conocimientos y experiencia previa en el mercado de valores o en los activos de especialidad del fondo.
+(Nota de Sinalevi: mediante acuerdo N° SGV-A-261 del 31 de marzo de 2022, se acordó reformar el punto 3.1) anterior. Al no coincidir la reforma se transcribe la misma: "3.1. Se debe revelar lo siguiente:
+INFORMACIÓN SOBRE LA SOCIEDAD ADMINISTRADORA Y SU GRUPO FINANCIERO
+Información sobre la Sociedad Administradora
+Direcciones | (Indicar dirección, teléfono, fax, apartado postal, correo electrónico y página Web.)")
 3.1 Bis. Definición del Modelo de Negocio del Fondo de Inversión, que considere al menos los siguientes aspectos:
 [imagen]
 (Así adicionado el punto 3.1 bis anterior por acuerdo n° SGV-A-236 del 16 de octubre de 2019)
