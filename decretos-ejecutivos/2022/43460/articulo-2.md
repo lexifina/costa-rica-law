@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el Decreto Ejecutivo número 43363-H del 09 de diciembre de 2021, publicado en el Alcance número 262 a La Gaceta Número 246 del 22 de diciembre de 2021, a partir de la vigencia del presente decreto.
