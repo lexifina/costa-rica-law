@@ -1,0 +1,5 @@
+Artículo 26.- Las entidades públicas bajo el ámbito de la AP podrán adquirir o renovar activos financieros a plazo, en moneda nacional o extranjera, únicamente en títulos de deuda interna del Gobierno, que ofrecerá por venta directa el MH, a través de la TN, solamente en los siguientes casos:
+1. Cuando la entidad reciba resolución positiva por parte del despacho del MH y/o la TN, que la norma superior a las directrices les habilita a invertir sus recursos, previa demostración y justificación enviada por la entidad.
+2. Que el despacho del MH y/o la TN se encuentren en proceso de revisión de la justificación de la norma superior habilitante aportado por la entidad.
+3. Cuando la resolución del despacho del MH y/o la TN esté en un proceso recursivo.
+En caso de que la programación financiera de la TN, indique que no se requiere la captación de recursos de las entidades públicas, por razón del plazo o monto de la inversión, ésta podrá autorizarlos temporalmente para que inviertan los recursos en los bancos del Estado.

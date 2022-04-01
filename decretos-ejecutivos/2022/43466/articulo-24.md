@@ -1,0 +1,1 @@
+Artículo 24.- Las entidades públicas y sus órganos desconcentrados deberán incorporar en el presupuesto ordinario los recursos provenientes de superávit acumulado, asignándolos en los gastos donde la normativa lo permita, con el objetivod e lograr un uso eficiente de dichos recursos.

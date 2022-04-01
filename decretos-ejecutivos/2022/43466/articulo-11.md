@@ -1,0 +1,1 @@
+Artículo 11.- Las entidades públicas financieras no bancarias dentro del ámbito de la AP, podrán solicitar modificaciones al gasto presupuestario máximo. Las ampliaciones proceden cuando tengan ingresos adicionales (transferencias, superávit libre y específico, entre otros) a los contemplados en el artículo 10 de estas Directrices.
