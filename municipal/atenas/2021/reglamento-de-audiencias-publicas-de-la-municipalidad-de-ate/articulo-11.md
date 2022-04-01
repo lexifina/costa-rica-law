@@ -1,0 +1,5 @@
+Artículo 11.-Como resultado de las audiencias, pueden atenderse a las siguientes opciones o posibilidades:
+a) En el caso de las Comisiones Municipales, proceder de conformidad y en aquellos casos pertinentes emitir el respectivo dictamen para lo que sea procedente en el Concejo Municipal y con ocho días de antelación a que el asunto deba o vaya a ser tratado.
+b) En general tomar nota de lo solicitado y resolverlo en el plazo y forma de notificación establecida en el presente reglamento, indicando la acción o medida tomada y el estado o trámite en que se encuentra.
+c) En el caso del Concejo Municipal o el Concejo de Distrito, trasladarlo para su dictamen a una Comisión Municipal permanente o Comisión Especial de tres miembros conforme lo establece el Código Municipal y en la cual los vecinos tendrán el carácter de asesores con derecho a voz. Estas comisiones deberán remitir su dictamen para lo que proceda por parte del Concejo Municipal o el Concejo de Distrito al menos con ocho días de anticipación a la fecha en que se incluya en agenda.
+Se presenta el anterior proyecto y se conceden diez días para escuchar observaciones oposiciones. 2da vez.
