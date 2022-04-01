@@ -1,0 +1,1 @@
+Artículo 2°-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución N° RES-DGH-005-2021 de las quince horas cero minutos del 5 de marzo de 2021, publicada en La Gaceta N° 48 del 10 de marzo de 2021.
