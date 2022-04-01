@@ -1,0 +1,1 @@
+Artículo 4°. - Sobre la aplicación obligatoria. En lo que corresponda, son de aplicación obligatoria todas las disposiciones contenidas en el Reglamento de Comprobantes Electrónicos para efectos tributarios y en la Resolución General sobre las Disposiciones Técnicas de los Comprobantes Electrónicos para efectos tributarios que se encuentren vigentes.

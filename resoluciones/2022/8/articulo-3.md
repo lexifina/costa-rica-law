@@ -1,0 +1,1 @@
+Artículo 3°. - Sobre las agencias de viajes independientes. Las agencias de viajes que no estén acreditadas por la IATA, deben someterse a los dispuesto en el inciso a) del artículo 2 de esta resolución.
