@@ -1,0 +1,1 @@
+Artículo 3°- La Dirección General de Migración y Extranjería deberá proceder de oficio a levantar a partir del 01 de abril de 2022 todos los impedimentos de ingreso emitidos en virtud de las disposiciones contenidas en el Decreto Ejecutivo 42690-MGP-S u otros emitidos en virtud de la emergencia nacional establecida por Decreto Ejecutivo número 42227-MP-S del 16 de marzo de 2020.
