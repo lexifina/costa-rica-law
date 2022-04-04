@@ -1,0 +1,4 @@
+Artículo 2º-Adiciónese un inciso 32) al artículo 13 del Decreto Ejecutivo N° 41623-S del 7 de marzo del 2019, publicado en el Alcance 106 a La Gaceta N° 87 del 13 de mayo del 2019 "Reglamento Autónomo de Servicio del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA)", para que se lea de la siguiente forma:
+"Artículo 13. De los deberes generales de la persona servidora: Además de los consignados en el artículo 39 del Estatuto de Servicio Civil, artículo 50 de su Reglamento, artículo 71 del Código de Trabajo, este Reglamento y disposiciones conexas, son deberes de todas las personas servidoras:
+(.)
+32. Cumplir con lo dispuesto en el Sistema Integrado de Gestión de Calidad, la normativa interna de la institución, la normativa de acatamiento obligatorio para el sector público; así como, con los valores institucionales y los deberes éticos de la función pública."

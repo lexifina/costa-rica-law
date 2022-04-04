@@ -1,0 +1,1 @@
+Artículo 3º-Deróguese el artículo 59 del Decreto Ejecutivo N° 41623-S del 7 de marzo del 2019, publicado en el Alcance 106 a La Gaceta N° 87 del 13 de mayo del 2019 "Reglamento Autónomo de Servicio del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA)".
