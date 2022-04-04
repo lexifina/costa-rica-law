@@ -1,1 +1,3 @@
-Artículo 58. Serán beneficiarios del FAVI solo aquellas personas que cumplan con las premisas de ingresos y monto de vivienda definidos como SVCM en este Reglamento y a su vez, sean sujetos de crédito del Banco para sus programas de crédito de vivienda o refinanciamiento.
+Artículo 58.
+Serán beneficiarios del FAE:
+Personas físicas o jurídicas que requieran un aval como garantía del FAE, en función de las condiciones establecidas para cada programa avalado y cuyo perfil demuestre algún grado de vulnerabilidad.

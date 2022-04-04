@@ -1,4 +1,5 @@
-*Artículo 17. Sin perjuicio de lo establecido en el artículo anterior, los créditos se regirán por las siguientes condiciones generales:
+*Artículo 17.
+Sin perjuicio de lo establecido en el artículo anterior, los créditos se regirán por las siguientes condiciones generales:
 a) En todo análisis de crédito se deberá considerar el nivel de riesgo de la operación, quedando facultado el Banco, en forma discrecional, de conformidad con las reglas de los artículos 15 y 16 de la Ley General de la Administración Pública, a denegar el crédito.
 b) Solamente se recibirán solicitudes de crédito que estén acompañadas de toda la documentación solicitada.
 c) Durante la tramitación del crédito y cuando ello sea necesario para que la decisión final sea conforme a las normas jurídicas vigentes y reglas unívocas de la ciencia y la técnica, el Banco podrá solicitar cualquier otro documento que considere necesario para el caso concreto, a fin de completar o aclarar la información presentada por el solicitante.

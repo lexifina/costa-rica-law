@@ -1,1 +1,2 @@
-Artículo 32. En aquellos créditos que por su naturaleza sea necesario girar por partidas, los desembolsos se harán previo informe positivo del perito o funcionario designado por el Banco para ejecutar la supervisión. En casos técnicamente justificados se podrían utilizar otros esquemas de supervisión con aliados estratégicos.
+Artículo 32.
+En aquellos créditos que por su naturaleza sea necesario girar por partidas, los desembolsos se harán previo informe positivo del perito o funcionario designado por el Banco para ejecutar la supervisión. En casos técnicamente justificados se podrían utilizar otros esquemas de supervisión con aliados estratégicos.

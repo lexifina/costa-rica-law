@@ -1,3 +1,9 @@
-Del Fondo de Avales para Vivienda
-Artículo 55. Corresponde al FAVI conceder avales parciales para los créditos de vivienda o refinanciamientos de vivienda que las personas de clase media tramiten ante Banco y con ello facilitar el acceso a la vivienda o conservar la que ya poseen.
-En todos los casos se debe cumplir con la definición de SVCM indicada en este reglamento y en la cual las personas o núcleo familiar reportan ingresos comprendidos dentro de los estratos salariales de 2,.5 veces hasta 9.5 veces y el valor de la vivienda por financiar no supere el monto definido por la Gerencia General Corporativa con base en la actualización de los estudios de vivienda.
+CAPÍTULO V
+Del Fondo de Avales Especiales FAE
+El Fondo de Avales Especiales FAE se podrá gestionar por medio de programas de avales individuales o programas de avales de cartera en sus diferentes modalidades.
+Artículo 55.
+Aval individual:
+Garantía otorgada a un sujeto de crédito por parte del FAE, con el fin de conceder avales parciales para los créditos de vivienda o refinanciamientos de vivienda que las personas de clase media tramiten ante el Banco y con ello facilitar el acceso a la vivienda o conservar la que ya poseen.
+Aval de cartera:
+Instrumento financiero creado para respaldar un conjunto de operaciones de crédito, garantías de participación, y/o cumplimiento mediante un tercero a favor de los beneficiarios cuyo perfil demuestre algún grado de vulnerabilidad.
+Siendo este tercero responsable de velar por las condiciones de elegibilidad que establecen los requisitos legales de este Reglamento, así como demás requerimientos que se definan en cada programa específico.

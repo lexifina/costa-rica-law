@@ -1,1 +1,2 @@
-Artículo 20. En caso de cédulas hipotecarias, solo se aceptarán vencidas y por la emisión total de las cédulas hipotecarias sobre todos los grados. En tales casos, el plazo en el que se concederá el crédito será hasta un año antes de su prescripción, salvo que este sea interrumpido legalmente, acto que deberá autorizar el deudor de previo o durante la formalización del crédito.
+Artículo 20.
+En caso de cédulas hipotecarias, solo se aceptarán vencidas y por la emisión total de las cédulas hipotecarias sobre todos los grados. En tales casos, el plazo en el que se concederá el crédito será hasta un año antes de su prescripción, salvo que este sea interrumpido legalmente, acto que deberá autorizar el deudor de previo o durante la formalización del crédito.

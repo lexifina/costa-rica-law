@@ -1,2 +1,3 @@
-Artículo 72. De recuperarse parcial o totalmente el monto del aval por parte del Banco, este deberá trasladar esos recursos al FAVI dentro de los 30 días hábiles posteriores a que los haya recibido. En todo caso el Banco cancelará de manera prioritaria el aval honrado.
-El Banco no podrá privilegiar el cobro administrativo y/o judicial de la operación de crédito en detrimento del aval honrado.
+Artículo 72.
+De recuperarse parcial o totalmente el monto del aval por parte de la entidad que otorga el crédito, esta deberá trasladar esos recursos al Área de Fondos Especiales (AFE) dentro de los 30 días hábiles posteriores a que los haya recibido. En todo caso la entidad que otorga el crédito cancelará de manera prioritaria el aval honrado, condiciones que se establecerán para cada programa específico; según lo normado a nivel de procedimiento.
+La entidad que otorga el crédito no podrá privilegiar el cobro administrativo y/o judicial de la operación de crédito en detrimento del aval honrado.

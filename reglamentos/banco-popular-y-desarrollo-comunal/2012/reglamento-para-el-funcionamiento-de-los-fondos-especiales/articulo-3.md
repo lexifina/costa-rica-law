@@ -1,4 +1,4 @@
-*Artículo 3. Definiciones:
+*Artículo 3. Definiciones
 Para los efectos de este Reglamento se entenderá por:
 AFE: Área de Fondos Especiales de la DBDS.
 APIS: Operación de vivienda refinanciada por el Banco que requirió de un aval del FAVI. (Arreglo de Pago con Impacto Social).
@@ -11,8 +11,8 @@ Crédito Sector Educación: Crédito que se otorga a una persona jurídica, orga
 Crédito al Sector Productivo: Financiamiento que se confiere a una persona jurídica, organización o empresa de la economía social solidaria para una actividad que combina dos o más factores de producción (tierra, capital, trabajo, conocimiento), con el objetivo de obtener un bien o servicio final para ser vendido en un mercado determinado.
 Crédito al Sector Salud: Financiamiento a una persona jurídica, organización o empresa de la economía social solidaria para el establecimiento de una clínica, Centro de Salud, o proyecto similar.
 EESS: Empresas de la Economía Social Solidaria. Conjunto de entidades y organizaciones privadas que realizan actividades económicas y empresariales para satisfacer el interés colectivo de las personas que las integran y el interés general económico social de los territorios donde se ubican, de conformidad con los principios, fines, características y actores siguientes:
-a) Primacía de las personas y del fin u objetivos sociales sobre el capital, dado que la toma de decisiones y la gestión son democráticas y participativas, prevaleciendo en estas los aportes de trabajo y los servicios utilizados por las personas que las integran, y no sus aportaciones al capital social.
-b) Los resultados obtenidos de la actividad económica en las EESS se aplican al logro de los objetivos sociales. Los excedentes por distribuir entre las personas que las integran se realizan principalmente en función del trabajo, por el uso de los servicios o por las actividades que estas hayan aportado. Las reservas y fondos creados para el cumplimiento de los fines sociales no son repartibles entre las personas integrantes, aun en caso de liquidación de la entidad.
+a) Primacía de las personas y del fin u objetivos sociales sobre el capital, dado que la toma de decisiones y la gestión son democráticas y participativas, prevaleciendo en estas los aportes de trabajo y los servicios utilizados por las personas que las integran, y no sus aportaciones al capital social
+b) Los resultados obtenidos de la actividad económica en las EESS se aplican al logro de los _objetivos sociales. Los excedentes por distribuir entre las personas que las _integran se_ realizan principalmente en función del trabajo, por el uso de los servicios o por las actividades que estas hayan aportado. Las reservas y fondos creados para el cumplimiento de los fines sociales no son repartibles entre las personas integrantes, aun en caso de liquidación de la entidad.
 c) Promoción de la solidaridad interna y con el entorno social, a fin de fortalecer el compromiso con el desarrollo local, por la igualdad de oportunidades entre todas las personas que participan, por la cohesión y la inserción social, por la generación de empleos y puestos de trabajo estables y de calidad, por la sostenibilidad, así como por la conciliación entre la vida personal, familiar y laboral.
 d) Autonomía e independencia de los poderes públicos y de intereses externos.
 e) Que entre las diversas expresiones de la economía social solidaria se encuentran organizaciones tales como:
@@ -29,6 +29,7 @@ Encadenamiento Productivo: Es la unión de dos o más personas físicas o juríd
 Emprendedor: Persona física o jurídica que identifica una oportunidad en el mercado que le permitan crear su propia empresa.
 Entes Rectores y Aliados Estratégicos: Instituciones públicas o privadas con las cuales se subscriben alianzas de cooperación para el seguimiento y acompañamiento de la persona jurídica, organización o empresa de la economía social solidaria.
 Estrato Salarial: Un estrato salarial es igual al salario mínimo definido para un trabajador no especializado de la industria de la construcción.
+FAE: Fondo de Avales Especiales
 FAVI: Fondo Avales para Vivienda para la clase media.
 Fondo Especial de Desarrollo (FEDE): Fondo constituido para financiar las líneas de crédito indicadas en este Reglamento, siempre y cuando sean económicamente viables y técnicamente factibles.
 Fondo Especial de Vivienda (FEVI): Fondo constituido para financiar hasta el 100% de la compra, remodelación, ampliación o mejoras de la primera vivienda según los parámetros de dicho fondo.

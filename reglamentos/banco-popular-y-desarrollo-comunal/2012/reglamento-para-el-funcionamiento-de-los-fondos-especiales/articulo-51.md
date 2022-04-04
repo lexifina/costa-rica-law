@@ -1,2 +1,3 @@
-*Artículo 51. Cuando el Banco compruebe que la persona solicitante u obligada dolosamente ha suministrado información falsa, sin perjuicio de la obligación del Banco de presentar la denuncia correspondiente, se tendrá por vencida la obligación.
-* Este artículo fue modificado por la Junta Directiva Nacional en sesión 5318 del 20 de octubre del 2015. Publicado en La Gaceta No. 233 del 01 de diciembre de 2015.
+*Artículo 51.
+Cuando el Banco compruebe que la persona solicitante u obligada dolosamente ha suministrado información falsa, sin perjuicio de la obligación del Banco de presentar la denuncia correspondiente, se tendrá por vencida la obligación.
+* Este artfculo fue modificado por la Junta Directiva Nacional en sesión 5318 del 20 de octubre del 2015. Publicado en La Gaceta No. 233 del 01 de diciembre de 2015.

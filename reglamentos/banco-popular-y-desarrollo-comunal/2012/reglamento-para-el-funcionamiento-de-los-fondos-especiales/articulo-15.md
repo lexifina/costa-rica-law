@@ -1,13 +1,12 @@
-***Artículo 15. Tope de los préstamos:
-El monto de los préstamos directos otorgados por el Banco, a las personas físicas, jurídicas, organizaciones y empresas de la economía social o los que estas les den a sus prestatarios, serán por el monto en dólares estadounidenses a su equivalente en colones al tipo de cambio de compra del Banco Popular vigente a la fecha de su formalización.
+***Artículo 15. Tope de los préstamos.
+El monto de los préstamos directos otorgados por el Banco, a fas personas físicas, jurídicas, organizaciones y empresas de la economía social o los que estas fes den a sus prestatarios, serán por el monto en dólares estadounidenses a su equivalente en colones al tipo de cambio de venta del Banco Popular vigente para el día en que se realice el cálculo.
 Crédito Banca Segundo piso FEDE:
 a) Los préstamos que se otorguen a la persona jurídica, organización o empresa de la economía social solidaria como intermediaria serán de hasta de $1.000.000,00 (Un millón de dólares).
 b) Los préstamos individuales otorgados por la persona jurídica, organización o empresa de la economía social solidaria para atender las personas usuarias finales FEDE no podrán superar los $30.000,00 (treinta mil dólares).
 Crédito Directo FEDE:
 a) Los préstamos que se otorguen a las personas físicas, jurídicas, organizaciones y empresas de la economía social para el desarrollo de proyectos propios serán de hasta $1.000.000,00 (Un millón de dólares).
 b) Los préstamos que se otorguen a las personas físicas, jurídicas, organizaciones y empresas de la economía social para el desarrollo de proyectos de emprendimiento serán de hasta $ 500.000,00 (Quinientos mil dólares).
-Los montos anteriormente indicados podrán ser revisados por la Gerencia General Corporativa al menos una vez al año, con base en la inflación del año anterior calculada por el Banco Central de Costa Rica.
-Para ajustes superiores a la inflación debe ser remitido a la Junta Directiva para su aprobación.
+Los montos anteriormente indicados podrán ser revisados por la Gerencia General Corporativa al menos una vez al año, con base en la inflación del año anterior calculada por el Banco Central de Costa Rica. Para ajustes superiores a la inflación debe ser remitido a la Junta Directiva para su aprobación.
 El nivel resolutivo podrá establecer las formas de desembolso que mejor se adecuen a las necesidades y características de cada deudor.
 Dada la naturaleza de los financiamientos realizados a través de los Fondos Especiales y su objetivo final de atender poblaciones vulnerables, y en atención a que en algunos casos los solicitantes de primer piso son organizaciones sujetas de crédito, debe quedar claramente identificado en el objeto del financiamiento a través de su plan de inversión es el impacto e identificación clara en las poblaciones vulnerables ( las personas usuarias finales ) que serán beneficiadas con el respectivo financiamiento.
 * Este artículo fue modificado por la Junta Directiva Nacional en sesión 5170 del 20 de mayo del 2014. Publicado en La Gaceta No. 107 del 05 de junio de 2014.

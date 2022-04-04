@@ -1,1 +1,2 @@
-Artículo 75. Toda modificación o aprobación de las directrices crediticias o para avales FAVI por parte de la Gerencia General Corporativa deberá ser comunicada dentro de los siguientes cinco días hábiles a la Junta Directiva Nacional.
+Artículo 75.
+Con el propósito de garantizar la razonabilidad, credibilidad e integridad de la información financiera de los Fondos Especiales ante las autoridades del BPDC y ante terceros dada su naturaleza, su información debe ser sometida a una Auditoría Externa anual para lo cual el BPDC proveerá los recursos y condiciones necesarias para su realización.

@@ -1,10 +1,11 @@
-*Artículo 19. Tratándose de garantía real, esta deberá ser de primer grado sobre el bien inscrito cuando la inscripción proceda. En el caso de hipotecas de segundo grado, se aceptará cuando el primer grado sea a favor de:
+*Artículo 19.
+Tratándose de garantía real, esta deberá ser de primer grado sobre el bien inscrito cuando la inscripción proceda. En el caso de hipotecas de segundo grado, se aceptará cuando el primer grado sea a favor de:
 a) Asociaciones Solidaristas.
 b) Bancos públicos costarricenses.
 c) Caja Costarricense de Seguro Social.
 d) Caja de Ahorro y Préstamo de la Asociación Nacional de Educadores.
 e) Cooperativas.
-f) Instituto de Desarrollo Agrario.
+n Instituto de Desarrollo Agrario.
 g) Instituto Mixto de Ayuda Social.
 h) Instituto Nacional de Fomento Cooperativo.
 i) Instituto Nacional de Seguros.
