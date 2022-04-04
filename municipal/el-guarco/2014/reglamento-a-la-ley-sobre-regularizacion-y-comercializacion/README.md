@@ -14,3 +14,4 @@ Reglamento a la ley sobre Regularización y Comercialización de bebidas con con
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-06-03 | la propia norma |
+| 2 | 2022-04-04 | Reglamento municipal 148 (2022-04-04) |
