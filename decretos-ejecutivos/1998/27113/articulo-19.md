@@ -1,1 +1,0 @@
-Artículo 19.—La Comisión Técnica se reunirá bimestralmente y extraordinariamente cuando sea convocada por el Coordinador, para conocer del avance de los comités de trabajo y establecer las acciones de coordinación necesarias.

@@ -1,1 +1,0 @@
-Artículo 17.—De acuerdo a la naturaleza de los estudios, la Comisión Técnica podrá nombrar los Comités de trabajo temporal o permanente que sean necesarios, previa notificación a los jerarcas representado en el Consejo.

@@ -1,1 +1,0 @@
-Artículo 15.—Se establece una Comisión Técnica del Sistema, como una instancia de estudio que analiza la situación actual y proponer soluciones que se canalizan para su resolución al Consejo al tiempo que estructura y da cumplimiento a los programas de trabajo aprobados por el Consejo del Sistema.
