@@ -138,7 +138,7 @@ En esta subcuenta se registra el monto de los gastos originados en la constituci
 4 070 100 040 Amortización de gastos de organización e instalación
 4.070.100.040.M.010 Seguros Generales
 4.070.100.040.M.020 Seguros Personales")
-(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó modificar, eliminar y agregar las cuentas, subcuentas y cuentas analíticas, así como la descripción de las cuentas en los Anexos 2 y 4 del presente reglamento. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias Dado lo anterior se transcriben las reformas de los anexos 2 y 4 del Reglamento de Información Financiera conforme el siguiente texto: i. Modificar el concepto del grupo 1.000 para que se lea de la siguiente manera:
+(Nota de Sinalevi: Mediante sesión N° 1682 del 23 de agosto de 2021, se acordó modificar, eliminar y agregar las cuentas, subcuentas y cuentas analíticas, así como la descripción de las cuentas en los Anexos 2 y 4 del presente reglamento. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias Dado lo anterior se transcriben las reformas de los anexos 2 y 4 del Reglamento de Información Financiera, conforme el siguiente texto: i. Modificar el concepto del grupo 1.000 para que se lea de la siguiente manera:
 "CONCEPTO:
 Esta clase comprende todos los recursos representativos de los bienes propiedad de la entidad y los derechos que la misma tiene frente a terceros, y de los que espera obtener en el futuro beneficios económicos. Cuando se considere improbable que del activo no se vayan a obtener beneficios futuros, se debe registrar como un gasto en el estado de resultados. El activo debe tener un costo o valor que permita su medición con fiabilidad.
 Se reconoce un activo en el balance cuando es probable que se obtengan, del mismo, beneficios económicos futuros para la entidad, y además el activo tiene un costo o valor que puede ser medido con fiabilidad.
@@ -1249,3 +1249,69 @@ Corresponderá al monto de primas que como reaseguradora se han aceptado en el p
 CUENTAS ANALÍTICAS
 8.010.090.060.M.010 Seguros Generales
 8.010.090.060.M.020 Seguros Personales".)
+(Nota de Sinalevi: Mediante Sesión N° 1724 del 4 de abril de 2022, se acordó adicionar en el Anexo 1 Plan de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros, la subcuenta 311.07 Cuotas de participación mutualista en la cuenta 311 Capital pagado y modificar el concepto de la subcuenta 321.03 (Costos de emisión y colocación de acciones), en el Anexo 1 Plan de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias. Dado lo anterior se transcribe la reforma: "311.07 Cuotas de participación mutualista
+CONCEPTO: En esta subcuenta se registran las cuotas de participación mutualista, de acuerdo con lo que dispone el artículo 68 bis de la Ley del Sistema Financiero Nacional para la Vivienda y Creación del Banco Hipotecario de Vivienda, Ley 7052."
+"321.03 (Costos de emisión y colocación de acciones)
+CONCEPTO: En esta subcuenta se registran aquellos costos que estén directamente relacionados con la emisión y colocación de acciones u otras aportaciones de capital entregadas.")
+(Nota de Sinalevi: Mediante Sesión N° 1724 del 4 de abril de 2022, se acordó adicionar en el Anexo 2 Plan de cuentas para las entidades supervisadas por SUGESE, la subcuenta y el concepto de la subcuenta según se detalla perteneciente a la cuenta 3.010.010 Capital pagado. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias. Dado lo anterior se transcribe la reforma: : "3.010.010.080 Cuotas de participación mutualista
+CONCEPTO: En esta subcuenta se registran las cuotas de participación mutualista, de acuerdo con lo que dispone el artículo 68 bis de la Ley del Sistema Financiero Nacional para la Vivienda y Creación del Banco Hipotecario de Vivienda, Ley 7052.")
+(Nota de Sinalevi: Mediante Sesión N° 1724 del 4 de abril de 2022, se acordó adicionar en el Anexo 3 Catálogo de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros; la subcuenta 311.07 Cuotas de participación mutualista en la cuenta 311 Capital pagado. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias. Dado lo anterior se transcribe la reforma: :
+SUBCUENTA | 31107000 | Cuotas de participación mutualista
+MONEDA | 31107100 | Cuotas de participación mutualista MN
+MONEDA | 31107200 | Cuotas de participación mutualista ME")
+(Nota de Sinalevi: Mediante Sesión N° 1724 del 4 de abril de 2022, adicionar en el Anexo 4 Catálogo de cuentas para las entidades supervisadas por SUGESE; la subcuenta 3.010.010.080 Cuotas de participación mutualista en la cuenta 3.010.010 Capital pagado. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias. Dado lo anterior se transcribe la reforma:
+SUBCUENTA | 3.010.010.080 | Cuotas de participación Mutualista")
+(Nota de Sinalevi: Mediante Sesión N° 1724 del 4 de abril de 2022, se acordó modificar el concepto de la subcuenta 321.03 (Costos de emisión y colocación de acciones), en el Anexo 1 Plan de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias. Dado lo anterior se transcribe la reforma: “Modificar el concepto de la subcuenta 321.03 (Costos de emisión y colocación de acciones), en el Anexo 1 Plan de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros, de conformidad con el siguiente texto:
+"321.03 (Costos de emisión y colocación de acciones)
+CONCEPTO: En esta subcuenta se registran aquellos costos que estén directamente relacionados con la emisión y colocación de acciones u otras aportaciones de capital entregadas." )
+(Nota de Sinalevi: Mediante el artículo 116 del Reglamento sobre Supervisión Consolidada (Acuerdo CONASSIF 16-22), aprobado en sesión N° 1759-2022 del 26 de setiembre del 2022 se acordó reformar los anexos 1, 2, y 4 del presente reglamento. No obstante mediante información suministrada por el Consejo Nacional de Supervisión del Sistema Financiero, los anexos no fueron publicados en el Diario Oficial La Gaceta, los mismos pueden ser visualizados en la página Web de las Superintendencias. De conformidad con lo establecido en la indicada norma la mima empieza a regir a partir del 1° de enero del 2023, por lo que a partir de esa fecha el texto de dichoas reformas será el siguiente: “ Reforma al Anexo 1. Plan de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros y Anexo 2. Catálogo de cuentas para las entidades supervisadas por SUGEF, SUGEVAL y SUPEN, los grupos y conglomerados financieros, del Reglamento de Información Financiera, conforme se indica seguidamente:
+1. Se modifica el concepto y se adicionan cuentas analíticas a la subcuenta 121.99 de la cuenta
+121 Inversiones al Valor Razonable con Cambios en Resultado, conforme con el siguiente texto:
+"SUBCUENTA
+121.99 Otros instrumentos financieros al valor razonable con cambios en resultados CONCEPTO: En esta subcuenta se registran las inversiones realizadas por la entidad en participaciones en fondos de inversión abiertos y cerrados en entidades del país y del exterior e incluye otros activos para negociar no comprendidas en las subcuentas anteriores.
+CUENTAS ANALÍTICAS
+[.]
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+12199M03 | Participaciones fondos inversión cerrados del país | x | x |
+12199M04 | Participaciones fondos inversión cerrados del exterior | x | x |
+12199M05 | Ajuste por valuación de otros instrumentos financieros al valor razonable con cambios en resultados | x | x |
+[.]"
+2. Se adicionan las siguientes subcuentas, denominadas 123.12 Reporto tripartito posición vendedor a plazo - Recursos propios y 123.14 Operaciones Diferidas de Liquidez -Recursos propios y sus respectivas cuentas analíticas de la cuenta 123 Inversiones al Costo Amortizado, conforme con el siguiente texto:
+"123.12 Reporto y reporto tripartito posición vendedor a plazo - Recursos propios CONCEPTO: En esta subcuenta se registran los importes desembolsados por la entidad con recursos propios, para la adquisición, a través de una bolsa de valores, de reporto y reporto tripartito (recompras) con el compromiso de revenderlos en un plazo y a un precio convenido. En el caso de los reportos tripartitos, los instrumentos financieros subyacentes se mantienen en un fideicomiso de garantía, administrado por la Bolsa Nacional de Valores para garantizarle al inversionista (posición vendedora a plazo) la recuperación de lo invertido.
+Además, esta subcuenta incluye las operaciones de reporto, que consiste en un contrato u operación de crédito mediante el cual el reportador adquiere por una suma de dinero, la propiedad de instrumentos financieros y se obliga a transferir al reportado la propiedad de otros tantos instrumentos financieros de la misma especie en el plazo convenido, y contra el reembolso del mismo precio más un premio.
+CUENTAS ANALÍTICAS
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+12312M01 | Operaciones de Reporto tripartito Mercado bursátil | X | X | X
+12312M02 | Operaciones de Reporto Mercado bursátil | X | X | X
+12312M03 | Operaciones de Mercado de Liquidez | X | X | X
+12312M04 | Operaciones de Mercado Interbancario de Dinero | X | X | X"
+SUBCUENTA
+123.14 Operaciones Diferidas de Liquidez -Recursos propios
+CONCEPTO: En esta subcuenta se registra el derecho de cobro que tiene el supervisado por haber participado en el Mercado Integrado de Liquidez del Banco Central de Costa Rica.
+CUENTAS ANALÍTICAS
+No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
+12314000 | Operaciones Diferidas de liquidez - Recursos propios | X | X | X
+12314M01 | Contraparte B.C.C.R. con o sin garantía | X | X | X
+12314M08 | Otras contrapartes con garantía | X | X |
+12314M09 | Otras contrapartes sin garantía | X | X" |
+d. Reforma al Anexo 2: Plan de cuentas para las entidades supervisadas por SUGESE y Anexo 4: Catálogo de cuentas para las entidades supervisadas por SUGESE, del Reglamento de Información Financiera, para adicionar las siguientes subcuentas y cuentas analíticas pertenecientes a la subcuenta 1.020.010.990 Otros instrumentos financieros al Valor Razonable con cambios en resultados y a la cuenta 1.020.030 Inversiones al Costo Amortizado, conforme con el siguiente texto:
+"1.020.010.990 Otros instrumentos financieros al Valor Razonable con cambios en resultados CONCEPTO: En esta subcuenta se registran las inversiones realizadas por la entidad en participaciones en fondos de inversión abiertos y cerrados en entidades del país y del exterior y en otros activos para negociar no comprendidas en las anteriores subcuentas.
+CUENTAS ANALÍTICAS
+[.]
+1.020.010.990.M.030 Participaciones fondos inversión cerrados del país
+1.020.010.990.M.040 Participaciones fondos inversión cerrados del exterior
+1.020.010.990.M.050 Ajuste por valuación de otros instrumentos financieros al valor razonable con cambios en resultados"
+"1.020.030.120 Reporto y reporto tripartito posición vendedor a plazo recursos propios CONCEPTO: En esta subcuenta se registran los importes desembolsados por la entidad con recursos propios, para la adquisición, a través de una bolsa de valores, de reporto y reporto tripartito (recompras) con el compromiso de revenderlos en un plazo y a un precio convenido.
+En el caso de los reportos tripartitos, los instrumentos financieros subyacentes se mantienen en un fideicomiso de garantía, administrado por la Bolsa Nacional de Valores para garantizarle al inversionista (posición vendedora a plazo) la recuperación de lo invertido.
+Además, esta subcuenta incluye las operaciones de reporto, que consiste en un contrato u operación de crédito mediante el cual el reportador adquiere por una suma de dinero, la propiedad de instrumentos financieros y se obliga a transferir al reportado la propiedad de otros tantos instrumentos financieros de la misma especie en el plazo convenido, y contra el reembolso del mismo precio más un premio.
+CUENTAS ANALÍTICAS
+1.020.030.120.M.010 Operaciones de Reporto tripartito Mercado bursátil
+1.020.030.120.M.020 Operaciones de Reporto Mercado bursátil
+1.020.030.120.M.030 Operaciones de Mercado de Liquidez
+1.020.030.120.M.040 Operaciones de Mercado Interbancario de Dinero"
+1.020.030.140 Operaciones Diferidas de liquidez - Recursos propios
+CONCEPTO: En esta subcuenta se registra el derecho de cobro que tiene el supervisado por haber participado en el Mercado Integrado de Liquidez del Banco Central de Costa Rica.
+CUENTAS ANALÍTICAS
+1.020.030.120.M.010 Contraparte B.C.C.R. con o sin garantía
+1.020.030.120.M.080 Otras contrapartes con garantía
+1.020.030.120.M.090 Otras contrapartes sin garantía")

@@ -30,3 +30,4 @@ Reglamento de información financiera
 | 15 | 2021-08-23 | Reglamento 1682 (2021-08-23) |
 | 16 | 2021-09-28 | Resolución 2813 (2021-09-28) |
 | 17 | 2021-10-29 | Resolución 3103 (2021-10-29) |
+| 18 | 2022-04-04 | Reglamento 1724 (2022-04-04) |
