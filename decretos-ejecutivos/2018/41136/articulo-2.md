@@ -1,1 +1,0 @@
-Artículo 2°—Con carácter obligatorio, las instituciones públicas que conforman el Sector Vivienda y Asentamientos Humanos y el Sector Ambiente, Energía, Mares y Ordenamiento Territorial deberán poner en ejecución tanto la Política como el Plan con sus objetivos, acciones generales y acciones específicas que le correspondan.
