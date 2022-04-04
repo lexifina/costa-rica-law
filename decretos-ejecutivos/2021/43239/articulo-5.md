@@ -1,0 +1,1 @@
+Artículo 5º-La aplicación de los beneficios regulados en el presente decreto tendrá como requisito la acreditación de que el solicitante se encuentre al día con las obligaciones que tenga con la Dirección General de Aviación Civil hasta el mes de febrero de 2020.

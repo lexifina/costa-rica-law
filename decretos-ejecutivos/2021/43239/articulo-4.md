@@ -1,0 +1,1 @@
+Artículo 4º-Para las tarifas descritas en los artículos 1 y 2 del presente decreto, luego de levantada la restricción migratoria para los no residentes en subcategoría turismo, la Autoridad Aeronáutica adoptará las alternativas que faciliten y promuevan la reactivación de la actividad aeronáutica en Costa Rica.

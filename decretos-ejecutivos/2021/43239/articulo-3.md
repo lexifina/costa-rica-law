@@ -1,0 +1,1 @@
+Artículo 3º-Todos los establecimientos tarifarios no contenidos en las descripciones realizadas en los artículos 1 y 2 del presente decreto, se deberán aplicar según lo establecido en los decretos ejecutivos números 41792-MOPT y 20217-MOPT citados.
