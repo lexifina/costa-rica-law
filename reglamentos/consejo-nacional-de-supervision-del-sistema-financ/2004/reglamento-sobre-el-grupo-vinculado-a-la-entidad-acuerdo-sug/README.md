@@ -20,3 +20,4 @@ Reglamento sobre el Grupo Vinculado a la Entidad (Acuerdo SUGEF 4-04).
 | 5 | 2008-02-11 | Reglamento 701 (2008-02-11) |
 | 6 | 2010-05-21 | Reglamento 853 (2010-05-21) |
 | 7 | 2019-03-05 | Reglamento 1485 (2019-03-05) |
+| 8 | 2022-04-04 | Reglamento 1724 (2022-04-04) |
