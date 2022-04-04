@@ -24,3 +24,4 @@ Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF
 | 9 | 2020-12-03 | Reglamento 1627 (2020-12-03) |
 | 10 | 2021-01-18 | Reglamento 1637 (2021-01-18) |
 | 11 | 2021-05-17 | Reglamento 1663 (2021-05-17) |
+| 12 | 2022-04-04 | Reglamento 1724 (2022-04-04) |

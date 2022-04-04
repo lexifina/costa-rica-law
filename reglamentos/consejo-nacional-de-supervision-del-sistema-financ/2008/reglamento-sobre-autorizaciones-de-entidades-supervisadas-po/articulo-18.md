@@ -1,5 +1,7 @@
 Artículo 18. Descripción de anexos
 Los requisitos correspondientes a los actos sujetos a autorización se detallan en los siguientes anexos, los cuales son parte integral de este Reglamento.
+Adicionalmente, mediante Anexo 17 de este Reglamento, se desarrollan los requisitos para la no objeción previa de la SUGEF, respecto a las variaciones en los instrumentos de deuda que conforman el Capital Adicional de Nivel 1 o Capital de Nivel 2, establecido en el Acuerdo SUGEF 3-06. Asimismo, este Anexo establece la documentación requerida para la no objeción previa de la exclusión, disminución y transformación de cuotas de participación mutualista, registradas en el patrimonio contable de las Asociaciones Mutualistas y que forman parte de su Capital Base.
+(Así adicionado el párrafo anterior en sesión N° 1724 del 4 de abril de 2022)
 ANEXO 1. Bancos privados y empresas financieras no bancarias: "Documentación requerida para la autorización de la constitución y el inicio de actividades de intermediación financiera.
 ANEXO 2. Organizaciones Cooperativas de ahorro y crédito y mutuales de ahorro y préstamo: Documentación requerida para la autorización de la constitución y el inicio de actividades.
 ANEXO 3. Bancos privados, empresas financieras no bancarias, cooperativas de ahorro y crédito, mutuales de ahorro y préstamo: Documentación requerida para la autorización de la fusión de intermediarios financieros.
@@ -16,6 +18,9 @@ ANEXO 13. Declaración jurada de socios.
 ANEXO 14. Bancos Privados: Documentación requerida para la aprobación de préstamos a personas vinculadas según el artículo 117 de la Ley Orgánica del Sistema Bancario Nacional. Los requisitos de este anexo les son aplicables a las sucursales de bancos extranjeros domiciliadas en Costa Rica en lo que corresponda.
 ANEXO 15. Organizaciones Cooperativas de Ahorro y Crédito: Documentación para los Cambios en Estatutos.
 ANEXO 16. Sucursales de bancos extranjeros domiciliadas en Costa Rica: Documentación requerida para la autorización del establecimiento y para el inicio de actividades de intermediación financiera.
-ANEXO 17. Entidades supervisadas por la SUGEF: No objeción previa respecto a variaciones en los instrumentos de deuda que conforman el Capital de Nivel 2.
+ANEXO 17. Entidades supervisadas por la SUGEF: No objeción previa respecto a variaciones en los instrumentos de deuda que conforman el Capital de Nivel 2; así como la no objeción previa de la exclusión, disminución y transformación de cuotas de participación mutualista, registradas en el patrimonio contable de las Asociaciones Mutualistas y que forman parte de su Capital Base.
+(Así reformado el párrafo anterior en sesión N° 1724 del 4 de abril de 2022)
+ANEXO 18. Asociaciones Mutualistas de Ahorro y Préstamos para la Vivienda: Documentación requerida para determinar el componente del Capital Base (CB) que corresponda a las cuotas de participación mutualista de acuerdo con sus características.
+(Así adicionado el párrafo anterior en sesión N° 1724 del 4 de abril de 2022)
 (Así adicionado el párrafo anterior en sesión N° 1663 del 17 de mayo de 2021)
 (Así reformado mediante sesión N° 1627-2020 del 3 de diciembre del 2020)

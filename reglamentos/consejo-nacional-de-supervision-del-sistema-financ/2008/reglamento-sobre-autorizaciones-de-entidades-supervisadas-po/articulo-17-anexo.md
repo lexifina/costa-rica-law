@@ -1,6 +1,8 @@
 ANEXO 17
 ENTIDADES FINANCIERAS SUPERVISADAS POR LA SUGEF
 Documentación requerida para la no objeción previa de variaciones en los instrumentos de deuda que conformen el Capital Adicional de Nivel 1 (CAN1) o el Capital de Nivel 2 (CN2), según lo establecido en el 'Reglamento sobre la suficiencia patrimonial de entidades financieras, Acuerdo SUGEF 3-06'.
+Asimismo, este Anexo establece la documentación requerida para la no objeción previa de la exclusión, disminución y transformación de cuotas de participación mutualista, registradas en el patrimonio contable de las Asociaciones Mutualistas y que forman parte de su Capital Base.
+(Así adicionado el párrafo anterior en sesión N° 1724 del 4 de abril de 2022)
 I) BASE REGLAMENTARIA
 'Reglamento sobre la suficiencia patrimonial y apalancamiento de entidades financieras', Acuerdo SUGEF 3-06'
 II) ACTOS QUE REQUIEREN LA NO OBJECIÓN PREVIA DE LA SUGEF
