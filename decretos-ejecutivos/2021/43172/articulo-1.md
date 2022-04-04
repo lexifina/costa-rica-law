@@ -1,0 +1,23 @@
+N° 43172-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SALUD
+En uso de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) de la Ley N° 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública", 1, 2 incisos b) y c) y 6 de la Ley N° 5412 del 8 de noviembre de 1973, "Ley Orgánica del Ministerio de Salud", la Ley N° 4508 del 26 de diciembre de 1969 "Crea el INCIENSA - Instituto Costarricense Investigación y Enseñanza en Salud y Nutrición" y 221 y siguientes de la Ley N° 9078 del 4 de octubre del 2012 "Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial".
+Considerando:
+I.-Que el Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud, es un órgano adscrito al Ministerio de Salud y es un organismo responsable de la vigilancia epidemiológica base en laboratorios, de las investigaciones prioritarias en salud pública y de los procesos de enseñanza en salud derivados de su quehacer, para lo cual se le otorgó personalidad jurídica instrumental.
+II.-Que en la ejecución de los programas y proyectos del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA), se requiere disponer de un equipo de transporte que permita la movilización necesaria de los funcionarios que los ejecutan, de los materiales que se utilizan en la Institución destinados al desarrollo de la investigación y de los eventuales clientes que pudiera tener el Instituto.
+III.-Que mediante el Decreto Ejecutivo N° 34639-S del 07 de abril del 2008 el Poder Ejecutivo promulgó el "Reglamento Interno sobre el Uso de Vehículos del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud", publicado en La Gaceta N° 148 del 01 de agosto del 2008.
+IV.-Que reglamentar el uso, control y mantenimiento de los vehículos del INCIENSA, así como la designación por parte de la Dirección General de la Unidad Administrativa que se encargará directamente de la aplicación de la normativa, es una necesidad impostergable, de manera que los recursos públicos tengan el fin deseado, controlado por medio de los mecanismos legalmente establecidos en nuestro ordenamiento jurídico.
+V.-Que se hace necesario y oportuno actualizar el reglamento antes citado, el cual servirá de complemento a la normativa que al respecto ha dictado la Contraloría General de la República, en las Normas de Control Interno para el Sector Público (N-2-2009-CO-DFOE) del 26 de enero del 2009, publicado en La Gaceta N° 26 del 6 de febrero del 2009.
+VI.-Que a partir de este reglamento se realizarán los manuales de procedimientos que se aplicarán en la institución.
+VII.-Que el artículo 22 del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República, establece la posibilidad de utilizar servicios de taxi al inicio, durante o al finalizar una gira, siempre y cuando se encuentre la regulación previamente aprobada por la Administración activa.
+VIII.-Que mediante el acuerdo N° 04 tomado en la sesión ordinaria N° 2020-11 del 3 de noviembre del 2020, el Consejo Técnico de INCIENSA, aprobó el proyecto de "Reglamento Interno sobre el Uso de Vehículos del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud", por lo que se aprueba la derogatoria del Decreto Ejecutivo N° 34639-S del 07 de abril del 2008 antes citado.
+IX.-Que de conformidad con el artículo 12 bis del Decreto Ejecutivo N° 37045-MP-MEIC de 22 de febrero de 2012 "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos" y sus reformas, se considera que por la naturaleza del presente reglamento no es necesario completar la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio, toda vez que el mismo no establece trámites ni requerimientos para el administrado. Por tanto,
+Decretan:
+Reglamento Interno Sobre el Uso
+de Vehículos y Transporte Público
+en Giras del Instituto Costarricense
+de Investigación y Enseñanza
+en Nutrición y Salud
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º-Objetivo. El presente reglamento establece las condiciones generales que regulan el uso de vehículos propiedad del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA) y el uso de transporte público en giras, pagado por la institución, cuando así lo requieran los funcionarios para el ejercicio de sus funciones. Las condiciones específicas se establecerán en los procedimientos internos que al respecto se elaboren.

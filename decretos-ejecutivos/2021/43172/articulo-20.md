@@ -1,0 +1,1 @@
+Artículo 20.-Derogatoria. Deróguese el Decreto Ejecutivo N° 34639-S del 07 de abril del 2008 "Reglamento Interno sobre el Uso de Vehículos del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud", publicado en La Gaceta N° 148 del 01 de agosto del 2008.

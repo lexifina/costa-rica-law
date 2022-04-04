@@ -1,0 +1,1 @@
+Artículo 19.-Solicitud de autorización. La Dirección Administrativa del INCIENSA confeccionará y comunicará el instructivo y formularios correspondientes, para que sean utilizados por los funcionarios cuando requieran solicitar la autorización para desplazarse en taxi.

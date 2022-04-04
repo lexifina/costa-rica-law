@@ -1,0 +1,1 @@
+Artículo 15.-Prohibición de arreglo extrajudicial. Se prohíbe al conductor del INCIENSA efectuar arreglos extrajudiciales en caso de accidentes con vehículos institucionales; en estos casos deben indicar al particular que se apersone o comunique con el coordinador de la Unidad de Servicios Básicos, para efectuar las gestiones que corresponde según el procedimiento interno.

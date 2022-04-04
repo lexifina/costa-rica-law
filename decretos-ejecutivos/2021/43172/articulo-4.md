@@ -1,0 +1,1 @@
+Artículo 4º-Utilización de los vehículos. Para utilizar los vehículos del INCIENSA, se deben hacer las solicitudes respectivas a la Unidad de Servicios Básicos, de acuerdo con lo establecido en el procedimiento interno.

@@ -1,0 +1,1 @@
+Artículo 6º-Custodia de los vehículos. Una vez concluidas las labores diarias, todos los vehículos deberán ser guardados en el estacionamiento del INCIENSA y las llaves permanecerán bajo custodia de la Unidad de Servicios Básicos.

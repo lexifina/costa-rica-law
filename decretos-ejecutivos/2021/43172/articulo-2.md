@@ -1,0 +1,1 @@
+Artículo 2º-Vehículos de uso administrativo general. Todos los vehículos del INCIENSA son de uso administrativo general, destinados para los servicios regulares de transporte que demanda la institución en cumplimiento de sus funciones, objetivos o actividades interinstitucionales, situaciones de emergencia nacional, que requieran la colaboración de este servicio.
