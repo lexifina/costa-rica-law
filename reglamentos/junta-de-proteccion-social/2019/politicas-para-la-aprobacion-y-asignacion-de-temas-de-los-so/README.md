@@ -14,3 +14,4 @@ Políticas para la aprobación y asignación de temas de los sorteos de las lote
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-22 | la propia norma |
+| 2 | 2022-04-04 | Reglamento 20 (2022-04-04) |

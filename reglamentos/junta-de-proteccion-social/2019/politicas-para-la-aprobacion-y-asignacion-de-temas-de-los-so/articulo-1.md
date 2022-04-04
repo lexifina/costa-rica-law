@@ -1,10 +1,12 @@
 JUNTA DE PROTECCIÓN SOCIAL
 GERENCIA DE PRODUCCIÓN, COMERCIALIZACIÓN Y DE OPERACIONES
 DEPARTAMENTO DE PRODUCCIÓN
-De conformidad con la personalidad jurídica, autonomía administrativa y funcional para el desempeño de las funciones de la Junta de Protección Social otorgadas en el artículo N°2 de la Ley N°8718 “Autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de la distribución de rentas de las Loterías Nacionales”, comunica las políticas, consideraciones, trámite y requisitos para la solicitud, aprobación y asignación de temas en los sorteos de las loterías impresas de la Junta de Protección Social:
+De conformidad con la personalidad jurídica, autonomía administrativa y funcional para el desempeño de las funciones de la Junta de Protección Social otorgadas en el artículo N°2 de la Ley N°8718 "Autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de la distribución de rentas de las Loterías Nacionales", comunica las políticas, consideraciones, trámite y requisitos para la solicitud, aprobación y asignación de temas en los sorteos de las loterías impresas de la Junta de Protección Social:
 Políticas para la aprobación y asignación de temas de los sorteos de las loterías impresas de la Junta de Protección Social, según acuerdo JD-281- 2019 correspondiente al Capítulo IV), artículo 6) de la Sesión Ordinaria 22-2019 celebrada el 22 de abril de 2019.
 La Junta de Protección Social proyectará, por medio de los diseños de los sorteos de las loterías impresas, temas de sensibilización en aspectos de interés social, cultural, histórico, educativo, deportivo y prestación de servicios públicos.
-La Junta de Protección Social promoverá y potenciará, su imagen y la imagen de organizaciones e instituciones sin fines de lucro, por medio de los diseños de las loterías nacionales, estos diseños serán destinados específicamente a las actividades fundamentales de éstas y no para promover la publicidad comercial del solicitante.
+(Así reformado el párrafo anterior en sesión N° 20 del 4 de abril de 2022)
+La Junta de Protección Social promoverá y potenciará, su imagen y la imagen de organizaciones e instituciones sin fines de lucro por medio de los diseños de las loterías nacionales. No se aprobarán solicitudes presentadas por las cooperativas (excepto las cooperativas de vendedores de lotería) y por las asociaciones solidaristas.
+(Así reformado el párrafo anterior en sesión N° 20 del 4 de abril de 2022)
 La Junta de Protección Social podrá aprobar solicitudes de organizaciones solicitantes, a partir de los 25 años y quinquenios subsiguientes.
 Las solicitudes de diseño que por su particularidad no se ajusten con los lineamientos establecidos, serán valoradas por la Junta Directiva de la Junta de Protección Social.
 Consideraciones generales para la presentación de solicitudes de diseños de los sorteos de las loterías impresas de la Junta de Protección Social realizadas por entes externos.
@@ -17,7 +19,7 @@ Consideraciones generales para la presentación de solicitudes de diseños de lo
 7. Se entregará un diseño ampliado durante la semana de realización del sorteo, en un evento público organizado por el ente solicitante. Si así se requiere.
 Trámite para la atención de solicitudes de tema para ser considerados en el diseño y la impresión de los billetes de lotería.
 1. El departamento de Producción recibe las solicitudes de los entes externos con los temas para los diseños de cada sorteo, que cumplan con los lineamientos establecidos en las Políticas para la aprobación y asignación de temas de los sorteos de las loterías impresas de la Junta de Protección Social conforme la disponibilidad de fechas.
-2. El ente externo interesado debe solicitar al correo: procorrespondencia@jps.go.cr, la fórmula “Solicitud de tema de entes externos para los diseños de las loterías impresas”. Completa la solicitud y la remite al correo procorrespondencia@jps.go.cr del Departamento de Producción donde se eleva a conocimiento y análisis por parte del Grupo de Trabajo de Aprobación de Diseños.
+2. El ente externo interesado debe solicitar al correo: procorrespondencia@jps.go.cr, la fórmula "Solicitud de tema de entes externos para los diseños de las loterías impresas". Completa la solicitud y la remite al correo procorrespondencia@jps.go.cr del Departamento de Producción donde se eleva a conocimiento y análisis por parte del Grupo de Trabajo de Aprobación de Diseños.
 3. Una vez analizada la solicitud y disponibilidad de espacios, se comunica al ente externo la aprobación o no del espacio para el diseño.
 4. Si se aprueba la solicitud se envía el detalle de los requisitos de realización y aprobación diseños de loterías impresas y la fecha para presentación del material y documentación legal a utilizar en la elaboración del diseño, conforme el cumplimiento del Programa de Producción. En caso de que el solicitante no cumpla con la entrega en la fecha establecida, la Administración desestimará la solicitud.
 5. Con el material y la información enviada por el ente externo se crea el arte final del diseño del sorteo que corresponda.
@@ -29,7 +31,7 @@ Para: Entidad:
 Tema del diseño: Sorteo No. Fecha de sorteo:
 1- Para la confección del diseño, se debe enviar el material digital (fotografías y logos) con una resolución mínima de 300 dpi con formato JPG ó PSD a la siguiente dirección electronica: ________________.
 2- Si el material es fotografía convencional o los archivos los tienen en CD, se deben remitir al Dpto. de Imprenta, Sección de Arte y Texto ubicada en el Edificio de la J.P.S. calle 20, de Emergencias del Hospital Nacional de Niños 100 m sur.
-3- En caso que el arte sea una composición de diferentes fotografías y logos, se debe enviar en formato PSD. El área de trabajo para efectos de la imagen de su interés será de 5.85 cm. de ancho x 4.30 cm. de alto. El Software utilizado se basa en –Adobe Photoshop, -Adobe Illustrator e Indesing. Para textos e información en Word.
+3- En caso que el arte sea una composición de diferentes fotografías y logos, se debe enviar en formato PSD. El área de trabajo para efectos de la imagen de su interés será de 5.85 cm. de ancho x 4.30 cm. de alto. El Software utilizado se basa en -Adobe Photoshop, -Adobe Illustrator e Indesing. Para textos e información en Word.
 4- El diseño debe llevar un enfoque humano de la actividad que caracteriza el tema para la emisión de lotería.
 5- Para ser ubicado en el anverso de cada fracción de lotería, se requiere de un mensaje corto, slogan o mención de la actividad o campaña a celebrar.
 6- Un texto de 40 palabras aproximadamente, referente al tema solicitado para incluirlo en el reverso de cada fracción de lotería.
@@ -38,10 +40,10 @@ Tema del diseño: Sorteo No. Fecha de sorteo:
 DOCUMENTOS QUE DEBEN PRESENTAR
 A LA JUNTA DE PROTECCIÓN SOCIAL
 9- En caso de celebraciones de aniversarios presentar una certificación original según corresponda.
-10- Completar Boleta “CESIÓN DE DERECHOS DE AUTOR PARA LA EDICIÓN DE LA OBRA O IMAGEN Código DI-FO-RP-03” por el representante legal de la institución o empresa para ceder los derechos de imagen de fotos, ilustraciones, logos, etc., que se utilizarán en la emisión de lotería adjudicada al tema de su interés; debe mencionar el nombre completo de cada persona, ilustración y cada logo que comprenda el arte final. Este documento debe entregarse original.
-11- Completar Boleta “CESIÓN DE DERECHOS DE AUTOR PARA LA EDICIÓN DE LA OBRA O IMAGEN Código DI-FO-RP-03” por parte del fotógrafo; en caso de ser una ilustración, el creador intelectual también debe completar esta fórmula, este documento debe entregarse en original y presentar copia de la cédula de identidad por ambos lados.
-12- Completar Boleta “CESIÓN DE DERECHOS DE AUTOR PARA LA EDICIÓN DE LA OBRA O IMAGEN Código DI-FO-RP-03” y presentar copia de la cédula de identidad por ambos lados de cada persona mayor de edad cuya imagen se publique, estos documentos deberán entregarse original.
-13- En caso de utilizar imágenes de menores de edad o personas que requieran representación legal, la Boleta “CESIÓN DE DERECHOS DE AUTOR PARA LA EDICIÓN DE LA OBRA O IMAGEN Código DI-FO-RP-03” la debe completar uno de sus padres o representante legal, el mismo debe aportar copia de su cédula de identidad en ambos lados al día y la certificación que compruebe el parentesco con el menor de edad emitida por el registro civil o el documento que comprueba su representación.
+10- Completar Boleta "CESIÓN DE DERECHOS DE AUTOR PARA LA EDICIÓN DE LA OBRA O IMAGEN Código DI-FO-RP-03" por el representante legal de la institución o empresa para ceder los derechos de imagen de fotos, ilustraciones, logos, etc., que se utilizarán en la emisión de lotería adjudicada al tema de su interés; debe mencionar el nombre completo de cada persona, ilustración y cada logo que comprenda el arte final. Este documento debe entregarse original.
+11- Completar Boleta "CESIÓN DE DERECHOS DE AUTOR PARA LA EDICIÓN DE LA OBRA O IMAGEN Código DI-FO-RP-03" por parte del fotógrafo; en caso de ser una ilustración, el creador intelectual también debe completar esta fórmula, este documento debe entregarse en original y presentar copia de la cédula de identidad por ambos lados.
+12- Completar Boleta "CESIÓN DE DERECHOS DE AUTOR PARA LA EDICIÓN DE LA OBRA O IMAGEN Código DI-FO-RP-03" y presentar copia de la cédula de identidad por ambos lados de cada persona mayor de edad cuya imagen se publique, estos documentos deberán entregarse original.
+13- En caso de utilizar imágenes de menores de edad o personas que requieran representación legal, la Boleta "CESIÓN DE DERECHOS DE AUTOR PARA LA EDICIÓN DE LA OBRA O IMAGEN Código DI-FO-RP-03" la debe completar uno de sus padres o representante legal, el mismo debe aportar copia de su cédula de identidad en ambos lados al día y la certificación que compruebe el parentesco con el menor de edad emitida por el registro civil o el documento que comprueba su representación.
 14- Personería Jurídica (original), en caso de personas jurídicas.
 15- Autorización del Representante Legal, que indique el funcionario responsable de dar el visto bueno al arte final. (Presentar original y copia de la cédula de la persona autorizada).
 Yo:______________________________ Cédula No.: ___________________________ Profesión u oficio: __________________ Dirección del domicilio:
@@ -77,7 +79,7 @@ Tema a solicitar: ________________________
 [imagen]
 Solicitud para ser considerado en los diseños de los sorteos de Lotería
 [imagen] [imagen] Lotería Nacional Fecha requerida para la solicitud:
-. Lotería Popular “Chances” Fecha requerida para la solicitud:
+. Lotería Popular "Chances" Fecha requerida para la solicitud:
 Datos de la persona solicitante
 Nombre completo: __________________ Cédula número: __________________
 Teléfono __________________ Correo electrónico: __________________
