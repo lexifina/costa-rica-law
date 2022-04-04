@@ -1,2 +1,2 @@
-Artículo 6°- La Subcomisión examinadora. La Comisión Ad Hoc nombrará de su seno una Subcomisión examinadora con tres de sus miembros, uno de los cuales será el representante del Instituto, para coordinar el proceso de elaboración y corrección de los exámenes. La Subcomisión será responsable por la confidencialidad de los textos y la objetividad de las calificaciones.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40823 del 13 de diciembre del 2017)
+Artículo 6º-La Subcomisión examinadora. La Comisión Ad Hoc nombrará de su seno una Subcomisión examinadora con tres de sus miembros, uno de los cuales será el representante de la Academia Diplomática, para coordinar el proceso de elaboración y corrección de los exámenes. La Subcomisión será responsable por la confidencialidad de los textos y la objetividad de las calificaciones.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43468 del 4 de abril de 2022)

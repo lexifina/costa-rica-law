@@ -1,3 +1,4 @@
-Artículo 33.—Condiciones laborales de los funcionarios en período de prueba. Los aspirantes a ingresar a la carrera del Servicio Exterior, una vez seleccionados por el Ministro, serán nombrados por el Poder Ejecutivo en período de prueba en el servicio interno, según lo dispone el artículo 16 del Estatuto.
+Artículo 33.-Condiciones laborales de los funcionarios en período de prueba. Los aspirantes a ingresar a la carrera del Servicio Exterior, una vez seleccionados por el Ministro, serán nombrados por el Poder Ejecutivo en período de prueba en el servicio interno, según lo dispone el artículo 16 del Estatuto.
 La remuneración del aspirante, independientemente de su ubicación, no podrá ser variada en su perjuicio durante el período de prueba.
-Los aspirantes tendrán los mismos derechos y deberes establecidos en el Estatuto para los funcionarios de la carrera del Servicio Exterior.
+Los aspirantes tendrán los mismos derechos y deberes establecidos en el Estatuto para los funcionarios de la carrera del Servicio Exterior, a excepción de lo dispuesto en el artículo 31 sobre licencias. Durante el período de prueba, los aspirantes estarán sujetos al mismo régimen de deberes, prohibiciones y sanciones aplicable a los diplomáticos de carrera.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43468 del 4 de abril de 2022)
