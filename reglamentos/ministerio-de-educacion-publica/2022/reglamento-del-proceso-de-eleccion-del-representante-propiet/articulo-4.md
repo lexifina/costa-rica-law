@@ -1,0 +1,1 @@
+Artículo 4º-Determinación del lugar de las elecciones. La elección del representante propietario y suplente de las organizaciones de educadores, se llevará a cabo en la Escuela Juan Rafael Mora Porras, ubicada en San José, Paseo Colón, detrás del Edificio Torre Mercedes.

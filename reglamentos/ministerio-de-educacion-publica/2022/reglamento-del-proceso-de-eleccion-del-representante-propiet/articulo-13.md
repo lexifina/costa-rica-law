@@ -1,0 +1,4 @@
+Artículo 13.-Proceso de votación. Concluido el proceso de presentación de los candidatos o candidatas, la Comisión Coordinadora procederá a informar acerca de la integración y organización de las mesas de votación, explicará de forma sucinta el mecanismo de votación, con el fin de que los electores o electoras puedan emitir el voto de forma libre y secreta.
+Para el desarrollo y organización del proceso electoral, la Comisión Coordinadora nombrará un equipo de fiscales o fiscalas, debidamente juramentados por ésta, que le auxiliarán en cada mesa de votación.
+El proceso de votación debe ejecutarse en observancia de los protocolos sanitarios vigentes al momento de la elección.
+Se prohíbe el ingreso de electores a las mesas de votación con armas, en estado de ebriedad o bajo los efectos de drogas o sustancias enervantes.
