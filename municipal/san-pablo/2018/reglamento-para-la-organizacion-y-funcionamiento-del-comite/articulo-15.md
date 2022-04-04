@@ -1,2 +1,3 @@
-Artículo 15. Tribunal Temporal. En Concejo Municipal nombrará un Tribunal Temporal para la elección de los miembros del artículo 12 inciso b) y c), con al menos 8 días hábiles previos a la fecha de las Asambleas de las Organizaciones Deportivas y Recreativas y de Organizaciones Comunales; este será el encargado de fiscalizar el proceso de elección en las Asambleas convocadas para ese fin.
-Dicho Tribunal estará conformado por: un representante del Concejo Municipal, un administrativo del CCDRSP y el abogado de la Municipalidad.
+Artículo 15. Tribunal Temporal.
+En Concejo Municipal nombrará un Tribunal Temporal para la elección de los miembros del artículo 12 inciso b), c) y d), con al menos 8 días hábiles previos a la fecha de las Asambleas de las Organizaciones Deportivas y Recreativas y de Organizaciones Comunales y Organizaciones Juveniles; este será el encargado de fiscalizar el proceso de elección en las Asambleas convocadas para ese fin. Dicho Tribunal estará conformado por: un representante del Concejo Municipal, un administrativo del CCDRSP y el abogado de la Municipalidad.
+(Así reformado mediante sesión ordinaria N° 14-22 del 4 de abril del 2022)

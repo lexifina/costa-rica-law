@@ -15,3 +15,4 @@ Reglamento para la organización y funcionamiento del Comité Cantonal de Deport
 | --- | --- | --- |
 | 1 | 2018-03-19 | la propia norma |
 | 2 | 2020-12-14 | Reglamento municipal 51 (2020-12-14) |
+| 3 | 2022-04-04 | Reglamento municipal 14 (2022-04-04) |
