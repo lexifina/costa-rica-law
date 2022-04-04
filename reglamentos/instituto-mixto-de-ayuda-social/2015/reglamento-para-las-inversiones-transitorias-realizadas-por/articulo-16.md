@@ -1,1 +1,0 @@
-Artículo 16.—De los Rendimientos: Los rendimientos que se obtengan (intereses) deben pasar a engrosar los recursos de la Institución, en la misma fuente de financiamiento de donde se obtuvo el principal. Cuando se trate de recursos de otras instituciones, se rige por lo establecido en los respectivos convenios.

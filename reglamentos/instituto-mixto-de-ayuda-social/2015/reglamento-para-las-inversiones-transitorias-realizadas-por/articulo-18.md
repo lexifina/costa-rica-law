@@ -1,1 +1,0 @@
-Artículo 18.—De la ejecución del Plan Anual de Inversiones: Una vez aprobado el Plan de Inversiones por parte de la Gerencia General, se invertirá, pudiendo variar el plazo, la moneda y cantidad de inversiones, de acuerdo a la oferta actualizada de la Tesorería Nacional o Banco Central de Costa Rica.
