@@ -1,1 +1,0 @@
-15.—Firmeza: El acto de adjudicación adquirirá su firmeza 2 días hábiles después de comunicada la adjudicación. En los casos en que corresponda recurso de apelación, el plazo de firmeza es de 5 días hábiles.

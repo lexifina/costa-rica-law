@@ -1,2 +1,0 @@
-11.—Acto de apertura. Se tendrá por cerrado el plazo para recibir ofertas a la hora y fecha señaladas en la invitación. De inmediato dos funcionarios de la Proveeduría, procederán a abrir las propuestas en presencia de los asistentes y levantarán un acta haciendo constar los datos generales, así como cualquier incidencia relevante en el acto.
-Previo a iniciar la apertura de las ofertas, se les indicará a los participantes todos los lineamientos propios del acto.

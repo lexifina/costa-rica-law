@@ -1,1 +1,0 @@
-21.—Mejoras a lo ofrecido: El Instituto por medio del Departamento de Proveeduría y con la participación de la Unidad Técnica, estará facultado para aceptar las mejoras en los productos adjudicados, siempre que no le represente ningún costo adicional al Instituto o se varíe las condiciones pactadas. En ese sentido, para aceptarlas deben representar un bien para la Administración.

@@ -1,1 +1,0 @@
-18.—Formalización del Contrato: Con cada adjudicación, una vez que sea formalizada (presentación garantía de cumplimiento) el Instituto extenderá una orden de compra que constituirá el documento que inicie la ejecución contractual. El Instituto entregará la orden de compra o bien la notificará por facsímil a más tardar un día hábil posterior a la formalización.

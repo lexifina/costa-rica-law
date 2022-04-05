@@ -1,1 +1,0 @@
-26.—Disposición final: En todo lo que no esté expresamente normado en el presente Instructivo, le aplicaran supletoriamente todas las disposiciones contenidas en la Ley de Contratación Administrativa y en su respectivo Reglamento.
