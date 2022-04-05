@@ -1,3 +1,0 @@
-Artículo 15.—Acto de apertura: En el plazo previsto en el pliego se realizará la apertura de las propuestas en presencia de los asistentes y levantarán un acta haciendo constar los datos generales, así como cualquier incidencia relevante en el acto.
-Previo a iniciar la apertura de las ofertas, se les indicará a los participantes todos los lineamientos propios del acto.
-Una vez abiertos los sobres se procederá con la lectura -por renglón- de la cantidad y características de los bienes a adquirir, el precio base ofertado por cada participante en la oferta escrita y a partir de ese momento se abrirá el espacio para recibir mejoras “Subasta a la baja”.
