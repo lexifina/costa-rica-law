@@ -1,0 +1,1 @@
+Artículo 29.-Resolución Contractual: En caso de incumplimiento por parte del contratista el INS se reserva el derecho de iniciar el debido proceso con fundamento en lo dispuesto en la Ley de Contratación Administrativa y su Reglamento.

@@ -1,0 +1,2 @@
+Artículo 34.-Transitorio: En el caso de los que productos que requiera la Administración, que al inicio de vigencia de las "Compras por Requerimiento" se encuentren amparados en procedimientos ordinarios en ejecución (Contratos o licitaciones), se utilizará en primera instancia dichos procesos hasta su respectiva terminación.
+No obstante, se podrá valorar conforme a criterios técnicos, legales y de oportunidad y conveniencia, utilizar en forma complementaria la aplicación de las "Compras por Requerimiento".
