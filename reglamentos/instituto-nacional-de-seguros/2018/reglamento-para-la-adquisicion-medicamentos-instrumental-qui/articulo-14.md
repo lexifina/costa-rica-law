@@ -1,3 +1,0 @@
-Artículo 14.—Presentación de las Ofertas Económicas: El Oferente deberá presentar su oferta económica por el medio autorizado en la invitación en Proveeduría, dentro del plazo consignado en la invitación y debidamente firmada por quien tenga poder para ello. En su oferta debe indicar claramente el nombre de la (s) persona (s) facultadas para someter sus mejoras de precios.
-La oferta deberá respetar las especificaciones de cada producto previamente valorado, e indicar claramente el precio cotizado para cada producto y la confirmación del plazo de entrega.
-Se tendrá por cerrado el plazo para recibir ofertas a la hora y fecha señaladas en la invitación

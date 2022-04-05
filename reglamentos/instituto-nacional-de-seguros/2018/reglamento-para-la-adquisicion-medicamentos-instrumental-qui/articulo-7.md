@@ -1,4 +1,0 @@
-Artículo 7º—Conformación de registro de proveedores por producto: Si el producto ofrecido es aceptado, el mismo se integrará en un registro que al efecto levantará la Administración.
-Dicho registro se conformará para la aplicación de “Compras por Requerimiento” a fin de que puedan participar en los procesos de contratación administrativa que se rigen por el mismo.
-Dicho registro será el punto de inicio para poder participar en cualquier proceso derivado de este procedimiento sustitutivo de “Compras por Requerimiento”, para lo cual Proveeduría realizará la invitación directa únicamente a los interesados que conformen el registro para el producto específico.
-La Administración se reserva el derecho de realizar una Audiencia con los Proveedores que se registren a efecto de explicar la mecánica del presente proceso y estimular su participación.
