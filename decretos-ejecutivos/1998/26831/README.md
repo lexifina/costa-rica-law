@@ -20,3 +20,4 @@ Reglamento Ley de Igualdad de Oportunidades para Personas con Discapacidad
 | 5 | 2012-11-23 | Decreto Ejecutivo 37486 (2012-11-23) |
 | 6 | 2014-04-28 | Decreto Ejecutivo 38446 (2014-04-28) |
 | 7 | 2017-09-25 | Decreto Ejecutivo 40659 (2017-09-25) |
+| 8 | 2022-04-05 | Decreto Ejecutivo 43520 (2022-04-05) |

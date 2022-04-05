@@ -1,1 +1,3 @@
-Artículo 78.- Asistencia técnica para la colocación. La Dirección Nacional de Empleo ofrecerá asistencia técnica a los Departamentos de Recursos Humanos de las empresas, a efecto de que se promueva la colocación de personas con discapacidad que reúnan los requisitos establecidos en sus pedimentos de personal, manteniendo un seguimiento y control de tal acción. Asimismo, velará porque los instrumentos de reclutamiento y selección se adapten a las necesidades específicas de cada las persona.
+Artículo 78.- Concurso y elegibilidad
+Toda persona con discapacidad que ostente los requisitos establecidos para cada clase de puesto, podrá concursar libremente y ser declarada elegible si demuestra idoneidad para el mismo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43520 del 5 de abril del 2022)

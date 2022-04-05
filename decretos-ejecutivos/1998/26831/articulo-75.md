@@ -1,2 +1,3 @@
-Artículo 75.- Consultas y reclamos. El Ministerio de Trabajo y Seguridad Social, a través de la Dirección General de Asuntos Laborales, brindará y prestará sus servicios de manera accesible, adecuada, efectiva y oportuna, para atender consultas y reclamos a trabajadores con alguna discapacidad.
-La Dirección General de Asuntos Laborales, ofrecerá en sus instalaciones todas las facilidades necesarias para la comodidad, seguridad y privacidad de las personas con discapacidad, que requieran de los servicios de atención de reclamos, conciliaciones y otros.
+Artículo 75.- Fiscalización de la seguridad social
+La Dirección Nacional de Inspección del Trabajo, a través de sus oficinas en todo el país, fiscalizará que todas las personas trabajadoras con discapacidad estén cubiertas por los regímenes de la Seguridad Social y Riesgos del Trabajo, independientemente de la naturaleza de la labor productiva que realicen.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43520 del 5 de abril del 2022)

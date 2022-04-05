@@ -1,2 +1,3 @@
-Artículo 67.- Acto discriminatorio en el empleo. Se considerarán actos de discriminación el emplear en la selección de personal, mecanismos que no estén adaptados a las condiciones de los aspirantes, el exigir requisitos adicionales a los establecidos para cualquier solicitante y el no emplear, por razón de su discapacidad, a un trabajador idóneo.
-También se considerará un acto discriminatorio que, en razón de su discapacidad, a una persona se le niegue el acceso y la utilización de los recursos productivos.
+Artículo 67.- Prohibición de discriminación en el empleo
+Se prohíbe la discriminación por motivos de discapacidad en cualquier forma de empleo y en el derecho al trabajo, en los términos de selección, contratación, continuidad, promoción técnica y profesional, así como en la provisión de condiciones de trabajo seguras y saludables. Esta prohibición incluye la denegación de ajustes razonables a las personas con discapacidad, independientemente del momento de la relación laboral en que se presente la situación de discapacidad.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43520 del 5 de abril del 2022)

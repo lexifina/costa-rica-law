@@ -1,1 +1,3 @@
-Artículo 68.- Comisión permanente. El Ministerio de Trabajo y Seguridad Social nombrará, internamente, una comisión permanente con la participación de todas las direcciones, dicha comisión se encargará de definir estrategias, planes y proyectos para promover la equiparación de oportunidades en el empleo de las personas con discapacidad.
+Artículo 68.- Uso de asistencia para personas con discapacidad en el empleo
+Las organizaciones empleadoras del sector público y privado no podrán limitar el uso de cualquier forma de asistencia humana o animal, tecnologías de apoyo, dispositivos técnicos y ayudas para la movilidad de la cual disponen y utilizan las personas trabajadoras con discapacidad en su vida cotidiana, a fin de asegurar su independencia y movilidad personal.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43520 del 5 de abril del 2022)
