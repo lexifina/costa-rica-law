@@ -14,3 +14,4 @@ Institucionaliza la Unidad de Equiparación de Oportunidades para Personas con D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-17 | la propia norma |
+| 2 | 2022-04-05 | Decreto Ejecutivo 43520 (2022-04-05) |
