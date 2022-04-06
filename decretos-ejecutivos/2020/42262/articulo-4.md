@@ -1,1 +1,0 @@
-Artículo 4º-En los casos en que el Ministerio aplique el reconocimiento, a solicitud del interesado, la resolución del análisis de los estudios toxicológicos, deberá realizarse dentro de un plazo de 22 días hábiles a partir de la presentación de la respectiva solicitud.

@@ -1,1 +1,0 @@
-Transitorio I.-Todo producto que haya solicitado un trámite de inscripción, renovación o un cambio post registro y el mismo no haya sido evaluado a la entrada en vigor del presente decreto, podrá acogerse a las presentes disposiciones presentando la declaración jurada tal y como se estipula en el presente decreto.

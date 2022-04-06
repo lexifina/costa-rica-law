@@ -1,8 +1,0 @@
-ANEXO 1
-DECLARACIÓN JURADA
-Yo: __________________________________ con domicilio en
-Distrito_________________Cantón________________Provincia________________ Calle/Avenida_________________________ u Otras señas: ___________________ ___________________________________________________________________
-Cédula Identidad o de residencia Nº En mi carácter de representante legal de:_________________________ cédula jurídica: ______________________________, para fines del trámite de ________________del producto denominado: ___________________, declaro bajo fe de juramento, apercibido(a) de las sanciones con las que el Código Penal de Costa Rica castiga el delito de perjurio y consciente de la importancia de la veracidad de lo aquí anotado, lo siguiente:
-Primero: Que los estudios toxicológicos presentados para dicho trámite, son los mismos que fueron aprobados por la Autoridad Reguladora______________ para el ingrediente activo grado técnico________________________
-Segundo: Por lo anterior, quedo apercibido de las consecuencias legales y judiciales, con que la legislación castiga el delito de perjurio. Asimismo, exonero de toda responsabilidad a las autoridades del Ministerio de Salud por la renovación del registro sanitario, con base en la presente declaración, y soy conocedor de que si la autoridad de salud llegase a corroborar alguna falsedad en la presente declaración, errores u omisiones en los documentos aportados, podrá aplicar las medidas especiales que se encuentran establecidas en la Ley General de Salud, como lo son la cancelación del registro y el retiro del producto del mercado entre otras. Es todo.
-Firmo en _________a las ____ horas del día __ del mes de _______del año___________.

@@ -1,1 +1,0 @@
-Artículo 2º- Se consideran Autoridades Reguladoras para la aplicación del presente decreto, las que pertenecen a países miembros de la Organización para la Cooperación y el Desarrollo Económicos (OCDE), y que regulan el registro de este tipo de sustancias.
