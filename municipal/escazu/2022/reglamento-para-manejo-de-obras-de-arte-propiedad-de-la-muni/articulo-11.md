@@ -1,0 +1,1 @@
+Artículo 11.-El Subproceso de Desarrollo Cultural deberá mantener un inventario actualizado de todas las obras de arte, ya sea por la inclusión de nuevas obras como por nueva información que se genere de las mismas.

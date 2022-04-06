@@ -1,0 +1,1 @@
+Artículo 5º-Las colecciones de obras de arte de la Municipalidad están constituidas por pinturas y esculturas, elaboradas con diferentes técnicas y materiales como talla directa, alto y bajo relieve, tanto en madera como concreto y fibra de vidrio con resina, hierro soldado, grabado, ilustración digital, reproducciones.

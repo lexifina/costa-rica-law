@@ -1,0 +1,1 @@
+Artículo 32.-La limpieza de las obras plásticas por personal no calificado será indirecta, manual y en seco, es decir, únicamente se podrá quitar el polvo con una tela seca en superficies como el marco y los vidrios, nunca sobre el lienzo.

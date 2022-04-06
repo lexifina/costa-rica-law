@@ -1,0 +1,1 @@
+Artículo 24.-En caso de requerir movilizar las obras de arte a ubicaciones distintas a las dispuestas en el Artículo 21 del presente reglamento, deberá existir una justificación y un visto bueno por parte de las personas a cargo del manejo de las obras de arte.

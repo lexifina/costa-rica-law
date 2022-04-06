@@ -1,0 +1,1 @@
+Artículo 47.-Evitar el movimiento de las obras, aunque sea al interior de las oficinas. Cualquier movilización de una obra de arte que se requiera a lo interno de las instalaciones municipales, deberá ser previamente notificada al Subproceso de Desarrollo Cultural. No se deberán movilizar obras sin previa autorización de este Subproceso.

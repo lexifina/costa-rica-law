@@ -1,0 +1,1 @@
+Artículo 19.-EL Subproceso de Desarrollo Cultural podrá realizar contrataciones para el diagnóstico del estado de conservación, así como de los tratamientos de conservación preventiva y de los tratamientos de restauración.

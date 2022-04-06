@@ -1,0 +1,1 @@
+Artículo 43.-Informar al Subproceso de Desarrollo Cultural ante el incumplimiento por parte de pares y visitantes sobre conductas que pudiesen afectar las obras de arte, ante situaciones previstas en el presente reglamento.

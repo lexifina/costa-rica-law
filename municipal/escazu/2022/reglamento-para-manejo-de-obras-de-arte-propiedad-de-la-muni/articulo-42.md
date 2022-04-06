@@ -1,0 +1,1 @@
+Artículo 42.-Las personas que cuenten con obras de arte en sus lugares de trabajo y las tengan a su nombre en los registros de la Oficina de Suministros y Activos Municipal tendrán la figura de custodios, los cuales velarán por la salvaguarda de las obras a su cargo.
