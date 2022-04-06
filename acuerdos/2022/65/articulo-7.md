@@ -1,0 +1,1 @@
+Artículo 7º-Si en la inspección realizada en puerto por las personas inspectoras del INCOPESCA, se descubre evidencia de participación de la embarcación en pesca INDNR, se aplicará la medida de denegatoria de uso de puerto.

@@ -1,0 +1,1 @@
+Artículo 11.-El INCOPESCA elaborará un comunicado en español e inglés que plasme de manera clara, sencilla y contundente, las obligaciones contenidas en el Reglamento para la operación del AMERP, Ley 9321. De manera que, cada embarcación solicitante de uso de puerto esté informada con anterioridad sobre todas las nuevas condiciones para dicha solicitud.

@@ -1,0 +1,1 @@
+Artículo 5º-Si el análisis de la información determina que la embarcación no representa un riesgo en materia de pesca INDNR, se procederá con un dictamen de conformidad, mediante una resolución administrativa que recomienda la autorización de uso de puerto sin restricciones.

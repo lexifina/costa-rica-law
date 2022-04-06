@@ -1,0 +1,1 @@
+Artículo 4º-Si la embarcación no figura en las listas mencionadas, se continuará con los procedimientos de análisis de riesgo. En caso de detectarse un riesgo alto, se aplicará la medida denegatoria de uso puerto.

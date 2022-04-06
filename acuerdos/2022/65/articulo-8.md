@@ -1,0 +1,1 @@
+Artículo 8º-Las personas inspectoras en cualquiera de los casos señalados elaborarán un informe de inspección que deberá ser usado por la Dirección de Fiscalización para emitir la resolución administrativa a comunicar a la DMP-MOT, conforme a lo establecido en el Protocolo de procedimientos.

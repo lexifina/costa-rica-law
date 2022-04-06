@@ -1,0 +1,1 @@
+Artículo 10.-En caso de detección de irregularidades que constituyan una situación delictiva, se autoriza a las personas inspectoras a proceder con la denuncia respectiva ante las autoridades judiciales, conforme a los procedimientos descritos y aprobados en este acuerdo.
