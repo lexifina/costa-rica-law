@@ -1,1 +1,0 @@
-TRANSITORIO SETIMO: En un plazo de seis meses contados a partir de la vigencia de este reglamento, el SFE, el MINAE y el MS elaborarán una propuesta para el agrupamiento de cultivos, con base en el cual se pueda simplificar el proceso de evaluación de la eficacia biológica de los plaguicidas, así como la evaluación del riesgo para la salud y el ambiente.

@@ -1,1 +1,0 @@
-Artículo 2º-Normas aplicables. Las disposiciones de la Ley General de Administración Pública sobre el procedimiento administrativo serán de aplicación obligatoria, en caso de ausencia de norma expresa en la misma, se aplicará este Reglamento
