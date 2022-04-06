@@ -14,3 +14,4 @@ Reglamento de Contratación Administrativa del Instituto del Café de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-04 | la propia norma |
+| 2 | 2022-04-06 | Reglamento 2352 (2022-04-06) |
