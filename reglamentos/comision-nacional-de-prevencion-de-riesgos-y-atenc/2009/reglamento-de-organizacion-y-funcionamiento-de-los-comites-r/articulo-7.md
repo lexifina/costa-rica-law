@@ -1,1 +1,0 @@
-Artículo 7º—El funcionario que es nombrado por la Junta Directiva en un comité será el representante de la institución a la que pertenece, por lo que su participación es oficial y nunca se entenderá como de carácter personal. A efectos de garantizar la participación institucional, los representantes oficiales deberán tener un suplente acreditado.

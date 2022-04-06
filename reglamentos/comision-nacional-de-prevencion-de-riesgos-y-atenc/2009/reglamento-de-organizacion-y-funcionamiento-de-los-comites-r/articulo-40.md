@@ -1,1 +1,0 @@
-Artículo 40.—La CNE en un período no mayor a seis meses coordinará con los Ministerios y demás instituciones públicas que corresponda para llevar a cabo la reglamentación de los comités asesores técnicos, los comités institucionales y de empresa establecidos en el Capítulo II, artículos 10 y 12 de la Ley Nacional de Emergencia y Prevención del Riesgo.

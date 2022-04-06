@@ -1,1 +1,0 @@
-Artículo 10.—En casos excepcionales, de personas con conocimientos y experiencia relevante en el Comité, el Departamento de Operaciones de la CNE por medio de la Dirección de Gestión en Desastres o la Dirección Ejecutiva, podrá nombrarlos con los deberes y obligaciones que este reglamento establece.

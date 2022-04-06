@@ -1,4 +1,0 @@
-Artículo 18.—La designación de los representantes avalados por la Junta Directiva o los representantes de la sociedad civil, en los diferentes cargos de los Comités, se hará de la siguiente forma:
-a. La designación de los representantes en los cargos definidos corresponde a los presentes en la asamblea de conformación del Comité, de acuerdo al procedimiento establecido para la elección en el manual de procedimientos para Comités de Prevención y Atención de Emergencias.
-b. La convocatoria y la asamblea de elección del órgano ejecutivo y áreas de trabajo, del nivel Regional y local, estará presidida por el Oficial de Enlace regional de la CNE.
-c. La convocatoria y la asamblea de elección del órgano ejecutivo y los Equipos de trabajo del nivel Comunal estará presidida por el Comité Municipal de Emergencia y Oficializada por el Departamento de Operaciones.

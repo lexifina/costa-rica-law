@@ -1,3 +1,0 @@
-CAPÍTULO III
-Del nombramiento y estructura de los Comités
-Artículo 6º—La conformación, nombramiento, reconocimiento de los Comités Regionales y Municipales de Emergencia será una actividad exclusiva de la CNE. Los Jerarcas de los órganos y entidades públicas, indicados en el artículo 3º, incisos a) y b), designarán ante la Junta Directiva de la CNE un representante con autoridad para integrar los comités de nivel regional y local, para ser nombrados en los mismos, acorde a lo establecido en el presente reglamento. La participación de los funcionarios públicos en dichos comités deberá considerarse parte de sus responsabilidades ordinarias, por lo que la representación institucional ante el comité es irrenunciable.

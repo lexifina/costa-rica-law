@@ -1,1 +1,0 @@
-Artículo 17.—Los coordinadores de las áreas de trabajo, deberán ser representantes institucionales, Organizaciones No Gubernamentales (ONG´s), empresa privada ó de la sociedad civil, con amplia y reconocida experiencia en el manejo de las emergencias. Deberán contar con la capacitación básica de la CNE.

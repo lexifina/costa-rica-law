@@ -1,1 +1,0 @@
-Artículo 39.—La CNE por medio del Departamento de Operaciones en un período de noventa días calendario, contados a partir de la publicación del presente Reglamento, actualizará el manual de procedimientos para Comités de Prevención y Atención de Emergencias, el cual se someterá a conocimiento y aprobación de la Junta Directiva.

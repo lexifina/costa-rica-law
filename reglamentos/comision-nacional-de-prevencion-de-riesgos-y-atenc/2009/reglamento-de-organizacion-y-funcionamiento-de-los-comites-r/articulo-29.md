@@ -1,1 +1,0 @@
-Artículo 29.—Además de las acciones previstas en los artículos 26, 27, 28, de este Reglamento, la CNE informará en detalle lo sucedido a la institución correspondiente a efectos de que se tomen las medidas que consideren pertinentes.
