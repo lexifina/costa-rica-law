@@ -1,0 +1,2 @@
+Artículo 52 quater.-Trámite. Una vez presentada la solicitud, la Junta Directiva analizará la procedencia y mediante acuerdo aprobará o rechazará la solicitud. Cuando el acuerdo se encuentre en firme, se le comunicará en el medio señalado por el colegiado, el resultado del trámite. La Junta Directiva atenderá la solicitud en un plazo prudencial de 30 días hábiles.
+(Así adicionado en sesión N° 0008 del 6 de abril de 2022)

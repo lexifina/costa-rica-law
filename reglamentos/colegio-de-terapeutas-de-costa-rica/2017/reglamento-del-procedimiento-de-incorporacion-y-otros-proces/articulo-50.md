@@ -1,5 +1,6 @@
 CAPÍTULO III
-Sobre la exoneración de pago de colegiatura por jubilación
+Sobre la jubilación
+(Así modificada la denominación del capítulo anterior en sesión N° 0008 del 6 de abril de 2022. Anteriormente se indicaba: "Sobre la exoneración de pago de colegiatura por jubilación")
 Artículo 50.-Requisitos. Para la solicitud de exoneración de pago de colegiatura por jubilación, el colegiado deberá presentar y entregar los siguientes documentos:
 a) El formulario respectivo debidamente completo, impreso y firmado.
 b) Original y copia de la cédula de identidad al día para nacionales. En caso de personas extranjeras, deberán aportar original y copia de la cédula de residencia o documento de identidad vigente.

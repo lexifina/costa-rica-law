@@ -17,3 +17,4 @@ Reglamento del procedimiento de incorporación y otros procesos afines del Coleg
 | 2 | 2018-08-24 | Reglamento 14 (2018-08-24) |
 | 3 | 2019-01-22 | Reglamento 2 (2019-01-22) |
 | 4 | 2021-08-11 | Reglamento 24 (2021-08-11) |
+| 5 | 2022-04-06 | Reglamento 8 (2022-04-06) |
