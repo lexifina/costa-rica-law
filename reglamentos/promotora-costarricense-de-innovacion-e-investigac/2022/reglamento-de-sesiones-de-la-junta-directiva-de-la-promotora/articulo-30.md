@@ -1,0 +1,2 @@
+Artículo 30.-Presentación de los particulares y uso de la palabra. Cuando concurriere a sesión uno o varios particulares, invitados, quien preside hará la presentación de rigor exponiendo los motivos de su presencia y de inmediato les concederá el uso de la palabra, por espacio de quince minutos para que hagan la exposición correspondiente.
+Se tratará en lo posible de que la exposición sea breve y concisa, y sólo en casos excepcionales quien preside podrá otorgarle un tiempo prudente adicional si así lo considera necesario.

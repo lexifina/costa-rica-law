@@ -1,0 +1,1 @@
+Artículo 38.-Sobre las comisiones para seleccionar personas beneficiarias. Para la creación y nombramiento de las comisiones encargadas de seleccionar personas beneficiarias de fondos y otros tipos de ayuda, se seguirá lo establecido en el artículo 30 de la Ley N° 7169 y en el 24 del Reglamento a la Ley de Creación de la Promotora Costarricense de Innovación e Investigación.

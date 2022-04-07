@@ -1,0 +1,1 @@
+Artículo 27.-Autorización de libros y actas. De conformidad con el artículo 22 inciso e) de la Ley General de Control Interno y el apartado 1.1.4 de las Normas para el ejercicio de la Auditoría Interna en el Sector Público, le corresponderá a la auditoría interna la legalización de libros y actas en forma física o digital, mediante la denominada "razón de apertura".

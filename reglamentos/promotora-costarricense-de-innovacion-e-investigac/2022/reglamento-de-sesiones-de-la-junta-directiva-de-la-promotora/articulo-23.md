@@ -1,0 +1,1 @@
+Artículo 23.-Inclusión de dictámenes de comisiones en el orden del día. Los dictámenes de las comisiones deben ser incluidos en el orden del día siguiendo el orden en que fueron presentados a la Gerencia General, en su condición de secretario de actas, para ese efecto, la Gerencia General, al recibir los dictámenes consignará al pie de ellos la hora y la fecha de la presentación.

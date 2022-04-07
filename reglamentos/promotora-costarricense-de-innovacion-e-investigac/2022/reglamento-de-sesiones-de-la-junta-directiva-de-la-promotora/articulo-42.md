@@ -1,0 +1,3 @@
+Artículo 42.-Recurso de revisión. Cualquier miembro de la Junta Directiva puede interponer recurso de revisión contra los acuerdos que no hubiesen sido declarados firmes.
+El recurso de revisión deberá ser planteado a más tardar al discutirse el acta y será resuelto al conocerse el acta de esa sesión, salvo que, por tratarse de un asunto que quien ejerce la presidencia considere urgente, prefiera conocerlo en sesión extraordinaria.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, así como las gestiones de adición o aclaración, no serán consideradas como motivos o causales del recurso de revisión.

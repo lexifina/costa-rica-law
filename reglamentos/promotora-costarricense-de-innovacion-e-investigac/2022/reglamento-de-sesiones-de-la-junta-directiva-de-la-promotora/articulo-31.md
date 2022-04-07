@@ -1,0 +1,1 @@
+Artículo 31.-Moderación de la participación de los particulares. Corresponde a quien preside el moderar las intervenciones de los particulares, llamarlos al orden y suspender la audiencia si el caso lo amerita.

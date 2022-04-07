@@ -1,0 +1,1 @@
+Artículo 18.-Modificación del orden del día. Las sesiones de la Junta Directiva se desarrollarán conforme con el orden previamente elaborado, la cual podrá ser modificado o alterado mediante acta aprobada por la Junta Directiva por mayoría calificada (dos terceras partes) de los miembros presentes.

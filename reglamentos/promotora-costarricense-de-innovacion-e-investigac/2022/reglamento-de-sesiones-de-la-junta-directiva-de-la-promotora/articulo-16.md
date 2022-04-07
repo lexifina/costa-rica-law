@@ -1,0 +1,1 @@
+Artículo 16.-Del rompimiento del quórum. Si en el transcurso de una sesión se rompiere el quórum, quien preside instará a los directivos que se hubieren retirado, para que se mantengan en la sesión. Transcurridos diez minutos sin que se pueda restablecer el quórum, se levantará la sesión, y se consignará en actas los nombres de los directivos que rompieron quórum.

@@ -1,0 +1,1 @@
+Artículo 29.-Notificación de la invitación a particulares. Corresponde a la Gerencia General, en su condición de secretaría, notificar oportunamente a los interesados, de las invitaciones a las audiencias que acuerde la Junta Directiva.

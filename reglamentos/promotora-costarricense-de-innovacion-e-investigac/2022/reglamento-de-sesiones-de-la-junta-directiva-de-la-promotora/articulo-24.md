@@ -1,0 +1,2 @@
+Artículo 24.-Iniciativas y/o mociones de los directivos. En el momento correspondiente, los directivos podrán plantear iniciativas y/o mociones por escrito y debidamente firmadas. En caso de que la audiencia sea virtual, compartirá en la plataforma el documento firmado digitalmente.
+El gerente general, en su condición de secretario de actas, anotará la hora y fecha en que fueron presentadas las proposiciones y serán conocidas en estricto orden de presentación, salvo cuando se trate de mociones de orden.

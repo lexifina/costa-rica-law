@@ -1,0 +1,1 @@
+Artículo 43.-Reforma, suspensión o derogación de disposiciones reglamentarias. Toda iniciativa o moción tendiente a adoptar, reformar, suspender o derogar las disposiciones reglamentarias debe ser presentada o acogida para su trámite por algún directivo y enviada a la comisión correspondiente para el estudio y dictamen.

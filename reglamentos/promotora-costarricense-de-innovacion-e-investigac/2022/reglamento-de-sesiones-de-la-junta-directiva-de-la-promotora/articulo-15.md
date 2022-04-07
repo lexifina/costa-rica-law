@@ -1,0 +1,2 @@
+Artículo 15.-De la ausencia de quórum. Las sesiones de la Junta Directiva deberán iniciarse dentro de los quince minutos siguientes a la hora señalada al efecto, conforme con el reloj del local donde se lleve a cabo la sesión o bien del reloj del dispositivo electrónico en caso de sesiones virtuales.
+Pasado los quince minutos si no hubiere quórum, se dejará constancia en el libro de actas y se consignará el nombre de los directivos presentes, a fin de acreditar su asistencia.

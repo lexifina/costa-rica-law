@@ -1,0 +1,3 @@
+Artículo 26.-Del levantamiento de actas. De toda sesión se levantará un acta en la que se hará constar los acuerdos tomados y las deliberaciones habidas, salvo en casos de nombramientos o elecciones, en los que se hará constar únicamente el acuerdo tomado.
+En el acta deben aparecer literalmente transcritos los motivos que los miembros de la Junta Directiva manifiesten cuando emitan voto contrario al acuerdo adoptado de conformidad con lo establecido en el artículo 5 inciso d) del presente reglamento.
+Las actas deberán ser firmadas por quien preside y por la persona que ejerce la gerencia general, en su condición de secretaría de actas, una vez que haya sido aprobada por la Junta Directiva.

@@ -1,0 +1,2 @@
+Artículo 32.-De la posibilidad de los directivos de intercambiar ideas con el particular. Finalizadas las exposiciones de los particulares, quien preside concederá la palabra a los directivos que lo soliciten con el fin de intercambiar brevemente opiniones con los visitantes sobre el asunto de que se trate.
+Quien preside también podrá preguntarles lo que estime necesario, pudiendo elegir si lo hace antes de otorgar la palabra a los otros directivos, o bien después de ellos.

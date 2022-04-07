@@ -1,0 +1,1 @@
+Artículo 20.-Revisión de acuerdos. Una vez leída el acta y antes de ser aprobada, cualquier directivo podrá plantear el recurso de revisión de acuerdos de conformidad con lo establecido en el artículo 55 de la Ley General de la Administración Pública.

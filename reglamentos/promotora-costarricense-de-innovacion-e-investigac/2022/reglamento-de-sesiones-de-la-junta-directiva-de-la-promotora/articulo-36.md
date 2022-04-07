@@ -1,0 +1,1 @@
+Artículo 36.-Presentación de dictámenes ante la Junta Directiva. Los dictámenes de las comisiones deberán presentarse por escrito y firmados por todos los miembros de la comisión que lo emiten. Cuando no existiere un acuerdo unánime sobre un dictamen y los miembros de la comisión que no lo aprueben, podrán rendir dictamen por separado si lo estiman conveniente.

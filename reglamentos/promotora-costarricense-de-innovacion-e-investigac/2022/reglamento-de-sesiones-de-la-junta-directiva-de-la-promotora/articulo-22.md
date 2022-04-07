@@ -1,0 +1,1 @@
+Artículo 22.-De las audiencias. La Junta Directiva recibirá audiencias los días que ésta acuerde, en las que las personas tendrán 15 minutos para hacer su exposición y se someterán a una breve discusión. El asunto se retomará en el momento en que se conocen las iniciativas y mociones de los directivos.
