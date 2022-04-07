@@ -1,0 +1,1 @@
+Artículo 2º-Deberá el Departamento de Información y Regularización Territorial del Sistema Nacional de Áreas de Conservación (SINAC), proceder a efectuar la debida coordinación con el Registro Nacional a través del Instituto Geográfico Nacional, en aras de actualizar lo concerniente en el Sistema Nacional de Información Territorial.
