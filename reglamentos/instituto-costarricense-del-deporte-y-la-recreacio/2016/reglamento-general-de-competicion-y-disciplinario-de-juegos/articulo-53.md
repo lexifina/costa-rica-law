@@ -1,3 +1,0 @@
-ARTÍCULO 53 PRUEBAS PARA DETECCIÓN DE COVID 19
-Las entidades deportivas encargadas de la administración de los eventos finales del programa de Juegos Deportivos Nacionales podrán realizar pruebas rápidas de antígenos para la detección de la COVID-19, el día antes o el mismo día de la competencia, de forma aleatoria.
-Los atletas con resultado positivo quedarán inmediatamente fuera de competencia. En el caso de deportes de conjunto se le realizará prueba a mínimo el 40% del total de atletas de cada equipo, en caso de que el 40% de las pruebas realizadas sean positivas el equipo quedará inmediatamente fuera de competencia, no se realizará reprogramación de partidos.

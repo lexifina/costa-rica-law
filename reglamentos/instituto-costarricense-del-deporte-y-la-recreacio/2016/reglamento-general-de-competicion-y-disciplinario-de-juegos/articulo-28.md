@@ -1,2 +1,0 @@
-ARTICULO 28 DEL SISTEMA DE ASIGNACION DE PUNTAJES EN DEPORTES INDIVIDUALES PARA DETERMINAR EL GANADOR POR RAMA
-Queda sin efecto. Rige nueva propuesta según oficio CNDR-0364-08-2021-Propuesta de Juegos Deportivos Nacionales 2020-2021.
