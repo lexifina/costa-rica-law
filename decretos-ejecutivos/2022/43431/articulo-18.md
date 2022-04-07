@@ -1,0 +1,2 @@
+Artículo 18°.- De la naturaleza de las sesiones. La Junta Directiva del SINEM, sesionará privadamente, pero podrá disponer, acordándolo así por unanimidad de sus miembros presentes, la participación del público en general o particular en las sesiones convocadas. A éstos participantes se les concede el derecho de participar en las deliberaciones con voz pero sin voto.
+La persona en calidad de Director (a) General del SINEM deberá asistir a las sesiones de la Junta Directiva con voz pero sin voto.

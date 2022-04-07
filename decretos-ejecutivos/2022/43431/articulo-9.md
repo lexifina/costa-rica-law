@@ -1,0 +1,1 @@
+Artículo 9º.- Plazo de nombramiento. El nombramiento de estos miembros, lo hará la persona que se desempeñe en calidad de Ministro (a) de Cultura y Juventud, mediante Resolución Administrativa. Dichos nombramientos serán por un término de cuatro años; y desempeñarán sus cargos en forma ad honorem.

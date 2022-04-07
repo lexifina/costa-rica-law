@@ -1,0 +1,2 @@
+Artículo 17º-. Quórum. Para que la Junta Directiva pueda sesionar válidamente, su quórum deberá estar conformado por la mayoría absoluta de sus miembros. En el caso de esta Junta Directiva la mayoría absoluta la conforman cinco miembros.
+Si a la hora citada en la convocatoria no hubiere quórum, la Junta Directiva podrá sesionar válidamente en segunda convocatoria con un quórum mínimo de 3 de sus miembros, veinticuatro horas después de la hora señalada para la primera, salvo casos de urgencia en que podrá sesionar media hora después de la convocatoria inicial.

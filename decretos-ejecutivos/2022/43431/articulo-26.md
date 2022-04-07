@@ -1,0 +1,1 @@
+Artículo 26°.- De la delegación de funciones. De conformidad con el artículo 5 inciso e) de la Ley del SINEM, la Junta Directiva podrá delegar la aprobación de las contrataciones directas de bienes y servicios y de convenios en el (la) Director (a) General, previa resolución de la Junta Directiva.

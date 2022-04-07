@@ -1,0 +1,1 @@
+Artículo 3º.- Naturaleza. El SINEM es un órgano desconcentrado en grado mínimo del Ministerio de Cultura y Juventud y ostenta personalidad jurídica instrumental. Por esta condición, administra su propio presupuesto y le corresponde la competencia exclusiva de la materia derivada, a tenor de lo dispuesto en el artículo 1º de su Ley de creación.

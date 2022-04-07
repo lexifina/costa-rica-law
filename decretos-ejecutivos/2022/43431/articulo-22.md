@@ -1,0 +1,1 @@
+Artículo 22°.- Del recurso de Reposición. Contra los acuerdos tomados por la Junta Directiva del SINEM, cualquier interesado podrá interponer recurso de reposición. Este recurso deberá interponerse ante el propio Órgano Colegiado en la oficina de la Dirección General del SINEM, dentro de los tres días hábiles siguientes a la notificación del acuerdo al particular.

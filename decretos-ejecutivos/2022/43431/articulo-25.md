@@ -1,0 +1,3 @@
+Artículo 25°.- De la aprobación de Convenios de Cooperación con entes de naturaleza pública y privada. El SINEM tendrá la potestad de firmar convenios de cooperación con entes de naturaleza pública o privada, para apoyar proyectos de acción musical, que estén alineados a la misión y visión de la institución y donde el SINEM aportará recursos de acuerdo a su capacidad institucional, siempre y cuando:
+a. Cuenten con la aprobación de la Junta Directiva, la cual priorizará la apertura de nuevos convenios de cooperación.
+b. Cumplan con los requisitos de acreditación que solicita la institución para la creación de su expediente.
