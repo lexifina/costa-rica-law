@@ -1,0 +1,1 @@
+ARTÍCULO 6- Se le asignará un porcentaje del presupuesto del canon de aguas correspondiente al Área de Conservación La Amistad Pacífico, el cual se establecerá vía reglamento, para el financiamiento de las actividades de manejo de los ecosistemas de humedal.
