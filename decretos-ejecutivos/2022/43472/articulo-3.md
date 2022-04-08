@@ -1,0 +1,1 @@
+Artículo 3º.-Las recodificaciones incluidas en este Decreto, tanto de los ingresos como de los gastos y su desglose en los niveles de programa, subprograma, partida y subpartida presupuestaria estarán disponibles también en la página electrónica del Ministerio Hacienda en la siguiente dirección: http://www.hacienda.go.cr/contenido/12485-modificaciones-presupuestarias.
