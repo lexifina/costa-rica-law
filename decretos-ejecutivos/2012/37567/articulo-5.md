@@ -1,5 +1,5 @@
 Sección II
-PLATAFORMA CONSULTIVA
-Artículo 5° – Plataforma consultiva
-Se crea una plataforma consultiva que tiene como objetivo servir como espacio de coordinación, consulta, intercambio y asesoría para la construcción participativa y ejecución de los instrumentos necesarios para la aplicación de la ley No. 8839 y sus reglamentos. Esta plataforma se regirá por lo establecido en la Ley General de Administración Pública para órganos colegiados. El quórum y las demás disposiciones sobre este órgano colegiado se regirán por el Capítulo III de la Ley General de la Administración Pública, Ley No. 6227 del 2 de mayo de 1978, concerniente a los Órganos Colegiados.
-Esta plataforma tendrá su sede en el Ministerio de Salud, quien la coordinará.
+Comisión Multinivel
+(Así modificada la denominación de la sección anterior por el artículo 1° del decreto ejecutivo N° 43450 del 8 de abril de 2022)
+Artículo 5° - De la creación de la Comisión Multinivel en Gestión Integral de Residuos. Se crea la Comisión Multinivel en Gestión Integral de Residuos que tiene como objetivo servir como espacio de coordinación, consulta, intercambio y asesoría para la construcción participativa y ejecución de los instrumentos necesarios para la aplicación de la Ley No. 8839 y sus reglamentos. La Comisión Multinivel se regirá para su organización y funcionamiento por lo establecido en el Libro Primero "Del Régimen Jurídico", Título Segundo "De los Órganos de la Administración", Capítulo Tercero "De los Órganos Colegiados" de la Ley N° 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública", concerniente a los Órganos Colegiados. La Comisión será coordinada por el Ministerio de Salud.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43450 del 8 de abril de 2022)

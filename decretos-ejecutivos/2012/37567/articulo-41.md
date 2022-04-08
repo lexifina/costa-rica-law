@@ -1,2 +1,2 @@
-Artículo 41° - Del fondo para la Gestión Integral de Residuos
-Los recursos provenientes de la aplicación de la Ley No. 8839, ingresarán a la cuenta 73911121100018305 “Ministerio de Salud – Ley de Residuos”.
+Artículo 41° - De las cuentas del Fondo para la Gestión Integral Residuos. De conformidad con el artículo 185 Constitucional sobre el Principio de Caja Única del Estado y el 30 de la Ley 8839 del 24 de junio del 2010 "Ley para la Gestión Integral de Residuos" los recursos provenientes de la aplicación de la Ley de cita ingresarán a las cuentas asignadas por la Tesorería Nacional y notificadas a través de los medios electrónicos oficiales publicados en la página web del Ministerio de Hacienda y se encontrarán disponibles en la página web del Ministerio de Salud, www.ministeriodesalud.go.cr.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43450 del 8 de abril de 2022)
