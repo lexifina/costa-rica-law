@@ -1,0 +1,4 @@
+Transitorio Único- Las personas que actualmente se desempeñen como alcaldes, alcaldesas, intendentes o intendentas, y ya han sido elegidas en sus cargos, por al menos dos períodos consecutivos, deberán esperar a que transcurran dos períodos para poder volver a ocupar cualquier puesto de elección popular del régimen municipal.
+Las personas que actualmente se desempeñen como vicealcaldes, vicealcaldesas, viceintendentes y viceintendentas, regidores y regidoras propietarios y suplentes, síndicos y síndicas propietarias y suplentes, y ya han sido elegidas en sus cargos, por al menos dos períodos consecutivos, deberán esperar a que transcurran dos períodos para poder volver a ocupar el mismo puesto de elección popular del régimen municipal; sin embargo, podrán ocupar otros puestos municipales de conformidad con la presente ley.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los cinco días del mes de abril del año dos mil veintidós.
