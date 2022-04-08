@@ -1,0 +1,1 @@
+TRANSITORIO 2. Las solicitudes de registro que a la entrada en vigencia del presente reglamento se encuentren en trámite, podrán acogerse a las disposiciones de este reglamento a solicitud expresa del interesado.
