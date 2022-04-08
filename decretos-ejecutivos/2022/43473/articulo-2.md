@@ -1,0 +1,1 @@
+Artículo 2º- El Ministerio de Educación Pública, el Ministerio de Salud y el Instituto Costarricense del Deporte y la Recreación, incluirán anualmente la celebración del Día Nacional del Juego Limpio en el Deporte en sus calendarios de actividades.
