@@ -1,0 +1,1 @@
+Artículo 7º-Participación en actividades de capacitación. Todo el personal de RECOPE S. A., su alta jerarquía, incluidos los miembros de su Junta Directiva, tendrán la obligación de participar en las actividades de capacitación, formación y acciones relacionadas con el tema de hostigamiento sexual, a las que sean convocados.

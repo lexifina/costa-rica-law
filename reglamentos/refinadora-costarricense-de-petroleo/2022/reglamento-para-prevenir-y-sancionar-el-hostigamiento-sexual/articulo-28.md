@@ -1,0 +1,2 @@
+Artículo 28.-Del plazo para interponer la denuncia y prescripción de la potestad sancionadora. Conforme a lo dispuesto por el artículo 38 de la Ley 7476, el plazo para interponer la denuncia se considerará de ocho años y se computará a partir del último hecho consecuencia del hostigamiento sexual o a partir de que cesó la causa justificada que le impidió denunciar.
+El plazo de prescripción de la potestad sancionadora se computará de conformidad con el Título Noveno del Código de Trabajo.

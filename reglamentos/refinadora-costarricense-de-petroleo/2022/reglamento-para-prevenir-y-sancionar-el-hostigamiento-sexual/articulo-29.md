@@ -1,0 +1,2 @@
+Artículo 29.-Del expediente administrativo. El expediente administrativo contendrá toda la documentación relativa a la denuncia, la prueba recabada en su investigación y las actas que se emitan, además, debe mantenerse foliado y ordenado cronológicamente.
+En todo momento, las partes y sus representantes legales tendrán acceso a todas las piezas que conforman el expediente administrativo.

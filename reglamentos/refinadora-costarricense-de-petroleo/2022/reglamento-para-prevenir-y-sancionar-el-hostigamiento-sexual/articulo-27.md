@@ -1,0 +1,1 @@
+Artículo 27.-De las sanciones. Las sanciones por hostigamiento sexual se aplicarán al personal de RECOPE, según la gravedad del hecho y según el tipo de sanciones que señala la Ley 7476, la Convención Colectiva vigente y el Código de Trabajo.

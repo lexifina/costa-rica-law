@@ -1,0 +1,3 @@
+Artículo 2º-Ámbito de aplicación. Este reglamento regirá para todas las personas trabajadoras en cualquier nivel jerárquico, internos o externos a la Empresa y personas usuarias del servicio.
+Se entenderá por personal externo, al personal tercerizado, servicios profesionales, contratista, pasantes o cualquier otra persona que presta un servicio en la empresa sin tener un vínculo laboral con RECOPE.
+Se entenderá como personas usuarias, quienes no siendo personal de RECOPE se presenten a las instalaciones de la Empresa a realizar alguna gestión, trámite o requerimiento de servicio, así como quienes realizan alguna práctica supervisada.
