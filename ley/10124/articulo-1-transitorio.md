@@ -1,0 +1,3 @@
+TRANSITORIO ÚNICO- El Poder Ejecutivo deberá formular un Plan General de Manejo del Humedal San Vito y dictará las reglamentaciones necesarias para la autorización de acciones d1a rehabilitación ecosistémica y gestión adaptativa en las áreas de compensación que requieran acciones de esta naturaleza , en el plazo de un año a partir de la inscripción a nombre del Ministerio de Ambiente y Energía (Minae), para lo cual dicho plan de manejo deberá contemplar una estrategia de financiamiento para la ejecución de expropiaciones cuando así lo requiera .
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los dieciocho días del mes de marzo del año dos mil veintidós-.

@@ -1,0 +1,1 @@
+ARTÍCULO 7- Se autoriza a la Junta de Desarrollo Regional de la Zona Sur, para que asigne recursos ·financieros para el desarrollo de actividades dirigidas a la generación de empleo y al fomento de la actividad turística relacionada con los humedales de San Vito de Coto Brus.

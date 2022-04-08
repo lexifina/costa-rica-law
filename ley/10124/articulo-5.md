@@ -1,0 +1,1 @@
+ARTÍCULO 5- El ecosistema de humedal deberá contar con un plan de manejo que garantice la conservación de los ecosistemas, la participación de la sociedad civil, el involucramiento de las instituciones públicas y privadas, así como la implementación de actividades que fomenten la generación de empleo, la educación, el turismo y la investigación.
