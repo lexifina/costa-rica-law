@@ -1,2 +1,0 @@
-Artículo 6º—Los profesionales que se acojan a este Régimen podrán renunciar a los beneficios que estos otorguen, comunicándolo con dos o más meses de anticipación, pero no podrán firmar de nuevo contrato antes de dos años de haber presentado esa renuncia.
-Si alguien renunciare por segunda vez, no podrá a partir de entonces acogerse a tales beneficios. Todos los movimientos contemplados en el presente artículo tendrán que hacerse efectivos mediante una acción de personal que se insertará en su expediente y será del conocimiento del Alcalde Municipal según corresponda.

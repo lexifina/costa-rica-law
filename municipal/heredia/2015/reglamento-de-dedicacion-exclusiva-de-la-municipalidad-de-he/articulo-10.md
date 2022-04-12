@@ -1,2 +1,0 @@
-Artículo 10.—el Consejo Municipal según corresponda a la Alcaldía Municipal a través de su Alcalde con la ayuda de la Oficina de Talento Humano aprobara o improbara los contratos de Dedicación Exclusiva en un plazo no mayor de diez días hábiles, contados a partir de la fecha de presentación.
-Una vez aprobado el contrato respectivo, la Municipalidad procederá a través de la Oficina de Recursos Humanos a confeccionar la Acción de Personal, la cual deberá seguir el trámite usual que rige en la Institución.
