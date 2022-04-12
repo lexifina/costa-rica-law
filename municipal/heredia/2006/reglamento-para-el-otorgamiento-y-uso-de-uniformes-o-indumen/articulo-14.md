@@ -1,1 +1,0 @@
-Artículo 14.—La Proveeduría Municipal, las Jefaturas respectivas y el Departamento de Recursos Humanos deberán coordinar sus acciones para llevar un estricto control e inventario de la indumentaria que se confeccione y entregue a los funcionarios.

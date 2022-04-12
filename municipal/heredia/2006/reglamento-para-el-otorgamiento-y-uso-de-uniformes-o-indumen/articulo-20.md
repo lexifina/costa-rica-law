@@ -1,1 +1,0 @@
-Artículo 20.—Para la aplicación de toda sanción por incumplimiento a las disposiciones de este Reglamento, se deberá seguir el procedimiento especial establecido en los Artículos Nos. 149 y 150 del Código Municipal y supletoriamente, la normativa de la Ley General de la Administración Pública.

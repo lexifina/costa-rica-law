@@ -1,1 +1,0 @@
-Artículo 10.—La fiscalización sobre el uso adecuado y correcto del uniforme, según las disposiciones de este Reglamento, corresponde a los jefes y directores correspondientes y al Departamento de Recursos Humanos.
