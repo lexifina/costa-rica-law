@@ -14,3 +14,4 @@ Reglamento de Organización y Funciones de la Auditoría Interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-23 | la propia norma |
+| 2 | 2022-04-12 | Reglamento municipal 15 (2022-04-12) |

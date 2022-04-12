@@ -1,0 +1,2 @@
+Artículo 75.-Cumplimiento de normativa jurídica y técnica. La persona auditora interna deberá vigilar y tomar las decisiones que correspondan para que los funcionarios de la Auditoría Interna cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas (institucionales y de la auditoría interna) que les sean aplicables.
+(Así adicionado en sesión N° 15 del 12 de abril de 2022)

@@ -1,1 +1,2 @@
-Artículo 65.—Difusión de resultados. El Auditor Interno, debe disponer la difusión de los resultados a las partes apropiadas.
+Artículo 65.-Supervisión del proyecto. El Auditor Interno debe establecer y mantener como parte vital y permanente de la actividad de la Auditoría Interna, un Sistema de seguimiento a las recomendaciones, observaciones y demás resultantes de su gestión para asegurarse de su oportuna, adecuada y eficaz atención por parte de la administración. Ese sistema debe incluir los resultados de las evaluaciones realizadas por los auditores externos, la Contraloría General y demás instituciones de control y fiscalización que correspondan.
+(Así reformado en sesión N° 15 del 12 de abril de 2022)

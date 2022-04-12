@@ -1,1 +1,1 @@
-Artículo 50.—Cualidades de la información. Los funcionarios de la Auditoría Interna deben identificar información suficiente, confiable, relevante y útil de manera tal que les permita alcanzar los objetivos del trabajo.
+Artículo 50.-Cualidades de la información. (Excluido en sesión N° 15 del 12 de abril de 2022)

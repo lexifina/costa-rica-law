@@ -1,0 +1,2 @@
+Artículo 71.-Seguimiento autorización de libros. La auditoría interna hará un seguimiento periódico del control individual de autorización de libros para verificar que las dependencias correspondientes mantengan el principio de continuidad en las operaciones financieras y administrativas que deben registrarse en libros autorizados por la Auditoria Interna.
+(Así adicionado en sesión N° 15 del 12 de abril de 2022)
