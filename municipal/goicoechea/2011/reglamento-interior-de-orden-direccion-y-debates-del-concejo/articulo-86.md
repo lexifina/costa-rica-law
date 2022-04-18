@@ -1,1 +1,0 @@
-Artículo 86.—El Alcalde Municipal presentará al Concejo Municipal el informe trimestral de ejecución del presupuesto ordinario y de los extraordinarios. La liquidación presupuestaria deberá ser presentada para su aprobación de acuerdo a lo establecido por la Contraloría General de la República.
