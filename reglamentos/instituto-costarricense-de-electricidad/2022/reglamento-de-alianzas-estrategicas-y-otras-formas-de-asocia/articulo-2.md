@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. El presente Reglamento debe ser aplicado por las dependencias a cargo de la formulación, evaluación, aprobación, y gestión de alianzas estratégicas o cualquier otra forma de Asociación Empresarial en el ICE. 2022-04-01 0012-280-2022 Página 4 de 33 Artículo.

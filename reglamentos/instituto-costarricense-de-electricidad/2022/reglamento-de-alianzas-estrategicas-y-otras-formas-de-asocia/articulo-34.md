@@ -1,0 +1,3 @@
+Artículo 34.-De la Unidad Ejecutora:
+1. La Unidad Ejecutora deberá presentar informes ejecutivos a la Gerencia respectiva, según la periodicidad definida por ésta, a fin de reportar los hallazgos, alertas y recomendaciones del Administrador del Acuerdo o la propia Unidad Ejecutora, sobre las Asociaciones en proceso de ejecución, con el propósito de que sean tomadas las medidas preventivas o correctivas pertinentes.
+2. La Unidad Ejecutora dará seguimiento a las medidas preventivas o correctivas emprendidas a partir de lo indicado en el punto anterior, e incluirá en sus siguientes informes hacia la Gerencia respectiva, el estado de ejecución de dichas medidas.
