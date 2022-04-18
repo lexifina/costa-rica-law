@@ -1,0 +1,1 @@
+ARTÍCULO 3- Destino. Los tres lotes donados por la Junta de Educación Escuela María Vargas Rodríguez Ciruelas Alajuela, descritos en el artículo 1 se afectan a un nuevo uso para desarrollar el Equipo Básico de Atención Integral en Salud (Ebais) de Ciruelas, así como otras obras comunales.
