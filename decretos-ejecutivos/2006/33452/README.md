@@ -15,3 +15,4 @@ Reglamento del Sistema de Ventanilla Única de Comercio Exterior
 | --- | --- | --- |
 | 1 | 2006-12-07 | la propia norma |
 | 2 | 2007-01-09 | Decreto Ejecutivo 33690 (2007-01-09) |
+| 3 | 2022-04-18 | Decreto Ejecutivo 43479 (2022-04-18) |

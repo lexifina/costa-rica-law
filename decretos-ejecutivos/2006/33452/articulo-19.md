@@ -1,0 +1,2 @@
+Articulo 19.- Invitados. El Consejo Director, mediante acuerdo de su􀁿· miembros, podrá invitar y convocar a sus sesiones a representantes de otras entidades, instituciones u organizaciones públicas o privadas, cuya actividad tenga relación con los objetivos de la VUCE, o cuando su participación se considere oportuna para analizar aspectos específicos.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 43479 del 18 de abril de 2022)

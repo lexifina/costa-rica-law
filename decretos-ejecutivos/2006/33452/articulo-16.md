@@ -1,1 +1,2 @@
-Artículo 16.—Derógase el Reglamento del Sistema de Ventanilla Única de Comercio Exterior y de Trámites Fronterizos, Decreto Ejecutivo Nº 23141-COMEX-H-MIRENEM-MAG-MOPT-MP-S-GOB-SP-J del 17 de marzo de 1994, publicado en el Diario Oficial La Gaceta Nº 80 del 27 de abril de 1994.
+Artículo 16.- Asistencia. Para cada sesión que celebre el Consejo Director, la Coordinación Técnica levantará un registro de asistencia de los miembros, sobre la base de las convocatorias formuladas por el presidente. En ese registro se deberá consignar, al menos, nombre completo, número de identificación y organización o instancia que representen los miembros y demás asistentes.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 43479 del 18 de abril de 2022)

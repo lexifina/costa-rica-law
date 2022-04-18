@@ -1,2 +1,5 @@
-Artículo 17.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República.—San José, a los quince días del mes de junio del año dos mil seis.
+Artículo 17.- Actas. De cada sesión. la Coordinación Técnica levantará un acta que contendrá la indicación de las personas asistentes y la entidad u organización que representan, las circunstancias del lugar, la hora y el tiempo en que se ha celebrado, los puntos principales que se discutieron de conformidad con la agenda aprobada, y el contenido de los acuerdos tomados, en caso de que existan.
+Las actas serán remitidas a los miembros del Consejo Director utilizando medios electrónicos institucionales dentro del plazo máximo de un mes natural de realizada la sesión.
+Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros asistentes.
+Las actas serán firmadas por el presidente y por aquellos miembros que hubieren hecho constar su voto disidente, y quedarán a disposición de los miembros del Consejo para su consulta en la sede de la Coordinación Técnica o bien serán facilitadas por medios electrónicos a solicitud de cualquiera de los miembros del Consejo Director.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 43479 del 18 de abril de 2022)

@@ -1,0 +1,2 @@
+Artículo 23.- Recursos. Los órganos y entes de la Administración Pública, cuyas competencias se relacionen con temas de la VUCE, y organizaciones del sector privado, dentro del marco legal respectivo, podrán contribuir con recursos, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para el cumplimiento de las funciones, buen funcionamiento y desarrollo de la VUCE y su expansión.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 43479 del 18 de abril de 2022)

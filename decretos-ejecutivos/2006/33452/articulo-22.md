@@ -1,0 +1,4 @@
+SECCIÓN IV: Cooperación y Recursos Interinstitucionales.
+Artículo 22.- Cooperación. Para el desempeño de sus funciones, el Consejo Director y la Coordinación Técnica se apoyará en las capacidades operativas y administrativas existentes, los recursos presupuestarios y humanos disponibles en las instituciones que lo conforman, en estricto apego a sus competencias legales y a sus independencias administrativas.
+Las acciones a ejecutar por parte del Consejo Director y la Coordinación Técnica podrán apoyarse en los recursos y cooperación de otras instituciones, órganos y entes públicos,· organizaciones privadas o bien, de organismos regionales e internacionales que fomenten, promuevan, asistan o colaboren con los objetivos de la VUCE y su expansión.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 43479 del 18 de abril de 2022)

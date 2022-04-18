@@ -1,15 +1,11 @@
-Artículo 11.—El Consejo estará constituido e integrado por los siguientes miembros, quienes no devengarán dietas:
-a) El Ministro de Comercio Exterior o su representante.
-b) El Ministro de Agricultura y Ganadería o su representante.
-c) El Ministro de Salud o su representante.
-d) El Ministro de Hacienda o su representante.
-e) El Gerente General de la Promotora del Comercio Exterior de Costa Rica o su representante.
-f) Un representante del sector exportador designado por la Cámara de Exportadores de Costa Rica (CADEXCO).
-g) Un representante designado por la Cámara de Industrias de Costa Rica.
-h) Un representante designado por la Cámara de Comercio de Costa Rica.
-i) Un representante designado por la Cámara de Agricultura.
-j) Dos representantes del sector empresarial designados por la Unión Costarricense de Cámaras y Asociaciones de la Empresa Privada (UCCAEP).
-Los jerarcas de las instituciones señaladas en los incisos a) b) c) d) y e) anteriores, podrán designar un representante titular y uno suplente ante el Consejo.
-El Consejo Director, mediante acuerdo, podrá invitar y convocar a sus sesiones a representantes de instituciones públicas o del sector privado, cuya actividad incida en las materias de su competencia, cuando lo considere oportuno para analizar aspectos específicos.
-Asimismo, para el cumplimiento de sus objetivos, el Consejo Director podrá conformar comisiones de trabajo ad hoc que analicen y desarrollen temas específicos, en las cuales podrá integrar especialistas del sector público o privado, de acuerdo con la materia de que se trate.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 33690 del 9 de enero de 2007)
+SECCIÓN II: Consejo Director de la VUCE.
+Artículo 11.-Funciones. El Consejo Director, de conformidad con el inciso c) del artículo 8 de la Ley Nº 7638 del 30 de octubre de 1996, y de conformidad con los objetivos establecidos en el artículo 2) del presente Reglamento, tendrá las siguientes funciones:
+a) Coordinar y liderar los esfuerzos e iniciativas de las diferentes instancias en la implementación y operación de sistemas y procedimientos de comercio exterior modernos, transparentes, ágiles y eficientes que faciliten el comercio, estimulando la competitividad del país y la atracción de inversión local y extranjera.
+b) Apoyar y dar seguimiento a la elaboración de propuestas para el desarrollo de sistemas informáticos relacionados con proyectos de facilitación del comercio.
+c) Analizar y emitir recomendaciones sobre la aplicación e innovación tecnológica en materia de sistemas y procedimientos de gestión del comercio exterior.
+d) Formular propuestas de capacitación o cooperación que promuevan el uso de las tecnologías de la información en los sistemas y procedimientos de gestión del comercio exterior.
+e) Colaborar en la búsqueda de recursos y mecanismos que permitan financiar la operación y mejoras de la VUCE y su expansión.
+j) Colaborar en la formulación de propuestas conjuntas con los órganos y entes públicos que permitan la interoperabilidad de los procesos de comercio exterior con los socios comerciales del país.
+g) Fungir como comisión técnica permanente del Consejo Nacional de Facilitación de Comercio, en relación con las competencias que abarcan sus objetivos y funciones.
+h) Cualquier otra que, en su condición de Comisión Técnica del CONAFAC, este órgano le encomiende.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 43479 del 18 de abril de 2022)
