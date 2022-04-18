@@ -1,0 +1,1 @@
+ARTÍCULO 4- Cláusula reversibilidad. En caso de que se varíe el uso original de los inmuebles o se disuelva la persona jurídica beneficiaria, la propiedad del terreno donado volverá a ser de la Junta de Educación Pública y deberá inscribirse esta condición y limitación como un gravamen sobre ese inmueble.
