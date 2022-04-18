@@ -14,3 +14,4 @@ Definición del parámetro de la naturaleza estratégica de los servicios para e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-12 | la propia norma |
+| 2 | 2022-04-18 | Reglamento 0 (2022-04-18) |
