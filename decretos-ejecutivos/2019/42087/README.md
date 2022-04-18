@@ -14,3 +14,4 @@ Lineamientos generales de gestión de desempeño de las personas servidoras púb
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-10 | la propia norma |
+| 2 | 2022-04-18 | Decreto Ejecutivo 43476 (2022-04-18) |

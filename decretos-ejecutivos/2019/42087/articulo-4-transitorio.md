@@ -1,0 +1,2 @@
+Transitorio IV.-El Diccionario de competencias del Título II del Estatuto de Servicio Civil, Ley N° 1581, a cargo de la Dirección General de Servicio Civil, se emitirá a más tardar el primer semestre del año 2022, garantizando el correcto desarrollo del modelo de evaluación del desempeño del Ministerio de Educación Pública previsto para el año 2023.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 43476 del 18 de abril de 2022)
