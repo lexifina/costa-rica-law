@@ -1,0 +1,4 @@
+Artículo 12.-Protección a testigos y víctima, por parte del órgano decisor, director y demás instancias de la institución.
+a) Fiscalizar que la víctima y las personas testigos no sufran represalias, en caso de que así se denuncie, recomendar al jerarca o instancia correspondiente, la toma de medidas correspondientes.
+b) Recomendar la apertura de los procedimientos respectivos contra el personal que entorpezcan la investigación, incumplan el deber de confidencialidad o incumplan las obligaciones que derivan de la ley y el reglamento.
+c) A cada testigo, previo a su declaración, se deberá leer textualmente la disposición contenida en el artículo 14 de la Ley N°. 7476 citada. Asimismo, se le deberá hacer el señalamiento legal de que existen penas de prisión por el falso testimonio o perjurio, según sea el caso.

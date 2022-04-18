@@ -1,0 +1,3 @@
+Artículo 7º-Plazo para interponer la denuncia y prescripción. El plazo para interponer la denuncia será de ocho años, computado a partir del último hecho constitutivo del supuesto hostigamiento sexual o a partir del cese de la causa justificada que le impidió denunciar. El plazo de prescripción es el de un mes previsto en el artículo 414 del Código de Trabajo.
+En el caso de las personas menores de edad, este plazo se computará a partir del momento en el que alcancen la mayoría de edad.
+La Administración podrá dictar resolución de suspensión del plazo que interrumpe el cómputo del término de prescripción, mediante acto motivado.

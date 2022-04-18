@@ -1,0 +1,1 @@
+Artículo 19.-Recursos. Contra las resoluciones procederán los recursos establecidos en la Ley General de la Administración Pública, y la Convención Colectiva vigente del Banco Nacional, los cuales deberán ser planteados dentro de los términos de Ley.

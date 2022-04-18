@@ -1,0 +1,2 @@
+Artículo 13.-Orientación Profesional: Conforme a lo establecido en el presente reglamento, las partes involucradas en un aparente hostigamiento o acoso sexual podrán solicitar a la Dirección Corporativa de Desarrollo Humano y unidades homólogas en las Subsidiarias, asesoría profesional psicológica o trabajo social, para canalizar su situación personal.
+Esta deberá designar el apoyo requerido para su atención, dicha persona estará obligada a proporcionar información y asesoría en condiciones de absoluta confidencialidad.

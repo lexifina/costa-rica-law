@@ -1,0 +1,1 @@
+Artículo 11.-Deber de Colaboración. Toda dependencia y el personal del CFBNCR están en la obligación de brindar su colaboración cuando así se solicite por el órgano decisor para facilitar su labor y el cabal desempeño del procedimiento.

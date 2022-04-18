@@ -1,0 +1,1 @@
+Artículo 24.-Sanciones por incumplimiento. En caso de incumplimiento de las obligaciones establecidas en la Ley y en este capítulo del reglamento, el personal responsable será sancionado, de conformidad con lo que se determine en el marco de un debido proceso.
