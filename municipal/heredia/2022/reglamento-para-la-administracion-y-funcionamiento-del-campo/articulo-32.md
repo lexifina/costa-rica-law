@@ -1,0 +1,1 @@
+Artículo 32.-Permanencia. El Campo Ferial será entregado al ente autorizado según Ley 8533. Regulación de las Ferias del Agricultor, los viernes y será recibido los sábados de cada semana. El ente autorizado según Ley 8533. Regulación de las Ferias del Agricultor, deberá velar por que esto se cumpla.

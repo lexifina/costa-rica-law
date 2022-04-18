@@ -1,0 +1,4 @@
+Artículo 29.-Ingreso de productos. Las personas productoras podrán ingresar al Campo Ferial a la descarga e instalación de productos en el espacio que les sea asignado en el siguiente horario:
+. Viernes de 5am a 9am pueden ingresar por el parqueo este y por el parqueo oeste. Después de las 9am no pueden ingresar para la descarga de productos salvo por razones de fuerza mayor o casos fortuitos debidamente justificados.
+. Sábados de 5am a 6am pueden ingresar por el parqueo este y por el parqueo oeste. Después de las 6am no pueden ingresar para la descarga de productos salvo por razones de fuerza mayor o casos fortuitos debidamente justificados.
+. Sábados de las 2pm a las 6pm para retirar los productos y retirarse de las instalaciones pueden ingresar por el parqueo este y por el parqueo oeste.

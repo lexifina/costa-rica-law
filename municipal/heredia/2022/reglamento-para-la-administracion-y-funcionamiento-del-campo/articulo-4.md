@@ -1,0 +1,1 @@
+Artículo 4º-Propiedad del Campo Ferial. El Campo Ferial es propiedad de la Municipalidad de Heredia, destinado a servir a la comunidad y a satisfacer el interés público, por lo que las personas arrendatarias, mutuatarias y usuarias no tendrán dominio sobre él.

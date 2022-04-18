@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Las disposiciones contenidas en este Reglamento serán aplicables para la Administración del Campo Ferial del cantón de Heredia, personas arrendatarias, mutuatarias y usuarias del inmueble.

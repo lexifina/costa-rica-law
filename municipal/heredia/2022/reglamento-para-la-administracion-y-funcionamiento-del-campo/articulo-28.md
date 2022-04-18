@@ -1,0 +1,1 @@
+Artículo 28.-Espacios. Los espacios para arrendamiento a las personas productoras de la Feria del Agricultor serán delimitados por el ente autorizado según Ley 8533. Regulación de las Ferias del Agricultor, quien los identificará por medio de enumeración, de acuerdo con la sección en que se ubiquen, y su respectiva dimensión.
