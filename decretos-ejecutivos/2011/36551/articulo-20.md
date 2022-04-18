@@ -1,1 +1,0 @@
-Artículo 20.—Inclusión del reporte de laboratorio de los análisis fisicoquímicos. Anexo al reporte operacional deberá incluirse el original del reporte de los resultados de los análisis fisico-químicos del laboratorio.

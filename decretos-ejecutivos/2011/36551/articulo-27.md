@@ -1,2 +1,0 @@
-Artículo 27.—El incumplimiento a las disposiciones establecidas en el presente Reglamento, dará lugar a la aplicación de las sanciones y medidas especiales que señala la Ley General de Salud, en respeto al debido proceso y derecho a defensa del administrado.
-Además, las autoridades de salud podrán presentar la denuncia ante el Tribunal Ambiental Administrativo, según los procedimientos establecidos para tal fin, así como en la vía penal ante el Ministerio Público de acuerdo al Artículo 281, inciso a), del Código Procesal Penal y Artículo 322 del Código Penal.
