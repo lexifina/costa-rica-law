@@ -2,8 +2,8 @@ Capítulo XI
 Libre transferencia y traslado de recursos
 Sección I
 Libre transferencia entre entidades autorizadas
-Artículo 102.—De los requisitos
-Todo afiliado a los Regímenes de Pensiones Complementarias, de Capitalización Laboral y de Ahorro Voluntario podrá, libremente y sin costo alguno, ejercer el derecho a transferirse hacia otra entidad autorizada, una vez haya cumplido con una permanencia mínima de un mes calendario en una misma entidad, en condición de afiliado.
+Artículo 102.-De los requisitos.De los requisitos. Todo afiliado a los Regímenes de Pensiones Complementarias, de Capitalización Laboral y de Ahorro Voluntario podrá, libremente y sin costo alguno, ejercer el derecho a transferirse hacia otra entidad autorizada, una vez haya cumplido con una permanencia mínima de seis meses calendario en una misma entidad, en condición de afiliado.
+(Así reformado el párrafo anterior en sesión N° 1725 del 18 de abril de 2022)
 Este plazo, para los afiliados al Régimen Obligatorio de Pensiones Complementarias y Fondo de Capitalización Laboral se contará a partir de la última afiliación aceptada por el Sistema Centralizado de Recaudación.
 En el caso de los regímenes voluntarios, el plazo indicado en el párrafo primero de este artículo, se computará a partir de la vigencia de la afiliación, según se dispone en el artículo 88 de este Reglamento.
 La libre transferencia podrá ejercerse, sin que se haya cumplido el plazo establecido en los párrafos anteriores, en los siguientes casos:
