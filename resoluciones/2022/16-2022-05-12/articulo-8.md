@@ -1,0 +1,2 @@
+Artículo 8.- Vigencia. La presente resolución tiene carácter retroactivo al 18 de abril de 2022, la fecha en que se dio la caída general de los sistemas de información y bases de datos del Ministerio de Hacienda, y mantendrá su vigencia hasta tanto se comunique la disponibilidad de la información necesaria para atender las gestiones que realiza la Dirección General de Tributación mediante acto de carácter general.
+Es todo.- Comuníquese.
