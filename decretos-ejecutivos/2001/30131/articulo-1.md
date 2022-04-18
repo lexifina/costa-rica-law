@@ -1,3 +1,4 @@
+(Derogado)
 Nº 30131-MINAE-S
 (Nota de Sinalevi: Mediante el artículo 13 del Reglamento de la autorización y registro de tanques estacionarios para autoconsumo de combustibles, aprobado mediante decreto ejecutivo N° 42497 del 24 de junio del 2020, se acordó lo siguiente: “A partir de la publicación del presente Reglamento, la DGTCC ya no tramitará permisos para módulos de autoconsumo en los términos establecidos en el Decreto Ejecutivo Nº 30131-MINAE-S, sin embargo, las personas que se encuentren con permisos ya otorgados por la Administración, no tendrán la obligación de registrar sus tanques hasta tanto no se hayan vencido dichas autorizaciones, de igual forma, las personas que ya habían iniciado con el trámite autorizatorio, podrán optar por finalizarlo conforme al Decreto Ejecutivo Nº 30131-MINAE-S, o bien tramitar la autorización y el registro según el presente decreto”)
 EL PRESIDENTE DE LA REPÚBLICA
