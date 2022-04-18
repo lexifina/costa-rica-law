@@ -1,0 +1,1 @@
+Artículo 28.-El Subproceso de Asuntos Jurídicos dictaminará la viabilidad jurídica de aceptar una donación, de resultar viable la donación propuesta, se emitirá dictamen positivo y será trasladado junto con el expediente a la Alcaldía Municipal. De resultar el dictamen negativo se comunicará junto con el expediente a la Alcaldía Municipal.

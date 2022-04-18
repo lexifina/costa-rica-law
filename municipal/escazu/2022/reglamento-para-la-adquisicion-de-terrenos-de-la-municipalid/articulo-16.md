@@ -1,0 +1,2 @@
+Artículo 16.-Corresponde al Concejo Municipal emitir el acuerdo municipal de declaratoria de interés público.
+Asimismo, será la Secretaría Municipal la encargada de tramitar la notificación de la declaratoria de interés público al administrado dentro del plazo de cinco días hábiles, así como tramitar la publicación en el Diario Oficial La Gaceta de la declaratoria de interés público en el plazo de cinco días después de adoptado el acuerdo municipal por parte del Concejo Municipal.

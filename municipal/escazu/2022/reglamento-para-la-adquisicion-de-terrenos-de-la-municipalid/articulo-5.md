@@ -1,0 +1,1 @@
+Artículo 5º-Corresponderá a la Dirección General de Tributación o al Subproceso de Valoraciones, según se decida, investigar, analizar y practicar todos los avalúos de adquisición de fincas por cualquier medio requeridos para los proyectos municipales.

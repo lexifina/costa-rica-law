@@ -1,0 +1,1 @@
+Artículo 13.-Finalizado el informe del avalúo administrativo, el mismo será remitido a la alcaldía municipal junto con el resto de la información por medio de oficio interno firmado por el coordinador de dicha área.

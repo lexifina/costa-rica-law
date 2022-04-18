@@ -1,0 +1,1 @@
+Artículo 19.-Aceptado el avalúo administrativo o transcurrido sin respuesta el plazo para oponerse, según lo dispuesto en el citado artículo 25 de la Ley de Expropiaciones N° 9286, el avalúo quedará firme y no cabrá oposición posterior en ninguna etapa del proceso administrativo, y se procederá por parte del Concejo Municipal a la emisión de un acuerdo de expropiación.

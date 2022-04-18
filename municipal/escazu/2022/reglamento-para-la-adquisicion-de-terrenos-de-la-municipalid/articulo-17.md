@@ -1,0 +1,1 @@
+Artículo 17.-Le corresponde al Subproceso de Asuntos Jurídicos en un plazo de cinco (5) días hábiles después de recibida la documentación, realizar las gestiones de anotación provisional y definitiva de la declaratoria de interés público, así como de la declaratoria de expropiación ante el Registro Nacional.

@@ -1,0 +1,1 @@
+Artículo 25.-En el caso de personas físicas, se deberá solicitar documento idóneo en el que se manifieste expresamente la disposición de donar el lote, con indicación del plano catastrado, área y número de finca, para tal caso, la Municipalidad deberá contar con los informes técnicos correspondientes.

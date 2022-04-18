@@ -1,0 +1,1 @@
+Artículo 12.-La alcaldía municipal o la gerencia promovente se encargará de gestionar el contenido presupuestario para los trámites administrativos o judiciales necesarios para darle contenido presupuestario al avalúo administrativo.

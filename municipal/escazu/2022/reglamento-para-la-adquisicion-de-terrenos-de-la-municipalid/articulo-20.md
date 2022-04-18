@@ -1,0 +1,1 @@
+Artículo 20.-En caso de que no se acepte el avalúo administrativo dentro del plazo indicado en el artículo 25 de la Ley de Expropiaciones, la alcaldía municipal gestionará una solicitud de acuerdo de expropiación ante el Concejo Municipal, con el fin de iniciar el proceso de expropiación judicial.

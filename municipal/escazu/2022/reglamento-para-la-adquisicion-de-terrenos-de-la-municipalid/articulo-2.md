@@ -1,0 +1,1 @@
+Artículo 2º-Para la adquisición de terrenos, se aplicará el Código Municipal, Ley de Contratación Administrativa y su reglamento, la Ley de Expropiaciones N° 9286, publicada en La Gaceta N° 24 del 04 de febrero del 2015 que es reforma integral de la Ley de Expropiaciones N° 7495 y sus Reformas, el Plan Regulador del Cantón de Escazú y demás normativa aplicada a cada caso.

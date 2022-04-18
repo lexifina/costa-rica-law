@@ -1,0 +1,1 @@
+Artículo 24.-La Administración deberá valorar y justificar técnicamente que el terreno cumple con todas las especificaciones que se requieren para poder desarrollar una obra de interés público debidamente justificado, debiendo cumplir con los estudios e informes técnicos exceptuando el presupuesto y avalúo.

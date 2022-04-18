@@ -1,0 +1,1 @@
+Artículo 31.-La Alcaldía Municipal instruirá al Subproceso de Asuntos Jurídicos para que traslade el expediente conformado al efecto a la Notaria del Estado para la confección de la escritura pública respectiva.

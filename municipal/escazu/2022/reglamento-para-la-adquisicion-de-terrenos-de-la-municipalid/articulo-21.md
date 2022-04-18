@@ -1,0 +1,1 @@
+Artículo 21.-Una vez adoptado el acuerdo de expropiación por parte del Concejo Municipal, el mismo será notificado al administrado en un plazo máximo de cinco (5) días hábiles y la Secretaría Municipal tramitará la publicación del acuerdo en el Diario Oficial La Gaceta dentro del plazo de cinco (5) días hábiles siguientes a la adopción del acuerdo municipal.
