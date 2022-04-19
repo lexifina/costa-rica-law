@@ -1,14 +1,4 @@
-CAPÍTULO IV
-DE LOS PERMISOS DE FUNCIONAMIENTO
-ARTÍCULO 13.- Solicitud
-Los interesados en prestar los servicios de estacionamiento deberán
-solicitar el permiso de funcionamiento ante la Dirección General de
-Ingeniería de Tránsito. La solicitud debe acompañarse con el original o
-la copia certificada del plano que indique la demarcación y el diseño del
-parqueo, según los requisitos de esta ley. La Dirección deberá constatar
-que las obras realizadas corresponden al plano aprobado por ella.
-Las solicitudes de permiso deberán estar firmadas por el dueño de la
-propiedad o su representante legal.
-El Ministerio de Obras Públicas y Transportes deberá resolver la
-solicitud en un plazo de treinta días hábiles; en caso contrario, se
-tendrá por aprobada.
+Capítulo IV
+PERMISOS DE FUNCIONAMIENTO
+Artículo 13- Autorización para la construcción del proyecto. Las personas interesadas en prestar los servicios de estacionamiento deberán solicitar los respectivos permisos de construcción ante el municipio respectivo. La solicitud debe acompañarse del plano que indique la demarcación y el diseño del parqueo, los cuales deberán ajustarse a los requisitos establecidos en esta ley, lo dispuesto en el Plan Regulador y en la Ley 833, Ley de Construcciones, de 2 de noviembre de 1949.
+(Así reformado por el artículo único de la ley N° 10146 del 24 de marzo de 2022)

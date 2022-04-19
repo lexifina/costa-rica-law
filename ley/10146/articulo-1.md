@@ -1,0 +1,49 @@
+N° 10146
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA PARCIAL DE LA LEY 7717, LEY REGULADORA DE
+ESTACIONAMIENTOS PÚBLICOS, DE 4 DE NOVIEMBRE DE 1997
+ARTÍCULO ÚNICO- Se reforman los artículos 3, 5 y 12, así como los capítulos IV, V, VI y VII de la Ley 7717, Ley Reguladora de Estacionamientos Públicos, de 4 de noviembre de 1997. Los textos son los siguientes:
+Artículo 3- Responsabilidad de la administración. La administración de los estacionamientos deberá velar por la seguridad de los vehículos, sus accesorios y los objetos que contengan. De cometerse delitos contra la propiedad, procurará aprehender a los responsables para ponerlos a las órdenes de los tribunales de justicia; si los responsables no fueran aprehendidos o si habiendo sido aprehendidos, se comprobara que el estacionamiento faltó a los deberes de cuidado, la administración será responsable civilmente por la sustracción o el daño al vehículo, sus accesorios o los objetos que se encuentren en el interior. Lo anterior, sin perjuicio de la responsabilidad civil y penal que pueda caber a la gerencia del estacionamiento o sus empleados.
+Para enfrentar los reclamos por responsabilidad civil, es decir, lesión y muerte de personas y daños y robo de vehículos dentro de un parqueo, este deberá suscribir una póliza de responsabilidad civil para parqueos, individual o colectiva, de acuerdo con la agravación del riesgo, tomando en consideración el número de espacios para los vehículos en el parqueo, la cantidad de pisos que posee el parqueo, el horario (diurno, nocturno o 24 horas), el acceso a las llaves del vehículo, el tipo y estado de la construcción, las cámaras de seguridad y señalización.
+La cobertura mínima será de diez millones de colones (¢ 10 000 000,00) y deberá ajustarse o indexarse de manera obligatoria y automática cada dos años al Índice de Precios de Consumo del año anterior inmediato. Por último, el monto de la póliza deberá ser escalonado mi función de la capacidad de unidades de aparcamiento del local, según el siguiente cuadro:
+Rango de cantidad de vehículos del parqueo | Monto asegurado exigible
+Hasta 50 | ¢ 10 000 000,00
+Entra 51 y 100 | ¢ 25 000 000,00
+De 101 a 200 | ¢ 50 000 000,00
+Más de 200 | ¢ 100 000 000,00
+Por arribas de 200 vehículos aplicará la regla de: por cada 50 vehículos adicionales el seguro debe aumentarse en diez millones de colones (¢ 10 000 000,00) |
+Artículo 5- Capacidad. Los estacionamientos no podrán albergar un número de vehículos que exceda la capacidad máxima autorizada por la municipalidad respectiva. Los dueños de los vehículos no podrán ser obligados a dejar sus llaves en el parqueo.
+Artículo 12- Actuación del inspector de tránsito. El inspector de tránsito deberá levantar el parte respectivo, el croquis del accidente y toda la información que juzgue necesaria, al tenor de lo establecido en la Ley 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012.
+Capítulo IV
+PERMISOS DE FUNCIONAMIENTO
+Artículo 13- Autorización para la construcción del proyecto. Las personas interesadas en prestar los servicios de estacionamiento deberán solicitar los respectivos permisos de construcción ante el municipio respectivo. La solicitud debe acompañarse del plano que indique la demarcación y el diseño del parqueo, los cuales deberán ajustarse a los requisitos establecidos en esta ley, lo dispuesto en el Plan Regulador y en la Ley 833, Ley de Construcciones, de 2 de noviembre de 1949.
+Artículo 14- Permiso de funcionamiento. Una vez construido el estacionamiento público, los interesados en prestar los servicios de estacionamiento deberán solicitar el permiso de funcionamiento ante la municipalidad, que podrá constatar que las obras realizadas corresponden al plano sobre la demarcación y al diseño aprobado y determinará, vía reglamento, los demás requisitos que deba cumplir el interesado para presentar su solicitud; asimismo, el gobierno local deberá brindar respuesta en atención a los principios contemplados en la Ley 8220, Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, de 4 de marzo de 2002.
+Artículo 15- Publicación de la autorización de funcionamiento. Aprobado el permiso de funcionamiento, la municipalidad deberá entregar un cartel sellado y fechado que indique la autorización para funcionar, el nombre del dueño registral de la propiedad o su representante legal, el nombre de fantasía del estacionamiento y la capacidad máxima de aparcamiento. El cartel, junto con otro donde se especifique la tarifa, deberá colocarse a la vista de las personas usuarias y de la autoridad competente.
+Artículo 16- Espacio agotado. Todo estacionamiento que se encuentre al máximo de su capacidad permitida deberá indicarlo al público mediante un rótulo visible con la leyenda: "NO HAY ESPACIO".
+Artículo 17- Prohibición. Se prohíbe a las personas conductoras, que esperan espacio disponible en un estacionamiento, detenerse o estacionar los vehículos en las vías públicas demarcadas con cordón amarillo o las aceras. Los inspectores de tránsito estarán obligados a confeccionarle al conductor la boleta de infracción.
+Capítulo V
+TARIFAS
+Artículo 18- Fijación de tarifas. La tarifa de los estacionamientos públicos deberá ser horaria y será determinada por sus propietarios, de acuerdo con los costos reales que implique prestar el servicio, observando siempre los principios de razonabilidad para ambas partes. La fijación deberá contar con la autorización de la municipalidad respectiva.
+Durante los quince días hábiles posteriores a la autorización, el usuario que considere excesivas las tarifas fijadas podrá impugnar ante la municipalidad dichos aumentos, aportando la documentación necesaria. De la impugnación se dará audiencia a los propietarios para poder hacer el descargo que consideren pertinente. En caso de que la municipalidad considere fundamentada la solicitud podrá revocar o modificar la autorización.
+El propietario podrá convenir una tarifa semanal, quincenal, mensual o diaria con el usuario del estacionamiento público, siempre que esta no exceda la tarifa horaria autorizada por la municipalidad respectiva.
+Artículo 19- Recargo en tarifas. Durante el período comprendido entre las 18:00 horas y las 6:00 horas, así como los domingos y días feriados, podrá cobrarse un recargo del diez por ciento (10%) sobre la tarifa regular.
+Los interesados en prestar los servicios de estacionamiento deberán solicitar autorización para aplicar este recargo ante la municipalidad respectiva, para lo cual la municipalidad podrá actualizar el permiso de funcionamiento indicando si el establecimiento cuenta o no con esta autorización.
+Artículo 20- Impuestos. Todas las tarifas deberán incluir el impuesto sobre valor agregado, así como los tributos que por ley especial se establezcan. Únicamente las tarifas pactadas por un período semanal, quincenal, mensual o mayores podrán cobrarse por anticipado.
+Artículo 21- Tarifas diferenciadas. Los vehículos que utilicen los espacios con dimensiones mínimas, definidas en el artículo 6, pagarán la misma tarifa. Por los espacios de 3,00 m de ancho por 6,00 m de largo podrán cobrarse tarifas hasta un diez por ciento (10%) mayores que la normal.
+Artículo 22- Cobros. El Ministerio de Economía, Industria y Comercio (MEIC) podrá realizar los estudios de mercado para proteger los derechos y los intereses legítimos del consumidor, de conformidad con la Ley 7472, Promoción de la Competencia y Defensa Efectiva del Consumidor, de 20 de diciembre de 1994.
+La municipalidad de cada cantón verificará, dentro de su competencia territorial, el cobro adecuado de las tarifas de los parqueos.
+Artículo 23- Estacionamientos temporales. Las municipalidades podrán autorizar el funcionamiento de estacionamientos temporales, los cuales deben cumplir con los requisitos y las condiciones de funcionamiento temporal establecidas en el reglamento de la presente ley.
+Capítulo VI
+SANCIONES
+Artículo 24- Proceso de sanciones. Ante el incumplimiento de los requisitos y el procedimiento dispuesto en los artículos 4, 5, 6, 10, 16, 17, 20 y 22, la municipalidad podrá imponer sanciones al infractor, conforme a las disposiciones del artículo 26 de la presente ley.
+Artículo 25- Sanciones. En concordancia con el artículo anterior, la municipalidad podrá establecer las siguientes sanciones:
+a) Multa diaria equivalente a veinte tarifas básicas de una hora, hasta por quince días, cuando se incumpla con lo estipulado en los artículos 4, 5, 6, 10, 16 y 17 de esta ley.
+b) Suspensión de un mes y hasta un máximo de seis meses de la autorización de funcionamiento, cuando se incumpla con el requisito para aplicar el recargo de tarifas o tarifas diferenciadas, según lo que establecen los artículos 20 y 22 de esta ley.
+e) Cancelación definitiva de la autorización de funcionamiento, cuando se reincida en algún incumplimiento de los requisitos y procedimientos establecidos en los artículos 4, 5, 6, 10, 16, 17, 20 y 22.
+Para la imposición de las sanciones anteriores, se deberá respetar el principio constitucional del debido proceso al supuesto infractor.
+Artículo 26- Incumplimiento de responsabilidades. La municipalidad respectiva impondrá una multa equivalente a treinta tarifas básicas de una hora y hasta por veinte días hábiles, a las personas físicas o jurídicas legalmente constituidas que incumplan con las disposiciones del artículo 2 de la presente ley para su imposición deberá respetar el principio constitucional del debido proceso al supuesto infractor.
+Artículo 27- Recursos. Contra los actos emitidos por las municipalidades, a la luz de lo dispuesto en el presente capítulo, cabrán los recursos establecidos en el título VI del Código Municipal.
+Capítulo VII
+DISPOSICIONES FINALES Y TRANSITORIAS
+Artículo 28- Reglamento. El Poder Ejecutivo reglamentará esta ley en un plazo de seis meses, contado a partir de su publicación.

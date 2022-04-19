@@ -1,15 +1,10 @@
-ARTÍCULO 3.- Responsabilidad de la administración
-La administración de los estacionamientos deberá velar por la
-seguridad de los vehículos, sus accesorios y los objetos que contengan.
-De cometerse delitos contra la propiedad, procurará aprehender a los
-responsables para ponerlos a las órdenes de los tribunales de justicia.
-En concordancia con la norma precedente, si los responsables no fueren
-aprehendidos o si habiendo sido aprehendidos, se comprobare que el
-estacionamiento faltó a los deberes de cuidado, la administración será
-responsable civilmente por la sustracción o daño al vehículo, sus
-accesorios o los objetos que se encuentren en el interior; lo anterior
-sin perjuicio de la responsabilidad penal que pueda caber a la gerencia
-del estacionamiento o sus empleados.
-Para enfrentar los reclamos por los daños o el robo de un vehículo
-dentro de un parqueo, este suscribirá obligatoriamente una póliza de
-seguros individual o colectiva.
+Artículo 3- Responsabilidad de la administración. La administración de los estacionamientos deberá velar por la seguridad de los vehículos, sus accesorios y los objetos que contengan. De cometerse delitos contra la propiedad, procurará aprehender a los responsables para ponerlos a las órdenes de los tribunales de justicia; si los responsables no fueran aprehendidos o si habiendo sido aprehendidos, se comprobara que el estacionamiento faltó a los deberes de cuidado, la administración será responsable civilmente por la sustracción o el daño al vehículo, sus accesorios o los objetos que se encuentren en el interior. Lo anterior, sin perjuicio de la responsabilidad civil y penal que pueda caber a la gerencia del estacionamiento o sus empleados.
+Para enfrentar los reclamos por responsabilidad civil, es decir, lesión y muerte de personas y daños y robo de vehículos dentro de un parqueo, este deberá suscribir una póliza de responsabilidad civil para parqueos, individual o colectiva, de acuerdo con la agravación del riesgo, tomando en consideración el número de espacios para los vehículos en el parqueo, la cantidad de pisos que posee el parqueo, el horario (diurno, nocturno o 24 horas), el acceso a las llaves del vehículo, el tipo y estado de la construcción, las cámaras de seguridad y señalización.
+La cobertura mínima será de diez millones de colones (¢ 10 000 000,00) y deberá ajustarse o indexarse de manera obligatoria y automática cada dos años al Índice de Precios de Consumo del año anterior inmediato. Por último, el monto de la póliza deberá ser escalonado mi función de la capacidad de unidades de aparcamiento del local, según el siguiente cuadro:
+Rango de cantidad de vehículos del parqueo | Monto asegurado exigible
+Hasta 50 | ¢ 10 000 000,00
+Entra 51 y 100 | ¢ 25 000 000,00
+De 101 a 200 | ¢ 50 000 000,00
+Más de 200 | ¢ 100 000 000,00
+Por arribas de 200 vehículos aplicará la regla de: por cada 50 vehículos adicionales el seguro debe aumentarse en diez millones de colones (¢ 10 000 000,00) |
+(Así reformado por el artículo único de la ley N° 10146 del 24 de marzo de 2022)

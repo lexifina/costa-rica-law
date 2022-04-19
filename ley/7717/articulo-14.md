@@ -1,5 +1,2 @@
-ARTÍCULO 14.- Análisis de las solicitudes
-La Dirección General de Ingeniería de Tránsito analizará la
-solicitud tomando en cuenta la ubicación del parqueo y las posibles
-consecuencias para el tránsito vial, así como el cumplimiento de los
-requisitos establecidos en esta ley.
+Artículo 14- Permiso de funcionamiento. Una vez construido el estacionamiento público, los interesados en prestar los servicios de estacionamiento deberán solicitar el permiso de funcionamiento ante la municipalidad, que podrá constatar que las obras realizadas corresponden al plano sobre la demarcación y al diseño aprobado y determinará, vía reglamento, los demás requisitos que deba cumplir el interesado para presentar su solicitud; asimismo, el gobierno local deberá brindar respuesta en atención a los principios contemplados en la Ley 8220, Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, de 4 de marzo de 2002.
+(Así reformado por el artículo único de la ley N° 10146 del 24 de marzo de 2022)
