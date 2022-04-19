@@ -1,6 +1,2 @@
-ARTÍCULO 15.- Publicación de la autorización
-Aprobada la solicitud, la Dirección General de Ingeniería de
-Tránsito entregará al propietario del estacionamiento un cartel sellado y
-fechado, que indique la autorización para funcionar y la capacidad máxima
-de aparcamiento. El cartel junto con otro donde se especifique la tarifa,
-deberá colocarse a la vista de los usuarios y la autoridad competente.
+Artículo 15- Publicación de la autorización de funcionamiento. Aprobado el permiso de funcionamiento, la municipalidad deberá entregar un cartel sellado y fechado que indique la autorización para funcionar, el nombre del dueño registral de la propiedad o su representante legal, el nombre de fantasía del estacionamiento y la capacidad máxima de aparcamiento. El cartel, junto con otro donde se especifique la tarifa, deberá colocarse a la vista de las personas usuarias y de la autoridad competente.
+(Así reformado por el artículo único de la ley N° 10146 del 24 de marzo de 2022)

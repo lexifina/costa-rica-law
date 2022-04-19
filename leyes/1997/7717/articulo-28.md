@@ -1,5 +1,4 @@
-ARTÍCULO 28.- Incumplimiento de responsabilidades
-A las personas físicas o jurídicas que incumplan el artículo 2 de la
-presente ley, la Dirección General de Ingeniería de Tránsito les impondrá
-una multa equivalente a treinta tarifas básicas de una hora, hasta por
-veinte días hábiles.
+Capítulo VII
+DISPOSICIONES FINALES Y TRANSITORIAS
+Artículo 28- Reglamento. El Poder Ejecutivo reglamentará esta ley en un plazo de seis meses, contado a partir de su publicación.
+(Así reformado por el artículo único de la ley N° 10146 del 24 de marzo de 2022)

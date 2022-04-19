@@ -1,6 +1,2 @@
-ARTÍCULO 27.- Recursos
-Contra la decisión de la Dirección General de Ingeniería de Tránsito
-de cancelar el permiso de funcionamiento de un estacionamiento público,
-cabrán los recursos de revocatoria ante la propia Dirección y de
-apelación en subsidio ante el Ministro de Obras Públicas y Transportes;
-este último recurso agotará la vía administrativa.
+Artículo 27- Recursos. Contra los actos emitidos por las municipalidades, a la luz de lo dispuesto en el presente capítulo, cabrán los recursos establecidos en el título VI del Código Municipal.
+(Así reformado por el artículo único de la ley N° 10146 del 24 de marzo de 2022)

@@ -1,5 +1,2 @@
-ARTÍCULO 26.- Reincidencia
-De reincidirse en el incumplimiento de los artículos 4, 5, 6 y 16 de
-esta ley, la Dirección General de Ingeniería de Tránsito suspenderá la
-autorización de funcionamiento, previa audiencia a los representantes del
-parqueo.
+Artículo 26- Incumplimiento de responsabilidades. La municipalidad respectiva impondrá una multa equivalente a treinta tarifas básicas de una hora y hasta por veinte días hábiles, a las personas físicas o jurídicas legalmente constituidas que incumplan con las disposiciones del artículo 2 de la presente ley para su imposición deberá respetar el principio constitucional del debido proceso al supuesto infractor.
+(Así reformado por el artículo único de la ley N° 10146 del 24 de marzo de 2022)
