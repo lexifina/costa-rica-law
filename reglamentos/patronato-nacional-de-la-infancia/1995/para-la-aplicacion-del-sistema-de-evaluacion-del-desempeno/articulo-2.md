@@ -1,1 +1,0 @@
-Artículo 2°— La Jefatura Inmediata evaluará a través de una entrevista, a aquellos funcionarios que estén adscritos a su unidad administrativa, de acuerdo con los criterios establecidos en este sistema mediante el Manual de Procedimientos para la Evaluación del Desempeño.
