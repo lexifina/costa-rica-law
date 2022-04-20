@@ -1,1 +1,0 @@
-Art.51.-Ningún Senador que este presente en el acto mismo de votar podrá excusarse de hacerlo bajo ningún pretexto asi como no podrá votar aquel que tenga interés personal en el asunto de que se trata.

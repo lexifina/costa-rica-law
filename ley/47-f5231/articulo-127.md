@@ -1,1 +1,0 @@
-ARTÍCULO 127.-El Poder Ejecutivo dispondrá de cinco becas en cada colegio para favorecer a los hijos de padres que hubiesen prestado señalados servicios a la República, y los niños pobres que se distinguieren por su ingenio de una manera notable.

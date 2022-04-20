@@ -1,1 +1,0 @@
-Art. 11. Oirà igualmente las quejas de los litigantes acerca del desempeño del Secretario y demas Subalternos, ù otras cosas que merezcan providencia: dictará lo que estime conveniente en casos leves, y en los graves darà cuenta á la Corte Plena.

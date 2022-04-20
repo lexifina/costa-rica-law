@@ -1,1 +1,0 @@
-Art 5°.- Los veteranos serán (entre tanto la Hacienda es capaz de sufragar el número necesario) los mismos que existen en el día los Pueblos donde hay compañías destinadas a la disciplina y Gobierno de ellas sin que deje de haver en cada uno a lo menos un Sargento y un Tambor.

@@ -1,1 +1,0 @@
-ARTÍCULO 9°.-Cuando aconteciere que una ó mas elecciones de Representantes principales ó suplentes haya resultado nula, la junta calificadora dispondrá, en el acto, que sean repuestas, para que el dia prefijado por la Constitucion, para la reunion del Congreso, no falte el número que la Ley fundamental establece.

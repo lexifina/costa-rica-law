@@ -1,1 +1,0 @@
-ARTICULO 13.-Para el distintivo de las clases, los Sargentos primeros usar n dos jinetas de seda amarilla, los segundos una igual al hombro derecho: los Capitanes primeros una cinta de hilo amarillo en cada puño y los segundos una en el izquierdo.

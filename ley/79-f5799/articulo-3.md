@@ -1,1 +1,0 @@
-ARTÍCULO 3°.-Para las apelaciones en 2¦. y Última Instancia, el interés no deber bajar de dos mil pesos, en la inteligencia de que la segunda sentencia no sea confirmatoria de la primera: dejando con esto declarado el artículo 18 de la Ordenanza del Estado.

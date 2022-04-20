@@ -1,1 +1,0 @@
-Art. 16. Estarán listos al llamamiento del jefe de los serenos para ocupar por una mas noches los puestos de estos, que por enfermedad ó por alguna otra causa justa, se hallen vacantes conforme al inciso 7° del artículo 8°

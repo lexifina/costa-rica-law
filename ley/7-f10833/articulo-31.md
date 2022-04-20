@@ -1,1 +1,0 @@
-Artículo 31.-Finalizados todos estos actos, el Directorio dar para todos los electos una sola certificación que acredite su nombramiento, y comunicar este a la Autoridad superior de la cabecera, remitiéndole otra igual certificación para que haga concurrir a los nombrados el día y hora prescriptos.

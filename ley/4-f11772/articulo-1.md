@@ -1,6 +1,0 @@
-(Derogado)
-DECRETO IV.
-(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-Declara la eleccion de Magistrados propietarios y suplentes para la Corte Suprema de Justicia.
-"El Jefe Supremo Provisorio del Estado de Costa-Rica. -Por cuanto la Cámara de Senadores ha emitido el decreto siguiente. La Cámara de Senadores del Estado libre de Costa Rica, autorizada por el art. 89 de la acta de 7 de junio del año próximo pasado para hacer la computación y escrutinio de los sufragios emitidos en las diezinueve secciones electorales del Estado para dos Magistrados propietarios de la Corte Suprema de Justicia, à cuya elección convoco el art. 1° del decreto expedido por el Supremo Gobierno en 23 de octubre del año anterior; y debiendo así mismo nombrarse dos Magistrados suplentes en lugar delos Señores Francisco Alvarado y Venancio Sandoval á quienes les fué admitida la renuncia que interpusieron de este destino, no habiendo eleccion popular en ninguno de los candidatos que se registran en la lista de la materia, ha venido en decretar y decreta.
-Art. 1° Se han por Magistrados propietarios de la Corte Suprema de Justicia à los Señores Francisco. Peralta y Faustino Montes de Oca designados por esta Cámara.

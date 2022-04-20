@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO LX.
-(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-Aprueba los actos gubernativos comprendidos en la Memoria del Ministro de Relaciones y del interior.
-"Juan Rafael Mora, Presidente de la República de Costa Rica. Por cuanto el Excelentisimo Congreso Constitucional ha decretado lo siguiente.
-El Excelentisino Congreso Constitucional de la República de Costa Rica, habiendo examinado la Memoria con que el Señer Ministro de Relaciones y de lo interjor ha dado cuenta del estado de lus negocios de su cargo, decreta:
-Articulo único. Apruébanse los actos gubernativos comprendidos en la Memoria presentada por el Señor Ministro de Relaciones y de lo interior en 8 de mayo próximo pasado, -Al Poder Ejecutivo. Dado en el Palacio de los Supremos Poderes en San José, a los tres dias del mes de junio de mil ochocientos cincuenta y dos. -Francisco Maria Oreamuno, Presidente. -Bruno Carranza, Secretario. José Maria Garcia, Secretario -Por tanto: EJECUTESE. Palacio Nacional, San José junio cuatro de mil ochocientos cincuenta y dos.-Juan Rafael Mora. El Ministro de Estado en el Despacho de Gobernacion, Joaquin Bernardo Calvo."

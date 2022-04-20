@@ -1,1 +1,0 @@
-Art. 4. Por fin de cada mes el inspector pasará al Gobierno un conociniento exàcto de las personas vacunadas en cada departamento, reuniendo los conocimientos necesarios de los inteligentes encargados de la inoculacion.

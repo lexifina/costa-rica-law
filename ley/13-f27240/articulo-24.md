@@ -1,1 +1,0 @@
-Art 24.- Las Juntas electorales procederán desde luego a sufragar por los cinco Magistrados que determina esta ley, designados entre ellos el Presidente y Fiscal, el primer Domingo después de su circulación, y la Asamblea se reunirá extraordinariamente para hacer las calificaciones.

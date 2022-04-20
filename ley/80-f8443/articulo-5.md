@@ -1,1 +1,0 @@
-Art. 5. Indultanse á las demas personas comprendidas é indiciadas en esta causa, - Dado en el Palacio Nacional en San José á los diez dias del mes junio de mil ochocientos cincuenta. Juan Rafael Mora.-El Ministro de Estado en el Despacho de la Guerra.-Manuel José Carazo.

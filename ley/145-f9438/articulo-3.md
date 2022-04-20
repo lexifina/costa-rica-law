@@ -1,1 +1,0 @@
-Art 3°.- Quando el contrabando de esté vendiendo o se haya vendido no es necesaria la aprehensión real sino que basta la justificación para que el vendedor lo pierda, o pague su valor a razón de seis reales libra y además se le imponga una multa a razón de tres pesos por arrova.

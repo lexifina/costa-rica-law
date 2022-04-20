@@ -1,1 +1,0 @@
-Art. 3. Se señala á cada uno de los comisionados el sueldo de ciento cincuenta pesos mensuales, y el de trescientos, también á cada uno, por viatico de ida y regreso, cuyas cantidades se satisfarán en la Administracion de tabacos.

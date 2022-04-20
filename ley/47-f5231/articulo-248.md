@@ -1,1 +1,0 @@
-ARTÍCULO 248.-Se concederán a los mas sobresalientes, por su conducta y aprovechamiento, un certificado que lo manifieste, la preferencia en los asientos y ademas se publicar n sus nombres en los periódicos.

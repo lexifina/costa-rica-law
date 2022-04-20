@@ -1,1 +1,0 @@
-Art. 4. Se permite en el Estado la circulacion de la moneda de cordon extranjera con tal que sea legítima por su valor intrinseco, y: Ejecutivo ordenará su reconocimiento, y publicará por decretos sus respectivos valores.

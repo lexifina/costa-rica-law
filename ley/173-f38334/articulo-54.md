@@ -1,1 +1,0 @@
-Art. 54. Tambien puede llamar en su auxilio la milicia necesaria para perseguir á los salteadores y ladrones que se levanten en los pueblos, y particularmente en los caminos y despoblados, conforme à las reglas que para estos casos acuerde el Gobernador de la Provincia.

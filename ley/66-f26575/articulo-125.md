@@ -1,1 +1,0 @@
-Art. 125. Por estas causas los jueces superiores y subalternos seràn depuestos, è inhabilitados para volver á ejercer las judicatura, y cualquiera otro empleo. Las mismas penas se impondrán respectivamente á los Asesores.

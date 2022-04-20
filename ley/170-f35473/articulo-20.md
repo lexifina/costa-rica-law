@@ -1,1 +1,0 @@
-Art. 20. Es nulo todo contrato que se celebre contra la prohibicion de enagenar que contiene el articulo precedente y el comprador pierde otro tanto del precio que hubiere dado por la posesión del terreno en favor del respectivo fondo municipal.

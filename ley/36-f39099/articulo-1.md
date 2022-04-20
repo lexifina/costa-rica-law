@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO XXXVI.
-(Esta norma fue derogada por el artículo 1° inciso 272, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-Reglamenta el uso de la libertad de la Prensa.(1)
-"El Jefe Supremo del Estado libre de Costa Rica.-Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
-La Asamblea del Estado libre de Costa Rica, convocada extraordinariamente entre otras cosas para que dicte reglas que asegurando la libertad de imprenta, repriman los abusos que por medio de ella puedan cometerse tanto contra el público, como contra los particulares, teniendo en consideración: que aunque el dejar sujetos los escritos a alguna responsabilidad, trae por consecuencia el retraimiento de los que con sus indicaciones podrán mantener a raya los conatos del Poder: que habiendo enseriado la experiencia que la irresponsabilidad de los escritores, produce funestas consecuencias que están en oposición con la libertad civil: que para asegurar esta, es necesario sacrificarle parte de la natural: que es indispensable una regla que, permitiendo expresar los conceptos de un modo honroso y benéfico, desarme al mismo tiempo de los medios de ofender impunemente, ha venido en decretar y decreta.
-ARTÍCULO 1.-Todo Costarricense es libre para expresar sus conceptos de palabra, por escrito, o del modo que pueda.

@@ -1,1 +1,0 @@
-Art 15.- La Contaduría, por medio del Ministerio, hará a la Legislatura las propuestas de reformas que crea convenientes se ejecuten en las administraciones o rentas: lo mismo que las variaciones que la experiencia le haga conocer son necesarias para esta ley.

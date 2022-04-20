@@ -1,1 +1,0 @@
-Art.3. Los Gobernadores Politicos remitiran oportunamente al despacho de hacienda del Supremo Gobierno, el registro de que habla el art. anterior, para mandar réconocer y pagar las cantidades legalmente reclamadas.

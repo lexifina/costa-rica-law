@@ -1,1 +1,0 @@
-Art. 40. Por regla general, el Consejo antes de entrar à deliberar sobre la sancion de cualesquiera ley, no solo se enterará bien de esta, sino tambien del informe que acerca de ella haya dado el Gobierno.

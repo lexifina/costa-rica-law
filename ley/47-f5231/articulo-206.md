@@ -1,1 +1,0 @@
-ARTÍCULO 206.-Conforme a la distincion establecida de exámenes totales y parciales, los libros que debe llevar el Rector serán también de dos especies: el uno auxiliar para asentar los exámenes parciales, y el otro para asentar los ex menes da cada ramo.

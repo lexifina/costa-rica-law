@@ -1,1 +1,0 @@
-ARTÍCULO 29.-En el caso de faltar habilitación y ofrecer alguno de los acreedores hacerla con su caudal resistiéndose los demás concurrir prorrata, ser ‚este preferido los otros refaccionarios, no solo en la que de nuevo ministrare sino también para su antiguo crédito, aunque no sea causado por refacción habíos de la mina hacienda.

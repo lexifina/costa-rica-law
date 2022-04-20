@@ -1,1 +1,0 @@
-5°.- En los pequeños Pueblos que no pasen de quinientos habitantes, habrá un Alcalde, un Regidor, y un Sindico, y en los que pasen de este número, se extablecerá como si tuviese como si tuviesen el de quatro mil

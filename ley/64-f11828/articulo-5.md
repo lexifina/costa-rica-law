@@ -1,1 +1,0 @@
-ARTICULO 5°. -Si alguna de las partes resistiese nombrar el árbitro, el Juez se lo nombrar de oficio, y no podrá escusarse el nombrado, si no es por los conceptos del artículo anterior, pudiéndose apremiar según queda dicho.

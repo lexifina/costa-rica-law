@@ -1,1 +1,0 @@
-Art 7°.- Velarán igualmente con todo esmero sobre la conservación, y repoblación de los Montes y plantíos del común, y que no se despoblen indiscretamente dictando para ello, las providencias más activas.

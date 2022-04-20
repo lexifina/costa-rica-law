@@ -1,1 +1,0 @@
-Art. 78. Los Gobernadores cuidaràn de que los empleados pùblicos à quienes esta ley impone algunos deberes, cumplan con ellos y particularmente, en los años en que deba haber elecciones parroquiales, prevendrán oportunamente à los Jefes Polìticos que recuerden á los cuerpos Municipales lo que por su parte tiene que cumplir.

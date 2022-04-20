@@ -1,1 +1,0 @@
-Art. 43. El Jefe Político cuida de que la Municipalidad de su Canton se reuna y desempeñe sus funciones en los periodos designados por la ley, la convoca en los casos extraordinarios en que fuere necesario y la preside.

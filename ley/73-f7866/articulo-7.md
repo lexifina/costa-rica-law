@@ -1,1 +1,0 @@
-Art. 7. Se señala al inspector, en recompensa de su trabajo, la dotacion mensual de treinta pesos que se cubriràn en el tesoro pùblico del Estado, y al vacunador que se nombre en cada departamento la de diez pesos mensuales sobre los fondos de propios respectivos.

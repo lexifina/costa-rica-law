@@ -1,1 +1,0 @@
-ARTÍCULO 98.-Que su amplitud ha de ser la que determine el facultativo o perito, conforme a las circunstancias; pero sin que pueda pasar de dos varas de ancho y tres de alto, llevándose siempre con seguridad y bien ademado si fuese necesario.

@@ -1,1 +1,0 @@
-Artículo 9°. -La venta de billetes se verificar en cuarenta días continuados, al fin de los cuáles, por medio de los correos públicos, se remitir a la Tesorería del Hospital el producto juntamente con los números que no se hubiesen vendido.

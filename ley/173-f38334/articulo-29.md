@@ -1,1 +1,0 @@
-Art. 29. El Gobernador de cada Provincia tiene para su despacho un Secretario escribiente, y los mas amanuenses que sean necesarios á juicio del Ejecutivo á quien corresponde el nombramiento de todos.

@@ -1,1 +1,0 @@
-Art. 76. Los Representantes que no puedan concurrir á alguna reunion del Congreso por impedimento legal, presentarán sus escusas ante el Gobernador de la Provincia donde se encuentre; y si esta fuere distinta de la en que hayan sido nombrados darán aviso al de esta última.
