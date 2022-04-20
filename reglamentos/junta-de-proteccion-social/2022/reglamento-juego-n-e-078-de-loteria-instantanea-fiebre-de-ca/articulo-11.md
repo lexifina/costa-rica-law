@@ -1,0 +1,1 @@
+Artículo 11.-Se aprueban los siguientes reglamentos E075-E076-E077-E078 según acuerdo de Junta Directiva JD- 173 correspondiente al Capítulo VII), artículo 9) de la sesión ordinaria 17-2022, celebrada el 21 de marzo de 2022.
