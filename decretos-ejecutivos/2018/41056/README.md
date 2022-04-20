@@ -14,3 +14,4 @@ Declaración de Santuario del Tiburón Martillo Golfo Dulce
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-09 | la propia norma |
+| 2 | 2022-04-20 | Decreto Ejecutivo 43478 (2022-04-20) |
