@@ -1,7 +1,9 @@
+(Derogado)
 DECRETO XXXV.
-Encarga a una junta de agricultores, con la denominación de “Sociedad Económica Itineraria” la mejora, adelantamiento y conservación de los caminos generales; contiene además muchas disposiciones relativas.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
+Encarga a una junta de agricultores, con la denominación de "Sociedad Económica Itineraria" la mejora, adelantamiento y conservación de los caminos generales; contiene además muchas disposiciones relativas.
 (1) Derogado por el Decreto número 14 de 2 de Agosto 1854; en virtud del cual quedaron encargados 2 lo la reparación y composición de camino general al s punto p punto e punto nacional
-El jefe supremo provisorio del Estado de Costa Rica.”
+El jefe supremo provisorio del Estado de Costa Rica."
 Considerando: 1° que el rápido incremento que felizmente se observan las producciones agrícolas del Estado, y señaladamente en el ramo del café, demanda con urgencia la apertura y construcción de buenos caminos que hagan más fáciles y baratos los medios de transporte desde el interior hasta los Puertos; pues de lo contrario el desarrollo de nuestra naciente agricultura, á que se halla vinculada la prosperidad general, se encuentra expuesto a sufrir una completa y fatal paralización; siendo muy probable que lleguen las cosas al extremo de que se pierdan las cosechas en las haciendas por no poder conducirlas a los puntos de embarque, o porque los exorbitantes fletes exceden al valor de los frutos:
 2° que una cituación tan precaria exige remedios prontos y eficaces en órden á compostura de los caminos antiguos y formación de otros mejores o más rectos, y a la introducción de vehículos más económicos y propios para nuestro suelo que las actuales carreteras:
 3° que los principales interesados en estas mejoras son los hacendados y comerciantes de café, puesto que éste es el último ramo de cultivo floreciente, el que sostiene en el día al Estado y el que está amenazando de ruina por la escasez de mulas y suma carestía de los fletes:

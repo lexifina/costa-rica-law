@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XCVI
+(Esta norma fue derogada por el artículo 1°, inciso 73, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado libre de Costa rica
 Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente
 La Asamblea Constitucional del Estado libre de Costa rica considerando: 1° Que el decreto del Congreso Federal de 23 de Diciembre último que establece y organiza los de primera de Hacienda independientes de las Autoridades de los Estados y el reglamento de la Suprema Corte de que hace merito, en que atribuye a esta el conocimiento en segunda Instancia, atacan directamente la Independencia del Estado que le confiere el art° 10. de la Constitución Federal y el 14. de su peculiar Ley fundamental 2°. Que especialmente en Costa rica aquellos juzgados por las circunstancias de las Rentas Federales, no tienen objeto para el exercicio de su jurisdicción: 3° Que en el nombramiento que se ha hecho en el Ciudadano Benito Benabent para obtener aquel destinado en el Estado, por sus circunstancias inaparentes, ocultas sin duda al Supremo Gobierno Federal, se ha tenido a Costa rica en muy poco aprecio, ha venido en decretar y decreta.

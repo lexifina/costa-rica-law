@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO CVII
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Declara la elección de consejeros propietarios y suplentes
-“ El Vice Jefe encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado lo siguiente.
+" El Vice Jefe encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa Rica: habiendo procedido a la apertura y regulación de sufragios para dos Consejeros propietarios y un suplente en los términos que previene el artículo 37 de la Constitución, no resultando elección popular, después de haberla hecho de entre los candidatos presentados por las Electorales, decreta.
 Art 1°.- Se han por Consejeros propietarios electos por la Asamblea a los CC. Presbíteros Joaquín Flores y Juan Vicente Escalante, por Consejero suplente, electo de la misma manera, al C. Juan Diego Bonilla.
 -

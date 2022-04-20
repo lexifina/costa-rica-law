@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Poder Ejecutivo crea un Juez de Primera Instancia en el Departamento de Guanacaste, con la dotación de quinientos pesos anuales. (1)
 El jefe supremo provisorio del estado de costa rica. Con presencia del informe de la cámara judicial, manifiesta el abandono en que se halla la administración de justicia en el departamento del Guanacaste, y la necesidad de establecer allí un Juzgado de 1a Instancia dotado, como el único medio de darle aliento y expedición; y considerando: que es un deber del Gobierno remover todos los obstáculos que puedan embarazar el ejercicio de la justicia, en uso de la facultad que le confiere el art. 7° de la ley de 30 de Agosto del año próximo pasado, ha venido en decretar y decreta.
 Art. 1° Habrá en el Departamento del Guanacaste, un Juez de1a Instancia, dotado con quinientos pesos anuales y los derechos, siendo de su cuenta el escribiente y los gastos de oficina.

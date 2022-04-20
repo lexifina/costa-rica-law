@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LIV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Aprueba las capitulaciones celebradas entre el Ministerio de la República y una casa Inglesa, referentes a canal inter-oceánico a un camino al Sarapiqui, y a colonización. (I)
 (1) Quedó sin efecto
 "Miguel Mora Representante encargado del Supremo Poder Ejecutivo de la República,-Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente.

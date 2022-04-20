@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Manda que la Aduana del Norte se establezca en la Ciudad de Cartago y
 reglamenta sus funciones. (1)
 (1) Reformado por el Decreto n° 6 de 12 de Agosto de 1847.

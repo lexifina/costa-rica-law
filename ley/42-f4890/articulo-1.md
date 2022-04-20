@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLIL
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Arregla el precio de los transportes terrestres. (1)
 (19 Derogado por el artículo 2° del Decreto n° 14 del 24 de de Agosto de este mismo año.
 El Jefe Supremo del Estado de Costa Rica.

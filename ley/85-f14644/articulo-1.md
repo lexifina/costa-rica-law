@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO LXXXV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Las Cámaras legislativas declaran sin lugar la renuncia interpuesta por el Señor Don Francisco María Oreamuno, del mando Supremo del Estado.
-“El Jefe Supremo Provisorio del Estado libre de Costa Rica. –Por cuanto las Cámaras han decretado lo siguiente.
-Las Cámaras Legislativas del Estado libre de Costa Rica. –Por cuanto las Cámaras han decretado lo siguiente.
+"El Jefe Supremo Provisorio del Estado libre de Costa Rica. -Por cuanto las Cámaras han decretado lo siguiente.
+Las Cámaras Legislativas del Estado libre de Costa Rica. -Por cuanto las Cámaras han decretado lo siguiente.
 Las Cámaras Legislativas del Estado libre de Costa Rica, teniendo en consideración: que el Jefe electo del Estado Señor Francisco María Oreamuno, no ha aprobado legalmente la excepción de enfermedad que ha alegado para hacer su dimisión, con unanimidad de votos, declaran y decretan.
 Art. 1° No ha lugar a la renuncia que el Jefe Electo Señor Francisco María Oreamuno, hace de su destino.

@@ -1,7 +1,9 @@
+(Derogado)
 DECRETO XLIII.
+(Esta norma fue derogada por el artículo 1° inciso 222, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Reglamento del Supremo Poder Ejecutivo. (1)
 (1) Aunque el presente Reglamento sufrió reformas, alteraciones y modificaciones por el Decreto de 8 de Marzo de 1841, habiendose declarado este nulo, atentatorio etc. por los decretos de 6 de Junio y 24 de Agosto de 1842, volvió á quedar en su fuerza y vigor.
-“El Gefe Supremo del Estado Libre de Costa-Rica.—Por cuanto la Asambléa ha decretado y el Consejo sancionado lo siguiente.
+"El Gefe Supremo del Estado Libre de Costa-Rica.-Por cuanto la Asambléa ha decretado y el Consejo sancionado lo siguiente.
 La Asamblèa Extraordinaria del Estado libre de Costa-Rica: teniendo presente el punto 4° de la convocatoria de 6 de Julio del presente aña para tomar en consideracion el reglamento para las funciones del Poder Ejecutivo, ha tenido à bien decretar y decreta el siguiente.
 Reglamento para el Supremo Poder Ejecutivo
 del Estado.

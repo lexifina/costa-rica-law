@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXXIX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 La Asamblea Constituyente designa cuales de las disposiciones emitidas por la Administración Carrillo, deben continuar observándose provisionalmente.
 El General Jefe Supremo Provisorio del Estado de Costa Rica. Por cuanto la Asamblea Constituyente ha decretado lo siguiente.
 La Asamblea Constituyente del Estado de Costa Rica, considerando: que por Decreto del 24 del presente mes se declaran nulos todos los actos del Gobierno intruso en ejercicio del Poder Ejecutivo, del Legislativo y del Constituyente, y nulos sus Decretos, reglamentos, órdenes y resoluciones; y que la conveniencia pública demanda la observancia de éstos en todo ó en parte, decreta.

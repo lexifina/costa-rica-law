@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Tarifa de sueldos para los Jefes Politicos y sus dependientes. (1)
 (1) Sustituidos los Jefes Politicos con los Gobernadores de Provincia por el art. 157 de la Constitucion de 847; se asignó á estos últimos el sueldo que indica la tarifa n° 7 de 1° de agosto de 1847.
 "El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.

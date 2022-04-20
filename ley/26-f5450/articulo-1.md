@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO XXVI
+(Esta norma fue derogada por el artículo 1° inciso 267, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Dispone la renovación de los individuos de los Supremos Poderes que han concluido su periodo.
-“La Asamblea Constitucional del Estado libre de Costa-rica, en atención a lo que previene el art, 51 de la Constitución del Estado para renovar los individuos del Supremo Poder Legislativo que han de fungir en el próximo año de 34, ha tenido a bien decretar y decreta.
+"La Asamblea Constitucional del Estado libre de Costa-rica, en atención a lo que previene el art, 51 de la Constitución del Estado para renovar los individuos del Supremo Poder Legislativo que han de fungir en el próximo año de 34, ha tenido a bien decretar y decreta.
 Las Juntas Electorales de Partido nombradas en el mes de Enero del año próximo de 1834 para la renovación de individuos del Supremo Poder Legislativo del Estado, lo verificarán:
 1°. La de San José eligiendo un Diputado suplente en lugar del Presbítero Ciudadano Vicente Castro que fue nombrado en lugar del Ciudadano Manuel Fernández por haber sido este electo Vice Jefe, quedando reservados los Ciudadanos Diputados propietarios Juan Diego Bonilla, Juan Vicente Escalante y Presbítero José Andrés Rivera.
 2°.- La de Cartago eligiendo un Diputado propietario en lugar del Ciudadano Joaquín Iglesias, reservando los Diputados propietarios Ciudadano Juan José Bonilla y suplente ciudadano Presbítero Nicolás Oreamuno.

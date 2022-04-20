@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 207
+(Esta norma fue derogada por el artículo 1° inciso 172, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Jefe Supremo del Estado libre de Costa Rica
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa Rica, en vista de la imposibilidad de dar el lleno deseable al artículo 27 de la ley de 16 de enero de 1826 por la inopia de sujetos: considerando que los escribanos de toda especie costean de su peculio los oficiales amanuenses que necesitan para el despacho de sus respectivas oficinas: atendiendo, en fin, á que las faltas del Secretario en propiedad pueden ser suplidas de otra que la indica el expresado artículo, ha venido en decretar y decreta:

@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO XL
-Erige en Universidad la casa de enseñanza de “Santo Tomás” en esta Ciudad.
-“El Jefe Supremo Provisorio del Estado de Costa Rica.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
+Erige en Universidad la casa de enseñanza de "Santo Tomás" en esta Ciudad.
+"El Jefe Supremo Provisorio del Estado de Costa Rica.
 Deseoso de ofrecer á los costarricenses el manantial más fecundo de felicidad públicas, y considerando:
 1° Que sólo la ilustración pone al hombre en el importante conocimiento de sus derechos y obligaciones; que refrena y dirige sus pasiones; que siembra en su corazón los gérmenes de la dignidad y el honor, y que inspirandole sublimes y nobles sentimientos, le hace justo, útil, benéfico y patriota:
 2° que de esta manera la ilustración es el baluarte indestructible de la libertad de los pueblos, el firme apoyo de su tranquilidad, el Paladion de sus derechos y la primordial causa de su engrandecimiento y prosperidad:

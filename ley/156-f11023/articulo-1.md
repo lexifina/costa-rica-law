@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CLVI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
 Declara lo que deba hacerse para pagar a los empresarios que por el rumbo del Norte descubrieren comunicación de trasporte al Puerto de San Juan, los mil pesos en tierras con que los agracia la ley.
 . EI Jefe Supremo del Estado libre de Costa Rica.-Por cuanto Ia AsambIea ha decretado y el Consejo sancionado lo siguiente.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXIX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Crea médicos del pueblo en todas las Provincias y dicta algunas disposiciones reglamentarias.
 "El Presidente del Estado de Costa Rica. -Por cuanto el Poder Legislativo ha decretado y sancionado lo siguiente,
 El Excelentísino Congreso Constitucional del Estado de Casta Rica; decreta.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXIX
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Designa los Señores Representantes que deben reponerse por haber concluido el periodo de su eleccion.
 "Juan Rafael Mora Presidente de la República de Costa Rica,- Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente.
 El Excelentísimo Congreso constitucional de la República de Costa Rica, habiendo verificado el sorteo de que habla el artículo 38 de la Constitucion, decreta:

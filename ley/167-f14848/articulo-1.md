@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 167
+(Esta norma fue derogada por el artículo 1° inciso 137, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado Libre de Costa rica.
 Por quanto la Asamblea ha decretado lo siguiente:
 La Asamblea Constitucional del Estado Libre de Costa rica; en atención á que para el año próximo venidero de 29 se han de renovar algunos individuos de los Supremos Poderes, por cumplirse el periodo del tiempo prescripto por la Constitución , y siendo de absoluta necesidad su reposición ha venido en decretar y decreta:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CXII
+(Esta norma fue derogada por el artículo 1°, inciso 86, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado libre de Costa rica.
 Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa rica, considerando: que sería perjudicial diseminar la Administración de Justicia en primera Instancia en los Alcaldes Constitucionales de los Pueblos donde nunca ha sido, ni será arreglada que la actual falta de Juez Letrado debe ser presto remediada por nombramientos del Gobierno, y que las apelaciones vervales para que surtan el efecto deseado deben ser oídas por un letrado, ha tenido a bien decretar, y decreta.

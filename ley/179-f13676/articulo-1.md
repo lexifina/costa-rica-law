@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO CLXXIX
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Autoriza al Poder Ejecutivo para que dicte todas las medidas conducentes a salvar el país de la peste del cólera.
-“ El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+" El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa Rica, habiendo tomado en su conocimiento la exposición que el Supremo Jefe le ha hecho en 26 de noviembre anterior, contraídas a que el Cólera asiático ha prendido en el Departamento de Olancho, para evadir a éste Estado de tan arrazador contajio, ha tenido a bien decretar y decreta.
 Se faculta y autoriza extraordinariamente al Ejecutivo.
 1°.- Para que haga los gastos necesarios en procurarse noticias seguras y prontas, y para que dicte las leyes más convenientes y necesarias.

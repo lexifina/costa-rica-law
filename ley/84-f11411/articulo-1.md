@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXXIV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 La Asamblea Constituyente restablece en su vigor la ley de 24 de Marzo de 835 que establece tres Jefes Político Departamentales. (1)
 (1) Derogado por el Decreto Ejecutivo de 26 de Abril de 1843.
 El General Jefe Supremo Provisorio del Estado de Costa Rica. Por cuanto la Asamblea Constituyente ha decretado lo siguiente.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XIX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Concede el pase a la Pastoral que antecede.
 "El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.
 Teniendo à la vista la Carta Pastoral expedida en veinte del presente mes por el Señor Vicario Foraneo Juez eclesiastico de este Estado, por la que se recuerda á los fieles la estrecha obligación que tienen de santificar los dias festivos establecidos actualmente por la Iglesia y se insta con el mas vivo y santo celo por la observancia de nuestros preceptos católicos, con anuencia del Senado,decreta.

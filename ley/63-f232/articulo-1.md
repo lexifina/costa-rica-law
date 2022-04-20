@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXIII
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Dicta reglas para la indemnizacion al tesoro publico por los habitantes de la Provincia de Alajuela de todas las sumas invertidas en sofocar la rebelion de la misma Provincia. (1)
 (1) Ver el decreto n° 23 de 30 de noviembre de este mismo año, y el n° 11 de 16 de mayo de 1848.
 José Maria Castro, Presidente del Estado y General en Jefe del Ejército protector de la ley.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Poder Ejecutivo emite un Reglamento Provisional de Cárceles. (a)
 (a) Véase la nota al fin del Decreto.
 El Jefe Supremo Provisorio del Estado de Costa Rica.

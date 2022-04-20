@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIX
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Explica el Decreto sobre arreglo del precio o flete en transportes de tierra. (1)
 (1) Derogado por el artículo 2° del Decreto n°n14 de 24 de Agosto de este mismo año.
 El Jefe Supremo del Estado de Costa Rica.

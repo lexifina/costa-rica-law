@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gobierno Provisorio deroga la orden de 28 de Mayo de 1838, que declara correspondiente a la Capital, el armamento existente en ella. (1)
 (1) Reformado en su artículo 2° por el Decreto n° 4 de 17 de Marzo de 1843.
 El General Jefe Supremo Provisorio del Estado de Costa Rica.

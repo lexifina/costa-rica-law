@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLIX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Crea, para cada Parroquia, un mayordomo de fabrica, y señala sus atribuciones.
 "El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica. –Por cuanto las Cámaras han decretado y sancionado lo siguiente.
 La Cámara de Senadores del Estado libre de Costa Rica: considerando la dificultad que hay de que los mayordomos generales de fondos pios, administren los de fabrica de las respectivas Iglesias. asì por las crecidas atenciones que exijen aquellos, como por las que son consiguientes en este otro ramos que por otra parte los de fábrica tambien las tienen, principalmente en los pueblos numerosos en donde apenas podrán cumplir con sus deberes: que cada Parroquia por pequeña que sea necesita de un mayordomo particular que recaude sus fábricas, y que atienda à las necesidades que ocurran, y finalmente que acaso estando distantes los mayordomos generales no pueden cumplir con sus obligaciones, ha tenido à bien decretar y decreta.

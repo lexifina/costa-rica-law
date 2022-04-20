@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO XXXIII.
-Señala un premio al que abra una vereda entre “Puntarenas” en el Pacifico, y el rio “Sarapiqui” al Norte.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
+Señala un premio al que abra una vereda entre "Puntarenas" en el Pacifico, y el rio "Sarapiqui" al Norte.
 "José Maria Castro Presidente de Costa Rica etc etc.
 -Por cuanto el Excelentisimo Congreso Constitucional de la República ha decretado lo siguiente.
 El Excelentísimo Congreso Constitucional de la República de Costa Rica, considerando:

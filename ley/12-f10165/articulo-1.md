@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XII.
+(Esta norma fue derogada por el artículo 1° inciso 204, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Se manda dar cumplimiento a la Ley federal organica
 sobre Aduanas de 23 de Ottubre de 1830. (1)
 (1) Habiendo emitido las autoridades de Costa-Rica leyes que reglamentan las Aduanas, la presente y à la que se refiere, no se hallan hoy en vigor.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LIL.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gobierno Provisorio deroga el Decreto de 17 de Mayo de 1839, que mandaba celebrar con regocijo el aniversario de 27 de mayo de 1838. (1)
 El General Jefe Supremo Provisorio de Estado de Costa Rica.
 Considerando: Que declarada, por el voto unísono de todos los pueblos del Estado, la administración del Licenciado Señor Braulio Carrillo como precedente de un origen de hecho, no debe subsistir el Decreto dado por dicho Señor Carrillo con el objeto de solemnizar un dia que cuesta tantas lágrimas, á los Costarricenses –De acuerdo con el informe de la junta de que habla el Decreto de 18 del próximo pasado Abril, decreta.

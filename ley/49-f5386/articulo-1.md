@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO XLIX.
-Aprueba “ciertas providencias” dictadas ´por el Poder Ejecutivo, por hallarse, según dice, dentro de la orbita de sus atribuciones constitucionales.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
+Aprueba "ciertas providencias" dictadas ´por el Poder Ejecutivo, por hallarse, según dice, dentro de la orbita de sus atribuciones constitucionales.
 "José Maria Castro Presidente de Costa Rica etc. etc.
 -Por cuanto el Excelentísimo Congreso constitucional de la República ha decretado lo siguiente.
 El Excelentísimo Congreso constitucional de la República de Costa Rica: con presencia de la exposicion del Supremo Poder Ejecutivo y documentos que la acompañan, declara y decreta.

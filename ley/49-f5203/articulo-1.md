@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLIX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Establece una junta en esta Capital para reveer las disposiciones de la administración Carrillo. (1)
 (1) Aprobado por el artículo 11 del Decreto de la Asamblea Constituyente n° 14 de 24 de Agosto de este año.
 Considerando: que las repetidas quejas que elevan al Gobierno todos los pueblos del Estado contra varias leyes existentes, sobre asuntos cuya naturaleza demandando un pronto remedio para precaver mayores males, no permite por lo mismo esperar que se reúna la Asamblea Constituyente, y que no será posible ni oportuno prolongar por mas tiempo la duracion de dichas leyes, deseoso por otra parte de proceder en materia de tamaña importancia con toda la popularidad compatible con la absoluta falta de cuerpos representativos en que se halla el Estado, asi como auxiliarse de la experiencia y consejos de las personas de ilustración y patriotismo, ha tenido á bien expedir el siguiente decreto.

@@ -1,4 +1,6 @@
+(Derogado)
 Reglamento Orgánico de Instrucción Pública
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 DECRETO XLVII.
 Reglamento organico del Consejo de Instrucción Publica. (1)
 (1) Por orden gubernativa n° 27 de 13 de setiembre de 1859, se mando observar los Estatutos decretados en 1° de setiembre de 1843, en vez del presente reglamento; mientras se dé mejor arreglo al Establecimiento Universitario. Aun esta en el mismo estado (junio de 1865.)

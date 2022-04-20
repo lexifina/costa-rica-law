@@ -1,5 +1,6 @@
-PODER LEGISLATIVO
+(Derogado)
 DECRETO N°22
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (de 28 de noviembre)
 Aprueba el convenio celebrado por el señor Secretario de Estado en el despacho de Gobernación con el señor John S. Casement, referente a los reclamos que pudiera tener en la construcción del Ferrocarril al Pacífico.
 ______________________

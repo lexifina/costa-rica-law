@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXIV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 "Designa los individuos que deben componer la "Comision permanente, del Congreso.
 El Presidente del Estado de Costa Rica.-Por cuanto el Poder Legislativo ha decretado y sancionado lo siguiente.
 EI Congreso Constitucional del Estado de Costa Rica: con presencia de lo prevenido en el articulo 80, y el 10 del artículo 79 de la novísima Constitución, decreta.

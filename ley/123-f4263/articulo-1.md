@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 123
+(Esta norma fue derogada por el artículo 1°, inciso 99, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Jefe del Estado libre de Costa-Rica
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa-Rica, considerando no ser conforme a la actual división de mandos las atribuciones, concedidas a la Intendencia en la ley de 24 de noviembre de 825, ha tenido a bien decretar y decreta.

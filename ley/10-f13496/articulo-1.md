@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO X
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Establece un juez de policía en cada uno de los departamentos del estado y
 designa sus atribuciones
 (1) Reformado y refundido en la ley del régimen de Político n° 41 de 27 de Diciembre de 1848, y en el Reglamento de Policía n° 20 de 20 de julio de1849.

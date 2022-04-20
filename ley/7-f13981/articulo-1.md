@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO VII
+(Esta norma fue derogada por el artículo 1°, inciso 2, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado de Costa-rica
 Por quanto el Congreso Constituyente del mismo Estado ha decretado lo que sigue.
 El Congreso Constituyente del Estado de Costa rica, Considerando que la Constitución del Estado debe ser unisona con la voluntad general de los Pueblos del mismo, y acomodada a los uzos y costumbres del Pais, ha tenido a bien decretar y decreta.

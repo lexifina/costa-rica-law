@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO L.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Dispone la venta de polvora por cuenta del Estado, en las Receptorias de alcabalas (1)
 (I) Refundido en el Capit. XV seccion 2a Cap. IX seccion 3a del nuevo Reglamento de hacienda.
 "El Sepador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica-_Por cuanto las Càmaras han decretado y sancionado lo siguiente.

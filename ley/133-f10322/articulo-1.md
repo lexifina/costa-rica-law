@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 133
+(Esta norma fue derogada por el artículo 1°, inciso 108, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Jefe Supremo del Estado libre de Costa-Rica
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa Rica, considerando que la ley de 16 de enero de 1826, que reglamenta la administración de Justicia no estableció el Juez que debe conocer en las causas que tenga interés común o particular el de primera instancia de un partido, ha tenido a bien decretar y decreta

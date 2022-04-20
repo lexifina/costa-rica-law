@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XCII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Suspende o aplaza la posesion del Dr. D. José Maria Castro como Vice-Jefe Supremo del Estado, hasta tanto sea resuelta la renuncia que interpuso.
 (1) Véase el decreto n° 2 de 25 de febrero de 1818 que alterna en parte esta ley. Véase tambien la órden n° 22 de 12 de enero de 1853, que se refiere à la anterior.
 «El Jefe Supremo Provisorio del Estado libre de Costa Rica.--Por cuanto la Cámara de Senadores ha decretado lo siguiente.

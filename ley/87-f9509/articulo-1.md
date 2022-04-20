@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXXVII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Declara nulo y de ningún valor el Decreto de "Bases y garantías" emitido por el Licenciado Braulio Carrillo en 8 de Marzo de 1841.
 El General Jefe Supremo Provisorio del Estado de Costa Rica. -Por cuanto la Asamblea Constituyente ha decretado lo siguiente.
 La Asamblea Constituyente del Estado de Costa Rica, considerando:

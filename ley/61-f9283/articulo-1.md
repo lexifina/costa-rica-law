@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Concede a Soledad Calderón y a todos los comprendidos en la incursión de Quijano (menos a éste) el permiso de volver al Estado.
 “El Jefe Supremo del Estado Libre de Costa Rica. Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado Libre de Costa Rica: teniendo á la vista la representación hecha por la Señora Manuela Valverde vecina de la ciudad de Cartago, para que se le conceda á su esposo Soledad Calderón el permiso para volver al seno de su familia. Considerando: que aunque por virtud de la incursión que se esperimentó en las fronteras del Estado el año 836, fue escluido Calderón de tal permiso por el participio que tuvo en dicha incursion es probable que si este y otros se mezclaron en ella, fue por las sugestiones de Quijano, y que por esto deben conceptuar e acreedores de indulgencia, decreta.

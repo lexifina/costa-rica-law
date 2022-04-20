@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 137
+(Esta norma fue derogada por el artículo 1°, inciso 112, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Jefe Supremo del Estado libre de Costa-Rica
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa-Rica, en concepto de que los caminos generales del Estado y especialmente el que va para Puntarenas y Nicaragua, exigen una composición que, facilitando el transporte, presente la mejor comodidad a los viajeros y traficantes: considerando que tales ventajas refluyen más cerca en favor suyo, y que, convenidos de ellas, no les será gravoso cualquiera derecho que se les imponga de peaje para la composición de los mismos caminos, ha venido en decretar y decreta:

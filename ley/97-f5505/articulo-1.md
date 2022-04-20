@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XCVIL.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Declara en estado de rebelion a todos los habitantes de Alajuela.
 "El Vice-Presidente del Estado de Costa Rica en ejercicio del Supremo Poder Ejecutivo.
 Teniendo à la vista la acta suversiva y criminal, celebrada el dia de ayer en la ciudad de Alajuela, por la cual se desconoce la Administracion lejitima del Estado, y se proclaman principios anárquicos destructores del órden establecido por la Constitucion y las leyes; y considerando:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CLXV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Reglamenta el modo de expender en el país los licores extranjeros. (1)
 "El Jefe Supremo del Estado libre de Costa Rica.-Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa Rica, teniendo presente que por el aumento de gastos que ha sufrido el Estado en este y el próximo pasado años ocasionados por la guerra, su Erario público, no solo se halla en sumo atraso y nulidad, sino que también ha contraído deudas que no podrá cubrir con el producto de sus rentas comunes; y temiendo con fundamento que las del ramo de aguardiente en el próximo remate tendrán una baja de consideración, ha venido en decretar y decreta.

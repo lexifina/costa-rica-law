@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXIIL
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Designa la medida para el licor del pais y dicta algunas reglas a este respecto, (1)
 (1) Véanse las ordenes n° 18 de 1° de Abril de 1862 y n°263 de 28 de diciembre de 1861.
 "Francisco Maria Oreamuno Vice-Presidente de la República encargado del Supremo Poder Ejecutivo.

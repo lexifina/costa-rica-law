@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO III.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Manda que se admitan en pago de las tres cuartas partes de los derechos marítimos las certificaciones del empréstito levantado por la Administración
 El Jefe Supremo del Estado de Costa Rica.
 Siendo uno de los deberes del Gobierno conservar el crédito del Estado dándoles garantías á los tenedores de vales y certificaciones; y considerando: que las libraron en seguridad del empréstito que, con el nombre de contrata, levantó el General Morazan, no pueden amortizarse, por que él mismo dispuso de las cantidades afectas á este objeto con gran perjuicio de los prestamistas, y en mengua del crédito del Gobierno decreta.

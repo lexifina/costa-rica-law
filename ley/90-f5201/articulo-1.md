@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XC
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Adiciona el de 18 de Julio de este año que reglamento las Aduanas marítimas (1)
 “El Jefe Supremo del Estado Libre de Costa Rica.
 Convencido de que la ejecución rigurosa del Decreto de 18 de Julio en órden al reconocimiento de los efectos y mercancías que el comercio introduce por los puertos de Norte y Sur al Estado, embarazaría la expedición de los negocios: y atendiendo á las peticiones que sobre este punto han hecho varios comerciantes del país, adicionando el Decreto expresado, ordena.

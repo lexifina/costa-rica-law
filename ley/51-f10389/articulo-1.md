@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXVI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Poder Ejecutivo disuelve el Congreso Nacional. (1)
 (1) Golpe de Estado de 30 de enero de 1852. (Veanse los documentos oficiales insertos en el p° 185 de le Cruceta correspondiente al 7 de febrero del mismo año!
 "Juan Rafael Mora, Presidente de la República de Costa Rica,

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CLXV
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Declara la continuacion del Tribunal Supremo de Justicia y la renovacion de los individuos del Poder Legislativo en virtud de la Constitucion reformada.
 "El General Presidente de la Repùblica de Costa Rica. -Por cuanto el Excelentísimo Poder Legislativo ha decretado y sancionado lo siguiente.
 El Excelentísimo Congreso Constitacional de la Repùblica de Costa Rica.

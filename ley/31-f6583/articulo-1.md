@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Declara que ha estado y esta vigente la disposicion que ordeno la "manda forzosa” de cinco pesos sobre el quinto de ciertas testamentarias
 “El Presidente del Estado de Costa Rica. –Por cuanto el Poder Legislativo ha decretado y sancionado lo siguiente.
 El Congreso Constitucional del Estado de Costa Rica, habiendo tomado en consideracion el expediente que ha motivado la duda sobre la inteligencia que deba darse à los artículos 2° y 3° del decreto de 21 de mayo de 842 y 12 del dia 24 de agosto del mismo año acerca de la manda forzosa que se hallaba establecida en favor del Lazareto, se ha servido declarar:

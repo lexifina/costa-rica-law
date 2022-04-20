@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LIV
+(Esta norma fue derogada por el artículo 1°, inciso 41, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado libre de Costa rica
 Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa rica, para que la ley dada por la Asamblea Nacional Constituyente con el piadoso objeto de indegnizar a los dueños de esclavos,: y que estos pudiesen obtener la libertad tenga en el Estado puntual cumplimiento removido los inconvenientes que se oponen, ha tenido a bien decretar y decreta.

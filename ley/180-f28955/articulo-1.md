@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 180
+(Esta norma fue derogada por el artículo 1° inciso 151, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 EL Gefe Supremo del Estado Libre de Costa rica.
 Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado Libre de Costa rica: penetrado de que el tabaco es uno de los frutos en que el Labrador tiene que empeñar toda su industria; que las más veces no le es bastante su desvelo y eficacia para ver un momento a otro arruinado el que esperaba, por lo delicado de su cultivo, que en este peligro existe siempre a pesar de sus fatigas, que en este consepto y en el de que aunque debe pagar a la Iglecia tributo de su labor por derecho natural, al positivo corresponde fixar la qüota que deba ser: y por ultimo teniendo en consideración, a más de la protección que merece en su línea, que el pago lo hacen en numerario sin exponer la masa decimal sus ingresos en este ramo, ha tenido a bien decretar y decreta.

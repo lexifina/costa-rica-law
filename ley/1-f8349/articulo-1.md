@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO I
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Faculta a las Municipalidades de Heredia y Barba para vender las tierras de egidos. (1)
 (1) Véase el Decreto n° 12 de 6 de julio de este mismo año que reforma y adiciona al presente
 "José María Castro Presidente de Costa Rica etc. etc. Por cuanto el Excelentisimo Poder Legislativo ha decretado lo siguiente.
