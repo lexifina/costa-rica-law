@@ -15,3 +15,4 @@ Reglamento para las contrataciones por el régimen de excepción y funcionamient
 | --- | --- | --- |
 | 1 | 2020-10-02 | la propia norma |
 | 2 | 2021-07-21 | Reglamento 14 (2021-07-21) |
+| 3 | 2022-04-20 | Reglamento 7 (2022-04-20) |

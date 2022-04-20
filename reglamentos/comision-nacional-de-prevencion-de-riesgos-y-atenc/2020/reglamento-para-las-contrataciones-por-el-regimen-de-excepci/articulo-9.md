@@ -1,4 +1,4 @@
-Artículo 9º-Funciones Específicas de la Proveeduría Institucional. La Proveeduría Institucional tendrá las siguientes funciones específicas:
+Artículo 9°-Funciones Específicas de la Proveeduría Institucional. La Proveeduría Institucional tendrá las siguientes funciones específicas:
 a) Recibir, tramitar y custodiar toda clase de documentos y expedientes relacionados con sus funciones y proceder a su archivo cuando corresponda.
 b) Atender consultas que le formulen las diversas personas públicas o privadas relacionadas con sus funciones.
 c) Realizar las labores de planeamiento y programación que correspondan para el mejor desempeño de sus funciones.
@@ -16,4 +16,7 @@ n) La consulta y uso del Registro de Proveedores Único de Gobierno y el catálo
 ñ) Elaborar y publicar en el Sistema Integrado de Compras Públicas el programa anual de adquisiciones y sus modificaciones.
 o) Llevar a cabo los procedimientos administrativos tendentes a establecer la existencia del incumplimiento contractual y recomendar la ejecución de garantías vigentes.
 p) Llevar a cabo los procedimientos administrativos tendentes a establecer la existencia de defectos en la ejecución de contratos, determinar las multas o cláusula penal y recomendar la aplicación o no de las mismas.
-Se exceptúa del inciso h) la administración de las Bodegas Satelitales que mantenga la CNE. El control de los inventarios está a cargo de la Unidad de Gestión de Operaciones, deberá existir por parte de la jefatura de operaciones, un control detallado de activos y bienes que indique: ubicación, estado y funcionario responsable de los bienes y activos ubicados en cada región del país. Siendo responsabilidad de la Jefatura de la Unidad de Gestión de Operaciones y del Proceso de Comunicaciones la custodia de cada uno de los bienes y activos adquiridos por compra o donación a favor de la Comisión. Lo anterior, según lo dispone el Reglamento para el control de Bienes y Activos de la CNE.
+Las funciones establecidas en los incisos g) y h) del presente artículo serán aplicables tanto a la bodega principal de la CNE como a las bodegas regionales, locales o satelitales que se establezcan en cumplimiento de las obligaciones y necesidades logísticas de la institución con el fin de garantizar debidamente las acciones de preparativos y respuesta frente a situaciones de emergencia.
+(Así reformado en sesión N° 07 del 20 de abril de 2022)
+Transitorio: La Administración de la CNE, tendrá un plazo de tres meses a partir de la publicación de la presente reforma, para implementar los cambios requeridos, de modo que la totalidad de las bodegas existentes a la fecha queden bajo la administración de la Proveeduría en el plazo señalado.
+(Así adicionado el transitorio anterior perteneciente al párrafo segundo de este artículo en sesión N° 07 del 20 de abril de 2022)
