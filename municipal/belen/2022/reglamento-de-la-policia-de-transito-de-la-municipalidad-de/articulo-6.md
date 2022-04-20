@@ -1,0 +1,17 @@
+Artículo 6º-Sin perjuicio de lo estipulado en otra ley son funciones y atribuciones de la Policía de Tránsito Municipal de Belén:
+a. Prevenir en general todos aquellos delitos que puedan ser de su conocimiento, efectuando todas las medidas concernientes a la seguridad de las personas y medios de transporte, dando intervención a las autoridades policiales y/o judiciales competentes.
+b. Atender los accidentes de tránsito que ocurran en el cantón dentro del horario de operaciones de la Policía de Tránsito Municipal y en coordinación con la Policía de Tránsito Nacional, además de presentar la documentación correspondiente a los Juzgados de Tránsito y Ministerio Público conforme al tiempo que la ley indica.
+c. Velar por el cumplimiento de todas las disposiciones del tránsito, emanadas por autoridad competente.
+d. Confeccionar partes por infracción a la Ley de Tránsito, Ley número 9078 Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial.
+e. Regular, ordenar, vigilar y controlar el tránsito público, constituyéndose en autoridades aplicativas.
+f. Velar por que las vías cantonales mantengan una adecuada demarcación vial por lo que se participará junto con la Unidad De Obras en propuestas para la implementación de mejoras en la demarcación vial, respondiendo tanto a las necesidades operativas como a las denuncias de ciudadanos en temas como mal estacionamiento, o demarcación vial inexistente y de movilidad urbana.
+g. Remover o movilizar vehículos de la vía pública, cuando éstos se encuentren en infracción a las leyes o reglamentos respectivos, en tanto se cuente con el insumo necesario para hacerlo, entre ellos grúa y el espacio físico.
+h. Administrar y mantener actualizado un registro estadístico de infracciones a las leyes de tránsito y de accidentes con fines preventivos y operativos para su disminución con controles de carretera en los mayores puntos de incidencia y estableciendo operativos de control vehicular según el Plan Operativo Institucional (ANUAL-POI).
+i. Actuar coordinadamente con las direcciones que integran la Administración Vial, Dirección General de Educación Vial, COSEVI, Colegios y Escuelas del Cantón en la relación de Planes de Educación Vial y en los servicios especiales que demanden las ejecuciones técnicas, operativas y legales del tránsito, participando con sus recursos en los Planes de Seguridad Vial y cualesquiera otros que estén identificados con los objetivos de la Dirección.
+j. Efectuar la coordinación entre organismos estatales y privados en el cumplimiento de sus objetivos.
+k. Coordinar con las demás instituciones de la Fuerza Pública, Tránsito Nacional, Policía Municipal de Belén la realización de servicios operacionales conjuntos a fin de cumplir con sus funciones específicas.
+l. Planear y programar los servicios ordinarios y especiales de vigilancia y prevención del tránsito, disponiendo de los recursos propios.
+m. Promover la capacitación del personal asignado con el objeto de la eficiente prestación del servicio, efectuando para ello, los enlaces, coordinación y medidas que mejor conduzcan a lograrlo.
+n. Cumplir con todas aquellas funciones específicas relacionadas con el tránsito que le asigne la Alcaldía Municipal.
+o. Realizar funciones de seguridad preventiva, de protección a los ciudadanos actuación inmediata respecto a "Delitos in Fraganti"
+p. Brindar capacitación a los ciudadanos del cantón de Belén.

@@ -1,0 +1,1 @@
+Artículo 11.-Constituye obligación del personal de la Policía de Tránsito Municipal de Belén hacer uso moderado y correcto del uniforme, prohibiéndose su utilización para otras tareas que no sean las derivadas del servicio.

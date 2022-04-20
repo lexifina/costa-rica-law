@@ -1,0 +1,1 @@
+Artículo 15.-Las formas y dimensiones de los distintos elementos constitutivos, descritos en los artículos precedentes corresponderán al tamaño tradicional, pudiendo ser variado solamente en circunstancias especiales que determine la Administración Municipal.
