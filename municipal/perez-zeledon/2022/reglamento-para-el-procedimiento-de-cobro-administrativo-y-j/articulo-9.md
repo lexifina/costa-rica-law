@@ -1,0 +1,1 @@
+Artículo 9º-Expediente Administrativo Judicial. La Actividad de Cobro Administrativo elaborará un cuadro en formato de Excel que incluya: calidades del obligado tributario, lugar exacto para su notificación, señas de identificación y número de cédula del moroso, aviso de cobro debidamente notificado y la certificación contable de adeudo de tributos.

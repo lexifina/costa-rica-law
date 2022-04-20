@@ -1,0 +1,1 @@
+Artículo 15.-Del precio público por el costo administrativo: Por concepto de presentación de Procesos Monitorios, la Municipalidad de Pérez Zeledón cobrará la tarifa decretada por el Concejo Municipal, lo anterior, a excepción de los procesos judiciales que tramiten abogados externos, cuyos honorarios se regirán por el decreto de honorarios vigente.

@@ -1,0 +1,1 @@
+Artículo 12.-Incumplimiento del arreglo de pago: El convenio de arreglo de pago se resolverá únicamente por el pago total de la obligación morosa, cuando se computen 30 días naturales de retraso en el cumplimiento de cuotas morosas, la Administración Tributaria Municipal disolverá de oficio el acuerdo de pago y trasladará la cuenta a la Asesoría Jurídica para cobro judicial.

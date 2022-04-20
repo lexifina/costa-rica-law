@@ -1,0 +1,1 @@
+Artículo 7º-De las notificaciones. Cuando deba practicarse la notificación de un aviso de cobro u otra prevención, el notificador municipal deberá ajustarse a lo indicado en la Ley de Notificaciones Judiciales.

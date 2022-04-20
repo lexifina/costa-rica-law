@@ -1,0 +1,3 @@
+CAPÍTULO 3
+Gestión de cobro judicial
+Artículo 13.-Del inicio. Agotadas las gestiones administrativas en la recuperación de las obligaciones tributarias municipales con plazo vencido y cuando la deuda supere el 20% del salario base correspondiente al oficinista 1 del Poder Judicial, el Proceso de Asesoría Jurídica será el responsable de continuar el trámite de cobro, para ello contará con la documentación indicada en el artículo número nueve del presente cuerpo normativo. Cuando a criterio de la Administración Municipal exista una adecuada relación de costo-beneficio en la gestión cobratoria y disponibilidad de recursos, se podrán trasladar a cobro judicial cuentas morosas que posean un monto inferior al estipulado en el presente artículo.

@@ -1,0 +1,1 @@
+Artículo 20.-Cobro de Honorarios Profesionales. Los honorarios profesionales de los abogados externos se cobrarán conforme lo dispuesto en el cartel de licitación y el arancel del Colegio de Abogados y Abogadas.
