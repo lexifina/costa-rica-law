@@ -1,0 +1,2 @@
+Artículo 3º-Se adiciona el transitorio II al Reglamento para la Protección de los Programas de Cómputo en los Ministerios e Instituciones Adscritas al Gobierno Central, Decreto Ejecutivo N° 37549-JP del 26 de noviembre de 2012. El texto es el siguiente:
+Transitorio II.-Prorróguese por una única vez a partir de la publicación del presente decreto, por 3 meses, el plazo para la presentación del informe correspondiente al año 2020 establecido en el artículo 4° del Decreto Ejecutivo 37549-JP del 26 de noviembre del 2012 y sus reformas.
