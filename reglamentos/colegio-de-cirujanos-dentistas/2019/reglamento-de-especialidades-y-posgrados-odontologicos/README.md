@@ -15,3 +15,4 @@ Reglamento de especialidades y posgrados odontológicos
 | --- | --- | --- |
 | 1 | 2019-06-15 | la propia norma |
 | 2 | 2021-05-05 | Reglamento 0 (2021-05-05) |
+| 3 | 2022-04-21 | Reglamento 0 (2022-04-21) |
