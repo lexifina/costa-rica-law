@@ -1,0 +1,1 @@
+Artículo 11.-Responsabilidad de la auditoría interna. La auditoría interna es responsable de verificar el cumplimiento de lo dispuesto en este reglamento, sin perjuicio de las competencias propias de la Contraloría General de la República.
