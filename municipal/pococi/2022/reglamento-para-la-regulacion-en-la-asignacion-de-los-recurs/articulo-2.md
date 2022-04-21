@@ -1,0 +1,1 @@
+Artículo 2º-Beneficiarias. De acuerdo con la Ley 7755 serán beneficiarias de las partidas específicas las municipalidades. La Municipalidad de Pococí está calificada por la Contraloría General de la República y será el ente mediante el cual las comunidades canalizarán sus propuestas de ejecución de obra.

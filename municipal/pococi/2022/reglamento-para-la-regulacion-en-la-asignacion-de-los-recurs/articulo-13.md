@@ -1,0 +1,1 @@
+Artículo 13.-La municipalidad será directamente responsable de velar porque los programas y proyectos que hayan sido aprobados por los Concejos Distritales, en cumplimiento de lo estipulado en el inciso c) del artículo 4 de la Ley 7755 citada, y en observancia de la normativa relativa a la votación contenida en el presente reglamento.
