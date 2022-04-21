@@ -1,0 +1,2 @@
+Artículo 10.-Responsabilidades de la Dirección de Salud Ocupacional
+La Dirección de Salud Ocupacional deberá emitir la normativa, directrices, procedimientos y las recomendaciones técnicas en pro de la salud y seguridad de los grupos ocupacionales contemplados dentro de este reglamento, llevar a cabo los programas institucionales de gestión preventiva de riesgos laborales y emitir los criterios técnicos para la actualización del presente reglamento según la naturaleza de los riesgos y los cambios operacionales que se realicen institucionalmente.

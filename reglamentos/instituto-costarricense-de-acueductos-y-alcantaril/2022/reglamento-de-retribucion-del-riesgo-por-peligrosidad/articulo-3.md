@@ -1,0 +1,2 @@
+Artículo 3°-Los siguientes criterios rigen para determinar el reconocimiento por retribución por riesgo de peligrosidad:
+. Estar ejerciendo de forma permanente funciones y/o actividades de trabajo medulares y determinadas con riesgo inherente para la salud (Ver MARRP), con exposición directa al riesgo, con una frecuencia de ejecución constante u ocasional a riesgo biológico, químico y/o eléctrico según los conceptos y criterios indicados en este reglamento.

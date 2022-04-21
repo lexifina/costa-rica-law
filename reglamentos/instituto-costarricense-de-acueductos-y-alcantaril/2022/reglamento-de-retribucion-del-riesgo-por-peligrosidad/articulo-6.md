@@ -1,0 +1,2 @@
+Artículo 6°-Nombramiento de funcionarios en actividades de trabajo con retribución de peligrosidad:
+Todo proceso de contratación cuyas funciones o actividades del puesto de trabajo que sean asignadas de forma permanente y que estén determinadas dentro de este reglamento (Ver MARRP), deberá contemplar el reconocimiento automático e inmediato de la retribución por riesgo de peligrosidad desde el momento en que se genere el nombramiento.

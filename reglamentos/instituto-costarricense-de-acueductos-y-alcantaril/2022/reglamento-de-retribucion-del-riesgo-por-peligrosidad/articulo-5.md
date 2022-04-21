@@ -1,0 +1,2 @@
+Artículo 5°-Reconocimiento de un único porcentaje de retribución al riesgo
+La exposición ocupacional a más de un riesgo inherente se reconoce con la aplicación del porcentaje de retribución correspondiente, esto según el grupo ocupacional y las actividades de trabajo indicadas en este reglamento. No se aplicarán suma de porcentajes o fraccionamientos, quedando sujeto al estudio técnico de la Dirección de Gestión de Capital Humano el monto nominal de retribución que le corresponde según el grupo ocupacional y la clase del puesto.
