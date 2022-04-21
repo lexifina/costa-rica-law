@@ -1,0 +1,1 @@
+Transitorio único.-Si a la fecha de publicación del presente decreto ejecutivo hubiere en trámite un concurso por oposición, este continuará su tramitación con arreglo a las disposiciones reglamentarias vigentes al momento de publicitar dicho concurso.
