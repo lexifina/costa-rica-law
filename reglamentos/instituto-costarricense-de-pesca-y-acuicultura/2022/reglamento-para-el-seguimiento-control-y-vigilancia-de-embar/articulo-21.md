@@ -1,0 +1,1 @@
+Artículo 21.-Emisión de conformidades. El CSC emitirá conformidades cuando el armador o el capitán de la embarcación cumpla con la Ley de Pesca y Acuicultura y el presente reglamento y no incurra en ninguna situación irregular o ilegal.

@@ -1,0 +1,2 @@
+Artículo 17.-De la falta de transmisión de datos. En caso de que se detecte la falta de transmisión de datos, el CSC del INCOPESCA emitirá comunicación al armador en el lugar señalado por este para recibir notificaciones.
+El hecho de que el INCOPESCA no comunique una alerta o interrupción en la transmisión de datos, no podrá ser considerado por el armador como prueba para justificar su responsabilidad ante posibles incumplimientos a este reglamento, dado que la supervisión del viaje de pesca y el funcionamiento del DC es responsabilidad del capitán y del armador.

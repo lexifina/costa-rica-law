@@ -1,0 +1,2 @@
+Artículo 25.-De la notificación de disconformidad y recolección de pruebas. En caso de disconformidades, se pondrá en conocimiento al armador de dicha resolución, para que proceda según corresponda.
+La oficina consultante del INCOPESCA recibirá el informe de disconformidad con las pruebas del CSC, deberá recolectar la prueba pertinente en puerto y trasladar el asunto a conocimiento del Ministerio Público, cuando así corresponda según el Decreto Ejecutivo N°40599-MP-MINAEMOPT-MAG-SP., CAPITULO XXX; Delitos, Infracciones, Sanciones y Recursos.

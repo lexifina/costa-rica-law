@@ -1,0 +1,4 @@
+Sección III
+Embarcaciones extranjeras con licencia de pesca
+Artículo 10.- De la transmisión de los DS de embarcaciones de bandera extranjera con licencia de pesca costarricense. El otorgamiento de las licencias de pesca a las embarcaciones atuneras con red de cerco con bandera extranjera otorgadas de conformidad con los artículos N°49 y siguientes de la LPA, será efectivo a partir del momento en que cumpla con los requisitos que exige el Incopesca y se verifique la efectiva transmisión de un DS compatible con el CSC del INCOPESCA.
+Las embarcaciones de bandera extranjera con licencia de pesca costarricense deberán transmitir al CSC de forma continua e ininterrumpida la información correspondiente a todas las actividades que realice durante la vigencia de la licencia pesca, así como cumplir con todas las disposiciones de orden técnico y jurídico.

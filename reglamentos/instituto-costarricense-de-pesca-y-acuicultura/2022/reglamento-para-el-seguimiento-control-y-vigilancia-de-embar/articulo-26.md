@@ -1,0 +1,1 @@
+Artículo 26.-Del valor probatorio de la información generada por el SLSC. La información generada por el SLSC y registrada electrónicamente en el CSC, constituirá prueba válida ante las autoridades correspondientes, en caso de violaciones a la normativa pesquera.

@@ -1,0 +1,2 @@
+Artículo 13.-De la transmisión al SLSC de Incopesca. Las embarcaciones extranjeras que realizan la pesca y que no cuenten con licencia de pesca costarricense y que soliciten descargar en puertos nacionales autorizados, deben tener instalado un SLSC compatible con la plataforma de seguimiento de embarcaciones del CSC del INCOPESCA.
+Deben transmitir su señal antes de ingresar a la ZEE de Costa Rica y hasta 24 horas posteriores a la salida de estas de aguas costarricenses, una vez realizado el desembarque.

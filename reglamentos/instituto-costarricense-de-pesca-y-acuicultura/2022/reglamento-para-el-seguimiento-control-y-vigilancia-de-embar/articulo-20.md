@@ -1,0 +1,1 @@
+Artículo 20.-De la comunicación al Departamento de Promoción de Mercados. Las conformidades y disconformidades emitidas por el CSC deberán ser notificadas por los medios oficiales al Departamento de Promoción de Mercados a efectos de las autorizaciones de exportaciones correspondientes.
