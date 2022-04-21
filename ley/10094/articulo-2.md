@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Municipalidad del cantón de Pococí, cédula jurídica tres - cero uno cuatro - cero cuatro dos uno dos cinco (3-014-042125) para que done el terreno desafectado a la Asociación Centro de Vida Independiente Kadota, cédula de persona jurídica tres-cero cero dos-siete cero seis dos cero tres (3-002-706203).
