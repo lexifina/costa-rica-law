@@ -1,6 +1,6 @@
 # Ley Orgánica del Colegio de Optometristas de Costa Rica
 
-Ley N° 3838 del 1966-12-19. SINALEVI, ficha 3370: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3370&param2=3568&param3=1>.
+Ley N° 3838 del 1966-12-19. SINALEVI, ficha 3370: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3370&param2=129829&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1966-12-19 | Ley 3838 | 1966-12-19 |
 | 2 de 3 | 1966-12-19 | SINALEVI | 1966-12-19 |
+| 3 de 3 | 2022-04-22 | Ley 10191 | 2022-04-20 |
