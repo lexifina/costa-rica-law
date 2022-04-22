@@ -1,0 +1,3 @@
+ARTÍCULO 19- Pago de la colegiatura
+Se mantendrá la calidad de miembro mientras el profesional satisfaga la cuota mensual que establece la Asamblea General.
+La Junta Directiva podrá proponer, a la Asamblea General, eximir de la cuota de colegiatura a los incorporados que tengan la edad que se establezca en el Régimen de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro Social. Asimismo, aquellos que residan fuera del país, por el tiempo de su ausencia, siempre y cuando lo hayan comunicado por escrito con acuse de recibo a la Junta Directiva, antes de haber iniciado las actividades o haberse ausentado del país.

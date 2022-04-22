@@ -1,0 +1,2 @@
+ARTÍCULO 16- Fiscalización de los establecimientos
+La fiscalización de los establecimientos de acuerdo con el ejercicio profesional será llevada a cabo por el Colegio de Optometristas. La fiscalización sobre las condiciones de habilitación del servicio será realizada por el Ministerio de Salud, el cual podrá solicitar la colaboración a la Junta Directiva del Colegio de Optometristas de Costa Rica.
