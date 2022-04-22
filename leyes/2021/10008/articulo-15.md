@@ -1,5 +1,5 @@
 TÍTULO V
 BENEFICIOS
-ARTÍCULO 15- Beneficios relativos a la condición migratoria
-El beneficio migratorio se le otorgará por un año, prorrogable por un único período de un año adicional. Para autorizar dicha prórroga, el beneficiario deberá haber permanecido en el país un mínimo de ciento ochenta días durante el año concedido originalmente.
+ARTÍCULO 15- Beneficios relativos a la condición migratoria. El beneficio migratorio se le otorgará por un año, prorrogable por un único período de un año adicional. Para autorizar dicha prórroga, el beneficiario deberá haber permanecido en el país un mínimo de ciento ochenta días durante el año concedido originalmente.
 Asimismo, de previo a la expiración del beneficio migratorio, en aquellos casos en que sea procedente y se cumplan los requisitos formales y sustantivos pertinentes, el beneficiario podrá solicitar el cambio de categoría migratoria, según se categoriza en la Ley 8764, Ley General de Migración y Extranjería, de 19 de agosto de 2009.
+(Nota de Sinalevi: Mediante el artículo 1° de la ley N° 10208 del 22 de abril de 2022, se interpretó auténticamente este numeral en el sentido de que: "…en donde se estipula que el beneficio migratorio se otorgará por un año, se interprete que se otorgará hasta por un año, es decir, los solicitantes podrán pedir y obtener una visa por un plazo menor al año.")
