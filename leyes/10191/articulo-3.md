@@ -1,0 +1,3 @@
+ARTÍCULO 3- Potestades
+El Colegio de Optometristas tiene plena capacidad para realizar cualquier tipo de actos o contratos, suscribir convenios con personas físicas, jurídicas, públicas, privadas, nacionales o extranjeras, en el marco de la Ley 7494, Ley de Contratación Administrativa, de 2 de mayo de 1995, y su reglamento.
+Asimismo, tendrá capacidad para constituirse en parte de cualquier proceso judicial en las diferentes jurisdicciones, ya sea porque se efectúen derechos subjetivos, intereses legítimos, se considere necesaria la defensa de sus agremiados, agrupaciones de colegiados o establecimientos a cargo de profesionales colegiados.

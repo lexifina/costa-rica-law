@@ -1,0 +1,3 @@
+ARTÍCULO 34- Sesiones de la Junta Directiva
+La Junta Directiva se reunirá ordinariamente una vez por semana y extraordinariamente para tratar un asunto declarado urgente. Para que haya cuórum en la Junta Directiva se requiere que concurran tres de los miembros que la componen. En caso de que no haya cuórum, la Junta Directiva podrá sesionar formando cuórum de acuerdo con las disposiciones de la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978.
+Los acuerdos y las resoluciones se tomarán por mayoría absoluta de votos presentes. En caso de empate, se hará la votación nuevamente y, si este se repite, la decisión será tomada por el doble voto del que preside. Los acuerdos firmes requieren mayoría calificada.

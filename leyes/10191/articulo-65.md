@@ -1,0 +1,5 @@
+ARTÍCULO 65- Procedimiento para la destitución de cargos por elección
+Cualquiera de los funcionarios nombrados por elección podrá ser removido de su cargo antes del vencimiento de su período por la Asamblea General. Para ello, deberá presentarse ante la Fiscalía una solicitud formal y fundamentada en la que se indicarán las faltas imputadas al funcionario y su correspondiente prueba.
+El fiscal procederá a instruir la causa a efectos de informar a la Asamblea General para que esta resuelva la solicitud, la cual deberá contar con votación favorable de las tres cuartas partes de los presentes para que sea acogida.
+Si la remoción solicitada fuera la del cargo de fiscal, la solicitud deberá presentarse en la Secretaría de la Junta Directiva, para que este órgano instruya la causa e informe a la Asamblea General, la que resolverá conforme lo indica el presente artículo.
+La Asamblea General está facultada para suspender a un miembro del Colegio para el ejercicio de cualquier cargo dentro del Colegio hasta por tres años, siempre que se siga el debido proceso conforme al reglamento que promulgue la Asamblea General y la normativa vigente.
