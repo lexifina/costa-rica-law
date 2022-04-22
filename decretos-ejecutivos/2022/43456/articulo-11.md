@@ -1,0 +1,1 @@
+Artículo 11º-Contrato o Adenda de teletrabajo. Para la prestación del servicio bajo la modalidad de teletrabajo, se suscribirá un contrato voluntario entre el superior inmediato y la persona teletrabajadora del MEP, con las condiciones que se estipulan en el capítulo VI de este reglamento

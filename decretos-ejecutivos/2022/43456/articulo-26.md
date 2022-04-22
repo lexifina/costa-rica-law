@@ -1,0 +1,4 @@
+Artículo 26°-Tiempo extraordinario. De conformidad con la normativa vigente, los colaboradores que se acogen a la modalidad de teletrabajo podrán efectuar el cobro de tiempo extraordinario, siempre y cuando cumplan con las siguientes disposiciones:
+a. Que el pago de tiempo extraordinario sea autorizado por su jefatura inmediata y se cuente con el presupuesto disponible. (Queda prohibido realizar tiempo extraordinario si no se cuenta con presupuesto).
+b. Que al efectuar tiempo extraordinario, esté sea para cumplir una necesidad o contingencia requerida por la jefatura, la Subdirección o la Dirección.
+La jefatura inmediata deberá llevar el control de la jornada extraordinaria, la misma que debe ser aprobada y justificada por ambas partes, dando fe del tiempo extraordinario y las actividades reportadas por el funcionario; de acuerdo a lo solicitado en el "Formulario Tiempo Extraordinario" de la Dirección de Recursos Humanos, aportando las pruebas respectivas.

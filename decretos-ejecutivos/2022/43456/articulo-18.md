@@ -1,0 +1,1 @@
+Artículo 18°- Régimen recursivo. Las recomendaciones y actos tomados por la Comisión Institucional de Teletrabajo MEP, tendrán los recursos ordinarios establecidos en el artículo 58 de la Ley General de Administración Pública.

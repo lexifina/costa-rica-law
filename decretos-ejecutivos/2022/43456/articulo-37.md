@@ -1,0 +1,1 @@
+Artículo 37°-Veracidad de la información. La persona teletrabajadora debe brindar información veraz y oportuna en todos los procesos de investigación, evaluación del desempeño y medición a los que deba someterse.

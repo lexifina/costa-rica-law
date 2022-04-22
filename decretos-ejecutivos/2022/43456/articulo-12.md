@@ -1,0 +1,1 @@
+Artículo 12º-Duración de la relación de teletrabajo. La vigencia del contrato firmado es de hasta por un año el cual puede ser prorrogable, siempre que se cuente con el criterio en positivo de la dirección o jefatura del departamento y se demuestre la necesidad de la institución; para ello utilizarán el instrumento denominado adenda.

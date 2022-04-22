@@ -1,0 +1,1 @@
+Artículo 21º-Dirección de Informática de Gestión. Le corresponderá a esta Dirección, ejercer las funciones establecidas en el Decreto Ejecutivo N°38170 "Organización Administrativa en las Oficinas Centrales del MEP".

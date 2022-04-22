@@ -1,0 +1,1 @@
+Artículo 9º-Compromiso de colaborar con la modalidad. Todas las jefaturas y colaboradores relacionados, directa o indirectamente, con las personas que teletrabajen deben colaborar en su gestión para que esta modalidad de trabajo cumpla con los objetivos establecidos y la normativa asociada.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Condiciones de la Modalidad de teletrabajo
+Artículo 23°-Potestad ministerial. De conformidad con las disposiciones de la Ley N°9738 y su Reglamento Nº 42083-MP-MTSS-MIDEPLAN-MICITT; el MEP implementó la modalidad de Teletrabajo para las personas trabajadoras, el cual estará sujeto a la naturaleza del cargo, conectividad u otras circunstancias que requiera la implementación del Teletrabajo. El MEP y sus órganos desconcentrados, mantendrán la modalidad de Teletrabajo activo, pero se reservan la facultad de incorporar o no a sus colaboradores en esta modalidad de teletrabajo, dependiendo de las condiciones, actividades, la conectividad disponible y otros aspectos que se estimen pertinentes.

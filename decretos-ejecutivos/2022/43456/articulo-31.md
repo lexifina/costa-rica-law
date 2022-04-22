@@ -1,0 +1,1 @@
+Artículo 31°-Visto bueno de la jefatura. Para acceder a la modalidad de teletrabajo, el colaborador interesado deberá contar con el visto bueno de su jefatura inmediata, que en todo caso deberá otorgarse por escrito o firma , mediante un contrato o adenda previamente definido.

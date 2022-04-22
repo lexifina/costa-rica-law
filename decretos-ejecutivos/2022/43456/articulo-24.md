@@ -1,0 +1,4 @@
+Artículo 24°-Mantenimiento de las condiciones laborales.
+Los colaboradores incorporados en la modalidad de teletrabajo, deben mantener las condiciones que justificaron su ingreso a éste, así como cumplir con todas las obligaciones y responsabilidades adquiridas, conforme a lo establecido en el artículo n°6 de la Ley de Teletrabajo N° 9738.
+En caso de que surja alguna imposibilidad de mantener dichas condiciones, la jefatura del trabajador debe justificarlas ante su superior jerárquico, para analizar si las nuevas condiciones, cumplen con los requisitos de la modalidad.
+Las personas de nuevo ingreso, contratadas en un puesto teletrabajable, deben mantener las condiciones acordadas durante su relación laboral. En caso de que dichas condiciones cambien, se analizará la situación siguiendo el debido proceso, por parte de la jefatura correspondiente.

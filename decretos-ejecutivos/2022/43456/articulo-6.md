@@ -1,0 +1,1 @@
+Artículo 6º-Aplicación de la Modalidad de teletrabajo. La modalidad de teletrabajo es aplicable según el perfil del puesto y debe realizarse desde el domicilio o centro de trabajo consignado en el contrato o adenda de la persona teletrabajadora del MEP.
