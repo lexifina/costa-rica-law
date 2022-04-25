@@ -1,1 +1,0 @@
-Artículo 25.—Garantías para la persona denunciante y testigos. Ninguna persona denunciante de hostigamiento sexual o que haya comparecido como testigo de alguna de las partes, podrá sufrir por ello perjuicio personal en su trabajo. La Municipalidad debe garantizar tanto a los testigos, como a la denunciante, que no serán sancionados por participar en el proceso.

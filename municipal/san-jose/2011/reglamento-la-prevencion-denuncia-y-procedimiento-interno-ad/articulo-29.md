@@ -1,1 +1,0 @@
-Artículo 29.—Prohibición de conciliar. En cualquier denuncia de acoso u hostigamiento sexual, queda absolutamente prohibido admitir durante el proceso de investigación, cualquier tipo de conciliación entre las partes.

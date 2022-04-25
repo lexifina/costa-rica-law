@@ -1,1 +1,0 @@
-Artículo 23.—Las partes del expediente disciplinario. Se considerará partes del expediente disciplinario tanto al funcionario que se reporta como supuesto acosador, como al (la) usuario (a) de los servicios municipales o funcionario (a) de la Municipalidad que presente denuncia por hostigamiento sexual en su contra.
