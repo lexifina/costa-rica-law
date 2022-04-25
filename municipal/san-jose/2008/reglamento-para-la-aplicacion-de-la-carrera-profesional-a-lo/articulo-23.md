@@ -1,1 +1,0 @@
-Artículo 23.—La Sección de Desarrollo de Personal estudiará la solicitud y si la aprobare, determinará el puntaje obtenido, comunicando al patente el resultado de su gestión, asimismo se remitirá la misma a la Sección de Gestión y Administración de Recurso Humano, para el cálculo del monto a pagar.

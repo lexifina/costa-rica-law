@@ -1,1 +1,0 @@
-Artículo 16.—La experiencia obtenida al servicio de instituciones del Estado, se reconocerá para efectos de este beneficio, siempre que se cumplan las condiciones de los literales a) y b), del artículo anterior y se haga constar en un documento avalado por el Jefe de Recursos Humanos o por el máximo jerarca de la entidad donde fue obtenida.
