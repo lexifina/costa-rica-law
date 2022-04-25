@@ -1,0 +1,3 @@
+Artículo 15.-Sesiones de la CEV. Las sesiones de la CEV serán de la siguiente manera:
+a. Reuniones internas: La CEV se reunirá una vez al mes en forma ordinaria y en forma extraordinaria cuando sea necesario.
+b. Reuniones de la Comisión Nacional de Rescate de Valores: Con el fin de cumplir con la representación del Ministerio y aprovechar el recurso de capacitación brindado por la CNRV, se promoverá que la totalidad de los miembros de la CEV asistan a todas las Sesiones Ordinarias; sin embargo, de no ser posible la asistencia de la totalidad de los integrantes de la CEV, se garantizará una representación de al menos dos miembros en cada Sesión.

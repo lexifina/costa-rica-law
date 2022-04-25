@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. El presente Reglamento es de observancia obligatoria para las personas integrantes propietarias y suplentes de la Comisión Institucional de Ética y Valores del Ministerio de Cultura y Juventud.

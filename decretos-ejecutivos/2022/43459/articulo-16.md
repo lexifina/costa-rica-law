@@ -1,0 +1,2 @@
+Artículo 16.-Juramentación. La juramentación de las personas integrantes de la CEV es un acto solemne, que se lleva a cabo por parte de la CNRV. Es realizada por el Jerarca del Ministerio, en presencia de una persona representante de la Junta Directiva y de la Dirección Ejecutiva de la citada Comisión.
+a. Al acto de juramentación debe asistir un titular subordinado de la institución, junto con el Jerarca, como responsable del fortalecimiento de la ética, conforme la Ley de Control Interno y sus Normas y para reafirmar el compromiso de apoyar la Gestión Ética.
