@@ -1,2 +1,0 @@
-Artículo 13. En la calificación de la liquidez deberá tomarse el peor resultado, en cualquiera de los indicadores de calce a un mes o a tres meses, sea en moneda nacional o extranjera, el cual representará un 50% de la calificación de ese elemento. El resultado del Flujo de efectivo proyectado a dos meses representa el otro 50% de la calificación de este elemento.
-(Así reformado mediante sesión N° 1058 del 19 de agosto de 2013)

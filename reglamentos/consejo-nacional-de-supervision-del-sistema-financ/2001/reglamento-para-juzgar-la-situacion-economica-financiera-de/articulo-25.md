@@ -1,2 +1,0 @@
-Artículo 25.Cuando la entidad se encuentre dentro del plazo concedido por el Superintendente según el Capítulo III de este Reglamento, y su calificación global, o su calificación por suficiencia patrimonial según el 'Reglamento sobre la suficiencia patrimonial de entidades financieras' (SUGEF 3-06), la ubiquen en un grado de inestabilidad o irregularidad financiera mayor, regirá esta última calificación y se procederá conforme lo establece esta normativa para el nuevo grado de inestabilidad o irregularidad financiera.
-(Así reformado en sesión N° 1663 del 17 de mayo de 2021)

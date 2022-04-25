@@ -1,2 +1,0 @@
-13. Gradualidad sobre la calificación global de la entidad. La calificación global de la entidad con base en la calificación de suficiencia patrimonial según la modificación al Acuerdo SUGEF 3-06 'Reglamento sobre la suficiencia patrimonial de entidades financieras' modificado en este acto, será exigible a partir del primero de enero de 2025.
-(Así adicionado en sesión N° 1663 del 17 de mayo de 2021)
