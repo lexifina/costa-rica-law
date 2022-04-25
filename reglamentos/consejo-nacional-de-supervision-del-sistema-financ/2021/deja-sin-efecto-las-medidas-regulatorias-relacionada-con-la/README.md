@@ -14,3 +14,4 @@ Deja sin efecto las medidas regulatorias relacionada con la continuidad o suspen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-01 | la propia norma |
+| 2 | 2022-04-25 | Reglamento 1727 (2022-04-25) |
