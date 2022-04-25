@@ -1,1 +1,0 @@
-Artículo 26.—Los abogados no podrán aceptar casos de litigio en contra de la Municipalidad; en forma simultánea a tener ligámenes activos con la Municipalidad el incumplimiento de esta disposición hará que su nombramiento quede revocado automáticamente como abogado de la corporación municipal.

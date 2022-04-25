@@ -1,1 +1,0 @@
-Artículo 25.—Es prohibido para los abogados hacer cualquier tipo de arreglo indirecto o extrajudicial o recibir pagos o abonos al principal de la deuda. Los honorarios profesionales los recibirá el abogado en su oficina, para lo cual debe emitir un recibo formal al contribuyente e indicar en el mismo un detalle de los servicios cobrados.

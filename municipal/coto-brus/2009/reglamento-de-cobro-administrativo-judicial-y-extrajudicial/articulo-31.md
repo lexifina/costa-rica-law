@@ -1,1 +1,0 @@
-Artículo 31.—Los abogados que por alguna razón personal desean dejar de servir a la Municipalidad, deberán de comunicar esa decisión con treinta días hábiles de antelación al Alcalde y enviar la totalidad de los expedientes y aquellos documentos judiciales para la atención de la unidad de cobro de la Municipalidad.

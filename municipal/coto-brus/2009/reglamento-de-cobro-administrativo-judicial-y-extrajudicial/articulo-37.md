@@ -1,1 +1,0 @@
-Artículo 37.—El abogado está obligado a cotejar el edicto antes y después de su publicación en el Boletín Judicial con los documentos que fundamentan la demanda y será responsable ante la Municipalidad del cualquier perjuicio que por error al respecto pudiera causar su omisión.

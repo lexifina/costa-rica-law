@@ -1,2 +1,0 @@
-Artículo 14.—Formalización del arreglo de pago: El arreglo de pago se realizará mediante suscripción del documento idóneo que tendrá la Unidad respectiva para tales efectos, siempre y cuando el sujeto pasivo cumpla con las condiciones citadas en los incisos del artículo trece del presente reglamento, además el sujeto pasivo deberá suscribir una Letras de Cambio como medio de obligación para el cumplimiento de la deuda.
-(Corregido mediante Fe de Erratas y publicado en La Gaceta N° 247 del 21 de diciembre del 2009).

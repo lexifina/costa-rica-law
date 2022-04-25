@@ -1,9 +1,0 @@
-CAPÍTULO III
-Del Cobro Administrativo
-Artículo 8º—Este proceso será realizado por la Unidad Administración Tributaria, ajustándose a las siguientes disposiciones.
-a) La Unidad Administración Tributaria confeccionará y enviará un único requerimiento de pago “cobro” a aquel sujeto pasivo que tenga obligaciones tributarias a favor de la Municipalidad, con un atraso de dos o más trimestres.
-b) El requerimiento de pago “cobro” deberá contener la siguiente información; Membrete de la Municipalidad, Nombre de la Unidad encargada del cobro, fecha en que se confecciona el requerimiento de pago “cobro”, número de requerimiento de pago “cobro”, nombre, dirección, número de cédula y ubicación del sujeto pasivo, concepto periodo y monto de los tributos, monto de los intereses, plazo otorgado e indicación de agotamiento de la gestión de cobro administrativo, para proceder al cobro judicial.
-c) Únicamente se enviará un único requerimiento de pago “cobro” otorgando un plazo de ocho días hábiles, contados a partir del día siguiente de entregado el requerimiento de pago, para que el sujeto pasivo proceda a realizar el pago respectivo, en la oficina de facturación.
-d) Transcurrido el plazo otorgado por la Municipalidad, el sujeto pasivo no realizo el pago respectivo de lo adeudado o en su defecto arreglo de pago, se procederá a gestionar el cobro judicial, enviando al/os abogado/s designado/s por la Municipalidad para su proceso judicial para que se haga efectivo a la municipalidad el monto adeudado.
-e) La oficina de Administración Tributaria dispondrá de un plazo máximo de diez (*)días hábiles a partir de vencido el plazo otorgado al sujeto pasivo para que cancelará la deuda, para que traslade los expedientes al/os abogado/s el cobro judicial.
-(*)(Corregido mediante Fe de Erratas y publicado en La Gaceta N° 247 del 21 de diciembre del 2009)

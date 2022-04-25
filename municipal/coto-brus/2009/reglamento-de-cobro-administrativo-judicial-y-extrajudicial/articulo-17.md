@@ -1,1 +1,0 @@
-Artículo 17.—El documento que formaliza todo arreglo de pago será firmado por el sujeto pasivo además de el funcionario encargado de la gestión de cobro y un segundo que podrá ser el coordinador o administrador tributario, contador municipal o en ausencia de uno de estos el Alcalde Municipal.
