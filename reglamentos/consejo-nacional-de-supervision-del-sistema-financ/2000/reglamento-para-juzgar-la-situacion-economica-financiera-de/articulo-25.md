@@ -1,2 +1,0 @@
-Artículo 25.
-Cuando la entidad se encuentre dentro del plazo concedido por el Superintendente según el Artículo 30 de este Reglamento, y cumpla las condiciones establecidas en el Artículo 20, prevalecerá la calificación de inestabilidad o irregularidad financiera otorgada inicialmente, hasta el vencimiento del plazo prudencial autorizado por la Superintendencia General de Entidades Financieras; excepto que la entidad solicite formalmente la recalificación al Superintendente.
