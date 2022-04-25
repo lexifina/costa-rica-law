@@ -14,3 +14,4 @@ Política Nacional de Adaptación al Cambio Climático
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-25 | la propia norma |
+| 2 | 2022-04-25 | Decreto Ejecutivo 43491 (2022-04-25) |
