@@ -1,0 +1,2 @@
+Transitorio IX.-Las personas jurídicas y los fideicomisos obligados a presentar la declaración ordinaria para el período 2022, podrán hacerlo en el período comprendido entre el 01 de abril del 2022 y hasta al 31 de mayo del 2022 inclusive. En los años subsiguientes les corresponderá declarar de acuerdo con lo dispuesto en el artículo 6° de esta Resolución, es decir, en el mes de abril de cada año.
+(Así adicionado por el artículo 1° de la resolución N° DGT-ICD-R-013-2022 del 25 de abril de 2022)
