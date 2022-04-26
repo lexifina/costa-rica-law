@@ -1,2 +1,0 @@
-Artículo 64.
-Si se presentaren memoriales que dirijan los particulares a la Municipalidad, la Secretaria los eximirá y si resulta que lo solicitado es de competencia del Alcalde, lo enviará a dicho funcionario para que le dé el trámite que le corresponde. De lo anterior se informará a los firmantes. Previo visto bueno del Presidente Municipal.

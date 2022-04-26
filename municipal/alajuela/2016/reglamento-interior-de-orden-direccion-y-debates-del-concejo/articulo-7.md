@@ -1,2 +1,0 @@
-Artículo 7.
-El Presidente Municipal iniciará cada sesión del Concejo con el siguiente encabezado: “siendo las (...) horas se inicia la sesión (ordinaria o extraordinaria) número (...) del Honorable Concejo Municipal de Alajuela”. De la misma forma, para dar por concluida cada sesión, el Presidente pronunciará la siguiente frase: “siendo las (...) horas, se cierra la sesión (ordinaria o extraordinaria) número (...)”.

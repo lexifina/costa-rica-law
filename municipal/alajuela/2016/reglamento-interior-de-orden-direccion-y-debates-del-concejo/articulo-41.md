@@ -1,2 +1,0 @@
-Artículo 41.
-En la sesión siguiente aquella que el Presidente comunicó al Concejo la integración de las Comisiones, debidamente juramentados se hará la instalación de éstas. En la misma oportunidad cada comisión nombrará de su seno un coordinador y un subcoordinador, los cuales están sujetos, en lo conducente, a las mismas atribuciones y prohibiciones que establece este Reglamento para el Presidente del Concejo Municipal.

@@ -1,2 +1,0 @@
-Artículo 33.
-El cumplimiento del inciso m-) del artículo diecisiete del Código Municipal, el Alcalde debe hacer la convocatoria a sesiones extraordinarias por escrito. Constituye prueba de que los regidores y síndicos fueron convocados, la firma de recibido en la hoja de convocatoria.

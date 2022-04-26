@@ -1,2 +1,0 @@
-Artículo 44.
-El secretario de actas de comisión elaborará el orden del día, según las instrucciones que le gire el presidente, el cual deberá ajustarse al orden en que los asuntos fueron recibidos en la comisión. El secretario será responsable del manejo de los expedientes, cuyos originales se conservarán en la Secretaría Municipal.

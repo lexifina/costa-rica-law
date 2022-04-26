@@ -1,2 +1,0 @@
-Artículo 69.
-Este Reglamento entra a regir a partir de su publicación en el Diario La Gaceta. POR TANTO: Esta comisión acuerda: Recomendar al Honorable Concejo Municipal: 1-Aprobar el Reglamento Interno de Orden, Dirección y Debates del Concejo Municipal. 2- Trasladar el presente reglamento a la Administración para su respectiva publicación en el Diario Oficial La Gaceta. OBTIENE 04 VOTOS POSITIVOS: MSC. ANA CECILIA RODRÍGUEZ QUESADA, SR. RANDALL BARQUERO PIEDRA, LICDA. PILAR CASTRO ARCE (EN SUSTITUCIÓN DEL MSC. HUMBERTO SOTO HERRERA) Y EL LICDO. ROBERTO CAMPOS SÁNCHEZ.

@@ -1,3 +1,0 @@
-Artículo 30.
-Los regidores suplentes, los síndicos, el Alcalde y el Vicealcalde, tienen derecho a hacer uso de la palabra para referirse a cualquier asunto en discusión en el Concejo Municipal, con los mismos derechos y facultades conferidas los regidores propietarios. Los regidores suplentes solo tendrán derecho a votar cuando estén supliendo a un regidor propietario.
-Los síndicos y las síndicas que ocupen el cargo en propiedad, y sus suplentes tienen derecho a asistir a las sesiones del Concejo Municipal, en las cuales tienen derecho voz, en los asuntos propios de su distrito, pero no a voto. El uso de la palabra en asuntos diferentes de su Distrito, será regulado por el Presidente Municipal.

@@ -1,3 +1,0 @@
-Artículo 53.
-Cuando una comisión permanente quede sin posibilidad de conformar su quórum, en razón de ausencia temporal justificada de sus miembros, el Presidente Municipal, podrá, en tanto dure esa ausencia, sustituir a los titulares por otros regidores.
-Los miembros de las comisiones permanentes podrán renunciar a pertenecer a ellas, pero conservándose la obligación de trabajar en otras. También podrá solicitar al Presidente que los permute con otro integrante de su fracción política, para lo cual deberá contar con el visto bueno de la jefatura de ésta. Si la Presidencia acepta la permuta de un coordinador o subcoordinador de comisión, no se podrá entender que el cambio conlleva el cargo, sino que se debe proceder a hacer nueva elección

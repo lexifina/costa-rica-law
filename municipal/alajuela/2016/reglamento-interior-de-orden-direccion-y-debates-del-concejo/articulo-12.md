@@ -1,5 +1,0 @@
-Artículo 12.
-Las sesiones del Concejo Municipal son públicas. Los particulares podrán observar su desarrollo, desde la sala habilitada para esos efectos.
-También podrán los particulares intervenir oralmente en las sesiones, previa solicitud escrita de audiencia dirigida a la Presidencia del Concejo, quien la concederá, según su criterio, para la sesión que considere oportuna. La audiencia también podrá ser otorgada, mediante la aprobación de una moción de alteración del orden del día, la cual requerirá el voto de las dos terceras partes de los regidores.
-En cada audiencia se otorgará el uso de la palabra, por un máximo de cinco minutos, prorrogables por una sola vez, a la persona u organización a la que se haya acordado recibir. Luego el Presidente ofrecerá el uso de la palabra, hasta por cinco minutos, a los miembros del Concejo, Alcalde y síndicos que lo soliciten, con el fin de que formulen preguntas o pidan aclaraciones al invitado.
-El Presidente Municipal, en el oficio que comunique al solicitante que se le ha concedido una audiencia, pondrá en su conocimiento, el procedimiento establecido en el párrafo anterior y le pedirá adecuarse a él.

@@ -1,2 +1,0 @@
-Artículo 20.
-Contra lo resuelto sobre una moción de alteración del orden del día, cabrá recurso de revisión. Este será presentado en forma verbal, inmediatamente después de que el Presidente anuncie el resultado de la votación. La resolución del recurso no admitirá discusión alguna, salvo la explicación del recurrente por un tiempo máximo de cinco minutos. Agotado ese tiempo se entrará a votar de inmediato el recurso de revisión.

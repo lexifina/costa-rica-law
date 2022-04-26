@@ -1,5 +1,0 @@
-Artículo 49.
-Un miembro de una comisión deberá excusarse, ante el coordinador de la misma y por causa justa, de participar en la discusión y votación de un determinado asunto. La decisión de aceptar o no las razones la adoptará el coordinador en el mismo acto, resolución que se hará constar en el acta respectiva.
-Los motivos para excusarse del conocimiento de un asunto serán los que establece el Código Municipal, la Ley de Administración Financiera, la Ley de la Contratación Administrativa, el Reglamento de la Contratación Administrativa y cualquier otra disposición legal que así lo ordene.
-En el caso de que quien se excuse de conocer o dictaminar un asunto sea el coordinador, quien resolverá la excusa será el subcoordinador.
-Cualquier integrante de una comisión podrá ser recusado, por cualquier interesado, para que no conozca o dictamine sobre un asunto, por causa justa. Esa recusación la presentará por escrito ante el coordinador de la comisión, quien de inmediato pondrá la solicitud en conocimiento el recusado para su defensa o aceptación. El coordinador resolverá el asunto de inmediato y hará constar lo dicho por las partes en el acta respectiva.

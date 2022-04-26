@@ -1,2 +1,0 @@
-Artículo 23.
-Salvo en los casos en que este Reglamento determine un lapso diferente, los miembros del Concejo, el Alcalde y el Vicealcalde, podrán hacer uso de la palabra para referirse al asunto en discusión, previa autorización del Presidente, una intervención, por un lapso de hasta cinco minutos a juicio del Presidente, éste se reservará el derecho de otorgar el uso de la palabra de nuevo hasta por un mismo período.
