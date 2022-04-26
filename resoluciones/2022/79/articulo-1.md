@@ -1,4 +1,6 @@
+(Suspendida)
 DIRECCIÓN GENERAL DE ADUANAS,
+(Esta norma fue suspendida temporalmente por resolución N° RES-DGA-119-2022 del 26 de abril de 2022, dicha suspensión es hasta que los inconvenientes que han afectado los sistemas informáticos del Ministerio de Hacienda, se reestablezcan; momento en que se darán a conocer las nuevas fechas de dicha implementación)
 RESOLUCIÓN DE ALCANCE GENERAL
 Res-DGA-079-2022.-Dirección General de Aduanas, San José, a las nueve horas y veinte minutos del ocho de marzo del año dos mil veintidós.
 Considerando:

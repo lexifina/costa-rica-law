@@ -14,3 +14,4 @@ Lineamientos para los trámites relacionados con los trámites, internamientos, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-03-30 | la propia norma |
+| 2 | 2022-04-26 | Resolución 119 (2022-04-26) |
