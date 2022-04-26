@@ -1,1 +1,0 @@
-Artículo 48.—El Presidente de una Comisión o en su ausencia, el Vicepresidente, podrá convocar a sesiones extraordinarias, por lo menos con veinticuatro horas de anticipación. En ausencia del Presidente y el Vicepresidente, convocará y presidirá la sesión el miembro de la comisión de mayor edad.

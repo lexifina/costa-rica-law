@@ -1,3 +1,0 @@
-Artículo 41.—La Presidencia Municipal, de pedirlo así cada Comisión, procederá a solicitarle al alcalde municipal, la designación de funcionarios administrativos para que funjan como asesores de las comisiones.
-El Secretario de comisión levantará un acta detallada, de todas las sesiones de comisión, la cual deberá ser firmada, una vez aprobada por la comisión por el presidente y el secretarios de actas. En el acta respectiva deben consignarse los votos positivos y negativos.
-Para lo que sea conducente, los secretarios de actas de comisión tienen los mismos deberes que la Ley y este Reglamento fijan para el Secretario del Concejo Municipal.
