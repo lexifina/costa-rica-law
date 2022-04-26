@@ -1,1 +1,0 @@
-Artículo 11.—Apoyo a la Comisión. La CNGA tendrá la posibilidad de invitar a representantes de otras entidades públicas, de sociedad civil, privadas, academia, entre otros, para que coadyuven con el objeto de este Decreto y con el desarrollo de las funciones que le son propias.

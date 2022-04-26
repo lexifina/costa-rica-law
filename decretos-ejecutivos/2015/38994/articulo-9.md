@@ -1,1 +1,0 @@
-Artículo 9º—Políticas Públicas en torno a Gobierno Abierto. La Comisión podrá recomendar a la Presidencia de la República la implementación de políticas públicas, en relación con la el fomento del Gobierno Abierto.

@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El presente Decreto será aplicable a la Administración Pública, tanto central como descentralizada y a los sujetos de derecho privado que brinden servicios públicos. Esto sin perjuicio de la independencia y autonomía constitucional de la que gozan ciertos órganos o entes de las mencionadas en este artículo.
