@@ -1,3 +1,0 @@
-IV. Instruir a la Comisión Ad Hoc notificar el oficio donde constan las respuestas a las oposiciones presentadas en la audiencia pública.
-En cumplimiento de lo que ordena el artículo 245 de la Ley General de la Administración Pública, contra la presente resolución cabe el recurso ordinario de reposición o reconsideración, el cual deberá interponerse en el plazo de tres días contados a partir del día siguiente a la notificación, y el recurso extraordinario de revisión, el cual deberá interponerse dentro de los plazos señalados en el artículo 354 de la citada ley. Ambos recursos deberán interponerse ante la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos, a quien corresponde resolverlos.
-Rige a partir de su publicación en el diario oficial La Gaceta.
