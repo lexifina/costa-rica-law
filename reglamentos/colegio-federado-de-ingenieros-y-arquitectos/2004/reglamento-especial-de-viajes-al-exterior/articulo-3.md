@@ -1,5 +1,1 @@
-Artículo 3º—Objetivos.
-a) Que toda misión al exterior tenga un interés general, o del gremio respectivo.
-b) Que toda misión a su regreso presente un documento mediante el cual la experiencia adquirida sea transmitida al resto de miembros del Colegio Federado.
-c) Que el Colegio Federado cumpla sus compromisos que tenga con los organismos internacionales a que pertenezca.
-d) Que los colegios respectivos cumplan los compromisos que tengan con los organismos internacionales a que pertenezcan.
+Artículo 3º-Se considerará como misión oficial al exterior, a toda aquella delegación individual o grupal que asista a actos, actividades o reuniones a los que se convoque, invite o que el CFIA considere pertinente participar y que estén acordes con los fines y objetivos del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.

@@ -14,3 +14,4 @@ Reglamento especial de viajes al exterior
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-25 | la propia norma |
+| 2 | 2022-04-26 | Reglamento 1921 (2022-04-26) |

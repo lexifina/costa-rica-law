@@ -1,7 +1,12 @@
-CAPÍTULO V
-Artículo 7º—Obligaciones de los Delegados.
-1. Todo miembro del Colegio Federado, que acepte integrar una misión a una actividad internacional, se constituye en representante del Colegio Federado y en tal condición acepta las siguientes responsabilidades:
-a) Asistir a las actividades oficiales que le corresponda dentro del acto a que ha sido enviado.
-b) Preparar a su regreso un resumen escrito de los resultados obtenidos, y si la Junta Directiva que corresponda lo considera necesario, podrá solicitarle una presentación oral ante alguno de los organismos del Colegio Federado.
-c) Recopilar durante el desarrollo del acto, toda la información que considera importante para el Colegio y a su regreso entregarla al órgano competente de la entidad.
-d) Estar disponible para cooperar con el Colegio cuando a éste le corresponda organizar seminarios o congresos a nivel nacional e internacional. Esta ayuda se considera como un deber moral para con el Colegio.
+Artículo 7º-Para obtener la autorización de las misiones contempladas en el presente reglamento, el funcionario o miembro colegiado deberá presentarse una solicitud por escrito ante la Oficina de Asuntos Internacionales del CFIA, la Dirección Ejecutiva o Coordinador de los Colegios Miembros, según corresponda, con al menos seis semanas de anticipación a la fecha de inicio de la actividad; salvo casos especiales debidamente justificados, que a criterio de la Junta Directiva correspondiente lo ameriten. La solicitud que se presente deberá contener al menos la siguiente información:
+a) Organismo que convoca.
+b) Nombre de la actividad o reunión
+c) Objetivos de la actividad.
+d) País donde se desarrollará la actividad
+e) Periodo en que se desarrollará la actividad.
+f) Periodo del viaje, incluyendo los casos en los cuales el miembro o funcionario no regresa inmediatamente después de la finalización de la actividad. Lo anterior, para efectos de conocer el inicio del cómputo del plazo para la presentación del informe y la liquidación.
+g) Nombre de los miembros o funcionarios que solicitan la autorización para participar, puesto que desempeñan y las razones por las cuales se proponen. Debe valorarse que los miembros o funcionarios propuestos, cuenten con la competencia de reproducir el conocimiento adquirido dentro de la organización, una vez concluida la misión en los casos que corresponda.
+h) Costo del registro a la actividad.
+i) Justificación de la asistencia a la misión, en la cual deberá establecerse el aporte que tendrá para la organización y los procesos y/o proyectos, en los cuales impactará la información o conocimiento que se adquiera.
+j) Monto desglosado de las sumas por costos de participación (tiquete aéreo, seguro de viaje, viáticos y la inscripción). Cuando el ente auspiciador del evento financie parcial o totalmente los gastos, deberá adjuntarse a la solicitud los documentos en que conste la ayuda económica, sin perjuicio de las verificaciones que el CFIA de oficio pueda realizar.
+k) Adjuntar una nota de la Dirección Ejecutiva del CFIA o de la Dirección Ejecutiva o Coordinador del colegio miembro correspondiente, donde se indique la partida presupuestaria y centro de costo con la cual se cubrirían los costos relacionados a la misión. La solicitud deberá de hacerse acompañar de la documentación pertinente, que respalde la información brindada en la solicitud.

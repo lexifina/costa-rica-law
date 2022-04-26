@@ -1,2 +1,2 @@
-CAPÍTULO IX
-Artículo 24.—Vigencia. Rige a partir de su publicación.
+Artículo 24.-La Oficina de Asuntos Internacionales o la Dirección Ejecutiva o Coordinador de cada Colegio Miembro respectivamente se encargará de la gestión de viajes al exterior y liquidaciones, recibirá, revisará y gestionará, los anticipos, reintegros y el trámite de liquidaciones de sus respectivas misiones aprobadas.
+El comprobado incumplimiento a estas obligaciones por parte de la persona funcionaria del CFIA se considerará una falta laboral y se sancionará de acuerdo con el Reglamento Interno de Trabajo.

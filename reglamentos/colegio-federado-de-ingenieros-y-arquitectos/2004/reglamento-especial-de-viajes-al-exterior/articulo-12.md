@@ -1,6 +1,5 @@
-Artículo 12.—Desglose de tarifas. Cuando fuese necesario hacer un desglose de las tarifas incluidas en la tabla indicada en el artículo 8°, se asignará a cada servicio o concepto de gasto los siguientes porcentajes:
-a) Hospedaje, hasta un cincuenta por ciento.
-b) Desayuno, hasta un diez por ciento.
-c) Almuerzo y cena, hasta un quince por ciento cada una.
-d) Otros gastos menores, hasta un diez por ciento.
-Cuando el evento al que el funcionario asistiere se prolongue por más de cinco días y el diez por ciento último resulte insuficiente para cubrir los gastos menores, se reconocerá el exceso únicamente contra la presentación de las respectivas facturas formales emitidas a nombre del funcionario.
+Artículo 12.-Cuando fuese necesario hacer un desglose de las tarifas incluidas en la tabla indicada en el artículo 11º, se asignará a cada servicio o concepto de gasto los siguientes porcentajes:
+1. Hospedaje, hasta un sesenta por ciento.
+2. Desayuno, hasta un ocho por ciento.
+3. Almuerzo y cena, hasta un doce por cada una.
+4. Otros gastos menores, hasta un ocho por ciento.

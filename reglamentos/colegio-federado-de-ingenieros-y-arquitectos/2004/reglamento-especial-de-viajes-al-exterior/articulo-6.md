@@ -1,10 +1,4 @@
-CAPÍTULO IV
-Artículo 6º—Requisitos Generales para las prioridades b y c.
-1. La solicitud correspondiente debe ser presentada a la Junta Directiva que se trate, con seis semanas de anticipación; con excepción de situaciones especiales o urgentes en que la solicitud será presentada en un tiempo más corto.
-2. La solicitud debe contener los siguientes datos:
-a) Organismo que convoca.
-b) Objetivos del acto.
-c) Fecha de celebración.
-d) Número de asistentes.
-e) Costo del programa.
-f) Justificación de la asistencia.
+Artículo 6º-Para efecto de autorización de misiones al exterior se considerará el siguiente orden de prioridades:
+1. Misiones para satisfacer convocatorias a reuniones y sesiones de Directorios, así como a Congresos de Organismos a los cuales pertenece el Colegio Federado.
+2. Misiones para satisfacer convocatorias a sesiones o Congresos de Organismos Centroamericanos, Latinoamericanos o de tipo Mundial sobre las disciplinas correspondientes a los colegios miembros, convocados por organismos reconocidos por el Colegio Federado y/o Colegios Miembros.
+3. Participación en seminarios internacionales de interés general en beneficio del país, en relación con el área de la ingeniería y la arquitectura, y de los miembros del Colegio Federado. Estos seminarios podrán ser temáticos, técnicos, de gobernanza u otros.
