@@ -1,1 +1,1 @@
-Artículo 2º—Al menos una vez al año, el Colegio Federado de Ingenieros y de Arquitectos convocará a los profesionales incorporados en las ramas de ingeniería civil, ingeniería en construcción y arquitectura a inscribirse en ese registro de profesionales.
+Artículo 2º-Los profesionales que deseen formar parte del registro deberán cumplir de previo con un programa de actualización, con el fin de asegurar que el profesional que se va a desempeñar como inspector fiscalizador posee un conocimiento especializado en el diseño y construcción de proyectos de interés social.

@@ -1,0 +1,1 @@
+Artículo 33.-Ninguna entidad o institución autorizada podrá remover de su puesto a los inspectores fiscalizadores nombrados por el CFIA. A tales efectos, la entidad o institución autorizada que quiera remover a un inspector fiscalizador, deberá solicitarlo por escrito a la Dirección Ejecutiva, indicando las razones y aportando las pruebas correspondientes.

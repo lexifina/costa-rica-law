@@ -15,3 +15,4 @@ Reglamento especial para el registro y regulación de los inspectores fiscalizad
 | --- | --- | --- |
 | 1 | 2008-03-14 | la propia norma |
 | 2 | 2020-01-14 | Reglamento 8 (2020-01-14) |
+| 3 | 2022-04-26 | Reglamento 19 (2022-04-26) |

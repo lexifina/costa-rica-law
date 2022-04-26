@@ -1,2 +1,2 @@
-Artículo 8º—El valor de los cursos será cubierto por los interesados, de conformidad con los costos que fije la Dirección Ejecutiva del Colegio Federado de Ingenieros y de Arquitectos.
-(Así reformado en sesión N° 08 del 14 de enero del 2020)
+Artículo 8º-La documentación presentada por el solicitante para optar ingresar al registro de los inspectores fiscalizadores será revisada, analizada y aprobada por la Dirección Ejecutiva del CFIA o por el Departamento que éste designe, quien finalmente comunicará la resolución.
+El comunicado de dicha resolución le será notificado al profesional al correo electrónico que tenga registrado ante el CFIA.

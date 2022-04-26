@@ -1,2 +1,3 @@
-Artículo 30.—Siempre que sea necesario y esté debidamente justificado, cuando se presente una denuncia contra un inspector fiscalizador, por violación a las obligaciones indicadas en el artículo 20, la Junta Directiva General podrá separar temporalmente a ese profesional de la fiscalización de ese proyecto y en tanto dure la investigación disciplinaria que se lleve en su contra.
-En ese sentido, y cuando no haya finalizado el proyecto, solicitará a la Dirección Ejecutiva el sorteo para nombrar un inspector fiscalizador suplente que se haga cargo de la fiscalización de esa obra.
+CAPÍTULO VII
+De Las Sanciones
+Artículo 30.-El incumplimiento de las obligaciones establecidas en los artículos anteriores por parte del inspector fiscalizador dará lugar a su inhabilitación, hasta por un plazo de cinco años, conforme lo indica el inciso e) del artículo 6° de la Ley N° 7208.

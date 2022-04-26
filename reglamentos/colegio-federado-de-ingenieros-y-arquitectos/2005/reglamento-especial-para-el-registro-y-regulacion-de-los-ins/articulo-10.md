@@ -1,1 +1,1 @@
-Artículo 10.—Los honorarios profesionales de los inspectores fiscalizadores serán pagados por las entidades o instituciones autorizadas, conforme a lo indicado en el artículo anterior. Las entidades autorizadas y los inspectores fiscalizadores podrán pactar la forma en que serán cancelados esos honorarios.
+Artículo 10.-Para ser incluido nuevamente en el Registro de inspectores fiscalizadores deberá el profesional presentar la solicitud por escrito ante el CFIA.

@@ -1,4 +1,2 @@
-Artículo 16.—El sorteo se llevará a cabo bajo la supervisión del Director Ejecutivo y en presencia de:
-a) Los representantes designados por la Junta Directiva General.
-b) Un representante de la Asesoría Legal.
-c) Los interesados que así lo hayan expresado en su comunicación.
+Artículo 16.-El nombramiento de los inspectores fiscalizadores tendrá una vigencia de tres años. Al vencimiento del plazo de su nombramiento, las entidades o instituciones autorizadas, deberán solicitar nuevamente al CFIA la designación de nuevos inspectores fiscalizadores, por medio del procedimiento regulado en este capítulo.
+Solo en caso de que, a la fecha de vencimiento de su nombramiento, un inspector fiscalizador no haya finalizado el trabajo encomendado, podrá el Colegio Federado, previa solicitud por escrito, autorizar una prórroga de ese nombramiento.

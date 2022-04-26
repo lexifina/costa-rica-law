@@ -1,3 +1,2 @@
-CAPÍTULO VI
-De las sanciones
-Artículo 25.—El incumplimiento de las obligaciones establecidas en los artículos anteriores por parte del inspector fiscalizador dará lugar a su inhabilitación, hasta por un plazo de cinco años, conforme lo indica el inciso e) del artículo 6° de la Ley N° 7208.
+Artículo 25.-En caso de que los inspectores fiscalizadores encontrarán alguna anomalía o irregularidad en la inversión de fondos o en la calidad de las obras deberán advertirlo a los profesionales responsables, así como a la Entidad Autorizada, dejando la respectiva anotación y justificación en la bitácora digital para el control proyectos.
+En ese mismo acto, le otorgarán a ese profesional responsable un plazo máximo de diez días naturales para haga las reparaciones o correcciones que correspondan. Los profesionales responsables, deberán comunicar al inspector fiscalizador, dentro del plazo indicado, que las reparaciones o correcciones indicadas han sido cumplidas, dejando constancia de ello en la bitácora digital para el control de proyectos.

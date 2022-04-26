@@ -1,0 +1,1 @@
+Artículo 35.-Los profesionales fiscalizadores que, habiendo sido asignados, no se presenten asumir su cargo ante la entidad o institución autorizada, incurrirán en una violación a lo dispuesto en el inciso d), artículo 8 de la Ley Orgánica del Colegio Federado de Ingenieros y de Arquitectos y, en consecuencia, al Código de Ética profesional de dicho Colegio.

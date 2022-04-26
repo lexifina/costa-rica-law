@@ -1,1 +1,1 @@
-Artículo 32.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 32.-Los profesionales encargados de la dirección de obra o inspección de la ejecución del proyecto u obra, que no cumplieren con las indicaciones otorgadas por los inspectores fiscalizadores, se harán acreedores a las sanciones establecidas en el Código de Ética Profesional del CFIA, según sea la naturaleza de la falta. Para la acreditación de la sanción, debe cumplirse con el procedimiento disciplinario dispuesto por el CFIA.

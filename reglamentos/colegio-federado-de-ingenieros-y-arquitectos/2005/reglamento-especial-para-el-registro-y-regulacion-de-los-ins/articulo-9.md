@@ -1,3 +1,3 @@
-CAPÍTULO III
-De los honorarios
-Artículo 9º—Los inspectores fiscalizadores tendrán derecho a percibir en concepto de honorarios, la mitad de lo indicado en el “Arancel de servicios profesionales de consultoría para edificaciones” de este Colegio Federado, en atención a lo dispuesto en el inciso a) del artículo 6° de la Ley N° 7208.
+Artículo 9º-Para mantenerse en el registro, los inspectores fiscalizadores que ya se encuentren autorizados deberán asistir en forma obligatoria a aquellos cursos de actualización que convoque el CFIA.
+Para efectos de los anterior, la Dirección Ejecutiva del CFIA o al Departamento que éste designe remitirá la convocatoria al correo electrónico registrado ante el CFIA por parte de los profesionales.
+Si transcurrido dos convocatorias, el profesional no lleva a cabo el curso convocado, será retirado de la lista de inspectores fiscalizadores autorizados, hasta tanto no cumpla. Solo en casos fortuitos o de fuerza mayor, debidamente comprobados por la Dirección Ejecutiva del CFIA o en quien esta designe, podrá valorarse otorgar al profesional un tiempo prudencial para iniciar con el curso.

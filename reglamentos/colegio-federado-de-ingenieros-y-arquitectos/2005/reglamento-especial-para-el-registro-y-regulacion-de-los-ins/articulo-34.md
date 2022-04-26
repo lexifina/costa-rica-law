@@ -1,0 +1,1 @@
+Artículo 34.-El Director Ejecutivo dará traslado al inspector fiscalizador por espacio de tres días hábiles, para que presente su descargo y las pruebas pertinentes. Finalizada esa investigación, dará su recomendación a la Junta Directiva General para que ésta resuelva lo que en derecho corresponda.

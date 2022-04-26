@@ -1,1 +1,1 @@
-Artículo 29.—El Director Ejecutivo dará traslado al inspector fiscalizador por especio de tres días hábiles, para que presente su descargo y las pruebas pertinentes. Finalizada esa investigación, dará su recomendación a la Junta Directiva General para que ésta resuelva lo que en derecho corresponda.
+Artículo 29.-Será responsabilidad del inspector fiscalizador custodiar y conservar el acta de inspección original por al menos diez años.
