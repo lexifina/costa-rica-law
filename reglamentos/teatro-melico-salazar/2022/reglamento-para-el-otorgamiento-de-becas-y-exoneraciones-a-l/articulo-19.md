@@ -1,0 +1,1 @@
+Artículo 19.-El TNT y del TND definirá cada año en el calendario de actividades de la institución las fechas de recepción de solicitudes y publicación de resultados de la asignación de la beca para que la persona estudiante pueda cumplir con los trámites correspondientes. El TNT y TND no estarán obligados a emitir resultados antes de los periodos estipulados.

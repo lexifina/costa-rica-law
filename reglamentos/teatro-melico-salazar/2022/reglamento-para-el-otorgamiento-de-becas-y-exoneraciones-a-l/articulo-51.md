@@ -1,0 +1,1 @@
+Artículo 51.-La pérdida de la beca por una falta injustificada, bajo desempeño, acumulación de faltas leves, falta grave, o irrespeto a la normativa del TND o TNT, así como a cualquier otro motivo debidamente notificado por la administración de la institución, imposibilitará al usuario a optar por este beneficio por un periodo lectivo completo (anual).

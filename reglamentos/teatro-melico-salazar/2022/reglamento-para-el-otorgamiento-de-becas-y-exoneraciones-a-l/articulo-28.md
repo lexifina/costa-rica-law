@@ -1,0 +1,1 @@
+Artículo 28.-Las personas beneficiadas por la Beca Asistente obtendrán una exoneración del 100% en la mensualidad y matrícula para su participación en un curso/ taller y/o actividad por el periodo en el que conserve el beneficio de la Beca Asistente.

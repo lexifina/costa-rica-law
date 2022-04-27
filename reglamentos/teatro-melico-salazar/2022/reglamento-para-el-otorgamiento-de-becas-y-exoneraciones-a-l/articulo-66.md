@@ -1,0 +1,4 @@
+Artículo 66.-La Suspensión del beneficio de la beca por y de las actividades del programa por un periodo de un año (12 meses) se aplicará cuando se dé los siguientes casos.
+1. Artículo Cuando la persona becaria, sume en un periodo de seis meses al menos 3 o más llamadas de atención por escrito sea del mismo o diferente caso.
+2. Cuando a la persona becaria, después de que se le imponga una suspensión del beneficio de la beca y de las actividades del programa por medio periodo completo (6 meses), incurra en causal para una nueva suspensión en el periodo inmediato siguiente al día en que se le impuso la primera sanción.
+3. Cuando la persona becaria incurra en alguna de las faltas graves contempladas en los artículos 55 y 56 del presente Reglamento y que de conformidad con los criterios de valoración establecidos en el artículo 60 no corresponda una sanción menor. 4.

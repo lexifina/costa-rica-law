@@ -1,0 +1,1 @@
+Artículo 45.-La comisión correspondiente se reserva el derecho de valorar el mantener el beneficio de beca a una persona estudiante si se ha observado una progresividad en el desempeño en la ejecución de las actividades o procesos en las clases. Para tal efecto se deberá realizar un expediente donde se sustente lo señalado.

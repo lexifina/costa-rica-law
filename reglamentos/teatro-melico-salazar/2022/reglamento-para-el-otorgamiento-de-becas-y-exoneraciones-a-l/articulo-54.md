@@ -1,0 +1,1 @@
+Artículo 54.-Las personas estudiantes con o sin beneficio de beca podrán solicitar de manera extraordinaria una reasignación o solicitud de beca en el caso que cambie de manera fortuita su situación socioeconómica.

@@ -1,0 +1,1 @@
+Artículo 10.-Las becas institucionales, así como las becas asistente, serán otorgadas por parte de la Dirección de cada programa, esto bajo el cumplimiento de los requisitos que demande cada una de las categorías o proyectos según corresponda.

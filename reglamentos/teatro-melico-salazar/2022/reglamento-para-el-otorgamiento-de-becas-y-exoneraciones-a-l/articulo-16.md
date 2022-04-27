@@ -1,0 +1,1 @@
+Artículo 16.-La Dirección del TNT y TND, podrá incrementar lo establecido en el artículo 15 del presente reglamento hasta un 100% del cupo disponible de manera extraordinaria, lo anterior bajo razón justificada en el marco del interés institucional, valor público y en virtud del acceso a los derechos culturales de las personas ciudadanas.

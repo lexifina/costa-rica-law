@@ -1,0 +1,1 @@
+Artículo 52.-La obtención del beneficio de beca en un periodo determinado, no garantiza la obtención de este beneficio en periodos posteriores. Toda persona deberá realizar el proceso desde el inicio todos los años según corresponda.

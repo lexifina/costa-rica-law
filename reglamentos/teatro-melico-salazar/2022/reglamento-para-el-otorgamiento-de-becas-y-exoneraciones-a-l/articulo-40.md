@@ -1,0 +1,1 @@
+Artículo 40.-El beneficio de la Beca en cualquiera de sus modalidades solo cubre del pago de la matrícula y mensualidad según las características correspondientes, no se otorgará la entrega de dineros o cualquier otro beneficio.

@@ -1,0 +1,1 @@
+Artículo 46.-Cada docente tendrá la obligación de facilitar el plan de curso a las personas estudiantes al inicio de los cursos y/o talleres, donde se especificará: la descripción del curso, objetivo general, objetivos específicos, metodología, contenidos, evaluación, cronograma de actividades y referencias.

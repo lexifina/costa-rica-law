@@ -1,0 +1,1 @@
+Artículo 39.-El beneficio de la beca otorgada es intransferible y solo podrá ser utilizada en el curso o taller para el cual fue asignada exclusivamente. La posibilidad de movilidad entre cursos conservando dicho beneficio queda sujeto a factores extraordinarios mismos que serán evaluados por la Dirección de cada programa.

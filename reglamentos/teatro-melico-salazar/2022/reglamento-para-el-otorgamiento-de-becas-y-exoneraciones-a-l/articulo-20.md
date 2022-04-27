@@ -1,0 +1,1 @@
+Artículo 20.-La comisión técnica y la comisión artística generarán una lista de potenciales personas beneficiarías en orden de prioridad definida por la escala de evaluación que estarán en espera en el caso que alguno de los beneficiarios no haga reclamo de su beneficio de beca, o que no pueda hacer uso de la misma.

@@ -1,0 +1,1 @@
+Artículo 41.-La persona beneficiaria de una beca deberá participar en las distintas actividades del TND y TNT, sean muestras públicas u otras que correspondan parte de su proceso de formación, la ausencia injustificada a estas actividades puede incurrir en la suspensión de la beca de manera inmediata y quedará señalado como una falta grave para lo referente a solicitudes futuras.

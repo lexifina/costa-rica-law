@@ -1,0 +1,1 @@
+Artículo 49.-El o la estudiante podrá realizar la apelación de las llamadas de atención ante la Comisión Técnica con las debidas justificaciones, esto en un periodo de 3 días hábiles después de conocida la llamada de atención.

@@ -1,0 +1,1 @@
+Artículo 23.-La recepción de solicitudes de beca por condición socioeconómica se realizará el último trimestre del año para los cursos anuales. Las resoluciones de las becas por condición socioeconómica y artística se realizarán cómo mínimo 15 días previo al inicio de las lecciones.

@@ -1,0 +1,1 @@
+Artículo 24.-En caso de los cursos y/o talleres que no son anuales la comisión técnica deberá definir de manera oportuna los plazos respectivos para la recepción de solicitudes, análisis de las mismas y procesos de adjudicación según corresponda.

@@ -1,0 +1,1 @@
+Artículo 14.-Le corresponderá a la comisión técnica definir la cantidad de cupos de becas por condición socioeconómicas del 100%, 50% y 25% así como la cantidad de cupos en becas artísticas, asistente e institucional en cada periodo según corresponda, lo anterior en concordancia con las proyecciones financieras y de demanda de los cursos y/o talleres ofrecidos por los programas.

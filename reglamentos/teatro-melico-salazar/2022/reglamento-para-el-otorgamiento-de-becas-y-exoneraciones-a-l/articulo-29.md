@@ -1,0 +1,1 @@
+Artículo 29.-Las personas designadas bajo el marco de la Beca Asistente según lo establecido en el presente reglamento, prestan una colaboración a la institución que contribuye con su formación académica y no tienen un vínculo laboral con el TPMS y sus programas, por lo que no tendrán derecho al pago de prestaciones u otras garantías laborales.

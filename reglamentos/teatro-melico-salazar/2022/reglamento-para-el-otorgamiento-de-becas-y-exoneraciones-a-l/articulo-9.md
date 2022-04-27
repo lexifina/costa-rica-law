@@ -1,0 +1,1 @@
+Artículo 9°-La selección de las becas socioeconómicas estará bajo la responsabilidad de una comisión técnica que será conformada por tres miembros, misma que sesionará de 3 veces de manera ordinaria durante el año y realizará sesiones extraordinarias cuando sea convocada por la Dirección de cada programa con 3 días hábiles de anticipación como mínimo.

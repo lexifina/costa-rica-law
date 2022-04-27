@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Reclamos
+Artículo 68.-Las peticiones, quejas o reclamos deberán hacerse por escrito ante la comisión correspondiente quien resolverá en la misma forma. Si se trata de un conflicto con este órgano a alguno de sus integrantes la gestión deberá realizarse ante la Dirección de cada programa. Si lo resulto por el superior jerárquico del programa, podrá recurrir ante la Dirección Ejecutiva del Teatro Popular Melico Salazar. En todos los casos se deberá resolver lo procedente en un plazo máximo de diez días hábiles, entendiéndose que el mismo se tendrá por agotado si no se diera respuesta durante su transcurso.

@@ -1,0 +1,1 @@
+Artículo 35.-El incumplimiento de lo dispuesto en este reglamento por parte del personal institucional, así como de las personas becarías será considerado falta grave, para lo cual se deberá proceder con la denuncia y proceso correspondiente según cada caso.

@@ -1,0 +1,1 @@
+Artículo 44.-Para mantener el beneficio de la beca, será necesario que la persona estudiante tenga un rendimiento superior a bueno o su equivalencia en la escala de evaluación vigente al momento del curso o taller (en caso que sea un curso con criterios de evaluación), o bien, cuyo desempeño haya sido satisfactorio en cursos recreativos, y conste así en su expediente personal.

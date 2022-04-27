@@ -1,0 +1,1 @@
+Artículo 58.-La persona becaría deberá presentar la justificación en un plazo de tres días hábiles después que se dio la ausencia a la secretaría del programa debidamente firmada por la persona formadora artística encargada del taller y/o curso.

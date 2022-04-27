@@ -1,0 +1,1 @@
+Artículo 22.-La Dirección de cada programa tras las resoluciones de la comisión técnica y artística realizará la publicación correspondiente por medio de los sitios oficiales institucionales para su conocimiento y divulgación.

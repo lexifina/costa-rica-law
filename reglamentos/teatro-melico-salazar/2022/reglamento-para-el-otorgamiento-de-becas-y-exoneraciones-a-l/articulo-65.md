@@ -1,0 +1,3 @@
+Artículo 65.-La Suspensión del beneficio de la beca y de las actividades del programa por medio periodo completo (6 meses) se aplicará cuando se dé los siguientes casos.
+1. Cuando la persona becaria, después de que se haya amonestado por escrito, incurra de nuevo en la falta que motivó dicha sanción, en un periodo de seis meses.
+2. Cuando la persona becaria incurra en alguna de las faltas graves establecidas en los artículos 55 y 56 de este reglamento, salvo que la falta diere mérito para una sanción más severa, según los criterios de valoración citados en el anterior artículo 60 o por así estipularse en otra disposición legal vigente.

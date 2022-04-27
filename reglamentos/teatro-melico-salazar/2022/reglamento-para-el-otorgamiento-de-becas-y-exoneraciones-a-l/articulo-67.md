@@ -1,0 +1,1 @@
+Artículo 67.-La potestad disciplinaria para la aplicación del presente reglamento estará a cargo de la dirección de cada programa según corresponda, emitiendo una resolución razonada en relación a cada caso.
