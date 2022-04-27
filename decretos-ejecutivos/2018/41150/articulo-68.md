@@ -5,7 +5,7 @@ SECCIÓN I
 De las autorizaciones
 Artículo 68º-Autorización. Las autorizaciones para ejecutar las actividades de la cadena de suministro de GLP son las siguientes:
 a) Concesión para operar plantas envasadoras.
-b) Concesión para operar estaciones de servicio de GLP o mixta.
+b) (Derogado por el artículo 55 del Reglamento del suministro de combustibles en estaciones de servicio aprobado mediante decreto ejecutivo N° 43449 del 27 de abril del 2022)
 c) Licencia de Distribución.
 d) Código de Transportista.
 e) Código de comercializador.

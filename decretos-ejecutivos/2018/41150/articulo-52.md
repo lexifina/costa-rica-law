@@ -1,4 +1,1 @@
-Artículo 52º-Prohibición.Se prohíbelo siguiente:
-a)Envasar, distribuir, almacenar, transportar, comercializar o manipular de cualquier forma GL Pencilindros portátiles.
-b)Contratar un RT que no esté inscrito en el RRT.
-El concesionario que realice cualquiera de las conductas aquí señaladas será sancionado de conformidad con el Título V del presente Reglamento.
+Artículo 52º-Prohibición. (Derogado por el artículo 55 del Reglamento del suministro de combustibles en estaciones de servicio aprobado mediante decreto ejecutivo N° 43449 del 27 de abril del 2022)

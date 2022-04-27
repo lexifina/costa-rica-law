@@ -15,3 +15,4 @@ Reglamento general para la regulación del suministro de gas licuado de petróle
 | --- | --- | --- |
 | 1 | 2018-05-17 | la propia norma |
 | 2 | 2021-10-22 | Decreto Ejecutivo 43237 (2021-10-22) |
+| 3 | 2022-04-27 | Decreto Ejecutivo 43449 (2022-04-27) |

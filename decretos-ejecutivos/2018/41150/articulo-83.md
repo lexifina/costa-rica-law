@@ -1,6 +1,7 @@
 SECCIÓN V
 Requisitos
-Artículo 83º- Requisitos para obtener un permiso de operación para una planta envasadora o estación de servicio de GLP o mixta. Los requisitos son los siguientes:
+Artículo 83- Requisitos para obtener un permiso de operación para una planta envasadora.
+(Así reformado el epígrafe anterior por el artículo 54 del Reglamento del suministro de combustibles en estaciones de servicio aprobado mediante decreto ejecutivo N° 43449 del 27 de abril del 2022)
 a) Solicitud escrita con las calidades del solicitante, la descripción de la actividad a desarrollar y el medio para atender notificaciones. La solicitud debe presentarse debidamente firmada por el solicitante o representante legal en caso de ser una persona jurídica, y estar autenticada por un Notario Público. En caso de presentarse de forma personal no se requiere la autenticación notarial.
 b) Adjuntar una certificación de personería jurídica vigente, en caso que corresponda, con un máximo de un mes de expedida.
 c) Se verificará a lo interno la Licencia Ambiental vigente emitida por la SETENA.
