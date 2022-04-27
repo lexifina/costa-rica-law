@@ -14,3 +14,4 @@ Regulación de la Fisioterapia Dermatofuncional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-01-06 | la propia norma |
+| 2 | 2022-04-27 | Reglamento 9 (2022-04-27) |
