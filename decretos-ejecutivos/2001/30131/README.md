@@ -20,3 +20,4 @@ Reglamento para la Regulación del Sistema de Almacenamiento y Comercialización
 | 5 | 2012-01-09 | Decreto Ejecutivo 36967 (2012-01-09) |
 | 6 | 2012-06-25 | Ley 9046 |
 | 7 | 2022-04-18 | Decreto Ejecutivo 43184 (2022-04-18) |
+| 8 | 2022-04-27 | Decreto Ejecutivo 43449 (2022-04-27) |
