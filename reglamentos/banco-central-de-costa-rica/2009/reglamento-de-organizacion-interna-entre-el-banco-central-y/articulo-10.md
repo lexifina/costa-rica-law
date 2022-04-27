@@ -1,1 +1,0 @@
-Artículo 10.—Estimación del presupuesto anual por concepto de los servicios de apoyo prestados a los ODM. El Departamento de Contabilidad del BCCR en conjunto con los ODM, durante el mes de julio de cada año, elaborará la estimación anual del presupuesto de los servicios de apoyo, requeridos para el siguiente año.

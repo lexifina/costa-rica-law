@@ -1,1 +1,0 @@
-Artículo 11.—Previsiones presupuestarias. Tanto el BCCR como las ODM, deberán tomar las previsiones necesarias para que el monto presupuestado disponible resulte suficiente para cubrir el monto a cobrar por los servicios que se proyecten prestar.

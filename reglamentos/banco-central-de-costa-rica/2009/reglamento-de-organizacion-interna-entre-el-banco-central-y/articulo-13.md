@@ -1,3 +1,0 @@
-Artículo 13.—Del cobro de los servicios. El Departamento de Contabilidad del BCCR elaborará el reporte de facturación de los gastos incurridos por los servicios prestados a cada ODM, el cual será comunicado a más tardar 5 días hábiles antes del cierre contable, a efecto de que se incorpore como parte de los gastos del período.
-La periodicidad de dicho reporte será consistente con lo que establece el “Reglamento para regular la participación de los sujetos fiscalizados y del Banco Central, en el financiamiento del presupuesto de las Superintendencias”.
-El formato de la facturación se coordinará con los representantes de los ODM.

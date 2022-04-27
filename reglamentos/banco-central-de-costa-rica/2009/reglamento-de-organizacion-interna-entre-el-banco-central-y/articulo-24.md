@@ -1,1 +1,0 @@
-Artículo 24.—Vigencia. Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deroga el aprobado por la Junta Directiva del Banco Central de Costa Rica, mediante artículo 9º, del acta de la sesión Nº 5089-2001, celebrada el 19 de setiembre del 2001, y publicado en el Diario Oficial La Gaceta Nº 192, del 5 de octubre del 2001.

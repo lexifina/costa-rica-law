@@ -1,1 +1,0 @@
-Artículo 22.—Incumplimiento. En caso de que el servicio requerido no sea prestado de conformidad con lo establecido en el Acuerdo de Nivel de Servicios, la parte que incumplió deberá justificar e indicar el procedimiento para atender la situación con el fin de que el servicio sea restablecido bajo las condiciones acordadas.

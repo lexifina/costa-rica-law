@@ -1,2 +1,0 @@
-Disposiciones finales
-Artículo 21.—Evaluación de satisfacción. Con el objetivo de controlar la calidad y la eficacia en los servicios de apoyo, el BCCR deberá crear mecanismos para evaluar, periódicamente, el grado de satisfacción de los ODM con respecto a los servicios prestados. Con base en los resultados de este proceso, la División de Gestión y Desarrollo del BCCR, elaborará y remitirá a la Gerencia y a los ODM un informe de los resultados de la evaluación e incluirá, las acciones correctivas tanto de la administración del BCCR como los ODM, para mejorar los servicios.
