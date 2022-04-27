@@ -1,0 +1,2 @@
+Artículo 7º-Forma de Pago.
+Toda compra que se realice mediante el Fondo Especial, deberá ser hecha estrictamente al contado, contra la presentación de la respectiva factura comercial o comprobantes autorizados. Cuando el pago se realice mediante transferencia o tarjeta institucional se deberá anotar en la factura el número de transferencia o del comprobante de débito. En caso de que el pago se realice en efectivo, se dejará constancia en la factura de este hecho.
