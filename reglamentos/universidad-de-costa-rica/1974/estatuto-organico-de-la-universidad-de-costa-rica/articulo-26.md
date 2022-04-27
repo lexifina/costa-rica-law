@@ -1,2 +1,2 @@
-Artículo 26.—Constituirá causal de pérdida del cargo para los miembros del Consejo Universitario la inasistencia injustificada a tres sesiones consecutivas. Asimismo, cuando se complete en cualquier momento el 33% de ausencias a las sesiones, justificadas o no, excepto en el caso en que cumplan funciones universitarias, sea por delegación del propio Consejo o en representación de la Universidad de Costa Rica, o que disfruten de licencia de maternidad o incapacidad por enfermedad o accidente.
-(Así reformado en sesión N° 132 del 25 de noviembre de 2009)
+Artículo 26.-Constituirá causal de revocatoria del cargo para los miembros del Consejo Universitario y de la persona que ocupe la Rectoría el incurrir en falta muy grave, si así lo decide la Asamblea Plebiscitaria.
+(Así reformado mediante sesión N° 147 del 27 de abril del 2022)

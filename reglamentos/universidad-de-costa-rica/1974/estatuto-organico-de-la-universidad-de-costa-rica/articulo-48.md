@@ -3,4 +3,6 @@ a)19 Los Vicerrectores serán nombrados por el Rector, quien informará de ello 
 b) Los Vicerrectores no podrán ser designados para ejercer el cargo por más de ocho años consecutivos.
 c) En caso de una vacante, el Rector nombrará al sustituto. Se procederá en la misma forma en caso de ausencias temporales mayores de tres meses.
 ch) En ausencia temporal menor de tres meses, el Consejo de Rectoría recargará sus funciones en cualquiera de los otros Vicerrectores.
+ch bis) En caso de impedimento, que implique inhibición o recusación de la persona que ocupa la vicerrectoría, el rector o la rectora conocerá y resolverá exclusivamente ese asunto concreto.
+(Así adicionado el inciso anterior mediante sesión N° 147 del 27 de abril del 2022)
 d) Los permisos, consecutivos o no, no podrán exceder en total un período de seis meses.

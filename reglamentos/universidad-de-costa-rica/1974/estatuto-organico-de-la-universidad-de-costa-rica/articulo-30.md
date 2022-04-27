@@ -34,3 +34,5 @@ t) Velar por la recopilación, la conservación, la actualización y la divulgac
 (Así adicionado el inciso anterior en Asamblea Colegiada Representativa N° 127 del 27 de setiembre de 2007)
 u) Emitir el criterio institucional sobre los proyectos de ley que se tramitan en la Asamblea Legislativa, de conformidad con lo estipulado en el artículo 88 de la Constitución Política.
 (Así adicionado el inciso anterior mediante sesión N° 137 del 10 de abril del 2013)
+v) Conocer el informe sobre las faltas leves, graves y muy graves cometidas por miembros del Consejo Universitario o la persona que ocupe la Rectoría. Resolver sobre las leves y graves y remitir a la Asamblea Plebiscitaria la solicitud de revocatoria del cargo ante faltas muy graves.
+(Así adicionado el inciso anterior mediante sesión N° 147 del 27 de abril del 2022)

@@ -5,4 +5,6 @@ c) Velar porque los programas aprobados se desarrollen mediante una adecuada art
 ch) Presentar un informe anual al Consejo Universitario sobre las actividades del Sistema.
 ch bis) Firmar conjuntamente con el Rector los títulos y grados académicos que expida la Universidad de Costa Rica, para los graduados del Sistema de Estudios de Posgrado.
 d) Aquellas otras funciones que los reglamentos señalen.
-ARTÍCULO 122 E bis.- Para suplir las ausencias temporales del Decano del SEP y mientras duren éstas, el Consejo del SEP nombrará a un Vicedecano por un período de un año, con posibilidad de reelección inmediata. Será escogido de entre los representantes del área que fueron nombrados de acuerdo con el artículo 122 B, inciso ch) del Estatuto Orgánico.
+Artículo 122 E bis.-Para suplir las ausencias temporales del Decano del SEP y mientras duren éstas, el Consejo del SEP nombrará a un Vicedecano por un período de un año, con posibilidad de reelección inmediata. Será escogido de entre los representantes del área que fueron nombrados de acuerdo con el artículo 122 B, inciso ch) del Estatuto Orgánico.
+En caso de impedimento, que implique inhibición o recusación de la persona que ocupa el decanato del Sistema de Estudios de Posgrado, el vicedecano o la vicedecana deberá sustituirla, y en el caso de que el impedimento recaiga sobre ambos, corresponderá al vicerrector o a la vicerrectora de Investigación el conocimiento y resolución exclusivamente de ese asunto concreto.
+(Así reformado el artículo anterior mediante sesión N° 147 del 27 de abril del 2022)

@@ -1,7 +1,10 @@
 ARTÍCULO 112.- Para ser Director de Sede Regional se requiere ser ciudadano costarricense, tener al menos treinta años de edad y el rango de catedrático o profesor asociado. Se podrán levantar los requisitos, con excepción de pertenecer a Régimen Académico, mediante votación secreta, si así lo acuerdan no menos del 75% de los miembros presentes en la Asamblea de Sede.51
 51 Modificación aprobada en Asamblea Colegiada Representativa 115, del 18 de marzo y 12 de abril de 2004. Publicada en Gaceta Oficial 111, del 08-06-04.
 Podrá ser candidato a la reelección inmediata una sola vez consecutiva, según las normas que determinan este Estatuto y el Reglamento de Elecciones Universitarias.
-En ausencias temporales del Director y mientras duren éstas, el cargo será ejercido por el Subdirector de la Sede.
+En ausencias temporales del Director y mientras duren estas, el cargo será ejercido por el Subdirector de la Sede.
+(Así reformado el párrafo anterior mediante sesión N° 147 del 27 de abril del 2022)
+En caso de impedimento, que implique inhibición o recusación de la persona que ocupa la dirección de la Sede, el subdirector o la subdirectora de la Sede deberá sustituirla, y en el caso de que el impedimento recaiga sobre ambos, corresponderá al rector o a la rectora el conocimiento y resolución exclusivamente de ese asunto concreto.
+(Así adicionado el párrafo anterior mediante sesión N° 147 del 27 de abril del 2022)
 Corresponde al Director de Sede:
 a) Ejecutar los acuerdos y las políticas emanadas de la Asamblea de Sede y de los órganos superiores de la Universidad.
 b) Servir de medio obligatorio de comunicación entre la Sede y las autoridades de la Universidad.
