@@ -1,0 +1,1 @@
+Artículo 4º-El personal de armería debe dedicar el debido tiempo de su jornada laboral para realizar las funciones propias del cargo. Para lo cual es responsabilidad del jefe del Departamento de Policía Municipal, velar por su cumplimiento y servicio todos los días.

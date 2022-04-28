@@ -1,0 +1,1 @@
+Artículo 19.-De ser necesario trasladar de forma temporal armamento de una dependencia a otra dentro de la Municipalidad, el Armero y el Jefe de Policía Municipal, solicitará la correspondiente autorización a la Alcaldía Municipal, para hacer efectivo el traslado.

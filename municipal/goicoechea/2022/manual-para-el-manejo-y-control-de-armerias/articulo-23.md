@@ -1,0 +1,1 @@
+Artículo 23.-En caso de percatarse de algún daño en el armamento, el personal de armería, debe reportarlo a la Jefatura de Policía Municipal, para su correspondiente reparación. El arma que deba enviarse a reparar debe acompañarse de reporte del daño determinado, con firma del Armero y Jefe Policía MunicipaI.

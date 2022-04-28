@@ -1,0 +1,2 @@
+Artículo 7º-Únicamente podrán hacer ingreso a la Armería, el personal autorizado según los parámetros establecidos en este manual, el armero (s), el Jefe de Policía Municipal; así como aquellas instancias de control como la Auditoria, la Dirección Administrativa Financiera, Departamento de Contabilidad, Departamento Proveeduría, para efectos propios de sus dependencias y previa coordinación con el Jefe de Policía Municipal.
+Es terminante ente prohibido mantener dentro de las armerías, objetos ajenos al equipo reglamentario.

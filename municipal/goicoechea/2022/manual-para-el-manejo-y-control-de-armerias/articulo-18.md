@@ -1,0 +1,1 @@
+Artículo 18.-Dentro de la Armería deben mantenerse la totalidad del armamento propiedad de la Municipalidad de Goicoechea: dándosele prioridad en la utilización del espacio físico existente; así también para los implementos y equipos utilizados en el mantenimiento preventivo del armamento.

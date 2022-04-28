@@ -1,0 +1,1 @@
+Artículo 9º-El Armero y el Jefe de Policía Municipal, en el ejercicio de sus funciones, son responsables de todo el armamento y otros equipos asignados a la armería y han de velar por la aplicación de las disposiciones establecidas en este Manual.

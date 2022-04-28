@@ -1,0 +1,1 @@
+Artículo 12.-Las municiones que no estén en uso para el servicio activo, deben mantenerse dentro de su empaque original de fábrica. Es obligación conjunta del Armero y Jefe de Policía Municipal, el velar por el fiel acatamiento de esta norma.

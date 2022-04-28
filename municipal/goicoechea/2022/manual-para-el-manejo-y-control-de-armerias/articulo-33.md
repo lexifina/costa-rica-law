@@ -1,0 +1,1 @@
+Artículo 33.-Sólo aquellos funcionarios del estado que se encuentren en funciones policiales o de seguridad patrimonial pueden portar armamento, por lo cual quedan excluidos de hacerlo los funcionarios administrativos que no desarrollen este tipo de funciones específicamente.

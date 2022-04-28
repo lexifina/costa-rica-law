@@ -1,0 +1,2 @@
+Artículo 40.-Es deber de todo (a) funcionario(a) velar por los activos que se le entregan para el ejercicio de sus funciones. La pérdida, extravío, sustracción o decomiso por causas imputables al funcionario(a), implicará el inicio de un proceso disciplinario, a efectos de determinar el grado de responsabilidad y la sanción que pudiera corresponder.
+Aprobado por el Concejo Municipal en sesión__________, celebrada el_________, artículo_______.

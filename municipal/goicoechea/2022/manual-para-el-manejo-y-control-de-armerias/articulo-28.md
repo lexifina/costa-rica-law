@@ -1,0 +1,3 @@
+Artículo 28.-De forma semestral debe emitirse el informe que seguidamente se indica, emitido y firmado por parte del Armero con visto bueno del Jefe de Policía Municipal:
+l. Informe Semestral: El que se remite al Departamento de Control de Armas y Explosivos, según Io establecido en el artículo 5 de la Ley N° 7530 y sus reformas, por parte de los Órganos o Entes Públicos y los Cuerpos Policiales reconocidas por la Ley General de Policía N° 7410 o bien alguna otra Ley y únicamente sobre las armas de su propiedad.
+La estructura del informe debe ser conforme lo dispone el MANUAL PARA EL MANEJO Y CONTROL DE ARMERÍAS DE ÓRGANOS Y ENTES PÚBLICOS, emitido por el Ministerio de Seguridad Pública.

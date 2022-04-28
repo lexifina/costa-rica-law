@@ -1,0 +1,1 @@
+Artículo 22.-Los funcionarios de las diferentes armerías únicamente podrán utilizar los implementos e insumos para el mantenimiento que la Municipalidad haya adquirido para dicha finalidad, los cuales deberán de ser adquiridos bajo criterios técnicos que garantice la no afectación negativa del armamento.
