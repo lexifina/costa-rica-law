@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2022
 
-Ley N° 10103 del 2021-11-30. SINALEVI, ficha 95869: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=95869&param2=129761&param3=1>.
+Ley N° 10103 del 2021-11-30. SINALEVI, ficha 95869: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=95869&param2=129892&param3=1>.
 
 Publicada en La Gaceta N° 235 del 2021-12-07.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 23 | 2022-04-04 | Decreto Ejecutivo 43461 (2022-02-04) | 2022-02-04 |
 | 4 de 23 | 2022-04-04 | Decreto Ejecutivo 43447 (2022-02-08) | 2022-02-08 |
 | 5 de 23 | 2022-04-08 | Decreto Ejecutivo 43472 (2022-03-22) | 2022-03-22 |
+| 6 de 23 | 2022-04-28 | Ley 10196 | 2022-04-20 |
