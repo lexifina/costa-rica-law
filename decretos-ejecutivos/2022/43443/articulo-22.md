@@ -1,0 +1,1 @@
+Artículo 22.-Extracción en cauce de dominio público. La longitud máxima que se podrá otorgar para cada concesión será de dos kilómetros lineales continuos, medidos promediando ambas márgenes del cauce y comprenderá todo el ancho del cauce del río.

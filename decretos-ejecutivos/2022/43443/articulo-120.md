@@ -1,0 +1,1 @@
+Artículo 120.-Extinción de los permisos y concesiones. Los permisos y concesiones se extinguirán también por nulidad, por vencimiento del plazo, por renuncia total del derecho y caducidad, según el Código de Minería.

@@ -1,0 +1,1 @@
+Artículo 89.- Cumplimiento del Plan de Cierre. Una vez acreditada la implementación total del Plan de Cierre y emitido el informe de aprobación correspondiente, la DGM dictará una resolución de archivo definitivo de la concesión minera.

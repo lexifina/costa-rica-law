@@ -1,0 +1,2 @@
+Artículo 14.-Concesión de Beneficiamiento. Toda persona física o jurídica podrá obtener una concesión para instalar y operar una Planta de beneficiamiento, para lo cual no será requisito ser titular de una concesión minera de explotación. Tal actividad deberá contar de previo con el otorgamiento de la Viabilidad Ambiental.
+Igualmente, para la operación de un quebrador móvil, es obligatorio que la Viabilidad Ambiental del sitio o proyecto, contemple el uso de dicho quebrador. Este procedimiento no aplica cuando el quebrador móvil se utiliza en proyectos de obra pública.

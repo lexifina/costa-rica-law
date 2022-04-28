@@ -1,0 +1,1 @@
+Artículo 154.-Del rechazo de la solicitud. La DGM rechazará de plano la solicitud, cuando ésta se ubique interfiriendo con un área concesionada. En caso que él área de interés sólo interfiriera parcialmente con un área otorgada o en trámite, prevendrá al ente solicitante para que reduzca el área de interés.

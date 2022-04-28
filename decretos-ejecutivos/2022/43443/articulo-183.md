@@ -1,0 +1,1 @@
+Artículo 183.-De la inscripción. Una vez notificada la resolución de otorgamiento de la autorización el Ministerio del Ambiente y Energía inscribirá de oficio la misma, conforme el procedimiento establecido en el presente reglamento.

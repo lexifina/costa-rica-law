@@ -1,0 +1,1 @@
+Artículo 16.-Derechos y Obligaciones. Los titulares de concesiones de beneficiamiento, gozaran de los derechos a que se refiere el artículo 47 y, están sujetos al cumplimiento de las obligaciones establecidas en el artículo 68 del presente reglamento, en lo que les sea aplicable.

@@ -1,0 +1,1 @@
+Artículo 18.- De los planos topográficos para las explotaciones artesanales. Para las solicitudes de explotación artesanal se exigirá la presentación de un croquis del área a explotar, señalando las coordenadas y extensión de la misma, debiendo demostrar el acceso a la zona a explotar.

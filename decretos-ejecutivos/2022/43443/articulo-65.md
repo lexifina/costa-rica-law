@@ -1,0 +1,1 @@
+Artículo 65.-De la exploración en forma simultánea a las labores de explotación. El titular de una concesión de explotación deberá comunicar previamente a la DGM que realizará labores de exploración en forma simultánea a las labores de explotación, debiendo aportar un programa de las labores de exploración a realizar dentro del área concesionada.

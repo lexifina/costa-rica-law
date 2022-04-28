@@ -1,0 +1,3 @@
+Artículo 96.-La Bitácora Geológica. Todo permisionario de exploración y concesionario de explotación, tiene la obligación de conservar en el sitio donde se realiza la actividad minera la bitácora geológica, cumpliendo con lo dispuesto en el Reglamento de Uso de Bitácora en Actividades Geológicas.
+El incumplimiento a lo anterior, será causal de cancelación de conformidad con los artículos 66 o 67 del Código de Minería, según corresponda.
+Los funcionarios de la Dirección de Geología y Minas, que realicen inspección en el área de permiso o concesión, tienen la obligación de asentar en la bitácora día y hora de la visita, así como de consignar aspectos técnicos de relevancia para la actividad desarrollada.

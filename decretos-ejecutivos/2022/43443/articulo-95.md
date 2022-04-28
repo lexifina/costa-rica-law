@@ -1,0 +1,2 @@
+Artículo 95.-Cumplimiento de las normas y directrices provenientes de la SETENA la Dirección de Geología y Minas. Todo permisionario y concesionario, se encuentra obligado a acatar las directrices técnicas relacionadas en el desarrollo de las labores mineras, que le gire la SETENA y la DGM.
+El incumplimiento a lo anterior, será causal de cancelación de conformidad con los artículos 66 o 67 del Código de Minería, según corresponda.

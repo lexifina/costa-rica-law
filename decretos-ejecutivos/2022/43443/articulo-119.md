@@ -1,0 +1,4 @@
+CAPÍTULO III
+De las sanciones y Medidas Cautelares
+Artículo 119.-Suspensión de labores. Medida cautelar. A juicio de la DGM, ante el incumplimiento de las obligaciones a cargo del permisionario o concesionario, de existir peligro o amenaza de daño grave al ambiente o de provocarse daño ambiental, la DGM podrá ordenar, como medida cautelar, la suspensión inmediata de las labores que se estén llevando a cabo.
+La Dirección de Geología y Minas, por medio del Registro Nacional Minero, mediante notificación otorgará un plazo para que cumpla sus obligaciones, el cual no podrá ser mayor de tres meses y cuya fijación se establecerá atendiendo a la gravedad de los incumplimientos. Si el permisionario o concesionario no cumpliere dentro del plazo otorgado con lo prevenido o lo presenta en forma incorrecta o incompleta, la Dirección de Geología y Minas, procederá a declarar la cancelación del permiso o concesión.

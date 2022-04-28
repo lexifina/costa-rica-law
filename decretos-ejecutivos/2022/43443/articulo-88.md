@@ -1,0 +1,1 @@
+Artículo 88.- Incumplimiento. De no cumplirse con lo prevenido dentro del plazo otorgado, la DGM le comunicará a la Secretaría Técnica Nacional Ambiental (SETENA) para que proceda según sus competencias; y al Tribunal Ambiental Administrativo para que se valore la existencia o no de daño ambiental.

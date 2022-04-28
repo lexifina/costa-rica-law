@@ -1,0 +1,1 @@
+Artículo 155.- Del trámite. Recibida la solicitud, la DGM asignará número de expediente, ubicará en el Catastro Minero y trasladará una copia de la solicitud, incluyendo el Plan de Explotación, a la SETENA.

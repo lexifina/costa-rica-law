@@ -1,0 +1,1 @@
+Artículo 187.-Sanción. En caso que no se presente el informe de labores indicado o su anexo, no se otorgará ninguna autorización más al órgano del Estado que contrate con la empresa incumpliente. Asimismo, se presentará denuncia formal contra el Geólogo responsable del proyecto ante el Colegio de Geólogos de Costa Rica.

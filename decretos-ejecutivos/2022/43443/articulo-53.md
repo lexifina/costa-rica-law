@@ -1,0 +1,3 @@
+Artículo 53.-De la cesión, traspaso, explotación indirecta, explotación conjunta. La DGM archivará la solicitud y liberará el área cuando tenga conocimiento y haya comprobado debidamente cualquier acción de traspaso, arrendamiento, cesión, explotación conjunta, indirecta, realizada durante el trámite de la solicitud.
+Igualmente ordenará la cancelación del derecho, cuando tenga conocimiento y se demuestre la cesión, traspaso, arrendamiento, explotación conjunta o indirecta, constitución de hipoteca o cualquier otro modo de gravamen de un derecho de explotación o de exploración, sin contar de previo con la aprobación de la DGM.
+En este último caso la Dirección de Geología y Minas, aplicará las sanciones establecidas en el artículo 3 del Código de Minería.

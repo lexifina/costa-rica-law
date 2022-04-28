@@ -1,0 +1,2 @@
+Artículo 173.-Del anexo al informe de labores. En caso que la Dirección de Geología y Minas, requiera la presentación de un anexo, otorgará mediante una resolución, un plazo de 20 días hábiles al órgano autorizado, para que adicione o aclare la información.
+En dicha resolución, se consignará el hecho de que si transcurrido el plazo otorgado, el órgano autorizado no presentare la información requerida, se procederá a la cancelación de la autorización.

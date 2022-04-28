@@ -1,0 +1,3 @@
+CAPITULO II
+De la Formalización
+Artículo 37.-Formalización de la solicitud de permiso de exploración, concesión de reconocimiento, explotación o beneficiamiento. Al día siguiente de notificada la viabilidad ambiental, el interesado cuenta con un plazo de 30 días hábiles para formalizar su solicitud y completar los requisitos correspondientes a la solicitud planteada ante la DGM. Si el trámite no se formaliza en el plazo otorgado, el expediente se archivará y la reserva de área cesará. Una vez ingresados dichos requisitos a la plataforma digital, se tendrá por formalizada la solicitud para dar inicio al trámite.

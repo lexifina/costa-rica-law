@@ -1,0 +1,1 @@
+Artículo 81.-Plan de Cierre Técnico. Todo interesado en obtener un permiso de exploración, una concesión minera de explotación y una concesión de beneficiamiento, deberá presentar con el Programa Técnico respectivo, una propuesta de plan de cierre de las labores e instalaciones en el área del permiso o de la concesión.

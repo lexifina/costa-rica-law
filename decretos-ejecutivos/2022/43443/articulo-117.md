@@ -1,0 +1,1 @@
+Artículo 117.-De la excavación del lecho del río. No se permitirá excavar el lecho del río más de lo determinado en las condiciones de otorgamiento de la concesión, so pena de ser declarada la cancelación de la respectiva concesión de explotación.

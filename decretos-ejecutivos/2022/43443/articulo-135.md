@@ -1,0 +1,1 @@
+Artículo 135.-De los planos topográficos. Toda solicitud de autorización deberá presentar un plano topográfico que contenga las mismas especificaciones señaladas en el artículo 17 del presente reglamento.

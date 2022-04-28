@@ -1,0 +1,2 @@
+Artículo 148.-Resolución de la solicitud de prórroga. La Dirección de Geología y Minas remitirá al Poder Ejecutivo su recomendación sobre el otorgamiento de la prórroga máximo en 15 días hábiles después de solicitada, de estar completa. En caso que se otorgue la misma, en la resolución que la autorice, se indicará las condiciones técnicas que deberá acatar el ente.
+Además, la DGM comunicará a la SETENA en un plazo de 3 días hábiles la resolución que otorgue o deniegue la prórroga.

@@ -1,0 +1,1 @@
+Artículo 150.-Sanción. En caso de que no se presente el informe de labores indicado en el artículo anterior, la Dirección de Geología y Minas no tramitará ninguna nueva solicitud del ente incumpliente hasta tanto sea presentado el informe de labores final correspondiente.

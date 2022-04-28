@@ -1,0 +1,1 @@
+Artículo 103.-De la inspección. Una vez recibida la denuncia por el funcionario a cargo de la misma, deberá realizar una inspección en un plazo máximo de 10 días hábiles posteriores a su recibo. Para la realización de dicha inspección, los funcionarios de la DGM, podrán contar en el apoyo técnico de los profesionales del MINAE, SINAC, SETENA, Fuerza Pública, Fiscalía.

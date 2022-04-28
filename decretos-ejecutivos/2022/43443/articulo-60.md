@@ -1,0 +1,2 @@
+Artículo 60.-Conciliación. En caso de oposición por parte del propietario del terreno a la constitución de la servidumbre, la DGM realizará una conciliación entre el interesado y el propietario del terreno a efecto de tratar de llegar a un acuerdo entre partes. De la conciliación celebrada se levantará acta que se anexará al expediente correspondiente.
+En todo caso, se aplicará el procedimiento de la Ley de Resolución Alternativa de Conflictos y Promoción de la Paz Social, Ley N° 7727.

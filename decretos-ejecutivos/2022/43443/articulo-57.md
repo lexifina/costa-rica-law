@@ -1,0 +1,1 @@
+Artículo 57.-Inspección para determinar la necesidad de la servidumbre. Una vez satisfechos los requisitos anteriores, y dentro de los siguientes 30 días hábiles, la DGM realizará una inspección a efecto de comprobar la necesidad del establecimiento de servidumbre, cuyos gastos serán cubiertos por el interesado en la constitución de la servidumbre.

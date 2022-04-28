@@ -1,0 +1,1 @@
+Artículo 176-De la solicitud de prórroga de vigencia de la autorización. En caso de que las labores a realizar, no hayan sido concluidas en el plazo inicialmente establecido, el órgano autorizado solicitará a la Dirección de Geología y Minas prórroga del plazo de vigencia de la autorización, el cual no podrá ser mayor de dos años.

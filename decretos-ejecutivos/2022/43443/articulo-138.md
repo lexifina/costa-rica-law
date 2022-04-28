@@ -1,0 +1,1 @@
+Artículo 138-Consulta a la Dirección de Agua del MINAE. En caso que el área solicitada se ubique en un cauce de dominio público, la DGM consultará la base de datos de la Dirección de Agua del MINAE, para valorar la existencia de concesiones de agua en el área. De considerarse necesario la DGM establecerá los lineamientos que correspondan.

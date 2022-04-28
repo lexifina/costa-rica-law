@@ -1,0 +1,3 @@
+Artículo 63.-Renuncia parcial al área objeto de permiso o concesión. La solicitud de renuncia parcial del área, debe presentarse al RNM e incluirse al expediente administrativo correspondiente. El RNM le dará trámite en un plazo de 30 días hábiles a partir de su presentación emitiendo una resolución en la cual se consigna el área remanente y en caso de ser procedente, el monto a cancelar por concepto de canon a futuro.
+En caso de concesión de explotación, debe aportarse con la solicitud, plano topográfico del área a reducir, indicando el remanente del área.
+En caso de permiso de exploración deberá aportar el polígono con las coordenadas del área renunciada y su remanente.

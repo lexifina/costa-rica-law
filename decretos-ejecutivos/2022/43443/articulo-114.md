@@ -1,0 +1,1 @@
+Artículo 114.-Del registro de exportaciones. La DGM mantendrá un Registro de todas las exportaciones realizadas, sean con o sin valor comercial. Este Registro será para uso exclusivo de la DGM, y no tendrá carácter público, a menos que el permisionario de manera expresa y por escrito autorice su consulta a terceros, o se habilite la plataforma digital para este propósito.

@@ -1,0 +1,2 @@
+Artículo 177.-Requisitos de la solicitud de prórroga de vigencia de la autorización. Al solicitar la prórroga, es necesario que el órgano autorizado esté al día con las obligaciones ante la Dirección de Geología y Minas y la Secretaría Técnica Nacional Ambiental. Además, deberá justificar la razón por la que no se ha concluido la obra y se requiere la prórroga.
+Con la solicitud de prórroga, el órgano autorizado deberá de indicar el plazo por el cual solicita la prórroga de vigencia y cualquier cambio en las labores de explotación a realizar.

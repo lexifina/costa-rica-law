@@ -1,0 +1,1 @@
+Artículo 186.-Del anexo al informe de labores. La Dirección de Geología y Minas, podrá solicitar la información adicional que considere procedente, concediendo un plazo de 20 días hábiles al órgano autorizado para que cumpla, caso contrario se revocará la autorización.

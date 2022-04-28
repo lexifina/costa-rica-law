@@ -1,0 +1,1 @@
+Artículo 126-Plazo. Para el cumplimiento de lo prevenido en el artículo anterior, se le concederá al concesionario un plazo no mayor de 90 hábiles, contados a partir del día hábil siguiente a la notificación de la respectiva resolución.

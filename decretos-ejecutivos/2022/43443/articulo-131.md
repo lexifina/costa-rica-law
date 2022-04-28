@@ -1,0 +1,1 @@
+Artículo 131.-Competencia. Las solicitudes de las Municipalidades e Instituciones Autónomas deberán ser acordadas a través del Concejo Municipal o de la Junta Directiva correspondiente, mediante acuerdo certificado que deberá aportarse con la solicitud.

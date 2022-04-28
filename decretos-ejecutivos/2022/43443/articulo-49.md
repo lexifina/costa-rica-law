@@ -1,0 +1,12 @@
+Artículo 49.- Requisitos para los reajustes de plazo y las prórrogas del plazo de vigencia. La solicitud de reajuste de plazo o de prórroga del plazo de vigencia de la concesión, deberá presentarse mediante la plataforma digital de la DGM, antes del vencimiento del plazo concedido por el Poder Ejecutivo en la resolución de otorgamiento y con los siguientes requisitos:
+a) Para el caso de permisos de exploración, demostrar que no pudo terminar la actividad de exploración en el plazo previsto y por causas ajenas a su voluntad.
+b) Para casos de concesiones de explotación, estudio que demuestre la conveniencia para el Estado de continuar explotando el yacimiento o procesando mineral. El Estudio de Conveniencia para el Estado de la prórroga o reajuste de plazo deberá contener la siguiente información técnica:
+. Indicación de las actividades realizadas y a realizar con cronograma de labores.
+. Ubicación, características geológicas del depósito.
+. La re-evaluación de reservas (probadas), a efectos de garantizar la vida útil del yacimiento y justificar dicha prorroga o reajuste. En caso de extracción de materiales en Cauces de Dominio Público, se deberá aportar el estudio hidrológico actualizado que demuestre la dinámica fluvial y las posibles reservas producto de la recarga.
+. Levantamiento topográfico actualizado a efecto de solicitar la prórroga o reajuste, sección longitudinal y secciones transversales o perfiles con la finalidad de consignar el avance de los frentes de explotación.
+. Metodología, secuencia y diseño del avance de la explotación. En caso de Canteras, presentar cualquier modificación en el diseño final del proyecto.
+. Características de los equipos y números de unidades, incluir rendimientos, capacidad y vida útil.
+. Reporte de la producción estimada.
+. Si tiene originalmente aprobado el uso de planta de beneficio durante el periodo de prórroga o reajuste de plazo, debe utilizarse la misma, deberá incluir su ubicación y caracterización, así como la descripción de cada uno de sus componentes: marca, estado, uso de agua, vida útil, costo de producción, operarios, revisiones técnicas, capacidad máxima del proceso por día, tipo de energía y cantidad a requerir y todas las especificaciones dadas por el fabricante, asimismo si cuenta con lagunas de sedimentación indicar sus características y dimensiones, presentar diseño de sitio.
+. Certificación de Contador Público Autorizado en la que se establezcan los estados financieros del concesionario.

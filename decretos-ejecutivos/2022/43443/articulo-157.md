@@ -1,0 +1,2 @@
+Artículo 157.-Del procedimiento. Inspección. Una vez recibida la información anterior, la Dirección de Geología y Minas, realizará una inspección al sitio, en los 15 días hábiles siguientes, con el fin de verificar las obras a realizar y la fuente de material.
+En caso de que el funcionario que realice la inspección determine que debe aclararse la información suministrada en la solicitud, la DGM realizará la prevención al solicitante, para lo cual le otorgará un plazo máximo de 8 días hábiles.

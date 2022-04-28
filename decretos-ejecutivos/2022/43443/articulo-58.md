@@ -1,0 +1,1 @@
+Artículo 58.-De la audiencia. De estimar procedente la solicitud, el RNM concederá audiencia mediante notificación al propietario del inmueble, por un plazo de 10 días hábiles, a efecto que se pronuncie sobre la servidumbre.

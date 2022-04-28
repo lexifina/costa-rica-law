@@ -1,0 +1,2 @@
+Artículo 182.-De la resolución de otorgamiento de la autorización. La resolución que otorgue la autorización, será firmada por el Presidente de la República y el Ministro de Ambiente y Energía. Esta contendrá las condiciones y requisitos que regirán dicha autorización ordenándose su publicación por una vez en el Diario Oficial La Gaceta cuyo costo será cubierto por el órgano autorizado.
+El órgano autorizado podrá iniciar labores acreditando haber cumplido con los trámites de publicación.
