@@ -1,2 +1,5 @@
-Artículo 231.- (Derogado por el artículo 41 de la Ley para Promoción de la Autonomía Personal de las Personas con Discapacidad, N° 9379 del 18 de agosto de 2016)
-(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 218 al 231)
+CAPÍTULO II
+Cuidados
+(Así adicionado el capítulo anterior por el artículo 32 de la Ley de Creación del Sistema Nacional de Cuidados y Apoyos para Personas Adultas y Personas Adultas Mayores en Situación de Dependencia (Sinca), N° 10192 del 28 de abril de 2022)
+Artículo 231- Se entenderá por cuidados las acciones que las personas requieren para satisfacer sus necesidades básicas, educativas, de salud, de protección, nutrición, recreación, acompañamiento, incluida la estimulación para el desarrollo de habilidades, competencias, actividades de vida diaria y otras; de conformidad con la situación de dependencia de la persona sujeta de cuidados y apoyos.
+(Así adicionado por el artículo 32 de la Ley de Creación del Sistema Nacional de Cuidados y Apoyos para Personas Adultas y Personas Adultas Mayores en Situación de Dependencia (Sinca), N° 10192 del 28 de abril de 2022)
