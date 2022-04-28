@@ -1,3 +1,0 @@
-8º—El LANASEVE reportará a la Dirección de Inocuidad de Productos de Origen Animal (DIPOA) del SENASA el resultado de los exámenes derivados de los muestreos, quien informará a
-las plantas de sacrificio el nombre y calidades de los propietarios cuyos animales muestreados resultaron con LMR por encima de los valores permitidos a los efectos de garantizar la efectividad de la aplicación del muestreo dirigido en cualquiera de las plantas de sacrificio o mataderos.
-De igual manera le informará a la Dirección de Medicamentos Veterinarios del SENASA para que esta inicie las investigaciones de campo que procedan.

@@ -1,2 +1,0 @@
-3º—Todo animal que se presente a planta de sacrificio o matadero, con independencia de si es para consumo nacional o de exportación deberá acompañarse de una declaración jurada de la persona que lo entregue en calidad de propietario, misma que deberá exigir el establecimiento de sacrificio o matadero y la cual deberá indicar expresamente que dicho animal ha sido sometido a los períodos de retiro establecidos cuando se hayan aplicado a los animales presentados para matanza.
-Dicha declaración se realizará en la “Guía Oficial de Movilización de Ganado Bovino”.
