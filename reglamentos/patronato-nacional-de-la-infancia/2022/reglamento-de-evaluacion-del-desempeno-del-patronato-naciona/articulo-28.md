@@ -1,0 +1,3 @@
+Artículo 28.-Actualización y comunicación: El Departamento de Recursos Humanos y de Planificación actualizarán y comunicarán la distribución porcentual aplicable conforme a los Lineamientos que establezca el MIDEPLAN y las reformas legales que surjan en la materia. De igual manera, mantendrán actualizado el sistema informático que se designe a estos efectos.
+Con el fin de mantener actualizados los procedimientos y brindar seguridad a las personas servidoras, Recursos Humanos llevará a cabo la emisión de un Manual de Evaluación de Desempeño, el cual será revisado anualmente y actualizado cuando corresponda.
+En todo caso la distribución de porcentajes deberá estar definida de previo al inicio de las diferentes etapas de la evaluación del desempeño.

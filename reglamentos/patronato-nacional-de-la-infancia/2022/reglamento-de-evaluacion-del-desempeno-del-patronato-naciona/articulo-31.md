@@ -1,0 +1,1 @@
+Artículo 31.-Evaluación del desempeño del personal del nombramiento de la Junta Directiva. Tratándose del personal cuyo nombramiento compete a la Junta Directiva, sea este las personas Gerente de Administración y Técnico, así como la persona Auditora Interna, la evaluación de desempeño corresponderá a la Junta Directiva.

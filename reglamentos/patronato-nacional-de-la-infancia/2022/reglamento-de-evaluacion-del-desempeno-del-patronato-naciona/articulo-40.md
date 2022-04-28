@@ -1,0 +1,1 @@
+Artículo 40.-Evaluación de las instancias evaluadoras. La evaluación del desempeño de las direcciones y jefaturas de las áreas de Planificación, Contraloría de Servicios y Recursos Humanos, deberá ser realizada por la Presidencia Ejecutiva o bien, podrá delegarla en las Gerencias.

@@ -1,0 +1,1 @@
+Artículo 5º-Principios. En el PANI la evaluación del desempeño se regirá, entre otros que resulten aplicables, por los siguientes principios: participación, transparencia, objetividad, imparcialidad, igualdad de oportunidades, igualdad de trato y no discriminación, legalidad, eficacia y eficiencia.

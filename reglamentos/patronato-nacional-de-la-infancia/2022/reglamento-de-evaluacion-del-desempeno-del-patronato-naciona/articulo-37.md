@@ -1,0 +1,1 @@
+Artículo 37.-Aplicación de la evaluación de competencias: La aplicación del rubro de competencias dentro de la evaluación del desempeño de las personas servidoras, corresponderá al superior inmediato de cada servidor o servidora.

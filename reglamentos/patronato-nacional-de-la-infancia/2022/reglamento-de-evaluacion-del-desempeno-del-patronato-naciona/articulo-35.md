@@ -1,0 +1,1 @@
+Artículo 35.-Justificaciones: Los personas servidoras evaluadas deberán referir las justificaciones que consideren pertinentes ante el caso de incumplimientos parciales o totales de metas; éstas serán valoradas por la respectiva jefatura.

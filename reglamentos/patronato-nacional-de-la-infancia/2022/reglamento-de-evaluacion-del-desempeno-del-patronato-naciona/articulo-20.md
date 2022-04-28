@@ -1,0 +1,1 @@
+Artículo 20.-Planificación de la evaluación del desempeño. Consta de la definición y programación de metas y objetivos por parte de Planificación Institucional, con los insumos provistos por la jefatura y la persona servidora. La planificación se llevará a cabo de acuerdo con la agenda y los planes estratégicos institucionales aprobados a lo interno.

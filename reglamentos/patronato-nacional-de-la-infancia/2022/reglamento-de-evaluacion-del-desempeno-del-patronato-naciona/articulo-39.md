@@ -1,0 +1,1 @@
+Artículo 39.-Colaboradores a su jefatura. Comprende la evaluación que realizarán las personas servidoras a su superior inmediato, sean estas direcciones o jefaturas. El departamento de Recursos Humanos determinará los parámetros que serán evaluados, así como las vías para la aplicación y recopilación de información en este componente.

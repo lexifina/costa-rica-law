@@ -1,0 +1,1 @@
+Artículo 7º-Aplicación de los lineamientos emitidos por MIDEPLAN. El PANI atenderá los lineamientos generales que emita el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN) sobre métodos de evaluación y los sistemas de información respectivos.

@@ -1,0 +1,1 @@
+Artículo 26.-Calificación de la Evaluación del Desempeño: La calificación de la evaluación del desempeño se regirá por los valores que establezca la escala establecida en los Lineamientos que al efecto establezca el MIDEPLAN.
