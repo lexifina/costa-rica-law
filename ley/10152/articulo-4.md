@@ -1,0 +1,3 @@
+ARTÍCULO 4- Organización . La Comisión nombrará de su seno un coordinador y un subcoordinador por un periodo de dos años, quien será el responsable de realizar las convocatorias, llevar las actas y gestionar los acuerdos ante las autoridades competentes.
+La Comisión deberá sesionar de forma ordinaria cuatro veces al año y extraordinariamente cuando lo convoque su coordinador o por solicitud escrita de la cuarta parte de sus integrantes.
+La Municipalidad de Sarapiquí podrá brindar un espacio en las instalaciones para el apoyo técnico y logístico que requiera la Comisión para realizar sus funciones. Esta Comisión podrá convocar y coordinar para el ejercicio de sus funciones con instituciones públicas, organizaciones sociales, academia y sector privado.

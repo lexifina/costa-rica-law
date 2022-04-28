@@ -1,0 +1,2 @@
+ARTÍCULO 10- Interés público. Se declara la protección de la cuenca del río Sarapiquí y su ribera de interés público El Estado apoyará las iniciativas de desarrollo local y las actividades vinculadas al desarrollo del turismo, que buscan mantener, proteger y potenciar la región. Todo bajo un marco de protección y sostenibilidad del medio ambiente.
+El Instituto Costarricense de Turismo incluirá dentro del Plan Nacional de Desarrollo Turístico y sus planes anuales de mercadeo y atracción de inversiones, acciones que promuevan el desarrollo integral del destino turístico.
