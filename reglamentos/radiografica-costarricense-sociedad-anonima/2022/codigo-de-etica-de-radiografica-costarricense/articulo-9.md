@@ -1,0 +1,2 @@
+Artículo 9º-Trabajo en equipo. El personal de RACSA debe esforzarse para trabajar en equipo como valor fundamental para permitir, proponer y alcanzar metas establecidas en concordancia con la misión, visión y objetivos corporativos y de la Empresa.
+En caso de no alcanzar las metas, el actuar ético demanda que se asuma la responsabilidad por los errores personales que originen atrasos o mala calidad de los servicios, así como abstenerse de culpar o desacreditar a otros colaboradores.

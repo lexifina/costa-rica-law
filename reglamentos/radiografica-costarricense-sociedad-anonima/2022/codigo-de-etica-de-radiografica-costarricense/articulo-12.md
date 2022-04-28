@@ -1,0 +1,2 @@
+Artículo 12.-Inobservancia a las obligaciones. El incumplimiento de estas disposiciones, que incidan en el desempeño normal de las labores será instruido, evaluado y analizado, de acuerdo con lo establecido en el Estatuto de Personal de RACSA y el Código de Trabajo.
+El incumplimiento de estas disposiciones, serán evaluadas y analizadas, con el fin de determinar las responsabilidades o eventuales sanciones de las que los colaboradores puedan ser responsables, según lo establecido en las normas y disposiciones que regulan la materia laboral.

@@ -1,0 +1,2 @@
+Artículo 5º-Deber de obediencia y sus límites. El colaborador de RACSA no podrá rechazar la atención de asuntos que le sean designados por su Jefatura, Directores o Gerente General, en los que se solicite su intervención, salvo que exista una causa de imposibilidad demostrada o la instrucción sea contraria a la legalidad.
+Si existiera razón para que el subalterno esté en desacuerdo con su superior, el colaborador disconforme podrá no suscribir el oficio, criterio, opinión, informe u otro y hará saber por escrito las razones de su discrepancia con respeto y cortesía.
