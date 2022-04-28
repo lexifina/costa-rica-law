@@ -1,0 +1,1 @@
+ARTICULO 4- De acuerdo con lo que indica el artículo 3, inciso c) de la Ley 6815, Ley Orgánica de la Procuraduría General de la República. de 27 de setiembre de 1982, la Notaría del Estado formalizará esta donación.
