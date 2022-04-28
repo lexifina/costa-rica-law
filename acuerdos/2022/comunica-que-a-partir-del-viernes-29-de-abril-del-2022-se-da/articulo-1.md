@@ -1,0 +1,6 @@
+JUNTA DE PROTECCION SOCIAL
+INSTITUCIÓN BENEMÉRITA
+Comunica al público en general que a partir del viernes 29 de abril del 2022 se da por finalizado el juego N° 2069 "¡Date un Gusto!"
+En cuanto a la participación por medio de activaciones en el programa Rueda de la Fortuna para dicho juego, es hasta el sábado 7 de mayo del 2022 y el último día de activación, así como, la participación a través de llamada telefónica sea el sábado 30 de abril del 2022.
+En cuanto a la participación a través de raspa directa del juego No. 2069 queda abierta para las personas que se encuentran en lista de espera para ir a girar la rueda y para las personas se presenten a validar su participación dentro del plazo de los 60 días naturales una vez publicada la finalización de los juegos en el Diario Oficial La Gaceta, esto debido a la rotación de los juegos, y que producto de la crisis sanitaria que atraviesa el país por el Covid-19 por un tiempo el programa fue suspendido en atención a la emergencia, y que por consiguiente la lista de participantes por raspa directa se extendió en el tiempo.
+Asimismo, los vendedores deben efectuar la devolución del juego N° 2069 "¡Date un Gusto!", el martes 19 de abril del 2022 y el viernes 22 de abril del 2022.
