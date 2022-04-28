@@ -14,3 +14,4 @@ Reglamento de la Ley del Impuesto sobre la Renta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-12-17 | la propia norma |
+| 2 | 2022-04-28 | Decreto Ejecutivo 43526 (2022-04-28) |
