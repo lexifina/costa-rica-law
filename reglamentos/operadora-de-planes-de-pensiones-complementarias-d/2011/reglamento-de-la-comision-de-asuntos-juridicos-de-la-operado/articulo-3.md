@@ -1,1 +1,0 @@
-Artículo 3º—Alcance y propósito: El presente Reglamento es aplicable a la Comisión de Asuntos Jurídicos de Popular Pensiones S. A., y tiene como objetivo establecer y definir el accionar interno de esta Comisión como órgano de apoyo de la Junta Directiva.

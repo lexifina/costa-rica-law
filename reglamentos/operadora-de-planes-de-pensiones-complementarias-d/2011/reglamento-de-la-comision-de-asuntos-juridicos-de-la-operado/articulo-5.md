@@ -1,1 +1,0 @@
-Artículo 5º—Dependencia: La Comisión de Asuntos Jurídicos depende de la Junta Directiva de Popular Pensiones S. A., se apoya para el ejercicio de sus funciones, y cuando ésta así lo requiera, en la Consultoría Jurídica del Banco Popular y de Desarrollo Comunal, dependencia que le brinda a la Operadora la asesoría en materia legal.

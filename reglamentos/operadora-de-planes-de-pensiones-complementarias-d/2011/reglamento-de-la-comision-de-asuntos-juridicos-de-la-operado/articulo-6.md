@@ -1,5 +1,0 @@
-Artículo 6º—Integración de la comisión: La Comisión de Asuntos Jurídicos estará integrada por los siguientes miembros:
-a) Al menos dos miembros provenientes de la Junta Directiva de Popular Pensiones S. A., de los cuales uno coordinará la Comisión.
-b) El Gerente de Popular Pensiones S. A., quién podrá ser sustituido por alguno de los Jefes de Departamento en quien él mismo delegue su participación.
-c) El Director Jurídico de la Consultoría Jurídica del Banco Popular y de Desarrollo Comunal o el Asesor Legal Corporativo establecido para Popular Pensiones S. A.
-d) El Fiscal de la Junta Directiva de Popular Pensiones S. A., y el Auditor Interno de Popular Pensiones S. A., quienes podrán asistir a las sesiones de la Comisión cuando así lo estimen conveniente.

@@ -1,1 +1,0 @@
-Artículo 11.—Frecuencia de las sesiones: La Comisión sesionará ordinariamente Al menos una vez al mes y extraordinariamente cuando las circunstancias así lo requieran y haya convocatoria expresa del Coordinador.

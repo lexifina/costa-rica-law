@@ -1,1 +1,0 @@
-Artículo 16.—Modificaciones: El presente Reglamento deberá ser revisado por la Comisión de Asuntos Jurídicos al menos una vez al año, para proponer los cambios y/o modificaciones que considere necesarios para su posterior aprobación por parte de la Junta Directiva de Popular Pensiones S. A.
