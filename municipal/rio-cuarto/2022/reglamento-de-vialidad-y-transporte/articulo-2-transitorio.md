@@ -1,0 +1,1 @@
+Transitorio II. Los proyectos de obras viales iniciados dentro del plazo de un año previo a la entrada en vigor del presente reglamento, podrán concluirse aplicando la normativa urbanística y constructiva con la cual fueron aprobados.

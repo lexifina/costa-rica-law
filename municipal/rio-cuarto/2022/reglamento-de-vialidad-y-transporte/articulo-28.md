@@ -1,0 +1,1 @@
+Artículo 28-. Diseño, construcción y mantenimiento. Para el diseño, construcción y mantenimiento de los puentes la Municipalidad aplicará las especificaciones establecidas en la Norma Técnica para el Desarrollo y la Conservación de la Red Vial, Decreto Ejecutivo N°40139-MOPT y sus reformas.

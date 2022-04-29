@@ -1,0 +1,1 @@
+Artículo 14-. Jerarquización de la Red Vial Cantonal. Se establecen tres jerarquías (A, B y C) para la clasificación de las vías públicas de la Red Vial Cantonal de Río Cuarto, según los criterios de funcionalidad, derecho de vía, tránsito promedio diario (TPD) y diseño geométrico. El Mapa de Vialidad muestra la ubicación, trazado, longitud y jerarquía de cada una de las vías.

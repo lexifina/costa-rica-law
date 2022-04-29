@@ -1,0 +1,1 @@
+Artículo 2-. Fines. Este Reglamento se promulga con el fin de establecer el marco normativo del Sistema de Gestión Vial para la debida planificación, control y desarrollo de la red vial en el cantón de Río Cuarto.

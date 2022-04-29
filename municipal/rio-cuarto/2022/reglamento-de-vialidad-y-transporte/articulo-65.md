@@ -1,0 +1,1 @@
+Artículo 65-. Localización y diseño de terminales. El Mapa de Vialidad establece la ubicación propuesta para la Terminal Transporte. Tiene como fin planificar los espacios necesarios para la concentración de las rutas de transporte público incluyendo autobuses y taxis, la provisión de espacios para tránsito peatonal y espacios para actividad comercial y de servicios.

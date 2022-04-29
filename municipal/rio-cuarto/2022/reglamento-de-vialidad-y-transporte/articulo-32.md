@@ -1,0 +1,7 @@
+Artículo 32-. Gestión de Oficio o Solicitud. La incorporación de calles públicas existentes en el inventario vial cantonal podrá ser ejecutada de oficio por la Municipalidad por medio de la Unidad Técnica de Gestión Vial o bien como respuesta a una solicitud formal de interesado para incorporación de una o varias calles públicas existentes en el Inventario Vial Cantonal.
+La solicitud podrá ser presentada por el interesado o bien por cualquiera de los organismos municipales encargados de la gestión vial cantonal, ante la Unidad Técnica de Gestión Vial Municipal para su debido estudio; esta Unidad abrirá el expediente administrativo correspondiente asignándole el número de oficio o número de caso que corresponda. La solicitud deberá comprender los siguientes datos:
+a) Datos y calidades del solicitante.
+b) Dirección y datos de contacto para notificaciones.
+c) Identificación de la calle pública según nombre, longitud, ubicación geográfica en la hoja escala 1:50.000 del Instituto Geográfico Nacional y la identificación de sectores o comunidades a las cuales da acceso.
+d) Descripción del estado físico de la vía incluyendo ancho del derecho de vía mediante la medición en campo de al menos tres secciones, descripción de la superficie de rodamiento y descripción de la infraestructura pública existente incluyendo el sistema de conducción y evacuación pluvial.
+e) Relación de la calle con las previsiones del Plan de Conservación y Desarrollo Quinquenal.

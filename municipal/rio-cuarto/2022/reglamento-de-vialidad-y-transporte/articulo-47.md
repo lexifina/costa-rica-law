@@ -1,0 +1,8 @@
+Artículo 47-. Presentación y recibo de la solicitud: comprende la presentación de la solicitud formal de re-apertura de calle pública. Ésta podrá ser presentada por un interesado particular o bien por cualquiera de los organismos municipales encargados de la gestión vial cantonal.
+Deberá ser presentada ante la Unidad Técnica de Gestión Vial Municipal para su debido estudio; esta Unidad abrirá el expediente administrativo correspondiente asignándole el número de oficio o número de caso que corresponda. La solicitud deberá comprender los siguientes datos:
+a) Datos y calidades del solicitante.
+b) Dirección y datos de contacto para notificaciones.
+c) Identificación de la vía objeto de declaratoria según nombre conocido o propuesto, longitud, ubicación geográfica en la hoja escala 1:50.000 del IGN o en información oficial disponible en el Ministerio de Hacienda, en la Municipalidad o en el Registro Público, e identificación de sectores o comunidades a las cuales da acceso.
+d) Estado físico de la vía incluyendo ancho probable del derecho de vía potencial, tipo de superficie y existencia de infraestructura pública para conducción y evacuación pluvial.
+e) Testimonio bajo fe de juramento de al menos tres ciudadanos como testigos que puedan indicar la existencia del camino o calle pública.
+f) Documentos probatorios que demuestren la condición de calle pública, así como del proceso de cierre del cual ha sido objeto. Esta información podrá derivarse de los datos o información disponible en la cartografía oficial del Instituto Geográfico Nacional, información del Ministerio de Hacienda, de la Municipalidad o del Registro Público.

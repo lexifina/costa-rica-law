@@ -1,0 +1,1 @@
+Artículo 5-. Competencias. Corresponderá la administración de la Red Vial Nacional al Ministerio de Obras Públicas y Transportes (MOPT) y la administración de la Red Vial Cantonal a la Municipalidad de Río Cuarto.
