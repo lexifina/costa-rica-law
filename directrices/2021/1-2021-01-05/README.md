@@ -14,3 +14,4 @@ Estrategia de deuda de mediano plazo para Gobierno Central
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-03 | la propia norma |
+| 2 | 2022-04-29 | Directriz 7 (2022-04-29) |
