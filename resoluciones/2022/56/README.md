@@ -14,3 +14,4 @@ Dispone una exoneración temporal de visa para las personas extranjeras que ingr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-04-01 | la propia norma |
+| 2 | 2022-04-29 | Resolución 76 (2022-04-29) |
