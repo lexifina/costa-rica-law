@@ -1,1 +1,0 @@
-Artículo 2º—Naturaleza o rango: La Comisión de Plan, Presupuesto y Estados Financieros es un órgano de apoyo a la Junta Directiva de Popular Pensiones, en materia financiera, con el objeto de analizar los Estados Financieros de la Operadora como de los Fondos Administrados, así como el Presupuesto y su respectivo Plan Anual Operativo.

@@ -1,2 +1,0 @@
-Artículo 9º—Planes de rotación: Los miembros de la Comisión de Plan, Presupuesto y Estados Financieros que forman parte de la Junta Directiva de Popular Pensiones S. A. durarán en sus cargos dos años y podrán ser reelectos mientras mantengan la condición de Directores.
-Los colaboradores o funcionarios de Popular Pensiones S.A., formarán parte de esta Comisión siempre y cuando ocupen los cargos indicados en el artículo 6 de este Reglamento.

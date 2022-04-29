@@ -1,1 +1,0 @@
-Artículo 14.—Políticas y procedimientos para el funcionamiento de la comisión: La Comisión de Plan, Presupuesto y Estados Financieros de Popular Pensiones S. A., funcionará de acuerdo con lo establecido en el presente Reglamento y con las Políticas y Procedimientos aplicables para tal efecto.
