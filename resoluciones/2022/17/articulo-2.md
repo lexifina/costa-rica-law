@@ -1,0 +1,1 @@
+Artículo 2°-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución número RES-DGH-001-2022, del 10 de enero de 2022, publicada en La Gaceta N° 17 del 27 de enero de 2022.
