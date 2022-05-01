@@ -1,0 +1,1 @@
+Artículo 2º- Deróguese el Decreto Ejecutivo número 43405-H de fecha 24 de enero de 2022, publicado en el Alcance número 22 a La Gaceta número 22, de fecha 3 de febrero 2022, a partir de la vigencia del presente decreto.
