@@ -1,1 +1,0 @@
-Artículo 10.-En caso de renuncia, despido, permiso sin goce de salario ,incapacidad, vacaciones suspensión o despido, el titular deberá devolver el carné con su uniforme y cualquier otro implemento que se le haya concedido en razón de su puesto al superior jerárquico.

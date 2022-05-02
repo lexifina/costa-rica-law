@@ -1,1 +1,0 @@
-Artículo 38.-Los miembros de la Comisión de Seguridad Cantonal desempeñarán el cargo en forma Ad honoren y tendrá subordinación directa ante el Concejo Municipal, según lo dispuesto en el artículo 29 de este reglamento.

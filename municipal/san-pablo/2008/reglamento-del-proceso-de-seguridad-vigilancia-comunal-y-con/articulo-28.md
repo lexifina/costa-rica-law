@@ -1,1 +1,0 @@
-Artículo 28.-El policía municipal deberá en todo momento presentarse al cumplimiento de sus funciones, en perfecto estado y aseo personal, manteniendo en buen estado de conservación, tanto el vestuario, como los equipos que fueron entregados o encargados para uso y/o custodia; procurando siempre una imagen decorosa.
