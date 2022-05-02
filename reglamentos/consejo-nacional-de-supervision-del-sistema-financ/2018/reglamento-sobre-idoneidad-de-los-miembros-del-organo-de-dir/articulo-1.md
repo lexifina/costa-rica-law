@@ -1,4 +1,6 @@
+(Derogado)
 CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO
+(Esta norma fue derogada en sesión N° 1728 del 2 de mayo de 2022)
 El Consejo Nacional de Supervisión del Sistema Financiero en el literal A, artículo 9 del acta de la sesión 1413-2018, celebrada el 2 de mayo de 2018,
 Consideraciones legales y reglamentarias
 1. El inciso b) del artículo 171 de la Ley Reguladora del Mercado de Valores, Ley 7732, establece como función del Consejo Nacional de Supervisión del Sistema Financiero, en adelante CONASSIF, aprobar las normas atinentes a la autorización, regulación, supervisión, fiscalización y vigilancia que conforme a la ley, deben ejecutar las diferentes superintendencias sujetas a su dirección.
@@ -17,10 +19,10 @@ Adicionalmente, se encuentra en proceso la reforma integral de los reglamentos p
 A. En relación con el Reglamento sobre Idoneidad de los Miembros del Órgano de Dirección y de la Alta Gerencia de las Entidades Financieras, Acuerdo SUGEF 22-18:
 dispuso en firme:
 aprobar el Reglamento sobre Idoneidad de los Miembros del Órgano de Dirección y de la Alta Gerencia de las Entidades Financieras, Acuerdo SUGEF 22-18, cuyo texto se detalla a continuación:
-“Acuerdo SUGEF 22-18
+"Acuerdo SUGEF 22-18
 REGLAMENTO SOBRE IDONEIDAD DE LOS MIEMBROS
 DEL ÓRGANO DE DIRECCIÓN Y DE LA ALTA GERENCIA
 DE LAS ENTIDADES FINANCIERAS
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Objetivo. Establecer, de acuerdo con el ordenamiento jurídico vigente, los criterios de idoneidad que deben ser aplicados a los miembros del Órgano de Dirección y de la Alta Gerencia de las entidades financieras y de las empresas controladoras de los grupos y conglomerados financieros incluidas en el alcance de este Reglamento.
+Artículo 1º-Objetivo. Establecer, de acuerdo con el ordenamiento jurídico vigente, los criterios de idoneidad que deben ser aplicados a los miembros del Órgano de Dirección y de la Alta Gerencia de las entidades financieras y de las empresas controladoras de los grupos y conglomerados financieros incluidas en el alcance de este Reglamento.
