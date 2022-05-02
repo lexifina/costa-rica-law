@@ -9,3 +9,7 @@ Artículo 45. Responsabilidades del Órgano de Dirección de la controladora Cor
 45.8 Evaluar si existen sistemas eficaces para facilitar el intercambio de información entre las distintas entidades, para gestionar los riesgos de las entidades individuales, así como los riesgos del grupo o conglomerado financiero en su conjunto y para garantizar un control eficaz del grupo.
 45.9 Definir un proceso centralizado para la aprobación de la creación de nuevas entidades, que considere criterios como la capacidad de supervisar y cumplir con la normativa vigente, aspectos fiscales e informes financieros. En relación con los riesgos, se identifican aquellos que resulten significativos producto de la nueva estructura y se evalúa su capacidad para gestionarlos.
 45.10 Asegurarse de que las actividades y la estructura de sus subsidiaras o entidades individuales estén sujetos a revisiones de auditoría interna o equivalente y externa en forma regular.
+45.11 Asegurarse de que la política de retribuciones e incentivos sea coherente en todo el grupo o conglomerado, considerando diferencias razonables basadas en la naturaleza de las entidades.
+(Así adicionado el inciso anterior en sesión N° 1728 del 2 de mayo de 2022)
+45.12 Ejercer una vigilancia adecuada de las entidades individuales, al tiempo que respeta su independencia en relación con las responsabilidades jurídicas y de gobierno que puedan corresponder al órgano de dirección de éstas.
+(Así adicionado el inciso anterior en sesión N° 1728 del 2 de mayo de 2022)
