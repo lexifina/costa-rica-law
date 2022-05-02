@@ -1,0 +1,3 @@
+TRANSITORIO ÚNICO- La Caja Costarricense de Seguro Social (CCSS), conforme a su autonomía, en un plazo hasta de noventa días contados a partir de la aprobación de esta ley, procederá a realizar los ajustes en sus sistemas de información, así como a reglamentar las condiciones, los requisitos y los trámites necesarios para la implementación de lo dispuesto en esta ley.
+El plazo de vigencia de esta ley se empezará a contabilizar una vez que la Caja Costarricense de Seguro Social cumpla con lo establecido en el párrafo anterior.
+Dado en la Presidencia de la República, San José, a los veintinueve días del mes de abril del año dos mil veintidós.
