@@ -1,1 +1,0 @@
-Artículo 15.—Todos aquellos contribuyentes que se les autorice el sistema especial de cálculo de la renta líquida, están sujetos al impuesto sobre la renta disponible establecido en el artículo 19 inciso c) de la Ley del Impuesto sobre la Renta.

@@ -1,5 +1,0 @@
-Artículo 18.— Se le designa a la SAPPT, la revisión y análisis de las solicitudes del sistema especial de cálculo de renta líquida, así como preparar el borrador de la resolución en la que consigne el acto motivado de aprobación, denegatoria, revocatoria o cancelación que debe suscribir el Gerente o el Director correspondiente.
-Asimismo, la SAPPT queda facultada para solicitar la información y documentos faltantes de los requisitos señalados en el artículo 7 de esta resolución, así como cualquier aclaración de la misma, a través del medio para recibir notificaciones, señalado en la solicitud.
-La SAPPT será la encargada de archivar y custodiar los expedientes administrativos de estas solicitudes, incluyendo toda la información aportada por el solicitante.
-El plazo para resolver estas solicitudes es de dos meses, contado desde la fecha de presentación de la solicitud. No se consideran dentro de este plazo, los días concedidos por la SAPPT en caso de haber notificado alguna prevención.
-(Así reformado por el artículo 2° de la resolución N° DGT-R-64-2019 del 22 de octubre de 2019)

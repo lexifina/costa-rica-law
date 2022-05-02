@@ -1,4 +1,0 @@
-Artículo 5°—Sin perjuicio de lo dispuesto en el artículo anterior, no se considerarán rentas de fuente costarricense:
-Los ingresos por servicios de transporte y comunicaciones internacionales que se inicien en el exterior, y además: a) que sean contratados a empresas no domiciliadas o b) que no se contraten a agencias o representaciones de empresas que operen en el territorio nacional.
-No se considerará un servicio contratado en Costa Rica, para efectos de ingresos gravables, por el único hecho de que el pago del servicio se efectúe dentro del territorio nacional.
-En el caso del transporte internacional, no se considera renta de fuente costarricense, cuando el mismo implica solamente un tránsito sobre el territorio nacional; es decir, las mercancías no son desembarcadas o solo se realiza un transbordo de carga.

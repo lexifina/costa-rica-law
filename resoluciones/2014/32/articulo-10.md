@@ -1,1 +1,0 @@
-Artículo 10.—Las solicitudes de sistemas especiales de cálculo de la renta líquida que sean autorizadas, tendrán carácter vinculante para ambas partes, por un plazo de vigencia de tres períodos fiscales consecutivos, en tanto no se modifique la legislación que regula esta materia.
