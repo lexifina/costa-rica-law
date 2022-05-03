@@ -14,3 +14,4 @@ Reglamento de funcionamiento de la Junta Directiva General del Banco de Costa Ri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-21 | la propia norma |
+| 2 | 2022-05-03 | Reglamento 17 (2022-05-03) |
