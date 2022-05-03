@@ -1,0 +1,1 @@
+Artículo 52.-De la documentación. La Municipalidad deberá mantener ordenada, bajo custodia y responsabilidad del funcionario que corresponda, toda la documentación relacionada con el manejo de los fondos del proyecto del Comité Cantonal de la Persona Joven.

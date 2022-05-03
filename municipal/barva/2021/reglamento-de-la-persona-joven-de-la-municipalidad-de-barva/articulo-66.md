@@ -1,0 +1,1 @@
+Artículo 66.-La Municipalidad dará apoyo técnico-operativo al CCPJ, para la ejecución del proyecto ejecutado con la transferencia del CPJ, y brindará el informe correspondiente al CPJ sobre el gasto presupuestario realizado.

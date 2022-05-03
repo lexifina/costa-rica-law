@@ -1,0 +1,1 @@
+Artículo 7°-De la Integración. El Comité Cantonal lo integran siete miembros con edades comprendidas entre los 12 y 35 años, en representación de los distintos sectores de juventud del cantón de conformidad con lo estipulado en el Artículo 24 de la Ley General de la Persona Joven Nº8261: deportivo, estudiantil, comunal y religioso y que reside en el Cantón.

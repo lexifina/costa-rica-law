@@ -1,0 +1,1 @@
+Artículo 57.-Es responsabilidad del Concejo Municipal y de la evaluar los resultados de la gestión del CCPJ, tomando en cuenta tanto el respeto de las disposiciones normativas aplicables como el cumplimiento de los objetivos y metas previamente establecidos con la consecuente responsabilidad en caso de incumplimiento.

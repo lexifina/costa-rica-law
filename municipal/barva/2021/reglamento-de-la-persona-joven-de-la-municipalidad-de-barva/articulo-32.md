@@ -1,0 +1,1 @@
+Artículo 32.-El acta debe iniciarse en la línea uno. Sólo deberá escribirse en las treinta líneas dispuestas para ello. No deben dejarse espacios en blanco, debe escribirse seguido. En caso de papel continuo, que no tiene líneas o renglones, debe utilizarse también sólo treinta líneas. Lo que se escriba fuera de esos márgenes no tiene validez.

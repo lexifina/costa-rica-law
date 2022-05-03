@@ -1,0 +1,1 @@
+Artículo 59.-La rendición de cuentas es un proceso que debe ser efectuado por los miembros del CCPJ responsables de la ejecución de proyectos y planes de trabajo, a través de las Municipalidades. Este proceso se presenta ante el Consejo de la Persona Joven.

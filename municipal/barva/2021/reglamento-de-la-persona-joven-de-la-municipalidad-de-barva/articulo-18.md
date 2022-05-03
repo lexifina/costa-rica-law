@@ -1,0 +1,1 @@
+Artículo 18.-De la asesoría al CCPJ. Todas las unidades o departamentos de la Municipalidad, según su área de competencia, brindará apoyo y asesoría al CCPJ cuando tramite consultas relacionadas con asuntos propios de su labor.

@@ -1,0 +1,21 @@
+MUNICIPALIDAD DE BARVA
+El Concejo Municipal de la Municipalidad de Barva informa: Acuerdo 1144-2021 tomado en la Sesión Ordinaria Nº 74-2021, celebrada por el Concejo Municipal de la Municipalidad de Barva, el día 06 de diciembre del año dos mil veintiuno. De conformidad con la disposición adoptada por el Concejo Municipal acuerda: Acuerdo Nº 1144-2021 El Concejo Municipal acuerda recibir y aprobar dicho asunto, acuerda que al haber trascurrido el plazo de ley y sin haberse recibido observaciones u objeciones, se aprueba definitivamente el reglamento de la persona joven de la Municipalidad de Barva, publíquese. Reglamento de la Persona Joven de la Municipalidad de Barva aprobado de forma definitiva El cual se publicó en La Gaceta 214 del 05 de noviembre del 2021.
+(Nota de Sinalevi: Tal y como se indica en el párrafo anterior el texto que se incluye fue publicado como proyecto en La Gaceta 214 del 05 de noviembre del 2021)
+MUNICIPALIDAD DE BARVA
+PROPUESTA DE REGLAMENTO MUNICIPAL
+PARA LA CONFORMACIÓN, ORGANIZACIÓN
+Y FUNCIONAMIENTO DEL COMITÉ CANTONAL
+DE LA PERSONA JOVEN DE LA
+MUNICIPALIDAD DE BARVA
+Considerando:
+I.-Que el Artículo 170 de la Constitución Política, así como los Artículos 4º, 13 inciso c) y 50 Del Código Municipal reconocen la autonomía política, administrativa y Financiera de las Municipalidades y la facultad de dictar un Reglamento que Regule lo concerniente al funcionamiento a las comisiones municipales.
+II.-Que de conformidad con el Artículo 49 del Código Municipal de Costa Rica, en cada Municipalidad se conformará un comité cantonal de la persona joven, el cual se considera una comisión permanente de la Municipalidad integrada según lo establecido en la Ley N° 8261, sus reformas y Reglamentos.
+III.-Que en igual sentido los Artículo 24 y 25 de la Ley 8261 y sus reformas "Ley General de la Persona Joven" señalan la obligación de los entes municipales de conformar los comités cantonales de la persona joven con la finalidad de que éstos elaboren y ejecuten propuestas locales o nacionales en la cual se considere los principios, fines y objetivos de dicha ley, en pro y beneficio de las juventudes de la comunidad a la que pertenecen y contribuyan a la construcción de la política nacional de las personas jóvenes.
+IV.-Que como comisión permanente de la Municipalidad, el Comité Cantonal de la Persona Joven deberá velar por la formulación e implementación de programas que incentiven la participación política, social, cultural y económica de las personas jóvenes dentro de su comunidad de manera que contribuyan con el desarrollo integral de todas y todos los habitantes del cantón.
+V.-Que es necesario realizar esfuerzos y aplicar nuevas metodologías para mejorar el funcionamiento y organización del Comité Cantonal De la Persona Joven, a fin de los procesos de nombramiento y organización sean transparentes y acordes con las necesidades del cantón.
+VI.-Que en ese sentido, mejorar los procedimientos de conformación y organización del Comité Cantonal de la Persona Joven resulta a todas luces acorde con las políticas del Concejo Municipal, el cual debe velar porque el uso de los recursos públicos que se empleen en la elaboración de los proyectos gestados a través del comité cantonal de la persona joven sean acordes a los principios que en materia presupuestaria y de control interno exige el ordenamiento jurídico vigente.
+VII.-Que el artículo 50 del Código Municipal, Ley N°7794, establece la obligación de las Municipalidades de reglamentar sus comisiones, entre las que se encuentran incluidos el Comité Cantonal de la Persona Joven.
+VIII.-Que, en consecuencia, el Concejo Municipal inspirado en los fundamentos que anteceden, emite el presente Reglamento para la Conformación, Organización y Funcionamiento del Comité Cantonal de la Persona Joven del cantón.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1°-El objeto del presente Reglamento es facilitar, regular y ejecutar las acciones del Comité Cantonal de la Persona Joven del Cantón (en adelante "CCPJ"), según lo previsto en la Ley General de la Persona Joven, su Reglamento, los convenios internacionales ratificados por el Gobierno de Costa Rica y otras Leyes vigentes en la República de Costa Rica.

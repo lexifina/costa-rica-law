@@ -1,0 +1,3 @@
+Artículo 27.-Forma correcta de llevar los libros por parte de la secretaría.
+Libros de actas: Las actas son documentos cuyas finalidades principales son comprobar, a solicitud de la parte interesada (o de oficio, en el caso de las funciones que propiamente desempeña la Administración Pública), hechos, sucesos o situaciones que consten u ocurran en presencia del funcionario, darles el carácter de auténticos, o bien hacer constar notificaciones, prevenciones o intimaciones procedentes según la ley.
+A las actas que se llevan a cabo dentro de las instituciones públicas, se les aplica supletoriamente lo establecido en el Código Notarial sobre las actas notariales y la Ley General de Administración Pública, en lo que corresponda.

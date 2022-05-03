@@ -1,0 +1,1 @@
+Artículo 4°-A efectos de la aplicación del presente Reglamento, se designa a la al departamento de Gestión Social de la Municipalidad de Barva para dar acompañamiento y asesoría al CCPJ, la cual será así mismo la instancia municipal encargada de velar por la correcta aplicación de este Reglamento.
