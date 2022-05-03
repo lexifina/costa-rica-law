@@ -1,1 +1,1 @@
-Artículo 9º—La Comisión tendrá un plazo no mayor de quince días naturales contados a partir de la fecha de la primera reunión sobre el asunto, para analizar la eventual contratación y emitir el criterio correspondiente.
+Artículo 9º-Las recomendaciones de la Comisión no tendrán carácter vinculante, la Gerencia General, la Gerencia de Administración y Finanzas, la Junta Directiva o el Comité de Activos y Pasivos, según corresponda, podrá apartarse del criterio que exprese la Comisión.

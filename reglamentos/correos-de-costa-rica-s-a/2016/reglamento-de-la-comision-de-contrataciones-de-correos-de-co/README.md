@@ -14,3 +14,4 @@ Reglamento de la comisión de contrataciones de Correos de Costa Rica S. A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-01 | la propia norma |
+| 2 | 2022-05-03 | Reglamento 1729 (2022-05-03) |

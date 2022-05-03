@@ -1,1 +1,0 @@
-Artículo 13.—Las recomendaciones de la Comisión no tendrán carácter vinculante, la Gerencia General o la Junta Directiva según corresponda, podrá apartarse del criterio que exprese la Comisión debiendo quedar constancia en el expediente de la contratación, de las razones que motivaron el haberse apartado.
