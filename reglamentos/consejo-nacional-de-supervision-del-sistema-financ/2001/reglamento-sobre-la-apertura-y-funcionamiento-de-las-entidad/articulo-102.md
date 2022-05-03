@@ -19,3 +19,5 @@ Para establecer la vinculación de las personas físicas o jurídicas entre sí,
 6. Cuando con motivo de la quiebra o liquidación de la entidad autorizada, se produzca el traslado de los fondos a otra entidad autorizada, según dispone el artículo 44 de la Ley de Protección al Trabajador.
 La libre transferencia deberá verificarse dentro del plazo de un mes, contado a partir del cumplimiento de las condiciones establecidas en cada caso.
 (Así reformado mediante sesión N° 1029-2013 del 26 de febrero del 2013)
+Transitorio: El plazo de permanencia mínima de seis meses en una misma entidad autorizada, indicado en el artículo 102 del Reglamento sobre la apertura y funcionamiento de las entidades autorizadas y el funcionamiento de los fondos de pensiones, capitalización laboral y ahorro voluntario previstos en la Ley de Protección al Trabajador como requisito para que los afiliados ejerzan, de forma ordinaria, el derecho a transferirse libremente de entidad autorizada, entrará en vigencia el día dieciséis de mayo del año en curso.
+(Así adicionado el transitorio anterior mediante sesión N° 1728-2022 del 2 de mayo del 2022)
