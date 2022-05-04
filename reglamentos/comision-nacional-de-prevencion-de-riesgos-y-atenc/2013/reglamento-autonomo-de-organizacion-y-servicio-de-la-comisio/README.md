@@ -15,3 +15,4 @@ Reglamento autónomo de organización y servicio de la Comisión Nacional de Pre
 | --- | --- | --- |
 | 1 | 2013-11-15 | la propia norma |
 | 2 | 2016-05-04 | Reglamento 7 (2016-05-04) |
+| 3 | 2022-05-04 | Reglamento 8 (2022-05-04) |
