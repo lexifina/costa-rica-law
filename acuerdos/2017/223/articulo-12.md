@@ -1,4 +1,5 @@
-Artículo 12.—Mecanismos de control. Para efectos de lo dispuesto en el presente Acuerdo, las entidades de custodia deben implementar mecanismos de control interno, que permitan garantizar que se cumpla con todo lo establecido. Entre los mecanismos debe considerar:
-a) Políticas documentadas y aprobadas por la Junta Directiva o por el órgano equivalente sobre el proceso de registro de los clientes titulares de las cuentas de valores, en los registros internos y en los sistemas administrados por las centrales de valores.
+Artículo 12.-Mecanismos de control. Para efectos de lo dispuesto en el presente Acuerdo, las entidades de custodia deben implementar mecanismos de control interno, que permitan garantizar que se cumpla con todo lo establecido. Entre los mecanismos debe considerar:
+a) Políticas documentadas y aprobadas por la Junta Directiva o por el órgano equivalente sobre el proceso de registro de los clientes titulares de las cuentas de valores y de los beneficiarios finales cuando se trate de personas jurídicas que adquieran valores privados, en los registros internos y en los sistemas administrados por las centrales de valores.
+(Así reformado el inciso anterior por acuerdo N° SGV-A-266 del 4 de mayo de 2022)
 b) Separación de tareas y responsabilidades no compatibles.
 Asimismo, las entidades del primer nivel deben implementar mecanismos de comunicación permanentes, que permitan suministrar la información de las cuentas en forma ágil y segura, a efectos de realizar procesos de conciliación diarios entre las cuentas de liquidación y custodia.
