@@ -1,1 +1,2 @@
-Artículo 14.—Vigencia. Rige a partir del 7 de setiembre del 2015.
+Artículo 14.-Derogatorias. Se deroga totalmente el SGV-A-130 Acuerdo para la implantación del Reglamento de Custodia (con las reformas del SGV-A-137, SGV-A-144, SGV-A-149, SGV-A-160 y SGV-A-173), aprobado por el Despacho del Superintendente a las 15 horas del veintiséis de febrero del dos mil siete.
+(Así corrida su numeración por acuerdo N° SGV-A-265 del 4 de mayo de 2022, que lo traspaso del antiguio artículo 13 al 14)
