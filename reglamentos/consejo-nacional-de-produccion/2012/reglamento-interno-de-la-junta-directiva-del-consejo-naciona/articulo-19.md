@@ -1,1 +1,0 @@
-Artículo 19.—La Junta Administrativa se reunirá en la fecha y con la agenda que aprobará el Presidente Ejecutivo, quien además presidirá las sesiones. Ante la ausencia del Presidente Ejecutivo, presidirá la sesión el Jerarca de más rango que esté presente.

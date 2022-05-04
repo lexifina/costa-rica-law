@@ -1,1 +1,0 @@
-Artículo 22.—Cuando los motivos concurran en un miembro, la abstención no se hará extensiva a los demás miembros, salvo casos calificados en que los demás miembros lo consideren procedente. Los motivos de abstención serán extensivos a los demás funcionarios que intervengan en la sesión auxiliándolos o asesorándolos.

@@ -1,1 +1,0 @@
-Artículo 12.—Los acuerdos relativos al ejercicio de competencias y facultades establecidas en los artículos 5º, incisos k) y ñ); 27; 31; 32; 34 y 49 de la Ley Orgánica, y artículos 6º; 8º; 11; 12; 13 inciso j) y m); 18 y 32 de este Reglamento requerirán para su aprobación, el voto de al menos mayoría calificada del total de los miembros.
