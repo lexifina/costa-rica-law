@@ -1,0 +1,1 @@
+Artículo 32.- En caso que el bombero (a) forestal voluntario deje de brindar el servicio para el SINAC, debe devolver al Enlace del Programa de Manejo Integral del Fuego de la respectiva Área de Conservación, el equipo y uniforme que se le entregó.

@@ -1,0 +1,1 @@
+Artículo 44.- Las Áreas de Conservación podrán hacer reconocimientos a los bomberos forestales voluntarios que se hayan destacado por sus acciones durante la temporada de incendios forestales en su respectiva región.

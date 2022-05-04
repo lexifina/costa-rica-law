@@ -1,0 +1,1 @@
+Artículo 43.- Los reconocimientos o incentivos podrán ser la "medalla de honor al mérito" trofeos, certificados de agradecimiento, equipo de protección personal u otros que el Comité Evaluador defina.

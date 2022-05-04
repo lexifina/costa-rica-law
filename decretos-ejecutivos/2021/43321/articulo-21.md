@@ -1,0 +1,1 @@
+Artículo 21.- Todo bombero (a) forestal voluntario, deberá portar su uniforme con un alto grado de respeto y orgullo, por la imagen e importancia que representa esta labor para su cuadrilla, la brigada y el SINAC.

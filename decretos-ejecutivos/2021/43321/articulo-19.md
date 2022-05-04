@@ -1,0 +1,1 @@
+Artículo 19.- Todo bombero (a) forestal voluntario estará en la obligación de informarse previamente de las tareas asignadas y cumplirlas según los protocolos y/o procedimientos indicados para la actividad que este ejecutando.

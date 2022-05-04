@@ -1,0 +1,1 @@
+Artículo 53.- Toda falta considerada como leve, será evidenciada mediante una llamada de atención verbal inmediata, la cual posteriormente deberá quedar constando de forma escrita en el expediente del bombero (a) forestal voluntario.

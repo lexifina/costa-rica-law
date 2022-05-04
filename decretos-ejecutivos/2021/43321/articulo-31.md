@@ -1,0 +1,1 @@
+Artículo 31.- El uniforme y equipo de protección personal debe ser de uso exclusivo para labores de prevención y extinción de incendios forestales u otras relacionadas con el tema (tales como valoración de daños, medición de áreas afectadas) y el mismo no podrá ser utilizado en actividades personales, ajenas a la labor que como bombero (a) forestal voluntario debe cumplir.

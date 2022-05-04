@@ -1,0 +1,1 @@
+Artículo 10.- Toda cuadrilla y brigada de bomberos forestales voluntarios, deberá inscribirse en el Área de Conservación correspondiente a través del Enlace del Programa de Manejo Integral del Fuego. Para llevar a cabo la inscripción, el jefe de la brigada o cuadrilla deberá presentar la documentación e información que se detalla en los artículos 7 y 8 del presente reglamento.

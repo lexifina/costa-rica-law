@@ -1,0 +1,1 @@
+Artículo 50.- Para determinar la sanción correspondiente, el Comité Disciplinario deberá tomar en consideración las circunstancias en que se dieron los hechos, el tipo de falta que se cometió, los antecedentes y las posibles reiteraciones cometidas.

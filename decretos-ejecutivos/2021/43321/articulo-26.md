@@ -1,0 +1,1 @@
+Artículo 26.- Las especificaciones técnicas y de calidad para cada uno de los equipos de protección personal, los definirá el Programa Nacional de Manejo del Fuego del SINAC, de conformidad con los requerimientos nacionales y las normas a nivel internacional que se consideren necesarias aplicar.

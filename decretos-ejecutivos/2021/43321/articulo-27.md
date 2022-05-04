@@ -1,0 +1,1 @@
+Artículo 27.- Para efecto de uniformidad en la imagen del bombero (a) forestal voluntario, se define el color amarillo oro como el oficial y el anaranjado como alternativo para la confección de las camisetas, las cuales llevarán el logo de bombero forestal y el de la brigada en caso de que lo tengan, o bien la imagen de un patrocinador en la manga derecha.

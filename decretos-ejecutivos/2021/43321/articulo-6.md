@@ -1,0 +1,1 @@
+Artículo 6.- El Programa Nacional de Manejo Integral del Fuego del SINAC, velará por el cumplimiento del presente reglamento en las Áreas de Conservación, tramitará la acreditación de las cuadrillas y brigadas de conformidad al procedimiento que se detalla en el Capítulo IV y llevará un control de acreditaciones para tal efecto.

@@ -1,0 +1,1 @@
+Artículo 24.- Durante actividades oficiales y/o formales a las que se convoque, el bombero (a) forestal voluntario, deberá esmerarse por mantener una buena presentación de acuerdo a la actividad convocada.

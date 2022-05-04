@@ -1,0 +1,1 @@
+Artículo 51.- Todas aquellas faltas que cometa un bombero (a) forestal voluntario, indicadas como leves, moderadas o graves quedarán evidenciadas en su expediente personal (sea impreso o digital) y de igual forma las resoluciones administrativas. El responsable de la custodia de esta documentación es el Enlace del Programa de Manejo Integral del Fuego del Área de Conservación.

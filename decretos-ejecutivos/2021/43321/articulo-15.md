@@ -1,0 +1,1 @@
+Artículo 15.- Dentro de la organización para la atención de un incidente, evento u operativo, la persona con mayor experiencia y conocimiento asumirá el mando, quien a su vez velará por la seguridad y disciplina del personal subordinado, respetará a todos por igual, guardará siempre extrema cortesía y tomará en cuenta las sugerencias que le brinde su equipo.

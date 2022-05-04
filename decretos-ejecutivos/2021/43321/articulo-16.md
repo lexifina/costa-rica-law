@@ -1,0 +1,1 @@
+Artículo 16.- Toda cuadrilla y brigada de bomberos forestales voluntarios que preste servicio en la atención de un incendio forestal, deberá registrarse en el Puesto de Mando (PC) u otra instalación definida para este fin, durante la atención del incidente, evento u operativo.

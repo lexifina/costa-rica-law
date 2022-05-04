@@ -1,0 +1,1 @@
+Artículo 22.- El uso del uniforme es obligatorio para todos los bomberos (as) forestales voluntarios cuando estén prestando servicio en labores de campo, actividades de prevención u oficiales en que se requiera estén presentes; a su vez mientras se encuentren en horas de descanso de su faena, deberán portar vestimenta de tipo casual o informal, ordenada y acorde con la labor.

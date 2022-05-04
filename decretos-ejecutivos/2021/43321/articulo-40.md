@@ -1,0 +1,1 @@
+Artículo 40.- Se conformará un comité seleccionador y evaluador de candidaturas compuesto por tres Enlaces del Programa de Manejo Integral del Fuego de las Áreas de Conservación, un líder de la cuadrilla o brigada que se defina por el Programa, más la Coordinación Nacional.

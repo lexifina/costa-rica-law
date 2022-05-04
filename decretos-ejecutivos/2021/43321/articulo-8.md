@@ -1,0 +1,8 @@
+Artículo 8.- Este reglamento reconocerá como cuadrilla o brigada de bomberos forestales voluntarios a todas aquellas personas integradas como un equipo de intervención o fuerza de tarea que cumplan con los siguientes requisitos.
+a) Que esté conformada por un grupo mínimo de cinco personas para una cuadrilla y para una brigada dos o más cuadrillas, manteniendo el alcance de control.
+b) Elegir y notificar mediante nota ante el Enlace del Programa de Manejo Integral del Fuego del Área de Conservación correspondiente, a la persona que será el líder de la cuadrilla o brigada y quien será el responsable de realizar toda gestión en nombre del grupo.
+c) Cumplimiento por parte de cada uno de los integrantes de la cuadrilla o brigada, conforme lo establecido en el artículo 7 del presente reglamento.
+d) Presentar al Enlace del Programa de Manejo Integral del Fuego del Área de Conservación correspondiente, los puestos de los integrantes de la cuadrilla o brigada, con el fin de llevar un control de las funciones que realice cada miembro que la conforman.
+e) Elaborar un plan anual operativo en conjunto con el Enlace del Programa de Manejo Integral del Fuego del Área de Conservación, el administrador del ASP y/o jefe de la oficina subregional del SINAC, conforme corresponda a la ubicación de la cuadrilla o brigada.
+f) Cumplimiento por parte de la cuadrilla o brigada con las horas para las actividades descritas en la Guía Nacional de Capacitación y Certificación en Manejo Integral del Fuego que se encuentre vigente y el Plan Anual Operativo; conforme el cargo que desempeñe cada uno.
+g) Indicar un correo electrónico o fax para recibir notificaciones.

@@ -1,0 +1,1 @@
+Artículo 60.- En caso de que se configure la reiteración de faltas que indica el artículo 55 incisos b) y c), el artículo 56 incisos a) y b) y el artículo 57 inciso b), bastará la constatación por parte del Enlace del Programa del Área de Conservación de la concurrencia de las mismas para la aplicación de la sanción al bombero (a) forestal voluntario.

@@ -1,0 +1,1 @@
+Artículo 5.- Los Enlaces del Programa de Manejo Integral del Fuego en las Áreas de Conservación o quienes estos designen en determinada zona geográfica, tendrán a cargo la aplicación, supervisión y seguimiento de este reglamento para el cumplimiento por parte de las cuadrillas y brigadas de bomberos forestales voluntarios en su región.

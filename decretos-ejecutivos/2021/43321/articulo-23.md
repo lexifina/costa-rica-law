@@ -1,0 +1,1 @@
+Artículo 23.- El aseo personal es indispensable para el correcto uso del uniforme, por ello todo bombero (a) forestal voluntario, deberá seguir normas de higiene y presentación para facilitar la convivencia con sus compañeros y proyectar una buena imagen.
