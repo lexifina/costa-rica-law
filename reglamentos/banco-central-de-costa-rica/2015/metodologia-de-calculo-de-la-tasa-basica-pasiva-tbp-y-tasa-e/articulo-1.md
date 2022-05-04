@@ -19,44 +19,100 @@ considerando que:
 15. La situación vigente al momento de enviar en consulta la propuesta de modificación metodológica de la TBP ha cambiado, pues las tasas de interés en la actualidad son menores, se recomienda que el término de ajuste sea calculado con base en la última información disponible al momento de entrada en vigencia de este acuerdo.
 dispuso:
 A. Modificar la metodología de cálculo de la tasa básica pasiva, para que se calcule según las condiciones que se detallan seguidamente:
-i) Conformar una muestra de intermediarios financieros supervisados por la Superintendencia General de Entidades Financieras (SUGEF) cuya captación a plazo total en moneda nacional, sume en conjunto el 95% del saldo promedio de la captación a plazo total en moneda nacional de los últimos seis meses.
-De esta manera, con la última información disponible en las cuentas monetarias se definirían cuatro grupos de intermediarios financieros: bancos públicos, bancos privados, cooperativas y mutuales.
-Esta muestra deberá ser revisada, como mínimo, en febrero de cada año y en caso que una única entidad conforme un grupo ésta pasará a formar parte del grupo con el cual tenga características similares, lo anterior debido a que, por Ley, el Banco Central de Costa Rica está obligado a guardar la confidencialidad de la información individual que le suministren las personas físicas y jurídicas.
-ii) Con información de las tasas de interés efectivas brutas de cada una de las operaciones de captación a plazo en colones, negociadas durante la semana anterior al cálculo (de miércoles a martes), se calculará un promedio simple para cada grupo de intermediarios financieros.
-iii) Se trunca la anterior distribución mediante la exclusión de aquellas operaciones cuyas tasas de interés se desvíen en al menos dos desviaciones estándar del promedio del grupo.
-iv) Se calcula nuevamente un promedio simple de la distribución de tasas de interés truncada, obtenida en el ordinal iii) para cada grupo de intermediarios financieros.
-De esta manera, se obtienen cuatro tasas promedio 𝑇𝑗 , para 𝑗 = 1, 2, 3, 4.
-v) Como ponderadores se utilizaría el promedio móvil de la captación total a plazo en moneda nacional de los últimos seis meses (según disponibilidad de las cuentas monetarias a fin de cada mes) para cada grupo de intermediarios financieros.
-Así, se calculan cuatro ponderadores 𝜔𝑗 , para 𝑗 = 1, 2, 3, 4.
-vi) Con los promedios obtenidos en el ordinal iv) anterior y los ponderadores definidos en el ordinal v), se calcula la siguiente tasa pasiva promedio ponderado, la cual se denominara 𝑇:
+i. Conformar una muestra de intermediarios financieros supervisados por la Superintendencia General de Entidades Financieras (SUGEF). Esta muestra estará constituida por las entidades con mayor captación total (a plazo y a la vista) en moneda nacional y que en conjunto representen al menos el 95% del saldo promedio de esa captación por las Otras Sociedades de Depósito en los seis meses previos. Esta muestra deberá ser revisada, como mínimo, en febrero de cada año.
+(*)ii. Con información de las tasas de interés pasivas brutas negociadas para las captaciones a plazo (excluidas las operaciones clasificadas en la cuenta residual Otras captaciones a plazo) durante la semana anterior al cálculo (de miércoles a martes), se calcula una tasa de interés promedio ponderado por el monto de las captaciones para cada uno de los siguientes horizontes de captación: 1 día, 2 a 6 días, 7 a 13 días, 14 a 20 días, 21 a 29 días, 30 a 59 días, 60 a 89 días, 90 a 119 días, 120 a 149 días, 150 a 179 días, 180 a 209 días, 210 a 239 días, 240 a 269 días, 270 a 359 días, 360 a 539 días, 540 a 719 días, 720 a 1079 días, 1080 a 1439 días, 1440 a 1799 días y, finalmente, a 1800 y más días.
+Se denomina 𝑖𝑗𝑠 a la tasa de interés para la semana s correspondiente al horizonte j que se calcula como:
 [imagen]
-Donde, 𝑇 es una tasa promedio ponderado de las tasas de las captaciones a plazo en colones, de las entidades financieras que conforman la muestra que se indica en el ordinal i).
-vii) Adicionar al cálculo semanal realizado en el ordinal vi) antes señalado (T), un término de ajuste (A) con el propósito de suavizar la transición entre la metodología de cálculo de la Tasa básica pasiva y la metodología adoptada en esta oportunidad. Este factor de ajuste se obtendrá de la última información disponible enviada por las entidades financieras al momento de entrada en vigencia de este acuerdo.
-viii) El cálculo de la tasa básica pasiva, a partir de la vigencia de esta metodología, comprende los siguientes dos componentes:
-𝑇𝐵𝑃 = 𝑇 + 𝐴, donde
-𝑇𝐵𝑃 : Tasa básica pasiva.
-𝑇: Tasa promedio ponderado de las tasas de las captaciones a plazo en colones, de acuerdo con lo señalado en el ordinal vi) anterior.
-𝐴: Término de ajuste semanal que se calcula de la siguiente forma:
 [imagen]
-Dónde:
-𝐷: diferencia existente al último miércoles de enero del 2016 entre la TBP y 𝑇. (𝐷 = 𝑇𝐵𝑃 − 𝑇 𝑎𝑙 ú𝑙𝑡𝑖𝑚𝑜 𝑚𝑖é𝑟𝑐𝑜𝑙𝑒𝑠 𝑑𝑒 𝑒𝑛𝑒𝑟𝑜 𝑑𝑒𝑙 2016).
-𝑠 : denota la cantidad de semanas transcurridas a partir del cambio en la metodología; de esta manera, la primera semana toma el valor 0, la siguiente el valor 1, y así sucesivamente cada semana se incrementa en una unidad hasta completar el valor 50, lo cual permite que la transición se realice en un período de 51 semanas.
-Por tanto, el término de ajuste 𝐴 se comportará de la siguiente forma:
+Si en una semana no hay captaciones para uno de los horizontes, se toma el promedio de la semana anterior, esto es, js j , s 1 i i ? = .
+iii. Para cada uno de los horizontes 𝑗 y semana 𝑠 se calcula el monto total ponderado por el plazo en días de cada una de las captaciones, el cual se llamará 𝑚𝑗𝑠, es decir,
 [imagen]
-ix) La periodicidad será semanal.
-x) El redondeo sería al veinteavo de punto porcentual más cercano.
-xi) Según el plan contable de la SUGEF las operaciones a las que hace referencia el ordinal ii) anterior, estarían constituidas por las siguientes cuentas:
+Donde:
+s q es el monto de la captación [imagen]
+d representa el plazo en días de la captación [imagen]
+Además, se define un ponderador semanal 𝜔𝑗s que corresponde a la proporción entre la suma de las 52 semanas previas a la semana s (incluida la semana s) del monto mjs con respecto a la suma agregada para todos los 𝑗 horizontes:
+[imagen]
+Donde:
+? mjks k=s?51 corresponde a la suma del monto ponderado por el plazo en días de las captaciones al horizonte 𝑗 que se pactaron durante las últimas 52 semanas (la semana s y las 51 semanas previas), y
+? ? mjk
+s
+j k=s?51 corresponde al total del monto ponderado por el plazo en días de las captaciones que se pactaron durante las últimas 52 semanas (la semana s y las 51 semanas previas).
+iv. Se define la tasa para las captaciones a plazo como el promedio de las tasas ijs que se definieron en el ordinal ii anterior que se pondera por la proporción que se definió en el ordinal iii anterior, es decir,
+[imagen]
+v. Para cada mes 𝑡, a partir de la información del saldo de cada cuenta correspondiente a otras captaciones a plazo y la tasa de interés respectiva que las entidades envían a la Sugef mediante el informe "Clase de datos de pasivos"1, se obtiene una tasa promedio ponderada, a la cual se le llamará 𝑇𝑡 𝑜𝑡𝑟𝑜𝑠 𝑝𝑙𝑎𝑧𝑜
+1Este informe forma parte del conjunto de información que los intermediarios deben remitir a Sugef de forma periódica, y para lo cual siguen lo dispuesto por el Manual de Información SICVECA (Sistema de Captura, Verificación y Carga de Datos).
+[imagen]
+Donde:
+r representa una cuenta en particular catalogada como otra captación a plazo,
+t R corresponde al conjunto de cuentas catalogadas como otras captaciones a plazo observado durante el mes t,
+rti es la tasa de interés de la cuenta r durante el mes t, y
+rtq es el saldo de la cuenta r al cierre del mes t.
+En caso de que en el mes t no esté disponible la información de alguna entidad, se utilizará la información más reciente disponible para ese intermediario.
+vi. Para cada mes 𝑡, a partir de la información del saldo de cada cuenta a la vista y la tasa de interés correspondiente que las entidades envían a la Sugef mediante el informe "Clase de datos de pasivos", se obtiene una tasa promedio ponderada, a la cual se le llamará 𝑇𝑡 𝑣𝑖𝑠𝑡𝑎:
+T
+[imagen]
+Donde:
+k representa una cuenta a la vista en particular,
+t K corresponde al conjunto de cuentas a la vista observado durante el mes t,
+kti es la tasa de interés de la cuenta k durante el mes t, y
+ktq es el saldo de la cuenta k al cierre del mes t.
+En caso de que en el mes t no esté disponible la información de alguna entidad, se utilizará la información más reciente disponible para ese intermediario.
+vii. Para cada mes t se define 𝛼𝑡 como la proporción entre el saldo promedio en la cuenta "Otras captaciones a plazo" durante los últimos 12 meses, con respecto al saldo promedio del total de captaciones durante los últimos 12 meses.
+Además, se define 𝛿𝑡 como la proporción entre el saldo promedio de captaciones a la vista durante los últimos 12 meses, con respecto al saldo promedio del total de captaciones durante los últimos 12 meses.
+Donde el total de captaciones para cada mes corresponde a la suma del saldo de captaciones a la vista y el saldo del total de captaciones a plazo (que incluye las clasificadas en la cuenta residual "Otras captaciones a plazo").
+Es decir, 𝛼𝑡 y 𝛿𝑡 se definen como:
+[imagen]
+[imagen]
+Donde:
+𝑄𝑡
+𝑜𝑡𝑟𝑎𝑠 𝑝𝑙𝑎𝑧𝑜𝑠
+es el saldo en la cuenta de otras captaciones a plazo en el mes 𝑡, 𝑄𝑡
+𝑣𝑖𝑠𝑡𝑎 es el saldo en captaciones a la vista en el mes 𝑡, 𝑄𝑡 𝑝𝑙𝑎𝑧𝑜 es el saldo en captaciones a plazo (excepto la cuenta Otras captaciones a plazo) en el mes 𝑡, ? 𝑄𝑡?𝑖
+11 𝑜𝑡𝑟𝑜𝑠 𝑝𝑙𝑎𝑧𝑜𝑠
+𝑖=0 /12 representa el promedio móvil de 12 meses del saldo en la cuenta de Otras captaciones a plazo,
+? 𝑄𝑡?𝑖
+11 𝑣𝑖𝑠𝑡𝑎
+𝑖=0 /12 representa el promedio móvil de 12 meses del saldo de las captaciones a la vista,
+? 𝑄𝑡?𝑖
+𝑝𝑙𝑎𝑧𝑜11 /12
+𝑖=0 representa el promedio móvil de 12 meses del saldo de las captaciones a plazo.
+Para obtener los saldos de captaciones a plazo, otras captaciones a plazo y captaciones a la vista se utiliza la información que las entidades envían a la Sugef mediante el informe "Clase de datos de pasivos".
+En el caso de que para alguna entidad aún no esté disponible la información para el mes t, para obtener las proporciones 𝛼𝑡 y 𝛿𝑡 se utiliza la información disponible más reciente para esa entidad.
+viii. Para la semana 𝑠 se define el indicador del costo financiero de captar en moneda nacional 𝐶𝑠 como un promedio ponderado entre la tasa de las captaciones a plazo para esa semana, 𝑇𝑠 𝑝𝑙𝑎𝑧𝑜 , definida en el ordinal iv anterior, la tasa de otras captaciones a plazo dos meses atrás, 𝑇𝑡(𝑠)?2 𝑜𝑡𝑟𝑜𝑠 𝑝𝑙𝑎𝑧𝑜 , definida en el ordinal v anterior, y la tasa de los depósitos a la vista dos meses atrás, 𝑇𝑡(𝑠)?2 𝑣𝑖𝑠𝑡𝑎 , definida en el ordinal vi anterior.
+A la tasa a plazo se le asigna el ponderador 1 ? 𝛼𝑡(𝑠)?2 ? 𝛿𝑡(𝑠)?2, a la tasa de las otras captaciones a plazo el ponderador 𝛼𝑡(𝑠)?2, y a la tasa de los depósitos a la vista el ponderador 𝛿𝑡(𝑠)?2, donde 𝑡(𝑠) representa el mes correspondiente al día en que se realiza el cálculo de la tasa de interés promedio de la captación en moneda nacional de los intermediarios financieros supervisados por la Sugef para la semana 𝑠:
+[imagen]
+Con el propósito de controlar por volatilidad, la TBP corresponderá a un promedio móvil de cuatro semanas (la semana en que se realiza el cálculo y las tres que le anteceden) del cálculo presentado en la ecuación (8):
+[imagen]
+ix. La tasa resultante se redondea al centésimo de punto porcentual más cercano.
+x. La periodicidad del cálculo es semanal.
+xi. Según el catálogo de cuentas de la Superintendencia General de Entidades Financieras las operaciones a plazo a las que hacen referencia los ordinales ii, iii, iv, v, vii, y viii anteriores son las siguientes:
 Cuenta | Descripción
-| Cuentas depósitos a plazo
-213.01.1 | Depósitos de ahorro a plazo
-213.02.1 | Depósitos de ahorro a plazo afectados en garantía
-213.12.1 | Captaciones a plazo con el público
-213.13.1 | Captaciones a plazo con partes relacionadas
-213.14.1 | Captaciones a plazo afectadas en garantía
-232.01.1 | Captaciones a plazo de entidades financieras del país
-232.02.1 | Captaciones a plazo de entidades financieras del exterior
-232.13.1 | Depósitos de ahorro a plazo de entidades financieras del país
-232.14.1 | Depósitos de ahorro a plazo de entidades financieras del exterior
+Cuentas de captaciones a plazo
+213.01.1.00 | Depósitos de ahorro a plazo, MN
+213.02.1.00 | Depósitos de ahorro a plazo afectados en garantía, MN
+213.12.1.00 | Captaciones a plazo con el público, MN
+213.13.1.00 | Captaciones a plazo con partes relacionadas, MN
+213.14.1.00 | Captaciones a plazo afectadas en garantía, MN
+213.99.1.00 | Otras captaciones a plazo, MN
+232.01.1.00 | Captaciones a plazo de entidades financieras del país, MN
+232.13.1.00 | Depósitos de ahorro a plazo de entidades financieras del país, MN
+xii. Según el catálogo de cuentas de la Superintendencia General de Entidades Financieras las operaciones a la vista a las que hace referencia en los ordinales vi, vii y viii anteriores, estarían constituidas por las siguientes cuentas:
+Cuenta | Descripción
+Cuentas de captaciones a la vista
+211.01.1.00 | Cuentas Corrientes, MN
+211.02.1.00 | Cheques certificados, MN
+211.03.1.00 | Depósitos de ahorro a la vista, MN
+211.04.1.00 | Captaciones a plazo vencidas, MN
+211.06.1.00 | Depósitos overnight, MN
+211.99.1.00 | Otras captaciones a la vista, MN
+2. Con el propósito de facilitar la transición entre metodologías, durante 26 semanas continuas la TBP corresponderá a un promedio ponderado entre el cálculo con la nueva metodología y la metodología vigente el 4 de mayo de 2022, de conformidad con lo siguiente:
+Se denota por 𝑅𝑠 la tasa que se obtiene de aplicar la metodología vigente al 4 de mayo de 2022 para la TBP, y por 𝑇𝑠 la tasa que se definió en la ecuación (9) del ordinal viii del literal
+A anterior, ambas para la semana s.
+Además, si 𝑟? es la semana en que se introduce el cambio de la metodología, durante las primeras 26 semanas a partir de la semana r (la semana r y las 25 siguientes), la Tasa Básica Pasiva estaría dada por:
+[imagen]
+A partir de la semana 𝑟? + 26:
+[imagen]
+(Así reformado en sesión N° 6059 del 4 de mayo de 2022)
 B. Cambiar en el ordinal I, literales A, B y C, del título V de las Regulaciones de Política Monetaria, para que se lea de la siguiente manera:
 TÍTULO V
 DEFINICIÓN DE METODOLOGÍAS
@@ -116,7 +172,7 @@ considerando que:
 1Según lo establecido en la Ley Orgánica del Banco Central (Ley 7558), artículo 3 (incisos c, e y j), artículo 28 (incisos c y h), artículo 40, artículo 52 (inciso d) y artículo 117. También en Regulaciones de política monetaria emitidas por el Banco Central y en coordinación con la SUGEF se aplicaría lo dispuesto artículo 155 de la Ley 7558 inciso a) punto iii) e inciso c) punto iv).
 5. Del total de pasivos en moneda extranjera de las entidades financieras, el 63% corresponde a captaciones (depósitos y títulos valores) y 33% a endeudamiento externo.
 6. Un cálculo comprensivo del costo financiero efectivo que enfrentan los intermediarios financieros en la conformación de fondos prestables en dólares ha de incluir el costo de captación mediante depósitos a plazo, así como el costo del endeudamiento, en esa moneda.
-7. Es una práctica común en los mercados financieros expresar las tasas de interés en dólares en “puntos básicos”, por lo cual es conveniente establecer un criterio de redondeo al punto básico más cercano, lo que permite reflejar adecuadamente las variaciones de ese indicador.
+7. Es una práctica común en los mercados financieros expresar las tasas de interés en dólares en "puntos básicos", por lo cual es conveniente establecer un criterio de redondeo al punto básico más cercano, lo que permite reflejar adecuadamente las variaciones de ese indicador.
 8. La tasa efectiva en dólares como indicador del costo financiero de todos los recursos captados a plazo en moneda extranjera, ha de incluir los distintos plazos ofrecidos por los intermediarios financieros, así como el endeudamiento externo en dólares.
 9. La información disponible a agosto del 2015 indica que las captaciones a plazo en moneda extranjera y el endeudamiento externo de los bancos comerciales suman en conjunto cerca del 95% del saldo promedio de las Otras Sociedades de Depósito (OSD).
 dispuso:

@@ -14,3 +14,4 @@ Metodología de cálculo de la Tasa básica pasiva (TBP) y tasa efectiva en dól
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-04 | la propia norma |
+| 2 | 2022-05-04 | Reglamento 6059 (2022-05-04) |
