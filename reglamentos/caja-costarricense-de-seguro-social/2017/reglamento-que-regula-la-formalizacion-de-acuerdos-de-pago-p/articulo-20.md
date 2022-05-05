@@ -1,4 +1,5 @@
-Artículo 20
-Actividades declaradas de emergencia mediante Decreto Ejecutivo.
-La Gerencia Financiera podrá autorizar arreglos y convenios de pago en condiciones especiales como plazos, tasas de interés y garantías de pago diferentes a las establecidas en el presente Reglamento, para deudores cuya actividad o zona de ubicación haya sido declarada en emergencia mediante decreto ejecutivo debidamente publicado y vigente. Para lo anterior, el deudor deberá demostrar a satisfacción de la Caja, que ha sido afectado por las causas que generaron la declaratoria de emergencia.
-También se podrá suspender, hasta por un plazo máximo de seis meses, la presentación de cualquier tipo de gestión de cobro administrativa y judicial.
+Artículo 20.-Condiciones especiales para convenios y arreglos de pago. La Gerencia Financiera podrá autorizar arreglos y convenios de pago en condiciones especiales como plazos, tasas de interés, garantías de pago y otros, diferentes a las establecidas en el presente Reglamento para patronos y trabajadores independientes, en los siguientes casos:
+a) Cuando existan deudores cuya actividad o zona de ubicación haya sido declarada en emergencia mediante decreto ejecutivo debidamente publicado y vigente. Para lo anterior, el deudor deberá demostrar a satisfacción de la Caja, que ha sido afectado por las causas que generaron la declaratoria de emergencia.
+b) Cuando la situación económica y social del momento lo justifique, ya sea a nivel del entorno país o dentro del contexto de la capacidad contributiva de las poblaciones citadas, según se demuestre en estudios técnicos correspondientes.
+Mientras se realiza el trámite de formalización de un acuerdo de pago, se podrá suspender hasta por un plazo máximo de seis meses, la presentación de cualquier tipo de gestión de cobro administrativa y judicial.
+(Así reformado en sesión N° 9257 del 5 de mayo de 2022)

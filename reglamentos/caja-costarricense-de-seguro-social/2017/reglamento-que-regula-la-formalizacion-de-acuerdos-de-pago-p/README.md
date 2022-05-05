@@ -19,3 +19,4 @@ Reglamento que Regula la Formalización de Acuerdos de Pago por deudas de Patron
 | 4 | 2020-06-22 | Reglamento 9106 (2020-06-22) |
 | 5 | 2020-12-10 | Reglamento 9145 (2020-12-10) |
 | 6 | 2022-03-03 | Reglamento 9243 (2022-03-03) |
+| 7 | 2022-05-05 | Reglamento 9257 (2022-05-05) |
