@@ -1,0 +1,1 @@
+Artículo 10.-Con el objeto de minimizar el impacto medioambiental y evitar la duplicación de infraestructura, para el caso de las torres de telecomunicaciones, la obra constructiva deberá ser implementada de manera tal que permita colocar equipos y sistemas de al menos tres emplazamientos.

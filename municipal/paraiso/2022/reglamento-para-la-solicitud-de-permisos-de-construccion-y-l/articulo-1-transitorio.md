@@ -1,0 +1,2 @@
+Transitorios
+Transitorio primero. - Los propietarios de las infraestructuras de telecomunicaciones existentes, deberán entregar a la Municipalidad la información señalada en el artículo 7 de este Reglamento, con el fin de mantener un registro, control y clara ubicación de estas, para lo cual se le otorga un plazo de seis meses, contados a partir de la fecha de publicación definitiva de este Reglamento en el Diario Oficial La Gaceta.

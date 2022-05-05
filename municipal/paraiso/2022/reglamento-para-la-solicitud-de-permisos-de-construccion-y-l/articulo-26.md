@@ -1,0 +1,1 @@
+Artículo 26.-El impuesto de patente, tanto para los dotadores de infraestructura como para los operadores y proveedores, se fijará de acuerdo con el procedimiento establecido en la Ley #7140 denominada Tarifas de impuestos municipales del cantón de Paraíso y el Reglamento para licencias municipales de la Municipalidad de Paraíso.

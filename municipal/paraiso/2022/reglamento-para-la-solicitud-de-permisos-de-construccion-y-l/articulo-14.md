@@ -1,0 +1,1 @@
+Artículo 14.-Para la instalación de infraestructura de telecomunicaciones en bienes inmuebles ubicados en el cantón de Paraíso, sean estos de carácter privado o áreas públicas, no se aplicará restricción de distancia alguna.
