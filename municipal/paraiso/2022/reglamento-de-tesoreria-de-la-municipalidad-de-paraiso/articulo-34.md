@@ -1,0 +1,1 @@
+Artículo 34.-Informe de fecha de vencimiento de documentos: De los controles descritos, la Tesorería informará con suficiente anticipación, a la Jefatura sobre las fechas de vencimiento de los diferentes documentos.

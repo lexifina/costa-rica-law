@@ -1,0 +1,1 @@
+Artículo 23.-Comprobantes de cheques: Todos los comprobantes que amparan los cheques deberán ser marcados con un sello que diga: "Cancelado con cheque No....... fecha............." por el Departamento de Tesorería.

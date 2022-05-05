@@ -1,0 +1,2 @@
+Artículo 29.-Trámite para reponer órdenes de compra o facturas extraviadas: En caso de que el beneficiario extravié el documento original de orden de compra o factura, deberá presentar ante la Tesorería para poder tramitar el cheque, carta de aclaración del extravío, donde se consigne que exonera de toda responsabilidad a la Municipalidad de Paraíso, si apareciera otra persona realizando el cobro; este documento deberá venir autenticado por un abogado.
+Adicionalmente, se llevará a cabo la consulta respectiva a la Proveeduría Institucional.

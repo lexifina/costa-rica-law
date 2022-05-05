@@ -1,0 +1,1 @@
+Artículo 32.-Remisión de pólizas de seguros a la Tesorería: Para efectos de su pago oportuno, el Departamento de Tesorería remitirá a la Contabilidad detalle de los documentos custodiados de pólizas de seguros, indicando el tipo de pólizas, monto asegurado, fecha de vencimiento, coberturas y asignación presupuestaria.

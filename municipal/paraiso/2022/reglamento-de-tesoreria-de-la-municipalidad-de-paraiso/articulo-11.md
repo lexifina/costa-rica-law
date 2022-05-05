@@ -1,0 +1,1 @@
+Artículo 11.-Encargado de la recaudación de ingresos: La recaudación de los ingresos los realizará el Departamento de Tesorería por medio de los medios de recaudación habilitados al efecto y en las cuentas corrientes municipales.

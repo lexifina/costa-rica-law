@@ -1,0 +1,3 @@
+Artículo 28.-Anulación de cheques: Cuando un cheque deba anularse por error en la confección u otra causa, la dependencia emisora estampará en el mismo y en las copias su sello de anulado indicando por escrito el motivo de la anulación. El original y una copia se archivarán en la Tesorería y la otra copia en Contabilidad.
+Los cheques emitidos no cambiados por los beneficiarios serán anulados al cumplir tres meses después de su emisión.
+La Tesorería comunicará por escrito los casos de cheques que requieren ser anulados al Departamento de Contabilidad, a la Dirección Financiera y al alcalde municipal, para que efectúen los ajustes presupuestarios correspondientes y se emita el comprobante interno por la anulación del documento.

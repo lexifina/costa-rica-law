@@ -1,0 +1,1 @@
+Artículo 27.-Custodia de cheques pendientes de pago: La Tesorería tendrá bajo su custodia los cheques pendientes de pago de los proveedores, empleados y otros. Los cheques estarán a disposición de los administrados un plazo de tres meses para ser retirados.

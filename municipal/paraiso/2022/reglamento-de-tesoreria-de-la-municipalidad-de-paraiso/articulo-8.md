@@ -1,0 +1,1 @@
+Artículo 8º-Forma de llevar las Cajas Chicas: Los fondos de la Caja Chica General y Caja Chica de fondos provenientes de la Ley Nº 8114; se llevarán independientemente, sin que se provoque confusión alguna de valores o comprobantes de cada una de ellas.
