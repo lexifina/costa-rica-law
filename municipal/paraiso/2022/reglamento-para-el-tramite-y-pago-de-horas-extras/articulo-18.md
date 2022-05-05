@@ -1,0 +1,1 @@
+Artículo 18.-La Unidad de Recursos Humanos verificará la información de los reportes de horas extras, velando que se cumplan lo establecido en el artículo 12, inciso c), de este Reglamento para posteriormente remitirlos al Departamento Financiero para efectuar el pago correspondiente.

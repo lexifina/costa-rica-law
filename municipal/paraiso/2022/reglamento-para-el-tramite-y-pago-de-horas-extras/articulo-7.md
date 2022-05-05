@@ -1,0 +1,1 @@
+Artículo 7º-Toda solicitud para laborar en tiempo extraordinario, será autorizada por el alcalde Municipal y tramitada por medio de la Sección de Recursos Humanos con cinco días naturales de antelación previa a la realización de los trabajos, salvo casos de urgencia a juicio de la Alcaldía o Jefatura, en coordinación con la alcaldía.

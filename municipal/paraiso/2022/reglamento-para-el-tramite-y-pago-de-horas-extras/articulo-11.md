@@ -1,0 +1,1 @@
+Artículo 11.-El alcalde, comunicará a la Unidad de Recursos Humanos, las solicitudes aprobadas para laborar en jornada extraordinaria, dentro de las siguientes veinticuatro horas posteriores al comunicado y especificando la cantidad de horas autorizadas.

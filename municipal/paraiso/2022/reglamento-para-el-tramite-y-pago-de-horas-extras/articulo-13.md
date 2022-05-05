@@ -1,0 +1,6 @@
+Artículo 13.-No procederá el pago de horas extras cuando el funcionario(a) debe laborar fuera de su jornada laboral por negligencia o falta en el cumplimiento de su trabajo. Artículo 14: En el ámbito de aplicación de este Reglamento, son responsabilidades de la Unidad de Recursos Humanos:
+a) Velar por la observancia de la normativa y los procedimientos establecidos.
+b) Realizar los controles de marcas y verificar que la información del reporte de horas extras sea concordante con las tarjetas marcadas.
+c) Informar a la Alcaldía Municipal en forma oportuna cualquier anomalía que detecte en el procedimiento y tramitación del tiempo extraordinario.
+d) Realizar las investigaciones que considere pertinentes sobre las jornadas con tiempo extraordinario.
+e) Llevar el control y registro semanal de las horas aprobadas y laboradas por el funcionario en tiempo extraordinario.
