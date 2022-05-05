@@ -1,0 +1,1 @@
+Artículo 19.-Una vez otorgado el permiso, la Dirección de Desarrollo y Control Urbano, ejecutará la fiscalización respectiva, certificando que el trabajo se llevó a cabo como lo indica el permiso de construcción de obra menor, dejando constancia para su archivo y custodia.
