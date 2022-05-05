@@ -14,3 +14,4 @@ Reglamento para el reconocimiento del derecho a la identidad sexual y de género
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-18 | la propia norma |
+| 2 | 2022-05-05 | Decreto Ejecutivo 43538 (2022-05-05) |
