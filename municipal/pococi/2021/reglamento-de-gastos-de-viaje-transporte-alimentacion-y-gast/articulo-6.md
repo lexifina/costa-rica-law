@@ -1,3 +1,0 @@
-CAPÍTULO II
-De las autorizaciones y liquidaciones
-Artículo 6º-Competencia para brindar autorizaciones. Corresponde al Alcalde autorizar en coordinación con el visto bueno (VB°) del financiamiento por parte del departamento Administrativo-Financiero, el pago de viáticos de transporte, alimentación y hospedaje, a todos los funcionarios, regidores y síndicos sin excepción, conforme a este Reglamento y a lo que establece el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, promulgado por la Contraloría General de la República, esto previa autorización de la jefatura inmediata.

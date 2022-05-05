@@ -1,1 +1,0 @@
-Artículo 35.-Medidas disciplinarias. Se procederá como en derecho corresponde a aplicar las sanciones correspondientes a las jefaturas que autoricen giras sin contar con la respectiva erogación económica.
