@@ -1,0 +1,1 @@
+Artículo 24.-Derogatoria. El presente Reglamento deroga íntegramente el "Reglamento para las Inversiones Transitorias realizadas por el Instituto Mixto de Ayuda Social", aprobado por Consejo Directivo mediante Acuerdo Nº470-10-2015, Acta 075- 10-2015, de fecha 26 de octubre del 2015 y publicado en el Diario Oficial La Gaceta 233 del martes 01 de diciembre del 2015.

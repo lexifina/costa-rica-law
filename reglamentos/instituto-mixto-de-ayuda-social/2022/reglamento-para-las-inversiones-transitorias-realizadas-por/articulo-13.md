@@ -1,0 +1,1 @@
+Artículo 13.-De los requisitos para realizar inversiones. Las inversiones deberán realizarse en valores emitidos por el Estado, mediante compra directa en el Banco Central de Costa Rica o la Tesorería Nacional. Por tanto, el tipo de título, el rendimiento y el plazo, estará sujeto a la oferta del Estado y a los lineamientos emitidos por la STAP.

@@ -1,0 +1,2 @@
+Artículo 17.-De la ejecución del Plan de Inversiones transitorias. Una vez aprobado el Plan de Inversiones transitorias de Recursos propios y de Empresas Comerciales, por parte de la Gerencia General, se invertirá de conformidad con lo aprobado.
+Las inversiones realizadas podrán variarse en cualquier momento del año, en cuanto al plazo, la moneda y montos invertidos, según las necesidades de la institución, conforme a la oferta actualizada de la Tesorería Nacional o del Banco Central de Costa Rica y la respectiva aprobación de dichas variaciones.

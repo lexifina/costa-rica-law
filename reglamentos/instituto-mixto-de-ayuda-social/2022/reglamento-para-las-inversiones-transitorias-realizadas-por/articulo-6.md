@@ -1,0 +1,7 @@
+Artículo 6º-Deberes y obligaciones de la Administración del Área de Empresas Comerciales. Son deberes y obligaciones de la Administración de Empresas Comerciales, las siguientes:
+a. Elaborar en el mes de febrero, con la Jefatura de la Unidad de Coordinación Administrativa y la Jefatura de la Unidad de Tesorería, la propuesta del Plan de Inversiones transitorias, a partir del flujo de efectivo proyectado remitido por la Unidad de Tesorería del IMAS.
+b. Remitir en los primeros cinco días hábiles del mes de marzo, la propuesta del Plan de Inversiones transitorias del Programa de Empresas Comerciales a la persona Subgerente de Gestión de Recursos, para su revisión y aval.
+c. Informar a la Unidad de Tesorería el Plan de Inversiones transitorias del Programa de Empresas Comerciales debidamente aprobado.
+d. Vigilar las variaciones que se presenten a los supuestos en los que se basan las proyecciones del Plan de Inversiones transitorias de Empresas Comerciales, con el fin de recomendar, junto con la Unidad de Tesorería, los ajustes que deban realizarse al Plan.
+e. Comunicar a la Unidad de Tesorería la aprobación del Plan Inversiones de Empresas Comerciales y de las variaciones que se realicen en el transcurso del año.
+f. Firmar junto con la persona Subgerente de Gestión de Recursos la propuesta del Plan de Inversiones transitorias del Programa de Empresas Comerciales y las propuestas de variaciones al mismo, para ser trasladados a la Gerencia General.
