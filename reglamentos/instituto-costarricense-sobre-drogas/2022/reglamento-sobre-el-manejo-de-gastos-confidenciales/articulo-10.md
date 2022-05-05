@@ -1,0 +1,3 @@
+Artículo 10.-Liquidaciones. Es obligación de las instituciones beneficiarias remitir la liquidación de los recursos girados, cada trimestre, dentro de los primeros 5 días naturales del mes siguiente.
+Si con la presentación de la liquidación se determina que no se ha gastado la totalidad de los dineros entregados, se deberá remitir liquidación parcial al ICD, y así sucesivamente en los trimestres siguientes, hasta que los recursos se hayan ejecutado por completo.
+En caso de que al 31 de diciembre de cada año, existan recursos excedentes, estos podrán ser utilizados en el período presupuestario siguiente. No obstante, deberán presentar el informe indicado en el artículo 7° del presente Reglamento y las liquidaciones de cierre del período.

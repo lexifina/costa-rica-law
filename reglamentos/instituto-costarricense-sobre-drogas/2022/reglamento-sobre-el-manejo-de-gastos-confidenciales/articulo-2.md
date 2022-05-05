@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo. El presente reglamento tiene como propósito establecer los parámetros necesarios para el uso y manejo de gastos confidenciales en el ICD, en atención a la naturaleza de sus funciones en el área represiva, según la norma del artículo 151 de la Ley Nº 8204.
