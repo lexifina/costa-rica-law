@@ -1,10 +1,5 @@
 ARTÍCULO 383. Distancias mínimas de otras infraestructuras a estaciones de servicio
-En zonas en que el uso permita la ubicación de estaciones de servicio y de almacenamiento de combustibles, se debe mantener una distancia de al menos 35,00 m de las siguientes edificaciones:
-1) Fábricas de, o sitios donde se almacenen, productos o sustancias explosivas o inflamables
-2) Escuelas y colegios
-3) Centros de salud y asilos
-4) Salas de espectáculos públicos y centros de reunión pública en general
-5) Templos
-Las distancias de retiro se miden desde el centro de la boca de llenado de los tanques de almacenamiento más cercano al límite del predio. Esta prohibición se aplica en sentido opuesto, si la
-estación de servicio hubiese sido construida primero.
-Para las distancias mínimas entre estaciones de servicios, se aplica lo establecido en el Reglamento para la Regulación del Sistema de Almacenamiento y Comercialización de Hidrocarburos, Decreto Ejecutivo N°30131-MINAE-S y sus reformas o normativa que lo sustituya.
+En zonas en que el uso permita la ubicación de estaciones de servicio y de almacenamiento de combustibles, se deben acatar las distancias mínimas entre el predio donde se pretende asentar dicha edificación y las siguientes infraestructuras: líneas de alta tensión aéreas o bajo tierra, subestaciones eléctricas, vías férreas, ductos que transportan productos derivados del petróleo, fábricas, sitios de almacenamiento de productos o sustancias explosivas o inflamables, plantas de almacenamiento y envasado de gas licuado de petróleo, sitios de reunión pública, edificios deportivos, plazas de toros, centros educativos, centros de salud, asilos de ancianos.
+Lo anterior según lo establecido en el Reglamento para la Regulación del Sistema de Almacenamiento y Comercialización de Hidrocarburos, Decreto Ejecutivo N°30131- MINAE-S y sus reformas o normativa que lo sustituya.
+Las distancias de retiro se miden desde el centro de la boca de llenado de los tanques de almacenamiento más cercano al límite del predio. Esta prohibición se aplica en sentido opuesto, si la estación de servicio hubiese sido construida primero.
+(Así reformado en sesión N° 6540 del 5 de mayo de 2022)

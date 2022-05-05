@@ -16,3 +16,4 @@ Reglamento de construcciones del Instituto Nacional de Vivienda y Urbanismo
 | 1 | 2018-07-31 | la propia norma |
 | 2 | 2018-07-31 | Reglamento 6321 (2018-06-21) |
 | 3 | 2018-07-31 | Reglamento 6328 (2018-07-26) |
+| 4 | 2022-05-05 | Reglamento 6540 (2022-05-05) |

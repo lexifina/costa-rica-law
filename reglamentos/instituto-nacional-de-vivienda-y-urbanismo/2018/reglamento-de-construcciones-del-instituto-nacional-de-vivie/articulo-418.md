@@ -1,2 +1,2 @@
-ARTÍCULO 418. Cambio de clasificación de edificaciones
-Para toda demolición se aplican las disposiciones de la Ley de Construcciones Nº 833 y el Reglamento de Seguridad en las Construcciones, Decreto Ejecutivo N° 25235-MTSS y sus reformas o la normativa que lo sustituya.
+ARTÍCULO 418. Cambio de clasificación de edificaciones. Cuando en una edificación existente se requiera cambiar su uso por otro permitido, y esto implique realizar alguna reparación, remodelación o ampliación, se debe adecuar el inmueble al nuevo tipo de uso, de manera que cumpla con las disposiciones aplicables en la materia, según la normativa vigente.
+(Así reformado en sesión N° 6540 del 5 de mayo de 2022)

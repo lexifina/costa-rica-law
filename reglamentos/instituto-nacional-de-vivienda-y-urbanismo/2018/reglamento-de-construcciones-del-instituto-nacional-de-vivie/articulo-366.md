@@ -3,4 +3,5 @@ Toda aquella vivienda, unidad habitacional o apartamento destinado al uso reside
 1) Viviendas unifamiliares: En las viviendas unifamiliares cuya área de lote sea de 200 m² o más, se deja 1 espacio para estacionamiento dentro del predio
 2) Condominios de uso habitacional y apartamentos: En cualquier tipo de condominio con uso habitacional y en edificaciones de apartamentos; para unidades habitacionales de 3 dormitorios se debe exigir como mínimo 1 espacio de estacionamiento por cada 2 viviendas y para los de 1 y de 2 dormitorios, 1 espacio de estacionamiento por cada 4 viviendas
 3) Urbanizaciones: Se aplica para el cálculo, las áreas que al respecto señala el Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones y sus reformas
-4) Condominios Habitacionales de Interés Social: Se aplica para el cálculo, las áreas que al respecto señala el Reglamento a la Ley Reguladora de la Propiedad en Ley Reguladora de la Propiedad en Condominio N° 7933 y sus reformas o normativa que lo sustituya.
+4) Condominios Habitacionales de Interés Social: Se aplica para el cálculo, las áreas que al respecto señala el Reglamento a la Ley Reguladora de la Propiedad en Condominio, Ley N°7933 y sus reformas o normativa que lo sustituya.
+(Así reformado en sesión N° 6540 del 5 de mayo de 2022)

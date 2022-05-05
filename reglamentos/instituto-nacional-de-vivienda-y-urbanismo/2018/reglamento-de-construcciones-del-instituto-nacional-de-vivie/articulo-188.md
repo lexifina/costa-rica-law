@@ -1,10 +1,8 @@
-ARTÍCULO 188. Cobertura, retiros, alturas
-La cobertura máxima, retiros y alturas para establecimientos industriales y de almacenamiento debe ser la establecida por el plan regulador vigente.
-En caso de no contar con plan regulador vigente se deben acatar las siguientes restricciones:
-1) Cobertura máxima: de un 60% del área del predio
-2) Retiro frontal: el indicado por el INVU
-3) Retiros laterales y posteriores: de 6,00 m
-4) Alturas: las áreas de trabajo industrial deben tener un piso de altura; en los casos en que la maquinaria o el proceso requiera mayor altura, se debe contar con autorización del MINSA
-Para los establecimientos industriales y de almacenamiento ubicados dentro de la GAM según el Reglamento de Zonas Industriales Gran Área Metropolitana emitido por el INVU o la normativa vigente, se deben acatar las disposiciones referentes a coberturas, retiros y alturas de dicho reglamento.
-En caso que utilicen pavimentos drenantes en las áreas de estacionamientos, el 50% del área impermeabilizada con este tipo de material, se debe contabilizar para el cálculo de cobertura.
+ARTÍCULO 188. Disposiciones específicas. Los establecimientos industriales y de almacenamiento del tipo inofensivos e incomodos, de conformidad con lo establecido en el Reglamento sobre Higiene Industrial, Decreto Ejecutivo N°11492-SPP, sus reformas o la normativa que los sustituya, deben acatar las siguientes restricciones:
+1) Cobertura máxima: de un 60% del área del predio. En caso que utilicen pavimentos drenantes en las áreas de estacionamientos, el 50% del área impermeabilizada con este tipo de material, se debe contabilizar para el cálculo de cobertura.
+2) Retiro frontal: de 6,00 m
+3) Retiros laterales y posteriores: 3,00 m de retiro cuando la altura de la edificación no supere los 5,00 m. Se debe aumentar 1,00 m adicional de retiro por cada metro en exceso de los 5,00 m de la altura de la edificación.
+4) Alturas: No tendrán limitación siempre que cumplan los retiros indicados en el inciso anterior. No obstante, las estructuras especiales tales como silos, chimeneas, tanques de agua o similares, pueden construirse con mayor altura, previa autorización del Ministerio de Salud y de la Dirección de Aviación Civil cuando corresponda.
 Lo anterior sin perjuicio de las disposiciones establecidas por las entidades competentes en materia ambiental.
+Para los establecimientos industriales y de almacenamiento ubicados dentro de la Gran Área Metropolitana, se debe cumplir las disposiciones del Reglamento de Zonificación parcial de Áreas Industriales en la GAM, Reglamento N°3623, sus reformas o normativa que lo sustituya.
+(Así reformado en sesión N° 6540 del 5 de mayo de 2022)

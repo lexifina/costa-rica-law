@@ -1,4 +1,4 @@
-Artículo 144. Usos permitidos en Urbanizaciones. Frente a calle pública igual o mayor a 14,00 m de derecho de vía, se permiten los siguientes usos:
+ARTÍCULO 144. Usos permitidos en Urbanizaciones. En predios que formen parte de un proyecto de urbanización, se permiten los siguientes usos frente a la vía principal de la misma, correspondiente al derecho de vía mayor, o frente a la calle pública cantonal que le brinda acceso a la urbanización.
 1) Educación preescolar, I y II ciclo
 2) Servicio básico de salud pública
 3) Edificaciones de atención y enseñanza para personas adultas mayores o con discapacidad
@@ -8,4 +8,4 @@ Artículo 144. Usos permitidos en Urbanizaciones. Frente a calle pública igual 
 7) Oficinas para servicios personales: Barbería, soda, lavandería, salón de belleza, cafetería
 8) Oficinas para servicios profesionales
 Estos predios deben cumplir con las normas establecidas para cada caso según el presente Reglamento. En caso de incumplimiento, la municipalidad puede rescindir la patente municipal.
-(Así reformado en sesión N° 6328 del 26 de julio de 2018)
+(Así reformado en sesión N° 6540 del 5 de mayo de 2022)
