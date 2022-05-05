@@ -1,0 +1,1 @@
+Artículo 24.-Cronograma de sesiones: una vez publicado el Decreto la Presidencia del CONEFOTEP, tendrá un plazo máximo de treinta días hábiles para definir el cronograma de sesiones requeridas durante el año 2022, para la puesta en marcha del SINEFOTEP. Al menos una de estas sesiones deberá ser de carácter ordinaria.

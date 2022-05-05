@@ -1,0 +1,1 @@
+Artículo 11.-Votaciones del Consejo. Los acuerdos del Consejo serán adoptados por mayoría absoluta de los miembros propietarios. En caso de empate, la Presidencia tendrá voto de calidad, de conformidad con lo dispuesto en el artículo 49 de la Ley General de la Administración Pública, No. 6227 del 2 de mayo de 1978.

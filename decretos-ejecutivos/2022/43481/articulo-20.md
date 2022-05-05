@@ -1,0 +1,1 @@
+Artículo 20.-Otros aportes. Se autoriza a las instituciones del Estado para destinar recursos, a la medida de sus posibilidades jurídicas y materiales, a fin de lograr los fines y principios del SINEFOTEP.

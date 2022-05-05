@@ -1,0 +1,1 @@
+Artículo 10.-Quórum del Consejo. El quórum necesario para que pueda sesionar válidamente el Consejo será el de la mayoría absoluta, conformado con la mitad más uno del total de sus miembros propietarios de conformidad con lo indicado en el artículo 53 de la Ley General de la Administración Pública, No. 6227 del 2 de mayo de 1978.

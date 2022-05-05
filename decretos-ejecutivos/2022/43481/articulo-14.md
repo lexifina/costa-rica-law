@@ -1,0 +1,1 @@
+Artículo 14.-Coordinación General de la Secretaría Técnica. La Coordinación General, será asumida por la persona que ocupe el puesto de Sub-director (a) de la Dirección de Educación Técnica y Capacidades Emprendedoras del MEP, quién coordinará las tareas operativas y técnicas que dan sustento a la labor de la Secretaría Técnica y del CONEFOTEP.

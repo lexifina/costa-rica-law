@@ -1,0 +1,2 @@
+Artículo 9º-De las sesiones del Consejo. El Consejo sesionará de forma ordinaria una vez cada cuatro meses, en la fecha y hora que el propio órgano acuerde y extraordinariamente, cuando sea convocado por la persona que ejerza la Presidencia, con una antelación de al menos 48:00 horas hábiles del inicio de la sesión.
+Para reunirse en sesión extraordinaria deberá existir una convocatoria a través del medio señalado por cada uno de los miembros del Consejo para notificaciones y debe estar acompañada de la orden del día.
