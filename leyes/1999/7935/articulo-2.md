@@ -2,7 +2,8 @@ CAPÍTULO II
 DEFINICIONES
 ARTÍCULO 2.- Definiciones
 Para los efectos de esta ley, se definen los siguientes términos:
-Persona adulta mayor: Toda persona de sesenta y cinco años o más.
+Persona adulta mayor: toda persona de sesenta y cinco años o más y toda persona con síndrome de Down mayor de cuarenta años.
+(Así reformada la definición anterior por el artículo 1° de la ley N° 10177 del 25 de abril de 2022)
 Acreditación: Reconocimiento formal de la competencia de una institución, organización o persona física para realizar tareas o tipos de tareas específicas, relacionadas directamente con la temática de la persona adulta mayor.
 Atención integral: Satisfacción de las necesidades físicas, materiales, biológicas, emocionales, sociales, laborales, productivas y espirituales de las personas adultas mayores. Para facilitarles una vejez plena y sana, se considerarán sus hábitos, capacidades funcionales y preferencias.
 Ayudas técnicas: Elementos que una persona con discapacidad requiere para mejorar su funcionalidad y garantizar su autonomía.
