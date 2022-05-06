@@ -15,3 +15,4 @@ Manual de políticas y procedimientos (Compra de bienes y/o servicios)
 | --- | --- | --- |
 | 1 | 2021-05-06 | la propia norma |
 | 2 | 2021-05-27 | Acuerdo 50 (2021-05-27) |
+| 3 | 2022-05-06 | Reglamento 25 (2022-05-06) |
