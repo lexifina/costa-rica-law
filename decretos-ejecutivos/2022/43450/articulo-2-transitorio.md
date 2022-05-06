@@ -1,0 +1,1 @@
+Transitorio II.-Los actuales miembros de la plataforma consultiva serán parte de los grupos de trabajo creados por la Comisión Multinivel, en un plazo de dos meses, para lo cual el jerarca del Ministerio de Salud hará la convocatoria pertinente.
