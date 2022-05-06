@@ -17,4 +17,8 @@ No obstante, en caso de empate, el presidente del comité tendrá voto de calida
 (Así adicionado el párrafo anterior por el artículo 1° de la Ley contra el adultocentrismo en los Comités Cantonales de la Persona Joven, N° 9735 del 4° de setiembre del 2019)
 Cada comité cantonal de la persona joven deberá presentar anualmente un informe de labores detallado sobre su gestión y el uso de los recursos públicos como mecanismo de rendición de cuentas.
 (Así adicionado el párrafo anterior por el artículo 1° de la Ley contra el adultocentrismo en los Comités Cantonales de la Persona Joven, N° 9735 del 4° de setiembre del 2019)
+Cada municipalidad estará facultada para nombrar a una persona funcionaria municipal, del área administrativa, quien fungirá como enlace municipal entre el comité cantonal de la persona joven y las instancias, departamentos o áreas municipales, para brindar asesoramiento, capacitación y acompañamiento para el desarrollo, la ejecución e implementación de los proyectos, planes o programas del comité cantonal de la persona joven.
+(Así adicionado el párrafo anterior por el artículo único de la ley N° 10251 del 6 de mayo del 2022)
+Este enlace municipal no formará parte de la integración de los comités cantonales de la persona joven.
+(Así adicionado el párrafo anterior por el artículo único de la ley N° 10251 del 6 de mayo del 2022)
 (Así reformado por el artículo 10° de la ley N° 9155 del 3 de julio del 2013)
