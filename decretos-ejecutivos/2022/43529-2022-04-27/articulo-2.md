@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. El presente decreto aplica al Ministerio de Hacienda como rector del Programa, las entidades públicas y privadas involucradas en el mercado de valores y participantes suscritos al Programa.

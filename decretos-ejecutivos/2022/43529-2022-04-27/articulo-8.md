@@ -1,0 +1,1 @@
+Artículo 8. Difusión y divulgación. Los términos, condiciones y entidades aprobadas del Programa de Creadores de Mercado para la deuda interna del Ministerio de Hacienda, estarán disponibles en la página web del este Ministerio. Además, se comunicarán mediante un Hecho Relevante.

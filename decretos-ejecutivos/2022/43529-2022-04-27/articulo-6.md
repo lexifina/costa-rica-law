@@ -1,0 +1,1 @@
+Artículo 6. Reglas del Negocio. El Ministerio de Hacienda publicará al medio financiero las reglas del negocio para el Programa de Creadores de Mercado para la deuda interna del Ministerio de Hacienda, con el fin de normar el funcionamiento del programa, las cuales estarán disponibles en su sitio web.

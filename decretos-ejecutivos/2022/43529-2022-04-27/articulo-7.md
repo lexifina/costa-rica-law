@@ -1,0 +1,1 @@
+Artículo 7. Requisitos de acceso de los participantes del Programa. El Ministerio de Hacienda mediante una Directriz, emitirá los requisitos que deben cumplir las entidades participantes del Programa y tales requisitos serán parte de las Reglas de Negocio del Programa.
