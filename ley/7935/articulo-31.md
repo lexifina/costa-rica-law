@@ -8,3 +8,5 @@ b) Fomentar el desarrollo de programas de capacitación para que las personas ad
 c) Asesorar a las personas adultas mayores para que puedan tener acceso a fuentes blandas de financiamiento. Se dará preferencia a las que otorgan cooperaciones financieras no reembolsables.
 d) Organizar una bolsa de trabajo mediante la cual se identifiquen actividades laborales que puedan ser desempeñadas por las personas adultas mayores y orientarlas para que presenten ofertas de trabajo.
 e) Impulsar programas de preparación para la jubilación en los centros de trabajo públicos y privados.
+f) Desarrollar acciones de orientación y guía para organizaciones públicas y privadas, a fin de realizar las adaptaciones necesarias a los puestos de trabajo de las personas adultas mayores con discapacidad, en coordinación con el órgano rector y el Consejo Nacional de Personas con Discapacidad (Conapdis).
+(Así adicionado el inciso anterior por el artículo 5° de la ley N° 10177 del 25 de abril de 2022)
