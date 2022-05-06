@@ -1,15 +1,12 @@
-Artículo 4º.- Los integrantes de la Junta durarán en sus cargos tres
-años y podrán ser reelectos por una sola vez. Serán designados por la
-Municipalidad del Cantón Central de Limón, de ternas que le presentarán
-las entidades y grupos señalados en el artículo anterior, salvo en lo que
-se refiere al propio representante de la Municipalidad, que será designado
-sin proposición de terna.
-Las funciones de los integrantes de la Junta serán desempeñadas
-gratuitamente.
-La Junta elegirá de su seno un presidente, para períodos de un año, y
-podrá reelegir a la persona que ocupe ese cargo. El Presidente será el
-representante de la Junta ante las entidades públicas y privadas con las
-que se relacione. Tendrá entre sus atribuciones primordiales convocar a
-la Junta, dirigir sus sesiones y velar porque se ejecuten sus acuerdos.
-El quórum para las sesiones de la Junta es de seis integrantes. Los
-acuerdos se tomarán por mayoría absoluta de los miembros presente.
+ARTÍCULO 4- Todas las personas integrantes de la Junta serán nombradas en sus cargos por un periodo de dos años y podrán ser reelegidas por una sola vez. Luego de fungir dos períodos consecutivos con un cargo en la Junta y descansar un por período podrán volver a ser relegidas. La designación de estas personas recae por acuerdo del Concejo Municipal de Limón, a más tardar en la tercera semana de julio de cada año par y entrarán en funciones el 1° de setiembre siguiente, de acuerdo con las propuestas que presentarán las entidades y los grupos señalados en el artículo anterior, salvo en lo que se refiere al nombramiento de la persona representante de la Municipalidad, que recibirá la designación, sin proposición de terna.
+Las funciones de las personas integrantes de la Junta serán desempeñadas gratuitamente.
+La Junta elegirá de su seno una presidencia, para todo el período (de dos años). La persona que se designe en la presidencia será representante de la Junta ante las entidades públicas y privadas con las que se relacione. Tendrá entre sus atribuciones primordiales:
+- Representarla jurídicamente en los casos que esta ley lo faculte y extraoficialmente.
+- Convocar a la Junta, dirigir sus sesiones y velar por que se ejecuten sus acuerdos.
+En caso de renuncia de una persona Integrante de la Junta por el mecanismo correspondiente, se efectuará la sustitución y tendrá vigencia por el periodo que reste. Si fuera la presidencia la que renuncie, le sustituirá en el cargo la vicepresidencia.
+Además de la presidencia, se nombrará una vicepresidencia, una secretaría, una tesorería y 4 vocalías. El Concejo Municipal de Limón reglamentará el funcionamiento de la Junta, de acuerdo con esta ley y los intereses locales en materia de cultura.
+La Junta sesionará dos veces al mes de forma ordinaria en la hora y día que acuerden, lo cual deben comunicar de previo al Concejo Municipal para su validez y eficacia. Las sesiones extraordinarias serán convocadas las veces que considere oportuno su presidencia o al menos tres personas miembros de esta. Para la validez y eficacia de las sesiones extraordinarias, sus miembros deben ser convocados con veinticuatro horas de antelación mediante correo electrónico.
+El cuórum para las sesiones de la Junta es de cuatro integrantes. Los acuerdos se tomarán por mayoría simple de los miembros presentes.
+El Gobierno Local, a través de sus mecanismos internos y de acuerdo con sus posibilidades presupuestarias, podrá establecer un contrato anual de servicios profesionales, para que la Junta pueda contar con un director ejecutivo que se encargue de su parte administrativa y operativa, de la administración de la Casa de la Cultura de Limón y cualquier otro mueble o inmueble que se le asigne. Esta persona debe demostrar formación y conocimiento en gestión cultural, investigación cultural, gestión y emprendimiento de proyectos culturales y conocimiento en alguna disciplina artística y con experiencia probada mínimo de un año en la gestión de proyectos culturales.
+Los recursos que el Gobierno Local asigne a la Junta tendrán un tope hasta de un diez por ciento (10%) para gastos administrativos, excepto que mediante acuerdo el Concejo Municipal permita ampliar ese tope por razones de oportunidad y conveniencia. El reglamento señalado regulará las funciones y responsabilidades de este funcionario y cualquier otro que sea contratado o designado para brindar servicios a la Junta o que vía convenio preste servicios en igual sentido.
+(Así reformado por el artículo 1° de la ley N° 10250 del 6 de mayo del 2022, “Reforma a la ley N° 6093 " Crea Junta Administradora Casa Cultura Limón", Creación de la Junta de Fomento de la Pluriculturalidad”)

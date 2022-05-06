@@ -1,5 +1,3 @@
-Artículo 6º.- Autorízase a la Municipalidad del Cantón Central de
-Limón, lo mismo que a todas las entidades públicas de esa provincia, para
-destinar, de su presupuesto ordinario, los fondos o partidas necesarios
-para la remodelación, el acondicionamiento y el mantenimiento de la "Casa
-de la Cultura de Limón".
+ARTÍCULO 6- Se autoriza a la Municipalidad del cantón Central de Limón para que brinde apoyo financiero a la Junta a través de sus presupuestos, tanto ordinario como extraordinarios y modificaciones para desarrollar sus planes, programas y proyectos.
+Asimismo, se autoriza a todas las entidades públicas del Estado para que destinen, de sus presupuestos, los fondos o las partidas para que sean utilizados en la remodelación, el acondicionamiento y el mantenimiento de la Casa de la Cultura de Limón y otros inmuebles a cargo de la Junta, así como para apoyar sus planes, proyectos y programas.
+(Así reformado por el artículo 1° de la ley N° 10250 del 6 de mayo del 2022, “Reforma a la ley N° 6093 " Crea Junta Administradora Casa Cultura Limón", Creación de la Junta de Fomento de la Pluriculturalidad”)

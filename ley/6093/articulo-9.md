@@ -1,4 +1,2 @@
-Artículo 9º.- El Poder Ejecutivo reglamentará la presente ley, en lo
-relativo al funcionamiento de la Junta Administradora, dentro de los
-sesenta días siguientes a su publicación, para lo cual la Municipalidad
-del Cantón Central de Limón presentará un proyecto de decreto.
+ARTÍCULO 9- El Concejo Municipal de Limón acordará el respectivo reglamento autónomo de organización y funcionamiento de la Junta de acuerdo con la presente ley, dentro de los noventa días siguientes a su publicación. Una vez acordado el reglamento se publicará una vez en el diario oficial La Gaceta, para que las personas u organizaciones interesadas hagan sus observaciones, las cuales serán consideradas por el Concejo Municipal y tomará el acuerdo de reglamento autónomo definitivo, el cual se volverá a publicar en el diario oficial La Gaceta, para que entre en vigencia.
+(Así reformado por el artículo 1° de la ley N° 10250 del 6 de mayo del 2022, “Reforma a la ley N° 6093 " Crea Junta Administradora Casa Cultura Limón", Creación de la Junta de Fomento de la Pluriculturalidad”)

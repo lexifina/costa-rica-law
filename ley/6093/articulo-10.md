@@ -1,1 +1,6 @@
-Artículo 10.- Rige a partir de su publicación
+ARTÍCULO 10- Con la participación de las organizaciones culturales del cantón, reconocidas por el Concejo Municipal de Limón y dirigido por la Junta, se constituirá una vez al año, en el Taller de Planificación del Fomento de las Manifestaciones de la Pluriculturalidad Limonense con las siguientes funciones:
+a) Revisar la política cantonal en materia de cultura, la normativa, los planes, programas y proyectos; además, hacer propuestas de mejora al Gobierno Local y la Junta.
+b) Propondrán ante el Concejo Municipal de Limón una nómina de dos representantes a la Junta de Fomento de la Pluriculturalidad Limonense y sus Manifestaciones, de acuerdo con el artículo 3 de esta ley.
+c) Realizarán un análisis y las propuestas sobre los resultados de la semana dedicada al Fomento de la Pluriculturalidad Limonense y sus Manifestaciones.
+d) Para integrar el Taller de Planificación del Fomento de las Manifestaciones de la Pluriculturalidad Limonenses, cada organización cultural contará con la participación de dos personas. Ninguna persona podrá ostentar más de una representación de un grupo cultural. El taller lo dirigirá la presidencia de la Junta y las propuestas se acordarán por mayoría simple de los presentes.
+(Así reformado por el artículo 1° de la ley N° 10250 del 6 de mayo del 2022, “Reforma a la ley N° 6093 " Crea Junta Administradora Casa Cultura Limón", Creación de la Junta de Fomento de la Pluriculturalidad”)

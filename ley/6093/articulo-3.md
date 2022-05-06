@@ -1,15 +1,11 @@
-Artículo 3º.- La Junta estará integrada así:
-a) Un delegado de la Municipalidad del Cantón Central de Limón;
-b) Un representante del Centro de Recreación y Formación Juvenil de
-Limón;
-c) Un representante del Taller Artístico de Limón;
-ch) Un representante de la Asociación de Estudiantes de Segunda
-Enseñanza de Limón;
-d) Un representante del Comité Regional de Desarrollo de la provincia
-de Limón;
-e) Un representante del Comité Cantonal de Deportes del Cantón Central
-de Limón;
-f) Un representante de las Organizaciones de Desarrollo Comunal del
-Cantón Central de Limón; y
-g) Un representante de los sindicatos de trabajadores del Cantón
-Central de Limón.
+ARTÍCULO 3- La Junta Directiva de la Junta será nombrada por el Concejo Municipal de Limón y estará integrada así:
+a) Un representante nombrado por el Concejo Municipal de Limón.
+b) Un representante joven de la terna presentada por la Junta Directiva del Comité Cantonal de la Persona Joven de Limón. Para ello, considerarán a todos los grupos juveniles de instituciones y organizaciones del cantón de Limón, quienes podrán enviar el currículo de candidatos jóvenes, para que sean considerados en la terna.
+Si se modificara la Ley General de la Persona Joven, Ley 8261, la recomendación de la terna la hará el ente correspondiente del cantón en materia de juventud y, si hubiera imposibilidad legal por parte de ente señalado, el Concejo Municipal tomará, mediante acuerdo de mayoría simple para decidir dicho nombramiento, una resolución para recibir la postulación de personas jóvenes para integrar la Junta.
+c) Dos representantes nombrados por el Taller de Planificación del Fomento de las Manifestaciones de la Pluriculturalidad Limonense, los cuales solo se ratificarán.
+En caso de imposibilidad material, por no haberse realizado el Taller supraseñalado o este no haber designado a los representantes indicados en este punto, el Concejo Municipal tomará una resolución para decidir dichos nombramientos, mediante acuerdo de mayoría simple, y poder recibir la postulación de personas del sector cultura para integrar la Junta.
+d) Un representante de la terna nombrada por la Junta Directiva del Comité Cantonal de Deportes y Recreación de Limón.
+Un representante de las asociaciones de desarrollo del cantón, para lo cual cada asociación que tenga interés presentará a un candidato y el Concejo Municipal decidirá. Cada asociación deberá adjuntar un correo oficial para coordinar la comunicación.
+f) Un representante del Ministerio de Cultura y Juventud, que preferentemente tenga participación en alguna instancia cultural del cantón central de Limón.
+En la integración de esta Junta se aplicará paridad de género y la alternancia de género.
+(Así reformado por el artículo 1° de la ley N° 10250 del 6 de mayo del 2022, “Reforma a la ley N° 6093 " Crea Junta Administradora Casa Cultura Limón", Creación de la Junta de Fomento de la Pluriculturalidad”)
