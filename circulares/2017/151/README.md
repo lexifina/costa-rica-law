@@ -13,3 +13,4 @@ Prioridad de ingreso a los Tribunales de Justicia del país a las personas usuar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-26 | la propia norma |
+| 2 | 2022-05-06 | Circular 71 (2022-05-06) |
