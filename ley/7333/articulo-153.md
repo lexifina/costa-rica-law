@@ -1,12 +1,6 @@
-ARTICULO 153.- El Jefe de la Defensa Pública o quien este designe,
-gestionará ante la autoridad correspondiente, la fijación y el cobro de
-los honorarios por los servicios prestados.
-Constituirá título ejecutivo, la certificación que se expida sobre
-el monto de los honorarios a cargo del imputado. De oficio, la autoridad
-que conoce del proceso ordenará el embargo de bienes del deudor, en
-cantidad suficiente para garantizar el pago de los honorarios. El
-defensor a quien corresponda efectuar las diligencias de cobro ejercerá
-todas las acciones judiciales o extrajudiciales necesarias para hacerlo
-efectivo.
-(Así reformado por el artículo 6º de la Ley de Reorganización
-Judicial No.7728 de 15 de diciembre de 1997)
+Artículo 153- La Jefatura de la Defensa Pública o quien esta designe gestionará ante la autoridad judicial o administrativa correspondiente la fijación y el cobro de los honorarios por los servicios prestados, en el momento que la persona usuaria prescinda de sus servicios y las costas cuando el proceso que se está tramitando finalice con sentencia firme. Estos extremos podrán ser cobrados, según corresponda, a las personas usuarias con recursos económicos demostrados para cancelarlos o a la contraparte vencida.
+La certificación que expida la autoridad correspondiente sobre el monto de los honorarios o costas constituirá título ejecutivo. De oficio o a solicitud de parte, la autoridad que conoce del proceso ordenará que se brinde una garantía preventiva de carácter real o pecuniaria suficiente mientras el proceso esté en trámite y finalizado este se ordene el embargo de bienes del deudor, en cantidad suficiente para garantizar el pago de los dineros adeudados a la Defensa Pública.
+El defensor a quien corresponda efectuar las diligencias para el pago de los honorarios y/o costas únicamente deberá realizar gestiones instando a la parte a que cumpla con el debido pago de los honorarios y/o costas ya fijadas por la autoridad. En caso de que la persona obligada se niegue a realizar el pago, el defensor a cargo del proceso realizará el cobro dentro del mismo proceso. Si por la naturaleza del proceso esto no es posible, lo informará a la Jefatura de la Defensa Pública para trasladarlo a la Dirección Jurídica del Poder Judicial, a fin de que esta valore, con base en los principios de razonabilidad y proporcionalidad, la procedencia de realizar el proceso de cobro judicial. De estimarlo procedente, lo enviará a la Procuraduría General de la República, para que realice el cobro correspondiente a favor de la Defensa Pública.
+En los procesos en que participe la Defensa Pública deberá solicitarse la condenatoria en costas y/o honorarios a favor de esta, siempre que proceda. Cuando se produzca la condenatoria, los recursos se destinarán al financiamiento y fortalecimiento de la sección especializada que genere el ingreso, conforme lo dispongan las leyes para cada materia. La persona defensora pública o abogada de asistencia social podrá renunciar al cobro de honorarios y/o costas que correspondan a la institución, cuando sea pertinente para facilitar la resolución alterna del conflicto, según su criterio técnico, avalado por quien la Jefatura de la Defensa Pública indique.
+La fijación y el cobro de honorarios y costas para la materia laboral se regirán por las disposiciones del Código de Trabajo, Ley N° 2, de 27 de agosto de 1943, y sus reformas. que prevalecerán sobre lo aquí establecido.
+(Así reformado por el artículo 1° de la ley N° 10257 del 6 de mayo del 2022, “Reforma Ley Orgánica del Poder Judicial, para garantizar el financiamiento de las secciones especializadas de la defensa pública”)
