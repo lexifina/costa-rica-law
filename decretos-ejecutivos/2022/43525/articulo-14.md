@@ -1,0 +1,1 @@
+Artículo 14° -Derogatoria. Se deroga el Decreto Ejecutivo N° 38994-MP-PLAN-MICITT del 29 de abril de 2015, denominado Fomento del Gobierno Abierto en la Administración Pública y Creación de la Comisión Nacional para un Gobierno Abierto.

@@ -1,0 +1,1 @@
+Artículo 12° -Observadores. La CNEA podrá invitar como observadores a organizaciones, grupos o instituciones que, a criterio de consenso por parte de los integrantes de la Comisión, pueda resultar de interés estratégico en beneficio de la población. Los observadores podrán tener voz, pero no voto en los acuerdos de la Comisión.

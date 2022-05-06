@@ -1,0 +1,14 @@
+Artículo 5° -Funciones de la Comisión Nacional para un Estado Abierto. En aras de fomentar la cultura y la educación de ciudadanía con base a los principios de Gobierno Abierto, la CNEA tendrá las siguientes funciones:
+a) Proponer políticas, lineamientos, estrategias y planes de acción en materia de Estado Abierto en conjunto con la Administración Pública que apoyen y fomenten la utilización de las tecnologías de información y comunicación.
+b) Articular los esfuerzos necesarios con las instancias correspondientes para la implementación de los principios de Gobierno Abierto y compromisos de Estado Abierto en la gestión pública.
+c) Proponer las metodologías e instrumentos de seguimiento a los planes de acción de Estado Abierto.
+d) Promover el acercamiento e intercambio entre diversos actores a nivel nacional para promover el Estado Abierto.
+e) Incentivar relaciones con organizaciones internacionales para la promoción e implementación de los principios de Gobierno Abierto.
+f) Propiciar la generación de instancias de reflexión que desarrollen el conocimiento y las capacidades de gestión sobre los principios de Gobierno Abierto en el país.
+g) Coadyuvar para la correcta implementación del Convenio Marco de Estado Abierto, con el fin de consolidar los principios de Gobierno Abierto en toda la Administración Pública.
+h) Rendir cuentas sobre el cumplimiento de sus funciones al menos una vez al año de manera pública, además de difundirse en las redes sociales y en la página web de Gobierno Abierto Costa Rica. Asimismo, se deberá emitir informes sobre los avances en la implementación de los planes de acción e informes finales de evaluación sobre la implementación de los planes de acción de Estado Abierto, los cuales estarán disponibles en la página web de Gobierno Abierto Costa Rica o la plataforma creada al efecto.
+i) Crear equipos de trabajo para atender las funciones específicas responsabilidad de la CNEA.
+j) Dar seguimiento al cumplimiento de lo establecido en este Decreto, para lo cual habilitará una cuenta electrónica y dará debida divulgación.
+k) Convocar a las organizaciones, redes y colectivos sociales interesadas en integrar la Comisión Nacional para un Estado Abierto de parte de la sociedad civil.
+l) Nombrar las representaciones de organizaciones sociales, sector privado y sector académico que integran la Comisión Nacional de Datos Abiertos, de conformidad con el artículo 8 in fine del Decreto Ejecutivo No 40199 del 27 de abril de 2017 y sus reformas, en procura de la selección de perfiles capacitados y conocimiento acreditado en materia de datos abiertos.
+m) Coordinar con el Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones las acciones para promover los principios de Gobierno Abierto y la utilización de los datos abiertos como herramienta para la trasparencia y rendición de cuentas en el marco del desarrollo del Gobierno Digital.
