@@ -14,3 +14,4 @@ Reglamento para la selección y valoración de candidatos para cargos del órgan
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-29 | la propia norma |
+| 2 | 2022-05-07 | Decreto Ejecutivo 43541 (2022-05-07) |

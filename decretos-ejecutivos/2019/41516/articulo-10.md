@@ -1,3 +1,6 @@
-ARTÍCULO 10. Perfil del Cargo
-En el momento de preparar el cronograma y listado de nombramientos a efectuar, el Consejo
-de Gobierno o el Poder Ejecutivo, solicitará a la Unidad Asesora la elaboración del perfil de los cargos a seleccionar. Para ello, la Unidad Asesora deberá verificar la vigencia de los requerimientos exigidos por la normativa aplicable, incluyendo no solo los requisitos, sino también las incompatibilidades relevantes, así como indicaciones generales de idoneidad que emanen del Presidente de la República (Poder Ejecutivo) y del Consejo de Gobierno.
+ARTÍCULO 10. Actualización del registro de elegibles
+El registro de elegibles deberá ser actualizado en su totalidad al menos cada dos años, para lo cual la Unidad Asesora llevará el control sobre la antigüedad de este, de acuerdo con lo indicado en el artículo 12 del Decreto Ejecutivo Nº 40696-MP "Creación de la Unidad Asesora para la Dirección y Coordinación de la propiedad Accionaria del Estado y de la Gestión de las Instituciones Autónomas" del 23 de octubre de 2017.
+Todas las personas que tengan un perfil registrado en el sitio web deberán actualizar la información en el periodo bianual indicado, de lo contrario, su perfil será eliminado de oficio.
+La Unidad Asesora deberá advertir a cada persona, con antelación y mediante el correo electrónico aportado en cada perfil, sobre la llegada del tiempo de actualización, su plazo de vencimiento, y recordar la consecuencia para el candidato en caso de no actualizar el perfil.
+En razón del interés público que significa el formar parte de una junta directiva de empresas propiedad del Estado, las personas que hayan sido nombradas en juntas directivas mediante el presente mecanismo de selección, estarán obligadas a realizar anualmente la actualización indicada en el párrafo anterior.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 43541 del 7 de mayo de 2022, que lo traspaso del antiguo artículo 9 al 10)

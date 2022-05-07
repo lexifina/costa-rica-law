@@ -1,3 +1,3 @@
-ARTÍCULO 8. Registro de Elegibles
-Una vez que la Unidad Asesora proceda con el análisis de la información incluida por cada oferente en el formulario, compilará un registro de elegibles considerando a los oferentes que cumplan con los requisitos y con el perfil del cargo para la entidad.
-Este registro deberá ser de acceso público y actualizarse durante el primer trimestre de cada año o bien cuando sobrevengan vacantes, sin perjuicio de que este se mantenga abierto para la inclusión de candidatos permanentemente. Los integrantes del registro de elegibles serán considerados para los cargos a los que se ofrezcan, lo cual se hará constar en el expediente de cada candidato.
+ARTÍCULO 8. Análisis de información y compilación de registro de elegibles
+A efecto de recibir las expresiones de interés de los posibles candidatos, la Unidad Asesora podrá desarrollar directamente el proceso de reclutamiento, o bien podrá requerir la contratación de una empresa reclutadora con la experiencia necesaria en este tipo de labores, para desarrollar el registro.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 43541 del 7 de mayo de 2022, que lo traspaso del antiguo artículo 7 al 8)

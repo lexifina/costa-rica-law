@@ -1,5 +1,5 @@
-CAPÍTULO III
-Trámite ante el Consejo de Gobierno
-ARTÍCULO 16. Presentación de candidatos
-El informe final al Consejo de Gobierno será remitido a sus miembros con al menos una semana de antelación a la sesión del Consejo de Gobierno donde se realizará el nombramiento correspondiente, para valorar el informe y los atestados de cada candidato y realizar la designación en un plazo razonablemente oportuno. Es deseable que la designación del funcionario se realice con un mes de antelación a la fecha en que deba asumir el cargo.
-En casos excepcionales, los plazos de este artículo pueden ser reducidos.
+ARTÍCULO 16. Informe final al Consejo de Gobierno
+Una vez identificados los candidatos cuyos atestados coinciden con el perfil del cargo, la Unidad Asesora preparará su informe final para que el Consejo de Gobierno o el Poder Ejecutivo, haga la designación correspondiente.
+Este informe indicará la totalidad de perfiles analizados, la calificación otorgada a cada uno de los perfiles de acuerdo con lo establecido en el presente Decreto y los criterios aprobados por el Consejo de Gobierno, así como cualquier otra información que el Consejo de Gobierno le solicite, o que la Jefatura de la Unidad Asesora considere pertinente incorporar. La Unidad Asesora comunicará en el informe la nómina de candidatos compuesta por los perfiles mejor calificados durante el proceso, en orden descendente.
+La Unidad Asesora distribuirá una copia electrónica del expediente de cada evaluación, sin excluir a ningún potencial candidato, excepto por lo indicado en el artículo 11 y en el artículo 14, inciso II del presente decreto.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 43541 del 7 de mayo de 2022, que lo traspaso del antiguo artículo 15 al 16)

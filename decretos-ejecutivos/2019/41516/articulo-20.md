@@ -1,2 +1,4 @@
-ARTÍCULO 20. Vigencia. Rige a partir de su publicación.
-Dado en la Presidencia de la República. —San José, a los dieciséis días del mes de agosto de 2019.
+ARTÍCULO 20. Revisión y adecuación de los procedimientos de selección y valoración de candidatos en subsidiarias de las empresas propiedad del Estado.
+Los jerarcas de las empresas propiedad del Estado que cuenten con subsidiarias, promoverán de inmediato la revisión y adecuación de los procedimientos de selección y valoración de candidatos para los cargos del órgano de dirección de dichas entidades, a lo indicado a este decreto. Este proceso tendrá como objetivo garantizar la existencia de un procedimiento equivalente al dispuesto en este Reglamento e inspirado por los mismos principios.
+La Unidad Asesora queda facultada para que, además de las funciones propias definidas en este Reglamento, pueda brindar, en la medida de sus capacidades técnicas, asesoramiento a las subsidiarias de empresas propiedad del Estado en el desarrollo de instrumentos de selección equivalentes. También queda facultada para llegar a convenios con las empresas propietarias de subsidiarias para compartir las herramientas de uso de la Unidad, dentro del marco legal existente.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 43541 del 7 de mayo de 2022, que lo traspaso del antiguo artículo 19 al 20)

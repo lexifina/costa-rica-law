@@ -1,3 +1,6 @@
-ARTÍCULO 6. Cronograma de nombramientos
-La jefatura de la Unidad Asesora preparará al inicio de cada semestre un cronograma con el listado de los nombramientos que se deben realizar en el semestre siguiente. Este cronograma deberá establecer además de las fechas máximas para el nombramiento de cada cargo, las fechas meta para el cumplimiento de cada una de las etapas en el proceso de selección, de valoración de candidatos, y de presentación de propuestas al Consejo de Gobierno y al Poder Ejecutivo.
-Este cronograma será coordinado según corresponda, con la Secretaría del Consejo de Gobierno, por medio su Secretario o Secretaria; o con el despacho del Presidente de la República (Poder Ejecutivo) para efecto de su validación.
+CAPÍTULO II
+Procedimiento de selección y valoración de candidatos
+ARTÍCULO 6. Coordinación del proceso de selección y asesoramiento técnico.
+La coordinación del proceso de selección y asesoramiento estará a cargo de la Unidad Asesora. La Jefatura de esta Unidad debe coordinar con la Secretaría del Consejo de Gobierno a efectos de lograr una inclusión adecuada, efectiva, y oportuna de estos asuntos en la agenda del Consejo.
+En el caso de los nombramientos que son de competencia del Poder Ejecutivo, esta coordinación se efectuará con el despacho del Presidente de la República y el Ministro correspondiente.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 43541 del 7 de mayo de 2022, que lo traspaso del antiguo artículo 5 al 6)
