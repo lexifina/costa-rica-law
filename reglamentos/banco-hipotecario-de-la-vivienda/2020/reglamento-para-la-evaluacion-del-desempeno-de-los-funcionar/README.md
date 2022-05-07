@@ -14,3 +14,4 @@ Reglamento para la evaluación del desempeño de los funcionarios del Banco Hipo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-20 | la propia norma |
+| 2 | 2022-05-07 | Reglamento 36 (2022-05-07) |
