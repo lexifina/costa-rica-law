@@ -367,10 +367,10 @@ Atención al público servicios sanitarios del mercado
 . El servicio se presta durante el mismo horario de mercado.
 CONTABILIDAD
 Devolución de timbres por traspasos en el registro
-. Solicitud por escrito de la devolución, indicando lugar para notificaciones.
-. Fotocopia de la Escritura del traspaso
-. Fotocopia de los enteros pagados
-. Analizada la solicitud, dicha devolución estará tramitada en un término de 15 días hábiles.
+. (Derogado mediante sesión N° 172-2022 del 9 de mayo del 2022).
+. (Derogado mediante sesión N° 172-2022 del 9 de mayo del 2022).
+. (Derogado mediante sesión N° 172-2022 del 9 de mayo del 2022).
+. (Derogado mediante sesión N° 172-2022 del 9 de mayo del 2022).
 Solicitud de certificación de estar al día
 en el pago de los tributos municipales
 . Encontrarse al día con el pago de tributos.
