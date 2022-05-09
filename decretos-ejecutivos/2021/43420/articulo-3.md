@@ -1,0 +1,1 @@
+Artículo 3º-En todo lo demás, el Decreto Ejecutivo N° 29479-C, "Reglamento de Adquisición de Obras de Arte por parte de las Instituciones Estatales", del 18 de abril de 2001, publicado en el Diario Oficial La Gaceta N° 94 del 17 de mayo de 2001, se mantienen incólumes.
