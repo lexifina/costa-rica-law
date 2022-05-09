@@ -22,3 +22,4 @@ Trámites y requisitos de la Municipalidad del cantón Central de Heredia Ley N�
 | 7 | 2021-11-30 | Reglamento municipal 134 (2021-11-30) |
 | 8 | 2021-12-24 | Reglamento municipal 0 (2012-03-16) |
 | 9 | 2022-02-28 | Reglamento municipal 154 (2022-02-28) |
+| 10 | 2022-05-09 | Acuerdo municipal 172 (2022-05-09) |
