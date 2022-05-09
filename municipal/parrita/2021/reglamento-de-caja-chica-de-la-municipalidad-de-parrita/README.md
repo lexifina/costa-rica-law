@@ -14,3 +14,4 @@ Reglamento de caja chica de la Municipalidad de Parrita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-06 | la propia norma |
+| 2 | 2022-05-09 | Reglamento municipal 84 (2022-05-09) |
