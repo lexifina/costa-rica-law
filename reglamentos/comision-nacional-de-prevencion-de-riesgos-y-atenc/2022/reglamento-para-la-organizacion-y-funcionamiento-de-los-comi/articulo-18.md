@@ -1,0 +1,1 @@
+Artículo 18.-Registro de bienes: Es responsabilidad de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, por medio de la oficina competente en el área administrativa, mantener el control e inventario de todos los bienes asignados a los comités.

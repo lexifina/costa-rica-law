@@ -1,0 +1,1 @@
+Artículo 26.-Derogaciones: Deróguese el Reglamento vigente denominado "Reglamento de Organización y Funcionamiento de los Comités Regionales, Municipales y Comunales de Emergencia" Aprobado mediante acuerdo de Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias Nº 123-2009 y publicado en La Gaceta Nº 172 del 03 de setiembre del 2009.

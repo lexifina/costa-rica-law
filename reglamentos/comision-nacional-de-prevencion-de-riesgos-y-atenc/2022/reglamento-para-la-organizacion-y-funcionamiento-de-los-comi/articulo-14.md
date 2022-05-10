@@ -1,0 +1,1 @@
+Artículo 14.-Separación de los integrantes de los comités de emergencia por disposición del jerarca: Podrá sustituirse a un integrante de cualquiera de los comités por disposición del superior inmediato del integrante o el jerarca de la institución representada, en cuyo caso la designación de un nuevo representante deberá cumplir los requisitos señalados en este reglamento.
