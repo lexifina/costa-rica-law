@@ -1,1 +1,0 @@
-Artículo 38.—La Municipalidad promoverá, que toda entidad del cantón, en donde laboran más de diez personas o que genere calidades o cualidades de residuos diferentes a los de naturaleza domiciliaria, designe a una persona responsable del manejo discriminado de los residuos sólidos de conformidad con el presente reglamento.

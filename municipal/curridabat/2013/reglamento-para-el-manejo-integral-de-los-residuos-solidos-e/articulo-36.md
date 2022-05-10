@@ -1,1 +1,0 @@
-Artículo 36.—La Municipalidad no prestará servicio de recolección de los residuos peligrosos o bio-infecciosos, siendo el ente generador de ese tipo de desecho el responsable por tratamiento y disposición final, debiendo contratar un tercero que cumpla con el presente reglamento.

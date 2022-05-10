@@ -1,1 +1,0 @@
-Artículo 47.—La Dirección Financiera de la municipalidad actualizará las tasas de forma anual y de acuerdo a los enunciados de este capítulo. Además, la Dirección de Fiscalía Tributaria de la municipalidad instalará un sistema eficiente de cobro de la tasa por los servicios brindados.

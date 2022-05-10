@@ -1,1 +1,0 @@
-Artículo 22.—Queda terminantemente prohibido, que personas ajenas a la municipalidad se apropien de los residuos sólidos colocados para su recolección, para lo cual podrán ser sancionados conforme al capítulo IX del presente reglamento.

@@ -1,1 +1,0 @@
-Artículo 43.—La Dirección de Servicios Ambientales deberá incluir en cada Plan Anual Operativo el respaldo presupuestario de las actividades y necesidades relacionadas con la gestión integral de los residuos sólidos.

@@ -1,1 +1,0 @@
-Artículo 27.—Los grandes generadores de residuos sólidos, pueden contratar los servicios de recolección con una empresa privada, siempre que esta cumpla con los requisitos sanitarios contemplados en las leyes y reglamentos vigentes y además paguen licencia comercial ante la municipalidad.

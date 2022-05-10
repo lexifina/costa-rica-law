@@ -1,2 +1,0 @@
-Artículo 7º—La Municipalidad por medio de la Dirección de Servicios Ambientales programará la recolección discriminada en las comunidades del cantón de Curridabat.
-Para la recolección de los residuos no tradicionales de las viviendas, la Municipalidad programará la recolección a través de campañas que comunicará de forma adecuada los vecinos del cantón; no se incluyen en esta recolección los residuos provenientes de construcciones, remodelaciones o similares.

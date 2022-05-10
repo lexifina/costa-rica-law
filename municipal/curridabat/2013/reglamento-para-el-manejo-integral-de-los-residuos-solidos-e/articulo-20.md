@@ -1,1 +1,0 @@
-Artículo 20.—En la recolección de residuos de jardines sólo se recogerá zacate, hojas y tallos, en bolsas negras, así como ramas hasta un diámetro de 10 centímetros; los días y horas programados por la municipalidad.

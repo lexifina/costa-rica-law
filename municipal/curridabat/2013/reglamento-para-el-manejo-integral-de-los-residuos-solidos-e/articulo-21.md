@@ -1,1 +1,0 @@
-Artículo 21.—La Municipalidad coordinará la recolección de animales muertos con las medidas necesarias de salubridad y de ser necesario en vehículos especiales, sin embargo no debe mezclarse este tipo de residuos con los ordinarios húmedos o secos.

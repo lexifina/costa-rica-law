@@ -1,2 +1,0 @@
-Artículo 18.—Los generadores de residuos deben separar los materiales en los siguientes grupos: residuos sólidos secos (reciclables) y residuos sólidos húmedos (no reciclables) y colocarlos en el horario establecido por la municipalidad para su recolección.
-No deben colocarse en recipientes de residuos sólidos húmedos y secos, los residuos voluminosos, no tradicionales, especiales, peligrosos o bio-infecciosos.

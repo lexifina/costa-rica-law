@@ -1,1 +1,0 @@
-Artículo 30.—Se prohíbe entregar residuos de la industria alimenticia dentro de la recolección ordinaria de residuos, a no ser que se pague un importe adicional a la Municipalidad por el servicio especial de recolección.

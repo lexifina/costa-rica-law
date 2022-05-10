@@ -1,2 +1,0 @@
-Artículo 15.—Para garantizar la promoción, la divulgación y el manejo discriminados de los residuos sólidos húmedos y secos, la Municipalidad dotará dichas actividades del contenido presupuestario necesario para el impulso de las mismas, de conformidad con sus posibilidades presupuestarias.
-Igualmente, incorporará dentro del Plan Anual Operativo, todas las acciones relacionadas y tendientes al cumplimiento del presente Reglamento.

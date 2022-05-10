@@ -1,1 +1,0 @@
-Artículo 24.—Los grandes generadores de residuos, están obligados a separar y almacenar los residuos sólidos dentro de su propiedad o, en un lugar común con otros negocios o comercios, donde deben asegurarse condiciones adecuadas de higiene y seguridad, de acuerdo a la Ley N° 8839, a su reglamento, al presente reglamento y cualquier otra directriz emitida por la Municipalidad.

@@ -1,1 +1,0 @@
-Artículo 29.—Los vehículos públicos y privados utilizados para el transporte de residuos, deben reunir las condiciones exigidas por el Ministerio de Salud, para evitar la dispersión de los residuos, o el escurrimiento de lixiviados en el camino.

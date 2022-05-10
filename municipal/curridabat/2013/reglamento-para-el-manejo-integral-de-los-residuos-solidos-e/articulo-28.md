@@ -1,1 +1,0 @@
-Artículo 28.—En el caso de contratarse una empresa o transportista privado, el generador de los residuos debe demostrar a solicitud de la Dirección de Servicios Ambientales, el contrato y los documentos que permitan verificar la entrega de los residuos en un relleno sanitario, de conformidad con el artículo 12 de este reglamento.
