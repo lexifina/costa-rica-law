@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se declara de interés público la celebración de dicha actividad que se realiza en el marco del mes histórico de la afrodescendencia y la celebración del 31 de agosto como el Día de la Persona Negra y de la Cultura Afrocostarricense en la ciudad de Limón y se autoriza a las instituciones públicas para que contribuyan con su realización.
