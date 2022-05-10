@@ -1,0 +1,2 @@
+Artículo 18.-Participación de la Municipalidad
+Desde el inicio hasta la finalización de la audiencia, deberán participar tanto la Secretaría del Concejo como el Consultor. Asimismo, la Alcaldía y Vicealcaldía, así como las personas miembros del Concejo Municipal, procurarán asistir en su totalidad a la audiencia, tomando en consideración que la audiencia debe realizarse cumpliendo con el quórum de ley, de conformidad con su naturaleza de sesión extraordinaria del Concejo Municipal.

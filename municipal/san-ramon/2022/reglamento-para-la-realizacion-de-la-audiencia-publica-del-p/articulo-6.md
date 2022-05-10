@@ -1,0 +1,4 @@
+CAPÍTULO II
+Modalidad virtual
+Artículo 6º-Certificación de medios tecnológicos
+El Departamento de Tecnologías de la Información emitirá una certificación, indicando que la Municipalidad cuenta con los medios tecnológicos para llevar a cabo la audiencia pública de manera virtual.

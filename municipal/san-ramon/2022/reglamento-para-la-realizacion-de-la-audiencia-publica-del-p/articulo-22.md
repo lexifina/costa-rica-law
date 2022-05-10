@@ -1,0 +1,2 @@
+Artículo 22.-Informe de audiencia
+La Municipalidad determinará las personas, unidad o comisión, que junto con el Consultor serán responsables de rendir un informe de la audiencia pública, ante el Concejo Municipal. En dicho informe se deberá realizar la valoración de las observaciones verbales y escritas recibidas durante la audiencia pública, señalando aquellas que se estima conveniente incorporar, así como aquellas que se aconseja desestimar, indicándose en todo caso el sustento técnico.
