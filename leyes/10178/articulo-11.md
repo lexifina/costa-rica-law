@@ -1,0 +1,1 @@
+ARTÍCULO 11- Los particulares no podrán poner el escudo nacional en sus sellos privados, ni en marcas de comercio o de fábrica, ni en ninguna otra forma. La infracción de este articulo se castigará con las penas que señala el anterior.

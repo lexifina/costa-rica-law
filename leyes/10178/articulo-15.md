@@ -1,0 +1,2 @@
+ARTÍCULO 15- El pabellón nacional tendrá las siguientes medidas: dos metros de largo por un metro veinte centímetros de ancho y llevará estampado en colores el escudo nacional, en la franja roja, dentro de una elipse blanca de treinta centímetros en su eje mayor por veinte en el menor, cuyo centro quedará a sesenta centímetros del extremo del pabellón sujeto a la asta.
+Las dimensiones y características de sus accesorios serán reguladas reglamentariamente.

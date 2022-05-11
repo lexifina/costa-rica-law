@@ -1,0 +1,1 @@
+ARTÍCULO 8- Cuando deba ondear junto a la de otros estados o naciones lo hará de acuerdo con las normas y los usos internacionales que rigen esta materia en las relaciones entre Estados, así como las disposiciones y los reglamentos internos de las organizaciones intergubernamentales y las conferencias internacionales.

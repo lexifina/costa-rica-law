@@ -1,0 +1,2 @@
+ARTÍCULO 17- El día 12 de noviembre de cada año se celebrará el Día del Pabellón Nacional.
+Los centros educativos públicos y privados y las oficinas públicas rendirán honores especiales al pabellón nacional y podrán izarlo el dia fijado, y deberán instruir a la población sobre la historia, las características y el uso de este simbolo patrio. Igualmente, podrán izar el pabellón nacional, en este día, aquellos particulares que asi lo deseen, para lo cual deberán hacerlo con el respeto debido.

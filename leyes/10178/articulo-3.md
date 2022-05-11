@@ -1,0 +1,2 @@
+ARTÍCULO 3- La bandera de Costa Rica deberá ondear en el exterior y ocupar un lugar preferente en el interior de todos los edificios e instituciones públicas, y respetará las características establecidas en los artículos anteriores.
+De igual forma, deberá ondearse en los puertos de acceso y salida del país, indistintamente de que sean administrados por instituciones del Gobierno o se encuentren en concesión.

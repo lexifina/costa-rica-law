@@ -1,0 +1,1 @@
+ARTÍCULO 5- Se faculta a las entidades públicas, instituciones autónomas y municipalidades, cuyos estatutos reconozcan o tengan una bandera propia, a utilizarla conjuntamente con la bandera de Costa Rica, dándole un lugar de respeto y prioridad a esta
