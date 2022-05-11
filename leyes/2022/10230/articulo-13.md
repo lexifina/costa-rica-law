@@ -1,0 +1,2 @@
+ARTÍCULO 13- Incorporación de recursos en el presupuesto ordinario y extraordinario de la República
+Siendo que los recursos del contrato de préstamo N.º 2220 son única y exclusivamente para ser utilizados en la ejecución del "Proyecto de Abastecimiento de Agua para la Cuenca Media del Río Tempisque y Comunidades Costeras (Paacume)", se autoriza al Poder Ejecutivo para que incluya dichos recursos en el presupuesto ordinario y extraordinario de la República vigente mediante decreto ejecutivo.
