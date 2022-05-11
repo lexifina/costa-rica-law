@@ -1,0 +1,1 @@
+Artículo 5.- Acceso a la información pública contenida en los documentos. La información con carácter de interés público contenida en la documentación del Ministerio de Seguridad Pública, es aquella en la cual no existan restricciones constitucionales o legales que impidan el acceso a la misma.

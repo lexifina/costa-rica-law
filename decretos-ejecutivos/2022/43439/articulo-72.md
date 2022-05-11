@@ -1,0 +1,1 @@
+Artículo 72.- Derogatoria. Se deroga el Decreto N° 28340-S "Reglamento del Archivo Central del Ministerio de Seguridad Pública" del 22 de noviembre de 1999, publicado en la Gaceta N° 251 del 27 de diciembre de 1999.

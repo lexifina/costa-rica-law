@@ -1,0 +1,1 @@
+Artículo 51.- Acceso a la información para investigaciones. Las personas investigadoras que realicen trabajos con información del Departamento de Archivo Central, estarán obligados a entregar una copia del trabajo realizado para incorporarlo al patrimonio del mismo, si así se considera conveniente, de conformidad con la normativa archivística vigente.

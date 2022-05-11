@@ -1,0 +1,1 @@
+Artículo 40.- Disponibilidad. Garantizar la disponibilidad de los documentos que son requeridos para la correcta ejecución de los trámites de la institución, brindando un servicio de consulta de documentos que sea oportuno, eficiente y confiable a las personas usuarias internas y externas.

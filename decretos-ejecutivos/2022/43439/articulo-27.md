@@ -1,0 +1,1 @@
+Artículo 27.- Ordenación. Consiste en la organización de los fondos documentales, relacionando unos documentos con otros de acuerdo con un método establecido de antemano. Los métodos son: alfabético (onomástico, toponímico, asuntos o materias), cronológico, numérico, alfanumérico, geográfico.

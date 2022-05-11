@@ -1,0 +1,1 @@
+Artículo 30.- Selección. La selección es el proceso intelectual y material de identificación y localización de las series documentales que han de ser conservadas o eliminadas según los criterios establecidos a través de la valoración.

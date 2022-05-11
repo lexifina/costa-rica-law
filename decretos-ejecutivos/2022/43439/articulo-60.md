@@ -1,0 +1,3 @@
+Capítulo IV
+Personal del Departamento de Archivo Central
+Artículo 60.- Personal del Departamento de Archivo Central. La persona que ocupe el cargo del Jefe (a) del Departamento de Archivo Central, será un (a) profesional con la atinencia académica señalada por la Dirección General del Servicio Civil, a quien le corresponderá planificar, dirigir, coordinar, controlar, supervisar y evaluar las funciones archivísticas del Sistema Institucional de Archivos. Asimismo, deberá contar con personas profesionales y técnicas con la misma atinencia académica que señale la Dirección General del Servicio Civil y el personal administrativo de apoyo que requiera para cumplir sus competencias (chofer, secretaria (o) por ejemplo).

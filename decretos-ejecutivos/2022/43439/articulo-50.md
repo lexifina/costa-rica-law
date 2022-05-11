@@ -1,0 +1,1 @@
+Artículo 50. -Obligatoriedad de citar la fuente. Cuando la persona usuaria utilice reproducciones de documentos con fines de investigación y publicación, estará obligado a dar los créditos correspondientes al archivo del cual obtuvo la reproducción.

@@ -1,0 +1,6 @@
+Artículo 17.- Donación. El Departamento de Archivo Central podrá recibir la donación de documentos privados y particulares, en formato tradicional o digitales, para su custodia, organización y facilitación. Para ello se deberá observar lo siguiente:
+1) Recibida la oferta de donación y realizada una revisión preliminar de los documentos, el (la) Jefe (a) del Departamento Archivo Central, dispondrá respecto del visto bueno para la aceptación de la donación.
+2) De aceptarse la donación, se formalizará mediante un Contrato en el que se establecerán plazos de acceso y las condiciones pactadas entre las partes.
+3) Los documentos donados serán conservados y organizados en series, llevarán el nombre de la persona donante o de quien esta indicare, salvo su manifestación en contrario.
+4) La persona donante podrá establecer condiciones de restricción de acceso a los documentos donados, por un plazo máximo de 30 años contados a partir de la fecha de la donación.
+5) En caso de entrega de documentos públicos, en la asignación del nombre se respetará la denominación del fondo. A su vez, estos formarán parte del patrimonio documental de la institución y se les conservará, organizará y facilitará igual que a cualquier otra unidad, serie o fondo documental de la entidad, salvo que existan restricciones establecidas previamente.

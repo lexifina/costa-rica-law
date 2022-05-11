@@ -1,0 +1,1 @@
+Artículo 52.-Costos de las reproducciones. Cuando la persona usuaria requiera reproducciones deberá cancelar el costo de la reproducción y el monto de las especies fiscales u otros tributos establecidos en la legislación vigente, salvo aquellos trámites e instituciones que se encuentren exentas de estos pagos.

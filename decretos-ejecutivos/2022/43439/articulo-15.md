@@ -1,0 +1,3 @@
+Artículo 15.- Plazos de transferencia. Para establecer los plazos de transferencia documental se tomarán en cuenta los siguientes parámetros:
+1. Archivos de gestión: Los documentos permanecerán en las unidades productoras, de acuerdo con lo establecido en las tablas de plazos de conservación.
+2. Archivo central: Una vez cumplida la etapa anterior, los documentos se eliminarán o bien pasarán al Archivo Central, en donde permanecerán, de acuerdo con lo establecido en las tablas de plazos de conservación. Posteriormente serán transferidos al Archivo Nacional aquellos que tengan valor científico-cultural, previa determinación de la CNSED.

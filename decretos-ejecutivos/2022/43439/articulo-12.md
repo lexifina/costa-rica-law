@@ -1,0 +1,1 @@
+Artículo 12.-Reunir documentación. Es la acumulación sistemática de documentos producto de las funciones y actividades ejecutadas por las unidades administrativas y policiales, de acuerdo con los plazos y requisitos de transferencia que establece este Reglamento. La reunión de documentos se hará en los lugares adecuados para su conservación, sea esta física o digital.

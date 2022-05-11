@@ -1,0 +1,1 @@
+Artículo 65.- Denuncias Administrativas. La jefatura del Departamento de Archivo Central, deberá denunciar y dar seguimiento ante las instancias administrativas competentes, del incumplimiento de los deberes relativos a la administración de documentos, según lo señalado en el Reglamento a la Ley del Sistema Nacional de Archivos.

@@ -1,0 +1,4 @@
+Artículo 69.-Consultas a la CNSED. El CISED, podrá realizar sus consultas a través de los instrumentos, cuyo modelo y procedimiento de uso serán determinados por la CNSED:
+1) La tabla de plazos de conservación: es un instrumento en el que constan los tipos y series documentales producidos o recibidos en una oficina o institución, en el cual se anotan todas las características que exige el instrumento y se fija el valor administrativo y legal.
+2) Valoración parcial: se harán consultas parciales si se desea eliminar uno o varios tipos y series documentales que han perdido su valor administrativo y legal. La CNSED, determinará cuáles tipos y series documentales tienen valor científico-cultural y deben conservarse permanentemente y cuáles podrán eliminarse.
+3) Cualquier otro instrumento que la CNSED, determine.

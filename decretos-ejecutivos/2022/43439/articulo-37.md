@@ -1,0 +1,1 @@
+Artículo 37.- Informe anual. El Departamento de Archivo Central deberá rendir un informe anual a la Dirección General del Archivo Nacional, de las labores y evolución archivística de la institución de conformidad con lo establecido en la Ley del Sistema Nacional de Archivos y su Reglamento.

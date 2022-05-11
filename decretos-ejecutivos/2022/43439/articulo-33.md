@@ -1,0 +1,1 @@
+Artículo 33.- Tablas de plazos de conservación. El Departamento de Archivo Central deberá elaborar las tablas de plazos de conservación de la institución para someterla a conocimiento del Comité Institucional de Selección y Eliminación, para su aprobación y posterior remisión a la Comisión Nacional de Selección y Eliminación.

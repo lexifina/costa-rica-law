@@ -1,0 +1,1 @@
+Artículo 35.- Administración. Conjunto de operaciones administrativas y técnicas relacionadas con la planificación, dirección, organización, control, valoración y selección, conservación y servicio de todos los archivos de la institución.

@@ -1,0 +1,1 @@
+Artículo 18.- Conservación de los documentos. El objetivo específico es evitar, detener y reparar el deterioro y los daños de los documentos, incluyendo la aplicación de métodos y técnicas de preservación, digitalización y restauración.

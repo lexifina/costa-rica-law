@@ -1,0 +1,1 @@
+Artículo 57.- Equipamiento. Los archivos de gestión deberán contar con los materiales, el espacio, equipo y mobiliario suficientes, que permitan una adecuada preservación, integridad y contenido informativo de los documentos.

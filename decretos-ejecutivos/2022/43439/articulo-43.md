@@ -1,0 +1,1 @@
+Artículo 43.- Restricción de acceso. Los archivos de gestión institucional y el Departamento de Archivo Central, facilitarán la consulta de sus fondos documentales, a excepción de que existan restricciones constitucionales o legales.

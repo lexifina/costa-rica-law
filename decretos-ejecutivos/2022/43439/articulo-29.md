@@ -1,0 +1,1 @@
+Artículo 29.-Valoración. Es el proceso intelectual mediante el cual se analiza el valor administrativo, legal, científico, histórico y cultural de los documentos en las diferentes etapas de archivo, y se determina su conservación o eliminación, de acuerdo con lo establecido al respecto en el Reglamento la Ley del Sistema Nacional de Archivos.

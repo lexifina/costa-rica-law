@@ -1,0 +1,1 @@
+Artículo 48.- Facilitación de documentos con reproducción en otros soportes. Si los documentos originales se encuentran reproducidos en otro tipo de soporte legalmente reconocido, como la microfilmación o digitalización, por razones de seguridad y conservación, se facilitarán únicamente reproducciones.

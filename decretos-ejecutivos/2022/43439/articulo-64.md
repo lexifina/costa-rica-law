@@ -1,0 +1,1 @@
+Artículo 64.- Denuncias Judiciales. La jefatura del Departamento de Archivo Central, deberá denunciar y dar seguimiento, ante el Ministerio Público, la apropiación ilegal de documentos producidos en la institución y eliminación de documentos sin autorización de la CNSED, de conformidad con lo establecido al efecto en la Ley del Sistema Nacional de Archivos.

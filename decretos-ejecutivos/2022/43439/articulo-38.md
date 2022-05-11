@@ -1,0 +1,1 @@
+Artículo 38.- Coordinación. Dirigir, coordinar, asesorar y asistir técnicamente a los Archivos de Gestión de la institución, así como realizar inspecciones periódicas para garantizar su correcto funcionamiento.
