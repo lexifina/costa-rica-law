@@ -1,0 +1,2 @@
+ARTICULO 8- única Administración de los recursos conforme al principio de caja
+Los recursos del contrato de préstamo serán administrados de conformidad con el principio de caja única del Estado La Tesorería Nacional procederá a acreditar. De conformidad con los procedimientos establecidos, los desembolsos solicitados conforme a las disposiciones del contrato de préstamo N.º 2220 aprobado por esta ley, en una cuenta en caja única a favor del organismo ejecutor.

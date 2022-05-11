@@ -1,0 +1,2 @@
+ARTICULO 12- Exención de la aplicación del título IV de la Ley 9635
+Los gastos que se generen para el desarrollo del proyecto Paacume, incluidos todos aquellos que se realicen con los recursos del presente empréstito y con los recursos de contrapartida nacional, estarán exentos del ámbito de cobertura del título IV de la Ley 9635, de Fortalecimiento de las Finanzas Públicas, de 3 de diciembre de 2018.

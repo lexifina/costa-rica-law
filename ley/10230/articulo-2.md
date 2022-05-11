@@ -1,0 +1,2 @@
+ARTICULO 2- Organismo ejecutor
+El Servicio Nacional de Aguas Subterráneas Riego y Avenamiento (Senara), en su condición de organismo ejecutor será el responsable de velar por la dirección y supervisión del proyecto y cumplimiento de las condiciones del contrato a través de la Dirección Gestora del Proyecto (Digep), que será la responsable directa de la administración y el cumplimiento de los objetivos del proyecto.
