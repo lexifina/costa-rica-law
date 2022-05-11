@@ -1,0 +1,1 @@
+Artículo 21.- Relación de coordinación con la DGAC. La persona designada como encargada de la Secretaría del CETAC tendrá una relación de coordinación con la DGAC y ésta deberá garantizar que la Secretaría cuente con el personal idóneo para el ejercicio eficiente de sus funciones.

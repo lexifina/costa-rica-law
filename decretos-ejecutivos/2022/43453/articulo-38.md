@@ -1,0 +1,2 @@
+Artículo 38.-De la votación. La votación será pública, salvo que la presidencia disponga lo contrario o que se trate de la apreciación discrecional de cualidades o actividades de personas, o de asuntos que afecten seriamente el prestigio o el patrimonio de estas, en cuyo caso la votación será secreta.
+Las abstenciones o los votos en blanco se computarán para efectos de quórum y para determinar el número de votantes, pero no se podrán atribuir ni a la mayoría ni a la minoría.

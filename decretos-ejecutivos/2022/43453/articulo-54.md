@@ -1,0 +1,1 @@
+Artículo 54.- Deber de coordinación. La DGAC tiene el deber de coordinar y cooperar por medio de sus dependencias, no solo en la ejecución de los acuerdos del CETAC sino también en el cumplimiento de los diferentes procesos administrativos de forma que se cumpla el interés público de forma eficiente y oportuna.

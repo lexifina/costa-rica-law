@@ -1,0 +1,2 @@
+Artículo 10º-Prohibición. No podrá ser miembro del CETAC, quien sea socio, gerente o ejerza cualquier cargo de administración o representación en alguna empresa aeronáutica o cuya actividad sea objeto de regulación por la LGAC o haya sido objeto de un permiso o certificado de explotación que se encuentre vigente al día de su nombramiento o sea funcionario del MOPT, excepto el representante del jerarca de esa cartera.
+Asimismo, deberá de cumplir con lo establecido en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

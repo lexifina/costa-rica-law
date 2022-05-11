@@ -1,0 +1,2 @@
+Artículo 32.-Mociones. Los acuerdos del CETAC se tomarán con base en iniciativas o mociones, escritas o verbales, presentadas por los miembros proponentes. Las propuestas que se presenten verbalmente que no se refieren al tema objeto de deliberación, serán incluidas en el capítulo de asuntos de los directores.
+Las enmiendas a las mociones deben ser transmitidas verbalmente o por escrito a quien preside, antes de ser puestas a debate.

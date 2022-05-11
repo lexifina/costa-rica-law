@@ -1,0 +1,1 @@
+Artículo 60.-Eximiente de responsabilidad. Quienes razonen el voto negativo o se abstengan de votar debidamente, serán ajenos a las responsabilidades que competan en relación con el asunto particular para el cual ejercieron estas acciones.

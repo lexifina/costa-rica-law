@@ -1,0 +1,1 @@
+Artículo 25.- Periodicidad. El CETAC se reunirá en sesión ordinaria hasta un máximo de dos veces por semana y designará los días de las sesiones mediante acuerdo específico. Para celebrar las sesiones ordinarias no hará falta convocatoria especial, si los días fijados para sesionar lo son para todas las sesiones del año.

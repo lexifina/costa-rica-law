@@ -1,0 +1,1 @@
+Artículo 20.-Del personal administrativo: Para el cumplimiento de sus funciones la Secretaría contará con el espacio físico y el personal técnico y profesional necesario para el cumplimiento de sus funciones, los nombramientos del personal requerido serán competencia de quien ocupe la jefatura del proceso de Secretaría del CETAC.

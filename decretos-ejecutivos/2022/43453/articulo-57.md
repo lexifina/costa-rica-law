@@ -1,0 +1,5 @@
+Artículo 57.-Forma de resolver la revisión. Presentada una revisión y siendo admisible, la presidencia leerá el recurso y se procederá a deliberar únicamente sobre la procedencia o improcedencia de la revisión y no sobre el fondo del asunto, pues si esto último sucede será motivo para que la presidencia retire el uso de palabra a quien se apartara del motivo en discusión.
+El CETAC, por la misma mayoría de votos obtenida al dictarse el acuerdo objetado, decidirá si acepta o no la revisión.
+Admitida la revisión, el CETAC podrá deliberar de nuevo sobre el fondo del acuerdo objetado y resolverá por la misma mayoría indicada, si revoca dicho acuerdo, lo modifica o lo confirma. También podrá demorar la discusión, la resolución o ambos trámites, para otra sesión, quedando entre tanto en suspenso la ejecución del acuerdo recurrido; no así el resto de los acuerdos aprobados en esa sesión.
+Denegada la revisión, se continuará conforme al orden del día y sus alteraciones.
+Si se hubieren presentado dos o más recursos de revisión, se conocerán sucesivamente en orden de su presentación, pero si se refieren a un mismo acuerdo se resolverán al mismo tiempo.

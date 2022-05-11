@@ -1,0 +1,2 @@
+Artículo 27.-Orden del día. El orden del día para cada sesión será confeccionado por quien ocupe la presidencia del CETAC o por quien sea delegado para este acto, con la antelación necesaria para ser comunicada por la Secretaría para el conocimiento de los miembros.
+Los asuntos deben ser sometidos a conocimiento y votación en el orden en que se encuentren en la agenda, de igual forma se procederá con las propuestas y mociones, salvo que se trate de una moción de orden, en cuyo caso se tramitará ésta de forma preferente.

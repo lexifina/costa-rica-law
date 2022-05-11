@@ -1,0 +1,1 @@
+Artículo 13.-Sustituciones. Las sustituciones permanentes serán realizadas por la institución o ente que inicialmente hizo el nombramiento y utilizando el mismo procedimiento establecido para el nombramiento de la persona miembro sustituida.

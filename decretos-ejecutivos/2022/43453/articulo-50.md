@@ -1,0 +1,1 @@
+Artículo 50.-Naturaleza de los acuerdos. El CETAC, como órgano de derecho público debe proceder conforme a texto legal expreso, tomará sus resoluciones mediante acuerdos que, como actos administrativos destinados a producir efectos jurídicos, deben tomarse en sesión formal celebrada de acuerdo con este reglamento, la ley y estar autorizados por ésta.

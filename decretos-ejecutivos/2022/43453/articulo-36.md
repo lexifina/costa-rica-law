@@ -1,0 +1,1 @@
+Artículo 36.-Rompimientos de quórum. Si en el curso de cualquier reunión se rompiere el quórum, la presidencia hará instancia a quienes se hayan retirado para que se vuelvan a incorporar a la sesión. Si pasados cinco minutos no se restableciere el quórum, se levantará la sesión y los asuntos que no hubiesen sido tramitados pasarán en orden preferente a la próxima sesión.

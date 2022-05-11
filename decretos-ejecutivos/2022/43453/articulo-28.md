@@ -1,0 +1,2 @@
+Artículo 28.-Privacidad de las sesiones. Las sesiones del CETAC serán siempre privadas salvo que, las personas directoras presentes acuerden por unanimidad, que el público en general o ciertas personas, puedan tener acceso a la sesión, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
+Cualquier persona funcionaria o empleada de la DGAC se encuentra obligada a asistir a las sesiones del CETAC, cuando fuere citada, con el propósito de verter criterio técnico sobre algún asunto o simplemente brindar más información.

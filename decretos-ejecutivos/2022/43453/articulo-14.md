@@ -1,0 +1,1 @@
+Artículo 14.-Designaciones. Las designaciones de las personas integrantes del CETAC serán publicadas en el diario oficial "La Gaceta", así como cualquier modificación en la ocupación de los cargos. No obstante, entrarán en el ejercicio de sus cargos con la respectiva juramentación.

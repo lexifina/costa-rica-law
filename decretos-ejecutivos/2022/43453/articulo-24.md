@@ -1,0 +1,1 @@
+Artículo 24.-Llegadas tardías. Iniciada la sesión, las personas directoras ausentes, tendrán un período de gracia de un máximo de treinta minutos contados a partir de la hora del inicio de la sesión, para que ocupen su lugar e integren el CETAC. Pasado ese tiempo se tendrán por ausentes.

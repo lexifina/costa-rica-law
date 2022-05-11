@@ -1,0 +1,7 @@
+Artículo 37.-De las mayorías para adoptar acuerdos. Los acuerdos se tomarán por mayoría absoluta de las personas directoras asistentes, excepto en los casos siguientes:
+a) Recomendación al Poder Ejecutivo para la suspensión o remoción de la persona que ocupe la dirección o subdirección general de Aviación Civil y la auditoría, para lo cual se requerirá del voto de las dos terceras partes de los miembros asistentes.
+b) Aceptación de conciliaciones, transacciones y compromisos arbitrales, en cuyo caso se requerirá de la votación favorable de no menos de cuatro directores presentes.
+c) Declaratoria de firmeza de acuerdos en la misma sesión, en cuyo caso se requerirá de al menos cinco votos.
+d) Adopción, modificación, derogatoria de reglamentación interna, en cuyo caso se requerirá la votación favorable de no menos de cinco miembros, es decir, de dos tercios de la totalidad de los miembros del CETAC.
+e) Cuando el CETAC determine que en la adopción de acuerdos específicos se requiera un criterio de mayoría superior. Para adoptar o derogar un acuerdo que impone una regla de mayoría distinta a la absoluta, se requerirá que el acuerdo sea adoptado por mayoría calificada, es decir, dos terceras partes de la totalidad de los miembros del CETAC.
+El acuerdo que se adopte para los efectos del inciso a) anterior tratándose del cargo de auditor, deberá ordenar la apertura del procedimiento ordinario respectivo e indicar concretamente las causales que originan la decisión de conformidad con el artículo 15 de la Ley Orgánica de la Contraloría General de la República.

@@ -1,0 +1,3 @@
+Artículo 42.-El pago. Corresponderá a la Unidad de Recursos Financieros de la DGAC, conforme los reglamentos, efectuar el pago de las dietas. Para tal efecto, la Secretaría del CETAC enviará el reporte de asistencia a cada una de las sesiones de parte de los miembros del CETAC. El pago de dietas se hará en forma mensual, para lo cual, el director general de Aviación Civil dispondrá de los mecanismos necesarios a efecto de que el pago
+correspondiente se realice en el plazo máximo de cinco días hábiles, contados a partir de la finalización del mes o bien, dentro de los plazos de pago establecidos por la Tesorería Nacional.
+Las dietas se incluirán en el presupuesto de la Institución y no podrá sobrepasar en monto del límite señalado en este reglamento.

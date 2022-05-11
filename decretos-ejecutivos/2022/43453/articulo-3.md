@@ -1,0 +1,1 @@
+Artículo 3º-Sede. El CETAC tendrá su sede en San José, La Uruca, en la carretera paralela a la Autopista General Cañas, donde contará con espacio suficiente, equipo de oficina, personal profesional y secretarial acorde con sus funciones.

@@ -1,0 +1,1 @@
+Artículo 16.-Ausencia. En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa, quien ocupe la presidencia y la secretaría de los órganos colegiados serán sustituidos por la persona que ocupe la vicepresidencia, o la presidencia ad-hoc y la secretaría suplente, respectivamente.

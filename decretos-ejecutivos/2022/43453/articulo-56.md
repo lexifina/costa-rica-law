@@ -1,0 +1,2 @@
+Artículo 56.-Oportunidad y forma del recurso. El recurso de revisión deberá presentarse una vez leída el acta que contenga el acuerdo que se objeta y antes de que ésta sea aprobada.
+Debe presentarse por escrito o verbalmente dejando constancia por escrito al pie del acta y firmado por la persona directiva del CETAC, expresando claramente si solicita revocación del acuerdo o su modificación, indicando en este último caso la forma en que se desea variar el acuerdo.

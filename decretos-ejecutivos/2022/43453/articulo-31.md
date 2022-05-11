@@ -1,0 +1,1 @@
+Artículo 31.-Intervenciones. Se concederá la palabra en el orden en que se haya solicitado y solo se podrá ejercer ese derecho después de que la presidencia le haya concedido la autorización para referirse al asunto que esté en discusión.

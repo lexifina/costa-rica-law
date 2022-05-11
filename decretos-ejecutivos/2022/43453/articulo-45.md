@@ -1,0 +1,1 @@
+Artículo 45.- Audiencias. Cuando así lo acuerde el CETAC o por disposición de quien ocupe la presidencia se podrá recibir en audiencia, a autoridades o personas interesadas, en cuyo caso se recibirán inmediatamente después de la aprobación del acta y por un espacio entre quince y treinta minutos, pudiéndose extender por acuerdo de mayoría de las personas directoras presentes.

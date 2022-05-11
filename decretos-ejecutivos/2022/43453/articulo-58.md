@@ -1,0 +1,1 @@
+Artículo 58.-Recursos ordinarios contra los acuerdos. Contra las resoluciones que haya dictado el CETAC, según las competencias otorgadas en la LGAC, podrá formularse recurso de reconsideración, dentro del plazo de quince días hábiles, contados a partir de su notificación, conforme lo regulado en el artículo 309 de la LGAC.
