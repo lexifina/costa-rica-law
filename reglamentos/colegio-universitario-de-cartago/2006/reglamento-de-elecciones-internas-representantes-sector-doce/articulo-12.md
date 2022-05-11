@@ -1,1 +1,0 @@
-Artículo 12.—En caso de empate se repetirá la votación tres días hábiles después de la declaración del Tribunal, entre quienes obtuvieron igual número de votos mayoritarios. Si persistiere el empate, el Tribunal en sesión ordinaria con la presencia de los candidatos y mediante el lanzamiento de una moneda se decidirá al respecto.

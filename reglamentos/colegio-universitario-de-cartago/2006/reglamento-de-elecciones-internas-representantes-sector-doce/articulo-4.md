@@ -1,1 +1,0 @@
-Artículo 4º—El escrutinio de los votos lo hará el Tribunal ante la presencia de los fiscales representantes de los candidatos. Una vez contados los votos, levantará un acta en la que emitirá su veredicto y será elevado para conocimiento del Decano para lo que por Ley corresponda. Esta acta será pasada al Decano para lo que proceda.

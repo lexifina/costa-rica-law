@@ -1,1 +1,0 @@
-Artículo 13.—El voto se emitirá personalmente y será secreto y emitido ante la Junta Receptora de Votos. Si existiera impedimento por justa causa, podrá hacerlo públicamente a solicitud del elector ante el Presidente del Tribunal Electoral.
