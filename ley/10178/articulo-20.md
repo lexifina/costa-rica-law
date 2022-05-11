@@ -1,0 +1,2 @@
+ARTÍCULO 20- Se prohibe enarbolar el pabellón o la bandera nacional cuando estos se encuentren en malas condiciones, rasgados, desteñidos, incompletos u ostenten cualquier otra condición que evidencie menosprecio hacia estos símbolos patrios.
+El reglamento de esta ley determinará las condiciones requeridas en que deben encontrarse tanto la bandera como el pabellón nacional, para poder ser utilizados.
