@@ -1,0 +1,1 @@
+Artículo 4º-Se otorga a los operadores aéreos un plazo de noventa (90) días naturales, contados a partir del día siguiente de la publicación del presente decreto, para la implementación del ajuste temporal a la tarifa denominada TAP en los boletos aéreos respectivos.

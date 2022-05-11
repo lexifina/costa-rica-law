@@ -1,0 +1,1 @@
+Artículo 2º-La modificación de la Tarifa Alternativa de Parqueo (TAP), tendrá una vigencia de dos años, período que iniciará su cómputo al día siguiente de cumplido el plazo de los noventa días naturales otorgados a las aerolíneas para el ajuste correspondiente en los tiquetes aéreos.
