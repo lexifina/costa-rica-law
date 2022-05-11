@@ -14,3 +14,4 @@ Lista de especies cultivadas o regeneradas naturalmente que las Áreas de Conser
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-21 | la propia norma |
+| 2 | 2022-05-11 | Resolución 27 (2022-05-11) |
