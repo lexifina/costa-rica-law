@@ -1,0 +1,2 @@
+Articulo 16) DURACIÓN DE NOMBRAMIENTOS DE LAS PERSONAS MIEMBROS DEL CONSEJO ASESOR EXTERNO. Los nombramientos de las personas miembros del Consejo Asesor Externo serán de hasta por dos años. Estas personas podrán ser reelegidas de manera consecutiva una vez y nuevamente después de cuatro años de que concluya su nombramiento.
+La Junta Directiva se reserva la remoción discrecional de los miembros del Consejo, cuando por votación se establezcan razones de legalidad, oportunidad, mérito, o conveniencia, resulte ser lo más acertado para el interés público.

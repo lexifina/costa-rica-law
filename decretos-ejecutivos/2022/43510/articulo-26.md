@@ -1,0 +1,1 @@
+Articulo 26) SOBRE AUDITORÍAS Y EVALUACIONES EXTERNAS. Para velar por la objetividad e imparcialidad en la rendición de cuentas sobre su gestión y su impacto en la sociedad costarricense, la Promotora podrá contratar los servicios de actores externos para llevar a cabo auditorías externas y evaluaciones de los resultados e impactos de sus propios programas.

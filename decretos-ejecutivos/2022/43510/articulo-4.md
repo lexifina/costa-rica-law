@@ -1,0 +1,10 @@
+Articulo 4) OBJETIVOS DE LA PROMOTORA. La Promotora tendrá como objetivo general la promoción de la innovación y el desarrollo científico y tecnológico como ejes para alcanzar el desarrollo productivo y social del país, a través de la ejecución de instrumentos, programas y otros lineamientos de política pública dictados por el Poder Ejecutivo a través del MICITT, en su calidad de rector de ciencia, tecnología, innovación y telecomunicaciones, y lo establecido en la Ley 7169, Ley de Promoción del Desarrollo Científico y Tecnológico, de 26 de junio de 1990.
+Los objetivos específicos de la Promotora son los siguientes:
+(a) Promover la investigación básica e investigación aplicada para la generación de conocimiento científico y tecnológico de relevancia nacional e internacional.
+(b) Incrementar el desarrollo experimental y la transferencia tecnológica para fomentar el desarrollo productivo basado en nuevas aplicaciones tecnológicas.
+(c) Promover la innovación y el emprendimiento innovador y de base tecnológica como mecanismo para incrementar la productividad empresarial y el desarrollo social.
+(d) Potenciar el talento humano en materia de Ciencia, Tecnología e Innovación en etapas posteriores a la educación secundaria, para impulsar la I+D+i.
+(e) Desarrollar las capacidades de los actores de apoyo públicos y privados y de entidades públicas ejecutoras del Sistema Nacional de Ciencia, Tecnología e Innovación (SNCTI) y propiciar las interacciones entre ellos para asegurar mayor articulación para el impulso a la I+D+i.
+(f) Orientar las actividades de I+D+i del SNCTI hacia procesos que contribuyan a la resolución de los desafíos económicos, sociales y ambientales del país.
+(g) Fortalecer la interacción entre los actores del SNCTI, tanto públicos como privados, nacionales y internacionales, velando por el desarrollo de las actividades y capacidades de todo el sistema.
+(h) Gestar recursos de entidades públicas y privadas, nacionales e internacionales y promover la generación de recursos que puedan ser otorgados a los actores del sistema de innovación, investigación y desarrollo.

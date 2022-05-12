@@ -1,0 +1,2 @@
+Articulo 17) FRECUENCIA DE REUNIONES. El Consejo Asesor Externo se reunirá ordinariamente una vez cada trimestre para atender los temas de la agenda definida por la presidencia de la Junta Directiva o los acuerdos de dicho órgano, y extraordinariamente las veces que sea necesario en sesiones virtuales o presenciales.
+Las reuniones extraordinarias serán llamadas por la Presidencia o cuando así lo soliciten por escrito al menos tres miembros de la Junta Directiva.

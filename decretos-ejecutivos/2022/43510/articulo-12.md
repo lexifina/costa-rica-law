@@ -1,0 +1,23 @@
+Articulo 12) ATRIBUCIONES DE LA JUNTA DIRECTIVA. Son atribuciones de la Junta Directiva:
+(a) Dictar su propio reglamento, así como las normas y los reglamentos necesarios relativos a la organización y el funcionamiento de la Promotora, para la buena marcha de la institución.
+(b) Aprobar el presupuesto anual, sus modificaciones y dar seguimiento a la ejecución presupuestaria.
+(c) Conocer y aprobar los estados financieros.
+(d) Aprobar y evaluar el cumplimiento del Plan estratégico, así como el Plan anual de labores.
+(e) Proporcionar directrices claras de resultados esperados, brindándole a la Gerencia General la autonomía necesaria para sugerir las debidas estrategias para la consecución de esos resultados.
+(f) Nombrar y remover a la persona titular de la Gerencia General por mayoría de al menos dos tercios de la totalidad de sus miembros.
+(g) Nombrar y remover a la persona titular de la auditoría interna, siguiendo los lineamientos dictados por la Contraloría General de la República y los principios del Debido Proceso.
+(h) Conformar comités temáticos o grupos consultivos cuando la Junta Directiva así lo requiera, para tratar temas estratégicos. La Junta determinará el plazo de existencia y las condiciones de estos comités o grupos de asesoría. La Junta definirá cuáles comités serán remunerados, en caso de que corresponda, asegurando que esta remuneración esté acorde con las responsabilidades y no constituya un uso abusivo de recursos públicos o sea contrario a lo dispuesto en la ley N°8131, Ley de la Administración Financiera y Presupuestos Públicos. Las personas miembros de los comités de apoyo deberán contar con el conocimiento o experiencia necesaria acorde con la materia objeto de su integración. Asimismo, deberá promoverse la participación pública y privada en dichos comités temáticos o grupos consultivos. Por otra parte, la junta directiva designará a la persona titular de la gerencia u otra persona del equipo de trabajo de la Promotora para formar parte de cada comité y presidirlo.
+(i) Aprobar la conformación de un Consejo Asesor Externo ad honorem que apoye las labores de definición estratégica de la Junta Directiva.
+(j) Aprobar la constitución de fideicomisos para la consecución de los objetivos y fines de la Promotora. Los fideicomisos deberán observar las obligaciones que le imponen las disposiciones legales vigentes y otras que se dispongan por vía reglamento. Los fideicomisos y su administración serán objeto de control y fiscalización por parte de la Contraloría General de la República.
+(k) Comisionar auditorías externas e internas y evaluaciones para asegurar el buen uso de los recursos dependientes de la Junta Directiva, para que audite en forma periódica la ejecución presupuestaria y los resultados de la gestión de la Promotora.
+(l) Aprobar el reglamento interno de funcionamiento para la organización de la Promotora, para lo cual se requerirá de al menos dos tercios del total de los votos de las personas miembros de la Junta Directiva.
+(m) Acordar la creación de las plazas.
+(n) Aprobar el respectivo manual de puestos y el sistema de valoración de puestos de la Promotora.
+(o) Aprobar el reglamento de Gobierno Corporativo institucional.
+(p) A solicitud de la Gerencia General, analizar y aprobar las reestructuraciones organizacionales.
+(q) Aprobar el manual de puestos y conocer la estructura de salarios de la Promotora, todo de conformidad con todas las limitaciones aplicables al empleo público y a la normativa vigente aplicable.
+(r) Aprobar la aplicación de estrategias de teletrabajo, trabajo virtual y jornadas laborales acordes con el servicio que brinda la Promotora, y cualquier otra de naturaleza vinculante con la dinámica de trabajo o servicios de la Promotora, según requieran las condiciones de su adecuada operación.
+(s) Evaluar semestralmente la gestión del Gerente y el cumplimiento de metas cualitativas y cuantitativas y rendimiento de cuentas sobre instrumentos y programas realizados.
+(t) Evaluar en conjunto con el Gerente y de manera oportuna, el clima organizacional y el plan de capacitación anual para la Promotora y velar por sus competencias.
+(u) Resolver los recursos administrativos, que de conformidad con lo establecido en el artículo 10 de la Ley N° 9971, se interpongan contra los actos de la Junta Directiva y las Comisiones que integre. Lo relativo al régimen recursivo será regulado por las disposiciones que establece la Ley General de la Administración Pública (Ley N° 6227), así como por las especificaciones que se hagan en este reglamento o en normativa reglamentaria específica.
+(v) Las demás que le asignen las leyes o los reglamentos respectivos.

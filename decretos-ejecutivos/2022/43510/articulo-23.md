@@ -1,0 +1,1 @@
+Articulo 23) REGLAMENTO AUTÓNOMO DE SERVICIO. La Junta Directiva aprobará el Reglamento Autónomo de Servicio para normar las relaciones internas entre la Promotora, entidades adscritas y sus servidores, con ocasión o por consecuencia de la relación de servicio.

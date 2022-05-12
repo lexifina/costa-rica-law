@@ -1,0 +1,1 @@
+Articulo 3) DEFINICIONES Y ABREVIATURAS. El artículo 5 de la Ley N°9971, artículo 3 de la Ley N°8968 y el artículo 3 del Reglamento al Capítulo II del Título IV de la Ley N° 7169; Decreto Ejecutivo 21731, incluyen las definiciones y abreviaturas necesarias para la aplicación del presente reglamento.

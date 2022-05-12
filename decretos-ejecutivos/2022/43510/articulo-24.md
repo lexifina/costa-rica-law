@@ -1,0 +1,1 @@
+Articulo 24) REGLAMENTO DE GOBIERNO CORPORATIVO. La Junta Directiva aprobará el Reglamento de Gobierno Corporativo para establecer las estructuras, políticas y procedimientos de la Promotora para asegurar la adopción de sanas prácticas de gobierno corporativo, en alineamiento con la normativa vigente.
