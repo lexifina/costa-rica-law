@@ -1,0 +1,1 @@
+Artículo 2°-Cooperación pública para la celebración del evento. Se faculta a la Administración Central, a las instituciones autónomas y a las empresas del Estado para que, dentro de sus competencias y en estricto apego al ordenamiento jurídico, brinden cooperación y facilidades para la realización de la actividad descrita en el artículo anterior.
