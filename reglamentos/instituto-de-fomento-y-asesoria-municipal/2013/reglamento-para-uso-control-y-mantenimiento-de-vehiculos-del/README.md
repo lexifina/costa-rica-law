@@ -15,3 +15,4 @@ Reglamento para uso, control y mantenimiento de vehículos del Instituto de Fome
 | --- | --- | --- |
 | 1 | 2013-11-27 | la propia norma |
 | 2 | 2021-08-26 | Reglamento 26 (2021-08-26) |
+| 3 | 2022-05-12 | Reglamento 15 (2022-05-12) |

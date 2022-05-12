@@ -1,5 +1,6 @@
 Artículo 4°-Definiciones: Para efectos del presente reglamento se entiende por:
-a. Funcionario o funcionaria: Persona física que preste al Instituto en propiedad o interinidad sus servicios materiales e intelectuales o de ambos géneros, a nombre y por cuenta de éste, en virtud de un acto válido y de eficaz investidura.
+a) Funcionario o funcionaria: Persona física que preste al Instituto sus servicios materiales e intelectuales o de ambos géneros, a nombre y por cuenta de este, en virtud de un acto válido y de eficaz investidura.
+(Así reformado el inciso anterior mediante sesión N° 15-2022 del 12 de mayo de 2022)
 b. IFAM: Instituto de Fomento y Asesoría Municipal.
 c. Departamento Administrativo: Dependencia administrativa encargada entre otras competencias de la custodia, control mantenimiento y buen uso de los vehículos del Instituto de Fomento y Asesoría Municipal.
 d. Unidad de Servicios Generales: Unidad que se designa para brindar el servicio de coordinación del transporte a los funcionarios para el desempeño de sus funciones.
