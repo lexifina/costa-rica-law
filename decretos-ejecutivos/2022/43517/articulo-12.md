@@ -1,0 +1,2 @@
+Artículo 12.-Equipo de apoyo institucional. El MEP en atención a la temática anual del Galardón, mediante su Viceministerio Académico, establecerá anualmente un equipo de apoyo institucional, el cual brindará apoyo logístico, administrativo y técnico a la Comisión.
+Este equipo estará conformado por funcionarios de las dependencias cuyas funciones y campo de acción resulten atinentes a la temática anual del Galardón.

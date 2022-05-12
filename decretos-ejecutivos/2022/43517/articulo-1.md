@@ -1,0 +1,17 @@
+N° 43517-MEP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE EDUCACIÓN PÚBLICA
+En ejercicio de las atribuciones conferidas por los artículos 77, 81, 140 incisos 3), 8), y 18), 146 de la Constitución Política, los principios, objetivos y fines establecidos para la educación costarricense en la Ley Fundamental de Educación, Ley N° 2160 del 25 de setiembre de 1957, el artículo 346 del Código de Educación, Ley N° 181 del 18 de agosto de 1944, los artículos 1 y 2 de la Ley Orgánica del Ministerio de Educación Pública, Ley N° 3481 del 13 de enero de 1965, y los artículos 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b, de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978, y;
+Considerando:
+I.-Que la educación es una prioridad para el desarrollo integral del ser humano y el bienestar social de la población costarricense, así como el principal instrumento para enfrentar la pobreza, la exclusión y la desigualdad.
+II.-Que el derecho a la educación de calidad y el desarrollo integral de la persona estudiante, se concretan mediante la labor docente, por lo tanto, el fortalecimiento de los procesos de formación y actualización del personal docente y el reconocimiento e incentivo de aquellos casos de éxito, representan acciones prioritarias para la Administración.
+III.-Que la Ley Fundamental de Educación, Ley N° 2160 del año 1957, aunada a la Política Educativa y la Política Curricular vigentes, reconocen a la persona docente como parte fundamental del sistema educativo, siendo responsabilidad del Estado incentivar actividades, proyectos, programas o iniciativas educativas que denoten la vocación de servicio, el compromiso con el educando, la excelencia profesional y el respeto de los valores, principios, obligaciones y deberes que rigen el quehacer docente.
+IV.-Que mediante el Decreto Ejecutivo N° 17303-E del 22 de noviembre del año 1986 ya derogado, denominado "Crea el Premio Nacional de Educación Mauro Fernández", se establecieron los cimientos para el reconocimiento y promoción a nivel nacional de la excelencia docente.
+V.-Que el Decreto Ejecutivo N° 37729- MEP, denominado "Reglamento del Premio a la Educadora o al Educador del Año Mauro Fernández Acuña", representa el marco normativo en materia de reconocimiento y promoción de la excelencia docente, cuerpo normativo que amerita su contextualización a los perfiles docentes y las necesidades educativas actuales del sistema educativo costarricense.
+VI.-Que de conformidad con el artículo 12 del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, el Decreto Ejecutivo N° 37045-MP-MEIC de fecha 22 de febrero de 2012, adicionado por el artículo 12 bis del Decreto Ejecutivo N° 38898-MP-MEIC de fecha 20 de noviembre de 2014, y en virtud de que este instrumento jurídico no contiene trámites, requisitos ni obligaciones que perjudiquen al administrado, se exonera del trámite de la evaluación costo-beneficio de la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio. Por tanto,
+Decretan:
+REGLAMENTO DEL GALARDÓN A LA EXCELENCIA
+DOCENTE "MAURO FERNÁNDEZ ACUÑA"
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1°-Objeto de la normativa. El presente reglamento tiene como objeto definir los lineamientos generales aplicables al proceso de recepción, trámite y valoración de postulaciones, y la consecuente elección de la persona docente, administrativo docente o técnico docente acreedora del Galardón a la Excelencia Docente "Mauro Fernández Acuña", en adelante el Galardón.

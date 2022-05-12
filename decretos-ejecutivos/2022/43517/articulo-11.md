@@ -1,0 +1,1 @@
+Artículo 11.-Resolución de la Comisión. La Comisión emitirá una resolución debidamente motivada en la cual determinará la persona docente acreedora del Galardón. La resolución será inapelable y se hará de conocimiento público en la ceremonia de entrega del galardón.

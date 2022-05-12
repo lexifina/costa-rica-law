@@ -1,0 +1,1 @@
+Artículo 17.-Derogatorias. Deróguese el Decreto Ejecutivo N° 37729, del 01 de febrero de 2013 y sus reformas, denominado Reglamento del Premio a la Educadora o al educador del Año Mauro Fernández Acuña.
