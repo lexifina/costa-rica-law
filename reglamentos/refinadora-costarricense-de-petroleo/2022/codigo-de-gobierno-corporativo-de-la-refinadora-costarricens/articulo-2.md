@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Todas las actuaciones de los miembros de la Junta Directiva, Gerente General, empleados de la Empresa, contratistas, acreedores e inversionistas y cualquier otro Sujeto Interesado están enmarcadas en las disposiciones de este Código para que el gobierno de la Empresa.

@@ -1,0 +1,1 @@
+Artículo 11.-Visión. RECOPE S.A. tiene como visión contribuir con la transformación de la matriz energética del país, hacia una baja huella ecológica, mediante procesos eficientes, alta tecnología, personal innovador y orientado al cliente.

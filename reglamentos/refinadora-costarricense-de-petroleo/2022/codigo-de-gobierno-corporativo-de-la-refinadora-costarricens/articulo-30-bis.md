@@ -1,0 +1,1 @@
+Artículo 30bis.-Compromisos con los Sujetos Interesados. RECOPE S.A. asume el compromiso ante los Sujetos Interesados de identificar sus necesidades y brindar el servicio público encomendado por ley, de manera oportuna, confiable y continua, cumpliendo con los parámetros de calidad, procurando la eficiencia y respeto por el medio ambiente.
