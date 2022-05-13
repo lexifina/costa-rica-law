@@ -1,0 +1,1 @@
+Artículo 22.-Participación de la Auditoría Interna, Gerencia General o Dirección Jurídica. A las sesiones de Junta Directiva podrán asistir, con voz pero sin voto, a solicitud de cualquier persona directiva, la Gerencia General, la Asesoría Jurídica, la Auditoría General o la Subauditoría General, quienes deberán evacuar con sus opiniones cualquier tema que esté en discusión.

@@ -1,0 +1,1 @@
+Artículo 9º-Ausencia o impedimento temporal de la Secretaría. La Secretaría de la Junta Directiva será reemplazada en su ausencia o impedimento temporal, por la primera Vocalía, quien tendrá sus mismas facultades. En su ausencia, desempeñará sus funciones la segunda Vocalía y, en su ausencia, la tercera Vocalía.

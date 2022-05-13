@@ -1,0 +1,2 @@
+Artículo 15.-Cumplimiento de la normativa. La Junta Directiva deberá comprobar que la empresa cumpla con las políticas, normativas y otras disposiciones internas, y con los planes de continuidad del negocio aprobados.
+La Gerencia General deberá presentar un informe anual, o con otra periodicidad si la situación lo amerita, acerca del cumplimiento de ese marco normativo interno y el desarrollo de los planes de continuidad del negocio.

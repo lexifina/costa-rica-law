@@ -1,0 +1,1 @@
+Artículo 32.-De la firma de las actas. Las actas serán firmadas por la persona que ostente el cargo de Presidenta y Secretaria, así como por aquellas personas miembros que hubieren hecho constar su voto disidente.

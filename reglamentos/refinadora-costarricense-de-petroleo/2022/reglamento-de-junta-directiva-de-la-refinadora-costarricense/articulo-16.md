@@ -1,0 +1,2 @@
+Artículo 16.-Evaluación de la categoría gerencial. La Junta Directiva deberá aprobar los objetivos de evaluación de las gerencias de la empresa, en donde se valore la efectividad de la gestión y la apropiada administración de los riesgos. La Presidencia deberá presentar la propuesta de los objetivos de evaluación a más tardar en el mes de noviembre de cada año.
+Los resultados de la evaluación anual de la categoría gerencial serán conocidos por la Junta Directiva a finales de marzo de cada año.

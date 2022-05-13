@@ -1,0 +1,1 @@
+Artículo 31.-De la aprobación de las actas. Las actas se aprobarán en la siguiente sesión ordinaria, a excepción de aquellos acuerdos que adquieran firmeza en la misma sesión, o bien cuya firmeza se posponga para una próxima sesión.

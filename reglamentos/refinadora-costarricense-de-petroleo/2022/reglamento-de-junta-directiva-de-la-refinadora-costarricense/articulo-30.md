@@ -1,0 +1,1 @@
+Artículo 30.-Del respaldo de las actas. Cada acta debe llevar su respectivo expediente, el cual estará formado por los documentos originales, copias o antecedentes de los asuntos que se han conocido en cada sesión.

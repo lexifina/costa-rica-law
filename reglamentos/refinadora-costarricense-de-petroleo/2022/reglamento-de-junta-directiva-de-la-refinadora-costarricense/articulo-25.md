@@ -1,0 +1,1 @@
+Artículo 25.-De los acuerdos. Los acuerdos de la Junta Directiva serán tomados por mayoría absoluta de las personas miembros presentes, salvo en aquellos casos en que expresamente se establezca otra cosa.
