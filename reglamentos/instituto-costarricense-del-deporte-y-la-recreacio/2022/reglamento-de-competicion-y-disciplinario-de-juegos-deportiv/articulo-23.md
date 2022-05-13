@@ -1,0 +1,2 @@
+ARTICULO 23. DEPORTES Y PARADEPORTES DE EXHIBICION
+La Federación o Asociación Deportiva interesada debe presentar una propuesta según lo solicitado en la Norma/Manual/Reglamento de Inclusión y Exclusión de Deportes de Juegos Deportivos Nacionales. Las propuestas que cumplan con todos los requisitos solicitados, en tiempo y forma, serán enviadas al Consejo Nacional de Deporte y Recreación para su valoración y aprobación.

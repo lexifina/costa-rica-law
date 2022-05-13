@@ -1,0 +1,3 @@
+ARTICULO 16. CONVOCATORIA NACIONAL OFICIAL PARA CADA EDICIÓN
+Para cada edición de Juegos Deportivos Nacionales y Paranacionales el Consejo Nacional del Deporte y la Recreación emitirán una Convocatoria Nacional Oficial invitando a los Comités Cantonales de Deporte y Recreación / Concejos de Distrito, a las personas atletas y paraatletas del país a participar. Para ello divulgará en los medios de comunicación colectiva mediante un acto solemne y público la Convocatoria.
+Dicha Convocatoria contendrá al menos el calendario de competencias con sedes de la etapa final y demás asuntos que sean pertinentes y por tanto, normas de aplicación y acatamiento obligatorio como parte del presente Reglamento.

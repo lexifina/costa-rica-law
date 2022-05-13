@@ -1,0 +1,3 @@
+ARTICULO 27. FISCALES DE LAS COMPETENCIAS
+27.1. Las Federaciones Nacionales podrán nombrar delegados en las competencias que estimen conveniente. Su función será velar, junto con las personas administradoras de la competencia, que el evento se desarrolle dentro de la normativa. Brindará un informe de su accionar a las instancias que le designó.
+27.2. La UPP podrá nombrar fiscales en las competencias que estimen convenientes. Su función será como observador del desarrollo de la competencia y reportar las incidencias que considere infringe las normas a la Federación o Asociación Nacional correspondiente. No tienen poder de decisión sobre el desarrollo del evento.

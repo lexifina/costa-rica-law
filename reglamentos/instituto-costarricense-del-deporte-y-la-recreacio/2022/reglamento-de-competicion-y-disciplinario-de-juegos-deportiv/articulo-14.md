@@ -1,0 +1,2 @@
+ARTICULO 14. DE LAS COMISIONES REGIONALES
+Se establecerán Comisiones Regionales según la conformación de los grupos por disciplina deportiva, con el fin de dar seguimiento al desarrollo de la etapa eliminatoria, para ello, se realizarán reuniones virtuales periódicamente en las cuales se contará con la participación del delegado de cada CCDR / Concejo de Distrito, un representante de las federaciones y asociaciones implicadas y un funcionario o funcionaria de la Unidad de Programas y Proyectos del ICODER.

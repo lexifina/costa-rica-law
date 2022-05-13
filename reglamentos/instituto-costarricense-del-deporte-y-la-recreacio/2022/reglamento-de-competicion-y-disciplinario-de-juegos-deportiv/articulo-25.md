@@ -1,0 +1,27 @@
+ARTICULO 25. DE LOS SISTEMAS DE COMPETENCIAS CLASIFICATORIOS
+25.1. En baloncesto, fútbol, futsal y voleibol se establecen las siguientes directrices:
+a) Cada Comité Cantonal de Deporte y Recreación / Concejo de Distrito llevará a cabo su proceso de eliminatoria de forma tal que sólo un equipo por rama clasifique por cantón a la siguiente etapa de competición. Lo anterior basado en los artículos establecidos para tal fin en la presente normativa.
+b) Cada grupo o región coordinará con la Asociación o Federación de Representación Nacional los calendarios de competencia y control de resultados, así como el aval de las instalaciones deportivas a utilizar.
+La programación de partidos debe ser acordada por los equipos involucrados según días y horarios establecidos en el congresillo técnico, esta información deberá ser enviada por parte del equipo casa al correo indicado por la asociación o federación en el tiempo establecido y será ratificada en las reuniones de comisiones regionales, además, los CCDR / Concejos de Distrito que estén inscritos en SICOP deberán adjuntar el comprobante de contratación de servicios de arbitraje, mientras que los que no están inscritos en SICOP deberán adjuntar el comprobante de pago por parte de la asociación arbitral contratada. Cualquier cambio realizado a la programación deberá contar con el visto bueno del equipo rival.
+Los informes arbitrales deberán hacerse llegar al correo indicado por la federación o asociación deportiva al día hábil siguiente de haberse realizado el partido, a más tardar a las doce medio día.
+c) En fútbol y futsal el formato de juego se desarrollará de la siguiente manera:
+- Se establecerán ocho regiones, clasificará un equipo por región siempre que la región tenga cuatro o más equipos inscritos. En caso de que la región tenga menos de 4 equipos inscritos se realizará un repechaje entre los equipos correspondientes
+a esa región y los segundos lugares de las otras regiones que estén dispuestos a participar.
+- Cada región estará conformada por dos grupos. Cuando en cada grupo hayan 3 o más equipos inscritos se realizará una primera eliminatoria y saldrá un equipo clasificado por grupo, éste deberá enfrentarse al equipo ganador del otro grupo que conforma su región, el ganador de la región será quien clasifique a la etapa final. En caso de que en un grupo haya dos o menos equipos, éstos deberán unirse al otro grupo para realizar la eliminatoria respectiva.
+- La conformación de los grupos se comunicará en el Congresillo Técnico respectivo.
+d) En baloncesto y voleibol el formato de juego se elaborará de la siguiente manera:
+- Una vez que se cuente con los equipos inscritos se formarán máximo 8 grupos, tratando de que cada uno quede conformado con la misma cantidad de equipos, mínimo 3 equipos por grupo.
+- El ganador de cada grupo clasifica a la etapa final. En caso de que se conformen entre 5 y 7 grupos clasificará el ganador de cada grupo y los cupos restantes se otorgarán por repechaje entre los segundos lugares de cada grupo. En caso de que se conformen 4 grupos clasificarán a la etapa final dos equipos por grupo.
+- Los grupos serán conformados tomando en consideración la cercanía geográfica y la paridad de equipos por grupo.
+- La conformación de los grupos se comunicará en el Congresillo Técnico respectivo.
+e) En el caso de Voleibol de Playa, Balonmano y Béisbol se organizarán torneos a nivel nacional para obtener los clasificados a la etapa final.
+f) Será responsabilidad de cada Asociación o Federación de Representación Nacional presentar ante la UPP un informe de la etapa eliminatoria donde se indiquen los eventos realizados y los respectivos clasificados a la etapa final.
+g) Para organizar los respectivos torneos, los comités / Concejo de Distrito deberán considerar las siguientes directrices.
+- Todas las decisiones deberán estar amparadas en las normativas nacionales e internacionales para cada uno de los deportes de conjunto que se encuentren en competencia, de ser necesario se solicitará por escrito el criterio técnico de la asociación o federación para la orientación de las decisiones deportivas.
+- La agrupación de equipos puede ser a base de un ranking de resultados de los equipos de ediciones anteriores, deberá imperar la agrupación por cercanía geográfica o una combinación de ambas u otro sistema válido o usual de la Federación, Asociación o Ente organizador.
+- Debe prevalecer el principio de que los equipos no deben viajar grandes distancias, motivando gastos excesivos, excepto el sistema de segunda fase y/o repechaje.
+25.2. En deportes individuales se establecen las siguientes directrices:
+a) En deportes individuales de clasificación mediante torneo, clasificarán a la etapa final un máximo de 8 atletas, según la norma específica por deporte.
+b) En deportes individuales con marca mínima, clasificarán a la etapa final aquellos atletas que cumplan con la marca mínima.
+c) Se declara desierto, todo evento o prueba en el que no se encuentren atletas inscritos desde la etapa eliminatoria de al menos tres diferentes cantones. Esta disposición también aplica en los eventos donde hay unificación de clases funcionales en paradeportes individuales.
+25.3. Se podrán proponer otros sistemas que no implique grandes erogaciones por traslado, hospedaje y alimentación a los Comités Cantonales de Deporte y Recreación / Concejos de Distrito participantes, los cuales deberán ser ratificados o modificados según sea el caso en Congresillo Técnico previo a cada etapa clasificatoria.

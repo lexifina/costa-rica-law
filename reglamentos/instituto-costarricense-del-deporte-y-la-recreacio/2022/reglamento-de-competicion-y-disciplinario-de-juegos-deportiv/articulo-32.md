@@ -1,0 +1,12 @@
+ARTÍCULO 32. REQUISITOS DE LA DENUNCIA
+Toda denuncia ante el Tribunal Nacional de Primera Instancia debe cumplir con los siguientes requisitos:
+32.1. Ser enviada por correo electrónico a la UPP del ICODER, así como a cada Comité Cantonal de Deporte y Recreación / Concejo de Distrito y o Federación o Asociación Nacional involucrada. Entiéndase por horario laboral del ICODER en la Etapa eliminatoria de lunes a viernes de 8:00 am a 4:00 pm y en la Etapa final en horario de Oficina de 8:00 am a 6:00 pm.
+Para presentar la denuncia por esta vía deben enviar el expediente y todos sus documentos adjuntos debidamente escaneados y resguardados en un único documento en formato PDF y firmado de manera digital o física, de lo contrario no será admisible para ser elevado al Tribunal. En caso de devolución de la denuncia por inadmisibilidad, este podrá ser presentando nuevamente con la corrección, siempre y cuando se encuentre dentro del plazo establecido por reglamento.
+Para la etapa eliminatoria la denuncia debe ser presentada ante la instancia correspondiente dentro de los siguientes tres días hábiles de haberse cometido la infracción o de haberse recibido la notificación de la Asociación o Federación sobre el hecho a denunciarse.
+Para la etapa final el plazo será de tres horas posterior a que se haya cometido la infracción o haberse recibido la notificación de la Asociación o Federación.
+32.2. Especificar el nombre del Comité Cantonal de Deporte y Recreación / Concejo de Distrito que interpone la denuncia, la calidad del denunciante que interpone y el nombre del Comité Cantonal de Deporte y Recreación / Concejo de Distrito contra quién se hace la denuncia.
+32.3. Descripción detallada, clara y precisa de los hechos en que se fundamenta, numerados y bien especificados, señalando la normativa infringida (indicar articulado y numerales).
+32.4. Aportar la prueba documental y testimonial en la cual se fundamente o compruebe la falta señalada, así como los hechos sobre los cuales declararán los testigos ofrecidos.
+32.5. Señalar la petitoria final.
+32.6. Debe indicar un correo electrónico para recibir notificaciones.
+32.7. Firmada por el Delegado General y por la persona entrenadora del Comité Cantonal de Deporte y Recreación / Concejo de Distrito denunciante que esté debidamente inscrito en el Sistema de Inscripciones. Para la etapa final también podrá ser firmada por el Sub Delegado Cantonal y la persona entrenadora. Adjuntando la fotocopia de la cédula legible de cada uno de los firmantes.

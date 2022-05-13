@@ -1,0 +1,2 @@
+ARTICULO 45. INHABILITACION DE PARTICIPACION ATLETAS Y COMITÉS CANTONALES / CONCEJOS DE DISTRITO PRODUCTO DE LA DETECCIÓN DEL CONSUMO DE SUSTANCIAS PROHIBIDAS POR LA AGENCIA MUNDIAL ANTIDOPAJE
+Juegos Deportivos Nacionales y Paranacionales, como evento deportivo nacional estará sujeto a la normativa aplicable por la Agencia Mundial Antidopaje, se regirá para ello con base en los Reglamentos Nacionales e Internacionales.
