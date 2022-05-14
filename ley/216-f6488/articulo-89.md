@@ -1,1 +1,0 @@
-ARTÍCULO 89.-Los mineros que hayan expendido sumas considerables para habilitar sus minas con grandes tiros o socavones, y las tuvieren paradas por faltas de avíos, operarios u otros justos motivos quedan exentos del artículo anterior.

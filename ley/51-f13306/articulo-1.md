@@ -1,8 +1,0 @@
-(Derogado)
-DECRETO LI.
-(Esta norma fue derogada por el artículo 1° inciso 227, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-Señala la línea divisoria entre la ciudad de Alajuela
-y Mineral del Aguacate.
-El Vice-Gefe del Estado libre de Costa-Rica en ejercicio del Supremo Poder Ejecutivo.-Por cuanto la Asamblea ha decretado y el Consejo sancionado los siguiente.
-La Asamblea Constitucional del Estado libre de Costa-Rica: queriendo evitar en lo sucesivo las disputas que se han suscitado y pueden suscitarse sobre la valla ò línea divisoria en lo civil, de la ciudad de Alajuela y Diputacion del Aguacate, ha tenido á bien decretar y decreta.
-Artìculo único.-La línea divisoria entre la jurisdicción de la ciudad de Alajuela y Mineral del Aguacate hácia la parte del Este, será en lo sucesivo por el camino público, la quebrada en que se halla la casa de la Boca: de alli para el Sur en toda su extensión la misma quebrada hasta el Rio-Grande: y por el Norte el pie de la Cierra de Santa Eulalia esclusive la Hacienda.-Al Consejo Representativo.-Dado en San José á los veintitres dias del mes de Marzo de mil ochocientos treinta y dos.-Joaquin de Iglesias, D. Presidente.-Josè Maria Arias, D. Pro-Secretario.-Nicolas Ulloa, D. Secretario.-Sala del Consejo. San José Marzo veintisiete de mil ochocientos treinta y dos.-Pase al Poder Ejecutivo.- Felix de Bonilla, Presidente.-José Anselmo Sancho, Secretario.-Por tanto: Ejecutese. San José Marzo veintiocho de mil ochocientos treinta y dos.-José Rafael de Gallegos.-Al C. Joaquin Bernardo Calvo."

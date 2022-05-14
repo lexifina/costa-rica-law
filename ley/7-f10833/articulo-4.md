@@ -1,1 +1,0 @@
-Artículo 4°. –En las poblaciones menores el registro de que habla el artículo anterior, se formará por la Autoridad política con el Procurador Sindico y uno de los otros Munícipes, quienes podrán ser subrogados con vecinos de representación y conocimientos.

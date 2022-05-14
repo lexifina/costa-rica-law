@@ -1,1 +1,0 @@
-Art 3°.- A los Consejeros en recesos de la Asamblea se les dejaran de abonar los de todas la semana en que falten de abonar los de toda la semana en que falten a las dos sesiones de su reglamento y los de media semana quando solo a una de ellas falten.

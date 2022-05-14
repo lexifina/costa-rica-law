@@ -1,1 +1,0 @@
-Art 7.- Los empleados de la renta, después de deducidos los gastos de oficina, y extraordinarios que no admiten esperas, solo se cubrirán de la mitad del sueldo corriente excepción de los oficiales de pluma y guardas fijos que recibirán las dos terceras partes.

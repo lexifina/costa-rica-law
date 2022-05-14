@@ -1,1 +1,0 @@
-Art. 60. Ningun individuo de la Secretaría podrá exigir derechos, no cobrar cualquier especie de gajes, ó emolumentos en razon de su oficio: la contravención será castigada con privacion de èl y pèrdida de lo recibido, que se aplicarà al Erario.

@@ -1,1 +1,0 @@
-Art. 3. Inmediato al asiento de los Secretarios del Despacho, se dará lugar a los Ministros diplomâticos, Cónsules y Vicecónsules que hubiere, segun su representacion y antigüedad, y á personas notables caracterizadas.

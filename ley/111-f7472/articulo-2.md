@@ -1,1 +1,0 @@
-Art. 2. La importacion de licores de la clase permitida por el artículo anterior, causará el derecho único de alcabala marítima de seis centavos por cada libra de peso bruto, si el licor se introdujere en cajas; y si en pipas, barriles, anclotes ó garrafones, causarà el de nueve centavos por libra, tambien de peso bruto.

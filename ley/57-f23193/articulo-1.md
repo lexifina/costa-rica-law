@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO LVII
-(Esta norma fue derogada por el artículo 1° inciso 284, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-Permito a la Municipalidad de San José reducir a dominio particular algunas porciones de tierra en “ Matas redonda”
-“ El Jefe Supremo del Estado libre de Costa Rica,.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
-La Asamblea Ordinaria del Estado libre de Costa rica, con presencia de la solicitud que ha hecho la Municipalidad de San José relativa a que se le permitqa enagenar unas porciones pequeñas de tierra que desfiguran el cuadro del sitio nombrado Mata-redonda que mandó conservar la Ley de 19 de Marzo de 830 y atendiendo a que los objetos de esta prohibición no se contrarían, antes bien reciben un nuevo ser, haciéndose la regularización indicada: y los fondos Municipales socorridos, ha venido en decreta y decreta:
-Art 1°.- Se permite a la Municipalidad de San José reducir a dominio particular, en la forma que estableció la Ley citada, aquellas porciones de tierra que desfiguran el sitio dicho de Mata-redonda, sin exceder las medidas que se hagan, de lo puramente necesario para este fin.

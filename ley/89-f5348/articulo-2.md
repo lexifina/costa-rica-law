@@ -1,1 +1,0 @@
-ARTÍCULO 2°. -Dicho funcionario afianzará su manejo conforme al reglamento de hacienda, y tendrá un local accesible al público en la casa del Gobierno; debiéndosele franquear todos los elementos necesarios por la Intendencia general.

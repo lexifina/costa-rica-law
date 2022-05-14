@@ -1,1 +1,0 @@
-Art.27.-En las sesiones se guardar orden, silencio y compostura. si se faltase, después de haber reconvenido por tres veces al perturbador, el Presidente podrá mandarlo salir de la sala durante la sesión.

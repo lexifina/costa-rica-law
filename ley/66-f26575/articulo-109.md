@@ -1,1 +1,0 @@
-Art. 109. Los testigos que hubiesen de examinarse en estas causas, seràn juramentados è interrogados por el Presidente à presencia del otro, ù otros dos Magistrados, y lo mismo respectivamente se ejecutarà con las demas probanzas.

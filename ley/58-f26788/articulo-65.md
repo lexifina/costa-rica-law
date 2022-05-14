@@ -1,1 +1,0 @@
-Art. 65. Si algun individuo del mismo Tribunal resistiere sin causa justa, à tomar posesion de su destino, el Consejo se arreglará à lo que dispone el art. 11 de este reglamento, y si estando en funciones dejase de concurrir, se observarà lo que dispone el art. 13 del mismo.

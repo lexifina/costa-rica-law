@@ -1,1 +1,0 @@
-Art 9°.- Las absolutamente abandonadas por sus dueños las reconocerán y cultivarán de nuevo bajo esta garantía, pero si estos no lo hiciensen dentro de un año la Municipalidad las dará en propiedad a qualquiera que lo emprenda, y en este caso no quedarán derecho alguno en ellas a sus antiguos dueños ni a los Capellanes de los censos que cargaban.

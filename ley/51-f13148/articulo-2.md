@@ -1,1 +1,0 @@
-Art. 2° A las diez del día inmediato el Presidente de la Asamblea recibirá juramento a todos los Representantes de guardar y cumplir coma hacer guardar y cumplir la Constitución, y él lo prestará en manos de los Secretarios por el orden que tiene establecido el ceremonial acordado anteriormente.

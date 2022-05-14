@@ -1,1 +1,0 @@
-Art. 41. Si algun Consejero se hallase impedido notoriamente para entender en alguna sancion de ley, el Consejo para que no le corra el tèrmino, darà parte a la Asamblea para que resuelva lo mas conveniente.

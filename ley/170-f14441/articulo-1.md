@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO 170
-(Esta norma fue derogada por el artículo 1° inciso 143, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-El Gefe Supremo del Estado Libre de Costa rica
-Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
-La Asamblea Constitucional del Estado Libre de Costa rica, deseando el bien de los Pueblos y prosperidad del Estado, y en atención á que se hallan en el incultos y desiertos muchos y vastos terrenos, que estos mientras lo sean son inútiles e infructuosos al bien general y que por el contrario cultivados que fuesen le repostarían grandes ventajas. Queriendo pues dar algún impulso á empresa de tanta beneficiencia y promover en alguna manera el animo de los empresarios concendiendoles gratuitamente algunas suertes de tierras, ha tenido a bien decretar y decreta:
-Art 1°.- Se concede por el tiempo de ocho años á los que cultivasen las riveras del Norte, Nord-Este, Este y Sur por sinco años continuados, el terreno que cultivasen y una caballería mas, y a los que se dedicasen al cultivo o entrasen en los dos primeros años de la publicación de esta Ley a más de las dos suertes antecedentes, otra caballería más.

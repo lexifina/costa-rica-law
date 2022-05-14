@@ -1,1 +1,0 @@
-Art.78.-Si algún individuo del mismo Tribunal resistiere sin causa justa, a tomar posesión de su destino, el Senado se arreglar a lo que dispone el articulo 11 de este Reglamento, y si estando en funciones dejarse de concurrir se observar lo que dispone el artículo 13 del mismo.

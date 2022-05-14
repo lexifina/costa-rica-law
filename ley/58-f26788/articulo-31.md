@@ -1,1 +1,0 @@
-Art. 31. Podrán las Comisiones llamar á su despacho al Secretario General del Gobierno y demas Gefes subalternos, y podràn pedir al Ejecutivo, autoridades y corporaciones, todos los antecedentes, informes y datos que necesiten, verificándolo por medio de la Secretaría del Consejo.

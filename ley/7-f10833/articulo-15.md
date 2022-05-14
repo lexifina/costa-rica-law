@@ -1,1 +1,0 @@
-Artículo 15.-Todos los años reunidas las juntas nombrarán un nuevo Directorio; y este acto ser presidido por el del año anterior, cuyos individuos podrán ser reelectos una vez, no debiendo sufragar en las juntas, sino los que están inscritos en el registro.

@@ -1,1 +1,0 @@
-ARTÍCULO 7°. -Los correos de los estados y del Guanacaste tocarán en Puntarenas de ida y vuelta a dejar y recibir la correspondencia que allí se le entregue, gratificándose a los primeros con dos pesos de sobre sueldo en cada viaje.

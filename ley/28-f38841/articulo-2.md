@@ -1,1 +1,0 @@
-Art. 2. Se autoriza al Supremo Poder Ejecutivo para que dentro del perentorio término de un año ordene la fabricacion de càrceles en la capital, proponiendo los medios de cubrir el presupuesto de gastos que demande la empresa.

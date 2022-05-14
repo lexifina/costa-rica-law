@@ -1,1 +1,0 @@
-ARTÍCULO 119.-Cuando se diere principio al establecimiento de un colegio, el Director general de estudios, por Si ó por medio de un inspector, presenciar los trabajos y arreglos mas esenciales, remover las dificultades que ocurran y promover las mejoras convenientes.

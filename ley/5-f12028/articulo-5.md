@@ -1,1 +1,0 @@
-Art. 5. Todos los empleados de hacienda, reunidos en los oficios de la intendencia, prestarán aquel juramento en manos del Intendente general: los Comandantes departamentales y oficiales militares en las del Comandante general en el despacho de este, y el clero congregado en el principal de la Universidad, harà el mismo juramento en manos del Vicario eclesiàstico.

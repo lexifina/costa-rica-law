@@ -1,1 +1,0 @@
-Art 4°.- Señalase el lunes 17 del presente para la posesión y juramento de los individuos de que hablan los artículos 1° y 2° de este Decretos debiéndose presentar en el Salon de la Asamblea a las diez de la mañana, acompañados de toda las Corporaciones y Autoridades Eclesiásticos, Civiles, Militares y de Hacienda.

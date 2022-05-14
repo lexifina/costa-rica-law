@@ -1,1 +1,0 @@
-Art. 8. La administración formará instrucciones para los resguardos, con que dará cuenta para su aprobación ó reforma. –Dado en la Ciudad de San José á los seis días del mes de Agosto de mil ochocientos treinta y ocho. –Braulio Carrillo. –Al Ministro General del Despacho.”

@@ -1,1 +1,0 @@
-ARTÍCULO 62.-Tampoco podrá ninguno denunciar mina para s¡, sólo habiendo tratado compa¤¡a antes del denuncio, y se manda que el denunciante exprese sus compañeros en el mismo denuncio que hiciere, pena de perder su parte, si as¡ no lo observa.

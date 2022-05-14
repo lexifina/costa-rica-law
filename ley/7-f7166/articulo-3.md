@@ -1,1 +1,0 @@
-Art. 3 Ninguna persona podrá denunciar ni componer para sí mas de cinco caballerias en los terrenos baldíos que se hallasen dentro de las dos leguas paralelas y siguientes a cada una de las fajas de que habla el articulo 1°. El fraude con que se evada esta disposición será castigado con nulidadad del remate que se efectúe y multa de trescientos pesos aplicable al tesoro público.

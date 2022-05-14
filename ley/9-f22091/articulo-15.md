@@ -1,1 +1,0 @@
-Artículo 15.- Nombrará con conocimiento del Congreso al Comandante General del Estado, al Gefe Político Superior, al Yntendente, al Tesorero general, y á los demas Gefes de Departamento extablecidos, ó que se establecieren: igualmente nombrará los Subalternos de estos funcionarios á propuesta en terna de sus Gefes, dando noticia al Congreso.

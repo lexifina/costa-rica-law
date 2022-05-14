@@ -1,1 +1,0 @@
-Art. 146. Del nombramiento de Específicos se darà noticia á las partes; y si por estas fueren recusados, ó por aquellos se alegare algun impedimento se observarà lo que se establece en el Capítulo 12, y lo mismo debe rejir con respecto à los Suplentes.

@@ -1,1 +1,0 @@
-Art.59.-Para que el Senado pueda declarar que ha lugar a formación de causa contra los funcionarios de que habla el n° 5° articulo 126 de la Constitución del Estado, es necesaria la mayoría absoluta de votos.

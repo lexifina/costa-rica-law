@@ -1,1 +1,0 @@
-Art. 2. Será dividida en dos grandes comisiones, la una con el nombre de “Consulado de enjuiciamientos" y la otra con el de “Consulado de caminos:" ámbas serán compuestas de la clase de comerciantes y de hacendados y tambien los jueces subalternos de los departamentos y puertos.

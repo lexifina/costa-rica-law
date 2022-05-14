@@ -1,1 +1,0 @@
-Art. 7. En atencion à que el camino tendrá que pasar en algunos puritos por terreros ya denunciados ó compuestos, el Gobierno repondra a la compañia la porcion que le corresponda conforme al articulo anterior en terreno baldio, y en la parte ó partes que ella designe,

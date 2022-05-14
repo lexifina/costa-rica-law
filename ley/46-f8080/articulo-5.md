@@ -1,1 +1,0 @@
-Art. 5. Los capitanes de buques daràn seguridades al Gobierno de que sin su especial permiso, prévia contrata con el mismo, no desembarcaran ninguna de las especies estancadas prohibidas que escluye el decreto de 5 de marzo.

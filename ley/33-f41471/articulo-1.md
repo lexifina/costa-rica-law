@@ -1,9 +1,0 @@
-(Derogado)
-DECRETO XXXIII.
-(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-Señala un premio al que abra una vereda entre "Puntarenas" en el Pacifico, y el rio "Sarapiqui" al Norte.
-"José Maria Castro Presidente de Costa Rica etc etc.
--Por cuanto el Excelentisimo Congreso Constitucional de la República ha decretado lo siguiente.
-El Excelentísimo Congreso Constitucional de la República de Costa Rica, considerando:
-1° Que es muy importante a la República el descubrimiento de un camino recto entre el de Puntarenas y el rio de Sarapiqui; y 2° que dicho descubrimiento puede verificarse mas facilmente si se exita el interes individual con premios correspondientes al valor de la empresa; ha venido en decretar y decreta
-Art. único.-El que abriere una vereda transitable a pié y á caballo entre el Puerto de Pantarenas en el Pacífico y el rio de Sarapiqui al Norte, y reconocida por la Junta Itineraria resulte ser la mas corta y cómoda para el tránsito entre los dos mares, es acreedor à la gracia de mil pesos en tierras baldias; y ademas á que se le indemnice en moneda corriente el valor de los gastos que haya impendido con tal que dicho valor no exeda de la suma de quinientos pesos que fijó la ley de 13 de Marzo de 1817. Poder Ejecutivo. -Dado en el Palacio de los Supremos Poderes en San José à los -diezinueve dias del mes de julio de mil ochocientos cuarenta y nueve. Manuel José Carazo, Presidente. -Modesto Guevara Secretario. -Manuel Zamora, Pro Secretario. Por tanto: EJECUTESE Palacio Nacional veinte de mil ochocientos cuarenta y nueve, -José Maria Castro. El Ministro de hacienda y guerra José Maria Cañas."

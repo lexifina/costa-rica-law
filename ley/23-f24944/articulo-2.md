@@ -1,1 +1,0 @@
-Art 2°.- Los pobladores hacen suyo todo el terno que aparezcan cultivados después de cinco años de su traslación, con tal que no exceda de cincuenta manzanas, asignándose los demás que se pidan por los particulares para ganadería, conforme a las leyes.

@@ -1,1 +1,0 @@
-ARTÍCULO 7°.-.-El Secretario en las ausencias con licencia, no disfrutar sueldo alguno: en las separaciones temporales por enfermedad comprobada que no pase de ocho días, se le abonar un tercio, y los dos restantes al que le subrogue: al Portero en ningún caso de ausencia se le abonar sueldo alguno

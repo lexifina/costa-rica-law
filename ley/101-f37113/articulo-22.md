@@ -1,1 +1,0 @@
-ARTICULO 22.- Dicho redactor permanecerá en su destino durante el tiempo de su buen desempeño; pero sino satisface por su negligencia, o la tendencia de opiniones contrarias al orden y existencia del Gobierno, éste, puede renovarlo.

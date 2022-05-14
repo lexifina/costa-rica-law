@@ -1,1 +1,0 @@
-4°.- La amortización de deuda que se crie de primero de julio próximo en adelante se hará por reglas análogas y arvitrios que al efecto dictará el Poder Legislativo y no de otro modo, a ecepcion de abonos en tierras valdías.

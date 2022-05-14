@@ -1,1 +1,0 @@
-Art. 4. El exámen durará dos horas, preguntando, segun su antigüedad, cada uno de los examinadores por el espacio de media hora; pudiendo tambien preguntar el S Regente como Presidente de este Tribunal examinador, pero sin voto.

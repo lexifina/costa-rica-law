@@ -1,1 +1,0 @@
-ARTÍCULO 27.-La administración general pasará también mensualmente conocimiento a la principal de las cantidades de aguardiente que haya entregado a cada una de las administraciones de los partidos, para confrontar con él las cuentas que éstos rindan a fin de cada mes.

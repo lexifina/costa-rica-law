@@ -1,1 +1,0 @@
-Artº 61.-El Rector zelará por medio de su Vice se guarde el debido respeto á los Catedraticos, y este en qualesquiera caso contrario participará al Rector lo acaecido, para que averiguandolo entre los presentes, aplique la pena debida.

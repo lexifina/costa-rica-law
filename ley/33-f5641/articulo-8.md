@@ -1,1 +1,0 @@
-Art. 8. El resguardo acreditará haber cumplido con las órdenes del Administrador general, presentando á éste una papeleta del Administrador del partido á que se dirigió, en la cual debe constar haberse ocupado en objetos de su destino, ó desempeñando la comision que recibiera.

@@ -1,1 +1,0 @@
-Art. 2°. - Los que pretendan trasladarse a cualquier punto de la República, ocurrir n por su pasaporte al Jefe Político departamental o a los Comandantes de puertos o fronteras, y estos lo librarán bajo la estampilla respectiva al lado izquierdo de la firma.

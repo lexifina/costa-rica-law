@@ -1,1 +1,0 @@
-Art. 3. La misma Sociedad dará conocimiento al Gobierno del número de miembros, de los planes, proyectos y observaciones que le ocurran acerca de los objetos de su creacioney de cuanto considere conveniente al mejor éxito de la empresa.

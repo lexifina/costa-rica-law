@@ -1,1 +1,0 @@
-Art. 4. Podrán concurrir, cuando lo tuvieren por conveniente, á las sesiones de cualquiera Municipalidad de su departamento; sin voto, y sólo con el objeto de consultar, manifestar ó indicar cuando consideren necesario al mejor éxito de todo asunto correspondiente á policía.

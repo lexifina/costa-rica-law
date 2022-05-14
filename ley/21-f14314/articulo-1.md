@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO XXI
-(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-Devuelve al pueblo la eleccion de dos Senadores propietarios por no haber tenido ninguno de los candidatos eleccion popular, ni alcanzado la un tercio de sufragios.
-El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica -Por cuanto las Cámaras han decretado lo siguiente.
-La Asamblea general del Estado libre de Costa Rica: habiendo procedido al escrutinio de los sufragios emitidos por las secciones electorales para dos Senadores propietarios, de que aparece que ninguno de los candidatos ha obtenido eleccion popular, ni alcanzado à un tercio de sufragios, en conformidad á lo dispuesto por el art. 87 de la Constitucion, decreta.
-Art. único. Se devuelve la eleccion al pueblo que sufrague por dos Senadores propietarios en los dias 20, 21 y 22 del próximo mes de julio Comuníquese al Supremo Poder Ejeentivo para que lo haga imprimir, publicar y circular. -Dado en la ciudad de San José à los veintisiete dias del mes de junio de mil ochncientos cuarenta y cinco. -José Maria Castro, Representante Presidente. Rafael Ramirez, Representante primer Secretario. -Gordiano Fernandez, Representante segundo Secretario. -Por tanto: EJECUTESE. San José, junio veintiocho de mil ochocientos cuarenta y cinco. -José Rafael de Gallegos. Al Ministro de relaciones y gobernacion."

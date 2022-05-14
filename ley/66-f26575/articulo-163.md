@@ -1,1 +1,0 @@
-Art. 163. Cuando el Juez tuviere los impedimentos 1° 2° 3° 4° 5° 6° podra, si quiere, escusarse; pero estarà obligado à manifestar el impedimento y no á separarse, sino por recusacion alegada por la parte.
