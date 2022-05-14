@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXVII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Reglamento de la Comisión Directora de la Sociedad Económica Itineraria. (1)
 (1) Habiendo cesado en sus funciones la Sociedad Itineraria y su Comisión
 Directora, en virtud de lo dispuesto en el Decreto n° 14 de 2 de Agosto de 1854, quedó por consiguiente sin efecto este Reglamento.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXVII.
+(Esta norma fue derogada por el artículo 1° inciso 218, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Declara quien deba sostituir al Magistrado propietario
 en sus separaciones (1)
 (1) El presente decreto está derogado por la ley reglamentaria de 15 de Mayo de 1832.

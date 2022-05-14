@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO XXVI
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
-(Nota de Sinalevi: Mediante el artículo 1° de la Ley “Designa las leyes y disposiciones dictadas por la Administración del Lic. Carrillo que deben continuar rigiendo provisionalmente”, N° 96 del 05 de setiembre de 1842, se indica: “…que la presente norma continua observándose”)
+(Nota de Sinalevi: Mediante el artículo 1° de la Ley "Designa las leyes y disposiciones dictadas por la Administración del Lic. Carrillo que deben continuar rigiendo provisionalmente", N° 96 del 05 de setiembre de 1842, se indica: ".que la presente norma continua observándose")
 Concede gracias a los agricultores que cultiven terrenos sobre los caminos de Matina, Terraba, Sarapiqui, etc. (2)
 (2) Refrendado ó rehabilitado por el 10° art. 1° del Decreto número 25 de 1° de Setiembre de 1842.
 "EI Jefe Supremo del Estado Soberano de Costa Rica.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XCIX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Reglamento para la Lotería pública en favor del Hospital de San Juan de Dios. (1)
 (1) Hasta hoy [Junio de 1862] no ha tenido efecto
 "El Jefe Supremo Provisorio del Estado libre de Costa Rica.

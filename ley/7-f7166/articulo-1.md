@@ -1,6 +1,8 @@
-DECRETO VII,
-Manda destinar a cada uno de los lados del rio “Sarapiqui” una faja de tierra en los baldios de la Republica, para la ubicacion de casas, sementeras etc.
-“José María Castro Presidente de Costa Rica, etc. etc.
+(Derogado)
+DECRETO VII
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
+Manda destinar a cada uno de los lados del rio "Sarapiqui" una faja de tierra en los baldios de la Republica, para la ubicacion de casas, sementeras etc.
+"José María Castro Presidente de Costa Rica, etc. etc.
 Considerando: 1e Que para facilitar el tránsito del camino que conduce del interior de la República al rio Sarapiquí, es indispensable se establezcan habitaciones y sementeras a uno y otro lado de dicho camino:
 2° Que esto no se consigue si no es por el estimulo de una grácia en favor de las familias que se radiquen en aquellos puntos; y
 3° Que siendo hoy de bastante importancia los terrenos baldíos próximos al enunciado camino y pretendiendose por pocas personas la denuncia y composicion de todos ellos, es preciso impedir semejante monopolio en bien y provecho de la generalidad de los habitantes del pais, decreto.

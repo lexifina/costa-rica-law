@@ -1,4 +1,6 @@
-DECRETO N°LV
+(Derogado)
+DECRETO N° LV
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (de 29 de julio)
 Referente à los buques de don Pedro Torres en el Pacífico.
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,

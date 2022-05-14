@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 179
+(Esta norma fue derogada por el artículo 1° inciso 149, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Supremo del Estado Libre de Costa rica.
 Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado Libre de Costa rica, habiendo tomado en consideración la injusticia con que se vende el tabaco de primera y segunda a un mismo precio comprándole a diverso al Cosechero: que para efectuarlo es necesario al Cosechero, que para efectuarlo es necesario convertir el tabaco en manojos con cuya operación desmerece no solo al tiempo del manojeo sino del enfardage de lo que resulta también merma que sufre al Cosechero y deseando evitar estos males y el de que la clase de tercera fomente el contrabando pudiendo venderlo al público a bajo precio con ganancia de la Renta, ha tenido a bien decretar y decreta.

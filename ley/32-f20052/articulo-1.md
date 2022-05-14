@@ -1,5 +1,6 @@
+(Derogado)
 DECRETO XXXII.
-(Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
+(Esta norma fue derogada por el artículo 1°, inciso 28, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado Libre de Costa-rica.
 Por quanto el Congreso constituyente del mismo Estado ha Decretado lo que sigue.
 El Congreso Constituyente del Estado de Costa- rica ha tenido á bien decretar y decreta el siguiente.

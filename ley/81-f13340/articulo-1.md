@@ -1,7 +1,9 @@
+(Derogado)
 DECRETO LXXXI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Réstablece provisionalmente las Municipalidades. (1)
 (1) Corroborado por la Constitución de 1841
-El General Jefe Supremo Provisorio del Estado de Costa Rica. –Por cuanto la Asamblea Constituyente ha decretado lo siguiente
+El General Jefe Supremo Provisorio del Estado de Costa Rica. -Por cuanto la Asamblea Constituyente ha decretado lo siguiente
 La Asamblea Constituyente del Estado de Costa Rica, considerando:
 Que el Gobierno intruso hizo desaparecer el régimen municipal de los pueblos resumiendo las atribuciones de las Municipalidades indicadas, como llamadas á atender á sus primeras y principales necesidades; y
 Que la Asamblea está constituida en el deber de reorganizar provisionalmente el Estado según lo demandan los intereses de los mismos pueblos, decreta.

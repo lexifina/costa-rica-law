@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO LXXIX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Declara la elección de varios Senadores propietarios y suplentes coma y señalaría para su posesión.
-El Jefe Supremo Provisorio del Estado Libre de Costa Rica. –Por cuanto la Cámara de Representantes ha decretado lo siguiente.
+El Jefe Supremo Provisorio del Estado Libre de Costa Rica. -Por cuanto la Cámara de Representantes ha decretado lo siguiente.
 La cámara de Representantes del Estado libre de Costa Rica considerando:
 1° que el número de sufragios concurrentes en las elecciones últimamente practicadas á consecuencia del art. 2° del decreto de 2 de Octubre anterior, es el de dos mil trescientos uno, según lo demuestran los pliegos dirigidos por todos los Directorios del Estado:
 2° que en esta virtud, y con presencia del art. 86, Sección 1a de la Constitución, se necesita para que haya elección popular, el número de mil ciento y dos votos:

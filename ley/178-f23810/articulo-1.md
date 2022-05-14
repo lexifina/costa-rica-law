@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CLXXVIII
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Restituya la forma que dio al Tribunal Superior de Justicia la Ley de 22 de Abril de 833 y declara insubsistente la de 23 de marzo de 835 (1)
 “ El Jefe Supremo del Estado libre de Costa Rica, Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa rica, considerando: que la falta de Letrados en el Estado, ha hecho ilusorios las mas de las formas que se han dado a la Corte Superior de Justicia del mismo, y que por tanto se hace indispensable presindir de aquel requisito, ha tenido a bien decretar y decreta.

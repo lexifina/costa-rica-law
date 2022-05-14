@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XI.
+(Esta norma fue derogada por el artículo 1° inciso 206, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Se declara insubsistente la ley de 19 de Abril de 1830,
 se suprimen las judicaturas de letras de Oriente y
 Occidente, y se emiten otras disposiciones relativas.

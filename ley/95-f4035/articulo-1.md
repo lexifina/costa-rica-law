@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CXV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Suspende el orden constitucional en el Estado é impone pena a los auxiliadores de una faccion que se ha levantado en la ciudad de Alajuela.
 "El Vice-Presidente del Estado de Costa Rica en ejercicio del Supremo Poder Ejecutivo.
 Teniendo en consideracion: que un grupo de facciosos del Departamento de Alajuela se ha echado sobre las armas del Estado que venian de Puntarenas para el interior, cometiendo de este modo un atroz crímen que amenaza la existencia de todos los pueblos:

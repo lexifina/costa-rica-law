@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO XVI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Manda se proceda al nombramiento d Vice-Jefe del Estado, y Magistrados que funjan provisionalmente en la Cámara Judicial.
-“El Jefe Supremo Provisorio del Estado De Costa Rica. –Por cuanto la Asamblea Constituyente ha decretado lo que sigue.
+"El Jefe Supremo Provisorio del Estado De Costa Rica. -Por cuanto la Asamblea Constituyente ha decretado lo que sigue.
 La Asamblea Constituyente del Estado de Costa Rica, considerando: 1° que por consecuencia de los sucesos del 11 al 15 de septiembre de 1842, y actas de 23 y 24 del mismo, el estado quedó sin autoridades supremas que lo rigiesen:
 2° que por las mismas actas, solo se proveyó de Jefe Supremo Provisorio:
 3° que el interés público reclama se provea de Vice-Jefe, y de Magistrados para la Camara Judicial; y

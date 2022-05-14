@@ -1,7 +1,9 @@
+(Derogado)
 DECRETO LXVII.
+(Esta norma fue derogada por el artículo 1° inciso 239, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Designando los individuos de los Supremos Poderes
 que deben renovarse en el proximo periodo.
-“El Gefe Supremo del Estado libre de Costa-Rica.-Por cuanto la Asamblèa ha decretado lo siguiente.
+"El Gefe Supremo del Estado libre de Costa-Rica.-Por cuanto la Asamblèa ha decretado lo siguiente.
 La Asamblèa Constitucional del Estado libre de Costa-Rica, en atencion a lo que previenen los artículos 54, 56 y 80 de la Constitucion del Estado, para renovar los individuos de los Supremos Poderes, Legislativo, Conservador y Ejecutivo, que han de fungir en el proximo año de 33, ha tenido à bien decretar y decreta.
 Las juntas electorales de partido nombradas en el mes de Enero del año proximo de mil ochocientos treinta y tres, para la renovacion de individuos de los Supremos Poderes del Estado, lo verificarán.
 1° La de San Josè, eligiendo tres Diputados propietarios en lugar de los Ciudadanos Manuel Alvarado, Presbitero Cecilio Umaña y Manuel Alvarado; quedando reservado el Diputado suplente Ciudadano Manuel Fernandez.
@@ -14,4 +16,4 @@ Las juntas electorales de partido nombradas en el mes de Enero del año proximo 
 8° Y todas darán votos, eligiendo un Consejero propietario en reposicion del Ciudadano Presbitero Doctor Juan de los Santos Madriz, un Consejero suplente en reposicion del Ciudadano Camilo Mora, y otro mas con arreglo à la ley de 15 de Marzo último; quedando reservados los Ciudadanos Manuel Garcia Escalante, Felix de Bonilla, y el Suplente Ciudadano Presbitero Rafael del Càrmen Calvo.
 9° Las mismas los darán, eligiendo uno para Gefe, en lugar del Ciudadano Juan Mora, y otro para Vice-Gefe, en el de el Ciudadano José Rafael de Gallegos.
 Comuníquese al Supremo Poder Ejecutivo.-Dado en San Jose á los quince dias del mes de Mayo de mil ochocientos treinta y dos.-Joaquin de Iglesias, Diputado Presidente.-Nicolas Ulloa, Diputado Secretario.-José Maria Arias, Diputado Secretario.
-Por tanto: Ejecutese. San José Mayo diez y ocho de mil ochocientos treinta y dos.-Juan Mora.-Al Ciudadano Joaquin Bernardo Calvo.”
+Por tanto: Ejecutese. San José Mayo diez y ocho de mil ochocientos treinta y dos.-Juan Mora.-Al Ciudadano Joaquin Bernardo Calvo."

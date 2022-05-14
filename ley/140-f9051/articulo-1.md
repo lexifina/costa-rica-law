@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 140
+(Esta norma fue derogada por el artículo 1°, inciso 114, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Jefe Supremo del Estado libre de Costa-Rica
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa-Rica, considerándose autorizada por la necesidad para proveer en las rentas de la Federación en la actual crisis de la República cuando disueltas las autoridades, aun las relaciones con los demás Estados se hallan enteramente cortadas, y en concepto también a que las leyes no han podido proveer sino es en la paz que las leyes no han podido proveer sino es en la paz y calma de las pasiones que por lo mismo no fijaron reglas a los Estados para su conducta, en tales circunstancias y que un deber de los mismos, dando el posible cumplimiento a éstas, encargar la dirección de aquellas al Gobierno, quien con presencia de las necesidades y recursos procure conservarlas; ha venido en decretar y decreta.

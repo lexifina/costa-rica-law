@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXXIII
+(Esta norma fue derogada por el artículo 1°, inciso 63, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado libre de Costa rica
 Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa rica, considerando que por el Gobierno Federal se ha contratado un empréstito extranjero de mas de siete millones con el objeto de dar impulso a la riqueza y prosperidad de los Estados sobre quienes gravita la solución del capital e intereses que en este caso exige el que dichos Estados no se comprometan en otros créditos ofreciendo participarles de las cantidades necesarias hasta donde alcance aquella, y si faltase aumentarlo o tomar otro pasados dos años para llenarlas y últimamente que la existencia de Costa rica es casi nula, y meramente elementar mientras no haya capitales para desarroyarle cuya necesidad havia conducido a sus autoridades aun al intento de celebrar por si otro empréstito particular, ha tenido a bien decretar y decreta.

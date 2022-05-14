@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LVIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Manda reconocer y habilitar en la casa de moneda, la de La de real y de a medio con el tipo de arbol y volcanes (1).
 (1) Véanse sobre esta materia las leyes numeros 19 y 3 de 11 de diciembre de 1863,
 Y 7 de setiembre de 1861. Véase tambien el acuerdo n° 5 de 13 de enero de 1861.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXVI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Manda se indemnizen a los respectivos dueños el valor de las bestias muertas o perdidas en servicio del ejército del Gobierno.
 "El Presidente del Estado de Costa Rica.
 Con la mira de que ninguna persona sufra pérdidas á virtud de perjuicios ocasionados por las fuerzas que el Gobierno levantó en el mes próximo pasado para la defensa de la ley; y para que la Contaduria mayor, al practicar la liquidacion prevenida por el decreto número 18 de l5 del mismo mes, parta de datos seguros y exactos, decreta.

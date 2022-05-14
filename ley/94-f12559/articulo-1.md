@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XCIV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Restablece en su vigor y fuerza el 9 Sección 1° del Reglamento de hacienda de 10 de diciembre de 1839 con las modificaciones posteriores. (1)
 (1) Refundido en el capítulo 6° sección 1a del nuevo Reglamento de hacienda de 30 de julio de 1858.
 "El Jefe Supremo Provisorio del Estado libre de Costa Rica. Considerando: que los muchos asuntos que diariamente se presentan en el Juzgado de 1° Instancia de esta capital absorben las horas de oficina sin dejar tiempo para atender a los que interesen a la hacienda pública, y que el despacho de estos no puede tener la expedición necesaria sino se encarga a jueces especiales, como lo ha demostrado la experiencia, en uso de las facultades que le confiere la fracción 3a art. 11 de la acta de 7 de junio último, ha venido en decretar y decreta.

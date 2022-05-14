@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Suprime el mando político Superior, y establece jefes Políticos en todos los Departamentos (1.)
 (1.) Reformado por la ley del régimen político n° 41 de 27 de Diciembre de 1848.
 El Vice-Jefe Supremo del Estado libre de Costa Rica en ejercicio del Poder Ejecutivo.

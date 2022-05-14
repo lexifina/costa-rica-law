@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CXX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Poder Ejecutivo convoca a Sesiones extraordinarias al Excelentisimo Congreso del Estado.
 El General Presidente del Estado de Costa Rica.
 En uso de las facultades que le confiere la Constitucion, decreta.

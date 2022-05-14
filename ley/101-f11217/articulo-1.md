@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CI
+(Esta norma fue derogada por el artículo 1°, inciso 79, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado libre de Costa rica.
 Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa rica, considerando que la aplicación del Ciudadano José Mora al arte de gravar en la Corte de Guatemala y su resolución a servir este oficio en el Estado: la necesidad de un individuo que lo sirva, la falta de medios para subsistir allí que tiene aquel, y su aptitud merecen los auxilios posibles del Gobierno, ha tenido a bien decretar y decreta.

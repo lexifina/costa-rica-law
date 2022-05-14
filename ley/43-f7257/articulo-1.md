@@ -1,4 +1,6 @@
+(Derogado)
 ECRETO XLIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Señala el precio de dos reales a cada botella de aguardiente del pais; y el de cinco reales a cada libra deTabaco Istepeque que se venda en los puestos publicos. (1)
 (1) Reformado en la primera parte por la Resolucion n° 269 de 28 de diciembre de 1864, y en la segunda por el artículo 64 seccion 2° cupítulo 6° del Reglamento de Hacienda de 31 de julio de 1858.
 José M° Castro Presidente de Costa Rica etc. ete,

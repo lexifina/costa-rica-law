@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 185
+(Esta norma fue derogada por el artículo 1° inciso 154, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe del Estado Libre de Costa rica
 Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado Libre de Costa rica: considerando que la Ley de veinte y nueve de Octubre del año proxime pasado de ocho cientos veinte y ocho en sus artículos primero y tercero presenta motivos de duda, ha tenido a bien declarar y declara.

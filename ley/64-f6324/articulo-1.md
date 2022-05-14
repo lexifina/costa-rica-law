@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXIV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Reglamento interior del Senado. (1)
 (1) El presente Reglamento estuvo suspenso, a virtud de las Constituciones de 847 y 848 que suprimieron la Cámara de Senadores; pero restablecida esta por la Constitución de 26 de Diciembre de 1859 ha vuelto aquel regir.
 "El Jefe Supremo Provisorio del Estado de Costa Rica-Por cuanto la Asamblea Constituyente ha decretado lo que sigue.

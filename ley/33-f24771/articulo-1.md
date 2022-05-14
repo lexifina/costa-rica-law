@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIII
+(Esta norma fue derogada por el artículo 1°, inciso 27, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 La Asamblea Constituyente del Estado Libre de Costa rica, ha tenido a bien decretar y decreta.
 Los Ciudadanos que hallan servido por el término Constitucional qualesquera destino electivo de los Supremos Poderes del Estado, no serán obligados a admitir otro diverso sin que haya transcurrido el intervalo de un año.
 Comuniquese al Gefe Supremo del Estado para su execución publicación y circulación. San José abril 7 de 1825.

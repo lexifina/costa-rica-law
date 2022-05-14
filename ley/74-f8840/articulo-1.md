@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXIV
+(Esta norma fue derogada por el artículo 1° inciso 244, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Se amplía la convocatoria extraordinaria de la Asamblea
 **El Gefe Supremo del Estado libre de Costa Rica.
 Considerando: que en el Congreso nacional se ha representado para que se desconozca el Poder concedido al Ejecutivo del Estado por el 13 art´° 82 de la Constitución: que deben dictarse providencias para dar el lleno debido a lo que dispone el art 2° del Decreto Federal de 8 de Mayo del año Proximo pasado: Que en el Senado de la Federación se han hecho observaciones contra la Ley del Estado de 21 de mayo del mismo año: que la Intendencia las ha producido acerca de algunas disposiciones que contiene la ordenanza novísima de Minería; y que a la Legislatura compete el escrutinio de votaciones para individuos de la Corte Superior de Justicia a que ha convocado el decreto de 25 de próximo anterior, con dictamen del Consejo Representativo, he venido en decretar y decreto.

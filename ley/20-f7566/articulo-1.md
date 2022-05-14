@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Adiccional a la ley de elecciones Num. 38 de 19 de octubre de 1848. (1)
 (1) Reformada y sustituida por la ley n° 25 de 21 de octubre de 1862.
 "Jose Ma Castro Presidente de Costa Rica etc. etc.- Por cuanto el Excelentísimo Congreso Constitucional de la República ha decretado lo siguiente.

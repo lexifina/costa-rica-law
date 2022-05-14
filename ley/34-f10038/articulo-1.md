@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Manda a indemnizar a los particulares las porciones de tierra que, para calles y caminos, le hubiesen sido tomadas a virtud de las órdenes de 08 de febrero de 1840, y 16 de enero de 1841.
 El Jefe Supremo Provisorio, del Estado de Costa Rica.
 Siendo de necesidad absoluta satisfacer perentoriamente las muchas demandas que cada día se presentan al Gobierno, solicitando la indemnización de las porciones de tierra ocupadas en la propiedad particular en virtud de las órdenes de 8 de febrero de1840 y 16 de enero de 1841, para calles y caminos: considerando que una de las garantías consignadas en nuestras leyes fundamentales, es el respeto a la propiedad; y que en ningún caso puede esta ser tomada sino por razón de interés público legalmente comprobado, previa indemnización, y teniendo a la vista las disposiciones de 21 de mayo de 1842 números 13 y 14 aprobadas por la legislatura núm.° 14 de 24 de Agosto del mismo año, en cumplimiento, ha venido en decretar y decreta.

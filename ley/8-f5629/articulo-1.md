@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO VIII
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Conmuta la pena a que fueron condenados varios reos por un Consejo de guerra.
-“El Jefe Supremo del Estado Soberano de Costa Rica.
+"El Jefe Supremo del Estado Soberano de Costa Rica.
 Con presencia de la sentencia del Consejo de guerra pronunciada en 21 del corriente en la causa seguida contra Felix Mora, Ramón Chavarría, Vicente Navarro, Manuel Meléndez y Cómplices.
 Deseando apurar los sentimientos de humanidad y filantropía en favor de los que varias veces han propendido por trastornar el orden público.
 Queriendo dar el último paso de benevolencia que convenza á los autores y meditadores de planes subversivos, que el Gobierno desea la pacificación de los ánimos y la unión de los partidos, y que no quiere usar de la dureza de las leyes, castigando con las penas detalladas de los delincuentes.

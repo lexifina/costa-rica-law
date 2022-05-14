@@ -1,23 +1,7 @@
+(Derogado)
 DECRETO 145.
-El Jefe Supremo del Estado libre de Costa-Rica.
-Por cuanto la Asamblea ha decretado y el Consejo
-sancionado lo siguiente:
-La Asamblea Constitucional del Estado libre de
-Costa-Rica, considerando que la demasiada extensi¢n
-en la inteligencia de las voces oficio o modo de vivir conocido del art.
-19, cap¡tulo 3§ de la Constituci¢n del
-Estado, es capaz, si no se restringe, de causar grandes
-males introduciendo en el n£mero de ciudadanos a
-hombres aventureros, vagos o mal ocupados, ha tenido
-a bien declarar y declara.
-1§.-El oficio o modo de vivir conocido que el art¡culo
-19, cap¡tulo 3§ de la Constituci¢n del Estado requiere
-para ser ciudadano costarricense, consiste en el
-ejercicio por la mayor parte del a¤o de alg£n oficio
-honesto y productivo, ¢ en propiedad o capital en giro
-cuyas ganancias y frutos sean capaces de mantenerle
-con proporci¢n a su estado.
-2§.-Esta declaratoria se tendr siempre a la vista
-en los actos electorales, siendo de la m s estrecha
-responsabilidad del Directorio, tanto en las elecciones
-federales como del Estado la falta de su cumplimiento.
+(Esta norma fue derogada por el artículo 1°, inciso 118, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
+El Gefe Supremo del Estado libre de Costa Rica.
+Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
+La Asamblea Constitucional del Estado Libre de Costa rica: considerando que tanto el resguardo y persecución de ventas clandestinas de tabaco corresponde establecer a las Autoridades del Estado, quanto el de siembras clandestinas que corresponde a la Federal son indispensables para la conservación de la renta y que en la actual desorganización de la República debe cuidar de disponer todo aquello que harían las respectivas Autoridades si existiesen; ha venido en decretar y decreta.
+Art 1°.- No se harán siembras de tabaco sin que el número necesario de cosecheros se allane con la dirección á permitir el registro por el resguardo de los ranchos quando este lo tenga a bien sin formalidad alguna durante el tiempo de la cosecha.

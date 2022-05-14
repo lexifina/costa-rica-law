@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO XXXI
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Poder Ejecutivo extraña del Estado al Diputado Vicente Villaseñor, Consejero Juan Vicente Escalante, Alejandro Escalante y Juan Murillo
-“El Jefe Supremo del Estado libre de Costa Rica
+"El Jefe Supremo del Estado libre de Costa Rica
 Considerando:
 1° Que el primer deber y obligación que le impone la Ley Fundamental en su artículo 82, es la conservación del orden, tranquilidad y seguridad del Estado:
 2°.- Que con este primordial objeto de toda sociedad, el artículo 13 del Reglamento de 23 de Setiembre de 831 autoriza al Poder Ejecutivo para dictar las medidas que parezcan conducentes:

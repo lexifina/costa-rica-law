@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CXXXI
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Desenvuelve los conceptos de varios articulos de la primera parte del Codigo general, referentes a la facultad de los testadores para instituir por herederos a las almas de los difuntos.
 "El General Presidente del Estado de Costa Rica.
 -Por cuanto el Excelentisimo Poder Legislativo ha decretado y sancionado lo siguiente.

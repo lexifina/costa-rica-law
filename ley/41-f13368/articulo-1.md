@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (Reformado por el Decreto de 28 de marzo de 838)
 Permite la vuelta al Estado de los emigrados y expulsos por consecuencia de la revolución política de 835 (1)
 “El Jefe Supremo del Estado Libre de Costa Rica. – Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:

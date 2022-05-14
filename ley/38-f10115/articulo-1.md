@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXVIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Concede privilegio exclusivo al Señor Benito Dengo por la invención de una máquina. (1)
 (1) Derogado por el art. 2° del Decreto n° 14 de 24 de Agosto de este mismo año, fue después rehabilitado por el Decreto n° 18 de 30 de Agosto del mismo año.
 El Jefe Supremo del Estado de Costa Rica.

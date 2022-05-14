@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 211
+(Esta norma fue derogada por el artículo 1° inciso 175, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Jefe Supremo del Estado libre de Costa Rica
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa Rica, teniendo á la vista la solicitud de Fray Francisco Quintana (religioso de la orden menor de San Francisco), de que se le socorra con una limosna mensual de los fondos que pertenecían al convento sería un deber de éste mantener con sus rentas á los religiosos desvalidos: observando últimamente, que pueden presentarse en lo sucesivo, casos de igual o semejante naturaleza, ha venido en decretar y decreta.

@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO LXXV.
-La Asamblea Constituyente declara la elección de Jefe Supremo Provisional.
-El General Jefe Supremo Provisorio del Estado de Costa Rica. – Por cuanto la Asamblea Constituyente ha decretado lo siguiente.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
+a Asamblea Constituyente declara la elección de Jefe Supremo Provisional.
+El General Jefe Supremo Provisorio del Estado de Costa Rica. - Por cuanto la Asamblea Constituyente ha decretado lo siguiente.
 La Asamblea Constituyente del Estado de Costa Rica: cumpliendo con lo prevenido en el artículo 1° del decreto de la misma de 14 del corriente ha venido a decretar y decreta:
 Art. 1° Se ha por Jefe Supremo Provisorio del Estado al Benemérito General en Jefe del Ejército Nacional y Liberador de Costa Rica Señor Francisco Morazan electo por le Asamblea con unanimidad de votos.

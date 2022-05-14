@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CI
+(Esta norma fue derogada por el artículo 1° inciso 315, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
 Declara en su vigor el de 3 de Abril de 1829, y derogado el de 15 de Abril de 1833 sobre usura(1)
 (*) Arreglada esta materia por los artículos 1265 y 1266 de la primera parte del Código general, cuya observancia previno después el Decreto legislativo núm. 7 de 11 de Junio de 1850.

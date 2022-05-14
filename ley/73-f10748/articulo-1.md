@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXIII.
+(Esta norma fue derogada por el artículo 1° inciso 241, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Deroga los artículos 3° y 4° de la ley de 15 de Marzo y
 el 22 de la de 23 de Abril de este año. (1)
 (1) El presente Decreto, como todos los que reglamentaban el Consejo Representativo, despues de habear sufrido varias alteraciones, fue finalmente derogado por la Constitucion de 1844.

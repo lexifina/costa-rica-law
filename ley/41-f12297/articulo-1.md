@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Arregla las milicias del Estado. (1)
 (1) Derogado por el artículo 2° del Decreto n°14de 24 de Agosto de este mismo año
 El Jefe Supremo del Estado de Costa Rica.

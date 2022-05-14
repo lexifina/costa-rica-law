@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Aprueba la contrata de colonizacion celebrada entre el Gobierno de la República y el Sr. Baron Bülow como representante de la Campania de colonización de Berlin. (1)
 (1.) Ver el decreto de I0 de agosto de 1861 quo declara nulas y de ningun valor las concesiones do esta contrata.
 "Juan Rafael Mora Presidente de la República de Costa Rica. -Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente. El Excelentisimo Congreso constitucional de la República de Costa Rica, con presencia de la contrata celebrada entre el Supremo Gobierno de la República y la Compañia de colonizacion de Berlin, representada por el Sr. Baron de Bülow, concluida y firmada en esta capital el 7 de mayo del presente año, decreta:

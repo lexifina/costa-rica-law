@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO L.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gobierno Provisorio deroga el Decreta de 21 de Abril de 1840, que designa el Pabellón y armas del Estado; y restablece el Pabellón y armas que existía antes de aquel Decreto. (1)
 (1) Aprobado provisoriamente por el artículo 11 del Decreto de la Asamblea Constituyente n° 14 de 24 de Agosto de este año; fue después sustituido por el n° 26 de 2° de Setiembre de 1848.
 (2)

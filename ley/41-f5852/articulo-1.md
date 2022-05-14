@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Reforma o modifica el decreto num, 7 de 27 de octubre proximo pasado que permite la formacion de la compañia de Sarapiqui. (1)
 (1) Disuelta la compañia de Snrapiqui intes de llevar à cabo la empresa, caducaron todas las concesiones.
 "Juan Rafael Mora, Presidente de la República de Costa Rica.

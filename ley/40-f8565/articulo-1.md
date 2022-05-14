@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XL.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Concede un nuevo término de sesenta dias para el cambio de la moneda macuquina.
 “José Maria Castro Presidente de Costa Rica etc. etc.
 Considerando: que el término señalado en el art. 2° del decreto número 8 fecha 19 de julio anterior, no es suficiente para que se verifique la amortizacion de toda la moneda macuquina existente en la República, decreto:

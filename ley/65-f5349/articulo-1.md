@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Designa cuantos deben ser los puestos para la venta de licores del pais, y da reglas para esta.
 (1) Véanse el Cap. 9 Seco. 2° del Reglamento de Hacienda n° 2 de 30 do julio de 1858.
 "Juan Rafael Mora Presidente de la República de Costa Rica.

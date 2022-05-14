@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CXLV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Reglamenta la composición de caminos. (1)
 "El Jefe Supremo del Estado libre de Costa Rica.
 Facultado por el decreto de 25 de Agosto de este año para reglamentar el cobro, administración e inversión del fondo de caminos, entre tanto puede hacerlo de un modo m s sencillo, económico y provechoso al Estado, ha dispuesto.

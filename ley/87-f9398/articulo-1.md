@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXXVII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Autoriza la formación de una compañía con objeto de abrir un camino carretero al puerto de Moin.(1)
 (1) Ver el decreto n° 5 de 20 de febrero de 1551, y el n° 11 de 12 de agosto de 1861. Este último declara caducas todas las concesiones.
 "Juan Rafael Mora Presidente de la República de Costa Rica. Por cuanto el Excelentisimo Congreso constitucional ha decretado la siguiente.

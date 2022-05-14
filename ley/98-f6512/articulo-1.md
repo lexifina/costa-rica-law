@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XCVII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Dicta varias medidas para prevenir las ponencias de la falsificacion de los vales o billetes nacionales (1)
 (1) Véaso el decreto n° T de 2 de sotiembro do 1852, y el cap.1° de la ordenanza n° 1. de 27 de abril de 1859.
 "Juan Rafael Mora Presidente de la República de Costa. Rica.

@@ -1,7 +1,9 @@
+(Derogado)
 DECRETO LXXXVIII
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Concede gracias a las personas que quieran dedicarse al cultivo del cacao. (1).
 (1) Ver la ley n° 1 de 1° de febrero de 1933.
-“Juan Rafael Mora Presidente de la República de Costa Rica,-Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente.
+"Juan Rafael Mora Presidente de la República de Costa Rica,-Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente.
 El Excelentísimo Congreso constitucional de la República de Costa Rica: considerando:
 1° Que la República posee terrenos de la mejor calidad para el cultivo del cacao:
 2° Que este cultivo puede ofrecer incalculables ventajas al comercio de exportacion del pais en razon de hallarse en las inmediaciones de los puertos; y

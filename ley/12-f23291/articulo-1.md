@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XII
+(Esta norma fue derogada por el artículo 1°, inciso 10, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado de Costa rica.
 Por quanto el Congreso Constituyente del mismo Estado ha decretado lo que sigue.
 El Congreso Constituyente del Estado de Costa rica: teniendo presente que existen caudales públicos pertenecientes a limosnas, y mandas forzosas de la Casa Santa de Jerusalen, de redención de Cautivos, de nuestra Señora de Guadalupe y otras en poder de sus Comisarios o administradores, sin poderse hacer las inversiones que les corresponde: que las arcas Nacionales prestan administración más segura, y que las actuales necesidades del Estado exigen pronto socorro, ha tenido a bien de decretar y decreta.

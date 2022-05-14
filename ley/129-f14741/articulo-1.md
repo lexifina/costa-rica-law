@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CXXIX
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Autoriza al P.E. para reglamentar el cobro, administración e inversión de la contribución establecida para la composición de caminos.
 El Jefe Supremo del Estado libre de Costa Rica, Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa Rica, deseando que la contribución establecida para la composición de caminos, llene su objeto con ventajas y con provecho del público que la subministra ha tenido a bien decretar y decreta:

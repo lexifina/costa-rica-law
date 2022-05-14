@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 La Asamblea Constituyente aprueba el Decreto del Poder Ejecutivo numero 25 de 25 de Noviembre de 1843, que establece la Sociedad Económica Itineraria.
 “El Jefe Supremo Provisorio del Estado de Costa Rica –Por cuanto la Asamblea Constituyente ha decretado lo que sigue.
 Habiendo tomado en consideración el decreto expedido por el Ejecutivo en 25 de Noviembre del año pasado de 843, y mareado con el número 25 de Noviembre del año pasado 843, y marcado con el número 25 comprensivo de 21 artículos, por el cual establece una Sociedad Sconómica Itineraria en el Estado para la apertura y construcción de buenos caminos, desde el interior hasta los puertos del Norte y Sur; con mérito á lo informado por la Comisión respectiva, y atendidas la utilidad y conveniencia que brinda el referido decreto á favor de nuestra naciente agricultura, y aun de la industria y comercio del país, decreta.

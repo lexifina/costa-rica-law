@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO CVII.
-Dispone que la "Direccion de caminos,” prévios los reconocimientos necesarios, dedique todos sus esfuerzos a la apertura de un camino al “Atlantico.” (1)
-(1) Después de impendidos algunos gastos en un camino al “Sarapiqui." fueron cedidas las obras hechas y los utensilios á la compañia nombrada de “Sarapiqui."
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
+Dispone que la "Direccion de caminos," prévios los reconocimientos necesarios, dedique todos sus esfuerzos a la apertura de un camino al "Atlantico." (1)
+(1) Después de impendidos algunos gastos en un camino al "Sarapiqui." fueron cedidas las obras hechas y los utensilios á la compañia nombrada de "Sarapiqui."
 El General Presidente del Estado de Costa Rica.
 Considerando: 1° que la industria y comercio del pais demandan imperiosamente la apertura del camino mas corto sobre la distancia que nos separa de las naciones cultas de Europa y la de los Estados Unidos de Norte América, que son las que consumen nuestros frutos.
 2° que nuestra posicion topogràfica nos ofrece esta ventaja por las costas del Atlántico ahorrándonos una distancia enorme de tres mil leguas, que ahora tenemos que recorrer con nuestras producciones, al rededor del Cabo de Hornos.

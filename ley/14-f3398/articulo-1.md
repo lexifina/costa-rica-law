@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XIV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Deroga los tres primeros articulos del decreto n° 10 de 2 de setiembre del año 1850 que declaraban libre en la Republica el cultivo del tabaco,
 "Juan Rafael Mora Presidente de la República de Costa Rica.
 Considerando: que no es conveniente todavia poner en práctica la libertad del cultivo del tabaco del país, del modo establecido por el decreto número 10 de 2 de setiembre del año próximo pasado; porque es preciso aguardar que el producto de las demás rentas Ilenen el vacio que debia dejar en las arcas nacionales la desaparicion de la de tabacos, decreta:

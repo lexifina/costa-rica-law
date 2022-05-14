@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXVI
+(Esta norma fue derogada por el artículo 1° inciso 245, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Arregla el modo de conceder los pasaportes y emite algunas otras disposiciones sobre policía (1)
 El Gefe Supremo del Estado libre de Costa Rica.
 Teniendo en consideración: que en los pueblos del Estado se introducen muchos forasteros que ni se presentan a la autoridad política Superior, ni a las subalternas del punto a que se dirigen: que por esta causa se ignora cual sea su procedencia y destino con que vengan: que una conducta semejante puede motivar muy malas consecuencias en el orden, con dictamen del Consejo Representativo, he venido en decretar y decreto.

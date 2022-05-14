@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CXII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Declara abolida la contribución conocida bajo el nombre de "Diezmo." (1)
 "El Vice-Jefe encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.-Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente
 La Asamblea Constitucional de Costa Rica, considerando: que el impuesto de diezmo obstruye en su origen las fuentes de prosperidad p£blica, recayendo no solo en el trabajo de la porción m s útil y productora del Estado, sino también sobre su capital:

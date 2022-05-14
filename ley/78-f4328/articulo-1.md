@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXVIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Suspende los efectos de la ley n° 41 de 27 de diciembre de 1848, y de la adicional n° 22 de 29 de diciembre de 1850, en cuanto previenen en nombramiento y conservación de Jefes Políticos cantonales; y previene como se deben sustituir éstos (1)
 "Presidente de la República de Costa Rica.
 Teniendo en consideración, que aunque la institución de Jefes Políticos en los Cantones de las Provincias debiera ser fecunda en resultados benéficos, la experiencia de mas de tres años ha demostrado que no es posible conservarla, al presente, porque la escasez de las rentas municipales no permite cubrir las dotaciones y estimular por este medio el celo de los que, con capacidades bastantes, se encargasen de aquellos destinos; y que reclamando el interés de la sociedad una medida que concilie la recta administración de los pueblos con la economía de hombres y de caudales, es indispensable dictarla; y al efecto de acuerdo con el voto de la Honorable Comisión Permanente, decreto:

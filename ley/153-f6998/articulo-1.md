@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CLIII
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Designa las cualidades necesarias para obtener el destino de Jefe Político (1)
 “ El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa Rica, considerando: que lo dispuesto en el artículo 26 de la ley de 13 de junio de 828 y 1° de la de 24 de marzo del año próximo pasado en orden a las circunstancias que deben adornar a los Jefes Políticos, impide la colocación en estos destinos de una porción de personas aptas y pone al Gobierno en la dificultad de no hallar en quien proverlos, ha tenido a bien decretar y decreta.

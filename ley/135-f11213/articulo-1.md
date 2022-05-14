@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 135
+(Esta norma fue derogada por el artículo 1°, inciso 111, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Jefe Supremo del Estado libre de Costa-Rica
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa-Rica, considerado que es indispensable para garantizar los derechos de los ciudadanos, el que ninguno por ejercer parte de la autoridad pública se sustraiga de obedecer a los que ejercen los demás, ha tenido a bien decretar y decreta:

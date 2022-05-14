@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 197
+(Esta norma fue derogada por el artículo 1° inciso 163, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado Libre de Costa rica
 Por quanto la Asamblea ha decretado lo siguiente.
 La Asamblea Constitucional del Estado Libre de Costa rica: habiendo procedido a regular las votaciones habidas por los electores de distrito en las dos juntas Departamentales para los dos Senadores propietarios y un suplente que corresponde a este Estado en cumplimiento del artículo 48 de la Constitución Federal, 38 de la particular, declara y decreta.

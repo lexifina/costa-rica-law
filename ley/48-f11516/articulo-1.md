@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLVIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Admite la renuncia que de la Vice-Presidencia de la República hizo Don Manuel José Carazo; y manda proceder a elecciones para reponerlo.
 «José María Castro Presidente de Costa Rica etc. etc.
 -Por cuanto el Excelentisimo Congreso constitucional de la República ha decretado lo siguiente.

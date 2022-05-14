@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO XIII
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Consejo Representativo declara haber lugar a formación de causa contra el Contador Mayor, Señor Alejandro Escalante.
-El Jefe Supremo del Estado Soberano de Costa Rica. –Por cuanto el Consejo Representativo ha declarado lo siguiente.
+El Jefe Supremo del Estado Soberano de Costa Rica. -Por cuanto el Consejo Representativo ha declarado lo siguiente.
 El Consejo Representativo del Estado de Costa Rica, con presencia de la causa instruida contra el contador encargado de la Intendencia Señor Alejandro Escalante, que el Gobierno pasó á su conocimiento con los atestados á que se refiere: atendidas las razones expuestas por dicho Escalante en su informe: y oído el de una comisión nombrada al efecto, declara,
-Ha lugar á formación de causa contra el Contador encargado de la Intendencia Señor Alejandro Escalante. –Comuníquese á quienes corresponda. – Dado en la Ciudad de San José, a los siete días del mes de Febrero de mil ochocientos cuarenta. Manuel A. Bonilla, Presidente. –José M. Echavarría, Secretario. –por tanto: EJECUTESE.San José, febrero diez de mil ochocientos cuarenta. –Braulio Carrillo. –Al Jefe de Sección encargado de la Secretaría general.
+Ha lugar á formación de causa contra el Contador encargado de la Intendencia Señor Alejandro Escalante. -Comuníquese á quienes corresponda. - Dado en la Ciudad de San José, a los siete días del mes de Febrero de mil ochocientos cuarenta. Manuel A. Bonilla, Presidente. -José M. Echavarría, Secretario. -por tanto: EJECUTESE.San José, febrero diez de mil ochocientos cuarenta. -Braulio Carrillo. -Al Jefe de Sección encargado de la Secretaría general.

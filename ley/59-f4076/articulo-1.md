@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LIX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Revoca respecto del Departamento de Alajuela la cesion de armas hecha en acuerdo de 12 del próximo pasado, y establece penas para los habitantes de la misma que las conserven en su poder,
 "José Maria Castro Presidente del Estado de Costa Rica, y General en Jefe del Ejército protector de la ley.
 Considorando: 1° que la cesion de armas que comprende mi acuerdo de 12 de setiembre último, fué en concepto de que estos elementos se empleasen únicamente para la conservacion del órden y la defensa del Gobierno y de la ley:

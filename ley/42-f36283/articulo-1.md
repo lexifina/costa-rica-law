@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Dispone que los Jefes Politicos de los Cantones, con del decreto no 24 de 30 de noviembre de 1847 y el art, 4 del decreto n° 8 de 15 de octubre de este año (1851.) (1.)
 (1) Ver la ley n° 27 de julio de 1852; la n° 13 de 26 de octubre de 1858.
 "Juan Rafael Mora Presidente de la República de Costa Ríca.

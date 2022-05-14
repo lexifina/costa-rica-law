@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 217
+(Esta norma fue derogada por el artículo 1° inciso 179, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Jefe Supremo del Estado libre de Costa Rica.
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Ordinaria del Estado libre de Costa Rica, cerciorada de que el art. 106 de la Constitución del Estado ofrece dudas y que éstas pueden refluir en perjuicio de la Administración Pública, siendo por tanto indispensable esclarecer el verdadero sentido de la ley, ha tenido á bien decretar y decreta:

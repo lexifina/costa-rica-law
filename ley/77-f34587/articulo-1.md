@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXVII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Reglamento para el alumbrado y serenos de là ciudad de San Jose.
 "Juan Rafael Mora Presidente de la República de Costa Rica.
 Teniendo presente: que la policía de seguridad es uno de los objetos mas importantes que deben fijar su atencion: con la mira de llevar al cabo lo dispuesto por el reglamento de policia decretado por el Congreso en 20 de julio de 1849; y oido el informe del Gobernador de la Provincia de San Josê, he tenido a bien decretar el siguiente.
