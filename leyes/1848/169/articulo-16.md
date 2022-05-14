@@ -1,1 +1,0 @@
-Art. 16. En cada distrito Parroquial se nombrarán tantos electores cuantos le correspondan en razón de uno por cada mil almas; pero en cualquier distrito cuya poblacion, sea cual fuere, no alcance á mil almas, se nombrará sin embargo un Elector.

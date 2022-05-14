@@ -1,1 +1,0 @@
-Art 8°.- Las haciendas de cacao antiguas que tengan sobre si fincados, qualesquiera censos, y no hayan sido abandonadas absolutamente por sus dueños solo cargarán dichos capitales en quanto no exedan su actual valúo aun quando en adelante se mejoren.

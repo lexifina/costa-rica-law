@@ -1,1 +1,0 @@
-16°.- Las actuales Juntas Electorales procederán a la elección de individuos de la Municipalidad y Alcaldes Constitucionales de entro los que componen las Municipales en la actualidad indistintamente y eligiendo de fuera el individuo, en aquellas que falte por la planta presente debiendo tener efecto el artículo anterior aun desde esta elección.

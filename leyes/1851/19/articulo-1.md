@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO XIX
-(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-Manda pagar a los Señores Licenciados Don Lorenzo Montufar y Don Julian Volio; su trabajo en el proyecto de la ley constitutiva de Justicia,
-"Juan Rafael Mora Presidente de la República de Costa Rica. -Por cuanto el Excelentisimo Congreso constitucional ha decretado lo siguiente.
-El Excelentísimo Congreso constitucional de la -República, teniendo á la vista el proyecto de la ley constitntiva de la administracion de justicia, trabajado por los Señores Licenciados Don Lorenzo Montufar v Don Julian Volio, como asociados à la Comision de Justicia, se ha servido acordar; que se les pague á cada uno de dichos Señores la dieta de tres pesos por todo el tiempo que se ocuparon de dicha obra.-Al Poder Ejecutivo. -Dado en el Palacio de los Supremos Poderes en San José à los dos dias del mes de julio de mil ochocientos cincuenta y uno.-Francisco Maria Oreamuno, Presidente.-Miguel Mora, Secretario.- Manuel Zamora, Secretario.-Por tanto: EJECUTESE. Palacio Nacional. San José julio cuatro de mil ochocientos cincuenta y uno. -Juan Rafael Mora.-
--Ei Ministro de Estado en el Despacho de Hacienda y Guerra, Manuel José Carazo,"

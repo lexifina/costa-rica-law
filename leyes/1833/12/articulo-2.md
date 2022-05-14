@@ -1,1 +1,0 @@
-Art 2°.- Cuando igualmente peligre la independencia de cualquier punto interesante de ambas Américas, que pueda tender directa ó indirectamente a los intereses del Estado y de la República en general.

@@ -1,1 +1,0 @@
-Art. 13. El Gobernador instruye al Poder Ejecutivo del mal desempeño de los empleados que dependan de su autoridad, remitiéndole los documentos que lo comprueben, y pasandolos tambien al juez competente cuando haya lugar á formacion de causa.

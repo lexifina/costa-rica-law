@@ -1,1 +1,0 @@
-Art. 165. Las causas de recusacion y escusa se verán antes que alguna otra, de suerte que no podra tratarse de otro asunto, si por ello se ha de retrasar el correspondiente curso, ó resolucion de los puntos pedientes acerca de aquella.

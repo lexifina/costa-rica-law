@@ -1,6 +1,0 @@
-(Derogado)
-DECRETO XVIII.
-(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-José María Castro Presidente de Costa Rica, etc. etc. -Por cuanto el Excelentisimo Congreso de la República ha decretado lo siguiente.
-El Excelentisimo Congreso Constitucional de la República de Costa Rica, habiendo examinado la memoria que el Ministro de hacienda, guerra y marina presentó, en observancia del artículo 86 de la Constitucion. Decreta
-Artículo único. Se aprueban todos los actos gubernativos á que se refiere la memoria del Ministro de hacienda, guerra y marina presentada en 6 del corriente mes. -Al Poder Ejecutivo.-Dado en el Palacio de los Supremos Poderes en San José, a los veinte dias del mes de junio de mil ochocientos cuarenta y nueve.-Manuel José Carazo, Presidente.- Modesto Guevara, Secretario. -Agapito Jimenez, Secretario. Por tanto: EJECÚTESE. Palacio Nacional, en José, junio veintiuno de mil ochocientos cuarenta y nueve. -José Maria Castro. El Ministro de hacienda y guerra, José María Cañas.

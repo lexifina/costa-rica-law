@@ -1,1 +1,0 @@
-Art. 5. Ninguno de los vecinos nombrados para componer la Junta calificadora entrará à ejercer sus funciones sin haber prestado ántes, en manos del Presidente, el juramento que previene el art. 118 de la Constitucion.

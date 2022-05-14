@@ -1,1 +1,0 @@
-Art. 100. Concluido el juicio para sentencia, se pasaràn los autos por su órden à los tres individuos que han de componer el Tribunal, señalándose por este el término en que cada uno ha de ver la causa con arreglo al volumen y complicación de esta.

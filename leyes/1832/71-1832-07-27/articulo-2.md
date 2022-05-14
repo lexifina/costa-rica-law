@@ -1,1 +1,0 @@
-Art. 2. La Corte Superior de Justicia se compondrà de tres Magistrados propietarios, que formaràn el Tribunal para todos los negocios en que segun las leyes, deban conocer, con mas tres suplentes popularmente electos.

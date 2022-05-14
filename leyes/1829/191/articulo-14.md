@@ -1,1 +1,0 @@
-Art. 14.—Para el mejor orden de separación habrá igualmente dos archivos en la Administración, destinando uno para cada renta, y en cada cual se custodiarán los libros, expedientes, leyes y demás recados que á cada una correspondan.

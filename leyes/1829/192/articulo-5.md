@@ -1,1 +1,0 @@
-5°.- En conseqüencia de lo prevenido en el artículo anterior las Municipalidades quando necesiten de la jurisdicción de los Alcaldes Constitucionales les librarán sus acuerdos, y la correspondencia de estos se custodiarán en el Archivo de las mismas.

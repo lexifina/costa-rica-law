@@ -1,1 +1,0 @@
-Art. 18.—Todos los gastos de oficina y edificio se deducirán de los ingresos que se hagan en la Tesorería con preferencia, y los sueldos quedan sujetos al rendido mensual, y justa proporción con los demás funcionarios del Estado.

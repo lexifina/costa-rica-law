@@ -1,1 +1,0 @@
-Art. 55. El Jefe Político cuida de que los Jueces parroquiales despachen en audiencia diaria y pública lo que les esté prevenido por la ley, y de que los protocolos y procesos estén con el aséo y seguridad convenientes.

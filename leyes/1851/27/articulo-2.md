@@ -1,1 +1,0 @@
-Art. 2. Para la mejor direccion de los trabajos é inversion de los fondos, se cria una Junta Itineraria provincial en el Guanacaste, compuesta del Gobernador, que será su Presidente, y de tres hacendados de inteligencia y probidad que se renovarán cada dos años.

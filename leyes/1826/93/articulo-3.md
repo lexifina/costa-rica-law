@@ -1,1 +1,0 @@
-Art 3°.- En el Pueblo de Terraba el día de feria se permitirá y garantirá la entrada y contrato libre con los Indígenas no conquistados y por ningún pretesto se les molestará con pretenciones religiosas.

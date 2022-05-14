@@ -1,1 +1,0 @@
-Art 17.- A cargo de la Secretaría de la Corte Superior queda el oficio o anotación de hipotecas de todo el Estado, y al efecto inmediatamente arreglará y abrirá los registros respectivos conforme la cédula que arregla esta materia, que la Corte dispondrá circular a todos los Jueces y pueblos del Estado.
