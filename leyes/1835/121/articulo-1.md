@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CXXI
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 La Asamblea legislativa acepta la reforma de la Constitucional federal decretada en 13 de Febrero de este año.
 La Asamblea Constitucional del Estado libre de Costa Rica, reunida extraordinariamente con objeto del considerar la reforma de la Constitución Federal, decretada por el Congreso de la República en 13 de Febrero del presente año: atendiendo a que ella está en consonancia con el voto público, y que es el resultado del clamor nacional, ha tenido a bien, con unanimidad de votos, decretar y decreta.
 Se acepta la expresada reforma dada por el Congreso Federal en 13 de febrero del presente año.

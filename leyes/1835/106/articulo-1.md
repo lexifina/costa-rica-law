@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO CVI
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Establece un Tribunal Superior de Cuenta (1)
-“El Vice Jefe encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+"El Vice Jefe encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa Rica, convencida de que los Tribunales de cuentas que hasta ahora ha señalado la ley no han producido los efectos que ella se propuso, pues no se han revisado las cuentas casi desde el tiempo de la independencia conociendo que esta conducta atrae sobre la Hacienda pública del Estado males incalculables y deseando poner un remedio eficaz, decreta.
 Art 1° Se establece en el Estado un Tribunal Superior de cuentas en lugar del que a la fecha señala la ley de 23 de Abril de 832.
 ----

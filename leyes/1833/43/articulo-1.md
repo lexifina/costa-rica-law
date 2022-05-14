@@ -1,6 +1,8 @@
-DECRETO XLIII
+(Derogado)
+.DECRETO XLIII
+(Esta norma fue derogada por el artículo 1° inciso 278, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Esplica algunos conceptos de la Ley de 3 de mayo anterior que previene la venta de cofradías.
-“El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
+"El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Extraordinaria del Estado libre de Costa Rica, con mérito a la consulta que el Ejecutivo de ha hecho en 5 del corriente, sobre las dudas que ofrece al Mando Político la ejecución de la Ley de 3 de Mayo anterior, que dispuso la venta en pública almoneda de los bienes de Cofradias y obras piadosas, ha resuelto.
 1° Que el término señalado para las mejores en los expedientes, y deberá ser el mismo de su recibo para los que no hubiesen remitido y los que lo tuviesen desde la publicación de esta Ley.
 2.Que los primeros cinco días se computen para la del mismo diezmo; los quince inmediatos, para el diezmo entero; y los diez restantes, para la cuarta.

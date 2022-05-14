@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CXI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Permite la introduccion y vénta del cognae y cualquira otro aguardiente de uva, segun las reglas que establece. (1.)
 (1.) Ver los decretos n° 10 de 21 de setiembre de 1816; y el n° 2 de 10 de febrero do 1860.
 "Juan Rafael Mora Presidente de la República de Costa Rica.

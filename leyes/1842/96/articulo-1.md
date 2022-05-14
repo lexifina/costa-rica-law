@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XCVI
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
 Designando Ias leyes y disposiciones dictadas por Ia Administración del Lic, Carrillo que deben, continuar rigiendo provisionalmente.
 EI General Jefe Supremo Provisorio del Estado de Costa Rica.-Por cuanto la Asamblea Constituyente ha decretarlo lo siguiente

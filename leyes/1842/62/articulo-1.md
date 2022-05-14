@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXIL.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gobierno Provisorio reforma los artículos 7° 8° y 9° del Decreto de 1° de Junio de 1841; y el 15 del 31 de Julio del mismo año en cuanto a licencia de los Magistrados de la Corte de Justicia.
 (1) Aprobado por el artículo 11 del Decreto de la Asamblea Constituyente n°14 del 24 de Agosto de este año; fue refundido en el articulo 19 Capitulo 6° de la Ley Reglamentaria n° 24 de 27 de Junio de 1844.
 El General Jefe Supremo Provisorio del Eltado de Costa Rica.

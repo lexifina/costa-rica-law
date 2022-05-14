@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXVII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Ordena que la contribucion de que habla el decreto 18 de 15 de octubre anterior, se pague por terceras partes en las épocas que se designan. (1)
 (1) Ver el decreto n° 11 de 16 de payo de 1515.
 El Presidente del Estado de Costa Rica.

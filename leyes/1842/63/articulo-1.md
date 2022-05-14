@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gobierno Provisorio deroga el Decreto de 21 de Junio de 1841, que prohíbe la venta de efectos en las calles y plazas. (1)
 (1) Aprobado con modificaciones por el artículo 14 del Decreto de la Asamblea Constituyente
 El General Jefe Supremo Provisorio del Estado de Costa Rica.

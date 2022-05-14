@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXI
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Aprueba los actos del Poder Ejecutivo constantes en In Memoria presentada por el Ministro de Hacienda, Guerra y Marina.
 "Juan Rafael Mora Presidente de la República de Costa Rica, -Por cuanto el Excelentísimo Congreso Constitacional ha decretado lo siguiente.
 El Excelentísimo Congreso Constitucional de la República de Costa Rica, despues de haber examinado la Memeria con que et Señor Ministro de Hacienda, Guerra v Marina dió cuenta del estado de los negocios concernientes à los departamentos de su cargo, decreta:

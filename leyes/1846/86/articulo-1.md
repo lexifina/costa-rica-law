@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXXVI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 "Designa y nombra los individuos de que debe componerse la Junta de Caridad. (1)
 (1) Véase el decreto 27 de 90 de diciembre de 1848.
 El Jefe Supremo Provisorio del Estado libre de Costa Rica.

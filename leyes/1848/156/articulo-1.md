@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CLVI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Indulta a varios de los reos comprendidos en la conjuracion de Alajuela el año proximo pasado; y manda devolver la contribucion que los vecinos de dicha ciudad hayan pagado en virtud del decreto n° 18 de 15 de octubre de 1847.
 "José Maria Castro Presidente de Costa Rica etc.
 Teniendo en consideracion:1° que el Poder Ejecutivo desea corresponder de una manera digna de su politica à los patrióticos sentimientos de la Municipalidad y vecinos de Alajuela consignados en la acta "celebrada en aquella ciudad el 29 de octubre próximo pasado; y

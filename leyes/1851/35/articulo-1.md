@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXV
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Suprime la Administracion de Licores del Partido de Esparza y la refunde en la General del ramo.
 (1) Ver el Decreto n° 5. de 25 de mayo de 1857 y el capitulo 7° seccion 2° del Reglamento de Hacienda n° 2 de 30 de Julio de 1858.
 "Juan Rafael Mora Presidente de la República de Costa Rica.

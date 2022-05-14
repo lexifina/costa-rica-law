@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO II.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Congreso nacional cierra sus sesiones ordinarias.
 "José María Castro Presidente de Costa Rica, etc. etc. Por cuanto el Excelentisimo Congreso de la República ha decretado lo siguiente.
 El Exmo. Congreso constitucional de la República de Costa Rica: por cuanto se han concluido los días hábiles para celebrar las sesiones ordinarias que prescribe la ley fundamental, decreta.

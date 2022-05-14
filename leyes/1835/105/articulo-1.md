@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CV
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Establece tres jefes Políticos departamentales (1)
 “ El Vice Jefe encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa Rica, deseosa de hacer expedito y eficaz el despacho de los negocios en el ramo de Gobernación, y al mismo tiempo mejorar el de Hacienda, creado tres jefes departamentales que reasuman las facultades del Superior Político, con funciones igualmente de subdelegados de la Intendencia General, ha venido en decretar y decreta.

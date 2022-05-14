@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXIL.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Manda hacer efectivo el cumplimiento del decreto de 8 de febrero de 1841 sobre conservacion de la vacuna y dicta otras disposiciones relativas. (I)
 (1) Ver la seccion 5a Ver la seccion 5ª cap. 2° (art 60) del reglamento de policía n° 20 de 20 de julio de 1819
 "El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.

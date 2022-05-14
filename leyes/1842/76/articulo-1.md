@@ -1,7 +1,9 @@
+(Derogado)
 DECRETO LXXVI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 La Asamblea Constituyente declara que es y será parte integrante de la República federal de Centro América. (1)
 (1) Modificado por las Constituciones de 1844 y 1847, fue finalmente derogado, por la de 1848 que en su artículo 2° declara á Costa Rica, República Soberana é independiente.
-El general Jefe Supremo Provisorio del Estado de Costa Rica. –Por cuanto la Asamblea Constituyente se ha servido decretar lo siguiente.
+El general Jefe Supremo Provisorio del Estado de Costa Rica. -Por cuanto la Asamblea Constituyente se ha servido decretar lo siguiente.
 La Asamblea Constituyente del Estado de Costa Rica considerando:
 1° Que la posición topográfica de Costa Rica, sus intereses, relaciones y simpatías lo llaman á ser parte integrante de Centro América, como lo ha sido desde antes del glorioso pronunciamiento de independencia absoluta de la dominación española.
 2°. Que por tan justas consideraciones concurrió con los demás Estados á acordar el pacto de 824, por el cual se proclamaron y constituyeron en nación soberana, libre e independiente, acordando las bases para un gobierno que los representara en el exterior y conservase la unidad nacional, y para darse instituciones análogas á sus necesidades e intereses, en la capacidad de Estados Independientes entre si y ligados por la Constitución general.

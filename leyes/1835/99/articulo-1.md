@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XCIX
+(Esta norma fue derogada por el artículo 1° inciso 312, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Amplia los términos concedidos a los Agricultores por el Decreto de 29 de Octubre de 1828.
 “ El Jefe Supremo Provisorio del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa Rica, considerando: que las gracias concedidas en el decreto de 29 de octubre de 828, por la limitación de unas a ocho años y de otras a dos, no llenan el objeto que se tuvo en miras de fomentar la agricultura y corresponder las nuevas empresas, ha tenido a bien decreta y decreta.

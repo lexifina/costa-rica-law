@@ -1,4 +1,6 @@
-DECRETO XXX,
+(Derogado)
+DECRETO XXX
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Suprime la Administracion de licores de la Provincia de San José y la refunde en la General. (1)
 (1) Ver el Reglamento de Hacienda de 30 de julio de 1858, capítulo 7° Seccion 2°
 "Juan Rafael Mora Presidente de la República de Costa Rica.

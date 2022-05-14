@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CIV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Dispone el ceremonial que debe observarse en la Iglesia, cuando asisten las Supremas autoridades a las funciones de tabla.
 "Juan Rafael Mora Presidente de la República de Costa Rica, -Por cuanto el Excelentisimo Congreso constitucional ha decretado lo siguiente.
 EI Excelentísimo Congreso constitucional de la República de Costa Rica, considerando: que el ceremonial decretado en 22 de marzo de 1827 es diminuto y por consiguiente se hace necesario su reforma de una manera analógica al ser actual de Costa Ricà, decreta:

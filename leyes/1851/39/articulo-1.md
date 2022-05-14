@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXIX
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Segrega provicionalmente el distrito de Esparza de la Gobernación de Alajuela, y lo agrega a la de Puntarenas; señala sus limites y dicta reglas para la administración local. (1.)
 (1) Ver las Ordenanzas Municipales n° 22 de 4 de noviembro de 1862 y la ley de elecciones n° 25 de 5 del mismo mes y año.
 "Juan Rafael Mora Presidente de la República de Costa Rica.

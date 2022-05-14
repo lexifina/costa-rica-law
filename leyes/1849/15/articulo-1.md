@@ -1,4 +1,6 @@
+(Derogado)
 Texto original de Ley N° 15 de 29 de mayo de 1849
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 DECRETO XV.
 Resuelve algunas dificultades que ocurren en la ejecución del articulo 1101 del Codigo civil. (1)
 (1) NOTA: Refundido en la nueva edición del Código general de 1858 mandada observar por Decreto número 9 de 23 de julio del mismo año.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XV
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 La Camara de Representantes cierra sus sesiones extraordinarias.
 "El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.-Por cuanto la Cámara de Representantes ha decretado lo siguiente.
 La Cámara de Representantes de Estado libre de Costa Rica, habiendo llenado los objetos con que fué convocada extraordinariamente por decreto de 19 del corriente, ha venido en declarar y declara.

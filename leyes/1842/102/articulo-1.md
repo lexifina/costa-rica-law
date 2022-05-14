@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO CII.
-Dispone el establecimiento de un periódico con el título de “Mentor Costarricense. (1)
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
+Dispone el establecimiento de un periódico con el título de "Mentor Costarricense. (1)
 (1) Estuvo establecido durante cerca de dos años y despues apareció bajo otro título.
 Considerando: que la opinión pública que debe ser el oracálo de un Gobierno libre y popular, no puede conocerse bien sino es expresándose bajo los auspicios de la augusta libertad de imprenta, y que tam poco puede ilustrarse sinó es con la publicación de los pensamientos y el debate de los escritos, de que resulta triunfante la verdad: y meditando, que en todo tiempo la marcha política de los Pueblos ha tenido regularidad y acierto, con la cooperación de los hombres ilustrados: y que la actual posición de Costa Rica demanda imperiosamente la de sus hijos, al desarrollo de proyectos útiles y á la indicación de medidas importantes á la conservación y prosperidad del Estado, decreta:
-Art. 1° Se establecerá un periódico con el título de “Mentor Costarricense,, y saldrá al público semanalmente el día Sabado.
+Art. 1° Se establecerá un periódico con el título de "Mentor Costarricense,, y saldrá al público semanalmente el día Sabado.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXXVI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 La Asamblea Constituyente adhiere al pacto celebrado en convención de Representantes de los Estados del Salvador, Honduras y Nicaragua, reunidos al efecto en Chinandega.(1)
 (1) Todos estos esfuerzos y otros que se hicieron después, quedaron desgraciadamente sin fruto; y pesar de los deseos de los Centro-Americanos por la unión único medio de conservar nuestra autonomía, hasta hoy no se ha logrado nada.
 "El Jefe Supremo Provisorio del Estado de Costa-Rica-Por cuanto la Asamblea Constituyente ha decretado lo que sigue.

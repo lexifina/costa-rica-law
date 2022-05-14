@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLIV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Suspende los efectos de la ley no 7 de 26 de junio de este mismo año.
 José M° Castro Presidente de Costa Rica etc. etc,
 Atendiendo á las grandes dificultades que se han presentado para la ejecucion de la ley n° 7 de 26 de junio del presente año, de acuerdo con la Comision permanente, decreto.

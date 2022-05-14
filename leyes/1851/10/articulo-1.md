@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO X.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Declara el concepto del articulo 213 del Reglamento de Policia que habla de "campos abiertos."
 "Juan Rafael Mora Presidente de la República de Costa Rica.-Por cuanto el Excelentisimo Congreso constitucional ha decretado lo siguiente.
 El Excelentísimo Congreso constitucional de la República de Costa Rica, en consideracion à que el artículo 213 del decreto número 20 de 20 de julio de 1819, no esplica la cantidad de ganados que pueden mantener los sitios abiertos que se poseen en común por diferentes dueños: considerando al mismo tiempo que es de suma importancia destruir toda ambigüedad que pueda ofender los derechos de los particulares, y autorizar los abusos que á su sombra se cometan; y como un desarrollo del citado artículo 213, ha venido en decretar y decreta:

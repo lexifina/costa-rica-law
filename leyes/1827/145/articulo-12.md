@@ -1,0 +1,1 @@
+Art 12°.- Al que se le coja o averigüe contravando en la Garita o alguno de los caminos que conducen para fuera del Estado se le impondrá a mas de la perdida del fruto o su valor, la multa impuesta a los contrabandistas, duplicada.

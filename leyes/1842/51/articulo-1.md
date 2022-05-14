@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gobierno Provisorio deroga el Decreto de 25 de setiembre de 1841, que prohibia la exportación de mulas. (1)
 El General Jefe Supremo Provisorio de Estado de Costa Rica.
 Considerando: Que si en el Estado hay una demanda muy considerable de mulas, para conducir el café que produce, el interés individual es el único que puede responder á ella y no las prohibiciones opresivas que tienden á impedir el uso libre de esta propiedad. Después de oído el informe de la justa revisora sobre el particular que aconseja la derogatoria de la ley en cuestión, decreta.

@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO XIX
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
-(Nota de Sinalevi. Mediante el artículo 1° de la Ley “Designa las leyes y disposiciones dictadas por la Administración del Lic. Carrillo que deben continuar rigiendo provisionalmente”, N° 96 del 05 de setiembre de 1842, se indica: “…que la presente norma continua observándose”)
+(Nota de Sinalevi. Mediante el artículo 1° de la Ley "Designa las leyes y disposiciones dictadas por la Administración del Lic. Carrillo que deben continuar rigiendo provisionalmente", N° 96 del 05 de setiembre de 1842, se indica: ".que la presente norma continua observándose")
 Restablece la Cofradía del Carmen en la Ciudad de Heredia. (1)
 (1) Derogado por el art. 2 del Decreto de Ia A. Constituyente n. 14 de 24 de Agosto de 1842, fué despues rehabilitado por el 14 art. 2 del Decreto n. 25 de 1 de Setiembre del mismo año.
 "EI Jefe Supremo del Estado de Costa Rica.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CXLI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Declara la eleccion de Magistrado propietario en Don Alonzo Gutierrez, en reposicion de Don Juan Manuel Carazo.
 El General Presidente de la Repùblica de Costa.-Por cuanto el Excelentisimo Poder Legislativo ha decretado y sancionado lo siguiente.
 El Excelentísimo Congreso constitucional de la Republica de Costa Rica, decreta.

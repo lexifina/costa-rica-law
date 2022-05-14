@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 174
+(Esta norma fue derogada por el artículo 1° inciso 146, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado Libre de Costa rica
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado Libre de Costa rica, teniendo en consideración que le mejor interés de los Pueblos exige que sus representantes en el Poder Legislativo estén penetrados de las necesidades de cada cual de los mismos Pueblos, ha tenido a bien decretar y decreta.

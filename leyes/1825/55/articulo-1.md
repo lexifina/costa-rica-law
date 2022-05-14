@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LV.
+(Esta norma fue derogada por el artículo 1°, inciso 46, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (Nota de Sinalevi: El Jefe Supremo del Estado aprobó una nueva Ley Orgánica de Hacienda Pública en las rentas de la Federación y las del Estado, aprobada mediante Ley N° 191 del 22 de junio de 1829)
 El Jefe Supremo del Estado libre de Costa Rica.
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.

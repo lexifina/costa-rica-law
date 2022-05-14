@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XCIX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Dispone que la siembra de tabaco sea libre en In Republica lo mismo que su venta; y manda concentrar la destilacion de licores (1)
 (1) Derogado en su primera parte por el decreto n° 2. de 23 de de julio de 1851. Véase el {Reglamento n° 11 de 25 de setiembre de esto mismo año. Véase tambien el capítulo 10 sec. 2 del Reglamento de Hacienda n° 2 do 30 de julio de 186Q
 "Juan Rafael Mora Presidente de la República de Costa Rica,

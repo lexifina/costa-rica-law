@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Declara haber lugar a formacion de causa contra el Jefe Politico de Heredia Don Manuel Zamora.
 "El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica. Por cuan-
 to la Cámara de Senadores ha decretado lo siquiente.

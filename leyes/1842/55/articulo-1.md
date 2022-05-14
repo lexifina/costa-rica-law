@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gobierno Provisorio reforma el reglamento 22 de Febrero de 1839. (1)
 (1) Aprobado por el artículo 11 del Decreto de la Asamblea Constituyente n° 14 de 24 de Agosto de este año.
 El General Jefe Supremo Provisorio del Estado de Costa Rica.

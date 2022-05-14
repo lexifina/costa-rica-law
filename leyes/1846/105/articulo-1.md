@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Establece en la capital, por el término de doce meses, una Escuela Central de todo el Estado y dicta las reglas necesarias para que tenga efecto.
 "El Jefe Supremo Provisorio del Estado libre de Costa Rica.
 Deseoso de establecer y generalizar en el Estado la mas perfecta instruccion primaria, sin cuya base no es ùtil ningun instituto literario, y meditando:

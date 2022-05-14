@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO VIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Admite renuncia del Magistrado D. Vicente Aguilar, sostituyendo con Don Rafael Barrotea, y declara la elección de varios Magistrados suplentes.
-“El Senador encargado del Supremo Poder Ejecutivo del Estado Libre de Costa Rica. –Por cuanto las Camaras han decretado lo siguiente.
+"El Senador encargado del Supremo Poder Ejecutivo del Estado Libre de Costa Rica. -Por cuanto las Camaras han decretado lo siguiente.
 La Asamblea general del Estado libre de Costa Rica, considerando: 1° que son causa legal y suficiente comprobada, el Sr. Vicente Aguilar se niega á servir el destino de Magistrado para que fue electo por decreto de 22 de enero último, y que no habiéndose posesionado, por el propio motivo la Asamblea general se halla en el deber de declararlo por escusado, y de nombrar otra persona en su reposición, de conformidad con la fracción 23 art. 106 de la carta fundamental y art. 88 de la misma; y 2° que igualmente por el Art. 14 del decreto adicional de 26 de junio del año próximo pasado, es obligación de la Asamblea general reponer los Magistrados que vayan faltando, ha venido en decretar y decreta.
 Art. 1° Admítese la renuncia que, con causa grave y comprobada, ha hecho el Sr. Vicente Aguilar del destino de Magistrado de la Suprema Corte de Justicia, para que fue electo por la Asamblea general; y nómbrase en su reposición al Sr. Rafael Barroeta.

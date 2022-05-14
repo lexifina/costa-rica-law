@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Congreso hace una manifestacion de gratitud al Sr. Don Joaquin Berrardo Calvo por los Importantes servicios y le señala una pension vitalicia. (1)
 (1) Ver el decreto de 10 de noviembre de 1865.
 "Juan Rafaei Mora Presidente de la República de Costa Rica.-Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente.

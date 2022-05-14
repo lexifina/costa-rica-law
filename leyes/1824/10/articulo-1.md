@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO X
+(Esta norma fue derogada por el artículo 1°, inciso 6, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 EL Gefe Supremo del Estado de Costa Rica.
 Por quanto el Congreso Constituyente del mismo Estado ha decretado lo que sigue.
 El Congreso Constituyente del Estado de Costa rica; teniendo en consideración la práctica de todos los Gobiernos anteriores, que uno de sus primeros actos ha sido mandar sean reconocidos, y obedecidos, ha tenido a bien decretar y decreta.

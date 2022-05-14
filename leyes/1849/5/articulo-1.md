@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO V.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Suspende los efectos del articulo 1° § 8° sección 1a del reglamento de 10 de diciembre de 1839, que habla de jubilaciones a los empleados publicos. (1)
 (1.) Ver el decreto n° 11 de 10 de julio de 1850
 "José Maria Castro Presidente de Costa Rica, etc. etc,

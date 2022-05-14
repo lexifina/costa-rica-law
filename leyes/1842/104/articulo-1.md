@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CIV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Suspende los efectos de la tarifa de sueldos de 30 de Agosto de este mismo año.
 El Jefe Supremo Provisorio del Estado Soberano de Costa Rica.
 Considerando que la tarifa decretada en 30 de Agosto último por la Asamblea Constituyente, deja un vacío en el sistema de Hacienda que esta rigiendo:

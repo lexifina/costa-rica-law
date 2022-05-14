@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO CIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Dicta reglas para que sean devueltos a sus dueños, los bienes que les hubiesen sido quitados para la expedición del General Morazan sobre los otros Estados de Centro-América.
-“El Jefe Supremo Provisorio del Estado Soberano de Costa Rica.
+"El Jefe Supremo Provisorio del Estado Soberano de Costa Rica.
 Considerando: que muchos Costarricenses de los que ocuparon las montañas por no marchar en el Ejército que se denominó Nacional, fueron injusta y violentamente despojados de sus bienes, y vendidos estos por la cantidad que ofrecieran las personas en quien se remataran: que por este procedimiento hay familias sumergidas en la miseria, cuyas indigencias claman por el recobro de sus propiedades: que semejantes demandas deben minarse con el interés que inspira la justicia y la humanidad; y queriendo el Gobierno, para satisfacerlas, dictar medidas, con la equidad, prudencia y eficacia que permiten las circunstancias, decreta.
-Art. 1° Todas las personas á quienes se les hubiese subastado sus bienes “Por haberse rehusado á tomar las armas en el Ejercito que marchaba sobre los demás Estados, se presentarán á reclamarlos ante el Intendente general dentro del perentorio término de un mes, acreditando su demanda con los justificantes correspondientes.
+Art. 1° Todas las personas á quienes se les hubiese subastado sus bienes "Por haberse rehusado á tomar las armas en el Ejercito que marchaba sobre los demás Estados, se presentarán á reclamarlos ante el Intendente general dentro del perentorio término de un mes, acreditando su demanda con los justificantes correspondientes.

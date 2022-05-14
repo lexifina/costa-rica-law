@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO IX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Declara a Puntarenas, Puerto franco, (1)
 (1.) Ver los decretos números 28 de 30 de Julio, 23 de 4 de Setiembre y N° 9° y 10 de 21 de id. de este año de 1847, y el n° 3 de 29 de febrero de 1848 que alteran, reforman y reglamentan el presente. Vease tambien el decreto n° 9 de 10 de julio de 1860 que declarà terminada la franquicia.
 El Jefe Supremo del Estado de Costa Rica. Siendo de su deber deferir á la opinion pública fuertemente pronunciada por una medida que demandan las circunstancias actuales del Estado, como la mas adecuada para asegurar su bienestar futuro, decreta.

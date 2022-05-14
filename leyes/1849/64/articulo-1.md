@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXIV
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Encarga a los Jefes Politicos la inspeccion de las escuelas y designa los sueldos de que deben gozar. (1)
 (1) Reformado por el decreto n° 9 de 27 de julio de 1852. Ver tambien las Ordenanzas Municipales n° 22 de y de noviembre de 1862. (Seccion 8°)
 Juan Rafael Mora Vicepresidente de la República de Costa Rica en ejercicio del Supremo Poder ejecutivo.

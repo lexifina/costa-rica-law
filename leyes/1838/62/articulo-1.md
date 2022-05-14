@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Deroga el Decreto de 24 de Agosto de 836, que suprimio las Municipalidades de Quircot. Tobosi, Curridaba y Aserri.
 “El Jefe Supremo del Estado Libre de Costa Rica. –Por cuanto la Asamblea ha decretado y el Consejo Sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa Rica, con presencia del recurso interpuesto por los indígenas del pueblo de Quircot, para que se derogue el Decreto de 24 de agosto de 836 y se les restablezca á la absoluta posesión de los terrenos, que de inmemorial tiempo poseían, considerando: que si tal providencia parece á primera vista oportuna para la mejor expedición en el Despacho de todos los negocios concernientes á la Administración particular de los Pueblos, con cuyo objeto se hizo estensiva á los de Tobosi, Curribabat y Aserrí es con todo eso opuesta al artículo 111 de la Ley Fundamental del Estado, que previene que en cada Pueblo por pequeño que sea, haya Municipalidad electa popularmente; y además ataca el imprescriptible derecho de propiedad consignado y garantizado expresamente por disposiciones Constitucionales, decreta.

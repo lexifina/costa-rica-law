@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXV
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gobierno Provisorio dicta reglas para preservar a las sementeras del perjuicio de los ganados. (1)
 (1) Aprobado por el artículo 11 del Decreto de la Asamblea El General Jefe Supremo Provisorio del Estado de Costa Rica.
 Considerando: que todos los habitantes tienen igual derecho á que se les garantizen sus respectivas propiedades: que á los agricultores se les originan perjuicios por la introducción de animales en sus sementeras, labores y plantíos, lo que á la vez da lugar á persecuciones contra los mismos animales, que redundan en daño de sus dueños; deseando conciliar los intereses de todos de una manera pronta, en el interin se emite sobre el particular un arreglo definitivo en la ley de policía que actualmente se esta redactando, ha tenido á bien expedir el siguiente decreto.

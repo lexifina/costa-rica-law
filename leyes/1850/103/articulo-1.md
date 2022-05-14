@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Explica el Cap. 1.tit. 7 Lib. 3 del Código general, y el art. 100 de la ley de 1 de junio de 1842 (1)
 (1) Ver las notas de la 1° parte del Código, mandadas observar por Decreto n° 4 de 8 de abril de 1859.
 "Juan Rafael Mora Presidente de la República de Costa Rica. -Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente.

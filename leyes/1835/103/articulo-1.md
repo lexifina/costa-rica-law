@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CIII
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Señala sueldo al Pro-Secretario de la Corte Superior de Justicia (1)
 “ El Vice Jefe encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa Rica, considerando: que la plaza de Pro Secretario de la Corte Superior de Justicia, por su actual pequeña dotación, no hay persona que quiera servirla; y siendo de otra parte precisa para el despacho de los negocios de aquel Tribunal, ha tenido a bien decretar y decrreta:

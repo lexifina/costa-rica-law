@@ -1,4 +1,6 @@
+(Derogado)
 DECRETA 176.
+(Esta norma fue derogada por el artículo 1° inciso 148, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
 (Nota de Sinalevi: Mediante el artículo único de la ley N° 101 del 24 de marzo de 1835, se establece que desde la publicación del decreto antes mencionado comenzará a tener efecto la presente norma.)
 El Jefe Supremo del estado libre de Costa-Rica.

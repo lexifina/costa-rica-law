@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO LXXXV
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Convoca a una Asamblea Constitucional para el 1° de Noviembre y Reglamenta la elección de los Representantes que deben componerla.
-“El Jefe Supremo del Estado Libre de Costa Rica. –Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+"El Jefe Supremo del Estado Libre de Costa Rica. -Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado Libre de Costa Rica, convencida de que los pueblos del Estado desean la reunión de sus Representantes con plenos poderes para organizar la Sociedad que componen del modo mas propio á su carácter, y aptitudes: y deseando llenar a esta parte el voto público, han venido en decretar y decreta.
 Art. 1° Se convoca á una Asamblea Constituyente del Estado á esta Ciudad de San José para el 1° de Noviembre del presente año por las bases que fija la tabla adjunta á este Decreto.

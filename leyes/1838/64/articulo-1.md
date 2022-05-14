@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXIV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Extablece que todo juicio civil sea terminado por arbitros, y reglamenta esta institucion.
 "El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente. La Asamblea Constitucional del Estado libre de Costa Rica, considerando: que es de absoluta necesidad fijar termino los males que ocasionan la falta de Letrados para el despacho de las causas: que son notorios los reclamos que sobre este particular hacen generalmente los Pueblos: que aunque se ha establecido un Asesor General, después que esta plaza vacia, no ha sido posible proverla de nuevo por la misma falta de Letrados, pues los que existen en el Estado, han cerrado su estudio: que aunque se advierte que los que administran justicia para hacerlo con arreglo las leyes, deben consultar con aquellos, no habiéndolos es menos
 perjudicial que los Jueces fallen por si bajo ciertas reglas, que no la paralización absoluta de los negocios civiles y criminales con grave perjuicio del público, decreta.De la Administracion de Justicia en lo civil.

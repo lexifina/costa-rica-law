@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CLVII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Suspende los efectos del decreto N° 12 de 26 de octubre de este mismo año, que impone nuevas penas a los que salgan de la Republica sin pasaporte. [1]
 (1) Ver el Reglamento de la Policía N° 20 de 20 de julio de 1849.
 "José Maria Castro Presidente de Costa Rica etc.

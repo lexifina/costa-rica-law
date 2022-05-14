@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CLVII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Deroga la ley de 31 de Marzo del año anterior que permite a las Municipalidades la reducción a dominio particular de los terrenos públicos.
 "El Jefe Supremo del Estado libre de Costa Rica.-Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa Rica, penetrada de que la ley de 31 de Marzo del año anterior que permite a las Municipalidades la reducción de los terrenos a dominio particular, no es aceptable en los Pueblos, ha tenido a bien decretar y decreta.

@@ -1,5 +1,6 @@
+(Derogado)
 DECRETO XCIX
-(Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
+(Esta norma fue derogada por el artículo 1°, inciso 76, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado libre de Costa Rica.
 Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa-Rica, con consideracion á que por no admitirse en el Exercito los reos destinados por decreto del Gobierno de 8 de Febrero de este año al servicio de las armas de la Republica se hacen honerosos al Estado por gravitar su subsistencia en las carceles de Guatemala sobre la Hacienda Publica, ha tenido á bien decretar y decreta.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 157
+(Esta norma fue derogada por el artículo 1°, inciso 130, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Vice Jefe Supremo encargado del Poder Ejecutivo del Estado libre de Costa Rica.
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa Rica, creyendo de importancia que haya uniformidad en todas las cuentas que se presentan por las Municipalidades, para su aprobación, al Tribunal de ellas, en el uso del papel, ha tenido á bien decretar y decreta:

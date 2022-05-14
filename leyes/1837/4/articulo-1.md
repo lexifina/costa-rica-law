@@ -1,7 +1,9 @@
+(Derogado)
 DECRETO IV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Tarifa de sueldos (1)
 ----------
-(1) Derogada por la de 1° de Junio de 1841. "El Jefe Supremo del Estado libre de Costa Rica.-Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente. La Asamblea constitucional del Estado libre de Costa Rica, considerando: 1° que los sueldos de los funcionarios públicos del Estado no están nivelados entre s¡, ni arreglados las tareas y responsabilidad de los destinos: 2§ que por esta consideración carecen las dotaciones de justo equilibrio, dando motivo de descontento los empleados; y 3§ que aquellas se hallan diseminadas en los varios Códigos de la legislación del Estado, causando confusión los encargados de su cumplimiento, por no estar recopiladas bajo una sola ley que d‚ las bases y reglas necesarias para los abonos respectivos: por todas estas consideraciones, y para reducirlos una disposición £nica y terminantemente, ha venido en decretar y decreta la siguiente
+(1) Derogada por la de 1° de Junio de 1841. "El Jefe Supremo del Estado libre de Costa Rica.-Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente. La Asamblea constitucional del Estado libre de Costa Rica, considerando: 1° que los sueldos de los funcionarios públicos del Estado no están nivelados entre s¡, ni arreglados las tareas y responsabilidad de los destinos: 2§ que por esta consideración carecen las dotaciones de justo equilibrio, dando motivo de descontento los empleados; y 3§ que aquellas se hallan diseminadas en los varios Códigos de la legislación del Estado, causando confusión los encargados de su cumplimiento, por no estar recopiladas bajo una sola ley que d, las bases y reglas necesarias para los abonos respectivos: por todas estas consideraciones, y para reducirlos una disposición £nica y terminantemente, ha venido en decretar y decreta la siguiente
 TARIFA GENERAL DE SUELDOS Y DOTACIONES
 DE TODOS LOS FUNCIONARIOS PUBLICOS DEL ESTADO
 Y SUS DEPENDIENTES

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXVIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 La Asamblea Constituyente deroga los arts. 1250,1251 y 1252 parte 3° del Código. (1)
 (1) Véase el título 8° del Código general (edición de 1858) que arregla esta materia.
 "El Jefe Supremo Provisorio del Estado de Costa Rica-Por cuanto la Asamblea Constituyente ha decretado lo que sigue:

@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO LXXIV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Manda que se nombre por la Asamblea un Jefe Provisorio, un Vice-Jefe, y quien llene las faltas de éste.
-El General Jefe Supremo Provisorio del Estado de Costa Rica. – Por cuanto la Asamblea Constituyente ha decretado lo siguiente.
+El General Jefe Supremo Provisorio del Estado de Costa Rica. - Por cuanto la Asamblea Constituyente ha decretado lo siguiente.
 La Asamblea Constituyente del Estado de Costa Rica, considerando:
 1° Que esta investiga de amplios poderes y llamada á organizar y constituir el Estado según lo exigen los intereses y voluntad del pueblo; y
 2° Que mientras tanto, es necesario nombrar un Gobierno Provisional que cuide del orden y de la seguridad interior y exterior del Estado, decreta.

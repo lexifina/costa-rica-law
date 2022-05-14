@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LIII.
+(Esta norma fue derogada por el artículo 1° inciso 230, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Esclarece el concepto del art. 31 de la ley de 16 de
 Enero de 826-en cuanto a dotación de los Jueces de
 primera Instancia (1)

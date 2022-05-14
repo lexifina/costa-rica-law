@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXIX.
+(Esta norma fue derogada por el artículo 1° inciso 249, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Reforma algunos artículos de la Ordenanza de Minería.
 "El Jefe Supremo del Estado libre de Costa Rica.-Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea extraordinaria del Estado libre de Costa Rica; atendiendo a la consulta que hace la Intendencia con motivo de los descubrimientos de minas fuera del Aguacate, no existiendo otras diputaciones que conozcan en tales casos, estando desorganizado por la supresión de los Juzgados de Letras el Tribunal de 2¦. Instancia que señala la Ordenanza, y ocurriendo a otros reparos de menor entidad, ha tenido a bien declarar y decreta.

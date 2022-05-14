@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XCII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Deroga el numero 2 de 8 de julio del 1846 que estanco los licores extrangeros, y restablece para la venta de estos el sistema de patentes. (1)
 (1) Ver los decretos números 9,10 y 13 de 11 y 30 de setiembre y 16 de octubre de 1857: n° 2 de 10 de febrero de 1860: Circular n° 153 de 2 de abril: decretos n° 10 y 18 del mismo mes, y n° 13 y 20 de agosto de 1861. Ver tambien el Capítulo 11 Seccion 2° del Reglamento de Hacienda n° 2 de 30 de julio de 1858.
 "Juan Rafael Mora Presidente de la República de Costa Rica.-Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente.

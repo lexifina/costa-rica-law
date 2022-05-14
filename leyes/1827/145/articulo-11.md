@@ -1,0 +1,1 @@
+Art 11°.- Al Guarda que se le aprehenda con tabaco de contravando o se le justifique haver vendido qualesquiera porción en todo el año próximo a la siembra se le impondrá un mes de cárcel y la multa establecida contra los vendedores de contrabando.

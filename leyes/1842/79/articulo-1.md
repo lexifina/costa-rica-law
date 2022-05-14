@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO LXXIX
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 La Asamblea Constituyente dispone que se organize provisionalmente el Tribunal Supremo de Justicia, a cuyo efecto la misma Asamblea nombrará los Magistrados que deban componerlo.
-El General Jefe Supremo Provisorio del Estado de Costa Rica. –Por cuanto la Asamblea Constituyente ha decretado lo siguiente.
+El General Jefe Supremo Provisorio del Estado de Costa Rica. -Por cuanto la Asamblea Constituyente ha decretado lo siguiente.
 La Asamblea Constituyente del Estado de Costa Rica, considerando.
 1° Que los nombramientos de los individuos que se componen el Tribunal Superior de Justicia, fueron hechos por el Gobierno intruso, y bajo las reglas que él mismo prescribió, cuya circunstancia los hace en derecho insubsistentes:
 2° Que la Asamblea es llamada á la organización del Estado, y que por esto debe ocuparse de la elección de los individuos del Tribunal Superior referido; y

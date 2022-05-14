@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XCIL.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Tarifa de sueldos (1)
 (1) Suspensa, á excepción de los artículos 7 y 15, por el Decreto n° 5 de 11 de Noviembre de este mismo año. Nunca llegó a tener efecto alguno.
 El General Jefe Supremo Provisorio del Estado de Costa Rica. Por cuanto la Asamblea Constituyente ha decretado lo siguiente.

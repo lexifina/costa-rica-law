@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 201
+(Esta norma fue derogada por el artículo 1° inciso 166, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Jefe Supremo del Estado libre de Costa Rica
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa Rica, teniendo presente los informes del Ejecutivo, Vicaría Foránea y comisión de la Asamblea nombrada en marzo de ochocientos veintiocho, acerca de la situación de los establecimientos religiosos que existen en el Estado: deduciendo de estos documentos la nulidad de tales establecimientos en todos conceptos, ya por que se hallan disueltos los vínculos que mantenían los mismos establecimientos y sus individuos; bien porque casi en el todo no son cumplidas las reglas de su instituto, ó por que en tales casos las religiosos existentes en el Estado, se gobernarían a su arbitrio cada uno: considerando que á la fecha se han agravado las circunstancias descritas en dicho informes y deseando últimamente hacer en el bien del Estado, el mejor uso posible de los elementos para ello en sí contiene, ha venido en decreta y decreta.

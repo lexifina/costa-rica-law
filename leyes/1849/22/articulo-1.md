@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXII
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Refunde el Jugado de hacienda en la Intendencia general, suprime el Fiscal de la misma y designa el numero de individuos de que debe componerse la Contaduria mayor de cuentas.
 "Jose Maria Castro Presidente de Costa Rica etc. etc. –Por cuanto el Excelentisimo Congreso Constitucional de la República ha decretado lo siguiente.
 El Excelentísimo Congreso Constitucional de la República de Costa Rica, teniendo en consideración que el estado de las rentas nacionales demanda la economia de aquellos destinos que no son de absoluta necesidad, decreta.

@@ -1,3 +1,5 @@
+(Derogado)
 DECRETO LXXXV
+(Esta norma fue derogada por el artículo 1°, inciso 64, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 La Asamblea Constitucional del Estado libre de Costa rica con presencia de la acusación hecha por el Ciudadano Braulio Carrillo contra el Gefe Supremo del Estado por infractor de Constitución en la providencia que expidió el 8 del próximo pasado Febrero confinado a unos al Precidio de la Libertad y destinado a otros al servicio de las armas por revolucionarios en favor del Gobierno Español: Considerando que el Gobierno en esta orden, como en la que expidió con respecto al Español José Zamora no solo procedió con las facultades que le concede al art 82. 13 de la Constitución del Estado sino también de un modo que lo hace acreedor a la gratitud general ha venido en declarar y declara.
 Art 1°.- No ha lugar a la formación de causa contra el Gefe Supremo del Estado por las providencias de que se hace mérito.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXXIX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Aprueba todos los actos gubernativos comprendidos en la memoria del Ministro de Hacienda, Guerra, Marina y caminos presentada en 28 de mayo del corriente año.
 "Juan Rafael Mora Presidente de la República de Costa Rica.
 -Por cuanto el Excelentisimo Congreso constitucional ha decretado lo siguiente.

@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO LXXXIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Contrata con Don Gabriel Lafond de Paris para la apertura de una via interoceanica entre
-"Golfo Dulce" y “Bocas del Toro” (1)
+"Golfo Dulce" y "Bocas del Toro" (1)
 (1) Sin efecto por haber caducado ol plazo, antes de poner en panta los trabajos.
 "Juan Rafael Mora Presidente de la República de Costa Rica, -Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente.
 El Excelentísimo Congreso Constitucional de la República de Costa Rica, en uso de la facultad que le confiere la fraccion 9° artículo 57 de la Constitucion. decreta:

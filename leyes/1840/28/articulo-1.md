@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO XXVIII
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
-(Nota de Sinalevi: Mediante el artículo 1° de la Ley “Designa las leyes y disposiciones dictadas por la Administración del Lic. Carrillo que deben continuar rigiendo provisionalmente”, N° 96 del 05 de setiembre de 1842, se indica: “…que la presente norma continua observándose”)
+(Nota de Sinalevi: Mediante el artículo 1° de la Ley "Designa las leyes y disposiciones dictadas por la Administración del Lic. Carrillo que deben continuar rigiendo provisionalmente", N° 96 del 05 de setiembre de 1842, se indica: ".que la presente norma continua observándose")
 Manda observar el Breve de Su Santidad de 31 de Enero y el edicto del Vicario Metropolitano de 31 de Octubre de 1840, sobre días festivos
 "'El Jefe Supremo del Estado Soberano de Costa Rica,
 En atención á que la gracia concedida por Su Santidad el Señor Gregorio XVI á 31 de Enero de este año, reduciendo el número de dias festivos y suprimiendo los de precpto es de absoluta conveniencia al pueblo de Costa Rica, decreta.

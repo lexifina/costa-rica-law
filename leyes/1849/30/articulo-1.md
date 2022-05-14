@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXX
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Concede a la compañia Mora y O. Simmons la faculta de abrir un canal fluvial desde el rio Barranca hasta el estero de Puntarenas. (1.)
 (1.) El presente decreto queda rin efecto por dificultades que se presentaron a los empresarios.
 "José Maria Castro Presidente de Costa Rica etc. etc. -Por cuanto el Excelentísimo Congreso Constitucional de la República ha decretado lo siguiente.

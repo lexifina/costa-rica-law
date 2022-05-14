@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO II.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Sobre la formacion de una compañia para la abertura
 "Juan Rafael Mora Presidente de la República de Costa Rica.
 Deseando aumentar en todas direcciones las vías de comunicacion de la República, y promover la abertura de las que sean mas cómodas de uno á otro mar para que el comercio de importacion y exportación sea facil y expedito, no solo a los traficantes del pais, sinó á los extrangeros; é informado de que se ha descubierto una vereda desde las inmediaciones de Puntarenas á las cabeceras del rio San Carlos, el cual desemboca en el San Juan y es navegable, decreto.

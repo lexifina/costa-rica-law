@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO LXXXIII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Las Cámaras Legislativas declaran la elección de dos Magistrados para la Suprema Corte de Justicia, y convoca a elecciones para cinco Magistrados más y un Senador suplente.
-El Jefe Supremo Provisorio del Estado libre de Costa Rica. –Por cuanto las Cámaras han decretado lo siguiente.
+El Jefe Supremo Provisorio del Estado libre de Costa Rica. -Por cuanto las Cámaras han decretado lo siguiente.
 Las cámaras Legislativas del Estado libre de Costa Rica: colocadas en Asamblea para dar cumplimiento al artículo 11 del decreto adicional de 26 de Junio del corriente año, y considerando:
 1°. que el número de sufragios concurrentes en elección practicada por todos los pueblos del estado para individuos de la corte suprema de justicia coma es el de dos mil ciento ochenta, según sé observa de los pliegos respectivos:
 2°. que por el art. 87 de la Constitución del Estado, la elección popular está fijada en mayoría absoluta de votos concurrentes; en cuya virtud son mil noventa y uno, por lo menos coma los que deben hacer dicha elección:

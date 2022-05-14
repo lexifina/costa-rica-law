@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO X
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
-(Nota de Sinalevi: Mediante el artículo 2° de la Ley “Designa las leyes y disposiciones dictadas por la Administración del Lic. Carrillo que deben continuar rigiendo provisionalmente”, N° 96 del 05 de setiembre de 1842 se indica: “…que la presente norma en cuanto a la apertura del camino de Matina, será reconsiderada por el Gobierno arreglando el negocio como estime mas conveniente”)
+(Nota de Sinalevi: Mediante el artículo 2° de la Ley "Designa las leyes y disposiciones dictadas por la Administración del Lic. Carrillo que deben continuar rigiendo provisionalmente", N° 96 del 05 de setiembre de 1842 se indica: ".que la presente norma en cuanto a la apertura del camino de Matina, será reconsiderada por el Gobierno arreglando el negocio como estime mas conveniente")
 Manda abrir un camino con dirección al Puerto de Moin, y dicta medidas análogas a este objeto. [1]
 (1) Ver los Decretos de 24 y 28 de Agosto de 1842.
 "EI Jefe Supremo del Estado Soberano de Costa Rica.

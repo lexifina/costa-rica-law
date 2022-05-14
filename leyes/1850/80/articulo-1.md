@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Corta una causa de conspiracion, y condena a los autores y complices a varias penas.
 "Juan Rafael Mora Presidente de la República de Costa Rica,
 Con presencia de la causa instruida para averiguar quienes sean los autores y complices del delito de conspiracion contra el Gobierno, preparada para la noche del dia 3 del corriente; y considerando:

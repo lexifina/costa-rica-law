@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO C
+(Esta norma fue derogada por el artículo 1° inciso 314, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Designa los días en que el Consejo debe celebrar sus sesiones (1)
 “El Vice-Jefe encargado del “Supremo Poder Ejecutivo del Estado libre de Costas Rica,-Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa Rica, considerando innecesario que el Consejo Representativo tenga tan frecuentes sesiones, como las que previenen los artículos 63 de la Constitución y 19 de su Reglamento de 23 de Abril de 832, y deseando por otra parte alejar de los destinos cuanto sea dable, la odiosidad que ellos tienen ha venido en decretar y decreta.

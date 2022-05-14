@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Declara al Representante Don Manuel Zamora, individuo de la Comision permanente.
 "Miguel Mora Representante encargado de Supremo Poder Ejecutivo de la República. -Por cuanto el Excelentisimo Congreso constitucional ha decretado lo siguiente.
 El Excelentisimo Congreso constitucional de Ia República de Costa Rica, decreta.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XXIIL
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Manda dar de gracia a los labradores jefes de familia que no tengan terrenos propios donde trabajar, ciertas porciones en los baldios de la Republica, y arregla el modo de hacer efectiva esta gracia.
 "Juan Rafael Mora Presidente de la República de Costa Rica.--Por cuanto el Excelentisimo Congreso constitucional ha decretado lo siguiente.
 El Excelentísimo Congreso constitucional de la República de Costa Rica deseando protejer la agricultura del pais y mejorar la suerte de los labradores pobres, conciliando al mismo tiempo los intereses fiscales con los de las poblaciones de la República, ha venido en decretar y decreta.

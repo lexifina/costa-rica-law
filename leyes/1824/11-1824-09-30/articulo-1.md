@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XI
+(Esta norma fue derogada por el artículo 1°, inciso 7, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
 El Gefe Supremo del estado de Cost-rica.
 Por quanto el Congreso Constituyente del mismo Estado ha decretado lo que sigue.

@@ -1,7 +1,9 @@
+(Derogado)
 AÑO DE 1835
-__________
+(Esta norma fue derogada por el artículo 1° inciso 306, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
+________
 DECRETO XC.
-“ El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado lo siguiente:
+" El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa Rica: en vista de los escrutinios habidos en las Juntas Electorales del mismo, para un Consejero propietario en lugar del que lo era Ciudadano Agustin Gutierrez, por haberse admitido a esta renuncia; no resultando elección popular entre los que obtuvieron sufragios para aquel destino, ha tenido a bien decretar y decreta.
 Se ha por Consejero propietario al Ciudadano Basilio Carrillo electo por la Asamblea.- Dado en la ciudad de Alajuela a los dieziseis días del mes de Febrero de mil ochocientos treinta y cinco.
 Por tanto: Ejecutese. Alajuela Febrero diezsisiete de mil ochocientos treinta y cinco.

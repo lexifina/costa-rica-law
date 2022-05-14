@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XL
+(Esta norma fue derogada por el artículo 1°, inciso 32, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado Libre de Costa rica
 Por quanto la Asamblea ha decretado y el Consejo Sancionado lo siguiente:
 La Asamblea Ordinaria del Estado Libre de Costa rica, por quanto en nuestro actual sistema son ocupados en destinos constitucionales gran parte de individuos de los que componen la sociedad, y que por tanto en los destinos públicos que se llaman cargas concejiles deben ser ocupados sujetos de bastante idoneidad y aptitud y en estos hallarse privilegiados algunos por las antiguas Leyes ha venidos en decretar y decreta.
