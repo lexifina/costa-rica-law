@@ -1,1 +1,0 @@
-Art. 2. Los puestos serán encargados à hombres que afiancen su responsabilidad en cantidad de cuatrocientos pesos à satisfaccion del Intendente general aun cuando la venta la confien à mugeres, siendo ellos siempre los responsables.

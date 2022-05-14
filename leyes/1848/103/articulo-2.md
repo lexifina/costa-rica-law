@@ -1,1 +1,0 @@
-Art. 2. Por igual tiempo se confinan à la ciudad de Esparza Rafael Solorsano y Pedro Saborio, siempre que se presenten al Supremo Gobierno dentro del perentorio término de cuarenta dias; quedando en caso contrario sujetos al resultado de un nuevo juicio.

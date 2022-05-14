@@ -1,1 +1,0 @@
-Art. 4. Las mejoras se harán ante el Jefe Político Superior, a quien serán dirigidos los expedientes, fijando antes cartéles en el lugar del remate : el mismo los hará fijar tambien en las cuatro Ciudades principales con expresion del rematario, cantidad y término para recibir las mejoras.

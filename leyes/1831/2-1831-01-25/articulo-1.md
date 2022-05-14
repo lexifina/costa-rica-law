@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO II
-(Esta norma fue derogada por el artículo 1° inciso 196, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-La Asamblea Legislativa permita a los habitantes del Estado confeccionar mixtelas para su uso particular.
-" El Gefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
-La Asamblea extraordinaria del Estado libre de Costa Rica, considerando 1° que á todos y cada uno de los individuos de Costa Rica le es permitido confeccionar en su casa, y para su propio uso, mixtelas de cualquiera clase, una vez que el aguardiente de que use para ello sea comprobado en los asientos 2° que siendo este un ramo de industria, no es bien oponer obstáculo que impidan la perfección deseable, 3° atendiendo , en fin, a que probablemente causaría perjuicios irreparables al erario público el abuso de esta facultad que harían los que se entretuviesen de esta especie de industria, amparándose con la protección legal que hubiese en otros términos ha vendido en decretar y decreta:
-1°.- Todos los habitantes del Estado pueden confeccionar mixtelas para su uso únicamente, con aguardiente comprado en los estanquillos, y no podrá haber ventas de ellas, sino es en los puestos públicos rematados y por cuenta de los rematarios.

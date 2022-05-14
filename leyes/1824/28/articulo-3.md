@@ -1,1 +1,0 @@
-3°.- Si a pesar de este segundo requerimiento rehusare concurrir, se le declarara incurso en la multa con que se le hubiese conminado, y además será depuesto, y declarado indigno de la confianza pública.

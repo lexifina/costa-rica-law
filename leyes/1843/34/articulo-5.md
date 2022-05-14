@@ -1,1 +1,0 @@
-Art. 5 Si fuese indispensable ocupar algún inteligente para la mensura de la tierra, cuya indemnización se reclame, se contratará de cuenta del fondo que la haya de hacer con toda la economía posible.

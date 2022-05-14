@@ -1,1 +1,0 @@
-Art 3°.- Inmediatamente que se haga la distribución, cesarán los empleados de la renta, dándoseles ocupación en otras oficinas, cesarán también las tercenas para que los particulares tengan la libertad de vender este fruto dentro o fuera del Estado.

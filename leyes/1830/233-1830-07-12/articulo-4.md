@@ -1,1 +1,0 @@
-Art 4°.- Lo dispuesto en el artículo anterior empezará a tener efecto hasta el año próximo de 31, pues en el presente debe cumplirse por los rematarios el término de remates de estanquillas celebrados en el próximo pasado de 829.

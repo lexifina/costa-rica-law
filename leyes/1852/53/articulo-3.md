@@ -1,1 +1,0 @@
-Art. 3. El mismo Gobernador de acuerdo con el Capitan de Puerto, designará el punto mas conveniente para situar la torre, prefiriendo en todo caso aquel que presente la ventaja de dominar todo el Golfo.

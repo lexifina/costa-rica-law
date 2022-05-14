@@ -1,1 +1,0 @@
-Art. 5. Los que abriesen zanjas para conducir aguas al travez ó á la orilla del camino, deberán precisamente construir cañerías de cal y canto, y cubrirlas bien por encima con tablones ó piedra canteada, observando es lo demás las instrucciones de la Comisión Directora.

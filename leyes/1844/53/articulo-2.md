@@ -1,1 +1,0 @@
-Art. 2. En su lugar ejercerán las funciones de aquel destino, en sus respectivos departamentos, los Presidentes municipales de Cartago, San José, Heredia, Alajuela y Guanacaste, entre tanto se practica la demarcación de departamentos y se proveen en propiedad con arreglo á la nueva Constitución dichos destinos.

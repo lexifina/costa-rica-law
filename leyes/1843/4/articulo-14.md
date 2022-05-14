@@ -1,1 +1,0 @@
-ARTICULO 14.-Los Generales de División y de brigada, el Auditor general de guerra, cinco Sargentos mayores, dos Ayudantes, el Guardalmacen, un maestro armero, dos Sargentos primeros, Tambores y Clarines mayores y de ¢órdenes, diez clarinetes, ocho cornetas, seis pitos, los trompas, cornabacetes y serpentones ser n vivos.

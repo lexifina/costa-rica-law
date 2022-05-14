@@ -1,1 +1,0 @@
-Art 5°.- En caso de no haber postores al contado o al plazo de seis meses, señalará el Juez comisionado compradores con arreglo a las leyes, y previas las seguridades necesarias en favor del Fisco, les adjudicarán los muebles o cosas que no se hayan rematado.

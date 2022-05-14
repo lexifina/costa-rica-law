@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO XXXIII
-(Esta norma fue derogada por el artículo 1° inciso 270, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-Dicta providencias para remover el ostaculo que se ha presentado para verificar la elección de Magistrados
-" El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
-La Asamblea Extraordinaria del Estado libre de Costa rica, en virtud de haber consultado el Gobierno sobre la paralización de las elecciones del Partido de Nicoya para Magistrados de la Corte Superior de Justicia por falta de uno de sus electores y considerando que la apertura de los pliegos es objeto de las Sesiones extraordinarias: que estas se prolongarían demasiado por la falta del de aquel Partido con grave prejuicio del Erario, y además de la Administración de Justicia tan interesante al Estado, ha venido en decretar y decreta:
-Ari.1°.- El Gobierno hará que el Elector Presbitero Ciudadano Zeledonio Rivera, no hallándose a su juicio impedido para marchar al Partido de Nicoya, lo verifique con la mayor brevedad, y se incorpore en la Electoral del mismo a sufragar para Magistrados de la Corte Superior de Justicia.

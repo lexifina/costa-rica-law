@@ -1,1 +1,0 @@
-Art 9°.- Sí a la Comisión, por el conocimiento que tiene de ellos, le pareciese que aún pueden contribuir con mayor suma, les designará el déficit; pero de contrario no han de incluirse en el reparatimiento.

@@ -1,1 +1,0 @@
-Art 6°.- A este efecto las Municipalidades bajo de su responsabilidad nombraran de su seno o fuera de él, un juez de policía a quien entregará una copia del Padrón que se menciona en el artículo 1° y al mismo tiempo una designación del orden en que se han de reparar o componer los caminos cuyo individuo es amovible a arbitrio de la Municipalidad sin necesidad de causa.

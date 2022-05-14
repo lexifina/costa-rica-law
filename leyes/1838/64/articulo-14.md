@@ -1,1 +1,0 @@
-ARTICULO 14.-Hasta la cantidad de cien pesos, serán los negocios terminados ante cualesquiera de los Alcaldes por el orden establecido; con la diferencia de que habrá apelacion pasando la cantidad, ó valor de la cosa litigiosa, de diez pesos.

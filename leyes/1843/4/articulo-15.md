@@ -1,1 +1,0 @@
-ARTICULO 15.-Las obligaciones, derechos y ejercicio de todos los individuos que componen el Ejército del Estado serán las que designan las Ordenanzas generales que se observar n en el mismo Ejército con solo las alteraciones que les hayan comunicado o comuniquen leyes posteriores a ellas.

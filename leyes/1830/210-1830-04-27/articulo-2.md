@@ -1,1 +1,0 @@
-Art 2°.- Para estos juicios habrá una asistencia de hombres buenos, que nombra uno el acusado y otro el Juez por la vindicta pública, y oído su dictamen fallará estampando antes en el libro de terminaciones las declaraciones que al efecto reciba.

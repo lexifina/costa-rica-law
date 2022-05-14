@@ -1,1 +1,0 @@
-Art 7.- Para la guarnición del Puerto se filiará, y formará una Escuadra supernumerica de veintincinco hombres al mando del Subteniente C.Juan del Mar, y será compuesta de marineros: será auxiliada con un Sargento y un Cabo de los de esta guarnición, y desde luego se pondrán en servicio el Subteniente y ocho soldados.

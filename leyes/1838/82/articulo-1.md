@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO LXXXII.
-(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-La Asamblea Legislativa acepta el Decreto Federal da 30 de Mayo de este año en cuanto no se oponga a los derechos y libertad de Costa Rica.
-"El jefe Supremo del Estado Libre de Costa Rica -Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
-La Asamblea Constitucional del Estado Libre de Costa Rica, teniendo presente el Decreto del Congreso Nacional de 30 de Mayo último, concediendo á los Estados la facultad de constituirse sin las restricciones establecidas en el título 12 de la Constitución de la República, declara y decreta.
-Se acepta el Decreto del Congreso Federal de 30 de Mayo citado, en cuento no se oponga á los derechos, y libertad de Costa Rica. - Al Consejo Representativo. -Dado en la Ciudad de San José á los veintiocho días del mes de junio de mil ochocientos treinta y ocho. -Felix Sancho, D. Presidente. -Juan B. Bonilla, D. Secretario. - Rafael Ramírez, D. Pro -Secretario. -Casa del Consejo- San José Julio diez de mil ochocientos treinta y ocho. -Pase al Poder Ejecutivo. - Manuel A. Bonilla, Presidente. -José María Echavarría. Secretario. -Por tanto: EJECÚTESE. San José Julio diez de mil ochocientos treinta y ocho. -Braulio Carrillo. - Al Ministro General del Despacho."

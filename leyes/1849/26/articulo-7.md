@@ -1,1 +1,0 @@
-Art. 7. La ley de 19 de diciembre del año proximo pasado que dispuso la enagenacion de las tierras pertenecientes a los fondos de propios de los pueblos, no tendrá sus efectos en el de Cartago; y por consiguiente queda derogada par aquella ciudad en todas sus partes.

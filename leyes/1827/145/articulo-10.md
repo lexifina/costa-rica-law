@@ -1,1 +1,0 @@
-Art 10°.- El Guarda a quien se le acredite haver dado maliciosamente lugar á la extracción de tabaco perderá todos los sueldos ganados hasta aquella fecha, y para asegurar la devolución dará fianza por documento simple al tiempo de ser admitido al resguardo.

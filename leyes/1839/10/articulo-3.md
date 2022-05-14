@@ -1,1 +1,0 @@
-Art. 3. Para Ia celebracion de contratas, direccion de los trabajos, establecimiento de Alcaldes y para todo lo concerniente á poner barcas de seguridad en los rios Reventazon, Pacuar y Matina, se autoriza al Sr. Joaquin Iglesias, á quien se Ie indemnizarán sus gastos personales, y se le gratificará con diez caballerias de tierra en el Iugar que Ie convenga.

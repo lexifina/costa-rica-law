@@ -1,1 +1,0 @@
-Art 6°.- El juramento será bajo esta formula ¿Jurais guardar y cumplir la Ley Fundamental dada por el Congreso Constituyente del Estado? Añadiendo a los que responderán: si juro, y se les repondrá, si así lo hicieres Dios os lo premie y sino os lo demande

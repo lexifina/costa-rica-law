@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO X
-(Esta norma fue derogada por el artículo 1° inciso 256, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-Encarga a la Diputación de Minería, la seguridad, orden y administración de los estanquillos de aguardiente en el mineral del Aguacate (1)
-" El Jefe Supremo del Estado libre de Costa Rica.-Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
-La Asamblea Constitucional del Estado libre de Costa Rica, considerando: 1° que la contribución de quinientos pesos que gravita sobre los Mineros, puesta por la ley de 3 de julio de 830, sobre parecer injusta, les es sumamente onerosa por llevar el Estado el valor de los estanquillos, sin dejarles hacer del aguardiente el uso que mejor les convenga: 2° que concederles lo que solicitaron, si gravarles con pensión alguna, seria poner en peor situación las escasas rentas del Estado, conciliado en lo posible ambos incovenientes, ha venido en decretar y decreta:
-Art 1°.- Será a cargo de la Diputación de Mineria la seguridad, orden y administración de los dos estanquillos de aguardientes en el mineral del Aguacate, que pondrá en el individuo o individuos del mismo gremio que los contraten; debiendo responder dicha Diputación a la Tesorería general por los quinientos pesos con los Mineros contribuían al Estado.

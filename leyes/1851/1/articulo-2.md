@@ -1,1 +1,0 @@
-Art. 2. Los Gobernadores son obligados a librar dichas patentes tan presto como se les pidan, debiendo estenderlas en papel comun con la estampilla de la Gobernacion y pudiendo cobrar dos reales de derechos por cada una de ellas.

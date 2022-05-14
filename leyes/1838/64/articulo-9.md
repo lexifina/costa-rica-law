@@ -1,1 +1,0 @@
-ARTICULO 9°. -Del fallo del tercero, habrá apelación á la Corte Superior de Justicia con arreglo al artículo 6°, debiéndose remitir los autos á dicho Tribunal, inmediatamente, con noticia de los interesados.

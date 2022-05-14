@@ -1,1 +1,0 @@
-Art. 2. Sueldo anual del Juez de 1a Instancia civil del departamento de San José seiscientos pesos. -Id. del Juez del crimen del mismo departamento quinientos pesos. -Id. de cada uno de los demas Jueces de 1a Instancia seiscientos pesos.-Id de cada amanuence de dichos Juzgados trescientos pesos.

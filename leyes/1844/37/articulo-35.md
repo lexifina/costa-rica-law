@@ -1,1 +1,0 @@
-Art. 35.-Todos los Colectores de rentas sin excepción deber n pasar cada mes a la Tesorería, el producto de los ramos que administren, acompañando cuenta documentada, y expresando las deudas a cobrar y letras a pagar que existan a favor, o a cargo de la Colecturía, con plazos en que unas y otras se cumplan.

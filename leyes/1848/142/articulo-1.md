@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO CXLII.
-(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-Resuelve una consulta de la Vicaria Eclesiastica respecto a facultades en punto a matrimonios,
-"El General Presidente de la República de Costa Rica,-Por cuanto el Excelentísimo Poder Legislativo ha decretado y sancionado lo siguiente.
--EI Excelentisimo Congreso constitucional de la Republica de Costa Rica, con presencia de la consulta del Sr. Vicario Eclesiástico de la República dirijida al Ejecutivo con fecha 6 de junio áltimo, declara:
-Que puesto que el Vicario Eelesiástico no puede ejercer civilmente y con auxilio de la potestad temporal ninguna otra funcion en punto à matrimonios y sus insidentes que las que expresamente le confieren las leyes vigentes, las autoridades de Costa Rica no son competentes para la resolncion definitiva del presente negocio. Al Poder Ejecutivo. Dado en la ciudad de San José à los trece dias del mes de setiembre de mil ochocientos cuarenta y ocho.-Nazario Toledo, Diputado Presidente accidental.-_Nicolas Ulloa, Diputado Pro-Secretario. -Santiago Fernandez, Diputado Secretario. Por tanto: EJECUTESE. San José setiembre catorce de mil ochocientos cuarenta y ocho. -José María Castro. -El Ministro de relaciones y gobernación, Joaquin Bernardo Calvo."

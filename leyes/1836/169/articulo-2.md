@@ -1,1 +1,0 @@
-Art 2°.- El Ejecutivo reglamentará el modo de ejecutarlo, establecido los plazos convenientes con presencia de las atenciones del Erario; cuyo reglamento puede modificar según las lecciones de la experiencia.

@@ -1,1 +1,0 @@
-ARTÍCULO 23.-Las sentencias que se dieren por las diputaciones territoriales ‚ Intendencia, no siendo apeladas y pasándose en autoridad de cosa juzgada se han de ejecutar breve y sumariamente, despachando para ello los mandamientos necesarios y los exhortos los demás Jueces que convenga para que les den el favor y ayuda que fuere menester.

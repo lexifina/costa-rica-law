@@ -1,1 +1,0 @@
-Art 9°.- Cada Municipalidad propondrá desde luego al Intendente general una nota de los gastos ordinarios y anuales necesarios en sus Pueblos y este con presencia de la capacidad del fondo y necesidad del objeto la aprovara: esta misma aprobación será necesaria para qualesquiera gastos extraordinarios.

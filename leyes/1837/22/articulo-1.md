@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO XXII.
-(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-Reglamento el Jurado de Imprenta. (1)
-El Jefe Supremo del Estado libre de Costa Rica.-Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
-La Asamblea Constitucional del Estado libre de Costa Rica, considerando: que la ley de 31 de Agosto de 1833 contiene vacíos que la hacen impracticable, y deseando llenarlos para garantir la libertad de la escritura, como el honor privado de las familias, procurando igualmente asignar algún sueldo los individuos del Jurado por no parecer justo compelerles al cumplimiento de su deber sin dotación, ha tenido bien decretar y decreta.
-ARTÍCULO 1°.-Los Jurados que designe la suerte son obligados concurrir y la Corte compeler los renuentes sin admitirles otra escusa que una manifiesta imposibilidad física comprobada, la amistad muy estrecha acreditada con hechos evidentes con el acusador parte injuriada, la de ser acusador agraviado por el escrito, la de ser pariente con el acusador, persona dañada hasta el tercer grado de consanguinidad, y hasta el segundo de afinidad; y la de tener enemistad capital grave con el acusador ofendido y comprobadas legítimamente con juramento, debe la Corte tenerlos por escusados.

@@ -1,1 +1,0 @@
-Art. 6. Cuando los Celadores hicieren personalmente las denuncias, les pertenecerá la mitad de las multas, como a cualquier otro delator, sin que por esto hayan de sufrir ningún descuento en el sueldo que se les asigne.

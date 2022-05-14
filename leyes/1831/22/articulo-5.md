@@ -1,1 +1,0 @@
-Art. 5. Lo prevenido en los artículos 4° y 6° será extensivo a las aduanas interiores bajo la misma responsabilidad, conservandolos con la seguridad que indicará el art. 6° sin que pueda hacerse uso de ellos, ni por sí, ni por otro alguno.

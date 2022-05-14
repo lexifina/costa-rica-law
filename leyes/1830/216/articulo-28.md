@@ -1,1 +1,0 @@
-ARTÍCULO 28.-Los costos de laboríos de minas o haciendas ejecutadas y salario del interventor, de ninguna manera han de entrar en concurso sino que se han de pagar prontamente y de lo más bien parado aunque no alcance m s el producto de ellas.

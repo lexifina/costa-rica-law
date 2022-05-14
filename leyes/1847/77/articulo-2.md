@@ -1,1 +1,0 @@
-Art. 2. Queda asi reformado el art. 5° del citado decreto.-Dado en la ciudad de San José, á los treinta dias del mes de noviembre de mil ochocientos cuarenta y siete. Jose Maria Castro. Al Ministro de hacienda y guerra, Señor Don Manuel José Carazo,

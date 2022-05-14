@@ -1,1 +1,0 @@
-Art 3°.- El Ministro del Despacho es encargado del cumplimiento de este Decreto, haciéndolo imprimir, publicar y circular.- Dado en San José a los veintiun días del mes de noviembre de mil ochocientos treinta y tres.

@@ -1,1 +1,0 @@
-Art. 14. No se entregara a los encargados de las ventas ninguna partida de licores sin que ántes exhiban el valor de la que recibieron, sin perjuicio del corte de cuentas que cada fin de mes se les debe hacer.

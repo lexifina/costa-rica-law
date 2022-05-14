@@ -1,1 +1,0 @@
-Art. 3. El Ejecutivo hará que se ponga en poder y bajo la responsabilidad de los ministros de la Casa de Moneda, la cantidad que conceptùe necesaria para hacer los rescates de las pastas que se presenten.

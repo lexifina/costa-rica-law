@@ -1,1 +1,0 @@
-Art. 3, Si algunas familias de seis para arriba se reunieren, para vivir en forma de poblado en cualquiera punto de las direcciones señaladas, gozará cada una de veinticinco manzanas más sobre las que en virtud de Ios artículos anteriores debe tener.

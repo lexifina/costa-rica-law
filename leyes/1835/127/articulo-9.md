@@ -1,1 +1,0 @@
-Art 9°.- Cuando el contrabando se esté vendiendo, ó se haya vendido, no es necesario la aprehensión real, sino que basta la justificación para que el vendedor lo pierda, y pague su valor con arreglo el artículo anterior.

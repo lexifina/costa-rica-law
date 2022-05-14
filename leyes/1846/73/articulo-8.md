@@ -1,1 +1,0 @@
-Art. 8. El presente decreto se imprimirá, circulará y publicará para su puntual cumplimiento. Dado en la ciudad de San José, à los dos días del mes de abril de mil ochocientos cuarenta y seis. –José Rafael de Gallegos. –Al Ministro de relaciones y gobernacion.”

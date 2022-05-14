@@ -1,1 +1,0 @@
-Art. 3. Se devolverà á los habitantes del Departamento de Alajuela la contribucion que hubieren pagado al tesoro de la República en virtud del decreto núm° 18 expedido en 15 de octubre del año proximo pasado.

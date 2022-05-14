@@ -1,1 +1,0 @@
-ARTICULO 6°. -Si los Jueces fallaren de acuerdo, y los interesados se hubiesen convenido en no apelar, no tendrán otro recurso, y pasarán los árbitros el fallo con todo lo que hubiesen practicado, al Juez de 1° Instancia para que ejecute.

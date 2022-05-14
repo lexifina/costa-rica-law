@@ -1,1 +1,0 @@
-Art. 7. La Comisión Directora nombrará inspectores sin sueldo entre los propietarios del tránsito, y celadores con sueldo, que cuiden de todo el camino ó de trechos determinados, librando á cada uno el correspondiente despacho.

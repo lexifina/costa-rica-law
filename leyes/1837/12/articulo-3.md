@@ -1,1 +1,0 @@
-Art 3°.- El acopio de la arina se encargara al ciudadano Pio Murillo en Heredia, el del arroz a los ciudadano Ignacio Saborio, y Juan de Jesus Alfaro en Alajuela, y el del maíz a los Ciudadanos Eusebio Rodriguez y Manuel Mora en esta ciudad.

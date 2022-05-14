@@ -1,1 +1,0 @@
-Art. 38.-Para facilitar la formación de las listas, relaciones y cuentas, y en todos los casos en que sea practicable este uso, la Sociedad dispondrá, se impriman modelos o formularios con todas las circunstancias y por menores que los métodos entablados exijan y la experiencia aconseje.

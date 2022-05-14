@@ -1,1 +1,0 @@
-ARTÍCULO 33.-Tanto los acuerdos de las juntas particulares de sanidad, como los de la general, se comunicar n por los Ministros principales de policía los subalternos de Parroquia para su ejecución y cumplimiento en la forma prescrita en este reglamento.

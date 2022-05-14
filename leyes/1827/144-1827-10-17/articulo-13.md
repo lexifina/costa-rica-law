@@ -1,1 +1,0 @@
-Art 13°.- El que hiciese compras en la Dirección en virtud de la Ley del caso, para extraer fuera de la República, si vende dentro del Estado cualesquiera porción, se sujetará a la pérdida de todo el fruto comprando, y una multa igual al valor de la compra

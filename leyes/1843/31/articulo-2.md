@@ -1,1 +1,0 @@
-Art. 2. Para el nombramiento de este empleado, la Corte Superior de justicia propondrá la terna correspondiente. Dado en San José a 25 de octubre de 1843 José María Alfaro al Ministro General del Despacho Sr. Dr. José María Castro.

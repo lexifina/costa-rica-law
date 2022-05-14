@@ -1,1 +1,0 @@
-Art. 9. Se eceptúa de la distribución y medida el terreno destinado por acta de aquella Municipalidad para el pasto de los animales de aquel vecindario, y la tierra destinada para fabricar losa y teja.

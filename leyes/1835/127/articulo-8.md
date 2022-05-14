@@ -1,1 +1,0 @@
-Art 8.- La pena del contrabando del tabaco beneficiado que se aprehenda, a mas de la perdida del fruto, será el pagar ocho reales por cada libra, y un mes de obras públicas, cuando no tengan bienes, en la reincidencias se doblará el castigo.

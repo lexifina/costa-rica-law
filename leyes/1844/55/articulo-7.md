@@ -1,1 +1,0 @@
-Art. 7°. -El Jefe del resguardo cuidar de confrontar los bultos que se desembarquen con los manifiestos dados por mayor y menor, para asegurarse que corresponden los números y marcas con los señalados en el respectivo manifiesto.

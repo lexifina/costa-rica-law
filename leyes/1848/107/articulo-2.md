@@ -1,1 +1,0 @@
-Art. 2. La misma Direccion dedicará exclusivamente sus trabajos y cuidados à esta importante empresa, invirtiendo en ella todos sus fondos; pero sin desatender la conservacion del camino de Puntarenas.

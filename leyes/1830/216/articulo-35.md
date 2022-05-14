@@ -1,1 +1,0 @@
-ARTÍCULO 35.-Los arbitrios u otras cargas y gravámenes entre individuos del gremio de minas, para el fomento de ellas, y de sus haciendas de beneficio, se dispondrán por los diputados, dando cuenta a la intendencia, si excede su totalidad de cincuenta pesos.

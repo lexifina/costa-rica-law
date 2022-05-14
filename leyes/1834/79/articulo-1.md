@@ -1,7 +1,0 @@
-(Derogado)
-DECRETO LXXIX
-(Esta norma fue derogada por el artículo 1° inciso 296, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
-Manda indemnizar al Ciudadano Pio Murillo los costos de una vereda hacia el Sarapiquí
-" El Jefe Supremo Provisorio del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
-La Asamblea Constitucional del Estado libre de Costa Rica, en consideración á que la vereda hecha por el empresario ciudadano Pio Murillo desde la Villa de Barba a Sarapiquí, está formada con arreglo a las leyes del caso, como ve por el informe de la comisión del Gobierno que fue a reconocerla, ha tenido a bien decretar y decreta.
-Se indemnizará al Ciudadano Pio Murillo de los costos que haya hecho en la apertura de la vereda desde la Villa de Barba a Sarapiqui y además se hará efectivo en su favor el premio que establecen las leyes de 13 de marzo y 4 de mayo de 1827, para los empresarios.- Al Consejo Representativo.- Dado en la ciudad de Alajuela a los treinta y un día del mes de Julio de mil ochocientos treinta y cuatro.- Por tanto: Ejecutese.-Alajuela Agosto dieziseis de mil ochocientos treinta y cuatro.

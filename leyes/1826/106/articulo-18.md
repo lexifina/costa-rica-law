@@ -1,1 +1,0 @@
-Art 18.- Toda falta del Gefe Político Superior en el cumplimiento de esta ordenanza le será un motivo suficiente para perder su empleo a lo que desde luego procederá el Gobierno con dictamen del Consejo.

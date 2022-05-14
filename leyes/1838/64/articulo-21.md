@@ -1,1 +1,0 @@
-ARTICULO 21.-Los Alcaldes Constitucionales conocerán en terminacion en los delitos leves de injuria, y de sus fallos habrá apelacion, cuando su sentencia contenga prision, arresto, ó las multas de que habla el artículo 51, de la Ley de 16 de Enero de 826.

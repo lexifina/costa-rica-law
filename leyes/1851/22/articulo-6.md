@@ -1,1 +1,0 @@
-Art. 6. Concluido el exámen, se retirará el examinado, y los examinadores, despues de prestar el juramento de ley, votarán uno à uno por medio de cédulas en que aprueben ó reprueben, ó de bolas blancas y negras.

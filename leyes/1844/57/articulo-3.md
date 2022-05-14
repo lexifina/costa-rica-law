@@ -1,1 +1,0 @@
-Art. 3°. -En los pueblos que comprendan dos o más secciones electorales, las Municipalidades nombrarán comisiones idóneas de individuos de su seno y fuera de el, que no bajen del número de tres individuos para hacer los registros que dispone el artículo anterior.

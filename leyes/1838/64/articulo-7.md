@@ -1,1 +1,0 @@
-ARTICULO 7°. -Si al tiempo de ejecutarse la sentencia ocurriese que el ejecutado haga sesion de bienes, un tercer opositor, u otro recurso legal que no tenga conexión con lo principal del fallo de los árbitros, volver el expediente á iniciarse por un nuevo nombramiento de estos Jueces, con arreglo lo que queda establecido.
