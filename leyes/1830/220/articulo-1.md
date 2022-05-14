@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 220
+(Esta norma fue derogada por el artículo 1° inciso 181, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Jefe Supremo del Estado libre de Costa Rica.
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa Rica, considerando: que sin proveer convenientemente a la seguridad y alimento de los presos no es posible que haya recta administración de justicia: atendiendo a que la falta de providencia de este particular, ha causado graves males en el tiempo anterior, deseando en fin, conciliar con las consideraciones que exige la humanidad, ha venido en decretar y decreta:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Dicta las reglas que debe observar el Notario de hipotecas, para verificar la anotacion. (1)
 "Juan Rafael Mora, Presidente de la República de Costa Rica Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente.
 El Excelentísimo Congreso Constitucional de la República de Costa Rica, para llenar el vacio que se nota en el decreto de 18 de junio de 1850, sobre anotacion de hipotecas, decreta.

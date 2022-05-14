@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 199
+(Esta norma fue derogada por el artículo 1° inciso 165, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado Libre de Costa rica,
 Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estado Libre de Costa rica, considerando que establecida la Oficina de Ensaye de Metales, debe cesar el precio que para su rescate estableció provicionalmente el Decreto de 19 de Septiembre del año pasado de 1828, ha tenido a bien decretar y decreta.

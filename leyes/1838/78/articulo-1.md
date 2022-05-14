@@ -1,5 +1,7 @@
+(Derogado)
 DECRETO LXXVII
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Poder Legislativo se declara instalado en sesiones extraordinarias.
-“El Jefe Supremo del Estado libre de Costa Rica. –Por cuanto la Asamblea ha decretado lo siguiente.
+"El Jefe Supremo del Estado libre de Costa Rica. -Por cuanto la Asamblea ha decretado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa Rica, ha tenido á bien decretar y decreta.
-Se ha por instalado en sesiones extraordinarias el Poder Legislativo del Estado. -Comuníquese al Supremo Poder Ejecutivo del Estado. –Comuníquese al Supremo Poder Ejecutivo para que lo haga imprimir, publicar y circular. Dado en la Ciudad de Heredia á los diecinueve días del mes de Mayo de mil ochocientos treinta y ocho. Félix Sancho. Presidente. –Carlos Sancho, Secretario accidental. –Juan Rafael Ramos, D. Secretario. –Por tanto: EJECUTESE. San José Mayo diecinueve de mil ochocientos treinta y ocho. –Manuel Aguilar. –Al Jefe de Sección encargado del Ministerio.”
+Se ha por instalado en sesiones extraordinarias el Poder Legislativo del Estado. -Comuníquese al Supremo Poder Ejecutivo del Estado. -Comuníquese al Supremo Poder Ejecutivo para que lo haga imprimir, publicar y circular. Dado en la Ciudad de Heredia á los diecinueve días del mes de Mayo de mil ochocientos treinta y ocho. Félix Sancho. Presidente. -Carlos Sancho, Secretario accidental. -Juan Rafael Ramos, D. Secretario. -Por tanto: EJECUTESE. San José Mayo diecinueve de mil ochocientos treinta y ocho. -Manuel Aguilar. -Al Jefe de Sección encargado del Ministerio."

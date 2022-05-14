@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXIL
+(Esta norma fue derogada por el artículo 1°, inciso 51, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado libre de Costa rica
 Por quanto la Asamblea ha decretado y le Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa rica, teniendo presente la importancia de los objetos a que son destinados los fondos de propios y arbitrios en los Pueblos, ha tenido a bien decretar y decreta.

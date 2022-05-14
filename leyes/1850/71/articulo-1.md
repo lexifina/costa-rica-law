@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXI
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Dicta algunas reglas respecto a la exportacion de café. (1)
 (1) Véase el cap. 23 Secc. 2ª del Reglamento de Hacienda n° 2 de 30 de julio de 1858.
 "Juan Rafael Mora Presidente de la República de Costa Rica. Teniendo a la vista el decreto n° 18 de 28 de Agosto de 1848 que reglamenta la recaudacion del impuesto sobre la exportacion de café y en consideracion a lo expuesto por la direccion de caminos generales en acuerdo de 1° del corriente, decreto:

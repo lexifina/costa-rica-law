@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XIII
+(Esta norma fue derogada por el artículo 1° inciso 259, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 De nueva planta a la Corte Superior de Justicia
 “ El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa Rica, considerando: 1° que la planta actual de la Corte Superior de Justicia es defectuosa por componerse solo de tres individuos: 2° que por lo mismo se halla suspensa la 3° Instancia y paralizados los asuntos en que ella tiene lugar: 3 que el oficio de Fiscal no debe confundirse con el de Juez, ni dársele este carácter al que le tiene de parte o coadyuva la intención de esta; y 4° que la Constitución del Estado, en su artículo 90, exigió la cualidad de Letrados en el Presidente y Fiscal; pero que ella sola no garantiza bastantemente a los ciudadanos, sin que además tengan la propiedad que el mismo artículo requiere, ha venido en decretar y decreta

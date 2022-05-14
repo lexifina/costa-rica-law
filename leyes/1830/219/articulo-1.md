@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 219
+(Esta norma fue derogada por el artículo 1° inciso 183, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Jefe Supremo del Estado libre de Costa Rica.
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente
 La Asamblea Constitucional del Estado libre de Costa Rica, bien penetrada de los sacrificios que experimentan los funcionarios públicos del Estado por los mezquinos ingresos de su tesoro en circunstancias de no indemnizarles sino es muy pequeña parte de sus rentas, una que otra vez, sin embargo de la atención personal y constante en el servicio de sus respectivas destinos: penetrada asimismo de que las rentas de la Federación en todo tiempo, y principalmente en el que se vió desorganizada y acéfala la República, el Estado conservó, respeto y miro como sagradas las rentas nacionales, cuando las mismas fueron dilapidadas en otros puntos de la República, y que aunque qusiera no hacer uso de sus fondos para sus propias erogaciones, se hace indispensables para subsanar los enormes perjuicios irrogados, a sus funcionarios por la falta de indemnización, en términos que sólo el honor y el patriotismo han podido aligerar en alguna manera de carga del destino, ha tenido a bien decretar y decreta:

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LVIII.
+(Esta norma fue derogada por el artículo 1° inciso 237, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Reglamento interior del Consejo Representativo. (1)
 (1) Este Reglamento fue sostituido en todas sus partes , por el de 27 de Junio de 1844,-emitido en virtud de la Constitucion del mismo año que dio nueva planta á la Cámara moderadora.
 El Gefe Supremo del Estado libre de Costa-rica.-Por cuanto la Asamblèa ha decretado y el Consejo sancionado lo siguiente.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 196
+(Esta norma fue derogada por el artículo 1° inciso 161, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado Libre de Costa rica
 Por quanto la Asamblea ha decretado lo siguiente.
 La Asamblea Constitucional del Estado Libre de Costa rica cumpliendo con lo prevenido en el artículo 51 de la Ley Fundamental sobre renovación de individuos del Poder Legislativo, y con concepto a que los demás Poderes no se hallan en este caso por virtud del periodo que les detalla la misma Ley Fundamental a sus individuos, ha tenido a bien decretar y decreta.

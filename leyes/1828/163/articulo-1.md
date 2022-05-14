@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 163
+(Esta norma fue derogada por el artículo 1° inciso 138, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado Libre de Costa rica
 Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente
 La Asamblea Constitucional del Estado libre de Costa rica: Conciderando que los Alcaldes Constitucionales de los pueblos por falta de la Corte Superior de Justicia, acaso podrían cometer exesos de autoridad contra las garantías sociales de los ciudadanos o inferirles agravio de qualesquiera otro modo, y que la Asamblea por el artículo 55 atribución 7ª de la Ley Fundamental del Estado, puede exigir un Tribunal que los contenga sin traspasar la bahía de sus facultades, ha tenido a bien decretar y decreta.

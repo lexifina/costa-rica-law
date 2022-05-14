@@ -1,4 +1,6 @@
+(Derogado)
 DECRETA XCVI.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Ley marcial
 Presidente del Estado de Costa Rica en ejercicio del Supremo Poder Ejecutivo.
 En atención a que rebelada otra vez una facción en el Departamento de Alajuela, es indispensable reprimir su osadía para salvar a la sociedad de los estragos de un desorden anárquico; y que en este caso es obligación estrecha de cada uno de los habitantes del Estado cooperar con el Gobierno al restablecimiento de la tranquilidad, decreta.

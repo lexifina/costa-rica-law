@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO 193
+(Esta norma fue derogada por el artículo 1° inciso 162, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado Libre de Costa rica
 Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
 La Asamblea Constitucional del Estado Libre de Costa rica: con concepto a que la deuda publica crese de dia en dia hasta el grado de sobre ponerse en mucho a los recursos del Estado y considerando que quanto mas se postergue su amortización mas insuperable se hace esta, y tocará por último en un absoluto imposible con decredito del mismo Estado y enorme perjuicio de los funcionarios: y penetrada de otra parte que la distribución de caudales debe ser lo mas equitativo y arreglada y que para el efecto han de establecerse reglas que lo prevengan ha tenido a bien decretar y decreta.

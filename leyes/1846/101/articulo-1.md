@@ -1,4 +1,6 @@
+(Derogado)
 Reglamento de la Imprenta del Estado
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Jefe Supremo Provisorio del Estado libre de Costa Rica. Considerando: que no existe una sola disposición que reglamente la administración de la Imprenta del Estado, y que es de imperiosa necesidad dictar la que sea más conforme a la situación actual de dicha Imprenta, y edición de papeles públicos, decreta la siguiente
 LEY REGLAMENTARIA.
 CAPITULO I.

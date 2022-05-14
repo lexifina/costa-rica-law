@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CV,
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Establece en la Capital la Aduana de Sarapiqui y reglamenta sus funciones. (1)
 (I) Véase la órden n° 602 de 5 de noviembre de este mísmo año, el acuerdo n° 3 de 24 de mayo de I859, y el decreto n° 14 de 24 de julio de 1860.
 "Juan Rafael Mora Presidente de la República de Costa Rica.

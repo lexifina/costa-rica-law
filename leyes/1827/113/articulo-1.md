@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CXIII
+(Esta norma fue derogada por el artículo 1°, inciso 88, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado libre de Costa rica
 Por quanto la Asamblea ha decretado lo siguiente:
 La Asamblea Constitucional del Estado libre de Costa rica, considerando que es indispensable la renovación de los individuos que han cumplido los años Constitucionales de Diputados, y de los Consejeros que la suerte ha designado, calificar quales sean aquellos, y porque partidos deban reponerse: para ebitar confuciones, ha tenido a bien decretar y decreta.

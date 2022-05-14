@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLVI
+(Esta norma fue derogada por el artículo 1°, inciso 35, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 El Gefe Supremo del Estado libre de Costa rica
 Por quanto la Asamblea Constitucional de el ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Ordinaria, del Estado libre de Costa rica, en consideración a los grandes intereses que se versan en la buena dirección de los minerales, y la necesidad con que los de el monte del Aguacate exigen autoridades recidentes allí que hagan guardar el debido orden, ha tenido a bien decretar y decreta.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CLXIX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
 Ley reglamentaria de elecciones para la Suprema Autoridades de la República. [1]
 (1) Adicionado por el decreto N° 6 de 25 de junio de 1849, fue finalmente refundida en la ley N° 25 de 5 noviembre de 1862 y su adicional n° 2 de 20 de febrero de 1863.

@@ -1,7 +1,9 @@
+(Derogado)
 DECRETO IX.
+(Esta norma fue derogada por el artículo 1° inciso 201, de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 La Asamblea Legislativa declara no haber lugar a formacion de causa
 contra los Magistrados de la Corte Superior de Justicia (Zacasa y Gutierrez)
 en la acusacion interpuesta por los Señores Carrillo y Jinesta.
-“El Jefe Supremo del Estado libre de Costa-Rica.—Por cuanto la Asamblea ha decretado lo siguiente.
+"El Jefe Supremo del Estado libre de Costa-Rica.-Por cuanto la Asamblea ha decretado lo siguiente.
 La Asamblea Constitucional del Estado libre de Costa-Rica: atendiendo a que hasta la fecha solo se ha oido à los Magistrados que componen la Corte Superior de Justicia segun la planta que le diò la ley de 20 de Abril de 830 y que comenzaron à fungir en 1° de Julio del mismo año: teniendo presentes los libelos de acusacion contra la misma Corte presentados por los Ciudadanos Braulio Carrillo y Josè Jinesta: habiendo examinado atentamente los cargos que estos hacen al lado del informe producido por la misma Corte, las leyes y expedientes relativos: despues de una prolija discusion acerca de los hechos y del derecho: considerando que si es interesante à la sociedad garantir el derecho de peticion, es sumamente nocivo su abuso, y que, en tal caso, es un deber de la autoridad suprema restituir al agraviado en el goce de sus derechos y acciones, ha venido en declarar y decreta
 Art. 1° No ha lugar à la formacion de causa contra los Magistrados Ciudadanos Presidente José Zacasa, y Fiscal Agustin Gutierrez por sus procedimientos relativos à sus acusadores Carrillo y Jinesta, efectuados desde el dia primero de Julio de ochocientos treinta, en que comenzaron à fungir en consecuencia de la nueva planta que dió à la Corte Suprema de Justicia la ley del Estado de 20 de Abril del mismo año.

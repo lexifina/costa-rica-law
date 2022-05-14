@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CLXX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Dispone el modo como puede adquirirse la propiedad de los terrenos pertenecientes a las leguas que ley ha concedido a los pueblos de la República por los actuales poseedores. (1)
 (1) Ver la ley n°13 de 31 de octubre de 1855, la n°2 de 28 de enero de 1859 y la n° 3 de 25 de febrero del mismo año.
 "José Maria Castro Presidente de Costa Rica etc. -Por cuanto el Excelentisimo Poder Legislativo ha decretado lo siguiente.

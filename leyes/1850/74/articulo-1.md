@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXIV.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Determina el modo de practicar el valuo de las tierras baldias que se denuncien. (1)
 (1) Véase el cap. 10. Secc. 1* del Reglamento de Hacienda n° 2 de 30 de julio de 1858 y la ley n° 13 de 24 de julio de 1860.
 "Juan Rafael Mora Presidente de la República de Costa Rica.

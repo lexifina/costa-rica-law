@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXXVI
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Autoriza al Poder Ejecutivo, para que en los receso del Congreso, pueda crear fondos de propios en los pueblos que no los tengan, reglamentarlos, y reformar o derogar las leyes relativas a dichos fondos. (1).
 (1) Ver los artículos 90 secc 5° tit. 7° y 100 secc. 5° Tit. 8 de la Constitución de 26 de diciembre de 1850.
 "Juan Rafael Mora, Presidente de la República de Costa Rica, - Por cuanto el Excelentisimo Congreso Constitucional ha decretado lo siguiente.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO VII.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Designa el numero de Ministros jueces suplentes que deben nombrarse para la Excma. Corte de Justicia. (1)
 (1) Véanse los artículos 6 y 1° de la ley orgánica n° 4 de 18 de febrero de 1852.
 "Juan Rafael Mora Presidente de la República de Costa Rica, -Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente.

@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO CLX.
+(Esta norma fue derogada por el artículo 1° de la ley N° 10176 del 20 de abril de 2022, "Derogatoria de leyes caducas o históricamente obsoletas para la depuración del ordenamiento jurídico (quinta parte)")
 Rebaja la base para el remate de las véntas de licor del pais en el departamento de Guanacaste. (1]
 (1) Ver el decreto n° 1 de 4 de enero de 1850, y el número 8 de 18 de junio del mismo año.
 José Maria Castro Presidente de Costa Rica etc. etc.
