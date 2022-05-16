@@ -1,5 +1,6 @@
 Transitorio I. Sobre la carga inicial de información. Las entidades reguladas o supervisadas tendrán las siguientes fechas límite para ingresar la información de las personas físicas e instancias de control indicadas en el artículo 5 de estas disposiciones:
 . Puestos de Bolsa, Grupos financieros supervisados por SUGEVAL, Calificadoras de riesgo, Central de valores, Bolsa de valores, Proveedores de precios, Sistema de Anotación en Cuenta (SAC), Sociedad de compensación y liquidación, Sociedades fiduciarias, y Sociedades titularizadoras: del 15 de febrero al 15 de abril del 2022.
-. Emisores de valores no financieros, emisores de valores supervisados por Sugef, Sociedades administradoras de fondos de inversión y los fondos bajo su responsabilidad del 15 de marzo al 15 de mayo del 2022.
+. Emisores de valores no financieros, emisores de valores supervisados por Sugef, Sociedades administradoras de fondos de inversión y los fondos bajo su responsabilidad: del 15 de marzo al 15 de junio del 2022.
 La actualización de la información de los cargos en el Registro Nacional de Valores e Intermediarios con la incluida en el Sistema de Registro y Actualización de Roles se realizará al completar los plazos de carga inicial definidos en este transitorio.
 Posterior a la carga inicial, la actualización de la información se realizará en el Sistema de Registro y Actualización de Roles y de conformidad con el presente acuerdo.
+(Así reformado por el artículo 1° del acuerdo SGV-A-267 del 16 de mayo de 2022)
