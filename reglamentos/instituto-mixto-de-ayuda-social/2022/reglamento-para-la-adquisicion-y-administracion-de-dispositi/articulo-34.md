@@ -1,0 +1,1 @@
+Artículo 34.-Transitorio único. Los procesos de cobro u otros actos administrativos que estuviesen pendientes, a la fecha de la publicación del presente Reglamento, se deben tramitar con la normativa anterior y en lo que sea posible, se ajustarán a las nuevas disposiciones, armonizándolas en lo pertinente, con las actuaciones ya practicadas.

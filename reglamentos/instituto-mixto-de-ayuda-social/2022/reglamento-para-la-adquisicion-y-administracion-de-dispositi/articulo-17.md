@@ -1,0 +1,4 @@
+Artículo 17.-De los deberes y obligaciones de la Subgerencia de Soporte Administrativo y de las Jefaturas de las ARDS. Son deberes y obligaciones de la Subgerencia de Soporte Administrativo y de las jefaturas de las ARDS, los siguientes:
+a. Resolver los recursos de apelación que sean presentados por las personas funcionarias o trabajadoras del IMAS, contra los procesos de cobro de sumas excedentes en el consumo de líneas de voz.
+b. Revisar los informes remitidos sobre cualquier inconsistencia o irregularidad comunicada en relación con el uso, administración y adquisición de medios de comunicación de voz, de internet y dispositivos asociados.
+c. En caso de considerarlo pertinente, trasladar a la Gerencia General los informes de cualquier inconsistencia o irregularidad comunicada, para su valoración y el debido proceso, según corresponda.

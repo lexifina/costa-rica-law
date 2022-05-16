@@ -1,0 +1,3 @@
+Artículo 22.-De los montos autorizados para el uso de medios de comunicación de voz en caso de emergencia. En situaciones de emergencia debidamente comprobadas, a las personas funcionarias, se les podrá reconocer el gasto adicional en el uso de medios de comunicación de voz institucionales, según el siguiente desglose:
+a. Hasta el 25% adicional del monto mensual, será aprobado por la jefatura inmediata a la que pertenezca la persona funcionaria que atiende la emergencia.
+b. Hasta el 50% adicional del monto mensual, será aprobado por la jefatura jerárquica siguiente, a la que pertenezca la dependencia administrativa del inciso a, de este artículo.

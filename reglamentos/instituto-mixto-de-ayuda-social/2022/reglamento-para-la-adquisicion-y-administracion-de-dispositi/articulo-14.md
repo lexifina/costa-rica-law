@@ -1,0 +1,4 @@
+Artículo 14.-De los deberes y obligaciones del Área de Tecnologías de Información. Son deberes y obligaciones del Área de Tecnologías de Información, los siguientes:
+a. Emitir criterio técnico sobre las características de los servicios de comunicación de voz, internet y los dispositivos asociados a contratar, para las personas funcionarias y/o trabajadoras del IMAS autorizadas (para servicios nuevos), cada vez que sea requerido por las jefaturas de las UCAR o del Área de Servicios Generales, según corresponda.
+b. Recomendar la actualización de los servicios de comunicación de voz, internet y los dispositivos contratados en períodos anteriores.
+c. Emitir criterio técnico sobre el cambio de dispositivos de voz e internet, a solicitud de las Áreas Regionales de Desarrollo Social o del Área de Servicios Generales.

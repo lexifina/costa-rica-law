@@ -1,0 +1,12 @@
+Artículo 10.-De los deberes y obligaciones de las personas funcionarias y/o trabajadoras del IMAS, que hacen uso de medios de comunicación de voz, de internet y dispositivos asociados propiedad de la institución. Son deberes y obligaciones de las personas funcionarias y/o trabajadoras del IMAS en el uso de medios de comunicación de voz, de internet y dispositivos asociados propiedad de la institución, los siguientes:
+a. Solicitar a la jefatura inmediata, la asignación de medios de comunicación de voz, de internet y/o dispositivos asociados.
+b. Custodiar, conservar y dar un uso correcto y racional a los medios de comunicación de voz, de internet y dispositivos asociados para realizar las labores propias del cargo.
+c. Completar el formulario de asignación de medios de comunicación de voz y/o de internet, así como el Vale de Almacén para los dispositivos asociados.
+d. Reportar a la jefatura inmediata cualquier anomalía o situación que se presente en el uso de medios de comunicación de voz y de internet o dispositivos asociados.
+e. Reintegrar a la Institución, con recursos propios, el monto del excedente en el consumo no autorizado.
+f. Entregar a la jefatura inmediata los medios de comunicación de voz, de internet y dispositivos asociados asignados, por traslado de una dependencia administrativa a otra, renuncia o despido, antes de finalizar el nombramiento.
+g. Entregar a la jefatura inmediata los medios de comunicación de voz, de internet y dispositivos asociados asignados, en un plazo máximo de cinco días hábiles, en caso de que no se requieran para realizar las labores asignadas.
+Para los equipos asociados, se debe proceder según lo establecido en el Manual de Procedimientos para el manejo y control de activos institucionales del Área de Proveeduría Institucional o su normativa equivalente.
+h. Proceder según lo establecido en el Manual de Procedimientos para el manejo y control de activos institucionales del Área de Proveeduría Institucional o su normativa equivalente, en caso de pérdida, hurto o robo de los dispositivos asociados o de los medios de comunicación de voz y de internet. Se debe informar al Área de Servicios Generales o a la jefatura de la UCAR, según corresponda, para que realice las gestiones de suspensión del servicio y del pago.
+i. Utilizar el bien y servicio exclusivamente para la atención de las funciones propias del cargo.
+j. Acatar las disposiciones que sobre la utilización de los servicios se establezca en el presente Reglamento.

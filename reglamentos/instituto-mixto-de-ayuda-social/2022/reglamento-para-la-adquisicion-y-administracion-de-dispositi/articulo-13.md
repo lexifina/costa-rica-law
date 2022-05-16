@@ -1,0 +1,19 @@
+CAPÍTULO TERCERO
+Deberes y obligaciones de las instancias administrativas
+Artículo 13.-De los deberes y obligaciones del Área de Servicios Generales. Son deberes y obligaciones del Área de Servicios Generales en la gestión de medios de comunicación de voz, de internet y dispositivos asociados del Nivel Central, los siguientes:
+a. Realizar el trámite de adquisición de medios de comunicación de voz y de internet, con sus dispositivos asociados, ante las empresas proveedoras de estos servicios, para las personas funcionarias y/o trabajadoras autorizadas en el presente Reglamento, una vez verificado el contenido presupuestario.
+b. Remitir a la Gerencia General los contratos de las empresas proveedoras de medios de comunicación de voz y de internet para su firma.
+c. Solicitar a las personas titulares subordinadas de las personas autorizadas del Nivel Central, completar el formulario de asignación de uso de medios de comunicación de voz y de internet.
+d. Realizar la afiliación y desafiliación en el Servicio de Pago Automático de Recibos (PAR) de medios de comunicación de voz y de internet.
+e. Llevar el control de la ejecución de los recursos asignados en la subpartida de Servicios de Telecomunicaciones, o la que corresponda, según el Clasificador por objeto del gasto para el Sector Público vigente.
+f. Verificar mensualmente que los comprobantes electrónicos de cobro de recibidos correspondan con la totalidad de medios de comunicación de voz y de internet contratados.
+g. Mantener actualizado el control de asignación de medios de comunicación de voz y de internet a las personas funcionarias y/o trabajadoras del IMAS, que no correspondan a las Áreas Regionales de Desarrollo Social.
+h. Formular los requerimientos presupuestarios para cubrir los gastos de los medios de comunicación de voz y de internet existentes, así como proyectar la adquisición de nuevos servicios.
+i. Realizar la suspensión o retiro de medios de comunicación de voz y de internet con la empresa proveedora, al momento de cesar su uso y necesidad, en un plazo máximo de cinco días hábiles.
+j. Realizar la solicitud de devolución del depósito de garantía ante la empresa proveedora de medios de comunicación de voz y de internet, en un plazo máximo de cinco días hábiles.
+k. Informar al Área de Proveeduría Institucional sobre la adquisición de dispositivos asociados a medios de comunicación de voz y de internet, para el registro y control respectivo, mediante el sistema de Vales de Almacén, en un plazo máximo de cinco días hábiles.
+l. Realizar mensualmente, la primera intimación para el pago de los montos de consumo excedidos en medios de comunicación de voz asignados a las personas funcionarias y o trabajadoras de la institución, según lo establecido en el artículo 23 de este reglamento e indicando expresamente: "contra el presente acto procede la interposición de los recursos de Revocatoria ante esta Área de Servicios Generales y el de Apelación ante la Subgerencia de Soporte Administrativo, dentro del plazo de tres días hábiles contados a partir de la fecha de notificación del presente acto administrativo".
+m. Comunicar mensualmente a la Unidad de Contabilidad, los montos excedentes no cancelados por las personas funcionarias, para el trámite respectivo de cobro.
+n. Realizar consultas a las empresas proveedoras de los servicios de comunicación de voz contratados, sobre el detalle de llamadas realizadas con líneas propiedad del IMAS, en un período especifico (días, duración, números, entre otros.), en caso de considerarlo necesario para aclarar cualquier duda que se presente sobre el consumo.
+o. Resolver los recursos de revocatoria que sean presentados por las personas funcionarias o trabajadoras del IMAS del nivel central, contra los procesos de cobro de sumas excedentes en el consumo de líneas de voz.
+p. Presentar a la jefatura inmediata informes sobre irregularidades detectadas en el uso de medios de comunicación de voz y de internet.
