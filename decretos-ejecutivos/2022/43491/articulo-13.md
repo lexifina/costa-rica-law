@@ -1,0 +1,1 @@
+Artículo 13.-Interés público. Se declara de interés público la implementación del Plan de Acción 2022-2026 de la Política Nacional de Adaptación 2018-2030 como herramienta fundamental de la acción climática nacional, para enfrentar los efectos del Cambio Climático.
