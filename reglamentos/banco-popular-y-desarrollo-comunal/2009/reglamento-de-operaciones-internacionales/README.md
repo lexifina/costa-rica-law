@@ -17,3 +17,4 @@ Reglamento de Operaciones Internacionales
 | 2 | 2010-07-05 | Reglamento 4770 (2010-07-05) |
 | 3 | 2015-09-01 | Reglamento 5306 (2015-09-01) |
 | 4 | 2017-07-04 | Reglamento 5476 (2017-07-04) |
+| 5 | 2022-05-16 | Reglamento 5918 (2022-05-16) |

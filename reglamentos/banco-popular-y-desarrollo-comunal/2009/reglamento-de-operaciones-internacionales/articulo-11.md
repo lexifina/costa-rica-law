@@ -1,3 +1,4 @@
-Artículo 11°.- Restricciones para realizar pagos o transferencias internacionales.
-No se realizarán transferencias o pagos internacionales a países bloqueados por EE.UU. o que se encuentren en las listas restringidas del Grupo de Acción Financiera (GAFI) (Lista Roja, Lista Negra, Lista Gris Oscurecida y Lista Gris).
+Artículo 11.-Restricciones para realizar pagos o transferencias internacionales. No se realizarán transferencias o pagos internacionales a países bloqueados por la Oficina de Control de Activos Extranjeros (OFAC).
+Por su parte, para los países que se encuentren en las listas de mayor riesgo del Grupo de Acción Financiera (GAFI) y otros organismos internacionales, la Oficialía de Cumplimiento, en atención de lo establecido en la normativa vigente, determinará los casos con los cuales se podría operar, en cuyas situaciones se deberá aplicar una debida diligencia reforzada.
 Tampoco se realizarán transferencias o pagos internacionales cuando el mensaje registre una alerta positiva (hit) en la herramienta que se realice el proceso de verificación (screening), y se confirme que la persona figura en las listas internacionales (OFAC y ONU, entre otras).
+(Así reformado en sesión N° 5918 del 16 de mayo de 2022)
