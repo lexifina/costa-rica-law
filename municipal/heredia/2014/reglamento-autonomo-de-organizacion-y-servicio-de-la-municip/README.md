@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio de la Municipalidad de Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-22 | la propia norma |
+| 2 | 2022-05-16 | Reglamento municipal 173 (2022-05-16) |
