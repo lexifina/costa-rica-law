@@ -14,3 +14,4 @@ Suspende Norma Oficial Sobre Mayonesa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-09-16 | la propia norma |
+| 2 | 2022-05-16 | Decreto Ejecutivo 43615 (2022-05-16) |

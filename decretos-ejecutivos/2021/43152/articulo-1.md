@@ -15,4 +15,5 @@ SUSPENSIÓN DEL DECRETO EJECUTIVO
 N° 22020-MEIC, DEL 23 DE FEBRERO DE 1993,
 PUBLICADO EN EL DIARIO OFICIAL LA GACETA
 N° 64 DEL 02 DE ABRIL DE 1993
-Artículo 1º-Suspéndase por un plazo de ocho meses la implementación del Decreto Ejecutivo N° 22020-MEIC, "NCR 207:1992, Mayonesa", del 23 de febrero de 1993, publicado en el Diario Oficial La Gaceta N° 64 del 02 de abril de 1993; con el objetivo de proceder a la promulgación de un nuevo Reglamento Técnico para la mayonesa.
+Artículo 1º-Suspéndase el Decreto Ejecutivo N° 22020- MEIC del 23 de febrero de 1993, "NCR 207:1992, Mayonesa", publicado en el Diario Oficial La Gaceta N° 64 del 02 de abril de 1993, hasta tanto se publique el nuevo Reglamento Técnico para la mayonesa.
+(Así reformado por el artículo 1° de decreto ejecutivo N°43615 del 16 de mayo de 2022)
