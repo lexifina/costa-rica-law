@@ -1,0 +1,1 @@
+Artículo 6º-Plazo de resolución de las solicitudes. El plazo para resolver estas solicitudes es de dos meses, de conformidad con el artículo 102 del Código de Normas y Procedimientos Tributarios, contado desde la fecha de presentación de la solicitud. No se consideran dentro de este plazo, los días concedidos en caso de haberse notificado alguna prevención.

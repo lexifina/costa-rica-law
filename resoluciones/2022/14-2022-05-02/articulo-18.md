@@ -1,0 +1,1 @@
+Artículo 18.-Obligación de cancelación de los pagos parciales del impuesto sobre la renta. Los obligados tributarios autorizados a aplicar un sistema especial de cálculo de la renta líquida, están obligados a cancelar los pagos parciales según lo dispuesto en el artículo 22 de la Ley del Impuesto sobre la Renta N° 7092 y sus reformas.

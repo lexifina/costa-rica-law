@@ -1,0 +1,1 @@
+Artículo 8º-Actuaciones de control. La autorización indicada en el artículo anterior, quedará sujeta a una actuación de control intensivo, cuando sea programada por parte de la Dirección de Fiscalización, y podrá ser revocada, conforme a lo dispuesto en el artículo 15 de esta Resolución.
