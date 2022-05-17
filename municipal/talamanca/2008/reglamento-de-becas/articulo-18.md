@@ -1,1 +1,0 @@
-Artículo 18.—Todos los estudiantes beneficiados deben presentar trimestralmente o conforme a las políticas de entrega de calificaciones que determine el Ministerio de Educación Publica, el resumen de calificaciones de su centro de estudio, el cual podrá ser debidamente corroborado por esta Administración.
