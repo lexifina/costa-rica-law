@@ -1,0 +1,1 @@
+Artículo 31.-Las solicitudes de becas, e inclusive los estudios correspondientes, por sí solos no crean derechos ni expectativas, si no cuentan con las autorizaciones explícitas que otorgan los beneficios, además bajo ninguna circunstancia opera el silencio positivo en lo regulado por el presente reglamento.

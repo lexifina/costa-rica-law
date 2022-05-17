@@ -1,0 +1,1 @@
+Artículo 23.-Pasados tres meses si el encargado no retira la beca del estudiante, pierde automáticamente el derecho de continuar disfrutando este beneficio, siempre y cuando se compruebe que se le ha notificado.

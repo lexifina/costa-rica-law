@@ -1,0 +1,1 @@
+Artículo 9º-El solicitante deberá entregar el formulario y sus requisitos en el lugar que establezca cada Concejo de Distrito. La sola presentación de la solicitud y los requisitos no acredita al solicitante como beneficiario.

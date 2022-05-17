@@ -1,0 +1,1 @@
+Artículo 22.-Una vez acordada la aprobación de la lista de los becados por el Concejo Municipal, la Unidad de Bienestar Social, Familia y Mujer comunicará a cada institución educativa la nómina de becados con su respectivo duplicado para ser devuelta como recibido por el departamento de orientación o registro, según sea el caso.

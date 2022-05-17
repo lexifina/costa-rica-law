@@ -1,0 +1,1 @@
+Artículo 16.-La Unidad de Bienestar Social, Familia y Mujer deberá hacer un expediente por centro educativo, en el cual se archivará las certificaciones o constancias emitidas para cada uno de los estudiantes becados.

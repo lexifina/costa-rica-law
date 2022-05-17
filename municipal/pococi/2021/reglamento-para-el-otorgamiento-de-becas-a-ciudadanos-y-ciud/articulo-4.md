@@ -1,0 +1,1 @@
+Artículo 4º-La cantidad de becas totales se distribuirá equitativamente entre los siete distritos del cantón. Si algún o algunos de los Concejos de Distrito no presentarán su listado, la cantidad asignada para ellos se distribuirá en los distritos que si hallan presentado un listado de interesados.

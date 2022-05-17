@@ -1,0 +1,1 @@
+Artículo 20.-La Tesorería Municipal en atención al listado recibido de becados y sus encargados (padre, madre o representante), girará a nombre de estos la primera semana de cada mes, mediante transferencia a cuenta IBAN. En casos de becas universitarias, realizará transferencia directa al centro universitario mediante la cuenta IBAN previamente entregada por el beneficiario.
