@@ -1,1 +1,0 @@
-ARTÍCULO 6.- El Departamento de Recursos Humanos, deberá preparar las convocatorias a las pruebas de idoneidad, con indicación de fecha, hora y lugar de realización; las cuales deberán ser entregadas al oferente en el momento del reclutamiento.

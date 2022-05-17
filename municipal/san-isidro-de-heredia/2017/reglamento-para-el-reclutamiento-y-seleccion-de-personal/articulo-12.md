@@ -1,1 +1,0 @@
-ARTÍCULO 12.- Cuando se presenten copias fotostáticas de los documentos indicados en el artículo anterior, se deberá presentar sus originales para confrontación, caso contrario, deberá presentarse copia certificada por un Notario Público.

@@ -1,1 +1,0 @@
-ARTÍCULO 18.- El Departamento de Recursos Humanos, deberá generar una lista de las personas que realizarán la respectiva prueba, de manera que pueda programar su realización en uno o varios días, según el tiempo y personal disponible para ello, y la cantidad de oferentes enlistados.

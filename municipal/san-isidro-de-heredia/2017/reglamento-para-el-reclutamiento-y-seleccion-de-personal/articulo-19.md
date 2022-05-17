@@ -1,1 +1,0 @@
-ARTÍCULO 19.- Las pruebas de idoneidad deberán ser aplicadas y revisadas por la jefatura inmediata o por el profesional en la materia respectiva al puesto y tendrá para ello el plazo máximo de diez días hábiles.

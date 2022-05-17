@@ -1,1 +1,0 @@
-ARTÍCULO 13.- Todo oferente posee el derecho a requerir “razón de recibo” de la documentación entregada, en la cual se consignará fecha y hora de recepción, así como indicación clara del nombre de la persona que firma el recibido.

@@ -1,1 +1,0 @@
-ARTÍCULO 20.- Si para la selección del puesto respectivo, no se aplican pruebas, las ofertas recibidas se estudiarán, para realizar una preselección de todos aquellos que cumplen con los requisitos y características del puesto; posteriormente, podrá continuarse con la calificación de los factores de selección.

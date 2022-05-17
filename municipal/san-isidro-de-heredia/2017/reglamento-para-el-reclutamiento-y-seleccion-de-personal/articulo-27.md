@@ -1,1 +1,0 @@
-ARTÍCULO 27.- Obtenida la terna o nómina, deberá prepararse un listado solicitando al Registro Judicial, la información referente a los antecedentes de cada uno de ellos. Esta solicitud debe incluir el nombre del oferente, el número de cédula, la fecha de nacimiento, el nombre del padre, el nombre de la madre y la Institución que lo solicita.
