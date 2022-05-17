@@ -1,0 +1,6 @@
+Artículo 14. Obligaciones y responsabilidades de las jefaturas: las personas con cargo de jefatura de las dependencias en las cuales se aplica la modalidad de teletrabajo, además de las establecidas en la normativa vigente, tiene las siguientes obligaciones y responsabilidades:
+a) Coordinar, dar seguimiento y evaluar las funciones, actividades, tareas y responsabilidades asignadas a la persona servidora en teletrabajo, para procurar el óptimo rendimiento y desempeño.
+b) Realizar las gestiones que correspondan en la atención y aclaración de dudas, contratiempos, conflictos, entre otros, que se puedan presentar en el desarrollo de las actividades bajo esta modalidad.
+c) Recomendar a la persona servidora en teletrabajo las acciones que permitan mejorar su desempeño, realizando sesiones de trabajo en las que se realice un efectivo seguimiento a las metas propuestas.
+d) Velar porque se mantengan las oportunidades de desarrollo e integración social de las personas servidoras que participan en esta modalidad.
+e) Respetar el horario de trabajo asignado a las personas funcionarias que tiene a su cargo, exceptuando las emergencias y los puestos que por su naturaleza requieran disponibilidad.

@@ -1,0 +1,1 @@
+Artículo 18. Resolución de solicitud de reincorporación. Corresponde a la autoridad competente en todos los casos en que se solicite la reincorporación a la modalidad presencial, resolver las solicitudes con base en lo normado por este reglamento y en los principios de conveniencia y oportunidad.

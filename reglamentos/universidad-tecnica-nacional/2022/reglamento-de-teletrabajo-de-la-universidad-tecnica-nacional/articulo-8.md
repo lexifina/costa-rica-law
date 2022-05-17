@@ -1,0 +1,1 @@
+Artículo 8. Riesgos de trabajo. En lo que respecta a los riesgos del trabajo, para el teletrabajo se aplican las condiciones y pólizas previstas para el trabajo presencial, siempre y cuando se respete el lugar de ubicación autorizado en el contrato o propio del ejercicio del cargo.

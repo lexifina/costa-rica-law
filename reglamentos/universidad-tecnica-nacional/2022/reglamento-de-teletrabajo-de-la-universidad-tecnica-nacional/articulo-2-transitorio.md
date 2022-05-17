@@ -1,0 +1,2 @@
+Transitorio 2. Aprobado este reglamento, la Dirección General de Asuntos Jurídicos cuenta con un plazo de un mes para la revisión y aval del formato de Contrato a ser utilizado por la persona servidora y el patrono. 12
+(Aprobado por el Consejo Universitario mediante Acuerdo 9 tomado por el Consejo Universitario en la Sesión Ordinaria No. 8-2022, celebrada el jueves 28 de abril del año 2022, a las nueve horas, según el Artículo 14 del Capítulo IX. Comisión de Reglamentos Internos. Publicado en el diario oficial La Gaceta No. 90 del 17 de mayo del 2022, sección Reglamentos)

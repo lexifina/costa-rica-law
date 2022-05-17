@@ -1,0 +1,11 @@
+Artículo 2. Definiciones. Para los efectos de este reglamento se tiene las siguientes definiciones:
+a) Addendum al contrato: anexo que se realiza a un contrato original, en el momento que sea necesario agregar o modificar alguna de sus partes, pueden ser cláusulas, párrafos, fechas de cumplimiento, vencimiento, cualquier otro cambio o complemento anexo que la Dirección de Gestión de Desarrollo Humano considere pertinente.
+b) Condiciones del entorno de la persona teletrabajadora: conjunto de requerimientos y especificaciones, que establece la Universidad Técnica Nacional, para que la persona teletrabajadora pueda desempeñarse en la modalidad de teletrabajo, tales como herramientas tecnológicas mínimas, conectividad y todos aquellos requerimientos que resulten indispensables para el correcto desempeño de sus labores.
+c) Contrato: documento firmado entre la persona servidora y el representante del empleador, en el que se especifican detalladamente las condiciones de la relación de servicio mediante la modalidad de teletrabajo.
+d) Empleador: para los efectos de este reglamento la Universidad Técnica Nacional.
+e) Horario de teletrabajo: distribución diaria de las horas que componen la jornada laboral de una persona teletrabajadora, ajustado a los límites legales establecidos para las distintas jornadas de trabajo.
+f) Jornada laboral: jornada laboral de la persona teletrabajadora, que se debe ajustar a lo establecido por la institución.
+g) Perfil de la persona teletrabajadora: análisis que se realiza a las funciones que desarrolla la persona trabajadora para desempeñar sus laborales de manera remota.
+h) Persona teletrabajadora: persona servidora de la institución que desempeña su labor de acuerdo con la modalidad de teletrabajo.
+i) Puesto teletrabajable: puesto de trabajo susceptible a desempeñarse en la modalidad de teletrabajo y que pueda desempeñar sus tareas fuera de la oficina sin afectar el normal desempeño de otros puestos y el servicio de las personas usuarias.
+j) Teletrabajo: es la prestación de servicios de carácter no presencial fuera de las instalaciones del patrono, en virtud de la cual una persona trabajadora desarrolle su jornada laboral desde su propio domicilio o lugar que se destine para tal fin, estipulado debidamente en el contrato.

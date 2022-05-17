@@ -1,0 +1,1 @@
+Artículo 10. Vigencia del contrato de teletrabajo: el contrato de teletrabajo tiene una vigencia de dos años y puede ser prorrogable por períodos iguales, en ambos casos, aplica de esa manera siempre que se mantengan las condiciones y requisitos establecidos y se realicen las gestiones correspondientes para la solicitud de prórroga.
