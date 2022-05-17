@@ -1,1 +1,0 @@
-Artículo 10.—Las ayudas que concederá la Municipalidad de Talamanca podrán ser en dinero, en artículos de primera necesidad, y aquellas que de acuerdo a éste reglamento vayan a satisfacer bienes sociales, según la recomendación que, de acuerdo con lo establecido en el Artículo 4 anterior, realizará la Comisión de Asuntos Sociales.

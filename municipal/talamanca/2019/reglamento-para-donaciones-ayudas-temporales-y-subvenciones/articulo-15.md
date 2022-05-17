@@ -1,1 +1,0 @@
-Artículo 15.—El Concejo Municipal conocerá de la solicitud en la sesión inmediata posterior a la fecha de su presentación y la trasladará a la Comisión de Asuntos Sociales, quienes serán los encargados de determinar en forma fehaciente el objeto y fin que conlleva la subvención solicitada.

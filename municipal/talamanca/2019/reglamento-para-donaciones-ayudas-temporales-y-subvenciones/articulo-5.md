@@ -1,1 +1,0 @@
-Artículo 5º—Las ayudas que brinde la Municipalidad serán destinadas, única y exclusivamente, a solventar las necesidades socioeconómicas, alimentarias, de vivienda, salud, vestido, instrumental o cualquier otra calamidad que afronten los vecinos del cantón, según la situación de desgracia o infortunio a que se refiere el Artículo 3 anterior.
