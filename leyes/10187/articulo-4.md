@@ -1,0 +1,1 @@
+ARTÍCULO 4- Los centros educativos públicos y privados promoverán la enseñanza del ajedrez y adoptarán las medidas pertinentes para su inclusión gradual en los planes de estudio, conforme a los lineamientos que dictarán el Consejo Superior de Educación y el Ministerio de Educación Pública (MEP), según lo dispuesto en el artículo anterior, para cada nivel y ciclo educativo.

@@ -1,0 +1,1 @@
+ARTÍCULO 5- Se autoriza al Ministerio de Educación Pública (MEP) para que suscriba convenios de cooperación con la Federación Central de Ajedrez de Costa Rica y otras organizaciones e instituciones afines para el cumplimiento de los fines de la presente ley.
