@@ -1,0 +1,1 @@
+ARTICULO 20- Asesoramiento jurídico y apoyo emocional. En los procedimientos que contempla esta ley, las partes podrán hacerse representar por una persona profesional en derecho de su elección. También, podrán hacerse acompañar del apoyo emocional o psicológico de su confianza en las diversas fases del procedimiento.

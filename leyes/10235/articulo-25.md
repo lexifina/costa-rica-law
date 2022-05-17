@@ -1,0 +1,1 @@
+ARTICULO 25- Confidencialidad. Las instancias partidarias encargadas de tramitar y resolver este tipo de denuncias están obligadas a observar el principio de confidencialidad en las actuaciones, en los términos establecidos por el artículo 15 de la presente ley.

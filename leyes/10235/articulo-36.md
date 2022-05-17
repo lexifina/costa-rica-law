@@ -1,0 +1,8 @@
+ARTICULO 36- Reformas de la Ley Orgánica del Sistema Nacional de Radio y Televisión Cultural. Se adiciona un inciso p) al artículo 4 y se reforma el inciso c) del artículo 19 de la Ley 8346, Ley Orgánica del Sistema Nacional de Radio y Televisión Cultural (Sinart), de 12 de febrero de 2003. Los textos son los siguientes:
+Artículo 4 °- Principios. La actividad del Sinart, S. A., como sistema de comunicación, se inspirará en los siguientes principios:
+( ... )
+p) principio de protección, promoción y divulgación de los derechos humanos de las mujeres y las niñas a una vida libre de violencia y discriminación en los ámbitos públicos y privados.
+Artículo 19· Financiamiento. El Sinart, S.A. se financiará de la siguiente manera:
+( ... )
+c) La Asamblea Legislativa, la Defensoría de los Habitantes de la República, la Contraloría General de la República, las instituciones autónomas y semiautónomas, las empresas públicas y demás entes menores, así como todas las instituciones y dependencias del Poder Ejecutivo, pautarán en el Sinart S.A. mediante la agencia de publicidad del Sinart S.A., creada en esta ley, por lo menos el diez por ciento (10%) de los dineros que destinen a publicidad e información en radio, televisión u otros medios de comunicación, y de los cuales deberá destinar al menos un tres por ciento (3%) a la difusión de materiales y contenidos escritos, audiovisuales y digitales que contribuyan al cumplimiento de los fines y las obligaciones establecidos a las instituciones públicas en la Ley para Prevenir, Atender, Sancionar y Erradicar la Violencia contra las Mujeres en la Política.
+( . . . )

@@ -1,0 +1,1 @@
+ARTÍCULO 32- Plazo para interponer la denuncia y prescripción. El plazo para interponer la denuncia, de acuerdo con esta ley, se considerará de un año y se computará a partir del último hecho de violencia o a partir de que cesó la causa justificada que le impidió denunciar.

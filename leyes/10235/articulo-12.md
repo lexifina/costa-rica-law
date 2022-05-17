@@ -1,0 +1,7 @@
+ARTICULO 12- Campañas y acciones de divulgación de las instituciones públicas para la prevención. Todas las instituciones públicas deben elaborar directrices y lineamientos para difundir campanas y programas educativos y formativos que incluyan materiales escritos, audiovisuales y contenidos digitales que contribuyan a:
+a) Erradicar la violencia contra las mujeres en la política.
+b) Evitar toda expresión que discrimine a las mujeres con base a estereotipos de género.
+c) Asegurar el respeto de los derechos políticos y a la reputación de las mujeres que participen en la política.
+d) Promover el debate democrático en el marco del ejercicio del derecho a la de la libertad de expresión, el derecho al acceso a la información y el ejercicio de la libertad de prensa, incluyendo el derecho de las mujeres a una vida libre de violencia y las responsabilidades derivadas de estas libertades.
+El Instituto Nacional de las Mujeres promoverá y coordinará con los medíos de comunicaciones públicas y privadas la ejecución de estas acciones dirigidas a la implementación de esta ley.
+El Sistema Nacional de Radio y Televisión Cultural deberá difundir materiales audiovisuales y contenidos digitales que promuevan tos derechos de las mujeres y las niñas a una vida libre de violencia en los ámbitos públicos y privados, que incluya la prevención de la violencia en la política y la erradicación de los papeles estereotipados de género.
