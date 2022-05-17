@@ -1,0 +1,1 @@
+Artículo 9º-Sesiones de la Comisión. La Comisión sesionará, presencial o virtualmente, de manera ordinaria, una vez cada mes y de forma extraordinaria cuando sea solicitado formalmente por alguna de las instituciones integrantes, ante la Coordinación de la Comisión y bajo razones fundadas. El quórum válido para sesionar será de la mayoría absoluta de sus integrantes.

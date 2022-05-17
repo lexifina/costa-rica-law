@@ -1,0 +1,1 @@
+Artículo 3º-Creación. Créase la Comisión interinstitucional para el acceso, uso y administración de la tierra para las mujeres rurales, a fin de impulsar su autonomía económica y un rol más protagónico de las mujeres en la construcción del desarrollo rural territorial.

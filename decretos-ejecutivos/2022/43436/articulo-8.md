@@ -1,0 +1,1 @@
+Artículo 8º-Roles institucionales. Para su funcionamiento, la Comisión deberá fijar, a lo interno de su conformación, los roles institucionales que tendrá cada instancia integrante, según la naturaleza de sus competencias y con apego a las funciones y objetivos de este Decreto Ejecutivo.
