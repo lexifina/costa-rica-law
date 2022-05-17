@@ -1,0 +1,1 @@
+ARTÍCULO 3- Queda facultada la Notaría del Estado para que otorgue la escritura de donación correspondiente, así como cualquier acto notarial que sea necesario para la debida inscripción del documento en el Registro Nacional.
