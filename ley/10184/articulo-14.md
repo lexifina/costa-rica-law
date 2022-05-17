@@ -1,0 +1,1 @@
+ARTICULO 14.-Órganos. El Colegio ejercerá sus funciones por medio de sus órganos respectivos, a saber: la Asamblea General, la Junta Directiva, la Fiscalía, el Tribunal de Honor, el Tribunal Electoral, los cuales gozarán de autonomía en su desempeño.

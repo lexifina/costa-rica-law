@@ -1,0 +1,6 @@
+ARTICULO 8- Incorporación. Para obtener la incorporación al Colegio, deberán demostrarse ante la Fiscalía del Colegio los siguientes requisitos:
+1) Poseer título universitario de grado de bachiller o superior en Ciencias del Movimiento Humano. Los titulas expedidos en otro país deberán estar equiparados y homologados por las instancias pertinentes acorde a la legislación nacional.
+2) Cumplir las obligaciones económicas que señale la Junta Directiva.
+3) Presentar una certificación del Registro Judicial de Delincuentes en la que se declare que el solicitante no ha sido inscrito en dicho Registro con prohibición para ejercer profesiones liberales. Los extranjeros deberán presentar una certificación equivalente extendida por la autoridad competente del país o los países donde hayan residido en los últimos cinco años.
+4) Los extranjeros con un estatus migratorio en regla deberán presentar su cédula de residencia permanente libre de condición. Los refugiados políticos deberán comprobar con su carné, emitido por el Ministerio de Relaciones Exteriores y Culto, su condición de tal.
+5) Aprobar el curso de ética profesional, de acuerdo con el reglamento respectivo. La Junta Directiva establecerá la fecha en que se iniciará la aplicación de este inciso.

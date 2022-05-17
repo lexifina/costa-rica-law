@@ -1,0 +1,1 @@
+ARTICULO 3- Funcionamiento. Para el cumplimiento de sus fines, el Colegio tiene plena capacidad para realizar cualquier tipo de acto, contrato o convenio, adquirir, enajenar, gravar y administrar toda clase de bienes muebles e inmuebles. Podrá formar, asimismo, parte de personas jurídicas públicas o privadas, nacionales o internacionales.

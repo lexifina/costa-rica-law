@@ -1,0 +1,3 @@
+ARTICULO 23- Sesiones
+La Junta Directiva se reunirá ordinariamente dos veces al mes y, extraordinariamente, las veces que sea necesario, siendo sujeto de pago de dieta, además de las sesiones ordinarias, únicamente una sesión extraordinaria por mes. Para que haya cuórum en las sesiones de Ia Junta Directiva se requiere la presencia de cuatro de sus miembros. Los acuerdos y las resoluciones se tomarán por mayoría absoluta de los votos presentes. En caso de empate se hará la votación nuevamente y, si este se repite, la decisión será tomada por el doble voto de quien preside la sesión.
+Los acuerdos firmes requieren mayoría calificada.
