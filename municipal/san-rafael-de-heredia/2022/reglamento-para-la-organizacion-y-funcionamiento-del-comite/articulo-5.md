@@ -1,0 +1,6 @@
+Artículo 5º-Para ser miembro del Comité Cantonal de Deportes y Recreación se requiere:
+a) Ser mayor de edad (salvo en el supuesto de las personas representantes de la juventud, de conformidad con el inciso d) del artículo 4).
+b) Ser ciudadano costarricense o extranjero con cédula de residencia. Se deberá aportar copia del documento de identificación vigente.
+c) Demostrar que es residente del Cantón, lo anterior se acreditará con algún recibo de servicio de servicio público emitido en el último mes; en caso, de que la persona modifique su domicilio deberá informarle por escrito a la Administración de CCDR en el plazo máximo de un mes.
+d) No estar inhabilitado por sentencia judicial en firme que le impida ejercer cargos públicos, con respecto a lo anterior, se deberá presentar la hoja de delincuencia expedida en los tres meses anteriores a la postulación.
+Sin perjuicio de los requisitos previamente establecidos, el Concejo Municipal valorará otros aspectos deseables en la selección de los miembros al Comité, tales como su experiencia o conocimiento en materia deportiva y recreativa, de organización comunal, recursos humanos, contratación administrativa, contabilidad, administración, y otras áreas afines.

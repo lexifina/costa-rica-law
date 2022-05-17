@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Recursos de revisión, sanciones y sustituciones
+Artículo 20.-Los miembros de la Junta Directiva del Comité podrán presentar recursos de revisión de acuerdos, antes de la aprobación del acta. Los acuerdos aprobados por mayoría simple, para ser sometidos al procedimiento de revisión, deberán ser admitidos para dicho efecto por acuerdo votado por mayoría simple, y de igual forma, los acuerdos votados por mayoría calificada, requerirán de una votación calificada, para ser sometidos a la revisión solicitada.
+Una vez admitido el recurso de revisión, la Junta Directiva tendrá un mes para pronunciarse sobre la aceptación o rechazo de la revisión solicitada. En caso, de que el Comité no se pronunciará en dicho plazo, se considerará como silencio negativo, teniendo el recurso por rechazado. No será válida la revisión de acuerdos que hayan sido aprobados en firme.

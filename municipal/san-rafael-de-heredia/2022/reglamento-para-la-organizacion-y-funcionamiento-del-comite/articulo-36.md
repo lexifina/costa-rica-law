@@ -1,0 +1,1 @@
+Artículo 36.-No podrán utilizarse instalaciones deportivas para la realización de cualquier tipo de festejos, sin permiso previo del Comité Cantonal, quien podrá además solicitar el depósito previo de una garantía de uso, para asegurar que las instalaciones sean devueltas en perfectas condiciones después del evento.

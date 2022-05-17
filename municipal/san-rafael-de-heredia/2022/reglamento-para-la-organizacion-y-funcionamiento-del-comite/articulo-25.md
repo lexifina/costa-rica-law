@@ -1,0 +1,3 @@
+CAPÍTULO VII
+El presupuesto y plan de trabajo
+Artículo 25.-La Junta Directiva del Comité Cantonal deberá someter sus programas anuales de actividades, obras e inversión, al conocimiento del Concejo municipal, en la primera semana del mes de julio de cada año, de conformidad con lo dispuesto en el artículo 181 del Código Municipal. El incumplimiento de esta obligación se tomará como falta grave por parte de la Junta Directiva, y de conformidad con lo anterior, el Concejo Municipal, podrá separar de sus cargos al presidente y al tesorero del Comité Cantonal, respetando en todo momento el ejercicio previo del derecho de defensa por parte de los directivos, así como los demás principios aplicables del debido proceso, en materia administrativa.

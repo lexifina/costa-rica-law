@@ -1,0 +1,1 @@
+Artículo 33.-Los equipos, grupos y demás entes deportivos y recreativos organizados en el cantón deben estar registrados e inscritos ante el Comité Cantonal de Deportes y Recreación, para poder hacer uso de las instalaciones deportivas bajo administración del Comité.

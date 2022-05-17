@@ -1,0 +1,2 @@
+Artículo 23.-Cuando el Concejo Municipal mediante acuerdo debidamente motivado, determine la perdida de credenciales de alguno de los miembros de la Junta Directiva del Comité, a partir causas indicadas en el artículo anterior.
+Dicho órgano deberá solicitar a las entidades representadas por el funcionario que ha perdido sus credenciales, el envío de una nueva terna, para realizar la sustitución correspondiente, en un plazo máximo de quince días hábiles, a partir del recibo de la comunicación de las ternas solicitadas.

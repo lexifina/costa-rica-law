@@ -1,0 +1,2 @@
+Artículo 40.-El período de labores de estos comités, una vez que sean nombrados por el Comité, es de dos años, a partir de la firmeza del acuerdo. Sus miembros podrán ser reelectos por un único período, por parte del Comité Cantonal.
+No recibirán dietas ni remuneraciones algunas por desempeño de sus funciones. En concordancia con el artículo 176 del Código Municipal, los concejales, el alcalde, los alcaldes suplentes, el tesorero, el auditor, son cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive, están inhibidos para integrar estos comités.

@@ -1,0 +1,1 @@
+Artículo 39.-Los Comités Comunales trabajarán con el propósito de alcanzar en su localidad los fines descritos en el artículo 8 de este reglamento, en el distrito o en la comunidad en que sean establecidos.

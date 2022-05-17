@@ -1,0 +1,4 @@
+Artículo 18.-El libro de actas deberá especificar el tipo de acuerdo que se tomó en cada tema tratado. Los tipos son:
+a) Acuerdo por la mayoría calificada: Cuando al menos cinco de los siete directivos votaron de igual manera. Dichos acuerdos, podrán ser declarados en firme, cuando alguna gestión sea de carácter urgente y no puede esperar la aprobación del acta Los acuerdos unánimes son considerados como acuerdos aprobados por mayoría calificada.
+b) Acuerdo por mayoría simple. Cuando cuatro de los directivos presentes en la sesión votaron de igual forma. Dichos acuerdos adquirirán firmeza con la aprobación del acta respectiva, sin perjuicio de las disposiciones sobre el régimen recursivo indicadas en el capítulo siguiente.
+Queda a criterio de algún (os) miembros (S), el justificar en actas que su voto fue negativo.

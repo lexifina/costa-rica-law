@@ -1,0 +1,1 @@
+Artículo 47.-Las juntas directivas de los Comités Comunales deberán mantener actualizados sus libros de actas y tesorería, los cuales serán facilitados por la Junta Directiva del Comité Cantonal. Los miembros del Comité Cantonal podrán solicitar los libros para su revisión.

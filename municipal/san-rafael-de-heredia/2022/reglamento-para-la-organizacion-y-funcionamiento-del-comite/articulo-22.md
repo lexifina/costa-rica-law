@@ -1,0 +1,7 @@
+Artículo 22.-Las credenciales de los miembros del Comité Cantonal de Deportes y Recreación podrán ser canceladas de forma definitiva por parte del Concejo Municipal, en caso de que dichos miembros incurran en las siguientes actuaciones o situaciones:
+a) Ausencia injustificada y continua a tres sesiones de la junta directiva.
+b) Ausencia injustificada y alterna (no continua) a cuatro sesiones de la junta directiva en un periodo de dos meses.
+c) Violación evidente de las leyes, los decretos ejecutivos, acuerdos del consejo municipal y los reglamentos que rigen al Comité Cantonal, en sus funciones y atribuciones.
+d) Inhabilitación judicial, decretada por un juez, para desempeñar cargos públicos.
+e) Pérdida de confianza ante la propia Junta Directiva, la cual deberá ser acordada por votación calificada y por medio de un acuerdo razonado, en el cual se detallen los motivos que han ocasionado dicha condición. El acuerdo en el cual se determine la pérdida de confianza deberá ser elevado al Concejo Municipal para su ratificación o rechazo.
+De previo, a remitir cualquier acuerdo solicitando la declaratoria de perdida de credenciales por parte del Concejo Municipal, se deberá dar audiencia al miembro sujeto a la cancelación de sus credenciales, para que pueda ejercer su derecho de defensa y descargo, de conformidad con los principios del debido proceso, aplicables en sede administrativa.

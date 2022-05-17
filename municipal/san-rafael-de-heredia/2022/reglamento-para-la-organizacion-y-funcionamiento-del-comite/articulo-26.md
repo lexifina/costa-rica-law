@@ -1,0 +1,1 @@
+Artículo 26.-La Junta Directiva podrá incluir en el presupuesto anual que deberá ser aprobado por parte de la Municipalidad, un determinado monto a ser invertido por el Comité, para la compra de terrenos aptos para el deporte y la recreación, así como para la construcción, remodelación y mejoras de las instalaciones deportivas o recreativas.

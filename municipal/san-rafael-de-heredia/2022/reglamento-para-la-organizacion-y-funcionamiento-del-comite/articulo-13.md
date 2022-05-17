@@ -1,0 +1,3 @@
+CAPÍTULO V
+Sede, sesiones, votaciones y quorum
+Artículo 13.-La Junta Directiva del Comité Cantonal de Deportes y Recreación sesionará una vez por semana, en el local ubicado en el edificio adjunto a los camerinos del estadio de san Rafael de Heredia. De igual forma, la Junta Directiva podrá acordar sesionar de forma virtual una vez por semana, de conformidad con los principios y disposiciones contemplados en el artículo 37 bis del Código Municipal, en lo que sea aplicable al Comité, así como la normativa local que eventualmente se apruebe para la celebración y realización sesiones virtuales, por parte del Concejo Municipal.

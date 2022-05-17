@@ -1,0 +1,2 @@
+Artículo 43.-De previo, a su instalación e inicio de labores, el comité comunal, en forma análoga a lo realizado por el Comité Cantonal, nombrará en su primera sesión y por votación de mayoría simple realizada entre sus miembros, a las personas que desempeñarán las labores de presidente, vicepresidente, secretario, tesorero y vocales.
+Dichos miembros deberán ser juramentados por la Junta Directiva del Comité Cantonal, en un plazo de 10 días hábiles, posterior a la comunicación realizada a dichos efectos por el Comité Comunal.

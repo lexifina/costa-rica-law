@@ -1,0 +1,1 @@
+Artículo 29.-Los miembros de las comisiones de apoyo del Comité Cantonal servirán en sus cargos sin recibir dietas ni remuneración alguna, pudiendo ser reelegidos en sus puestos para un nuevo período consecutivo.-

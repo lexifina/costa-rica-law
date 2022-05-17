@@ -1,0 +1,1 @@
+Artículo 34.-El Comité Cantonal de Deportes y Recreación no podrá hacer inversiones en instalaciones deportivas que sean propiedad de asociaciones de desarrollo comunal o de otras entidades públicas, sin que medie un contrato mediante el cual la instalación sea administrativa por un comité distrital o por el mismo comité cantonal.

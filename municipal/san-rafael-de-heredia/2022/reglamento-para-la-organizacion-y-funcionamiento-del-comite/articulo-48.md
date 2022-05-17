@@ -1,0 +1,1 @@
+Artículo 48.-Para el cumplimiento de sus funciones, el Comité Comunal podrá solicitar el apoyo en especie correspondiente al Comité Cantonal, el cual tramitará, previa justificación del Comité Comunal, los aportes y contribuciones que se requieran a tales efectos.
