@@ -1,0 +1,3 @@
+ARTÍCULO 3- En caso de no respetarse el destino establecido en esta ley al bien indicado o, en caso de disolución de la Asociación de Desarrollo Integral de Barrio El Carmen Cartago, cédula de persona jurídica número tres-cero cero dos-dos nueve cinco ocho tres seis (N.° 3-002- 295836), el inmueble pasará nuevamente a ser parte de los bienes de la Junta Administrativa del Servicio Eléctrico Municipal de Cartago (Jasec), cédula de persona jurídica número tres- cero cero siete- cero cuatro cinco cero ocho siete (N.° 3-007-045087).
+Rige a partir de su publicación,
+Dado en la Presidencia de la República, San José, a los veinticinco días del mes de abril del año dos mil veintidós.
