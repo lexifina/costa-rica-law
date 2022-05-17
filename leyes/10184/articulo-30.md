@@ -1,0 +1,2 @@
+ARTICULO 30- Funciones del Tribunal de Honor
+El Tribunal de Honor deberá corregir disciplinariamente a cualquier colegiado por infracción a la presente ley, al Código de Ética o a los reglamentos vigentes, por faltas o abusos que cometan en el ejercicio de la profesión, por irregularidad en su conducta moral o por vicios que les hagan desmerecer en el ámbito público y privado o comprometan el decoro de la procesión.

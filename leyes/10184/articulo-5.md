@@ -1,0 +1,1 @@
+ARTICULO 5-Miembros. Son miembros del Colegio todos los profesionales en ciencias del movimiento humano debidamente incorporados a este, con arreglo a las disposiciones de la presente ley y particularmente lo indicado en el artículo 1.

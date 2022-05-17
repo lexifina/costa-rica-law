@@ -1,0 +1,1 @@
+ARTICULO 6- Titulación aprobado en el extranjero. Los profesionales en ciencias del movimiento humano y técnicos afines cuya titulación haya sido obtenida fuera de Costa Rica, que quieran ejercer la profesión deberán contar con la aprobación de la Junta Directiva del Colegio, de conformidad con lo que disponga el reglamento respectivo promulgado por la Junta Directiva.

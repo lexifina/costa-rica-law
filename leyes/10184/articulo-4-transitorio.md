@@ -1,0 +1,1 @@
+TRANSITORIO IV- Las personas profesionales en ciencias del movimiento humano, que al momento de la entrada en vigencia de la presente ley se encuentren incorporadas al Colegio de Licenciados y Profesores en Letras, Filosoffa, Ciencias y Artes podrán estar agremiadas en ambos colegios, o en el de su elección, sin perjuicio de lo establecido en esta ley.
