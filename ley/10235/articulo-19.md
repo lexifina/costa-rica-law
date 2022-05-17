@@ -1,0 +1,1 @@
+ARTÍCULO 19- El plazo de la investigación. El procedimiento de investigación por denuncias de violencia contra las mujeres en la política tendrá un trámite prioritario y expedito según lo dispuesto en esta ley, y deberá resolverse en un plazo ordena torio de tres meses, incluyendo la resolución final.

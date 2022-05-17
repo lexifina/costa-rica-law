@@ -1,0 +1,6 @@
+ARTICULO 8- Acciones preventivas en el nivel municipal. El concejo municipal y las alcaldías de cada municipalidad e intendencias tomarán las acciones para prevenir la violencia contra las mujeres en la política según lo establecido en la presente ley, en el marco de su autonomía y competencias legales, considerando las siguientes:
+a) Dictar políticas de prevención, emitir reglamentos y adoptar protocolos para incorporar en los procedimientos disciplinarios, los principios y las normas contenidos en esta ley para su efectivo cumplimiento, así como difundir los alcances de la presente ley.
+b) Adoptar acciones afirmativas para garantizar la efectiva igualdad entre mujeres y hombres que prevenga toda forma de violencia y discriminación basada en la condición del género.
+c) Diseñar y ejecutar capacitaciones y formación en igualdad de género y prevención de la violencia hacía fas mujeres en la política a todo el funcionariado municipal, así como a las estructuras de decisión municipal
+d) Otras acciones idóneas, pertinentes y efectivas para el cumplimiento de los objetivos de la presente ley.
+Las acciones establecidas en este artículo contarán con el criterio técnico y recomendaciones del órgano Institucional municipal especializado en la defensa de los derechos de las mujeres y la igualdad de género.

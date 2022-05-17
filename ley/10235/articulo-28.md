@@ -1,0 +1,1 @@
+ARTICULO 28- Jurisdicción para impugnación de la sanción de pérdida de credenciales. La resolución del Tribunal Supremo de Elecciones que ordene la pérdida de credencial con base en esta :ley solo podrá ser impugnada de acuerdo con las reglas de la propia jurisdicción electoral.
