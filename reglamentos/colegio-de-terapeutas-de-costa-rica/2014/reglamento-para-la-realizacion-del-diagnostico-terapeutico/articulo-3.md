@@ -1,1 +1,0 @@
-Artículo 3º—El terapeuta Licenciado o Licenciada en Terapia Física, Terapia Ocupacional, Terapia Respiratoria, Terapia del Lenguaje, Imagenología diagnóstica y Terapéutica, y el Master en Audiología podrá realizar su diagnóstico terapéutico como profesional autónomo. Este diagnóstico No puede ser alterado por ningún tercero.

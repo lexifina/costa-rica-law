@@ -1,1 +1,0 @@
-Artículo 5º—El diagnostico terapéutico deberá realizarse en los formularios autorizados por el Colegio de Terapeutas de Costa Rica para tal efecto. El cual el terapeuta podrá adquirirlo en las oficinas del Colegio.
