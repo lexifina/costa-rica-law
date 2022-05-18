@@ -1,1 +1,0 @@
-Artículo 10.—Conformación de Expediente. El Despacho Tramitador competente para el trámite de la denuncia, deberá conformar un expediente en el que se incorpore toda la información, documentación y otras evidencias relacionadas con la denuncia recibida el cual deberá estar debidamente foliado en orden estrictamente cronológico.

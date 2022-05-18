@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de Competencia. El Instituto Nacional de Seguros dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales que tengan relación con contratos de seguros sobre riesgos de cualquier género, y cualquier otra actividad relacionada, que esté bajo su administración.
