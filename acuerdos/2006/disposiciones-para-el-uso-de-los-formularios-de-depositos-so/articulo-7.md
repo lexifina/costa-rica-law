@@ -1,1 +1,0 @@
-Artículo 7º—Distribución de las copias de los formularios. Una vez utilizado el formulario de Depósito sobre Primas, Depósito sobre Casos No Asegurados y el de Seguros Autoexpedibles, el intermediario, Gestor de Cobro, Municipalidad o Colegio Profesional, entregará las copias a su debido destinatario, conforme lo indica el mismo formulario.
