@@ -1,1 +1,0 @@
-Artículo 12.—Responsabilidad por omisión, negligencia u otras faltas. El abogado será responsable ante el INS de cualquier daño o perjuicio que le ocasione con motivo de la atención de los juicios a su cargo, derivados de las declaratorias de deserción, prescripción, inadmisibilidad, omisión o cualquier causa que le resulte imputable que impida la prosecución del proceso.

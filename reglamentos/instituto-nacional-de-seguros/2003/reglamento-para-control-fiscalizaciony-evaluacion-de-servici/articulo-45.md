@@ -1,1 +1,0 @@
-Artículo 45.—Cálculo de honorarios en contratos de cuota litis. Los contratos de cuota litis únicamente surtirán efecto, sobre las sumas efectivamente recuperadas y contabilizadas por parte del INS. El porcentaje pactado incluye todos los gastos necesarios en que debe incurrir el abogado director para realizar su gestión.
