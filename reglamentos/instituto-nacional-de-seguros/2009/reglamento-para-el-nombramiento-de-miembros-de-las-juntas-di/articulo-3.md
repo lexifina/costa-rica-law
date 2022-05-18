@@ -1,1 +1,0 @@
-Artículo 3º—Los miembros de la Junta Directiva de cada una de las sociedades estarán afectos al régimen de prohibiciones y responsabilidades establecidas para los participantes en el mercado bursátil y de pensiones, de acuerdo con la Ley Reguladora del Mercado de Valores (Ley N° 7732 del 27 de enero de 1998).

@@ -1,1 +1,0 @@
-Artículo 2º—La Junta Directiva de cada una de las sociedades anónimas estará integrada por cinco miembros, quienes fungirán en los cargos de Presidente, Vicepresidente, Secretario, Tesorero y Vocal, por un plazo de dos años, pudiendo ser reelectos. (En cumplimiento del DE 27840-H del 16 de abril de 1999).
