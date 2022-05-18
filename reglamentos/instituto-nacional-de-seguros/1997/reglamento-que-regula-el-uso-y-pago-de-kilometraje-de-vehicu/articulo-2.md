@@ -1,1 +1,0 @@
-Artículo 2°—La posibilidad de arrendar su vehículo y percibir remuneración por pago de kilometraje, está vedado a miembros de Junta Directiva, Gerente y Subgerente, Auditor y Subauditor, Jefes de División y Jefes de Dirección, quienes por su condición, y para estos efectos, están excluidos de la aplicación de este Reglamento.

@@ -1,2 +1,0 @@
-Artículo 10.—Es requisito obligatorio para quienes sean admitidos en este sistema, mantener su vehículo cubierto por una póliza voluntaria de seguro de automóviles por las coberturas y los montos indicados en las disposiciones complementarias a este reglamento.
-El funcionario deberá presentar a solicitud del I.N.S., el comprobante de la renovación de la póliza, la tarjeta de circulación al día y cualquier otro documento que se requiera.

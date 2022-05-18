@@ -1,1 +1,0 @@
-Artículo 5°—Toda solicitud de ingreso se hará en el formulario “Solicitud de ingreso al sistema de pago de kilometraje” en poder de la Sección de Transportes, el mismo debe contener toda la información en forma clara y con las debidas justificaciones.

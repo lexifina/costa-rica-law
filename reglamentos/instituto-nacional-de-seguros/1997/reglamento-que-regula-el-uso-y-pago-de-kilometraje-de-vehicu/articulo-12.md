@@ -1,1 +1,0 @@
-Artículo 12.—El kilometraje asignado a cada funcionario admitido bajo este sistema, será distribuido proporcionalmente al número de empleados autorizados y la cantidad de kilómetros a recorrer por Dependencia. Dicha distribución será realizada por la Sección de Transportes.

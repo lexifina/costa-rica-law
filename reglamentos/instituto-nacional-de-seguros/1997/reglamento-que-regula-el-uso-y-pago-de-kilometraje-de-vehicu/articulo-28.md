@@ -1,2 +1,0 @@
-Artículo 28.—La Sección de Transportes llevará un registro ordenado y actualizado de los funcionarios que se incluyan y excluyan del sistema, para eventuales revisiones de las dependencias interesadas y de la Auditoría.
-El funcionario que resuelva por si mismo retirarse del sistema, deberá comunicarlo por escrito a la Sección de Transportes por lo menos con tres meses de anticipación a la fecha en que desea ser excluido, para que se tomen las previsiones necesarias.

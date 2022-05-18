@@ -1,2 +1,0 @@
-Artículo 22.—El presupuesto anual, para cubrir las erogaciones por concepto de kilometraje por servicios de transporte, será solicitado a Presupuesto por cada dependencia, cuyos funcionarios utilizan este sistema.
-Corresponderá a las Dependencias usuarias del sistema, ejercer la respectiva previsión y control de los aspectos presupuestarios y realizar las conciliaciones de las cuentas respectivas, en los plazos y condiciones que se indican en los reglamentos vigentes.

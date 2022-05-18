@@ -1,1 +1,0 @@
-Artículo 16.—Todos los gastos que ocasione la operación del automotor tales como: combustible, lubricantes, reparación, mantenimiento, seguros, entre otros, correrán por cuenta exclusiva del propietario.

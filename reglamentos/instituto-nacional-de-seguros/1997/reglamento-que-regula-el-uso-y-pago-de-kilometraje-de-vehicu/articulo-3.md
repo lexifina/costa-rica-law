@@ -1,1 +1,0 @@
-Artículo 3°—En ningún caso la remuneración o ventajas que pueda representar este sistema para los funcionarios, se considerará como salario, ni obligarán al Instituto a otorgar espacios de parqueo en las zonas de estacionamiento de su propiedad, ni concederá ningún beneficio laboral a los mismos.

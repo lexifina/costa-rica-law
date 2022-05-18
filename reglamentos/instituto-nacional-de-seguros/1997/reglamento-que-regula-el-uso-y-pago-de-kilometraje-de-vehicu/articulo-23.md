@@ -1,1 +1,0 @@
-Artículo 23.—Cuando se trate de distancias no contempladas en las tablas del MOPT, la Sección de Transportes del Instituto, podrá determinarlas y servirán como base para cancelar la suma correspondiente.

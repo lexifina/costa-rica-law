@@ -1,1 +1,0 @@
-Artículo 7°—El estudio se realizará con base en la experiencia del funcionario en el uso de vehículos oficiales, años de poseer licencia, siniestralidad, características del vehículo, promedio de kilómetros y unidades utilizadas por la Dependencia interesada, entre otros.

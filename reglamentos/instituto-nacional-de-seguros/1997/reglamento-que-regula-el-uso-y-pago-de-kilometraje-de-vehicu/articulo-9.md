@@ -1,1 +1,0 @@
-Artículo 9°—Los funcionarios autorizados deberán demostrar que el vehículo se encuentra debidamente inscrito a su nombre en el Registro Público de Vehículos Automotores y que reúne las condiciones necesarias para la clase de trabajo a que se destine.

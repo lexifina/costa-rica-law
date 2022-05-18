@@ -1,1 +1,0 @@
-Artículo 18.—El uso del sistema de pago de kilometraje será autorizado en cada oportunidad en el formulario “Reporte de recorrido de vehículos del sistema pago de kilometraje”, en el cual se indicarán, entre otros, los detalles del viaje realizado, la lectura del velocímetro a la salida y regreso de la misión y el kilometraje reconocido por el I.N.S, para fines de pago.
