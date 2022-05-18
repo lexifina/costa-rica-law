@@ -17,3 +17,4 @@ Normativa de Tecnólogos en Ciencias Médicas del Colegio de Médicos y Cirujano
 | 2 | 2021-05-28 | Reglamento 0 (2021-05-05) |
 | 3 | 2021-07-14 | Reglamento 0 (2021-07-14) |
 | 4 | 2022-01-19 | Reglamento 0 (2022-01-19) |
+| 5 | 2022-05-18 | Reglamento 0 (2022-05-18) |

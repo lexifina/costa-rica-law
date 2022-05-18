@@ -5,8 +5,8 @@ Artículo 3°-De las tecnologías autorizadas. El Colegio de Médicos y Cirujano
 3.2. Disección. Se reconoce como sinónimo, los siguientes términos: disección de autopsias; Disección y tanatopraxia.
 3.3. Electrocardiografía.
 3.4. Encefalografía.
-3.5. Emergencias médicas. Se reconocen como sinónimos los siguientes términos: Emergencias y Rescate; Urgencias Médicas; atención pre hospitalaria y Atención pre hospitalaria y en emergencias; emergencias médicas prehospitalarias.
-(Corregido el inciso anterior mediante Fe de erratas y publicada en La Gaceta N° 99 del 30 de mayo de 2022, página N° 2, que incluyó como sinónimo de la tecnología en emergencias médicas la emergencia médica prehospitalarias)
+3.5. Se reconocen como sinónimos, los siguientes términos: Emergencias y Rescate; Emergencias Médicas y Rescate; Emergencias Médicas Prehospitalarias y Rescate; Urgencias Médicas; Atención pre Hospitalaria y Atención Prehospitalaria y en Emergencias; Emergencias Médicas Prehospitalarias.
+(Así reformado el inciso anterior en sesión ordinaria 2022-05-18 del 18 de mayo de 2022)
 3.6. Gastroenterología
 3.7. Hemodinamia.
 3.8. Histología. Se reconoce sinónimo los siguientes términos: Histotecnología.
