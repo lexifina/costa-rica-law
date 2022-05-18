@@ -1,2 +1,0 @@
-Artículo 3°-Empresas de Valoración y Reparación (Talleres)
-Solamente las personas físicas y jurídicas que cumplan los requisitos que adelante se regulan, podrán ser consideradas por el Instituto como empresas o talleres aptos para brindar adecuadamente los servicios de valoración de daños, revisión y reparación de vehículos automotores, amparados por el contrato del seguro voluntario de automóviles.

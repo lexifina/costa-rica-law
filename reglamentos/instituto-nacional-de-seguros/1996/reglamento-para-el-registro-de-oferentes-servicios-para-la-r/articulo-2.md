@@ -1,4 +1,0 @@
-Artículo 2°-Disposiciones complementarias
-El presente Reglamento se aprueba en cumplimiento de lo establecido en el numeral 108 de la Ley de Contratación Administrativa y del artículo 59 y siguientes del Reglamento a dicha ley, normas que constituyen el marco general para todo registro de proveedores de la administración pública.
-Para la correcta y eficiente operación del sistema de valoración de daños, reparación y revisión de los vehículos a que se refiere el presente reglamento, la Gerencia podrá mediante la promulgación de las Disposiciones Complementarias pertinentes- especificar las regulaciones aquí dispuestas.
-Es también complementario al presente cuerpo normativo, el "Reglamento de Registro de Proveedores" del Instituto, aprobado por la Junta Directiva el día 6 de mayo de 1996, mediante acuerdo X, sesión 8055.

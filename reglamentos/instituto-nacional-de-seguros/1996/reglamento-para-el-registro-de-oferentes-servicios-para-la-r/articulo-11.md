@@ -1,3 +1,0 @@
-Artículo 11-Mejoramiento del Sistema
-La División de Automóviles procurará un continuo mejoramiento del sistema de valoración, reparación y revisión de vehículos, con el objeto de valoración, reparación y revisión de vehículos, con el objeto de satisfacer los requerimientos del asegurado o del damnificado, dentro de las obligaciones contempladas en el contrato de seguros.
-La División mencionada verificará la calidad del servicio brindado por las empresas registradas de acuerdo con los parámetros técnicos fijados. buscará incrementar la eficiencia del sistema mejorando los recursos tecnológicos, así como la reducción del impacto económico de la siniestralidad del seguro. .

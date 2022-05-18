@@ -1,4 +1,0 @@
-Artículo 12.-Costos de los Servicios
-De acuerdo con las condiciones estipuladas en el contrato del seguro voluntario de automóviles, el Instituto fijará en última instancia los montos indemnizatorios a reconocer para la reparación de los daños ocasionados al vehículo, siguiendo para ello parámetros técnicos preestablecidos.
-Asimismo el Instituto establecerá el monto económico a reconocer, por la prestación de servicios en el caso de la revisión para efectos del aseguramiento de vehículos automotores.
-Cuando una empresa sea autorizada por el Instituto para realizar una reparación, queda obligada a procurar precios adecuados para las piezas de recambio del vehículo. No obstante lo anterior, el Instituto se reserva la facultad de suministrar en forma directa las refacciones o partes, nuevas o usadas, necesarias para la reparación.

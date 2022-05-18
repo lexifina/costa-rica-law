@@ -1,2 +1,0 @@
-Artículo 10.-Fiscalización
-Las Divisiones de Automóviles, de Operaciones y la Auditoría del Instituto -en lo de su competencia-, deberán ejercer una estricta vigilancia del cumplimiento del presente Reglamento y de las disposiciones complementarias; así como verificar permanentemente que la actividad de las empresas registradas se ejerza de acuerdo con los requisitos, las condiciones y las normas técnicas estipuladas.
