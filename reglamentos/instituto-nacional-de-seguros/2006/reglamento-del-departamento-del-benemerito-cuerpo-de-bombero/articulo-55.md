@@ -1,2 +1,0 @@
-Artículo 55.—En lo referente al acoso y hostigamiento sexual se aplicará lo establecido en la Ley Nº 7476 del 3 de enero de 1995, Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia.
-Esta Ley se basa en los principios fundamentales constitucionales del respeto por la libertad y la vida humana, el derecho al trabajo y el principio de igualdad ante la ley, los cuales obligan al Estado a condenar la discriminación por razón de sexo y a establecer políticas para eliminar la discriminación entre las personas

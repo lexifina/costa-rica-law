@@ -1,3 +1,0 @@
-Artículo 27.—Incumplimiento de funciones de la jefatura superior. En caso de incumplimiento de funciones o mala administración comprobada, la Gerencia del Instituto Nacional de Seguros, puede destituir de los cargos de forma individual o colectiva a la Jefatura Superior de Bomberos.
-En caso de renuncia, destitución, enfermedad o muerte del Primer(A) Jefe(a), el Segundo(a) Jefe(a) lo(a) puede sustituir, hasta terminar el período por el cual fue nombrado el funcionario(a) titular.
-En caso de renuncia, destitución, enfermedad o muerte de cualquier oficial que ocupe un puesto en la Jefatura Superior, será sustituido temporalmente por el inferior inmediato(a), hasta que se defina de acuerdo con las normas establecidas quién será el (la) nuevo(a) titular.

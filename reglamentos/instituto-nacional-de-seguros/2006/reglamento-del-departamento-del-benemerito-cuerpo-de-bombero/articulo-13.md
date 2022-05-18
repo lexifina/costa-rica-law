@@ -1,1 +1,0 @@
-Artículo 13.—De las zonas y compañías. Las compañías constituyen el órgano ejecutor de primera intervención, ubicadas dentro de las Estaciones de Bomberos correspondientes. Cada compañía contará con una jefatura y con una estructura administrativa acorde con sus necesidades, la cual será establecida por la Jefatura Superior.

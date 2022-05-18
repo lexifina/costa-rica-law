@@ -1,5 +1,0 @@
-Artículo 35.—Uniforme y equipo. Todo bombero voluntario y bombera voluntaria tiene el derecho a que se le suministren uniformes y el equipo de protección personal necesario que se establezcan en las respectivas disposiciones. En respaldo de su valor debe firmar un documento que confirme la recepción de cada artículo, que se ejecutará en el eventual caso de pérdida no justificada del equipo en cuestión.
-La limpieza de todas las prendas de uso personal, corre a cargo del interesado (a). Es exigido mantener todo el equipo en buen estado de limpieza y conservación. Éste sólo será renovado, cuando sus condiciones y tiempo de servicio así lo amerite.
-Todo el equipo individual, así como el carné de identificación debe ser devuelto por el Bombero(a) al separarse de sus funciones definitivamente y si así no lo hiciere, la devolución se exigirá mediante trámite judicial.
-La reposición del equipo asignado se efectuará con base en el procedimiento de entrega de equipo establecido por la Dirección de Bomberos
-En caso de que el equipo se haya destruido totalmente, se requiere de un oficio del jefe(a) inmediato(a) para su reposición.

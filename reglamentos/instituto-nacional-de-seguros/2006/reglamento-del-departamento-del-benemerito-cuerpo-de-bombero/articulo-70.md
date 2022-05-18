@@ -1,1 +1,0 @@
-Artículo 70.—Del nombramiento de los bomberos y bomberas adscritas. Los bomberos y bomberas adscritas son nombrados(as) por la Jefatura Superior de Bomberos Voluntarios o directamente por la Dirección de Bomberos.

@@ -1,1 +1,0 @@
-Artículo 69.—De los uniformes y equipo para el bombero adscrito. La asignación de uniformes y equipo para el Bombero Adscrito quedará a discreción de la Dirección de Bomberos, de acuerdo a los requerimientos y las funciones que realice.

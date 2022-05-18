@@ -1,1 +1,0 @@
-Artículo 36.—Capacitación. La Dirección de Bomberos en coordinación con la Jefatura Superior de Bomberos Voluntarios, establecerá procesos de capacitación, para que todo bombero y bombera voluntaria pueda realizar sus funciones con eficiencia y eficacia, acorde con las necesidades del servicio.

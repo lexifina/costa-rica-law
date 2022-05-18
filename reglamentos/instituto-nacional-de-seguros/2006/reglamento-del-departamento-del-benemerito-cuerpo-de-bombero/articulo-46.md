@@ -1,2 +1,0 @@
-Artículo 46.—Abandono de actividades. Se considera como abandono la inasistencia a las actividades programadas según artículo anterior. Además, bastará con que de modo evidente abandone la labor que se le confía en el lugar en donde se encuentre prestando servicio para calificar el abandono de actividades, siempre y cuando no exista justificación para ello.
-El abandono total de actividades sin justificación se computará al final de cada mes calendario y la sanción correspondiente se aplicará conforme al reglamento.

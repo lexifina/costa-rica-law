@@ -1,1 +1,0 @@
-Artículo 62.—El funcionario(a) que se encuentre en la condición descrita en el articulo 59 será excluido de la póliza de accidentes y salud que lo cubre en caso de accidente y será incluido nuevamente cuando se reincorpore a sus labores. El jefe respectivo será el responsable de informar inmediatamente a la Secretaría de Bomberos Voluntarios su reincorporación.

@@ -1,1 +1,0 @@
-Artículo 20.—De los traslados. Se considera traslado la reubicación del funcionario(a) en la misma unidad de trabajo ó a otra en donde se requiera por necesidades imperiosas del servicio, y será ejecutado bajo la autorización de la Jefatura Superior.

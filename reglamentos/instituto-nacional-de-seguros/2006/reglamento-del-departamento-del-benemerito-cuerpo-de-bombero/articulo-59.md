@@ -1,1 +1,0 @@
-Artículo 59.—Toda persona que disfrute del permiso indicado en el artículo anterior puede ser sustituida durante su ausencia y para tal efecto, el sustituto deberá cumplir con los requisitos establecidos en el Manual Descriptivo de Puestos.

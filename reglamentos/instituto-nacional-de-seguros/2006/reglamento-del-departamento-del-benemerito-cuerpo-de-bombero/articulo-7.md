@@ -1,1 +1,0 @@
-Artículo 7º—Ámbito de aplicación. Este reglamento regula las actividades de los bomberos y bomberas voluntarias y sus relaciones con el Instituto Nacional de Seguros, representado por la Dirección de Bomberos y en su defecto, por la más alta autoridad que el INS designe con dicho propósito.

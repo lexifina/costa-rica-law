@@ -1,1 +1,0 @@
-Artículo 58.—Las licencias para ausentarse totalmente a las actividades bomberiles se concederán por un período máximo de un año. Si por alguna circunstancia no puede reintegrarse a sus labores después de ese lapso, se le dará la baja honrosa. En todo caso, podrá solicitar su reingreso cuando se normalice su situación.

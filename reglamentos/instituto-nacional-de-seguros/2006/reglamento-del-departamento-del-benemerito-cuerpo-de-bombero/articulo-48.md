@@ -1,2 +1,0 @@
-Artículo 48.—De la separación de la organización. Quien sea separado(a) de la organización, no puede realizar trámites de reingreso por un período de tiempo no menor a cinco años.
-Si una persona que ha sido separada de la organización desea gestionar su nuevo ingreso, debe cumplir con los trámites regulares de reclutamiento y su incorporación se ubica en la 9ª categoría. Para su ingreso, la Unidad de Acreditación Administrativa debe emitir un estudio técnico del caso y a su vez debe ser avalado por la Jefatura Superior.

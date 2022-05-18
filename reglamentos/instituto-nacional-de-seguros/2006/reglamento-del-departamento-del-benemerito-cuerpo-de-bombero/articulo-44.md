@@ -1,1 +1,0 @@
-Artículo 44.—Se considerarán ausencias injustificadas aquellas que hubiere cometido el servidor y que dentro del día siguiente a aquel, no hubiere presentado por escrito la razón justificante. Esta justificación deber ser aprobada o improbada por el(la) Jefe(a) de la respectiva unidad de trabajo.

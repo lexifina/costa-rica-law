@@ -1,1 +1,0 @@
-Artículo 74.—Permisos. Los permisos especiales para no atender las responsabilidades inherentes a las propias de los miembros de este grupo, deberán ser tramitados por escrito por el grupo coordinador y avalados por la Dirección del Cuerpo de Bomberos.

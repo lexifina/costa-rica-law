@@ -1,1 +1,0 @@
-Artículo 60.—Todo funcionario con permiso para ausentarse a todo tipo de actividades por períodos de un mes o más, debe entregar a su jefe el equipo y vestuario que le fueron entregados, el cual se mantendrá en custodia en la compañía a la cual pertenece.

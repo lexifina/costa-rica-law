@@ -1,1 +1,0 @@
-Artículo 47.—Imposición de sanciones a la jefatura Superior. Es atribución del(la) Jefe(a) de la Dirección de Bomberos, la imposición de sanciones que se deriven de las faltas en que incurran los(as) miembros(as) de la Jefatura Superior.
