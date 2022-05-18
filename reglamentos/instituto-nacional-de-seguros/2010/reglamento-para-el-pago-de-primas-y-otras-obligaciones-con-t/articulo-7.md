@@ -1,2 +1,0 @@
-Artículo 7º—El Procesador no tendrá ninguna injerencia en la relación contractual del INS con sus asegurados, siendo únicamente el encargado de procesar los cobros que el INS le envíe, de acuerdo con los términos de cada contrato. Cualquier modificación que los asegurados deseen hacer en su contrato-póliza, deberá gestionarlo directamente con el INS o intermediario respectivo.
-Asimismo, no le está permitido al Procesador reembolsar sumas correspondientes a contratos de seguros, hipotecas u otros conceptos, directamente al tarjetahabiente.

@@ -1,1 +1,0 @@
-Artículo 10.—Los contratos que suscriba el Procesador con el INS no implican ni suponen la existencia de ningún tipo de relación laboral entre ese y el INS Igual consideración se aplica con respecto a los empleados del Procesador.

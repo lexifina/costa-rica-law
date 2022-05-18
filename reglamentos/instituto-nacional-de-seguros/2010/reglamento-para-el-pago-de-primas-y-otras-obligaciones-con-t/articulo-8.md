@@ -1,1 +1,0 @@
-Artículo 8º—El Procesador se compromete a cancelar las transacciones efectuadas al amparo del contrato que se suscriba y del presente reglamento, mediante cheque, depósito bancario o transferencia electrónica a las cuentas corrientes que el INS indique.
