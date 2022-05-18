@@ -1,1 +1,0 @@
-Artículo 22.—Queda prohibido a los notarios recibir suma alguna de las partes involucradas en el acto, salvo los casos de pago directo, en cuyo caso el Notario deberá entregar las facturas correspondientes al cliente.

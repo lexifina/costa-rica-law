@@ -1,1 +1,0 @@
-Artículo 35.—En el caso de los notarios que ofrezcan servicios objeto de uno o más contratos administrativos, la suspensión en uno de estos se hará extensiva a los otros cuando la suspensión ocurra por comisión de un delito debidamente comprobado.

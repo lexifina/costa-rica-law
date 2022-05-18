@@ -1,2 +1,0 @@
-Artículo 46.—Corresponde a la Gerencia, a la Dirección Financiera, el Departamento de Créditos y la Sucursal, la responsabilidad de velar por la correcta aplicación de este Reglamento, así como establecer la adecuada coordinación entre las dependencias del INS que administran créditos hipotecarios, para lograr su cometido.
-La Dirección Financiera podrá facultar a las Sucursales del INS para que fiscalicen la respectiva inscripción de documentos notariales.

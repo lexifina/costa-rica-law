@@ -1,1 +1,0 @@
-Artículo 41.—Durante la ausencia no se le asignarán casos y se afectará el rol de entrega con la razón de ausencia. No obstante lo anterior, los asuntos que el Notario tenga pendientes deben ser concluidos.

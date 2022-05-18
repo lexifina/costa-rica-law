@@ -1,1 +1,0 @@
-Artículo 27.—Los Notarios serán responsables de cualquier pérdida o perjuicio ocasionado al INS originada en la falta de presentación dentro de los plazos establecidos de una escritura y por los errores o defectos que ésta contenga atribuibles al Notario y que no hubieran sido advertidos o subsanados por él.

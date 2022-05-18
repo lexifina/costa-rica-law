@@ -1,1 +1,0 @@
-Artículo 42.—Si al notario le correspondiere la asignación de un trámite para otorgamiento e inscripción de documentos, pero se ausentara por razones de enfermedad, debidamente comprobada, se le entregará el caso al notario que continúe en el rol y se le repondrá con otro similar al notario ausente, cuando se incorpore nuevamente.

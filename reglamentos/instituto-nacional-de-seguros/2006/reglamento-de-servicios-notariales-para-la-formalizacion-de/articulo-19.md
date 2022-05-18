@@ -1,1 +1,0 @@
-Artículo 19.—El Notario será responsable ante el INS de los eventuales daños o perjuicios que le ocasione con motivo de una errónea inscripción o de cualquier tipo de omisiones en que incurra durante la atención de los trámites a su cargo, o de cualquier causa que le resulte imputable que impida la inscripción de las escrituras que le han sido asignadas.

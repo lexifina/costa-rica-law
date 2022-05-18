@@ -1,1 +1,0 @@
-Artículo 2º—Para la formalización de los créditos hipotecarios el INS utilizará los servicios profesionales de notarios independientes en número limitado, cuya designación se realizará mediante contratación pública de conformidad con lo que establece la Ley de Contratación Administrativa, su Reglamento y el Reglamento Interno de contratos administrativos.

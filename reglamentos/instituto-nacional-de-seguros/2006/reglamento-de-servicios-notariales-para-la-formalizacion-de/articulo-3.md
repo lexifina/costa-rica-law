@@ -1,2 +1,0 @@
-Artículo 3º—El INS también podrá por motivos de conveniencia institucional, contratar profesionales para la prestación de servicios notariales por sueldo fijo y sin devengar honorarios, de conformidad con lo establecido en el numeral 67 de la Ley de Contratación Administrativa.
-Estos profesionales tendrán, además de las obligaciones derivadas del contrato de trabajo, todas las contenidas en el presente Reglamento y estarán sometidos al régimen disciplinario de los empleados regulares.

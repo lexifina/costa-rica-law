@@ -1,2 +1,0 @@
-Artículo 20.—El Notario no deberá aceptar los expedientes para otorgamiento e inscripción de instrumentos notariales, cuando exista parentesco hasta tercer grado, por afinidad o consanguinidad, con cualquiera de las partes involucradas en el acto, o medie algún género de representación o participación con las personas jurídicas involucradas en el caso.
-De encontrarse en alguna de estas circunstancias, el Notario deberá devolver el expediente dentro de los dos días hábiles siguientes a su recibo con el informe respectivo.

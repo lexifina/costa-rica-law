@@ -1,1 +1,0 @@
-Artículo 45.—Para efecto del pago, el Departamento de Créditos o la Sucursal deberá rendir un dictamen a la Dirección Financiera dentro de los ocho días hábiles siguientes a la recepción de los expedientes, acerca del resultado general de la gestión del profesional cesante, recomendando lo pertinente en salvaguarda de los intereses del INS.

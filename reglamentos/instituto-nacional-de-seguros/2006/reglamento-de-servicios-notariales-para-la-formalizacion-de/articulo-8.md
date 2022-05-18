@@ -1,1 +1,0 @@
-Artículo 8º—Cada expediente será entregado al Notario, en las oficinas del INS o Sucursal y en él se indicarán las características y los documentos necesarios, para el trámite de formalización correspondiente.

@@ -1,1 +1,0 @@
-Artículo 21.—Los Notarios contratados, no podrán bajo ningún concepto, asumir la dirección de procesos judiciales en contra del INS, ni realizar actos que violen normas o contratos en perjuicio del INS.

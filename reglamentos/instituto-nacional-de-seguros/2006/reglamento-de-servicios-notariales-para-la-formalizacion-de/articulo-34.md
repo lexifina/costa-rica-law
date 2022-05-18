@@ -1,1 +1,0 @@
-Artículo 34.—El procedimiento sancionatorio estará a cargo de la Proveeduría, en concordancia con lo estipulado en este capítulo y en la Ley de Contratación Administrativa y su Reglamento. En todos los casos de previo a imponer la sanción deberá iniciarse un procedimiento que garantice el debido proceso.
