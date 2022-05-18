@@ -1,1 +1,0 @@
-2) A partir de la entrada en vigencia del presente “Manual”, para todo lo concerniente al mantenimiento de extintores portátiles, tiempos de inspección y recarga de dichos equipos se aplicara lo que indique la Norma NFPA 10, última versión.
