@@ -1,1 +1,0 @@
-Artículo 45.—La Dirección de Bomberos y las demás unidades coadyuvantes en la administración de la flotilla, aplicarán lo establecido en este Capítulo, adaptándolo a sus propias circunstancias, pero deberán aplicar obligatoriamente lo relativo al procedimiento de autorización para conducir los vehículos del INS, coordinando lo necesario con el Departamento de Servicios Generales.

@@ -1,1 +1,0 @@
-Artículo 22.—Para que los vehículos de atención de emergencias puedan ser utilizados en actividades diferentes a las que por naturaleza les corresponden, necesitarán autorización de la Dirección de Bomberos. Estas autorizaciones no prevalecerán sobre ningún estado de emergencia en el cual se requiera de la utilización de las unidades autorizadas.

@@ -1,1 +1,0 @@
-Artículo 44.—La Unidad de Transportes exigirá el cobro del deducible a cualquier funcionario que sea declarado judicialmente responsable de un accidente (por dolo o culpa grave) en que se vea involucrado un vehículo del INS, fundamentándose en el artículo 238 de la Ley de Tránsito y en la Convención Colectiva de Trabajo INS-UPINS.

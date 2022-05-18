@@ -1,1 +1,0 @@
-Artículo 51.—Queda prohibido a los conductores permitir que personas ajenas a la Institución viajen en los vehículos institucionales, a no ser que se justifique por cuestiones de trabajo, necesidad o de emergencia, y que sea aprobado por Servicios Generales.

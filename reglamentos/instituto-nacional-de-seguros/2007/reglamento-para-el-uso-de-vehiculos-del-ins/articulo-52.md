@@ -1,2 +1,0 @@
-Artículo 52.—Los conductores autorizados por el INS no podrán bajo ninguna circunstancia permitir que funcionarios no autorizados o personas ajenas a la Institución conduzcan los vehículos a su cargo.
-Asimismo sólo en casos de emergencia podrán ceder la conducción de la unidad a otro funcionario del INS que no cuente con autorización para conducir los vehículos del INS, pero si deberá contar y portar la licencia de conducir apropiada para el tipo de vehículo de que se trate.

@@ -1,1 +1,0 @@
-Artículo 72.—El Departamento de Servicios Generales por medio de la Unidad de Transportes definirá claramente y por escrito los procedimientos esenciales para desarrollar adecuadamente las actividades relacionadas con el uso, mantenimiento y administración de los vehículos institucionales.

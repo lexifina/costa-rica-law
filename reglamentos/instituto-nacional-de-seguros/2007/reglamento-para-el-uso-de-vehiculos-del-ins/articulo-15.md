@@ -1,1 +1,0 @@
-Artículo 15.—Sin excepción, el uso del formulario de autorización y control será obligatorio en todos los casos en que se desee utilizar un vehículo de la naturaleza mencionada en este Capítulo. Esta norma no aplica para los vehículos de uso discrecional y los destinados a la atención de emergencias.

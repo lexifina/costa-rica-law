@@ -1,1 +1,0 @@
-Artículo 4º—Los vehículos de uso administrativo general son todos aquellos que, encontrándose inscritos a nombre del Instituto Nacional de Seguros, son utilizados para los servicios regulares de transporte. Las regulaciones sobre ellos se consignan en el Capítulo III de este Reglamento.

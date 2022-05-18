@@ -1,5 +1,0 @@
-Artículo 43.—La Unidad de Transportes podrá suspender la autorización para conducir los vehículos del INS a los funcionarios que incurran en las siguientes situaciones:
-a) Cuando se determine el uso irregular de los vehículos institucionales, aunque no medie en ello sentencia judicial, siempre y cuando tal irregularidad sea demostrada en un proceso administrativo en el cual se le permita al funcionario defenderse conforme a los principios del debido proceso, diligenciado por la Unidad de Transportes y Recursos Humanos.
-b) A los funcionarios de la Institución que contravengan la Ley de Tránsito, otras normas vigentes en la materia o este Reglamento, siempre y cuando se sigan los principios del debido proceso.
-c) La declaratoria judicial de responsabilidad de un funcionario que se haya visto involucrado en un accidente de tránsito con un vehículo del INS, dependiendo de la gravedad de los hechos. Esta será valorada por la Unidad de Transportes y el Departamento de Servicios Generales en conjunto.
-d) Cuando no haya pagado multas o partes por cometer una infracción a la Ley de Tránsito que le hayan extendido conduciendo vehículos institucionales.

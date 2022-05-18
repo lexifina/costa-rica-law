@@ -1,1 +1,0 @@
-Artículo 19.—Los vehículos de atención de emergencias quedan facultados para circular todos los días las 24 horas, sin requerir o portar autorización para ello, siempre y cuando se utilicen en las funciones propias de su especialidad.

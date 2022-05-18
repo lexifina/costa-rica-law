@@ -1,1 +1,0 @@
-Artículo 54.—Será responsabilidad exclusiva de cada conductor el cumplimiento de lo establecido en este Capítulo. Si acatare instrucciones que lo contravengan, lo hará bajo su exclusiva responsabilidad.

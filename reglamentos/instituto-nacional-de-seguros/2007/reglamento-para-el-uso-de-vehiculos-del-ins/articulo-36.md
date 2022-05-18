@@ -1,3 +1,0 @@
-CAPÍTULO IX
-De la autorización para conducir vehículos del INS
-Artículo 36.—Será requisito indispensable para la conducción de los vehículos del Instituto poseer la licencia vigente extendida por el MOPT. Se autorizará la conducción de vehículos del INS a aquellos funcionarios que así lo requieran para el adecuado desempeño de sus labores. Este permiso se formalizará mediante la emisión de una Autorización Institucional que deberá portar obligatoriamente todo trabajador mientras conduce un vehículo de la Institución. Previamente deberá firmar boleta para autorizar al INS a deducir de su salario la cancelación de multas por infracciones a la Ley de Tránsito. La autorización Institucional será extendida por la Unidad de Transportes
