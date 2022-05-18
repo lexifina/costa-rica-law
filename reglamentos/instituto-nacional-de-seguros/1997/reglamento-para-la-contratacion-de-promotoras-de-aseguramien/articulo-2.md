@@ -1,1 +1,0 @@
-Artículo 2°—El objetivo principal de este reglamento es fomentar la afiliación de patronos al Seguro de Riesgos del Trabajo, lograr una efectiva labor de cobranza y promover la organización de la salud ocupacional en las empresas.

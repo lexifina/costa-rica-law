@@ -1,1 +1,0 @@
-Artículo 10.—El Instituto pagará la comisión a la Empresa Promotora , si presenta a satisfacción la documentación indicada en el inciso g) del artículo 13 de este Reglamento y los comprobantes que señalan las disposiciones internas para cada tipo de servicio autorizado y realizado.

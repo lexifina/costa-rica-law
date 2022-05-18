@@ -1,1 +1,0 @@
-Artículo 9°—Formarán parte del contenido del contrato las regulaciones institucionales sobre la suscripción y renovación del seguro de Riesgos del Trabajo, la cobranza, el uso de formularios, la confidencialidad de la información, el depósito de dineros, la actualización de las pólizas, el uso correcto de manuales de tarifas y logos del Instituto.

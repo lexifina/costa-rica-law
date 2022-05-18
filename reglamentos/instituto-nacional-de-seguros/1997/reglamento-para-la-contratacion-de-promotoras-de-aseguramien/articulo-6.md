@@ -1,1 +1,0 @@
-Articulo 6°—El Instituto de acuerdo con sus necesidades autorizará a la Empresa Promotora la zona donde deberá operar y la cantidad de Promotores establecido en el plan anual de actividades a que se refiere el artículo 12 de este Reglamento.
