@@ -1,4 +1,0 @@
-Artículo 5º—El Departamento de Riesgos del Trabajo podrá autorizar adelantos de rentas futuras de acuerdo con lo siguiente:
-Adelantos equivalentes a una renta anual, originados por la muerte del trabajador y las fijadas por incapacidades parciales, totales permanentes cuando las solicitudes de rentas sean originadas por situaciones que pongan en peligro la estabilidad económica del grupo familiar.
-Adelantos equivalentes hasta 2 años de renta, originadas en el caso de incapacidades total permanente y grandes inválidos, cuando el monto de las rentas adelantadas vaya dirigido exclusivamente a la solución de vivienda; por una sola vez, y que se compruebe en el estudio de Trabajo Social que no existen otras fuentes para financiar dicha necesidad.
-(Así reformado mediante acuerdo tomado en sesión N° 8540 de 6 de mayo del 2002)
