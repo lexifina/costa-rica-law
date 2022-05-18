@@ -1,1 +1,0 @@
-Artículo 23.—Se generará por parte de la Entidad Docente y el INS un informe anual que incluirá los datos sobre actividades docentes y cualquier otra información que se considere relevante para la evaluación de los programas y actividades clínicas docentes que se efectúan en el INS.

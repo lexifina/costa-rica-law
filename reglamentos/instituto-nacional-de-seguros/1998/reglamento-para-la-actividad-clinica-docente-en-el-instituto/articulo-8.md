@@ -1,1 +1,0 @@
-Artículo 8º—El estudiante de grado podrá permanecer en presencia del paciente, únicamente bajo la supervisión y dirección del funcionario docente o tutor, designado por el Jefe de Servicio. En caso de oposición del paciente, el estudiante deberá salir del salón de consulta y abstenerse de opinar o participar en el proceso de observación o de enseñanza.

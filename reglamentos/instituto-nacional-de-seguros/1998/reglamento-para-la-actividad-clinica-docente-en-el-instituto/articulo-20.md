@@ -1,2 +1,0 @@
-Artículo 20.—Todo problema, accidente o error de procedimiento, causado por un profesor o un estudiante, así como toda falta a los reglamentos o a la moral en perjuicio de un paciente, del personal o de un tercero, deberá ser reportado por el funcionario responsable, al Jefe de Servicio y a la Entidad Docente para que proceda al efecto.
-La entidad docente es la responsable por los daños y perjuicios ocasionados por estudiantes y profesores al equipo y recursos del INS, así como a los clientes del INS.

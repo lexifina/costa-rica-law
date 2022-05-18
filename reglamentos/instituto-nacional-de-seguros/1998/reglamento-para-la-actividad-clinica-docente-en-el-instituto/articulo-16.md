@@ -1,1 +1,0 @@
-Artículo 16.— La Entidad Docente se compromete a comunicar al INS, los requisitos que deben cumplir los aspirantes a las becas en los grados de Bachiller, Licenciatura y Postgrado en cualquiera de las carreras que imparte, excepto gastos de matrícula, pruebas de grado y gastos de graduación.

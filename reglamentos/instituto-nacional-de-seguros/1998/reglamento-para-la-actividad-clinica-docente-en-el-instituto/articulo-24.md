@@ -1,2 +1,0 @@
-Artículo 24.—Dicho informe contemplará la evaluación anual de los resultados de las prácticas, con el propósito de introducir los cambios y ajustes que fueren necesarios en los programas teóricos y prácticos, para mejorar la formación del profesional y adecuarla a las realidades y necesidades del país, según las políticas institucionales en el área de la salud, siempre y cuando no se afecte la autonomía universitaria.
-Lo anterior deberá entenderse sin perjuicio de la libertad de enseñanza.

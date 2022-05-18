@@ -1,1 +1,0 @@
-Artículo 4º— La Gerencia General del INS, previo aval del Subgerente del sector, será el encargado de autorizar a las Entidades Docentes, para que practiquen las actividades clínicas docentes en las instalaciones del INS.

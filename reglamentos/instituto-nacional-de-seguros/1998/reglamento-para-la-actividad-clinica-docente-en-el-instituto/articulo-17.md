@@ -1,1 +1,0 @@
-Artículo 17.— La Entidad Docente deberá garantizarle al INS un determinado número de becas para sus funcionarios de acuerdo con los servicios médicos que se brindan y en proporción al número de estudiantes aceptados. La cantidad de becas se determinará de común acuerdo entre ambas partes y en forma anual.
