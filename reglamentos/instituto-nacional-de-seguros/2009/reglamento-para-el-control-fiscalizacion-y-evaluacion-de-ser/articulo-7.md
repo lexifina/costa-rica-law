@@ -1,2 +1,0 @@
-Artículo 7º—De las asignaciones. La asignación de casos a los abogados, será responsabilidad del Departamento de Cobros, y de aquellas Sedes a las cuales la Dirección de Finanzas les haya otorgado esa facultad.
-Por razones de interés institucional, la Dirección de Finanzas podrá trasladar casos para cobro judicial o extrajudicial a la Dirección Jurídica del INS, quienes por estas funciones no percibirán honorario alguno.

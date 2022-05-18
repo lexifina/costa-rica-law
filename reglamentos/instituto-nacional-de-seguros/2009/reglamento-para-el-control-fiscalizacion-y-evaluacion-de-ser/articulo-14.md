@@ -1,2 +1,0 @@
-Artículo 14.—Inhabilitación por parentesco. El abogado director no deberá aceptar los casos para cobro judicial o extrajudicial cuando exista parentesco hasta tercer grado, por afinidad o consanguinidad, con la parte a demandar, o medie algún género de representación o participación con las personas jurídicas o físicas involucradas en el caso.
-De encontrarse en alguna de estas circunstancias, el abogado director deberá devolver el caso dentro de los dos días hábiles siguientes a su recibo con el informe respectivo.

@@ -1,2 +1,0 @@
-Artículo 59.—Pago de honorarios. Sus honorarios serán cancelados de conformidad con el artículo 41 y 43 del presente Reglamento, previa entrega de la totalidad de los expedientes e informes a satisfacción del INS de acuerdo a lo señalado en el artículo anterior.
-Sin embargo, la Proveeduría del INS mantendrá su potestad legal de ejecutar la garantía otorgada por el profesional o aplicar sanciones en caso de haber incurrido en falta grave en los casos en que así lo amerite, a juicio de la Dirección de Finanzas o el Departamento de Cobros.

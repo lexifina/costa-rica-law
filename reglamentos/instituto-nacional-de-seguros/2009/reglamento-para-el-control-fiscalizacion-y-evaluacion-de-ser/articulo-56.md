@@ -1,2 +1,0 @@
-Artículo 56.—Informes por suspensión. Si el abogado director fuese suspendido en el ejercicio de su profesión por un plazo no mayor a tres meses, se aplicará lo dispuesto en el artículo 16 del presente Reglamento. Tal situación deberá ser de conocimiento del Departamento de Cobros dentro del plazo estipulado en el artículo 11 del presente Reglamento. Vencido este plazo se procederá al relevo de todos los casos a su cargo.
-En caso de rescisión del contrato se aplicará lo dispuesto en el artículo 43 del presente Reglamento.

@@ -1,2 +1,0 @@
-Artículo 54.—Debido proceso. Tanto el Departamento de Cobros como la Dirección de Finanzas podrán relevar de la tramitación de procesos judiciales, en cualquier circunstancia, el abogado director tendrá derecho a una audiencia previa de cinco días hábiles.
-Concluida la audiencia se resolverá dentro de los diez días hábiles siguientes. Lo resuelto tendrá recurso de apelación dentro del plazo de tres días hábiles siguientes al envío del correo electrónico.

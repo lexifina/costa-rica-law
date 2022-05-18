@@ -1,1 +1,0 @@
-Artículo 55.—Aplicación de la suspensión. En el caso de los abogados que ofrezcan sus servicios objeto de uno o más contratos administrativos, la suspensión en uno de éstos no se hará extensiva a los otros.

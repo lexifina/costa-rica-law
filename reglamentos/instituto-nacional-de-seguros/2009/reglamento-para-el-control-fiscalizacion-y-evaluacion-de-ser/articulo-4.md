@@ -1,2 +1,0 @@
-Artículo 4º—Aplicación. Corresponde a la Dirección de Finanzas, la responsabilidad de velar por la correcta aplicación del presente Reglamento. Así como establecer la adecuada coordinación entre las dependencias del INS que generan o administran cuentas por cobrar, para lograr su cometido.
-La Dirección de Finanzas podrá facultar a las Sedes del INS para que fiscalicen y coordinen con el abogado designado, el cobro judicial o extrajudicial de determinadas operaciones todo bajo el control del Departamento de Cobros.

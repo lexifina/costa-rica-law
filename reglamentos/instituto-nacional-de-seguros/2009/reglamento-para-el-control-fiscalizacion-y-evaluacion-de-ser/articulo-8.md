@@ -1,1 +1,0 @@
-Artículo 8º—Labores Notariales. La Dirección Jurídica tramitará las escrituras correspondientes a daciones en pago y cualquier otra labor notarial que por interés institucional se requiera. Las escrituras adicionales de corrección de defectos de protocolizaciones de piezas de remate serán confeccionadas por el abogado y notario contratados.
