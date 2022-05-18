@@ -1,2 +1,0 @@
-Artículo 17.—La Dirección de Planificación a través del Departamento de Presupuesto para la realización de sus análisis, solicitará a las unidades ejecutoras los estudios que sustenten la procedencia económica, legal y técnica de lo planteado así como, su correspondencia con los planes de mediano y largo plazo de la Institución. De sus conclusiones rendirá informe a la Comisión de Presupuesto, para lo de su cargo.
-Ref.: Modificado según Acuerdo de Junta Directiva Nº VIII, de la Sesión 8127 del 02-06-97.

@@ -1,2 +1,0 @@
-Artículo 3º—La Presidencia Ejecutiva representa y es el enlace del Instituto Nacional de Seguros en la política del Plan-Presupuesto con los órganos y entes públicos externos coordinadores y fiscalizadores en esta materia. Para efectos de trámite y procedimientos, la Dirección de Planificación actuará en calidad de coordinador ante aquellos.
-Ref.: Modificado según Acuerdo de Junta Directiva Nº VIII, de la Sesión 8127 del 02-06-97.

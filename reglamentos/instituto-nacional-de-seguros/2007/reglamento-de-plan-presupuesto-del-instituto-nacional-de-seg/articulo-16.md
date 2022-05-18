@@ -1,3 +1,0 @@
-Artículo 16.—La Dirección Administrativa es la encargada de confeccionar la relación de puestos y estimar las respectivas partidas de sueldos, cargas sociales y demás beneficios derivados de la Convención Colectiva, tanto en el Plan-Presupuesto Ordinario como en sus modificaciones. La base de datos con la información sobre la relación de puestos y demás deberá estar actualizada.
-La Dirección de Mercadeo y Ventas deberá estimar y confeccionar las partidas de comisiones y demás erogaciones generadas en virtud de contratos de servicios de intermediación y distribución de seguros y otros análogos tanto en el Plan Presupuesto Ordinario como en sus modificaciones.
-Ref.: Modificado según Acuerdo de Junta Directiva Nº VIII, de la Sesión 8127 del 02-06-97.
