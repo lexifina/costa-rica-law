@@ -1,3 +1,0 @@
-III. DEL PROCEDIMIENTO ADMINISTRATIVO ORDINARIO
-Artículo 10.—Disposición de apertura del procedimiento. La Intendencia de Entidades Comercializadoras, mediante acto fundado en el examen preliminar de los hechos y el mérito de la investigación, podrá disponer la apertura del procedimiento administrativo y la intimación del caso.
-Cuando la gravedad de los hechos denunciados o investigados, los indicios y pruebas recabadas preliminarmente lo ameritan, podrá la División de Mercadeo y Ventas solicitar a la Gerencia la ejecución de medidas precautorias que resguarden la obtención de otras pruebas que coadyuven en el procedimiento, eviten el deterioro del servicio a los clientes del Instituto y eviten la causación de perjuicios irreversibles a los intereses institucionales.

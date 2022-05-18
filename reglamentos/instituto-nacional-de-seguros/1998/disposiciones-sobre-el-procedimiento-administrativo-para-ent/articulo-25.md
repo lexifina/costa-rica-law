@@ -1,4 +1,0 @@
-Artículo 25.—Nulidades. De conformidad con las normas generales del derecho procesal, las nulidades deberán plantearse dentro de los cinco días hábiles después de dictadas las actuaciones de la Administración, o del conocimiento efectivo del denunciado.
-Cuando se trate de un vicio esencial en el desarrollo del procedimiento, el Órgano Director, a solicitud de parte o de oficio, subsanará lo correspondiente, con el fin de que el procedimiento siga su curso normal.
-La nulidad solo se decretará para evitar indefensión o para orientar el curso normal del procedimiento. No se decretará cuando sea posible reponer el trámite o corregir la actuación.
-Al dictarse la nulidad, la resolución deberá indicar a cuales actos alcanza, cuales deberán ponerse o ser rectificados, estableciendo las diligencias necesarias para ello.

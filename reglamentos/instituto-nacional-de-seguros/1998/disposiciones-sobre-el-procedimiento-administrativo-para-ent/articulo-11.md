@@ -1,1 +1,0 @@
-Artículo 11.—Objeto del Procedimiento Administrativo. El procedimiento Administrativo tendrá por objeto la comprobación de la verdad real sobre los hechos denunciados o intimados, para la determinación de responsabilidades y aplicación de las sanciones respectivas, según el régimen normativo que rige la relación con el investigado.

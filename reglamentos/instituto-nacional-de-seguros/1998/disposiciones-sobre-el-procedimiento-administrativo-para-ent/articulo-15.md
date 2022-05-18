@@ -1,2 +1,0 @@
-Artículo 15.—Audiencia oral. Si la Administración lo considera pertinente, o si así lo solicitare la Entidad Comercializadora, dentro de los primeros cinco días hábiles luego de notificada la apertura del procedimiento ordinario, el Órgano Director señalará hora y fecha para celebrar una comparecencia oral.
-A esa audiencia podrán las partes hacerse acompañar de un Abogado, y se admitirá y recibirá toda la prueba y alegatos de las partes que fueren pertinentes.

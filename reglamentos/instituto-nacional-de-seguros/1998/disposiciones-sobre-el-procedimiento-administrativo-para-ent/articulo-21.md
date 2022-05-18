@@ -1,1 +1,0 @@
-Artículo 21.—Hechos nuevos. Si en el curso del procedimiento surgieren nuevos elementos relacionados con los hechos que motivaron la apertura del expediente, deberán ponerse en conocimiento del denunciado, junto con la prueba que los respalde, para que dentro del plazo de tres días hábiles se refiera a ellos.

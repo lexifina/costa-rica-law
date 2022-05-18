@@ -1,1 +1,0 @@
-Artículo 27.—Duración del Procedimiento Administrativo. El período de la duración del procedimiento será de un mes calendario, contado a partir del acto de apertura; sin embargo, el Órgano Director mediante resolución fundada, podrá prorrogar dicho plazo, por una única vez, y hasta por 15 días naturales más.

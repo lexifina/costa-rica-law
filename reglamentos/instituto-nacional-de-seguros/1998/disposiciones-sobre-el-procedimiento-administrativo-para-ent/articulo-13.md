@@ -1,1 +1,0 @@
-Artículo 13.—Inicio del Procedimiento Ordinario. Con base en la relación de hechos contenida en el informe preliminar, así como la prueba recabada al efecto, el Órgano Director determinará la procedencia de la apertura del procedimiento administrativo.

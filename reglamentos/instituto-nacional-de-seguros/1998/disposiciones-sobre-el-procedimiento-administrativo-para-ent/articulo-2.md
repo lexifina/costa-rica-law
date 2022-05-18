@@ -1,1 +1,0 @@
-Artículo 2°—La denuncia. Las denuncias no requerirán de especiales formalidades. Sin embargo, al menos deberá identificarse al denunciante, al denunciado, la supuesta conducta, acto o comportamiento irregular, y detallarse los hechos en los que se fundamenta. De ser posible se aportarán o indicarán las pruebas que sustenten los hechos de la denuncia.

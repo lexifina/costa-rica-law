@@ -1,1 +1,0 @@
-Artículo 17.—Prueba documental. La parte intimada podrá aportar la prueba documental que estime de interés o señalar la oficina o registro público donde se encuentre. Igualmente podrá aportar los alegatos que considere necesarios. Podrá ser rechazada la prueba que se considere impertinente, abundante o reiterativa, por medio de resolución motivada del Órgano Director.

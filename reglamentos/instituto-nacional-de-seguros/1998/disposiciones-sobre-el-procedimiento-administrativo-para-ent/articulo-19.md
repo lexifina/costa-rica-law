@@ -1,1 +1,0 @@
-Artículo 19.—Rebeldía. En caso de que la o las partes no se presentaran a la audiencia solicitada o no presente sus alegatos por escrito, el procedimiento continuará su curso normal, sin embargo, podrán incorporarse con posterioridad, tomando el proceso en el estado en que se encuentre en ese momento, sin reposición de plazos o actuaciones.

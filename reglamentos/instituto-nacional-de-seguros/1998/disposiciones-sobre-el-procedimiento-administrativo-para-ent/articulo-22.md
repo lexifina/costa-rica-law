@@ -1,1 +1,0 @@
-Artículo 22.—Notificaciones. Todas las resoluciones deberán ser notificadas a las partes en el lugar que hubiere señalado. En la primera resolución que el Órgano Director emita, deberá prevenir a las partes el señalamiento de lugar para recibir notificaciones en San José.
