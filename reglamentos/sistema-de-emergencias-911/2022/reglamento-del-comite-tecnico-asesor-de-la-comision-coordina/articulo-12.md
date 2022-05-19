@@ -1,0 +1,1 @@
+Artículo 12.-Las sesiones del COTEA se realizarán en forma privada, salvo que por unanimidad de sus miembros presentes se acuerde permitir el acceso del público en general o de algún invitado, a los cuales se les podrá conceder el derecho de participar en las deliberaciones con voz, pero sin voto.

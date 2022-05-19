@@ -1,0 +1,1 @@
+Artículo 11.-Las sesiones ordinarias y extraordinarias deben convocarse por escrito, en el caso de las ordinarias se deben realizar con una antelación mínima de cuatro días naturales y las extraordinarias en el momento en que así se requiera. En ambos casos, se debe acompañar la agenda con los asuntos que se van a tratar.

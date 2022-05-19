@@ -1,0 +1,1 @@
+Artículo 6º-La asistencia a las reuniones de COTEA es obligatoria. Se remitirá el control de asistencia en forma trimestral a la Comisión Coordinadora. Cada representante velará por el cumplimiento de la norma, debiendo solventar cualquier situación que se presente.

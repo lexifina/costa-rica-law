@@ -1,0 +1,1 @@
+Artículo 13.-Las sesiones del COTEA se podrán realizar de manera virtual cuando se presenten situaciones de emergencia nacional o cualquier situación que imposibilite la realización de la sesión presencial.

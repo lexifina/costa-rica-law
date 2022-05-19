@@ -1,0 +1,1 @@
+Artículo 16.-Si no existiera el quórum indicado anteriormente, el COTEA no sesionara regularmente y en su lugar se reprogramará la sesión para el mes siguiente a menos que, se convoque formalmente por parte del Coordinador para sesión extraordinaria.
