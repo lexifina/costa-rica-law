@@ -1,8 +1,10 @@
-Artículo 3.- De las Actuaciones realizadas de oficio por parte de la Administración Tributaria. Se ordena la suspensión de los plazos de atención de los siguientes actos y trámites de la Dirección General de Tributación:
+Artículo 3.- De las Actuaciones realizadas de oficio por parte de la Administración Tributaria.
+Mientras se verifiquen los presupuestos establecidos en el artículo 4 de la presente resolución, procederá la suspensión de los plazos de atención de los siguientes actos y trámites de la Dirección General de Tributación:
+(Así reformado el párrafo anterior mediante resolución N° DGT-R-017-2022 del 19 de mayo del 2022)
 1 DIRECCIÓN DE SERVICIO AL CONTRIBUYENTE:
 1.1 Consulta pública de resoluciones u otros.
 1.2 Cualquier trámite ante otras instituciones relacionadas con la Consulta de Situación Tributaria (CCSS, Dirección General de Migración y Extranjería, Ministerio de Salud, entre otras).
-2 ÁREAS DE RECAUDACIÓN:
+(*)2 ÁREAS DE RECAUDACIÓN:
 2.1 Administración del Registro Único Tributario y depuración de inconsistencias de Datos
 2.2 Administración de información de contribuyentes desde Administración Tributaria Virtual (ATV)
 2.3 Presentación declaraciones ATV
@@ -11,19 +13,22 @@ Artículo 3.- De las Actuaciones realizadas de oficio por parte de la Administra
 2.6 Solicitudes de estados de cuenta/estudios de cuenta
 2.7 Recopilación de información de pagos en papel, RECAUDA
 2.8 Administración de calidad de información ATV (impuestos especiales)
-2.9 Plan de Inscripción de personas registradas como Patronos ante la Caja Costarricense del Seguro Social)
+2.9 Plan de Inscripción de personas registradas como Patronos ante la Caja Costarricense del
+Seguro Social)
 2.10 Elaboración del Maestro Registro Único Tributario (RUT)
 2.11 Elaboración de las Estadísticas del RUT
 2.12 Reportes de nuevos inscritos en Impuesto sobre el Valor Agregado y Régimen Especial
-2.13 Agropecuario (Cuatrimestral)
-2.14 Solicitudes de información que requieran el acceso al Maestro RUT actualizado a abril 2022 u otros Maestros RUT anteriores a marzo 2022
-2.15 Atención de incidentes de las Administración Tributaria y Direcciones Funcionales
-2.16 Atención de consultas de las Administración Tributaria y Direcciones funcionales
-2.17 Realización de pruebas funcionales
-2.18 Remesas de las Áreas Funcionales para la gestión del cobro de deudas pendientes de pago líquidas y exigibles
-2.19 Gestión de Cobro de Deudas Líquidas y exigibles
-2.20 Solicitudes de estados de cuenta/estudios de cuenta
-2.21 Pago de parciales/masividad
+Agropecuario (Cuatrimestral)
+2.13 Solicitudes de información que requieran el acceso al Maestro RUT actualizado a abril
+2022 u otros Maestros RUT anteriores a marzo 2022
+2.14 Atención de incidentes de las Administración Tributaria y Direcciones Funcionales
+2.15 Atención de consultas de las Administración Tributaria y Direcciones funcionales
+2.16 Realización de pruebas funcionales
+2.17 Remesas de las Áreas Funcionales para la gestión del cobro de deudas pendientes de pago líquidas y exigibles
+2.18 Gestión de Cobro de Deudas Líquidas y exigibles
+2.19 Solicitudes de estados de cuenta/estudios de cuenta
+2.20 Pago de parciales/masividad
+(*) (Así reformado el punto 2) anterior por el artículo 1° de la resolución N° DGT-R-017-2022 del 19 de mayo del 2022)
 3 ÁREAS DE CONTROL EXTENSIVO:
 3.1 Denuncias tributarias
 3.2 Baja temporal de obligados tributarios
@@ -34,19 +39,12 @@ Artículo 3.- De las Actuaciones realizadas de oficio por parte de la Administra
 3.7 Liquidación de Impuestos sobre bienes exonerados
 3.8 Liquidaciones Previas
 3.9 En la fase Resolutiva, la emisión de la resolución de casos originados de actuaciones de control extensivo (confirmatoria, impugnación, revocatoria)
-4 ÁREAS DE FISCALIZACIÓN:
-En el proceso de Resolución Determinativa:
-4.1 Notificación de Traslado de Cargos y Observaciones
-4.2 Traslado de Cargos y Observaciones firme
-4.3 Impugnación
-4.4 Resolución Determinativa
-4.5 Recursos
-4.6 Resolución que contesta Recurso de Revocatoria o Recurso de Apelación
-4.7 Expresión de agravios
-4.8 Resolución del Tribunal Fiscal Administrativo
-4.9 Solicitud de Adición y Aclaración
-4.10 Resolución final
-Todos los procesos de contabilización de la deuda tributaria, de liquidación y sancionador continuarán su trámite hasta su finalización, salvo que fuere imposible continuarlos por las razones antedichas.
+(*) 4 ÁREAS DE FISCALIZACIÓN:
+En el procedimiento Determinativo:
+4.1 Resolución Determinativa
+4.2 Resolución que atiende el Recurso de Revocatoria
+Todos los procesos de contabilización de la deuda tributaria, de liquidación y sancionador, continuarán su trámite correspondiente en forma ordinaria, salvo que fuere imposible continuarlos por las razones antedichas.
+(*) (Así reformado el punto42) anterior por el artículo 1° de la resolución N° DGT-R-017-2022 del 19 de mayo del 2022)
 5 ACTUACIONES COMUNES DE LA ADMINISTRACIÓN TRIBUTARIA:
 5.1 De las notificaciones: todas las notificaciones se deben realizar mediante los mecanismos electrónicos establecidos y siempre que la situación actual lo permita. Si la cuenta de correo oficial por medio de la cual se realizan las notificaciones regularmente no estuviera disponible por las circunstancias actuales, se podrá realizar la notificación desde cualquier otra cuenta oficial con que cuente la Administración Tributaria, según sea el caso.
 El correo electrónico mediante el cual se efectúa la notificación correspondiente no debe de ir firmada digitalmente, únicamente el documento que se notifica debe cumplir con dicho requisito.

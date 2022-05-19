@@ -14,3 +14,4 @@ Suspensión temporal de plazos y la promulgación de lineamientos para la atenci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-04-18 | la propia norma |
+| 2 | 2022-05-19 | Resolución 17 (2022-05-19) |
