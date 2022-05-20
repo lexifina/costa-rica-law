@@ -1,0 +1,6 @@
+Artículo 9°-Estrategias. Para cumplir con sus funciones, el Departamento Desarrollo del Talento Humano podrá recurrir, entre otros, pero no limitado a, los siguientes mecanismos:
+a) Estrategias de diagnóstico, con el fin de recopilar, ordenar e interpretar de forma objetiva y sistematizada, la información relativa al acoso laboral.
+b) Estrategias de divulgación y sensibilización con el fin de garantizar que las personas trabajadoras puedan acceder oportunamente a información que permita comprender, prevenir y abordar el acoso laboral y poner a disposición de las personas las herramientas necesarias para cumplir con estos objetivos.
+c) Charlas informativas dirigidas a sensibilizar e informar a las personas sobre el acoso laboral, sus consecuencias y formas de prevenirlo.
+d) Estrategias de formación y capacitación, dirigidas a promover el liderazgo y habilidades directivas de quienes ejerzan funciones de jefatura; las buenas relaciones personales, la vocación de servicio y en general, a contrarrestar cualquier deficiencia que pueda ser causa potencial de acoso laboral.
+e) Estrategias de asesoría y atención, dirigidos a atender situaciones o conductas particulares que sin previa denuncia, sugieran la existencia de conflictos que puedan desencadenar en situaciones de acoso laboral.

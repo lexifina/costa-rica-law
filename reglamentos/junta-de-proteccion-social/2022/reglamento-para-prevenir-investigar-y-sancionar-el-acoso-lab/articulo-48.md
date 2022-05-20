@@ -1,0 +1,1 @@
+Artículo 48.-Denuncias falsas. Quien denuncia falsamente por acoso laboral, podrá incurrir cuando así se tipifique, en cualquiera de las conductas típicas de difamación o injuria, según las disposiciones del Código Penal y además se expondrá a las consecuencias disciplinarias que correspondan, previo garantía del debido proceso y del derecho de defensa.

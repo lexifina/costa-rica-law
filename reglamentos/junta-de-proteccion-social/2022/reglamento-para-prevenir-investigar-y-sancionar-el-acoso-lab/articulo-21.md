@@ -1,0 +1,1 @@
+Artículo 21.-Prescripción de la sanción. El plazo de prescripción de los derechos y acciones de la Junta de Protección para sancionar el acoso laboral será de un mes, plazo que será aplicado de acuerdo con las reglas y criterios establecidos en el artículo 414 del Código de Trabajo.

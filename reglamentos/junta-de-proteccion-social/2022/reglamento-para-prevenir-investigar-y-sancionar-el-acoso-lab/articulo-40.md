@@ -1,0 +1,1 @@
+Artículo 40.-De la comunicación de la resolución final. Una vez firme el acto final que se dicte en el respectivo procedimiento disciplinario, el Órgano Decisor remitirá copia al Departamento de Desarrollo de Talento Humano con el fin de que se ejecute lo resuelto y se incluya en el expediente personal de las partes.
