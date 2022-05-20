@@ -1,0 +1,1 @@
+Artículo 18.-Las solicitudes para reconocimiento dentro del régimen de la Carrera Profesional, podrán ser gestionadas ante la Sección Desarrollo Talento Humano y Gestión del Desempeño en cualquier momento.
