@@ -1,0 +1,1 @@
+Artículo 16.-Del aseguramiento de la continuidad de los servicios. Será responsabilidad de la jefatura inmediata, tomar las medidas preventivas para asegurar la continuidad de las actividades, en los casos en que una persona trabajadora ad-honorem no concluya las tareas asignadas y estas sean impostergables.

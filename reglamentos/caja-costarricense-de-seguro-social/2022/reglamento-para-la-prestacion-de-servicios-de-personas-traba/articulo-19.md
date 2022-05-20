@@ -1,0 +1,1 @@
+Artículo 19.-Derogatoria. Se deroga el Reglamento de Prestación de Servicios ad-Honorem por parte de Profesionales en Ciencias Médicas Pensionados, en la Caja Costarricense del Seguro Social, aprobado por la Junta Directiva en el artículo 13° de la sesión Nº 8425, celebrada el 25 de febrero del año 2010.

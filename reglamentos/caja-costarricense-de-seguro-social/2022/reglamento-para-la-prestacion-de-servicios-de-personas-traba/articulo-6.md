@@ -1,0 +1,1 @@
+Artículo 6º-Condiciones de Ingreso. Toda persona contratada ad-honorem podrá optar para ser contratada bajo el régimen ordinario, siempre y cuando la necesidad de prestación de servicios así lo requiera, para lo cual deberá previamente someterse al proceso de ingreso establecido institucionalmente en igualdad de condiciones que las demás personas oferentes.

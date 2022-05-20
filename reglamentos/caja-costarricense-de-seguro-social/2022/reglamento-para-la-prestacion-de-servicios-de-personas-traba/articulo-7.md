@@ -1,0 +1,2 @@
+Artículo 7º-De la aprobación de prestación de servicios ad-honorem. La aprobación de la prestación de servicios ad-honorem corresponderá a la máxima autoridad del centro, quien conformará un expediente con los atestados y requisitos establecidos en el presente Reglamento.
+Aceptada la prestación de servicios ad-honorem, la jefatura respectiva debe proceder con el juramento de la persona para concederle así la investidura de servidor público, procediendo a suscribir el convenio respectivo por las partes.

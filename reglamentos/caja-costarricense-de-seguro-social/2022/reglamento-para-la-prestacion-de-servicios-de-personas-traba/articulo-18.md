@@ -1,0 +1,1 @@
+Artículo 18.-Plazo de la designación. El plazo para la prestación de los servicios por parte de la persona trabajadora ad honorem, será de 90 días naturales, con la posibilidad de extenderse por el mismo plazo conforme el criterio de la jefatura respectiva, las veces que sea requerido, debiendo suscribir nuevamente el convenio respectivo.

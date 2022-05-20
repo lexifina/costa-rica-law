@@ -1,0 +1,4 @@
+Artículo 10.-Del desarrollo de las actividades de la persona trabajadora ad-honorem. El servicio ad-honorem se podrá brindar en las áreas de prestación de servicios, investigación, asesoría, técnica, profesional, docencia, recreación, o en cualquier otra área de interés de la Administración.
+La prestación del servicio ad-honorem, se debe dar únicamente para atender labores de carácter extraordinario en un plazo definido. Cuando se requiere labor ad-honorem para realizar funciones ordinarias a plazo indefinido, se deberá requerir autorización expresa de la Gerencia respectiva.
+En el caso de la prestación de servicios de atención directa a los usuarios, será responsabilidad de la máxima autoridad del centro la aprobación de las actividades por desarrollar.
+La persona trabajadora ad-honorem deberá cumplir en el desarrollo de sus actividades con el ordenamiento jurídico vigente, respecto a la actividad a desarrollar.

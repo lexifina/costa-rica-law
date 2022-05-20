@@ -1,0 +1,1 @@
+Artículo 17.-Del cargo ejercido por la persona trabajadora ad-honorem. La persona trabajadora ad-honorem no podrá ejercer puestos de jefatura o supervisión y cuando forme parte de comisiones con responsabilidades en la toma de decisiones institucionales, tendrá voz, pero no voto.
