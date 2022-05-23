@@ -1,0 +1,1 @@
+Artículo 19.-Derogatorias. Este Reglamento deroga el Reglamento para la afiliación de los trabajadores Independientes aprobado en el artículo 21 de la sesión N° 7877, celebrada el 5 de agosto del 2004 y cualquier otra norma de igual o menor rango que se le oponga
