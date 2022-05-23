@@ -1,0 +1,1 @@
+Artículo 4º-Autorización de la permanencia legal. De cumplirse con los requisitos contemplados en el presente Decreto, la DGME autorizará la permanencia legal temporal para laborar en país, por el plazo y para las actividades originalmente autorizadas por el MTSS. Cumplida esta etapa se continuará con el trámite para la emisión del documento denominado Trazabilidad Laboral.

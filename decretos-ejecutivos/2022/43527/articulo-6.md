@@ -1,0 +1,2 @@
+Artículo 6º-Del egreso. Finalizado el plazo autorizado para la permanencia legal de las personas extranjeras en los términos establecidos, el empleador que realizó la solicitud de ingreso deberá garantizar el egreso de dichas personas del territorio nacional.
+En caso de incumplimiento por parte de la persona empleadora de la obligación relacionada con el egreso de las personas extranjeras, se deberán efectuar las acciones legales que procedan por las instituciones competentes.
