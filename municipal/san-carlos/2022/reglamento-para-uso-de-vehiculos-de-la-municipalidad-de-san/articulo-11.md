@@ -1,0 +1,1 @@
+Artículo 11.-Cualquier reforma o adición a este Reglamento será realizada por Servicios Generales, aprobada por Alcaldía, Control Interno, el Concejo Municipal y autorizada por la Contraloría General de la República

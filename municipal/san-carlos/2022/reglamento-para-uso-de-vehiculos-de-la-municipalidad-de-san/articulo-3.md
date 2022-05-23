@@ -1,0 +1,3 @@
+Artículo 3º-Cada vehículo tendrá asignada una tarjeta para la compra del combustible, todo chofer debe cumplir el Reglamento Sobre el Uso de la Tarjeta Electrónica de Compra de Combustible (R-DSG-001-2015)
+La Municipalidad abastecerá de combustible, reparará y dará mantenimiento únicamente a los vehículos de su propiedad. Se dictarán medidas para el adecuado consumo de combustible, se debe llenar y entregar cada mes la bitácora de Recorrido de Vehículos Municipales.
+La Municipalidad de San Carlos tendrá asegurados todos los vehículos automotores con la cobertura que estime más convenientes por medio de pólizas de seguro con el Instituto Nacional de Seguros o alguna entidad debidamente autorizada.
