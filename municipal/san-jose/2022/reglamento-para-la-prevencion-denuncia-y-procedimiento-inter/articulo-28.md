@@ -1,0 +1,1 @@
+Artículo 28.-Prescripción de la acción disciplinaria. El plazo de prescripción de la acción disciplinaria se regulará por lo establecido en el Reglamento Autónomo de Organización y Servicios, el Código de Trabajo y el Reglamento Autónomo de Organización y Servicios en lo que resulte aplicable.

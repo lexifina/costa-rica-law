@@ -1,0 +1,13 @@
+Artículo 16.-Traslado de cargos. El órgano director notificará el traslado de cargos a la persona denunciada, de forma personal, dentro de un plazo ordenatorio de quince días hábiles. Dicho traslado deberá indicar al menos:
+1. Los hechos que se reportan en la denuncia. Lo anterior de forma clara y detallada. (en calidad de supuestos para efecto de la imputación de cargos);
+2. Las supuestas faltas cometidas, sus posibles consecuencias y su sustento jurídico (que al menos incluirá lo regulado en el Reglamento Autónomo de Organización y Servicios, en el presente Reglamento, y la normativa aplicable de la Ley 2 -Código de Trabajo-);
+3. La prueba de cargo aportada y la ofrecida por la persona denunciante;
+4. La normativa aplicable al procedimiento administrativo;
+5. Lo referente al nombramiento e integración del órgano director y la indicación de quién tramitará el procedimiento en calidad de órgano instructor; asimismo la indicación de quien será el órgano decisor en el momento procesal oportuno;
+6. El derecho de acceso al expediente (y a la prueba que en este conste) de forma personal o mediante su representante legal autorizado. Lo anterior incluye el derecho de obtener fotocopias a su expensa;
+7. Su derecho de, si a bien lo tiene, hacerse asesorar y/o representar por un abogado o por un representante sindical en los términos del artículo 360 del Código de Trabajo;
+8. Su deber de aportar medio idóneo para recibir notificaciones, con la advertencia de que en el supuesto de que dicho medio no sea aportado o bien, que por razones no achacables a la Municipalidad, el ofrecido no resulte idóneo, todos los futuros actos o resoluciones que se dicten e incluso la decisión final, se podrán tener por notificadas con el transcurso de 24 horas de dictadas (No obstante, de previo a lo anterior, la Municipalidad procurará notificar a la persona denunciada, de forma personal, en su centro de trabajo, guardando todas las medidas necesarias para mantener la confidencialidad del asunto); 9. Los recursos que admite el acto, ante quién y el plazo para su interposición (El traslado de cargos admitirá los recursos ordinarios de revocatoria y apelación, los que deberán ser interpuestos dentro del plazo de veinticuatro horas. Cada uno de los recursos indicados deberán resolverse en el plazo máximo de ocho días);
+10. El carácter confidencial del procedimiento;
+11. El plazo para presentar descargo escrito, que será de cinco días hábiles contados a partir del hábil siguiente al recibido del traslado de cargos.
+12. Su derecho y momento procesal oportuno para aportar prueba de descargo;
+13. Cualquier otro derecho que le resulte relevante dentro del procedimiento para ejercer el defensa y contradictorio.

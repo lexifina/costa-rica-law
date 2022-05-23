@@ -1,0 +1,1 @@
+Artículo 27.-Faltas relacionadas al procedimiento. Incurrirá en falta quien, siendo funcionario o funcionaria de la Municipalidad, injustificadamente entorpezca o atrase una investigación de hostigamiento laboral, mediando dolo o culpa. Asimismo, quien violente el deber de confidencialidad.

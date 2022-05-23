@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Este Reglamento regirá para todas las personas servidoras de la Municipalidad, independientemente de que se encuentren nombradas a plazo indefinido o a plazo fijo. Aplicará con relación a la interacción entre personas servidoras de diferente o igual jerarquía.

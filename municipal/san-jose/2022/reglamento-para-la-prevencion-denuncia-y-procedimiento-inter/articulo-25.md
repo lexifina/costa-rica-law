@@ -1,0 +1,1 @@
+Artículo 25.-Del deber de confidencialidad y el acceso al expediente. El órgano director y en general cualquier persona que participe en el procedimiento como testigo, perito, notificador o en cualquier otra condición, queda obligada a guardar la confidencialidad absoluta en torno a los hechos, las posibles partes involucradas y cualquier otra información del caso denunciado.
