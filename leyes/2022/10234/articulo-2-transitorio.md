@@ -1,0 +1,2 @@
+TRANSlTORlO II-
+En un plazo máximo de 24 meses, contado a partir de la entrada en vigencia de la presente ley, el Poder Ejecutivo, las instituciones autónomas, semiautónomas, las empresas públicas, las municipalidades y demás instituciones que participen en la Ventanilla Única de Inversión deberán cumplir con lo establecido en el artículo 15 ter de la Ley N.º 7210, Ley del Régimen de Zonas Francas, 23 de noviembre de 1990, en cuanto a la publicación de la información territorial georeferenciable estandarizada que generen, administren y gestionen.
