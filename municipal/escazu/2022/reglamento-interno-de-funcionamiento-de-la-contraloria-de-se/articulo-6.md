@@ -1,0 +1,1 @@
+Artículo 6°-La Contraloría de Servicios actuará de oficio o a petición de parte, por lo que estará facultada para realizar investigaciones, visitas a las dependencias municipales y requerir la información pertinente para el cumplimiento de sus funciones. Su accionar se regirá por lo dispuesto en este Reglamento y demás disposiciones por órganos competentes.

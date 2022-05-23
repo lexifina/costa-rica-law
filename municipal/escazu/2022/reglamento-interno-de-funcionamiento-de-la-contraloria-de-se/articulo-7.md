@@ -1,0 +1,1 @@
+Artículo 7°-Independencia de la Contraloría de Servicio. No realizan acciones de la administración activa de la organización, excepto las necesarias para cumplir sus propias funciones (Art.13) de la Ley 9158.
