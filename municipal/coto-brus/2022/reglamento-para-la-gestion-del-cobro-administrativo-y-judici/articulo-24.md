@@ -1,0 +1,1 @@
+Artículo 25. -Sobre la documentación relacionada con los arreglos de pago. Toda la documentación que haya sido requerida por el Proceso de Cobros de la Municipalidad para la suscripción del arreglo de pago, así como dicho documento, será agregado al expediente para su conservación.

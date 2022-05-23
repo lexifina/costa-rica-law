@@ -1,0 +1,1 @@
+Artículo 36. Formalización de la contratación de Servicios Profesionales. Los oferentes elegidos firmarán un contrato de servicios profesionales con la Municipalidad, así como cualquier otro documento que requiera la Institución, necesario para la prestación eficiente de estos servicios, y para cumplir con las normas que regulan este tipo de contratación.
