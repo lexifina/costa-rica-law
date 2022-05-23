@@ -1,1 +1,0 @@
-Artículo 41.-Minutas de las reuniones mensuales. Durante el desarrollo de estas reuniones, la Secretaría de la Junta Directiva Nacional deberá levantar una minuta con los temas discutidos y analizados, así como, los acuerdos tomados en dichas reuniones.

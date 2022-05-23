@@ -1,1 +1,0 @@
-Artículo 3°-Responsabilidades generales de la Junta Directiva Nacional. La Junta Directiva Nacional, como máximo órgano de Gobernanza del Conglomerado Financiero, deberá cumplir, todas y cada una, de las responsabilidades establecidas en las leyes y normativa aplicable, así como, las responsabilidades generales establecidas en el Código de Gobierno Corporativo.

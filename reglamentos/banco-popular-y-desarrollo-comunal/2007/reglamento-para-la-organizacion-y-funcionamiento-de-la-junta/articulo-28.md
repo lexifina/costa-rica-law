@@ -1,1 +1,0 @@
-Artículo 28.-Revisión de los acuerdos. Cada Director (a) podrá, por una sola vez, solicitar la revisión de una determinada actuación de la Junta Directiva Nacional, ello antes de que el acuerdo haya sido adoptado en firme.

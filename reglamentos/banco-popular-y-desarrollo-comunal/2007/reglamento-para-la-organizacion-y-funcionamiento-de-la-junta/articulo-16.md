@@ -1,1 +1,0 @@
-Artículo 16.-Intervenciones. Durante el desarrollo de la sesión, el Presidente de la Junta Directiva Nacional deberá conceder el uso de la palabra en el orden estricto en que le haya sido solicitado. Las interrupciones al Director (a) que esté en uso de la palabra sólo se permitirán cuando éste así lo acepte.

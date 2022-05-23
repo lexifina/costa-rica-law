@@ -1,1 +1,0 @@
-Artículo 25.-Empate en las votaciones. Salvo disposición en contrario, en caso de empate en la votación de una moción, de un acuerdo o de una disposición, suficientemente discutida, el Presidente podrá ejercer su voto de calidad (doble voto), para resolver el asunto y continuar con la sesión.

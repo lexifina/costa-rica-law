@@ -1,1 +1,0 @@
-Artículo 30.-Recursos contra los acuerdos. La persona interesada podrá interponer recurso de reconsideración, así como otros que la ley autorice, contra los acuerdos de la Junta Directiva Nacional, dentro del plazo legal establecido al efecto.

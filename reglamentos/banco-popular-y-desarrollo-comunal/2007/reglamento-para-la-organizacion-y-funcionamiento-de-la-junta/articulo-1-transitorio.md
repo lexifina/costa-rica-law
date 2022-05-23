@@ -1,1 +1,0 @@
-Transitorio l.-La Junta Directiva Nacional tendrá hasta un mes posterior a la publicación en La Gaceta para realizar los cambios en la integración de las Juntas Directivas de las Sociedades con el fin de realizarlas sustituciones y los nuevos nombramientos que correspondan.

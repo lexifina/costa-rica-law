@@ -1,1 +1,0 @@
-Artículo 17.-Mociones. Los acuerdos de Junta Directiva Nacional se tomarán con base en iniciativas o mociones, escritas o verbales, presentadas por los Directores (as), los cuales se dejarán constando en el acta de la sesión. Las propuestas que no se refieren al tema objeto de deliberación, serán eliminadas de la discusión.
