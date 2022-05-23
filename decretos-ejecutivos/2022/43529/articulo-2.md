@@ -1,0 +1,1 @@
+Artículo 2°: El Consejo Nacional de Educación Superior Privada CONESUP, por medio de su Secretaría Técnica contará con el plazo de un año a partir de la publicación de la presente metodología para programar reuniones con las universidades tendientes a explicar la metodología aprobada.

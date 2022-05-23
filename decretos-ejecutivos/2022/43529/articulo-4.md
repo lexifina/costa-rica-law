@@ -1,0 +1,1 @@
+Artículo 4°: El Ministerio de Educación Pública se compromete a proporcionar los recursos humanos para que el CONESUP implemente de manera satisfactoria la metodología, de conformidad con los requerimientos que para tal efecto haga el Consejo

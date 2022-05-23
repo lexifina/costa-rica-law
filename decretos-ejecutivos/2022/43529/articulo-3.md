@@ -1,0 +1,1 @@
+Artículo 3°: El CONESUP tomará las acciones necesarias para ajustar su estructura con el fin de que le permita poder aplicar la metodología aprobada de una manera eficiente y eficaz, para tal efecto contará con un plazo de tres años.
