@@ -1,0 +1,1 @@
+Artículo 11.-Vigencia del permiso de construcción. Los permisos de construcción para Obra Menor tienen eficacia de seis meses posteriores a su otorgamiento, no sin antes haber sido verificados por el funcionario asignado del Departamento de Desarrollo y Control Urbano de la Municipalidad de Oreamuno.

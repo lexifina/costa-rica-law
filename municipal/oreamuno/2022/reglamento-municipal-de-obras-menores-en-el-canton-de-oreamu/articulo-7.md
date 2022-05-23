@@ -1,0 +1,1 @@
+Artículo 7º-Exposición del permiso de construcción. Todo permiso de construcción en general deberá ser colocado en un lugar visible, de manera que facilite las labores de inspección, control y fiscalización por parte del inspector de la Municipalidad de Oreamuno.

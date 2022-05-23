@@ -1,0 +1,1 @@
+Artículo 22.-Revocación de cargo. El propietario del inmueble puede revocar la autorización dada a la persona responsable, sin perjuicio de las responsabilidades que de su actuar hayan derivado frente a terceros, además tanto el propietario como la nueva persona asignada deberá deberán cumplir con los requisitos establecidos en el artículo 6 del presente reglamento.

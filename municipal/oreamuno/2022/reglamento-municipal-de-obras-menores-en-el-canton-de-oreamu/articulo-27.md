@@ -1,0 +1,5 @@
+Artículo 27.-Procedimiento. El procedimiento administrativo ante clausuras se realizará según lo determine este reglamento.
+a. Para ello la Temporalidad de la clausura será conforme a los supuestos del artículo 25 de este reglamento, por lo que, en un plazo no mayor a treinta días hábiles contados a partir de la fecha de la clausura, deberá el administrado corregir su situación conforme a derecho tal como se indica en este reglamento, sino se procederá conforme al artículo 14 de este reglamento.
+b. La Clausura se mantendrá hasta que el interesado nuevamente trámite y obtenga el permiso regulado en este reglamento.
+c. De no cumplirse con ese deber, la Municipalidad, previa notificación, iniciará el procedimiento denuncia en la vía judicial de las obras menores ilegales.
+d. Adicionalmente, en el caso de que las obras estén concluidas, previo al citado procedimiento, se seguirá el procedimiento establecido en el Capítulo XXI (sobre las sanciones), artículos 93 a 96 de la Ley de Construcciones.

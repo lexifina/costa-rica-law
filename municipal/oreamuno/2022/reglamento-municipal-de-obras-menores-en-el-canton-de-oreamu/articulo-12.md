@@ -1,0 +1,1 @@
+Artículo 12.-Deber de Inspección. Una vez otorgado el permiso de construcción se fiscalizará la obra por medio de los inspectores del Departamento de Desarrollo y Control Urbano de la Municipalidad de Oreamuno.

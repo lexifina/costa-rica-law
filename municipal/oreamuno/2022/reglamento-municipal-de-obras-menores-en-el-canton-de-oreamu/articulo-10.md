@@ -1,0 +1,1 @@
+Artículo 10.-Revisión y plazo de resolución de la solicitud. La resolución de la solicitud se deberá dar a más tardar en diez días hábiles, previo cumplimiento de todos los requisitos y pago del impuesto respectivo.

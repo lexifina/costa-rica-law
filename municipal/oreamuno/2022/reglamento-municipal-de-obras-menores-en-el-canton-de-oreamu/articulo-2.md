@@ -1,0 +1,1 @@
+Artículo 2º-Objeto. El presente reglamento se establece de conformidad con el artículo 83 bis de la Ley de Construcciones, reformada por Ley N° 9482 del veintisiete de setiembre de dos mil diecisiete, en cuanto a la licencia de construcción de obras menores.

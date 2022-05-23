@@ -1,0 +1,1 @@
+Artículo 18.-Horario para realizar obras. Las obras constructivas podrán realizarse desde las seis de la mañana hasta las seis de la tarde y deberán ajustarse a las condiciones establecidas por el Ministerio de Salud respecto al control de contaminación sónica.

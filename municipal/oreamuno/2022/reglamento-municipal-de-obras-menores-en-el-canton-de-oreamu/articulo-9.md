@@ -1,0 +1,1 @@
+Artículo 9º-Inspección preliminar. Previo al otorgamiento del permiso de construcción para Obra Menor, la Municipalidad de Oreamuno está facultada para realizar una inspección a fin de verificar el cumplimiento y veracidad de los requisitos aportados por el interesado.
