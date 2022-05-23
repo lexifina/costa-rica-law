@@ -1,0 +1,21 @@
+Artículo 1 bis- Para las empresas que se instalen fuera de GAM se consideran asimismo inversiones nuevas las relativas a:
+l. Infraestructura pública en la que invierta la empresa a partir de la presentación de la solicitud al régimen para :
+a. Proyectos de mejoramiento o construcción, tales como: accesos viales perimetrales a su ubicación; construcción y conservación de puentes, alcantarillado, redes de suministro de agua potable; instalación y mejoramiento de líneas de transmisión de energía, datos y telecomunicación; dirigidos a mejorar la infraestructura y convivencia en el cantón donde se establece la empresa beneficiaria del régimen.
+b. Construcción, mejoramiento o conservación de la infraestructura de centros educativos y centros de atención comunitaria, ubicados en el cantón donde se instale la empresa.
+En ambos supuestos, y de previo ejecutar el proyecto de inversión, la empresa deberá formalizar los convenios o alianzas estratégicas público-privadas requeridos, y cumplir con los requisitos y condiciones que, para dicho propósito, se establezcan en la normativa aplicable y las instituciones competentes.
+II. Inversión en capital humano, entendida como aquella relacionada con la actividad autorizada a la empresa al ingresar al régimen de zonas francas, y que se dirija al desarrollo de:
+a) Cierre de brechas.
+b) Nuevas habilidades para la transformación de la actividad.
+c) investigación y desarrollo.
+d) Inversiones en formación de proveedores y suplidores o potencial recurso humano a contratar.
+Para las inversiones estipuladas en este artículo, las empresas deberán establecer en la solicitud de ingreso al régimen, el detalle de su compromiso y el plazo en el que realizará esta inversión, el cual se podrá extender has a cinco (5) años.
+Procomer fiscalizará el cumplimiento de estos compromisos mediante el Informe Anual de Operaciones y las Auditorías periódicas.
+Los recursos en los que la empresa invierta bajo estas modalidades de inversión podrán computarse a partir de la fecha de presentación de la solicitud de ingreso al régimen de zonas francas y podrán representar hasta el cincuenta por ciento (50%) del monto total de la inversión comprometida. Asimismo, la empresa se compromete a mantener el monto de inversión durante todo el plazo que se encuentre bajo el régimen.
+Solo podrán ingresar al régimen de zona franca aquellos proyectos que sean inversiones nuevas, por tanto, no podrán ingresar al régimen de zonas francas, ni aun cuando pretendan instalarse fuera de GAM:
+1) Los proyectos correspondientes a inversiones que ya se han realizado fuera del régimen de zona franca.
+2) Los proyectos correspondientes a inversiones que ya se han realizado dentro del régimen de zona franca y que solo se trasladen de ubicación.
+3) Las correspondientes a inversión en empresas subsidiarias de otras empresas que ya disfruten de los beneficios de dicho régimen.
+4) Las correspondientes a inversiones que resulten de operaciones de reestructuración societaria bajo control o propiedad común de una casa matriz domiciliada en régimen de zona franca.
+5) Las correspondientes a inversiones producto de la adquisición o absorción, por cualquier título, de una persona jurídica que si estaba sujeta al pago del impuesto sobre la renta de Costa Rica o de sus principales activos. Si tal adquisición o absorción se produce luego de que el solicitante ingresa al régimen, se le reducirá el, porcentaje de exoneración de los tributos sobre importación de maquinaria, equipo y materias primas y los tributos sobre las utilidades en la misma proporción que representen los activos adquiridos en relación con los activos totales de la empresa.
+La Comisión para Promover la Competencia (Coprocom) ejercerá sus funciones para promover la competencia y concurrencia, según las normas y los principios establecidos en la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, N.º 7472, y sus reformas, así como lo indicado en la Ley de Fortalecimiento de las Autoridades de Competencia, Nº 9736.
+(Así adicionado por el artículo 3° de la Ley de fortalecimiento de la competitividad territorial para promover la atracción de inversiones fuera de la Gran Área Metropolitana (GAM), N° 10234 del 4 de mayo del 2022)
