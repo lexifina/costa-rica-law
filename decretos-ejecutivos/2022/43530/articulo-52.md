@@ -1,0 +1,1 @@
+Artículo 52.- Tiempo mínimo para la solicitud de espacios. Las solicitudes de arrendamiento de espacios deberán presentarse con una antelación mínima de un mes calendario a la fecha del evento, a efecto de que la institución tenga la posibilidad de efectuar el trámite de análisis y resolución de la solicitud.

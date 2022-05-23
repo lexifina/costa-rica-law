@@ -1,0 +1,3 @@
+Artículo 29.- Alcance. Los Fondos concursables estarán enfocados en financiar proyectos de personas creadoras, intérpretes, investigadoras, productoras, promotoras, gestoras o cualquier otra persona trabajadora de la cultura, sean personas físicas o jurídicas.
+Cada instancia del Ministerio de Cultura y Juventud con contenido presupuestario asignado para la gestión, establecimiento y ejecución de estos Fondos delimitará en las bases de participación de cada convocatoria, el segmento específico del Sector Cultura que atenderá.
+Los Fondos podrán financiar proyectos que tengan contrapartes provenientes del sector privado o del sector público, siempre y cuando se cumplan todos los requisitos establecidos en el presente reglamento y en las respectivas bases de participación.

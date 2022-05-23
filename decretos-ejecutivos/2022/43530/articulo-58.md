@@ -1,0 +1,1 @@
+Artículo 58. Suscripción del contrato. Una vez completados los requisitos establecidos en este reglamento, se procederá a elaborar y firmar el contrato de arrendamiento. La actividad autorizada no podrá ser variada.

@@ -1,0 +1,3 @@
+Artículo 67.- Suscripción del Permiso de Uso de Instalaciones. Cumplidos todos los requisitos establecidos en el presente reglamento, el jerarca autorizará el uso del espacio y se procederá a elaborar y firmar el Permiso de Uso de Instalaciones. La actividad autorizada no podrá ser variada.
+En el Permiso de uso de instalaciones se establecerán las condiciones de tiempo, lugar y forma con las que se autoriza el uso del espacio.
+En caso de que el permisionario realice la venta de productos culturales, esto se contemplará en el Permiso establecido, señalando que ni el Ministerio ni sus órganos desconcentrados serán parte de las transacciones que se susciten entre el permisionario y los interesados en adquirir los productos culturales, cuya venta se autorizó.

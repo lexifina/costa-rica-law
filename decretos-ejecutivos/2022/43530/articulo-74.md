@@ -1,0 +1,4 @@
+TÍTULO III. DISPOSICIONES FINALES Y DE CONTROL
+CAPÍTULO I. DISPOSICIONES FINALES
+Artículo 74.- Política de no discriminación. En la aplicación de la Ley 10.041 y este reglamento, el Ministerio de Cultura y Juventud y sus órganos desconcentrados como entidades gubernamentales de carácter pluralista y respetuosos de la diversidad, no apoyarán proyectos, programas, acciones o iniciativas que fomenten el desorden público, el odio y/o la discriminación de las personas por razones de etnia, edad, religión, afiliación política, ideología, nacionalidad, género, orientación sexual o identidad de género o cualquier otra condición social o personal.
+De igual forma, los Jurados establecidos para los fondos concursables, aplicarán esta política pluralista y respetuosa de la diversidad en la asignación de los fondos para los proyectos beneficiarios.

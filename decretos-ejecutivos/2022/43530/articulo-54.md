@@ -1,0 +1,1 @@
+Artículo 54.- Subsanes. En caso de requerirse enmendar información, esta se solicitará por escrito una única vez, a más tardar dentro de los 7 días naturales siguientes a la presentación de la solicitud, para que, en un término no mayor a 5 días hábiles se proceda a suministrar lo requerido, so pena de archivo de su gestión.

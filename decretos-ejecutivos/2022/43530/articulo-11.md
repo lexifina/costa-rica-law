@@ -1,0 +1,3 @@
+Artículo 11.- Sede. Para efectos legales, la Sede de la Comisión será el Centro Nacional de la Cultura - CENAC, sede principal del Ministerio de Cultura y Juventud, y ahí se celebrarán las sesiones presenciales, salvo que se acuerde celebrarlas en otro espacio o cuando se presente algún impedimento por caso fortuito o fuerza mayor.
+Excepcionalmente, la Comisión podrá sesionar de forma virtual, en el tanto concurra el quórum de ley y existan causas justificadas para ello. De esto se dejará constancia en las actas correspondientes.
+La convocatoria a sesiones en lugar diferente, no provoca vicios de nulidad sobre los acuerdos tomados, siempre que conste así en la respectiva convocatoria.

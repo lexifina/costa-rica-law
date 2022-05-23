@@ -1,0 +1,1 @@
+Artículo 7.- Formalización de nombramientos. La persona Jerarca del Ministerio de Cultura y Juventud, formalizará, por medio de resolución administrativa, los nombramientos de las personas que integran la Comisión y las juramentará a efecto que presten válidamente el servicio exigido por la Ley 10.041 y el presente reglamento.

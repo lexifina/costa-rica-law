@@ -1,0 +1,4 @@
+Artículo 19.-Escogencia de los representantes de la Sociedad Civil. El proceso de selección de las personas titulares y suplentes del Sector Artístico y Cultural; y de la Gestión Cultural Comunitaria, se llevará a cabo en dos procesos abiertos y comunicados públicamente:
+a. Asamblea Nacional del Sector Artístico y Cultural. En esta fase, el Sector Artístico Cultural, realizará una Asamblea Nacional para escoger a cuatro representantes titulares y a cuatro suplentes que conformarán la Comisión.
+b. Asamblea de la Gestión Cultural Comunitaria. En esta fase, el Sector de Gestión Cultural Comunitaria, realizará una Asamblea en la que escogerá a una persona representante titular y una persona suplente, de residentes fuera de la Gran Área Metropolitana (GAM), para integrar la Comisión.
+Las asambleas de ambas fases serán virtuales por medio de la plataforma tecnológica que facilitará el Ministerio de Cultura y Juventud para estos efectos.

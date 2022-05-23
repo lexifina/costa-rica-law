@@ -1,0 +1,24 @@
+Artículo 57.- Firma del contrato de arrendamiento. Para la firma del contrato se deberán completar los siguientes requisitos, en un término máximo de 8 días hábiles, por medio del correo electrónico del que se disponga para ello.
+a) En caso de que el evento sea masivo:
+1. Declaración jurada de que cuenta con el permiso de evento masivo emitido por el Ministerio de Salud del Área Rectora de Salud correspondiente, para que el MCJ u órgano desconcentrado correspondiente establezca las coordinaciones internas con el Ministerio de Salud para verificar posteriormente este requisito.
+2. Comprobante de depósito del saldo pendiente por concepto de costo de arrendamiento.
+3. Programa de actividades actualizado, en caso de sufrir cambios desde el formulario.
+4. Indicar el nombre completo y número de identificación de la persona física o jurídica que realiza el trámite.
+5. Plano de distribución de elementos en el espacio, en caso de sufrir cambios desde el formulario.
+6. Plan de seguridad y emergencias elaborado según las características de su evento, en el cual se contemple personal a cargo de este.
+7. Plan de limpieza, que incluya estaciones con contenedores rotulados según tipo de residuo y área a ocupar. Una vez terminada la actividad se debe gestionar la entrega de los residuos a un gestor autorizado por el Ministerio de Salud. No
+deben quedar residuos en las instalaciones del MCJ y órganos desconcentrados.
+Se debe contemplar el personal y los insumos de limpieza para los servicios sanitarios que se le asignen.
+8. Copia de la póliza de responsabilidad civil adquirida para el evento.
+b) En caso de que el evento no sea masivo:
+1. Comprobante de depósito del saldo pendiente por concepto de costo de arrendamiento.
+2. Programa de actividades actualizado, en caso de sufrir cambios desde el
+formulario. 3. Carta de compromiso de mantener el espacio y entregarlo limpio, ordenado, y respetar el plan de seguridad y emergencia que tenga el espacio arrendado.
+4. Póliza de responsabilidad civil en caso de que el evento sea externo a la organización del Ministerio y sus órganos desconcentrados.
+5. Copia del permiso de manipulación de alimentos, en caso de ser procedente.
+c) Presentar en ambos casos:
+1. Declaración jurada de que cuenta con el permiso tramitado ante la Fiscalía de Espectáculos Públicos del Teatro Nacional de Costa Rica, para el pago del impuesto a los espectáculos públicos, únicamente si aplica para el tipo de evento del que se trate y según las disposiciones vigentes en la materia. Esto con la finalidad de que el Ministerio de Cultura y Juventud y sus órganos desconcentrados establezcan las coordinaciones internas con el Teatro Nacional para verificar posteriormente si se cuenta con dicho permiso.
+2. Declaración jurada de que cuenta con visto bueno de la Comisión de Control y Calificación de Espectáculos Públicos del Ministerio de Justicia y Paz (Ley de Espectáculos Públicos, Materiales Audiovisuales e Impresos No. 7440 del 11 de octubre de 1994 y su Reglamento (Decreto Ejecutivo No. 26937-J del 27 de agosto de 1998), únicamente si aplica para el tipo de evento del que se trate y según las disposiciones vigentes en la materia. Esto con la finalidad de que el Ministerio de Cultura y Juventud y sus órganos desconcentrados establezcan las coordinaciones internas con el Ministerio de Justicia y Paz para verificar posteriormente si se cuenta con dicho visto bueno.
+3. Cumplir con los lineamientos ambientales establecidos en el Plan de Gestión Ambiental Institucional vigente.
+4. Acogerse al Plan de Evacuación vigente para las instalaciones del Ministerio.
+En caso de que el espacio del MCJ o del órgano desconcentrado cuente con permiso sanitario de funcionamiento vigente emitido por el Ministerio de Salud, y la naturaleza del evento se ajusten a los parámetros establecidos dicho permiso, no se requerirá trámite adicional ante el Ministerio de Salud.

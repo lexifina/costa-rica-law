@@ -1,0 +1,1 @@
+Artículo 75.- Control interno. Es responsabilidad del Ministerio de Cultura y Juventud y sus órganos desconcentrados establecer los mecanismos de control interno que sean necesarios para fiscalizar el buen uso de los fondos públicos y el cumplimiento de la Ley 10.041.

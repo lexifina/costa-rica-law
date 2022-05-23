@@ -1,0 +1,3 @@
+Artículo 15.- Naturaleza de las sesiones. Las sesiones de la Comisión serán siempre privadas pero la Comisión podrá disponer, acordándolo así por unanimidad de los integrantes presentes, que tenga acceso a ella el público o bien personas específicas, concediéndoles o no el derecho de participar en las deliberaciones con voz, pero sin voto.
+Para efectos de registro y documentación se deberá cumplir lo que al efecto establece la Ley General de la Administración Pública.
+Quienes asistan a las sesiones de la Comisión, guardarán confidencialidad sobre los asuntos conocidos durante la sesión, hasta que el acta respectiva quede en firme.

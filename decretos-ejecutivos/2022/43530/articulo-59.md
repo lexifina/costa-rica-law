@@ -1,0 +1,6 @@
+CAPITULO III. PERMISO DE USO DE ESPACIOS
+ALAMPARO DE LA LEY 10.041
+Artículo 59.- Permiso de uso de espacios culturales. Tanto el Ministerio como sus órganos desconcentrados, podrán permitir el uso gratuito de sus espacios físicos para la difusión, promoción, apoyo, ejecución y comercialización de productos culturales generados por los miembros del sector cultura, afectados por la pandemia.
+Para hacer uso de esta facultad, y en caso de que exista normativa especial al efecto, el jerarca institucional correspondiente la aplicará de forma preferente, y supletoriamente, aplicará lo dispuesto en este reglamento.
+Es obligación de toda persona titular subordinada responsable de fiscalizar el uso de infraestructura pública, establecer mecanismos de control interno para garantizar el cumplimiento de los fines públicos. Esta facultad se materializará, en la medida en que los recursos institucionales lo permitan.
+El préstamo se realizará tomando en cuenta la planificación institucional del MCJ y sus órganos desconcentrados, sea en sus planes operativos institucionales o en el Plan Nacional de Desarrollo, por lo que dicho préstamo se brindará en los espacios disponibles para tal fin determinados por el jerarca respectivo.

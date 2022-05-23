@@ -1,0 +1,1 @@
+Artículo 30.- Instancias responsables del proceso administrativo. El MCJ y sus órganos desconcentrados que implementen Fondos amparados en el presente reglamento definirán las personas funcionarias o unidades técnicas de sus instituciones, que serán responsables del proceso administrativo de los Fondos creados.

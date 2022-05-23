@@ -1,0 +1,1 @@
+Artículo 51.- Costo de arrendamiento. Una vez aprobado el arrendamiento, la persona física o jurídica, deberá pagar el monto definido institucionalmente para el arrendamiento; cuya fijación se realizará de conformidad con la resolución administrativa del Jerarca, que se encuentre publicada y vigente.

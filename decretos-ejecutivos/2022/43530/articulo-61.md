@@ -1,0 +1,1 @@
+Artículo 61.- Relación precaria. El uso temporal de las instalaciones del Ministerio, conforme las disposiciones del artículo 154 de la Ley General de la Administración Pública (N° 6227 del 2 de mayo de 1978), constituye una relación a título precario y no generará relación de inquilinato, derecho de llave, ni otro beneficio diferente al solicitado.

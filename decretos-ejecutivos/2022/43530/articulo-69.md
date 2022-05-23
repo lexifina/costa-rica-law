@@ -1,0 +1,4 @@
+Artículo 69.- Mecanismos de Cooperación. El Ministerio y/o sus órganos desconcentrados, podrán concertar convenios y alianzas público-privadas para generar recursos que serán distribuidos a los sujetos amparados por la Ley 10.041. La forma en que la institución reciba, registre y ponga a disposición esos recursos, deberá respetar las disposiciones que al respecto establece el Ministerio de Hacienda.
+Los recursos de los que eventualmente llegase a disponer el Ministerio o sus órganos desconcentrados, gestionados por medio de estas figuras, serán reinvertidos en las personas beneficiarias de esta ley mediante:
+a. Fondos concursables específicos de la institución gestionante, para atender al subsector concreto que generó los recursos y estimulando el desarrollo de iniciativas o proyectos que dinamicen la economía.
+b. Proyectos de fomento a reactivación económica.

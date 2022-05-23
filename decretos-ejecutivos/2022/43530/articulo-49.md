@@ -1,0 +1,9 @@
+CAPITULO II. ARRENDAMIENTO DE ESPACIOS
+AL AMPARO DE LA LEY 10.041
+Artículo 49.- Arrendamiento de espacios. Tanto el Ministerio como sus órganos desconcentrados, podrán arrendar sus espacios culturales.
+Los recursos de los que eventualmente llegase a disponer el Ministerio o sus órganos desconcentrados, gestionados por medio de esta figura, serán reinvertidos en las personas beneficiarias de esta ley mediante:
+a. Fondos concursables específicos de la institución gestionante, para atender al subsector concreto que generó los recursos y estimulando el desarrollo de iniciativas o proyectos que dinamicen la economía.
+b. Proyectos de fomento a reactivación económica.
+La forma en que la institución reciba, registre y ponga a disposición esos recursos, deberá respetar las disposiciones que al respecto establezca el Ministerio de Hacienda.
+Para hacer uso de esta facultad, el jerarca institucional correspondiente aplicará la reglamentación especial vigente de forma preferente. En caso de no existir normativa al efecto, se determinarán anualmente los rubros para el alquiler de los espacios y los tipos de actividades para los que se arrendarán los espacios, mediante resolución administrativa que será debidamente publicada. Para la definición de los montos, las diferentes instancias del ministerio que ya utilizan la figura de arrendamiento podrán colaborar facilitando los instrumentos técnicos y mecanismos de definición de estos conceptos.
+El arrendamiento se realizará tomando en cuenta la planificación institucional del MCJ y sus órganos desconcentrados sea en sus planes operativos institucionales o plan nacional de desarrollo, por lo que el arrendamiento se brindará en los espacios disponibles para tal fin determinados por el jerarca respectivo y en concordancia con las posibilidades institucionales.

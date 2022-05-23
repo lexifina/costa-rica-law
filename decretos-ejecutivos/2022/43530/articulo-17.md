@@ -1,0 +1,4 @@
+Artículo 17.- Actas. De cada sesión se levantará un acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y el resultado de la votación y el contenido de los acuerdos. Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que se acuerde su firmeza por votación de al menos cinco integrantes de la Comisión.
+Las actas serán firmadas por el Presidente (a), el o la Secretaria (a), y por aquellos integrantes que hubieren hecho constar su voto disidente.
+Estarán disponibles al público en general en la página web institucional https://mcj.go.cr/ministerio/comisiones/leysalvamento.
+En caso de utilizar libros de actas físicos corresponderá realizar de previo la legalización ante la auditoría interna institucional.

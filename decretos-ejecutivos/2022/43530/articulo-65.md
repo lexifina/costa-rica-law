@@ -1,0 +1,1 @@
+Artículo 65.- Tiempo de resolución. De conformidad con los artículos 330 y 331 de la Ley General de la Administración Pública, el jerarca correspondiente contará con un plazo máximo de un mes calendario para resolver lo requerido y comunicarlo al solicitante.

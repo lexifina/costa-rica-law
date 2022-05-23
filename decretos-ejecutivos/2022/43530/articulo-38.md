@@ -1,0 +1,1 @@
+Artículo 38.- Vías para la recepción de proyectos. Las vías para la recepción de proyectos -sean estas físicas o digitales-, serán definidas en las bases de participación de cada Fondo específico que establezca el Ministerio o el órgano desconcentrado responsable de dicho Fondo.

@@ -1,0 +1,2 @@
+Artículo 22.- Revisión de requisitos. El Ministerio de Cultura y Juventud, verificará que las personas registradas hayan cumplido con los requisitos establecidos en el artículo anterior.
+Para eso contará con el término máximo de 7 días naturales. En caso necesario y durante ese plazo, otorgará un término de 1 día hábil para subsanes por el medio de notificación que indique la persona interesada. Quien no cumpla con aportar lo requerido no podrá participar de la Asamblea de su interés.

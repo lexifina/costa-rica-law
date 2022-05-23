@@ -1,0 +1,1 @@
+Artículo 6.- Vigencia de los nombramientos. A efecto de democratizar la participación de los sectores representados en la Comisión, sus nombramientos se renovarán bianualmente y podrán ser objeto de reelección.

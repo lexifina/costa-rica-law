@@ -1,0 +1,1 @@
+Artículo 13.- Quórum. Para que pueda sesionar válidamente la Comisión, el quórum se constituirá con la mitad más uno de la totalidad de sus integrantes (cuatro). Este, deberá mantenerse durante las deliberaciones y al efectuarse las votaciones.
