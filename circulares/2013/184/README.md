@@ -14,3 +14,4 @@ Actualización de la circular N° 30-2008 sobre las Buenas Prácticas, para noti
 | --- | --- | --- |
 | 1 | 2013-10-23 | la propia norma |
 | 2 | 2015-12-03 | Circular 231 (2015-12-03) |
+| 3 | 2022-05-23 | Circular 91 (2022-05-23) |
