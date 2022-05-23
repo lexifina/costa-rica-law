@@ -1,4 +1,0 @@
-Sección II. Organización y funcionamiento de los Comités de Apoyo.
-Artículo 41 º. Fundamento del Comité Corporativo de Tecnología de Información.
-El Comité Corporativo de Tecnología de Información tiene su fundamento en el acuerdo SUGEF 14-17, Reglamento General de Gestión de Tecnología de Información. El mismo debe orientarse principalmente a asegurar que las Tecnologías de Información sean consistentes con la estrategia del Conglomerado Financiero, y contribuyan en la consecución de los beneficios esperados, eficiencia, productividad y competitividad. Asimismo, debe velar porque los riesgos relacionados con las Tecnologías de Información sean debidamente conocidos y administrados.
-Este Comité debe velar porque los insumos de información y análisis que genera sean empleados para la toma de decisiones.

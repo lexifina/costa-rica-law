@@ -1,7 +1,0 @@
-CAPÍTULO II
-Organización de los Comités y Comisiones del Conglomerado Financiero en general
-Artículo 5°. Integración.
-Con el fin de fortalecer la visión corporativa, se han definido Comités y Comisiones encargados de analizar los temas, tanto del Banco, como de las Sociedades. La integración de los Comités y de las Comisiones del Conglomerado Financiero, regulados en el presente reglamento, le corresponderá a la Junta Directiva Nacional. Asimismo, sus miembros podrán ser reelectos o removidos por la Junta Directiva Nacional.
-La Junta Directiva Nacional podrá designar en los Comités y las Comisiones a los miembros y/o asesores externos cuando la normativa externa y/o a criterio de la Junta Directiva Nacional se requiera, con base en el procedimiento de contratación que para tal efecto corresponda.
-Para el caso de las Juntas Directivas de las Sociedades, podrán contar con Comités que no sean corporativos, siempre y cuando, exista un requerimiento legal o normativo que lo obligue. Cuando las Juntas Directivas requieran la creación de Comisiones Especiales para tratar temas específicos, deberán contar con la aprobación de la Junta Directiva Nacional. La integración de estos Comités y Comisiones le corresponderá a las Juntas Directivas de las Sociedades. Los integrantes de estos Comités y Comisiones podrán ser reelectos o removidos por las Juntas Directivas de las Sociedades, según corresponda.
-La rotación de los miembros es un elemento que debe ser tomado en cuenta, según sean las competencias y la experiencia de los miembros y de los nominados.

@@ -1,2 +1,0 @@
-Artículo 2°. Responsable general del Gobierno Corporativo.
-Según lo establecido en el Acuerdo SUGEF 16-16, la Junta Directiva Nacional es el órgano responsable del Gobierno Corporativo del Conglomerado Financiero. Adicionalmente, el Banco Popular debe cumplir su responsabilidad subsidiaria e ilimitada como entidad controladora ante las acciones de las Sociedades que conforman el Conglomerado Financiero, según lo establecido en la Ley Orgánica del Banco Central de Costa Rica No 7558.

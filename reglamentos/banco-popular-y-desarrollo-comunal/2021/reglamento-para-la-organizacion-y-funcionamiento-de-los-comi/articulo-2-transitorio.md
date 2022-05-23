@@ -1,1 +1,0 @@
-Transitorio II. Las juntas directivas de las sociedades del Conglomerado deberán dejar sin efecto los comités que sean homólogos a los que se establecen en forma corporativa en el presente Reglamento, y que hayan previamente conformado, salvo los que por normativa prudencial del regulador, deban permanecer.

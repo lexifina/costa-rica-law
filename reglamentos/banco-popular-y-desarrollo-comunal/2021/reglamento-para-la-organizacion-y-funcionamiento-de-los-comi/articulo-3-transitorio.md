@@ -1,1 +1,0 @@
-Transitorio III. Los comités técnicos y de apoyo que se encuentran incorporados en el presente reglamento podrán realizar hasta un máximo de dos sesiones mensuales ordinarias hasta el último día hábil de abril del 2022.

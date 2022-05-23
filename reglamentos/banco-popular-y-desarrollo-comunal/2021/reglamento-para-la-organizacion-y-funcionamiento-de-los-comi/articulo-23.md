@@ -1,2 +1,0 @@
-Artículo 23°. Informe de labores.
-Los Comités y las Comisiones deben rendir un informe trimestral de labores, que contemple como mínimo: impacto de las recomendaciones realizadas por el órgano, propuestas, iniciativas y resultados, personas integrantes del órgano, número de sesiones celebradas, acuerdos tomados, cumplidos, en proceso, pendientes, temas diversos de interés del Comité o de la Comisión y el cumplimiento del plan de trabajo. Los corporativos los rinden ante la Junta Directiva Nacional, en los demás casos, ante la respectiva Junta Directiva.
