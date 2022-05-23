@@ -1,5 +1,0 @@
-MUNICIPALIDAD DE CORREDORES
-El Concejo Municipal de Corredores, a través del acuerdo N° 25, de la sesión ordinaria N° 73 celebrada el día 27 de setiembre del año 2021, acuerda: De conformidad con la recomendación de la Comisión de Jurídicos, por unanimidad el Concejo Municipal acuerda aprobar Reglamento para la aplicación del Régimen de Dedicación Exclusiva y Prohibición en la Municipalidad de Corredores.
-CAPÍTULO I
-Definiciones
-Artículo 1º-Dedicación Exclusiva: Régimen de naturaleza contractual que surge por iniciativa de la Administración cuando se identifica la necesidad de que quien ostente un cargo público, se desempeñe en ese puesto de manera exclusiva, lo cual implica que no ejerza su profesión liberal ni profesiones relacionadas con dicho cargo en ninguna otra institución pública o privada, por un periodo de tiempo definido. Es de carácter potestativo y únicamente podrá ser otorgada a los funcionarios de la Municipalidad de Corredores que firmen el respectivo contrato, previa resolución administrativa. Su compensación económica se otorga dependiendo del grado académico y las características del puesto.

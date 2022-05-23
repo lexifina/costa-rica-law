@@ -1,1 +1,0 @@
-Artículo 15.-Los derechos y obligaciones derivados de la dedicación exclusiva y prohibición, se suspenden cuando el servidor se encuentre disfrutando de un permiso sin goce de sueldo debidamente autorizado por la Administración

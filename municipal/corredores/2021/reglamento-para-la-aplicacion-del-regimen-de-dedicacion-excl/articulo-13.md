@@ -1,1 +1,0 @@
-Artículo 13.-Vigencia del contrato de prohibición. Será obligatorio para el trabajador que se encuentra dentro de los presupuestos de ley acogerse al régimen de prohibición mientras perdure la relación de servicio. En caso de incumplimiento comprobado del funcionario, será cesado del cargo. Previo procedimiento administrativo.

@@ -1,1 +1,0 @@
-Artículo 25.-El Alcalde Municipal, determinará con fundamento en la documentación suministrada, si el servidor cumple con los requisitos necesarios para disfrutar del régimen de prohibición. En caso, de considerar que si cumple con los requisitos procederá a la aprobación, y firma del contrato.

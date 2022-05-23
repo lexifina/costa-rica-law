@@ -1,1 +1,0 @@
-Artículo 22.-Una vez firmado el contrato respectivo, el servidor no podrá ejercer en forma liberal la profesión comprometida con dicha dedicación exclusiva, así como actividades relacionadas a su cargo sean éstas de manera remunerada o ad-honoren, salvo las excepciones establecidas en este reglamento.
