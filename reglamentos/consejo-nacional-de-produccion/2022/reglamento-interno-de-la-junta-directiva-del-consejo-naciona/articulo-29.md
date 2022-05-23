@@ -1,0 +1,1 @@
+Artículo 29° - En la agenda se definirá e identificará con claridad el tema que por su naturaleza resulte ser de carácter confidencial quedando bajo responsabilidad de las personas integrantes (le Junta Directiva guardar la discreción que corresponde al manejo de dicha información.

@@ -1,0 +1,1 @@
+Artículo 21°- Las sesiones de Junta Directiva deberán tener lugar en forma ordinaria en las oficinas centrales de la Institución, excepto cuando la Junta Directiva haya acordado previamente hacerlo en otro recinto por razones de conveniencia y oportunidad debidamente indicadas.

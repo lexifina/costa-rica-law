@@ -1,0 +1,1 @@
+Artículo 55°- En todo lo que esté expresamente regulado en el presente reglamento, se podrán aplicar supletoriamente las disposiciones de la Ley Orgánica del CNP, la Ley General de la Administración Pública y demás leyes integrantes del ordenamiento administrativo de la República.

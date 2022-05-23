@@ -1,0 +1,1 @@
+Artículo 30°- Los acuerdos adquirirán firmeza al momento de la aprobación del acta, salvo que, en el acto de la votación así se exprese por al menos (los tercios de la totalidad de las personas integrantes del Órgano Colegiado.

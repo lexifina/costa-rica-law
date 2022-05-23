@@ -1,0 +1,1 @@
+Artículo 14° - La Dirección de Planificación, con el propósito de realizar la evaluación del desempeño de las personas integrantes de Junta Directiva, deberá confeccionar, aplicar y actualizar el instrumento de evaluación.

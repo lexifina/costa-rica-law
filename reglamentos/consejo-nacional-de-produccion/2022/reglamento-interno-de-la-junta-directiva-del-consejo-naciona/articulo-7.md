@@ -1,0 +1,1 @@
+Artículo 7 - La Junta Directiva elegirá de su seno un(a) Vicepresidente (a) por período de un año, pudiendo ser reelecto (a). quien reemplazará en el órgano colegiado al Presidente (a) de Junta Directiva en caso de ausencia.

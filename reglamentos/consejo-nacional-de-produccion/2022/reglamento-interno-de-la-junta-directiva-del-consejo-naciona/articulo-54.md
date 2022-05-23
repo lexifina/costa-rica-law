@@ -1,0 +1,4 @@
+CAPITULO V
+Disposiciones finales y derogatorias
+Artículo 54°- Las reformas totales o parciales del Reglamento se harán por el voto de las dos terceras partes de los directivos.
+Las dudas de interpretación se resolverán por simple mayoría previo dictamen de la Dirección de Asuntos Jurídicos del CNP.

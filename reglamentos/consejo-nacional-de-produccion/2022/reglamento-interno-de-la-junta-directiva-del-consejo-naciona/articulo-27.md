@@ -1,0 +1,1 @@
+Artículo 27°-Todos los asuntos de agenda deberán ser formuladas con al menos cuatro días naturales de antelación a la sesión con la finalidad (le que los documentos respectivos sean remitidos a los demás directivos con al menos tres días naturales previos a la Sesión.

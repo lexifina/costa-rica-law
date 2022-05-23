@@ -1,0 +1,1 @@
+Artículo 23° - Durante el transcurso de la sesión, el o la Presidente(a) de la Junta dispondrá discrecionalmente sobre lo relativo al uso de la palabra, tanto en lo referente al orden en que se conceda como número máximo de expositores que convenga para que el asunto quede suficientemente discutido, así como a la duración de las intervenciones.

@@ -1,0 +1,1 @@
+Artículo 22°.- quórum de las sesiones se formará con la mitad más uno de los miembros de la Junta Directiva. El o la Gerente General, el o la Subgerente Gerente General, el Auditor(a), la asesoría legal deben asistir a las sesiones de Junta cuando fueren convocados, todos ellos con voz pero no voto.

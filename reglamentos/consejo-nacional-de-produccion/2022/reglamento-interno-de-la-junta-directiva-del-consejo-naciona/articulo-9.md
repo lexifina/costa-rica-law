@@ -1,0 +1,1 @@
+Artículo 9° - En aquellos casos en que fuere necesario por disposición legal . la Junta Directiva nombrará de su seno un(a) Secretario(a) Ad hoc, quien atenderá las funciones que le sean específicamente encomendadas.

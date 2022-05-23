@@ -1,0 +1,1 @@
+Artículo 45°- En atención al principio de publicidad y transparencia de los actos administrativos y al ser estos de interés público, las Actas serán incorporadas en la página web de] Consejo Nacional de Producción poniendo en conocimiento terceros las deliberaciones ahí contenidas y los acuerdos emitidos.

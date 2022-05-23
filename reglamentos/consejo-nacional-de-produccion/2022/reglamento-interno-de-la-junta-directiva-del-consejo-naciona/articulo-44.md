@@ -1,0 +1,1 @@
+Artículo. 44°- El Libro de Actas deberá ser debidamente aperturado y cerrado por la Auditoría Interna y una vez terminado será empastado, rotulado y quedará bajo la custodia y responsabilidad (le la Secretaría de Actas de conformidad con lo dispuesto en la Ley de Archivos Nacionales.

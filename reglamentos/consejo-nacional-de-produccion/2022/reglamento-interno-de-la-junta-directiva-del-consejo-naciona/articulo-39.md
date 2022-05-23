@@ -1,0 +1,1 @@
+Articulo. 39°En materia de abstención, recusación y prohibiciones, en ausencia de disposición expresa de su texto, deberá aplicarse supletoriamente lo apuntado por los artículos 230 y siguientes de la Ley General de la Administración Pública y los propios de la Ley de Contratación Administrativa.

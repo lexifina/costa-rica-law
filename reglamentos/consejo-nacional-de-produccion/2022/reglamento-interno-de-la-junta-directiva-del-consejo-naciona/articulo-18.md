@@ -1,0 +1,1 @@
+Artículo 18° - El secretario o secretaria nombrado por la Junta Directiva permanecerá en su cargo por tiempo indefinido, salvo remoción que acuerde el órgano con el voto de la mayoría calificada de los miembros. El nombramiento será asimismo por mayoría calificada.

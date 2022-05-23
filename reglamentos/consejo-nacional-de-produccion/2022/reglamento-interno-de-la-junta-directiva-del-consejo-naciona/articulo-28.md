@@ -1,0 +1,1 @@
+Artículo 28°- No podrá ser objeto de inclusión o exclusión, los asuntos que no figuren en el orden del dio. salvo que estén presentes los (los tercios de las personas integrantes de la Junta Directiva y así sea dispuesto por el voto favorable de todos ellos.

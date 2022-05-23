@@ -1,0 +1,1 @@
+Artículo 48°- En el caso de que la justificación sea posterior, la persona integrante está en la obligación de formalizar por escrito la justificación correspondiente, inmediatamente después de su o sus ausencias y antes del inicio de la próxima sesión de Junta Directa a la que asistan ante la Secretaria de la Junta Directiva.
