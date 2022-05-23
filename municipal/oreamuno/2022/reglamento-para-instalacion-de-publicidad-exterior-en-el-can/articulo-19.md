@@ -1,0 +1,1 @@
+Artículo 19.-Cuando proceda la demolición o remoción de la publicidad exterior, se aplicará lo que indica el Reglamento de demoliciones de la Municipalidad de Oreamuno, procedimiento que estará dirigido por el Departamento Legal Municipal.

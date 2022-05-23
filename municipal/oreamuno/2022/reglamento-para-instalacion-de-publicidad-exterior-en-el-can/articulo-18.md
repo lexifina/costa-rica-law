@@ -1,0 +1,1 @@
+Artículo 18.-Se podrá demoler o remover, sin mayor trámite y sin responsabilidad municipal, la publicidad exterior cuando: La publicidad o estructura donde se halle ésta, sea inconveniente o peligrosa a la vida o integridad de las personas, lo determinara según el criterio técnico del departamento de Desarrollo y Control Urbano.

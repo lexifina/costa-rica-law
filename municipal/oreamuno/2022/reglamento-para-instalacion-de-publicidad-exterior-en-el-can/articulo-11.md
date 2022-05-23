@@ -1,0 +1,1 @@
+Artículo 11.-Se podrán colocar rótulos con iluminación externa, la cual no podrá usar espejos, deslumbrar, dañar o molestar la vista de las personas con sus reflejos, alternativas de luz y oscuridad absoluta, con contrastes de colores vivos y/o sus concentraciones de luz intensas, mayores a las producidas por la iluminación pública instalada en sus cercanías.

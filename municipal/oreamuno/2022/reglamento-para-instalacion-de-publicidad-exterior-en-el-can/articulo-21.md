@@ -1,0 +1,1 @@
+Artículo 21.-La publicidad colocada en casetas, parabuses y/o escampaderos deberán conservar un aspecto estético y no ser contrario a las buenas costumbres o la moral y deberán cumplir con lo dispuesto por el Reglamento de los Derechos de Vía y Publicidad Exterior, Decreto Ejecutivo Nº 29253-MOPT.

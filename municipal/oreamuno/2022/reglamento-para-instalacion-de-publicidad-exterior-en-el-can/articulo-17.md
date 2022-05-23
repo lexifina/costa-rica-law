@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Artículo 17.-Por infracción de las disposiciones legales y reglamentarias, podrá la Municipalidad imponer la siguiente sanción:
+a) Suspensión de la licencia comercial, de conformidad con lo dispuesto en el artículo 81 bis del Código Municipal.
+b) Por infracción a la Ley de Construcciones, sin perjuicio de lo que dispongan otras leyes, se podrá imponer las multas establecidas en el artículo 33 por infracción a la ley de construcciones.
