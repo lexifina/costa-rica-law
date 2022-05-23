@@ -1,0 +1,1 @@
+Artículo 22. Publicación Se publicará el Reglamento del Sistema de Información Nacional de Ciencia y Tecnología en un máximo de seis meses a partir de la publicación del presente Reglamento en La Gaceta.

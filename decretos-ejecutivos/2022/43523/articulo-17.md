@@ -1,0 +1,3 @@
+CAPITULO VI.
+SISTEMA DE INFORMACIÓN NACIONAL DE CIENCIA Y TECNOLOGÍA
+Artículo 17. DEFINICIÓN El Sistema de Información Nacional de Ciencia y Tecnología (SINCYT) es la fuente oficial a nivel nacional de información sobre el SNCTI, que incluye datos nacionales de inversión en I+D+i, investigaciones, publicaciones, capital humano, proyectos de I+D+i, centros de investigación y desarrollo, infraestructuras y equipos tecnológicos de laboratorios, según los servicios existentes en los países miembros de la Organización para la Cooperación y el Desarrollo Económico (OCDE). Esta información se presentará a través de una plataforma digital que simplificará el acceso para todos los actores del SNCTI.

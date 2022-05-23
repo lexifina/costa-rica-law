@@ -1,0 +1,3 @@
+CAPITULO III.
+PLAN NACIONAL DE CIENCIA, TECNOLOGÍA E INNOVACIÓN
+Artículo 9: PERSPECTIVA DE CORTO, MEDIANO Y LARGO PLAZO El Plan Nacional de Ciencia, Tecnología e Innovación (PNCTI) es el instrumento de planificación del desarrollo científico, tecnológico y de innovación que propone el Gobierno de la República en el período de su administración. El PNCTI especifica los compromisos de las instituciones públicas del sector sobre el cual tiene rectoría el MICITT para construir hacia la visión de largo plazo del SNCTI en el periodo de su administración. La visión de largo plazo del SNCTI podrá plasmarse en otros documentos de política pública que tengan mayor permanencia en el tiempo.
