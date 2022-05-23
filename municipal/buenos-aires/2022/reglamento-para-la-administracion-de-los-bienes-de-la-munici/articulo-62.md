@@ -1,0 +1,1 @@
+Artículo 62.-Valoración del control inmediato sobre el bien. En caso de abrirse un procedimiento administrativo por desaparición, robo o daño de un activo, se tomará en cuenta si el bien en cuestión se encontraba o no bajo el control inmediato del responsable.

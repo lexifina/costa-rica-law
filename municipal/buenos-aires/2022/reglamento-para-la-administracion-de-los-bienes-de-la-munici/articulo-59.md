@@ -1,0 +1,1 @@
+Artículo 59- Para efectos de calcular la depreciación de los bienes muebles e inmuebles y sus mejoras, se registrarán según lo establecido en el presente reglamento y en apego a las Normas Internacionales de Contabilidad para el Sector Público.

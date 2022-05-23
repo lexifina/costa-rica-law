@@ -1,0 +1,1 @@
+Artículo 41.-Seguro de los Bienes. Los bienes muebles que requieran de un seguro no podrán utilizarse hasta que estén cubiertos o protegidos por la póliza correspondiente. Así mismo se debe asegurar todo bien que se considere debe estar protegido por una póliza. El trámite de aseguramiento le corresponde al responsable del bien.

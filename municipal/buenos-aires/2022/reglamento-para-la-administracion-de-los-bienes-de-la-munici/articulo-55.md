@@ -1,0 +1,1 @@
+Artículo 55.-De la entrega del bien donado. Una vez realizadas todas las diligencias para la donación del bien, la entrega final del mismo al ente beneficiario corresponderá al Coordinador de la Proveeduría Institucional o al funcionario que el designe para tal efecto.

@@ -1,0 +1,1 @@
+Artículo 50.-De la creación del expediente administrativo para controlar el registro de las donaciones. El Departamento de Proveeduría, confeccionará un expediente cada año en el cual llevará el registro de todas las solicitudes de donación recibidas, así como las respuestas a las mismas y las diligencias realizadas al efecto (actas, y otros).

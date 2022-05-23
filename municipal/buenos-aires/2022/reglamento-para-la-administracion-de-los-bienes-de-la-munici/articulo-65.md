@@ -1,0 +1,1 @@
+Artículo 65.-Ingreso a la Municipalidad de bienes de uso personal. En el caso de que un funcionario ingrese a las instalaciones de la Municipalidad algún bien que sea de uso personal, que pudiera ser confundido con un bien municipal, deberá realizar por escrito una comunicación a la Proveeduría que indique este hecho

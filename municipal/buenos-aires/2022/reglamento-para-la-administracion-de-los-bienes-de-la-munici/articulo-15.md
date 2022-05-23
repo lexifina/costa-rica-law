@@ -1,0 +1,1 @@
+Artículo 15 - Inscripción de bienes. Corresponde a las unidades de Asesoría Jurídica, la Proveeduría y Contabilidad municipales, velar para que se realicen las gestiones pertinentes para el registro de bienes sujetos a inscripción en el Registro Nacional.

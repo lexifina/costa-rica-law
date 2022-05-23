@@ -1,0 +1,2 @@
+Artículo 18.- Los activos del Centro de Cuido y Desarrollo Infantil (CECUDI). Se llevará un registro auxiliar permanente de los bienes muebles e inmuebles adquiridos para el CECUDI con recursos del FODESAF debidamente plaqueados de manera tal, que facilite tanto su ubicación como su estado2.
+2Convenio Marco de Cooperación y aporte financiero entre la Municipalidad de Buenos aires y el Ministerio de Trabajo y Seguridad Social/Dirección General de Desarrollo Social y Asignaciones Familiares, suscrito el 09 de octubre de 2014.

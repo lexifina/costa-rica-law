@@ -1,0 +1,1 @@
+Artículo 6º-Derechos de los funcionarios usuarios de activos en general. Todo usuario tiene derecho a recibir, en buenas condiciones de funcionamiento y conservación, los bienes necesarios para el cumplimiento de sus labores, cualquier desperfecto menor en el activo se anotará en el documento de entrega al momento de recibir el bien.

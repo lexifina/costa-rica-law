@@ -1,0 +1,1 @@
+Artículo 2º-Alcance: Las disposiciones de este reglamento son de acatamiento obligatorio para todos los funcionarios de la Municipalidad de Buenos Aires y demás órganos adscritos, comités, consejos, juntas, etc. autorizados para que en el ejercicio de sus funciones administren activos municipales.

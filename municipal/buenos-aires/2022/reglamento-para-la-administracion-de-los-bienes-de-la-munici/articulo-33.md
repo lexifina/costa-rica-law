@@ -1,0 +1,1 @@
+Artículo 33.-Bajas por venta de activos. Para los casos de venta esta se hará por medio de remate o licitación de acuerdo con los alcances de la Ley de Contratación Administrativa y su Reglamento General. La base será la fijada en el avalúo respectivo.

@@ -1,0 +1,1 @@
+Artículo 36.-Verificaciones físicas. La Proveeduría Institucional será la encargada del registro de bienes, cuando lo estime conveniente y sin previo aviso, podrá realizar verificaciones físicas totales o selectivas en las diferentes unidades funcionales de la Municipalidad que seleccione, con el fin de comprobar la exactitud del inventario asignado a cada unidad.

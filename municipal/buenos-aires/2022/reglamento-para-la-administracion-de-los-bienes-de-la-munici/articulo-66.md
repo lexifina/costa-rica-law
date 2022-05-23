@@ -1,0 +1,1 @@
+Artículo 66.-Casos no previstos en este Reglamento. Los casos no previstos en este Reglamento se resolverán conforme con la jurisprudencia administrativa, dictámenes del Poder Ejecutivo, de la Procuraduría General de la República y de la Contraloría General de la República, emitidos sobre la materia aquí reglamentados o cualquier otra norma que lo contemple.
