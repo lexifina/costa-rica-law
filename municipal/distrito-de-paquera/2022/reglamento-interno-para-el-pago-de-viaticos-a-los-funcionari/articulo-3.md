@@ -1,0 +1,1 @@
+Artículo 3º-Concepto. Por viatico se entenderá? aquella suma destinada a la atención de gastos de transporte, alimentación u hospedaje, que el Concejo Municipal Distrito de Paquera reconoce a los empleados Municipales.

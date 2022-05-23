@@ -1,0 +1,1 @@
+Artículo 7º-Corresponde al Jefe inmediato de la unidad autorizar el pago del viatico, y al Intendente aprobar el pago correspondiente del mismo, por medio escrito, justificando el motivo, en aplicación a lo establecido en el artículo 6°, en lo que respecta al hospedaje fuera del Distrito.

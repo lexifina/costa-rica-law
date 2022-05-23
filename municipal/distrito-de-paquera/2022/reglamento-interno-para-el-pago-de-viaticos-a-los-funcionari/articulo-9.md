@@ -1,0 +1,1 @@
+Artículo 9º-Los trabajadores municipales, tendrán dos días para realizar la liquidación si solicitaron adelanto de caja chica, y ocho días para una liquidación de viático normal, dichas liquidaciones deberán ir con los comprobantes correspondientes.

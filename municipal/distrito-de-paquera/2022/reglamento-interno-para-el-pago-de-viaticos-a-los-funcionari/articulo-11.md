@@ -1,0 +1,1 @@
+Artículo 11.-Para el reconocimiento de los gastos de hospedaje y alimentación solo se reconocerá? el monto establecido en dicho comprobante hasta el límite establecido según los montos publicados en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos de la Contraloría General de la Republica.
