@@ -1,0 +1,1 @@
+Artículo 25.-Restricción de pago de servicios utilizados por terceros. De conformidad con la norma institucional dispuesta en este reglamento, la Municipalidad San Carlos no cubrirá gasto alguno de los teléfonos celulares, líneas telefónicas a nombre de terceros.

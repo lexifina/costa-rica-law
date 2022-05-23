@@ -1,0 +1,1 @@
+Artículo 4°-Supervisión del cumplimiento. Servicios Generales será la unidad administrativa dentro de la Municipalidad San Carlos encargada de velar por el cumplimiento del presente reglamento a nivel central, labor que deberá ser realizada de manera conjunta con la jefatura directa a cada departamento que requiera el uso de teléfonos celulares.

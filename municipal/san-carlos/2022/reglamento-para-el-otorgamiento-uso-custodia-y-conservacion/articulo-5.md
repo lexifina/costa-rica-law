@@ -1,0 +1,1 @@
+Artículo 5°-Finalidad. Se entenderá que el servicio de teléfono celular es un instrumento de trabajo que facilita la Municipalidad San Carlos a sus colaboradores para incrementar la eficiencia operativa de la comunicación institucional.
