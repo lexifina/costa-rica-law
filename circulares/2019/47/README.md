@@ -13,3 +13,4 @@ Reiteración de circular N° 231-2015, relacionada con 1) Modificación de la Ci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-26 | la propia norma |
+| 2 | 2022-05-23 | Circular 91 (2022-05-23) |
