@@ -1,0 +1,1 @@
+Artículo 7.- De los puestos teletrabajables. Un puesto se considerará teletrabajable cuando al menos el cincuenta por ciento (50%) de sus actividades cumplan con las características señaladas en el artículo 6 del presente reglamento.

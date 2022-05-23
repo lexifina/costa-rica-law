@@ -1,0 +1,1 @@
+Artículo 11.- De las Modalidades de Teletrabajo. El teletrabajo podrá realizarse bajo distintas modalidades a saber: móvil, domiciliario, en telecentros o lugares aprobados por la Institución, para teletrabajar.

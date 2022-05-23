@@ -1,0 +1,1 @@
+Artículo 2.- Del Objeto. El objeto del presente reglamento es regular la prestación de servicios por parte de las personas funcionarias de la Junta de Protección Social, en adelante "JPS", en la modalidad de teletrabajo y establecer las condiciones legales, técnicas y administrativas para su implementación.

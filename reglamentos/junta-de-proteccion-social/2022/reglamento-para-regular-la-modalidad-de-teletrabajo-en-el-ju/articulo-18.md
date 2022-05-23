@@ -1,0 +1,1 @@
+Artículo 18.- De su finalidad. A la Comisión Institucional de Teletrabajo, le corresponde asesorar a la Junta Directiva en materia de planificación e implementación de acciones que impulsen la modalidad de teletrabajo a nivel institucional.

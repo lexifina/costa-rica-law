@@ -1,0 +1,1 @@
+Artículo 12.- De las Pólizas de los teletrabajadores. Los teletrabajadores estarán cubiertos por la Póliza de Riesgos de Trabajo que tiene la Institución, siempre que se encuentren ejerciendo labores propias de su cargo, dentro de los horarios previamente establecidos para ello y en los lugares debidamente autorizados para ello.
