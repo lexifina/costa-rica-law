@@ -1,13 +1,12 @@
-Artículo 8. De las funciones. El Comité Corporativo de Cumplimiento tiene las siguientes funciones que corresponden a las establecidas en Acuerdo Sugef 12- 10 Normativa para el Cumplimiento de la Ley n.°8204, más las que se detallan:
-a. Proponer a la Junta Directiva las políticas de confidencialidad respecto a servidores y directivos en el tratamiento de los temas relacionados con la legitimación de capitales y financiamiento al terrorismo.
-b. Revisar las políticas, procedimientos, normas y controles establecidos por la entidad para cumplir los lineamientos de Ley n.° 7786 y la presente normativa.
-c. Vigilar el cumplimiento del plan de trabajo de las oficialías de cumplimiento de cada una de las empresas del Conglomerado Financiero BCR, que fue aprobado por su respectiva Junta Directiva.
-d. Colaborar con la Gerencia Corporativa de Capital Humano en la elaboración del Código de ética corporativo del Conglomerado Financiero BCR para su aprobación por parte de la Junta Directiva General.
-e. Conocer los resultados de las evaluaciones de la capacitación anual del personal.
-f. Proponer y recomendar para la aprobación por parte de la Junta Directiva General, la metodología y la inclusión o exclusión de criterios del modelo de riesgo de legitimación de capitales de clientes de cada empresa del Conglomerado Financiero BCR.
-g. Conocer informes de operaciones inusuales.
-h. Conocer detalles de clientes con movimientos ascendentes o descendentes en la calificación de riesgo de legitimación de capitales.
-i. Reunirse periódicamente con el fin de revisar las deficiencias relacionadas con el cumplimiento de las políticas y procedimientos adoptados y tomar medidas y acciones para corregirlas.
-j. Conocer informes de los estudios efectuados de las auditorías internas y en materia de legitimación de capitales.
-k. Aprobar el perfil de los clientes que presenta el oficial de cumplimiento y las modificaciones a dicho perfil; así como, resolver el cierre de relaciones comerciales con clientes del Banco por el uso inadecuado de los productos y servicios de acuerdo a lo señalado en la Ley de Psicotrópicos (n.° 7786), el reglamento a esta ley y la normativa vigente.
-l. Dar seguimiento a los proyectos de impacto en el área de cumplimiento.
+Artículo 8º-De las funciones. Para cumplir con lo establecido en el acuerdo Sugef 12- 21 Reglamento para la prevención del riesgo de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva, aplicable a los sujetos obligados por el artículo 14 de la ley 7786, al Comité Corporativo de Cumplimiento le corresponden las siguientes funciones:
+a. Proponer a la Junta Directiva las políticas de confidencialidad respecto a las personas trabajadoras del Conglomerado Financiero BCR y directivos en el tratamiento de los temas relacionados con LC/FT/ FPADM/FDO.
+b. Conocer y vigilar el cumplimiento del plan de trabajo de la Oficialía de Cumplimiento del BCR y de las oficialías de cumplimiento de cada una de las empresas del Conglomerado Financiero BCR, y elevarlo a la Junta Directiva para su respectiva aprobación.
+c. Colaborar con la Gerencia Corporativa de Capital Humano para la inclusión de temas de prevención de LC/FT/FPADM/FDO en el Código de ética corporativo del Conglomerado Financiero BCR para su aprobación por parte de la Junta Directiva General.
+d. Proponer y recomendar para la aprobación por parte de la Junta Directiva General, la metodología y la inclusión o exclusión de criterios del modelo de LC/FT/FPADM/ FDO de cada empresa del Conglomerado Financiero BCR.
+e. Realizar informes al menos semestralmente a la Junta Directiva General, sobre la exposición al riesgo de LC/ FT/FPADM/FDO, y en casos en que existan situaciones relevantes de reportar.
+f. Conocer los resultados que presenta el oficial de cumplimiento de: las evaluaciones de la capacitación anual del personal, el detalle de los clientes que han sufrido movimientos ascendentes o descendentes en su clasificación de riesgo, las operaciones inusuales analizadas y un resumen de las operaciones sospechosas y operaciones intentadas reportadas a la UIF.
+g. Revisar las políticas, procedimientos, normas y controles implementados para cumplir con el marco normativo vigente en materia de LC/FT/FPADM/FDO.
+h. Conocer informes de los estudios efectuados de las auditorías internas y en materia de LC/FT/FPADM/ FDO.
+i. Informar a la Junta Directiva General sobre el seguimiento de los planes correctivos definidos para subsanar las debilidades y oportunidades de mejora identificadas en los estudios de las auditorías interna y externa; informes de la superintendencia respectiva y de la evaluación de riesgos de LC/FT/FPADM/FDO por parte de la Oficialía de Cumplimiento y por el Comité Corporativo de Cumplimiento.
+j. Dar seguimiento a los proyectos de impacto en el área de Cumplimiento.
+(Así reformado en sesión N° 20 del 24 de mayo de 2022)

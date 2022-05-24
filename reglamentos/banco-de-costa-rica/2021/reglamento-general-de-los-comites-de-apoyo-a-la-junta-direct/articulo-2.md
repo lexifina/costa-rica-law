@@ -1,4 +1,4 @@
-Artículo 2. De las funciones. El Comité Corporativo Ejecutivo tiene las siguientes funciones:
+Artículo 2.-De las funciones. El Comité Corporativo Ejecutivo tiene las siguientes funciones:
 Relacionadas con temas estratégicos para articular y controlar el accionar del Conglomerado Financiero BCR:
 a. Proponer y dar seguimiento al cumplimiento del Plan Estratégico, a la normativa interna y controles del Banco y sus subsidiarias; así como, aprobar las propuestas relacionadas con el cumplimiento de dicho plan y someterlo a conocimiento y aprobación de la Junta Directiva General o de las Juntas Directivas de las subsidiarias según corresponda.
 b. Asegurar el seguimiento de los objetivos estratégicos; así como, la implementación de objetivos tácticos y las actividades programadas.
@@ -15,18 +15,19 @@ l. Conocer los temas que en materia de riesgos del Conglomerado se presentan par
 m. Garantizar la transparencia y la rendición de cuentas hacia las partes interesadas por medio de los canales e informes que correspondan.
 n. Aprobar y recomendar la normativa que corresponda para la gestión de la gobernanza del Conglomerado Financiero BCR.
 o. Establecer un sistema de información gerencial que permita la toma de decisiones oportuna y la rendición de cuentas.
-p. Implementar y dar seguimiento a las recomendaciones emitidas por los reguladores y auditores internos y externos.
+p. y dar seguimiento a las recomendaciones emitidas por los reguladores y auditores internos y externos.
 Funciones relacionadas con temas vinculados a la gestión comercial:
 a. Analizar, aprobar y dar seguimiento a los planes comerciales y sus respectivos índices de medición; así como, resolver las propuestas de otras áreas relacionados con estos planes.
 b. Aprobar las campañas publicitarias y patrocinios por encima de los trescientos mil dólares o su equivalente en colones.
 c. Aprobar las propuestas de negocios del área comercial.
 d. Dar seguimiento a los proyectos de impacto del área comercial y de soporte; así como, aquellos convenios comerciales establecidos en el Conglomerado Financiero BCR.
 e. Dar seguimiento a la calidad de los servicios de apoyo a las áreas comerciales del Conglomerado Financiero BCR.
-f. Proponer a la Junta Directiva General las acciones estratégicas, planes, y programas vinculados a la actividad comercial.
-g. Aprobar el perfil de los clientes que presenta el oficial de cumplimiento, así como sus modificaciones a dicho perfil.
+f. Proponer a la Junta Directiva General las acciones estratégicas, planes y programas vinculados a la actividad comercial.
+g. Cumplir con las funciones establecidas en el acuerdo Sugef 12-21 Reglamento para la prevención del riesgo de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva, aplicable a los sujetos obligados por el artículo 14 de la ley 7786.
 Funciones relacionadas con gobernanza de las TI según lo establecido en el Acuerdo Sugef 14-17 Reglamento general de gestión de la Tecnología de Información
 a. Definir la priorización de las inversiones de tecnología, asesorar y dar seguimiento al cumplimiento de la estrategia de TI; así como, asegurar la existencia de los recursos para su implementación.
 b. Proponer a la Junta Directiva General las estrategias y los recursos requeridos para la implementación del marco de Gestión de TI.
 c. Proponer a la Junta Directiva General, la firma de auditores externos o profesional independiente de TI para la ejecución de la Auditoría Externa de TI.
 d. Implementar y controlar la ejecución de la normativa administrativa interna de gestión de TI.
 e. Asignar las áreas de negocio responsables de implementar los procesos del Marco de Gestión TI.
+(Así reformado en sesión N° 20 del 24 de mayo de 2022)

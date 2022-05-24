@@ -14,3 +14,4 @@ Reglamento general de los comités de apoyo a la Junta Directiva General y Admin
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-18 | la propia norma |
+| 2 | 2022-05-24 | Reglamento 20 (2022-05-24) |

@@ -1,4 +1,4 @@
-Artículo 23. De las funciones. Para cumplir con lo establecido en el acuerdo Sugef 16-16 Reglamento de Gobierno Corporativo, al Comité Corporativo de Auditoría le corresponden las siguientes funciones:
+Artículo 23.-De las funciones. Para cumplir con lo establecido en el acuerdo Sugef 16-16 Reglamento de Gobierno Corporativo, al Comité Corporativo de Auditoría le corresponden las siguientes funciones:
 a. Conocer los informes de avance del plan de labores que debe presentar cada tres meses el auditor general y los auditores internos de las sociedades.
 b. Ejercer la debida vigilancia en el cumplimiento de las funciones y responsabilidades de la Auditoría Interna con respecto al marco regulatorio y las sanas prácticas.
 c. Informar al Órgano de Dirección sobre la confiabilidad de los procesos contables y financieros, incluido el sistema de información gerencial.
@@ -9,7 +9,8 @@ g. Proponer a la Junta Directiva General, con base en el resultado de la evaluac
 h. Vigilar que la Alta Gerencia tome las acciones correctivas necesarias en el momento oportuno para hacer frente a las debilidades de control, el incumplimiento de las políticas, leyes y reglamentos; así como, otras situaciones identificadas por los auditores y el supervisor.
 i. Supervisar el cumplimiento de las políticas y prácticas contables.
 j. Revisar las evaluaciones y opiniones sobre el diseño y efectividad del gobierno de riesgos y control interno.
-k. Proponer a la Junta Directiva General, los candidatos para ocupar el cargo de auditor interno, excepto en el caso de las entidades supervisadas que se rigen por lo dispuesto en la Ley General de Control Interno, Ley 8292.
+k. Proponer a la Junta Directiva General, los candidatos para ocupar el cargo de auditor interno y subauditor cuando corresponda, excepto en el caso de las entidades supervisadas que se rigen por lo dispuesto en la Ley General de Control Interno, Ley 8292. Para el Conglomerado Financiero BCR aplica esta excepción por lo que procede lo indicado en el Comité Corporativo de Nominaciones y Remuneraciones.
 l. Revisar y aprobar el programa anual de trabajo de la auditoría interna o equivalente y el alcance y frecuencia de la auditoría externa, de acuerdo con la normativa vigente.
 m. Revisar la información financiera anual y trimestral antes de su remisión a la Junta Directiva General, de la entidad y del Vehículo de Administración de Recursos de Terceros, con énfasis en cambios contables, estimaciones contables, ajustes importantes como resultado del proceso de auditoría, evaluación de la continuidad del negocio y el cumplimiento de leyes y regulaciones vigentes que afecten a la entidad o al Vehículo de Administración de Recursos de Terceros.
 n. Revisar y trasladar a la Junta Directiva General, los estados financieros anuales auditados, los informes complementarios, las comunicaciones del auditor externo y demás informes de auditoría externa o interna.
+(Así reformado en sesión N° 20 del 24 de mayo de 2022)
