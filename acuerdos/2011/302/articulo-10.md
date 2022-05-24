@@ -1,1 +1,0 @@
-Artículo 10.—Para dejar sin efecto, parcial o totalmente, un contrato de cesión de derechos de pago presentado ante el AyA, las partes deberán aportar original o fotocopia certificada notarialmente del contrato de liquidación de la cesión de derechos económicos, así como carta del cedente o de su representante legal, en original, indicando la voluntad de las partes.
