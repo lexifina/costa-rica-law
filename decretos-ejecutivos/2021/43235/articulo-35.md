@@ -1,0 +1,1 @@
+Artículo 35.- Si por razones de mantenimiento, protección o conservación se restringen los permisos de filmación, tendrá prioridad la filmación por motivos de investigación científica y de actividades de manejo, sobre la filmación comercial.

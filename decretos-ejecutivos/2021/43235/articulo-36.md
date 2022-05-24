@@ -1,0 +1,1 @@
+Artículo 36.- Las filmaciones de aficionados que pretendan únicamente la preservación de un recuerdo de la visita al ASP, estarán exentas de pago de tarifa según lo dispuesto en el Decreto Ejecutivo N°38295-MINAE del 15 de enero de 2014 y sus reformas, con la salvedad de que las mismas no podrán ser utilizadas para fines comerciales o de lucro.

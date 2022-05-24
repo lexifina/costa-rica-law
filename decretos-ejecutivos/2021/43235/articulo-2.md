@@ -1,0 +1,1 @@
+Artículo 2.- Las disposiciones del presente Reglamento y las indicaciones que emitan los funcionarios del Parque Nacional Palo Verde a las personas que ingresen a dicha Área Silvestre Protegida, en apego a dicho instrumento y la normativa vigente, son de carácter obligatorio.

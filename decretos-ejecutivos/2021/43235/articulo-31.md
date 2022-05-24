@@ -1,0 +1,1 @@
+Artículo 31.- La Administración podrá autorizar la impartición de cursos especializados, los que se tramitarán mediante permisos de uso o contratación de servicios no esenciales según corresponda, de conformidad con las normas que regulan la materia.

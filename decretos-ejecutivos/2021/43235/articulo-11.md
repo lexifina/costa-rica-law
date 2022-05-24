@@ -1,0 +1,1 @@
+Artículo 11.- Para efectos del ingreso al PNPV, y con el fin de demostrar su nacionalidad o lugar de procedencia, los visitantes deberán mostrar a los funcionarios de la caseta de ingreso, la cédula de identidad, cédula de residencia o pasaporte, según corresponda y cuando se amerite.

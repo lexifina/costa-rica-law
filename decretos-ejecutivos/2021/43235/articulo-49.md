@@ -1,0 +1,1 @@
+Artículo 49.- De manera obligatoria, todo visitante deberá acatar las indicaciones de seguridad y orientación dadas por el funcionario, guía o docente autorizado, a cargo del grupo. El incumplimiento a esta disposición será causal para suspender la autorización de permanencia dentro del área protegida.

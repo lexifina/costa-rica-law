@@ -1,0 +1,1 @@
+Artículo 45.- El personal del PNPV, debidamente identificado, podrá cuando lo estime necesario, realizar cualquier otra inspección que la Administración considere necesaria para dar cumplimiento al presente Reglamento y la normativa conexa.

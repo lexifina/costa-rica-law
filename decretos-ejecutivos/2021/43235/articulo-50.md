@@ -1,0 +1,1 @@
+Artículo 50.- La Administración del PNPV, podrá autorizar horarios de ingreso y salida distintos al establecido para el ejercicio del ecoturismo según en el artículo 10 del presente Reglamento, cuando el objeto de ingreso sea filmación o investigación; ello previa solicitud debidamente justificada del permisionario.

@@ -1,0 +1,1 @@
+Artículo 37.- Se encuentra prohibida la filmación con drones dentro del PNPV, excepto cuando la filmación es realizada por la Administración o si los fines son científicos y ello se encuentra debidamente contemplado dentro de la metodología de la investigación que haya sido debidamente aprobada por la Dirección del ACAT.

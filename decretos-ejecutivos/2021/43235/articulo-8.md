@@ -1,0 +1,1 @@
+Artículo 8.- El ingreso al PNPV está permitido únicamente para el ejercicio de las actividades permitidas de acuerdo a lo establecido en el Capítulo III del presente Reglamento, permisionarios, contratistas o para actividades efectuadas u organizadas por la Administración en el ejercicio de sus competencias.

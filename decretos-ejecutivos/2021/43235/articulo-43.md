@@ -1,0 +1,1 @@
+Artículo 43.- La Dirección del ACAT, previa recomendación del Comité Técnico Científico, tiene la potestad de autorizar la apertura de nuevos sitios destinados para la realización de las actividades previstas en el presente Reglamento, así como cerrar aquellos sitios de uso restringido que considere necesarios para fines de manejo o conservación.

@@ -1,0 +1,1 @@
+Artículo 42.- La Administración del PNPV podrá realizar evaluaciones periódicas sobre la calidad en el servicio de guiado de turistas por parte de guías generales, especializados y locales; siendo que de encontrar irregularidades, así lo comunicará al Departamento respectivo del Instituto Costarricense de Turismo para lo que corresponda.

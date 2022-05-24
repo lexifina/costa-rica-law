@@ -1,0 +1,1 @@
+Artículo 10.- Todos los visitantes que deseen ingresar por razones de ecoturismo al PNPV, podrán hacerlo en el siguiente horario: los días que corren de lunes a domingo ingresando entre las 8:00 y las 14:00 horas. En todo caso la hora límite para que los turistas se presenten en el sitio de salida oficial, lo será las 16:00 horas.

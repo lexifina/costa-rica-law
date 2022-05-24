@@ -1,0 +1,3 @@
+Artículo 21.- Adicionalmente a las obligaciones a las que el investigador se encuentre sometido de acuerdo a las normas referidas en los artículos anteriores; aquellas investigaciones cuyos resultados sean catalogados por la Administración de relevancia para la conservación y el manejo de los ecosistemas o especies presentes en el PNPV; el investigador deberá realizar una exposición presencial al personal de PNPV, al culminar la investigación. Para tal efecto deberá coordinar con el Administrador del ASP a efectos de determinar la fecha y lugar. La presentación deberá contener como mínimo:
+a) Resultados obtenidos durante la investigación.
+b) Recomendaciones para la gestión del área protegida a la luz de los hallazgos encontrados.

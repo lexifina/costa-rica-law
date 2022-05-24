@@ -1,0 +1,1 @@
+Artículo 52.- Las actividades de manejo activo dentro del Parque Nacional Palo Verde, se regirán de acuerdo con la normativa establecida para tal efecto y a los actos administrativos concretos que la Dirección del ACAT o la Administración del PNPV, dicten en la materia de acuerdo a sus competencias.

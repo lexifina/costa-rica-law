@@ -1,0 +1,1 @@
+Artículo 47.- En caso de emergencia, la Administración del PNPV tendrá la potestad de ejecutar el plan de contingencia establecido para tal fin, con el propósito de salvaguardar la integridad física de los usuarios y funcionarios. Estas disposiciones administrativas podrán incluir el cierre parcial o total del ASP, por el tiempo que se considere conveniente.
