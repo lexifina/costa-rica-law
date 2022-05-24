@@ -1,2 +1,2 @@
-ARTÍCULO 3.-
-El patrimonio del Fondo estará compuesto por el aporte personal de los trabajadores y el pago que hace la empresa en cumplimiento del contrato colectivo de trabajo; así como por los bienes producto de su giro normal y por los demás bienes y derechos que el Fondo llegue a adquirir.
+Artículo 3- El patrimonio del Fondo estará compuesto por el aporte personal de los trabajadores, así como por los bienes producto de su giro normal y por los demás bienes y derechos que el Fondo llegue a adquirir.
+(Así reformado por el artículo único de lalLey N° 10246 del 5 de mayo del 2022, "Eliminación de aporte de la Refinadora Costarricense de Petróleo S.A (RECOPE) al Fondo de Ahorro, Préstamos, Vivienda, Recreación y Garantía")
