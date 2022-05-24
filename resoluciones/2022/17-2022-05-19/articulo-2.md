@@ -1,0 +1,2 @@
+Artículo 2.- Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Es todo. - Comuníquese.
