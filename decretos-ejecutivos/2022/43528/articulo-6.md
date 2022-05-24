@@ -1,0 +1,1 @@
+Artículo 6º-Persona coordinadora del Equipo Técnico. El Equipo Técnico de la CAP EFTP Dual contará con una persona Coordinadora, que será la persona representante del Ministerio de Educación Pública. Será nombrado por un período de dos años, prorrogable por períodos iguales y sucesivos. La persona Coordinadora será quien presida las sesiones del Equipo Técnico.
