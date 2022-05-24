@@ -1,3 +1,2 @@
-Artículo 10.—Comunicación de declaratoria de incobrabilidad: El acuerdo del Concejo Directivo que declare la incobrabilidad de una deuda total e incobrable contable será comunicada a la Dirección Ejecutiva para que esta traslade el comunicado al Departamento de Cobro y al Departamento de Contabilidad para que proceda a realizar el ajuste contable correspondiente.
-Vigencia.—Rige a partir de su publicación.
-Puntarenas, 30 de junio del 2016
+Artículo 10º- Comunicación de declaratoria de incobrabilidad: El acuerdo del Concejo Directivo que declare la incobrabilidad de una deuda total e incobrable contable será comunicada a la Dirección Ejecutiva para que esta traslade el comunicado al Departamento de Cobro y al Departamento de Contabilidad para que proceda a realizar el ajuste contable correspondiente.
+Vigencia. Rige a partir de su publicación.

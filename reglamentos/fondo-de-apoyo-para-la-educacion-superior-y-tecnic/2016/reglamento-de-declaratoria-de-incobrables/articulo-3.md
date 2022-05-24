@@ -1,4 +1,8 @@
-Artículo 3º—Supuestos de incobrabilidad: Una deuda se tendrá por incobrable, en cualquiera de los siguientes supuestos:
-a) Cuando se tenga por establecido por medio de prueba idónea, que se realizaron las gestiones cobratorias pertinentes (cobro administrativo y judicial), sin embargo el deudor y los fiadores no poseen salarios o bienes embargables (vehículos, propiedades, cuentas bancarias, etc.) por lo que la administración tiene una imposibilidad material para recuperar el monto adeudado al Fondo.
-b) Cuando la suma adeudada sea por un monto más bajo del que se tenga estimado según lo establecido en el artículo 5 de este reglamento, se valorará por el Departamento de Cobro y la Dirección Ejecutiva.
-c) El Consejo Directivo recibirá las valoraciones de manera individual de los casos remitidos por el Departamento de Cobro.
+Artículo 3º-Supuestos de incobrabilidad: Una deuda se tendrá por incobrable, en cualquiera de los siguientes supuestos:
+a) Cuando se tenga por establecido por medio de prueba idónea, que se realizaron las gestiones cobratorias pertinentes (cobro administrativo y judicial), sin embargo, el deudor y los fiadores no poseen salarios o bienes susceptibles que puedan ser utilizados para el pago de la obligación y que no signifiquen para FAESUTP un costo superior al que se debe recuperar, por lo que la administración tiene una imposibilidad material para recuperar el monto adeudado a FAESUTP.
+b) Cuando el prestatario haya fallecido, y no se tenga conocimiento de un procedimiento sucesorio abierto en sede judicial o posterior al pago de la indemnización por parte del Instituto Nacional de Seguros queden saldos descubiertos.
+c) Cuando el prestatario y sus fiadores hayan abandonado el país de forma indefinida.
+d) Cuando la operación de crédito en fase de cobro judicial tenga un plazo de diez años desde su presentación ante el Juzgado, siempre y cuando no se hayan registrado ingresos a la operación crediticia en los dos últimos años.
+e) Cuando la suma adeudada sea por un monto más bajo del que se tenga estimado según lo establecido en el artículo 5 de este reglamento, se valorara por el Departamento de Cobro y la Dirección Ejecutiva.
+f) El Consejo Directivo recibirá las valoraciones de manera individual de los casos remitidos por el Departamento de Cobro.
+g) Cuando por resolución judicial en firme se declare la imposibilidad de continuar con el proceso por existir prescripción o cualquier otro motivo judicialmente declarado.

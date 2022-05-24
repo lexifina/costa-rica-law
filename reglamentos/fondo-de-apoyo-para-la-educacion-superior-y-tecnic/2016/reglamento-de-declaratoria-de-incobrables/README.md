@@ -14,3 +14,4 @@ Reglamento de Declaratoria de Incobrables
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-07-26 | la propia norma |
+| 2 | 2022-05-24 | Reglamento 5 (2022-05-24) |
