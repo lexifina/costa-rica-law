@@ -1,1 +1,1 @@
-ARTÍCULO 2.- Cobertura- Este Reglamento se aplica a la contratación de Corredores de Bienes, cuyo procedimiento se realizará por medio de la Oficina de Contratación Administrativa, en coordinación con la Oficina de Administración de Bienes, ambas del Banco de Costa Rica.
+Artículo 2º—Cobertura. La contratación de corredores de bienes es responsabilidad de la Oficina Administración de Bienes en coordinación con la Oficina de Contratación Administrativa, ambas del Banco de Costa Rica.

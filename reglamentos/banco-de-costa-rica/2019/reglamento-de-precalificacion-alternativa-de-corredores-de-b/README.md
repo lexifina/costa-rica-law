@@ -14,3 +14,4 @@ Reglamento de precalificación alternativa de corredores de bienes para la venta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-13 | la propia norma |
+| 2 | 2022-05-24 | Reglamento 20 (2022-05-24) |

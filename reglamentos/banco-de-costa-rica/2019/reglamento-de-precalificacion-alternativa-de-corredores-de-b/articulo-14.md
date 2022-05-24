@@ -1,3 +1,2 @@
-CAPITULO III
-PROCEDIMIENTO PARA LA VENTA DE LOS BIENES
-ARTÍCULO 14.- Objeto del procedimiento. El Sistema de Precalificación Alternativa de contratación regulado en el presente documento pretende un mecanismo ágil y efectivo para lograr la venta de los bienes adquiridos en pago de obligaciones y adjudicados en remates judiciales en el menor tiempo posible.
+Artículo 14.—Condiciones para la promoción de la venta. El Banco se reserva el derecho de establecer cuáles bienes son promovidos por los corredores, por lo que el Banco debe identificar en la página web de Bienes BCR dichos bienes.
+La relación entre el Banco y el corredor de bienes nacida en virtud de esta contratación no origina ningún tipo de relación de empleo, el corredor actúa por su cuenta y riesgo y su remuneración se limita únicamente al pago de la comisión establecida.

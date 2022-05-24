@@ -1,1 +1,4 @@
-ARTICULO 13.- Retiro justificado del Registro de Elegibles. La solicitud de retiro deberá presentarse por escrito a la Oficina de Contratación Administrativa, la que contará con un plazo de cinco días hábiles posteriores a la presentación para excluir al corredor del Registro de Elegibles.
+CAPÍTULO III
+Corredores de bienes
+Artículo 13.—Objetivo de los corredores de bienes. El corredor de bienes raíces es un intermediario en el proceso de venta de bienes adjudicados al Banco.
+Debe promover la venta de los bienes que el Banco disponga, a fin de conseguir a los potenciales compradores.
