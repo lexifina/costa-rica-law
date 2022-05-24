@@ -14,3 +14,4 @@ Reglamento procedimiento designación personas representantes organizaciones ciu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-22 | la propia norma |
+| 2 | 2022-05-24 | Reglamento 0 (2022-05-24) |
