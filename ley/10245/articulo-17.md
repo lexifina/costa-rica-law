@@ -1,0 +1,2 @@
+ARTICULO 17- Medicamentos e insumos
+La Caja Costarricense de Seguro Social facilitará el acceso al cuadro de medicamentos autorizados para cuidados paliativos e insumos necesarios en el cuido de las personas aseguradas portadoras de enfermedad de condición de vida limitada o de enfermedad en fase terminal, atendidas por las organizaciones no gubernamentales en cuidados paliativos, habilitadas y certificadas por el Ministerio de Salud.
