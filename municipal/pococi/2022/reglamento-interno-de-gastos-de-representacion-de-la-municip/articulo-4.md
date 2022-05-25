@@ -1,0 +1,1 @@
+Artículo 4º-Disponibilidad presupuestaria: No se podrá autorizar ningún egreso por concepto de gastos de representación, sin el previo visto bueno de la Unidad de Presupuesto, donde se haga constar la existencia de contenido presupuestario para tal efecto.
