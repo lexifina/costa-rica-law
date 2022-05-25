@@ -1,0 +1,1 @@
+Artículo 35.-Prescripción de la acción disciplinaria. El plazo de prescripción de la acción disciplinaria se regulará por lo establecido en la Ley 7476 - Ley contra el Hostigamiento Sexual en el Empleo y la Docencia-, el Código de Trabajo y el Reglamento Autónomo de Organización y Servicios en lo que resulte aplicable.

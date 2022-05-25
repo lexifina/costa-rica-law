@@ -1,0 +1,3 @@
+Artículo 29.-Plazos del procedimiento. Los plazos por días, para la Municipalidad, incluyen los inhábiles. Los que son para las partes y/o particulares serán siempre de días hábiles.
+Los plazos señalados para tramitar y resolver las denuncias que se presenten podrán ser ampliados, siempre y cuando exista justa causa para ello, y con esto, no se supere el término de tres meses, contados desde el momento de interposición de la denuncia.
+Sin perjuicio de los plazos por los que pueda operar la prescripción de la acción disciplinaria, los plazos contenidos en el presente Reglamento son ordenatorios.

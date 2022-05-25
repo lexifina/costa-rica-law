@@ -1,0 +1,1 @@
+Artículo 33.-Faltas relacionadas al procedimiento. Incurrirá en falta muy grave quien, siendo funcionario o funcionaria de la Municipalidad, injustificadamente entorpezca o atrase una investigación de hostigamiento sexual, mediando dolo o culpa. Asimismo, quien violente el deber de confidencialidad.

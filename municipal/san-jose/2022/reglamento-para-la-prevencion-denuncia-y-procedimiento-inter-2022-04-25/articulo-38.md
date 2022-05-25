@@ -1,0 +1,1 @@
+Artículo 38.-Aplicación supletoria. Para todo lo que no se regule en la presente reglamento, se aplicará lo dispuesto en la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, la Ley General de la Administración Pública, el Código de Trabajo, y cualquier otra normativa interna o externa que resulte vigente y aplicable.

@@ -1,0 +1,3 @@
+Artículo 31.-Confidencialidad. Toda persona funcionaria que participe en el recibo, notificación o tramitación de denuncia por acoso sexual y cualquier otro acto relacionado al procedimiento, incluyendo a los miembros del órgano director y testigos, quedan obligados a guardar estricta confidencialidad.
+Durante su trámite el expediente será confidencial excepto para las partes involucradas, las que tendrán libre acceso al mismo, a los documentos y pruebas que este contenga.
+En salvaguarda de esa confidencialidad, toda notificación que con motivo del proceso se deban llevar a cabo se harán en sobre cerrado.

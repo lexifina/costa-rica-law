@@ -1,0 +1,1 @@
+Artículo 39.-Derogatoria. Este Reglamento deroga el Reglamento de Prevención, Denuncia y Procedimiento Interno Administrativo en materia de Hostigamiento Sexual en La Municipalidad del Cantón Central de San José.

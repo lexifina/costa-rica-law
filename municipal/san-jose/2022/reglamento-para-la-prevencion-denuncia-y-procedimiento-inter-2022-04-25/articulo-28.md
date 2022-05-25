@@ -1,0 +1,1 @@
+Artículo 28.-Comunicación a la Defensoría de los Habitantes. La Comisión Investigadora tendrá la obligación de comunicar el resultado del procedimiento a la Defensoría de los Habitantes en el plazo de tres días después de su conclusión.

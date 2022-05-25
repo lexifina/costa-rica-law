@@ -1,0 +1,3 @@
+Artículo 25.-Valoración de la prueba. Las pruebas deberán ser valoradas de forma objetiva, de conformidad con las reglas de la sana crítica, la lógica y la experiencia. Ante la ausencia de prueba directa se deberá valorar la prueba indiciaria y todas las otras fuentes del Derecho común. En caso de duda, se estará ante lo que más beneficie a la persona denunciante.
+Se prohíbe valorar los antecedentes de la persona denunciante, su vínculo con el denunciado y lo relativo al ejercicio de su sexualidad.
+Para los efectos del presente Reglamento, los medios de prueba podrán ser todos los que estén permitidos por el ordenamiento jurídico.

@@ -1,0 +1,1 @@
+Artículo 30.-Posibilidad de acudir a la vía judicial. Una vez terminado el procedimiento establecido en el presente Reglamento, o si no se cumple por motivos no imputables a la persona ofendida, las denuncias por acoso sexual podrán ser interpuestas en la jurisdicción laboral.

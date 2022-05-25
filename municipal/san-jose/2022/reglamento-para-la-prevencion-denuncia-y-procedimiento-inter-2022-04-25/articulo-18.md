@@ -1,0 +1,1 @@
+Artículo 18.-Plazo para denunciar. El plazo para interponer la denuncia por parte de la presunta víctima será de dos años y se computará a partir del último hecho considerado como hostigamiento sexual o a partir de que cesó la causa justificada que le impidió denunciar.

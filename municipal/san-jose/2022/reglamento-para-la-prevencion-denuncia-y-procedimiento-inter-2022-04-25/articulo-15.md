@@ -1,0 +1,1 @@
+Artículo 15.-Apoyo psicológico. La Institución pondrá, a disposición de las partes, apoyo psicológico a través de la Sección de Calidad de Vida Laboral, la que deberá atenderles con carácter prioritario.
