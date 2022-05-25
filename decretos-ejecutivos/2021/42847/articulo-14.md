@@ -2,6 +2,8 @@ CAPÍTULO II
 De las Especialidades Médicas
 Artículo 14. De las especialidades médicas reconocidas por el Colegio de Médicos y Cirujanos. El Colegio de Médicos y Cirujanos, reconoce oficialmente las siguientes Especialidades Médicas:
 14.1 . Especialidad Médica en Acupuntura.
+Se reconoce como sinónimo de esta especialidad: Acupuntura Humana
+(Así adicionado el párrafo anterior mediante sesión N° 2022-05-25 del 25 de mayo de 2022)
 Requisitos específicos:
 Aprobación de mil seiscientas veinte (1620) horas en un programa de estudios de posgrado en Acupuntura, en un centro educativo, de carácter universitario, según lo establecido internacionalmente por la OMS (WHO/EDM/TRM/99.1 sobre "Directrices sobre Capacitación Básica y Seguridad en la Acupuntura"). Dicho entrenamiento debe contemplar y garantizar al menos quinientas horas de estudio esencial, quinientas horas de teoría clínica y seiscientas veinte horas de práctica supervisada.
 14.2. Especialidad Médica en Administración de Servicios de Salud. Requisitos específicos:
