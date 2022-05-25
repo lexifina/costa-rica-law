@@ -15,3 +15,4 @@ Reglamento de Carreteras de Acceso Restrngido
 | --- | --- | --- |
 | 1 | 2009-11-17 | la propia norma |
 | 2 | 2020-01-20 | Decreto Ejecutivo 42171 (2020-01-20) |
+| 3 | 2022-05-25 | Decreto Ejecutivo 43561 (2022-05-25) |

@@ -1,1 +1,2 @@
-Artículo 26.—Recursos Financieros. El MOPT a través del Consejo Nacional de Vialidad y otras dependencias administrativas, dotará a la Comisión de Carreteras de Acceso Restringido de un Presupuesto Anual con el fin de que ésta disponga de los recursos necesarios para la inspección y cierre de accesos ilegales, así como para el funcionamiento óptimo de la Comisión.
+Artículo 26.-Recursos Financieros. El Ministerio de Obras Públicas y Transportes, a través de la Dirección General de Ingeniería de Tránsito, realizará las inspecciones y cierres de accesos ilegales con el presupuesto operativo ordinario.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43561 del 25 de mayo de 2022)
