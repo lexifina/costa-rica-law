@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de Aplicación. La presente normativa será aplicable a las Asociaciones Médicas Regionales formalmente constituidas y que cumplan con los requisitos que establezca la Junta de Gobierno para el cumplimiento de sus fines.

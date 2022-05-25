@@ -1,0 +1,1 @@
+Artículo 12.-Obligatoriedad de Revisión. La presente normativa será revisada al menos una vez al año, con el fin de analizar, estudiar y proponer los cambios que tiendan a mejorar su aplicación si fuera necesario.

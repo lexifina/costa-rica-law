@@ -1,0 +1,4 @@
+Artículo 8º-Del Procedimiento de Tramitación y Aprobación de las Colaboraciones. Toda solicitud deberá ser dirigida al CSR con no menos de treinta días naturales de anticipación, debidamente suscrita por el representante legal de la Asociación.
+Las solicitudes serán analizadas y una vez discutidas y aclaradas, previas valoraciones del presupuesto definido para la Comisión de Sedes Regionales serán remitidas con un informe recomendativo a la Junta de Gobierno, quien analizará y decidirá si la aprueba o no.
+Una vez que la Junta de Gobierno, mediante acuerdo firme apruebe la solicitud la notificará a la asociación médica solicitante.
+En caso de tratarse la colaboración de una suma de dinero determinada, ésta será entregada únicamente mediante transferencia bancaria a nombre de la AMR solicitante.

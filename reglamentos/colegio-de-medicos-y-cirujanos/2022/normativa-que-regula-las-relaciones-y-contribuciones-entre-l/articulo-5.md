@@ -1,0 +1,2 @@
+Artículo 5º-Organización del Comité de Sedes Regionales. El CSR estará integrado por no menos de cuatro miembros nombrados así: Un integrante de la Junta de Gobierno quien presidirá la comisión; dos integrantes del Consejo de delegados nombrados a lo interno de dicho consejo o recomendados por el presidente del Colegio; un integrante por cada AMR reconocida por esta normativa y la Jefatura de Plataforma de Servicios.
+La CSR podrá asesorarse con profesionales en las diferentes áreas de su quehacer para lo cual podrá convocarlos oportunamente.

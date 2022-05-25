@@ -1,0 +1,1 @@
+Artículo 10.-Control de Aplicación. Las Asociaciones deberán acatar de forma vinculante las disposiciones que sobre el control y uso de los fondos que se les trasladen, le sean señalados por la Dirección Administrativa y Financiera del Colegio o por la CSR.

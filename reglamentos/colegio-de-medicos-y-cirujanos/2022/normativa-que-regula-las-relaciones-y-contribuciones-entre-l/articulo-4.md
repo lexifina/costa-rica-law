@@ -1,0 +1,1 @@
+Artículo 4º-Constitución del Comité de Sedes Regionales. Créase el Comité de Sedes Regionales (CSR) como un comité permanente del Colegio, nombrado por la Junta de Gobierno que será el encargado de enlace, gestión y comunicación entre las AMR para ejecutar y fiscalizar los acuerdos de colaboración y ayudas que se autoricen.
