@@ -35,7 +35,8 @@ leasing de estos bienes, en el tanto los titulares sean concesionarios o permisi
 27. Las cuotas de afiliación y las mensualidades pagadas a los colegios profesionales, las organizaciones sindicales y las cámaras empresariales.
 28. Las primas de riesgos del trabajo, agropecuarios y de viviendas de interés social.
 29. Las comisiones por el servicio de subasta ganadera y agrícola, así como las transacciones de animales vivos que se realicen en dichas subastas autorizadas.
-30. Las redes de cuido y los centros de atención para adultos mayores.
+30. Las redes de cuido y los centros de atención para adultos mayores, tales como los hogares, centros diurnos, albergues u otras modalidades de atención integral de las personas adultas mayores que presten sus servicios sin fines de lucro y se encuentren debidamente acreditados de conformidad con la Ley 7935, Ley Integral para la Persona Adulta Mayor, de 25 de octubre de 1999.
+(Así reformado el inciso anterior por el artículo 2° de la Ley para fomentar el cuido, la protección y la salud de la población adulta mayor, N° 10212 del 5 de mayo del 2022)
 31. Los servicios de educación privada, preescolar, primaria, secundaria, universitaria, parauniversitaria y técnica.
 32. La adquisición de bienes y servicios que hagan las asociaciones de desarrollo comunal, amparadas en la Ley N.° 3859, Ley sobre el Desarrollo de la Comunidad, de 7 de abril de 1967, siempre y cuando sean necesarios para el cumplimiento de sus fines.
 33. La adquisición y la venta de bienes y servicios que hagan las juntas de educación y administrativas de las instituciones públicas de enseñanza del Ministerio de Educación Pública (MEP), siempre y cuando sean necesarios para la realización de sus fines y en beneficio de los centros educativos públicos que les corresponda atender.
