@@ -1,4 +1,6 @@
+(Anulada)
 Nº 9980
+(Esta norma fue anulada por resolución de la Sala Constitucional N° 11624 del 25 de mayo de 2022)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 ADICIÓN DE UN TRANSITORIO VIII A LA LEY 7593, LEY DE
