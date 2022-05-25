@@ -1,0 +1,1 @@
+Artículo 2°-El área cubierta por el Santuario Natural de Tiburones del Parque Nacional Isla del Coco, está ubicado en la parte central del Pacífico Tropical Oriental, a 532 km al Sur Oeste de Cabo Blanco, punto del litoral costarricense más cercano al PNIC. El área marina protegida del PNIC comprende un espacio de 54 844,172 km2.
