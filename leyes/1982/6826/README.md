@@ -1,6 +1,6 @@
 # Ley de Impuesto al Valor Agregado (IVA)
 
-Ley N° 6826 del 1982-11-08. SINALEVI, ficha 32526: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32526&param2=128586&param3=1>.
+Ley N° 6826 del 1982-11-08. SINALEVI, ficha 32526: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32526&param2=130403&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -26,3 +26,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 18 de 31 | 2020-08-19 | Ley 9882 | 2020-08-10 |
 | 19 de 31 | 2020-12-04 | Ley 9914 | 2020-11-19 |
 | 20 de 31 | 2022-01-20 | Ley 10070 | 2021-12-15 |
+| 21 de 31 | 2022-05-25 | Ley 10144 | 2022-03-11 |

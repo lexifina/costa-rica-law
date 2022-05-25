@@ -7,3 +7,5 @@ Tratándose de los servicios prestados al Estado, el impuesto se devengará en e
 5. En las importaciones o internaciones de bienes intangibles y servicios puestos a disposición del consumidor final, en el momento en que se origine el pago, la facturación, la prestación o la entrega, el acto que se realice primero.
 6. En las ventas en consignación, en el momento de la entrega en consignación y en los apartados de bienes, en el momento en que el bien queda apartado, según sea el caso.
 7. En los arrendamientos de bienes con opción de compra vinculante, en el momento de la puesta a disposición del bien, y cuando la opción no es vinculante, en el momento de la ejecución de la opción.
+8- En la venta de bienes o prestación de servicios, a crédito, en el momento de la venta de los bienes o prestación del servicio con factura electrónica con el devengo.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 10144 del 11 de marzo del 2022)
