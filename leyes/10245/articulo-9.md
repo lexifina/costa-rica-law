@@ -1,0 +1,4 @@
+ARTÍCULO 9- Personas menores de edad
+Los padres o tutores serán los responsables de tomar las decisiones sobre tratamientos médicos de los menores con enfermedades en fase terminal o condición de vida limitada.
+El ejercicio de tal responsabilidad encuentra su límite en el cumplimiento del tratamiento prescrito para controlar el dolor y los síntomas estresantes. No obstante, la opinión del menor siempre deberá ser tomada en cuenta en la toma de decisiones. En todos los casos, los menores de edad siempre mantendrán el derecho a recibir los cuidados paliativos.
+Las decisiones que tomen los padres o tutores de los menores deben estar dirigidas a satisfacer el interés superior del menor y que el consentimiento informado deberá desarrollarse siempre de forma compartida con sus encargados o representantes legales, debiéndose documentar en el expediente médico durante todo el proceso de la enfermedad.

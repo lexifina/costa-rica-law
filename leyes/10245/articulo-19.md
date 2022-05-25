@@ -1,0 +1,2 @@
+ARTICULO 19- Cooperación internacional
+El Ministerio de Salud podrá establecer estrategias, acuerdos o convenios de cooperación internacional para facilitar el logro de los fines de esta ley, por medio del desarrollo de programas que permitan la formación del personal de salud, para promover la prestación de los servicios en cuidados paliativos, tanto a nivel gubernamental como en las organizaciones no gubernamentales sin fines de lucro dedicadas a ellos.
