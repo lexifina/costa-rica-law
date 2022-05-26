@@ -1,0 +1,1 @@
+Artículo 2°- Que en virtud de la nueva conformación de la Comisión de Carreteras de Acceso Restringido, los asuntos pendientes de resolución, deberán ser trasladados en un plazo de tres días hábiles al Despacho del Ministro de Obras Públicas y Transportes, para que sea la nueva Comisión la que atienda lo correspondiente.
