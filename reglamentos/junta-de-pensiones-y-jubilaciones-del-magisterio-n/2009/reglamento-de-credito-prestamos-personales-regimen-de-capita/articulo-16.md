@@ -1,6 +1,7 @@
-Artículo 16.-Línea personal especial de Refundición de deudas externas. La línea de crédito personal permanecerá activa para las solicitudes presentadas. El primer plazo suscitó entre el 1° de noviembre de 2021 y el 30 de abril de 2022; y se concede prórroga hasta el 31 de mayo de 2022.
+Artículo 16.-Línea personal especial de Refundición de deudas externas.
+La línea de crédito personal permanecerá activa para las solicitudes presentadas. Inicio 01 de noviembre de 2021, extensión actual y consecutiva de la línea al 30 de junio de 2022.
 Condiciones de la línea:
-a ) Monto máximo: El monto máximo es de ¢70.000.000,00.
+a) Monto máximo: El monto máximo es de ¢70.000.000,00.
 b) Monto mínimo: El monto mínimo es de ¢500.000,00.
 c) Plazo máximo: El plazo máximo es de 30 años (según tabla de plazos de acuerdo con el monto que se solicite).
 d) Tasa de interés: 8% fija para los primeros tres años, posterior a este plazo la tasa será la vigente para la línea de gastos personales del RCC.
@@ -11,4 +12,4 @@ g) Póliza de vida: El crédito debe estar cubierto por una póliza que respalde
 h) En los casos en los que la garantía sea hipotecaria y el 70% del avalúo lo permita, se pueden financiar los gastos correspondientes a honorarios y gastos de la inscripción del bien.
 i) Para efectos del cálculo del desembolso, se podrá depositar en cuentas a nombre del afiliado un monto máximo de ¢50.000,00, para evitar los recálculos de montos exactos.
 j) El crédito solo podrá ser utilizado para la cancelación de deudas a instituciones externas, es decir no se podrá utilizar para cancelación de deudas adquiridas con JUPEMA.
-(Así reformado mediante sesión ordinaria N° 0048-2022 del 28 de abril del 2022)
+(Así reformado mediante Sesión Ordinaria N° 0059-2022 del 26 de mayo del 2022)
