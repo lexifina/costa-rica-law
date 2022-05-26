@@ -1,0 +1,2 @@
+ARTÍCULO 15- Autorización para donar y subvencionar. Se autoriza a todo el sector público estatal, no estatal y financiero para que haga donaciones, inversiones e incluya subvenciones presupuestarias a favor del Parque Nacional Marino Ballena.
+La Junta Directiva para el fideicomiso del Parque Nacional Marino Ballena podrá recibir donaciones de parte de organismos internacionales y gobiernos extranjeros interesados en coadyuvar con los objetivos del parque.

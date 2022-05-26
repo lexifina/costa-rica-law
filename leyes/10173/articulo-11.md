@@ -1,0 +1,1 @@
+ARTÍCULO 11- La cuota de entrada a las personas al Parque Nacional Marino Ballena será fijada de conformidad con lo establecido en el decreto ejecutivo vigente de tarifas por derechos de ingreso y otros servicios ofrecidos por las áreas silvestres protegidas, bajo la administración del Sistema Nacional de Áreas de Conservación (Sinac).

@@ -1,0 +1,1 @@
+ARTÍCULO 4- Se concede al fideicomiso exención de todo pago de las operaciones que realice el fideicomiso por concepto de avalúas, timbres, impuestos de inscripción de la constitución, endoso, cancelación de hipotecas e impuestos de contratos de prenda, así como del pago de derechos de registro.

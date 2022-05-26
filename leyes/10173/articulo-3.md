@@ -1,0 +1,8 @@
+CAPITULO II
+FIDEICOMISO
+ARTÍCULO 3-Constitución de fideicomiso. Se autoriza al Ministerio de Ambiente y Energía (Minae), como fideicomitente, la creación de un fideicomiso como instrumento de administración financiera y de mantenimiento del Parque Nacional Marino Ballena, para el cumplimiento de las finalidades indicadas en la presente ley.
+El fideicomiso se constituirá con el aporte del cincuenta por ciento (50%) de los fondos provenientes de la cuota de entrada de las personas visitantes al Parque Nacional Marino Ballena y que serán transferidos anualmente por el Minae como fideicomitente, al fideicomiso, así como las donaciones de cualquier persona física o jurídica, pública o privada, nacional o internacional.
+Dichos recursos serán administrados mediante el fideicomiso que se constituirá con uno de los bancos comerciales del Estado, seleccionado de acuerdo con la mejor oferta entre las recibidas a partir de la invitación que realice el fideicomitente a los bancos comerciales del Estado del fideicomiso del Parque Nacional Marino Ballena.
+Este instrumento se deberá ejecutar directamente con las labores y atribuciones que la Junta Directiva para el fideicomiso del Parque Nacional Marino Ballena le asigne según los fines de esta ley.
+La selección del banco comercial del Estado que actuará como fiduciario se realizará mediante una rigurosa determinación del perfil, bajo parámetros de seguridad, liquidez, diversificación, rentabilidad, experiencia fiduciaria y control de riesgos.
+La Contraloría General de la República tendrá acceso irrestricto a toda la información y documentación del fideicomiso, cuando lo considere pertinente.

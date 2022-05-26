@@ -1,0 +1,8 @@
+N° 10173
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+CREACIÓN DEL PARQUE NACIONAL MARINO BALLENA
+CAPÍTULO I
+ASPECTOS GENERALES
+ARTÍCULO 1-Creación del Parque Nacional Marino Ballena. Se crea el Parque Nacional Marino Ballena cuya zona estará comprendida, según las hojas cartográficas Dominical-Coronado escala 1 :50.000 y trazada sobre la cartografía a escala 1 :5.000 del Instituto Geográfico Nacional (IGN), partiendo de la desembocadura de los ríos Uvita y Morete, en coordenadas 1013536.50 N y 526434.54 E, continúa por una línea recta con orientación suroeste hasta un punto en coordenadas 1011018,74 N y 523848,58 E, para continuar con dirección sur hasta las coordenadas 1005619, 11 N y 523853,57 E, para continuar el límite en una dirección este, hasta un punto en coordenadas 1005717.83 N y 534217.57 E, ubicado en Punta Piñuela, desde este punto se toma dirección este al mojón número M8G cuyas coordenadas son 1005755.39 N y 534479.21 E y que delimita la franja de los cincuenta metros públicos, demarcados por los mojones del Instituto Geográfico Nacional; continúa el límite en forma paralela a la playa por dicha línea de delimitación en dirección noroeste hasta encontrar el Estero Negro, para continuar bordeando e incluyendo el bosque de mangle de Punta Uvita hasta encontrar nuevamente la línea de los cincuenta metros públicos en el mojón número 100 con coordenadas 1013464.69 N y 526546.26E, continuando el límite con una dirección noroeste hasta la desembocadura de los ríos Uvita y Morete, punto de partida de la presente descripción.
+Se delimita la zona pública de la zona marítimo terrestre del Parque Nacional Marino Ballena únicamente mediante el uso de coordenadas georreferenciadas y la colocación de mojones.
