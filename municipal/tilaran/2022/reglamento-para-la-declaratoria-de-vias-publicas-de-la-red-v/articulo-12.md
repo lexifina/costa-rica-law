@@ -1,0 +1,7 @@
+Artículo 12.-Casos excepcionales. Con el fin de facilitar la renovación urbana, el Concejo Municipal podrá excepcionalmente declarar como publicas aquellas franjas de terreno ofrecidas por particulares que no cumplan con los anteriores requerimientos para ser declaradas como vías demaniales, siempre y cuando cumplan con los siguientes requisitos:
+1. Que sean declaradas publicas bajo las reglas de la discrecionalidad administrativa motivadas por razones de necesidad, oportunidad, conveniencia e interés municipal, previo levantamiento topográfico que permita su ubicación y descripción sobre el ancho, longitud, rumbo y fincas que afecta, siempre y cuando exista previa justificación técnica por parte de la dependencia de vialidad y obedezca a condiciones especiales en las que no exista el exclusivo interés de fraccionar inmuebles con fines lucrativos.
+2. Su derecho de vía deberá ser igual o superior a 8 metros y con una superficie de rodamiento no menor a 6 metros.
+3. Que preferiblemente conecten o comuniquen con vías públicas existentes, conglomerados habitacionales o sitios de interés turístico, agropecuario, productivo o de interés social.
+4. Que los predios presenten disponibilidad de servicios públicos básicos de agua potable y electricidad.
+5. Que estas franjas de terreno permitan el acceso a viviendas o predios existentes, el libre tránsito y garanticen la seguridad humana.
+Esta declaratoria excepcional deberá hacerse por votación calificada de, al menos, dos tercios del total de los miembros del Concejo Municipal.

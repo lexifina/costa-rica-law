@@ -1,0 +1,1 @@
+Artículo 4º-Remisión a la dependencia técnica de vialidad. La Alcaldía Municipal, en todos los casos remitirá la solicitud a la dependencia técnica de vialidad para que efectúe el análisis técnico de viabilidad, la confección del expediente administrativo y la elaboración del proyecto de declaratoria correspondiente.

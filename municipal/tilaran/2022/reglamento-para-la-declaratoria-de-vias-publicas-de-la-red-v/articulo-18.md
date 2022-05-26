@@ -1,0 +1,4 @@
+CAPÍTULO V
+DEL PROCEDIMIENTO PARA LA DECLARACIÓN DE
+VÍAS PÚBLICAS POR USO PÚBLICO PREEXISTENTE
+Artículo 18.-Régimen jurídico de las vías públicas pre existente. Conforme a los artículos 4 de la Ley de Construcciones, 2 de la Ley General de Caminos Públicos, 2, 3 y concordantes de la Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal No. 9329 así como los numerales 5 inciso q), 18 y concordantes del Reglamento a la Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, Decreto Ejecutivo N° 40137-MOPT, podrán incorporarse como vías públicas aquellas que ya tengan el uso público de forma pública y notoria y no estén inscritos ni existan actos de protección de dominio por parte de particulares.

@@ -1,0 +1,1 @@
+Artículo 9º-Recomendación de la Junta Vial Cantonal. Si una vez realizados todos los estudios es viable declarar la vía como pública, la dependencia vial lo remitirá a la Junta Vial Cantonal, donde los miembros de esta instancia, mediante acuerdo, emitirán su recomendación para el Concejo Municipal.

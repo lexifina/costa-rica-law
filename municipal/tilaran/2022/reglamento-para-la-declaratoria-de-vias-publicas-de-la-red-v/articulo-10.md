@@ -1,0 +1,1 @@
+Artículo 10.-Propuesta de la Alcaldía al Concejo Municipal. Una vez acordada la recomendación de la Junta Vial Cantonal, el (la) Alcalde (sa) -en su condición de Presidente de ese órgano colegiado- someterá a conocimiento del Concejo Municipal de Tilarán, el expediente y la respectiva Resolución Administrativa para la resolución correspondiente.

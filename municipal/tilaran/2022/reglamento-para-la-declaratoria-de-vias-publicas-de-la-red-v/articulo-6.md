@@ -1,0 +1,1 @@
+Artículo 6º-De la publicidad de los requisitos documentales. A los efectos de la debida tramitación, la dependencia técnica de vialidad deberá tener en un lugar visible, o a disposición de los usuarios, el listado de los requisitos descritos en los artículos anteriores.
