@@ -1,4 +1,0 @@
-Artículo 2º—Funciones: Que de conformidad con el artículo 21 del Reglamento para el Funcionamiento de las Proveedurías Institucionales de los Ministerios del Gobierno, la Comisión de Recomendación de Adjudicaciones tendrá las siguientes funciones:
-1. Emitir recomendaciones de adjudicación o de declaratoria de deserción en los procedimientos ordinarios de contratación administrativa.
-2. Emitir recomendación en los procedimientos de contratación directa, cuando por la complejidad del bien, servicio u obra, así lo requiera; caso contrario, el Proveedor Institucional,
-procederá a decidir si solicita o no únicamente el criterio técnico a la unidad que ha requerido la contratación, con el fin de preparar la resolución de adjudicación.
