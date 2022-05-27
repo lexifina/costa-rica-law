@@ -16,4 +16,6 @@ k) Considerar las interacciones existentes entre el riesgo de liquidez debido a 
 l) Definir criterios sobre la valoración diaria de los instrumentos para reflejar el valor razonable.
 m) La utilización de vectores de precios provistos por las empresas autorizadas debe ser complementada por la entidad con un análisis crítico de la metodología aplicada para la construcción de dichos vectores. Asimismo, debe ponderarse y tener en cuenta si los precios incluidos en el vector se corresponden con operaciones representativas observadas en el mercado primario o secundario, o si surgen de estimaciones realizadas por los modelos de valuación desarrollados por la empresa proveedora de precios.
 n) Las entidades deben contar con controles internos adecuados para asegurar la integridad de sus procesos de gestión de riesgos.
+o) El análisis de los riesgos considerados debe contemplar aquellos asociados a factores ambientales, sociales y de gobernanza.
+(Así adicionado el inciso anterior en sesiones N° 1734-2022 y 1735-2022 del 27 de mayo de 2022)
 (Así reformado en sesión N° 1486 del 5 de marzo del 2019)
