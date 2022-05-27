@@ -1,6 +1,8 @@
 CAPÍTULO II
 Prospecto
 Artículo 19.-Contenido del prospecto. El Prospecto debe contener toda la información relevante sobre el fondo de inversión de manera que los inversionistas puedan formarse un juicio fundamentado sobre la inversión. En el prospecto se debe revelar como mínimo: el objetivo y principales características del fondo; la política de inversión; descripción, políticas y advertencias acerca de los riesgos asociados; así como una descripción general de la sociedad responsable de su administración.
+En el prospecto se pueden revelar los objetivos o lineamientos de gestión de inversiones sostenibles o responsables, que procuren que parte de los recursos se pueda canalizar a actividades económicas o productivas que apoyen el desarrollo sostenible, mejoramiento del ambiente, así como establecer límites o prohibiciones para las inversiones que fomentan la fabricación de armamento o cualquier producto que pueda afectar negativamente a las personas y su entorno.
+(Así adicionado el párrafo anterior en sesiones N° 1734-2022 y 1735-2022 del 27 de mayo de 2022)
 Toda la información que contenga este documento debe ser verdadera, clara, precisa, suficiente y verificable; no puede contener apreciaciones subjetivas u omisiones que distorsionen la realidad. El prospecto debe incorporar las declaraciones juradas sobre la veracidad de la información.
 El Superintendente emitirá una guía para la elaboración del prospecto en la cual desarrolle su contenido mínimo, normas de presentación, normas de diseño, y puede establecer adicionalmente las aclaraciones que estime necesarias en relación con la información que este contiene, así como la documentación que respalde dicha información.
 El prospecto es de acceso público y gratuito.
