@@ -10,7 +10,8 @@ f) Vigilar, para el caso de los fondos de beneficio definido, la solvencia del f
 g) Aprobar la estructura organizacional y funcional de la entidad regulada y proporcionar los recursos necesarios para el cumplimiento de sus responsabilidades.
 h) Asegurar que la organización cumple con la legislación y regulación aplicable, con las políticas, códigos y otras disposiciones internas aprobados por esta, así como con los planes de acción presentados a la SUPEN y a los Órganos de Control o al mismo Órgano de Dirección.
 i) Aprobar el marco de gestión de riesgos.
-j) Aprobar y mantener una estrategia de gestión de riesgo y políticas asociadas, cerciorándose de su difusión e implementación por las restantes áreas de la organización. Además, debe velar por el desarrollo de una Cultura de Riesgo, la formulación de la Declaración de Apetito de Riesgo y la definición de las responsabilidades sobre la gestión y control de riesgos.
+j) Aprobar y mantener una estrategia de gestión de riesgo y políticas asociadas, cerciorándose de su difusión e implementación por las restantes áreas de la organización. Además, debe velar por el desarrollo de una Cultura de Riesgo, la formulación de la Declaración de Apetito de Riesgo y la definición de las responsabilidades sobre la gestión y control de riesgos. El análisis de los riesgos considerados debe contemplar aquellos asociados a factores ambientales, sociales y de gobernanza.
+(Así reformado el inciso anterior en sesiones N° 1734-2022 y 1735-2022 del 27 de mayo de 2022)
 k) Aprobar y dar seguimiento, junto con la Alta Gerencia y, cuando corresponda, con el gerente o director de riesgos o equivalente, el Apetito de Riesgo de la entidad en relación con los fondos administrados.
 l) Aprobar y supervisar el cumplimiento de la Declaración de Apetito de Riesgo. Esta incluye, entre otros:
 i. Consideraciones cuantitativas y cualitativas.
