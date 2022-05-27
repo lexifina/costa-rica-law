@@ -14,3 +14,4 @@ Reglamento sobre los sistemas de gestión de riesgos y de control interno aplica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-06-07 | la propia norma |
+| 2 | 2022-05-27 | Reglamento 1734 (2022-05-27) |

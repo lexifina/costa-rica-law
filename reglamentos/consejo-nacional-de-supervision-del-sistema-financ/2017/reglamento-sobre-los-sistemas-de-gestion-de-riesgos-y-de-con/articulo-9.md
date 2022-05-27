@@ -1,6 +1,7 @@
 Artículo 9. Estrategia de gestión de riesgos:
 El Órgano de Dirección debe aprobar la estrategia de gestión de riesgos que incluya al menos lo siguiente:
-a) La descripción de los diferentes riesgos contemplados, así como los objetivos y principios clave de la estrategia y el esquema de asignación de responsabilidades.
+a) La descripción de los diferentes riesgos contemplados, así como los objetivos y principios clave de la estrategia y el esquema de asignación de responsabilidades. El análisis de los riesgos debe contemplar aquellos asociados a factores ambientales, sociales y de gobernanza.
+(Así reformado el inciso anterior en sesiones N° 1734-2022 y 1735-2022 del 27 de mayo de 2022)
 b) La declaración del Apetito de riesgo de la Entidad.
 c) La descripción de la forma en que la estrategia definida propende a una gestión de riesgos sana y prudente acorde con el Perfil de riesgo de la Entidad, su Apetito de riesgo y su capital.
 d) La descripción de los mecanismos de control a los cuales se sujeta la estrategia de gestión de riesgos.
