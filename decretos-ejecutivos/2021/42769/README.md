@@ -14,3 +14,4 @@ Reglamento para optar por el Registro de Ingrediente Activo Grado Técnico media
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-05 | la propia norma |
+| 2 | 2022-05-28 | Decreto Ejecutivo 43563 (2022-05-28) |
