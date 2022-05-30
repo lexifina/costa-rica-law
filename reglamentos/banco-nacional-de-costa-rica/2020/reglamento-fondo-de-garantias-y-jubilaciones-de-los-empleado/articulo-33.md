@@ -1,1 +1,0 @@
-Artículo N° 33. Quórum. Para efectos del quórum del Órgano de Dirección y Comités de Apoyo, las disposiciones se contemplarán en el Reglamento para el funcionamiento del Órgano de Dirección y Comités de apoyo del FGJ-BN.

@@ -1,3 +1,0 @@
-Transitorio II Empleados Ocasionales del Banco Nacional. En los casos de los empleados ocasionales del Banco ingresados antes de la entrada en vigencia de la Ley de Protección al Trabajador que desean realizar el reconocimiento total del tiempo laborado como ocasionales, deben solicitar y cancelar el aporte personal y el costo de la reserva matemática.
-Para lo cual cuentan con un plazo de un mes a partir de la entrada en vigencia de este reglamento.
-El banco realizará únicamente el aporte del 10% en el momento que el cotizante realice el depósito personal y el total de la reserva matemática de ambos aportes. Cuando se presente excepciones originadas por falta de documentación u otras circunstancias será presentado al Órgano de Dirección, para su análisis y aprobación.

@@ -1,2 +1,0 @@
-Artículo N° 7. Aplicación de los aportes al Fondo. El aporte del Banco, contablemente se acreditará en las cuentas individuales de sus cotizantes. Mediante subcuenta se acreditará el aporte del empleado, más los rendimientos de las inversiones de dicho aporte, de acuerdo con lo que establece el artículo 8° de este Reglamento.
-Cuando un cotizante del Fondo se acoja a su jubilación o fallezca generando derecho a pensión, el monto de la cuenta individual a su haber se trasladará de inmediato a la cuenta de reserva de pensiones en curso de pago.
