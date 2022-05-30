@@ -1,0 +1,1 @@
+ARTICULO 6- Suspensión de la reparación. La persona dejará de ser beneficiaria del Régimen de Reparación Integral cuando deje de calificar en alguno de los supuestos establecidos en el artículo 3 de esta ley.

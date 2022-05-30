@@ -1,0 +1,6 @@
+CAPITULO II
+ASPECTOS ADMINISTRATIVOS
+ARTICULO 7- Ente rector. El Departamento de Violencia de Género del Instituto Nacional de las Mujeres (lnamu) dirigirá el Régimen de Reparación Integral, mediante la Secretaria Técnica del Sistema Nacional para la Atención y la Prevención de la Violencia contra las Mujeres y la Violencia Intrafamiliar, amparado en las funciones establecidas por la Ley 8688, Creación del Sistema Nacional para la Atención y Prevención de la Violencia contra las Mujeres y la Violencia Intrafamiliar, de 4 de diciembre de 2008, que crea el Sistema Nacional de Atención y Prevención de la Violencia contra las Mujeres.
+Corresponderá al Instituto Nacional de las Mujeres la administración de los recursos que conforman el Fondo Económico de Reparación Integral para Sobrevivientes de Femicidio, conforme a las atribuciones de la Ley de Creación del Instituto Nacional de las Mujeres, Ley 7801 de 30 de abril de 1998.
+Los recursos de este Fondo serán destinados, de manera exclusiva y específica, a las víctimas de femicidio.
+Los mecanismos de acceso por parte de las personas beneficiarias, así como los mecanismos de seguimiento, auditoria y rendición de cuentas, serán reglamentados en el plazo de seis meses a partir de la publicación de la ley.
