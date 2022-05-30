@@ -1,0 +1,3 @@
+ARTICULO 14- Reforma del Código Procesal Civil. Se reforma el artículo 120 de la Ley 9342, Código Procesal Civil, de 8 de agosto de 2018. El texto es el siguiente:
+Artículo 120- Prejudicialidad. Cuando se presente demanda sobre calidad de sucesores, validez o eficacia del testamento, se suspenderá el proceso sucesorio hasta la resolución definitiva. El mismo efecto tendrán las demandas que afecten la integridad del patrimonio o sobre la existencia, extensión o preferencia de créditos, siempre y cuando el resultado del litigio afecte de tal manera el patrimonio que no sea posible hacer liquidaciones parciales.
+También, se suspenderá el proceso sucesorio con respecto al sucesor que sea imputado en la investigación por femicidio de la causante.

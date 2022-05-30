@@ -1,0 +1,3 @@
+ARTICULO 18- Actualización de los montos de los timbres fiscales que financian el Fondo establecido en esta ley. El Ministerio de Hacienda deberá:
+a) Actualizar anualmente el monto los timbres mencionados en el inciso b) del artículo 10 de esta ley y que dan contenido al Fondo Económico de Reparación Integral para Sobrevivientes de Femicidio, a partir de la vigencia de esta ley, de conformidad con la variación del índice de precios al consumidor que determina el Instituto Nacional de Estadística y Censos (INEC).
+b) Publicar, mediante decreto ejecutivo, la actualización referida en el inciso anterior, dentro de los ocho días anteriores a cada período anual de aplicación

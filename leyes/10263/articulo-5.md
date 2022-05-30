@@ -1,0 +1,1 @@
+ARTICULO 5- No exclusión. Ser persona beneficiaria de este Régimen de Reparación Integral no será excluyente ni incompatible con otras ayudas, subsidios o beneficios estatales para los cuales las personas beneficiarias cumplan los requisitos para acceder.
