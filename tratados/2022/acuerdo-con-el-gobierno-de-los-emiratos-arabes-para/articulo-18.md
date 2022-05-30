@@ -1,0 +1,3 @@
+ARTÍCULO 18 - CONSULTAS
+1. En un espíritu de cooperación cercana, las autoridades aeronáuticas de las Partes Contratantes se consultarán mutuamente con miras a asegurar la implementación de y el cumplimiento satisfactorio de las disposiciones de este Acuerdo y cualquier Parte Contratante podrá requerir en cualquier momento consultas sobre la implementación, interpretación, aplicación o enmienda a este Acuerdo.
+2. Sujeto a los Artículos 4, 10 y 12, dichas consultas, que podrán ser a través de discusiones o por correspondencia, comenzarán dentro de un período de sesenta (60) días de la fecha de recepción de la solicitud, a menos que ambas Partes Contratantes acuerden de otra manera.

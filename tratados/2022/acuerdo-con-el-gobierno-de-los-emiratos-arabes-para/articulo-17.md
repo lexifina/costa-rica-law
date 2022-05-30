@@ -1,0 +1,3 @@
+ARTÍCULO 17- INTERCAMBIO DE INFORMACION
+1. Las Autoridades Aeronáuticas de ambas Partes Contratantes intercambiarán información, tan pronto como sea posible, sobre las autorizaciones otorgadas a sus respectivas aerolíneas designadas para prestar servicio hacia, a través de y desde el territorio de la otra Parte Contratante. Esto incluye copias de certificaciones y autorizaciones para servicios en las rutas propuestas, junto con enmiendas y órdenes de exenciones.
+2. Las Autoridades Aeronáuticas de cada Parte Contratante ofrecerán a las Autoridades Aeronáuticas de la otra Parte Contratante, a solicitud, informes periódicos sobre las estadísticas de tráfico tomado o descargado en el territorio de la otra Parte Contratante, como sea requerido de manera razonable.

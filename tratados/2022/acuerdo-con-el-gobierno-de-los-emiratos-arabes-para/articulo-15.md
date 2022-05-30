@@ -1,0 +1,3 @@
+ARTICULO 15- APROBACION DE ITINERARIOS
+1. Las aerolíneas designadas deberán someter para fines de aprobación por parte de las autoridades aeronáuticas de la otra Parte Contratante, previo a la inauguración de sus servicios, el horario de los servicios propuestos, especificando sus frecuencias, tipo de aeronave y periodo de validez. Este requerimiento aplicará de igual manera a cualquier modificación.
+2. Si una aerolínea designada opera vuelos ad hoc complementarios a aquellos cubiertos en el horario aprobado, deberá solicitar el permiso previo de las autoridades aeronáuticas de la Parte Contratante que concierne., quien deberá dar consideración positiva y favorable a dicha solicitud de acuerdo con los requerimientos nacionales.
