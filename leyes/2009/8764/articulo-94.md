@@ -1,5 +1,4 @@
-ARTÍCULO 94.-
-Serán categorías especiales, entre otras, las siguientes:
+ARTÍCULO 94.-Serán categorías especiales, entre otras, las siguientes:
 1) Trabajadores transfronterizos.
 2) Trabajadores temporales.
 3) Trabajadores de ocupación específica, visitantes de negocios, personal de transferencia dentro de una misma empresa y personal adscrito a los servicios posteriores a la venta, así como trabajadores por cuenta propia.
@@ -9,6 +8,7 @@ Serán categorías especiales, entre otras, las siguientes:
 7) Refugiados.
 8) Asilados.
 9) Apátridas.
-10) Víctima de trata de personas.
+10) Víctima de trata de personas o hijos o hijas sobrevivientes de víctimas de femicidio.
+(Así reformado el inciso anterior por el artículo 19 de la Ley de reparación integral para personas sobrevivientes de femicidio, N° 10263 del 6 de mayo de 2022)
 11) Trabajadores ligados a proyectos específicos y proyectos de interés público.
 12) Los demás que la Dirección General de Migración y Extranjería estime conveniente por razones humanitarias, de conformidad con los instrumentos internacionales de derechos humanos, así como los determinados en el Reglamento de la presente Ley.
