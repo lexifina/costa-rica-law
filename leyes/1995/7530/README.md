@@ -1,6 +1,6 @@
 # Ley de Armas y Explosivos
 
-Ley N° 7530 del 1995-07-10. SINALEVI, ficha 26048: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26048&param2=118835&param3=1>.
+Ley N° 7530 del 1995-07-10. SINALEVI, ficha 26048: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26048&param2=130549&param3=1>.
 
 Publicada en La Gaceta N° 159 del 1995-08-23.
 
@@ -18,3 +18,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 8 de 12 | 2019-07-18 | Ley 9682 | 2019-05-23 |
 | 9 de 12 | 2019-07-18 | Ley 9692 | 2019-07-09 |
 | 10 de 12 | 2019-12-18 | Ley 9731 | 2019-08-27 |
+| 11 de 12 | 2022-05-30 | Ley 10263 | 2022-05-06 |
