@@ -1,0 +1,1 @@
+Artículo 4º-Propiedad del distintivo. El distintivo del SIREA será propiedad exclusiva del MINAE, el cual podrá otorgar el derecho de uso de este solo bajo las condiciones establecidas en el Decreto Ejecutivo N° 41594-MINAE.

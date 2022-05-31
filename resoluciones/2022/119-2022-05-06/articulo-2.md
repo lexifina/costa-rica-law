@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. El alcance de este Reglamento es para toda aquella persona jurídica, pública o privada organizadora de un reconocimiento que haya sido oficialmente incorporado al SIREA y por lo tanto deberá emplear el distintivo de dicho sistema.

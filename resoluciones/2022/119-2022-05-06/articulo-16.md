@@ -1,0 +1,1 @@
+Artículo 16.-Publicidad. Comuníquese y publíquese esta resolución en el Diario Oficial La Gaceta. La cual podrá actualizarse y ajustarse en cualquier momento conforme a los avances que se requieran en el proceso de mejora continua.
