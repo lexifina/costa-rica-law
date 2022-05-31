@@ -1,0 +1,6 @@
+Artículo 12.-Requisitos para la reposición de libros físicos. En caso de que sea necesaria la reposición de algún libro a consecuencia de pérdida, destrucción, hurto o robo, deberán aportarse al Departamento de Supervisión Cooperativa los siguientes documentos por parte de los organismos cooperativos:
+1. Solicitud del trámite al Departamento de Supervisión Cooperativa, suscrita por el Gerente y el Presidente del Consejo de Administración, con detalle del nombre y número de libro a reponer.
+2. Acuerdo del Consejo de Administración firmado por el Presidente y el Secretario en el cual se autoriza al Gerente proceder con la reposición de los libros.
+3. Copia de la Personería Jurídica del Gerente y Presidente del Consejo de Administración, emitida por el Departamento de Organizaciones Sociales del Ministerio de Trabajo y Seguridad Social.
+4. Declaración Jurada protocolizada del Gerente de la Cooperativa, haciendo constar las causas o motivos de la reposición. Una copia de dicha Declaración Jurada deberá adherirse al folio primero de los libros sustitutos.
+Si el INFOCOOP llegara a determinar o sospechar que los libros fueros desaparecidos por el organismo cooperativo con la finalidad de eludir o evadir responsabilidades, interpondrá la denuncia al Ministerio Público, acompañando la prueba que estime pertinente.

@@ -1,0 +1,1 @@
+Artículo 17.-Fuerza probatoria de los libros digitales legalizados. Una vez legalizados, los libros referidos en el artículo 4 de este procedimiento, tendrán la fuerza probatoria en las mismas condiciones que los documentos físicos. Las firmas digitales tendrán el mismo valor e implicaciones que la firma manuscrita.

@@ -1,0 +1,1 @@
+Artículo 23.-Solicitud de legalización de libros en los casos de cambio de denominación cooperativa. Al realizarse la inscripción del cambio de denominación cooperativa en el Registro de Organizaciones Sociales, se mantendrá el mismo número de legalización de libros que previamente le hubiere sido asignado.

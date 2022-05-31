@@ -1,0 +1,1 @@
+Artículo 9°-Registro de asociados. Para la legalización del registro de asociados, deberá emplearse el modelo que contempla la información básica que debe anotarse en el mismo, elaborado por el Departamento de Supervisión. (Ver anexo 2).

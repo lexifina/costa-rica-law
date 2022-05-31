@@ -1,0 +1,1 @@
+Artículo 11.-Libros no retirados. Los libros se mantendrán a despacho durante un período no mayor a tres meses después de la fecha de recibo. Si no se retiran en ese plazo, el Departamento de Supervisión Cooperativa procederá a su destrucción o dispondrá de ellos conforme lo considere conveniente.

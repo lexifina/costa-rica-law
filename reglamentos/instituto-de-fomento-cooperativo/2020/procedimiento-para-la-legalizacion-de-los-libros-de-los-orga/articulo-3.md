@@ -1,0 +1,1 @@
+Artículo 3°-Competencia para la legalización de libros sociales. Corresponde al INFOCOOP por medio de su Departamento de Supervisión Cooperativa, la autorización de legalización de los libros a los organismos cooperativos. Corresponderá a Tecnologías de Información y Comunicación, brindar el soporte informático para brindar la autorización de libros formato digital.

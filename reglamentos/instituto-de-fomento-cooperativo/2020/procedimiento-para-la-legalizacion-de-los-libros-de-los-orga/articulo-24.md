@@ -1,0 +1,6 @@
+Artículo 24.-Responsabilidad por cuido y buen uso de los libros sociales. La responsabilidad por el buen uso y conservación de sus libros legalizados corresponde exclusivamente de la siguiente forma. - Actas para Asambleas Generales: Responsabilidad del Secretario del Consejo de Administración - Actas para Consejo de Administración: Responsabilidad del Secretario del Consejo de Administración - Actas para Comité de Vigilancia: Responsabilidad del Secretario del Comité.
+- Actas para Comité de Educación y Bienestar Social (excepto los organismos auxiliares): Responsabilidad del Secretario del Comité.
+- Diario, - Mayor e - Inventarios y Balances: Responsabilidad solidaria del Contador de la Cooperativa y el Gerente de la Cooperativa.
+- Registro Permanente de Asociados o Afiliadas (hoja adjunta): Responsabilidad del Secretario del Consejo de Administración.
+- Actas para Comisión de Crédito (para cooperativas de ahorro y crédito): Responsabilidad del Secretario de la Comisión de Crédito.
+Existe además una responsabilidad solidaria del Gerente en la custodia de todos los libros legalizados anteriores, responsabilidad solidaria compartida que incluye la custodia y resguardo en un sitio seguro de los folios de los diferentes libros.

@@ -1,0 +1,1 @@
+Artículo 13.-Plazo de reposición. El trámite de reposición de los libros tendrá una duración máxima de diez días hábiles a partir de la fecha de recibo de estos y se mantendrán en custodia hasta por un mínimo de tres meses, vencido el plazo de custodia se procederá a la destrucción de los libros sin responsabilidad.

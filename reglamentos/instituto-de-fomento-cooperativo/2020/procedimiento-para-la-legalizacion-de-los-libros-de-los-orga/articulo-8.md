@@ -1,0 +1,1 @@
+Artículo 8°-Libros contables. Los tres libros de contabilidad (diario, mayor, inventarios y balances) pueden ser registrados en forma manual, empastados o en hojas sueltas, a criterio del organismo cooperativo.

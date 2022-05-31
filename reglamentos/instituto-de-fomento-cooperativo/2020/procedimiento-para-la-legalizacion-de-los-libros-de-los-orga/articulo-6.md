@@ -1,0 +1,1 @@
+Artículo 6°-Cierre y apertura. Para el cierre y legalización de un nuevo libro, de previo a la presentación ante el Departamento de Supervisión para el cierre, el libro de actas deberá ser encuadernado y empastado para su debida conservación, con un espacio libre mínimo de ocho renglones en su último folio para imprimir el sello de cierre. (Ver artículo 7).
