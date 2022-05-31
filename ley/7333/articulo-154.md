@@ -1,8 +1,2 @@
-ARTICULO 154.- La fijación de honorarios se hará en sentencia o en
-el momento en que el imputado decida prescindir de los servicios del
-defensor público.
-Los fondos provenientes de honorarios se depositarán en una cuenta
-bancaria especial y se emplearán para adquirir bienes y servicios
-tendientes a mejorar la Defensa Pública.
-(Así reformado por el artículo 6º de la Ley de Reorganización
-Judicial No.7728 de 15 de diciembre de 1997)
+Artículo 154- Los fondos provenientes de honorarios y/o costas se depositarán en una cuenta bancaria especial de la Defensa Pública y se emplearán exclusivamente para adquirir bienes y servicios tendientes a mejorar la Defensa Pública, salvo lo dispuesto en el artículo 454 del Código de Trabajo para la materia laboral y lo establecido en la distribución de los dineros por costas personales que se generen a favor de la parte patrocinada por la defensa pública agraria que se regirán por lo dispuesto en el artículo 47, "Patrocinio letrado a cargo de la Defensa Pública", del Código Procesal Agrario, Ley N° 9609, de 27 de setiembre de 2018.
+(Así reformado por el artículo 1° de la ley N° 10257 del 6 de mayo del 2022, “Reforma Ley Orgánica del Poder Judicial, para garantizar el financiamiento de las secciones especializadas de la defensa pública”)
