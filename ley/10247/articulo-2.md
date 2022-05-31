@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Municipalidad de Alajuelita, cédula jurídica número tres- cero uno cuatro-cero cuatro dos cero cuatro cuatro (N.° 0 3-014-042044), para que done el inmueble descrito en el artículo anterior, libre de gravámenes y anotaciones al Ministerio de Seguridad Pública, cédula jurídica número dos-uno cero cero-cero cuatro dos cero uno uno (N.° 2-100-042011).
