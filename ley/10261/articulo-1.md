@@ -1,0 +1,9 @@
+N° 10261
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DECLARACIÓN DE LA MARIPOSA MORPHO HELENOR
+COMO SÍMBOLO NACIONAL DENTRO DE LA
+FAUNA LEPIDÓPTERA DE COSTA RICA
+ARTÍCULO 1- Declaratoria
+Se declara a la mariposa Morpho helenor como símbolo nacional dentro de la fauna lepidóptera de Costa Rica.
