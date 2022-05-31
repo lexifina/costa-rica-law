@@ -1,3 +1,0 @@
-Artículo 28.—En ausencia temporal de alguno de los miembros de esta Comisión, se sustituirá por quién ejerza en ese momento el puesto del titular.
-En el caso de que un servidor deje de ejercer el puesto que lo habilita para ser miembro, este será sustituido por quién sea designado a ejercer ese cargo.
-El titular del cargo en la Comisión designará quién lo sustituirá temporalmente por motivo de vacaciones, incapacidades, ausencias por capacitaciones, entre otros motivos. El sustituto, debe cumplir las competencias suficientes y necesarias para su representación. Ejercerá el cargo con las mismas atribuciones de voz y voto del titular.

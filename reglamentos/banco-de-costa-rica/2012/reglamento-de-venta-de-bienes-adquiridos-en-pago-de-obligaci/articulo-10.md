@@ -1,1 +1,1 @@
-Artículo 10.—Independientemente de la base fijada para la venta, se podrá realizar la venta directa al ex propietario de un bien, por la suma necesaria para cancelar todas las obligaciones exigibles con el BCR más los gastos incurridos a ese momento. Si el expropietario es el deudor, la venta deberá ser de contado.
+Artículo 10.-Aprobación de la venta. De toda decisión sobre la venta de un bien, debe quedar constancia en el mismo acto administrativo en que se emite la resolución aprobando la venta.

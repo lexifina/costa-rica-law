@@ -1,15 +1,2 @@
-CAPÍTULO V
-De la Comisión de venta de bienes adquiridos
-en pago de obligaciones
-Artículo 22.—La Comisión estará integrada por los servidores que ostenten los siguientes cargos y será presidido por el director crédito y cobro del Banco:
-1. Director crédito y cobro.
-2. Gerente de CSO Formalización y Seguimiento Comercial.
-3. Gerente de gestión de incobrables.
-4. Gerente de ingeniería y valuación, (o en su defecto a quien designe en caso de ausencia temporal).
-5. Gerente de división comercial institucional.
-6. Gerente de división comercial corporativo.
-7. El Director mipyme (o en su defecto a quien designe en caso de ausencia temporal) (*).
-(*) Lo podrán sustituir, dependiendo del tema:
-a. Gerente de división personas red de oficinas este o,
-b. Gerente de división personas red de oficinas oeste.
-Cuando se conozcan otros temas específicos, la Comisión del BCR podrá invitar al servidor respectivo, según el tema a tratar.
+Artículo 22.-Reuniones. Las reuniones de la Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones, se deben celebrar con la frecuencia que sea necesaria, y es convocada por cualquiera de sus miembros. La agenda de las reuniones de la Comisión de Venta de Bienes, debe ser elaborada por la Oficina de Administración de Bienes y los temas a conocer en cada reunión deben ser coordinados por dicha Oficina.
+A la convocatoria para la reunión, se acompaña copia del orden del día, salvo caso de urgencia. El órgano colegiado queda válidamente constituido e integrado sin cumplir los requisitos referentes a la convocatoria o al orden del día cuando asistan todos sus miembros y así lo acuerden por unanimidad.

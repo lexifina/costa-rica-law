@@ -1,1 +1,1 @@
-Artículo 21.—Los niveles de atribuciones para la adjudicación de la venta de bienes, se regirán conforme lo establecido en el anexo 2 Atribuciones para la aprobación de ventas de bienes adquiridos en pago de obligaciones de este reglamento.
+Artículo 21.-Votación. Las decisiones se deben tomar por mayoría absoluta de los miembros asistentes con derecho a voto; en caso de empate el presidente tiene doble voto.

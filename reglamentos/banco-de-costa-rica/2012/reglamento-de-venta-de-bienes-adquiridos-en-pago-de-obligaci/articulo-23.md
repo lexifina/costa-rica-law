@@ -1,4 +1,3 @@
-Artículo 23.—La Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones le corresponden las siguientes funciones:
-a. Tramitar y resolver los asuntos en materia de venta de bienes adjudicados en pago de obligaciones que se sometan a su conocimiento, procurando los mejores intereses de la Institución.
-b. Establecer una política de plazos de referencia para la venta de cada bien adjudicado, y la disminución porcentual de la base, en caso de promociones infructuosas.
-c. Evaluará resultados y tratará los temas estratégicos necesarios para mejorar la gestión y maximizar la recuperación por esta vía.
+Artículo 23.-Actas. El acta de la Comisión una vez aprobada debe comunicarse al Comité Corporativo Ejecutivo y por medio de este a la Junta Directiva General. La Oficina de Administración de Bienes debe ser la encargada de elaborar el acta de cada reunión; quien debe llevar un libro físico donde se custodian las actas.
+De cada una de las reuniones que celebre la Comisión se debe levantar un acta detallando los asuntos conocidos y su resolución. Los acuerdos deben quedar en firme en la reunión en que se toman si así lo disponen al menos la mitad de sus miembros más uno. En caso contrario, deben quedar en firme en la siguiente reunión la cual se debe llevar a cabo en las siguientes dos semanas; como máximo, después de celebrada la reunión anterior.
+El acta de la Comisión una vez aprobada; se debe comunicar al Comité Corporativo Ejecutivo y por medio de este a la Junta Directiva General.

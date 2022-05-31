@@ -1,5 +1,1 @@
-Artículo 8º—Para la venta de los bienes con avalúos superiores a $10.000,00 con liquidez alta y media alta se debe promover un concurso de oferentes; salvo que exista una oferta para comprarlos por precio del avalúo. Excepcionalmente, la Comisión de Venta de Bienes podrá aprobar la promoción de los bienes, eximiéndoles de este requisito.
-El resto de los bienes, se podrán vender mediante negociaciones directas.
-Los bienes que se hayan incluido en concurso de oferentes y sobre los cuales no se haya finiquitado la venta se podrán vender por medio de estas negociaciones.
-El Banco podrá disponer diferentes métodos para gestionar la venta de los bienes adquiridos, como por ejemplo, la página Web, el circuito cerrado, boletines, información en las diferentes oficinas del Banco y cualquier otro medio apropiado para estos fines.
-Cuando se estime conveniente, podrá solicitarse garantía de participación o cumplimiento, o ambas, en los porcentajes y condiciones, establecidas para este tipo de instrumentos, en la Ley de Contratación Administrativa y su Reglamento.
+Artículo 8°-Avalúos de referencia. Los avalúos que se utilicen como referencia para fijar la venta de bienes, deben ser realizados por la Gerencia de Ingeniería y Valuación, ya sea con peritos internos o externos.

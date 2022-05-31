@@ -1,1 +1,1 @@
-Artículo 11.—De toda decisión sobre la venta de un bien, deberá quedar constancia en el mismo acto administrativo en que se emite la resolución aprobando la venta.
+Artículo 11.-Base de venta. El precio de referencia para fijar la base de venta de los bienes muebles e inmuebles, debe ser el monto del avalúo, el cual no debe tener más de un año de efectuado.

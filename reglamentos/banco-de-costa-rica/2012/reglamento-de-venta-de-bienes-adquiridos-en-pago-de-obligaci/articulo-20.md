@@ -1,1 +1,2 @@
-Artículo 20.—Los niveles de atribuciones para la compra de bienes y servicios necesarios para la administración de los bienes embargados y de los bienes adjudicados y recibidos en dación de pago, se regirán conforme lo establecido en el anexo 1 Atribuciones para la compra de bienes y servicios para la administración de los bienes embargados y adjudicados de este reglamento.
+Artículo 20.-Quorum. El funcionamiento de este órgano colegiado debe aplicar las regulaciones del Reglamento general de los comités de apoyo a la Junta Directiva General y Administración, en lo que resulte racionalmente aplicable.
+El quorum debe quedar válidamente constituido con la presencia de la mitad de sus miembros más uno.

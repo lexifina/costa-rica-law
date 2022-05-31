@@ -1,3 +1,2 @@
-Artículo 2º—La administración de los bienes deberá ejercerse con criterio comercial, sin detrimento de las obligaciones que impone la ley para su cuido.
-Las acciones necesarias para la vigilancia, mantenimiento y los gastos en que se incurra por administración de estos bienes, deberán autorizarse en beneficio de la deseabilidad comercial de los bienes, brindando seguimiento a los gastos efectuados a fin de evitar un incremento excesivo.
-Asimismo, las inversiones que mejoren la condición de los bienes, se aprobarán considerando que estas faciliten su venta y que puedan ser recuperadas; o por razones de costo-beneficio de conveniencia institucional justificada.
+Artículo 2°-Administración de bienes. La administración de los bienes se debe ejercer con criterio comercial, sin detrimento de las obligaciones que impone la ley para su cuido.
+Asimismo, las inversiones que mejoren la condición de los bienes se deben aprobar considerando que estas faciliten su venta y que puedan ser recuperadas; o por razones de costo-beneficio de conveniencia institucional justificada.

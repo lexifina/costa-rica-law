@@ -1,1 +1,3 @@
-Artículo 15.—En caso de bienes que presenten condiciones especiales que imposibiliten su venta, tales como alto grado de deterioro, obsolescencia o muy poca liquidez, la Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones, podrán venderlos sin sujeción a base o declararlos como desechos; esta declaratoria implica su liquidación y eliminación del inventario de bienes muebles, debiendo motivarse el acto y dejar constancia de los atestados que justifiquen esta decisión.
+CAPÍTULO IV
+De las atribuciones
+Artículo 15.-Atribuciones para pago de impuestos, cuotas condominales, servicios públicos. Los niveles de atribuciones para los pagos obligatorios correspondientes a: impuestos, cuotas condominales y servicios públicos se cancelan con el visto bueno de manera individual, conforme lo establecido en el anexo 1 Atribuciones para la compra de bienes y servicios para la administración de los bienes embargados y adjudicados de este reglamento.

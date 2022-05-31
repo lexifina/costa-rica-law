@@ -1,3 +1,4 @@
-CAPÍTULO IV
-De las atribuciones
-Artículo 19.—Los pagos obligatorios que imponen las leyes, tales como: impuestos territoriales, impuestos municipales y otros como los correspondientes a servicios públicos, se cancelarán con el visto bueno de manera individual, del director crédito y cobro, el gerente del CSO Formalización y Seguimiento Comercial, el supervisor de la Unidad de Bienes Adquiridos en pago de obligaciones, el gerente de ingeniería y valuación, el gerente de división comercial institucional, el director mipyme.
+Artículo 19.-Funciones. La Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones le corresponden las siguientes funciones:
+a. Tramitar y resolver los asuntos en materia de venta de bienes adjudicados en pago de obligaciones que se sometan a su conocimiento, procurando los mejores intereses de la Institución.
+b. Evaluar resultados y tratar los temas estratégicos necesarios para mejorar la gestión y maximizar la recuperación por esta vía.
+c. Aprobar la venta de aquellos bienes donde las personas trabajadoras del Conglomerado Financiero BCR participen como oferentes y resulten adjudicatarios en el proceso de venta que se tramite.
