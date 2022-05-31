@@ -1,0 +1,11 @@
+ARTÍCULO 2- Definiciones
+Para los efectos de esta ley, se entenderá por:
+a) Atención de emergencia médica: atención que se brinda en Situaciones en las que se requieren acciones y decisiones médicas en salud, no programadas, que se brinda a una persona por estar en riesgo su vida, de acuerdo con la persona profesional de salud responsable de la atención, está en peligro inminente su Vida o integridad física.
+b) Capacidad jurídica: aptitud de las personas de adquirir y limitar derechos y obligaciones, la cual es inherente a la persona fisica durante su existencia, de un modo absoluto y general. Se modifica o se limita de conformidad con la ley y la capacidad volitiva, cognoscitiva y de juicio.
+c) Centros de salud: conjunto organizado de profesionales, instalaciones y medios técnicos que realiza actividades y presta servicios para la atención, prevención, promoción y cuidado de la salud de las personas.
+d) Declaración de voluntades anticipadas: manifestación que se realiza mediante un documento en el cual una persona manifiesta, de manera expresa, consciente y anticipada, su voluntad en cuanto a intervenciones médicas de salud, enfermedad y muerte, sobre los cuales no pueda manifestar su voluntad o consentimiento en el momento de su realización.
+e) Equipo de salud: profesionales de salud comprendidos en el artículo 40 de la Ley 5395, Ley General de Salud, de 30 de octubre de 1973, que cuentan con grado mínimo de licenciatura e incorporados y activos ante sus respectivos colegios profesionales.
+f) Intervención médica: son las acciones e intervenciones realizadas por el equipo de salud, que tienen como objetivo prevenir, tratar una enfermedad o mejorar la salud de la persona.
+g) Lex artis: conjunto de reglas técnicas y mejores prácticas internacionales a las que ha de ajustarse un profesional, en cada caso en concreto, en su arte u oficio.
+h) Persona declarante: persona que, de forma anticipada, mediante un documento escrito y firmado o verbal, ante testigos expresa su consentimiento con respecto a la atención médica que quiere o no recibir, en caso de que no pueda expresar su voluntad.
+i) Persona representante sanitaria: persona que ha sido designada, por la persona declarante, para que actúe como su interlocutora ante el personal de salud responsable, para garantizar que se ejecute la voluntad manifestada por el declarante.

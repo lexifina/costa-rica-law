@@ -1,0 +1,4 @@
+ARTÍCULO 10- Objeción de conciencia
+El personal de salud podrá ejercer la objeción de conciencia con ocasión del cumplimiento de las voluntades anticipadas. Para esto, deberá comunicarlo a la dirección o al responsable del centro de salud, de manera individual y confidencial, y de forma escrita y justificada. Además, el proceso deberá efectuarse con la mayor brevedad a la atención clínica de personas que posean voluntades anticipadas.
+La objeción de conciencia del personal de salud no impedirá ni obstaculizará la asistencia de la persona usuaria, de conformidad con lo dispuesto en la declaración de voluntad anticipada.
+La dirección o el responsable del centro de salud deberá garantizar la atención médica y el cumplimiento de las voluntades anticipadas expresadas por la persona, excepto en los límites establecidos en esta ley.

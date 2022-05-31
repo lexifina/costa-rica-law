@@ -15,3 +15,5 @@ k) Valorar los documentos de los archivos para efectos de selección.
 l) Adiestrar en archivística y en materias afines a los funcionarios de los archivos.
 ll) Solicitar, de instituciones privadas y de los particulares, información acerca de los documentos de valor científico-cultural en su poder, a fin de llevar inventarios, índices, registros, censos o micropelículas de esos documentos.
 m) Cualquier otra función relacionada con el quehacer archivístico.
+n) Llevar un registro nacional de voluntades anticipadas que sea de fácil acceso para los centros de salud públicos y privados, de conformidad con la Ley 8968, Protección de la Persona frente al Tratamiento de sus Datos Personales, de 7 de julio de 2011 la Ley de Voluntades Anticipadas y su reglamento.
+(Así adicionado el inciso anterior por el artículo 23 de la Ley de voluntades anticipadas, N° 10231 del 5 de mayo del 2022)
