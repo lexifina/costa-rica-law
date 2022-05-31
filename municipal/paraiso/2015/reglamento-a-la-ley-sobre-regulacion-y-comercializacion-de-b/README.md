@@ -14,3 +14,4 @@ Reglamento a la Ley sobre Regulación y Comercialización de Bebidas con conteni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-02 | la propia norma |
+| 2 | 2022-05-31 | Reglamento municipal 167 (2022-05-31) |
