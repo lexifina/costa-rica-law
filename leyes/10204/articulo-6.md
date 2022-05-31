@@ -1,0 +1,1 @@
+ARTÍCULO 6º-Se faculta al Servicio Nacional de Salud Animal (Senasa) para que, dentro del ámbito de sus competencias, apoye el desarrollo de las distintas actividades que destaquen la carreta costarricense y el boyeo como patrimonio cultural inmaterial de la humanidad.
