@@ -1,7 +1,7 @@
-ARTÍCULO 12.- Los profesionales que soliciten su incorporación como miembros(*), miembros temporales o asociados, un vez cumplidos los requisitos previos, deberán prestar ante la Junta Directiva General, para quedar incorporados al Colegio Federado, el siguiente juramento:
-(*Así reformado por asamblea Nº 05-03/04 de 24 de marzo y 19 de mayo de 2004, la cual acordó eliminar el término "activo" en referencia al Voto Nº 5133-02 de la Sala Constitucional, que declaró inconstitucional el término "activo" de la condición de "miembro")
-"¿Juráis a Dios y prometéis a la Patria y al Colegio Federado observar y defender la Constitución, las leyes de la República, los Reglamentos y el Código de Etica Profesional del Colegio Federado y cumplir fielmente los deberes de nuestra profesión?".
+Artículo 12.-Los profesionales que soliciten su incorporación como miembros, miembros temporales o asociados, una vez cumplidos los requisitos previos, para quedar incorporados al Colegio Federado deberán rendir el siguiente juramento:
+«¿Juráis a Dios o por lo más sagrado de tus creencias y prometéis a la Patria y al Colegio Federado observar y defender la Constitución, las leyes de la República, los Reglamentos y el Código de Ética Profesional del Colegio Federado y cumplir fielmente los deberes de vuestra profesión?
 Sí, juro.
-Si así lo hiciereis, Dios os ayude y si no, Él, la patria y el Colegio Federado os lo demanden".
-En casos debidamente fundados, la Junta Directiva General podrá autorizar que el juramento se formalice inicialmente por escrito y en declaración jurada notarial, dejando constancia en ese instrumento, de su compromiso de ratificación pública del juramento en forma personal, una vez que la causa que se lo impide haya desaparecido.
+Si así lo hiciereis, Dios os ayude y si no, Él, la Patria y el Colegio Federado os lo demanden".
+Los incorporandos deberán rendir este juramento ante la Junta Directiva General del Colegio Federado, sea de forma presencial o mediante los mecanismos e instrumentos jurídicos que al efecto acuerde la Junta Directiva General..
 (Así adicionado por Asamblea N° 05-03/04 del 24 de marzo y 19 de mayo de 2004 mediante acuerdo N° 10)
+(Así reformado mediante sesión N° 02-21/22 del 31 de mayo de 2022)
