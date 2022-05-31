@@ -1,0 +1,1 @@
+ARTÍCULO 3- El inmueble donado será destinado exclusivamente a la ubicación de la delegación policial cantonal de Alajuelita. En caso de que el Inmueble se destine a otros usos no autorizados en la presente ley, el terreno volverá de pleno derecho a ser propiedad de la Municipalidad de Alajuelita.
