@@ -1,0 +1,6 @@
+ARTÍCULO IV
+1. Ninguna disposición del presente Tratado se interpretará:
+(a) como una renuncia, por cualquiera de las Partes Contratantes, a sus derechos de soberanía territorial o a las reclamaciones territoriales en la Antártida, que hubiere hecho valer precedentemente;
+(b) como una renuncia o menoscabo, por cualquiera de las Partes Contratantes, a cualquier fundamento de reclamación de soberanía territorial en la Antártida que pudiera tener, ya sea como resultado de sus actividades o de las de sus nacionales en la Antártida, o por cualquier otro motivo;
+(c) coma perjudicial a la posición de cualquiera de las Partes Contratantes, en lo concerniente a su reconocimiento o no reconocimiento del derecho de soberanía territorial, de una reclamación o de un fundamento de reclamación de soberanía territorial de cualquier otro Estado en la Antártida.
+2. Ningún acto o actividad que se lleve a cabo mientras el presente Tratado se halle en vigencia constituirá fundamento para hacer valer, apoyar o negar una reclamación de soberanía territorial en la Antártida, ni para crear derechos de soberanía en esta región. No se harán nuevas reclamaciones de soberanía territorial en la Antártida, ni se ampliarán las reclamaciones anteriormente hechas valer, mientras el presente Tratado se halle en vigencia.

@@ -1,0 +1,7 @@
+ARTICULO XIII
+1. El presente Tratado estará sujeto a la ratificación por parte de los Estados signatarios. Quedará abierto a la adhesión de cualquier Estado que sea miembro de las Naciones Unidas, o de cualquier otro Estado que pueda ser invitado a adherirse al Tratado con el consentimiento de todas las Partes Contratantes cuyos representantes estén facultados a participar en las reuniones previstas en el Artículo IX del Tratado.
+2. La ratificación del presente Tratado o la adhesión al mismo será efectuada por cada Estado de acuerdo con sus procedimientos constitucionales.
+3. Los instrumentos de ratificación y los de adhesión serán depositados ante el Gobierno de los Estados Unidos de América, que será el Gobierno depositario.
+4. El Gobierno depositario informará a todos los Estados signatarios y adherentes sobre la fecha de depósito de cada instrumento de ratificación o de adhesión y sobre la fecha de entrada en vigencia del Tratado y de cualquier modificación o enmienda al mismo.
+5. Una vez depositados los instrumentos de ratificación por todos los Estados signatarios, el presente Tratado entrará en vigencia para dichos Estados y para los Estados que hayan depositado sus instrumentos de adhesión. En lo sucesivo, el Tratado entrará en vigencia para cualquier Estado adherente una vez que deposite su instrumento de adhesión.
+6. El presente Tratado será registrado por el Gobierno depositario conforme al Artículo 102 de la Carta de las Naciones Unidas.
