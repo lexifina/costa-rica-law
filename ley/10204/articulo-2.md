@@ -1,0 +1,1 @@
+ARTÍCULO 2º-Se declara el segundo domingo del mes de marzo de cada año «El Día Nacional de la Carreta Costarricense y el Boyeo"; no obstante, las actividades de celebración de este emblemático día podrán celebrarse a través de todo el año, según las diferentes comunidades así lo definan.

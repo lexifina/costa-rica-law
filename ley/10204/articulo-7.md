@@ -1,0 +1,1 @@
+ARTÍCULO 7º-El Ministerio de Cultura y Juventud podrá disponer de presupuesto para apoyar la tradición del boyeo y la carreta costarricense en todas sus manifestaciones y podrá proveer a las asociaciones, que así lo soliciten, el soporte técnico y humano para la consolidación y elaboración de planes de desarrollo cultural.
