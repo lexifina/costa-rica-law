@@ -1,0 +1,3 @@
+Artículo 13.-Declaratoria de Interés Institucional. Un patrocinio puede ser declarado de Interés Institucional y aprobado por la Presidencia Ejecutiva, Gerencia General o Gerencias interesadas, según corresponda, mediante un acto motivado, fundamentado en la declaratoria de interés institucional.
+Esta declaratoria comprende las razones de conveniencia institucional que justifican la aprobación y/o ejecución de un patrocinio, a partir del resultado del análisis costo-beneficio.
+La emisión del acto motivado corresponde a la Presidencia Ejecutiva, Gerencia General o Gerencias interesadas, con la respectiva justificación de la Gerencia correspondiente.

@@ -1,0 +1,1 @@
+Artículo 14.-Presupuesto. Todo patrocinio debe contar con el presupuesto para su ejecución. De ser requerido, cada Gerencia debe presupuestar anualmente un rubro para cubrir los patrocinios de su interés, los cuales deben quedar definidos y avalados en el plan anual de patrocinio.

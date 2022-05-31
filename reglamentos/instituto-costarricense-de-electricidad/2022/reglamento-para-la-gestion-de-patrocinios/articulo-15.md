@@ -1,0 +1,1 @@
+Artículo 15.-Planificación de patrocinios. Las dependencias ejecutoras de patrocinio deben establecer su planificación anual, a través de sus áreas responsables, de acuerdo con los ejes definidos por la Gerencia correspondiente y según la Estrategia Corporativa.

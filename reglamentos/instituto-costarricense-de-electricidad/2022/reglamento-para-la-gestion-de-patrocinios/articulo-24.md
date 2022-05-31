@@ -1,0 +1,1 @@
+Artículo 24.-Derogatorias. Este documento deroga en su totalidad la "Política para la Gestión de Patrocinios, código 55.00.005.2008, versión 3", debido a su actualización y porque obedece a un ajuste de cambio de tipo documental, para pasar de Política a Reglamento.

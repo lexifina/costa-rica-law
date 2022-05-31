@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Es de acatamiento obligatorio para el ICE y sus dependencias, en particular para las áreas que intervengan en el proceso de gestión de patrocinios en donde establezcan los contratos bajo la figura de patrocinio comercial o no comercial.

@@ -1,0 +1,2 @@
+Artículo 18.-Acto de aprobación. Con el acta de valoración como insumo, el patrocinio debe contar con un acto de aprobación emitido por la Dirección, División o Gerencia correspondiente, el cual debe regirse por los límites económicos de aprobación de patrocinios emitidos mediante circular de la Gerencia General. La aprobación de patrocinios de la marca kölbi corresponderá a la Gerencia de Telecomunicaciones.
+Los casos declarados de Interés Institucional podrán incluir en el mismo acto, tanto la declaratoria como la aprobación.
