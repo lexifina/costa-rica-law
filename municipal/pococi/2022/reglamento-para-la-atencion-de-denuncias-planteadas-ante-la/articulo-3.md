@@ -1,0 +1,1 @@
+Artículo 3º-Principios generales. Para determinar el abordaje y la atención de los hechos presuntamente irregulares de los que tenga conocimiento, la Auditoria Interna procederá a valorar, con la información disponible hasta ese momento, en concordancia con los principios de legalidad, independencia, objetividad, simplicidad, economía, eficacia, eficiencia.

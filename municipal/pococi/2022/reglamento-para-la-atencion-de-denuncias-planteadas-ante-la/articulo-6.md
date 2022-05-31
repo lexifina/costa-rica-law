@@ -1,0 +1,1 @@
+Artículo 6º-Procedimiento para atención de denuncias: La Auditoría Interna de la Municipalidad de Pococí mediante documento formal elaborará el procedimiento interno para la atención de denuncias planteadas ante esta Auditoría.
