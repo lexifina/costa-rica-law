@@ -14,3 +14,4 @@ Fija tarifas para los servicios aeronáuticos que se brindan en los aeropuertos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-21 | la propia norma |
+| 2 | 2022-06-01 | Resolución 60 (2022-06-01) |
