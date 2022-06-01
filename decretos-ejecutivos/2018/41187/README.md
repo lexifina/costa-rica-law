@@ -18,3 +18,4 @@ Reglamento Orgánico del Poder Ejecutivo
 | 3 | 2018-11-30 | Decreto Ejecutivo 41464 (2018-11-30) |
 | 4 | 2020-07-06 | Decreto Ejecutivo 42443 (2020-07-06) |
 | 5 | 2021-09-15 | Decreto Ejecutivo 43251 (2021-09-15) |
+| 6 | 2022-06-01 | Decreto Ejecutivo 43580 (2022-06-01) |
