@@ -14,3 +14,4 @@ Reglamento para el pago de gastos de viaje y transporte para regidores y síndic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-13 | la propia norma |
+| 2 | 2022-06-01 | Reglamento municipal 109 (2022-06-01) |

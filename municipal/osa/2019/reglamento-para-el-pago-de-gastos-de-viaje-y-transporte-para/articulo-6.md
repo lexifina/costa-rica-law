@@ -1,1 +1,2 @@
-Artículo 6º—Gastos por concepto de hospedaje. Se pagará hospedaje únicamente en aquellos casos cuando según la hora de finalización de las sesiones municipales, resulte imposible acceder al domicilio del beneficiario por los medios ordinarios de trasporte regulados en este reglamento.
+Artículo 6º-Gastos por concepto de hospedaje. Se pagará hospedaje únicamente en aquellos casos cuando según la hora de finalización de las sesiones municipales, resulte imposible acceder al domicilio del beneficiario por los medios ordinarios de trasporte regulados en este reglamento o cuando el servidor se viere obligado a pernoctar fuera de su domicilio, debido a la gira.
+(Así reformado mediante sesión N° 109-2020-2024 del 1 de junio del 2022)
