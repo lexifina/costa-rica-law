@@ -14,3 +14,4 @@ Manual de políticas y procedimientos (Selección de entrenadores, instructores,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-18 | la propia norma |
+| 2 | 2022-06-01 | Reglamento 0 (2022-06-01) |
