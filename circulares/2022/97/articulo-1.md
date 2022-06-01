@@ -1,0 +1,12 @@
+CIRCULAR N° 97-2022
+ASUNTO: Comunicación del Área de Gestión Judicial de la Caja Costarricense del Seguro Social, debido al hackeo de los sistemas informáticos de esa institución.
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión No. 46- 2022 celebrada el 31 de mayo de 2022, artículo LXII, acordó hacer de conocimiento de todos los despachos judiciales del país, para lo que corresponda, la comunicación realizada por el Área de Gestión Judicial de la Caja Costarricense del Seguro Social, que literalmente dice:
+"Que en horas de la madrugada del 31 de mayo del 2022, la Caja Costarricense de Seguro Social fue víctima de un hackeo de sistemas informáticos, en consecuencia, hemos recibido la instrucción por parte de las Autoridades y a recomendación técnica del Centro de Gestión Informática de no encender equipos institucionales, ni utilizar ningún sistema institucional. En razón de lo expuesto los apoderados judiciales de la Caja tienen una imposibilidad de acceder a las agendas electrónicas de señalamientos, y vencimientos judiciales, así también a los expedientes judiciales, dado que todo se unifica en la plataforma Jurix, la cual, -se reitera- no puede utilizarse.
+Esta situación afecta el normal desarrollo de la representación judicial, dado que, los abogados que litigan para la Institución, se destacan en oficinas centrales, viven en la Gran Área Metropolitana y para la atención de procesos en los diferentes lugares del territorio nacional utilizan la plataforma TEAMS, que de igual forma no puede utilizarse debido a la situación descrita, a hoy se tampoco fue posible trasladarse a provincias dado que el ataque informático ocurrió en la madrugada.
+De manera atenta ruego interponer sus buenos oficios para que se comunique a todos los despachos del país, que la Caja Costarricense de Seguro Social sufrió este ataque informático que perjudicó el normal funcionamiento de las agendas judiciales y el acceso a expedientes y documentación conexa, por lo que puede dificultar la representación institucional en diversos procesos judiciales.
+La Institución comprende que en cada despacho judicial deberá gestionarse lo que corresponda de nuestra parte, no obstante el comunicado sería de gran ayuda para contextualizar nuestras gestiones en cada proceso.
+(.)"
+Publíquese una sola vez en el Boletín Judicial.
+San José, 01 de junio de 2022.
