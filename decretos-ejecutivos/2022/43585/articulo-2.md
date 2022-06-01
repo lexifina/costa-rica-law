@@ -1,0 +1,1 @@
+Artículo 2º-La Autoridad Presupuestaria, según su proceder administrativo y técnico, hará extensivas las disposiciones del presente Decreto Ejecutivo, según lo señalado en los artículos 42 y 43 del Decreto Ejecutivo N° 42909-H del 25 de marzo de 2021.
