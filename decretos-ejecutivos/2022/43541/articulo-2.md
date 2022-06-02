@@ -1,0 +1,1 @@
+Artículo 2º-Derógase el Transitorio II del Decreto N° 41516-MP, Reglamento para la Selección y Valoración de Candidatos para Cargos del Órgano de Dirección de Empresas Propiedad del Estado, del 16 de agosto de 2019.
