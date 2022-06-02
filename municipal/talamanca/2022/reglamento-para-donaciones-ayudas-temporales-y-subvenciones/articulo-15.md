@@ -1,0 +1,1 @@
+Artículo 15.-El departamento Social de la Municipalidad conocerá de la solicitud en la 30 días posteriores a la fecha de su presentación y la trasladará al equipo técnico de dicha oficina quienes serán los encargados de determinar en forma fehaciente el objeto y fin que conlleva la subvención solicitada.

@@ -1,0 +1,1 @@
+Artículo 8º-La Administración dispondrá un plazo de ocho días hábiles, prorrogables por un plazo igual en casos muy calificados, a juicio de la alcaldía Municipal, para la emisión de la recomendación final.
