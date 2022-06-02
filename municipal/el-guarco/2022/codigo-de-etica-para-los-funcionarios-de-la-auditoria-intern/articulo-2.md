@@ -1,0 +1,1 @@
+Artículo 2º-Justificación. El Código de Ética para la Auditoría Interna es necesario debido a que los pilares de la fiscalización se asientan en la confianza y el aseguramiento objetivo de la gestión de riesgos, control y dirección.
