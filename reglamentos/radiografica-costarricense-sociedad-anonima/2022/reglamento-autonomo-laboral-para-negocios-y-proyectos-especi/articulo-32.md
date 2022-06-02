@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Ausencias y Llegadas Tardías
+Artículo 32.-Ausencias y Llegadas Tardías: Las llegadas tardías de quince minutos o más facultan al jefe inmediato correspondiente para amonestar de forma verbal o escrita, rebajar del salario el tiempo proporcional que llegue tarde el trabajador ese día, salvo que demuestre un motivo razonable por haber llegado tarde, incluyendo casos fortuitos y de fuerza mayor, lo cual deberá justificar en el momento de su llegada. Para calificar el motivo razonable, el jefe debe tomar en cuenta los antecedentes de asistencia, puntualidad y la actitud normal del trabajador en el cumplimiento de sus obligaciones.

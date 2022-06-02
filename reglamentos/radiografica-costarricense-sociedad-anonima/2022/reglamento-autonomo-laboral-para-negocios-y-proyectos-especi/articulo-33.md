@@ -1,0 +1,1 @@
+Artículo 33.-Comunicación: Cada vez que un jefe haga uso de la facultad indicada en el artículo anterior debe comunicarlo ese mismo día por escrito al trabajador, debiendo generar la solicitud de movimiento de personal ante el Departamento de Talento Humano y Cultura.

@@ -1,0 +1,1 @@
+Artículo 31.-Responsabilidad para el Control de Asistencia y Puntualidad: Cada trabajador es responsable de registrar puntualmente su asistencia y cumplimiento de la jornada en el sistema que para esos efectos defina la empresa.

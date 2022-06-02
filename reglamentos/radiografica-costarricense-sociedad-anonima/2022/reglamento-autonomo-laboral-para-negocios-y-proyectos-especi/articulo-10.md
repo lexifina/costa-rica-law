@@ -1,0 +1,1 @@
+Artículo 10.-Autorización: Toda autorización para el trabajo extraordinario debe contar con la firma de la Jefatura inmediata y el Director de Área y debe quedar debidamente documentada e informado al Departamento de Talento Humano y Cultura. No se computará como extraordinario el tiempo que ocupe el trabajador en subsanar sus errores.

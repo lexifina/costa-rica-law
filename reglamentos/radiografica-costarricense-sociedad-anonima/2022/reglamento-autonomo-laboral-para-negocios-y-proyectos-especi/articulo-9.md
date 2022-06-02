@@ -1,0 +1,1 @@
+Artículo 9º-De la Jornada Extraordinaria: Todos los trabajadores están en la obligación de laborar jornada extraordinaria cuando por necesidad de la empresa así se requiera y no exceda el tiempo máximo establecido por ley. Para tales efectos la Empresa deja de manifiesto que los Negocios y/o Proyectos Especiales se acogen al artículo 151 inciso b) y d) del Código de Trabajo.

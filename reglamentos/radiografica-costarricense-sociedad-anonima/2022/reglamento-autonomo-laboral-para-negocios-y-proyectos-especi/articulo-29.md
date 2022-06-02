@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Registro de Asistencia
+Artículo 29.-Deber de Asistencia y Puntualidad: Todo trabajador se obliga a prestar sus servicios en forma personal y con el deber de asistir puntualmente, como consecuencia del contrato de trabajo y la normativa interna y externa que rige la materia.
+Para los efectos del presente artículo, se exige el cumplimiento de las labores dentro de la jornada y horario convenidos, en el lugar, días y horas que la empresa le establezca, para lo cual debe registrar y acreditar su asistencia por medio de los controles que se implementen. Asimismo, al trabajador le corresponde la obligación de reportar a su superior jerárquico cualquier incidencia relacionada con la debida asistencia y puntualidad, de conformidad con la normativa aplicable y lo antes posible al iniciar la jornada de trabajo para que se puedan tomar las medidas correspondientes.

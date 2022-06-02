@@ -1,0 +1,1 @@
+Artículo 30.-Registro para el Control de Asistencia: Cada dependencia establece los mecanismos necesarios para el control de asistencia y lleva el control de estos, de conformidad con las disposiciones que al efecto establezca la empresa.

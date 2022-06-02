@@ -1,0 +1,1 @@
+Artículo 7º-Forma de Pago de Salario: La empresa paga los salarios en forma mensual, por quincenas vencidas y realiza de inmediato todas las deducciones de ley, las autorizadas por el trabajador y las que legalmente o por convención de parte procedan.

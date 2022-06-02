@@ -1,0 +1,2 @@
+Artículo 6º-Modalidades de Salario: La empresa aplicará el esquema de salario global, no obstante, puede establecer otros esquemas de remuneración según las necesidades empresariales. Puede, además, establecer esquemas de compensación fijos o variables de acuerdo con la actividad que se desarrolle y conforme con la normativa que para estos efectos apruebe la Junta Directiva de RACSA.
+La empresa puede adoptar todas aquellas medidas y regulaciones pertinentes respecto de los sistemas de remuneración salarial que se consideren aplicables.
