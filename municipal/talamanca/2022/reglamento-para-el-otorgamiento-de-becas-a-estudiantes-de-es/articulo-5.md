@@ -1,0 +1,1 @@
+Artículo 5°-Corresponde al departamento Social, junto a la comisión de becas una vez listos todos los documentos, realizar el análisis del caso y pasar la recomendación al alcalde para su aprobación o exclusión definitiva.

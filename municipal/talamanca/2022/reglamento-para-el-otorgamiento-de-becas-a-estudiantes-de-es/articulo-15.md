@@ -1,0 +1,1 @@
+Artículo 15.-El fondo de becas, será sostenido por el Presupuesto Municipal otorgado; e igualmente se recibirán donaciones tanto de instituciones públicas o privadas, y para el efecto de donaciones se abrirá un libro respectivo debidamente foliado y legalizado por la Auditoría Municipal, y se llevará los registros contables al efecto.
