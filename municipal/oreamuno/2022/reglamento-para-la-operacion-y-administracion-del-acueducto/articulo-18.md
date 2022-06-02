@@ -1,0 +1,3 @@
+Del registro y cobro del servicio
+Artículo 18.-Del Registro. Una vez autorizada la paja de agua, el Departamento de Acueductos, procederá a registrar de oficio en el sistema de facturación los costos de instalación que genere y cuyo pago previo es requisito para la instalación del servicio. Igual procedimiento se utilizará para registrar los costos de desconexión y reconexión que origine el respectivo servicio.
+Una vez efectuada la conexión, dicha dependencia registrará la conexión realizada a partir del día de su instalación y según la modalidad que corresponda de acuerdo con lo indicado en Este reglamento.

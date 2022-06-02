@@ -1,0 +1,1 @@
+Artículo 23.-De la Hipoteca Legal. La deuda por servicios de agua potable impone hipoteca legal sobre el bien inmueble, dónde se otorgó el servicio. De conformidad con el artículo 79 del Código Municipal, por lo tanto, la propiedad responde directamente sobre el monto económico adeudado del servicio que no se cancele.

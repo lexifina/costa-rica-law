@@ -1,0 +1,4 @@
+Artículo 20.-De la facturación y vencimiento. El servicio de agua potable se facturará mensualmente y será cobrado por mes vencido y en un solo pago con treinta días naturales contados a partir de la fecha en que se ponga al cobro (generando intereses después del día diez, en el mes que está al cobro). Vencido dicho plazo, seguirá generando intereses, los cuales serán acumulativos.
+El cobro por los servicios fijos se efectuará de acuerdo con la tarifa fija vigente en el momento de la facturación.
+El cobro por los servicios medidos se efectuará según el consumo que reporte el respectivo hidrómetro cuya lectura se hará mensualmente y el valor de los metros cúbicos consumidos según la tabla de bloques de consumo establecidos en las tarifas vigentes en el momento de la lectura.
+El monto facturado no podrá ser en ningún caso, menor a la tarifa mínima vigente.

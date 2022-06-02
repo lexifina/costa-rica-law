@@ -1,0 +1,1 @@
+Artículo 27.-De la Acumulación de Lecturas. En caso de existir una acumulación de lecturas se procederá a prorratear el consumo entre la cantidad de meses no leídos. Esto se aplicará únicamente en los casos en que a los contribuyentes no se les haya comunicado por escrito sobre la existencia de algún impedimento para realizar la lectura, atribuible al abonado.

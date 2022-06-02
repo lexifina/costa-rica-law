@@ -1,0 +1,1 @@
+Artículo 37.-Fuente Pública. La Municipalidad a petición del interesado deberá dejar prevista en el momento de la suspensión y si esta no existiera, en un plazo máximo de 24 a 48 horas, para que de ésta puedan abastecerse durante el tiempo que dure suspendido el servicio de agua potable. Dicha fuente no deberá ubicarse a más de 200 metros de la vivienda.

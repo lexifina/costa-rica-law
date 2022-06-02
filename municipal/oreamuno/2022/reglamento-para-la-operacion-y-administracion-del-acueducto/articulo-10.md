@@ -1,0 +1,2 @@
+Artículo 10.-De la Renuncia del Servicio. Si el abonado considera que ya no es necesario el servicio de agua, deberá hacer la respectiva solicitud por escrito ante el Departamento de Acueducto de la Municipalidad de Oreamuno; la misma debe incluir las razones por las cuales eliminará el servicio, en donde conste si tendrá otro medio de abastecimiento de agua, la misma quedará supedita a criterio del Acueducto Municipal.
+Previo pago de cualquier saldo existente en la cuenta de la propiedad en mención.

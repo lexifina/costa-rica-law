@@ -1,0 +1,7 @@
+Artículo 13.-Clasificación Tarifaria. Para la clasificación de los usos y su respectivo cobro, indicamos en el artículo 3 de este reglamento, la Municipalidad establece las siguientes categorías, a las cuales les corresponde una tarifa establecida por la Municipalidad, de la siguiente forma:
+a) Domiciliar: Para casas de habitación, estén o no ocupadas por su propietario. Correspondiéndole la TARIFA Nº 1.
+b) Ordinaria: Para oficinas, negocios comerciales e industriales que hacen del agua un uso similar al de los domicilios. Correspondiéndoles la TARIFA Nº 2.
+c) Reproductiva: Para comercios o industrias que utilicen el agua potable como materia prima o accesoria a ésta para la elaboración de productos o la prestación de sus servicios. Correspondiéndole la TARIFA Nº 3.
+d) Preferencial: Para instalaciones de beneficencia, educación, culto e instalaciones de gobierno. Correspondiéndole la TARIFA Nº 4.
+f) Provisional: Para construcciones y actividades especiales. Correspondiéndole la TARIFA Nº 3 (tarifa reproductiva).
+g) Gobierno: para instituciones de educación pública de preescolar, primaria y secundaria. Además de los anteriores podrán incluirse en esta categoría las instalaciones municipales no administradas en forma directa por la municipalidad u otras instituciones de beneficencia. Exceptuando la educación pública, las demás deberán contar con Resolución Administrativa por parte del alcalde para la aplicación de dicha tarifa.

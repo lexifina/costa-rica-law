@@ -1,0 +1,1 @@
+Artículo 50.-De la Vigencia y Derogatoria. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, y deroga cualquier disposición reglamentaria municipal que se le oponga.

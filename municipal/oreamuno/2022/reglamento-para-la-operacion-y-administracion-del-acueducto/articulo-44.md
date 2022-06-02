@@ -1,0 +1,2 @@
+Artículo 44.-De la Capacitación de Servidores Municipales del Acueducto. La municipalidad procurará la capacitación de su personal estrictamente del Acueducto Municipal para el mejoramiento del servicio de agua potable, en todos sus aspectos para lo cual realizará las gestiones necesarias para ello, en las instituciones especializadas, privadas o públicas, nacionales o internacionales, para la consecución de este fin.
+Se ordena a los Departamentos correspondientes a instruir a los servidores municipales para la ejecución del presente reglamento.

@@ -1,0 +1,3 @@
+Artículo 35.-Del Derecho Municipal de Inspección. La Municipalidad no tiene derecho de revisar las instalaciones domiciliares, salvo cuando sea requerido y autorizado por el usuario por escrito. Para instalación del servicio a fraccionamientos nuevos, la Municipalidad se reserva el derecho de revisar que las instalaciones de agua potable estén de acuerdo con los planos constructivos por las instalaciones correspondientes.
+Previo a otorgar e instalar el servicio de agua potable, cualquier incumplimiento con lo indicado en planos constructivos, será base suficiente para rechazar la instalación hasta que sea corregido por el instalador por el fraccionador el cambio no autorizado.
+Las inspecciones se harán en horas hábiles y que causen la menor molestia del abonado.

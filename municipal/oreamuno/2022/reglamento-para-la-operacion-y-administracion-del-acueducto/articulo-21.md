@@ -1,0 +1,1 @@
+Artículo 21.-Del Pago. El pago del servicio de agua potable será responsabilidad directa del propietario del bien inmueble al cual está conectado. Dicho pago puede realizarlo por los medios que disponga la municipalidad.

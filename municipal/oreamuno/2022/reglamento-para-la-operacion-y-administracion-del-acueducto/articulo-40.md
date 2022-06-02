@@ -1,0 +1,2 @@
+Artículo 40.-Inicio de la Gestión del Cobro Judicial. La Municipalidad de Oreamuno procederá al cobro judicial, de acuerdo a lo que indica el Reglamento de cobro administrativo judicial de la Municipalidad de Oreamuno.
+El Departamento Legal, previo a iniciar el trámite de cobro judicial ante el despacho judicial correspondiente, por única vez emitirá una última carta de aviso, por un plazo de ocho días para la cancelación o para el arreglo de pago, pasado dicho término procederá al cobro judicial.
