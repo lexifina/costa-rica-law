@@ -1,0 +1,1 @@
+Artículo 11. La Sección de Ingeniería aprobará la licencia cuanto determine que la solicitud cumple con todos los requisitos y condiciones técnicas valoradas. Posterior a ello, el solicitante deberá cancelar el monto correspondiente al impuesto de construcción.

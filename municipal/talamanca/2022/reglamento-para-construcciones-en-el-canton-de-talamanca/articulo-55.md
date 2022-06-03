@@ -1,0 +1,2 @@
+ASPECTOS DE SEGURIDAD:
+Artículo 55). Los contenedores se colocarán únicamente en áreas planas, montados sobre cimentaciones de pedestales de concreto reforzado o acero, o bien con su respectiva cureña de llantas, o muertos horizontales en concreto reforzado o acero. No se permitirá la colocación o instalación de contenedores directamente en el suelo y tampoco se permitirá la colocación o instalación de contenedores en laderas o cualquier plano inclinado.

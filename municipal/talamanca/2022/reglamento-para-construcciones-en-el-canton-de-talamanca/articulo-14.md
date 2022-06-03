@@ -1,0 +1,1 @@
+Artículo 14. Una vez cancelado el impuesto de construcción, la licencia y plano de construcción serán entregados. La sección de Ingeniería llevara un registro de todos los permisos otorgados tanto por obra mayor o menor.

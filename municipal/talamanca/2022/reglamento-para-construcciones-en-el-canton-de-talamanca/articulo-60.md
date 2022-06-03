@@ -1,0 +1,1 @@
+Artículo 60).- En cuanto a la generación de residuos durante y después de la colocación de contenedores se debe de disponer de un plan de manejo de residuos sólidos el cual debe de ser presentado ante esta Municipalidad para su revisión y aprobación.

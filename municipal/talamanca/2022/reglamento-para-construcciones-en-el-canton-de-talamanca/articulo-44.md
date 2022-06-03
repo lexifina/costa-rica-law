@@ -1,0 +1,1 @@
+Articulo 44 Cuando las áreas públicas hayan sido inscritas a favor del municipio o la garantía sea rendida, el Departamento de Ingeniería podrá otorgar el visado a los planos individuales del proyecto urbanístico o fraccionamiento, siempre que cumplan con los requerimientos del artículo 41 de este Reglamento y las condiciones técnicas establecidas en el ordenamiento jurídico.

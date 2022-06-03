@@ -1,0 +1,1 @@
+Artículo 58). Toda cimentación o fundación sea horizontal tipo muerto o vertical tipo pedestal, montante o pilar debe ser diseñada y supervisada por un profesional responsable y miembro activo del CFIA.

@@ -1,0 +1,1 @@
+Artículo 34. Queda prohibido dejar escombros en el área destinada a futuras construcciones, áreas públicas o propiedades cercanas sin autorización del dueño. Estos residuos deberán ser depositados en rellenos sanitarios o lugares destinados a su recolección y que cuenten con permiso de funcionamiento.

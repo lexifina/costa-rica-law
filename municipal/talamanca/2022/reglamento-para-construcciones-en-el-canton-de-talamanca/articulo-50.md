@@ -1,0 +1,1 @@
+Artículo 50. No se permitirá la instalación de anuncios que invadan la vía pública, excepto los salientes y rótulos bajo marquesinas, siempre que cumplan con los requerimientos técnicos establecidos en este Reglamento.

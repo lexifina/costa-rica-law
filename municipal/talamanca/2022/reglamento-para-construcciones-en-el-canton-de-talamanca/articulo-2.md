@@ -1,0 +1,1 @@
+Artículo 2. Las disposiciones contenidas en este Reglamento serán aplicables a todo tipo de obras de construcción, remodelación, reparación, excavación, rellenos (movimientos de tierra), ampliación o demolición que se realicen en propiedades públicas o privadas situadas dentro del cantón de Talamanca.

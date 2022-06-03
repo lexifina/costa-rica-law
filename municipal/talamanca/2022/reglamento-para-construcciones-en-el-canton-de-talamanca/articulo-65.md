@@ -1,0 +1,1 @@
+Artículo 65. Los accidentes ocasionados por las obras constructivas serán de exclusiva responsabilidad del encargado de la obra y del propietario del inmueble, máxime cuando se incumplan las disposiciones de este Reglamento y no se tomen las medidas de seguridad respectivas.

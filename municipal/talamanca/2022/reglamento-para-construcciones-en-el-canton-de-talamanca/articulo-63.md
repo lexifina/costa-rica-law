@@ -1,0 +1,1 @@
+Artículo 63). CANTIDAD DE CONTENEDORES: Se permitirá un máximo de 60 metros cuadrados equivalente a dos contenedores de 12 metros de largo cada uno por lote. En caso de que se afecte un área mayo de 60 metros cuadrados, deberá presentarse un perfil del proyecto debidamente formulado y elaborado por un profesional responsable y miembro activo del CFIA.

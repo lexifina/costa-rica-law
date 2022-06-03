@@ -1,0 +1,1 @@
+Artículo 27. Los propietarios serán responsables de los daños sufridos a las propiedades municipales a causa de la obra por construir. Por consiguiente, los administrados están en la obligación de resarcir el daño y restablecer las condiciones del terreno previo a la afectación generada.

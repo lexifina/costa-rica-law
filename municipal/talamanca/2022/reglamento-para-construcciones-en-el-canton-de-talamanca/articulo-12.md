@@ -1,0 +1,1 @@
+Artículo 12. El monto por impuesto de construcción es de un 1% sobre el valor tasado por el Colegio Federado de Ingenieros y Arquitectos. Para el caso de renovación de permisos y cuando resulte procedente, se reajustará el permiso con base al Manual de Valores Base Unitarios por Tipología Constructiva del Ministerio de Hacienda vigente a la fecha de su aplicación.

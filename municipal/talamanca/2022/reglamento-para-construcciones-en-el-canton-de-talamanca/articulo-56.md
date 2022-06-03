@@ -1,0 +1,1 @@
+Artículo 56). No se permitirá la instalación súper puesta en forma vertical o tipo torre de más de dos contenedores. Y dicha instalación deberá estar diseñada y supervisada por parte de un profesional competente y miembro activo del Colegio Federado de Ingenieros y Arquitectos de Costa Rica en adelante abreviado CFIA.

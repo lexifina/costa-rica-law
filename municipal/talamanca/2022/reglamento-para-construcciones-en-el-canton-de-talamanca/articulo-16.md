@@ -1,0 +1,1 @@
+Artículo 16. Transcurridos tres meses desde la fecha de solicitado un trámite de Licencia de Construcción, y el solicitante no ha realizado el pago del impuesto de construcción para el otorgamiento de la Licencia de Construcción, la Sección de Ingeniería, previo a inspección a realizar procederá con la eliminación de dicho trámite.

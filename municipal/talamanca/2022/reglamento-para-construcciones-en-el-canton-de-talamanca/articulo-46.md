@@ -1,0 +1,1 @@
+Artículo 46. La dimensión y colocación de publicidad no deberá desvirtuar los elementos arquitectónicos de las fachadas en que se instalen, las del entorno, ni alterar su valor arquitectónico. La Sección de Ingeniería Municipal podrá limitar el espacio a ocupar o no permitir la colocación del anuncio o rótulo cuando existan razones de carácter técnico o estético.

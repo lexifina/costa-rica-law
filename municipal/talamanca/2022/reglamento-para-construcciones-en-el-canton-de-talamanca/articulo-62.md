@@ -1,0 +1,1 @@
+Artículo 62). ENTORNO: El entorno donde estén ubicados los contenedores debe de contemplar zonas verdes y preferiblemente plantas ornamentales o frutales de formación arbustiva nativa de la región y no especie invasora.
