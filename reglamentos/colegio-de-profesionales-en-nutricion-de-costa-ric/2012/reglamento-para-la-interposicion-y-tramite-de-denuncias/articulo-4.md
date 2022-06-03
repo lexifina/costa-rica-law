@@ -1,7 +1,0 @@
-Artículo 4º—Recepción de Denuncia. Las denuncias se presentarán en la Recepción del Colegio, en sus Oficinas ubicadas trescientos al norte del Hotel San José Palacio en La Uruca, para lo cual el funcionario (a) encargado (a):
-• Hará ingreso de la misma al registro automatizado que lleva la recepción, asignándole en forma inmediata un número consecutivo de ingreso, con indicación de fecha, hora de recibido y nombre de la persona que presentó el documento, entregándole una copia al denunciante.
-• Una vez asignado el número consecutivo de ingreso, se procederá a trasladar la misma al departamento encargado, debiendo dejarse un registro de la hora y fecha de traslado, departamento y nombre del funcionario (a) que recibió el traslado del documento.
-• El Colegio facilitará al denunciante un formulario de denuncia como guía para que interponga la misma. El formulario deberá firmarlo el denunciante y entregarlo en la recepción del Colegio para el trámite correspondiente.
-• Toda denuncia deberá tramitarse en el orden cronológico de su presentación.
-• La oficina encargada de dar trámite a la denuncia, concederá al denunciante un plazo de 10 días hábiles para que subsane los requisitos que se indican en los incisos 1,2 y 8 del Artículo Tercero de este Reglamento, o bien que aporte información adicional.
-• De no subsanarse los requisitos indicados en el plazo concedido, se procederá de conformidad con el párrafo segundo del artículo 264 de la Ley General de la Administración Pública.
