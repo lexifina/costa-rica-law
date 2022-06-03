@@ -1,6 +1,6 @@
-Artículo 54.—De las funciones.
+Artículo 54.- De las funciones.
 Son funciones de la Dirección de Asuntos Jurídicos:
-a) Estudiar, opinar y formular recomendaciones en materia jurídica.
+a)Estudiar, opinar y formular recomendaciones en materia jurídica.
 b) Dictaminar o redactar en su caso los proyectos de reglamento de la Universidad.
 c) Estudiar y emitir informes y dictámenes sobre asuntos encomendados por la Asamblea Universitaria, el Consejo Universitario, el Rector, la Auditoría y los Decanos.
 d) Asumir la defensa de las acciones judiciales que se interpongan contra la UTN y la gestión de las que esta inicie.

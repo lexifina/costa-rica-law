@@ -1,5 +1,5 @@
 Artículo 42.—Son derecho de los estudiantes de la Universidad Técnica Nacional:
-a) Disfrutar de los beneficios que este Estatuto Orgánico y los Reglamentos específicos le otorguen.
+a)Disfrutar de los beneficios que este Estatuto Orgánico y los Reglamentos específicos le otorguen.
 b) Manifestar libremente sus convicciones filosóficas, científicas, religiosas y políticas, artísticas y de cualquier otra índole en un marco de respeto institucional.
 c) Elaborar propuestas y denunciar situaciones, sea en forma individual o colectiva, que afecten sus metas, aspiraciones, intereses.
 d) Disponer de servicios estudiantiles que favorezcan su desarrollo integral y el logro de sus metas académicas de acuerdo con sus demandas y necesidades y las posibilidades de la Universidad.

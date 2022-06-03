@@ -1,1 +1,1 @@
-Artículo 15.—Disposiciones generales referentes a la asamblea. El Tribunal Electoral Universitario velará porque se respete la integración proporcional de los diferentes sectores de la Asamblea según lo estipulado en este Estatuto y supervisará la integración del Padrón Electoral.
+Artículo 15.- Disposiciones generales referentes a la Asamblea. El Tribunal Electoral Universitario velará porque se respete la integración proporcional de los diferentes sectores de la Asamblea según lo estipulado en este Estatuto y supervisará la integración del Padrón Electoral.

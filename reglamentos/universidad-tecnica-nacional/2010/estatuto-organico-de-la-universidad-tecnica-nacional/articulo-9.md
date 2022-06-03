@@ -1,5 +1,5 @@
-Artículo 9º—De los miembros de la asamblea universitaria. La asamblea estará integrada de la siguiente manera:
-a) Los miembros del Consejo Universitario, el Rector, los Vicerrectores y los Jefes de las oficinas con un rango no inferior a Dirección.
+Artículo 9º- De los miembros de la Asamblea Universitaria. La asamblea estará integrada de la siguiente manera:
+a)Los miembros del Consejo Universitario, el Rector, los Vicerrectores y los Jefes de las oficinas con un rango no inferior a Dirección.
 b) Los Directores de Centros, Institutos y Programas.
 c) Los Decanos de las Sedes.
 d) Los Directores de Carrera.

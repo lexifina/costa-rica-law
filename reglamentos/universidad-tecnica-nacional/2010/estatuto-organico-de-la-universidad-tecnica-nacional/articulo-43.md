@@ -1,5 +1,5 @@
 Artículo 43.—De los deberes: Son deberes de los estudiantes de la Universidad Técnica Nacional:
-a) Acatar las disposiciones de este Estatuto Orgánico y de los Reglamentos específicos que les correspondan.
+a)Acatar las disposiciones de este Estatuto Orgánico y de los Reglamentos específicos que les correspondan.
 b) Mantenerse al día con las obligaciones académicas, administrativas y financieras con la Universidad.
 c) Aportar su mejor esfuerzo en su desempeño académico, a fin de lograr la exitosa y oportuna culminación de su esfuerzo educativo
 d) Respetar las convicciones filosóficas, científicas, religiosas, políticas, artísticas y de cualquier otra índole de todos los miembros de la Comunidad Universitaria.

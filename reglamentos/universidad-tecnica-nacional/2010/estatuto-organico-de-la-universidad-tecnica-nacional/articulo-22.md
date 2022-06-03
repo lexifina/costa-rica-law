@@ -1,8 +1,8 @@
-Artículo 22.—De las funciones y atribuciones. Son atribuciones específicas del Rector:
-a) Dirigir y administrar las actividades académicas, administrativas y financieras de la Universidad al más alto nivel
+Artículo 22.- De las funciones y atribuciones. Son atribuciones específicas del Rector:
+a)Dirigir y administrar las actividades académicas, administrativas y financieras de la Universidad al más alto nivel
 b) Representar judicial y extrajudicialmente a la Universidad con el carácter de apoderado generalísimo sin límite de suma y dar por agotada la vía administrativa en materia disciplinaria laboral y estudiantil. Para la enajenación de bienes de la Universidad, deberá contar de previo con acuerdo expreso del Consejo Universitario.
 c) Administrar los bienes de la Universidad, sin perjuicio de las atribuciones del Consejo Universitario.
-d) Presentar al Consejo Universitario, para su aprobación, los proyectos DE: plan estratégico institucional, plan anual operativo, planes específicos y los presupuestos ordinario y extraordinarios que se requieran, así como sus modificaciones, y vigilar su correcta ejecución.
+d) Presentar al Consejo Universitario, para su aprobación, los proyectos de plan estratégico institucional, plan anual operativo, planes específicos y los presupuestos ordinarios y extraordinarios que se requieran, así como sus modificaciones, y vigilar su correcta ejecución.
 e) Proponer al Consejo Universitario el proyecto de estructura organizativa interna y sus modificaciones.
 f) Proponer al Consejo Universitario la creación de plazas y el establecimiento de servicios indispensables para el debido funcionamiento de la Universidad.
 g) Nombrar y remover al personal que le corresponda, de conformidad con este Estatuto y los reglamentos aplicables. Para efectos de nombramiento y remoción de trabajadores Universitarios, el Rector será la última instancia administrativa.

@@ -1,1 +1,1 @@
-Artículo 59.—Del quórum. El quórum para que los diversos órganos que se crean en este Estatuto será siempre de la mitad más uno de sus miembros, salvo que mediante norma estatutaria expresa se establezca un quórum diferente.
+Artículo 59.- Del quórum. El quórum para que los diversos órganos que se crean en este Estatuto será siempre de la mitad más uno de sus miembros, salvo que mediante norma estatutaria expresa se establezca un quórum diferente.

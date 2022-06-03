@@ -1,4 +1,4 @@
-Artículo 6º—Funciones. Para dar cumplimiento a sus fines, la Universidad Técnica Nacional tendrá las siguientes funciones y atribuciones:
+Artículo 6.- Funciones. Para dar cumplimiento a sus fines, la Universidad Técnica Nacional tendrá las siguientes funciones y atribuciones:
 a) Desarrollar programas académicos de docencia, investigación y extensión en todos los campos.
 b) Preparar profesionales e investigadores de nivel superior en el ámbito científico y tecnológico que demanda el país.
 c) Otorgar grados, títulos y títulos honoríficos.

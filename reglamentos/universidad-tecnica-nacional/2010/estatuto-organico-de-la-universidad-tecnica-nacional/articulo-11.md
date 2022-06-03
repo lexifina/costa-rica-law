@@ -1,2 +1,2 @@
-Artículo 11.—Del lugar para sesionar. Las decisiones electorales y plebiscitarias se tomarán mediante votación que se realizará en cada Sede, bajo la dirección del órgano competente.
+Artículo 11.- Del lugar para sesionar. Las decisiones electorales y plebiscitarias se tomarán mediante votación que se realizará en cada Sede, bajo la dirección del órgano competente.
 En el caso de que deba convocarse a la Asamblea Universitaria para sesionar mediante un acto formal, este órgano sesionará en la Sede Central de la Universidad o en el lugar que fije la autoridad legalmente convocante.

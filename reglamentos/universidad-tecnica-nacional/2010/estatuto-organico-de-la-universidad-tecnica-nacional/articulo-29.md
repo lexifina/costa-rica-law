@@ -1,1 +1,1 @@
-Artículo 29.—De los requisitos del director. Para ser designado Director de Carrera es necesario poseer como mínimo el grado de licenciado universitario, correspondiente a la especialidad de la carrera o afín a ella, y ser o haber sido profesor de educación superior
+Artículo 29.- De los requisitos del Director. Para ser designado Director de Carrera es necesario poseer como mínimo el grado de licenciado universitario, correspondiente a la especialidad de la carrera o afín a ella, y ser o haber sido profesor de educación superior.

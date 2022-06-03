@@ -1,5 +1,4 @@
 TÍTULO VIII
-Del Tribunal Electoral Universitario
-CAPÍTULO ÚNICO
-Artículo 56.—Naturaleza jurídica. El Tribunal Electoral Universitario es un órgano desconcentrado responsable de todos los aspectos relativos a la organización y ejecución de las elecciones que se efectúen en la Universidad. Actúa con independencia técnica y como órgano jurisdiccional en ese campo y sus resoluciones agotan la vía administrativa en materia electoral.
+Del Tribunal Electoral Universitario CAPÍTULO ÚNICO
+Artículo 56.- Naturaleza jurídica. El Tribunal Electoral Universitario es un órgano desconcentrado responsable de todos los aspectos relativos a la organización y ejecución de las elecciones que se efectúen en la Universidad. Actúa con independencia técnica y como órgano jurisdiccional en ese campo y sus resoluciones agotan la vía administrativa en materia electoral.
 Elaborará su propio Reglamento de Organización y Funcionamiento, así como el de Elecciones Universitarias, los que someterá a la aprobación del Consejo Universitario. Las modificaciones deberán ser aprobadas por mayoría de al menos dos terceras partes de los miembros del Consejo Universitario presentes, previa consulta obligatoria al Tribunal Electoral, en caso de que la iniciativa de reforma no surgiere de este órgano.
