@@ -1,0 +1,1 @@
+Artículo 67.-En lo no regulado expresamente en este Reglamento, se aplicará supletoriamente la Ley Orgánica del Colegio de Profesionales en Nutrición, su Reglamento Interno, el Código de Ética de Profesional, la Ley General de la Administración Pública, el Código Procesal Contencioso Administrativo y el Código Procesal Civil.

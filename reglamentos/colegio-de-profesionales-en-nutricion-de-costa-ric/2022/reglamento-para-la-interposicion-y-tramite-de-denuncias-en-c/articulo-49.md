@@ -1,0 +1,1 @@
+Artículo 49.-El órgano director deberá tramitar el expediente que le sea entregado por el secretario de la Junta Directiva. Para ello, deberá agregar todas las actuaciones previas que se hayan realizado y las que se celebren en el procedimiento administrativo respectivo.

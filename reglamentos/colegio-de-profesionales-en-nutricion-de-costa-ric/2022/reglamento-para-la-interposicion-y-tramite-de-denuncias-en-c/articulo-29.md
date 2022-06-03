@@ -1,0 +1,1 @@
+Artículo 29.-Corresponde a la Fiscalía del Colegio de Profesionales en Nutrición efectuar toda investigación preliminar que le ordene la Junta Directiva, esto respecto de las denuncias interpuestas por terceros interesados o de oficio.

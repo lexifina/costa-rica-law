@@ -1,0 +1,1 @@
+Artículo 65.-Habiendo quedado firme lo resuelto por el Tribunal de Honor, este lo comunicará a la Junta Directiva para la respectiva ejecución de la sanción, de lo cual deberán ser notificadas ambas partes.

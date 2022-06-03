@@ -1,0 +1,1 @@
+Artículo 45.-El Tribunal de Honor está facultado para acumular procesos y pretensiones en los términos dispuestos por la Ley General de Administración Pública, el Código Procesal Contencioso Administrativo y el Código Procesal Civil.

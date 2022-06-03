@@ -1,0 +1,1 @@
+Artículo 71.-Contará la Junta Directiva con un plazo de seis meses para redactar e implementar el protocolo de presentación de denuncias en formato digital. Este plazo comenzará a correr a partir del día siguiente de la publicación en el Diario Oficial La Gaceta del presente Reglamento.

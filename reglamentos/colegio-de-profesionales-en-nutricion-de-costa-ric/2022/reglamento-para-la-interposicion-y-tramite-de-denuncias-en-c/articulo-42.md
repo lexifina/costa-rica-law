@@ -1,0 +1,1 @@
+Artículo 42.-El Tribunal de Honor, previo a la apertura del procedimiento, verificará que la denuncia cuente con el informe emitido por la Fiscalía. En caso de no existir, procederá a requerirlo de forma inmediata para que la Fiscalía lo elabore y lo haga llegar al Tribunal de Honor a la brevedad posible.

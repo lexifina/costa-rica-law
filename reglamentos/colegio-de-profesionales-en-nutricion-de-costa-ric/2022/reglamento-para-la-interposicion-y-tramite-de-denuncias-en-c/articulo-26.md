@@ -1,0 +1,1 @@
+Artículo 26.-Si el interesado no cumple con la prevención, o manifiesta expresamente y por escrito no estar interesado en continuar con la denuncia, la Dirección Ejecutiva informará a la Fiscalía para que a su criterio pueda iniciar de oficio la investigación preliminar y continuar con el procedimiento reglamentado.

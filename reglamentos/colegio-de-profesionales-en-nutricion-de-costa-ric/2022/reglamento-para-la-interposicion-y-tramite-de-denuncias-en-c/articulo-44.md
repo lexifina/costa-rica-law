@@ -1,0 +1,1 @@
+Artículo 44.-Si las partes llegan a un acuerdo conciliatorio, deberán presentarlo por escrito, con la firma de todas las partes involucradas, ante el órgano director del procedimiento administrativo para que este conozca de los alcances del acuerdo y se continue el procedimiento administrativo sobre lo no conciliado, en caso de que así fuera.

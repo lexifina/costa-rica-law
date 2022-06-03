@@ -1,0 +1,1 @@
+Artículo 21.-Recibida la denuncia por el Tribunal de Honor, este fungirá como órgano director y decisor encargado de realizar la instrucción del procedimiento administrativo y el dictado de la resolución final.

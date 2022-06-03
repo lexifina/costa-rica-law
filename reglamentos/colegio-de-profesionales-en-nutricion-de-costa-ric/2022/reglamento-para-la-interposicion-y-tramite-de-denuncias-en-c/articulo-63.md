@@ -1,0 +1,1 @@
+Artículo 63.-Cualquier recurso que se interponga se deberá presentar por escrito ante la secretaría de Junta Directiva, quien deberá conocerlo y resolverlo a más tardar en la sesión ordinaria o extraordinaria siguiente a su presentación.

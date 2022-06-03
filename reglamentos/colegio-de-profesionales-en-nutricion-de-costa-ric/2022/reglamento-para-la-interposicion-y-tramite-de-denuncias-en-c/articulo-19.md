@@ -1,0 +1,3 @@
+CAPÍTULO III
+De los órganos que conocen e instruyen las denuncias
+Artículo 19.-Corresponde a la Junta Directiva del Colegio de Profesionales en Nutrición conocer las denuncias presentadas contra miembros del Colegio, por la infracción a las disposiciones éticas, jurídicas y morales que rigen el ejercicio de la profesión. Demostrada la falta, le corresponde al Tribunal de Honor imponer las sanciones de conformidad con los artículos 34, 35, 40 y 41 de la Ley Orgánica del Colegio de Profesionales en Nutrición. Una vez que la sanción impuesta quede en firme, le corresponde a la Junta Directiva ejecutarla.

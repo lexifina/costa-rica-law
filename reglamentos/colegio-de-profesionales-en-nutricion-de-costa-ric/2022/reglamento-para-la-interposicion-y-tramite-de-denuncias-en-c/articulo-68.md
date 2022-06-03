@@ -1,0 +1,2 @@
+Artículo 68.-La reforma de este reglamento es competencia de la Asamblea General en cualquiera de sus sesiones extraordinarias, a solicitud de cualquiera de sus miembros, de la Junta Directiva, de la Fiscalía o del Tribunal de Honor.
+Las reformas que se aprueben entraran en vigor el día hábil inmediato siguiente a la publicación en el Diario Oficial La Gaceta, que estará a cargo de la Dirección Ejecutiva.

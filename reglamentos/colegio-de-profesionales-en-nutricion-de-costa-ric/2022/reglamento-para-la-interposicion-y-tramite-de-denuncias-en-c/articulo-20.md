@@ -1,0 +1,1 @@
+Artículo 20.-La Junta Directiva trasladará a la Fiscalía la denuncia para que realice la investigación preliminar o rinda el respectivo informe según corresponda; que servirá de insumo a la Junta Directiva para determinar si existe o no mérito para continuar el procedimiento.
