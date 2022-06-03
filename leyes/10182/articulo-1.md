@@ -1,0 +1,14 @@
+N° 10182
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA DEL ARTÍCULO 196 DE LA LEY 9078, LEY
+DE TRÁNSITO POR VÍAS PÚBLICAS Y SEGURIDAD
+VIAL, DE 4 DE OCTUBRE DE 2012
+ARTÍCULO ÚNICO- Se reforma el artículo 196 de la Ley 9078, Ley de Tránsito por Vías Públicas y Seguridad Vial, de 4 de octubre de 2012.
+El texto es el siguiente:
+Artículo 196- Cancelación de obligaciones para realizar trámites. Todo infractor cancelará las multas firmes por infracciones a esta ley que aparezcan a su nombre, previo a realizar el pago del derecho de circulación o marchamo, extensión de permisos y concesiones, obtención del permiso temporal de aprendizaje, licencias de conducir, renovación o duplicado de estas, el pago de derechos, tasas y cánones que procedan, la solicitud de expedición de placas o su reposición, las solicitudes de devolución de licencias de conducir, de placas o de vehículos detenidos por las autoridades de tránsito o por otras autoridades.
+Los cuerpos de policía del Poder Ejecutivo establecidos en la Ley 5482, Ley Orgánica del Ministerio de Seguridad Pública, de 24 de diciembre de 1973 y la Ley 7410, Ley General de Policía, de 26 de mayo de 1994, y los cuerpos de policía municipales, la policía judicial, el Cuerpo de Bomberos de Costa Rica y La Cruz Roja Costarricense, por el ejercicio propio de sus funciones, tendrán la posibilidad de realizar los siguientes trámites sin haber cancelado previamente las multas: pago del derecho de circulación o marchamo, solicitud de expedición de placas o su reposición, solicitudes de devolución de placas o de vehículos detenidos por las autoridades de tránsito o por otras. De ninguna manera se exime el pago de las multas. Dichas instituciones deberán cancelar los montos acumulados en un período hasta de seis meses, en los cuales no correrán los intereses; si después de los seis meses el monto no es cancelado, comenzará a correr el monto por intereses y los vehículos deberán salir de circulación hasta que las multas sean canceladas. Se cancelará el seguro obligatorio de vehículos y los derechos correspondientes para realizar las siguientes gestiones: inscripciones, reinscripciones, inscripción de gravámenes, prendarios y el cambio de las características básicas de los vehículos. Los propietarios de vehículos destinados al transporte público cancelarán las infracciones que pesen sobre el automotor, cuando se trate de gestiones referentes a concesiones, permisos, exoneración de impuestos o trámites ante el Consejo de Transporte Público (CTP).
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los cinco días del mes de mayo del año dos mil veintidós.
+EJECÚTESE Y PUBLÍQUESE.
