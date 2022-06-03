@@ -6,7 +6,6 @@ PRECIOS DE GAS LICUADO DE
 PETRÓLEO, BUNKER, ASFALTO Y
 EMULSIÓN ASFÁLTICA
 Enero, 2016
-[imagen]
 CONTENIDO
 CONTENIDO ............................................................................................................ i
 Prólogo ................................................................................................................... 1
@@ -58,24 +57,21 @@ II- Marco Legal
 4. El artículo 4 de la Ley Orgánica del Ambiente, Ley No. 7554 establece dentro de los fines de la ley fomentar y lograr la armonía entre el ser humano y su medio, satisfacer las necesidades humanas básicas, prevenir y minimizar los daños al ambiente, regular la conducta humana y la actividad pública y privada respecto del ambiente, así como establecer los principios que orienten las actividades de la Administración Pública en materia ambiental.
 5. El artículo 59 de la Ley Orgánica del Ambiente, define que se entiende por contaminación del ambiente toda alteración o modificación del ambiente que pueda perjudicar la salud humana, atentar contra los recursos naturales o afectar el ambiente en general de la Nación. Señala que el Estado adoptará las medidas que sean necesarias para prevenir o corregir la contaminación ambiental.
 6. En el Marco de la 21º Conferencia de las Partes de la Convención Marco de Cambio Climático celebrada en París, 187 países incluido Costa Rica de 195 países entregaron sus Contribuciones Nacionales Previstas y Determinadas (INDC´s por sus siglas en inglés) las cuales serán exigibles a partir del 2020. El compromiso nacional implica una reducción de emisiones de GEI de 44%, comparado con un escenario Business As Usual (BAU), y representa una reducción de emisiones de GEI de 25% contrapuesto con las emisiones de 2012. Para lograr su meta, Costa Rica tendrá que reducir 170.500 toneladas de GEI año con año, hasta el 2030.
-7. La visión de corto, mediano y largo plazo del Subsector Energía ha sido plasmada en el VII Plan Nacional de Energía 2015-2030, el cual establece como objetivo “garantizar que el precio de los combustibles sea eficiente y coadyuve a la competitividad del país” y como acción requerida “elaborar una propuesta de fijación de precios que sea congruente con la dinámica del mercado internacional, que reconozca la calidad de importación de los combustibles y que posibilite las inversiones en la cadena de suministro, incluyendo la producción local”.
-8. El VII Plan Nacional de Energía 2015-2030 reitera además el objetivo de “impulsar la diversificación de la matriz energética por medio de la incorporación paulatina de energías alternativas o bajas en emisiones” y en dicho objetivo incorpora como una de sus metas “ampliar la participación del gas licuado de petróleo (GLP) en la matriz energética” tomando en cuenta que el gas licuado de petróleo ha mantenido un crecimiento sostenido desde su incorporación en la matriz energética teniendo una relevante diferencia en el precio con respecto a los otros combustibles y acarreando beneficios en la reducción de emisiones contaminantes.
+7. La visión de corto, mediano y largo plazo del Subsector Energía ha sido plasmada en el VII Plan Nacional de Energía 2015-2030, el cual establece como objetivo "garantizar que el precio de los combustibles sea eficiente y coadyuve a la competitividad del país" y como acción requerida "elaborar una propuesta de fijación de precios que sea congruente con la dinámica del mercado internacional, que reconozca la calidad de importación de los combustibles y que posibilite las inversiones en la cadena de suministro, incluyendo la producción local".
+8. El VII Plan Nacional de Energía 2015-2030 reitera además el objetivo de "impulsar la diversificación de la matriz energética por medio de la incorporación paulatina de energías alternativas o bajas en emisiones" y en dicho objetivo incorpora como una de sus metas "ampliar la participación del gas licuado de petróleo (GLP) en la matriz energética" tomando en cuenta que el gas licuado de petróleo ha mantenido un crecimiento sostenido desde su incorporación en la matriz energética teniendo una relevante diferencia en el precio con respecto a los otros combustibles y acarreando beneficios en la reducción de emisiones contaminantes.
 9. Que la Ley de la ARESEP establece en su primer artículo que la Autoridad Reguladora no se sujetará a los lineamientos del Poder Ejecutivo en el cumplimiento de las atribuciones que se le otorgan en esta Ley; no obstante, estará sujeta al Plan Nacional de Desarrollo 2015-2018, a los planes sectoriales correspondientes y a las políticas sectoriales que dicte el Poder Ejecutivo.
 10. La Resolución RJD 230-2015 del ARESEP publicada en la Gaceta No. 89 del 30 de octubre del 2015 establece la nueva metodología tarifaria ordinaria y extraordinaria para fijar el precio de los combustibles derivados de los hidrocarburos.
 III- Situación actual
 1-Composición del consumo de combustibles:
 Como se puede observar en el gráfico No.1, las gasolinas y diésel representan un 76% en la composición de consumo de combustibles en Costa Rica.
 Dada la dependencia de los combustibles fósiles 100% importados, ha sido una preocupación el incremento en el parque automotor privado que utiliza fundamentalmente gasolina. La cantidad de vehículos por cada 1.000 habitantes pasó de 132 en 1994 a 263 en el 2014 para un total de vehículos cercano a 1,2 millones.
-[imagen]
 El gráfico N°2 permite observar que el consumo de las gasolinas para el transporte privado, incrementó en un 43% en el período de 1999 al 2013. Este comportamiento se presenta a pesar de los altos precios de los combustibles, y de las medidas impulsadas por el gobierno para procurar el ahorro y la eficiencia en el consumo. El precio de los combustibles no representa una variable determinante en el consumo del mismo.
-[imagen]
-[imagen]
 Con el fin de intervenir esta tendencia hacia el crecimiento del transporte privado, el VII Plan Nacional de Energía 2015-2030, en materia de combustibles, define tres ejes de acción:
 Eje 5: Hacia una flota vehicular más amigable con el ambiente.
 Eje 6: Con miras a un transporte público sostenible.
 Eje 7: En la ruta hacia combustibles más limpios
 El VII Plan Nacional de Energía 2015-2030 en concordancia con el Plan Nacional de Desarrollo 2015-2018, promueve también la mejora en la calidad del aire de las ciudades con la reducción de emisiones por parte de vehículos. El Plan Nacional de Energía 2015-2030 incluye la mejora del transporte público con el fin de reducir el transporte privado. Dentro de sus desafíos se encuentran:
-“- Mejorar la planificación urbana para lograr la densificación de ciudades que permitan desarrollar un transporte público integrado,
+"- Mejorar la planificación urbana para lograr la densificación de ciudades que permitan desarrollar un transporte público integrado,
 - Reestructuración y modernización del transporte público y concretar los proyectos de sectorización, diametral Pavas- Curridabat y pago electrónico,
 - Inculcar en la población mediante campañas de información la preferencia de utilización del transporte público., con propuestas de sectorización de rutas de autobuses. " (PNE pag.113)
 En lo que se refiere al aporte industrial con el eje 7, según información de la Cámara de Industrias de Costa Rica, aproximadamente 20 empresas han realizado sustituciones totales o parciales de bunker a gas, con el fin de contribuir con los objetivos del país de contar con combustibles más limpios que protejan el ambiente. Dado lo anterior es de esperar que las ventas por GLP aumenten en los próximos años, para lo cual RECOPE ha desarrollado en los últimos años, la infraestructura requerida.
@@ -83,7 +79,6 @@ Dentro de los objetivos específicos se encuentra ampliar la participación del 
 El siguiente cuadro presenta el consumo de los productos incluidos en la presente política.
 RECOPE: Ventas acumuladas por producto enero a
 noviembre 2015 (metros cúbicos)
-[imagen]
 El estímulo hacia la sustitución energética más limpia se produce por medio de política de precios y de mecanismos de concienciación para la protección del ambiente; de tal forma que bajo un esquema colaborativo las industrias realicen las inversiones necesarias para la sustitución de los equipos.
 2- Precios de los combustibles:
 Los preciso de ventas de estos productos con impuesto al 1 de enero del 2016 al consumidor según la resolución RIE-109-2015 se presentan en el siguiente cuadro:
@@ -99,7 +94,6 @@ Precios comparativos del GLP en Centroamérica.
 Precios al consumidor final del GLP
 (cilindro de 25 lbs)
 (semana del 3 al 9 de enero 2016)
-[imagen]
 En el cuadro anterior, se observa que Costa Rica cuenta con los precios para el GLP más altos de Centroamérica, sin embargo es importante aclarar que países como Panamá y otros, este producto está subsidiado.
 3- Mercado del GLP
 El GLP es un combustible derivado del petróleo, formado por una mezcla de propano-butano con trazas de hidrocarburos livianos y pesados, con impurezas tales como el azufre. Es una fuente energética que conjuga versatilidad, eficiencia y compatibilidad ambiental. Las fuentes de obtención de los componentes de este combustible son las refinerías de petróleo y plantas de proceso de gas natural. En Costa Rica la composición del que se comercializa es de un 70% propano y 30% butano.
@@ -109,89 +103,87 @@ La utilización del GLP en motores de combustión interna de automóviles, camio
 El consumo de GLP representa un 8,9% de las ventas totales de RECOPE. Las ventas se realizan a 12 clientes directos de los cuales 6 son distribuidores y 6 son industrias que adquieren el producto en forma directa. Las industrias son del área alimenticia, vidrio, metal y cerámica.
 Según el Balance Energético Nacional 2013, elaborado por la Dirección Sectorial de Energía del Ministerio de Ambiente y Energía (MINAE), el consumo del GLP se realiza en los sectores: residencial, comercial (hoteles y restaurantes), industrial y transporte.
 Se observa en el Gráfico No. 4, cómo se ha venido incrementando la utilización de GLP en el Sector Industrial, lo cual se explica fundamentalmente por la sustitución que han realizado las Empresas totales o parciales de bunker a gas, con el fin de contribuir con los objetivos del país de reducción de emisiones y costos de operación. Según información de la Cámara de Industrias de Costa Rica, a la fecha 28 industrias y hospitales han realizado estas transformaciones a GLP, en sus procesos.
-[imagen]
 En el siguiente cuadro se presentan las cifras de consumo por sector durante el año 2013. Se observa que la Industria representa un 43% del consumo del GLP, seguido por el sector residencial con un 37,1%.
 Costa Rica: Consumo del por sector según Balance
 Energético Nacional 2013 (terajulios)
-[imagen]
 3.1 Sector Industrial
 Las empresas que reportaron a la Cámara de Industrias consumo de gas (GLP) se ubican en las siguientes actividades1:
 1Lista proporcionada por la Cámara de Industrias de Costa Rica, enero 2016.
-• Agroindustria
-• Alimentaria
-• Comercialización y producción de derivados de carne
-• Comercializadora de productos alimenticos
-• Comercializadora poliducto agropecuario
-• Comercio
-• Confección de tela de punto
-• Construcción, cemento
-• Distribución de productos alimenticios
-• Elaboración de tortillas
-• Embotellamiento de bebidas no alcohólicas
-• Enderezado y pintura
-• Fábrica de compuestos p.v.c.
-• Fábrica de muebles en aluminio
-• Fabricación de aditivos para construcción
-• Fabricación de bebidas
-• Fabricación de cajas de cartón
-• Fabricación de cajas y gabinetes metálicos
-• Fabricación de combustibles y prod higiénicos
-• Fabricación de conos para helados
-• Fabricación de electrodomésticos
-• Fabricación de galletas y repostería
-• Fabricación de loza sanitaria
-• Fabricación de moldes de inyección plástica
-• Fabricación de pan, repostería y premezclas.
-• Fabricación de pinturas
-• Fabricación de pisos de cerámica
-• Fabricación de remezclas
-• Fabricación de productos de panadería congelados y terminados
-• Fabricación de productos de plástico
-• Fabricación de refrescos y siropes
-• Fabricación de tuberías
-• Fabricación equipos de distribución eléctrica
-• Fabricación lámparas
-• Fabricación productos químicos
-• Fabricación y comercialización de productos de aluminio y vidrio
-• Fabricantes de moldes industriales plásticos
-• Galvanizado estructura metálicas.
-• Impresión de diseños gráficos en cajas
-• Industria alimentaria
-• Industrialización y comercialización de granos básicos
-•Laminas para techo y tuberías de acero
-• Levante y descarga de mercadería
-• Manufactura
-• Manufactura de envases en hojalata
-• Manufactura y comercialización de productos de limpieza
-• Maquinaria industrial
-• Pecuaria industrial
-• Procesamiento de chile picante y pimienta
-• Proceso de jugos y de subproductos de naranja y piña
-• Producción de alimentos a base de soya
-• Producción de arroz
-• Producción de cajas de cartón
-• Producción de cosméticos
-• Producción de envases y componentes de hojalata
-• Producción de etiquetas
-• Producción de fármacos
-• Producción de helados
-• Producción de salsas
-• Producción empaques de plástico
-• Producción jugos y purés
-• Producción venta y distribución de medicamentos para consumo humano
-• Producción y comercialización de café
-• Producción y distribución de productos farmacéuticos
-• Producción y distribución salsas y aderezos
-• Producción y embotellado de bebidas alcohólicas
-• Productos de plástico
-• Productos lácteos
-• Productos plásticos para limpieza
-• Reciclaje de plomo
-• Servicios de lavandería
-• Suministros industriales alimentarios
-• Torrefactora de café
-• Venta y fabricación de fragancias
-• Venta y reparación de maquinaria pesada
+. Agroindustria
+. Alimentaria
+. Comercialización y producción de derivados de carne
+. Comercializadora de productos alimenticos
+. Comercializadora poliducto agropecuario
+. Comercio
+. Confección de tela de punto
+. Construcción, cemento
+. Distribución de productos alimenticios
+. Elaboración de tortillas
+. Embotellamiento de bebidas no alcohólicas
+. Enderezado y pintura
+. Fábrica de compuestos p.v.c.
+. Fábrica de muebles en aluminio
+. Fabricación de aditivos para construcción
+. Fabricación de bebidas
+. Fabricación de cajas de cartón
+. Fabricación de cajas y gabinetes metálicos
+. Fabricación de combustibles y prod higiénicos
+. Fabricación de conos para helados
+. Fabricación de electrodomésticos
+. Fabricación de galletas y repostería
+. Fabricación de loza sanitaria
+. Fabricación de moldes de inyección plástica
+. Fabricación de pan, repostería y premezclas.
+. Fabricación de pinturas
+. Fabricación de pisos de cerámica
+. Fabricación de remezclas
+. Fabricación de productos de panadería congelados y terminados
+. Fabricación de productos de plástico
+. Fabricación de refrescos y siropes
+. Fabricación de tuberías
+. Fabricación equipos de distribución eléctrica
+. Fabricación lámparas
+. Fabricación productos químicos
+. Fabricación y comercialización de productos de aluminio y vidrio
+. Fabricantes de moldes industriales plásticos
+. Galvanizado estructura metálicas.
+. Impresión de diseños gráficos en cajas
+. Industria alimentaria
+. Industrialización y comercialización de granos básicos
+.Laminas para techo y tuberías de acero
+. Levante y descarga de mercadería
+. Manufactura
+. Manufactura de envases en hojalata
+. Manufactura y comercialización de productos de limpieza
+. Maquinaria industrial
+. Pecuaria industrial
+. Procesamiento de chile picante y pimienta
+. Proceso de jugos y de subproductos de naranja y piña
+. Producción de alimentos a base de soya
+. Producción de arroz
+. Producción de cajas de cartón
+. Producción de cosméticos
+. Producción de envases y componentes de hojalata
+. Producción de etiquetas
+. Producción de fármacos
+. Producción de helados
+. Producción de salsas
+. Producción empaques de plástico
+. Producción jugos y purés
+. Producción venta y distribución de medicamentos para consumo humano
+. Producción y comercialización de café
+. Producción y distribución de productos farmacéuticos
+. Producción y distribución salsas y aderezos
+. Producción y embotellado de bebidas alcohólicas
+. Productos de plástico
+. Productos lácteos
+. Productos plásticos para limpieza
+. Reciclaje de plomo
+. Servicios de lavandería
+. Suministros industriales alimentarios
+. Torrefactora de café
+. Venta y fabricación de fragancias
+. Venta y reparación de maquinaria pesada
 La eventual rebaja en el precio de la gasolina y el diésel para el consumidor, se repondría con creces con el incremento en los precios de los productos cuyos costos se impactan con el aumento de los combustibles asociados con procesos industriales, como lo son el bunker y el gas licuado de petróleo. El costo de los combustibles utilizados en los procesos productivos representa uno de los principales factores que impactan la competitividad de las industrias.
 En contraposición a lo indicado, el impacto en las operaciones de la industria sería de tal magnitud que se podría terminar con la habilidad exportadora de la industria nacional y serían muy pocas las empresas que puedan sobrevivir para abastecer el mercado interno, al competir con empresas extranjeras que producen con costos de combustibles más baratos (especialmente gas natural).
 3.2 Sector hoteles y restaurantes:
@@ -201,49 +193,50 @@ Los hoteles y restaurantes utilizan gas para cocción de alimentos. Informes del
 De acuerdo con la Encuesta Nacional de Hogares (ENAHO) 2014, realizada por el Instituto Nacional de Estadística y Censos (INEC), del total de hogares en condición de pobreza (22,4% de la población total) se encuentra que 140,178 (el 44% del total de hogares en pobreza) utilizan el gas para cocinar, siendo la principal fuente de energía utilizada por estos hogares (un 41,8% utiliza electricidad y un 13,5% utilizan leña o carbón).
 Los datos anteriores contrastan con las familias que se ubican en los deciles más altos de ingreso. Así en el decil 10 cuyo ingreso per cápita de los hogares supera los 778,624 colones, la principal fuente de energía para cocinar es la eléctrica (74,5% de los hogares), mientras que el gas es utilizado por 34,031 hogares (un 23,8%).
 Por otra parte de los hogares de escasos recursos que utilizan gas para cocinar solamente un 17,4% poseen un vehículo (no de trabajo), mientras que los hogares del decil de ingresos más altos que utilizan gas para cocinar, un 77,1% tiene al menos un vehículo.
-Adicionalmente, de acuerdo con resultados de la Encuesta Nacional de Ingresos y Gastos realizada por el INEC en el año 2013, del gasto en consumo per cápita mensual realizado por el primer quintil (20% de hogares con menores ingresos) el gasto realizado en “electricidad, gas y otros combustibles” representa el 7,6% y el gasto en “combustible” para transporte representa el 2,1% del gasto total per cápita de estos hogares. Por su parte para el quintil 5 (el de mayores ingresos) el gasto en “electricidad, gas y otros combustibles” representa el 2,3% y el gasto el “combustibles” para transporte representa el 5,5% del gasto total per cápita de estos hogares.
-En términos de montos, el gasto en “electricidad, gas y otros combustibles” del primer quintil ascendió a un promedio per cápita de 5,147 colones, mientras que el del quintil 5 a 11,948 colones, lo que equivale a que los gastos promedios en esos rubros de los hogares del quintil de más altos ingresos es 2,3 veces el realizado por los hogares del primer quintil. Por su lado los gastos per cápita en “combustibles” para transporte del primer quintil ascendieron a 1,418 colones, mientras que los del quintil 5 ascendieron a 28,065 colones, casi 20 veces más de lo que se gasta en promedio per cápita en el primer quintil.
+Adicionalmente, de acuerdo con resultados de la Encuesta Nacional de Ingresos y Gastos realizada por el INEC en el año 2013, del gasto en consumo per cápita mensual realizado por el primer quintil (20% de hogares con menores ingresos) el gasto realizado en "electricidad, gas y otros combustibles" representa el 7,6% y el gasto en "combustible" para transporte representa el 2,1% del gasto total per cápita de estos hogares. Por su parte para el quintil 5 (el de mayores ingresos) el gasto en "electricidad, gas y otros combustibles" representa el 2,3% y el gasto el "combustibles" para transporte representa el 5,5% del gasto total per cápita de estos hogares.
+En términos de montos, el gasto en "electricidad, gas y otros combustibles" del primer quintil ascendió a un promedio per cápita de 5,147 colones, mientras que el del quintil 5 a 11,948 colones, lo que equivale a que los gastos promedios en esos rubros de los hogares del quintil de más altos ingresos es 2,3 veces el realizado por los hogares del primer quintil. Por su lado los gastos per cápita en "combustibles" para transporte del primer quintil ascendieron a 1,418 colones, mientras que los del quintil 5 ascendieron a 28,065 colones, casi 20 veces más de lo que se gasta en promedio per cápita en el primer quintil.
 Los datos anteriores llevan a la conclusión que un incremento significativo en el precio del gas y una rebaja poco significativa en los combustibles (gasolina y diésel) sería altamente regresivo, afectando significativamente a los hogares de la población en pobreza y pobreza extrema y favoreciendo a los hogares de mayores ingresos.
 4- Mercado de bunker
 RECOPE vende dos tipos de Bunker, el denominado Bunker C y el Bunker de bajo azufre. Las ventas de bunker representan un 3,6% de las ventas totales de RECOPE. De noviembre 2014 a octubre 2015 se vendió un total de 15,502 metros cúbicos de Bunker de bajo azufre, utilizado principalmente en la generación térmica y en mucho menor escala en la industria cementera.
 El Bunker C, fue adquirido en el período noviembre 2014- octubre 2015 por 54 clientes. El 53% del producto fue adquirido por 5 clientes, los cuales lo utilizan en procesos industriales de vidrio y en la industria alimentaria. Los restantes 49 clientes adquiere cada uno en promedio, un 1% del producto vendido. Son en su mayoría del sector industrial; están incluidos también los hospitales de la CCSS. Según el Balance Energético Nacional 2013, elaborado por la Dirección Sectorial de Energía del MIINAE, el bunker es el tercer producto más usado en la industria, luego del bagazo (25,4%) y la electricidad (17,6%).
 A continuación se detallan las actividades que se ejecutan en el país, en las cuales se utiliza el bunker.3
 3Encuesta sobre consumo de combustibles realizada por la Cámara de Industrias de Costa Rica.
-•Agrícola exportadora
-• Agroindustria
-• Alimentos embutidos
-• Alimentos lácteos – yogurt
-• Comercialización y producción de derivados de carne
-• Construcción, cemento
-• Cultivo crianza de tilapia
-• Elaboración de fertilizantes
-•Fabricación de aceites
-• Fabricación de cajas de cartón
-• Fabricación de calcetines
-• Fabricación de embutidos
-• Fabricación de pisos de cerámica
-• Fabricación de productos alimenticos
-• Fabricación de telas vináticas
-• Fabricación y comercialización de productos semielaborados y terminados de aluminio.
-• Industria papelera cuidado familiar
-• Industria textil
-• Pecuaria industrial
-• Preparación de alimentos
-• Procesamiento de pieles vacuno
-• Proceso de jugos y de subproductos de naranja y piña
-• Producción de arroz y alimentos para animales
-• Producción de café
-• Producción de cajas de cartón
-• Producción de pastas alimentarias
-• Producción de quesos
-• Producción de salsas
-• Producción de varillas y perfiles de acero para construcción civil
-• Producción jugos y purés
-• Producción y distribución de ropa de punto
-• Productos lácteos
+.Agrícola exportadora
+. Agroindustria
+. Alimentos embutidos
+. Alimentos lácteos - yogurt
+. Comercialización y producción de derivados de carne
+. Construcción, cemento
+. Cultivo crianza de tilapia
+. Elaboración de fertilizantes
+.Fabricación de aceites
+. Fabricación de cajas de cartón
+. Fabricación de calcetines
+. Fabricación de embutidos
+. Fabricación de pisos de cerámica
+. Fabricación de productos alimenticos
+. Fabricación de telas vináticas
+. Fabricación y comercialización de productos semielaborados y terminados de aluminio.
+. Industria papelera cuidado familiar
+. Industria textil
+. Pecuaria industrial
+. Preparación de alimentos
+. Procesamiento de pieles vacuno
+. Proceso de jugos y de subproductos de naranja y piña
+. Producción de arroz y alimentos para animales
+. Producción de café
+. Producción de cajas de cartón
+. Producción de pastas alimentarias
+. Producción de quesos
+. Producción de salsas
+. Producción de varillas y perfiles de acero para construcción civil
+. Producción jugos y purés
+. Producción y distribución de ropa de punto
+. Productos lácteos
 5- Mercado del asfalto y emulsión asfáltica
 Las ventas de Asfalto y emulsión asfálticas representan un 3,1 % de las ventas totales de RECOPE (Asfalto un 2,8% y Emulsión un 0,3%). El asfalto es adquirido por 14 clientes mientras que la emulsión por 16. La mayoría son compañías constructoras de carreteras, además del Ministerio de Obras Públicas y Transportes y algunas Municipalidades. El asfalto es usado para construir y mantener la infraestructura vial.
 Resulta de mucho interés para el Gobierno regular su precio para evitar que las carreteras del país sufran un mayor deterioro, y como consecuencia la flota vehicular requerirá más mantenimiento preventivo, correctivo, el cual no se cubriría con pequeñas rebajas en el precio de la gasolina y el diésel generados por el ajuste en el precio del asfalto.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 43576 del 3 de junio de 2022, se acordó excluir a los Asfaltos y Emulsiones Asfálticas del literal V de la Política Sectorial para los precios de Gas Licuado de Petróleo, Búnker, Asfalto y Emulsión Asfáltica, de manera que los asfaltos y emulsiones asfáltica no sean beneficiarios en la fijación de precio final, tanto para lo establecido en el lineamiento estratégico, como en la meta y el modelo de gestión de esa política. Por lo que para los precios de Asfalto y Emulsión Asfáltica ya no se deberá mantener una relación con respecto al precio internacional similar a la que ha estado vigente en el periodo 2008-2015.)
 6- Empleo en Costa Rica
 Las industrias que utilizan el bunker y el GLP en sus procesos productivos tienen un fuerte impacto en la generación de empleo del país, que en caso de no continuar con sus operaciones afectarían las condiciones socio económicas del país. Según el Instituto Nacional de Estadística y Censos, al tercer trimestre del año 2015 el país contaba con una tasa de desempleo del 9,2% para un aproximado de 210,000 personas sin empleo. A la dificultad de conseguir trabajo se adiciona el subempleo, es decir, aquellas personas que trabajan menos horas de las que desean. Lo que provoca aumento de la informalidad.
 Según la Encuesta Continua de Empleo publicada por el Instituto Nacional de Estadística y Censos al tercer trimestre del 2015 el porcentaje de ocupados con empleo informal fue 45,7%, evidenciándose un aumento con respecto a otros trimestres del 2015. La población ocupada en un empleo informal fue cerca de 942 mil personas, de las cuales 553 mil eran hombres y 389 mil mujeres.
@@ -267,8 +260,8 @@ Los precios de venta del Gas Licuado de Petróleo, Bunker, Asfalto, Emulsión As
 3- Meta
 Lograr que los precios de venta del Gas Licuado de Petróleo, Bunker, Asfalto, Emulsión Asfáltica a partir del 2016 mantienen una relación con respecto al precio internacional similar a la vigente en el período 2008-2015, en el tanto no exista disponibilidad de combustibles alternativos más limpios a precios competitivos y no haya capacidad de suministro de los mismos a nivel nacional.
 4- Modelo de gestión
-4.1 La fijación de precios de venta en plantel sin impuestos para los productos Gas Licuado de Petróleo, Búnker, Asfalto, Emulsión Asfáltica mantiene una relación con respecto al precio internacional similar a la que ha estado vigente en el periodo 2008-2015 por medio de instrumentos económicos apropiados. Las diferencias que se generen en el precio de venta plantel que fije ARESEP para estos productos, serán trasladadas al precio de venta plantel de los restantes productos que venda RECOPE, salvo el jet fuel.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42352 del 20 de mayo del 2020)
+4.1 La fijación de precios de venta en plantel sin impuestos para los productos Gas Licuado de Petróleo y Búnker, mantiene una relación con respecto al precio internacional similar a la que ha estado vigente en el periodo 2008-2015 por medio de instrumentos económicos apropiados. Las diferencias que se generen en el precio de venta plantel que fije ARESEP para estos productos, serán trasladadas al precio de venta plantel de los restantes productos que venda RECOPE, excepto para el Jet fuel, el asfalto y las emulsiones asfálticas.
+(Así reformado el literal anterior por el artículo 2° del decreto ejecutivo N° 43576 del 3 de junio de 2022)
 4.2 La aplicación de esta política elimina gradualmente el diferencial del precio de venta en plantel con respecto al precio internacional del petróleo en el momento en que exista la disponibilidad de combustibles alternativos más limpios a precios competitivos y que haya capacidad de suministro de los mismos a nivel nacional.
 4.3 La infraestructura energética nacional se adapta para la incorporación de productos más limpios a precios competitivos.
 4.4 El cumplimiento de esta meta se valora anualmente por la Dirección Sectorial de Energía del MINAE.

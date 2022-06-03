@@ -15,3 +15,4 @@ Política Sectorial para los precios de gas licuado de petróleo, bunker, asfalt
 | --- | --- | --- |
 | 1 | 2016-01-13 | la propia norma |
 | 2 | 2020-05-20 | Decreto Ejecutivo 42352 (2020-05-20) |
+| 3 | 2022-06-03 | Decreto Ejecutivo 43576 (2022-06-03) |
