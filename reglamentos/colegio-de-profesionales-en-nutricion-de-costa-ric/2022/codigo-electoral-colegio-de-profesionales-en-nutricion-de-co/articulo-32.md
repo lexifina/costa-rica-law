@@ -1,0 +1,2 @@
+Artículo 32.-Del proceso electoral en Asamblea General Extraordinaria. Cuando sea necesario sustituir puestos vacantes en el lapso comprendido entre dos Asambleas Generales Ordinarias, la elección de las personas sustitutas será realizada en una Asamblea General Extraordinaria que podrá ser convocada por la Junta Directiva o como solicitud del Tribunal Electoral a la Junta Directiva del Colegio.
+Para la postulación y votación se aplicará lo indicado en el artículo 23 y siguientes, siempre y cuando sea procedente.

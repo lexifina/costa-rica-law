@@ -1,0 +1,4 @@
+Artículo 26.-Resultados de la votación. Concluida la votación el Tribunal Electoral anunciara ante la Asamblea General el resultado oficial, puesto por puesto, indicando votos totales, votos nulos, votos en blanco y abstenciones. El candidato electo será aquel que obtenga la mayor cantidad de los votos válidos emitidos.
+En caso de empate se debe repetir la elección con los candidatos que resultaron empatados.
+Si existiera empate entre tres o más postulantes habrá una ronda de desempate entre los dos candidatos de mayor edad. De persistir el empate quedará electo el postulante de mayor edad.
+Si surgen apelaciones al resultado de la votación, el Tribunal procederá a repetir el conteo de los votos con el fin de verificar los resultados o proceder a rectificar un posible error.

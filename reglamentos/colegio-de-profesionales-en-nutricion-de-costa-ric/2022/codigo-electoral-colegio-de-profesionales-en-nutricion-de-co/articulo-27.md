@@ -1,0 +1,1 @@
+Artículo 27.-Procedimiento cuando solo hay una persona candidata al cargo en elección. De presentarse solo una persona candidata al puesto se deberá proceder con lo estipulado en los artículos 18 a 26 de este Código Electoral.
