@@ -11,10 +11,11 @@ i) Brindar capacitación, información y asesoramiento sobre los derechos y las 
 j) Informar a la sociedad sobre los derechos, las capacidades, las necesidades y las obligaciones de las personas con discapacidad, a fin de coadyuvar en el proceso de cambio social y el mejoramiento de la imagen de este grupo de la población.
 k) Gestionar, en coordinación con los ministerios respectivos, la provisión anual de los fondos necesarios para la atención debida de los programas que benefician a la población con discapacidad, asegurando su utilización para los fines establecidos.
 l) Brindar asesoramiento legal a las personas con discapacidad sobre el ejercicio de los derechos tutelados en la normativa nacional e internacional vigente sobre discapacidad.
-m) Coadyuvar en los procesos de consulta a la población con discapacidad y sus organizaciones, sobre legislación, planes, políticas y programas, en coordinación con las diferentes entidades públicas o privadas y los demás poderes del Estado.
+m) Coadyuvar en los procesos de consulta a la población con discapacidad y sus organizaciones, sobre legislación, planes, políticas y programas, en coordinación con las diferentes entidades públicas o privadas y los demás Poderes del Estado. El Consejo Nacional de la Persona con Discapacidad (Conapdis) deberá tener actualizado el registro de organizaciones de personas con discapacidad legalmente constituidas.
+(Así reformado el inciso anterior por el artículo único de la ley N° 10248 de 5 de mayo de 2022)
 n) Desarrollar procesos que animen el involucramiento de los medios de comunicación en la difusión y proyección de una imagen respetuosa y positiva de las personas con discapacidad.
 ñ) Todas aquellas otras funciones y obligaciones derivadas de la Ley N.º 7600, Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996, y la demás normativa nacional e internacional vigente.
 o) Todas aquellas otras funciones y obligaciones derivadas de la Ley N.º 8661, Aprobación de la Convención sobre los Derechos de las Personas con Discapacidad, de 19 de agosto de 2008, y su Protocolo, por lo que será el órgano coordinador de su aplicación.
 p) Las demás que establezca el reglamento de esta ley.
 q) Ejecutará programas y funciones que por ley se le asignen.
-(Así adicionado el inciso anterior por el artículo 7° de la ley N° 10077 del 5 de noviembre del 2021, "Ley para fusionar el Patronato Nacional de Rehabilitación con el Consejo Nacional de Personas con Discapacidad”)
+(Así adicionado el inciso anterior por el artículo 7° de la ley N° 10077 del 5 de noviembre del 2021, "Ley para fusionar el Patronato Nacional de Rehabilitación con el Consejo Nacional de Personas con Discapacidad")
