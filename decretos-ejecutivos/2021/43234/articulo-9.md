@@ -1,0 +1,1 @@
+Artículo 9.- El ingreso a la RBLB para fines de filmación, fotografía, investigación y ecoturismo, podrá realizarse únicamente por la entrada oficial de la RBLB ubicada en San Ramón de Bagaces, Guanacaste u otro puesto operativo oficial que la Administración establezca oficialmente.

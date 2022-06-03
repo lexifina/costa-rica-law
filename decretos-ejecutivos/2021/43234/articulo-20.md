@@ -1,0 +1,1 @@
+Artículo 20.- Las investigaciones que requieran acceso a los elementos bioquímicos y genéticos de la biodiversidad se regirán de acuerdo a lo dispuesto en la Ley de Biodiversidad N°7788 y su reglamento.

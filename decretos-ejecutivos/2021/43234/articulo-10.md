@@ -1,0 +1,1 @@
+Artículo 10.- Toda persona física que desee ingresar por razones de ecoturismo a la RBLB podrá hacerlo en el siguiente horario: los días que corren de lunes a domingo ingresando entre las 8:00 y las 16:00 horas. En todo caso la hora límite para presentarse en el sitio de salida oficial lo será las 16:30 horas.

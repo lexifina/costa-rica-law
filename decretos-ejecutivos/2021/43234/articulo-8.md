@@ -1,0 +1,1 @@
+Artículo 8.- El ingreso a la RBLB está permitido únicamente para el ejercicio de las actividades permitidas de acuerdo a lo establecido en el Capítulo III del presente Reglamento o para actividades efectuadas por la Administración Pública en el ejercicio de sus competencias.

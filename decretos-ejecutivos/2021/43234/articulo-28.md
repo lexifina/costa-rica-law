@@ -1,0 +1,1 @@
+Artículo 28.- El ingreso y baño en el sector La Poza, está únicamente permitido a los ecoturistas locales por constituir un uso cultural del sitio. El ejercicio de esta actividad no requiere guía turístico.

@@ -1,0 +1,1 @@
+Artículo 13.- Los funcionarios de la RBLB podrán denegar el ingreso a personas cuando sea aparente que se encuentren bajo los efectos de algún estupefaciente, sustancia psicotrópica o droga de uso no autorizado.

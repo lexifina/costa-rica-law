@@ -1,0 +1,1 @@
+Artículo 22.- Durante el periodo de ejecución de las investigaciones y sin necesidad de dar aviso al investigador, la Dirección del ACAT, la Dirección del ASP del ACAT o la Administración de la RBLB, podrán designar funcionarios para la fiscalización de la investigación a afectos de controlar que se realice siguiendo la metodología autorizada.

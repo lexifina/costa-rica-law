@@ -1,0 +1,1 @@
+Artículo 53.- La administración de la RBLB podrá autorizar horarios de ingreso y salida distintos al establecido para el ejercicio del ecoturismo en el artículo 10 del presente Reglamento, cuando el objeto de ingreso sea la filmación, investigación o ejercicio de la academia; ello previa solicitud debidamente justificada del permisionario.
