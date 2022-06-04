@@ -1,0 +1,2 @@
+DE LAS DISPOSICIONES FINALES
+Artículo 23. La sede del CENTRO será definida por el Consejo Directivo. El CENTRO deberá suscribir un Convenio de sede con el gobierno de su domicilio, en el cual se determinarán las facilidades y prerrogativas que el Estado Sede otorgará al CENTRO y a su personal, con el fin de coadyuvar al mejor funcionamiento y operación del mismo, teniendo como base aquellos que dichos Estados reconozcan a la Institucionalidad regional dentro del marco del Sistema de la integración Centroamericana (SICA).

@@ -1,0 +1,1 @@
+Artículo 26. Cualquiera de los Estados Miembros podrá denunciar el presente Convenio mediante notificación escrita a la Secretaria General del Sistema de la Integración Centroamericana (SO-SICA). La denuncia se hará efectiva seis meses después de la fecha de su notificación.

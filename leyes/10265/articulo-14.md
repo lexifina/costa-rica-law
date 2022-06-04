@@ -1,0 +1,1 @@
+Artículo 14. El Director Ejecutivo responderá ante el Consejo Directivo por el ejercicio de sus funciones al frente del CENTRO. En caso de que el Consejo evalúe dicho desempeño como insatisfactorio podrá revocar el nombramiento del Director Ejecutivo, en cualquier tiempo.

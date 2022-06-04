@@ -1,0 +1,1 @@
+Artículo 25. El presente Convenio podrá ser reformado de común acuerdo por los Estados Miembros. Toda reforma entrará a regir una vez que se hayan cumplido los requisitos constitucionales vigentes en cada Estado Miembro, siguiendo el mismo procedimiento del Artículo 24 del presente Convenio.
