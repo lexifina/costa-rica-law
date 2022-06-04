@@ -1,0 +1,1 @@
+Artículo 5. Para lograr sus objetivos, el CENTRO articulará políticas a nivel micro, meso y macro en el marco de objetivos nacionales y regionales, en coordinación con las respectivas instancias, procurando un mayor y mejor acercamiento entre demanda y oferta de servicios a favor del sector de la MYPE.

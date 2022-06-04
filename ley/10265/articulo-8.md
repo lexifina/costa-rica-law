@@ -1,0 +1,2 @@
+DEL CONSEJO DIRECTIVO
+Artículo 8. El Consejo Directivo es la máxima autoridad del CENTRO y estará integrado por el representante de la autoridad o programa nacional competente en el sector de la MYPE de cada uno de los Estados Miembros de este Convenio. Estará integrado asimismo por los siguientes socios cogestores: un representante del Banco Centroamericano de Integración Económica (BCIE) y un representante de la Organización Internacional del Trabajo (OIT). Los cogestores serán miembros de pleno derecho.

@@ -1,0 +1,1 @@
+Artículo 9. El Consejo Directivo se reunirá en forma ordinaria una vez al año por convocatoria de su Presidente. Extraordinariamente, se reunirá a solicitud escrita de al menos tres de sus miembros o a petición del Director Ejecutivo.

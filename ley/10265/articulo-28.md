@@ -1,0 +1,1 @@
+Artículo 28. Al entrar en vigencia el presente Convenio, la Secretaria General del Sistema de la Integración Centroamericana (SG-SICA) procederá a enviar copia certificada del mismo a la Secretaría General de las Naciones Unidas para los efectos del Articulo 102, párrafo 2 de la Carta de dicha Organización y a la Secretaría General de la Organización de los Estados Americanos.

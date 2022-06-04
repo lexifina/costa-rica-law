@@ -1,0 +1,3 @@
+DE LOS ESTADOS MIEMBROS
+Artículo 22. El CENTRO estará integrado por los Estados Miembros del Sistema de la Integración Centroamericana (SICA) que suscriban y ratifiquen, o se adhieran posteriormente al presente Convenio.
+Se podrá también concluir acuerdos de asociación con República Dominicana y terceros Estados, en donde se estipulen derechos y obligaciones reciprocas, para lo cual el Consejo Directivo, en coordinación con la Secretaria General del Sistema de la Integración Centroamericana (SG-SICA) y la Secretaria de Integración Económica Centroamericana (SIECA), negociará los términos de la asociación.

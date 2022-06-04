@@ -1,0 +1,1 @@
+Artículo 15. El Director Ejecutivo y el personal del CENTRO, no solicitarán ni recibirán instrucciones de ningún gobierno o institución cogestora, ni tampoco de organismos nacionales, regionales, o internacionales.

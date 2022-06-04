@@ -1,0 +1,2 @@
+Artículo 19. El Comité Consultivo tendrá como función asesorar al Consejo Directivo y a la Dirección Ejecutiva sobre la política del CENTRO en el desarrollo de sus programas. Tendrá facultud de iniciativa y reglamentará su propio funcionamiento, con apego al espíritu del presente Convenio.
+La Dirección Ejecutiva recabará el criterio del Comité Consultivo sobre el proyecto del Plan de Trabajo, eI presupuesto y los programas, previo a elevarlos a consideración del Consejo Directivo, acompañados de dichos criterios.
