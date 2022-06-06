@@ -1,8 +1,0 @@
-CAPITULO II
-Estructura del Comité y toma de decisiones
-Artículo 8º—Integración del Comité: La Juntas Directivas del INS y sus empresas deben tomar el acuerdo necesario para integrar el Comité, el cual debe estar conformado como mínimo por:
-A. Un miembro de cada Junta Directiva de cada Empresa del Grupo INS, sin que pueda alguno de ellos representar a dos o más empresas.
-B. Además, el Comité deberá estar integrado por un miembro externo independiente del Grupo INS, especializado en el área financiero contable con grado académico mínimo de licenciatura en administración de negocios o contaduría pública y experiencia mínima de cinco años en labores afines. Este miembro no debe presentar conflictos de interés, entendiendo por ello la no existencia de circunstancias que puedan sesgar la objetividad en el cumplimiento de las funciones.
-Las Juntas Directivas del Conglomerado INS serán las responsables de nombrar las personas idóneas para ser miembros del comité. Las personas que integren este Comité serán responsables de cumplir a cabalidad, tanto las funciones encomendadas en este reglamento como las que dispongan las leyes, reglamentos y las que establezca la Entidad Controladora del Conglomerado INS.
-Podrán asistir a las sesiones del Comité todos los funcionarios o terceros que considere necesario el Presidente del Comité, para lo cual se ordenará la convocatoria correspondiente con la debida anticipación.
-Podrán participar en las sesiones del Comité sin derecho a voto, el Gerente General, el Auditor Interno del Conglomerado INS y los funcionarios que el Comité de Auditoría considere necesarios. También podrá participar el Auditor Externo cuando así lo requiera dicho Comité.
