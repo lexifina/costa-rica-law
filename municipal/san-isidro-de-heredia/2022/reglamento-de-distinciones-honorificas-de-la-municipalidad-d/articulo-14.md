@@ -1,0 +1,3 @@
+CAPÍTULO III
+Disposiciones finales
+Artículo 14.-Derogatoria de la distinción. En cualquier momento, el Concejo Municipal mediante votación calificada de las dos terceras partes de sus miembros, podrá derogar las distinciones honoríficas que se hayan otorgado en el pasado cuando existan pruebas fehacientes de que las personas físicas o jurídicas receptoras obtuvieron estos reconocimientos al amparo de información documental o testimonial falsa, o cuando los logros en la rama del deporte, la ciencia o las artes que originaron la declaratoria le sean levantados por parte de la autoridad nacional o internacional que los otorgó inicialmente.

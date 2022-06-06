@@ -1,0 +1,1 @@
+Artículo 7º-De la declaratoria de "Ciudadano distinguido o Ciudadana Distinguida del cantón". Distinción a otorgarse a una persona física por los aportes realizados al cantón de San Isidro de Heredia desde el punto de vista científico, deportivo, cultural, social, artístico, político, educativo, ambiental, entre otros, así como por los logros alcanzados en estos campos.
