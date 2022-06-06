@@ -15,5 +15,6 @@ La jornada de trabajo del personal de seguridad y toda actividad de trabajo dond
 la obligación de rotar en los distintos turnos en que se dividan las veinticuatro horas, de acuerdo
 con los horarios que se establezcan.
 La persona asesora legal del Concejo Municipal, así como los funcionarios que laboran en la Secretaría Municipal, deberán, en atención a las horas durante las cuales sesiona ese órgano colegiado, trabajar en los horarios que al efecto designe el alcalde, con el propósito que se brinde un servicio continuo y eficiente a los integrantes de ese órgano colegiado.
-Toda modificación al horario que quiera realizar cualquiera de las partes, será propuesta ante la
-Junta de Relaciones Laborales, órgano colegiado que podrá emitir una recomendación en torno a dicha modificación.
+Toda modificación al horario que quiera realizar cualquiera de las partes, será propuesta ante la Junta de Relaciones Laborales, órgano colegiado que podrá emitir una recomendación en torno a dicha modificación.
+La persona trabajadora municipal que brinda atención a los Órganos Colegiados de los distintos Concejos de Distrito, deberá, en atención a las horas durante las cuales sesionan dichos órganos, trabajar en los horarios que al efecto designe el Alcalde, con el propósito que se brinde un servicio continuo y eficiente a los integrantes de los mismos.
+(Así adicionado el párrafo anterior mediante sesión N° 110 del 6 de junio del 2022)
