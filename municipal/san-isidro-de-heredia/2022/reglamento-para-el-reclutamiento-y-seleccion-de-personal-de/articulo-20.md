@@ -1,0 +1,1 @@
+Artículo 20.-Trámite de publicación. El concurso externo debe ser publicado en un periódico de circulación nacional, en la página web y en las redes sociales oficiales de la Municipalidad. La publicación deberá realizarse con al menos 1 día natural de antelación a la fecha de inicio definida para la recepción de ofertas.

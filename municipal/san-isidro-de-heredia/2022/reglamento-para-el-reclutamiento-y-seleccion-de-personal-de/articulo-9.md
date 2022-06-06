@@ -1,0 +1,1 @@
+Artículo 9º-Selección de personal. El personal se seleccionará por medio de pruebas de idoneidad, que se administrarán únicamente a quienes satisfagan los requisitos para el puesto indicados en el manual de puestos.

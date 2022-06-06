@@ -1,0 +1,1 @@
+Artículo 34.-Informe Técnico. Junto con el "Registro de Elegibles", será responsabilidad del Departamento de Recursos Humanos trasladar el expediente administrativo del concurso y un informe detallado del cumplimiento de las etapas del proceso y los resultados obtenidos en la fase de reclutamiento y selección.

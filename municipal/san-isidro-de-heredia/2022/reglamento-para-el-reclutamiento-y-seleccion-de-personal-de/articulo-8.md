@@ -1,0 +1,1 @@
+Artículo 8º-Acto de nombramiento. El personal de la Municipalidad será nombrado por el Alcalde o Alcaldesa Municipal, previo informe técnico respecto a la idoneidad de los aspirantes al cargo. Ello, con la salvedad de los cargos, cuyo nombramiento será competencia del Concejo Municipal.

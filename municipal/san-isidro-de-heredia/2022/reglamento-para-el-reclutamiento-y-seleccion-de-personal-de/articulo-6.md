@@ -1,0 +1,1 @@
+Artículo 6º-Deber de planificación. Corresponde al Departamento de Recursos Humanos planificar en conjunto con la jefatura inmediata y/o Alcalde (sa) los diferentes aspectos relacionados con el reclutamiento y la selección del personal de la Municipalidad.

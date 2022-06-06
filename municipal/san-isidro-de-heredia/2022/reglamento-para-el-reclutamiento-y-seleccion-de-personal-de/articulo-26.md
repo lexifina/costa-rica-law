@@ -1,0 +1,1 @@
+Artículo 26.-Ofertas fuera del plazo. No se recibirán solicitudes de inscripción posterior a la fecha y hora de cierre, la Oficina de Recursos Humanos procederá a elaborar un Acta de Inscripción de los oferentes inscritos en el concurso.

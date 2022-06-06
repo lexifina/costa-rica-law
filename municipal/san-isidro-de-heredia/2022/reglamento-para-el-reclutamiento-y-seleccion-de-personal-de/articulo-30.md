@@ -1,0 +1,1 @@
+Artículo 30.-Publicidad de la información. Con excepción de los resultados de las pruebas psicométricas y la información personal de los participantes, se considera que toda la información que conste en el expediente administrativo del concurso es de naturaleza pública.

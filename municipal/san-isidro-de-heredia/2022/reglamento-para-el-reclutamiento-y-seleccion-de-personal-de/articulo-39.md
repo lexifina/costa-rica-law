@@ -1,0 +1,1 @@
+Artículo 39.-Tiempo de resguardo del registro. La permanencia de los atestados del interesado en el registro de oferentes, será de un año calendario contados a partir de la fecha de presentación de la información a la Municipalidad. Una vez transcurrido dicho plazo, estos documentos serán desechados.

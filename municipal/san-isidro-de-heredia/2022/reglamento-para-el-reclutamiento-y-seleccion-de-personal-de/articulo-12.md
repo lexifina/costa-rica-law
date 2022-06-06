@@ -1,0 +1,7 @@
+CAPÍTULO III
+De los tipos de concursos
+SECCIÓN I
+Del ascenso directo
+Artículo 12.-Procedimiento de ascenso directo. Cuando la Municipalidad cuente con una plaza vacante, será responsabilidad de la jefatura inmediata requerir de forma directa a la Alcaldía Municipal, el inicio de los procedimientos tendientes a ocupar el puesto. Una vez recibida esta solicitud, la Alcaldía deberá remitirla al Departamento de Recursos Humanos para que se lleve a cabo el trámite respectivo.
+Posteriormente el Departamento de Recursos Humanos analizará la posibilidad de llenar la plaza con un nombramiento por ascenso directo. En tales casos se valorará únicamente los funcionarios y funcionarias que ocupen puestos de grado inmediato inferior al puesto vacante de conformidad con el Manual de Clases de Puestos y que se encuentre en propiedad, excluyendo aquellos en periodo de prueba.
+En caso de que haya interés en ocupar la plaza vacante por parte del o los funcionarios (as) de grado inmediato y estos cumplan con los requisitos establecidos para el cargo, el Departamento de Recursos Humanos en conjunto con la jefatura inmediata o un profesional en el área, deberá realizar una prueba y aplicar una entrevista con el fin de determinar si está calificado para ocupar el puesto. Como resultado de este procedimiento, el Departamento de Recursos Humanos elaborará un informe donde incorpore los resultados de las evaluaciones y entrevistas, con la posibilidad de incluir además el análisis en torno a las evaluaciones del desempeño, lo cual deberá remitirse a la Alcaldía Municipal.

@@ -1,0 +1,1 @@
+Artículo 44.-Periodo de prueba en traslados. A los traslados se le debe aplicar el periodo de prueba. Durante el periodo de prueba, el funcionario no perderá su condición de servidor en propiedad. En caso de no aprobar el citado periodo de prueba, el funcionario (a) podrá regresar a su puesto anterior en propiedad.

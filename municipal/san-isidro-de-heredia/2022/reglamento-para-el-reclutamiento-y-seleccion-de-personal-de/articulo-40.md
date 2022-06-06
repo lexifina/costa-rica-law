@@ -1,0 +1,1 @@
+Artículo 40.-Limitaciones del registro. El registro de oferentes no será tomado en consideración para los concursos externos que sean desarrollados por la Municipalidad, por lo que no existirá obligación alguna de comunicar de forma directa a quienes integren este registro, sobre la iniciación de concursos.
