@@ -12,3 +12,4 @@ Artículo 2° : Apruébense los siguientes Egresos Ordinarios y Extraordinarios 
 (Modificado por el artículo 1° del decreto ejecutivo N° 43472 del 22 de marzo del 2022)
 (Reformado por el artículo 2° de la ley N° 10196 del 20 de abril del 2022)
 (Reformado por el artículo 3° de la ley N° 10196 del 20 de abril del 2022)
+(Modificado por el artículo 1° del decreto ejecutivo N° 43612 del 6 de junio del 2022)
