@@ -1,1 +1,0 @@
-Artículo 6º—Divergencia de criterio sobre aspectos reglamentarios. De conformidad con lo que establece el artículo 5, inciso a), acápite 12 de la Ley del INS; le corresponde a la Junta Directiva del INS resolver, aprobar, reformar e interpretar para su aplicación los reglamentos del Conglomerado INS.

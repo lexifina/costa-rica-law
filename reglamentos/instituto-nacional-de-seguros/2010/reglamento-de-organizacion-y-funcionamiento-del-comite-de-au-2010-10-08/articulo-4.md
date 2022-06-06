@@ -1,1 +1,0 @@
-Artículo 4º—Modificaciones totales o parciales. Las Juntas Directivas de las empresas subsidiarias o el Comité, podrán proponer modificaciones totales o parciales al Reglamento, las cuales deberán seguir los trámites de aprobación y publicación definidos en este Reglamento.

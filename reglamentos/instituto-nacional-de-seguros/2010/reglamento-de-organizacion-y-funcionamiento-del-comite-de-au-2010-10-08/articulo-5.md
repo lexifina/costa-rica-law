@@ -1,2 +1,0 @@
-Artículo 5º—Presentación y aprobación del Reglamento. Todo acto que pretenda modificar el presente reglamento y que afecte derechos o intereses del Grupo Financiero INS, deberá ser debidamente comunicado a todo el Grupo INS de previo a someterlo a aprobación de la Junta Directiva del INS, con el objeto de que en el plazo máximo de ocho días hábiles hagan las observaciones que estimen necesarias.
-Las observaciones que se realicen serán analizadas de forma discrecional por la Junta Directiva del INS quien tomará la decisión definitiva.
