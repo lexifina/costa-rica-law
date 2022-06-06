@@ -1,0 +1,1 @@
+Artículo 3º-Para efectos de los estudios que conlleven a la depuración del registro de la información, se deberá incorporar al expediente único del contribuyente, la documentación generada por dichos estudios, el cual deberá contener al menos la siguiente información, tanto análoga como digital.

@@ -1,0 +1,1 @@
+Artículo 7º-Una vez realizada la desafectación de la base de datos, los expedientes serán incluidos en una red como expediente digital o análogo, con el propósito de custodiarlos como el resto de la documentación institucional.

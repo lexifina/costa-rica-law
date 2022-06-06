@@ -1,0 +1,2 @@
+Artículo 8.º-El funcionario a cargo de la Depuración o el Encargado del área Tributaria, emitirá el informe de contribuyentes depurados en forma permanente cada mes, los casos que han sido corregidos como inconsistentes, Se analizará el efecto que causará la depuración de cuentas sobre el pendiente de cobro, por parte de Administración Tributaria. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Ciudad de Bribri, Talamanca, 23 de mayo del 2022.
