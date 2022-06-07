@@ -1,14 +1,13 @@
 CAPÍTULO III
 De las sesiones y acuerdos
-Artículo 8º—Convocatoria y medios de asistencia.
-a) De la convocatoria de la sesión.
-Las sesiones de Junta Directiva se celebrarán en la forma y tiempo que sean indicados en la convocatoria, la cual deberá realizarse por medio idóneo, el plazo de convocatoria dependerá de la naturaleza de la sesión según las siguientes regulaciones:
-1. Las sesiones ordinarias serán los primeros y terceros miércoles de cada mes, por lo que la convocatoria, agenda y documentos de respaldo deben ser comunicados con por lo menos setenta y dos horas de anticipación.
+Artículo 8º-Convocatoria y medios de asistencia.
+a) De la convocatoria de la sesión. Las sesiones de Junta Directiva se celebrarán en la forma y tiempo que sean indicados en la convocatoria, la cual deberá realizarse por medio idóneo, el plazo de convocatoria dependerá de la naturaleza de la sesión según las siguientes regulaciones:
+1. Las sesiones ordinarias serán las primeras y terceras semanas de cada mes, según el día establecido por la Junta Directiva, según acuerdo firme tomado en la última sesión ordinaria del año anterior, por lo que la convocatoria, agenda y documentos de respaldo deben ser comunicados con por lo menos setenta y dos horas de anticipación.
 2. Las sesiones extraordinarias serán convocadas cuando el Presidente lo considere pertinente o a solicitud de al menos cuatro miembros de la Junta Directiva y deberán ser convocadas con al menos veinticuatro horas de antelación. En éstas únicamente se conocerán los asuntos contenidos en la convocatoria; sin embargo, por la naturaleza jurídica de la CNE se podrán someter a conocimiento de la Junta modificaciones a la agenda o introducir elementos nuevos, siempre y cuando sean aprobados al momento de la revisión del orden del día.
 3. En el caso de situaciones de emergencia reguladas en la Ley Nacional de Emergencias y Prevención del Riesgo Nº 8488, la convocatoria a sesión extraordinaria podrá darse en un plazo menor.
-b) Autorización de sesiones con presencia remota.
-Las sesiones de la Junta Directiva podrán realizarse con la presencia física de sus miembros o bien mediante su participación remota a través de medios de telecomunicación, siempre y cuando se tomen las siguientes consideraciones:
+b) Autorización de sesiones con presencia remota. Las sesiones de la Junta Directiva podrán realizarse con la presencia física de sus miembros o bien mediante su participación remota a través de medios de telecomunicación, siempre y cuando se tomen las siguientes consideraciones:
 1. En la sesión deben estar presentes en el lugar de la convocatoria al menos seis miembros de la Junta Directiva.
 2. A la sesión se integrarán de forma remota los miembros que hayan comunicado su disposición de participar mediante los medios de telecomunicación que se hayan habilitado.
 3. Deberá garantizarse el acceso a los miembros de Junta Directiva a una plataforma de telecomunicaciones que permita su identificación debida, registro de sus actuaciones, manifestaciones de su voto y acceso a los documentos de trabajo necesarios para la toma de los acuerdos.
 Se exceptúa de estos procedimientos las sesiones que deban ser convocadas como resultado de la atención de situación de una emergencia nacional, en cuyo caso el Presidente podrá de manera excepcional, convocar a los miembros de Junta Directiva a participar de forma remota o presencial. En estos casos, el quorum quedará constituido cuando sea posible establecer la comunicación debida con la mayoría absoluta de sus miembros.
+(Así reformado mediante sesión N° 06-06-2022 del 7 de junio del 2022)

@@ -14,3 +14,4 @@ Reglamento interno de la Junta Directiva de la Comisión Nacional de Prevención
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-23 | la propia norma |
+| 2 | 2022-06-07 | Reglamento 6 (2022-06-07) |
