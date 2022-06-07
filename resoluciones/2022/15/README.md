@@ -14,3 +14,4 @@ Acciones de contingencia relacionadas con el registro único contribuyentes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-06 | la propia norma |
+| 2 | 2022-06-07 | Resolución 23 (2022-06-07) |
