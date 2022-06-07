@@ -1,1 +1,0 @@
-Artículo 53.—Sistema de Renovación de la Autorización. Corresponde a la Dirección de Mercadeo y Ventas la administración del Sistema de Renovación de la Autorización de los Agentes Vendedores de Seguros.

@@ -1,1 +1,0 @@
-Artículo 66.—Derogatorias y vigencia. El presente Reglamento deroga el Reglamento para la operación de entidades comercializadoras de seguros y el Reglamento de Licencias de agentes vendedores de Seguros de Agencias Comercializadoras y entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta.

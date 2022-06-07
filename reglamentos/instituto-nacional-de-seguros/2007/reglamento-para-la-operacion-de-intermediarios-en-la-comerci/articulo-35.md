@@ -1,1 +1,0 @@
-Artículo 35.—Procedimiento administrativo. Salvo para la sanción correspondiente a faltas leves según se dispone más adelante, en todos los casos, de previo a la imposición de una sanción debe cursarse el procedimiento administrativo para la verificación de la verdad real de los hechos.

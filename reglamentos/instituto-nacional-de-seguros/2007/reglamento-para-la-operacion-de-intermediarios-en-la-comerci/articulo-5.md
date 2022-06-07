@@ -1,1 +1,0 @@
-Artículo 5º—Determinación de condiciones para la venta. El Instituto determinará las condiciones para la venta, mantenimiento y renovación de sus productos y servicios, y las condiciones de la oferta de los mismos.

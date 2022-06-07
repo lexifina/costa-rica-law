@@ -1,2 +1,0 @@
-Artículo 32.—Terminación del contrato de intermediación. El Instituto no será responsable por la suspensión, cancelación, resolución o terminación del contrato con el Intermediario en la venta de seguros, cuando se fundamente en las causas expresamente establecidas en el contrato, en este reglamento o el ordenamiento jurídico.
-Ante la cancelación de la autorización para operar como Intermediario en la venta de seguros, el Instituto podrá ejercer su potestad de redistribuir o asumir la cartera de clientes atendidos por ese Intermediario.

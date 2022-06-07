@@ -1,2 +1,0 @@
-Artículo 50.—Vigencia de la autorización. La autorización para la venta de productos y servicios de seguros tendrá una vigencia de tres años calendario, contados desde la fecha de la emisión.
-Queda facultado el Instituto para ampliar el número de líneas de seguros autorizadas a un Agente Vendedor de Seguros, durante la vigencia de la autorización; para lo cual el aspirante deberá cumplir con las condiciones y los requisitos establecidos por el Instituto.

@@ -1,3 +1,0 @@
-CAPÍTULO III
-Intermediarios integrantes de grupos financieros
-Artículo 16.—Normativa aplicable. Los Intermediarios que formen parte de un grupo financiero o que se constituyan en sujetos pasivos del control de una superintendencia u órgano afín, deberán cumplir - adicionalmente - con el “Reglamento para Constitución y Regulación de Grupos Financieros” que emita el Banco Central de Costa Rica, así como la normativa propia del órgano fiscalizador estatal, que también vigila su actividad o la del grupo económico al cual pertenece.

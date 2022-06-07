@@ -1,2 +1,0 @@
-Artículo 23.—Derecho a devengar comisiones. Las comisiones serán devengadas únicamente durante la vigencia del contrato de intermediación suscrito, aunque los seguros que estén codificados al Intermediario al momento del cese del contrato, excedan dicho término.
-Para mantener el derecho al pago de comisión sobre una póliza, el Intermediario deberá brindar la asesoría técnica y el servicio de acuerdo a lo establecido en el presente reglamento.

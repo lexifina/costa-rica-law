@@ -1,3 +1,0 @@
-Artículo 55.—Acumulación de créditos. Para acumular créditos válidos para la renovación, las actividades de formación profesional continua deben realizarse en entidades debidamente acreditadas y autorizadas por los organismos competentes para realizar capacitación, en eventos como: cursos de actualización, charlas, congresos, seminarios, simposios, talleres de trabajo, etc. conforme con los temas definidos previamente por el Instituto.
-También se reconocerá la participación del Agente de Seguros como instructor, ponente o conferencista, en entidades de capacitación debidamente acreditadas y autorizadas por los organismos competentes.
-No se reconocerán como cursos de capacitación, los cursos regulares de una carrera universitaria.

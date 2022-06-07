@@ -1,1 +1,0 @@
-Artículo 27.—Revocatoria de la autorización. Podrá el Instituto suspender o revocar las autorizaciones conferidas para aceptación de riesgos y/o digitación en línea, ante cambios en las condiciones valoradas para su otorgamiento, incumplimiento de la normativa rectora, o cualquiera de las causales contenidas en las disposiciones aplicables en esta materia.

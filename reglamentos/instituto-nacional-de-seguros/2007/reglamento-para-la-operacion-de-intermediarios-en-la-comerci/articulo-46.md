@@ -1,1 +1,0 @@
-Artículo 46.—Condiciones para conceder la autorización. El Instituto determinará los requisitos, aptitudes, cursos, exámenes y demás condiciones inherentes al otorgamiento, mantenimiento y renovación de la autorización para la promoción, colocación y/o venta de productos y servicios de seguros por parte de los Agentes Vendedores de Seguros.
