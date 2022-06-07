@@ -14,3 +14,4 @@ Adopta Normas Internacionales de Auditoría y Atestiguamiento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-12-11 | la propia norma |
+| 2 | 2022-06-07 | Circular 3 (2022-06-07) |
