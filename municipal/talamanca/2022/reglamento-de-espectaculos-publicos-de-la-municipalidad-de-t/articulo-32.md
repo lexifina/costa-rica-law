@@ -1,0 +1,1 @@
+Artículo 32.-Las solicitudes de permiso para la realización de karaoke y o música en vivo, deberán presentarse con diez días hábiles de anticipación al evento, de acuerdo con lo establecido en los artículos 80 y 81 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 35.-Por la celebración de actividades con karaoke y o música en vivo se deberá pagar el Impuesto de Espectáculos Públicos cuando las mismas se enmarquen en el hecho generador de la obligación tributaria a que se refiere el artículo dos del presente Reglamento.

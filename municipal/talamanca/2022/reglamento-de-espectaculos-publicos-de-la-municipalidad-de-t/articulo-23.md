@@ -1,0 +1,1 @@
+Artículo 23.-Los dueños de establecimientos o los responsables de los espectáculos públicos están obligados a denunciar de inmediato y por escrito ante la Municipalidad, cualquier anomalía cometida por algún funcionario municipal.

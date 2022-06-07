@@ -1,0 +1,1 @@
+Artículo 34.-En aquellos casos en que la actividad autorizada o solicitada, sea contraria a las disposiciones emanadas en el Reglamento para el Control de la Contaminación por Ruido, como se indica en el Decreto Número 28718-S, la Municipalidad podrá cancelar la licencia. O cualquier otro incumplimiento de la normativa vigente nacional o local.

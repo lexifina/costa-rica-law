@@ -1,0 +1,1 @@
+Artículo 8º-Los eventos artísticos, culturales, musicales y deportivos que se realicen en sitios de concentración masiva, se autorizarán como máximo hasta las 22 horas cuando la actividad se desarrolle cerca de áreas residenciales y hasta las 12 media noche, cuando no se afecte áreas residenciales.

@@ -1,0 +1,1 @@
+Artículo 27.-Es deber de los Inspectores Municipales, así como de la Fuerza Pública o de la Policía Municipal, informar a la Municipalidad de las personas físicas o jurídicas que contravengan lo dispuesto en el presente Reglamento. Dichos informes serán canalizados por medio del Dirección Jurídica de la Municipalidad de Talamanca.
