@@ -1,3 +1,0 @@
-Artículo 12.—Informe de recomendación. La Dirección de Mercadeo y Ventas como área responsable del servicio, tendrá un máximo de 15 días hábiles para recomendar o desestimar la contratación, contados a partir de que la solicitud presentada por el interesado cumpla con todos los requisitos formales.
-Este informe de recomendación lo remitirá a la Proveeduría quien en un plazo no mayor a 8 días hábiles lo trasladará a la Gerencia.
-Una vez recibido el informe de recomendación, la Gerencia o la Junta Directiva, según corresponda de acuerdo al monto, aprobará o rechazará la misma en un plazo no mayor a 15 días hábiles.

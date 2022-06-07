@@ -1,2 +1,0 @@
-Artículo 13.—Denegatoria de solicitud. En los casos en que la recomendación no sea aprobada, la Proveeduría deberá informar por escrito al interesado sobre dicha denegatoria.
-Contra la denegatoria se podrán interponer los recursos establecidos en la Ley de Contratación Administrativa y su Reglamento. El recurso de apelación será de conocimiento de la Junta Directiva y para su resolución contará con un plazo de 15 días hábiles.

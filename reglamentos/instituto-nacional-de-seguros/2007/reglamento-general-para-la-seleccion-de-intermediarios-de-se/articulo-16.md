@@ -1,1 +1,0 @@
-Artículo 16.—Trámite de aprobación interna. El trámite de aprobación estará sujeto al cumplimiento de los límites establecidos en el Reglamento Interno de Contratos Administrativos del Instituto Nacional de Seguros y todos los contratos deberán contar con la aprobación de la Dirección Jurídica.
