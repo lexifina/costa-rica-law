@@ -1,0 +1,1 @@
+ARTÍCULO 3. Corresponde al Ministerio de Ambiente y Energía ser el encargado de dar seguimiento a la ejecución y aplicación de la modificación de la metodología de cálculo del precio del combustible diésel realizada por la Autoridad Reguladora de los Servicios Públicos.
