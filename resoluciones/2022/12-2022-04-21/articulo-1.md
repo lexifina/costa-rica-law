@@ -11,7 +11,13 @@ RESUELVE:
 Artículo 1º- Prórrogas para presentación de declaración y pago según tipo de contribuyente.
 1. Obligados tributarios que no sean Grandes Contribuyentes Nacionales. Para los obligados tributarios que no sean los grandes contribuyentes nacionales, se prorroga el plazo para la presentación y cancelación de las declaraciones correspondientes a las deudas tributarias que vencen a partir 18 de abril de 2022, inclusive, de la forma que se indica a continuación: si al 29 de abril del 2022, los sistemas para la presentación y pago de las declaraciones no se han reestablecido, deberán liquidar los montos correspondientes a las deudas que vencieron a partir del 18 de abril de 2022 y hasta esa fecha, a más tardar el 4 de mayo siguiente, el cual será el plazo máximo para que paguen sus obligaciones mediante la aplicación de la medida de contingencia establecida en el artículo 21 de la resolución general Nº DGT-R-33-2015 del 22 de setiembre de 2015, utilizando el formulario normalizado D.110 "Recibo oficial de Pago" versión PDF emitido por el software de la aplicación EDDI, el cual deberá ser presentado con el pago correspondiente en las entidades colaboradoras autorizadas. No se generarán intereses sobre la deuda, ni incurrirán en la infracción por morosidad ni presentación tardía quienes cumplan con el pago de sus obligaciones en la fecha señalada.
 Si persiste la imposibilidad de ingreso a ATV, las deudas que vencen el 5 de mayo o con posterioridad a esa fecha, deberán cancelarse en la fecha de vencimiento utilizando el mismo medio indicado en el párrafo anterior, en tanto no sea restablecido el acceso al sistema de la Administración Tributaria Virtual (en adelante "ATV").
-En lo que respecta a la presentación de las declaraciones se prorroga hasta el tercer día hábil posterior a que el Ministerio informe que se ha solventado el problema de acceso al sistema de la Administración Tributaria Virtual (ATV).
+(*)En lo que respecta a la presentación de las declaraciones autoliquidativas, según el mes de vencimiento:
+i. Abril: se establece el plazo de presentación del 20 al 24 de junio de 2022.
+ii. Mayo: se establece el plazo de presentación del 27 de junio al 1° de julio de 2022.
+iii. Junio: se establece el plazo de presentación del 4 al 8 de julio de 2022.
+En cuanto al pago de las obligaciones que vencen el 15 de junio, se prorroga el plazo de cancelación al 8 de julio de 2022.
+Quienes no cumplan con el pago de sus obligaciones en la fecha señalada deberán asumir los recargos de ley e incurrirán en la infracción por morosidad.
+(*) (Así reformado el párrafo anterior por el artículo 1° de la resolución RES-DGH-023-2022 del 7 de junio de 2022)
 2. Obligados tributarios clasificados como Grandes Contribuyentes Nacionales. Mientras no se haya habilitado el sistema ATV, los Grandes Contribuyentes Nacionales deberán liquidar los montos correspondientes a las deudas que vencieron a partir del 18 de abril de 2022 y hasta la fecha de publicación de esta resolución, dentro de los tres días hábiles posteriores a la publicación de esta A partir del cuarto día, si el obligado no ha ingresado dichas sumas, no se beneficiará de la suspensión de intereses e incurrirán en la sanción de morosidad respectiva.
 Las deudas que vencen con posterioridad a la fecha de publicación de esta resolución, deberán cancelarse en la fecha de vencimiento que corresponda a cada una
 La cancelación de las obligaciones de los Grandes Contribuyentes Nacionales podrá hacerse por cualquiera de los siguientes medios:
@@ -57,14 +63,15 @@ Cuentas Banco de Costa Rica Código Swift BCRICRSJ
 Nombre de la cuenta | Moneda | Cuenta | Cuenta Cliente | Código IBAN
 MH-Tesorería Nacional Depósitos Varios/ | COL | 001-0242476-2 | 15201001024247624 | CR63015201001024247624
 MH-Tesorería Nacional Depósitos Varios/ | DOL | 001-0242477-0 | 15201001024247707 | CR53015201001024247707
-Cuentas Banco Nacional de Costa Rica Código Swift BNCRCRSJ
-Nombre de la cuenta | Moneda | Cuenta | Cuenta Cliente | Código IBAN
-MH-Tesorería Nacional Dep. Varios | COL | 100-01-000-215933-3 | 15100010012159331 | CR71015100010012159331
-MH-Tesorería Nacional Dep. Varios | DOL | 100-02-000-618867-6 | 15100010026188678 | CR74015100010026188678
-Cuentas en Banco CMB (Costa Rica) S.A. Código Swift BACUCRSJ
-Nombre de la cuenta | Moneda | Cuenta | Cuenta Cliente | Código IBAN
-MINISTERIO DE HACIENDA Recaudadora | CRC | 303108017 | | CR77012729603031080170
-MINISTERIO DE HACIENDA Recaudadora | USD | 303108033 | | CR57012729603031080336
+Cuentas Banco Nacional de Costa Rica Código Swift BNCRCRSJ |
+Nombre de la cuenta | Moneda | Cuenta | Cuenta Cliente | Código IBAN |
+MH-Tesorería Nacional Dep. Varios | COL | 100-01-000-215933-3 | 15100010012159331 | CR71015100010012159331 |
+MH-Tesorería Nacional Dep. Varios | DOL | 100-02-000-618867-6 | 15100010026188678 | CR74015100010026188678 |
+Cuentas en Banco CMB (Costa Rica) S.A. Código Swift BACUCRSJ |
+Nombre de la cuenta | Moneda | Cuenta | Cuenta Cliente | Código IBAN |
+MINISTERIO DE HACIENDA Recaudadora | CRC | 303108017 | | CR77012729603031080170 |
+MINISTERIO DE HACIENDA Recaudadora | USD | 303108033 | | CR57012729603031080336 |
+| | | | | | | | | | | | | |
 En el detalle del depósito se debe de indicar el concepto "DGT-GC2022-número de identificación del obligado tributario (sin guiones). Se debe realizar una única transferencia por impuesto y período.
 En cualquiera de los casos anteriores, deberán remitir copia del Formulario D.110 o del comprobante de depósito, según corresponda, al correo electrónico Notificacion-SRCST@hacienda.go.cr , indicando los siguientes datos:
 i. Nombre del obligado tributario.
@@ -72,4 +79,7 @@ ii. Cédula del obligado tributario.
 iii. Impuesto
 iv. Período del Impuesto (MM/AAAA)
 v. Número de documento con que se realizó la transferencia o el pago.
-En lo que respecta a la presentación de las declaraciones se prorroga hasta el tercer día hábil posterior a que el Ministerio informe que se ha solventado el problema de acceso al sistema de la Administración Tributaria Virtual (ATV).
+En lo que respecta a la presentación de las declaraciones autoliquidativas con vencimiento en los meses de abril y mayo (incluidas las declaraciones diarias ) y las diarias del 1 al 15 de junio se establece su fecha de presentación del 13 de junio al 24 de junio de 2022.
+(*) (Así reformado el párrafo anterior por el artículo 1° de la resolución RES-DGH-023-2022 del 7 de junio de 2022)
+En cuanto a la presentación y pago de las obligaciones que vencen el 15 de junio de 2022, se prorroga el plazo al 24 de junio de 2022. Quienes no cumplan con el pago de sus obligaciones en la fecha señalada deberán asumir los recargos de ley e incurrirán en la infracción por morosidad.
+(*) (Así adicionado el párrafo anterior por el artículo 1° de la resolución RES-DGH-023-2022 del 7 de junio de 2022)

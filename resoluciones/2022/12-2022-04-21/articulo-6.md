@@ -1,2 +1,4 @@
-Artículo 6º-Vigencia.
-Rige a partir de su firma.
+Artículo 6º- Plazo para el pago en el Impuesto a las Personas Jurídicas de sociedades para las cuales estaba en curso el plazo de treinta días naturales para el pago a partir de su constitución.
+Ante la imposibilidad del pago del Impuesto a las Personas Jurídicas de aquellas sociedades para las cuales estaba en curso el plazo de treinta días naturales para el pago a partir de su constitución, se otorga un plazo adicional de 30 días naturales a partir del día siguiente al momento en que se habilite el sistema para el pago, sin la generación de recargos ni sanciones.
+Quienes no cumplan con el pago de sus obligaciones en la fecha señalada deberán asumir los recargos de ley e incurrirán en la infracción por morosidad.
+(Así adicionado por el artículo 3° de la resolución RES-DGH-023-2022 del 7 de junio de 2022)
