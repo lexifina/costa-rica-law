@@ -1,0 +1,5 @@
+INSTITUTO NACIONAL DE SEGUROS
+El Instituto Nacional de Seguros comunica la derogatoria de las siguientes normas:
+1. Reglamento General para la Selección de Intermediarios de Seguros del Instituto Nacional de Seguros publicado en La Gaceta N°157 del 16-08-2007 y la reforma publicada La Gaceta N°200 del 18-10-2007 derogado por Junta Directiva en acuerdo N°8964-I del 31-08-2009.
+2. Reforma Integral Reglamento para la operación de entidades comercializadoras de seguros publicado en La Gaceta N°10 del 15-01-1998 y las reformas publicadas en La Gaceta N°124 del 29-06-1998, La Gaceta N° 155 del 11-08-1998, La Gaceta N°176 del 13-09-2000, La Gaceta N° 108 del 06-06-2001, La Gaceta N° 242 del 16-12-2002, La Gaceta N° 186 del 28-09-2006 derogado por Junta Directiva en acuerdo N°8964-I del 31-08-2009.
+3. Reglamento para la Operación de Intermediarios en la Comercialización de Productos y Servicios de Seguros del Instituto Nacional de Seguros publicado en La Gaceta N°85 del 04-05-2007 y la reforma publicada en La Gaceta N° 9 del 14-01-2009 derogado por Junta Directiva en acuerdo N°8964-I del 31-08-2009.
