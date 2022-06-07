@@ -1,1 +1,0 @@
-Artículo 3.—Visado de planos. La Municipalidad de Curridabat, en la persona del funcionario expresamente autorizado por el Alcalde Municipal, extenderá de forma gratuita el visado de planos en un plazo no mayor de 10 días hábiles, para lo cual se deberá cumplir con la siguiente normativa.
