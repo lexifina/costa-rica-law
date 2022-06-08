@@ -1,5 +1,0 @@
-Artículo 5º—El solicitante deberá presentar los requisitos que a continuación se indican:
-a) Formulario de solicitud debidamente cumplimentado y diseñado para tal efecto, el cual contendrá sin perjuicio de otros datos, los siguientes: Nombre completo, cédula de identidad, edad, estado civil, domicilio exacto, número de teléfono y el tipo de capacitación que desea recibir (formal o no formal), nombre del curso o materia que recibirá, información sobre cursos o materias recibidas anteriormente, ingresos, egresos y monto solicitado.
-b) Comprobante del centro educativo donde recibirá la capacitación que indique costo de la misma de forma desglosada (matrícula, curso, materiales, duración, etc.).
-c) Comprobantes de ingresos y egresos del grupo familiar (salarios, pensiones, ayuda de familiares, pago vivienda, servicios, alimentación, otros).
-d) En caso de subsidio para estudios formales (entendidos éstos como aquellos estudios realizados en instituciones académicas supervisadas por el Estado) deberá presentar certificado del centro educativo que haga constar que para la fecha del accidente era estudiante activoregular.

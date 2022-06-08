@@ -1,1 +1,0 @@
-Artículo 6º—Las solicitudes para capacitación no formal, (entendida ésta como la brindada por instituciones no supervisadas por el Ministerio de Educación Pública) deberán propiciar una mejora en la condición socioeconómica del trabajador rentista.
