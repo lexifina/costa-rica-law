@@ -1,0 +1,1 @@
+Artículo 69°. Mociones. Los acuerdos de las juntas directivas de cada sociedad se tomarán con base en iniciativas o mociones, escritas o verbales, presentadas por los directores, los cuales quedarán constando en el acta de la sesión. Las propuestas que no se refieren al tema objeto de deliberación serán eliminadas de la discusión.

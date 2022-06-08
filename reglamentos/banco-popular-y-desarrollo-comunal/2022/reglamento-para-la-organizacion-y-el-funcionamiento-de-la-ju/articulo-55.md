@@ -1,0 +1,1 @@
+Artículo 55º. Periodo de nombramiento de las personas que conforman las juntas directivas de las sociedades. Las personas que conforman las juntas directivas de las sociedades serán nombradas por un período de dos años para el ejercicio de sus funciones y pueden podrán ser reelectas.

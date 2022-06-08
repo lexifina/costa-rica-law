@@ -1,0 +1,3 @@
+Artículo 56º. Sesiones ordinarias. La junta directiva de cada sociedad se reunirá ordinariamente hasta dos veces al mes, los días y a la hora que esta acuerde. Las sesiones ordinarias son las que se desarrollan periódicamente dentro del cronograma establecido por la Junta Directiva de cada sociedad.
+El orden del día, los antecedentes y los documentos relativos a los asuntos por tratar deben ser remitidos a cada participante de la sesión al menos 48 horas antes de su celebración.
+Todo lo concerniente a las sesiones ordinarias se estará regulando según lo dispuesto en el Pacto Constitutivo de cada sociedad.

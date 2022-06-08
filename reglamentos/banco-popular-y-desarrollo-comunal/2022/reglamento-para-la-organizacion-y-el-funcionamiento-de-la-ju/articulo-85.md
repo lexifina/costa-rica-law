@@ -1,0 +1,9 @@
+Sección IV. Comités técnicos, comités de apoyo y comisiones especiales
+Artículo 85°. Comités técnicos y comités de apoyo de carácter corporativo. El Conglomerado Financiero cuenta con comités técnicos (Comité Corporativo de Auditoría, Comité Corporativo de Riesgo y Comité Corporativo de Nominaciones y Remuneraciones, según lo establecido en el acuerdo SUGEF 16-16) y comités de apoyo (Comité Corporativo de Tecnología de Información y Comité Corporativo de Cumplimiento), todos con carácter corporativo.
+Asimismo, se dispone del Reglamento para la organización y funcionamiento de los comités y comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal, en el que se regula el funcionamiento, la integración y el alcance de las funciones de los comités mencionados anteriormente.
+Las juntas directivas de las sociedades podrán contar con comités que no sean corporativos, siempre y cuando exista un requerimiento legal o normativo que lo obligue. La integración de estos comités corresponderá a las juntas directivas de las sociedades. Los integrantes de estos comités podrán ser reelectos o removidos por las juntas directivas de las sociedades, según corresponda.
+Por otra parte, la Junta Directiva de Popular Pensiones dispondrá de los siguientes comités, los cuales no poseen un enfoque conglomeral, ya que son requeridos por su regulación:
+. Comité de Riesgo.
+. Comité de Inversiones.
+A su vez, la Junta Directiva de Popular Sociedad de Fondos de Inversión deberá contar con un comité de inversiones, cuya conformación debe respetar lo establecido en el Reglamento general sobre sociedades y fondos de inversión.
+Estos comités serán normados por reglamentos específicos que no podrán contravenir lo dispuesto en el Reglamento para la organización y funcionamiento de los comités y comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal.

@@ -1,0 +1,1 @@
+Artículo 29°. Empate en las votaciones. Salvo disposición en contrario, en caso de empate en la votación de una moción, un acuerdo o una disposición suficientemente discutidos, el presidente podrá ejercer su voto de calidad (doble voto) para resolver el asunto y continuar con la sesión.

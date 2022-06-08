@@ -1,0 +1,1 @@
+Artículo 74°. Votación. Todos los directores están obligados a emitir su voto en forma afirmativa o negativa, y ninguno podrá abstenerse de votar, salvo causal contemplada por la ley o cuando se trate de aprobación de actas o decisiones en las cuales el director no estuvo presente.

@@ -1,0 +1,2 @@
+Artículo 60º. Cuórum para sesionar. El cuórum de la Junta Directiva de cada Sociedad para sesionar válidamente es de tres directores, tanto en las sesiones ordinarias como en las extraordinarias. Para el caso de la Junta Directiva de Popular Pensiones, el cuórum es de cuatro directores.
+Cuando los asuntos sometidos a conocimiento y resolución de las juntas directivas de las sociedades requieran, conforme al ordenamiento jurídico, la asistencia de un número mayor de directores, así deberá hacerse saber en la convocatoria respectiva.

@@ -1,0 +1,13 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+JUNTA DIRECTIVA NACIONAL
+La Junta Directiva Nacional, en su calidad de tal y actuando en funciones propias de Asamblea de Accionistas de Popular Valores Puesto de Bolsa S.A.; Popular Seguros, Correduría de Seguros, S.A.; Popular Sociedad de Fondos de Inversión S.A. y Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S.A., en SESION ORDINARIA No. 5920 celebrada el 23 de mayo del 2022 mediante acuerdo No. 434, acuerda aprobar la modificación del Reglamento para la organización y el funcionamiento de la Junta Directiva Nacional y de las juntas directivas de las sociedades del Conglomerado Financiero Banco Popular y de Desarrollo Comunal, para que se lea de la siguiente manera:
+"1. Dar por cumplido el acuerdo JDN-5903-Acd-212-2022-Art-2, mediante el cual se sometió a revisión el acuerdo del artículo 5 del acta de la sesión ordinaria 5900, relativo al Reglamento para la organización y el funcionamiento de la Junta Directiva Nacional y de las juntas directivas de las sociedades del Conglomerado Financiero Banco Popular y de Desarrollo Comunal.
+2. Dejar sin efecto el acuerdo JDN-5900-Acd-189-2022-Art-5 del 7 de marzo del 2022, relativo a la aprobación del Reglamento para la organización y el funcionamiento de la Junta Directiva Nacional y de las juntas directivas de las sociedades del Conglomerado Financiero Banco Popular.
+3. Aprobar las modificaciones al Reglamento para la organización y el funcionamiento de la Junta Directiva Nacional y de las juntas directivas de las sociedades del Conglomerado Financiero Banco Popular y de Desarrollo Comunal, el cual se leerá de la siguiente manera:
+REGLAMENTO PARA LA ORGANIZACIÓN Y EL FUNCIONAMIENTO DE LA JUNTA DIRECTIVA
+NACIONAL Y DE LAS JUNTAS DIRECTIVAS DE LAS SOCIEDADES DEL CONGLOMERADO FINANCIERO
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º. Fundamento. El presente reglamento se fundamenta en el artículo 24, inciso b, y en el artículo 25 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal (Ley No. 4351), así como en los Acuerdos SUGEF 16-16, "Reglamento sobre Gobierno Corporativo" y SUGEF 22-18, "Reglamento sobre Idoneidad de los miembros del Órgano de Dirección y de la Alta Gerencia de las Entidades Financieras". El presente reglamento regula la organización y el funcionamiento de la Junta Directiva Nacional y de las Juntas Directivas de las Sociedades que conforman el Conglomerado Financiero Banco Popular y de Desarrollo Comunal (en adelante, Conglomerado Financiero).
+Además, este reglamento se encuentra de acuerdo con los Pactos Constitutivos de cada una de las Sociedades que conforman el Conglomerado Financiero.
