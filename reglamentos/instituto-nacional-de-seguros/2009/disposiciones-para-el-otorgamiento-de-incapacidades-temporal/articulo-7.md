@@ -1,1 +1,0 @@
-Artículo 7º—Del trámite interno de denuncia y verificación de derechos: Es responsabilidad del Departamento Administrador del Seguro, determinar si la persona tiene derecho al cobro del subsidio y en qué porcentaje, y por ende autorizar el pago, todo de acuerdo con la normativa vigente.

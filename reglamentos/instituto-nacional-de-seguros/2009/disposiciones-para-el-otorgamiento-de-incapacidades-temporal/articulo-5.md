@@ -1,5 +1,0 @@
-Artículo 5º—Responsabilidades del Otorgamiento: En general, debe prevalecer un sentido de racionalidad en lo que respecta a la decisión de incapacitar, al período o número de días que se otorgue a la luz de la ciencia y la técnica, así como a la veracidad de la información a la cual se obliga el paciente.
-El acto de otorgar una incapacidad, además de su significado como parte del tratamiento médico, tiene implicaciones de orden administrativo, legal, financiero, social y moral.
-El otorgamiento de incapacidad será facultad del profesional tratante del caso (médico u odontólogo) y estará apegado a los criterios técnicos.
-El otorgamiento del periodo de incapacidad debe quedar adecuadamente justificado en el expediente clínico mediante una nota comprensiva y clara sobre el padecimiento que se está valorando.
-La franca violación de estos principios en caso de incapacidades injustificadas técnicamente o por incapacidades por complacencia, genera responsabilidad directa sobre el autor de la violación de los principios.

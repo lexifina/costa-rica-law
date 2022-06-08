@@ -1,1 +1,0 @@
-Artículo 19.—Normativa conexa: Los aspectos no contemplados expresamente en estas disposiciones, se regirán por lo dispuesto en los principios generales del derecho, en la normativa internacional aplicable, en el Código de Trabajo, en la Ley de Tránsito por vías Públicas y Terrestres y otras leyes, normas y procedimientos acordes.

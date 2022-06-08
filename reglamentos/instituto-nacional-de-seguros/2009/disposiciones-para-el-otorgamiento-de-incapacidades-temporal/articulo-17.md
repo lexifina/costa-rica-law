@@ -1,4 +1,0 @@
-Artículo 17.—Responsabilidades del otorgamiento: Debe prevalecer el criterio médico y el sentido de racionalidad y consecuencia con la lesión presentada por el paciente a valorar. Se debe de otorgar a la luz de la ciencia y la técnica, así como a la veracidad de la información a la cual se obliga el paciente.
-El acto de otorgar una incapacidad permanente o impedimento tiene implicaciones de orden administrativo, legal, financiero, social y moral.
-El otorgamiento de una incapacidad permanente o impedimento será facultad del profesional especializado en Valoración de Daño Corporal (médico u odontólogo valorador) y estará apegado a los criterios técnicos.
-El otorgamiento del porcentaje de impedimento o incapacidad debe quedar adecuadamente justificado en el expediente clínico mediante una nota comprensiva y clara, en la cual se detalle en que consiste la disminución de facultades o aptitudes para el trabajo, producto de las secuelas de una determinada lesión.
