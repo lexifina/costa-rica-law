@@ -3,5 +3,5 @@ El Consejo Universitario de la Universidad de Costa Rica, de conformidad con el 
 ESTATUTO ORGANICO DE LA UNIVERSIDAD DE COSTA RICA
 TÍTULO I
 Principios y propósitos de la Universidad de Costa Rica
-Artículo 1º—La Universidad de Costa Rica es una institución de educación superior y cultura, autónoma constitucionalmente y democrática, constituida por una comunidad de profesores y profesoras, estudiantes, funcionarias y funcionarios administrativos, dedicada a la enseñanza, la investigación, la acción social, el estudio, la meditación, la creación artística y la difusión del conocimiento.
-(Así reformado en sesión N° 121 y publicado en La Gaceta N° 117 del 19 de junio de 2006)
+ARTÍCULO 1º-La Universidad de Costa Rica es una institución de educación superior y cultura, autónoma constitucionalmente y democrática, constituida por una comunidad de docentes, estudiantes y personal administrativo, dedicada a la docencia, la investigación, la acción social, el estudio, la meditación, la creación artística y la construcción del conocimiento y su difusión.
+(Así reformado en sesión N° 148 del 8 de junio de 2022)
