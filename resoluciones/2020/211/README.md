@@ -14,3 +14,4 @@ Requisitos admisibilidad para el refrendo de contratos de renovación de concesi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-21 | la propia norma |
+| 2 | 2022-06-09 | Resolución 33 (2022-06-09) |
