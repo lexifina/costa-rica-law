@@ -1,0 +1,3 @@
+Artículo 5º-Control de teléfonos asignados: El Subproceso de Servicios Institucionales deberá entregar y llevar un registro actualizado de los teléfonos celulares adquiridos y asignados, de conformidad con este reglamento.
+El Subproceso de Servicios Institucionales consignará el número de teléfono, el número de patrimonio, el nombre, número de cédula y el cargo de la persona trabajadora municipal a quien se le autorizó el uso de un teléfono celular, así como la fecha de su asignación y demás características técnicas que se requieran.
+Todo cambio en los datos anteriormente señalados deberá ser reportado por la persona trabajadora municipal responsable del bien asignado al Subproceso de Servicios Institucionales.
