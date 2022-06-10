@@ -1,0 +1,4 @@
+Artículo N°2. Modifíquese el párrafo primero del artículo 5 de la resolución general N°DGT-R-15-2022 del 3 de mayo de 2022, para que diga:
+"Artículo 5.- Plazo para registrar en el Sistema Administración Tributaria Virtual (ATV) las Inscripciones, Modificaciones y/o desinscripciones:
+El obligado tributario que se encuentre en las condiciones indicadas en los artículos 1 a 3 anteriores, así como los que requieran desinscribirse o presentar alguna otra modificación de datos, deberán presentar el formulario D-140 correspondiente, en el plazo de 10 días hábiles contados a partir de la fecha en que el Ministerio de Hacienda habilite oficialmente el sistema ATV, lo anterior con el fin de no incurrir en la infracción tipificada en el artículo N°78 del Código de Normas y Procedimientos tributarios.
+(.)"

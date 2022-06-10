@@ -1,0 +1,15 @@
+Artículo N°3. Adiciónese un artículo N°6 y un artículo N°7 a la resolución N°DGT-R-012-2022 de las catorce horas del veintiuno de abril de dos mil veintidós, para que digan:
+"Artículo 6º- Plazo para el pago en el Impuesto a las Personas Jurídicas de sociedades para las cuales estaba en curso el plazo de treinta días naturales para el pago a partir de su constitución.
+Ante la imposibilidad del pago del Impuesto a las Personas Jurídicas de aquellas sociedades para las cuales estaba en curso el plazo de treinta días naturales para el pago a partir de su constitución, se otorga un plazo adicional de 30 días naturales a partir del día siguiente al momento en que se habilite el sistema para el pago, sin la generación de recargos ni sanciones.
+Quienes no cumplan con el pago de sus obligaciones en la fecha señalada deberán asumir los recargos de ley e incurrirán en la infracción por morosidad."
+"Artículo 7º- Plazo para la presentación de las declaraciones informativas.
+a) De las sociedades Inactivas
+Para aquellas sociedades inactivas, las cuales se encuentran en la obligación de suministrar la declaración informativa resumida, se prorroga el plazo para dicha presentación hasta el 16 de agosto de 2022.
+De no cumplirse con el deber de suministrar la información en los términos antes señalados la Administración Tributaria podrá aplicar las sanciones correspondientes establecidas en el Código de Normas y Procedimientos Tributarios.
+b) Demás declaraciones informativas:
+Las demás declaraciones informativas, cuyo plazo de presentación haya vencido a partir del 18 de abril de 2022 y hasta el día anterior a la habilitación de los respectivos sistemas, se deben presentar en los siguientes plazos:
+i. Declaración D-169: La presentación de la declaración D-169 correspondientes a los períodos marzo-2022, abril-2022 y mayo -2022, cuya presentación se realiza por medio del portal ATV, se debe realizar a más tardar el 30 de junio de 2022.
+ii. Declaración D-185: La presentación de la declaración D-185 correspondientes a los períodos abril- 2022 y mayo -2022, cuya presentación se realiza por medio del portal ATV, se debe realizar a más tardar el 30 de junio de 2022.
+iii. Declaraciones D-150 y D-155 correspondientes a los períodos de abril-2022 hasta el período cuyo vencimiento se produzca antes de la habilitación oficial del sitio Declar@Web, deben presentarse dentro del plazo de diez días hábiles siguientes al día en que el Ministerio de Hacienda comunique, por medio de su página web y sus redes sociales (Facebook e Instagram) la rehabilitación del sitio Declar@Web.
+iv. Declaración D-157 correspondiente al primer trimestre del año 2022, dentro del plazo de diez días hábiles siguientes al día en que el Ministerio de Hacienda comunique, por medio de su página web y sus redes sociales (Facebook e Instagram) la rehabilitación del sitio Declar@Web.
+Quienes no cumplan con la presentación de sus declaraciones en la fecha señalada incurrirán en la infracción por incumplimiento en el suministro de información."
