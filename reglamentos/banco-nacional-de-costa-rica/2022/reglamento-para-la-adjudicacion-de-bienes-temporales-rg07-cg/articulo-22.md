@@ -1,0 +1,1 @@
+Artículo 22.-Derogación. Este Reglamento deroga el Reglamento de Adjudicación de Bienes Temporales aprobado mediante acuerdo tomado por la Junta Directiva General, en el artículo 18°, sesión N° 12.491, celebrada el 12 de octubre del 2020. Rige a partir de su publicación en Diario Oficial La Gaceta.
