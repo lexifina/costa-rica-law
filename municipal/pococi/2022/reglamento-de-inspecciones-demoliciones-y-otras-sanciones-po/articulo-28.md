@@ -1,0 +1,1 @@
+Artículo 28.-Deber de inspección. En caso de que el propietario proceda a cumplir con lo ordenado, se realizará una última inspección, donde se determinará si la orden ha sido ejecutada de conformidad. En caso contrario, se iniciará con el procedimiento previsto construcciones o demoliciones distintas a las autorizadas.

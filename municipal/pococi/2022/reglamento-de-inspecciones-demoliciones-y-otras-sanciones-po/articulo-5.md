@@ -1,0 +1,1 @@
+Artículo 5º-Cámaras fotográficas. En toda inspección, los inspectores deberán hacerse valer de medios fotográficos para mejor respaldo. Estos insumos serán necesarios para motivar el "Acta de Notificación" que deberán entregar al encargado de Planificación y Control Constructivo.

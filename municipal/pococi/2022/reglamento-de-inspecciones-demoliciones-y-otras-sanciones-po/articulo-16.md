@@ -1,0 +1,1 @@
+Artículo 16.-Regularización de las obras con aplicación de multa. Si el derechohabiente responde a la orden otorgada, se seguirá el trámite ordinario del permiso de construcción según la naturaleza de la obra y lineamientos vigentes de la municipalidad, sin perjuicio de las multas de ley.

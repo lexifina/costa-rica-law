@@ -1,0 +1,1 @@
+Artículo 10.-Plazo para trasladar informe. Una vez finalizada la inspección, el inspector contará con un plazo de 3 días hábiles para trasladar el acta de notificación al encargado de Planificación y Control Constructivo, para que inicie el procedimiento que corresponda en cuanto a si es regularizable o no la obra, o si por el contrario no existiere ninguna irregularidad.

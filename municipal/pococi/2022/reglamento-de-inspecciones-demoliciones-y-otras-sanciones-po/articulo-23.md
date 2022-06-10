@@ -1,0 +1,1 @@
+Artículo 23.-Notificación de la resolución final. Esta resolución final deberá de notificarse en el lugar o medio designado por el administrado para recibir notificaciones o en su defecto, aplicará lo dispuesto por el artículo 11 de la Ley de Notificaciones Judiciales.

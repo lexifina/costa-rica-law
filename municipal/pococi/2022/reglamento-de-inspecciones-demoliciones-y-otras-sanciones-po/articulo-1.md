@@ -1,0 +1,23 @@
+MUNICIPALIDAD DE POCOCÍ
+Oficio SMP-289-2022, Acuerdo tomado por el Concejo Municipal de Pococí en Sesión N° 15 Extraordinaria del 22-02- 2022, Artículo III, Acuerdo N°288, dice:
+REGLAMENTO DE INSPECCIONES,
+DEMOLICIONES Y OTRAS SANCIONES
+POR INFRACCIONES URBANÍSTICAS
+Y SU COBRO ADMINISTRATIVO DE
+LA MUNICIPALIDAD DE POCOCÍ
+CAPÍTULO I.
+Generalidades
+Artículo 1.-Definiciones. Para efectos del presente reglamento se definen los siguientes términos:
+a) Alineamiento oficial: línea fijada por la municipalidad o por el Ministerio de Obras Públicas y Transportes, como límite o proximidad máxima de emplazamiento o retiro de la construcción con respecto a la vía pública.
+b) Construcción: toda estructura-completa o incompleta-que se fija o incorpora a un terreno; incluye obras de edificación, remodelación, alteración o ampliación que impliquen permanencia.
+c) Construcciones regularizables: son construcciones en ejecución o ya finalizadas que no cuentan con licencia municipal empero que pueden sujetarse a las condiciones técnicas establecidas en la normativa vigente.
+d) Construcciones no regularizables: son construcciones u objetos que invaden el alineamiento oficial establecido, la vía pública y/o una propiedad municipal demanial (uso público), así como las ubicadas dentro de áreas de protección forestal.
+e) Construcciones con licencias municipales pero distintas a las autorizadas: son construcciones en proceso o ya finalizadas que han sido edificadas de manera diferente a las autorizadas por una licencia municipal. Estas obras se tendrán como obras nuevas y se valorará por la Unidad de Planificación y Control Constructivos si se pueden o no regularizar.
+f) Derechohabiente: es el propietario, poseedor, arrendatario, comodatario, usufructuario, cesionario, albacea o cualquier otro justo título que signifique un dominio o posesión de una persona sobre un bien inmueble dentro del territorio del cantón.
+g) Edificación: construcción destinada a cualquier actividad, ya sea habitación, trabajo, almacenamiento o protección de enseres, entre otros.
+h) Infracción urbana: incumplir cualquier disposición establecida a los derechohabientes de bienes inmuebles por la Ley de Construcciones, Reglamento de Construcciones, Ley de Planificación Urbana, Ley General de Caminos Públicos y cualquier normativa conexa. Los actos que sancionan deberán indicar expresamente el contenido de la infracción específica, así como la ley y artículo que la contenga.
+i) Permiso municipal: licencia que extiende la municipalidad autorizando a un propietario la realización de una obra constructiva o de demolición en su propiedad bajo los lineamientos técnicos legales que indique. Estas licencias tendrán eficacia por el plazo de doce meses para el inicio de la obra vencido el cual, deberá renovar la licencia constructiva.
+j) Sanción urbana: sanciones que la municipalidad, previo debido proceso, puede aplicar: 1) multas, 2) orden de destrucción y demolición parcial o total de obras de construcción sin permiso municipal, 3) orden de destrucción y demolición parcial o total de obras de construcción que invaden el alineamiento oficial, vía pública y/o propiedad municipal privada y/o demanial, 4) orden de remoción y decomiso de bienes muebles que invaden vía pública, 5) orden de desalojo de las construcciones sin permiso municipal o que invaden el alineamiento oficial, vía pública y propiedades municipales privadas y/o demaniales para ejecutar la demolición o destrucción de obras constructivas sin permiso municipal.
+k) Vía pública: todo terreno de dominio público y de uso común, que por disposición de la autoridad administrativa se destinare al libre tránsito vehicular y peatonal de conformidad con las leyes y reglamentos de planificación; incluye aquel terreno que de hecho esté destinado ya a tal uso público. Las vías públicas son inalienables e imprescriptibles; según su clase se destinarán, además, a asegurar las condiciones de aireación e iluminación de los edificios que las limitan, a facilitar el acceso a los predios colindantes y a la instalación de cualquier canalización, artefacto, aparato o accesorio perteneciente a una obra pública o destinada a un servicio público.
+l) Propiedad municipal demanial: son bienes inmuebles patrimoniales que se encuentran afectados al régimen de dominio público, es decir que son de uso público.
+m) Salario base: la determinación de sanciones que señala este reglamento se entenderá que es el establecido para el Auxiliar Administrativo 1 que señala el artículo 2 de la Ley N° 7337 del 5 de mayo de 1993 y sus reformas. Este salario se mantendrá vigente para todo el año, aun cuando sea modificado en su transcurso.

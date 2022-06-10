@@ -1,0 +1,7 @@
+Artículo 13.-Clausura de obra. Cuando en una edificación el inspector municipal no constate la existencia del permiso de construcción en el sitio ni sea posible determinarlo a través del sistema municipal, se procederá de inmediato con la clausura, se colocarán sellos de clausurado, a efecto de evitar que el administrado pueda seguir realizando la obra o dar uso a la misma. La clausura procederá para los siguientes casos:
+a) Cuando se acredite una obra constructiva sin el respectivo permiso municipal o sin la muestra visible del certificado que contiene el mismo.
+b) Cuando se demuestre que se está desarrollando una obra con permiso municipal vencido.
+c) Cuando el propietario no envíe a la municipalidad los informes que esta solicite a efectos de ir determinando el avance de las obras civiles por construir y en general cuando no se cumplan las condiciones de los permisos de construcción.
+d) Cuando se logre demostrar alguna falsedad en los documentos presentados por el permisionario o que alguno de ellos haya sido revocado.
+e) Cuando se determine que se ejecuta una obra modificando en parte o radicalmente el proyecto o diseños respectivos aprobado por la municipalidad.
+f) Cuando se compruebe el incumplimiento de alguno de los requisitos establecidos en el ordenamiento jurídico que regula la materia, por parte de aquel a quien se haya otorgado un permiso en los términos regulados.

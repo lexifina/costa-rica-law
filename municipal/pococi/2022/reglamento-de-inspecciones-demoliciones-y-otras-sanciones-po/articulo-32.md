@@ -1,0 +1,1 @@
+Artículo 32.-Desalojo administrativo. Existiendo una orden de desalojo del inmueble, las Unidades de Planificación y Control Constructivo y Obras Civiles deberán coordinar con la Fuerza Pública para la ejecución respectiva, basándose en el artículo 96 de la Ley de Construcciones y el artículo 149 de la Ley General de Administración Pública.

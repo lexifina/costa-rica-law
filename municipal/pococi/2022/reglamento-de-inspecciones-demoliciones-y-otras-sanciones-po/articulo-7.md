@@ -1,0 +1,1 @@
+Artículo 7º-Registro fotográfico. En la inspección se identificará el área de la construcción y se levantará un registro fotográfico entre 2 a 7 fotografías -a criterio del inspector- en diferentes puntos de lo encontrado por parte de los Inspectores en construcción.

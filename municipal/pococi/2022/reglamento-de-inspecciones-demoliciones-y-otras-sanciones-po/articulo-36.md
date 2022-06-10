@@ -1,0 +1,1 @@
+Artículo 36.-Acta de sanción urbana. Ejecutada la demolición y/o desalojo, la municipalidad levantará una información, documentando los resultados de esta en el expediente. En ambos casos, deberá devolverse el expediente al encargado de Planificación y Control Constructivo para su archivo.

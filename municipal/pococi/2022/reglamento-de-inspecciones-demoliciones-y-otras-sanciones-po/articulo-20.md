@@ -1,0 +1,1 @@
+Artículo 20.-Notificación de la segunda resolución preparatoria. La resolución segunda indicada en el artículo anterior deberá de notificarse en el lugar o medio designado por el derechohabiente para notificaciones o en su defecto, aplicará lo dispuesto por el artículo 11 de la Ley de Notificaciones Judiciales.

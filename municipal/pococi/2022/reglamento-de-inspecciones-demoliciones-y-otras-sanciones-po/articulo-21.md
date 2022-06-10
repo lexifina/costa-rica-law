@@ -1,0 +1,1 @@
+Artículo 21.-Regularización de las obras con aplicación de multa. Si el administrado responde a este último llamado, se procederá conforme al trámite ordinario de permiso de construcción sin perjuicio de las multas de ley.
