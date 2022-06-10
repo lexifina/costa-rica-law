@@ -1,0 +1,7 @@
+Artículo 6.- De los Viceministros de Gobierno. El Presidente de la República podrá nombrar los Viceministros que considere necesarios para atender competencias técnicas o administrativas que requiera para el buen funcionamiento de las carteras ministeriales. Podrá haber más de un viceministro por cartera ministerial siempre y cuando la especialidad o volumen de competencias del Ministerio lo amerite.
+Serán funciones de los Viceministros de Gobierno, las siguientes:
+a) Ostentar como subordinado inmediato del Ministro de la cartera, la jerarquía superior del ministerio.
+b) Ejercer las funciones establecidas en la Ley General de la Administración Pública, las Leyes Especiales y Orgánicas y cualesquiera otras normas reglamentarias de las ca1ieras ministeriales en las que ejercen el cargo.
+c) Sustituir al Ministro en sus ausencias temporales por nombramiento del Presidente de la República en calidad de Ministro interino.
+d) Asistir a las sesiones ordinarias y extraordinarias del Consejo de Gobierno, con voz, pero sin voto, para atender algún asunto de su especialidad cuando así sea convocado o bien con voz y atender tareas específicas y prioritarias para el interés público, que no corresponden en exclusiva a uno solo de los ministerios de Gobierno. Actuará con derecho al voto, cuando en ausencia temporal del Ministro asuma de manera interina cargo de Jerarca ministerial por nombramiento del Presidente de la República.
+e) Atender cualquier otra función delegada por el Ministro en cumplimiento de las competencias institucionales o que le asigne la Ley.

@@ -1,0 +1,10 @@
+Artículo 4.- De los Ministros en condición de Rectores Sectoriales. Son funciones de los Ministros Rectores las siguientes:
+a) Dirigir y coordinar al respectivo sector convocando periódicamente a los jerarcas de los órganos y entes que lo integran para discutir y analizar prioridades sectoriales, sus metas y avance en el logro de resultados.
+b) Formular en colaboración con el Consejo y Secretaría Sectoriales, el Plan Nacional Sectorial, así como otras políticas, planes, programas, proyectos y estudios relacionados con el sector.
+c) Emitir en conjunto con el Presidente de la República las directrices que sean necesarias para el adecuado direccionamiento de los órganos y entes que integran el sector.
+d) A valar las políticas y los planes de mediano y largo plazo de las instituciones del sector, velando por su vinculación con el Plan Nacional de Desarrollo y su respectivo Plan Nacional Sectorial.
+e) Asegurar la vinculación de los Planes Estratégicos y Operativos Institucionales y presupuestos de las instituciones del respectivo sector, con el Plan Nacional de Desarrollo y su respectivo Plan Nacional Sectorial.
+f) Generar espacios de coordinación y asesoría necesarios para un efectivo direccionamiento político de los órganos y entes que componen el Sector, especialmente en el ámbito de la planificación nacional del desarrollo; pudiéndose entablar relaciones de coordinación y cooperación que conlleven a una adecuada gobernanza multinivel (nacional, sectorial, regional y local) y multi/actor (Administración Central y Descentralizada, otros Poderes de la República, Gobiernos Locales, organizaciones del sector privado y sociedad civil organizada) para tales efectos.
+g) Facilitar acciones de seguimiento y evaluación de la gestión institucional del sector, especialmente, proyectos de inversión pública.
+h) Incorporar en el informe anual de labores contemplado en el numeral 144 de la Constitución Política, los resultados del sector producto del ejercicio de la rectoría.
+i) Realizar cualquier otra actividad congruente con las funciones de rectoría sectorial.
