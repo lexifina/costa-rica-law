@@ -14,3 +14,4 @@ Creación de la Proveeduría Institucional del Ministerio de la Presidencia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-01 | la propia norma |
+| 2 | 2022-06-13 | Decreto Ejecutivo 43586 (2022-06-13) |

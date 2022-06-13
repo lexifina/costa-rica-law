@@ -1,1 +1,2 @@
-Artículo 2º—Rige a partir del 1º de julio del 2002.
+Artículo 2º-El (la) Ministro (a) de la Presidencia podrá delegar en la persona que ostente el cargo de Proveedor Institucional, la firma de la decisión final a adoptar en los procedimientos de contratación administrativa, así como la firma del pedido u orden de compra y los demás documentos asociados a la ejecución de contratos, en estricto apego a la normativa de contratación administrativa.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 43586 del 13 de junio del 2022)
