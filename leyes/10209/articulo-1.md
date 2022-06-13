@@ -1,0 +1,19 @@
+N° 10209
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA
+DE COSTA RICA
+DECRETA:
+LEY DE INCENTIVOS AL TRANSPORTE VERDE (REFORMA DEL CAPÍTULO III DE LA LEY 9518, INCENTIVOS Y ROMOCIÓN PARA EL TRANSPORTE
+ELÉCTRICO, DE 25 DE ENERO DE 2018)
+ARTÍCULO 1- Se reforman los artículos 8, 9, 10 y 12 del capítulo III de la Ley 9518, Incentivos y Promoción para el Transporte Eléctrico, de 25 de enero de 2018. El texto es el siguiente:
+CAPÍTULO III
+INCENTIVOS
+Artículo 8- Incentivos fiscales para la promoción del transporte eléctrico. Para promover el uso del transporte eléctrico, la presente ley establece los incentivos de carácter económico, tributarios y de facilidades de uso en circulación, acceso al crédito y otros que determine el reglamento de esta ley.
+Los incentivos económicos aquí definidos se aplicarán también a los vehículos eléctricos usados, hasta con cinco años de antigüedad.
+Artículo 9- Incentivos fiscales temporales para los vehículos eléctricos y sus insumos. Todos los vehículos eléctricos, independientemente de su tamaño, definidos en el artículo 2 de la presente ley, los repuestos relacionados con el funcionamiento del motor eléctrico, las baterías de los vehículos eléctricos, los dispensadores de recarga, debidamente definidos en la lista que elaborará vía reglamento el Ministerio de Ambiente y Energía (Minae), estarán sujetos al siguiente esquema de exoneraciones, respecto de los impuestos sobre el valor agregado, selectivo de consumo y sobre el valor aduanero.
+a) Impuesto sobre el valor agregado (IVA). Durante el primer período fiscal siguiente a la publicación de esta ley, estarán gravados con una tarifa de un uno por ciento (1%) de este impuesto, aumentando un punto porcentual por período fiscal hasta alcanzar la tarifa general prevista en la Ley 9635, Ley Fortalecimiento de las Finanzas Públicas, de 3 de diciembre de 2018.
+b) Impuestos selectivo de consumo y sobre el valor aduanero. Durante treinta y seis meses estarán exentos de la tarifa vigente; luego tendrán una tarifa exonerada en un setenta y cinco por ciento (75%) durante treinta y seis meses; otros treinta y seis meses con exoneración del cincuenta por ciento (50%) y otros treinta y seis meses con tarifa del veinticinco por ciento (25%); a partir de los doce años pagará el impuesto de consumo y sobre el valor aduanero que corresponda.
+La base imponible para el cálculo del impuesto sobre el valor agregado y el impuesto sobre el valor aduanero será el valor aduanero cuando correspondan a importaciones o, el valor de fabricación, en caso de ser ensamblados o producidos en territorio nacional.
+La tasa aplicable para el cálculo de la exoneración del impuesto selectivo de consumo será la tasa vigente para el caso de los diferentes tipos de vehículos, según lo dispone la Ley 4961, Ley de Reforma Tributaria, de 11 de marzo de 1972.
+Artículo 10- Exoneración temporal del impuesto a la propiedad de vehículos para los vehículos eléctricos. Los vehículos eléctricos estarán exentos del pago del impuesto a la propiedad de vehículos, luego de la vigencia de la publicación de la presente ley. A partir del segundo período fiscal, la exoneración será del veinte por ciento (20%) por año, hasta alcanzar la tarifa general del impuesto.
+Artículo 12- Reglamentación. Las empresas para producción y ensamblaje de vehículos eléctricos quedarán exoneradas del pago del impuesto sobre el valor agregado, siempre y cuando el valor agregado nacional sea por lo menos de veinte por ciento (20%). El Ministerio de Ambiente y Energía (Minae) emitirá un reglamento en ocho meses plazo para registrar a las empresas que produzcan o ensamblen vehículos eléctricos, con el cual se identificará a las empresas sujetas a estas exoneraciones. La exoneración definida en este artículo tendrá una vigencia de diez años con estos nuevos valores, a partir de la publicación de esta ley.
+(...)

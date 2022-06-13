@@ -1,0 +1,3 @@
+TRANSITORIO ll- En el momento en que la primera planta de ensamblaje de vehículos eléctricos se instale en el país, la Dirección de Energía del Minae realizará el registro según se establece en el artículo 15 de la Ley 9518, Incentivos y Promoción para el Transporte Eléctrico, de 25 de enero de 2018, a la persona física o persona jurídica que ensamble o produzca en el país vehículos eléctricos, para que pueda acceder a los beneficios indicados en el capítulo III de esta ley.
+Dado en la Presidencia de la República, San José, a los cinco días del mes de mayo del año dos mil veintidós.
+EJECÚTESE Y PUBLÍQUESE.
