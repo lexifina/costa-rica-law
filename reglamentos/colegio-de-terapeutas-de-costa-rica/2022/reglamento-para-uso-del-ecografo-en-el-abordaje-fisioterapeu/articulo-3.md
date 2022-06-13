@@ -1,0 +1,11 @@
+Artículo 3º-Requisitos generales para el uso del ecógrafo en el abordaje de los profesionales en Fisioterapia. Son requisitos generales para el uso del ecógrafo por parte de los Fisioterapeutas, los siguientes:
+a. Poseer grado académico de Licenciatura o superior en Fisioterapia.
+b. Estar debidamente incorporado y al día con sus obligaciones profesionales ante el Colegio de Terapeutas de Costa Rica.
+c. Contar con capacitación comprobable en el uso del ecógrafo aplicado a la Fisioterapia, mediante posgrados universitarios debidamente reconocidos por las autoridades correspondientes, especializaciones o cursos de educación continua avalados por el Colegio cuando hayan sido realizados en Costa Rica.
+d. En caso de contar con cursos realizados en el extranjero, los títulos deben encontrarse debidamente apostillados por la autoridad competente cuando fueron emitidos por una institución educativa reconocida como pública en el país de origen, o autenticada por un abogado si la institución emisora es privada o corresponde a un país que no forme parte del convenio de Apostillas de la Haya.
+e. Así mismo, en el caso de los posgrados obtenidos en el extranjero, además de lo descrito en el punto anterior, el interesado tendrá que realizar el trámite de reconocimiento ante la autoridad nacional competente, sea el Consejo Nacional de Rectores.
+f. En ambos casos de capacitaciones en el extranjero, deberán demostrarse ante la instancia correspondiente del Colegio de Terapeutas de Costa Rica y mediante documentación comprobable; los contenidos y horas de la formación declarada.
+g. Contar con la certificación emitida por el Colegio Profesional, para el uso del ecógrafo aplicado a la Fisioterapia.
+h. Conocer las limitaciones y contraindicaciones de la utilización del ecógrafo aplicado a la Fisioterapia, así como estar en capacidad de elegir otras alternativas de valoración y seguimiento.
+i. El Fisioterapeuta debe llevar un expediente completo y mantener registros detallados de cada paciente, en el cual debe constar la evaluación inicial, los progresos, las diversas evidencias producidas por el ecógrafo aplicado a la Fisioterapia y demás intervenciones realizadas.
+j. El Fisioterapeuta, debe contar con un consentimiento informado firmado por cada persona usuaria en la que aplicará la técnica o por su encargado cuando así corresponda.

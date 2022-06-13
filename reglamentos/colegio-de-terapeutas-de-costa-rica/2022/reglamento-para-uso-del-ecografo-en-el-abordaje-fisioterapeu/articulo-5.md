@@ -1,0 +1,1 @@
+Artículo 5º-Evaluación Fisioterapéutica. La evaluación fisioterapéutica utilizando el ecógrafo se circunscribe a que este medio terapéutico facilite la visualización de los diversos tejidos y la retroalimentación en la acción-ejecución de estos.
