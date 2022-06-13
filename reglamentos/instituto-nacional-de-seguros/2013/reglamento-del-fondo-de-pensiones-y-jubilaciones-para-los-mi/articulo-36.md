@@ -1,1 +1,0 @@
-Artículo 36.—Porcentaje de pensión. El porcentaje de pensión correspondiente para la Madre o el Padre del bombero fallecido de acuerdo con las condiciones del artículo anterior, será de un 60% del monto de la pensión que le hubiere correspondido al bombero o del que estuviere disfrutando al momento de su deceso.

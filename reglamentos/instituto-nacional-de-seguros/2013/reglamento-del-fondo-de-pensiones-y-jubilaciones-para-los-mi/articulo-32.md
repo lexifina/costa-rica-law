@@ -1,1 +1,0 @@
-Artículo 32.—Porcentaje de pensión. La pensión que corresponda a cada hijo(a) será igual al treinta por ciento (30%) de la que le correspondería al bombero al momento de ocurrir su muerte, o de la que ya disfrutaba al sobrevenirle ésta.

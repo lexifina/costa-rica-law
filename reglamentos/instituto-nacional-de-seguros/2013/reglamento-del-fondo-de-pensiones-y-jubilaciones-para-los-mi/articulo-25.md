@@ -1,1 +1,0 @@
-Artículo 25.—Fecha de adquisición de derecho. El derecho a la pensión por parte de la cónyuge supérstite, la excónyuge supérstite, la compañera de hecho o la excompañera de hecho, se adquiere en la fecha de fallecimiento del bombero.
