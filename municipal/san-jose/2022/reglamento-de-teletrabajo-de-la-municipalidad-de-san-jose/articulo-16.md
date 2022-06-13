@@ -1,0 +1,9 @@
+Artículo 16.-Requisitos para optar por la modalidad de teletrabajo.
+a) Aprobación del superior inmediato respectivo;
+b) Autorizar a la Dirección de Tecnología de la Información para que revise o inspeccione el equipo o herramientas tecnológicas que la municipalidad proporcione a la persona teletrabajadora, o bien, que ésta voluntariamente haya facilitado para realizar las labores teletrabajables;
+c) Autorizar a las áreas de la municipalidad involucradas en la modalidad de teletrabajo, para que se realicen inspecciones en el lugar definido para teletrabajar, las cuales se podrán realizar por diversos medios, presencial o remota. Lo anterior, sin perjuicio de que, opcionalmente, la personal teletrabajadora rinda una declaración jurada acreditando el cumplimiento de las condiciones del lugar donde presta su servicio de teletrabajo, así como las herramientas tecnológicas y de comunicación para la efectiva prestación de las actividades;
+d) Contar con condiciones propias de energía, mobiliario, equipos, dispositivos, así como herramientas tecnológicas y de comunicación suficientes y pertinentes para trabajar bajo la modalidad de teletrabajo, que cumplan con los requisitos de conectividad, accesibilidad y seguridad de la información definidos por la Dirección de Tecnologías de la Información, así como reglamentación interna de la municipalidad;
+e) Firmar la adenda o contrato de teletrabajo.
+f) Mantener las condiciones que justificaron su ingreso, así también las obligaciones y responsabilidades adquiridas;
+g) Mantenerse localizable durante toda la jornada laboral destinada para el teletrabajo, por los medios que para tal efecto se definan;
+h) Que las actividades afines al cargo que ocupa sean teletrabajables, según criterio técnico de la Comisión, la Dirección de Talento Humano o del superior inmediato;

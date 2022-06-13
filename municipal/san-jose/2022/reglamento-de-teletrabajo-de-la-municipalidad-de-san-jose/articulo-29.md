@@ -1,0 +1,1 @@
+Artículo 29.-Reportes. Cuando se reciba aviso de un accidente o enfermedad de trabajo por parte de la persona teletrabajadora, el superior inmediato deberá realizar el reporte de manera inmediata, conforme con el trámite establecido en la municipalidad.

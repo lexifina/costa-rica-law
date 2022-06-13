@@ -1,0 +1,1 @@
+Artículo 22.-Teletrabajo permanente. La Dirección de Talento Humano en coordinación con la Comisión y las dependencias correspondientes, podrán determinar las plazas o los puestos que se podrán desarrollar de manera exclusiva bajo la modalidad de teletrabajo.

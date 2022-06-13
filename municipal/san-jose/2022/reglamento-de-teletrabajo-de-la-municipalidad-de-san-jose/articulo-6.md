@@ -1,0 +1,1 @@
+Artículo 6°-Conformación de la Comisión de Teletrabajo. Estará integrada por un miembro de cada una de las siguientes áreas: Dirección de Talento Humano, Dirección de Asuntos Jurídicos, Dirección de Tecnologías de la Información.
