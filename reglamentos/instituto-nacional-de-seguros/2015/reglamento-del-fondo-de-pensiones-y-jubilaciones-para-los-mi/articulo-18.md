@@ -1,1 +1,0 @@
-Artículo 18: Si en el momento del deceso del bombero se encontrare en trámite el juicio de divorcio o de separación judicial, la cónyuge sobreviviente o la excompañera sólo tendrá derecho a la pensión en el evento de que compruebe que a esa fecha vivía a expensas del fallecido.

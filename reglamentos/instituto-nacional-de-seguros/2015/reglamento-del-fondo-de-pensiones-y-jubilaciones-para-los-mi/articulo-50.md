@@ -1,1 +1,0 @@
-Artículo 50: Anualmente o cuando así lo requiera la Administración Superior o el ente de supervisión externa, la Junta Administradora deberá rendir a la Gerencia del Instituto un informe sobre las operaciones efectuadas en el período, acompañado de los respectivos estados de contabilidad.
