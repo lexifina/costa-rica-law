@@ -1,0 +1,1 @@
+Artículo 7: Definición de persona egresada. Es la condición que adquiere la persona estudiante que cumple con todos los deberes académicos, ha culminado la totalidad de su plan de estudios y únicamente tiene pendiente la solicitud para el acto de graduación.

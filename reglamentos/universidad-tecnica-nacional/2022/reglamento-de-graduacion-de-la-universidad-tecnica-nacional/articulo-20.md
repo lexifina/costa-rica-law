@@ -1,0 +1,1 @@
+Artículo 20: De las Direcciones de Carrera y Coordinaciones de Programas. Es responsabilidad de las Direcciones de Carrera y Coordinaciones de Programas revisar y remitir a Registro Universitario de Sede las nóminas de las personas graduandas o las nóminas de las personas que aplican para la entrega de certificados, debidamente aprobadas.

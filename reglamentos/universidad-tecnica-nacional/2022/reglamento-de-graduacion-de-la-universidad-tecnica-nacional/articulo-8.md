@@ -1,0 +1,1 @@
+Artículo 8: Definición de persona graduanda. Es la condición que adquiere la persona estudiante que cumple con todos los deberes académicos y administrativos, se encuentra inscrita en la nómina de personas graduandas, en el padrón definitivo de personas graduandas y está próxima a recibir un diploma universitario.

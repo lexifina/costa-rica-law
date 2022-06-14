@@ -1,0 +1,1 @@
+Artículo 15: De las distinciones de excelencia académica. Las distinciones de excelencia académica para el grado de Licenciatura y Posgrados se rigen de acuerdo a lo establecido en el Reglamento de Trabajos Finales de Graduación de la Universidad.

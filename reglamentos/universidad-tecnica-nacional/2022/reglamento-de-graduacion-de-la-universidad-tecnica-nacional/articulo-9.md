@@ -1,0 +1,1 @@
+Artículo 9: Definición de persona graduada. Es la condición que adquiere la persona estudiante que fue debidamente juramentada y obtuvo un Diploma Universitario en Diplomado, Profesorado, Bachillerato, Licenciatura, Maestría o Doctorado.

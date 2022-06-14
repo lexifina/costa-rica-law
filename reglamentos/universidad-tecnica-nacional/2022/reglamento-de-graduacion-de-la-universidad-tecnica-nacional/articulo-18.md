@@ -1,0 +1,1 @@
+Artículo 18: De la Dirección de Registro Universitario. Es responsabilidad de la Dirección de Registro Universitario confeccionar los diplomas a nivel universitario en Diplomado, Profesorado, Bachillerato, Licenciatura, Maestría o Doctorado que emite la Universidad, de acuerdo con la nomenclatura de grados y títulos de la Educación Superior.

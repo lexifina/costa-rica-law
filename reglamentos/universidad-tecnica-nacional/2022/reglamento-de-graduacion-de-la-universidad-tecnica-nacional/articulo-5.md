@@ -1,0 +1,1 @@
+Artículo 5: Del diploma. El diploma es el documento expedido por la Universidad, en el que consta el nombre de la persona graduada, el otorgamiento de un grado académico y el título universitario, el sello y firmas de las autoridades competentes de la institución.

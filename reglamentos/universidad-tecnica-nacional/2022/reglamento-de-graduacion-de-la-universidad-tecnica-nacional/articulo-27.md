@@ -1,0 +1,1 @@
+Artículo 27: Casos por fallecimiento de la persona graduanda. En caso de fallecimiento de la persona graduanda, un familiar en primer grado de consanguinidad o afinidad, albacea y las personas con un vínculo de convivencia o unión de hecho, puede solicitar ante la Dirección de Registro Universitario la entrega del diploma, según procedimiento establecido.

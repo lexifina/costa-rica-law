@@ -1,0 +1,1 @@
+Artículo 31: De la entrega de las publicaciones. En caso de que no se presenten objeciones a los edictos publicados, el interesado debe entregar a la Dirección de Registro Universitario las publicaciones en físico o digital para proceder a emitir de nuevo el diploma.

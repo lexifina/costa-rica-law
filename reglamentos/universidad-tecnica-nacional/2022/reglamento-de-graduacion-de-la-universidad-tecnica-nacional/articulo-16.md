@@ -1,0 +1,1 @@
+Artículo 16: Del otorgamiento de las menciones. Posterior a la juramentación sea esta virtual o presencial, se nombra a las personas graduadas que obtuvieron una mención de honor o alguna mención por excelencia académica, según lo indicado en el Reglamento de Trabajo Final de Graduación.

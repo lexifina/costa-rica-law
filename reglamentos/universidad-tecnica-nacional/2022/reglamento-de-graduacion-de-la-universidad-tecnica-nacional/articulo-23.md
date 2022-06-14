@@ -1,0 +1,6 @@
+Artículo 23: De la Juramentación. La juramentación corresponde al acto personal que acredita a una persona estudiante como graduado o graduada y la compromete responsablemente para el servicio a la sociedad costarricense mediante el siguiente juramento Constitucional:
+"¿Juráis a Dios y Prometéis a la Patria, observar y defender la Constitución y las leyes de la República, y cumplir fielmente los deberes de vuestro destino? -Sí, juro.
+-Si así lo hiciereis, Dios os ayude, y si no, Él, la Patria y la Universidad Técnica Nacional os lo demanden."
+Este acto le corresponde al Rector o su representante.
+Cuando por situaciones de naturaleza religiosa u otros, una persona graduanda no pueda participar en todo o en parte del acto de juramentación, la misma puede realizarse de manera posterior por parte del Rector o su representante, con la adecuación correspondiente la cual, permita concretar la debida juramentación. En estos casos, debe exponer su situación ante Registro Universitario de Sede.
+Una vez iniciado el acto de juramentación, las personas graduandas no pueden ingresar al lugar donde se lleva a cabo la ceremonia para el retiro del diploma. Posteriormente deben realizar el trámite para la juramentación extraordinaria y entrega del mismo.
