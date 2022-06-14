@@ -1,1 +1,0 @@
-Artículo 3º—Definición. Se entenderá por recargo de funciones el desempeño temporal y completo de las tareas de un puesto de categoría superior al que realiza el servidor, simultáneamente con las labores propias de la categoría que el servidor ocupa en propiedad, por ausencia del titular.
