@@ -1,0 +1,6 @@
+CAPÍTULO IX
+Disposiciones Finales
+Artículo 14.-Disposiciones generales. El presente Código de Ética busca dotar a las personas trabajadoras de la Municipalidad de un conjunto ordenado de reglas que orienten su comportamiento, en el ejercicio de sus funciones. Es un instrumento de valor trascendental, ya que promueve conductas que contribuyen a prestar un eficiente servicio y combatir la corrupción.
+La práctica de estos valores contribuirá a la conservación y fortalecimiento de esta Institución, lo que constituye la garantía del Estado de Derecho y de justicia en los servicios. Al tomar conocimiento del presente Código de Ética, las personas trabajadoras de esta institución municipal asumen el compromiso de su debido cumplimiento.
+Las disposiciones contenidas en el presente Código son de naturaleza ética. En tal sentido, sus prescripciones y acciones de corrección son independientes de las medidas disciplinarias y de cualquier sanción legal.
+Rige a partir de su publicación. Acuerdo definitivamente aprobado- Acuerdo SM-148-2022 Articulo V inciso c de la Sesión Ordinaria N° 99 celebrada por el Concejo Municipal del Cantón Central de Limón, el 04 de abril del 2022. Ejecútese -Publíquese y Promúlguese.
