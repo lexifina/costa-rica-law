@@ -1,0 +1,1 @@
+TRANSITORIO V- La Secretaría Técnica, el Consejo Nacional de la Persona Adulta Mayor (Conapam) y el Consejo Nacional de Personas con Discapacidad (Conapdis), en un plazo máximo de seis meses a partir de la publicación de la presente ley, habrán definido los mecanismos de pago compartido de servicios de cuidados.

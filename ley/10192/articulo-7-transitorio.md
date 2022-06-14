@@ -1,0 +1,4 @@
+TRANSITORIO VII- En un plazo de seis meses a partir de la publicación de la presente norma, y en cumplimiento de la Ley 9137, Creación del Sistema Nacional de Información y Registro Único de Beneficiarios del Estado, de 30 de abril de 2013, las instituciones que conforman el Sistema Nacional de Cuidados y Apoyos para Personas Adultas y Personas Adultas Mayores en Situación de Dependencia (Sinca) gestionarán el traslado de información de personas beneficiarias y de beneficios otorgados en relación con los cuidados al Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (Sinirube), con el objetivo de que la información se encuentre contenida en una única base de datos.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veintiocho días del mes de abril del año dos mil veintidós.
+EJECÚTESE Y PUBLÍQUESE

@@ -1,0 +1,6 @@
+ARTÍCULO 32- Reforma y adición al título VI de la Ley 5476. Se adiciona un capítulo II con nuevos artículos al título VI de la Ley 5476, Código de Familia, de 21 de diciembre de 1973, para que se lea de la siguiente manera y se corra la numeración respectiva. El texto es el siguiente:
+CAPÍTULO II
+Cuidados
+Artículo 231- Se entenderá por cuidados las acciones que las personas requieren para satisfacer sus necesidades básicas, educativas, de salud, de protección, nutrición, recreación, acompañamiento, incluida la estimulación para el desarrollo de habilidades, competencias, actividades de vida diaria y otras; de conformidad con la situación de dependencia de la persona sujeta de cuidados y apoyos.
+Artículo 232- Las personas adultas mayores serán sujetas de cuidados por parte de hijos e hijas, nietos, nietas, hermanos y hermanas, sin menoscabo del derecho a la independencia y autonomía de estas.
+Artículo 233- Las personas que, por lo dispuesto en el artículo anterior, estén obligadas a garantizar el cuidado de personas adultas mayores familiares podrán solicitar ante una persona juzgadora el levantamiento de esta obligación, en caso de haber sufrido abusos físicos, psicológicos o sexuales, así como el abandono por parte de la persona sujeta de cuidados.

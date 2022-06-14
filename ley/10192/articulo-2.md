@@ -1,0 +1,1 @@
+ARTÍCULO 2- Ámbito de aplicación. Esta ley aplicará a todas aquellas instituciones públicas y organizaciones no gubernamentales y del sector privado que presten servicios de cuidados o relacionados con los cuidados.

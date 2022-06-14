@@ -1,0 +1,1 @@
+ARTÍCULO 20- Comisiones especiales. La Comisión Técnica Interinstitucional podrá constituir comisiones especiales de trabajo, permanentes o temporales, con fines específicos y la participación de personas representantes de otras entidades públicas y organizaciones no gubernamentales.

@@ -1,0 +1,1 @@
+TRANSITORIO II- En el plazo máximo de nueve meses, después de la entrada en vigencia de la presente ley, la Secretaría Técnica del Sinca presentará al país información sistematizada de la oferta de servicios y la propuesta de actualización de la oferta que permitan cubrir la demanda de cuidados y apoyos a la población objetivo.
