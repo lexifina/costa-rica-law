@@ -1,0 +1,2 @@
+ARTÍCULO 6- Autorización sanitaria. Los propietarios de un comercio sobre ruedas deberán cumplir con los requisitos para el otorgamiento de la autorización sanitaria, los cuales deberán ser acordes tipo de actividad comercial que se realice.
+Para ello, el Ministerio de Salud deberá ajustar el Reglamento General para Autorizaciones y Permisos Sanitarios de Funcionamiento, conforme a la definición de comercio sobre ruedas contenida en el artículo 1 de esta ley y considerando tipo de actividad comercial que se realice.
