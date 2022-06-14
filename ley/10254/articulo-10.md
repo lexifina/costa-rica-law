@@ -1,0 +1,1 @@
+ARTÍCULO 10- Licencia comercial temporal especial. Se autoriza a las municipalidades del país para que establezcan una licencia comercial temporal especial para la modalidad de comercio sobre ruedas. Las tarifas y los plazos de vigencia de esta licencia quedan sujetos a aprobación por parte del concejo municipal de cada ayuntamiento.

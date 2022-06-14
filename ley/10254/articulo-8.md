@@ -1,0 +1,1 @@
+ARTÍCULO 8- Espacios físicos para desarrollar la actividad. El propietario de comercio sobre ruedas deberá solicitar ante la municipalidad respectiva el permiso temporal que lo habilite para desarrollar la actividad comercial en una localidad específica dentro del cantón.

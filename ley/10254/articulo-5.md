@@ -1,0 +1,1 @@
+ARTÍCULO 5- Requisitos de infraestructura. Los propietarios de un comercio sobre ruedas deberán cumplir con los requisitos de infraestructura y de mobiliario que establezca el Ministerio de Salud a través del reglamento de esta ley. Tales requisitos deberán ser acordes al tipo de actividad comercial que se realice.
