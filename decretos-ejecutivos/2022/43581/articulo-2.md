@@ -1,0 +1,1 @@
+Artículo 2°-En cuanto a los funcionarios del Ministerio de educación Pública, será el jerarca de dicha institución quien determine, con base en el artículo 213 del Código de educación y mediante circular interna, si el día y horas señaladas se les otorgará como asueto a los funcionarios de esa cartera.

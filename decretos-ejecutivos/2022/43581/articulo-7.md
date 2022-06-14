@@ -1,0 +1,1 @@
+Artículo 7°-Se insta respetuosamente a la Administración Descentralizada al Poder Judicial, Poder legislativo, Tribunal Supremo de Elecciones, Municipalidades, Universidades Públicas y Sector Privado a la aplicación de esta medida temporal.
