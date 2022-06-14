@@ -1,0 +1,4 @@
+SECCIÓN III
+CURSOS DE CAPACITACIÓN Y ESPECIALIZACIÓN
+ARTÍCULO 60. DEL INGRESO A CURSOS DE CAPACITACIÓN. El ingreso a los cursos de capacitación y especialización que imparta la Academia se hará mediante designación realizada por el/la Director (a) del Cuerpo Policial al cual pertenezca la persona servidora, para tales efectos, utilizará el mecanismo que considere más oportuno para garantizar la posibilidad igualitaria de participación de sus colaboradores.
+En todo caso, en la selección y designación de la persona servidora que participará en el curso, se debe tener presente que la persona seleccionada y designada cumpla con los requerimientos que al efecto establezca la Academia, en razón de la capacitación de que se trate y de las funciones que debe estar realizando la persona participante, conforme al Manual de Puestos Policiales.

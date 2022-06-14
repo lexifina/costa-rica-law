@@ -1,0 +1,3 @@
+ARTÍCULO 11. FACULTAD DE INTERNADO. Los procesos de formación, capacitación y especialización que se impartan en la Academia Nacional de Policía, podrán realizarse bajo el sistema de internado, cuando así lo estime necesario y conveniente la Dirección General de la misma.
+En tales casos se informará a la persona funcionaria lo pertinente, quedando ésta obligada a mantenerse en esa condición conforme se haya dispuesto.
+La condición de internado (a) no genera pago alguno por concepto de horas extras, y en todo caso el desarrollo de las actividades académicas, no deberá exceder como máximo doce horas diarias.

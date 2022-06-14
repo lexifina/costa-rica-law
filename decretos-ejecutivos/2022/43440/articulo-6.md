@@ -1,0 +1,1 @@
+ARTÍCULO 6. PROFESIONALIZACIÓN Y ACTUALIZACIÓN. La Academia velará porque sean aprobados o avalados por las instancias educativas respectivas los planes de estudios de los grados académicos formales de la educación costarricense (diplomado, bachillerato, licenciatura y posgrado universitario), para la actualización y profesionalización del sistema educativo policial.

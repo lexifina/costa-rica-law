@@ -1,0 +1,1 @@
+ARTÍCULO 74. PÉRDIDA DE PUNTOS EN LA NOTA DE CONDUCTA. La pérdida de puntos en la nota de conducta solo será aplicable en el caso del Curso de Iniciación de la Carrera Policial y conforme a la directriz que se emita con fundamento en lo dispuesto en el artículo 54 del presente reglamento.

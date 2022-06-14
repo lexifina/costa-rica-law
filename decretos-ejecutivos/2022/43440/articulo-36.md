@@ -1,0 +1,2 @@
+ARTÍCULO 36. PERIODO DE NOMBRAMIENTO. El nombramiento de los/las instructores (as) en las plazas por servicios especiales se hará por el periodo de un año que podrá ser prorrogado por un periodo igual una única vez, siempre y cuando haya obtenido una calificación del desempeño mínima de Muy Bueno durante el periodo de su nombramiento como instructor (a).
+Lo anterior en el tanto se mantengan dentro del registro de elegibles vigente que genere la Dirección de Recursos Humanos.

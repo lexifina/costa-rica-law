@@ -1,0 +1,3 @@
+CAPÍTULO VII
+MEDIDAS DE ORDEN ACADÉMICO
+ARTÍCULO 69. APLICACIÓN DE MEDIDAS DE ORDEN ACADÉMICO. La Academia podrá aplicar, independientemente y sin perjuicio de las sanciones disciplinarias que sean en corresponder, por los actos irregulares en los que incurran las personas estudiantes de los diferentes cursos que imparta, las siguientes medidas de orden académico: suspensión de la persona servidora por un periodo determinado respecto del curso que realiza, pérdida de puntos en pruebas y trabajos por la comisión de acciones fraudulentas, pérdida de puntos en la nota de conducta, y la separación en forma definitiva de la actividad académica con la correspondiente pérdida del curso.

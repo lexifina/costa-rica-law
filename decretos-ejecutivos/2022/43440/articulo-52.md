@@ -1,0 +1,1 @@
+ARTÍCULO 52. APROBACIÓN DEL CURSO DE INICIACIÓN DE LA CARRERA POLICIAL. Para obtener la condición de aprobación del Curso de Iniciación de la Carrera Policial, la persona estudiante deberá haber aprobado la totalidad de las asignaturas que lo conforman, la práctica supervisada que éste contempla y la nota de conducta establecida para el mismo.

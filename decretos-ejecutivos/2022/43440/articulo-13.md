@@ -1,0 +1,1 @@
+ARTÍCULO 13. ACONDICIONAMIENTO FÍSICO Y ORDEN CERRADO. Las lecciones de acondicionamiento físico y orden cerrado serán obligatorias para todas las personas estudiantes según se establezca en el plan de estudios del curso y así quede establecido en el planificador, salvo casos especiales de prescripción médica, debidamente justificados ante las autoridades correspondientes.

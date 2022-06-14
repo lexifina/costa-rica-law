@@ -1,0 +1,1 @@
+ARTÍCULO 10. SUSPENSIÓN DE ACTIVIDADES ACADÉMICAS: Las actividades académicas que realice la Academia Nacional de Policía, solo podrán ser suspendidas por situaciones de fuerza mayor o caso fortuito, o por circunstancias operativas de la Academia Nacional de Policía, que impidan su continuidad; o bien, cuando así lo ordene el/la Ministro (a).

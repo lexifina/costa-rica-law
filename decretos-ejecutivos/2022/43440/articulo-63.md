@@ -1,0 +1,2 @@
+ARTÍCULO 63. REQUISITOS PARA EL TRÁMITE DE RECONOCIMIENTO, CONVALIDACIÓN Y EQUIPARACIÓN DE CURSOS. Toda solicitud de reconocimiento, convalidación o de equiparación de cursos deberá ser tramitada ante la Unidad de Registro de la Dirección Académica. Para realizar este trámite, la persona interesada deberá cumplir con los siguientes requisitos:
+1) Formulario de solicitud de reconocimiento, convalidación o de equiparación de curso, debidamente completado.

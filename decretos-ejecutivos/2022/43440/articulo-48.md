@@ -1,0 +1,1 @@
+ARTÍCULO 48. ENTREGA DE RESULTADOS DE LAS ACTIVIDADES ACADÉMICAS: Cuando a la persona instructora se le aprueben vacaciones o se requiera su presencia en otra actividad académica, previamente deberá hacer entrega ante el Registro Académico de los resultados de las actividades académicas que se encuentren a su cargo.

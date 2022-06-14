@@ -1,0 +1,1 @@
+ARTÍCULO 81. DE LA INASISTENCIA AL CURSO PRODUCTO DE UNA MEDIDA DE ORDEN ACADÉMICO O SANCIÓN DISCIPLINARIA. Las ausencias a las actividades educativas presenciales que se produjeren como resultado de la ejecución de una medida de orden académico o el establecimiento de una sanción disciplinaria, se tendrán como justificadas para todos los efectos académicos correspondientes.

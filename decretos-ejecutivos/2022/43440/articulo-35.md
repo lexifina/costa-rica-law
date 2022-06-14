@@ -1,0 +1,2 @@
+ARTÍCULO 35. SELECCIÓN Y NOMBRAMIENTO DEL PERSONAL INSTUCTOR. La selección de instructores (as) se hará por medio de concurso interno realizado por la Dirección de Recursos Humanos.
+El/la Director (a) de la Academia Nacional de Policía en las nóminas o ternas realizará la recomendación de la escogencia justificando objetivamente la selección del/la candidato (a); esto será avalado por el/la Ministro (a) de esta Cartera.

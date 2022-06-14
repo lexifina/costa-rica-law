@@ -1,0 +1,1 @@
+ARTÍCULO 27. DEBER DE CONFIDENCIALIDAD. Las personas funcionarias que lleven a cabo labores en esta instancia, tiene el deber de mantener la confidencialidad respecto de los asuntos que conozcan en razón de sus funciones, salvo lo dispuesto en la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales.

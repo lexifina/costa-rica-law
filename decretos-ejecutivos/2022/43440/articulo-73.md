@@ -1,0 +1,2 @@
+ARTÍCULO 73. PÉRDIDA DE PUNTOS EN PRUEBAS Y TRABAJOS. La acción fraudulenta comprobada de una o varias personas estudiantes, cometida durante la ejecución de una prueba o durante la realización de trabajos, sea esta acción en beneficio suyo o de otras personas estudiantes, implica la calificación mínima de la escala (un punto) en esa prueba o trabajo para la o las personas estudiantes involucradas en la acción fraudulenta.
+Corresponde a la persona instructora que la hayan detectado evidenciarla y documentarla.

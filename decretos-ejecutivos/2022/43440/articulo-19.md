@@ -1,0 +1,1 @@
+ARTÍCULO 19. ACTUALIZACIÓN DE PLANES DE ESTUDIO: Permanentemente la Academia promoverá las acciones que estime pertinentes, con la finalidad de revisar y actualizar los programas de los cursos que imparte. En la realización de estas acciones se deberá tomar en cuenta a los (las) Directores (as) de los Cuerpos Policiales o a sus representantes.

@@ -1,0 +1,3 @@
+ARTÍCULO 71. COMUNICACIÓN Y APLICACIÓN. La comunicación y aplicación de las medidas de orden académico la hará la Dirección Académica mediante acto escrito debidamente motivado y fundado, garantizándose en todo momento el debido proceso y derecho de defensa a la persona servidora de previo a la aplicación de la medida de orden académico correspondiente.
+En la comunicación que se realice a la persona servidora estudiante se le indicará de los recursos que le asisten y ante que instancias, así como del plazo para su interposición.
+La interposición de los recursos de objeción contra las medidas de orden académico adoptadas, no suspenderá la aplicación de las mismas, salvo que se estime que se pueda causar perjuicio de difícil o imposible reparación.

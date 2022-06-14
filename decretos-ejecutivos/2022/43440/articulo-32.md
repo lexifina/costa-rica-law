@@ -1,0 +1,1 @@
+ARTÍCULO 32. DEL NOMBRAMIENTO DEL PERSONAL ADMINISTRATIVO. El personal administrativo de la Academia será seleccionado según los requisitos y procedimientos establecidos en el Estatuto del Servicio Civil.

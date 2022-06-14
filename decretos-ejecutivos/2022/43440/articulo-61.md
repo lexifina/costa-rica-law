@@ -1,0 +1,3 @@
+ARTÍCULO 61. DEL INGRESO A LOS CURSOS DE ESPECIALIZACIÓN. El ingreso a los cursos de especialización se hará por medio de postulación de la persona servidora que hará el/la Director (a) del cuerpo policial a la Academia, ello según la necesidad de nombramiento en puestos que requieran la especialización.
+En estos cursos, únicamente podrán participar aquellas personas servidoras que pertenezcan al cuerpo policial o cuerpos policiales a los cuales va dirigido el curso, en razón de la especialización del mismo.
+Los requisitos de cumplimiento indispensables para el ingreso a estos cursos, serán los establecidos en el Manual de clases y puestos del cuerpo policial correspondiente.

@@ -1,0 +1,1 @@
+ARTÍCULO 24. INTEGRACIÓN DEL CONSEJO ACADÉMICO. El Consejo Académico estará integrado conforme lo dispone la Ley de Creación de la Academia Nacional de Policía. En caso de ausencia del/la Presidente (a), asumirá tal condición el/la Director (a) General de la Academia.

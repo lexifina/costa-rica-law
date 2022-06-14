@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+RÉGIMEN DISCIPLINARIO
+ARTÍCULO 76. DE LOS ACTOS IRREGULARES. - Todo acto irregular cometido por una persona funcionaria policial, mientras se encuentre en la Academia participando en alguna actividad de formación, capacitación o especialización, que demande la aplicación de una sanción disciplinaria, será tramitado de conformidad con lo dispuesto en la Ley General de Policía, la Ley de Creación de la Academia Nacional de Policía, el Reglamento de Servicio de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública, el presente Reglamento y demás normativa atinente aplicable.

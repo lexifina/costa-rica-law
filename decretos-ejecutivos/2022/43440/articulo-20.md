@@ -1,0 +1,1 @@
+ARTÍCULO 20. SEGURIDAD PREVENTIVA Y PROYECCIÓN SOCIAL. La Academia desarrollará un programa de capacitación enfocado en la seguridad preventiva, que pondrá a disposición de los centros educativos del país, como parte del proceso de proyección social que está llamada a realizar en procura de mejorar la seguridad de las personas estudiantes de escuelas y colegios.

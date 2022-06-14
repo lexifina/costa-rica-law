@@ -1,0 +1,1 @@
+ARTÍCULO 46. EVALUACIÓN DEL PERSONAL INSTRUCTOR. La evaluación del desempeño del/la instructor (a) en el proceso educativo será una apreciación del rendimiento de la persona servidora en cada uno de los factores que influyen en el desarrollo de su labor.
