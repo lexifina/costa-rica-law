@@ -1,1 +1,0 @@
-Artículo 35.—Corresponderá a la Coordinación de la Unidad de Finanzas y a la Coordinación del Área de Administrativa y Financiera del INEC, velar por el cumplimiento de este Reglamento, quienes por lo anterior rendirán un informe trimestral al Despacho Gerencial del INEC.

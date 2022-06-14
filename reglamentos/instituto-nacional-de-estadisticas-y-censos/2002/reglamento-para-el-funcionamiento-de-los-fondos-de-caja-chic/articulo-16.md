@@ -1,1 +1,0 @@
-Artículo 16.—Cuando por algún motivo la compra o la gira no se lleve a cabo, el funcionario que ha recibido el dinero del vale, deberá hacer el reintegro en forma inmediata con una justificación escrita, avalada por la jefatura superior inmediata.
