@@ -1,0 +1,1 @@
+ARTÍCULO 29- Otras fuentes de financiamiento. Podrán utilizarse recursos provenientes de otras fuentes nacionales e internacionales que se le asignen mediante donación, convenio, decreto o ley de la República a los entes, órganos e instituciones que forman parte del Sinca y que provienen de fuentes distintas a las mencionadas en el artículo anterior.

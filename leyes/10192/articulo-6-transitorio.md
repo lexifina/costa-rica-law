@@ -1,0 +1,1 @@
+TRANSITORIO VI- En un plazo de seis meses, el Fondo Nacional de Telecomunicaciones (Fonatel) habrá instalado, en conjunto con las instituciones del Sinca, la plataforma tecnológica y otros mecanismos de atención y asesoramiento a personas cuidadoras y personas sujetas de cuidados.

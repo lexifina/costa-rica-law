@@ -1,0 +1,1 @@
+TRANSITORIO III- En el plazo máximo de doce meses, después de entrada en vigencia la presente ley, la Secretaría Técnica del Sinca deberá elaborar el organigrama de procesos de las instituciones participantes en el andamiaje de los cuidados.

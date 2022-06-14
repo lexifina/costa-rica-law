@@ -1,0 +1,1 @@
+ARTÍCULO 22- Regulación. Supletoriamente, la Comisión Técnica Interinstitucional se regirá por las reglas de organización de la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978, para órganos colegiados.
