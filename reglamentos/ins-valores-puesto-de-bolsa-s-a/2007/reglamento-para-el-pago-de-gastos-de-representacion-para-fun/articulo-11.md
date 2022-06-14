@@ -1,1 +1,0 @@
-Artículo 11.—Normativa aplicable. Lo relacionado con gastos de representación a incurrir en el exterior se regirá por el Capítulo V del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República y publicado en el Diario Oficial La Gaceta, según la última actualización respectiva.

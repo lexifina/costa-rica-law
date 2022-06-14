@@ -1,1 +1,0 @@
-Artículo 2º—Finalidad. El presente reglamento tiene como finalidad, establecer las disposiciones, a las que deberán someterse los funcionarios y trabajadores de INS Valores Puesto de Bolsa S. A., para efectuar gastos de representación en el desempeño de sus funciones.
