@@ -1,0 +1,1 @@
+Artículo 21.-Revisión periódica del beneficio. Para la revisión periódica de las becas de estudio, la persona beneficiaria deberá presentar durante la segunda quincena del mes de mayo y la primera quincena del mes de septiembre de cada año, una constancia de estudio por parte del centro educativo, donde certifique la regularidad del estudiante durante el periodo lectivo.

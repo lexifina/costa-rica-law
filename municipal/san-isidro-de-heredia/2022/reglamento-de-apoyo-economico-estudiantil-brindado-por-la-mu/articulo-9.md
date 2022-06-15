@@ -1,0 +1,2 @@
+Artículo 9.-Prohibiciones. Queda prohibido el otorgamiento de cualquier beneficio amparado a este reglamento con fines de proselitismo político.
+Aquellos funcionarios o funcionarias a nivel administrativo o político que mantengan una relación de parentesco hasta el tercer grado de consanguinidad o afinidad con las personas que requieran beneficios al amparo de este reglamento, deberán abstenerse de participar en cualquier etapa del procedimiento.

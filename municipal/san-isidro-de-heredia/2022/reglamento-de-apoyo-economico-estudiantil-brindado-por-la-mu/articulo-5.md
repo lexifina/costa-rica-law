@@ -1,0 +1,5 @@
+Artículo 5º-Objetivos Específicos. Se tendrán como objetivos específicos del presente reglamento los siguientes:
+a. Contribuir a mejorar la calidad de vida de las personas que viven dentro del cantón de San Isidro de Heredia que presentan situaciones particulares a nivel socioeconómico y tienen limitaciones para solventarlas por ellas mismas en un momento determinado.
+b. Evitar la exclusión del sistema educativo de la población estudiantil que sufra condiciones de vulnerabilidad social-económica a través de un apoyo económico previo estudio técnico, como una forma de asegurar el acceso al derecho fundamental a la educación.
+c. Promover el acceso de las personas con discapacidad que habiten en el cantón de San Isidro de Heredia a los servicios de educación, ya se trate en niveles académicos, talleres o cursos destinados a mejorar su calidad de vida.
+d. Favorecer a la familia isidreña de manera integral, mediante acompañamiento de procesos personales desarrollados por el Departamento de Igualdad de Género y Desarrollo Social y el otorgamiento de apoyo económico.

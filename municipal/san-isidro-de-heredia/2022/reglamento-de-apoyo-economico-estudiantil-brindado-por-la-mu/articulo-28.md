@@ -1,0 +1,1 @@
+Artículo 28.-Confidencialidad de la Información: el DIGDS garantizará el resguardo de la confidencialidad de los datos del grupo familiar de las personas solicitantes y beneficiarias, así como la integridad de los documentos que hayan sido entregados en esa dependencia, según normativa del Colegio de Trabajadores Sociales de Costa Rica.

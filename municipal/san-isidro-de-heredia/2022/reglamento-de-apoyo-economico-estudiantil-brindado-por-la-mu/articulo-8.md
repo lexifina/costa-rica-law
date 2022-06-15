@@ -1,0 +1,1 @@
+Artículo 8.-Fundamento técnico. Toda decisión administrativa mediante la cual se lleve a cabo la aprobación de ayudas socioeconómicas deberá ser precedida de un estudio técnico y del cumplimiento de los requisitos previstos en el presente reglamento.
