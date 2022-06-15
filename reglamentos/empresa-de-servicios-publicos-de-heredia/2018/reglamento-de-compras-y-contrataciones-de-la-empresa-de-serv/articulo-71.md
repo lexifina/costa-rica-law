@@ -1,1 +1,2 @@
-71. Tratándose de contrataciones de servicios generados de forma recurrente, en el Cartel se deberá establecer el plazo del contrato, el cual no podrá ser superior a cinco años (5 años). La Gerencia General, cuando convenga a los intereses de la ESPH, S.A., podrá prorrogarlo hasta por un año más.
+Artículo 71.-Tratándose de contrataciones de servicios generados de forma recurrente, en el Cartel se deberá establecer el plazo del contrato, el cual no podrá ser superior a cinco años (5 años), incluyendo plazo inicial y eventuales prórrogas. La Gerencia General, cuando convenga a los intereses de la ESPH, S.A., podrá prorrogarlo hasta por un año más.
+(Así reformado mediante sesión ordinaria N° 4176 del 15 de junio del 2022)

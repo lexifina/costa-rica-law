@@ -1,1 +1,2 @@
-107. Se asignarán plazos para recibir ofertas, de acuerdo con las necesidades y criterios de la ESPH, S.A., igualmente para negociar, recomendar y adjudicar.
+Artículo 107.-Se asignarán plazos para recibir ofertas, de acuerdo con las necesidades y criterios de la ESPH, S.A., igualmente para negociar, recomendar y adjudicar. El plazo para contratar podrá ser de hasta 5 años. Se habilita la posibilidad de incorporar nuevos oferentes, para ello se deberá contar con el análisis técnico e incorporación al expediente de precalificados.
+(Así reformado mediante sesión ordinaria N° 4176 del 15 de junio del 2022)
