@@ -101,3 +101,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 86 | 2020-09-02 | Reglamento 5955 (2020-09-02) |
 | 87 | 2021-12-09 | Reglamento 6038 (2021-12-09) |
 | 88 | 2022-05-04 | Reglamento 6059 (2022-05-04) |
+| 89 | 2022-06-15 | Reglamento 6066 (2022-06-15) |

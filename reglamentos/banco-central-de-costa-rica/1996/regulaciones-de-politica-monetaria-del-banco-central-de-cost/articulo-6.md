@@ -1,7 +1,8 @@
 (*)TITULO VI
 Disposiciones sobre la reserva de liquidez
 (*)(Así adicionado este título en sesión N° 4931 del 24 de octubre de 1997)
-(*) A Deberán mantener una reserva de liquidez las siguientes entidades:
+(*) A El porcentaje de reserva de liquidez que deberán mantener las entidades antes mencionadas es del 15,0% para las operaciones en moneda nacional y en moneda extranjera.
+(Así reformado el punto a anterior mediante sesión N° 6066-2022 del 15 de junio del 2022)
 La reserva de liquidez debe constituirse sobre la totalidad de:
 i. Las captaciones de recursos.
 ii. Los aportes de los trabajadores o asociados.
@@ -19,6 +20,12 @@ A partir del: 1° de julio del 2015 | Tasa de reserva de liquidez 5%
 1° de agosto del 2015 | 10%
 1° de setiembre del 2015 | 15%
 (*)(Así reformado el inciso a) anterior por el punto 5) de la sesión N° 5686 del 6 de mayo de 2015)
+Transitorio referente al Literal A del Título VI.
+El aumento en la reserva de liquidez en moneda nacional será de aplicación gradual, según se detalla seguidamente:
+A partir del | Tasa RL
+1º de julio, 2022 | 13,5%
+1º de agosto, 2022 | 15,0%
+(Así adicionado el transitorio anterior mediante sesión N° 6066-2022 del 15 de junio del 2022)
 (*) B. Las cooperativas de ahorro y crédito y las cooperativas de vivienda amparadas a la Ley del Sistema Financiero para la Vivienda, cuyo nivel de activos netos al 31 de diciembre de cada año sea superior a los ¢200.0 millones, serán incorporadas al control del encaje por parte del BCCR y de la SUGEF.
 (*)(Así reformado el literal anterior en sesión N° 5067 del 21 de febrero de 2001)
 (*) C. Las cooperativas de ahorro y crédito cuyos activos netos, al 31 de diciembre de cada sean iguales o superiores a los ¢200.0 millones deberán, para quedar eximidas del requisito de encaje, presentar semestralmente ante la SUGEF los atestados correspondientes de que no han realizado operaciones financieras con no asociados
@@ -58,12 +65,12 @@ El Contador Público Autorizado debe dictaminar por una única vez, que la Entid
 (*) (Así adicionado el literal anterior en sesión N° 4991 del 7 de abril de 1999)
 (*)L. Se exceptúan del requerimiento de reserva de liquidez los depósitos y captaciones con plazo de vencimiento superior a ocho años, en el tanto esos recursos sean canalizados según lo dispuesto en el artículo 62 bis de la Ley Orgánica del Banco Central de Costa Rica. Para ello:
 (*)(Así reformado el inciso anterior mediante sesión N° 5742-2016 del 19 de octubre del 2016)
-i. La entidad comunicará a la Gerencia del BCCR y a la SUGEF, con al menos dos semanas de antelación, la decisión de captar al amparo de lo dispuesto en el artículo 62 bis y deberá afiliarse a los servicios del Sistema Nacional de Pagos Electrónicos (SINPE) como asociado. Esto con el fin de realizar la apertura de la cuenta de reserva y una ‘cuenta especial’ para mantener el saldo captado bajo esa figura y no colocado. La ‘cuenta especial’ será abierta en la moneda de constitución de la captación que le da origen.
+i. La entidad comunicará a la Gerencia del BCCR y a la SUGEF, con al menos dos semanas de antelación, la decisión de captar al amparo de lo dispuesto en el artículo 62 bis y deberá afiliarse a los servicios del Sistema Nacional de Pagos Electrónicos (SINPE) como asociado. Esto con el fin de realizar la apertura de la cuenta de reserva y una 'cuenta especial' para mantener el saldo captado bajo esa figura y no colocado. La 'cuenta especial' será abierta en la moneda de constitución de la captación que le da origen.
 Para realizar el control del saldo mantenido en esa cuenta especial la SUGEF solicitará a las entidades los datos que considere pertinentes, con el detalle y en el formato que así lo requiera.
 (Así reformado el punto anterior mediante sesión N° 5742-2016 del 19 de octubre del 2016)
 ii. El Banco Central reconocerá intereses sobre el saldo indicado por la SUGEF, aplicando, para operaciones en colones una tasa de interés igual a la de la Facilidad Permanente de Depósito a un día plazo en el MIL y para operaciones denominadas en moneda extranjera una tasa equivalente a la que reconoce el Banco de la Reserva Federal de los Estados Unidos para los depósitos overnight (técnicamente denominada Repurchase Agreement Pool) menos quince puntos base con límite inferior de cero. Al respecto se acota lo siguiente:
-• Si el saldo efectivo en la ‘cuenta especial’ fuera menor que el indicado por la SUGEF, se reconocerán intereses sobre el saldo efectivo. Si el saldo efectivo fuera mayor al indicado por la SUGEF, se reconocerán intereses sobre esta última referencia.
-• Los intereses se acreditarán en la cuenta de reserva en el BCCR en la moneda correspondiente, por mes natural, a más tardar un mes natural posterior al mes de cálculo.
+. Si el saldo efectivo en la 'cuenta especial' fuera menor que el indicado por la SUGEF, se reconocerán intereses sobre el saldo efectivo. Si el saldo efectivo fuera mayor al indicado por la SUGEF, se reconocerán intereses sobre esta última referencia.
+. Los intereses se acreditarán en la cuenta de reserva en el BCCR en la moneda correspondiente, por mes natural, a más tardar un mes natural posterior al mes de cálculo.
 Si la denominación de las operaciones en moneda extranjera es distinta del dólar estadounidense, procederá su conversión al dólar estadounidense al tipo de cambio publicado en el sitio del BCCR.
 (*)(Así reformado el punto anterior mediante sesión N° 5742-2016 del 19 de octubre del 2016)
 iii) Si SUGEF determina que los fondos captados al amparo del artículo 62 bis podrían haber sido utilizados con fines y condiciones financieras distintas de los establecidos en esa norma, el Superintendente lo comunicará por escrito a la Gerencia del Banco Central y a la entidad financiera en consideración.

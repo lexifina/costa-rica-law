@@ -32,32 +32,38 @@ En este caso, si la Superintendencia General de Entidades Financieras o el Banco
 Transitorio:
 El saldo de las operaciones de endeudamiento externo de mediano y largo plazo contratadas y formalizadas mediante pagaré, confirmación de compromiso vía Swift o cualquier otro medio de formalización ocurrido antes del 1° de julio del 2015 y no sujetas al encaje mínimo legal según la regulación vigente en el momento de su formalización, mantendrá esa condición hasta su vencimiento.
 (Así adicionado el transitorio anterior por el punto 2) de la sesión N° 5686 del 6 de mayo de 2015)
-(* )C. Las tasas de encaje mínimo legal que aplicarán sobre las operaciones indicadas en el literal anterior son las siguientes:
-El 12,0% sobre los depósitos y obligaciones en moneda nacional y en unidades de desarrollo, sobre las operaciones de captación de recursos en moneda nacional y en unidades de desarrollo realizadas mediante fideicomisos o contratos de administración, así como sobre las operaciones de endeudamiento externo en moneda nacional.
-El 15,0% sobre los depósitos y obligaciones en moneda extranjera, sobre las operaciones de captación de recursos en moneda extranjera realizadas mediante fideicomisos o contratos de administración, así como sobre las operaciones de endeudamiento externo en moneda extranjera.
-(*) (Así reformado el literal c) anterior en sesión N° 5879 del 31 de mayo de 2019)
+(*)C. Tasas de encaje
+Las tasas de encaje mínimo legal que aplicarán sobre las operaciones indicadas en el literal anterior son las siguientes:
+El 15,0% sobre los depósitos y obligaciones en moneda nacional y en unidades de desarrollo, sobre las operaciones de captación de recursos en moneda nacional y en unidades de desarrollo realizadas mediante fideicomisos o contratos de administración, así como sobre las operaciones de endeudamiento externo en moneda nacional.
+(*) (Así reformado el literal c) anterior en sesión N° 6066-2022 del 15 de junio del 2022)
 Transitorio:
 El saldo de las operaciones de endeudamiento externo de mediano y largo plazo formalizadas a partir del 1° de julio del 2015, mediante pagaré, confirmación de compromiso vía Swift o cualquier otro medio de formalización, estará sujeto al encaje mínimo legal, según la siguiente gradualidad:
 A partir del: 1° de julio del 2015 | Tasa de encaje legal 5%
 1° de agosto del 2015 | 10%
 1° de setiembre del 2015 | 15%
 (*) (Así reformado el literal c) anterior por el punto 3) de la sesión N° 5686 del 6 de mayo de 2015)
+Transitorio referente al Literal C del Capítulo I, del Título III.
+El aumento en la tasa de encaje mínimo legal en moneda nacional será de aplicación gradual, según se detalla seguidamente:
+A partir de | Tasa EML
+1era quincena de julio, 2022 | 13,5%
+2da quincena de julio, 2022 | 15,0%
+(*) (Así adicionado el transitorio anterior en sesión N° 6066-2022 del 15 de junio del 2022)
 D. Excepciones y deducciones
 (*)1. Se exceptúan del requerimiento de encaje mínimo legal las operaciones cuyo origen esté relacionado con:
 a. Los préstamos otorgados por el Banco Central de Costa Rica.
 b. Los recursos recibidos por la banca estatal de entidades financieras privadas en cumplimiento de las condiciones establecidas, para estas últimas, para tener acceso al redescuento o poder captar depósitos en cuenta corriente, según lo estipulado en los artículos 52 de la Ley Orgánica del Banco Central de Costa Rica y 59 de la Ley Orgánica del Sistema Bancario Nacional.
 c. Los depósitos y captaciones con un plazo de vencimiento superior a ocho años, en el tanto los recursos se destinen a crédito de vivienda según lo dispuesto en el artículo 62 bis de la Ley Orgánica del Banco Central de Costa Rica. Para ello:
 i. La entidad comunicará a la Gerencia del Banco Central y a la Superintendencia General de Entidades Financieras (SUGEF), con al menos dos semanas de antelación, la decisión de captar al amparo de lo dispuesto en el artículo 62 bis.
-ii. Recibida la comunicación, el Banco Central abrirá una “cuenta especial” donde la entidad financiera mantendrá el saldo captado bajo esta modalidad y no colocado. Esta cuenta es diferente de la cuenta de reserva*/ y será abierta en la moneda de constitución de la captación que le dio origen.
-*/El concepto “cuenta de reserva” es definido en el artículo60 del Reglamento del Sistema de Pagos.
-iii. A partir de la información declarada por la entidad financiera a la SUGEF en las clases de datos ‘’Encaje Legal’ y ‘Crediticio’, esa superintendencia determinará y comunicará al Banco Central, el saldo diario que esa entidad debió mantener depositado en la ‘cuenta especial’. La comunicación la hará a más tardar veinte días naturales después del término de cada quincena natural.
+ii. Recibida la comunicación, el Banco Central abrirá una "cuenta especial" donde la entidad financiera mantendrá el saldo captado bajo esta modalidad y no colocado. Esta cuenta es diferente de la cuenta de reserva*/ y será abierta en la moneda de constitución de la captación que le dio origen.
+*/El concepto "cuenta de reserva" es definido en el artículo60 del Reglamento del Sistema de Pagos.
+iii. A partir de la información declarada por la entidad financiera a la SUGEF en las clases de datos ''Encaje Legal' y 'Crediticio', esa superintendencia determinará y comunicará al Banco Central, el saldo diario que esa entidad debió mantener depositado en la 'cuenta especial'. La comunicación la hará a más tardar veinte días naturales después del término de cada quincena natural.
 iv. El Banco Central reconocerá intereses sobre el saldo indicado por SUGEF, aplicando, para operaciones en colones una tasa de interés igual a la Facilidad Permanente de Depósito a un día plazo en el Mercado Integrado de Liquidez y para operaciones denominadas en moneda extranjera una tasa equivalente a la que reconoce el Banco de la Reserva Federal de los Estados Unidos para los depósitos overnight (técnicamente denominada Repurchase Agreement Pool) menos quince puntos base con límite inferior de cero. Al respecto se acota lo siguiente:
-▪ Si el saldo efectivo en la ‘cuenta especial’ fuera menor que el indicado por la SUGEF, se reconocerán intereses sobre el saldo efectivo. Si el saldo efectivo fuera mayor al indicado por la SUGEF, se reconocerán intereses sobre esta última referencia.
+▪ Si el saldo efectivo en la 'cuenta especial' fuera menor que el indicado por la SUGEF, se reconocerán intereses sobre el saldo efectivo. Si el saldo efectivo fuera mayor al indicado por la SUGEF, se reconocerán intereses sobre esta última referencia.
 ▪ Los intereses se acreditarán en la cuenta de reserva en la moneda correspondiente, por quincena natural, a más tardar dos quincenas naturales posterior a la quincena del cálculo.
 ▪ Si la denominación de las operaciones en moneda extranjera es distinta del dólar estadounidense, procederá su conversión al dólar estadounidense al tipo de cambio publicado en el sitio del Banco Central.
 v Si el incumplimiento corresponde a operaciones en dólares estadounidenses, aplicará la tasa de interés indicada al saldo equivalente expresado en colones, conversión que se hará al tipo de cambio de referencia de venta del día (CR¢/EUA$); si la cuenta está denominada en otra moneda, procederá de previo su conversión al dólar estadounidense al tipo de cambio publicado en el sitio del Banco Central. Para efectos de aplicar el débito en las monedas correspondientes se utilizarán los tipos de cambio antes indicados.
 (Así reformado el subinciso anterior en sesión N° 5909 del 18 de diciembre de 2019)
-vi. La entidad financiera deberá enviar a la SUGEF la información que permita, a satisfacción de esa superintendencia, corroborar el cumplimiento de las condiciones establecidas en esta norma”.
+vi. La entidad financiera deberá enviar a la SUGEF la información que permita, a satisfacción de esa superintendencia, corroborar el cumplimiento de las condiciones establecidas en esta norma".
 (*) (Así reformado el numeral 1) anterior por el punto 4) de la sesión N° 5686 del 6 de mayo de 2015)
 Las operaciones originadas en empréstitos externos de largo plazo a las que se refiere esta excepción, corresponden a aquellas constituidas a más de 360 días por los intermediarios financieros sujetos a encaje mínimo legal.
 Para ser consideradas dentro de esta excepción, las entidades financieras deben enviar información que permita, a satisfacción de la Superintendencia General de Entidades Financieras, corroborar que los pasivos contratados en el extranjero no tienen carácter revolutivo ni cláusulas especiales que permitan la exigibilidad de pago o el pago de la operación a iniciativa del deudor en los primeros 360 días de vigencia del crédito.
@@ -99,7 +105,7 @@ G. La SUGEF, la SUGEVAL y la SUPEN deberán informar a la Junta Directiva del Ba
 (*) (Así reformado este Capítulo II en sesión N° 4949 del 1° de abril de 1998)
 CAPITULO III
 Incumplimiento de los requisitos de encaje mínimo legal
-(*) A. Se entenderá por “insuficiencia en el encaje mínimo legal cualesquiera de las siguientes situaciones:
+(*) A. Se entenderá por "insuficiencia en el encaje mínimo legal cualesquiera de las siguientes situaciones:
 1. El estado de encaje muestre deficiencia en el promedio quincenal de depósito en cuenta corriente, con respecto al requerimiento promedio del encaje mínimo legal, según la metodología de cálculo indicada en el numeral primero del literal B del Capítulo II.
 2. No mantenga cada día del período de control del encaje en depósitos en el BCCR al menos el 97,5% del encaje mínimo legal requerido dos quincenas naturales previas. Es decir, para todos y cada uno de los días de la primera quincena de un determinado mes (t), el saldo al final del día de los depósitos en el Banco Central no deberá ser menor al 97,5% del encaje mínimo legal requerido para la primera quincena del mes anterior (t-1). Asimismo, para todos y cada uno de los días de la segunda quincena de un determinado mes (t), el saldo al final del día de los depósitos en el Banco Central no deberá ser menor al 97,5% del encaje mínimo legal requerido para la segunda quincena del mes anterior (t.1).
 En caso de que los pasivos sujetos a encaje de un día en particular disminuyan en más del 10% con respecto al saldo promedio de los pasivos sujetos a este requerimiento de dos quincenas previas, la entidad financiera podrá retirar un porcentaje equivalente de sus depósitos exigidos por concepto de encaje, sin que esta situación se considere como desencaje.
