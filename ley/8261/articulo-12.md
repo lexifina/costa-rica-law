@@ -1,4 +1,4 @@
-Artículo 12.—Finalidad y objetivos del Consejo. El Consejo tendrá como finalidad elaborar y ejecutar la política pública para las personas jóvenes conforme a los siguientes objetivos, y darles seguimientos:
+Artículo 12.-Finalidad y objetivos del Consejo. El Consejo tendrá como finalidad elaborar y ejecutar la política pública para las personas jóvenes conforme a los siguientes objetivos, y darles seguimientos:
 a) Coordinar, con todas las instituciones públicas del Estado, la ejecución de los objetivos de esta Ley, de los deberes establecidos en el artículo 5, así como de las políticas públicas elaboradas para las personas jóvenes.
 b) Apoyar e incentivar la participación de las personas jóvenes en la formulación y aplicación de las políticas que las afecten.
 c) Incorporar en su política nacional las recomendaciones emanadas de la Asamblea Nacional Consultiva de la Persona Joven.
@@ -11,3 +11,5 @@ i) Gestionar, por medio de los comités cantonales de la persona joven, la admin
 (Así adicionado el inciso anterior por el artículo 2° de la Ley de Creación de las Casas Cantonales de la Juventud, Ley N° 9051 del 9 de julio de 2012)
 j) Desarrollar programas de capacitación y recreación para las personas jóvenes con discapacidad física, mental o sensorial.
 (Así adicionado el inciso anterior por el artículo 4° de la ley N° 9155 del 3 de julio del 2013)
+k) Formular proyectos de desarrollo territorial, productivos, ambientales, innovación y tecnología, educativos, salud integral, agropecuarios, capacitación y formación profesional y técnica, culturales, de vivienda, deportivos y recreativos, de inclusión laboral, turísticos, etc. dirigidos a las personas jóvenes a otras instituciones públicas para su financiamiento. Todo proyecto del Consejo Nacional de la Persona Joven, financiado por otra entidad pública, deberá tener indicadores de impacto y cumplimiento de objetivos. Para desarrollar los proyectos aquí indicados, el Consejo podrá constituir fideicomisos con bancos públicos y alianzas público-privadas.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley para la cooperación interinstitucional en el financiamiento de proyectos para juventudes costarricenses, N° 10221 del 5 de mayo del 2022)
