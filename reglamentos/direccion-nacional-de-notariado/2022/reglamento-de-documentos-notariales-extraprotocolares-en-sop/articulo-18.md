@@ -1,0 +1,2 @@
+Artículo 18.-Respaldos de documentos en soporte electrónico.
+Cuando se requieran otros documentos en soporte electrónico para poder confeccionar documentos notariales también en soporte electrónico, deberán agregarse al archivo de referencias conforme las normas correspondientes. Igualmente, cuando se tengan documentos impresos, que se necesiten para la elaboración de documentos notariales en soporte electrónico, se deben agregar al archivo de referencias conforme a la normativa correspondiente.

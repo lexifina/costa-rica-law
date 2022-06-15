@@ -1,0 +1,2 @@
+Artículo 12.-Obligación de verificar requisitos de la firma digital en autenticaciones.
+Para autenticar un documento que contenga firmas digitales electrónicas; la persona notaria deberá verificar si se cumplen las características técnicas de la firma digital certificada que esté en el documento; esto es la garantía de integridad y autenticidad, el formato oficial, así como el sellado de tiempo de la firma digital previamente impuesta, en cuyo caso, una vez verificado lo anterior podrá dar fe de la integridad y autenticidad de la firma digital correspondiente.

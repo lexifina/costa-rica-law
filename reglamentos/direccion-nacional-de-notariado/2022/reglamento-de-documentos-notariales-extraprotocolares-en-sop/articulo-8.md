@@ -1,0 +1,2 @@
+Artículo 8º-Formatos de actuación digital.
+Los documentos notariales extraprotocolares en soporte electrónico, deberán ser emitidos de acuerdo con el presente Reglamento y en lo aplicable de conformidad con la Política de Formatos Oficiales de los documentos electrónicos que emita el Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones (MICITT), se podrán aceptar documentos en formatos electrónicos que cumplan con lo dispuesto en dicha Política.

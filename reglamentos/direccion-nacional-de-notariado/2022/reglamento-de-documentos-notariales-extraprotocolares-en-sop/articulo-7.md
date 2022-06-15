@@ -1,0 +1,3 @@
+Artículo 7º-Responsabilidad.
+Cada notario será responsable en forma personal de velar por el correcto uso de su firma digital, de conformidad con lo establecido por la Ley de Certificados, Firmas Digitales y Documentos Electrónicos y su Reglamento (Ley 8454) y el Código Notarial, y deberá custodiar adecuadamente el dispositivo de creación de firma digital.
+Todo documento extraprotocolar que corresponda a una actuación notarial y se encuentre asociado a una firma digital certificada, se presumirá de la autoría y responsabilidad del notario titular del correspondiente certificado digital en el momento de su emisión, según lo estipulado en el artículo 10 de la Ley 8454.

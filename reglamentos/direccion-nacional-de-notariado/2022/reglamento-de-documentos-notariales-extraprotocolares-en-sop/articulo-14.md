@@ -1,0 +1,3 @@
+Artículo 14.-Autenticación de firmas manuscritas con firma digital.
+Será posible la autenticación en soporte electrónico de firmas manuscritas originales y puestas en presencia de la persona notaria, para ello se podrá digitalizar (escanear)
+el documento original firmado en presencia de la persona notaria, en este documento se debe establecer la constancia de que se autentican notarialmente las firmas de las partes por haberse firmado en su presencia, el lugar, la hora y fecha del documento, y que se da fe de que las firmas impuestas corresponden a las personas otorgantes del documento autenticado, quienes fueron debidamente identificadas para ese efecto. Luego deberá firmar la persona notaria con su firma digital certificada, y su respectivo sellado de tiempo.
