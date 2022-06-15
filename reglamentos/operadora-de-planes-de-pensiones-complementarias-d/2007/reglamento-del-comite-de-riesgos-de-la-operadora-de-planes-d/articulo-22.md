@@ -1,0 +1,3 @@
+Artículo 22.-Discusión de temas. Los temas por discutir en las sesiones del Comité tienen que estar relacionados con los asuntos que sean parte del orden del día. Además, se espera que las intervenciones que se realicen durante las sesiones tengan un enfoque de aportación de valor a las discusiones y no se limiten a reiterar criterios o posiciones previamente emitidas por otros participantes de la sesión, así como, procurar la participación de todos los miembros del Comité.
+Luego de votado un asunto no se permitirá intervención alguna sobre el mismo, excepto el razonamiento del voto, para lo que el miembro del Comité tendrá un máximo de cinco minutos.
+(Así adicionado mediante sesión ordinaria Nº 684 del 15 de junio del 2022)

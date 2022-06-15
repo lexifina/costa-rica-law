@@ -1,5 +1,7 @@
-Artículo 20.-Propuestas e iniciativas de administración de riesgos. Corresponde al Comité presentar propuestas, estrategias e iniciativas para la administración de riesgos y someterlas a aprobación por parte de la Junta Directiva. Estas acciones deben ser sometidas a discusión ante el Comité, conforme al procedimiento establecido en el Manual de Políticas y Procedimientos vigente.
-Una vez aprobada una propuesta por parte del Comité de Riesgos, la misma será sometida a consideración de la Junta Directiva para su aprobación y adopción definitiva.
-Este Reglamento rige a partir de su publicación en el Diario Oficial y el mismo deroga el aprobado en la sesión ordinaria de Junta Directiva de la Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal, número 131 del 18 de febrero del 2004 y publicado en La Gaceta Nº 143, del jueves 22 de julio del 2004.
+Artículo 20.-Orden del día. El Comité aprobará una agenda anual, la cual contendrá los asuntos mínimos por tratar. Estos asuntos deberán estar alineados con sus responsabilidades.
+Las sesiones deberán desarrollarse conforme a la agenda mínima mensual, la cual podrá ser modificada si así lo considera la Presidencia del Comité.
+La agenda mensual, la cual contiene el orden del día, los antecedentes y los documentos relativos a los asuntos por tratar deberá ser remitida a cada participante de la sesión al menos 48 horas antes de su celebración.
+Si el intervalo entre una sesión y otra es inferior a 48 horas, se podrá remitir con hasta 24 horas de antelación.
+No puede ser objeto de acuerdo ningún asunto que no figure en el orden del día o cuyos antecedentes y documentos no sean remitidos en el plazo indicado en el párrafo anterior, salvo que, presentes al menos dos tercios de las personas que integran el Comité declaren la urgencia del asunto por el voto favorable de todas.
 (Así modificada su numeración en sesión N° 645 del 16 de junio de 2021, que lo traspaso del antiguo artículo 18 al 20)
-San José, 23 de febrero del 2007
+(Así reformado mediante sesión ordinaria Nº 684 del 15 de junio del 2022)
