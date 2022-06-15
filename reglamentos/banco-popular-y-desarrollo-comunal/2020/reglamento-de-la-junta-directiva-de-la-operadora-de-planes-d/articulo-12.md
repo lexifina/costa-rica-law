@@ -1,1 +1,0 @@
-Artículo 12.—Hora de inicio. Las sesiones ordinarias y extraordinarias deberán iniciarse a la hora señalada en la convocatoria, conforme su Presidente lo indica, salvo que por conveniencia de los Directores pospongan iniciar la sesión en un momento posterior.

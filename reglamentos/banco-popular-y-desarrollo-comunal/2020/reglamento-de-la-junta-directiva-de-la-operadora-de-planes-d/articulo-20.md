@@ -1,1 +1,0 @@
-Artículo 20.—De la votación. Todos los Directores están obligados a emitir su voto en forma afirmativa o negativa y ninguno podrá abstenerse de votar salvo causal contemplada por la ley; o cuando se trate de aprobación de actas o decisiones en la cuales el Director no estuvo presente.

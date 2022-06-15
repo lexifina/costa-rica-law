@@ -1,1 +1,0 @@
-Artículo 24.—Comunicación de los acuerdos y resoluciones. La Secretaría de Junta Directiva deberá comunicar los acuerdos y resoluciones a la Gerencia General y Auditoría Interna de la Operadora y a los terceros interesados, cuando proceda.

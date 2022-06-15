@@ -1,1 +1,0 @@
-Artículo 8º—Orden del Día. Las sesiones deberán desarrollarse conforme al orden del día que para ese efecto prepare la Presidencia de la Junta Directiva en coordinación con la Gerencia General de la sociedad, el cual podrá ser modificado al inicio de cada sesión antes de la aprobación de la agenda.

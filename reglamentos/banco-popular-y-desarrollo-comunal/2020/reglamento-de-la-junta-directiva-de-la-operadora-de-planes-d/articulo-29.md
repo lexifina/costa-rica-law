@@ -1,1 +1,0 @@
-Artículo 29.—Prórroga del plazo. Los Comités o las Comisiones a las que se le otorgó plazo para presentar un informe podrán solicitar plazo adicional cuando se trate de asuntos en los que, por falta de información, por lo extenso de los documentos o a causa de la complejidad de estos, no resultare posible rendir el informe dentro del plazo otorgado.
