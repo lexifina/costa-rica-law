@@ -1,4 +1,3 @@
-Transitorio.-La Municipalidad del Cantón Central de Limón designará a
-los integrantes de la Junta Administradora dentro de los sesenta días
-siguientes a la publicación de esta ley, para lo cual solicitará la
-presentación de las ternas respectivas.
+Transitorio l- Las personas integrantes actuales de La Junta Administradora de la Casa Cultura fungirán como Junta hasta el período que se señala en el artículo 4 de esta ley y la Municipalidad del cantón Central de Limón designará oportunamente a los integrantes de la nueva Junta, en el plazo legal establecido.
+En caso de que "La Junta Administradora de la Casa Cultura" no esté constituida, el Concejo Municipal procederá conforme a esta ley, a nombrar la Junta Directiva de la Junta de acuerdo con el procedimiento establecido para que se desempeñen hasta el siguiente año par. Para el caso de los dos representantes del Taller de Planificación del Fomento de las Manifestaciones de la Pluriculturalidad Limonense, el Concejo Municipal les solicitará a los artistas y representantes de las diferentes manifestaciones culturales limonenses que postulen sus nombres a ocupar dichos cargos, dentro de los cuales se escogerán los dos representantes.
+(Así reformado por el artículo 1° de la ley N° 10250 del 6 de mayo del 2022, “Reforma a la ley N° 6093 " Crea Junta Administradora Casa Cultura Limón", Creación de la Junta de Fomento de la Pluriculturalidad”)

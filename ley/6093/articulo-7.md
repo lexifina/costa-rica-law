@@ -1,4 +1,2 @@
-Artículo 7º.- La Junta Administradora podrá ceder a los sindicatos
-obreros de Limón su sala de actos para celebrar actividades culturales
-tales como seminarios, mesas redondas, conferencias y cursillos de
-sindicalismo.
+ARTÍCULO 7- La Junta podrá ceder a organizaciones comunales, sindicales, organismos no gubernamentales, instituciones del Estado y a todo el sector cultural organizado de Limón, sus instalaciones para celebrar actividades culturales tales como seminarios, mesas redondas, conferencias, cursillos y cualquier otra actividad a criterio de la Junta.
+(Así reformado por el artículo 1° de la ley N° 10250 del 6 de mayo del 2022, “Reforma a la ley N° 6093 " Crea Junta Administradora Casa Cultura Limón", Creación de la Junta de Fomento de la Pluriculturalidad”)
