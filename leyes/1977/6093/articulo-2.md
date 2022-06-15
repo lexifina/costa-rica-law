@@ -1,4 +1,5 @@
-Artículo 2º.- En virtud de la competencia señalada en el artículo
-primero, la Junta podrá celebrar los convenios y ejecutar los actos
-necesarios para la conservación y la explotación del inmueble y no podrá
-delegar esa función en ninguna persona física o jurídica.
+ARTÍCULO 2- En virtud de la competencia señalada en el artículo primero, la Junta podrá celebrar los convenios y ejecutar los actos necesarios para la conservación y la explotación del inmueble y no podrá delegar esa función en ninguna persona física o jurídica. También, podrá realizar convenios y alianzas con empresas tanto públicas como privadas para lograr los objetivos que impulsa esta ley. En materia de convenios, este debe ser aprobado por el Concejo Municipal de Limón.
+Además, la Junta podrá administrar todos aquellos inmuebles que determine la Municipalidad de Limón o que otras instituciones pongan en administración de la Junta vía convenio aprobado por ella y por el Concejo Municipal de Limón.
+Se faculta a la Junta para que administre todos aquellos bienes muebles o inmuebles que esta reciba conforme a la ley, dichos bienes serán dedicados exclusivamente para las facultades establecidas en la presente ley.
+La Municipalidad de Limón se encargará de recibir los ingresos de la Junta y girar los egresos que ella determine de acuerdo con lo que establezca el reglamento y no podrá darle ningún otro uso a los recursos que no sea los que determine la Junta mediante acuerdo. La Municipalidad podrá autorizar el uso de una "caja chica" a la Junta para facilitar su operación, la que se liquidará mediante los comprobantes correspondientes, lo cual también debe estar reglamentado.
+(Así reformado por el artículo 1° de la ley N° 10250 del 6 de mayo del 2022, “Reforma a la ley N° 6093 " Crea Junta Administradora Casa Cultura Limón", Creación de la Junta de Fomento de la Pluriculturalidad”)

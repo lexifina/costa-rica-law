@@ -1,5 +1,7 @@
-Artículo 1º.- Créase la Junta Administradora de la Casa de la Cultura
-de Limón, que tendrá como únicas funciones estudiar las manifestaciones
-culturales de la población de la provincia de Limón y administrar el
-inmueble, a que se refiere el artículo 5º de esta ley, que se destina a la
-presentación de espectáculos culturales.
+ARTÍCULO 1- Se crea la Junta de Fomento de la Pluriculturalidad Limonense sus Manifestaciones desconcentrado del que Cantón estará Central adscrito de Limón a la Municipalidad (en adelante de la Junta), Limón como y tendrá las funciones de rector cantonal, sin rozar con las competencias correspondientes a esta municipalidad ni con las del Ministerio de Cultura y Juventud y tendrá los siguientes objetivos:
+a.- Fomentar la diversidad pluricultural y multiétnica del cantón Central de Limón para organizar, estudiar e impulsar las manifestaciones culturales de la población limonense.
+b.- Administrar el inmueble a que se refiere el artículo 5 de esta ley, que se destina a todas aquellas actividades culturales que se planifiquen por el Taller de Planificación del Fomento de las Manifestaciones de la Pluriculturalidad Limonense (que se crea en el artículo 10 de esta ley), la propia Junta y el Concejo Municipal de Limón, en ese orden jerárquico, de menor a mayor, y cualquier otro inmueble a cargo de la Junta.
+c.- Impulsar y apoyar planes, proyectos y programas culturales en el cantón Central de Limón, propiciando la participación de la población en las actividades culturales.
+d.- Planificar, ejecutar y coordinar el Taller de Planificación del Fomento de las Manifestaciones de la Pluriculturalidad Limonense, de acuerdo con el artículo 10 de esta ley.
+e--Los demás objetivos que determine esta ley y el reglamento señalado en el artículo 9.
+(Así reformado por el artículo 1° de la ley N° 10250 del 6 de mayo del 2022, “Reforma a la ley N° 6093 " Crea Junta Administradora Casa Cultura Limón", Creación de la Junta de Fomento de la Pluriculturalidad”)
