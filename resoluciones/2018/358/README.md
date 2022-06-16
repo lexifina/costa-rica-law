@@ -14,3 +14,4 @@ Modificación del Procedimiento para la homologación de terminales móviles
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-10 | la propia norma |
+| 2 | 2022-06-16 | Resolución 141 (2022-06-16) |
