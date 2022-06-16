@@ -1,0 +1,1 @@
+Artículo 2º-La beca socioeconómica cubrirá un semestre completo, al cabo del cual, se tendrá que realizar la solicitud nuevamente para el próximo ciclo lectivo. Si el estudiante está matriculado en dos énfasis instrumentales, la beca tendrá efecto en ambos instrumentos.

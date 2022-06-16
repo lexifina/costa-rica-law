@@ -1,0 +1,2 @@
+Artículo 3º-El sistema de becas se financiará mediante la asignación de recursos provenientes del presupuesto municipal, asignado por medio del Concejo Municipal. Será un presupuesto aparte del correspondiente a los gastos ordinarios de matrícula.
+En caso de existir remanentes al final del período en las partidas presupuestarias del sistema de becas, estos deberán constituirse en un superávit comprometido que deberá ser reinvertido, exclusivamente en proyectos para beneficio de la Escuela Municipal de Música.
