@@ -1,0 +1,1 @@
+ARTÍCULO 3- El lote donado será destinado exclusivamente a la construcción de un inmueble de usos múltiples en beneficio de la comunidad. En caso de que se varíe el uso original del inmueble o se disuelva la persona jurídica beneficiaria, la propiedad del terreno donado volverá a ser de la Municipalidad de Zarcero.
