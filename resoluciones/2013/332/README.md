@@ -16,3 +16,4 @@ Procedimiento para la homologación de terminales móviles y requisitos para la 
 | 1 | 2013-12-23 | la propia norma |
 | 2 | 2018-08-16 | Resolución 286 (2018-08-16) |
 | 3 | 2018-11-09 | Resolución 358 (2018-11-09) |
+| 4 | 2022-06-16 | Resolución 141 (2022-06-16) |
