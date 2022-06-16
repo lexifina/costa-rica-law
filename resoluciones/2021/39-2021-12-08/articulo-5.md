@@ -1,1 +1,0 @@
-Artículo 5º-Se deja sin vigencia la resolución RES-DGH-010-2021 y RES-DGA-222-2021 de la Dirección General de Hacienda y de la Dirección General de Aduanas del Ministerio de Hacienda, San José, de las nueve horas con treinta y cinco minutos del día cuatro de junio de dos mil veintiuno, publicada en La Gaceta Nº 115 del miércoles 16 junio del 2021.
