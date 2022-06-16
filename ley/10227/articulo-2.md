@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Municipalidad de Zarcero para que done el Inmueble descrito en el artículo anterior a la Asociación de Desarrollo Integral de Zapote, cédula jurídica tres - cero cero dos - cero ocho cuarenta y dos setenta y uno (3-002-084271).
