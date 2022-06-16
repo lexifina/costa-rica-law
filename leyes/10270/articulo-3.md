@@ -1,0 +1,1 @@
+ARTÍCULO 3- La Asociación donataria no podrá variar el uso o destino que actualmente tiene el bien inmueble que mediante esta ley se autoriza a donar, ni impedir su uso y disfrute por los vecinos. En caso de hacerlo o de que la Asociación se disuelva, el inmueble pasará a ser propiedad de la Municipalidad de Abangares.
