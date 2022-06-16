@@ -15,3 +15,4 @@ Reglamento de Regulación y Comercialización de Bebidas con Contenido Alcohóli
 | --- | --- | --- |
 | 1 | 2015-11-12 | la propia norma |
 | 2 | 2020-12-03 | Reglamento municipal 0 (2020-12-03) |
+| 3 | 2022-06-16 | Reglamento municipal 0 (2022-06-16) |
