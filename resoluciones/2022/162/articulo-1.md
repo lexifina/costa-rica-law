@@ -1,0 +1,20 @@
+DIRECCIÓN GENERAL DE ADUANAS
+RESOLUCION DE ALCANCE GENERAL
+RESOLUCIÓN RES-DGA-162-2022
+DIRECCION GENERAL DE ADUANAS, San José, a las ocho horas con treinta minutos del día veinticinco de mayo de dos mil veintidós.
+Conoce esta Dirección General el oficio No. DGCE-COR-CAE-0012-2022 de fecha 21 de enero de 2022, mediante la cual la Licda. Laura Rodríguez V., en su calidad de Coordinadora del Foro Centroamérica y República Dominicana, del Ministerio de Comercio Exterior, comunica que el Consejo de Ministros de Integración Económica, mediante resoluciones Nos. 452-2021 (COMIECO-XCVIII), 453-2021 (COMIECOXCVIII) y 457-2021 (COMIECO-XCVIII), resolvió aprobar reducción arancelaria para los plastificantes para caucho o plástico, apertura arancelaria para paneles de aluminio y apertura y modificación arancelaria para la parafina clorada de cadena larga.
+CONSIDERANDO
+1. Que de conformidad con los artículos 11 de la Ley General de Aduanas y 7 de su Reglamento, sus reformas y modificaciones vigentes, la Dirección General de Aduanas es el órgano superior jerárquico nacional en materia aduanera y dentro de sus funciones le compete la coordinación de acciones con los Ministerios, órganos y demás entes relacionados con el proceso aduanero, con el fin de armonizar las políticas aduaneras.
+2. Que mediante oficio No. DGCE-COR-CAE-0012-2022 de fecha 21 de enero de 2022, la Licda. Laura Rodríguez V., en su calidad de Coordinadora del Foro Centroamérica y República Dominicana, del Ministerio de Comercio Exterior, comunica que el Consejo de Ministros de Integración Económica, mediante resoluciones Nos. 452-2021 (COMIECO-XCVIII), 453-2021 (COMIECO-XCVIII) y 457-2021 (COMIECO-XCVIII) todas del 17 de diciembre de 2021, resolvió aprobar reducción arancelaria para los plastificantes para caucho o plástico, apertura arancelaria para paneles de aluminio y apertura y modificación arancelaria para la parafina clorada de cadena larga, del Arancel Centroamericano de Importación, Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.
+3. Que mediante Decretos Ejecutivos Nos. DE-43493-COMEX, DE-43494-COMEX, DE-43495-COMEX, publicados en el Diario Oficial La Gaceta No.95 del 24/05/2022 y No.96 del 25/05/2022, se divulga las Resoluciones Nos. 452-2021 (COMIECO-XCVIII), 453-2021 (COMIECO-XCVIII) y 457-2021 (COMIECO-XCVIII), todas del 17 de diciembre de 2021.
+4. Que las Resoluciones Nos. 452-2021 (COMIECO-XCVIII), 453-2021 (COMIECO-XCVIII) y 457-2021 (COMIECO-XCVIII), entran en vigor el 17 de junio de 2022.
+POR TANTO
+Con fundamento en las consideraciones de hecho y derecho de cita, potestades y demás atribuciones aduaneras que otorgan los artículos 6 y 8 del Código Aduanero Uniforme Centroamericano IV, así como el artículo 5 de su Reglamento y los ordinales 6, 9, 11 de la Ley General de Aduanas, Nº 7557 del 20 de octubre de 1995 y sus reformas, en uso de las facultades y atribuciones que le concede la legislación que regula la materia aduanera, EL DIRECTOR GENERAL DE ADUANAS COMUNICA:
+DIRECCIÓN GENERAL DE ADUANAS
+1. Modificación de los Derechos Arancelarios a la Importación (DAI), para los plastificantes compuestos para caucho o plástico, de la partida 38.12. (Ver Anexo A)
+2. Apertura arancelaria del Arancel Centroamericano de Importación, para paneles de aluminio de la partida 76.06. (Ver Anexo B)
+3. Apertura arancelaria y modificación de los Derechos Arancelarios a la Importación (DAI), para las parafinas cloradas de cadena larga de la partida 38.24. (Ver Anexo C)
+Todas aprobadas mediante Resoluciones No. 452-2021 (COMIECO-XCVIII), No. 453-2021 (COMIECOXCVIII) y No. 457-2021 (COMIECO-XCVIII), del 17 de diciembre de 2021 y se ejecutarán en el arancel automatizado del Servicio Nacional de Aduanas TICA, según se detalla en los Anexos A, B y C de esta Resolución.
+4. Las Agencias y Agentes de Aduanas y demás Auxiliares de la Función Pública, deberán realizar la correspondiente actualización en el Arancel que cada uno utilice.
+5. Publíquese en el Diario Oficial La Gaceta.
+6. La presente resolución rige a partir del 17 de junio de 2022.
