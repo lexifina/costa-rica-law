@@ -1,0 +1,1 @@
+Artículo 4º-Vinculación a los procesos institucionales. Mediante una adecuada gestión ética institucional, se pretende mantener actuaciones constantes dentro de la institución, que reflejen una cultura de transparencia, rendición de cuentas, control interno, integridad y probidad por parte de todos los integrantes de la institución.

@@ -1,0 +1,2 @@
+Artículo 9º-Reuniones. La Comisión se reunirá una vez al mes de manera ordinaria y se convocará a reuniones extraordinarias en caso de ser necesario. La persona a cargo de la Coordinación es quien convocará a los miembros de la Comisión tanto a las reuniones ordinarias como las extraordinarias.
+De igual manera, un mínimo de dos integrantes de la Comisión asistirá a las reuniones mensuales del Sistema Nacional de Ética y Valores.

@@ -1,0 +1,3 @@
+Artículo 7º-Integración de la Comisión Institucional de Ética y Valores. La Comisión será nombrada por el Alcalde Municipal, quién deberá de comunicar de manera anticipada a los jefes de Departamentos cuales de sus subordinados serán miembros de la Comisión Institucional de Ética y Valores.
+Los nombramientos serán por un plazo de dos años.
+En caso de que algún integrante no pueda continuar en la Comisión por situaciones justificadas o incumpla el perfil reglamentario, deberá nombrarse el sustituto en el plazo máximo de un mes calendario a partir de que se haga efectiva su separación del cargo.

@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Este reglamento es de aplicación obligatoria, tanto para los integrantes de la Comisión Institucional de Ética y valores, así como para otras instancias de esta institución, según sean sus competencias.

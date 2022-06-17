@@ -1,0 +1,1 @@
+Artículo 6º-Objetivo de la Comisión Institucional y de la Unidad Técnica de Ética y Valores: fomentar una cultura de servicio al público basada en una gestión ética adecuada, la cual favorezca el interés general, mediante la práctica de la transparencia, eficacia y equidad en los servicios brindados.
