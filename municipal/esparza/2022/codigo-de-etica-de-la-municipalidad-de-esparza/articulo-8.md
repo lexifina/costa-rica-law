@@ -1,0 +1,1 @@
+Artículo 8º-Responsabilidad. La transgresión de los deberes éticos, actos de corrupción y prohibiciones impuestas por el presente Código, se consideran una infracción, generándose responsabilidad pasible de sanción al empleado público o al servidor con puesto de elección popular de la Municipalidad de Esparza.

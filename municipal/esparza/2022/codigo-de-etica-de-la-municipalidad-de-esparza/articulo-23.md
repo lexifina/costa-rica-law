@@ -1,0 +1,1 @@
+Artículo 23.-Normativa supletoria. Para todo lo no previsto en el presente Código de Ética, es de aplicación, la normativa legal señalada en el Considerando Segundo de este Código, y demás normativa conexa.

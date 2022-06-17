@@ -1,0 +1,1 @@
+Artículo 20.-Deber de protección. La persona trabajadora o particular que disponga medidas contrarias a lo dispuesto en el apartado anterior, será sancionada conforme lo establece la normativa vigente.

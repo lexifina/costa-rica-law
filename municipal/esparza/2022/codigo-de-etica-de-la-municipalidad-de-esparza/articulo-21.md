@@ -1,0 +1,3 @@
+Artículo 21.-Confidencialidad. Al presentar una denuncia ante la Alcaldía Municipal, la persona denunciante podrá solicitar que no sea revelada su identidad hasta la conclusión de la investigación y en su caso, del procedimiento sancionador correspondiente. Esta información será considerada como confidencial y su divulgación será sancionada conforme al presente Código de Ética, salvo requerimiento de una instancia judicial competente. La protección al denunciante no alcanza a:
+a) Aquellas medidas disciplinarias que se encuentren en proceso, por faltas del denunciante, realizadas antes o después de la presentación de la denuncia.
+b) A aquellas denuncias que sean formuladas de mala fe o sin aportar indicios o pruebas de los hechos que se alegan.

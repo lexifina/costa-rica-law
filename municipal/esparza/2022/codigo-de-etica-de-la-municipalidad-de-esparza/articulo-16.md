@@ -1,0 +1,1 @@
+Artículo 16.-De la formulación de la denuncia. Todas las personas trabajadoras y servidores municipales, indistintamente del tipo de contratación que tengan, tienen el deber de denunciar sin demora cualquier acto indebido o presunta conducta inapropiada.

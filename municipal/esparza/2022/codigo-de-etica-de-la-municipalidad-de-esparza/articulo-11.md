@@ -1,0 +1,1 @@
+Artículo 11.-Sobre los ex funcionarios y ex servidores. En caso de que la persona denunciada ya no mantenga vínculo de ningún tipo con la Municipalidad de Esparza, se procederá a interponer la denuncia ante el órgano judicial o administrativo competente.
