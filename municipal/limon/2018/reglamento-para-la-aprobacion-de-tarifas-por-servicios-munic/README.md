@@ -15,3 +15,4 @@ Reglamento para la aprobación de tarifas por servicios municipales del Cantón 
 | --- | --- | --- |
 | 1 | 2018-11-23 | la propia norma |
 | 2 | 2019-09-02 | Reglamento municipal 70 (2019-09-02) |
+| 3 | 2022-06-20 | Reglamento municipal 110 (2022-06-20) |

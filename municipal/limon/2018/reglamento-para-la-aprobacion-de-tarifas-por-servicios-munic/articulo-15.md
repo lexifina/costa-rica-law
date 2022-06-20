@@ -1,1 +1,2 @@
-Artículo 15.—Recibido el proyecto, el Concejo Municipal lo someterá a votación; en caso de que sea aprobado acordara su publicación en el diario oficial, otorgando un plazo de treinta días naturales desde la publicación y citando lugar y hora de inicio de la audiencia pública.
+Artículo 15.-Recibido el proyecto, el Concejo Municipal contará con un plazo improrrogable de quince días hábiles para aprobar el estudio tarifario. En caso de que sea aprobado acordará su publicación en el diario oficial, otorgando un plazo de treinta días naturales desde la publicación y citando lugar y hora de inicio de la audiencia pública.
+(Así reformado mediante sesión ordinaria N°110 del 20 de junio del 2022)
