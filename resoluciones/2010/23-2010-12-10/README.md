@@ -63,3 +63,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | 48 | 2022-02-14 | Resolución 3 (2022-02-14) |
 | 49 | 2022-03-01 | Resolución 4 (2022-03-01) |
 | 50 | 2022-04-08 | Resolución 5 (2022-04-08) |
+| 51 | 2022-06-20 | Resolución 7 (2022-06-20) |
