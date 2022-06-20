@@ -1,13 +1,17 @@
-Artículo 50.—Solicitud y requisitos para obtener el permiso de portación para personas físicas. La solicitud del permiso de portación de armas de fuego únicamente se gestionará mediante el formulario electrónico de solicitud de inscripción que se encuentra disponible al efecto en el Sistema. Dicho formulario debe completarlo en línea la persona física solicitante, tratándose de personas jurídicas la solicitud la realizará su representante legal o una persona autorizada por este, para lo cual ha de cumplir con los siguientes requisitos:
+Artículo 50.- Solicitud y requisitos para obtener el permiso de portación. La solicitud del permiso de portación de armas de fuego se gestionará mediante el formulario electrónico respectivo disponible al efecto en el Sistema. Dicho formulario debe completarlo en línea la persona física solicitante; tratándose de personas jurídicas, la solicitud la realizará su representante legal o una persona autorizada por este.
+El formulado electrónico deberá contener, la siguiente información:
+a) Nombre completo con dos apellidos, cuando proceda.
+b) Tipo, número y vigencia de documento de identidad.
+e) Número de teléfono.
+d) Dirección exacta: provincia, cantón, distrito y señas adicionales.
+e) Dirección de correo electrónico para atender cualquier notificación o convalidación.
+La plataforma deberá actualizar la información suministrada en el perfil de cada persona usuaria.
+En todo caso, la persona interesada deberá cumplir con los mismos requisitos contemplados en el artículo 24 de este cuerpo normativo y los que se indican a continuación:
 a) Cuando la solicitud la realice una persona física:
-1) Completar el formulario electrónico de solicitud disponible en el Sistema.
-2) La inexistencia de antecedentes penales según Ley 7530
-3) Contar con un dictamen positivo de idoneidad mental para poseer armas de fuego.
-4) Contar con el registro de huellas dactilares.
-5) Aprobar el examen teórico – práctico que establezca la Dirección General.
-6) En caso de ser una persona nacional debe contar con la cédula de identidad vigente, si se trata de una persona extranjera su condición migratoria debe ser residente permanente de libre condición vigente.
-7) Cancelar en línea el monto de mil colones por concepto de timbre fiscal por cada portación solicitada
-b) Cuando la solicitud la realice una persona jurídica, además de los anteriores requisitos:
-1) Estar al día con el pago de las cuotas obrero – patronales. Este requisito se corrobora por medio del Sistema.
-2) Estar al día con el pago del impuesto a las personas jurídicas y de las pólizas de responsabilidad civil y de riesgos del trabajo. Este requisito se corrobora por medio del Sistema.
-Luego de generar la solicitud, mediante interoperabilidad con el Archivo Judicial del Poder Judicial el Sistema requerirá los antecedentes del solicitante de conformidad con lo indicado en este reglamento. El Departamento tendrá un mes para resolver. El mismo plazo regirá cuando se solicite a la vez el permiso de portación y la inscripción de arma de fuego. En caso que se tengan por cumplidos los requisitos establecidos en la ley y el presente reglamento, el Departamento dará el permiso, emitiendo el correspondiente comprobante mediante el Sistema.
+1) Cancelar en línea el monto de mil colones por concepto de timbre fiscal por cada portación solicitada.
+2) Gestionar cuando y de la forma en la que se le indique, mediante el sistema ante el Departamento de Control de Armas y Explosivos, la asignación de una cita, a fin de realizar revisión física del arma que se pretende portar. Esta gestión debe realizarse dentro de los tres días hábiles posteriores a la notificación automática, de no cumplirse con lo anterior, se procederá al rechazo del trámite sin mayor análisis. Esta revisión no aplica cuando el arma ha sido vendida por un comercializador autorizado como parte de su actividad habitual.
+En caso de que el trámite sea rechazado por alguna causa de forma previa a la fecha de revisión programada, el sistema automáticamente procederá a la cancelación de la cita.
+b) Si quien solicita es una persona jurídica, su representante legal y la persona encargada del manejo, custodia y administración del armamento, debidamente acreditada en el sistema, debe satisfacer los requisitos indicados en eI artículo 24 de este Reglamento.
+c) En caso de tratarse de seguridad institucional, se requerirá que la Institución certifique la existencia de la relación obrero-patronal vigente con la persona a la cual se le solicita el permiso de portación de arma.
+El sistema validará mediante interoperabilidad los requisitos legales respectivos y el Departamento tendrá un mes para resolver la solicitud.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43858 del 20 de junio del 2022)
