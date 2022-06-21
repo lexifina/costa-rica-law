@@ -1,0 +1,1 @@
+Artículo 7º-Base para la venta de cartera. El monto base para la venta de cada a agrupación de cartera, será el definido por la Dirección de Riesgos en el avalúo respectivo, el cual, al momento de iniciarse el proceso de venta no podrá tener más de un año de haberse efectuado.

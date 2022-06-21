@@ -1,0 +1,12 @@
+Artículo 2º-Definiciones. Para efectos de este reglamento se establecen las siguientes definiciones:
+-Banco: Banco Nacional de Costa Rica.
+-Cartera: Se refiere a la Cartera de Reserva de Préstamos de no Seguimiento del Banco.
+-Cartera de no seguimiento que no se ha logrado cobrar parcial o totalmente por medio de un proceso de cobro judicial: Corresponde a las operaciones que, habiéndose sometido a un proceso de cobro judicial formal, no se ha logrado su recuperación parcial o total.
+-Cesionario: Denominación que recibe el cliente (comprador) al momento de formalizar la venta de cartera por medio del contrato de cesión respectivo.
+-Oferta elegible: Corresponde a la oferta que cumpla con las condiciones y requisitos mínimos de participación definidos por el Banco.
+-Operaciones que no hubiere sido posible recuperar por medio del sistema de cobro de cuota litis y cuyo monto del capital adeudado no supere el monto definido por la Dirección de Finanzas: Corresponde a las operaciones cuyo capital adeudado sea igual o inferior al monto dispuesto por la Dirección General de Finanzas y que el Banco intentó recuperar por medio del procedimiento del registro precalificado de cuota litis sin resultados positivos.
+-Operaciones prescritas. Consiste en aquellas operaciones cuyo plazo legal de prescripción se ha cumplido, según criterio administrativo y las normas especiales aplicables para cada tipo de operación.
+-Rango: Parámetro para clasificar las operaciones crediticias con base en determinado monto u otras variables.
+-Saldos al descubierto: Operaciones en cuyo caso, se ha decretado vía judicial un saldo pendiente, una vez ejecutado el proceso de cobro judicial y el proceso de cuota litis.
+-UCJ: Se refiere a la Unidad de Cobro Judicial.
+-Valor nominal: Se refiere al monto de capital de una operación de crédito.
