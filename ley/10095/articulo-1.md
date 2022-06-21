@@ -1,0 +1,9 @@
+N° 10095
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DEROGATORIA DE LA LEY 1707, AUTORIZACIÓN
+A LA MUNICIPALIDAD DE ALVARADO PARA CONTRATAR UN
+EMPRÉSTITO DE 20.000 COLONES CON EL ICE PARA INSTALAR UN
+NUEVO GENERADOR, DE 5 DE DICIEMBRE DE 1953
+ARTÍCULO 1- Se deroga, expresamente, la Ley 1707, Autorización a la Municipalidad de Alvarado para Contratar un Empréstito de 20.000 colones con el ICE para Instalar un Nuevo Generador, de 5 de diciembre de 1953.
