@@ -1,0 +1,1 @@
+Artículo 16. - Ausencia del Administrador General de FANAL. En caso de ausencia del Administrador General de FANAL, le corresponderá al Sub Administrador General de FANAL, y en ausencia de éste, a la Administración Superior del Consejo Nacional de Producción, la emisión de las resoluciones indicadas en el presente capítulo.

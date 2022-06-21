@@ -1,0 +1,2 @@
+Artículo 59. De la modalidad de Venta.
+FANAL vende el alcohol bajo la modalidad "en fábrica" (EXW), por lo que el riesgo, costo, seguro y flete corre por cuenta del comprador. Además, para su retiro debe cumplir con las regulaciones de transporte para materia peligrosa según la legislación vigente. En casos excepcionales FANAL podrá brindar el servicio de transporte con el cobro respectivo, siempre y cuando cuente con los recursos necesarios.

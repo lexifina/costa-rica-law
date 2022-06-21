@@ -1,0 +1,4 @@
+Artículo 77.- Del Plan Comercial y las cuotas de ventas
+El coordinador Departamento de Mercadeo deberá presentar de manera anual al Departamento de Mercadeo un Plan de Acción Comercial de gestiones planificadas en ventas y publicidad que estén destinadas en alcanzar o superar las metas del departamento, en donde define los objetivos, estrategias y los responsables de ejecución.
+Dicho Plan de Acción Comercial debe ser revisado y analizado de manera semestral e informar a la Administración Superior de FANAL.
+Las cuotas de productos serán asignadas por la Administración Superior de FANAL basado en criterios técnicos del Departamento Financiero y Departamento de Mercadeo según las necesidades de la Institución y comportamiento del mercado. Estas cuotas, así como el Plan Comercial, deberán ser tomadas en consideración para plantear el Plan de Incentivos.

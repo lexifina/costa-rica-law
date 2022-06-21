@@ -1,0 +1,4 @@
+Artículo 62.- Del Retiro del Alcohol.
+Los clientes podrán retirar la cuota de alcohol durante el transcurso del año en los horarios establecidos por la Fábrica Nacional de Licores. FANAL tendrá la potestad de asignar dichas cuotas por medio de citas, con el fin de mejor administrar el servicio al cliente, el control de inventarios y la productividad.
+El alcohol autorizado, deberá ser retirado por la persona legalmente responsable o por quien esté debidamente autorizado en el Registro de firmas que consta en la Tesorería del Departamento Financiero de FANAL, quien se identificará con su cédula de identidad original al momento del retiro en la bodega de Despacho de Alcohol a Industrias.
+A efecto de brindar un mejor servicio a los usuarios, así como para evitar derrames, los clientes deberán retirar el alcohol en el menor número posible de recipientes. Asimismo, deberán cumplir con las regulaciones de transporte para materia peligrosa vigente.

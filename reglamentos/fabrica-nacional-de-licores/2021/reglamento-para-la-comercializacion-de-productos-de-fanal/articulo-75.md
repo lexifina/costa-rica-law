@@ -1,0 +1,3 @@
+Artículo 75.- Retorno del producto.
+En caso de determinarse indicios de que el producto exportado ha retornado a Costa Rica, el coordinador de Mercadeo presentará informe a la Comisión de Exportación para que ésta valore y brinde las recomendaciones a la Administración Superior de FANAL de suspensión de ventas al exportador o la continuidad de la relación comercial.
+La Administración podrá acoger la recomendación de la Comisión o motivar las razones por la que toma otra posición. En caso de aplicar el debido proceso ante el cliente, será en conformidad con la Ley General de la Administración Pública, la Ley de Contratación Administrativa y su respectivo reglamento.

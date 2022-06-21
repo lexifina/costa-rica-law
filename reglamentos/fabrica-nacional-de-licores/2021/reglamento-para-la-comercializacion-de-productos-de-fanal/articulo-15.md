@@ -1,0 +1,2 @@
+Artículo 15.- Límites de Créditos aprobados por Junta Directiva en Política Comercial.
+La Junta Directiva del Consejo Nacional de Producción podrá autorizar o aprobar límites máximos de crédito para las personas físicas, jurídicas o canales de comercialización específicos mediante la Política Comercial. En esos supuestos, la Comisión de Crédito únicamente se limitará a la recepción y verificación de los requisitos para el otorgamiento del crédito, establecidos en el del presente reglamento.

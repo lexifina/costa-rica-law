@@ -1,0 +1,8 @@
+Artículo 31. - Responsabilidades de la Sección de Costos
+a) Verificar que se encuentran la totalidad de documentos que fundamentan o amparan el registro contable de las entradas y salidas de producto.
+b) Informar por escrito y dentro del plazo de 2 días hábiles, contados a partir de su conocimiento, al coordinador del Departamento Financiero las faltas en la consignación de los datos aportados en los formularios utilizados en el Departamento de Mercadeo, con el fin de reportarlos al coordinador del Departamento de Mercadeo y al jefe Sección de Ventas.
+c) Para efectos de inventarios teóricos, deberá tomar en cuenta la información emitida en los formularios de las devoluciones de los productos resultantes en las distintas actividades en las cuales FANAL participe.
+d) El resultado de las liquidaciones de inventarios practicados a los funcionarios de Mercadeo, será comunicado por escrito, por el coordinador del Departamento Financiero, al agente de ventas respectivo, supervisor de ventas, jefe Sección de Ventas y al coordinador del Departamento de Mercadeo, a más tardar dentro de los 5 días hábiles siguientes a la liquidación. Para efectos de evaluar las diferencias de inventarios se tomarán los precios de la lista vigente.
+e) Velar porque todos los formularios emitidos por el Departamento Financiero que se utilicen en las liquidaciones de inventarios, estén debidamente numerados y completos con toda la información, así como sus firmas respectivas.
+f) Mantener un archivo de los documentos citados, siguiendo un ordenamiento en su secuencia numérica y cronológica.
+g) Llevar un registro en el cual conste la entrega de los formularios en blanco entregados tanto a los agentes de ventas como de cualquier otro funcionario del Departamento de Mercadeo.

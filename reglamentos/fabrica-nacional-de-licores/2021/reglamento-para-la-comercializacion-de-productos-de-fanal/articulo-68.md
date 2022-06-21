@@ -1,0 +1,2 @@
+Artículo 68. Modificaciones de la razón social.
+En caso de modificaciones a la razón social que tiene autorizada una cuota de alcohol, el cliente debe informar e aportar la documentación registral y contractual que acredite dicha variación, con el fin de que FANAL realice el ajuste en el sistema los datos nuevos de la persona jurídica. En el caso de cambio de nueva razón social, bastará con una declaración jurada con respecto al cumplimiento de los demás requisitos.

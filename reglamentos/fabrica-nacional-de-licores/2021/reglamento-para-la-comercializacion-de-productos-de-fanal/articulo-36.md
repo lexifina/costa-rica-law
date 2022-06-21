@@ -1,0 +1,9 @@
+Artículo 36. Del procedimiento para participar en eventos promocionales, especiales o patrocinios para canal tradicional y moderno.
+Una vez recibida la solicitud de la persona jurídica y los requisitos establecidos en el artículo anterior; la Comisión de Eventos procederá a analizar desde el punto de vista técnico la conveniencia de dicha participación, para lo cual deberá considerarse el costobeneficio.
+De igual forma deberá justificar la cantidad de producto a promocionar para el evento, en caso de aprobación.
+La aprobación o rechazo de la participación de FANAL deberá ser emitida dentro de un plazo máximo de 20 días hábiles, contados a partir del día siguiente a la recepción de la solicitud, la cual será comunicada a la persona jurídica.
+De ser aprobada la solicitud por la Comisión de Eventos, la persona encargada de la Sección de Promoción debe coordinar la participación en el evento con funcionarios del solicitante.
+Se debe asignar un funcionario como responsable de atender el evento.
+Luego de finalizado el evento, el personal asignado contará con un máximo de dos días hábiles para la liquidación de productos, así como la devolución de materiales utilizados.
+La persona responsable de la ejecución in situ de la actividad aprobada, debe completar el "Formulario de Informe de Evento" preestablecido al efecto, donde se informe sobre los resultados del mismo. Dicho Formulario deberá ser presentado dentro del plazo de 3 días hábiles, contados a partir del día siguiente de la celebración del evento.
+El Departamento Administrativo deberá colocar un sticker diferenciador, que asegure el control del producto en promoción y la coordinación del Departamento de Mercadeo deberá llevar el control de inventarios mensuales en Bodega de Producto Terminado y Bodega de Recibo de Envases.

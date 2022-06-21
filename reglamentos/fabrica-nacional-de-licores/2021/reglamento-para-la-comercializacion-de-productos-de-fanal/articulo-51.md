@@ -1,0 +1,3 @@
+Artículo 51.- Del personal especializado para ventas de alcohol.
+FANAL dispondrá de personal especializado encargado de la venta de alcohol a granel, así como del alcohol envasado de acuerdo con las presentaciones existentes.
+El Departamento de Control de Calidad debe realizar una capacitación anual o cuando se dé un cambio sustancial al personal relacionado con la venta y promoción de producto como Unidad de Tesorería, Sección de Ventas, Sección de Promoción y Comunicación, y cualquier otro funcionario que el Departamento de Control de Calidad o Administración Superior de FANAL considere necesario.

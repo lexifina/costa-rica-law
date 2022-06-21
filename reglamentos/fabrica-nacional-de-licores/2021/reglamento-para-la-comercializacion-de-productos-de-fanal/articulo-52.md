@@ -1,0 +1,2 @@
+Artículo 52.- De las ventas de alcohol para concesión.
+En los casos que el alcohol requerido por una persona física o jurídica tenga como fin la elaboración de bebidas alcohólicas deberá cumplir con los lineamientos establecidos en el Reglamento Sobre la Concesión para la Elaboración de Bebidas Alcohólicas de FANAL o aquél que se encuentre vigente al momento de la presentación de la solicitud de concesión.

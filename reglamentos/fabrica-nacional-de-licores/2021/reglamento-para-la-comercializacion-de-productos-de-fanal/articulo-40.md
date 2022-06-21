@@ -1,0 +1,2 @@
+Artículo 40.- De las exhibiciones de producto en oficinas de CNP y FANAL.
+El coordinador Departamento de Mercadeo, la jefatura Sección de Ventas y la Administración Superior de FANAL o aquella dependencia que esta última autorice, podrán mantener en sus oficinas una exhibición parcial o total, en forma provisional o permanente, de los productos de FANAL en sus diferentes presentaciones, esto con la finalidad de darlas a conocer al público visitante.

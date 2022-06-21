@@ -1,0 +1,2 @@
+Artículo 57.- Aprobación total o parcial, o rechazo de la Solicitud de Alcohol.
+La tramitación y estudio de las solicitudes de cuota de alcohol (es) no implica compromiso alguno para el Consejo Nacional de Producción ni para la Fábrica Nacional de Licores, pudiendo conceder la cuota en su totalidad o en forma parcial, o bien denegarla y proceder a su archivo, siempre que se motive el acto administrativo por la parte técnica que genera la aprobación parcial o rechazo, el cual deberá estar dentro del plazo de 10 días hábiles siguientes a la recepción de la solicitud.

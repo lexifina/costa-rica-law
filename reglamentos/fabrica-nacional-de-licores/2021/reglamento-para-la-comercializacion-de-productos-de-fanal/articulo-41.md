@@ -1,0 +1,4 @@
+Artículo 41.- De la asignación de productos para fines de exhibición en eventos.
+Con fines promocionales, FANAL podrá exhibir en los eventos en que participe, los diferentes productos que produce para lo cual la Comisión de Eventos deberá designar por escrito a un funcionario de ese Departamento que se responsabilice de los productos a exhibir; los cuales deberán ser devueltas a FANAL a más tardar 2 días hábiles posteriores a la conclusión del evento.
+En caso de no ser devueltos los productos dentro del plazo indicado, el responsable deberá cancelar el precio de venta vigente de los productos citados, correspondiente al momento de haberse retirado las mismas de las bodegas de FANAL. La coordinación de Mercadeo deberá solicitar al Departamento Financiero realizar las gestiones necesarias para el cobro.
+Adicional, se debe realizar el debido proceso para las sanciones disciplinarias.

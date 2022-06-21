@@ -1,0 +1,4 @@
+Artículo 18.- De la competencia para la aprobación o denegatoria de Solicitud de Crédito.
+La Administración Superior de FANAL aprobará o rechazará las solicitudes de crédito hasta por un límite máximo de 5.000 cajas convertidas, considerando el producto de mayor precio. Podrá otorgar créditos hasta por 30 días naturales de crédito.
+Cantidades superiores a 5.000 cajas convertidas pero menores de 10.000 cajas convertidas, serán aprobadas o rechazadas por la Administración Superior de CNP, con la recomendación de la Administración Superior de FANAL, en cuyo caso podrá otorgar créditos hasta por 45 días naturales de crédito.
+Cantidades superiores a 10.000 cajas convertidas, serán aprobadas o rechazadas por la Junta Directiva del CNP, apoyado en las recomendaciones de la Comisión de Crédito y Administración Superior de FANAL.
