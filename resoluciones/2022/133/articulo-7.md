@@ -1,0 +1,1 @@
+Artículo 7°-Derogaciones. Se deroga la resolución N° 018-2018-DMG de las once horas treinta minutos del cuatro de julio del dos mil dieciocho, publicada en La Gaceta N° 142, del 07 de agosto del 2018.
