@@ -1,0 +1,1 @@
+TRANSITORIO V- Los ingresos provenientes por concepto de patentes se regirán bajo la Ley de Patentes del Cantón de Golfito, hasta que el nuevo cantón de Puerto Jiménez cuente con su propia ley debidamente publicada.

@@ -1,0 +1,6 @@
+ARTÍCULO 2- Definición de límites
+El cantón Puerto Jiménez tendrá la descripción de límites que actualmente tiene, los cuales fueron determinados con fundamento en:
+a) Información geográfica fundamental sobre la División Territorial Administrativa (DTA) de la República de Costa Rica, a la escala 1:5.000, denominada IGF_CR_DTA_5.000, según directriz DIG-001-2017, de 28 de junio de 2017, oficializada por el Instituto Geográfico Nacional, vía publicación en La Gaceta 133, de 13 de julio de 2017.
+b) Decreto Ejecutivo 40962-MJP, de 24 de enero de 2018, publicado en La Gaceta 66, de 17 de abril de 2018, sobre "Actualización del Sistema Geodésico de Referencia Horizontal Oficial para Costa Rica", que establece a CR-SIRGAS como el sistema de referencia horizontal oficial para la República de Costa Rica, y su proyección cartográfica asociada CRTM05.
+c) La cartografía oficial vigente elaborada por el Instituto Geográfico Nacional, a la fecha de promulgación de esta ley, y con las coordenadas en el sistema de proyección cartográfico oficial CRTM05.
+d) Basado en los límites de creación del distrito segundo, Puerto Jiménez del cantón de Golfito, que señala el -Decreto 552 de 10 de junio 1949 (creación del cantón y sus distritos), y el Decreto 724 de 20 de setiembre de 1949 (límites del cantón).
