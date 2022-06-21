@@ -1,0 +1,1 @@
+ARTÍCULO 2- El beneficiario de esta donación no podrá traspasar, vender, redestinar, arrendar o gravar, de ninguna forma, el terreno donado, dado los fines públicos que esta donación persigue en bien de la comunidad de Dulce Nombre. Ante el incumplimiento de esta prohibición, el bien volverá a la Municipalidad de La Unión.
