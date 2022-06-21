@@ -1,0 +1,1 @@
+TRANSITORIO ll- El Registro Nacional gestionará el traslado de los bienes inmuebles al distrito creado, siendo que las fincas inscritas en el distrito actual pasarán a formar parte del distrito 4 0 del cantón 4 0, Jiménez, de la provincia de Cartago.
