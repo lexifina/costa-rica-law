@@ -1,3 +1,0 @@
-2. Alcance
-Este procedimiento regula la actuación del ICE en relación con el otorgamiento de elegibilidades, la selección de proyectos, la verificación del cumplimiento de los requisitos y la firma de contratos de compra de energía para los proyectos de generación eléctrica propuestos por empresas privadas o cooperativas para ser desarrollados al amparo del Capítulo I de la Ley N° 7200, sus reformas y su Reglamento.
-De conformidad con lo dispuesto en el Artículo 1° de la Ley N° 7200, quedan excluidos de este procedimiento los proyectos de generación eléctrica a partir del procesamiento de desechos sólidos municipales, en cuyo caso el ICE podrá contratar directamente si conviene al interés público.
