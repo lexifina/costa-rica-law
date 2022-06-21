@@ -1,0 +1,2 @@
+ARTÍCULO 3- Arreglos de pagos
+Se autoriza a las municipalidades y los concejos municipales de distrito, según corresponda, la posibilidad de ofrecer a sus contribuyentes, durante los cuatro meses posteriores a la publicación de esta ley, arreglos de pago por un plazo hasta de veinticuatro meses, para que los contribuyentes cancelen el principal de sus obligaciones pendientes por concepto de precios públicos, arrendamientos y cánones municipales. Ante ello, se deberán dictar las regulaciones internas que definan las condiciones de dichas facilidades de pago.
