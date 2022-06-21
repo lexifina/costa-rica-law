@@ -56,3 +56,4 @@ Reglamento de la Asamblea Legislativa
 | 41 | 2020-08-04 | Reglamento 35 (2020-08-04) |
 | 42 | 2021-09-02 | Reglamento 44 (2021-09-02) |
 | 43 | 2022-05-25 | Reglamento 16 (2022-05-25) |
+| 44 | 2022-06-21 | Reglamento 31 (2022-06-21) |

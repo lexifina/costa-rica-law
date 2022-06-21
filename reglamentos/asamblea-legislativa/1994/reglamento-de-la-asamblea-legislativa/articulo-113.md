@@ -4,9 +4,13 @@ TITULO I
 PROCEDIMIENTO LEGISLATIVO ORDINARIO
 CAPITULO I
 DE LOS PROYECTOS DE LEY
-Artículo 113- Presentación de proyectos
-Todo proyecto deberá presentarse ante el Departamento de la Secretaría del Directorio, en formato digital abierto y en forma impresa, a espacio y medio, un original y tres copias, procediendo en forma inmediata a asignarle el respectivo número de expediente e incluyéndolo en el sistema informático de divulgación legislativa oficial.
-El original impreso debe estar debidamente firmado por el diputado o diputada que lo inicie o lo acoja, o por la Presidencia de la República y el correspondiente Ministerio de Gobierno, cuando el proyecto sea de iniciativa del Poder Ejecutivo. En caso de discrepancia entre el proyecto impreso y el proyecto digital prevalecerá el impreso.
-Corresponderá al Departamento de Secretaría del Directorio constatar el cumplimiento de los requisitos indicados, caso contrario procederá a su rechazo. Cumplidos los requisitos de presentación indicados en este artículo, la administración deberá enviar los proyectos a publicar, independientemente de que sea periodo de sesiones ordinarias o extraordinarias.
-A este efecto, los proyectos que no estén convocados en periodo de sesiones extraordinarias no ingresarán en el orden del día del órgano legislativo correspondiente, excepto que se dé su convocatoria o inicie el periodo de sesiones ordinarias.
-(Así reformado mediante sesión N° 31 del 4 de marzo del 2019)
+Artículo 113.-Presentación de proyectos
+Todo proyecto de iniciativa de las diputadas y los diputados o del Poder Ejecutivo, según proceda, debe presentarse ante el Departamento de la Secretaría del Directorio, observando los siguientes requisitos:
+1. Documento original impreso o con firma digital.
+2. En ambos casos se deberá aportar el documento en formato digital abierto.
+3. En el caso de la presentación en forma impresa deberá adjuntar una fotocopia del original o un original más.
+En caso de discrepancia entre los originales y el formato digital abierto, prevalecerá el original.
+Corresponderá al Departamento de Secretaría del Directorio constatar el cumplimiento de los requisitos indicados, caso contrario procederá a su rechazo.
+Cumplidos los requisitos de presentación indicados en este artículo, la Administración deberá asignar el respectivo número de expediente y enviar los proyectos a publicar, independientemente de que sea período de sesiones ordinarias o extraordinarias.
+A este efecto, los proyectos que no estén convocados en período de sesiones extraordinarias no ingresarán en el orden del día del órgano legislativo correspondiente, excepto que se dé su convocatoria o inicie el período de sesiones ordinarias.
+(Así reformado mediante sesión N° 31 del 21 de junio de 2022)
