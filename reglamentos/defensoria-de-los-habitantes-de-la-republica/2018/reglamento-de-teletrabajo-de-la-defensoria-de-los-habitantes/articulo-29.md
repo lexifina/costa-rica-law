@@ -1,3 +1,0 @@
-Artículo 29.- Derogatoria y disposiciones transitorias
-A partir de la publicación del presente reglamento se deroga la Directriz de Despacho N° 001-2011 del 25 de abril del 2011 y la Instrucción de Despacho N° 001-2014 del 16 de enero del 2014, que regulaban la modalidad de trabajo denominada encerronas.
-Hasta tanto el Departamento de Recursos Humanos defina los perfiles generales de las personas teletrabajadoras, y la Comisión Institucional de Teletrabajo elabore los productos que le corresponden, continuará rigiendo la Instrucción N° 001-2017 emitida bajo el Acuerdo N° 2044 de fecha 20 de enero de 2017. Cumplidas estas condiciones la citada Instrucción quedará derogada definitivamente.
