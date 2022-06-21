@@ -1,0 +1,1 @@
+ARTÍCULO 3- El terreno mencionado será utilizado únicamente para las actividades propias de la Asociación de Guías y Scouts de Costa Rica, cédula jurídica tres - cero cero siete- cero cuatro cinco tres tres siete (3-007-045337).
