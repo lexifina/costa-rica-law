@@ -1,0 +1,1 @@
+TRANSITORIO III- Hasta que no sean electos los regidores, síndicos, concejales, alcaldía y vicealcaldías, se autoriza a los actuales concejales, alcalde y vicealcaldes del Concejo Municipal de Golfito a tomar las decisiones para continuar administrando los intereses y servicios locales del cantón de Puerto Jiménez.

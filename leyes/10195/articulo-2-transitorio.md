@@ -1,0 +1,1 @@
+TRANSITORIO ll- El Registro Nacional gestionará el traslado de los bienes inmuebles al cantón creado, siendo que las fincas inscritas en el distrito 03 pasarán a formar parte del distrito único del cantón 13, Puerto Jiménez de la Provincia de Puntarenas.

@@ -1,0 +1,4 @@
+TRANSITORIO VIII- En caso de que la ley entre a regir antes del cierre o invariabilidad que plantean los catorce meses previos a la celebración de una elección, Ley 6068, -Ley que Congela la División Territorial- , de 20 de julio de 1 977, el Tribunal Supremo de Elecciones realizará los actos preparatorios y ajustes logísticos necesarios para organizar comicios en el nuevo cantón de Puerto Jiménez, con ocasión de las elecciones municipales a celebrarse el primer domingo de febrero del año 2024; caso contrario, dichos comicios tendrán lugar hasta el siguiente ciclo electoral, siempre y cuando la publicación de la ley en torno a esta creación se realice en acatamiento al plazo señalado por la Ley 6068.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los siete días del mes de marzo del año dos mil veintidós.
+EJECÚTESE Y PUBLÍQUESE

@@ -1,0 +1,1 @@
+TRANSITORIO l- A partir de la instalación de la nueva Municipalidad de Puerto Jiménez, el Registro Nacional deberá gestionar todo lo relacionado con la nueva identidad jurídica y el traslado de los bienes muebles e inmuebles que tenga el distrito de Puerto Jiménez, para que pasen a ser propiedad de la Municipalidad de Puerto Jiménez.
