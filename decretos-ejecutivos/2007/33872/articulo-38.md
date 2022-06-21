@@ -1,1 +1,0 @@
-Artículo 38.—En caso de cancelación del Permiso Sanitario de Funcionamiento, el mismo será nuevamente otorgado en el momento que se demuestre el cumplimiento de las medidas que motivaron la cancelación del mismo, previa verificación, por parte del Ministerio, de que no existen anomalías.

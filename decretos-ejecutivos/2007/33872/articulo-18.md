@@ -1,1 +1,0 @@
-Artículo 18.—Volumen y altura de la nave: El volumen de las salas que ocupan templos o lugares de culto se calculará a razón de dos y medio metros cúbicos (2,50 m³) por asistente como mínimo. La altura libre de las mismas, en ningún punto será menor de tres metros (3,00 m).

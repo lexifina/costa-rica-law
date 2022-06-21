@@ -1,1 +1,0 @@
-Artículo 44.—Las órdenes sanitarias que impongan la realización de mejoras, respetarán el principio de razonabilidad al señalar plazos los cuales guardarán relación con la magnitud del riesgo y las obras a realizar.

@@ -1,1 +1,0 @@
-Artículo 21.—Puertas simuladas y espejos: Se prohíbe que en los lugares destinados a la permanencia o al tránsito del público haya puertas simuladas o espejos de forma tal que hagan ver el local como de mayor amplitud de la que realmente tiene.

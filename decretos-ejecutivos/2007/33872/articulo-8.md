@@ -1,1 +1,0 @@
-Artículo 8º—Los propietarios, representantes, administradores o arrendatarios de templos o locales de culto, deberán velar que las instalaciones se mantengan en buen estado de conservación y evitando que las mismas se conviertan en lugares insalubres, incómodos o peligrosos.

@@ -1,1 +1,0 @@
-Artículo 6º—Los propietarios, representantes, administradores o arrendatarios de estos templos o locales, deberán proporcionarle a los asistentes u ocupantes las condiciones sanitarias, de seguridad y de bienestar general.

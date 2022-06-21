@@ -1,4 +1,0 @@
-Artículo 27.—Servicios Sanitarios:
-a.- Características: Estos establecimientos deberán disponer de áreas de servicios sanitarios, ventilados e iluminados separados por sexo, las cuales dispondrán de las fuentes respectivas de lavado de manos. Estos lugares deben estar construidos con materiales impermeables y contarán con los drenajes respectivos.
-b.- Número: Estos establecimientos deberán disponer de los siguientes servicios sanitarios: Hombres: como mínimo un inodoro, un orinal y lavabo, Mujeres: como mínimo un inodoro y un lavabo.
-c.- Servicios sanitarios para personas con discapacidad: Estos establecimientos deberán disponer de al menos un servicio sanitario para personas con discapacidad, de acuerdo con lo que establece la Ley de Igualdad de Oportunidades para Personas con Discapacidad y su Reglamento.

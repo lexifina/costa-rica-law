@@ -1,1 +1,0 @@
-Artículo 30.—Plan de Atención de Emergencias: De igual forma deben disponer del Plan de Atención de Emergencias diseñado conforme a las guías establecidas por el Ministerio y debidamente implementado.

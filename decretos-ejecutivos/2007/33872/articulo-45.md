@@ -1,1 +1,0 @@
-Artículo 45- La autoridad sanitaria clausurará cualquier edificación o instalación de las aludidas en este Reglamento cuando la misma constituya peligro inminente para la salud pública o el bienestar de sus ocupantes, visitantes, trabajadores o vecinos.
