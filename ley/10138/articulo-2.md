@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Municipalidad de Acosta para que done a la Universidad Estatal a Distancia (UNED), cédula jurídica número cuatro-cero cero cero-cero cuarenta y dos mil ciento cincuenta y uno (N.° 4-000-042151), el bien inmueble desafectado descrito en el artículo anterior.
