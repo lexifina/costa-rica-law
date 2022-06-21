@@ -1,0 +1,2 @@
+ARTÍCULO 5- Excepciones
+No se autoriza la condonación en aquellos casos en que la municipalidad haya denunciado o se encuentre ante una situación denunciable ante el Ministerio Público, por estimar que existen irregularidades que pueden ser constitutivas de los delitos tributarios tipificados en los artículos 92 y 93 de la Ley 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971, y en otros cuerpos de aplicación directa o de manera supletoria.
