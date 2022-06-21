@@ -14,3 +14,4 @@ Reglamento de sesiones y comisiones del Concejo Municipal de Paraíso
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-13 | la propia norma |
+| 2 | 2022-06-21 | Reglamento municipal 172 (2022-06-21) |

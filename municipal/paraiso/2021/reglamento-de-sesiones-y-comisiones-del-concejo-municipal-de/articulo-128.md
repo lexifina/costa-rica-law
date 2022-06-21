@@ -1,0 +1,2 @@
+Artículo 128: De las reformas al presente reglamento. Toda reforma total o parcial a este Reglamento deberá ser presentada por medio de moción, que no podrá ser dispensada del trámite de comisión y deberá seguir el siguiente procedimiento: a) Toda reforma a este reglamento deberá ser aprobado por dos terceras partes de la totalidad de los miembros del Concejo Municipal. b) Una vez aprobada la reforma, se deberá publicar la reforma por una sola vez en el Diario Oficial La Gaceta.
+(Así adicionado en sesión N° 172 del 21 de junio de 2022)
