@@ -1,0 +1,4 @@
+Artículo 22º. Plan de trabajo.
+Los Comités y las Comisiones deben elaborar un plan de trabajo que deberá ser aprobado en diciembre del año anterior a su vigencia.
+Los planes de trabajo corporativos los aprueba la Junta Directiva Nacional y los correspondientes a un Comité de una sociedad su respectiva Junta Directiva.
+Los Comités y Comisiones, tanto Corporativos como los internos del Banco y de cada una de las Sociedades, con el acompañamiento de las áreas de la Administración que correspondan, deberán revisar y verificar que las actividades programadas en sus planes de trabajo se encuentren alineadas con sus funciones y sus responsabilidades, deberán guardar congruencia con las prioridades definidas por la Junta Directiva Nacional, las Juntas Directivas de las Sociedades y las Gerencias. Asimismo, las actividades contenidas en los planes de trabajo de los Comités y Comisiones no deberán incorporar actividades operativas.

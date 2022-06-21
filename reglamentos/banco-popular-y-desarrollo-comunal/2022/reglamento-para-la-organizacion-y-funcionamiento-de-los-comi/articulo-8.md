@@ -1,0 +1,5 @@
+Artículo 8º. Presidencia de los Comités y Comisiones.
+Para los Comités y Comisiones Corporativos, la Presidencia le corresponderá a un miembro director de la Junta Directiva Nacional, no pudiendo recaer el nombramiento en la Presidencia de dicho órgano, con el fin de mantener el balance y el cumplimiento de las labores de esas instancias.
+En el caso de los Comités y Comisiones de las Sociedades, la Presidencia le corresponderá a un miembro director de la respectiva Junta Directiva, no pudiendo recaer el nombramiento en la Presidencia de dicho órgano, con el fin de mantener el balance y el cumplimiento de las labores de esas instancias.
+Cuando se trate de Comisiones internas creadas por el Banco o alguna de las Sociedades, la Presidencia de la Comisión podrá ser ejercida por el Presidente del órgano de dirección siempre y cuando en su integración participe como único miembro de la Junta Directiva.
+La Presidencia de los Comités y Comisiones tanto Corporativos como de las Sociedades se nombra por dos años, pudiendo reelegirse y removerse libremente.

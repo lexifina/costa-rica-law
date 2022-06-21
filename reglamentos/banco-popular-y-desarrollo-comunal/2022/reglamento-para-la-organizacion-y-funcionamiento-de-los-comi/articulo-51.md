@@ -1,0 +1,3 @@
+Sección III. Organización y funcionamiento de las Comisiones.
+Artículo 51º. Fundamento de la Comisión de Pautas y Banca Social.
+La Comisión de Pautas y Banca Social tiene como objetivo planificar acciones relacionadas con los Fondos Especiales, el Fodemipyme, los emprendimientos, la pignoración, el crédito con Bono Familiar de la Vivienda y la Banca de Desarrollo Empresarial, mediante el análisis de temas y la propuesta de acuerdos que faciliten a la Junta Directiva Nacional y a otros órganos del Banco la información, el conocimiento y la toma de decisiones, así como el análisis y seguimiento de las pautas emitidas por la Asamblea de Trabajadores y Trabajadoras.

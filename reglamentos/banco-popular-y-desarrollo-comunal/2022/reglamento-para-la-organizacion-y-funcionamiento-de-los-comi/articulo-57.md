@@ -1,0 +1,3 @@
+Artículo 57º. Prórroga del plazo para las Comisiones Especiales.
+Las Comisiones Especiales a las que se les otorgó plazo podrán solicitar plazo adicional cuando se trate de asuntos en los que, por falta de información, por lo extenso de los documentos o a causa de la complejidad de estos, no resultare posible rendir el informe dentro del plazo otorgado.
+2. Dejar sin efecto Reglamento para la organización y funcionamiento de los comités y comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal aprobado mediante acuerdo JDN-5883-Acd-1020-2021-Art-8 y publicado en el Diario Oficial al Gaceta N°12 del 24 de enero del 2022.

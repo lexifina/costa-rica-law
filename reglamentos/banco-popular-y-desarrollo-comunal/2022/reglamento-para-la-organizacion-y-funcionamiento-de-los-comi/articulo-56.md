@@ -1,0 +1,2 @@
+Artículo 56º. Fundamento de las Comisiones Especiales.
+Cuando un determinado asunto por la complejidad o importancia no pueda ser estudiado y resuelto inmediatamente en sesiones de Junta Directiva Nacional, esta podrá encargarle a una Comisión Especial que se designe expresamente para ello, que rinda dictamen sobre el asunto en cuestión. En el acuerdo de traslado de las comisiones especiales creadas para conocer un asunto concreto, se deberá señalar necesariamente, el término dentro del cual deberá ser presentado el referido informe.
