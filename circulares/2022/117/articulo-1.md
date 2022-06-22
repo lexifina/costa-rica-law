@@ -1,0 +1,11 @@
+CIRCULAR N° 117-2022
+ASUNTO: Fijación de honorarios de curadores procesales en materia laboral.
+A TODOS LOS DESPACHOS QUE TRAMITAN
+MATERIA LABORAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión N° 51- 2022 celebrada el 16 de junio de 2022, artículo LI, a solicitud de la Comisión de la Jurisdicción Laboral, dispuso comunicar lo siguiente:
+I.-Antecedentes: El numeral 421 del Código de Trabajo establece como principios procesales básicos la gratuidad o el costo mínimo. Esa regulación implica que estos principios deben aplicarse por parte de los órganos jurisdiccionales en materia laboral, en el marco de toda disposición procesal que genere gastos de esta naturaleza. Estos principios no están previstos en el Código Procesal Civil, por lo cual, en el marco de la aplicación supletoria o analógica que prevé el artículo 428 del Código de Trabajo, las personas juzgadoras deben ponderar la aplicación siempre de la gratuidad o del costo mínimo frente a las disposiciones procesales de otras legislaciones que se pretenden integrar para la solución de los casos no previstos en la jurisdicción laboral.
+II.-En el campo de fijación de los honorarios para personas curadoras procesales requeridos en los procesos laborales, como consecuencia de los citados principios de gratuidad y costo mínimo, no es posible aplicar en forma total lo dispuesto por el numeral 19.4 del Código Procesal Civil, concretamente en lo que respecta a la fijación de estos, según lo dispuesto por el decreto de honorarios, dado que si bien es cierto la persona curadora procesal tiene derecho a estos, en la materia laboral siempre deben imperar los citados principios. En consecuencia, los emolumentos de los curadores se fijarán conforme a los honorarios mínimos previstos para los procesos laborales que se estipula en el decreto de honorarios del Colegio de Abogados y de Abogadas.
+III.-Consecuentemente, en materia laboral no aplica la circular N° 26 del 25 de febrero del 2020, respecto a los honorarios de curadores procesales.
+De conformidad con la circular N° 67-09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos. Publíquese una sola vez en el Boletín Judicial.
+San José, 22 de junio de 2022.
