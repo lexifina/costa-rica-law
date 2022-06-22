@@ -17,3 +17,4 @@ Reglamento para el Enriquecimiento del Arroz
 | 2 | 2006-01-02 | Decreto Ejecutivo 33124 (2006-01-02) |
 | 3 | 2007-12-04 | Decreto Ejecutivo 34394 (2007-12-04) |
 | 4 | 2016-09-14 | Decreto Ejecutivo 39985 (2016-09-14) |
+| 5 | 2022-06-22 | Decreto Ejecutivo 43588 (2022-06-22) |
