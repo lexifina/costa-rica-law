@@ -1,0 +1,1 @@
+ARTÍCULO 5- Las municipalidades podrán crear convenios con instituciones públicas y privadas u organizaciones sin fines de lucro para la realización de programas de bienestar animal, esterilización y tenencia responsable de animales de compañía.
