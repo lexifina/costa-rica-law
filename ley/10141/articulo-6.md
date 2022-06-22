@@ -1,0 +1,1 @@
+ARTÍCULO 6- Se faculta a las municipalidades para que reciban donaciones por parte de instituciones públicas, privadas y organizaciones sin fines de lucro para cumplir con los fines de esta ley. A su vez, se autoriza a las instituciones públicas para que realicen donaciones para cumplir con los fines de esta ley.
