@@ -1,0 +1,6 @@
+Artículo 34º. Funciones de la Dirección de Capital Humano.
+Son funciones de la Dirección de Capital Humano o su homóloga en las Sociedades las siguientes, pero no limitadas a estas:
+a. Realizar los ajustes dispuestos por el Comité de Valores del Conglomerado en lo relativo a procesos y procedimientos de reclutamiento, selección, retención, formación, evaluación y crecimiento del personal, para lograr la integración de la ética en los sistemas de gestión institucional.
+b. Aplicar las campañas y estrategias de comunicación necesarias para fortalecer la cultura de ética y valores conforme lo defina el Comité de Valores del Conglomerado Financiero.
+c. Revisar, al menos una vez al año, este Código y remitir sus propuestas de modificación al Comité de Valores del Conglomerado Financiero, a la Comisión Técnica de Asuntos Jurídicos y al Comité Corporativo de Cumplimiento del Conglomerado Financiero, en el orden indicado, para su posterior remisión a la Junta Directiva Nacional.
+d. Definir una metodología de evaluación sobre el cumplimiento de las disposiciones establecidas en este Código, e informar durante el primer trimestre de cada año el resultado al Comité de Valores del Conglomerado Financiero y a la Junta Directiva respectiva.

@@ -1,0 +1,7 @@
+Artículo 14º. Normas de conducta asociadas con la participación en el mercado financiero.
+A continuación, se establecen las normas de conducta que deberán seguir las personas sujetas a este Código de Conducta, según corresponda, frente a situaciones específicas relacionadas con la participación en el mercado financiero:
+a. Actuar con profesionalismo y mantener la observancia de la debida diligencia en la recepción y en la ejecución de los requerimientos de la clientela, de conformidad con lo establecido en la Ley 7786, sus reformas, reglamentación conexa y en las normativas internacionales (FATCA y CRS).
+b. Cumplir con el deber de obtener y suministrar a la clientela, de manera clara y oportuna, toda la información relevante para la realización de transacciones, así como suministrar la documentación de los negocios realizados.
+c. Contar con disposiciones que orienten a los colaboradores a mitigar las condiciones adversas que puedan potenciar la materialización de los riesgos inherentes al negocio.
+d. Fomentar la conducción de los negocios bajo los preceptos de lealtad, transparencia, precisión, probidad, seriedad y cumplimiento, buscando el mejor interés de la clientela.
+e. Priorizar el fomento del desarrollo nacional a través de la inclusión financiera de todas las regiones geográficas y de la población trabajadora del país, mediante el apoyo, el patrocinio y financiación de proyectos.

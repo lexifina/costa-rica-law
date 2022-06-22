@@ -1,0 +1,2 @@
+Artículo 24º. Conductas inapropiadas asociadas con bebidas alcohólicas y sustancias nocivas.
+Las personas sujetas a este Código, según corresponda, no deberán consumir, promocionar, vender o comprar bebidas alcohólicas y/o sustancias nocivas durante la jornada laboral o cuando se hace uso del uniforme o cualquier otro distintivo de la Institución (tarjeta de identificación, de presentación u otro), a fin de no incurrir en actos que puedan afectar la imagen del Conglomerado Financiero.

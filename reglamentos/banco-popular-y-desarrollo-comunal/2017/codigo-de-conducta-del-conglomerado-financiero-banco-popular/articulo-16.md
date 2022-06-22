@@ -1,0 +1,9 @@
+Artículo 16º. Normas de conducta asociadas con los proveedores del Conglomerado Financiero.
+A continuación, se establecen las normas de conducta que deberán seguir las personas sujetas a este Código de Conducta, según corresponda, frente a situaciones relacionadas con los proveedores del Conglomerado Financiero:
+a. Se debe difundir, promover y fomentar, entre los Grupos de Interés, la aplicación de las disposiciones del Conglomerado Financiero en aspectos de ética, derechos humanos, igualdad y equidad de género, y medio ambiente.
+b. Como parte de las condiciones del proceso de contratación administrativa, se debe incorporar el compromiso que tendrán todos los proveedores, sin excepción alguna, con el acatamiento de las disposiciones en aspectos de ética, derechos humanos, igualdad y equidad de género, y medio ambiente.
+c. Se deben incorporar cláusulas que posibiliten finalizar el contrato y las relaciones comerciales con aquellos proveedores que de forma fehaciente infrinjan lo estipulado en el presente Código y lo dispuesto en las políticas internas de tercerización, derechos humanos y laborales, igualdad y equidad de género, y medio ambiente, todo sin perjuicio de las demás cláusulas que sobre la finalización de esos contratos se consideren necesarias.
+d. Se debe establecer procesos de resolución basados en criterios justos, éticos y ambientalmente responsables.
+e. Los procesos de contratación deberán ser gestionados mediante prácticas justas, transparentes y legales de operación, de acuerdo con la normativa vigente.
+f. En todo momento, se deberá rechazar sobornos, regalos o equivalentes que pretendan influir en los procesos de contratación.
+g. Los órganos competentes en cada entidad del Conglomerado Financiero deberán implementar mecanismos de control que permitan poner de manifiesto posibles incumplimientos de la ética, derechos humanos y laborales, igualdad y equidad de género, y medio ambiente, por parte de los proveedores.

@@ -1,8 +1,6 @@
-SECCIÓN VIII
-Sanciones
-Artículo 11.—Sanciones
-Sin perjuicio de lo que estipulen normas de mayor rango, las sanciones por el incumplimiento a las obligaciones establecidas en este Código serán, sin perjuicio de la responsabilidad civil y penal que pueda caber:
-a) Amonestación verbal.
-b) Apercibimiento por escrito.
-c) Suspensión del cargo, sin goce de salario o dieta, hasta por 30 días hábiles.
-d) Cese en el cargo, y en el caso de un trabajador o trabajadora, despido sin responsabilidad patronal.
+Artículo 11º. Normas de conducta asociadas con el cuidado de los activos, el tiempo y la información.
+A continuación, se establecen las normas de conducta que deberán seguir las personas sujetas a este Código de Conducta, según corresponda, frente a situaciones específicas relacionadas con el cuidado de los activos, el tiempo y la información:
+a. Buscar de manera perseverante, económica y creativa una planificación, control y ejecución del trabajo que responda al más elevado espíritu de servicio y al logro de la misión, visión, objetivos y propósito estratégico.
+b. No se debe divulgar información personal o laboral de personas colaboradoras y grupos de interés sin la autorización de la persona competente para ello en la respectiva entidad.
+c. Se deben utilizar adecuadamente los activos, el tiempo y los activos de información para el ejercicio de las funciones asignadas en el Conglomerado Financiero que se refieren a la gestión de asesoramiento financiero de forma competente y de ningún modo, serán utilizados en actividades comerciales de índole personal o en beneficio propio o de las personas físicas y jurídicas indicadas en la definición de Conflictos de Interés de este Código.
+d. Se deben aplicar los mecanismos de control definidos para el acceso, resguardo, custodia, divulgación, archivo y eliminación de la información física y electrónica de uso interno o confidencial, durante y después de los horarios de trabajo y mantener los activos de soporte a la información bajo el debido cuidado.

@@ -17,3 +17,4 @@ Código de Conducta del Conglomerado Financiero Banco Popular y de Desarrollo Co
 | 2 | 2019-12-18 | Reglamento 5698 (2019-12-18) |
 | 3 | 2020-04-13 | Reglamento 5724 (2020-04-13) |
 | 4 | 2020-12-07 | Reglamento 5789 (2020-12-07) |
+| 5 | 2022-06-22 | Reglamento 5929 (2022-06-22) |

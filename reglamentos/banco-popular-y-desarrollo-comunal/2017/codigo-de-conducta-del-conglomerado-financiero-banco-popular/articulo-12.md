@@ -1,6 +1,2 @@
-SECCIÓN IX
-Interpretaciones
-Artículo 12.—Interpretaciones y aclaraciones
-Las dudas, limitaciones, omisiones o contradicciones que obstaculicen el cumplimiento de lo establecido en el presente Código o que puedan generar diferencias con respecto al marco legal o normas relacionadas, deberán ser canalizadas por escrito y con sustento razonable ante la dependencia de Capital Humano respectiva, la cual las elevará para resolución al Comité de Valores del Conglomerado.
-De igual manera, le corresponderá a la dependencia de Capital Humano respectiva recabar las oportunidades de mejora para el Código y canalizarlas ante la Comisión de Valores Corporativa.
-(Ref.: Acuerdo CC-BP-19-Acd-160-2020-Art-4).
+Artículo 12º. Normas de conducta asociadas con regalos o equivalentes.
+De conformidad con la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento, así como las demás disposiciones aplicables, no se podrá solicitar ni recibir, directa o indirectamente, ningún tipo de beneficio, comisión, regalo, dádiva, invitación, o recompensa por servicios prestados o adquisiciones de bienes y servicios por el Conglomerado Financiero que proceda de cualquier persona.
