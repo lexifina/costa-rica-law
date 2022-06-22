@@ -13,3 +13,4 @@ Sobre el aval del Consejo Superior para autorizar al personal judicial que tenga
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-06 | la propia norma |
+| 2 | 2022-06-22 | Circular 116 (2022-06-22) |
