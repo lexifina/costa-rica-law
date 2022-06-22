@@ -1,0 +1,1 @@
+Artículo 26. -La notificación practicada por cualquiera de los medios señalados comprenderá la identificación del órgano que ejerce la actividad, el objeto de la misma, fundamento legal, los nombres, apellidos de las partes, lugar, fecha y hora donde se entrega la misma.

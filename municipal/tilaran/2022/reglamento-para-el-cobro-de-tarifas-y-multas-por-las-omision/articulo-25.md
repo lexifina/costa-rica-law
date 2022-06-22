@@ -1,0 +1,1 @@
+Artículo 25.- El notificador estará investido de autoridad para exigir la identificación debida de quien recibe la intimación, así como solicitar ayuda de otras autoridades si la necesitare a fin de cumplir con su cometido.
