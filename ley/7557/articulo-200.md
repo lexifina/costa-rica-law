@@ -1,2 +1,7 @@
-Artículo 200.—Remisión del recurso. Presentado el recurso de apelación y denegado total o parcialmente el recurso de reconsideración, en su caso, la aduana competente se limitará a remitirlo al Tribunal Aduanero Nacional, junto con el expediente administrativo, dentro de los siguientes tres días hábiles, por el medio más rápido que tenga a disposición, y emplazará a la parte para que en los diez días hábiles siguientes, contados a partir de la fecha de notificación, reitere o amplíe los argumentos de su pretensión ante el Tribunal Aduanero Nacional.
-(Así reformado por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
+Artículo 200. Formalidades del recurso. El recurso deberá contener al menos, lo siguiente:
+a) Designación de la autoridad, funcionario o dependencia a que se dirija;
+b) nombres, apellidos, calidades o generales de ley del recurrente; cuando no actúe en nombre propio debe además acreditar su representación;
+c) identificación de la resolución o acto recurrido y las razones en que se fundamenta la inconformidad con este, haciendo relación circunstanciada de los hechos y de las disposiciones legales en que sustenta su petición;
+d) petición que se formula; y
+e) fecha y firma.
+(Así reformado por el artículo 2° numeral 26) de la ley N° 10271 del 22 de junio del 2022)

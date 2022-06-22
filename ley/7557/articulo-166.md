@@ -11,3 +11,5 @@ h) Científicas: Las que sirven de apoyo tecnológico o complemento de investiga
 i) Estatales: Las que el Estado importe temporalmente para el cumplimiento de sus fines.
 j) Aeronaves arrendadas a plazo o con opción de compra, destinadas a servicios aéreos, de empresas que cuenten con un certificado de explotación otorgado por la autoridad aeronáutica costarricense, de conformidad con lo establecido en el artículo 222 de la Ley General de Aviación Civil, Nº 5150, de 14 de mayo de 1973, y sus reformas.
 (Así adicionado el inciso anterior por el artículo 5° de la ley N° 8419 del 28 de junio de 2004)
+k) Otras establecidas mediante reglamento.
+(Así adicionado el inciso anterior por el artículo 1° numeral 11) de la ley N° 10271 del 22 de junio del 2022)

@@ -1,4 +1,5 @@
-Artículo 231 bis.- Elemento subjetivo en las infracciones administrativas y tributarias aduaneras
-Las infracciones administrativas y tributarias aduaneras son sancionables, incluso a título de mera negligencia en la atención del deber de cuidado que ha de observarse en el cumplimiento de las obligaciones y los deberes tributarios aduaneros.
-Cuando un hecho configure más de una infracción, debe aplicarse la sanción más severa.
+Artículo 231 bis.- Elemento subjetivo en las infracciones administrativas y tributarias aduaneras. Las infracciones administrativas y tributarias aduaneras son sancionables, incluso a título de mera negligencia, en la atención del deber de cuidado que ha de observarse en el cumplimiento de las obligaciones y los deberes tributarios aduaneros.
+Cuando un hecho configure más de una infracción debe aplicarse la sanción más severa.
+Las personas jurídicas, distintas de los auxiliares de la función pública aduanera, serán responsables en el tanto se compruebe que, dentro de su organización interna, se ha faltado al deber de cuidado, sin necesidad de determinar las responsabilidades personales concretas de sus administradores, directores, albaceas, curadores, fiduciarios, empleados y demás personas físicas involucradas y sin perjuicio de ellas.
 (Así adicionado por el artículo 5° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria")
+(Así reformado por el artículo 2° numeral 37) de la ley N° 10271 del 22 de junio del 2022)

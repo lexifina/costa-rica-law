@@ -1,2 +1,2 @@
-Artículo 36.—Solidaridad. Ante el Fisco, el agente aduanero será solidariamente responsable con el declarante, por el pago de las obligaciones tributarias aduaneras derivadas de los trámites, los regímenes o las operaciones en que intervenga, así como por el pago de las diferencias, los intereses, las multas, los recargos y los ajustes correspondientes.
-(Así reformado por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
+Artículo 36.- Solidaridad. Ante el Fisco, el importador es responsable por el pago de las obligaciones tributarias aduaneras derivadas de los trámites, los regímenes en que intervenga, así como por el pago de las diferencias, los intereses, los recargos y los ajustes correspondientes; en los mismos términos, el agente aduanero es solidariamente responsable con el importador.
+(Así reformado por el artículo 2° numeral 5) de la ley N° 10271 del 22 de junio del 2022)

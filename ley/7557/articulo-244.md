@@ -1,2 +1,1 @@
-ARTICULO 244.- Creación
-Créase el Órgano nacional de valoración y verificación aduanera, dentro de la estructura administrativa del Servicio Nacional de Aduanas. Será el encargado de verificar, controlar, investigar, recuperar y recopilar la información, y de los demás asuntos relacionados con la valoración aduanera de las mercancías.
+ARTICULO 244.- Creación (Derogado por el artículo 3° de la ley N° 10271 del 22 de junio del 2022)

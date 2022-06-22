@@ -1,5 +1,7 @@
 CAPITULO VI
 APLICACION DE SISTEMAS INFORMATICOS
-Artículo 103.—Informatización de los procedimientos. Cuando la Dirección General de Aduanas lo determine, mediante resolución de carácter general, y le asigne la clave de acceso confidencial y el código de usuario correspondiente o su certificado digital, mediante un prestador de servicios de certificación, el auxiliar de la función pública aduanera deberá realizar los actos correspondientes conforme a esta Ley y sus Reglamentos, empleando el sistema informático según los formatos y las condiciones autorizados.
-Las firmas autógrafas que la Dirección General de Aduanas requiera podrán ser sustituidas por contraseñas o signos adecuados, como la firma electrónica, para la sustanciación de las actuaciones administrativas que se realicen por medios informáticos.
-(Así reformado por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
+Artículo 103.- Uso de medios electrónicos o digitales. Los auxiliares de la función pública aduanera y los demás usuarios que intervengan ante el Servicio Nacional de Aduanas deberán utilizar los medios electrónicos establecidos por la Dirección General de Aduanas, para la transmisión o realización de los actos, las gestiones, las operaciones o los regímenes aduaneros en que participen.
+Los funcionarios aduaneros, auxiliares, declarantes y demás personas autorizadas que utilicen las tecnologías de información y comunicación, ante el Servicio Aduanero, deberán acatar las medidas de seguridad establecidas, incluyendo las relativas al uso de firmas electrónicas o digitales, o las tecnologías similares o equivalentes.
+Lo anterior no dispensa, en ningún caso, el cumplimiento de los requisitos y las formalidades que la ley exija para cada acto o negocio jurídico en particular.
+Cualquier alusión a un documento o comunicación, se entenderá de igual manera tanto los electrónicos o digitales como los físicos.
+(Así reformado por el artículo 2° numeral 19) de la ley N° 10271 del 22 de junio del 2022)
