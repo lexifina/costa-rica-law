@@ -1,0 +1,1 @@
+Artículo 6º-Interinatos, suplencias y recargos. Aquellos funcionarios que de manera interina o transitoria ocupen cualquiera de los cargos mencionados en el artículo cuatro, deberán caucionar cuando su nombramiento sea igual o superior de un mes, lo cual deberá cumplir en el plazo de diez días hábiles.

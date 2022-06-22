@@ -1,0 +1,1 @@
+Artículo 2º-Forma de rendir la caución. La póliza de fidelidad que debe rendir la persona funcionaria obligada se hará a través de una aseguradora regulada por el Estado Costarricense, cubriéndose el importe respectivo por ellos mismos con su propio peculio. Esta póliza se emitirá a favor de la Municipalidad de Tarrazú.

@@ -1,0 +1,7 @@
+Artículo 9º-De la labor de supervisión de la póliza de fidelidad. Corresponderá al Departamento de Recursos Humanos de la Municipalidad de Tarrazú, llevar un control y supervisar que todas las personas funcionarias obligadas a rendir la garantía. Para estos efectos deberá cumplir con las siguientes funciones:
+a) Supervisar que, una vez aprobado este Reglamento, la rendición de la garantía se realice dentro de los quince días naturales siguientes de asumido el cargo, dejando una copia de los mismos en el expediente personal de cada funcionario para que de esa forma la Auditoría y cualquier otra instancia que lo requiera, pueda verificar que las pólizas se encuentran vigentes.
+b) Llevar un control del número de póliza y el vencimiento de estas, para cada funcionario(a) obligado(a).
+c) Velar por que los funcionarios que deben rendir la póliza de fidelidad cumplan con su obligación, según el presente Reglamento.
+d) Solicitar cuando proceda, a la Comercializadora de Seguros, que realice los trámites correspondientes para que el ente asegurador cubra los daños y perjuicios ocasionados por el funcionario(a) o cancelarla cuando el funcionario cese en la institución.
+e) Recordar por documento escrito o medio electrónico al caucionante, con un mínimo de veinte días hábiles de anticipación, cuando deba renovar o actualizar la caución. La ausencia de recordatorio no exime al caucionante de su deber de renovación de la caución.
+f) Otras que le asigne el presente reglamento.
