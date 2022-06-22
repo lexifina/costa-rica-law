@@ -1,2 +1,2 @@
-Artículo 2°.- Aplicación individualizada de la regla fiscal. La aplicación de la regla es individualizada al gasto corriente o total, incorporado en los presupuestos de cada uno de los entes que conforman el SPNF. Para el caso del Presupuesto Nacional de la República, este se considera de manera agregada.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42745 del 19 de noviembre del 2020)
+Artículo 2º-Aplicación individualizada de la regla fiscal. La aplicación de la regla es individualizada al gasto corriente o total, incorporado en los presupuestos de cada uno de los entes que conforman el SPNF. Para el caso del Presupuesto Nacional de la República, este se considera de manera agregada incluyendo lo correspondiente a las Juntas de Educación y Juntas Administrativas de las Instituciones Educativas y a las Municipalidades y Concejos municipales de distrito.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43589 del 22 de junio de 2022)
