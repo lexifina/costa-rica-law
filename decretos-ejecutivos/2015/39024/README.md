@@ -14,3 +14,4 @@ Reglamento para implementar la modalidad de teletrabajo en el Ministerio de Segu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-19 | la propia norma |
+| 2 | 2022-06-22 | Decreto Ejecutivo 43745 (2022-06-22) |
