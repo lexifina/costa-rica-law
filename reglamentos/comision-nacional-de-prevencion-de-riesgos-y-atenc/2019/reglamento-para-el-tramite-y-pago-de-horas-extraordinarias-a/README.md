@@ -14,3 +14,4 @@ Reglamento para el trámite y pago de horas extraordinarias a los funcionarios d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-06 | la propia norma |
+| 2 | 2022-06-23 | Reglamento 7 (2022-06-23) |
