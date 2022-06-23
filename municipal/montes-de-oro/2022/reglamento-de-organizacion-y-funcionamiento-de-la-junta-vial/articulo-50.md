@@ -1,0 +1,1 @@
+Artículo 50.-El incumplimiento de lo anterior conlleva a que los votos emitidos por sus delegados no podrán ser contabilizados, en tutela de los principios de seguridad jurídica, legalidad e igualdad.

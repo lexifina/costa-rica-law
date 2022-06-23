@@ -1,0 +1,1 @@
+Artículo 2º-La JVC es un órgano público juramentado por el Concejo Municipal, ante quien responde por su gestión, la cual será de consulta obligatoria en materia de planificación y evaluación de la obra pública vial cantonal y de servicio vial municipal, indistintamente de la procedencia u origen de los recursos destinados a esos efectos.
