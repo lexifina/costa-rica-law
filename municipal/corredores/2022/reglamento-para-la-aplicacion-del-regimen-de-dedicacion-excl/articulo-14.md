@@ -1,0 +1,1 @@
+Artículo 14.-Compensación por Dedicación Exclusiva. Como compensación por concepto de Dedicación Exclusiva la Municipalidad reconocerá sobre el salario base del servidor los siguientes porcentajes: a) un diez por ciento (10%) por el grado académico de bachiller universitario; b) un veinticinco por ciento (25%) por el grado académico de licenciatura.

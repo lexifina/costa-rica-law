@@ -1,0 +1,1 @@
+Artículo 3º-Compensación. Se entenderá por compensación el porcentaje adicional sobre el salario base que reconozca la Municipalidad a los trabajadores cubiertos por la dedicación exclusiva y prohibición.

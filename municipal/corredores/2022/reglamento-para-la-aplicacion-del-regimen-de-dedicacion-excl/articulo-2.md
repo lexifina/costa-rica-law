@@ -1,0 +1,1 @@
+Artículo 2º-Prohibición. Se entenderá por prohibición aquella inhibición legal del ejercicio liberal de una profesión inherente al puesto que ocupe, para efectos del presente Reglamento, un servidor municipal.

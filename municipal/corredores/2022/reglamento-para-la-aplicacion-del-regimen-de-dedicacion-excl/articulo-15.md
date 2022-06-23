@@ -1,0 +1,1 @@
+Artículo 15.-Compensación por Prohibición. Como compensación por concepto Prohibición la Municipalidad reconocerá sobre el salario base del servidor los siguientes porcentajes: a) un quince por ciento (15%) por el grado académico de bachiller universitario; b) un treinta por ciento (30%) por el grado académico de licenciatura.

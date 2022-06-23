@@ -1,0 +1,1 @@
+Artículo 24.-Derogatoria. Este reglamento deroga el Reglamento para la aplicación del Régimen de Dedicación Exclusiva y Prohibición en la Municipalidad de Corredores, publicado en el Diario Oficial La Gaceta N° 213 del 04 de noviembre de 2021 y cualquier disposición anterior que lo contravenga.

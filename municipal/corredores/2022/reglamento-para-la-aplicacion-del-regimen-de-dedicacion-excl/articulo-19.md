@@ -1,0 +1,1 @@
+Artículo 19.-Incumplimiento del contrato. El incumplimiento del trabajador dará lugar a la resolución del contrato. Esto a través de los procedimientos legales pertinentes y considerando las eventuales consecuencias civiles.

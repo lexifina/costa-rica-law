@@ -1,0 +1,1 @@
+Artículo 7º-Alcance. La compensación por dedicación exclusiva no constituirá un beneficio permanente ni un derecho adquirido, en tanto estará supeditado a la vigencia contractual. La compensación por prohibición no constituirá un derecho adquirido, en tanto estará supeditado a la ocupación del puesto por parte del trabajador.
