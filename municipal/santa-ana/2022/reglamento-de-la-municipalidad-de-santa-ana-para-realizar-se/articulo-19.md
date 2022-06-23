@@ -1,0 +1,1 @@
+Artículo 19.-De la votación: Los regidores propietarios activaran el icono de la mano para emitir el voto. Previo a la votación, tanto la presidencia como la secretaría deben comprobar que no hay iconos de mano activados.

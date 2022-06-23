@@ -1,0 +1,1 @@
+Artículo 18.-Orden de la palabra: La presidencia concederá la palabra en el orden en que se van activando los iconos de la mano, garantizando el derecho a intervenir, debatir y accionar en condiciones de igualdad.

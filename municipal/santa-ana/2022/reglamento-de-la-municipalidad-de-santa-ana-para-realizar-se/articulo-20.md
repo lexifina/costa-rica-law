@@ -1,0 +1,1 @@
+Artículo 20.-Medios alternativos: La presidencia podrá permitir la manifestación verbal o que se levante la mano frente a la cámara, en el caso de que a algún participante se le dificulte activar el ícono de la mano.

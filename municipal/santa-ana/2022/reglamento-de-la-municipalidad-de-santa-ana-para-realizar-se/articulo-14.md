@@ -1,0 +1,1 @@
+Artículo 14.-Lapso de ingreso: La presidencia iniciara la sesión virtual dentro de los primeros 15 minutos después de la hora convocada. Aquellas personas miembros del Concejo que no ingresen en ese lapso perderán el derecho a la dieta de esa sesión, de conformidad con el párrafo quinto del artículo 30 del Código Municipal.

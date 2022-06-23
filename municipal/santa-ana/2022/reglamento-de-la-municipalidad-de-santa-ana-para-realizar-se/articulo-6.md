@@ -1,0 +1,1 @@
+Artículo 6º-Transmisión en directo: Las sesiones virtuales ordinarias y extraordinarias del Concejo Municipal serán trasmitidas en directo en las redes sociales de la Municipalidad en las plataformas de Facebook Live, YouTube y cualquier otra que se disponga en el futuro, para que las personas interesadas puedan conocer las deliberaciones y los acuerdos.

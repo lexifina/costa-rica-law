@@ -1,0 +1,1 @@
+Artículo 12.-Cámaras y micrófonos: Las cámaras de los miembros del Concejo Municipal deben permanecer encendidas a lo largo de la sesión virtual y sus rostros deben apreciarse con claridad para comprobar su presencia y su identidad. En cambio; los micrófonos deben ser activados solamente cuando se vaya a hacer uso de la palabra.

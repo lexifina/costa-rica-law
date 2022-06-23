@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El Concejo Municipal y sus comisiones podrán sesionar de forma virtual, siempre que haya interacción integral, multidireccional y en tiempo real entre los participantes.

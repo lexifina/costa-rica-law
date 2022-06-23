@@ -1,0 +1,1 @@
+Artículo 11.-Capacidad y velocidad de Internet: Cada miembro del Concejo Municipal debe asegurarse que cuenta con la capacidad y velocidad debida de la banda de conexión de Internet para participar de la sesión virtual.

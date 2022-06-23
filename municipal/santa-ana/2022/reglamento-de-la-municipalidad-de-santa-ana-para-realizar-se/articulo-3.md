@@ -1,0 +1,1 @@
+Artículo 3º-Circunstancias especiales en que aplica la virtualidad: Si no se dieran las circunstancias especiales descritas en el artículo 37 bis del Código Municipal, las sesiones del Concejo Municipal deberán ser presenciales, puesto que este es el medio normal de funcionamiento del órgano colegiado.
