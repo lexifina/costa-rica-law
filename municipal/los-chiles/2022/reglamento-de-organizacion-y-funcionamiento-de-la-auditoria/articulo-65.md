@@ -1,0 +1,3 @@
+CAPITULO IV
+Disposiciones Finales
+Artículo 65.---De las responsabilidades y sanciones. El incumplimiento injustificado de las regulaciones contenidas en el presente Reglamento será causal de responsabilidad administrativa para el Auditor Interno, Subauditor Interno y para los funcionarios de la Auditoría Interna, el Concejo Municipal, el Alcalde, titulares subordinados y demás funcionarios de la Municipalidad de Los Chiles, de conformidad con lo establecido en la Ley General de Control Interno N°8292 y Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N°8422 y su reglamento. La determinación de la responsabilidad y aplicación de las sanciones administrativas corresponde al órgano competente y se regirá por la normativa establecida al efecto.

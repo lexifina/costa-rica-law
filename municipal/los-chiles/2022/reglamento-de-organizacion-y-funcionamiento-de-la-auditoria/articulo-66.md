@@ -1,0 +1,1 @@
+Artículo 66.---Derogatoria. Deróguese el documento publicado en el diario oficial La Gaceta N°94 de fecha 16 de mayo del 2008, Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad de Los Chiles.

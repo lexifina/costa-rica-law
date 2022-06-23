@@ -1,0 +1,4 @@
+SECCION V
+Trámite de Denuncias
+Artículo 56.---Ámbito de competencia. La Auditoría Interna dará trámite a las denuncias que presenten funcionarios o particulares en materia de su competencia, de conformidad con lo establecido en el Reglamento a la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley N°8422, contra funcionarios o exfuncionarios de la Municipalidad de Los Chiles y particulares, cuando se refieran a posibles hechos irregulares, en relación con el uso y manejo de fondos del patrimonio institucional.
+Lo contemplado en el párrafo anterior no exime a la Administración Activa de recibir, tramitar e investigar denuncias que presenten funcionarios o particulares, ante las diferentes instancias responsables, por actuaciones o situaciones irregulares que se conozcan, sean de funcionarios, exfuncionarios y particulares.
