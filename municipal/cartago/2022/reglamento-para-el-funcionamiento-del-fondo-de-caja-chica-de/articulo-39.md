@@ -1,0 +1,1 @@
+Artículo 39.-Aplicación de sanciones. Las sanciones que correspondan según lo dispuesto en el artículo anterior, serán aplicadas por el titular de la Alcaldía Municipal de acuerdo con el procedimiento establecido en el artículo 150 del Código Municipal.

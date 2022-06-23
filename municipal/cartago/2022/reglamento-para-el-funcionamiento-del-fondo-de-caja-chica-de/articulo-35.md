@@ -1,0 +1,1 @@
+Artículo 35.-Fraccionamiento. Queda prohibido realizar fraccionamiento en las compras de caja chica con el propósito específico de evadir el procedimiento concursal que correspondería observar de acuerdo a la normativa vigente.

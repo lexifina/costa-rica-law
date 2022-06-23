@@ -1,0 +1,1 @@
+Artículo 24.-Formalización de la Liquidación. La liquidación del vale quedará formalizada, cuando el Encargado de Caja Chica, revisa todos los requisitos establecidos en el artículo 23º del presente reglamento y solicita al comprador y/o usuario del fondo, la firma del formulario de la liquidación como recibo conforme.

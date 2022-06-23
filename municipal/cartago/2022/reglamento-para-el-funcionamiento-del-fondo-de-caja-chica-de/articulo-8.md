@@ -1,0 +1,1 @@
+Artículo 8°-Responsable. El responsable del Fondo Fijo de Caja Chica de la Municipalidad de Cartago, será el Tesorero Municipal, quien delegará bajo su supervisión, el cumplimiento de las funciones atinentes a este reglamento al Encargado de Caja Chica.

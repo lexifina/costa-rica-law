@@ -1,0 +1,1 @@
+Artículo 28.-Formulario de trámite. Para realizar un reintegro al Fondo Fijo de Caja Chica, este se realizará mediante una nómina de pago, la cual es el documento oficial de aprobación de todo pago que realiza el municipio, en el cual se detallará cada una de las facturas con su respectivo detalle presupuestario que dieron origen al egreso por medio de caja chica.

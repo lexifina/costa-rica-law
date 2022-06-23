@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. El presente reglamento establece las disposiciones generales que regulan la asignación, operación y el control del Fondo Fijo de Caja Chica en la Municipalidad de Cartago.

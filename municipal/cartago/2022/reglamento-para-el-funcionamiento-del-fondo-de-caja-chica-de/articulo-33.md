@@ -1,0 +1,1 @@
+Artículo 33.-Uso personal. El Fondo Fijo de Caja Chica, no podrá ser utilizado para el cambio de cheques personales, ni disponerse para actuaciones distintas a las autorizadas y establecidas en el presente reglamento.

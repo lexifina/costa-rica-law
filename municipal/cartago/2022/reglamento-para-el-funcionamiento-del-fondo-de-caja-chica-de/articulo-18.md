@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la Liquidación
+Artículo 18.-Tiempo para liquidar. Los vales de Caja Chica deberán ser liquidados a más tardar en un periodo de veinticuatro horas naturales siguientes a su entrega, salvo en aquellos casos en donde por razones de algún error en la documentación, caso fortuito o fuerza mayor, el funcionario que lo retira no pueda hacerlo en el plazo establecido, cuando esto suceda, deberá justificar y documentar la razón del mismo y se le brindará un plazo adicional de veinticuatro horas naturales para subsanar el inconveniente, caso contrario, deberá reintegrar los recursos solicitados.
