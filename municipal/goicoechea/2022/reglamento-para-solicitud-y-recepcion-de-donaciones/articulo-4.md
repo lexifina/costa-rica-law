@@ -1,0 +1,4 @@
+Artículo 4º-Del procedimiento para donaciones de terrenos. El procedimiento para donaciones de terreno es el siguiente:
+a. La solicitud de donación de terreno, debidamente justificada, puede ser presentada ante la Alcaldía Municipal o el Concejo Municipal. La parte donante debe aportar las calidades debidas y los justificantes que procedan para valorar dicho acto.
+b. De presentarse ante la Alcaldía Municipal, debe elevarse al Concejo Municipal para el aval de la donación y la autorización de ejecutar el proceso contratación de profesional en Notariado para confección de escritura y firma de escritura, o bien para su trámite ante la Notaría del Estado.
+c. Una vez firmada la escritura, presentada ante el Registro Nacional, la Alcaldía entregará los documentos para los registros respectivos internos, con copia al Concejo Municipal para su información.
