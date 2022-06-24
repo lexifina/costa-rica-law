@@ -1,0 +1,2 @@
+Artículo 6º-Del monto de la ayuda temporal. El monto de la ayuda no será en ningún caso, mayor a la suma de dos salarios base mensual del oficinista I que aparece en la relación de puestos de la Ley de Presupuesto Ordinario de la República de acuerdo con lo comunicado por la Corte Suprema de Justicia, por medio de la publicación en el Diario Oficial La Gaceta.
+La ayuda temporal se otorgará únicamente una vez por año por cada evento que pudiese afectar a la persona u hogar.
