@@ -1,0 +1,1 @@
+Artículo 11.-Fiscalización. El Concejo Municipal tiene la facultad en cualquier tiempo por medio de sus inspectores, verificar y fiscalizar los volúmenes de material extraído que egresen del tajo o cantera y los que se reportan, con el fin de constatar el correcto cumplimiento de las obligaciones tributarias a que se refiere este reglamento

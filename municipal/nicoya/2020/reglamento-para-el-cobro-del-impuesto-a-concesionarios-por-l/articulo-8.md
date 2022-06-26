@@ -1,0 +1,1 @@
+Artículo 8º-En caso de que el contribuyente no impugnare dentro del plazo señalado en el artículo anterior, el Concejo Municipal hará exigible al contribuyente responsable el pago del tributo dentro de los quince hábiles inmediatos siguientes, transcurrido el tiempo indicado quedará expedita la vía ejecutiva a favor del Concejo Municipal.

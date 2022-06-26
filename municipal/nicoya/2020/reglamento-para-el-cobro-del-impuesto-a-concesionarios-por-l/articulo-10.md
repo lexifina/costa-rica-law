@@ -1,0 +1,1 @@
+Artículo 10.-Infracciones. Conforme lo estipulado en el código de Minería artículos 38 y 40, Código de Normas y Procedimientos tributarios artículo 80 y 80 bis, Código Municipal artículo 69, la falta o atraso en el pago del impuesto dentro del plazo legalmente establecido, generará un cobro de multas e intereses moratorios.

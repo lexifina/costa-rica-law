@@ -1,0 +1,1 @@
+Artículo 4º-. Obligaciones. De acuerdo al artículo 34, inciso d) del Código de Minería el titular de una concesión de explotación está obligado está obligado a pagar los derechos e impuestos establecidos por ley.
