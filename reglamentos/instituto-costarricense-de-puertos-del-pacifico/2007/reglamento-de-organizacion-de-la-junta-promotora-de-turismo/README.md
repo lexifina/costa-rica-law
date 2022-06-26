@@ -15,3 +15,4 @@ Reglamento de Organización de la Junta Promotora de Turismo de la Ciudad de Pun
 | --- | --- | --- |
 | 1 | 2007-06-18 | la propia norma |
 | 2 | 2013-08-22 | Reglamento 3852 (2013-08-22) |
+| 3 | 2022-06-26 | Reglamento 282 (2022-06-26) |

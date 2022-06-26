@@ -1,7 +1,2 @@
-Artículo 14.- De las sesiones. En su primera sesión ordinaria de cada año, la Junta Promotora determinará el día y hora de sus sesiones ordinarias, que se celebrarán una vez por semana. Las extraordinarias, cuando sean convocadas por el presidente de la Junta Directiva, especificando el objeto de la sesión y la hora en que ésta debe verificarse.
-Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito, vía fax, telegrama u otro medio, con una antelación mínima de veinticuatro horas.
-No obstante, quedará válidamente constituida la Junta Promotora sin cumplir todos los requerimientos referentes a la convocatoria o al orden del día, cuando asistan todos sus miembros y así lo acuerden por unanimidad.
-Las sesiones de la Junta Promotora serán de carácter privado.
-La Junta podrá conceder audiencias a personas ajenas a la organización, una vez incluida en la agenda o acordándolo así por mayoría simple de los miembros de la Junta Promotora.
-Los acuerdos serán adoptados por mayoría simple de los miembros asistentes.
-No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes los dos tercios de los miembros de la Junta Promotora y sea declarada la urgencia del asunto por el voto favorable de todos ellos.
+Artículo 14.-De las sesiones. En su primera sesión ordinaria de cada año, la Junta Promotora determinará el día y hora de sus sesiones ordinarias, que se celebrarán una vez por mes. Las extraordinarias, cuando sean convocadas por el presidente de la Junta Directiva, especificando el objeto de la sesión y la hora en que ésta debe verificarse.
+(Así reformado mediante sesión N° 282-2022 del 26 de junio del 2022)
