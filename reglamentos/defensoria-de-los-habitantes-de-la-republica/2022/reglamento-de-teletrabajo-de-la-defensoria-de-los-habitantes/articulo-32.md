@@ -1,0 +1,3 @@
+Artículo 32.-Funciones de la Dirección de Planificación y Desarrollo Institucional
+Corresponde a la Dirección de Planificación y Desarrollo Institucional la valoración del programa de teletrabajo dentro del esquema estratégico de la institución, para que el desarrollo del este concuerde con el avance y el desarrollo de la Defensoría de los Habitantes.
+Como responsable del avance estratégico de la institución, así como del desarrollo organizacional y del control, velará por el análisis de los resultados del programa, según los controles propios y los reportados por las jefaturas inmediatas, y presentará informes de evaluación semestral ante el/la jerarca institucional.
