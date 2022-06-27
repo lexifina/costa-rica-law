@@ -29,3 +29,4 @@ Estatuto Autónomo de Organización de la Defensoría de los Habitantes de la Re
 | 14 | 2021-06-03 | Reglamento 0 (2021-06-03) |
 | 15 | 2022-02-18 | Acuerdo 2416 (2022-02-18) |
 | 16 | 2022-04-08 | Acuerdo 2438 (2022-04-08) |
+| 17 | 2022-06-27 | Reglamento 0 (2022-06-27) |

@@ -1,8 +1,8 @@
 CAPÍTULO XII
-De la Dirección de Planificación y Desarrollo Institucional
-(Así reformado el capítulo anterior mediante acuerdo N° 2266 del
-19 de diciembre del 2019)
-Artículo 31.—Dirección de Planificación y Desarrollo Institucional. Es la dependencia responsable de coordinar los procesos de planificación estratégica y operativa, así como de la evaluación y seguimiento del cumplimiento de las políticas, planes y proyectos, que permitan impulsar el desarrollo institucional con un enfoque de gestión de calidad, bajo un marco de una gestión para resultados, promoviendo para ello procesos de trabajo innovadores, metodologías y soluciones que optimicen los recursos y fortalezcan la transparencia y rendición de cuentas de la Defensoría de los Habitantes.
+Del Departamento de Planificación y Desarrollo Institucional
+(Así modificada la denominación del capítulo anterior mediante acuerdo N° 2466 del 27 de junio de 2022. Anteriormente se indicaba: “De la Dirección de Planificación y Desarrollo Institucional”)
+Artículo 31.-Departamento de Planificación y Desarrollo Institucional. Es la dependencia adscrita al Despacho institucional, responsable de coordinar los procesos de planificación estratégica y operativa, así como de la evaluación y seguimiento del cumplimiento de las políticas, planes y proyectos, que permitan impulsar el desarrollo institucional con un enfoque de gestión de calidad, bajo un marco de una gestión para resultados, promoviendo para ello procesos de trabajo innovadores, metodologías y soluciones que optimicen los recursos y fortalezcan la transparencia y rendición de cuentas de la Defensoría de los Habitantes.
+(Así reformado el párrafo anterior mediante acuerdo N° 2466 del 27 de junio de 2022)
 1. Las funciones que desarrollará serán:
 a. Promover y coordinar el proceso de fijación de políticas, estrategias, objetivos y metas de la Institución.
 b. Desarrollar, coordinar y dar apoyo metodológico al proceso de fijación de estrategias y objetivos de corto, mediano y largo plazo de las diferentes unidades administrativas de la Institución.
