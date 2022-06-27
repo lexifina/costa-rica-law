@@ -6,6 +6,6 @@ Dirección de Admisibilidad
 Dirección de Oficinas Regionales
 Despacho
 Dirección de Asuntos Jurídicos
-Dirección de Planificación Institucional, quien la coordinará
+Departamento de Planificación y Desarrollo Institucional, quien la coordinará
 La Comisión podrá solicitar colaboración preferente a cualquier otra unidad o persona profesional para la ejecución de las tareas que le han sido asignadas.
-(Así reformado por acuerdo N° 2416 del 18 de febrero de 2022)
+(Así reformado por acuerdo N° 2466 del 27 de junio de 2022)

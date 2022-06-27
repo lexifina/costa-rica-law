@@ -6,7 +6,9 @@ b. Antecedentes existentes (pueden ser de la Defensoría o del país).
 c. Objetivos generales y objetivos específicos.
 d. Listado tentativo de actividades - Distribución inicial de responsabilidades.
 e. Cronograma de trabajo, incluyendo los procesos de revisión del borrador de informe con recomendaciones.
-3. Con el visto bueno del/la Defensor/a de los Habitantes, la Dirección del Despacho de la Defensoría de los Habitantes, remitirá a la Dirección de Planificación y Desarrollo Institucional, la aprobación respectiva de la investigación estructural para que se incorpore la actividad dentro Plan Anual Operativo -PAO- correspondiente, de la dirección de defensa u oficina regional que tenga a su cargo la realización de la investigación.
-4. La Dirección de Planificación y Desarrollo Institucional, será el órgano responsable del seguimiento de las investigaciones aquí señaladas, así como, informar al Despacho del/la Jerarca, situaciones que ameriten alerta de riesgo y de atención.
+3. Con el visto bueno del/la Defensor/a de los Habitantes, la Dirección del Despacho de la Defensoría de los Habitantes, remitirá al Departamento de Planificación y Desarrollo Institucional, la aprobación respectiva de la investigación estructural para que se incorpore la actividad dentro Plan Anual Operativo -PAO- correspondiente, de la dirección de defensa u oficina regional que tenga a su cargo la realización de la investigación.
+(Así reformado el inciso anterior por acuerdo N° 2466 del 27 de junio de 2022)
+4. El Departamento de Planificación y Desarrollo Institucional, será el órgano responsable del seguimiento de las investigaciones aquí señaladas, así como, informar al Despacho del/la Jerarca, situaciones que ameriten alerta de riesgo y de atención.
+(Así reformado el inciso anterior por acuerdo N° 2466 del 27 de junio de 2022)
 5. Las propuestas aprobadas serán incluidas en un programa de investigación plurianual e incorporadas en el plan anual operativo del año correspondiente. Los temas a investigar serán sustentados a partir de un inventario que será la base de un banco de investigaciones de corto y mediano plazo.
 (Así reformado mediante acuerdo N° 2355 del 9 de junio del 2021)
