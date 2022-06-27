@@ -1,0 +1,15 @@
+Artículo 13.- Informe Anual de Declaraciones de Origen o en Factura.
+1.- Con el fin de realizar el cálculo del número de exportaciones requeridas para optar por la condición de Exportador Autorizado, según lo establece el párrafo 3 del artículo 3 del presente Reglamento, cada año calendario los beneficiarios de la condición de Exportador Autorizado deberán remitir a la Unidad de Origen un Informe Anual de Declaraciones de Origen o en Factura.
+2.- Este Informe deberá ser presentado dentro de los primeros diez (10) días hábiles del año calendario respectivo y deberá contener la información correspondiente al período del año calendario anterior, que se detalla a continuación:
+a.- Código o número de Exportador Autorizado otorgado por la Unidad de Origen.
+b.- Periodo que comprende la información presentada.
+c.- Número y fecha de las facturas, las notas de entrega o cualquier otro documento comercial utilizado bajo la figura de Exportador Autorizado para realizar las declaraciones de origen o en factura.
+d.- País o región de destino de las mercancías exportadas.
+e.- Número de declaración aduanera de exportación que corresponde a las facturas, las notas de entrega o cualquier otro documento comercial.
+f.- Declarar bajo juramento lo preceptuado en los numerales vi, ix y x del apartado 4 del inciso f) del párrafo 1 del artículo 6 del presente Reglamento.
+g.- Declarar cuál de la información y documentación aportada es considerada como confidencial.
+h.- Firmar el Informe Anual de Declaraciones de Origen o en Factura.
+3.- La no presentación del “Informe Anual de Declaraciones de Origen o en Factura” dentro del plazo establecido en el presente artículo, impedirá a la Unidad de Origen tramitar cualquier “Solicitud de Otorgamiento”, “Solicitud de Renovación”, “Solicitud de Modificación” o “Solicitud de Renuncia” de la condición Exportador Autorizado para el beneficiario incumpliente. En el caso de la “Solicitud de Renuncia”, la Unidad de Origen procederá con la suspensión de la condición de Exportador Autorizado conforme al párrafo 5 del artículo 10 del presente Reglamento.
+4.- Asimismo, si el beneficiario presentara dicho Informe de forma incompleta, con omisiones o errores y no atienda dentro del plazo de tres (3) días hábiles la prevención de la Unidad de Origen de completar o corregir el Informe o proveer la información requerida para su tramitación, aplicará el mismo impedimento mencionado en el párrafo anterior. Dicha prevención será notificada por la Unidad de Origen al beneficiario dentro de los cinco (5) días naturales siguientes a la presentación del Informe Anual en mención.
+5.- Este impedimento subsistirá hasta tanto el solicitante no haya cumplido con dichas obligaciones y requisitos ante la Unidad de Origen y será causal para el inicio de un procedimiento administrativo de revocación de la condición de Exportador Autorizado.
+6.- Los beneficiarios de la condición de Exportador Autorizado deberán reportar a la Unidad de Origen la información establecida en el presente artículo en el formato de “Informe Anual de Declaraciones de Origen o en Factura” contemplado en el Anexo VII del presente Reglamento.

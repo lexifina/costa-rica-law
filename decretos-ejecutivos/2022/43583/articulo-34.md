@@ -1,0 +1,2 @@
+Artículo 34.- Servicios de Verificación de Origen.
+1.- En materia de cobro de servicios para las verificaciones de origen realizadas con motivo del otorgamiento, renovación o modificación de la condición de Exportador Autorizado, la ejecución del “Plan de Inspección” o el “Plan Remedial”, estos se regirán por lo contemplado en el artículo 6 del Decreto Ejecutivo N° 36651-COMEX del 01 de junio de 2011, denominado “Reglamento para la Emisión de Certificados y Verificación de Origen de Mercancías Exportadas” o la norma que le suceda.

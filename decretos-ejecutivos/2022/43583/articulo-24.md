@@ -1,0 +1,4 @@
+Capítulo XIII: Régimen Recursivo.
+Artículo 24.- Régimen Recursivo.
+1.- Contra el acto de PROCOMER que deniegue o revoque la condición de Exportador Autorizado, su renovación, su modificación o el rechazo del “Plan Remedial”, el “Plan de Inspección” y el “Informe de Operaciones” o el “Informe de Cierre de Operaciones”, el interesado podrá interponer el recurso de revocatoria dentro de los tres (3) días hábiles siguientes a su notificación, de conformidad con los artículos 345.2, 346 y 347 de la Ley General de la Administración Pública.
+2.- Asimismo, contra la resolución que deniegue el recurso de revocatoria cabrá el recurso de apelación ante el jerarca institucional de PROCOMER o ante quien este haya delegado el agotamiento de la vía administrativa. Dicho recurso se interpondrá en los términos contemplados en los artículos 345.2, 346 y 347 de la Ley General de la Administración Pública.

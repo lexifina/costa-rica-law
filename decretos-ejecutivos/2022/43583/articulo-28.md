@@ -1,0 +1,12 @@
+Artículo 28.- Plan de Inspección.
+1.- El “Plan de Inspección” contenido en el acto de otorgamiento o renovación de la condición de Exportador Autorizado, tiene como propósito verificar el cumplimiento por parte de los beneficiarios de las obligaciones y requisitos contemplados en el presente Reglamento por todo el plazo de vigencia de dicho beneficio.
+2.- El “Plan de Inspección” contendrá un cronograma con indicación de la programación de las siguientes actividades:
+a.- Verificación de la vigencia de los cuestionarios de origen para la o las mercancías al amparo de las cuales se otorgó la condición de Exportador Autorizado.
+b.- Revisión y aprobación del “Informe de Operaciones” y de la documentación que lo sustenta.
+c.- Verificación del cumplimiento de los requisitos y obligaciones contemplados en el presente Reglamento por todo el período comprendido en el “Informe de Operaciones”.
+d.- La fecha límite para la presentación de la “Solicitud de Renovación” y los documentos que la acompañan.
+3.- Dentro de los diez (10) días naturales siguientes a la conclusión de la ejecución del “Plan de Inspección”, la Unidad de Origen emitirá un dictamen mediante el cual hará constar si el beneficiario cumplió o no la programación y requisitos del Plan.
+4.- La Unidad de Origen mediante un dictamen positivo hará constar el cumplimiento satisfactorio de la programación y requisitos del “Plan de Inspección”.
+5.- No satisfecha la programación y los requisitos de los apartados del párrafo 2 del presente artículo, la Unidad de Origen emitirá un dictamen negativo. Mediante dicho dictamen y atendiendo la gravedad de los incumplimientos, PROCOMER determinará, de conformidad con el artículo 23 del presente Reglamento, la procedencia de la apertura de un procedimiento administrativo para determinar la revocatoria de la condición de Exportador Autorizado o si, por el contrario, resulta procedente que el beneficiario presente un “Plan Remedial” en los términos del artículo 29 del presente Reglamento.
+6.- En el caso de las renovaciones de la condición de Exportador Autorizado, el dictamen deberá emitirse al menos treinta (30) días naturales antes del término del período correspondiente a la vigencia de la condición de Exportador Autorizado.
+7.- El beneficiario interesado en solicitar la renovación de la condición de Exportador Autorizado, deberá contar con un dictamen positivo de la Unidad de Origen, de lo contrario PROCOMER rechazará dicha solicitud.

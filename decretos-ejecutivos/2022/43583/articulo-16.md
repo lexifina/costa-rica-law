@@ -1,0 +1,4 @@
+Artículo 16.- Aclaración.
+1.- Por una única vez y dentro del plazo para emitir el acto respectivo, la Unidad de Origen podrá solicitar una aclaración de fondo sobre la información y documentación aportada por el interesado. Lo anterior, únicamente en aquellos casos en los que la información aportada resultare insuficiente para determinar la procedencia de la solicitud respectiva.
+2.- La solicitud de aclaración sustantiva de la información y/o documentación será notificada al interesado y este contará con un plazo de diez (10) días hábiles para atender la petitoria de la Unidad de Origen.
+3.- En caso de que el interesado no aclare la información y/o documentación solicitada en el plazo concedido, la Unidad de Origen procederá a emitir el acto que corresponda, dentro el plazo establecido para ese fin, indicando en dicho acto que el requerimiento de la Unidad de Origen no fue atendido.

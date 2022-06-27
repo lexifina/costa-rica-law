@@ -1,0 +1,10 @@
+Artículo 4.- Requisitos Generales.
+1.- Toda persona interesada en obtener la condición de Exportador Autorizado por primera vez o por renovación, sin perjuicio de lo establecido en el artículo 3 y 7 del presente Reglamento, deberá demostrar ante la Unidad de Origen que cumple previamente con los siguientes requisitos:
+a.- Estar debidamente registrado como exportador ante la VUCE y contar con un código de identificación asignado a su nombre por el Registro de Exportadores de la VUCE.
+b.- Haber realizado en el año calendario inmediatamente anterior al de la “Solicitud de Otorgamiento” o la “Solicitud de Renovación”, un mínimo de exportaciones de productos originarios al país o región, conforme al tratado, acuerdo o instrumento comercial internacional respectivo, para el que se quiera optar por la condición de Exportador Autorizado, de conformidad con lo establecido en el artículo 3 del presente Reglamento.
+c.- Que el o los cuestionarios de origen que respaldan el origen de los productos para los que se quiere optar por la condición de Exportador Autorizado se encuentren vigentes.
+d.- Haber presentado de forma completa ante la Unidad de Origen la “Solicitud de Otorgamiento” o la “Solicitud de Renovación” para optar por la condición de Exportador Autorizado y los documentos que las acompañan.
+e.- Cuando corresponda, haber presentado el “Informe de Operaciones” o el “Informe de Cierre de Operaciones” al amparo de la condición de Exportador Autorizado y que estos hayan sido aprobados por la Unidad de Origen, según corresponda, conforme al presente Reglamento.
+f.- Cuando corresponda, que la Unidad de Origen dentro del año natural anterior a la “Solicitud de Otorgamiento” o la “Solicitud de Renovación” no haya rechazado el “Informe de Operaciones” o el “Informe de Cierre de Operaciones”.
+g.- Cuando corresponda, haber atendido los requerimientos de información y prevenciones realizadas por la Unidad de Origen.
+h.- Cuando corresponda, no haber sido sancionado por PROCOMER dentro del año natural anterior a la “Solicitud de Otorgamiento” o la “Solicitud de Renovación” con la revocatoria de la condición de Exportador Autorizado.
