@@ -1,0 +1,1 @@
+Artículo 10.-Contingencia ante suspensión de la plataforma Infoyasistencia. En caso de que se presente cualquier situación que provoque una suspensión temporal de la plataforma Infoyasistencia, atribuible a la Administración Tributaria, se habilitará para la presentación de las solicitudes, la cuenta de correo electrónico: Infoyasistencia@hacienda. go.cr

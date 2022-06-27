@@ -1,0 +1,2 @@
+Artículo 7º-Fecha en que se tienen por recibidos las solicitudes presentadas por medio de la plataforma Infoyasistencia. En aplicación del artículo 57 del Decreto Nº 38277- H Reglamento de procedimiento tributario, aquellas solicitudes que se remitan a través de la plataforma Infoyasistencia, deben ser atendidas en un plazo de 10 días hábiles, contados desde la fecha de presentación de la solicitud.
+Aquellas que se remitan en horas o días inhábiles se tendrán por ingresadas a la Administración Tributaria el día hábil siguiente al de la transmisión.
