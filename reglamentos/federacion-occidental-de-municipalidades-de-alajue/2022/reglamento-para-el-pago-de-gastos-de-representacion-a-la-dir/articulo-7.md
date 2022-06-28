@@ -1,0 +1,1 @@
+Artículo 7º-Las facturas deberán reunir los requisitos establecidos en los artículos 3 y 4 de este Reglamento. Los gastos de representación y de atención deben corresponder a erogaciones ocasionales de carácter oficial, por lo tanto quedan excluidas todas aquellas atenciones de carácter personal. En ningún caso el gasto de representación cubrirá el pago de bebidas alcohólicas.

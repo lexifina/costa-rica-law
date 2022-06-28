@@ -1,0 +1,1 @@
+Artículo 2º-Definición: Se entiende por gastos de representación y atención, aquellas erogaciones en que incurra la Dirección Ejecutiva para sufragar gastos con motivo de actividades de interés municipal, a personas o representantes de entidades ajenas a la Federación Occidental de Municipalidades de Alajuela.
