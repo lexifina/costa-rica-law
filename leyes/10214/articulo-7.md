@@ -1,0 +1,1 @@
+ARTÍCULO 7- Administración de las viviendas comunitarias. Las viviendas comunitarias deberán ser gestionadas y administradas por entidades responsables que atiendan a personas adultas mayores, instituciones públicas u organizaciones que hayan sido declaradas de bienestar social por el Instituto Mixto de Ayuda Social (IMAS) u organizaciones de utilidad pública.

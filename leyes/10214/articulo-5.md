@@ -1,0 +1,2 @@
+ARTÍCULO 5- Derecho de uso y habitación. Las viviendas comunitarias serán facilitadas a personas adultas mayores mediante la figura del derecho de uso y habitación, que comprenderá la facultad de gozar de una parte limitada de las utilidades y productos referido a una vivienda comunitaria, de tal manera que las personas usufructuarias puedan morar en ella, bajo los términos definidos mediante contrato firmado por ambas partes.
+Lo anterior, toda vez que haya sido comprobada su condición de autovalencia y vulnerabilidad.
