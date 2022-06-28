@@ -107,7 +107,7 @@ Especificaciones Técnicas
 4. Al establecer cualquier especificación técnica para las mercancías o servicios a ser contratados, una entidad contratante deberá, cuando corresponda:
 (a) establecer la especificación técnica en términos de desempeño y requisitos funcionales, en lugar de las características descriptivas o de diseño; y
 (b) basar la especificación técnica en normas internacionales, cuando sea aplicable, o de lo contrario, en reglamentos técnicos nacionales, normas nacionales reconocidas o en códigos de construcción.
-5. Una entidad contratante no prescribirá especificaciones técnicas que requieran o hagan referencia a una determinada marca o nombre comercial, patente, derecho de autor, diseño, tipo, origen específico, productor o proveedor, salvo que no exista otra manera suficientemente precisa o inteligible de describir los requisitos de la contratación pública, y siempre que, en tales casos, se incluya también en los documentos de contratación expresiones tales como “o equivalente”.
+5. Una entidad contratante no prescribirá especificaciones técnicas que requieran o hagan referencia a una determinada marca o nombre comercial, patente, derecho de autor, diseño, tipo, origen específico, productor o proveedor, salvo que no exista otra manera suficientemente precisa o inteligible de describir los requisitos de la contratación pública, y siempre que, en tales casos, se incluya también en los documentos de contratación expresiones tales como "o equivalente".
 6. Una entidad contratante no solicitará ni aceptará, de manera que pueda tener el efecto de impedir la competencia, asesoramiento que pudiera utilizarse para preparar o adoptar cualquier especificación técnica para una contratación pública específica proveniente de cualquier persona que pueda tener un interés comercial en esa contratación pública.
 7. Para mayor certeza, el presente Artículo no pretende impedir a una entidad contratante de preparar, adoptar o aplicar especificaciones técnicas para promover la conservación de los recursos naturales o proteger el medio ambiente.
 Modificaciones
@@ -235,7 +235,7 @@ ARTÍCULO 10.22: COOPERACIÓN
 (c) capacitación y asistencia técnica a los proveedores en materia de acceso al mercado de la contratación pública; y
 (d) fortalecimiento institucional para el cumplimiento del presente Capítulo, incluida la capacitación a funcionarios públicos.
 ARTÍCULO 10.23: COMITÉ DE CONTRATACIÓN PÚBLICA
-1. Las Partes establecen el Comité de Contratación Pública (en lo sucesivo denominado el “Comité”), integrado por representantes de cada Parte.
+1. Las Partes establecen el Comité de Contratación Pública (en lo sucesivo denominado el "Comité"), integrado por representantes de cada Parte.
 2. Las funciones del Comité incluirán, inter alia:
 (a) monitorear la implementación y administración del presente Capítulo, incluyendo su aprovechamiento y recomendará a la Comisión las actividades que correspondan;
 (b) reportar a la Comisión sobre la implementación y administración del presente Capítulo, cuando corresponda;
@@ -261,47 +261,47 @@ norma significa un documento aprobado por un órgano reconocido, que provea, par
 procedimientos de licitación abiertos significa cualquier tipo de método de contratación de una Parte, excepto métodos de contratación directa según lo establecido en el Artículo 10.11.2, siempre que dichos métodos sean consistentes con el presente Capítulo;
 proveedor significa una persona que provee o podría proveer mercancías o servicios a una entidad contratante;
 servicios incluye servicios de construcción, a menos que se especifique algo distinto;
-servicio de construcción significa un servicio cuyo objeto es la realización por cualquier medio de trabajos civiles o de construcción, basado en la División 51 de la versión provisional de la Clasificación Central de Productos de las Naciones Unidas (en lo sucesivo denominado “CPC”); y
+servicio de construcción significa un servicio cuyo objeto es la realización por cualquier medio de trabajos civiles o de construcción, basado en la División 51 de la versión provisional de la Clasificación Central de Productos de las Naciones Unidas (en lo sucesivo denominado "CPC"); y
 subasta electrónica significa un proceso iterativo en el que los proveedores utilizan medios electrónicos para presentar nuevos precios o nuevos valores para los elementos de la oferta cuantificables distintos del precio, o ambos, que están vinculados con los criterios de evaluación, y que da lugar a una clasificación o una reclasificación de ofertas.
 ANEXO 10-A COBERTURA
 ANEXO 10-A LISTA DE COLOMBIA
 SECCIÓN A: ENTIDADES DEL NIVEL CENTRAL DEL GOBIERNO
 El Capítulo se aplicará a las entidades del nivel central del gobierno listadas en la presente Sección, cuando el valor de la contratación que se ha estimado, de conformidad con el Artículo 10.1.4, sea igual o superior a los siguientes montos:
 (a) para las contrataciones de bienes y servicios:
-(i) US$83,099
-(Así reformado el punto a) anterior por el artículo 5° del decreto ejecutivo N° 42224 del 14 de enero del 2020)
+(i) US$92,319,
+(Así reformado el punto a) anterior por el artículo 5° del decreto ejecutivo N°43584 del 19 de mayo de 2022)
 (b) para contrataciones de servicios de construcción:
-(i) US$7.008.000,
-(Así reformado el punto b) anterior por el artículo 5° del decreto ejecutivo N° 42224 del 14 de enero del 2020)
-(Nota de Sinalevi: Mediante el artículo 8° del decreto ejecutivo N° 42224 del 14 de enero del 2020, se estableció lo siguiente: “El valor de los umbrales ajustados y convertidos a moneda nacional, se indica a continuación, tomando como tipo de cambio promedio la suma de quinientos ochenta y cuatro colones con treinta y nueve céntimos (584,39) por dólar estadounidense:
-“Sección A: Entidades del Nivel Central del Gobierno.
-• Para contrataciones de bienes y servicios: ¢48.562.225.
-• Para contrataciones de servicios de construcción: ¢4.095.405.120.”)
+(i) US$7.032.000,
+(Así reformado el punto b) anterior por el artículo 5° del decreto ejecutivo N° 43584 del 19 de mayo de 2022)
+(Nota de Sinalevi: Mediante el artículo 8° del decreto ejecutivo N° 42224 del 14 de enero del 2020, se estableció lo siguiente: "El valor de los umbrales ajustados y convertidos a moneda nacional, se indica a continuación, tomando como tipo de cambio promedio la suma de quinientos ochenta y cuatro colones con treinta y nueve céntimos (584,39) por dólar estadounidense:
+"Sección A: Entidades del Nivel Central del Gobierno.
+. Para contrataciones de bienes y servicios: ¢48.562.225.
+. Para contrataciones de servicios de construcción: ¢4.095.405.120.")
 Rama Ejecutiva
 1. Departamento Administrativo de Ciencia, Tecnología e Innovación
 2. Departamento Administrativo de la Función Pública
 3. Departamento Administrativo de la Presidencia de la República
-4. Departamento Administrativo del Deporte la Recreación, la Actividad Física y el Aprovechamiento del Tiempo Libre "Coldeportes”
+4. Departamento Administrativo del Deporte la Recreación, la Actividad Física y el Aprovechamiento del Tiempo Libre "Coldeportes"
 5. Departamento Administrativo Nacional de Economía Solidaria
 6. Departamento Administrativo Nacional de Estadísticas
 7. Departamento Nacional de Planeación
 8. Dirección Nacional de Inteligencia
-9. Ministerio de Agricultura y Desarrollo Rural – Nota 3
+9. Ministerio de Agricultura y Desarrollo Rural - Nota 3
 10. Ministerio de Ambiente y Desarrollo Sostenible
 11. Ministerio de Comercio, Industria y Turismo
 12. Ministerio de Cultura
-13. Ministerio de Defensa Nacional – Nota 2
+13. Ministerio de Defensa Nacional - Nota 2
 14. Ministerio de Educación Nacional
 15. Ministerio de Hacienda y Crédito Público
 16. Ministerio de Justicia y del Derecho
-17. Ministerio de Minas y Energía – Nota 5
+17. Ministerio de Minas y Energía - Nota 5
 18. Ministerio de Relaciones Exteriores
-19. Ministerio de Salud y Protección Social – Nota 4
+19. Ministerio de Salud y Protección Social - Nota 4
 20. Ministerio de Tecnologías de la Información y Comunicaciones
 21. Ministerio de Trabajo
 22. Ministerio de Vivienda, Ciudad y Territorio
 23. Ministerio del Interior
-24. Ministerio del Transporte – Nota 6
+24. Ministerio del Transporte - Nota 6
 Rama Legislativa
 25. Cámara de Representantes
 26. Senado de la República
@@ -314,27 +314,27 @@ Organismos de Control
 31. Defensoría del Pueblo
 32. Procuraduría General de la Nación
 Organización Electoral
-33. Registraduría Nacional del Estado Civil – Nota 7
+33. Registraduría Nacional del Estado Civil - Nota 7
 Notas
 1. Están cubiertos todos los ministerios y los departamentos administrativos. A menos que se disponga lo contrario, el Capítulo se aplicará a las superintendencias, unidades administrativas especiales, y los establecimientos públicos de las entidades listadas en la presente Sección.
 2. Ministerio de Defensa Nacional. No están cubiertas por el Capítulo las contrataciones de bienes contenidas en la Sección 2 (Alimentos, Bebidas y Tabaco; Textil y Confección y Productos de Cuero) del CPC versión 1.0, para el Comando General de las Fuerzas Militares, Ejército Nacional, Armada Nacional, Fuerza Aérea Nacional, y Policía Nacional.
 3. Ministerio de Agricultura y Desarrollo Rural. No están cubiertas por el Capítulo las contrataciones de alimentos, insumos agropecuarios y animales vivos, relacionadas con los programas de apoyo a la agricultura y asistencia alimentaria.
-4. Ministerio de Salud y Protección Social. No están cubiertas por el Capítulo las contrataciones de bienes contenidas en la Sección 2 (Alimentos, Bebidas y Tabaco; Textil y Confección y Productos de Cuero) del CPC versión 1.0, dirigidas a programas de asistencia social realizadas por el Instituto Colombiano de Bienestar Familiar – ICBF.
-5. Ministerio de Minas y Energía. No están cubiertas por el Capítulo la contratación de materiales y tecnología nuclear realizada por el Instituto Colombiano de Geología y Minería – INGEOMINAS.
-6. Ministerio del Transporte. En las contrataciones de la Unidad Administrativa Especial de Aeronáutica Civil –AEROCIVIL, sólo aplicarán los párrafos 1 y 2 del Artículo 10.3 del Capítulo, con excepción de las contrataciones relacionadas con la infraestructura para el sistema aeroportuario o para el sistema nacional del espacio aéreo las cuales no están cubiertas por el Capítulo.
+4. Ministerio de Salud y Protección Social. No están cubiertas por el Capítulo las contrataciones de bienes contenidas en la Sección 2 (Alimentos, Bebidas y Tabaco; Textil y Confección y Productos de Cuero) del CPC versión 1.0, dirigidas a programas de asistencia social realizadas por el Instituto Colombiano de Bienestar Familiar - ICBF.
+5. Ministerio de Minas y Energía. No están cubiertas por el Capítulo la contratación de materiales y tecnología nuclear realizada por el Instituto Colombiano de Geología y Minería - INGEOMINAS.
+6. Ministerio del Transporte. En las contrataciones de la Unidad Administrativa Especial de Aeronáutica Civil -AEROCIVIL, sólo aplicarán los párrafos 1 y 2 del Artículo 10.3 del Capítulo, con excepción de las contrataciones relacionadas con la infraestructura para el sistema aeroportuario o para el sistema nacional del espacio aéreo las cuales no están cubiertas por el Capítulo.
 7. Registraduría Nacional del Estado Civil. No están cubiertas por el Capítulo las contrataciones para la preparación y realización de elecciones.
 SECCIÓN B: ENTIDADES DEL NIVEL SUBCENTRAL DEL GOBIERNO
 El Capítulo se aplicará a las entidades del nivel subcentral del gobierno listadas en la presente Sección, cuando el valor de la contratación que se ha estimado, de conformidad con el Artículo 10.1.4, sea igual o superior a los siguientes montos:
 (a) para contrataciones de bienes y servicios:
-(i) US$498.000;
-(Así reformado el punto a) anterior por el artículo 6° del decreto ejecutivo N° 42224 del 14 de enero del 2020)
+(i) US$499,000;
+(Así reformado el punto a) anterior por el artículo 6° del decreto ejecutivo N° 43584 del 19 de mayo de 2022)
 (b) para contrataciones de servicios de construcción:
-(i) US$7.008.000
-(Así reformado el punto b) anterior por el artículo 6° del decreto ejecutivo N° 42224 del 14 de enero del 2020)
-(Nota de Sinalevi: Mediante el artículo 8° del decreto ejecutivo N° 42224 del 14 de enero del 2020, se estableció lo siguiente: “El valor de los umbrales ajustados y convertidos a moneda nacional, se indica a continuación, tomando como tipo de cambio promedio la suma de quinientos ochenta y cuatro colones con treinta y nueve céntimos (584,39) por dólar estadounidense:
+(i) US$7.032.000
+(Así reformado el punto b) anterior por el artículo 6° del decreto ejecutivo N° 43584 del 19 de mayo de 2022)
+(Nota de Sinalevi: Mediante el artículo 8° del decreto ejecutivo N° 42224 del 14 de enero del 2020, se estableció lo siguiente: "El valor de los umbrales ajustados y convertidos a moneda nacional, se indica a continuación, tomando como tipo de cambio promedio la suma de quinientos ochenta y cuatro colones con treinta y nueve céntimos (584,39) por dólar estadounidense:
 Sección B: Entidades del Nivel Subcentral del Gobierno.
-• Para contrataciones de bienes y servicios: ¢291.026.220.
-• Para contrataciones de servicios de construcción: ¢4.095.405.120.”)
+. Para contrataciones de bienes y servicios: ¢291.026.220.
+. Para contrataciones de servicios de construcción: ¢4.095.405.120.")
 Lista
 1. Todos los Departamentos
 2. Todos los Municipios
@@ -345,61 +345,61 @@ No están cubiertas por el Capítulo:
 SECCIÓN C: OTRAS ENTIDADES CUBIERTAS
 El Capítulo se aplicará a las otras entidades listadas en la presente Sección, cuando el valor de la contratación que se ha estimado, de conformidad con el Artículo 10.1.4, sea igual o superior a los siguientes montos:
 (a) para la contratación de bienes y servicios:
-(ii) para instituciones de la Lista B US$561.000
-(Así reformado el punto a) anterior por el artículo 7° del decreto ejecutivo N° 42224 del 14 de enero del 2020)
+(ii) para instituciones de la Lista B US$563.000
+(Así reformado el punto a) anterior por el artículo 7° del decreto ejecutivo N°43584 del 19 de mayo de 2022)
 (b) para contrataciones de servicios de construcción de las Listas A y B:
-(ii) US$7.008.000;
-(Así reformado el punto b) anterior por el artículo 7° del decreto ejecutivo N° 42224 del 14 de enero del 2020)
-(Nota de Sinalevi: Mediante el artículo 8° del decreto ejecutivo N° 42224 del 14 de enero del 2020, se estableció lo siguiente: “El valor de los umbrales ajustados y convertidos a moneda nacional, se indica a continuación, tomando como tipo de cambio promedio la suma de quinientos ochenta y cuatro colones con treinta y nueve céntimos (584,39) por dólar estadounidense:
+(ii) US$7.032.000;;
+(Así reformado el punto b) anterior por el artículo 7° del decreto ejecutivo N° 43584 del 19 de mayo de 2022)
+(Nota de Sinalevi: Mediante el artículo 8° del decreto ejecutivo N° 43584 del 19 de mayo de 2022, se estableció lo siguiente: "El valor de los umbrales ajustados y convertidos a moneda nacional, se indica a continuación, tomando como tipo de cambio promedio la suma de quinientos ochenta y cuatro colones con treinta y nueve céntimos (584,39) por dólar estadounidense:
 Sección C: Otras Entidades Cubiertas.
-• Lista A: Para contrataciones de bienes y servicios: ¢146.097.500.
-• Lista B: Para contrataciones de bienes y servicios: ¢327.842.790.
-• Listas A y B: Para contrataciones de servicios de construcción: ¢4.095.405.120”)
+. Lista A: Para contrataciones' de bienes y servicios: ¢149.675.000.
+. Lista B: Para contrataciones de bienes y servicios: ¢337.068.100.
+. Listas A y B: Para contrataciones de servicios de construcción: ¢4.210.058.400". )
 2. A menos que se especifique lo contrario, el Capítulo se aplicará sólo a las entidades listadas en la presente Sección.
 Lista
-1. Agencia Logística de las Fuerzas Militares – Nota 1
-2. Dirección de Impuestos y Aduanas Nacionales – DIAN
+1. Agencia Logística de las Fuerzas Militares - Nota 1
+2. Dirección de Impuestos y Aduanas Nacionales - DIAN
 3. Fondo Rotatorio de la Policía Nacional - Nota 1
-4. Instituto Colombiano para el Fomento de la Educación Superior – ICFES
-5. Instituto de Casas Fiscales del Ejército Instituto Nacional Penitenciario y Carcelario – INPEC
-6. Servicio Nacional de Aprendizaje – SENA
-7. Unidad de Servicios Penitenciarios y Carcelarios – SPC
+4. Instituto Colombiano para el Fomento de la Educación Superior - ICFES
+5. Instituto de Casas Fiscales del Ejército Instituto Nacional Penitenciario y Carcelario - INPEC
+6. Servicio Nacional de Aprendizaje - SENA
+7. Unidad de Servicios Penitenciarios y Carcelarios - SPC
 Nota
 1. Agencia Logística de las Fuerzas Militares, Fondo Rotatorio de la Policía Nacional, y Fondo Rotatorio del Departamento Administrativo de Seguridad. No están cubiertas por el Capítulo, las contrataciones de bienes contenidas en la Sección 2 (Alimentos, Bebidas y Tabaco; Textil y Confección y Productos de Cuero) del CPC versión 1.0, para el Comando General de las Fuerzas Militares, Ejercito Nacional, Armada Nacional, Fuerza Aérea Nacional, y Policía Nacional.
 SECCIÓN D: ENTIDADES ESPECIALES
 De conformidad con la Ley 1150 de 2007, Colombia se asegurará que cada una de las siguientes entidades colombianas realicen sus contrataciones de manera transparente, de acuerdo con consideraciones comerciales; y traten a los proveedores costarricenses al menos tan favorablemente como tratan a sus proveedores domésticos y otros proveedores extranjeros con respecto a todos los aspectos de sus contrataciones, incluyendo las condiciones, requisitos, procedimientos y reglas de adjudicación para una contratación.
 Lista
-1. Caja de Previsión Social de Comunicaciones – CAPRECOM
-2. Caja Nacional de Previsión Social – CAJANAL
-3. Comisión de Regulación de Energía y Gas – CREG
-4. Empresa Colombiana de Petróleos, S.A. – ECOPETROL
-5. Empresa Industrial y Comercial del Estado Administradora del Monopolio Rentístico de los Juegos de Suerte y Azar – COLJUEGOS
+1. Caja de Previsión Social de Comunicaciones - CAPRECOM
+2. Caja Nacional de Previsión Social - CAJANAL
+3. Comisión de Regulación de Energía y Gas - CREG
+4. Empresa Colombiana de Petróleos, S.A. - ECOPETROL
+5. Empresa Industrial y Comercial del Estado Administradora del Monopolio Rentístico de los Juegos de Suerte y Azar - COLJUEGOS
 6. Imprenta Nacional de Colombia
-7. Industria Militar – INDUMIL
-8.Instituto de Seguros Sociales – ISS
-9. Interconexión Eléctrica S.A. – ISA
+7. Industria Militar - INDUMIL
+8.Instituto de Seguros Sociales - ISS
+9. Interconexión Eléctrica S.A. - ISA
 10.ISAGEN
-11. Radio Televisión Nacional de Colombia – RTVC
-12. Servicio Aéreo a Territorios Nacionales – SATENA
-13. Unidad de Planeación Minero Energética – UPME
+11. Radio Televisión Nacional de Colombia - RTVC
+12. Servicio Aéreo a Territorios Nacionales - SATENA
+13. Unidad de Planeación Minero Energética - UPME
 SECCIÓN E: SERVICIOS
 El Capítulo aplicará a todos los servicios contratados por las entidades listadas en las Secciones A, B, C y D, con sujeción a las Notas de las respectivas Secciones, las Notas Generales, y las Notas a la presente Sección, con excepción de los servicios excluidos en la lista de cada Parte a la presente Sección.
 Lista
 El presente Capítulo no cubre la contratación de los siguientes servicios, de conformidad con el CPC versión 1.0. (Para una lista completa del CPC versión 1.0, ver http://unstats.un.org/unsd/cr/registry/regcst.asp?Cl=3):
 1. Servicios de Investigación y Desarrollo
-• División: 81. Servicios de investigación y desarrollo.
-•Grupo: 835. Servicios científicos y otros servicios técnicos.
-•Servicios de procesamiento de datos (8596) y organización de eventos (8597), requeridos en la ejecución de actividades científicas y tecnológicas.
+. División: 81. Servicios de investigación y desarrollo.
+.Grupo: 835. Servicios científicos y otros servicios técnicos.
+.Servicios de procesamiento de datos (8596) y organización de eventos (8597), requeridos en la ejecución de actividades científicas y tecnológicas.
 2. Servicios Públicos
-•División: 69. Servicios de distribución de electricidad; servicios de distribución de gas y agua por tubería.
-•División: 94. Servicios de alcantarillado y eliminación de desperdicios, servicios de saneamiento y otros servicios de protección del medio ambiente (excepto 949 el cual está cubierto por el Capítulo).
-T •Telecomunicaciones básicas (no incluye los servicios de telecomunicaciones de valor agregado).
+.División: 69. Servicios de distribución de electricidad; servicios de distribución de gas y agua por tubería.
+.División: 94. Servicios de alcantarillado y eliminación de desperdicios, servicios de saneamiento y otros servicios de protección del medio ambiente (excepto 949 el cual está cubierto por el Capítulo).
+T .Telecomunicaciones básicas (no incluye los servicios de telecomunicaciones de valor agregado).
 3. Servicios Sociales
-• División: 91. Administración pública y otros servicios para la comunidad en general; servicios de seguridad social de afiliación obligatoria.
-• División: 92. Servicios de enseñanza.
-• Grupo: 931. Servicios de salud humana.
+. División: 91. Administración pública y otros servicios para la comunidad en general; servicios de seguridad social de afiliación obligatoria.
+. División: 92. Servicios de enseñanza.
+. Grupo: 931. Servicios de salud humana.
 4. Elaboración de Programas de Televisión
-• Subclase: 96121. Servicios de producción de películas cinematográficas, cintas de vídeo y programas de televisión.
+. Subclase: 96121. Servicios de producción de películas cinematográficas, cintas de vídeo y programas de televisión.
 SECCIÓN F: SERVICIOS DE CONSTRUCCIÓN
 El Capítulo se aplicará a todos los servicios de construcción contratados por las entidades listadas en las Secciones A, B, C y D, con sujeción a las Notas de las respectivas Secciones, las Notas Generales, y las Notas a la presente Sección.
 Nota
@@ -417,10 +417,10 @@ A menos que se haya dispuesto lo contrario, las siguientes Notas Generales se ap
 2. En el caso de Colombia, el Tribunal Contencioso Administrativo y el Consejo de Estado son autoridades imparciales para los propósitos del Artículo 10.17.3. Como estas autoridades imparciales no tienen la autoridad de disponer medidas cautelares de conformidad con el Artículo 10.17.5(a), las medidas atribuidas a la Procuraduría General de la Nación se consideran suficientes para satisfacer los requisitos de ese párrafo. La Procuraduría General de la Nación es una entidad independiente que tiene la autoridad de suspender los procedimientos de licitación y la adjudicación de los contratos en el curso de cualquier proceso disciplinario que se siga contra los agentes de gobierno responsables de la contratación pública.
 SECCIÓN H: AJUSTE DE UMBRALES
 1. Los umbrales de los Secciones A, B y C, serán ajustados en intervalos de dos años, cada ajuste tendrá efecto el 1 de enero, iniciando el 1 de enero de 2014.
-2. Colombia ajustará los umbrales de conformidad con lo establecido en la Sección I del Anexo 9.1. del Acuerdo de Promoción Comercial entre la República de Colombia y los Estados Unidos de América, sus “Cartas Adjuntas” y sus “Entendimientos” suscrito en Washington el 22 de noviembre de 2006, y notificará a Costa Rica por escrito el valor del umbral ajustado en dólares de los Estados Unidos de América y en moneda nacional, el 15 de enero del año en que el umbral ajustado tenga efecto.
+2. Colombia ajustará los umbrales de conformidad con lo establecido en la Sección I del Anexo 9.1. del Acuerdo de Promoción Comercial entre la República de Colombia y los Estados Unidos de América, sus "Cartas Adjuntas" y sus "Entendimientos" suscrito en Washington el 22 de noviembre de 2006, y notificará a Costa Rica por escrito el valor del umbral ajustado en dólares de los Estados Unidos de América y en moneda nacional, el 15 de enero del año en que el umbral ajustado tenga efecto.
 3. Colombia convertirá el umbral ajustado a su moneda nacional basado en el tipo de cambio oficial del Banco de la República, utilizando el promedio de los valores diarios de su moneda oficial en términos de dólares de los Estados Unidos de América, dentro del período de dos años que termina el 30 de setiembre del año en que Estados Unidos notifica el umbral ajustado.
 4. En caso que:
-(a) Colombia denuncie el Acuerdo de Promoción Comercial entre la República de Colombia y los Estados Unidos de América, sus “Cartas Adjuntas” y sus “Entendimientos”; o
+(a) Colombia denuncie el Acuerdo de Promoción Comercial entre la República de Colombia y los Estados Unidos de América, sus "Cartas Adjuntas" y sus "Entendimientos"; o
 (b) la fórmula de ajuste de umbrales indicada en el párrafo 2 sea modificada;
 el Comité acordará una fórmula alternativa de ajuste de umbrales.
 ANEXO 10-A LISTA DE COSTA RICA
@@ -440,17 +440,17 @@ Lista
 8. Ministerio de Ciencia, Tecnología y Telecomunicaciones
 9. Ministerio de Comercio Exterior
 10.Ministerio de Cultura y Juventud
-11. Ministerio de Educación Pública – Nota 3
+11. Ministerio de Educación Pública - Nota 3
 12. Ministerio de Economía Industria y Comercio
 13. Ministerio de Gobernación y Policía
-14. Ministerio de Hacienda – Nota 2
+14. Ministerio de Hacienda - Nota 2
 15. Ministerio de Justicia y Paz
 16. Ministerio de la Presidencia
-17. Ministerio de Obras Públicas y Transportes – Nota 4
+17. Ministerio de Obras Públicas y Transportes - Nota 4
 18. Ministerio de Planificación Nacional y Política Económica
 19. Ministerio de Relaciones Exteriores y Culto
 20.Ministerio de Salud
-21. Ministerio de Seguridad Pública – Nota 1
+21. Ministerio de Seguridad Pública - Nota 1
 22.Ministerio de Trabajo y Seguridad Social
 23. Ministerio de Vivienda y Asentamientos Humanos
 24. Presidencia de la República
@@ -552,26 +552,26 @@ El Capítulo se aplicará a las otras entidades listadas en la presente Sección
 (ii) para instituciones de la Lista B: US$ 662,000, o
 (b) para contrataciones de servicios de construcción de las Listas A y B: US$ 7,777,000.
 Lista A
-1. Autoridad Reguladora de los Servicios Públicos – ARESEP
-2. Banco Hipotecario de la Vivienda – BANHVI
-3. Banco Central de Costa Rica – Nota 1
+1. Autoridad Reguladora de los Servicios Públicos - ARESEP
+2. Banco Hipotecario de la Vivienda - BANHVI
+3. Banco Central de Costa Rica - Nota 1
 4. Consejo de Transporte Público
-5. Instituto Nacional de Fomento Cooperativo – INFOCOOP
-6. Instituto Costarricense de Ferrocarriles – INCOFER
-7. Instituto Costarricense de Puertos del Pacífico – INCOP
+5. Instituto Nacional de Fomento Cooperativo - INFOCOOP
+6. Instituto Costarricense de Ferrocarriles - INCOFER
+7. Instituto Costarricense de Puertos del Pacífico - INCOP
 8. Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento
 Lista B
-1. Caja Costarricense de Seguro Social – Nota 2
+1. Caja Costarricense de Seguro Social - Nota 2
 2. Consejo Nacional de Concesiones
 3. Consejo Nacional de Vialidad
 4. Consejo de Seguridad Vial
 5. Dirección General de Aviación Civil
-6. Instituto Costarricense de Electricidad – Nota 3
+6. Instituto Costarricense de Electricidad - Nota 3
 7. Refinadora Costarricense de Petróleo
 Notas
 1. Banco Central de Costa Rica. El Capítulo no se aplicará a la emisión de billetes y monedas y timbres de impuestos.
 2. Caja Costarricense de Seguro Social. El Capítulo no se aplicará a las contrataciones de mercancías clasificadas dentro de la Sección 2 (productos alimenticios, bebidas y tabaco; textiles, prendas de vestir y productos de cuero) del CPC versión 1.0.
-3. Instituto Costarricense de Electricidad (“ICE”). El plazo de 40 días establecido en el Artículo 10.10 no se aplicará al ICE. El ICE otorgará a las proveedores tiempo suficiente para preparar y presentar ofertas comprensivas.
+3. Instituto Costarricense de Electricidad ("ICE"). El plazo de 40 días establecido en el Artículo 10.10 no se aplicará al ICE. El ICE otorgará a las proveedores tiempo suficiente para preparar y presentar ofertas comprensivas.
 SECCIÓN D: SERVICIOS (DISTINTOS DE LOS SERVICIOS DE CONSTRUCCIÓN)
 El Capítulo aplicará a todos los servicios contratados por las entidades listadas en las Secciones A, B y C, con sujeción a las Notas de las respectivas Secciones, las Notas Generales y a las Notas a la presente Sección, con excepción de los servicios excluidos en la Lista de cada Parte a la presente Sección. Todos los servicios cubiertos por esta Sección están sujetos a las medidas listadas en las Listas de Costa Rica al Anexo I y II del Capítulo 12 (Inversión) y Capítulo 13 (Comercio Transfronterizo de Servicios).
 Notas
@@ -599,10 +599,10 @@ Excepto cuando se establezca lo contrario, las siguientes Notas Generales en la 
 7. Por un período no mayor a dos años desde la entrada en vigencia del presente Acuerdo, el Capítulo no aplicará a las contrataciones otorgadas bajo convenios marco.
 SECCIÓN G: FÓRMULA DE AJUSTE DE UMBRALES
 1. Los umbrales de las Secciones A, B y C, serán ajustados en intervalos de dos años, cada ajuste tendrá efecto el 1 de enero, iniciando el 1 de enero de 2014.
-2. Costa Rica ajustará los umbrales de conformidad con lo establecido en la Sección H del Anexo 9.1.2 (b) (i) del Tratado de Libre Comercio República Dominicana – Centroamérica – Estados Unidos, suscrito en Washington el 5 de agosto de 2004, y notificará a Colombia por escrito el valor del umbral ajustado en dólares de los Estados Unidos de América y en moneda nacional, el 15 de enero del año en que el umbral ajustado tenga efecto.
+2. Costa Rica ajustará los umbrales de conformidad con lo establecido en la Sección H del Anexo 9.1.2 (b) (i) del Tratado de Libre Comercio República Dominicana - Centroamérica - Estados Unidos, suscrito en Washington el 5 de agosto de 2004, y notificará a Colombia por escrito el valor del umbral ajustado en dólares de los Estados Unidos de América y en moneda nacional, el 15 de enero del año en que el umbral ajustado tenga efecto.
 3. Costa Rica convertirá el umbral ajustado a su moneda nacional basado en el tipo de cambio oficial del Banco Central de Costa Rica, utilizando el promedio de los valores diarios de su moneda oficial en términos de dólares de los Estados Unidos de América, dentro del período de dos años que termina el 30 de setiembre del año en que Estados Unidos de América notifica el umbral ajustado.
 4. En caso que:
-(a) Costa Rica denuncie el Tratado de Libre Comercio República Dominicana – Centroamérica – Estados Unidos; o
+(a) Costa Rica denuncie el Tratado de Libre Comercio República Dominicana - Centroamérica - Estados Unidos; o
 (b) la fórmula de ajuste de umbrales indicada en el párrafo 2 sea modificada,
 el Comité acordará una fórmula alternativa de ajuste de umbrales.
 ANEXO 10-B DOCUMENTOS DE CONTRATACIÓN
