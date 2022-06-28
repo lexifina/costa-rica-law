@@ -1,0 +1,1 @@
+TRANSITORIO l- El Banco Hipotecario de la Vivienda (Banhvi) y el Consejo Nacional de la Persona Adulta Mayor (Conapam) dictarán las disposiciones reglamentarias para la aplicación de esta ley, en un plazo de seis meses, contado a partir de la publicación de esta ley.
