@@ -1,0 +1,1 @@
+ARTÍCULO 23- Reglamentación. El Instituto de Fomento y Asesoría Municipal (IFAM) deberá emitir el Reglamento General de Vivienda Municipal que las municipalidades podrán acoger como base para la implementación de la presente ley.

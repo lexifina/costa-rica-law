@@ -1,0 +1,1 @@
+TRANSITORIO I. La Superintendencia General de Entidades Financieras (Sugef) deberá reformar su normativa para incorporar el derecho de usufructo como garantía crediticia, así como cualquier otro ajuste necesario para que el Sistema Bancario Nacional implemente la presente ley, a partir en un plazo de doce meses.

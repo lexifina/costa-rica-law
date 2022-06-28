@@ -1,0 +1,1 @@
+ARTÍCULO 20- Donaciones. Se autoriza a las entidades públicas para hacer donaciones de bienes y servicios, así como transferencia de recursos a las municipalidades y al Fondo de Desarrollo de Vivienda Municipal, sin necesidad de la aprobación de una ley especial, para que se destinen al desarrollo de proyectos de vivienda municipal, salvo que se trate de bienes demaniales.
