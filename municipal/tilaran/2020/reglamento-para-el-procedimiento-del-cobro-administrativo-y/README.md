@@ -14,3 +14,4 @@ Reglamento para el Procedimiento del Cobro Administrativo y Judicial de la Munic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-08 | la propia norma |
+| 2 | 2022-06-28 | Reglamento municipal 113 (2022-06-28) |
