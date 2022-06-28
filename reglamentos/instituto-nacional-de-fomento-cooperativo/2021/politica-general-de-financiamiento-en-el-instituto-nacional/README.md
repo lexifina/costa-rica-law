@@ -14,3 +14,4 @@ Política general de financiamiento en el Instituto Nacional de Fomento Cooperat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-17 | la propia norma |
+| 2 | 2022-06-28 | Reglamento 4230 (2022-06-28) |

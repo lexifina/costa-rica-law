@@ -50,11 +50,7 @@ Capítulo Único: Políticas Generales de Financiamiento
 1. Ámbito de aplicación
 Estas políticas serán aplicadas por la Junta Directiva, el Departamento de Financiamiento, la Comisión de Crédito y la Comisión Financiera, sin embargo, es responsabilidad de todos los funcionarios involucrados directa o indirectamente en el proceso de crédito, conocerlas y acatarlas.
 2. Sujetos de crédito
-2.1 Obligaciones legales y administrativas con el Instituto, Serán Sujetos de Crédito aquellas Organismos Cooperativos que mantengan al día sus obligaciones legales y administrativas con el INSTITUTO, a saber:
-? Condiciones posteriores de créditos vigentes con el INFOCOOP.
-? Sistema de monitoreo cooperativo.
-? Alerta temprana para las cooperativas de ahorro y crédito que correspondan.
-? Constancia por parte del área de Supervisión Cooperativa del cumplimiento de las recomendaciones emitidas en las Auditorias de cumplimiento e inspecciones especificas realizadas; en el caso de que indique algún pendiente, el área de Supervisión Cooperativa deberá de realizar dictamen en un plazo de 10 días a partir de la solicitud por parte del área de Financiamiento. Este dictamen deberá indicar si los hallazgos representan impedimento para recomendar el crédito.
+2.1 (Derogado mediante sesión N° 4230 del 28 de junio del 2022)
 2.2 Clasificación de la organización cooperativa por nivel de riesgo
 El Organismo Cooperativo que solicite un crédito ante el INFOCOOP, deberá ser clasificado como Grupo A, Grupo B y Grupo C, de acuerdo con el resultado de la aplicación de la herramienta de riesgo, se procederá de la siguiente manera:
 Grupo A: Organismos cuyo nivel de riesgo con el INFOCOOP se encuentre en un rango igual o menor al 25.29%, serán sujetas de crédito
@@ -67,15 +63,8 @@ Nivel 1: Cooperativas que se encuentren según la clasificación de la cartera e
 Nivel 2: Cooperativas que se encuentren según la clasificación de la cartera en categoría B, en los tres últimos meses y dos últimos cierres anuales.
 Nivel 3: Cooperativas que se encuentren según la clasificación de la cartera en categoría C o superior, así como aquellas cooperativas que han sido sujetas de adecuaciones. Serán sujetas de crédito los Organismos Cooperativos que se encuentren en nivel 1 y 2, siempre y cuando no hayan sido beneficiadas con adecuaciones en los últimos dos años.
 Solo se aceptará Nivel 3, si la solicitud es para adecuación, en la cual no existirá desembolsos de recursos.
-2.4 Cargas parafiscales, las instituciones de la seguridad social e impuestos municipales
-Cargas parafiscales | Instituciones de Seguridad Social | Impuestos
-CENECOOP | CCSS | MUNICIPALES
-CONACOOP | FODESAF | Dirección General de Tributación Directa
-CPCA (cuando corresponda) | INA |
-| IMAS |
-Cooperativas Escolares y Estudiantiles se atenderá su Crédito conforme establece el Artículo 12 Reglamento 33059-MEP Ley 6437 art. 12 inciso a.
-2.5 Libros Legales y contables
-Se debe contar con declaración jurada el representante legal del Organismo Cooperativo que los libros legales y contables se encuentran al día.
+2.4 (Derogado mediante sesión N° 4230 del 28 de junio del 2022)
+2.5 (Derogado mediante sesión N° 4230 del 28 de junio del 2022)
 3. Aspectos generales de colocación
 3.1 De las líneas de crédito
 Las líneas de crédito a financiar son las que se detallan a continuación:
