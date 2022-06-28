@@ -18,3 +18,4 @@ Reglamento de Tarifas de Honorarios para los Profesionales de Agrimensura, Topog
 | 3 | 2012-05-11 | Ley 9036 |
 | 4 | 2017-02-21 | Acuerdo 53 (2017-02-21) |
 | 5 | 2020-06-30 | Acuerdo 29 (2020-06-30) |
+| 6 | 2022-06-28 | Acuerdo 9 (2022-06-28) |
