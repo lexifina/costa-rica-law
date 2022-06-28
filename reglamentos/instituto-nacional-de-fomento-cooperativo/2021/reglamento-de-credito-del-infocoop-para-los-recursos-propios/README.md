@@ -14,3 +14,4 @@ Reglamento de crédito del INFOCOOP para los recursos propios, juveniles y PL-48
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-11-22 | la propia norma |
+| 2 | 2022-06-28 | Reglamento 4230 (2022-06-28) |
