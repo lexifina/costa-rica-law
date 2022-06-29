@@ -14,3 +14,4 @@ Normativa del Beneficio de Gastos Funerarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-02 | la propia norma |
+| 2 | 2022-06-29 | Reglamento 2022 (2022-06-29) |
