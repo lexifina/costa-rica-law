@@ -1,0 +1,1 @@
+Artículo 6º-Carácter oficial de la atención: la atención que se cubra mediante gastos de representación y atención debe revestir carácter oficial, es decir, efectuarse dentro de una visita, evento o actividad de interés municipal en que el Alcalde o Alcaldesa incurre en este tipo de gastos y participe en representación de la Municipalidad de Tarrazú.

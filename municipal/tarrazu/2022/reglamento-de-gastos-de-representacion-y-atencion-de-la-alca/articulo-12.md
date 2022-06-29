@@ -1,0 +1,1 @@
+Artículo 12.-La Tesorería y la Alcaldía Municipal, remitirán anualmente al Concejo Municipal un informe de rendición de cuentas, respecto de la utilización de los gastos de representación y atención de actividades oficiales en la Municipalidad de Tarrazú.

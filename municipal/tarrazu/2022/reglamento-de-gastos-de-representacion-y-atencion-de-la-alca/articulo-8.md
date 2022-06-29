@@ -1,0 +1,2 @@
+Artículo 8º-Facultades de verificación. El Departamento de Tesorería de la Municipalidad de Tarrazú, queda facultada para verificar cualquier dato relacionado con el gasto de representación que esté en trámite de pago.
+Será rechazada toda gestión de cobro de gastos de representación que no se ajuste a lo establecido en este Reglamento o que la naturaleza del gasto no corresponda a gastos de representación.

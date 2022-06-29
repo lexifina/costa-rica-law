@@ -1,0 +1,1 @@
+Artículo 4º-Gastos liquidables. Podrán ser liquidados como gastos de representación, todos aquellos en que incurra el Alcalde o Alcaldesa, siempre que se origine en la atención dispensada a personas ajenas al municipio en ocasiones de actividades oficiales.

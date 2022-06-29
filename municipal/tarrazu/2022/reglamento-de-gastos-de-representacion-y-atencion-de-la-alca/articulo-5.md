@@ -1,0 +1,1 @@
+Artículo 5º-Oficialidad de los eventos. Para los efectos de este reglamento se entenderán como oficiales, todas aquellas actividades dentro del país en las que la Municipalidad figura como anfitriona y las que se realicen en el exterior, siempre que el Concejo Municipal haya acordado previamente la participación oficial del alcalde.
