@@ -1,0 +1,1 @@
+Artículo 5º.- El PNDIP 2023-2026 será formulado tomando en consideración el modelo de Gestión para Resultados en el Desarrollo (GpRD), conforme con lo establecido en la Directriz Nº093-P del 30 de octubre de 2017.

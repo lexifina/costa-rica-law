@@ -1,0 +1,1 @@
+Artículo 3º.- El MIDEPLAN como rector del Sistema Nacional de Planificación, brindará la Metodología para orientar la formulación del PNDIP 2023-2026. Las y los Ministros Rectores elaborarán las propuestas sectoriales, para ser incorporadas de acuerdo con la Metodología emitida y serán remitidas a MIDEPLAN de manera oficial, previo aval del Consejo Presidencial vinculante.
