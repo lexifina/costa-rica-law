@@ -1,5 +1,4 @@
-ARTICULO 30.- Obligaciones
-Son obligaciones básicas de los auxiliares:
+ARTICULO 30.- Obligaciones. Son obligaciones básicas de los auxiliares:
 a) Llevar registros de todas sus actuaciones y operaciones ante el Servicio Nacional de Aduanas, en la forma y condiciones que establezca la Dirección General de Aduanas. Los registros estarán a disposición de las autoridades aduaneras competentes cuando los soliciten, en cumplimiento de sus facultades de control y fiscalización.
 b) Conservar, durante un plazo de cinco años, los documentos y la información fijados reglamentariamente para los regímenes en que intervengan, salvo que exista regulación especial en contrario que exija un plazo mayor. Los documentos y la información deberán conservarse aún después de ese plazo, hasta la finalización del proceso judicial o administrativo cuando exista algún asunto pendiente de resolución.
 c) (Derogado por artículo 4° de la ley N° 8373 de 18 de agosto de 2003)
@@ -20,3 +19,5 @@ m) Indicar a la Dirección General, bajo declaración jurada rendida ante notari
 (Así adicionado el inciso anterior por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
 n) Coadyuvar con las autoridades aduaneras para el esclarecimiento de cualquier delito cometido en perjuicio del Fisco y comunicar inmediatamente, por escrito, a la autoridad aduanera, cualquier delito del que tengan conocimiento.
 (Así adicionado el inciso anterior por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
+o) Contar con el equipo y los medios tecnológicos de inspección no intrusiva con exclusión del equipo de escaneo de mercancías, que aseguren el control aduanero ejercido por el Servicio Nacional de Aduanas, para el ingreso, la revisión, la permanencia y la salida de las mercancías. La definición de equipo y los medios tecnológicos de inspección no intrusiva se desarrollará vía reglamento; además, la Dirección General de Aduanas emitirá las resoluciones de alcance general, para regular la inspección no intrusiva para cada categoría de los auxiliares de la función pública aduanera.
+(Así adicionado el inciso anterior por el artículo 1° numeral 2) de la ley N° 10271 del 22 de junio del 2022)

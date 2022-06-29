@@ -1,2 +1,1 @@
-ARTICULO 162.- Formalidades para el ingreso y salida
-El ingreso y la salida de las mercancías al amparo de este régimen será declarado por el agente aduanero de conformidad con el artículo 86 de esta ley.
+ARTICULO 162.- Formalidades para el ingreso y salida (Derogado por el artículo 3° de la ley N° 10271 del 22 de junio del 2022)

@@ -1,5 +1,4 @@
-Artículo 269.—Responsabilidad. Las empresas asumirán, en forma solidaria, la responsabilidad por los hechos y actos de sus dependientes, cuando de ellos se derive un perjuicio tributario.
-Una vez que la autoridad aduanera haya determinado el perjuicio tributario, la Dirección General de Aduanas procederá a efectuar el débito correspondiente de la cuenta corriente del agente aduanero persona jurídica, por el monto determinado.
-La falta de pago tendrá como consecuencia la imposibilidad de realizar operaciones aduaneras ulteriores; lo anterior sin perjuicio de las obligaciones y los deberes previstos para los agentes aduaneros y de las sanciones aplicables por su ejercicio personal. Los representantes legales de la persona jurídica serán responsables de girar las instrucciones, proveer los instrumentos necesarios para la correcta gestión de intermediación aduanera y cumplir las obligaciones que no le correspondan al agente aduanero persona física por su relación laboral.
-(Así modificada su numeración por el artículo 1° de la ley N° 8013 del 18 de agosto del 2000, que lo trasladó del 254 al 269)
-(Así reformado por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
+Artículo 269.- Suspensión. Procederá la suspensión de la certificación por un plazo de tres meses, cuando la Dirección General de Aduanas compruebe el incumplimiento de al menos uno de los requisitos evaluados para su certificación u
+obligaciones señaladas en el artículo 266 y 268 de esta ley, de conformidad con el procedimiento establecido en el reglamento. Dicha suspensión no derivará en una ampliación posterior del plazo otorgado de vigencia de la certificación OEA.
+Cuando el operador demuestre haber subsanado el incumplimiento dentro del plazo de la suspensión, dicha medida se levantará de forma inmediata.
+(Así adicionado por el artículo 1° numeral 19) de la ley N° 10271 del 22 de junio del 2022)

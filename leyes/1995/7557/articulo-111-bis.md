@@ -1,0 +1,3 @@
+Artículo 111 bis.- Cuantía imponible de minimis. Las mercancías que ingresen al país a través de instalaciones de carga aérea y tengan un valor FOB en aduana inferior o igual a cien pesos centroamericanos por envío, de conformidad con la factura comercial asociada a la declaración aduanera, no estarán sujetas al pago del derecho arancelario de importación, pero sí al impuesto al valor agregado y demás tributos y tasas internas correspondientes.
+El procedimiento de despacho y demás requisitos de importación aplicables tendrán carácter sumario, según las condiciones desarrolladas vía reglamentaria.
+(Así adicionado por el artículo 1° numeral 8) de la ley N° 10271 del 22 de junio del 2022)

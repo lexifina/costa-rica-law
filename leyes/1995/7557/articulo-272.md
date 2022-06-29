@@ -1,3 +1,7 @@
-ARTICULO 272.- Legislación supletoria
-En defecto de norma expresa de la legislación aduanera, son de aplicación supletoria las disposiciones del Código de Normas y Procedimientos Tributarios y demás legislación tributaria.
-(Así modificada su numeración por el artículo 1° de la ley N° 8013 del 18 de agosto del 2000, que lo trasladó del 257 al 272)
+CAPITULO III
+AGENTES ADUANEROS PERSONAS JURIDICAS
+ARTICULO 272.- Régimen jurídico
+Las empresas que ostenten la condición de agentes aduaneros personas jurídicas en el momento de publicarse esta ley, deberán cumplir con las obligaciones y responsabilidades establecidas para el auxiliar de la función pública aduanera y con el régimen jurídico que esta ley impone para el agente aduanero persona física, conforme al Título III, Capítulos I y II de esta ley, incluyendo las disposiciones relativas a la rendición de garantía.
+Estas empresas deberán contar, por lo menos, con un agente aduanero en forma exclusiva y permanente para intervenir en regímenes y operaciones aduaneras. Estos agentes representarán a la persona jurídica ante el Servicio Nacional de Aduanas.
+(Así modificada su numeración por el artículo 1° de la ley N° 8013 del 18 de agosto del 2000, que lo trasladó del 253 al 268)
+(Así modificada su numeración por el artículo 1° numeral 16) de la ley N° 10271 del 22 de junio del 2022, que lo traspasó del antiguo artículo 268 al 272)

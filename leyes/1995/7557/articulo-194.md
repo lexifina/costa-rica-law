@@ -1,11 +1,8 @@
-Artículo 194.- Medios de notificación
-El Servicio Nacional de Aduanas y el Tribunal Aduanero Nacional podrán notificar por cualquiera de los siguientes medios:
-a) Transmisión electrónica de datos en la sede de la aduana o en el domicilio señalado por el auxiliar de la función pública aduanera. La notificación surtirá efecto veinticuatro horas después del envío de la información.
-b) Mediante casilla ubicada en la aduana competente o en la Dirección General de Aduanas, según donde se desarrolle el procedimiento. Se tendrá como notificado el acto tres días hábiles después de ingresada la copia íntegra del acto en la respectiva casilla, se haya o no retirado en ese lapso. Los agentes aduaneros, los transportistas y los depositarios deben tener obligatoriamente una casilla asignada para los efectos anteriores.
-c) Personalmente, si la parte concurre a las oficinas del Servicio Nacional de Aduanas que tienen a su cargo la notificación de los actos, o a la oficina del Tribunal Aduanero Nacional.
-d) Carta certificada o telegrama, con aviso de recepción, dirigido al domicilio o al lugar designado para oír notificaciones, en cuyo caso se tendrá por notificada al quinto día hábil posterior a la fecha en que conste el recibido del destinatario. En caso de sociedades, se podrá notificar al agente residente designado.
-e) Cuando no sea posible notificar por alguno de los medios anteriores, se notificará por única publicación en el diario oficial, en cuyo caso se tendrá por efectuada al quinto día hábil posterior a esa publicación.
-f) A solicitud del interesado por medio de facsímil, correo electrónico u otros medios similares que ofrezcan la seguridad a juicio de la autoridad aduanera. La notificación surtirá efecto veinticuatro horas después del envío o el depósito de la información.
-g) Al lugar señalado por el interesado, siempre que, tratándose de las aduanas, se encuentre dentro del asiento geográfico señalado por el reglamento de esta ley. En el caso de la Dirección General de Aduanas y del Tribunal Aduanero Nacional, la notificación será en el lugar señalado dentro del perímetro de la Gran Área Metropolitana.
-La notificación debe contener copia literal del acto. Los notificadores gozarán de fe pública.
-(Así reformado por el artículo 4° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria")
+Artículo 194.- Medios de notificación y publicación. El Servicio Nacional de Aduanas y el Tribunal Aduanero Nacional deberán notificar en forma independiente a cada una de las partes, o publicar sus actos, por cualquiera de los siguientes
+medios:
+a) Buzón electrónico asignado a los obligados tributarios, sujetos pasivos y auxiliares de la función pública aduanera, por la plataforma electrónica establecida por el Ministerio de Hacienda. La notificación surtirá efecto cinco días naturales después del envío de la información.
+b) Personalmente, si la parte concurre a las oficinas del Servicio Nacional de Aduanas que tienen a su cargo la notificación de los actos, o a la oficina del Tribunal Aduanero Nacional.
+Cuando no sea posible notificar por alguno de los medios anteriores, se notificará por una única publicación en la página web del Ministerio de Hacienda, en cuyo caso se tendrá por efectuada al tercer día hábil posterior a esa publicación.
+Los actos generales se comunicarán por una única publicación en la página web del Ministerio de Hacienda, en cuyo caso se tendrá por efectuada al tercer día hábil posterior a esa publicación.
+La notificación o publicación debe contener copia literal del acto. Los notificadores gozarán de fe pública.
+(Así reformado por el artículo 2° numeral 22) de la ley N° 10271 del 22 de junio del 2022)

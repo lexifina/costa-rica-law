@@ -1,5 +1,6 @@
-Artículo 82 bis.—Rectificaciones del manifiesto de carga. Cuando el transportista haya justificado fehacientemente el faltante o sobrante de bultos, la aduana rectificará en el manifiesto lo siguiente:
-a) Rebajará del correspondiente conocimiento o guía aérea los bultos cuya falta se haya justificado.
-b) Agregará, al manifiesto del medio de transporte en que llegaron al país, una nueva partida de orden comprensivo de los bultos sobrantes, debidamente justificados.
-Los bultos sobrantes justificados podrán ser despachados a cualquiera de los regímenes o destinos aduaneros; los bultos no justificados causarán abandono a favor del Fisco, transcurrido el plazo de un mes.
+Artículo 82 bis.- Rectificaciones del manifiesto de carga. Cuando el transportista haya justificado fehacientemente el faltante o sobrante, la aduana rectificará en el manifiesto lo siguiente:
+a) Rebajará del correspondiente manifiesto o documento equivalente los faltantes debidamente justificados; o
+b) agregará al manifiesto o documento equivalente los sobrantes debidamente justificados.
+Los sobrantes justificados podrán ser despachados a cualquiera de los regímenes o destinos aduaneros.
 (Así adicionado por el artículo 2° de la ley N° 8373 de 18 de agosto de 2003 )
+(Así reformado por el artículo 2° numeral 14) de la ley N° 10271 del 22 de junio del 2022)

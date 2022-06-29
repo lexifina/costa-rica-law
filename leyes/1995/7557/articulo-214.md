@@ -1,5 +1,3 @@
 SECCIÓN II
-Delito de defraudación fiscal aduanera
-Artículo 214.- Defraudación fiscal aduanera. Quien, por acción u omisión, valiéndose de astucia, engaño o ardid, de simulación de hechos falsos o de deformación u ocultamiento de hechos verdaderos, utilizados para obtener un beneficio patrimonial para sí o para un tercero, eluda o evada, total o parcialmente, el pago de los tributos, será sancionado con pena de prisión de tres a cinco años y con una multa de dos veces el monto de los tributos dejados de percibir más sus intereses, cuando el monto de los tributos dejados de percibir exceda los cinco mil pesos centroamericanos.
-El monto de los tributos dejados de percibir será fijado en sede judicial mediante la determinación que realice la autoridad aduanera de acuerdo con lo establecido en el artículo 227 de esta ley, referente al tratamiento del monto de los tributos evadidos, o bien mediante estimación pericial.
-(Así reformado por el artículo 1° de la Ley para mejorar la lucha contra el contrabando, N° 9328 del 19 de octubre de 2015)
+(Derogada la sección anterior por el artículo 3° de la ley N° 10271 del 22 de junio del 2022)
+Artículo 214.- Defraudación fiscal aduanera. (Derogado por el artículo 3° de la ley N° 10271 del 22 de junio del 2022)

@@ -1,2 +1,5 @@
-Artículo 269 bis.—Sanciones. Las sanciones previstas en esta Ley se impondrán a la persona jurídica, cuando se demuestre que los representantes legales o los personeros de la empresa han propiciado actos o hechos que posibilitan la sanción, de conformidad con lo dispuesto en el artículo anterior; en caso contrario, responderá únicamente el agente de aduanas acreditado.
-(Así adicionado por el artículo 2° de la ley N° 8373 de 18 de agosto de 2003)
+Artículo 269 bis.- Cancelación. Procederá la cancelación de la certificación, cuando durante el periodo de vigencia de su certificación, el OEA:
+1. Al ser suspendido, no subsane los incumplimientos determinados por la DGA dentro del plazo otorgado.
+2. Se le suspenda los beneficios de la certificación OEA por más de dos ocasiones, durante el periodo de vigencia de la certificación.
+3. Sea sancionado en firme, por infracciones administrativas, tributarias aduaneras, delitos, o presente adeudos tributarios o aduaneros, en los términos desarrollados en el reglamento o disposición administrativa. En el caso de la comisión de un delito penal en firme, no podrá gestionar una nueva solicitud de certificación OEA hasta que hayan transcurrido diez años; en los demás supuestos, hasta que haya transcurrido un año. En ambos casos, el plazo contará a partir de la firmeza del acto de cancelación de la certificación OEA.
+(Así adicionado por el artículo 1° numeral 20) de la ley N° 10271 del 22 de junio del 2022)

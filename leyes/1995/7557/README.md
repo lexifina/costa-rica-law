@@ -1,6 +1,6 @@
 # Ley General de Aduanas
 
-Ley N° 7557 del 1995-10-20. SINALEVI, ficha 25886: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=25886&param2=125179&param3=1>.
+Ley N° 7557 del 1995-10-20. SINALEVI, ficha 25886: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=25886&param2=131179&param3=1>.
 
 Publicada en La Gaceta N° 212 del 1995-11-08.
 
@@ -18,3 +18,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 8 de 11 | 2015-11-12 | Ley 9328 | 2015-10-19 |
 | 9 de 11 | 2021-02-17 | Ley 9947 | 2021-02-15 |
 | 10 de 11 | 2021-04-23 | Ley 9977 | 2021-04-05 |
+| 11 de 11 | 2022-06-29 | Ley 10271 | 2022-06-22 |
