@@ -14,3 +14,4 @@ Reglamento para el otorgamiento del carné de manipuladores de alimentos y recon
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-23 | la propia norma |
+| 2 | 2022-06-29 | Decreto Ejecutivo 43651 (2022-06-29) |
