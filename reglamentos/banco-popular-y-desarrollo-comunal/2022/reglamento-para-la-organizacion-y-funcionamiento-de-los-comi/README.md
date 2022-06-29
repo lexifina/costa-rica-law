@@ -14,3 +14,4 @@ Reglamento para la organización y funcionamiento de los comités y comisiones d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-06-21 | la propia norma |
+| 2 | 2022-06-29 | Reglamento 5931 (2022-06-29) |
