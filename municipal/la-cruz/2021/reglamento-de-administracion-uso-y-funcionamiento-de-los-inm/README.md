@@ -14,3 +14,4 @@ Reglamento de administración, uso y funcionamiento de los inmuebles e instalaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-19 | la propia norma |
+| 2 | 2022-06-29 | Reglamento municipal 37 (2022-06-29) |
