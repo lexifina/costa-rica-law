@@ -1,0 +1,1 @@
+Artículo 17.-Informes y recomendaciones. Los informes y recomendaciones que emita la Contraloría de Servicios deberán ser remitidos a la Alcaldía Municipal o al Concejo Municipal según corresponda, para adoptar las acciones que resulten necesarias para el mejoramiento del servicio.

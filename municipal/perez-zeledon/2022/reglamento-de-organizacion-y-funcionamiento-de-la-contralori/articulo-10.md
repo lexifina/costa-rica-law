@@ -1,0 +1,1 @@
+Artículo 10.-Incompetencia. Cuando una gestión no se refiera a las competencias propias de las contralorías de servicios o cuando se trate de asuntos propios de la auditoría interna, serán trasladados a los órganos o unidades competentes en un plazo máximo de 5 días hábiles.

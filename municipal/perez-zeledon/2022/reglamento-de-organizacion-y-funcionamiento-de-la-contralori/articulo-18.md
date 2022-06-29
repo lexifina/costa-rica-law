@@ -1,0 +1,1 @@
+Artículo 18.-Asesoría. El Contralor de Servicios podrá requerir la asesoría por medios internos o externos que estime necesarios para su desempeño. En caso de consulta o asesoría legal se podrá solicitar criterio a nivel interno de un Asesor Jurídico de la Municipalidad. En el caso de consulta externa por medio de la Secretaría Técnica del Sistema u otra entidad competente.

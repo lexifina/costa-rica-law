@@ -1,0 +1,1 @@
+Artículo 14.-Acceso a la información. A solicitud de la persona interesada, la contraloría de Servicios podrá intervenir por el cumplimiento de la obtención de una respuesta en las solicitudes formales de acceso a la información pública, en caso que haya transcurrido el plazo de 10 días hábiles y no se haya obtenido respuesta al tema de interés del solicitante.

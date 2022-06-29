@@ -1,0 +1,1 @@
+Artículo 8º-Dotación de recursos. Para el cumplimiento de sus objetivos y funciones, la Contraloría de Servicios dispondrá de los recursos humanos y materiales necesarios; los que se contemplarán dentro del presupuesto institucional, a efecto de programar y ejercer adecuadamente su gestión.

@@ -1,0 +1,2 @@
+Artículo 22.-Obligación de colaboración. Todas las dependencias y funcionarios de la Municipalidad deberán prestar colaboración a la Contraloría de Servicios, cuando esta lo requiere. La negativa o negligencia del funcionario, que no brinde su colaboración cuando le sea solicitada, o el incumplimiento del presente Reglamento, hará incurrir en responsabilidad por omisión a sus deberes.
+Rige a partir de su publicación.

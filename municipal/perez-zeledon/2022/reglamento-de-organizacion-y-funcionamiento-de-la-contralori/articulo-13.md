@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De los servicios
+Artículo 13.-Presentación de gestiones de los usuarios. Toda persona individual, jurídica o colectiva podrá plantear ante la Contraloría de servicios, inconformidades, denuncias, consultas, sugerencias, o felicitaciones respecto a la prestación de los servicios brindados por la institución y sobre las actuaciones de los (las) funcionarios (as) cuando en el ejercicio de sus labores estimen que afecten directa o indirectamente los servicios prestados. Para la presentación de su gestión, el usuario realizará la manifestación que lo motiva por algún medio escrito o electrónico formal o de manera verbal, tomándose la declaración ante la Contraloría de Servicios.

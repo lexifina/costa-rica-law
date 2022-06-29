@@ -1,0 +1,1 @@
+Artículo 21.-Régimen disciplinario. Las violaciones que se cometan a los deberes impuestos contra los derechos de las personas usuarias, en las condiciones del servicio, así como la negligencia y otras irregularidades detectadas en la prestación de los servicios, serán trasladadas por la Contraloría de servicios a la Alcaldía o Concejo según corresponda.
