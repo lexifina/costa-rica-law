@@ -1,12 +1,28 @@
-Artículo 81.—Bultos faltantes y sobrantes. Cuando al finalizar la descarga del medio de transporte, resulten más o menos bultos respecto de la cantidad declarada en el manifiesto o documento equivalente y así lo verifique y transmita el auxiliar receptor de la mercancía, el transportista deberá justificar ante la aduana de control el faltante o el sobrante de bultos, dentro del plazo máximo de un mes contado a partir de finalizada la descarga.
-Si faltan bultos, la aduana aceptará la justificación solo cuando se demuestre fehacientemente que las mercancías:
-a) No fueron cargadas.
-b) Se perdieron en accidente.
-c) Fueron descargadas en lugar distinto.
-d) Quedaron a bordo del medio de transporte, por error.
-e) La falta de las mercancías se produjo por caso fortuito o fuerza mayor.
-De sobrar bultos, se aceptará la justificación cuando el transportista demuestre que las mercancías estaban destinadas a otro puerto o aeropuerto. En caso contrario, las mercancías causarán abandono a favor del Fisco; en tal situación, el consignatario no podrá disponer de las mercancías.
-Cuando el transportista no pueda justificar ninguna de las situaciones anteriores, incurrirá en las sanciones correspondientes, sin perjuicio de la responsabilidad por los delitos o las infracciones previstos en esta Ley.
-Cuando el transportista haya recibido los contenedores cerrados con los dispositivos de seguridad, la responsabilidad de justificar los bultos sobrantes o faltantes recaerá en el exportador o embarcador.
-Para los efectos de este artículo, la justificación correspondiente deberá ser emitida por el representante legal del transportista en el puerto de embarque, mediante documento otorgado ante notario público del lugar y debidamente legalizado, por medio del procedimiento consular o del representante legal en el país, acreditado ante la Dirección General de Aduanas.
-(Así reformado por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
+Artículo 81.- Bultos o mercancías faltantes y sobrantes. Cuando al finalizar la descarga del medio de transporte, sea en el puerto de arribo o en otro lugar habilitado para la recepción de la carga, resulten más o menos mercancías o bultos, conforme a las disposiciones administrativas, respecto de la cantidad y naturaleza declarada en el manifiesto, conocimiento de embarque, o documento equivalente según corresponda, y así lo verifique y transmita el auxiliar receptor de la mercancía, el responsable deberá justificar ante la aduana de control el faltante o el sobrante, conforme a la normativa regional y las disposiciones establecidas mediante reglamento, dentro de los quince días hábiles siguientes a la finalización de la descarga.
+Una vez recibidos los bultos/mercancías sobrantes o detectados los faltantes, la administración transmitirá el mensaje correspondiente en la aplicación informática para el registro en esa condición, a efectos de la justificación respectiva, sin detrimento que las mercancías correctamente manifestadas puedan continuar el proceso aduanero respectivo.
+El plazo máximo de quince días se contará a partir del día siguiente de la finalización de la descarga, sea en el puerto de arribo o en otro lugar habilitado para la recepción de la carga o de la notificación del documento de recepción de esta, en el que se hará constar la diferencia detectada, según lo defina el Servicio Aduanero.
+La aduana de control, si no acepta las justificaciones, emitirá resolución razonada dentro de los tres días posteriores a la recepción de las justificaciones, en las que expondrá las razones de rechazo. Si la solicitud no es resuelta en el plazo señalado, se entenderá que la resolución es favorable al solicitante.
+Las causales admisibles en la justificación de faltantes son:
+a) No fueron cargadas en el medio de transporte.
+b) Fueron perdidas o destruidas durante el viaje.
+c) Fueron descargadas por error en lugar distinto del indicado en el manifiesto, conocimiento de embarque o documento equivalente, cuando corresponda.
+d) No fueron descargadas del medio de transporte.
+e) La falta de los bultos o las mercancías se produjo por caso fortuito o fuerza mayor.
+f) Otras causas permitidas vía reglamento.
+Las causales admisibles en la justificación de sobrantes son:
+a) Fueron cargadas o descargadas por error o hicieron falta en otro puerto o aeropuerto.
+b) Existen errores en la información transmitida en el manifiesto de carga, conocimiento de embarque o documento equivalente respecto a lo declarado.
+c) Existan errores en la transmisión.
+d) Fraccionamiento del embalaje.
+e) Otras causas permitidas vía reglamento.
+Cuando se demuestre que los sobrantes estaban destinados a un lugar distinto del indicado en el manifiesto, conocimiento de embarque o documento equivalente·, los bultos o las mercancías deberán ser reembarcadas dentro de un plazo máximo de un mes desde el arribo de las mercancías a puerto aduanero costarricense.
+Cuando no sean justificados los sobrantes, las mercancías causarán abandono a favor del Fisco, pudiendo recuperarlas mediante el rescate de mercancías, previo pago de la obligación tributaria aduanera por parte del consignatario o quien compruebe derecho sobre las mercancías, sin perjuicio de las acciones sancionatorias que corresponda.
+Los responsables de justificar los sobrantes y faltantes de bultos o mercancías son:
+a) El transportista o su representante legal, o persona autorizada por este en el puerto de carga o descarga, en el caso de sobrantes o faltantes de bultos que le sean atribuibles.
+b) El exportador o embarcador, y/o el consignatario a través de su representante en el país de desembarque, o la persona autorizada por este, cuando el transportista haya recibido los contenedores cerrados con los dispositivos de seguridad.
+c) El exportador o embarcador, y/o el consignatario a través de su representante en el país de desembarque, o la persona autorizada por este, en el caso de sobrantes o faltantes de mercancías, y/o diferencias en el conocimiento de embarque que le sean atribuibles.
+d) El consolidador, la empresa de entrega rápida o courier, o el consignatario cuando sea este el que realizó el envío y la diferencia se dé respecto de lo declarado en el conocimiento de embarque (guías aéreas hijas) que le es atribuible.
+El Servicio Nacional de Aduanas podrá requerir, en casos calificados, que la justificación también sea emitida por el representante legal del transportista en el puerto de embarque, cuando sea una empresa domiciliada en el exterior o por su representante en el país, el exportador o embarcador, el desconsolidador, la empresa de entrega rápida o courier, mediante la presentación del documento comprobatorio. No obstante lo anterior, la justificación recaerá por quien sea responsable y dicha responsabilidad no será transmisible a cualquier otro auxiliar que participe.
+Presentadas y aceptadas las justificaciones de los sobrantes, la aduana de control, a más tardar dentro del día hábil siguiente, resolverá y ordenará practicar las rectificaciones en el respectivo manifiesto de carga, rebajando del correspondiente manifiesto de carga los faltantes debidamente justificado o agregando, al manifiesto de carga, los sobrantes debidamente justificados.
+Cuando el responsable no pueda justificar ninguna de las situaciones anteriores, incurrirá en la infracción prevista en esta ley. Ningún documento requerido para la justificación de faltantes y sobrantes de bultos o mercancía, o documento comprobatorio solicitado en casos calificados, estará sujeto al requisito de visado consular o legalización.
+(Así reformado por el artículo 2° numeral 12) de la ley N° 10271 del 22 de junio del 2022)

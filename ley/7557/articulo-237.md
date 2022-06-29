@@ -1,16 +1,6 @@
-ARTICULO 237.- Suspensión de dos días
-Será suspendido por dos días hábiles del ejercicio de su actividad ante la autoridad aduanera, el auxiliar de la función pública aduanera que:
-a) No comunique, en el plazo correspondiente, cualquier irregularidad respecto de las condiciones y el estado de embalajes, sellos o precintos, cuando le corresponda recibir o entregar mercancías, vehículos o unidades de transporte bajo control aduanero.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
-b) Estando obligado, incumpla las disposiciones de procedimiento y control emitidas por las autoridades aduaneras, o no mantenga a disposición de esas autoridades los medios de control de ingreso, permanencia y salida de las mercancías, los vehículos y las unidades de transporte.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
-c) Si se trata de un transportista aduanero, no mantenga inscritos los vehículos y las unidades de transporte utilizados en el tránsito aduanero.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
-d) (Nota de Sinalevi: Este inciso fue reformado por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003. No obstante; el numeral 4 aparte i) de la misma ley referida lo derogó)
-e) (Derogado por el inciso e) del artículo 4° de la ley N° 8373 de 18 de agosto de 2003)
-f) Como transportista aduanero utilice, para el tránsito aduanero de mercancías, vehículos o unidades de transporte que incumplan las condiciones técnicas y de seguridad.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
-g) Como depositario aduanero, no mantenga, dentro de la bodega destinada a depósito, un área de al menos doscientos cincuenta metros cuadrados (250 m²), para el examen previo de las mercancías y/o su verificación física.
-(Así adicionado el inciso anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
-En los casos de los incisos b), c), d), f) y g) de este artículo, la suspensión se extenderá hasta que cumpla las respectivas obligaciones.
-(Así reformado el párrafo anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
+Artículo 237.- Multa de mil pesos centroamericanos. Será sancionado con una multa de mil pesos centroamericanos o su equivalente en moneda nacional:
+1. Quien, como transportista que declara el ingreso a territorio aduanero de las unidades de transporte y sus cargas, no traslade la mercancía caída en abandono al depósito aduanero que designe la aduana de control, dentro del plazo legalmente establecido.
+2. Incumpla la obligación de mantener mercancías únicamente en lugares habilitados o autorizados, si se trata de empresas, obligadas a ello.
+3. Estando obligado, no permita el acceso de la autoridad aduanera a sus instalaciones, zonas de producción, bodegas o registros de costos de producción para la verificación y el reconocimiento correspondientes de las mercancías y su destino final, o entorpezca o no permita la inspección aduanera de las mercancías, los vehículos, las unidades de transporte y sus cargas o la verificación de los documentos o autorizaciones que los amparen.
+4. Estando autorizado para depositar, transportar o declarar el tránsito de mercancías peligrosas para la salud humana, animal o vegetal o el medio ambiente, no cumpla con las medidas de seguridad fijadas en la legislación o por las autoridades competentes.
+(Así reformado por el artículo 2° numeral 40) de la ley N° 10271 del 22 de junio del 2022)

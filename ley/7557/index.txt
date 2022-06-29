@@ -15,6 +15,7 @@ articulo-13.md
 articulo-14.md
 articulo-15.md
 articulo-16.md
+articulo-16-bis.md
 articulo-17.md
 articulo-18.md
 articulo-19.md
@@ -65,6 +66,8 @@ articulo-58.md
 articulo-59.md
 articulo-60.md
 articulo-61.md
+articulo-61-bis.md
+articulo-61-ter.md
 articulo-62.md
 articulo-63.md
 articulo-64.md
@@ -95,6 +98,7 @@ articulo-82-ter.md
 articulo-83.md
 articulo-84.md
 articulo-85.md
+articulo-85-bis.md
 articulo-86.md
 articulo-87.md
 articulo-88.md
@@ -113,6 +117,7 @@ articulo-99.md
 articulo-100.md
 articulo-101.md
 articulo-102.md
+articulo-102-bis.md
 articulo-103.md
 articulo-104.md
 articulo-105.md
@@ -121,8 +126,11 @@ articulo-107.md
 articulo-108.md
 articulo-109.md
 articulo-110.md
+articulo-110-bis.md
 articulo-111.md
+articulo-111-bis.md
 articulo-112.md
+articulo-112-bis.md
 articulo-113.md
 articulo-114.md
 articulo-115.md
@@ -148,6 +156,7 @@ articulo-134.md
 articulo-135.md
 articulo-136.md
 articulo-137.md
+articulo-137-bis.md
 articulo-138.md
 articulo-139.md
 articulo-140.md
@@ -200,6 +209,7 @@ articulo-183.md
 articulo-184.md
 articulo-185.md
 articulo-186.md
+articulo-186-bis.md
 articulo-187.md
 articulo-188.md
 articulo-189.md
@@ -264,6 +274,8 @@ articulo-240.md
 articulo-241.md
 articulo-242.md
 articulo-242-bis.md
+articulo-242-ter.md
+articulo-242-quater.md
 articulo-243.md
 articulo-244.md
 articulo-245.md
@@ -298,6 +310,11 @@ articulo-270.md
 articulo-271.md
 articulo-272.md
 articulo-273.md
+articulo-273-bis.md
+articulo-274.md
+articulo-275.md
+articulo-276.md
+articulo-277.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md
@@ -308,3 +325,7 @@ articulo-7-transitorio.md
 articulo-8-transitorio.md
 articulo-9-transitorio.md
 articulo-10-transitorio.md
+articulo-11-transitorio.md
+articulo-12-transitorio.md
+articulo-13-transitorio.md
+articulo-14-transitorio.md

@@ -1,3 +1,2 @@
-Artículo 199.- Plazo para que la aduana dicte la resolución
-Dentro de un plazo de dos meses, contado desde la fecha de interposición, la aduana competente deberá dictar el acto que resuelve el recurso de reconsideración.
-(Así reformado por el artículo 4° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria")
+Artículo 199.- Remisión del recurso. Dentro de los cinco días hábiles siguientes a la fecha de recepción del recurso de revisión en la aduana o en la Dirección General de Aduanas, la aduana competente se limitará a remitir, a la Dirección General de Aduanas, el expediente administrativo que dio lugar al acto, junto con el recurso, cuando corresponda.
+(Así reformado por el artículo 2° numeral 25) de la ley N° 10271 del 22 de junio del 2022)
