@@ -1,0 +1,1 @@
+Artículo 10.-Uso personal de la Firma Digital. La firma digital podrá ser utilizada para fines personales de la persona funcionaria, según el artículo 7 de decreto N° 067-MICITT-HMEIC, conforme a un uso y tiempo racional sin mediar una desatención total de sus funciones ordinarias y con el aval y fiscalización del superior jerárquico inmediato.
