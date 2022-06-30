@@ -18,3 +18,4 @@ Reglamento de la Junta Directiva, Presidencia Ejecutiva y Órgano Gerencial de A
 | 3 | 2019-11-19 | Reglamento 70 (2019-11-19) |
 | 4 | 2020-03-04 | Reglamento 13 (2020-03-04) |
 | 5 | 2020-07-01 | Reglamento 40 (2020-07-01) |
+| 6 | 2022-06-30 | Reglamento 31 (2022-06-30) |
