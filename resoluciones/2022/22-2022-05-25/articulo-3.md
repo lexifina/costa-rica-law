@@ -1,0 +1,2 @@
+Artículo 3º-A partir del 01 de julio de 2022, se deja sin efecto el monto establecido en la Resolución Administrativa N° DE-RE-A-12-2022, publicada en el Diario Oficial La Gaceta N° 52, del jueves 17 de marzo de 2022, que actualizó el impuesto específico creado por el artículo 10 de la Ley 5792, para los meses de abril, mayo y junio del año 2022.
+Dado en la ciudad de Moravia, a los 25 días del mes de mayo de 2022.
