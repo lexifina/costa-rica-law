@@ -1,1 +1,0 @@
-Artículo 22- En caso de empate, se procederá conforme lo estipula el artículo 138 de la Constitución Política de la República de Costa Rica, teniendo por elegido al candidato de mayor edad, de entre los candidatos que encabecen los resultados y posean igual número de votos, por cada puesto.

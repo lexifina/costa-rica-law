@@ -1,1 +1,0 @@
-Artículo 5- La Administración del Colegio de Contadores Públicos de Costa Rica, brindará los recursos y apoyo logístico que se requiera para llevar a cabo el Proceso Electoral con el fin de garantizar el cumplimiento de este reglamento, conforme a la disponibilidad presupuestaria.

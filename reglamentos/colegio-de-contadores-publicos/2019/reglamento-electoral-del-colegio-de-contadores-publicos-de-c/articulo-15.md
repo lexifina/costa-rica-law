@@ -1,1 +1,0 @@
-Artículo 15- Durante la Campaña Electoral los candidatos pueden participar de los debates organizados por el Comité Electoral para explicar y promocionar su candidatura y su Plan de Trabajo a través de los medios de comunicación que disponga el Colegio de Contadores Públicos de Costa Rica o bien, si utiliza otros medios, el costo debe ser asumido por el o los candidatos.

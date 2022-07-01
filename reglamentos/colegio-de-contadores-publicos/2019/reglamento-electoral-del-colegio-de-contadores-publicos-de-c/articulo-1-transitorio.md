@@ -1,1 +1,0 @@
-Artículo Transitorio Único: Para las elecciones del 2020 y por única vez, para la juramentación de las autoridades elegidas, la Asamblea General correspondiente será realizada el 30 de enero de 2020, de conformidad con el artículo 20 de la Ley 1038.”

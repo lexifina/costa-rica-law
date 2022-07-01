@@ -1,1 +1,0 @@
-Artículo 47 – Cualquier incumplimiento a este reglamento será considerado como falta grave, no podrá postularse como candidato o participar del Proceso Electoral durante los siguientes dos (2) periodos electorales.

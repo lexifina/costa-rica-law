@@ -1,1 +1,0 @@
-Artículo 25 – En caso de una ausencia permanente de cualquier miembro que ocupe alguno de los puestos nombrados en el artículo 2 de este reglamento, deberá ser nombrado por la Asamblea General, de acuerdo con la Ley de Creación del Colegio de Contadores Públicos 1038 y su Reglamento.

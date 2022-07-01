@@ -1,1 +1,0 @@
-Artículo 19- La apertura de las votaciones será realizada durante la Asamblea General y el cierre, una vez que el Comité Electoral lea ante la Asamblea General el acta oficial con el resultado de las elecciones.
