@@ -1,0 +1,1 @@
+Artículo 28.- Estos establecimientos deben disponer de las medidas de prevención contra incendios y el número de extintores de acuerdo con el área a proteger, colocados en sitios libres de obstáculos y debidamente señalizados.

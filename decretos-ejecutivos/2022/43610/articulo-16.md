@@ -1,0 +1,1 @@
+Artículo 16.- Los lugares destinados a templos o locales de culto respetarán la capacidad de área física disponible, la cual establece un asistente por cada metro cuadrado (1,00 m2) de área total de la nave.

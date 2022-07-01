@@ -1,0 +1,1 @@
+Artículo 31.- Cuando un establecimiento de este tipo incumpla con lo señalado en el artículo anterior, estará obligado a efectuar las acciones correctivas necesarias para contener, dentro de su propiedad, el ruido generado de manera tal que lo minimicen a los niveles establecidos en la normativa vigente.

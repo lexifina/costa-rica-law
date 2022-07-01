@@ -1,0 +1,1 @@
+Artículo 15.- Los requisitos de infraestructura y las condiciones físico-sanitarias contenidas en el presente cuerpo normativo, son obligatorias para todos aquellos templos o locales de culto, en los términos y condiciones que señala este Reglamento.

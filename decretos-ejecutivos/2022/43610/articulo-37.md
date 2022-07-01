@@ -1,0 +1,1 @@
+Artículo 37.- En caso de suspensión o cancelación del Permiso Sanitario de Funcionamiento, el mismo será nuevamente activado u otorgado en el momento que se demuestre el cumplimiento de las medidas que motivaron la suspensión o cancelación del mismo, previa verificación, por parte de la autoridad de salud competente, de que no existen anomalías.

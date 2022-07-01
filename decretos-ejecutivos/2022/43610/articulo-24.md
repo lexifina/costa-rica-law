@@ -1,0 +1,1 @@
+Artículo 24.-Los templos o lugares de culto deben contar con un sistema de alumbrado de emergencia de encendido automático, alimentado por acumuladores o baterías, que proporcionará a la sala, vestíbulo, pasillos de circulación y letreros, la iluminación necesaria mientras entra en operación la iluminación general en caso de que el servicio eléctrico sea interrumpido.

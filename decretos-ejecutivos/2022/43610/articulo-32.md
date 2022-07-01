@@ -1,0 +1,1 @@
+Artículo 32.- Cuando la autoridad de salud determine técnicamente el incumplimiento de lo expuesto en el numeral anterior, ordenará inmediatamente, con la emisión de una orden sanitaria, la suspensión de la fuente de contaminación que genera dicha molestia, hasta tanto no se realice el confinamiento del ruido dentro del inmueble respectivo.

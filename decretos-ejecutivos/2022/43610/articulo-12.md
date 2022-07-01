@@ -1,0 +1,1 @@
+Artículo 12.- Ningún Permiso Sanitario de Funcionamiento podrá ser renovado ni prorrogado cuando existan órdenes sanitarias pendientes de cumplir o incumplidas por la parte interesada o se hayan obviado los requisitos señalados en el presente Reglamento.

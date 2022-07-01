@@ -1,0 +1,1 @@
+Artículo 17.- El volumen de las salas que ocupan templos o lugares de culto se calculará a razón de dos y medio metros cúbicos (2,50 m3) por asistente como mínimo. La altura libre de las mismas, en ningún punto será menor de tres metros (3,00 m).
