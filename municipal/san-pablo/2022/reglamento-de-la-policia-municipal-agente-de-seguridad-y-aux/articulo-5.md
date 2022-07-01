@@ -1,0 +1,1 @@
+Artículo 5.-El funcionamiento. La Policía Municipal no podrá interferir en las competencias de origen constitucional atribuidas al Poder Ejecutivo, además deberá coordinar acciones con la policía nacional.

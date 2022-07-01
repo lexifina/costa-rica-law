@@ -1,0 +1,1 @@
+Artículo 34.-Sobre la indumentaria y equipo. Deberán utilizarse únicamente los suministrados por la institución o los autorizados por las jefaturas, previa valoración técnica que permita comprobar su calidad y nivel de seguridad adecuados para la función policial. Esto no aplica para armas de fuego, municiones, ni agentes químicos.

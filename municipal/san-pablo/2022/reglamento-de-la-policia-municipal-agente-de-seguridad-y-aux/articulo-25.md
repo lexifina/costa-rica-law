@@ -1,0 +1,1 @@
+Artículo 25.-De los aspirantes. Será necesario aplicar la respectiva prueba doping a los aspirantes de ingreso laboral al departamento de Policía Municipal, la cual debe marcar negativo el resultado para la respectiva contratación.

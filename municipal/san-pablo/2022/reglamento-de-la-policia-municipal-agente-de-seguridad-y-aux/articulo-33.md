@@ -1,0 +1,1 @@
+Artículo 33.-Sobre la Identificación en el Uniforme. Todos los miembros del departamento de Policía Municipal deberán portar en la parte frontal de su uniforme, el carné de identificación brindado por la institución.

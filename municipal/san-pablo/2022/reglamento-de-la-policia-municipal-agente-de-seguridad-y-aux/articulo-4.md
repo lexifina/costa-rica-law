@@ -1,0 +1,1 @@
+Artículo 4.-Jurisdicción territorial. El departamento de Policía Municipal únicamente tendrá competencia dentro del cantón de San Pablo de la provincia de Heredia y puede realizar convenios con otros cantones cercanos o de beneficios a la institución para capacitaciones, trabajos en conjunto y toda acción que beneficie al cantón de San Pablo y departamento de Policía Municipal.

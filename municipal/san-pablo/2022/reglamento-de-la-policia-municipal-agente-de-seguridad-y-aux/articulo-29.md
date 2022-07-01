@@ -1,0 +1,1 @@
+Artículo 29.-Sanciones. Las faltas descritas en los numerales anteriores serán sancionadas con base en lo establecido en el Código Municipal, Reglamento Autónomo de la Municipalidad de San Pablo de Heredia y los procedimientos de la Ley General de la Administración Pública.

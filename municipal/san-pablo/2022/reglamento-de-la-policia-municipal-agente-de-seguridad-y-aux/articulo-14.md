@@ -1,0 +1,1 @@
+Artículo 14.-Sobre la designación de grados policiales. La designación de los grados policiales corresponderá al alcalde por recomendación de la asesoría profesional de la jefatura del departamento de Policía Municipal. La administración, definirá vía resolutiva las diferentes escalas que se adoptarán y sus requisitos.

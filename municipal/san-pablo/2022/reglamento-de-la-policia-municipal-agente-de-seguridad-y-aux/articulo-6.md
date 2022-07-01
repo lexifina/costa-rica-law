@@ -1,0 +1,1 @@
+Artículo 6.-Competencia. El departamento de Policía Municipal velará por la seguridad de las personas y el orden público del cantón, mediante una acción coordinada con las fuerzas de policía del país. Brindará seguridad, vigilancia, control de los servicios y bienes comunales y ejecutará las acciones pertinentes que se deriven como consecuencia de su fiscalización.
