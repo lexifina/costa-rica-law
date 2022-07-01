@@ -1,0 +1,1 @@
+Artículo 5º-Se deja sin vigencia la resolución RES-DGH-039-2021 y RES-DGA-451-2021 de la Dirección General de Hacienda y de la Dirección General de Aduanas del Ministerio de Hacienda, San José, de las nueve horas del día ocho de diciembre de dos mil veintiuno, publicada en La Gaceta Nº 242 del jueves 16 diciembre del 2021.
