@@ -1,0 +1,2 @@
+Artículo 20.-Conforme al artículo N° 24 inciso a) de la Ley 1038 la Junta Directiva del Colegio convocará a Asamblea General para llevar a cabo las elecciones en la segunda quincena del mes de enero según el artículo N° 18 de la Ley 1038.
+La apertura de la Asamblea General en primera convocatoria a las 7:00 horas y segunda convocatoria a las 7 horas con treinta minutos y el proceso electoral en un horario de las 08:00 horas a las 16:00 horas.

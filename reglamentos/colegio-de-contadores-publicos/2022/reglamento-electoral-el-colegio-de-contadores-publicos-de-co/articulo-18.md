@@ -1,0 +1,3 @@
+CAPÍTULO VI: IV ETAPA
+Elecciones
+Artículo 18.-Corresponde a la Junta Directiva hacer la convocatoria de la asamblea general ordinaria para la elección de los integrantes de la Junta Directiva, Comité Consultivo Permanente y Tribunal de Honor con sus suplentes, de conformidad con el artículo 18 y 19 de la Ley 1038 y su Reglamento a la Ley. Dentro de la agenda de convocatoria deberá contemplarse como puntos de la sesión entre otros, la apertura de la asamblea, la elección de los integrantes, con la indicación de la hora en la que se procederá con cada uno de los puntos de la agenda, lo anterior sin perjuicio de que la asamblea por mayoría absoluta acuerde modificar el orden del día y no podrá agregar nuevos asuntos no contemplados en la agenda de la convocatoria.

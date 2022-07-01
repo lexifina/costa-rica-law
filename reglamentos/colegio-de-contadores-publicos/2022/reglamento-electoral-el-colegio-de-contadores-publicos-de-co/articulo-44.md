@@ -1,0 +1,1 @@
+Artículo 44.-Se prohíbe que los candidatos reciban contribuciones para sus gastos de propaganda y organización, directa o indirectamente, de parte de organizaciones políticas, entidades religiosas, empresas comerciales, o personas físicas ajenas al colegio.
