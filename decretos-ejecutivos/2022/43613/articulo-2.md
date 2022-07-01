@@ -1,0 +1,1 @@
+Artículo 2°-Deróguese el Decreto Ejecutivo número 43460-H del 16 de marzo de 2022, publicado en el Alcance número 63 a La Gaceta número 61 del 30 de marzo de 2022, a partir de la vigencia del presente decreto.
