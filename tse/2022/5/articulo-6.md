@@ -1,0 +1,4 @@
+Artículo 6º-De otros vehículos en general. Debido a la función de administración electoral que ejerce el Tribunal para atender la logística propia de los comicios electorales, la flotilla institucional deberá ampliarse con los siguientes vehículos:
+a) Vehículos arrendados: aquellos vehículos que la institución renta mediante un proceso concursal que se rige bajo los principios y las condiciones que establece la normativa que regula la contratación pública.
+Las características de estos vehículos serán determinadas en el contrato de arrendamiento que se establezca de acuerdo con las condiciones cartelarias.
+b) Vehículos en condición de préstamo por convenio: son aquellos vehículos propiedad de otras instituciones públicas, facilitados al Tribunal en calidad de préstamo mediante un convenio interinstitucional.

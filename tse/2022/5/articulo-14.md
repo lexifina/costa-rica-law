@@ -1,0 +1,4 @@
+Artículo 14.-De las unidades administrativas requirentes. Las unidades administrativas que requieren el servicio de la Unidad de Transportes deberán cumplir con las siguientes disposiciones:
+a) Completar y remitir a la Unidad de Transportes el formulario establecido para solicitar el servicio de transporte, el cual será tramitado de acuerdo a lo estipulado en el artículo 11 de este reglamento.
+b) Informar a la Unidad de Transportes en caso de que exista un retraso en la hora de salida o si se debe cancelar el viaje.
+c) Solicitar autorización al Director Ejecutivo, para que otras personas funcionarias puedan fungir como conductores de esta Administración, en casos de necesidad comprobada como inopia o urgencia, siempre que cumplan con los requisitos que exigen tanto la Ley de Tránsito, como la presente norma.

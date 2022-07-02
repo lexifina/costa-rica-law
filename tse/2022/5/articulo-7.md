@@ -1,0 +1,6 @@
+Artículo 7º-De los vehículos de uso administrativo general, arrendados y en condición de convenio. Los vehículos descritos en los artículos 5 y 6 del presente reglamento estarán destinados a atender las necesidades que surjan con ocasión de las labores que a su cargo tienen las distintas dependencias de esta Administración y serán utilizados única y exclusivamente a efectos de prestar servicios de transporte para:
+a) Personas que laboren para este organismo electoral o presten sus servicios para colaborar con esta administración, siempre y cuando cuenten con la autorización correspondiente y la identificación respectiva.
+b) Agentes electorales debidamente acreditados por el Tribunal.
+c) Equipos, mobiliario y materiales que sean de la institución o que hayan sido dados en préstamo o donados por particulares, o alguna de las instituciones del Estado.
+d) Otras necesidades que surjan con ocasión del giro que le es propio a esta Administración en materia electoral o administrativa, previamente autorizado por la persona encargada de la Unidad de Transportes o Contraparte Técnica, según corresponda.
+En todo caso, el uso de los vehículos mencionados en este artículo será regulado por los artículos subsiguientes de este reglamento, así como por las disposiciones que al efecto llegare a establecer el Tribunal Supremo de Elecciones.

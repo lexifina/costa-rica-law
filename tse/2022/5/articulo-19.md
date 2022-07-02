@@ -1,0 +1,2 @@
+Artículo 19.-Daños o colisión de vehículo. En caso de que se presente un daño a alguno de los vehículos indicados en la presente reglamentación, sin lograr identificar quién o qué lo realizó, el conductor deberá reportar el incidente de forma inmediata a la Unidad de Transportes o a la Contraparte Técnica, según corresponda y a la entidad aseguradora, así como mantener el vehículo en el propio lugar de los hechos.
+En los casos en que haya un tercero involucrado, deberá además reportar el incidente de forma inmediata a la Policía de Tránsito.
