@@ -1,0 +1,1 @@
+Artículo 2º-La implementación del Clasificador Funcional será gradual de acuerdo con los lineamientos que emita la Dirección General de Presupuesto Nacional, así como las indicaciones emitidas por la Contraloría General de la República.
