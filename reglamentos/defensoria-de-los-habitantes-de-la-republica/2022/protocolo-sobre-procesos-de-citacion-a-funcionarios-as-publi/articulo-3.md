@@ -1,0 +1,1 @@
+Artículo 3º-Del procedimiento para la citación presencial y registro de otras actividades. Durante la citación presencial, se seguirán los mismos procedimientos que para la citación virtual, salvo aquellos que sean exclusivos de las citaciones virtuales.
