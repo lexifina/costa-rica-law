@@ -1,0 +1,1 @@
+Artículo 2º-Derogatoria. Deróguense los artículos 4° y 11° del Decreto Ejecutivo N° 41641-H, Reglamento al Título IV de la Ley N° 9635, denominado Responsabilidad Fiscal de la República, publicado en el Alcance N° 90 a La Gaceta N° 76 del 25 de abril del 2019 y sus reformas.
