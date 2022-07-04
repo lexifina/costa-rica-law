@@ -17,3 +17,4 @@ Reglamento sobre Financiamiento de Proyectos de Infraestructura
 | 2 | 2016-06-21 | Reglamento 1261 (2016-06-21) |
 | 3 | 2020-11-16 | Reglamento 1620 (2020-11-16) |
 | 4 | 2021-04-26 | Reglamento 1658 (2021-04-26) |
+| 5 | 2022-07-04 | Reglamento 1742 (2022-07-04) |
