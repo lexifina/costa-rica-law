@@ -1,2 +1,1 @@
-Artículo 22°-Sobre la nota mínima para formar la lista de elegibles. Se consideran elegibles a quienes obtengan como mínimo una calificación final de 70%, resultado de la ponderación de las calificaciones obtenidas en los diferentes predictores utilizados para la evaluación de candidatos.
-Con los candidatos que obtengan una calificación de 70% o superior se conformará un Registro de Elegibles, ordenado en orden descendente a partir de la calificación mayor hasta el 70%.
+Artículo 22°- Nombramiento en firme. Una vez superado el período de prueba de tres meses, en caso de aceptación se procederá con el nombramiento en firme del funcionario, según lo definido Legislación Laboral vigente y la normativa concordante.

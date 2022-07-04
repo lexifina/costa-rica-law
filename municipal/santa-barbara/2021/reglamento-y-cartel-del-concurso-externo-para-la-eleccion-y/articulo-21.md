@@ -1,5 +1,1 @@
-Artículo 21º-Supuestos bajo los cuales se excluye una oferta del Proceso:
-a) Los oferentes que no presenten su oferta en tiempo y forma.
-b) Los que no subsanen los defectos señalados en el plazo de tres días hábiles de conformidad con el artículo 81 del Reglamento a la Ley de la Contratación Administrativa.
-c) Los que no se presenten a las entrevistas convocadas en la hora, lugar y fecha indicada oportunamente.
-d) Los que no se presenten a las pruebas psicométricas y/o de idoneidad.
+Artículo 21°- Período de prueba. Una vez nombrado en el puesto, el nuevo Auditor queda sujeto al período de prueba por tres meses, pasado el cual, el Concejo informará a la Contraloría, su aceptación o inconformidad con el desempeño del funcionario, según la legislación vigente aplicable.

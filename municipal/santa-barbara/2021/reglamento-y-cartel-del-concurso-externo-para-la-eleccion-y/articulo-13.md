@@ -1,7 +1,1 @@
-Artículo 13º- Tabla de ponderación de factores. La tabla de ponderación de factores de las ofertas de los aspirantes se regirá por los parámetros o factores establecidos por este reglamento, a efecto de obtener las calificaciones finales de las ofertas que cumplan con todos los requisitos exigidos para el cargo. Esta tabla deberá contener al menos los siguientes factores:
-a) Nivel académico.
-b) Prueba de conocimientos a través de la prueba de idoneidad.
-c) Prueba Psicométrica.
-d) Experiencia
-e) Incorporación al Colegio respectivo y al día
-f) Entrevista
+Artículo 13º-Sobre la forma de recepción de las ofertas. La secretaria del Concejo Municipal, solo recibirá aquellas ofertas que se presenten en un sobre cerrado, indicando únicamente por fuera, nombre del postulante, número de cédula, correo electrónico para notificaciones. Las mismas deben contener todos los requisitos y documentos solicitados en el presente reglamento. Aquellas ofertas que no cumplan con la rotulación podrán ser descartadas a criterio de la Comisión.

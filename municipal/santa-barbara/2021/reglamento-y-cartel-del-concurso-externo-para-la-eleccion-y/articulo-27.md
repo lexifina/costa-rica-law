@@ -1,1 +1,0 @@
-Artículo 27°- Proceso de Impugnación. Una vez recibidos los resultados, los participantes que tengan razones fundamentadas para impugnar el procedimiento ejecutado y el nombramiento realizado, podrán presentar el correspondiente recurso de revocatoria y apelación, según lo dispuesto en el artículo 162 del Código Municipal.

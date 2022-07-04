@@ -1,1 +1,1 @@
-Artículo 18º-Sobre las ofertas incompletas. Una vez que la Comisión especial analice las ofertas, ante el supuesto que una oferta presentada está incompleta, se podrá conceder un plazo de hasta tres días hábiles posterior al período de recepción de ofertas para que los interesados puedan completar su solicitud a criterio de la Comisión.
+Artículo18°- Sobre el medio oficial para la recepción de documentos y/o información relacionada con el concurso. El único medio acreditado para enviar y/o recibir información será el correo concejomunicipal@santabarbara.go.cr.

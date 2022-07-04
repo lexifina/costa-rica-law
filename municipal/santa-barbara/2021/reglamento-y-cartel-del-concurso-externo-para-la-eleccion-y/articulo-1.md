@@ -1,4 +1,3 @@
-MUNICIPALIDAD DE SANTA BARBARA
 El Concejo Municipal de la Municipalidad de Santa Bárbara, en sesión extraordinaria No.23-2021, celebrada el jueves 27 de mayo del 2021, mediante el acuerdo No. 1072-2021, acordó por unanimidad y definitivo: Aprobar el Dictamen de la Comisión Especial No. CENA-005-2021, que contiene el Reglamento y Cartel del Concurso Externo para la Elección y Nombramiento del Auditor Interno de la Municipalidad de Santa Bárbara, y aprobar por el fondo y de manera definitiva el Reglamento y Cartel del Concurso Externo Para la Elección y Nombramiento del Auditor Interno de La Municipalidad De Santa Bárbara, para que se lea de la siguiente forma:
 REGLAMENTO Y CARTEL DEL CONCURSO EXTERNO
 PARA LA ELECCIÓN Y NOMBRAMIENTO DEL
@@ -10,6 +9,7 @@ Tercero. Que de conformidad con el Artículo 31, de la Ley General de Control In
 (Así reformado el punto anterior mediante sesión N° 74-2021 del 27 de setiembre del 2021)
 Cuarto. Que de acuerdo con los "Lineamientos sobre los requisitos de los cargos de auditor interno, y las condiciones para las gestiones de nombramiento en dichos cargos" (L-1-2006-CO-DAGJ, están enmarcados en resolución R-CO-91-2006, del 17 de noviembre de 2006, por la Contraloría General de la República y publicados en La Gaceta 236, del 8 de diciembre de 2006). Los cuales para efectos de este reglamento en adelante se denominarán "lineamientos".
 Por tanto, este Concejo Municipal de Santa Bárbara resuelve emitir el siguiente Reglamento:
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 114 del 4 de julio de 2022, y publicado en La Gaceta N° 142 del 27 de julio de 2022, por lo que se transcribe a continuación:)
 CAPÍTULO I.
-DISIPACIONES GENERALES.
-Artículo 1º-Objetivo: El presente reglamento regula el proceso de selección y nombramiento del Auditor Interno de la Municipalidad de Santa Bárbara, en estricto apego de lo dispuesto en la Ley General de Control Interno N.º 8292, artículos 28 y 31, y los lineamientos establecidos por la Contraloría General de la Republica.
+DISPOSICIONES GENERALES.
+Artículo 1º-Objetivo: El presente reglamento regula el proceso de selección y nombramiento del Auditor Interno de la Municipalidad de Santa Bárbara, en estricto apego de lo dispuesto en la Ley General de Control Interno N.º 8292, artículos 28 y 31, y los lineamientos vigentes establecidos por la Contraloría General de la República.

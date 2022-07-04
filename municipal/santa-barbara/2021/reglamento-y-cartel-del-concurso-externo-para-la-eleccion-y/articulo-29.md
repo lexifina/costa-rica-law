@@ -1,1 +1,0 @@
-Artículo 29°- Nombramiento en firme. Una vez superado el período de prueba de tres meses, en caso de aceptación se procederá con el nombramiento en firme del funcionario, según lo definido Legislación Laboral vigente y la normativa concordante.

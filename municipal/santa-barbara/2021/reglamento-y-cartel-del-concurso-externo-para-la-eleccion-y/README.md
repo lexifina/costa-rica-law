@@ -15,3 +15,4 @@ Reglamento y cartel del concurso externo para la elección y nombramiento del au
 | --- | --- | --- |
 | 1 | 2021-06-10 | la propia norma |
 | 2 | 2021-09-27 | Reglamento municipal 74 (2021-09-27) |
+| 3 | 2022-07-04 | Reglamento municipal 114 (2022-07-04) |

@@ -1,2 +1,0 @@
-Artículo 30.-Fin del nombramiento. En caso de inconformidad con el nombramiento realizado, antes de que finalice el período de prueba se cesa el nombramiento debidamente justificado por acuerdo de mayoría calificada, y se deberá proceder con un nuevo nombramiento de entre los candidatos elegibles de la nómina, registro de elegibles según corresponda. Previo cumplimiento con los lineamientos emitidos por la Contraloría.
-(Así reformado mediante sesión N° 74-2021 del 27 de setiembre del 2021)
