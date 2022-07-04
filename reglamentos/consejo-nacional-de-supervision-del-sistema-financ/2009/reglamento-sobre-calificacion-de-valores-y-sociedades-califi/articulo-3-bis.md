@@ -1,6 +1,2 @@
-Artículo 3bis. Revisión externa de emisiones que califiquen como verdes, sociales o sostenibles
-Las sociedades calificadoras de riesgo pueden brindar el servicio de revisión externa que acredite el cumplimiento de los principios de estándares nacionales o internacionales de las emisiones de oferta pública, que califiquen como verdes, sociales o sostenibles.
-En estas revisiones externas la sociedad debe contar con mecanismos de control interno y procedimientos que resulten aplicables a este proceso, sobre su calidad e integridad, la independencia y manejo adecuado de los conflictos de interés, la transparencia y oportunidad en las revelaciones, y la adecuada administración de la información confidencial, indicadas en los artículos 22 al 29 de este Reglamento.
-En caso de que la sociedad calificadora de riesgo preste simultáneamente el servicio de revisión externa de emisiones que califiquen como verdes, sociales o sostenibles y el servicio de calificación de riesgo, debe haber una separación de funciones, de tal forma que el equipo de trabajo que realiza las evaluaciones de riesgo de una emisión no sea el mismo que realice la revisión externa.
-Las revisiones externas deberán ajustarse a los lineamientos para la inscripción de emisiones verdes, sociales y sostenibles que emita la Superintendencia mediante acuerdo de alcance general.
+Artículo 3bis. Revisión externa de emisiones que califiquen como verdes, sociales o sostenibles. (Derogado en sesión N° 1742 del 4 de julio de 2022)
 (Así adicionado mediante sesión N°1635-2020 del 21 de diciembre de 2020)

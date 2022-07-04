@@ -18,3 +18,4 @@ Reglamento sobre calificación de valores y sociedades calificadoras de riesgo
 | 3 | 2020-12-21 | Reglamento 1635 (2020-12-21) |
 | 4 | 2021-04-12 | Reglamento 1655 (2021-04-12) |
 | 5 | 2022-01-27 | Reglamento 1711 (2022-01-27) |
+| 6 | 2022-07-04 | Reglamento 1742 (2022-07-04) |
