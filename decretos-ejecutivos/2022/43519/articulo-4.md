@@ -1,0 +1,1 @@
+Artículo 4°-No nacionalización ni inscripción en el Registro. No serán nacionalizados ni inscritos ante el Registro Nacional y tampoco podrán circular dentro del territorio nacional los vehículos objeto del presente decreto. Se prohíbe la venta y donación de partes y piezas de dichas mercancías, sin perjuicio de lo dispuesto en el artículo 5 del presente Reglamento.
