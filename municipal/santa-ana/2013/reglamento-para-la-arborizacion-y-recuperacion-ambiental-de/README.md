@@ -14,3 +14,4 @@ Reglamento para la Arborización y Recuperación Ambiental de los Espacios Públ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-24 | la propia norma |
+| 2 | 2022-07-05 | Reglamento municipal 114 (2022-07-05) |
