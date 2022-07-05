@@ -1,0 +1,1 @@
+Artículo 8°-Exhibición del certificado de licencia. Toda licencia de construcción de obra menor debe ser colocada en un lugar visible, de manera que facilite las labores de inspección y control por parte de la Municipalidad.
