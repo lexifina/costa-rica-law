@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de becas municipales a estudiantes del Cantón d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-23 | la propia norma |
+| 2 | 2022-07-05 | Reglamento municipal 163 (2022-07-05) |
