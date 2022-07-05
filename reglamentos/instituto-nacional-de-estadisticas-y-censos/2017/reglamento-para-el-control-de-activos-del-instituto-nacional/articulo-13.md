@@ -1,1 +1,0 @@
-ARTÍCULO 13. Firma al recibir activos: Toda persona, física o jurídica, que reciba activos del INEC, deberá firmar a la mayor brevedad la respectiva boleta de asignación, traslado o el documento que corresponda, una vez verificados, haciéndolo responsable de los mismos.

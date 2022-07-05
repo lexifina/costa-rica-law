@@ -1,1 +1,0 @@
-ARTÍCULO 29. Autorización para la reparación: Cuando un bien requiera reparación, la oficina interesada cumplirá con lo establecido en el procedimiento, documentando los traslados respectivos y emitiendo un documento que indique el proceso en que se encuentra artículo.

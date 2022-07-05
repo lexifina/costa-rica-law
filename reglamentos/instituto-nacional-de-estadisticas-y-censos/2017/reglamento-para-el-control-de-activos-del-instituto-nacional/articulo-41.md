@@ -1,1 +1,0 @@
-ARTÍCULO 41. Baja por remate de activos: El proceso de remate de activos se ajustará conforme lo que dice la Ley y lo establecido en la Ley de Contratación Administrativa y su Reglamento, una vez concluido, se le notificará al encargado de activos quien aplicará en el sistema de control de activos los respectivos movimientos.

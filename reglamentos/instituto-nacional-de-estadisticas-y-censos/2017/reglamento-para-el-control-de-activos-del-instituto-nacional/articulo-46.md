@@ -1,1 +1,0 @@
-ARTÍCULO 46. Responsabilidad: Es deber de toda persona que labore en el INEC acatar las obligaciones y responsabilidades establecidas en el presente Reglamento; procedimientos aplicables y vigentes, se regulará de conformidad con la normativa que corresponda y con lo estipulado en la Ley de Contratación Administrativa y la Ley General de la Administración Pública.

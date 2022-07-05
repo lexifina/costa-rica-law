@@ -1,1 +1,0 @@
-ARTÍCULO 32. Asignación temporal de activos por reparación: La Unidad de Proveeduría podrá suministrar equipo en sustitución temporal sólo si existe disponibilidad. En caso de ser equipo relacionado con Tecnologías de Sistemas de Información, será esta Unidad la que determine la asignación temporal de equipo y estará sujeto a disponibilidad.

@@ -1,1 +1,0 @@
-ARTÍCULO 25. Adquisición de bienes por donación: En todo proceso de adquisición de bienes por donación en la cual se transfiere gratuitamente la propiedad y el dominio de un bien a favor del INEC, se debe cumplir con lo establecido en el procedimiento de donación y normativa aplicable vigente.
