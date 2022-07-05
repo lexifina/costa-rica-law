@@ -14,3 +14,4 @@ Reglamento de Compra, Uso y Custodia de Firma Digital para los funcionarios de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-05 | la propia norma |
+| 2 | 2022-07-05 | Reglamento municipal 124 (2022-07-05) |

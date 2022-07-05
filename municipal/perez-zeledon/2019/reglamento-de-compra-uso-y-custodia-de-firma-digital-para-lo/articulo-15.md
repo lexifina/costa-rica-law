@@ -1,1 +1,4 @@
-Artículo 15.— (Nota de Sinalevi: En la publicación de este reglamento no aparece este artículo. No obstante, es sistema exige una numeración consecutiva por lo que se ha creado el mismo pero sin texto)
+CAPÍTULO VI
+Disposiciones finales y transitorias
+Artículo 15.-Normativa complementaria: En lo no previsto por este Reglamento, se aplicará supletoriamente lo dispuesto en directrices que emita el Alcalde Municipal, la Ley de Certificados Digitales, Firmas Digitales y Documentos Electrónicos, la normativa y lineamientos que emita la DCFD, el Código Municipal, Reglamento Autónomo de Organización y Servicios de la Municipalidad de Pérez Zeledón, Ley de Control Interno, Ley General de Administración Pública, Ley de Notificaciones Judiciales Nº 8687, y demás normativa administrativa que regule la materia.
+(Así modificada su numeración en sesión N° 124 del 5 de julio de 2022, que lo traspaso del artículo 17 al 15, ya que en dicha sesión se indicó que se corra la numeración de los artículos 17, 18 y 19 para que en adelante se ajuste esa numeración de manera secuencial y se reflejen como artículos 15, 16 y 17 respectivamente.)

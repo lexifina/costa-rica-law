@@ -1,1 +1,1 @@
-Artículo 19.—Vigencia. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 19.- :(Nota de Sinalevi: El texto de este artículo debe de ser consultado en el numeral 17, ya que mediante sesión N° 124 del 5 de julio de 2022, se indicó que se corra la numeración de los artículos 17, 18 y 19 para que en adelante se ajuste esa numeración de manera secuencial y se reflejen como artículos 15, 16 y 17 respectivamente.)

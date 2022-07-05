@@ -1,1 +1,3 @@
-Artículo 14.— (Nota de Sinalevi: En la publicación de este reglamento no aparece este artículo. No obstante, es sistema exige una numeración consecutiva por lo que se ha creado el mismo pero sin texto)
+Artículo 14.-Citas de emisión y renovación de Firma Digital: Cada funcionario de la Municipalidad de Pérez Zeledón, será el encargado de gestionar las citas de reemisión y solicitud de la Firma Digital antes de su vencimiento.
+(Así reformado en sesión N° 124 del 5 de julo de 2022)
+(Así modificada su numeración en sesión N° 124 del 5 de julio de 2022, que lo traspaso del artículo 16 al 14, ya que en dicha sesión se indicó que se corra la numeración de los artículos 17, 18 y 19 para que en adelante se ajuste esa numeración de manera secuencial y se reflejen como artículos 15, 16 y 17 respectivamente.)
