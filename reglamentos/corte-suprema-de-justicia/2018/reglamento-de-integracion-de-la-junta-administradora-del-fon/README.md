@@ -15,3 +15,4 @@ Reglamento de integración de la Junta Administradora del Fondo de Jubilaciones 
 | --- | --- | --- |
 | 1 | 2018-09-24 | la propia norma |
 | 2 | 2019-06-06 | Circular 101 (2019-06-06) |
+| 3 | 2022-07-05 | Circular 124 (2022-07-05) |
