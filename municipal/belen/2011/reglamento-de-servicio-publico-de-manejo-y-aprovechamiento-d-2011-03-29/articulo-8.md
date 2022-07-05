@@ -1,1 +1,0 @@
-Artículo 8º—Ubicación de los materiales. Los y las vecinas así como el comercio tendrán la obligación de colocar los materiales reciclables según las indicaciones de la Municipalidad. Estos pueden utilizar contenedores facilitados por los entes generadores. La municipalidad indicará los días y el sistema de recolección.

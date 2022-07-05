@@ -1,1 +1,0 @@
-Artículo 7º—Deber de separar y clasificar. Es deber de los propietarios de inmuebles e inquilinos separar los materiales reciclables de los otros residuos ordinarios y especiales, para su posterior clasificación por tipo de material reciclable, de acuerdo a la disponibilidad de los contenedores facilitados por la Municipalidad.
