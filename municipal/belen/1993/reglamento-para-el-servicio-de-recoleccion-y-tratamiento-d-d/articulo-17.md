@@ -1,1 +1,0 @@
-Artículo 17 .-Para la recolección de la Basura Especial, cada contribuyente deberá suscribir con la Municipalidad un contrato, que tendrá como vigencia un año que deberá renovarse * un mes antes de su vencimiento.

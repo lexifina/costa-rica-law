@@ -1,1 +1,0 @@
-Artículo 6°-Las empresa agrícolas, industriales y comerciales, deberan disponer de un sistema de reparación y recolección acumulación) disposición final de los desechos sólidos provementes de sus operaciones, aprobado por el Mintsterio de Salud cuando la naturaleza, o cantidad de estos, no fuere sanitariamente acceptable el uso del sistema público.

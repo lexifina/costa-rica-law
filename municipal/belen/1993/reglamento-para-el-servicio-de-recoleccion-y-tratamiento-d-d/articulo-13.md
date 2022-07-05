@@ -1,1 +1,0 @@
-Artículo 13.- Cada beneficiario del servicio de recolección de desechos sólidos, deberá comunicar a la Municipalidad, el traspaso o segregación de lo inmuebles, a fin de poder actualizar lo registros de beneficiario que lleva al efecto dicha institutción.
