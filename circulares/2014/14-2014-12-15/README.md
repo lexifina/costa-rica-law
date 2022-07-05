@@ -14,3 +14,4 @@ Guía Mínima para la emisión de Certificación de Estados Financieros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-22 | la propia norma |
+| 2 | 2022-07-05 | Circular 14 (2022-07-05) |
