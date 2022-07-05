@@ -1,0 +1,8 @@
+Artículo 14.-Contratación de líneas de crédito de corto plazo, garantías de cumplimiento y avales. La solicitud de dictamen de autorización para contratar líneas de crédito, garantías de cumplimiento y avales para el ejercicio anual siguiente, deberá presentarse a más tardar en la primera semana de noviembre del año previo al de la programación del crédito que se va a contratar.
+La solicitud deberá ser acompañada de la siguiente información:
+a. Justificación de la contratación y utilización de la línea de crédito.
+b. Borrador de contrato de la línea de crédito; términos y condiciones financieras de la línea (monto y moneda a contratar, tasa de interés, plazo de gracia, amortización, período de desembolso, tipo de garantía, comisiones y otros).
+c. Proyecciones de desembolsos y pagos de la línea de crédito, así como de garantías de cumplimiento y avales.
+d. Cuadro con información relativa a las líneas de crédito previamente autorizadas, que incluya las condiciones financieras (tasa de interés y comisiones), y los saldos adeudados (cuando corresponda).
+e. Autorización por parte de Mideplan.
+El saldo de líneas de crédito al término de cada año debe ser igual al saldo adeudado a inicios de ese año. De requerirlo, y previa comunicación al Banco Central, la entidad podrá terminar el año con un saldo superior en un monto equivalente a un 20% del total aprobado. Esta situación podrá mantenerse durante los primeros quince días naturales del año subsiguiente, fecha a partir de la cual dicho saldo deberá ser cancelado y así informado al BCCR en los siguientes tres días hábiles después de cancelada la operación.

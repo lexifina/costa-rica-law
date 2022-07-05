@@ -1,0 +1,1 @@
+Artículo 6.-Plazo de resolución. El plazo máximo que tendrá el Banco Central para dictar la resolución del caso será de 30 días hábiles, contados a partir de la comunicación de verificación de cumplimiento de la información requerida para gestionar la solicitud.
