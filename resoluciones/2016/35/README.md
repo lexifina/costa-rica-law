@@ -38,3 +38,4 @@ Metodología para la Fijación Ordinaria de Tarifas para el Servicio Remunerado 
 | 23 | 2021-10-25 | Resolución 79 (2021-10-25) |
 | 24 | 2021-11-09 | Resolución 212 (2021-11-09) |
 | 25 | 2021-12-03 | Resolución 98 (2021-12-03) |
+| 26 | 2022-07-05 | Resolución 38 (2022-07-05) |
