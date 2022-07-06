@@ -1,4 +1,6 @@
 CAPÍTULO III
 Proceso Educativo
 I. Postulados
-ARTÍCULO 184.- La enseñanza comprenderá tanto la exposición y discusión de la teoría de las asignaturas, como su aplicación en forma de seminarios, prácticas de laboratorio, clínicas, trabajos de investigación, de campo y la participación activa en el desarrollo de programas de acción social, según las necesidades de la cátedra.
+ARTÍCULO 184.-La docencia incluye tanto la dimensión disciplinar como la pedagógica y la personal. Tiene como intención el proceso educativo integral, en concordancia con los propósitos y principios orientadores de la Universidad, al vincularse activamente con la investigación y la acción social.
+Comprende el proceso que gestiona la acción formativa y el aprendizaje, mediante el involucramiento de concepciones y metodologías innovadoras, acordes con las demandas del contexto y con las particularidades del estudiantado.
+(Así reformado en sesión N° 149 del 6 de julio de 2022)

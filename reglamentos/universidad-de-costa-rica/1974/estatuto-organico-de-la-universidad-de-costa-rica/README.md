@@ -36,3 +36,4 @@ Estatuto Orgánico de la Universidad de Costa Rica
 | 21 | 2019-12-06 | Reglamento 146 (2019-12-06) |
 | 22 | 2022-04-27 | Reglamento 147 (2022-04-27) |
 | 23 | 2022-06-08 | Reglamento 148 (2022-06-08) |
+| 24 | 2022-07-06 | Reglamento 149 (2022-07-06) |

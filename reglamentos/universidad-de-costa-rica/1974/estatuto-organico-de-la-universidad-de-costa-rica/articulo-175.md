@@ -1,5 +1,8 @@
 TÍTULO III
-Régimen de Enseñanza
+Régimen de la Actividad Académica
+(Así reformado el título anterior en sesión N° 149 del 6 de julio de 2022)
 CAPÍTULO I
-Personal Docente
-ARTÍCULO 175.- Los profesores son los funcionarios universitarios que, como principal quehacer, tienen a su cargo la enseñanza y la investigación en las diversas disciplinas del conocimiento, y la participación activa en el desarrollo de los programas de acción social.
+Personal Académico
+(Así reformado el capítulo anterior en sesión N° 149 del 6 de julio de 2022)
+ARTÍCULO 175.-El personal académico es aquel cuyos principales quehaceres son la docencia, la investigación y la acción social en las diversas disciplinas e interdisciplinas del conocimiento.
+(Así reformado en sesión N° 149 del 6 de julio de 2022)
