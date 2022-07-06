@@ -14,3 +14,4 @@ Reglamento para la aplicación del artículo 5° de la Ley de Tránsito por Vía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-06 | la propia norma |
+| 2 | 2022-07-06 | Decreto Ejecutivo 43623 (2022-07-06) |
