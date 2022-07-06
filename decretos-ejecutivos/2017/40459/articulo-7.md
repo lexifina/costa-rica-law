@@ -1,1 +1,2 @@
-Artículo 7°. Conformación de la Secretaría Técnica de Responsabilidad Social. La Secretaría Técnica estará conformada por una persona del Despacho Ministerial del MEIC quien será encargada de la coordinación, más un equipo nombrado por el Ministro o la Ministra.
+Artículo 7°. Conformación de la Secretaría Técnica de la Sostenibilidad(*). La Secretaría Técnica estará conformada por una persona del Despacho Ministerial del MEIC quien será encargada de la coordinación, más un equipo nombrado por el Ministro o la Ministra.
+(*) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 43748 del 6 de julio de 2022. Anteriormente se indicaba: "Secretaría Técnica de la Responsabilidad Social")
