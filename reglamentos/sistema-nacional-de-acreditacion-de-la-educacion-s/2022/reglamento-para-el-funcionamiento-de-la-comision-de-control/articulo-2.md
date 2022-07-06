@@ -1,0 +1,12 @@
+Artículo 2º-Definiciones. Para efectos de este reglamento se debe entender por:
+. Ley: Ley General de Control Interno, número 8292.
+. Control Interno: También denominado "Sistema de Control Interno" Comprende una serie de acciones diseñadas y ejecutadas por la administración activa para proporcionar una seguridad razonable en torno a la consecuencia de los objetivos de la organización.
+. Comisión: Comisión de Control Interno del Sistema Nacional de Acreditación.
+. SINAES: Sistema Nacional de Acreditación de la educación Superior.
+. CNA: Consejo Nacional de Acreditación.
+. Administración Activa: Uno de los dos componentes orgánicos del control interno. Desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Desde el punto de vista orgánico, es el conjunto de órganos de la función administrativa que deciden y ejecutan, incluyendo al jerarca como última instancia. Es el sujeto pasivo de la fiscalización superior que realiza la Contraloría General de la República (incluye a la Auditoría Interna).
+. Titular Subordinado: funcionario de la administración activa responsable de un proceso, con autoridad para ordenar y tomar decisiones.
+. Ambiente de Control: Uno de los cinco componentes funcionales del control interno. Comprende el conjunto de factores del ambiente organizacional que el jerarca, los titulares subordinados y demás funcionarios deben establecer y mantener, para permitir el desarrollo de una actitud positiva y de apoyo para el control interno y para una administración escrupulosa del patrimonio público.
+. Actividades de Control: Uno de los cinco componentes funcionales del control interno. Corresponde a las políticas y los procedimientos que los jerarcas y los titulares subordinados deben establecer para asegurar que se realicen las actividades necesarias para un desempeño institucional satisfactorio, como base para una administración eficaz del riesgo con miras al logro de los objetivos de la organización.
+. SEVRI: Sistema de valoración del riesgo
+. Valoración de riesgo: Uno de los cinco componentes funcionales del control interno. Corresponde a la identificación y evaluación de los riesgos que enfrenta la institución, tanto de fuentes internas como externas, relevantes para la consecución de sus objetivos, que deben realizar el jerarca y los titulares subordinados, con el fin de determinar cómo se deben administrar dichos riesgos

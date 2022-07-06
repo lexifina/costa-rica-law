@@ -1,0 +1,1 @@
+Artículo 7º-De la Coordinación de la Comisión de Control Interno. La Comisión de Control Interno, tendrá un Coordinador que será designado por la Dirección Ejecutiva por periodos de dos años, pudiendo prorrogarse de forma automática.
