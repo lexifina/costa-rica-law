@@ -1,0 +1,11 @@
+N° 002 22-23
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+En sesión ordinaria N° 007-2022, celebrada por el Directorio Legislativo el 14 de junio del 2022, se tomó el acuerdo que, en lo que interesa, a continuación transcribo:
+Artículo 19.-(.)
+Se acuerda: con base en el criterio vertido por el Departamento de Asesoría Legal, mediante oficio AL-DALE-PRO-0116-2021, tomar las siguientes disposiciones:
+a) Modificar el artículo 61 bis del Reglamento Autónomo de Servicio la Asamblea Legislativa, para que se lea de la siguiente manera:
+"Artículo 61 bis.-La Asamblea Legislativa, de manera preventiva, como una medida de salud ocupacional, velará por el cumplimiento de la aplicación de las vacunas obligatorias, por parte de las personas servidoras, salvo que exista contraindicación médica, debidamente declarada por el especialista tratante, de conformidad con lo establecido en la Ley Nº 8111 y su reglamento, Decreto Ejecutivo N° 32722 y sus reformas; para tal efecto, deberá adjuntar una certificación emitida por la autoridad competente, detallando los motivos de salud que lo impidan, con el fin de que el Departamento de Servicios de Salud (o quien corresponda) realice el análisis y validación correspondientes.
+Si la persona servidora se negare, sin justa causa y de manera manifiesta a adoptar estas medidas, por una única vez, el Departamento de Servicios de Salud realizará una sesión de convencimiento, sensibilización y educación con la persona servidora incumpliente.
+En caso de incumplimiento, ese Departamento le girará un máximo de dos instrucciones a la persona servidora incumpliente, fijándole un plazo de tres días hábiles para que se aplique la vacuna respectiva y presente la certificación oficial que acredite esa vacunación.
+En caso de persistir la negativa por parte de la persona servidora para aplicarse la vacuna, se hará acreedora de la suspensión sin goce de salario establecida en el artículo 54 de este Reglamento, previo la sustanciación del debido proceso."
