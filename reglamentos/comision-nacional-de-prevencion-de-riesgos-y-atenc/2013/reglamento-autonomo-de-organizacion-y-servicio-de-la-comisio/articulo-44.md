@@ -1,11 +1,12 @@
-Artículo 44.—Los servidores de la CNE tendrán derecho a:
+Artículo 44.-Los servidores de la CNE tendrán derecho a:
 a. Contar con los recursos y facilidades necesarias, para que puedan efectuar las labores a su cargo con el grado de eficiencia requerido.
 b. Recibir instrucciones y explicaciones adecuadas, para definir las funciones, responsabilidades y la posición de cada uno de los servidores dentro de la organización funcional de la CNE.
 c. Contar con la debida inducción al ingresar a prestar servicios a fin de conocer los diferentes trámites que se realizan en la Institución, así como la misión y visión de la misma.
 d. Contar con la debida inducción en materia de Control Interno, a fin de saber las funciones que son propias de su puesto y de limitar su competencia, colaborando así a la transparencia Institucional.
 e. Contar con las medidas de seguridad necesarias, para prevenir accidentes durante la prestación del servicio.
 f. Contar con el espacio y equipo de trabajo adecuado y ergonómico para el cumplimiento de sus labores, de conformidad con las reglas de salud ocupacional.
-g. Obtener un carné que lo identifique como funcionario de la CNE y/o como conductor de vehículos oficiales.
+g. Obtener un carné de identificación, que lo acredite como persona funcionaria o persona conductora de vehículos oficiales de la CNE, que se ajuste a su identidad de género.
+(Así reformado el inciso anterior en sesión N° 12 del 7 de julio de 2022)
 h. Contar con el respaldo del inventario de los bienes a cargo para garantizar que esos activos son responsabilidad del funcionario.
 i. Ser tratado en igualdad de condiciones que los otros compañeros en circunstancias iguales.
 j. Ser respetados y estimulados en su labor, tener oportunidad para capacitarse y especializarse, conforme a la naturaleza de su trabajo y al desarrollo tecnológico, para un mejor desempeño y estímulo, que les permita ascender en la carrera administrativa. Para ello podrán hacer uso de las facilidades que les ofrezca la CNE, las que se asignarán de acuerdo con los méritos, funciones del servidor y las normas que regulan la materia.

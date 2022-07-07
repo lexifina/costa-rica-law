@@ -1,7 +1,11 @@
-Artículo 96.—Licencias con goce de salario. Con el aval de la respectiva jefatura de Unidad y con la debida documentación, se otorgará licencia con goce de salario en los siguientes casos:
+Artículo 96.- Licencias con goce de salario. Con el aval de la respectiva jefatura de Unidad y con la debida documentación, se otorgará licencia con goce de salario en los siguientes casos:
+(Así reformado el párrafo anterior en sesión N° 12 del 7 de julio de 2022)
 a. Por matrimonio del servidor, se concederá licencia por cinco días hábiles.
-b. Por hijos nacidos dentro o fuera del matrimonio se concederá al servidor padre, licencia por cinco días hábiles, inmediatos y posteriores al parto. En el caso de ser hijos fuera de matrimonio, se reconocerá esta licencia siempre y cuando los hijos sean reconocidos y el funcionario se encuentre al cuidado de estos.
-c. Por fallecimiento de cualquiera de los abuelos, padres, hijos, hermanos o cónyuge, se concederá licencia por cinco días hábiles.
+b. Por nacimiento de un hijo o hija se concederá a la persona servidora padre o madre (que no haya tomada la licencia de maternidad) licencia por cinco días hábiles, inmediatos y posteriores al parto. En el caso de ser hijos (as) fuera de matrimonio, se reconocerá esta licencia siempre y cuando sean reconocidos (as) y la persona se encuentre al cuidado de estos.
+(Así reformado el inciso anterior en sesión N° 12 del 7 de julio de 2022)
+c. Por fallecimiento de abuelos (as), padre, madre, hijos, hermanos (as), cónyuge o persona de convivencia, se concederá licencia por cinco días hábiles.
+Lenguaje inclusive de abuelos (as), padre, madre, hermanos (as), cónyuge o persona compañera de convivencia
+(Así reformado el inciso anterior en sesión N° 12 del 7 de julio de 2022)
 d. En caso de adopción de un menor de edad, el (la) funcionario (a) tendrá derecho a una licencia especial de tres meses para que ambos tengan un período de adaptación. En tal caso, la licencia se iniciará a partir del día inmediato siguiente a aquel en que se le haga entrega del menor. Para esto, el (la) funcionario (a) interesado (a) deberá presentar certificación del Patronato Nacional de la Infancia o del Juzgado de Familia correspondiente, en el que conste los trámites de adopción. Supletoriamente se aplicará lo estipulado por la Caja Costarricense del Seguro Social en el Reglamento para el Otorgamiento de Incapacidades y Licencias a los Beneficiarios del Seguro de Salud.
 e. En la fecha de su cumpleaños, el servidor disfrutará de un día de licencia.
 f. Para acompañar a los hijos menores de edad, adultos mayores y a personas de habilidades especiales en relación de primer grado de consanguinidad, a consulta médica.

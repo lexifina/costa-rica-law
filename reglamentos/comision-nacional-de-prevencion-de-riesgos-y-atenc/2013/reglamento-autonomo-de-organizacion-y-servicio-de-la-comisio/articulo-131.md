@@ -1,1 +1,2 @@
-Artículo 131.—De la normativa aplicable. Serán aplicables al procedimiento por acoso sexual las disposiciones de la Ley N° 7476 del 3 de febrero de 1995 y sus reformas, al igual que la normativa conexa definida en esa misma ley.
+Artículo 131.- De la normativa aplicable. Serán aplicables al procedimiento por hostigamiento o acoso sexual, las disposiciones contenidas en la Ley N° 7476, "Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia" y sus reformas, así como las disposiciones del Decreto Ejecutivo N° 38999-MP, "Política del Poder Ejecutivo para Erradicar de sus Instituciones la Discriminación hacia la Población Sexualmente Diversa", y sus reformas.
+(Así reformado en sesión N° 12 del 12 de julio de 2022)
