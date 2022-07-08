@@ -1,0 +1,4 @@
+CAPITULO III
+DE LA AUTORIZACIÓN DE LOS BENEFICIOS FISCALES
+A FAVOR DE TRABAJADORES O PREST ADORES REMOTOS DE SERVICIOS
+ARTÍCULO 12.-Sobre el goce de incentivos fiscales. Las personas extranjeras autorizadas bajo la subcategoría migratoria de Estancia, como Trabajador o Prestador Remoto de Servicios, según el procedimiento descrito en los artículos anteriores, podrán gozar de los incentivos fiscales establecidos en el Título V de la Ley Nº10008, consistentes en la exención total sobre el impuesto sobre las utilidades, definido en el título I de la Ley Nº7092, Ley del Impuesto sobre la Renta, de 21 de abril de 1988 y sus reformas, y exoneración del pago de todos los impuestos a la · importación de equipo personal básico de cómputo, informático, de telecomunicaciones o análogos, necesarios para cumplir con sus labores o la prestación de sus servicios.

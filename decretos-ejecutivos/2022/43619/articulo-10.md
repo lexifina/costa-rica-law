@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Renovación de la subcategoría de Estancia. Para la renovación de la categoría migratoria la persona extranjera deberá demostrar que ha permanecido en el territorio nacional por un periodo mínimo de ciento ochenta días de acuerdo al artículo 15 de la Ley.
+Para renovación deberá cumplir con los requisitos establecidos en los incisos a) y e) del artículo 5 y los contenidos en el artículo 8, excepto el inciso e, ambos del presente reglamento.
