@@ -1,0 +1,1 @@
+Artículo 5º-Asesoría Técnica. En caso de ser requerido, la Comisión Normas Internacionales de Contabilidad para el Sector Público solicitará la asesoría técnica (previa coordinación), de cualquier área y funcionario del SENARA que por su competencia técnica sea necesaria para asesorar a la Comisión en temas específicos y atinentes a su especialidad.

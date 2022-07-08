@@ -1,0 +1,1 @@
+Artículo 7º-Sesiones. La Comisión Normas Internacionales de Contabilidad para el Sector Público sesionará de forma virtual o presencial de acuerdo con el cronograma que disponga la Coordinación de la Comisión.
