@@ -1,1 +1,5 @@
-Artículo 12.-Informe de resultado de las solicitudes de variaciones al presupuesto. Será entregada a cada una de las personas que ha solicitado una modificación o inclusión de recursos en cualquiera de las variaciones al presupuesto, una nota indicándole si fue aprobada o no su solicitud.
+Artículo 12.-De las solicitudes de variaciones al presupuesto.
+Los recursos serán asignados a los responsables presupuestarios para su ejecución según la competencia funcional y operativa que ejerzan; estos funcionarios presentarán ante la alcaldía o el departamento de formulación de presupuesto, según designación del jerarca: las necesidades de asignación de recursos y de variaciones presupuestarias; para cuyo efecto le será entregada a cada unidad por escrito el resultado de su gestión.
+Para las variaciones presupuestarias las unidades encargadas deberán remitir al departamento de planificación la justificación de los movimientos propuestos, de su incidencia en el cumplimiento de los objetivos y metas planteadas en el Plan Anual Operativo y vinculado a los planes institucionales.
+Para el caso específico de los proyectos de los Programas III Inversiones y IV Partidas Específicas; se deberá detallar correctamente el nombre del proyecto, así como la meta afectada.
+(Así reformado mediante publicación en La Gaceta N° 130 del 8 de julio del 2022)

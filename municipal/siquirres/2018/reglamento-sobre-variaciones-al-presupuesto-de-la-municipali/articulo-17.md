@@ -1,3 +1,1 @@
-Artículo 17.-Tipos de modificaciones presupuestarias. Se crean las siguientes modificaciones presupuestarias con el propósito de alcanzar los objetivos que persigue la Municipalidad de Siquirres.
-a) Modificación presupuestaria de aprobación administrativa.
-b) Modificación presupuestaria de aprobación del Concejo.
+Artículo 17.-Tipos de modificaciones presupuestarias. (Derogado y publicado en La Gaceta N° 130 del 8 de julio de 2022)

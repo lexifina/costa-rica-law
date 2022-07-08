@@ -14,3 +14,4 @@ Reglamento sobre variaciones al presupuesto de la Municipalidad de Siquirres
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-13 | la propia norma |
+| 2 | 2022-07-08 | Reglamento municipal 0 (2022-07-08) |
