@@ -1,0 +1,3 @@
+Artículo 12.-Terminación unilateral de la relación. El incumplimiento injustificado de las obligaciones establecidas para cualquier de las partes dará derechos a la parte afectada a dar por concluida de manera inmediata la relación.
+Asimismo, en caso de comprobarse el incumplimiento, por parte del cliente, de las limitaciones establecidas en el artículo 4, facultará al Banco a rescindir unilateralmente el servicio, de forma inmediata.
+Las partes podrán rescindir unilateralmente el presente convenio cuando medien motivos de interés público, caso fortuito o fuerza mayor, mediando aviso de al menos un mes de antelación.

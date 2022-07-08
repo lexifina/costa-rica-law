@@ -1,0 +1,1 @@
+Artículo 9º-Formas de pago. El servicio deberá ser cancelado por mes anticipado, sin embargo, se autoriza a la Gerencia General Corporativa para formalizar contratos por mes vencido, en los casos que considere necesario, según criterios de volumen o integración de negocios u oportunidad.

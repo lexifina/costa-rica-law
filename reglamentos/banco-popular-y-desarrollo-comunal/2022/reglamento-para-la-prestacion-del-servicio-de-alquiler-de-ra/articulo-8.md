@@ -1,0 +1,1 @@
+Artículo 8º-Tarifa. El monto mensual por alquiler individual será fijado por Junta Directiva Nacional, conforme los estudios que realice la Gerencia General Corporativa, el cual debe actualizarse con una frecuencia mínima anual.
