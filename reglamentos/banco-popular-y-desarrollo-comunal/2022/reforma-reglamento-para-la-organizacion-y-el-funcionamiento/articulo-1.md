@@ -1,0 +1,5 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+La Junta Directiva Nacional en su calidad de tal y actuando en funciones propias de Asamblea de Accionistas, mediante Sesión Ordinaria Nº 5930 acuerdo N° 577 celebrada el 27 de junio del 2022, aprobó modificar el artículo 83 del Reglamento para la Organización y el Funcionamiento de la Junta Directiva Nacional y de las Juntas Directivas de las Sociedades del CFBPDC, en los siguientes términos:
+REGLAMENTO PARA LA ORGANIZACIÓN Y EL FUNCIONAMIENTO DE LA JUNTA DIRECTIVA NACIONAL Y DE LAS JUNTAS DIRECTIVAS DE LAS SOCIEDADES DEL CONGLOMERADO FINANCIERO BANCO
+POPULAR Y DE DESARROLLO COMUNAL.
+Artículo 83.-Seguimiento de acuerdos. La Secretaría de Junta Directiva deberá mantener, mediante los mecanismos que considere convenientes, un adecuado control de acuerdos, de manera que se puedan identificar fácilmente aquellos que se encuentran pendientes de ejecución. Además, deberá presentar ante la junta directiva de cada sociedad, informes trimestrales sobre el estado de atención de los acuerdos.
