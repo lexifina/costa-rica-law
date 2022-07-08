@@ -17,3 +17,4 @@ Estatuto de la Federación Occidental de Municipalidades de Alajuela (FEDOMA)
 | 2 | 2018-02-09 | Reglamento 1 (2018-02-09) |
 | 3 | 2019-03-13 | Reglamento 1 (2019-03-13) |
 | 4 | 2022-05-20 | Reglamento 1 (2022-05-20) |
+| 5 | 2022-07-08 | Reglamento 2 (2022-07-08) |
