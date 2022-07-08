@@ -14,3 +14,4 @@ Oficializa y declara de interés público y nacional la Estrategia Integral de P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-04 | la propia norma |
+| 2 | 2022-07-08 | Decreto Ejecutivo 43845 (2022-07-08) |
