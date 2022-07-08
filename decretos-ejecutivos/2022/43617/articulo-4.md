@@ -1,0 +1,2 @@
+Artículo 4º-Integración. El SINAEMET está constituido por el Ministerio de Salud, el Colegio de Médicos y Cirujanos y las instituciones prestatarias de atención directa de emergencias médicas y traumáticas en el ámbito extrahospitalario, tanto públicos como privados.
+Las instituciones académicas que forman personas en atención directa de emergencias médicas y traumáticas en el ámbito extrahospitalario, podrán integrar este Sistema.

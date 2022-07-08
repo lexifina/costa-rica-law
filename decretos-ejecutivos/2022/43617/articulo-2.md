@@ -1,0 +1,1 @@
+Artículo 2º-Objeto y ámbito de aplicación. El SINAEMET tiene como objeto articular los componentes para la atención de emergencias médicas y traumáticas, bajo un estándar a nivel nacional en el ámbito extrahospitalario.
