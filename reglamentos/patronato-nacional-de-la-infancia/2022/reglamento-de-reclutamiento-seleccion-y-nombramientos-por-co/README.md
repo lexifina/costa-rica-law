@@ -14,3 +14,4 @@ Reglamento de reclutamiento, selección y nombramientos por competencias del rec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-03-04 | la propia norma |
+| 2 | 2022-07-11 | Reglamento 22 (2022-07-11) |
