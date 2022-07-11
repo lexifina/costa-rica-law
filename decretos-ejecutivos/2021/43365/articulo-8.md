@@ -1,1 +1,0 @@
-Artículo 8º-Deróguese los Decretos Ejecutivos Nos. 42748-MTSS y 42923-MTSS, publicado en el Alcance N° 332 del Diario Oficial La Gaceta N° 295 y N° 120, de fecha 17 de diciembre del 2020 y 23 de junio del 2021, respectivamente.
