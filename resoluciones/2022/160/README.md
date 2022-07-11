@@ -14,3 +14,4 @@ Realiza apertura arancelaria en el Arancel nacional, para “Preparaciones a bas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-08 | la propia norma |
+| 2 | 2022-07-11 | Resolución 231 (2022-07-11) |
