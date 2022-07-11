@@ -1,0 +1,1 @@
+Artículo 41.-Toda compra de equipo relacionado con Seguridad Electrónica (cámaras, grabadores de video, elementos de control, acceso, detección de incendio, intrusos o afines) deberá ser autorizada por Gestión Seguridad Institucional.

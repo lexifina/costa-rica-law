@@ -1,0 +1,1 @@
+Artículo 25.-Las compras, mejoras o adiciones de activos se deben registrar según el plan de cuentas contables de la Institución asociado a cada activo, independientemente de la modalidad de adquisición que se realice.

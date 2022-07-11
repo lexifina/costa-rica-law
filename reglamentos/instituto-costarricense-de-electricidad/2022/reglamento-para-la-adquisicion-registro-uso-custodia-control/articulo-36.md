@@ -1,0 +1,1 @@
+Artículo 36.-Para la adquisición de los activos, la dependencia interesada procede según la legislación, los reglamentos y la normativa interna vigente. La adquisición de activos debe estar sujeta a las necesidades de las dependencias en el cumplimiento de sus labores y no para ser adquiridos para su almacenamiento en los centros de trabajo o en los almacenes del ICE.

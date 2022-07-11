@@ -1,0 +1,1 @@
+Artículo 28.-Todos los activos muebles deben estar identificados con una placa en la que se indique el número del activo ICE (número de inventario). A cada número de activo ICE, se le asigna un número de activo ERP-ICE, con estas dos numeraciones ligadas entre sí, se logra la trazabilidad de información en el Módulo de Activos Fijos.

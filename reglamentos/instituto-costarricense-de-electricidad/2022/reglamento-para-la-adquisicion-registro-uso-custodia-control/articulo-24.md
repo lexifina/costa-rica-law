@@ -1,0 +1,1 @@
+Artículo 24.-Cada dependencia de la Institución debe planificar las compras de activos sujetos a este reglamento, así como al Reglamento Interno de Contratación Administrativa, considerando el plan de negocio, la estrategia empresarial y la debida operación y mantenimiento de su gestión.

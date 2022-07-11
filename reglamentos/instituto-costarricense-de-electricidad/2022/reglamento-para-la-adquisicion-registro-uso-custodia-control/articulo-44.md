@@ -1,0 +1,1 @@
+Artículo 44.-Las altas de activos fijos por compras, salidas del inventario, reposición de activos, donación, u otro medio de registrar un bien, requerirá la creación del dato maestro de activo ERP-ICE en el Módulo de Activos Fijos, el cual será utilizado, en las solicitudes de compra, salidas de inventario y registros directos en el sistema de activos.

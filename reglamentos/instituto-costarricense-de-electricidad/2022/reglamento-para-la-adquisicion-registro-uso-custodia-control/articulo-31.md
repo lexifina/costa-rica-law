@@ -1,0 +1,1 @@
+Artículo 31.-Al personal ocasional, con nombramiento superior a dos meses se le entregarán en calidad de préstamo, activos en buenas condiciones de funcionamiento y conservación para el cumplimiento de sus labores. En caso de robo, hurto, extravío o daño, se aplicará lo establecido en el Artículo 60, incisos a) y b) de este Reglamento.

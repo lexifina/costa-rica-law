@@ -1,0 +1,9 @@
+CAPÍTULO V
+SECCIÓN I
+Devolución de activos
+Artículo 55.-Los activos deben ser devueltos por el gestor de activos al centro logístico. Para esto debe completar el Formulario N° F-32-0195 "Devolución de activos, mobiliario y herramientas manuales al centro logístico o el formulario Ficha técnica para devolución de bienes al centro logístico firmado por el titular subordinado. Ver Artículo 20, inciso o). Anexo N° 13 y Anexo N° 14.
+a) Los criterios técnicos pueden ser brindados por personal de la misma dependencia (Técnico usuario, Especialista, Experto o Profesional competente), que tenga las competencias o autorización para emitirlo.
+b) El centro logístico debe revisar y validar que lo indicado en el formulario Devolución de activos, mobiliario y herramientas manuales al centro logístico o el formulario Ficha técnica para devolución de bienes al centro logístico está conforme con lo entregado por la dependencia. Anexo N° 13 y Anexo N° 14.
+c) El Almacén debe informar a la dependencia el nuevo criterio rector establecido, para que esta gestione las mejoras en las próximas entregas, debido a que no es procedente dar de baja activos o mercancías sin determinar que exista o no posibilidad de vender y recuperar (promoción).
+d) En aquellos casos en que el Técnico usuario, Especialista, Experto o Profesional competente técnicamente clasifique el activo como obsoleto debe indicar en el formulario la factibilidad de promocionarlo a nivel institucional, valorando su utilidad en otras áreas de la Institución.
+e) El centro logístico mantendrá el activo en custodia por un plazo de 12 semanas (84 días naturales) para su promoción, de no ser requerido por otra dependencia realizará los trámites de devolución del activo a Gestión Almacenes para su tratamiento mediante venta (remate) o convenio y donación.

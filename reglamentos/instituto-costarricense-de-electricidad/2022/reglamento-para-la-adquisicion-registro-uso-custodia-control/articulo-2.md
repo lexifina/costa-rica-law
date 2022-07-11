@@ -1,0 +1,1 @@
+Artículo 2º-Objeto. Normalizar la adquisición, registro, uso, custodia, control, descargo y disposición final de los activos muebles del Instituto Costarricense de Electricidad, clasificados contablemente como Otros Activos en Operación.

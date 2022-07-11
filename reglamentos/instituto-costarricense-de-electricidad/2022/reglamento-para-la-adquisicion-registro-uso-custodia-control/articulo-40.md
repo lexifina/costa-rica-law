@@ -1,0 +1,1 @@
+Artículo 40.-Toda compra de armas de fuego y equipo relacionado debe realizarse de acuerdo con el Reglamento para la Gestión de Armas de Defensa Institucional, y con la autorización de Gestión Seguridad Institucional.

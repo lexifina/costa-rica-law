@@ -1,0 +1,1 @@
+Artículo 26.-Por centro de costo deberá existir al menos un encargado, el cual se denomina para efectos de este Reglamento gestor de activos, que tendrá a cargo toda gestión relacionada con activos muebles.

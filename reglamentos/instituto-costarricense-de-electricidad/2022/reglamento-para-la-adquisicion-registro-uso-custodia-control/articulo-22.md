@@ -1,0 +1,10 @@
+Artículo 22.-Es responsabilidad del Personal ICE:
+a) Usar, custodiar, proteger y controlar correctamente los activos que le han sido asignados, propiedad o al servicio del ICE, para el desempeño de sus labores, según la normativa vigente.
+b) Presentar ante Gestión Seguridad Institucional la denuncia en caso de robo, hurto o extravío del activo, según lo establecido en el Reglamento para la interposición de denuncias ante la DPSI, sobre hecho delictivos e irregularidades administrativas vigente.
+c) Velar porque las especificaciones de los activos en los vales correspondan con el activo físico a su cargo.
+d) Colocar en un lugar visible del activo la placa con el número de inventario, en aquellos casos que los almacenes o centros logísticos no la hayan colocado.
+e) Efectuar el inventario de activos muebles, de acuerdo con las directrices institucionales o en el momento que el Titular Subordinado, Área de Control Interno, Auditoría Interna o Gestión Seguridad Institucional lo soliciten.
+f) Realizar la corrección por las diferencias detectadas, como resultado de los inventarios efectuados.
+g) Completar el Formulario F-10-0028 "Autorización salida de mercancías, activos y herramientas", el cual debe ser autorizado por el Titular Subordinado cuando por las características propias de sus labores requiera sacar activos muebles de la Institución. Anexo N° 15.
+h) Cuando el personal se traslade a otra dependencia o finaliza su relación laboral con la Institución, debe tramitar y devolver los activos a su nombre con el estado uso personal, en condiciones aceptables de acuerdo con el desgaste normal por su utilización. Caso contrario, se aplicará lo establecido en el Artículo 60, incisos a) y b) de este Reglamento.
+i) Tramitar a través del gestor de activos y Titular Subordinado la devolución de activos, por medio del Formulario "Devolución de activos, mobiliario y herramientas manuales al centro logístico" o el formulario "Ficha técnica para devolución de bienes al centro logístico". Anexo N° 13 y Anexo N° 14.

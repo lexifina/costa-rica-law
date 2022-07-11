@@ -1,0 +1,1 @@
+Artículo 35.-Emitir la certificación de existencias por parte de Gestión Almacenes de la Dirección Logística, ya sea para cubrir la necesidad dentro de las existencias que se encuentren en promoción o, caso contrario, que se proceda con el trámite de adquisición. Anexo N° 17 Formulario "Certificación de existencias activos y herramientas muebles"

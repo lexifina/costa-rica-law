@@ -1,0 +1,1 @@
+Artículo 3º-Alcance. Este Reglamento es aplicable para todo el personal y en especial a aquellos involucrados con la gestión de la adquisición, registro, uso, custodia, control, descargo y disposición final de activos muebles del ICE, clasificados como Otros Activos en Operación.

@@ -1,0 +1,1 @@
+Artículo 32.-Los equipos, mobiliario, artefactos eléctricos y demás utensilios dispuestos en los espacios de la Institución designados para el consumo de alimentos (espacios destinados para servicios de alimentación) se cargarán al Centro de Costo específico que corresponda.

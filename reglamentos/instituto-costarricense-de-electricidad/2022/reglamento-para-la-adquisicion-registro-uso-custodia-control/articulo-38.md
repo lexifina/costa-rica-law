@@ -1,0 +1,1 @@
+Artículo 38.-Cuando se trate de compras de maquinaria y equipo menor u otras clases de activos que son sujetas a un plan de mantenimiento, corresponde a la dependencia solicitante tramitar a través del área de Maquinaria y Equipo de la Dirección Ingeniería y Construcción la verificación de la asignación de la clase de activo y aprobación.

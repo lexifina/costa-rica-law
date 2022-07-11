@@ -1,0 +1,4 @@
+Artículo 54.-Traslado temporal de responsabilidad de activos con cargo a cédula:
+a) El personal responsable del activo al ausentarse de su lugar de trabajo por un período igual o superior a 22 días hábiles debe proceder según las siguientes opciones:
+a.1) Ausencia no programada: en los primeros cinco días hábiles de la ausencia del personal, el gestor de activos genera un listado de los activos a nombre de la persona, con el que realiza un inventario físico y se establece la condición de cada uno de los activos, para que el titular subordinado asuma temporalmente la responsabilidad mientras la misma se reincorpora.
+a.2) Ausencia programada: procede a aplicar las medidas de seguridad establecidas con el propósito de que, en su ausencia, se minimice el extravío, robo o hurto de los activos registrados a su nombre.

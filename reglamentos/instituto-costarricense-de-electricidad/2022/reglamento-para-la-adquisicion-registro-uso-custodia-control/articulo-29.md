@@ -1,0 +1,1 @@
+Artículo 29.-Los activos se suministran directamente a cada persona para el desempeño de labores individuales o colectivas propias de su puesto de trabajo. Es prohibido utilizar los activos institucionales en actividades personales.
