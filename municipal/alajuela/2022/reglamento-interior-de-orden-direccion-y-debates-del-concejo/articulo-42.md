@@ -1,0 +1,3 @@
+Artículo 42.-La presidencia municipal, en caso de que alguna comisión así lo solicite, procederá a solicitarle a la Alcaldía Municipal, la designación de funcionarios o funcionarias administrativas para que brinden asesoría.
+Quien ocupe la secretaría de cada comisión levantará un acta detallada de todas las sesiones de comisión. Esta acta deberá ser firmada, una vez aprobada por la comisión, por la persona presidente de la comisión y por la secretaria de actas. En cada acuerdo y en el acta respectiva, deben consignarse los votos positivos y negativos.
+La persona secretaria de actas de comisión tiene los mismos deberes que la Ley y este Reglamento imponen a la Secretaría del Concejo Municipal de Alajuela.

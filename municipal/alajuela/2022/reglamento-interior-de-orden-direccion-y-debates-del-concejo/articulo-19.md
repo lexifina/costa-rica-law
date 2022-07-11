@@ -1,0 +1,5 @@
+Artículo 19.-Las mociones de orden sobre un asunto en discusión se podrán presentar y poner a debate tan pronto termine su exposición el miembro del Concejo que esté haciendo uso de la palabra. Las mociones de orden se conocerán en estricto orden de presentación, una vez que el orador u oradora de turno haya concluido su intervención.
+Se concederá la palabra a la persona proponente y a una regiduría o sindicatura por cada una de las fracciones representadas en el Concejo, hasta por un período máximo de cinco minutos, según sea el criterio de la persona que ocupe la presidencia, luego de los cuales se pasará a la votación. Si la moción es aprobada de inmediato se ejecutará lo propuesto en ella.
+Luego se pondrá a discusión la moción siguiente, siempre que no sea excluyente con relación a la anterior aprobada, en cuyo caso se tendrá por automáticamente desechada.
+Sobre una moción de orden no cabe otra que pretenda posponerla.
+Las mociones de orden se tendrán por dispensadas del trámite de análisis y dictamen de comisión.

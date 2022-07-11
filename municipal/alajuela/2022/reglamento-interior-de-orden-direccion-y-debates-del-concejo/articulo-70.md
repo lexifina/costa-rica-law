@@ -1,0 +1,3 @@
+CAPÍTULO XI
+Asesores de confianza
+Artículo 70.-El proceso de contratación de las personas asesoras de confianza del Concejo Municipal le corresponderá a la Administración su gestión de acuerdo con la Ley de Contratación Administrativa, sin embargo, queda a potestad exclusiva del Concejo Municipal la elección y selección del profesional o profesionales de los puestos de confianza. Los contratos serán anuales, prorrogables hasta por cuatro años durante el período municipal. Las personas profesionales podrán ser destituidos en caso de pérdida de confianza con votación calificada de las dos terceras partes de los votos del Concejo Municipal. La regulación del funcionamiento de los puestos de asesores de confianza deberá ser emitida por este Concejo Municipal.

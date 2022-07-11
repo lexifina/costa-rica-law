@@ -1,0 +1,1 @@
+Artículo 36.-El alcalde o alcaldesa, en aras de velar por el normal desarrollo y seguridad de regidurías, sindicaturas y público en general, procurará que siempre haya presencia de la Policía Municipal durante el transcurso de las sesiones municipales.

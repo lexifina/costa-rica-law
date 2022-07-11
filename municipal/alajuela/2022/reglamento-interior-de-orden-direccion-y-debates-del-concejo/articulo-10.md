@@ -1,0 +1,1 @@
+Artículo 10.-Las mociones de las personas regidoras o de la Alcaldía se presentarán por escrito, con letra clara y sin tachaduras o borrones. Cualquier modificación que se haga a una moción debe indicarse mediante nota al pie y debe de ser firmada por alguna de las personas proponente de la moción.

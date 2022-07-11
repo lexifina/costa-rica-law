@@ -1,0 +1,4 @@
+CAPÍTULO II
+De las sesiones del concejo municipal
+Artículo 2º-Las sesiones del Concejo Municipal se celebrarán en la sala de sesiones, de la Municipalidad de Alajuela, designada por la presidencia municipal.
+El Concejo Municipal podrá acordar la celebración de sesiones ordinarias o extraordinarias, en lugares diferentes a la sala citada, dentro de la jurisdicción del Cantón Central de Alajuela, con el fin único de tratar asuntos relativos a los intereses de las personas vecinas del distrito donde se realice la sesión, excepto que por votación de las dos terceras partes, tratándose de una sesión ordinaria, el Concejo acuerde conocer otro asunto. Todo lo anterior, conforme al artículo 37 del Código Municipal; o bien, cuando por declaración de estado de emergencia nacional o cantonal, de conformidad con lo dispuesto por las autoridades competentes, no sea posible realizar las sesiones en el recinto de la Municipalidad.

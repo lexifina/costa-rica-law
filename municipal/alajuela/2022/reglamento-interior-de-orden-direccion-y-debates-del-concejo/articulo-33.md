@@ -1,0 +1,8 @@
+CAPÍTULO VI
+Del alcalde municipal
+Artículo 33.-Además de las atribuciones y obligaciones que consigna el artículo diecisiete del Código Municipal, el alcalde o alcaldesa tendrá, con relación con el Concejo Municipal, los siguientes deberes:
+a) Asistir con voz, pero sin voto, a todas las sesiones del Concejo Municipal, salvo que deba atender otras obligaciones municipales, señaladas para la misma hora de la sesión, lo que en cada caso justificará por escrito ante la presidencia municipal. Durante su permanencia en las sesiones del Concejo Municipal, el alcalde o alcaldesa, atenderá lo dispuesto en el inciso c), del artículo 29 de este Reglamento.
+b) Sancionar y promulgar las resoluciones y acuerdos aprobados por el Concejo Municipal o en su defecto ejercer el veto en atención a los dispuesto por los artículos 162 y 167 del Código Municipal.
+c) Rendir ante el Concejo Municipal, en una de las sesiones de los meses de enero y julio de cada año, un informe de los egresos que haya autorizado en el semestre inmediato anterior.
+d) Rendir ante el Concejo Municipal, cada año, en una de las sesiones de la primera quincena de marzo, un informe de labores, el que debe ser discutido y aprobado por el Concejo Municipal de Alajuela.
+e) Presentar el proyecto de presupuesto para el ejercicio fiscal del año siguiente y que guarde coherencia con el Plan Operativo Anual y el Plan de Desarrollo Municipal, al Concejo Municipal cada año, a más tardar en la última semana de agosto, con copia para cada una de las fracciones de los partidos políticos representados en el Concejo, para su análisis y posterior votación.

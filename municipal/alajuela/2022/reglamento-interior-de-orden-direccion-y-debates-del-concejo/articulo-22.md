@@ -1,0 +1,1 @@
+Artículo 22.-Aprobada la dispensa del trámite, la presidencia pondrá a discusión el asunto de fondo, pudiendo hacer uso de la palabra para referirse al asunto, primero la persona proponente, luego las personas regidoras que deseen referirse.
