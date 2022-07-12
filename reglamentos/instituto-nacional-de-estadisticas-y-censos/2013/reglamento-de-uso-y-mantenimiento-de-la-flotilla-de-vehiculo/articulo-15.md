@@ -1,1 +1,0 @@
-Artículo 15.—Uso de los vehículos. Es prohibido designar o poner en uso los vehículos que no estén en condiciones de ser utilizados. En caso de que se incumpla lo anterior, el Proceso de Transportes estudiará el caso y determinará por escrito si amerita la apertura de la investigación correspondiente.

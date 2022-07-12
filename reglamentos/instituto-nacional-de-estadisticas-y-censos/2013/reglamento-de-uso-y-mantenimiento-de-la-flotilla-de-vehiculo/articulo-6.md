@@ -1,1 +1,0 @@
-Artículo 6º—Vehículos de uso administrativo. Los vehículos de uso administrativo deberán portar placas oficiales, los respectivos distintivos del INEC en ambos costados del vehículo y la leyenda “Uso Oficial”. Así mismo, deben cumplir con los controles y requerimientos establecidos en el presente Reglamento y la Ley de Tránsito por Vías Públicas Terrestres vigente.
