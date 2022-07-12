@@ -1,0 +1,3 @@
+Artículo N° 24. Seguimiento del beneficio a las pensiones por sucesión e invalidez. La administración del Fondo realizará las gestiones con las instituciones competentes, para verificar periódicamente que las condiciones de estos pensionados se mantienen, en caso contrario previa notificación al pensionado procederá a suspender el pago de la pensión, reanudándose cuando se demuestre fehacientemente dicho derecho.
+Este artículo no aplica a todos los pensionados por invalidez que alcancen la edad de pensión por vejez de la C.C.S.S.
+Contra la resolución de la Administración, pueden interponer los recursos de revocatoria y apelación, ante el Órgano de Dirección.

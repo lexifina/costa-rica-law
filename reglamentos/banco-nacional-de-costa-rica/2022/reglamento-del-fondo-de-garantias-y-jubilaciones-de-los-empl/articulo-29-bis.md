@@ -1,0 +1,1 @@
+Artículo N° 29 bis. Comités de Apoyo. El Órgano de Dirección debe nombrar los Comités de Apoyo necesarios para la gestión de un buen Gobierno Corporativo y los cuales se establecen en la Normativa vigente emitida por el Ente Regulador. Estos Comités debe apegarse a lineamientos emitidos en dicha normativa.

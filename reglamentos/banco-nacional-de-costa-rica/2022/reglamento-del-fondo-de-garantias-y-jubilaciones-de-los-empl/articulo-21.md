@@ -1,0 +1,4 @@
+SECCIÓN CUARTA MONTO MÍNIMO Y MÁXIMO, REEVALUACIÓN, FORMA DE PAGO,
+REQUISITOS PERMANENTES Y RECONOCIMIENTOS POR AÑOS DE SERVICIO.
+Artículo N° 21 -Monto mínimo y máximo de pensión. La pensión mínima de los cotizantes directos, no podrá ser inferior a ¢142,160.00, monto que será ajustable al 100% de la inflación anual, en caso de que la inflación sea positiva. Para el caso del beneficio por sucesión no aplica el monto mínimo de pensión. Rige a partir del momento de la publicación en el Diario Oficial la Gaceta.
+A partir del 24 de noviembre del 2016 se estableció ¢4,000,000.00 el monto máximo inicial de pensión de un jubilado directo, el cual es ajustable al 100% de la inflación anual, en caso de que la inflación sea positiva, de modo que cada año se va incrementando el monto máximo de la pensión. Ambos límites de pensión deben estar basados en un estudio técnico actuarial.
