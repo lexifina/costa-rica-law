@@ -1,0 +1,1 @@
+Artículo 14. Actualización de la información. La información correspondiente a los requisitos establecidos en este Reglamento debe mantenerse actualizada de conformidad con las disposiciones que establezcan las bolsas de valores que lleven el registro de verificadores externos.

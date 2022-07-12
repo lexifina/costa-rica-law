@@ -1,0 +1,1 @@
+Artículo 4. Estándares nacionales. Los estándares nacionales reconocidos en materia de verificadores externos e informes de verificación para emisiones temáticas son los emitidos por la Bolsa Nacional de Valores (BNV), siempre que se ajusten a las disposiciones particulares de esta normativa.
