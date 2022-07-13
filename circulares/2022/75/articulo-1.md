@@ -25,7 +25,7 @@ Jonathan Fallas Molina | 1-1242-0933
 Luis Arroyo Díaz | 1-0786-0667
 Erick Leonardo Porras Retana | 1-1366-0430
 Gerardo Vargas Robles | 1-0972-0601
-Carol Oconitrillo Chaves | 1-0434-0998
+Carol Oconitrillo Chaves | 1-0934-0998 (Así corregida la cédula anterior mediante circular N° 125 del 13 de julio de 2022)
 Fabiola Arroyo Vindas | 1-1401-0613
 Raúl Campos Benavides | 1-1280-0239
 Jazmín Calvo Ardón | 1-1202-0790
@@ -84,8 +84,9 @@ Sede INS San José
 Nombre | Cédula
 Isidro Alvarado Gómez | 1-0596-0482
 Angie Segura Bustamante | 1-1260-0154
-Ana Marcela Sánchez Houed | 1-0824-0687
+Excluida este apartado mediante circular N° 125 del 13 de julio de 2022 | Excluida este apartado mediante circular N° 125 del 13 de julio de 2022
 Raquel Cascante Ardón | 1-0807-0254
+Pamela Molina Ulloa (Así incluida a la funcionaria anterior mediante circular N° 125 del 13 de julio de 2022) | 1-1126-0340 (Así incluida la cédular anterior mediante circular N° 125 del 13 de julio de 2022)
 Sede INS San José
 Nombre | Cédula
 Efraín Marchena López | 6-0152-0444
@@ -188,7 +189,7 @@ Edith Campos Morales | 6-0189-0826
 Sandra Patricia Rodríguez Porras | 5-0277-0266
 Maritza Segura Cortes | 1-0731-0320
 Mariel Riera Orocu | 6-0347-0047
-Josseline Ordoñez Montero | 6-0420-0240
+Excluida este apartado mediante circular N° 125 del 13 de julio de 2022 | Excluida este apartado mediante circular N° 125 del 13 de julio de 2022
 Grettel Vega Porras | 6-0287-0974
 Melanny Arroyo Hernández | 6-0362-0930
 Juan Diego Ortiz Lobo | 6-0299-0534
@@ -290,4 +291,5 @@ Walter Chavarría Alvarado | 1-0889-0122
 Wilberth Chaverri Molina | 1-0752-0447
 William Zamora Gómez | 1-0871-0298
 San José, 03 de mayo de 2022
+(Nota de Sinalevi: Mediante circular N° 125 del 13 de julio de 2022, se indicó Incluir a los siguientes funcionarios del Departamento de Gestión Operativa y SOA: Gestión Operativa y SOA. Al no exsistir dicho apartado se transcribe la reforma: indicó Incluir a los siguientes funcionarios del Departamento de Gestión Operativa y SOA: Gestión Operativa y SOA: Randall Carballo González 1-0697-0278, Víctor Rojas Barboza 1-0686-0725, Xiomara Jiménez Moya 1-0775-0473, Luis Chaves Solano 1-0965-0022, Agustín Leandro León 1-0805-0966, Gabriela Retana Bermúdez 1-0804-0964, Sandro Arias Bravo 3-0333-0669, Álvaro Carballo Segura 2-0403-0936.
 Publíquese una sola vez en el Boletín Judicial.
