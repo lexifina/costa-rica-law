@@ -1,0 +1,2 @@
+Transitorio I:Todos los proyectos pactados, formalizados o adjudicados antes del 13 de julio del año 2022, en donde se contrató con el valor “i” de 31,0029, contarán con plazo máximo de hasta el 13 de agosto de 2022, para tramitarlos ante el Administrador de Proyectos de Topografía (APT). Vencido ese término, no se dará trámite a la gestión.
+(Agregado mediante Fe de Erratas y publicado en La Gaceta N° 148 del 5 de agosto de 2022, página N° 2)
