@@ -12,6 +12,5 @@ Decretan:
 Reformar el Artículo 7 del Reglamento para el Control de las Emisiones
 Contaminantes Producidas por los Vehículos con Motor de Combustión Interna.
 ARTÍCULO 1.- Refórmese el Artículo 7, del "Reglamento para el Control de las Emisiones Contaminantes Producidas por los Vehículos con Motor de Combustión Interna", contenido en el Decreto Ejecutivo N° 39724 -MOPT-MINAE-S, publicado en el Alcance digital N° 87, de La Gaceta N° 103 del lunes 30 de mayo del 2016, y sus reformas para que en lo sucesivo se lea de la siguiente manera:
-Artículo 7.- Estándares de emisiones para el ingreso de vehículos. Los vehículos nuevos y usados de las categorías automóviles y carga liviana de hasta 3.500 kilogramos de peso bruto vehicular que ingresen al país a partir del 1º de enero de 2023 deberán cumplir con los siguientes estándares de emisiones emitidos por la Unión Europea o las especificaciones Federales de los Estados Unidos de América, de acuerdo con el siguiente cronograma:
-AÑO DE IMPORTACIÓN | NORMA DE CUMPLIMENTO
-A partir del 1° de enero de 2023 | Euro 6, Tier 3 o superior
+Artículo 7.- Estándares de emisiones para el ingreso de vehículos: Los vehículos nuevos y usados de las categorías automóviles y carga liviana de hasta 3500 kilogramos de peso bruto vehicular que ingresen al país deberán cumplir como mínimo con el estándar de emisiones Euro IV, TIER II o superior. A partir del primero de enero de 2027 entrará en vigor el estándar de emisiones EURO VI, TIER III o superior.
+(Así reformado el artículo 7) anterior por el artículo 1° del decreto ejecutivo N° 43646 del 13 de julio de 2022)

@@ -14,3 +14,4 @@ Reforma Reglamento para el control de las emisiones contaminantes producidas por
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-20 | la propia norma |
+| 2 | 2022-07-13 | Decreto Ejecutivo 43646 (2022-07-13) |
