@@ -1,2 +1,0 @@
-Artículo 14.—De la vigencia y derogación. El presente reglamento entrará en vigencia al día siguiente de su publicación definitiva y deroga cualquier reglamento anterior, y cualquier disposición reglamentaria municipal que se le oponga.
-Concejo Municipal. El presente reglamento fue aprobado por el Concejo Municipal de la Municipalidad de Osa en la Sesión N° 34-2013 celebrada el día 21 de agosto de 2013.
