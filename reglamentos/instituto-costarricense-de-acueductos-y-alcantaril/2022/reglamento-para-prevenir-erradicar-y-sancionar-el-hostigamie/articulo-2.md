@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de Aplicación. Este Reglamento será de aplicación para todas las personas servidoras que trabajan de forma presencial, virtual o hibrida en el Instituto, contratadas en propiedad, interinas o por periodos determinados, a cambio de una remuneración.

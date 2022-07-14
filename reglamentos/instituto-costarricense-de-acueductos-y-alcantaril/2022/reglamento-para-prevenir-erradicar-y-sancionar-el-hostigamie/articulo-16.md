@@ -1,0 +1,1 @@
+Artículo 16.-Plazo de la medida cautelar. La medida cautelar podrá interponerse en cualquier fase de la investigación. Una vez presentada ante la Gerencia General, este órgano contará con un plazo de 5 días hábiles para emitir la resolución respectiva.
