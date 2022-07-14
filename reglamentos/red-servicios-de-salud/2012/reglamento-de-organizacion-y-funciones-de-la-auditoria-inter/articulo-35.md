@@ -1,1 +1,0 @@
-Artículo 35.—Planificación. El Auditor Interno debe establecer planes basados en criterios razonables y fundamentados en el Plan Estratégico de la Auditoría y en una adecuada valoración del riesgo, a fin de determinar las prioridades de las actividades de la Auditoría.

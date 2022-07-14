@@ -1,1 +1,0 @@
-Artículo 21.—Delegación y responsabilidad. El Auditor Interno podrá delegar sus funciones en el personal a cargo, utilizando criterios de idoneidad, notificando a la Junta Directiva de la respectiva delegación.
