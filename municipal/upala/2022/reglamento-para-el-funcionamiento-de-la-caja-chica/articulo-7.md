@@ -1,0 +1,1 @@
+Artículo 7º-Devoluciones de dinero: el encargado de Tesorería, como responsable de la caja chica, recibirá devoluciones de dinero, únicamente en efectivo, sin ninguna excepción, asimismo deberá ser en moneda nacional. No está autorizado recibir para este fondo notas de crédito.

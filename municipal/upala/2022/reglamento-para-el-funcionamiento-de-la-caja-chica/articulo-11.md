@@ -1,0 +1,1 @@
+Artículo 11.-Trámite de Vales: sin excepción, solo se tramitarán vales de caja chica, siempre y cuando la persona solicitante no tenga pendiente de liquidación vales anteriores, sea dicho vale de un mismo centro de costo o un centro de costo diferente.

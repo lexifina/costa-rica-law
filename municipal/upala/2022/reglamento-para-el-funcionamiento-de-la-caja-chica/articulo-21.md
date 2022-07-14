@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De los reintegros
+Artículo 21.-Reintegros de Caja Chica: los desembolsos hechos por la caja chica reintegran semanalmente o antes de este período si el fondo llegará a agotarse. Para tal efecto el Tesorero presenta al Alcalde Municipal el detalle de los egresos realizados, indicando el número de factura, la fecha, el monto, departamento que efectuó el gasto, número de solicitud de caja chica, el detalle del servicio, el bien adquirido y la partida presupuestaria afectada, para que proceda conforme se indica en el artículo 50 del Manual de Procedimientos para la Contabilidad Municipal.

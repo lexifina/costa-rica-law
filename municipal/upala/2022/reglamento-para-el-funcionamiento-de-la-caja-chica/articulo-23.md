@@ -1,0 +1,1 @@
+Artículo 23.-Auditorías al Fondo de Caja Chica: la Auditoría Interna, de acuerdo con el análisis de los riesgos institucionales y la determinación del universo auditable, definirá la conveniencia y el momento de realizar evaluaciones al fondo de caja chica.

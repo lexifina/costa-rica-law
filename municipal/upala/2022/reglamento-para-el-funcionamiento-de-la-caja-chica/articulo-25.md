@@ -1,0 +1,1 @@
+Artículo 25.-Variación del objeto de compra: los fondos de los adelantos de caja chica no podrán ser utilizados en gastos diferentes a los que fueron previamente autorizados. Ni se pagarán aquellos bienes y/o servicios que fueron adquiridos previo a la autorización de un vale de caja chica.

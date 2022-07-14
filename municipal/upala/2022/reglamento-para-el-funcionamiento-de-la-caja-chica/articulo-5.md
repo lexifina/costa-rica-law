@@ -1,0 +1,1 @@
+Artículo 5º-Custodia: la custodia del fondo de caja chica estará a cargo de la persona responsable de la Tesorería Municipal, quien deberá actuar de conformidad con lo que disponga este Reglamento, el Código Municipal, la Ley de Administración Financiera, y demás normativa vigente y aplicable en la materia.
