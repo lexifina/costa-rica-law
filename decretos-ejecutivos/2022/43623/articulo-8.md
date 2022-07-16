@@ -1,0 +1,1 @@
+Artículo 8º-De las verificaciones de información entre instituciones. El MOPT en coordinación con las instituciones involucradas en los procesos de inscripción, importación de vehículos nuevos y usados, así como del control en carretera, podrá establecer los formatos de transmisión o entrega de la información que considere pertinentes y necesarios para este fin.

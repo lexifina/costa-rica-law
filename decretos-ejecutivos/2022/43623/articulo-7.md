@@ -1,0 +1,2 @@
+Artículo 7°-De los comprobantes de inspección técnica vehicular. El MOPT definirá los mecanismos impresos o digitales mediante los cuales brindará los comprobantes de aprobación de las inspecciones técnicas vehiculares. Para ello podrá utilizar los mecanismos de cooperación interinstitucional que considere pertinentes.
+Se insta a todas las instituciones públicas·, en el marco de sus competencias, atribuciones y capacidades legales, administrativas y operativas, a brindar cooperación para los efectos de este artículo.
