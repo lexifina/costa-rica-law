@@ -1,1 +1,0 @@
-Artículo 8º—Principio de participación de la juventud. La Municipalidad realizará las acciones pertinentes para la incorporación de la juventud en la toma de decisiones, la proposición, opinión y discusión de los temas que les afectan directa o indirectamente y para ello generarán los espacios y los mecanismos adecuados que permitan la inserción de este sector social.

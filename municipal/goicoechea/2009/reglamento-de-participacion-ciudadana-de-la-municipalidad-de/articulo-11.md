@@ -1,1 +1,0 @@
-Artículo 11.—La Municipalidad diseñará políticas y programas destinados a la juventud y a la niñez, con el propósito de fomentar en ellos el interés por la participación ciudadana en la gestión municipal.

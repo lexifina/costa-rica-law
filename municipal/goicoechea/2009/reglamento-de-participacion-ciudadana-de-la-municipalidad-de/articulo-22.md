@@ -1,1 +1,0 @@
-Artículo 22.—Todos los vecinos y vecinas del distrito tienen derecho a ser escuchadas en las reuniones de los concejos de distrito, para lo cual su titular deberá tomar las medidas correspondientes para garantizar dicho derecho.
