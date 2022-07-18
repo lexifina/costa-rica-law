@@ -14,3 +14,4 @@ Reforma Nombramiento del Comisionado de la Presidencia de la República para Afr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-01 | la propia norma |
+| 2 | 2022-07-18 | Decreto Ejecutivo 43639 (2022-07-18) |
