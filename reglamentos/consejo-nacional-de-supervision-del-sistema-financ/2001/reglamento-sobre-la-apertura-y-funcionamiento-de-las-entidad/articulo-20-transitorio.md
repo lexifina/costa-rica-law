@@ -1,0 +1,4 @@
+Disposiciones transitorias.
+La operadora que actualmente administra los recursos de los registros erróneos podrá seguir manteniendo la gestión de los mismos, así como de aquellos otros nuevos registros que se identifiquen, hasta el 31 de julio de 2023. Al cumplimiento de esta fecha, la operadora deberá trasladar los recursos a la Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal, S. A., a Vida Plena, Operadora de Pensiones Complementarias, S. A. y a la Operadora de Planes de Pensiones Complementarias de la Caja Costarricense de Seguro Social, S. A., de acuerdo con el mecanismo de afiliación automática indicado en el artículo 4 de este reglamento.
+La operadora seguirá percibiendo por la administración de los recursos antes indicados una comisión que no podrá exceder la que ordinariamente aplica por la administración del ROP y del FCL, respectivamente.
+(Así adicionado en sesión N° 1743 del 18 de julio de 2022)
