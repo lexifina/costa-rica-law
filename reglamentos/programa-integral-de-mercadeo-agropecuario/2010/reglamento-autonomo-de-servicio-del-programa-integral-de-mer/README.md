@@ -20,3 +20,4 @@ Reglamento Autónomo de Servicio del Programa Integral de Mercadeo Agropecuario
 | 5 | 2019-09-04 | Reglamento 0 (2019-09-04) |
 | 6 | 2019-10-01 | Reglamento 0 (2019-10-01) |
 | 7 | 2021-01-06 | Reglamento 0 (2021-01-06) |
+| 8 | 2022-07-18 | Reglamento 0 (2022-07-18) |
