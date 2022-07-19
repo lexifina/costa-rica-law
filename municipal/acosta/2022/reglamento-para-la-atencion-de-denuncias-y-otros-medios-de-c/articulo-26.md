@@ -1,0 +1,1 @@
+Artículo 26º.- Recursos. Contra los actos finales emitidos por la Auditoría Interna correspondientes a resoluciones motivadas de traslado, archivo o desestimación, cabrán los recursos ordinarios establecidos en la Ley General de la Administración Pública.

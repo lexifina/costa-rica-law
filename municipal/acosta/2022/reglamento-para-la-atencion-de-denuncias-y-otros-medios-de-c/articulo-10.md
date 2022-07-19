@@ -1,0 +1,3 @@
+Artículo 10º-Reglas de Notificación. Para efectos de la notificación, el denunciante deberá señalar una dirección única de correo electrónico, misma que podrá modificar en cualquier momento, previa comunicación a la Auditoría Interna.
+En caso de que el denunciante no indique una dirección única de correo electrónico para recibir notificaciones, o el correo señalado indique error, conforme a este Reglamento, éstas se tendrán por realizadas de forma automática; es decir, transcurridas 24 horas después de su emisión. Se producirá igual consecuencia cuando la notificación no se pueda efectuar por el medio señalado.
+En lo no regulado en este Reglamento se aplicará lo dispuesto en la Ley de Notificaciones Judiciales Nro. 8687.

@@ -1,0 +1,1 @@
+Artículo 20º.-Conformación del Expediente. La Auditoría Interna deberá documentar en un expediente individual, las acciones realizadas para la atención de las denuncias, mediante los medios definidos y oficializados por esa Unidad, velando por la integridad de la documentación que lo conforme, el cual deberá estar foliado y ordenado cronológicamente.
