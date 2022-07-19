@@ -1,0 +1,1 @@
+Artículo 8º-Aprobación de Contraloría General de la República: Cuando una entidad beneficiaria reciba subvención por un monto igual o mayor a la suma de doscientos veinte salarios base, establecido en el artículo 2 de la Ley N° 7337, del 5 de mayo de 1993 este presupuesto deberá remitirse a la Contraloría General de la República, para su aprobación.

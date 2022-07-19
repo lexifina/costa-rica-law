@@ -1,0 +1,1 @@
+Artículo 13.-Aprobación definitiva: El monto de la subvención que la Municipalidad transferirá a cada una de los centros educativos y sujetos privados, será aprobado definitivamente por el Concejo Municipal, mediante el trámite presupuestario que corresponda.

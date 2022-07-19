@@ -1,0 +1,1 @@
+Artículo 5º-Financiamiento parcial: Las entidades beneficiarias deben al menos de disponer del 10% de la totalidad del costo real del proyecto presentado, ya sea de recursos propios o de ingresos de otras instituciones, es decir el 100% del financiamiento del proyecto no puede corresponder a recursos provenientes de subvenciones.

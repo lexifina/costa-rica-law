@@ -1,0 +1,1 @@
+Artículo 11.-Casos excepcionales: Fuera del plazo establecido en el artículo anterior, la Dirección del Área de Desarrollo Social podrá en casos calificados, recomendar la asignación presupuestaria para que sean consideradas por el Concejo Municipal, en "Presupuestos Extraordinarios" o en "Modificaciones Presupuestarias", según las posibilidades financieras de la Municipalidad.
