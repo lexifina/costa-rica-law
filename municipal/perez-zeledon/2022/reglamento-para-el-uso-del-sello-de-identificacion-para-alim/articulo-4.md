@@ -1,0 +1,4 @@
+Artículo 4°-Procedimiento. El productor interesado en obtener una licencia de uso del sello, deberá tramitar por medio del formulario oficial y ante la Oficina Agro Municipal la solicitud.
+Una vez recibida la solicitud, el funcionario autorizado realizará una inspección que estará sujeta a disponibilidad en el cronograma de trabajo y recursos disponibles.
+Con la visita a campo, el funcionario revisará la propiedad del interesado para confirmar los datos suministrados en la solicitud y evaluará con detalle los productos para los que el interesado solicita una licencia de uso, la cadena de producción, el empaque, almacenamiento y el modelo de producción.
+Del análisis de dicha inspección se resolverá la aprobación o rechazo de la solicitud para obtener la licencia de uso del Sello que deberá emitirse dentro de los 15 días hábiles posteriores a la visita.

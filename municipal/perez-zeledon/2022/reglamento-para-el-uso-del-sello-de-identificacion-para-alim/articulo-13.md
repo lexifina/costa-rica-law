@@ -1,0 +1,1 @@
+Artículo 13.-Impugnación del acto de la denegatoria. Contra la resolución que deniegue el otorgamiento de la licencia de uso se procederá conforme lo establecido en el artículo 171 del Código Municipal.

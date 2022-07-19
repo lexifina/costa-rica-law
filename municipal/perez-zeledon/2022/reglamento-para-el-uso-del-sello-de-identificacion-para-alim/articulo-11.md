@@ -1,0 +1,1 @@
+Artículo 11.-Publicación y campaña del Sello de Identificación. La Municipalidad de Pérez Zeledón realizara periódicamente campañas que promuevan la utilización del Sello, así como del proceso para solicitar una licencia de uso. De igual modo, promoverá el consumo local entre los consumidores del Cantón Pérez Zeledón. De manera que también se fomentará una economía circulante.

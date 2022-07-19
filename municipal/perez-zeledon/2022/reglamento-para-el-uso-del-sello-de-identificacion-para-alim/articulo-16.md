@@ -1,0 +1,1 @@
+Artículo 16.-Evaluación de seguimiento. Las personas físicas o jurídicas que posean una licencia de uso del Sello, deben someterse a evaluaciones de seguimiento, que se realizaran según disponga y requiera la Oficina Agro Municipal de Pérez Zeledón.

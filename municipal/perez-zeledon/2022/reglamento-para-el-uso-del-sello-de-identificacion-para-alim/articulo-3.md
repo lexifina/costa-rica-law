@@ -1,0 +1,1 @@
+Artículo 3°-La Oficina Agro Municipal estandarizará una imagen del Sello de Identificación para Alimentos Producidos en el Cantón Pérez Zeledón. Además, deberá crear y actualizar periódicamente una base de datos de los usuarios del Sello de Identificación.
