@@ -1,0 +1,1 @@
+Artículo 2. Objetivo. La caución tiene como finalidad garantizar la compensación de eventuales daños y perjuicios que el responsable pueda producir al patrimonio de la Municipalidad de Acosta, sin que ello limite la eventual responsabilidad civil.

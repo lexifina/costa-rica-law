@@ -1,0 +1,1 @@
+Artículo 6. Asimismo, y cuando proceda, los funcionarios que suplan por ausencias a dichos niveles, cuyo nombramiento sea igual o superior a un mes calendario, deberán rendir caución en el mismo plazo indicado en el artículo 4 de este reglamento.

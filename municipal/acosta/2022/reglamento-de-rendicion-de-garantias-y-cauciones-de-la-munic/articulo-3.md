@@ -1,0 +1,1 @@
+Artículo 3. Forma de rendir la caución. La caución en favor de la Municipalidad de Acosta, deberá rendirse con cargo al peculio del funcionario obligado a rendir la caución, quien deberá gestionarla mediante la suscripción de un seguro o póliza de fidelidad ante el Instituto Nacional de Seguros.

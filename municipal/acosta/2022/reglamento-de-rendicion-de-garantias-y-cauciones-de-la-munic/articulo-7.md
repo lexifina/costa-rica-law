@@ -1,0 +1,1 @@
+Artículo 7. El caucionante que sea trasladado de un puesto a otro que implique una nueva ubicación en la clasificación por niveles de responsabilidad deberá ajustar la caución, para lo cual contará con un plazo de veinte días hábiles.

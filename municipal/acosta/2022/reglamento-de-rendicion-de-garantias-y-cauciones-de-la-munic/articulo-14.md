@@ -1,0 +1,1 @@
+Artículo 14. Los funcionarios que al momento de entrada en vigencia de este reglamento estén obligados a caucionar, contarán con un plazo de un mes calendario para gestionar la caución y presentar una copia ante la Tesorería Municipal.
