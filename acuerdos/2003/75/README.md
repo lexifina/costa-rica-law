@@ -52,3 +52,4 @@ Acuerdo sobre el Suministro de Información Periódica.
 | 37 | 2021-05-17 | Acuerdo 249 (2021-05-17) |
 | 38 | 2021-12-22 | Acuerdo 256 (2021-12-22) |
 | 39 | 2022-03-31 | Acuerdo 260 (2022-03-31) |
+| 40 | 2022-07-20 | Acuerdo 269 (2022-07-20) |

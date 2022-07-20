@@ -962,6 +962,178 @@ Indicadores de riesgo | No es aplicable a los fondos de inversión de capital de
 Reporte diario de fondos | No es aplicable a los fondos de inversión de capital de riesgo.
 Reporte de Colocaciones | (.) Aplicable a los fondos de inversión de capital de riesgo a partir del momento en que se registren sus participaciones para negociación en un mercado secundario organizado.
 ")
+(Nota de Sinalevi: Mediante el artículo 1° del acuerdo SGV-A-269 del 20 de julio de 2022, se acordó reformar el anexo 22 y 36 del presente acuerdo de la siguiente manera: "a) Se incorpora en el Anexo 22 del acuerdo SGV-A-75 Composición de las Carteras de Fondos de Inversión Inmobiliario, en el Archivo No.2 Plantilla de Inquilinos y el Archivo No.3 Plantilla de Morosidad, que considera los siguientes campos:
+No. | Nombre | Descripción | Formato | Long. | Dec.
+1 | Cédula del inquilino | Debe indicar el número de cédula jurídica, cédula de identidad, cédula de residencia, número de pasaporte u otro. | Numérico | 10 20 | 0
+2 | Código del Inmueble | Código asignado por la Superintendencia para identificar a los inmuebles que forman parte de los fondos de inversión | Numérico | 9 | 0
+3 | Saldos de Alquileres por cobrar | Corresponde al saldo que tiene registrado el inquilino por concepto de alquileres por cobrar al cierre del mes. Nota: la suma de todos los inquilinos debe ser igual a los Alquileres por cobrar reportados en el Balance General: 701025010000 701025020000 | Numérico | 18 | 2
+4 | Estimación de incobrables | Corresponde al saldo que tiene registrado el inquilino por concepto de estimación por incobrable al cierre del mes. Nota: la suma de todos los inquilinos debe ser igual a la cuenta de Estimación por Incobrables reportadas en el Balance General. Cuenta: 701025029000 | Numérico (Negativo o cero) | 18 | 2
+5 | Antigüedad de alquileres por cobrar | Indicar la cantidad de días naturales de esta cuenta referidas en la columna número 3. Nota: Antigüedad de las Alquileres por cobrar es una columna obligatoria cuando el Saldo de Alquileres por cobrar es mayor a cero. De lo contrario debe reportarse cero. | Numérico | 5 | 0
+6 | Saldo de cuentas de orden por concepto de ingresos por arrendamiento | Corresponde al saldo que tiene registrado el inquilino por concepto de cuentas de orden al cierre del mes. | Numérico | 18 | 2
+7 | Proceso Judicial de los alquileres registrados en cuentas de Orden | Se debe seleccionar una categoría de la lista adjunta para las Cuentas de Orden indicadas en la columna no.5: No aplica =0 Trámite administrativo =1 | Numérico | 1 | 0
+No. | Nombre | Descripción | Formato | Long. | Dec.
+| | Desahucio=2 Otros procesos legales=3 Nota: Proceso Judicial de los Alquileres registrados en Cuentas de Orden; es una columna obligatoria cuando el Saldo Cuentas de Orden por concepto de Ingresos por arrendamiento es mayor a cero. De lo contrario debe reportarse cero. | | |
+b) Se modifican en el Anexo 22 del acuerdo SGV-A-75 Composición de las Carteras de Fondos de Inversión Inmobiliario, los archivos No.1 y No.2.
+ARCHIVO No. 1 - PLANTILLA DE INMUEBLES
+Vigente | Propuesto
+Nombre | Descripción | Nombre | Descripción
+5 Mejoras capitalizadas | Monto de reparaciones, remodelaciones y mejoras realizadas al inmueble. | 5 Monto de Mejoras capitalizadas | Monto de reparaciones, remodelaciones y mejoras realizadas al inmueble.
+7 Valor en libros | Valor en libros del inmueble a la fecha valor de la cartera. Corresponde a la sumatoria del valor de adquisición, Estimación por valuación a valor razonable, Deterioro de Activos, Mejoras capitalizadas y Ampliaciones Capitalizadas (suma 2,3,4,5 y 6). | 7 Valor en libros | Valor en libros del inmueble a la fecha valor de la cartera. Corresponde a la sumatoria del valor de adquisición, estimación por valuación a valor razonable, mejoras, ampliaciones capitalizadas y deterioro.
+ARCHIVO No. 2 - PLANTILLA DE INQUILINOS
+[imagen] | Vigente | | Propuesto
+Nombre | Descripción | Nombre | Descripción
+3 Monto de la renta | Monto pagado por el inquilino por el arrendamiento durante el mes. | 3 Monto de la renta | Monto de arrendamiento pagado por el inquilino durante el mes. Nota: La suma de todos los inquilinos debe ser igual al
+| | | ingreso por arrendamiento reportado en el Estado de Resultados Mensual.
+n.a. | n.a. | 6 Justificación | Si en el periodo a reportar el monto de renta está afectado por otros ajustes, que generen un monto igual o menor a 0.01, debe describirse la motivación.
+| | | | |
+Anexo 22 Reporte de Composición de carteras de fondos inmobiliarios.docx
+c) Se modifica integralmente el Anexo 36 y su medio de envío en el Cuadro de Información Periódica del Acuerdo SGV-A-75, en los siguientes términos:
+Vigente | Propuesto
+Informe/ Reporte | Formato o normas sobre el Contenido | Medio de envío | Notas aclaratorias | Informe/ Reporte | Formato o normas sobre el Contenido | Medio de envío | Notas aclaratorias
+Cambios en la Información Inmobiliaria | Anexo 36 | MENDOCE L SGV-A-188 | | Cambios en la Informació n Inmobiliari a | Anexo 36 | Sistema de Autogestión de Información Inmobiliari a (AIM) Sistema Ingresador | Para la inclusión de la información seguir lo indicado en el Manual de Autogestión de Información Inmobiliaria
+Avalúo pericial y financiero de bienes inmuebles | n/a | MENDOCE L SGV-A-188 | Las declaraciones que deben remitir los valuadores deben ser en papel. (Circular 3055 del 19- 9-2014) | Avalúo IVS de Bienes Inmuebles | Anexo 36 | Sistema de Autogestión de Información Inmobiliari a (AIM) Sistema Ingresador | Para la inclusión de la información seguir lo indicado en el Manual de Autogestión de Información Inmobiliaria
+Anexo 36 Cambio en las características inmobiliarias.docx")
+(Mediante el artículo 2° aparte a) del acuerdo N° SGV-A-269 del 20 de julio de 2022, se reformó el anexo 62 referente a los servicios de intermediación de valores y su instructivo, en línea con el Reglamento de Intermediación y Actividades Complementarias, de la siguiente manera:
+Catálogo | Cuenta | Nombre
+SI_PB | 1000 | Cantidad de cuentas valor activas únicamente con contrato de ejecución de órdenes
+SI_PB | 1001 | Cantidad de cuentas valor activas únicamente con contrato de ejecución de órdenes con perfil profesional
+SI_PB | 1002 | Cantidad de cuentas valor activas únicamente con contratos de ejecución de órdenes con perfil no profesional
+SI_PB | 1100 | Ingresos brutos por los servicios de ejecución de órdenes
+SI_PB | 1101 | Ingresos brutos por los servicios de ejecución de órdenes con partes no relacionadas
+SI_PB | 1102 | Ingresos brutos por los servicios de ejecución de órdenes con partes relacionadas
+SI_PB | 2000 | Cantidad de cuentas valor activas con contrato de gestión de portafolios
+SI_PB | 2001 | Cantidad de cuentas valor activas con contrato de gestión de portafolios con perfil profesional
+SI_PB | 2002 | Cantidad de cuentas valor activas con contratos de gestión de portafolios con perfil no profesional
+SI_PB | 2100 | Ingresos brutos por los servicios de gestión de portafolios
+SI_PB | 2101 | Ingresos brutos por los servicios de gestión de portafolios con partes no relacionadas
+SI_PB | 2102 | Ingresos brutos por los servicios de gestión de portafolios con partes relacionadas
+SI_PB | 2500 | Activos administrados bajo contratos de gestión de portafolios o carteras individuales
+SI_PB | 2501 | Activos administrados bajo contratos de gestión de portafolios o carteras individuales con perfil profesional
+SI_PB | 2502 | Activos administrados bajo contratos de gestión de portafolios o carteras individuales con perfil no profesional
+SI_PB | 3000 | Cantidad de cuentas valor con contrato de recepción automatizada de órdenes
+SI_PB | 3100 | Ingresos brutos por los servicios de recepción automatizada de órdenes
+SI_PB | 3101 | Ingresos brutos por los servicios de recepción automatizada de órdenes con partes no relacionadas
+SI_PB | 3102 | Ingresos brutos por los servicios de recepción automatizada de órdenes con partes relacionadas
+SI_PB | 3500 | Volumen negociado bajo el servicio de recepción automatizada de órdenes
+SI_PB | 4000 | Cantidad de cuentas valor con contrato de acceso a plataformas de negociación directa
+SI_PB | 4100 | Ingresos brutos por los servicios de acceso a plataformas de negociación directa
+Catálogo | Cuenta | Nombre
+SI_PB | 4101 | Ingresos brutos por los servicios de acceso a plataformas de negociación directa con partes no relacionadas
+SI_PB | 4102 | Ingresos brutos por los servicios de acceso a plataformas de negociación directa con partes relacionadas
+SI_PB | 4500 | Volumen negociado por los clientes bajo el servicio de plataformas de negociación directa
+SI_PB | 5000 | Cantidad de cuentas valor con contrato de asesoría
+SI_PB | 5001 | Cantidad de cuentas valor activas con contratos de asesoría con perfil profesional
+SI_PB | 5002 | Cantidad de cuentas valor activas con contratos de asesoría con perfil no profesional
+SI_PB | 5100 | Ingresos brutos por los servicios de asesoría
+SI_PB | 5101 | Ingresos brutos por los servicios de asesoría con partes no relacionadas
+SI_PB | 5102 | Ingresos brutos por los servicios de asesorías con partes relacionadas
+SI_PB | 6000 | Cantidad de emisores de Oferta privada vigentes, según las aprobaciones requeridas en el artículo 12 del Reglamento de Intermediación y Actividades Complementarias
+SI_PB | 6100 | Saldo en emisiones de Oferta privada colocadas a inversionistas y en custodia al cierre del periodo
+SI_PB | 6200 | Cantidad de cuentas valor con emisiones de oferta privada vigentes
+SI_PB | 6500 | Volumen total colocado por emisores de oferta privada en el período
+SI_PB | 6700 | Ingresos brutos por las colocaciones de emisiones de oferta privada
+SI_PB | 7000 | Cantidad de contratos de referimiento vigentes
+SI_PB | 7001 | Cantidad de contratos de referimiento vigentes a partes no relacionadas
+SI_PB | 7002 | Cantidad de contratos de referimiento vigentes a partes relacionadas
+SI_PB | 7100 | Cantidad de clientes referidos
+SI_PB | 7101 | Cantidad de clientes referidos a partes no relacionadas
+SI_PB | 7102 | Cantidad de clientes referidos a partes relacionadas
+SI_PB | 7200 | Ingresos brutos por los servicios de referimiento de clientes
+SI_PB | 7201 | Ingresos brutos por los servicios de referimiento de clientes a partes no relacionadas
+SI_PB | 7202 | Ingresos brutos por los servicios de referimiento de clientes a partes relacionadas
+SI_PB | 8000 | Cantidad de contratos de estructuración de emisiones vigentes
+SI_PB | 8100 | Cantidad de contratos de estructuración de emisiones vigentes para oferta pública
+SI_PB | 8200 | Cantidad de contratos de estructuración de emisiones vigentes para oferta privada
+SI_PB | 8300 | Ingresos brutos por los servicios de colocación de emisiones de oferta pública
+SI_PB | 8301 | Ingresos brutos por servicios de colocación de emisiones de oferta pública con partes no relacionadas
+SI_PB | 8302 | Ingresos brutos por servicios de colocación de emisiones de oferta pública con partes relacionadas
+SI_PB | 9000 | Cantidad de cuentas valor únicamente con contratos de servicio de custodia
+SI_PB | 9100 | Ingresos brutos por los servicios de custodia
+SI_PB | 9101 | Ingresos brutos por servicios de custodia con partes no relacionadas
+SI_PB | 9102 | Ingresos brutos por servicios de custodias con partes relacionadas
+Catálogo | Cuenta | Nombre
+SI_PB | 10000 | Cantidad de cuentas valor activas con contratos de servicios de intermediación de valores
+SI_PB | 10200 | Cantidad de cuentas valor inactivas con contratos de servicios de intermediación de valores
+Anexo 62 Reporte de servicios de intermediación de valores.xlsx")
+(Mediante el artículo 2° aparte b) del acuerdo N° SGV-A-269 del 20 de julio de 2022, se reformó el anexo 31 referente a la Suficiencia Patrimonial, mismo que se leerá de la siguiente manera: "b) Se incorpora al Anexo 31 Suficiencia Patrimonial, las plantillas para el cálculo de la Suficiencia Patrimonial de las bolsas de valores y de las centrales de anotación en cuenta.
+Código Cuenta | Cuenta Madre | Descripción
+10000000 | 0 | % DE CAPITAL COMPROMETIDO PARA LA COBERTURA DE RIESGOS (B/A)
+20000000 | 0 | DEFICIT / SUPERAVIT DE RECURSOS (A-B)
+20100000 | 20000000 | A- CAPITAL BASE
+20110000 | 20100000 | A.1- CAPITAL PRIMARIO
+20110100 | 20110000 | Capital pagado Ordinario
+20110200 | 20110000 | Capital pagado preferente con dividendo no acumulativo
+2010300 | 20110000 | Capital Donado
+20110400 | 20110000 | Capital pagado adicional
+20110500 | 20110000 | Reservas Legales
+20115100 | 20110000 | (menos) Valor en libros de acciones de la entidad objeto de gravámenes
+20115200 | 20110000 | (menos) Acciones en tesorería con capital pagado ordinario
+20115300 | 20110000 | (menos) Acciones en tesorería con capital pagado preferente con dividendo no acumulativo
+20115400 | 20110000 | (menos) Participaciones en acciones de otras empresas del grupo financiero
+20120000 | 20100000 | A.2- CAPITAL SECUNDARIO
+20120100 | 20120000 | Capital pagado preferente con dividendo acumulativo
+20120200 | 20120000 | Ajustes al patrimonio por revaluación de bienes inmuebles (no mayor al 75% del monto)
+20120300 | 20120000 | Aportes por capitalizar pendientes de autorización
+20120400 | 20120000 | Donaciones por capitalizar pendientes de autorización
+20120500 | 20120000 | Donaciones y otras contribuciones no capitalizables
+20120600 | 20120000 | Aumento al patrimonio por valoración a precios de mercado de las inversiones propias
+20120700 | 20120000 | Utilidad acumulada de periodos anteriores
+20120800 | 20120000 | Utilidad del periodo actual
+20125100 | 20120000 | (menos) Acciones en tesorería de capital pagado preferente con dividendo acumulativo
+20125200 | 20120000 | (menos) Disminución al patrimonio por deterioro y valoración a precios de mercado de las inversiones propias
+20125300 | 20120000 | (menos) Pérdida acumulada de periodos anteriores
+20125400 | 20120000 | (menos) Pérdida del periodo actual
+20130000 | 20100000 | A.3- TOTAL DE DEDUCCIONES
+20130100 | 20130000 | (menos) 100% Préstamos por cobrar
+Código Cuenta | Cuenta Madre | Descripción
+20130200 | 20130000 | (menos) 100% Cuentas y productos por cobrar
+20130300 | 20130000 | (menos) 100% Comisiones por cobrar
+20130400 | 20130000 | (menos) 100% de inversiones en instrumentos financieros en entidades en cesión de pagos, morosos o en litigios
+20130500 | 20130000 | (menos) 100% Activos restringidos (se excluyen los títulos dados en garantía de reporto tripartito, reporto y mercado de liquidez)
+20130600 | 20130000 | (menos) 100% Activos diferidos
+20130700 | 20130000 | (menos) 100% Gastos pagados por anticipado
+20130800 | 20130000 | (menos) 100% Activos intangibles
+20130900 | 20130000 | (menos) 100% Inversiones en propiedades
+20131000 | 20130000 | (menos) 50% Activo fijo neto de depreciación acumulada
+20200000 | 20000000 | B- REQUERIMIENTOS DE CAPITAL
+20250000 | 20200000 | B.1 - Riesgo operativo
+20250100 | 20250000 | B.1.1- Otros eventos de riesgo operativo
+Anexo 31 Suficiencia patrimonial.xls
+(Mediante el artículo 2° aparte c) del acuerdo N° SGV-A-269 del 20 de julio de 2022, se reformó el anexo 3 referente a Colocaciones, mismo que se leerá de la siguiente manera: c) Se modifica el Anexo 3 Colocaciones, específicamente el Anexo 3.a.2 Instructivo para el "Reporte de movimientos de deuda estandarizada"
+| Vigente | Propuesto
+(.) | (.) | (.)
+Cuando aplica el envío de la información, mecanismo y plazo: | El acuerdo SGV-A-75 "Acuerdo sobre el Suministro de Información Periódica", establece que este reporte deberá ser remitido a la Sugeval por medio del Sistema Ingresador de Información Periódica a más tardar el día hábil siguiente a la fecha en que ocurre el movimiento a reportar. Los movimientos por reportar son los siguiente: | El acuerdo SGV-A-75 "Acuerdo sobre el Suministro de Información Periódica", establece que este reporte debe ser remitido a la Sugeval por medio del Sistema Ingresador de Información Periódica a más tardar el día hábil siguiente a la fecha en que ocurre el movimiento a reportar. Los movimientos por reportar son los siguiente:
+| 1. El resultado de las colocaciones, ventanillas inversas y subastas inversas, de mercado primario cuando el emisor realice directamente la transacción, es decir, que no utilice los sistemas de una bolsa de Valores autorizada en el Registro Nacional de Valores de Costa Rica. Inclusive en los casos en que no se hayan colocado valores, si se recibieron ofertas de compra, deberán enviarse la información sobre dichas ofertas | 1. El resultado de las colocaciones, ventanillas inversas y subastas inversas, de mercado primario cuando el emisor realice directamente la transacción, es decir, que no utilice las siguientes plataformas de negociación: a) De una bolsa de Valores autorizada en el Registro Nacional de Valores de Costa Rica. b) Plataforma SINPE en los servicios de subasta de valores (SVA) y Ventanilla de Valores (VVA).
+| Vigente | Propuesto
+| conforme de requerido en el catálogo. | Inclusive en los casos en que no se hayan colocado valores, si se recibieron ofertas de compra, deberán enviar la información sobre dichas ofertas conforme lo requerido en el catálogo.
+| 2. Para las colocaciones que se realcen mediante contratos de suscripción en firme se deberán reportar la totalidad de la colocación independientemente de que el emisor realice directamente la transacción o que utilice los sistemas de una bolsa de valores. | 2. Para las colocaciones que se realicen mediante contratos de suscripción en firme y mejor esfuerzo se debe reportar la totalidad de la colocación, independientemente de que el emisor realice directamente la transacción o que utilice alguna plataforma de negociación indicadas en el punto anterior.
+| 3. En el caso de los contratos de suscripción en garantía, se deberá reportar la colocación de la primera etapa de suscripción (ventanilla o subasta) únicamente cuando no se utilicen los sistemas de una Bolsa de Valore autorizada en el Registro Nacional de Valores de Costa Rica. Si no se coloca el 100% en la primera etapa, se deberá reportar la colocación remanente, la cual corresponderá a la suscripción. | 3. En el caso de los contratos de suscripción en garantía, en donde la colocación no se haya efectuado a través de alguna de las plataformas de negociaciones indicadas, se debe reportar la colocación realizada en la primera etapa del proceso de suscripción (ventanilla o subasta). Si no se coloca el 100% en la primera etapa del proceso se debe reportar la colocación remanente, la cual corresponde a la suscripción.
+(.) | (.) | (.)
+(Mediante el artículo 2° aparte d) del acuerdo N° SGV-A-269 del 20 de julio de 2022, se reformó la validación del precio en los Reportes de Inversiones de Puestos de Bolsa (Anexo 10), Sociedades de Fondos de Inversión y Fondos de Inversión (Anexo 18); de la siguiente manera:
+Anexos 10 y 18 | Vigente | Propuesto
+(.) | (.) | (.)
+Precio de mercado | No podrá ser un valor negativo, cero o nulo, excepto cuando el Indicador de Recompras y Préstamo de valores sea igual a RV (Recompra posición vendedor a plazo), se deben indicar con un precio de 0. | No podrá ser un valor negativo o nulo, excepto cuando el Indicador de Recompras y Préstamo de valores sea igual a RV (Recompra posición vendedor a plazo), se deben indicar con un precio de 0.
+Anexos 10 y 18 | Vigente | Propuesto
+| Si el Modelo de Negocio es igual a "CA" este campo siempre debe incluir el precio de mercado para fines informativos. | Si el Modelo de Negocio es igual a "CA" este campo siempre debe incluir el precio de mercado para fines informativos.
+Anexo 10 Carteras Puestos de Bolsa.docx
+Anexo 18 Carteras Safis y Fondos.docx")
+(Mediante el artículo 3° aparte a) del acuerdo N° SGV-A-269 del 20 de julio de 2022, se acordó incorporar en el Cuadro de Información Periódica para bolsas de valores y centrales de valores el reporte de suficiencia patrimonial, de la siguiente manera: a) Se incorpora en el Cuadro de Información Periódica para bolsas de valores y centrales de valores el reporte de suficiencia patrimonial.
+Bolsas de valores y Centrales de valores | Periodicidad | Plazo máximo de entrega | Formato o normas sobre el Contenido | Medio de envío | Notas Aclaratorias
+Reporte de suficiencia patrimonial | Mensual | 7 días hábiles después del cierre mensual | Anexo 31 | Sistema Ingresador | La información debe remitirse en miles de colones)
+(Mediante el artículo 3° aparte b) del acuerdo N° SGV-A-269 del 20 de julio de 2022, se acordó modificar en el Cuadro de Información Periódica para Emisores, la presentación de los estados financieros del garante en el caso de emisores o emisiones que utilicen esta figura:, de la siguiente manera:
+Informe o Reporte
+Vigente | Propuesto
+Estados financieros de fideicomisos de garantía de emisiones | Estados financieros de garante y/o fideicomisos de garantía d emisiones
+Estados financieros auditados de Fideicomisos de garantía | Estados financieros auditados
+Estados financieros internos de Fideicomisos de garantía | Estados financieros internos)
+(Mediante el artículo 3° aparte c) del acuerdo N° SGV-A-269 del 20 de julio de 2022, se acordó modificar el plazo máximo de entrega de la Suficiencia Patrimonial y Control de Límites, de la siguiente manera:
+(Anexo 31) para Sociedades Fiduciarias, Titularizadoras y Universalidades en el Cuadro de Información Periódica:
+Informe/Reporte | Plazo máximo de entrega vigente | Plazo máximo de entrega propuesto
+Suficiencia patrimonial y control de límites | 7 días hábiles después del cierre mensual | 5 días hábiles después del cierre mensual)
+(Mediante el artículo 3° aparte d) del acuerdo N° SGV-A-269 del 20 de julio de 2022, se acordó modificar el medio de envío de la comunicación del auditor externo para Emisores no Financieros, Puestos de Bolsa, Sociedades de Fondos de Inversión y fondos de inversión, Sociedades Fiduciarias, Titularizadoras y Universalidades, Bolsas de valores, Centrales de valores, Calificadoras de riesgo, Grupos Financieros supervisados por Sugeval y Proveedores de Precios.
+Informe/Reporte | Medio de envío Vigente | Medio de envío Propuesto
+Comunicación del nombre del Contador Público Autorizado o firma de auditores externos del emisor y los garantes | MENDOCEL SGV-A-188 | Sistema de Registro y Actualización de Roles. SGV-A-188
+Cuadro de información periódica.xls)
 SGV-A-75.-Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 Considerando:
 I. Que mediante artículo 13 del Acta de la Sesión 81 -99. celebrada el 18 de marzo de 1999. el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y otras Obligaciones de Información con lineamientos sobre los deberes de comunicación de los diferentes participantes en el mercado de valores.
@@ -978,3 +1150,8 @@ Salvo en lo concerniente al Reporte de Colocaciones, se exceptúa de los requisi
 a. Ministerio de Hacienda, Banco Central de Costa Rica, y los emisores públicos no bancarios que cuenten con la garantía solidaria del estado costarricense.
 b. Empresas emisoras que se encuentren en proceso de administración por intervención judicial, así como otros fiscalizados que se encuentren intervenidos por la Superintendencia General de Valores (SUGEVAL) o la Superintendencia General de Entidades Financieras (SUGEF).
 c. Organismos internacionales con participación del Estado Costarricense autorizados para realizar oferta pública de valores.
+(Nota de Sinalevi: Mediante acuerdo SGV-A-278 publicado en La Gaceta N° 109 del 19 de junio del 2023, se reforma el acuerdo SGV-A-75 del 24 de abril del 2003. De conformidad con lo establecido en el artículo 4 del acuerdo cita, la reforma respectiva entrará a regir el 1° de julio del 2023, por lo que a partir de esa fecha se adiciona un párrafo segundo al artículo 1° del acuerdo SGV-A-75 cuyo texto del citado párrafo será el siguiente:
+“Artículo 1°- Alcance
+(…)
+De la misma forma, este acuerdo considera las obligaciones de información para las Entidades de Registro Centralizado de Valores de conformidad con el Reglamento sobre Entidades de Registros Centralizados de Letras de Cambio y Pagarés Electrónicos, Acuerdo SUGEVAL 21-23.
+(…)”
