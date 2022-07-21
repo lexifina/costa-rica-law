@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-MA-P05 Procedimiento de Reconocimiento de la equiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-13 | la propia norma |
+| 2 | 2022-07-21 | Acuerdo 4 (2022-07-21) |
