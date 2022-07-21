@@ -1,4 +1,6 @@
-Artículo 22.—Los excedentes de FOMUVEL que se generen a partir de la vigencia de este reglamento se distribuirán de la siguiente manera:
-a) El 75% se distribuirá y pagará en efectivo a los vendedores en forma proporcional a sus aportes a FOMUVEL.
-b) El 20% se destinará a satisfacer necesidades relacionadas con proyectos sociales y de educación.
-c) El 5% se destinará al mantenimiento de la reserva para pérdidas imprevistas.
+Artículo 22: De los excedentes brutos generados por FOMUVEL se creará una reserva para la atención de cualquier contingencia futura que afecte a FOMUVEL y también una provisión para la atención de los programas sociales y educativos que estén a disposición del vendedor de lotería.
+La reserva para contingencias futuras y la provisión para proyectos sociales y educativos se alimentarán de la siguiente manera:
+a. EL 20% del excedente bruto se destinará a la provisión para proyectos sociales y de educación.
+b. El 10% del excedente bruto se destinará al mantenimiento de la reserva para contingencias futuras. Esta obligación cesará cuando la reserva alcance el veinte por ciento (20%) del capital contable y este 10% pasará formar parte del porcentaje a distribuir entre los vendedores de lotería.
+El 70 % de los excedentes netos de FOMUVEL que se generen a partir de la vigencia de este reglamento, o el 80% cuando la reserva para contingencias futuras alcance el veinte por ciento (20%) del capital contable, se distribuirán y pagarán en forma proporcional a los aportes de cada vendedor de lotería que estuvo activo en el ejercicio económico que generó ese resultado.
+(Así reformado en sesión N° 34 del 21 de julio de 2022)
