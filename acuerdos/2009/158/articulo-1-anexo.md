@@ -174,6 +174,22 @@ Lineamientos para la administración y control de la liquidez | (Describir la po
 Políticas y lineamientos sobre reparaciones, remodelaciones, mejoras y ampliaciones de inmuebles | (Indicar los lineamientos) |
 Políticas y lineamientos sobre la creación y uso de reservas | (Indicar los lineamientos para su creación, para su uso, indicar que no constituye un mecanismo que pretenda garantizar al inversionista un rendimiento determinado) |
 | | | |
+(*) 4B.3. En el caso de que se hayan definido objetivos o lineamientos de la entidad en relación con los temas ambientales, sociales y de gobernanza, se debe revelar:
+Disposiciones ambientales, sociales y de gobernanza
+Objetivos o lineamientos | Describir los objetivos o
+de gestión de activos bajo | lineamientos aprobados
+factores ambientales, | para el fondo relacionados
+sociales y de gobernanza. | con los factores
+ambientales, sociales y de
+gobernanza, y describir la
+participación de los órganos
+de administración, dirección
+y supervisión en el
+seguimiento y supervisión
+de las acciones realizadas
+para la consecución de
+dichos objetivos.
+(*) (Así adicionado el punto 4 B.3) anterior por el artículo 1° del acuerdo N° SGV-A-268 del 21 de julio de 2022)
 4C DESCRIPCIÓN DEL PROYECTO13
 (13Sección adicionada por el Acuerdo del Superintendente SGV-A-218 del 19 de agosto del 2016.)
 En el caso de fondos de desarrollo de proyectos, se debe revelar la siguiente información. En los casos en que se haga referencia a anexos, estos deben ser claramente identificados:

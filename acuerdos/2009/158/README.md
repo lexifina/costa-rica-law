@@ -21,3 +21,4 @@ Guía para la elaboración y Remisión de prospectos de Fondos de Inversión
 | 6 | 2019-10-16 | Acuerdo 236 (2019-10-16) |
 | 7 | 2021-12-22 | Acuerdo 255 (2021-12-22) |
 | 8 | 2022-03-31 | Acuerdo 261 (2022-03-31) |
+| 9 | 2022-07-21 | Acuerdo 268 (2022-07-21) |
