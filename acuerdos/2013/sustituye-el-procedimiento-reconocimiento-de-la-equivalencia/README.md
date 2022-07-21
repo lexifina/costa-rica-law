@@ -20,3 +20,4 @@ Sustituye el "Procedimiento reconocimiento de la equivalencia del Certificado de
 | 5 | 2019-08-05 | Acuerdo 8 (2019-08-05) |
 | 6 | 2020-05-05 | Acuerdo 5 (2020-05-05) |
 | 7 | 2021-12-15 | Acuerdo 13 (2021-12-15) |
+| 8 | 2022-07-21 | Acuerdo 4 (2022-07-21) |
