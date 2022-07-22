@@ -1,0 +1,1 @@
+ARTÍCULO 2- Dicho inmueble será utilizado como casa de habitación de la señora Salvatierra y ella podrá ejecutar las mejoras que considere necesarias de construcción, para el buen funcionamiento de esta y/o construir una casa nueva.
