@@ -14,3 +14,4 @@ Asocia la nota técnica 0390 a varios productos certificados como orgánicos, pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-22 | la propia norma |
+| 2 | 2022-07-22 | Resolución 258 (2022-07-20) |
