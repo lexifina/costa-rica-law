@@ -1,0 +1,1 @@
+Artículo 22.-Cuando la prueba resulte positiva en el caso de los funcionarios activos, el especialista preparará un informe pormenorizado, el cual será remitido a la Alcaldía Municipal a efecto de que se instaure el procedimiento disciplinario correspondiente, de conformidad con la normativa vigente y bajo los parámetros del debido proceso.

@@ -1,0 +1,1 @@
+Artículo 19.-EI profesional en salud entregará al Departamento de Talento Humano y Salud Ocupacional el sobre que contiene los resultados. Una vez impuesto del contenido, decidirá lo que corresponda en cada caso, consignándolo en un libro de actas para ese efecto.

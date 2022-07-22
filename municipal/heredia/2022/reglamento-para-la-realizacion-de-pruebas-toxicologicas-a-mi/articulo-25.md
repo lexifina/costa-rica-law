@@ -1,0 +1,1 @@
+Artículo 25.-Después de publicado el presente Reglamento en el periódico oficial La Gaceta, el Gestor de Seguridad Ciudadana de la Policía Municipal de Heredia tendrá la obligación de comunicar a cada uno de los funcionarios del respectivo cuerpo policial, los alcances de las medidas de este acto.

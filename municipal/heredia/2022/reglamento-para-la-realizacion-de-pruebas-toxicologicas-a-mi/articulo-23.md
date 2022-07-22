@@ -1,0 +1,1 @@
+Artículo 23.-Serán consideradas como sustancias prohibidas para los efectos del presente reglamento la cocaína y sus derivados, cannabinoides, opiáceos, anfetaminas, metanfetaminas, LSD, PCP y cualquier otra droga de uso prohibido que se requiera controlar.
