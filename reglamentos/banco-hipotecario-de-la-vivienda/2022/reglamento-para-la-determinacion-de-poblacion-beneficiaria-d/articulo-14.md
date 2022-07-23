@@ -1,0 +1,5 @@
+CAPÍTULO 3. PLATAFORMA DE POBLACIÓN POTENCIAL BENEFICIARIA DE
+PROYECTOS DE VIVIENDA DEL SFNV
+Artículo 14. La Plataforma
+Para los proyectos de vivienda financiados al amparo del artículo No. 59 de la LSFNV, se debe utilizar La Plataforma de Población Potencial Beneficiaria de Proyectos de Vivienda del SFNV, la cual permite identificar y seleccionar a la Población Preliminar Potencial Beneficiaria. La Plataforma es el mecanismo mediante el cual se aplican de manera predeterminada, automatizada y simultánea, las condiciones básicas y los criterios de identificación dispuestos en el presente Reglamento.
+La Plataforma genera "Listados de tramitación de proyecto de vivienda" que identifican Población Preliminar Potencial Beneficiaria, y verifica que la jefatura del núcleo familiar, cuente con registro en el SINIRUBE y con información actualizada en los últimos dos años a partir de la fecha de solicitud de confección del listado. Además, identifica y excluye que la Población Preliminar Potencial Beneficiaria que forme parte de otra lista generada por La Plataforma.

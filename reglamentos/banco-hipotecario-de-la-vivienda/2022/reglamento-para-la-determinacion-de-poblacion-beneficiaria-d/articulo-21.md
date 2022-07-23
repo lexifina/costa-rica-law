@@ -1,0 +1,2 @@
+Artículo 21. Procedimiento manual para la atención de la Ley No. 8688
+La entidad autorizada debe incluir en los proyectos de vivienda del SFNV a personas y núcleos familiares atendidos mediante la Ley No. 8688, mediante la aplicación del "Procedimiento manual para la atención de la Ley No. 8688", en aras de garantizar una adecuada asignación de los recursos del Estado, y atender a las personas afectadas por violencia contra la mujer y/o violencia intrafamiliar.

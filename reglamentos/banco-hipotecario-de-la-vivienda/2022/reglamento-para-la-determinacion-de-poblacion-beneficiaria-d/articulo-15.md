@@ -1,0 +1,11 @@
+Artículo 15. Información de La Plataforma
+La Plataforma utiliza la información de la base de datos actualizada, de cobertura nacional, disponible en SINIRUBE, que permite identificar a la población preliminar potencial beneficiaria que cumple con las condiciones básicas y los criterios de identificación, con base a la siguiente información:
+1. Las personas y núcleos familiares en extrema necesidad, de conformidad con el artículo 10 inciso 4) del presente reglamento, se identifican con base en los datos de información socioeconómica y Sistema Centralizado de Recaudación (SICERE) que aporta la Caja Costarricense del Seguro Social (CCSS) e información socioeconómica que aporta el IMAS.
+2. Personas y núcleos familiares atendidos mediante la Ley No. 8688: se identifican con base en información que es suministrada por forma manual por el INAMU y no se registra en SINIRUBE.
+3. Las mujeres con necesidad de vivienda de la Ley No. 7769 se identifican con base en información del INAMU y su condición de pobreza se identifica con base en datos disponibles en el Registro de Información Social (RIS), recopilados por la CCSS.
+4. Personas y núcleos familiares damnificados por emergencia con daño en vivienda o en riesgo inminente, según resolución de la CNE, se identifican con base en los datos del Sistema de Emergencia de Vivienda (SIDEVI), aportados por el MIVAH.
+5. Personas adultas mayores: se identifican con base en datos disponibles en la RIS recopilados por la CCSS, IMAS y TSE.
+6. Personas con discapacidad: se identifican con base en datos disponibles en la RIS recopilados por la CCSS, IMAS
+7. Personas o núcleos familiares que habitan en asentamiento informal se identifican con base en datos de tipo de tenencia de la vivienda disponibles en la RIS recopilados por la CCSS y el IMAS.
+8. Población determinada por el plan o la estrategia concreta, que el Poder Ejecutivo establece vía Decreto Ejecutivo, para la lucha contra la pobreza y la reducción de la desigualdad.
+9. Población en vulnerabilidad social se identifica con base en datos de nivel de hacinamiento, características físicas de la vivienda, cantidad de miembros del núcleo familiar ingresos del núcleo familiar y presencia de jefatura familiar femenina disponibles en la RIS recopilados por el IMAS y la CCSS.
