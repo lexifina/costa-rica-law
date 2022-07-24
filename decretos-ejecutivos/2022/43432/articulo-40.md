@@ -1,0 +1,4 @@
+Artículo 40°. - Emisión del nuevo documento. Para los casos estipulados en los artículos 35°, 36°, 37° y 38° del presente reglamento, la DARS debe emitir un nuevo documento, realizando los cambios de las calidades correspondientes y manteniendo los otros términos estipulados en el permiso original.
+La DARS debe anular tanto el documento original como la copia de este que se encuentran en el expediente, indicando sobre estos la palabra "ANULADO", con la firma del responsable de la anulación y el sello de DARS.
+En el caso de reposición por pérdida, en el nuevo documento se debe agregar la palabra "DUPLICADO" tanto al original como en la copia que se consigna en el expediente.
+Lo correspondiente a la identificación del certificado anulado o duplicado no aplica si el permiso se gestionó en la plataforma digital.

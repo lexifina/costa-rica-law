@@ -1,0 +1,1 @@
+Artículo 46°. - Implementación de los programas, planes, BPM, BPAD. En el caso de renovación del permiso es responsabilidad del permisionario mantener implementados los programas, planes, BPM, BPAD, descritos en el presente capítulo.

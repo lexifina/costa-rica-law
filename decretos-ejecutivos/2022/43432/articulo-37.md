@@ -1,0 +1,1 @@
+Artículo 37°. - Cambio del representante legal. En caso de que una persona jurídica permisionaria decida realizar un cambio en su representante legal, debe presentar ante la DARS una nota informando sobre el cambio. El DARS deberá proceder con la actualización del expediente administrativo. El administrado conservará el permiso que le fue otorgado por el tiempo estipulado.

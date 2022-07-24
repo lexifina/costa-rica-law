@@ -1,0 +1,4 @@
+Artículo 9°. - Presentación de la solicitud del trámite de permiso. El interesado debe presentar ante la DARS las solicitudes de permiso por primera vez o renovación por alguna de las siguientes vías:
+a. De forma impresa, apersonándose ante las ventanillas de atención al público de las DARS.
+b. Por correo electrónico, adjuntando los documentos requeridos firmados digitalmente por el interesado, así como cualquier otro requisito que establezca la normativa correspondiente, y señalando un correo electrónico para las notificaciones. La lista de correos electrónicos de las DARS está disponible en la página web del Ministerio de Salud en siguiente enlace: https://www.ministeriodesalud.go.cr/index.php/tramitesms/permisos-a-establecimientos-ms.
+c. En línea, si la DARS está incorporada a la plataforma digital implementada para realizar estos trámites, conforme el procedimiento definido para ello.

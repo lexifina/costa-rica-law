@@ -1,0 +1,1 @@
+Artículo 58°. - Plazo de resolución de las autorizaciones sanitarias. Las autoridades de salud contarán con un plazo de diez días naturales, para resolver la solicitud de autorización. El resultado del trámite deberá constar en una resolución firmada por el director del Área Rectora de Salud o el Director Regional, según corresponda, donde se tramitó la solicitud.

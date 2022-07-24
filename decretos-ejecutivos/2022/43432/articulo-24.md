@@ -1,0 +1,1 @@
+Artículo 24°. - PSF en sitios regulados según artículo 218 bis de la Ley No. 5395 Ley General de Salud. Para los sitios o predios en los que se vayan a establecer las actividades cubiertas por el Artículo 218 bis de la Ley No. 5395 "Ley General de Salud", el administrado o propietario de dichos sitios debe tramitar el PSF ante la DARS correspondiente.

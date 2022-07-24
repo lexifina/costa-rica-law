@@ -1,0 +1,5 @@
+Artículo 18°. - Emisión del permiso. Una vez revisada la información suministrada en la solicitud del permiso y en caso de cumplir con los requisitos señalados en este reglamento, las autoridades respectivas deben emitir el permiso siguiendo las siguientes indicaciones:
+a. En el caso de las solicitudes de permiso por primera vez; para todos los grupos de riesgo se debe emitir de forma inmediata el permiso utilizando el apartado F del formulario de solicitud.
+b. En el caso de las solicitudes de permiso por renovación de las actividades en los grupos de riesgo A y B la emisión de los permisos debe respaldarse con una resolución y siguiendo las indicaciones del artículo siguiente.
+c. Para las solicitudes de renovación de las actividades del grupo C se debe emitir de forma inmediata el permiso utilizando el apartado F del formulario de solicitud.
+Tanto los permisos como las resoluciones deben ser firmados por el director(a) del DARS correspondiente o el funcionario en quien haya delegado tal función.

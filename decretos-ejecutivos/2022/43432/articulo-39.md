@@ -1,0 +1,2 @@
+Artículo 39°. - Cambios o traslado de actividades. En el caso que un permisionario decida adicionar actividades accesorias debe presentar ante la DARS el Formulario de solicitud de Modificación o Reposición de Permiso (Anexo 11) debidamente lleno.
+En el caso que un permisionario decida realizar cambio de la actividad principal que implique una clasificación bajo otro código CAECR o decida trasladar sus actividades a un nuevo establecimiento o unidad móvil de servicios de salud, debe tramitar el permiso por primera vez.

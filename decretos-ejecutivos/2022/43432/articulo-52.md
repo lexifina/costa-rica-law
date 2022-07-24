@@ -1,0 +1,4 @@
+CAPÍTULO IX.
+DE LAS AUTORIZACIONES SANITARIAS PARA EVENTOS
+TEMPORALES DE CONCENTRACION MASIVA DE PERSONAS.
+Artículo 52°. - Instancia de presentación de la solicitud de autorización sanitaria. La solicitud debe ser presentada en la Dirección de Área Rectora de Salud en cuya competencia territorial se vaya a desarrollar el evento. Cuando el evento temporal se efectúe en los territorios de dos o más Áreas Rectoras de Salud, el interesado debe presentar la solicitud ante la Dirección Regional de Rectoría de la Salud correspondiente. Y en aquellos casos en los que el evento se realice dentro de las competencias territoriales de dos o más Direcciones Regionales de Rectoría de la Salud, la solicitud debe ser presentada ante la Dirección General de Salud, quien determinará el responsable de resolver dicha solicitud.
