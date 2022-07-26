@@ -1,1 +1,0 @@
-Artículo 7º—Derogatoria. El presente decreto ejecutivo deroga el Decreto Ejecutivo Nº 31765-H, publicado en el Alcance Nº 17 a La Gaceta Nº 84 de fecha 30 de abril de 2004, y el Decreto Ejecutivo Nº 31863-H, publicada en La Gaceta Nº 131 del 6 de julio del 2004.
