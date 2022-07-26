@@ -1,3 +1,3 @@
-Artículo 4.- Unidades responsables.
-Los procedimientos señalados en el presente Manual serán de acatamiento obligatorio para el Despacho y las direcciones de: Admisibilidad, Oficinas Regionales, Defensa, Asuntos Jurídicos, Instituto de Educación en Derechos Humanos y cualquier otro órgano por disposición del o la Jerarca de la Institución. La Dirección Administrativa dará el apoyo necesario para el cumplimiento y la agilidad de los procesos.
+Artículo 4.- Unidades responsables. Los procedimientos señalados en el presente Reglamento(*) serán de acatamiento obligatorio para el Despacho y las direcciones de: Admisibilidad, Oficinas Regionales, Defensa, Asuntos Jurídicos, Instituto de Educación en Derechos Humanos y cualquier otro órgano por disposición del o la Jerarca de la Institución. La Dirección Administrativa dará el apoyo necesario para el cumplimiento y la agilidad de los procesos.
 (Así reformado mediante acuerdo N 2289 del 3 de agosto del 2020)
+(*) (Así modificada su denominación por acuerdo N° 2477 del 26 de julio de 2022. Anteriormente se indicaba: "Manual"))

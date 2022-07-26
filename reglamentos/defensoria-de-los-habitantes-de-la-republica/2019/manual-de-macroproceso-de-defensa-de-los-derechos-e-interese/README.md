@@ -18,3 +18,4 @@ Manual de Macroproceso de defensa de los derechos e intereses de la Defensoría 
 | 3 | 2021-06-09 | Acuerdo 2355 (2021-06-09) |
 | 4 | 2022-02-18 | Acuerdo 2416 (2022-02-18) |
 | 5 | 2022-06-27 | Reglamento 0 (2022-06-27) |
+| 6 | 2022-07-26 | Reglamento 0 (2022-07-26) |
