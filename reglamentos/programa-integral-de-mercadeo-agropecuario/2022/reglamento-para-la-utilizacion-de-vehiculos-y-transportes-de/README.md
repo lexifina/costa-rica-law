@@ -14,3 +14,4 @@ Reglamento para la utilización de vehículos y transportes del Programa Integra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-23 | la propia norma |
+| 2 | 2022-07-26 | Reglamento 20 (2022-07-26) |
