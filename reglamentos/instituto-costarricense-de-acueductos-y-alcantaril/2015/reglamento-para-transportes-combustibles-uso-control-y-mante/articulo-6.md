@@ -1,5 +1,0 @@
-ARTÍCULO 6º- La asignación de vehículos se regirá por las siguientes condiciones:
-1. Para la asignación de vehículos y dentro de un plazo no menor a los tres meses previos a la elaboración del Plan Operativo Anual (POA), cada Subgerencia de Área presentará a la Dirección del Centro de Servicios de Apoyo los requerimientos de vehículos, maquinaria y equipo especial para el cumplimiento de sus funciones, detallando para cada unidad en que serán utilizadas, así como, la proyección de los resultados que se esperan de cada unidad solicitada.
-2. La asignación del vehículo se realizará mediante el pool vehicular, para lo cual cada dependencia deberá realizar la solicitud correspondiente
-3. Los vehículos estarán bajo la responsabilidad de la Dirección Centro Servicios de Apoyo, el cual estará a cargo de la administración del pool vehicular.
-4. La asignación será ocasional, cuando se utilicen esporádicamente en un lapso que no supere las 12 horas por día o dado que en las oficinas o dependencias estén cercanas a un Área de Maquinaria y Equipo donde sea posible administrar y controlar los vehículos en una forma más centralizada y eficiente.

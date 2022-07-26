@@ -1,2 +1,0 @@
-Capítulo 9. De la prestación de los servicios y distribución de los recursos
-ARTÍCULO 19. Quienes requieran servicios de transporte deberán plantear la respectiva solicitud al encargado de pool vehicular según la región correspondiente, justificando claramente la necesidad del servicio o recurso, quien procederá a otorgar el recurso de conformidad con la disponibilidad de los vehículos. Se determinará de acuerdo con la solicitud presentada, el tipo de vehículo que mejor se adapte a las condiciones del servicio solicitado.

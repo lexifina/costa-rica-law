@@ -1,1 +1,0 @@
-ARTÍCULO 10.- La Dirección Centro de Servicios de Apoyo podrá establecer los sistemas de desconcentración parcial de la administración del pool vehicular, en los encargados de transportes de cada región.

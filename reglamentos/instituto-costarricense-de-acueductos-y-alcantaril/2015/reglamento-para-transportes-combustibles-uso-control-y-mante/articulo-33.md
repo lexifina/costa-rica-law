@@ -1,1 +1,0 @@
-ARTÍCULO 33. La entrega de la cuota de combustible a los conductores la realizará el encargado de combustible o la persona que él autorice. La distribución del presupuesto de combustible se hace de acuerdo con las cuotas establecidas conforme a las necesidades de cada dirección o región.

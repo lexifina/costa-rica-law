@@ -1,1 +1,0 @@
-ARTÍCULO 9.-La Dirección Centro Servicios de Apoyo tendrá bajo su responsabilidad, la coordinación y control a nivel nacional del pool vehicular, razón por la cual le indicarán a la Gerencia General o Subgerencia General, según corresponda, las recomendaciones que considere pertinentes para lograr un uso más racional de los recursos.

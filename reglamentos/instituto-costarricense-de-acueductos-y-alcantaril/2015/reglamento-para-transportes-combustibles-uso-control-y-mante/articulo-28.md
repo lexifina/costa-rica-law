@@ -1,1 +1,0 @@
-ARTÍCULO 28. El subgerente de área, director nacional, director regional o de UEN es responsable de la planificación de la cuota anual de combustible que utilizará su zona o región, así como su asignación para cada vehículo, maquinaria o equipo especial.

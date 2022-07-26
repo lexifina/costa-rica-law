@@ -1,1 +1,0 @@
-ARTÍCULO 8º- La Gerencia General o Subgerencia General conocerá anualmente el plan de la Dirección Centro Servicio de Apoyo respecto a la adquisición, uso, control y mantenimiento de los vehículos en todo el país.

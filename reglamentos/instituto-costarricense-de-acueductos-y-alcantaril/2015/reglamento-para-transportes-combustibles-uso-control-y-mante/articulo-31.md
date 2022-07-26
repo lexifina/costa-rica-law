@@ -1,1 +1,0 @@
-ARTÍCULO 31. Cada subgerente de área, directores nacionales, directores regionales o directores de UEN, o quién delegue serán los responsables de su debido uso y distribución del presupuesto de combustible.
