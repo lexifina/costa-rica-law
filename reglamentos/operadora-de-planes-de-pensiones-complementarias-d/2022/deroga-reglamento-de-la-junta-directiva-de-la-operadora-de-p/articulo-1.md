@@ -1,0 +1,5 @@
+OPERADORA DE PLANES DE PENSIONES COMPLEMENTARIAS DEL BANCO POPULAR
+Y DE DESARROLLO COMUNAL S. A.
+La Junta Directiva de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A. en Sesión Ordinaria Nº684 celebrada el 15 de junio del 2022 mediante acuerdo Nº 291, acuerda por unanimidad derogar el Reglamento de la Junta Directiva de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A., mediante el cual se dispuso:
+"1. Derogar el Reglamento de la Junta Directiva de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A., aprobado en su última versión mediante el acuerdo JDPP-645-Acd-321-2021-Art-17.
+Lo anterior, en virtud de que la Junta Directiva Nacional, en su calidad de tal y actuando en funciones propias de Asamblea de Accionistas, aprobó mediante el acuerdo JDN- 5920-Acd-434-2022-Art-4 las modificaciones al Reglamento para la organización y el funcionamiento de la Junta Directiva Nacional y de las Juntas Directivas de las Sociedades del Conglomerado Financiero Banco Popular y de Desarrollo Comunal.
