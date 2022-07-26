@@ -13,3 +13,4 @@ Sobre la coordinación de despachos judiciales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-11 | la propia norma |
+| 2 | 2022-07-26 | Circular 128 (2022-07-26) |
