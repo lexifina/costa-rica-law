@@ -17,3 +17,4 @@ Reglamento Autónomo de Trabajo del Colegio Universitario de Cartago
 | 2 | 2014-10-28 | Reglamento 3198 (2014-10-28) |
 | 3 | 2015-05-05 | Reglamento 3247 (2015-05-05) |
 | 4 | 2015-11-17 | Reglamento 3281 (2015-11-17) |
+| 5 | 2022-07-26 | Reglamento 0 (2022-07-26) |
