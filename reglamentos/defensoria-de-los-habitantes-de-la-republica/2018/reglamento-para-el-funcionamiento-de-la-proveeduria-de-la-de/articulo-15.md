@@ -1,9 +1,16 @@
 CAPÍTULO III
 De las unidades internas participantes
-en los procesos de contratación administrativa
-Artículo 15.—Funciones de la Dirección de Asuntos Jurídicos. Corresponde a la Dirección de Asuntos Jurídicos brindar asesoría legal para la atención de los distintos procedimientos de contratación que lleve a cabo la Defensoría de los Habitantes de la Republica, conforme con las solicitudes formales que le formule la Proveeduría institucional.
-A tal efecto, le corresponden los siguientes deberes y obligaciones:
-1. Colaborar con el Departamento de Proveeduría o con la Comisión Técnica de Contratación Administrativa en la atención, análisis y resolución de los recursos que se interpongan en los procesos de contratación administrativa.
-2. Elaborar los contratos administrativos que requieran de formalización.
-3. Asesorar en la instrucción de las acciones sancionatorias contra oferentes o contratistas, según corresponda y conforme con el ordenamiento jurídico.
-4. Otorgar la aprobación interna de aquellos contratos que así lo requieran.
+Artículo 15.-Funciones de la Dirección Administrativa.
+1. Verificación del inventario. Garantizar previo al inicio del procedimiento de contratación; en caso de adquisiciones de materiales y suministros que afecten el inventario institucional, el deber de cotejar los saldos de cada uno de los bienes, según sus características y condiciones, los cuales justifiquen la contratación; siendo obligatorio la incorporación dentro del expediente, de la certificación respectiva.
+2. Estimación los costos de los bienes a contratar. Verificar el estudio de mercado y precios de referencia realizados, a través de diversos y potenciales proveedores, que permita conocer y evaluar el valor económico aproximado, actual, calidad y condiciones, del eventual objeto contractual.
+3. Formular los programas que sean necesarios para el mejor aprovechamiento de los bienes y servicios. Así como cumplir las recomendaciones, prevenciones y ordenanzas, emanadas por la Contraloría General de la República.
+4. Presentar, cuando así corresponda, la acreditación del cumplimiento, emisión e implementación de procedimientos de contratación administrativa, que le sean solicitados, con la aplicación y apoyo cuando se requiera, de las distintas direcciones, departamentos y oficinas que componen la estructura funcional de la Defensoría de los Habitantes, previa coordinación con el Despacho del Defensor o Defensora de los Habitantes.
+5. Realizar, en conjunto con los titulares subordinados y demás responsables de las diferentes fases del proceso de adquisiciones de bienes y servicios, la valoración periódica y constante de los riesgos asociados en los procedimientos de contratación pública, con el propósito de disponer de información actualizada para la administración de los riesgos y monitorearlos de manera permanente, así como de su comunicación, atención y canalización oportuna.
+6. Supervisar las funciones administrativas y secuencia de actividades, en condición de superior jerárquico administrativo, del Departamento de Proveeduría y Servicios Generales y demás departamentos inmersos dentro de la Dirección Administrativa de la Defensoría de los Habitantes, en atención de los procedimientos de contratación pública.
+7. Velar porque se cumplan los acuerdos y disposiciones del Defensor(a) de los Habitantes de la República, referentes a la administración, atención y supervisión en materia de contratación pública, así como informar y coordinar con el Despacho, lo correspondiente.
+8. Autorizar los gastos que deban realizarse en las diversas oficinas de la Defensoría de los Habitantes con motivo de adquisición de bienes y servicios, así como seguir los procedimientos jurídicamente establecidos.
+9. Dictar los acuerdos de pago, una vez que los gastos hayan sido aprobados y autorizados, conforme a la técnica administrativa, juridicidad y control del presupuesto.
+10. Atender y evacuar consultas relacionadas con materia de contratación pública, en la materia propia de su competencia.
+11. Rendir informes diversos y realizar otras labores propias del cargo, así como las delegadas por el/la Jerarca institucional, en los plazos y en cumplimiento del presente reglamento.
+12. Revisar que la documentación sea incorporada dentro del expediente administrativo, así como de la evidencia que resulte de lo dispuesto en este reglamento, en concordancia con lo dispuesto en el artículo 7 inciso c) del presente reglamento.
+(Así reformado por acuerdo N° 2478 del 26 de julio de 2022)

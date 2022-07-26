@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de la Proveeduría de la Defensoría de los Ha
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-03-08 | la propia norma |
+| 2 | 2022-07-26 | Reglamento 0 (2022-07-26) |
