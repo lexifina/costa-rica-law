@@ -14,3 +14,4 @@ Modifica la estructura del Arancel Nacional a doce dígitos y a su vez asociar a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-27 | la propia norma |
+| 2 | 2022-07-27 | Resolución 259 (2022-07-20) |
