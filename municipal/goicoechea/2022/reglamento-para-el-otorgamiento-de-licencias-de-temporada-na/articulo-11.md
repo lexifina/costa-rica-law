@@ -1,0 +1,1 @@
+Artículo 11.-El monto a cancelar por licencia de Temporada Navideña será proporcional al tamaño del puesto a instalar, para lo cual el Concejo Municipal definirá el costo por metro cuadrado, de conformidad con lo establecido en el artículo 3 del presente reglamento.

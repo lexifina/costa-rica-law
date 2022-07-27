@@ -1,0 +1,1 @@
+Artículo 21.-Queda terminantemente prohibida la obstaculización de las aceras con productos autorizados para la Temporada Navideña a las personas adjudicatarias de la licencia, en caso de incumplimiento se impondrá una sanción pecuniaria de conformidad con lo dispuesto en este Reglamento.

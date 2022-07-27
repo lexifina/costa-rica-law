@@ -1,0 +1,1 @@
+Artículo 9.- En el caso de que la resolución deniegue la licencia, tendrá los recursos ordinarios de revocatoria ante el Departamento de Cobro, Licencias y Patentes Municipales y apelación ante la Alcaldía Municipal, dentro del plazo y términos que establece el artículo 171 del Código Municipal.

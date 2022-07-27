@@ -1,0 +1,1 @@
+Artículo 17.-La Municipalidad a través de las personas Inspectoras Municipales o la Policía Municipal según proceda, están obligadas de realizar inspecciones de rutina con el fin de verificar el buen cumplimiento del presente Reglamento, quedando facultades para efectuar el cierre preventivo del local comercial que incumpla con la misma de acuerdo con la legislación vigente.

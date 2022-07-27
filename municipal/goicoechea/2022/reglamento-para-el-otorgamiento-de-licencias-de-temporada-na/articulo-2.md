@@ -1,0 +1,1 @@
+Artículo 2º-Para la interpretación de este Reglamento: se deberá entender siempre en el mejor sentido que favorezca al interés público de la Municipalidad y sus Munícipes, de acuerdo con los alcances de los artículos 4 y 5 de la Ley General de la Administración Pública, Ley N° 6227.

@@ -1,0 +1,1 @@
+Artículo 3º-Cada año en el mes de agosto, la administración Municipal presentará una propuesta con base en un informe técnico al Concejo Municipal, con el monto a ser cobrado por las licencias de temporada navideña. A partir de esa propuesta, el Concejo Municipal aprobará los montos cobrar con respecto a las licencias de Temporada Navideña.

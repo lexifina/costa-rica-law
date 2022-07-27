@@ -1,0 +1,1 @@
+Artículo 16.-En todos los puestos que se expendan alimentos de temporada, como manzanas, uvas y peras deberán mantener todas las medidas sanitarias emitidas por el Reglamento especial para el control de riesgos sanitarios en ventas autorizadas de acuerdo con el artículo 218 bis de la Ley General de salud, Decreto Ejecutivo N. 041332-S-MTSS.

@@ -1,0 +1,1 @@
+Artículo 7º-Presentada la solicitud sin los requisitos respectivos, el Departamento de Cobro, Licencias y Patentes Municipales emitirá prevención por única vez a la persona interesada para que los presente; otorgando plazo de diez días hábiles, de conformidad con lo establecido en el 287 de la Ley General de la Administración Pública (Ley N. 0 6227).
