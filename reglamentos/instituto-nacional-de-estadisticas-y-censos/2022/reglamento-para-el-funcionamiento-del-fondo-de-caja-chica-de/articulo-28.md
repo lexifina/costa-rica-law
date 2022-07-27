@@ -1,0 +1,1 @@
+Artículo 28.-Se deroga el Reglamento para el Funcionamiento de Fondos de Caja Chica del Instituto Nacional de Estadística y Censos publicado en Diario oficial La Gaceta N° 18, del 25 de enero de 2002 y sus reformas.

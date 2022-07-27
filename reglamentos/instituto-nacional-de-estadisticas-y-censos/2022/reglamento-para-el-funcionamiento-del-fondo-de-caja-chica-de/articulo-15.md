@@ -1,0 +1,1 @@
+Artículo 15.-Las facturas de las adquisiciones realizadas mediante el fondo de faja chica que se realicen en un comercio inscrito bajo el régimen simplificado, deberán cumplir con lo establecido por el Ministerio de Hacienda.

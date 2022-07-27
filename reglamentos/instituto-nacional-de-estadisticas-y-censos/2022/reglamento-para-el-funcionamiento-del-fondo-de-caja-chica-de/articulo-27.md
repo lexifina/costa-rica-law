@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Disposiciones finales
+Artículo 27.-Para efectos de interpretación, lo no regulado en este Reglamento habrá de remitirse a las disposiciones contenidas en la Ley de Administración Financiera de la República, Ley General de la Administración Pública, la normativa aplicable en contratación administrativa, el Reglamento de Gastos de Viaje y de Transporte para funcionarios Públicos, en el RAS y demás normativa de derecho público aplicable. En lo que no está previsto en este Reglamento y, en caso de ausencia de legislación supletoria, la Unidad de Finanzas resolverá las situaciones que se presenten mediante circulares de carácter general o mediante los procedimientos administrativos ordinarios.

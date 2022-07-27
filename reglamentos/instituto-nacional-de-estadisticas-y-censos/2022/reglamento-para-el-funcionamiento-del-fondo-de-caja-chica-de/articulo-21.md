@@ -1,0 +1,1 @@
+Artículo 21.-Si realizados los arqueos, resultar con diferencias, estas deben ser justificadas por el responsable del fondo, quien, además, deberá depositar el sobrante o reintegrar el faltante en forma inmediata, según corresponda.

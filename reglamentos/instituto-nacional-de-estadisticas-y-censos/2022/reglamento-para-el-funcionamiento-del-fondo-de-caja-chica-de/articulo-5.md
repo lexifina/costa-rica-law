@@ -1,0 +1,1 @@
+Artículo 5º-Es competencia de la Gerencia determinar y variar el monto máximo establecido para el fondo de caja chica. Asimismo, debe informar al Consejo Directivo, considerando la solicitud escrita y justificada de la Coordinación de Área de Administración y Finanzas y la Unidad de Finanzas; esto en razón de un estudio de necesidades que presente esa Unidad.

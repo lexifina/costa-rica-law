@@ -1,0 +1,1 @@
+Artículo 14.-Las facturas electrónicas de las adquisiciones que se hagan con el fondo de caja chica y que son el sustento del egreso, deberán cumplir con lo establecido por el Ministerio de Hacienda y lo estipulado por la Unidad de Finanzas en cuanto a la información que deben contener.

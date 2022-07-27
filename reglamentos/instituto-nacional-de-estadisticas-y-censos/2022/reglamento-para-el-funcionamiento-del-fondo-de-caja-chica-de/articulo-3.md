@@ -1,0 +1,2 @@
+Artículo 3º-Las personas funcionarias involucradas en el proceso de organización y funcionamiento del fondo de faja chica quedan sujetas a las disposiciones dadas por la Ley de
+Administración Financiera de la República, la Ley General de la Administración Pública, la normativa aplicable en contratación pública, el Reglamento Autónomo de Servicios del Instituto Nacional de Estadística y Censos y cualesquiera otras normas conexas.

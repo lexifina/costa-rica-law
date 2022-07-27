@@ -1,0 +1,1 @@
+Artículo 4º-Se establece el fondo de caja chica con la siguiente naturaleza: para realizar gastos menores en la adquisición de bienes y servicios de carácter indispensable y urgente que por situaciones imprevisibles no se pudieron incluir en los procedimientos internos establecidos.
