@@ -1,1 +1,0 @@
-Artículo 17- Asistencia: A la audiencia sólo podrán asistir las partes y sus abogados. En casos especiales en que las partes designen a sus asesores legales por medio de poderes especiales administrativos; en este caso no será necesaria la presencia de las partes en la audiencia salvo en los casos en que deba evacuarse prueba confesional.

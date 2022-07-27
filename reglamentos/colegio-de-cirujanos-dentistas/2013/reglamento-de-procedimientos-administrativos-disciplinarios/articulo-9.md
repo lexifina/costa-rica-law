@@ -1,1 +1,0 @@
-Artículo 9- Incompetencia sobre asuntos patrimoniales: No podrá tramitarse ninguna denuncia que verse sobre aspectos patrimoniales, sin perjuicio de los acuerdos conciliatorios de cualquier tipo a los que las partes lleguen relacionados con el expediente en estudio.

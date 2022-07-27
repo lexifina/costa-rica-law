@@ -1,1 +1,0 @@
-Artículo 36- Aplicación supletoria de Leyes: En lo no dispuesto en este Reglamento, se aplicarán supletoriamente las disposiciones de la Ley General de la Administración Pública, del Código Procesal Civil, de la ley General de Salud y Ley de Notificaciones 8687 del 04 de diciembre del 2008 publicada en la Gaceta No.20 del 29 enero del 2009.

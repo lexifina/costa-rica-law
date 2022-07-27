@@ -1,1 +1,0 @@
-Artículo 29- Recurso contra los actos preparatorios del procedimiento: Además del supuesto previsto en el inciso d) del artículo 13, cabrá el recurso de revocatoria en contra de los actos preparatorios únicamente en los casos previstos por el artículo 345 de la Ley General de la Administración Pública.
