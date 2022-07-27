@@ -1,0 +1,1 @@
+Artículo 28- El Agente Recaudador que aplique la modalidad de cobro manual y/o conectividad, asume la responsabilidad por los daños que pueda ocasionar a terceros, por la suspensión de los servicios, como consecuencia de la no entrega oportuna de las cancelaciones al AyA.

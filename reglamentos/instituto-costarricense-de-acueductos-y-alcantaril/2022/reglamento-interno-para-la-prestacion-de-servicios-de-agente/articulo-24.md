@@ -1,0 +1,1 @@
+Artículo 24- En Agente Recaudador deberá estar en capacidad de disponer de una infraestructura tecnológica que le permita conectarse a la plataforma de conectividad AyA, de conformidad con el Manual de Políticas de Infraestructura Tecnológica.

@@ -1,0 +1,1 @@
+Artículo 31- Es obligación de todo Agente Recaudador presentar a AyA la documentación correspondiente a su personería y titularidad de sus acciones, con el objeto de verificar el régimen de prohibiciones para contratar con la administración.

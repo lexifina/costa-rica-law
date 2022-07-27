@@ -1,0 +1,1 @@
+Artículo 4- El AyA, facilitará a sus usuarios la cancelación de los servicios que brinda, por medio de la contratación de personas físicas o jurídicas, de derecho público o privado como Agentes Recaudadores Externos, en todo el territorio nacional donde AyA opera los sistemas de Acueducto y Alcantarillado e hidrantes.

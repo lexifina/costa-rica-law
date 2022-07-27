@@ -1,0 +1,1 @@
+Artículo 19- AyA podrá hacer efectiva las Garantías respectivas ante cualquier incumplimiento contractual; siguiendo el procedimiento establecido en la Ley de la Contratación Administrativa y su Reglamento. Dicha suspensión será comunicada al agente recaudador mediante resolución motivada.

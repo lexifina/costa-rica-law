@@ -1,0 +1,1 @@
+Artículo 25- El Agente Recaudador podrá aceptar del usuario, el pago de los servicios por medio de efectivo o cualquier otro medio que este ponga a disposición aprobado por el AyA. En caso de cheques que sean certificados.

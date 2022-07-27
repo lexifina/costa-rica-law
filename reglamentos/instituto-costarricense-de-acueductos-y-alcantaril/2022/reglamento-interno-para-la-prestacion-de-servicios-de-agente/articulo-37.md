@@ -1,0 +1,1 @@
+Artículo 37: Para los Agentes Recaudadores que utilicen el sistema de conectividad de AyA y que incurran en inconsistencias injustificadas que atenten contra la integridad sobre la infraestructura tecnológica, asumirán los gastos por daños y perjuicios que AyA deba incurrir para normalizar la situación.

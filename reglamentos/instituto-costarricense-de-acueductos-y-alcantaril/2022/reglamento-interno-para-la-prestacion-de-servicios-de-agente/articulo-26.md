@@ -1,0 +1,1 @@
+Artículo 26- Los Agentes Recaudadores únicamente podrán depositar los dineros recaudados mediante dinero efectivo, cheques certificados, transferencia electrónica o cualquier otro medio electrónico. La responsabilidad del Agente Recaudador por los dineros recaudados solamente finalizará en el momento en que tales dineros se han registrado en las cuentas de AyA.

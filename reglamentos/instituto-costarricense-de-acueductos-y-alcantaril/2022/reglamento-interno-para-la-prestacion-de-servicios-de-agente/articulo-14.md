@@ -1,0 +1,3 @@
+Capítulo V
+Garantía de Cumplimiento
+Artículo 14- El Agente Recaudador deberá rendir a AyA, al momento de formalizar el contrato, una Garantía de Cumplimiento del 10% de la estimación del monto de la contratación. El Agente Recaudador deberá mantener vigente esta garantía por todo el plazo que dure el contrato y hasta un mes después de la finalización de la relación contractual por cualquier causa. A tal efecto, podrá presentar una garantía con una vigencia anual y renovarla puntualmente cada nuevo año. Dicha Garantía podrá rendirse únicamente bajo las formas establecidas en la Ley de Contratación Administrativa y su Reglamento.
