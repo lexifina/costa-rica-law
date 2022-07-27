@@ -14,3 +14,4 @@ Reglamento al inciso c) del artículo 14 bis de la Ley Orgánica del Banco Popul
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-29 | la propia norma |
+| 2 | 2022-07-27 | Decreto Ejecutivo 43638 (2022-07-27) |
