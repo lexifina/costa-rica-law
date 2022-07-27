@@ -1,0 +1,1 @@
+Artículo 71. La Presidencia de una comisión o en su ausencia la vice presidencia, podrán convocar a sesiones extraordinarias, por lo menos con veinticuatro horas de anticipación. En ausencia de la Presidencia y la Vice presidencia, convocará y presidirá la sesión, el miembro de la comisión de mayor edad.

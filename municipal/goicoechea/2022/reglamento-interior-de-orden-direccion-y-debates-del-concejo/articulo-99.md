@@ -1,0 +1,1 @@
+Artículo 99. Para todos los efectos, el funcionamiento de la Auditoría Interna estará normado por lo que establezca la Ley General de Control Interno y la Ley Orgánica de la Contraloría General de la República y los lineamientos establecidos por este ente contralor.

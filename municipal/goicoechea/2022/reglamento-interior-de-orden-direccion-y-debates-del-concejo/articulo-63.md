@@ -1,0 +1,1 @@
+Artículo 63. El asunto que es competencia de una comisión permanente, no puede ser trasladado para ser conocido por una comisión especial. En caso de ser necesario, un asunto podrá ser enviado a más de una comisión al mismo tiempo, lo que se entenderá como una comision ampliada especialmente para ese asunto y debe ajustarse a la normativa de la comisión permanente.

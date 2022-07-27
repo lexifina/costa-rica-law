@@ -1,0 +1,3 @@
+Artículo 65. La Secretaría Municipal designará en cada comision, para colaborar en el buen desempeño de su trabajo, una persona funcionaria a su cargo que realizará labores de secretario de actas, correspondencia y afines.
+La persona secretaria de comisión levantará un acta detallada, de todas las sesiones de comisión, la cual deberá ser firmada, una vez aprobada por la comisión, por la Presidencia y la secretaría de actas. En el acta respectiva deben consígnarse los votos positivos y negativos.
+Para lo conducente, las personas secretarias de actas de comisión tienen los mismos deberes que la Ley y este Reglamento fijan para la persona secretaria Municipal.

@@ -1,0 +1,2 @@
+Artículo 20. las personas físicas o juridicas o grupos comunales podrán intervenir oralmente en las sesiones, previa solicitud escrita de audiencia dirigida a la presidencia del Concejo, quien la concederá, según su criterio, para la sesión que considere oportuno, sin que para ello transcurra más de un mes desde que se presentó la solicitud.
+En esta solicitud se deberá consignar al menos el nombre del solicitante, dirección de su domicilio, cédula, teléfono, fax y correo electrónico y muy resumidamente los motivos de la audiencia.

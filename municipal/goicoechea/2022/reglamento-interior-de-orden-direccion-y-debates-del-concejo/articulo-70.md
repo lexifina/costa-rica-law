@@ -1,0 +1,1 @@
+Artículo 70. La Presidencia de Comisión elaborará el orden del día en conjunto con la persona designada de la secretaría municipal para dicha comisión, dicha información debe enviarse vía electrónica a las personas integrantes de la comisión. En caso de haber un asunto urgente, se puede alterar el orden del día para conocerlo.

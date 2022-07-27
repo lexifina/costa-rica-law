@@ -1,0 +1,1 @@
+Artículo 47. Si el Concejo no reforma o revoca un acuerdo que ha sido recurrido mediante apelación o veto razonado, emplazará a las partes y el expediente respectivo, salvo [os acuerdos que por su naturaleza deba conocer otra jurisdicción, pasará al Tribunal Superior Contencioso Administrativo, el cual de conformidad con la ley, resolverá en definitiva.

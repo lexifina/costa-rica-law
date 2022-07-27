@@ -1,0 +1,1 @@
+Artículo 74. Para que un dictamen de comisión sea conocido por el Concejo Municipal, debe haber sido presentado a la Secretaría Municipal, a más tardar a la 1 p.m el día hábil inmediatamente anterior al de la Sesión del Concejo; la Secretaria Municipal lo remitirá electrónicamente a las Regidurlas Propietarias y Suplentes antes de la sesión.

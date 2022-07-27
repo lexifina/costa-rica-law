@@ -1,0 +1,1 @@
+Artículo 45. El total de votos emitidos, el número de positivos y el número de negativos, así como la constancia de votos solicitada por las regidurías, se consignarán junto al acuerdo tomado en el acta respectiva.

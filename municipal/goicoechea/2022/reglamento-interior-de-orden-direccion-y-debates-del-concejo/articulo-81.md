@@ -1,0 +1,1 @@
+Artículo 81. En todo lo no previsto en este Reglamento, en lo que a deberes y atribuciones de las comisiones y sus miembros, se aplicara en lo conducente, lo dispuesto en este Reglamento, para el normal desempeño de las sesiones en el Plenario Municipal.

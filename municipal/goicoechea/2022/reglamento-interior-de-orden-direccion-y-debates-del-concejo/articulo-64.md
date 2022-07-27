@@ -1,0 +1,1 @@
+Artículo 64. Las personas funcionarias municipales, la alcaldía, las asesorías del Concejo y las personas vecinas del cantón, podrán participar, en calidad de asesores, sin derecho a voto, en las comisiones permanentes o especiales. Tanto la Presidencia como por acuerdo de las personas integrantes de la Comisión se podrán incluir asesorías externas permanentes a dicha comisión.

@@ -1,0 +1,1 @@
+Articulo 38. Cuando se presente una moción sin dispensa de trámite de comisión solo podrá hacer uso de la palabra para referirse al fondo del asunto la regiduría proponente por un tiempo no mayor a cinco minutos, luego la Presidencia remitirá la moción a la comisión de trabajo correspondiente.

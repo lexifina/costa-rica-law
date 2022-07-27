@@ -1,0 +1,2 @@
+Artículo 14. La Presidencia Municipal iniciará cada sesión del Concejo, con la siguiente frase: "Siendo las ( ... ) horas se inicia la sesión (ordinaria o extraordinaria) número ( ... ) del Concejo Municipal de Goicoechea".
+De la misma forma, para dar por concluida cada sesión, la Presidencia pronunciará la siguiente frase: "Siendo las( ... ) horas, se cierra la sesión (ordinaria o extraordinaria) número( ... )".

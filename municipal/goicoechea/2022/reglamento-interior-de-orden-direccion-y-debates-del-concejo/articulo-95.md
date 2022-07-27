@@ -1,0 +1,3 @@
+CAPÍTULO XVII.
+DE LA AUDITORIA INTERNA.
+Artículo 95. El nombramiento de la persona titular de la Auditoría Interna lo realizará el Concejo en el artículo de asuntos de trámite urgente, previo proceso administrativo interno de nombramiento o en caso de inopia, por concurso externo. Los requisitos profesionales, académicos y personales, que debe cumplir un postulante al cargo, serán fijados por el Concejo Municipal, atendiendo lo estipulado al efecto por la Ley General de Control Interno y previo análisis y dictamen de una comisión especial nombrada al efecto, la que se hará asesorar por el Departamento de Recursos Humanos de la Municipalidad

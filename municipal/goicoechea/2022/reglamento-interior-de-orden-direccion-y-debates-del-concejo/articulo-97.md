@@ -1,0 +1,1 @@
+Artículo 97. La persona auditora interna tendrá como competencias las establecidas en el articulo 22 de la Ley General de Control Interno. El informe anual a que establece el inciso g) del dicho artículo deberá ser presentado a más tardar en el mes de febrero del año siguiente.

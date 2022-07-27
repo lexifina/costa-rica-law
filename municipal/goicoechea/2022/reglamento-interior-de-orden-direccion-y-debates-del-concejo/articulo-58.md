@@ -1,0 +1,1 @@
+Articulo 58. La Secretaria Municipal debe abrir un expediente debidamente numerado y foliado, a cada acuerdo adoptado por el Concejo Municipal. En ese expediente deberán consignarse los antecedentes del acuerdo y cualquier documento relacionado con su trámite.

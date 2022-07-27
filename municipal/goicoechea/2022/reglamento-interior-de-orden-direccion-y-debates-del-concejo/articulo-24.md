@@ -1,0 +1,1 @@
+Artículo 24. Cuando el objeto de la audiencia sea competencia de la Alcaldía, la Presidencia lo remitirá, por medio de la Secretaría Municipal, para que éste le dé el trámite correspondiente, comunicándosele así a los interesados y al Concejo Municipal.

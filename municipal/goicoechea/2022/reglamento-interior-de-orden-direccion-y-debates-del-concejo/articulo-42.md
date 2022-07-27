@@ -1,0 +1,1 @@
+Artículo 42. Cuando la Presidencia, estando en debate un asunto, levante la sesión, éste deberá ser incluido en el primer lugar el capítulo correspondiente de la siguiente sesión. La Presidencia al iniciar de nuevo la discusión del asunto pospuesto, concederá el uso de la palabra según el orden que habla quedado al momento que se suspendió la discusión.

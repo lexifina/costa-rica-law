@@ -1,0 +1,1 @@
+Artículo 67. La Presidencia Municipal, de pedirlo así cada comisión, procederá a solicitarle al Alcalde Municipal la designación de funcionarios administrativos, para que funjan como asesores de comisiones.

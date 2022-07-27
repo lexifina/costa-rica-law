@@ -1,0 +1,2 @@
+Artículo 9. El Concejo Municipal celebrará una sesión ordinaria remunerada por semana y las sesiones extraordinarias que sean necesarias, siendo remuneradas las dos primeras de cada mes.
+Las sesiones del Concejo Municipal se iniciarán a las diecinueve horas y concluirán como máximo a las veintiuna horas con treinta minutos, salvo, que, mediante acuerdo, que requerirá mayoría simple, se decida seguir sesionando después de esa hora.

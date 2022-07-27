@@ -1,0 +1,2 @@
+Artículo 77. Las Presidencias de comisión podrán nombrar subcomisiones de trabajo para el estudio de determinados proyectos o asuntos. Estas se integrarán con tres participantes. Por mayoría simple, la comisión podrá disponer que no sea necesaria la conformación de la subcomisión.
+Los informes que presenten estas subcomisiones, deberán ser analizados y eventualmente podrán ser modificados por [a Comisión. Luego se elaborarán el o los dictámenes.

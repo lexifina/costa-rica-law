@@ -1,0 +1,1 @@
+Artículo 92. Cuando el Concejo Municipal, de oficio, a instancia de parte o de la persona auditora, pretenda revocar un acuerdo que ha generado derechos subjetivos, debe proceder conforme a las reglas y principios del debido proceso.

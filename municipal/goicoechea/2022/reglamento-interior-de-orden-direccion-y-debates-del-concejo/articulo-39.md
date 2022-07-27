@@ -1,0 +1,3 @@
+Artículo 39. Cuando se presente una moción con dispensa de trámite de comisión, sólo podrá hacer uso de la palabra para argumentar sobre la solicitud de dispensa de dicho trámite, la regiduría proponente, durante un período máximo de cinco minutos. Acto seguido la Presidencia someterá a votación dicha dispensa, la que requerirá para su aprobación de mayoria calificada.
+(Dos terceras partes de los miembros del Concejo).
+Aprobada la dispensa de trámite, la Presidencia pondrá a discusión el asunto, por el fondo, pudiendo hacer uso de la palabra todos los miembros del Concejo, las sindicalías y la alcaldía.
