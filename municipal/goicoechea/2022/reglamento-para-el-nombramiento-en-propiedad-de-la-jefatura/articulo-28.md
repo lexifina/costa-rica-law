@@ -1,0 +1,1 @@
+Artículo 28.-Las aplicaciones serán recibidas únicamente por medio del correo electrónico oficial que se habilitará para efectos de este concurso externo. Dicha dirección electrónica estará configurada para reenviar automáticamente toda correspondencia que ingrese a todas las personas integrantes de la Comisión de Nombramiento.

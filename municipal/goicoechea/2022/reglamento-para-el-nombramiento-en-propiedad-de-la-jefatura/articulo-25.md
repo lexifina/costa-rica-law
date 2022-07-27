@@ -1,0 +1,1 @@
+Artículo 25.-El plazo para la recepción de aplicaciones para el concurso externo será de siete días hábiles a partir de su publicación en un medio de circulación nacional. Una vez cerrado el plazo para la recepción de aplicaciones, la Comisión de Nombramiento tendrá un plazo de diez días hábiles para emitir su dictamen final.

@@ -1,0 +1,1 @@
+Artículo 34.-En caso de declarar el concurso como desierto o infructuoso, ya sea por recomendación de la Comisión o por medio de acuerdo del Concejo, en el mismo acto el Concejo deberá repetir las etapas del procedimiento para el nombramiento de la persona secretaria, iniciando por el proceso de revisión y actualización del perfil ocupacional para el cargo.

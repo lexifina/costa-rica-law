@@ -1,0 +1,1 @@
+Artículo 10.-El Concejo conocerá del dictamen de la Comisión de Perfil en la siguiente sesión ordinaria a su presentación. Una vez que sea acogido y aprobado en firme el dictamen de la Comisión de Perfil, esta comisión será disuelta.

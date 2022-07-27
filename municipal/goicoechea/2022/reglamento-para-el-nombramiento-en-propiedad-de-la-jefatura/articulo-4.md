@@ -1,0 +1,1 @@
+Artículo 4°-El procedimiento para el nombramiento de la Persona Secretaria se ejecutará cuando el cargo de la Persona Secretaria se encuentre vacante, sea esto por muerte, renuncia, despido o ausencia permanente de la persona titular.

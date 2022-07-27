@@ -1,0 +1,1 @@
+Artículo 3°-De conformidad con el artículo 53 del Código Municipal, el nombramiento de la Persona Secretaria es competencia del Concejo Municipal. El Departamento de Recursos Humanos de la Municipalidad brindará apoyo y asesoría técnica para el cumplimiento de lo establecido en el presente reglamento.

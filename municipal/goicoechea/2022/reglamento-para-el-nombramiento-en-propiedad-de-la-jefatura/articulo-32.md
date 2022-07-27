@@ -1,0 +1,1 @@
+Artículo 32.-Conocido el dictamen de la Comisión de Nombramiento, el Concejo Municipal elegirá por medio de mayoría absoluta a la persona a ser nombrada, de entre las personas postulantes recomendadas en el dictamen de la Comisión de Nombramiento. La votación referida en el presente artículo será pública, sea esta ordinaria o nominal.

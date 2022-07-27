@@ -1,0 +1,1 @@
+Artículo 27.-Cualquier requisito faltante será comunicado por la Presidencia de la Comisión de Nombramiento y notificado a la persona interesada, para lo cual dispondrá de un plazo de tres días hábiles a partir de su notificación para suplir la documentación necesaria.

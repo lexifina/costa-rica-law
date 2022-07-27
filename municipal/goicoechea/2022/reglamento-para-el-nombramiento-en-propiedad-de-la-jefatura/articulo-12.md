@@ -1,0 +1,1 @@
+Artículo 12.-En el mismo acto de apertura del concurso interno para el nombramiento de dicho cargo, la Presidencia del Concejo conformará la Comisión de Nombramiento de la Persona Secretaria Municipal, en adelante conocida como Comisión de Nombramiento, conformada por al menos cinco regidurías.

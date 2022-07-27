@@ -1,0 +1,1 @@
+Artículo 13.-El plazo para la recepción de aplicaciones para el concurso interno será de siete días hábiles. Una vez cerrado el plazo para la recepción de aplicaciones, la Comisión de Nombramiento tendrá un plazo de diez días hábiles para emitir su dictamen final.

@@ -1,0 +1,1 @@
+Artículo 5°-En caso de ausencia temporal, el nombramiento se realizará de acuerdo con la normativa aplicable y los lineamientos que para tal efecto establezca el Concejo y no estará sujeto al procedimiento de nombramiento vía concurso establecido en el presente reglamento.

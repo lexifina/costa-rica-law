@@ -1,0 +1,1 @@
+Artículo 23.-En caso de declarar el concurso como desierto o infructuoso, ya sea por recomendación de la Comisión o por medio de acuerdo del Concejo, en el mismo acto el Concejo iniciará el Concurso Externo, para lo cual la Comisión de Nombramiento continuará su labor.
