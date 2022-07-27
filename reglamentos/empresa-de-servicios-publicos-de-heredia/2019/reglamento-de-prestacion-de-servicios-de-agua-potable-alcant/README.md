@@ -17,3 +17,4 @@ Reglamento de prestación de servicios de agua potable, alcantarillado sanitario
 | 2 | 2020-03-05 | Reglamento 0 (2020-03-05) |
 | 3 | 2021-06-21 | Reglamento 4097 (2021-06-21) |
 | 4 | 2021-08-09 | Reglamento 4109 (2021-08-09) |
+| 5 | 2022-07-27 | Reglamento 4184 (2022-07-27) |
