@@ -3,7 +3,8 @@ Dicha solicitud debe realizarse en la Plataforma de Servicios de la Empresa de S
 a) Documento Solicitud de Trámites, disponible en la Plataforma de servicios de la ESPH S.A., debidamente completado y firmado por el propietario registral, apoderado, o el albacea, según corresponda, así como llenar el documento: Contrato para el suministro de Energía Eléctrica en baja tensión para los abonados de la Empresa de Servicios Públicos de Heredia S.A.
 b) En caso de persona física, deberá presentar la cédula de identidad, de residencia o pasaporte vigente para su verificación
 c) En caso de personas jurídicas, certificación de personería vigente con un máximo de 30 días de emitida. Tratándose de certificaciones digitales, conforme a la vigencia legal respectiva identificación vigente
-d) Certificación vigente del inmueble con un máximo de 30 días de emitida. Tratándose de certificaciones digitales, conforme a la vigencia legal respectiva.
+d) Certificación literal vigente emitida por el Registro Nacional, que demuestre la propiedad sobre el inmueble o copia certificada de la escritura pública de adquisición del mismo. En este último caso el cliente deberá presentar ante la ESPH S. A., en un plazo de seis meses, la certificación literal emitida por el Registro Nacional que demuestre la inscripción del inmueble a su nombre. Pasado el plazo la Empresa se acogerá a lo establecido en la norma técnica vigente establecida por ARESEP para la prestación del servicio.
+(Así reformado el inciso anterior mediante sesión N° 4184 del 27 de julio del 2022)
 e) Boleta de solicitud de sellado de planos eléctricos y constancia de recibido del Colegio Federado de Ingenieros y Arquitectos CFIA.
 f) Que el solicitante no tenga deudas con la Empresa de Servicios Públicos de Heredia, Sociedad Anónima. (Esta condición se verifica a lo interno de la institución).
 g) Copia del plano de catastro.

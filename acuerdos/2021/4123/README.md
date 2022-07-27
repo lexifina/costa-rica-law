@@ -14,3 +14,4 @@ Reglamento de prestación de servicios de energía eléctrica en baja y media te
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-12-09 | la propia norma |
+| 2 | 2022-07-27 | Reglamento 4184 (2022-07-27) |
