@@ -1,0 +1,1 @@
+Artículo 11.-Derogatoria. Se deroga el Reglamento para el Control de Activos aprobado por el Consejo Directivo del INEC mediante acuerdo 9 de la sesión ordinaria 848-2017, celebrada el 18 de abril de 2017.

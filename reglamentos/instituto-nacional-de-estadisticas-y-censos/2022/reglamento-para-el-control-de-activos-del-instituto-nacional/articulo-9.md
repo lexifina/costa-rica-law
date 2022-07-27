@@ -1,0 +1,1 @@
+Artículo 9º-Régimen sancionatorio. La aplicación sancionatoria por no acatar lo dispuesto en este reglamento se aplicará a las personas funcionarias del INEC conforme al régimen sancionatorio dispuesto en el Reglamento Autónomo de Servicio del INEC.

@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo. El objetivo del presente reglamento es regular las obligaciones y prohibiciones sobre el uso, custodia, administración, registro, responsabilidades y control de los activos institucionales conforme al alcance de este Reglamento.
