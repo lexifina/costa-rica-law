@@ -20,4 +20,5 @@ XII. Que, si bien un ataque cibernético puede ser previsible en términos gener
 XIII. Que resulta necesario declarar mediante el presente Decreto Ejecutivo, emergencia nacional debido al estado de necesidad y urgencia ocasionado por el ataque cibernético que se está suscitando en el país, lo cual ha provocado que los Sistemas de Información de distintas instituciones hayan sido vulnerados y la información privada violentada, sin tenerse control del manejo que realicen de esta información. Siendo necesario aplicar medidas extraordinarias de excepción, de conformidad con lo dispuesto en la Constitución Política y en la Ley Nacional de Emergencias y Prevención del Riesgo, para realizar los procesos necesarios que resguarden las Bases de Datos del Estado Costarricense.
 Por tanto,
 DECRETAN:
-Artículo 1 .- Se declara Estado de Emergencia Nacional en todo el Sector Público del Estado Costarricense, debido a los cibercrímenes que han afectado la estructura de los Sistemas de Información de distintas instituciones del país.
+Artículo 1º-Se declara Estado de Emergencia Nacional en todas las instituciones del Sector Público del Estado Costarricense, por los efectos de los ciberataques que afectan la estructura de funcionamiento de sus Sistemas de Información.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43645 del 28 de julio del 2022)

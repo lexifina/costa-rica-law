@@ -1,1 +1,2 @@
-Artículo 3.- La Presidencia de la República toma el control del planteamiento, dirección y coordinación de los procesos necesarios para lograr la contención y solución.
+Artículo 3.-La Presidencia de la República, la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, el Ministerio de la Presidencia y el Ministerio de Ciencia Innovación Tecnología y Telecomunicaciones, coordinarán el planeamiento, dirección, control y coordinación de los procesos necesarios para lograr la contención y solución del ciberataque.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43645 del 28 de julio del 2022)

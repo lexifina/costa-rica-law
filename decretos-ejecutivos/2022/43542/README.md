@@ -14,3 +14,4 @@ Declara estado de emergencia nacional en todo el sector público del Estado cost
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-11 | la propia norma |
+| 2 | 2022-07-28 | Decreto Ejecutivo 43645 (2022-07-28) |
