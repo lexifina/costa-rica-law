@@ -1,2 +1,0 @@
-Artículo 53.—De los requisitos mínimos que deben atender los estudios legales que determinen la incobrabilidad. Todos los estudios deben estar respaldados con información actualizada y debidamente documentada los cuales deben contener al menos la siguiente información: número de cliente y nombre del contribuyente, o de la persona física o jurídica, monto de la deuda, recomendación técnica.
-Los casos que se recomienden para incobrabilidad por costo beneficio, solo requerirán la recomendación por parte de la Asesoría Jurídica o abogado contratado.

@@ -1,1 +1,0 @@
-Artículo 26.—De los costos administrativos a los obligados morosos. Durante el proceso de gestión de cobro Administrativo la institución podrá trasladar al Obligado moroso, cualquier gasto administrativo en el que tenga que incurrir para realizar la gestión cobratoria.

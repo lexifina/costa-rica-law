@@ -1,1 +1,0 @@
-Artículo 61.—Transitorio I, uso del SICERE. Mientras el IMAS no cuente con un sistema informático propio, la Caja Costarricense de Seguro Social por medio del SICERE le servirá de Agente Recaudador de los tributos provenientes de las Leyes 4760/6443

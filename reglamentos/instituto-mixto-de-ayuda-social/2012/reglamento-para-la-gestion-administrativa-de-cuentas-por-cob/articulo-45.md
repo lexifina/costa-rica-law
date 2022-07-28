@@ -1,1 +1,0 @@
-Artículo 45.—Compensación de oficio. La compensación, de practicarse de oficio, se hará respecto de los tributos que la Administración tenga. Dicha resolución administrativa otorgará los recursos ordinarios que deberán interponerse ante la Unidad de Administración Tributaria dentro de los treinta días hábiles siguientes al de la notificación de la compensación de oficio.

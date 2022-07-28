@@ -1,1 +1,0 @@
-Artículo 34.—De la fecha de inicio para los arreglos de pago. La fecha inicial, a partir de la cual el deudor empezará a pagar las cuotas fijadas en el arreglo de pago será de un mes calendario posterior a la fecha en que quedó formalizado el compromiso de pago, sin que pueda pasar de dos meses.

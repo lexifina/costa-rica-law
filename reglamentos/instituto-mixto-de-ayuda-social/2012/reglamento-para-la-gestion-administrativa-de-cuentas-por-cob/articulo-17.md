@@ -1,5 +1,0 @@
-Artículo 17.—De la metodología para realizar las determinaciones de oficio. Para efectos de realizar las Determinaciones de Oficio se deben ejecutar dos pasos:
-a) Vista Inicial: Consiste en proponer al agente retenedor o patrono que regularice su situación en un plazo de treinta días hábiles mediante una traslado de cargos al agente retenedor, contra la cual proceden las impugnaciones establecidas en los artículos 145 y 146 establecidas en el Código de Normas y Procedimientos Tributarios.
-b) Resolución Determinativa: Si transcurrido el plazo otorgado en la vista inicial sin interposición de recursos o bien adquiriendo firmeza la resolución que resuelve el último de ellos, no se normaliza la situación, la Unidad de Administración Tributaria emitirá la resolución determinativa, con la cual iniciará el proceso de ejecución de pago sin requerir ningún otro trámite.
-Realizados los pasos de los incisos a) y b) y resueltos los recursos que interponga el Obligado queda realizada la Determinación de Oficio.
-Para ambas resoluciones se tomarán los recursos y plazos establecidos en el artículo 18 y 19 de este Reglamento.
