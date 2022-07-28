@@ -1,0 +1,1 @@
+Artículo 84. Despido con responsabilidad patronal. El despido con responsabilidad patronal puede realizarse por reorganización de personal, supresión de plazas o cursos, falta de contenido presupuestario u otra causa que lo amerite.

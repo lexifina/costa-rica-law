@@ -1,0 +1,1 @@
+Artículo 99. Comunicado de las sanciones. En todos los casos que se aplique una sanción disciplinaria, debe comunicarse a la Dirección o Coordinación de Gestión de Desarrollo Humano para las gestiones correspondientes.

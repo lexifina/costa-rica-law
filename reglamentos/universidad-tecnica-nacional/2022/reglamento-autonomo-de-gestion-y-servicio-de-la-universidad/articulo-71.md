@@ -1,0 +1,1 @@
+Artículo 71. Comedor. La Universidad dispone de lugares acondicionados para el consumo de alimentos por parte de las personas servidoras. Los comedores están ubicados, preferentemente, en el mismo lugar de trabajo de la persona servidora y deben reunir las condiciones de iluminación, ventilación, ubicación y mobiliario adecuado para tal propósito.

@@ -1,0 +1,1 @@
+Artículo 70. Viáticos. Los viáticos se reconocen a las personas servidoras de la UTN conforme con lo establecido por el Reglamento de Gastos de Viaje y Transporte para Servidores Públicos, emitido por la Contraloría General de la República y la normativa universitaria que se dicte sobre la materia. No constituyen un beneficio de naturaleza salarial.

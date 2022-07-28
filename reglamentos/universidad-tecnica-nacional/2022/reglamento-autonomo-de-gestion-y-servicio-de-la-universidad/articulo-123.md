@@ -1,0 +1,7 @@
+Artículo 123. De la instrucción. El Órgano Director da inicio a la instrucción y recaba toda la información requerida para averiguar la verdad real sobre los hechos investigados.
+El Órgano Director está facultado para:
+a. Recabar todo tipo de pruebas que sean útiles, idóneas y pertinentes, siempre y cuando estas se encuentren permitidas por la ley.
+b. Solicitar información a las distintas instancias universitarias y nacionales.
+c. Realizar visitas a los lugares donde ocurrieron los hechos, citar y entrevistar a las personas testigos y efectuar cualquier otra diligencia tendiente a contar con mayores elementos de juicio para dictaminar sobre el asunto.
+d. Solicitar informes técnicos a la Dirección General de Asuntos Jurídicos o a cualquier otra instancia especializada competente, según sea el caso. Estos informes técnicos deben presentarse en un plazo no mayor a diez días hábiles siguientes a la fecha en que fueron solicitados. Dentro de este plazo, la instancia requerida puede solicitar una prórroga no mayor a cinco días hábiles adicionales, cuando, debido a la complejidad del asunto, le sea imposible presentar su informe en el plazo indicado.
+Si durante el transcurso del proceso el Órgano Director tuviere conocimiento de hechos nuevos que pudieran constituir faltas disciplinarias, debe, según corresponda, ampliar los cargos o remitir el caso a la autoridad competente para que inicie un nuevo proceso disciplinario.

@@ -1,0 +1,1 @@
+Artículo 34. Días laborables y días feriados. Todos los días del año son hábiles para el trabajo, excepto los feriados dispuestos en el Código de Trabajo, los días de descanso semanal y cualquier otro establecido por disposición de la Universidad.

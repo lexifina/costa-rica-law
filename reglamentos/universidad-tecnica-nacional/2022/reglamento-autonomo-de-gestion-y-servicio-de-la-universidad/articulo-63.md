@@ -1,0 +1,1 @@
+Artículo 63. Incapacidad mayor a tres días. Toda incapacidad bajo estas condiciones debe ser emitida por la CCSS o el INS. Cuando se trate de una incapacidad extendida por personal médico de medicina privada, la incapacidad debe presentarse a la CCSS para el trámite correspondiente y pueda ser justificada y remunerada.

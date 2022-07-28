@@ -1,0 +1,1 @@
+Artículo 11. Reclutamiento. Consiste en atraer y clasificar a las personas candidatas idóneas para desempeñar los puestos vacantes, para lo cual, la Dirección de Gestión de Desarrollo Humano dispone de un registro de elegibles y mantiene en forma permanente un registro de oferentes.

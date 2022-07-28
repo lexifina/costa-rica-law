@@ -1,0 +1,1 @@
+Artículo 72. Salas de lactancia. La Universidad dispone de lugares acondicionados para las personas servidoras, con base en las condiciones establecidas en la Ley N.º 7430 y su Reglamento de Condiciones para las Salas de Lactancia Materna en los Centros de Trabajo, emitido por el Ministerio de Trabajo.

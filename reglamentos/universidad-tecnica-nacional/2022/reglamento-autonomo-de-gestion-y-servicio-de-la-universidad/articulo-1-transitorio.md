@@ -1,0 +1,2 @@
+CAPÍTULO XVIII DISPOSICIONES TRANSITORIAS
+Transitorio I. Vacaciones. Los períodos de vacaciones de las personas servidoras se contabilizan de acuerdo con lo establecido en el Artículo 31 del presente reglamento a partir de su entrada en vigencia. Los períodos de vacaciones previamente acumulados por las personas servidoras con fundamento en la anterior normativa, deben ser disfrutados en un período máximo de dos años.

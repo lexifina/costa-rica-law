@@ -1,0 +1,1 @@
+Artículo 43. Abandono del trabajo. La persona servidora hace abandono de trabajo, cuando deja de realizar las funciones objeto de su contrato de trabajo dentro de la jornada correspondiente, aun cuando no salga de las instalaciones de la Universidad, ni de su domicilio cuando realice teletrabajo.

@@ -1,0 +1,4 @@
+Artículo 117. De las medidas cautelares. Por iniciativa propia de la autoridad, por solicitud de la persona con interés legítimo, quien ejerce la potestad disciplinaria puede adoptar las medidas cautelares que considere necesarias, con el fin de garantizar la integridad de las partes, las personas testigos, así como, las personas denunciantes o cualquiera otra que comparezca o participe en un proceso disciplinario.
+Estas personas no pueden ser objeto de actos de hostigamiento de ningún tipo con ocasión de su participación en el procedimiento investigativo. Este tipo de actos son considerados como una falta muy grave.
+También, el Órgano Director puede recomendar ante la autoridad competente, el dictado de las medidas cautelares que considere pertinentes. Para separarse de esta recomendación, la autoridad respectiva debe emitir un acto debidamente motivado.
+Estos actos son susceptibles de recurso de apelación por parte de la persona afectada.

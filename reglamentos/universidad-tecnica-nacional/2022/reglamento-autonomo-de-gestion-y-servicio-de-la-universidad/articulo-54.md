@@ -1,0 +1,1 @@
+Artículo 54. Salario Escolar: derecho de las personas servidoras, el cual, representa un porcentaje del salario bruto recibido durante todo el año y se hace efectivo en el transcurso del mes de enero de cada año.

@@ -1,0 +1,1 @@
+Artículo 119. Normativa. El procedimiento administrativo debe ser gestionado conforme lo dispuesto en la Ley General de Administración Pública en el Libro Segundo y de manera supletoria las normas procesales del Código Procesal Contencioso Administrativo.

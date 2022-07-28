@@ -1,0 +1,1 @@
+Artículo 44. Alteración de marca. Se considera falta grave por parte de la persona servidora, el registro de asistencia de otra persona, la alteración o destrucción de los registros u otros medios de control.

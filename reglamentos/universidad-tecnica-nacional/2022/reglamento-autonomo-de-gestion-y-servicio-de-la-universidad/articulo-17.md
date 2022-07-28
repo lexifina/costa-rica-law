@@ -1,0 +1,1 @@
+Artículo 17. Trámite del expediente de personal. La jefatura inmediata de la persona servidora debe remitir a la Dirección de Gestión de Desarrollo Humano, todos aquellos documentos relevantes vinculados con la relación de servicio de la persona servidora, para que sean incorporados al expediente de persona.

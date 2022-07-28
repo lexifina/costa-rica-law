@@ -1,0 +1,2 @@
+CAPÍTULO X INCENTIVOS
+Artículo 45. Sistema de Incentivos en la Universidad Técnica Nacional- Sin perjuicio de la creación a futuro de incentivos distintos a los que se contemplan en los artículos a continuación, mediante norma especial al respecto, el sistema de incentivos de la Universidad Técnica Nacional persigue el mejoramiento continuo y la promoción del reconocimiento a las personas servidoras universitarias por el compromiso en el desarrollo de sus funciones. Se establecen incentivos de naturaleza económica y no económica.

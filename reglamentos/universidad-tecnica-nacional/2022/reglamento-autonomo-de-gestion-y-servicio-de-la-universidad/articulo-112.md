@@ -1,0 +1,1 @@
+Artículo 112: Del inicio del proceso disciplinario. La autoridad que ejerce la potestad disciplinaria, que tenga conocimiento por medio de una denuncia o por otro medio de la posible falta, da inicio al procedimiento disciplinario en un plazo no mayor de diez días hábiles y emite una resolución inicial conformando el órgano director y adjunto el legajo de pruebas.

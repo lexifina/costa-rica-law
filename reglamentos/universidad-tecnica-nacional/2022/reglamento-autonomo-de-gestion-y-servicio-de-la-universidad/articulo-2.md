@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Este reglamento es aplicable a todas las personas servidoras de la UTN, vinculadas a ésta por una relación de servicio. Las disposiciones establecidas en este reglamento y las políticas que se deriven son de aplicación obligatoria, en todo lo relacionado con los derechos y obligaciones de las personas servidoras.

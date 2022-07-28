@@ -1,0 +1,1 @@
+Artículo 121. Del debido proceso. En todo caso, a efecto de llevar a cabo cualquier procedimiento o imposición de cualquier sanción, se respeta el principio del debido proceso conforme al marco legal vigente.

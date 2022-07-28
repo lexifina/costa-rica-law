@@ -1,0 +1,1 @@
+Artículo 8. Estabilidad laboral. Se garantiza el derecho que tiene la persona servidora a la garantía de permanencia en su trabajo, mientras no existan causas que justifiquen la terminación de la relación laboral.

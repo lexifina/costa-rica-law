@@ -1,0 +1,1 @@
+Artículo 33. Incapacidades médicas. Las incapacidades emitidas por la CCSS o por el INS, que no superen un año, no interrumpen la continuidad de la relación de servicio para efectos de la obtención del derecho a vacaciones y de la antigüedad laboral.

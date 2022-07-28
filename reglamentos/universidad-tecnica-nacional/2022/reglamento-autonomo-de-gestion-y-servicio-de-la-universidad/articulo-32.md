@@ -1,0 +1,1 @@
+Artículo 32. Suspensión de vacaciones. El disfrute de vacaciones se suspende cuando surja una incapacidad médica o por licencia, debido al fallecimiento de un familiar, según lo estipulado en el presente reglamento.

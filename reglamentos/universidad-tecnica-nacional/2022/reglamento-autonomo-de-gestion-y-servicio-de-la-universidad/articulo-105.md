@@ -1,0 +1,2 @@
+Artículo 105. Finalidad. El proceso disciplinario tiene como finalidad establecer la verdad real sobre los hechos denunciados y garantizar el derecho de defensa mediante el debido proceso.
+El procedimiento se debe desarrollar de manera que permita adoptar una resolución final en los plazos que establece este reglamento y las leyes de orden público que regulan la materia. Para los efectos anteriores, el cómputo de los plazos se suspende en los períodos institucionales de receso.

@@ -1,0 +1,1 @@
+Artículo 48. Carrera Profesional. Sistema de incentivos aplicables a las personas servidoras que desempeñen un puesto académico o administrativo de nivel profesional. Se rige por la normativa vigente que regula la materia.

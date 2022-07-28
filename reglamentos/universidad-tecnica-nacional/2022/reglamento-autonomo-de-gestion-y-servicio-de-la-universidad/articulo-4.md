@@ -1,0 +1,1 @@
+Artículo 4. Representación Patronal. Son representantes de la institución ante las personas servidoras, quienes se desempeñen o ejerzan funciones de dirección, jefatura, coordinación o cualquier otra nomenclatura equivalente.

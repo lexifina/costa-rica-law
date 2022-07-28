@@ -1,0 +1,1 @@
+Artículo 98. Aplicación de sanciones de las faltas. Según la gravedad de la falta, las sanciones descritas en esta sección las aplica la jefatura inmediata, superior o máxima jerarquía, conforme al procedimiento que se establece en este reglamento y se envía copia a la Dirección de Gestión de Desarrollo Humano para el archivo correspondiente.

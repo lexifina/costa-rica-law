@@ -1,0 +1,1 @@
+Artículo 90. Aplicación de sanciones. En la aplicación de las sanciones disciplinarias no se debe seguir el orden que se establece en el artículo anterior, sino que la sanción se aplicará basado en los principios razonabilidad y proporcionalidad aplicables en cada caso y atendiendo a la gravedad de la falta.

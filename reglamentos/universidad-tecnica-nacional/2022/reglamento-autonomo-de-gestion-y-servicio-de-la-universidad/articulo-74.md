@@ -1,0 +1,1 @@
+Artículo 74. Condiciones de evaluación. Las evaluaciones son un factor por considerar para la concesión de ascensos, traslados, permisos con goce de salario, carrera administrativa, y para cualquier modificación de los términos de la relación de servicio. Asimismo, es determinante para el reconocimiento de anualidades.

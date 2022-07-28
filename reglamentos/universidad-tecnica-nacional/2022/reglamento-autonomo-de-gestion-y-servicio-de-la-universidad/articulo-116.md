@@ -1,0 +1,1 @@
+Artículo 116. De las partes. Son parte en el procedimiento disciplinario, además, de la persona denunciada o investigada, las demás personas que puedan haber sido directamente afectadas o lesionadas en sus derechos por los hechos o actuaciones que se investigan. Todas las partes tienen derecho a ser representadas por un abogado o abogada a su propia expensa.

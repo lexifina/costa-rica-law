@@ -1,0 +1,1 @@
+Artículo 55. Capacitación y Formación: derecho de las personas servidoras a la asignación de becas e incentivos para el desarrollo personal, a través de la capacitación y formación, siempre que se cumpla con las condiciones establecidas en el Reglamento de Becas e Incentivos de la UTN y la normativa vigente.

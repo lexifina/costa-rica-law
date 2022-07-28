@@ -1,0 +1,1 @@
+Artículo 36. Cambio del lugar de trabajo. En caso de ser necesario un cambio definitivo o temporal del lugar de trabajo, esa circunstancia debe comunicarse a la persona servidora, al menos con un mes de anticipación, sin demérito de la atención de las situaciones excepcionales que atiende la jefatura inmediata, respetando los derechos laborales.

@@ -1,0 +1,1 @@
+Artículo 29. Valoración de los puestos. Se refleja en una escala salarial, que contiene los grupos ocupacionales y sus respectivas clases de puestos, según lo establecido en el Manual Descriptivo de Clases de Puestos.

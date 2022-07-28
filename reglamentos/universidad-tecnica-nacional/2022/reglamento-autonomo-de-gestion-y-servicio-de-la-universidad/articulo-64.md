@@ -1,0 +1,1 @@
+Artículo 64. Pago de subsidio por incapacidad. Cuando la incapacidad es mayor a tres días se paga un subsidio a partir del cuarto día de incapacidad; el monto a pagar por la Universidad corresponde a la diferencia del monto pagado por la CCSS, hasta completar un cien por ciento del subsidio.

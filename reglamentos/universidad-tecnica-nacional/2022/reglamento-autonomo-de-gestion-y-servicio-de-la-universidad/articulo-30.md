@@ -1,0 +1,1 @@
+Artículo 30. Funciones. Las funciones se establecen en el Manual Descriptivo de Clases de Puestos, son de naturaleza genérica y no agotan las funciones propias de cada puesto, por lo que la persona servidora no puede negarse a desempeñar otras funciones, que resulten acordes con la naturaleza del puesto que ocupa.

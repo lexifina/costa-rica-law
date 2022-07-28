@@ -1,0 +1,1 @@
+Artículo 93. Procedimientos cobratorios. Las sanciones aquí establecidas no excluyen el establecimiento de procedimientos cobratorios institucionales simultáneos o diferidos, en caso que se determine en el procedimiento disciplinario el uso indebido del erario público. Tampoco impide el procesamiento de los cargos en otras sedes jurisdiccionales.

@@ -1,0 +1,1 @@
+Artículo 16. Contenido del expediente de personal. El expediente debe contener todos aquellos documentos que permitan determinar el historial de la relación laboral de la persona servidora con la UTN.

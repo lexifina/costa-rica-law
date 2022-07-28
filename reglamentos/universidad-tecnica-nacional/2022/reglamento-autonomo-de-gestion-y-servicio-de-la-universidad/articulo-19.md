@@ -1,0 +1,1 @@
+Artículo 19. Horario de trabajo. La UTN brinda sus servicios de lunes a domingo, en horario diurno, mixto y nocturno, respetando las jornadas de las personas servidoras, según hayan sido establecidas por la Universidad.

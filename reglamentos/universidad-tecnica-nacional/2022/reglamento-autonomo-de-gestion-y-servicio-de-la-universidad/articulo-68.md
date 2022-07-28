@@ -1,0 +1,3 @@
+Artículo 68. Prestaciones legales. Las personas servidoras de la UTN tienen derecho al pago del auxilio de preaviso y cesantía cuando concluya la relación laboral por despido sin justa causa, o por cualquier otra causa ajena a la voluntad de la persona servidora, así mismo, al auxilio de cesantía cuando sea por jubilación.
+En el caso de que sea la persona servidora que dé por terminada la relación laboral, debe cumplir con el preaviso conforme con lo establecido en el Artículo 28 del Código de Trabajo, de lo contrario, debe pagar a la Universidad lo correspondiente.
+El cálculo del auxilio de cesantía de las personas servidoras, se realiza sobre los últimos ocho años de labores en la UTN; conforme lo establece el Código de Trabajo.

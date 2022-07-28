@@ -1,0 +1,1 @@
+Artículo 115. De las denuncias falsas. Sin perjuicio de la responsabilidad disciplinaria que puede corresponder en apego a la normativa universitaria, quien haga denuncias falsas con conocimiento de ello, puede incurrir, cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, según el Código Penal.

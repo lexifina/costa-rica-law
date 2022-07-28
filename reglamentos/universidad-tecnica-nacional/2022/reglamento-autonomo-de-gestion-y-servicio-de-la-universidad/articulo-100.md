@@ -1,0 +1,2 @@
+Artículo 100. Sanción por no acatamiento de citatorio como persona testigo.
+Se amonesta, por escrito, a la persona servidora que, por primera vez, no atienda un citatorio u omita remitir la información que le sea solicitada para la resolución de un asunto disciplinario laboral; y, suspensión, por cinco días, en caso de reincidencia, y despido sin responsabilidad laboral cuando, por tercera vez, incurra en la misma falta sin justificación alguna.

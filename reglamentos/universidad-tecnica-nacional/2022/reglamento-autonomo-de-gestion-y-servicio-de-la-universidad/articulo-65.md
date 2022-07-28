@@ -1,0 +1,1 @@
+Artículo 65: Pago de subsidio por riesgos del trabajo o enfermedad laboral. En el caso de incapacidades por riesgo de trabajo o enfermedad laboral, emitidas por el INS, se procede al pago del subsidio conforme al convenio establecido entre la UTN y el INS.

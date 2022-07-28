@@ -1,0 +1,1 @@
+Transitorio II. Sistema de marcas. Las autoridades universitarias designadas establecerán los mecanismos para la implementación de un sistema de marcas de ingreso y salida del personal a nivel universitario, en un plazo de dos años a partir de la aprobación del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 69. Régimen de pensiones. Todas las personas servidoras de la UTN están cubiertos por el Régimen de Pensiones y Jubilaciones del Magisterio Nacional, excepto aquellos que por normativa o por decisión propia se acogieron al Régimen de Invalidez, Vejez y Muerte que administra la Caja Costarricense de Seguro Social, conforme a la legislación vigente en esta materia.

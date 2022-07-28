@@ -1,0 +1,1 @@
+Artículo 133. Aplicación supletoria de la normativa. En ausencia de la norma expresada en este reglamento y cuando no sea posible resolver con sus propias disposiciones se aplica, supletoriamente, las normas pertinentes de derecho público y en lo conducente la legislación laboral.
