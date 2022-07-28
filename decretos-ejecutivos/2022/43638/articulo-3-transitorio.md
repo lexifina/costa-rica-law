@@ -1,0 +1,1 @@
+TRANSITORIO III.- La Comisión de Integración se mantendrá con su conformación actual y cumplirá las funciones establecidas en el presente Reglamento hasta tanto se dé la nueva integración de la Asamblea de Trabajadores y Trabajadoras del Banco Popular y se establezca en su seno la nueva Comisión de Integración.
