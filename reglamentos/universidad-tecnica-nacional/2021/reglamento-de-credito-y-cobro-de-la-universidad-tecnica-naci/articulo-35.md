@@ -1,1 +1,2 @@
-ARTÍCULO 35. Gastos. En el arreglo de pago derivado de una deuda morosa, además del principal e intereses adeudados, podrán incluirse las especies fiscales; asimismo, cuando corresponda, el deudor debe cancelar totalmente el costo de los gastos de inscripción y honorarios de la garantía correspondiente.
+ARTÍCULO 35. Gastos.
+En el arreglo de pago derivado de una deuda morosa, además del principal e intereses adeudados, podrán incluirse las especies fiscales; asimismo, cuando corresponda, el deudor debe cancelar totalmente el costo de los gastos de inscripción y honorarios de la garantía correspondiente.

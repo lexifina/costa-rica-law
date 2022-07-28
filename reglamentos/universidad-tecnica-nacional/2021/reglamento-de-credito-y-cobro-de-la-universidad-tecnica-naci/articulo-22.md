@@ -1,11 +1,3 @@
-ARTÍCULO 22. Procedimiento de cobro administrativo. Una vez que la sección de cuentas por cobrar del Área de Tesorería haya realizado los esfuerzos para la recuperación de las obligaciones dinerarias, líquidas y exigibles por las vías ordinarias y traslade a la Rectoría, a la Decanatura o a la Dirección Ejecutiva, según corresponda, la documentación necesaria de las operaciones en estado de morosidad, se procede según el procedimiento de cobro administrativo. Para tal propósito debe respetarse los montos exiguos propuestos por la Dirección General de Asuntos Jurídicos y aprobada anualmente por el Consejo Universitario.
-La persona superior jerárquica de la Administración Universitaria, Sede o Centro, donde se genera el crédito, realiza las acciones necesarias ante el Consejo Universitario para notificar a la(s) persona(s) involucrada(s) que se ha iniciado el debido proceso sumario en su contra por la deuda exigible a favor de la Universidad y mediante resolución fundamentada que debe cumplir con lo siguiente:
-a. Notificar al interesado el carácter y fines del procedimiento de cobro.
-b. Derecho de ser oído, y oportunidad del interesado para presentar los argumentos y producir las pruebas que entienda pertinentes.
-c. Oportunidad para el administrado de preparar sus alegatos, lo que incluye necesariamente el acceso a la información y a los antecedentes administrativos, vinculados con la cuestión de que se trate.
-d. Indicar el derecho del administrado de hacerse representar y asesorar por abogados, técnicos y otras personas calificadas.
-e. Notificación adecuada de la decisión que dicta la administración y de los motivos en que ella se funde y los elementos que justifican la eventual existencia de responsabilidad civil.
-f. La determinación preliminar, de los montos que se adeudan, en caso de comprobarse la existencia de responsabilidad civil y la suma correspondiente por intereses y multas.
-g. Indicar el lugar donde se encuentra el expediente y el derecho a acceder al mismo.
-h. Comunicar a la persona interesada su derecho de recurrir la decisión dictada e indicar los recursos administrativos que caben contra la resolución.
-i. Indicar a la persona interesada el deber de señalar el lugar o medio para recibir notificaciones.
+ARTÍCULO 22. Lineamientos de cobro administrativo.
+El proceso de cobro administrativo corresponde a la Unidad Técnica de Crédito y Cobro, de acuerdo a los lineamientos que establezca la Dirección de Gestión Financiera de la Universidad Técnica Nacional.
+(Reformado mediante Acuerdo 9-16-2022, tomado por el Consejo Universitario en la Sesión Ordinaria No. 16-2022).

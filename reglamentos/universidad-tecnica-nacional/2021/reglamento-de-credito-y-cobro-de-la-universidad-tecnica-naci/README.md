@@ -14,3 +14,4 @@ Reglamento de crédito y cobro de la Universidad Técnica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-09-28 | la propia norma |
+| 2 | 2022-07-28 | Reglamento 16 (2022-07-28) |

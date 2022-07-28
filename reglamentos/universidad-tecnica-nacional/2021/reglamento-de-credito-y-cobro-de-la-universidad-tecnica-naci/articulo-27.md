@@ -1,2 +1,2 @@
-ARTÍCULO 27. Responsabilidad de la Jefatura del Área de Tesorería en los arreglos de pago. Es responsabilidad de la jefatura del Área de Tesorería emitir un criterio técnico sobre las solicitudes de arreglos de pago presentadas ante la Tesorería y remitir el expediente, a la Dirección de Gestión Financiera para su aval o rechazo.
-Control y custodia de las garantías derivadas de los arreglos de pago.
+ARTÍCULO 27. Derogado
+(Derogado mediante Acuerdo 9-16-2022, tomado por el Consejo Universitario en la Sesión Ordinaria No. 16-2022).

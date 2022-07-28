@@ -1,1 +1,2 @@
-ARTÍCULO 19. Responsabilidades de la Dirección de Gestión Financiera. Trasladar a la Dirección de Asuntos Jurídicos el expediente administrativo de cobro, para el respectivo trámite.
+ARTÍCULO 19. Derogado.
+(Derogado mediante Acuerdo 9-16-2022, tomado por el Consejo Universitario en la Sesión Ordinaria No. 16-2022).

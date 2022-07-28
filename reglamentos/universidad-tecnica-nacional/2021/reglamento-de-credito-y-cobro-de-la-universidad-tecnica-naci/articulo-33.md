@@ -1,2 +1,3 @@
-ARTÍCULO 33. Arreglos durante la ejecución del proceso judicial. Cuando el cobro se tramita en la vía judicial, cualquier arreglo o finiquito es competencia de la Dirección General de Asuntos Jurídicos, previo aval de la Rectoría. En estos casos, la persona deudora debe cancelar, previamente, las costas personales y procesales ocasionadas como consecuencia del cobro judicial.
+ARTÍCULO 33. Arreglos durante la ejecución del proceso judicial.
+Cuando el cobro se tramita en la vía judicial, cualquier arreglo o finiquito es competencia de la Dirección General de Asuntos Jurídicos, previo aval de la Rectoría. En estos casos, la persona deudora debe cancelar, previamente, las costas personales y procesales ocasionadas como consecuencia del cobro judicial.
 Para efectos de la formalización del arreglo se aplica lo dispuesto en los artículos anteriores.

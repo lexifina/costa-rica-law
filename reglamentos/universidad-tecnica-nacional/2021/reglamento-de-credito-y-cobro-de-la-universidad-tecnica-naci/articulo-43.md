@@ -1,0 +1,5 @@
+ARTÍCULO 43. Creación de otras cuentas por cobrar.
+Las cuentas por cobrar no contempladas en el presente reglamento, se regirán por los lineamientos emitidos por la administración activa de la Universidad Técnica Nacional.
+(Adicionado mediante Acuerdo 9-16-2022, tomado por el Consejo Universitario en la Sesión Ordinaria No. 16-2022).
+(Aprobado mediante Acuerdo 13 tomado por el Consejo Universitario en la Sesión Ordinaria No. 19-2021, celebrada el jueves 12 de agosto de 2021, a las nueve horas, según el Artículo 15 del Capítulo IX. Comisión Interna de Reglamentos. Publicado en el diario oficial La Gaceta No. 186 del 28 de septiembre del año 2021, sección de Reglamentos).
+(Reformado mediante Acuerdo 9-16-2022, tomado por el Consejo Universitario en la Sesión Ordinaria No. 16-2022, celebrada el jueves 28 de julio de 2022 a las nueve horas, según el Artículo 17 del Capítulo X. Dirección General de Administración Universitaria. Publicado en el diario oficial La Gaceta No. 156 del 18 de agosto del año 2022, sección de Reglamentos).

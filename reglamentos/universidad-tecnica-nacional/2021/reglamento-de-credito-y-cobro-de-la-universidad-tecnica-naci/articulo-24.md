@@ -1,1 +1,3 @@
-ARTÍCULO 24. Resolución final. Realizado el proceso sumario, la persona superior jerárquica responsable emitirá una resolución final del procedimiento y se pronunciará sobre cada uno de los aspectos planteados por la persona deudora de la obligación. Lo resuelto por la unidad responsable en los procedimientos ordinarios podrá ser impugnado por los recursos administrativos que caben contra la resolución.
+ARTÍCULO 24. El proceso de cobro administrativo.
+Se realizará al amparo de los lineamientos sobre el proceso de cobro administrativo emitidos por la Dirección Financiera.
+(Reformado mediante Acuerdo 9-16-2022, tomado por el Consejo Universitario en la Sesión Ordinaria No. 16-2022).
