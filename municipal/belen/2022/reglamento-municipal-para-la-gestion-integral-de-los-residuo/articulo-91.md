@@ -1,0 +1,2 @@
+Artículo 91.—Empaque del Compost Resultante. En caso de que el compost deba ser entregado a un gestor autorizado para su transporte, o que sea llevado a un centro de acopio autorizado, debe ser empacado en sacos que permitan el intercambio de aire entre el material y su medio circundante, o en recipientes con tapa que permitan su adecuada gestión. En todo caso, no pueden empacarse en bolsas plásticas.
+(Corregida su numeración mediante Fe de Erratas y publicada en La Gaceta N° 66 del 18 de abril de 2023, página 2)

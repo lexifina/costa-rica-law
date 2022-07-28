@@ -1,0 +1,2 @@
+Artículo 86.—Fondo para la Gestión Integral de Residuos. Los fondos provenientes de las multas que indica el Artículo 25 de la Ley para la Gestión Integral de Residuos N° 8839, una vez girados por la Tesorería Nacional a la Municipalidad, ingresarán directamente al presupuesto del Subproceso de Saneamiento Ambiental con el fin de apoyar la implementación de las acciones del Plan Municipal para la Gestión.
+(Corregida su numeración mediante Fe de Erratas y publicada en La Gaceta N° 66 del 18 de abril de 2023, página 2)

@@ -1,0 +1,1 @@
+Artículo 67. -Fiscalización. Funcionarios de la Municipalidad realizarán una verificación semestral del cumplimiento del programa a los comercios y personas que se inscriban. Sin embargo, la Municipalidad podrá realizar inspecciones a los comercios y residencias para la verificación del cumplimiento de los compromisos en gestión de residuos cuando considere necesario.

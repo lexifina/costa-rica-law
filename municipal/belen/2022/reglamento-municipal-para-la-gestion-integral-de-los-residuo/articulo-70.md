@@ -1,0 +1,1 @@
+Artículo 70. -La tarifa diferenciada en residencias. La Municipalidad aplicará una tarifa diferenciada al cobro de la tarifa residencial a los usuarios residenciales que cumplan con las condiciones y requisitos establecidos en los programas de incentivos promovidos por el Gobierno Local. El monto de la tarifa diferenciada será fijado por la Unidad Tributaria de la Municipalidad.

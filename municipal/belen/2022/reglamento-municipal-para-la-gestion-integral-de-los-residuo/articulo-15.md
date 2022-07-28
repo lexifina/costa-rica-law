@@ -1,0 +1,1 @@
+Artículo 15. -La actualización, mejoramiento y aplicación de nuevas tecnologías permitidas en el PMGIRS deberán seleccionarse y aplicare por medio de un proceso participativo, según las herramientas que estipula el ordenamiento jurídico correspondiente.

@@ -1,0 +1,2 @@
+Artículo 100.—Mecanismos de participación ciudadana. La participación ciudadana en los procesos de Gestión Integral de Residuos Sólidos utilizará los mecanismos dispuestos en las regulaciones establecidas en el Capítulo III del Reglamento General para la de Gestión Integral de Residuos.
+(Corregida su numeración mediante Fe de Erratas y publicada en La Gaceta N° 66 del 18 de abril de 2023, página 2)

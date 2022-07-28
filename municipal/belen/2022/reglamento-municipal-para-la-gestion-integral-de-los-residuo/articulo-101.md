@@ -1,0 +1,2 @@
+Artículo 101.—Ferias, campañas y otras actividades ambientales. La Municipalidad podrá realizar ferias, campañas y otro tipo de actividad de proyección, información, capacitación y sensibilización sobre la importancia de la gestión integral de residuos. La Municipalidad será la responsable de la coordinación de dichas actividades, sin embargo, podrá aplicar el artículo 80 de este reglamento cuando la actividad lo requiera.
+(Corregida su numeración mediante Fe de Erratas y publicada en La Gaceta N° 66 del 18 de abril de 2023, página 2)

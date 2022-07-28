@@ -1,0 +1,2 @@
+Artículo 98.—Convenios y alianzas estratégicas. La Municipalidad podrá establecer convenios con instituciones públicas o privada para la implementación de programas de educación ambiental dentro del Cantón. Estos convenios y alianzas deberán contar con todos los requisitos legales y administrativos vigentes para su debida inscripción y ejecución. Cada convenio será independiente y deberá ser aprobado por la administración municipal antes de su implementación.
+(Corregida su numeración mediante Fe de Erratas y publicada en La Gaceta N° 66 del 18 de abril de 2023, página 2)

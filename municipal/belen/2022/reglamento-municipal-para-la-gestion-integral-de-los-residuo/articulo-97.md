@@ -1,0 +1,2 @@
+Artículo 97.—Programas de educación ambiental. La Municipalidad en coordinación con otras instituciones públicas y privadas realizará campañas de educación ambiental, con el objetivo de que la comunidad adquiera destrezas sobre la separación de los residuos sólidos y se genere sensibilización acerca de la importancia de una adecuada gestión de los mismos.
+(Corregida su numeración mediante Fe de Erratas y publicada en La Gaceta N° 66 del 18 de abril de 2023, página 2)

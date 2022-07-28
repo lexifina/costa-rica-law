@@ -1,0 +1,2 @@
+Artículo 78.—Metodología de estimación de la multa. la imposición de la multa debe ir en función del impacto o incidencia de la multa sobre la gestión municipal. Para la aplicación de multa a imponer a cada infractor, se utilizarán los criterios indicados en el Anexo 1 de este reglamento.
+(Corregida su numeración mediante Fe de Erratas y publicada en La Gaceta N° 66 del 18 de abril de 2023, página 2)

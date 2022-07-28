@@ -1,0 +1,2 @@
+Artículo 79.—Naturaleza del Infractor. Se considera infractor a toda persona mayor de edad que cometa cualquiera de las infracciones descritas en los artículos anteriores del presente reglamento. En contraposición, cualquier persona, física o jurídica podrá presentar denuncias por violaciones a este reglamento ante la Plataforma de Servicio al Cliente de la Municipalidad, dirigidas al Subproceso de Saneamiento Ambiental.
+(Corregida su numeración mediante Fe de Erratas y publicada en La Gaceta N° 66 del 18 de abril de 2023, página 2)

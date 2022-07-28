@@ -1,0 +1,2 @@
+Artículo 90.—Uso del Compost Resultante. El generador podrá utilizar el compost o abono producido en sus jardines, áreas comunes y otros espacios públicos o privados, y este material también podrá ser donado para su utilización en los huertos comunitarios y/o parques del Cantón, con el fin de prevenir el uso de fertilizantes de fuentes químicas. Si se desea sacar provecho económico de este producto, se deberá acoger a la legislación nacional correspondiente.
+(Corregida su numeración mediante Fe de Erratas y publicada en La Gaceta N° 66 del 18 de abril de 2023, página 2)

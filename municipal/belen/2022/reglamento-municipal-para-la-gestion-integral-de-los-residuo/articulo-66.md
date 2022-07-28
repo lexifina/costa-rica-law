@@ -1,0 +1,1 @@
+Artículo 66. -Validez de incentivo. La tarifa diferenciada se otorgará por un lapso de 6 meses calendario desde su aprobación. El usuario tiene la responsabilidad de demostrar con prueba física y documental el cumplimiento de las acciones declaradas en el formulario de inscripción durante el período que gozo de la tarifa diferenciada.

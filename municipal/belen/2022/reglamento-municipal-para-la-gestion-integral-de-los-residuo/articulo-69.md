@@ -1,0 +1,1 @@
+Artículo 69. La tarifa diferenciada en comercios. La tarifa diferenciada a otorgar al comercio que participe del programa Eco Belemita será la establecida según la categoría que ostente el comercio o la propiedad inscrita.

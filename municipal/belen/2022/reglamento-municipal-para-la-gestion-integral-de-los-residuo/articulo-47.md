@@ -1,0 +1,1 @@
+Artículo 47. -Queda prohibido el almacenamiento de residuos sólidos valorizables en los mismos sitios que los residuos sólidos peligrosos o de manejo especial dentro del cantón. Estos centros deberán contar con los permisos correspondientes por parte del MINSA y su operación no debe provocar molestias a las personas que trabajan en estos sitios o a los vecinos.

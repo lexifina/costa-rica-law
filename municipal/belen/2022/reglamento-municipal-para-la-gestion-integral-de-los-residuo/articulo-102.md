@@ -1,0 +1,2 @@
+Artículo 102.—Otras actividades. Se podrán coordinar otro tipo de actividades educativas y de sensibilización que no estén contempladas en los artículos 80, 82 y 83 de este reglamento. Estas actividades adicionales tendrán el objetivo de fomentar la gestión integral de los residuos sólidos.
+(Corregida su numeración mediante Fe de Erratas y publicada en La Gaceta N° 66 del 18 de abril de 2023, página 2)
