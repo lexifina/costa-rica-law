@@ -13,3 +13,4 @@ Reglamento del Fideicomiso de Administración e Inversión del Fondo de Emergenc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-27 | la propia norma |
+| 2 | 2022-07-28 | Circular 138 (2022-07-28) |
