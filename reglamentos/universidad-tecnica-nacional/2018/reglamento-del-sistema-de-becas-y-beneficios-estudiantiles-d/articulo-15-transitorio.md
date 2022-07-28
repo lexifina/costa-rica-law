@@ -1,2 +1,2 @@
 TRANSITORIO XV. Desde el primero de enero de 2021 y hasta que se mantenga condiciones de virtualización del periodo lectivo y actividades relacionadas con el Área de Cultura, Deporte y Recreación, no se aplicarán las disposiciones contenidas en el artículo 53, a raíz de las situaciones originadas como consecuencia de la pandemia COVID-19.
-(Así adicionado mediante sesión ordianria N° 10-2021 del 29 de abril del 2021)
+(Adicionado mediante Acuerdo 6-10-2021, tomado por el Consejo Universitario en la Sesión Ordinaria No. 10-2021, celebrada el jueves 29 de abril del 2021, a las diez horas, según el Artículo 10. Publicado en el diario oficial La Gaceta No. 89 del 11 de mayo del año 2021, sección de Reglamentos).

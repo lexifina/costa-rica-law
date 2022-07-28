@@ -1,1 +1,1 @@
-Artículo 69—Solicitud del beneficio de residencias estudiantiles. Este beneficio puede solicitarse por cualquier aspirante o estudiante regular, en el periodo calendarizado institucionalmente. Los requisitos, posibilidades y restricciones se regulan en el reglamento respectivo.
+Artículo 69-Solicitud del beneficio de residencias estudiantiles. Este beneficio puede solicitarse por cualquier aspirante o estudiante regular, en el periodo calendarizado institucionalmente. Los requisitos, posibilidades y restricciones se regulan en el reglamento respectivo.

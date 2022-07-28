@@ -1,1 +1,2 @@
-Artículo 9 — Quórum del Comité para el análisis del Presupuesto de Becas y Beneficios Estudiantiles. (Derogado en sesion N° 30-2020 del 10 de diciembre del 2020)
+Artículo 9 - Quórum del Comité para el análisis del Presupuesto de Becas y Beneficios Estudiantiles. Derogado.
+(Derogado mediante Acuerdo 7-30-2020, tomado por el Consejo Universitario en la Sesión Ordinaria No. 30-2020, celebrada el jueves 10 de diciembre de 2020, a las nueve horas, según el Artículo 10. Publicado en el diario oficial La Gaceta No. 298 del 22 de diciembre del 2020, sección de Instituciones Descentralizadas).

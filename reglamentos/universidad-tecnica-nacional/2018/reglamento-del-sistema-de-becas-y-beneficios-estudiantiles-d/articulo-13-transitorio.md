@@ -1,2 +1,2 @@
 TRANSITORIO XIII. Todo lo estipulado en los transitorios de este reglamento es temporal, la Universidad se compromete a revisar las condiciones presupuestarias para suspender la aplicación de los mismos en el momento en que se considere posible y sostenible.
-(Así adicionado en session N° 30-2020 del 10 de diciembre del 2020)
+(Adicionado mediante Acuerdo 7-30-2020, tomado por el Consejo Universitario en la Sesión Ordinaria No. 30-2020, celebrada el jueves 10 de diciembre de 2020, a las nueve horas, según el Artículo 10. Publicado en el diario oficial La Gaceta No. 298 del 22 de diciembre del 2020, sección de Instituciones Descentralizadas).

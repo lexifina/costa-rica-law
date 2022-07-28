@@ -5,4 +5,4 @@ a) Solicitar el apoyo temporal para conectividad en el periodo calendarizado por
 b) Matricular y tener la beca socioeconómica activa (aplicada) para los cuatrimestres, según corresponda.
 c) El beneficio se brindará únicamente para el II y III cuatrimestre de 2021, siempre y cuando se mantengan las condiciones de virtualización del periodo lectivo.
 d) Cumplir con los lineamientos definidos para ello por la Vicerrectoría de Vida Estudiantil.
-(Así adicionado mediante sesión N° 11-2021 del 13 de mayo del 2021)
+(Adicionado mediante Acuerdo 7-11-2021, tomado por el Consejo Universitario en la Sesión Ordinaria No. 11-2021, celebrada el jueves 13 de mayo del 2021, a las nueve horas, según el Artículo 11 del Capítulo VII. Vicerrectoría De Vida Estudiantil. Publicado en el diario oficial La Gaceta No. 99 del 25 de mayo del año 2021, sección de Reglamentos)

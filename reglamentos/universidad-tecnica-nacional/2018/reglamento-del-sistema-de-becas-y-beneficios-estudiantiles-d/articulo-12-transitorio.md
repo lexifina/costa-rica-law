@@ -1,3 +1,3 @@
 TRANSITORIO XII. A partir del año 2021 y hasta el año 2024, lo estipulado en el artículo 54 de esta normativa se modifica de manera temporal y se aplicará según la siguiente disposición:
-Artículo 54 —Beca por participación en actividades de interés institucional. A aquellas personas estudiantes que participen como tutoras estudiantiles, se les otorgará una beca de estímulo del 100% de exoneración de pago de aranceles, previo cumplimiento de los requisitos establecidos para ello.
-(Así adicionado en session N° 30-2020 del 10 de diciembre del 2020)
+Artículo 54 -Beca por participación en actividades de interés institucional. A aquellas personas estudiantes que participen como tutoras estudiantiles, se les otorgará una beca de estímulo del 100% de exoneración de pago de aranceles, previo cumplimiento de los requisitos establecidos para ello.
+(Adicionado mediante Acuerdo 7-30-2020, tomado por el Consejo Universitario en la Sesión Ordinaria No. 30-2020, celebrada el jueves 10 de diciembre de 2020, a las nueve horas, según el Artículo 10. Publicado en el diario oficial La Gaceta No. 298 del 22 de diciembre del 2020, sección de Instituciones Descentralizadas).

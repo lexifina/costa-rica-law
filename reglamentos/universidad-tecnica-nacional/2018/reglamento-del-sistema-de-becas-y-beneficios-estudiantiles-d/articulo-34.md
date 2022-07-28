@@ -1,2 +1,2 @@
-Artículo 34 —Definición de montos para beneficios complementarios. Es función de la Vicerrectoría de Vida Estudiantil definir anualmente los montos mínimos y máximos para la adjudicación de los beneficios complementarios.
-(Así reformado en session N° 30-2020 del 10 de diciembre del 2020)
+Artículo 34 -Definición de montos para beneficios complementarios. Es función de la Vicerrectoría de Vida Estudiantil definir anualmente los montos mínimos y máximos para la adjudicación de los beneficios complementarios.
+(Reformado mediante Acuerdo 7-30-2020, tomado por el Consejo Universitario en la Sesión Ordinaria No. 30-2020, celebrada el jueves 10 de diciembre de 2020, a las nueve horas, según el Artículo 10. Publicado en el diario oficial La Gaceta No. 298 del 22 de diciembre del 2020, sección de Instituciones Descentralizadas).
