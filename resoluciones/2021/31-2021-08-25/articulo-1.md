@@ -13,6 +13,7 @@ El DIRECTOR GENERAL
 DEL SERVICIO NACIONAL DE SALUD ANIMAL
 DEL MINISTERIO DE AGRICULTURA Y GANADERÍA
 RESUELVE:
-Artículo 1º-Identificación de los establecimientos. Se ordena como medida sanitaria que los alimentos competencia del SENASA, deben contener la siguiente información en el material de empaque con el fin de identificar el establecimiento de procedencia:
+Artículo 1.-Identificación de los establecimientos. Se ordena como medida sanitaria que los alimentos competencia del SENASA, deben contener la siguiente información en el material de empaque con el fin de identificar el establecimiento de procedencia:
 a) Nombre del establecimiento según consta en el Certificado Veterinario de Operación.
-b) Número de Certificado Veterinario de Operación (CVO) o en caso de productos importados, la identificación de autorización equivalente de la Autoridad Competente.
+b) Número de Certificado Veterinario de Operación (CVO), número de establecimiento exportador extendido por la Dirección de Inocuidad de Productos de Origen Animal (DIPOA) o en caso de productos importados, la identificación de autorización equivalente de la Autoridad Competente.
+(Así reformado por resolución N° SENASA-DG-R049-2022 del 28 de julio de 2022)

@@ -14,3 +14,4 @@ Medida sanitaria que se deben de indicar en el material de empaque de los alimen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-03-07 | la propia norma |
+| 2 | 2022-07-28 | Resolución 49 (2022-07-28) |
