@@ -1,0 +1,1 @@
+Artículo 24- Principio de informalidad. Los recursos no requieren una redacción o una pretensión especial y bastará para su correcta formulación que se su texto se infiera claramente la petición de revisión.

@@ -1,0 +1,1 @@
+Artículo 3.- Alcance. Este reglamento rige en todo el cantón de Paraíso, afectando a cualquier persona física y/o jurídica, propietaria o poseedora por cualquier título, usufructuario y/o albacea administrador de bienes inmuebles ubicados en el cantón.

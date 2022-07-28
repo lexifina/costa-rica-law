@@ -1,0 +1,1 @@
+Artículo 9- Límites del procedimiento. La Administración Tributaria debe adoptar sus resoluciones dentro del procedimiento administrativo, con estricto apego al ordenamiento jurídico y, en el caso de decisiones discrecionales, estará sujeta a los límites de racionalidad y razonabilidad, así como al respecto a los derechos de los sujetos pasivos.

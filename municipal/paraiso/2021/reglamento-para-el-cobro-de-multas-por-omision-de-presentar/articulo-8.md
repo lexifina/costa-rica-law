@@ -1,0 +1,1 @@
+Artículo 8.- Impulso procesal. La Administración Tributaria deberá conducir el procedimiento con la intención de lograr un máximo de celeridad y eficiencia, dentro del respecto al ordenamiento jurídico y a los derechos e intereses legítimos del sujeto pasivo.
