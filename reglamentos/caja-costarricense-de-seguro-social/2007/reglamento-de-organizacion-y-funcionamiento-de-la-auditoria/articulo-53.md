@@ -1,3 +1,0 @@
-SECCIÓN VIII
-De las denuncias
-Artículo 53.—Atención de denuncias por parte de la Auditoría Interna. La Auditoría Interna posee la atribución de atender denuncias que le sean presentadas y que estén dentro de su ámbito de fiscalización, sin embargo, ello no implica que se tenga la obligación o responsabilidad de atender la totalidad de las denuncias que reciba, de manera que la valoración de cuáles denuncias se atenderán y cuáles no, es un aspecto que será analizado en cada caso particular, para determinar si serán investigadas por la propia Auditoría o si se trasladarán al órgano competente de la administración activa o externo a la institución en materia administrativa o judicial.

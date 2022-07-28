@@ -1,1 +1,0 @@
-Artículo 41.—Supervisión del Trabajo de Auditoría. El Auditor, Subauditor, Jefaturas y demás funcionarios que sean designados para estos efectos, deberán contar con mecanismos de supervisión continua y documentada en cada una de las fases del proceso de auditoría, para garantizar el cumplimiento de la normativa que sobre el particular se haya emitido y resulte aplicable.

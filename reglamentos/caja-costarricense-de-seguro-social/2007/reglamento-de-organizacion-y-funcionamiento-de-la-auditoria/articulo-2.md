@@ -1,1 +1,0 @@
-Artículo 2º—Misión. La Auditoría Interna es un equipo de personas con calidad humana que contribuye al fortalecimiento de la CAJA, por medio de la función de fiscalización y asesoría, promoviendo la eficiencia, probidad, legalidad y protección del patrimonio institucional.

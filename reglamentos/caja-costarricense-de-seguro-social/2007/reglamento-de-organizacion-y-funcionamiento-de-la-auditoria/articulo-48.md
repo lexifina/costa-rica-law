@@ -1,1 +1,0 @@
-Artículo 48—Comunicación de los servicios preventivos. Los servicios preventivos se comunicarán mediante oficios u otros medios a criterio del Auditor Interno, quien definirá el contenido y la forma de éstos, conforme a la naturaleza de los asuntos a que se refiera, utilizando su criterio profesional y las directrices que al respecto emita la Contraloría General de la República.

@@ -1,1 +1,0 @@
-Artículo 6º—Del Reglamento y sus modificaciones. A efectos de mantener actualizado el marco normativo de la Auditoría Interna, le corresponde al Auditor proponer y promover ante la Junta Directiva, las modificaciones al mismo. Toda modificación debe contar de previo a su emisión oficial, con la aprobación de la Contraloría General de la República.

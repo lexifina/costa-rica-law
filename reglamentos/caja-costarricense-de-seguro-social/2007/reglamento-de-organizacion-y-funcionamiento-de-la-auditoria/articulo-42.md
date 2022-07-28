@@ -1,2 +1,0 @@
-Artículo 42.—Realización de entrevistas. Los funcionarios de la Auditoría Interna están facultados, de conformidad con lo establecido en el artículo 33 de la Ley General de Control Interno y el numeral 204 del Manual de Normas Generales de Auditor, para el Sector Público, para realizar entrevistas escritas o por otros medios, con el fin de obtener evidencia para sustentar de manera fehaciente los hallazgos, conclusiones y recomendaciones, en los casos bajo examen y según las circunstancias.
-(Así reformado mediante sesión N° 8583 del 7 de junio del 2012)

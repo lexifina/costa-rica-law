@@ -1,2 +1,0 @@
-Artículo 54.—Tramitación de denuncias anónimas en casos excepcionales. De conformidad con lo establecido por el artículo 13 del Reglamento a la Ley N° 8422, no se dará trámite a las denuncias que sean presentadas en forma anónima. No obstante, en casos excepcionales, se podrá iniciar un estudio de auditoría cuando con la denuncia se reciban elementos de prueba que den mérito para ello. En caso contrario, se dispondrá su archivo sin más trámite.
-(Así reformado mediante sesión N° 8863 del 19 de setiembre del 2016)

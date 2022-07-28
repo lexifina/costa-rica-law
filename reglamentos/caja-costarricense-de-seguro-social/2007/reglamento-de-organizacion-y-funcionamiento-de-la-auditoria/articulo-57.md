@@ -1,7 +1,0 @@
-Artículo 57.—Presentación y trámite. Las denuncias presentadas deberán ser registradas de tal manera que puedan identificarse y darles seguimiento con facilidad y oportunidad. Lo anterior, según el procedimiento que al efecto apruebe la Auditoría Interna.
-De acuerdo con lo indicado en el artículo 56 de este Reglamento, el Centro de Denuncias examinará dentro de un plazo razonable, la admisibilidad de las mismas, dictando el acto respectivo, que deberá ser comunicado al denunciante que hubiere señalado lugar para oír notificaciones, rechazándola o admitiéndola.
-Si de la revisión de la denuncia se concluye que no existe mérito suficiente para iniciar un estudio de Auditoría, se comunicará esta situación al denunciante y se procederá a su archivo, mediante resolución motivada.
-Declarada la admisibilidad de la denuncia (una vez realizada la revisión correspondiente), se procederá a realizar la investigación preliminar, ya sea por parte del Centro de Denuncias, las distintas Áreas de este Órgano de Fiscalización o la administración activa.
-Los hechos denunciados deben ser claros, precisos y con el detalle necesario, de modo que permitan activar una investigación.
-En lo posible el denunciante deberá señalar, la afectación de los fondos públicos, probables testigos, el lugar y el medio para citarlos, así como la aportación o sugerencia de pruebas.
-( Corregido mediante Fe de Erratas, publicada en la Gaceta N ° 221 del 16 de noviembre de 2007).

@@ -1,1 +1,0 @@
-Artículo 4º—Deber de actualización. La Auditoría Interna deberá mantener actualizada la visión, misión, valores y principales políticas que rigen su accionar, así como los enunciados o códigos éticos que deben tener en cuenta sus funcionarios al conducirse en sus relaciones internas y externas.
