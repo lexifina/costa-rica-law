@@ -1,0 +1,1 @@
+Artículo 3°-La asignación y uso del dispositivo tecnológico o de comunicación, se debe sujetar a los principios de razonabilidad, racionalidad y, en general, a las prácticas generales de sana administración de los recursos públicos y austeridad.

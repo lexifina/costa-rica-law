@@ -1,0 +1,1 @@
+Artículo 12.-Los casos no previstos en este Reglamento, en lo concerniente al cuido, control de bienes y otros aspectos de orden administrativo, serán resueltos por la Municipalidad de Esparza, conforme a nuestro ordenamiento jurídico.

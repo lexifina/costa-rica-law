@@ -1,0 +1,1 @@
+Artículo 2°-El presente Reglamento se aplicará a todos los miembros del Concejo Municipal de Esparza propietarios y suplentes, a quienes se les asigne un dispositivo tecnológico o de comunicación propiedad de la Municipalidad de Esparza.
