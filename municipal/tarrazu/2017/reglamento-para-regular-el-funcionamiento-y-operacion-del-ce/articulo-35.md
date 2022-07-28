@@ -1,1 +1,0 @@
-Artículo 35.-Del estado de los activos. El Inmueble deberá permanecer en condiciones óptimas para la atención de las niñas y niños beneficiarios del Centro, por lo que no se podrá vender, permutar o modificar los activos del CECUDI, estos son bienes de la Municipalidad de Tarrazu, y por ende todos los daños y artículos faltantes, deberán ser responsabilidad del adjudicatario.

@@ -1,1 +1,0 @@
-Artículo 13.-El pago deberá realizarse en la oficina de administración del CECUDI. El representante del menor deberá cancelar el monto correspondiente ante la Administración del CECUDI, según el procedimiento por ellos establecido.

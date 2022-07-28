@@ -1,1 +1,0 @@
-Artículo 17.-Consideraciones con respecto a las Necesidades Educativas Especiales de la población infantil: El Centro abre sus puertas a niños y niñas con Necesidades Educativas Especiales, de acuerdo con sus principios filosóficos y sus posibilidades académicas y materiales.
