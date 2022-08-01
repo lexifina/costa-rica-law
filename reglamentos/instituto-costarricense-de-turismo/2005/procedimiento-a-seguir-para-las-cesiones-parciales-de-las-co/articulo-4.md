@@ -1,8 +1,9 @@
-Artículo 4º—En caso de solicitudes de cesiones parciales para el desarrollo de proyectos turísticos, según la clasificación del artículo primero, la concesionaria deberá presentar a la Oficina Ejecutora del Polo Turístico los siguientes requisitos:
+Artículo 4º-En caso de solicitudes de cesiones parciales para el desarrollo de proyectos turísticos, según la clasificación del artículo primero, la concesionaria deberá presentar a la Oficina Ejecutora del Polo Turístico los siguientes requisitos:
 a) Solicitud firmada por el concesionario, o su representante legal acreditado, con indicación expresa de la identificación del futuro cesionario, conforme al formato aprobado previamente por el ICT;
 b) copia certificada de los documentos de identificación del cesionario persona física; o certificación notarial o de Registro Público de los estatutos sociales, personería, accionista o cuotistas y cédula jurídica de la cesionaria persona jurídica, constituida y domiciliada en el país;
 c) record policial del cesionario si es persona física y si fuere persona jurídica, de los representantes legales, haciendo constar que no tiene antecedentes policiales en su lugar de domicilio en los últimos seis meses;
-d) comprobante de la Tesorería del ICT sobre pago del canon de traspaso respectivo según el terreno a ceder;
+d Una vez en firme el acuerdo de la Junta Directiva del ICT mediante el cual se cuente con la aprobación de la cesión parcial o total y previo a la firma del contrato respectivo, el concesionario deberá pagar al ICT el canon de traspaso que corresponda, según el terreno a ceder y el valor indexado del canon a la fecha de la solicitud.
+(Así reformado el inciso anterior en sesión N° 6222 del 1° de agosto de 2022)
 e) plano catastrado o autorizado por el Consejo Director de Papagayo del área a ceder;
 f) documentos que acrediten la experiencia del cesionario en proyectos turísticos o similares;
 g) declaración jurada del futuro cesionario o su representante de que cuenta con suficiente solvencia económica para asumir las responsabilidades que implica su condición como futuro cesionario y de que no le afectan las prohibiciones dispuestas por el Capítulo V de la Ley de Contratación Administrativa, de acuerdo al formato previamente aprobado por el ICT;

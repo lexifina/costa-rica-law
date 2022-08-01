@@ -14,3 +14,4 @@ Procedimiento a seguir para las cesiones parciales de las concesiones otorgadas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-03-17 | la propia norma |
+| 2 | 2022-08-01 | Reglamento 6222 (2022-08-01) |
