@@ -1,0 +1,2 @@
+Artículo 23.-Los miembros del Concejo Municipal de Coto Brus mediante acuerdo municipal pueden ser autorizados asistir en nombre de la Municipalidad a eventos y actividades que involucren asuntos propios de sus cargos.
+Es el único supuesto en que los mismos no pierden su derecho a percibir dieta, y quienes los sustituyan en su ausencia, de ser suplentes, perciben también dicha dieta en calidad de propietarios.

@@ -1,0 +1,1 @@
+Artículo 10.-En caso de que el regidor suplente no sustituya al propietario en una sesión remunerable, pero este presente durante toda la sesión, devengarán el 50% de la dieta correspondiente al regidor propietario.

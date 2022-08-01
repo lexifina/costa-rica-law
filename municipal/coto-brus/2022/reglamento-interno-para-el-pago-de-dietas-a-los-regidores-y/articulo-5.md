@@ -1,0 +1,1 @@
+Artículo 5°-Este reglamento se encuentra regido por los principios de: probidad, objetividad, igualdad, equidad, legalidad, motivación, celeridad y economía procesal, razonabilidad, proporcionalidad, discrecionalidad, conveniencia, oportunidad y buena fe; sin perjuicio de cualquier otro aplicable.

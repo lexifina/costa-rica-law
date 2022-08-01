@@ -1,0 +1,1 @@
+Artículo 18.-Los funcionarios administrativos del Comité Cantonal de Deportes y Recreación de Coto Brus, no podrán pertenecer a la vez al Concejo Municipal de Coto Brus, así como aquellos que se vean impedidos por ley.
