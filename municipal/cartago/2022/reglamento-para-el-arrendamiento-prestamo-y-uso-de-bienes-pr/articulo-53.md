@@ -1,0 +1,1 @@
+Artículo 53.-Sobre la fiscalización. Corresponde al funcionario de la Dirección o Departamento asignado del proceso, realizar la fiscalización y control del cumplimiento de las condiciones establecidas para el préstamo bajo la figura de uso en precario.

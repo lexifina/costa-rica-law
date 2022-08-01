@@ -1,0 +1,1 @@
+Artículo 11.-De la Plaza Mayor y de la Plaza de la Independencia. En el uso de esas plazas, tendrán prioridad aquellas actividades que organicen y programen el mismo Concejo Municipal y la Administración Municipal, sea a través de sus comisiones o de los procesos administrativos.

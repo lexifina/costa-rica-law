@@ -1,0 +1,1 @@
+Artículo 19-Firma del Contrato. Aprobada la solicitud por parte del Concejo, el solicitante deberá apersonarse ante la Alcaldía Municipal, a fin de suscribir el respectivo contrato o convenio según corresponda.

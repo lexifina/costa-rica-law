@@ -1,0 +1,2 @@
+Artículo 15-Solicitud de Activos. Toda solicitud de activos deberá hacerse por escrito dirigido al Concejo y cumplir con el artículo 3 de este reglamento.
+Asimismo, dicha solicitud deberá presentarse con al menos, quince días hábiles de anticipación a la fecha prevista para la realización de la actividad que justifica el préstamo, salvo casos excepcionales de emergencia comprobada o prioridades establecidas por la municipalidad, lo cual será valorado por el Concejo.

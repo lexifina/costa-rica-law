@@ -1,0 +1,1 @@
+Artículo 36.-De la restitución. Una vez terminado el contrato, el prestatario tendrá que devolver los activos dados en préstamo, en el término, lugar y forma convenidos, lo cual verificará Almacén Municipal oportunamente.

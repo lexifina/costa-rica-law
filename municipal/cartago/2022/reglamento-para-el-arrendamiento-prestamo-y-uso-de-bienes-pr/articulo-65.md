@@ -1,0 +1,1 @@
+Artículo 65.-Seguimiento Municipal. La Municipalidad por medio del de la Unidad de Activos, realizará aleatoriamente inspecciones a cada prestatario para verificar el estado de los activos municipales, así como el cumplimiento del contrato y este reglamento, haciendo constar el respectivo reporte de la situación encontrada ante el Área Administrativa Financiera.

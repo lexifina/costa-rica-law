@@ -1,0 +1,2 @@
+Artículo 34.-Del traslado. Cuando así sea pactado, la persona que la Administración designe como responsable del bien coordinará con los funcionarios municipales idóneos el traslado, instalación y desinstalación, así como el manejo adecuado del activo, cuando sea necesario por lo complejo o sofisticado del mismo.
+En todo caso, se procurará que los activos sean trasladados mediante vehículos municipales y su costo será cancelado por el prestatario, según los valores que oportunamente se determinarán, como parte del precio a cancelar.

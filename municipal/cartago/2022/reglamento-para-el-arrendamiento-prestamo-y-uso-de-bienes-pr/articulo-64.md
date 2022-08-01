@@ -1,0 +1,1 @@
+Artículo 64.-Reserva Municipal. La Municipalidad se reserva la potestad de rechazar las solicitudes de préstamo de activos, así como de limitar la cantidad, duración y los lugares donde se utilizarán dichos bienes, por razones de oportunidad y conveniencia, según la legislación vigente.

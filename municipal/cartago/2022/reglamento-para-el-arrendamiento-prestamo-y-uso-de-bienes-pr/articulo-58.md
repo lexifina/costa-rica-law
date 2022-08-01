@@ -1,0 +1,1 @@
+Artículo 58.-Del informe. El encargado del Almacén, rendirá un informe mensual a la Encargada del Área Administrativa acerca de las gestiones atendidas con ocasión del presente reglamento, con su respectivo detalle.

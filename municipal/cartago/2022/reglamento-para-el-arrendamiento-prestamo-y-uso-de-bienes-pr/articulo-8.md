@@ -1,0 +1,1 @@
+Artículo 8.-Objeto del contrato o del convenio. Con base en lo dispuesto en el artículo anterior, se entenderán como activos municipales susceptibles de contrato o de convenio, aquellos definidos en el artículo 5 inciso a) de este reglamento.

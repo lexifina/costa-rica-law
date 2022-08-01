@@ -1,0 +1,1 @@
+Artículo 63.-Sanciones. Sin perjuicio de las acciones jurisdiccionales ya indicadas en casos de incumpliendo por parte de los prestatarios, podrán ser sujeto de sanciones de orden pecuniario o penal, conforme a la legislación aplicable en esas materias.

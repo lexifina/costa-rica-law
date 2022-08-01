@@ -1,0 +1,1 @@
+Artículo 13.-Actividades simultáneas. Es factible la autorización de actividades simultáneas en una misma Plaza, siempre y cuando ellas no se obstaculicen entre sí, ni produzcan exceso de contaminación sónica y ambiental.
