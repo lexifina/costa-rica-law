@@ -1,1 +1,0 @@
-Artículo 2°—La tarifa se consigna en dólares de los Estados Unidos de América, sin embargo, se podrá pagar en moneda costarricense, al tipo de cambio Oficial del Banco Central de Costa Rica vigente al día de su pago.
