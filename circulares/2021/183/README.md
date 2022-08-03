@@ -13,3 +13,4 @@ Reglas Prácticas para facilitar el acceso a la justicia de las Poblaciones Ind�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-19 | la propia norma |
+| 2 | 2022-08-03 | Circular 140 (2022-08-03) |
