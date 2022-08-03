@@ -1,2 +1,0 @@
-Artículo 9°-Tasa de Interés. Se prestarán recursos del FJPPJ al rendimiento de la curva soberana del mercado de valores (con base al vector de precios) que tengan un plazo similar al plazo solicitado del préstamo + Riesgo de Entidad (definido por el Comité de Riesgos del FJPPJ), teniendo como tasa piso del escenario base del estudio actuarial vigente.
-Esta tasa será revisable anualmente, en función a la publicación de los estudios actuariales.

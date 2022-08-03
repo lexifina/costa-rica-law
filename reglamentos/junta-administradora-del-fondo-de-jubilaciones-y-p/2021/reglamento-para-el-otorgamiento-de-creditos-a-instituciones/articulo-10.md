@@ -1,1 +1,0 @@
-Artículo 10.-Intereses Moratorios. En caso de incumplimiento de los pagos por el uso de recursos del Fondo, se cobrará un interés moratorio igual al 30% anual adicional a la tasa de interés del préstamo pactado. En ningún caso podrá exceder la tasa de usura definida por el Banco Central de Costa Rica, conforme a la Ley N° 9859.
