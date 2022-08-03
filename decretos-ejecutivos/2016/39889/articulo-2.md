@@ -1,1 +1,0 @@
-Artículo 2°.- Deróguese los artículos 6, 7 y 8; así como los Cuadros Números 5, 6, 7 y 8, todos del Decreto Ejecutivo N° 38884-MEIC del 24 de febrero del 2015, publicado en el Diario Oficial La Gaceta N° 41 del 27 de febrero de 2015, Alcance Digital N° 12.
