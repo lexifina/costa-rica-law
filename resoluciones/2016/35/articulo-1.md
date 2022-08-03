@@ -857,7 +857,7 @@ PQ= Porcentaje promedio del capital invertido que se financia con deuda.
 RS = Costo del financiamiento (tasa de interés bancaria activa de bancos estatales para préstamos en moneda nacional para "Servicios").
 TQ= Porcentaje promedio del capital invertido que se financia con recursos propios.
 RU = Costo de los recursos propios.
-(Nota de Sinalevi: Mediante resolución N° RE-0079-IT-2021 del 25 de octubre de 2021, se acordó fijar en 11,14% la tasa de rentabilidad para reglas de cálculo tarifario tipo 2, a reconocer en las fijaciones tarifarias ordinarias del servicio de transporte remunerado de personas, modalidad autobús.)
+(Nota de Sinalevi: Mediante resolución N° RE-0082-IT-2022 del 3 de agosto de 2022, se acordó fijar en 9,36% la tasa de rentabilidad para reglas de cálculo tarifario tipo 2, a reconocer en las fijaciones tarifarias ordinarias del servicio de transporte remunerado de personas, modalidad autobús.)
 La definición de cada una de estas variables y la forma cómo se realiza el cálculo se describe seguidamente, para lo cual se considerarán los operadores del transporte público remunerado de personas, modalidad autobús incluidos en el listado de título habilitante empleado en la fijación extraordinaria inmediata anterior al inicio del período fiscal correspondiente a los estados financieros y que hayan presentado los estados financieros a la Aresep, para el último periodo fiscal correspondiente, a más tardar el quince de diciembre, según lo acordado en la resolución 131-RIT-2015 o el plazo que se determine mediante resolución, o cualquier otro acto administrativo. Los datos que se utilizarán para los cálculos de las variables serán los que provengan de la contabilidad regulatoria o en su defecto, de la información de los estados financieros.
 a. Porcentaje promedio del capital invertido que se financia con deuda (D/A)
 Para cada empresa, se dividirá el monto correspondiente a la cuenta contable Total de Deuda entre la suma de la cuenta contable Total de Deuda y cuenta contable Total de Capital (Patrimonio). La cuenta contable Total de Deuda debe incluir los rubros del Pasivo que correspondan a obligaciones financieras con costo financiero del servicio regulado (Deuda de Largo Plazo, tanto su parte circulante como fija). Luego, se obtiene el promedio ponderado de los resultados individuales que se obtuvieron de cada empresa, ponderando según el tamaño de la flota autorizada por el CTP según el listado más reciente con el que cuente la IT.
@@ -1542,7 +1542,6 @@ Hcm = Horas - chofer en la hora "m".
 (Así reformado el punto anterior mediante resolución N° RE-0139-JD-2019 del 20 de noviembre de 2019)
 6) Determinar para cada día de la semana y día feriado el requerimiento total de horas disponibles para conducción en jornadas ordinarias equivalentes de 8 horas, al sumar la cantidad de horas-chofer en jornada diurna y la cantidad de horas-chofer en jornadas nocturnas ajustadas por el factor 4/3 (8/6), debido a que la jornada ordinaria nocturna es de 6 horas
 .
-[imagen]
 Donde:
 HDd = Horas disponibles para conducción en el día "d".
 HDjd = Horas disponibles para conducción en jornada diurna.
@@ -1593,13 +1592,9 @@ JLCB = Jornadas laborales semanales por bus.
 JLST = Jornadas laborales semanales totales.
 F = Cantidad de unidades de la flota autorizada. Ejemplo del procedimiento para la determinación de la cantidad de jornadas semanales equivalentes de choferes Categoría de ruta: Urbana Flota autorizada: 60 Tiempo medio de viaje: 1 hora
 Formulario 1.
-[imagen]
 (Así reformado el formulario 1) anterior mediante resolución N° RE-0139-JD-2019 del 20 de noviembre de 2019)
-[imagen]
 (Así reformado el formulario 2) anterior mediante resolución N° RE-0139-JD-2019 del 20 de noviembre de 2019)
-[imagen]
 (Así reformado el formulario 3) anterior mediante resolución N° RE-0139-JD-2019 del 20 de noviembre de 2019)
-[imagen]
 (Así reformado el formulario 4) anterior mediante resolución N° RE-0139-JD-2019 del 20 de noviembre de 2019)
 Volumen mensual de pasajeros:
 (Así reformado el punto 4.10 anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
@@ -1652,7 +1647,6 @@ Las variables de operación empleadas en los cálculos tarifarios se realizarán
 a. Carreras mensuales
 Para la estimación de la cantidad de carreras mensuales de la ruta "r" en análisis (CMr) y/o cantidad de carreras mensuales de los ramales "l" de la ruta "r" (CMrl), se tomarán las carreras autorizadas según el acuerdo de horarios para la ruta "r" (CMAr) establecido por el CTP.
 Para obtener la cantidad de carreras mensuales a partir de los acuerdos de horarios establecidos por el CTP se deberá considerar que mediante el artículo 3.4 de la sesión ordinaria 61 2008 del 28 de agosto del 2008, la Junta Directiva del CTP dispuso para todos los operadores de transporte público en la modalidad autobús (concesionarios o permisionarios), que los servicios de transporte público, no se pueden suspender los días jueves y viernes de la Semana Santa, de acuerdo con el principio de continuidad de los servicios públicos. Por lo tanto, la fórmula de cálculo de las carreras mensuales a partir de los horarios establecidos por el CTP debe incluir todos los días del año, junto con una corrección que incorpora el cálculo del día 366 de cada año bisiesto.
-[imagen]
 Donde:
 CMAr = Cantidad de carreras mensuales autorizadas por el CTP en la ruta "r".
 CALVr = Cantidad promedio de carreras autorizada por el CTP para los días Lunes a Viernes en la ruta "r".
@@ -1860,101 +1854,4 @@ CECSr | Costo mensual de los estudios de calidad del servicio en la ruta "r".
 CF' | Costos fijos mensuales del conjunto de rutas y/o ramales.
 CFr | Costos fijos mensuales de la ruta "r".
 CIASr | Costo mensual de infraestructura de apoyo al servicio en la ruta "r".
-cki | Coeficiente de ajuste por reconocimiento de kilometraje improductivo.
-CKM | Kilometraje acumulado del autobús.
-CKMr | Kilometraje anual acumulado para la edad promedio de flota autorizada en la ruta "r".
-CM' | Cantidad de carreras mensuales del conjunto de rutas y/o ramales.
-cmar | Coeficiente de necesidades de mecánicos por vehículo en la ruta "r".
-cmr | Coeficiente de necesidades de mecánicos en la ruta "r".
-CMr | Cantidad de carreras mensuales de la ruta "r".
-CMrl | Cantidad de carreras mensuales del ramal "l" de la ruta "r".
-cog | Coeficiente anual de otros gastos administrativos.
-cpa | Coeficiente de personal administrativo.
-CPAr | Costo mensual de personal administrativo de la ruta "r".
-CPOMr | Costo mensual de personal de operación y mantenimiento en la ruta "r".
-CRAr | Costo mensual en repuestos y accesorios de la ruta "r".
-crear | Coeficiente de consumo de repuestos y accesorios de la ruta "r" por vehículo derivado según HDM-IV.
-crmei | Coeficiente de rentabilidad anual en la maquinaria, equipo e instalaciones para cualquier tipo de ruta.
-crp | Coeficiente de rentabilidad anual del capital de proveeduría para cualquier tipo de ruta.
-CS | Factor de cargas sociales según la legislación vigente. Ver Cuadro 7.
-CSCHr | Costo mensual por salarios de los choferes en la ruta "r".
-csd | Coeficiente por sobresueldo a los despachadores o chequeadores en la ruta "r".
-CSDr | Costo mensual por salarios de los despachadores o chequeadores en la ruta "r".
-CSMAr | Costo mensual por salarios de los mecánicos en la ruta "r".
-CSPEr | Costo mensual del sistema automatizado de pago electrónico y seguridad en la ruta "r".
-CTK' | Costo total por kilómetro del conjunto de rutas y/o ramales.
-CTKr | Costo total por kilómetro de la ruta "r".
-CTr | Costos totales mensuales de la ruta "r"
-CV' | Costos variables mensuales del conjunto de rutas y/o ramales.
-CVPr | Cantidad de viajes mensuales de la ruta "r".
-CVr | Costos variables mensuales en la ruta "r".
-d | Día del mes calendario "m".
-D | Total de días del mes calendario "m".
-d | Día del mes calendario "m".
-D' | Distancia promedio ponderada del conjunto de rutas y/o ramales.
-DM' | Distancia media de viaje del conjunto de rutas y/o ramales.
-DMrl | Distancia media de viaje del ramal "l" de la ruta "r".
-Dr | Distancia de la carrera de la ruta "r".
-Drl | Distancia de la carrera del ramal "l" de la ruta "r".
-Drlf | Distancia de viaje para el fraccionamiento "f" del ramal "l" de la ruta "r".
-Drlf-1 | Distancia de viaje para el fraccionamiento "f-1" del ramal "l" de la ruta "r", anterior al fraccionamiento "f".
-DTrlf | Distancia de viaje en kilómetros en el tramo comprendido para el fraccionamiento "f" del ramal "l" de la ruta "r" y el fraccionamiento anterior ("f-1").
-DVrlf | Distancia de viaje del fraccionamiento "f" del ramal "l" de la ruta "r".
-EPFr | Edad promedio de la flota autorizada en la ruta "r".
-F | Total de fraccionamientos tarifarios de la ruta "r".
-f | Fraccionamiento tarifario de la ruta "r". -Fraccionamiento tarifario del ramal "l" de la ruta "r"-
-F | Total de fraccionamientos tarifarios del ramal "l" de la ruta "r".
-F' | Cantidad total de unidades de la flota autorizada para el conjunto de rutas y/o ramales.
-f-1 | Fraccionamiento tarifario anterior al fraccionamiento "f" del ramal "l" de la ruta "r" de transporte remunerado de personas.
-Variable | Definición
-PArlf | Volumen de pasajeros a bordo movilizados hasta el fraccionamiento "f" del ramal "l" de la ruta "r".
-PArlf-1 | Volumen de pasajeros a bordo movilizados hasta el fraccionamiento "f-1" del ramal "l" de la ruta "r".
-PARTSr | Coeficiente de consumo estandarizado de partes por cada 1000 km de recorrido de la flota, como fracción del precio de reemplazo del autobús en la ruta "r".
-PBrlf | Volumen de pasajeros que bajan hasta el fraccionamiento "f" del ramal "l" de la ruta "r".
-PC | Precio promedio del combustible en colones por litro.
-PF | Precio de los filtros de combustible en colones.
-PG | Precio de la grasa en colones por kilogramo.
-PLF | Precio del líquido de frenos en colones por litro.
-PLL | Precio de una llanta nueva.
-PN | Precio de un neumático nuevo de llanta.
-PR | Precio de un reencauche de llanta.
-Pr | Volumen mensual de pasajeros movilizados la ruta "r".
-Prfm | Volumen de pasajeros movilizados el mes "m" en el fraccionamiento tarifario "f" la ruta "r".
-Prfmds | Volumen de pasajeros movilizados para el viaje "s" (en el sentido 1-2 y el sentido 2-1) en el día "d" del mes "m" en el fraccionamiento tarifario "f" en la ruta "r".
-Prl | Volumen mensual de pasajeros movilizados en el ramal "l" de la ruta "r".
-Prlf | Volumen mensual de pasajeros movilizados en el fraccionamiento tarifario "f" en la ruta "r".
-PSrlf | Volumen de pasajeros que suben hasta el fraccionamiento "f" del ramal "l" de la ruta "r".
-PVM' | Cantidad promedio mensual de pasajeros por vehículo del conjunto de rutas y/o ramales.
-PVMr | Cantidad promedio mensual de pasajeros por vehículo de la ruta "r".
-QLL | Cantidad de llantas por vehículo automotor. Se consideran seis llantas para cualquier tipo de vehículo automotor.
-QLLVTAN | Cantidad de llantas por vehículo automotor para el valor tarifario de la unidad del conjunto de unidades "".
-QLLVTAN | Cantidad de llantas por vehículo automotor para el valor tarifario de la unidad de transporte sin llantas ni neumáticos.
-QN | Cantidad de neumáticos de llanta. Se consideran dos neumáticos por cada llanta, para un total de doce neumáticos para cualquier tipo de vehículo automotor (6x2=12).
-QNVTAN | Cantidad de neumáticos de llanta por vehículo automotor para el valor tarifario de la unidad de transporte sin llantas ni neumáticos. Se considera un neumático por cada llanta, para un total de seis neumáticos para cualquier tipo de vehículo automotor (6x1=6).
-QR | Cantidad de rencauches por llanta. Se consideran dos reencauches por cada llanta, para un total de doce reencauches para cualquier tipo de vehículo automotor (6x2=12).
-R | Total de rutas de transporte remunerado de personas del conjunto.
-r | Ruta de transporte remunerado de personas.
-RAFr | Rentabilidad mensual del capital invertido en activos fijos en la ruta "r".
-RCPr | Rentabilidad mensual del capital invertido en proveeduría en la ruta "r".
-RFr | Rentabilidad mensual del capital invertido en la flota de la ruta "r".
-Anexo 4. Derivación de coeficientes a partir del modelo HDM-IV
-1. Determinación de coeficiente de gasto anual en repuestos y accesorios
-El costo mensual en repuestos y accesorios está basado el modelo HDM-IV (Highway Development and Management) de acuerdo a Bennett and Greenwood (2001)5, en el cual la determinación del consumo de partes en el caso de autobuses, se tiene obtiene de acuerdo a la siguiente ecuación:
-5 Highway Development and Management Series. Volume SEVEN. Modelling Road User and Environmental Effects in HDM-4. Bennett and Greenwood, 2001.
-Donde:
-PARTS = Coeficiente de consumo estandarizado de partes por cada 1000 Km, como fracción del precio de reemplazo del autobús.
-CKM = Kilometraje acumulado del autobús.
-dFUEL = Consumo adicional de combustible debido a congestión.
-RI = Índice de rugosidad ajustado.
-El Índice de rugosidad ajustado dado por la siguiente ecuación:
-Donde:
-IRI = Índice de rugosidad del pavimento, en m/Km.
-Para el caso de Costa Rica se considera un índice de rugosidad promedio de la red vial nacional de 5,07, de acuerdo al informe de Lanamme, UCR (2013)6 y un valor de 0,1 para el parámetro dFUEL, de acuerdo a la referencia Bennett and Greenwood (2001). De esta forma la ecuación 99 corresponde a:
-6 Informe de Valuación de la Red Vial Nacional Pavimentada de Costa Rica, años 2012-2013. Unidad de gestión y Evaluación de la Red Nacional, Pitra, Lanamme, 2013.
-Sustituyendo el valor anterior en la ecuación 98, la ecuación se reduce a:
-2. Determinación de coeficiente de necesidades de mecánicos
-El coeficiente de necesidades de mecánicos está basado está basado el modelo HDM-IV, en el cual se determinan la cantidad de horas de mano de obra para mantenimiento por cada 1000 km para autobuses de acuerdo a la siguiente ecuación:
-Donde:
-LH = Número de horas de mano de obra para mantenimiento por cada 1000 km.
-PARTS = Coeficiente de consumo estandarizado de partes por cada 1000 km, como fracción del precio de reemplazo del autobús. Determinado de acuerdo a la ecuación 98 anterior.
-( )"
+cki | Coeficiente de ajuste por reconocimiento de kilometraje
