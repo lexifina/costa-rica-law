@@ -15,3 +15,4 @@ Reglamento de incentivos para el transporte eléctrico
 | --- | --- | --- |
 | 1 | 2018-05-25 | la propia norma |
 | 2 | 2018-11-07 | Decreto Ejecutivo 41428 (2018-11-07) |
+| 3 | 2022-08-03 | Decreto Ejecutivo 43641 (2022-08-03) |
