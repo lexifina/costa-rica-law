@@ -1,1 +1,0 @@
-Artículo 11.—Deróguese los artículos 1,5,6 y 7 del Decreto Ejecutivo N° 37699-MEIC del 15 de mayo del 2013, publicado en el Diario Oficial La Gaceta N° 95 del 20 de mayo de 2013, Alcance Digital N° 92; así como sus reformas.
