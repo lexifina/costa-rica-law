@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento para la Auditoría Interna del Inst
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-20 | la propia norma |
+| 2 | 2022-08-03 | Reglamento 38 (2022-08-03) |
