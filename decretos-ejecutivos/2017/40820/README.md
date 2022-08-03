@@ -14,3 +14,4 @@ Reforma actualización estructuras modelos costos la producción agrícola de ar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-30 | la propia norma |
+| 2 | 2022-08-03 | Decreto Ejecutivo 43643 (2022-08-03) |
