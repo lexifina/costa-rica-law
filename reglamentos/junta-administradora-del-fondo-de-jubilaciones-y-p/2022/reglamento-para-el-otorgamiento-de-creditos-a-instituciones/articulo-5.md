@@ -1,0 +1,1 @@
+Artículo 5. Límites. En ningún caso se podrá destinar más del 25% del total de la cartera de inversiones del FJPPJ para conceder créditos a las entidades autorizadas (Según artículo N°240 Bis de la Ley 9544) y de ese 25% tampoco podrá destinarse más de un 10% a una sola entidad, a excepción de los recursos que se otorguen para el Poder Judicial.

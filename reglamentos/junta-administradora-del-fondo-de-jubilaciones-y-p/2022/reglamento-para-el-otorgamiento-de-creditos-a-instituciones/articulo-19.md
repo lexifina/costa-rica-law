@@ -1,0 +1,1 @@
+Artículo 19. Deberes. La Junta Administradora del Fondo de Jubilaciones y Pensiones del Poder Judicial será informada trimestralmente sobre el cumplimiento de las cláusulas contractuales por parte de las entidades autorizadas por el uso de recursos del Fondo

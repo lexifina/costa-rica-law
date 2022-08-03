@@ -1,0 +1,2 @@
+Artículo 15. Amortizaciones Anticipadas. En caso de amortizaciones anticipadas por parte de las entidades sujetas de préstamo, se cobrará una comisión del 3% sobre el saldo por pronto pago, durante el 50% del plazo originalmente pactado en el contrato de crédito.
+Cualquier excepción debe ser resuelta mediante acuerdo razonado de la Junta Administradora del Fondo de Jubilaciones y Pensiones del Poder Judicial - JUNAFO, con el respectivo criterio técnico.

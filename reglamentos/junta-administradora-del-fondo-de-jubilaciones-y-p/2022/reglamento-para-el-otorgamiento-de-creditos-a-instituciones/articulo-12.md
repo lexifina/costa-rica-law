@@ -1,0 +1,1 @@
+Artículo 12. Cuotas. Cuotas mensuales, imputables al capital e intereses que podrán ser cobrados por anticipado o a mes vencido, según se defina en el respectivo contrato. Cuando la tasa de interés sea variable será ajustable periódicamente según las variaciones en la tasa de referencia.
