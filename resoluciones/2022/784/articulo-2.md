@@ -1,0 +1,1 @@
+Artículo 2º-Se estará revisando el estado de la declaratoria de emergencia supra, y en el momento en que operativamente se logre reestablecer el sistema TICA en el Ministerio de Hacienda, se procederá a dejar sin efecto la exoneración que nos ocupa.

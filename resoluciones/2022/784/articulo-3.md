@@ -1,0 +1,1 @@
+Artículo 3º-A efectos de que la Dirección General de Policía de Tránsito comunique y coordine con sus Oficiales de Tránsito a efectos de que en sus operativos en carretera se brinde cabal cumplimiento a esta resolución.
