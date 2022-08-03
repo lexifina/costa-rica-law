@@ -14,3 +14,4 @@ Reglamento interno de teletrabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-26 | la propia norma |
+| 2 | 2022-08-03 | Reglamento 38 (2022-08-03) |
