@@ -14,3 +14,4 @@ Manual de procedimiento para el otorgamientos de concesiones en la zona marítim
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-30 | la propia norma |
+| 2 | 2022-08-03 | Reglamento municipal 31 (2022-08-03) |
