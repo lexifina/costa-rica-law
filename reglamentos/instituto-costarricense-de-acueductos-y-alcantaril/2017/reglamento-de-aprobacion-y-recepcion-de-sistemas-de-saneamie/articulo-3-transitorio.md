@@ -1,1 +1,0 @@
-Transitorio III. — La Administración Superior, dentro del plazo de seis meses elaborará e incluirá dentro de la Reglamentación Técnica Para Diseño y Construcción de Urbanizaciones, Condominios y Fraccionamientos, el capítulo de normas de diseño de sistemas de saneamiento.

@@ -1,1 +1,0 @@
-Artículo 21º.- Los fondos recaudados en los sistemas delegados por este concepto deben ser administrados en una cuenta independiente y destinados exclusivamente a la administración, operación y mantenimiento del sistema de saneamiento asumido.
