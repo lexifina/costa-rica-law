@@ -1,0 +1,1 @@
+Artículo 21.-Atención de solicitudes de transporte. La atención de los servicios de transporte será tramitada de acuerdo con el orden de presentación, prioridad, disponibilidad de vehículo, persona conductora y operadora de equipo móvil.

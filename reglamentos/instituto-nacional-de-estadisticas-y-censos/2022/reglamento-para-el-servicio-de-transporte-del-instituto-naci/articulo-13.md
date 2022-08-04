@@ -1,0 +1,1 @@
+Artículo 13.-Alteración de la ruta. Cualquier alteración que se presente en el recorrido de la ruta programada y autorizada deberá solicitarse a la persona encargada del Proceso de Trámite Administrativo de Transportes o de la operación estadística a la cual esté asignada la persona conductora según corresponda.

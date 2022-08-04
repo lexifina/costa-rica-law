@@ -1,0 +1,1 @@
+Artículo 14.-Control de los vehículos. Todo vehículo de uso institucional deberá contar con dispositivos electrónicos que permitan detectar su ubicación geográfica, para el respectivo seguimiento y monitoreo; o bien, otro mecanismo de control que así lo defina el Proceso de Trámite Administrativo de Transportes.

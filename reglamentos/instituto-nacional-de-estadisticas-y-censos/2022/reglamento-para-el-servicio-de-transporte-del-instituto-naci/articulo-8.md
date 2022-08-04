@@ -1,0 +1,1 @@
+Artículo 8º-Del control de salida e ingreso de los vehículos. Todos los vehículos estarán sometidos a controles de salida e ingreso diario, según el lugar donde se autorice previamente la custodia del vehículo.

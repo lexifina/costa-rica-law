@@ -1,0 +1,1 @@
+Artículo 23.-Administración en el uso de combustible y peaje. Las personas conductoras y operadoras de equipo móvil deberán velar por el uso racional y adecuado del combustible y la utilización de peajes asignados para el desempeño de sus labores.

@@ -1,0 +1,1 @@
+Artículo 6º-Del uso y circulación de vehículos institucionales. El uso de los vehículos deberá realizarse acorde con lo establecido en la Ley de Tránsito; además, con los controles y requerimientos establecidos en las regulaciones internas aplicables que, para tal efecto, establezca el Proceso de Trámite Administrativo de Transportes.

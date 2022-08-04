@@ -1,0 +1,2 @@
+Artículo 28.-Derogatoria. Se deroga el Reglamento de Uso y Mantenimiento de la Flotilla de Vehículos del INEC aprobado por el Consejo Directivo mediante Acuerdo 5, de la sesión ordinaria 702-2013, del 8 de octubre de 2013, publicado en La Gaceta N° 211 del 01 de noviembre del 2013.
+El presente Reglamento rige a partir de su publicación y fue aprobado por el Consejo Directivo mediante acuerdo 5 de la sesión ordinaria 24-2022, celebrada el 12 de julio 2022.

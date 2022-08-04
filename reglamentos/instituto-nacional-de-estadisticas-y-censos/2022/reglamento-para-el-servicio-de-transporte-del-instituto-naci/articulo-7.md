@@ -1,0 +1,1 @@
+Artículo 7º-Personas autorizadas para conducir vehículos institucionales. Únicamente están autorizadas para conducir los vehículos institucionales las personas conductoras y operadoras de equipo móvil, conforme se define en este Reglamento.

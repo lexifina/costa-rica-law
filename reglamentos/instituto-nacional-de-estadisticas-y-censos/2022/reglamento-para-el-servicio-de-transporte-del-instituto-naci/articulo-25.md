@@ -1,0 +1,1 @@
+Artículo 25.-Acciones por seguir en caso de accidente de tránsito e incidentes por parte del Proceso de Trámite Administrativo de Transportes. En caso de que algún vehículo sufra un accidente de tránsito o un incidente, el Proceso de Trámite Administrativo de Transportes deberá gestionar lo que corresponda para la atención oportuna de la situación.

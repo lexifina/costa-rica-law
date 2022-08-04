@@ -1,0 +1,3 @@
+CAPÍTULO X
+Disposiciones finales
+Artículo 27.-Situaciones no previstas en este Reglamento. Para efectos de interpretación, lo no regulado en este Reglamento habrá que remitirse a las disposiciones contenidas en la Ley de Tránsito, en la Ley General de la Administración Pública, en el Código de Trabajo, en el RAS y demás normativa de derecho público aplicable. Así mismo, en lo que no está previsto en este Reglamento y en caso de ausencia de legislación supletoria, el Proceso de Trámite Administrativo de Transportes resolverá las situaciones que se presenten mediante circulares de carácter general o mediante los procedimientos administrativos ordinarios.

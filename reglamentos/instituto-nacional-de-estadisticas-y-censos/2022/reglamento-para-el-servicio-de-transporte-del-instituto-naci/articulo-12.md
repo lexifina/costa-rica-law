@@ -1,0 +1,1 @@
+Artículo 12.-Del uso de distintivos y placas en vehículos. Todos los vehículos previstos en el artículo 3 deberán cumplir con los requisitos de orden administrativo para que puedan circular con los distintivos oficiales del INEC y según lo establecido en la Ley de Tránsito.

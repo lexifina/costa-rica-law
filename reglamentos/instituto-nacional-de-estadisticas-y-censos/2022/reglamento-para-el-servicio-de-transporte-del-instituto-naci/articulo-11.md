@@ -1,0 +1,1 @@
+Artículo 11.-Uso de vehículos en horas y días no hábiles. La autorización para la circulación de vehículos de uso institucional en horas y días no hábiles debe gestionarse ante la persona responsable de la coordinación del Área de Administración y Finanzas.
