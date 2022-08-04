@@ -1,1 +1,0 @@
-Artículo 5º—Clasificación de las zonas de estacionamiento. Para los efectos de este Reglamento y del cobro del respectivo impuesto, se divide el cantón en zona céntrica y zona no céntrica. La zona céntrica será la comprendida entre las avenidas 3 y 4, y calles 7 a 4 del distrito central. La zona no céntrica corresponde al resto del cantón.

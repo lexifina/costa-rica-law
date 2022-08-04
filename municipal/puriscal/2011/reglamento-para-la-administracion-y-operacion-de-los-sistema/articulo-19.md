@@ -1,1 +1,0 @@
-Artículo 19.—Convenios. La Municipalidad procurará la suscripción de convenios con instituciones de bien social y con fines no lucrativos, para que en forma directa distribuyan y vendan las boletas de estacionamiento en la ciudad. En tales casos, se otorgará un descuento equivalente al 20% del costo de las boletas que sean adquiridas al amparo de esos instrumentos.
