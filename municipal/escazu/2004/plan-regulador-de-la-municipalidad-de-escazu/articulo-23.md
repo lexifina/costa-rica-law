@@ -1,4 +1,36 @@
-Artículo 23.—Servidumbres. Se admitirán nuevas servidumbres en el cantón de Escazú, según las siguientes características:
-23.1. Urbanas. Las servidumbres urbanas para tres lotes medirán 3 metros de ancho; por cada lote adicional se ampliará la servidumbre en un metro, hasta un máximo de 6 lotes y 6 metros de ancho. Dado el carácter privado de las servidumbres, los acabados de esta son competencia de los particulares.
+23. Servidumbres o acceso excepcional para uso residencial
+Se homologa el término servidumbre urbana (de paso) al término acceso excepcional para uso residencial, establecido en el Reglamento de Fraccionamiento y Urbanizaciones y el Reglamento a la Ley de Catastro Nacional.
+Se admitirán nuevas servidumbres urbanas o acceso excepcional para uso residencial, en fincas del cantón de Escazú que se ubiquen dentro de la zonificación del Plan Regulador, cumpliendo con las siguientes condiciones:
+(Así reformado el punto 23 anterior mediante sesión ordinaria N° 110 del 4 de agosto del 2022)
+23.1 Servidumbres urbanas o acceso excepcional para uso residencial
+a) El ancho único será de 6.00 metros. Según las disposiciones establecidas la Ley de Igualdad de Oportunidades para Personas con Discapacidad, Ley N.7600, su Reglamento, Decreto Ejecutivo N.26831-MP y sus reformas o normativa que les sustituya.
+b) Tendrá un fondo máximo de 60.00 metros.
+c) Su fondo debe ser continuo (desde el inicio hasta el final) y no se permitirán nuevas servidumbres urbanas o acceso excepcional para uso residencial, en forma de T o Y.
+d) Se permitirá un mínimo de dos (2) predios y un máximo de seis (6) predios nuevos cuyo acceso directo sea la servidumbre urbana o acceso excepcional para uso residencial.
+Para este cálculo se contabilizan los lotes que tengan únicamente salida a través de la servidumbre o acceso excepcional para uso residencial.
+e) No será permitido la figura servidumbre urbana o acceso excepcional para uso residencial para un (1) único predio; para lo cual se deberá aplicar lo correspondiente a lotes irregulares (callejón de acceso).
+f) Para el cálculo del fondo de una nueva servidumbre urbana o acceso excepcional para uso residencial, el mismo se realizará tomando como base la mitad del ancho de la servidumbre, desde el inicio frente a la calle pública hasta su final.
+g) Debe nacer u originarse directamente de una vía pública existente, con el ancho establecido (6 metros).
+h) El ancho debe ser constante en todo su fondo. No se permitirán servidumbre urbana o acceso excepcional para uso residencial que inicien con un ancho y finalicen con otro ancho diferente.
+i) El área de la servidumbre urbana o acceso excepcional para uso residencial deberá ser parte (estar contenida) del área de cada uno de los predios a generar.
+Indicándose la servidumbre urbana o acceso excepcional para uso residencial en cada uno de los planos por medio de una línea punteada, además de indicar su ancho.
+Se deberá incluir en el cuerpo del plano un cuadro de áreas, en el cual se indique claramente el área de la servidumbre de paso o acceso excepcional para uso residencial, así como el área útil del predio por generar.
+Donde el área útil será considerada como el área libre sin contemplar el área de la servidumbre urbana o acceso excepcional para uso residencial.
+j) El área de la servidumbre urbana o acceso excepcional para uso residencial no será computable para el cálculo del área mínima de cada uno de los predios por generar, así como para el cálculo de cobertura y densidad.
+k) En los predios que se generen con acceso directo a servidumbre urbana o acceso excepcional para uso residencial, para el cálculo del frente mínimo será considerado únicamente el frente a la servidumbre; no será computable el ancho de esta.
+Para lo anterior se aplicará la excepción para el último predio al final de la servidumbre urbana o acceso excepcional para uso residencial.
+l) El predio (s) que posee (n) frente a calle pública y además contemple también la servidumbre urbana o acceso excepcional para uso residencial (dentro de su área), deberá cumplir con las siguientes condiciones:
+1. El frente mínimo establecido para la zona donde se ubique según Mapa de Zonificación del Plan Regulador de Escazú; no será computable el frente a la servidumbre urbana o acceso excepcional para uso residencial para cumplir con este frente mínimo, únicamente será considerado el frente directo a calle pública.
+2. La medida (distancia) del ancho de la servidumbre de paso o acceso excepcional para uso residencial, no será tomado en cuenta para el cálculo del frente mínimo a calle pública; únicamente se tomará en cuenta el frente útil a calle pública.
+3. Para el cálculo de la relación frente fondo, se tomará únicamente el frente útil a calle pública del predio (no se incluye el frente que corresponde al ancho de la servidumbre o acceso excepcional para uso residencial).
+m) El fraccionamiento autorizado frente a servidumbre urbana o acceso excepcional para uso residencial implica que la entrada a los predios será considerada de uso común para los fundos dominantes, y en todo momento cualquier autoridad o funcionarios de entidades prestatarias de los servicios públicos de cualquier índole, así aquellos encargados del control urbanístico, municipal, de seguridad pública, salud, bomberos y cualquier otro similar, podrán utilizarla para sus respectivos fines.
+n) Ni la municipalidad, ni ninguna institución pública tienen obligación de darle mantenimiento a las servidumbres urbanas o acceso excepcional para uso residencial, ni de prestar servicios en los lotes interiores.
+La prestación del servicio de recolección de basura por parte de la municipalidad se realizará en la entrada de la servidumbre urbana o acceso excepcional para uso residencial. No estará obligada la municipalidad a prestar dicho servicio dentro de la servidumbre de paso.
+o) No se permiten dos (2) accesos excepcionales para uso residencial paralelos contiguos, inclusive cuando el fraccionamiento no provenga de la misma finca, salvo que el interesado demuestre con certeza técnica y científica, que resulta imposible ubicar este acceso en otro lugar, por las condiciones de relación- frente y fondo; irregularidad de su forma; por su pendiente; o por medidas precautorias para evitar la afectación grave o inminente del ambiente, lo cual deberá ser analizado y autorizado por el INVU y la Municipalidad, con el fin de resguardar que no se utilice esa Figura, para contravenir normas urbanísticas.
+p) Se advierte que la generación de predios cuyo acceso directo sea la servidumbre de paso o acceso excepcional para uso residencial, será permitido únicamente para vivienda unifamiliar.
+En este caso la administración municipal, procederá a realizar la respectiva inspección de campo para poder de esta manera verificar la cantidad de viviendas existentes en cada uno de los predios que se pretendan generar con el acceso en cuestión.
+q) Sobre el área de la servidumbre urbana o acceso excepcional para uso residencial, no puede existir ni hacerse ningún tipo de construcciones; salvo las tapias en línea de propiedad.
+r) Previo a la aprobación municipal, se debe contar con la autorización (visado) de parte del INVU.
+(Así reformado el punto 23.1 anterior mediante sesión ordinaria N° 110 del 4 de agosto del 2022)
 23.2. Agrícolas. En casos de servidumbres de tipo agrícola con lotes con el mínimo definido para parcela agrícola, de acuerdo con lo que se estipule en la Zona Agrícola de Amortiguamiento de este reglamento, estas tendrán un ancho de 7 metros. Dado el carácter privado de estas servidumbres, los acabados son competencia de los particulares.
 (Así reformado mediante sesión Nº 208, celebrada el 24 de abril del 2006)
