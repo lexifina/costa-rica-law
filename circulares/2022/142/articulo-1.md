@@ -1,0 +1,7 @@
+CIRCULAR Nº 142-2022
+ASUNTO: "Fortalecer el Sistema de Control Interno Institucional a través de la utilización oportuna de actividades de control en las oficinas y despachos judiciales en materia Ambiental"
+A TODAS LAS OFICINAS Y DESPACHOS
+JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 58-2022, celebrada el 12 de julio de 2022, artículo LXII, comunicar la obligación de cumplir con los Controles Mínimos de Gestión Ambiental. Al dar cumplimiento a esta circular se fortalece oportunamente el funcionamiento del Sistema de Control Interno Institucional (SCII), y la estandarización de las actividades de control. Será responsabilidad de la Administración Activa realizar las acciones necesarias para garantizar su efectivo funcionamiento. Por último, se señala que el Gestor Ambiental de la Institución en coordinación con la Oficina de Control Interno estarán en la mayor disposición de asesorar en el proceso de implementación de estas acciones de control. Puede acceder el acuerdo completo al siguiente enlace de la página Web de Control Interno: Control Interno - Circulares - Circulares (poder-judicial.go.cr)." De conformidad con la circular N° 67- 09 emitida por la Secretaría de la Corte el 22 de junio de 2009, se le comunica que en virtud del principio de gratuidad que rige esta materia, la publicación está exenta de todo pago de derechos. Publíquese una sola vez en el Boletín Judicial.
+San José, 4 de agosto de 2022.
