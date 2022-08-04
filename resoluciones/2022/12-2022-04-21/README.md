@@ -15,3 +15,4 @@ Prórrogas para presentación de declaración y pago según tipo de contribuyent
 | --- | --- | --- |
 | 1 | 2022-04-21 | la propia norma |
 | 2 | 2022-06-07 | Resolución 23 (2022-06-07) |
+| 3 | 2022-08-04 | Resolución 21 (2022-08-04) |
