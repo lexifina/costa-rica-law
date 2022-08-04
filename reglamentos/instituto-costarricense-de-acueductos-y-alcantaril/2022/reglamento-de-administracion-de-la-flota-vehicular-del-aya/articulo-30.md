@@ -1,0 +1,3 @@
+ARTÍCULO 30. Del mantenimiento de los vehículos, maquinaria y equipo especial y retiro de unidades por desuso.
+1. Será responsabilidad de cada Coordinador de transportes velar porque las unidades que después de asistir a la ITV presenten faltas leves, cuenten con un plan remedial que permita eliminar esas faltas antes de la próxima inspección y que estas no degeneren en faltas graves.
+2. La Dirección funcional de Maquinaria y Equipo establecerá los servicios de mantenimiento que reciben los vehículos, maquinaria y equipo especial de AyA a nivel nacional y el manual de procedimiento para la declaración de unidades en estado de desuso.

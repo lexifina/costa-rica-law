@@ -1,0 +1,6 @@
+ARTÍCULO 3. De los vehículos adquiridos o donados. Los vehículos adquiridos o recibidos mediante donación deben cumplir con los siguientes requisitos:
+1. Deben ser preferiblemente de color blanco y estar rotulado de acuerdo con el manual vigente. De no contar el proveedor con el color solicitado, la Dirección funcional de Maquinaria y Equipo podrá autorizar la entrega de vehículos en otro color acorde con las necesidades. Con el fin de evitar gastos innecesarios, los vehículos que actualmente tengan un color diferente al establecido en este inciso permanecerán con el color que tengan hasta que se proceda a su disposición final, o que debido al proceso de enderezado y pintura requieran pintura total, en la misma se realizará el cambio de color a blanco.
+2. Portar las placas oficiales que los identifiquen como pertenecientes a AyA.
+3. Deberán portar los permisos de circulación, inspección técnica vehicular, ficha de emergencia para traslado de materiales peligrosos por vía terrestre, tarjeta de pesos y dimensiones, permisos sanitarios éstas últimas para los vehículos que los requieran.
+4. Dispositivos de seguridad definidos en la ley de Tránsito vigente.
+5. Portar los cargadores portátiles en el caso de vehículos eléctricos.

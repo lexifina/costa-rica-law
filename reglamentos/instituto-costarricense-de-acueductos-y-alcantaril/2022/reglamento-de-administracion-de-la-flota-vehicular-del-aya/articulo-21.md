@@ -1,0 +1,1 @@
+ARTÍCULO 21. Del presupuesto de combustible. Le corresponde a la Dirección de Centro de Servicios de Apoyo gestionar anualmente la asignación de recursos a nivel nacional y cada dirección o región deberá presupuestar el gasto de combustible anual correspondiente.

@@ -1,0 +1,1 @@
+ARTÍCULO 27. De la entrega de combustible a los conductores La distribución del presupuesto de combustible se hace mediante la aprobación de montos en las tarjetas de pago de combustible de acuerdo con las cuotas establecidas conforme a las necesidades de cada dirección o región y en apego al Reglamento de Tarjeta de Pago Institucional.

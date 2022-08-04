@@ -1,0 +1,2 @@
+CAPÍTULO 9. Gestión, administración y control del gasto de combustible.
+ARTÍCULO 19. De los responsables de gasto y consumo de combustible. Los subgerentes de área, directores nacionales, regionales, de UEN y de Unidades Ejecutoras o quién estos deleguen, serán los responsables ante la Dirección Centro de Servicios de Apoyo, de lo relacionado con el control del gasto y consumo de combustible de los vehículos, así como de la cuota de combustible.

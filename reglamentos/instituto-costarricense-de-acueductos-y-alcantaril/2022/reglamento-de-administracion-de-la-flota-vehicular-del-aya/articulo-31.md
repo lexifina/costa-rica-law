@@ -1,0 +1,9 @@
+ARTÍCULO 31. De la disposición final de vehículos, maquinaria y equipo. Son obligaciones de los subgerentes de área, directores nacionales, regionales, de UEN y Unidades Ejecutoras:
+1. Realizar y enviar a la Dirección funcional de Maquinaria y Equipo los avalúos y documentación completa de los vehículos, maquinaria y equipo especial dados de baja por desuso, que por su restauración o por inseguros, han dejado de ser confiables, de acuerdo con el manual vigente, asimismo, la salida de operación de aquellos vehículos que han dejado de ser rentables por su excesivo costo de operación de acuerdo con el manual vigente para proceder con su venta, donación, para entregarlos como parte de pago por la compra de las nuevas unidades u otro método de disposición final que sea definido para tal efecto a más tardar 3 días hábiles de su salida de circulación.
+2. Realizar todos los procesos de dar de baja de activos del sistema financiero y otros que permitan disponer de la unidad sin procesos previos
+3. Disponer de un área adecuada con vigilancia donde se mantenga custodiado el activo dado de baja, a fin de evitar el robo de partes y repuestos.
+4. Todo reemplazo de partes tomadas de las unidades en custodia dadas de baja para ser utilizadas como repuestos en unidades activas institucionales, deberá:
+4.1 Contar con la autorización formal del Director Regional o de la Dirección funcional de Maquinaria y Equipo según corresponda.
+4.2 Deberá llevar un control detallado de las partes reemplazadas, indicando la placa oficial del vehículo al cual se le instalará el repuesto y la placa del vehículo al cual se le retira el repuesto.
+4.3 Todo repuesto reemplazado deberá ser reinstalado en la unidad dada de baja a fin de contar con una correcta disposición de los repuestos dañados.
+4.4 Toda la documentación soporte deberá constar en el archivo digital de la unidad la cual debe concordar con el avalúo previamente realizado.

@@ -1,0 +1,3 @@
+ARTÍCULO 22. De la administración del combustible. La administración del combustible en cada región o dirección estará a cargo de los subgerentes de área, directores nacionales, regionales, de UEN y Unidades Ejecutoras como responsables superiores o en quien éstos deleguen.
+1. La Dirección funcional de Maquinaria y Equipo, será responsable de la distribución mensual del presupuesto, así como fiscalizar el correcto proceso de liquidación y otras actividades afines.
+2. La Dirección funcional de Maquinaria y Equipo, será encargada de planificar y controlar el consumo anual por concepto de combustible de toda la flota institucional.

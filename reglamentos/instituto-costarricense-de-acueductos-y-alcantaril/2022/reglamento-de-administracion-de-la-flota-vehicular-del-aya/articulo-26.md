@@ -1,0 +1,1 @@
+ARTÍCULO 26. De los aumentos de cuota de combustible. Cuando se requiera de un aumento en la cuota de combustible, sea temporal o fijo, deberá presentarse formalmente ante la Dirección funcional de Maquinaria y Equipo, la debida justificación que sustente la cantidad solicitada, para la respectiva aprobación.

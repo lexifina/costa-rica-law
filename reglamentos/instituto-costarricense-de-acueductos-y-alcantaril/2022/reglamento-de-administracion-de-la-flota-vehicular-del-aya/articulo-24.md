@@ -1,0 +1,1 @@
+ARTÍCULO 24. De la planificación anual de utilización de combustible. Los subgerentes de área, directores nacionales, regionales, de UEN y Unidades Ejecutoras, son responsables de la planificación de la cuota anual de combustible que utilizará su zona o región, así como su asignación para cada vehículo, maquinaria o equipo especial.

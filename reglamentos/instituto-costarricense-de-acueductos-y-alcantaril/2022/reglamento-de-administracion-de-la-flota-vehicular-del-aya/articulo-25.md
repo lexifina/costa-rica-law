@@ -1,0 +1,1 @@
+ARTÍCULO 25. De las limitaciones de uso. Es prohibido utilizar la cuota asignada de combustible en vehículos, maquinaria y equipo especial o suplementario, que no sean propiedad de AyA, salvo casos de emergencia calificada autorizado previamente por la administración superior.
