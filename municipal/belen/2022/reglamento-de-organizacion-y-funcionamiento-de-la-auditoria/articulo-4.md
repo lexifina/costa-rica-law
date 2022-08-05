@@ -1,0 +1,3 @@
+CAPÍTULO II
+Organización de la Auditoría Interna
+Artículo 4º-Concepto Funcional de Auditoría Interna. En concordancia con el marco legal, reglamentario y técnico, que regula a la Auditoría, especialmente con lo establecido en el artículo 21 de la Ley No. 8292, Ley General de Control Interno (LGCI), la Auditoría Interna es la actividad independiente, objetiva y asesora, que proporciona seguridad a la Municipalidad, al validar y mejorar sus operaciones. Asimismo, contribuye a que se alcancen sus objetivos, mediante la práctica de un enfoque sistemático y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección.

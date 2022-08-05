@@ -1,0 +1,4 @@
+CAPÍTULO III
+De la asignación de los recursos
+de la Auditoría Interna
+Artículo 21.-Formulación Presupuestaria. Es competencia de la Auditoría Interna elaborar su propio proyecto de presupuesto anual, el cual debe ser formulado de conformidad con el ordenamiento jurídico aplicable, y los procedimientos de la Auditoría, en el deberá determinar la necesidad de recursos ya sea; humanos, materiales, tecnológicos, de transporte, viáticos y otros necesarios y suficientes para que la Auditoría Interna pueda cumplir su gestión, de acuerdo con lo que establece el artículo 27 de la Ley General de Control Interno, Nº 8292 y las directrices establecidas por la Contraloría General de la República al respecto.

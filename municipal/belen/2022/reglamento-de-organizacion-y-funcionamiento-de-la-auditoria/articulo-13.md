@@ -1,0 +1,2 @@
+Artículo 13.-Idoneidad, Pericia y Debido Cuidado Profesional. El Auditor Interno, de acuerdo con lo establecido en la Ley General de Administración Pública, podrá delegar sus funciones en su personal, para lo cual utilizará criterios de idoneidad de acuerdo con su criterio y experiencia profesional.
+El Auditor Interno, deberá cumplir con pericia y debido cuidado profesional en sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, y será vigilante de que el personal de la Auditoría responda de igual manera.

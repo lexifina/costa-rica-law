@@ -1,0 +1,1 @@
+Artículo 40.-Planificación y atención de hechos presuntamente irregulares. La Auditoría Interna realizara un proceso sistemático para la valoración de hechos presuntamente irregulares, que debe documentar apropiadamente. Además, incluirá en el Plan de trabajo anual las actividades específicas, las cuales tendrán prioridad en su ejecución.

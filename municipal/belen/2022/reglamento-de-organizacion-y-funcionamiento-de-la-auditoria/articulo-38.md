@@ -1,0 +1,1 @@
+Artículo 38.-Principios Generales. En la admisión de las denuncias se atenderán los principios de legalidad, celeridad, independencia, objetividad, oficiosidad, así como de simplicidad, economía, eficacia y eficiencia, además del Deber de Probidad y los principios de confidencialidad, y de libre acceso a la información.
