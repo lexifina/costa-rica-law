@@ -1,0 +1,26 @@
+N° 43637-C
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE CULTURA Y JUVENTUD
+Con fundamento en los artículos 140 incisos 18 y 20 de la Constitución Política de la República de Costa Rica; 25 inciso 1, 21 inciso 1 y 28 inciso 2b de la Ley N° 6227, Ley General de la Administración Pública del 2 de mayo de 1978; la Ley N° 51 18 del 15 de noviembre de 1972, Ley de Creación de la Comisión Nacional de Conmemoraciones Históricas, y,
+Considerando:
+I.-Que en el año 2024 se conmemorará el Bicentenario de la Anexión del Partido de Nicoya a Costa Rica.
+II.-Que este hecho constituyó un hito fundamental en el devenir histórico del país y en la conformación de la nacionalidad y la identidad costarricenses, por lo que es obligación del Estado reconocer su conmemoración oficial y convocar a la ciudadanía a compartirla.
+III.-Que de acuerdo con el marco legal existente y en aras de la consecución del interés público y el cumplimiento de los objetivos del Estado, al amparo de los principios de legalidad, transparencia y de buen gobierno, el Poder Ejecutivo considera importante declarar de interés nacional y público las actividades que se realizarán para la conmemoración del Bicentenario de la Anexión del Partido de Nicoya a Costa Rica.
+IV.-Que, creada por la Ley N° 5118 del 15 de noviembre de 1972, la Comisión Nacional de Conmemoraciones Históricas tiene a su cargo la preparación de los actos, investigaciones, estudios y publicaciones, la erección de monumentos, placas conmemorativas, y en general todos los actos que estime convenientes para conmemorar las fechas de la Historia Patria, para velar por el mantenimiento y relieve del patrimonio histórico nacional.
+V.-Que el artículo 2 de la Ley mencionada en el considerando anterior, establece que la comisión estará ubicada en el Ministerio de Cultura, Juventud y Deportes (ahora de Cultura y Juventud).
+VI.-Que, para el cumplimiento de su cometido, la Comisión Nacional podrá designar comisiones auxiliares y está autorizada para elaborar los reglamentos que considere necesarios, los cuales serán promulgados por Decreto Ejecutivo emanado del Ministerio de Cultura y Juventud.
+VII.-Que, para la adecuada conmemoración de este hecho fundamental para la historia costarricense, se hace necesario la constitución de esta Comisión Auxiliar, como órgano oficial, que dirija y coordine todas las acciones que se realizarán en el marco del Programa de Conmemoración de la Anexión del Partido de Nicoya.
+VIII.-Que, según el artículo 1° de la Ley N° 10096, Ley para el Desarrollo Regional de Costa Rica, el Estado tiene como finalidad impulsar el desarrollo regional en Costa Rica, para la mejora de las condiciones y la calidad de vida de toda la población, respetando las particularidades culturales, sociales, económicas, ambientales y el aprovechamiento de las sinergias y potencialidades propias de cada región, en un contexto de participación democrática, como propicia la celebración de este hito histórico.
+IX.-Que, según el artículo 1° de la Ley N° 2034 "Declara día de fiesta nacional (25 de julio)", se declaró el 25 de julio de cada año fiesta nacional, como justo reconocimiento de Costa Rica a los pueblos del antiguo Partido de Nicoya, en la fecha de su incorporación al Estado costarricense.
+X.-Que, según acuerdo del Consejo Regional de Desarrollo (COREDES) de la Región Chorotega "Julio César Jaén Contreras", N° 3 de la sesión ordinaria N° 31-2020, se conforma una comisión regional para diseñar una estrategia para la conmemoración del bicentenario de la incorporación del Partido de Nicoya a Costa Rica con miras a impulsar el Plan Regional de Desarrollo con el aporte del sector público, privado y sociedad civil".
+XI.-Que en sesión ordinaria N° 2022-02, celebrada a las 14:00 horas del martes 7 de junio del 2022, la Comisión Nacional de Conmemoraciones Históricas por acuerdo 002, de mayoría, acordó en firme avalar la creación de una Comisión Auxiliar para la Conmemoración de la Anexión del Partido de Nicoya a Costa Rica, y aprobó el contenido de la presente reglamentación, que establece el marco de acción para el desempeño de sus funciones. Por tanto,
+Decretan:
+CREACIÓN DE LA COMISIÓN AUXILIAR DE LA
+COMISIÓNNACIONAL DE CONMEMORACIONES
+HISTÓRICAS, PARA LA CELEBRACIÓN
+DEL BICENTENARIO DE LA ANEXIÓN
+DEL PARTIDO DE NICOYA
+A COSTA RICA
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1°-Objeto. Créase una Comisión Auxiliar de la Comisión Nacional de Conmemoraciones Históricas, para la Conmemoración de la Anexión del Partido de Nicoya a Costa Rica, que tendrá como objeto primordial la coordinación del programa de celebración (en adelante denominado El programa), entendido como el conjunto de iniciativas principales destinadas a conmemorar este hito histórico, y se compone de una curaduría coherente de proyectos viables, compatibles con la visión establecida por el Gobierno de la República, los Gobiernos Locales y la Comisión Nacional de Conmemoraciones Históricas creada por Ley N° 5118 del 15 de noviembre de 1972, con el apoyo de las comisiones auxiliares que esta establezca. Este programa se define a partir de narrativas, historias, contenidos y experiencias coordinadas con los Poderes del Estado, la empresa privada, la sociedad civil, el sector académico y la ciudadanía en general. El Programa tendrá vigencia del año 2023 al año 2025.

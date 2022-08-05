@@ -1,0 +1,1 @@
+Artículo 8°-Reformas. Cualquier reforma parcial o total del presente Decreto, deberá contar con el acuerdo firme de la Comisión Nacional de Conmemoraciones Históricas, creada por Ley N° 5118, para su posterior promulgación por el Poder Ejecutivo.
