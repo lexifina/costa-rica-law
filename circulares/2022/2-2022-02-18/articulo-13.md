@@ -1,1 +1,0 @@
-Artículo 13. En el caso de las solicitudes de visas provisionales por reunificación familiar que se presenten ante la Unidad de Visas por las personas extranjeras residentes legalmente en el país o costarricenses, serán atendidas con prioridad de acuerdo a la posibilidad y capacidad de la Unidad de Visas.

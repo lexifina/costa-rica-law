@@ -1,1 +1,0 @@
-Artículo 10. Una vez recibida la información por parte del Consulado, este la trasladará vía electrónica a la Unidad de Visas de la Dirección General de Migración y Extranjería. En todo momento se copiará en el traslado a la persona interesada.

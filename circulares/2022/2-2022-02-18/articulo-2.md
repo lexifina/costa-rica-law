@@ -1,1 +1,0 @@
-Artículo 2. Conforme a las certificaciones, se aplicarán los criterios establecidos en el artículo 19 del Reglamento para el Otorgamiento de Visas de Ingreso a Costa Rica, Decreto Ejecutivo N°36626-G, salvo las excepciones establecidas en los siguientes numerales para las personas nacionales de Venezuela.

@@ -1,1 +1,0 @@
-Artículo 9. Para el trámite ante los Consulados de la visa consultada en calidad de turismo, las personas solicitantes deberán remitir, por los medios digitales que se establezcan para ello y en un archivo PDF de no más de 19 megas, los requisitos regulados en el artículo 71 del Reglamento para el Otorgamiento de Visas de Ingreso a Costa Rica, Decreto Ejecutivo N°36626-G.
