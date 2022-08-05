@@ -24,3 +24,4 @@ Reglamento de Crédito de la Comisión Nacional de Préstamos para la Educación
 | 9 | 2020-11-16 | Reglamento 35 (2020-11-16) |
 | 10 | 2021-01-18 | Reglamento 2 (2021-01-18) |
 | 11 | 2021-02-08 | Reglamento 5 (2021-02-08) |
+| 12 | 2022-08-05 | Reglamento 15 (2022-08-05) |

@@ -17,3 +17,5 @@ a. Cuando el solicitante va a iniciar la carrera:
 b. Cuando el solicitante cursa estudios superiores:
 1. El promedio académico se obtiene al dividir el total de las notas o calificaciones de asignaturas aprobadas por el solicitante en sus estudios superiores - con un mínimo de 8 asignaturas-entre el número de asignaturas aprobadas.
 2. Si el solicitante ha aprobado menos de 8 asignaturas en los estudios superiores, se recurrirá a obtener el promedio académico sólo con las asignaturas aprobadas en su último año de secundaria.
+c. Cuando el programa a financiar no requiere la conclusión y aprobación de estudios secundarios Bachiller en Educación Media como requisitos de ingreso o el estudiante no los ha concluido, podrá solicitar que se le asigne la nota mínima de setenta (70) para efectos de evaluar el parámetro Rendimiento Académico.
+(Así adicionado el inciso c) anterior mediante sesión N° 15-2022 del 5 de agosto de 2022)
