@@ -1,0 +1,1 @@
+Artículo 29- Promoción de la gestión integral de residuos. La Municipalidad en conjunto con todos los actores sociales interesados contribuirán y promoverán la gestión integral de residuos sólidos. De esta manera deberá incorporar dentro de su presupuesto anual los costos relacionados con campañas publicitarias y de educación ambiental de residuos sólidos.

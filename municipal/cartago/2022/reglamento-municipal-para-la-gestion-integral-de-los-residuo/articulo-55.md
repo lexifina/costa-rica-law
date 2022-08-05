@@ -1,0 +1,1 @@
+Artículo-55 Destino de los recursos. El diez por ciento de utilidad para el desarrollo que contempla la tarifa de depósito y tratamiento, se destinará prioritariamente a impulsar el mejoramiento de la prestación del servicio.

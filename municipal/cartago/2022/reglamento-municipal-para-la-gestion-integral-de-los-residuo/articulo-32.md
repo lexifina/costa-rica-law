@@ -1,0 +1,10 @@
+Artículo 32- Prohibiciones.
+1. Depositar residuos de manejo especial o residuos peligrosos en los recipientes de almacenamiento, de uso público o privado para ser recolectados por el servicio ordinario.
+2. Deshacerse de los residuos especiales, peligrosos o de alto riesgo a través de los servicios domésticos, comercial o de aseo urbano, debiendo para ello utilizar los servicios de empresas autorizadas por esa actividad. Se incluyen dentro de estos residuos materiales de construcción, residuos de pinturas y sus envases, baterías de vehículos, escombro, grasas y aceites de cocina y en general, residuos electrónicos, y otros de tal naturaleza.
+3. Remover o extraer el contenido de las bolsas de residuos sólidos ordinarios, una vez colocados en el sitio de recolección.
+4. Entregar animales muertos o partes de estos para ser recolectados por el servicio de recolección ordinario municipal.
+5. Disponer o entregar excretas de animales provenientes de fincas, granjas, locales comerciales o criaderos, ni los residuos provenientes de plantas de tratamiento de aguas negras o industriales, biodigestores o tanques sépticos.
+6. Que los dueños o los responsables de los animales de compañía dejen las excretas de estos en las aceras, los parques, las calles, los jardines público y demás lugares públicos, ello indicado además en Ley 7451 Ley de Bienestar de los Animales o la normativa que la sustituya.
+7. Arrojar residuos sólidos o de cualquier tipo en vía pública, parques, áreas de esparcimiento y uso común, áreas de protección de cuerpos de agua, laderas, alcantarillas, lotes o predios, carreteras y en general en todo sitio no autorizado para ello.
+8. Gestionar, almacenar, valorizar, tratar y disponer de residuos ordinarios en condiciones contrarias a las establecidas o en horarios, lugares o condiciones no autorizados o diferentes a los aprobados y establecidos por las autoridades competentes.
+9. Quemar, enterrar, almacenar o acumular al aire libre, sin ningún tipo de tratamiento preventivo, cualquier tipo de residuo sólido.

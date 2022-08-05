@@ -1,0 +1,1 @@
+Artículo 64- De las oposiciones verbales. Las oposiciones presentadas al proyecto tarifario en la audiencia pública se harán en forma verbal. Las oposiciones verbales, serán resumidas y su exposición se hará en 5 minutos.

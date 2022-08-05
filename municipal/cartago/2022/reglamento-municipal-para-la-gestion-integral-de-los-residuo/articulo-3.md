@@ -1,0 +1,1 @@
+Artículo 3- Actividades reguladas. La recolección, transporte, almacenamiento, disposición final y demás aspectos relacionados con la gestión de residuos municipales, cualquiera que sea la actividad o el lugar de generación, se regirá por lo dispuesto en el presente reglamento, la ley para la Gestión de Residuos Sólidos y su respectivo reglamento.

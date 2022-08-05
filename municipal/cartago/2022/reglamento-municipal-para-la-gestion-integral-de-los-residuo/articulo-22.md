@@ -1,0 +1,1 @@
+Artículo 22 - Del tratamiento de los residuos artefactos electrónicos Para el tratamiento de los residuos artefactos electrónicos se debe seguir los lineamientos de Decreto Ejecutivo N° 35933-S del 12 de febrero del 2010 Reglamento para la Gestión Integral de Residuos Electrónicos o la normativa que la sustituya.

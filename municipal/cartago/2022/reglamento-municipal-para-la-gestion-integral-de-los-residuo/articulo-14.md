@@ -1,0 +1,3 @@
+CAPÍTULO CUARTO
+Centros de recuperación de materiales
+Artículo 14 - Facultad de instalarlos y de autorizar a terceros. Facultad de instalarlos y de autorizar a terceros. La Municipalidad tiene la facultad de instalar y operar centros de recuperación de materiales valorizables o autorizar a terceros, para la acumulación, clasificación y comercialización de los mismos. Para ser autorizado, el tercero interesado deberá contar con licencia de funcionamiento (patente municipal) para los casos de actividades lucrativas y cumplir con los requisitos nacionales para la operación y funcionamiento de los Centros de Recuperación de Residuos Valorizables.

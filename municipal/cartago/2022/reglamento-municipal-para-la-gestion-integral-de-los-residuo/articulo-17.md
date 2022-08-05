@@ -1,0 +1,4 @@
+CAPÍTULO QUINTO
+Manejo de residuos especiales y peligrosos
+Artículo 17 -Residuos provenientes de construcciones o demoliciones. La responsabilidad por el manejo de los residuos provenientes de la construcción o demolición corresponde al dueño de la propiedad, el cual debe garantizar su recolección, transporte y disposición final en forma directa o mediante un gestor autorizado. El sitio de disposición debe cumplir con los requisitos legales y evitar ser una molestia para los vecinos, debe mantener limpias y libres de material o residuo las aceras, calles, áreas de uso común y lotes baldíos, dentro del perímetro del sitio.
+Previamente y como requisito de aprobación de la licencia, de demolición y o construcción, incluso por obra menor el interesado deberá presentar a la Direccion de Urbanismo el plan de manejo de los residuos generados y el contrato con la empresa que va a realizar la gestión de recolección de este tipo de residuos

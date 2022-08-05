@@ -1,0 +1,1 @@
+Artículo-47 Destino de los recursos. El diez por ciento de utilidad para el desarrollo que contempla la tarifa del servicio de aseo de vías y sitios públicos, se destinará prioritariamente a impulsar el mejoramiento de la prestación del servicio.

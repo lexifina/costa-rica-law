@@ -1,0 +1,1 @@
+Artículo 24 - Persona encargada del centro. Los centros de acopio comunales deben tener una persona debidamente capacitada en el manejo correcto de los residuos sólidos valorizables así mismo será la persona encargada de la organización, el orden del lugar de coordinar con la municipalidad.

@@ -1,0 +1,1 @@
+Artículo 31.-Incentivos de Capacitación: Constituyen aquellos incentivos o estímulos otorgados para promover y facilitar la capacitación en temas ambientales y especialmente en el tema de manejo adecuado de residuos, así como el impulso de campañas de diferente tipo en relación a este tema.

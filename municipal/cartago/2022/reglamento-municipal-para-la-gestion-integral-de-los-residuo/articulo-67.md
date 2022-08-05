@@ -1,0 +1,1 @@
+Artículo 67- De la aprobación definitiva del proyecto tarifario. El Concejo Municipal analizará las incidencias y resultados de la audiencia pública previos dictámenes de la Comisión de Hacienda y Presupuesto y de la Comisión Técnica y someterá a votación el Proyecto Tarifario.

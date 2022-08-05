@@ -1,0 +1,12 @@
+CAPÍTULO TERCERO
+Responsabilidades de los Generadores
+Artículo 9- Obligaciones de los generadores domiciliares y comerciales.
+1. Almacenar temporalmente los residuos generados en su propiedad o lugar de actividad de tal forma, que no causen ningún impacto ambiental significativo o riesgo a su salud o de otras personas de la comunidad hasta que la municipalidad o el gestor autorizado se apersone para realizar el retiro de estos.
+2. Disponer los residuos en bolsas o recipientes cerrados, que no deben estar por encima de los 25Kg para una adecuada manipulación y carga.
+3. Separar los residuos desde su origen o fuente y dispuestos para su debida recolección, en las zonas donde la Municipalidad ofrece el servicio de recolección de residuos valorizables de manera diferenciada y entregarlos secos y libres de residuos orgánicos
+4. Empacar los residuos punzo-cortantes individualmente para reducir al máximo el riesgo para el personal recolector, de tal forma que las agujas deben ser dispuestas en botellas plásticas con tapa, debidamente cerradas. Asimismo, los vidrios, objetos cerámicos y cortantes, deben ser debidamente empacados en cartón asegurándose con cinta adhesiva su adecuado cierre.
+5. Colocar los residuos en el suelo o en cestas públicas, al frente de su propiedad, o en un contenedor colectivo, en los dominios de la vía pública, de forma que no puedan ser alcanzados por animales y no constituyan un riesgo para conductores y peatones.
+6. Recoger y depositar nuevamente en un recipiente, los residuos que sean esparcidos en la vía pública antes de ser recolectados, así como mantener limpios los sitios en lo que se ubiquen los contenedores, basureros o frentes de sus propiedades.
+7. Respetar los horarios establecidos por la municipalidad o el gestor autorizado. La recolección de residuos en el centro de la ciudad, se deberá poner a disposición de la municipalidad a las 18:00 horas.
+8. Depositar los residuos en un contenedor de uso colectivo, a la orilla de la calle principal con el diseño que la municipalidad considere para cada caso, en la entrada de propiedades ubicadas en condominios, edificios de dos pisos o más, callejones y alamedas donde el vehículo recolector no pueda transitar. La limpieza de estos contenedores es responsabilidad de los usuarios del servicio.
+9. Disponer de forma adecuada mediante alternativas de descomposición natural las excretas de animales ya que son residuos no recibidos en el servicio de recolección de residuos que presta el municipio.

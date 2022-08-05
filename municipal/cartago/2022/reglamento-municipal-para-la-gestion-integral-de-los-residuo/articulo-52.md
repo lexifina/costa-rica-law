@@ -1,0 +1,1 @@
+Artículo-52 Determinación de la tasa por el servicio de depósito y tratamiento de residuos. La Municipalidad cobrará una tasa, en los once distritos del cantón por tipo de usuarios y categoría establecida.

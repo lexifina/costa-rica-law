@@ -1,0 +1,1 @@
+Artículo -44 Determinación de la tasa por el servicio de parques y obras de ornato. La Municipalidad cobrará una tasa, en los Distritos Oriental y Occidental y en los que en el futuro se preste el servicio. Deberán pagarla todos los propietarios o poseedores por cualquier título de bienes inmuebles ubicados en los Distritos Oriental y Occidental.

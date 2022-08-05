@@ -1,0 +1,1 @@
+Artículo 69- De la publicación y entrada en vigencia. Una vez firme el acuerdo de aprobación del proyecto tarifario por parte del Concejo Municipal, se enviará a publicar en el Diario Oficial La Gaceta, y entrará a regir 30 días hábiles posteriores a su publicación de conformidad con el art 83 del Código Municipal o la norma que lo sustituya.

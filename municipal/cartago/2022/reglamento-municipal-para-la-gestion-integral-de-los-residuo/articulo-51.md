@@ -1,0 +1,1 @@
+Artículo-51 Destino de los recursos. El diez por ciento de utilidad para el desarrollo que contempla la tarifa de recolección de residuos, se destinará prioritariamente a impulsar el mejoramiento de la prestación del servicio.

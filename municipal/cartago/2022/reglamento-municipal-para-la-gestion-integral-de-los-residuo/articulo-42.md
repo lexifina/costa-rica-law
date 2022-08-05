@@ -1,0 +1,1 @@
+Artículo -42 Forma y periodicidad de cobro. Para el cobro de la tarifa, la Municipalidad utilizará el valor registrado y vigente de la propiedad. El cobro se hará en forma mensual, por período vencido, conjuntamente con el cobro de los demás servicios o tributos municipales.

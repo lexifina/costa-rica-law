@@ -1,0 +1,1 @@
+Artículo 26 - Ubicación. Los centros de acopio comunal deben localizarse en áreas que tengan acceso los vecinos del sector pero que sean de carácter privado para evitar desorden en áreas públicas o esparcimiento de los residuos. Además, los centros de acopio comunal deben tener acceso para el camión recolector.

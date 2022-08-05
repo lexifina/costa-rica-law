@@ -1,0 +1,1 @@
+Articulo- 53 Metodología de cálculo. Para la clasificación de los usuarios se usan los datos de los registros municipales y se definen los siguientes tipos de usuarios: residencial, comercial, institucional y gobierno. La definición se basa en el criterio del peso, mediante un estudio técnico, estadístico y trabajo de campo.

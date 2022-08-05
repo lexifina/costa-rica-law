@@ -1,0 +1,1 @@
+Artículo 59- Del trámite del anteproyecto. Una vez elaborado el ante proyecto tarifario, la Comisión Técnica lo trasladara a la Alcaldía, para que ese órgano lo eleve a conocimiento del Concejo Municipal. El Concejo Municipal lo trasladara para su estudio y recomendación a la Comisión de Hacienda y Presupuesto.

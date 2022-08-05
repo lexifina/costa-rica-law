@@ -1,0 +1,1 @@
+Artículo 16 - Otras condiciones que deben cumplir. Deben presentar las condiciones higiénicas, de seguridad industrial, ornato, evitar la contaminación del aire, agua, suelo, de acuerdo con las normas en vigencia.

@@ -1,0 +1,1 @@
+Artículo 21 - Del tratamiento de los residuos tipo llantas usadas. Para el tratamiento de los residuos Llantas usada se debe seguir los lineamientos de Decreto Ejecutivo N° 33745-S del 8 de febrero del 2007 Reglamento sobre Llantas de Desecho o la normativa que la sustituya.

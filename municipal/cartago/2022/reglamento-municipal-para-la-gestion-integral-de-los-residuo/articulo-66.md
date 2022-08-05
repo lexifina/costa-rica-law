@@ -1,0 +1,1 @@
+Artículo 66- Del acta de la audiencia. El Secretario del Concejo levantará un acta, con todos los pormenores e incidencias que ocurran en la audiencia pública. El acta de la audiencia pública debidamente firmada, deberá presentarse al Concejo Municipal en la sesión ordinaria inmediata posterior al día de la audiencia.

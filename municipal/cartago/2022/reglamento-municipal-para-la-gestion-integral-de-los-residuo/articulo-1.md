@@ -1,0 +1,15 @@
+MUNICIPALIDAD DE CARTAGO
+El Concejo Municipal de Cartago informa que, en la sesión ordinaria del 05 de julio del 2022, en el artículo 16° del acta N°170-2022, se acordó por unanimidad, aprobar de forma definitiva el Reglamento Municipal para la Gestión Integral de los Residuos Sólidos del Cantón Central de Cartago, el cual se publica de acuerdo con lo estipulado en el artículo 43 del Código Municipal, mismo que en adelante dirá: Conforme a la potestad conferida por el artículo 169 de la Constitución Política, los artículos 4 inciso a, 13 inciso c y e, 17 inciso a y 43 del Código Municipal, Ley Nº 7794, Ley Nº 8839 Gestión Integral de Residuos Sólidos, Ley Orgánica del Ambiente, la Ley de Biodiversidad, Ley de Tránsito y leyes conexas a los efectos de la consulta pública referida en el numeral 43 del Código Municipal acuerda emitir siguiente:
+REGLAMENTO MUNICIPAL PARA LA GESTIÓN INTEGRAL
+DE LOS RESIDUOS SÓLIDOS DEL CANTÓN CENTRAL DE CARTAGO
+Considerando:
+a) Que el artículo 50 de la Constitución Política reconoce el derecho de toda persona a gozar de un ambiente sano y ecológicamente equilibrado, así como el deber del Estado de garantizar, defender y preservar dicho derecho.
+b) Que de conformidad con el artículo 169 de la Constitución Política corresponde a la municipalidad la administración de los intereses y servicios locales.
+c) Que de conformidad con la Ley para la Gestión Integral de Residuos Nº 8839, corresponde a las municipalidades la gestión integral de residuos sólidos en su cantón.
+d) Que, de conformidad con el artículo 4 del Código Municipal, el Concejo puede organizar mediante reglamento, la prestación de los servicios públicos municipales.
+e) Que el artículo 28 de la Ley Orgánica del Ambiente Nº 7554, establece que es función del Estado, las municipalidades y los demás entes públicos, definir y ejecutar políticas nacionales de ordenamiento territorial, tendientes a regular y promover los asentamientos humanos y las actividades económicas y sociales de la población, así como el desarrollo físico-espacial, con el fin de lograr la armonía entre el mayor bienestar de la población, el aprovechamiento de los recursos naturales y la conservación del ambiente.
+f) Que se hace necesario regular los diferentes aspectos del manejo de los residuos sólidos con el fin de promover la gestión integral de los mismos en el cantón.
+CAPÍTULO PRIMERO
+Disposiciones Generales
+Artículo 1-Objeto general. El presente Reglamento tiene por objeto dar sustento legal y ordenar la gestión integral de los residuos sólidos generados en el Cantón Central de Cartago, mediante la planificación y ejecución de acciones regulatorias, operativas, financieras, administrativas y educativas.
+Además, define las responsabilidades de los diferentes actores y generadores de residuos del cantón; regula la recolección, el transporte, almacenamiento, valorización, tratamiento y disposición final adecuada de residuos sólidos en el cantón; así como establece la estructura institucional y operativa necesaria para cumplir la gestión integral y complementa las regulaciones nacionales en materia de gestión de residuos.

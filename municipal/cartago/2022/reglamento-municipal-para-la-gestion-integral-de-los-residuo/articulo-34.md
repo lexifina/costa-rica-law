@@ -1,0 +1,1 @@
+Artículo 34-Infracciones graves y sus sanciones. Se consideran infracciones graves y serán sancionadas hasta ocho veces la tarifa más alta del servicio de manejo de residuos, las establecidas en el artículo 49 de la Ley para la Gestión Integral de Residuos Sólidos, la normativa que la sustituya y lo indicado en el Art 32 de este reglamento

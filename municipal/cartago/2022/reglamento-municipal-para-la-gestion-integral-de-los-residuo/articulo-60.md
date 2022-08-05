@@ -1,0 +1,1 @@
+Artículo 60- De la aprobación del anteproyecto. La Comisión de Hacienda y Presupuesto, recomendará el proyecto al Concejo Municipal, quien a su vez lo aprobará como proyecto para ser publicado en el Diario Oficial La Gaceta.

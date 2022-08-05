@@ -1,0 +1,1 @@
+Artículo 35- Infracciones leves. Se consideran infracciones leves y será sancionado hasta con cinco veces la tarifa que corresponda de acuerdo con la categoría asignada, las establecidas en el artículo 50 de la Ley para la Gestión Integral de Residuos Sólidos, o la normativa que la sustituya y lo indicado en el Art 32 de este reglamento.

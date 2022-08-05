@@ -1,0 +1,2 @@
+Artículo 61- De la convocatoria a audiencia pública. En dicha aprobación por parte del Concejo Municipal, se ordenará otorgar un plazo de un mes a partir de la publicación, citando a una audiencia pública indicando lugar y hora de inicio, o medio en el caso de que sea virtual.
+En el supuesto de audiencias presenciales durante pandemias debidamente declaradas se deberán observar todas las disposiciones relativas aforos o demás medidas sanitarias.
