@@ -1,0 +1,1 @@
+Artículo 31.-Las actas de la Junta Vial Cantonal, deberán ser aprobadas en la siguiente sesión ordinaria, estando habilitados para deliberar y aprobarlas únicamente quienes estuvieron presentes en la sesión objeto de discusión y votación. Serán firmadas por el (la) Presidente(a) y el (la) Secretario(a).
