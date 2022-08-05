@@ -1,0 +1,1 @@
+Artículo 7º-Cobro por emisión de informe de atención al usuario. La Junta Directiva del Colegio de Terapeutas, podrá establecer, cuando lo considere necesario y mediante acuerdo, un costo para la emisión del informe de atención al usuario. Esta decisión, se notificará a todos los agremiados a través de los mecanismos de comunicación con que cuenta el Colegio de Terapeutas.

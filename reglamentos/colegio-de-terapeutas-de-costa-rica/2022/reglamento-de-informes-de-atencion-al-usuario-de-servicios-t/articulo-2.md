@@ -1,0 +1,2 @@
+Artículo 2º-Objetivo y alcance. El objetivo del presente Reglamento es determinar el procedimiento y requisitos mínimos que deberán cumplir los agremiados para emitir informes de atención al usuario de sus servicios.
+Las disposiciones de este Reglamento son aplicables a los profesionales en Audiología, Imagenología Diagnóstica y Terapéutica, Terapia Física, Terapia del Lenguaje, Terapia Ocupacional y Terapia Respiratoria incorporados al Colegio de Terapeutas de Costa Rica.

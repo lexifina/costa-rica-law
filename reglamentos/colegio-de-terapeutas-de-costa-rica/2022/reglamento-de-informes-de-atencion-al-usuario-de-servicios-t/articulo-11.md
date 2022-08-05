@@ -1,0 +1,1 @@
+Artículo 11.-Derogatorias. Se deroga en su totalidad el Reglamento para la realización del Diagnóstico Terapéutico del año 2014, publicado en el Diario Oficial La Gaceta nro. 230 del viernes 28 de noviembre de 2014, en tanto las disposiciones ahí contempladas son sustituidas por las que incorpora el presente Reglamento.

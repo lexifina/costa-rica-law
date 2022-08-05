@@ -1,0 +1,1 @@
+Artículo 10.-Revisiones y actualizaciones. La Junta Directiva promoverá revisiones y actualizaciones del presente reglamento cuando se considere conveniente. Tanto la aprobación como las reformas totales o parciales de esta normativa serán dispuestas por la Junta Directiva.
