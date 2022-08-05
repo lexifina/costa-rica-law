@@ -1,0 +1,1 @@
+Artículo 9. Registro de la actividad del charteo. Las marinas que brindan servicios para la actividad de charteo deben llevar un registro de las embarcaciones que prestan dichos servicios e informar sobre su actividad dentro de los informes operacionales que periódicamente presentan ante la CIMAT en cumplimiento al artículo 63 del Reglamento a la Ley 7744.
