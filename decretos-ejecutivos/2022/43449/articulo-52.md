@@ -1,0 +1,3 @@
+Capítulo Xll:
+Vacío del servicio público de suministro de combustibles al consumidor final
+Artículo 52. Vacío del servicio. En caso de existir un vacío en el servicio público de suministro de combustible al consumidor final; ya sea por las causas establecidas en el artículo 22 de la Ley de la ARESEP Ley Nº7593 o bien por su pensión de las concesiones otorgadas o inexistencia de las mismas por falta de interesados en prestar el servicio el MINAE emitirá una resolución declarando el vacío en la zona afectada y autorizando a RECOPE a prestar el servicio público de suministro de combustible al consumidor final, hasta que se solucionen las causas que provocaron dicho vacío.

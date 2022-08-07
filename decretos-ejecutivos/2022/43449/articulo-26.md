@@ -1,0 +1,1 @@
+Artículo 26. Coordinación institucional. La ARESEP podrá en caso de resultar necesario, coordinar con la DGTCC, el MINSA y el BCBCR, la atención de los incumplimientos detectados por medio de la valoración del informe técnico mencionado.

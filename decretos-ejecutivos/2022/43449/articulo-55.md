@@ -1,0 +1,1 @@
+Artículo 55. Deróguense los incisos 8), 9) y 23) del artículo 4, artículos 29, 49, 50, 51. 52, 68 inciso b), 70, 77, el inciso b) del artículo 82 y el inciso b) del artículo 96 todos del Reglamento general para la regulación del suministro de gas licuado de petróleo, Decreto Ejecutivo Nº41150-MINAE-S del 4 de mayo de 2018.

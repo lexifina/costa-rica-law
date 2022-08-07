@@ -1,0 +1,6 @@
+Capítulo X
+Cambio de titular o de las condiciones de la concesión
+Artículo 32. Cambio de titular. Una vez otorgada la concesión, para realizar cualquier cambio en la titularidad de la misma, se deberá comunicar previamente a la DGTCC. Al efecto, se debe presentar una solicitud conjunta firmada por el titular de la concesión actual y el que figuraría como nuevo concesionario, aportando copia certifcada del documento o de los documentos en que se plasme el negocio de la transmisión de las instalaciones de la estación de servicio o su usufructo, ya sea por arriendo, venta o cualquier otra figura contractual que indique dicha transmisión, y en caso de venta, se debe demostrar el cumplimiento de lo indicado en el artículo 479 del Código de Comercio Ley 3284.
+No procede el cambio de titular de la concesion de existir procedimientos sancionatorios o sanciones pendientes de cumplimiento, relativos a la prestación del servicio público de suministro de combustibles, en contra de cualquiera de las dos partes involucradas.
+El procedimiento para el cambio de titular será el establecido en los artículos 17 y 18 del presente reglamento.
+En caso de instalaciones para aeronaves y navíos, se deberá contar con las autorizaciones previas del cambio de titular de Aviación Civil o del MOPT, según corresponda.

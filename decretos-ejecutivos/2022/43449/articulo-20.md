@@ -1,0 +1,1 @@
+Artículo 20. Vigencia. La concesión del servicio público de suministro de combustible en estaciones de servicio tendrá una vigencia de 10 años contados desde el momento de la notificación de la resolución que la otorga.

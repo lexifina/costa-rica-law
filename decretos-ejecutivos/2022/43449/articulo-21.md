@@ -1,0 +1,4 @@
+Capítulo IV:
+Trámite para obtener la concesión de servicio público para el suministro de
+combustibles derivados de hidrocarburos en estaciones de servicio aeroportuarias.
+Artículo 21. Trámite. Para tramitar una concesión para la prestación del servicio público de suministro de combustibles para aeronaves en aeródromos, helipuertos o campos de aterrizaje para vehículos ultraligeros, se debe presentar a la DGTCC el permiso otorgado por la Dirección General de Aviación Civil, que es el ente encargado de velar por el cumplimiento de las normas técnicas correspondientes en el diseño y operación de las instalaciones. A continuación; se seguirá el mismo trámite que para las estaciones de servicio terrestre a partir del artículo 16 del presente reglamento, en cuyo caso, el permiso otorgado por la Dirección General de Aviación Civil sustituye la resolución de aprobación de las instalaciones de la estación de servicio por parte de la DGTCC.

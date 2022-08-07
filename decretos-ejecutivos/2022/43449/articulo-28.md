@@ -1,0 +1,1 @@
+Artículo 28. incumplimiento. Los incumplimientos a la presente regulación serán sancionados por la autoridades judiciales y administrativas competentes, según la normativa que tutela la materia. La DGTCC remitirá las denuncias respectivas a dichas autoridades para el trámite correspondiente.

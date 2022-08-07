@@ -1,0 +1,1 @@
+Artículo 12. Etapa constructiva. Obtenido el permiso de construcción por parte de la Municipalidad correspondiente, el solicitante deberá informarlo a la DGTCC, indicando además el número de proyecto en la APC del CFlA y de la plataforma digital del ClQPA cuando corresponda.

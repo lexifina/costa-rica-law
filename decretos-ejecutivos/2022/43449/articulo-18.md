@@ -1,0 +1,1 @@
+Artículo 18. Recomendación y resolución. Vencido el plazo al que se refiere el artículo anterior y solventados los alegatos respectivos, la DGTCC emitirá una recomendación al jerarca del MlNAE, en un plazo no mayor de 15 días, para otorgar o denegar la concesión del servicio público. Recibida la recomendación, el Ministro del MINAE contará con 10 días para emitir la resolución.

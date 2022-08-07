@@ -1,0 +1,1 @@
+Artículo 30. Caducidad. La autorización del Servicio Público de Suministro de Combustibles caducará por los motivos expuestos en el artículo 15 de la Ley de la Autoridad Reguladora de los Servicios Públicos Nº 7593.

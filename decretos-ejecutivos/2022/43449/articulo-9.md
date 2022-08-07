@@ -1,0 +1,1 @@
+Artículo 9. Traslado de objeciones. Vencido el plazo conferido, si alguno de los concesionarios indicados en el artículo anterior presenta objeciones la DGTCC dentro de los 3 días posteriores, dará audiencia al proponente para que se refiera a las mismas en el plazo máximo de 15 días.
