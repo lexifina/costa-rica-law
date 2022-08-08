@@ -18,3 +18,4 @@ Reglamento de participantes en servicios de Capacitación y Formación Profesion
 | 3 | 2016-10-10 | Reglamento 4765 (2016-10-10) |
 | 4 | 2019-04-01 | Reglamento 0 (2019-04-01) |
 | 5 | 2020-06-15 | Reglamento 22 (2020-06-15) |
+| 6 | 2022-08-08 | Reglamento 28 (2022-08-08) |
