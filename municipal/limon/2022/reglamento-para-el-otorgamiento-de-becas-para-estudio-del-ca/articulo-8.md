@@ -1,0 +1,1 @@
+Artículo 8º-Período de duración de la beca. La beca se concederá a la persona estudiante durante el plazo comprendido entre los meses de febrero a diciembre (según calendario escolar) del curso lectivo para el que se solicitó, pudiendo prorrogarse para el siguiente curso lectivo, siempre y cuando cumpla con lo que establecen los artículos 3 y 11 de este Reglamento.
