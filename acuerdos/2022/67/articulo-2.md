@@ -1,0 +1,1 @@
+Artículo 2°-Objetivo general. Colaborar con la OIEG en la promoción de la Perspectiva de Género Inclusiva, en la prevención de violencia de género y cualquier manifestación de discriminación, para la igualdad y equidad efectiva entre mujeres y hombres de las fuerzas policiales y personal administrativo del Ministerio de Seguridad Pública.

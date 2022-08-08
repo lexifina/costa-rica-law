@@ -1,0 +1,1 @@
+Artículo 15.-Sesiones. La CIEMH sesionará una vez al mes, de 8 a.m. a 12 m.d. con posibilidad de extensión después de la 1 p.m. hasta las 4 p.m. Este horario puede variar, así como el día dependiendo de los acuerdos de las personas participantes. También realizará sesiones extraordinarias en caso de resultar necesario.

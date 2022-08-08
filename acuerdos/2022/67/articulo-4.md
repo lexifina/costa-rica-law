@@ -1,0 +1,15 @@
+Artículo 4°-Conformación de la CIEMH. La CIEMH estará a cargo de la Oficina de Igualdad y Equidad de Género y será integrada por una persona representante y una suplente de cada una de las siguientes instancias:
+. Dirección General de la Fuerza Pública,
+. Dirección de Recursos Humanos,
+. Oficina de Planificación Institucional,
+. Academia Nacional de Policía,
+. Servicio Nacional de Guardacostas,
+. Policía de Control de Drogas,
+. Dirección del Servicio de Vigilancia Aérea,
+. Dirección Policía de Fronteras,
+. Dirección Administrativa y Financiera,
+. Salud Ocupacional,
+. Departamento Disciplinario Legal,
+. Asesoría Jurídica,
+. Dirección de Programas Preventivos,
+. Dos personas de la Oficina de Igualdad y Equidad de Género.

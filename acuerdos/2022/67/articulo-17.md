@@ -1,0 +1,3 @@
+Artículo 17º.-Servicios. La Comisión podrá realizar capacitaciones, talleres/o actividades de prevención, cuando alguna instancia interna o externa del MSP lo solicite, y sea aprobado a en sesión de la CIEMH.
+Esta comisión no constituye un órgano rector, ni fiscalizador en materia de género. Tampoco brindará servicios de atención psicológica, terapéutica, ni de ninguna índole de servicios de salud de atención primaria. Cualquier caso de Violencia de género que se detecte las personas integrantes de la CIEMH-MSP están en la obligación de referirlo inmediatamente a las instancias competentes.
+En lo no regulado en este Acuerdo se estará a lo dispuesto en la Ley General de la Administración Pública, sobre los órganos colegiados.

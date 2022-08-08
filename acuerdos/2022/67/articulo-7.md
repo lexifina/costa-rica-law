@@ -1,0 +1,11 @@
+Artículo 7°-De la organización. La CIEMH estará organizada de la siguiente manera:
+a) La coordinación de la CIEMH estará a cargo de la Jefatura de la OIEG, y/o a quien esta designe en su ausencia.
+b) La secretaría estará a cargo de alguna persona funcionaria de la OIEG.
+c) Cada una de las personas titulares será nombrada por su jefatura inmediata, por medio de un oficio formal, así como la persona suplente, quien le sustituirá y representará en caso de ausencia.
+d) Las personas titulares designadas y las personas suplentes en la CIEMH, ocuparán su cargo durante dos años consecutivos y podrán ser reelectas. Para ello el quórum se establecerá con la tercera parte más uno de sus integrantes. Los acuerdos se tomarán por consenso, pero de no lograrse, se hará mediante votación de mayoría simple (la mitad más uno de las personas presentes en la sesión). En caso de empate, el voto de quien coordina valdrá por dos.
+e) Solamente si todas las personas integrantes de la CIEMH están de acuerdo se podrá grabar la sesión.
+f) Se utilizará un grupo de WhatsApp, o la app avalada por el MSP en el momento, para establecer una comunicación más ágil y expedita.
+g) El quórum se establecerá con la tercera parte más uno de sus integrantes.
+h) Los acuerdos se tomarán por consenso, pero de no lograrse, se hará mediante votación de mayoría simple (la mitad más uno de las personas presentes en la sesión). En caso de empate, el voto de quien coordina valdrá por dos.
+i) Las sesiones se iniciarán con la lectura de la minuta del acta de la reunión anterior, procediendo a evaluar el estado de cumplimiento de los acuerdos tomados para el cumplimiento de sus objetivos, la CIEMH podrá invitar a sus sesiones a personas representantes de otras instituciones, de la institución, o personas que puedan ofrecer aportes de interés.
+j) Considerando que la Política de Igualdad de Género y la conformación de las Comisiones de Género son políticas institucionales aprobadas por la administración y parte de la obligación institucional ante sus compromisos nacionales e internaciones en materia de Derechos Humanos, las jefaturas de las diferentes dependencias, se encuentran en la obligación de autorizar y facilitar la asistencia de las personas que integran la CIEMH, a las reuniones y actividades que se organicen.
