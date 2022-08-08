@@ -1,1 +1,0 @@
-Artículo 40°-De las consultas del ODP. En cualquier fase del procedimiento y antes del informe final, el ODP podrá convocar de forma consultiva y en calidad de personas asesoras a quienes considere pertinentes.
