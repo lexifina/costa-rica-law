@@ -1,0 +1,1 @@
+Artículo 14.-Procedimientos internos. La Auditoría Interna emitirá los procedimientos internos que serán aplicables en la atención de las denuncias sobre presuntos hechos irregulares por parte de esta.

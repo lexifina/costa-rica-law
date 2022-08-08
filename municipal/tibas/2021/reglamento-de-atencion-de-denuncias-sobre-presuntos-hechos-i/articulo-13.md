@@ -1,0 +1,1 @@
+Artículo 13.-Fundamentación del acto. Desestimación o archivo de denuncias. Cuando se desestime la atención de asuntos denunciados, esa situación deberá quedar debidamente acreditada en los papeles de trabajo y se deberá elaborar la Resolución Administrativa según los procedimientos de la Auditoría Interna.

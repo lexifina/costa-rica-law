@@ -1,0 +1,11 @@
+CAPÍTULO VI
+Causales de desestimación y archivo de la gestión
+Artículo 11.-Causales para la desestimación y archivo de la gestión en las siguientes situaciones:
+a) Cuando los hechos presuntamente irregulares resulten por completo ajenos al ámbito de competencia de la Auditoría Interna,
+b) Cuando los hechos presuntamente irregulares ya hayan sido investigados o estén siendo conocidos por otra instancia con competencia para realizar el análisis y la valoración, así como, para ejercer el control y las potestades disciplinarias atinentes,
+c) Cuando los hechos presuntamente irregulares, constituyan una reiteración o reproducción de asuntos o gestiones que, sin aportar elementos nuevos, refieran a temas resueltos con anterioridad por la Auditoría Interna u otras instancias competentes,
+d) Cuando los hechos presuntamente irregulares se refieran a problemas de índole estrictamente laborales que se presentaron entre funcionarios de la institución y la Administración Activa, o a desavenencias de tipo personal entre funcionarios, salvo que de los hechos se desprenda la existencia de aspectos relevantes que ameriten ser valorados por la Auditoría Interna en razón de sus competencias,
+e) Cuando el costo aproximado de los recursos a invertir para la investigación de los hechos presuntamente irregulares sea superior al valor del hecho denunciado, sin perjuicio de cualquier otra acción alternativa que en el ejercicio de sus competencias las Auditorías Internas pudieran realizar. Para aducir esta causal, la Auditoría Interna debe fundamentarse en elementos objetivos, o haber establecido de previo metodologías para el análisis de costos,
+f) Cuando el asunto denunciado refiera exclusivamente a intereses personales del denunciante, en relación con conductas ejercidas u omitidas por la Administración,
+g) Cuando del análisis inicial resulte evidente que no se ha cometido ninguna infracción al ordenamiento jurídico.
+Para cualquier desestimación deberá existir un acto administrativo debidamente motivado donde se indique a cuál causal de desestimación se está amparando.

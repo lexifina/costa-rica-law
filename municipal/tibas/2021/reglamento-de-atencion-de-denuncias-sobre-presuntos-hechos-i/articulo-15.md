@@ -1,0 +1,1 @@
+Artículo 15.-Vigencia. A partir de su publicación en La Gaceta. Deróguese el Reglamento para la Atención de Denuncias planteadas ante la Auditoría Interna de la Municipalidad de Tibás, publicado en La Gaceta número 93 de fecha 15 de mayo del 2009.

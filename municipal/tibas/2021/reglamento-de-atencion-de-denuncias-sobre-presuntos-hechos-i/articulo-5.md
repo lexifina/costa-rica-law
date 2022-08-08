@@ -1,0 +1,1 @@
+Artículo 5º-Procedimiento para la atención de denuncias. La Auditoría Interna de la Municipalidad de Tibás para analizar hechos presuntamente irregulares lo hará de conformidad con esta normativa y a los procedimientos internos para la atención de denuncias planteadas ante esta Auditoría Interna, según se disponga en la regulación interna.
