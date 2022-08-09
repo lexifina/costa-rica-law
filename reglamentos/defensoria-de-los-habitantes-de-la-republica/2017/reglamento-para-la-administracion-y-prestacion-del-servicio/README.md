@@ -14,3 +14,4 @@ Reglamento para la administración y prestación del servicio de transporte en l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-14 | la propia norma |
+| 2 | 2022-08-09 | Reglamento 0 (2022-08-09) |
