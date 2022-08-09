@@ -1,0 +1,1 @@
+Artículo 155. Infracciones Leves. Se consideran infracciones leves las que cometa quien gestione los residuos ordinarios en condiciones contrarias a las establecidas en las disposiciones municipales sobre el servicio de gestión integral de residuos estipuladas en el presente reglamento.

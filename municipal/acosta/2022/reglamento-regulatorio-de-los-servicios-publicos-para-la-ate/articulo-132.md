@@ -1,0 +1,1 @@
+Artículo 132. (Nota de Sinalevi: En la publicación de este reglamento municipal, no aparece este artículo. No obstante; el Sistema exige una numeración consecutive por lo que se ha credo el mismo pero sin texto.)

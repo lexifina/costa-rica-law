@@ -1,0 +1,1 @@
+Articulo 10. . Acceso a Información de Patentados. Para el cumplimiento de estas acciones, la Municipalidad garantizará que el Gestión Ambiental y los departamentos de Catastro y Patentes cuenten con acceso a una base de datos de contribuyentes completa, actualizada y sistematizada para una eficaz labor de identificación y categorización de generadores.
