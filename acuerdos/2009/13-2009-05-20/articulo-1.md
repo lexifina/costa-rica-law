@@ -1749,5 +1749,13 @@ AUDITOR INTERNO | | 17
 DIRECTOR DE DEPARTAMENTO | | 17
 DIRECTOR DE DIVISIÓN | | 18
 DIRECTOR EJECUTIVO | | 19
+(Nota de Sinalevi: Mediante sesión N° 013 del 9 de agosto de 2022, se acordó aprobar las modificaciones al Manual Descriptivo de Clases Asamblea Legislativa Puestos de Fracciones Políticas. Al no existir el puesto de fracciones políticas, en el presente manual, se transcribe la reforma: ".aprobar las modificaciones al Manual Descriptivo de Clases Asamblea Legislativa Puestos de Fracciones Políticas, a fin de que se incorpore la frase "o superior" y adicional a esto, se añada al requisito de incorporación la frase de "o en el grado del requisito", a las siguientes clases:
+Asesor de Fracción Política 1R
+Asesor Especializado AR
+Asesor Especializado BR
+Subdirector Administrativo de Fracción Política R
+Subdirector de Asesores de Fracción Política R
+Director Administrativo de Fracción Política R
+Director de Asesores Fracción Política R")
 Rige a partir de su publicación en La Gaceta.
 San José, a los veinticinco días del mes de junio del dos mil nueve.
