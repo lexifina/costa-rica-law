@@ -1,1 +1,1 @@
-Artículo 8. Objetividad individual. El personal que ejecuta el proceso de auditoría debe mantener y mostrar una actitud de criterio independiente en el desarrollo de su trabajo, y actuar de manera objetiva, profesional e imparcial, en los hechos y en la apariencia.
+Artículo 8º-Objetividad individual. El personal que ejecuta el proceso de auditoría debe mantener y mostrar una actitud de criterio independiente en el desarrollo de su trabajo, y actuar de manera objetiva, profesional e imparcial, en los hechos y en la apariencia.

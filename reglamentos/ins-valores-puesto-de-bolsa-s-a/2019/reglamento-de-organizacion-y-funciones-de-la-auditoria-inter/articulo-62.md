@@ -1,1 +1,1 @@
-Artículo 62. Vigencia.Este Reglamento rige a partir de la publicación en la Gaceta.
+Artículo 62.-Aprobación. Este Reglamento fue aprobado por la Junta Directiva de INS Valores en la sesión ordinaria N° 678 del 09 de agosto 2022 y por la Contraloría General de la República mediante oficio 17667 (DFOE-CAP-2825) del 24 de octubre del 2022.

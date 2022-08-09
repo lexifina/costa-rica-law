@@ -1,1 +1,1 @@
-Artículo 59. Comunicación de resultados. Los resultados de la autoevaluación anual deberán ponerse en conocimiento de los funcionarios de la Auditoría Interna, comunicando al máximo jerarca lo pertinente.
+Artículo 59.-Comunicación de resultados. Los resultados de la autoevaluación anual deberán ponerse en conocimiento de los funcionarios de la Auditoría Interna, comunicando al máximo jerarca lo pertinente.
