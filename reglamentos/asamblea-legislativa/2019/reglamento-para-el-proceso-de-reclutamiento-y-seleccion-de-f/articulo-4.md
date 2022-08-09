@@ -1,4 +1,7 @@
 Artículo 4º- Por tratarse de un procedimiento para regular lo relativo a la dotación de postulantes para nombramientos interinos, no se contemplará en este reglamento lo relativo al proceso de selección y dotación del personal regular o en propiedad para ingreso al régimen estatutario, el cual se realizará de conformidad con lo establecido en la Ley N° 4556, Ley de Personal de la Asamblea Legislativa así como en el Reglamento de Selección y Nombramiento de Personal mediante Concurso Interno de la Asamblea Legislativa, aprobado por el Directorio Legislativo en la Sesión Ordinaria N° 170-2013 celebrada el 30 de abril de 2013 y publicado en el Diario Oficial La Gaceta N° 126 del 2 de julio de 2013.
 Los nombramientos de los funcionarios de confianza de la Institución, por su parte, se realizarán según lo dispuesto en los artículos 44 y siguientes de la Ley N° 4556, Ley de Personal de la Asamblea Legislativa, por lo que tampoco estarán cubiertos por este instrumento normativo.
-Asimismo, se exceptúa la aplicación de este procedimiento a los puestos de ujieres, así como a los nombramientos menores de un mes.
+Así mismo, se exceptúa la aplicación de este procedimiento a los puestos de ujieres y de la Unidad de Seguridad y Vigilancia. De igual manera, se exceptúan aquellos nombramientos menores de un mes.
+(Así reformado el párrafo anterior en sesión N° 013 del 9 de agosto de 2022)
+El Departamento de Recursos Humanos estará recibiendo ofertas de servicio y atestados originales para corroborar requisitos y conformar el registro de oferentes para la Unidad de Seguridad y Vigilancia, en forma permanente.
+(Así adicionado el párrafo anterior en sesión N° 013 del 9 de agosto de 2022)
 (Así reformado en sesión N° 180 del 27 de octubre de 2021)
