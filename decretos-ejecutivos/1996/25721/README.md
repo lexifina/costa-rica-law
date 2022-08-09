@@ -38,3 +38,4 @@ Reglamento a la Ley Forestal
 | 23 | 2017-06-16 | Decreto Ejecutivo 40625 (2017-06-16) |
 | 24 | 2020-05-22 | Decreto Ejecutivo 42344 (2020-05-22) |
 | 25 | 2022-08-09 | Decreto Ejecutivo 43648 (2022-08-09) |
+| 26 | 2022-08-09 | Decreto Ejecutivo 43649 (2022-08-09) |
