@@ -1,0 +1,1 @@
+Artículo 18° El derecho de uso derivado del comodato se perfeccionará con la suscripción de un contrato de derecho de uso derivado del comodato privado entre las partes, con la firma de la persona física o el representante legal de la persona jurídica quien será en adelante COMODATARIO y el representante legal del Fondo quien será en adelante el COMODANTE.

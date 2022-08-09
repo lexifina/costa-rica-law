@@ -1,0 +1,3 @@
+Artículo 20° Plazo del Contrato de derecho de uso derivado del Comodato.
+El plazo estipulado para la vigencia del presente contrato será de un año, el cual se podrá prorrogar hasta por un año más tras acuerdo del COMODANTE y el COMODATARIO, salvo que antes del cumplimento del periodo prorrogado, por fuerza mayor, se deba prorrogar por más tiempo, para lo cual deberá suscribirse un nuevo contrato.
+El contrato de derecho de uso derivado del de comodato podrá darse por terminado unilateralmente en cualquier momento por parte del COMODANTE, sin previo aviso ni indemnización o reclamación de perjuicio judicial o extrajudicial a favor del COMODANTE.

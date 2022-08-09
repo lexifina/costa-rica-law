@@ -1,0 +1,1 @@
+Artículo 19° El contrato de derecho de uso derivado del comodato deberá estipular explícitamente las cláusulas que establezcan la finalidad específica, las obligaciones y prohibiciones del COMODATARIO.

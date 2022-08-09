@@ -1,0 +1,2 @@
+Artículo 15° Disposiciones generales
+Tiene por objeto establecer los principios, requisitos, obligaciones y procedimientos para el otorgamiento del contrato de derecho de uso derivado del comodato de inmuebles adjudicados al Fondo de Apoyo para la Educación Superior y Técnica del Puntarenense como COMADANTE a un COMODATARIO. Asimismo, regulará el proceso de seguimiento para la correcta utilización y aprovechamiento de los inmuebles entregados.

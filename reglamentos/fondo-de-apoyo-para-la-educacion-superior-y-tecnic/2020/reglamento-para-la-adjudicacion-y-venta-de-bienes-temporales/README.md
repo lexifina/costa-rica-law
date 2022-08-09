@@ -14,3 +14,4 @@ Reglamento para la adjudicación y venta de bienes temporales del Fondo de apoyo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-10 | la propia norma |
+| 2 | 2022-08-09 | Reglamento 8 (2022-08-09) |

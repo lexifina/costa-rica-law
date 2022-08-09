@@ -1,0 +1,2 @@
+Artículo 17º De la selección y autorización para suscribir el contrato de derecho de uso derivado del comodato.
+El Director(a) Ejecutivo presentará un estudio técnico al Consejo Directivo que deberá contener los elementos suficientes y adecuados de los posibles comodatarios. Posteriormente el cuerpo colegiado tomará un acuerdo que autoriza al Director Ejecutivo a realizar el contrato de derecho de uso derivado del comodato sobre un bien inmueble hasta por un año prorrogable. Todo lo anterior de conformidad con los artículos que van del 1334 al 1342 del Código Civil.
