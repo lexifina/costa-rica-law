@@ -1,0 +1,15 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+JUNTA DIRECTIVA NACIONAL
+La Junta Directiva Nacional en su calidad de tal y actuando en funciones propias de asamblea de accionistas, mediante sesión ordinaria N° 5935, acuerdo N° 638, celebrada el 13 de julio del 2022, aprobó modificar el artículo 11 del Reglamento de Inversiones Financieras del CFBPDC, en los siguientes términos:
+REGLAMENTO DE INVERSIONES FINANCIERAS
+DEL CONGLOMERADO FINANCIERO BANCO
+POPULAR Y DE DESARROLLO COMUNAL
+Artículo 11.-Metodologías de Riesgo, aplicadas a las carteras de inversiones. La Dirección Corporativa de Riesgo elaborará:
+1. Un modelo de índice calidad de los emisores financieros (ranking de bancos), y remitirá trimestralmente las concentraciones máximas de inversión que podrán mantenerse en cada entidad bancaria y financiera que reportan Ficha Camels ante la SUGEF.
+En caso de que se incumpla la concentración autorizada, la División de Tesorería Corporativa contará con un periodo de tres meses para normalizar la situación, o en su defecto, se esperará el vencimiento correspondiente de las inversiones y no se renovará con el o los emisores que no cumplan con los requerimientos del modelo de ranking bancario.
+2. La Dirección Corporativa de Riesgo remitirá a la División de Tesorería Corporativa el Informe Análisis de Emisores con el fin de brindar una herramienta adicional para la toma de decisiones. Este análisis, se realiza con el fin de identificar focos de riesgo en la estructura financiera que puedan generar en el futuro posiciones de riesgo de crédito, por parte de los emisores en los cuales se están colocando recursos por parte de la tesorería del Banco.
+Este análisis contribuye en la valoración de la solidez de los emisores, así como de su capacidad para atender sus obligaciones, con el objeto de determinar las opciones seguras de inversión para el banco.
+3. La metodología de Ranking de SAFIS, valora información mensual, en los fondos del mercado de dinero, presentada por las sociedades administradoras de fondos de inversión a la SUGEVAL y se revisará semestralmente los parámetros de evaluación.
+Se presentará mensualmente, a la División de Tesorería Corporativa para su control y seguimiento de lineamientos de concentración por Sociedad de Fondos de Inversión.
+Estos lineamientos se presentarán en colones y dólares según corresponda, estableciendo un máximo de participación en las sociedades.
+4. Aplicación de la metodología para concentración en fondos mutuos y ETF.
