@@ -14,3 +14,4 @@ Reglamento para el uso de los vehíulos municipales del Cantón de Flores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-11-29 | la propia norma |
+| 2 | 2022-08-10 | Reglamento municipal 172 (2022-08-10) |

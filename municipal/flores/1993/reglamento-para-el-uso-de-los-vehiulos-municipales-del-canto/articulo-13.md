@@ -1,1 +1,4 @@
-Artículo 1.3.-EI Ejecutivo Municipal o la persona o Unidad en quien este delegue la siguiente, función, tendrá la obligación de llevar controles diarios y mensuales sobre el kilometraje recorrido, los vehículos, cantidad de combustible y lubricantes utilizados , horas trabajadas, motivo de los viajes y cualquier otra información que se estime conveniente, a fin de que sirva de base para análisis internos o externos sobre el uso dado a los vehículos.
+CAPÍTULO III
+Del uso y conducción
+de los vehículos municipales
+Artículo 13.—Del uso de los vehículos municipales. Los vehículos municipales que se regulan en el presente reglamento, serán utilizados únicamente para el desempeño de funciones públicas y no podrán ser utilizados para fines personales, familiares o actividades que estén fuera de los fines del servicio público y objetivos de la Corporación Municipal.

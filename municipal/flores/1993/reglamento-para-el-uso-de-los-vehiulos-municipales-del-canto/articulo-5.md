@@ -1,6 +1,3 @@
-CAPITULO II
-Clasificación de los vehículos
-Artículo 5º-Los vehículos de la Municipalidad se clasifican en:
-a) De uso discrecional: el asignado por el Concejo al Ejecutivo Municipal quien será responsable del uso correcto del mismo. Tal asignación se da para un mejor cumplimiento de las funciones encomendadas y no para satisfacer necesidades de carácter personal y
-b) De uso administrativo: todos los demás vehículos incluyendo la maquinaria y equipo de vías públicas y recolección. Para realizar labores extraordinarias o asisti r a actos oficiales de la Municipalidad, que se lleven a cabo fuera de horas de oficina o bien, en días sábado, domingos o feriados, se requiere autorización escrita del Ejecutivo Municipal. La solicitud, que también deberá ser por escrito, con copia al Concejo; en todo caso, el Ejecutivo autorizará el servicio únicamente cuando se trate de actividades relacionadas con labores municipales.
-Estos vehículos no podrán usarse para fines contrarios a la ley, moral o las buenas costumbres.
+Artículo 5º—Identificación de los vehículos municipales. Todos los vehículos municipales llevarán siempre una placa de matrícula especial, en los lugares donde legalmente esta, deba colocarse, así como un distintivo visible en sus costados, en donde se muestre lo siguiente: “Municipalidad de Flores”, y la clasificación del mismo, según las regulaciones de este reglamento (Uso Administrativo, Alcaldía, Seguridad Ciudadana- Policía Municipal, Aseo de Vías, Acueducto, Mantenimiento de Parques y /o cualquier otro, etc.).
+En el caso de los vehículos alquilados, deberá colocarse el mismo distintivo, tanto en las puertas, por medio de la colocación de un accesorio tipo magnético o similar, como en el frente del parabrisas, dentro del automotor.
+En el caso de motocicletas, u otros vehículos similares su identificación se efectuará en aquellas secciones de la carrocería que permitan una adecuada y visible caracterización.

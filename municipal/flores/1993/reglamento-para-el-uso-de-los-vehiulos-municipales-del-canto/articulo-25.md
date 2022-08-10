@@ -1,3 +1,1 @@
-CAPITULO
-VII Disposiciones Finales
-Artículo 25.-Las disposiciones contenidas en este reglamento no limitan al Concejo Municipal a aplicar sanciones más severas que resulten según la gravedad del caso, todo ello de conformidad con el Código de Trabajo y las leyes respectivas.
+Artículo 25.—Del mantenimiento de la maquinaria especial. Tratándose de este tipo de equipo, el chofer a cargo deberá revisar diariamente, como mínimo niveles de aceites, agua, llantas y cualesquiera otros componentes que sean indispensables para asegurar el buen uso y evitar futuros daños. Los vehículos o maquinaria especial tendrán, debido a su función, traslado y uso, un régimen diferenciado de mantenimiento mecánico preventivo mínimo, siguiendo en todo momento las indicaciones que el proveedor de dicha maquinaria haya brindado en la compra o en el manual de operación, o en su defecto, siguiendo las buenas y sanas costumbres de mecánica preventiva del mercado.

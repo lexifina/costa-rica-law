@@ -1,0 +1,1 @@
+Artículo 34.—Reformas. Este reglamento reforma totalmente el Reglamento para el uso de los Vehículos Municipales, publicado en el Diario Oficial La Gaceta N° 228 del 29 de noviembre de 1993 y cualquier otro que se le contraponga.

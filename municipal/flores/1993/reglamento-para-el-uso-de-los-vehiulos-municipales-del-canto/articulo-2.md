@@ -1,1 +1,1 @@
-Artículo .2-Lo.s vehículos de la Municipalidad serán administrados por el Ejecutivo Municipal siguiendo las reglas que se consignan en el presente reglamento .
+Artículo 2º—Ámbito de aplicación. La siguiente normativa interna, será de aplicación obligatoria para todos los funcionarios de la municipalidad de Flores, quienes, en el desempeño de sus labores, ya sea, en su condición de usuario, conductor, mensajero y/o cualquier otro, usen, conduzcan, controlen o administren los vehículos municipales.

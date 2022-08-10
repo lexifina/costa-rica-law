@@ -1,1 +1,1 @@
-Artículo 15.-Todos los vehículos de la Municipalidad deben estar cubiertos por una póliza de seguro contra todo riesgo, correspondiendo al Ejecutivo en coordinación con la tesorería, el oportuno y permanente cumplimiento de esta disposición.
+Artículo 15.—Restricción horaria de uso. Todos los vehículos municipales serán utilizados en el horario ordinario de trabajo establecido por la municipalidad, o en su defecto, durante horario especial de trabajo establecido por su superior para el desempeño de sus funciones públicas.

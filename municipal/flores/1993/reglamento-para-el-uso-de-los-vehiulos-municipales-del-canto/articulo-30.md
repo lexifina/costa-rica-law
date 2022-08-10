@@ -1,0 +1,1 @@
+Artículo 30.—Responsabilidad por accidente. El conductor que fuere declarado culpable de haber causado la colisión dentro de un proceso judicial mediante el dictado de una sentencia firme, deberá cancelar las multas impuestas, y de proceder, el respectivo deducible, según establezca el ente asegurador.

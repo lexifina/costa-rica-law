@@ -1,0 +1,5 @@
+Artículo 31.—Procedimiento en caso de daño o robo al vehículo. Si durante la utilización de un vehículo municipal, este sufriera un daño, robo u otro, el conductor y sus acompañantes deberán proceder de la siguiente manera:
+a) Dar aviso a la Jefatura Inmediata y al Administrador del vehículo para que se giren instrucciones y se tomen las medidas del caso.
+b) Dar aviso inmediato a las autoridades y al ente asegurador del vehículo, según sea el caso, en caso de daño menor y/o tacha, no deberán mover el vehículo hasta que los mismos se apersonen al lugar y realicen su labor.
+c) Obtener información sobre las personas afectadas en el incidente y los testigos, si los hubiere, así como tomar fotografías de los daños sufridos por el vehículo; y cualquier otro que se considere pertinente, para posteriormente utilizar, en el supuesto que se deba plantear un proceso judicial.
+d) Elaborar un informe de lo sucedido en el término de tres días, posteriores al incidente y entregarlo a la Jefatura Directa, quien a su vez trasladara el caso a la Alcaldía a efecto de que se tomen las medidas pertinentes.

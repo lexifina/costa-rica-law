@@ -1,0 +1,1 @@
+Artículo 33.—Otras disposiciones. En lo no previsto en este reglamento, siempre que no se requiera disposición reglamentaria específica y que se esté frente a actuaciones de administración general la Alcaldía Municipal podrá mediante directriz suplir la ausencia normativa.
