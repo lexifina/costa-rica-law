@@ -1,0 +1,3 @@
+TRANSITORIO l- Las disposiciones contenidas en la presente reforma se aplicarán sin efecto retroactivo a los ingenios que estén en proceso de cierre, conforme a las anteriores regulaciones sobre este tema.
+Para los ingenios a los que se refiere el inciso 2 del artículo 128, se otorgará la cuota que tenían inmediata anterior al proceso de cierre.
+A los ingenios receptores de la caña de un ingenio en proceso de cierre, que esté en el supuesto del inciso 2 del artículo 128, se les excluirá, para efectos del cálculo futuro de su cuota de referencia, los bultos de azúcar que han producido a partir de la caña entregada por los productores del ingenio que cerró.
