@@ -1,1 +1,0 @@
-Artículo 11.- En el marco de lo establecido en la Ley número 8488, todas las instituciones públicas están obligadas a contribuir en lo necesario con apoyo técnico en las 3 fases de la emergencia, pudiéndose asignar tareas específicas a cada institución en el marco de sus competencias.

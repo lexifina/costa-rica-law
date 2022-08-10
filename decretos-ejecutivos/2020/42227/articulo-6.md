@@ -1,3 +1,0 @@
-Artículo 6.- De conformidad con el artículo 47 la Ley Nacional de Prevención de Riesgos y Atención de Emergencias, para la atención de la presente declaratoria de emergencia nacional, la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias podrá destinar fondos y aceptar donaciones de entes públicos y privados, los cuales ingresarán al Fondo Nacional de Emergencias.
-El Poder Ejecutivo gestionará el aprovisionamiento presupuestal al Fondo Nacional de Emergencias para la eventual adquisición de vacunas contra la enfermedad producida por el virus SARS-Cov2.
-(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 42630 del 29 de setiembre del 2020)
