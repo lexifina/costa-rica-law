@@ -1,1 +1,4 @@
-Artículo 27. La Dirección de Extensión, remitirá cada cuatrimestre un acta con la lista de estudiantes que concluyeron el TCU al Departamento de Registro y a la Dirección de Carrera.
+Artículo 27. Cierre anticipado de un proyecto de Trabajo Comunal Universitario. Las instancias universitarias proponentes, pueden solicitar el cierre anticipado de un proyecto cuando se presenten las siguientes condiciones:
+a. Imposibilidad justificada de dar continuidad al proyecto, debido a motivos de orden institucional, fenómenos naturales o antropogénicos que impidan su desarrollo, o debido al cese de la relación con la organización socia comunitaria.
+b. Casos particulares en que las instancias académicas competentes consideren que el proyecto ha perdido la pertinencia en relación con las necesidades de la organización socia comunitaria, las políticas y/o lineamientos de la universidad.
+Cuando se presente alguna causa de cierre anticipado, las instancias universitarias encargadas del proyecto deben desarrollar un plan de contingencia para el proceso de cierre con la organización socia comunitaria y el informe final del proyecto.

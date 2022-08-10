@@ -1,5 +1,6 @@
-Artículo 3. El TCU contempla los siguientes propósitos:
-1. Facilitar que los estudiantes puedan devolver a la sociedad mediante el trabajo comunal, el beneficio recibido de su educación universitaria, como acto de reciprocidad, solidaridad y compromiso con la sociedad a la que pertenece.
-2. Desarrollar la sensibilidad social, tanto en estudiantes como docentes, por medio de ambientes de aprendizaje flexibles y la participación en la solución de problemas específicos de las comunidades.
-3. Enriquecer, a través del aprendizaje que le aporte el trabajo comunal, el proceso formativo integral de los estudiantes y contribuir a la formación de profesionales con sentido de responsabilidad social con su entorno.
-4. Fortalecer el vínculo universidad – comunidad, trabajando en coordinación para la solución de problemas concretos con aquellos sectores o comunidades que así lo requieran.
+Artículo 3. Objetivos del Trabajo Comunal Universitario. El Trabajo Comunal Universitario en la Universidad Técnica Nacional contempla los siguientes objetivos:
+a. Promover el desarrollo, el bienestar y la mejora en la calidad de vida de los grupos sociales y comunidades en condición de vulnerabilidad y riesgo, por medio de la reflexión crítica, que favorezca la resolución de las necesidades reales y sentidas.
+b. Impulsar el protagonismo de las personas estudiantes universitarias en la elaboración y práctica de acciones solidarias que contribuyan al desarrollo de las comunidades del país.
+c. Contribuir al proceso formativo integral de las personas estudiantes, mediante la vinculación de los contenidos académicos desarrollados en las carreras universitarias con las acciones solidarias, que promueva el ejercicio profesional con compromiso social.
+d. Facilitar la vinculación horizontal entre las personas estudiantes, académicas y actores sociales mediante el diálogo de saberes en proyectos que generen impacto en la sociedad.
+e. Implementar proyectos que respondan a las necesidades sociales, alineados estratégicamente con las políticas institucionales.

@@ -1,0 +1,5 @@
+Artículo 38. Prórroga de la participación estudiantil en un proyecto. La persona estudiante puede solicitar por única vez la prórroga de su Trabajo Comunal Universitario por el máximo de un periodo lectivo, ante la subárea de Trabajo Comunal Universitario de la sede o Centro de Formación Pedagógica y Tecnología Educativa. Criterios para la prórroga:
+a. Las subáreas de Trabajo Comunal Universitario de las Áreas de Extensión y Acción Social de las sedes universitarias y el Área de Formación Pedagógica del Centro de Formación Pedagógica y Tecnología Educativa, cuentan con un periodo de máximo 20 días hábiles para avalar o rechazar la solicitud.
+b. Para solicitar una prórroga, la persona estudiante debe haber completado al menos 80 horas de Trabajo Comunal Universitario.
+c. Las solicitudes de prórroga se presentan 30 días hábiles antes del cierre del segundo periodo vigente de la persona estudiante en el Trabajo Comunal Universitario.
+d. La persona estudiante que realice este proceso debe hacer el pago de las obligaciones financieras correspondientes al periodo de participación prorrogado.

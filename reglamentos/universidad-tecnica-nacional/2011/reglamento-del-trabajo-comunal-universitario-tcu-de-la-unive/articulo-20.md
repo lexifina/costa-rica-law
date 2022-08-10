@@ -1,1 +1,4 @@
-Artículo 20. La matrícula de TCU se formaliza en la Unidad de Registro de cada Sede, y del Centro de Formación Pedagógica y Tecnología Educativa.
+Artículo 20. El financiamiento y los recursos externos de los proyectos de Trabajo Comunal Universitario. Las subáreas de Trabajo Comunal Universitario de las Áreas de Extensión y Acción Social de las sedes universitarias y el Área de Formación Pedagógica del Centro de Formación Pedagógica y Tecnología Educativa, cuentan con unidades y metas presupuestarias para el desarrollo de los proyectos de Trabajo Comunal Universitario.
+Por medio del Plan Anual Operativo (PAO), se asignan a los proyectos los recursos financieros, materiales y humanos necesarios para su sostenibilidad.
+Para el caso de los proyectos que se generen desde las distintas carreras (unidades académicas), centros, institutos u otras áreas de gestión universitarias, los tiempos académicos, son brindados por la instancia proponente.
+Además, los proyectos en ejecución pueden recibir cooperación económica y material por medio de fuentes de financiamiento externo, todo de conformidad con la normativa institucional y nacional relacionada con este particular.

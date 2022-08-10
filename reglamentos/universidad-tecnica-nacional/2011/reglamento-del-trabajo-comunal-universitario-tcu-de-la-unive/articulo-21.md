@@ -1,1 +1,2 @@
-Artículo 21. Para matricular el TCU los estudiantes deben haber concluido la totalidad del plan de estudios de diplomado y estar matriculado en materias del plan de estudios de bachillerato.
+Artículo 21. Proyectos interuniversitarios. Se pueden desarrollar proyectos de Trabajo Comunal Universitario con carácter interuniversitario, para la articulación en las diferentes regiones del país.
+La Vicerrectoría de Extensión y Acción Social es la responsable de la negociación, monitoreo y seguimiento de los acuerdos en coordinación con las Áreas de Extensión y Acción Social de las sedes universitarias y el Área de Formación Pedagógica del Centro de Formación Pedagógica y Tecnología Educativa.

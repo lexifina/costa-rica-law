@@ -1,8 +1,12 @@
-Artículo 11. Los proyectos propuestos para el TCU se elaborarán con base en los siguientes criterios:
-a) Poseer un carácter interdisciplinario. Debe permitir la incorporación de varias disciplinas tanto en el nivel de la planificación como de la ejecución.
-b) Guardar una estrecha relación con el quehacer de las unidades académicas, carreras, centros especializados y comisiones institucionales de cada sede o de la Universidad, proponentes.
-c) Permitir que estudiantes de diferentes carreras se puedan inscribir en el proyecto.
-d) Tener un impacto positivo en las comunidades en las que se implementan.
-e) Estimar su pertinencia social en la relación universidad – sociedad que la Universidad pretende.
-f) Definir el número de estudiantes participantes en el proyecto.
-g) Tener una duración mínima de 3 años.
+Artículo 11. Responsabilidades de las Áreas de Extensión y Acción Social de las sedes universitarias y el Centro de Formación Pedagógica y Tecnología Educativa. Las responsabilidades de las Áreas de Extensión y Acción Social de las sedes universitarias y el Centro de Formación Pedagógica y Tecnología Educativa son: [imagen]
+a. Atender la ejecución de políticas y estrategias en materia de Trabajo Comunal Universitario emanadas desde la Vicerrectoría de Extensión y Acción Social.
+b. Proponer según las necesidades y recursos de las Áreas de Extensión y Acción Social de las sedes universitarias y el Área de Formación Pedagógica del Centro de Formación Pedagógica y Tecnología Educativa a la persona enlace de la subárea de Trabajo Comunal Universitario, a excepción de la Sede Central quien propone a la persona responsable de la sub área de Trabajo Comunal Universitario a tiempo completo debido a su magnitud.
+c. Coordinar de manera conjunta con las instancias académicas los aspectos relacionados con el Trabajo Comunal Universitario.
+d. Ejercer la vigilancia de la aplicación de mecanismos de seguimiento y control necesarios para asegurar la obtención de resultados e impactos de los proyectos.
+e. Promover alianzas para la elaboración de proyectos y la asociación de estos con iniciativas académicas ya existentes.
+f. Proponer a la Vicerrectoría de Extensión y Acción Social la realización de estudios vinculados con las áreas de acción y políticas definidas para el Trabajo Comunal Universitario, de manera que las sedes universitarias y el Centro de Formación Pedagógica y Tecnología Educativa, respondan de manera eficaz a las demandas sociales de su región.
+g. Coordinar con las instancias académicas proponentes la creación de nuevos proyectos de Trabajo Comunal Universitario, según lo establecido en el Plan Institucional de Desarrollo Estratégico (PIDE) y en vinculación con las necesidades de su región.
+h. Remitir a la Comisión Técnica de Trabajo Comunal Universitario y a la Vicerrectoría de Extensión y Acción Social las propuestas de proyectos nuevos, prórrogas de proyectos vigentes y cierres anticipados de los mismos, avalados en las Áreas de Extensión y Acción Social de las sedes universitarias y el Centro de Formación Pedagógica y Tecnología Educativa.
+i. Elaborar informes de rendición de cuentas anuales o cuando se solicite sobre el avance en el cumplimiento de metas relacionadas con la subárea de Trabajo Comunal Universitario de la sede universitaria o el Centro de Formación Pedagógica y Tecnología Educativa.
+j. Programar la designación de jornada académica correspondiente, durante la totalidad del período de vigencia del proyecto de Trabajo Comunal Universitario, a fin de que se efectúe el acompañamiento a las personas estudiantes y el seguimiento a las acciones planificadas con la organización socia comunitaria.
+k. Participar en el Comité de Trabajo Comunal Universitario de la Vicerrectoría de Extensión y Acción Social o bien designar su representante en la misma.

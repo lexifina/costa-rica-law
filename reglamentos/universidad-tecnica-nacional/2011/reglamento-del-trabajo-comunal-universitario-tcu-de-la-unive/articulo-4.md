@@ -1,1 +1,1 @@
-Artículo 4. Los estudiantes que hayan realizado el TCU en otra universidad, podrán solicitar el respectivo reconocimiento, conforme el procedimiento establecido para dicho efecto.
+Artículo 4. Actores sociales participantes. El Trabajo Comunal Universitario se orienta al trabajo con actores sociales en condición de vulnerabilidad, sociedad civil, organizaciones gubernamentales y no gubernamentales, así como demás actores vinculantes según el área de influencia de las sedes universitarias y el Centro de Formación Pedagógica y Tecnología Educativa.

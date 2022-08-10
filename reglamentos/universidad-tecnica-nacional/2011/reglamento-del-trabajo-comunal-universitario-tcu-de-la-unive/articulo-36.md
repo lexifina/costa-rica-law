@@ -1,0 +1,1 @@
+Artículo 36. Reconocimiento y equiparación del Trabajo Comunal Universitario. El reconocimiento y equiparación del Trabajo Comunal Universitario se realiza según el procedimiento y periodos establecidos por Registro Universitario.

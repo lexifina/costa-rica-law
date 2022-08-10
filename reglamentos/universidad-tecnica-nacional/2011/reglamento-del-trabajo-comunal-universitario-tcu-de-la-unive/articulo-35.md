@@ -1,0 +1,1 @@
+Artículo 35. Certificaciones de Trabajo Comunal Universitario. Para la emisión de certificaciones por parte de Registro Universitario, se reconoce máximo 150 de horas de Trabajo Comunal Universitario y se sigue el procedimiento establecido por esa instancia.

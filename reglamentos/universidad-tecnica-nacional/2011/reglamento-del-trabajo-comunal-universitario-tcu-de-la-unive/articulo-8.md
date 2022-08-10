@@ -1,4 +1,16 @@
-Artículo 8º—Las horas del TCU a las que se refiere el artículo anterior, se desarrollarán de la siguiente forma:
-a) Del total de 150 horas de servicio, 120 horas serán de trabajo de campo directo con la comunidad y 30 horas corresponderán a procesos de inducción, organización y planificación de las actividades de campo, elaboración de informes y otras tareas académicas y administrativas que estén asociadas al mismo.
-b) La totalidad de las horas deben ser cumplidas por el estudiante en un plazo no mayor a dos cuatrimestres consecutivos.
-(Así reformado en sesión N° 07-2017 del 20 de abril de 2017)
+SECCIÓN II
+RESPONSABILIDADES DE LAS INSTANCIAS DE GESTIÓN DEL TRABAJO COMUNAL UNIVERSITARIO
+Artículo 8. Responsabilidades del proceso de Trabajo Comunal Universitario en la Vicerrectoría de Extensión y Acción Social. Las responsabilidades del proceso de Trabajo Comunal Universitario son:
+a. Ejercer la dirección política y estratégica sobre las áreas de su competencia y mantener la facultad de orientar y evaluar el impacto del Trabajo Comunal Universitario en todos los niveles.
+b. Gestionar las tareas de dirección política y técnica superior, coordinación y supervisión general y específica, seguimiento, control y evaluación de lo ejecutado a nivel de las sedes universitarias; bajo la jerarquía de la persona Vicerrectora de Extensión y Acción Social y en coordinación funcional con las Decanaturas y las Áreas de Extensión y Acción Social de las sedes universitarias y el Centro de Formación Pedagógica y Tecnología Educativa.
+c. Generar los lineamientos y directrices universitarias de carácter académico y administrativo, para la consolidación y desarrollo continuo del Trabajo Comunal Universitario.
+d. Elaborar en conjunto con las sedes universitarias y el Centro de Formación Pedagógica y Tecnología Educativa un plan estratégico para el desarrollo del Trabajo Comunal Universitario, considerando las necesidades institucionales, estudiantiles y de los actores sociales.
+e. Coordinar el Proceso de Trabajo Comunal Universitario.
+f. Coordinar reuniones periódicas del Comité de Trabajo Comunal Universitario.
+g. Avalar las propuestas de nuevos proyectos presentadas por las Áreas de Extensión y Acción Social de las sedes universitarias y el Centro de Formación Pedagógica y Tecnología Educativa.
+h. Evaluar el estado y el impacto de ejecución de los proyectos, en coordinación con las Áreas de Extensión y Acción Social de las sedes universitarias y el Centro de Formación Pedagógica y Tecnología Educativa.
+i. Promover convenios estratégicos con organizaciones e instituciones del sector público o privado, nacional o internacional y de la sociedad civil para la generación proyectos de Trabajo Comunal Universitario.
+j. Promover la formulación de proyectos con instituciones de educación superior pública, en conjunto con las Áreas de Extensión y Acción Social de las sedes universitarias, el Centro de Formación Pedagógica y Tecnología Educativa e instancias universitarias proponentes.
+k. Coordinar la realización de estudios vinculados con las áreas de acción y políticas definidas para el Trabajo Comunal Universitario, de manera que las sedes universitarias y el Centro de Formación Pedagógica y Tecnología Educativa respondan de manera eficaz a las demandas sociales de cada región.
+l. Elaborar informes de rendición de cuentas anuales o cuando se solicite sobre el avance en el cumplimiento de metas relacionadas con el proceso de Trabajo Comunal Universitario a nivel institucional.
+m. Promover espacios de reflexión y formación a nivel de la comunidad universitaria, los grupos sociales interesados y participantes del Trabajo Comunal Universitario en coordinación con las Áreas de Extensión y Acción Social de las sedes universitarias y el Centro de Formación Pedagógica y Tecnología Educativa.

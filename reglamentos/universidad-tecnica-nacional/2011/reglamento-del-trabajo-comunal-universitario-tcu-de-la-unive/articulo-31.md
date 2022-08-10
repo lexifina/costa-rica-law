@@ -1,0 +1,1 @@
+Artículo 31. Matrícula estudiantil intersede. En caso de que la persona estudiante vaya a realizar la matrícula intersede, debe seguir el procedimiento establecido por Registro Universitario, en la sede que se encuentra empadronado y en las fechas calendarizadas.

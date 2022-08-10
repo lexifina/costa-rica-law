@@ -1,1 +1,2 @@
-Artículo 5. Para realizar su TCU, los estudiantes se deben insertar en proyectos innovadores que propongan y desarrollen las distintas unidades académicas de la UTN.
+Artículo 5. El Trabajo Comunal Universitario y su vinculación con la Extensión y la Acción Social. El Trabajo Comunal Universitario es un proceso del eje estratégico de Acción Social de la Vicerrectoría de Extensión y Acción Social.
+En las Sedes Universitarias, el Trabajo Comunal Universitario se desarrolla desde las subáreas de Trabajo Comunal Universitario de las Áreas de Extensión y Acción Social y en el Centro de Formación Pedagógica y Tecnología Educativa, desde el Área de Formación Pedagógica.

@@ -1,0 +1,1 @@
+Artículo 37. Retiro justificado de matrícula del Trabajo Comunal Universitario. La persona estudiante puede realizar la solicitud de retiro justificado del Trabajo Comunal Universitario matriculado según el procedimiento y periodos establecidos por Registro Universitario.

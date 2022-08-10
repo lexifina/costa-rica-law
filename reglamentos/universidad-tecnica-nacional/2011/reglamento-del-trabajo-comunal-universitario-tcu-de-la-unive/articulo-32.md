@@ -1,0 +1,5 @@
+Artículo 32. Aprobación del requisito de Trabajo Comunal Universitario. Para la aprobación del requisito de Trabajo Comunal Universitario deben tomarse en cuenta los siguientes criterios:
+a. El cumplimiento de ciento cincuenta horas (150) de Trabajo Comunal Universitario. Para ser contabilizadas, las horas realizadas por la persona estudiante deben contar con el visto bueno de la persona académica encargada del proyecto y de la organización socia comunitaria. El registro de horas y actividades de ejecución del proyecto, así como la validación de estas por parte de la organización socia comunitaria se realiza por medio de las herramientas definidas por la Vicerrectoría de Extensión y Acción Social.
+b. La consecución, por parte de la persona estudiante, de las siguientes actividades evaluativas:
+b.1. Cumplir los objetivos, actividades y productos establecidos en el plan de trabajo acordado entre la persona estudiante y la persona académica encargada del proyecto, en coordinación con la organización socia comunitaria
+b.2. La elaboración y entrega del informe final del proyecto.

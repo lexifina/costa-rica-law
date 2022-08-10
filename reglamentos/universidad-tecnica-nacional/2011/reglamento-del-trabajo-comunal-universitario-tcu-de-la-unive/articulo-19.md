@@ -1,3 +1,1 @@
-CAPITULO III.
-Del desarrollo y cumplimiento del TCU
-Artículo 19. El Trabajo Comunal Universitario en la UTN, es requisito de graduación del grado de Bachillerato y este no reemplazará las prácticas profesionales incluidas en los planes de estudio de las diversas carreras universitarias.
+Artículo 19. Cantidad de estudiantes y tiempos docentes dedicados al Trabajo Comunal Universitario. Cada proyecto debe contar con un mínimo de 15 estudiantes y un máximo de 25 estudiantes matriculados por cuarto de tiempo docente asignado.
