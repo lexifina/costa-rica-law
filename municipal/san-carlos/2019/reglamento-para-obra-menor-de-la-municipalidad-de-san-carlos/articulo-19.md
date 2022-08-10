@@ -1,0 +1,1 @@
+Artículo 19. Una vez otorgado el permiso, la oficina de Desarrollo y Control Urbano, trasladará el permiso de construcción al departamento de inspectores, para eventuales inspecciones de corroboración si así fueren solicitadas por el Departamento de Desarrollo y Control Urbano.

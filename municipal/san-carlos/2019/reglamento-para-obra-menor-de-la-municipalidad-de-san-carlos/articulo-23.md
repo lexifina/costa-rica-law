@@ -1,0 +1,1 @@
+Artículo 23.-Las actuaciones de los funcionarios municipales serán susceptibles, dentro de los cinco días hábiles contados a partir de su notificación, de recurso de revocatoria, y de apelación en ese orden, de conformidad al artículo 162 del Código Municipal.
