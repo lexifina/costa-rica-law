@@ -1,0 +1,1 @@
+Artículo 9º-Los fondos de caja chica deberán ser utilizados en el pago de gastos menores de urgencia, así como en la adquisición de bienes y servicios de uso común que se presenten en forma ocasional y que justifiquen su pago fuera de los trámites ordinarios, entendiéndose esta acción auxiliar a la gestión de compras, así como para pagar viáticos y gastos de viaje.

@@ -1,0 +1,1 @@
+Artículo 26.-El encargado de caja chica deberá incluir en el programa de trabajo de esa dependencia como mínimo la realización de un arqueo semanal del fondo de caja chica, sin demérito de los arqueos sorpresivos realizados por el Auditor Interno y/o Tesorero de la Junta Directiva del Comité que sean necesarios.

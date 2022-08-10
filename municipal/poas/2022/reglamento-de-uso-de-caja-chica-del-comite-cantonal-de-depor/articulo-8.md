@@ -1,0 +1,1 @@
+Artículo 8º-La caja chica contendrá siempre el total del monto asignado el cual según el caso estará integrado de la siguiente forma: dinero en efectivo, vales liquidados y vales en trámite de reintegro. En ningún caso podrán sustituirse estos valores por otros de índole extraña a la naturaleza de la caja chica.

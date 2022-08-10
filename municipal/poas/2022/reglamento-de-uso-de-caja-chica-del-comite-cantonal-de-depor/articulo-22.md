@@ -1,0 +1,1 @@
+Artículo 22.-Es responsabilidad del encargado de caja chica diseñar y mantener un adecuado sistema de control del fondo autorizado, en concordancia con las prácticas sanas de control interno, el Manual de Normas Técnicas de Control Interno por la Contraloría General de la República y demás Órganos Sujetos a su Fiscalización y el Código Municipal.

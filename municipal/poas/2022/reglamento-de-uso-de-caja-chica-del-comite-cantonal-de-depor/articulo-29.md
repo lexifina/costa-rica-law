@@ -1,0 +1,1 @@
+Artículo 29.-Cuando el encargado de caja chica sea sustituido por otra persona que ocupe temporalmente ese cargo se realizará un arqueo del cual se dejará constancia escrita, con la firma del encargado de caja chica y la persona que lo sustituirá. Igual procedimiento se utilizará cuando el encargado de caja chica se reintegre a su puesto.
