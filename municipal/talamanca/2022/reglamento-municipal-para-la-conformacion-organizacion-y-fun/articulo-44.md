@@ -1,0 +1,1 @@
+Artículo 44.-De la no ejecución del proyecto. En caso de no poderse ejecutar un proyecto, el Comité deberá comunicarlo por escrito al Consejo de la Persona Joven y al Concejo Municipal y justificar la situación presentada.

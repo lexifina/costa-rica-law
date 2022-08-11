@@ -1,0 +1,1 @@
+Artículo 60.-Cada año el CCPJT debe presentar el informe de rendición de cuentas. El mismo debe ser entregado de forma impresa y digital ante la Unidad de Promoción de la Participación Juvenil. Este informe debe presentarse el último día y hora hábil en el mes de diciembre.

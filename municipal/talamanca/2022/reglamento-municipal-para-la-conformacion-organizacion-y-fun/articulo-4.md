@@ -1,0 +1,1 @@
+Artículo 4º-A efectos de la aplicación del presente Reglamento, se designa a la oficina de Proyectos de la Municipalidad de Talamanca para dar acompañamiento y asesoría al CCPJT, la cual será así mismo la instancia municipal encargada de velar por la correcta aplicación de este Reglamento.

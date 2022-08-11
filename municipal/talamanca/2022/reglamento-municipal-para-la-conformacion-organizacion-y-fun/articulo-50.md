@@ -1,0 +1,1 @@
+Artículo 50.-De conformidad con lo que señala la Ley de Administración Financiera de la República y Presupuestos Públicos, debe cumplirse con las reglas elementales de lógica, justicia y conveniencia en el uso y destino de los fondos recibidos.

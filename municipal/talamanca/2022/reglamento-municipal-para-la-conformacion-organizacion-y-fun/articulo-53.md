@@ -1,0 +1,1 @@
+Artículo 53.-De la información. La Municipalidad de Talamanca deberá brindar al Consejo de la Persona Joven la información, documentos, aclaraciones y explicaciones que este requiera sobre el manejo de los fondos aportados por la Institución para el proyecto del Comité.
