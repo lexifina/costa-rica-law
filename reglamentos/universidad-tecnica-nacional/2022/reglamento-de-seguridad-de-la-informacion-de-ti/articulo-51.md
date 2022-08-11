@@ -1,0 +1,1 @@
+Artículo 51. Acceso a los archivos y documentos físicos. El acceso a la información y documentos físicos están estrictamente controlados, asegurando que sólo las personas autorizadas tengan acceso a la información sensible, en concordancia con las normas establecidas por el Sistema Universitario de Gestión Documental.

@@ -1,0 +1,1 @@
+Artículo 36. Informática móvil y comunicaciones. La Universidad establece los controles, a través de medidas de seguridad apropiadas, para proteger contra los riesgos de utilizar medios informáticos y comunicación móviles. Es deber incluir estas medidas en la utilización segura y eficiente de las redes inalámbricas.

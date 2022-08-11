@@ -1,0 +1,1 @@
+Artículo 96. Valoración en la prioridad de recuperación de aplicaciones multiusuario. Es deber de la Unidad de Infraestructura y Comunicaciones, establecer y utilizar un esquema lógico para la clasificación de los recursos de información por prioridad de recuperación, el cual permita que los recursos más críticos se recuperen primero.

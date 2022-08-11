@@ -1,0 +1,1 @@
+Artículo 52. Anulación de privilegios de acceso. La Dirección de Gestión de Tecnologías de la Información es la responsable de anular, en cualquier momento, los derechos de acceso a recursos de tecnologías de información, amparada en una causa justificada de compromiso de la seguridad de la información.

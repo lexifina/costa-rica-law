@@ -1,0 +1,1 @@
+Artículo 57. Control de dispositivos móviles. Cuando la Dirección General Administrativa Universitaria autoriza el uso de dispositivos móviles externos, la persona responsable se ajusta a los lineamientos y estándares establecidos por la Dirección de Gestión de Tecnologías de la Información.

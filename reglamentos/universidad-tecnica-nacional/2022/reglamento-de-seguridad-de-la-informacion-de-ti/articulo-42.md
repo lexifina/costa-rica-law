@@ -1,0 +1,1 @@
+Artículo 42. Gestión de instalaciones externas. En el caso de tercerizar la administración de los centros de comunicación o data center, es deber de las jefaturas involucradas, diseñar e incorporar controles con el proveedor del servicio en el contrato.

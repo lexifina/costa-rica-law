@@ -1,0 +1,1 @@
+Artículo 92. Análisis de impacto. Producto del análisis institucional de evaluación de riesgos, la persona responsable de la información, específica el tiempo en el que puede operar sin procesamiento de información crítica, el período de tiempo antes de movilizar sus operaciones bajo el modelo de contingencia y la configuración mínima aceptable para la operación.

@@ -1,0 +1,1 @@
+Artículo 62. Administración de accesos de persona usuaria. Es deber del área involucrada autorizar el acceso a todo sistema por la persona responsable de la información; además, agregar el detalle de dichos accesos y registrarlos en una lista de control de accesos. Tales registros son considerados documentos de acceso restringido.

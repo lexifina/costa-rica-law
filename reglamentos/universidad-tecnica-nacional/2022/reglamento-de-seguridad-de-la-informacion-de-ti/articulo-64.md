@@ -1,0 +1,2 @@
+Artículo 64. Acceso a la administración de los sistemas operativos.
+El acceso a la administración de los sistemas operativos se limita a las personas autorizadas para la ejecución de funciones de administración del sistema. En el caso de los sistemas operativos, bajo la custodia de la Dirección de Gestión de Tecnologías de la Información, tal acceso se realiza con la aprobación específica de los responsables de las áreas de infraestructura y de seguridad; en otros casos, la aprobación es otorgada por la jefatura inmediata correspondiente.

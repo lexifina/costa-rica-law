@@ -1,0 +1,1 @@
+Artículo 61. Control de conexión a la red. Se restringe la capacidad de conexión de las personas que comparten todas las necesidades de transmisión (redes compartidas), en especial aquellas que se extienden más allá de los límites de la institución, en concordancia con el control de acceso.

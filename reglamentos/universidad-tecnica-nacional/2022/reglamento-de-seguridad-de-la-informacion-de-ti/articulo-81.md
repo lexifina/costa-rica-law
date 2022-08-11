@@ -1,0 +1,1 @@
+Artículo 81. Verificación de versiones de software. Es deber de la Dirección de Gestión de Tecnologías de la Información, utilizar un procedimiento formal para el control comprensivo de las diferentes versiones de los programas y sistemas operativos.

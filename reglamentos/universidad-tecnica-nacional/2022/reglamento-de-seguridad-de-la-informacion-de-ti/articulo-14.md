@@ -1,0 +1,1 @@
+Artículo 14. Clasificación de la información. Es deber de la persona responsable de la información, clasificarla y protegerla, de acuerdo con la sensibilidad, el valor, la criticidad, la confidencialidad, la integridad y la disponibilidad que tenga para la Universidad.

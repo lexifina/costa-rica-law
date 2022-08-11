@@ -1,0 +1,1 @@
+Artículo 6. Incumplimiento de la política de seguridad de la información. La Unidad de Seguridad de la Dirección de Gestión de Tecnologías de la Información es la encargada de dar seguimiento a las transgresiones que se detecten a las políticas de seguridad, y comunica a la Dirección y al Jerarca correspondiente sobre los hallazgos, de manera que se tomen las medidas correctivas.

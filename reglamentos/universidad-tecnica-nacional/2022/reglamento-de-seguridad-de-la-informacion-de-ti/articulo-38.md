@@ -1,0 +1,1 @@
+Artículo 38. Protección ante software malicioso. Es deber de la Dirección de Gestión de Tecnologías de la Información implementar controles de detección, prevención y recuperación, para evitar ataques mediante código malicioso.

@@ -1,0 +1,1 @@
+Artículo 91. Simulaciones de atención de emergencias informáticas. La Dirección de Gestión de Tecnologías de la Información define y coordina la realización de incidentes simulados para movilizar y probar la eficacia del equipo de atención de emergencias informáticas y sus procedimientos.

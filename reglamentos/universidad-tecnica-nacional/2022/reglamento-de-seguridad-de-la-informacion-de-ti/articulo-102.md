@@ -1,0 +1,1 @@
+Artículo 102. Registro de evidencias de Incidentes. Toda la información, que sirva como evidencia para documentar incidentes de seguridad, tiene que estar formalmente registrada y comunicada de manera verbal o por escrito al funcionario de seguridad a cargo o al jefe inmediato.

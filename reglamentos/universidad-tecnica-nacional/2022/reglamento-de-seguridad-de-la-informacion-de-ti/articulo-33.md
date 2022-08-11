@@ -1,0 +1,1 @@
+Artículo 33. Correo electrónico. El uso del correo electrónico está sujeto a las normas y procedimientos que la Universidad especifique. Esto con el fin de que la información que viaja mediante redes públicas, sea protegida de actividad fraudulenta y modificación no autorizada, entre otros.

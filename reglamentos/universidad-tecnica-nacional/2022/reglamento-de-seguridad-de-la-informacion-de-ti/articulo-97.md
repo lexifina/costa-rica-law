@@ -1,0 +1,1 @@
+Artículo 97. Roles y responsabilidades en la planificación de contingencias y recuperación de sistemas. Los roles y responsabilidades para la planificación de contingencias y la recuperación de sistemas son revisados periódicamente por la administración de seguridad de la información, la cual es responsable de hacer las observaciones que estime pertinentes.

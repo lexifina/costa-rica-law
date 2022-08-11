@@ -1,0 +1,1 @@
+Artículo 9. Uso de la política de seguridad y sus procedimientos. Toda documentación relacionada con la seguridad de la información de la Dirección de Gestión de Tecnologías de la Información, es de acatamiento obligatorio y de uso interno, a menos que expresamente sea creada para procesos externos.

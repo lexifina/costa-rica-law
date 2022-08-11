@@ -1,0 +1,1 @@
+Artículo 80. Acceso a las librerías de software. El acceso y actualización de librerías de programas, fuentes y ejecutables entregados, es realizado por profesionales técnicos especializados y autorizados, siguiendo una combinación de controles de acceso técnico y de procedimientos de operación robusta.

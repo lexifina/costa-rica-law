@@ -1,0 +1,1 @@
+Artículo 48. Utilización de los servicios de red. La administración controla el acceso a los servicios de red sean internos o externos, como garante de que la población que tenga acceso a las redes y a sus servicios, no comprometa su seguridad.

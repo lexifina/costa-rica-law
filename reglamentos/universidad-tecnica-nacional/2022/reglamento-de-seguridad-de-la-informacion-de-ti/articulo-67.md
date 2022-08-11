@@ -1,0 +1,1 @@
+Artículo 67. Verificación de derechos de acceso. Los derechos de acceso asignados a la población universitaria son revisados al menos una vez al año, por parte de la jefatura de la instancia; en colaboración con la Unidad de Seguridad, mediante un procedimiento formal que permita verificar el estado actual de dichos privilegios.

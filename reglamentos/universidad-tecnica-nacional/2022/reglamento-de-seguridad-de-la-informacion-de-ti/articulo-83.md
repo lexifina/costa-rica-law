@@ -1,0 +1,1 @@
+Artículo 83. Aprobación de sistemas o aplicaciones. La Dirección de Gestión de Tecnologías de la Información establece los criterios de aceptación para nuevos sistemas de información, versiones nuevas o mejoradas y desarrollar con ellos, las pruebas adecuadas antes y durante su aceptación.

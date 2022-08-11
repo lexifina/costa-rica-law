@@ -1,0 +1,1 @@
+Artículo 27. Controles físicos de entradas. Es deber de las jefaturas involucradas proteger las áreas de acceso restringido, mediante controles de ingreso, que aseguren, únicamente,el acceso a las personas autorizadas.

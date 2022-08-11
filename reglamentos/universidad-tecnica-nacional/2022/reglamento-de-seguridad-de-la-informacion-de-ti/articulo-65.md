@@ -1,0 +1,1 @@
+Artículo 65. Administración de contraseñas críticas. Las cuentas de personas usuarias de poco uso, utilizadas únicamente, ante una necesidad específica para realizar alguna tarea que así lo requiera, es requisito estar protegida por una contraseña con un mayor nivel de complejidad.

@@ -1,0 +1,1 @@
+Artículo 20. Cambios a la política de seguridad de la información. Los cambios a la política de seguridad de la información, realizados por la Unidad de Seguridad en colaboración con las áreas interesadas; es deber de la Dirección de Gestión de Tecnologías de la Información informar a los usuarios tanto internos como externos, mediante los medios de comunicación adecuados.

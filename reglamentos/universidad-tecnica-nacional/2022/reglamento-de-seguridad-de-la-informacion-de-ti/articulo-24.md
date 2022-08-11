@@ -1,0 +1,1 @@
+Artículo 24. Seguridad del cableado. El cableado de energía eléctrica y de comunicaciones, que transporta datos o brinda apoyo a los servicios de información, requiere mantenerse protegido contra intercepción o daño.

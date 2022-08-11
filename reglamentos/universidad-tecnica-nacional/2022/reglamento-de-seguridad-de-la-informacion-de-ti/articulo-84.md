@@ -1,0 +1,1 @@
+Artículo 84. Correcciones de emergencia al software. La persona responsable de la información, en conjunto con la Dirección de Gestión de Tecnologías de la Información, definen cuando una corrección es crítica y de aplicación urgente. Cualquier cambio o corrección al software sigue estrictamente el procedimiento de control de cambios definido por la universidad.

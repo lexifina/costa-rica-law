@@ -1,0 +1,1 @@
+Artículo 79. Verificación de aplicaciones y sistemas críticos. Cuando se realizan cambios en los sistemas operativos, la persona responsable de la aplicación o sistema de información realiza las pruebas necesarias y da, de manera escrita, su aprobación para que no exista un impacto adverso en la operatividad y seguridad de los datos.

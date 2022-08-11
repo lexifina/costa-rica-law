@@ -1,0 +1,1 @@
+Artículo 76. Instalación de software en producción. La Dirección de Gestión de Tecnologías de la Información define los controles necesarios para comprobar la seguridad de la instalación de software en producción

@@ -1,0 +1,1 @@
+Artículo 78. Comprobación del inventario de software. Es deber de la Unidad de Aprovisionamiento de la Dirección de Gestión de Tecnologías de la Información, mantener un inventario de software actualizado, de manera que se pueda identificar: la cantidad en existencia, su ubicación física y la persona responsable del uso.

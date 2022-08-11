@@ -1,0 +1,1 @@
+Artículo 77. Análisis y especificaciones de los requerimientos de seguridad. Todo sistema nuevo o mejora de los existentes sean propios o externos deben contar con los requerimientos de seguridad que la Dirección de Gestión de Tecnologías de la Información considere pertinente.

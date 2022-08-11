@@ -1,0 +1,1 @@
+Artículo 63. Protección del puerto de diagnóstico remoto. Es deber del área de infraestructura y telecomunicaciones restringir y monitorear el acceso físico y lógico para el diagnóstico y configuración de puertos remotos.

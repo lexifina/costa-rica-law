@@ -1,0 +1,1 @@
+Artículo 28. Acceso restringido. La Dirección de Gestión de Tecnologías de la Información es la responsable de establecer controles y lineamientos de acceso físico y lógico a la información, para las personas que laboran en áreas restringidas, así como para las actividades de terceros que tengan lugar allí.

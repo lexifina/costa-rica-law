@@ -1,0 +1,1 @@
+Artículo 15. Categoría y perfiles de acceso. La persona, que resguarda la información, es también responsable de los datos que genera su unidad, esto en relación con las categorías de personas y perfiles de acceso a quienes se les brinda permiso para que accedan a la información o a sus partes.

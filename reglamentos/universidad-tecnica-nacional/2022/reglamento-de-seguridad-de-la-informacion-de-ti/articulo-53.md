@@ -1,0 +1,1 @@
+Artículo 53. Equipo de atención ante problemas de seguridad de la información. La Dirección de Gestión de Tecnologías de la Información autoriza la aplicación de las medidas correspondientes al equipo de atención de seguridad informática, ante cualquier tipo de incidente que ponga en riesgo la seguridad de la información.

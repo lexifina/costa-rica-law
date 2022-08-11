@@ -1,0 +1,1 @@
+Artículo 32. Documentación de procedimientos operativos. Es deber de la Dirección de Gestión de Tecnologías de la Información, documentar y mantener actualizados todos los procedimientos de operación en un lugar de fácil acceso para las personas autorizadas.

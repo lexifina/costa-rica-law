@@ -1,0 +1,1 @@
+Artículo 58. Intercambio de información y software. Es deber de la administración, establecer acuerdos para el intercambio de información y software que aseguren el uso de los medios de comunicación idóneos entre la Universidad y entidades externas.

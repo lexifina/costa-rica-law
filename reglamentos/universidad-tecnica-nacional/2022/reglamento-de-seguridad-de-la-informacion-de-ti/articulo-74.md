@@ -1,0 +1,1 @@
+Artículo 74. Planificación del desarrollo de nuevos sistemas. Para el desarrollo de nuevos sistemas o aplicaciones, la Dirección de Gestión de Tecnologías de la Información, supervisa y adapta el uso de recursos, así como tener proyecciones de requisitos futuros para la mejora en su capacidad de operación y optimización.

@@ -1,0 +1,1 @@
+Artículo 101. Uso de información y documentación relacionada con sistemas informáticos. La información generada o producida por los sistemas informáticos en producción y documentos relacionados, no puede ser reproducida o utilizada sin el permiso de la persona responsable de la información.

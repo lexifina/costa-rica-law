@@ -1,0 +1,1 @@
+Artículo 37. Gestión de respaldo y recuperación de información. La Dirección de Gestión de Tecnologías de la Información establece procedimientos rutinarios para lograr una estrategia de respaldo eficaz para la recuperación de datos.

@@ -1,0 +1,1 @@
+Artículo 59. Registro de personas usuarias. Corresponde a la Dirección de Gestión de Desarrollo Humano, emitir un procedimiento para comunicar a la Dirección de Gestión de Tecnologías de la Información de los ingresos y egresos de las personas servidoras de la Universidad Técnica Nacional a los sistemas de información, bases de datos y servicios de información multiusuario.

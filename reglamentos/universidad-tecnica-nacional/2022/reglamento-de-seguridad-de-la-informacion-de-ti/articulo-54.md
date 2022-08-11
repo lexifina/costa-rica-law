@@ -1,0 +1,1 @@
+Artículo 54. Monitoreo de privilegios. Es deber de la Dirección de Gestión de Tecnologías de la Información, restringir y monitorear el acceso a los sistemas de información, en colaboración con la jefatura de la instancia correspondiente para identificar potencial uso inapropiado de sistemas e información.

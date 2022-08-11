@@ -1,0 +1,1 @@
+Artículo 69. Control de acceso para trabajo remoto. Es deber de la Dirección de Gestión de Tecnologías de la Información realizar procedimientos de control de acceso, para las personas que laboran bajo la modalidad de teletrabajo y establecer registros de acciones específicas para el control de accesos.

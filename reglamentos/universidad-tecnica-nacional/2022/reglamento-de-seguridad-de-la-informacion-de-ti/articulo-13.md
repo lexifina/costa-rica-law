@@ -1,0 +1,1 @@
+Artículo 13. Identificación del custodio de la información. Es deber del responsable de la unidad ejecutora, asignar a cada tipo de información una persona como responsable, quien protege en forma apropiada la información, manteniendo el control de acceso, la sensibilidad y las instrucciones de criticidad de los datos.

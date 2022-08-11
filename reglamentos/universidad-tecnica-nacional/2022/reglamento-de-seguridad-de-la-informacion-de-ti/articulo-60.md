@@ -1,0 +1,1 @@
+Artículo 60. Control de enrutamiento en la red. La Dirección de Gestión de Tecnologías de la Información define e implementa controles de enrutamiento, los cuales garanticen, que las conexiones entre computadoras y los flujos de información, no incumplan con el control de acceso establecido para las aplicaciones.

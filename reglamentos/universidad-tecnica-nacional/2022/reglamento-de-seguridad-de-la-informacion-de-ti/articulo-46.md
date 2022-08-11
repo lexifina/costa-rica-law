@@ -1,0 +1,1 @@
+Artículo 46. Gestión para nuevos dispositivos de almacenamiento. La administración define e implementa el proceso de autorización para el uso, eliminación y manejo de nuevos dispositivos para el almacenamiento de información.

@@ -1,0 +1,1 @@
+Artículo 73. Separación de ambientes de prueba, desarrollo y producción. La separación de los recursos para el desarrollo, prueba y producción son utilizados para la reducción de riesgos y modificaciones en el sistema operacional no autorizados.
