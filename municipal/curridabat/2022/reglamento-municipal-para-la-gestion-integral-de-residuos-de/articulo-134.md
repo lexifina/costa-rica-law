@@ -1,0 +1,1 @@
+Artículo 134. Clasificación por Tipo de Actividad. Se podrán designar clasificaciones para cada una de las categorías tarifarias descritas en el Artículo 133, con base en la metodología establecida por la Municipalidad.

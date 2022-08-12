@@ -1,0 +1,1 @@
+Artículo 107. El Departamento de Ambiente y Salud, en coordinación con el Departamento de Parques y Ornato y el Departamento de Protección del Medio Ambiente, deberán levantar un inventario de los sitios de disposición clandestinos, a fin de elaborar las políticas de control y erradicación de estas áreas.

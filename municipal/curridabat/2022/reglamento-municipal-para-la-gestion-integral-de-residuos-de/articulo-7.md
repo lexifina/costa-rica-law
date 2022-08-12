@@ -1,0 +1,2 @@
+CAPÍTULO II: ATRIBUCIONES Y OBLIGACIONES MUNICIPALES
+Artículo 7. Responsable de la Gestión Integral de Residuos. Para la implementación de este reglamento y de otra legislación nacional vigente en la materia, el Departamento de Ambiente y Salud será la entidad municipal responsable de la gestión de los residuos en el Cantón. La administración municipal es responsable de dotar a esta dependencia del personal técnico y profesional necesario, así como del presupuesto adecuado para cumplir con sus funciones.

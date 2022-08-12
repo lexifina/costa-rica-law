@@ -1,0 +1,2 @@
+Artículo 64. Nuevas Construcciones. Cuando se soliciten los permisos de construcción y/o remodelación, será requisito presentar la aprobación del diseño y localización de los sistemas de almacenamiento colectivo de residuos por parte del Departamento de Ambiente y Salud.
+La Dirección de Desarrollo y Control Urbano podrá consultar con el Departamento de Ambiente y Salud cualquier caso que lo amerite.
