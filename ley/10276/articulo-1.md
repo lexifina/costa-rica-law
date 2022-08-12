@@ -1,0 +1,10 @@
+N° 10276
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DEROGATORIA DE LA LEY 2876, AUTORIZACIÓN
+A LA MUNICIPALIDAD DE ALVARADO PARA
+DESTINAR ¢19.000 PARA ELECTRIFICACIÓN
+DE CAPELLADES, SANTA TERESA Y OTROS
+CASERÍOS, DE 14 DE NOVIEMBRE DE 1961
+ARTÍCULO 1- Se deroga, expresamente, la Ley 2876, Autorización a la Municipalidad de Alvarado para Destinar ¢19.000 para Electrificación de Capellades, Santa Teresa y Otros Caseríos, de 14 de noviembre de 1961.
