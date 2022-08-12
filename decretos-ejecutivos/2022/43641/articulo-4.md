@@ -1,0 +1,1 @@
+Artículo 4º-Derogatoria. Se deroga el artículo 2 incisos 16 y 20, artículo 4 incisos 2 y 3, artículo 5 del Decreto Ejecutivo N° 41092-MINAE-H-MOPT del 10 de abril de 2018, denominado Reglamento de incentivos para el transporte eléctrico.
