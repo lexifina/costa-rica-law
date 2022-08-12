@@ -1,0 +1,6 @@
+N° 10279
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA
+DE COSTA RICA
+DECRETA:
+DEROGATORIA DE LA LEY 2554, AUTORIZACIÓN A LA MUNICIPALIDAD DE CARTAGO PARA ADQUIRIR UNAS PROPIEDADES DEL ICE Y COMPRAR TUBERÍA PARA CAÑERÍA, DE 27 DE ABRIL DE 1960
+ARTÍCULO 1- Se deroga, expresamente, la Ley 2554, Autorización a la Municipalidad de Cartago para Adquirir unas Propiedades del ICE y Comprar Tubería para Cañería, de 27 de abril de 1960.
