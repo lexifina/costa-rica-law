@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de concesiones y para cesiones en la zona marít
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-02 | la propia norma |
+| 2 | 2022-08-12 | Reglamento municipal 32 (2022-08-12) |
