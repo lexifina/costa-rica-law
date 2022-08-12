@@ -1,0 +1,2 @@
+Artículo 35º- Medidas Administrativas. El incumplimiento a las disposiciones establecidas en el presente reglamento, dará lugar a la aplicación de las medidas especiales que señala la Ley Nº 5395 del 30 de octubre de 1973 "Ley General de Salud", mediante la notificación de una orden sanitaria, en respeto al debido proceso y derecho de defensa del administrado.
+Además, las autoridades de salud podrán presentar la denuncia ante el Tribunal Ambiental Administrativo, según los procedimientos establecidos para tal fin, así como en la vía penal ante el Ministerio Público.

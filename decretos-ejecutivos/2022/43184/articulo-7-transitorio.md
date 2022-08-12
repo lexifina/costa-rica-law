@@ -1,0 +1,1 @@
+Transitorio 7°- Se otorga un plazo de un año a partir de la publicación del presente reglamento, al CQCR, para que publique la normativa requerida para el cumplimiento de lo estipulado en el artículo 18º del presente reglamento.

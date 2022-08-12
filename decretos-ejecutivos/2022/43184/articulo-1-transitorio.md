@@ -1,0 +1,1 @@
+Transitorio 1º- Se otorga un plazo de nueve meses a partir de la publicación del presente reglamento para que los hornos de tipo directo cumplan con las obligaciones contenidas en los artículos 7º y del 10º al 31º inclusive de la presente normativa.

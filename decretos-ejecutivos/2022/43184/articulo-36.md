@@ -1,0 +1,1 @@
+Artículo 36º- Derogatoria. Deróguese el Decreto Ejecutivo Nº 36551-S-MINAEMTSS del 27 de abril del 2011 "Reglamento sobre Emisión de Contaminantes Atmosféricos Provenientes de Calderas y Hornos de Tipo Indirecto", publicado en La Gaceta Nº 140 del 20 de julio del 2011.

@@ -1,0 +1,13 @@
+CAPÍTULO V
+REPORTES OPERACIONALES Y CONTROL ESTATAL
+Artículo 23º- Número y contenido de los reportes operacionales. En caso de que el equipo utilice dos tipos de combustibles durante el período a reportar, debe presentar un reporte operacional para efectos del control de las emisiones para cada combustible usado en el correspondiente periodo. El segundo reporte no podrá presentarse con más de un mes de diferencia en relación con el primero. Lo anterior se hará mediante la utilización del sistema REACAH una vez sea implementado, cumpliendo con sus requerimientos y procedimientos.
+Los reportes operacionales para todos los equipos deberán contener la siguiente información del ente generador:
+1) Datos generales, según formatos publicados por el Ministerio de Salud en su sitio web www.ministeriodesalud.go.cr, (Anexo N° 3 o Anexo N° 4 del presente reglamento, según corresponda) Incluye el nombre y la firma del responsable técnico y del propietario o representante legal.
+2) Datos técnicos de cada caldera u horno de tipo directo o indirecto (incluyendo el número de registro asignado por el Ministerio de Salud, cuando corresponda y el número de fábrica o serie del recipiente según fabricante).
+3) Resultados de los análisis fisicoquímicos de laboratorio por caldera u horno de tipo directo o indirecto, especificando el valor obtenido para cada parámetro solicitado de manera independiente, incluyendo la medición isocinética del flujo de gases. La presentación de los reportes de laboratorio original de los análisis químicos podrá ser incorporada a la plataforma REACAH una vez implementado su uso, mediante el uso de la firma digital
+4) Resultados analíticos de los combustibles que sean utilizados. En caso de que el equipo utilice dos tipos de combustibles durante el período a reportar, debe presentar los resultados de los análisis químicos de laboratorio para cada combustible utilizado en el correspondiente reporte operacional. Debe presentar un reporte operacional para efectos del control de las emisiones para cada combustible usado en el correspondiente periodo. La presentación de los reportes de laboratorio original de los análisis químicos podrá ser incorporada a la plataforma REACAH una vez implementado su uso, mediante el uso de la firma digital.
+5) Métodos de análisis y métodos de muestreo para cada parámetro analizado por el laboratorio.
+6) Registro de fallas: equipos de caldera u tipos de horno utilizados y los equipos de control de emisiones.
+7) Evaluación del estado actual del sistema (caldera(s) u horno(s) de tipo directo o indirecto y equipos de control de emisiones).
+8) Plan de acciones correctivas.
+9) Registro de producción.

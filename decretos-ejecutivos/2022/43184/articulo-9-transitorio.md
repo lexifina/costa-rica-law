@@ -1,0 +1,1 @@
+Transitorio 9°- Se otorga un plazo de 30 meses a partir de la entrada en vigencia del presente reglamento a MINAE y a RECOPE para que realicen una reducción gradual y por etapas del porcentaje de azufre en los combustibles de origen fósil que permita alcanzar un porcentaje máximo de 1.73% de azufre en su contenido.

@@ -1,0 +1,1 @@
+Transitorio 5º- Se otorga un plazo de tres años a partir de la publicación del presente reglamento al Ministerio de Salud para que promulgue la normativa relativa al uso de combustibles sintéticos o alternativos en calderas, y hornos de tipo directo e indirecto.

@@ -1,0 +1,1 @@
+Artículo 20º- De las condiciones del sistema de inyección. Para realizar las mediciones de emisiones de las chimeneas de las calderas y hornos de tipo directo e indirecto, estos equipos deberán operar su sistema de inyección o adición de combustible bajo condiciones de operación que garanticen la estabilidad del flujo de gases durante el muestreo.
