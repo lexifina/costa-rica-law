@@ -1,0 +1,1 @@
+Artículo 7º-El propietario registral del terreno en el que se edificará la obra, será el responsable de los trabajos, será la persona autorizada por el municipio para ejercer la construcción menor en el Cantón. Para tal efecto, deberá cumplir con todos los requisitos establecidos para obtener la licencia constructiva.

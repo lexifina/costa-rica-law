@@ -1,0 +1,1 @@
+Artículo 13.-La Sección de Infraestructura Privada, será la encargada de determinar el monto imponible del permiso, conforme el artículo 70 de la Ley de Planificación Urbana, para lo que requerirá por parte del encargado responsable, un croquis o plano detallado con las especificaciones técnicas de la obra. La tasación se consignará en el permiso de construcción respectivo.
