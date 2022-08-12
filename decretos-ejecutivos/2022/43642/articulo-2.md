@@ -1,0 +1,1 @@
+Artículo 2º-Aplíquese un arancel de 3,5% al código arancelario 1006.10.90.00 (arroz en granza) y un 4,0% al código arancelario 1006.30.90.00 (arroz pilado) de Derechos Arancelarios a la Importación a los incisos indicados en el artículo 1 del presente Decreto Ejecutivo, sin perjuicio del gravamen del 1% establecido en la Ley N° 6946 del 13 de enero de 1984.
