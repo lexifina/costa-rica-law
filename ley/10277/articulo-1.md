@@ -1,0 +1,10 @@
+N° 10277
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DEROGATORIA DE LA LEY 4119, AUTORIZACIÓN
+A LA MUNICIPALIDAD DE PUNTARENAS PARA
+TRASPASAR DOS PARTIDAS DEL ICE PARA
+ELECTRIFICACIÓN EN EL DISTRITO
+DE PITAHAYA, DE 28 DE MAYO DE 1968
+ARTÍCULO 1- Se deroga, expresamente, la Ley N.º 4119, Autorización a la Municipalidad de Puntarenas para Traspasar Dos Partidas del ICE para Electrificación en el Distrito de Pitahaya, de 28 de mayo de 1968.
