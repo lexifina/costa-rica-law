@@ -1,3 +1,5 @@
+(Derogado)
 N° 2554
+(Esta norma fue derogada por el artículo 1° de la ley N° 10279 del 11 de julio de 2022)
 ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 Artículo 1°-Se autoriza a la Municipalidad del Cantón Central de Cartago contratar un empréstito con el Banco Crédito Agrícola de Cartago, hasta por la suma de quinientos mil colones, para invertidos en cancelar el saldo pendiente del anterior empréstito efectuado con base en la ley N° 1879 del 4 de junio de 1955, comprar al Instituto Costarricense de Electricidad los bienes que se dirán y adquirir de la Compañía Bananera de Costa Rica tubería para la conducción las fuentes de Paso Ancho de Oreamuno a fin de reforzar la cañería de Cartago incluyendo el transporte de esos materiales.
