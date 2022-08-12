@@ -1,0 +1,6 @@
+Artículo 27- De las personas funcionarias responsables para autorizar.
+Las personas funcionarias facultadas para autorizar los arreglos de pago que tramite la Unidad de Administración Tributaria serán quienes ostenten el cargo de Titular subordinado de: la Unidad de Administración Tributaria, Área de Captación de Recursos, y Subgerencia de Gestión de Recursos, de acuerdo con los siguientes rangos:
+a) Montos iguales o inferiores a 45 salarios base, serán autorizados por la persona Titular Subordinada de la Unidad de la Administración Tributaria.
+b) Montos superiores a 45 salarios base, y hasta 75 salarios base, serán autorizados por la Jefatura del Área de Captación de Recursos.
+c) Montos superiores a 75 salarios base, serán autorizados por la Subgerencia de Gestión de Recursos.
+Para el caso de deudas relacionadas a la población beneficiaria, sean individuales o grupales, las personas profesionales designadas por parte de la Subgerencia de Desarrollo Social o sus dependencias, serán las encargadas de establecer las condiciones de pago y las garantías requeridas para los arreglos de pago de este tipo de deudas. La autorización de los mismos le corresponderá a la instancia administrativa que originalmente aprobó el beneficio relacionado con dicha deuda.

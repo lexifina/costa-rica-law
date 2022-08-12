@@ -1,0 +1,2 @@
+Artículo 10- Competencias del Área de Administración Financiera.
+El Área de Administración Financiera tendrá como competencia proponer a la Gerencia General el monto máximo para declarar la incobrabilidad de una deuda, con base a la estimación de los costos para la gestión administrativa y judicial de las cuentas por cobrar y otros elementos que considere pertinentes. Para el caso de la vía judicial, será por tipo de proceso. Este estudio de costos será actualizado una vez al año.
