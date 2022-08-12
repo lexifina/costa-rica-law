@@ -1,0 +1,10 @@
+N° 10278
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DEROGATORIA DE LA LEY 1595, AUTORIZACIÓN
+AL INSTITUTO COSTARRICENSE DE ELECTRICIDAD
+PARA COMPRAR UN EQUIPO DE PERFORACIONES
+DE TÚNELES Y UNA PLANTA DIÉSEL,
+DE 8 DE JULIO DE 1953
+ARTÍCULO 1- Se deroga, expresamente, la Ley 1595, Autorización al Instituto Costarricense de Electricidad para Comprar un Equipo de Perforaciones de Túneles y una Planta Diésel, de 8 de julio de 1953.
