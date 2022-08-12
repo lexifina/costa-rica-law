@@ -1,4 +1,6 @@
+(Derogado)
 N°1595
+(Esta norma fue derogada por el artículo 1° de la ley N° 10278 del 11 de julio de 2022)
 LA ASAMBLEA LEGISLATIVA DE COSTA RICA
 Considerando:
 1°.- Que la Compañía de Metales y Productos Químicos, S.A. ofrece vender al Instituto Costarricense de Electricidad, por la suma total de doscientos mil colones (¢200,000.00) todas sus maquinarias y equipos para la perforación de túneles, inclusive una planta eléctrica de 500 H.P., de tipo Diesel Carterpillar, implementos que son necesarios para la actividades propias del Instituto; y
