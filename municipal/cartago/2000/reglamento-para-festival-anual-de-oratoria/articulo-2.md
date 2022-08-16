@@ -1,1 +1,1 @@
-Artículo 2º—Los estudiantes participantes en la final del Festival Anual de Oratoria, son los ganadores de la Oratoria Interna, de todos y cada uno de los once distritos del cantón central de Cartago, que participaron en las eliminatorias en las cuales la Dirección Regional de Educación de Cartago, en las categorías de preescolar, primaria y secundaria.
+Artículo N° 2: El Festival de Oratoria será organizado y coordinado por la Municipalidad de Cartago. La Municipalidad, a su vez nombrará una Sub-Comisión para coordinarlo.

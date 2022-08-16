@@ -1,1 +1,3 @@
-Artículo 16.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo N° 16: El o la ganadora a nivel de segundo ciclo, tendrá derecho a repetir su discurso en el Acto Cívico Oficial del 15 de setiembre, en la Plaza Mayor de Cartago. El ganador (a) de la categoría de secundaria será el encargado (a) de realizar el discurso del 14 de setiembre en las actividades organizadas por la municipalidad, por celebrarse en el Salón de Sesiones o frente al Palacio Municipal.
+Lo anterior siempre que los eventos se lleven a cabo; no obstante, si por cualquier circunstancia no se realiza cualquiera de ellos, no se incurre en falta por parte de los organizadores de los eventos de la Semana Cívica.
+Sujeto a cambios de acuerdo a las necesidades de la subcomisión organizadora, a las disposiciones en materia de salud y a la aplicación de los protocolos establecidos por COVID 19 u otro evento fortuito.

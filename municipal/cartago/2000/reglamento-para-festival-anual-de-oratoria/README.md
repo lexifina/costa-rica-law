@@ -16,3 +16,4 @@ Reglamento para Festival Anual de Oratoria
 | 1 | 2000-09-04 | la propia norma |
 | 2 | 2002-08-06 | Reglamento municipal 0 (2002-08-06) |
 | 3 | 2002-08-06 | Ley 8 |
+| 4 | 2022-08-16 | Reglamento municipal 0 (2022-08-16) |

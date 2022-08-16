@@ -1,0 +1,1 @@
+Artículo N° 18: En caso de que alguna de las eliminatorias no pueda ser completada por caso fortuito o de fuerza mayor, no implicará responsabilidad para los organizadores. Tales circunstancias incluyen, aunque no exclusivamente, las limitaciones derivadas de restricciones sanitarias, por eventos climáticos o relacionados con el tema de la salud pública

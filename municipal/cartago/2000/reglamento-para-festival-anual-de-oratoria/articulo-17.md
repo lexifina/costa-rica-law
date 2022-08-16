@@ -1,0 +1,1 @@
+Artículo N° 17: Para calificar el discurso, el jurado tomará en consideración los aspectos determinados en la boleta oficial, aspectos que estarán sujetos a cambios a criterio del jurado, lo que se deberá informar con anticipación a las y los concursantes.

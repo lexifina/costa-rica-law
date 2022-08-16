@@ -1,1 +1,1 @@
-Artículo 14.—El artículo anterior esta sujeto a cambios, de acuerdo con el criterio del Jurado y se les informará con anticipación a los concursantes.
+Artículo N° 14: Al presidente (a) del jurado le corresponde dirigir, abrir y cerrar las sesiones de cada categoría, Declarará los resultados oficiales de cada evento. Hará todas las observaciones necesarias en nombre del jurado y demás funciones inherentes al cargo de un cuerpo colegiado y deliberativo.

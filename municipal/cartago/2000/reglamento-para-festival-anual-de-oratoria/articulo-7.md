@@ -1,1 +1,3 @@
-Artículo 7º—Solamente se escogerá una persona como miembro del jurado de las instituciones que de una u otra manera participan como dedicado.
+Artículo N° 7: Los miembros del jurado calificador son nombrados por la subcomisión organizadora.
+Las personas escogidas deben ser ciudadanos (as) mayores de edad, con experiencia en técnicas de expresión oral y personas que por su grado académico o experiencia brinden aportes en relación con la Oratoria. Además, deben ser de reconocida e intachable trayectoria en su campo profesional.
+Los jurados calificadores del Festival estarán integrados por cinco personas en todas las categorías y en cada una de las fases. Cada jurado realizará internamente la distribución de los cargos de presidente (a) y secretario (a).
