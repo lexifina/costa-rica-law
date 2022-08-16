@@ -1,3 +1,0 @@
-Artículo 8º—De los estados de cuenta. En los estados de cuenta se registrarán las transacciones realizadas por el ahorrante y sus autorizados. El ahorrante y sus autorizados podrán solicitar los estados de cuenta cada vez que lo considere necesario para así llevar el control adecuado de los movimientos de la cuenta.
-Los estados de cuenta se entregarán al titular o a sus autorizados, en el cual se mostrarán con claridad todas las transacciones realizadas.
-Es un deber del ahorrante realizar una revisión eficiente y constante de sus estados de cuenta; de no hacerlo, o de haber transcurrido quince días naturales después de haberse entregado el estado de cuenta, se tendrán como correctas las sumas registradas en el sistema del Grupo Mutual.

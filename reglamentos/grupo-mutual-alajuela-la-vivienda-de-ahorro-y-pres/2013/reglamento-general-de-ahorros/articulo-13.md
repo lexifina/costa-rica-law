@@ -1,3 +1,0 @@
-Artículo 13.—De los sobregiros, de montos girados o acreditados por error: Los sobregiros no serán autorizados. En el caso de que se diera uno, se giraran sumas por error o se le realice alguna acreditación incorrecta, el Grupo Mutual queda autorizado para que reverse en forma inmediata el total de lo acreditado erróneamente sin previa notificación.
-El ahorrante se obliga a notificar al Grupo Mutual de inmediato cuando en su estado de cuenta aparezca un depósito o retiro que no corresponda.
-El Grupo Mutual queda facultada para acudir a la vía judicial correspondiente para la recuperación de aquellos montos de dinero acreditados en forma errónea y retirados por el dueño de la cuenta o sus autorizados.

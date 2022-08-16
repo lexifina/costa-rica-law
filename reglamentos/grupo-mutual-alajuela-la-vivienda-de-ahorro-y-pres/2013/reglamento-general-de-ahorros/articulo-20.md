@@ -1,1 +1,0 @@
-Artículo 20.—De la garantía de los depósitos en cuentas de ahorro. Los saldos de las cuentas de ahorro cuentan con la garantía subsidiaria e ilimitada del Estado, de conformidad con lo establecido en el artículo 116, inciso b), de la Ley 7052 del Sistema Financiero Nacional para la Vivienda.
