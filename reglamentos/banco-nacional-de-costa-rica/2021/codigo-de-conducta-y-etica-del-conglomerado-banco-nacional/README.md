@@ -14,3 +14,4 @@ Código de conducta y ética del conglomerado Banco Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-24 | la propia norma |
+| 2 | 2022-08-16 | Reglamento 12603 (2022-08-16) |
