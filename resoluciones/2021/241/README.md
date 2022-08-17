@@ -14,3 +14,4 @@ Lineamientos operativos para el funcionamiento, acceso y uso del Centro de infor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-01 | la propia norma |
+| 2 | 2022-08-17 | Resolución 1725 (2022-08-17) |
