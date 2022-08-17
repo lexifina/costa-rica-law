@@ -151,9 +151,11 @@ Aprobación de un programa de estudios de posgrado (residencia médica) de tres 
 14.37 Especialidad Médica en Medicina Nuclear.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Medicina Nuclear, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-14.38 Especialidad Médica en Medicina Paliativa en Adultos.
+14.38 Especialidad Médica en Medicina Paliativa.
+Se reconoce como sinónimos de esta especialidad el siguiente término: Medicina Paliativa en Adultos.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Medicina Paliativa, en un Hospital de Tercer Nivel, Regional o Periférico perteneciente o adscrito a una Universidad.
+(Así reformado el punto anterior mediante sesión N° 2022-08-17 del 17 de agosto del 2022)
 14.39 Especialidad Médica en Medicina Preventiva y Salud Pública.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Medicina Preventiva y Salud Pública en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
