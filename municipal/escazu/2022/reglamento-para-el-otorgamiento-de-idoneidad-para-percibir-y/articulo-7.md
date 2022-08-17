@@ -1,0 +1,1 @@
+Artículo 7°-Será responsabilidad del representante legal de las organizaciones de beneficencia o de servicio social, la administración adecuada de estos bienes, obras, servicios o dinero que se otorguen producto de este reglamento.

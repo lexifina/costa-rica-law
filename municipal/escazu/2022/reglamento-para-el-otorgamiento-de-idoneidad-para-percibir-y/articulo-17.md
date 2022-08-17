@@ -1,0 +1,1 @@
+Artículo 17.-El sujeto privado es responsable del contenido de toda la información que suministre a la Municipalidad. En caso de brindar información falsa la solicitud será rechazada de oficio por parte de la Municipalidad.

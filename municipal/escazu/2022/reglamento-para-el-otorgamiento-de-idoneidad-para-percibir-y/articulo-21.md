@@ -1,0 +1,1 @@
+Artículo 21.-Será responsabilidad de los directores, miembros de Junta de Educación o Administrativa de los centros educativos públicos la administración adecuada de estos bienes, obras, servicios o dinero que se otorguen producto de este reglamento.

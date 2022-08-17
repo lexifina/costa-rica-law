@@ -1,0 +1,1 @@
+Artículo 48.-La no presentación de los informes técnicos por parte de los funcionarios municipales en los plazos establecidos en este Reglamento, será motivo para iniciar un procedimiento administrativo para determinar la imposición de una sanción administrativa disciplinaria de conformidad con la normativa aplicable.

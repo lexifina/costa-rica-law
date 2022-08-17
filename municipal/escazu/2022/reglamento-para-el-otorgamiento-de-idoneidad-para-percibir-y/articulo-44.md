@@ -1,0 +1,1 @@
+Artículo 44.-El sujeto privado no podrá solicitar subvenciones durante el plazo de un año cuando se le revoque la calificación de idoneidad por las causales establecidas en el artículo 46 incisos 1, 4, 5, 6, 7, 8 y 9 del presente reglamento.

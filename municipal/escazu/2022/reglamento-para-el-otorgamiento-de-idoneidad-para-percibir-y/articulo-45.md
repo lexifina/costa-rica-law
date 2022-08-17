@@ -1,0 +1,1 @@
+Artículo 45.-Los sujetos privados no podrán solicitar subvenciones futuras por el plazo de 5 años, si se acredita lo establecido en el artículo 46 incisos 2 y 3 producto de la fiscalización que realiza la Administración.

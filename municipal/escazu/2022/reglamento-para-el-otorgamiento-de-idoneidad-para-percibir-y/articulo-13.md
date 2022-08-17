@@ -1,0 +1,1 @@
+Artículo 13.-Renovación de la Calificación de Idoneidad. El sujeto privado al que se le expire la calificación de idoneidad para percibir y administrar fondos públicos deberá cumplir con los requisitos del artículo 9 del presente reglamento.

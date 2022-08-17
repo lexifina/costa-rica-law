@@ -1,0 +1,3 @@
+CAPITULO VI
+De las sanciones
+Artículo 43.-Sanciones y responsabilidades. El incumplimiento de lo establecido en este Reglamento dará lugar a las sanciones previstas en la Ley Orgánica de la Contraloría General de la República, de conformidad con lo establecido en sus artículos 11, 12, 67 y siguientes, sin perjuicio de la aplicación de otras causales de responsabilidad contenidas en el ordenamiento jurídico.

@@ -1,0 +1,1 @@
+Artículo 33.-La Municipalidad deberá remitir ante la Contraloría General de la República, el informe de rendición de cuentas de cada subvención que otorgue, según los lineamientos que esta establezca.

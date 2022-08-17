@@ -1,0 +1,1 @@
+Artículo 6°-La subvención que sea aprobada consistirá en un fondo público gratuito y sin contraprestación recibido por un sujeto privado, mediante partida o norma presupuestaria, cuyo destino está previamente definido por el propio sujeto privado y es congruente con los fines públicos que atiende la Municipalidad según lo establece el artículo 71 del Código Municipal.

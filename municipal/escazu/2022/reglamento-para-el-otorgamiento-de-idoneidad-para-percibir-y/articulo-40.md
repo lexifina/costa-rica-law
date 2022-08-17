@@ -1,0 +1,1 @@
+Artículo 40.-La Auditoría Interna con fundamento en lo establecido al respecto por los artículos 4, 5 y 6 de la Ley Orgánica de la Contraloría General de la República y 22 y 23 de la Ley General de Control Interno, podrá fiscalizar la actuación realizada por la Municipalidad y el sujeto privado en la aplicación de este Reglamento.

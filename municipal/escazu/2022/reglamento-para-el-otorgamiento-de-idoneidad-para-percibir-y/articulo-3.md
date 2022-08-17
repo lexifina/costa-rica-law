@@ -1,0 +1,3 @@
+Artículo 3°-Competencia de la Contraloría para aprobar asignación de recursos. La Contraloría General realizará un análisis técnico jurídico de cada presupuesto de los beneficios patrimoniales, que culminará con alguno de los siguientes posibles resultados: aprobación o improbación.
+La aprobación por parte del Órgano Contralor del presupuesto del beneficio patrimonial autoriza la transferencia del beneficio al sujeto privado, sin que esto constituya una obligación de giro.
+Por su parte, la improbación por parte del Órgano Contralor del presupuesto del beneficio patrimonial impide legalmente a la Municipalidad realizar la transferencia del beneficio solicitado por el sujeto privado.

@@ -1,0 +1,1 @@
+Artículo 38.-Mecanismos de control. La Municipalidad establecerá los mecanismos necesarios para la asignación, el giro, el seguimiento y el control del uso de los recursos que conforman el beneficio patrimonial otorgado, para asegurar el cumplimiento de la finalidad establecida y evitar abusos, desviaciones o errores en el empleo de tales fondos.

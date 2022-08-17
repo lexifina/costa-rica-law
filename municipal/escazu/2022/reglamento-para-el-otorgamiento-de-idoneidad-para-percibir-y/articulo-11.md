@@ -1,0 +1,2 @@
+Artículo 11.-Vigencia de la calificación de idoneidad para percibir y administrar fondos públicos. La calificación de idoneidad para percibir y administrar fondos públicos otorgada por el Concejo Municipal tendrá una vigencia de dos años, contados a partir de la fecha de su emisión.
+La Municipalidad deberá conservar un archivo con los expedientes de los sujetos que han tramitado calificaciones de idoneidad. Dicho archivo deberá mantenerse en un lugar con condiciones adecuadas para la óptima conservación de los documentos aportados, según el procedimiento establecido.
