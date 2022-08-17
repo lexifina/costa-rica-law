@@ -1,1 +1,0 @@
-Artículo 14.—La jornada ordinaria de trabajo del Servicio Interno será de cinco días distribuida de la siguiente manera: de lunes a viernes comenzará en la mañana a las 8,00 horas y terminará en la tarde a las 16,00 horas.

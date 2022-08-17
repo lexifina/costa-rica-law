@@ -1,1 +1,0 @@
-Artículo 46.—Se considera abandono del trabajo hacer dejación del mismo sin causa justificada dentro de la respectiva jornada. Para efectos de comprobar el abandono no es necesario que el servidor salga del lugar u oficina donde presta sus servicios, sino que bastaría que de modo evidente abandone la labor que le ha sido encomendada.

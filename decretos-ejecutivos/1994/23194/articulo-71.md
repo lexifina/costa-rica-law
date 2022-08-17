@@ -1,1 +1,0 @@
-Artículo 71.—Las licencias concedidas, según el artículo 70 de este Reglamento, lo serán únicamente por el tiempo necesario para concurrir a lecciones, debiéndose asistir al trabajo durante dos períodos de vacaciones y otros días libres que conceda el correspondiente centro educativo. En estos casos, salvo disposición expresa en contrario, las licencias serán con goce de sueldo.

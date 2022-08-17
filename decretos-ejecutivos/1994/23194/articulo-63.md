@@ -1,1 +1,0 @@
-Artículo 63.—Las quejas, reclamos y peticiones de mejoramiento deberán formularse por escrito ante el Jefe Inmediato, quien deberá dar respuesta dentro de los tres días siguientes. Los asuntos urgentes podrán gestionarse verbalmente, debiendo resolverse del mismo modo y de inmediato.

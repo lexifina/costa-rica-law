@@ -1,1 +1,0 @@
-Artículo 72.—Serán también con goce de salario las licencias concedidas a aquellos servidores que por los cargos que ocupan, sigan cursos o asistan a congresos, etc., dentro o fuera del país, en lo que el Ministerio tenga interés, siempre y cuando se encuentren dentro de lo establecido con el artículo 40 del Reglamento del Estatuto del Servicio Civil.

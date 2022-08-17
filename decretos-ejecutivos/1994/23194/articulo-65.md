@@ -1,1 +1,0 @@
-Artículo 65 .—Los permisos que se concedan de acuerdo con el artículo anterior queda, a juicio de quien corresponda otorgarlos, el concederlos con goce o sin goce de sueldo, lo cual debe quedar expresamente señalado en la solicitud y enviarla para lo que corresponda al Departamento de Recursos Humanos.

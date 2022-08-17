@@ -1,1 +1,0 @@
-Artículo 8°—La numeración de las labores correspondientes a cada puesto no deberá considerarse taxativa sino tan solo representativa del puesto que desempeña, por lo que cualquier aplicación de la misma será válida en la medida que guarde relación con las labores enumeradas y con la capacidad del servidor que las desempeñará.

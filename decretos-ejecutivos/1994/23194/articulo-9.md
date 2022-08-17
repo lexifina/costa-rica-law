@@ -1,1 +1,0 @@
-Artículo 9°—Los funcionarios del servicio interno del Ministerio de Relaciones Exteriores y Culto incluidos o no en el Régimen del Servicio Civil, tendrán derecho a que se les reconozcan las revaloraciones generales, decretadas para los servidores del Poder Ejecutivo.

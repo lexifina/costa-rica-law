@@ -1,2 +1,0 @@
-Artículo 19.—A aquellos servidores que realicen labores que por su indudable naturaleza se encuentran excluidos de la limitación de la jornada laboral, de acuerdo al artículo 143 del Código de Trabajo, y casos análogos, se les podrá exigir una jornada ordinaria de hasta doce horas diarias con hora y media de descanso durante la jornada.
-Para quienes eventualmente presten servicios en similares condiciones a las que señala el artículo 143 del Código antes citado, la jornada ordinaria de trabajo será la que allí se establece.

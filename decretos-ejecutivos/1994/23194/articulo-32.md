@@ -1,1 +1,0 @@
-Artículo 32.—El control debe ser marcado con el debido cuidado, de manera que quede impreso con claridad. Las marcas defectuosas, manchadas o confusas, en las que no se aprecie con claridad la marca respectiva y que no se deba a defecto del reloj, se tendrán por no hechas.

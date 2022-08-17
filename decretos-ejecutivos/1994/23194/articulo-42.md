@@ -1,1 +1,0 @@
-Artículo 42.—La justificación correspondiente a la ausencia al trabajo deberá presentarla el servidor el día de su incorporación al mismo. La no presentación de la justificación implica ausencia injustificada al trabajo y será sancionada de conformidad con lo que establece el presente Reglamento.

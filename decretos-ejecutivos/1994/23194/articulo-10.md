@@ -1,1 +1,0 @@
-Artículo 10.—El Departamento de Recursos Humanos, por delegación de la Dirección Administrativa Financiera será quien tenga a su cargo todo lo relacionado con la aplicación de este Reglamento, así como también lo concerniente al personal y las relaciones del mismo con la Dirección General de Servicio civil.

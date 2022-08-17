@@ -1,5 +1,0 @@
-Artículo 81.—Todo servidor deberá acatar y cumplir, los términos de ley sobre riesgos del trabajo, su reglamento, los reglamentos de salud ocupacional que se promulguen y las recomendaciones que, en esta materia, les formulen las autoridades competentes. Serán obligaciones del servidor, además de las que señalan otras disposiciones de las leyes mencionadas, las siguientes:
-a) Someterse a los exámenes médicos que establezcan las autoridades competentes, de cuyos resultados deberá ser informado.
-b) Colaborar y asistir a los programas que procuren su capacitación, en materia de salud ocupacional.
-c) Participar en la elaboración, planificación y ejecución de los programas de salud ocupacional en los centros de trabajo; y ch) Utilizar, conservar y cuidar el equipo y elementos de protección personal y de seguridad en el trabajo que se le suministren.
-(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 39329 del 3 de noviembre del 2015, que lo traspasó del antiguo artículo 78 al 81)

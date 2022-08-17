@@ -1,1 +1,0 @@
-Artículo 45.—Para casos muy calificados no contemplados en este Reglamento o en el Estatuto de Servicio Civil y su Reglamento, queda ajuicio del Director General y el respectivo superior inmediato justificar ausencias que no sean por enfermedad comprobada, sin que ello signifique obligación el pago del salario.

@@ -1,2 +1,0 @@
-Artículo 15.—Los servidores que laboran en las instalaciones centrales del Ministerio gozarán de un descanso de cincuenta minutos para el disfrute del almuerzo, que podrán hacer efectivo desde las once horas hasta las catorce horas, según lo determine la jefatura respectiva, de modo que las oficinas permanezcan abiertas en todo momento
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 33793 del 3 de mayo del 2007).

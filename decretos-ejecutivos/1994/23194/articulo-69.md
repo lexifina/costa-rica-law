@@ -1,6 +1,0 @@
-Artículo 69.—Las licencias para asistir a estudios a que se refiere el artículo 37 del Reglamento del Estatuto de Servicio Civil, sólo podrán otorgarse si se llenan los siguientes requisitos:
-a) Si las materias a que se refiere el estudio son atinentes a la labor que desempeña el servidor.
-b) Si las ausencias motivadas por la licencia no traen como consecuencia entorpecimiento del trabajo de la unidad en que presta sus servicios.
-c) El servidor deberá presentar constancia de que ha sido matriculado como alumno regular de la institución docente y el horario de clase que va a atender;
-d) El servidor que sea reprobado en dos o más asignaturas, perderá el derecho a nueva licencia; y
-e) Las mismas disposiciones regirán para los servidores que no estén protegidos por el Régimen de Servicio Civil.
