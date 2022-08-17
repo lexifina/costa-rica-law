@@ -14,3 +14,4 @@ Lineamientos al Reglamento de prevención del riesgo de legitimación de capital
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-01 | la propia norma |
+| 2 | 2022-08-17 | Resolución 1724 (2022-08-17) |
