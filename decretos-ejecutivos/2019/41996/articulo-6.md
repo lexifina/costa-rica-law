@@ -1,8 +1,0 @@
-Artículo 6º. —Funciones. Las principales funciones de la UPAD serán:
-1. Gestionar una cartera de proyectos de análisis de datos que permitan mejorar el proceso de toma de decisiones del Presidente de la República.
-2. Realizar gestiones de información para garantizar un adecuado flujo y acceso de datos entre las instituciones y la UPAD para el análisis y su aprovechamiento en la toma de decisiones del Presidente de la República, así como en el diseño y evaluación de políticas públicas.
-3. Garantizar un adecuado resguardo y confidencialidad durante la gestión de los datos institucionales cuando así se requiera, de forma que se utilicen únicamente con fines de apoyo a la toma de decisiones de política pública que favorezcan al bienestar de las personas; cumpliendo con los principios éticos, las normativas de acceso y uso de información pública.
-4. Monitoreo y evaluación del impacto de las decisiones del Presidente de la República, tomadas sobre la base de las recomendaciones de la UPAD.
-5. Participación conjuntamente con el resto de las instituciones públicas en procesos de capacitación y fortalecimiento en el campo del análisis de datos para política pública, en el uso de tecnologías digitales modernas y la implementación de soluciones de inteligencia artificial.
-6. Promover la capacitación de los funcionarios de la UPAD para una adecuada gestión, procesamiento y análisis de datos para toma de decisiones de política pública.
-7. Establecimiento de alianzas de cooperación con instituciones públicas y académicas para garantizar que se incorporen en la gestión de trabajo de la UPAD tecnologías de vanguardia así como la experiencia en análisis de datos para mejorar la gobernanza pública.

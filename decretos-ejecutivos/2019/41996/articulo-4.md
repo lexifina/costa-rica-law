@@ -1,5 +1,0 @@
-Artículo 4º. —Principios. La Unidad Presidencial de Análisis de Datos se regirá por los siguientes principios:
-1. Centrado en las personas: las decisiones de política que se desprendan del análisis de los datos deben enfocarse en mejorar la calidad de vida de la mayoría de personas que habitan el país, sobretodo de los grupos más vulnerables.
-2. Eficiencia y eficacia: optimizar el uso de los recursos públicos en los proyectos a desarrollar, incluyendo el recurso humano, el tiempo, la tecnología, el uso de datos e información y los costos económicos asociados.
-3. Mejora continua: procurar el más alto estándar en la calidad de los productos de información a proporcionar al Presidente de la República, a través de la continua mejora en las técnicas y herramientas que se utilicen para el análisis de datos y su aplicación en el sector público.
-4. Deber de confidencialidad: dicha obligación se extenderá a las personas funcionarias de la UPAD sobre la información confidencial que les sea compartida o suministrada bajo ese carácter por parte de las instituciones públicas. Esta obligación perdurará aun después de finalizada la relación con la UPAD.
