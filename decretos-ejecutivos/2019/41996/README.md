@@ -15,3 +15,4 @@ Creación de la Unidad Presidencial de Análisis de Datos (UPAD)
 | --- | --- | --- |
 | 1 | 2020-02-17 | la propia norma |
 | 2 | 2020-02-21 | Decreto Ejecutivo 42216 (2020-02-21) |
+| 3 | 2022-08-17 | SINALEVI (sin norma nombrada) |
