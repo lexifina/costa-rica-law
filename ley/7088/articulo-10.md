@@ -6,7 +6,7 @@ ch) En el caso de vehículos internados en las condiciones antes referidas, sobr
 El Registro Público de la Propiedad de Vehículos no inscribirá la transferencia de ningún vehículo, si el adquiriente no adjuntara la constancia de pago a los documentos de inscripción. Igual disposición rige para la transferencia de aeronaves o embarcaciones de recreo o de pesca deportiva, en cuyo caso serán el Registro de Aviación Civil o la Dirección General de Transporte Marítimo los responsables de verificar el pago de este impuesto, cuando proceda.
 No están afectos a éste tributo:
 1) Los vehículos internados con exoneraciones sobre los que, al transferirse, se deban pagar todos los derechos e impuestos.
-2) Los adquirientes de los vehículos propiedad del Estado y de las municipalidades.
+2) (Derogado por el artículo 56 de la Ley de Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)
 3) La transferencia entre personas que gocen de igual beneficio fiscal.
 *3) Los vehículos usados propiedad de la Asociación Cruz Roja Costarricense, que hayan pertenecido a dicha Institución por lo menos durante cinco años.
 (*Así adicionado el subinciso 3 anterior por el artículo único de la Ley N° 8493 del 9 de marzo de 2006)
