@@ -1,4 +1,6 @@
-Artículo 103.—Votación secreta
-En la votación secreta, los diputados emitirán su voto por medio de papeletas; en las cuales indicarán el voto afirmativo consignando o marcando la palabra “sí” y el voto negativo consignando o marcando la palabra “no”, de manera tal que haya certeza de la expresión de su voluntad.
-Al finalizar la votación, la Secretaría contabilizará todas las papeletas, para verificar si su número corresponde con el de los diputados votantes. El Directorio efectuará el escrutinio y la Secretaría anunciará el resultado a la Asamblea.
-(Así reformado mediante sesión ordinaria N° 41 del 23 de julio del 2018)
+Artículo 103.-Votación secreta
+Todas las votaciones que celebre la Asamblea Legislativa serán públicas, excepto aquellas en las que, mediante moción debidamente fundamentada y razonada, aprobada con el voto de dos terceras partes del total de los diputados y las diputadas, se disponga que sean secretas para cada caso concreto. Esta disposición procederá solo cuando exista una excepción calificada a los principios de la transparencia y publicidad y, por ende, de aplicación e interpretación restrictiva, por lo que procederá únicamente para casos en los que la información que allí se discuta, tenga naturaleza de Secreto de Estado o de información confidencial de terceros conforme a la ley.
+En la votación secreta, los diputados y las diputadas emitirán su voto por medio de papeletas innominadas; en las cuales indicarán el voto afirmativo consignando o marcando la palabra "sí" y el voto negativo consignando o marcando la palabra "no", de manera tal que haya certeza de la expresión de su voluntad.
+Al finalizar la votación, la Secretaría contabilizará todas las papeletas, para verificar si su número corresponde con el de los diputados y diputadas votantes. El Directorio efectuará el escrutinio y la Secretaría anunciará el resultado a la Asamblea.
+Esta votación no aplica para lo normado en el artículo 227 del Reglamento.
+(Así reformado mediante sesión ordinaria N° 55 del 18 de agosto de 2022)
