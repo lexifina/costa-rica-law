@@ -1,1 +1,0 @@
-Artículo 2°-Exonérase de toda clase de impuestos la compra de un vehículo, tipo automóvil, con un peso de hasta mil kilos, que hará el Club de Leones de San Ramón, para rifarlo en beneficio de varias obras sociales de ese cantón.
