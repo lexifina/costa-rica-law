@@ -14,3 +14,4 @@ Reforma Diligencia para el suministro de información de entidades financieras y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-20 | la propia norma |
+| 2 | 2022-08-18 | Resolución 23 (2022-08-18) |
