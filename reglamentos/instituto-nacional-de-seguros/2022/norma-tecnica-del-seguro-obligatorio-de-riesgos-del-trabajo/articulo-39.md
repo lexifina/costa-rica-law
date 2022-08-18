@@ -1,0 +1,2 @@
+Artículo 39. Procedimiento en caso de no recibirse la planilla De no recibirse la planilla en el plazo establecido, el INS procederá a sustituir la no presentación tomando los datos de la última planilla registrada dentro del período de vigencia, con el objetivo de no interrumpir el aseguramiento de los trabajadores.
+En caso de no existir planilla registrada, el INS tomará de oficio la planilla con la cual se calculó la renovación, emisión o rehabilitación de la póliza para sustituir la no presentación.
