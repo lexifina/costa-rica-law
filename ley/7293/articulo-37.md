@@ -1,3 +1,3 @@
 CAPITULO IX
 DE LAS EXENCIONES Y SU EFICACIA
-Artículo 37.- De la eficacia de la exención. En cuanto a su eficacia, las exenciones tributarias que se mencionan como vigentes en la presente Ley y las demás que se incorporen al ordenamiento jurídico, están condicionadas, de manera resolutoria, al pleno acatamiento de los preceptos, requisitos y fines que regulan el otorgamiento, así como al correcto uso y destino previsto, de los bienes y servicios sobre los que haya recaído la exención que disfruta determinado sujeto.
+Artículo 37.- De la eficacia de la exención. (Derogado por el artículo 54 inciso 133) de la Ley de Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino, N° 10286 del 18 de agosto del 2022)
