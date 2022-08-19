@@ -1,7 +1,7 @@
 CAPÍTULO VIII
 Del Instituto de Educación en Derechos Humanos de la Defensoría de los Habitantes
 (Así reformado el capítulo anterior mediante acuerdo N° 2266 del 19 de diciembre del 2019)
-Artículo 22.—Definición, organización y funciones. El Instituto de Educación en Derechos Humanos de la Defensoría de los Habitantes es la Dirección encargada de facilitar el conocimiento de los habitantes acerca de sus derechos, de las instituciones creadas para hacerlos efectivos y de la Defensoría como un recurso útil en la defensa y protección de éstos, tomando en consideración los procedimientos y normativa vigente.
+Artículo 22.-Definición, organización y funciones. El Instituto de Educación en Derechos Humanos de la Defensoría de los Habitantes es la Dirección encargada de facilitar el conocimiento de los habitantes acerca de sus derechos, de las instituciones creadas para hacerlos efectivos y de la Defensoría como un recurso útil en la defensa y protección de éstos, tomando en consideración los procedimientos y normativa vigente.
 Los conceptos de educación, promoción y divulgación de los derechos, se sitúan en una etapa preventiva de protección de los derechos de los habitantes e implica la generación de una verdadera cultura de los derechos que forme parte de todos los sectores sociales e institucionales, en un ambiente de solidaridad y participación.
 Entre otras funciones, corresponde a la Dirección:
 a) Diseñar, elaborar y ejecutar las distintas estrategias de información, divulgación, promoción y educación en el campo de los derechos humanos, dirigidas a la sociedad civil con el propósito de promover el conocimiento y defensa de los derechos de las personas frente a la acción del Estado.
@@ -14,4 +14,6 @@ g) Desarrollar procesos de investigación para identificar áreas vulnerables en
 h) Coordinar el envío del Informe Anual de Labores de la Defensoría a ministerios, instituciones autónomas, municipalidades, organismos no gubernamentales, institucionales homologas alrededor del mundo, así como a personas interesadas tanto dentro como fuera del país.
 l) Ejecutar los acuerdos interinstitucionales e internacionales y los programas de cooperación internacional en materia de promoción y divulgación de derechos.
 i) Realizar todas aquellas otras funciones que le indique el Defensor (a) de los Habitantes o que se desarrolle en la normativa interna de la institución.
+j) Coordinar la Cátedra Nacional de Derechos Humanos, bajo la guía y dirección del Despacho del Defensor o Defensora de los Habitantes.
+(Así adicionado el inciso anterior mediante acuerdo N° 2491 del 19 de agosto del 2022)
 (Así reformado mediante acuerdo N° 2266 del 19 de diciembre del 2019)
