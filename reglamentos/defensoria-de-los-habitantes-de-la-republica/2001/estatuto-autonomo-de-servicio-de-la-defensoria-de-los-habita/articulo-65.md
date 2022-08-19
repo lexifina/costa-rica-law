@@ -1,2 +1,0 @@
-Artículo 65.-De la integración del órgano Director del Procedimiento. Mediante acuerdo, el Defensor (a) de los Habitantes ordenará la integración del Órgano Director del procedimiento ordinario. Dicho órgano estará por tres funcionarios o funcionarias designados por la jerarca de turno. El Órgano Director emitirá una recomendación que siga las pautas de los principios rectores del procedimiento administrativo.
-(Así reformado mediante acuerdo N° 0600-DH publicado en La Gaceta N° 58 del 25 de marzo del 2022)

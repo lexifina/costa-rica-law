@@ -1,1 +1,0 @@
-Artículo 58.—De las reclasificaciones de puestos. Se entenderá por reclasificación el acto mediante el cual se rectifica la clasificación de un puesto por haber sido asignado o reasignado erróneamente.

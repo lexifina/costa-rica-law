@@ -1,1 +1,0 @@
-Artículo 54.—(Derogado por el artículo 23 del Estatuto de Selección, Nombramientos en Propiedad Interinos y Ascensos, aprobado mediante acuerdo N° 1978 y publicado en La Gaceta N° 49 del 10 de marzo del 2016)

@@ -1,1 +1,0 @@
-Artículo 47.—De la reglamentación. La evaluación de los servicios de cada funcionario (a) se hará conforme con las normas (manuales, formulario, estatuto) de procedimientos que dicte el Defensor (a) de los Habitantes.
