@@ -1,2 +1,0 @@
-Artículo 13.—El plazo máximo para realizar el trabajo meritorio será de hasta por tres meses la primera vez, pudiendo prorrogarse por períodos iguales siempre y cuando las condiciones y necesidades institucionales lo permitan y se cuente con el visto bueno del director, directora o jefe de oficina.
-Con el fin de garantizar el principio de libre concurrencia y e! aprovechamiento de las modalidades de prestación de servicios descritas en el presente capítulo para el mayor número de personas solicitantes, el plazo de duración de tos mismos no podrá exceder el plazo de un año.

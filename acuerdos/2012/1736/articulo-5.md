@@ -1,1 +1,0 @@
-Artículo 5º—En cada oficina podrán desempeñarse hasta un máximo de dos meritorios si las condiciones de trabajo, espacio, equipo y materiales, entre otros, así lo permiten. Para ello se deberá contar con el visto bueno del director, directora o jefe de la oficina.

@@ -1,1 +1,0 @@
-Artículo 6º—Durante la ejecución de las labores para las cuales haya sido aceptada la persona, la asignación de funciones y su respectiva supervisión serán responsabilidad del Director, Directora o Jefe de Departamento al cual se haya asignado el recurso humano.

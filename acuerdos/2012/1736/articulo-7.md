@@ -1,2 +1,0 @@
-Artículo 7º—Cuando el Director, Directora o Jefe de Departamento considere inconveniente la presencia o actuaciones del personal meritorio, podrá prescindir de éste dando aviso al Departamento de Recursos Humanos para los trámites y registros pertinentes.
-El aviso deberá realizarse de manera escrita, pudiendo utilizarse el correo interno institucional, debiendo indicarse de manera lacónica las causas que motivan la solicitud formulada de cese.
