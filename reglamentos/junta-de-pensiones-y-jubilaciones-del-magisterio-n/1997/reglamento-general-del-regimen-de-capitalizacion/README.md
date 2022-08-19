@@ -26,3 +26,4 @@ Reglamento General del Régimen de Capitalización
 | 11 | 2016-06-16 | Reglamento 68 (2016-06-16) |
 | 12 | 2018-02-20 | Reglamento 19 (2018-02-20) |
 | 13 | 2022-02-01 | Reglamento 13 (2022-02-01) |
+| 14 | 2022-08-19 | Reglamento 91 (2022-08-19) |
