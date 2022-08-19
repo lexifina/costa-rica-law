@@ -1,5 +1,5 @@
 Disposiciones transitorias
-Primera.—Se instruye a la Dirección Administrativa para que por medio del Departamento de Recursos Humanos y durante los años 2016 y 2017 resuelva la situación de todos aquellos funcionarios y funcionarias que ocupan interinamente plazas vacantes puras (plazas que no tienen ningún nombramiento en propiedad), por lo que las siguientes plazas (puestos) deberán seguir el procedimiento de concurso interno establecido en el acuerdo N° 1198-DH del 18 de enero del 2007:
+Primera.-Se instruye a la Dirección Administrativa para que por medio del Departamento de Recursos Humanos y durante los años 2016 y 2017 resuelva la situación de todos aquellos funcionarios y funcionarias que ocupan interinamente plazas vacantes puras (plazas que no tienen ningún nombramiento en propiedad), por lo que las siguientes plazas (puestos) deberán seguir el procedimiento de concurso interno establecido en el acuerdo N° 1198-DH del 18 de enero del 2007:
 | Número de puesto | Clase de puesto
 1 | 014167 | Jefe Depto. Administrativo
 2 | 369698 | Profesional de Defensa 3
@@ -20,4 +20,5 @@ Primera.—Se instruye a la Dirección Administrativa para que por medio del Dep
 17 | 014212 | Notificadora
 18 | 038116 | Trabajador Misceláneo
 19 | 371733 | Profesional de Defensa 2
-Se exceptúa de la presente disposición transitoria las plazas correspondientes a la especialidad de arquitectura (360276) y a la especialidad de médico de empresa (103443), en virtud de no ser posible para la institución realizar un concurso interno que garantice la más amplia participación de distintos oferentes.
+Se exceptúa de la presente disposición transitoria la plaza correspondiente a la especialidad de médico de empresa (103443), en virtud de no ser posible para la institución realizar un concurso interno que garantice la más amplia participación de distintos oferentes.
+(Así reformado el párrafo anterior mediante acuerdo N° 2490 del 19 de agosto del 2022, publicado en La Gaceta N° 227 del 28 de noviembre del 2022)

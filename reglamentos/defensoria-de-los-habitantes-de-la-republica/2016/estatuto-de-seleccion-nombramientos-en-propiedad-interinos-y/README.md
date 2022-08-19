@@ -15,3 +15,4 @@ Estatuto de Selección, Nombramientos en Propiedad Interinos y Ascensos
 | --- | --- | --- |
 | 1 | 2016-03-10 | la propia norma |
 | 2 | 2022-02-16 | Reglamento 0 (2022-02-16) |
+| 3 | 2022-08-19 | Reglamento 0 (2022-08-19) |
