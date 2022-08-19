@@ -1,0 +1,1 @@
+ARTÍCULO 2- Los terrenos descritos en el artículo anterior se afectan a uso y dominio público, con una nueva naturaleza de terrenos destinados a la construcción de las instalaciones policiales del Ministerio de Seguridad Pública.
