@@ -1,0 +1,1 @@
+Artículo 13.-Relación de la compensación con el puesto: El derecho de percibir esta compensación es inherente al puesto, indiferentemente que el nombramiento sea propiedad o interino. Por lo tanto; el movimiento o traslado a otro puesto de los que no están afectados por este régimen implica la supresión de la compensación económica.

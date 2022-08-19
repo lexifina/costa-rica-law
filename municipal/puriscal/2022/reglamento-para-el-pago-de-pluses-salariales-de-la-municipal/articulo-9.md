@@ -1,0 +1,4 @@
+Artículo 9º-Aplicación de la compensación Economía por prohibición. Los porcentajes señalados en el artículo anterior y con fundamento en el artículo 9 del Reglamento el Título III de la Ley Fortalecimiento de las Finanzas Públicas, Ley N° 9635 referente al Empleo Público, resultan aplicables a:
+a. Los servidores que sean nombrados por primera vez en la Administración Pública en un puesto en el cual cumplen los requisitos legales para recibir la compensación por prohibición.
+b. Los servidores que previo a la publicación de la Ley N° 9635, no se encontraban sujetos al régimen de prohibición y que de manera posterior a la publicación cumplen los requisitos legales respectivos.
+c. Los servidores que finalizan su relación laboral y posteriormente se reincorporan a una institución del Estado, por interrupción de la continuidad laboral.

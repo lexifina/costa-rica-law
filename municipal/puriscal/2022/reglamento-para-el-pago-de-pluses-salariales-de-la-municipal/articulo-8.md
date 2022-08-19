@@ -1,0 +1,1 @@
+Artículo 8º-Compensación económica de la prohibición: La Municipalidad reconocerá la compensación salarial, establecida en el artículo 36 de la ley de Salarios de la Administración Pública que implantan este régimen, calculada sobre el salario base.

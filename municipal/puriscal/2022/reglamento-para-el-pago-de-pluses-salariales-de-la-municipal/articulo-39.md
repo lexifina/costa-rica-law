@@ -1,0 +1,1 @@
+Artículo 39.-Momento desde que será efectiva la renuncia: La renuncia se hará efectiva al finalizar el mes en que fue presentada o al mes siguiente si es la Municipalidad la que finiquita; y la persona trabajadora no podrá acogerse nuevamente al régimen o solicitarlo sin que hayan transcurrido mínimo dos años.

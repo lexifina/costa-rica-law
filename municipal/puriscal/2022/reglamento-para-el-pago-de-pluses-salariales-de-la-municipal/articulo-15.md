@@ -1,0 +1,1 @@
+Artículo 15.-Momento de inicio de las obligaciones del régimen: Las obligaciones del régimen de prohibición iniciarán, para ambas partes, desde el primer día de funciones de la persona trabajadora cubierta por este régimen.

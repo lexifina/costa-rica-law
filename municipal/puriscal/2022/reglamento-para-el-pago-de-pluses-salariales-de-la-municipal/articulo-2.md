@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo del reglamento: El presente reglamento tiene como objetivo establecer los montos y las condiciones bajo las cuales la Municipalidad de Puriscal reconocerá las compensaciones salariales; conocidas como pluses; en esta municipalidad conforme a la Ley.

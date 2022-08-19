@@ -1,0 +1,1 @@
+Artículo 4º-Acción de personal: De todo movimiento relacionado con el reconocimiento, modificación o eliminación de pluses salariales, el proceso de Recursos Humanos dejará constancia en el expediente de la persona trabajadora, mediante una acción de personal.

@@ -1,0 +1,3 @@
+Artículo 33.-Casos de excepción: El ejercicio de la profesión en asuntos ajenos a la Municipalidad, para personas trabajadoras cubiertas por los regímenes de prohibición o dedicación exclusiva, es posible en las siguientes situaciones:
+a) Podrá darse docencia o capacitación.
+b) Cuando se trate del ejercicio profesional relacionado con asuntos propios, del cónyuge, de ascendientes, descendientes y parientes colaterales por consanguinidad y afinidad hasta el tercer grado inclusive.*Para acogerse a esta excepción, el trabajador deberá comunicarlo por escrito a la Alcaldía y al proceso de Recursos Humanos. En el oficio, deberá indicar expresamente el tipo de trabajo que realizará, y la fecha de inicio y posible finalización de la prestación del servicio profesional.

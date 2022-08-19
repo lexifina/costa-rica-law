@@ -1,0 +1,1 @@
+Transitorio II.-El presente Reglamento deroga el Reglamento para la aplicación del beneficio de dedicación exclusiva de la Municipalidad de Puriscal y cualquier otra reglamentación o normativa existente en la materia.

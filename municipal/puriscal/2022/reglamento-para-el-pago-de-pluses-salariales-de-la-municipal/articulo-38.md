@@ -1,0 +1,1 @@
+Artículo 38.-Procedimiento para renunciar: La persona trabajadora que deseare renunciar a este régimen deberá comunicarlo por escrito al proceso de Recursos Humanos y a la Alcaldía Municipal; cuando es la Municipalidad quien desee finiquitar dicho contrato, lo notificará por escrito un mes previo al funcionario, con copia a Recursos Humanos.

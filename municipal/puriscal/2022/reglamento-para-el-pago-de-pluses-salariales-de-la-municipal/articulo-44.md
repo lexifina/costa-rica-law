@@ -1,0 +1,1 @@
+Artículo 44.-Relación de la compensación con el puesto: El derecho de percibir esta compensación es inherente al puesto; indiferentemente de que el nombramiento sea en propiedad, interino o por jornales ocasionales. Por lo tanto; el movimiento o traslado a otro puesto de los que no están expuestos a situaciones de peligrosidad implica la pérdida de la compensación económica.

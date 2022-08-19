@@ -1,0 +1,1 @@
+Artículo 42.-Compensación económica por peligrosidad: En la Municipalidad de Puriscal; la compensación económica por peligrosidad consiste en un diez por ciento (10%) adicional, calculado sobre el salario base.

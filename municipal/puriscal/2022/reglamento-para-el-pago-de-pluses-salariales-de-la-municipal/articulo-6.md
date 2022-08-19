@@ -1,0 +1,1 @@
+Artículo 6º-Objetivo del régimen de prohibición: Con el régimen de prohibición se asegura la prevalencia del interés público sobre el privado, en tanto procura la inexistencia de potenciales conflictos de intereses que podrían presentarse en el caso de que se permitiera el ejercicio liberal de la profesión en forma simultánea al ejercicio de la función pública.

@@ -1,0 +1,6 @@
+Artículo 20.-Condiciones y requisitos: Las personas trabajadoras que deseen acogerse al régimen de dedicación exclusiva deben cumplir las siguientes condiciones y requisitos establecidos en el artículo 31 de la Ley de Salarios de la Administración Pública:
+1. Estar nombrado o designado mediante acto formal de nombramiento en propiedad, de forma interina, suplencia o puesto de confianza.
+2. Poseer un título académico universitario, que le acredite como profesional en determinada área del conocimiento, para ejercer de forma liberal la profesión respectiva.
+3. Estar incorporado en el colegio profesional respectivo; lo anterior en caso de que dicha incorporación gremial exista y que la incorporación sea exigida como una condición necesaria para el ejercicio liberal.
+4. En los supuestos de dedicación exclusiva, se deberá estar nombrado en un puesto que tenga como requisito mínimo el grado académico profesional de bachiller.
+En los casos en que la persona trabajadora ostente un título de una universidad extranjera y en Costa Rica no exista el colegio profesional para esa carrera, deberá aportar una certificación donde conste que el título fue reconocido y equiparado por una universidad costarricense o institución educativa autorizada para ello, por el Consejo de Educación Superior (CONESUP).

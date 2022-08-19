@@ -1,0 +1,1 @@
+Artículo 43.-Objetivo de la compensación: Compensar con un beneficio salarial a las personas trabajadoras, por las situaciones de peligrosidad que enfrentan habitualmente en el desempeño de sus labores.

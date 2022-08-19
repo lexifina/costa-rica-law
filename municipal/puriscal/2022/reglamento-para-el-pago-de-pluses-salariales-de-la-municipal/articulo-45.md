@@ -1,0 +1,1 @@
+Artículo 45.-Procedimiento para adjudicar esta compensación a nuevos puestos: Cuando del análisis para crear plazas nuevas, se desprenda que las tareas habituales y permanentes de sus ocupantes, los expondrán a situaciones de peligrosidad; se deberá incorporar esta compensación salarial, al salario de la plaza a crear.

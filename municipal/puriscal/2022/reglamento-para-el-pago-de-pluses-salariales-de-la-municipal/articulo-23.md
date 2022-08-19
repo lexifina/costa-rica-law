@@ -1,0 +1,1 @@
+Artículo 23.-Objetivo de la compensación salarial: Esta tiene como propósito compensar con un incentivo salarial la limitación al ejercicio liberal de la profesión a la que voluntariamente pueden someterse personas trabajadoras profesionales de la Municipalidad.
