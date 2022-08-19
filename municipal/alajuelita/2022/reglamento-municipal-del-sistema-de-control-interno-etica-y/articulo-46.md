@@ -1,0 +1,1 @@
+Artículo 45.-Competencia para declarar responsabilidades. Las sanciones previstas en este reglamento serán impuestas por el alcalde previa recomendación de la Comisión de Control Interno, Ética y Valores.

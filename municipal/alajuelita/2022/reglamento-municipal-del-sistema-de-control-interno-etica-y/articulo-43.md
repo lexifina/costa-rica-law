@@ -1,0 +1,1 @@
+Artículo 44.-Gestión de la ética y prevención a la corrupción. Todos los Titulares y Jerarcas Subordinados debe establecer acciones de capacitación, protocolos para el manejo del conflicto de intereses, revisión de indicadores de gestión en los procesos vulnerables a corrupción y remitir a la Comisión de Control Interno, Ética y Valores las acciones realizadas.

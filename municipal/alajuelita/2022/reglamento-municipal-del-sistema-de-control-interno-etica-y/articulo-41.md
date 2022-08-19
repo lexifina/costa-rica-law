@@ -1,0 +1,1 @@
+Artículo 42.-Actividades periódicas para el seguimiento. La Comisión de Control Interno, Ética y Valores coordinarán la fecha, los responsables y las acciones de mejora de la aplicación de la Herramienta del Modelo de Madurez emitida por la Contraloría General de la República.

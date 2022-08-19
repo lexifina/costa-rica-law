@@ -1,0 +1,4 @@
+Artículo 14.-Conformación de los Niveles Funcionales.
+Nivel Político: Está conformado por el Concejo Municipal en sus funciones de fiscalización y gobierno (artículo 13 del Código Municipal); y por Alcaldía Municipal en sus funciones de administrador general (artículo 17 del Código Municipal) y ejecutivo según artículo 169 de la carta magna.
+Dirección y coordinación institucional de las acciones relacionadas con el Sistema de Control Interno, Ética y Valores: Comisión de Control Interno, Ética y Valores (CCIEV).
+Supervisión y fiscalización de las actividades realizadas para el fortalecimiento del SCI: Concejo Municipal, Alcaldía, Comisión de Control Interno, Ética y Valores, (CCIEV), Auditoría Interna, Jefaturas de Procesos y sub-Procesos y la totalidad los funcionarios y funcionarías municipales. Cada persona en el rol y función que le atribuye la normativa vigente como parte de la fiscalización y supervisión.

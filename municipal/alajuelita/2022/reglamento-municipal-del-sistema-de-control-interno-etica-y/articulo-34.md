@@ -1,0 +1,1 @@
+Artículo 35.-Resultados de la Autoevaluación del Sistema de Control Interno. Cada titular subordinado es el responsable de los resultados obtenidos en la Autoevaluación. Dichos resultados deberán enviarse a la Comisión de Control Interno, Ética y Valores por el medio establecido de acuerdo con el cronograma de aplicación.
