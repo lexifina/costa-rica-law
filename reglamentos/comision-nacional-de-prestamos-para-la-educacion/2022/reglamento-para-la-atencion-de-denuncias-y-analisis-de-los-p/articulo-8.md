@@ -1,0 +1,1 @@
+Artículo 8º-Trámite de denuncias anónimas. Las denuncias que sean presentadas en forma anónima (aquellas presentadas por una persona sin identificarse o mediante el uso de seudónimo o nombre falso) se podrán atender de oficio mediante una investigación preliminar, pudiéndose aportar los elementos probatorios en caso de que ello resultare pertinente.

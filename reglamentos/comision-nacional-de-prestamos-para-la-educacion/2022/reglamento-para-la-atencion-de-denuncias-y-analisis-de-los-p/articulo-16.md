@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la tramitación e investigación de las denuncias
+Artículo 16.-Sobre la tramitación de las denuncias. Las denuncias se deben tramitar con prontitud y no se puede alegar inercia del denunciante para justificar cualquier atraso en su trámite, por lo que la Auditoría Interna debe procurar darle un rápido trámite, de acuerdo con su plan operativo y de trabajo anual, respetando el derecho de petición y pronta respuesta en los términos señalados por la Constitución Política y los Lineamientos Generales para el análisis de hechos irregulares emitidos por la Contraloría General de la República.
