@@ -1,0 +1,1 @@
+Artículo 7º-Equivalencia funcional: para cualquier efecto el formulario podrá ser presentado de manera física o digital - de acuerdo con la Ley de Certificados, Firmas Digitales y Documentos Electrónicos (Ley 8454) -, las cuales deberán venir dirigidas directamente al Concejo Municipal.
