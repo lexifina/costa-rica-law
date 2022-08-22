@@ -1,4 +1,1 @@
-Artículo 32.—Elección de la modalidad de pensión.
-Para elegir la modalidad de pensión el afiliado o beneficiario deberá, a través de la OPC donde está adscrito, solicitar la cotización y realizar la selección de la modalidad de pensión. Mediante acuerdo, el Superintendente de Pensiones establecerá el procedimiento que corresponde efectuar para este trámite.
-El afiliado o beneficiario deberá solicitar la cotización de la modalidad de pensión dentro de un plazo máximo de cinco días hábiles, contados a partir de la recepción de la comunicación del derecho a la pensión complementaria. En ese acto la OPC deberá comunicarle el día que debe presentarse a la OPC para la apertura de las ofertas recibidas, fecha que no podrá ser mayor a diez días hábiles contados a partir de ese momento.
-Los afiliados o beneficiarios que puedan optar por el Retiro Total y desean contratar una modalidad de pensión complementaria, no tienen que recurrir al proceso de cotización.
+Artículo 32.-Elección de la modalidad de pensión.(Derogado en sesión N° 1750 del 22 de agosto de 2022)

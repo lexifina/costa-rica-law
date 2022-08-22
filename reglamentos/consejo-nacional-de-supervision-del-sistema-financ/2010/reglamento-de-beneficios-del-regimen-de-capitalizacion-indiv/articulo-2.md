@@ -5,7 +5,7 @@ Beneficios: Pensiones derivadas de las modalidades de pensión establecidas en l
 Tratándose del Régimen Voluntario de Pensiones Complementarias se entenderá como beneficiario aquella persona expresamente designada como tal por el afiliado o pensionado ante la operadora, o quien, en defecto de lo anterior, así sea declarado por la autoridad judicial correspondiente, después de seguirse el procedimiento establecido en el artículo 85 del Código de Trabajo.
 (*) (Así reformada la definición anterior mediante sesión N° 1696 del 25 de octubre de 2021)
 Capital para la pensión: Saldo de la cuenta de capitalización individual, administrada por una operadora de pensiones, que se utilizará para adquirir una modalidad de pensión debidamente autorizada.
-Código solicitante: Composición de números y letras que sustituyen el nombre, apellido y número de identificación de un afiliado o beneficiario con el fin de solicitar cotizaciones de modalidades de pensión a las otras operadoras de pensiones y compañías de seguros.
+Código solicitante: (Eliminada en sesión N° 1750 del 22 de agosto de 2022)
 CONASSIF: Consejo Nacional de Supervisión del Sistema Financiero.
 IVM: Régimen de Invalidez, Vejez y Muerte, administrado por la Caja Costarricense del Seguro Social.
 Modalidades de pensión: Productos debidamente autorizados que permiten el disfrute de una pensión complementaria.

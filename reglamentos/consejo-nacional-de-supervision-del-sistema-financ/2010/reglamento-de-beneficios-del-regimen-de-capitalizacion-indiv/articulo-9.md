@@ -1,2 +1,4 @@
-Artículo 9º—Renta Permanente.
-La renta permanente consiste en el disfrute, como pensión complementaria, del monto de los rendimientos generados por la inversión de los recursos del afiliado. La determinación de su cuantía mensual se establece en la doceava parte de los rendimientos devengados, en la cuenta de capitalización individual, durante los últimos doce meses. El pago se mantendrá inalterable por doce meses y corresponderá con la cuantía determinada. Transcurrido el plazo anterior se procederá a recalcular la cuantía según lo indicado en el presente artículo.
+Artículo 9.-Renta Permanente. La Renta Permanente consiste en un producto de beneficios mediante el cual el pensionado disfruta de una pensión complementaria que se financia con el monto de los rendimientos generados por la inversión de los recursos acumulados en su cuenta individual. El saldo de la cuenta, al fallecimiento del pensionado, será entregado a los beneficiarios, de acuerdo con la ley y la normativa vigente.
+Los rendimientos que se utilizarán para determinar la pensión serán los correspondientes a los últimos treinta y seis meses. Las prestaciones se pagarán mensualmente y en montos iguales.
+El recálculo de la nueva pensión se realizará treinta y seis meses después, y así sucesivamente.
+(Así reformado en sesión N° 1750 del 22 de agosto de 2022)
