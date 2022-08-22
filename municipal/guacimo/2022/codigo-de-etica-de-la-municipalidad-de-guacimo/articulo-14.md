@@ -1,0 +1,1 @@
+Artículo 14.-Los servidores municipales están obligados a observar en su lugar de trabajo y para con sus compañeros, conductas de amabilidad y cortesía, las cuales deben expresarse en el trato diario.

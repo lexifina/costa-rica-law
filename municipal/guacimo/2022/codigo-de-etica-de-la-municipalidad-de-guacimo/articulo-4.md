@@ -1,0 +1,1 @@
+Artículo 4°-Las actuaciones contrarias a las disposiciones de este Código son consideradas como faltas y su gravedad o persistencia se tratarán según lo establecido en el Código Autónomo de Servicio, Código Municipal, y demás normativa conexa o regímenes especiales aplicables.

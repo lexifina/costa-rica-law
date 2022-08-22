@@ -1,0 +1,1 @@
+Artículo 11.-En lo que se refiere a la atención al munícipe, proporcionar los servicios de la máxima calidad, de acuerdo con las especificaciones establecidas. Los usuarios serán tratados con respeto, amabilidad y honradez en todos los niveles de atención; se les brindará solución a sus reclamos y se procurará atender sus requerimientos conforme con la normativa vigente.

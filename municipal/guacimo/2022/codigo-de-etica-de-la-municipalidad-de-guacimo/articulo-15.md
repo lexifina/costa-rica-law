@@ -1,0 +1,1 @@
+Artículo 15.-El Jerarca, los Directores, Jefaturas y cualquier otro servidor que tenga a su cargo personal, debe ejercer su autoridad mediante el conocimiento, la apertura al diálogo, el convencimiento y un liderazgo basado en valores y principios éticos institucionales.

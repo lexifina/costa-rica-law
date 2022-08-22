@@ -1,0 +1,1 @@
+Artículo 22.-Se cumplirá en forma estricta, la normativa institucional en materia de conducta, la cual una vez aprobada se divulgará en la página web, redes sociales municipales o intranet de la Municipalidad.

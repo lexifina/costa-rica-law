@@ -1,0 +1,5 @@
+Artículo 25.-Son compromisos éticos para el Jerarca, que incluyen al Concejo Municipal y al Titular de la Alcaldía y Vicealcaldía de la Municipalidad de Guácimo.
+a. Cumplir con las disposiciones establecidas en la Constitución Política, Código Municipal, Ley Contra la Corrupción y el Enriquecimiento Ilícito, Ley de Contratación Administrativa, Ley de Control Interno y demás normativa vinculante a la institución.
+b. Promover la creación de reglamentación e impulsar acciones que ayuden a desarrollar de forma sostenible la Institución y que, por ende, contribuyan en el bienestar ambiental, económico y social de la República.
+c. Promover, internamente en la institución y con la sociedad en general, procedimientos periódicos de rendición de cuentas (Informe de fin de gestión) con el fin de colaborar con el país en el esfuerzo por crear una cultura de la transparencia y rendición de cuentas.
+d. Promover, internamente en la institución, una cultura organizacional basada en los valores y principios plasmados en este Código de Ética y velar por que su cumplimiento sea el resultado de la convicción propia de los trabajadores y no actos meramente disciplinarios.
