@@ -14,3 +14,4 @@ Reglamento de tesorería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-04-26 | la propia norma |
+| 2 | 2022-08-23 | Reglamento municipal 52 (2022-08-23) |
