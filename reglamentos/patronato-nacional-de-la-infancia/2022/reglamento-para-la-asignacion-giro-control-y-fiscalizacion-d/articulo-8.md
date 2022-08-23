@@ -1,0 +1,8 @@
+SECCIÓN SEGUNDA: DE LOS REQUISITOS PARA LA PRÓRROGA DE LA
+BECA
+Artículo 8.- De la prórroga de la beca. Toda beneficiaria de beca podrá solicitar la prórroga del beneficio, al menos con un mes de anticipación de la finalización del curso lectivo, proceder con el llenado de la presolicitud de prórroga, ante la Oficina Local, la cual, deberá guardar la misma, para control y dar prioridad en el siguiente año, cuando se inicie el proceso correspondiente. En el mes de febrero del año siguiente en que volverá a otorgársele el beneficio, la adolescente madre y/o embarazada deberá presentarse a la Oficina Local del PANI, en la circunscripción territorial que le corresponda, según su residencia habitual, para realizar la solicitud, con los siguientes documentos:
+A. Actualizar la boleta de datos que le entregará la Oficina Local.
+B. Estar matriculada y/o asistiendo a alguna de las modalidades u ofertas de educación del MEP para cursar primaria o secundaria. En el caso de la modalidad de educación abierta, debe estar preparándose en al menos tres materias.
+C. Mantenerse en condición de vulnerabilidad según el análisis técnico realizado por la Oficina Local del PANI.
+D. Presentar constancia emitida por el centro educativo de la aprobación del curso lectivo del año anterior y la constancia de matrícula actualizada.
+E. En caso de haber reprobado el curso lectivo anterior, deberá presentar justificación por escrito, debidamente fundamentada, a la Oficina Local respectiva y esta valorará la situación, para recomendar o no la continuidad de la beca. La Oficina Local podrá solicitar respaldo documental, como informes del MEP, certificaciones de la CCSS, Ministerio de Salud, INS, o la instancia que corresponda.

@@ -1,0 +1,4 @@
+SECCION TERCERA. DEL PROCEDIMIENTO PARA LA APROBACIÓN DE
+LAS BECAS Y REQUISITOS PARA SU GIRO
+Artículo 9.- Una vez que la Oficina Local reciba la solicitud completa de la beca y haga la entrevista y se compruebe que la misma cumple con todos los requisitos, ésta tendrá un plazo máximo de 10 días hábiles para la revisión y emisión de la aprobación o desaprobación de la beca, la cual debe ser firmada por el comité evaluador, que estará conformado por el o la coordinadora de la Oficina Local, el o la Representante Legal de la Oficina (si hay dos o más, queda a criterio de la coordinación la selección) y la o el encargado del Programa Adolescente Madre de la Oficina, el área de Psicología y/o Trabajo Social.
+En las reuniones del Comité Evaluador se deberá utilizar el formulario correspondiente. Asimismo, la persona encargada de las becas educativas, deberá tener un respaldo de las solicitudes que se analizaron en las reuniones, como medio de control.

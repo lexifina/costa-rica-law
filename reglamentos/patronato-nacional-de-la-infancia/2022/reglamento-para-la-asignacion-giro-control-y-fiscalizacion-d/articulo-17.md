@@ -1,0 +1,5 @@
+Artículo 17.- Procedimiento para exclusión del beneficio. Para excluir una beneficiaria del programa de becas se aplicará el siguiente procedimiento:
+A) A partir del conocimiento de la situación, el Comité Evaluador utilizará el formulario correspondiente, dirigido a la adolescente madre y/o embarazada en el que se indicará el motivo de la exclusión como beneficiaria de la beca, partiendo de la existencia de una o varias de las causales indicadas en el Artículo 16 del presente reglamento. Dicha exclusión deberá ser notificada a la beneficiaria, quien contará con un plazo de 03 días hábiles para impugnar la decisión. La impugnación será resuelta por la Dirección Regional correspondiente, con copia a la Gerencia Técnica en el plazo de 05 días hábiles.
+Se debe indicar a la adolescente madre y/o embarazada que tiene derecho a
+impugnar la exclusión al beneficio de la beca educativa.
+B) En caso de que la dirección regional avale la exclusión, la oficina local indicará en la planilla siguiente la exclusión de la beneficiaria, junto con la información de la planilla de pago mensual, cuando corresponda.

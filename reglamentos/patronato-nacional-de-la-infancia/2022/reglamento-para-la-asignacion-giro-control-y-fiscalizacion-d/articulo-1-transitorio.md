@@ -1,0 +1,2 @@
+TRANSITORIOS
+Transitorio I.- El Patronato Nacional de la Infancia en un plazo no mayor a dos ejercicios presupuestarios, contados luego de la vigencia del presente Reglamento, dotará al Programa Adolescente Madre con la herramienta tecnológica que le permita realizar el proceso de ingreso de datos de las beneficiarias, con el fin de generar las planillas de manera más ordenada, eficiente, segura y eficaz, permitiendo también mayor celeridad en el proceso.
