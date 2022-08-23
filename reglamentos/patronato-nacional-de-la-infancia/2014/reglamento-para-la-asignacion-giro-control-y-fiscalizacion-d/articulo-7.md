@@ -1,5 +1,0 @@
-Artículo 7º—Una vez aprobada la beca por el PANI, la beneficiaria deberá presentar ante la Oficina Local:
-a) Apertura de una cuenta de ahorros, sea en un banco estatal o privado y aportar conjuntamente el número de cuenta cliente.
-b) Suscribir convenio con el Patronato Nacional de la Infancia para el otorgamiento de la Beca.
-c) Presentar cada trimestre a la Oficina Local del PANI, certificación de notas original emitida por el Centro Educativo, donde cursa el ciclo lectivo. Este informe debe ser presentado ante la Oficina Local, a partir del momento en que se le notifica la autorización de la beca a la beneficiaria.
-d) Para continuar con el beneficio el año siguiente, si aún la adolescente madre tiene menos de 18 años, deberá presentar constancia emitida por el centro educativo de la aprobación del ciclo académico y la constancia de matrícula actualizada. En caso de haber reprobado el año, deberá presentar justificación debidamente fundamentada, a la oficina local respectiva y ésta valorará la situación, para recomendar o no la continuidad de la beca.
