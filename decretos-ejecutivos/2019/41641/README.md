@@ -19,3 +19,4 @@ Reglamento al título IV de la ley No. 9635, denominado Responsabilidad Fiscal d
 | 4 | 2020-11-19 | Decreto Ejecutivo 42745 (2020-11-19) |
 | 5 | 2021-08-03 | Decreto Ejecutivo 43145 (2021-08-03) |
 | 6 | 2022-06-22 | Decreto Ejecutivo 43589 (2022-06-22) |
+| 7 | 2022-08-23 | Decreto Ejecutivo 43696 (2022-08-23) |

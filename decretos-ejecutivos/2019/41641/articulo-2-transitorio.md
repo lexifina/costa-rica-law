@@ -1,0 +1,3 @@
+TRANSITORIO II. La Secretaría Técnica de la Autoridad Presupuestaria, analizará y valorará el ajuste en los topes máximos de gasto presupuestario 2022 de aquellas entidades del SPNF (excepto Presupuesto Nacional) que demuestren que fueron afectadas por la modificación de los artículos 3° y 22 de este reglamento, realizada mediante el Decreto Ejecutivo No. 43589-H de 22 de junio del 2022.
+En aplicación del presente transitorio, los nuevos topes de gasto presupuestario que se determinen para el 2022 serán la base de cálculo del gasto máximo a presupuestar en el 2023.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 43696 del 23 de agosto de 2022)
