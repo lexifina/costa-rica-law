@@ -1,0 +1,5 @@
+Artículo 20.-Término de emplazamiento a la persona denunciada.
+Una vez realizada la ampliación de la denuncia, la Comisión Investigadora dará traslado de esta a la persona denunciada, concediéndole un plazo de ocho días hábiles para que se refiera por escrito a todos y cada uno de los hechos que se le imputan, ofrezca la prueba de descargo y señale medio o lugar en donde se le pueda notificar.
+En caso de ser la persona denunciada menor de edad, para realizar el traslado de cargos es necesario la presencia y acompañamiento de su representante legal.
+Cuando la persona denunciada ofrezca prueba testimonial debe indicar el nombre y calidades de las personas que ofrece como testigos. Cuando presente prueba documental o pericial que se encuentre en poder de la institución u organización, debe señalar dónde puede ser revisada esa prueba y corresponde a la Comisión Investigadora solicitarla para los efectos correspondientes.
+En caso de que la persona denunciada no presente su descargo en el plazo establecido, podrá hacerlo en la audiencia. Si así no lo hace, el proceso continuará hasta la etapa final, sin que ello signifique aceptación de los cargos.

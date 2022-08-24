@@ -1,0 +1,2 @@
+Artículo 39.-De la separación de la parte denunciada de la Institución o entidad deportiva.
+En el caso de que una persona denunciada finalice su relación laboral o deportiva durante la tramitación de la denuncia por hostigamiento sexual, la Comisión Investigadora continuará con el procedimiento hasta su finalización, siempre que a la persona denunciada ya se le haya notificado la resolución de apertura.

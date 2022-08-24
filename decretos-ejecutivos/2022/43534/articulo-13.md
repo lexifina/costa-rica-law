@@ -1,0 +1,10 @@
+Artículo 13.-Funciones de las Comisiones Investigadoras Las Comisiones Investigadoras tendrán las siguientes funciones:
+a. Realizar el proceso de investigación de las denuncias de hostigamiento sexual remitidas por la Comisión Institucional contra el Hostigamiento Sexual del ICODER.
+b. Informar a la Comisión Institucional contra el Hostigamiento Sexual del ICODER sobre la apertura y el cierre de casos para efectos de control.
+c. Citar a las partes a una audiencia oral y privada de recepción de pruebas.
+d. Conducir la investigación y las audiencias necesarias, evacuar las pruebas ofrecidas por las partes y ordenar de oficio otras que considere necesarias, respetando el debido proceso y los principios generales y específicos establecidos en la Ley. Todo rechazo de prueba deberá contar con la justificación respectiva, sea por la imposibilidad material para recibirla u otra circunstancia que la haga imposible.
+e. Salvaguardar la confidencialidad del expediente, el cual se mantendrá bajo su custodia durante el trámite del proceso y hasta que se rinda el Informe Recomendativo.
+f. Realizar las inspecciones oculares y periciales que se hayan ordenado para el caso, en presencia de las partes denunciada y denunciante y sus eventuales representantes legales.
+g. Elaborar y entregar el informe final con carácter recomendativo, debidamente fundamentado, a la persona presidenta o jerarca de la organización que los nombró. En este informe, además se deben hacer constar las medidas cautelares que se hubieren ordenado a favor de la persona denunciante y el fundamento de estas. Al informe recomendativo final se adjuntará el expediente completo para el dictado de la decisión final.
+h. En aplicación de su deber de dirigir el procedimiento con celeridad y dentro de los plazos establecidos, también podrá limitar la cantidad de prueba testimonial cuando esta sea súper abundante.
+i. Ante denuncias anónimas, en caso de constatar la presencia de una persona que posea antecedentes laborando en un ente deportivo, se deberá comunicar a la inspección de trabajo.

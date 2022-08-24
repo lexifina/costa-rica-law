@@ -1,0 +1,2 @@
+Artículo 38.-Del agravamiento de la sanción.
+Para imponer la sanción correspondiente a la gravedad de la falta, se considerará la conducta desplegada, el rango jerárquico o de autoridad de la persona denunciada, la naturaleza de las funciones que la persona denunciada desempeña, el impacto de las conductas en la actividad deportiva y en el estado general de bienestar de la persona denunciante, la edad de la víctima, así como cualquier otra condición de vulnerabilidad en que esta se encuentre, y la reincidencia.

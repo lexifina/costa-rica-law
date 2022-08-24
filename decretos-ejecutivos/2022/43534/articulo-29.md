@@ -1,0 +1,5 @@
+Artículo 29.-Prohibiciones generales.
+Queda prohibido a las personas definidas en el artículo 4 de este reglamento, realizar cualquier tipo de conducta de hostigamiento sexual, contemplada artículo 6 de este reglamento. De incumplir con esta prohibición, la persona será sancionada de conformidad con la Ley No.9967. Ley contra el Hostigamiento y Acoso Sexual en el Deporte y el presente Reglamento.
+Queda expresamente prohibido solicitarle a la persona denunciante que ratifique la denuncia, así como la realización de investigación preliminar, siendo obligatorio iniciar el procedimiento de investigación a partir de la denuncia respectiva, con la consecuente integración de la Comisión Investigadora.
+Asimismo, queda expresamente prohibido considerar los antecedentes de la persona denunciante, particularmente en lo relativo al ejercicio de su sexualidad.
+Queda prohibido cualquier acto de acción u omisión, procesal o extraprocesal, de revictimización hacia la persona denunciante, incluido el obligarla a declarar en la audiencia de recepción de pruebas y someterse a interrogatorios.

@@ -1,0 +1,2 @@
+Artículo 41. Plazo para nombrar Comisión Institucional.
+El Instituto Nacional del Deporte y la Recreación (ICODER), a través del Consejo Nacional del Deporte y la Recreación, tendrá el plazo de dos meses a partir de la vigencia de este reglamento para nombrar a las personas integrantes de la Comisión Institucional contra el Hostigamiento Sexual del ICODER, de conformidad con el artículo 9 de este Reglamento.
