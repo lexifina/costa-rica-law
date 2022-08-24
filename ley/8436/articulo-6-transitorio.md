@@ -1,0 +1,2 @@
+Transitorio VI- El Instituto Costarricense de Pesca y Acuicultura (lncopesca) tendrá un plazo máximo de dieciocho meses para iniciar los estudios a los que se hace referencia en el párrafo segundo del artículo 61 B y, una vez que los finalice, contará con un plazo máximo de tres meses para la creación del fideicomiso.
+(Así adicionado por el artículo 3° de la Ley para recuperar la riqueza atunera de Costa Rica y promover su aprovechamiento sostenible en beneficio del pueblo costarricense, N° 10304 del 24 de agosto de 2022)
