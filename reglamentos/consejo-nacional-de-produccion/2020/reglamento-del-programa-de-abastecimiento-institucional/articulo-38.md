@@ -1,4 +1,5 @@
-Artículo 38º-El mecanismo para fijar el precio de venta de los productos que suministra el PAI a las instituciones del Estado, es una actividad a realizar por las Direcciones: Programas Especiales y Dirección de Mercadeo y Agroindustria, y contemplará:
+Artículo 38.-El mecanismo para fijare! precio de venta de los productos que suministra el PAI a las instituciones del Estado, es una actividad a realizar por las Dirección de Mercadeo y Agroindustria, y contemplará:
+(Así reformado el párrafo anterior en sesión N° 3111 del 24 de agosto de 2022)
 a) El precio de compra (PC) que se paga al suplidor.
 b) Al precio de compra (PC), se agrega el margen de operación del CNP (MO) para la cobertura del costo operativo en que incurre la institución en la gestión integral del PAI.
 La fórmula de fijación de precio de venta del producto al cliente se establece así:

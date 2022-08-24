@@ -2,7 +2,8 @@ CAPÍTULO III
 DE LA DIRECCIÓN DE PROGRAMAS ESPECIALES (DPE)
 SECCIÓN PRIMERA
 De las funciones
-Artículo 13º-Corresponde a la DPE la administración del componente de compras-ventas del PAI del CNP con las siguientes funciones:
+Artículo 13º- Artículo 13.-Corresponde a la Subgerencia General la administración del componente de compras-ventas del PAI del CNP con las siguientes funciones:
+(Así reformado el párrafo anterior en sesión N° 3111 del 24 de agosto de 2022)
 a) Comprar a los productores agropecuarios y agroindustriales, acuícolas y pesqueros y agro empresas, los productos incluidos en el artículo 11º del presente Reglamento para atender el PAI, contribuyendo a la modernización y verticalización del Sector Agropecuario mediante este servicio de apoyo solidario y de calidad a la comercialización.
 b) Hacer valer el imperativo legal que obliga a los entes del Estado a adquirir los suministros propios de la competencia del CNP a través del PAI, con estrategias diferenciadas según demanden las necesidades particulares de cada cliente, la necesidad gradual de incremento de cobertura del mercado institucional por el PAI y la integración a mandatos, políticas, planes o programas institucionales y/o sectoriales para el desarrollo rural, generar valor agregado, fortalecer procesos de comercialización agropecuario regional y local y el mejoramiento de la seguridad alimentaria y nutricional.
 c) Verificar, a través de la Dirección de Calidad Agrícola del CNP, el cumplimiento de las normas, medidas e inocuidad de los productos, así como realizar análisis de calidad de los mismos, con el objetivo de garantizar a los clientes la adquisición de productos de acuerdo a la calidad e inocuidad demandada.

@@ -14,3 +14,4 @@ Reglamento del programa de abastecimiento institucional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-08-25 | la propia norma |
+| 2 | 2022-08-24 | Reglamento 3111 (2022-08-24) |
