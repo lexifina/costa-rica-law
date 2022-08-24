@@ -1,0 +1,1 @@
+ARTÍCULO 2- Límites. El caserío de La Legüita que colinde al norte y noreste con el distrito de Mercedes Sur, en los puntos de bajo La Legua, La Legua y Cerbatana, y al sur se anexa y colindaría con el distrito de Candelarita, en el sector de Pedernal.
