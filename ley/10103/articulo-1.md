@@ -11,3 +11,4 @@ DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO
 DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2022 (en colones corrientes)
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 249 a La Gaceta N° 235 del 7 de diciembre de 2021, tomo I)
 (Reformado por el artículo 1° de la ley N° 10196 del 20 de abril del 2022)
+(Reformado por el artículo 1° de la ley N° 10305 del 24 de agosto de 2022)
