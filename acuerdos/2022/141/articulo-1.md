@@ -1,0 +1,8 @@
+COMISIÓN NACIONAL DE PREVENCIÓN DE RIESGOS Y ATENCIÓN DE EMERGENCIAS
+La Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, comunica la aprobación del Plan General de Emergencia del Decreto Ejecutivo N° 43542-MP-MICITT mediante Acuerdo N° 141- 07-2022, de la Sesión Ordinaria N° 13-07-2022 del 21 de julio del 2022, dispuso lo siguiente:
+ACUERDO N° 141-07-2022
+1. La Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias da por aprobado el Plan General de Emergencia del Decreto Ejecutivo N° 43542-MP-MICITT, (Estado de emergencia nacional en todo el sector público del Estado costarricense, debido a los ciberataques que han afectado la estructura de los sistemas de información.).
+2. La Junta Directiva establece un plazo máximo de seis meses a partir de la publicación del Plan General de la Emergencia, para que las instituciones públicas puedan solicitar la inclusión de proyectos adicionales en el Plan, los cuales deberán ser valorados por la Administración de previo a su presentación ante la Junta Directiva. Deberá en todos los casos valorarse el nexo causal para poder tramitar la inclusión extemporánea.
+3. Instruir a la Dirección Ejecutiva para que proceda con la publicación del presente acuerdo y un vínculo público en la página web de la CNE para el acceso al contenido del Plan General de la Emergencia.
+Se informa adicionalmente que el vínculo público para consultar el Plan General de la Emergencia del Decreto Ejecutivo N° 43542-MP-MICITT es el siguiente: https:// www.cne.go.cr/recuperacion/declaratoria/declaratoria_ emergencia_vigentes.aspx
+Acuerdo Aprobado
