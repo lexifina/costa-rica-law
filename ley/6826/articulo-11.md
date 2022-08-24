@@ -24,3 +24,7 @@ iii. Sorgo.
 iv. Fruta y almendra de palma aceitera, así como sus derivados para producir alimento para animales.
 v. Maíz, así como sus derivados para producir alimentos para animales.
 d. Los productos veterinarios y los insumos agropecuarios y de pesca, a excepción de los de pesca deportiva, que definan, de común acuerdo, el Ministerio de Agricultura y Ganadería (MAG) y el Ministerio de Hacienda.
+4. Del cero coma cinco por ciento (0,5%) para los siguientes bienes y servicios:
+a. La venta de productos agropecuarios o agroindustriales orgánicos que se encuentren registrados y certificados ante la entidad correspondiente.
+b. Las ventas, así como las importaciones o internaciones, de equipo, maquinaria e insumos, debidamente avalados por el reglamento de exoneración que confeccionará el Ministerio de Agricultura y Ganadería (MAG} y utilizados en las diferentes etapas de producción y agroindustrialización de productos agropecuarios orgánicos por parte de grupos de personas productoras orgánicas organizadas (GPO}, de conformidad con lo establecido en la Ley 8591, Desarrollo, Promoción y Fomento de la Actividad Agropecuaria Orgánica, de 28 de junio de 2007.
+(Así adicionado el inciso 4) anterior por el artículo 1° de la Ley para proteger el desarrollo, la promoción y el fomento de la actividad agropecuaria orgánica, N° 10256 del 24 de agosto de 2022)
