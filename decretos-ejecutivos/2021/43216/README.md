@@ -14,3 +14,4 @@ Reglamento para la gestión, protección y conservación del Patrimonio Cultural
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-18 | la propia norma |
+| 2 | 2022-08-25 | Decreto Ejecutivo 43987 (2022-08-25) |
