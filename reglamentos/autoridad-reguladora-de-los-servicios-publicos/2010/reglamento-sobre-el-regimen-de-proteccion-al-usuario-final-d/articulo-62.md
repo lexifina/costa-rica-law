@@ -1,2 +1,0 @@
-Artículo 62.—Métodos de pago por terceros. Este fraude pretende omitir el pago de los servicios de telecomunicaciones o que los mismos sean cargados a facturaciones de otros usuarios con el propósito de evadir dicho pago.
-Los operadores y proveedores deben establecer mecanismos de control en el cobro de los servicios de telecomunicaciones que minimicen la posibilidad del traspaso de cargos a terceros, sin contar con la autorización previa respectiva.

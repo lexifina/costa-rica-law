@@ -1,1 +1,0 @@
-Artículo 70.—Implementación de métodos de seguridad en fraude. Es obligación de los operadores y proveedores de servicios, aplicar las mejores prácticas internacionales en que permitan asegurar la protección del usuario ante condiciones fraudulentas, por lo que deberán implementar sistemas de prevención y detección de fraude FMS (Fraud Management System).

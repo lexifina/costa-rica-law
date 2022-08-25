@@ -1,3 +1,0 @@
-Artículo 8º—Libertad de establecimiento de comunicaciones. Todo servicio, será brindado a los clientes o usuarios por parte del operador o proveedor sin restricción alguna para el acceso a las distintas redes de telecomunicaciones, según lo indicado en el título habilitante o autorización.
-No obstante, el operador o el proveedor, previa autorización de la SUTEL, podrá restringir el acceso a servicios de telecomunicaciones en aquellos casos debidamente comprobados, o donde el operador demuestre la existencia de un uso fraudulento en sus redes.
-Los operadores y proveedores deberán implementar sistemas que permitan a sus clientes y usuarios restringir el tráfico a un destino particular o grupo de éstos.

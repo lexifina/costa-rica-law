@@ -1,1 +1,0 @@
-Artículo 54.—Potestad de la SUTEL para establecer condiciones de seguridad para minimizar el fraude en servicios de telecomunicaciones. La SUTEL tiene la potestad de establecer mecanismos o normativas de control de fraude ante los operadores o proveedores de servicio y éstos anualmente deberán presentar las actualizaciones en sus sistemas antifraude ante este Ente Regulador.

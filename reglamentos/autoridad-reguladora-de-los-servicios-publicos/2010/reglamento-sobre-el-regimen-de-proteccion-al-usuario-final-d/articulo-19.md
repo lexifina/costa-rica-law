@@ -1,1 +1,0 @@
-Artículo 19.—Indicadores para atención al cliente o usuario. De conformidad con el artículo 73 inciso k) de la Ley 7593, la SUTEL fijará los indicadores de eficiencia operativa para la gestión administrativa de los distintos operadores o proveedores, los cuales deberán ser publicados y actualizados mensualmente por éstos.

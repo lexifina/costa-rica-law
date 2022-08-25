@@ -1,1 +1,0 @@
-Artículo 26.—Tasación de los servicios de telecomunicaciones. Los procedimientos de tasación de los servicios de telecomunicaciones se regirán por lo establecido en el Reglamento de Acceso e Interconexión de Redes de Telecomunicaciones, el Reglamento de precios y tarifas y los pliegos tarifarios que emita la SUTEL.

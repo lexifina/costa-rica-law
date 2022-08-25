@@ -1,1 +1,0 @@
-Artículo 50.—Garantía por la prestación del servicio. Los operadores o proveedores podrán establecer diferentes medios de garantías para la prestación de sus servicios, los cuales deberán ser aprobados por la SUTEL.

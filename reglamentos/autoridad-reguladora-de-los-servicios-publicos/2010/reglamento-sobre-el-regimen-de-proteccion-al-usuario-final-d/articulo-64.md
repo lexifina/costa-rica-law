@@ -1,1 +1,0 @@
-Artículo 64.—Interrupción de la continuidad de los servicios. Se prohíbe la implementación y uso de mecanismos y equipos que interrumpan deliberadamente la continuidad en la prestación de los servicios de telecomunicaciones, con fines ilícitos o para provocar una falsa percepción del cliente sobre la calidad de servicio percibida.

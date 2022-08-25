@@ -1,1 +1,0 @@
-Artículo 81.—Prescripción. La prescripción de la responsabilidad administrativa derivada de las infracciones establecidas en la Ley 8642, se regirá por las disposiciones estipuladas en el artículo 71 de esa Ley.

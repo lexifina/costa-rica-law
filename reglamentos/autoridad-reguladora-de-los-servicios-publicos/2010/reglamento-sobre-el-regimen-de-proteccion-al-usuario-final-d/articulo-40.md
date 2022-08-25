@@ -1,1 +1,0 @@
-Artículo 40.—Vencimiento de los servicios en la modalidad de prepago. La SUTEL establecerá los mecanismos de liquidación y vencimiento de los servicios de prepago que se encuentran sujetos a un plazo de utilización y posterior vencimiento, así como también definirá las condiciones en que podrán ser reutilizados los saldos en servicios prepagados.

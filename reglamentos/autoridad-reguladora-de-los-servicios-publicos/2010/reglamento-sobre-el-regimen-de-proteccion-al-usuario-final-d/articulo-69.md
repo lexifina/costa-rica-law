@@ -1,4 +1,0 @@
-Artículo 69.—Sistemas antifraude. Los operadores o proveedores, están en la obligación de contar con sistemas de detección y prevención de fraude en todas sus redes.
-Estos sistemas deberán mantenerse actualizados conforme a las mejores prácticas y estándares internacionales.
-Asimismo, los operadores y proveedores realizarán semestralmente pruebas de funcionamiento de estos sistemas, cuyos resultados serán remitidos a la SUTEL en el plazo de 10 días hábiles.
-En el proceso inicial de pruebas para la instalación de los equipos antifraude, debe informarse a la SUTEL de conformidad con las mejores prácticas y estándares internacionales reconocidos sobre las características, metodologías, parámetros utilizados en dichas pruebas, así como los ajustes que se realicen en el proceso operativo de dichos equipos.

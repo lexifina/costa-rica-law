@@ -1,3 +1,0 @@
-Artículo 59.—Uso de equipos supresores de señal. Los equipos supresores de señal son aquellos dispositivos que mediante la propagación de señales interferentes bloquean el acceso a los servicios de telecomunicaciones.
-Se prohíbe la instalación y utilización de equipos bloqueadores de señal que afecten las condiciones de calidad de los servicios de telecomunicaciones en zonas públicas, de libre acceso al público o propiedad de terceros.
-Con base en el artículo 67 inciso a) aparte 2) de la Ley 8642 se constituye en una infracción muy grave el uso de estos dispositivos que explotan bandas de frecuencias sin la correspondiente concesión y permiso, por lo que la SUTEL podría actuar de conformidad con lo dispuesto en el artículo 69 de la misma Ley.

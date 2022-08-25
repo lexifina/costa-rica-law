@@ -1,2 +1,0 @@
-Artículo 63.—Fraude por roaming. Los operadores y proveedores deberán establecer los mecanismos de autenticación y control de acceso a usuarios que permitan asegurar que sus redes sean utilizadas únicamente por los usuarios que hayan suscrito los servicios o que cuenten con un acuerdo de roaming.
-El fraude por roaming, consiste en realizar comunicaciones de voz o datos en una red en la cual el cliente no ha suscrito servicios o acuerdos.

@@ -1,1 +1,0 @@
-Artículo 67.—Suplantación de páginas Web (Pharming). Queda prohibida la utilización de mecanismos, equipos y software que permitan la interrupción de los servicios brindados a través de páginas Web, para su posterior suplantación por parte de terceros.

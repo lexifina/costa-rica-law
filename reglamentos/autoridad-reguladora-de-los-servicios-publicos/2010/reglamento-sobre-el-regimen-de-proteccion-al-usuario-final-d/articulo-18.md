@@ -1,2 +1,0 @@
-Artículo 18.—Integración de servicios de telecomunicaciones. De conformidad con el artículo 6, inciso 8) de la Ley 8642, los operadores o proveedores podrán, cuando sus condiciones técnicas y legales se lo permitan, brindar varios servicios de forma integrada por un mismo medio.
-Para todos los casos, los operadores o proveedores están en la obligación de cumplir con los estándares de calidad y las condiciones de prestación de servicio definidas por la SUTEL en el “Reglamento de Prestación y Calidad de Servicios” de forma individual para cada servicio.

@@ -1,1 +1,0 @@
-Artículo 78.—Varios operadores o proveedores involucrados en la infracción. En este caso se realizará el cálculo de la sanción por aplicar a cada operador o proveedor en forma independiente de las sanciones que recaerán sobre otros operadores o proveedores, salvo lo establecido en el párrafo final del artículo 68 de la Ley 8642.

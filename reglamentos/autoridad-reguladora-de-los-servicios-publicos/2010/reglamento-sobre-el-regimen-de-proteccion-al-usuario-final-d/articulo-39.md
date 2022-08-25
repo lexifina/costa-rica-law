@@ -1,1 +1,0 @@
-Artículo 39.—Tasación de los servicios en modalidad prepago. Todos los servicios de prepago que impliquen comunicaciones por unidad de tiempo, serán tasados conforme al tiempo real de las comunicaciones, con unidades mínimas décimas de segundo, cumpliendo con los tiempos mínimos tasables establecidos por la SUTEL.

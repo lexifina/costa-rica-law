@@ -1,1 +1,0 @@
-Artículo 80.—Reincidencia en contrataciones no autorizadas. Dado el caso de que un operador o proveedor sea reincidente se expondrá a una infracción grave, con base en el artículo 67 inciso b) aparte 3 de la Ley 8642.

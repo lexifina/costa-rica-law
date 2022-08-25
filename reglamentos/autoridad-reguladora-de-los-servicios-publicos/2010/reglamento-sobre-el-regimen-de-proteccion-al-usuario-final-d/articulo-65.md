@@ -1,2 +1,0 @@
-Artículo 65.—Facturación engañosa. Se considera fraude en los sistemas de facturación o comprobantes del servicio cuando la información contenida en el desglose, no corresponda a los servicios contratados, o cuando los costos de las comunicaciones indicadas en dicho documento no concuerdan con las tarifas legalmente establecidas.
-Los operadores y proveedores deberán garantizar que sus sistemas de tasación, facturación y cobro se ajusten a las condiciones establecidas por la SUTEL y/o condiciones adicionales pactadas en los contratos de adhesión.

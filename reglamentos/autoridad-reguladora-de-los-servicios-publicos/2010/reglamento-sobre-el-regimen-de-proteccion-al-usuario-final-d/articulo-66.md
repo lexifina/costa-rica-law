@@ -1,1 +1,0 @@
-Artículo 66.—Fraude en modalidad prepago. Los operadores y proveedores deberán garantizar que los sistemas de comunicaciones en modalidad prepago, verifiquen el saldo disponible en la cuenta del cliente previo al establecimiento de comunicaciones.

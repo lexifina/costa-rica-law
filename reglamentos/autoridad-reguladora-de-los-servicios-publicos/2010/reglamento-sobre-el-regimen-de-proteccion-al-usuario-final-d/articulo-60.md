@@ -1,1 +1,0 @@
-Artículo 60.—Mecanismos de evasión de seguimiento e identificación de llamadas. Se prohíbe el uso de mecanismos y/o dispositivos que dificulten la identificación, rastreo y seguimiento de los orígenes o destinos de las comunicaciones, por parte de los operadores, proveedores o entidades judiciales.

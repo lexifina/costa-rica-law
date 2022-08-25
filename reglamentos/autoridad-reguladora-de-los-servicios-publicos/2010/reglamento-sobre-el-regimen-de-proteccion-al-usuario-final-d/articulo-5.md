@@ -1,1 +1,0 @@
-Artículo 5º—Condiciones de la prestación de los servicios de telecomunicaciones disponibles al público. Los usuarios finales de los servicios de telecomunicaciones disponibles al público, tienen el derecho a hacer uso de estos servicios en los términos establecidos en la Ley 8642, el presente reglamento y la normativa vigente.

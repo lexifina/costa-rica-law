@@ -1,2 +1,0 @@
-Artículo 61.—Usurpación de identidad. Los operadores y proveedores implementarán en sus puntos de venta y suscripción de servicios los mecanismos tecnológicos y logísticos que permitan la comprobación de la identidad de los suscriptores de servicios.
-La usurpación de la identidad se presenta cuando algún defraudador sustituye la identidad de otra persona con el objetivo de suscribir uno o varios servicios y eludir las responsabilidades asociadas.

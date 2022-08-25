@@ -1,1 +1,0 @@
-Artículo 42.—Transferencia de saldos. Los operadores o proveedores deberán ofrecer la opción de transferir los saldos no consumidos de un medio de prepago determinado, a otros servicios diferentes de igual naturaleza, mediante el reemplazo completo a otro medio de prepago nuevo, activación a través de un sistema de gestión o por cualquier otro medio definido por la SUTEL.

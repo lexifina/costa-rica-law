@@ -1,3 +1,0 @@
-Artículo 27.—Divulgación de tarifas. Los clientes o usuarios tienen derecho a conocer, de previo a la recepción de los servicios, las tarifas que se les aplicarán a los servicios de telecomunicaciones suscritos por éstos.
-Cualquier modificación de las tarifas deberá ser notificada a los clientes o usuarios de forma previa a su aplicación, no siendo estas de carácter retroactivo en el tiempo.
-Los operadores o proveedores deberán informar las tarifas a sus clientes o usuarios, de manera expresa, al momento de suscripción del correspondiente contrato, las cuales deberán brindarse totalmente desagregadas. La información podrá ser suministrada mediante centros de gestión y plataformas los cuales deben estar disponibles para todos los clientes o usuarios 24 horas del día.
