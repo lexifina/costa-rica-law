@@ -1,0 +1,1 @@
+Artículo 18.-Plazo para rendir la caución. Una vez que la Comisión haya notificado los montos de las cauciones a que se refiere el artículo 17 del presente Reglamento, los respectivos funcionarios y miembros contarán con un lapso no superior a los 15 días naturales, para rendir las respectivas cauciones en los términos y condiciones que establece este reglamento.

@@ -1,0 +1,1 @@
+Artículo 8º-SimuItaneidad de funciones sujetas a caución. El funcionario obligado a caucionar que se le asigne una función también generadora de ese mismo deber caucionará una sola vez y por el monto de mayor valor.

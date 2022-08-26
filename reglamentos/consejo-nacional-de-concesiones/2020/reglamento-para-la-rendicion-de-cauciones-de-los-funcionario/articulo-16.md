@@ -1,0 +1,2 @@
+Artículo 16.-Ejecución de la garantía. una vez dictada la resolución administrativa en firme o la sentencia judicial definitiva, según sea el caso, en la que se tenga por establecida la responsabilidad de un caucionante, el director del Área de Capital Humano y Gestión tramitará la activación de la póliza respectiva a los efectos de resarcir a la Administración.
+Lo anterior sin perjuicio de las acciones que procedan en caso de resultar un saldo en descubierto entre el monto asegurado y el extremo indemnizatorio.

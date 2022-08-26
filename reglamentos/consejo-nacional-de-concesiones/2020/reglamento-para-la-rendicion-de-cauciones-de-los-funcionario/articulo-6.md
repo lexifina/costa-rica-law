@@ -1,0 +1,3 @@
+Artículo 6º-De la forma para determinar el monto de la garantía. Con el fin de determinar el monto de la caución que debe rendir el funcionario respectivo, la Comisión de Cauciones tomará en cuenta el monto administrado, el nivel de responsabilidad del funcionario, así como su salario definiendo el monto respectivo a caucionar.
+Una vez hecha la actualización de los montos de caución, el Área de Capital Humano y Gestión será responsable de velar porque se cumpla con lo determinado en el presente reglamento.
+En el mes de enero de cada año la Comisión de Cauciones deberá actualizar el monto de dicha póliza, emitiéndose el acto debidamente razonado y comunicándose oportunamente a todos los funcionarios involucrados.
